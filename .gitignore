@@ -1,0 +1,6 @@
+# IDE
+.vscode/
+.idea/
+*.swp
+.DS_Store
+Thumbs.db
