@@ -374,6 +374,51 @@
   .audio-dock.is-error { border-color: var(--crimson-dim); }
   .audio-dock.is-error .audio-btn { background: var(--line); box-shadow: none; cursor: not-allowed; }
   #yt-player-host { position: fixed; width: 1px; height: 1px; left: -9999px; top: -9999px; pointer-events: none; opacity: 0; }
+  /* AUTOPLAY GESTURE OVERLAY */
+  .gesture-hint {
+    position: fixed; inset: 0; z-index: 999;
+    background: radial-gradient(circle at center, rgba(7,6,10,.85), rgba(7,6,10,.97));
+    display: flex; align-items: center; justify-content: center;
+    cursor: pointer;
+    transition: opacity .8s var(--ease);
+    backdrop-filter: blur(8px);
+    -webkit-backdrop-filter: blur(8px);
+  }
+  .gesture-hint.is-hidden { opacity: 0; pointer-events: none; }
+  .gesture-hint-inner {
+    text-align: center; color: var(--ink-1);
+    padding: 40px;
+  }
+  .gesture-hint-glyph {
+    font-family: 'Cinzel', serif; font-size: 4rem; line-height: 1;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    margin-bottom: 18px; letter-spacing: .04em;
+  }
+  .gesture-hint-title {
+    font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .4em;
+    text-transform: uppercase; color: var(--crimson-2);
+    margin-bottom: 12px;
+  }
+  .gesture-hint-text {
+    font-family: 'Cormorant Garamond', serif; font-style: italic;
+    font-size: 1.3rem; color: var(--ink-2); margin-bottom: 28px;
+    max-width: 50ch;
+  }
+  .gesture-hint-cta {
+    display: inline-flex; align-items: center; gap: 12px;
+    padding: 14px 28px; border: 1px solid var(--crimson-dim);
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff; font-family: 'Cinzel', serif; font-size: 12px;
+    letter-spacing: .3em; text-transform: uppercase;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6);
+    animation: ctaPulse 2.4s ease-in-out infinite;
+  }
+  @keyframes ctaPulse {
+    0%, 100% { box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6); }
+    50%      { box-shadow: 0 0 0 1px rgba(255,255,255,.1) inset, 0 8px 32px -4px rgba(179,38,30,.9), 0 0 0 8px rgba(179,38,30,.08); }
+  }
+  .gesture-hint-cta svg { width: 16px; height: 16px; }
   .audio-dock:hover { transform: translateY(-2px); box-shadow: 0 18px 40px -10px rgba(0,0,0,.7), 0 0 0 1px var(--crimson-dim); }
   .audio-btn {
     appearance: none; border: 0; cursor: pointer;
@@ -699,6 +744,19 @@
   <div class="seal">Renegade Immortal FR</div>
   <div>Traduction communautaire non-officielle · Contenu & images via <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia" target="_blank" rel="noopener">Xian Ni Fandom Wiki</a> (CC BY-SA)</div>
 </footer>
+
+<!-- ============ AUTOPLAY GESTURE OVERLAY ============ -->
+<div class="gesture-hint" id="gesture-hint" role="dialog" aria-label="Cliquez pour activer le son">
+  <div class="gesture-hint-inner">
+    <div class="gesture-hint-glyph">仙</div>
+    <div class="gesture-hint-title">Renegade Immortal</div>
+    <div class="gesture-hint-text">Cliquez pour entrer dans le monde de Wang Lin — la musique d'ambiance s'activera.</div>
+    <div class="gesture-hint-cta">
+      <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
+      <span>Entrer</span>
+    </div>
+  </div>
+</div>
 
 <!-- ============ AUDIO DOCK ============ -->
 <div id="yt-player-host"></div>
@@ -1166,9 +1224,13 @@
     if (event === 'ready') {
       dock.classList.remove('is-loading');
       btn.setAttribute('aria-label', 'Lire l\'OST Xian Ni');
-      // applique le volume persisté
       const v = parseInt(vol.value, 10);
       if (!isNaN(v)) Audio.setVolume(v);
+      // si l'overlay a déjà été dismissé (réutilisation), lance la lecture
+      if (window.__ri_gesture_done && !Audio.isPlaying()) {
+        Audio.setPlaying(true);
+        dock.classList.add('is-playing');
+      }
     }
     if (event === 'play') {
       btn.setAttribute('aria-pressed', 'true');
@@ -1195,20 +1257,52 @@
     }
   });
 
-  // État initial UI
+  // État initial UI: bouton "on" par défaut
   dock.classList.add('is-loading');
-  btn.setAttribute('aria-label', 'Chargement de l\'OST...');
-  btn.setAttribute('aria-pressed', 'false');
+  btn.setAttribute('aria-label', 'L\'OST Xian Ni démarre automatiquement');
+  btn.setAttribute('aria-pressed', 'true');
+  iconPlay.style.display  = 'none';
+  iconPause.style.display = '';
+  dock.classList.add('is-playing');
 
   btn.addEventListener('click', function () {
     if (dock.classList.contains('is-error')) return;
     if (!Audio.isReady()) {
-      // pas encore prêt, on remet en loading visuellement
       dock.classList.add('is-loading');
       return;
     }
     Audio.setPlaying(!Audio.isPlaying());
   });
+
+  // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
+  const gestureHint = document.getElementById('gesture-hint');
+  function dismissGesture() {
+    if (gestureHint.classList.contains('is-hidden')) return;
+    gestureHint.classList.add('is-hidden');
+    window.__ri_gesture_done = true;
+    if (Audio.isReady()) {
+      Audio.setPlaying(true);
+      dock.classList.add('is-playing');
+      dock.classList.remove('is-loading');
+    }
+    // retire du DOM après le fade-out pour ne pas interférer
+    setTimeout(() => { if (gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+  }
+  gestureHint.addEventListener('click', dismissGesture, { once: false });
+  // ESC aussi pour skipper
+  document.addEventListener('keydown', function onceK(e) {
+    if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
+      e.preventDefault();
+      dismissGesture();
+      document.removeEventListener('keydown', onceK);
+    }
+  });
+  // Fallback: si le browser autorise l'autoplay (rare), dismiss automatique après 1.2s
+  setTimeout(() => {
+    if (Audio.isReady() && Audio.isPlaying()) {
+      dismissGesture();
+    }
+  }, 1200);
 
   vol.addEventListener('input', function () {
     Audio.setVolume(parseInt(vol.value, 10));
