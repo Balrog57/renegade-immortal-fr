@@ -1,0 +1,14 @@
+# Cloudflare Pages configuration
+# https://developers.cloudflare.com/pages/configuration/build-configuration/
+#
+# Ce fichier dit à Cloudflare Pages comment builder le site statique.
+# Build command: aucune (site statique, pas de build)
+# Output dir:   .  (la racine)
+# Root dir:     .
+
+# Désactive le détecteur automatique de framework
+# (sinon Cloudflare peut deviner "hugo" / "jekyll" et échouer)
+
+# Redirects optionnels
+# /chapitres/ → /renegade-immortal-fr.html#chapters
+# /wiki/      → /renegade-immortal-fr.html#wiki
