@@ -51,13 +51,34 @@ Site web **Single-Page Application** dédié à la traduction française et au w
 **Renegade Immortal (Xian Ni / 仙逆)** — © Er Gen (耳根). Tous droits réservés à l'auteur et à ses ayants droit.
 
 ### Traduction française
-**© 2024–2026 Balrog57**. La traduction française de l'œuvre en dossier `traduction/` est mon travail personnel (Balrog57 = auteur du repo). Licence : **CC BY-NC-SA 4.0** — partage autorisé avec attribution et même licence, usage commercial interdit. Pour toute republication ou usage commercial, contactez-moi.
+La traduction française en dossier `traduction/` est mon travail (Balrog57, auteur du repo) et je la libère volontairement :
+
+**Licence : CC0 1.0 (Domaine Public / No Rights Reserved)** — voir [`LICENSE-traduction.txt`](./LICENSE-traduction.txt)
+
+Tu peux :
+- ✅ Copier, modifier, redistribuer librement
+- ✅ Utiliser commercialement (livres, ebooks, apps, sites, audio, vidéo...)
+- ✅ Sans demander la permission
+- ✅ Sans attribution obligatoire (mais appreciated : "Traduit par Balrog57")
+
+Voir https://creativecommons.org/publicdomain/zero/1.0/deed.fr pour les détails légaux.
+
+En pratique : si ma traduction peut servir à qui que ce soit, c'est une victoire. Aucune contrainte.
 
 ### Wiki et images
 Contenu des pages et images de `wiki/` issues du [Xian Ni Fandom Wiki](https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia) — **CC BY-SA** (avec attribution aux contributeurs Fandom). Chaque page wiki a un lien `Voir sur Fandom Wiki →` pointant vers sa source.
 
 ### Code
-Le code source du site (`renegade-immortal-fr.html`, `index.html`, scripts) est sous licence **MIT** — libre d'usage, modification, redistribution avec mention de l'auteur original.
+Le code source du site (`renegade-immortal-fr.html`, `index.html`, scripts) est sous licence **MIT** — voir [`LICENSE.txt`](./LICENSE.txt). Libre d'usage, modification, redistribution avec mention de l'auteur original.
+
+### Résumé des licences
+
+| Contenu | Répertoire | Licence |
+|---|---|---|
+| **Code source** (HTML/CSS/JS) | `renegade-immortal-fr.html`, `index.html` | **MIT** ([LICENSE.txt](./LICENSE.txt)) |
+| **Traduction française** | `traduction/` | **CC0 1.0** domaine public ([LICENSE-traduction.txt](./LICENSE-traduction.txt)) |
+| **Wiki Fandom** | `wiki/` | **CC BY-SA** (attribué à Fandom) |
+| **Œuvre originale** | — | © Er Gen — tous droits réservés |
 
 ## 🚀 Déploiement
 
