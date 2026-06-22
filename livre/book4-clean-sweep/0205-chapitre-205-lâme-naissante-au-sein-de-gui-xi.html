@@ -804,31 +804,22 @@
   'use strict';
 
   // ============================================
-  // TAB SWITCHING
+  // BURGER MENU (mobile)
   // ============================================
-  const tabs = document.querySelectorAll('.nav-tab, .brand');
-  const panels = {
-    home: document.getElementById('panel-home'),
-    chapters: document.getElementById('panel-chapters'),
-    characters: document.getElementById('panel-characters'),
-    lore: document.getElementById('panel-lore'),
-    wiki: document.getElementById('panel-wiki')
-  };
-  function switchTab(target) {
-    if (!panels[target]) return;
-    document.querySelectorAll('.nav-tab').forEach(t => { t.classList.toggle('is-active', t.dataset.tab === target); });
-    Object.entries(panels).forEach(([k, el]) => { el.classList.toggle('is-active', k === target); });
-    window.scrollTo({ top: 0, behavior: 'smooth' });
-    document.getElementById('nav-tabs').classList.remove('is-open');
-    document.getElementById('nav-burger').setAttribute('aria-expanded', 'false');
-  }
-  tabs.forEach(t => { t.addEventListener('click', (e) => { e.preventDefault(); switchTab(t.dataset.tab); }); });
-
   const burger = document.getElementById('nav-burger');
   const navTabs = document.getElementById('nav-tabs');
-  burger.addEventListener('click', () => {
-    const open = navTabs.classList.toggle('is-open');
-    burger.setAttribute('aria-expanded', String(open));
+  if (burger && navTabs) {
+    burger.addEventListener('click', () => {
+      const open = navTabs.classList.toggle('is-open');
+      burger.setAttribute('aria-expanded', String(open));
+    });
+  }
+  // Close mobile menu on link click
+  document.querySelectorAll('.nav-tab').forEach(t => {
+    t.addEventListener('click', () => {
+      if (navTabs) navTabs.classList.remove('is-open');
+      if (burger) burger.setAttribute('aria-expanded', 'false');
+    });
   });
 
   // ============================================
@@ -1162,7 +1153,7 @@
     if (!active) return;
     const idx = order.indexOf(active.dataset.tab);
     const next = e.key === 'ArrowRight' ? order[(idx + 1) % order.length] : order[(idx - 1 + order.length) % order.length];
-    switchTab(next);
+    /* navigation handled by link clicks */
     document.querySelector('.nav-tab[data-tab="' + next + '"]').focus();
   });
 
