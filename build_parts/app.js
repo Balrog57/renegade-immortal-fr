@@ -469,13 +469,13 @@
 
     return { setPlaying, setVolume, isPlaying, isReady, subscribe };
   })();
-
-  // Wire UI
-  const dock = document.getElementById('audio-dock');
+    const dock = document.getElementById('audio-dock');
   const btn  = document.getElementById('audio-btn');
   const iconPlay  = document.getElementById('icon-play');
   const iconPause = document.getElementById('icon-pause');
   const vol  = document.getElementById('audio-vol');
+
+  // Wire UI (dock, btn, vol, etc. moved to root level)
 
   // Position du slider selon état persisté
   vol.value = String(Math.round(Audio.isReady() ? (player?._lastVol || 40) : 40));
