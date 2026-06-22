@@ -43,8 +43,14 @@
   }
   .nav-inner {
     max-width: 1240px; margin: 0 auto; padding: 14px 24px;
-    display: flex; align-items: center; justify-content: space-between; gap: 16px;
+    display: grid;
+    grid-template-columns: 1fr auto 1fr;
+    align-items: center;
+    gap: 16px;
   }
+  .nav-inner > .brand { justify-self: start; }
+  .nav-inner > .nav-tabs { justify-self: center; }
+  .nav-inner > .nav-burger { justify-self: end; }
   .brand {
     display: flex; align-items: baseline; gap: 10px;
     font-family: 'Cinzel', serif; font-weight: 700;

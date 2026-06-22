@@ -77,7 +77,7 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
   <div class="nav-inner">
     <a href="{base}index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
       <span class="dot" aria-hidden="true"></span>
-      <span>Immortel</span>
+      <span>Renegade Immortal</span>
       <small>· Xian Ni · 仙逆</small>
     </a>
     <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
@@ -85,12 +85,12 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
     </button>
     <nav class="nav-tabs" id="nav-tabs" role="navigation" aria-label="Sections principales">
       <a href="{base}index.html" class="nav-tab{' is-active' if nav_active == 'home' else ''}">Accueil</a>
-      <a href="{base}livre.html" class="nav-tab{' is-active' if nav_active == 'livre' else ''}">Livre</a>
       <a href="{base}chapitres.html" class="nav-tab{' is-active' if nav_active == 'chapters' else ''}">Chapitres</a>
       <a href="{base}personnages.html" class="nav-tab{' is-active' if nav_active == 'characters' else ''}">Personnages</a>
       <a href="{base}cultivation.html" class="nav-tab{' is-active' if nav_active == 'cultivation' else ''}">Cultivation</a>
-      <a href="{base}sectes-clans.html" class="nav-tab{' is-active' if nav_active == 'sectes' else ''}">Sectes & Clans</a>
+      <a href="{base}sectes-clans.html" class="nav-tab{' is-active' if nav_active == 'sectes' else ''}">Sectes &amp; Clans</a>
       <a href="{base}lieux.html" class="nav-tab{' is-active' if nav_active == 'lieux' else ''}">Lieux</a>
+      <a href="{base}livre.html" class="nav-tab{' is-active' if nav_active == 'livre' else ''}">Livre</a>
       
     </nav>
   </div>

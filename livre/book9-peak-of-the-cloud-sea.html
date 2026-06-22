@@ -54,8 +54,14 @@
   }
   .nav-inner {
     max-width: 1240px; margin: 0 auto; padding: 14px 24px;
-    display: flex; align-items: center; justify-content: space-between; gap: 16px;
+    display: grid;
+    grid-template-columns: 1fr auto 1fr;
+    align-items: center;
+    gap: 16px;
   }
+  .nav-inner > .brand { justify-self: start; }
+  .nav-inner > .nav-tabs { justify-self: center; }
+  .nav-inner > .nav-burger { justify-self: end; }
   .brand {
     display: flex; align-items: baseline; gap: 10px;
     font-family: 'Cinzel', serif; font-weight: 700;
@@ -635,7 +641,7 @@
   <div class="nav-inner">
     <a href="../../index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
       <span class="dot" aria-hidden="true"></span>
-      <span>Immortel</span>
+      <span>Renegade Immortal</span>
       <small>· Xian Ni · 仙逆</small>
     </a>
     <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
@@ -643,12 +649,12 @@
     </button>
     <nav class="nav-tabs" id="nav-tabs" role="navigation" aria-label="Sections principales">
       <a href="../../index.html" class="nav-tab">Accueil</a>
-      <a href="../../livre.html" class="nav-tab">Livre</a>
       <a href="../../chapitres.html" class="nav-tab is-active">Chapitres</a>
       <a href="../../personnages.html" class="nav-tab">Personnages</a>
       <a href="../../cultivation.html" class="nav-tab">Cultivation</a>
-      <a href="../../sectes-clans.html" class="nav-tab">Sectes & Clans</a>
+      <a href="../../sectes-clans.html" class="nav-tab">Sectes &amp; Clans</a>
       <a href="../../lieux.html" class="nav-tab">Lieux</a>
+      <a href="../../livre.html" class="nav-tab">Livre</a>
       
     </nav>
   </div>
