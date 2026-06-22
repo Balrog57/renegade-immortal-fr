@@ -106,6 +106,7 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
 <div class="gesture-hint" id="gesture-hint" data-home-only="true" role="dialog" aria-label="Entrer">
   <div class="gesture-hint-inner">
     <div class="gesture-hint-glyph">仙</div>
+    <h2 class="gesture-hint-title">Renegade Immortal</h2>
     <div class="gesture-hint-cta">
       <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
       <span>Entrer</span>
@@ -274,7 +275,7 @@ def build_home():
 
       <div class="home-hero-text">
         <div class="home-eyebrow">仙逆 Xian Ni · Web Novel · Traduction française</div>
-        <h1 class="home-title">Immortel</h1>
+        <h1 class="home-title">Renegade Immortal</h1>
         <p class="home-tagline">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.</p>
 
         <div class="home-synopsis">

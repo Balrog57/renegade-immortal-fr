@@ -450,9 +450,13 @@
     margin-bottom: 18px; letter-spacing: .04em;
   }
   .gesture-hint-title {
-    font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .4em;
-    text-transform: uppercase; color: var(--crimson-2);
-    margin-bottom: 12px;
+    font-family: 'Cinzel', serif; font-weight: 700;
+    font-size: clamp(1.4rem, 4vw, 2.2rem); letter-spacing: .15em;
+    text-transform: uppercase; line-height: 1.1;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    text-shadow: 0 0 30px rgba(200,164,74,.25);
+    margin-bottom: 28px;
   }
   .gesture-hint-text {
     font-family: 'Cormorant Garamond', serif; font-style: italic;

@@ -538,6 +538,11 @@
 
 // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
+  // Si déjà dismissé dans une session précédente, masquer immédiatement
+  if (gestureHint && localStorage.getItem('ri_gesture_dismissed') === '1') {
+    gestureHint.style.display = 'none';
+    window.__ri_gesture_done = true;
+  }
   function dismissGesture() {
     if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
     gestureHint.classList.add('is-hidden');
@@ -545,6 +550,8 @@
     gestureHint.style.pointerEvents = 'none';
     gestureHint.style.opacity = '0';
     window.__ri_gesture_done = true;
+    // Persist dismiss for future visits
+    try { localStorage.setItem('ri_gesture_dismissed', '1'); } catch (e) {}
     // Update dock visual state immediately
     btn.setAttribute('aria-pressed', 'true');
     btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
@@ -562,22 +569,24 @@
     // retire du DOM après le fade-out
     setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
   }
-  gestureHint.addEventListener('click', dismissGesture, { once: false });
-  // Backup: bind to document so any click on the page (during the overlay) works
-  function _dismissOnAnyClick(e) {
-    if (gestureHint && !gestureHint.classList.contains('is-hidden')) {
-      dismissGesture();
+  if (gestureHint && !window.__ri_gesture_done) {
+    gestureHint.addEventListener('click', dismissGesture, { once: false });
+    // Backup: bind to document so any click on the page (during the overlay) works
+    function _dismissOnAnyClick(e) {
+      if (gestureHint && !gestureHint.classList.contains('is-hidden')) {
+        dismissGesture();
+      }
     }
+    document.addEventListener('click', _dismissOnAnyClick, true);
+    // ESC aussi pour skipper
+    document.addEventListener('keydown', function onceK(e) {
+      if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
+        e.preventDefault();
+        dismissGesture();
+        document.removeEventListener('keydown', onceK);
+      }
+    });
   }
-  document.addEventListener('click', _dismissOnAnyClick, true);
-  // ESC aussi pour skipper
-  document.addEventListener('keydown', function onceK(e) {
-    if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
-      e.preventDefault();
-      dismissGesture();
-      document.removeEventListener('keydown', onceK);
-    }
-  });
   // Fallback: si le browser autorise l'autoplay (rare), dismiss automatique après 1.2s
   setTimeout(() => {
     if (Audio.isReady() && Audio.isPlaying()) {
