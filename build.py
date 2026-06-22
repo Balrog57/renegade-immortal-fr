@@ -113,6 +113,7 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
     </div>
   </div>
 </div>
+<button class="theme-toggle" id="theme-toggle" aria-label="Basculer thème clair/sombre" title="Thème clair/sombre">☀</button>
 <div class="audio-dock" id="audio-dock" role="region" aria-label="Musique d'ambiance">
   <button class="audio-btn" id="audio-btn" aria-label="L'OST Xian Ni démarre automatiquement" aria-pressed="true">
     <svg id="icon-play" viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
@@ -177,15 +178,20 @@ def curate_top(bucket, n=20):
 
 
 def find_image_for_page(page):
+    """Find a local image for a wiki page, preferring WebP for size."""
     img_dir = WIKI / 'images'
     if not img_dir.exists(): return ''
     name_lower = page['name'].lower()
-    for f in img_dir.iterdir():
-        if f.stem.lower() == name_lower:
-            return f'wiki/images/{urllib.parse.quote(f.name)}'
-    for f in img_dir.iterdir():
-        if name_lower in f.stem.lower() or f.stem.lower() in name_lower:
-            return f'wiki/images/{urllib.parse.quote(f.name)}'
+    # First pass: exact match, prefer .webp
+    candidates = [f for f in img_dir.iterdir() if f.stem.lower() == name_lower]
+    webp = [c for c in candidates if c.suffix.lower() == '.webp']
+    if webp: return f'wiki/images/{urllib.parse.quote(webp[0].name)}'
+    if candidates: return f'wiki/images/{urllib.parse.quote(candidates[0].name)}'
+    # Second pass: partial match
+    candidates = [f for f in img_dir.iterdir() if name_lower in f.stem.lower() or f.stem.lower() in name_lower]
+    webp = [c for c in candidates if c.suffix.lower() == '.webp']
+    if webp: return f'wiki/images/{urllib.parse.quote(webp[0].name)}'
+    if candidates: return f'wiki/images/{urllib.parse.quote(candidates[0].name)}'
     return ''
 
 
@@ -263,7 +269,7 @@ def build_home():
 
     <div class="home-grid">
       <a class="home-tile" href="livre.html" data-href="livre.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/0/0c/Disciple_Wang.jpeg/revision/latest?cb=20251222110157')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/Disciple Wang.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">I</div>
@@ -272,7 +278,7 @@ def build_home():
         </div>
       </a>
       <a class="home-tile" href="chapitres.html" data-href="chapitres.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/4/44/0owanga1.jpg/revision/latest?cb=20180225073216')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/0owanga1.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">II</div>
@@ -281,7 +287,7 @@ def build_home():
         </div>
       </a>
       <a class="home-tile" href="personnages.html" data-href="personnages.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/e/e2/Situ_Nan_Game.jpg/revision/latest?cb=20180225073216')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/Situ Nan Game.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">III</div>
@@ -290,7 +296,7 @@ def build_home():
         </div>
       </a>
       <a class="home-tile" href="cultivation.html" data-href="cultivation.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/2/2a/Cultivation_Ranks.png/revision/latest')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/Ascendant.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">IV</div>
@@ -299,7 +305,7 @@ def build_home():
         </div>
       </a>
       <a class="home-tile" href="sectes-clans.html" data-href="sectes-clans.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/8/85/Heng_Yue_Sect.png/revision/latest')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/Heng Yue Sect.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">V</div>
@@ -308,7 +314,7 @@ def build_home():
         </div>
       </a>
       <a class="home-tile" href="lieux.html" data-href="lieux.html">
-        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/5/57/Planet_Suzaku.png/revision/latest')"></div>
+        <div class="home-tile-bg" style="background-image:url('wiki/images/Planet Suzaku.webp')"></div>
         <div class="home-tile-overlay"></div>
         <div class="home-tile-content">
           <div class="home-tile-num">VI</div>
@@ -454,7 +460,7 @@ def build_home():
 
 
 def build_livre():
-    """Livre onglet: only the 13 tome tiles, no prose intro."""
+    """Livre onglet: 13 tome tiles with local book cover images."""
     by_book = {}
     for c in CHAPTERS:
         by_book.setdefault(c['book'], []).append(c)
@@ -463,9 +469,10 @@ def build_livre():
         chs = by_book[b]
         first = chs[0]
         link = chapter_path(b, first['bookTitle'], first['n'], first['title']).rsplit('/', 1)[0] + '.html'
+        cover = f'wiki/images/Book {b}.webp'
         book_tiles += f"""
         <a class="livre-tile" href="{link}">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/{b}/{b:02d}/Book_{b}_-_{first["bookTitle"].replace(" ", "_").replace("'", "")}.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('{cover}')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome {b}</div>

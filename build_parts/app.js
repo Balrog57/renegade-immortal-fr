@@ -540,16 +540,25 @@
   // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
   function dismissGesture() {
-    if (gestureHint.classList.contains('is-hidden')) return;
+    if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
     gestureHint.classList.add('is-hidden');
     window.__ri_gesture_done = true;
-    if (Audio.isReady()) {
+    // Update dock visual state immediately
+    btn.setAttribute('aria-pressed', 'true');
+    btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+    iconPlay.style.display  = 'none';
+    iconPause.style.display = '';
+    dock.classList.add('is-playing');
+    dock.classList.remove('is-loading');
+    // Try to start audio — works if API is ready, otherwise the subscribe handler
+    // will catch the 'ready' event and call setPlaying(true) automatically
+    try {
       Audio.setPlaying(true);
-      dock.classList.add('is-playing');
-      dock.classList.remove('is-loading');
+    } catch (e) {
+      console.warn('setPlaying failed (will retry on ready):', e);
     }
-    // retire du DOM après le fade-out pour ne pas interférer
-    setTimeout(() => { if (gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+    // retire du DOM après le fade-out
+    setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
   }
   gestureHint.addEventListener('click', dismissGesture, { once: false });
   // ESC aussi pour skipper
@@ -570,4 +579,28 @@
   vol.addEventListener('input', function () {
     Audio.setVolume(parseInt(vol.value, 10));
   });
+
+  // === THEME TOGGLE (dark/light) ===
+  const themeBtn = document.getElementById('theme-toggle');
+  if (themeBtn) {
+    const saved = localStorage.getItem('ri_theme');
+    if (saved === 'light') {
+      document.documentElement.setAttribute('data-theme', 'light');
+      themeBtn.textContent = '☾';
+    } else {
+      themeBtn.textContent = '☀';
+    }
+    themeBtn.addEventListener('click', function() {
+      const current = document.documentElement.getAttribute('data-theme');
+      if (current === 'light') {
+        document.documentElement.removeAttribute('data-theme');
+        localStorage.setItem('ri_theme', 'dark');
+        themeBtn.textContent = '☀';
+      } else {
+        document.documentElement.setAttribute('data-theme', 'light');
+        localStorage.setItem('ri_theme', 'light');
+        themeBtn.textContent = '☾';
+      }
+    });
+  }
 })();

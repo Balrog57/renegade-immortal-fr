@@ -542,6 +542,83 @@
   }
 
 
+/* iPad / tablet (768px - 1024px) */
+@media (min-width: 768px) and (max-width: 1024px) {
+  main { padding: 32px 28px 60px; }
+  .nav-inner { padding: 12px 20px; }
+  .home-content { padding: 50px 24px 60px; }
+  .home-title { font-size: clamp(2.5rem, 7vw, 4.5rem); }
+  .home-grid { grid-template-columns: repeat(3, 1fr); gap: 14px; }
+  .themed-grid { grid-template-columns: repeat(3, 1fr); }
+  .livre-grid { grid-template-columns: repeat(3, 1fr); }
+  .reader-body { padding: 30px 36px 40px; }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; }
+}
+
+@media (min-width: 1024px) and (max-width: 1366px) {
+  main { padding: 40px 32px 70px; }
+  .home-grid { grid-template-columns: repeat(3, 1fr); }
+  .themed-grid { grid-template-columns: repeat(4, 1fr); }
+  .livre-grid { grid-template-columns: repeat(4, 1fr); }
+}
+
+/* Light theme overrides */
+:root[data-theme="light"] {
+  --bg-0: #f5f1e8;
+  --bg-1: #ebe5d5;
+  --bg-2: #dfd7c0;
+  --bg-3: #d3caaf;
+  --line: #c5b994;
+  --line-soft: #d5ccb1;
+  --ink-1: #2a2218;
+  --ink-2: #4a3f2e;
+  --ink-3: #7a6b54;
+  --ink-4: #aa9876;
+  --crimson: #a01d18;
+  --crimson-2: #c23020;
+  --crimson-dim: #601008;
+  --mystic: #3658b8;
+  --mystic-2: #4a78d8;
+  --mystic-dim: #1a3878;
+  --gold: #8a6a1a;
+  --gold-dim: #5a4410;
+}
+:root[data-theme="light"] body { background: var(--bg-0); color: var(--ink-1); }
+:root[data-theme="light"] body::before {
+  background:
+    radial-gradient(1100px 700px at 85% -10%, rgba(74,110,216,.05), transparent 60%),
+    radial-gradient(900px 600px at -10% 90%, rgba(179,38,30,.04), transparent 60%);
+}
+:root[data-theme="light"] .cover { background: var(--bg-2); }
+:root[data-theme="light"] .hero { background: transparent; }
+:root[data-theme="light"] .synopsis { background: var(--bg-1); }
+:root[data-theme="light"] .gesture-hint {
+  background: radial-gradient(circle at center, rgba(245,241,232,.92), rgba(245,241,232,.98));
+}
+
+/* Theme toggle button */
+.theme-toggle {
+  position: fixed; bottom: 90px; right: 22px; z-index: 200;
+  width: 44px; height: 44px;
+  background: var(--bg-1); border: 1px solid var(--line);
+  color: var(--ink-2);
+  display: flex; align-items: center; justify-content: center;
+  cursor: pointer; border-radius: 50%;
+  transition: all .2s;
+  font-size: 18px;
+  box-shadow: 0 4px 12px -2px rgba(0,0,0,.3);
+}
+.theme-toggle:hover {
+  background: var(--bg-2);
+  color: var(--crimson-2);
+  border-color: var(--crimson-dim);
+  transform: scale(1.05);
+}
+@media (max-width: 640px) {
+  .theme-toggle { bottom: 80px; right: 14px; width: 40px; height: 40px; font-size: 16px; }
+}
+
+
   .themed-header { margin: 12px 0 24px; }
   .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
   .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
@@ -587,7 +664,7 @@
     <div class="themed-header"><h1>Livre</h1></div>
     <div class="livre-grid" role="list">
         <a class="livre-tile" href="livre/book1-the-mediocre-youth.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/1/01/Book_1_-_The_Mediocre_Youth.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 1.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 1</div>
@@ -596,7 +673,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book2-the-bloody-image-of-cultivation.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/2/02/Book_2_-_The_Bloody_Image_of_Cultivation.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 2.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 2</div>
@@ -605,7 +682,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book3-famous-in-the-sea-of-devils.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/3/03/Book_3_-_Famous_in_the_Sea_of_Devils.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 3.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 3</div>
@@ -614,7 +691,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book4-clean-sweep.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/4/04/Book_4_-_Clean_Sweep.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 4.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 4</div>
@@ -623,7 +700,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book5-cultivation-planet-crystal.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/5/05/Book_5_-_Cultivation_Planet_Crystal.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 5.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 5</div>
@@ -632,7 +709,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book6-arriving-on-tian-yun.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/6/06/Book_6_-_Arriving_on_Tian_Yun.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 6.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 6</div>
@@ -641,7 +718,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book7-fame-shakes-allheaven-star-system.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/7/07/Book_7_-_Fame_Shakes_Allheaven_Star_System.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 7.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 7</div>
@@ -650,7 +727,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book8-alliances-secret.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/8/08/Book_8_-_Alliances_Secret.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 8.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 8</div>
@@ -659,7 +736,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book9-peak-of-the-cloud-sea.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/9/09/Book_9_-_Peak_of_the_Cloud_Sea.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 9.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 9</div>
@@ -668,7 +745,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book10-rampage-through-the-inner-realm.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/10/10/Book_10_-_Rampage_Through_the_Inner_Realm.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 10.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 10</div>
@@ -677,7 +754,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book11-mysteries-of-the-ancient-era.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/11/11/Book_11_-_Mysteries_of_the_Ancient_Era.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 11.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 11</div>
@@ -686,7 +763,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book12-tenth-sun-of-the-immortal-astral-continent.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/12/12/Book_12_-_Tenth_Sun_of_the_Immortal_Astral_Continent.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 12.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 12</div>
@@ -695,7 +772,7 @@
           </div>
         </a>
         <a class="livre-tile" href="livre/book13-light-of-the-coming-end.html">
-          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/13/13/Book_13_-_Light_of_the_coming_end.jpg/revision/latest')"></div>
+          <div class="livre-tile-bg" style="background-image:url('wiki/images/Book 13.webp')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 13</div>
@@ -721,6 +798,7 @@
     </div>
   </div>
 </div>
+<button class="theme-toggle" id="theme-toggle" aria-label="Basculer thème clair/sombre" title="Thème clair/sombre">☀</button>
 <div class="audio-dock" id="audio-dock" role="region" aria-label="Musique d'ambiance">
   <button class="audio-btn" id="audio-btn" aria-label="L'OST Xian Ni démarre automatiquement" aria-pressed="true">
     <svg id="icon-play" viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
@@ -1278,16 +1356,25 @@
   // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
   function dismissGesture() {
-    if (gestureHint.classList.contains('is-hidden')) return;
+    if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
     gestureHint.classList.add('is-hidden');
     window.__ri_gesture_done = true;
-    if (Audio.isReady()) {
+    // Update dock visual state immediately
+    btn.setAttribute('aria-pressed', 'true');
+    btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+    iconPlay.style.display  = 'none';
+    iconPause.style.display = '';
+    dock.classList.add('is-playing');
+    dock.classList.remove('is-loading');
+    // Try to start audio — works if API is ready, otherwise the subscribe handler
+    // will catch the 'ready' event and call setPlaying(true) automatically
+    try {
       Audio.setPlaying(true);
-      dock.classList.add('is-playing');
-      dock.classList.remove('is-loading');
+    } catch (e) {
+      console.warn('setPlaying failed (will retry on ready):', e);
     }
-    // retire du DOM après le fade-out pour ne pas interférer
-    setTimeout(() => { if (gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+    // retire du DOM après le fade-out
+    setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
   }
   gestureHint.addEventListener('click', dismissGesture, { once: false });
   // ESC aussi pour skipper
@@ -1308,6 +1395,30 @@
   vol.addEventListener('input', function () {
     Audio.setVolume(parseInt(vol.value, 10));
   });
+
+  // === THEME TOGGLE (dark/light) ===
+  const themeBtn = document.getElementById('theme-toggle');
+  if (themeBtn) {
+    const saved = localStorage.getItem('ri_theme');
+    if (saved === 'light') {
+      document.documentElement.setAttribute('data-theme', 'light');
+      themeBtn.textContent = '☾';
+    } else {
+      themeBtn.textContent = '☀';
+    }
+    themeBtn.addEventListener('click', function() {
+      const current = document.documentElement.getAttribute('data-theme');
+      if (current === 'light') {
+        document.documentElement.removeAttribute('data-theme');
+        localStorage.setItem('ri_theme', 'dark');
+        themeBtn.textContent = '☀';
+      } else {
+        document.documentElement.setAttribute('data-theme', 'light');
+        localStorage.setItem('ri_theme', 'light');
+        themeBtn.textContent = '☾';
+      }
+    });
+  }
 })();
 
 </script>

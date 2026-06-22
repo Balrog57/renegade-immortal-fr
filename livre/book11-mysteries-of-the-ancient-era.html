@@ -542,6 +542,83 @@
   }
 
 
+/* iPad / tablet (768px - 1024px) */
+@media (min-width: 768px) and (max-width: 1024px) {
+  main { padding: 32px 28px 60px; }
+  .nav-inner { padding: 12px 20px; }
+  .home-content { padding: 50px 24px 60px; }
+  .home-title { font-size: clamp(2.5rem, 7vw, 4.5rem); }
+  .home-grid { grid-template-columns: repeat(3, 1fr); gap: 14px; }
+  .themed-grid { grid-template-columns: repeat(3, 1fr); }
+  .livre-grid { grid-template-columns: repeat(3, 1fr); }
+  .reader-body { padding: 30px 36px 40px; }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; }
+}
+
+@media (min-width: 1024px) and (max-width: 1366px) {
+  main { padding: 40px 32px 70px; }
+  .home-grid { grid-template-columns: repeat(3, 1fr); }
+  .themed-grid { grid-template-columns: repeat(4, 1fr); }
+  .livre-grid { grid-template-columns: repeat(4, 1fr); }
+}
+
+/* Light theme overrides */
+:root[data-theme="light"] {
+  --bg-0: #f5f1e8;
+  --bg-1: #ebe5d5;
+  --bg-2: #dfd7c0;
+  --bg-3: #d3caaf;
+  --line: #c5b994;
+  --line-soft: #d5ccb1;
+  --ink-1: #2a2218;
+  --ink-2: #4a3f2e;
+  --ink-3: #7a6b54;
+  --ink-4: #aa9876;
+  --crimson: #a01d18;
+  --crimson-2: #c23020;
+  --crimson-dim: #601008;
+  --mystic: #3658b8;
+  --mystic-2: #4a78d8;
+  --mystic-dim: #1a3878;
+  --gold: #8a6a1a;
+  --gold-dim: #5a4410;
+}
+:root[data-theme="light"] body { background: var(--bg-0); color: var(--ink-1); }
+:root[data-theme="light"] body::before {
+  background:
+    radial-gradient(1100px 700px at 85% -10%, rgba(74,110,216,.05), transparent 60%),
+    radial-gradient(900px 600px at -10% 90%, rgba(179,38,30,.04), transparent 60%);
+}
+:root[data-theme="light"] .cover { background: var(--bg-2); }
+:root[data-theme="light"] .hero { background: transparent; }
+:root[data-theme="light"] .synopsis { background: var(--bg-1); }
+:root[data-theme="light"] .gesture-hint {
+  background: radial-gradient(circle at center, rgba(245,241,232,.92), rgba(245,241,232,.98));
+}
+
+/* Theme toggle button */
+.theme-toggle {
+  position: fixed; bottom: 90px; right: 22px; z-index: 200;
+  width: 44px; height: 44px;
+  background: var(--bg-1); border: 1px solid var(--line);
+  color: var(--ink-2);
+  display: flex; align-items: center; justify-content: center;
+  cursor: pointer; border-radius: 50%;
+  transition: all .2s;
+  font-size: 18px;
+  box-shadow: 0 4px 12px -2px rgba(0,0,0,.3);
+}
+.theme-toggle:hover {
+  background: var(--bg-2);
+  color: var(--crimson-2);
+  border-color: var(--crimson-dim);
+  transform: scale(1.05);
+}
+@media (max-width: 640px) {
+  .theme-toggle { bottom: 80px; right: 14px; width: 40px; height: 40px; font-size: 16px; }
+}
+
+
   .breadcrumb { font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 14px; }
   .breadcrumb a { color: var(--crimson-2); border-bottom: 1px solid var(--crimson-dim); }
   .chapters { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 12px; }
@@ -1319,6 +1396,7 @@
     </div>
   </div>
 </div>
+<button class="theme-toggle" id="theme-toggle" aria-label="Basculer thème clair/sombre" title="Thème clair/sombre">☀</button>
 <div class="audio-dock" id="audio-dock" role="region" aria-label="Musique d'ambiance">
   <button class="audio-btn" id="audio-btn" aria-label="L'OST Xian Ni démarre automatiquement" aria-pressed="true">
     <svg id="icon-play" viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
@@ -1876,16 +1954,25 @@
   // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
   function dismissGesture() {
-    if (gestureHint.classList.contains('is-hidden')) return;
+    if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
     gestureHint.classList.add('is-hidden');
     window.__ri_gesture_done = true;
-    if (Audio.isReady()) {
+    // Update dock visual state immediately
+    btn.setAttribute('aria-pressed', 'true');
+    btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+    iconPlay.style.display  = 'none';
+    iconPause.style.display = '';
+    dock.classList.add('is-playing');
+    dock.classList.remove('is-loading');
+    // Try to start audio — works if API is ready, otherwise the subscribe handler
+    // will catch the 'ready' event and call setPlaying(true) automatically
+    try {
       Audio.setPlaying(true);
-      dock.classList.add('is-playing');
-      dock.classList.remove('is-loading');
+    } catch (e) {
+      console.warn('setPlaying failed (will retry on ready):', e);
     }
-    // retire du DOM après le fade-out pour ne pas interférer
-    setTimeout(() => { if (gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+    // retire du DOM après le fade-out
+    setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
   }
   gestureHint.addEventListener('click', dismissGesture, { once: false });
   // ESC aussi pour skipper
@@ -1906,6 +1993,30 @@
   vol.addEventListener('input', function () {
     Audio.setVolume(parseInt(vol.value, 10));
   });
+
+  // === THEME TOGGLE (dark/light) ===
+  const themeBtn = document.getElementById('theme-toggle');
+  if (themeBtn) {
+    const saved = localStorage.getItem('ri_theme');
+    if (saved === 'light') {
+      document.documentElement.setAttribute('data-theme', 'light');
+      themeBtn.textContent = '☾';
+    } else {
+      themeBtn.textContent = '☀';
+    }
+    themeBtn.addEventListener('click', function() {
+      const current = document.documentElement.getAttribute('data-theme');
+      if (current === 'light') {
+        document.documentElement.removeAttribute('data-theme');
+        localStorage.setItem('ri_theme', 'dark');
+        themeBtn.textContent = '☀';
+      } else {
+        document.documentElement.setAttribute('data-theme', 'light');
+        localStorage.setItem('ri_theme', 'light');
+        themeBtn.textContent = '☾';
+      }
+    });
+  }
 })();
 
 </script>
