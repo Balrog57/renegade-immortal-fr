@@ -19,3 +19,4 @@ site/.test.log
 venv/
 __pycache__/
 *.pyc
+_site/
