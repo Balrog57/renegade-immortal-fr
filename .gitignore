@@ -4,3 +4,11 @@
 *.swp
 .DS_Store
 Thumbs.db
+
+# Wiki dev caches (rebuild with python script)
+wiki/fandom_all_images.json
+wiki/image_index_unified.json
+wiki/image_mapping.json
+
+# External scrape (NovelFrance) — local reference, not shipped
+novelfrance/
