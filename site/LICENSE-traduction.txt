@@ -1,0 +1,134 @@
+CC0 1.0 Universal — Creative Commons Public Domain Dedication
+==============================================================
+
+This is a translation of the work "Renegade Immortal" (Xian Ni / 仙逆) by Er Gen,
+originally written in Chinese. The French translation contained in the `traduction/`
+directory of this repository was made by Balrog57 and is dedicated to the public
+domain under the Creative Commons CC0 1.0 Universal Public Domain Dedication.
+
+You can copy, modify, distribute, and use this translation, including for
+commercial purposes, all without asking permission.
+
+For more details, see: https://creativecommons.org/publicdomain/zero/1.0/
+
+
+Creative Commons Legal Code — CC0 1.0 Universal
+------------------------------------------------
+
+    CREATIVE COMMONS CORPORATION IS NOT A LAW FIRM AND DOES NOT PROVIDE
+    LEGAL SERVICES. DISTRIBUTION OF THIS DOCUMENT DOES NOT CREATE AN
+    ATTORNEY-CLIENT RELATIONSHIP. CREATIVE COMMONS PROVIDES THIS
+    INFORMATION ON AN "AS-IS" BASIS. CREATIVE COMMONS MAKES NO WARRANTIES
+    REGARDING THE USE OF THIS DOCUMENT OR THE INFORMATION OR WORKS
+    PROVIDED HEREUNDER, AND DISCLAIMS LIABILITY FOR DAMAGES RESULTING
+    FROM THE USE OF THIS DOCUMENT OR THE INFORMATION OR WORKS PROVIDED
+    HEREUNDER.
+
+Statement of Purpose
+
+The laws of most jurisdictions throughout the world automatically confer
+exclusive Copyright and Related Rights (defined below) upon the creator and
+subsequent owner(s) (each and all, an "owner") of an original work of
+authorship and/or a database (each, a "Work").
+
+Certain owners wish to permanently relinquish those rights to a Work for the
+purpose of contributing to a commons of creative, cultural and scientific
+works ("Commons") that the public can reliably and without fear of later
+claims of infringement build upon, modify, incorporate in other works,
+reuse and redistribute as freely as possible in any form whatsoever and for
+any purposes, including without limitation commercial purposes.
+
+These owners may contribute to the Commons to promote the ideal of a free
+culture and the further production of creative, cultural and scientific
+works, or to gain reputation or greater distribution for their Work in
+part through the use and efforts of others.
+
+For these and/or other purposes and motivations, and without any expectation
+of additional consideration or compensation, the person associating CC0 with
+a Work (the "Affirmer"), to the extent that he or she is an owner of Copyright
+and Related Rights in the Work, voluntarily elects to apply CC0 to the Work
+and publicly distribute the Work under its terms, with knowledge of his or her
+Copyright and Related Rights in the Work and the meaning and intended legal
+effect of CC0 on those rights.
+
+1. Copyright and Related Rights.
+
+A Work made available under CC0 may be protected by copyright and related or
+neighboring rights ("Copyright and Related Rights"). Copyright and Related
+Rights include, but are not limited to, the following:
+
+  i. the right to reproduce, prepare derivative works of, publicly display,
+     publicly perform, distribute, and otherwise exploit the Work;
+  ii. the right to make, sell, offer for sale, have made, import, and
+     otherwise transfer the Work;
+  iii. the right to publish, communicate, distribute, and make available the
+      Work to the public;
+  iv. publicity, privacy, and/or personality rights, to the extent they
+      affect the rights of the Affirmer under copyright and related rights;
+  v. database rights (such as those arising under Directive 96/9/EC of the
+     European Parliament and of the Council of 11 March 1996 on the legal
+     protection of databases, and under any national implementation thereof,
+     including any amended or successor version of such directive); and
+  vi. other similar, equivalent or corresponding rights throughout the world
+      based on applicable law or treaty, and any national implementations
+      thereof.
+
+2. Waiver.
+
+To the greatest extent permitted by, but not in contravention of, applicable
+law, the Affirmer hereby overtly, fully, permanently, irrevocably and
+unconditionally waives, abandons, and surrenders all of the Affirmer's
+Copyright and Related Rights and associated claims and causes of action,
+whether now known or unknown (including existing as well as future claims and
+causes of action), in the Work: (a) for the maximum duration of the
+Copyright and Related Rights; (b) for any current and future legal
+protections, including without limitation moral rights, to the extent
+permitted by applicable law; and (c) for any jurisdiction in which the
+Affirmer may have such Copyright and Related Rights.
+
+3. Public License Fallback.
+
+Should any part of the Waiver for any reason be judged legally invalid or
+ineffective under applicable law, then the Waiver shall be preserved to the
+maximum extent permitted taking into account the Affirmer's express
+Statement of Purpose. In addition, to the extent the Waiver is so judged,
+the Affirmer hereby grants to each affected person a royalty-free,
+non-transferable, non-sublicensable, non-exclusive, irrevocable and
+unconditional license to exercise the Affirmer's Copyright and Related
+Rights in the Work: (a) for the maximum duration of the Copyright and
+Related Rights; (b) for any current and future legal protections, including
+without limitation moral rights, to the extent permitted by applicable law;
+and (c) for any jurisdiction in which the Affirmer may have such Copyright
+and Related Rights. This license is effective immediately upon the Work
+being made available by the Affirmer under the terms of this Public License
+and lasts, unless expressly stated otherwise, for the maximum duration
+provided by applicable law.
+
+4. Limitations and Disclaimers.
+
+  a. No trademark or patent rights held by the Affirmer are waived, abandoned,
+     surrendered, licensed or otherwise affected by this document.
+  b. A copy of the Work in its original form (or as near to the original
+     form as is reasonably practicable) must be provided together with this
+     Public License, but neither the Work nor any portion thereof need be
+     associated with or accompanied by any particular legal notices or
+     disclaimers, nor need the Work be associated with the public domain
+     notice of CC0. The Affirmer may also make available the Work under
+     terms of their choosing, provided the terms are not more restrictive
+     than those of CC0.
+  c. The Affirmer acknowledges and agrees that, to the extent the Work is
+     considered a "database" under applicable copyright law, sui generis
+     database rights may apply to the Work, and the Affirmer hereby waives
+     all such rights to the maximum extent permitted by applicable law.
+  d. The Affirmer agrees that the mention of CC0 and the URL
+     https://creativecommons.org/publicdomain/zero/1.0/ is sufficient to
+     identify the Public License.
+
+================================================================================
+
+Original work: "Renegade Immortal" (Xian Ni / 仙逆) by Er Gen (耳根)
+All rights to the original work belong to Er Gen and his assignees.
+
+Translation: CC0 1.0 — see above.
+Wiki content (wiki/ directory): CC BY-SA — attributed to Xian Ni Fandom Wiki contributors.
+Code: MIT — see top-level repository.
