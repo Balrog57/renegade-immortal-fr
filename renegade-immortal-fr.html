@@ -281,18 +281,33 @@
   .search svg { position: absolute; left: 14px; top: 50%; transform: translateY(-50%); color: var(--ink-3); }
   .filter { display: flex; align-items: center; gap: 10px; font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-3); }
   .filter select { background: var(--bg-1); border: 1px solid var(--line); color: var(--ink-1); padding: 11px 14px; font: inherit; font-size: 13px; border-radius: var(--r-md); }
-  .chapters { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 1px; background: var(--line); border: 1px solid var(--line); }
+  .chapters { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 12px; }
   .chapter {
-    display: flex; align-items: baseline; justify-content: space-between;
-    background: var(--bg-1); padding: 18px 20px;
+    display: flex; align-items: center; justify-content: space-between; gap: 12px;
+    background: var(--bg-1);
+    border: 1px solid var(--line);
+    padding: 16px 18px;
     color: var(--ink-1);
-    transition: background .2s var(--ease), color .2s var(--ease);
+    transition: background .2s var(--ease), border-color .2s, color .2s, transform .2s;
     cursor: pointer;
+    min-height: 58px;
   }
-  .chapter:hover { background: var(--bg-2); color: var(--crimson-2); }
-  .chapter .num { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--ink-3); margin-right: 12px; }
-  .chapter .title { flex: 1; font-size: 15px; }
-  .chapter .arrow { color: var(--ink-4); transition: transform .2s var(--ease), color .2s; }
+  .chapter:hover {
+    background: var(--bg-2);
+    border-color: var(--crimson-dim);
+    color: var(--crimson-2);
+    transform: translateY(-1px);
+  }
+  .chapter .title {
+    flex: 1; font-size: 14.5px; line-height: 1.35;
+    overflow: hidden; text-overflow: ellipsis; white-space: nowrap;
+  }
+  .chapter .arrow {
+    color: var(--ink-4);
+    transition: transform .2s var(--ease), color .2s;
+    flex-shrink: 0;
+    font-size: 18px;
+  }
   .chapter:hover .arrow { color: var(--crimson); transform: translateX(3px); }
   .empty { padding: 60px 20px; text-align: center; color: var(--ink-3); font-style: italic; background: var(--bg-1); border: 1px solid var(--line); }
   .cards { display: grid; grid-template-columns: repeat(auto-fit, minmax(280px, 1fr)); gap: 24px; }
@@ -590,9 +605,8 @@
   </section>
 
   <section class="tab-panel" id="panel-chapters">
-    <div class="eyebrow">Bibliothèque · Traduction v4 complète</div>
     <h1>Chapitres</h1>
-    <p style="max-width: 60ch;">2084 chapitres de la traduction française (v4), répartis sur les 13 Books de l'œuvre. Cliquez sur un chapitre pour le lire.</p>
+    <p style="max-width: 60ch;">2088 chapitres répartis sur les 13 livres de l'œuvre. Cliquez sur un chapitre pour le lire.</p>
     <div class="divider"><span>Recherche & Filtres</span></div>
     <div class="toolbar">
       <div class="search">
@@ -910,8 +924,7 @@
       a.setAttribute('role', 'listitem');
       a.href = '#chapitre-' + c.n;
       a.dataset.idx = String(i);
-      a.innerHTML = '<span class="num">Tome ' + c.book + ' · Ch.' + c.n + '</span>' +
-                    '<span class="title">' + c.title.replace(/</g, '&lt;') + '</span>' +
+      a.innerHTML = '<span class="title">' + c.title.replace(/</g, '&lt;') + '</span>' +
                     '<span class="arrow" aria-hidden="true">›</span>';
       a.addEventListener('click', (e) => {
         e.preventDefault();
