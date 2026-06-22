@@ -3,7 +3,7 @@
 <head>
 <meta charset="UTF-8" />
 <meta name="viewport" content="width=device-width, initial-scale=1.0" />
-<title>Personnages — Renegade Immortal FR</title>
+<title>Accueil — Renegade Immortal FR</title>
 <link rel="preconnect" href="https://fonts.googleapis.com" />
 <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
 <link rel="preconnect" href="https://static.wikia.nocookie.net" />
@@ -542,16 +542,17 @@
   }
 
 
-  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(240px, 1fr)); gap: 14px; }
-  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .themed-tile:hover { transform: translateY(-3px); border-color: var(--crimson-dim); }
-  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .5s; background-color: var(--bg-3); }
-  .themed-tile:hover .themed-tile-bg { transform: scale(1.06); }
-  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 40%, rgba(7,6,10,.92) 100%); }
-  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 16px 18px; }
-  .themed-tile-content h3 { font-size: 1.05rem; color: #fff; margin: 0 0 4px; line-height: 1.2; }
-  .themed-tile-cats { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .2em; text-transform: uppercase; color: var(--crimson-2); }
-  .themed-tile-arrow { position: absolute; right: 16px; bottom: 14px; font-size: 20px; color: var(--crimson-2); }
+  .hero--home { position: relative; z-index: 1; }
+  #bg-canvas { position: fixed; inset: 0; z-index: 0; pointer-events: none; opacity: 0.5; }
+  .btn-primary {
+    display: inline-block; margin-top: 14px; padding: 12px 24px;
+    border: 1px solid var(--crimson-dim);
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff; font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .2em; text-transform: uppercase;
+    border-radius: var(--r-md);
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6);
+  }
+  .btn-primary:hover { transform: translateY(-1px); }
 
 </style>
 </head>
@@ -567,10 +568,10 @@
       <span></span><span></span><span></span>
     </button>
     <nav class="nav-tabs" id="nav-tabs" role="navigation" aria-label="Sections principales">
-      <a href="index.html" class="nav-tab">Accueil</a>
+      <a href="index.html" class="nav-tab is-active">Accueil</a>
       <a href="livre.html" class="nav-tab">Livre</a>
       <a href="chapitres.html" class="nav-tab">Chapitres</a>
-      <a href="personnages.html" class="nav-tab is-active">Personnages</a>
+      <a href="personnages.html" class="nav-tab">Personnages</a>
       <a href="cultivation.html" class="nav-tab">Cultivation</a>
       <a href="sectes-clans.html" class="nav-tab">Sectes & Clans</a>
       <a href="lieux.html" class="nav-tab">Lieux</a>
@@ -580,202 +581,44 @@
 </header>
 <main>
 
-  <section class="tab-panel is-active">
-    <h1>Personnages</h1>
-    <p style="max-width: 60ch;">Figures emblématiques de l'œuvre — du protagoniste torturé aux immortels qui ont croisé sa route.</p>
-    <div class="divider"><span>Figures majeures</span></div>
-    <div class="themed-grid" role="list">
-        <a class="themed-tile" href="personnages/wang-lin.html">
-          <div class="themed-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/0/0c/Disciple_Wang.jpeg/revision/latest?cb=20251222110157')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Wang Lin</h3>
-            <div class="themed-tile-cats">Protagoniste</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
+  <section class="tab-panel is-active" id="panel-home">
+    <canvas id="bg-canvas" aria-hidden="true"></canvas>
+    <div class="hero hero--home">
+      <div class="hero-text">
+        <div class="eyebrow">Web Novel · Traduction française</div>
+        <h1>Renegade Immortal</h1>
+        <p class="lede">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.</p>
+        <div class="cover" role="img" aria-label="Couverture — Renegade Immortal">
+          <div class="cover-frame" aria-hidden="true"></div>
+          <span class="cover-corner tl" aria-hidden="true"></span>
+          <span class="cover-corner tr" aria-hidden="true"></span>
+          <span class="cover-corner bl" aria-hidden="true"></span>
+          <span class="cover-corner br" aria-hidden="true"></span>
+          <div class="cover-art">
+            <div>
+              <div class="glyph">逆<br/>天</div>
+              <div class="glyph-sub">Renegade Immortal</div>
+            </div>
           </div>
-        </a>
-        <a class="themed-tile" href="personnages/situ-nan.html">
-          <div class="themed-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/e/e2/Situ_Nan_Game.jpg/revision/latest?cb=20180225073216')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Situ Nan</h3>
-            <div class="themed-tile-cats">Protagoniste</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/li-muwan.html">
-          <div class="themed-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/9/90/Li_MuWan_Game.png/revision/latest?cb=20180224065155')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Li Muwan</h3>
-            <div class="themed-tile-cats">Protagoniste</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a></div>
-    <div class="divider"><span>Plus de personnages</span></div>
-    <div class="themed-grid" role="list">
-        <a class="themed-tile" href="personnages/all-seer.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/All%20seer%2001.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>All-Seer</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/all-seer.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/All-seer-donghua.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>All-Seer</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/ancestor-wang.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Wang Lin</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/azure-dragon-divine-emperor.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Azure Dragon Divine Emperor</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/bai-fan.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Bai%20Fan.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bai Fan</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/bai-wei.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Bai%20Wei.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bai Wei</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/bei-lou.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bei Luo</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/bei-luo.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Bei%20luo.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bei Luo</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/black-tortoise-divine-emperor.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Black Tortoise Divine Emperor</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/blood-ancestor.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Blood%20Ancestor.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Blood Ancestor</h3>
-            <div class="themed-tile-cats">Characters, Male, Allheaven Star System</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/blood-god.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/God.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Blood God</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/celestial-emperor-bai-fan.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Bai%20Fan.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bai Fan</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/chang-dawei.html">
-          <div class="themed-tile-bg" style="background-image:url('')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chang Dawei</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/chen-bailiang.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chen%20Bai.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Bailiang</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/chen-chong.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Chong</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/chen-long.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chen%20Long.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Long</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/chen-tao.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Tao</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="personnages/cheng-ling.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Cheng%20Ling.jpeg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Cheng Ling</h3>
-            <div class="themed-tile-cats">Characters, Female, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a></div>
+        </div>
+      </div>
+      <div>
+        <div class="eyebrow">L'œuvre</div>
+        <h2>Le roman</h2>
+        <div class="meta-grid" role="list">
+          <div class="meta" role="listitem"><div class="k">Auteur</div><div class="v">Er Gen · 耳根</div></div>
+          <div class="meta" role="listitem"><div class="k">Statut</div><div class="v is-status">Terminé · 2088 chapitres</div></div>
+          <div class="meta" role="listitem"><div class="k">Titres alternatifs</div><div class="v">Xian Ni · 仙逆</div></div>
+          <div class="meta" role="listitem"><div class="k">Genres</div><div class="v">Action · Fantaisie · Arts Martiaux · Xianxia</div></div>
+        </div>
+        <div class="synopsis">
+          <h2>Synopsis</h2>
+          <p>Wang Lin n'est qu'un jeune garçon lorsque sa vie bascule. Orphelin des montagnes, rejeté par le monde des cultivateurs, il ne possède qu'une seule chose : une obstination tranquille, forgée dans le silence et l'adversité.</p>
+          <p>De la Condensation du Qi aux royaumes supérieurs, de la Perle défiant les Cieux aux secrets des anciens, Wang Lin deviendra bien plus qu'un Immortel — il deviendra celui que l'on n'ose pas nommer. Car dans ce monde, <em>le ciel n'est pas une limite, mais un adversaire</em>.</p>
+          <a href="livre.html" class="btn-primary">Commencer la lecture →</a>
+        </div>
+      </div>
+    </div>
   </section>
 
 </main>
@@ -807,7 +650,7 @@
   <input class="audio-vol" id="audio-vol" type="range" min="0" max="100" value="40" aria-label="Volume" />
 </div>
 <div id="yt-player-host"></div>
-
+<script src="home-bg.js" defer></script>
 <script>
 
   const CHAPTERS_DATA = (window.__PAGE_DATA__ && window.__PAGE_DATA__.chapters) || [];
