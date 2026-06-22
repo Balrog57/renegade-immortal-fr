@@ -542,20 +542,19 @@
   }
 
 
-  .livre-prose { max-width: 70ch; line-height: 1.75; }
-  .livre-prose h3 { font-size: 1.1rem; color: var(--gold); margin: 22px 0 10px; border-bottom: 0; padding: 0; }
-  .livre-prose p { font-size: 15px; }
-  .livre-prose ul { margin: 10px 0 14px; padding-left: 20px; }
-  .livre-prose li { font-size: 14px; margin-bottom: 4px; }
-  .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 16px; margin: 8px 0 32px; }
-  .livre-tile { position: relative; display: block; aspect-ratio: 3 / 4; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .livre-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); }
-  .livre-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, rgba(7,6,10,.2) 30%, rgba(7,6,10,.9) 100%); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .livre-tile { position: relative; display: block; aspect-ratio: 3 / 4; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .livre-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .livre-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .livre-tile:hover .livre-tile-bg { transform: scale(1.08); }
+  .livre-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.9) 100%); }
   .livre-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
-  .livre-tile-num { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; }
-  .livre-tile-content h3 { font-size: 1.25rem; color: #fff; margin: 0 0 8px; line-height: 1.2; }
-  .livre-tile-stats { display: flex; flex-direction: column; gap: 2px; font-size: 12px; color: var(--ink-3); }
-  .livre-tile-arrow { position: absolute; right: 18px; bottom: 18px; font-size: 22px; color: var(--crimson-2); }
+  .livre-tile-num { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; text-shadow: 0 1px 4px rgba(0,0,0,.8); }
+  .livre-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0 0 6px; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  .livre-tile-stats { font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase; color: var(--ink-2); text-shadow: 0 1px 4px rgba(0,0,0,.8); }
+  @media (max-width: 540px) { .livre-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; } }
 
 </style>
 </head>
@@ -585,183 +584,123 @@
 <main>
 
   <section class="tab-panel is-active">
-    <h1>Le Livre</h1>
-    <p style="max-width: 60ch;">Présentation de l'œuvre et accès aux 13 tomes de la traduction française.</p>
-    <div class="divider"><span>À propos</span></div>
-    <div class="livre-prose">
-        <h3>L'œuvre</h3>
-        <p><strong>Renegade Immortal (Xian Ni)</strong> est un web novel de cultivation xianxia sombre, brutal et profondément psychologique, écrit par <strong>Er Gen</strong> (耳根), également auteur de <em>I Shall Seal the Heavens</em> et <em>A Will Eternal</em>.</p>
-        <p>Imaginez un jeune homme talentueux, promis à un grand avenir. Imaginez que tout cela lui soit arraché. Imaginez qu'au lieu de sombrer, il se relève. Non pas par amour, non pas par devoir, mais par une seule chose : la haine.</p>
-        <p><em>Bienvenue dans l'univers de Renegade Immortal.</em></p>
-    
-        <h3>Renegade Immortal — résumé</h3>
-        <p>Wang Lin est un jeune garçon de la campagne, vivant dans la pauvreté avec ses parents dans le Pays de Zhao. Il possède un talent médiocre pour la cultivation, mais une volonté inébranlable. Sa rencontre avec la Perle défiant les Cieux, un artefact ancien aux origines mystérieuses, change le cours de sa destinée.</p>
-        <p>Au cours de 2088 chapitres et 13 livres, Wang Lin traverse des épreuves innombrables, trahi par ceux qu'il aimait, perdant et retrouvant ceux qui lui sont chers, pour devenir l'un des cultivateurs les plus puissants de l'univers.</p>
-    
-        <h3>À propos de l'auteur — Er Gen (耳根)</h3>
-        <p>Er Gen (耳根) est un auteur chinois de web novels célèbre pour ses œuvres de xianxia. Il a commencé à publier sur Qidian en 2009. Son style se caractérise par des héros qui surmontent l'adversité par leur persévérance.</p>
-        <ul>
-            <li><strong>Renegade Immortal</strong> (仙逆) — 2009-2012, 2088 chapitres, 6,57 M mots</li>
-            <li><strong>I Shall Seal the Heavens</strong> (我欲封天) — 2014-2017</li>
-            <li><strong>A Will Eternal</strong> (一念永恒) — 2017-2020</li>
-        </ul>
-    </div>
-    <div class="divider"><span>Les 13 Tomes</span></div>
+    <div class="themed-header"><h1>Livre</h1></div>
     <div class="livre-grid" role="list">
         <a class="livre-tile" href="livre/book1-the-mediocre-youth.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/1/01/Book_1_-_The_Mediocre_Youth.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 1</div>
             <h3>The Mediocre Youth</h3>
-            <div class="livre-tile-stats">
-              <span>64 chapitres</span>
-              <span>Ch. 1 – 64</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">64 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book2-the-bloody-image-of-cultivation.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/2/02/Book_2_-_The_Bloody_Image_of_Cultivation.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 2</div>
             <h3>The Bloody Image of Cultivation</h3>
-            <div class="livre-tile-stats">
-              <span>76 chapitres</span>
-              <span>Ch. 65 – 140</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">76 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book3-famous-in-the-sea-of-devils.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/3/03/Book_3_-_Famous_in_the_Sea_of_Devils.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 3</div>
             <h3>Famous in the Sea of Devils</h3>
-            <div class="livre-tile-stats">
-              <span>60 chapitres</span>
-              <span>Ch. 141 – 200</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">60 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book4-clean-sweep.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/4/04/Book_4_-_Clean_Sweep.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 4</div>
             <h3>Clean Sweep</h3>
-            <div class="livre-tile-stats">
-              <span>205 chapitres</span>
-              <span>Ch. 201 – 405</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">205 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book5-cultivation-planet-crystal.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/5/05/Book_5_-_Cultivation_Planet_Crystal.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 5</div>
             <h3>Cultivation Planet Crystal</h3>
-            <div class="livre-tile-stats">
-              <span>66 chapitres</span>
-              <span>Ch. 406 – 471</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">66 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book6-arriving-on-tian-yun.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/6/06/Book_6_-_Arriving_on_Tian_Yun.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 6</div>
             <h3>Arriving on Tian Yun</h3>
-            <div class="livre-tile-stats">
-              <span>187 chapitres</span>
-              <span>Ch. 472 – 658</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">187 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book7-fame-shakes-allheaven-star-system.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/7/07/Book_7_-_Fame_Shakes_Allheaven_Star_System.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 7</div>
             <h3>Fame Shakes Allheaven Star System</h3>
-            <div class="livre-tile-stats">
-              <span>261 chapitres</span>
-              <span>Ch. 659 – 920</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">261 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book8-alliances-secret.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/8/08/Book_8_-_Alliances_Secret.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 8</div>
             <h3>Alliance&#x27;s Secret</h3>
-            <div class="livre-tile-stats">
-              <span>219 chapitres</span>
-              <span>Ch. 921 – 1140</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">219 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book9-peak-of-the-cloud-sea.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/9/09/Book_9_-_Peak_of_the_Cloud_Sea.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 9</div>
             <h3>Peak of the Cloud Sea</h3>
-            <div class="livre-tile-stats">
-              <span>337 chapitres</span>
-              <span>Ch. 1141 – 1478</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">337 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book10-rampage-through-the-inner-realm.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/10/10/Book_10_-_Rampage_Through_the_Inner_Realm.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 10</div>
             <h3>Rampage Through the Inner Realm</h3>
-            <div class="livre-tile-stats">
-              <span>135 chapitres</span>
-              <span>Ch. 1479 – 1613</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">135 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book11-mysteries-of-the-ancient-era.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/11/11/Book_11_-_Mysteries_of_the_Ancient_Era.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 11</div>
             <h3>Mysteries of the Ancient Era</h3>
-            <div class="livre-tile-stats">
-              <span>179 chapitres</span>
-              <span>Ch. 1614 – 1793</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">179 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book12-tenth-sun-of-the-immortal-astral-continent.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/12/12/Book_12_-_Tenth_Sun_of_the_Immortal_Astral_Continent.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 12</div>
             <h3>Tenth Sun of the Immortal Astral Continent</h3>
-            <div class="livre-tile-stats">
-              <span>209 chapitres</span>
-              <span>Ch. 1794 – 2002</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">209 chapitres</div>
           </div>
         </a>
         <a class="livre-tile" href="livre/book13-light-of-the-coming-end.html">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/13/13/Book_13_-_Light_of_the_coming_end.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome 13</div>
             <h3>Light of the coming end</h3>
-            <div class="livre-tile-stats">
-              <span>86 chapitres</span>
-              <span>Ch. 2003 – 2088</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">86 chapitres</div>
           </div>
         </a></div>
   </section>

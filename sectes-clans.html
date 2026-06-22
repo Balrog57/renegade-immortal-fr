@@ -542,16 +542,20 @@
   }
 
 
-  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(240px, 1fr)); gap: 14px; }
-  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .themed-tile:hover { transform: translateY(-3px); border-color: var(--crimson-dim); }
-  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .5s; background-color: var(--bg-3); }
-  .themed-tile:hover .themed-tile-bg { transform: scale(1.06); }
-  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 40%, rgba(7,6,10,.92) 100%); }
-  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 16px 18px; }
-  .themed-tile-content h3 { font-size: 1.05rem; color: #fff; margin: 0 0 4px; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
-  .themed-tile-cats { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .2em; text-transform: uppercase; color: var(--crimson-2); }
-  .themed-tile-arrow { position: absolute; right: 16px; bottom: 14px; font-size: 20px; color: var(--crimson-2); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .themed-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .themed-tile:hover .themed-tile-bg { transform: scale(1.08); }
+  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.88) 100%); }
+  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
+  .themed-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  @media (max-width: 540px) {
+    .themed-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; }
+    .themed-tile { aspect-ratio: 1; }
+  }
 
 </style>
 </head>
@@ -581,17 +585,15 @@
 <main>
 
   <section class="tab-panel is-active">
-    <h1>Sectes &amp; Clans</h1>
-    <p style="max-width: 60ch;">Les grandes organisations du monde de Renegade Immortal.</p>
-    <div class="divider"><span>Sectes &amp; Clans (20)</span></div>
+    <div class="themed-header">
+      <h1>Sectes &amp; Clans</h1>
+    </div>
     <div class="themed-grid" role="list">
         <a class="themed-tile" href="sectes-clans/heng-yue-sect.html">
           <div class="themed-tile-bg" style="background-image:url('wiki/images/Eng.jpg')"></div>
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Heng Yue Sect</h3>
-            <div class="themed-tile-cats">Sects, Locations, Organisations</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/slaughter-domain.html">
@@ -599,8 +601,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/slaughter-realm.html">
@@ -608,8 +608,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/gui-yi-sect.html">
@@ -617,8 +615,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Gui Yi Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Nine Sects and Thirteen Factions</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/tian-dao-sect.html">
@@ -626,8 +622,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Tian Dao Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Country of Zhao</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/blue-silk-clan.html">
@@ -635,8 +629,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Blue Silk Clan</h3>
-            <div class="themed-tile-cats">Organisations, Sects, High Ancient Clans</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/blue-silk-sect.html">
@@ -644,8 +636,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Blue Silk Clan</h3>
-            <div class="themed-tile-cats">Organisations, Sects, High Ancient Clans</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/corpse-yin-secthou-fen.html">
@@ -653,8 +643,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Corpse Yin Sect(Hou Fen)</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Hou Fen</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/evil-demon-sect.html">
@@ -662,8 +650,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Evil Demon Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Hou Fen</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/great-soul-sect.html">
@@ -671,8 +657,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Great Soul Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Nine Sects and Thirteen Factions</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/lou-he-sect.html">
@@ -680,8 +664,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Lou He Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Hou Fen</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/origin-sect.html">
@@ -689,8 +671,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Origin Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Mo Luo</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/purple-dao-sect.html">
@@ -698,8 +678,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Purple Dao Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Mo Luo</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/soul-refining-sect.html">
@@ -707,8 +685,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Soul Refining Sect</h3>
-            <div class="themed-tile-cats">Sects, Organisations, Country of Pilu</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="sectes-clans/treasured-jade-sect.html">
@@ -716,53 +692,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Treasured Jade Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Peng Lai</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="sectes-clans/war-god-shrine-sect.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/God.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>War God Shrine Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Hou Fen</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="sectes-clans/war-shrine-sect.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/RI.webp')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>War God Shrine Sect</h3>
-            <div class="themed-tile-cats">Organisations, Sects, Hou Fen</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="sectes-clans/xuan-dao-sect.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Xuan Dao Sect</h3>
-            <div class="themed-tile-cats">Sects, Organisations, Country of Zhao</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="sectes-clans/bai-yun-sect.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Bai%20Yun%20Sect.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Bai Yun Sect</h3>
-            <div class="themed-tile-cats">Sects, Organisations, Alliance Star System</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="sectes-clans/black-soul-sect.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Black Soul Sect</h3>
-            <div class="themed-tile-cats">Sects, Organisations, Alliance Star System</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a></div>
   </section>

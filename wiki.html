@@ -542,16 +542,20 @@
   }
 
 
-  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(240px, 1fr)); gap: 14px; }
-  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .themed-tile:hover { transform: translateY(-3px); border-color: var(--crimson-dim); }
-  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .5s; background-color: var(--bg-3); }
-  .themed-tile:hover .themed-tile-bg { transform: scale(1.06); }
-  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 40%, rgba(7,6,10,.92) 100%); }
-  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 16px 18px; }
-  .themed-tile-content h3 { font-size: 1.05rem; color: #fff; margin: 0 0 4px; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
-  .themed-tile-cats { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .2em; text-transform: uppercase; color: var(--crimson-2); }
-  .themed-tile-arrow { position: absolute; right: 16px; bottom: 14px; font-size: 20px; color: var(--crimson-2); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .themed-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .themed-tile:hover .themed-tile-bg { transform: scale(1.08); }
+  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.88) 100%); }
+  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
+  .themed-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  @media (max-width: 540px) {
+    .themed-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; }
+    .themed-tile { aspect-ratio: 1; }
+  }
 
 </style>
 </head>
@@ -581,17 +585,15 @@
 <main>
 
   <section class="tab-panel is-active">
-    <h1>Wiki</h1>
-    <p style="max-width: 60ch;">Index des pages wiki Fandom.</p>
-    <div class="divider"><span>Wiki (30)</span></div>
+    <div class="themed-header">
+      <h1>Wiki</h1>
+    </div>
     <div class="themed-grid" role="list">
         <a class="themed-tile" href="wiki/heng-yue-sect.html">
           <div class="themed-tile-bg" style="background-image:url('wiki/images/Eng.jpg')"></div>
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Heng Yue Sect</h3>
-            <div class="themed-tile-cats">Sects, Locations, Organisations</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/heng-yue-sect.html">
@@ -599,8 +601,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Heng Yue Sect</h3>
-            <div class="themed-tile-cats">Sects, Locations, Organisations</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/slaughter-domain.html">
@@ -608,8 +608,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/slaughter-realm.html">
@@ -617,8 +615,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/slaughter-domain.html">
@@ -626,8 +622,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/slaughter-realm.html">
@@ -635,8 +629,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Slaughter Realm</h3>
-            <div class="themed-tile-cats">Organisations, Realms, Sects</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/all-seer.html">
@@ -644,8 +636,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>All-Seer</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/all-seer.html">
@@ -653,8 +643,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>All-Seer</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/ancestor-wang.html">
@@ -662,8 +650,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Wang Lin</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/azure-dragon-divine-emperor.html">
@@ -671,8 +657,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Azure Dragon Divine Emperor</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/bai-fan.html">
@@ -680,8 +664,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Bai Fan</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/bai-wei.html">
@@ -689,8 +671,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Bai Wei</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/bei-lou.html">
@@ -698,8 +678,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Bei Luo</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/bei-luo.html">
@@ -707,8 +685,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Bei Luo</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/black-tortoise-divine-emperor.html">
@@ -716,8 +692,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Black Tortoise Divine Emperor</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/blood-ancestor.html">
@@ -725,8 +699,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Blood Ancestor</h3>
-            <div class="themed-tile-cats">Characters, Male, Allheaven Star System</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/blood-god.html">
@@ -734,8 +706,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Blood God</h3>
-            <div class="themed-tile-cats">Characters, Male, Ancient Demon</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/celestial-emperor-bai-fan.html">
@@ -743,8 +713,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Bai Fan</h3>
-            <div class="themed-tile-cats">Characters, Male, Celestial</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/chang-dawei.html">
@@ -752,8 +720,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Chang Dawei</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>
         <a class="themed-tile" href="wiki/chen-bailiang.html">
@@ -761,98 +727,6 @@
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>Chen Bailiang</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chen-chong.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Chong</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chen-long.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chen%20Long.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Long</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chen-tao.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/O.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chen Tao</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/cheng-ling.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Cheng%20Ling.jpeg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Cheng Ling</h3>
-            <div class="themed-tile-cats">Characters, Female, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/cheng-xian.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Cheng%20Xian.jpeg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Cheng Xian</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chi.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chi.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chi</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chi-hu.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chi%20hu%28donghua%29.jpg')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chi Hu</h3>
-            <div class="themed-tile-cats">Characters, Body Cultivator, Male</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/chi-mu.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Chi.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Chi Mu</h3>
-            <div class="themed-tile-cats">Characters, Male, Deceased</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/da-lin.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Da%20Lin.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Da Lin</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>
-        <a class="themed-tile" href="wiki/da-tou.html">
-          <div class="themed-tile-bg" style="background-image:url('wiki/images/Da%20Tou.png')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>Da Tou</h3>
-            <div class="themed-tile-cats">Characters, Male, Human</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a></div>
   </section>

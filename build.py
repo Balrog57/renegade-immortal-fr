@@ -233,67 +233,228 @@ def parse_wiki_sections(content):
 
 # === PAGES ===
 def build_home():
+    """Home: animated Yin-Yang + River + Ash + 6 tile cards for onglets."""
     body = """
-  <section class="tab-panel is-active" id="panel-home">
-    <canvas id="bg-canvas" aria-hidden="true"></canvas>
-    <div class="hero hero--home">
-      <div class="hero-text">
-        <div class="eyebrow">Web Novel · Traduction française</div>
-        <h1>Renegade Immortal</h1>
-        <p class="lede">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.</p>
-        <div class="cover" role="img" aria-label="Couverture — Renegade Immortal">
-          <div class="cover-frame" aria-hidden="true"></div>
-          <span class="cover-corner tl" aria-hidden="true"></span>
-          <span class="cover-corner tr" aria-hidden="true"></span>
-          <span class="cover-corner bl" aria-hidden="true"></span>
-          <span class="cover-corner br" aria-hidden="true"></span>
-          <div class="cover-art">
-            <div>
-              <div class="glyph">逆<br/>天</div>
-              <div class="glyph-sub">Renegade Immortal</div>
-            </div>
-          </div>
+  <canvas id="bg-canvas" aria-hidden="true"></canvas>
+  <svg class="yinyang" viewBox="-100 -100 200 200" aria-hidden="true">
+    <defs>
+      <clipPath id="yin-clip"><circle cx="0" cy="0" r="100"/></clipPath>
+    </defs>
+    <g clip-path="url(#yin-clip)">
+      <circle cx="0" cy="0" r="100" fill="var(--mystic)"/>
+      <path d="M 0 -100 A 50 50 0 0 0 0 0 A 50 50 0 0 0 0 100 A 100 100 0 0 1 0 -100" fill="var(--crimson)"/>
+      <circle cx="0" cy="-50" r="14" fill="var(--mystic)"/>
+      <circle cx="0" cy="50" r="14" fill="var(--crimson)"/>
+      <circle cx="0" cy="-50" r="5" fill="var(--crimson)"/>
+      <circle cx="0" cy="50" r="5" fill="var(--mystic)"/>
+    </g>
+  </svg>
+  <svg class="river" viewBox="0 0 1200 800" preserveAspectRatio="xMidYMid slice" aria-hidden="true">
+    <path d="M -100 600 Q 200 500 400 550 T 800 450 T 1300 500" fill="none" stroke="var(--mystic-2)" stroke-width="2" opacity="0.3"/>
+    <path d="M -100 650 Q 200 580 400 600 T 800 530 T 1300 560" fill="none" stroke="var(--crimson-2)" stroke-width="1.5" opacity="0.2"/>
+  </svg>
+
+  <div class="home-content">
+    <header class="home-header">
+      <div class="home-eyebrow">仙逆 Xian Ni · Web Novel · Traduction française</div>
+      <h1 class="home-title">Renegade Immortal</h1>
+      <p class="home-tagline">Le cycle de la vie et de la mort. Là où les mortels défient l'ordre des Immortels.</p>
+    </header>
+
+    <div class="home-grid">
+      <a class="home-tile" href="livre.html" data-href="livre.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/0/0c/Disciple_Wang.jpeg/revision/latest?cb=20251222110157')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">I</div>
+          <h2>Livre</h2>
+          <div class="home-tile-sub">13 tomes · 2,088 chapitres</div>
         </div>
-      </div>
-      <div>
-        <div class="eyebrow">L'œuvre</div>
-        <h2>Le roman</h2>
-        <div class="meta-grid" role="list">
-          <div class="meta" role="listitem"><div class="k">Auteur</div><div class="v">Er Gen · 耳根</div></div>
-          <div class="meta" role="listitem"><div class="k">Statut</div><div class="v is-status">Terminé · 2088 chapitres</div></div>
-          <div class="meta" role="listitem"><div class="k">Titres alternatifs</div><div class="v">Xian Ni · 仙逆</div></div>
-          <div class="meta" role="listitem"><div class="k">Genres</div><div class="v">Action · Fantaisie · Arts Martiaux · Xianxia</div></div>
+      </a>
+      <a class="home-tile" href="chapitres.html" data-href="chapitres.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/4/44/0owanga1.jpg/revision/latest?cb=20180225073216')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">II</div>
+          <h2>Chapitres</h2>
+          <div class="home-tile-sub">Lecture · 13 livres</div>
         </div>
-        <div class="synopsis">
-          <h2>Synopsis</h2>
-          <p>Wang Lin n'est qu'un jeune garçon lorsque sa vie bascule. Orphelin des montagnes, rejeté par le monde des cultivateurs, il ne possède qu'une seule chose : une obstination tranquille, forgée dans le silence et l'adversité.</p>
-          <p>De la Condensation du Qi aux royaumes supérieurs, de la Perle défiant les Cieux aux secrets des anciens, Wang Lin deviendra bien plus qu'un Immortel — il deviendra celui que l'on n'ose pas nommer. Car dans ce monde, <em>le ciel n'est pas une limite, mais un adversaire</em>.</p>
-          <a href="livre.html" class="btn-primary">Commencer la lecture →</a>
+      </a>
+      <a class="home-tile" href="personnages.html" data-href="personnages.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/e/e2/Situ_Nan_Game.jpg/revision/latest?cb=20180225073216')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">III</div>
+          <h2>Personnages</h2>
+          <div class="home-tile-sub">Wang Lin · Situ Nan · Li Muwan</div>
         </div>
-      </div>
+      </a>
+      <a class="home-tile" href="cultivation.html" data-href="cultivation.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/2/2a/Cultivation_Ranks.png/revision/latest')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">IV</div>
+          <h2>Cultivation</h2>
+          <div class="home-tile-sub">Royaumes · Techniques</div>
+        </div>
+      </a>
+      <a class="home-tile" href="sectes-clans.html" data-href="sectes-clans.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/8/85/Heng_Yue_Sect.png/revision/latest')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">V</div>
+          <h2>Sectes &amp; Clans</h2>
+          <div class="home-tile-sub">Heng Yue · Cloud Sky · …</div>
+        </div>
+      </a>
+      <a class="home-tile" href="lieux.html" data-href="lieux.html">
+        <div class="home-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/5/57/Planet_Suzaku.png/revision/latest')"></div>
+        <div class="home-tile-overlay"></div>
+        <div class="home-tile-content">
+          <div class="home-tile-num">VI</div>
+          <h2>Lieux</h2>
+          <div class="home-tile-sub">Planètes · Royaumes</div>
+        </div>
+      </a>
     </div>
-  </section>
+  </div>
 """
     extra_css = """
-  .hero--home { position: relative; z-index: 1; }
-  #bg-canvas { position: fixed; inset: 0; z-index: 0; pointer-events: none; opacity: 0.5; }
-  .btn-primary {
-    display: inline-block; margin-top: 14px; padding: 12px 24px;
-    border: 1px solid var(--crimson-dim);
-    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
-    color: #fff; font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .2em; text-transform: uppercase;
-    border-radius: var(--r-md);
-    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6);
+  /* HOME: animated background + tile grid */
+  #bg-canvas { position: fixed; inset: 0; z-index: 0; pointer-events: none; opacity: 0.7; }
+
+  .yinyang {
+    position: fixed;
+    top: 50%; right: 8%;
+    width: 520px; height: 520px;
+    transform: translateY(-50%);
+    z-index: 0; opacity: 0.18;
+    animation: yinyang-rotate 60s linear infinite;
+    filter: drop-shadow(0 0 30px rgba(74,110,216,.4));
   }
-  .btn-primary:hover { transform: translateY(-1px); }
+  @keyframes yinyang-rotate {
+    from { transform: translateY(-50%) rotate(0deg); }
+    to { transform: translateY(-50%) rotate(360deg); }
+  }
+
+  .river {
+    position: fixed; inset: 0;
+    width: 100%; height: 100%;
+    z-index: 0; opacity: 0.5;
+    animation: river-flow 30s ease-in-out infinite;
+  }
+  .river path:nth-child(1) { animation: river-dash-1 8s linear infinite; }
+  .river path:nth-child(2) { animation: river-dash-2 12s linear infinite; }
+  @keyframes river-dash-1 { to { stroke-dashoffset: -200; } }
+  @keyframes river-dash-2 { to { stroke-dashoffset: 200; } }
+  @keyframes river-flow { 0%, 100% { transform: translateX(0); } 50% { transform: translateX(-30px); } }
+
+  .home-content {
+    position: relative; z-index: 2;
+    min-height: 100vh;
+    display: flex; flex-direction: column;
+    padding: 60px 24px 80px;
+    max-width: 1280px; margin: 0 auto;
+  }
+
+  .home-header { text-align: center; margin-bottom: 60px; }
+  .home-eyebrow {
+    font-family: 'Cinzel', serif; font-size: 11px;
+    letter-spacing: .4em; text-transform: uppercase;
+    color: var(--crimson-2);
+    margin-bottom: 16px;
+  }
+  .home-title {
+    font-size: clamp(3rem, 8vw, 5.5rem);
+    line-height: 1; margin: 0 0 16px;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text;
+    color: transparent;
+    text-shadow: 0 0 30px rgba(200,164,74,.2);
+    letter-spacing: .04em;
+  }
+  .home-tagline {
+    font-family: 'Cormorant Garamond', serif;
+    font-style: italic; font-size: clamp(1rem, 2vw, 1.25rem);
+    color: var(--ink-2);
+    max-width: 50ch; margin: 0 auto;
+  }
+
+  .home-grid {
+    display: grid;
+    grid-template-columns: repeat(3, 1fr);
+    gap: 18px;
+    flex: 1;
+  }
+  .home-tile {
+    position: relative; display: block;
+    aspect-ratio: 4 / 5;
+    background: var(--bg-2);
+    border: 1px solid var(--line);
+    overflow: hidden;
+    color: #fff; text-decoration: none;
+    transition: transform .35s var(--ease), border-color .3s, box-shadow .3s;
+    cursor: pointer;
+  }
+  .home-tile:hover {
+    transform: translateY(-6px) scale(1.02);
+    border-color: var(--crimson-dim);
+    box-shadow: 0 16px 40px -8px rgba(179,38,30,.5), 0 0 0 1px var(--crimson-dim);
+  }
+  .home-tile-bg {
+    position: absolute; inset: 0;
+    background-size: cover; background-position: center;
+    transition: transform .8s var(--ease);
+  }
+  .home-tile:hover .home-tile-bg { transform: scale(1.1); }
+  .home-tile-overlay {
+    position: absolute; inset: 0;
+    background: linear-gradient(180deg, rgba(7,6,10,.3) 0%, rgba(7,6,10,.4) 40%, rgba(7,6,10,.95) 100%);
+  }
+  .home-tile-content {
+    position: absolute; left: 0; right: 0; bottom: 0;
+    padding: 22px 24px;
+  }
+  .home-tile-num {
+    font-family: 'Cinzel', serif; font-size: 10.5px;
+    letter-spacing: .3em; text-transform: uppercase;
+    color: var(--crimson-2);
+    margin-bottom: 8px;
+    text-shadow: 0 0 8px rgba(0,0,0,.8);
+  }
+  .home-tile-content h2 {
+    font-size: clamp(1.3rem, 3vw, 1.8rem);
+    color: #fff; margin: 0 0 6px;
+    line-height: 1.1;
+    text-shadow: 0 2px 12px rgba(0,0,0,.9), 0 0 4px rgba(0,0,0,.7);
+    letter-spacing: .04em;
+  }
+  .home-tile-sub {
+    font-family: 'Cinzel', serif; font-size: 10px;
+    letter-spacing: .15em; text-transform: uppercase;
+    color: var(--ink-2);
+    text-shadow: 0 1px 4px rgba(0,0,0,.8);
+  }
+
+  @media (max-width: 880px) {
+    .yinyang { width: 280px; height: 280px; right: -100px; opacity: 0.12; }
+    .home-grid { grid-template-columns: repeat(2, 1fr); gap: 12px; }
+    .home-content { padding: 40px 16px 60px; }
+  }
+  @media (max-width: 540px) {
+    .yinyang { display: none; }
+    .home-grid { grid-template-columns: 1fr 1fr; gap: 10px; }
+    .home-tile { aspect-ratio: 1; }
+  }
 """
     extra_js = '<script src="home-bg.js" defer></script>'
     html = page_html('Accueil', body, nav_active='home', extra_css=extra_css, extra_js=extra_js)
     write('index.html', html)
-    print('  ✓ index.html (animated bg)')
+    print('  ✓ index.html (Yin-Yang + River + Ash + 6 tile cards)')
 
 
 def build_livre():
+    """Livre onglet: only the 13 tome tiles, no prose intro."""
     by_book = {}
     for c in CHAPTERS:
         by_book.setdefault(c['book'], []).append(c)
@@ -304,107 +465,81 @@ def build_livre():
         link = chapter_path(b, first['bookTitle'], first['n'], first['title']).rsplit('/', 1)[0] + '.html'
         book_tiles += f"""
         <a class="livre-tile" href="{link}">
+          <div class="livre-tile-bg" style="background-image:url('https://static.wikia.nocookie.net/xian-ni/images/{b}/{b:02d}/Book_{b}_-_{first["bookTitle"].replace(" ", "_").replace("'", "")}.jpg/revision/latest')"></div>
           <div class="livre-tile-overlay"></div>
           <div class="livre-tile-content">
             <div class="livre-tile-num">Tome {b}</div>
             <h3>{esc(first['bookTitle'])}</h3>
-            <div class="livre-tile-stats">
-              <span>{len(chs)} chapitres</span>
-              <span>Ch. {first['n']} – {chs[-1]['n']}</span>
-            </div>
-            <span class="livre-tile-arrow" aria-hidden="true">›</span>
+            <div class="livre-tile-stats">{len(chs)} chapitres</div>
           </div>
         </a>"""
-    oeuvre = """
-        <h3>L'œuvre</h3>
-        <p><strong>Renegade Immortal (Xian Ni)</strong> est un web novel de cultivation xianxia sombre, brutal et profondément psychologique, écrit par <strong>Er Gen</strong> (耳根), également auteur de <em>I Shall Seal the Heavens</em> et <em>A Will Eternal</em>.</p>
-        <p>Imaginez un jeune homme talentueux, promis à un grand avenir. Imaginez que tout cela lui soit arraché. Imaginez qu'au lieu de sombrer, il se relève. Non pas par amour, non pas par devoir, mais par une seule chose : la haine.</p>
-        <p><em>Bienvenue dans l'univers de Renegade Immortal.</em></p>
-    """
-    ergen = """
-        <h3>À propos de l'auteur — Er Gen (耳根)</h3>
-        <p>Er Gen (耳根) est un auteur chinois de web novels célèbre pour ses œuvres de xianxia. Il a commencé à publier sur Qidian en 2009. Son style se caractérise par des héros qui surmontent l'adversité par leur persévérance.</p>
-        <ul>
-            <li><strong>Renegade Immortal</strong> (仙逆) — 2009-2012, 2088 chapitres, 6,57 M mots</li>
-            <li><strong>I Shall Seal the Heavens</strong> (我欲封天) — 2014-2017</li>
-            <li><strong>A Will Eternal</strong> (一念永恒) — 2017-2020</li>
-        </ul>
-    """
-    xian_ni = """
-        <h3>Renegade Immortal — résumé</h3>
-        <p>Wang Lin est un jeune garçon de la campagne, vivant dans la pauvreté avec ses parents dans le Pays de Zhao. Il possède un talent médiocre pour la cultivation, mais une volonté inébranlable. Sa rencontre avec la Perle défiant les Cieux, un artefact ancien aux origines mystérieuses, change le cours de sa destinée.</p>
-        <p>Au cours de 2088 chapitres et 13 livres, Wang Lin traverse des épreuves innombrables, trahi par ceux qu'il aimait, perdant et retrouvant ceux qui lui sont chers, pour devenir l'un des cultivateurs les plus puissants de l'univers.</p>
-    """
     body = f"""
   <section class="tab-panel is-active">
-    <h1>Le Livre</h1>
-    <p style="max-width: 60ch;">Présentation de l'œuvre et accès aux 13 tomes de la traduction française.</p>
-    <div class="divider"><span>À propos</span></div>
-    <div class="livre-prose">{oeuvre}{xian_ni}{ergen}</div>
-    <div class="divider"><span>Les 13 Tomes</span></div>
+    <div class="themed-header"><h1>Livre</h1></div>
     <div class="livre-grid" role="list">{book_tiles}</div>
   </section>
 """
     extra_css = """
-  .livre-prose { max-width: 70ch; line-height: 1.75; }
-  .livre-prose h3 { font-size: 1.1rem; color: var(--gold); margin: 22px 0 10px; border-bottom: 0; padding: 0; }
-  .livre-prose p { font-size: 15px; }
-  .livre-prose ul { margin: 10px 0 14px; padding-left: 20px; }
-  .livre-prose li { font-size: 14px; margin-bottom: 4px; }
-  .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 16px; margin: 8px 0 32px; }
-  .livre-tile { position: relative; display: block; aspect-ratio: 3 / 4; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .livre-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); }
-  .livre-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, rgba(7,6,10,.2) 30%, rgba(7,6,10,.9) 100%); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .livre-tile { position: relative; display: block; aspect-ratio: 3 / 4; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .livre-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .livre-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .livre-tile:hover .livre-tile-bg { transform: scale(1.08); }
+  .livre-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.9) 100%); }
   .livre-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
-  .livre-tile-num { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; }
-  .livre-tile-content h3 { font-size: 1.25rem; color: #fff; margin: 0 0 8px; line-height: 1.2; }
-  .livre-tile-stats { display: flex; flex-direction: column; gap: 2px; font-size: 12px; color: var(--ink-3); }
-  .livre-tile-arrow { position: absolute; right: 18px; bottom: 18px; font-size: 22px; color: var(--crimson-2); }
+  .livre-tile-num { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; text-shadow: 0 1px 4px rgba(0,0,0,.8); }
+  .livre-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0 0 6px; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  .livre-tile-stats { font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase; color: var(--ink-2); text-shadow: 0 1px 4px rgba(0,0,0,.8); }
+  @media (max-width: 540px) { .livre-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; } }
 """
     html = page_html('Le Livre', body, nav_active='livre', extra_css=extra_css)
     write('livre.html', html)
-    print('  ✓ livre.html')
+    print('  ✓ livre.html (13 tome tiles, no prose)')
 
 
-def build_themed_page(category_key, title, intro, top_pages, nav_active):
+def build_themed_page(category_key, title, top_pages, nav_active):
+    """Onglet page: only tiles (image background + title). No text intro."""
     tiles = ''
     for p in top_pages:
         slug = slugify(p['name'])
         img = find_image_for_page(p)
-        cats = ', '.join(p.get('categories', [])[:3])
         tiles += f"""
         <a class="themed-tile" href="{category_key}/{slug}.html">
           <div class="themed-tile-bg" style="background-image:url('{img}')"></div>
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
             <h3>{esc(p['title'])}</h3>
-            <div class="themed-tile-cats">{esc(cats)}</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
           </div>
         </a>"""
     body = f"""
   <section class="tab-panel is-active">
-    <h1>{esc(title)}</h1>
-    <p style="max-width: 60ch;">{esc(intro)}</p>
-    <div class="divider"><span>{esc(title)} ({len(top_pages)})</span></div>
+    <div class="themed-header">
+      <h1>{esc(title)}</h1>
+    </div>
     <div class="themed-grid" role="list">{tiles}</div>
   </section>
 """
     extra_css = """
-  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(240px, 1fr)); gap: 14px; }
-  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .themed-tile:hover { transform: translateY(-3px); border-color: var(--crimson-dim); }
-  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .5s; background-color: var(--bg-3); }
-  .themed-tile:hover .themed-tile-bg { transform: scale(1.06); }
-  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 40%, rgba(7,6,10,.92) 100%); }
-  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 16px 18px; }
-  .themed-tile-content h3 { font-size: 1.05rem; color: #fff; margin: 0 0 4px; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
-  .themed-tile-cats { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .2em; text-transform: uppercase; color: var(--crimson-2); }
-  .themed-tile-arrow { position: absolute; right: 16px; bottom: 14px; font-size: 20px; color: var(--crimson-2); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .themed-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .themed-tile:hover .themed-tile-bg { transform: scale(1.08); }
+  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.88) 100%); }
+  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
+  .themed-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  @media (max-width: 540px) {
+    .themed-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; }
+    .themed-tile { aspect-ratio: 1; }
+  }
 """
     html = page_html(title, body, nav_active=nav_active, extra_css=extra_css)
     write(f'{category_key}.html', html)
-    print(f'  ✓ {category_key}.html ({len(top_pages)} entries)')
+    print(f'  ✓ {category_key}.html ({len(top_pages)} tiles)')
 
 
 def build_chapitres():
@@ -449,67 +584,63 @@ def build_chapitres():
 
 
 def build_characters():
+    """Personnages onglet: only tiles (3 main + 12 curated = 15 total)."""
     data = load_main_characters()
-    main_tiles = ''
+    buckets = categorize_wiki()
+    all_chars = []
+    # 3 main first
     if data:
         for key in ['wang', 'situ', 'limuwan']:
             if key not in data['characters']: continue
             c = data['characters'][key]
-            slug = slugify(c['title'])
-            main_tiles += f"""
-        <a class="themed-tile" href="personnages/{slug}.html">
-          <div class="themed-tile-bg" style="background-image:url('{data['images'][key]}')"></div>
-          <div class="themed-tile-overlay"></div>
-          <div class="themed-tile-content">
-            <h3>{esc(c['title'])}</h3>
-            <div class="themed-tile-cats">Protagoniste</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
-          </div>
-        </a>"""
-    buckets = categorize_wiki()
-    curated = curate_top(buckets['personnages'], 18)
-    wiki_tiles = ''
-    for p in curated:
+            all_chars.append({
+                'name': c['title'],
+                'slug': slugify(c['title']),
+                'image': data['images'][key],
+                'is_main': True,
+            })
+    # Then curated wiki
+    for p in curate_top(buckets['personnages'], 12):
         if p['name'] in ('Wang Lin', 'Situ Nan', 'Li Muwan', 'Li MuWan'): continue
-        slug = slugify(p['name'])
-        img = find_image_for_page(p)
-        cats = ', '.join(p.get('categories', [])[:3])
-        wiki_tiles += f"""
-        <a class="themed-tile" href="personnages/{slug}.html">
-          <div class="themed-tile-bg" style="background-image:url('{img}')"></div>
+        all_chars.append({
+            'name': p['title'],
+            'slug': slugify(p['name']),
+            'image': find_image_for_page(p),
+            'is_main': False,
+        })
+
+    tiles = ''
+    for c in all_chars:
+        tiles += f"""
+        <a class="themed-tile" href="personnages/{c['slug']}.html">
+          <div class="themed-tile-bg" style="background-image:url('{c['image']}')"></div>
           <div class="themed-tile-overlay"></div>
           <div class="themed-tile-content">
-            <h3>{esc(p['title'])}</h3>
-            <div class="themed-tile-cats">{esc(cats)}</div>
-            <span class="themed-tile-arrow" aria-hidden="true">›</span>
+            <h3>{esc(c['name'])}</h3>
           </div>
         </a>"""
     body = f"""
   <section class="tab-panel is-active">
-    <h1>Personnages</h1>
-    <p style="max-width: 60ch;">Figures emblématiques de l'œuvre — du protagoniste torturé aux immortels qui ont croisé sa route.</p>
-    <div class="divider"><span>Figures majeures</span></div>
-    <div class="themed-grid" role="list">{main_tiles}</div>
-    <div class="divider"><span>Plus de personnages</span></div>
-    <div class="themed-grid" role="list">{wiki_tiles}</div>
+    <div class="themed-header"><h1>Personnages</h1></div>
+    <div class="themed-grid" role="list">{tiles}</div>
   </section>
 """
     extra_css = """
-  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(240px, 1fr)); gap: 14px; }
-  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .25s, border-color .25s; }
-  .themed-tile:hover { transform: translateY(-3px); border-color: var(--crimson-dim); }
-  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .5s; background-color: var(--bg-3); }
-  .themed-tile:hover .themed-tile-bg { transform: scale(1.06); }
-  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 40%, rgba(7,6,10,.92) 100%); }
-  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 16px 18px; }
-  .themed-tile-content h3 { font-size: 1.05rem; color: #fff; margin: 0 0 4px; line-height: 1.2; }
-  .themed-tile-cats { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .2em; text-transform: uppercase; color: var(--crimson-2); }
-  .themed-tile-arrow { position: absolute; right: 16px; bottom: 14px; font-size: 20px; color: var(--crimson-2); }
+  .themed-header { margin: 12px 0 24px; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .themed-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
+  .themed-tile { position: relative; display: block; aspect-ratio: 4 / 5; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
+  .themed-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
+  .themed-tile-bg { position: absolute; inset: 0; background-size: cover; background-position: center top; transition: transform .6s var(--ease); background-color: var(--bg-3); }
+  .themed-tile:hover .themed-tile-bg { transform: scale(1.08); }
+  .themed-tile-overlay { position: absolute; inset: 0; background: linear-gradient(180deg, transparent 30%, rgba(7,6,10,.9) 100%); }
+  .themed-tile-content { position: absolute; left: 0; right: 0; bottom: 0; padding: 18px 20px; }
+  .themed-tile-content h3 { font-size: 1.1rem; color: #fff; margin: 0; line-height: 1.2; text-shadow: 0 2px 8px rgba(0,0,0,.9); }
+  @media (max-width: 540px) { .themed-grid { grid-template-columns: repeat(2, 1fr); gap: 10px; } .themed-tile { aspect-ratio: 1; } }
 """
     html = page_html('Personnages', body, nav_active='characters', extra_css=extra_css)
     write('personnages.html', html)
-    n_curated = len(curated)
-    print(f'  ✓ personnages.html ({3 + n_curated} entries)')
+    print(f'  ✓ personnages.html ({len(all_chars)} tiles)')
 
 
 def build_404():
@@ -871,10 +1002,12 @@ def main():
     build_characters()
     build_404()
     buckets = categorize_wiki()
-    build_themed_page('cultivation', 'Cultivation', 'Système de cultivation, royaumes, techniques.', curate_top(buckets['cultivation'], 20), 'cultivation')
-    build_themed_page('sectes-clans', 'Sectes & Clans', 'Les grandes organisations du monde de Renegade Immortal.', curate_top(buckets['sectes'], 20), 'sectes')
-    build_themed_page('lieux', 'Lieux', 'Planètes, royaumes célestes, continents, dimensions.', curate_top(buckets['lieux'], 20), 'lieux')
-    build_themed_page('wiki', 'Wiki', 'Index des pages wiki Fandom.', curate_top(buckets['personnages'] + buckets['cultivation'] + buckets['sectes'] + buckets['lieux'], 30), 'wiki')
+    # Curated tiles per category (max 15 per category for the home)
+    # Plus separately, the entry pages cover more (up to 30)
+    build_themed_page('cultivation', 'Cultivation', curate_top(buckets['cultivation'], 15), 'cultivation')
+    build_themed_page('sectes-clans', 'Sectes & Clans', curate_top(buckets['sectes'], 15), 'sectes')
+    build_themed_page('lieux', 'Lieux', curate_top(buckets['lieux'], 15), 'lieux')
+    build_themed_page('wiki', 'Wiki', curate_top(buckets['personnages'] + buckets['cultivation'] + buckets['sectes'] + buckets['lieux'], 20), 'wiki')
 
     # Build book + chapter pages
     print('\n=== Building books + chapters ===')
