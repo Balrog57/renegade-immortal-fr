@@ -630,12 +630,12 @@
 
 </style>
 </head>
-<body>
-<header class="nav" role="banner">
+<body class="is-home">
+<header class="nav"
   <div class="nav-inner">
     <a href="../../index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
       <span class="dot" aria-hidden="true"></span>
-      <span>Renegade Immortal FR</span>
+      <span>Immortel</span>
       <small>· Xian Ni · 仙逆</small>
     </a>
     <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
@@ -649,7 +649,7 @@
       <a href="../../cultivation.html" class="nav-tab">Cultivation</a>
       <a href="../../sectes-clans.html" class="nav-tab">Sectes & Clans</a>
       <a href="../../lieux.html" class="nav-tab">Lieux</a>
-      <a href="../../wiki.html" class="nav-tab">Wiki</a>
+      
     </nav>
   </div>
 </header>
@@ -909,11 +909,10 @@
   <div class="seal">Renegade Immortal FR</div>
   <div>Traduction communautaire non-officielle · Contenu via <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia" target="_blank" rel="noopener">Xian Ni Fandom Wiki</a> (CC BY-SA) · <a href="../../LICENSE.txt" class="fandom-link">MIT/CC0</a></div>
 </footer>
-<div class="gesture-hint" id="gesture-hint" role="dialog" aria-label="Cliquez pour activer le son">
+<!-- Gesture hint: only show on home -->
+<div class="gesture-hint" id="gesture-hint" data-home-only="true" role="dialog" aria-label="Entrer">
   <div class="gesture-hint-inner">
     <div class="gesture-hint-glyph">仙</div>
-    <div class="gesture-hint-title">Renegade Immortal</div>
-    <div class="gesture-hint-text">Cliquez pour entrer dans le monde de Wang Lin — la musique d'ambiance s'activera.</div>
     <div class="gesture-hint-cta">
       <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
       <span>Entrer</span>
@@ -1407,13 +1406,13 @@
 
     return { setPlaying, setVolume, isPlaying, isReady, subscribe };
   })();
-
-  // Wire UI
-  const dock = document.getElementById('audio-dock');
+    const dock = document.getElementById('audio-dock');
   const btn  = document.getElementById('audio-btn');
   const iconPlay  = document.getElementById('icon-play');
   const iconPause = document.getElementById('icon-pause');
   const vol  = document.getElementById('audio-vol');
+
+  // Wire UI (dock, btn, vol, etc. moved to root level)
 
   // Position du slider selon état persisté
   vol.value = String(Math.round(Audio.isReady() ? (player?._lastVol || 40) : 40));

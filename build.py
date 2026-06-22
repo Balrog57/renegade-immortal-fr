@@ -38,7 +38,7 @@ def chapter_path(book_n, book_title, n, title):
     return f'livre/{book_slug(book_n, book_title)}/{n:04d}-{slugify(title)}.html'
 
 
-def page_html(title, body, base='', nav_active='', data_inline='', extra_css='', extra_js=''):
+def page_html(title, body, base='', nav_active='', data_inline='', extra_css='', extra_js='', home_only=False):
     if data_inline:
         js_init = f"window.__PAGE_DATA__ = {data_inline};"
         page_js = js_init + '\n' + JS.replace(
@@ -72,12 +72,12 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
 {extra_css}
 </style>
 </head>
-<body>
-<header class="nav" role="banner">
+<body class="is-home">
+<header class="nav"
   <div class="nav-inner">
     <a href="{base}index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
       <span class="dot" aria-hidden="true"></span>
-      <span>Renegade Immortal FR</span>
+      <span>Immortel</span>
       <small>· Xian Ni · 仙逆</small>
     </a>
     <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
@@ -91,7 +91,7 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
       <a href="{base}cultivation.html" class="nav-tab{' is-active' if nav_active == 'cultivation' else ''}">Cultivation</a>
       <a href="{base}sectes-clans.html" class="nav-tab{' is-active' if nav_active == 'sectes' else ''}">Sectes & Clans</a>
       <a href="{base}lieux.html" class="nav-tab{' is-active' if nav_active == 'lieux' else ''}">Lieux</a>
-      <a href="{base}wiki.html" class="nav-tab{' is-active' if nav_active == 'wiki' else ''}">Wiki</a>
+      
     </nav>
   </div>
 </header>
@@ -102,11 +102,10 @@ def page_html(title, body, base='', nav_active='', data_inline='', extra_css='',
   <div class="seal">Renegade Immortal FR</div>
   <div>Traduction communautaire non-officielle · Contenu via <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia" target="_blank" rel="noopener">Xian Ni Fandom Wiki</a> (CC BY-SA) · <a href="{base}LICENSE.txt" class="fandom-link">MIT/CC0</a></div>
 </footer>
-<div class="gesture-hint" id="gesture-hint" role="dialog" aria-label="Cliquez pour activer le son">
+<!-- Gesture hint: only show on home -->
+<div class="gesture-hint" id="gesture-hint" data-home-only="true" role="dialog" aria-label="Entrer">
   <div class="gesture-hint-inner">
     <div class="gesture-hint-glyph">仙</div>
-    <div class="gesture-hint-title">Renegade Immortal</div>
-    <div class="gesture-hint-text">Cliquez pour entrer dans le monde de Wang Lin — la musique d'ambiance s'activera.</div>
     <div class="gesture-hint-cta">
       <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
       <span>Entrer</span>
@@ -263,8 +262,8 @@ def build_home():
   <div class="home-content">
     <header class="home-header">
       <div class="home-eyebrow">仙逆 Xian Ni · Web Novel · Traduction française</div>
-      <h1 class="home-title">Renegade Immortal</h1>
-      <p class="home-tagline">Le cycle de la vie et de la mort. Là où les mortels défient l'ordre des Immortels.</p>
+      <h1 class="home-title">Immortel</h1>
+      <p class="home-tagline">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.<br/><br/>2088 chapitres de cultivation xianxia. Une traduction française non-officielle. <a href="livre.html" class="hero-cta">Commencer la lecture →</a></p>
     </header>
 
     <div class="home-grid">
@@ -452,9 +451,15 @@ def build_home():
     .home-grid { grid-template-columns: 1fr 1fr; gap: 10px; }
     .home-tile { aspect-ratio: 1; }
   }
+  /* Gesture hint only on home */
+  body:not(.is-home) .gesture-hint { display: none !important; }
+  /* Hero CTA */
+  .hero-cta { display: inline-block; margin-top: 18px; padding: 12px 28px; border: 1px solid var(--crimson-dim); background: linear-gradient(180deg, var(--crimson), var(--crimson-dim)); color: #fff; font-family: 'Cinzel', serif; font-size: 12px; letter-spacing: .25em; text-transform: uppercase; border-radius: var(--r-md); transition: transform .2s, box-shadow .2s; }
+  .hero-cta:hover { transform: translateY(-1px); box-shadow: 0 8px 24px -8px rgba(179,38,30,.7); }
+
 """
     extra_js = '<script src="home-bg.js" defer></script>'
-    html = page_html('Accueil', body, nav_active='home', extra_css=extra_css, extra_js=extra_js)
+    html = page_html('Accueil', body, nav_active='home', extra_css=extra_css, extra_js=extra_js, home_only=True)
     write('index.html', html)
     print('  ✓ index.html (Yin-Yang + River + Ash + 6 tile cards)')
 
@@ -487,8 +492,8 @@ def build_livre():
   </section>
 """
     extra_css = """
-  .themed-header { margin: 12px 0 24px; }
-  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0; }
+  .themed-header { margin: 12px 0 24px; text-align: center; }
+  .themed-header h1 { font-size: clamp(1.6rem, 4vw, 2.2rem); margin: 0 auto; max-width: 32ch; }
   .livre-grid { display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr)); gap: 14px; }
   .livre-tile { position: relative; display: block; aspect-ratio: 3 / 4; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; color: #fff; text-decoration: none; transition: transform .3s var(--ease), border-color .3s, box-shadow .3s; }
   .livre-tile:hover { transform: translateY(-4px); border-color: var(--crimson-dim); box-shadow: 0 12px 28px -8px rgba(0,0,0,.6); }
