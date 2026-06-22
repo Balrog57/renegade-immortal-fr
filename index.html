@@ -656,7 +656,69 @@
     max-width: 1280px; margin: 0 auto;
   }
 
-  .home-header { text-align: center; margin-bottom: 60px; }
+  /* HOME — Hero (2 cols: cover + text) */
+  .home-hero {
+    display: grid;
+    grid-template-columns: minmax(260px, 360px) 1fr;
+    gap: 56px;
+    align-items: center;
+    margin-bottom: 64px;
+    padding: 32px 0 8px;
+  }
+
+  .home-hero-cover { position: relative; }
+  .home-hero-cover-frame {
+    position: relative;
+    aspect-ratio: 3 / 4;
+    overflow: hidden;
+    border: 1px solid var(--line);
+    border-radius: var(--r-md);
+    background: var(--bg-2);
+    box-shadow:
+      0 24px 60px -20px rgba(0,0,0,.8),
+      0 0 0 1px rgba(200,164,74,.15);
+  }
+  .home-hero-cover-frame img {
+    width: 100%; height: 100%;
+    object-fit: cover; object-position: center top;
+    display: block;
+    transition: transform .8s var(--ease);
+  }
+  .home-hero-cover-frame:hover img { transform: scale(1.04); }
+  .home-hero-cover-glow {
+    position: absolute; inset: -20px;
+    background: radial-gradient(ellipse at center, rgba(200,164,74,.18) 0%, transparent 60%);
+    z-index: -1;
+    pointer-events: none;
+    animation: cover-glow-pulse 4s ease-in-out infinite;
+  }
+  @keyframes cover-glow-pulse {
+    0%, 100% { opacity: .7; }
+    50% { opacity: 1; }
+  }
+  .home-hero-cover-caption {
+    margin-top: 14px;
+    text-align: center;
+    font-family: 'Cinzel', serif;
+  }
+  .home-hero-cover-caption .cap-name {
+    display: block;
+    font-size: 14px;
+    letter-spacing: .25em;
+    color: var(--crimson-2);
+    text-transform: uppercase;
+  }
+  .home-hero-cover-caption .cap-role {
+    display: block;
+    margin-top: 4px;
+    font-size: 10px;
+    letter-spacing: .35em;
+    color: var(--ink-2);
+    text-transform: uppercase;
+    opacity: .7;
+  }
+
+  .home-hero-text { min-width: 0; }
   .home-eyebrow {
     font-family: 'Cinzel', serif; font-size: 11px;
     letter-spacing: .4em; text-transform: uppercase;
@@ -664,8 +726,8 @@
     margin-bottom: 16px;
   }
   .home-title {
-    font-size: clamp(3rem, 8vw, 5.5rem);
-    line-height: 1; margin: 0 0 16px;
+    font-size: clamp(2.6rem, 7vw, 4.5rem);
+    line-height: 1; margin: 0 0 18px;
     background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
     -webkit-background-clip: text; background-clip: text;
     color: transparent;
@@ -674,9 +736,76 @@
   }
   .home-tagline {
     font-family: 'Cormorant Garamond', serif;
-    font-style: italic; font-size: clamp(1rem, 2vw, 1.25rem);
+    font-style: italic; font-size: clamp(1.05rem, 2vw, 1.3rem);
     color: var(--ink-2);
-    max-width: 50ch; margin: 0 auto;
+    max-width: 56ch; margin: 0 0 28px;
+    line-height: 1.45;
+  }
+
+  .home-synopsis {
+    color: var(--ink-2);
+    font-size: 15px;
+    line-height: 1.7;
+    margin-bottom: 28px;
+  }
+  .home-synopsis p { margin: 0 0 14px; }
+  .home-synopsis p:last-child { margin-bottom: 0; }
+  .home-synopsis strong { color: var(--ink); font-weight: 600; }
+  .home-synopsis em { color: var(--crimson-2); font-style: italic; }
+
+  .home-stats {
+    display: flex;
+    align-items: center;
+    gap: 18px;
+    padding: 18px 22px;
+    margin-bottom: 28px;
+    background: linear-gradient(180deg, rgba(200,164,74,.05) 0%, rgba(200,164,74,.02) 100%);
+    border: 1px solid var(--line);
+    border-radius: var(--r-md);
+  }
+  .home-stats .stat { flex: 1; text-align: center; }
+  .home-stats .stat-num {
+    font-family: 'Cinzel', serif;
+    font-size: clamp(1.3rem, 2.4vw, 1.7rem);
+    font-weight: 600;
+    color: var(--crimson-2);
+    line-height: 1;
+  }
+  .home-stats .stat-label {
+    font-family: 'Cinzel', serif;
+    font-size: 9.5px;
+    letter-spacing: .25em;
+    text-transform: uppercase;
+    color: var(--ink-2);
+    margin-top: 6px;
+    opacity: .8;
+  }
+  .home-stats .stat-sep {
+    width: 1px; height: 32px;
+    background: var(--line);
+    opacity: .5;
+  }
+
+  .home-hero-cta {
+    display: flex;
+    flex-wrap: wrap;
+    gap: 14px;
+    align-items: center;
+  }
+  .home-hero-cta .hero-cta { margin-top: 0; }
+
+  @media (max-width: 880px) {
+    .home-hero {
+      grid-template-columns: 1fr;
+      gap: 32px;
+      text-align: center;
+    }
+    .home-hero-cover { max-width: 280px; margin: 0 auto; }
+    .home-hero-text { text-align: left; }
+    .home-tagline { margin-left: auto; margin-right: auto; }
+    .home-stats { flex-wrap: wrap; }
+    .home-stats .stat { min-width: 80px; }
+    .home-stats .stat-sep:nth-of-type(2n) { display: none; }
   }
 
   .home-grid {
@@ -748,8 +877,10 @@
   /* Gesture hint only on home */
   body:not(.is-home) .gesture-hint { display: none !important; }
   /* Hero CTA */
-  .hero-cta { display: inline-block; margin-top: 18px; padding: 12px 28px; border: 1px solid var(--crimson-dim); background: linear-gradient(180deg, var(--crimson), var(--crimson-dim)); color: #fff; font-family: 'Cinzel', serif; font-size: 12px; letter-spacing: .25em; text-transform: uppercase; border-radius: var(--r-md); transition: transform .2s, box-shadow .2s; }
+  .hero-cta { display: inline-block; padding: 12px 28px; border: 1px solid var(--crimson-dim); background: linear-gradient(180deg, var(--crimson), var(--crimson-dim)); color: #fff; font-family: 'Cinzel', serif; font-size: 12px; letter-spacing: .25em; text-transform: uppercase; border-radius: var(--r-md); transition: transform .2s, box-shadow .2s, background .2s, color .2s; text-decoration: none; }
   .hero-cta:hover { transform: translateY(-1px); box-shadow: 0 8px 24px -8px rgba(179,38,30,.7); }
+  .hero-cta-ghost { background: transparent; color: var(--ink); border-color: var(--line); }
+  .hero-cta-ghost:hover { background: rgba(200,164,74,.08); border-color: var(--crimson-dim); color: var(--crimson-2); box-shadow: none; }
 
 
 </style>
@@ -799,10 +930,56 @@
   </svg>
 
   <div class="home-content">
-    <header class="home-header">
-      <div class="home-eyebrow">仙逆 Xian Ni · Web Novel · Traduction française</div>
-      <h1 class="home-title">Immortel</h1>
-      <p class="home-tagline">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.<br/><br/>2088 chapitres de cultivation xianxia. Une traduction française non-officielle. <a href="livre.html" class="hero-cta">Commencer la lecture →</a></p>
+    <header class="home-hero">
+      <div class="home-hero-cover">
+        <div class="home-hero-cover-frame">
+          <img src="wiki/images/Wang Lin Manhua Nascent Soul.webp" alt="Wang Lin, protagoniste de Xian Ni / Renegade Immortal" loading="eager" />
+          <div class="home-hero-cover-glow" aria-hidden="true"></div>
+        </div>
+        <div class="home-hero-cover-caption">
+          <span class="cap-name">Wang Lin</span>
+          <span class="cap-role">Protagoniste · Cultivateur</span>
+        </div>
+      </div>
+
+      <div class="home-hero-text">
+        <div class="home-eyebrow">仙逆 Xian Ni · Web Novel · Traduction française</div>
+        <h1 class="home-title">Immortel</h1>
+        <p class="home-tagline">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre, là où les mortels défient l'ordre des Immortels.</p>
+
+        <div class="home-synopsis">
+          <p>Sorti de son village avec rien d'autre qu'un héritage brisé et une volonté de fer, <strong>Wang Lin</strong> s'élève à travers les royaumes de cultivation — disciple méprisé, traître présumé, vagabond solitaire — jusqu'à devenir l'une des figures les plus redoutables du cosmos.</p>
+          <p>Parmi les sectes qui s'effondrent, les clans ancestraux et les guerres entre Immortels, sa route n'est jamais droite. Il tue pour protéger ce qu'il aime. Il trahit pour survivre. Il attend, pendant des siècles, ce que d'autres ont oublié.</p>
+          <p><em>Renegade Immortal</em> (仙逆) est l'un des monuments du xianxia moderne : une fresque de 2 088 chapitres où chaque transgression a un prix, et où la vraie immortalité n'est jamais celle qu'on croit.</p>
+        </div>
+
+        <div class="home-stats">
+          <div class="stat">
+            <div class="stat-num">2 088</div>
+            <div class="stat-label">Chapitres</div>
+          </div>
+          <div class="stat-sep" aria-hidden="true"></div>
+          <div class="stat">
+            <div class="stat-num">13</div>
+            <div class="stat-label">Tomes</div>
+          </div>
+          <div class="stat-sep" aria-hidden="true"></div>
+          <div class="stat">
+            <div class="stat-num">80+</div>
+            <div class="stat-label">Personnages</div>
+          </div>
+          <div class="stat-sep" aria-hidden="true"></div>
+          <div class="stat">
+            <div class="stat-num">9</div>
+            <div class="stat-label">Royaumes</div>
+          </div>
+        </div>
+
+        <div class="home-hero-cta">
+          <a href="livre.html" class="hero-cta">Commencer la lecture →</a>
+          <a href="personnages.html" class="hero-cta hero-cta-ghost">Découvrir les personnages</a>
+        </div>
+      </div>
     </header>
 
     <div class="home-grid">
@@ -1254,6 +1431,8 @@
     document.querySelector('.nav-tab[data-tab="' + next + '"]').focus();
   });
 
+  }  // end if (wikiGrid) — WIKI
+
   // ============================================
   // YOUTUBE IFRAME API — OST Xian Ni
   // ============================================
@@ -1429,8 +1608,6 @@
     }
     Audio.setPlaying(!Audio.isPlaying());
   });
-
-    }  // end if (wikiGrid) — WIKI
 
 // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');

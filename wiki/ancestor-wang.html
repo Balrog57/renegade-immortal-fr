@@ -1,0 +1,1355 @@
+<!DOCTYPE html>
+<html lang="fr">
+<head>
+<meta charset="UTF-8" />
+<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+<title>Wang Lin — Renegade Immortal FR</title>
+<link rel="preconnect" href="https://fonts.googleapis.com" />
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+<link rel="preconnect" href="https://static.wikia.nocookie.net" />
+<link href="https://fonts.googleapis.com/css2?family=Cinzel:wght@500;600;700&family=Cormorant+Garamond:ital,wght@0,400;0,600;1,400&family=Noto+Serif:ital,wght@0,400;0,600;1,400&display=swap" rel="stylesheet" />
+<style>
+
+  :root {
+    --bg-0: #07060a; --bg-1: #0d0b14; --bg-2: #15121e; --bg-3: #1d1929;
+    --line: #2a2438; --line-soft: #1f1a2c;
+    --ink-1: #ece6d8; --ink-2: #b8b0a2; --ink-3: #7d7466; --ink-4: #4d4656;
+    --crimson: #b3261e; --crimson-2: #d63a2e; --crimson-dim: #6b1a15;
+    --mystic: #4a6ed8; --mystic-2: #6a8cf0; --mystic-dim: #2a3f8a;
+    --gold: #c8a44a; --gold-dim: #7a6326;
+    --shadow-lg: 0 24px 60px -20px rgba(0,0,0,.7), 0 8px 20px -10px rgba(0,0,0,.5);
+    --r-sm: 4px; --r-md: 8px; --r-lg: 14px;
+    --ease: cubic-bezier(.2, .7, .2, 1);
+  }
+  * { box-sizing: border-box; }
+  html, body { margin: 0; padding: 0; }
+  html { scroll-behavior: smooth; }
+  body {
+    font-family: 'Noto Serif', 'Cormorant Garamond', Georgia, serif;
+    background: var(--bg-0); color: var(--ink-1);
+    line-height: 1.65; font-size: 16px;
+    -webkit-font-smoothing: antialiased; text-rendering: optimizeLegibility;
+    min-height: 100vh; overflow-x: hidden;
+  }
+  body::before {
+    content: ""; position: fixed; inset: 0; pointer-events: none; z-index: -1;
+    background:
+      radial-gradient(1100px 700px at 85% -10%, rgba(74,110,216,.07), transparent 60%),
+      radial-gradient(900px 600px at -10% 90%, rgba(179,38,30,.06), transparent 60%);
+  }
+  body::after {
+    content: ""; position: fixed; inset: 0; pointer-events: none; z-index: -1; opacity: .6;
+    background-image: radial-gradient(rgba(255,255,255,.025) 1px, transparent 1px);
+    background-size: 3px 3px;
+  }
+  a { color: var(--ink-1); text-decoration: none; }
+  a.fandom-link { color: var(--crimson-2); border-bottom: 1px solid var(--crimson-dim); padding-bottom: 1px; transition: color .2s, border-color .2s; }
+  a.fandom-link:hover { color: var(--crimson); border-bottom-color: var(--crimson-2); }
+  .nav {
+    position: sticky; top: 0; z-index: 100;
+    background: rgba(7,6,10,.78);
+    backdrop-filter: blur(14px) saturate(140%);
+    -webkit-backdrop-filter: blur(14px) saturate(140%);
+    border-bottom: 1px solid var(--line-soft);
+  }
+  .nav-inner {
+    max-width: 1240px; margin: 0 auto; padding: 14px 24px;
+    display: flex; align-items: center; justify-content: space-between; gap: 16px;
+  }
+  .brand {
+    display: flex; align-items: baseline; gap: 10px;
+    font-family: 'Cinzel', serif; font-weight: 700;
+    letter-spacing: .14em; font-size: 15px; text-transform: uppercase;
+    color: var(--ink-1);
+  }
+  .brand .dot {
+    display: inline-block; width: 8px; height: 8px;
+    background: var(--crimson);
+    box-shadow: 0 0 12px var(--crimson);
+    transform: translateY(-1px);
+  }
+  .brand small {
+    font-family: 'Cormorant Garamond', serif; font-style: italic; font-weight: 400;
+    text-transform: none; letter-spacing: .02em;
+    color: var(--ink-3); font-size: 13px;
+  }
+  .nav-tabs { display: flex; gap: 2px; background: var(--bg-1); border: 1px solid var(--line); padding: 4px; border-radius: 999px; }
+  .nav-tab {
+    appearance: none; background: transparent; border: 0;
+    color: var(--ink-2); font-family: 'Cinzel', serif; font-weight: 500;
+    letter-spacing: .12em; text-transform: uppercase; font-size: 11.5px;
+    padding: 9px 16px; border-radius: 999px;
+    cursor: pointer; transition: color .25s var(--ease), background .25s var(--ease);
+    min-height: 36px;
+  }
+  .nav-tab:hover { color: var(--ink-1); }
+  .nav-tab.is-active {
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 4px 16px -4px rgba(179,38,30,.6);
+  }
+  .nav-burger {
+    display: none; background: transparent; border: 1px solid var(--line);
+    color: var(--ink-1); width: 40px; height: 40px; border-radius: 8px; cursor: pointer;
+  }
+  .nav-burger span { display: block; width: 18px; height: 1.5px; background: currentColor; margin: 4px auto; }
+  main { max-width: 1240px; margin: 0 auto; padding: 40px 24px 80px; }
+  .tab-panel { display: none; }
+  .tab-panel.is-active { display: block; animation: panelIn .55s var(--ease) both; }
+  @keyframes panelIn { from { opacity: 0; transform: translateY(10px); } to { opacity: 1; transform: none; } }
+  .eyebrow {
+    font-family: 'Cinzel', serif; font-size: 11px;
+    letter-spacing: .35em; text-transform: uppercase;
+    color: var(--crimson-2); margin-bottom: 14px;
+  }
+  h1, h2, h3 { font-family: 'Cinzel', serif; font-weight: 600; letter-spacing: .04em; color: var(--ink-1); }
+  h1 { font-size: clamp(2.2rem, 4.5vw, 3.6rem); line-height: 1.05; margin: 0 0 18px; }
+  h2 { font-size: clamp(1.4rem, 2.4vw, 1.85rem); margin: 0 0 14px; }
+  h3 { font-size: 1.1rem; margin: 0 0 8px; letter-spacing: .08em; }
+  p  { margin: 0 0 14px; color: var(--ink-2); }
+  .divider { display: flex; align-items: center; gap: 14px; color: var(--ink-3); margin: 28px 0 18px; }
+  /* READER — volet lecture d'un chapitre ou d'une page wiki */
+  .reader {
+    background: var(--bg-1); border: 1px solid var(--line);
+    margin-top: 28px; padding: 0;
+  }
+  .reader-bar {
+    display: flex; align-items: center; justify-content: space-between; gap: 12px;
+    padding: 16px 24px; border-bottom: 1px solid var(--line);
+    background: var(--bg-2); position: sticky; top: 64px; z-index: 10;
+  }
+  .reader-bar .meta {
+    display: flex; flex-direction: column; line-height: 1.2; min-width: 0;
+  }
+  .reader-bar .meta .num {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase;
+    color: var(--crimson-2);
+  }
+  .reader-bar .meta .title {
+    color: var(--ink-1); font-family: 'Cinzel', serif; font-size: 14px;
+    overflow: hidden; text-overflow: ellipsis; white-space: nowrap;
+  }
+  .reader-bar .actions { display: flex; gap: 8px; flex-shrink: 0; }
+  .reader-bar .btn {
+    appearance: none; background: transparent; border: 1px solid var(--line);
+    color: var(--ink-2); padding: 8px 14px; font-family: 'Cinzel', serif;
+    font-size: 10.5px; letter-spacing: .15em; text-transform: uppercase;
+    cursor: pointer; border-radius: var(--r-md); transition: all .2s var(--ease);
+    min-height: 36px;
+  }
+  .reader-bar .btn:hover { color: var(--ink-1); border-color: var(--crimson-dim); }
+  .reader-bar .btn:disabled { opacity: .4; cursor: not-allowed; }
+  .reader-body {
+    padding: 36px 48px 48px; max-height: 75vh; overflow-y: auto;
+    font-size: 1.05rem; line-height: 1.9; color: var(--ink-2);
+  }
+  .reader-body p { margin: 0 0 1.2em; color: var(--ink-2); }
+  .reader-body .lead-paragraph::first-letter {
+    font-family: 'Cinzel', serif; font-size: 3.4em; float: left; line-height: .9;
+    margin: 4px 8px 0 0; color: var(--crimson-2); font-weight: 700;
+  }
+  .reader-loading, .reader-error {
+    padding: 60px 24px; text-align: center; color: var(--ink-3);
+  }
+  .reader-error { color: var(--crimson-2); }
+  .reader-error code {
+    display: inline-block; margin-top: 10px; padding: 8px 14px;
+    background: var(--bg-2); border: 1px solid var(--line); border-radius: var(--r-md);
+    color: var(--gold); font-family: 'Courier New', monospace; font-size: 13px;
+  }
+
+  /* WIKI */
+  .wiki-grid {
+    display: grid; grid-template-columns: repeat(auto-fill, minmax(280px, 1fr));
+    gap: 1px; background: var(--line); border: 1px solid var(--line);
+  }
+  .wiki-card {
+    background: var(--bg-1); padding: 18px 20px;
+    cursor: pointer; transition: background .2s var(--ease);
+    display: flex; flex-direction: column; gap: 8px;
+  }
+  .wiki-card:hover { background: var(--bg-2); }
+  .wiki-card .name { font-family: 'Cinzel', serif; font-size: 14.5px; color: var(--ink-1); letter-spacing: .03em; }
+  .wiki-card .cats { display: flex; flex-wrap: wrap; gap: 4px; }
+  .wiki-card .cat {
+    font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .15em; text-transform: uppercase;
+    padding: 2px 7px; border: 1px solid var(--line); color: var(--ink-3);
+    background: var(--bg-2); border-radius: 999px;
+  }
+  .wiki-card .cat.is-main { color: var(--crimson-2); border-color: var(--crimson-dim); background: rgba(179,38,30,.08); }
+  .wiki-card .preview {
+    font-size: 12.5px; line-height: 1.55; color: var(--ink-3);
+    font-style: italic;
+    display: -webkit-box; -webkit-line-clamp: 2; -webkit-box-orient: vertical;
+    overflow: hidden; text-overflow: ellipsis;
+  }
+  .wiki-card .size-hint { font-size: 10.5px; color: var(--ink-4); }
+  .wiki-search-row { display: flex; gap: 12px; flex-wrap: wrap; align-items: center; }
+  .wiki-stats {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase;
+    color: var(--ink-3); margin-left: auto;
+  }
+  .wiki-cat-filter { max-width: 320px; }
+  .wiki-reader-section {
+    background: var(--bg-1); border: 1px solid var(--line);
+    padding: 28px 36px; margin-top: 24px;
+  }
+  .wiki-reader-section h2 {
+    font-size: 1.6rem; margin-bottom: 4px; color: var(--ink-1);
+  }
+  .wiki-reader-section h3 {
+    font-size: 1.05rem; margin: 28px 0 10px; color: var(--gold);
+    border-bottom: 1px solid var(--line); padding-bottom: 6px;
+  }
+  .wiki-reader-section p { font-size: 14.5px; line-height: 1.75; color: var(--ink-2); margin: 0 0 12px; }
+  .wiki-reader-section .wikicats {
+    display: flex; flex-wrap: wrap; gap: 6px; margin: 8px 0 18px;
+  }
+  .wiki-reader-section .wikicats .cat {
+    font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase;
+    padding: 3px 8px; border: 1px solid var(--crimson-dim);
+    color: var(--crimson-2); background: rgba(179,38,30,.06);
+    border-radius: 999px;
+  }
+  .wiki-reader-section a.fandom-link { font-size: 13px; }
+
+  /* Chapitres v4 toolbar enrichie */
+  .toolbar-meta {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase;
+    color: var(--ink-3); margin-left: auto;
+  }
+
+  .divider::before, .divider::after { content: ""; flex: 1; height: 1px; background: var(--line); }
+  .divider span { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .4em; text-transform: uppercase; }
+  .hero { display: grid; grid-template-columns: 1.15fr 1fr; gap: 48px; align-items: center; margin-bottom: 64px; }
+  .hero-text .lede {
+    font-family: 'Cormorant Garamond', serif; font-style: italic;
+    font-size: 1.25rem; color: var(--ink-2); max-width: 56ch; margin-bottom: 24px;
+  }
+  .cover {
+    position: relative; aspect-ratio: 3 / 4.2;
+    border: 1px solid var(--line); background: var(--bg-2);
+    overflow: hidden; box-shadow: var(--shadow-lg);
+  }
+  .cover::before {
+    content: ""; position: absolute; inset: 0;
+    background:
+      radial-gradient(60% 40% at 50% 30%, rgba(179,38,30,.35), transparent 60%),
+      radial-gradient(80% 50% at 50% 100%, rgba(74,110,216,.25), transparent 60%),
+      linear-gradient(180deg, #0a0810 0%, #050308 100%);
+  }
+  .cover-art { position: absolute; inset: 0; display: flex; align-items: center; justify-content: center; text-align: center; padding: 20px; }
+  .cover-art .glyph {
+    font-family: 'Cinzel', serif; font-weight: 700;
+    font-size: clamp(3rem, 8vw, 5.5rem); line-height: .9;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    text-shadow: 0 0 30px rgba(200,164,74,.25);
+    letter-spacing: .04em;
+  }
+  .cover-art .glyph-sub { font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .6em; text-transform: uppercase; color: var(--ink-3); margin-top: 14px; }
+  .cover-frame { position: absolute; inset: 12px; border: 1px solid rgba(200,164,74,.18); pointer-events: none; }
+  .cover-corner { position: absolute; width: 18px; height: 18px; border: 1px solid var(--gold); }
+  .cover-corner.tl { top: 12px; left: 12px; border-right: 0; border-bottom: 0; }
+  .cover-corner.tr { top: 12px; right: 12px; border-left: 0; border-bottom: 0; }
+  .cover-corner.bl { bottom: 12px; left: 12px; border-right: 0; border-top: 0; }
+  .cover-corner.br { bottom: 12px; right: 12px; border-left: 0; border-top: 0; }
+  .meta-grid { display: grid; grid-template-columns: repeat(2, 1fr); gap: 1px; background: var(--line); border: 1px solid var(--line); margin: 32px 0; }
+  .meta { background: var(--bg-1); padding: 18px 20px; }
+  .meta .k { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 6px; }
+  .meta .v { color: var(--ink-1); font-size: 1.02rem; font-weight: 500; }
+  .meta .v.is-status { color: var(--gold); }
+  .synopsis { background: var(--bg-1); border: 1px solid var(--line); padding: 32px 36px; position: relative; }
+  .synopsis::before {
+    content: """; position: absolute; top: -10px; left: 22px;
+    font-family: 'Cormorant Garamond', serif; font-size: 90px; line-height: 1;
+    color: var(--crimson); opacity: .55;
+  }
+  .synopsis h2 { margin-top: 6px; }
+  .synopsis p { font-size: 1.05rem; line-height: 1.85; color: var(--ink-2); }
+  .synopsis .source { display: inline-block; margin-top: 14px; font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-3); }
+  .toolbar { display: flex; align-items: center; gap: 12px; margin: 8px 0 28px; flex-wrap: wrap; }
+  .search { flex: 1; min-width: 240px; position: relative; }
+  .search input {
+    width: 100%; background: var(--bg-1); border: 1px solid var(--line);
+    color: var(--ink-1); padding: 13px 16px 13px 44px;
+    font: inherit; font-size: 15px; border-radius: var(--r-md);
+    transition: border-color .2s, background .2s;
+  }
+  .search input::placeholder { color: var(--ink-3); }
+  .search input:focus { outline: 0; border-color: var(--crimson); background: var(--bg-2); box-shadow: 0 0 0 3px rgba(179,38,30,.12); }
+  .search svg { position: absolute; left: 14px; top: 50%; transform: translateY(-50%); color: var(--ink-3); }
+  .filter { display: flex; align-items: center; gap: 10px; font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-3); }
+  .filter select { background: var(--bg-1); border: 1px solid var(--line); color: var(--ink-1); padding: 11px 14px; font: inherit; font-size: 13px; border-radius: var(--r-md); }
+  .chapters { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 12px; }
+  .chapter {
+    display: flex; align-items: center; justify-content: space-between; gap: 12px;
+    background: var(--bg-1);
+    border: 1px solid var(--line);
+    padding: 16px 18px;
+    color: var(--ink-1);
+    transition: background .2s var(--ease), border-color .2s, color .2s, transform .2s;
+    cursor: pointer;
+    min-height: 58px;
+  }
+  .chapter:hover {
+    background: var(--bg-2);
+    border-color: var(--crimson-dim);
+    color: var(--crimson-2);
+    transform: translateY(-1px);
+  }
+  .chapter .title {
+    flex: 1; font-size: 14.5px; line-height: 1.35;
+    overflow: hidden; text-overflow: ellipsis; white-space: nowrap;
+  }
+  .chapter .arrow {
+    color: var(--ink-4);
+    transition: transform .2s var(--ease), color .2s;
+    flex-shrink: 0;
+    font-size: 18px;
+  }
+  .chapter:hover .arrow { color: var(--crimson); transform: translateX(3px); }
+  .empty { padding: 60px 20px; text-align: center; color: var(--ink-3); font-style: italic; background: var(--bg-1); border: 1px solid var(--line); }
+  .cards { display: grid; grid-template-columns: repeat(auto-fit, minmax(280px, 1fr)); gap: 24px; }
+  .card { background: var(--bg-1); border: 1px solid var(--line); padding: 0; position: relative; transition: transform .35s var(--ease), border-color .25s; overflow: hidden; }
+  .card:hover { transform: translateY(-3px); border-color: var(--line); }
+  .card::before {
+    content: ""; position: absolute; top: 0; left: 0; right: 0; height: 1px;
+    background: linear-gradient(90deg, transparent, var(--crimson), transparent);
+    opacity: .7; z-index: 1;
+  }
+  .card-portrait {
+    aspect-ratio: 4 / 3; background: var(--bg-2);
+    position: relative; display: flex; align-items: center; justify-content: center;
+    border-bottom: 1px solid var(--line); overflow: hidden;
+  }
+  .card-portrait img {
+    position: absolute; inset: 0; width: 100%; height: 100%;
+    object-fit: cover; object-position: center 20%;
+    transition: transform .6s var(--ease), filter .4s;
+    filter: contrast(1.05) saturate(0.9) brightness(0.95);
+  }
+  .card:hover .card-portrait img { transform: scale(1.05); filter: contrast(1.08) saturate(1) brightness(1); }
+  .card-portrait::after {
+    content: ""; position: absolute; inset: 0;
+    background: linear-gradient(180deg, transparent 50%, rgba(13,11,20,.85) 100%);
+    pointer-events: none;
+  }
+  .card-body { padding: 22px 24px 24px; }
+  .card .role { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; }
+  .card h3 { font-size: 1.5rem; margin-bottom: 4px; }
+  .card .subtitle { color: var(--ink-3); font-style: italic; font-size: 14px; margin-bottom: 14px; }
+  .card p { font-size: 14.5px; line-height: 1.7; }
+  .card .sec-label { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--ink-3); margin: 14px 0 6px; }
+  .card .sec-text { font-size: 13.5px; line-height: 1.6; color: var(--ink-2); font-style: italic; }
+  .traits { display: flex; flex-wrap: wrap; gap: 6px; margin-top: 16px; padding-top: 16px; border-top: 1px solid var(--line-soft); }
+  .trait { font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase; padding: 4px 9px; border: 1px solid var(--line); color: var(--ink-2); background: var(--bg-2); border-radius: 999px; }
+  .trait.is-main { color: var(--crimson-2); border-color: var(--crimson-dim); background: rgba(179,38,30,.08); }
+  .card.is-featured { grid-column: 1 / -1; display: grid; grid-template-columns: 320px 1fr; }
+  .card.is-featured .card-portrait { aspect-ratio: auto; height: 100%; border-bottom: 0; border-right: 1px solid var(--line); }
+  .lore-section { margin-bottom: 56px; }
+  .lore-section .lead { max-width: 65ch; margin-bottom: 24px; }
+  .realm-list { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 1px; background: var(--line); border: 1px solid var(--line); }
+  /* WIKI GALLERY */
+  .wiki-gallery {
+    display: grid; grid-template-columns: repeat(auto-fill, minmax(140px, 1fr));
+    gap: 8px; margin: 18px 0 28px;
+  }
+  .wiki-gallery-item {
+    position: relative; display: block; aspect-ratio: 1;
+    background: var(--bg-2); border: 1px solid var(--line);
+    overflow: hidden; transition: border-color .2s;
+  }
+  .wiki-gallery-item:hover { border-color: var(--crimson-dim); }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; aspect-ratio: 1; }
+  .wiki-gallery-item img {
+    width: 100%; height: 100%; object-fit: cover;
+    transition: transform .4s var(--ease);
+  }
+  .wiki-gallery-item:hover img { transform: scale(1.05); }
+  .wiki-gallery-label {
+    position: absolute; top: 8px; left: 8px;
+    background: rgba(7,6,10,.85); color: var(--crimson-2);
+    padding: 3px 8px; font-family: 'Cinzel', serif;
+    font-size: 9px; letter-spacing: .2em; text-transform: uppercase;
+    border: 1px solid var(--crimson-dim);
+  }
+  .wiki-gallery-more {
+    display: flex; align-items: center; justify-content: center;
+    background: var(--bg-2); border: 1px dashed var(--line);
+    color: var(--ink-3); font-family: 'Cinzel', serif;
+    font-size: 11px; letter-spacing: .15em;
+  }
+  .wiki-external-sources {
+    background: var(--bg-2); border: 1px solid var(--line);
+    padding: 20px 24px; margin-top: 28px;
+    border-left: 3px solid var(--crimson);
+  }
+  .wiki-external-sources h3 {
+    font-size: 1rem; color: var(--gold); margin: 0 0 10px;
+    border-bottom: 0; padding: 0;
+  }
+  .wiki-external-sources ul {
+    margin: 8px 0 0; padding-left: 20px;
+  }
+  .wiki-external-sources li { margin-bottom: 6px; font-size: 14px; }
+  .wiki-external-sources p { margin: 0; font-size: 13px; color: var(--ink-3); }
+  .realm { background: var(--bg-1); padding: 22px 24px; position: relative; transition: background .2s; }
+  .realm:hover { background: var(--bg-2); }
+  .realm .stage { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 6px; }
+  .realm h3 { font-size: 1.15rem; color: var(--ink-1); margin-bottom: 8px; }
+  .realm p { font-size: 13.5px; line-height: 1.65; margin: 0; }
+  .realm .pinyin { color: var(--crimson-2); font-style: italic; font-size: 12.5px; margin-top: 8px; }
+  .geography { display: grid; grid-template-columns: 1.2fr 1fr; gap: 32px; align-items: start; }
+  .geography .map-placeholder { aspect-ratio: 4 / 3; background: var(--bg-1); border: 1px solid var(--line); position: relative; overflow: hidden; }
+  .geography .map-placeholder::before {
+    content: ""; position: absolute; inset: 0;
+    background:
+      radial-gradient(40% 30% at 30% 40%, rgba(74,110,216,.15), transparent 60%),
+      radial-gradient(35% 25% at 70% 65%, rgba(179,38,30,.12), transparent 60%);
+  }
+  .map-svg { position: absolute; inset: 0; width: 100%; height: 100%; }
+  .artifact { background: var(--bg-1); border: 1px solid var(--line); padding: 24px 28px; }
+  .artifact h3 { color: var(--gold); font-size: 1.1rem; margin-bottom: 6px; }
+  .artifact .pinyin { color: var(--ink-3); font-style: italic; font-size: 13px; margin-bottom: 14px; }
+  footer { border-top: 1px solid var(--line-soft); padding: 32px 24px; text-align: center; color: var(--ink-3); font-size: 13px; }
+  footer .seal { display: inline-block; font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 8px; }
+
+  /* ============ AUDIO PLAYER ============ */
+  .audio-dock {
+    position: fixed; bottom: 22px; right: 22px; z-index: 200;
+    display: flex; align-items: center; gap: 10px;
+    background: rgba(13,11,20,.85);
+    backdrop-filter: blur(14px) saturate(140%);
+    -webkit-backdrop-filter: blur(14px) saturate(140%);
+    border: 1px solid var(--line);
+    padding: 8px 14px 8px 8px;
+    border-radius: 999px;
+    box-shadow: 0 12px 32px -8px rgba(0,0,0,.7);
+    transition: transform .25s var(--ease), box-shadow .25s;
+    user-select: none;
+  }
+  .audio-dock.is-loading .audio-btn { opacity: .55; cursor: wait; }
+  .audio-dock.is-error { border-color: var(--crimson-dim); }
+  .audio-dock.is-error .audio-btn { background: var(--line); box-shadow: none; cursor: not-allowed; }
+  #yt-player-host { position: fixed; width: 1px; height: 1px; left: -9999px; top: -9999px; pointer-events: none; opacity: 0; }
+  /* AUTOPLAY GESTURE OVERLAY */
+  .gesture-hint {
+    position: fixed; inset: 0; z-index: 999;
+    background: radial-gradient(circle at center, rgba(7,6,10,.85), rgba(7,6,10,.97));
+    display: flex; align-items: center; justify-content: center;
+    cursor: pointer;
+    transition: opacity .8s var(--ease);
+    backdrop-filter: blur(8px);
+    -webkit-backdrop-filter: blur(8px);
+  }
+  .gesture-hint.is-hidden { opacity: 0; pointer-events: none; }
+  .gesture-hint-inner {
+    text-align: center; color: var(--ink-1);
+    padding: 40px;
+  }
+  .gesture-hint-glyph {
+    font-family: 'Cinzel', serif; font-size: 4rem; line-height: 1;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    margin-bottom: 18px; letter-spacing: .04em;
+  }
+  .gesture-hint-title {
+    font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .4em;
+    text-transform: uppercase; color: var(--crimson-2);
+    margin-bottom: 12px;
+  }
+  .gesture-hint-text {
+    font-family: 'Cormorant Garamond', serif; font-style: italic;
+    font-size: 1.3rem; color: var(--ink-2); margin-bottom: 28px;
+    max-width: 50ch;
+  }
+  .gesture-hint-cta {
+    display: inline-flex; align-items: center; gap: 12px;
+    padding: 14px 28px; border: 1px solid var(--crimson-dim);
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff; font-family: 'Cinzel', serif; font-size: 12px;
+    letter-spacing: .3em; text-transform: uppercase;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6);
+    animation: ctaPulse 2.4s ease-in-out infinite;
+  }
+  @keyframes ctaPulse {
+    0%, 100% { box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6); }
+    50%      { box-shadow: 0 0 0 1px rgba(255,255,255,.1) inset, 0 8px 32px -4px rgba(179,38,30,.9), 0 0 0 8px rgba(179,38,30,.08); }
+  }
+  .gesture-hint-cta svg { width: 16px; height: 16px; }
+  .audio-dock:hover { transform: translateY(-2px); box-shadow: 0 18px 40px -10px rgba(0,0,0,.7), 0 0 0 1px var(--crimson-dim); }
+  .audio-btn {
+    appearance: none; border: 0; cursor: pointer;
+    width: 40px; height: 40px; border-radius: 50%;
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff;
+    display: flex; align-items: center; justify-content: center;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 4px 16px -4px rgba(179,38,30,.6);
+    transition: transform .15s var(--ease);
+  }
+  .audio-btn:hover { transform: scale(1.06); }
+  .audio-btn:active { transform: scale(.96); }
+  .audio-btn svg { width: 18px; height: 18px; }
+  .audio-meta { display: flex; flex-direction: column; line-height: 1.1; }
+  .audio-meta .title { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-1); }
+  .audio-meta .sub { font-family: 'Cormorant Garamond', serif; font-style: italic; font-size: 12px; color: var(--ink-3); margin-top: 2px; }
+  .audio-viz {
+    display: inline-flex; align-items: flex-end; gap: 2px; height: 18px; margin-left: 4px;
+  }
+  .audio-viz span {
+    display: inline-block; width: 2px; background: var(--crimson-2);
+    border-radius: 1px; height: 4px;
+    transition: height .2s var(--ease);
+  }
+  .audio-dock.is-playing .audio-viz span { animation: viz 1.2s ease-in-out infinite; }
+  .audio-dock.is-playing .audio-viz span:nth-child(1) { animation-delay: 0s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(2) { animation-delay: .15s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(3) { animation-delay: .3s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(4) { animation-delay: .45s; }
+  @keyframes viz { 0%, 100% { height: 4px; } 50% { height: 16px; } }
+  .audio-vol { -webkit-appearance: none; appearance: none; background: transparent; width: 80px; height: 4px; margin-left: 6px; cursor: pointer; }
+  .audio-vol::-webkit-slider-runnable-track { background: var(--line); height: 2px; border-radius: 2px; }
+  .audio-vol::-webkit-slider-thumb { -webkit-appearance: none; appearance: none; width: 12px; height: 12px; border-radius: 50%; background: var(--crimson-2); margin-top: -5px; cursor: pointer; box-shadow: 0 0 8px rgba(179,38,30,.5); }
+  .audio-vol::-moz-range-track { background: var(--line); height: 2px; border-radius: 2px; }
+  .audio-vol::-moz-range-thumb { width: 12px; height: 12px; border: 0; border-radius: 50%; background: var(--crimson-2); cursor: pointer; box-shadow: 0 0 8px rgba(179,38,30,.5); }
+
+  @media (max-width: 880px) {
+    .hero { grid-template-columns: 1fr; gap: 32px; }
+    .card.is-featured { grid-template-columns: 1fr; }
+    .card.is-featured .card-portrait { aspect-ratio: 16 / 7; height: auto; border-right: 0; border-bottom: 1px solid var(--line); }
+    .geography { grid-template-columns: 1fr; }
+    .reader-body { padding: 24px 24px 36px; }
+    .reader-bar { position: static; flex-wrap: wrap; }
+    .reader-bar .meta { min-width: 100%; }
+  }
+  @media (max-width: 640px) {
+    .nav-tabs { display: none; }
+    .nav-burger { display: block; }
+    .nav-tabs.is-open { display: flex; position: absolute; top: 100%; left: 0; right: 0; flex-direction: column; background: var(--bg-1); border: 1px solid var(--line); border-radius: 0; padding: 8px; margin: 0 12px; }
+    .nav-tab { text-align: left; border-radius: 8px; padding: 12px 16px; }
+    .meta-grid { grid-template-columns: 1fr; }
+    .synopsis { padding: 24px 22px; }
+    main { padding: 24px 18px 100px; }
+    .audio-dock { bottom: 14px; right: 14px; left: 14px; justify-content: center; }
+    .audio-vol { display: none; }
+  }
+  @media (prefers-reduced-motion: reduce) {
+    .tab-panel.is-active { animation: none; }
+    .card, .card-portrait img { transition: none; }
+    .chapter .arrow { transition: none; }
+    .audio-dock.is-playing .audio-viz span { animation: none; }
+  }
+
+
+/* iPad / tablet (768px - 1024px) */
+@media (min-width: 768px) and (max-width: 1024px) {
+  main { padding: 32px 28px 60px; }
+  .nav-inner { padding: 12px 20px; }
+  .home-content { padding: 50px 24px 60px; }
+  .home-title { font-size: clamp(2.5rem, 7vw, 4.5rem); }
+  .home-grid { grid-template-columns: repeat(3, 1fr); gap: 14px; }
+  .themed-grid { grid-template-columns: repeat(3, 1fr); }
+  .livre-grid { grid-template-columns: repeat(3, 1fr); }
+  .reader-body { padding: 30px 36px 40px; }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; }
+}
+
+@media (min-width: 1024px) and (max-width: 1366px) {
+  main { padding: 40px 32px 70px; }
+  .home-grid { grid-template-columns: repeat(3, 1fr); }
+  .themed-grid { grid-template-columns: repeat(4, 1fr); }
+  .livre-grid { grid-template-columns: repeat(4, 1fr); }
+}
+
+/* Light theme overrides */
+:root[data-theme="light"] {
+  --bg-0: #f5f1e8;
+  --bg-1: #ebe5d5;
+  --bg-2: #dfd7c0;
+  --bg-3: #d3caaf;
+  --line: #c5b994;
+  --line-soft: #d5ccb1;
+  --ink-1: #2a2218;
+  --ink-2: #4a3f2e;
+  --ink-3: #7a6b54;
+  --ink-4: #aa9876;
+  --crimson: #a01d18;
+  --crimson-2: #c23020;
+  --crimson-dim: #601008;
+  --mystic: #3658b8;
+  --mystic-2: #4a78d8;
+  --mystic-dim: #1a3878;
+  --gold: #8a6a1a;
+  --gold-dim: #5a4410;
+}
+:root[data-theme="light"] body { background: var(--bg-0); color: var(--ink-1); }
+:root[data-theme="light"] body::before {
+  background:
+    radial-gradient(1100px 700px at 85% -10%, rgba(74,110,216,.05), transparent 60%),
+    radial-gradient(900px 600px at -10% 90%, rgba(179,38,30,.04), transparent 60%);
+}
+:root[data-theme="light"] .cover { background: var(--bg-2); }
+:root[data-theme="light"] .hero { background: transparent; }
+:root[data-theme="light"] .synopsis { background: var(--bg-1); }
+:root[data-theme="light"] .gesture-hint {
+  background: radial-gradient(circle at center, rgba(245,241,232,.92), rgba(245,241,232,.98));
+}
+
+/* Theme toggle button */
+.theme-toggle {
+  position: fixed; bottom: 90px; right: 22px; z-index: 200;
+  width: 44px; height: 44px;
+  background: var(--bg-1); border: 1px solid var(--line);
+  color: var(--ink-2);
+  display: flex; align-items: center; justify-content: center;
+  cursor: pointer; border-radius: 50%;
+  transition: all .2s;
+  font-size: 18px;
+  box-shadow: 0 4px 12px -2px rgba(0,0,0,.3);
+}
+.theme-toggle:hover {
+  background: var(--bg-2);
+  color: var(--crimson-2);
+  border-color: var(--crimson-dim);
+  transform: scale(1.05);
+}
+@media (max-width: 640px) {
+  .theme-toggle { bottom: 80px; right: 14px; width: 40px; height: 40px; font-size: 16px; }
+}
+
+
+  .breadcrumb { font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 14px; }
+  .breadcrumb a { color: var(--crimson-2); border-bottom: 1px solid var(--crimson-dim); }
+  .entry-page { background: var(--bg-1); border: 1px solid var(--line); padding: 32px 36px; }
+  .entry-page h1 { font-size: 2rem; margin: 0 0 12px; }
+  .wikicats { display: flex; flex-wrap: wrap; gap: 6px; margin: 8px 0 16px; }
+  .wikicats .cat { font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase; padding: 3px 8px; border: 1px solid var(--crimson-dim); color: var(--crimson-2); background: rgba(179,38,30,.06); border-radius: 999px; }
+  .entry-hero { margin: 0 0 28px; }
+  .entry-hero img { max-width: 100%; max-height: 480px; display: block; border: 1px solid var(--line); }
+  .entry-content h2, .entry-content h3 { color: var(--gold); margin: 24px 0 10px; border-bottom: 0; padding: 0; }
+  .entry-content p { font-size: 15px; line-height: 1.75; margin: 0 0 14px; }
+  .wiki-gallery { display: grid; grid-template-columns: repeat(auto-fill, minmax(140px, 1fr)); gap: 8px; margin: 18px 0 28px; }
+  .wiki-gallery-item { position: relative; display: block; aspect-ratio: 1; background: var(--bg-2); border: 1px solid var(--line); overflow: hidden; }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; }
+  .wiki-gallery-item img { width: 100%; height: 100%; object-fit: cover; }
+  .wiki-gallery-label { position: absolute; top: 8px; left: 8px; background: rgba(7,6,10,.85); color: var(--crimson-2); padding: 3px 8px; font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .2em; text-transform: uppercase; border: 1px solid var(--crimson-dim); }
+
+</style>
+</head>
+<body class="is-home">
+<header class="nav"
+  <div class="nav-inner">
+    <a href="../index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
+      <span class="dot" aria-hidden="true"></span>
+      <span>Immortel</span>
+      <small>· Xian Ni · 仙逆</small>
+    </a>
+    <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
+      <span></span><span></span><span></span>
+    </button>
+    <nav class="nav-tabs" id="nav-tabs" role="navigation" aria-label="Sections principales">
+      <a href="../index.html" class="nav-tab">Accueil</a>
+      <a href="../livre.html" class="nav-tab">Livre</a>
+      <a href="../chapitres.html" class="nav-tab">Chapitres</a>
+      <a href="../personnages.html" class="nav-tab">Personnages</a>
+      <a href="../cultivation.html" class="nav-tab">Cultivation</a>
+      <a href="../sectes-clans.html" class="nav-tab">Sectes & Clans</a>
+      <a href="../lieux.html" class="nav-tab">Lieux</a>
+      
+    </nav>
+  </div>
+</header>
+<main>
+
+  <section class="tab-panel is-active">
+    <nav class="breadcrumb"><a href="../wiki.html">← Wiki</a></nav>
+    <div class="entry-page">
+      <header>
+        <h1>Wang Lin</h1>
+        <div class="wikicats"><span class="cat">Characters</span><span class="cat">Male</span><span class="cat">Celestial</span><span class="cat">Alive</span><span class="cat">Wang Clan</span><span class="cat">Heng Yue Sect</span><span class="cat">Country of Zhao</span><span class="cat">Cloud Sky Sect</span></div>
+        <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Ancestor_Wang" target="_blank" rel="noopener">Voir sur Fandom Wiki →</a>
+      </header>
+      <article class="entry-content"><h2>Overview
+[
+]</h2><p>Wang Lin is the main protagonist of Renegade Immortal .</p><p>Born with a weak body, Wang Lin&#x27;s features begin as average before becoming moderately handsome as a high grade cultivator. He was born with black hair and black eyes but the former turned white for the first time after studying for 7 years in the Restriction Mountain Trial on Planet Suzaku . [ 9 ] Later on, the hair of his Ancient God original body turned red from all the killing intent it accumulated while the cultivation avatar regained black hair [ 10 ] [ 11 ] [ 12 ] [ 13 ] . In the end, it became definitely white after the second Vermilion Bird Mark Awakening. [ 14 ] It can be seen as a testimony of his harsh life which was filled with life and death situations, tragedies and losses, making Wang Lin regards himself as an old man even though he still possessed a long lifespan.</p><p>Wang Lin looks about 30 years old. His appearance is ordinary and there is nothing unusual about him apart from the lonely and ancient aura he releases. Another trait that characterizes Wang Lin is his all-white appearance that comes from his white hair and the white robes he always dresses with. It is however worth noting that during his early years of demonic cultivation on Planet Suzaku , Wang Lin dressed in a black robe which he later gave to his clone Slaughter .</p><p>His white hair are complemented by red eyes and a courageous disposition. Purple stars swirl on Wang Lin&#x27;s forehead and eyes and his height can reach astronomic numbers when he is in his Ancient God /One form. Wang Lin&#x27;s red eyes are by far one of his most distinctive features as his monstrous killing intent and madness can be felt from them.</p><p>His expression is generally cold and indifferent, devoid of any emotions that could betray his real thoughts.</p><h3>Ancient God real body
+[
+]</h3><p>This figure had a head full of red hair that moved without any wind and a sharp face that gave off a hardened aura.There were three stars slowly spinning on the figure’s forehead, and it had a pair of cold eyes that were black like the eternal night, giving off a freezing chill.</p><p>There were countless cracks on his bronze-colored body, making his skin look very rough, but it was this rough skin that gave his body a desolate aura.</p><p>At this moment, the original body was like a primordial beast giving off a monstrous aura</p><h3>Personality
+[
+]</h3><p>His goal is to become an Immortal so he doesn&#x27;t disappoint his parents, Fourth Uncle , family, and the expectations of the people from his village. Even though he was intelligent, he didn&#x27;t like killing. The simple nature of a native villager was ingrained in him. But after the death of his parents and relatives, Wang Lin became vicious and did not hesitate to kill those that offended him.</p><p>During his youth, Wang Lin was smart, curious, cautious but simple-minded.</p><p>He&#x27;s also have a tenacious will as shown by the Heng Yue Sect second test, forcing himself until he lost his mind, or when he studied restriction on the restriction mountain.</p><p>He shows great love and filial piety towards his parents, striving to meet their expectations of him by becoming an Immortal.</p><p>However, Wang Lin&#x27;s initial entry into the treacherous cultivation world was an arduous one due to his mediocre talent.</p><p>To survive, Wang Lin&#x27;s character grew more cunning and resolute.</p><p>Despite his changing character, Wang Lin was still reluctant to kill people who did not directly harm him.</p><p>His naivete ultimately became the Wang Clan&#x27;s undoing when Wang Lin unwittingly caused its destruction by sparing the lives of mortals who saw his face, allowing the vengeful Teng Huayuan to locate his hometown.</p><p>After his clan&#x27;s destruction, Wang Lin&#x27;s personality drastically changed. Overwhelmed with grief and remorse for his role in his clan&#x27;s fate, he vowed to avenge his family by destroying the Teng Clan.</p><p>This traumatic experience caused Wang Lin to cast away his old ideals, recognizing that the only law in the cultivation world that matters is the law of the jungle.</p><p>Wang Lin&#x27;s vow of revenge shapes him to become a cold and ruthless killer. He becomes increasingly apathetic, showing no feeling for the pain and deaths of others.</p><p>Together with his natural intelligence and focus, this makes it easier for Wang Lin to exploit others in his plans while minimizing the risk to himself.</p><p>Due to his impatience on attaining revenge before anything unfortunate happens to the Teng Clan, Wang Lin develops a low tolerance for failure and betrayal, not hesitating to threaten or kill those who fail to meet his expectations.</p><p>Despite his ruthless and calculating nature, Wang Lin did retain traces of his former self. He is a man of his word, fulfilling his promises and vows to others. He never outwardly looks for trouble and only retaliates when he is threatened or provoked first.</p><p>Revenge did not significantly dull his ability to care and develop attachments to others. This is best exemplified through his feelings of love towards Li Muwan .</p><p>But first, his experiences have only strengthened his desire to accomplish his childhood dream of reaching the pinnacle of cultivators.</p><p>However, his desire to accomplish his dream has not stopped himself from developing some bitter feelings about his life as a cultivator due to the numerous trials and outcomes it has produced. This has caused himself to question as to what exactly is the end goal for cultivation.</p><p>Wang Lin&#x27;s exceptional intelligence and unbreakable will are his main qualities. He is indeed often praised for his cleverness and wits by his allies and foes alike.</p><p>With the increase of Wang Lin&#x27;s cultivation, pride and arrogance naturally came along. After all, Wang Lin did started as a simple mortal before becoming a great Immortal.</p><p>The different positions he occupied also allowed Wang Lin to feel the weight of the responsibilities, and made him develop a majesty unique to a powerhouse who started from rock bottom.</p><p>The older he became coupled with the multiple setbacks he experienced allowed Wang Lin frequently reflect on his way of living.</p><p>In addition to his long years of cultivation as an immortal, he understood three ethereal essences and once became a mortal Grand Scholar. All these further honed his wisdom.</p><p>Wang Lin is very ruthless and decisive when taking action. Indeed, he began his cultivation journey as a devil who slaughtered any potential enemies, and even others to obtain resources.</p><p>It is only after attaining Soul Formation that he calmed down his murderous nature. But even thought Wang Lin decided to not become a demonic cultivator like his master Situ Nan , his foundation as a a cultivator without talent truly comes from this path.</p><p>His nature therefore stayed extremely similar to the one of a devil. Wang Lin did not hesitate to commit massacres by multiples occasion, earning him the nickname of Master Demon and a killing intent strong enough to shock even the most cruel cultivators (like the White Tiger General of the Sealed Realm ).</p><p>There are other testimonies of his violent life like the Ji Realm , the demonic spells he mastered or created, the Slaughter Essence he comprehended and his friendship with Situ Nan and Qing Shui , two renowned mass murderers.</p><p>Furthermore, Wang Lin&#x27;s mind is often overcome by madness during life and death crisis, which often result in him causing great harm to his enemies and even himself in the process.</p><p>The people Wang Lin has gained and lost throughout his journey as a cultivator has caused him to be unwilling to let go of the people who are precious to him. As a result, he became increasingly defiant against the heavens, using this as a foundation for his cultivation path as a Heaven Defying Cultivator .</p><p>But it also made Wang Lin carry a lonely and depressed aura around him which contrast greatly with his killing intent. His sorrow has already saddened a lot of powerful cultivators like Dao Master Blue Dream or Xuan Luo .</p><h3>Background
+[
+]</h3><p>Born as a mortal without anything special. Before the Heng Yue Sect disciple selection event, Wang Lin&#x27;s dream was to pass the State Exam and enter the court to make his parent proud and respected by other. Wang lin become a powerful cultivator to save his wife, Li muwan.</p><h3>Book 1 - The Mediocre Youth
+[
+]</h3><p>He was allowed to participate in several tests to try and become a disciple in the Heng Yue Sect . The day of the test, he met Wang Zhou , and Wang Jie . Wang Lin was shocked and disappointed when he did not become a disciple of the Heng Yue Sect. Although he failed all of the 3 tests (Spiritual Power, Willpower, and the Door test), he displayed great determination, but because his talent was too low he failed (Willpower). Letting down his family, and wasting the chance his Fourth Uncle gave to him. After a dream of him becoming an immortal, he wakes up in the middle of the night and decide to travel to Heng Yue Sect to try again. Even if he fails again, he will find a way to enter an immortal sect. When he was able to see Heng Yue Sect , he decide to take a break but was attacked by a Tiger. As Wang Lin approached a dead end, he jumped off a cliff.</p><p>When he woke up, he found one of his arms was broken and understand how he survived, because of hunger, he decide to eat a dead bird who was in the cave and from the dead bird found a bead, thinking it&#x27;s a Niedan, (Inner Pellet). After finding the truth, he put it aside. The next morning, because of thirst, he lick the dew from the dead animal bone around the bead and discover it&#x27;s use.</p><p>Wang Lin later tries to descend the cliff using his cloth but end up falling down. Luckily, a few moment after his fall, he hear his father&#x27;s voice, after being found, because of his state, they think he tried to suicide. People laments him for attempting suicide, but end up able to join into Heng Yue Sect with the intention that after 8 to 10 years, he didn&#x27;t succeed in cultivating, to send him back.</p><h3>Book 2 - The Bloody Image Of Cultivation
+[
+]</h3><p>After 4 years of Closed-Door cultivation Wang Lin decides to go to Tian Shui City. On his way he gets lost because Situ Nan urges him to fly over the forest, then he meets a group of merchants transporting a treasure and the merchants give him a ride. En route, Wang Lin&#x27;s group meet bandits, Wang Lin recognizes one of the bandits to be a former member of the Heng Yue Sect , Zhang Hu . Zhang Hu pretends to not know Wang Lin because his &quot;master&quot; is nearby so that Wang Lin won&#x27;t die, yet His master and Wang Lin fight anyways.</p><p>After Wang Lin kills Zhang Hu &#x27;s Master The two go to Tian Shui City. Zhang Hu &#x27;s master was a disciple of Old man Ji Mo , and Old man Ji Mo sent other disciples to take revenge on Wang Lin. Teng Li takes on Old man Ji Mo &#x27;s request and chases Wang Lin out of the city and into a forest that distorts Divine sense. Eventually Wang Lin wins and he steals the Foundation of Teng Li , which also increases his natural talent. While stealing Teng Li &#x27;s Foundation, his great-great grandfather Teng Huayuan , a Nascent Soul cultivator, puts a curse on Wang Lin which lets him teleport to Wang Lin within a certain range, and vows to make life a living hell for Wang Lin.</p><p>After stealing Teng Li &#x27;s Foundation, Wang Lin successfully reaches Foundation Establishment. Now he can cultivate with techniques from Situ Nan , and decides to cultivate the Underworld Ascension Method . He uses a Yin Energy Detection Technique to find a suitable place for cultivating the Yin energy necessary to advance his Foundation, and reaches a ruin full of dense Yin energy. While cultivating, Wang Lin encounters a Blue-skinned man who has nine talismans attached to his body. The man speaks in a language that Wang Lin can&#x27;t understand, the two fight and eventually the blue skin man retreats after Wang Lin expresses to him the He does not want to needlessly fight. Wang Lin goes back to cultivating and within one night breaks through the first four levels of the Underworld Ascension Method , reaching the peak of early Foundation Establishment , and forming his first cold core.</p><p>While cultivating the Blue-skinned man returns and conveys to Wang Lin that he wants Wang Lin to follow him, and Wang Lin complies. After the two reach the mouth of a dragon statue, Wang Lin met the Nascent Soul of the Corpse Yin Sect elder named Wu Yu . From Wu Yu , Wang Lin learns of the Blue-Skinned mans name, Adai , and Wu Yu explains their situation, then lets Wang Lin leave the forest and teleport straight to the Corpse Yin Sect .</p><p>Once Wang Lin arrives at the corpse sect, he meets an Nascent Soul elder named Ye Zi . Ye Zi gives Wang Lin an immortals cave and lets him cultivate to prepare for a competition where cultivators from all the surrounding sects compete for tokens to be able to go the Foreign Battleground. After finishing his cultivation session, before Wang Lin is allowed to go to the competition, Ye Zi makes him slice of a sliver of his soul and gives it to another late stage Foundation Establishment cultivator who will join Wang Lin in representing the Corpse Yin Sect in the competition.</p><p>After reaching the Jue Ming Valley, the location where the competition takes place, just when the Corpse Yin Sect members are about to destroy Wang Lin&#x27;s sliver of soul, Wang Lin attacks the members of the Corpse Yin Sect and take back the piece of his soul, then flees.</p><p>Meanwhile Teng Huayuan , meets an expert to divine the location of Wang Lin&#x27;s family, He succeeds in doing so and kills off his entire family aside from his fourth uncle (needed by expert), Wang Hao , and Wang Zhuo because they are members of another sect. As for everyone else Teng Huayuan traps their souls in a banner and through the curse he established between himself and Wang Lin, he transmits the scene of him annihilating the Wang family into Wang Lin&#x27;s mind. He then tells Wang Lin that he will be waiting outside of Jue Ming Valley when the formation trapping in cultivators inside stops, and that if he does not appear he will destroy all the souls of Wang Lin&#x27;s family in his banner.</p><p>Wang Lin overcome with grief breaks into the Ji Realm of Spiritual Energy, and wanders lost and confused killing everyone who provokes him in Jue Ming Valley. Then Situ Nan wakes up and tells Wang Lin that his family still has hope since their souls are not extinguished. Ji Realm can kill anyone on the same stage in an instant But he could only cultivate till Nascent Soul Stage because Ji Realm is domineering to enemies as well as oneself and obstructs oneself from further cultivating. Now, no longer confused Wang Lin starts collecting the tokens of everyone in Jue Ming Valley, and manages to get five out of seven. He destroys four and keeps one for himself. He then confronts Teng Huayuan using a magic weapon for illusion into believing that he attained the Nascent Soul middle stage and attacks him with his sword and cunningness. After his plan Teng Huayuan saves himself and threatens to destroy his parent&#x27;s soul if he doesn&#x27;t shows up. Enraged by his words Wang Lin shows himself and snatches the soul flag in which his parent&#x27;s soul contained unbeknownst to him that it was a trap and after touching it Wang Lin&#x27;s body starts to disappear (starting from hands). Wang Lin shocks everyone by acting swiftly and decisively by cutting his hand to prevent curse from spreading and to escape to foreign battlefield. His last hope is shattered when Teng Huayuan destroys his token in an instant and also traps Wang Lin to be eaten by his own family members soul. At the brink of death he understands the true meaning of cultivating immortality (i.e. to step upon the weak and become powerful with no fairness). At the last moments Situ Nan saves his and his parents soul in Heaven Defying Bead by sacrificing his remaining powers and the Heaven Defying Bead breaks the barrier of Foreign Battleground. The messenger of Zhao who was witnessing the battle between Wang Lin and Teng Huayuan enters the battleground in order to catch the bead but gives up when the bead enters space rift from in which a anything living becomes a soul and return is impossible. Wang Lin then becomes a soul devourer by feeding on many souls in the rift and separates his consciousness which in turn creates many rifts open. He then takes over Ma Liang &#x27;s body who is about to die and in return kills both the cultivators who killed him. Wang Lin also knows that those 2 cultivators knows that Ma Liang is dead so he doesn&#x27;t want to take any risk like he did back then by leaving traces. He then leaves the foreign battlefield while using his observation, calculations and knowledge to overcome the black coloured laws of death which restricted any soul from leaving battlefield.</p><h3>Book 3 - Famous In The Sea Of Devils
+[
+]</h3><p>Wang Lin (in body of Ma Liang ) meets Li Muwan while escaping from the pursuit of Fire Beast when the Heaven Defying Bead ate the King of Fire Beasts. He saw Li Muwan being chased by a middle stage Core Formation cultivator and didn&#x27;t show any intention of interfering as he was only at fake Core Formation Stage. Li Muwan and that cultivator both sensed his presence and she called for help from him. She told him that the reason for her being chased was just because she had Tianli dan (pill) for attaining Core Formation stage. He then saves her and escapes with her to Sea of Devils in exchange for the pill. The Core Formation cultivator is killed by Fire Beasts while they are obstructed by the fog in Sea of Devils which stops their pursuit against Wang Lin. Along the way he meets Fighting Evil Sect &#x27;s disciples and is threated by them to hand over his treasures and Li Muwan . But he kills all of them in blink of an eye which shocks Li Muwan and she comes to think that he used Death Spell to kill them which is very difficult to master and whose success rate is very low. After entering Sea of Devils with Li Muwan , Wang Lin finds a cave to cultivate and takes Li Muwan &#x27;s soul blood for safety. He comes to know from her that she had unfinished Tianli Dan and needed a high quality furnace to produce it. He then enters the fourteenth district of Sea of Devils and finds an injured dragon nearing its end. He returns with it to the cave and instructs Li Muwan to increase the strength of the formation outside the cave. He then enters indoor cultivation to form his three cold cores to form a real golden core and reach Core Formation Stage but eventually fails in doing so. Later he went to Nan Dou City to get a alchemy furnace which was essential so that Li Muwan could complete the pill . When buying the furnace he was noticed by people of Fighting Evil Sect . They chase after him with 10 Core Formation cultivators. After returning to the cave he managed to stop them for a while, meanwhile Li Muwan tried to complete Distant Heaven Pill but failed. Wang Lin took the incomplete pill and broke through to Core Formation . Because of Ji Realm he is invincible in the same cultivation level thus he kills everyone. While trying to kill the Fighting Evil Sect Sect Leader he is hit by Ten Thousand Devil Hundred Day Kill Order (when a person is hit by it that person has the word punish word on his forehead and the one who kill him will get the kill order activator&#x27;s cultivation). Because of that he is attacked by many Core Formation cultivators. He gives ultimatum to all to leave and then kills them because he was afraid that this news could soon reach any cultivator at Nascent Soul Stage and endanger his plan of conquering Fighting Evil Sect .</p><p>He killed all the way to the Fighting Evil Sect and takes control of it by killing the Sect Leader. He the becomes the new Master of Fighting Evil Sect and returns Li Muwan back to her sect. Due to these actions and rumours about Wang Lin using Death Spell , he becomes famous and attracts notorious, evil Duanmu Ji who was at Soul Formation to capture him. He then chased Wang Lin all the way from the Sea of Devils to Xuan Wu. Wang Lin hides in Heaven Defying Bead for 3 years but eventually comes out as there was a time limit in the Heaven Defying Bead after which he captured him. Together with Wang Qingyue he brought Wang Lin to the Chaotic Broken Stars . Wang Lin&#x27;s help was needed in the third level of Ancient Body by using Death Spell . Though being only on Core Formation Stage, he outwits Duanmu Ji , Gun Lan , Xu Liqing (together with a young man which he refined into puppet) and Hunchback Meng into believing that he was devoured by dragon and escapes from them. He then tries to return towards the entry of Chaotic Broken Stars to escape from there but is restricted by the voids. At this moment the jade slip given by Li Muwan automatically works and transforms into dragon, helps Wang Lin to reach the entry point. But for opening the teleportation he required high level spirit stones which he didn&#x27;t have and then he is compelled to follow the same path of evil cultivators. In the first level he hides inside a black pagoda to save himself from hurricane of devils and creates his second devil other than 1st devil Xu Liguo which he made in Fire Demon Country . He then creates a hurricane with help of 2nd devil and reaches the entry point of 2nd level where he finds Hunchback Meng fighting with Hurricane Beast King who is at perfect circle Soul Transformation Stage. In urgency Hunchback Meng eats his own toad to reach perfect circle Soul Transformation Stage and kills the Beast King after getting injured. He then tries to enter second level but Wang Lin pulls him back to be eaten by beasts. Wang Lin then escapes to the second level where he stumbles upon Bridge of No Return. After reading about it he first experiments by sending devil and beast. The devil comes back but beast gets sucked into void as soon as it tries to return from bridge, as devil are special case. He then steps on bridge and discovers a dragon which was actually an illusion otherwise he would have flown back just by its breath if it would have been real. But as soon as he is about to reach the end he hears his parents call and Teng Huayuan &#x27;s voice of elimination them. He controls his emotions and doesn&#x27;t turn back. He then encounters mountain made up of ancient forbidden restrictions and is called Restriction Mountain. A restriction is a subset of magic circle and is more flexible, changes according to mind of caster who casted it. The only way to break it is to use your cultivation which needs to be strong to break it by force or to study and understand it. The higher the person goes the more proficient, complicated and powerful restriction on Restriction Mountain becomes. Wang Lin guesses that a person was ahead of him when he sees a place where ban was broken. He knows that if he tries to break it by force he would die so he tries to understand it. He then takes 10 days to find the eye of the formation and breaks it but discovers that the formation was modified by Demon Lord of Six Desires Xu Liqing by adding panic in it. As soon as his restriction is broken, Xu Liqing comes to know of this and guesses if out of Duanmu Ji , Hunchback Meng who could have broken it. Then he increases the difficulty of formations and starts to move with his refined puppet to the top of mountain. Wang Lin covers the Formation&#x27;s eye of restriction set by Xu Liqing with his consciousness without knowing the time passed in this process. After several years inside Chaotic Broken Stars Wang Lin with his understanding improves the restrictions and moves forward and comes to realize that someone was breaking his formations with force from behind, guess it to be Duanmu Ji . When Duanmu Ji breaks them by force he comes to realize the extra restrictions added in them. He thinks it to be Xu Liqing who was familiar with restrictions and also plays cunning tricks on him. In order to break and reach the top, Duanmu Ji &#x27;s magical weapons are destroyed. Wang Lin then makes arrangement for Xu Liqing and Duanmu Ji to meet at top and vent their anger on each other. Xu Liqing is attacked by Duanmu Ji suddenly when he is about to solve the last restriction. But as they both realize in fight that they were being played in Wang Lin&#x27;s hands, all the restrictions on mountain are triggered by Wang Lin when he tempers the last restriction compelling them to escape in third level. But this also lowered their cultivation. Then Wang Lin understands the last restriction and gains title of Great Enlightened One from Ancient God</p><p>Tu Si who appears and gives this title because he was the 4th person to break all the restrictions on mountain. He then enters in a pagoda where he collects a treasure bag locked by restrictions which he couldn&#x27;t open because of his cultivation. From that tower, Wang Lin enters the third level of Annihilation realm where his nature of Soul Devourer activates. He then tries to kill Duanmu Ji by commanding the souls and deceives him into giving jade slip made of rules to leave body of Ancient God</p><p>Tu Si while acting like a senior with different voice. Duamu Ji is eventually killed by Hunchback Meng who had become a puppet of Tuo Sen after reviving from sea of blood. He then tries to escape from the hands of Hunchback Meng and distracts him by attracting it towards Xu Liqing . Xu becomes shocked when he sees Wang Lin controlling the wandering souls and tries to defend himself but is eventually cornered by Hunchback Meng . Wang Lin in the aftermath escapes but notices that passage to exit was blocked by Tuo Sen who was created from the evil thoughts of Ancient God Tu Si . Tuo Sen wanted a swallowing soul like Wang Lin to break his shackles and acquire the inheritance of knowledge to complete his inheritance as he had already got Tu Si &#x27;s inheritance of power. Ancient God</p><p>Tu Si wanted to stop him because he knew that After acquiring it, Tuo Sen could become an 8 Star Ancient God and bring chaos to world. Wang Lin then tricks him and guess the right location to obtain inheritance of knowledge and acquires it eventually leaving Ancient Body of Tu Si . Before leaving he reshapes his body according to the ancient knowledge obtained leaving Tuo Sen trapped in the body for more than 1000 years. He then leaves Chaotic Broken Stars and fights his multiple clones formed by it through his newly formed body. He then meets Yun Fei (Qihuang Sect successor) and Qian Kun (Poison Palace Disciple) and inquires about the nearest city with no Soul Formation Stage cultivator. Both of them are shocked to see Wang Lin coming out of Chaotic Broken Stars as no one had previously done so. They think that Wang Lin was surely at Soul Formation Stage as Qian Kun saw a Nascent Soul cultivator being devoured by force in Broken Stars. Wang Lin then kills Qian Kun not only because he didn&#x27;t want anyone to know that he had come out of Broken Stars but also because he belonged to the Sect of Hunchback Meng . By doing so he didn&#x27;t want to leave witness like last time due to which his family was killed by Teng Huayuan . He then sets an ancient restriction with a 3 day limit on Yun Fei and enters her cave in Qilin City. Yun Fei then visits other cultivators in order to find way to unlock the ban on her. Wang Lin keeps his eye on her while opening seal on treasures acquired in Land of Ancient God in order to see if someone was proficient in opening ancient restrictions like him. A cultivator Qiu Siping who is late Core Formation agrees to unlock it for her in exchange for the name of the person who applied it on her. Wang Lin&#x27;s devil kills her that instant and tries to escape but is caught by Qiu Siping . Wang Lin then intervenes and listens to his proposition for both of them to reach Nascent Soul Stage. He tells him that his master wanted to refine him in order to improve cultivation but he already found out and did something when his senior brother and master were in seclusion making them sleep. The secluded place was actually an ancient cave with restrictions and he wanted someone like Wang Lin i.e. proficient in ancient restrictions to open it in exchange for Yuan Ying (Nascent Soul) . After opening the cave Wang Lin acquires his master&#x27;s soul while Qiu Siping acquires his senior brother&#x27;s. When consumed, Nascent Soul increases the chance of reaching Nascent Soul Stage. Wang Lin then tries to reach Nascent Soul but Ji Realm in his body restricts it and also breaks his core.</p><h3>Li Muwan (Wang Lin&#x27;s first wife)</h3><p>After 200 hundred years, unbeknownst to Wang Lin, Li Muwan has given her heart long ago to him and is waiting to meet him again. In this time span she has left the Luo He Sect and become an elder in Cloud Sky Sect . Wang Lin&#x27;s avatar enters the Cloud Sky Sect unbeknownst to him that his master&#x27;s master was Li Muwan. Wang Lin wanted to reach Nascent Soul Stage with his avatar as the Ji Realm in his body was restricting for the same. When Wang Lin went to meet with his Master&#x27;s teacher, he was shocked to see Li Muwan but remained calm. Li Muwan recalled the old memories from listening to Wang Lin&#x27;s voice and also his temperament but denied them because the blood that Wang Lin left for her didn&#x27;t respond to his avatar. A few months later, Wang Lin&#x27;s real body appears in Cloud Sky Sect . While Li Muwan was looking for him, Wang Lin waved his hand and disappeared in front of her in order to not being confronted by her because of his feelings. Actually he didn&#x27;t want Teng Huayuan to find Li Muwan and suffer just like his parents did as Wang Lin&#x27;s family was murdered by him. He then reappeared when Li Muwan said, “Wan&#x27;er doesn’t ask for anything else, but to see you once. In these 200 years, Wan&#x27;er has depended on that bottle of spirit liquid to keep my vitality. If you aren’t willing to come out, then Wan&#x27;er will kill herself right now to release myself from this obsession.” When she asked him about the jade which she gave him 200 years, Wang Lin shattered her heart by telling that he threw that jade away (it was formed from Li Muwan &#x27;s life force). If not for making it she would have reached late stage Core Formation and not get stuck at early Core Formation Stage. This also obstructed her in reaching Nascent Soul Stage. She then agreed to Sun Zhenwei &#x27;s marriage proposal in front of him when she couldn&#x27;t bear Wang Lin&#x27;s rejection to be held after 6 months. Wang Lin, in order to shatter her heart more left after congratulating Li Muwan on her wedding with Sun Zhenwei whom she always denied as a dao companion because of Wang Lin.</p><p>Her words made Wang Lin realize his feelings for Li Muwan and he couldn&#x27;t hold his heart and he went to see her using his avatar to tell her the truth and even showed her the jade which he didn&#x27;t throw. Li Muwan was relieved and begin helping Wang Lin refining the pill that could help him achieve Yuan Ying Stage (Nascent Soul) . At the day of the wedding for Li Muwan and Sun Zhenwei was also the day for Wang Lin&#x27;s breakthrough. After his breakthrough, he rushes into the ceremony to kill Sun Zhenwei and to run away with Li Muwan . He kills Sun Zhenwei but didn&#x27;t run because his Nascent Soul wasn&#x27;t stable due to Ji Realm . He becomes the Sect Leader of Cloud Sky Sect after killing Chen Bailiang and hands over his position to Li Muwan . He then collects the blood essence of all elders and gives to Li Muwan to be returned after 500 years. She doesn&#x27;t departs with Wang Lin and stays in the sect to make pills for him.</p><h3>Book 4 - Clean Sweep
+[
+]</h3><p>Wang Lin then returns to Country of Zhao and takes revenge by killing every member of Teng family. Eventually he kills Teng Huayuan and also doesn&#x27;t spare Punnan Zi and Lin Yi who come to Teng Huayuan &#x27;s aid. He then becomes a mortal in order to reach Soul Formation Stage while experiencing a mortal life without cultivating. He grows into an old man from a youth and experiences life and death of mortal to create Life Death domain. In order to reach Soul Formation he returns to Country of Zhao and uses the mountain near Xuan Dao Sect to breakthrough.</p><p>Li Muwan is waiting for Wang Lin as 100 years have passed and tried to breakthrough 3 times from Core Formation Stage to Nascent Soul Stage (to increase lifespan) but fails which makes her body feeble and weak. In this span of 100 years Wang Lin had reached Soul Formation Stage and could help her in breakthrough. When Wang Lin arrives back in Chu Country and meets her, he comforts her that she wouldn&#x27;t die and promises her to help her reach Nascent Soul Stage. The deathly aura around Li Muwan scared Wang Lin the most and he didn&#x27;t want to separate with her as she only had 10 years to breakthrough to the Nascent Soul and had lived more years than a normal Core Formation cultivator&#x27;s lifespan. He then uses his spiritual energy to keep her vitality and obtains a rank 6 pill recipe from Treasure Pavilion in auction to help Li Muwan break through to Nascent Soul . He then visited Sea of Devils with her and showed the cave in which they stayed together for 3 years to remind her of the time spent together. She recalled the fight in which Wang Lin said her to not move as he was going to take her to kill. This made the death aura around her fade a little bit although it didn&#x27;t stop the life death cycle. Then Wang Lin and Li Muwan built a small house near Cloud Sky Sect and started living in there for 10 years. Within 10 years Li Muwan grew from a beautiful lady to an old one who just wanted to imprint the person next to her in her eyes before death. She didn&#x27;t know if it was true love but this feeling reminded her of time when every time she would play zither, Wang Lin would come into her mind. The ingredient in the pills were mostly extinct so substitutes were found and pill was made after those years. Wang Lin hurriedly puts the pill inside Li Muwan &#x27;s body just as it was completed when she couldn&#x27;t take it anymore. The pill sent spiritual energy into Li Muwan but she dies because of weak body. She formed her Nascent Soul before dying and Wang Lin defies the heavens reincarnation cycle to put her soul into a baby that did not form a soul yet in mother&#x27;s womb (that&#x27;s what he thought though not true), just like what he did with Wang Zhao. While that was happening his main body fought with the &quot;messenger of heaven&quot; who appeared to make sure that Li Muwan &#x27;s soul gets sent back to the reincarnation cycle.</p><p>Li Muwan dies due to old age (500). He then raises that girl Zhou Ru in which Li Muwan &#x27;s soul resided and waited for 19 years for Li Muwan &#x27;s soul to heal itself from the harm caused. As Zhou Ru grows, she feels another soul ( Li Muwan &#x27;s) in her body which was devouring her original soul. She tells this to Wang Lin but he denies it in order to not be sad and relieve himself from suffering. Even he was astonished as he thought that Zhou Ru &#x27;s soul wasn&#x27;t formed in her mother&#x27;s womb and that is why he transferred Li Muwan &#x27;s soul into her body. He was like a father figure for Zhou Ru and husband of Li Muwan so he was finding every method possible to save both souls but he was unsuccessful. So when it came to choosing between one of them, his mind held Li Muwan as priority as she reminded him of the parting years and time spent with her. He was constantly reminded of the white hairs and the fading vitality of Li Muwan when she died and this pierced his heart even more from agony. Li Muwan wasn&#x27;t willing to devour Zhou Ru &#x27;s soul so she exposed her Nascent Soul to the Heavens which made the heaven&#x27;s messenger to come. Wang Lin was ready for this and fought for the 2nd time with him and instantly pulled her soul once again inside Heaven Defying Bead . He then saves her soul to journey for a way to revive her. Wang Lin kept Li Muwan &#x27;s Nascent soul inside Heaven Defying Bead for 700 years. He used Qi Xi spell on himself and sacrificed his vitality which is the key to lifespan to resurrect her and form flesh out of her Nascent Soul which failed and didn&#x27;t pass the 4th day out of 7 days. Wang Lin’s face revealed bitterness. He silently pondered for a while before revealing a decisive expression. He slapped his bag of holding and the Heaven-Avoiding Coffin flew out. The crystal coffin gave off a dazzling glow and was extremely gorgeous. Wang Lin’s hand trembled as he took Li Muwan ’s nascent soul out from the Heaven Defying Bead . Although he had made up his mind, now he silently pondered once more. To let go or not to let go... Looking at Li Muwan ’s quickly-dissipating nascent soul, Wang Lin placed Li it inside the coffin. The moment her nascent soul landed in the coffin, she went from sitting down to lying down. Wang Lin stared intently. He forgot about everything else around him. Right now only Li Muwan existed.</p><p>The moment Li Muwan lied down, a mysterious force filled the coffin. This power surrounded the entire coffin. When it swept by, Li Muwan ’s nascent soul trembled and showed signs of collapse. However, just at this moment, the sliver of life force inside Li Muwan ’s nascent soul began to move and the collapse slowed. Eventually, a five-colored light came from inside the coffin. At this moment, Wang Lin’s heart experienced a huge change. He took a deep breath. With his intelligence, he immediately understood. If Li Muwan didn’t have that trace of life force, she would have collapsed inside this Heaven-Avoiding Coffin!</p><h3>Book 6 - Arriving On 
+Planet Tian Yun
+[
+]</h3><p>Wang Lin and Situ Nan left Planet Suzaku and stopped by the Trading Planet to get some materials. During their journey to the Trading Planet, Situ Nan trained Wang Lin and imparted to him spells and techniques. The Trading planet mainly consist of oceans. Situ Nan told Wang Lin that the best way to obtain things are to steal and plunder. When they arrived at the Trading Planet, they split up and Situ Nan told Wang Lin to meet him again in three days. When Wang Lin arrived on land, he met Li Dannan. Li Dannan became his guide as Wang Lin searched for a Void Wood Stone and snow ink. After obtaining the wood void stone, Wang Lin met Bai Wei on his way to a shop that had the snow ink. Wang Lin wasn’t able to get the snow ink because the price was obnoxiously high, and as a result, he contact Situ Nan to steal it for him. In the three days of Wang Lin and Situ Nan ’s separation, Situ Nan had made a mess of the planet and had stolen from almost every sect and family on the planet. On the third day when Situ Nan met up with Wang Lin, he was being chased by a huge crowd of people. Wang Lin and Situ Nan escaped the planet with the treasure and Wang Lin received the snow ink. Wang Lin and Situ Nan parted ways afterwards and the atmosphere was very melancholy.</p><p>When Wang Lin arrived at the Tian Yun Planet , he appeared at the Purple Cloud Pavilion of the Heavenly Fate Sect . The Heavenly Fate Sect was divided into seven divisions: red, orange, yellow, green, blue, cyan, and purple. The Purple division was by far the weakest out of the seven divisions because it has so much in-fighting. When Wang Lin entered the Purple Cloud Pavilion, he had to go through three trials/tests. After the three tests, Wang Lin was made into the seventh disciple of the Purple Division. Wang Lin learned that there were actually seven true disciples of the Heavenly Fate Sect . One true disciple for each color division. All-Seer would also soon choose these seven true disciples. After being made the 7th disciple of the purple division, he headed back to the residence assigned to the seventh purple disciple. When he arrived, there was a woman who wouldn’t let him in. Not wanting to cause trouble, he decided to make a cave near by but was disturbed by two disciplinary elders claiming that he could not make a cave in this location. Wang Lin realized that trying to avoid trouble would get him no where in the Heavenly Fate Sect . As a result, he decided to display his absolute domineeringness. Wang Lin then went back to the destroyed Purple Cloud Pavilion and renamed it the Purple Forest Palace. Wang Lin almost killed Zhao Xingsha but All-Seer arrived to calm everything down. Later, when All-Seer ’s birthday banquet was approaching, Wang Lin was schemed against and trapped by Zhao Xingsha , Sima Rufeng , second brother and Zhao Xinming (fourth sister). They trapped Wang Lin because they didn’t want him to have the chance to be choose by All-Seer to be a true disciple. While being trapped, Wang Ling was able to break through the middle stages of Soul Transformation . As a result, he broke trough the trapping formation and crash the birthday banquet on the last day. He battled second brother and Zhao Xingsha . Wang Lin devoured second brother&#x27;s soul and heavily injured Zhao Xingsha but an elder stopped Wang Lin before he killed him. At the end of the birthday banquet, All-Seer also choose his true disciples. Wang Lin had a fishy feeling about being a true disciple and didn’t want to be one, but All-Seer insisted that he tried. As a result he battled Zhao Xinming and won. However, the sixth brother, Chen Tao, showed up, Wang Lin was once again challenged. Chen Tao was at the mid Ascendant level. Although Wang Lin didn’t win against Chen Tao, he was able to put up a good fight that shocked everyone, especially Chen Tao. Wang Lin later followed All-Seer to receive his Celestial Cultivation Technique and requested to temporarily leave the Heavenly Fate Sect to train.</p><p>Wang Lin decided to go to the Earth Planet where he was greeted by junior sect master Xu Yunshan of the Xuan Yuan Sect. Wang Lin later traveled and stumbled upon a group searching for the Brilliant Golden Fruit. When Wang Lin confronted the group, the three elders from the Da Lou Sword Sect attacked Wang Lin. After they were killed, Wang Lin fed his Mosquito Beast the fruits. Wang Lin later used seals to turn the area that grew the Brilliant Golden Fruit into a Golden Spirit Root. He absorbed the Golden Spirit Root and also feed it to his Mosquito Beast and Thunder Toad which caused both of them to start evolving.</p><p>Later, Wang Lin entered the East Demon Spirit Sea and met a tribe in the Mountain Valley. After displaying his power, Wang Lin was able to gain the recognition of the tribe and their chief, Ouyang Hua . After defending the tribe of outsiders, Wang Lin decided to teach this tribe the Soul Refining Sect &#x27;s heritage in order to continue on their legacy. The tribe became the Soul Refining Tribe of the eastern sea. Wang Lin was regarded as the ancestor of the tribe and the tribe quickly expanded to over a million people. Through the Soul Refining Tribe , Wang Lin was able to restore the power of his One Billion Soul Flag. Wang Lin later took Thirteen and Huo Pao to Sky Demon Country to help them gain experience as well as use this experience as a trial for them. In the Sky Demon Country , he was able to befriend the general of the city, Mo Lihai . During Wang Lin&#x27;s stay, he entered a cave where Yao Xixue tried to scheme against him but ultimately failed. As a result, she was captured by him and he made her tell him all she knew about the demonic realm. Mo Lihai later asked him to travel to the capital city and help him obtain a Vice Commander-in-Chief position. In the tournament, Wang Lin was able to beat his competitors and ring the Demonic Drum fifteen times, allowing him to place first and become an Ascendant . Bei Luo also helped Wang Lin battle the divine retribution during his breakthrough to Ascendant . Bei Luo later helped Wang Lin trap the scattered devil, Tie Lan. In return, Wang Lin helped Bei Luo weaken the fragmented ancient demon under the Fire Demon Country . Wang Lin&#x27;s involvement helped give Bei Luo a single opportunity which resulted in him being able to devour the fragmented ancient demon under the Fire Demon Country . To thank him, Bei Luo allowed Wang Lin to enter the diluted version of Shi Realm which allowed him to see the trap inside the Celestial Slaughter Art before it was too late. He also located Zhou Yi &#x27;s spirit&#x27;s location inside the Tide Abyss</p><h3>Book 7 - Fame Shakes The Allheaven Star System
+[
+]</h3><p>When All-Seer , Ling Tianhou , Blood Ancestor and a few other old freaks came to the East Demon Spirit Sea , they saw that Wang Lin had the cave token and had greedy thoughts. As Wang Lin escaped into the abyss, he shouted to them that there was another a fifth cave that only Blood Ancestor knew about. This brought enough confusion to the group of old monsters to allow Wang Lin to escape.</p><p>When Wang Lin escaped through an abyss and entered the Allheaven Star System , Greed had been sent to follow him. When Wang Lin arrived, He met three cultivators and ended up saving them. Because Wang Lin did not want to use his real name, he called himself Xu Mu . After learning the basic details of this new star system, Wang Lin decided to head to Planet Ran Yun . After arriving at Planet Ran Yun , Wang Lin was able to meet Sun Tai . Sun Tai wanted to spend the remainder of his years with some peace and quiet, and as a result, they become friends. Liu Mei later comes and attacks Wang Lin and she ends up losing to Wang Lin. It is revealed that she had a child with him and because of her hatred for him, she refined their son into a resentful spirit. Wang Lin raises his son, Wang Ping in a desolate village and raises him up to be a mortal. After his son’s death, Wang Lin was able to further evolve his domain.</p><p>When Wang Lin left Planet Ran Yun , he was caught up by Greed and the Moongazer Serpent and escaped to the southern domain. In the Southern Domain , he entered the Thunder Celestial Realm and fought against the Blood Ancestor . He also helped many from the southern domain escape the Thunder Celestial Realm but he didn’t leave. As he traveled throughout the Thunder Celestial Realm , he met the Chosen Immortal Clan in the Thunder Celestial Realm and he learned the history of how the Celestials enslaved the Chosen Immortal Clan . As he was able to help the Chosen Immortal Clan out of the Thunder Celestial Realm, he killed some members of the Yao Family . The Yao family, being one of the 4 major powers in the southern domain, sent a kill order for Wang Lin. As a result, numerous families in the southern domain chased after Wang Lin. Many of those who chased after Wang Lin had their entire planet destroyed by him. As a result, many of the cultivators who chased after Wang Lin began to reconsider.</p><p>When Wang Lin arrived at the Southern Domain ’s Celestial Tournament, he was able to obtain first place and the qualification to enter the Thunder Celestial Temple . When Wang Lin arrived at the Thunder Celestial Temple , he had to go through three trials: heaven, earth, and human. Russell, a member of the Thunder Celestial Temple was the test proctor and though almost all the participants were trash. However, when he saw Wang Lin easily defeat his Golden Giant, he realized that Wang Lin was the one that killed his brother. There for he attacked Wang Lin. However, Wang Lin had shocked him when they fought and Wang Lin almost killed him if Master Flamespark did not interfere at the last moment. However, Qing Shui suddenly killed Russell with the Ji Realm for offending Wang Lin. On the second trial, Wang Lin and those who passed went to the Thunder Lake. Wang Lin had no problems passing the second trial and even absorbed the thunder snake spirit, astounding everyone. In the third trial, Wang Lin and the other cultivators were sent into a battle realm. The goal was to get the most kills. When they died in that realm, they would be sent back out without actually dying. Wang Lin killed many more cultivators, including Xu Ting and became the Thunder Celestial of the Thunder Celestial Temple . Later, Wang Lin made a request to Zhan Li Yunzi to resurrect Li Muwan ’s soul. Zhan Li Yunzi wasn’t able to do It so he referred Wang Lin to his ancestor that could use the Qi Xi spell to revive Li Muwan . When Wang Lin met the ancestor, he wanted 50% of Wang Lin’s life force to perform the Qi Xi spell. However, they were not able to successfully recover Li Muwan . When Wang Lin arrived back in the Alliance Star System , he went straight back to visit Planet Suzaku . There, he found that a big head youth from the Allheaven Star System tried to attack and destroy Planet Suzaku . After beating the youth and making him into a servant, Wang Lin came back to the Wang family to find out that the Corpse Yin Sect was using his Wang Family to develop resentful spirits. In his anger, he killed all the Corpse Yin Sect members on Planet Suzaku and was able to take Lei Ji as a mount.</p><h3>Book 8 - Alliance&#x27;s Secret
+[
+]</h3><p>After completing all karmic ties on Planet Suzaku , Wang Lin left to join the battle between the Allheaven Star System and Alliance Star System ’s war. Wang Lin, Qing Shui , the Moongazer Serpent , and a few cultivators were later sucked into a void. In the void, Luo Chen suddenly appears from the Moongazer Serpent . Luo Chen , an Ancient God , was integrated in the Moongazer Serpent and then accepts the challenge from Wang Lin. Wang Lin gets recognition from Luo Chen and becomes an adult Ancient God . However, a mysterious youth and old man form the Moon Devourer Clan comes and interrupts. The Heaven Defying Bead suddenly activated and was able to beat back the two people from the Moon Devourer Clan .</p><p>Wang Lin headed back to Planet Tian Yun in order to head back into the Sea of Devils . When he arrived everyone was surprised at his level of cultivation. As a result, Ling Tianhou challenged him to take three of his sword strikes. After taking all three and surprising everyone, Wang Lin returned to the Purple Pavilion where he met Bai Wei . After learning of Bai Wei ’s secret, he tries to help Bai Wei but ends up still falling into All-Seer ’s schemes. When All-Seer came to attack Wang Lin, Ling Tianhou helped defend Wang Lin and invited him to be an elder of the Da Lou Sword Sect . When Wang Lin was at the Da Lou Sword Sect , he was able to refine the Yang energy from Bai Wei with the assistance of the Heaven Defying Bead . During his absorption, a powerful aura came out and attacked Ling Tianhou and All-Seer . Wang Lin&#x27;s aura was able to injure and absorb a good amount of All-Seer ’s origin soul. After Wang Lin was done, he left Planet Da Lou and came across the three Chen brothers. They invited Wang Lin and his group to stay and cultivate. During Wang Lin’s stay, Situ Nan came to capture two girls from the Chen brothers. Situ Nan wanted to find Wang Lin to give these two girls to Wang Lin as his concubines. As Situ Nan was causing havoc, he suddenly realized that Wang Lin so happen to be here as well. They catch up and later decided to head towards the Sea of Devils once it opened. In the Sea of Devils , Wang Lin met up with the Soul Refining Tribe and gifted them various cultivation methods. Wang Lin also found out that the statue of him that the tribe had been worshiping had a soul devil in it. Wang Lin refined it as his second avatar.</p><p>In the Demon Spirit Land, Wang Lin runs across Master Void . Because Wang Lin had awaken the Vermillion Bird Divine Mark, Master Void could not allow Wang Lin to grow any further because this would guarantee the rise of the Vermillion Bird Divine Sect . In the Celestial Emperors Tower, Master Void first tried to kill Wang Lin with his cultivation of peak Nirvana Shatterer . However, Wang Lin set up a killing formation and display his source origin in order to lure Master Void into the trap. When Master Void was trying to comprehend the Source Origin, Wang Lin attacked with his killing formation. Wang Lin was able to escape into a transfer array into the Celestial tower while heavily injuring Master Void . Wang Lin caused enough damage to bring his cultivation down to the mid Nirvana Shatterer realm.</p><p>When Master Void and Wang Lin met again, they were in the Celestial Emperors Tower. Master Void wanted to attack Wang Lin but Zhou Yi , Wang Wei , Hu Juan , and Bei Lou coldly stared at him. However, in that instant, Wang Lin moved to attack, causing Zhou Yi , Wang Wei , Hu Juan , and Bei Lou to attack as well. Just at that moment, the All-Seer and Ling Tianhou arrived. Master Void tried to ask for him from All-Seer , but instead, All-Seer schemed against him, causing everyone&#x27;s attack to fall upon him. This injured his body and soul even further and dropping his cultivation to almost the peak of early Nirvana Shatterer .</p><p>When they were all in the 9th level of the Celestial Emperors Tower, Master Void sneak-attacked the heavily injured Wang Wei . Wang Lin used his furnace to switch places with Wang Wei and defended against Master Void &#x27;s attack. When Ta Jia was able to possess Qing Lin &#x27;s body, everyone was forced to escape the Celestial Emperors Tower. Master Void was later sealed by Ta Jia . When Wang Lin was fighting All-Seer , Wang Lin used Sundered Night and end up killing two of All-Seer &#x27;s avatars along with Master Void . As Wang Lin was on his last breath, Lu Yun from the Vermillion Bird Divine Sect came to his rescue. Lu Yun was very impressed with Wang Lin and after beating back All-Seer and sealing Ta Jia , he took Wang Lin back to the Vermillion Bird Divine Sect . For the next three years, Lu Yun helped Wang Lin recover and become the Sixth Generation Vermillion Bird Divine Emperor . After Lu Yun died, Wang Lin went to save the Azure Dragon Divine Emperor and subsequently gave the rein back to the Azure Dragon Divine Emperor . Wang Lin also schemed against Tuo Sen by notifying everyone that there was an 8 star Ancient God on Planet Suzaku . Wang Lin was basically borrowing a knife to kill an enemy. Both the Corpse Yin Sect and the Allheaven Star System sent powerful members to Planet Suzaku to kill Tuo Sen . However, they were not successful and Wang Lin was forced to escape into the Cloud Sea Star System .</p><h3>Book 9 - Peak Of The Cloud Sea
+[
+]</h3><p>When Wang Lin arrived in the north region of the Cloud Sea Star System . He saved some mortals and began living in their village as a doctor and a mortal. One day, the Origin Sect sent out people to recruit and scout out cultivator. An Origin Sect disciple named Zhao Yu came to the village Wang Lin was living in. The arrogant Zhao Yu made all the mortal villagers stand outside in the rain. When one of the villagers pleaded with Zhao Yu to let the children back inside because they could not stand the freezing rain, Zhao Yu was about to reprimand that cultivator when Wang Lin stepped in. With Wang Lin&#x27;s powerful cultivation, Zhao Yu&#x27;s eyes immediately became dull and Wang Lin had Zhao Yu lead him back to the Origin Sect .</p><p>At the Origin Sect , Wang Lin took the name of Ceng Niu. No one in the sect could see through his cultivation and they all thought he was just a mere mortal. When Rudy and Song Wude came to the Origin Sect to take it over, Wang Lin kills them both and everyone witnesses it. Lu Yanfei and Xu Yun comes to Wang Lin&#x27;s small house and confronts him. Being the wise and smart person, Lu Yanfei accurately guesses Wang Lin&#x27;s situation and then gives him an identity as one of the Origin Sect &#x27;s ancestors.</p><p>Wang Lin then travels outside the Origin Sect to the Wild Continent. There he stumbles upon a secret for the third step that caused a huge calamity in the Cloud Sea Star System thousands of years ago. During his return, the sects who heard about this had already gathered toward the region. Wang Lin meets Noble Money and his group on the way back and they try to detain him for questioning, but he ends up killing Noble Money and his group. When he returned to the Origin Sect , Li Qian Mei and Lu Yuncong came to pay him a visit. Li Qian Mei wanted to ask him three questions and Lu Yuncong wanted to get revenge for his son. However, When Lu Yuncong arrived with Li Qian Mei , he quickly found out that he was no match for Wang Lin, especially in the dao. The three talked about the dao throughout the night and both Li Qian Mei and Lu Yuncong gained great benefits.</p><p>Li Qian Mei invited Wang Lin to an auction held by the Treasured Jade Sect and asked if he wanted to travel together. When the two arrived at the Treasures Jade Sect region, Wang Lin was in search for Origin Crystals. After displaying his power, he was invited to a secret exchange with many Nirvana Shatterer old monsters. There, he displayed his wealth and caught the attention of a few greedy old monsters. Wu Qing followed Wang Lin as he left the city and attempted to kill Wang Lin, however, Wang Lin killed him using the War Spirit Print . Everyone was shocked and believed that Wang Lin was a mysterious cultivator from the rank 9 God Sect . Wang Lin was then invited by Master Ashen Pine to the Seven-Colored Realm in order to help Master Ashen Pine find something. Master Ashen Pine took Wang Lin and a group of cultivators into the Seven-Colored Realm but in reality, everyone was scheming against everyone else, especially Wang Lin because he seemed to be the weakest. In the Seven-Colored Realm , Wang Lin was able to trick Master Cloud Soul into a different spatial crack because he wanted to ensure that Master Cloud Soul would team up with Master Ashen Pine and scheme against him. As time went on, many cultivators of the group died and only Master Ashen Pine , Wang Lin and an old woman in green was left. Wang Lin was able to steal some treasures from Master Ashen Pine and get away. Wang Lin was later able to kill Master Ashen Pine with the seven colored nail. Wang Lin later came across four cultivators from the outer realm, one of which he had met before when dealing with the Moongazer Serpent . He killed all of them and was able to steal their essence. Wang Lin also later faced Dao Master Blue Dream and was able to destroy his palm, but Wang Lin was greatly injured. Wang Lin went into closed door cultivation to comprehend his new spoils of war. When he came out of the Seven-Colored Realm , he headed to the Wind Celestial Realm . There, he was able to acquire a large herd of mosquito beast and evolve his king mosquito beast further.</p><p>When he returned to the Cloud Sea Star System , he headed back to represent the Origin Sect in the ranking competition. He defeated everyone and killed those who disrespected Lu Yanfei . There, he also met Li Qian Mei and Mu Bingmei . After winning the rank 6 and 7 tournament, Wang Lin was about to represent the Everlasting Sect in the rank 8 tournament but the rank 9 God Sect canceled it. It turns out that Daoist Water wanted to kill Wang Lin because he sensed an aura of his master, Lord of the Sealed Realm . During the initial battle of Daoist Water and Wang Lin, Daoist Water thought he would be killing an ant, but Wang Lin proved very hard to kill and pushed him to the edge. As Daoist Water was able to make the final killing strike, the spirit of Lord of the Sealed Realm appeared and severely inured Daoist Water , making him retreat. However, since Wang Lin used up all his energy and a forbidden spell, Wang Lin ended up petrified and turned into stone. When Li Qian Mei showed up, she heard a voice telling her it is still possible to save Wang Lin by smearing her blood on his statue for 10 years. So for 10 years, that&#x27;s what she did. The Ghost Sect was very unhappy she went missing for 10 years from the battlefield and ended up sending her deep into a spatial realm with powerful beasts. When Wang Lin woke up, he was furious and charged straight into the spatial crack where she was sent. After retreating her, they both escaped into the Outer Realm .</p><p>In the Outer Realm , he ran into Tuo Sen , however, this time, he wasn’t as helpless against Tuo Sen as he was back them. Due to Tuo Sen being injured, he was able to further injure Tuo Sen with the Ji Realm . Wang Lin returned Li Qian Mei back to her father, Dao Master Blue Dream so that he could heal her. However, as a result of healing her, she lost most of her memories of Wang Lin. Dao Master Blue Dream then taught Wang Lin some spells that would help him due to returning his daughter back safely. After left, Wang Lin headed to the Scatter Thunder Clan in order to steal their lightening source. He was able to kill the Sect Leader and obtain many thunder sources, greatly improving his thunder essence.</p><h3>Manhua
+[
+]</h3><p>He was allowed to participate in several tests to try and become a disciple in the Heng Yue Sect . In the test, he met Wang Zhou , who he mistook for a girl due to his long braided hair, and Wang Jie . Wang Lin was shocked and disappointed when he did not become a disciple of the Heng Yue Sect. Although he failed all of the 3 tests (Spiritual Power, Willpower, and the Door test), he displayed great determination. Letting down his family, and wasting the chance his Fourth Uncle gave to him. He then decided to leave home to become stronger, but unfortunately ran into a tiger, the King of the Forest, which he left to defend himself with a wooden stick. As Wang Lin approaching dead end, manages to kill the beast but end up fall over the cliff. The dead tiger served as protection as he survived miraculously.</p><p>When he woke up, he found the dead animal Niedan, (Inner Pellet). He frustrated that he unable to do anything with it causing him to throw it away. As the Niedan falls into the water resources, Wang Lin dips his hand into water to drinks. He was surprised that his wound is healed and realized that the stone has it own purpose.</p><p>Wang Lin later tries to descend the cliff using his cloth but end up falling down. Luckily, he was discovered by his Fourth Uncle . People laments him for attempting suicide, but end up able to join into Heng Yue Sect with the condition that he must reach the level of a Saint in a 5 year period or end up getting expelled.</p><h3>Trivia
+[
+]</h3><p>Born with a weak body, his father started calling him Tie Zhu (a traditional name) to help him stay alive.</p><p>He used to secretly drink wine as a kid (pre-cultivator).</p><p>Wang Lin often drinks wine to reminisce about his family and past.</p><p>Wang Lin has no talent for cultivation as shown in the beginning of the novel. During the Heng Yue Sect &#x27;s second test revolving determination he should have passed but failed because of his low talent.</p><p>Wang Lin has ordinary talent in alchemy, but remained mediocre at it because of his inability to finely control his spiritual energy and low understanding of alchemic materials at the time. He never bothers to improve even later down his life.</p><p>Wang Lin first Dao was the Dao of life and death, which is one of the most ruthless Daos in existence.</p><h3>Chapter 1234</h3><p>First time a rendition of this quote was said was/ Chapter 1243 First time a rendition of this quote was said was</p><h3>In Chapter 411 - it is said that he has white hair</h3><p>In Chapter 469 - it is said that he has black hair (yes it is confusing).</p></article>
+    </div>
+  </section>
+
+</main>
+<footer>
+  <div class="seal">Renegade Immortal FR</div>
+  <div>Traduction communautaire non-officielle · Contenu via <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia" target="_blank" rel="noopener">Xian Ni Fandom Wiki</a> (CC BY-SA) · <a href="../LICENSE.txt" class="fandom-link">MIT/CC0</a></div>
+</footer>
+<!-- Gesture hint: only show on home -->
+<div class="gesture-hint" id="gesture-hint" data-home-only="true" role="dialog" aria-label="Entrer">
+  <div class="gesture-hint-inner">
+    <div class="gesture-hint-glyph">仙</div>
+    <div class="gesture-hint-cta">
+      <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
+      <span>Entrer</span>
+    </div>
+  </div>
+</div>
+<button class="theme-toggle" id="theme-toggle" aria-label="Basculer thème clair/sombre" title="Thème clair/sombre">☀</button>
+<div class="audio-dock" id="audio-dock" role="region" aria-label="Musique d'ambiance">
+  <button class="audio-btn" id="audio-btn" aria-label="L'OST Xian Ni démarre automatiquement" aria-pressed="true">
+    <svg id="icon-play" viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
+    <svg id="icon-pause" viewBox="0 0 24 24" fill="currentColor" style="display:none" aria-hidden="true"><path d="M6 5h4v14H6zM14 5h4v14h-4z"/></svg>
+  </button>
+  <div class="audio-meta">
+    <div class="title">OST Xian Ni</div>
+    <div class="sub">All Instrument · ANimeMuzic</div>
+  </div>
+  <div class="audio-viz" aria-hidden="true"><span></span><span></span><span></span><span></span></div>
+  <input class="audio-vol" id="audio-vol" type="range" min="0" max="100" value="40" aria-label="Volume" />
+</div>
+<div id="yt-player-host"></div>
+
+<script>
+
+  const CHAPTERS_DATA = (window.__PAGE_DATA__ && window.__PAGE_DATA__.chapters) || [];
+  const WIKI_DATA = (window.__PAGE_DATA__ && window.__PAGE_DATA__.wiki) || [];
+(function () {
+  'use strict';
+
+  // ============================================
+  // BURGER MENU (mobile)
+  // ============================================
+  const burger = document.getElementById('nav-burger');
+  const navTabs = document.getElementById('nav-tabs');
+  if (burger && navTabs) {
+    burger.addEventListener('click', () => {
+      const open = navTabs.classList.toggle('is-open');
+      burger.setAttribute('aria-expanded', String(open));
+    });
+  }
+  // Close mobile menu on link click
+  document.querySelectorAll('.nav-tab').forEach(t => {
+    t.addEventListener('click', () => {
+      if (navTabs) navTabs.classList.remove('is-open');
+      if (burger) burger.setAttribute('aria-expanded', 'false');
+    });
+  });
+
+  // ============================================
+  // CHAPTERS — v4 complète, fetch à la demande
+  // ============================================
+  const CHAPTERS = CHAPTERS_DATA;  // injecté en <script type="application/json">
+  const grid      = document.getElementById('chapters-grid');
+  const empty     = document.getElementById('chapters-empty');
+  const search    = document.getElementById('chapter-search');
+  const tomeSel   = document.getElementById('tome-filter');
+  const statsEl   = document.getElementById('chapters-stats');
+  const reader    = document.getElementById('chapter-reader');
+  const readerNum = document.getElementById('reader-chap-num');
+  const readerTitle = document.getElementById('reader-chap-title');
+  const readerBody  = document.getElementById('reader-body');
+  const readerPrev  = document.getElementById('reader-prev');
+  const readerNext  = document.getElementById('reader-next');
+  const readerClose = document.getElementById('reader-close');
+  const MAX_VISIBLE = 250;
+  let currentChapIdx = -1;
+  let filteredChaps = CHAPTERS.slice();
+  // CHAPITRES only on chapitres.html
+  if (grid) {
+
+  // populate tome selector
+  const bookTitles = {};
+  CHAPTERS.forEach(c => { bookTitles[c.book] = c.bookTitle; });
+  Object.keys(bookTitles).sort((a, b) => +a - +b).forEach(b => {
+    const opt = document.createElement('option');
+    opt.value = b;
+    opt.textContent = 'Tome ' + b + ' — ' + bookTitles[b] + ' (' + CHAPTERS.filter(c => c.book == b).length + ')';
+    tomeSel.appendChild(opt);
+  });
+
+  function renderChapters() {
+    const q = (search.value || '').toLowerCase().trim();
+    const tome = tomeSel.value;
+    filteredChaps = CHAPTERS.filter(c => {
+      const matchT = tome === 'all' || String(c.book) === tome;
+      if (!matchT) return false;
+      if (!q) return true;
+      const hay = (c.n + ' ' + c.title + ' ' + c.en + ' ' + c.preview).toLowerCase();
+      return hay.includes(q);
+    });
+    statsEl.textContent = filteredChaps.length + ' / ' + CHAPTERS.length + ' chapitres';
+    grid.innerHTML = '';
+    if (filteredChaps.length === 0) { empty.hidden = false; return; }
+    empty.hidden = true;
+    const limit = Math.min(filteredChaps.length, MAX_VISIBLE);
+    const frag = document.createDocumentFragment();
+    for (let i = 0; i < limit; i++) {
+      const c = filteredChaps[i];
+      const a = document.createElement('a');
+      a.className = 'chapter';
+      a.setAttribute('role', 'listitem');
+      a.href = '#chapitre-' + c.n;
+      a.dataset.idx = String(i);
+      a.innerHTML = '<span class="title">' + c.title.replace(/</g, '&lt;') + '</span>' +
+                    '<span class="arrow" aria-hidden="true">›</span>';
+      a.addEventListener('click', (e) => {
+        e.preventDefault();
+        openChapter(parseInt(a.dataset.idx, 10));
+      });
+      frag.appendChild(a);
+    }
+    grid.appendChild(frag);
+    if (filteredChaps.length > limit) {
+      const note = document.createElement('div');
+      note.className = 'empty';
+      note.textContent = '... ' + (filteredChaps.length - limit) + ' chapitres supplémentaires. Affinez votre recherche pour en voir plus.';
+      grid.appendChild(note);
+    }
+  }
+
+  function openChapter(idx) {
+    if (idx < 0 || idx >= filteredChaps.length) return;
+    currentChapIdx = idx;
+    const c = filteredChaps[idx];
+    readerNum.textContent = 'Tome ' + c.book + ' · Chapitre ' + c.n;
+    readerTitle.textContent = c.title;
+    readerBody.innerHTML = '<div class="reader-loading">Chargement du chapitre...</div>';
+    reader.hidden = false;
+    readerPrev.disabled = idx === 0;
+    readerNext.disabled = idx === filteredChaps.length - 1;
+    reader.scrollIntoView({ behavior: 'smooth', block: 'start' });
+    // fetch chapter text
+    fetch(c.file, { cache: 'force-cache' })
+      .then(r => {
+        if (!r.ok) throw new Error('HTTP ' + r.status);
+        return r.text();
+      })
+      .then(text => {
+        // retire BOM, split en paragraphes
+        text = text.replace(/^\uFEFF/, '');
+        const lines = text.split(/\n+/);
+        // 1ère ligne = titre (on l'ignore dans le body)
+        const paragraphs = lines.slice(1).map(l => l.trim()).filter(l => l.length > 0);
+        if (paragraphs.length === 0) {
+          readerBody.innerHTML = '<div class="reader-error">Chapitre vide.</div>';
+          return;
+        }
+        const html = paragraphs.map((p, i) =>
+          '<p' + (i === 0 ? ' class="lead-paragraph"' : '') + '>' + p.replace(/</g, '&lt;') + '</p>'
+        ).join('');
+        readerBody.innerHTML = html;
+      })
+      .catch(err => {
+        // Fallback: fetch via file:// interdit → message d'instruction serveur
+        readerBody.innerHTML =
+          '<div class="reader-error">' +
+          '<p><strong>Impossible de charger le contenu</strong> (fetch bloqué en file://).<br>' +
+          'Lance le site via un mini serveur HTTP :</p>' +
+          '<code>cd &quot;S:\\Livres\\EBOOK\\Renegade Immortal&quot; &amp;&amp; python -m http.server 8000</code>' +
+          '<p style="margin-top:14px">Puis ouvre <code>http://localhost:8000/renegade-immortal-fr.html</code></p>' +
+          '<p style="margin-top:14px;font-size:12px;color:var(--ink-3);">Erreur technique : ' + (err.message || err) + '</p>' +
+          '</div>';
+      });
+  }
+
+  readerPrev.addEventListener('click', () => openChapter(currentChapIdx - 1));
+  readerNext.addEventListener('click', () => openChapter(currentChapIdx + 1));
+  readerClose.addEventListener('click', () => { reader.hidden = true; });
+
+  search.addEventListener('input', renderChapters);
+  tomeSel.addEventListener('change', renderChapters);
+  renderChapters();
+
+
+  }  // end if (grid) — CHAPITRES
+
+  // ============================================
+  // WIKI FAN-DOM — indexation + recherche + lecteur
+  // ============================================
+  const WIKI = WIKI_DATA;
+  const wikiGrid    = document.getElementById('wiki-grid');
+  const wikiEmpty   = document.getElementById('wiki-empty');
+  const wikiSearch  = document.getElementById('wiki-search');
+  const wikiCat     = document.getElementById('wiki-cat-filter');
+  const wikiStats   = document.getElementById('wiki-stats');
+  const wikiReader  = document.getElementById('wiki-reader');
+  const WIKI_PAGE_LIMIT = 200;
+  if (wikiGrid) {
+
+  // populate category filter (top 30 cats)
+  const catCount = {};
+  WIKI.forEach(w => (w.categories || []).forEach(c => { catCount[c] = (catCount[c] || 0) + 1; }));
+  const topCats = Object.entries(catCount).sort((a, b) => b[1] - a[1]).slice(0, 30);
+  topCats.forEach(([c, n]) => {
+    const opt = document.createElement('option');
+    opt.value = c;
+    opt.textContent = c + ' (' + n + ')';
+    wikiCat.appendChild(opt);
+  });
+
+  function renderWiki() {
+    const q = (wikiSearch.value || '').toLowerCase().trim();
+    const cat = wikiCat.value;
+    const filtered = WIKI.filter(w => {
+      if (cat !== 'all' && !(w.categories || []).includes(cat)) return false;
+      if (!q) return true;
+      const hay = (w.name + ' ' + w.title + ' ' + (w.preview || '')).toLowerCase();
+      return hay.includes(q);
+    });
+    wikiStats.textContent = filtered.length + ' / ' + WIKI.length + ' pages';
+    wikiGrid.innerHTML = '';
+    if (filtered.length === 0) { wikiEmpty.hidden = false; wikiReader.hidden = true; return; }
+    wikiEmpty.hidden = true;
+    const limit = Math.min(filtered.length, WIKI_PAGE_LIMIT);
+    const frag = document.createDocumentFragment();
+    for (let i = 0; i < limit; i++) {
+      const w = filtered[i];
+      const card = document.createElement('article');
+      card.className = 'wiki-card';
+      card.dataset.name = w.name;
+      const catsHtml = (w.categories || []).slice(0, 4).map(c =>
+        '<span class="cat' + (i === 0 ? ' is-main' : '') + '">' + c.replace(/</g, '&lt;') + '</span>'
+      ).join('');
+      card.innerHTML =
+        '<div class="name">' + w.name.replace(/</g, '&lt;') + '</div>' +
+        '<div class="cats">' + catsHtml + '</div>' +
+        (w.preview ? '<div class="preview">' + w.preview.replace(/</g, '&lt;') + '</div>' : '') +
+        '<div class="size-hint">' + Math.round(w.size / 1024) + ' KB</div>';
+      // Navigate to the dedicated wiki page
+      const slug = (w.slug) || w.name.toLowerCase().replace(/[^\w]+/g, '-').replace(/^-|-$/g, '') || 'x';
+      card.addEventListener('click', () => { window.location.href = 'wiki/' + slug + '.html'; });
+      frag.appendChild(card);
+    }
+    wikiGrid.appendChild(frag);
+    if (filtered.length > limit) {
+      const note = document.createElement('div');
+      note.className = 'empty';
+      note.textContent = '... ' + (filtered.length - limit) + ' pages supplémentaires. Affinez votre recherche.';
+      wikiGrid.appendChild(note);
+    }
+  }
+
+  function openWikiPage(meta) {
+    wikiReader.hidden = false;
+    wikiReader.innerHTML = '<div class="reader-loading">Chargement de la page wiki : ' + meta.name + '...</div>';
+    wikiReader.scrollIntoView({ behavior: 'smooth', block: 'start' });
+    fetch(meta.file, { cache: 'force-cache' })
+      .then(r => {
+        if (!r.ok) throw new Error('HTTP ' + r.status);
+        return r.json();
+      })
+      .then(data => {
+        renderWikiPage(data, meta);
+      })
+      .catch(err => {
+        wikiReader.innerHTML =
+          '<div class="reader-error">' +
+          '<p><strong>Impossible de charger la page wiki</strong> (fetch bloqué en file://).</p>' +
+          '<code>cd &quot;S:\\Livres\\EBOOK\\Renegade Immortal&quot; &amp;&amp; python -m http.server 8000</code>' +
+          '<p style="margin-top:14px">Puis ouvre <code>http://localhost:8000/renegade-immortal-fr.html</code></p>' +
+          '<p style="margin-top:14px;font-size:12px;color:var(--ink-3);">Erreur : ' + (err.message || err) + '</p>' +
+          '</div>';
+      });
+  }
+
+  function renderWikiPage(data, meta) {
+    const content = data.content || '';
+    // parse sections
+    const ovs = [...content.matchAll(/^Overview$/gm)];
+    const bodyStart = ovs.length >= 2 ? ovs[1].index : (ovs[0] ? ovs[0].index : 0);
+    const body = content.slice(bodyStart).replace(/\[\s*\n\s*\]/g, '');
+    const blocks = body.split(/\n\n+/).map(b => b.trim()).filter(Boolean);
+    const KNOWN = new Set(['Overview','Personality','Background','History','Appearance','Manhua','Trivia','Links and References','Cultivation','Techniques','Items','Relationships','Fights','Quotes','Image Gallery','Description','Legacy','Abilities','Powers and Abilities','Equipment','Weaknesses','Gallery','Quote']);
+    const isTitle = (b) => {
+      if (KNOWN.has(b)) return true;
+      if (/^Book \d+/.test(b)) return true;
+      if (/^Chapter \d+\b/.test(b)) return true;
+      if (b.length > 80) return false;
+      if (/[.!?,;]$/.test(b)) return false;
+      if (!/^[A-Z]/.test(b)) return false;
+      if (b.includes(':')) return false;
+      if (/^\d+(\.\d+)*$/.test(b)) return false;
+      if (/^\[\d+\]$/.test(b)) return false;
+      if (/[.!?,;]/.test(b)) return false;
+      return true;
+    };
+    const sections = [];
+    let current = null, buf = [];
+    for (const b of blocks) {
+      if (b === 'Overview' || isTitle(b)) {
+        if (current && buf.length) sections.push([current, buf]);
+        current = b;
+        buf = [];
+      } else {
+        const cleaned = b.replace(/\[\d+\]/g, '').replace(/\s+/g, ' ').trim();
+        if (cleaned.length > 40) buf.push(cleaned);
+      }
+    }
+    if (current && buf.length) sections.push([current, buf]);
+
+    // === Image gallery (from local assets) ===
+    let galleryHtml = '';
+    if (meta.images && meta.images.length > 0) {
+      // Filter out placeholders
+      const real = meta.images.filter(img => {
+        const n = img.name.toLowerCase();
+        return !n.includes('no-image') && !n.includes('no_image');
+      });
+      if (real.length > 0) {
+        // Take up to 6 images
+        const shown = real.slice(0, 6);
+        const more = real.length - shown.length;
+        galleryHtml = '<div class="wiki-gallery">' +
+          shown.map((img, i) => {
+            const alt = esc(img.name);
+            return '<a href="' + img.path + '" target="_blank" rel="noopener" class="wiki-gallery-item' + (i === 0 ? ' is-main' : '') + '">' +
+              '<img src="' + img.path + '" alt="' + alt + '" loading="lazy" onerror="this.parentNode.style.display=\'none\'"/>' +
+              (i === 0 ? '<span class="wiki-gallery-label">Image principale</span>' : '') +
+            '</a>';
+          }).join('') +
+          (more > 0 ? '<div class="wiki-gallery-more">+' + more + ' autres</div>' : '') +
+        '</div>';
+      }
+    }
+
+    const cats = (meta.categories || []).map(c => '<span class="cat">' + esc(c) + '</span>').join('');
+    const sectHtml = sections.map(([title, paras]) => {
+      if (paras.length === 0) return '';
+      const isFirst = (sections.indexOf([title, paras]) === 0);
+      const heading = isFirst ? '<h2>' + esc(title) + '</h2>' : '<h3>' + esc(title) + '</h3>';
+      return heading + paras.map(p => '<p>' + esc(p) + '</p>').join('');
+    }).join('');
+
+    // === External FR sources footer (only for the main Xian Ni page) ===
+    let externalHtml = '';
+    if (data.title === 'Xian Ni' || data.title === 'Xian Ni Wikia' || data.title === 'Renegade Immortal') {
+      externalHtml = '<div class="wiki-external-sources">' +
+        '<h3>Sources complémentaires (FR)</h3>' +
+        '<p>Pour aller plus loin, voici des ressources externes sur l\'œuvre :</p>' +
+        '<ul>' +
+          '<li><a class="fandom-link" href="https://baike.baidu.com/fr/item/Immortel%20Ren%C3%A9gat/1295062" target="_blank" rel="noopener">Baidu Encyclopédie — Immortel Renégat</a> (résumé encyclopédique complet : intrigue, système de cultivation, géographie, factions, personnages)</li>' +
+          '<li><a class="fandom-link" href="https://cultivationfr.com/2026/01/renegade-immortal/" target="_blank" rel="noopener">CultivationFR — Présentation complète</a> (analyse éditoriale : ton, univers, héros)</li>' +
+        '</ul>' +
+      '</div>';
+    }
+
+    wikiReader.innerHTML =
+      '<div style="display:flex;justify-content:space-between;align-items:start;gap:16px;flex-wrap:wrap;">' +
+        '<h2>' + esc(data.title) + '</h2>' +
+        '<button class="btn" id="wiki-reader-close" style="appearance:none;background:transparent;border:1px solid var(--line);color:var(--ink-2);padding:6px 12px;font-family:Cinzel,serif;font-size:10.5px;letter-spacing:.15em;text-transform:uppercase;cursor:pointer;border-radius:var(--r-md);">Fermer ✕</button>' +
+      '</div>' +
+      '<div class="wikicats">' + cats + '</div>' +
+      (data.url ? '<a class="fandom-link" href="' + esc(data.url) + '" target="_blank" rel="noopener" style="font-size:13px;">Voir sur Fandom Wiki →</a>' : '') +
+      galleryHtml +
+      sectHtml +
+      externalHtml;
+
+    document.getElementById('wiki-reader-close').addEventListener('click', () => {
+      wikiReader.hidden = true;
+    });
+  }
+
+  function esc(s) {
+    return String(s).replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;').replace(/"/g, '&quot;');
+  }
+
+  wikiSearch.addEventListener('input', renderWiki);
+  wikiCat.addEventListener('change', renderWiki);
+  renderWiki();
+
+  // Keyboard nav
+  const order = ['home', 'chapters', 'characters', 'lore', 'wiki'];
+  document.addEventListener('keydown', (e) => {
+    if (e.target.matches('input, select, textarea')) return;
+    if (e.key !== 'ArrowLeft' && e.key !== 'ArrowRight') return;
+    const active = document.querySelector('.nav-tab.is-active');
+    if (!active) return;
+    const idx = order.indexOf(active.dataset.tab);
+    const next = e.key === 'ArrowRight' ? order[(idx + 1) % order.length] : order[(idx - 1 + order.length) % order.length];
+    /* navigation handled by link clicks */
+    document.querySelector('.nav-tab[data-tab="' + next + '"]').focus();
+  });
+
+  }  // end if (wikiGrid) — WIKI
+
+  // ============================================
+  // YOUTUBE IFRAME API — OST Xian Ni
+  // ============================================
+  // L'API YouTube appelle onYouTubeIframeAPIReady() quand prête.
+  // On garde un player caché (1x1px) qui streame l'OST.
+  const YT_VIDEO_ID = 'bXJKwYzz5mw';
+  const LS_KEY = 'ri_audio_v1';
+  const Audio = (function () {
+    let player = null;
+    let ready = false;
+    let playing = false;
+    let volume = 40; // 0..100
+    let loadTimer = null;
+    let loadAttempts = 0;
+    const subs = [];  // subscribers au changement d'état (pour l'UI)
+
+    function emit(event, data) { subs.forEach(fn => { try { fn(event, data); } catch (e) {} }); }
+
+    function save() {
+      try { localStorage.setItem(LS_KEY, JSON.stringify({ playing, volume })); } catch (e) {}
+    }
+    function load() {
+      try {
+        const s = JSON.parse(localStorage.getItem(LS_KEY) || '{}');
+        if (typeof s.volume === 'number') volume = Math.max(0, Math.min(100, s.volume));
+      } catch (e) {}
+    }
+    load();
+
+    // API YT appelle ce nom globalement quand le SDK est prêt
+    window.onYouTubeIframeAPIReady = function () {
+      try {
+        player = new YT.Player('yt-player-host', {
+          height: '1', width: '1',
+          videoId: YT_VIDEO_ID,
+          playerVars: {
+            autoplay: 0,
+            controls: 0,
+            disablekb: 1,
+            fs: 0,
+            modestbranding: 1,
+            playsinline: 1,
+            rel: 0,
+            origin: window.location.origin
+          },
+          events: {
+            onReady: function (e) {
+              ready = true;
+              // applique le volume persisté
+              try { e.target.setVolume(volume); } catch (err) {}
+              // Si l'utilisateur avait laissé "playing" avant refresh, on ne relance PAS
+              // (les navigateurs bloquent l'autoplay sans gesture)
+              emit('ready');
+            },
+            onStateChange: function (e) {
+              // YT.PlayerState.ENDED = 0, PLAYING = 1, PAUSED = 2, BUFFERING = 3
+              if (e.data === 1) { playing = true; emit('play'); }
+              else if (e.data === 2 || e.data === 0) { playing = false; emit('pause'); }
+            },
+            onError: function (e) {
+              console.warn('YouTube player error', e);
+              emit('error', e);
+            }
+          }
+        });
+      } catch (err) {
+        console.warn('YT.Player init failed', err);
+        emit('error', err);
+      }
+    };
+
+    // Timeout: si l'API ne répond pas en 8s, on notifie l'UI
+    function startLoadWatchdog() {
+      loadTimer = setTimeout(function () {
+        if (!ready) {
+          loadAttempts++;
+          if (loadAttempts < 2) {
+            // retry une fois (parfois le SDK est lent au 1er load)
+            const s = document.createElement('script');
+            s.src = 'https://www.youtube.com/iframe_api';
+            s.onload = function () { startLoadWatchdog(); };
+            document.head.appendChild(s);
+          } else {
+            emit('error', 'timeout');
+          }
+        }
+      }, 8000);
+    }
+    startLoadWatchdog();
+
+    function setPlaying(p) {
+      if (!ready || !player) { emit('error', 'not-ready'); return; }
+      try {
+        if (p) player.playVideo();
+        else player.pauseVideo();
+        // l'event onStateChange va flipper `playing`
+        playing = p;
+        save();
+      } catch (err) { emit('error', err); }
+    }
+    function setVolume(v) {
+      volume = Math.max(0, Math.min(100, v));
+      if (ready && player) { try { player.setVolume(volume); } catch (e) {} }
+      save();
+    }
+    function isPlaying() { return playing; }
+    function isReady() { return ready; }
+    function subscribe(fn) { subs.push(fn); }
+
+    return { setPlaying, setVolume, isPlaying, isReady, subscribe };
+  })();
+    const dock = document.getElementById('audio-dock');
+  const btn  = document.getElementById('audio-btn');
+  const iconPlay  = document.getElementById('icon-play');
+  const iconPause = document.getElementById('icon-pause');
+  const vol  = document.getElementById('audio-vol');
+
+  // Wire UI (dock, btn, vol, etc. moved to root level)
+
+  // Position du slider selon état persisté
+  vol.value = String(Math.round(Audio.isReady() ? (player?._lastVol || 40) : 40));
+
+  Audio.subscribe(function (event, data) {
+    if (event === 'ready') {
+      dock.classList.remove('is-loading');
+      btn.setAttribute('aria-label', 'Lire l\'OST Xian Ni');
+      const v = parseInt(vol.value, 10);
+      if (!isNaN(v)) Audio.setVolume(v);
+      // si l'overlay a déjà été dismissé (réutilisation), lance la lecture
+      if (window.__ri_gesture_done && !Audio.isPlaying()) {
+        Audio.setPlaying(true);
+        dock.classList.add('is-playing');
+      }
+    }
+    if (event === 'play') {
+      btn.setAttribute('aria-pressed', 'true');
+      btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+      iconPlay.style.display  = 'none';
+      iconPause.style.display = '';
+      dock.classList.add('is-playing');
+      dock.classList.remove('is-loading');
+    }
+    if (event === 'pause') {
+      btn.setAttribute('aria-pressed', 'false');
+      btn.setAttribute('aria-label', 'Lire l\'OST Xian Ni');
+      iconPlay.style.display  = '';
+      iconPause.style.display = 'none';
+      dock.classList.remove('is-playing');
+    }
+    if (event === 'error') {
+      console.warn('Audio error', data);
+      dock.classList.remove('is-loading');
+      dock.classList.add('is-error');
+      btn.setAttribute('aria-label', 'Musique indisponible — réessaie plus tard');
+      iconPlay.style.display  = '';
+      iconPause.style.display = 'none';
+    }
+  });
+
+  // État initial UI: bouton "on" par défaut
+  dock.classList.add('is-loading');
+  btn.setAttribute('aria-label', 'L\'OST Xian Ni démarre automatiquement');
+  btn.setAttribute('aria-pressed', 'true');
+  iconPlay.style.display  = 'none';
+  iconPause.style.display = '';
+  dock.classList.add('is-playing');
+
+  btn.addEventListener('click', function () {
+    if (dock.classList.contains('is-error')) return;
+    if (!Audio.isReady()) {
+      dock.classList.add('is-loading');
+      return;
+    }
+    Audio.setPlaying(!Audio.isPlaying());
+  });
+
+// === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
+  const gestureHint = document.getElementById('gesture-hint');
+  function dismissGesture() {
+    if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
+    gestureHint.classList.add('is-hidden');
+    // Force-hide via inline style as a safety net
+    gestureHint.style.pointerEvents = 'none';
+    gestureHint.style.opacity = '0';
+    window.__ri_gesture_done = true;
+    // Update dock visual state immediately
+    btn.setAttribute('aria-pressed', 'true');
+    btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+    iconPlay.style.display  = 'none';
+    iconPause.style.display = '';
+    dock.classList.add('is-playing');
+    dock.classList.remove('is-loading');
+    // Try to start audio — works if API is ready, otherwise the subscribe handler
+    // will catch the 'ready' event and call setPlaying(true) automatically
+    try {
+      Audio.setPlaying(true);
+    } catch (e) {
+      console.warn('setPlaying failed (will retry on ready):', e);
+    }
+    // retire du DOM après le fade-out
+    setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+  }
+  gestureHint.addEventListener('click', dismissGesture, { once: false });
+  // Backup: bind to document so any click on the page (during the overlay) works
+  function _dismissOnAnyClick(e) {
+    if (gestureHint && !gestureHint.classList.contains('is-hidden')) {
+      dismissGesture();
+    }
+  }
+  document.addEventListener('click', _dismissOnAnyClick, true);
+  // ESC aussi pour skipper
+  document.addEventListener('keydown', function onceK(e) {
+    if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
+      e.preventDefault();
+      dismissGesture();
+      document.removeEventListener('keydown', onceK);
+    }
+  });
+  // Fallback: si le browser autorise l'autoplay (rare), dismiss automatique après 1.2s
+  setTimeout(() => {
+    if (Audio.isReady() && Audio.isPlaying()) {
+      dismissGesture();
+    }
+  }, 1200);
+
+  vol.addEventListener('input', function () {
+    Audio.setVolume(parseInt(vol.value, 10));
+  });
+
+  // === THEME TOGGLE (dark/light) ===
+  const themeBtn = document.getElementById('theme-toggle');
+  if (themeBtn) {
+    const saved = localStorage.getItem('ri_theme');
+    if (saved === 'light') {
+      document.documentElement.setAttribute('data-theme', 'light');
+      themeBtn.textContent = '☾';
+    } else {
+      themeBtn.textContent = '☀';
+    }
+    themeBtn.addEventListener('click', function() {
+      const current = document.documentElement.getAttribute('data-theme');
+      if (current === 'light') {
+        document.documentElement.removeAttribute('data-theme');
+        localStorage.setItem('ri_theme', 'dark');
+        themeBtn.textContent = '☀';
+      } else {
+        document.documentElement.setAttribute('data-theme', 'light');
+        localStorage.setItem('ri_theme', 'light');
+        themeBtn.textContent = '☾';
+      }
+    });
+  }
+})();
+
+</script>
+</body>
+</html>
