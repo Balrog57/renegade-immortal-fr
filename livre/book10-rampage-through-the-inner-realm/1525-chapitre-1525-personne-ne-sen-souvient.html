@@ -1317,6 +1317,9 @@
   function dismissGesture() {
     if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
     gestureHint.classList.add('is-hidden');
+    // Force-hide via inline style as a safety net
+    gestureHint.style.pointerEvents = 'none';
+    gestureHint.style.opacity = '0';
     window.__ri_gesture_done = true;
     // Update dock visual state immediately
     btn.setAttribute('aria-pressed', 'true');
@@ -1336,6 +1339,13 @@
     setTimeout(() => { if (gestureHint && gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
   }
   gestureHint.addEventListener('click', dismissGesture, { once: false });
+  // Backup: bind to document so any click on the page (during the overlay) works
+  function _dismissOnAnyClick(e) {
+    if (gestureHint && !gestureHint.classList.contains('is-hidden')) {
+      dismissGesture();
+    }
+  }
+  document.addEventListener('click', _dismissOnAnyClick, true);
   // ESC aussi pour skipper
   document.addEventListener('keydown', function onceK(e) {
     if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
