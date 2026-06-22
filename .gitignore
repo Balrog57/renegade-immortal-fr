@@ -12,3 +12,4 @@ wiki/image_mapping.json
 
 # External scrape (NovelFrance) — local reference, not shipped
 novelfrance/
+wiki/page_images.json
