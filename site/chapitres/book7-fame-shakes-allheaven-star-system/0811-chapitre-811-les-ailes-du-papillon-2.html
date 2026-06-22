@@ -1,0 +1,1258 @@
+<!DOCTYPE html>
+<html lang="fr">
+<head>
+<meta charset="UTF-8" />
+<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+<title>Chapitre 811 — Les ailes du papillon (2) — Renegade Immortal FR</title>
+<link rel="preconnect" href="https://fonts.googleapis.com" />
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+<link rel="preconnect" href="https://static.wikia.nocookie.net" />
+<link href="https://fonts.googleapis.com/css2?family=Cinzel:wght@500;600;700&family=Cormorant+Garamond:ital,wght@0,400;0,600;1,400&family=Noto+Serif:ital,wght@0,400;0,600;1,400&display=swap" rel="stylesheet" />
+<style>
+
+  :root {
+    --bg-0: #07060a; --bg-1: #0d0b14; --bg-2: #15121e; --bg-3: #1d1929;
+    --line: #2a2438; --line-soft: #1f1a2c;
+    --ink-1: #ece6d8; --ink-2: #b8b0a2; --ink-3: #7d7466; --ink-4: #4d4656;
+    --crimson: #b3261e; --crimson-2: #d63a2e; --crimson-dim: #6b1a15;
+    --mystic: #4a6ed8; --mystic-2: #6a8cf0; --mystic-dim: #2a3f8a;
+    --gold: #c8a44a; --gold-dim: #7a6326;
+    --shadow-lg: 0 24px 60px -20px rgba(0,0,0,.7), 0 8px 20px -10px rgba(0,0,0,.5);
+    --r-sm: 4px; --r-md: 8px; --r-lg: 14px;
+    --ease: cubic-bezier(.2, .7, .2, 1);
+  }
+  * { box-sizing: border-box; }
+  html, body { margin: 0; padding: 0; }
+  html { scroll-behavior: smooth; }
+  body {
+    font-family: 'Noto Serif', 'Cormorant Garamond', Georgia, serif;
+    background: var(--bg-0); color: var(--ink-1);
+    line-height: 1.65; font-size: 16px;
+    -webkit-font-smoothing: antialiased; text-rendering: optimizeLegibility;
+    min-height: 100vh; overflow-x: hidden;
+  }
+  body::before {
+    content: ""; position: fixed; inset: 0; pointer-events: none; z-index: -1;
+    background:
+      radial-gradient(1100px 700px at 85% -10%, rgba(74,110,216,.07), transparent 60%),
+      radial-gradient(900px 600px at -10% 90%, rgba(179,38,30,.06), transparent 60%);
+  }
+  body::after {
+    content: ""; position: fixed; inset: 0; pointer-events: none; z-index: -1; opacity: .6;
+    background-image: radial-gradient(rgba(255,255,255,.025) 1px, transparent 1px);
+    background-size: 3px 3px;
+  }
+  a { color: var(--ink-1); text-decoration: none; }
+  a.fandom-link { color: var(--crimson-2); border-bottom: 1px solid var(--crimson-dim); padding-bottom: 1px; transition: color .2s, border-color .2s; }
+  a.fandom-link:hover { color: var(--crimson); border-bottom-color: var(--crimson-2); }
+  .nav {
+    position: sticky; top: 0; z-index: 100;
+    background: rgba(7,6,10,.78);
+    backdrop-filter: blur(14px) saturate(140%);
+    -webkit-backdrop-filter: blur(14px) saturate(140%);
+    border-bottom: 1px solid var(--line-soft);
+  }
+  .nav-inner {
+    max-width: 1240px; margin: 0 auto; padding: 14px 24px;
+    display: flex; align-items: center; justify-content: space-between; gap: 16px;
+  }
+  .brand {
+    display: flex; align-items: baseline; gap: 10px;
+    font-family: 'Cinzel', serif; font-weight: 700;
+    letter-spacing: .14em; font-size: 15px; text-transform: uppercase;
+    color: var(--ink-1);
+  }
+  .brand .dot {
+    display: inline-block; width: 8px; height: 8px;
+    background: var(--crimson);
+    box-shadow: 0 0 12px var(--crimson);
+    transform: translateY(-1px);
+  }
+  .brand small {
+    font-family: 'Cormorant Garamond', serif; font-style: italic; font-weight: 400;
+    text-transform: none; letter-spacing: .02em;
+    color: var(--ink-3); font-size: 13px;
+  }
+  .nav-tabs { display: flex; gap: 2px; background: var(--bg-1); border: 1px solid var(--line); padding: 4px; border-radius: 999px; }
+  .nav-tab {
+    appearance: none; background: transparent; border: 0;
+    color: var(--ink-2); font-family: 'Cinzel', serif; font-weight: 500;
+    letter-spacing: .12em; text-transform: uppercase; font-size: 11.5px;
+    padding: 9px 16px; border-radius: 999px;
+    cursor: pointer; transition: color .25s var(--ease), background .25s var(--ease);
+    min-height: 36px;
+  }
+  .nav-tab:hover { color: var(--ink-1); }
+  .nav-tab.is-active {
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 4px 16px -4px rgba(179,38,30,.6);
+  }
+  .nav-burger {
+    display: none; background: transparent; border: 1px solid var(--line);
+    color: var(--ink-1); width: 40px; height: 40px; border-radius: 8px; cursor: pointer;
+  }
+  .nav-burger span { display: block; width: 18px; height: 1.5px; background: currentColor; margin: 4px auto; }
+  main { max-width: 1240px; margin: 0 auto; padding: 40px 24px 80px; }
+  .tab-panel { display: none; }
+  .tab-panel.is-active { display: block; animation: panelIn .55s var(--ease) both; }
+  @keyframes panelIn { from { opacity: 0; transform: translateY(10px); } to { opacity: 1; transform: none; } }
+  .eyebrow {
+    font-family: 'Cinzel', serif; font-size: 11px;
+    letter-spacing: .35em; text-transform: uppercase;
+    color: var(--crimson-2); margin-bottom: 14px;
+  }
+  h1, h2, h3 { font-family: 'Cinzel', serif; font-weight: 600; letter-spacing: .04em; color: var(--ink-1); }
+  h1 { font-size: clamp(2.2rem, 4.5vw, 3.6rem); line-height: 1.05; margin: 0 0 18px; }
+  h2 { font-size: clamp(1.4rem, 2.4vw, 1.85rem); margin: 0 0 14px; }
+  h3 { font-size: 1.1rem; margin: 0 0 8px; letter-spacing: .08em; }
+  p  { margin: 0 0 14px; color: var(--ink-2); }
+  .divider { display: flex; align-items: center; gap: 14px; color: var(--ink-3); margin: 28px 0 18px; }
+  /* READER — volet lecture d'un chapitre ou d'une page wiki */
+  .reader {
+    background: var(--bg-1); border: 1px solid var(--line);
+    margin-top: 28px; padding: 0;
+  }
+  .reader-bar {
+    display: flex; align-items: center; justify-content: space-between; gap: 12px;
+    padding: 16px 24px; border-bottom: 1px solid var(--line);
+    background: var(--bg-2); position: sticky; top: 64px; z-index: 10;
+  }
+  .reader-bar .meta {
+    display: flex; flex-direction: column; line-height: 1.2; min-width: 0;
+  }
+  .reader-bar .meta .num {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase;
+    color: var(--crimson-2);
+  }
+  .reader-bar .meta .title {
+    color: var(--ink-1); font-family: 'Cinzel', serif; font-size: 14px;
+    overflow: hidden; text-overflow: ellipsis; white-space: nowrap;
+  }
+  .reader-bar .actions { display: flex; gap: 8px; flex-shrink: 0; }
+  .reader-bar .btn {
+    appearance: none; background: transparent; border: 1px solid var(--line);
+    color: var(--ink-2); padding: 8px 14px; font-family: 'Cinzel', serif;
+    font-size: 10.5px; letter-spacing: .15em; text-transform: uppercase;
+    cursor: pointer; border-radius: var(--r-md); transition: all .2s var(--ease);
+    min-height: 36px;
+  }
+  .reader-bar .btn:hover { color: var(--ink-1); border-color: var(--crimson-dim); }
+  .reader-bar .btn:disabled { opacity: .4; cursor: not-allowed; }
+  .reader-body {
+    padding: 36px 48px 48px; max-height: 75vh; overflow-y: auto;
+    font-size: 1.05rem; line-height: 1.9; color: var(--ink-2);
+  }
+  .reader-body p { margin: 0 0 1.2em; color: var(--ink-2); }
+  .reader-body .lead-paragraph::first-letter {
+    font-family: 'Cinzel', serif; font-size: 3.4em; float: left; line-height: .9;
+    margin: 4px 8px 0 0; color: var(--crimson-2); font-weight: 700;
+  }
+  .reader-loading, .reader-error {
+    padding: 60px 24px; text-align: center; color: var(--ink-3);
+  }
+  .reader-error { color: var(--crimson-2); }
+  .reader-error code {
+    display: inline-block; margin-top: 10px; padding: 8px 14px;
+    background: var(--bg-2); border: 1px solid var(--line); border-radius: var(--r-md);
+    color: var(--gold); font-family: 'Courier New', monospace; font-size: 13px;
+  }
+
+  /* WIKI */
+  .wiki-grid {
+    display: grid; grid-template-columns: repeat(auto-fill, minmax(280px, 1fr));
+    gap: 1px; background: var(--line); border: 1px solid var(--line);
+  }
+  .wiki-card {
+    background: var(--bg-1); padding: 18px 20px;
+    cursor: pointer; transition: background .2s var(--ease);
+    display: flex; flex-direction: column; gap: 8px;
+  }
+  .wiki-card:hover { background: var(--bg-2); }
+  .wiki-card .name { font-family: 'Cinzel', serif; font-size: 14.5px; color: var(--ink-1); letter-spacing: .03em; }
+  .wiki-card .cats { display: flex; flex-wrap: wrap; gap: 4px; }
+  .wiki-card .cat {
+    font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .15em; text-transform: uppercase;
+    padding: 2px 7px; border: 1px solid var(--line); color: var(--ink-3);
+    background: var(--bg-2); border-radius: 999px;
+  }
+  .wiki-card .cat.is-main { color: var(--crimson-2); border-color: var(--crimson-dim); background: rgba(179,38,30,.08); }
+  .wiki-card .preview {
+    font-size: 12.5px; line-height: 1.55; color: var(--ink-3);
+    font-style: italic;
+    display: -webkit-box; -webkit-line-clamp: 2; -webkit-box-orient: vertical;
+    overflow: hidden; text-overflow: ellipsis;
+  }
+  .wiki-card .size-hint { font-size: 10.5px; color: var(--ink-4); }
+  .wiki-search-row { display: flex; gap: 12px; flex-wrap: wrap; align-items: center; }
+  .wiki-stats {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase;
+    color: var(--ink-3); margin-left: auto;
+  }
+  .wiki-cat-filter { max-width: 320px; }
+  .wiki-reader-section {
+    background: var(--bg-1); border: 1px solid var(--line);
+    padding: 28px 36px; margin-top: 24px;
+  }
+  .wiki-reader-section h2 {
+    font-size: 1.6rem; margin-bottom: 4px; color: var(--ink-1);
+  }
+  .wiki-reader-section h3 {
+    font-size: 1.05rem; margin: 28px 0 10px; color: var(--gold);
+    border-bottom: 1px solid var(--line); padding-bottom: 6px;
+  }
+  .wiki-reader-section p { font-size: 14.5px; line-height: 1.75; color: var(--ink-2); margin: 0 0 12px; }
+  .wiki-reader-section .wikicats {
+    display: flex; flex-wrap: wrap; gap: 6px; margin: 8px 0 18px;
+  }
+  .wiki-reader-section .wikicats .cat {
+    font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase;
+    padding: 3px 8px; border: 1px solid var(--crimson-dim);
+    color: var(--crimson-2); background: rgba(179,38,30,.06);
+    border-radius: 999px;
+  }
+  .wiki-reader-section a.fandom-link { font-size: 13px; }
+
+  /* Chapitres v4 toolbar enrichie */
+  .toolbar-meta {
+    font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase;
+    color: var(--ink-3); margin-left: auto;
+  }
+
+  .divider::before, .divider::after { content: ""; flex: 1; height: 1px; background: var(--line); }
+  .divider span { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .4em; text-transform: uppercase; }
+  .hero { display: grid; grid-template-columns: 1.15fr 1fr; gap: 48px; align-items: center; margin-bottom: 64px; }
+  .hero-text .lede {
+    font-family: 'Cormorant Garamond', serif; font-style: italic;
+    font-size: 1.25rem; color: var(--ink-2); max-width: 56ch; margin-bottom: 24px;
+  }
+  .cover {
+    position: relative; aspect-ratio: 3 / 4.2;
+    border: 1px solid var(--line); background: var(--bg-2);
+    overflow: hidden; box-shadow: var(--shadow-lg);
+  }
+  .cover::before {
+    content: ""; position: absolute; inset: 0;
+    background:
+      radial-gradient(60% 40% at 50% 30%, rgba(179,38,30,.35), transparent 60%),
+      radial-gradient(80% 50% at 50% 100%, rgba(74,110,216,.25), transparent 60%),
+      linear-gradient(180deg, #0a0810 0%, #050308 100%);
+  }
+  .cover-art { position: absolute; inset: 0; display: flex; align-items: center; justify-content: center; text-align: center; padding: 20px; }
+  .cover-art .glyph {
+    font-family: 'Cinzel', serif; font-weight: 700;
+    font-size: clamp(3rem, 8vw, 5.5rem); line-height: .9;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    text-shadow: 0 0 30px rgba(200,164,74,.25);
+    letter-spacing: .04em;
+  }
+  .cover-art .glyph-sub { font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .6em; text-transform: uppercase; color: var(--ink-3); margin-top: 14px; }
+  .cover-frame { position: absolute; inset: 12px; border: 1px solid rgba(200,164,74,.18); pointer-events: none; }
+  .cover-corner { position: absolute; width: 18px; height: 18px; border: 1px solid var(--gold); }
+  .cover-corner.tl { top: 12px; left: 12px; border-right: 0; border-bottom: 0; }
+  .cover-corner.tr { top: 12px; right: 12px; border-left: 0; border-bottom: 0; }
+  .cover-corner.bl { bottom: 12px; left: 12px; border-right: 0; border-top: 0; }
+  .cover-corner.br { bottom: 12px; right: 12px; border-left: 0; border-top: 0; }
+  .meta-grid { display: grid; grid-template-columns: repeat(2, 1fr); gap: 1px; background: var(--line); border: 1px solid var(--line); margin: 32px 0; }
+  .meta { background: var(--bg-1); padding: 18px 20px; }
+  .meta .k { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 6px; }
+  .meta .v { color: var(--ink-1); font-size: 1.02rem; font-weight: 500; }
+  .meta .v.is-status { color: var(--gold); }
+  .synopsis { background: var(--bg-1); border: 1px solid var(--line); padding: 32px 36px; position: relative; }
+  .synopsis::before {
+    content: """; position: absolute; top: -10px; left: 22px;
+    font-family: 'Cormorant Garamond', serif; font-size: 90px; line-height: 1;
+    color: var(--crimson); opacity: .55;
+  }
+  .synopsis h2 { margin-top: 6px; }
+  .synopsis p { font-size: 1.05rem; line-height: 1.85; color: var(--ink-2); }
+  .synopsis .source { display: inline-block; margin-top: 14px; font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-3); }
+  .toolbar { display: flex; align-items: center; gap: 12px; margin: 8px 0 28px; flex-wrap: wrap; }
+  .search { flex: 1; min-width: 240px; position: relative; }
+  .search input {
+    width: 100%; background: var(--bg-1); border: 1px solid var(--line);
+    color: var(--ink-1); padding: 13px 16px 13px 44px;
+    font: inherit; font-size: 15px; border-radius: var(--r-md);
+    transition: border-color .2s, background .2s;
+  }
+  .search input::placeholder { color: var(--ink-3); }
+  .search input:focus { outline: 0; border-color: var(--crimson); background: var(--bg-2); box-shadow: 0 0 0 3px rgba(179,38,30,.12); }
+  .search svg { position: absolute; left: 14px; top: 50%; transform: translateY(-50%); color: var(--ink-3); }
+  .filter { display: flex; align-items: center; gap: 10px; font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-3); }
+  .filter select { background: var(--bg-1); border: 1px solid var(--line); color: var(--ink-1); padding: 11px 14px; font: inherit; font-size: 13px; border-radius: var(--r-md); }
+  .chapters { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 12px; }
+  .chapter {
+    display: flex; align-items: center; justify-content: space-between; gap: 12px;
+    background: var(--bg-1);
+    border: 1px solid var(--line);
+    padding: 16px 18px;
+    color: var(--ink-1);
+    transition: background .2s var(--ease), border-color .2s, color .2s, transform .2s;
+    cursor: pointer;
+    min-height: 58px;
+  }
+  .chapter:hover {
+    background: var(--bg-2);
+    border-color: var(--crimson-dim);
+    color: var(--crimson-2);
+    transform: translateY(-1px);
+  }
+  .chapter .title {
+    flex: 1; font-size: 14.5px; line-height: 1.35;
+    overflow: hidden; text-overflow: ellipsis; white-space: nowrap;
+  }
+  .chapter .arrow {
+    color: var(--ink-4);
+    transition: transform .2s var(--ease), color .2s;
+    flex-shrink: 0;
+    font-size: 18px;
+  }
+  .chapter:hover .arrow { color: var(--crimson); transform: translateX(3px); }
+  .empty { padding: 60px 20px; text-align: center; color: var(--ink-3); font-style: italic; background: var(--bg-1); border: 1px solid var(--line); }
+  .cards { display: grid; grid-template-columns: repeat(auto-fit, minmax(280px, 1fr)); gap: 24px; }
+  .card { background: var(--bg-1); border: 1px solid var(--line); padding: 0; position: relative; transition: transform .35s var(--ease), border-color .25s; overflow: hidden; }
+  .card:hover { transform: translateY(-3px); border-color: var(--line); }
+  .card::before {
+    content: ""; position: absolute; top: 0; left: 0; right: 0; height: 1px;
+    background: linear-gradient(90deg, transparent, var(--crimson), transparent);
+    opacity: .7; z-index: 1;
+  }
+  .card-portrait {
+    aspect-ratio: 4 / 3; background: var(--bg-2);
+    position: relative; display: flex; align-items: center; justify-content: center;
+    border-bottom: 1px solid var(--line); overflow: hidden;
+  }
+  .card-portrait img {
+    position: absolute; inset: 0; width: 100%; height: 100%;
+    object-fit: cover; object-position: center 20%;
+    transition: transform .6s var(--ease), filter .4s;
+    filter: contrast(1.05) saturate(0.9) brightness(0.95);
+  }
+  .card:hover .card-portrait img { transform: scale(1.05); filter: contrast(1.08) saturate(1) brightness(1); }
+  .card-portrait::after {
+    content: ""; position: absolute; inset: 0;
+    background: linear-gradient(180deg, transparent 50%, rgba(13,11,20,.85) 100%);
+    pointer-events: none;
+  }
+  .card-body { padding: 22px 24px 24px; }
+  .card .role { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .3em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 6px; }
+  .card h3 { font-size: 1.5rem; margin-bottom: 4px; }
+  .card .subtitle { color: var(--ink-3); font-style: italic; font-size: 14px; margin-bottom: 14px; }
+  .card p { font-size: 14.5px; line-height: 1.7; }
+  .card .sec-label { font-family: 'Cinzel', serif; font-size: 9.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--ink-3); margin: 14px 0 6px; }
+  .card .sec-text { font-size: 13.5px; line-height: 1.6; color: var(--ink-2); font-style: italic; }
+  .traits { display: flex; flex-wrap: wrap; gap: 6px; margin-top: 16px; padding-top: 16px; border-top: 1px solid var(--line-soft); }
+  .trait { font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em; text-transform: uppercase; padding: 4px 9px; border: 1px solid var(--line); color: var(--ink-2); background: var(--bg-2); border-radius: 999px; }
+  .trait.is-main { color: var(--crimson-2); border-color: var(--crimson-dim); background: rgba(179,38,30,.08); }
+  .card.is-featured { grid-column: 1 / -1; display: grid; grid-template-columns: 320px 1fr; }
+  .card.is-featured .card-portrait { aspect-ratio: auto; height: 100%; border-bottom: 0; border-right: 1px solid var(--line); }
+  .lore-section { margin-bottom: 56px; }
+  .lore-section .lead { max-width: 65ch; margin-bottom: 24px; }
+  .realm-list { display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr)); gap: 1px; background: var(--line); border: 1px solid var(--line); }
+  /* WIKI GALLERY */
+  .wiki-gallery {
+    display: grid; grid-template-columns: repeat(auto-fill, minmax(140px, 1fr));
+    gap: 8px; margin: 18px 0 28px;
+  }
+  .wiki-gallery-item {
+    position: relative; display: block; aspect-ratio: 1;
+    background: var(--bg-2); border: 1px solid var(--line);
+    overflow: hidden; transition: border-color .2s;
+  }
+  .wiki-gallery-item:hover { border-color: var(--crimson-dim); }
+  .wiki-gallery-item.is-main { grid-column: span 2; grid-row: span 2; aspect-ratio: 1; }
+  .wiki-gallery-item img {
+    width: 100%; height: 100%; object-fit: cover;
+    transition: transform .4s var(--ease);
+  }
+  .wiki-gallery-item:hover img { transform: scale(1.05); }
+  .wiki-gallery-label {
+    position: absolute; top: 8px; left: 8px;
+    background: rgba(7,6,10,.85); color: var(--crimson-2);
+    padding: 3px 8px; font-family: 'Cinzel', serif;
+    font-size: 9px; letter-spacing: .2em; text-transform: uppercase;
+    border: 1px solid var(--crimson-dim);
+  }
+  .wiki-gallery-more {
+    display: flex; align-items: center; justify-content: center;
+    background: var(--bg-2); border: 1px dashed var(--line);
+    color: var(--ink-3); font-family: 'Cinzel', serif;
+    font-size: 11px; letter-spacing: .15em;
+  }
+  .wiki-external-sources {
+    background: var(--bg-2); border: 1px solid var(--line);
+    padding: 20px 24px; margin-top: 28px;
+    border-left: 3px solid var(--crimson);
+  }
+  .wiki-external-sources h3 {
+    font-size: 1rem; color: var(--gold); margin: 0 0 10px;
+    border-bottom: 0; padding: 0;
+  }
+  .wiki-external-sources ul {
+    margin: 8px 0 0; padding-left: 20px;
+  }
+  .wiki-external-sources li { margin-bottom: 6px; font-size: 14px; }
+  .wiki-external-sources p { margin: 0; font-size: 13px; color: var(--ink-3); }
+  .realm { background: var(--bg-1); padding: 22px 24px; position: relative; transition: background .2s; }
+  .realm:hover { background: var(--bg-2); }
+  .realm .stage { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--ink-3); margin-bottom: 6px; }
+  .realm h3 { font-size: 1.15rem; color: var(--ink-1); margin-bottom: 8px; }
+  .realm p { font-size: 13.5px; line-height: 1.65; margin: 0; }
+  .realm .pinyin { color: var(--crimson-2); font-style: italic; font-size: 12.5px; margin-top: 8px; }
+  .geography { display: grid; grid-template-columns: 1.2fr 1fr; gap: 32px; align-items: start; }
+  .geography .map-placeholder { aspect-ratio: 4 / 3; background: var(--bg-1); border: 1px solid var(--line); position: relative; overflow: hidden; }
+  .geography .map-placeholder::before {
+    content: ""; position: absolute; inset: 0;
+    background:
+      radial-gradient(40% 30% at 30% 40%, rgba(74,110,216,.15), transparent 60%),
+      radial-gradient(35% 25% at 70% 65%, rgba(179,38,30,.12), transparent 60%);
+  }
+  .map-svg { position: absolute; inset: 0; width: 100%; height: 100%; }
+  .artifact { background: var(--bg-1); border: 1px solid var(--line); padding: 24px 28px; }
+  .artifact h3 { color: var(--gold); font-size: 1.1rem; margin-bottom: 6px; }
+  .artifact .pinyin { color: var(--ink-3); font-style: italic; font-size: 13px; margin-bottom: 14px; }
+  footer { border-top: 1px solid var(--line-soft); padding: 32px 24px; text-align: center; color: var(--ink-3); font-size: 13px; }
+  footer .seal { display: inline-block; font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .35em; text-transform: uppercase; color: var(--crimson-2); margin-bottom: 8px; }
+
+  /* ============ AUDIO PLAYER ============ */
+  .audio-dock {
+    position: fixed; bottom: 22px; right: 22px; z-index: 200;
+    display: flex; align-items: center; gap: 10px;
+    background: rgba(13,11,20,.85);
+    backdrop-filter: blur(14px) saturate(140%);
+    -webkit-backdrop-filter: blur(14px) saturate(140%);
+    border: 1px solid var(--line);
+    padding: 8px 14px 8px 8px;
+    border-radius: 999px;
+    box-shadow: 0 12px 32px -8px rgba(0,0,0,.7);
+    transition: transform .25s var(--ease), box-shadow .25s;
+    user-select: none;
+  }
+  .audio-dock.is-loading .audio-btn { opacity: .55; cursor: wait; }
+  .audio-dock.is-error { border-color: var(--crimson-dim); }
+  .audio-dock.is-error .audio-btn { background: var(--line); box-shadow: none; cursor: not-allowed; }
+  #yt-player-host { position: fixed; width: 1px; height: 1px; left: -9999px; top: -9999px; pointer-events: none; opacity: 0; }
+  /* AUTOPLAY GESTURE OVERLAY */
+  .gesture-hint {
+    position: fixed; inset: 0; z-index: 999;
+    background: radial-gradient(circle at center, rgba(7,6,10,.85), rgba(7,6,10,.97));
+    display: flex; align-items: center; justify-content: center;
+    cursor: pointer;
+    transition: opacity .8s var(--ease);
+    backdrop-filter: blur(8px);
+    -webkit-backdrop-filter: blur(8px);
+  }
+  .gesture-hint.is-hidden { opacity: 0; pointer-events: none; }
+  .gesture-hint-inner {
+    text-align: center; color: var(--ink-1);
+    padding: 40px;
+  }
+  .gesture-hint-glyph {
+    font-family: 'Cinzel', serif; font-size: 4rem; line-height: 1;
+    background: linear-gradient(180deg, #f3e7c8 0%, #c8a44a 50%, #7a6326 100%);
+    -webkit-background-clip: text; background-clip: text; color: transparent;
+    margin-bottom: 18px; letter-spacing: .04em;
+  }
+  .gesture-hint-title {
+    font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .4em;
+    text-transform: uppercase; color: var(--crimson-2);
+    margin-bottom: 12px;
+  }
+  .gesture-hint-text {
+    font-family: 'Cormorant Garamond', serif; font-style: italic;
+    font-size: 1.3rem; color: var(--ink-2); margin-bottom: 28px;
+    max-width: 50ch;
+  }
+  .gesture-hint-cta {
+    display: inline-flex; align-items: center; gap: 12px;
+    padding: 14px 28px; border: 1px solid var(--crimson-dim);
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff; font-family: 'Cinzel', serif; font-size: 12px;
+    letter-spacing: .3em; text-transform: uppercase;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6);
+    animation: ctaPulse 2.4s ease-in-out infinite;
+  }
+  @keyframes ctaPulse {
+    0%, 100% { box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 8px 24px -8px rgba(179,38,30,.6); }
+    50%      { box-shadow: 0 0 0 1px rgba(255,255,255,.1) inset, 0 8px 32px -4px rgba(179,38,30,.9), 0 0 0 8px rgba(179,38,30,.08); }
+  }
+  .gesture-hint-cta svg { width: 16px; height: 16px; }
+  .audio-dock:hover { transform: translateY(-2px); box-shadow: 0 18px 40px -10px rgba(0,0,0,.7), 0 0 0 1px var(--crimson-dim); }
+  .audio-btn {
+    appearance: none; border: 0; cursor: pointer;
+    width: 40px; height: 40px; border-radius: 50%;
+    background: linear-gradient(180deg, var(--crimson), var(--crimson-dim));
+    color: #fff;
+    display: flex; align-items: center; justify-content: center;
+    box-shadow: 0 0 0 1px rgba(255,255,255,.05) inset, 0 4px 16px -4px rgba(179,38,30,.6);
+    transition: transform .15s var(--ease);
+  }
+  .audio-btn:hover { transform: scale(1.06); }
+  .audio-btn:active { transform: scale(.96); }
+  .audio-btn svg { width: 18px; height: 18px; }
+  .audio-meta { display: flex; flex-direction: column; line-height: 1.1; }
+  .audio-meta .title { font-family: 'Cinzel', serif; font-size: 10.5px; letter-spacing: .25em; text-transform: uppercase; color: var(--ink-1); }
+  .audio-meta .sub { font-family: 'Cormorant Garamond', serif; font-style: italic; font-size: 12px; color: var(--ink-3); margin-top: 2px; }
+  .audio-viz {
+    display: inline-flex; align-items: flex-end; gap: 2px; height: 18px; margin-left: 4px;
+  }
+  .audio-viz span {
+    display: inline-block; width: 2px; background: var(--crimson-2);
+    border-radius: 1px; height: 4px;
+    transition: height .2s var(--ease);
+  }
+  .audio-dock.is-playing .audio-viz span { animation: viz 1.2s ease-in-out infinite; }
+  .audio-dock.is-playing .audio-viz span:nth-child(1) { animation-delay: 0s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(2) { animation-delay: .15s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(3) { animation-delay: .3s; }
+  .audio-dock.is-playing .audio-viz span:nth-child(4) { animation-delay: .45s; }
+  @keyframes viz { 0%, 100% { height: 4px; } 50% { height: 16px; } }
+  .audio-vol { -webkit-appearance: none; appearance: none; background: transparent; width: 80px; height: 4px; margin-left: 6px; cursor: pointer; }
+  .audio-vol::-webkit-slider-runnable-track { background: var(--line); height: 2px; border-radius: 2px; }
+  .audio-vol::-webkit-slider-thumb { -webkit-appearance: none; appearance: none; width: 12px; height: 12px; border-radius: 50%; background: var(--crimson-2); margin-top: -5px; cursor: pointer; box-shadow: 0 0 8px rgba(179,38,30,.5); }
+  .audio-vol::-moz-range-track { background: var(--line); height: 2px; border-radius: 2px; }
+  .audio-vol::-moz-range-thumb { width: 12px; height: 12px; border: 0; border-radius: 50%; background: var(--crimson-2); cursor: pointer; box-shadow: 0 0 8px rgba(179,38,30,.5); }
+
+  @media (max-width: 880px) {
+    .hero { grid-template-columns: 1fr; gap: 32px; }
+    .card.is-featured { grid-template-columns: 1fr; }
+    .card.is-featured .card-portrait { aspect-ratio: 16 / 7; height: auto; border-right: 0; border-bottom: 1px solid var(--line); }
+    .geography { grid-template-columns: 1fr; }
+    .reader-body { padding: 24px 24px 36px; }
+    .reader-bar { position: static; flex-wrap: wrap; }
+    .reader-bar .meta { min-width: 100%; }
+  }
+  @media (max-width: 640px) {
+    .nav-tabs { display: none; }
+    .nav-burger { display: block; }
+    .nav-tabs.is-open { display: flex; position: absolute; top: 100%; left: 0; right: 0; flex-direction: column; background: var(--bg-1); border: 1px solid var(--line); border-radius: 0; padding: 8px; margin: 0 12px; }
+    .nav-tab { text-align: left; border-radius: 8px; padding: 12px 16px; }
+    .meta-grid { grid-template-columns: 1fr; }
+    .synopsis { padding: 24px 22px; }
+    main { padding: 24px 18px 100px; }
+    .audio-dock { bottom: 14px; right: 14px; left: 14px; justify-content: center; }
+    .audio-vol { display: none; }
+  }
+  @media (prefers-reduced-motion: reduce) {
+    .tab-panel.is-active { animation: none; }
+    .card, .card-portrait img { transition: none; }
+    .chapter .arrow { transition: none; }
+    .audio-dock.is-playing .audio-viz span { animation: none; }
+  }
+
+
+</style>
+</head>
+<body>
+<header class="nav" role="banner">
+  <div class="nav-inner">
+    <a href="../../index.html" class="brand" aria-label="Renegade Immortal FR — accueil">
+      <span class="dot" aria-hidden="true"></span>
+      <span>Renegade Immortal FR</span>
+      <small>· Xian Ni · 仙逆</small>
+    </a>
+    <button class="nav-burger" id="nav-burger" aria-label="Ouvrir le menu" aria-expanded="false">
+      <span></span><span></span><span></span>
+    </button>
+    <nav class="nav-tabs" id="nav-tabs" role="navigation" aria-label="Sections principales">
+      <a href="../../index.html" class="nav-tab">Accueil</a>
+      <a href="../../chapitres.html" class="nav-tab is-active">Chapitres</a>
+      <a href="../../personnages.html" class="nav-tab">Personnages</a>
+      <a href="../../univers.html" class="nav-tab">Univers</a>
+      <a href="../../wiki.html" class="nav-tab">Wiki</a>
+    </nav>
+  </div>
+</header>
+<main>
+
+  <section class="tab-panel is-active">
+    <nav class="breadcrumb">
+      <a href="../../chapitres.html">← Tous les livres</a> /
+      <a href="../book7-fame-shakes-allheaven-star-system.html">Tome 7</a>
+    </nav>
+    <div class="reader">
+      <div class="reader-bar">
+        <div class="meta">
+          <div class="num">Tome 7 · Chapitre 811</div>
+          <div class="title">Chapitre 811 - Les ailes du papillon (2)</div>
+        </div>
+        <div class="actions">
+          <a class="btn" href="../0810-chapitre-810-les-ailes-du-papillon-1.html">← Chapitre 810</a>
+          <a class="btn" href="../0812-chapitre-812-armure-de-cuir-de-lancien-dieu.html">Chapitre 812 →</a>
+          <a class="btn" href="../../chapitres.html">Fermer</a>
+        </div>
+      </div>
+      <div class="reader-body">
+        <p class="lead-paragraph">L&#x27;un des monstres de brume se mua en un oiseau à cinq serres et fonça vers un membre du clan immortel élu. Il emporta le membre du clan dans les airs et poussa un cri qui pénétra son corps. Ce dernier explosa alors en une brume de sang que le monstre de brume absorba aussitôt.</p>
+        <p>Même jusqu&#x27;à l&#x27;instant de sa mort, ce membre du clan n&#x27;opposa aucune résistance. Une trace de lutte subsistait dans ses yeux, mais elle était bien trop faible.</p>
+        <p>De l&#x27;autre côté, les autres monstres de brume encerclèrent les membres du clan immortel élu et les dévorèrent un par un. La zone fut immédiatement envahie par l&#x27;odeur du sang. Une aura de profonde tristesse et d&#x27;impuissance s&#x27;en dégageait.</p>
+        <p>Chaque membre du clan qui mourait ne pouvait rien faire. La tristesse dans leurs yeux était immense. Au moment de leur trépas, ils eurent une illumination au fond de leur cœur.</p>
+        <p>« Peut-être est-ce là la mission de mon clan... »</p>
+        <p>Ta Shan était agenouillé au sol, les genoux broyés. Il lutta pour relever la tête et contempla la mort de ses semblables. Un son semblable au rugissement d&#x27;une bête jaillit de sa gorge. Les veines de son visage saillirent alors qu&#x27;il tentait de résister à l&#x27;empreinte d&#x27;esclave, devenue un instinct pour son clan.</p>
+        <p>L&#x27;homme aux robes bleues observait tout cela avec une expression calme et un regard glacial.</p>
+        <p>Le corps de l&#x27;ancêtre du clan immortel élu trembla. Une bourrasque de vent souffla alors que le jeune homme derrière lui était projeté dans les airs par un monstre de brume et dévoré.</p>
+        <p>Le vieil homme leva inconsciemment la tête lorsqu&#x27;une goutte de sang chaud tomba sur son visage et glissa le long de sa joue. Ses yeux reflétaient une puissante indignation.</p>
+        <p>Il murmura : « Pourquoi... Pourquoi... »</p>
+        <p>À cet instant précis, un monstre de brume se précipita et entraîna le vieil homme dans les airs. Une force surgit du plus profond de son cœur et emplit tout son corps. Les yeux du vieil homme étaient noyés de tristesse alors qu&#x27;il fixait l&#x27;homme aux robes bleues et hurlait : « Pourquoi ?! »</p>
+        <p>Au cri du vieil homme, les membres du clan qui n&#x27;avaient pas encore été tués luttèrent pour relever la tête. Leurs regards suivirent ceux de l&#x27;ancêtre et se posèrent sur l&#x27;homme aux robes bleues.</p>
+        <p>Ces regards étaient empreints d&#x27;une tristesse et d&#x27;une colère infinies !</p>
+        <p>« Votre mission est de nourrir les monstres de brume, et il n&#x27;y a aucune autre raison. Je ne vous laisserai pas tous mourir, car j&#x27;ai besoin que vous engendriez les générations futures... » La voix de l&#x27;homme aux robes bleues était d&#x27;un calme absolu.</p>
+        <p>Soudain, l&#x27;un des monstres de brume fondit au loin. Sa cible : les enfants cachés à l&#x27;intérieur des bâtiments !</p>
+        <p>L&#x27;homme aux robes bleues fronça légèrement les sourcils, mais il ne les interrogea pas.</p>
+        <p>Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu&#x27;il était sur le point de s&#x27;effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s&#x27;effondra soudainement. L&#x27;homme fixa la créature qui fonçait vers les bâtiments ; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...</p>
+        <p>Les membres du clan immortel élu luttèrent pour se redresser. Des rugissements semblables à des grognements s&#x27;échappèrent de leurs bouches comme des possédés.</p>
+        <p>Bien que ses genoux fussent brisés, les yeux de Ta Shan étaient injectés de sang alors qu&#x27;il luttait pour se lever. Même si ses os devaient se fracasser à nouveau, il devait rester debout.</p>
+        <p>« Céleste... Céleste... Que croyez-vous que soit mon clan ?! Mon clan a gardé le Fourneau du Yin Mystérieux pendant d&#x27;innombrables années, et qu&#x27;avons-nous obtenu ?! Rien d&#x27;autre que ces monstres de brume et les morts innombrables de mes semblables !</p>
+        <p>« Je sais enfin que ces monstres de brume étaient ce que mon clan devait garder. Que la mission de mon clan était de devenir la nourriture de ces monstres !</p>
+        <p>« Puisqu&#x27;il en est ainsi, je résisterai. Même si mon corps se brise, je ne céderai pas ! » Le rugissement de Ta Shan finit par déchirer sa gorge.</p>
+        <p>Non seulement lui, mais tous les membres du clan immortel élu poussèrent des hurlements. Les plantes entre leurs sourcils brillèrent intensément alors qu&#x27;ils luttaient pour se tenir debout.</p>
+        <p>L&#x27;expression de l&#x27;homme aux robes bleues resta froide et il déclara avec un soupçon de mépris : « Autrefois, votre clan a perdu et est devenu esclave. C&#x27;est votre destin ! Vous ne pouvez pas le changer ! »</p>
+        <p>Tout en parlant, il leva sa main droite et pressa le bas, provoquant une série d&#x27;explosions. Le sang jaillit du corps des membres du clan immortel élu, les empêchant de se relever.</p>
+        <p>Seul Ta Shan chargea dans un rugissement. Au moment où il s&#x27;élança, des explosions résonnèrent dans son propre corps alors que ses os se brisaient, mais il continua sa course !</p>
+        <p>Les yeux de l&#x27;homme aux robes bleues s&#x27;illuminèrent et il pointa du doigt. Wang Lin soupira. À l&#x27;origine, il ne voulait pas s&#x27;immiscer. L&#x27;origine de cet homme aux robes bleues était très mystérieuse : c&#x27;était en réalité un être céleste !</p>
+        <p>Cependant, dans un soupir, il ouvrit la bouche et le fragment s&#x27;envola. Dès son apparition, il fila entre Ta Shan et l&#x27;homme aux robes bleues.</p>
+        <p>Les yeux de l&#x27;homme aux robes bleues brillèrent et son regard se fit glacial. Sa main droite traça un sceau et une rune chargée d&#x27;énergie spirituelle céleste fut projetée vers Wang Lin.</p>
+        <p>« Je pensais que vous n&#x27;agiriez pas ! » L&#x27;homme d&#x27;âge mûr se pencha en avant, poursuivant la rune pour se précipiter vers Wang Lin.</p>
+        <p>La main droite de Wang Lin pointa le fragment, le faisant pivoter pour qu&#x27;il percute l&#x27;homme aux robes bleues. Simultanément, Wang Lin apparut aux côtés de Ta Shan. Sa main gauche toucha ce dernier et injecta une part d&#x27;énergie originelle dans son corps.</p>
+        <p>Le corps de Ta Shan fut immédiatement projeté vers le monstre de brume qui chargeait les bâtiments.</p>
+        <p>Après cela, Wang Lin se retourna ; ses deux doigts formèrent une épée et tranchèrent aussitôt l&#x27;air. La rune qui arrivait s&#x27;effondra instantanément, se transformant en ondulations qui se dissipèrent rapidement.</p>
+        <p>À ce moment, le fragment se posa et les yeux de l&#x27;homme aux robes bleues devinrent froids. Il forma un sceau, l&#x27;énergie spirituelle céleste à l&#x27;intérieur de son corps déferla, et une lance apparut dans sa main.</p>
+        <p>Cette lance était d&#x27;un blanc pur et exhalait une riche énergie spirituelle céleste. Il laissa échapper un rire en frappant le fragment avec sa lance.</p>
+        <p>Un fracas retentit et l&#x27;homme aux robes bleues fut projeté en arrière. Son regard devint sérieux, mais le fragment fut également repoussé de plusieurs dizaines de pieds.</p>
+        <p>Alors que l&#x27;homme d&#x27;âge mûr reculait, il cria : « Misérables esclaves, attaquez avec moi ! »</p>
+        <p>Lorsque sa voix atteignit les oreilles des membres du clan immortel élu qui luttaient, l&#x27;ordre devint un instinct auquel ils ne purent résister. Leurs yeux étaient remplis de tristesse et de lutte, mais leurs corps se précipitèrent tous vers Wang Lin.</p>
+        <p>Les yeux de Wang Lin s&#x27;illuminèrent et il recula. Le papillon formé par le Char d&#x27;Extermination des Dieux suivait toujours Wang Lin. Puisque ce dernier reculait, la créature le suivait comme une ombre.</p>
+        <p>Wang Lin eut une pensée. Il ne connaissait pas encore toute la puissance du troisième Char d&#x27;Extermination des Dieux. Ses yeux brillèrent alors que sa main droite formait un sceau qu&#x27;il pressa sur le corps du papillon.</p>
+        <p>Une intention meurtrière apparut dans les yeux de Wang Lin tandis qu&#x27;il pointait l&#x27;homme aux robes bleues.</p>
+        <p>Le papillon ne bougea pas, ses ailes frémissant doucement, mais cette fois, le mouvement était plus vif. Une poudre multicolore tomba de ses ailes et commença à remplir lentement la zone.</p>
+        <p>L&#x27;homme aux robes bleues s&#x27;arrêta net, le regard empreint de prudence. Il avait remarqué le papillon depuis longtemps ; c&#x27;était lui qui lui inspirait un sentiment d&#x27;effroi. Autrement, il aurait déjà attaqué au lieu d&#x27;attendre jusqu&#x27;ici.</p>
+        <p>Les membres du clan immortel élu furent projetés dans les airs sans aucun contrôle et volèrent vers Wang Lin. La lutte dans leurs yeux s&#x27;intensifia, mais ils ne pouvaient rien contre la puissance de l&#x27;empreinte d&#x27;esclave.</p>
+        <p>Les yeux de Wang Lin brillèrent alors qu&#x27;il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char d&#x27;Extermination des Dieux. Le papillon quitta le côté de Wang Lin et s&#x27;élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau !</p>
+        <p>Ce battement ne provoqua aucune perturbation physique, mais le visage de l&#x27;homme vigilant aux robes bleues, au loin, pâlit soudainement. Aucun vent ne soufflait autour de lui, et pourtant ses cheveux volèrent en arrière comme sous une légère brise.</p>
+        <p>Un choc retentit dans son corps, le faisant sursauter en arrière tandis qu&#x27;il crachait une bouchée de sang. La brume de sang se condensa en un papillon qui, dès son apparition, battit des ailes.</p>
+        <p>Un second choc secoua la poitrine de l&#x27;homme aux robes bleues et le sang jaillit. Ce sang se mua en un autre papillon qui battit des ailes à son tour.</p>
+        <p>Alors que les impacts se succédaient, l&#x27;homme fut constamment repoussé. À chaque fois, une quantité massive de sang jaillissait pour se transformer en papillon. Chaque battement d&#x27;ailes de ces créatures lui infligeait des dommages inimaginables.</p>
+        <p>Ses yeux étaient emplis d&#x27;horreur et même d&#x27;une trace de terreur. Il ne pouvait absolument pas résister. C&#x27;était comme si tout ce qui se trouvait dans son corps ne lui appartenait plus, scellé par une puissance mystérieuse.</p>
+        <p>Le papillon réapparut une fois de plus et l&#x27;homme fut de nouveau projeté en arrière. Cela continua jusqu&#x27;à ce qu&#x27;il soit repoussé à plus de 10 000 pieds. La peur dans ses yeux avait atteint son paroxysme.</p>
+        <p>Dans un ultime effort, l&#x27;homme aux robes bleues siffla : « Foudre, explose ! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.</p>
+        <p>En utilisant cette explosion, il parvint à reprendre temporairement le contrôle de son corps, mais son visage était d&#x27;une pâleur cadavérique. Il était terrifié, et cette peur occupait presque tout son être.</p>
+        <p>« Quel sortilège est-ce là !?! Quel genre de trésor est-ce là !?! » Il n&#x27;avait jamais vu un tel objet étrange de sa vie. Un simple battement d&#x27;ailes du papillon avait failli le faire s&#x27;effondrer.</p>
+        <p>À cet instant, il chargea vers l&#x27;autel pour tenter de s&#x27;échapper.</p>
+        <p>Les yeux de Wang Lin se rétrécirent et il prit une inspiration glacée. Il entretenait un lien mystérieux avec le Char d&#x27;Extermination des Dieux, et il sentait que ce char n&#x27;avait pas encore déployé son attaque la plus puissante.</p>
+        <p>Juste à ce moment-là, le papillon multicolore à côté de Wang Lin battit doucement de son aile gauche !</p>
+        <p>L&#x27;homme d&#x27;âge mûr qui s&#x27;enfuyait rapidement venait de franchir le seuil de l&#x27;autel. Soudain, son corps trembla et ses yeux se remplirent d&#x27;incrédulité. Son être commença à se dissiper en partant de ses pieds et, en un instant, il disparut totalement.</p>
+        <p>L&#x27;homme aux robes bleues était mort. Quelque part dans la Bête du Néant, au sein d&#x27;un vide noir infini, une personne était assise dans l&#x27;obscurité, exhalant une brume noire. Ce qui était étrange, c&#x27;est que de l&#x27;énergie spirituelle céleste émanait de cette brume.</p>
+        <p>À cet instant, il ouvrit soudainement les yeux et regarda droit devant lui, le regard chargé de choc.</p>
+        <p>« Être capable de détruire mon avatar si facilement... Quel genre de trésor est-ce là ?! »</p>
+      </div>
+    </div>
+  </section>
+
+</main>
+<footer>
+  <div class="seal">Renegade Immortal FR</div>
+  <div>Traduction communautaire non-officielle · Contenu via <a class="fandom-link" href="https://xian-ni.fandom.com/wiki/Xian_Ni_Wikia" target="_blank" rel="noopener">Xian Ni Fandom Wiki</a> (CC BY-SA) · <a href="../../LICENSE.txt" class="fandom-link">MIT/CC0</a></div>
+</footer>
+<div class="gesture-hint" id="gesture-hint" role="dialog" aria-label="Cliquez pour activer le son">
+  <div class="gesture-hint-inner">
+    <div class="gesture-hint-glyph">仙</div>
+    <div class="gesture-hint-title">Renegade Immortal</div>
+    <div class="gesture-hint-text">Cliquez pour entrer dans le monde de Wang Lin — la musique d'ambiance s'activera.</div>
+    <div class="gesture-hint-cta">
+      <svg viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
+      <span>Entrer</span>
+    </div>
+  </div>
+</div>
+<div class="audio-dock" id="audio-dock" role="region" aria-label="Musique d'ambiance">
+  <button class="audio-btn" id="audio-btn" aria-label="L'OST Xian Ni démarre automatiquement" aria-pressed="true">
+    <svg id="icon-play" viewBox="0 0 24 24" fill="currentColor" aria-hidden="true"><path d="M8 5v14l11-7z"/></svg>
+    <svg id="icon-pause" viewBox="0 0 24 24" fill="currentColor" style="display:none" aria-hidden="true"><path d="M6 5h4v14H6zM14 5h4v14h-4z"/></svg>
+  </button>
+  <div class="audio-meta">
+    <div class="title">OST Xian Ni</div>
+    <div class="sub">All Instrument · ANimeMuzic</div>
+  </div>
+  <div class="audio-viz" aria-hidden="true"><span></span><span></span><span></span><span></span></div>
+  <input class="audio-vol" id="audio-vol" type="range" min="0" max="100" value="40" aria-label="Volume" />
+</div>
+<div id="yt-player-host"></div>
+<script>
+
+  const CHAPTERS_DATA = (window.__PAGE_DATA__ && window.__PAGE_DATA__.chapters) || [];
+  const WIKI_DATA = (window.__PAGE_DATA__ && window.__PAGE_DATA__.wiki) || [];
+(function () {
+  'use strict';
+
+  // ============================================
+  // TAB SWITCHING
+  // ============================================
+  const tabs = document.querySelectorAll('.nav-tab, .brand');
+  const panels = {
+    home: document.getElementById('panel-home'),
+    chapters: document.getElementById('panel-chapters'),
+    characters: document.getElementById('panel-characters'),
+    lore: document.getElementById('panel-lore'),
+    wiki: document.getElementById('panel-wiki')
+  };
+  function switchTab(target) {
+    if (!panels[target]) return;
+    document.querySelectorAll('.nav-tab').forEach(t => { t.classList.toggle('is-active', t.dataset.tab === target); });
+    Object.entries(panels).forEach(([k, el]) => { el.classList.toggle('is-active', k === target); });
+    window.scrollTo({ top: 0, behavior: 'smooth' });
+    document.getElementById('nav-tabs').classList.remove('is-open');
+    document.getElementById('nav-burger').setAttribute('aria-expanded', 'false');
+  }
+  tabs.forEach(t => { t.addEventListener('click', (e) => { e.preventDefault(); switchTab(t.dataset.tab); }); });
+
+  const burger = document.getElementById('nav-burger');
+  const navTabs = document.getElementById('nav-tabs');
+  burger.addEventListener('click', () => {
+    const open = navTabs.classList.toggle('is-open');
+    burger.setAttribute('aria-expanded', String(open));
+  });
+
+  // ============================================
+  // CHAPTERS — v4 complète, fetch à la demande
+  // ============================================
+  const CHAPTERS = CHAPTERS_DATA;  // injecté en <script type="application/json">
+  const grid      = document.getElementById('chapters-grid');
+  const empty     = document.getElementById('chapters-empty');
+  const search    = document.getElementById('chapter-search');
+  const tomeSel   = document.getElementById('tome-filter');
+  const statsEl   = document.getElementById('chapters-stats');
+  const reader    = document.getElementById('chapter-reader');
+  const readerNum = document.getElementById('reader-chap-num');
+  const readerTitle = document.getElementById('reader-chap-title');
+  const readerBody  = document.getElementById('reader-body');
+  const readerPrev  = document.getElementById('reader-prev');
+  const readerNext  = document.getElementById('reader-next');
+  const readerClose = document.getElementById('reader-close');
+  const MAX_VISIBLE = 250;
+  let currentChapIdx = -1;
+  let filteredChaps = CHAPTERS.slice();
+
+  // populate tome selector
+  const bookTitles = {};
+  CHAPTERS.forEach(c => { bookTitles[c.book] = c.bookTitle; });
+  Object.keys(bookTitles).sort((a, b) => +a - +b).forEach(b => {
+    const opt = document.createElement('option');
+    opt.value = b;
+    opt.textContent = 'Tome ' + b + ' — ' + bookTitles[b] + ' (' + CHAPTERS.filter(c => c.book == b).length + ')';
+    tomeSel.appendChild(opt);
+  });
+
+  function renderChapters() {
+    const q = (search.value || '').toLowerCase().trim();
+    const tome = tomeSel.value;
+    filteredChaps = CHAPTERS.filter(c => {
+      const matchT = tome === 'all' || String(c.book) === tome;
+      if (!matchT) return false;
+      if (!q) return true;
+      const hay = (c.n + ' ' + c.title + ' ' + c.en + ' ' + c.preview).toLowerCase();
+      return hay.includes(q);
+    });
+    statsEl.textContent = filteredChaps.length + ' / ' + CHAPTERS.length + ' chapitres';
+    grid.innerHTML = '';
+    if (filteredChaps.length === 0) { empty.hidden = false; return; }
+    empty.hidden = true;
+    const limit = Math.min(filteredChaps.length, MAX_VISIBLE);
+    const frag = document.createDocumentFragment();
+    for (let i = 0; i < limit; i++) {
+      const c = filteredChaps[i];
+      const a = document.createElement('a');
+      a.className = 'chapter';
+      a.setAttribute('role', 'listitem');
+      a.href = '#chapitre-' + c.n;
+      a.dataset.idx = String(i);
+      a.innerHTML = '<span class="title">' + c.title.replace(/</g, '&lt;') + '</span>' +
+                    '<span class="arrow" aria-hidden="true">›</span>';
+      a.addEventListener('click', (e) => {
+        e.preventDefault();
+        openChapter(parseInt(a.dataset.idx, 10));
+      });
+      frag.appendChild(a);
+    }
+    grid.appendChild(frag);
+    if (filteredChaps.length > limit) {
+      const note = document.createElement('div');
+      note.className = 'empty';
+      note.textContent = '... ' + (filteredChaps.length - limit) + ' chapitres supplémentaires. Affinez votre recherche pour en voir plus.';
+      grid.appendChild(note);
+    }
+  }
+
+  function openChapter(idx) {
+    if (idx < 0 || idx >= filteredChaps.length) return;
+    currentChapIdx = idx;
+    const c = filteredChaps[idx];
+    readerNum.textContent = 'Tome ' + c.book + ' · Chapitre ' + c.n;
+    readerTitle.textContent = c.title;
+    readerBody.innerHTML = '<div class="reader-loading">Chargement du chapitre...</div>';
+    reader.hidden = false;
+    readerPrev.disabled = idx === 0;
+    readerNext.disabled = idx === filteredChaps.length - 1;
+    reader.scrollIntoView({ behavior: 'smooth', block: 'start' });
+    // fetch chapter text
+    fetch(c.file, { cache: 'force-cache' })
+      .then(r => {
+        if (!r.ok) throw new Error('HTTP ' + r.status);
+        return r.text();
+      })
+      .then(text => {
+        // retire BOM, split en paragraphes
+        text = text.replace(/^\uFEFF/, '');
+        const lines = text.split(/\n+/);
+        // 1ère ligne = titre (on l'ignore dans le body)
+        const paragraphs = lines.slice(1).map(l => l.trim()).filter(l => l.length > 0);
+        if (paragraphs.length === 0) {
+          readerBody.innerHTML = '<div class="reader-error">Chapitre vide.</div>';
+          return;
+        }
+        const html = paragraphs.map((p, i) =>
+          '<p' + (i === 0 ? ' class="lead-paragraph"' : '') + '>' + p.replace(/</g, '&lt;') + '</p>'
+        ).join('');
+        readerBody.innerHTML = html;
+      })
+      .catch(err => {
+        // Fallback: fetch via file:// interdit → message d'instruction serveur
+        readerBody.innerHTML =
+          '<div class="reader-error">' +
+          '<p><strong>Impossible de charger le contenu</strong> (fetch bloqué en file://).<br>' +
+          'Lance le site via un mini serveur HTTP :</p>' +
+          '<code>cd &quot;S:\\Livres\\EBOOK\\Renegade Immortal&quot; &amp;&amp; python -m http.server 8000</code>' +
+          '<p style="margin-top:14px">Puis ouvre <code>http://localhost:8000/renegade-immortal-fr.html</code></p>' +
+          '<p style="margin-top:14px;font-size:12px;color:var(--ink-3);">Erreur technique : ' + (err.message || err) + '</p>' +
+          '</div>';
+      });
+  }
+
+  readerPrev.addEventListener('click', () => openChapter(currentChapIdx - 1));
+  readerNext.addEventListener('click', () => openChapter(currentChapIdx + 1));
+  readerClose.addEventListener('click', () => { reader.hidden = true; });
+
+  search.addEventListener('input', renderChapters);
+  tomeSel.addEventListener('change', renderChapters);
+  renderChapters();
+
+  // ============================================
+  // WIKI FAN-DOM — indexation + recherche + lecteur
+  // ============================================
+  const WIKI = WIKI_DATA;
+  const wikiGrid    = document.getElementById('wiki-grid');
+  const wikiEmpty   = document.getElementById('wiki-empty');
+  const wikiSearch  = document.getElementById('wiki-search');
+  const wikiCat     = document.getElementById('wiki-cat-filter');
+  const wikiStats   = document.getElementById('wiki-stats');
+  const wikiReader  = document.getElementById('wiki-reader');
+  const WIKI_PAGE_LIMIT = 200;
+
+  // populate category filter (top 30 cats)
+  const catCount = {};
+  WIKI.forEach(w => (w.categories || []).forEach(c => { catCount[c] = (catCount[c] || 0) + 1; }));
+  const topCats = Object.entries(catCount).sort((a, b) => b[1] - a[1]).slice(0, 30);
+  topCats.forEach(([c, n]) => {
+    const opt = document.createElement('option');
+    opt.value = c;
+    opt.textContent = c + ' (' + n + ')';
+    wikiCat.appendChild(opt);
+  });
+
+  function renderWiki() {
+    const q = (wikiSearch.value || '').toLowerCase().trim();
+    const cat = wikiCat.value;
+    const filtered = WIKI.filter(w => {
+      if (cat !== 'all' && !(w.categories || []).includes(cat)) return false;
+      if (!q) return true;
+      const hay = (w.name + ' ' + w.title + ' ' + (w.preview || '')).toLowerCase();
+      return hay.includes(q);
+    });
+    wikiStats.textContent = filtered.length + ' / ' + WIKI.length + ' pages';
+    wikiGrid.innerHTML = '';
+    if (filtered.length === 0) { wikiEmpty.hidden = false; wikiReader.hidden = true; return; }
+    wikiEmpty.hidden = true;
+    const limit = Math.min(filtered.length, WIKI_PAGE_LIMIT);
+    const frag = document.createDocumentFragment();
+    for (let i = 0; i < limit; i++) {
+      const w = filtered[i];
+      const card = document.createElement('article');
+      card.className = 'wiki-card';
+      card.dataset.name = w.name;
+      const catsHtml = (w.categories || []).slice(0, 4).map(c =>
+        '<span class="cat' + (i === 0 ? ' is-main' : '') + '">' + c.replace(/</g, '&lt;') + '</span>'
+      ).join('');
+      card.innerHTML =
+        '<div class="name">' + w.name.replace(/</g, '&lt;') + '</div>' +
+        '<div class="cats">' + catsHtml + '</div>' +
+        (w.preview ? '<div class="preview">' + w.preview.replace(/</g, '&lt;') + '</div>' : '') +
+        '<div class="size-hint">' + Math.round(w.size / 1024) + ' KB</div>';
+      // Navigate to the dedicated wiki page
+      const slug = (w.slug) || w.name.toLowerCase().replace(/[^\w]+/g, '-').replace(/^-|-$/g, '') || 'x';
+      card.addEventListener('click', () => { window.location.href = 'wiki/' + slug + '.html'; });
+      frag.appendChild(card);
+    }
+    wikiGrid.appendChild(frag);
+    if (filtered.length > limit) {
+      const note = document.createElement('div');
+      note.className = 'empty';
+      note.textContent = '... ' + (filtered.length - limit) + ' pages supplémentaires. Affinez votre recherche.';
+      wikiGrid.appendChild(note);
+    }
+  }
+
+  function openWikiPage(meta) {
+    wikiReader.hidden = false;
+    wikiReader.innerHTML = '<div class="reader-loading">Chargement de la page wiki : ' + meta.name + '...</div>';
+    wikiReader.scrollIntoView({ behavior: 'smooth', block: 'start' });
+    fetch(meta.file, { cache: 'force-cache' })
+      .then(r => {
+        if (!r.ok) throw new Error('HTTP ' + r.status);
+        return r.json();
+      })
+      .then(data => {
+        renderWikiPage(data, meta);
+      })
+      .catch(err => {
+        wikiReader.innerHTML =
+          '<div class="reader-error">' +
+          '<p><strong>Impossible de charger la page wiki</strong> (fetch bloqué en file://).</p>' +
+          '<code>cd &quot;S:\\Livres\\EBOOK\\Renegade Immortal&quot; &amp;&amp; python -m http.server 8000</code>' +
+          '<p style="margin-top:14px">Puis ouvre <code>http://localhost:8000/renegade-immortal-fr.html</code></p>' +
+          '<p style="margin-top:14px;font-size:12px;color:var(--ink-3);">Erreur : ' + (err.message || err) + '</p>' +
+          '</div>';
+      });
+  }
+
+  function renderWikiPage(data, meta) {
+    const content = data.content || '';
+    // parse sections
+    const ovs = [...content.matchAll(/^Overview$/gm)];
+    const bodyStart = ovs.length >= 2 ? ovs[1].index : (ovs[0] ? ovs[0].index : 0);
+    const body = content.slice(bodyStart).replace(/\[\s*\n\s*\]/g, '');
+    const blocks = body.split(/\n\n+/).map(b => b.trim()).filter(Boolean);
+    const KNOWN = new Set(['Overview','Personality','Background','History','Appearance','Manhua','Trivia','Links and References','Cultivation','Techniques','Items','Relationships','Fights','Quotes','Image Gallery','Description','Legacy','Abilities','Powers and Abilities','Equipment','Weaknesses','Gallery','Quote']);
+    const isTitle = (b) => {
+      if (KNOWN.has(b)) return true;
+      if (/^Book \d+/.test(b)) return true;
+      if (/^Chapter \d+\b/.test(b)) return true;
+      if (b.length > 80) return false;
+      if (/[.!?,;]$/.test(b)) return false;
+      if (!/^[A-Z]/.test(b)) return false;
+      if (b.includes(':')) return false;
+      if (/^\d+(\.\d+)*$/.test(b)) return false;
+      if (/^\[\d+\]$/.test(b)) return false;
+      if (/[.!?,;]/.test(b)) return false;
+      return true;
+    };
+    const sections = [];
+    let current = null, buf = [];
+    for (const b of blocks) {
+      if (b === 'Overview' || isTitle(b)) {
+        if (current && buf.length) sections.push([current, buf]);
+        current = b;
+        buf = [];
+      } else {
+        const cleaned = b.replace(/\[\d+\]/g, '').replace(/\s+/g, ' ').trim();
+        if (cleaned.length > 40) buf.push(cleaned);
+      }
+    }
+    if (current && buf.length) sections.push([current, buf]);
+
+    // === Image gallery (from local assets) ===
+    let galleryHtml = '';
+    if (meta.images && meta.images.length > 0) {
+      // Filter out placeholders
+      const real = meta.images.filter(img => {
+        const n = img.name.toLowerCase();
+        return !n.includes('no-image') && !n.includes('no_image');
+      });
+      if (real.length > 0) {
+        // Take up to 6 images
+        const shown = real.slice(0, 6);
+        const more = real.length - shown.length;
+        galleryHtml = '<div class="wiki-gallery">' +
+          shown.map((img, i) => {
+            const alt = esc(img.name);
+            return '<a href="' + img.path + '" target="_blank" rel="noopener" class="wiki-gallery-item' + (i === 0 ? ' is-main' : '') + '">' +
+              '<img src="' + img.path + '" alt="' + alt + '" loading="lazy" onerror="this.parentNode.style.display=\'none\'"/>' +
+              (i === 0 ? '<span class="wiki-gallery-label">Image principale</span>' : '') +
+            '</a>';
+          }).join('') +
+          (more > 0 ? '<div class="wiki-gallery-more">+' + more + ' autres</div>' : '') +
+        '</div>';
+      }
+    }
+
+    const cats = (meta.categories || []).map(c => '<span class="cat">' + esc(c) + '</span>').join('');
+    const sectHtml = sections.map(([title, paras]) => {
+      if (paras.length === 0) return '';
+      const isFirst = (sections.indexOf([title, paras]) === 0);
+      const heading = isFirst ? '<h2>' + esc(title) + '</h2>' : '<h3>' + esc(title) + '</h3>';
+      return heading + paras.map(p => '<p>' + esc(p) + '</p>').join('');
+    }).join('');
+
+    // === External FR sources footer (only for the main Xian Ni page) ===
+    let externalHtml = '';
+    if (data.title === 'Xian Ni' || data.title === 'Xian Ni Wikia' || data.title === 'Renegade Immortal') {
+      externalHtml = '<div class="wiki-external-sources">' +
+        '<h3>Sources complémentaires (FR)</h3>' +
+        '<p>Pour aller plus loin, voici des ressources externes sur l\'œuvre :</p>' +
+        '<ul>' +
+          '<li><a class="fandom-link" href="https://baike.baidu.com/fr/item/Immortel%20Ren%C3%A9gat/1295062" target="_blank" rel="noopener">Baidu Encyclopédie — Immortel Renégat</a> (résumé encyclopédique complet : intrigue, système de cultivation, géographie, factions, personnages)</li>' +
+          '<li><a class="fandom-link" href="https://cultivationfr.com/2026/01/renegade-immortal/" target="_blank" rel="noopener">CultivationFR — Présentation complète</a> (analyse éditoriale : ton, univers, héros)</li>' +
+        '</ul>' +
+      '</div>';
+    }
+
+    wikiReader.innerHTML =
+      '<div style="display:flex;justify-content:space-between;align-items:start;gap:16px;flex-wrap:wrap;">' +
+        '<h2>' + esc(data.title) + '</h2>' +
+        '<button class="btn" id="wiki-reader-close" style="appearance:none;background:transparent;border:1px solid var(--line);color:var(--ink-2);padding:6px 12px;font-family:Cinzel,serif;font-size:10.5px;letter-spacing:.15em;text-transform:uppercase;cursor:pointer;border-radius:var(--r-md);">Fermer ✕</button>' +
+      '</div>' +
+      '<div class="wikicats">' + cats + '</div>' +
+      (data.url ? '<a class="fandom-link" href="' + esc(data.url) + '" target="_blank" rel="noopener" style="font-size:13px;">Voir sur Fandom Wiki →</a>' : '') +
+      galleryHtml +
+      sectHtml +
+      externalHtml;
+
+    document.getElementById('wiki-reader-close').addEventListener('click', () => {
+      wikiReader.hidden = true;
+    });
+  }
+
+  function esc(s) {
+    return String(s).replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;').replace(/"/g, '&quot;');
+  }
+
+  wikiSearch.addEventListener('input', renderWiki);
+  wikiCat.addEventListener('change', renderWiki);
+  renderWiki();
+
+  // Keyboard nav
+  const order = ['home', 'chapters', 'characters', 'lore', 'wiki'];
+  document.addEventListener('keydown', (e) => {
+    if (e.target.matches('input, select, textarea')) return;
+    if (e.key !== 'ArrowLeft' && e.key !== 'ArrowRight') return;
+    const active = document.querySelector('.nav-tab.is-active');
+    if (!active) return;
+    const idx = order.indexOf(active.dataset.tab);
+    const next = e.key === 'ArrowRight' ? order[(idx + 1) % order.length] : order[(idx - 1 + order.length) % order.length];
+    switchTab(next);
+    document.querySelector('.nav-tab[data-tab="' + next + '"]').focus();
+  });
+
+  // ============================================
+  // YOUTUBE IFRAME API — OST Xian Ni
+  // ============================================
+  // L'API YouTube appelle onYouTubeIframeAPIReady() quand prête.
+  // On garde un player caché (1x1px) qui streame l'OST.
+  const YT_VIDEO_ID = 'bXJKwYzz5mw';
+  const LS_KEY = 'ri_audio_v1';
+  const Audio = (function () {
+    let player = null;
+    let ready = false;
+    let playing = false;
+    let volume = 40; // 0..100
+    let loadTimer = null;
+    let loadAttempts = 0;
+    const subs = [];  // subscribers au changement d'état (pour l'UI)
+
+    function emit(event, data) { subs.forEach(fn => { try { fn(event, data); } catch (e) {} }); }
+
+    function save() {
+      try { localStorage.setItem(LS_KEY, JSON.stringify({ playing, volume })); } catch (e) {}
+    }
+    function load() {
+      try {
+        const s = JSON.parse(localStorage.getItem(LS_KEY) || '{}');
+        if (typeof s.volume === 'number') volume = Math.max(0, Math.min(100, s.volume));
+      } catch (e) {}
+    }
+    load();
+
+    // API YT appelle ce nom globalement quand le SDK est prêt
+    window.onYouTubeIframeAPIReady = function () {
+      try {
+        player = new YT.Player('yt-player-host', {
+          height: '1', width: '1',
+          videoId: YT_VIDEO_ID,
+          playerVars: {
+            autoplay: 0,
+            controls: 0,
+            disablekb: 1,
+            fs: 0,
+            modestbranding: 1,
+            playsinline: 1,
+            rel: 0,
+            origin: window.location.origin
+          },
+          events: {
+            onReady: function (e) {
+              ready = true;
+              // applique le volume persisté
+              try { e.target.setVolume(volume); } catch (err) {}
+              // Si l'utilisateur avait laissé "playing" avant refresh, on ne relance PAS
+              // (les navigateurs bloquent l'autoplay sans gesture)
+              emit('ready');
+            },
+            onStateChange: function (e) {
+              // YT.PlayerState.ENDED = 0, PLAYING = 1, PAUSED = 2, BUFFERING = 3
+              if (e.data === 1) { playing = true; emit('play'); }
+              else if (e.data === 2 || e.data === 0) { playing = false; emit('pause'); }
+            },
+            onError: function (e) {
+              console.warn('YouTube player error', e);
+              emit('error', e);
+            }
+          }
+        });
+      } catch (err) {
+        console.warn('YT.Player init failed', err);
+        emit('error', err);
+      }
+    };
+
+    // Timeout: si l'API ne répond pas en 8s, on notifie l'UI
+    function startLoadWatchdog() {
+      loadTimer = setTimeout(function () {
+        if (!ready) {
+          loadAttempts++;
+          if (loadAttempts < 2) {
+            // retry une fois (parfois le SDK est lent au 1er load)
+            const s = document.createElement('script');
+            s.src = 'https://www.youtube.com/iframe_api';
+            s.onload = function () { startLoadWatchdog(); };
+            document.head.appendChild(s);
+          } else {
+            emit('error', 'timeout');
+          }
+        }
+      }, 8000);
+    }
+    startLoadWatchdog();
+
+    function setPlaying(p) {
+      if (!ready || !player) { emit('error', 'not-ready'); return; }
+      try {
+        if (p) player.playVideo();
+        else player.pauseVideo();
+        // l'event onStateChange va flipper `playing`
+        playing = p;
+        save();
+      } catch (err) { emit('error', err); }
+    }
+    function setVolume(v) {
+      volume = Math.max(0, Math.min(100, v));
+      if (ready && player) { try { player.setVolume(volume); } catch (e) {} }
+      save();
+    }
+    function isPlaying() { return playing; }
+    function isReady() { return ready; }
+    function subscribe(fn) { subs.push(fn); }
+
+    return { setPlaying, setVolume, isPlaying, isReady, subscribe };
+  })();
+
+  // Wire UI
+  const dock = document.getElementById('audio-dock');
+  const btn  = document.getElementById('audio-btn');
+  const iconPlay  = document.getElementById('icon-play');
+  const iconPause = document.getElementById('icon-pause');
+  const vol  = document.getElementById('audio-vol');
+
+  // Position du slider selon état persisté
+  vol.value = String(Math.round(Audio.isReady() ? (player?._lastVol || 40) : 40));
+
+  Audio.subscribe(function (event, data) {
+    if (event === 'ready') {
+      dock.classList.remove('is-loading');
+      btn.setAttribute('aria-label', 'Lire l\'OST Xian Ni');
+      const v = parseInt(vol.value, 10);
+      if (!isNaN(v)) Audio.setVolume(v);
+      // si l'overlay a déjà été dismissé (réutilisation), lance la lecture
+      if (window.__ri_gesture_done && !Audio.isPlaying()) {
+        Audio.setPlaying(true);
+        dock.classList.add('is-playing');
+      }
+    }
+    if (event === 'play') {
+      btn.setAttribute('aria-pressed', 'true');
+      btn.setAttribute('aria-label', 'Mettre en pause l\'OST Xian Ni');
+      iconPlay.style.display  = 'none';
+      iconPause.style.display = '';
+      dock.classList.add('is-playing');
+      dock.classList.remove('is-loading');
+    }
+    if (event === 'pause') {
+      btn.setAttribute('aria-pressed', 'false');
+      btn.setAttribute('aria-label', 'Lire l\'OST Xian Ni');
+      iconPlay.style.display  = '';
+      iconPause.style.display = 'none';
+      dock.classList.remove('is-playing');
+    }
+    if (event === 'error') {
+      console.warn('Audio error', data);
+      dock.classList.remove('is-loading');
+      dock.classList.add('is-error');
+      btn.setAttribute('aria-label', 'Musique indisponible — réessaie plus tard');
+      iconPlay.style.display  = '';
+      iconPause.style.display = 'none';
+    }
+  });
+
+  // État initial UI: bouton "on" par défaut
+  dock.classList.add('is-loading');
+  btn.setAttribute('aria-label', 'L\'OST Xian Ni démarre automatiquement');
+  btn.setAttribute('aria-pressed', 'true');
+  iconPlay.style.display  = 'none';
+  iconPause.style.display = '';
+  dock.classList.add('is-playing');
+
+  btn.addEventListener('click', function () {
+    if (dock.classList.contains('is-error')) return;
+    if (!Audio.isReady()) {
+      dock.classList.add('is-loading');
+      return;
+    }
+    Audio.setPlaying(!Audio.isPlaying());
+  });
+
+  // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
+  const gestureHint = document.getElementById('gesture-hint');
+  function dismissGesture() {
+    if (gestureHint.classList.contains('is-hidden')) return;
+    gestureHint.classList.add('is-hidden');
+    window.__ri_gesture_done = true;
+    if (Audio.isReady()) {
+      Audio.setPlaying(true);
+      dock.classList.add('is-playing');
+      dock.classList.remove('is-loading');
+    }
+    // retire du DOM après le fade-out pour ne pas interférer
+    setTimeout(() => { if (gestureHint.parentNode) gestureHint.parentNode.removeChild(gestureHint); }, 900);
+  }
+  gestureHint.addEventListener('click', dismissGesture, { once: false });
+  // ESC aussi pour skipper
+  document.addEventListener('keydown', function onceK(e) {
+    if (e.key === 'Escape' || e.key === 'Enter' || e.key === ' ') {
+      e.preventDefault();
+      dismissGesture();
+      document.removeEventListener('keydown', onceK);
+    }
+  });
+  // Fallback: si le browser autorise l'autoplay (rare), dismiss automatique après 1.2s
+  setTimeout(() => {
+    if (Audio.isReady() && Audio.isPlaying()) {
+      dismissGesture();
+    }
+  }, 1200);
+
+  vol.addEventListener('input', function () {
+    Audio.setVolume(parseInt(vol.value, 10));
+  });
+})();
+
+</script>
+</body>
+</html>
