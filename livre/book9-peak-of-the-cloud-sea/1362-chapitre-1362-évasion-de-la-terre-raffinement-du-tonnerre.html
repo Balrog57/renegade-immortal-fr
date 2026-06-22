@@ -844,6 +844,8 @@
   const MAX_VISIBLE = 250;
   let currentChapIdx = -1;
   let filteredChaps = CHAPTERS.slice();
+  // CHAPITRES only on chapitres.html
+  if (grid) {
 
   // populate tome selector
   const bookTitles = {};
@@ -948,6 +950,9 @@
   tomeSel.addEventListener('change', renderChapters);
   renderChapters();
 
+
+  }  // end if (grid) — CHAPITRES
+
   // ============================================
   // WIKI FAN-DOM — indexation + recherche + lecteur
   // ============================================
@@ -959,6 +964,7 @@
   const wikiStats   = document.getElementById('wiki-stats');
   const wikiReader  = document.getElementById('wiki-reader');
   const WIKI_PAGE_LIMIT = 200;
+  if (wikiGrid) {
 
   // populate category filter (top 30 cats)
   const catCount = {};
@@ -1330,7 +1336,9 @@
     Audio.setPlaying(!Audio.isPlaying());
   });
 
-  // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
+    }  // end if (wikiGrid) — WIKI
+
+// === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
   function dismissGesture() {
     if (!gestureHint || gestureHint.classList.contains('is-hidden')) return;
