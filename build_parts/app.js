@@ -358,6 +358,8 @@
     document.querySelector('.nav-tab[data-tab="' + next + '"]').focus();
   });
 
+  }  // end if (wikiGrid) — WIKI
+
   // ============================================
   // YOUTUBE IFRAME API — OST Xian Ni
   // ============================================
@@ -533,8 +535,6 @@
     }
     Audio.setPlaying(!Audio.isPlaying());
   });
-
-    }  // end if (wikiGrid) — WIKI
 
 // === GESTURE OVERLAY (pour satisfaire la politique autoplay des browsers) ===
   const gestureHint = document.getElementById('gesture-hint');
