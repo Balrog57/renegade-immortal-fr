@@ -1,52 +1,191 @@
 ---
 import Base from '~/layouts/Base.astro';
-import { render } from 'astro:content';
 import { getBooksSorted } from '~/lib/data';
+import { BOOK_SUMMARIES } from '~/lib/book-summaries';
 
 const base = import.meta.env.BASE_URL;
 const books = await getBooksSorted();
-
-const prepared = await Promise.all(
-  books.map(async b => {
-    const { Content } = await render(b);
-    return { book: b.data.book, title: b.data.title, cover: b.data.cover, count: b.data.chaptersCount, rangeStart: b.data.rangeStart, rangeEnd: b.data.rangeEnd, Content };
-  })
-);
+const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 ---
 
 <Base title="Livres" active="livres">
   <header class="page-header">
     <h1 class="page-title">Livres</h1>
-    <p class="page-intro">{books.length} tomes de l'œuvre originale.</p>
+    <p class="page-intro">L'œuvre et l'auteur — les treize tomes de <em>Renegade Immortel</em>.</p>
   </header>
 
-  <div class="book-grid">
-    {prepared.map(b => {
-      const C = b.Content;
-      return (
-      <div class="book-card">
-        {b.cover ? (
-          <img src={b.cover} alt={`Tome ${b.book}`} class="book-cover" loading="lazy" />
-        ) : (
-          <div class="book-cover-fallback">{b.book}</div>
-        )}
-        <div class="book-info">
-          <span class="book-num">Tome {b.book}</span>
-          <h2 class="book-title">{b.title}</h2>
-          <p class="book-meta">
-            {b.count || '—'} chapitres
-            {b.rangeStart && b.rangeEnd ? ` · n°${b.rangeStart}–${b.rangeEnd}` : ''}
-          </p>
-          <div class="book-body">
-            <C />
-          </div>
-          <a href={`${base}chapitres/tome-${b.book}/`} class="book-link">Lire ce tome →</a>
+  <section class="about-work">
+    <div class="work-grid">
+      <article class="work-block">
+        <h2 class="work-title">L'œuvre</h2>
+        <p>
+          <em>Renegade Immortel</em> (仙逆, <em>Xiān Nì</em> — « Immortel à contre-courant ») est un roman web chinois du genre <strong>xianxia</strong>, publié en feuilleton sur la plateforme <strong>Qidian</strong> (起点中文网, China Literature) du 8 juin 2009 au 8 janvier 2012. Fort de <strong>2 088 chapitres</strong> répartis en <strong>13 tomes</strong> et d'environ <strong>6,57 millions de caractères</strong>, il est l'un des piliers de la bibliothèque Qidian et un monument du genre.
+        </p>
+        <p>
+          L'intrigue suit Wang Lin, un jeune garçon au talent médiocre, sur plus de deux mille chapitres de combats, de pertes, de renaissance et de transcendance. Des sectes qui s'effondrent aux guerres entre Immortels, son chemin n'est jamais droit : il tue pour protéger ce qu'il aime, trahit pour survivre, et attend pendant des siècles ce que d'autres ont oublié — jusqu'à devenir l'une des figures les plus redoutables du cosmos.
+        </p>
+        <p>
+          Le roman a été adapté en <strong>manhua</strong> (2012, Youman et Bilibili Comics), en <strong>jeu mobile</strong> (2015), en <strong>série animée</strong> (2023, studio BUILD DREAM, 180 épisodes, Tencent Video) et en <strong>films d'animation</strong> à partir de 2025, dont <em>Bataille de l'Avènement Divin</em> (n°1 des ventes payantes Tencent Video). La version imprimée, publiée par la Maison d'Édition de l'Éducation du Yunnan à partir d'août 2012, s'est écoulée à plus de <strong>100 000 exemplaires par volume</strong>.
+        </p>
+      </article>
+
+      <article class="work-block">
+        <h2 class="work-title">L'auteur</h2>
+        <p>
+          <strong>Er Gen</strong> (耳根, signifiant littéralement « racine d'oreille ») est le pseudonyme d'un romancier chinois de web-novels dont le vrai nom est <strong>Liu Yong</strong> (刘勇). <em>Renegade Immortal</em> est son œuvre fondatrice (« flagship work ») et sa deuxième œuvre publiée.
+        </p>
+        <p>
+          Er Gen est une figure majeure du xianxia moderne. Ses romans, souvent très longs (souvent plus de mille chapitres), explorent la cultivation, les héritages divins et les voyages entre mondes. En 2025, une interview vidéo réalisée par <strong>Wuxiaworld</strong>, intitulée <em>« Er Gen's Xianxia World »</em>, lui donne la parole sur sa vision de l'univers xianxia et sur la genèse de ses œuvres.
+        </p>
+
+        <div class="video-frame">
+          <iframe
+            src="https://www.youtube.com/embed/mxUvD2TEeF8"
+            title="Er Gen's Xianxia World — Interview par Wuxiaworld"
+            loading="lazy"
+            allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"
+            allowfullscreen
+            referrerpolicy="strict-origin-when-cross-origin"
+          ></iframe>
+        </div>
+        <p class="video-caption">
+          <em>Er Gen's Xianxia World</em> — Interview par Wuxiaworld (YouTube). <strong>Attention :</strong> la vidéo contient des spoilers sur la fin de plusieurs de ses romans.
+        </p>
+
+        <h3 class="work-subtitle">Bibliographie</h3>
+        <p class="biblio-legend">Œuvres terminées</p>
+        <ul class="biblio">
+          <li><strong>Renegade Immortel</strong> (仙逆) — 2009 — 13 tomes, 2 088 chapitres</li>
+          <li><strong>Pursuit of the Truth</strong> (求魔) — 2012 — 7 tomes, 1 484 chapitres</li>
+          <li><strong>I Shall Seal the Heavens</strong> (我欲封天) — 2014 — 10 tomes, 1 613 chapitres + 3 histoires secondaires</li>
+          <li><strong>A Will Eternal</strong> (一念永恒) — 2016 — 7 tomes, 1 314 chapitres</li>
+          <li><strong>A World Worth Protecting</strong> (三寸人间) — 2018 — 3 tomes, 1 457 chapitres</li>
+          <li><strong>Beyond Time</strong> (光阴之外) — 2022 — 14 tomes, 1 354 chapitres</li>
+        </ul>
+        <p class="biblio-legend">Œuvre abandonnée</p>
+        <ul class="biblio">
+          <li><strong>Against Heaven</strong> (天逆) — 2013 — 3 volumes, 118 chapitres</li>
+        </ul>
+      </article>
+    </div>
+  </section>
+
+  <section class="books-section">
+    <header class="section-header">
+      <h2 class="section-title">Les treize tomes</h2>
+      <p class="section-subtitle">Cliquez sur un tome pour afficher sa couverture et son synopsis.</p>
+    </header>
+
+    <div class="book-grid">
+      {books.map(b => {
+        const summary = summaryByBook.get(b.data.book);
+        return (
+          <button
+            type="button"
+            class="book-card"
+            data-book={b.data.book}
+            data-title={summary?.titleFr || b.data.title}
+            data-cover={b.data.cover || ''}
+            data-summary={summary?.summary || ''}
+            data-range={b.data.rangeStart && b.data.rangeEnd ? `${b.data.rangeStart}–${b.data.rangeEnd}` : ''}
+            data-count={b.data.chaptersCount || 0}
+          >
+            {b.data.cover ? (
+              <img src={b.data.cover} alt={`Tome ${b.data.book}`} class="book-cover" loading="lazy" />
+            ) : (
+              <div class="book-cover-fallback">{b.data.book}</div>
+            )}
+            <div class="book-info">
+              <span class="book-num">Tome {b.data.book}</span>
+              <h3 class="book-title">{b.data.title}</h3>
+              {summary && <p class="book-title-fr">{summary.titleFr}</p>}
+              <p class="book-meta">
+                {b.data.chaptersCount || '—'} chapitres
+                {b.data.rangeStart && b.data.rangeEnd ? ` · n°${b.data.rangeStart}–${b.data.rangeEnd}` : ''}
+              </p>
+            </div>
+          </button>
+        );
+      })}
+    </div>
+  </section>
+
+  <dialog id="book-modal" class="book-modal">
+    <div class="book-modal-inner">
+      <button class="book-modal-close" id="book-modal-close" aria-label="Fermer">✕</button>
+      <div class="book-modal-header">
+        <div id="book-modal-cover-wrap" class="book-modal-cover-wrap"></div>
+        <div class="book-modal-titles">
+          <span id="book-modal-num" class="book-modal-num"></span>
+          <h2 id="book-modal-title"></h2>
+          <p id="book-modal-meta" class="book-modal-meta"></p>
         </div>
       </div>
-      );
-    })}
-  </div>
+      <div class="book-modal-body">
+        <p id="book-modal-summary" class="book-modal-summary"></p>
+        <a id="book-modal-link" class="book-modal-link" href="#">Lire ce tome →</a>
+      </div>
+    </div>
+  </dialog>
 </Base>
+
+<script is:inline>
+  (() => {
+    const grid = document.querySelector('.book-grid');
+    const dialog = document.getElementById('book-modal');
+    const closeBtn = document.getElementById('book-modal-close');
+    if (!grid || !dialog) return;
+
+    const coverWrap = document.getElementById('book-modal-cover-wrap');
+    const numEl = document.getElementById('book-modal-num');
+    const titleEl = document.getElementById('book-modal-title');
+    const metaEl = document.getElementById('book-modal-meta');
+    const summaryEl = document.getElementById('book-modal-summary');
+    const linkEl = document.getElementById('book-modal-link');
+
+    grid.addEventListener('click', (e) => {
+      const card = e.target.closest('.book-card');
+      if (!card) return;
+      const book = card.dataset.book;
+      const title = card.dataset.title;
+      const cover = card.dataset.cover;
+      const summary = card.dataset.summary;
+      const range = card.dataset.range;
+      const count = card.dataset.count;
+
+      numEl.textContent = `Tome ${book}`;
+      titleEl.textContent = title;
+      const meta = [];
+      if (count) meta.push(`${count} chapitres`);
+      if (range) meta.push(`n° ${range}`);
+      metaEl.textContent = meta.join(' · ');
+
+      coverWrap.innerHTML = cover
+        ? `<img src="${cover}" alt="Tome ${book}" class="book-modal-cover" />`
+        : '';
+
+      summaryEl.textContent = summary;
+      linkEl.href = `${window.location.pathname.replace(/\/$/, '')}/../chapitres/tome-${book}/`.replace(/\/[^/]*\/\.\.\//, '/chapitres/tome-' + book + '/');
+      linkEl.setAttribute('href', `chapitres/tome-${book}/`);
+
+      dialog.showModal();
+      document.body.style.overflow = 'hidden';
+    });
+
+    function closeModal() {
+      dialog.close();
+      document.body.style.overflow = '';
+    }
+
+    closeBtn.addEventListener('click', closeModal);
+    dialog.addEventListener('click', (e) => {
+      if (e.target === dialog) closeModal();
+    });
+    dialog.addEventListener('cancel', () => {
+      document.body.style.overflow = '';
+    });
+  })();
+</script>
 
 <style>
 .page-header { padding: 24px 0 40px; text-align: center; }
@@ -59,21 +198,88 @@ const prepared = await Promise.all(
   color: var(--ink-3); margin: 0;
 }
 
-.book-grid {
-  display: grid; grid-template-columns: repeat(auto-fill, minmax(320px, 1fr));
-  gap: 24px; padding-bottom: 40px;
+.about-work { padding: 0 0 64px; }
+.work-grid {
+  display: grid; grid-template-columns: repeat(auto-fit, minmax(380px, 1fr));
+  gap: 24px;
 }
-.book-card {
-  display: flex; gap: 20px;
-  padding: 24px; border: 1px solid var(--line); border-radius: var(--r-lg);
+.work-block {
+  padding: 28px; border: 1px solid var(--line); border-radius: var(--r-lg);
   background: var(--bg-1);
 }
+.work-title {
+  font-family: 'Cinzel', serif; font-size: 18px; font-weight: 600;
+  color: var(--gold); margin: 0 0 16px; letter-spacing: .04em;
+}
+.work-subtitle {
+  font-family: 'Cinzel', serif; font-size: 13px; font-weight: 600;
+  color: var(--gold); margin: 24px 0 8px; letter-spacing: .08em;
+  text-transform: uppercase;
+}
+.work-block p {
+  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.75;
+  color: var(--ink-2); margin: 0 0 12px; text-align: left;
+}
+.work-block p:last-child { margin-bottom: 0; }
+.work-block strong { color: var(--ink-1); }
+.work-block em { color: var(--ink-1); font-style: italic; }
+
+.video-frame {
+  position: relative; margin: 20px 0 8px;
+  padding-bottom: 56.25%; height: 0; overflow: hidden;
+  border-radius: var(--r-md); border: 1px solid var(--line);
+  background: var(--bg-0);
+}
+.video-frame iframe {
+  position: absolute; inset: 0; width: 100%; height: 100%; border: 0;
+}
+.video-caption {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
+  text-transform: uppercase; color: var(--ink-4); margin: 0 0 12px;
+}
+
+.biblio-legend {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .18em;
+  text-transform: uppercase; color: var(--ink-3); margin: 16px 0 6px;
+}
+.biblio {
+  font-family: 'Noto Serif', serif; font-size: 13px; line-height: 1.8;
+  color: var(--ink-2); margin: 0; padding-left: 18px;
+  text-align: left;
+}
+.biblio li { margin-bottom: 4px; }
+.biblio strong { color: var(--ink-1); }
+
+.books-section { padding: 24px 0 64px; }
+.section-header { text-align: center; margin-bottom: 32px; }
+.section-title {
+  font-family: 'Cinzel', serif; font-size: 24px; font-weight: 600;
+  color: var(--ink-1); margin: 0 0 8px; letter-spacing: .04em;
+}
+.section-subtitle {
+  font-family: 'Cormorant Garamond', serif; font-size: 16px; font-style: italic;
+  color: var(--ink-3); margin: 0;
+}
+
+.book-grid {
+  display: grid; grid-template-columns: repeat(auto-fill, minmax(220px, 1fr));
+  gap: 16px;
+}
+.book-card {
+  display: flex; flex-direction: column; gap: 12px; align-items: center;
+  padding: 20px 12px; border: 1px solid var(--line); border-radius: var(--r-lg);
+  background: var(--bg-1); cursor: pointer;
+  transition: border-color .2s, transform .2s, background .2s;
+  font-family: inherit; text-align: center; color: inherit;
+}
+.book-card:hover { border-color: var(--gold-dim); transform: translateY(-2px); background: var(--bg-2); }
+.book-card:focus-visible { outline: 2px solid var(--gold); outline-offset: 2px; }
 .book-cover {
   width: 90px; height: 130px; object-fit: cover; border-radius: var(--r-md);
-  flex-shrink: 0; border: 1px solid var(--line);
+  border: 1px solid var(--line);
 }
 .book-cover-fallback {
-  width: 90px; height: 130px; flex-shrink: 0;
+  width: 90px; height: 130px;
   display: flex; align-items: center; justify-content: center;
   font-family: 'Cinzel', serif; font-size: 36px; font-weight: 600;
   color: var(--gold-dim); background: var(--bg-3);
@@ -85,27 +291,78 @@ const prepared = await Promise.all(
   text-transform: uppercase; color: var(--crimson-2);
 }
 .book-title {
-  font-family: 'Noto Serif', serif; font-size: 16px; font-weight: 600;
+  font-family: 'Noto Serif', serif; font-size: 14px; font-weight: 600;
   color: var(--ink-1); margin: 0; line-height: 1.3;
 }
+.book-title-fr {
+  font-family: 'Cormorant Garamond', serif; font-size: 13px; font-style: italic;
+  color: var(--ink-3); margin: 0;
+}
 .book-meta {
-  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
-  color: var(--ink-4); margin: 0 0 8px;
+  font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .1em;
+  color: var(--ink-4); margin: 4px 0 0;
 }
-.book-body {
-  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.6;
-  color: var(--ink-3); flex: 1;
+
+.book-modal {
+  max-width: 720px; width: 90vw; max-height: 88vh;
+  border: 1px solid var(--line); border-radius: var(--r-lg);
+  background: var(--bg-1); color: var(--ink-1); padding: 0;
 }
-.book-body :global(p) { margin: 0 0 .5em; }
-.book-body :global(em) { color: var(--ink-2); }
-.book-link {
+.book-modal::backdrop {
+  background: rgba(5, 4, 10, .85); backdrop-filter: blur(6px);
+}
+.book-modal-inner {
+  position: relative; padding: 32px; overflow-y: auto; max-height: 88vh;
+}
+.book-modal-close {
+  position: absolute; top: 16px; right: 16px;
+  width: 32px; height: 32px; border-radius: 50%;
+  border: 1px solid var(--line); background: var(--bg-2);
+  color: var(--ink-3); cursor: pointer; font-size: 14px;
+  display: flex; align-items: center; justify-content: center;
+  transition: color .2s, border-color .2s;
+}
+.book-modal-close:hover { color: var(--ink-1); border-color: var(--crimson-dim); }
+.book-modal-header {
+  display: flex; gap: 24px; align-items: flex-start;
+  padding-bottom: 20px; margin-bottom: 20px;
+  border-bottom: 1px solid var(--line);
+}
+.book-modal-cover-wrap { flex-shrink: 0; }
+.book-modal-cover {
+  width: 130px; height: 190px; object-fit: cover;
+  border-radius: var(--r-md); border: 1px solid var(--line);
+  box-shadow: 0 4px 16px rgba(0,0,0,.4);
+}
+.book-modal-titles { min-width: 0; }
+.book-modal-num {
+  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .2em;
+  text-transform: uppercase; color: var(--crimson-2);
+}
+.book-modal-titles h2 {
+  font-family: 'Cinzel', serif; font-size: 22px; font-weight: 600;
+  color: var(--ink-1); margin: 6px 0 8px; letter-spacing: .03em;
+  line-height: 1.2;
+}
+.book-modal-meta {
   font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .12em;
-  text-transform: uppercase; color: var(--crimson-2); text-decoration: none;
-  margin-top: 8px;
+  color: var(--ink-3); margin: 0;
 }
-.book-link:hover { color: var(--gold); text-decoration: none; }
+.book-modal-body { font-family: 'Noto Serif', serif; }
+.book-modal-summary {
+  font-size: 15px; line-height: 1.8; color: var(--ink-2); margin: 0 0 24px;
+  text-align: left;
+}
+.book-modal-link {
+  display: inline-block;
+  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em;
+  text-transform: uppercase; color: var(--crimson-2); text-decoration: none;
+  padding: 10px 20px; border: 1px solid var(--crimson-dim); border-radius: var(--r-md);
+}
+.book-modal-link:hover { color: var(--gold); border-color: var(--gold-dim); text-decoration: none; }
 
 @media (max-width: 640px) {
-  .book-card { flex-direction: column; align-items: center; text-align: center; }
+  .book-modal-header { flex-direction: column; align-items: center; text-align: center; }
+  .book-modal-titles { text-align: center; }
 }
 </style>
