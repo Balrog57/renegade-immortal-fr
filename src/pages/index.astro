@@ -1,35 +1,13 @@
 ---
 import Base from '~/layouts/Base.astro';
 import { getCollection } from 'astro:content';
-import { getChaptersSorted, getLoreEntries, chapterSlug } from '~/lib/data';
+import { getChaptersSorted, chapterSlug } from '~/lib/data';
 
 const base = import.meta.env.BASE_URL;
-
-const [chapters, books, wikiAll] = await Promise.all([
-  getChaptersSorted(),
-  getCollection('books'),
-  getCollection('wiki'),
-]);
-
-const counts = {
-  chapters: chapters.length,
-  books: books.length,
-  personnages: wikiAll.filter(e => e.data.type === 'personnage').length,
-  lieux: wikiAll.filter(e => e.data.type === 'lieu').length,
-  sectes: wikiAll.filter(e => e.data.type === 'secte').length,
-  cultivation: wikiAll.filter(e => e.data.type === 'cultivation').length,
-};
-
-const latestChapters = chapters.slice(-6).reverse();
-
-const featuredRaw = await getLoreEntries('personnage');
-const featured = featuredRaw.slice(0, 6).map(e => ({
-  slug: e.id.replace(/\.md$/, '').split('/').pop(),
-  name: e.data.name,
-  title: e.data.title,
-  image: e.data.image || null,
-  categories: (e.data.categories || []).slice(0, 2),
-}));
+const chapters = await getChaptersSorted();
+const bookEntries = await getCollection('books');
+const chapterCount = chapters.length;
+const bookCount = bookEntries.length;
 ---
 
 <Base title="Accueil" active="home">
@@ -37,14 +15,11 @@ const featured = featuredRaw.slice(0, 6).map(e => ({
     <div class="hero-bg" aria-hidden="true"></div>
     <div class="hero-content">
       <p class="hero-subtitle">仙逆 · Xian Ni</p>
-      <h1 class="hero-title">Renegade Immortal</h1>
+      <h1 class="hero-title">Renegade Immortel</h1>
       <p class="hero-tagline">L'odyssée d'un jeune orphelin devenu démon, forgeant son destin entre ciel et terre.</p>
       <div class="hero-cta">
         <a href={`${base}lecture/${chapterSlug(chapters[0])}/`} class="btn btn-primary">
           Commencer la lecture
-        </a>
-        <a href={`${base}personnages/`} class="btn btn-ghost">
-          Explorer le wiki
         </a>
       </div>
     </div>
@@ -52,63 +27,68 @@ const featured = featuredRaw.slice(0, 6).map(e => ({
 
   <section class="stats">
     <div class="stat">
-      <span class="stat-num">{counts.chapters.toLocaleString('fr')}</span>
+      <span class="stat-num">{chapterCount.toLocaleString('fr')}</span>
       <span class="stat-label">Chapitres</span>
     </div>
     <div class="stat">
-      <span class="stat-num">{counts.books}</span>
+      <span class="stat-num">{bookCount}</span>
       <span class="stat-label">Tomes</span>
     </div>
     <div class="stat">
-      <span class="stat-num">{counts.personnages.toLocaleString('fr')}</span>
-      <span class="stat-label">Personnages</span>
-    </div>
-    <div class="stat">
-      <span class="stat-num">{counts.lieux}</span>
-      <span class="stat-label">Lieux</span>
-    </div>
-    <div class="stat">
-      <span class="stat-num">{counts.sectes}</span>
-      <span class="stat-label">Sectes & Clans</span>
+      <span class="stat-num">100 000+</span>
+      <span class="stat-label">Ventes / volume</span>
     </div>
   </section>
 
-  <section class="section">
-    <div class="section-header">
-      <h2 class="section-title">Derniers chapitres</h2>
-      <a href={`${base}chapitres/`} class="section-link">Tous les chapitres →</a>
-    </div>
-    <div class="chapter-cards">
-      {latestChapters.map(c => (
-        <a href={`${base}lecture/${chapterSlug(c)}/`} class="chapter-card">
-          <span class="chapter-card-num">{String(c.data.n).padStart(4, '0')}</span>
-          <span class="chapter-card-title">{c.data.title}</span>
-          <span class="chapter-card-book">Tome {c.data.book}</span>
-        </a>
-      ))}
-    </div>
-  </section>
+  <section class="about">
+    <header class="about-header">
+      <h2 class="about-title">L'œuvre</h2>
+      <p class="about-subtitle">仙逆 · Xian Ni — Un monument du xianxia moderne</p>
+    </header>
 
-  <section class="section">
-    <div class="section-header">
-      <h2 class="section-title">Personnages clés</h2>
-      <a href={`${base}personnages/`} class="section-link">Tous les personnages →</a>
+    <div class="about-grid">
+      <article class="about-block">
+        <h3>Synopsis</h3>
+        <p>
+          <em>Renegade Immortel</em> suit Wang Lin, un jeune garçon intelligent mais au talent médiocre, qui s'engage sur la voie de la cultivation. Entre sectes qui s'effondrent, clans ancestraux et guerres entre Immortels, sa route n'est jamais droite. Il tue pour protéger ce qu'il aime, trahit pour survivre, et attend pendant des siècles ce que d'autres ont oublié — jusqu'à devenir l'une des figures les plus redoutables du cosmos.
+        </p>
+        <h3>L'auteur</h3>
+        <p>
+          <strong>Er Gen</strong> (耳根) est un romancier chinois de webnovels, figure majeure du genre xianxia. <em>Renegade Immortel</em> est l'une de ses premières œuvres majeures, publiée sur Qidian.
+        </p>
+      </article>
+
+      <article class="about-block">
+        <h3>Publication</h3>
+        <ul>
+          <li>Publication en feuilleton sur <strong>Qidian</strong> (plateforme de China Literature) du 8 juin 2009 au 8 janvier 2012</li>
+          <li>Version imprimée (août 2012) par la Maison d'Édition de l'Éducation du Yunnan</li>
+          <li><strong>2 088 chapitres</strong>, environ 6,57 millions de caractères</li>
+        </ul>
+        <h3>Genre</h3>
+        <p>
+          <strong>Xianxia</strong> — roman de cultivation et d'immortels chinois. Univers complet : système de cultivation multi-étapes, niveaux de pouvoir, origines ancestrales, clans anciens, bêtes divines, géographie multi-continents.
+        </p>
+      </article>
+
+      <article class="about-block">
+        <h3>Adaptations</h3>
+        <ul>
+          <li><strong>Manhua</strong> (2012) — publié sur Youman et Bilibili Comics</li>
+          <li><strong>Jeu mobile</strong> (2015) — sortie officielle</li>
+          <li><strong>Série animée</strong> (25 sept. 2023) — studio BUILD DREAM, 180 épisodes ONA, diffusée sur Tencent Video, score 8,50/10 sur MyAnimeList</li>
+          <li><strong>Films d'animation</strong> (2025) — <em>Bataille de l'Avènement Divin</em> (n°1 des ventes payantes Tencent Video), second film annoncé</li>
+        </ul>
+        <h3>Un best-seller</h3>
+        <p>
+          Plus de <strong>100 000 exemplaires vendus par volume</strong> en version imprimée. Sur Webnovel : 8,8 millions de vues, note 4,18/5. Sur NovelFrance : 5,0/5, série terminée. L'un des piliers de la bibliothèque Qidian et un monument du xianxia moderne.
+        </p>
+      </article>
     </div>
-    <div class="char-cards">
-      {featured.map(c => (
-        <a href={`${base}personnages/`} class="char-card">
-          {c.image ? (
-            <img src={c.image} alt={c.name} class="char-card-img" loading="lazy" />
-          ) : (
-            <div class="char-card-placeholder">{c.name.charAt(0)}</div>
-          )}
-          <span class="char-card-name">{c.name}</span>
-          {c.categories.length > 0 && (
-            <span class="char-card-tag">{c.categories[0]}</span>
-          )}
-        </a>
-      ))}
-    </div>
+
+    <footer class="about-footer">
+      <p>Sources : Baidu Baike · Webnovel · NovelFrance · Xian Ni Fandom Wiki · MyAnimeList</p>
+    </footer>
   </section>
 </Base>
 
@@ -169,16 +149,12 @@ const featured = featuredRaw.slice(0, 6).map(e => ({
   box-shadow: 0 0 20px rgba(179,38,30,.2);
 }
 .btn-primary:hover { box-shadow: 0 0 30px rgba(179,38,30,.35); transform: translateY(-1px); text-decoration: none; }
-.btn-ghost {
-  background: transparent; color: var(--ink-2); border-color: var(--line);
-}
-.btn-ghost:hover { color: var(--ink-1); border-color: var(--gold-dim); text-decoration: none; }
 
 .stats {
   display: flex; gap: 16px; justify-content: center; flex-wrap: wrap;
   padding: 48px 0; border-bottom: 1px solid var(--line);
 }
-.stat { text-align: center; min-width: 100px; }
+.stat { text-align: center; min-width: 120px; }
 .stat-num {
   display: block; font-family: 'Cinzel', serif; font-size: 32px; font-weight: 600;
   color: var(--gold); letter-spacing: .03em;
@@ -188,80 +164,51 @@ const featured = featuredRaw.slice(0, 6).map(e => ({
   text-transform: uppercase; color: var(--ink-3); margin-top: 4px;
 }
 
-.section { padding: 48px 0; }
-.section-header {
-  display: flex; align-items: baseline; justify-content: space-between;
-  margin-bottom: 24px; gap: 16px;
-}
-.section-title {
-  font-family: 'Cinzel', serif; font-size: 22px; font-weight: 600;
-  color: var(--ink-1); letter-spacing: .04em; margin: 0;
-}
-.section-link {
-  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .12em;
-  text-transform: uppercase; color: var(--ink-3); text-decoration: none;
-}
-.section-link:hover { color: var(--gold); text-decoration: none; }
-
-.chapter-cards {
-  display: grid; grid-template-columns: repeat(auto-fill, minmax(200px, 1fr));
-  gap: 12px;
-}
-.chapter-card {
-  display: flex; flex-direction: column; gap: 4px;
-  padding: 16px; border: 1px solid var(--line); border-radius: var(--r-md);
-  background: var(--bg-1); text-decoration: none;
-  transition: border-color .2s, background .2s;
-}
-.chapter-card:hover { border-color: var(--crimson-dim); background: var(--bg-2); text-decoration: none; }
-.chapter-card-num {
-  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em;
-  color: var(--crimson-2);
-}
-.chapter-card-title {
-  font-family: 'Noto Serif', serif; font-size: 14px; color: var(--ink-1);
-  line-height: 1.4;
-}
-.chapter-card-book {
-  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em;
-  text-transform: uppercase; color: var(--ink-4);
-}
-
-.char-cards {
-  display: grid; grid-template-columns: repeat(auto-fill, minmax(160px, 1fr));
-  gap: 16px;
-}
-.char-card {
-  display: flex; flex-direction: column; align-items: center; gap: 8px;
-  padding: 20px 12px; border: 1px solid var(--line); border-radius: var(--r-lg);
-  background: var(--bg-1); text-decoration: none;
-  transition: border-color .2s, transform .2s;
-}
-.char-card:hover { border-color: var(--gold-dim); transform: translateY(-2px); text-decoration: none; }
-.char-card-img {
-  width: 80px; height: 80px; border-radius: 50%; object-fit: cover;
-  border: 2px solid var(--line);
-}
-.char-card-placeholder {
-  width: 80px; height: 80px; border-radius: 50%;
-  display: flex; align-items: center; justify-content: center;
+.about { padding: 64px 0 32px; }
+.about-header { text-align: center; margin-bottom: 48px; }
+.about-title {
   font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
-  color: var(--ink-3); background: var(--bg-3); border: 2px solid var(--line);
+  color: var(--ink-1); margin: 0 0 8px; letter-spacing: .04em;
 }
-.char-card-name {
-  font-family: 'Cinzel', serif; font-size: 13px; color: var(--ink-1);
-  text-align: center; letter-spacing: .03em;
+.about-subtitle {
+  font-family: 'Cormorant Garamond', serif; font-size: 18px; font-style: italic;
+  color: var(--ink-3); margin: 0;
 }
-.char-card-tag {
-  font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .15em;
-  text-transform: uppercase; color: var(--ink-4);
+.about-grid {
+  display: grid; grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
+  gap: 24px;
+}
+.about-block {
+  padding: 24px; border: 1px solid var(--line); border-radius: var(--r-lg);
+  background: var(--bg-1);
+}
+.about-block h3 {
+  font-family: 'Cinzel', serif; color: var(--gold);
+  font-size: 12px; letter-spacing: .18em; text-transform: uppercase;
+  margin: 0 0 12px;
+}
+.about-block h3:not(:first-child) { margin-top: 28px; }
+.about-block p, .about-block ul {
+  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.7;
+  color: var(--ink-2); margin: 0;
+}
+.about-block ul { padding-left: 18px; }
+.about-block li { margin-bottom: 8px; }
+.about-block li:last-child { margin-bottom: 0; }
+.about-block strong { color: var(--ink-1); }
+.about-block em { color: var(--ink-1); font-style: italic; }
+.about-footer {
+  text-align: center; margin-top: 32px;
+  font-family: 'Cinzel', serif; font-size: 10px;
+  letter-spacing: .15em; text-transform: uppercase; color: var(--ink-4);
 }
 
 @media (max-width: 640px) {
   .hero-title { font-size: 36px; }
   .hero-tagline { font-size: 16px; }
   .stats { gap: 8px; }
-  .stat { min-width: 80px; }
+  .stat { min-width: 90px; }
   .stat-num { font-size: 24px; }
+  .about-grid { grid-template-columns: 1fr; }
 }
 </style>
