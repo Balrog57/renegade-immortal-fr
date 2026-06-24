@@ -1,0 +1,43 @@
+---
+name: Ancient Demon City
+title: Ancient Demon City
+type: lieu
+categories: ["Cities", "Locations"]
+image: /renegade-immortal-fr/wiki/images/Ancient demon.webp
+url: "https://xian-ni.fandom.com/wiki/Ancient_Demon_City"
+
+---
+![Ancient Demon City](/renegade-immortal-fr/wiki/images/Ancient demon.webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Ancient_Demon_City) (CC BY-SA)
+
+**Catégories :** Cities, Locations
+
+## Overview
+
+Ancient Demon City is a vast and historically significant city located in the northern part of the Sky Demon Country within the Demon Spirit Land . It serves as a strategic stronghold filled with dense demonic spiritual energy and ancient power. The city’s immense size and its mysterious, dangerous atmosphere make it one of the most important locations in the realm, deeply tied to both ancient demon spirits and the rise of powerful tribes such as the Soul Refining Tribe .
+
+It is immense in scale, so vast that one cannot see its end with a single glance. The city is filled with dense demonic spiritual energy and is heavily guarded by elite demon soldiers and spiritual formations.The city is governed by a demon general, a figure of great authority responsible for managing positions and internal affairs within the city. The northern gate serves as a major point of entry, bustling with guards, travelers, and traders from various tribes.At the city’s heart stands a magnificent palace that pierces the sky, crowned by a colossal statue of a powerful armored figure radiating an overwhelming demonic aura.
+
+### Past History
+
+Ancient Demon City is one of several great cities within the Sky Demon Country , a nation in the Demon Spirit Land a mysterious and perilous world imbued with demonic energy and ancient entities.The Demon Spirit Land itself is divided into nine countries, each guarded and influenced by a powerful ancient demon spirit that acts as both protector and symbol of its respective region. Ancient Demon City belongs to the Sky Demon Country, which houses one of these ancient demon spirits.
+
+Each of the nine countries possesses its own ancient demon spirit, beings that evolve roughly every 100,000 years. These spirits are vital to maintaining the stability and strength of their lands. Ancient Demon City once served as the seat of the Demon General of the Left Wing, housing numerous powerful cultivators who practiced ancient demonic arts and specialized in manipulating demonic spiritual energy. The teachings of the ancient demon spirits shaped the tribes and magical systems throughout the Demon Spirit Land, influencing both its people and their cultivation paths.
+
+Throughout history, Ancient Demon City and the surrounding regions have been key battlegrounds in the wars between the nine demon countries.Fierce conflicts between the Sky Demon Country and the Fire Demon Country devastated vast territories, repeatedly destroying and reshaping the city. During these wars, the powerful ancient demon known as Ancient Demon Bei Lou devoured other ancient demon spirits to strengthen himself, dramatically altering the balance of power within the land. Ancient Demon City was destroyed and rebuilt multiple times as a result of these catastrophic conflicts.
+
+### Rise of the Soul Refining Tribe
+
+Over the ages, the Soul Refining Tribe rose to prominence, expanding its influence across the Demon Spirit Land. Through wars and alliances, it gained control over regions including Ancient Demon City and the territories bordering the Fire Demon Country.
+
+### Present Status
+
+In the present era, Ancient Demon City is ruled by powerful demon generals, including the Demon General of the Left Wing Mo Lihai . The city is heavily fortified, and access to the Demon General’s palace is tightly restricted — even high-ranking visitors must often find alternative means of entry due to sealed or inactive transfer arrays. The city’s environment blends demonic and celestial energies, creating a unique and often volatile spiritual atmosphere.
+
+After arriving in Ancient Demon City, Wang Lin sought to establish a stable foothold and acquire military merit to strengthen his standing.He endured the immense pressure of demonic energy that constantly threatened his sanity, demonstrating his mastery over spiritual balance and restraint. During his time in the city, he engaged with several demon generals, navigated political intrigues, and participated in operations that revealed the city’s hidden dangers and secrets.
+
+Following centuries of warfare and destruction, Ancient Demon City underwent major reconstruction. The Soul Refining Tribe contributed significantly to its rebuilding and defense, reinforcing it with powerful protective formations.In later eras, a black statue of Wang Lin was erected within the city to honor his achievements and enduring legacy.
+
+The city is saturated with dense demonic energy and is shielded by ancient formations that trace their origin to the primordial demon spirits themselves. Even now, remnants of ancient demon wills and souls linger in the city, occasionally manifesting as spiritual phenomena or engaging in invisible battles that influence the fate of the living. These constant fluctuations make Ancient Demon City both a place of great opportunity and peril for cultivators.
+

@@ -1,0 +1,125 @@
+---
+n: 612
+title: Seconde Âme Originelle
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 612 - Second Origin Soul
+slug: seconde-ame-originelle
+---
+Au Lac du Dragon, à la lisière de la Cité du Démon Céleste !
+
+Une légion de soldats démons gardait le Lac du Dragon tout au long de l'année. De nombreux experts cachés de la capitale passaient également leur temps à s'y cultiver. Peu importe l'ampleur des événements, tant qu'ils ne visaient pas directement le Lac du Dragon, ils n'intervenaient jamais.
+
+Grâce à la puissante énergie spirituelle démoniaque qui imprégnait les lieux, même la rétribution divine d'il y a dix ans n'avait causé aucun dommage ici.
+
+Les eaux du Lac du Dragon étaient saturées d'énergie spirituelle démoniaque, abritant un autre monde en leurs profondeurs. Un voile de cette même énergie bloquait l'accès à une grotte souterraine.
+
+Au sein de cette grotte trônait une statue. Entièrement noire, elle ressemblait trait pour trait à l'Ancien Démon. À cet instant, une lueur démoniaque émanait de ses yeux.
+
+Sous la statue se trouvait un autre étang. Il ne contenait que peu de liquide, mais celui-ci était devenu extrêmement visqueux. Wang Lin était assis en position du lotus au milieu de cette substance. Il portait toujours son armure, mais ses yeux étaient clos.
+
+L'homme imposant qui ressemblait à Ling Tianhou était assis face à lui. Complètement enfermé dans un cristal pourpre, l'érosion qui marquait son corps guérissait lentement.
+
+Des filaments de lumière démoniaque s'échappaient de la statue pour pénétrer le corps de Wang Lin. À chaque fois que cette lumière pénétrait en lui, il en était secoué par des tremblements.
+
+Le démon tapi au fond de son âme originelle avait déjà été supprimé grâce à l'aide de l'Ancien Démon. Ce dernier était actuellement dans un état de coma, mais le but de Wang Lin n'était pas seulement de le supprimer, il voulait le dévorer !
+
+Il comptait dévorer ce démon dispersé pour accroître sa propre culture !
+
+Toutefois, ce démon était bien trop vaste pour être ainsi assimilé. Cela faisait plusieurs mois que Wang Lin siégeait dans cet étang pour le dévorer lentement, mais il n'avait pas encore réussi à l'absorber totalement.
+
+Malgré cela, Wang Lin continuait de poser d'innombrables restrictions sur lui. Après ces quelques mois, le démon était désormais entravé par une multitude de sceaux.
+
+De plus, avec l'aide de l'Ancien Démon, Wang Lin avait réussi à laisser une empreinte dans l'âme du démon dispersé. Cependant, la puissance de ce dernier était telle que l'empreinte demeurait très faible. Il ne lui faudrait que le passage du temps pour continuer à graver cette marque jusqu'à pouvoir exercer un contrôle absolu !
+
+Ce jour-là, Wang Lin ouvrit les yeux. Une lueur maléfique brilla dans son regard.
+
+« Avec ma culture actuelle, je suis incapable de dévorer ce démon. Je ne peux que continuer à graver cette empreinte dans son âme jusqu'à pouvoir un jour le contrôler. Le moment venu, plutôt que de le dévorer, j'aurai une autre option : le raffiner pour en faire ma seconde âme originelle ! »
+
+La seconde âme originelle est un sort unique que les cultivateurs ne peuvent utiliser qu'une fois le stade Ascendant atteint. Cependant, ce n'est pas une technique que tout le monde peut maîtriser avec succès. La raison principale réside dans l'embryon utilisé pour sa création !
+
+La force de cet embryon détermine le taux de réussite. Si un cultivateur échoue à créer sa seconde âme originelle, il subit un terrible contrecoup !
+
+De plus, la création d'une seconde âme originelle inflige des pertes considérables au cultivateur, c'est pourquoi la plupart des Ascendants choisissent de s'en abstenir. Aucun des Ascendants que Wang Lin avait rencontrés jusqu'ici n'en possédait une, et très peu de ceux dépassant ce stade en étaient dotés.
+
+Wang Lin songea : « C'est l'un des fragments démons d'un démon ancien. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui ! »
+
+« À présent, mon âme originelle et mon corps ont fusionné, consolidant ma culture Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder ! Je dois récupérer les fragments restants de l'énergie d'épée que Ling Tianhou a forgés. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples médiocres ! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
+
+Son armure lui donnait l'allure d'un général démon, et ses longs cheveux noirs flottants accentuaient son aura sinistre.
+
+En effleurant l'armure, une pointe d'excitation passa dans le regard de Wang Lin. Cette panoplie était incroyablement puissante ! Une épaisse couche d'énergie démoniaque s'en dégageait, mais il était regrettable que Wang Lin ne puisse pas encore l'absorber.
+
+« Même si c'est ainsi, si j'utilise le Doigt Démon avec cette armure, je crains qu'elle ne soit encore plus redoutable que mon Fleuve des Enfers ! Mon niveau de culture n'est pas assez élevé pour que l'armure me reconnaisse comme son maître, je ne peux donc utiliser qu'une partie de ses capacités. Cependant, une fois que j'aurai raffiné le démon dispersé en ma seconde âme originelle, je pourrai libérer toute sa puissance ! » Wang Lin toucha l'armure avant de sortir un bracelet de son sac de rangement.
+
+Dès l'instant où le bracelet apparut, il se mua en un rayon de lumière noire qui enroula le bras de Wang Lin avant de prendre forme.
+
+« Comptez-vous partir… ? » La voix de l'Ancien Démon résonna depuis la statue.
+
+Wang Lin se retourna. Il joignit les mains en signe de respect envers la statue et dit : « Senior Ancien Démon m'a aidé à trois reprises. Je ne l'oublierai jamais ! Cette fois, je compte honorer mon accord. Toutefois, avant cela, j'ai quelques affaires à régler et je sollicite à nouveau votre aide, Senior. »
+
+L'Ancien Démon réfléchit un instant avant de demander lentement : « Quelles sont ces affaires ? »
+
+Wang Lin marqua une pause, puis tapota son sac de rangement pour en sortir la pagode que Zhou Yi lui avait offerte autrefois.
+
+« Je souhaite trouver un esprit d'épée. Cette tour contient son sens divin. Je demande l'aide du Senior Ancien Démon pour le localiser. »
+
+L'Ancien Démon déploya son sens divin et déclara : « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. Le Domaine des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer l'un des Anciens Démons, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez une tour démoniaque ancienne, vous pouvez également déployer votre sens divin. »
+
+Wang Lin rétracta la pagode et hocha la tête. Puis, pointant l'homme encerclé de cristal pourpre, il dit : « Je veux cet homme ! »
+
+L'Ancien Démon sembla hésiter plus longtemps cette fois, puis finit par dire : « Je vous le céderai, mais vous devrez avoir récupéré un Ancien Démon pour moi d'ici cent ans ! »
+
+Les yeux de Wang Lin brillèrent et il acquiesça. « Je souhaite pénétrer dans l'héritage des Anciens Démons pour comprendre ce royaume mystérieux et utiliser cette connaissance pour affiner mes sorts ! »
+
+« Cette tâche n'est pas difficile, mais je vous ai déjà aidé maintes fois et j'ai tenu ma promesse. Vous, en revanche, n'avez encore rien accompli ; nous en reparlerons donc une fois que vous aurez rapporté un Ancien Démon ! »
+
+Wang Lin esquissa un léger sourire. « Très bien, mais il me sera difficile d'y parvenir seul. »
+
+« À partir d'aujourd'hui, vous êtes mon messager. Votre identité surpasse désormais celle de l'Empereur Démon. Mon Pays du Démon Céleste entamera officiellement la guerre contre le Pays du Démon de Feu pour vous soutenir. Une fois que vous aurez atteint la source démoniaque dans la capitale du Pays du Démon de Feu, n'oubliez pas l'incantation que je vous ai transmise ! »
+
+Wang Lin joignit les mains et s'approcha de l'homme prisonnier du cristal. Il fit un pas et quitta le Lac du Dragon. En un instant, il disparut sans laisser de trace.
+
+S'il avait demandé à l'Ancien Démon de chercher Zhou Yi et de lui permettre d'accéder à l'héritage, c'était parce que ce dernier lui avait déjà énormément rendu. S'il s'était comporté comme s'il n'avait plus aucune requête, l'Ancien Démon aurait pu douter de sa sincérité.
+
+Ces deux demandes étaient réellement des choses qu'il souhaitait obtenir, et non de simples prétextes pour gagner du temps. De cette manière, l'Ancien Démon conserverait sa patience !
+
+Wang Lin surgit du vide à 5 000 kilomètres de la Cité du Démon Céleste. Il observa le cristal dans sa main avant de le ranger dans son sac.
+
+« Cet homme doit avoir un lien avec le Saint de l'Épée Ling Tianhou. Il pourrait s'avérer utile à l'avenir ! » Un air pensif traversa le regard de Wang Lin. Il fit un nouveau pas et utilisa le sort de téléportation supérieur.
+
+Wang Lin continua ses sauts spatiaux, visant l'endroit où Zi Shu avait péri. Il refusait d'abandonner si facilement et devait vérifier par lui-même ; après tout, l'énergie d'épée de Ling Tianhou était un trésor inestimable !
+
+Le sort de téléportation supérieur était une technique puissante. Après plusieurs utilisations, Wang Lin pénétra dans le Pays du Démon de Feu.
+
+Zi Shu était mort dans une jungle où la plupart des plantes avaient dépéri. Des débris et des cadavres en décomposition jonchaient le sol. Après tout, plusieurs mois s'étaient écoulés.
+
+Pourtant, le corps de Zi Shu était toujours là !
+
+Une faible lueur dorée émanait de sa dépouille, attirant d'innombrables animaux et oiseaux. Au début, ils étaient venus pour se repaître de la chair, mais dès qu'ils approchaient du corps de Zi Shu, ils mouraient instantanément.
+
+Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âge moyen vêtu d'une robe bleue. Après avoir déployé son sens divin, il localisa le corps de Zi Shu au sol. Il descendit aussitôt pour atterrir à cent pieds du cadavre.
+
+« C'est bien ici. Comme je m'y attendais, cet homme doit porter un trésor sur lui, sans quoi une telle énergie d'épée ne pourrait s'en échapper ! » Les yeux de l'homme brillaient de joie en contemplant le corps de Zi Shu.
+
+Zi Shu était mort dans un lieu très reculé ; à moins de chercher avec une attention extrême, il aurait été difficile de trouver ce corps. La méthode de culture de cet homme lui permettait de contrôler les oiseaux et les bêtes. Bien que son sens divin ne fût pas puissant, l'oiseau qu'il possédait avait trouvé le corps lors de ses explorations.
+
+L'homme fut surpris et sentit immédiatement que quelque chose clochait, ce qui le poussa à venir inspecter la scène.
+
+Il observa le corps de Zi Shu et prit une grande inspiration. Il tapota son sac de rangement, d'où s'échappèrent une multitude de scarabées noirs qui volèrent aussitôt vers le cadavre.
+
+Cependant, dès que ces scarabées furent à moins de cent pieds du corps, celui-ci émit des décharges de lumière dorée. À la suite de ces éclats, tous les insectes furent instantanément anéantis.
+
+L'homme d'âge moyen ne fut pas choqué ; au contraire, il semblait ravi. Il fixa le corps et murmura : « Il y a forcément un trésor ici ! » Il prit une profonde inspiration, mais juste au moment où il s'apprêtait à lancer de nouveaux sorts, un reniflement glacial retentit derrière lui.
+
+L'homme fut pris de panique. Il se retourna brusquement et agita sa main droite. Une nuée de nuages noirs jaillit de ses manches ; ces nuages n'étaient en réalité que d'innombrables insectes de la taille d'un grain de riz qui se précipitèrent sur l'individu derrière lui.
+
+Profitant de cette diversion, l'homme recula de quelques pas pour observer son assaillant, mais il ne put s'empêcher de pousser un cri de stupeur.
+
+Un homme en armure noire se tenait là, entouré d'ondes d'une énergie démoniaque monstrueuse. Les insectes qu'il avait lancés périrent instantanément dès qu'ils approchèrent de lui.
+
+L'expression de l'homme changea radicalement et il recula de plusieurs pas. Il joignit les mains et demanda : « Pourquoi cet ami m'empêche-t-il de récupérer le corps de mon jeune frère d'apprentissage ? »
+
+« Votre jeune frère d'apprentissage ? » L'homme en armure n'était autre que Wang Lin. Après sa téléportation, il avait vu cet homme s'extasier devant le corps de Zi Shu.
+
+« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Tong Yun. Nous étions venus ensemble dans le Domaine des Esprits Démoniaques. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué ! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Tong Yun affichait une expression empreinte d'une profonde tristesse.

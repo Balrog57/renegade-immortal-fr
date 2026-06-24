@@ -1,0 +1,121 @@
+---
+n: 1679
+title: Retrouvailles avec les Bêtes Moustiques
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1679 - Reunion With the Mosquito Beasts
+slug: retrouvailles-avec-les-betes-moustiques
+---
+Li Qianmei finit par partir avec son père, Blue Dream. La cinquième concubine fut emmenée par ce dernier.
+
+Ils retourneraient au clan Blue Silk pour y ramener toute leur lignée. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Blue Silk.
+
+Avec le Dao Master Blue Dream présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Dao Master Blue Dream maintenant que son cœur de Dao n'était plus imparfait.
+
+En effet, le Dao Master Blue Dream pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
+
+Li Qianmei disparut dans le Royaume Extérieur avec son père. Après leur départ, la lumière bleue à l'extérieur de la formation se dissipa lentement et le système stellaire redevint sombre.
+
+Lorsqu'elle partit, Li Qianmei était très heureuse. Son sourire était identique à celui d'autrefois. Elle lança un regard tendre à Wang Lin. C'était l'homme qu'elle avait choisi. Elle ne l'avait pas regretté auparavant et elle ne le regretterait pas maintenant. Même si elle devait mourir pour cela, elle n'aurait aucun regret.
+
+Telle était la personnalité de Li Qianmei.
+
+À cet instant, à l'intérieur de la formation en roue, seuls Wang Lin et Mu Bingmei restaient. Elle avait été témoin de tout ce qui s'était passé, et son esprit était en plein chaos.
+
+Aucune parole ne pouvait être échangée entre eux deux. Après un long moment, Mu Bingmei ouvrit la bouche pour rompre le silence, mais Wang Lin avait fermé les yeux pour cultiver et comprendre « Déchirer les Cieux ».
+
+Les mots de Mu Bingmei se dissipèrent dans sa bouche et elle ne dit rien. Sa personnalité n'était pas celle de Li Qianmei ; elle était différente de Xi Zifeng et même de Red Butterfly.
+
+Elle était elle-même, Mu Bingmei.
+
+Bientôt, cinq mois de la dernière demi-année passèrent, n'en laissant plus qu'un seul.
+
+Ce jour-là, Mu Bingmei se leva. Son regard était dépourvu de toute complication ; il était limpide. Elle contempla Wang Lin pendant un long moment.
+
+« Prends soin de toi... » Ce fut sa première et unique parole. Après cela, Mu Bingmei se détourna et marcha vers le Vide Brillant.
+
+Elle était la sainte du Vide Brillant, elle devait donc y retourner.
+
+C'était comme si elle avait accompagné Wang Lin pendant onze mois uniquement pour prononcer cette unique phrase. Mu Bingmei partit avant que l'année ne soit achevée. Onze mois, il manquait encore un mois.
+
+Mu Bingmei se souviendrait de ce mois et le garderait précieusement en mémoire. Sa silhouette solitaire traversant les étoiles paraissait extrêmement seule et mélancolique. Elle semblait fragile, et quiconque la voyait aurait le cœur serré. Elle n'avait plus rien. Elle enviait Li Muwan, elle enviait aussi Li Qianmei.
+
+Li Qianmei avait encore son père, et Li Muwan avait Wang Lin, mais elle, elle n'avait personne. Sa maison était perdue, son maître était parti, et toutes les personnes qu'elle avait connues, celles qui l'avaient accompagnée durant sa croissance, étaient toutes mortes... S'il restait quelqu'un, ce serait Wang Lin. C'était un fait immuable, puisqu'elle était la mère de Wang Ping.
+
+« Même si je meurs, personne ne le saura... Ping Er me déteste aussi... » L'expression de Mu Bingmei s'assombrit tandis qu'elle s'éloignait de plus en plus.
+
+Ce n'est que lorsque la silhouette de Mu Bingmei eut disparu que Wang Lin ouvrit les yeux. Il regarda l'endroit où elle s'était volatilisée et resta pensif.
+
+Wang Lin ne ressentait plus de haine envers Mu Bingmei, mais il n'y avait pas non plus d'amour.
+
+« Encore un mois... » Les yeux de Wang Lin devinrent sérieux alors qu'il fixait l'espace devant lui. Il leva la main droite et pointa l'endroit entre ses sourcils.
+
+Sur ce geste, le corps de Wang Lin trembla et des bruits de craquements résonnèrent à l'intérieur de lui. Tandis que ces sons se multipliaient, son corps devint flou et illusionnaire.
+
+C'était comme si deux Wang Lin se superposaient, une superposition instable due à ce point précis. Après quelques respirations, la figure se déforma et un autre Wang Lin apparut !
+
+Les silhouettes superposées se séparèrent et les craquements cessèrent. Le flou disparut et deux Wang Lin identiques se tenaient là !
+
+Celui qui était assis était le corps originel de Wang Lin. Celui qui portait les étoiles de l'Ancien Dieu, de l'Ancien Démon et de l'Ancien Diable, possédant l'héritage de l'Ancien ! Celui qui se tenait debout était son corps de cultivateur !
+
+Il y eut une période où Wang Lin agissait toujours ainsi. Son corps originel cultivait tandis que son avatar sortait. De cette manière, il progressait sur les deux fronts simultanément.
+
+Cela faisait longtemps qu'il n'avait pas procédé ainsi, mais désormais, son avatar sortait de nouveau !
+
+Son corps originel et son avatar se regardèrent. Un instant plus tard, l'avatar disparut pour s'enfoncer dans le Royaume Intérieur. Son corps originel ferma les yeux et resta assis au centre de la formation pour monter la garde durant le dernier mois.
+
+Wang Lin marcha à travers le système stellaire vêtu d'une robe blanche. À cet instant, il ne possédait plus son puissant corps physique, mais son niveau de culture était toujours celui du stade intermédiaire du Vide Spirituel. Cela ne changerait pas.
+
+Lui, désormais, était un pur cultivateur. Il serait incapable de terrasser ses ennemis par la force brute de son corps et devrait compter sur ses sorts.
+
+« C'est le dernier mois avant que les quatre grands généraux ne sortent du Royaume Céleste Antique, et j'ai encore quelque chose à accomplir ! Je dois réformer les quatre Grands Royaumes Célestes en un nouveau Royaume Céleste. Désormais, les cultivateurs du Royaume Intérieur vivront dans le Royaume Céleste et pourront condenser des Flammes de Joss ! »
+
+« Tous les cultivateurs nés à partir de maintenant pourront cultiver pour devenir des Célestes. Une fois qu'ils auront atteint le stade de la Formation de l'Âme, ils pourront se rendre dans le Royaume Céleste pour leur culture ! » L'expression de Wang Lin était solennelle tandis qu'il traversait le Royaume Intérieur.
+
+À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes de Joss. Cependant, à sa mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
+
+Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Formation de Scellement du Royaume et l'aura de l'Ancien Système Stellaire s'était engouffrée partout. La limitation des Flammes de Joss dans le Royaume Intérieur avait disparu ; c'était le moment idéal pour réformer le Royaume Céleste !
+
+Avant lui, d'autres avaient tenté l'aventure, mais les conditions n'étaient pas réunies. Ils ne possédaient pas le trésor du Seigneur du Royaume Scellé et, à l'époque, la Formation de Scellement du Royaume n'avait pas été suffisamment affaiblie.
+
+Wang Lin fit un pas en avant. Le premier endroit où il se rendit fut le Royaume Céleste du Vent dans la Mer des Nuages ! Ce royaume était bien préservé et occupé par une immense quantité de bêtes moustiques. À l'époque, le niveau de culture de Wang Lin n'était pas assez élevé pour ébranler ce domaine, mais aujourd'hui, il le pouvait !
+
+De plus, grâce à son lien, Wang Lin savait que les bêtes moustiques qui s'étaient séparées de lui lors de la bataille passée avaient survécu et s'étaient établies dans le Royaume Céleste du Vent.
+
+D'un pas, des ondulations se propagèrent et Wang Lin disparut. Lorsqu'il réapparut, il se trouvait au plus profond de la Mer des Nuages, à l'entrée du Royaume Céleste du Vent.
+
+Revenant en un lieu familier, Wang Lin pénétra dans la faille et s'élança dans le Royaume Céleste du Vent. Un vent tranchant comme une lame hurlait à travers ce domaine.
+
+Le gémissement du vent était le seul son qui régnait ici. Un vent désolé balayait le ciel. La poussière au sol était arrachée couche après couche par les rafales, jusqu'à ce qu'il n'en reste plus rien.
+
+Après un balayage de son Sens Divin, Wang Lin chargea sans hésitation, ses cheveux blancs flottant derrière lui. Le vent ne pouvait l'arrêter ; non seulement il restait imperturbable, mais le vent lui-même semblait s'effondrer devant lui.
+
+Au cœur du Royaume Céleste du Vent se trouvait un continent où les vents étaient plus violents qu'ailleurs. Deux groupes de bêtes moustiques s'y trouvaient, s'entretuant dans une lutte acharnée.
+
+Chacun de ces deux groupes comptait des dizaines de milliers d'individus et, au fil du combat, les pertes s'accumulaient massivement. Cependant, tous ceux qui mouraient appartenaient au même groupe. L'autre groupe affichait des expressions sanguinaires, leurs gueules perçant les corps de leurs adversaires.
+
+Ce groupe de bêtes moustiques était, en réalité, indemne !
+
+En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante de plus de mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
+
+Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plus de cent pieds de long. Sa présence marquait l'arrivée d'un roi.
+
+La bête géante se précipita sur le groupe en retraite. Elle ravagea tout sur son passage avec une férocité extrême. Des cris de détresse résonnèrent et, en quelques instants seulement, plusieurs milliers de moustiques périrent.
+
+Alors que l'essaim suivant la géante s'élançait, il ne fallut pas longtemps pour que les dizaines de milliers de moustiques restants soient tous exterminés. Pas un seul n'échappa à la mort !
+
+La bête géante était couverte du sang de ses congénères. Une tristesse se cachait dans ses yeux froids. Durant ces cent dernières années, elle avait toujours été triste car elle ne pouvait retrouver son maître ; elle ne pouvait que tuer pour évacuer sa douleur. La bête laissa échapper un sifflement aigu. Ce n'était pas de l'excitation, mais un cri de deuil, semblable à celui d'un enfant abandonné pleurant vers les cieux !
+
+Alors qu'elle sifflait, l'essaim environnant répondit par des sifflements. Le concert de leurs cris était capable de déchirer le ciel.
+
+Tandis que ces sons résonnaient, une immense quantité de bêtes moustiques s'envola du continent pour fuir précipitamment. Certaines, malgré leur taille imposante, s'enfuirent également, terrifiées.
+
+Dans leur mémoire, durant ces cent ans, il y avait un groupe de bêtes moustiques qui était devenu absolument dément. Elles ne cessaient de tuer et de croître en puissance. Chaque fois qu'elles atteignaient un nouveau continent, elles répétaient le même massacre. Si vous ne partiez pas, elles feraient tout pour vous exterminer.
+
+Cependant, à cet instant précis, la bête géante trembla soudainement et son rugissement s'interrompit net. Elle frissonna tandis que la froideur de son regard se brisait, remplacée par une confusion qui avait disparu depuis cent ans !
+
+Cette confusion se mua rapidement en excitation ! La bête géante s'agita de joie. Elle poussa un autre sifflement et s'envola au loin comme possédée.
+
+C'était comme si elle venait soudainement de ressentir l'aura de son maître après une si longue séparation. Elle avait tout oublié et devenait folle, tentant désespérément de retrouver cette aura !
+
+Wang Lin planait dans les airs du Royaume Céleste du Vent. Il tourna la tête vers la gauche et afficha un sourire radieux.

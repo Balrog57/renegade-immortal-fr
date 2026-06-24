@@ -1,0 +1,113 @@
+---
+n: 1268
+title: "La Perle Défiant le Ciel disparaît !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1268 - The Heaven Defying Bead Disappears!"
+slug: la-perle-defiant-le-ciel-disparait
+---
+Chapitre 1268 - La Perle Défiant le Ciel disparaît !
+
+À cet instant, le monde entier était entouré par les innombrables restrictions que Wang Lin avait dispersées. C'était comme une sphère en expansion qui se condensait rapidement.
+
+Le vieil homme à l'intérieur du jade laissa poindre un soupçon de désespoir, mais à ce moment précis, un sifflement s'échappa de l'objet. Une brume noire en jaillit et forma une centipède géante d'environ mille pieds de long !
+
+Cette centipède était d'un noir absolu, parcourue d'une ligne dorée sur le dos. Elle était d'une férocité extrême !
+
+Dès son apparition, elle cracha soudainement un jet de poison vers Wang Lin ! Cette brume toxique contenait un venin puissant qui, au contact des restrictions se refermant sur elle, les fit s'effondrer instantanément.
+
+Les yeux de Wang Lin s'illuminèrent. Sans marquer le moindre temps de pause, il chargea en avant. Il leva sa main droite vers le ciel et hurla : « Tonnerre du monde, écoutez mon commandement ! »
+
+À peine eut-il prononcé ces mots que d'innombrables éclairs apparurent dans le ciel au-dessus de Mo Luo, remplaçant l'azur. Tous descendirent en foudre sur la centipède géante.
+
+La centipède émit un sifflement et montra des signes de désespoir. Au moment où le tonnerre approcha, une scène étrange se produisit : davantage de brume noire jaillit du jade et six autres centipèdes de mille pieds apparurent !
+
+Au total, sept centipèdes sifflèrent comme des démoniaques en crachant une brume toxique qui percuta le tonnerre.
+
+Des grondements tonitruants résonnèrent, mêlés à des rugissements de douleur. Trois des sept centipèdes s'effondrèrent et se désintégrèrent. Les quatre restantes battirent en retraite rapidement.
+
+Les yeux de Wang Lin brillèrent d'excitation et il chargea. Il plongea au cœur du tonnerre et attaqua de la main droite. Dans un fracas retentissant, deux des quatre centipèdes restantes s'effondrèrent !
+
+Les deux dernières centipèdes reculèrent promptement en sifflant, tentant de regagner le jade.
+
+Cependant, comment Wang Lin pouvait-il les laisser s'échapper ? D'un geste de la main, il envoya deux épées courtes vers elles.
+
+Des bruits de déchirement retentirent tandis que l'énergie des lames balayait la zone, et les deux centipèdes en fuite s'effondrèrent à leur tour !
+
+Les sept centipèdes étaient mortes et les restrictions de Wang Lin se refermèrent. Il n'y avait plus rien pour entraver leur progression. Elles encerclèrent complètement le jade, l'empêchant désormais de toute fuite !
+
+Tous les sorts de Wang Lin auraient suffi à tuer un cultivateur du stade moyen du Briseur de Nirvana. Bien qu'il ait éliminé les sept centipèdes, le jade n'avait subi aucun dommage !
+
+Plus Wang Lin observait le jade, plus il lui semblait extraordinaire. Il devait s'agir d'un trésor magique surpuissant. Lorsqu'il cherchait un moyen de survivre, la dernière chose qu'il avait vue était Liu Jinbiao ; il était désormais certain que sa survie était liée à ce jade !
+
+Alors que les restrictions se resserraient, Wang Lin s'approcha du jade et tendit sa main droite. Cependant, à cet instant, une aura féroce émana de l'intérieur de l'objet.
+
+Une nouvelle brume noire jaillit du jade et une centipède de 10 000 pieds en sortit. Wang Lin était bien trop près, la créature se trouvait juste à ses côtés. Elle ouvrit la gueule pour cracher un nuage toxique et tenta d'engloutir Wang Lin.
+
+Simultanément, l'expression de Liu Jinbiao devint hideuse et il rugit : « Jade, dévore-le ! C'est un vieux monstre du stade Briseur de Nirvana, il possède sûrement une multitude de trésors et de cristaux d'origine. Dévore-le ! Je n'en veux aucun, je te donnerai tout ! »
+
+Alors que la centipède fonçait sur lui, l'expression de Wang Lin ne changea pas d'un iota. Avec sa force mentale, comment aurait-il pu ne pas se méfier de ce jade étrange ? Tandis que la créature approchait, Wang Lin ouvrit la bouche et poussa un rugissement !
+
+ROAR !!
+
+Ce n'était pas le cri d'un cultivateur, mais celui d'un dieu ancien ! Le rugissement d'un dieu ancien royal de presque 6 étoiles ! Ce cri ébranla les cieux, comme si une déchirure allait s'ouvrir dans la voûte céleste !
+
+La terre trembla et d'innombrables montagnes s'effondrèrent au loin. Les rivières coulèrent à l'envers dans un fracas assourdissant !
+
+Le rugissement d'un dieu ancien, conjugué à la culture de Wang Lin, pouvait directement briser n'importe quel cultivateur du Nettoyeur de Nirvana, détruire le corps d'un Briseur de Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur de Nirvana !
+
+Il pouvait faire perdre tous ses sens à un Briseur de Nirvana au stade tardif ! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur !
+
+La centipède de 10 000 pieds émit un rugissement misérable avant même d'avoir pu l'engloutir. C'était comme si une rafale de vent dévastatrice l'avait frappée, ou qu'un char pesant des millions de kilogrammes s'était écrasé sur elle !
+
+Dans un fracas tonitruant, le corps de la centipède s'effondra et se désintégra complètement !
+
+Son sifflement tragique avant la mort résonna encore dans l'univers !
+
+Après la perte de la centipède, la lumière du jade se dissipa, mais une faible et douce lueur continua de l'entourer. Étonnamment, cette lueur ne se mélangeait à aucune autre lumière du monde. C'était comme si elle appartenait à un autre plan d'existence !
+
+La main droite de Wang Lin s'élança et saisit le jade !
+
+Au moment où il le tint, un rugissement retentit dans son esprit. Une force indescriptible jaillit du jade et se précipita dans son corps. Elle balaya son âme d'origine, et la Perle Défiant le Ciel émit une lumière qui sembla entrer en résonance avec le jade !
+
+Tandis que cette résonance s'intensifiait, le jade dans la main de Wang Lin disparut soudainement pour pénétrer son corps. Il apparut dans son âme d'origine, aux côtés de la Perle Défiant le Ciel. La Perle aspira alors le jade !
+
+À cet instant précis, la Perle Défiant le Ciel s'effondra et disparut dans son âme d'origine comme si elle n'avait jamais existé ! Pourtant, Wang Lin pouvait clairement ressentir sa présence. À ce moment-là, il eut même l'impression de devenir lui-même la Perle Défiant le Ciel !
+
+Cette sensation était très vague, mais Wang Lin n'eut pas le temps d'y réfléchir car, au moment de la disparition, son esprit vacilla. Des souvenirs qui ne lui appartenaient pas surgirent en lui.
+
+Dans cette vision, tout était plongé dans l'obscurité et un jade était enfoui sous terre. Après d'innombrables années sans aucun changement, le sol finit par se desserrer et huit petites centipèdes apparurent près de lui. Comme si le jade leur avait accordé une intelligence, elles commencèrent à absorber son aura.
+
+Le temps passa lentement, les siècles s'écoulèrent. À mesure que les huit centipèdes s'abreuvaient de l'énergie du jade, elles commencèrent à émettre l'aura de cultivateurs. Un jour donné, leurs corps tremblèrent et elles moururent, mais les âmes d'origine qu'elles avaient cultivées pénétrèrent dans le jade. Elles devinrent des êtres semblables à des esprits de trésor.
+
+Cependant, elles avaient été créées par une force extérieure et ne pouvaient contrôler le jade ; elles ne pouvaient utiliser qu'un millième de sa puissance !
+
+D'innombrables années passèrent encore. La terre trembla de nouveau et le jade, autrefois enfoui, fut exposé à la surface.
+
+Un vieil homme au visage tuméfié fuyait en panique. On entendait des jurons étouffés derrière lui, criant des mots comme « escroc » ou « menteur ».
+
+Alors qu'il s'enfuyait, ses blessures semblèrent s'aggraver et il cracha du sang. Ce sang tomba accidentellement sur le jade qui se mit à briller, attirant l'attention du vieillard en fuite.
+
+Le vieil homme ramassa le jade. Après l'avoir examiné, il s'enfuit immédiatement...
+
+Wang Lin se réveilla soudainement. Bien que cette vision ait semblé longue, elle n'avait duré qu'un demi-souffle. Cependant, aucun témoin extérieur n'aurait pu percevoir quoi que ce soit. Liu Jinbiao fixa Wang Lin et vit le jade disparaître de sa main.
+
+Il ressentit une douleur fulgurante dans son esprit alors que sa connexion avec l'objet était rompue.
+
+Toutefois, comparée à sa propre vie, cette pierre de jade n'était rien. Les yeux de Liu Jinbiao se remplirent de terreur tandis qu'il s'agenouillait et commençait à hurler :
+
+« Aîné, pardonnez-moi ! Aîné, pardonnez-moi ! Ce junior n'a jamais tué personne, je ne fais que tricher ou effrayer les gens occasionnellement. Au pire, j'ai accaparé quelques biens, mais je n'ai jamais versé le sang. Mon péché ne mérite pas la mort, mon péché ne mérite pas la mort, Aîné ! Je vous en supplie, laissez-moi partir ! Ce junior ne trichera plus jamais et deviendra un homme de bien. Je ne tricherai plus jamais... »
+
+Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa grâce.
+
+« Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur de Nirvana ! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué ! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
+
+« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper le Secte Originel, il doit donc être puni ! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux ! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
+
+Xu Liguo était déprimé et maudissait en son cœur depuis des centaines d'années. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Allheaven ; il aspirait constamment à les revivre.
+
+Alors qu'il sombrait dans sa mélancolie, il entendit soudain le message de Wang Lin et vit Liu Jinbiao tomber dans son espace de stockage. Ses yeux s'illuminèrent d'excitation et il faillit pousser un rugissement de joie.
+
+« Maître, soyez tranquille, haha ! Le Petit Xu va certainement donner une leçon mémorable à ce type et lui faire connaître ma force ! » Xu Liguo se frotta les mains avec enthousiasme et afficha un sourire maléfique. Il s'approcha lentement du vieil homme nommé Liu Jinbiao. La terreur dans les yeux de ce dernier redoubla, faisant briller le regard de Xu Liguo.
+
+« Bon sang, combien de temps ton Grand-père Xu a-t-il dû supporter cette solitude ? Combien d'années, hein ? Aujourd'hui, le Ciel a enfin remarqué ma présence en te laissant offenser ce démon. Bien joué ! » Xu Liguo se jeta sur Liu Jinbiao en riant. Quel que soit le ton qu'on lui prêtait, ce rire était empreint d'une intention purement malveillante...

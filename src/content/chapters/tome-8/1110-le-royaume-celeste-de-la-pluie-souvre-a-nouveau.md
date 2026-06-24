@@ -1,0 +1,135 @@
+---
+n: 1110
+title: "Le Royaume Céleste de la Pluie s'ouvre à nouveau !"
+book: 8
+bookTitle: "Alliance's Secret"
+en: "Chapter 1110 - Rain Celestial Realm Opens Once More!"
+slug: le-royaume-celeste-de-la-pluie-souvre-a-nouveau
+---
+Chapitre 1110 - Le Royaume Céleste de la Pluie s'ouvre à nouveau !
+
+« Tais-toi ! » grogna Wang Lin en fronçant les sourcils.
+
+Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis qu'il pensait : « C'est fini, c'est fini. J'ai dû perdre la raison pour oser attaquer ce démon. Xu Liguo, ah, Xu Liguo, quel diable rusé tu es, comment as-tu pu être si impulsif !?! »
+
+« Cette purification est terminée et je surveillerai tes performances à partir de maintenant. Si tu oses te rebeller à nouveau, je t'effacerai ! » La voix de Wang Lin était glaciale, mais elle fut comme une brise printanière apaisant le cœur de Xu Liguo. Ce dernier s'empressa de dire :
+
+« Maître est vraiment génére... » Sans attendre qu'il finisse sa phrase, Wang Lin agita sa main droite et projeta l'épée dans la fissure spatiale. Il n'avait aucune intention d'écouter les flatteries exagérées de Xu Liguo.
+
+Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
+
+Ta Shan était toujours assis sur une planète de culture quelque part au sein du Secte Divin de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
+
+Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
+
+Ta Shan réfléchit un instant et dit amèrement : « Maître... »
+
+Wang Lin détourna le regard vers l'horizon. Après un long moment, il dit calmement : « Tu as retrouvé ta conscience, tu n'as donc plus besoin de m'appeler "Maître". »
+
+Le visage de Ta Shan devint encore plus amer, puis il murmura doucement : « C'est Maître qui m'a permis de survivre jusqu'à présent. Ta Shan ne l'oubliera jamais. »
+
+Wang Lin laissa échapper un soupir en regardant Ta Shan et demanda : « Quand pars-tu ? »
+
+Le corps de Ta Shan trembla alors qu'il levait les yeux vers Wang Lin. Après une courte réflexion, il esquissa un sourire désabusé et dit : « Comment Maître a-t-il pu lire en moi ? »
+
+« Tu fabriques des talismans depuis ton arrivée. Si tu n'avais pas déjà un plan, tu ne ferais pas cela. » C'était la première fois que Wang Lin rencontrait Ta Shan depuis quelques années. Wang Lin éprouvait lui aussi des sentiments complexes à l'idée de retrouver son ancien garde céleste.
+
+Ta Shan hocha la tête et murmura : « Je veux revoir les membres de mon clan à Allheaven. Maître, en plus des talismans que j'ai faits pour moi-même, j'en ai aussi fait trois pour vous. Ils sont de type Vitesse, Effondrement et Sceau ! » Tout en parlant, il sortit trois peaux de bêtes et les tendit respectueusement à Wang Lin.
+
+Ces trois talismans avaient été confectionnés avec des peaux extrêmement rares. L'effort investi dans leur création était bien supérieur à la normale.
+
+Wang Lin regarda Ta Shan en prenant les trois talismans et dit : « Le Système Stellaire de l'Alliance est très chaotique en ce moment. Sois prudent durant ton voyage ! »
+
+Ta Shan regarda Wang Lin et hocha la tête.
+
+« Si tu vois le disciple que j'ai pris sur la planète Qin Ling, s'il te plaît, aide-moi à prendre soin de lui. » Wang Lin jeta un dernier regard à Ta Shan avant de partir.
+
+Ce n'est qu'une fois Wang Lin parti que Ta Shan s'agenouilla silencieusement pour faire une profonde révérence en sa direction. Puis il rangea toutes les peaux de bêtes, prit une grande inspiration et s'envola vers le ciel.
+
+Situ devait naturellement se rendre dans le Royaume Céleste de la Pluie pour sauver l'Empereur Divin du Dragon Azure. Le poison dans son corps n'avait pas été totalement expulsé, et sans antidote, cela causerait des problèmes par la suite.
+
+Situ Nan était déjà arrivé près des 35 Anciens et se tenait aux côtés de l'un d'eux. C'était cet Ancien qui aidait Situ Nan à expulser le poison.
+
+Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger ! Il comptait rendre toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan !
+
+Certaines planètes abandonnées du Secte Divin de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
+
+À cet instant, Wang Lin apparut près de l'une de ces planètes désolées. Aucune plante n'y poussait et presque toute forme de vie s'était éteinte. Il n'y avait qu'un désert noir dégageant une chaleur étouffante.
+
+En foulant ce désert noir, on pouvait sentir les traces de poison mêlées à la chaleur. Le désert n'était pas plat ; il présentait des reliefs, des vallons et même des montagnes.
+
+Une montagne se dressait devant Wang Lin. Elle était d'un noir absolu, et les vagues de chaleur faisaient flotter ses cheveux blancs au gré du vent.
+
+Wang Lin joignit les mains et dit : « Wang Lin salue les Anciens Célestes, le Couple ! »
+
+Dès que sa voix retentit, un rayon d'énergie d'épée jaillit de la montagne et fonça vers lui. Wang Lin ne recula pas ; il sourit en observant l'énergie s'approcher.
+
+L'énergie d'épée se rapprocha et prit forme humaine. L'individu ressemblait à un homme d'âge mûr, très beau mais au teint un peu pâle. Lorsqu'il regarda Wang Lin, il afficha lui aussi un sourire.
+
+« Wang Lin, les deux Anciens savaient déjà que tu viendrais. Viens avec moi. » Cet homme était Zhou Yi !
+
+Il n'était pas nécessaire de discuter de leur relation. Dans un sourire partagé, ils pénétrèrent tous deux dans la montagne.
+
+L'intérieur de la montagne était extrêmement profond et des vagues de chaleur intense s'en échappaient. Wang Lin ne semblait nullement incommodé et observa Zhou Yi. Ce dernier, d'apparence normale, murmura : « La première fois que je suis venu ici, je n'étais vraiment pas habitué, mais maintenant, cela ne me pose plus de problème. » Zhou Yi hésita un instant avant de demander : « Wang Lin... Toi... J'ai entendu dire que tu venais cette fois pour sauver l'Empereur Divin du Dragon Azure. »
+
+Wang Lin secoua la tête et regarda Zhou Yi avec respect : « En plus de sauver l'Empereur Divin du Dragon Azure, il y a aussi la question de l'Empereur Céleste Qing Lin. Ce n'est qu'en éveillant Qing Lin que le Seigneur Céleste Qing Shuang pourra revivre. »
+
+En entendant cela, le visage de Zhou Yi s'illumina d'excitation. Il regarda Wang Lin et dit avec gratitude : « Merci ! »
+
+L'expression de Wang Lin devint complexe et il secoua la tête. Zhou Yi fut surpris et comprit immédiatement quelque chose. Son visage s'assombrit et, en descendant avec Wang Lin, il dit : « Toi et moi nous sommes très semblables... mais moi, j'ai quelqu'un pour m'aider, tandis que toi, tu n'as personne... Grand Frère Zhou est impuissant à t'aider. »
+
+Wang Lin réfléchit silencieusement sans rien ajouter.
+
+Peu de temps après, ils atteignirent le fond. Les lieux avaient été totalement transformés par un puissant sortilège. C'était comme un autre monde, préservé du poison ; tel un jardin d'Éden.
+
+Une petite rivière coulait vers une destination inconnue, bordée de plusieurs huttes en bois. On y voyait même des champs verdoyants parsemés de quelques fleurs écloses.
+
+Wang Wei était assis au bord de l'eau, souriant à son amante, Hu Juan, qui se trouvait de l'autre côté. Cette dernière se comportait comme une enfant, les pieds dans la rivière, faisant parfois jaillir des éclaboussures.
+
+Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit les mains et dit respectueusement : « Le junior Wang Lin salue les deux Anciens. »
+
+Wang Wei regarda Wang Lin en souriant : « Dis-moi pourquoi tu m'as demandé de tendre une embuscade à Li Yunzi ; sinon, je ne te laisserai pas partir si facilement ! »
+
+De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta : « Wang Lin s'en soucie beaucoup. Il trouve indigne de son statut d'Aîné de tendre une embuscade à un junior. »
+
+Wang Lin sourit. Wang Wei et Hu Juan étaient devenus très proches de lui après les événements sur la Terre des Esprits Démoniaques ; ils ne le considéraient plus comme un étranger. Wang Wei ne se souciait probablement pas tant que cela de l'embuscade faite à Li Yunzi.
+
+Puisqu'on l'interrogeait, Wang Lin expliqua brièvement la situation, et Wang Wei n'en tint plus compte après avoir entendu les raisons.
+
+« Lors de mon séjour sur la Terre des Esprits Démoniaques, le junior a entendu les dernières paroles de l'Empereur Céleste Qing Lin : le Temple du Royaume Céleste de la Pluie, le cristal d'âme originelle et le corps de Qing Shuang. Le junior en possède deux, mais quant au Temple du Royaume Céleste de la Pluie... » Wang Lin marqua une pause et regarda Wang Wei.
+
+L'expression de Wang Wei devint sérieuse et il hocha la tête. « Au fil des années, j'y ai réfléchi, et il y avait bel et bien un temple ! C'est là que Maître est devenu l'Empereur Céleste. Je t'en avais déjà parlé auparavant, alors ta venue ici signifie que... » Wang Wei fixa Wang Lin du regard.
+
+Wang Lin réfléchit silencieusement avant de leur révéler comment l'ancien Empereur Divin avait pris le Cristal du Royaume Céleste de la Pluie. Wang Wei devint grave après avoir entendu cela, et même Hu Juan cessa de jouer dans l'eau. Elle mit ses chaussures et rejoignit Wang Wei.
+
+Les deux se regardèrent, et Wang Wei déclara : « Nous deux nous souviendrons de la bienveillance de l'ancien Empereur Divin de l'Oiseau Vermillon. Si l'Empereur Divin du Dragon Azure est réellement piégé dans le Royaume Céleste de la Pluie, nous l'aiderons à être secouru pour rendre au vieil Empereur sa faveur d'avoir obtenu le Cristal du Royaume Céleste de la Pluie. »
+
+Wang Lin acquiesça. Wang Wei et Hu Juan se préparèrent et, accompagnés de Zhou Yi, partirent avec Wang Lin.
+
+Quant au corps de Qing Lin, Wang Wei le portait avec lui.
+
+Sur la formation située sur la planète principale de l'Oiseau Vermillon, tout le monde attendait en silence. À cet instant, quatre rayons de lumière convergèrent vers la formation, révélant Wang Lin, Wang Wei et leur suite.
+
+Wang Lin s'installa au centre de la formation sans perdre un instant. Ses yeux brillèrent et il cria : « Activez la formation ! » Sur ce commandement, sa main droite plongea dans le vide et une fissure apparut. Un cristal débordant d'énergie spirituelle céleste en jaillit !
+
+Simultanément, les 10 000 membres du secteur ouvrirent les yeux, et leur énergie originelle fut injectée dans la formation. Celle-ci se mit immédiatement à scintiller sous leurs pieds.
+
+Dès que l'éclat atteignit une intensité critique, la lumière commença à se concentrer sous les 35 Anciens. Tous formèrent des sceaux et activèrent leur énergie avec ferveur. Toute l'énergie originelle des disciples fut divisée en 35 parts et fut dirigée droit vers le cristal situé devant Wang Lin, au centre de la formation.
+
+En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimaginable d'énergie spirituelle céleste envahit la zone. Un pilier d'énergie spirituelle jaillit vers les cieux, propageant des ondes de choc dans toutes les directions.
+
+Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète du Secte Divin de l'Oiseau Vermillon ! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement : le Royaume Céleste de la Pluie venait de s'ouvrir !
+
+Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Allheaven, le Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
+
+« Les personnes de notre niveau de culture risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite !!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie ! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
+
+Une autre personne, à laquelle Wang Lin était trop occupé pour prêter attention, chargea également vers le Royaume Céleste de la Pluie ! Il s'agissait du cadavre féminin argenté !
+
+Au même instant, sur une planète isolée et abandonnée de la région nord de l'Alliance, l'astre trembla violemment avant de se fendre en croix. Un vieil homme aux cheveux blancs en sortit, le visage dissimulé par sa chevelure. Une lumière cristalline scintillait devant lui : c'était un four de pluie.
+
+« Wang Lin... Tu ne peux échapper à mes calculs ! »
+
+À cet instant, une bourrasque de vent balaya les cheveux désordonnés du vieil homme, révélant son identité...
+
+L'Omniscient !

@@ -1,0 +1,95 @@
+---
+n: 1295
+title: Indices sur Li Qianmei
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1295 - Lead About Li Qianmei
+slug: indices-sur-li-qianmei
+---
+Wang Lin ne passa que peu de temps sur le champ de bataille de la faille spatiale du Secte Démon. Pourtant, en cet instant éphémère, il avait provoqué un choc indescriptible parmi les milliers de cultivateurs présents.
+
+Les bêtes féroces s'étaient effondrées, les crânes noirs avaient été anéantis ; il avait déchiré la faille, apprivoisé le Dragon des Neuf Abîmes et combattu l'Ancien du Secte Démon. Non seulement il n'avait pas perdu, mais il avait fait preuve d'une force écrasante, allant jusqu'à infliger à l'Ancien une blessure cachée dont celui-ci n'avait même pas conscience !
+
+Tout cela terrifia les milliers de cultivateurs postés à l'extérieur de la faille spatiale !
+
+L'image de l'homme aux vêtements blancs et aux cheveux blancs s'était gravée dans le cœur de ces cultivateurs. Elle ne pourrait jamais être effacée !
+
+Pour les habitants de la Mer des Nuages, la faille spatiale était à la fois familière et inconnue. Ils connaissaient la guerre qui se jouait, mais ignoraient vers quoi elle tendait ni comment elle s'achèverait.
+
+Ce n'était pas que d'importants cultivateurs n'entraient jamais dans la faille, c'est qu'ils savaient qu'ils ne reviendraient pas, tant elle était vaste. C'était comme un univers à part entière, impossible à explorer avec seulement quelques individus.
+
+Sur cent personnes qui s'y engageaient, moins de trois revenaient. Les autres mouraient ou disparaissaient à jamais. Pourtant, le Secte Démon n'avait jamais renoncé et continuait d'envoyer des troupes périodiquement.
+
+Grâce à cette méthode au taux de mortalité effroyable, ils avaient lentement découvert un passage au fil des éons. Li Qianmei était devenue une éclaireuse pour explorer à nouveau la faille spatiale. Soit elle survivrait et reviendrait avec de nouvelles découvertes, soit elle mourrait et deviendrait l'une de ces cultivatrices disparues.
+
+Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il contempla ce monde sombre, dépourvu de toute lumière. Même avec sa culture, il ne pouvait percevoir que mille pieds devant lui. Tout ce qui se trouvait au-delà n'était qu'un flou ténébreux.
+
+« Le chemin tracé dans le jade est un passage vers les profondeurs de la faille spatiale, obtenu par le Secte Démon au prix d'innombrables sacrifices. C'est aussi le chemin emprunté par Li Qianmei, mais cet endroit est tout simplement trop vaste. Même le passage contenu dans le jade ne pénètre pas réellement dans les profondeurs. »
+
+Wang Lin se tenait sur le dos du Dragon des Neuf Abîmes. Celui-ci se déplaçait à une vitesse fulgurante, son corps de dix mille pieds fendant l'obscurité tel un éclair étrange. Sa particularité résidait dans son silence absolu : malgré sa célérité, aucun grondement tonitruant ni aucune onde de choc ne troublaient son vol.
+
+Assis sur la tête du Dragon des Neuf Abîmes, Wang Lin observait les environs en silence. Il semblait s'acclimater parfaitement à ce monde d'ombre sans le moindre inconfort.
+
+Après avoir progressé durant une durée indéterminée, le silence fut rompu par des rugissements lointains.
+
+Comme ces hurlements provenaient de très loin, ils ressemblaient au souffle d'un être vivant. Cependant, il ne s'agissait pas d'un seul souffle, mais de plusieurs...
+
+Cette sensation étrange aurait rendu n'importe quel cultivateur de la Mer des Nuages extrêmement vigilant lors d'une première incursion. Mais cela n'affectait nullement Wang Lin.
+
+Il restait assis calmement, le regard porté vers l'avant, se remémorant ces dix années où il n'était qu'une statue de pierre, incapable de ressentir quoi que ce soit du monde extérieur... Il songea également à la lumière sanguine et à la chaleur qui l'avaient accompagné durant ses dix ans à l'intérieur de la Perle Céleste.
+
+Sans cette lumière sanguine, l'âme de Wang Lin serait restée prisonnière de la Perle Céleste jusqu'à sa dissipation complète. Il se souvenait qu'au début, il avait ressenti un froid glacial et qu'il s'effaçait peu à peu... Ce n'est que lorsque la lumière sanguine apparut qu'il retrouva la chaleur et que son corps commença lentement à se reformer. Il avait alors recouvré ses sens et réveillé ses souvenirs.
+
+C'est grâce à cette lumière sanguine qu'il avait pu trouver le Seigneur du Royaume Scellé et entrer dans le domaine du Dao pour comprendre son premier sort de Dao.
+
+« Sort Dao... C'est le sort que j'ai compris dans le domaine du Dao. C'est mon troisième sort, après Nuit Brisée et Temps Fluide. C'est un véritable sort de Dao... »
+
+Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Céleste. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de l'en remercier.
+
+Le temps s'écoulait lentement tandis que Wang Lin plongeait dans ses souvenirs. Le monde au sein de la faille spatiale semblait immuable ; tout n'était qu'obscurité constante.
+
+La seule différence résidait dans le fait que, lorsque Wang Lin levait parfois les yeux, les ombres de bêtes apparaissant à mille pieds de lui se faisaient de plus en plus nombreuses. Si ce monde était illuminé, le spectacle révélé choquerait n'importe quel cultivateur !
+
+Wang Lin leva la tête et concentra l'énergie originelle dans sa main droite. Une lumière dorée s'accumula dans sa paume avant de jaillir vers le ciel telle une météorite. Elle brisa le silence et explosa soudainement en un éclat radieux qui illumina tout sur son passage !
+
+À l'instant où la lumière apparut, des rugissements assourdissants s'élevèrent des bêtes féroces environnantes. Grâce à cet éclairage, Wang Lin vit clairement que de multiples espèces de créatures féroces encerclaient le Dragon des Neuf Abîmes et lui-même. Ils n'étaient pas moins de dix mille !
+
+Ces créatures semblaient extrêmement sensibles à la lumière. Dès que l'éclat perça les ténèbres, elles rugirent violemment avant de battre en retraite précipitamment.
+
+L'aveuglante clarté fut bientôt engloutie par l'obscurité, replongeant le monde dans les ténèbres.
+
+Le Dragon des Ne neuf Abîmes était l'une des bêtes royales de la faille spatiale, et il dégageait une aura de souverain qui empêchait les créatures alentour de s'approcher. C'était ce qui avait permis à Wang Lin d'avancer si loin.
+
+En temps normal, toutes les bêtes féroces auraient dû fuir face au Dragon des Neuf Abîmes, mais la présence de Wang Lin créait une confusion en elles. C'est pourquoi tant d'entre elles s'étaient rassemblées sans toutefois oser s'approcher davantage.
+
+La lumière avait permis à Wang Lin d'observer les environs. Bien qu'elles fussent nombreuses, la plupart étaient de rang 10. Il y en avait peu au-delà.
+
+La lueur se dissipa. Wang Lin était toujours assis sereinement sur la tête du Dragon des Neuf Abîmes lorsqu'il déploya son Sens Divin. Le Dragon sembla stimulé par cette onde et poussa un rugissement. Ce cri fit trembler les cieux et résonna violemment dans ce monde obscur.
+
+Le Dragon des Neuf Abîmes accéléra soudainement sa course. Les bêtes féroces s'écartèrent, lui ouvrant un passage. Le dragon perça la horde et s'enfonça dans les profondeurs du monde sombre.
+
+Il était difficile de se repérer dans le temps au sein de la faille spatiale. Il n'y avait ni jour ni nuit, seulement une obscurité infinie. À mesure que le Dragon des Neuf Abîmes progressait, l'expression de Wang Lin devenait de plus en plus grave.
+
+Bien qu'il ne puisse toujours voir qu'à mille pieds devant lui, il remarqua un changement. En s'enfonçant davantage, la teinte du monde se modifiait. Ce n'était plus le noir, mais le violet !
+
+Le Dragon des Neuf Abîmes commença à ralentir. Un léger tremblement émanait de son âme, comme si ce monde violet l'effrayait.
+
+Si le Sens Divin de Wang Lin ne l'entourait pas, le Dragon des Neuf Abîmes aurait tremblé violemment et n'aurait plus osé avancer. Il aurait immédiatement fait demi-tour pour s'enfuir. Les bêtes qui les suivaient avaient elles aussi frémi, n'osant pas poursuivre l'exploration. Cependant, la densité des créatures environnantes n'augmentait pas, elle se multipliait. C'étaient toutes des bêtes résidant dans ce monde violet.
+
+Wang Lin nota naturellement l'état anormal du Dragon des Neuf Abîmes. Ses yeux s'illuminèrent. Bien que le temps écoulé fût difficile à estimer, il calcula la distance parcourue en fonction de leur vitesse. Selon son analyse, il atteignait la lisière du royaume violet mentionné dans le jade.
+
+Il était très proche de la fin du passage indiqué par la pierre.
+
+Assis sur la tête du Dragon des Neuf Abîmes, Wang Lin ferma les yeux pour ressentir son environnement. Il percevut progressivement de faibles traces de sorts à proximité, comme si quelqu'un avait utilisé une technique peu de temps auparavant.
+
+Wang Lin était arrivé jusqu'ici, mais l'issue du passage restait encore un peu lointaine. De plus, il ignorait s'il suivait la bonne voie ou s'il trouverait un indice concernant Li Qianmei. Depuis son entrée dans la faille, il avait ressenti plusieurs auras puissantes ; elles semblaient avoir conscience de sa présence, mais, étrangement, ne l'avaient pas entravé.
+
+À cet instant, c'était la première fois qu'il trouvait une piste sur Li Qianmei. Bien que les traces de sorts fussent ténues, elles étaient bien réelles. Ce n'étaient pas des traces laissées par une bête, mais par un cultivateur !
+
+« Li Qianmei... Est-ce toi... ? » Wang Lin ouvrit les yeux, et son regard s'embrasa. Ses mains formèrent un sceau qu'il pressa fermement contre ses sourcils. Une force puissante se précipita dans son front, faisant trembler violemment son âme originelle.
+
+Tandis que son âme originelle vacillait, les traces de sorts changèrent d'une manière étrange. Sous les yeux de Wang Lin, le monde commença à se métamorphoser. L'obscurité disparut, remplacée par des lignes verticales.
+
+« Temps Fluide... Inversion... » Les yeux de Wang Lin brillaient comme des torches et perçaient soudainement l'obscurité. Les lignes commencèrent à bouger comme pour façonner une forme. Le vide devant lui fut saturé par le pouvoir du temps et, sous cette force mystérieuse, le cours du temps commença à s'inverser.
+
+Le vide se tordit progressivement, et la silhouette d'une femme vêtue de blanc apparut. Son visage était extrêmement pâle et des taches de sang saisissantes maculaient ses vêtements. Elle tenait une longue épée dans une main, tandis qu'un stylo doré gravitait autour d'elle alors qu'elle fendait le vide.

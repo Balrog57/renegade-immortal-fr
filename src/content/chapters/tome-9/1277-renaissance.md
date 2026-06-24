@@ -1,0 +1,113 @@
+---
+n: 1277
+title: Renaissance
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1277 - Rebirth
+slug: renaissance
+---
+Au cours de cette bataille, Wang Lin avait déjà stupéfié Daoist Water à plusieurs reprises. À présent, Daoist Water contemplait l'étrange météore qui avait percuté le Système Stellaire Antique il y a des éons et que le Souverain avait lui-même raffiné !
+
+Ce météore, composé d'un métal inconnu, avait été façonné par le Souverain durant 10 000 ans pour devenir 108 clous aux sept couleurs ! Ils étaient nommés les Clous Divins du Vide aux Sept Couleurs !
+
+La rumeur prétendait que ce météore de métal inconnu était d'un mystère absolu. Le Souverain avait tenté d'utiliser un sortilège temporel pour en découvrir l'origine. Alors qu'il touchait au but, une force mystérieuse l'avait interrompu, le laissant au bord de la mort.
+
+Cependant, malgré cela, la puissance du Souverain était telle qu'il avait pu entrevoir un passé flou du météore au moment même de l'interruption !
+
+« Le monde est né et s'est transformé en Système Stellaire Antique. Puis, il fut scindé en royaumes intérieurs et extérieurs ! Pourtant, dans cet univers vaste, il semble que le Système Stellaire Antique n'ait pas été l'unique ! À l'aube du monde, il y en eut d'autres. Ce météore semble provenir d'un autre système stellaire, égal au Système Stellaire Antique, mais séparé par un gouffre éternel ! »
+
+C'étaient les paroles du Souverain après avoir percé les secrets du temps ; il n'avait pas caché cette vérité, mais l'avait proclamée au monde entier. Dès lors, la réputation des Clous Divins du Vide aux Sept Couleurs s'envola. Tous les puissants en connaissaient l'existence !
+
+Daoist Water avait personnellement vu le Souverain les utiliser contre son propre maître. Daoist Water n'était pas la force principale de ce combat, mais alors que son maître pratiquait la culture en porte fermée pour étudier la Perle Défiant le Ciel, le Souverain avait utilisé un trésor extrêmement vicieux, raffiné avec l'aide de cultivateurs du Royaume Céleste Antique, pour blesser son maître !
+
+Ensuite, les trois seigneurs du Système Stellaire Antique et plusieurs cultivateurs du Royaume Céleste Antique avaient entamé une bataille à mort contre son maître. Ce que le Souverain avait déployé, c'étaient les 108 Clous Divins du Vide aux Sept Couleurs !
+
+À cet instant précis, en voyant l'un de ces clous, il fut saisi d'effroi et battit en retraite précipitamment. Il connaissait trop bien la puissance de cet objet. Si un cultivateur ordinaire du troisième niveau, au stade du Nirvana Void, se faisait percer par un clou, il subirait des dommages irréparables !
+
+Ces clous n'avaient pas été conçus pour tuer des cultivateurs ordinaires, mais spécifiquement pour anéantir les cultivateurs du troisième niveau !
+
+Cette singularité des clous aux sept couleurs était un mystère que même le Souverain n'avait pu élucider. Il savait seulement qu'ils étaient redoutables contre les puissants et inefficaces contre les faibles. Plus le niveau de culture était élevé, plus les dégâts infligés étaient dévastateurs !
+
+Il était impossible de comprendre cet aspect étrange sans connaître l'origine du météore. Les cultivateurs du stade Nirvana Shatterer pouvaient survivre à un impact, comme Sima qui avait trouvé un moyen de s'en libérer, ou Wang Lin dont le corps était assez puissant pour le rejeter.
+
+Cependant, pour les cultivateurs du troisième niveau, s'en défaire était d'une difficulté extrême !
+
+Après avoir atteint le troisième niveau, le corps subit une mutation étrange. Ce changement apportait une puissance accrue, mais entraînait aussi des transformations bizarres. Or, cette évolution était entravée par le clou aux sept couleurs. Plus la culture était élevée, plus il était difficile de se libérer de l'emprise du clou !
+
+Cette affaire demeurait inexplicable et profondément mystérieuse.
+
+Daoist Water fut d'abord bouleversé par l'essaim de moustiques géants, puis il rencontra la femme en argent. Dès qu'il l'aperçut, il la reconnut instantanément. Ce choc plongea son esprit dans un état de chaos rare !
+
+Tandis que ses pensées s'embrouillaient, il ne crut pas un instant qu'un simple insecte comme Wang Lin puisse briser son sortilège d'arrêt et utiliser le clou aux sept couleurs !
+
+Tout cela provoqua un changement radical dans l'expression de Daoist Water !
+
+Le clou aux sept couleurs balaya l'espace étrange et fonça sur le Sens Divin de Daoist Water. Après avoir déchiqueté son Sens Divin, il jaillit de l'espace de stockage pour se diriger droit vers le point situé entre les sourcils de Daoist Water !
+
+L'objet étant trop proche, Daoist Water recula comme un possédé, mais la vitesse du clou était foudroyante. Il apparut dans un rugissement en déchirant la réalité, surgissant entre les sourcils de Daoist Water en un éclair !
+
+Un fracas tonitruant retentit alors que le clou aux sept couleurs s'enfonçait d'un pouce dans le crâne de Daoist Water ! Il tourna comme une mèche pour tenter de pénétrer son cerveau et de détruire son Dao !
+
+Le visage de Daoist Water devint livide tandis qu'il composait un sceau, tentant de résister au clou. Pourtant, il avait une fois de plus sous-estimé Wang Lin !
+
+Il avait voulu sortir la femme du cercueil pour franchir la limite de Wang Lin ! Li Muwan était le point de non-retour de Wang Lin !
+
+Si Wang Lin était déjà en proie à la démence face à une crise de vie ou de mort, il devint véritablement insensé lorsque Daoist Water s'en prit à Li Muwan. Cette folie n'était pas différente d'être transpercé par le clou aux sept couleurs !
+
+Il ne s'agissait plus seulement de lutter pour sa survie, mais de quelque chose de bien plus vital !
+
+Dans cet état de déraison, le sang de l'épée de fer, fusionné avec l'âme originelle de Wang Lin, entra en jeu. C'était le sang d'un Dieu Ancien à neuf étoiles, le sang des cieux. En se mêlant à son âme originelle, le corps de Wang Lin commença à irradier, son âme originelle s'embrasa, et même son esprit sembla brûler !
+
+Une force indescriptible jaillit de son être. Des bruits de craquements résonnèrent alors que le sortilège d'arrêt autour de lui s'effondrait. Wang Lin chargea dans un rugissement, ses étoiles de Dieu Ancien tournoyant et son étoile de loi apparaissant à ses côtés !
+
+Trident en main, Wang Lin fonça droit sur Daoist Water !
+
+Ses yeux étaient injectés de sang, une lueur écarlate s'étendant sur plusieurs pieds devant lui. Des craquements incessants émanaient de son corps ; il était impossible de dire s'il s'agissait de ses battements de cœur ou de ses os qui se brisaient sous la pression.
+
+Même Daoist Water fut terrifié par ce spectacle ! En particulier, la lumière rouge monstrueuse émanant du corps de Wang Lin fit se rétracter ses pupilles. Il recula d'un pas, augmentant soudainement sa vitesse de retraite.
+
+Ce qu'il craignait n'était pas le sortilège de Wang Lin, mais cette lueur rouge nichée au plus profond de son corps !
+
+À cet instant, toute sa puissance était mobilisée pour repousser le clou aux sept couleurs logé entre ses sourcils ; il n'avait donc aucun répit pour surveiller Wang Lin. Ses yeux brillèrent d'une lueur déterminée, et la vitesse de sa fuite était telle qu'elle semblait effondrer le vide !
+
+Comment Wang Lin pouvait-il le laisser s'échapper ? Toute sa préparation, ses sorts et ses trésors avaient été déployés pour créer cette opportunité. Si l'ennemi parvenait à contenir le clou aux sept couleurs, il serait sans aucun doute mort !
+
+Dès que Daoist Water prit de la distance, Wang Lin chargea avec une fureur sauvage. Le sang qu'il avait dévoré s'enflamma, le transformant en un météore ardent. Dans sa course, il projeta le trident qu'il tenait.
+
+Son corps trembla alors qu'il concentrait toute sa force dans l'arme. Le trident se mua en un dragon féroce qui fonça sur Daoist Water.
+
+La lumière aux sept couleurs entre les sourcils de Daoist Water brilla intensément, tournant frénétiquement pour percer son crâne. Cependant, le cultivateur du troisième niveau utilisait toute sa puissance pour résister. Alors que le dragon de trident se rapprochait et que Daoist Water reculait, ses yeux s'illuminèrent d'un éclat sinistre.
+
+« Même avec le Clou Divin du Vide aux Sept Couleurs, c'est inutile. Laisse-moi te montrer l'abîme qui sépare un cultivateur du troisième niveau d'une fourmi comme toi ! » Une indifférence glaciale émanait de Daoist Water alors qu'il agitait sa main droite, y concentrant une fraction de son pouvoir.
+
+« Je voulais fouiller ton âme, mais puisque tu cherches la mort, ce vieil homme va exaucer ton vœu ! Dao de l'Extinction Insouciante : éteignez tout sur votre passage ! » La main droite de Daoist Water forma un sceau et poussa vers l'avant.
+
+Cette paume provoqua un rugissement tonitruant, et une masse d'air fut aspirée de toutes les directions dans un rayon de 10 millions de kilomètres. Des lignes blanches commencèrent à se dessiner ; de loin, on aurait pu voir qu'une gigantesque forme de diamant se forgeait au cœur de cette zone !
+
+Dès que la structure apparut, un grondement sourd retentit et le diamant se contracta violemment. À mesure qu'il rétrécissait, l'onde de choc devenait plus terrifiante encore. C'était comme si le monde à l'intérieur du diamant était isolé de l'extérieur, créant une pression inimaginable !
+
+Daoist Water comptait utiliser cette méthode pour broyer Wang Lin !
+
+La forme de diamant se contracta rapidement : de 10 millions de kilomètres à 1 million, puis 100 000 ; 50 000 ; 30 000 ; 10 000 ! Une aura destructrice satura la zone alors que le diamant se réduisait encore : 8 000 ; 5 000 ; 3 000 ; 1 000 ; 500... jusqu'à n'atteindre plus que 1 000 pieds de large !
+
+Cette contraction instantanée généra une pression capable d'écraser toute existence dans l'univers. À cet instant, cette force colossale s'abattit sur Wang Lin et le dragon formé par le trident !
+
+« Détruisez, Éteignez, Effondrez ! » s'écria Daoist Water en reculant !
+
+Au moment où il prononça ces mots, les lignes de diamant se refermèrent furieusement sur Wang Lin. Un flash éblouissant illumina tout le champ d'étoiles et enveloppa le corps du jeune homme !
+
+Condenser la puissance de 10 millions de kilomètres d'espace sur une seule personne revenait à faire exploser une douzaine de planètes de culture simultanément.
+
+Des grondements telluriques secouèrent le système stellaire. À cet instant, les régions de rang 5, 6, 7 et même 8 purent percevoir ce tumulte !
+
+Le corps de Wang Lin s'effondra brusquement sous cette force dévastatrice !
+
+Sa chair et son sang volèrent en éclats ; même sa tête explosa ! Le trident se brisa instantanément dans un gémissement lugubre. L'âme du trident s'éteignit !
+
+La puissance absolue. Daoist Water venait de démontrer la force incontestée d'un cultivateur du troisième niveau. Depuis l'aube des temps, aucun cultivateur du deuxième niveau n'avait pu vaincre un maître du troisième niveau. C'était une loi quasi immuable des cieux !
+
+Cependant, à cet instant précis, le corps explosé de Wang Lin émit une lumière rouge démoniaque. Le temps sembla s'inverser alors que la lumière convergeait ; comme s'il renaissait, le corps de Wang Lin se reconstitua !
+
+Renaissance !
+
+« C'est... c'est impossible ! » Daoist Water resta pétrifié de stupeur.

@@ -1,0 +1,37 @@
+---
+name: Yao Xixue
+title: Yao Xixue
+type: personnage
+categories: ["Characters", "Female", "Alliance Star System", "Allheaven Star System", "Sealed Realm", "Wang Lin's Cave World", "Antagonistic", "Blood Planet"]
+image: /renegade-immortal-fr/wiki/images/O.webp
+url: "https://xian-ni.fandom.com/wiki/Yao_Xixue"
+
+---
+![Yao Xixue](/renegade-immortal-fr/wiki/images/O.webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Yao_Xixue) (CC BY-SA)
+
+**Catégories :** Characters, Female, Alliance Star System, Allheaven Star System, Sealed Realm, Wang Lin's Cave World, Antagonistic, Blood Planet
+
+## Overview
+
+Yao Xixue is a complex character with a tumultuous history involving cultivation, family ties, and powerful ancient forces. She is the daughter of the Blood Ancestor , a formidable figure around Tian Yun planet, known for his high cultivation level and mastery of unique blood spells. The Blood Ancestor kept Yao Xixue largely isolated, personally teaching her all his techniques and awakening her bloodline powers through defying the heavens.
+
+### Appearance
+
+She had red phoenix eyes, her beautiful brows contained killing intent, and she was wearing a white robe that when compared to the blood-red jade below her, it created a powerful visual contrast.
+
+Although she was sitting in the lotus position, one could still see her slim figure. She had a head of silky, black hair, a tender and white sunflower seed face, skin as smooth as crystal, an exquisite nose, and her red phoenix eyes glowed like the blazing sun shining on the lake on the surface but contained well-hidden depth and coldness within. If one were to accidentally get caught inside her eyes, they would be out of luck…
+
+### History
+
+She tried to backstab Wang Lin during their trip to the Caves, in the East Demon Spirit Sea , that were the keys of opening the Real Cave where Qin Lin was being trapped by an 8 star Ancient Devil.
+
+Yao Xixue is the daughter of the Blood Ancestor, a powerful and influential figure near Planet Tian Yun , known for his mastery of blood spells and cultivation techniques. She was largely isolated by her father, who personally taught her all his methods and awakened her bloodline powers. Her early interactions with Wang Lin were fraught with hostility; during their journey to the caves in the East Demon Spirit Sea, she attempted to betray him as part of the complex power struggles and mutual distrust among cultivators in the Demon Spirit Land.Fearing the Blood Ancestor and recognizing his own cultivation limitations. Due to her scheming, Wang Lin sealed Yao Xixue inside a restriction ball for hundreds of years. During this period, she endured immense pain and humiliation, with Wang Lin using various methods to keep her subdued, including stimulation to prevent her from regaining clarity or enlightenment that might allow her to break free. Despite her imprisonment and hatred, Yao Xixue possessed the Blood Soul Pill, granting her revival potential and making her a dangerous adversary, as killing her outright was nearly impossible.
+
+Her hatred for Wang Lin intensified after crises involving her father, the Blood Ancestor. In pursuit of power for revenge, she sacrificed her flesh and soul to inherit the Wind Demon, one of nine ancient demon spirits. This fusion transformed her physically and mentally, leaving her scarred, enveloped in demonic energy, and filled with monstrous resentment toward Wang Lin. She lost much of her original identity, becoming a vessel for the wind demon’s memories and will.
+
+Over a span exceeding twenty years, Wang Lin repeatedly interrogated Yao Xixue while she remained imprisoned, forcing her to reveal vital secrets about the Demon Spirit Land and the Celestial Emperor Cave. She disclosed that the land contained five caves—four fakes and one real—and that opening the real cave, where Celestial Emperor Qing Lin was trapped, required simultaneously activating the four fake caves with their respective celestial tokens. Her knowledge was critical to Wang Lin’s strategy and understanding of the deeper mysteries of the region.
+
+Eventually, Wang Lin subdued the demonic energy within her, absorbing it and severing the memories that bound her to the Wind Demon. Yao Xixue was left in a state of confusion and vulnerability, effectively a blank slate. After this, both she and her father were allowed to retreat and hide, ending their direct entanglement with Wang Lin while securing their safety.
+

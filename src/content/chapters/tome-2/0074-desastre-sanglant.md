@@ -1,0 +1,81 @@
+---
+n: 74
+title: Désastre Sanglant
+book: 2
+bookTitle: The Bloody Image of Cultivation
+en: Chapter 74 - Bloody Disaster
+slug: desastre-sanglant
+---
+Après avoir examiné Wang Lin avec attention, Liu San demanda soudain : « Êtes-vous un étudiant qui se précipite ici pour passer les examens ? »
+
+L'expression de Wang Lin resta calme. Il secoua la tête et répondit : « Je ne suis pas venu pour les examens. Je possède un certain savoir-faire artisanal et je souhaite gagner ma vie dans la ville. »
+
+Liu San se détendit légèrement. Sa question était cruciale. La période des examens d'État approchant, de nombreux villages locaux envoyaient leurs étudiants en ville. Cependant, tous ces candidats transportaient une boîte contenant leurs fournitures d'écriture, tandis que Wang Lin n'avait rien sur lui. S'il avait admis être un étudiant, Liu San aurait dû se méfier de lui.
+
+Mais Liu San ne s'y attarda pas. Il rit et dit : « Quelle coïncidence ! Nous nous dirigeons également vers la ville de Tian Shui. Ami, pourquoi ne pas voyager avec nous ? »
+
+Un regard reconnaissant passa sur le visage de Wang Lin. Il dit : « Merci, chef d'escorte ! »
+
+L'homme au visage sombre regarda Wang Lin en riant : « Gamin, sais-tu monter à cheval ? »
+
+Wang Lin esquissa un sourire amer et secoua la tête.
+
+Liu San pointa le chariot derrière lui et ajouta : « Qu'y a-t-il à me remercier ? Le voyage est toujours une épreuve pour tout le monde. Jeune homme, il ne reste que quatre jours avant d'atteindre la ville. »
+
+Wang Lin joignit les mains en signe de respect. Sans un mot, il monta dans le chariot. En regardant derrière lui, il vit des dizaines de chariots similaires. Il les scruta avec son Sens Divin et constata qu'ils étaient tous vides. Il ne s'en soucia plus et s'assit en tailleur.
+
+Yang Sen tira sur les rênes de son cheval pour se placer aux côtés de Wang Lin. Il demanda : « Ami, comment se fait-il que vous n'ayez aucun bagage pour votre voyage ? »
+
+Wang Lin soupira et secoua la tête : « J'ai été attaqué par des brigands en chemin. »
+
+Yang Sen fut stupéfait. Il observa Wang Lin un instant, puis dit : « Préserver sa vie est le plus important. La sécurité de cette région est précaire ces derniers temps. »
+
+Pendant qu'ils discutaient, l'expression de Wang Lin changea soudainement. Il leva la tête vers la forêt qui se dressait devant eux. Il étendit son Sens Divin et découvrit deux individus cachés là, observant la caravane avec insistance.
+
+Même après le passage du convoi, ces deux-là ne firent rien ; Wang Lin décida donc de ne rien dire et les ignora.
+
+Après une journée de voyage, le soleil commençait à décliner et la nuit approchait. Liu San cria depuis l'avant : « Les gars ! Nous atteindrons la région de Tian Shui demain, et la famille du Nord enverra quelqu'un pour nous accueillir. Comme nous ne trouverons pas d'auberge aujourd'hui, nous allons camper ici pour nous reposer un peu avant de repartir tôt demain matin. Une fois à la ville, je vous emmènerai au Palais de la Glace Rouge pour vous trouver de jolies filles avec qui vous amuser ! »
+
+Tous les hommes éclatèrent de rire avant de descendre de leurs montures. Ils formèrent un périmètre autour des wagons et attachèrent les chevaux. Ensuite, ils dressèrent les tentes. Certains s'endormirent tandis que d'autres commencèrent à boire, créant une atmosphère très animée.
+
+Trois à cinq hommes se relayaient également pour patrouiller les environs.
+
+Après que Wang Lin fut descendu du chariot, Yang Sen l'attira de côté près d'un feu de camp. Au fil de leurs conversations durant la journée, Yang Sen avait découvert qu'il appréciait beaucoup Wang Lin et n'avait cessé de se vanter de ses exploits devant lui.
+
+Plus Wang Lin semblait intéressé par ses récits, plus Yang Sen s'enthousiasmait en les racontant. C'est pourquoi il avait entraîné Wang Lin dans la discussion dès que le groupe s'arrêta pour le repos.
+
+Trois personnes étaient assises près du feu. Outre le chef d'escorte Liu San et l'homme au visage sombre, se trouvait un homme d'âge moyen à l'allure d'érudit. Il portait une robe bleue, avait la peau pâle et un front large, mais ses yeux brillaient d'une intelligence vive.
+
+Voyant Wang Lin arriver, Liu San rit : « Monsieur, voici le jeune frère dont je vous parlais, celui qui se rend à Tian Shui pour gagner sa vie. » Puis, s'adressant à Wang Lin, il ajouta : « Petit frère, voici M. Wang, notre illustre escorteur. Comme vous portez aussi le nom de Wang, vous devez avoir un lien. Discutez donc avec lui ; M. Wang est un homme très cultivé qui a vu beaucoup de choses. »
+
+L'érudit d'âge moyen rit doucement : « Lao Liu, nul besoin de me vanter. Ce que je sais n'est rien de considérable. »
+
+Liu San leva les yeux au ciel : « Qui dit vrai ? Si vous n'êtes rien, alors je ne suis absolument rien ! Petit frère, ce M. Wang est un immortel vivant. Il sait tout de tout. Son don pour la divination est absolument prodigieux. »
+
+Wang Lin observa attentivement l'homme d'âge moyen. Il sourit et dit : « Monsieur, vous débordez d'énergie et votre regard est perçant. Vous êtes manifestement une personne très intelligente. »
+
+L'érudit lança un regard surpris à Wang Lin et répondit : « Semble-t-il que le petit frère soit mon semblable ? Je vois en vous l'apparence d'un érudit, mais vous cachez un dragon en votre sein. Votre avenir ne sera pas ordinaire. »
+
+Wang Lin sourit : « Les maîtres de mon village parlaient aussi de divination. À force d'écouter, j'ai fini par apprendre quelques rudiments. »
+
+L'érudit laissa échapper un rire. L'homme au visage sombre s'empressa de dire : « M. Wang, examinez le mien aussi ! Je vieillis déjà... Aurais-je de la chance en amour ? »
+
+Liu San rit : « Combien de fois as-tu posé cette question durant ce voyage ? Chaque fois que M. Wang pratique une divination, cela lui demande beaucoup d'énergie, alors oublie ça ! »
+
+L'homme au visage sombre ignora Liu San et fixa l'érudit.
+
+Ce dernier réfléchit un instant, puis répondit : « Très bien, je vais le faire. Yang Sen, ne m'aviez-vous pas sollicité également ? Je vais examiner vos deux destins. »
+
+Sur ces mots, il ferma les yeux. Lorsqu'il les rouvrit, ils brillaient d'une lueur dorée. L'expression de Wang Lin resta impassible, mais son cœur vacilla. Il étendit son Sens Divin et perçut un mince filet d'énergie spirituelle circulant à l'intérieur de l'homme d'âge moyen. Cette énergie suivait une trajectoire étrange pour finir dans les yeux de l'érudit.
+
+L'homme fixa l'homme au visage sombre en murmurant des paroles, comme s'il effectuait des calculs, tandis que ses mains formaient un sceau. Son visage devint rouge et, fronçant les sourcils, il déclara : « Liu Laowu, un désastre sanglant plane sur votre avenir. Si vous parvenez à le surmonter, vous vous marierez trois mois après l'événement. »
+
+L'homme au visage sombre fut stupéfait : « Un désastre ? Ce n'est rien. Nous, les escortes, vivons dans le danger ; affronter une bataille sanglante est notre quotidien », répondit-il.
+
+L'érudit tourna alors son regard vers Yang Sen. Son expression changea radicalement. Il dit : « Étrange. Pourquoi portez-vous vous aussi un rayon de sang représentant un désastre ? » Puis, jetant un coup d'œil rapide à Liu San, le visage sombre, il ajouta : « Quelque chose ne va pas. Cette technique transmise par ma lignée ne s'est jamais trompée. Lao Liu, vous aussi, portez le signe d'un désastre sanglant. »
+
+Il se leva, l'air grave, et scruta les personnes autour de lui. Son visage devint encore plus sévère : « Lao Liu, je pense que quelque chose ne va pas. Je vois que chacun ici porte le rayon d'un désastre sanglant. Cela ne peut être une simple coïncidence », affirma l'érudit.
+
+Les yeux de Liu San se rétrécirent. Il regarda autour de lui et demanda : « Monsieur, voulez-vous dire que nous allons bientôt devoir faire face à un désastre sanglant ? »
+
+L'érudit hocha la tête. Après avoir balayé Wang Lin du regard, il fut pétrifié. Il l'examina attentivement et son expression changea brusquement. Son visage devint pourpre et il cracha une bouchée de sang. La terreur se lut sur ses traits. Pointant Wang Lin du doigt, il s'écria : « Vous... ! »

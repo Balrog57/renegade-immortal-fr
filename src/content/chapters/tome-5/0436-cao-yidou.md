@@ -1,0 +1,121 @@
+---
+n: 436
+title: Cao Yidou
+book: 5
+bookTitle: Cultivation Planet Crystal
+en: Chapter 436 - Cao Yidou
+slug: cao-yidou
+---
+À l'extrême ouest de Zhao s'étend une plaine d'un froid glacial. Même les cultivateurs y posent rarement le pied.
+
+Outre ce froid extrême, cet endroit est imprégné de l'aura des « Neuf Terres », une force que même les cultivateurs du stade de l'Âme Naissante ne souhaitent pas approcher. Quiconque se situe en dessous du stade de l'Âme Naissante sera gravement blessé s'il entre en contact avec elle.
+
+C'est ici que se trouve le Secte des Cadavres de Zhao.
+
+La silhouette de Wang Lin traversa la plaine tel un fantôme. Il pouvait désormais voir que cet endroit était entouré d'une formation gigantesque, rendant l'accès impossible pour les mortels ordinaires.
+
+Cependant, cette formation était d'une facilité déconcertante à briser pour le Wang Lin actuel. Il s'arrêta quelque part sur la plaine, fit un pas, et disparut.
+
+Il se trouvait sur l'un des « yeux » de la formation au moment de sa disparition. Lorsque Wang Lin réapparut, il était sous terre. Il observa les environs et vit les innombrables tunnels et grottes qui composaient le labyrinthe du Secte des Cadavres.
+
+Des cultivateurs pratiquaient dans chacune de ces grottes. Leurs niveaux de culture variaient : la plupart étaient au stade de l'Établissement des Fondations, quelques-uns atteignaient la Formation du Noyau, et les cultivateurs de l'Âme Naissante étaient encore plus rares.
+
+Le Sens Divin de Wang Lin se propagea, et l'intégralité du Secte des Cadavres apparut dans son esprit. Il porta une attention particulière à la grotte située au centre du secte.
+
+Li Qingping pratiquait tranquillement dans la grande grotte centrale. Derrière lui flottait un nuage de brouillard noir duquel s'étiraient d'innombrables tentacules.
+
+Li Qingping était l'actuel maître du Secte des Cadavres à Zhao. Il avait déjà atteint le stade avancé de l'Âme Naissante.
+
+Son apparence physique lui donnait l'air d'un homme d'environ quarante ans. Bien que quelques mèches de ses cheveux aient blanchi, il restait très beau ; il devait être un grand séducteur dans sa jeunesse.
+
+Il dirigeait le Secte des Cadavres à Zhao depuis deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant le secte en terre de Zhao.
+
+Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général du Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
+
+Li Qingping, plongé dans sa culture, ne détecta absolument pas le Sens Divin de Wang Lin, mais le brouillard noir derrière lui trembla tandis que deux yeux fantomatiques apparaissaient en son sein.
+
+Cependant, ce que ces yeux révélaient n'était point le calme ou la froideur habituels ; ils étaient empreints d'effroi et de terreur.
+
+« Aîné... » La silhouette trembla et s'apprêta à parler.
+
+« Tu es un petit être intéressant pour être capable de détecter mon arrivée avec seulement un stade intermédiaire de la Formation de l'Âme ! » La voix de Wang Lin résonna dans les oreilles du brouillard noir.
+
+Le brouillard noir se mit à trembler davantage. Lorsque le Sens Divin de Wang Lin l'effleura, il ressentit un vent glacial, au point que son origine spirituelle devint instable, menaçant de s'effondrer. Ce genre de sensation ne lui arrivait que lorsqu'il affrontait les Anciens de son propre secte.
+
+La silhouette noire dit rapidement d'une voix tremblante : « Veuillez avoir pitié, Aîné. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de culture est liée au Sens Divin ; il n'a donc fait qu'effleurer votre arrivée. »
+
+Il savait qu'avec le niveau de culture de cet aîné, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
+
+« Oh ? De quel secte viens-tu ? » lança Wang Lin par message de Sens Divin.
+
+« Aîné, je ne suis pas originaire de la planète Suzaku, mais un disciple du Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès du Secte des Cadavres », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
+
+« Si tu es de la planète Tian Yun, pourquoi es-tu sur la planète Suzaku ? » Le Sens Divin de Wang Lin était glacial.
+
+La perception sensorielle du brouillard noir était excellente, et il décela immédiatement la froideur dans le message de Wang Lin. Son corps trembla et il répondit précipitamment : « Aîné, ne soyez pas en colère, je vous en prie ! Si je devais récupérer sur la planète Tian Yun, cela coûterait trop cher. Le disciple n'a pas les moyens de payer autant de jades célestes. Je n'ai donc pu que choisir de récupérer sur la planète Suzaku. Bien que la possession du corps prenne plus de temps, c'est le meilleur choix pour moi. »
+
+Wang Lin demanda : « Quel est ton nom ? »
+
+Le brouillard noir répondit aussitôt : « Le nom du disciple est Cao Yidou. » Cette réponse prudente rappela à Wang Lin Xu Liguo.
+
+« Cao Yidou... » Les yeux de Wang Lin s'illuminèrent et son Sens Divin prit la forme d'une tête gigantesque qui s'élança vers le brouillard noir.
+
+Terrifié, Cao Yidou quitta immédiatement le corps de Li Qingping. Il tenta d'esquiver la main géante en criant : « Tout ce que dit le disciple est vrai, c'est la vérité ! »
+
+Il entretenait un lien mystérieux avec Li Qingping. Le mouvement brusque de Cao Yidou tira Li Qingping de sa méditation, qui s'écria : « Qui est là ?! »
+
+Des ondulations parcoururent l'air alors que Wang Lin émergeait. En apparaissant, il lança un regard glacial à Li Qingping.
+
+Ce simple regard fit trembler le corps du maître du secte, qui fut soudain couvert de sueur froide. Il jura intérieurement ; ce regard était comme une épée transperçant son être. Même son Âme Naissante semblait gelée et tout son corps était glacé. C'était comme s'il se trouvait totalement nu, n'ayant plus aucun secret à cacher devant cet homme.
+
+Wang Lin dit froidement : « Toi, tais-toi ! » Puis il tourna son regard vers le brouillard noir qui se recroquevillait dans un coin de la grotte.
+
+Li Qingping prit une inspiration saccadée. Il n'osait plus bouger d'un pouce, le front trempé de sueur. Même lorsqu'il rencontrait des aînés au stade de la Formation de l'Âme au quartier général, aucun ne possédait ne serait-ce le dix-millième de l'aura de cet individu.
+
+Le cœur de Li Qingping battait à tout rompre tandis qu'il pensait amèrement : « Transformation de l'Âme !!! C'est un vieux monstre de la Transformation de l'Âme !! Quand ce monstre est-il arrivé ici... »
+
+La main droite de Wang Lin s'étira et l'origine spirituelle de Cao Yidou fut arrachée du coin de la grotte. Le visage de ce dernier était déformé par la panique alors qu'il hurlait : « Aîné, je suis un client du Secte des Cadavres ! Si vous me capturez pour me raffiner en trésor, le Secte des Cadavres ne vous lâchera jamais ! »
+
+Wang Lin ricana et répondit calmement : « Qui a dit que j'allais te raffiner en trésor ? Tu n'en vaux même pas la peine ! »
+
+Cao Yidou frissonna. Il se disait que si un cultivateur de la Transformation de l'Âme voulait capturer l'âme d'un cultivateur de la Formation de l'Âme, ce serait d'une facilité déconcertante ; il n'aurait aucune raison de venir le chercher lui.
+
+Réprimant sa peur, Cao Yidou demanda avec prudence : « Aîné, vous... voudriez-vous que je fasse quelque chose ? »
+
+La voix de Wang Lin ne trahissait aucune arrogance lorsqu'il dit calmement : « Deviens mon esclave pendant cent ans. Après ces cent ans, je t'offrirai un corps de la Transformation de l'Âme. Acceptes-tu ? »
+
+Cao Yidou fut stupéfait. Un corps de la Transformation de l'Âme était une chose qu'il n'avait jamais espéré obtenir de sa vie. Avec un tel corps, augmenter son niveau de culture jusqu'au stade de la Transformation de l'Âme serait bien plus aisé. Et même s'il n'atteignait pas ce stade, tous ses sorts deviendraient infiniment plus puissants. Il fallait dire qu'un tel corps était comparable à celui d'un être céleste.
+
+Au sein du Secte des Cadavres, le coût d'un cadavre de la Transformation de l'Âme était inimaginable. Même en utilisant toute sa longévité, il lui aurait fallu plus de mille ans pour acheter ne serait-ce que la moitié d'un tel corps.
+
+Il serra les dents. « Aîné, vous devez me promettre que je ne mourrai pas durant ces cent ans ! »
+
+Wang Lin répondit avec calme : « Tant que je ne meurs pas, tu ne mourras pas ! »
+
+Cao Yidou s'inclina respectueusement et rapidement : « Très bien, Cao Yidou salue son Maître ! » Il allait tenter le tout pour le tout. Un cultivateur de la Transformation de l'Âme n'avait aucune raison de le tromper. Il comprit aussi que si Wang Lin faisait une offre aussi tentante, c'est qu'il serait d'une grande utilité. Cependant, pour obtenir une telle récompense, il fallait prendre des risques, et il était prêt à les assumer pour un corps de la Transformation de l'Âme.
+
+« Très bien. Ne t'inquiète pas, je ne te demande rien de dangereux. Je veux seulement tes connaissances sur la planète Tian Yun. Que sais-tu de cette planète ? » Tout en parlant, Wang Lin fit un geste de la main et Li Qingping s'évanouit.
+
+Wang Lin ne voulait que personne ne sache qu'il comptait se rendre sur la planète Tian Yun ; il était extrêmement prudent à ce sujet.
+
+Cao Yidou répondit promptement : « La planète Tian Yun ? Maître, j'ai grandi sur la planète Tian Yun et bien qu'elle soit immense, je la connais très bien... Maître, se pourrait-il que vous vouliez vous y rendre et que je vous serve de guide ? »
+
+« C'est exact. Dans ce cas, notre accord est conclu ! » Wang Lin frappa son sac de rangement et en sortit un étendard d'âmes. Cet étendard était celui contenant Li Yuanfeng, qu'il avait lui-même fabriqué.
+
+D'un simple mouvement, avant que Cao Yidou ne puisse réagir, Wang Lin l'enferma dans l'étendard. Sur ce, Wang Lin disparut de la grotte.
+
+Ce n'était pas sa première visite ici, il connaissait donc parfaitement les lieux. Il traversa le labyrinthe du Secte des Cadavres en direction de l'endroit où il avait autrefois pratiqué sa culture.
+
+En chemin, aucun disciple du Secte des Cadavres ne parvint à détecter la présence de Wang Lin. Même ceux qui n'étaient pas en pleine méditation ne remarquèrent pas son passage.
+
+Ainsi, Wang Lin arriva bientôt à la grotte où il cultivait autrefois. Quelqu'un s'y trouvait en pleine pratique.
+
+C'était une jeune fille. Elle paraissait ordinaire, mais l'expression de son visage était empreinte de détermination alors qu'elle continuait d'absorber l'énergie Yin émanant des petites ouvertures dans la paroi.
+
+Wang Lin apparut à l'intérieur de la grotte, observa la jeune fille, puis se transforma en une volute de fumée pour s'engouffrer dans l'une des petites fissures du mur.
+
+Lorsqu'il était encore au stade de l'Établissement des Fondations, son corps ne pouvait pas franchir ces interstices. Il ne pouvait y pénétrer qu'en utilisant son Sens Divin, ce qui exigeait une énergie colossale ; il avait dû boire la rosée de la perle défiant le ciel pour étendre progressivement son Sens Divin jusqu'à atteindre l'endroit où se trouvait le géant.
+
+Une fois à l'intérieur du conduit, avant même qu'il n'ait pu progresser, un appel monta des profondeurs :
+
+« Sauvez-moi... »

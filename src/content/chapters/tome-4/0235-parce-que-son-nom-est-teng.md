@@ -1,0 +1,303 @@
+---
+n: 235
+title: Parce que son nom est Teng
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 235 - Because His Name is Teng
+slug: parce-que-son-nom-est-teng
+---
+Mont Heng Yue.
+
+Le Secte Xuan Dao était enveloppé de pluie et de brouillard, tandis que des éclairs déchiraient le ciel, accompagnés du rugissement du tonnerre. Le feuillage craquait sous la violence de l'averse.
+
+En cette nuit pluvieuse, un jeune homme aux cheveux blancs marchait lentement à travers la forêt. Chaque pas qu'il faisait dans les feuilles détrempées produisait un bruissement.
+
+De loin, cet homme contemplait le Secte Xuan Dao au sommet du mont Heng Yue. Après un long moment, il détourna le regard. Sa cible, cette fois, était un petit village situé à des centaines de kilomètres de là.
+
+Au milieu de la nuit, dans ce village de montagne, outre le grondement du tonnerre, on n'entendait que le bruit de la pluie frappant le sol. Bien sûr, quelques hurlements s'élevaient parfois de certains chiens élevés par les villageois, comme s'ils voulaient défier la tempête. Cependant, la seule réponse n'était qu'un tonnerre plus impétueux encore.
+
+Le village entier était plongé dans l'obscurité alors que le jeune homme aux cheveux blancs longeait le chemin principal, observant cette scène familière mêlée d'éléments nouveaux. Ses yeux n'étaient plus empreints de froideur, mais de mélancolie. Une mélancolie si profonde qu'elle aurait pu faire fondre la glace, car elle était chargée d'un amour filial inimaginable.
+
+Quatre cents ans s'étaient écoulés en un instant. Bien que cela ne parût pas long pour les cultivateurs, cela représentait de nombreuses générations pour les mortels. Toutes les maisons du village avaient été reconstruites par leurs descendants et présentaient désormais une apparence différente.
+
+Cet homme était Wang Lin.
+
+Il parcourut du regard les habitations du village. Son regard s'arrêta sur une maison, se souvenant qu'un grand arbre s'y dressait autrefois. Il y lisait souvent des livres et jouait avec ses amis sous son ombre.
+
+En un clin d'œil, tout cela avait disparu.
+
+Wang Lin soupira intérieurement et continua sa marche lente. Peu de temps après, il s'arrêta, fixant une demeure très familière. Son corps se mit à trembler en la contemplant. Toutes les autres maisons du village avaient changé, mais celle-ci était restée exactement telle qu'elle l'était autrefois.
+
+Wang Lin se mordit la lèvre inférieure et poussa le portail principal. Celui-ci grinça en s'ouvrant. Il le referma après être entré.
+
+Dans la cour, sous un auvent, se trouvaient une table en bois et quelques petites chaises assorties. Wang Lin observa silencieusement la scène, les larmes coulant de ses yeux.
+
+Après un long moment, Wang Lin s'approcha de la maison, ouvrit la porte et pénétra à l'intérieur. Tout était resté tel qu'il s'en souvenait, comme si rien n'avait changé.
+
+À cet instant, Wang Lin eut l'impression que tout ce qui s'était produit au cours des quatre cents dernières années n'était qu'un rêve dont il venait de s'éveiller. Ses parents n'étaient plus morts et leurs âmes ne résidaient pas dans la perle défiant le ciel. Ils étaient là, dans sa maison, et s'étaient couchés pour la nuit en cette nuit pluvieuse.
+
+Pourtant, grâce à son sens divin, il savait sans même l'étendre que personne ne se trouvait dans cette pièce.
+
+Au centre de la pièce principale, Wang Lin vit deux tablettes commémoratives, l'une sur l'autre. Celle du haut indiquait :
+
+« Wang Tianshui, Zhou Tingsu »
+
+Celle du bas indiquait : « Fils aîné : Wang Lin »
+
+Sous les deux tablettes se trouvait un brûle-encens avec quelques bâtons d'encens inutilisés à ses côtés.
+
+Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons d'encens et les disposa dans le brûle-encens. Il s'agenouilla lentement sur le sol. Il effectua plusieurs kowtows impitoyables et murmura : « Ce fils ingrat est venu offrir l'encens cette fois. La prochaine fois, je construirai une tour faite des têtes de la famille Teng pour mes parents. » Une aura d'intention meurtrière s'échappa de Wang Lin. La pièce devint instantanément plus glaciale que la nuit pluvieuse à l'extérieur.
+
+Une fois ses paroles achevées, il réfléchit un moment, puis, dans un mouvement soudain, disparut sur place.
+
+Peu après, on aperçut une voiture à chevaux fonçant vers le village de montagne. C'était un vieil homme en robes blanches qui la conduisait ; il était évident qu'il s'agissait d'un artiste martial du monde mortel.
+
+Il fit claquer le fouet et, dans un bruit sec, les chevaux accélérèrent encore davantage.
+
+Le sol inégal faisait bondir la voiture, mais le vieil homme semblait faire corps avec elle. Imperturbable, il lançait parfois des cris : « Allez ! »
+
+Bientôt, la voiture approcha de la demeure. Le vieil homme poussa un cri et serra les rênes. Les chevaux poussèrent un hennissement en levant leurs pattes avant, et la voiture s'immobilisa devant la maison de Wang Lin.
+
+Le vieil homme sauta du véhicule et ouvrit respectueusement la porte. Dès l'ouverture, une jeune fille en sortit. Elle portait une chemise verte, ses cheveux étaient relevés en chignon et elle était très jolie.
+
+En descendant, la jeune fille frissonna, manifestement affectée par le froid. Elle n'en tint pas compte, ouvrit un parapluie et dit d'une voix cristalline : « Ma dame, nous sommes arrivés. »
+
+Une silhouette exquise sortit de la voiture pour se tenir sous le parapluie. Le visage de cette jeune femme était pâle, lui donnant l'allure d'une beauté fragile et maladive.
+
+Dès qu'elle fut sortie, son corps trembla. La servante tint fermement le parapluie d'une main et saisit un grand manteau violet dans la voiture de l'autre. Avec l'aide du vieil homme, ils drapèrent la jeune femme.
+
+Simultanément, la servante s'exclama avec mécontentement : « Ma dame, pourquoi devions-nous venir ici ce soir sous la pluie ? Nous aurions pu venir demain. Et si vous tombiez malade ? »
+
+Même dans le regard chaleureux du vieil homme, on percevait une pointe de regret.
+
+La jeune dame sourit et, en marchant, dit : « Vous l'ignorez, mais avant que grand-père ne meure, il avait dit que quoi qu'il arrive, un descendant devait venir visiter ce lieu en ce jour précis. C'est une tradition familiale. »
+
+La servante n'était toujours pas convaincue : « Ma dame, cet endroit est si loin de la capitale. Pourquoi devons-nous revenir ici ainsi ? Y a-t-il quelque chose d'important caché ici ? J'ai entendu dire par l'autre servante que ce lieu était autrefois l'une des branches de la famille Wang. »
+
+La jeune dame empêcha le vieil homme d'ouvrir le portail et leva sa main semblable au jade pour le pousser elle-même. Elle sourit à la servante : « C'est la première fois que tu m'accompagnes, alors tu ne sais pas encore. Quand nous en aurons le temps, je t'expliquerai. »
+
+Après avoir pénétré dans la cour, les trois entrèrent immédiatement dans la maison sans hésiter. La servante referma le parapluie, secoua l'eau et observa curieusement la pièce. Quant au vieil homme, il resta silencieusement sur le seuil.
+
+La jeune femme prit une profonde inspiration. Alors que la servante s'apprêtait à s'avancer, elle l'arrêta : « Attends avec grand-père Li ici dehors. J'entre seule. »
+
+La servante fit la moue mais acquiesça docilement.
+
+La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa des effets de couchage devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasée d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide ; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
+
+Elle vit alors un jeune homme aux cheveux blancs entrer lentement dans la pièce.
+
+Wang Lin regarda la jeune femme et demanda d'un ton neutre : « De qui es-tu la descendante ? »
+
+Le visage de la jeune femme fut frappé par l'horreur.
+
+Tandis que le froid pénétrait son corps, elle tremblait sans cesse. Sa voix était tout aussi vacillante lorsqu'elle demanda : « Qui êtes-vous ? Et pourquoi êtes-vous dans la demeure ancestrale de la famille Wang... »
+
+Wang Lin la regarda et d'un geste de la main, fit disparaître l'air froid pour le remplacer par une sensation de chaleur. Le corps de la jeune femme se réchauffa tandis qu'elle affichait un visage stupéfait. Cependant, elle glissa secrètement sa main droite vers sa taille.
+
+Soudain, une violente bourrasque générée par la force d'une paume s'engouffra dans la pièce, accompagnée du vieil homme. Mais dès son entrée, ce dernier s'effondra et sombra dans le sommeil.
+
+Le visage de la jeune femme devint livide.
+
+Wang Lin ne da même pas un regard à l'homme assommé et reprit froidement : « Je te pose la question une nouvelle fois : de qui es-tu la descendante ? » En réalité, dès qu'il avait vu sa maison, il avait eu des soupçons. Il était impossible que la demeure soit restée intacte sans que quelqu'un en prenne soin. Bien qu'elle paraisse identique, elle avait été reconstruite pour retrouver son aspect d'origine.
+
+La jeune femme afficha un regard déterminé. Elle serra les dents : « Mon père est Wang Yun. Puisque vous m'avez suivie jusqu'ici, pourquoi poser ces questions ? »
+
+Wang Lin fronça les sourcils : « Quel est le lien entre toi et les personnes dont les noms sont gravés sur ces tablettes ? »
+
+« ... C'est la demeure ancestrale du frère de mon ancêtre. » La jeune femme était perplexe. Si cet homme était un envoyé d'un ennemi de son père, pourquoi poser de telles questions ?
+
+Le cœur de Wang Lin tressaillit. Sa voix n'était plus neutre ; elle tremblait légèrement lorsqu'il demanda : « Quel est le nom de ton ancêtre ? »
+
+La jeune femme hésita un instant avant de répondre : « Le nom de mon ancêtre est Tian Tu... » Elle sentait que cet homme était singulier.
+
+En entendant ce nom, le corps de Wang Lin fut secoué par une émotion soudaine. Il murmura : « Quatrième oncle... » En parlant de la famille Wang, outre ses propres parents, l'oncle quatrième était celui qu'il chérissait le plus. Apprendre des nouvelles de lui le plongeait dans une excitation contenue.
+
+Les souvenirs de l'oncle quatrième défilèrent dans son esprit. Après un long moment, il soupira et regarda la jeune femme avec une émotion complexe, semblable à celle d'un homme contemplant ses propres descendants. Il demanda lentement : « Ton ancêtre... à quel âge est-il mort ? »
+
+L'expression étrange sur le visage de la jeune femme s'accentua lorsqu'elle répondit : « Mon ancêtre est décédé à l'âge de 98 ans. À l'âge mûr, il avait attiré l'attention d'un immortel de la secte Piao Miao. Après avoir quitté la montagne, il s'était installé à la capitale et était devenu l'un des vassaux de la famille royale. C'est à cette époque que les fondations de la famille Wang furent posées. »
+
+Une pointe de soulagement apparut dans ses yeux alors qu'il demandait : « Quatrième... le fils de ton ancêtre, Wang Hu, est-il également mort ? »
+
+Les yeux de la jeune femme s'écarquillèrent : « Comment... comment savez-vous pour le fils de l'ancêtre, Wang Hu ? Il est décédé trois ans après la mort de l'ancêtre. »
+
+Le temps passe et les hommes vont et viennent. Après avoir appris pour l'oncle quatrième, l'état d'esprit de Wang Lin changea. Après un long silence, il regarda la jeune femme et dit lentement : « Il y a une énergie Yin nocive dans ton corps. Ta mère était-elle blessée lorsqu'elle était enceinte de toi ? »
+
+Les paroles de Wang Lin plongèrent l'esprit de la jeune femme dans le chaos. Il faut dire que si Wang Lin avait pu l'inspecter minutieusement, ses suppositions auraient pu paraître logiques. Pourtant, très peu de gens connaissaient l'existence de cette énergie Yin ; la plupart pensaient simplement qu'elle était née avec une constitution fragile.
+
+La jeune femme fixa Wang Lin et demanda d'une voix tremblante : « Vous... qui êtes-vous donc ? » Elle avait déjà conclu qu'il s'agissait d'un assassin envoyé par les ennemis de son père, mais si tel était le cas, comment pouvait-il savoir autant de choses ?
+
+Wang Lin agita la main droite et un nuage de brume verte commença à se rassembler au front de la jeune femme. La teinte devint de plus en plus sombre jusqu'à ce que Wang Lin, d'un nouveau geste, fasse disparaître le gaz sans laisser de trace.
+
+La jeune femme sentit soudain son corps se réchauffer. Le froid qui la tourmentait depuis plus de vingt ans s'était évanoui par un simple geste. Cela lui rappela soudainement les êtres des mythes anciens.
+
+Elle mordilla sa lèvre et demanda : « Vous... vous êtes un immortel ? »
+
+Wang Lin eut un petit rire : « Un immortel... en quelque sorte. » En voyant que l'oncle quatrième avait laissé des descendants prospérant à la capitale, Wang Lin ne put s'empêcher de ressentir un apaisement.
+
+Il réfléchit un instant, regarda la jeune femme et dit : « À vrai dire, je suis aussi considéré comme ton ancêtre. J'avais conclu un pacte avec le quatrième oncle : si je devenais immortel, je protégerais sa famille en reconnaissance de l'opportunité qu'il m'avait offerte. » Sur ce, il frappa son sac de rangement et en sortit des flacons de pilules : « Il y a ici 72 pilules. Chaque descendant peut en prendre une. Ils ne doivent pas être gourmands, mais tu es autorisée à en prendre trois. »
+
+Après avoir remis le flacon à la jeune femme, il réfléchit encore et pointa son doigt entre ses sourcils. Après en avoir extrait une goutte de sang, il sortit un morceau de jade de son sac. Il y déposa une parcelle de son royaume de Ji, puis se tourna vers elle. Son expression devint grave et froide : « J'ai laissé un fragment de mon sens divin dans ce jade. Aucun cultivateur à Zhao ne pourra résister plus d'un instant à sa puissance. Cependant, ce jade ne peut être utilisé que trois fois. Garde-le pour l'instant. Seuls les descendants de la famille Wang peuvent l'utiliser. Sois prudente et utilise-le avec sagesse. »
+
+Après avoir lancé le jade à la jeune femme, Wang Lin agita ses manches et disparut de la pièce.
+
+La jeune femme resta stupéfaite devant les pilules et le jade, ayant toujours l'impression de rêver. Le vieil homme qui était tombé au sol se réveilla lentement. Ses yeux s'illuminèrent soudainement lorsqu'il se redressa pour demander à la jeune femme : « Ma dame, que s'est-il passé exactement ? »
+
+À ce moment, la servante entra également. Ce n'est qu'en voyant que la jeune dame allait bien qu'elle poussa un soupir de soulagement. Son visage devint rouge alors qu'elle disait : « Ma dame, Cui Er était trop fatiguée et s'est assoupie par accident. »
+
+En entendant cela, le visage du vieil homme se décomposa. Il se souvenait pourtant très bien que la jeune dame lui avait envoyé un signal, mais qu'en entrant dans la pièce, il avait perdu tout contrôle au point de s'endormir.
+
+« Ce n'est rien. Ne t'en fais pas. Retournons à la capitale. » La jeune femme prit une profonde inspiration et se leva. Son teint maladif avait disparu, remplacé par un éclat rose et sain.
+
+Le vieil homme fut le premier à remarquer l'anomalie. Il s'exclama d'une voix choquée : « Ma dame, vous... »
+
+La servante remarqua également la différence avec une expression d'incrédulité.
+
+La jeune femme esquissa un sourire sans donner d'explication. Elle se retourna pour regarder les deux tablettes, en particulier celle portant le nom de Wang Lin, puis quitta la pièce.
+
+Grâce à sa vivacité d'esprit, elle avait déjà une idée de ce qui venait de se produire, mais pour confirmer ses soupçons, elle devait consulter l'arbre généalogique à la capitale. Elle était convaincue que son père prendrait cette fois du temps dans son emploi du temps chargé pour vérifier cela avec elle.
+
+Après avoir quitté le village, la sérénité sur le visage de Wang Lin s'évanouit pour laisser place au sérieux. Tout son corps dégageait une puissante intention meurtrière. Il s'élança rapidement dans une direction précise ; son cœur était résolu à achever sa vengeance.
+
+S'il tuait directement Teng Huayuan, tous les descendants se disperseraient, l'empêchant de réaliser son rêve d'anéantir la lignée des Teng.
+
+Plus important encore, la mort de Teng Huayuan seule ne suffirait pas à apaiser sa colère. Il voulait que Teng Huayuan assiste au massacre de tous ses descendants, qu'il endure la douleur de voir sa famille s'éteindre. Ce n'est qu'après cela que Wang Lin porterait le coup final.
+
+Il déploya son sens divin et couvrit aisément tout le pays de Zhao. Il localisa sans difficulté la ville de la famille Teng où se trouvait Teng Huayuan et s'y précipita comme un éclair.
+
+Wang Lin s'arrêta à dix mille kilomètres de la ville des Teng. Il planta un drapeau de formation dans le sol et, d'un geste, fit disparaître l'objet.
+
+Puis, il survola la cité des Teng pour y placer seize drapeaux de formation. Il fixa la ville avec des yeux emplis de soif de sang, esquissa un sourire cruel et murmura : « À partir d'aujourd'hui, on peut entrer dans la ville des Teng, mais on ne peut plus en sortir. Teng Huayuan, ma vengeance ne fait que commencer. »
+
+Ses yeux étaient glacials tandis qu'il formait rapidement des sceaux. Il s'éleva dans les airs et, dans un rugissement, frappa les points d'impulsion de son propre corps. Rapidement, une brume verte émana de lui pour l'envelopper. Derrière lui, une silhouette ressemblant à un ancien dieu démon apparut.
+
+Wang Lin posa un genou au sol. Il pressa son index droit pour en faire perler une goutte de sang et cria : « Âme de Teng Li, apparais ! »
+
+Soudain, le dieu démon illusionnaire ouvrit la bouche et engloutit la goutte de sang, avant de recracher une faible lueur verte.
+
+La lumière descendit lentement. Wang Lin la saisit et l'illusion du dieu démon se dissipe peu à peu.
+
+C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que trente minutes.
+
+L'âme récupérée n'avait aucun souvenir, seulement quelques instincts primaires. Pour un Ancien Dieu, c'était une technique inutile qui ne servait qu'à augmenter temporairement la puissance des trésors magiques.
+
+Mais dès que Wang Lin en eut connaissance, il conçut une série de plans de vengeance.
+
+Tenant l'âme de Teng Li, Wang Lin l'engloutit sans hésiter et étendit à nouveau son sens divin sur tout le pays de Zhao. Grâce à l'âme de Teng Li, des points lumineux apparurent un à un dans sa perception. Chaque point représentait une personne portant le sang de la famille Teng. Qu'ils appartenaient à la branche principale, secondaire, ou qu'ils fussent les descendants de femmes Teng mariées ailleurs, tous apparaissaient dans son sens divin. Tant qu'une trace du sang des Teng coulait dans leurs veines, Wang Lin les avait trouvés.
+
+Anéantir une famille ne consistait pas simplement à tuer ses membres. Wang Lin devait éliminer quiconque possédait ce sang pour extirper toute la lignée. C'était là le véritable sens de l'extermination d'un clan.
+
+Progressivement, les points lumineux se multiplièrent dans son sens divin et son sourire devint de plus en plus sinistre. Au fil des années, le nombre de descendants des Teng avait atteint un degré inimaginable, et Wang Lin mémorisait chaque signature d'âme.
+
+Une demi-heure passa en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
+
+Wang Lin frappa son sac de rangement et la bête moustique apparut soudainement. Il monta dessus et vola vers la secte la plus proche. Sept membres de la famille Teng s'y trouvaient.
+
+Teng Xuan était un disciple de la sixième génération de la famille Teng. Il avait déjà atteint le stade initial de la Formation du Noyau. S'il en était arrivé là, c'était d'une part grâce à son appartenance au clan, et d'autre part parce qu'il était entré dans la secte comme disciple de l'un des ancêtres de l'Âme Naissante du Secte Tian Dao.
+
+La famille Teng comptait six membres au sein du Secte Tian Dao, tous jouissant d'un statut considérable. Bien sûr, le plus influent restait Teng Xuan ; les cinq autres n'étaient qu'au stade de l'Établissement des Fondations.
+
+Teng Xuan était très satisfait de sa situation, tant pour son partenaire de culture que pour son rang actuel. Certes, tout cela était dérisoire face aux membres éminents du clan, mais il connaissait ses limites et savait qu'il ne pouvait rivaliser avec eux.
+
+Parmi les innombrables membres des Teng, combien pouvaient réellement égaler ces génies ? Teng Xuan espérait seulement atteindre le stade avancé de la Formation du Noyau avant sa mort.
+
+Aujourd'hui, sa petite sœur, Teng You, venait lui rendre visite. À la pensée de celle-ci, son désir s'enflammait. Lui et sa sœur partageaient un grand secret.
+
+Ils avaient couché ensemble dès leur jeunesse et continuaient de le faire en secret. Teng Xuan savait que sa sœur était très libertine. En grandissant, beaucoup d'autres membres du clan avaient goûté à ses charmes, et même certains de la génération précédente avaient eu des liaisons avec elle. Mais cela l'importait peu. Chaque fois qu'il pensait aux techniques de chambre que sa sœur avait apprises au Sect He Huan, il ne pouvait contenir son impatience.
+
+Il arriva rapidement dans le pavillon de la montagne arrière, l'esprit embrasé par ces pensées érotiques. Il ouvrit la porte et, soudain, un corps très séduisant exhalant un doux parfum se jeta dans ses bras.
+
+Wang Lin voyageait à grande vitesse et aperçut bientôt la secte perchée sur le sommet de la montagne. Les trois mots à l'entrée principale indiquaient : « Sect Tian Dao ».
+
+Wang Lin ne ralentit pas et chargea la secte. Soudain, un écran de lumière apparut alors que la grande formation protectrice s'activait pour l'intercepter. Wang Lin frappa son sac de rangement et le drapeau de restriction apparut dans sa main. Il agita le drapeau et des dizaines de restrictions furent projetées contre l'écran lumineux.
+
+Sans hésiter, l'écran se brisa et un grondement retentit dans tout le Sect Tian Dao, tandis que les roches et la poussière volaient en éclats.
+
+Presque instantanément, les quelques ancêtres de l'Âme Naissante sortirent de leur méditation et regardèrent le ciel avec stupeur.
+
+La bête moustique sous les pieds de Wang Lin, percevant l'intention meurtrière de son maître, chargea les cultivateurs de l'Âme Naissante. Ces derniers jurèrent intérieurement. Alors qu'ils s'apprêtaient à sortir leurs trésors magiques pour combattre, Wang Lin envoya un message qui tomba sur la secte comme une punition divine.
+
+« J'ai un grief personnel contre les descendants de la famille Teng. Quiconque se mettra sur mon chemin mourra ! »
+
+Wang Lin injecta une parcelle de son sens divin dans ce message. La voix semblait venir du ciel et, en descendant, elle gagnait en puissance. Le message tonna à travers le Sect Tian Dao. Les cultivateurs de l'Âme Naissante qui l'entendirent crachèrent du sang, leurs visages se décomposant d'horreur.
+
+Au même moment, Wang Lin sauta de la bête moustique. Son regard se posa sur un disciple du Sect Tian Dao dans la place devant le hall principal. Le jeune homme était terrifié.
+
+Wang Lin esquissa un sourire cruel. D'un geste, il attira le jeune homme vers lui. Ce dernier se cramponna à son propre cou en essayant désespérément de dire quelque chose. C'était malheureux, mais il n'aurait pas dû porter ce nom.
+
+Wang Lin serra le poing et, dans un craquement sinistre, les yeux du jeune homme sortirent de leurs orbites et il mourut sur le coup. De sa main gauche, Wang Lin frappa son sac pour en sortir un drapeau d'âme qui absorba l'essence du défunt.
+
+Wang Lin jeta le corps derrière lui. Simultanément, une longue bannière de dragon jaillit de son sac et enveloppa la dépouille, tenue par la bête moustique.
+
+Tout cela se déroula sous les yeux de l'ensemble du Sect Tian Dao. Wang Lin avait tué cet homme avec une rapidité et une netteté effrayantes. Puis, il chargea le hall principal vers un autre jeune homme qui, les poings serrés, affichait une expression d'indignation. Après cet instant, il n'aurait plus jamais l'occasion de les desserrer.
+
+Tout cela, parce que son nom était Teng !
+
+La paume droite de Wang Lin percuta la tête du jeune homme. Ses organes internes furent pulvérisés et son âme fut capturée par le drapeau. Sans aucune pitié dans le regard, Wang Lin s'élança à nouveau. À ce moment, les cultivateurs de l'Âme Naissante l'avaient rattrapé. Un homme au visage rouge apparut devant lui et, bien qu'effrayé, dit rapidement : « Cher collègue, je vous en prie, arrêtez-vous. Si un problème existe, nous pouvons en discuter. »
+
+Wang Lin ne da même pas un regard à l'individu. Son royaume de Ji s'activa instantanément et, en un éclair, les yeux de l'homme s'éteignirent. En passant devant lui, Wang Lin le frappa, faisant éclater son corps et son Âme Naissante en mille morceaux qui tombèrent au sol.
+
+Une voix aussi glaciale que l'hiver s'échappa de la bouche de Wang Lin : « Quiconque tentera de m'arrêter commettra le même crime que la famille Teng ! »
+
+Le cœur des cultivateurs de l'Âme Naissante environnants se serra. Ils restèrent pétrifiés, n'osant plus bouger.
+
+Wang Lin quitta le hall et s'engouffra dans la secte. Les ancêtres de l'Âme Naissante hésitèrent tous. L'un d'eux sortit un morceau de jade, y grava un message puis le lança. Le jade s'éloigna rapidement pour disparaître au loin.
+
+Ensuite, les cultivateurs se regardèrent. Ils mordirent leur lèvre inférieure et décidèrent de suivre Wang Lin. Bien qu'ils n'osassent l'arrêter, ne pas oser le suivre aurait signifié qu'ils n'étaient pas dignes de leur rang d'ancêtres de l'Âme Naissante.
+
+Une femme magnifique volait vers le Sect Tian Dao, le visage paniqué. Elle ne voulait pas mourir. Ses yeux étaient emplis de terreur. Elle ne voulait pas mourir, mais son nom était Teng !
+
+Wang Lin brisa impitoyablement sa colonne vertébrale. Après avoir recueilli son âme, il projeta son corps en arrière. La bannière de dragon s'élança à nouveau pour l'envelopper. À cet instant, trois corps ornaient la bannière.
+
+Wang Lin ne s'arrêta pas. Sur les quatre personnes restantes, deux étaient dans la montagne arrière et les deux autres fuyaient. L'une d'elles était presque hors de portée de la formation du Sect Tian Dao.
+
+Les yeux de Wang Lin étaient de glace. Il se déplaça et apparut instantanément à l'extérieur de la secte. Il vit un jeune homme voler frénétiquement en regardant sans cesse derrière lui. Cependant, la tête que le jeune homme tournait n'aurait plus jamais l'occasion de se retourner, car son nom était Teng !
+
+Wang Lin lui envoya une pichenette sur la poitrine. Le corps du jeune homme trembla et il mourut instantanément. Wang Lin emprisonna son âme, renvoya le corps vers la bannière de dragon, puis fonça vers sa prochaine cible.
+
+Les cultivateurs de l'Âme Naissante qui le suivaient étaient horrifiés. Ils partageaient tous la même pensée : quand la famille Teng avait-elle offensé un tel démon ?
+
+La culture de ce démon était à un niveau inimaginable, et pourtant il ne cherchait pas Teng Huayuan. Au lieu de cela, il massacrait les descendants des Teng. Il était clair qu'il nourrissait une haine profonde et voulait anéantir tout le clan.
+
+Ces cultivateurs ressentirent un frisson dans leur cœur et leurs pas ralentirent inconsciemment.
+
+Le regard de Wang Lin restait froid tandis qu'une intention meurtrière l'enveloppait. Il esquissa un sourire cruel en ciblant la cinquième personne. C'était le plus âgé d'entre eux. Ses cheveux étaient déjà tout blancs, mais son niveau de culture n'était que celui du sommet de l'Établissement des Fondations.
+
+Le visage du vieil homme ne montrait ni panique ni chagrin, mais une expression très sérieuse. Tout en volant, il sortait à répétition des jades de transmission, y injectait un peu de son sens divin et les lançait.
+
+Cependant, son destin était déjà scellé car son nom était Teng !
+
+Lorsque Wang Lin apparut devant lui, il cessa de voler et regarda le démon d'un air sombre : « Aîné, quel grief avez-vous contre notre famille Teng ? Il doit y avoir un malentendu... »
+
+Wang Lin ne dit mot. Sans laisser l'homme finir, il agita la main et une épée volante noire jaillit de son sac. La lame transperça la poitrine du vieil homme. Son corps devint noir ; il mourut avant d'avoir pu terminer sa phrase.
+
+Wang Lin scella l'âme, attacha le corps et s'élança vers la montagne arrière.
+
+Chaque fois que Teng Xuan rejoignait Teng You, il ouvrait la formation du pavillon de la montagne arrière pour dissimuler toute trace de leur présence. Cela signifiait qu'il ne pouvait rien percevoir de l'extérieur, mais en termes de sécurité, c'était la meilleure méthode.
+
+Après tout, ils étaient frère et sœur. S'ils étaient découverts, sa réputation serait ruinée. Bien que Teng You ait eu de nombreux amants, y compris des membres du clan, chacun gardait le secret. Mais s'il était surpris au lit avec elle, l'affaire prendrait une tournure bien différente.
+
+Par conséquent, il ignorait tout de ce qui se passait dehors. Il n'avait que les yeux séduisants et le corps délicat de Teng You à contempler.
+
+Après quelques gémissements perçants, Teng Xuan assaillit férocement Teng You comme s'il voulait la déchirer. Elle activa rapidement une technique du Sect He Huan et, à cet instant, tous deux atteignirent le sommet du plaisir charnel.
+
+On pourrait dire que Teng Xuan et Teng You avaient de la chance. Bien qu'ils fussent sur le point de mourir, ils avaient au moins connu un immense plaisir avant de s'éteindre ensemble.
+
+Teng Xuan prit quelques inspirations profondes et se détacha de Teng You. Cependant, il remarqua immédiatement une anomalie : une présence supplémentaire dans la pièce. Son cœur tressaillit. Juste au moment où il allait parler, l'individu bougea en un éclair. Ce fut la dernière scène qu'il vit jamais.
+
+Quant à Teng You, dès qu'elle ouvrit les yeux, elle vit la tête de Teng Xuan tomber au sol. Elle poussa un cri, mais ce cri n'avait rien de séduisant ; ce fut le dernier cri de sa vie.
+
+Ils étaient condamnés à mourir car ces deux frères et sœurs s'appelaient Teng !
+
+Après les avoir tués, il scella leurs âmes, attacha leurs corps et quitta le pavillon. Les cultivateurs de l'Âme Naissante de la secte se tenaient tous devant le pavillon en silence. Wang Lin ne da même pas un regard vers eux alors qu'il sautait sur le dos de la bête moustique pour partir, l'étendard du dragon traînant derrière lui. Sur cet étendard reposaient sept cadavres.
+
+Wang Lin ne ralentit pas tandis que la bête s'éloignait du Sect Tian Dao. De loin, les sept corps attachés à la bannière ressemblaient aux plumes d'un paon émettant une lueur sanglante.
+
+Ce n'est que lorsque Wang Lin disparut à l'horizon qu'ils purent enfin reprendre leur souffle. L'un d'eux chuchota : « La famille Teng est finie... »
+
+Un autre murmura : « Pas seulement la famille Teng, tout le pays de Zhao va sombrer dans le chaos. » Puis, il prit une profonde inspiration et s'adressa aux anciens du Sect Tian Dao qui l'observaient : « Donnez l'ordre de rappeler tous les disciples en entraînement extérieur. Rompez toute relation commerciale avec la famille Teng. Tout disciple en extérieur ayant formé un partenariat de culture avec une femme des Teng doit être expulsé de la secte. À partir d'aujourd'hui, nous n'aurons plus aucun lien avec eux. »
+
+Après avoir massacré sept membres de la famille Teng, les yeux de Wang Lin restaient glacials. Il faut un cœur d'acier pour anéantir une lignée entière. Le moindre instant de faiblesse empêcherait l'action décisive nécessaire pour mener ce massacre à bien. Après tout, exterminer un clan n'était pas à la portée de n'importe qui.
+
+La prochaine cible de Wang Lin était une autre secte située à des dizaines de milliers de kilomètres. Il y avait beaucoup de membres des Teng là-bas, au total quatre-vingt-treize.
+
+Wang Lin n'était pas pressé. Il voulait les tuer lentement pour que Teng Huayuan puisse souffrir en regardant sa famille périr sans pouvoir rien faire. Il voulait qu'il ressente la douleur de vouloir s'arracher la poitrine pour voir si son cœur s'était déjà brisé.

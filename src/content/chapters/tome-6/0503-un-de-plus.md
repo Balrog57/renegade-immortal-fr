@@ -1,0 +1,103 @@
+---
+n: 503
+title: Un de plus
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 503 - One More
+slug: un-de-plus
+---
+Lorsque la question de l'Omniscient résonna à ses oreilles, Wang Lin réfléchit.
+
+Tous les sorts interdits sont dérivés de sorts célestes ; il existe donc d'importantes disparités de puissance entre chaque sort interdit. Certains sont dérivés de sorts célestes de qualité moyenne, et ils s'avèrent bien plus puissants que ceux issus de sorts de faible qualité. En réalité, leur puissance n'est pas si éloignée de celle d'un véritable sort céleste de faible qualité !
+
+De même, s'il existe des sorts dérivés de sorts célestes de haute qualité, ils ne sont en rien inférieurs aux sorts de faible qualité ; ils peuvent même s'avérer plus puissants encore ! En fin de compte, la puissance d'un sort interdit dépend de la qualité du sort céleste dont il est issu.
+
+Wang Lin n'était pas dépourvu de sorts offensifs. Qu'il s'agisse des trois sorts mortels de Situ Nan ou du char de guerre dont le premier sceau avait été libéré, tous constituaient des méthodes d'attaque redoutables. En plus de ceux-là, il possédait encore l'épée céleste et la lame en croissant. Cette dernière comptait sans doute parmi les trésors les plus précieux de Wang Lin.
+
+Quant aux sorts d'évasion, avec la restriction de téléportation, il ne s'en inquiétait guère. Bien que son utilisation demande un certain temps, une fois activée, sa puissance est extraordinaire. Quant à ses déplacements dans l'espace, il disposait de la boussole du dragon argenté, et sa vitesse n'y était donc inférieure à celle de quiconque.
+
+Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
+
+L'Omniscient ne rompit pas la réflexion de Wang Lin. Il fixa silencieusement le lointain, sans montrer le moindre signe d'impatience. C'était le choix initial de Wang Lin ; l'Omniscient voulait voir quel genre de sort cet enfant choisirait.
+
+Peu de temps après, Wang Lin leva la tête vers l'Omniscient et dit lentement : « Ce disciple souhaite apprendre un sort de survie ! »
+
+« De survie ? » L'Omniscient regarda Wang Lin en souriant. « Comment souhaites-tu survivre ? »
+
+La voix de Wang Lin était calme lorsqu'il répondit avec lenteur : « Tant qu'il subsiste une lueur d'espoir, je serai capable de survivre et de poursuivre ma quête du Grand Dao ! »
+
+L'Omniscient esquissa un léger sourire et secoua la tête : « Maître ne possède pas un tel sort. »
+
+Wang Lin resta silencieux, plongé dans ses pensées.
+
+L'Omniscient réfléchit un instant avant de dire : « Peu importe. Te demander de choisir, c'est laisser ta propre fortune agir, mais te poser la question était une erreur de la part de ton Maître. Ton destin ne se trouve pas dans une question ; il dépendra de ta propre chance. Désormais, Maître va ouvrir la porte des 3 600 sorts interdits. Tu pourras aller en choisir un toi-même. »
+
+Sur ces mots, l'Omniscient leva sa main droite et pointa Wang Lin avec une vitesse inimaginable.
+
+Wang Lin ne vit qu'une porte aux sept couleurs s'ouvrir sous le doigt de l'Omniscient, avant que son corps ne soit projeté vers la porte malgré lui. Il franchit progressivement le seuil.
+
+Ce qui apparut devant Wang Lin fut un monde aux sept couleurs. Cet endroit était infini, mais il y avait ici 3 600 Omniscients identiques. Ils étaient soit assis en position de lotus pour cultiver, soit engagés dans des combats. Les 3 600 Omniscients étaient dispersés à travers ce monde, cultivant leurs propres sorts. Chaque sort était unique.
+
+Wang Lin resta là, immobile, observant ces multiples incarnations de l'Omniscient.
+
+Au premier coup d'œil, il aperçut un Omniscient au loin. Ses mains formaient des sceaux qui bougeaient de manière imprévisible. Des rayons d'énergie spirituelle céleste de nature métallique émanaient de ses mains. Cette énergie forma un vortex gigantesque. Un tour, deux tours... bientôt, il atteignit aisément neuf tours. À cet instant, une puissance qui fit tressaillir le cœur de Wang Lin émergea lentement du vortex. Cette force était colossale !
+
+« Tactique de Raffinement Céleste aux Neuf Cycles... » Wang Lin l'observa un instant avant de passer au suivant.
+
+Il vit un autre Omniscient assis en lotus à trois cents pieds de là. Ses yeux n'étaient pas clos ; ils projetaient une lumière éclatante. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper l'Omniscient. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
+
+« Sort interdit, Corps Immortel Démoniaque ! » Les yeux de Wang Lin s'illuminèrent.
+
+Le temps passa lentement. Sans aucune hâte, Wang Lin examinait les 3 600 sorts interdits un par un.
+
+Au loin, il vit un Omniscient vêtu de blanc dont le regard dégageait une lueur mystérieuse. Il leva la main droite et libéra un éclat aux sept couleurs. Ses yeux virèrent au violet, puis cette teinte pourpre s'échappa de sa main pour se perdre dans le vide. Une onde de choc résonna dans le cœur de Wang Lin alors qu'il contemplait silencieusement la scène.
+
+Il ignorait depuis combien de temps il était là, mais il avait désormais vu la majorité des 3 600 sorts. Pourtant, parmi tous ceux-ci, seul celui-là l'avait autant bouleversé. Ce sort était d'une puissance inouïe ! Mais ce n'était pas là l'essentiel. Le point crucial était que ce sort reposait sur la lumière aux sept couleurs. Il fallait dire que l'Omniscient affectionnait par-dessus tout cette lumière ; un sort basé sur elle ne pouvait donc être que prodigieux !
+
+Wang Lin chercha encore très longtemps avant de se détourner, sans jamais y revenir.
+
+Dans une partie très discrète de ce monde aux sept couleurs, il y avait une vaste zone vide où siégeait un seul Omniscient vêtu de gris. Aucune fluctuation d'énergie spirituelle céleste ne s'en dégageait ; il restait simplement là, cultivant les yeux clos.
+
+Wang Lin ne fit que l'apercevoir en passant et franchit la zone d'un bond. Cependant, alors qu'il était en l'air, il s'arrêta brusquement, se retourna et inspecta attentivement cet Omniscient en pleine culture.
+
+« Gris... L'Omniscient apprécie les sept couleurs, et les neuf couleurs représentent l'apogée ; d'où vient donc le gris ? » Une lueur mystérieuse brilla dans les yeux de Wang Lin. Plus il observait, plus son regard s'intensifiait. Bien que cet Omniscient semble identique aux autres, Wang Lin pouvait déceler au premier coup d'œil qu'il paraissait un peu plus jeune...
+
+« Un Omniscient plus jeune... » Les yeux de Wang Lin s'illuminèrent. Il s'assit en position de lotus et fixa l'être vêtu de gris.
+
+Il resta là pendant plusieurs jours. Durant tout ce temps, l'Omniscient gris ne bougea pas ; c'était comme si le temps s'était figé. Le temps s'écoulait lentement, mais Wang Lin n'avait toujours pas vu cet être faire le moindre mouvement.
+
+« Étrange ! » Wang Lin afficha une expression pensive. Il leva sa main droite et la déplaça avec une rapidité telle qu'il créa des images rémanentes. Bientôt, une restriction illusoire apparut dans sa paume, se transformant en un sceau noir. Il frappa le sceau qui s'élança vers l'Omniscient gris, lequel demeurait parfaitement immobile.
+
+C'était la première fois qu'il attaquait depuis son arrivée. La restriction fendit l'air et traversa directement l'Omniscient. Ce dernier ne réagit pas et disparut en même temps que le sceau...
+
+Wang Lin fut stupéfait. Il déploya son Sens Divin pour inspecter soigneusement les environs, mais ne trouva aucune trace de l'Omniscient gris.
+
+« Étrange ! » Wang Lin fronça les sourcils. Après une courte réflexion, il étendit son Sens Divin et parcourut ce monde aux sept couleurs à une vitesse fulgurante.
+
+Une durée indéterminée s'écoula. Un jour, alors que Wang Lin volait, son expression changea soudainement et il se tourna vers la gauche sans hésiter. Peu après, il s'arrêta : un Omniscient était assis en lotus à mille pieds de lui.
+
+Il portait une robe grise ! C'était l'étrange Omniscient que Wang Lin traquait depuis des jours !
+
+Wang Lin vola rapidement et s'immobilisa à cent pieds de lui. Après avoir réfléchi un instant, il frappa son sac de stockage. L'épée céleste apparut dans sa main. Ses yeux brillèrent et, sans un mot, il abattit son arme. Un rayon d'énergie d'épée jaillit, suivi par la lame en demi-lune.
+
+La vitesse de la lame était inimaginable. En un clin d'œil, elle transperça la poitrine de l'Omniscient gris. Pourtant, cela ne lui fit aucun mal ; c'était comme si son existence n'était qu'une illusion. L'énergie d'épée qui suivit traversa également le corps de l'être avant de s'évanouir au loin.
+
+À cet instant précis, une intention meurtrière émana de l'Omniscient gris. Cette intention était d'une puissance monstrueuse, capable de déchirer les cieux. En un éclair, elle envahit la zone et se propagea avec rapidité.
+
+Au loin, tous les autres Omniscients qui pratiquaient leurs sorts s'interrompirent et tournèrent leurs regards vers cette direction, les yeux brillants d'une lueur mystérieuse. Dans ce monde aux sept couleurs, chaque incarnation avait ressenti ce changement soudain. Les autres Omniscients s'élancèrent immédiatement et, en un instant, ils se retrouvèrent tous dans un rayon de 5 000 kilomètres autour de l'être vêtu de gris.
+
+« Scellez-le ! » Un cri retentit de la part de tous les Omniscients présents dans ce périmètre.
+
+Une puissance mystérieuse et inimaginable surgit soudainement. Elle descendit des cieux telle une toile gigantesque, se précipitant vers l'Omniscient gris pour le capturer. Ce dernier eut un rictus de mépris, leva la tête et ne prononça qu'un seul mot : « Dégagez ! »
+
+À cet unique mot, le ciel changea de couleur et la toile gigantesque vola en éclats. Une intention meurtrière inconcevable balaya alors les 5 000 kilomètres environnants. Tous les Omniscients présents furent contraints de battre en retraite, reculant sur des dizaines de milliers de kilomètres.
+
+À ce moment-là, seuls quelques rares Omniscients restaient dans le périmètre de 5 000 kilomètres ; ceux qui possédaient les sorts interdits les plus puissants. Sous l'assaut de cette intention meurtrière, Wang Lin fut instantanément trempé de sueur froide. Cette force était des milliers de fois supérieure à celle de son corps originel. C'était comme comparer la lune éclatante à une luciole ; il n'y avait aucune comparaison possible.
+
+Auparavant, Wang Lin pensait que l'intention meurtrière de son corps originel était la plus forte, mais cet Omniscient gris possédait désormais l'intention la plus terrifiante qu'il ait jamais vue !
+
+Cependant, ce ne fut pas cela qui le choqua le plus. Ce qui le stupéfia, c'est que lorsque tous les autres s'étaient précipités, il avait clairement ressenti avec son Sens Divin que les 3 600 Omniscients étaient tous arrivés !
+
+Les yeux de Wang Lin se fixèrent soudainement sur l'Omniscient au visage impassible. Il était le 3 601ème !
+
+« Il y en a un de plus ! » Wang Lin prit une profonde inspiration.

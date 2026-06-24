@@ -1,0 +1,121 @@
+---
+n: 1592
+title: La vie est comme une pièce de théâtre, qui suis-je ?
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: Chapter 1592 - Life is Like a Play, Who Am I
+slug: la-vie-est-comme-une-piece-de-theatre-qui-suis-je
+---
+Chapitre 1592 - La vie est comme une pièce de théâtre, qui suis-je ?
+
+La jeune fille en violet hocha doucement la tête et se leva avec la jeune fille en vert. Au moment de partir, elle se retourna pour regarder Wang Lin, comme si elle voulait graver son apparence dans son cœur.
+
+Alors qu'elle s'apprêtait à s'éloigner, la jeune fille en violet hésita un instant. La jeune fille en vert avait déjà quitté l'embarcation et s'élevait dans les airs grâce à un sort d'attraction.
+
+« Sœur aînée, allons-y », fit la voix de la jeune fille, résonnant à travers la pluie.
+
+La jeune fille regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura :
+
+« Est-ce vraiment une vie passée… » La jeune fille soupira, puis partit.
+
+La pluie devint de plus en plus intense.
+
+Les gouttes tombaient tandis que le bateau solitaire dérivait sur la rivière, dégageant une sensation inexplicable. C'était l'aura de la solitude…
+
+Des ondulations se propagèrent à la surface de l'eau alors que l'embarcation dérivait au fil du courant. Le bateau s'éloignait peu à peu, disparaissant dans la nuit solitaire. Seule la faible lueur de la lampe à bord pouvait encore être aperçue, vacillant dans l'obscurité.
+
+De loin, la flamme tremblante du bateau ressemblait à une feuille isolée flottant sur le courant, dérivant lentement vers la fin d'un rêve…
+
+Le bruit de la pluie frappant la coque persistait, mais Wang Lin faisait un doux rêve sous l'abri.
+
+Le manteau qui enveloppait son corps dégageait un léger parfum qui lui chatouillait les narines et l'entraînait dans ses songes.
+
+« Xu Fei… Sœur aînée Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc !
+
+Mais désormais, elles ne pouvaient plus l'entendre.
+
+Le rêve de Wang Lin était comme une autre vie. Dans ce songe, il voyait Xu Fei au sein de la Secte Heng Yue, ainsi que la Sœur aînée Zhou… Sur les montagnes de la Secte Heng Yue, un oiseau blanc passait également en trombe…
+
+Après un long moment, la petite flamme de la bougie s'éteignit progressivement pour ne faire qu'un avec la nuit.
+
+La pluie cessa tôt le matin. L'horizon s'éclaircissait peu à peu, sans toutefois avoir totalement dissipé les ténèbres. Le monde restait embrumé, ce qui semblait peser sur l'humeur des hommes.
+
+Les précipitations de la nuit avaient fait monter le niveau de la rivière. Bien qu'il soit difficile de s'en apercevoir à l'œil nu, la rive en portait les marques évidentes.
+
+La pluie tombant sur le sol avait formé une épaisse boue qui s'écoulait dans le lit de la rivière. Un bateau flottait lentement et se rapprochait inexorablement du bord.
+
+Finalement, l'embarcation s'échoua dans la boue de la rive et s'arrêta.
+
+Sous l'abri, la tête de Wang Lin heurta la paroi du bateau lors de l'impact. Il ouvrit les yeux, entre douleur et confusion, tandis que les souvenirs de la nuit passée revenaient lentement à lui. Cependant, en regardant autour de lui, les deux jeunes filles avaient disparu sans laisser de trace.
+
+La nuit dernière ressemblait à un rêve. Les silhouettes magnifiques de ces deux jeunes filles persistaient dans l'esprit de Wang Lin.
+
+« Était-ce une illusion… » Confus, Wang Lin observa le manteau qui le couvrait. Il appartenait manifestement à une jeune fille. Il reprit peu à peu ses esprits.
+
+Pourtant, dans son esprit, outre les silhouettes des deux jeunes filles, ce rêve était d'un réalisme extrême. Il les avait vues dans ce songe.
+
+Tout cela plongeait Wang Lin dans un grand désarroi. La bougie s'était éteinte depuis un moment, rendant l'intérieur de l'abri à peine visible.
+
+Après un long moment, Wang Lin sortit de l'abri et contempla le monde embrumé. Les environs étaient si flous qu'il ne pouvait voir loin. Le vent soufflait ; bien que froid, il lui permettait de respirer l'odeur de la terre humide. Il prit une profonde inspiration.
+
+« Était-ce vraiment un rêve… » Wang Lin se tenait à la proue. Depuis l'arrêt de la pluie, le silence était absolu. Un silence tel qu'il semblait être le seul être vivant au monde.
+
+En regardant autour de lui, Wang Lin sentit une vague de solitude envahir son corps pour une raison inconnue. Tandis qu'il contemplait le ciel sombre, ce sentiment devint plus oppressant encore.
+
+Le vent faisait flotter ses cheveux noirs derrière lui, mais ne parvenait pas à aplatir les plis de ses vêtements.
+
+« Un peu froid… » Wang Lin baissa la tête. Il ignorait pourquoi cette solitude l'avait soudainement frappé avec une telle force. Ce sentiment le renvoyait à sa maison, à ses parents, à tout ce qu'il avait connu.
+
+Et aussi à cette femme dont il semblait incapable de se souvenir…
+
+Comme si une force invisible s'était amassée en lui, deux filets de larmes commencèrent à couler.
+
+« Pourquoi est-ce que je… pleure… » Wang Lin leva la main et essuya une larme qui ressemblait à une goutte de pluie. Ses yeux étaient empreints d'une tristesse et d'un chagrin infinis qu'il ne remarquait même pas lui-même…
+
+« Qu'est-ce qui m'arrive… » Wang Lin baissa la tête et s'assit, ignorant l'humidité du pont. Dans la sérénité de l'aube, ses larmes tombèrent et se mêlèrent à la surface mouillée du bateau.
+
+Cette sensation d'être le dernier être au monde lui était très familière. C'était comme s'il avait ressenti cela depuis toujours, marchant silencieusement à travers les âges, savourant cette solitude en solitaire.
+
+Wang Lin sombra progressivement dans une sorte de transe, comme si un abîme s'ouvrait devant lui. Cet abîme possédait une force d'aspiration infinie, capable d'engloutir le ciel lui-même. Au plus profond de ce gouffre se trouvait une fissure, et une silhouette solitaire y était assise.
+
+L'endroit était d'un calme absolu, seul le murmure de l'aspiration rompait le silence. La figure solitaire lui tournait le dos. Bien que Wang Lin ne puisse voir son visage, il percevait toute la solitude et la tristesse qui émanaient d'elle.
+
+Dans son état second, il vit un jeune homme vêtu de blanc, aux cheveux blancs, marchant silencieusement parmi les étoiles. Sa silhouette dégageait également une profonde mélancolie.
+
+Il voyait tant de choses, et les larmes continuaient de couler de ses yeux. Cette tristesse venait de son âme et de ce monde. C'était comme si le monde était son âme, son rêve. À cet instant, il retrouvait ce sentiment familier de silence et d'isolement.
+
+Sous le ciel sombre, Wang Lin contempla l'eau pendant un temps interminable…
+
+Ce n'est que lorsqu'une nouvelle rafale de vent froid le fit frissonner qu'il leva inconsciemment la main gauche pour désigner le bougeoir non loin de lui. La mèche s'alluma lentement.
+
+Wang Lin ne s'en rendait même pas compte. Ses yeux étaient remplis d'une tristesse et d'un chagrin sans origine, comme s'ils étaient éternels.
+
+Dans ce silence et cette pénombre, la flamme vacillante de la bougie éclaira lentement les environs. Bien que faible, elle offrait une sensation de chaleur dans sa lutte pour brûler.
+
+De loin, la silhouette sur le bateau dégageait un sentiment de désolation.
+
+Le temps passa et le ciel commença à s'éclaircir. Les ténèbres se dissipèrent de la terre, de la rivière et du bateau. L'environnement devint plus limpide, révélant ce qui se trouvait au loin.
+
+Seuls les nuages noirs tourbillonnants continuaient de strier le ciel. Un oiseau, tel un simple point, s'envola de la montagne pour plonger dans les nuages sombres. Après les avoir traversés, il effectua quelques cercles avant de foncer vers Wang Lin.
+
+Bientôt, l'oiseau se rapprocha et Wang Lin leva les yeux vers l'oiseau blanc. L'animal semblait contempler Wang Lin d'en haut. Wang Lin put déceler une trace perceptible de tristesse dans son regard, ce qui le surprit alors que l'oiseau disparaissait au loin.
+
+Une fois l'oiseau parti, le chagrin dans le cœur de Wang Lin s'estompa lentement. La flamme de la bougie finit par s'éteindre.
+
+« Qu'est-ce qui ne va pas… avec moi ? » Wang Lin sembla reprendre ses esprits et fixa la larme encore présente sur son doigt. Il regarda la goutte cristalline tomber.
+
+Après un long moment, Wang Lin se leva et rassembla ses affaires, toujours empreint de cette confusion et de cette tristesse inexplicable. Il rangea le manteau de la jeune fille dans son sac et quitta l'embarcation.
+
+Au moment de descendre, il jeta un dernier regard vers le bateau avant de s'éloigner.
+
+Cependant, à cet instant précis, un hurlement retentit depuis les nuages tourbillonnants au loin. Au son de ce cri fracassant, Wang Lin leva instinctivement les yeux et vit une scène inimaginable.
+
+Des rayons de lumière capables de percer les cieux jaillirent à travers les nuages noirs. L'un d'eux s'arrêta soudainement au-dessus de Wang Lin, révélant une femme vêtue de bleu. Elle baissa les yeux et son regard croisa celui de Wang Lin.
+
+« Hein… » La confusion se lut dans ses yeux.
+
+Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement : « Qu'y a-t-il, Sœur junior Liu ? »
+
+« Rien, j'ai l'impression d'avoir déjà vu cet érudit quelque part… » La femme secoua la tête et s'envola au loin.
+
+« Un simple mortel. Nous devrions vite rejoindre le Maître et nous rendre là où cette lumière dorée a jailli. » Le jeune homme jeta un regard vers Wang Lin avant de détourner les yeux vers la femme.

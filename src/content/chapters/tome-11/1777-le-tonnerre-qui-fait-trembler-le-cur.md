@@ -1,0 +1,117 @@
+---
+n: 1777
+title: "Le Tonnerre qui fait trembler le cœur !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1777 - Heart-Pounding Thunder!"
+slug: le-tonnerre-qui-fait-trembler-le-cur
+---
+Chapitre 1777 - Le Tonnerre qui fait trembler le cœur !
+
+L'Âme aux Sept Couleurs du Vieux Fantôme Zhan s'élança. La cape l'enveloppa et percuta les bras d'or et de noir surgissant du ciel et de la terre.
+
+Des grondements tonitruants résonnèrent. Le Vieux Fantôme Zhan était extrêmement puissant ; même sans l'Âme aux Sept Couleurs, il était un cultivateur proche du sommet de la Tribulation Arcane, ayant déjà atteint le seuil de la Tribulation du Vide.
+
+De plus, son âme avait été choisie pour fusionner avec l'Âme aux Sept Couleurs. Par conséquent, son niveau de culture était infiniment proche de celui du Souverain Céleste aux Sept Couleurs !
+
+À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita le bras, et le membre doré tombant du ciel s'effondra ! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
+
+Même le sceau de zither du Maître Dao Blue Dream disparut sans laisser de trace sous son impact.
+
+Le Maître Dao Blue Dream cracha du sang. La zither vibra et il fut gravement blessé. Cependant, il n'hésita pas à la jouer de nouveau, projetant les deux forces vers le Vieux Fantôme Zhan.
+
+Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plus de mille pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
+
+Au moment même où l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan se séparaient, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
+
+La Tortue Noire et l'Oiseau Vermillon avaient déjà conclu un accord avec le Vieux Fantôme Zhan, ou peut-être étaient-ils contraints de l'aider. Ils estimaient que suivre le Vieux Fantôme Zhan était leur seule option, allant jusqu'à croire qu'il deviendrait le nouveau Souverain Céleste aux Sept Couleurs !
+
+À cet instant, le Vieux Fantôme Zhan s'approcha et agita sa manche. Deux caractères « Bataille » volèrent et explosèrent sur les deux hommes de la Planète des Cinq Éléments, les blessant gravement et les forçant à battre en retraite.
+
+Une intention de combat terrifiante émana du Vieux Fantôme Zhan. Il était le créateur des Parchemins de Combat et le maître de l'essence de la bataille. S'il n'avait pas fusionné avec l'âme du Souverain Céleste aux Sept Couleurs — ce qui altérait sa personnalité —, il n'aurait pas été aussi hésitant.
+
+Désormais, son corps et son âme étant séparés, les effets de cette fusion se dissipèrent, lui rendant son tempérament tyrannique !
+
+La tyrannie de la bataille !
+
+« Vous deux, allez vite à l'entrée et tuez Wang Lin ! » Le Vieux Fantôme Zhan agita sa manche et les deux généraux s'élancèrent en utilisant cette force. Ils se précipitèrent vers l'entrée de la couche suivante, formée après l'effondrement de la montagne.
+
+Aussitôt qu'il eut fini de parler, il se retourna face au vieil homme nommé Ma. Les deux se dévisagèrent, et des grondements tonitruants semblèrent résonner entre eux alors que le combat éclatait.
+
+Comparé au vieil homme Ma, le Maître Dao Blue Dream était plus anxieux, mais toute son attention restait focalisée sur la zither afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
+
+Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et l'Oiseau Vermillon.
+
+Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À cet instant, il poussa un rugissement et brisa les sceaux qu'il avait affaiblis. Une fois le sceau rompu, il se précipita vers la Tortue Noire et l'Oiseau Vermillon.
+
+Cependant, lui et Tang Shan étaient toujours plus lents que les deux généraux. Juste au moment où ces derniers atteignirent la montagne effondrée pour s'y engouffrer, un changement stupéfiant survint.
+
+Le plus rapide était la Tortue Noire, qui avait trente pieds d'avance sur l'Oiseau Vermillon. En approchant, il entendit un battement de cœur résonner comme le tonnerre. Cela provoqua en lui un rythme cardiaque chaotique.
+
+Ce battement soudain créa une douleur perforante dans sa poitrine. L'expression du Général Tortue Noire changea et un fracas tonitruant retentit à ses oreilles. La douleur intense qui lui déchirait le torse était telle qu'il eut l'impression qu'une main géante s'était introduite dans sa poitrine pour lui arracher le cœur !
+
+Sous la violence de la douleur, le Général Tortue Noire poussa un cri déchirant et cessa toute progression. Alors qu'il allait reculer, une main noire surgit du vide et pressa sa poitrine.
+
+Dans un bruit sourd, le Général Tortue Noire cracha du sang et fut projeté en arrière vers l'Oiseau Vermillon qui le suivait.
+
+Le Général Oiseau Vermillon fut surpris un instant lorsqu'il entendit lui aussi ce battement de cœur. Son propre rythme devint erratique et une douleur aiguë lui lacéra la poitrine. Son visage pâlit et il recula sans hésiter.
+
+Pourtant, au moment même de son retrait, un rugissement strident, empreint de férocité, de violence et de soif de sang, jaillit de l'entrée. Une ombre s'élança et apparut devant le Général Oiseau Vermillon.
+
+Le Général Oiseau Vermillon n'eut même pas le temps de voir la silhouette noire qu'il cracha déjà du sang. L'ombre percuta sa poitrine et le projeta en arc de cercle.
+
+L'ombre suivit immédiatement le Général Oiseau Vermillon pour l'enlacer. La silhouette esquissa un sourire féroce et mordit le cou du général.
+
+Le cri misérable de l'Oiseau Vermillon était terrifiant ; son corps dépérissait à vue d'œil tandis que l'ombre aspirait son sang. Tout cela se produisit en un instant, avec une rapidité dépassant l'entendement. Alors qu'il était encore en l'air, l'ombre poussa sur le Général Oiseau Vermillon pour s'élancer, projetant ce dernier au sol tandis qu'elle s'envolait.
+
+C'était la Poupée Yi Si !
+
+Cette scène soudaine fit s'arrêter Tang Shan et Tuo Sen. Elle attira également l'attention du vieil homme Ma, du Maître Dao Blue Dream, du Vieux Fantôme Zhan et de l'Âme aux Sept Couleurs !
+
+Alors que tous les regards convergeaient, la silhouette de Wang Lin apparut lentement à l'entrée de la dernière couche. Tous ceux qui le virent frémirent, car son apparence avait radicalement changé !
+
+Il portait toujours ses vêtements blancs, mais les taches de sang frais étaient frappantes. Ses cheveux étaient toujours blancs, mais en désordre, une partie retombant sur son épaule.
+
+Si sa chevelure et ses vêtements n'avaient pas changé, la peau sous ses habits était couverte de runes stupéfiantes. Ces runes scintillaient sur sa peau, dégageant une aura antique.
+
+Son visage était marqué par des runes à l'aspect brut, et ses yeux émettaient un éclat argenté. L'aura qu'il exhalait donnait l'impression d'un mépris souverain pour le monde entier.
+
+Ses yeux d'argent révélaient une froideur et une cruauté sans nom. Une intention meurtrière émanait de ce regard, glaçant le sang de ceux qui le croisaient.
+
+Ce qui choqua le plus Tuo Sen fut la présence de neuf étoiles tournoyant entre les sourcils de Wang Lin ! Dans son œil droit se trouvaient également neuf anciennes étoiles démoniaques. Seul son œil gauche n'en comptait que huit !
+
+Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer sa chemise blanche.
+
+« Tu... Tu as obtenu tous les héritages de Ye Mo ! » L'expression du Vieux Fantôme Zhan changea. Il ressentit un sentiment de danger émanant de Wang Lin, un pressentiment qui fit trembler son cœur.
+
+Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Le Maître Dao Blue Dream s'en sortit mieux que les autres, étant l'aîné de Wang Lin ; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
+
+« Les yeux d'argent ! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré est l'un des signes ! On raconte aussi que les neuf chants et les trois signes sont les présages de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes ! »
+
+« J'ai entendu dire que deux des neuf chants étaient les yeux d'argent et le corps doré ! Cela... Wang Lin n'a obtenu que l'héritage de Ye Mo, comment peut-il avoir des yeux d'argent ?! Même Ye Mo ne les possédait pas ! »
+
+Tandis que la stupeur régnait, Xuan Luo observait Wang Lin depuis l'entrée de la dernière couche avec une excitation manifeste. Lorsqu'il avait vu ces yeux argentés pour la première fois dans cette couche, un immense tumulte s'était emparé de son cœur.
+
+En les revoyant maintenant, le même sentiment l'envahissait.
+
+« Le sang d'âme de l'Ancien Ancêtre... lui a permis de posséder le premier des neuf chants : l'Œil Argenté ! »
+
+Alors que la foule était sous le choc, le regard de Wang Lin balaya le sol et marqua une pause un instant là où se trouvait Xuan Luo. Avec ses yeux d'argent, il perçut vaguement quelque chose, mais personne d'autre que lui ne comprit ce qu'il avait vu.
+
+Son regard glissa ensuite sur l'Âme aux Sept Couleurs qui s'était séparée du Vieux Fantôme Zhan. Observant le corps enveloppé par la cape, Wang Lin pointa l'âme du doigt !
+
+Au moment où il fit ce geste, un battement de cœur retentit comme le tonnerre. Ce son émanait du cœur de Wang Lin et enveloppa rapidement le monde entier.
+
+L'expression du Vieux Fantôme Zhan changea et il fonça immédiatement vers l'Âme aux Sept Couleurs. Sous les yeux de Wang Lin, ils fusionnèrent en un seul être.
+
+Wang Lin ne l'arrêta pas, et il n'y avait aucune raison de le faire !
+
+Après la fusion, l'Âme aux Sept Couleurs entoura le Vieux Fantôme Zhan et recouvrit le ciel derrière lui. Il ricana et chargea Wang Lin. Le Maître Dao Blue Dream et le vieil homme Ma s'apprêtaient à intervenir quand les paroles de Wang Lin résonnèrent calmement entre deux battements de cœur :
+
+« Deux aînés, vous avez assez travaillé, je vais achever ce combat. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux !
+
+Les grondements tonitruants affectaient le pouls de chacun. Alors que le Vieux Fantôme Zhan s'approchait, ce vacarme titanesque pénétra dans son corps et frappa directement son cœur !
+
+Le Vieux Fantôme Zhan s'arrêta net, saisi par une douleur fulgurante au cœur. Son rythme cardiaque devint chaotique, comme si son cœur était sur le point de se briser.
+
+« Quel genre de sort est-ce là ? » L'expression du Vieux Fantôme Zhan se décomposa. Il leva la main droite et la pressa contre sa poitrine, tentant désespérément de contenir la douleur qui le déchirait.

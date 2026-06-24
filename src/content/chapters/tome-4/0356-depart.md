@@ -1,0 +1,149 @@
+---
+n: 356
+title: Départ
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 356 - Leaving
+slug: depart
+---
+L'expression du corps originel demeurait glaciale lorsqu'il demanda lentement : « D'où venez-vous tous les deux ? »
+
+Le corps de la femme au voile blanc trembla tandis qu'elle fixait le vieil homme qui semblait mort. Accablée par le désespoir, elle n'osa plus mentir : « Junior revient tout juste du Cimetière des Immortels. »
+
+Le corps originel tourna son regard vers elle et dit calmement : « Vous étiez sept lorsque vous êtes entrés dans le Cimetière des Immortels. Pourquoi n'êtes-vous que deux à en être ressortis ? »
+
+La femme au voile blanc frémit de nouveau. Ce jeune homme l'impressionnait ; plus elle le contemplait, plus ce jeune homme aux cheveux roux lui semblait familier, bien qu'elle fût certaine de ne ne l'avoir jamais rencontré auparavant.
+
+Elle dit d'un ton amer : « Junior a ses propres difficultés... »
+
+« Suivez-moi ! » Le corps originel la dévisagea, puis s'élança vers la forêt en contrebas.
+
+La femme au voile blanc hésita un instant avant de le suivre.
+
+Quant au vieil homme, le corps originel ne daigna même pas lui jeter un regard. Cet homme n'était qu'au stade initial de la Formation de l'Âme et ne possédait aucun trésor pour se protéger ; sa mort était une certitude.
+
+Cependant, à cet instant précis, le corps originel observa l'endroit où le vieil homme s'était écrasé.
+
+Il vit une silhouette déchiquetée se redresser. Cette personne était enveloppée d'un brouillard noir, au sein duquel émergeait une plante à cinq feuilles.
+
+Le vieil homme cracha du sang dans la brume et luttait, mais son regard restait lucide.
+
+Le corps originel ne lui accorda qu'un seul coup d'œil avant que son visage ne s'assombrisse. Lorsqu'il reporta son attention sur la femme au voile blanc, celle-ci était livide, terrifiée.
+
+« Ainsi c'est donc cela ! » Le corps originel comprit immédiatement comment ils avaient pu échapper à la mort et sortir de là.
+
+Il leva la main, prêt à achever le vieil homme.
+
+À cet instant, la femme au voile blanc se précipita pour s'interposer entre lui et le vieillard. Elle tomba à genoux et s'exclama : « Senior doit avoir connu l'un de ces cinq individus. Junior reconnaît ses torts. Si vous devez tuer quelqu'un, tuez-moi, je vous en prie. Ne lui en voulez pas à lui... »
+
+Le vieil homme lutta pour se redresser. Il fixa le corps originel et déclara : « Si vous devez me tuer, faites-le. Je suis las de vivre comme la marionnette d'autrui. Autant mourir par la main d'un Senior. Cependant, ma dame s'est toujours opposée à cela ; je vous prie de l'épargner. »
+
+Les yeux du corps originel s'illuminèrent. Il les observa tous les deux avant de les saisir pour les emmener de force au Cimetière des Immortels.
+
+En chemin, la blessure du vieil homme cicatrisait lentement et le brouillard noir se dissipait. Toutefois, la plante sur son front continuait de briller par intermittence.
+
+La femme au voile blanc ferma les yeux et se plongea dans ses pensées.
+
+Peu de temps après, le corps originel atteignit l'entrée du Cimetière des Immortels.
+
+Une fois posé, il frappa l'air en direction de l'ouverture, provoquant l'ouverture d'une faille spatiale. Il y projeta deux gouttes de sang : l'une atteignit la femme au voile blanc, l'autre le vieil homme, avant qu'il ne les précipite dans la déchirure.
+
+« Allez chercher Wang Lin. Si vous parvenez à le trouver, je vous laisserai la vie ! » La voix du corps originel résonna dans leurs esprits avant que la faille spatiale ne se referme.
+
+Le corps originel s'assit en tailleur à l'extérieur et commença à méditer. Il ne pouvait entrer, car s'il le faisait, personne ne serait là pour guider Wang Lin vers la sortie.
+
+Pourtant, s'il n'entrait pas, il serait trop difficile de se retrouver. C'est pourquoi il ne les avait pas tués, préférant leur laisser des traces pour qu'ils puissent mener l'enquête.
+
+Dans le vide, Wang Lin était assis sur la boussole stellaire. Il ouvrit soudainement les yeux et murmura : « Alors, c'est ce qui s'est passé ! »
+
+Son regard devint glacial. Il se leva et commanda à la boussole de se mettre en mouvement. Simultanément, il déploya son sens divin pour traquer les deux individus dans le néant.
+
+Le temps s'écoula lentement. Un jour, les yeux de Wang Lin s'illuminèrent soudainement et il accéléra sa course. Bientôt, il aperçut deux silhouettes voler au loin.
+
+C'étaient le vieil homme et la femme au voile blanc.
+
+Les deux étaient dans un état lamentable, leurs forces vitales étant extrêmement affaiblies.
+
+En apercevant Wang Lin, ils affichèrent des expressions complexes. La femme au voile blanc voulut dire quelque chose, mais elle ne fit qu'ouvrir la bouche avant de la refermer dans un long soupir.
+
+Wang Lin les fixa froidement et apparut devant eux. D'un geste de la main, il fit voler deux gouttes de sang depuis leurs fronts jusqu'à sa paume.
+
+La femme au voile blanc hésita un instant et murmura : « Senior... je... »
+
+Wang Lin ne prit même pas la peine de leur répondre. Une fois les deux gouttes récupérées, il rangea la boussole stellaire.
+
+À cet instant précis, le corps originel ouvrit brusquement les yeux et frappa l'air, faisant apparaître une faille spatiale circulaire.
+
+La faille surgit juste devant Wang Lin. Ce dernier, nullement surpris, s'y engouffra.
+
+Dès le début, il n'avait pas prononcé un seul mot à leur égard.
+
+Une fois que Wang Lin eut pénétré dans la faille, celle-ci se referma silencieusement, les abandonnant à leur sort dans le vide.
+
+Après être sorti de la faille et avoir senti la chaleur du soleil sur sa peau, il prit une profonde inspiration. Le sentiment d'avoir survécu l'envahit tout entier.
+
+Il baissa la tête pour observer le gouffre en contrebas avant de disparaître. Son corps originel s'évanouit avec lui.
+
+Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place à ses côtés pour entamer sa propre culture.
+
+Un jour plus tard, Wang Lin et son corps originel ouvrirent les yeux simultanément.
+
+Wang Lin tapota son sac de rangement et en sortit le fruit de la réincarnation qui émettait une lueur jaune. Après réflexion, il conclut que ce fruit serait bien plus utile à son corps originel qu'à lui-même.
+
+« Hélas, il n'y en a qu'un ! » Wang Lin lança le fruit vers son corps originel.
+
+Le corps originel écrasa le fruit, libérant un liquide doré. Bien que la quantité fût infime, le liquide fut instantanément absorbé au contact de sa peau, se frayant un chemin à travers les fissures de son corps.
+
+Le corps originel semblait désormais recouvert d'un filet d'or. Les crevasses de sa peau, autrefois discrètes, émettaient maintenant un éclat doré intense.
+
+Cette lueur devint de plus en plus vive jusqu'à ce qu'elle s'infiltre dans la chair et les os du corps originel pour y disparaître.
+
+L'expression du corps originel resta impassible, mais une pointe d'or traversa son regard. Le fruit de la réincarnation ayant été entièrement absorbé, sa vitesse d'absorption de l'énergie spirituelle fut décuplée.
+
+Le corps originel pouvait enfin être considéré comme un véritable Dieu Ancien !
+
+Quant au fruit de la réincarnation, il s'était totalement volatilisé.
+
+Le corps originel se leva et s'enfonça dans le sol.
+
+Wang Lin prit une grande inspiration, tapota son sac de rangement, et des fragments de l'arbre de la réincarnation apparurent devant lui.
+
+Il en saisit un et commença à graver les motifs du domaine temporel.
+
+Le temps passa lentement.
+
+Zhou Ru avait désormais trois ans et était d'une grande beauté. Cependant, elle n'avait toujours pas prononcé un seul mot. Ses parents avaient consulté de nombreux médecins et elle avait ingéré une multitude de pilules, mais le silence persistait.
+
+La petite Zhou Ru était une enfant très calme. Au lieu de jouer avec les autres enfants du village, elle passait son temps à contempler silencieusement le ciel depuis la cour arrière. Ses yeux étaient empreints d'une profonde confusion.
+
+Le père de Zhou Ru, un homme robuste aux mains calleuses, regarda sa fille en soupirant. Malgré les remèdes et les consultations, l'enfant restait muette.
+
+« Est-elle vraiment muette ? » soupira le père.
+
+Ce jour-là, un vieil homme vêtu d'une robe de cultivateur pénétra dans le village. Le chef du village l'accueillit respectueusement et ordonna que tous les enfants de six ans ou moins soient présentés.
+
+Peu après, les dix-neuf enfants de moins de six ans arrivèrent au centre du village, accompagnés de leurs parents.
+
+Les parents de Zhou Ru faisaient partie des présents. Les yeux limpides de la petite observaient son environnement ; effrayée, elle serrait nerveusement le bord de la robe de sa mère.
+
+La femme s'accroupit pour la réconforter, puis se redressa et dit à son mari : « Ru Er est encore trop jeune. Laissons tomber. »
+
+Le père de Zhou Ru secoua la tête : « Laisse-la essayer. Si elle est choisie, son avenir sera radieux. »
+
+La femme se mordit la lèvre sans rien ajouter.
+
+Le vieil homme en robe dégageait une certaine arrogance. Il était déjà impatient ; il avait visité d'innombrables villages sans trouver une seule racine spirituelle. S'il n'avait pas été contraint par le règlement de sa secte — qui exigeait qu'un disciple parte à la recherche d'un talent tous les six ans — il ne se serait jamais donné cette peine.
+
+Il était déjà venu dans ce village, il y a six et douze ans, sans succès.
+
+« J'ai trouvé un enfant doté d'une racine spirituelle au village de Liu il y a six ans. Je me demande si je trouverai quelqu'un ici. Si c'est le cas, je recevrai trois pierres spirituelles de qualité moyenne. » Le vieil homme inspectait les enfants un à un. Ses sourcils se fronçaient davantage et la déception sur son visage s'accentuait.
+
+Soudain, son regard se fixa sur Zhou Ru. Il s'approcha d'elle avec célérité et pointa son front, le visage illuminé par la joie.
+
+« Ceci... est née naturellement dotée d'énergie spirituelle ! Tous ses méridiens sont ouverts et elle possède une aura violette. Magnifique ! » Le vieil homme contemplait Zhou Ru. Ce qu'il voyait n'était pas une enfant, mais une pierre spirituelle étincelante de haute qualité.
+
+Sa secte était modeste, mais comme elle était une branche de la Secte du Ciel Nuageux, ils jouissaient d'une certaine prospérité. Bien que les Anciens fussent généralement avares, ils récompensaient très généreusement les disciples qui découvraient de tels talents.
+
+Le vieil homme éclata de rire et s'adressa aux notables du village : « Cet enfant, je la prends ! »
+
+Les yeux de Zhou Ru se remplirent de panique tandis qu'elle agrippait désespérément la robe de sa mère. Son visage était devenu livide.

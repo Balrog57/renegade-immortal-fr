@@ -1,0 +1,121 @@
+---
+n: 1801
+title: "Il y a quelque chose d'étrange, il y a un problème, il y a un trésor !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1801 - There is Something Strange, There is a Problem, There is a Treasure!"
+slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
+---
+Chapitre 1801 - Il y a quelque chose d'étrange, il y a un problème, il y a un trésor !
+
+Le continent du Taureau Céleste faisait partie du Continent Oriental, la terre appartenant aux êtres célestes. C'était une région reculée et montagneuse ; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
+
+La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête céleste maléfique que l'Ancêtre Céleste avait tuée avant de la placer ici. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces !
+
+Même les 36 États des pays antiques possédaient des légendes similaires. Cependant, tant de temps avait passé que nul ne savait si ces récits étaient vrais. Peut-être seuls des êtres tels que les Neuf Soleils et les familles royales des deux races en détenaient la vérité.
+
+Pour les autres cultivateurs, cela n'avait aucune importance, car ils ne pouvaient de toute façon pas ressentir l'existence de telles bêtes féroces.
+
+La légende du continent du Taureau Céleste remontait à l'Antiquité. Si le continent comptait tant de montagnes, c'était parce que chacune d'elles était formée par un os de cette créature maléfique.
+
+Sur le continent du Taureau Céleste existaient deux sectes célèbres : la Secte Gui Yi et la Grande Secte de l'Âme.
+
+Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent Oriental ! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
+
+La Grande Secte de l'Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion !
+
+Fan Shanmeng était une disciple de la Grande Secte de l'Âme, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Grande Secte de l'Âme composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
+
+Quant à la Secte Gui Yi, elle se concentrait sur les cinq éléments. De plus, elle était célèbre pour sa méthode unique de forgeage d'armures.
+
+Sous la Secte Gui Yi et la Grande Secte de l'Âme se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
+
+La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Grande Secte de l'Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Grande Secte de l'Âme.
+
+Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Grande Secte de l'Âme et les avait tous vaincus. Même les anciens ordinaires de la Grande Secte de l'Âme n'étaient pas de taille contre lui.
+
+Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste !
+
+Certains l'incluaient même parmi les quatre génies célestes précédemment nommés du Continent Oriental, formant ainsi les « Cinq Pics » !
+
+Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête lorsqu'on le comparait aux quatre génies du Continent Oriental. Ce n'était pas par sentiment d'infériorité, mais plutôt par pur mépris à leur égard.
+
+Il y a dix ans, lors d'un affrontement entre la Grande Secte de l'Âme et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Grande Secte de l'Âme en une seule attaque.
+
+Lorsqu'on le compara alors aux quatre génies célestes du Continent Oriental, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste :
+
+« Mon épée peut blesser de nombreux adversaires ; je n'hésiterais pas à affronter ces quatre génies. Bien que je ne sois pas certain de gagner, je ne reculerai pas d'un demi-pas ! »
+
+« Cependant, j'ai rencontré un cultivateur qui n'avait pratiqué que depuis un peu plus de 2 000 ans dans ce monde, et lorsque je me suis tenu devant lui... je n'osais même pas dégainer mon épée ! »
+
+« Oubliez-moi, même ces quatre génies ne méritent pas qu'on les appelle ainsi ! À mon avis, dans la nouvelle génération, personne n'est à sa hauteur ! »
+
+Ces paroles provoquèrent une onde de choc et un immense tumulte. Quiconque les entendait restait stupéfait, tous pensant à la même chose.
+
+Qui était cet homme ?
+
+Qui pouvait pousser Yun Yifeng à de tels propos ? Qui pouvait l'intimider au point qu'il n'ose dégainer son arme ?
+
+Et cet individu n'avait cultivé que depuis un peu plus de 2 000 ans ! Si cela était vrai, alors les quatre génies du Continent Oriental ne méritaient effectivement pas leur titre face à un tel être !
+
+Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Grande Secte de l'Âme ne s'y opposa, comme si ses membres connaissaient cet individu !
+
+Ce phénomène étrange semblait déclencher une tempête de spéculations. Le silence de la Grande Secte de l'Âme alimentait tous les fantasmes !
+
+Qui était cette personne ?
+
+Il pouvait paralyser Yun Yifeng par sa seule présence. Il pouvait dévaluer les quatre génies. Il pouvait réduire la Grande Secte de l'Âme au silence. C'était comme si la secte avait tacitement admis l'existence d'un tel être ! Même la Secte Gui Yi n'avait rien dit après les déclarations de son disciple, comme si elle savait aussi qu'une telle figure existait !
+
+Qui était-il ?
+
+« Il apparaîtra. Et le jour où il apparaîtra, vous saurez ! » Ce furent les derniers mots de Yun Yifeng concernant ce mystérieux individu.
+
+Bien que plusieurs années se soient écoulées, la rumeur ne cessait de se propager sur tout le continent du Taureau Céleste. À force de se transmettre de bouche à oreille, elle devenait chaque jour plus extravagante.
+
+Pourtant, la question restait sans réponse. Et ceux qui détenaient la vérité gardaient le silence !
+
+Le temps passa, et l'agitation finit par s'estomper, laissant la rumeur s'enraciner dans les cœurs. Peut-être qu'un jour, ils découvriraient enfin l'identité de cet homme...
+
+La Secte du Dragon Bleu était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance de Culture, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
+
+On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte du Dragon Bleu » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
+
+Les disciples de la Secte du Dragon Bleu excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
+
+Outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes ou de cultivateurs pouvaient également être transformés en marionnettes.
+
+L'art des marionnettes n'était pas si mystérieux ; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte du Dragon Bleu possédait une particularité unique : il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
+
+La rumeur disait que le premier membre de la secte à avoir atteint le stade de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
+
+Sur le continent du Taureau Céleste, la Secte du Dragon Bleu jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
+
+Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Grande Secte de l'Âme ; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
+
+La Secte du Dragon Bleu choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Leurs proies de prédilection étaient les voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
+
+Durant l'année, les disciples erraient principalement à l'extérieur pour collecter des informations pour la secte. S'ils rencontraient un ennemi difficile, ils n'hésitaient pas à appeler des renforts pour attaquer en groupe.
+
+Kang Ren était un disciple de troisième génération de la Secte du Dragon Bleu. Rusé et cruel, il était très célèbre parmi ses pairs et particulièrement estimé par la secte. Il possédait un flair remarquable, capable de déceler d'un coup d'œil si une personne était une cible facile ou non, évitant ainsi d'attirer les ennuis sur sa secte.
+
+Il était un bel homme, ce qui rendait sa cruauté difficile à imaginer. Même certains disciples de deuxième génération hésitaient à le provoquer.
+
+Ce jour-là, Kang Ren volait dans les airs, patrouillant aux frontières du continent du Taureau Céleste pour débusquer d'éventuels étrangers. Soudain, alors qu'il survolait la région, un changement brusque se produisit au loin !
+
+Il vit une déchirure apparaître dans l'espace et, dans un éclat de lumière spectrale, une silhouette en tomba. La forme semblait porter un cercueil en chutant vers le sol.
+
+Tout cela se produisit en un éclair. À l'instant même où la silhouette disparut, la déchirure céleste se referma comme si elle n'avait jamais existé.
+
+Ce changement soudain stupéfia Kang Ren, qui se frotta les yeux. Il n'avait jamais rien vu de tel. Il fixa l'endroit où la faille s'était manifestée, se demandant s'il n'hallucinait pas.
+
+Cependant, il fut bientôt pris d'une excitation fébrile et ses yeux brillèrent d'un éclat vif. Il fonça vers l'endroit où la silhouette au cercueil était tombée.
+
+« Il y a quelque chose d'étrange, il y a un problème, il y a un trésor ! » Le cœur de Kang Ren battait la chamade. La Secte du Dragon Bleu avait été fondée par Du Qing, et cette phrase constituait la toute première règle de la secte !
+
+Au fil des ans, chaque disciple de la Secte du Dragon Bleu l'avait mémorisée !
+
+Tout ce qui était étrange devait cacher un problème, et s'il y avait un problème, il y avait fort probablement un trésor ! Kang Ren vola à toute vitesse, tout en se protégeant prudemment avec ses trésors. En chemin, il entendit un grondement sourd.
+
+Au loin, la silhouette portant le cercueil venait de percuter la montagne. L'impact fut tel que plus de la moitié du sommet s'effondra, révélant un jeune homme aux cheveux blancs, immobile !
+
+« Quel corps puissant ! » Les yeux de Kang Ren s'illuminèrent d'avidité alors qu'il s'approchait avec précaution.

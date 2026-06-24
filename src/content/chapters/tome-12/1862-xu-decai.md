@@ -1,0 +1,113 @@
+---
+n: 1862
+title: Xu Decai
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: Chapter 1862 - Xu Decai
+slug: xu-decai
+---
+La patrouille était ennuyeuse, mais Wang Lin s'était habitué à l'ennui. Il avait l'habitude de marcher seul dans ce monde, accoutumé à se cacher dans l'obscurité et à contempler silencieusement l'immensité du monde qui s'étendait devant lui.
+
+La lune était voilée par des nuages sombres, mais elle ne pouvait être totalement obscurcie, comme si elle lui servait de guide. Wang Lin observait les éclats de lumière lunaire et poursuivait sa marche lente.
+
+La nuit était encore profonde, et les nuages commencèrent à s'amonceler davantage. Bientôt, le tonnerre gronda et le vent hurla. Le bruit de la pluie tombante résonna de toutes parts.
+
+L'averse commença.
+
+Alors que la pluie tombait, Wang Lin s'arrêta soudainement et leva les yeux vers ce monde enveloppé par les eaux. Il agita la main droite et la boussole de restriction apparut dans sa paume. La boussole affichait clairement plus d'une douzaine de points verts fonçant vers lui.
+
+Les yeux de Wang Lin s'illuminèrent et il recula immédiatement. Sa vitesse était fulgurante ; en un instant, il s'était retiré à plus de 10 000 pieds tout en changeant de direction. Il s'arrêta et scruta la boussole dans sa main, le regard brillant.
+
+Les plus d'une douzaine de points sur la boussole avaient changé de trajectoire au même moment que Wang Lin. Ils semblaient avoir remarqué son mouvement et se rapprochaient rapidement.
+
+Simultanément, sur la boussole, plus d'une douzaine de nouveaux points verts apparurent dans les trois autres directions autour de Wang Lin. Ils semblaient former un encerclement pour le traquer.
+
+« C'est là le dessein de Lu Wenran. » Dès que Wang Lin avait quitté le palais, il avait compris le plan de Lu Wenran. Ce dernier soupçonnait Wang Lin et l'avait délibérément envoyé dehors pour voir s'il pourrait attirer les cultivateurs du Continent du Démon Vert.
+
+Bien que Wang Lin eût pu choisir de ne pas partir, sa nature était de rester caché. Parfois, reculer pour mieux avancer était préférable.
+
+« Si j'avais été Lu Wenran, j'aurais scellé toutes les entrées du palais ! » Wang Lin frappa le sol et une force de répulsion l'empêcha de retourner dans le palais souterrain.
+
+Avec un ricanement, il fixa les près de cent points verts sur sa boussole, une lueur d'intention meurtrière brillant dans ses yeux.
+
+Ces gens venaient pour le tuer, mais ils ignoraient que la raison pour laquelle Wang Lin était sorti était de remplir rapidement les trois missions confiées par l'Estimable Taureau Vert.
+
+« Deux des quatre directions sont occupées par des cultivateurs au stade intermédiaire de la Tribulation du Vide... Les deux autres ont des cultivateurs au stade initial de la Tribulation du Vide... Puisque Liu Zhiyuan est mort, il ne reste que six cultivateurs de la Tribulation du Vide sur le Continent du Démon Vert. S'ils en envoient cinq maintenant, c'est qu'ils savent que j'ai la boussole et qu'ils ont deviné que j'ai tué Liu Zhiyuan ! » Wang Lin fit un pas vers la droite et, dans un écho de rides spatiales, il disparut.
+
+Dans les quatre directions de la Prairie du Ciel Extrême, plus d'une douzaine de cultivateurs volaient vers Wang Lin. Les vieillards nommés Zhao et Zhang affichaient tous deux des expressions sombres.
+
+Dans les deux autres directions, un homme et une femme progressaient. Ces deux cultivateurs au stade initial de la Tribulation du Vide guidaient des dizaines de personnes à l'aide d'un guide vers Wang Lin.
+
+Au même moment, loin de là, l'autre cultivatrice au stade initial de la Tribulation du Vide restait avec les milliers de membres du Continent du Démon Vert. Elle était assise devant une boussole illusoire qui révélait clairement la position de celle de Wang Lin. Elle donnait des ordres et relayait sa localisation.
+
+Le tonnerre grondait dans le ciel et la pluie tombait à verse. Un massacre commençait sous cette averse !
+
+Xu Decai était un cultivateur errant du Continent du Démon Vert ayant atteint le stade initial de la Tribulation du Vide. C'était là sa limite ; il ne pourrait progresser qu'en rencontrant une fortune extraordinaire.
+
+Il avait été invité par la Secte du Démon Dao pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint aux troupes pour tenter d'ouvrir son troisième méridien.
+
+À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcane.
+
+Le reste était principalement composé de cultivateurs au stade de la Flétrissure Céleste. Ils chargeaient, menés par Xu Decai.
+
+Tout au long du trajet, Xu Decai s'était montré très prudent. La mort de Liu Zhiyuan l'avait profondément secoué. Les cultivateurs de la Tribulation du Vide étaient difficiles à tuer, et pourtant, Liu Zhiyuan avait péri deux jours auparavant.
+
+Cet événement avait provoqué un véritable séisme dans son cœur, l'obligeant à la vigilance. Cependant, cette prudence s'accompagnait d'un sentiment d'excitation.
+
+Cette excitation provenait de la promesse faite par le vieil homme nommé Zhang avant leur départ.
+
+« Si quelqu'un tue Wang Lin, ce vieux vous promet que je ferai en sorte que le Maître de Secte vous autorise à entrer dans la Fosse Céleste pendant mille ans ! » Cette perspective exaltait Xu Decai.
+
+La rumeur disait que lors de l'extraction du noyau du Scorpion Démoniaque par l'Ancêtre Céleste, un accident s'était produit. Le noyau s'était brisé en morceaux, créant cinq fosses à travers le Continent du Démon Vert. Ces fosses étaient saturées d'énergie démoniaque, et y cultiver offrait des bénéfices inestimables.
+
+Pour Xu Decai, dont la culture stagnait depuis longtemps, c'était une chance unique. Qu'il puisse augmenter son niveau de culture ou non, il devait tenter sa chance.
+
+« Wang Lin, si je te tue, j'obtiendrai une immense fortune. Nous n'avons pas de querelle personnelle, mais tu dois mourir ! » Xu Decai se lécha les lèvres, un éclat de froideur dans le regard.
+
+Alors que l'intention meurtrière pointait dans ses yeux, une sensation terrifiante frappa l'esprit de Xu Decai. Au moment où il se retourna, des cris déchirants retentirent.
+
+Les têtes des dix dernières personnes du groupe, qui n'avaient pas atteint le troisième stade, volèrent d'un coup. Le sang éclaboussa tout et leurs âmes originelles s'effondrèrent instantanément.
+
+Xu Decai ne vit qu'une silhouette blanche émergeant de l'obscurité, tenant une épée ensanglantée. La silhouette se déplaçait à une vitesse surnaturelle et, d'un seul coup, dix personnes avaient péri.
+
+Après ce massacre, Wang Lin resta calme et disparut en reculant.
+
+Les pupilles de Xu Decai se contractèrent sous le choc. Wang Lin était trop rapide, d'une rapidité terrifiante, mais cela ne fit qu'accroître l'excitation de Xu Decai.
+
+« Wang Lin ! » Sans hésiter, Xu Decai recula. Il leva la main droite vers le ciel.
+
+Une magnifique fleur illusoire apparut soudainement dans la nuit sombre et pluvieuse, occupant la moitié du firmament. Bien qu'elle parût splendide, un regard attentif aurait révélé qu'il s'agissait d'une fleur faite de crânes !
+
+À l'apparition de cette fleur, une lueur froide brilla dans les yeux de Wang Lin. À présent, il ne restait plus que cinq personnes. Hormis le cultivateur de la Tribulation du Vide, les quatre autres ne valaient pas l'attention qu'ils exigeaient.
+
+Les corps des quatre autres tremblèrent et ils tentèrent de fuir, mais leur vitesse était dérisoire face à celle de Wang Lin. Ce dernier s'élança et une lueur sanglante jaillit. L'épée de sang prit la forme d'un dragon et chargea. Deux personnes furent touchées et découpées en morceaux dans des cris de douleur.
+
+Après avoir éliminé ces deux individus, la boussole interne de Wang Lin lui indiqua clairement que trois groupes de cultivateurs du Continent du Démon Vert fonçaient vers lui. Trois vieux monstres au stade intermédiaire de la Tribulation du Vide chargeaient à pleine vitesse.
+
+À ce rythme, ils ne mettraient qu'une demi-heure à le rattraper.
+
+Un autre cultivateur de la Tribulation du Vide, ayant quitté son groupe, chargeait également vers lui.
+
+« Une demi-heure... » Les yeux de Wang Lin s'illuminèrent et il fonça sur Xu Decai. À cet instant précis, Xu Decai lança le signal de la fleur. Il était convaincu que, puisqu'il avait localisé Wang Lin, le retarder constituerait un immense mérite.
+
+Xu Decai ricana, indifférent au sort des autres. Alors que Wang Lin approchait, il leva brusquement sa main droite avant de la laisser retomber.
+
+En tombant, sa main traça des sceaux à une vitesse prodigieuse. En un laps de temps infime, il exécuta près d'un million de sceaux, matérialisant un lion colossal. Ce lion, haut de mille pieds, poussa un rugissement et bondit sur Wang Lin.
+
+Wang Lin n'avait jamais vu une telle rapidité dans l'exécution de sceaux. Le sort étrange de Xu Decai était d'une célérité inouïe.
+
+Le lion rugit en se rapprochant. Une lueur rouge jaillit et un grondement tonnerre retentit, provoquant une onde de choc massive à travers la terre. La pluie s'interrompit brusquement dans une vaste zone, créant un monde étrange où l'eau ne tombait plus.
+
+Xu Decai venait d'utiliser un sort, mais il ne marqua aucune pause ; il recula de trois pas. Puis, sa main droite frappa soudainement le sol. Durant ce mouvement bref, ses mains avaient créé près de quatre millions de sceaux à une vitesse terrifiante avant de toucher la terre.
+
+Le sol gronda et quatre géants de boue émergèrent rapidement du sol. Leurs regards étaient glacials alors qu'ils chargeaient Wang Lin, qui venait de percuter l'ombre du lion.
+
+À peine Wang Lin s'était-il écarté de l'ombre du lion que les quatre hommes de boue se ruèrent sur lui sans lui laisser le moindre répit pour récupérer.
+
+Bien que Wang Lin eût affronté bien des périls, c'était la première fois qu'il faisait face à une telle prouesse.
+
+« Quelle vitesse d'incantation... Comment ses mains peuvent-elles être aussi rapides ?! » Les pupilles de Wang Lin se contractèrent. Alors que les quatre hommes de boue approchaient, il vit Xu Decai reculer de trois pas supplémentaires. Sa main gauche s'agita pour créer près de cinq millions de sceaux. Ces derniers se transformèrent en un bâton d'encens qu'il saisit et inclina solennellement vers Wang Lin.
+
+À cette révérence, l'esprit de Wang Lin vacilla. Une force mystérieuse s'engouffra dans son esprit.
+
+Peu après, la fumée du bâton d'encens prit la forme d'une créature semblable à une baleine. Elle ouvrit sa gueule béante, prête à engloutir Wang Lin.

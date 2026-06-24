@@ -1,0 +1,121 @@
+---
+n: 1726
+title: Réformer les Essences
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1726 - Reforming Essences
+slug: reformer-les-essences
+---
+Wang Lin était épuisé sur le dos de la Bête du Néant. Si l'entièreté de la Bête du Néant avait été déployée, elle aurait été immense, mais pour l'instant, elle s'était considérablement contractée pour ne mesurer plus que 10 000 pieds de large. Néanmoins, dans sa progression, elle dégageait une pression colossale pour quiconque la contemplait.
+
+Cette pression émanait du corps de la Bête du Néant et de son regard froid et impitoyable. Cette cruauté découlait de son indifférence totale envers la vie et la mort, la réincarnation, le temps et toute forme d'existence !
+
+Il semblait que rien n'eût d'importance aux yeux de la Bête du Néant. Elle était le Dao Céleste, et tout dans le monde des grottes en émanait. Qu'il s'agisse de cultivateurs ou de bêtes féroces, ils n'étaient rien pour elle !
+
+De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête du Néant. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste !
+
+Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Astral Immortel !
+
+La Bête du Néant se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout ; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait !
+
+Tandis que Wang Lin restait assis calmement, sa main droite effleura doucement la Bête du Néant. Les scènes de sa rencontre avec l'Omniscient traversèrent son esprit.
+
+« Je ne m'attendais pas à ce que la Bête du Néant que j'ai capturée fasse partie du Dao Céleste... L'Omniscient faisait également partie du Dao Céleste. Pas étonnant qu'il ait cru au destin céleste... Le destin auquel il croyait était, en fait, lui-même. » Wang Lin regarda la Bête du Néant en contrebas d'un air profond, ému par ses pensées.
+
+« Le fragment provenant du Royaume Divin Immémorial que le Souverain Céleste aux Sept Couleurs avait obtenu servait au stockage. À l'intérieur, il a trouvé le Dao Céleste... Il semble qu'il y ait également trouvé la Perle Défiant le Ciel.
+
+C'est pourquoi cette boussole existe.
+
+Chacun recherche ce Dao Céleste. Le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan et les autres cherchent tous la troisième âme. Outre la fusion avec celle-ci, ils ont probablement tous des plans concernant le Dao Céleste... ainsi que pour obtenir le fragment du Souverain Céleste aux Sept Couleurs.
+
+Par chance, je suis devenu le maître du Dao Céleste... Désormais, je suis le maître du Dao Céleste. J'ignore ce qu'il en est sur le Continent Astral Immortel, mais dans le monde des grottes, personne ne pourra me le ravir !
+
+Ce Dao Céleste doit être complet ; il a même pu dévorer Lian Daofei autrefois. Je veux voir qui osera me provoquer et devenir le premier de mes ennemis à être dévoré par le Dao Céleste après d'innombrables années ! »
+
+Un puissant sentiment de confiance s'éleva dans le corps de Wang Lin. Il scruta l'horizon et ses yeux brillèrent intensément !
+
+Il ne déploya pas son Sens Divin ; il laissa simplement la Bête du Néant errer parmi les étoiles. Il ferma les yeux et ses mains formèrent un sceau. Après s'être réajusté, il rouvrit les yeux et mordit le bout de sa langue pour cracher du sang.
+
+Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le rythme de la Bête du Néant en contrebas. Le sang s'anima et émit une lumière éblouissante, tandis que des effluves parfumées se propageaient.
+
+« Puisque l'avatar s'est dissipé, je vais en former un autre ! Cet avatar prendra mon sang pour noyau et suivra le chemin du Grand Dao ! » murmura Wang Lin en pointant le sang du doigt.
+
+Sous ce geste, le sang s'anima avec encore plus de rapidité. Il se dilata promptement pour prendre la forme d'un être humain, bien qu'il conservât l'apparence d'une silhouette faite de sang.
+
+« Mon sang contient la puissance du Dao Ancien, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile ! » Les yeux de Wang Lin s'illuminèrent, et des étoiles apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
+
+Le processus fut extrêmement rapide. En moins du temps qu'il faut pour brûler un bâton d'encens, toute l'aura du Dao Ancien fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
+
+À mesure que la puissance du Dao Ancien s'échappait, le corps de sang brilla intensément. Lentement, la teinte rouge changea et bientôt, un avatar ressemblant trait pour trait à Wang Lin apparut !
+
+Cet avatar était tel un nouveau-né. Bien qu'il ait l'apparence d'un adulte, il n'avait pas d'âme ; ce n'était qu'un corps.
+
+« Âme, forme ! » Wang Lin pointa l'espace entre ses sourcils et une partie de son âme se détacha. Elle s'échappa par ses orifices pour pénétrer lentement dans l'avatar. Une fois ce fragment d'âme introduit, Wang Lin eut la sensation que lui et l'avatar ne faisaient plus qu'un, comme si l'eau et le sang s'étaient mêlés ; il n'y avait plus de distinction entre eux.
+
+Après cet effort, Wang Lin semblait encore plus épuisé. Il ferma lentement les yeux, comme pour sombrer dans le sommeil.
+
+Au moment même où son corps original fermait les yeux, ceux de son avatar s'ouvrirent et brillèrent d'un éclat vif. Il contempla calmement son nouvel avatar et pointa le ciel.
+
+« Essence du feu que j'ai comprise et qui fut dispersée dans le vide, reviens ! »
+
+Dès qu'il prononça ces mots, des graines de feu commencèrent à apparaître autour de la Bête du Néant. De plus en plus de graines surgissaient ; de loin, on aurait dit que le système stellaire était en flammes. Une mer de feu s'étendait à travers les étoiles !
+
+Cette mer de feu se mua en un anneau tourbillonnant autour de Wang Lin. Un feu infini convergeait depuis tout le système stellaire, tel une immense vague en perpétuel mouvement.
+
+Lorsque les flammes convergèrent vers lui, son œil gauche sembla devenir un trou noir dévorant le feu. La mer de feu se précipita dans son œil gauche.
+
+En un instant, la mer de feu disparut et la marque de l'essence du feu apparut dans l'œil gauche de Wang Lin.
+
+« Essence du tonnerre qui est entrée dans le vide, en tant que seigneur du tonnerre, je vous conjure de revenir vers moi ! » dit doucement Wang Lin avant d'agiter la main droite.
+
+D'un geste, le système stellaire trembla et d'innombrables ondulations se propagèrent dans toutes les directions. Un grondement sourd retentit au loin, s'amplifiant rapidement. Ce fracas venait de partout et, en quelques instants, il étouffa tous les autres sons.
+
+Le tonnerre assourdissant persista tandis qu'une infinité d'éclairs surgissait à l'horizon, se précipitant tous vers Wang Lin.
+
+En un instant, tout le tonnerre se condensa dans l'œil droit de Wang Lin. Des décharges jaillirent dans ses yeux, et chaque éclair provoquait des arcs électriques autour de lui. Les éclairs semblaient exulter de joie à l'idée de retrouver leur maître.
+
+Bientôt, tout le tonnerre se dissipa devant son œil droit. La marque du tonnerre éternel apparut soudainement dans son regard !
+
+Deux essences : le feu dans son œil gauche et le tonnerre dans son œil droit !
+
+« Les essences éthérées que j'ai comprises dans mon Dao de rêve. Elles contiennent les domaines et les Grands Daos que j'ai accomplis au cours de ma vie. Bien qu'ils se soient tous dissipés, je peux encore les invoquer... La première essence éthérée à revenir sera la Vie et la Mort ! »
+
+Wang Lin murmura et ouvrit les mains.
+
+« Ma main gauche est la vie, et ma main droite est la mort... Le temps passe, mais mon cœur de Dao demeure immuable. »
+
+La main gauche de Wang Lin dégagea des filaments de gaz blanc qui finirent par l'envelopper dans une douce lueur. C'était la force vitale, celle de Wang Lin, et une part de sa compréhension de la vie et de la mort acquise au cours des deux mille dernières années.
+
+Simultanément, un gaz noir enveloppa sa main droite, formant une sphère de lumière obscure. Ce gaz était imprégné de mort et de décomposition ; il semblait capable d'arracher les âmes jusqu'aux profondeurs du monde souterrain.
+
+Lorsque les auras blanche et noire apparurent, elles remontèrent le long de ses bras pour se rejoindre entre ses sourcils. Elles fusionnèrent et tournèrent selon le symbole du Yin et du Yang !
+
+L'essence de la vie et de la mort était revenue !
+
+L'aura à l'intérieur du corps de Wang Lin explosa soudainement !
+
+« La deuxième à revenir sera l'essence du Vrai et du Faux. Le vrai et le faux, le faux et le vrai, ainsi est la vie. » Wang Lin médita silencieusement, ému par le souvenir de l'Omniscient.
+
+Après avoir parlé, son corps devint immédiatement illusoire, comme s'il n'était plus réel.
+
+En particulier, ses yeux ressemblaient à des étoiles. Quiconque les fixait tombait dans un état de confusion mentale.
+
+« Je ferme les yeux et tout est faux. J'ouvre les yeux et tout est vrai », murmura Wang Lin avant de fermer les paupières. Les cieux et la terre se dissipèrent. Le monde des grottes, la troisième âme et même la Bête du Néant n'existaient plus. À cet instant, tout n'était qu'illusion pour Wang Lin.
+
+Au moment où il rouvrit les yeux, l'essence du Vrai et du Faux se rassembla.
+
+Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête du Néant dérivait lentement en dessous de lui. Elle avait quitté la Rivière des Appels pour atteindre la Mer des Nuages.
+
+À cet instant, dans la Mer des Nuages, un groupe de personnes traversait le système stellaire.
+
+Ces individus étaient menés par quatre vieillards, et ils étaient plus d'une centaine. Tandis qu'ils volaient à travers les étoiles, des ondulations résonnaient derrière eux.
+
+Ils dégageaient une aura extrêmement puissante, les quatre chefs étant les plus forts. Ils utilisaient un sort inconnu qui connectait leurs Sens Divins entre eux.
+
+Au-dessus de leurs têtes flottait une gourde géante, entièrement verte et marquée par le passage du temps. Un amas de brouillard vert à l'intérieur de la gourde semblait les guider.
+
+Les quatre vieillards s'arrêtaient après avoir volé un certain temps. Ils s'inclinaient devant la gourde et leurs Sens Divins fusionnés s'en échappaient, comme pour communiquer avec elle.
+
+Ces quatre vieillards étaient les quatre généraux du Royaume Céleste Antique !
+
+Derrière ces êtres célestes se trouvait le Vieux Fantôme Zhan, vêtu d'une robe de Daoïste. Il ne prêtait aucune attention aux célestes devant lui, et ceux-ci semblaient ignorer son existence.

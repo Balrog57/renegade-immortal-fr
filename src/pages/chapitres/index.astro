@@ -1,0 +1,92 @@
+---
+import Base from '~/layouts/Base.astro';
+import { getBooksSorted, getChaptersSorted } from '~/lib/data';
+
+const base = import.meta.env.BASE_URL;
+const [books, chapters] = await Promise.all([
+  getBooksSorted(),
+  getChaptersSorted(),
+]);
+
+const chapterCountByBook = new Map<number, number>();
+for (const c of chapters) {
+  chapterCountByBook.set(c.data.book, (chapterCountByBook.get(c.data.book) || 0) + 1);
+}
+---
+
+<Base title="Chapitres" active="chapitres">
+  <header class="page-header">
+    <h1 class="page-title">Chapitres</h1>
+    <p class="page-intro">
+      {chapters.length.toLocaleString('fr')} chapitres sur {books.length} tomes.
+    </p>
+  </header>
+
+  <div class="tome-grid">
+    {books.map(b => (
+      <a href={`${base}chapitres/tome-${b.data.book}/`} class="tome-card">
+        {b.data.cover ? (
+          <img src={b.data.cover} alt={`Tome ${b.data.book}`} class="tome-cover" loading="lazy" />
+        ) : (
+          <div class="tome-cover-fallback">{b.data.book}</div>
+        )}
+        <div class="tome-info">
+          <span class="tome-num">Tome {b.data.book}</span>
+          <span class="tome-title">{b.data.title}</span>
+          <span class="tome-meta">
+            {chapterCountByBook.get(b.data.book) || b.data.chaptersCount || '—'} chapitres
+            {b.data.rangeStart && b.data.rangeEnd ? ` · n°${b.data.rangeStart}–${b.data.rangeEnd}` : ''}
+          </span>
+        </div>
+      </a>
+    ))}
+  </div>
+</Base>
+
+<style>
+.page-header { padding: 24px 0 40px; text-align: center; }
+.page-title {
+  font-family: 'Cinzel', serif; font-size: 32px; font-weight: 600;
+  color: var(--ink-1); margin: 0 0 8px; letter-spacing: .05em;
+}
+.page-intro {
+  font-family: 'Cormorant Garamond', serif; font-size: 18px; font-style: italic;
+  color: var(--ink-3); margin: 0;
+}
+
+.tome-grid {
+  display: grid; grid-template-columns: repeat(auto-fill, minmax(260px, 1fr));
+  gap: 20px; padding-bottom: 40px;
+}
+.tome-card {
+  display: flex; gap: 16px; align-items: center;
+  padding: 16px; border: 1px solid var(--line); border-radius: var(--r-lg);
+  background: var(--bg-1); text-decoration: none;
+  transition: border-color .2s, transform .2s, background .2s;
+}
+.tome-card:hover { border-color: var(--gold-dim); transform: translateY(-2px); background: var(--bg-2); text-decoration: none; }
+.tome-cover {
+  width: 64px; height: 90px; object-fit: cover; border-radius: var(--r-md);
+  flex-shrink: 0; border: 1px solid var(--line);
+}
+.tome-cover-fallback {
+  width: 64px; height: 90px; flex-shrink: 0;
+  display: flex; align-items: center; justify-content: center;
+  font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
+  color: var(--gold-dim); background: var(--bg-3);
+  border: 1px solid var(--line); border-radius: var(--r-md);
+}
+.tome-info { display: flex; flex-direction: column; gap: 2px; min-width: 0; }
+.tome-num {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .2em;
+  text-transform: uppercase; color: var(--crimson-2);
+}
+.tome-title {
+  font-family: 'Noto Serif', serif; font-size: 15px; color: var(--ink-1);
+  font-weight: 600; line-height: 1.3;
+}
+.tome-meta {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
+  color: var(--ink-4); margin-top: 2px;
+}
+</style>

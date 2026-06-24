@@ -1,0 +1,109 @@
+---
+n: 871
+title: "L'Enfant"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 871 - Child
+slug: lenfant
+---
+Wang Lin observa le lac de tonnerre et l'esprit de la foudre qui y vagabondait. Si l'épreuve humaine présentait une certaine difficulté, l'épreuve terrestre... La perplexité dans les yeux de Wang Lin s'intensifia.
+
+Xi Zifeng se mordit la lèvre inférieure en regardant Wang Lin, puis le lac de tonnerre, tandis que l'inquiétude l'envahissait. Elle tâta sa sacoche un long moment et serra les dents. Ignorant la rougeur qui lui montait aux joues, elle s'élança dans les airs telle un papillon. Les cultivateurs environnants furent stupéfaits de la voir voler ainsi vers les participants.
+
+Elle était déjà d'une grande beauté, mais à cet instant, le visage empourpré et chargeant vers Wang Lin, elle était éblouissante. Elle baissa la tête et sortit un jade vert. Puis, d'une voix feutrée, elle dit : « Ceci... je te le donne... » Sur ces mots, elle tendit le jade à Wang Lin et s'enfuit rapidement, le visage cramoisi.
+
+En revenant, son cœur battait la chamade. Une fois de retour, elle baissa immédiatement la tête, l'esprit totalement embrumé.
+
+L'ancêtre de la famille Xi soupira intérieurement en voyant cela, une expression complexe dans le regard.
+
+« Entrez dans le lac de tonnerre ! » À cet instant, la voix du Maître Flamespark résonna entre ciel et terre. Sa voix se mua en un tonnerre grondant, provoquant un changement radical au sein du lac. L'espace ouvert au centre fut soudainement saturé d'éclairs, et la place entière se transforma en un véritable lac de foudre !
+
+Alors que des vagues de tonnerre déferlaient dans le lac, la pression qui s'en dégageait faisait frémir le cuir chevelu de la majorité des cultivateurs à la simple vue du spectacle.
+
+L'esprit de la foudre, serpentant dans les eaux de tonnerre, formait occasionnellement un corps avant de laisser échapper un rugissement.
+
+Xu Ting laissa échapper un froid reniflement et marcha vers le lac de tonnerre. Dès qu'il y posa le pied, d'innombrables éclairs bondirent entre ses pieds pour se propager instantanément sur tout son corps. Il fut aussitôt enveloppé par la foudre.
+
+Le corps de Xu Ting trembla avant qu'il ne prenne une profonde inspiration. Puis, il fit cinq pas en avant et s'assit en position du lotus.
+
+Après lui, Shengong Hu s'avança. Sa culture était liée au tonnerre et il fréquentait souvent des lieux de ce type ; ce n'était d'ailleurs pas la première fois qu'il pénétrait dans ce lac de foudre. Il entra avec un calme olympien avant de s'asseoir en position du lotus.
+
+Peu après, d'autres suivirent. Cependant, certains, dont la culture était insuffisante, virent leurs corps trembler dès l'entrée dans le lac et furent contraints de se retirer précipitamment, le visage pâle comme s'ils avaient été blessés.
+
+Wang Lin observa le jade que Xi Zifeng lui avait confié. Puis il leva les yeux vers elle ; son visage était totalement rouge, mais elle n'osait pas croiser son regard. Il soupira. D'un balayage de son Sens Divin, il comprit que ce jade pouvait parer de puissants éclairs. C'était manifestement un précieux trésor de défense personnelle.
+
+Tout en réfléchissant, il rangea le jade dans les plis de sa robe et s'avança vers le lac de tonnerre.
+
+Bien qu'elle gardât la tête baissée, Xi Zifeng vit ce que Wang Lin venait de faire. En le voyant glisser le jade dans les replis de son vêtement, son cœur s'emballa davantage.
+
+Cependant, elle ne remarqua pas que son cousin, l'élégant homme vêtu de bleu, observa Wang Lin après son entrée dans le lac. Une trace d'hostilité, très bien dissimulée, perçait dans son regard.
+
+L'expression de Wang Lin resta neutre alors qu'il pénétrait dans le lac. Dès que son pied droit toucha la surface, il sentit une puissante déferlante de tonnerre s'engouffrer en lui depuis son pied.
+
+Une sensation extrêmement agréable l'envahit aussitôt, comme s'il était chez lui. Il ne laissa toutefois rien paraître sur son visage. Tandis qu'il avançait, le tonnerre continuait de circuler autour de lui dans un grondement incessant.
+
+Après avoir trouvé un espace dégagé, Wang Lin s'assit en position du lotus.
+
+« La seconde épreuve commence maintenant ! Le tambour marquera le temps ! » Après le cri du Maître Flamespark, deux messagers arrivèrent immédiatement. Une lueur noire jaillit entre eux et un grand tambour apparut.
+
+*Dong !* Un coup de tambour profond résonna soudainement entre ciel et terre, semblant couvrir le rugissement du tonnerre. Un coup de tambour correspondait à une respiration !
+
+Près de deux cents cultivateurs étaient assis en méditation au sein du lac de tonnerre. Au premier coup de tambour, l'énergie électrique parut s'ébranler, s'élevant de trois pouces au-dessus du sol. Le tonnerre rugissait et d'innombrables éclairs zébrèrent l'espace, formant un véritable orage.
+
+Au cœur de la tempête, l'esprit de la foudre s'anima et libéra toute sa puissance, provoquant un bouleversement spectaculaire dans le lac.
+
+De vastes quantités de tonnerre s'engouffrèrent avec frénésie dans les corps des divers cultivateurs. Certains se concentrèrent pour faire face à l'assaut, tandis que d'autres sortirent des trésors pour se protéger. À cet instant, le lac de tonnerre brilla de mille feux !
+
+Xu Ting était entouré d'une brume noire qui empêchait la foudre de pénétrer son corps. Les autres cultivateurs utilisaient tous leurs propres méthodes de résistance.
+
+Wang Lin, quant à lui, restait simplement assis alors que le tonnerre sifflait autour de lui et que l'énergie s'engouffrait dans son corps pour nourrir son Âme Naissante. Cela permit aux blessures subies lors de son combat contre Russell de se résorber rapidement.
+
+C'était une sensation d'un confort absolu. Il ferma les yeux, ne daignant même pas accorder un regard aux autres.
+
+*Dong !* Le second coup retentit, et le tonnerre devint plus impétueux encore. L'esprit de la foudre poussa un rugissement et commença à brandir un fouet de tonnerre. Chaque fois qu'il frappait le corps d'un cultivateur, celui-ci en était secoué !
+
+Le tambour résonna. Le troisième coup, le quatrième... jusqu'au dixième, moment où la puissance du lac atteignit un degré alarmant. Les innombrables éclairs s'étaient mués en colonnes de trente pieds de haut, engloutissant tout sur leur passage.
+
+Immédiatement, un cultivateur du Domaine Sud devint livide et cracha du sang. Comme frappé par une force colossale, son corps fut projeté hors de la zone sous l'impact d'une masse de tonnerre. Il était gravement blessé.
+
+La brume autour de Xu Ting se fit plus dense, comme pour isoler le tonnerre. Son expression demeurait neutre tandis qu'il fixait Wang Lin. Il l'observait depuis son entrée, et le comportement de ce dernier était tout simplement trop singulier.
+
+« Ce Xu Mu n'oppose aucune résistance et n'utilise aucun trésor magique. Il reste là, assis calmement, comme s'il était en pleine culture. Le plus étrange, c'est que le puissant tonnerre qui pénètre son corps... disparaît ? » Plus Xu Ting réfléchissait, plus il était stupéfait. Il multipliait les hypothèses, mais malgré ses efforts, la véritable réponse lui échappait.
+
+Dans le ciel, l'un des messagers leva la main et frappa le tambour noir. Le onzième coup résonna soudainement dans le fracas de la foudre.
+
+Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un instant plus tard, un serpent de mille pieds de long prit forme. C'était un serpent, mais il avait l'allure d'un dragon, sculpté dans la foudre pure. Son corps entier dégageait une pression écrasante !
+
+C'était l'esprit du tonnerre !
+
+*Roar !* L'esprit de la foudre prit forme et poussa un rugissement fulgurant. Ce cri résonna et se mua en un tonnerre ancestral qui semblait remonter aux origines du monde. Il secoua les cieux et l'esprit de tous les cultivateurs !
+
+Même la brume noire entourant Xu Ting faillit s'effondrer. Ses yeux trahirent une pointe de choc, tandis qu'une brume plus épaisse s'échappait de ses sourcils.
+
+Si Xu Ting était ainsi affecté, il n'en était rien pour les autres. Sous ce rugissement qui ébranlait le firmament, plus de dix cultivateurs crachèrent du sang et furent expulsés.
+
+Alors que résonnaient les douzième, treizième et quatorzième coups, le cri de l'esprit devint encore plus intense. Enfin, au quinzième coup, l'esprit de la foudre chargea. Il ouvrit la gueule et cracha une masse de tonnerre phénoménale.
+
+Le fracas fut tel que le ciel changea de couleur. Les visages des cultivateurs environnants se décomposèrent. Bien qu'ils fussent à l'extérieur, ils ressentaient encore la puissance irrésistible de cette force céleste !
+
+Cette pression s'était accumulée jusqu'à son paroxysme avant d'être expulsée par l'esprit ; cette fois, des dizaines de cultivateurs crachèrent du sang et furent projetés au loin, la terreur brillant dans leurs yeux.
+
+Shengong Hu lutta avec acharnement. Sa limite, autrefois, était de quinze respirations. Mais aujourd'hui, une conviction profonde lui permettait de tenir bon.
+
+Zhan Konglie prit une grande inspiration et serra les dents pour résister à la foudre.
+
+Le cultivateur aux six doigts et le garçon à la grosse tête subissaient le même sort. Cependant, ils n'utilisaient manifestement pas toute leur puissance et paraissaient plus détendus ; toutefois, leur calme était dérisoire face à celui de Wang Lin.
+
+Assis là, Wang Lin laissait d'immenses quantités de tonnerre pénétrer son corps pour nourrir son Âme Naissante. Ses blessures antérieures étaient totalement guéries. Non seulement cela, mais les séquelles cachées laissées par Yao Bingyun s'étaient également évanouies !
+
+Quant au rugissement de l'esprit, chargé de toute la puissance de la foudre, lorsqu'il atteignit les oreilles de Wang Lin, il lui fit l'effet d'un simple enfant qui poussait un cri. Bien que cela fût étrange, c'était précisément ce qu'il ressentait.
+
+Bien que cet être soit d'une puissance terrifiante aux yeux des autres, pour Wang Lin, ce n'était qu'un enfant. Plus précisément, un enfant en pleine évolution vers un dragon de tonnerre !
+
+L'expression de Wang Lin resta impassible, ignorant tout ce qui l'entourait. Il ferma les yeux et se concentra sur l'absorption de la foudre, renforçant ainsi progressivement son Âme Naissante de dragon de tonnerre antique.
+
+Après les quinze coups de tambour, la restriction pesant sur l'esprit de la foudre fut levée. Il poussa un rugissement et son corps balaya la zone, déclenchant des ondes de choc électriques. Plus de dix cultivateurs furent frappés ; leurs visages pâlirent avant qu'ils ne tombent inconscients.
+
+L'esprit de la foudre sembla ivre de joie en poussant un cri et commença une nouvelle déferlante. Cette fois, Wang Lin fut lui aussi emporté par le mouvement !
+
+Au moment où l'esprit de la foudre passa sur lui, Wang Lin ouvrit soudainement les yeux et le fixa intensément. Son regard était celui d'un adulte observant un enfant ignorant qui s'amusait sans savoir !

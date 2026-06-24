@@ -1,0 +1,141 @@
+---
+n: 1531
+title: "L'Arc est Ici"
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: Chapter 1531 - The Bow is Here
+slug: larc-est-ici
+---
+Autrefois, cela aurait immédiatement provoqué l'apparition de l'esprit de la formation. Cependant, la flèche libérait une volonté démente. Cette pression folle semblait faire reculer les esprits de la formation ! C'était comme s'ils craignaient d'apparaître !
+
+Alors que la Formation de Scellement du Royaume tremblait, l'écart de 500 pieds sembla cesser de se réduire, comme figé dans le temps. Cela permit à la flèche blanche de tirer droit sur Wang Lin !
+
+Wang Lin était dans un état de concentration extrême et semblait avoir oublié tout ce qui l'entourait, excepté la flèche blanche. Tandis qu'il reculait, son corps se dissipait rapidement.
+
+Une douleur intense irradia entre ses sourcils ; c'était comme si une paire de mains invisibles cherchait à lui déchirer le crâne. La flèche blanche hurla en traversant la Formation de Scellement du Royaume et se trouvait à moins de 10 000 pieds de Wang Lin !
+
+Le hurlement de la flèche était d'une aiguité extrême. L'intention meurtrière contenue dans ce son fit pâlir les cultivateurs du Royaume Intérieur.
+
+La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de l'Ordre Ancestral à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui !
+
+Cette flèche avait été décochée pour tuer !
+
+En un instant, la flèche se rapprocha et percuta la tête de l'Ordre Ancestral. Tandis que le grondement tonitruant résonnait, même la tête de l'Ordre Ancestral de Wang Lin ne put résister longtemps. La tête fut transpercée et la flèche était sur le point de briser la barrière pour atteindre Wang Lin !
+
+Le corps de Wang Lin ne s'était pas encore complètement intégré au monde. Alors que la flèche blanche approchait, le sentiment d'une crise de vie ou de mort s'intensifia. Wang Lin afficha un regard déterminé et agita la main !
+
+Les mains de son corps de Dieu Ancestral plongèrent dans la tête de l'Ordre Ancestral pour saisir la flèche fantôme blanche !
+
+Au moment où ses mains touchèrent la flèche, Wang Lin sentit une force puissante pénétrer son corps. Même son corps de Dieu Ancestral à sept étoiles peinait à contenir cette puissance. Son corps trembla et il cracha du sang. Il fut contraint de rompre sa semi-fusion avec le monde pour reculer.
+
+Chacun de ses pas couvrait plusieurs dizaines de pieds dans un grondement assourdissant. Wang Lin, l'expression féroce, s'accrocha à la flèche et recula de plus de 10 000 pieds !
+
+Le sang continuait de couler durant cette retraite de 10 000 pieds. Déjà blessé, il voyait son état s'aggraver.
+
+Des grondements tonitruants retentirent une fois de plus. Wang Lin pénétra dans la zone où les cultivateurs du Royaume Extérieur étaient scellés par les Feuilles Ancestrales. Dès qu'il y entra, une épaisse brume noire jaillit de son dos. Aussitôt qu'un cultivateur du Royaume Extérieur touchait cette brume, son corps se flétrissait, toute sa force vitale ayant été drainée par Wang Lin.
+
+Tout cela se produisit en un éclair. Alors que Wang Lin résistait à la flèche par ce moyen, l'homme en blanc situé à l'extérieur de la Formation de Scellement du Royaume prit un air sombre et banda à nouveau l'arc !
+
+« Cela devrait être terminé ! » En prononçant ces quatre mots, le visage du jeune homme vieillit brusquement, passant de la jeunesse à la vieillesse. Sa main, qui avait tiré l'arc jusqu'à la pleine lune, se relâcha et une seconde flèche blanche jaillit !
+
+Un hurlement strident chargea dans la faille de la Formation de Scellement du Royaume, suivant la flèche en direction de Wang Lin !
+
+Wang Lin était déjà désavantagé face à une seule flèche. Deux flèches signifiaient la mort pour lui !
+
+Les pupilles de Wang Lin se rétractèrent. Le feu dans son œil gauche tourbillonnait follement et le tonnerre dans son œil droit vacillait frénétiquement. Les essences de son corps éclatèrent soudainement. Il était trop tard pour réfléchir ; il savait seulement que s'il ne détruisait pas cette flèche avant l'arrivée de la seconde, il mourrait. Une aura délirante surgit soudainement dans le Système Stellaire de la Mer des Nuages et se précipita. À mesure que l'aura approchait, l'ombre d'un homme d'âge moyen aux pieds nus apparut devant Wang Lin !
+
+Wang Lin connaissait cet homme. C'était la puissante bête féroce scellée par le dernier Seigneur du Royaume Scellé, Tai Aluo !
+
+Pour une raison inconnue, il avait choisi de faire face à la seconde flèche, offrant ainsi un temps précieux à Wang Lin pour espérer survivre !
+
+Dès son apparition, il poussa un rugissement qui fit trembler les cieux. Ses mains formèrent un sceau et il s'élança vers la seconde flèche.
+
+Tandis qu'il composait ses sceaux, de fines écailles commencèrent à apparaître autour de Tai Aluo. Ces écailles étaient noires et minces, recouvrant bientôt tout son corps.
+
+« Je ne peux vous retarder que de trois respirations ! » Un fracas assourdissant retentit lorsque ses mains entrèrent en collision avec la flèche. Une force de choc émana du projectile et pénétra son corps. Le sang coula du coin de sa bouche et ses bras commencèrent à se déformer, comme s'il ne pouvait supporter l'impact et allait être transpercé !
+
+Il poussa un rugissement et, alors que son corps tremblait, les écailles de sa peau s'envolèrent pour former soudainement un bouclier !
+
+Trois étranges écailles dorées trônaient au centre du bouclier. Ses mains, qui retenaient la flèche, se transformèrent en une masse sanglante. Puis la seconde flèche jaillit et percuta le bouclier d'écailles !
+
+Un grondement céleste retentit. Le bouclier trembla et les écailles sur les bords s'effondrèrent. En un éclair, seules les trois écailles dorées subsistèrent.
+
+Cela ne dura qu'une respiration !
+
+Ces trois écailles dorées cédèrent en deux respirations, et Tai Aluo recula avec un sourire amer. La seconde flèche n'étant pas dirigée contre lui, il put se retirer lorsqu'il fut dépassé.
+
+Tai Aluo avait tenu sa promesse et retardé le destin de trois respirations. Ces trois respirations étaient d'une valeur inestimable pour Wang Lin. Lors de la première respiration, Wang Lin mordit le haut de sa langue et cracha un brouillard de sang devant lui.
+
+Lors de la deuxième, le feu destructeur de l'Ombrelle Brûlant le Royaume convergea vers Wang Lin de toutes parts. Le feu l'enveloppa et fusionna avec le sang qu'il avait projeté. Cela créa une force dévastatrice qui fit face à la flèche qu'il serrait dans sa main !
+
+Lors de la troisième respiration, la brume noire derrière Wang Lin se répandit follement vers les cultivateurs du Royaume Extérieur. Au terme de ces trois respirations, la flèche percuta le feu destructeur fusionné avec le sang ancestral de Wang Lin. La flèche se désintégra strate après strate, mais l'impact resta terrifiant.
+
+Après sa désintégration, la flèche ne conservait que 20 % de sa puissance originelle. Elle perça le barrage formé par la main de Wang Lin et fonça vers l'espace entre ses sourcils. Durant ce processus, elle se désintégra encore davantage jusqu'à n'être plus qu'à trois pouces du front de Wang Lin, ne représentant que 10 % de sa taille initiale.
+
+Un fracas tonitruant retentit lorsque le minuscule résidu de la flèche heurta l'entre-sourcils de Wang Lin.
+
+Des cris déchirants résonnèrent à travers le monde. Ce n'était pas celui de Wang Lin, mais celui des cultivateurs du Royaume Extérieur derrière lui ! Tous ceux entourés par la brume noire se flétrirent, devenant des cadavres desséchés !
+
+La flèche brisée s'effondra et le corps de Wang Lin fut trempé de sueur. Cependant, le danger n'était pas écarté : la seconde flèche approchait !
+
+Il était impossible de l'esquiver. Wang Lin prit un air délirant. Il poussa un rugissement et pointa sa main droite vers le ciel. À ce moment critique, il ne pouvait plus se soucier des conséquences. Sa main s'étendit et l'ombrelle vola vers lui en se rétractant. Wang Lin saisit alors la poignée de l'ombrelle !
+
+En la serrant, la force vitale de Wang Lin afflua massivement dans l'ombrelle antique. Son corps de Dieu Ancestral fut gorgé de vie. Dans ce moment de péril, il n'avait pas le temps de réfléchir. Son corps de Dieu Ancestral montra immédiatement des signes de flétrissement !
+
+L'ombrelle était initialement ouverte à 10 %. À cet instant, alors que Wang Lin y injectait sa vitalité comme un fou, le feu monstrueux à l'intérieur rugit. Lorsque la seconde flèche fut à moins de 100 pieds, Wang Lin poussa un cri et ouvrit l'ombrelle sans ménagement !
+
+20 % !
+
+À cet instant, l'ombrelle antique fut ouverte à 20 % par cette méthode suicidaire !
+
+Le feu destructeur capable de consumer l'espace lui-même jaillit de l'ombrelle. L'espace autour de Wang Lin s'effondra devant cette mer de flammes comme s'il était en cours de raffinage, révélant le vide en dessous !
+
+Lorsque la seconde flèche atteignit sa cible, elle percuta l'ombrelle ouverte à 20 %. Des grondements assourdissants résonnèrent et la flèche trembla comme si elle allait fondre. Cependant, une force provenant de l'arc fit que le projectile transperça la mer de feu et lutta pour atteindre Wang Lin !
+
+Tout cela se produisit en un instant. Un cultivateur peut franchir 100 pieds en un battement de cil, alors imaginez la flèche. Le corps de Wang Lin était déjà flétri, mais à cet instant, il injecta encore plus de vitalité dans l'ombrelle. Il ressemblait à un ancien Dieu Ancestral en fin de vie ; son puissant corps n'était plus qu'une carcasse !
+
+L'Ombrelle Brûlant le Royaume absorba davantage de vitalité et s'ouvrit encore davantage tandis que Wang Lin laissait échapper un rugissement de choc. Bien qu'elle n'ait pas atteint les 30 %, elle en était infiniment proche !
+
+En conséquence, le feu qui en jaillit devint plus terrifiant encore. La seconde flèche se désintégra à 10 pieds de Wang Lin ! Cependant, dans sa chute, la puissance de l'arc jaillit et percuta la poitrine de Wang Lin.
+
+Un fracas assourdissant retentit. Wang Lin cracha du sang et une douleur déchirante lui lacéra la poitrine. Cette souffrance intense le força à reculer précipitamment en toussant du sang !
+
+Pourtant, en reculant, ses yeux s'illuminèrent. Cela faisait longtemps qu'il n'avait pas subi une telle blessure, et celle-ci fit bondir son intention meurtrière. Il agita la main en reculant et une lumière de sang monstrueuse apparut : l'Épée de Sang surgit. Elle pouvait tout détruire, mais seulement les corps matériels. Face à cette flèche blanche faite de vitalité, elle n'était d'aucun secours.
+
+L'épée de sang vola vers la faille de la Formation de Scellement du Royaume qui ne faisait plus que 200 pieds de large. Mais à cet instant, Wang Lin la saisit, réprima son intention meurtrière et dissipa cette impulsion.
+
+« Quelque chose ne va pas ! »
+
+« J'ai échoué à tuer cet homme et à le faire sortir... »
+
+Le cultivateur en blanc, devenu un vieillard, était plongé dans l'incrédulité et l'amertume. Il était stupéfait de n'avoir pu tuer Wang Lin après deux flèches. À ce stade, il avait perdu trop de vitalité et ne put que soupirer intérieurement avec regret. Il lança un regard froid à Wang Lin à travers la Formation de Scellement du Royaume avant de se détourner.
+
+Cependant, alors qu'il prenait congé, une énergie démoniaque jaillit du Système Stellaire de la Mer des Nuages. Cette énergie était d'une rapidité extrême, égalant celle de la flèche précédente !
+
+Alors que l'énergie se propageait, le démon ancien du Secte Fantôme apparut sous forme de fantôme près de la Formation de Scellement du Royaume. Les neuf étoiles dans son œil gauche tourbillonnaient. Ses yeux brillaient d'avidité alors qu'il fixait l'arc entre les mains du vieillard. Toutefois, son corps n'était qu'une projection ; son véritable corps n'était pas là. Bien qu'il possédât neuf étoiles dans l'œil, ce n'était qu'une simple illusion.
+
+Souriant, il se rapprocha du cultivateur en blanc et le griffa sans pitié !
+
+Il attendait cette opportunité depuis un certain temps. En vérité, il était déjà là lorsque le cultivateur en blanc était apparu, mais la puissance de l'arc l'effrayait ; il avait donc patienté jusqu'à ce que le vieil homme soit sur le départ.
+
+Alors que le démon ancien à 9 étoiles s'approchait du cultivateur en blanc, celui-ci se retourna soudainement avec un sourire qui n'en était pas un.
+
+« Le gros poisson ne vient pas, mais un petit poisson arrive ! »
+
+Une pression invisible se propagea depuis le Système Stellaire Antique. Elle se mua en une empreinte de paume invisible qui pressa silencieusement vers le bas.
+
+L'expression de l'avatar du démon ancien changea et l'avidité quitta ses yeux. Il poussa un cri et recula anxieusement pour esquiver la paume. Cependant, il fut trop lent et se fit saisir avant de pouvoir regagner la Formation de Scellement du Royaume.
+
+La paume serra impitoyablement, et l'avatar du démon ancien s'effondra en une masse d'énergie démoniaque. La paume absorba toute cette énergie puis disparut.
+
+« Le disciple principal du Souverain, Feng Yi, est venu sur ordre de mon maître pour offrir cet arc aux cultivateurs du Royaume Intérieur ! »
+
+« L'arc est là. Les deux flèches servaient à démontrer sa puissance. Si quelqu'un se sent capable, qu'il tente de s'en emparer ! » Le cultivateur en blanc joignit les mains et lâcha l'arc. Celui-ci resta en lévitation devant la faille de la Formation de Scellement du Royaume.
+
+Une douce lumière émanait de l'arc, dégageant une attraction capable de rendre fou !
+
+« Le Maître a ordonné d'accorder au Royaume Intérieur trois chances de saisir cet arc. Pour chaque tentative, vous devrez sacrifier 30 % de nos cultivateurs du Royaume Extérieur ! Le voulez-vous ou non ? »
+
+Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Ténèbres sa bête d'essence vitale, l'ouverture de l'ombrelle aurait consommé 90 % de sa force vitale. Cependant, même avec la Bête des Ténèbres, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
+
+« Que cherche à obtenir le Souverain... Il semble presque effrayé... Il veut utiliser cet arc pour attirer quelqu'un... »

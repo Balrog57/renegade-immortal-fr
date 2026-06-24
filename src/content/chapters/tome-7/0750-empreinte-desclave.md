@@ -1,0 +1,95 @@
+---
+n: 750
+title: "Empreinte d'esclave"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 750 - Slave Imprint
+slug: empreinte-desclave
+---
+La silhouette debout au sommet de l'épée s'élança vers les cieux. Une brise légère souffla sur lui, faisant trembler son corps, avant qu'il ne s'effondre soudainement pour retomber au sol.
+
+L'épée sembla pousser un cri de douleur en chutant du ciel et en se plantant au sommet de la montagne. Une onde de choc se propagea, et un pan entier de la montagne s'effondra.
+
+Une multitude de débris rocheux s'accumula autour de l'arme et, en un clin d'œil, l'épée se mua en une statue de pierre. À ses côtés, la statue de son propriétaire apparut également.
+
+La silhouette du serviteur se forma lentement au sommet de l'épée à mesure que les pierres brisées s'assemblaient. Bien que ces statues de pierre fussent d'aspect très brut, elles devinrent plus et plus distinctes avec le temps, comme si elles gagnaient en esprit.
+
+Le sceau émanant de la statue de pierre occupait l'esprit de Wang Lin. Une lumière puissante jaillit de ses yeux ; c'était comme si la statue prenait vie et que ses yeux de pierre commençaient à manifester une forme d'intelligence.
+
+« Descendants porteurs de mon sang, libérez la restriction et laissez-moi m'éveiller... Si vous n'avez pas assez de puissance, alors souvenez-vous de ceci pour les générations futures... »
+
+À l'instant même où cette phrase apparut, l'empreinte qui envahissait l'esprit de Wang Lin tenta de prendre racine et de se graver en lui. Heureusement, la douleur intense qui brûlait son corps stimula ses sens et le tira de sa torpeur. Il recula immédiatement de quelques pas et ferma les yeux pour reprendre ses esprits.
+
+Simultanément, la puissance qui consumait son corps envahit tout son être et dispersa l'empreinte dans son esprit.
+
+Dès qu'il retrouva la lucidité, Wang Lin ouvrit les yeux, le regard empreint d'effroi. Il prit une profonde inspiration et recula de plusieurs pas supplémentaires. Cette statue de pierre était bien trop étrange, mais grâce à ses mille ans de culture, il fut capable de formuler quelques hypothèses.
+
+Le sceau de la statue était manifestement un sort céleste, une sorte d'héritage. Cependant, ce qu'il transmettait n'était pas de la puissance, mais une empreinte d'esclave destinée à perdurer sur des générations !
+
+Pourtant, aucun sort au monde ne pouvait échapper au passage du temps. Ce sort céleste avait peut-être été extrêmement puissant autrefois, mais avec les âges, il s'était affaibli. Même ainsi, si le corps de Wang Lin n'avait pas brûlé, il lui aurait été difficile de s'éveiller pleinement. Cependant, ce qui déconcertait Wang Lin était que l'effondrement de l'empreinte ne devait rien à la force ardente ; bien que celle-ci ait aidé à provoquer sa chute, la source de l'effondrement résidait dans l'empreinte elle-même.
+
+Li Yuan regarda la statue de pierre et murmura doucement : « L'avez-vous ressentie... ? »
+
+« Frère Xu peut être rassuré, cette empreinte ne vous asservira pas et se dissipera... car elle est déjà imprimée sur quelqu'un d'autre. Mes ancêtres sont venus ici il y a bien longtemps et ont brisé la restriction par leurs propres moyens pour atteindre le sommet de cette montagne. Dès lors, ils sont devenus les esclaves de ce céleste... Et les générations suivantes de mes ancêtres ont également porté cette empreinte d'esclave... » Li Yuan regardait la statue ; c'était comme s'il marmonnait, tout en s'adressant simultanément à Wang Lin.
+
+Li Yuan reprit d'une voix feutrée : « La statue du céleste ne peut être brisée... » Il leva sa main droite et pressa la statue. L'énergie spirituelle céleste de son corps jaillit, et d'innombrables fissures apparurent sur la pierre, rampant sur la statue comme des centipèdes.
+
+En un instant, la statue de pierre s'effondra en une multitude de fragments. Cependant, au moment même de sa chute, ces débris se reformèrent et la statue retrouva son aspect originel en un éclair.
+
+« Frère Xu, vous avez vu... » Li Yuan se retourna pour regarder Wang Lin.
+
+L'expression de Wang Lin était grave alors qu'il hochait la tête.
+
+Li Yuan poussa un soupir amer et dit lentement : « Il y a fort longtemps, ma famille Li était célèbre dans le système stellaire Allheaven comme l'une des six anciennes familles de culture. Notre clan cultivait le Dao des restrictions. À chaque génération, certains réussissaient à franchir la première étape pour atteindre la seconde.
+
+À cette époque, la famille Li était au zénith !
+
+Cependant, après que les ancêtres de ma famille ont pénétré en ce lieu, plus aucune génération future n'a pu franchir la première étape de culture. Le sommet du stade tardif de l'Ascendant était devenu notre limite... C'était comme si le potentiel des membres de la famille était lentement aspiré dès leur naissance...
+
+De plus, même nos espérances de vie ont commencé à décliner. À royaume de culture égal, les membres de ma famille Li n'ont qu'une longévité correspondant à 30 % de celle des autres... Tout cela est dû à l'empreinte d'esclave ! » Li Yuan se retourna soudainement et fixa la statue avec une haine monstrueuse. Cette rage fut immédiatement remplacée par la mélancolie, et le visage de Li Yuan se crispa dans un combat intérieur.
+
+Les yeux de Wang Lin restaient calmes. Il se tenait en retrait, réfléchissant en silence.
+
+Peu de temps après, il sembla que le corps de Li Yuan avait été exposé à une pluie battante, tant ses vêtements étaient trempés de sueur. Il parut soudainement avoir vieilli de plusieurs décennies. Ses mains tracèrent de nombreuses marques qu'il plaça entre ses sourcils. Chaque marque était composée d'innombrables restrictions ; à mesure qu'elles s'imprimaient sur son front, ses yeux retrouvèrent lentement leur clarté.
+
+Li Yuan expira bruyamment et dit amèrement : « Frère Xu, quand mes émotions s'emballent, il devient difficile de contrôler l'empreinte d'esclave.
+
+Au fil des âges, c'est à cause de cette empreinte que la famille Li a progressivement décliné. Les membres du clan sont morts les uns après les autres, et leur culture est restée bloquée à la première étape. Nous avons lentement perdu notre gloire passée...
+
+Jusqu'à ce qu'il y ait des dizaines de milliers d'années, ma famille Li ait vu naître un génie incomparable ; il possédait un talent bien supérieur à celui de tous nos ancêtres. Il avait une compréhension terrifiante des restrictions. S'il était né avant que la famille Li ne soit marquée par l'empreinte, il serait devenu l'être le plus puissant de notre lignée !
+
+Bien que la culture de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il sacrifia sa propre longévité pour quitter le système stellaire Allheaven. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
+
+Dans le système stellaire Alliance, il échangea ses connaissances contre un parchemin appartenant à un puissant cultivateur. Dans le système stellaire Cloud Dust, sous le Royaume Céleste du Vent, il troqua les économies de la famille contre une boussole.
+
+Avant que sa vie ne s'éteigne, il retourna dans le système Allheaven auprès des siens. La moitié des membres restants de la famille Li offrit volontairement leur vie, utilisant leurs âmes pour imiter l'âme du céleste afin de raffiner une épée de fer !
+
+Il utilisa cette épée pour rassembler les âmes, les condensa avec la boussole, puis les scella grâce au parchemin. Alors que la fin de la vie de cet ancêtre approchait, le Royaume Céleste du Tonnerre s'ouvrit. Il emporta ces trois trésors, ainsi que tous les espoirs de la famille Li, dans le Royaume Céleste du Tonnerre.
+
+Hélas, plus aucune nouvelle de l'ancêtre ne parvint. Dès lors, ma famille sombra dans le désespoir et déclinâ encore davantage. Les membres moururent les uns après les autres. L'empreinte d'esclave était comme une malédiction qui persistait cycle après cycle de réincarnation, et ma famille Li ne put jamais s'en libérer... À ce jour, en me comptant, il ne reste plus que trois membres dans la lignée Li... »
+
+La voix de Li Yuan était empreinte d'une immense tristesse. Il se retourna brusquement et ajouta d'un ton sombre : « Ce n'est qu'il y a mille ans que mon père découvrit par hasard l'épée de fer sur une planète de culture isolée ! Si cela n'avait été que cela, ce ne serait pas grand-chose. Après tout, tant de temps s'était écoulé que nous ne pouvions affirmer qu'elle appartenait à notre ancêtre.
+
+Mais cette épée de fer fut raffinée avec la moitié des âmes de ma famille. Mon père put déceler d'un seul regard la colère et le ressentiment de nos morts. »
+
+La main droite de Li Yuan s'étira et, après un éclat de lumière, un vortex apparut. Tandis que le tourbillon tournait, Ge Hong surgit avec une expression terrifiée. À son horreur, son corps fut arraché du vortex et projeté au pied de la statue.
+
+« La famille qui possédait l'épée de fer portait le nom de Ge ! » Les yeux de Li Yuan devinrent venimeux, saturés de haine.
+
+« Si c'était autrefois, quand la famille Li était encore puissante, anéantir une lignée comme les Ge n'aurait été qu'un jeu d'enfant. Mais aujourd'hui, la culture de ma famille est bloquée au sommet du stade tardif de l'Ascendant et, malgré notre maîtrise des restrictions, nous ne pouvons vaincre les Ge qui comptent deux cultivateurs de la seconde étape.
+
+Il y a quelques années, je me suis infiltré sous une fausse identité au sein de la famille Ge. J'ai alors tout découvert... » Li Yuan leva les yeux vers le ciel avec amertume.
+
+« La famille Ge connaissait déjà mon identité depuis longtemps... Pourtant, ils n'ont rien dit sur le passé et m'ont laissé partir vers le Royaume Céleste du Tonnerre avec Ge Hong et les trois trésors. Même s'ils sont restés silencieux, avec mon intelligence, j'aurais pu deviner la vérité ! » Les yeux de Li Yuan devinrent cruels alors qu'il fixait Ge Hong et reprit lentement : « Aujourd'hui, je suis venu accomplir les vœux de mon ancêtre, mais avant cela, j'ai besoin de ton sang pour apaiser des dizaines de milliers d'années de désespoir endurés par mes aïeux ! »
+
+Sur ces mots, la main droite de Li Yuan s'élança et saisit immédiatement Ge Hong. Il lui agrippa le front ; les yeux de la jeune femme étaient remplis de désespoir. Elle voulut dire quelque chose, mais resta muette.
+
+Wang Lin fronça les sourcils et dit calmement : « Cher compagnon de culture Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici ? »
+
+Li Yuan se tourna vers Wang Lin et répondit avec calme : « J'ai observé le combat du frère Xu contre ce cultivateur de l'Illusoire Yin grâce à mes restrictions. L'un des sorts du frère Xu est extrêmement précieux pour moi. Soyez sans crainte, je ne vous demanderai pas votre aide gratuitement. Une fois cette affaire conclue, je vous offrirai la Restriction des 18 Prunes dans son intégralité, ainsi que la Restriction d'Annihilation de ma famille en compensation ! Pour l'instant, je demande au frère Xu de ne pas s'impatienter, car je dois d'abord offrir un sacrifice aux âmes de mes ancêtres ! »
+
+Les yeux de Li Yuan brillaient d'une haine profonde alors que l'énergie spirituelle céleste jaillissait de son corps pour s'engouffrer en Ge Hong telle une dragon déchaîné. La femme afficha une expression amère, mais ses yeux restaient d'une clarté absolue. Elle s'efforça de lancer un dernier regard vers la statue et, après l'avoir contemplée, elle comprit soudainement quelque chose. Elle ouvrit la bouche pour parler, mais n'en eut jamais l'occasion.
+
+Son corps explosa en une brume de sang qui recouvrit la statue de pierre. Son âme originelle fut absorbée par la statue et disparut à jamais.
+
+Li Yuan resta pensif, regardant sa main avec une expression confuse. Après un long moment, il laissa échapper un soupir et dit d'une voix empreinte d'antiquité : « Ancêtre, ton descendant, Li Yuan, achèvera ce que tu as commencé... »

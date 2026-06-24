@@ -1,0 +1,109 @@
+---
+n: 183
+title: Le Changement Soudain
+book: 3
+bookTitle: Famous in the Sea of Devils
+en: Chapter 183 - The Sudden Change
+slug: le-changement-soudain
+---
+La troisième épreuve n'était pas le véritable Nirvana, mais une déchirure spatiale. C'était simplement l'espace au sein de cette déchirure qui était immense.
+
+Wang Lin progressait lentement à travers la troisième épreuve. À mesure qu'il avançait, il tendait la main vers l'espace apparemment vide qui l'entourait, et chaque mouvement lui permettait de capturer une nouvelle âme errante à dévorer.
+
+Cela faisait longtemps que Wang Lin n'avait pas ressenti la sensation de dévorer des âmes. Il estimait que des dizaines d'années s'étaient écoulées depuis qu'il avait quitté le champ de bataille étranger. Cependant, sous l'influence du pouvoir des lois de ce monde, il se souvenait encore de son passage sur le champ de bataille comme si c'était hier.
+
+Xu Ligou et le second démon suivaient Wang Lin, alarmés et terrifiés à chaque instant. Ils n'osaient même pas laisser échapper un souffle en voyant des ancêtres, bien plus puissants qu'eux, se faire dévorer sans pouvoir offrir la moindre résistance. Ils se sentaient d'une impuissance totale.
+
+Bien que l'âme immense de Wang Lin ait été compressée autrefois pour obtenir une infime parcelle de connaissance du Royaume Ji, sa capacité à dévorer les âmes était restée intacte ; par conséquent, il était devenu un maître des âmes.
+
+Tout en marchant, Wang Lin déployait son Sens Divin dans toutes les directions. Puisque ce royaume ressemblait au Nirvana et contenait des âmes errantes, il devait nécessairement contenir des dévoreurs d'âmes. Wang Lin ne savait pas si les dévoreurs d'âmes pouvaient se dévorer entre eux. À moins que ce ne soit l'ultime recours, ils n'attaquaient généralement pas leurs semblables, préférant résoudre leurs problèmes de manière symbiotique.
+
+Après avoir volé un long moment, Wang Lin avait dévoré de nombreuses âmes, mais aucun dévoreur d'âmes ne l'avait encore contacté. Il réfléchit un instant, puis leva les deux mains ; les rochers flottants à proximité commencèrent alors à converger vers lui.
+
+Bientôt, les pierres s'entrechoquèrent pour former une vaste montagne rocheuse. Wang Lin sauta au sommet de la montagne, puis d'un revers de la main droite, il fit jaillir une flamme bleue. Ses yeux vacillèrent. Il posa sa main droite sur la montagne et la flamme bleue fusionna avec la pierre. La montagne, qui présentait de larges fissures entre les rochers, fut rapidement enveloppée d'une lumière bleue émettant un air glacial. Toutes les brèches furent scellées par la glace, soudant l'ensemble de manière hermétique.
+
+Wang Lin retira sa main et la flamme bleue fut réabsorbée dans son corps. Il prit une profonde inspiration. Ses Yeux de Conscience Divine clignotèrent continuellement tandis que sa main droite s'activait avec rapidité. Peu après, un cercle illusoire apparut, et il le projeta vers la montagne qu'il venait de créer.
+
+Lorsque le cercle illusoire toucha la structure, l'ensemble de la montagne brilla intensément avant de reprendre rapidement son aspect normal. Wang Lin prit une autre grande inspiration. Sa main droite bougea à nouveau et des cercles illusoires apparurent un à un devant lui, fusionnant avec la montagne. Bientôt, celle-ci se transforma en une version miniature de la montagne des restrictions.
+
+Wang Lin manqua de basculer lors d'un petit pas. Il commença lentement à pénétrer dans la montagne jusqu'à ce qu'il atteigne le centre. Là, il forma un autre cercle illusoire et le pressa contre la paroi de pierre. Toute la montagne trembla et commença à rétrécir à une vitesse visible à l'œil nu, jusqu'à atteindre la taille des autres rochers flottants. Quiconque la regardait désormais ne pourrait la distinguer des pierres environnantes.
+
+Une fois son corps fortifié à l'intérieur de la montagne, Wang Lin laissa une petite partie de son âme dans son corps physique en utilisant sa Conscience Divine du Royaume Ji, tandis que le reste de son âme quittait son enveloppe. Cette part d'âme forma immédiatement un corps illusoire.
+
+Désormais libérée de son corps, l'âme de Wang Lin n'était plus entravée par sa forme physique. Son Sens Divin se propagea dans toutes les directions. De loin, on aurait pu voir des vagues successives du Sens Divin de Wang Lin s'étendre, faisant surgir des âmes errantes du néant, leurs visages pâlis par la peur.
+
+Peu après, toutes les âmes errantes reçurent leurs ordres. À mesure que le Sens Divin de Wang Lin s'étendait, d'autres âmes sentirent sa présence ; leurs visages se décomposèrent et elles commencèrent à se disperser. Immédiatement après avoir quitté son corps, l'âme de Wang Lin retrouva sa forme de dévoreur d'âmes. Elle balaya rapidement le vide, et chaque âme errante qu'elle croisait la saluait avec respect.
+
+Graduellement, Wang Lin sentit la présence d'une autre âme extrêmement vaste. C'était un autre dévoreur d'âmes, mais celui-ci se trouvait dans un état étrange, comme s'il dormait. La grande âme ne répondit aucunement au Sens Divin de Wang Lin. Ce dernier hésita un instant, puis ignora ce dévoreur pour continuer à étendre son propre sens divin afin de soumettre davantage d'âmes errantes.
+
+À ce moment-là, Duanmu était assis sur un autre rocher quelque part dans la troisième épreuve, l'air amer. À ses côtés se tenait Wang Qingyue, au visage impassible. Duanmu et Wang Qingyue avaient traversé ensemble le tunnel du néant pour atteindre la terre dorée de la première épreuve. Lors de cette première étape, ils s'étaient appuyés sur la Technique d'Évasion des Cinq Éléments de Wang Qingyue, ce qui leur avait permis de franchir l'épreuve sereinement et de progresser vers la montagne des restrictions.
+
+Le fait que Duanmu ait pu franchir la montagne des restrictions aurait surpris tous ceux qui le connaissaient. Il y a mille ans, il avait reçu un trésor de la Pagode aux Trésors : un morceau de jade fendu d'une unique fissure. D'après ses recherches, ce jade n'avait plus qu'un seul usage possible. Il avait découvert que sa fonction était de briser toutes les restrictions. En conséquence, la détermination de Duanmu à retourner dans la Terre des Dieux Anciens fut ravivée.
+
+Il savait que sa culture était inférieure à celle des autres. À l'époque, c'était grâce à sa chance et sa prudence qu'il avait survécu. Il connaissait ses limites et avait juré de ne jamais revenir, mais la découverte de l'utilité du jade avait ébranlé sa résolution. Pourtant, il restait prudent et hésitant, car il ne pouvait même pas réussir la première épreuve sans maîtriser la Technique d'Évasion des Cinq Éléments.
+
+Duanmu avait longuement médité sur cette question avant de renoncer à apprendre ladite technique. Pour la maîtriser, il aurait dû y consacrer tout son temps, et même avec un apprentissage réussi, rien ne garantissait qu'il franchirait la première épreuve. Il devait aussi tenir compte des attaques de monstres géants ; il se souvenait encore avec vivacité de son expérience dans le monde de glace.
+
+C'est ainsi que Duanmu sollicita son ami Wang Qingyue pour l'accompagner. Wang Qingyue était un maître de la Technique d'Évasion des Cinq Éléments et, après avoir entendu les explications de Duanmu, il décida de tenter l'aventure. Après tout, si ce que disait Duanmu était vrai, la tentation était trop immense. Pour le convaincre, Duanmu sortit son morceau de jade. En le voyant, Wang Qingyue reconnut immédiatement une arme ancienne perdue depuis des éons, dissipant ainsi ses doutes.
+
+Cependant, par prudence, il n'accepta pas immédiatement. Il préférait attendre l'ouverture de la Terre des Dieux Anciens pour prendre sa décision. Duanmu n'en fut pas déconcerté ; son esprit était déjà fait. Si Wang Qingyue refusait, il échangerait ce jade contre des trésors magiques auprès du Seigneur Démon des Six Désirs.
+
+Néanmoins, il devait se préparer au cas où Wang Qingyue accepterait. S'il pouvait franchir les deux premières épreuves sans encombre, la troisième représentait le véritable obstacle. C'était d'ailleurs cette troisième épreuve qui, mille ans auparavant, les avait contraints à utiliser un trésor hérité pour créer un tunnel de fuite.
+
+Quant aux créatures étranges de la troisième épreuve, s'il n'y en avait eu qu'une ou deux, il ne les aurait pas craintes. S'il y en avait huit ou dix, une simple vigilance aurait suffi. Même face à des centaines, sa culture lui aurait permis de survivre. Mais si elles étaient des milliers, même un dieu ne pourrait rien faire. Ces créatures étaient singulières et immunisées contre presque tous les sorts ; seul le feu véritable pouvait les faire reculer. Cependant, face à une telle multitude, il était impossible de toutes les surveiller. Si elles se jetaient sur quelqu'un, elles aspireraient son énergie spirituelle, et si elles étaient trop nombreuses, la mort était inévitable.
+
+En conséquence, il avait cherché des trésors magiques capables de protéger l'âme, mais ces objets étaient d'une rareté extrême. Ce n'est qu'en voyageant à la ville de Nandou, en entendant parler du Sort de la Mort, qu'il se remémora ce sortilège maléfique spécialisé dans l'attaque de l'âme. Il fut transporté par l'espoir : s'il pouvait trouver quelqu'un possédant cette capacité pour l'aider, il aurait une chance de franchir la troisième épreuve.
+
+Il commença alors ses recherches jusqu'à trouver Wang Lin. Le voyage fut d'abord très calme. Duanmu pensait que tant qu'ils travailleraient ensemble, les trois premiers royaumes ne poseraient pas de problème, surtout après avoir appris que le Seigneur Démon des Six Désirs avait choisi un candidat pour passer la troisième épreuve. Il était certain que, sans conflit interne, l'accès à la Terre des Dieux Anciens n'était qu'une question de temps.
+
+Bien que la Terre des Dieux Anciens comporte quatre royaumes, ils avaient découvert grâce au trésor hérité que le quatrième consistait en un réseau de téléportation menant au corps de l'Ancien Dieu. Ce réseau téléportait les individus en fonction du temps mis pour franchir les trois premiers royaumes : plus on était rapide, plus on était proche du corps de l'Ancien Dieu. Il était même possible d'être téléporté directement dans ses méridiens. Une fois à l'intérieur, on y trouverait non seulement des perles de Qi condensées, mais aussi des résidus de nombreux médicaments. Selon le trésor hérité, des résidus de pilules de Transformation de l'Âme s'y trouvaient. Pour l'Ancien Dieu, ce n'étaient que des restes, mais pour eux, cela représentait de véritables pilules de Transformation de l'Âme.
+
+Malheureusement, ses plans furent anéantis par un dragon géant dans le tunnel, provoquant la dispersion de tous, notamment celle de Wang Lin qui s'était précipité dans la gueule du dragon. L'apparition d'un dragon rouge et cette série d'événements plongèrent Duanmu dans la panique. Dans l'urgence, il dut abandonner sa recherche de Wang Lin pour s'enfuir avec Wang Qingyue.
+
+En réalité, il avait été le premier à franchir les deux premières épreuves pour atteindre la troisième. Pourtant, dans ce royaume, il affichait un visage amer. Sans le Sort de la Mort de Wang Lin, malgré les trésors accumulés en mille ans, il lui était impossible de progresser vers l'entrée du quatrième royaume. Ainsi, bien qu'ils fussent les premiers arrivés, ils se retrouvaient bloqués.
+
+Au même moment, le Seigneur Démon des Six Désirs survolait la troisième épreuve, cherchant l'issue vers le quatrième royaume. Chaque fois qu'une âme errante tentait de l'attaquer, il agitait la main et une lumière bleue jaillissait du corps du jeune homme qu'il portait. Les âmes abandonnaient alors le Seigneur Démon pour se précipiter sur le jeune homme. Une fois entrées dans son corps, elles disparaissaient sans laisser de trace, sans que l'apparence de ce dernier ne change.
+
+Le Seigneur Démon des Six Désirs comptait sur cette méthode pour voyager. Malgré quelques frayeurs, il n'avait couru aucun danger réel. Le moment le plus critique fut sa rencontre avec un groupe de milliers d'âmes errantes, mais d'un geste, il avait détourné l'attaque vers le corps du jeune homme.
+
+Il regarda le corps qu'il tenait et laissa échapper un sourire glacial. Bien qu'il fût tombé dans le piège de ce junior et que l'éclair l'ait fait régresser d'un stade, le menant au début du stade de Formation de l'Âme, il était certain qu'avec ce trésor préparé pendant mille ans, il entrerait dans le quatrième royaume cette fois. En y pensant, son cœur s'emballa et ses yeux brillèrent d'une fièvre fiévreuse. Que valait la perte d'un stade de culture comparée à l'acquisition d'une pilule de Transformation de l'Âme issue du corps de l'Ancien Dieu ? Une fois cette pilule obtenue, il pourrait devenir un expert au stade YingBian. À ce moment-là, même dans le système stellaire de l'Oiseau Vermillon, tant qu'il n'offenserait pas l'Empire, il pourrait agir à sa guise.
+
+Ses pensées l'animèrent alors qu'il accélérait sa recherche. Le trésor hérité de la Terre des Dieux Anciens était entre ses mains. À l'origine, c'était son maître qui le possédait et qui avait rassemblé des hommes pour explorer ces terres. Son maître était mort lors de la troisième épreuve en lui transmettant ce trésor. Il prévoyait d'ouvrir un tunnel pour s'échapper, mais au moment critique, il avait attiré l'attention d'une créature bien plus puissante et différente des autres, ce qui entraînait sa perte. Horrifié par ce spectacle, le Seigneur Démon des Six Désirs s'était enfui dans un tunnel.
+
+Pendant ce temps, une autre personne se trouvait dans la troisième épreuve : l'Empereur Antique. Il était assis en tailleur sur un rocher, entouré de quatre drapeaux tournoyants et d'une pagode de la taille de son visage posée sur sa tête, émettant des lueurs harmonieuses. À la lisière de cette lumière, on pouvait voir d'innombrables âmes errantes s'agglutiner, observant l'Empereur Antique avec avidité. Cependant, aucune n'osait pénétrer dans le rayonnement de la pagode.
+
+L'Empereur Antique affichait une expression amère. En quittant la deuxième épreuve, il avait été poursuivi par un éclair violet. Grâce à son trésor salvateur, il avait survécu, mais l'objet s'était brisé et sa culture était tombée au stade avancé de l'Âme Naissante. Dans la troisième épreuve, il n'osait pas s'aventurer trop loin. Il s'était établi sur un rocher en zone périphérique, tentant de restaurer sa culture au stade de Formation de l'Âme. Avec son niveau actuel d'Âme Naissante, il aurait pu se protéger dans les premières épreuves, mais ici, dans ce lieu extrêmement périlleux, la survie était incertaine.
+
+Ce qui le rendait vraiment amer était que le tourbillon menant à la troisième épreuve, initialement immobile, l'avait soudainement téléporté dans une position très défavorable : en plein milieu de la troisième épreuve. S'il n'avait pas immédiatement créé cette pagode, il aurait été submergé par les âmes errantes. Désormais, il n'avait d'autre choix que de maintenir la lumière de la pagode, se condamnant ainsi à l'isolement.
+
+Sa haine était immense envers la personne mystérieuse responsable de cette situation. Il restait pourtant perplexe quant à son identité. Selon ses analyses, il s'agissait du gamin Wang Lin, mais il refusait de croire qu'il avait pu être réduit à cet état pitoyable par quelqu'un d'une génération inférieure.
+
+En ce qui concerne Wang Lin, il déployait actuellement son Sens Divin sur toute la troisième épreuve. Hormis lui, il n'y avait qu'un seul autre dévoreur d'âmes, et le nombre d'âmes était bien moindre que dans le champ de bataille étranger ; l'impression de multitude venait seulement du fait que la zone était plus restreinte. De plus, Wang Lin avait déjà localisé l'entrée du quatrième royaume : elle ne se trouvait pas au centre, mais au nord-ouest. Une masse considérable d'âmes errantes entourait cette entrée, représentant près d'un quart de la population de ce royaume.
+
+Parallèlement, toutes les âmes errantes sous son contrôle lui envoyaient des messages via une méthode spéciale. Elles avaient suivi ses instructions et localisé le Seigneur Démon des Six Désirs ainsi que l'Empereur Antique. À sa grande surprise, elles avaient également trouvé Duanmu et Wang Qingyue.
+
+Après réflexion, Wang Lin dirigea son Sens Divin vers l'Empereur Antique. Selon une âme errante, ce dernier possédait la culture la plus faible et était bloqué sur place. Peu de temps après, l'âme de Wang Lin apparut à la limite du rayonnement de la pagode surplombant l'Empereur Antique. Il observa l'homme au visage pâle et commença à réfléchir.
+
+En dévorant les âmes locales, l'âme de Wang Lin était devenue immense. Bien qu'elle n'ait pas atteint le même niveau qu'auparavant, sa qualité surpassait de loin son état initial. Après tout, son âme n'était pas ordinaire, c'était une Âme du Royaume Ji.
+
+À son arrivée, les yeux de l'Empereur Antique s'ouvrirent et il fixa froidement la direction de Wang Lin. Bien qu'il ne voie que le vide sombre, il percevait clairement une âme radicalement différente des autres. À l'instant où cette âme apparut, toutes les autres âmes errantes se dispersèrent ; dans les ombres, on pouvait voir leurs visages pâlir de terreur.
+
+Le cœur de l'Empereur Antique rata un battement. Il consomma rapidement une pilule pour s'assurer d'avoir assez d'énergie spirituelle afin de maintenir la lumière de la pagode. Wang Lin fixa l'homme à travers le rayonnement. Il envoya un message par son sens divin, et soudain, dix âmes errantes s'avancèrent. Malgré leur peur, elles chargèrent dans la lumière. Dès qu'elles la touchèrent, elles rencontrèrent une résistance féroce. Elles ne purent même pas approcher l'Empereur à moins de cinq pieds avant qu'une fumée verte n'apparaisse sur leurs corps, les forçant à reculer.
+
+Cependant, la lumière de la pagode faiblit. L'âme de Wang Lin envoya un nouveau message. Cette fois, plus de dix mille âmes errantes se condensèrent en ombres et fixèrent la pagode. Le cœur de l'Empereur Antique s'emballa. C'était mauvais. Il fit un geste rapide pour envoyer des vagues de lumière dans la pagode. À chaque vague, son visage pâlissait davantage. Après la dernière salve, il était blanc comme la craie et sa culture chuta au stade intermédiaire de l'Âme Naissante.
+
+Simultanément, les âmes errantes se coordonnèrent en vagues pour assaillir la lumière. Cependant, elles s'enflammèrent dès qu'elles tentaient d'approcher, ne parvenant pas à franchir la barre des dix pieds autour de l'Empereur Antique. La distance restait grande.
+
+L'Empereur Antique laissa échapper un rire désespéré. Il avait fait tout ce qu'il pouvait. Le nombre d'âmes était trop colossal pour sa résistance. Même les anciens d'il y a mille ans avaient été consumés par elles. Comment lui, dont la culture était si affaiblie, pouvait-il espérer survivre ? Il craignait de manquer de Qi et de ne plus pouvoir maintenir la pagode, avant d'être submergé.
+
+Du début à la fin, Wang Lin n'avait pas bougé. Il savait que si les rôles étaient inversés, l'Empereur Antique aurait pu le tuer d'un simple geste du doigt. Mais ici, il était un dévoreur d'âmes capable de manipuler les âmes errantes. Bien sûr, s'il attaquait directement, il ne ferait pas le poids face à l'Empereur Antique ; malgré son statut de dévoreur, il restait trop faible.
+
+Toutefois, la capacité d'un dévoreur est de dévorer les âmes, tandis que celle des âmes errantes est de dévorer la force vitale. Même une culture élevée ne peut rien contre l'assaut massif d'âmes errantes. Si l'on connaît bien ces entités, on sait qu'une seule âme errante complète dans le monde mortel pourrait causer une catastrophe, bien plus puissante que le démon Xu Ligou.
+
+La troisième épreuve de la Terre des Dieux Anciens était, en réalité, un piège mortel. Seuls quelques rares individus l'avaient franchie. La Terre des Dieux Anciens existait depuis des éons, et le maître du Seigneur Démon des Six Désirs n'était pas le premier à s'y aventurer ; beaucoup étaient entrés, mais tous étaient morts ici. Les âmes errantes ne pouvaient être facilement détruites et leur nombre était infini : même si une âme était consommée, elle pouvait ressusciter tant qu'une parcelle de son essence subsistait. C'était un cycle éternel.
+
+Si Wang Lin se sentait si à l'aise, c'était grâce à son expérience et aux rencontres singulières vécues sur le champ de bataille étranger. Grâce à cela, il agissait comme le maître des lieux. Si son corps n'avait pas été détruit par Teng Huayuan, si Situ Nan n'avait pas plongé son Âme Naissante dans un sommeil profond pour protéger l'âme de Wang Lin, s'il n'était pas entré accidentellement dans la fissure du champ de bataille étranger, et s'il n'avait pas commencé à dévorer les âmes jusqu'à devenir un dévoreur d'âmes... si l'un de ces événements avait été absent, Wang Lin n'aurait jamais atteint ce statut de roi.
+
+Pour les âmes errantes pâlies, Wang Lin n'était que de la nourriture. Mais sans cette nourriture, aux yeux de l'Empereur Antique, il n'était qu'un junior de la Formation du Noyau. Si les circonstances n'avaient pas limité les pouvoirs de chacun, ils n'auraient eu qu'à lever un doigt pour l'anéantir.
+
+Mais dans ce monde, l'imprévisible règne : une fourmi peut tuer un éléphant sous certaines conditions, et même la paille la plus légère peut finir par écraser un chameau. Certaines choses n'ont aucune explication logique. On ne peut que constater que les choses changent et que rien n'est éternel. Tout comme le mystérieux Hunchback Meng, censé être mort lors de la première épreuve, qui apparut dans la troisième avec une puissance semblable à celle de l'Ancien Dieu Tu Si ; ou sa propre mort au cours de la première épreuve, tout cela restait inexplicable. À partir de la troisième épreuve de la Terre des Dieux Anciens, les choses devenaient de plus en plus confuses et étranges.

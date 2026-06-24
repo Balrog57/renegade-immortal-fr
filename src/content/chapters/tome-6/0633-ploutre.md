@@ -1,0 +1,125 @@
+---
+n: 633
+title: Ploutre
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 633 - Bumpkin
+slug: ploutre
+---
+Parmi les quatre, l'une des femmes portait ses cheveux en chignon, laissant retomber deux mèches près de ses oreilles comme des branches de saule. Un éclat cristallin scintillait entre ses sourcils, et sa ligne de sourcils en forme de demi-lune accentuait ses yeux perle. Son visage gracieux, aux traits fins, était aussi lisse que le jade. Bien que sa beauté ne fût pas sans égale, elle suffisait à éclipser la lune. Elle semblait avoir une vingtaine d'années, mais l'étincelle d'intelligence dans son regard révélait une maturité bien au-delà de son apparence.
+
+Elle portait une robe blanche qui, bien que peu ajustée, soulignait ses courbes avec une grande séduction.
+
+Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique, et plus le niveau de culture était élevé, plus leur longévité s'étendait. À vue d'œil, il était donc très difficile de deviner l'âge réel d'une personne.
+
+Comparée à cette femme, l'autre semblait un peu ordinaire. Ses longs cheveux drapés sur son épaule lui donnaient un air de fragilité. Sa silhouette gracile laissait croire qu'elle pourrait être emportée par une simple brise. Elle portait du rose, ce qui contrastait avec son visage extrêmement pâle. Face à la femme éclatante, elle paraissait moins éblouissante, mais semblait plus délicate.
+
+Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux : « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer de Nuages, dans le Pays du Démon de l'Eau. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer de Nuages est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous ? »
+
+Ce jeune homme était plutôt beau et dégageait un certain orgueil, comme s'il était un fils favori des cieux.
+
+Un autre homme, vêtu de noir, répondit froidement : « Satisfaisant ! » Son expression était sombre alors qu'il fermait les yeux, cessant de parler.
+
+Le jeune homme en robe rouge sourit. Il s'était habitué depuis longtemps au parler concis de l'autre.
+
+« Je crois que le frère aîné Du n'est pas resté ici pour la Mer de Nuages », dit la femme éclatante en serrant les lèvres avec un sourire.
+
+Le jeune homme en robe rouge sourit à nouveau : « Je ne vous mentirai pas, petite sœur Zhao. Lorsque j'étais à la Mer de Nuages, j'ai découvert une fissure dans le sol. Je crains qu'il ne s'agisse de l'entrée du légendaire Abîme des Marées. »
+
+Les yeux de la femme nommée Zhao s'emplirent de convoitise. Alors qu'elle s'apprêtait à reprendre la parole, le jeune homme en noir ouvrit soudainement les yeux et scruta l'horizon.
+
+Le regard de l'homme en noir s'illumina : « Très puissant ! »
+
+Un rayon de lumière apparut à l'horizon et se mua en un jeune homme vêtu de blanc. Son apparence était ordinaire, sans rien de particulier. Il flottait dans les airs sans même accorder un regard aux quatre personnes en dessous de lui. Il observa froidement les nuages, puis fit un pas.
+
+« C'est lui ! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la culture de cet individu avait déjà atteint le stade Ascendant ! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire : « Jeune frère Wang, veuillez patienter ! »
+
+Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observer les quatre individus. Il ne regarda pas d'abord les deux femmes ni le jeune homme en robe rouge, mais fixa l'homme en noir.
+
+« Le fait qu'il puisse me localiser à moins de 500 kilomètres signifie que sa culture n'est pas faible. À en juger par l'énergie spirituelle céleste qui circule dans son corps, il doit être au début du stade Ascendant ! » Les yeux de Wang Lin restèrent calmes tandis qu'il les inspectait un à un, avant de se poser sur l'homme en robe rouge. Il connaissait assez bien cet individu ; c'était un disciple de la Division Rouge de la Secte du Destin Céleste.
+
+Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge était manifestement déjà à mi-chemin du stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas !
+
+L'homme en robe rouge dit : « Jeune frère, mon nom est Du Jian. » Après une courte réflexion, il réalisa que Wang Lin ne connaissait probablement pas son nom.
+
+Wang Lin joignit les mains : « Salutations, frère aîné Du. »
+
+Du Jian sourit et désigna l'homme en noir : « Frère Wang, voici Murong Zhuo de la Secte de l'Encre. Quant à ces deux-là, ce sont des compagnons de culture de la Secte du Nuage Flottant. »
+
+L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains : « Compagnon de culture Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte de l'Encre ! »
+
+Lorsque Murong Zhuo eut fini de parler, Du Jian et les deux femmes furent stupéfaits. Ils n'avaient jamais vu Murong Zhuo prononcer plus de cinq mots d'un trait ; son identité de solitaire était profondément ancrée dans leurs esprits.
+
+Même face à un compagnon au milieu du stade Ascendant, ce Murong Zhuo n'avait jamais été aussi loquace.
+
+Surtout, ses paroles consistaient en une présentation de soi. Les trois autres cultivaient depuis longtemps et, pour avoir atteint ce niveau, aucun d'eux n'était stupide. Ces quelques mots simples révélaient un respect entre pairs.
+
+La femme éclatante nommée Zhao regarda Wang Lin de ses beaux yeux et sourit : « Frère aîné Wang, voici la petite sœur Zhao Yixuan, et voici ma jeune sœur de discipline, Xu Fei. »
+
+« Xu Fei... » Ce simple nom raviva certains souvenirs chez Wang Lin. Il ne put s'empêcher de dévisager la femme à l'allure fragile. Celle-ci s'inclina devant lui et dit doucement : « Xu Fei salue le frère aîné Wang. »
+
+Du Jian lança un regard profond à Wang Lin et sourit.
+
+« Le jeune frère Wang connaît-il la sœur Xu ? »
+
+Wang Lin secoua la tête : « Je ne la connais pas. C'est simplement que la sœur Xu porte le même nom qu'une membre de ma secte de jeunesse. »
+
+Du Jian eut un léger sourire. Il esquiva le sujet et demanda : « Jeune frère Wang, êtes-vous venu ici à cause de l'Abîme des Marées ? »
+
+Il ne chercha ni à simuler ou à tourner autour du pot ; il était d'une grande franchise.
+
+L'expression de Wang Lin resta neutre lorsqu'il acquiesça : « Exactement ! »
+
+Les yeux de Du Jian se plissèrent : « Jeune frère Wang, l'Abîme des Marées est extrêmement dangereux. Même au stade Ascendant, la tâche sera ardue. Nous quatre nous rendons également dans l'Abîme des Marées. Pourquoi ne pas nous accompagner ? Au moins, nous pourrons nous entraider. »
+
+Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme des Marées. Avant de venir, il avait utilisé le cristal que Bei lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa culture actuelle.
+
+Si Murong Zhuo n'avait pas été parmi eux, Wang Lin aurait refusé sur-le-champ. Cependant, la présence de Murong Zhuo changeait la donne. Bien qu'il ne fût qu'au début du stade Ascendant, le fait d'avoir détecté Wang Lin à 500 kilomètres prouvait ses capacités.
+
+Wang Lin esquissa un mince sourire : « Très bien ! »
+
+Le visage de Du Jian rayonnait de sourires, mais il ricana intérieurement. Il était impossible pour lui de ne pas éprouver de suspicion et de jalousie envers Wang Lin, qui avait atteint le stade Ascendant en si peu de temps.
+
+Il se souvenait parfaitement que lors de leur dernière rencontre, Wang Lin n'était qu'un cultivateur au milieu du stade de la Transformation de l'Âme. Pourtant, en seulement un siècle, il avait atteint le début du stade Ascendant. De plus, Wang Lin ne ressemblait pas à quelqu'un qui venait tout juste de franchir ce seuil ; il semblait être dans ce stade depuis un certain temps déjà !
+
+« Il doit y avoir une raison pour laquelle ce ploutre venu d'une planète de culture médiocre a pu progresser si vite. S'il a aussi réussi l'épreuve de vie ou de mort du stade Ascendant, je crains que cette affaire ne soit pas simple ! De plus, s'il continue sur cette lancée, sa position sera encore plus élevée lorsqu'il partira dans 400 ans. Cela signifie que le rang de sa Division Pourpre augmentera instantanément. »
+
+La malveillance bouillonnait dans son cœur, mais il n'en laissa rien paraître. Il affichait un sourire empreint de douceur, comme s'il agissait véritablement en frère aîné bienveillant.
+
+Toutefois, il faisait face à Wang Lin, qui avait traversé sur Suzaku d'innombrables situations périlleuses que beaucoup ne connaîtront jamais de leur vie. Grâce à cela, il était devenu extrêmement perspicace et sage.
+
+Il était l'exact opposé de l'image du ploutre que Du Jian se faisait de lui.
+
+L'expérience de vie de Du Jian était dérisoire comparée à celle de Wang Lin !
+
+Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Mer de Nuageuse.
+
+Les nuages emplissaient l'espace, créant l'illusion de montagnes et de mers. Ce spectacle était grandiose et empreint d'une beauté mystérieuse.
+
+Les yeux magnifiques de Zhao Yixuan se posaient occasionnellement sur Wang Lin. Elle ne parvenait pas à percer ce mystère. Dans la Terre des Esprits Démoniaques, elle pouvait lire au cœur des généraux démons. Au cours des cent dernières années, il n'y avait eu que deux personnes et demie qu'elle ne pouvait sonder.
+
+La silhouette de Wang Lin devant elle perçait les couches nuageuses et devenait floue. Le regard de Zhao Yixuan semblait lui-même entravé par la brume.
+
+La première personne qu'elle n'avait pu déchiffrer était Chen Long, de la Secte de l'Épée Da Lou. Un brouillard l'entourait ; chaque fois qu'elle tentait d'approcher, cette brume se transformait en épée pour repousser son intrusion.
+
+Quant à la deuxième personne, elle n'avait pu que partiellement la comprendre : Murong Zhuo. Le regard de Zhao Yixuan glissa sur lui.
+
+Ce Murong Zhuo était parfois transparent et limpide, mais d'autres fois, il ressemblait à une eau noire et opaque. Ces changements constants rendaient ses pensées presque impossibles à saisir.
+
+La dernière personne qu'elle ne parvenait pas à sonder était Wang Lin, qui venait soudainement d'apparaître. Aux yeux de Zhao Yixuan, il était encore plus impénétrable. Il n'avait ni le brouillard de Chen Long, ni les fluctuations de Murong Zhuo. Au lieu de cela, il utilisait sa propre force pour verrouiller son esprit !
+
+Il n'avait nul besoin d'illusions ou de brume ; il lui suffisait de fermer la porte de son cœur !
+
+Les yeux de Zhao Yixuan brillèrent d'une lueur mystérieuse, et à cet instant précis, Wang Lin se retourna brusquement. Il sembla lui jeter un regard désinvolte avant de se retourner à nouveau.
+
+Cependant, ce regard fut comme une lame acérée perçant directement l'esprit de Zhao Yixuan.
+
+« Est-ce un avertissement... Ce Wang Lin est très intéressant. Même Chen Long de la Secte de l'Épée Da Lou n'avait remarqué ma présence qu'après que j'aie renforcé mon sort. Quant à Murong Zhuo, il n'a trouvé que des traces de mon art... Mais ce Wang Lin a immédiatement perçu une anomalie dès l'instant où j'ai eu l'intention d'agir... » Une pointe d'intérêt brilla dans les yeux de Zhao Yixuan, avant d'être rapidement enfouie au plus profond de son cœur.
+
+Tandis qu'il volait, les yeux de Wang Lin s'illuminèrent et il afficha un sourire froid.
+
+« Ces quatre individus sont très intéressants ; chacun nourrit ses propres complots et leurs sorts ne sont pas faibles. Cependant, parmi eux, celle qui ne doit pas être sous-estimée est la femme nommée Xu. Elle dégage constamment une sensation étrange... »
+
+Les cinq passèrent rapidement à travers les nuages. Bientôt, un ravin profond apparut devant eux.
+
+Ce ravin était extrêmement vaste ; il mesurait plus de cent pieds de large. Quant à sa longueur, elle dépassait les dix mille pieds, s'étirant à perte de vue dans la brume. Ce gouffre ressemblait à une gueule béante dissimulée dans le sol, comme si un sortilège l'avait sculpté.

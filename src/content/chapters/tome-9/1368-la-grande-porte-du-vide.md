@@ -1,0 +1,79 @@
+---
+n: 1368
+title: La Grande Porte du Vide
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1368 - The Great Void Gate
+slug: la-grande-porte-du-vide
+---
+Plusieurs cultivateurs passèrent à côté de Wang Lin et balayèrent la zone d'innombrables fois avec leur Sens Divin, mais aucun ne le remarqua.
+
+Tandis que Wang Lin restait assis là, il s'était complètement fondu dans son environnement. Chaque fois qu'un regard ou un Sens Divin passait à proximité, ces derniers se trouvaient déformés, ce qui empêchait toute détection de sa présence. Son aura s'était depuis longtemps fusionnée avec la chaîne de montagnes ; il était désormais impossible de les distinguer l'une de l'autre !
+
+Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l'un de ses tonnres accompagnateurs. Le Tonnerre Terrestre avait également été dévoré par Wang Lin quelques heures auparavant.
+
+Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre : le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du monde. Après trois heures de raffinage par Wang Lin, il trembla et ne put plus résister !
+
+À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme d'origine du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme d'origine devenait plus puissante encore, et sa culture du tonnerre se rapprochait du sommet du stade Briseur de Nirvana.
+
+« Tonnerre Magnétique, je t'ordonne, en tant que tonnerre des cieux, de devenir mon tonnerre accompagnateur ! » rugit le Sens Divin de Wang Lin. Le cinquième type de tonnerre accompagnateur, le Tonnerre Magnétique, était très singulier. Il contenait une force magnétique colossale et dégageait une puissante force répulsive.
+
+Pour l'absorber complètement, il aurait dû le raffiner pendant plusieurs jours afin de dissiper lentement cette force répulsive jusqu'à ce qu'elle lui appartienne. Cependant, Wang Lin n'avait pas de temps à perdre. Voyant le Tonnerre Magnétique résister violemment, il laissa échapper un froid renoncement et les quatre types de tonnerres accompagnateurs entourant son âme d'origine descendirent sur lui.
+
+Ils formèrent une force dévastatrice qui entra en collision avec la force magnétique. Après un rugissement violent, le Tonnerre Magnétique résista un instant avant de s'effondrer ! Dès son effondrement, l'âme d'origine de Wang Lin dévora le Tonnerre Magnétique. Toutefois, parce qu'il n'avait pas été absorbé mais dévoré après avoir cédé, il était bien plus faible que les autres types de tonnerres accompagnateurs.
+
+Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres accompagnateurs, ceux-ci tournèrent rapidement autour de son âme d'origine. À cet instant précis, sa culture passa du stade avancé du Briseur de Nirvana au sommet du Briseur de Nirvana !
+
+Une fois sa culture du tonnerre ayant atteint le sommet du Briseur de Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur : le Tonnerre Dao !
+
+Le Clan des Disperseurs de Tonnerre avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie !
+
+Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme d'origine surgit avec la puissance d'une armée immense, mais contre toute attente, le Tonnerre Dao ne résista point ! Une intention Dao complexe émanait des innombrables âmes contenues dans le tonnerre. Wang Lin sentit que ces âmes lui étaient extrêmement familières : c'étaient des cultivateurs du Royaume Intérieur !
+
+Ces âmes ressentirent également l'intention Dao de Wang Lin et chargèrent son âme d'origine. Sans même que Wang Lin ait besoin de le dévorer, le Tonnerre Dao s'intégra de lui-même à son essence ! Une intégration parfaite !
+
+Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur de Nirvana ! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel !
+
+Les cent mille cultivateurs sur la planète qui traquaient Wang Lin remarquèrent immédiatement ce changement atmosphérique. Leurs Sens Divins fusionnèrent pour balayer toute la planète, mais ils ne trouvèrent toujours rien ! Si le Secte Zhen Yan ne les en avait pas empêchés, ces cultivateurs auraient ignoré toute forme de vie pour raffiner la planète entière afin de forcer Wang Lin à se manifester ! Des rayons de lumière emplirent le ciel ; des cultivateurs étaient partout !
+
+Wang Lin esquissa un ricanement. Les six types de tonnerres accompagnateurs étaient complets, mais ce n'était pas encore l'aboutissement. Il lui fallait encore trois autres types pour parfaire son essence du tonnerre. Cependant, il n'avait aucune idée d'où trouver les trois restants.
+
+« En matière de tonnerres accompagnateurs, on dit qu'il faut suivre les règles et les rechercher. Mais si je décrète qu'ils sont des tonnerres accompagnateurs, alors ils le seront ! » Wang Lin n'avait jamais été du genre à suivre les règles. Puisqu'il ignorait quels devaient être ces trois types, il allait simplement les créer lui-même !
+
+« Je veux voir si je peux atteindre la troisième étape grâce à l'achèvement de mon essence du tonnerre ! » Les yeux de Wang Lin brillèrent d'un rouge écarlate et son Domaine Ji jaillit !
+
+« Le Domaine Ji est une rétribution divine, et c'est aussi un tonnerre ! Peu importe ce qu'était la rétribution divine auparavant, désormais, tu es le Tonnerre Ji, mon septième type de tonnerre accompagnateur. Moi, Wang Lin, suis le tonnerre des cieux. Mes paroles sont les ordres que tu suivras pour l'éternité ! Tonnerre Ji, reviens ! »
+
+Sous la volonté de Wang Lin, le Tonnerre Ji gronda et chargea vers son œil droit. Il pénétra la pupille et s'y imprégna ! Il devint le septième type de tonnerre accompagnateur ! À cet instant, dans l'œil droit de Wang Lin, sept types de tonnerres tournaient autour de son essence. Une aura d'une puissance inouïe explosa de son corps !
+
+Wang Lin était déjà fusionné avec la chaîne de montagnes. L'éruption de tonnerre se propagea à travers les monts et sur tout le continent ! Le grondement était tel qu'il ébranla les cieux, et d'innombrables éclairs se déclenchèrent à travers le continent ! Ce tonnerre ne blessait pas les mortels, mais sa luminosité était aveuglante !
+
+Les cultivateurs qui cherchaient Wang Lin furent stupéfaits, puis exaltés alors qu'ils recommençaient leurs recherches. Plusieurs cultivateurs au stade de la Calamité Céleste travaillaient de concert, augmentant considérablement l'étendue de leurs Sens Divins.
+
+« Crapaud de Tonnerre ! Tu es une bête féroce dotée de ta propre lignée. Tu m'as suivi pendant de nombreuses années et, bien que ton niveau de culture ne soit pas élevé, tu as cultivé ma nature rebelle ! Aujourd'hui, en tant que seigneur du tonnerre, je te confère le titre de huitième type de tonnerre accompagnateur : le Tonnerre de Lignée ! Je me moque de ce qu'était le huitième type par le passé. À partir d'aujourd'hui, tu deviendras l'éternel huitième tonnerre accompagnateur ! »
+
+Le Sens Divin de Wang Lin était si puissant que lorsqu'il se propagea, le crapaud de tonnerre qui l'avait suivi durant d'innombrables années apparut. Le crapaud poussa un rugissement avant de se transformer en un éclair fulgurant qui chargea vers l'œil droit de Wang Lin ! En un instant, le crapaud disparut et un éclair de Tonnerre de Lignée apparut dans l'œil de Wang Lin ! Les huit types de tonnerres accompagnateurs tournaient désormais autour de son essence. Le monde changea de couleur et les nuages se dispersèrent !
+
+Non seulement la terre, mais même le ciel fut recouvert de tonnerre. Des grondements assourdissants secouèrent l'esprit de tous les cultivateurs présents. À cet instant, le ciel était tonnerre, la terre était tonnerre, et l'espace entre les deux était saturé d'éclairs. Une attraction s'opéra entre le tonnerre céleste et terrestre ; des colonnes électriques reliant le ciel et la terre apparurent !
+
+Les cent mille cultivateurs ne ressentaient plus d'excitation, mais une terreur pure ! Ils n'avaient jamais vu un tel spectacle. En voyant ce tumulte, leurs cœurs se mirent à trembler !
+
+« Le dernier type de tonnerre ! Je ne peux trouver ce dernier type dans ce monde, mais j'ai toujours défié les cieux tout au long de ma vie. Je refuse de me plier au destin ; je deviendrai le seigneur du monde. Je détruirai ces cieux et briserai cette terre ! J'ai combattu les cieux pour l'âme de ma femme et j'ai volé au temps lui-même. J'ai vécu ma vie en tant que cultivateur défiant le ciel. Bien que ce fût sanglant, je n'ai aucun regret. Moi, Wang Lin, ai parcouru le monde pendant deux mille ans, mais mon cœur demeure calme. Je recherche un cœur qui défie les cieux et je cultive une volonté qui défie les cieux ! »
+
+« Puisque je ne peux trouver la dernière forme de tonnerre accompagnateur, j'utiliserai toute ma vie de culture pour former le Tonnerre Défiant. Ce Tonnerre Défiant n'est jamais né auparavant, mais aujourd'hui, par mon commandement, ce monde donnera naissance au Tonnerre Défiant qui remplacera les neuf types passés et deviendra l'unique neuvième type : le Tonnerre Défiant ! »
+
+La volonté de Wang Lin était empreinte de folie et de puissance. Il se leva brusquement et scruta le ciel ! Son corps était aussi droit qu'un pin, imprégné d'une volonté défiant les cieux ! Ses yeux étaient comme des éclairs, et son aura s'élança vers la voûte céleste. Son cœur portait un défi direct contre le destin !
+
+« Ce qui s'est passé dans les 7 Millions de Mondes a balayé ma dernière hésitation. Si les cieux sont insensibles, alors nous, les cultivateurs, devons résister ! S'ils ne se soucient de rien, pourquoi devraient-ils contrôler toutes les vies et jouer avec la mienne ?! » La voix de Wang Lin tonna, et le tonnerre infini sembla entrer en résonance. Le tonnerre forma un lac électrique gigantesque qui se propagea dans toutes les directions !
+
+Un éclair qui n'était jamais apparu depuis l'aube des temps naquit des paroles de Wang Lin. Il était invisible pour la plupart des gens ; seuls ceux habités par une volonté défiante pouvaient le percevoir ! Lorsque cet éclair surgit soudainement, il chargea vers l'œil droit de Wang Lin, portant en lui toute la lutte contre le destin et les cieux.
+
+Il s'intégra instantanément ! Dans l'œil droit de Wang Lin, les neuf types de tonnerres accompagnateurs autour de son essence étaient désormais complets ! En tournant, ils formèrent un tatouage de tonnerre dans sa pupille ! Au moment où ce tatouage prit forme, une force de tonnerre indescriptible explosa du corps de Wang Lin telle l'éruption d'un volcan sans fin !
+
+Alors que le grondement résonnait, une porte illusoire gigantesque apparut soudainement devant les cultivateurs de la planète, totalement médusés ! Cette porte était infinie et semblait faire partie des cieux eux-mêmes. C'était comme la porte des paradis ; si l'on parvenait à l'ouvrir, on pourrait quitter ce monde !
+
+« Troisième étape... La Grande Porte du Vide !!! » Certains cultivateurs reconnurent immédiatement le phénomène, et leurs visages se décomposèrent. L'incrédulité et la stupeur les envahirent !
+
+À l'instant où la porte apparut, Wang Lin sentit clairement le pouvoir indescriptible qui s'en dégageait. C'était comme si tout ce qu'il possédait n'était que poussière face à elle !
+
+« Même si je ne peux pas la briser, je dois essayer !! »

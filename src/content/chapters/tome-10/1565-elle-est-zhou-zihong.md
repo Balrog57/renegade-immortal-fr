@@ -1,0 +1,129 @@
+---
+n: 1565
+title: Elle est Zhou Zihong
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: Chapter 1565 - She is Zhou Zihong
+slug: elle-est-zhou-zihong
+---
+« À cette époque, la planète Suzaku était une planète presque abandonnée, et le cultivateur le plus puissant de Hou Feng n'était qu'au stade de l'Âme Naissante... » Les yeux de la femme étaient empreints de nostalgie. Elle avait quitté la planète Suzaku il y a bien longtemps, mais elle ne pouvait oublier ces souvenirs.
+
+Alors qu'elle parlait, presque tous les cultivateurs de l'auberge commencèrent à l'écouter. Certains s'approchèrent même, le regard fasciné.
+
+« La planète Suzaku est le berceau du Seigneur du Royaume Scellé... Il y a grandi et a lentement gravi les échelons pour atteindre la gloire qu'il connaît aujourd'hui... » Le lettré d'âge mûr laissa échapper un soupir.
+
+« Je suis une cultivatrice du pays de Hou Feng, et notre pays a subi une catastrophe qui nous a forcés à migrer vers le pays voisin de Xuan Wu. Xuan Wu n'était pas disposé à nous accueillir, alors une guerre éclata entre les deux nations... » Les combats du passé semblèrent défiler devant la femme en violet.
+
+« Ma Liang... Peut-être était-il vraiment le Seigneur du Royaume Scellé. À l'époque, il avait déjà laissé sa marque. Bien qu'il ne fût qu'un cultivateur de l'Établissement des Fondations, des centaines de personnes de même niveau de culture étaient tombées sous ses coups. » La voix douce de la femme en violet résonna dans l'auberge.
+
+Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
+
+« Au stade de l'Établissement des Fondations et tuer des centaines de personnes de même niveau... C'est... c'est presque impossible ! »
+
+« Rien n'est impossible. Comment le Seigneur du Royaume Scellé pourrait-il être quelqu'un que notre imagination puisse concevoir ? »
+
+« Plus le niveau de culture est bas, plus l'écart entre les échelons est réduit. Bien que la différence ne soit pas négligeable, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque ; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer des Nuages ! »
+
+Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur excité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
+
+« Maître... » Le cultivateur en noir était Thirteen. Ses yeux brillaient d'excitation et son esprit était embrumé. Wang Lin était apparu si soudainement que Thirteen n'avait eu aucun avertissement.
+
+Le jeune homme en blanc était Wang Lin.
+
+Après avoir réglé les affaires du Royaume aux Sept Couleurs dans la Rivière des Invocations, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
+
+En passant par là, il avait senti la présence de Thirteen et l'aura de la statue du démon antique, ce qui l'avait amené ici.
+
+En voyant le Thirteen devenu un homme, Wang Lin afficha un regard de soulagement. Il se souvenait encore de leur première rencontre dans les Terres des Esprits Démoniaques. Sa détermination et sa loyauté étaient restées intactes ; même après plus de 1 000 ans, Thirteen était toujours le même.
+
+« Cet enfant ressemble de plus en plus à ce que j'étais à mes débuts. » Wang Lin soupira. L'aura froide de Thirteen rappelait étrangement la sienne lorsqu'il se trouvait sur la planète Suzaku.
+
+Thirteen prit une profonde inspiration et s'apprêta à parler, mais en voyant Wang Lin secouer la tête, il se tut. Cependant, l'excitation et le respect dans ses yeux étaient palpables.
+
+Pour lui, Wang Lin était son maître et son bienfaiteur. Sa vie entière avait basculé grâce à lui. Même s'il devait mourir, il n'oublierait jamais ce que Wang Lin lui avait offert.
+
+Il était Thirteen, le royal et impavide Thirteen !
+
+« Plus tard, durant cette guerre, on n'eut plus de nouvelles de lui. Je me souviens qu'il s'apprêtait à quitter le pays de Hou Feng, et je l'ai rencontré juste avant... » dit calmement la femme en violet, ce qui apaisa les discussions autour d'elle.
+
+Personne n'avait remarqué l'entrée du jeune homme en blanc. Toute l'attention était captée par la femme en violet.
+
+« Par la suite, j'ai entendu dire qu'il avait sauvé Li Muwan et que, poursuivi par un cultivateur de la Formation du Noyau, il s'était enfoncé dans un lieu extrêmement dangereux sur la planète Suzaku... On l'appelait... la Mer des Démons. » La voix de la femme en violet résonnait tandis qu'elle exhumait le passé.
+
+En écoutant le récit, Wang Lin saisit une coupe et but une gorgée. Ses yeux étaient empreints de souvenirs et un léger sourire étira ses lèvres. Il se remémora Li Muwan traquée par ce cultivateur de la Formation du Noyau, son regard impuissant et ses appels à l'aide.
+
+Thirteen prit la cruche de vin et servit son maître.
+
+« Un cultivateur de la Formation du Noyau ? Humph, ce type est-il encore en vie ? Il a osé s'en prendre au Seigneur du Royaume Scellé ! S'il survit, c'est que son niveau de culture ne peut pas être très élevé. Même si le Seigneur du Royaume Scellé s'en moque, ce vieil homme, lui, lui arrachera l'âme ! »
+
+« C'est vrai, il a provoqué le Seigneur du Royaume Scellé, ce qui revient à provoquer tous les cultivateurs des quatre grands systèmes stellaires ! »
+
+« Dame Zhou, quel est le nom de ce cultivateur maléfique qui traquait le Seigneur du Royaume Scellé ? »
+
+La femme en violet secoua la tête et répondit doucement : « J'ai oublié... Je n'ai plus jamais revu le Seigneur du Royaume Scellé après cela. Cependant, des centaines d'années plus tard, j'ai entendu dire qu'un cultivateur nommé "Wang Lin" avait ébranlé la planète Suzaku. C'était un cultivateur du pays de Zhao qui, alors qu'il n'était qu'au stade de l'Établissement des Fondations, avait offensé un cultivateur de l'Âme Naissante nommé "Teng", lequel avait massacré sa famille. »
+
+C'était la première fois que beaucoup de ces cultivateurs entendaient ce récit. Ils pouvaient imaginer que la douleur endurée par le Seigneur du Royaume Scellé à cette époque était au-delà de ce qu'un homme ordinaire pouvait supporter.
+
+« Ensuite, il est retourné dans le pays de Zhao et a accompli un acte qui choqua la planète Suzaku. Des fleuves de sang ont coulé dans le pays de Zhao... De véritables rivières de sang. Toute la famille de ce cultivateur de l'Âme Naissante fut exterminée, sans qu'aucun ne survive... »
+
+« Il n'était pas un gentleman ; il a purement et simplement déchaîné sa haine. Tous ceux qui portaient le sang de la famille Teng furent massacrés... Les rumeurs disaient que le ciel du pays de Zhao était devenu rouge sang... » La voix de la femme en violet restait calme, mais les cultivateurs alentour pouvaient ressentir l'intention meurtrière monstrueuse et la haine qui s'en dégageaient.
+
+Ils croyaient presque entendre le rugissement assourdissant que Wang Lin avait poussé après avoir accompli sa vengeance et anéanti la famille Teng jusqu'à ses racines !
+
+Wang Lin méditait en silence, buvant ses coupes de vin une à une. Thirteen continuait de servir. C'était la première fois qu'il entendait l'histoire de Wang Lin, ce qui le maintenait lui aussi dans un mutisme respectueux.
+
+« Bien, c'est ainsi qu'on doit concevoir une vengeance ! »
+
+« Ce petit Teng de l'Âme Naissante méritait sa mort, mais toute sa famille... » Certains cultivateurs semblaient en désaccord.
+
+« Humph, vous n'êtes pas le Seigneur du Royaume Scellé, comment pourriez-vous ressentir la douleur et le désespoir de voir tous vos proches massacrés ? Ce vieil homme ne pense pas qu'il soit allé trop loin ! »
+
+Tandis que les murmures circulaient, la voix de la femme en violet continuait de résonner.
+
+Wang Lin but tout son vin d'un trait, posa sa coupe et regarda au loin. Le mal du pays l'assaillait ; ses parents lui manquaient et il désirait les revoir.
+
+« Allons-y. » Wang Lin se leva et sortit de l'auberge. Thirteen laissa quelques pierres spirituelles et suivit Wang Lin.
+
+« Je n'ai connu que le passé du Seigneur du Royaume Scellé. Il avait initialement la possibilité de devenir le seigneur de la planète Suzaku, mais il a finalement choisi de partir... Sur la planète Suzaku, il existe une statue de lui veillant sur la planète... » Alors qu'elle parlait, la femme en violet sembla remarquer quelque chose et tourna inconsciemment la tête vers la porte de l'auberge.
+
+Son regard passa sur Thirteen et s'arrêta sur le dos de Wang Lin.
+
+« Cet homme m'est familier... »
+
+Wang Lin souleva le rideau de la porte de l'auberge et tourna la tête. Il croisa le regard de la femme en violet qui l'observait et esquissa un sourire. Il secoua doucement la tête et sortit.
+
+Thirteen suivit Wang Lin hors de l'établissement.
+
+La femme en violet trembla et resta pétrifiée. Le sourire de l'homme en blanc imprégna son esprit. Cette image commença à se superposer à celle de son passé.
+
+« Il... Il est... » La femme en violet frissonna, saisie d'incrédulité. Son esprit était vide, mais ce sourire devenait de plus en plus net et profond, comme s'il allait jaillir de sa conscience.
+
+« C'est lui !! »
+
+« Sœur aînée, qu'y a-t-il ? » La femme en rose, voyant sa sœur aînée saisie d'un sursaut, la secoua doucement. Elle suivit son regard, mais ne vit que le rideau de la porte osciller légèrement sous la brise.
+
+Non seulement elle, mais tous les cultivateurs environnants se tournèrent également. Cependant, ils ne virent que le mouvement léger du rideau, rien d'autre.
+
+« Rien... » La femme en violet s'appelait Zhou Zihong.
+
+Elle replaça machinalement une mèche de cheveux derrière son oreille et reprit le récit de ses souvenirs. En parlant, elle afficha un sourire mélancolique, se remémorant le sourire de Wang Lin lorsqu'il s'était retourné.
+
+Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Thirteen étant agenouillé devant lui.
+
+« Maître, Thirteen est prêt à vous suivre ! »
+
+« Thirteen, tu es mon premier disciple et celui qui m'accompagne depuis le plus longtemps. » La voix de Wang Lin était douce et son regard envers Thirteen était empreint d'une grande bienveillance.
+
+Thirteen hocha la tête avec respect, ses yeux brillant d'un profond attachement. Pour lui, Wang Lin était un maître qui lui était semblable à un père.
+
+« Cependant, si un oiseau veut grandir, il doit affronter seul le vent et la pluie, braver la puissance du monde et surmonter les tempêtes pour s'élever au-dessus des nuages. Tu as très bien agi... » Wang Lin tapota l'épaule de Thirteen.
+
+« Mais Maître... » Thirteen allait parler quand Wang Lin secoua la tête pour l'interrompre.
+
+Wang Lin fit face à Thirteen et dit lentement : « Thirteen, mon disciple ne peut être un cultivateur qui reste sous ma protection. Mon disciple doit posséder le cœur d'un cultivateur défiant les cieux. Il doit avoir la détermination de lutter contre le destin ! »
+
+« Mon disciple doit être un dragon parmi les hommes, dominant le ciel lui-même. Il doit susciter l'admiration de tous lorsqu'il proclamera qu'il est mon premier disciple ! »
+
+« Maître !! » Thirteen, exalté, hocha la tête vigoureusement.
+
+« Bien sûr, si quelqu'un ose t'opprimer, ton maître ne le permettra pas ! À partir d'aujourd'hui, tu traceras ton propre chemin en tant que mon premier disciple ! » Wang Lin avait passé plus de temps avec Thirteen qu'avec n'importe quel autre disciple et éprouvait pour lui un attachement unique. Tout en parlant, sa main droite lui caressa la tête.

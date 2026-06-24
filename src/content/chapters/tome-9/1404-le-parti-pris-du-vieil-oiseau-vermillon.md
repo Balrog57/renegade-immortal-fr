@@ -1,0 +1,115 @@
+---
+n: 1404
+title: Le parti pris du vieil Oiseau Vermillon
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1404 - The Biased Old Vermillion Bird
+slug: le-parti-pris-du-vieil-oiseau-vermillon
+---
+« Quelques vieux briscards sont arrivés. » Juste au moment où tous levèrent les yeux, la voix du vieil Oiseau Vermillon résonna dans le ciel d'un ton moqueur. Tandis qu'il descendait, le feu éthéré qui l'entourait se dispersa et s'évanouit sans laisser de trace.
+
+Cela révéla la silhouette de Wang Lin derrière le vieil Oiseau Vermillon.
+
+À l'instant même où Wang Lin apparut, plusieurs regards se posèrent sur lui.
+
+Le premier venait de Maître Simo. Son regard était glacial, empreint d'une intention meurtrière.
+
+Le second était doux, contenant une pointe de confusion et de nostalgie. Il émanait de la jeune fille enveloppée d'une lumière bleue.
+
+Le troisième venait du bel homme qui mangeait une pêche. Ses yeux brillaient et il afficha un sourire qui n'en était pas un.
+
+L'expression de Wang Lin resta calme alors que son regard balayait le père et la fille enveloppés de lumière bleue. Une lueur de complication passa dans ses yeux, mais elle se dissipa rapidement.
+
+Wang Lin joignit les mains et dit respectueusement : « Ce junior salue le Senior Dao Maître Blue Dream. »
+
+Dao Maître Blue Dream sourit, hocha la tête et répondit : « Je t'ai vraiment sous-estimé auparavant. »
+
+Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Dao Maître Blue Dream. Puis son regard glissa vers Li Qianmei ; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Simo.
+
+« Petit gamin, qu'est-ce que tu regardes ? Es-tu mécontent de ce vieil homme ? Veux-tu le défier ? Viens donc te battre, ce vieux va jouer avec toi ! » L'Oiseau Vermillon ne possédait aucune des manières d'un aîné alors qu'il fixait Maître Simo en faisant un geste provocateur de l'index.
+
+Le visage de Maître Simo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Tombées. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui ; ce vieux fou n'était pas facile à gérer.
+
+L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement : « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
+
+« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior ? Tu mérites une correction ! » Peu importe la façon dont l'Oiseau Vermillon regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
+
+Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Simo se rétractèrent également ; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
+
+Maître Simo recula précipitamment devant ce fracas. Sa main tremblait et son visage était pâle. Un feu éthéré brûlait en lui et clignota trois fois. À chaque éclat, la puissance de combustion à l'intérieur de son corps augmentait.
+
+Après ces trois éclats, le corps de Maître Simo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
+
+« Senior, vous intimidez un junior devant tout le monde ! Qu'est-ce que cela signifie ?! » La colère se lut sur le visage de Maître Simo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
+
+Maître Simo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Luo s'avança et posa sa main sur son dos. Elle utilisa un sort secret pour tenter d'améliorer l'aspect de Maître Simo, mais celui-ci restait d'une pâleur mortelle.
+
+« Le fort opprimant le faible ? Parbleu, tu sais même ce que cela signifie ? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles ? Et alors, si c'est le cas ?! » L'Oiseau Vermillon cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il possédait en réalité un tempérament explosif dès qu'il était célèbre. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
+
+Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Simo et lui asséna une gifle directe.
+
+Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Son visage gonfla, prenant une teinte violacée.
+
+Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait : « Senior, arrêtez, le Conseil Souverain... »
+
+Avant qu'elle ne puisse achever sa phrase, l'Oiseau Vermillon lui lança un regard féroce. « Petite fille, tais-toi ! Si tu ne te tais pas, je te giflerai aussi ! Ce vieil homme va opprimer les faibles aujourd'hui ! »
+
+Cela força Grand Maître Yun Luo à se mordre la lèvre et à se taire.
+
+Maître Simo venait à peine de stabiliser sa posture que sa vision se troubla.
+
+« Qui es-tu pour oser traiter mon junior de "petit bâtard" ? Tu es un bâtard, et toute ta famille est composée de bâtards ! » Tandis qu'il parlait, l'Oiseau Vermillon se rapprocha à nouveau et envoya une gifle de la main gauche.
+
+Maître Simo poussa un râle étouffé et cracha du sang. Repoussé, la colère monta en lui, mais cette rage ne fit qu'accroître la puissance du feu dans son corps. Il poussa un cri misérable et tenta de réprimer sa rage.
+
+« Si mon junior est un bâtard, cela ne fait-il pas de moi un bâtard aussi ? Bon sang, tu oses insulter ce vieil homme ? » Le vieil homme fixa Maître Simo et le poursuivit.
+
+« Le junior n'a pas... » L'esprit de Maître Simo trembla ; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que l'Oiseau Vermillon. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
+
+Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sang ainsi que quelques dents. Son corps fut projeté au loin.
+
+« Humph, tu oses insulter ce vieil homme ?! » Une lueur meurtrière traversa les yeux de l'Oiseau Vermillon. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles ; il lui aurait instantanément pris la vie !
+
+L'Oiseau Vermillon osait défier les dragons et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si n'avait été l'Oiseau Vermillon, quiconque aurait montré une certaine hésitation, car le Conseil Souverain soutenait Maître Simo.
+
+Cependant, l'Oiseau Vermillon n'en avait cure. Il n'avait qu'une seule pensée : personne ne pouvait provoquer le Clan de l'Oiseau Vermillon ! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
+
+Le parti pris du Clan de l'Oiseau Vermillon se transmettait de génération en génération.
+
+Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de l'Oiseau Vermillon.
+
+La personnalité de Wang Lin était parfois très simple : ceux qui lui étaient bienveillants recevaient des faveurs multipliées par cent. À l'instar de Situ Na, Qing Shui, de l'Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les 10 000 cultivateurs des Terres Tombées manifestèrent un immense respect, et les dix messagers levèrent également les yeux vers le ciel avec déférence.
+
+Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
+
+Après avoir giflé Maître Simo à plusieurs reprises, l'Oiseau Vermillon détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Simo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
+
+« Ce vieil homme est très heureux que vous soyez tous ici. Bien qu'il manque encore quelques vieux briscards, ce n'est pas grave. Puisque tout le monde est présent, je veux que vous soyez tous témoins de l'épreuve de mon troisième Jeune Empereur des Terres Tombées ! »
+
+« S'il réussit l'épreuve, il deviendra un véritable Jeune Empereur. Faire de lui votre ennemi revient à faire de ce vieil homme votre ennemi, et des Terres Tombées votre ennemi ! » L'Oiseau Vermillon joignit les mains face à l'assemblée. Il prit Wang Lin par l'épaule et désigna le bel homme.
+
+« Petit compagnon, tu connais Dao Maître Blue Dream, je ne te le présenterai donc pas. Tu vois ce jeune homme qui mange une pêche ? Ne le prends pas pour un enfant, c'est en réalité un vieux monstre. Tu as peut-être déjà entendu parler de lui : il est l'un des cinq maîtres, Dao Maître Miao Yin ! »
+
+L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait déjà entendu le nom de Dao Maître Miao Yin. Il observa le jeune homme, mais ne décela aucune trace de culture ; Wang Lin joignit alors les mains en signe de salut.
+
+Le bel homme rit et hocha la tête vers Wang Lin.
+
+« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Tai Huang. Sa culture du poison lui a valu une grande renommée ! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
+
+Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid. Ses lèvres ne bougèrent pas, mais une voix émana de son corps :
+
+« Vieux oiseau, ce vieil homme n'est pas venu pour témoigner, je suis ici pour te défier ! Cependant, ton junior n'est pas mauvais, alors je t'offre ceci en guise de protection ! » Le vieillard leva la main droite et fit un mouvement sec. Un morceau d'ongle de son index se détacha et vola vers Wang Lin.
+
+Dans un éclat de lumière, le fragment d'ongle flotta devant Wang Lin.
+
+Les yeux de l'Oiseau Vermillon s'écarquillèrent en entendant l'insulte « vieux oiseau », mais lorsqu'il vit l'ongle, il éclata de rire. « Espèce de petit insecte empoisonné, tu es plutôt généreux ! »
+
+« Prends-le. Cette chose contient le venin de ce petit insecte. C'est une arme redoutable contre tes ennemis ! »
+
+Tandis qu'il parlait, l'Oiseau Vermillon leva la main droite et fit un geste vers l'arène. Il cria : « La sélection de l'Ancien Déchu est reportée, et l'épreuve du Jeune Empereur commence ! »
+
+Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la carapace géante qui entourait l'arène apparut.
+
+La tortue était immense et d'une férocité extrême. C'était une vision inoubliable ! Une force puissante se propagea, et les 10 000 cultivateurs environnants firent preuve d'un profond respect tout en évitant l'onde de choc.
+
+La tortue géante poussa un rugissement. Une fois apparue, elle leva les yeux vers le vieil Oiseau Vermillon.

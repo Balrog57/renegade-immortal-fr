@@ -1,0 +1,121 @@
+---
+n: 849
+title: "Reculer d'un pas"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 849 - Retreat One Step
+slug: reculer-dun-pas
+---
+Wang Lin observait tout avec calme. Son cœur ne vacillait pas, et il n'y avait ni joie ni tristesse dans son regard.
+
+À l'intérieur du hall ancestral, les visages des deux jeunes filles étaient empreints de panique et d'impuissance. Le corps de la cadette tremblait tandis qu'elle s'agrippait désespérément à sa sœur aînée, comme si c'était là son unique refuge.
+
+« Grande sœur, j'ai peur, j'ai tellement peur… » La voix de la fillette était tremblante. Elle serrait les vêtements de son aînée avec une telle force que ses doigts en devenaient pâles.
+
+Tout en tenant sa petite sœur, le visage de Yao Bingyun s'était vidé de toute couleur et la terreur dans ses yeux avait atteint son paroxysme. Elle avait le sentiment diffus que ce qui les attendait allait être bien plus terrifiant que la vie ou la mort !
+
+Un vieil homme était assis face aux deux fillettes. Il portait une robe rouge sang, et ses yeux, ses sourcils ainsi que ses cheveux étaient d'un rouge éclatant. Il semblait très âgé, et lorsqu'il ouvrit les yeux, une lumière intangible en jaillit.
+
+« En tant que membres de la famille Yao, afin que notre lignée connaisse des générations de gloire, vous deux deviendrez l'âme du trésor ! »
+
+Alors qu'il parlait, il leva sa main droite. Une fissure de trois pieds de long apparut devant lui d'où s'engouffra un vent glacial. Puis, une lampe antique en sortit lentement.
+
+La lampe à huile dégageait une flamme bleue qui brûlait avec lenteur. Elle ne produisait aucune chaleur, mais était au contraire d'une froideur inimaginable.
+
+La lampe flotta doucement pour se placer entre les deux jeunes filles et le vieil homme. La flamme se mit aussitôt à vaciller violemment, projetant des étincelles vers les fillettes.
+
+« Ce trésor appartient à la famille Yao. Depuis la création du Royaume Céleste, il ne s'est jamais éteint. Il est le symbole même de la vie ! Cependant, il y a cinq cents ans, il a montré des signes d'extinction. Ce vieil homme a calculé pendant longtemps avant d'en trouver enfin la raison. »
+
+« L'âme du trésor est sur le point de se dissiper et, une fois cette dissipation accomplie, le feu s'éteindra définitivement… Alors, ce vieil homme a passé trois cents ans à extraire une partie de l'âme du trésor pour l'insérer dans la membre la plus talentueuse du clan Yao. Après l'avoir nourrie pendant deux cents ans, elle a donné naissance à vous deux ! »
+
+« C'est votre destin, vous ne pouvez pas y échapper ! Vous êtes nées pour devenir l'âme du trésor ! » La voix du vieil homme était d'un calme absolu.
+
+À peine eut-il fini de parler que la flamme de la lampe s'intensifia brusquement, se transformant rapidement en un nuage de feu.
+
+En mouvement, ce nuage prit la forme d'un démon. Il possédait deux cornes et une stature démesurée. Son corps, entièrement constitué de flammes, s'élança avec fracas !
+
+« Un démon antique ! » En voyant cela, l'esprit de Wang Lin trembla.
+
+Le démon né du feu était un démon antique ! Dès son apparition, le hall ancestral fut enveloppé par les flammes. Le féroce démon ouvrit la gueule et fondit sur les deux jeunes filles.
+
+La fillette qui s'agrippait aux vêtements de sa sœur poussa un cri : « Grande sœur !! » La terreur dans cette voix était telle qu'elle fit frémir le cœur de Wang Lin.
+
+Le visage de l'aînée était livide, son horreur ayant atteint ses limites. Elle avait peur, une peur indicible. Elle n'avait jamais éprouvé une telle crainte de sa vie.
+
+Voyant le démon s'approcher, la jeune femme fut submergée par l'effroi et recula involontairement d'un pas !
+
+Sa petite sœur se retrouva alors devant elle. Le démon l'engloutit et se retira aussitôt.
+
+Les vêtements de l'aînée furent déchirés par la poigne désespérée de sa cadette…
+
+« Grande sœur… Grande sœur… Sauve-moi… Sauve… » Ses lamentations déchirantes résonnaient dans le hall ancestral. Mais alors que le démon la dévorait, il s'arrêta soudainement.
+
+La grande sœur s'effondra au sol, les larmes coulant sur son visage. Elle se mordit la lèvre inférieure jusqu'au sang, les yeux emplis de remords. Elle se redressa et se précipita vers le démon.
+
+« Petite sœur, petite sœur… Rendez-moi ma petite sœur ! Dévorer-moi à la place !!! »
+
+Le corps du démon se tordit et retourna dans la lampe sans laisser de trace. La flamme à l'intérieur de la lampe brilla intensément, laissant entrevoir l'image claire d'une jeune fille se débattant au cœur des flammes.
+
+« Grande sœur… Grande sœur… »
+
+Le vieil homme, témoin de la scène, afficha un regard mystérieux. D'un revers de ses larges manches, il repoussa la jeune femme. Il fixa la flamme et un sourire se dessina progressivement sur ses lèvres.
+
+« Je ne l'avais pas prévu… je ne l'avais pas prévu… Je n'aurais besoin que d'une seule personne pour devenir l'âme du trésor. Peu importe, puisque c'est ainsi, tu peux vivre ! »
+
+La grande sœur était comme une âme évidée. Ses yeux étaient vides alors qu'elle fixait la lampe à huile. Le remords qui marquait son visage était un déluge qui l'avait noyée.
+
+« Petite sœur… Grande sœur ne voulait pas, je ne le voulais vraiment pas… J'aurais dû être dévorée… Ce aurait dû être moi… Petite sœur… » Le visage de Yao Bingyun était baigné de larmes et son corps tremblait. À cet instant, elle ne ressentait plus de peur, mais seulement un regret infini.
+
+« Je n'aurais pas dû reculer… Avant que Mère ne parte, elle m'avait dit de prendre soin de ma petite sœur, mais je ne l'ai pas fait… Je n'aurais pas dû reculer… » Yao Bingyun regarda la lampe avec désespoir, se mordit la lèvre et s'agenouilla. Elle cria : « Ancêtre Grand-père, moi, Yao Bingyun, je suis prête à devenir l'âme du trésor. Même si cela dure toute une vie, j'accepterai sans la moindre plainte. Je vous en prie, Ancêtre Grand-père, laissez Mengyun sortir en échange de ma vie pour devenir l'âme du trésor. Je vous en supplie, Ancêtre Grand-père ! Je vous en conjure ! Je vous en conjure… »
+
+Le visage de Yao Bingyun était inondé de larmes ; elle continuait de se prosterner jusqu'à ce que le sang coule de son front, sans jamais s'arrêter. Ses supplications étaient si poignantes qu'elles auraient pu émouvoir n'importe qui. Son comportement laissa même Wang Lin silencieux !
+
+Ses cris résonnèrent dans tout le hall et parvinrent jusqu'aux oreilles de Yao Yun. Les yeux de ce dernier devinrent rouges ; il poussa un rugissement et lutta pour se redresser. Mais alors qu'il s'apprêtait à s'élancer à l'intérieur, une force jaillit du temple, projetant Yao Yun à l'extérieur dans un jet de sang.
+
+« La famille Yao va périr ! »
+
+Le vieil homme observa Yao Bingyun, agenouillée et suppliante. Sa voix lugubre avait pénétré son esprit, et il ne put s'empêcher de sombrer dans le silence. Une trace de confusion, chose rare pour lui, apparut dans ses yeux.
+
+Cependant, sitôt cette confusion née, il la réprima aussitôt. Sa main droite s'étira vers le vide, faisant tomber la lampe dans sa paume, et il déclara calmement : « C'est le destin de Yao Mengyun. Je n'ai aucune intention de le changer ! »
+
+Tout en parlant, il replaça la lampe dans la fissure. D'un mouvement de manches, il fit lentement se refermer l'ouverture.
+
+« Petite sœur !! » Yao Bingyun regarda la fissure disparaître et poussa un cri d'une tristesse absolue. Ce qui fut terrifiant, c'est que le Dao de Wang Lin en fut affecté, manquant de s'effondrer.
+
+« Petite sœur, tu dois être forte, sois forte et attends ta grande sœur. Je ne t'ai pas encore emmenée voir le marchand de bonbons, je ne t'ai pas encore emmenée trouver Mère… Petite sœur, sois forte et attends que je vienne te sauver ! Petite sœur, je viendrai certainement te sauver. C'est ma promesse, c'est l'engagement de ta grande sœur ! »
+
+Accompagné de ce cri funèbre, tout ce que Wang Lin voyait se désintégra. Le hall ancestral disparut. La lampe à huile disparut. Le vieil homme disparut. La fissure disparut. Tout vola en éclats pour retourner au néant d'où cela venait !
+
+La seule chose subsistante était Yao Bingyun, assise par terre. Ses yeux étaient remplis de remords et de froideur… !
+
+« Quiconque pourra sauver ma petite sœur, moi, Yao Bingyun, deviendra votre servante pour les générations à venir. Même si cela signifie que je dois perdre toute conscience, tant que je peux sauver ma petite sœur, je… je suis prête !! Sans aucun regret !! » Sa voix lugubre résonna entre le ciel et la terre, révélant la détermination glaciale de Yao Bingyun, mais surtout son immense impuissance !
+
+Le Sens Divin de Wang Lin fut bouleversé. Il avait personnellement expérimenté le Dao de Yao Bingyun pour confirmer le sien ; par extension, le Dao de cette jeune fille s'était exposé à lui.
+
+L'image de ces deux petites filles l'une dépendant de l'autre resta gravée dans son esprit pendant un long moment.
+
+« Je… peux… »
+
+Yao Bingyun, agenouillée au sol, leva la tête comme si elle avait entendu quelque chose. Pourtant, son corps commença à disparaître progressivement.
+
+Alors que tout s'effondrait devant lui, Wang Lin poussa un soupir.
+
+Une autre scène apparut peu à peu devant ses yeux.
+
+C'était sous un iceberg. Yao Bingyun avait grandi. Elle était assise là, le regard droit devant elle, les yeux emplis de tristesse.
+
+« Petite sœur, même si je n'ai plus d'émotions à l'avenir et que je deviens une personne de glace, je ne t'oublierai pas. Sois forte et attends-moi ! » Des larmes coulèrent sur les joues de Yao Bingyun, mais elle ne les essuya pas. Au lieu de cela, elle ferma les yeux et commença à pratiquer la technique céleste interdite de la famille Yao : la Tactique du Sceau de l'Âme !
+
+Cette méthode de culture coupait court à toutes les émotions et à tout lien. Une fois maîtrisée, on devenait d'une froideur extrême. Cette culture était le Dao de l'impitoyabilité !
+
+« Utiliser un cœur rempli d'amour pour cultiver un Dao impitoyable… » Wang Lin soupira. Il avait parfaitement percé à jour le cœur du Dao de Yao Bingyun.
+
+« Son cœur du Dao est sa sœur, et son domaine est la cruauté, plutôt que la gloire ancestrale de la famille Yao… » La silhouette de Wang Lin apparut aux côtés de Yao Bingyun. Il la regarda et secoua la tête.
+
+« Peu importe, je pourrais briser son cœur du Dao, mais… » Wang Lin jeta un dernier regard vers elle avant de disparaître.
+
+Sur le Pic Heng Yun, Wang Lin ouvrit les yeux. Il leva sa main droite et soupira : « Tu m'as poursuivi, mais tu m'as aussi aidé à progresser. Le karma entre nous est désormais accompli. » Wang Lin agita la main et tous les sceaux pesant sur Yao Bingyun se dissipèrent. Son corps s'éleva alors dans le ciel.
+
+Suspendue dans les airs, Yao Bingyun ouvrit lentement les yeux. Une lueur de confusion passa dans son regard avant qu'elle ne s'interrompe pour regarder Wang Lin assis là. Ses yeux étaient empreints d'émotions complexes. Après un long silence, elle dit doucement : « Crois-tu à la réincarnation… À l'époque, quand j'étais dans le hall ancestral de la famille Yao, j'ai entendu une voix me dire… Il pourrait... »
+
+« C'était toi ? »

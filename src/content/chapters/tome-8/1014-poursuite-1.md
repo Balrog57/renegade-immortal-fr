@@ -1,0 +1,125 @@
+---
+n: 1014
+title: Poursuite (1)
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1014 - Pursue (1)
+slug: poursuite-1
+---
+Son corps de dieu ancestral mesurait des milliers de pieds de haut, donnant l'impression que Wang Lin pouvait soutenir les cieux. Le fourneau de dieu ancestral étincela et il apparut devant un tourbillon.
+
+Ce tourbillon ne pouvait être détruit par la force ; Wang Lin avait déjà tiré les leçons de ses expériences passées.
+
+Dès que son corps apparut, les yeux de Wang Lin s'illuminèrent. Il laissa échapper un rugissement et, au lieu d'invoquer le bouclier de lumière azur, il affronta le tourbillon de son propre corps !
+
+« Je veux voir comment la puissance de ce tourbillon se compare à mon corps de dieu ancestral ! »
+
+Le tourbillon se déplaçait à une vitesse stupéfiante et percuta instantanément Wang Lin. Le contact étroit avec lui fit ressentir à Wang Lin comme si une vague déchaînée s'écrasait contre lui.
+
+En particulier, des vents violents hurlaient au sein de cette vague, cherchant à déchirer son corps en morceaux pour les absorber dans le tourbillon.
+
+Lorsque le tourbillon percuta pleinement le corps de Wang Lin et tenta de le mettre en pièces, il s'engouffra également en lui. Des craquements sinistres résonnèrent de l'intérieur du corps de Wang Lin, et celui-ci fut contraint de reculer de trois pas.
+
+Alors qu'il reculait, le fourneau de dieu ancestral brilla. Il réapparut à mille pieds de là et esquiva l'attaque de quatre tourbillons.
+
+L'expression de Wang Lin était grave. En utilisant son corps comme test, il put calculer avec précision combien de tourbillons sa carcasse pouvait supporter.
+
+« Un cultivateur ordinaire serait déchiqueté, et même son âme originelle ne pourrait s'échapper ! Même moi, avec mon corps de dieu ancestral, j'ai ressenti la douleur. Qu'est-ce que ce tourbillon, par tous les diables ?! » Une lueur de froideur passa dans les yeux de Wang Lin alors qu'un nouveau tourbillon fonçait vers lui.
+
+Une lumière bleue jaillit autour de Wang Lin tandis que le bouclier de lumière azur apparaissait et tournait autour de lui.
+
+« Si j'utilise le bouclier de lumière azur et mon corps de dieu ancestral, je devrais pouvoir repousser ces tourbillons ! » Wang Lin se précipita droit sur le tourbillon.
+
+Trois tourbillons se déplaçaient plus vite que les autres et, en chargeant Wang Lin, ils percutèrent le bouclier de lumière azur. Un grondement assourdissant retentit et le bouclier commença à vaciller sous l'impact.
+
+L'impact fut d'une violence inimaginable, forçant Wang Lin à battre en retraite. Neuf autres tourbillons se précipitèrent et s'écrasèrent contre le bouclier de lumière azur pendant qu'il reculait.
+
+Tandis que le bouclier de lumière azur tournait frénétiquement, Wang Lin recula encore une fois. C'était une retraite sans fin ; au fur et à mesure que les tourbillons continuaient de l'assaillir, il reculait inlassablement.
+
+Au moment où les neuf tourbillons se dissipèrent, Wang Lin avait reculé sur une distance inconnue. Bien qu'il fût un dieu ancestral, il n'était qu'au stade des cinq étoiles. Malgré le bouclier de lumière azur qui bloquait les assauts, la douleur ressentie fit perler une sueur froide sur son front.
+
+La crise n'était pas terminée ; quinze autres tourbillons fonçaient vers lui. Ces quinze tourbillons semblaient s'aligner avant de charger Wang Lin de concert.
+
+Même en utilisant le fourneau de dieu ancestral pour esquiver, il ne pourrait pas les séparer en raison de leur vitesse fulgurante.
+
+Rumble, rumble, rumble, rumble !
+
+Un son capable de faire trembler la terre retentit instantanément. Les quinze tourbillons percutèrent le bouclier de lumière azur et se dissipèrent, libérant une force inimaginable. Le bouclier fut presque écrasé contre le corps de Wang Lin.
+
+Le corps de Wang Lin trembla et un flot de sang jaillit de sa bouche, mais il l'avala aussitôt. Puis, son corps fut projeté en arrière comme un cerf-volant à la ligne rompue.
+
+Wang Lin s'écrasa au sol à des dizaines de milliers de pieds de là, déclenchant une onde de choc. Des quantités massives de sable furent projetées dans les airs et il fallut un long moment pour que la poussière retombe.
+
+Un immense cratère jonchait le sol. Wang Lin avait déjà repris sa taille humaine normale. Il laissa échapper un sourire amer en luttant pour se relever, puis sortit de la fosse.
+
+En contemplant le désert de sable noir et lisse, Wang Lin poussa un soupir de soulagement, bien que la peur persiste dans son regard.
+
+« C'est la première fois que mon corps de dieu ancestral à cinq étoiles est ainsi blessé. J'ignore ce qu'était ce tourbillon, mais sa puissance était phénoménale. Si je l'avais laissé se diviser une fois de plus, je n'aurais pas pu résister aujourd'hui. » L'expression de Wang Lin était sombre. Après la fusion de son corps originel et de son avatar, il pouvait combattre des cultivateurs du stade Nirvana Cleanser.
+
+Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Nirvana Cleanser ou du Nirvana Shatterer, surtout compte tenu de l'immense puissance de ce corps de dieu ancestral.
+
+Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre des Dieux Ancestraux. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
+
+« Récemment, j'ai eu la vie trop facile. L'augmentation de ma culture et l'intégration de mon corps originel m'ont rendu moins vigilant qu'auparavant... » Wang Lin songea silencieusement. Il serra le poing, le regard empreint de méfiance.
+
+Ce type de regard n'avait pas brillé dans ses yeux depuis longtemps. Grâce à cette crise, il avait retrouvé l'attitude prudente qui était la sienne autrefois.
+
+« Ceci est la grotte de l'Empereur Céleste Qing Lin. Elle est semée d'embûches, je ne dois faire preuve d'aucune négligence. Je dois rester sur mes gardes ! » Wang Lin prit une profonde inspiration. Il ne déploya pas son sens divin, mais le fit circuler prudemment autour de lui.
+
+Il avança lentement.
+
+Grâce à sa force mentale, il réalisa que bien qu'il y ait une chance que le gaz gris apparaisse, cela était principalement dû à l'utilisation de son sens divin.
+
+Bien que la puissance du gaz gris fût forte au début, il pouvait encore y résister. Cependant, il avait le vague sentiment que s'il déployait à nouveau son sens divin, ce qui surgirait ne serait pas du gaz gris, mais tout autre chose.
+
+Ce sentiment était très étrange, et il découlait des mille ans passés par Wang Lin à comprendre les lois célestes.
+
+Après avoir réfléchi un moment, les yeux de Wang Lin s'illuminèrent et il frappa son sac de stockage. Le drapeau d'âme apparut dans sa main et s'ouvrit dans un bruissement. La main gauche de Wang Lin plongea à l'intérieur pour en extraire un fragment d'âme.
+
+Ce fragment d'âme arborait une expression féroce, mais il avait depuis longtemps perdu sa volonté après avoir été raffiné dans le drapeau d'âme. Il flotta respectueusement devant Wang Lin. Ce dernier rangea le drapeau et pointa l'espace entre les sourcils du fragment d'âme, y laissant une parcelle de son sens divin.
+
+Une fois cela fait, il s'élança en avant. Quinze minutes plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il envoya un message !
+
+Le sens divin laissé sur le fragment d'âme se propagea. Cependant, à cet instant précis, un sentiment de danger inimaginable envahit l'esprit de Wang Lin. Il rompit immédiatement sa connexion sans la moindre hésitation.
+
+Au moment où le lien fut coupé, Wang Lin vit vaguement le ciel au-dessus du fragment d'âme s'agiter. Un rayon de lumière grise tomba des cieux et frappa le fragment, l'anéantissant totalement !
+
+Une sueur froide perla sur le front de Wang Lin. Heureusement, il s'était préparé et avait coupé sa connexion assez vite pour éviter que cela ne provoque de réaction à son emplacement. Il fixa le ciel au loin, le cuir chevelu picotant de terreur. Bien que la lumière grise eût disparu en un instant, la sensation que Wang Lin éprouva était plus terrifiante que des dizaines de tourbillons fusionnés.
+
+Après une longue réflexion, Wang Lin continua sa progression à travers le désert de sable noir. Il n'y avait ni nuit ni jour ; le ciel restait perpétuellement sombre, comme obstrué par une tempête de poussière.
+
+Wang Lin marcha très longtemps durant ce mois. Pendant tout ce temps, il ne croisa personne ; pas même un seul être vivant.
+
+Il n'y avait aucune plante ici. Outre lui-même, il n'y avait que le sable noir et stérile. À force de contempler ce paysage, l'esprit finirait par sombrer dans la mélancolie.
+
+L'expression de Wang Lin était plus sombre qu'à l'accoutumée. Cet endroit ressemblait à une terre interdite, une prison qui engendrait le désespoir au plus profond du cœur, un désespoir envers la vie elle-même.
+
+Même si les cultivateurs ne pouvaient être comparés aux mortels, s'ils restaient ici trop longtemps, ils subiraient cette oppression. Non seulement leur âme originelle se transformerait et leur personnalité deviendrait hostile, mais ils finiraient presque par devenir des démons.
+
+Si un cultivateur démoniaque se trouvait ici, cet endroit serait pour lui une terre sainte favorisant sa culture. Cependant, à la fin, son âme originelle se transformerait totalement en celle d'un démon et il deviendrait un humain-démon dépourvu de toute conscience.
+
+Tout au long du chemin, Wang Lin réfléchissait en silence tout en avançant lentement. Durant ce mois, il ne revit pas le mystérieux gaz gris. Pourtant, loin de disparaître, le sentiment de crise s'intensifiait à mesure qu'il progressait.
+
+À plusieurs reprises, Wang Lin sentit distinctement un sens divin passer près de lui comme une brise légère. Cependant, malgré ses recherches, il ne parvint jamais à en trouver la source.
+
+Il ne pouvait pas voler. Au cours de ce mois, il sortit un fragment d'âme qui s'envola vers le ciel. Après avoir atteint deux cents pieds d'altitude, le fragment s'effondra.
+
+Debout sur le sable, l'expression de Wang Lin devint plus lugubre encore. Des vapeurs noires parcouraient son visage, mais ses yeux restaient empreints de clarté.
+
+« Je me demande comment va Situ... Situ suit la voie démoniaque ; s'il était ici, il en tirerait certainement profit. »
+
+Wang Lin réfléchit, leva la main et effleura son visage. Des filaments noirs s'en échappèrent pour pénétrer dans sa main droite.
+
+En observant le gaz noir dans sa paume, Wang Lin sentit l'aura d'un démon dispersé.
+
+« Une énergie démoniaque... » Les yeux de Wang Lin s'illuminèrent et il serra la main sans pitié.
+
+Instantanément, le gaz noir se comprima puis explosa, couvrant mille pieds avant de se dissiper lentement. Wang Lin s'immobilisa en contemplant l'énergie démoniaque qui s'évanouissait, et une pensée lui traversa l'esprit.
+
+« Peut-être que je peux faire ça... » Il réfléchit un instant, puis reprit sa marche.
+
+Il ignorait sa destination. Dans ce désert de sable noir sans fin, rien ne pouvait lui indiquer les directions. Il n'avait d'autre choix que de continuer à marcher pour trouver la sortie.
+
+Le temps s'écoula de nouveau. En un clin d'œil, un autre mois passa. Après deux mois de captivité dans ce lieu, le gaz noir enveloppait désormais Wang Lin. De loin, il paraissait amaigri, tel un dieu démon.
+
+Il avançait lentement.

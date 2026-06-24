@@ -1,0 +1,119 @@
+---
+n: 838
+title: Bingyun
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 838 - Bingyun
+slug: bingyun
+---
+Wang Lin forma des sceaux de ses mains et les pressa contre sa poitrine à plusieurs reprises. Son aura disparut complètement et il laissa une trace de sens divin pour observer ce qui se passait à l'extérieur.
+
+Une aura glaciale remplit rapidement l'espace étroit. La source de cette froideur était un homme svelte, enveloppé par les tentacules.
+
+Il s'agissait d'un vieil homme. À l'origine, aucune vitalité ne résidait dans son corps, mais à mesure que l'aura glaciale envahissait la zone, une puissante vague de vitalité déferla en lui.
+
+Cette vitalité était si intense qu'elle fit gonfler le corps du vieillard comme un ballon. Cependant, la chose étrange était que les yeux de l'homme restaient clos, sans le moindre signe d'ouverture.
+
+Lorsque le sens divin de Wang Lin perçut cela, son esprit fut secoué. Grâce à son niveau de culture et à son domaine de la Vie et de la Mort, il pouvait clairement déceler une pointe d'aura mortelle au sein de cette vitalité ; toutefois, l'aura de mort était totalement suppressed par la force vitale.
+
+À mesure que la vitalité augmentait, le corps du vieil homme se dilatait de plus en plus. Une série de craquements retentit alors que les os de son corps se brisaient, incapables de résister à une telle force.
+
+En conséquence, privés de la structure de leurs os, ses membres se gonflèrent encore davantage.
+
+Une énergie glaciale se propagea follement depuis son corps, saturant l'environnement de froidure. Même les tentacules reculèrent lentement.
+
+Juste au moment où le corps du vieil homme atteignit une taille considérable, devenant presque une sphère de chair, un renflement apparut. Cette protubérance se déplaça rapidement à travers son corps.
+
+Des cris étouffés mais perçants émanèrent de l'intérieur du vieillard. Wang Lin connaissait très bien ce son. Dès qu'il l'entendit, son expression devint extrêmement sombre.
+
+À cet instant précis, le corps du vieil homme trembla et une fissure apparut sur sa peau. Une immense quantité d'énergie glaciale s'échappa de la brèche, suivie d'un rugissement strident provenant de l'intérieur, comme si la créature était en proie à une exaltation extrême.
+
+Les innombrables tentacules se mirent toutes à osciller, comme pour saluer la naissance de leur propre espèce !
+
+L'instant d'après, un objet svelte de six mètres de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
+
+Puis, l'objet de six mètres s'élança. Wang Lin fut stupéfait : c'était un petit Serpent Moongazer !
+
+Ce serpent était manifestement nouveau-né, et tous les tentacules sur son corps étaient transparents. Dès son apparition, il fit brusquement demi-tour pour engloutir le cadavre effondré du vieil homme.
+
+Le corps de l'homme sembla fondre pour être dévoré par le petit serpent. Ce dernier continua d'onduler tout en absorbant l'énergie glaciale environnante. Sa taille passa rapidement de six à trente mètres !
+
+Les tentacules autour de son corps virèrent lentement au rouge sombre et il devint soudainement féroce.
+
+En ondulant, il fonça comme l'éclair vers le vortex qui se trouvait devant lui. Il franchit le tourbillon sans aucune entrave.
+
+Une fois le serpent parti, les tentacules retrouvèrent progressivement leur état normal. L'énergie glaciale disparut lentement, réabsorbée par eux.
+
+Tout semblait être revenu à la normale, à une exception près : une personne manquait à l'appel. Les tentacules qui enveloppaient le vieil homme reculèrent lentement avant de disparaître dans le vide.
+
+Wang Lin ouvrit les yeux et poussa un soupir de stupéfaction.
+
+« Pas étonnant qu'il y ait tant de serpents Moongazer. D'après les souvenirs de Tu Si, si un serpent Moongazer reste trop longtemps hors du corps d'un Dieu Antique, il mourra sans aucun doute ! »
+
+« Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie ; il a presque instauré un cycle biologique... Ce serpent Moongazer doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible ! » Wang Lin connaissait bien le serpent Moongazer et pouvait désormais deviner avec certitude l'essentiel de ce qui s'était produit.
+
+Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Greed.
+
+Même à son apogée, le niveau de culture de Greed était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
+
+Après l'assaut du sens divin de Wang Lin, elle s'effondra rapidement.
+
+À l'instant où le sens divin de Greed fut anéanti, Wang Lin n'hésita pas à imprégner la rune de sa propre empreinte.
+
+Greed avait risqué une mort quasi certaine pour obtenir ce grand fourneau. Il savait qu'il s'agissait d'un trésor, mais ne pouvait le contrôler. Il finit par concevoir une méthode élaborée et consacra plus de mille ans à l'obtention de cette rune.
+
+Il avait soigneusement gravé la rune sur le fourneau pour en prendre le contrôle, mais désormais, tout cela profitait à Wang Lin.
+
+Alors que son sens divin s'imprégnait de la rune, une sensation étrange envahit Wang Lin. C'était un sentiment très familier qui créa une connexion entre lui et l'Armure de Cuir du Dieu Antique.
+
+Cependant, cette sensation était comme une fleur dans la brume, extrêmement vague. Une couche semblait le séparer de cet objet, l'empêchant de le saisir pleinement.
+
+Wang Lin comprit que la méthode utilisée pour contrôler le fourneau était erronée ; il ne faisait que prendre un raccourci, tout comme Greed. Bien que cela lui octroyât un contrôle de base, cela ne lui permettrait pas d'exploiter toute la puissance de l'artefact.
+
+Toutefois, Wang Lin n'était pas pressé. Ses yeux brillèrent et il murmura : « Tant que je retournerai dans le Système Stellaire de l'Alliance, ce fourneau révélera sa véritable puissance entre les mains de mon corps original ! »
+
+Puis, ses deux mains formèrent des sceaux en suivant cette sensation diffuse. Sous l'impulsion de son sens divin, le fourneau trembla et émit un bourdonnement. Une ondulation se propagea depuis lui tandis qu'une vapeur blanche s'en échappait. Ce gaz était si dense qu'il enveloppa Wang Lin. À cet instant, il eut l'impression de ne faire qu'un avec le fourneau. C'était une sensation merveilleuse.
+
+C'était comme s'il *était* le fourneau !
+
+D'une simple pensée, Wang Lin ordonna doucement : « Change de position ! »
+
+À ces mots, le fourneau trembla et disparut. Lorsqu'il réapparut, il se trouvait hors de l'étreinte des tentacules.
+
+Étrangement, les tentacules ne bougèrent pas et conservèrent leur position initiale, comme si, pour eux, le fourneau était toujours là.
+
+Le corps de Wang Lin émergea du fourneau, suivi par la vapeur blanche. À cet instant, il ressemblait à un être céleste chevauchant des nuages. Ses yeux s'illuminèrent alors qu'ils se posaient sur Yao Bingyun.
+
+Lorsqu'il avait étendu son sens divin autour du fourneau plus tôt, il avait remarqué Yao Bingyun. Mais comme il était concentré sur l'imprégnation de l'artefact, il n'avait pas pu l'examiner de près.
+
+Maintenant qu'il possédait le fourneau, il avait le temps de l'observer.
+
+À travers la glace, le corps à moitié nu de Yao Bingyun dégageait une beauté singulière. Elle était déjà magnifique, mais avec les yeux clos, elle ne dégageait plus la froideur d'autrefois ; elle exhalait plutôt une grâce charmante.
+
+Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi calme qu'une eau dormante.
+
+« La méthode de culture de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent Moongazer ne puisse rien absorber. »
+
+« Pourtant, elle a sous-estimé le serpent ! Bien que cette méthode soit efficace, je peux parier que cette glace finira par s'effondrer d'ici peu. » Les yeux de Wang Lin étaient froids tandis qu'il méditait, puis il leva la main droite et pressa la glace.
+
+« Vous m'avez traqué tout ce temps et avez failli me tuer à deux reprises. Si je ne prends pas ma revanche, alors je ne suis pas Wang Lin ! » Un sourire apparut sur ses lèvres alors qu'il exerçait une pression impitoyable sur la glace.
+
+Une immense quantité d'énergie originelle jaillit de son corps par le bout de son doigt pour pénétrer la glace. Un craquement fracassant retentit et une multitude de fissures commencèrent à se propager depuis son doigt vers l'extérieur.
+
+Les fissures s'arrêtèrent à un centimètre du corps de Yao Bingyun, incapables de progresser davantage.
+
+Alors que Wang Lin fixait Yao Bingyun derrière sa prison de glace, ses yeux se glacèrent. Encore plus d'énergie originelle afflua vers son doigt pour forcer l'entrée dans la glace.
+
+Tandis que les craquements résonnaient, Wang Lin ne s'interrompit pas. Il continua de circuler autour de Yao Bingyun, pointant différents endroits. Des morceaux de glace tombèrent en masse jusqu'à ce qu'il ne reste plus qu'une fine couche d'un centimètre autour d'elle.
+
+« Cette femme doit faire partie des meilleures de la troisième génération de la famille Yao. Puisque la famille Yao veut ma mort, je la transformerai en Garde Céleste. Même si cela échoue, peu importe ! » La détermination de Wang Lin était absolue. Face à un ennemi, il ne connaissait aucune pitié. Même face à une beauté extrême, il n'éprouvait aucune compassion.
+
+De plus, malgré sa splendeur, elle ne pouvait égaler Liu Mei.
+
+« Tout cela est une question de karma. Si vous ne m'aviez pas traqué, cela ne serait pas arrivé aujourd'hui ! » Wang Lin ouvrit la bouche et cracha une essence d'énergie originelle qui encercla directement la glace entourant Yao Bingyun. Tandis que l'énergie broyait la glace, sa main droite pointait inlassablement vers elle.
+
+Les craquements retentirent de nouveau et la protection glacée commença à se briser. En vérité, si son énergie originelle avait été présente lorsqu'elle utilisa ce sortilège, Wang Lin n'aurait pas pu la détruire aussi aisément. Mais parce qu'elle en était privée, elle lui offrait cette opportunité !
+
+Yao Bingyun n'aurait jamais imaginé que Wang Lin soit là. De plus, elle ne pouvait soupçonner qu'il ait conservé son énergie originelle grâce à l'Armure de Cuir du Dieu Antique, lui permettant de se déplacer si librement !
+
+Alors que la glace autour de Yao Bingyun commençait à s'effondrer, elle ouvrit lentement les yeux et croisa le regard de Wang Lin !

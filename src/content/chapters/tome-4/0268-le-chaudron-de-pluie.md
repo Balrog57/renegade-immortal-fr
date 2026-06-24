@@ -1,0 +1,105 @@
+---
+n: 268
+title: Le Chaudron de Pluie
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 268 - Rain Cauldron
+slug: le-chaudron-de-pluie
+---
+Des deux qui restaient, l'un courut vers Zhou Wutai, tandis que l'autre s'enfuit dans la direction opposée.
+
+Le regard de Wang Lin était glacial alors qu'il fixait Zhou Wutai et avança d'un pas nonchalant. Un pas, deux pas, trois pas, quatre pas... dix pas.
+
+Tous les dix pas, il tuerait quelqu'un !
+
+Il ne fallut que dix pas à Wang Lin pour rattraper l'homme vêtu de noir. Une lueur étrange traversa son regard alors qu'il soupirait : « Tu as gâché mon humeur, tu dois donc mourir. » Sur ces mots, il fit un geste désinvolte de la main droite, projetant le domaine Ji qui pénétra instantanément dans le corps du cultivateur.
+
+L'homme n'eut même pas le temps d'émettre un son avant de chuter du ciel. En percutant le sol, il atterrit précisément sur l'amas de neige devant l'atelier de fer de Da Niu.
+
+Son Âme Naissante n'eut pas le temps de s'échapper ; elle fut instantanément pulvérisée par le domaine Ji.
+
+Bien que le domaine Ji de Wang Lin ne puisse pas tuer des cultivateurs au stade de la Formation de l'Âme avant qu'il n'obtienne le trésor planétaire de Suzaku, il était amplement suffisant pour des cultivateurs de l'Âme Naissante.
+
+Après avoir tué ces trois hommes, il se retourna et fixa Zhou Wutai.
+
+Bien que l'expression de Zhou Wutai semblât normale, son dos était trempé de sueur. En croisant le regard de Wang Lin, il n'hésita pas une seconde et leva la main droite pour intercepter l'homme en noir qui fonçait vers lui.
+
+L'homme en noir, paniqué, hurla : « Que fais-tu, Zhou Wutai ?! »
+
+Zhou Wutai le regarda avec indifférence. Un léger sourire étira ses lèvres tandis qu'il murmurait : « Vous quatre avez offensé le frère Wang. Comment pourrais-je vous laisser partir ? » Sur ces mots, sa main gauche traça un sceau complexe. Une étrange lumière violette jaillit de sa paume. À cet instant précis, la différence entre un cultivateur de l'Âme Naissante tardif et un pseudo-cultivateur de la Formation de l'Âme devint flagrante.
+
+La culture de Zhou Wutai n'était qu'un cran en dessous de celle de Wang Lin ; il avait un pied dans le royaume de la Formation de l'Âme et avait commencé à acquérir une partie de son domaine. Lorsque la lumière violette apparut, l'homme en noir eut l'impression de revenir à sa jeunesse, à l'époque où il venait d'intégrer la secte et de rencontrer son maître.
+
+Bien qu'il sût que tout cela n'était qu'une illusion, le sentiment était d'un réalisme absolu. Une sensation écrasante envahit son corps. Lorsqu'il retrouva ses esprits, la main droite de Zhou Wutai pressait déjà son front. Accompagné d'une décharge d'énergie spirituelle, l'homme en noir cracha un sang noir et s'effondra, mort.
+
+Quant à son Âme Naissante, elle était entre les mains de Zhou Wutai. Il la broya sous les yeux de Wang Lin. Par ce geste, il signifiait à Wang Lin qu'il n'était pas responsable de ce carnage. C'était aussi une manière de lui assurer que personne ne serait au courant et qu'il n'aurait pas à tuer d'autres personnes.
+
+La rapidité et la netteté avec lesquelles Wang Lin avait éliminé les trois hommes avaient laissé l'orgueilleux Zhou Wutai totalement stupéfait. S'ils n'avaient été qu'un, il aurait pu les tuer aisément. S'ils avaient été deux, il aurait tout juste pu l'emporter.
+
+Cependant, s'ils avaient été trois, il n'aurait pu qu'espérer une impasse. À quatre, la fuite serait sa seule option. Mais Wang Lin venait de terrasser trois hommes avec une désinvolture déconcertante. Comment Zhou Wutai aurait-il pu ne pas être sous le choc ?
+
+Le corps de Wang Lin redescendit lentement du ciel. Dès qu'il toucha la neige, sa silhouette se rétracta instantanément. Il passa de l'état de démon à celui de mortel, puis à celui d'un vieillard au crépuscule de sa vie.
+
+Il lissa ses vêtements et prit une gorgée de son gourde avant de le lancer vers Zhou Wutai. En cet instant, il ne différait en rien d'un simple mortel.
+
+Zhou Wutai rattrapa la gourde, fixant l'atelier de Wang Lin avec une pointe d'effroi. Il se jura qu'il devait faire de Wang Lin un ami, et non un ennemi.
+
+D'un revers de ses larges manches, il réduisit les quatre cadavres en poussière. Puis, dans un mouvement rapide, il quitta la rue de Wang Lin.
+
+Peu de temps s'était écoulé depuis que Wang Lin avait quitté l'atelier pour y revenir. Il avait délibérément contrôlé sa présence pour qu'aucun mortel aux alentours ne remarque l'incident.
+
+Il retourna ainsi à son échoppe et s'installa près du poêle. À cet instant, il ressemblait véritablement à un vieil homme, levant ses mains pour chercher la chaleur des braises.
+
+Installé silencieusement dans l'obscurité de la boutique, il fouilla rapidement dans la mémoire de l'Ancien Dieu afin d'y déceler des informations sur les quatre Portes Célestes. Après un long moment, les données commencèrent à s'éclaircir dans son esprit.
+
+C'est alors que le bruit de la chute de la neige s'atténua et que la porte fut poussée. Une odeur de poulet rôti s'engouffra dans la pièce.
+
+Au même instant, le vieux décrépit qui ne s'était pas montré depuis longtemps entra en titubant. Une fois à l'intérieur, il referma la porte d'un coup de pied et se précipita vers le poêle aux côtés de Wang Lin en jurant : « En pleine nuit, des gamins se battent dehors ! Et l'un d'eux est même tombé sur moi ! J'avais enfin trouvé un coin convenable pour dormir. Quelle malchance ! »
+
+Wang Lin sourit. D'un geste de la main, il fit apparaître une nouvelle gourde de vin et la tendit au vieil homme.
+
+Ce dernier l'accepta avec un sourire espiègle et sortit la moitié d'un poulet rôti de sous ses vêtements. « Tu es assez malin, gamin. Tiens, je vais partager ce poulet avec toi. »
+
+Après avoir parlé, il dévisagea Wang Lin, son regard empreint d'une admiration grandissante : « Pas mal, jeune homme. Ton niveau de culture a encore progressé. Il semble que le stade de la Formation de l'Âme ne soit plus très loin. N'oublie pas la sculpture sur bois que tu m'as promise, sinon, peu importe où tu iras, je te retrouverai. »
+
+Wang Lin eut un sourire discret : « Bien sûr. Je n'oublierai pas ma promesse envers l'Aîné. »
+
+Le vieil homme arracha une cuisse de poulet et en croqua une bouchée. « Jeune homme, l'Alliance des Quatre Sectes est dans un chaos total en ce moment. Tu ferais mieux de hâter ton ascension vers la Formation de l'Âme. Autrement, avec ton niveau actuel, tu n'en tireras aucun profit. »
+
+Intrigué, Wang Lin fixa le vieil homme et demanda : « L'Aîné sait-il ce qui se passe au sein de l'Alliance des Quatre Sectes ? »
+
+Le vieil homme redressa fièrement le menton : « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance a réussi à dérober un Chaudron de Pluie à un cultivateur de Xue Yu, et ils sont tous là pour le récupérer. Ce n'est qu'une bagatelle. »
+
+« Un Chaudron de Pluie... » Wang Lin réfléchit un instant. Il se souvint soudainement de sa conversation avec le cultivateur aux grandes oreilles, Zhou Wutai, qui avait mentionné la Porte Céleste.
+
+Le vieil homme finit rapidement son morceau de poulet et s'attaqua au cou de l'oiseau : « En parlant de ce Chaudron de Pluie, en réalité, il n'y en a pas qu'un seul. Je ne saurais dire combien exactement, mais celui qui en possède un peut entrer dans le Royaume Céleste une fois la Porte Céleste ouverte. Cela provoque forcément des conflits, mais peu importent les combats, tout est vain : dès que les pays de rang 5 et 6 s'en aperçoivent, cela finit inévitablement entre leurs mains. »
+
+Wang Lin marqua une pause, puis murmura lentement : « La rumeur prétend que les quatre Portes Célestes mènent au Royaume Céleste ; il n'est donc pas étonnant qu'ils se disputent ces objets. »
+
+Le vieil homme eut un sourire malicieux : « Quoi, jeune homme ? Es-tu ému ? Hélas, tous les êtres célestes de l'Antiquité ont disparu. Le Royaume Céleste actuel est désert. »
+
+Wang Lin fut stupéfait. Rien de tel n'avait été mentionné dans la mémoire de Tusi. Il marqua un temps d'arrêt avant de demander : « Ils sont tous morts ? »
+
+Après avoir terminé le cou du poulet, le vieil homme déchira un large morceau de blanc de poitrine et ajouta en mangeant : « Bien sûr qu'ils sont morts. Pourquoi crois-tu que les cultivateurs au stade de la Transformation de l'Âme ou au-delà existent encore ? C'est parce qu'ils n'ont nulle part où aller ! »
+
+Le cœur de Wang Lin trembla. Il savait déjà que le monde antique de la culture s'était effondré lors d'une catastrophe, donnant naissance à l'Union de la Culture. Cependant, il n'avait pas imaginé que les êtres célestes eux-mêmes avaient péri.
+
+Remarquant le choc de Wang Lin, le vieil homme afficha un air de fierté. Il finit son repas, laissa échapper un rot et prit une gorgée de vin. S'essuyant négligemment les mains sur ses vêtements, il poursuivit : « Hé hé, choquant, n'est-ce pas ? Tous les anciens dieux sont morts, tout comme les anciens êtres célestes. Il ne reste plus beaucoup de cultivateurs de l'ère antique, c'est pourquoi l'Union de la Culture a pu apparaître et se développer à nouveau. »
+
+Wang Lin resta silencieux, digérant le secret que l'homme venait de lui livrer. Après un long moment, il fronça les sourcils : « Si cela est vrai, pourquoi les quatre Portes Célestes existent-elles encore ? »
+
+Le vieil homme éclata de rire : « Les anciens êtres célestes ont disparu, mais le Royaume Céleste demeure. Cependant, il est saturé de dangers. En réalité, le Royaume Céleste s'est fragmenté. Les quatre Portes Célestes ne font que relier différentes sections de ce royaume brisé. Mais malgré tout, on y trouve encore de grandes merveilles. La plus importante est le Qi Céleste. »
+
+« Le Qi Céleste ? » L'expression de Wang Lin changea radicalement.
+
+Le vieil homme lécha ses lèvres avec regret : « Oui. Cette chose est bien plus délicieuse que du poulet rôti. »
+
+Wang Lin laissa échapper un rire amer.
+
+Le vieil homme reprit : « Pour passer du stade de la Formation de l'Âme à celui de la Transformation de l'Âme, à moins de posséder la rare Pilule de Transformation de l'Âme, il est impératif d'absorber suffisamment de ce Qi Céleste pour franchir le seuil. »
+
+« Dans l'Antiquité, une fois que l'on atteignait la Formation de l'Âme, on ascendait naturellement vers le Royaume Céleste. Une fois là-haut, il fallait absorber ce Qi Céleste. Il n'y avait pas d'autre issue. »
+
+Wang Lin réfléchit un instant, puis sourit faiblement : « Cela signifie que ce Chaudron de Pluie est une proie véritablement convoitée, surtout pour les cultivateurs de la Formation de l'Âme. Que ce soit pour élever leur propre niveau ou pour accroître le rang de leur pays, c'est un indispensable. Les trois autres types de chaudrons apparaîtront-ils également ? »
+
+Le vieil homme saisit la cruche de vin, en but une gorgée et répondit : « Ces quatre types de chaudrons apparaissent de temps à autre. Ils sont créés par les cieux ; ceux qui les obtiennent font preuve d'une immense chance. Les quatre Portes Célestes couvrent toutes les planètes de culture ; selon la porte dont on est le plus proche, c'est ce type de chaudron qui se manifestera. »

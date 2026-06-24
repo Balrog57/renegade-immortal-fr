@@ -1,0 +1,133 @@
+---
+n: 1410
+title: Changement Époustouflant
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1410 - Shocking Change
+slug: changement-epoustouflant
+---
+Le feu rouge sang emplissait le ciel de l'Essai Humain. Il forma une puissante vague de chaleur qui déferla sur Wang Lin. La puissance contenue dans ce brasier était suffisante pour consumer les cieux eux-mêmes.
+
+Wang Lin se trouvait au cœur des flammes, debout sur le dos du Vermillon Noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
+
+Le premier des neuf châtiments karmiques était rouge. Il représentait tous les massacres que Wang Lin avait perpétrés pour satisfaire son obsession. Ce châtiment de carnage déferla et brûla avec violence.
+
+L’Oiseau Vermillon sous les pieds de Wang Lin poussa des cris déchirants sous la chaleur de ce feu écarlate. Même l'âme récemment reformée de Wang Lin faillit s'effondrer ; il était sur le point d'être brûlé vif.
+
+Bien qu'il eût tenté de prédire la puissance des neuf châtiments karmiques, il n'avait pas imaginé que le premier serait déjà si difficile à supporter.
+
+Au sein de ce feu rouge, un instant semblait une éternité. L'Oiseau Vermillon Noir ne put plus résister et son corps se rétracta rapidement. Le feu noir qui recouvrait sa peau vira brusquement au rouge.
+
+S'il devenait totalement rouge, l'Oiseau Vermillon ferait partie intégrante du premier châtiment. Sa puissance augmenterait alors et il dévorerait Wang Lin !
+
+Wang Lin laissa échapper un rugissement vers le ciel, une pointe de folie brillant dans ses yeux. Le premier châtiment était d'une puissance inattendue et il lui était difficile de résister. Cependant, Wang Lin ne céderait jamais. Il agita les bras et inspira profondément.
+
+« Premier châtiment, voyons si c'est toi qui me brûleras vif ou si c'est moi qui te dévorerai le premier ! » Une lueur de démence apparut dans son regard. Plus la situation était périlleuse, plus il devenait indomptable !
+
+À cet instant précis, en une seule inspiration, tout le feu rouge se précipita dans sa bouche et Wang Lin le dévora instantanément !
+
+Tout cela se produisit en un éclair, et le feu rouge disparut du ciel. Cependant, il explosa à l'intérieur de son corps, le transformant en une silhouette de sang. La lumière écarlate perçait son anatomie comme si elle cherchait à le déchirer de l'intérieur.
+
+Ce corps était formé par l'âme de Wang Lin et, à cet instant, le feu rouge brûlait au cœur même de son âme.
+
+Sur la Planète du Grand Empereur, le premier bâton d'encens sur la tortue géante brûlait avec frénésie. Sous les yeux de tous, la fumée noire s'échappant du premier bâton devint soudainement rouge. Cette fumée pourpre était monstrueuse et illumina toute la planète.
+
+Les cultivateurs environnants laissèrent échapper un halètement et reculèrent instinctivement.
+
+À ce moment précis, une lumière rouge encore plus intense émana du corps de Wang Lin. Cette lueur circulait à l'intérieur de lui, générant des températures extrêmement élevées.
+
+Simultanément, la combustion du premier bâton d'encens s'interrompit brusquement. C'était comme si une force interne avait jailli pour stopper sa progression.
+
+Le vieil Oiseau Vermillon fixait le premier bâton d'encens avec inquiétude dans les yeux.
+
+À l'intérieur de l'Essai Humain, Wang Lin avait dévoré tout le feu rouge. Il avait l'impression que des dizaines de milliers de coups de tonnerre explosaient simultanément dans son corps. La douleur intense lui donnait la sensation qu'il allait se désintégrer.
+
+Wang Lin poussa un rugissement et agita la main. L'Oiseau Vermillon à moitié rouge se précipita vers lui et ils fusionnèrent instantanément en un seul être.
+
+L'expression de Wang Lin était féroce alors qu'il laissait le feu brûler en lui. Il endurait cette douleur fulgurante tout en continuant à raffiner le feu rouge. Il tentait de faire de ce brasier sa propre force !
+
+C’est alors que le ciel changea et qu'une lumière orange apparut. Dès l'apparition de cette lueur, le second châtiment descendit !
+
+Wang Lin n'eut pas le temps d'affiner le feu qu'il venait de consommer avant que les flammes orange ne l'encerclent et ne se ruent sur lui.
+
+Après le feu orange vint une lumière jaune monstrueuse, suivie d'une immense vague de feu jaune !
+
+Plus choquant encore, derrière le feu jaune surgit une lueur verte fantomatique. C'était comme une barrière créant un feu vert terrifiant qui se rapprochait rapidement !
+
+Trois couleurs de feu étaient apparues simultanément ! Trois châtiments frappaient en même temps !
+
+C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la tribulation divine, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition !
+
+Les trois châtiments couvraient le ciel de l'Essai Humain. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation : des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
+
+« Le premier châtiment n'est pas encore passé, et les châtiments orange, jaune et vert arrivent de concert. Comment... comment est-il censé survivre à cela ?! » L'expression du vieil Oiseau Vermillon changea radicalement. C'était la première fois qu'il observait les neuf châtiments karmiques, et il ne s'attendait pas à une telle férocité.
+
+Maître Simo était le plus ravi de la situation. Il afficha un sourire venimeux en fixant le premier bâton d'encens, pensant : « Bien que j'ignore ce qui se passe exactement, il semble que ce petit bâtard aura du mal à échapper à la mort ! C'est regrettable que je ne puisse percer son secret, mais c'est une excellente chose qu'il périsse ! »
+
+La Grand Maître Yun Luo se détendit également. Les blessures sur ses doigts avaient guéri. Elle observa le premier bâton d'encens et songea : « Il semble qu'il ne soit pas la personne prédite par l'Ancêtre... »
+
+« Père... » Li Qianmei mordilla sa lèvre inférieure en se tournant vers son géniteur. Ses yeux étaient empreints de confusion, mais aussi de douleur et de supplication.
+
+Le Dao Maître Blue Dream soupira doucement et dit avec calme : « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
+
+Dans l'Essai Humain, le corps de Wang Lin émettait toujours une lueur rouge et ses yeux brillaient d'une lutte acharnée contre le destin !
+
+« Trois des neuf châtiments sont apparus en même temps. Bien, bien, bien ! Je veux voir comment ces trois forces vont tenter de détruire mon âme ! » Loin de céder à la douleur, il éclata de rire. Il réprima les souffrances qui déchiraient son corps, agita les bras et inspira une nouvelle fois.
+
+« J'inhalerai ces quatre feux dans mon âme. Soit vous me brûlerez tous, soit je vous dévorerai tous ! »
+
+Un orgueil indicible, une attitude inexplicable face à la vie, une noblesse transcendante envers le ciel et le Dao céleste, et une quête insaisissable pour une simple pensée... Tout cela fusionnait dans le rire de Wang Lin pour former un son défiant les lois du destin !
+
+Alors que son rire résonnait, deux mille ans de culture défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, la nuit de pluie où on lui avait arraché sa famille... Toutes ces scènes traversèrent son esprit.
+
+Tandis que ces souvenirs refaisaient surface, le feu orange se précipita dans le corps de Wang Lin, croisant la route de la lumière rouge.
+
+Si l'âme est empreinte de tristesse, elle aspire à son foyer. Et si l'âme retourne vers sa demeure, des larmes de chagrin sont versées devant la tombe... Après le feu orange, la lumière jaune s'engouffra. Elle forma un sceau de feu autour du brasier orange et brûla le corps de Wang Lin avec acharnement.
+
+Le temps est impitoyable, et le désir pour ceux qui nous ont quittés devient une blessure éternelle qui nous accompagne toute une vie... Le feu vert fantomatique arriva enfin, recouvrant tout le ciel d'une teinte émeraude. Tel un spectre, il pénétra soudainement dans le corps de Wang Lin.
+
+Les yeux de Wang Lin s'illuminèrent et le flux de souvenirs s'interrompit. Les quatre types de flammes brûlaient avec une fureur folle, déchaînant une force destructrice. La vitesse de raffinement de Wang Lin ne pouvait absolument pas rivaliser avec ces quatre feux ; il semblait sur le point d'être réduit en cendres. Wang Lin leva la main et l'agita pour ouvrir son espace de stockage.
+
+La cruche remplie de sang de dragon apparut dans sa main !
+
+Une seule gorgée de ce sang pouvait décupler la puissance du feu à l'intérieur de lui. À cet instant, sans la moindre hésitation, il rit et but à la cruche !
+
+Il vida le récipient d'un trait, ne laissant pas une seule goutte !
+
+D'un revers de la main droite, il projeta la cruche au loin. Le feu en lui s'intensifia. Le sang de dragon brûlant se transforma en une mer de flammes qui commença à lutter contre les quatre couleurs intérieures !
+
+Alors qu'il résistait, un vortex apparut lentement au plus profond de son âme. Ce vortex provenait de la Perle Défiant le Ciel qui s'éveillait progressivement.
+
+« J'ai dévoré les quatre châtiments dans mon âme, il n'y a donc plus rien à brûler. Pourquoi le cinquième châtiment ne descend-il pas ? »
+
+Le feu dans son corps avait atteint ses limites. Il poussa un rugissement et s'élança vers le ciel. Le firmament agissait comme une barrière, et il atteignit rapidement sa limite supérieure.
+
+Des grondements tonitruants résonnèrent alors que le ciel s'effondrait !
+
+Derrière ce ciel brisé se trouvait une autre terre ! Une terre peuplée d'âmes infinies ; c'était comme l'enfer !
+
+Les dix mille cultivateurs qui fixaient le premier bâton d'encens découvrirent que la flamme s'était totalement arrêtée. Elle restait immobile, à cent pieds au-dessus de Wang Lin.
+
+Le temps passa lentement, une respiration, puis une autre... En un éclair, plus de cinq respirations s'étaient écoulées !
+
+L’Oiseau Vermillon de la quatrième génération n'avait duré que cinq respirations, mais là, contre toute attente, Wang Lin tenait également depuis cinq respirations !
+
+Six respirations !
+
+Sept respirations !
+
+Les yeux du bel homme se rétrécirent, révélant une lueur étrange.
+
+Au moment même où le bâton d'encens atteignait sept respirations, une vague d'exclamations éclata. Ce n'était pas un seul homme, mais des milliers de voix. Bientôt, le son devint assourdissant !
+
+Ce qui provoqua ce cri de stupeur n'était pas la durée de sept respirations, mais... le feu sur l'encens humain s'était soudainement... éteint !
+
+Le bâton d'encens s'était éteint !
+
+Cette scène soudaine provoqua un tumulte indescriptible. Même les yeux du vieil Oiseau Vermillon s'écarquillèrent, remplis d'incrédulité.
+
+« Ceci... ceci est... »
+
+Maître Simo fut figé un instant, le choc envahissant son regard.
+
+L'expression de la Grand Maître Yun Luo changea radicalement. Ignorant les blessures de ses doigts, elle tenta une nouvelle divination.

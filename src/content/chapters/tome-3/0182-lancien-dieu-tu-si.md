@@ -1,0 +1,213 @@
+---
+n: 182
+title: "L'Ancien Dieu Tu Si"
+book: 3
+bookTitle: Famous in the Sea of Devils
+en: Chapter 182 - The Ancient God Tu Si
+slug: lancien-dieu-tu-si
+---
+Les grains ressemblaient à de l'or, mais n'étaient pas de l'or. Ils ressemblaient à de l'os, mais n'étaient pas de l'os. Cependant, alors que Wang Lin s'apprêtait à les ramasser pour les étudier, au moment où son âme entra en contact avec eux, une force puissante résista à son toucher.
+
+Cette force repoussa l'âme de Wang Lin, l'empêchant d'examiner les grains dorés. Wang Lin en prit un entre ses doigts et le serra. Étonnamment, il n'était pas aussi dur qu'il n'en avait l'air ; il s'aplatissait facilement sous sa pression.
+
+Mais peu importe la force que Wang Lin exerçait sur ces particules dorées, elles ne faisaient que s'aplatir davantage sans jamais se briser. Soudain, une idée traversa l'esprit de Wang Lin. Il rassembla toutes les particules dorées et les comprima pour former un petit grain doré de la taille de son bout de doigt.
+
+Il réfléchit un instant en contemplant ce grain. Plus il le fixait, plus celui-ci lui rappelait l'os sur le front de la créature royale lors de la première épreuve. Si c'était le même, alors il s'agissait certainement d'un os vivant.
+
+Une idée audacieuse germa dans l'esprit de Wang Lin : « Pourrait-il s'agir de l'os de l'ancien dieu ? » Son cœur trembla à cette pensée.
+
+Mais Wang Lin renonça rapidement à cette hypothèse. D'après ce qu'il avait entendu auparavant, l'ancien dieu était immense, ses os devaient donc l'être tout autant. Même s'il ne s'agissait que d'un os de doigt, il serait comparable à la corne sur le front de la créature royale.
+
+Après avoir réfléchi un moment, Wang Lin rangea le grain doré. Il se leva, observa les restrictions qui se trouvaient devant lui, puis bondit en avant.
+
+Il avait déjà minutieusement observé les restrictions situées entre les points 500 et 300 de la cime de la montagne. De plus, avec l'Empereur Antique agissant comme éclaireur, bien qu'il restât prudent, la tâche était bien plus facile qu'auparavant.
+
+Cependant, à 300 pieds du sommet, Wang Lin commença à progresser avec lenteur et précaution. Il ne voulait pas déclencher les restrictions et se faire frapper par la foudre.
+
+Wang Lin n'était pas pressé. Le temps s'écoula lentement, et bientôt, trois années s'étaient déjà écoulées.
+
+Il lui fallut trois ans pour franchir ces 300 pieds en avançant prudemment, étape par étape. Sa maîtrise des restrictions s'était également considérablement accrue à mesure qu'il brisait chacune d'elles.
+
+Lorsque Wang Lin atteignit le sommet de la montagne, trois ans après le passage du Seigneur Démon des Six Désirs et de l'Empereur Antique, il comprit que cela n'avait été possible que grâce à l'activation massive des restrictions survenue trois ans auparavant. Toutes les restrictions environnantes avaient perdu leur puissance. Même s'il tentait de les déclencher, elles n'auraient pas la force nécessaire pour s'activer. Sans cela, il n'aurait jamais pu parvenir aussi loin avec sa culture actuelle.
+
+Pourtant, Wang Lin n'était qu'à 15 pieds du sommet. Les nuages commencèrent à s'assombrir et à s'amonceler. On entrevoyait des éclairs. Wang Lin leur lança un regard calme avant de pénétrer dans le tourbillon.
+
+Il ne ralentit pas, avançant d'un pas assuré. Depuis trois ans, il s'était toujours demandé quel était l'élément déclencheur de la restriction céleste.
+
+Il repensa à ce qui s'était passé trois ans plus tôt, lorsqu'il avait envoyé le tornado pour récupérer l'os. Aucun éclair ne l'avait frappé lors de son invocation, mais lorsque le tourbillon ramassa le bras et tenta de revenir, la foudre l'attaqua.
+
+Après réflexion et étude, Wang Lin réalisa que le déclencheur était la vitesse !
+
+Si l'on dépassait une certaine vitesse, ou si l'on augmentait ou diminuait brusquement son allure, cela déclenchait l'attaque de la restriction céleste. Plus on se rapprochait du sommet, plus elle devenait sensible.
+
+En d'autres termes, si vous accélériez soudainement au pied de la montagne, rien ne se passerait. Si vous le faisiez sur les flancs, vous pourriez déclencher certaines restrictions. Mais près du sommet, vous déclencheriez inévitablement la restriction céleste.
+
+Ayant identifié ce mécanisme, Wang Lin marcha d'un pas régulier et entra paisiblement dans le tourbillon.
+
+Cette deuxième épreuve lui avait coûté 13 ans. Cependant, au regard de ses gains, ce temps était dérisoire.
+
+Durant ces 13 années, en passant du simple au complexe, de l'aisé au difficile, il avait appris l'art des restrictions étape par étape jusqu'à atteindre son niveau actuel. Même si cela avait dû prendre plus de temps encore, Wang Lin n'aurait pas abandonné.
+
+De son point de vue, le but de la deuxième épreuve n'était pas vraiment de bloquer les intrus, mais d'offrir un moyen systématique d'apprendre les restrictions. Autrement, si l'on plaçait les restrictions du sommet dès le pied de la montagne, personne ne pourrait jamais grimper.
+
+Wang Lin était très perplexe face à cette logique, mais il n'avait personne à qui poser la question.
+
+Au moment où Wang Lin pénétra dans le tourbillon, tout changea. Des lueurs violettes jaillirent du vortex jusqu'à former une gigantesque sphère de foudre pourpre.
+
+Cette boule de foudre était différente de celles de la restriction céleste ; elle était plus sombre et plus puissante. À son apparition, Wang Lin sentit la montagne entière trembler.
+
+Du pied jusqu'au sommet, toutes les restrictions commencèrent à s'élever vers la cime. Chaque parcelle de lumière représentait une restriction, et d'innombrables éclats lumineux montaient de plus en plus haut.
+
+Étonnamment, cette ascension massive de restrictions ne déclencha pas l'attaque céleste. Lorsqu'elles atteignirent un certain point, elles commencèrent à fusionner pour former une sphère de lumière dont la taille égalait celle de la boule de foudre pourpre.
+
+À cet instant, toutes les parcelles de lumière avaient disparu de la montagne. Il ne restait plus aucune restriction sur ces pentes.
+
+Wang Lin ne pouvait que contempler le spectacle. Depuis l'apparition de la sphère pourpre, son corps était figé par une force écrasante ; il était incapable de faire le moindre demi-pas.
+
+La sphère de foudre pourpre et la sphère de lumière se déplacèrent lentement l'une vers l'autre. Au moment de leur contact, une immense illusion apparut au-dessus d'elles.
+
+L'illusion grandit jusqu'à prendre la forme d'un géant dont les pieds reposaient juste au-dessus des deux sphères. Les deux globes montèrent lentement jusqu'à occuper l'emplacement supposé des yeux du géant. De loin, on aurait dit que le colosse possédait deux yeux incandescents.
+
+Bien que ce géant ne fût qu'une illusion, il dégageait une aura de vie.
+
+« Bienvenue. Tu es la quatrième personne à satisfaire aux critères de la montagne des restrictions. Mon nom est Tu Si... selon les lois anciennes établies avant mon sommeil, tu as rempli les exigences de cette montagne. Tu peux entrer dans ma mer de conscience et acquérir une partie de mes connaissances et de mes souvenirs, mais d'abord, tu dois t'identifier et fabriquer un drapeau de restriction à partir de ce morceau de jade. »
+
+Le géant parla d'une voix qui fit trembler le monde. Puis, un fragment de jade entouré de foudre pourpre apparut et flotta vers Wang Lin.
+
+Wang Lin fut saisi par l'effroi. Il prit une profonde inspiration.
+
+D'après le ton du géant, il s'agissait d'un avatar de l'ancien dieu. Sans aucun doute, l'ancien dieu Tu Si lui-même.
+
+L'ancien dieu était trop puissant. Son simple avatar suffisait à donner à Wang Lin une sensation d'étouffement. Il ne pouvait même pas imaginer la puissance que dégagerait Tu Si s'il était présent en personne.
+
+À cet instant, le jade se trouva devant lui. Il cligna des yeux et tendit la main pour le saisir. Dès qu'il l'eut saisi, la foudre pourpre traversa son corps avant de retourner dans le fragment.
+
+Wang Lin sentit alors une information s'imprimer dans son esprit. Il comprit que l'éclair ne lui était pas malveillant, mais servait de méthode pour confirmer l'identité du propriétaire.
+
+Alors qu'il assimilait les informations concernant le drapeau de restriction, son cœur battait la chamade, mais il ne put s'empêcher de lâcher un rire amer.
+
+Ce jade ne précisait ni l'usage exact du drapeau, ni ses matériaux, ni d'exigences particulières. Il semblait que ce drapeau pouvait être fabriqué avec n'importe quoi.
+
+Il n'y avait qu'un seul matériau indispensable : la pierre d'encre !
+
+Les détails concernant la pierre d'encre s'imprimèrent également dans son esprit. La pierre d'encre ne se trouvait sur aucune planète ; elle était produite au cœur des étoiles.
+
+Pour les anciens dieux, il était très facile d'en obtenir. Il suffisait de voyager un peu dans l'espace pour en trouver.
+
+Les informations comprenaient aussi une carte de la mer de conscience de l'ancien dieu, marquant l'emplacement des pierres d'encre. Quiconque atteignait ces lieux pouvait en obtenir une.
+
+Une fois la pierre d'encre obtenue, on pouvait commencer la fabrication du drapeau. Le processus était simple, mais extrêmement complexe : il fallait graver neuf cent quatre-vingt-dix-neuf mille neuf cent quatre-vingt-dix-neuf restrictions sur le drapeau.
+
+Ce n'était qu'à ce prix que l'on pouvait créer un seul drapeau de restriction.
+
+L'utilité du drapeau n'était pas mentionnée, mais comment une arme offerte par un ancien dieu pourrait-elle être faible ? Et cela sans même considérer la rareté des matériaux ou la difficulté extrême de sa production.
+
+Wang Lin refusait de croire que ce trésor soit médiocre. Évidemment, la véritable récompense de cette épreuve était le jade et le privilège d'avoir été choisi. Si le Seigneur Démon des Six Désirs et l'Empereur Antique l'avaient su, ils n'auraient pas foncé tête baissée ; ils auraient progressé lentement en étudiant les restrictions une à une.
+
+« En plus de moi, trois autres personnes ont reçu ce jade... » murmura Wang Lin. Il déduisit rapidement que s'il avait pu obtenir ce jade après avoir compris la deuxième épreuve, recevrait-il une récompense similaire s'il remplissait les conditions de la première ?
+
+Wang Lin se souvint d'une phrase entendue sur la route du non-retour. L'homme mystérieux avait dit avec désinvolture : « J'ai soumis le premier roi ! »
+
+Peut-être était-ce là la récompense de la première épreuve. Wang Lin eut un rire amer. Il n'avait pas la capacité de faire une telle chose.
+
+À ce moment, le corps du géant commença à s'estomper. Les deux sphères s'éloignèrent l'une de l'autre. La sphère de lumière se dispersa en innombrables éclats qui retombèrent sur la montagne. À leur contact, les restrictions furent réinstallées et la montagne retrouva son état initial.
+
+La boule de foudre pourpre retourna dans le tourbillon. Puis, une force d'aspiration émanant du vortex attira lentement Wang Lin vers lui. Son corps sombra progressivement dans le tourbillon.
+
+Lorsque Wang Lin en ressortit, il se trouva dans ce qui ressemblait à un pays de féerie, une vaste prairie ouverte. L'air était saturé d'énergie spirituelle.
+
+Non loin de là se trouvait un lac. Au centre de celui-ci s'élevait une pagode à trois étages qui émettait des éclats de lumière multicolores.
+
+Dès son apparition, Wang Lin projeta son âme pour sonder les environs. Après un long moment, il s'avança prudemment. Il frappa son sac de rangement, et l'épée du poison noir en sortit pour flotter autour de lui.
+
+Il savait que le Seigneur Démon des Six Désirs et l'Empereur Antique le détestaient. Bien qu'ils aient tous deux traversé le tourbillon trois ans auparavant, il était possible qu'ils l'attendent ici. Si Wang Lin avait dû subir tout cela, il se serait certainement caché pour attendre le coupable.
+
+Tout en marchant, il utilisa son Sens Divin pour scanner la zone, mais ne trouva rien. Finalement, son attention se porta sur la pagode.
+
+La pagode ne semblait présenter aucune restriction. Il se dirigea rapidement vers elle et s'arrêta au bord du lac. Il frappa à nouveau son sac de rangement, et le démon Xu Liguo en sortit en volant.
+
+Il s'était ennuyé à mourir ces derniers jours et était ravi d'être libéré. Cependant, lorsqu'il vit Wang Lin, son expression se figea instantanément, laissant place à la stupéfaction.
+
+Wang Lin avait changé depuis la dernière fois que Xu Liguo l'avait vu. Les cheveux de ce démon étaient devenus d'un blanc immaculé et ses yeux semblaient pouvoir percer les cœurs. Au premier regard, Xu Liguo fut terrifié. Il gémit intérieurement : « Comment ce démon est-il encore devenu plus fort... à ce rythme, quand pourrai-je échapper à sa main... même si je me battais sans souci de ma vie, ce serait vain. »
+
+Auparavant, Xu Liguo ne ressentait cela que lorsque Wang Lin utilisait toute la puissance de son âme. Désormais, il éprouvait cette crainte même alors que Wang Lin n'utilisait aucune force particulière. Cela démontrait clairement à quel point la maîtrise des restrictions de Wang Lin avait progressé durant ces 13 années.
+
+Wang Lin pointa le lac du doigt. Xu Liguo voulut marchander, mais devant le regard de Wang Lin, il s'envola docilement vers l'eau, tout en le maudissant silencieusement.
+
+Il pestait dans son cœur : « Attends un peu ! Dès que j'aurai dévoré quelques âmes de plus, recruté quelques subordonnés et augmenté un peu ma propre culture, je me battrai avec toi jusqu'à la mort ! » Après s'être défoulé, il se sentit mieux et plongea dans le lac pour commencer ses recherches.
+
+Wang Lin utilisa le fragment d'âme qu'il avait laissé dans le corps de Xu Liguo pour inspecter le lac tandis que son propre corps restait sur la rive. Une fois certain de l'absence de danger, il s'envola vers la pagode.
+
+Alors que Xu Liguo remontait à la surface, il continua ses malédictions silencieuses, bien qu'il fût contraint par la volonté de Wang Lin.
+
+Devant la pagode, Wang Lin fit également entrer Xu Liguo en premier pour s'assurer de la sécurité des lieux avant d'entrer lui-même. La pagode possédait trois étages ; le premier était composé d'une grille de neuf carrés totalement vides.
+
+Wang Lin comprit rapidement la situation. C'était sans doute là que se trouvaient les récompenses pour ceux ayant passé la deuxième épreuve. Cependant, après tant d'années, toutes les richesses avaient été emportées, ne laissant que des espaces vacants.
+
+En montant au deuxième étage, sa supposition fut confirmée. Il y avait quatre carrés vides orientés vers le nord, l'est, le sud et l'ouest.
+
+Au troisième étage, Wang Lin vit le tourbillon qui servait de sortie, ainsi qu'un autre carré vide.
+
+Loin d'être déçu, Wang Lin réfléchit un moment. Il se souvint du message laissé par l'homme mystérieux sur la route du non-retour. Bien qu'il n'y eût aucun message lors de la deuxième épreuve, il sentait qu'il faisait partie des trois personnes ayant reçu le fragment de jade avant lui.
+
+Après un silence, Wang Lin inspecta les trois étages de la pagode. C'est au deuxième étage qu'il vit le message familier à côté des carrés vides :
+
+« Après avoir vu la pagode aux trésors, si son aspect est plaisant, je dois dire que j'ai été très déçu par cette terre des anciens dieux. »
+
+Cette déclaration était empreinte d'un immense orgueil. Wang Lin y réfléchit un instant et se dirigea vers le troisième étage.
+
+Arrivé au troisième étage, il ne s'engagea pas immédiatement dans le tourbillon. Il s'assit pour restaurer son énergie spirituelle au maximum, puis organisa son sac de rangement. Enfin, il prit une profonde inspiration avant de relâcher Xu Liguo et de lui désigner le tourbillon.
+
+Xu Liguo affichait un visage amer. Il maudit Wang Lin intérieurement de nombreuses fois, mais finit par plonger dans le vortex. Cependant, dès qu'il toucha le tourbillon, il poussa un cri alors que son corps se mettait à fumer. Il recula précipitamment, le visage déformé par la peur.
+
+Wang Lin sortit un petit animal et le lança vers le tourbillon. Cette fois, l'animal passa sans encombre et commença à s'enfoncer dans le vortex. À cet instant précis, la connexion que Wang Lin entretenait avec l'animal fut brusquement rompue.
+
+Le visage de Wang Lin s'assombrit. Après réflexion, il comprit que ce tourbillon devait être celui qui avait fait fuir le Seigneur Démon des Six Désirs et les autres dans une panique totale : la troisième barrière.
+
+Selon les propos de Duanmu, c'était la troisième barrière, celle qui exigeait une célèbre technique de malédiction mortelle pour être franchie. Bien qu'il n'en eût pas dit long, Wang Lin en connaissait les principes.
+
+Cet essai venait de lui prouver que Xu Liguo ne pouvait entrer dans le tourbillon ; dès l'approche, son âme était endommagée. Le petit animal avait disparu instantanément et le lien avec son maître avait été coupé.
+
+De cette observation, Wang Lin conclut que la troisième épreuve devait être extrêmement périlleuse. Après avoir mûri sa réflexion, il s'approcha du tourbillon et y tendit lentement la main.
+
+Une sensation de froid l'envahit immédiatement, mais il ne subit pas le danger rencontré par Xu Liguo. Sans hésiter, Wang Lin s'élança.
+
+Lorsqu'il ressortit du tourbillon, il se figea instantanément. Sa mer de conscience fut agitée par des lames de fond colossales et des éclairs fulgurants jaillirent. Pour la première fois, sans qu'il en ait le contrôle, ses yeux vacillèrent.
+
+« Ceci... c'est le Nirvana ! » pensa Wang Lin.
+
+Devant lui s'étendait une immensité de néant, parsemée de quelques rochers aux formes étranges flottant dans le vide. Simultanément, son âme fluctuait sans cesse.
+
+Wang Lin laissa échapper un rire froid. On pouvait dire qu'il avait réussi la première épreuve par chance et la deuxième par détermination ; quant à cette troisième... Wang Lin était déjà certain de pouvoir la franchir sans effort.
+
+Il frappa son sac de rangement, et Xu Liguo ainsi que le second démon apparurent aussitôt. Les deux démons contemplèrent les environs avec stupeur. Lorsqu'ils retrouvèrent leurs esprits, la surprise dans leurs yeux fut remplacée par l'extase.
+
+Ici, les deux démons étaient comme des poissons dans l'eau ; ils s'y sentaient parfaitement à l'aise.
+
+Après avoir libéré les deux démons, Wang Lin scruta l'espace et saisit soudainement le vide de sa main droite. Un cri strident retentit et un filet de fumée apparut à cet endroit, prenant la forme d'une créature à deux cornes. C'était une âme errante.
+
+Elle se cachait dans le néant, espérant surprendre Wang Lin, mais elle ne s'attendait pas à ce qu'il l'arrache violemment de son refuge.
+
+L'âme entra immédiatement en panique. Wang Lin ne lui accorda même pas un regard ; son essai divin Ji jaillit et forma une gueule qui engloutit l'âme errante.
+
+Wang Lin ferma les yeux. Il n'avait pas goûté d'âme errante depuis longtemps. C'était délicieux. Il sentait clairement son âme se renforcer.
+
+« Les âmes errantes sont vraiment le meilleur complément pour nourrir l'âme. Rien que pour cette âme, le temps passé dans cette épreuve en vaut la peine », dit Wang Lin en s'élançant vers l'avant.
+
+La scène de Wang Lin dévorant l'âme effraya profondément Xu Liguo et le second démon. Tous deux, et particulièrement Xu Liguo, avaient consommé de nombreuses âmes. La bouche de Xu Liguo s'emplit de salive, mais en voyant Wang Lin dévorer une âme sous ses yeux, il eut l'impression que quelqu'un lui avait volé son repas.
+
+Pourtant, Xu Liguo sentit que l'âme que Wang Lin avait extraite était très similaire à la sienne ; il eut même l'impression qu'il s'agissait d'un ancêtre. Une sensation de chaleur l'envahit. En voyant Wang Lin tenir l'âme errante, il pensa que ce démon allait recruter un nouveau subordonné et qu'il allait aller le saluer.
+
+Malheureusement, cette intimité se mua en terreur lorsqu'il vit Wang Lin dévorer l'âme. Il avait toujours su qu'il finirait par combattre ce démon maléfique à mort, mais il réalisait maintenant que non seulement ce démon pouvait dévorer des âmes, mais qu'il pourrait aussi le dévorer, lui.
+
+En conséquence, Xu Liguo fut saisi d'une peur immense.
+
+Le cri de l'âme errante avant d'être engloutie et l'expression extatique sur le visage de Wang Lin firent vaciller l'âme de Xu Liguo. Il se souvint du temps où il tentait de marchander avec ce démon maléfique. Son corps tremblait de crainte.
+
+Auparavant, il pensait que subir les punitions de Wang Lin par des outils puissants était le pire qui puisse lui arriver ; mais cela était dérisoire comparé au fait d'être mangé vivant.
+
+Xu Liguo décida immédiatement de ne plus jamais chercher à provoquer ce démon. S'il parvenait un jour à l'irriter véritablement, il pourrait être englouti en une seule bouchée sans laisser la moindre trace de lui-même.
+
+Quant au second démon, bien qu'il fût une bête après avoir suivi Xu Liguo pendant si longtemps, il avait acquis un peu d'intelligence. Son cœur était également rempli de peur.
+
+Son intuition était bien plus aiguisée que celle de Xu Liguo. Lorsque Wang Lin démontra sa capacité à dévorer une âme semblable à la sienne, il pensa que Wang Lin était comme un roi.

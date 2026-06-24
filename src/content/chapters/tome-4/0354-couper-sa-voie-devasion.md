@@ -1,0 +1,131 @@
+---
+n: 354
+title: "Couper sa voie d'évasion"
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 354 - Cutting Your Escape Path
+slug: couper-sa-voie-devasion
+---
+Le vieil homme fronçait toujours les sourcils. Cela faisait plus de quatre mois qu'il pourchassait Wang Lin. À plusieurs reprises, il avait failli le rattraper, mais le trésor sur lequel Wang Lin voyageait libérait alors une lumière blanche et se téléportait soudainement ailleurs.
+
+Cela le choquait et l'exaspérait de plus en plus. Un grand shaman aux sept feuilles ne pouvait même pas capturer un simple junior. Pour lui, c'était une honte.
+
+Cependant, il n'était pas un cultivateur ; toute sa puissance provenait des tatouages sur son corps. Il ne s'attendait pas à ce que ce junior puisse maintenir une telle vitesse pendant quatre mois.
+
+Les yeux du vieil homme vacillèrent tandis qu'il réfléchissait. Il avait déjà épuisé une grande partie de sa puissance, et poursuivre la traque n'était plus une option viable. Plus important encore, il craignait de ne pas savoir combien de trésors ce junior n'avait pas encore utilisés, ni combien de pilules il lui restait en réserve.
+
+Après mûre réflexion, une pointe de réticence apparut dans le regard du vieil homme avant qu'il ne laisse échapper un soupir et ne se détourne pour partir.
+
+Wang Lin sentit soudain la menace disparaître derrière lui ; il arrêta donc la boussole stellaire. Il regarda en arrière, pensif.
+
+« Il ne va plus me poursuivre ? » Les yeux de Wang Lin s'illuminèrent. Il ignorait si le vieil homme avait abandonné ou s'il complotait autre chose. Après un instant de réflexion, il soupira. Si le vieil homme n'avait été qu'au stade avancé de la Formation de l'Âme, Wang Lin se serait retourné pour le poursuivre à son tour.
+
+Cependant, cet homme possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme, ce qui obligea Wang Lin à redoubler de vigilance.
+
+Il réfléchit un instant, laissa échapper un renflement et, au lieu de reculer, il contourna le vieil homme pour se placer sur son flanc.
+
+Le vieil homme remarqua la manœuvre de Wang Lin. Son visage s'assombrit, mais il n'intervint pas.
+
+Quelques jours passèrent, et le vieil homme était hors de lui. Wang Lin avait maintenu la même distance tout ce temps. Il avait enduré cela longtemps, mais finit par reculer brusquement en criant : « Tu es vraiment imprudent ! »
+
+Il se transforma en un rayon de lumière et se lança à la poursuite de Wang Lin.
+
+Wang Lin laissa échapper un rire, et la boussole stellaire disparut dans le vide.
+
+Après avoir poursuivi sa course pendant encore quelques jours, le vieil homme dut renoncer, sentant la puissance de ses tatouages faiblir inexorablement. Il poussa un renflement froid avant de se tourner à nouveau vers la sortie.
+
+Wang Lin s'arrêta net. Ses yeux brillèrent et, après une courte réflexion, il reprit son harcèlement contre le vieil homme.
+
+Ce dernier ignora complètement Wang Lin et continua de voler.
+
+Au fil du temps, Wang Lin fut convaincu qu'il ne s'agissait pas d'un stratagème. Il comprit que le vieil homme était réellement incapable de continuer la poursuite. Une fois cela confirmé, le regard de Wang Lin devint glacial.
+
+Il frappa son sac de rangement et l'épée céleste apparut dans sa main. Il réduisit rapidement la distance et, une fois à portée du vieil homme, il abattit son épée céleste.
+
+Il effectua trois assauts avant de s'éclipser promptement.
+
+Les trois rayons d'énergie d'épée volèrent vers le vieil homme. Le visage de ce dernier s'assombrit tandis qu'il tentait de parer les attaques. Trois impacts sourds retentirent, mais le corps du vieil homme ne bougea pas d'un pouce. Il lança un regard lugubre dans la direction de Wang Lin et hurla : « Cette fois, je te laisse passer, alors dégage ! Sinon, ne me reproche pas de te prendre la vie ! »
+
+Sur ces mots, le vieil homme poursuivit sa route vers la sortie en ignorant Wang Lin.
+
+Wang Lin ricana. Au lieu de reculer, il se rapprocha à nouveau et harcela le vieil homme avec de nouvelles décharges d'énergie d'épée. Après un mois, le vieil homme était exaspéré. Il n'aspirait qu'à une chose : déchirer ce junior en morceaux.
+
+Pourtant, Wang Lin s'échappait sans la moindre hésitation dès que l'homme tentait de l'attaquer, et si celui-ci voulait partir, Wang Lin le harcelait avec son énergie d'épée. Bien que ces assauts ne puissent lui nuire, ils avaient fait passer son humeur de mauvaise à déplorable.
+
+« Wang Lin, as-tu fini ?! » Ce jour-là, le vieil homme finit par perdre patience et hurla dans le vide derrière lui. Les tatouages sur son corps brillaient avec frénésie, dégageant une pression écrasante.
+
+Wang Lin, si loin, n'avait aucune crainte. Il répondit : « Senior m'a poursuivi pendant plusieurs mois. Vous devez être réticent à l'idée d'abandonner. Le junior ici n'a plus beaucoup de pilules dans son sac ; si vous continuez à me poursuivre, vous finirez par me rattraper ! »
+
+Les yeux du vieil homme étaient sombres de rage. Il fixa le vide au loin et disparut soudainement.
+
+Lorsqu'il réapparut, il fixa avec férocité la lumière blanche libérée par la boussole stellaire lors de sa téléportation.
+
+Son expression changea brusquement et il tourna la tête vers la sortie. La direction vers laquelle Wang Lin s'était téléporté n'était pas seulement éloignée du vieil homme, elle menait également vers la sortie.
+
+« Senior, le junior va détruire la sortie pour que nous puissions rester ici pour toujours ! Ne serait-ce pas amusant ?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
+
+Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor, comment se serait-il retrouvé dans cette impasse où poursuivre était aussi risqué que de renoncer ?
+
+Wang Lin n'avait effectivement plus beaucoup de pilules, mais il possédait encore des pierres spirituelles de qualité supérieure. Grâce à elles, il était certain de pouvoir tenir face à la poursuite du vieil homme.
+
+Il agitait occasionnellement l'épée céleste pour agacer le vieil homme.
+
+Cette course était une bataille d'usure et un combat de volonté.
+
+Le vieil homme ne pouvait deviner combien de pilules et de pierres spirituelles Wang Lin possédait encore. Ces quatre mois de traque l'avaient fait douter de lui-même ; il avait l'impression que Wang Lin disposait d'une réserve infinie.
+
+Ce sentiment était ténu au début, mais lorsque le vieil homme avait renoncé et que Wang Lin s'était retourné pour le poursuivre, cette impression était devenue accablante. Il était convaincu que Wang Lin possédait encore énormément de ressources et qu'il ne pourrait jamais le rattraper, à moins que le trésor de Wang Lin ne se brise soudainement.
+
+Le vieil homme cherchait des moyens d'attaquer la boussole stellaire, mais non seulement Wang Lin était rapide, il était aussi extrêmement prudent. Chaque fois qu'il s'approchait trop près, Wang Lin disparaissait par téléportation.
+
+À cet instant, parce que Wang Lin avait changé de direction, la poursuite reprit de plus belle. Seule différence : cette fois, ce n'était pas Wang Lin qui souffrait, mais le vieil homme.
+
+Quelques mois plus tard, Wang Lin avait épuisé toutes ses pilules et comptait désormais sur des pierres spirituelles de qualité supérieure pour restaurer son énergie spirituelle.
+
+Plus Wang Lin poursuivait, plus le vieil homme devenait impatient, ce qui l'incitait à attaquer davantage. Cependant, grâce à la boussole stellaire, tous ces assauts manquaient leur cible.
+
+Si une seule des marques d'attaque touchait, même sans tuer, elle blesserait mortellement ce junior. Si elle atteignait le trésor, elle le briserait, lui permettant de tuer Wang Lin à sa guise.
+
+Hélas, la vitesse de la boussole stellaire ne faisait qu'augmenter, Wang Lin s'en étant davantage familiarisé au cours de ces huit mois.
+
+Finalement, Wang Lin créa quatre fentes sur la boussole stellaire et y inséra quatre pierres spirituelles de qualité supérieure. Il alimentait désormais la boussole uniquement par ces pierres. Après avoir laissé une partie de son sens divin pour contrôler l'objet, il consacrait le reste de son énergie à attaquer le vieil homme.
+
+La lance de l'étendard de restriction, ses gravures du domaine temporel, le sceau noir et divers trésors anciens furent tous utilisés par Wang Lin. Bien qu'ils fussent inefficaces contre le vieil homme, la maîtrise que Wang Lin en acquérait devenait de plus en plus prodigieuse.
+
+Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
+
+L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante via Xu Liguo, tant qu'elle se trouvait à moins de neuf mètres de lui.
+
+Par conséquent, bien que la puissance de l'épée n'ait pas augmenté, elle était devenue bien plus agile. Tout cela grâce au vieil homme.
+
+La colère du vieil homme avait atteint ses limites. Une simple fourmi qu'il pouvait écraser entre ses doigts osait le provoquer ainsi. Au fil de ces mois de poursuite, Wang Lin était devenu quelqu'un que l'homme devait absolument éliminer.
+
+Il avait même abandonné l'idée de transformer Wang Lin en marionnette tatouée. S'il en avait l'occasion, il n'hésiterait pas une seconde à le mettre en pièces.
+
+Wang Lin sortit même les trois gaines d'épée et les utilisa l'une après l'autre. Bien que son niveau de culture n'ait pas progressé, sa maîtrise de ses trésors était désormais comparable au ciel et à la terre par rapport à auparavant.
+
+Désormais, lorsqu'il utilisait un trésor magique, celui-ci se révélait encore plus puissant.
+
+Ce jour-là, Wang Lin aperçut la sortie au loin. À la sortie se trouvait un tatouage géant et brillant qui maintenait la faille ouverte.
+
+Wang Lin pouvait voir le monde extérieur à travers la brèche. D'innombrables sauvages se tenaient devant la sortie, les yeux rivés sur la faille.
+
+Wang Lin renifla. Il n'avait jamais envisagé de quitter cet endroit par cette faille. Il sauta de la boussole stellaire et abattit son épée céleste. L'énergie de l'épée frappa les tatouages qui maintenaient la brèche ouverte. Une série de grondements retentit et des fissures apparurent sur les marques.
+
+« Non ! » La puissance des tatouages du vieil homme était presque épuisée après huit mois de traque. En voyant le tatouage de la sortie attaqué, il hurla instantanément, une trace de panique sur son visage.
+
+Il se téléporta en avant pour arriver le plus vite possible, mais ce qu'il vit en arrivant fut Wang Lin abattant une nouvelle fois l'épée céleste. Le tatouage fut détruit et la faille spatiale se referma.
+
+Le corps du vieil homme trembla tandis qu'il fixait avec stupeur la sortie qui avait disparu.
+
+« Vieux sac d'os, puisque ce petit seigneur ne peut pas partir, autant que tu restes aussi pour continuer à me poursuivre ! » Wang Lin ne resta pas immobile. Après avoir détruit le tatouage, il regagna sa boussole et reprit sa fuite.
+
+Son rire flottait lentement, porté par la distance.
+
+« Fou ! Espèce de fou ! Même si je meurs, je ne te pardonnerai pas ! » Les yeux du vieil homme étaient injectés de sang alors qu'il poursuivait Wang Lin.
+
+Cependant, les tatouages sur son corps étaient ternes. Après avoir couru un certain temps, il s'arrêta. Il poussa un rugissement et s'assit soudainement en position de lotus. Une plante à sept feuilles apparut entre ses sourcils et finit par recouvrir tout son corps.
+
+Lorsque les sept feuilles s'ouvrirent complètement, le vieil homme fut totalement enveloppé par la plante, ne laissant derrière lui qu'une unique plante poussant dans le vide.
+
+« J'espère pouvoir emprunter l'esprit du clan pour ouvrir un passage ! » Le vieil homme, à l'intérieur de la plante, ferma lentement les yeux.

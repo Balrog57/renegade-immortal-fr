@@ -1,0 +1,87 @@
+---
+n: 1132
+title: Maître Wuji
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1132 - Master Wuji
+slug: maitre-wuji
+---
+Le temps était une loi temporelle, une loi que toutes les créatures pouvaient saisir, mais s'y éveiller était extrêmement difficile. Au mieux, le domaine d'un individu ne contenait qu'une infime parcelle de la loi du temps, qu'il appréhendait à travers son propre domaine.
+
+Par le passé, sur la planète Suzaku, Wang Lin avait rencontré une personne possédant un domaine temporel !
+
+À cette époque, Wang Lin avait ressenti toute la puissance d'un tel domaine. Même Yun Quezi s'en était montré très préoccupé. On pouvait dire que, sur l'ensemble de la planète Suzaku, seule cette personne possédait un domaine de cette nature !
+
+Alors que les grondements du dragon de sang résonnaient, la puissance temporelle émanant de son corps décupla. Elle était bien plus puissante qu'un simple domaine ; elle était devenue une loi ! Cette loi avait été instaurée par le dragon de sang qui utilisait ce sortilège !
+
+La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Allheaven s'y trouvait ; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon. Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
+
+Son corps se mit à trembler de manière incontrôlable, comme si une énergie glaciale s'était infiltrée en lui. Des rides apparurent sur sa peau, se superposant rapidement les unes aux autres. Il ressentit une fatigue extrême et sa culture sembla stagner.
+
+Tout cela se produisit en un instant. Le jeune homme ne fut confus qu'un bref moment, mais il crut entendre des cris venant du loin, empreints d'une terreur indicible. Il sursauta. Il voulut tourner la tête, mais son corps était devenu trop raide ; le moindre mouvement lui était impossible.
+
+« Je... Qu'est-ce qui m'arrive ? » La vision du jeune homme était floue, comme si un voile de brume obstruait son regard. Il leva lentement la main pour se frotter les yeux, espérant dissiper ce brouillard.
+
+Ce geste sembla porter ses fruits, car il regagna un bref instant de clarté. Il vit les cultivateurs autour de lui reculer, leurs yeux empreints de peur et d'effroi. Il vit que la sœur cadette qui l'accompagnait depuis longtemps affichait elle aussi une expression terrifiée ; toute la tendresse qu'elle manifestait autrefois avait disparu.
+
+Ce qu'il vit en dernier fut sa main droite, celle qu'il avait utilisée pour se frotter les yeux, et il fut saisi d'horreur. C'était une main couverte de rides et de taches séniles.
+
+« Ceci... » Le corps du jeune homme trembla davantage lorsqu'il porta la main à son visage. Il ouvrit la bouche pour laisser échapper un cri de terreur, mais... ce son fut étouffé en lui, sans jamais pouvoir voir le jour.
+
+Ses yeux perdirent toute vitalité. Son corps vieillit à une vitesse fulgurante sous les yeux de ses compagnons. Ses cheveux tombèrent, ses dents pourrirent et ses os se désintégrèrent, jusqu'à ce que son enveloppe charnelle ne puisse plus soutenir sa peau. Son corps s'effondra en un tas de poussière alors qu'il mourait... il mourut de vieillesse...
+
+Cette scène étrange plongea les cultivateurs environnants dans un silence total, tant cela dépassait leur imagination. Cependant, le temps était impitoyable ; ils n'eurent pas le temps de réfléchir avant qu'une femme parmi eux ne montre elle aussi des signes de vieillissement. Bientôt, ce vieillissement sembla devenir contagieux, et tous les cultivateurs commencèrent à présenter les mêmes symptômes.
+
+C'était comme si, en cet instant précis, les cieux avaient révoqué leur statut de cultivateurs et leur droit de vivre pendant des centaines, des milliers, voire des dizaines de milliers d'années. C'était comme si toutes ces années s'étaient abattues sur leurs corps d'un seul coup.
+
+Ces douze cultivateurs n'étaient qu'une infime partie du vide. À cet instant même, la scène se répétait partout dans l'immensité. Peu importe l'origine des cultivateurs, tant qu'ils se trouvaient dans ce vide, ils ne pouvaient échapper à la loi du temps. Seuls les cultivateurs Briseurs de Nirvana pouvaient y résister, mais... ils n'étaient que peu nombreux.
+
+Chaque fois qu'un cultivateur succombait à la loi du temps, une aura invisible quittait son corps pour charger vers le centre du vide. Ces filaments d'aura traversaient l'espace à une vitesse dépassant celle de n'importe quel cultivateur. Ces auras semblaient déjà faire partie des cieux et, en un clin d'œil, elles atteignirent le dragon de sang au centre du vide.
+
+À mesure que les cultivateurs mouraient, toujours plus d'auras pénétraient le dragon de sang. Bientôt, la glace bleue qui recouvrait la créature commença à se briser. C'était comme si une vie nouvelle était injectée dans le dragon tandis que la glace craquait.
+
+Les huit rois du Secte des Cadavres n'étaient nullement affectés par cette loi du temps. Ils progressaient, de plus en plus près, vers le dragon de sang !
+
+Dans la direction opposée, Maître Flamespark suivait respectueusement le vieil homme en noir. Bien que ce dernier ne semblât pas se déplacer rapidement, chaque pas qu'il faisait donnait l'impression que le vide se contractait sous lui. C'était comme si cette distance infinie n'était plus qu'un pouce de long...
+
+Il ne s'agissait pas d'une Déviation Spatiale où il fusionnait avec le monde, mais plutôt d'une réduction du vide ! Il n'avait nul besoin de fusionner avec le monde, car il *était* le monde ; même un royaume entier n'était pour lui qu'un pouce de distance !
+
+Il ne se précipitait pas, avançant pas à pas selon un certain rythme. Le respect dans les yeux de Maître Flamespark s'intensifiait. En suivant le vieil homme, il se trouvait naturellement dans le rayon d'action de ce sortilège mystérieux.
+
+Au moment où la puissance de la loi enveloppa le vide, Wang Lin la ressentit également. Cependant, son corps était fait de roche, et l'âge de cette roche était impossible à calculer. Cette loi l'entoura, mais peu importait le temps qui passait sans que le vent ne souffle, la roche restait la roche...
+
+Alors qu'il volait calmement vers l'avant, il vit les cultivateurs environnants disparaître sous l'effet de la loi du temps. Ils s'évanouissaient tous sans laisser de trace.
+
+« Si nous perdons notre identité de cultivateurs et nos sorts, nous ne sommes... que des mortels... » Wang Lin ressentit une pointe de mélancolie dans son cœur, mais il ne ralentit pas sa course.
+
+« Si mon corps originel était venu... je serais comme eux et je deviendrais une partie du vide... De manière inattendue, des cultivateurs ayant pratiqué pendant des centaines, des milliers, voire des dizaines de milliers d'années ne peuvent même pas être comparés à un simple morceau de roche... »
+
+Wang Lin secoua la tête. Face à ce spectacle, il eut soudain une nouvelle compréhension du mot « Dao ».
+
+Les dragons de sang avaient absorbé l'aura d'innombrables cultivateurs morts sous l'effet de la loi, et la glace bleue sur leur corps finit par s'effondrer totalement. Le corps massif se redressa et poussa un rugissement dans le vide ! Au moment où ce cri retentit, un vortex de 10 000 pieds de large apparut, accompagné de grondements sourds.
+
+Une voix émana du vide et se propagea lentement à travers l'espace.
+
+« Wu, attends que je vienne ! » Dès que cette voix prononça ces mots, le vieil homme au loin s'arrêta et son regard devint grave. Maître Flamespark resta silencieux. C'était la deuxième fois qu'il entendait cette voix, mais cette fois, l'arrogance monstrueuse était encore plus palpable.
+
+Cette arrogance méprisait la loi et dédaignait les cieux. Pourtant, Maître Flamespark ne trouva pas ces paroles insolentes... La puissance de la lance manifestée hors de la planète Suzaku prouvait que cet individu était plus que qualifié pour une telle arrogance !
+
+Les huit rois du Secte des Cadavres s'arrêtèrent tous, fixant le vortex au loin tout en réfléchissant silencieusement. Cependant, bientôt, des lueurs fantomatiques et divers degrés d'avidité apparurent dans leurs yeux.
+
+Wang Lin entendit également ce rugissement. Son corps s'immobilisa et il leva les yeux, son regard révélant une détermination inflexible. Peu importe la puissance de l'ennemi ou la difficulté du chemin, tant que Tuo Sen voudrait tuer Wang Lin, il ne céderait jamais !
+
+« Beaucoup de gens veulent ma mort, mais je vis encore très bien... » Wang Lin esquissa un sourire narquois et continua d'avancer. C'était la vérité.
+
+Ils n'étaient pas les seuls cultivateurs à avoir survécu. Certains Briseurs de Nirvana avaient également passé l'épreuve. Après réflexion, ils se rapprochèrent tous de ce lieu. Quant aux autres cultivateurs restés à l'extérieur du vide, ils échappèrent heureusement à la loi du temps et survivirent.
+
+Il existait un autre endroit en dehors de ce vide. Il se situait dans un lieu qui n'appartenait pas à la Terre des Dieux Anciens parce que... c'était la Terre des Dieux Anciens elle-même...
+
+Cela pouvait sembler contradictoire, mais c'était un fait. La planète Suzaku n'était que l'entrée de la Terre des Dieux Anciens. Il s'agissait d'une faille spatiale qui n'appartenait pas à cet espace, une faille extrêmement vaste, assez grande pour contenir le corps gigantesque d'un dieu ancien à 8 étoiles !
+
+Que ce soit le vide ou les épreuves, tout se trouvait, en réalité, à l'intérieur du corps du dieu ancien... Tout comme en ce moment même : que ce soit Wang Lin, les huit rois du Secte des Cadavres ou le vieil homme en noir, ils se trouvaient tous dans la poitrine du dieu ancien.
+
+Dans cette faille spatiale silencieuse où le corps du dieu ancien reposait depuis des éons, si l'on observait de près la quatrième des huit étoiles, on y verrait une personne assise !
+
+Cette personne était un érudit d'âge moyen. Il avait l'air ordinaire, mais il dégageait un sentiment d'arrogance extrême. C'était comme s'il était assis là, immobile, depuis une éternité.
+
+Son nom était Maître Wuji...

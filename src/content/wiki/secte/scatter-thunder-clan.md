@@ -1,0 +1,30 @@
+---
+name: Scatter Thunder Clan
+title: Scatter Thunder Clan
+type: secte
+categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council", "Ancient Primordial Star System", "Outer Realm", "Wang Lin's Cave World"]
+url: "https://xian-ni.fandom.com/wiki/Scatter_Thunder_Clan"
+
+---
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Scatter_Thunder_Clan) (CC BY-SA)
+
+**Catégories :** Organisations, Clans, High Ancient Clans, Sovereign Council, Ancient Primordial Star System, Outer Realm, Wang Lin's Cave World
+
+## Background
+
+In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.
+
+### History
+
+A member of the Scatter Thunder Clan entered the Seven-Colored Realm during the time Wang Lin was there.
+
+He attempted to steal Wang Lin's Ancient Thunder Dragon Soul but was instead killed by him. Wang Lin then took away the Scatter Thunder Clan's ability to manipulate thunder. Although this did not take away their entire abilities, it still significantly weakened the clan as their primordial thunder lake located deep within the clan had more than 30% of its content drained.
+
+Wang Lin also absorbed the Scatter Thunder Clan member's Lightning mark which, along with the lightning mark he absorbed from the statue of Scatter Thunder Clan's Ancestor, significantly boosted his thunder and lightning powers.
+
+It was created long ago by the founding Ancestor of the Scatter Thunder Clan who was also the only one to ever reach the Third Step . He did so with aid from a group of mysterious cultivators who also helped the Moon Devourer Clan enslave the weaker Ancient Gods and absorb their qi.
+
+The 7 million worlds is a type of sealed realm within which is a starsystem. This starsystem has 7 million planets all of whom hold cultivators and all of whom are exactly the same distance from each other. The starsystem orbits a large continent where a huge statue can be seen looking into the distance. This is where the Scatter Thunder Clan opperates.
+
+The Divine Tribulation of these 7 million worlds is actually created by the Scatter Thunder Clan itself, who use it to kill any and all peak Soul Formation Cultivators. Very rarely however one of these cultivators will manifest one of the six special kinds of lightning the Scatter Thunder Clan Cultivates at the momen he or she undergoes this Tribulation. These people will thus "Pass" the tribulation and enter the Celestial Realm, becoming legends to their peers. However, in truth, their Celestial Realm is the Scatter Thunder Clan itself and they are simply killed so that their unique thunder can be extracted for the clan's own use.
+

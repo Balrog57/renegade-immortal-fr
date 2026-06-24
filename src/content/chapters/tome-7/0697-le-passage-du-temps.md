@@ -1,0 +1,141 @@
+---
+n: 697
+title: Le passage du temps
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 697 - Passage of time
+slug: le-passage-du-temps
+---
+Dans la partie nord de la planète Ran Yun, au sein de la capitale de l'Empire Di Shan, un homme siégeait dans l'intimité d'un palais extrêmement luxueux. Il approchait la quarantaine et quelques mèches blanches commençaient à poindre dans sa chevelure. Sous ses sourcils acérés, ses yeux brillaient comme des étoiles.
+
+Cet homme était d'une grande beauté ; sa robe verte lui conférait une allure prestigieuse et dégageait une aura de majesté.
+
+Une carte était étalée sur la table devant lui. Il méditait en l'observant longuement avant de finalement détourner le regard.
+
+La nuit était avancée et le clair de lune nappait le sol. Tandis qu'il sombrait dans ses pensées, l'homme se leva et sortit du palais. Il contempla la terre baignée de lumière lunaire et poussa un léger soupir.
+
+« Je me demande si Père observe aussi ce monde en ce moment... »
+
+Un manteau de velours fut délicatement déposé sur ses épaules par une présence derrière lui. Il leva les mains pour ajuster le vêtement et sourit : « Tu ne dors pas encore ? »
+
+Une femme apparut à ses côtés. Elle était d'une grande beauté ; bien que les années aient passé, elle ne paraissait pas vieille, mais exhalait plutôt une aura de maturité.
+
+Ses yeux pétillaient de tendresse en regardant l'homme, et elle dit doucement : « Le vent de la nuit est froid, repose-toi tôt. »
+
+L'homme prit la main de la femme tout en levant les yeux vers la lune et murmura lentement : « Qing Yi, que penses-tu que notre Père soit en train de faire en ce moment... »
+
+Le visage de Qing Yi s'empourpra. Elle accompagnait cet homme depuis de nombreuses années et lui avait même confié l'accord qu'elle avait conclu avec son père. Les années passées ensemble avaient fait croître leurs sentiments, mais à cet instant, elle rougit encore comme une jeune fille.
+
+Qing Yi répondit d'une voix douce : « Il doit être... votre père... »
+
+L'homme serra la main de Qing Yi et rit : « Mon père est ton père. »
+
+Le cœur de Qing Yi fut envahi par une douce émotion. Elle suivit le regard de l'homme vers la lune et dit doucement : « Père doit être en train de se reposer... »
+
+Une lueur étrange passa dans les yeux de l'homme, qui secoua la tête : « Je sens que Père me regarde en ce moment même... »
+
+Dans le manoir des Wang, à la cité de Vast Water, Wang Lin détacha son regard de l'horizon. Il était assis dans la cour sous un arbre, bercé par le vent d'automne et écoutant le bruissement des feuilles. Parfois, une ou deux feuilles tombaient et dérivaient devant ses yeux.
+
+Les feuilles qui tombent finissent toujours par retourner aux racines de l'arbre. Elles étaient comme des enfants qui partent lorsqu'ils sont fatigués, mais qui reviennent toujours vers ceux qu'ils aiment.
+
+Le temps semblait s'écouler silencieusement au rythme de la chute des feuilles. Les années défilèrent et, en un clin d'œil, cinq nouvelles années s'étaient écoulées.
+
+L'École du Ciel était devenue extrêmement vaste, englobant les trois empires et s'étendant désormais sur toute la planète Ran Yun. Si la paix avait duré, tout aurait été simple, mais il y a trois ans, un changement soudain s'était produit dans l'Empire Di Shan. Ils avaient commencé à réprimer l'École du Ciel, déployant même de vastes troupes pour les anéantir.
+
+Ce bouleversement fut comme verser de l'huile sur un feu ardent. Ce changement plongea le monde mortel dans le chaos et provoqua un immense tumulte.
+
+La réaction de l'École du Ciel fut d'une férocité extrême. En seulement quinze jours, ils parvinrent à prendre le contrôle de l'armée de l'Empire Di Shan sans verser une goutte de sang. Six ou sept personnes sur dix dans l'Empire Di Shan étaient des partisans de l'École du Ciel.
+
+Prendre moins d'un mois pour asservir un empire fut comme un coup de tonnerre qui frappa les esprits. Personne ne s'y attendait, et tous furent ébranlés jusque dans leur âme.
+
+Les empires Da Qin et Chen Yun ne bougèrent pas de manière imprudente. Ils envoyèrent des émissaires à l'École du Ciel pour signer un pacte de non-agression.
+
+L'Empire Di Shan n'existait plus, remplacé par un empire colossal nommé l'Empire Céleste.
+
+Dans la capitale de l'Empire Céleste, Wang Ping, revêtu de sa robe impériale, se tenait en hauteur, contemplant le monde en contrebas. À ses côtés, Qing Yi l'accompagnait en silence.
+
+Les dignitaires de l'Empire Céleste levaient les yeux vers leur nouvel empereur. Ils ne parvenaient jamais à percer son mystère. C'était comme si rien dans ce monde n'avait de valeur à ses yeux ; comme si sa présence même ici n'était qu'une tentative de prouver quelque chose à une personne invisible.
+
+Le regard de Wang Ping balaya le monde sous ses pieds avant de se perdre au loin.
+
+Les troubles de l'Empire Di Shan avaient attiré l'attention des cultivateurs de la planète Ran Yun, qui manifestaient des signes d'ingérence.
+
+La vie de Wang Lin demeurait aussi calme qu'une eau sans rides, et son visage vieillissait davantage. Cette année marquait le cinquième anniversaire de la fondation de l'Empire Céleste.
+
+Les empires Da Qin et Chen Yun rompirent leur accord et lancèrent une offensive contre l'Empire Céleste.
+
+Wang Lin ne prêta aucune attention à ces événements. Il passait ses journées assis dans une auberge, écoutant les rumeurs circuler sur les trois empires. Il se contentait de boire en silence, sans jamais prononcer un mot.
+
+Le serveur d'autrefois avait emprunté de l'argent à ses proches pour racheter cette auberge ; il en était désormais le gérant. Le nouveau serveur connaissait bien Wang Lin. Dès qu'il voyait ce dernier arriver, il lui apportait promptement le vin et la nourriture dont il avait toujours l'habitude.
+
+Le serveur était très aimable. Après avoir déposé les victuailles, il dit avec sollicitude : « Vous vieillissez. Il vaudrait mieux boire moins. »
+
+Wang Lin sourit et hocha la tête : « Aujourd'hui, je ne boirai qu'une seule cruche ! »
+
+Le serveur sourit et alla saluer d'autres clients. Lorsqu'il eut un moment de répit, il s'appuya contre le comptoir près de la porte, observa Wang Lin et soupira : « Ce vieil homme Wang mène une existence amère. Il est si vieux et n'a pas d'enfants pour lui tenir compagnie. »
+
+Le caissier derrière le comptoir arrêta son mouvement sur l'abaque et secoua la tête : « J'ai entendu dire par une servante de leur manoir qu'il avait un fils. Cependant, ce fils a quitté la maison il y a de nombreuses années et n'est jamais revenu. »
+
+Wang Lin saisit sa cruche de vin et but une gorgée. Son regard se posa sur la fenêtre et il resta ainsi assis toute la journée.
+
+Au crépuscule, les vieux serviteurs vinrent à l'auberge. Ils craignaient que leur maître ne soit devenu trop fragile. S'il ne buvait pas, tout allait bien, mais après avoir consommé de l'alcool, il fallait quelqu'un pour veiller sur lui, de peur qu'il ne tombe et ne se blesse.
+
+Wang Lin et les vieux serviteurs marchèrent sous la lune qui montait progressivement pour rentrer chez eux. La vaste demeure vide était plongée dans l'obscurité.
+
+Après avoir congédié les serviteurs, Wang Lin s'assit dans la cour et leva les yeux vers le ciel en murmurant : « Le temps passe si vite. Ping Er a déjà 47 ans... Peut-être a-t-il lui-même trouvé des indices... »
+
+La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Céleste prit personnellement les rênes du pouvoir.
+
+Peu importe le niveau de culture des intervenants, tous reculaient devant lui. Peu à peu, tous les cultivateurs qui tentaient d'interférer se retirèrent du monde mortel.
+
+Outre l'ascension de Wang Ping, une autre raison majeure fut que les familles Sun, Ran et Zhao avaient donné leurs ordres.
+
+Wang Ping siégeait au sommet d'une tente dorée dans le camp militaire. Après avoir écarté quelques courtisans, il sortit de la tente. Son regard passa devant plusieurs soldats avant de se poser sur le mont Quilian, au loin.
+
+Le visage de Wang Ping paraissait un peu plus marqué par l'âge, et les cheveux autour de ses tempes étaient devenus d'un blanc immaculé. Après être devenu le souverain suprême des mortels, le bonheur s'était fait rare dans sa vie. Le poids de ses responsabilités accablait son cœur.
+
+Soudain, il regretta les dix-neuf années de son enfance et tout ce qu'il avait vécu au village lorsqu'il était un petit garçon.
+
+Alors qu'il contemplait le mont Quilian, pensif, Qing Yi sortit de la tente. Elle se tint aux côtés de Wang Ping et dit doucement : « Tu as dit que c'était là que tu avais grandi. Veux-tu aller voir ? »
+
+L'apparence de Qing Yi portait également les traces du temps tandis qu'elle regardait tendrement Wang Ping.
+
+Wang Ping soupira et répondit : « Allons voir... »
+
+Une paire de sergents les suivit alors que Wang Ping et Qing Yi marchaient vers le mont Quilian. Wang Ping observa les environs ; cet environnement inconnu lui procurait pourtant un étrange sentiment de familiarité.
+
+La fumée au loin devint plus distincte, puis le village de Fallen Moon apparut à sa vue.
+
+Dès qu'ils approchèrent, peut-être en raison de la présence des soldats, des aboiements féroces s'élevèrent du village. En ces temps chaotiques, les villageois de Fallen Moon étaient extrêmement vigilants. À l'entente des chiens, ils sortirent immédiatement avec leurs outils agricoles et leurs torches. Ils virent, non loin de là, des soldats en armure complète accompagnés d'un homme et d'une femme en vêtements civils.
+
+Face aux regards hostiles des villageois, Wang Ping ne dit mot. Il les fixa du regard, mais finit par ne pouvoir en reconnaître un seul.
+
+Son visage se crispa d'amertume. Le temps était comme une chanson ; en un éclair, de nombreuses années s'étaient écoulées. Il ne pouvait plus reconnaître les gens qu'il avait connus autrefois, car leurs transformations étaient trop profondes.
+
+De plus, près de trente ans s'étaient écoulés. Il ignorait combien d'entre eux avaient déjà rejoint le cycle des réincarnations.
+
+« Allons à la montagne arrière. Grand-père Sun est enterré là-bas. »
+
+Qing Yi poussa un soupir et avança avec Wang Ping. Les villageois hésitèrent, puis s'écartèrent lentement pour leur frayer un passage.
+
+C'est à cet instant qu'une voix faible, empreinte d'incertitude, retentit :
+
+« Wang Ping... »
+
+Wang Ping s'arrêta, se retourna et son regard croisa celui d'une villageoise. C'était une femme d'environ quarante ans. Elle semblait un peu vieillie, mais aux yeux de Wang Ping, il crut voir la jeune fille qui lui avait dit : « Je te déteste ».
+
+À ce même instant, non loin de la lointaine planète Yun Xia, Greed fonçait comme une météorite. Il observa la planète Yun Xia en reniflant, ses yeux brillant d'une lueur étrange.
+
+« Dès mon entrée dans le domaine nord, j'ai eu l'intuition qu'un trésor se cachait ici et j'ai suivi son aura. Cette odeur m'a conduit jusqu'ici. Il n'y a aucun doute, la brume dense dissimule manifestement la lumière du trésor. »
+
+« Cependant, cette planète semble un peu étrange ! »
+
+Greed fixa la planète Yun Xia un instant. Après une courte hésitation, il s'élança vers elle. Dans toute sa vie, il n'était jamais allé dans un endroit dépourvu de trésor ; il possédait une intuition terrifiante pour débusquer les richesses cachées.
+
+À mesure qu'il se rapprochait, son cœur battait la chamade et ses yeux brillaient de plus belle.
+
+« Je n'ai ressenti cela que lorsque j'ai obtenu ce fourneau géant. Se pourrait-il qu'un trésor comparable à ce fourneau se trouve ici ? » Les yeux de Greed étaient empreints d'excitation. À cet instant, il oubliait totalement Wang Lin et les restrictions qui pesaient sur lui.
+
+Il serra les dents, frappa son sac de stockage, et le fourneau géant apparut devant lui. S'en servant pour frayer un chemin, Greed s'avança et disparut lentement dans la brume.
+
+« Ce vieux doit voir de quel genre de trésor il s'agit ! » Greed se lécha les lèvres.

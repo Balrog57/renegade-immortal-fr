@@ -1,0 +1,111 @@
+---
+n: 1904
+title: "Voyons ce que les Tribulations Arcaniques ont encore à offrir !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1904 - Let’s See What Else the Arcane Tribulants Have Left!"
+slug: voyons-ce-que-les-tribulations-arcaniques-ont-encore-a-offrir
+---
+Chapitre 1904 - Voyons ce que les Tribulations Arcaniques ont encore à offrir !
+
+Wang Lin secoua la tête. Il ignorait comment les autres surmontaient leurs Tribulations Arcaniques, mais ni la neige ni le vent ne pouvaient percer son corps véritable d'essence, ni briser sa force physique. Même si ces vents persistaient pendant des centaines d'années, ils seraient incapables de déchirer son corps actuel.
+
+Son corps n'était plus celui d'autrefois. Grâce aux améliorations conférées par le vieil homme à la robe verte, il était devenu extrêmement robuste et résistant. Une telle ténacité et une telle force ne pouvaient en aucun cas être affectées par le vent !
+
+Wang Lin leva la main gauche vers le tourbillon qui l'entourait et le déchira d'un geste désinvolte ! Des grondements tonitruants résonnèrent et, sous la puissance destructrice de Wang Lin, les couches de tourbillons s'effondrèrent, de la première à la neuvième couche sans transition. Les neuf tourbillons explosèrent et disparurent.
+
+Le vent se dispersa. Wang Lin resta là, assis, continuant de boire son vin. Derrière lui, le corps véritable des cinq éléments se tenait debout, observant froidement le ciel.
+
+Le ciel était sombre, tel un visage maussade. Bientôt, un nuage de tribulation remplit l'horizon. Des grondements tonitruants emplirent les nuages tandis que des éclairs déchiraient la voûte céleste, illuminant la terre en contrebas.
+
+À des milliers de kilomètres de là, les cultivateurs du Continent du Démon Vert qui avaient assisté à l'achèvement des tribulations de la neige et du vent restaient totalement silencieux.
+
+Le tonnerre devint plus intense encore et de nouveaux nuages de tribulation apparurent, recouvrant le ciel. Ils pesaient de tout leur poids tandis que des éclairs s'agitaient en leur sein ; les nuages dégageaient un sentiment de folie et de violence.
+
+Pourtant, rien de tout cela ne troublait Wang Lin. Il buvait calmement son vin tout en contemplant les nuages et le tonnerre. Soudain, il éclata de rire.
+
+« Du tonnerre ? » Wang Lin regarda à nouveau le ciel embrasé par la foudre. Il secoua la tête et prit une gorgée de vin.
+
+Alors qu'il secouait la tête, des grondements sourds s'élevèrent des nuages. Dans leur mouvement, un éclair relié directement aux cieux descendit sur Wang Lin. Cette décharge contenait une puissance terrifiante et se précipita en un clin d'œil pour l'anéantir !
+
+« Oses-tu ?! » Wang Lin leva soudain la tête et rugit !
+
+Son rugissement surpassa le son du tonnerre et étouffa les grondements des nuages de tribulation. La volonté du tonnerre jaillit du corps de Wang Lin. C'était la volonté du Seigneur du Tonnerre lui-même !!
+
+L'éclair qui allait frapper trembla soudainement et recula à mille pieds de Wang Lin, comme s'il était saisi de peur. Non seulement il n'attaqua pas Wang Lin, mais il se retourna pour charger les nuages de tribulation !
+
+« Puisque mon essence de tonnerre a atteint la perfection, je suis le seul capable de faire tomber la foudre sur autrui ! » Wang Lin leva la main gauche vers les cieux. Les nuages tremblèrent et poussèrent un rugissement, comme s'ils ne pouvaient supporter une telle pression. Tout le tonnerre contenu en leur sein vola vers Wang Lin.
+
+L'infini tonnerre se rassembla devant la main gauche de Wang Lin pour former une sphère électrique. D'un geste, il projeta cette boule de tonnerre dans le ciel qui percuta les nuages de tribulation.
+
+Un fracas assourdissant secoua le monde et les nuages de tribulation s'effondrèrent sans aucune résistance. L'obscurité qui couvrait le monde disparut instantanément !
+
+La troisième Tribulation Arcanique venait de succomber !
+
+À des milliers de kilomètres de là, la douzaine de cultivateurs du Continent du Démon Vert ne pouvaient voir Wang Lin, mais ils sentirent avec stupeur la facilité avec laquelle les trois Tribulations Arcaniques avaient été surmontées. C'était d'une simplicité incroyable !
+
+La puissance de ces trois Tribulations Arcaniques était certes ordinaire et tout cultivateur courageux pouvait les affronter. Cependant, cela demandait du temps et une consommation massive d'énergie pour réussir à franchir les trois successivement afin d'obtenir la récompense consistant au doublement de la taille de son âme originelle.
+
+Pourtant, il était extrêmement rare que quelqu'un réussisse avec une telle aisance !
+
+« Ce doit être le Seigneur Démon Vert ! Autrement, nul ne pourrait accomplir cela ! »
+
+« Avec le niveau de culture du Seigneur Démon Vert, il a déjà affronté des Tribulations Arcaniques. C'est pourquoi il peut rester si serein face à elles aujourd'hui ! »
+
+Les cultivateurs du Continent du Démon Vert manifestèrent leur respect. Ils scrutèrent la zone soumise à la pression de la tribulation, attendant que le Seigneur Démon Vert en sorte.
+
+Wang Lin était toujours assis sur la queue du scorpion, les yeux fixés sur le ciel. Les trois dernières Tribulations Arcaniques l'avaient déçu. Il attendait maintenant l'arrivée de la quatrième, espérant qu'elle soit à la hauteur.
+
+Avec un calme olympien, Wang Lin contemplait la beauté des Tribulations Arcaniques.
+
+« Quel genre de Tribulation Arcanique sera la quatrième... » murmura-t-il en prenant une gorgée de vin.
+
+À cet instant précis, d'innombrables ondulations apparurent dans le ciel serein. Ces rides se propagèrent jusqu'à couvrir l'immensité céleste. Puis, une pression écrasante enveloppa la région. Un tambour géant de dix mille pieds de large descendit des cieux.
+
+Les deux faces du tambour étaient faites d'un matériau inconnu. Il descendait sans émettre le moindre bruit, mais il dégageait une aura antique.
+
+Dès l'apparition du tambour, Wang Lin tourna le regard, sa cruche de vin à la main.
+
+« Un peu intéressant... » murmura-t-il, une lueur brillant dans ses yeux.
+
+Simultanément, le son du tambour résonna comme si une force invisible l'avait frappé. C'était comme si d'innombrables personnes battaient le tambour de toutes parts, créant une onde sonore massive.
+
+Au moment où le son retentit, la chair, le sang, les os et les méridiens de Wang Lin tremblèrent tous. Il sentit clairement que le son ne provenait pas de la surface du tambour, mais de l'intérieur même de son corps !
+
+Cette sensation fit briller ses yeux plus intensément encore. Tandis que le tambour résonnait, une sensation de picotement se propagea dans tout son être. À cet instant, son corps devint incapable de bouger sous l'effet des vibrations !
+
+Alors que les échos du tambour infusaient son corps, une immense quantité de brouillard se rassembla pour former une gigantesque épée de brume. Cette épée semblait illusoire, presque inexistante, mais dès son apparition, elle dégagea une intention meurtrière monstrueuse.
+
+L'intention meurtrière s'intensifia à mesure que l'épée s'élevait dans les airs, avant de trancher directement vers la tête de Wang Lin !
+
+Cette épée ne visait ni le corps, ni l'âme originelle ou l'esprit de Wang Lin. Elle visait à trancher le lien entre son corps et son âme originelle. Une fois ce lien rompu, son âme et son âme originelle ne pourraient plus jamais réintégrer son corps. Cette épée affectait la lignée sanguine même, condamnant l'âme et le corps à être comme l'eau et le feu !
+
+Cela forcerait l'âme et l'âme originelle à s'éloigner irrémédiablement du corps !
+
+C'était la première des trois tribulations internes : la Tribulation de Séparation ! Le tambour en était la clé. Son apparition marquait le début des trois Tribulations Arcaniques internes !
+
+Cette épreuve était singulière et, depuis les temps anciens, trop de cultivateurs y avaient péri. Une fois l'âme originelle et l'esprit expulsés, le corps s'effondrait au son du tambour, puis l'âme et l'âme originelle se dissolvaient à son tour sous les coups sourds.
+
+L'épée de brume était silencieuse, mais son intention meurtrière jaillissait comme une fumée noire en chargeant Wang Lin. Au fil des âges, d'innombrables cultivateurs étaient tombés sous cette lame, voyant le lien entre leur âme et leur corps rompu.
+
+Désormais, cette épée réapparaissait pour frapper Wang Lin !
+
+Wang Lin ignorait que la plupart des cultivateurs ayant survécu aux trois tribulations internes s'étaient préparés pendant une éternité avant d'oser tenter l'aventure. Ils les affrontaient une à une, cherchant désespérément une infime chance de survie !
+
+À cet instant, si le son du tambour paralysait le corps de Wang Lin, il ne pouvait stopper ses battements de cœur. Il ignorait comment les autres contrélaient cette épreuve, mais il possédait sa propre méthode. Ses pulsations cardiaques s'accélérèrent et résonnèrent comme le tonnerre. Le rythme de son cœur contrecarra celui du tambour, lui rendant immédiatement la capacité de bouger.
+
+Dès qu'il put reprendre ses mouvements, l'épée de brume se rapprochait. Wang Lin lâcha calmement la cruche de vin qu'il tenait dans sa main droite. Il leva sa paume et la Lame Yin, semblable à de l'os, apparut soudainement. La lame dégageait une aura glaciale, comme si elle émanait des profondeurs de l'enfer !
+
+« Bien, viens donc ! » Wang Lin sourit sans même se lever. Il brandit la Lame Yin et balaya l'épée de brume qui fonçait sur lui.
+
+L'épée et la lame entrèrent instantanément en collision dans un fracas de tonnerre. L'épée de brume trembla violemment, se couvrit d'innombrables fissures, puis s'effondra. L'intention meurtrière de l'épée, refusant de céder, tenta de dévorer Wang Lin. Mais à cet instant, une intention meurtrière bien plus puissante que celle de la brume éclata du corps de Wang Lin. Elle dévora instantanément celle de l'épée et s'élança vers le ciel.
+
+Cette intention semblait dotée d'une conscience propre ; elle se contracta et recula comme si elle n'osait affronter la puissance de Wang Lin, avant de se dissiper rapidement.
+
+La première des trois tribulations internes venait de s'effondrer ! Alors que l'intention meurtrière se dispersait, le deuxième coup retentissant jaillit du tambour céleste !
+
+Ce son était plusieurs fois plus intense que le précédent et propagea des ondes de choc massives. C'était comme un tambour de guerre lançant un appel pour anéantir le monde !
+
+Au moment où ce son résonna, Wang Lin se redressa pour la première fois. Sa main gauche saisit la cruche qu'il avait lâchée et il en but une longue gorgée. Puis, il chargea vers le ciel !
+
+« Je vais détruire ce tambour. Voyons ce que les Tribulations Arcaniques ont encore à nous offrir après cela ! »

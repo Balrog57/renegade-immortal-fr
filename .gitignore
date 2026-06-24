@@ -5,6 +5,14 @@
 .DS_Store
 Thumbs.db
 
+# Astro
+node_modules/
+dist/
+.astro/
+
+# Copied from wiki/images/ by prebuild script
+public/wiki/images/
+
 # Wiki dev caches (rebuild with python script)
 wiki/fandom_all_images.json
 wiki/image_index_unified.json

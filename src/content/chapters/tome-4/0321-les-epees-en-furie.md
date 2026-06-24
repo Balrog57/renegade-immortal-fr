@@ -1,0 +1,113 @@
+---
+n: 321
+title: Les épées en furie
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 321 - Swords gone mad
+slug: les-epees-en-furie
+---
+« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant à ce qu'elle soit considérée comme une contrefaçon. »
+
+« De plus, le coin manquant nécessiterait un autre type de matériau, mais son utilisation actuelle devrait convenir pour l'instant. » Wang Lin soupira intérieurement.
+
+Après avoir entendu la question de Chi Hu, Wang Lin hocha la tête et sourit. « Il ne devrait y avoir aucun problème pour quitter ce vide. »
+
+Chi Hu poussa un soupir de soulagement. Au cours des derniers jours, il avait vu errer de nombreuses créatures étranges. Certaines l'ignoraient complètement, tandis que d'autres manifestaient de l'intérêt à son égard. Bien qu'il ne s'agisse finalement que de simples frayeurs et qu'il n'ait affronté aucun danger réel, il ne souhaitait plus rester ici un instant de plus.
+
+Wang Lin pointa la boussole, qui s'agrandit immédiatement. Sa taille était au moins deux fois supérieure à celle d'avant. Wang Lin s'assit alors au centre de l'artefact. Les yeux de Chi Hu s'illuminèrent ; il l'observa avec intérêt un instant avant de s'installer dans le coin est.
+
+Cette boussole contenait une parcelle du sens divin de Wang Lin ; ainsi, lorsqu'il s'assit, elle sembla fusionner avec lui comme si elle faisait partie de son propre corps. D'une simple pensée, la boussole commença à se déplacer à une vitesse plusieurs fois plus grande qu'auparavant et disparut.
+
+Chi Hu envoya un message : « Le frère Ceng est vraiment incroyable. La boussole est bien plus rapide qu'avant ! »
+
+Wang Lin répondit : « Frère Chi Hu, maintenant que j'ai affiné cette boussole, elle n'a plus besoin de guide ; vous pouvez donc vous reposer et cultiver ! »
+
+La boussole stellaire passa comme une lueur fantomatique, survolant rapidement diverses créatures étranges. Chaque fois qu'ils rencontraient des créatures dangereuses, Wang Lin les contournait immédiatement.
+
+Au début, le contrôle de la boussole semblait singulier à Wang Lin, mais après un certain temps de vol, il l'avait totalement maîtrisée. Diriger l'artefact ne différait plus guère du contrôle de son propre corps. Cette vitesse était une prouesse que Wang Lin n'aurait jamais pu atteindre en volant par ses propres moyens ; seule une téléportation constante lui permettrait de rivaliser avec cette boussole stellaire.
+
+Wang Lin pensa secrètement : « C'est véritablement un trésor rare. À cette vitesse, même des cultivateurs de la Transformation de l'Âme auraient du mal à le rattraper. » Ce voyage dans le Royaume Céleste n'était pas vain ; sa récolte dépassait son imagination. La boussole stellaire, le jade céleste et les chars du dieu de la guerre... si l'on ajoutait cette pagode, son butin était tout simplement prodigieux. Sans oublier cet esclave de la Transformation de l'Âme rebelle.
+
+Sur l'un des divers fragments célestes, l'endroit n'était pas aussi dévasté. On pouvait y deviner l'aspect qu'avait le Royaume Céleste autrefois. L'herbe verte recouvrant le sol et les nuages flottant au sommet des montagnes laissaient entrevoir la splendeur originelle de ce lieu.
+
+Une magnifique femme vêtue de blanc apparut silencieusement. Sous ses pieds, un dragon doré dégageait des vagues d'énergie d'épée. Cependant, au front de ce dragon doré, une masse pourpre révélait par intermittence le visage impuissant de Zhou Yi.
+
+« Si le Royaume Céleste était encore intact, il me suffirait de vous jeter dans l'étang de purification céleste pour vous aider à récupérer. Mais maintenant que cela a disparu, une seule épée céleste de pluie est bien trop lente. »
+
+Une voix impuissante émanant de la masse pourpre sur le front du dragon demanda : « Ting Er, pourquoi fais-tu tout cela ? Veux-tu gaspiller toute l'énergie spirituelle céleste que j'ai amassée pour toi ? »
+
+La femme en blanc répondit calmement : « Tu es un empereur céleste couronné par moi, Qin Feng. Si je refuse de te laisser mourir, tu ne peux pas mourir. De plus, je ne m'appelle pas Ting Er. »
+
+Zhou Yi afficha une expression douloureuse. Après un long silence, il murmura : « C'est vrai, tu ne t'appelles pas Ting Er... Je me suis déjà tout souvenu... Puisque tu n'es pas Ting Er, laisse-moi partir... je suis déjà mort... »
+
+La femme en blanc se mit à réfléchir. Après un moment, elle dit : « Cependant, ce nom, Ting Er... je l'aime beaucoup. »
+
+Zhou Yi fut stupéfait. Ses yeux brillèrent d'une lueur de joie tandis qu'il murmurait : « Ting Er... »
+
+« Hum... » La femme en blanc réfléchit encore un instant avant de répondre. Elle pressa sa main contre le fragment céleste sous elle et récita quelques incantations cristallines.
+
+Soudain, le sol se mit à trembler et d'innombrables fissures apparurent. Des rayons de lumière dorée jaillirent des profondeurs. Peu après, toutes les lueurs dorées convergèrent en un point unique et le sol commença à se rompre. Un hymne d'épée cristallin, qui résonna à travers tout le royaume céleste, retentit alors que l'épée céleste faisait son apparition.
+
+Le dragon doré sous la femme en blanc poussa un rugissement face à l'hymne d'épée, et un grondement similaire lui répondit depuis le sous-sol.
+
+« Deuxième épée céleste de pluie, apparais ! »
+
+Bang !
+
+Le sol éclata alors qu'un dragon doré surgissait des profondeurs. Dans son élan, la terre environnante commença à s'effondrer dans le vide. Une fois apparu, il s'entrelaça avec le dragon doré sous les pieds de la femme en blanc. Les deux dragons lancèrent des rugissements de joie, comme si deux vieux amis se retrouvaient.
+
+À cet instant, loin dans le vide, le vieil homme de la Secte Da Lou, assis sur un Qilin, ouvrit soudainement les yeux. Dès qu'il les ouvrit, une puissante créature du vide poussa un gémissement misérable et s'enfuit en panique.
+
+« Une autre épée céleste de pluie ! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre ! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra ! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui : « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma culture actuelle... »
+
+Ses yeux pétillèrent tandis que le Qilin sous ses pieds s'animait avec plus de célérité. Après un instant, une expression de joie illumina son visage.
+
+« Ils ont réagi ! »
+
+Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. La main de la femme prit la forme d'une fiole de jade lorsqu'elle déclara : « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi ! »
+
+À l'instant où elle eut fini de parler, chaque fragment du royaume céleste, qu'il fût habité ou non, se mit à trembler. Ce tremblement de terre n'était pas dû à un effondrement, et celui du ciel n'était pas causé par des failles spatiales.
+
+Une à une, les épées célestes s'envolèrent des fragments, se reformant les unes après les autres dans l'air. Les hymnes d'épée résonnaient de lame en lame, d'un fragment à l'autre. En un clin d'œil, les chants d'épée provenaient de chaque recoin du royaume céleste. À cet instant précis, un seul son dominait le Royaume Céleste.
+
+C'était le chant d'une épée !
+
+Un disciple de la Secte des Épées de Da Lou combattait alors quelqu'un pour lui dérober un trésor. En voyant la panique sur le visage de son adversaire, il ricana en abattant son arme. Cependant, son ricanement s'évanouit promptement, remplacé par la confusion. Des vagues d'hymnes d'épée l'assaillirent de toutes parts, envahissant ses oreilles.
+
+Au moment où il portait son coup avec son épée précieuse, une série de craquements retentit et des fissures parcoururent l'arme. En un éclair, son trésor vola en éclats. Sur un autre fragment céleste, les épées volantes sous les pieds de certains cultivateurs se brisèrent instantanément en plein vol.
+
+Une femme qui venait d'entrer dans le vortex pour atterrir sur un fragment entendit soudain l'hymne d'épée. Pensant qu'un incident survenait, elle sortit instinctivement une épée volante arc-en-ciel de sa sacoche de rangement. Cette épée était le trésor majeur de sa secte, mais dès qu'elle apparut, des fissures la déchirèrent et elle vola en morceaux.
+
+À ce moment précis, peu importe l'endroit où ils se trouvaient dans le Royaume Céleste ou leur niveau de culture, si un cultivateur brandissait une épée, celle-ci se brisait.
+
+L'épée se brise par honte !
+
+L'épée se brise pour nourrir l'âme !!
+
+L'épée se brise pour les dévots de l'épée !!!
+
+L'épée céleste de pluie possédait une nouvelle âme, et cette âme était Zhou Yi. L'esprit de l'épée céleste de pluie était revenu. Dix mille épées brisées, dix mille épées revenues, dix mille épées fusionnées en une seule !
+
+Toutes les épées célestes du Royaume Céleste volèrent dans une seule direction. Quiconque osait leur barrer la route était tué ! Si un homme se dressait devant elles, elles le tuaient. Si la terre faisait obstacle, elles la dévastaient. Si le ciel s'interposait, elles le déchiraient. Et si une bête les empêchait de passer, elles l'abattaient.
+
+Dans le vide, un érudit d'âge moyen marchait tranquillement. Chaque fois qu'une créature étrange l'apercevait, elle l'évitait ; aucune n'osait s'approcher de lui. Alors qu'il traversait le vide, il entendit l'hymne d'épée, ce qui fit changer son expression.
+
+« Ils ont été attirés ! »
+
+Simultanément, de nombreuses épées convergèrent depuis le lointain. Même avec sa culture, l'homme n'osait pas leur faire face et décida de les esquiver. Son corps disparut soudainement. Une fois les épées passées, ses yeux s'illuminèrent et il se précipita à leur suite.
+
+« Tant que je suivrai les épées, je pourrai trouver l'épée céleste de pluie ! »
+
+Il n'était pas le seul cultivateur à avoir cette idée. À cet instant, presque tous les cultivateurs quittaient leurs fragments célestes pour suivre les lames. Ils voulaient tous découvrir ce qui pouvait bien pousser toutes ces épées à la folie !
+
+Wang Lin était sur la boussole lorsqu'il entendit l'hymne d'épée. Il s'arrêta brusquement. Le visage de Chi Hu se décomposa : « Frère Ceng, je crains que quelque chose de grave ne soit arrivé ! »
+
+Avant qu'il n'ait fini sa phrase, il vit des rangées d'épées au loin. Elles dégageaient toutes une puissante énergie d'épée en fonçant vers lui. Chi Hu regarda de plus près et s'écria : « Ceci... ce sont toutes... des épées célestes ! »
+
+Ces épées étaient extrêmement rapides et se rapprochaient à toute allure. Wang Lin prit une grande inspiration et contrôla promptement la boussole pour esquiver sur le côté. Les épées célestes passèrent près de lui.
+
+Wang Lin était sous le choc : « Que s'est-il passé exactement ? »
+
+Le visage de Chi Hu était pétrifié par la terreur tandis qu'il pointait l'horizon : « Regarde, frère Ceng, il y a encore plus d'épées célestes là-bas ! »
+
+Ils virent d'innombrables épées célestes surgir, se dirigeant dans la même direction que les premières.

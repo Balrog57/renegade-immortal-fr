@@ -1,0 +1,119 @@
+---
+n: 600
+title: "Fruit de l'Ascension Céleste"
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 600 - Celestial Ascension Fruit
+slug: fruit-de-lascension-celeste
+---
+À cet instant, dans la tour noire située sur l'ancien champ de bataille, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur du casque au sommet de la tour.
+
+« Il vient tout juste d'atteindre le stade d'Ascendant, son énergie originelle n'a donc pas encore totalement fusionné avec son corps. Il lui faudra quarante-neuf jours pour achever ce processus, et cette fenêtre est une opportunité que j'attends depuis dix ans... »
+
+La lueur fantomatique à l'intérieur de l'armure vacilla, puis des rugissements tonitruants retentirent à l'extérieur de la tour noire. À cet instant, un vortex noir gigantesque apparut soudainement dans le ciel.
+
+Ce vortex était d'une démesure absolue. Lorsqu'il tournait, il semblait capable d'absorber tout ce qui existait au monde. Le ciel changea de couleur et même les innombrables âmes du champ de bataille antique commencèrent à trembler.
+
+La lumière fantomatique émanant de la tour brilla intensément tandis qu'un puissant Sens Divin se propageait depuis l'édifice, couvrant rapidement l'intégralité de l'ancien champ de bataille. Le sol, par endroits, se dérogea et bientôt, plusieurs os noirs jaillirent de la terre pour s'élancer dans les airs.
+
+Ces fragments osseux fusionnèrent rapidement dans le ciel pour former un bras d'os noir.
+
+Le bras d'os noir vola lentement vers la tour et s'immobilisa sous le vortex.
+
+« Je n'ai pas rassemblé une puissance suffisante, je ne peux donc pas la gaspiller ainsi. De plus, son emplacement actuel est l'un des endroits où je ne souhaite point me rendre ! » La lueur fantomatique de l'armure vacilla de nouveau et un bras de l'armure se détacha. Il dégagea une explosion de flammes démoniaques avant de s'élancer hors de la tour, visant droit sur le bras d'os.
+
+Au moment où l'armure toucha le membre desséché, elle s'y attacha instantanément. Une fois liée à l'armure, le bras devint radicalement différent, parcouru par de puissantes décharges d'énergie spirituelle démoniaque.
+
+« Va, et rapporte l'énergie originelle ! » Le bras trembla avant de disparaître dans le vortex.
+
+« Seuls les cultivateurs Ascendants possèdent une énergie originelle en leur sein. Dommage que je sois trop gravement blessé pour extraire l'énergie originelle de cultivateurs ayant déjà fusionné celle-ci avec leur corps à une telle distance. Je ne peux que choisir d'attaquer ceux qui viennent de réaliser une percée pour leur dérober leur énergie originelle. » La lueur fantomatique de l'armure, désormais privée d'une protection de bras, faiblit progressivement jusqu'à s'éteindre totalement.
+
+Wang Lin était assis en position du lotus à l'intérieur de la grotte. Il expira un souffle fétide et se redressa. Il y avait passé dix ans ; de nombreux craquements retentirent alors que son corps retrouvait sa souplesse.
+
+Alors qu'il dénouait ses membres, son expression changea soudainement et il leva les yeux vers le plafond de la grotte céleste. À cet instant, un vortex noir apparut silencieusement !
+
+« C'est... » Les yeux de Wang Lin se plissèrent. Il séjournait dans cette grotte depuis fort longtemps et n'avait jamais vu un tel vortex. La coïncidence était trop parfaite ; il apparaissait précisément au moment où il atteignait le stade d'Ascendant !
+
+La nature prudente de Wang Lin fit qu'en voyant le vortex, il se précipita immédiatement vers la sortie de la grotte.
+
+Au moment où il s'élança, le vortex accéléra soudainement, augmentant de volume. Le regard de Wang Lin se glaça ; d'un geste vif, il frappa son sac de rangement et sortit sans hésiter le jeton de la grotte. Sa main traça un sceau et, bientôt, son corps devint translucide, sur le point de disparaître.
+
+C'est alors qu'un bras d'os revêtu d'une armure jaillit du vortex et balaya violemment Wang Lin !
+
+Ce coup fit vaciller la silhouette dématérialisée de Wang Lin, qui finit par disparaître instantanément.
+
+Le bras d'os noir marqua un temps d'arrêt avant de retourner dans le vortex, lequel disparut à son tour.
+
+Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays du Démon de Feu, et Wang Lin en émergea !
+
+Son visage était sombre. Quiconque subirait une telle scène étrange juste après avoir atteint le stade d'Ascendant ne saurait s'en réjouir.
+
+Au moment où il avait utilisé le jeton pour se téléporter, le bras avait interféré avec la transition, provoquant un dévoiement. Il déploya son Sens Divin et constata que l'endroit lui était totalement étranger.
+
+À cet instant précis, un point noir apparut dans le ciel. Ce point tourbillonna à une vitesse inimaginable et, en un éclair, se transforma en ce vortex gigantesque.
+
+Le vortex surgit dans un silence absolu ; même le Sens Divin n'avait pu détecter son apparition imminente. C'était comme si le vortex avait toujours été là, partout à la fois.
+
+Wang Lin fixait le vortex d'un regard lugubre. Cette fois, il ne s'enfuit pas ; il voulait tester la puissance de ce bras tapi dans les ténèbres !
+
+À peine le vortex apparu, le bras d'os armé en sortit et tendit l'accolade vers Wang Lin !
+
+Aucun vent ni aucun nuage n'accompagnaient ce geste. Aucune fluctuation ne trahissait l'usage de sorts ; cette attaque semblait aussi naturelle que le mouvement d'un simple mortel agitant le bras.
+
+Wang Lin fronça légèrement les sourcils, leva sa main droite et utilisa, pour la première fois au stade d'Ascendant, le Doigt de la Mort. La lumière noire était dix fois plus vaste qu'auparavant, parcourue de cercles concentriques !
+
+La lueur noire jaillit comme un coup de tonnerre et percuta le bras d'os. À cet instant, une quantité stupéfiante d'énergie spirituelle démoniaque jaillit de l'armure. Cette énergie était si dense qu'elle devint solide, bloquant immédiatement le Doigt de la Mort.
+
+Cependant, l'énergie démoniaque avait sous-estimé la technique de Wang Lin. Si celui-ci n'avait pas été au stade d'Ascendant, son Doigt de la Mort se serait brisé net face à une telle puissance ; mais il activait désormais sa technique avec une culture de niveau Ascendant. Bien que la lumière noire fût arrêtée, l'énergie de mort qu'elle contenait ne pouvait être entravée. Lors de la collision entre l'énergie démoniaque et l'énergie de mort, la première se dissipa comme si elle avait été absorbée par la seconde.
+
+Tout cela se produisit en un instant.
+
+Alors qu'il venait de lancer son Doigt de la Mort, Wang Lin sentit aussitôt une force invisible fondre sur lui. Cette force ressemblait à une brise légère, mais dès qu'elle toucha son corps, son expression changea radicalement !
+
+Il réalisa avec effroi que son âme originelle, fraîchement formée, était sur le point d'être balayée par ce vent invisible !
+
+Même son esprit ne pouvait y résister ; sa main droite commença à s'abaisser lentement. Son âme originelle dérivait hors de son corps, prête à l'abandonner.
+
+Mais lorsqu'une sensation de somnolence envahit son être, les yeux de Wang Lin devinrent glacials. Puisque son âme originelle quittait son enveloppe, son corps se raidissait et il perdait rapidement connaissance.
+
+À cet instant, loin de paniquer, il fut envahi par une intention meurtrière !
+
+Il était Wang Lin. Lui qui avait osé défier les cieux et même chercher à les tuer, comment pouvait-il être subjugué par un simple sort ? Il possédait un cœur de massacre, et en cet instant, son cœur de massacre entra en collision avec son intention meurtrière, engendrant une aura de carnage titanesque !
+
+Un rugissement sourd s'échappa de sa bouche, et une aura de meurtre monstrueuse jaillit de ses yeux !
+
+Sous la puissance de cette aura de massacre, son âme originelle, qui était déjà à moitié sortie de son corps, fut violemment renvoyée à l'intérieur. Une fois son âme stabilisée, Wang Lin fixa froidement le bras.
+
+« Peu importe qui vous êtes, ne jouez pas avec moi... » Wang Lin recula d'un pas et, simultanément, enchaîna plusieurs sorts de téléportation. En un clin d'œil, il disparut.
+
+Le bras osseux n'était pas la véritable menace ; ce qui était terrifiant, c'était cette protection de poignet. Le Doigt de la Mort que Wang Lin avait utilisé pour sonder la situation lui avait permis de voir au-delà de l'armure. Les terres des esprits démoniaques regorgeaient d'êtres mystérieux. Wang Lin venait de franchir le stade d'Ascendant et avait besoin de quelques jours pour que son âme originelle fusionne totalement ; il ne voulait pas s'attirer de tourments inutiles pour l'instant.
+
+Au moment où Wang Lin partit, une exclamation étouffée retentit depuis la tour noire sur l'ancien champ de bataille.
+
+« Pas étonnant qu'il soit un cultivateur défiant les cieux ; il a pu résister de force à mon Vent Démoniaque Céleste grâce à son cœur de massacre ! Mais plus tu excelles, plus ton énergie originelle m'attire ! Dans ces terres des esprits démoniaques, ceux qui cultivent la voie de l'ancien démon ne peuvent former d'énergie originelle. Celle-ci n'apparaît que lorsque les cultivateurs atteignent le stade d'Ascendant. Durant ces innombrables années, presque chaque Ascendant de ce pays a vu son énergie dévorée par moi... Tu ne feras pas exception ! »
+
+Wang Lin réapparut après sa téléportation. Il se trouvait dans une zone désolée, dépourvue de montagnes ou de cours d'eau. Seuls des arbres desséchés jonchaient le paysage. Cependant, ses yeux se plissèrent aussitôt en remarquant des restrictions au loin.
+
+« Quel genre de bras était-ce ? » grogna Wang Lin en volant vers ces barrières.
+
+Il atteignit bientôt l'emplacement des restrictions. Le lieu était plus aride encore que le précédent. Le sol, craquelé par la sécheresse, ne présentait rien d'anormal au premier abord.
+
+Les restrictions protégeant ce site n'étaient pas complexes, mais leur qualité était exceptionnelle. Il y en avait pas moins de mille, toutes interconnectées : l'activation de l'une entraînait celle de toutes les autres.
+
+Bien que rudimentaires, elles étaient redoutables. Même un général démon aurait eu du mal à forcer le passage, et cela lui aurait coûté un temps précieux.
+
+Wang Lin déploya son Sens Divin. Avec sa culture et sa maîtrise des formations, ces restrictions ne l'intéressaient guère. Il n'avait aucune intention de fouiller ce qui s'y cachait et s'apprêtait à repartir quand le vortex noir apparut soudainement, faisant rétrécir ses pupilles.
+
+« C'est comme un fantôme qui me hante ! » Les sourcils de Wang Lin se froncèrent durement et son regard se glaça. Ce vortex noir ne cessait de surgir devant lui, éveillant une pointe d'intention meurtrière dans son cœur. Il laissa échapper un reniflement méprisant et plongea tête baissée dans les innombrables restrictions.
+
+Grâce à sa compréhension des lois, il pouvait briser des barrières du même niveau que celles de la grotte céleste ; ces restrictions ne représentaient donc aucun défi. D'un seul regard, d'innombrables déductions traversèrent son esprit. Puis, son corps disparut dans le réseau de protection.
+
+La fonction de ces restrictions, outre l'interdiction d'accès, était de créer des illusions pour dissimuler l'intérieur. Mais Wang Lin, ayant brisé tant de formations par le passé, parvint à les traverser sans les déclencher. Une fois par-delà les barrières, le paysage changea radicalement.
+
+La plaine était toujours là, mais elle avait été artificiellement découpée en parcelles et exhalait un parfum étrange.
+
+« Hein ? » Wang Lin fut surpris ; il ne s'attendait pas à une telle découverte. Plus étonnant encore : une seule chose y était cultivée !
+
+« Fruit de l'Ascension Céleste... » L'expression de Wang Lin devint singulière.
+
+À cet instant, les restrictions environnantes commencèrent à s'effondrer alors que le bras d'os noir forçait le passage à travers les innombrables barrières pour s'y engouffrer.

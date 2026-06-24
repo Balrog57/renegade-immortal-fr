@@ -1,0 +1,123 @@
+---
+n: 997
+title: Maître du Vide
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 997 - Master Void
+slug: maitre-du-vide
+---
+C'était un trésor dont Tu Si était très satisfait, mais malheureusement, aucun esprit de trésor ne s'était formé. Afin de le perfectionner, Tu Si l'avait caché dans une planète et l'avait transformée en trois montagnes. Il voulait utiliser l'esprit montagneux de la planète pour forger un esprit de trésor à ce trident !
+
+Il avait prévu de le récupérer une fois qu'il maîtriserait le sort de lignée royale, mais après son départ, il n'est jamais revenu...
+
+Lorsqu'il vit le trident entrer dans le trou noir avec l'Omniscient, il ressentit une profonde mélancolie. Cette tristesse émanait des regrets enfouis dans les souvenirs de Tu Si.
+
+Ling Tianhou et l'homme en violet se transformèrent en rayons de lumière et foncèrent vers le trou noir. Cependant, ils s'arrêtèrent brusquement.
+
+Alors que Wang Lin s'apprêtait à pénétrer dans le trou noir, il se retourna soudainement pour regarder les étoiles. Le vieil homme sur la calebasse noire et Situ Nan l'avaient devancé en scrutant l'horizon.
+
+Une ondulation apparut, et un vieil homme en émergea. En un seul pas, il arriva devant tout le monde.
+
+Ling Tianhou et l'homme en violet s'immobilisèrent aussitôt. L'homme en violet afficha un regard de respect et s'inclina : « Sun Shan salue le Grand Ancien. »
+
+Bien que Sun Shan fût un ancien, il ne faisait pas partie du groupe des Anciens de l'Alliance. À cet instant, son respect venait du plus profond de son cœur ; il témoignait une immense déférence envers le vieillard qui venait d'apparaître.
+
+« Junior salue le Grand Ancien. » Ling Tianhou afficha également une expression respectueuse. Avec sa personnalité, peu de gens méritaient son estime sincère.
+
+Les pupilles de Wang Lin se rétractèrent. Le vieil homme s'était fusionné avec le monde pour parvenir jusqu'ici. Il dégageait également une aura qui bouleversa Wang Lin.
+
+Cette aura était très différente de celle de l'Omniscient. Si l'Omniscient était un océan insondable, ce vieil homme était une montagne colossale perçant les cieux. Son aura puissante se propagea, forçant les cultivateurs les plus faibles à cracher du sang et à battre en retraite immédiatement.
+
+Les yeux de Situ Nan s'illuminèrent et il murmura : « Brisueur de Nirvana ! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
+
+« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Brisueur de Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
+
+Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Il regarda Ling Tianhou avec un sourire d'admiration.
+
+« Combien de temps s'est-il écoulé depuis notre dernière rencontre ? »
+
+Ling Tianhou se remémora le passé et répondit respectueusement : « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
+
+Le vieil homme en robe dorée poussa un soupir et dit lentement : « Lorsque toi et l'Omniscient étiez déjà de taille, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
+
+Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
+
+« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Allheaven devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et l'Omniscient, j'ai décidé de venir pour clore le litige entre vous deux ! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
+
+L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard : « Merci, Maître du Vide. »
+
+« Allons-y. J'ai entendu parler de cette Terre des Esprits Démoniaques, mais je n'y suis jamais allé. Allons voir ! » Le vieil homme agita ses manches et regarda la belle femme d'âge moyen au loin. Son regard fut empreint de bienveillance envers la femme en rose, avant qu'il ne pénètre dans le trou noir.
+
+Ling Tianhou et l'homme en violet suivirent le mouvement dans le vortex.
+
+Wang Lin réfléchit un instant avant que ses yeux ne s'illuminent ; il partit avec Situ Nan, suivi par Maître Vent Creux et la femme en argent. Derrière eux se trouvaient les trois frères Chen et Big Head. Tous volèrent vers le vortex.
+
+La silhouette de Lei Ji rétrécit jusqu'à n'être plus qu'un colosse, et il suivit l'assemblée dans le vortex.
+
+Le vieil homme assis sur la calebasse et l'homme froid vêtu de noir entrèrent tous deux dans le trou noir. La belle femme d'âge moyen hésita en regardant la femme en rose à ses côtés.
+
+La femme en rose sourit comme une rose et dit doucement : « Tante Xia, détends-toi pour ce voyage vers la Terre des Esprits Démoniaques. Xi Xuan possède un trésor offert par la Sœur Aînée ; c'est amplement suffisant pour assurer ma sécurité. De plus, la Deuxième Sœur n'a-t-elle pas envoyé le Maître du Vide ici également... ? »
+
+La belle femme d'âge moyen réfléchit et hocha la tête. Elle guida ensuite les quatre femmes autour d'elle dans le trou noir. Qian Qin affichait une expression complexe. Depuis l'apparition de Wang Lin, elle ne cessait de le regarder. En pensant qu'ils allaient se retrouver ensemble sur la Terre des Esprits Démoniaques, elle songea : « Je me demande s'il se souvient encore de moi. »
+
+Une fois ces individus entrés, les cultivateurs environnants se précipitèrent vers le trou noir. Cependant, la foule était trop dense et seuls quelques-uns purent entrer avant que le trou noir ne cesse soudainement sa rotation inverse pour disparaître.
+
+Certains cultivateurs n'étaient qu'à mi-chemin du vortex lorsqu'il disparut ; leurs corps s'effondrèrent et leurs cris de détresse résonnèrent, forçant ceux qui suivaient à battre en retraite précipitamment.
+
+Le trou noir disparut dans une traînée de sang. C'était comme si une immense porte s'était refermée, interdisant tout passage.
+
+Les cultivateurs alentour se dispersèrent avec regret. Certains restèrent là, réticents, pendant plusieurs jours avant de finalement partir. La Mer des Esprits Démoniaques de l'Est retrouva son calme...
+
+À l'intérieur de la Terre des Esprits Démoniaques, un soleil ardent trônait dans le ciel. Des vagues de chaleur ondulaient au gré du vent sur la terre. Les cadavres jonchant le sol dégageaient une odeur de décomposition, attirant de nombreux vautours qui planaient au-dessus, absorbant l'aura de mort.
+
+Ce n'était là qu'un recoin du Pays des Démons de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
+
+Une guerre immense ravageait le Pays des Démons de Feu sous l'assaut de la Tribu du Raffinement des Âmes. Tous les puissants dispersés dans le pays étaient tombés. Ceux qui ne se rendaient pas mouraient !
+
+La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays : l'Armée Spirituelle Démoniaque !
+
+Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Bien que l'Armée Spirituelle Démoniaque eût subi de lourdes pertes, elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
+
+À cet instant, l'armée de la Tribu du Raffinement des Âmes encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
+
+Les cris perçants des fragments d'âmes ne s'interrompaient jamais, balayant la terre. Les lamentations des âmes tourmentées étaient devenus le seul son qui régnait sur le monde.
+
+Devant les portes de la capitale, au sein de l'armée de la Tribu du Raffinement des Âmes, se trouvait une statue de pierre. Plusieurs membres de la tribu la transportaient, empreints d'une immense fierté. Être choisi parmi des millions de membres pour porter la statue de l'Ancêtre était un honneur qui ne se présentait qu'une fois dans une vie !
+
+Dans le ciel, un vieil homme dégageait une majesté imposante. Vêtu d'une robe noire, il était entouré de dizaines de grands drapeaux formant un tourbillon sombre.
+
+« Généraux Démoniaques Bois Charmant et Scorpion d'Or, allez-vous vous rendre ? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
+
+La voix de l'homme n'était pas le seul son ; les millions de membres de la Tribu du Raffinement des Âmes encerclant la capitale rugirent à l'unisson :
+
+« Allez-vous vous rendre ?! »
+
+Le rugissement de millions de personnes simultanément était indescriptible. C'était comme si le monde entier tremblait, un fracas dépassant tout tonnerre. Cela fit vaciller l'esprit des soldats restés dans la capitale. Certains sentirent quelque chose exploser dans leur esprit et s'évanouirent, du sang coulant de leurs orifices.
+
+« Ouyang Hua, ne nous pousse pas à bout ! » Une voix colérique jaillit de la muraille, suivie par l'apparition d'un colosse en armure. Cette armure ressemblait à celle d'un scorpion et ses yeux étaient injectés de sang. La haine emplissait son regard alors qu'il s'élançait, mais non pas vers Ouyang Hua ; il chargea la statue de pierre noire au milieu de la foule.
+
+« Même si je dois mourir, je détruirai cette chose ! » Le colosse était d'une rapidité fulgurante. Il atteignit la statue en un instant, leva la main et frappa de toutes ses forces dans un rugissement.
+
+Pourtant, étrangement, tous les membres de la Tribu du Raffinement des Âmes environnants affichèrent des expressions de dérision. Même Ouyang Hua esquissa un sourire narquois sans tenter de l'arrêter.
+
+Au moment où la main du colosse allait s'écraser, une voix extrêmement froide résonna à ses oreilles.
+
+« Oses-tu porter atteinte à la statue de mon seigneur ? Meurs ! » Un homme d'une banalité extrême avança au rythme de cette voix. Il portait une robe noire et affichait une expression glaciale. Si quelqu'un connaissait Wang Lin, il serait stupéfait, car le tempérament de cet individu était similaire à 60 ou 70 % à celui de Wang Lin.
+
+L'homme avança et lança un coup de poing avec désinvolture. À cet instant, d'innombrables fragments d'âmes jaillirent de son corps pour fusionner avec son poing, créant une tempête. Ce souffle puissant percuta violemment le colosse.
+
+Le grand homme cracha une gorgée de sang tandis que son armure se brisait morceau par morceau. On entendit également le craquement de ses os sous l'impact.
+
+« Le membre le plus puissant de la Tribu du Raffinement des Âmes... Treize ! » Le colosse laissa échapper un sourire amer alors que son corps se désintégrait. Il était déjà épuisé, et cette blessure critique lui ôta instantanément la vie.
+
+Ouyang Hua éclata de rire, puis pointa la capitale du Pays des Démons de Feu du doigt : « Extinction de l'Âme ! »
+
+À sa parole, les millions de membres de la tribu sortirent leurs drapeaux d'âmes et une multitude d'esprits s'élancèrent, recouvrant toute la capitale d'un brouillard noir. Ce voile sombre se referma lentement sur la cité.
+
+« Rendez-vous... » soupira une femme vêtue d'une armure bleue sur les remparts de la capitale.
+
+À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu du Raffinement des Âmes ! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où trônait autrefois celle de l'ancien démon, devenant le fondement spirituel de la Tribu du Raffinement des Âmes !
+
+Alors que Treize levait les pieds pour marcher vers la capitale, son corps trembla violemment et son expression glaciale se brisa. Elle fut remplacée par un enthousiasme qu'il n'avait pas ressenti depuis des centaines d'années, et il leva brusquement la tête :
+
+« L'Ancêtre est de retour ! »

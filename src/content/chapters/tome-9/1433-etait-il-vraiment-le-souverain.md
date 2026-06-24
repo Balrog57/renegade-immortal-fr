@@ -1,0 +1,97 @@
+---
+n: 1433
+title: Était-il vraiment le Souverain ?
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1433 - Was He Really the Sovereign
+slug: etait-il-vraiment-le-souverain
+---
+Chapitre 1433 - Était-il vraiment le Souverain ?
+
+Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le faire, après avoir affronté ce dilemme indescriptible. Il se transforma en un rayon de lumière et s'éclipsa.
+
+Le Maître Dao Blue Dream l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
+
+Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin !
+
+Après avoir quitté le clan Fire Sparrow, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié du clan Fire Sparrow, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
+
+Des grondements tonitruants résonnèrent au loin, ébranlant le domaine stellaire, mais Wang Lin ne sortit pas de sa torpeur. Son cœur semblait déchiré et une douleur lancinante imprégnait son corps.
+
+Après un temps indéterminé, la confusion dans les yeux de Wang Lin se dissipa progressivement pour laisser place à une profonde mélancolie. Ses blessures internes avaient atteint un stade critique : il devait impérativement récupérer, sans quoi sa culture régredirait de manière irréversible.
+
+À son niveau de culture, une blessure ordinaire ne poserait aucun problème, mais une blessure grave était une affaire sérieuse. Le moindre relâchement pourrait entraîner une chute de son niveau de culture.
+
+Heureusement, en tant qu'Ancien Dieu, la régénération de son corps physique était extrêmement puissante. C'était là une différence flagrante avec les cultivateurs ordinaires. Certaines blessures qui auraient nécessité un siècle de convalescence pour d'autres ne demanderaient que bien moins de temps à Wang Lin.
+
+« Wan Er, crois-moi, je viendrai personnellement te réveiller... Ensuite, avec Ping Er, nous pourrons vivre dans un village de montagne, quelque part où personne ne nous connaît, et passer une vie tranquille... Je veux aussi apprendre à Ping Er l'art de la sculpture, pour transmettre le métier de mon père... » murmura Wang Lin, soudain envahi par le mal du pays. Il désirait revoir le système stellaire de sa demeure. Bien que le Système Stellaire Ancien fût vaste, il n'y ressentait aucun sentiment d'appartenance.
+
+Dans ce vaste système stellaire, l'horizon semblait infini. Les étoiles brillaient, mais n'émettaient aucune chaleur ; seule régnait une sensation de froid glacial. Wang Lin ressentit un puissant sentiment de solitude au plus profond de son cœur.
+
+Wang Lin avait passé deux mille ans dans la solitude. Il s'y était habitué. Son expression indifférente n'était pas un choix délibéré ; après avoir vécu deux mille ans seul, il ne connaissait tout simplement plus aucune autre expression.
+
+Il ne connaissait que l'indifférence... Il souriait rarement... La seule chose qui subsistait était cette tristesse ineffaçable, cachée au fond de son regard impassible. C'était une mélancolie qui l'avait accompagné toute sa vie.
+
+Accablé par l'amertume, les blessures de Wang Lin s'aggravèrent. Il tituba, fit un pas et fusionna avec le monde grâce à la Déformation Spatiale. Il franchit une distance incommensurable avant d'apparaître aux abords d'une planète abandonnée.
+
+Peut-être que cette planète de culture avait été autrefois splendide, ou qu'un puissant cultivateur y était né. Cependant, sa gloire passée s'était désormais envolée, ne laissant derrière elle que des gravats et des cités dépourvues de toute énergie spirituelle.
+
+Elle ressemblait à un vieillard en fin de vie, luttant, s'accrochant, refusant de rendre son dernier souffle. Le côté est de la planète était plongé dans l'automne, et un vent froid soufflait lentement. Les feuilles roulaient sur le sol, leur couleur jaune rappelant les taches sur le visage d'un vieil homme, dégageant un sentiment de désolation.
+
+Alors que les feuilles d'automne volaient au gré du vent, on pouvait apercevoir une rivière au loin à travers la végétation. Une silhouette blanche était assise au bord de l'eau, laissant les feuilles jaunies passer devant elle.
+
+Wang Lin observa la surface de l'eau. Certaines feuilles, emportées par le vent, flottaient sur la rivière. Une fois gorgées d'eau, elles dérivaient vers l'horizon.
+
+Le vent les avait jetées dans le courant, et elles ne pourraient jamais retourner en leur terre natale. Elles seraient entraînées vers un lieu inconnu et, après quelques saisons, finiraient par s'incorporer au lit de la rivière. Si elles possédaient une âme, peut-être que celle-ci s'envolerait hors de l'eau pour retrouver son foyer.
+
+La rivière reflétait la silhouette de Wang Lin, restituant clairement son apparence. Son visage pâle, son regard indifférent et la tristesse dans ses yeux semblaient se fondre dans le cours d'eau pour s'éloigner au loin.
+
+Wang Lin murmura doucement : « Il est temps de rentrer à la maison... »
+
+Il existait un autre chemin vers chez lui, en dehors de la Formation du Domaine Scellé. C'était le jade que lui avait donné la femme mystérieuse dans la fissure spatiale de la région de rang 9 du Système Stellaire Cloud Sea.
+
+À l'époque, cette femme avait affirmé qu'elle l'aiderait à explorer un lieu avant de lui remettre ce jade. Une fois utilisé, il serait renvoyé dans la fissure spatiale.
+
+Wang Lin avait étudié le jade maintes fois. Il contenait de nombreuses restrictions, certaines qu'il ne parvenait même pas à percer. Il semblait que beaucoup d'entre elles n'étaient pas maîtrisables par les cultivateurs de ce monde ; elles semblaient provenir d'un autre univers.
+
+Pourtant, Wang Lin était un grand maître des restrictions. Bien qu'il ne puisse pas tout comprendre, il pouvait affirmer que le jade avait 70 % de chances de le renvoyer dans cette fissure spatiale !
+
+Tenant le jade, Wang Lin ne l'ouvrit pas mais le rangea dans son espace de stockage. Une certaine quantité de puissance était nécessaire pour l'activer, mais cela était secondaire. Plus important encore, il ne souhaitait pas apparaître devant la femme mystérieuse dans son état actuel.
+
+Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et murmura pour lui-même :
+
+« Était-il vraiment le Souverain... ? »
+
+Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sept couleurs, celui-ci avait admis être le Souverain. Cependant, une fois calmé, Wang Lin ne pouvait s'empêcher de douter.
+
+La culture de cet homme était extrêmement puissante. Il avait pu repousser l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits », il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
+
+« Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain... ? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Ancien. Personne ne savait à quel clan il appartenait !
+
+De plus, dans les Terres des Esprits Démoniaques, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain ! Cet homme utilisait des sorts de feu ! Ce sort n'était pas celui d'un cultivateur ordinaire ; il était manifeste que cet homme touchait aux limites de l'essence du feu.
+
+Tout cela menait Wang Lin à une conclusion logique. En combinant ces indices, il avait déterminé que le traître du troisième Oiseau Vermillon était le Souverain ! C'était pour cette raison que le Conseil du Souverain connaissait la vérité sur les Terres Déchues et n'osait point agir !
+
+Cependant, après avoir vu le Souverain en personne, Wang Lin était devenu suspicieux.
+
+« Qing Lin a dit que l'essence du Souverain était l'essence de l'origine ! Pourtant, cet homme n'a jamais utilisé la loi de l'origine... Plus important encore, le Souverain cultive depuis des dizaines de milliers d'années. Il est extrêmement rusé et a multiplié les complots contre le Royaume Intérieur. L'homme d'âge moyen qui prétendait être le Souverain ne semblait pas posséder une telle aura... C'était comme s'il n'était pas si puissant que cela... »
+
+Wang Lin fronça les sourcils. Après réflexion, il ne trouvait toujours pas de réponse. Il soupira et cessa d'y penser. Il sortit les quelques pilules restantes et les avala toutes, puis ferma les yeux pour se mettre en culture.
+
+Le vent d'automne soufflait et la silhouette de Wang Lin devint lentement floue, comme s'il fusionnait avec son environnement. Même si un cultivateur passait par là, il n'aurait pas remarqué qu'un être était assis au bord du lac.
+
+Le temps s'écoula lentement. En un clin d'œil, trois jours passèrent. Les blessures de l'âme originelle de Wang Lin ne s'amélioraient pas, mais elles cessaient de s'aggraver. En revanche, la majeure partie de ses blessures physiques avait guéri.
+
+Sans même utiliser ses sorts, avec seulement son pouvoir d'Ancien Dieu à 6 étoiles, il se trouvait à environ 50 % de son apogée. Wang Lin savait qu'il était pressé par le temps. Il avait gravement blessé l'homme qu'il soupçonnait être le Souverain, ce qui devait provoquer une onde de choc massive dans le Système Stellaire Ancien. Des gens devaient sûrement être à sa poursuite, sans compter la prime sur sa tête.
+
+Quant aux Terres Déchues, elles avaient déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège ! C'était pour cela qu'il faisait tout son possible pour recouvrer sa culture.
+
+Pourtant, ce jour-là, alors qu'il cultivait, Wang Lin ouvrit soudainement les yeux, révélant une lueur de froideur. Son cœur fut frappé par un choc étrange. C'était un sens de l'avertissement précoce qu'il avait développé en atteignant son niveau de culture actuel !
+
+« Quelque chose ne va pas ! » Wang Lin se leva et scruta les environs. Son expression devint sombre. Le silence était devenu total ; même le vent d'automne s'était tu.
+
+La nuit était tombée et la lune brillait dans le ciel. Sa lumière baignait la terre, permettant à Wang Lin de voir les fines ondulations se propager sur la rivière. Les feuilles d'automne qui tombaient dans l'eau commençaient également à tourbillonner en cercles concentriques.
+
+Sans hésiter, Wang Lin fit un pas en avant et le monde se déforma, des ondulations résonnant autour de lui. Par ce pas, il devait se dissiper et fusionner avec l'univers. Mais juste au moment où il allait s'y fondre, le ciel gronda et changea de couleur. Une fissure gigantesque apparut soudainement.
+
+Une pression écrasante descendit sur cette planète abandonnée et une main colossale surgit de la brèche. Elle se projeta avec une rapidité fulgurante vers Wang Lin, alors même qu'il était sur le point de fusionner avec le monde !

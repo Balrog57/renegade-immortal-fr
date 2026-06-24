@@ -1,0 +1,66 @@
+---
+name: Ascendant
+title: Ascendant
+type: cultivation
+categories: ["Cultivation", "First Step", "Ascendant"]
+url: "https://xian-ni.fandom.com/wiki/Ascendant"
+
+---
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Ascendant) (CC BY-SA)
+
+**Catégories :** Cultivation, First Step, Ascendant
+
+## Following the Heavens (Conforming Breakthrough)
+
+The first and the most used method is to go along with the heavens and lose the capacity to defy them
+
+This is the most common method. Cultivators who choose this path align themselves with the laws of the heavens and the natural order. By conforming, they lose the capacity to truly defy the heavens, effectively surrendering to the existing cosmic order. While this path is safer and more widely used, it lacks the power and freedom that come from rebellion against the heavens. Cultivators who take this route do not provoke divine retribution, but their growth is limited by their obedience to the heavenly will
+
+### Heaven Defying Cultivation(Rebellious Breakthrough)
+
+The second is done by Heaven defying cultivation This type of breakthrough incites divine retribution.
+
+This method is characterized by the cultivator actively defying the heavens. Cultivators who use this path challenge the natural order and the cosmic laws, which inevitably incites divine retribution. Divine retribution is the heavens' punishment aimed at destroying those who dare to rebel. Despite the extreme danger and the risk of death, this path can lead to tremendous power and the possibility of truly transcending the limits set by the heavens. Wang Lin himself follows this path, facing divine retribution multiple times but never yielding. [ 1 ]
+
+### Avoiding Divine Retribution (Evasive Breakthrough)
+
+The third is similar to Heaven defying cultivation but instead of fighting, they avoid the heavens’ punishment. Only, the heavens’ dao isn’t afraid of cultivators hiding, because once they hide, then their heart no longer contains the meaning to defy, so this method has a similar outcome as the first, but probably has slightly more benefits.
+
+This approach resembles Heaven defying cultivation in that the cultivator seeks to break through without surrendering to the heavens. However, instead of confronting divine retribution head-on, cultivators using this method avoid or hide from the punishment. The heavens’ dao, however, is not fooled by such avoidance. Once a cultivator hides, their heart no longer contains the true meaning of defiance. As a result, this approach ends up being similar to the first type following the heavens-with possibly some minor advantages due to the partial defiance involved. Nonetheless, it still lacks the full power and spirit of true rebellion '
+
+### Procedure of breakthrough
+
+The fusion of the domain and celestial spiritual energy is a burning process. The celestial spiritual energy is the fuel, and the domain refined by that flame turning into an Ascendant Crystal!
+
+At the moment the Ascendant Crystal is formed, you might feel like you have become nothing and your soul is wandering the heavens and earth. This feeling is extremely rare and is called Ascendant Enlightenment.
+
+Normally, the first thing cultivators on a cultivation planet do is use this moment of comprehension to pull their soul piece back from the cultivation planet crystal. Although the chance is only 50%, they must try!
+
+The origin soul is similar to a giant cocoon, the domain is the life inside the cocoon, and the celestial spiritual energy is a raging fire outside of the cocoon.
+
+The stronger the flames, the more lively the cocoon becomes and the more the domain inside fuses with the cocoon.
+
+The purpose of fusing celestial spiritual energy and the domain was to eventually fuse the domain with the origin soul.
+
+From that point on, there would be no distinction between the domain and origin soul. The origin soul was the domain and the domain was the origin soul!
+
+The celestial flame is invisible and If one can’t get past this trial, then this flame will go from ethereal to corporeal and will burn the origin soul and body to dust in an instant!
+
+The domain inside the cocoon will then melt into a mass of chaotic energy. This energy was called origin energy in ancient times.
+
+The celestial flame will burn as it rushes at the origin soul cocoon. The origin energy liquid will finally begin to show signs of crystallizing after being refined by this flame before it took shape. At that moment, the origin soul cocoon will quickly shrink. It will then wrap around the Ascendant Crystal.
+
+After an unknown amount of time, fissures will start appearing on the origin soul cocoon. These fissures are very thin causing the cocoon to gently split apart.
+
+Shortly after, more fissures will appear, and soon enough fissures will spread across the entirety of the cocoon. After enough fissures appear on the cocoon it will shatter.
+
+The moment it shatters, rays of grey light will come out from within. Then a newly born origin soul will slowly float out from the cocoon.
+
+The origin soul will no longer be transparent but completely solid. There is almost no difference between it and the flesh. The Ascendant Crystal slowly turns inside of the origin soul.
+
+For an Ascendant cultivator, their origin soul is their domain!
+
+This is the true state of a domain after it enters the body!
+
+After the origin soul flies out, the shattered cocoon will immediately melt into nourishment specifically for the origin soul and is absorbed by the origin soul. Once all of it is absorbed, the origin soul sits down in the lotus position. Thus, the trial is complete.
+

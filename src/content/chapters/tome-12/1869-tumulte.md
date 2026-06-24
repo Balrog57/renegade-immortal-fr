@@ -1,0 +1,119 @@
+---
+n: 1869
+title: "Tumulte !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1869 - Upheaval!"
+slug: tumulte
+---
+Chapitre 1869 - Tumulte !
+
+Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Astral Immortel pouvait établir sa propre secte !
+
+Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Grande Secte de l'Âme se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
+
+Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade précoce de la Tribulation du Vide. Les tuer serait difficile, mais pas impossible. Cependant, s'il devait affronter un ancien monstre comme le Souverain Céleste aux Sept Couleurs au sommet de sa puissance, l'écart serait trop grand.
+
+Même s'il possédait neuf essences et atteignait le stade précoce de l'Arcane Vide, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
+
+Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé de l'Arcane Vide, ou son Dao Ancestral devrait traverser la dernière épreuve !
+
+Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la culture — d'autres facteurs entraient parfois en jeu !
+
+Pourtant, à cet instant précis, il n'avait aucune préparation face à un ancien monstre du stade intermédiaire de la Tribulation du Vide qui le pourchassait. Le monde lui-même avait été scellé, l'empêchant de s'échapper, et il faudrait du temps pour briser ce sceau. Une fois que l'ancien monstre le rattraperait, il mourrait sans aucun doute !
+
+En cette situation critique, la pleine culture de Wang Lin s'activa et il pénétra dans le roi moustique. La vitesse de ce dernier augmenta considérablement alors qu'il chargeait en avant.
+
+Derrière lui, Zhang Daozong suivait calmement, mais une intention meurtrière monstrueuse se cachait dans ses yeux.
+
+« Je veux voir comment tu vas t'échapper sous mon regard ! » Zhang Daozong était toujours furieux d'avoir été trompé par Wang Lin. De plus, Wang Lin avait tué Liu Zhiyuan, et il ne pourrait pas affronter le Maître de Secte à moins de tuer Wang Lin.
+
+Quant à l'impact de son départ du champ de bataille, il s'en moquait. La raison pour laquelle il osait partir était que tout cela faisait partie d'un plan orchestré par le Continent du Démon Vert contre Wang Lin !
+
+Ce plan consistait à sacrifier un grand nombre de cultivateurs pour retarder la bataille et attirer Wang Lin hors de sa zone de sécurité !
+
+En vérité, si le Continent du Démon Vert l'avait voulu, il aurait pu mettre fin rapidement à la seconde bataille car leurs renforts étaient arrivés deux jours auparavant !
+
+La raison pour laquelle les renforts ne s'étaient pas manifestés et s'étaient cachés était simple : ils voulaient tuer Wang Lin !
+
+Les actions de Wang Lin dans la Mer des Pillules avaient irrité les trois anciens ancêtres du Continent du Démon Vert, qui avaient ainsi émis un ordre d'exécution contre lui ! Tout ce que Wang Lin avait accompli était absolument bouleversant !
+
+Il avait tué l'avatar de Void Cloud, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pillules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pillules !
+
+Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Zhiyuan de la Secte du Dao Démoniaque ! Même Xu Decai avait probablement été massacré par ses méthodes viles.
+
+Cette série d'actes faisait de Wang Lin la cible numéro un à éliminer pour le Continent du Démon Vert au début de cette guerre !
+
+Au moment où Zhang Daozong commença sa poursuite, à 100 000 kilomètres du champ de bataille, quatre auras éclatèrent soudainement. Toutes étaient au stade intermédiaire de la Tribulation du Vide !
+
+Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie Extrême prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
+
+Le scorpion émit des sifflements stridents tandis qu'une brume verte se répandait vers le champ de bataille en contrebas !
+
+« Un Messager du Démon Vert ! » Lorsque Lu Wenran, qui combattait l'homme nommé Zhao, sentit ces quatre auras et vit le scorpion vert dans le ciel, son expression changea radicalement.
+
+Il avait personnellement combattu les Messagers du Démon Vert et savait à quel point ils étaient terrifiants. Il ne s'attendait pas à ce qu'ils apparaissent ici !
+
+Il faut dire que même dans la Mer des Pillules, seuls trois en étaient apparus. Pour le Continent du Démon Vert, chaque Messager du Démon Vert était extrêmement précieux ; ils n'en enverraient donc pas de grandes quantités sans raison !
+
+Le visage de Lu Wenran devint livide. Il ignorait que la cible de ces quatre Messagers était Wang Lin ! Quant au méridien, ce n'était qu'un accident.
+
+Les yeux de Lu Wenran étaient emplis de terreur lorsqu'il rugit : « Retournez vite au palais souterrain et scellez l'entrée ! » Même sans son avertissement, lorsque les cultivateurs du Continent du Taureau Céleste sentirent ces quatre auras et virent le scorpion vert, leur seule pensée fut de regagner précipitamment le palais souterrain !
+
+Après tout, c'était leur dernière ligne de défense !
+
+Il était impossible de se défendre contre quatre Messagers du Démon Vert et deux anciens monstres du stade intermédiaire de la Tribulation du Vide.
+
+Les cultivateurs ordinaires touchèrent le sol et pénétrèrent instantanément dans le palais souterrain. Seuls les cultivateurs du Continent du Taureau Céleste pouvaient faire cela. Les cultivateurs du Continent du Démon Vert ne pouvaient pas s'enfoncer sous terre.
+
+Après tout, la formation existait toujours ici et fonctionnait à pleine puissance.
+
+Cependant, des cultivateurs de la Tribulation du Vide comme Lu Wenran étaient déjà ciblés et ne pourraient pas s'échapper si facilement. Les quatre rayons de lumière verte fendirent la brume. Le scorpion géant dans le ciel continuait sa descente, libérant une masse de brume verte sur son passage.
+
+Tandis que des grondements tonitruants résonnaient, tous les cultivateurs de la Tribulation du Vide du Continent du Taureau Céleste poussèrent des rugissements de colère. Il semblait qu'on leur interdisait l'accès au sol !
+
+Quant à Wang Lin, il se trouvait également dans la brume et sentit les quatre puissantes auras se rapprocher. Lorsqu'il aperçut le scorpion vert géant dans le ciel, il ne put s'empêcher de haleter.
+
+Il comprenait parfaitement que sa seule chance résidait dans le retour au palais souterrain. Une fois qu'il serait trop tard et que le palais serait scellé, il devrait affronter six anciens monstres du stade intermédiaire de la Tribulation du Vide. Il n'aurait aucune chance de survie, même en utilisant son avatar et le Sortilège des Trois Vies ; tout finirait par sa perte !
+
+Cette crise de vie ou de mort était plus intense que jamais. Wang Lin n'hésita pas et le roi moustique chargea vers la terre. Tant qu'il pourrait toucher le sol, il pourrait s'y engouffrer pour fuir !
+
+Cependant, le monde étant scellé, il ne pouvait pas se téléporter ; tout dépendait de la vitesse. Alors que la bête moustique fonçait vers le sol, Zhang Daozong n'était qu'à moins de 500 pieds derrière lui. Il n'était pas pressé d'attaquer ; il voulait voir Wang Lin sombrer dans le désespoir avant de mourir !
+
+Au loin, un rayon de lumière verte se rapprochait. Un Messager du Démon Vert allait traquer Wang Lin aux côtés du vieil homme nommé Zhang !
+
+Pour le Continent du Démon Vert, la mort de Wang Lin était impérative ; sinon, ils ne pourraient apaiser leur haine ! Les Messagers du Démon Vert différaient des cultivateurs ordinaires : ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de culture de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
+
+Les pupilles de Wang Lin se rétractèrent. Il était encore à 3 000 pieds du sol. Au loin, il vit Yan Lu cracher du sang. Son corps délicat trembla tandis qu'elle s'enfuyait sous terre. Après elle, Xu Dongde, le visage pâle, s'engouffra également dans la terre.
+
+Les cultivateurs de la Tribulation du Vide pénétraient un à un sous terre après avoir été blessés. Lu Wenran cracha une importante quantité de sang et son bras droit explosa alors qu'il chargeait vers le sol. Un Messager du Démon Vert le poursuivait.
+
+« Une fois que Lu Wenran sera entré sous terre, il choisira de sceller le palais souterrain. Je dois être rapide, vite, plus vite ! » Wang Lin était anxieux. Il était à moins de 1 000 pieds du sol quand, soudain, Zhang Daozong attaqua !
+
+« C'est fini ! » Après ces mots, Zhang Daozong pointa Wang Lin du doigt. Aussitôt, la lumière verte qui terrifiait Wang Lin fonça sur lui.
+
+Elle se rapprocha instantanément !
+
+Wang Lin fit brusquement demi-tour, le regard déterminé. Au moment où la lumière verte allait l'atteindre, le parapluie bleu apparut devant lui !
+
+Une fois l'objet apparu, Wang Lin n'eut pas le temps de s'en désoler ; il rugit :
+
+« Explose ! »
+
+Un fracas tonitruant retentit lorsque la lumière verte entra en collision avec l'explosion du parapluie bleu. L'impact frappa Wang Lin et des bruits d'éclatement résonnèrent dans son corps. Il cracha du sang tout en rangeant le roi moustique. Il était à moins de 500 pieds du sol !
+
+La distance qui, normalement, ne prendrait pas plus d'une respiration pour être franchie, devint un gouffre aussi vaste que les cieux et la terre. Car non seulement l'homme nommé Zhang se rapprochait, mais le froid Messager du Démon Vert était également à moins de 1 000 pieds !
+
+Face à deux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin ne pouvait franchir ces 500 pieds ! Au loin, Lu Wenran cracha du sang en tombant sous terre et disparut. Il vit Wang Lin, mais n'hésita pas une seconde pour sceller le palais souterrain. Il aurait pu attendre d'avoir assuré sa propre sécurité avant de le faire, mais il ne le fit pas.
+
+Des fluctuations émanèrent de la terre ; elle se scellait rapidement. Les yeux de Wang Lin devinrent rouges, comme s'il sombrait dans la folie. Alors que Zhang Daozong et le Messager du Démon Vert se rapprochaient, il sortit la gourde des 30 millions d'âmes Dao !
+
+Il la lança en avant !
+
+« Explose ! » Le cœur de Wang Lin se serra, mais il n'avait pas le temps de réfléchir. Tandis qu'il rugissait, les 30 millions d'âmes Dao à l'intérieur de la gourde explosèrent, provoquant un fracas assourdissant qui résonna dans toute la Prairie Extrême Ciel.
+
+L'explosion de 30 millions d'âmes Dao était suffisante pour menacer un cultivateur au stade intermédiaire de la Tribulation du Vide. Même l'expression de Zhang Daozong changea radicalement alors qu'il battait en retraite précipitamment.
+
+Le Messager du Démon Vert fronça les sourcils et marqua un temps d'arrêt.
+
+Saisissant cette chance, Wang Lin franchit la distance de 500 pieds dans une frénésie désespérée. Juste au moment où la formation allait se refermer, il s'engouffra à l'intérieur !

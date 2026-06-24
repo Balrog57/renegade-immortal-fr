@@ -1,0 +1,115 @@
+---
+n: 1444
+title: "L'ennemi approche"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1444 - Enemy Approaches
+slug: lennemi-approche
+---
+Le regard indifférent de Wang Lin balaya les cultivateurs qui battaient en retraite. Des fluctuations émotionnelles intenses émanaient d'eux. Tant qu'il parviendrait à attiser leurs émotions, il pourrait leur infliger de lourds dommages.
+
+Cependant, la Tombe de l'Ordre Ancestral était un lieu très dangereux ; tant qu'il n'en aurait pas percé les mystères, il ne les tuerait pas tous. Ce qu'il désirait, c'était afficher sa puissance !
+
+Certains des cultivateurs présents étaient puissants. S'il les acculait et qu'ils décidaient de s'allier, cela ne profiterait pas à Wang Lin.
+
+Wang Lin ne tuait que rarement sans en tirer un bénéfice.
+
+Son regard était glacial et le feu aux neuf couleurs tournait dans son œil gauche. Ses cheveux blancs flottaient au vent tandis qu'il dégageait une aura démoniaque. À mesure que son regard balayait la foule, quiconque croisait ses yeux pâlit instantanément.
+
+« Vous avez dit auparavant que si je tuais plus de dix bêtes ici, vous me tueriez et affineriez mon âme ? » Wang Lin leva la main droite et pointa le cultivateur obèse qui tenait l'abaque.
+
+Le corps du cultivateur trembla, et même sa graisse frissonna. Il força un sourire amer, le cœur lourd de détresse. Il ignorait que Wang Lin était un cultivateur du Feu Éthéré. Pour affiner l'âme d'un tel cultivateur... Même lui-même ne croyait pas en être capable.
+
+Il était fort probable que sa propre chair soit consumée avant même qu'il ne puisse entamer le processus d'affinage.
+
+Le regard de Wang Lin devint progressivement plus froid alors qu'il fixait l'homme. Une pointe d'intention meurtrière brillait dans ses yeux.
+
+Le cultivateur obèse était couvert de sueur et son cœur battait la chamade. Il avait l'impression qu'un feu brûlait à l'intérieur de son corps. La bouche sèche, il agita précipitamment la main droite pour sortir une balance. Il la tendit rapidement en disant amèrement : « Ce petit a effectivement dit cela, et j'espère que le Compagnon Cultivateur pourra me pardonner. Voici ce que j'ai obtenu sur la plateforme ; j'espère que le Compagnon Cultivateur l'acceptera comme excuse. »
+
+La main droite de Wang Lin s'étendit et la balance atterrit dans sa paume. Il l'examina un instant avant de la repousser. Puis, son regard quitta le cultivateur obèse pour se poser sur une autre personne.
+
+« Vous avez dit que si je tuais une bête supplémentaire, je mourrais ici. Je vais vous donner cette chance ! » Les paroles de Wang Lin étaient glaciales.
+
+Lorsque le cultivateur obèse vit que Wang Lin ne le visait plus, il se sentit soulagé. Cependant, le cultivateur en noir tremblait ; ses yeux restaient clos, comme s'il était aveugle. Il restait là, assis silencieusement, l'expression sombre.
+
+Un instant plus tard, le cultivateur en noir joignit les mains en signe de salut devant Wang Lin et agita la main droite. Une épée noire jaillit vers lui, imprégnée d'une énergie démoniaque.
+
+Le cultivateur en noir dit doucement : « J'ai été téméraire auparavant ; j'espère que le Compagnon Cultivateur ne m'en tiendra pas rigueur. »
+
+Wang Lin saisit l'épée et observa l'homme. Il trouva ce cultivateur très intéressant. Ses fluctuations émotionnelles n'étaient pas fortes, mais il semblait y avoir une puissance mystérieuse scellée entre ses sourcils. Il avait le sentiment que ce sceau se briserait dès qu'il ouvrirait les yeux.
+
+« Et vous, celui qui voulait que je déguerpisse ? Si je ne pars pas, comptez-vous faire disparaître mon cadavre ? » Wang Lin n'était pas un homme mesquin, mais puisqu'il devait afficher sa puissance, il se devait d'agir avec arrogance. Si certains étaient réellement aveugles, il ne craindrait pas de les tuer.
+
+L'homme en violet, suivi d'un poisson, était couvert de sueur. Il laissa échapper un sourire amer et joignit les mains. Sans mot dire, il sortit le trésor en forme de gourde qu'il avait obtenu sur la plateforme et le lui tendit.
+
+« Une phrase qui n'aurait jamais dû être prononcée m'a coûté mon premier trésor ; hélas... » Le cultivateur en violet ressentait un profond remords.
+
+« Et vous, quel ton plein d'assurance ! Si je ne suis pas obéissant, vous comptiez me tuer ? » Le regard de Wang Lin s'illumina alors qu'il fixait la vieille femme en vert. Parmi les présents, elle était la plus étrange. Même à cet instant, Wang Lin n'avait rien pu découvrir sur elle.
+
+Le plus troublant était qu'il ne percevait aucune émotion chez elle, comme si ses sentiments étaient enfouis au plus profond de son être.
+
+La vieille femme en vert fixa Wang Lin avec un regard démoniaque. Nul ne savait ce qu'elle pensait, et après une légère hésitation, Wang Lin chargea. Sa vitesse était fulgurante ; tel un éclair, il apparut devant elle.
+
+L'expression de la vieille femme devint grave et elle recula rapidement. Ses mains formèrent un sceau et l'énergie originelle jaillit, déformant l'espace environnant.
+
+Wang Lin s'approcha en un éclair et fendit la zone déformée. Il leva calmement la main droite et l'agita. Un grondement tonnerre résonna dans toute la zone.
+
+En peu de temps, les fracas du tonnerre se multiplièrent alors que les attaques de Wang Lin et de la vieille femme s'entrechoquaient des dizaines de fois. Les grondements devinrent plus intenses et l'énergie originelle autour d'eux forma une tempête qui balaya les environs.
+
+Les autres cultivateurs reculèrent tous, tandis que la vieille femme cracha du sang peu après. Son visage pâlit et elle tenta de s'éloigner. La silhouette de Wang Lin jaillit de la tempête, ses vêtements blancs étincelants, ses doigts formant une épée qu'il pointa vers l'avant.
+
+Un doigt du temps. La porte désolée du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin. Ce doigt agita le monde et une aura antique emplit la terre. Cette aura pénétra les doigts de Wang Lin et fut projetée vers la vieille femme.
+
+L'expression de la vieille femme changea radicalement. Bien qu'elle ait pensé avoir surestimé la force de Wang Lin, elle ne s'attendait pas à ce qu'il soit aussi puissant qu'un cultivateur de la cinquième calamité céleste, et que ses sorts soient si prodigieusement dévastateurs !
+
+Face au danger, elle ne put plus dissimuler ses techniques. Elle cessa sa retraite, pointa ses tempes, puis ouvrit la bouche pour cracher une bouffée de brume rose.
+
+À mesure que la brume se répandait, un parfum s'en échappa. La vision de Wang Lin se troubla et des illusions surgirent devant lui. La silhouette de la vieille femme devint floue, et une série d'ombres apparut derrière elle.
+
+Ces ombres étaient toutes des personnes que Wang Lin connaissait !
+
+Wang Lin n'était pas le seul ; la confusion se lisait dans les yeux de tous les autres. La vieille femme prit l'apparence de leurs proches, comme si Wang Lin était en train de massacrer leur propre famille. Un sentiment de rage rugit dans leurs cœurs.
+
+« C'est en fait quelqu'un de l'un des trois grands clans, le Clan de l'Illusion Scellée... » Les yeux de la jeune femme du Clan de l'Extermination des Sceaux se rétrécirent, laissant poindre une pointe de surprise.
+
+Tout cela se produisit en un instant. Voyant que les cultivateurs environnants étaient affectés, Wang Lin projeta son doigt contre la brume rose.
+
+Des grondements tonnerre secouèrent la zone et la brume fut repoussée. Elle semblait incapable de résister à l'attaque de Wang Lin et fut balayée par celle-ci. La brume se dissipa sous la puissance du temps, permettant au doigt de Wang Lin de frapper entre les sourcils de la vieille femme.
+
+Le corps de la vieille femme trembla et elle fut projetée en arrière dans un jet de sang. Les émotions qu'elle avait si soigneusement cachées ne purent plus être contenues, et le Feu Éthéré éclata en elle. La marque entre ses sourcils fut détruite, remplacée par l'image vacillante du dos d'une femme !
+
+Un cri déchirant résonna au cœur des flammes !
+
+La confusion quitta les yeux des cultivateurs environnants, remplacée par une terreur pure !
+
+« Sortilège d'Illusion Scellée ! »
+
+« Cette vieille femme appartient au Clan de l'Illusion Scellée ! »
+
+« Le Clan de l'Illusion Scellée, l'un des trois grands clans ! »
+
+Wang Lin flottait dans les airs. S'il avait attaqué, ce n'était pas par simple intention meurtrière, mais pour percer la nature des sorts de la vieille femme. Maintenant qu'il avait sa réponse, il renonça à la tuer.
+
+D'une simple pensée, Wang Lin fit rapidement se dissiper le Feu Éthéré autour de la vieille femme. Le feu se rétracta dans son corps pour former une graine de feu, comme une restriction venait d'être implantée en elle.
+
+Une fois le Feu Éthéré éteint, la vieille femme resta livide. Elle regarda Wang Lin avec effroi. Après un moment de silence, elle sortit le trésor qu'elle avait obtenu et le lui tendit.
+
+Les autres cultivateurs, tremblants, sortirent également leurs trésors pour compenser l'irrespect de leurs propos. Même la jeune femme du Clan de l'Extermination des Sceaux tendit timidement son butin.
+
+Seule la femme aux longs cheveux blancs regarda Wang Lin avec profondeur et sourit. En un instant, la plateforme sous ses pieds s'éleva dans le ciel.
+
+« Il y a un trésor à l'intérieur de cette terre scellée. Puisque vous êtes intéressé, je m'en vais. Je suis convaincue que nous nous reverrons ici, au sein de cette Tombe de l'Ordre Ancestral... » La voix de la femme flotta doucement aux oreilles de Wang Lin tandis que sa silhouette disparaissait dans une faille spatiale.
+
+Les yeux de Wang Lin se rétrécirent, mais il ne dit mot.
+
+La bataille semblait s'être achevée, et tous les regards ne purent s'empêcher de se tourner vers ce qui surplombait le Dieu Antique, le Démon Antique et le Diable Antique !
+
+La plateforme de 10 000 pieds située sur le dos du Dieu Antique était recouverte d'une brume rouge, semblant sceller quelque chose d'extrêmement puissant !
+
+Wang Lin regarda également le Dieu Antique au sol. Cependant, à cet instant précis, son expression changea et il tourna les yeux vers l'horizon.
+
+Le monde trembla soudainement et tous les cultivateurs présents virent le changement. L'horizon se déforma et neuf plateformes gigantesques surgirent !
+
+« Il y a des gens ici ! C'est parfait ! Remettez les trésors que vous avez obtenus sur les plateformes et attendez sur le côté ! » La voix était sombre et une pression écrasante descendit soudainement !
+
+Les failles spatiales environnantes semblaient être déchirées. Les neuf grandes plateformes ne produisirent aucun son alors qu'elles perçaient les déchirures pour apparaître là !

@@ -1,0 +1,119 @@
+---
+n: 508
+title: Évolution de la bête moustique
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 508 - Evolution of the mosquito beast
+slug: evolution-de-la-bete-moustique
+---
+Trois heures plus tard, sous la tablette de pierre, trois rayons de lumière apparurent à l'horizon. Ils furent suivis d'une série de détonations tonitruantes. Ces trois traînées de lumière descendirent du ciel avec la pression d'une armée de dix mille hommes.
+
+Ils atterrirent directement aux côtés des sept personnes qui attendaient sous la tablette de pierre. Suite à ce rugissement fracassant, leur arrivée provoqua une bourrasque de vent qui repoussa de plusieurs mètres tous les individus, excepté l'homme nommé Guo. Leurs visages étaient d'une pâleur extrême, empreints de terreur.
+
+Une fois le vent retombé, trois silhouettes se révélèrent.
+
+Il s'agissait de trois vieillards aux cheveux blancs, et une puissante énergie d'épée émanait de leurs robes noires. Chacun d'eux portait une épée précieuse sur son dos, laquelle dégageait des ondes de pression tranchantes.
+
+Parmi les trois, seul l'un d'eux se trouvait au stade avancé de la Formation de l'Âme ; les deux autres étaient au début du stade de la Transformation de l'Âme.
+
+Dès que l'homme nommé Guo aperçut les trois individus, son cœur trembla. Il s'inclina immédiatement et dit respectueusement : « Le disciple de la sixième génération, Guo Xingyi, salue son Oncle-Maître. » L'homme devant qui il s'inclinait était le seul cultivateur au stade de la Formation de l'Âme parmi les trois. L'expression de Guo Xingyi était empreinte d'une immense déférence.
+
+Le vieillard de la Formation de l'Âme sourit, hocha la tête et dit : « Guo Xingyi, viens saluer les deux Anciens du Pavillon de l'Épée ! » Il s'écarta sur le côté en lançant un regard à Guo Xingyi.
+
+Guo Xingyi s'agenouilla promptement sur un genou et déclara, avec encore plus de respect qu'auparavant : « Le disciple salue les Anciens ! »
+
+L'un des deux vieillards au stade de la Transformation de l'Âme était petit, tandis que l'autre était grand. Ce dernier déclara : « Relève-toi et parle. Est-ce toi qui as trouvé le Fruit d'Or Brillant ? »
+
+Guo Xingyi se redressa rapidement, puis désigna la femme, Qian Qin, qui n'avait toujours pas prononcé un mot et se contentait de le fixer d'un regard froid. « Cette femme est une amie proche du disciple. Les Fruits d'Or Brillants ont été découverts par sa secte, mais des bêtes démoniaques les gardaient, et ils n'avaient pas la puissance nécessaire pour les obtenir. Le disciple ne faisait que passer et a accepté de les accompagner. »
+
+Les deux Anciens de la Transformation de l'Âme échangèrent un regard. Le plus petit demanda : « Jeune fille, combien de Fruits d'Or Brillants as-tu vus ? »
+
+Qian Qin n'avait guère envie de parler, mais sous le regard fulgurant du vieillard, elle ne put s'empêcher de répondre doucement : « Il y en a environ une centaine. »
+
+« Cent ! » Les yeux du petit vieillard s'illuminèrent soudainement. « Les bêtes démoniaques qui gardent cent Fruits d'Or Brillants doivent être extrêmement puissantes. Si ta secte a réussi à les localiser, elle n'est donc pas insignifiante ! »
+
+Qian Qin resta silencieuse, mais l'homme en robe blanche de sa propre secte s'exclama avec indignation : « Ma secte a déployé d'immenses efforts et a sacrifié plusieurs Anciens pour trouver ces Fruits d'Or Brillants. Votre Secte de l'Épée Da Luo... »
+
+Qian Qin fronça les sourcils et cria : « Tais-toi ! »
+
+Le visage de l'homme se crispa de colère. Il prit une profonde inspiration, tourna la tête et ne dit plus un mot.
+
+Guo Xingyi hésita un instant avant de dire respectueusement : « Seigneur Ancien, Qian Qin est une amie proche du disciple. Une fois les Fruits d'Or Brillants obtenus, serait-il possible de lui en accorder un ? »
+
+Le grand vieillard eut un rire et répondit : « Si nous les trouvons, nous lui en donnerons un ! Montre-nous le chemin ! »
+
+Qian Qin poussa un soupir, le cœur lourd de sentiments complexes. Elle n'avait d'autre choix que de mener la marche, sous peine de porter préjudice à sa secte. Avec la tyrannie dont faisait preuve la Secte de l'Épée Da Luo, quiconque oserait s'y opposer serait anéanti.
+
+Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs fois supérieure à celle du Grand Ancien de sa propre secte. Comparée à la Secte de l'Épée Da Luo, sa secte n'était qu'une luciole ; ils n'avaient aucune chance de résister...
+
+« Guo Xingyi, trahir ma confiance... » Qian Qin ressentit une amertume profonde. Elle lança un regard assassin à Guo Xingyi avant de serrer les mâchoires et de s'enfoncer dans les Terres Démoniaques du Nord.
+
+L'homme en robe blanche de sa secte la suivit, l'expression sombre. Les membres de la Secte de l'Épée Da Luo pénétrèrent dans la brume ténue et disparurent.
+
+Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derrière le dos, il survolait la région, ses pieds flottant à trois pouces du sol. Il continuait de méditer sur les diverses mutations de l'Art de l'Abattage Céleste et sur la manière de transformer la force vitale en un sceau de vie.
+
+La chaîne de montagnes environnante était plongée dans un silence absolu, sans aucun signe de vie. Alors qu'il volait, une lueur spectrale clignota devant lui, puis une silhouette jaillit soudainement de sa cachette pour charger Wang Lin.
+
+La vitesse de la silhouette était fulgurante ; en un clin d'œil, elle fut sur lui. Elle était enveloppée d'un brouillard noir et une odeur de sang s'engouffra vers Wang Lin.
+
+Le corps de Wang Lin ne ralentit pas et son expression resta imperturbable. Au moment où la forme noire allait le percuter, il frotta ses doigts de la main droite et pointa l'ennemi.
+
+Il enfonça directement son doigt dans le brouillard noir.
+
+Un rayon de gaz gris jaillit du bout de son doigt. Cependant, ce gaz était si faible qu'il se dissipa presque instantanément après son apparition. Très peu de gaz gris pénétra la silhouette noire.
+
+Soudain, un crépitement jaillit du brouillard noir, semblable au bruit de la neige qui fond. Le brouillard bouillonna jusqu'à se dissiper totalement, révélant une bête de la taille d'un poing.
+
+Cette petite créature n'avait aucun membre, seulement une gueule béante. Elle n'avait pas de dents, mais une odeur âcre s'échappait de sa bouche. La salive de cette bête était manifestement très puissante.
+
+À cet instant, le doigt de Wang Lin percuta directement le corps de la petite créature. En manipulant son doigt, il fit éclater le corps de la bête en mille morceaux jusqu'à ce qu'il disparaisse.
+
+Wang Lin retira son doigt et reprit sa progression. En se retirant, des filaments de gaz gris s'échappèrent des restes de la petite bête pour s'enrouler autour de son doigt.
+
+« L'Art de l'Abattage Céleste récolte la force vitale lors du massacre. Je me demande simplement si ce que j'ai entre les doigts est bien de la force vitale... » Wang Lin baissa les yeux pour observer le gaz gris autour de son doigt. Après une courte réflexion, il reprit son vol.
+
+Le temps passa lentement. Wang Lin se déplaçait avec rapidité sans toutefois s'enfoncer trop profondément. Il déploya son Sens Divin pour verrouiller la position des membres de la Secte de l'Épée Da Luo.
+
+Chaque mouvement de ces derniers était parfaitement visible par le Sens Divin de Wang Lin ; ils ne pouvaient rien lui cacher.
+
+Wang Lin voulait découvrir la nature exacte de ce Fruit d'Or Brillant. Il souhaitait également utiliser les membres de la Secte de l'Épée Da Luo, et plus particulièrement ces deux Anciens au stade de la Transformation de l'Âme, comme sujets d'entraînement pour son Art de l'Abattage Céleste.
+
+À cet instant, Wang Lin n'éprouvait toujours aucune bienveillance envers la Secte de l'Épée Da Luo !
+
+Alors qu'il survolait la chaîne de montagnes, le gaz gris autour de ses doigts était devenu plusieurs fois plus épais qu'auparavant. Les filaments de gaz s'enroulaient avec célérité autour de ses phalanges, tels des cordages.
+
+Les Terres Démoniaques du Nord regorgeaient de bêtes démoniaques, mais aucune ne représentait une menace pour Wang Lin. Si ce n'était pour son désir de découvrir le Fruit d'Or Brillant, il serait déjà descendu plus profondément pour mettre en pratique son Art de l'Abattage Céleste sur des créatures plus puissantes.
+
+Ce jour-là, Wang Lin retira son doigt de la tête d'un taureau dont la puissance égalait celle d'un cultivateur au stade de la Formation de l'Âme. Au moment du retrait, un épais panache de gaz gris jaillit du front du taureau pour s'enrouler autour de son doigt.
+
+Le corps du taureau trembla et son regard s'estompa lentement jusqu'à ce qu'il s'effondre, inanimé.
+
+À cet instant précis, un éclair noir déchira le lointain. Accompagné d'un rugissement féroce, la silhouette terrifiante du moustique apparut aux côtés de Wang Lin. Sa gueule immense s'enfonça dans la tête du taureau et, d'une seule aspiration, il engloutit le sang, la chair, l'essence et le noyau de la bête.
+
+Il ne resta au sol que le squelette du taureau.
+
+Une fois sa proie consommée, une lumière blanche émana de la créature. Après quelques pulsations, cette clarté disparut, rendant les poils effrayants du moustique encore plus menaçants. La bête, ravie, commença à tournoyer devant Wang Lin.
+
+Tout au long de son périple, chaque fois que Wang Lin abattait une bête au stade de la Formation de l'Âme ou supérieur, il appelait le moustique pour qu'il absorbe l'essence et le noyau de la victime, stimulant ainsi sa croissance.
+
+S'il n'avait pas été pour le fait que le crapaud tonnerre ne convenait pas à ce mode de croissance, il l'aurait également libéré.
+
+Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit apparu sur la planète Suzaku pour une raison obscure, sa férocité surpassait celle de n'importe quelle créature issue d'une planète de culture.
+
+Cette bête vivait pour dévorer ; elle pouvait consommer n'importe quel type de créature au monde et, plus elle dévorait, plus elle devenait puissante.
+
+Depuis qu'il l'avait suivie, elle avait englouti d'innombrables pilules, trésors célestes et noyaux divers. Bien que sa force fût encore au stade de l'Âme Naissante, sa férocité pouvait terrifier des bêtes même au stade de la Formation de l'Âme.
+
+Le corps de Wang Lin avança et plana dans les airs. Le moustique poussa un rugissement et s'élança. Il se déplaça comme un éclair pour se placer sous les pieds de Wang Lin, l'entraînant alors profondément dans la chaîne de montagnes.
+
+En plein vol, Wang Lin remarqua quelque chose. Le moustique le sentit également et s'arrêta net. Il resta immobile, attendant les ordres de son maître.
+
+Wang Lin regarda vers le sud, esquissa un sourire et murmura pour lui-même : « Ont-ils trouvé le Fruit d'Or Brillant... ? »
+
+D'une simple pensée, le moustique se dirigea vers le sud sans un bruit, tel un fantôme dans la nuit. Cependant, ses yeux étaient injectés de soif de sang et brillaient comme des flammes spectrales.
+
+Wang Lin suivait attentivement les changements qui affectaient le moustique ces derniers jours. La créature semblait être à un stade critique, sur le point de réaliser une percée. Chaque fois que le moustique dévorait l'essence et le noyau d'une bête, des éclats de lumière blanche l'entouraient, tout comme lorsqu'il avait consommé les lignes blanches des Étoiles Brisées du Chaos.
+
+En contemplant la lueur fantomatique dans les yeux du moustique, une image surgit soudainement dans l'esprit de Wang Lin.
+
+Sur une planète immense, d'innombrables bêtes semblables à des moustiques couvraient le ciel entier. Leurs regards à tous brillaient comme des flammes spectrales...

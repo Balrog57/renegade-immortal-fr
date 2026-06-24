@@ -1,0 +1,99 @@
+---
+n: 1146
+title: "L'espoir de la Perle Défiant le Ciel atteignant sa complétion une seconde fois"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1146 - The Hope of the Heaven Defying Bead Reaching Completion a Second Time
+slug: lespoir-de-la-perle-defiant-le-ciel-atteignant-sa-completion-une-seconde-fois
+---
+« Il m'en manque encore neuf. Cependant, tous les Tigres Stellaires de la zone ont disparu, je dois donc aller plus loin… » L'homme d'âge moyen afficha un sourire amer, mais avant qu'il ne puisse continuer, son expression changea soudainement. Il leva sa main droite vers le vide, créant une fissure dans l'espace pour atteindre son espace de stockage. Un jade en sortit et se brisa instantanément, révélant un fragment d'âme.
+
+Le fragment d'âme avait la forme de Rudy. Ses yeux étaient empreints de la terreur précédant sa mort, avant de se dissiper devant l'homme d'âge moyen.
+
+« Jeune Maître ! » Le sourire disparut du visage du vieil homme en robe violette, ses yeux emplis de choc.
+
+L'homme d'âge moyen regarda le fragment d'âme disparaître. Il ne bougea pas d'un cil et ferma lentement les yeux.
+
+L'homme à ses côtés était pétrifié. Il regarda le Maître de Secte et son cœur trembla. Il avait suivi ce Maître de Secte pendant de nombreuses années ; il savait que plus le Maître de Secte était calme, plus la tempête à venir serait dévastatrice.
+
+« Où est passé Rudy ? » Après un long moment, l'homme d'âge moyen ouvrit les yeux. Une trace de tristesse brûlait dans son regard, mais sa voix était d'un calme terrifiant.
+
+Le vieil homme s'inclina et dit respectueusement : « Jeune Maître… le Jeune Maître est allé sur le continent de Mo Luo. » Il était encore sous le choc et n'avait pas retrouvé son calme. Il ne comprenait pas qui, dans la région de rang 5, oserait tuer le Jeune Maître Rudy au risque d'offenser Lu Yuncong, le Maître de la Secte du Dao Violet !
+
+« Le continent de Mo Luo, la Secte Origin… Pourquoi personne ne m'en a parlé ? » La voix de l'homme d'âge moyen était calme, mais lorsqu'elle parvint aux oreilles du vieil homme, ce dernier en frémit. Il se souvint soudain de quelque chose et son visage pâlit.
+
+« Jeune Maître, il… »
+
+« En tant que cultivateur, il était encore en proie à la luxure des beautés et faisait preuve d'arrogance. Il a utilisé son statut de Jeune Maître de la Secte du Dao Violet pour ruiner de nombreuses disciples féminines de diverses sectes. Il a même commis des actes odieux, comme absorber leur énergie Yin originelle… » Sans attendre que le vieil homme finisse, l'homme d'âge moyen secoua la tête et sembla murmurer pour lui-même.
+
+« Maître de Secte… » Le visage du vieil homme était livide.
+
+« Qui est allé avec lui sur le continent de Mo Luo ? Cela aurait dû être Song Wude. Cet enfant a grandi sous sa protection. Peut-être que, pour lui, Song Wude était comme un second père. Il est allé sur le continent de Mo Luo parce qu'il courtise Lu Yanfei de la Secte Origin. Il profitait de la mort de ce vieux sac d'os pour vouloir faire de la Secte Origin son palais intérieur… »
+
+Le vieil homme réfléchit silencieusement. D'après ce qu'il savait, tout ce que le Maître de Secte disait était vrai.
+
+L'homme d'âge moyen leva la tête et regarda la brume stellaire devant lui. Après un moment de silence contemplatif, il se détourna et marcha vers le continent violet.
+
+« Cet enfant inutile… Il est mort, c'est donc une calamité de moins dans ce monde… Cependant, je suis toujours son père. Puisqu'il aimait cette fille, Lu Yanfei, alors que cette petite puisse mourir avec lui… Quant à l'homme qui l'a tué, qu'il soit enterré avec lui également », dit l'homme d'âge moyen sans aucune émotion dans la voix.
+
+« Il n'était pas comme ça auparavant… » Cette silhouette semblait plus sombre encore.
+
+L'expression du vieil homme devint de plus en plus pâle. Après avoir hésité un instant, il serra les dents et dit : « Maître de Secte, avant que le Jeune Maître ne parte, ce vieil homme a entendu Song Wude dire… dire que le Jeune Maître se rendait à la Mer des Nuages Violets pour s'emparer de l'Étendard Yin Céleste que la Secte du Dao Violet y avait laissé. Après avoir pris l'âme originelle de Lu Yanfei, il comptait utiliser toutes les âmes originelles féminines qu'il avait collectées pour nourrir un Céleste Yin. »
+
+La silhouette de l'homme d'âge moyen s'arrêta net et le calme dans ses yeux vola en éclats. Une rage monstrueuse se manifesta, mais un sentiment de peur et de panique envahit également son corps.
+
+« Enfant ingrat ! »
+
+***
+
+Continent de Mo Luo, Secte Origin.
+
+Lu Yanfei regardait silencieusement la demeure ordinaire. Après avoir hésité, elle entra dans la cour. Xu Yun la suivait, très tendue ; elle pouvait distinctement entendre les battements rapides de son cœur.
+
+La porte de Wang Lin était close. Lu Yanfei et Xu Yun se tinrent devant le seuil en silence.
+
+Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda doucement : « Senior est-il là ? »
+
+« Non ! » Une voix calme sortit de la demeure. Elles furent surprises par cette réponse qu'elles n'attendaient pas ainsi.
+
+En vérité, il y a fort longtemps dans le Système Stellaire de l'Alliance, une femme avait posé la même question et reçu la même réponse. Après tout, que ce soit le corps original ou l'avatar, les deux étaient Wang Lin.
+
+Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement : « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, peu de gens au sein de la Secte Origin se souviennent de lui. »
+
+« Même mes trois frères apprentis ne l'ont jamais vu. Je n'ai vu qu'un portrait de lui, que Maître m'a montré. Il me l'a confié… car ce Grand Oncle-maître Lu est un ancêtre de ma famille Lu. Ce portrait était très ancien et en lambeaux. En revenant à l'instant, il a été détruit. »
+
+Après avoir dit cela, Lu Yanfei s'éloigna respectueusement avec un sourire. Xu Yun était confuse par les paroles de sa maîtresse ; elle ne comprenait pas pourquoi elle avait tenu ce discours.
+
+Wang Lin, assis sur son lit, fixait le lotus noir dans sa main droite. Il leva la tête et ses yeux brillèrent intensément. Son regard semblait pouvoir traverser les murs pour se poser sur Lu Yanfei qui s'éloignait.
+
+Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son calme et sortit de la cour.
+
+« Quelle femme intelligente ! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Rudy.
+
+Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Origin signifiait soit chercher quelque chose ici, soit fuir des ennemis.
+
+Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte Origin, il lui fallait une identité pour ne éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
+
+Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Red Butterfly, différente de la douceur de Li Muwan. C'était là de la sagesse, une sagesse inégalée !
+
+Après réflexion, Wang Lin esquissa un sourire et murmura : « Lu Zihao… Cette identité me permettra de prendre racine dans le Système Stellaire de la Mer des Nuages ! »
+
+La raison pour laquelle Wang Lin accordait tant d'importance à son identité résidait dans son expérience à Allheaven. Il ne l'avait pas remarqué alors, mais finalement, son identité était devenue transparente pour tous les puissants cultivateurs, ce qui lui avait causé de nombreux désagréments. Après tout, ils tendaient tous à rejeter ceux qui n'appartenaient pas à leur propre système.
+
+Avec son niveau de culture, gérer la question de son identité était complexe. Bien que cela ne résolve pas tout parfaitement, cela lui offrait une voie pour y parvenir.
+
+Ne pensant plus à cela, Wang Lin posa sa main droite sur le lotus noir ; son Sens Divin se déploya alors pour l'étudier. Si ce lotus n'était qu'un simple trésor, il ne lui accorderait pas tant d'attention. Cependant, en l'examinant avec son Sens Divin, il fut surpris de découvrir que ce lotus était une véritable plante. Quelques simples formations de lois servaient de sceau.
+
+« Il est étrange qu'un système stellaire comme celui-ci abrite un trésor naturellement formé. Si le sceau sur le lotus est brisé, il peut engendrer une protection puissante. C'est en effet fascinant. » Wang Lin reposa le lotus et prit le sac de rangement du jeune homme vêtu de violet.
+
+Le sac contenait de nombreux objets divers. Outre les armes et pilules éparpillées, trois choses attirèrent l'attention de Wang Lin : une bouteille entièrement violette, un petit drapeau doré et un bâton d'encens de la taille d'un bras de nourrisson. Quant aux jades célestes, il y en avait très peu, moins de cent pièces.
+
+« Malheureusement, après avoir atteint le stade du Purificateur de Nirvana, on n'utilise plus de sac de rangement. Un espace de stockage personnel est impossible à trouver pour un étranger, même après la mort. Sinon, ce cultivateur du Purificateur de Nirvana m'aurait peut-être laissé de meilleurs trésors et pilules. » Wang Lin secoua la tête en saisissant le drapeau doré. Après l'avoir scanné avec son Sens Divin, son expression devint sombre.
+
+Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à travers lui, il découvrit immédiatement les âmes Yin de plus de cent femmes. Toutes étaient belles, certaines même d'une beauté incomparable. Cependant, elles semblaient toutes miserables, enfermées dans le sceau sans pouvoir s'échapper. Une âme de serpent résidait à l'intérieur et semblait dévorer ces femmes. Au moment où le Sens Divin de Wang Lin l'effleura, la créature sembla être réveillée de son sommeil et libéra une aura terrifiante. Même les yeux de Wang Lin se contractèrent face à cette aura.
+
+« C'est… » L'esprit de Wang Lin fut secoué et son Sens Divin recula devant l'attaque de l'âme de la bête. Il fixa le drapeau doré, les pupilles rétractées.
+
+« Une aura d'extrême Yin !!! » Wang Lin se redressa brusquement, son calme rompu. Une vague monstrueuse d'émotion le frappa et il prit plusieurs inspirations profondes.
+
+« Malheureusement, ce n'est pas complet ; il n'y a qu'une trace d'extrême Yin. De plus, la méthode de culture est totalement erronée. Cela ne peut être comparé à l'extrême Yang créé par l'Omniscient en utilisant Bai Wei. Cet extrême Yin est bien trop médiocre en comparaison… Cependant, c'est tout de même une parcelle d'extrême Yin ! » Wang Lin toucha le point entre ses sourcils. Après que la Perle Défiant le Ciel eut été complétée par les cinq éléments, elle avait besoin du Yin et du Yang. Il avait obtenu la forme d'extrême Yang via Bai Wei, et il ne lui manquait plus que l'extrême Yin pour achever la Perle Défiant le Ciel une seconde fois !

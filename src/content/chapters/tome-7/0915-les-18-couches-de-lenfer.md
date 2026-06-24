@@ -1,0 +1,121 @@
+---
+n: 915
+title: "Les 18 Couches de l'Enfer"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 915 - 18 Layers of Hell
+slug: les-18-couches-de-lenfer
+---
+Grâce à l'héritage de Qing Shui, Wang Lin comprit que parmi les sorts de l'Empereur Céleste Bai Fan — « Appeler le Vent », « Invoquer la Pluie » et « Arsenal Magique » — c’était l’Arsenal Magique qui était le plus puissant !
+
+Même Qing Shui accordait une immense importance à l'Arsenal Magique. C'était l'un des sorts qui l'avait rendu célèbre dans le Royaume Céleste !
+
+Wang Lin avait également de grandes attentes envers ce sort. Il prit une profonde inspiration et ferma les yeux. Après avoir parfaitement assimilé l'héritage de l'Arsenal Magique transmis par Qing Shui, il ouvrit soudainement les yeux et le noyau d'énergie originelle céleste dans son corps se mit à tourner.
+
+À mesure qu'il tournait, une quantité massive d'énergie originelle céleste circula dans son corps. Son énergie originelle commença lentement à se dissimuler, jusqu'à ce que seule cette dense énergie originelle céleste ne circule plus en lui.
+
+L'actuel Wang Lin dégageait une immense quantité d'énergie originelle céleste. Il possédait l'aura d'un être céleste, comme s'il était un véritable immortel !
+
+Le jeune homme à la grosse tête observa attentivement la scène et soupira. Il s'était toujours demandé pourquoi ce Xu Mu possédait une énergie originelle céleste, alors qu'il se souvenait clairement que Xu Mu n'était jamais entré dans le bassin céleste.
+
+Cependant, il n'osait pas exprimer son doute. En regardant Wang Lin imprégné d'énergie originelle céleste, il eut un sourire amer. Lui devait sacrifier son domaine pour obtenir cette énergie, tandis que Xu Mu possédait à la fois un domaine et une énergie originelle céleste.
+
+Alors que l'énergie originelle céleste de Wang Lin circulait, il commença à former les sceaux manuels uniques à l'Arsenal Magique, obtenus grâce à l'héritage de Qing Shui !
+
+L'Arsenal Magique exigeait d'ouvrir le cycle de la réincarnation afin d'en extraire les fragments d'âme de ceux que vous aviez tués. Il fallait ensuite créer son propre espace mystérieux pour y fusionner ces fragments d'âme. Ce n'est qu'à ce moment-là que l'Arsenal Magique pouvait prendre forme.
+
+La puissance de ce sort variait selon l'individu. Par exemple, lorsque Bai Fan utilisait l'Arsenal Magique, celui-ci couvrait le ciel, et très peu de gens pouvaient l'arrêter. Il y avait aussi Qing Shui, dont l'Arsenal Magique était imprégné d'une soif de sang telle qu'elle faisait plier ses adversaires avant même le combat.
+
+Tandis que ses mains traçaient les sceaux, l'énergie originelle céleste dans son corps se précipita soudainement à travers ses bras pour s'engouffrer dans les signes. C'était comme si le monde changeait de couleur alors que des filaments d'énergie originelle céleste s'entrecroisaient devant lui et commençaient lentement à tourbillonner.
+
+Au début, la rotation était lente, mais à mesure que le noyau d'origine céleste à l'intérieur de Wang Lin tournait plus vite, le vortex finit par ressembler à une tornade.
+
+Alors que le vortex rugissait, il commença à s'étendre. En un clin d'œil, un tourbillon de plusieurs dizaines de pieds de haut apparut devant Wang Lin. Il tournait si rapidement qu'il semblait immobile ; en réalité, la rotation du vortex avait atteint son apogée.
+
+Si Wang Lin n'avait pas obtenu l'énergie originelle céleste de la 17e couche du Cimetière Immortel, son noyau céleste se serait épuisé et effondré avant même que le vortex ne puisse se former.
+
+Même après avoir absorbé toute cette énergie et que son noyau céleste ait atteint la taille d'un premier embryon, Wang Lin sentait son énergie originelle céleste s'épuiser rapidement. Il savait qu'il ne pourrait maintenir le vortex plus de trois jours !
+
+Wang Lin savait que ce vortex était un cycle de réincarnation auto-créé par l'énergie originelle céleste. En réalité, c'était un sort qui se concentrait sur les souvenirs : il fallait s'immerger dans ses propres souvenirs pour en extraire les fragments d'âme de toutes les personnes que l'on avait tuées !
+
+Bien qu'il ne s'agisse que de souvenirs, ils étaient extrêmement réels lors de l'utilisation du sort. Les fragments d'âme extraits conservaient même une partie de leur culture. Par conséquent, ils pouvaient être utilisés dans l'Arsenal Magique !
+
+Plus il prolongeait le processus, plus il perdrait d'énergie originelle céleste. S'il n'obtenait pas gain de cause après trois jours, son énergie s'épuiserait et le vortex s'effondrerait.
+
+À l'instant où le vortex s'ouvrit, l'âme originelle du dragon de tonnerre ancien de Wang Lin jaillit de ses sourcils pour pénétrer dans le tourbillon. Le vortex continua de rétrécir jusqu'à s'imprimer entre les sourcils de Wang Lin.
+
+Les environs devinrent totalement silencieux.
+
+L'âme originelle du dragon de tonnerre ancien de Wang Lin traversa un tunnel temporel, changeant progressivement de forme jusqu'à reprendre une apparence humaine.
+
+Soudain, le tunnel prit fin et, lorsqu'il en sortit, la lumière du soleil l'aveugla. Wang Lin baissa les yeux et vit la Secte Heng Yue sur la planète Suzaku !
+
+Il aperçut deux jeunes gens. L'un était couvert de sueur, utilisant un sort d'attraction. À ses côtés, la personne contrôlée par le sort était un jeune homme tenant une dague, laquelle était pointée vers un autre adolescent.
+
+Le jeune homme leva sa hache et frappa impitoyablement la tête du second.
+
+Un cri déchirant résonna. Wang Lin vit clairement un fragment d'âme s'envoler pour entrer dans sa propre âme originelle.
+
+« Cette personne n'a pas été tuée par moi. Pourquoi... » Tandis que Wang Lin réfléchissait, il sentit une force puissante tirer sur son âme originelle. En un instant, sa vision se brouilla et il se retrouva sur une route. Devant lui, un adolescent vêtu de noir combattait un homme d'âge moyen.
+
+Peu après, l'homme d'âge moyen mourut. Près de lui se tenait un jeune homme à l'air lugubre qui déclara : « C'est le disciple du vieux Ji Mo. Nous devons partir vite ! »
+
+Le fragment d'âme de l'homme d'âge moyen s'envola et pénétra dans l'âme originelle de Wang Lin.
+
+La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora les fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
+
+Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Étranger, à Hou Fen, et enfin à la Mer des Démons avec le tendon de dragon et l'Ordre des Dix Mille Démons de cent jours.
+
+Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yue, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yue [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans la Tombe de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
+
+La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Allheaven, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre de Sang, l'intérieur de la Bête de l'Enfer, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la compétition pour le Titre Céleste où il obtint le premier rang sur une ligne menant au ciel.
+
+Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
+
+Au moment où il reprit conscience, le vortex entre ses sourcils cessa de tourner et se résorba en filaments d'énergie originelle céleste qui retournèrent dans son corps. Son noyau d'origine céleste, qui avait la taille d'un embryon, avait rétréci de près de 60 %.
+
+Sa vie de massacres venait de défiler devant lui. En revivant son passé, Wang Lin ressentit du regret. Même à cet instant, il n'était pas sûr d'être sorti de son rêve.
+
+« Quel puissant sort céleste ! » Wang Lin poussa un grand soupir. Le sort de l'Empereur Céleste Bai Fan était issu de la fusion de multiples incantations. L'essence de ces dernières avait été extraite pour créer un nouveau sort céleste. Cependant, pour maîtriser cette technique, Wang Lin avait dû en vivre tout le processus.
+
+Wang Lin réfléchit un moment. Il avait déjà pris sa décision pour la seconde partie de l'Arsenal Magique. Après avoir ravivé ses souvenirs pour s'assurer que tout était correct, la rivière des enfers apparut au-dessus de lui.
+
+La rivière des enfers se déploya et une aura de ressentiment emplit le monde. Cependant, sous le contrôle de Wang Lin, les deux extrémités se rejoignirent pour former un cercle. À cet instant, une aura jaillissante vers les cieux apparut.
+
+Wang Lin regarda la rivière des enfers et en expulsa un objet : le Sceau Céleste. Dès qu'il apparut, il flotta dans les airs.
+
+Il fusionna avec la rivière des enfers. Des centaines de milliers de runes dorées surgirent et s'unirent au courant. La rivière commença à bouillonner comme si elle était en ébullition, et un changement prodigieux se produisit lors de la fusion avec les runes d'or.
+
+La rivière des enfers entière balaya le monde, emportant avec elle des centaines de milliers de sceaux, pour finalement fusionner totalement avec le Sceau Céleste. Une pression écrasante enveloppa soudainement la planète abandonnée sur laquelle se trouvait Wang Lin. Cette pression émanait du Sceau Céleste.
+
+L'apparence du Sceau Céleste avait changé. Il n'était plus doré, mais d'un noir d'encre. Pourtant, une aura extrêmement puissante irradiait de cette obscurité.
+
+C'était comme si d'innombrables esprits vengeurs hurlaient et se débattaient à l'intérieur pour s'échapper.
+
+Plus stupéfiant encore, plusieurs anneaux étaient apparus sur le Sceau Céleste, le divisant en 18 couches !
+
+Chaque couche dégageait une aura de ressentiment dense et des éclats d'une sombre lumière de scellement. Plus la couche était profonde, plus l'aura de ressentiment était intense !
+
+C'était son propre domaine qu'il avait créé pour l'Arsenal Magique !
+
+Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume du Massacre. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale !
+
+Le Sceau Céleste servait de terre, les sceaux dorés de protection, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
+
+Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e ! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse : c'était l'Ancêtre de Sang, tué par Wang Lin !
+
+Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière Immortel étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
+
+On y trouvait également les fragments d'âme des cultivateurs de la famille Yao que Wang Lin avait éliminés, ainsi que ceux de tous les cultivateurs du niveau Corporel Yang et au-delà qu'il avait tués !
+
+L'Arsenal Magique était un sort d'une tyrannie absolue. Il extrayait du cycle de réincarnation les fragments d'âme de tout ce que l'on avait tué pour les utiliser !
+
+Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex apparut entre ses sourcils, puis son âme originelle s'élança pour expulser de l'énergie d'origine essence !
+
+Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils touchèrent les 18 couches de l'enfer, ils furent tous scellés à l'intérieur.
+
+Au même moment, Wang Lin frappa son sac de stockage et le Drapeau des Un Milliard d'Âmes s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
+
+***
+
+1. Le pays du Papillon Rouge.

@@ -1,0 +1,123 @@
+---
+n: 1425
+title: Peut-être que ce jour viendra...
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1425 - Perhaps That Day Will Come
+slug: peut-etre-que-ce-jour-viendra
+---
+Chapitre 1425 - Peut-être que ce jour viendra...
+
+Les yeux du jeune homme étaient empreints de folie et un pressentiment funeste envahit son corps. Tandis qu'il dévalait la montagne, une sensation de froid glacial le saisit.
+
+Monter la montagne était ardu, mais la descendre l'était plus encore !
+
+Dans sa précipitation, il trébucha immédiatement, s'infligeant de nombreuses contusions et des blessures sanglantes. Pourtant, le jeune homme fit fi de tout et continua sa course effrénée vers le bas.
+
+« Ce n'est qu'un incendie, ce n'est qu'un incendie ! Rien ne s'est passé, rien ne s'est passé ! » Le corps du jeune homme tremblait tandis qu'il dévalait la pente comme un possédé. Le panier de remèdes sur son dos tressautait, laissant échapper quelques herbes médicinales, mais il n'y prêta aucune attention.
+
+En chemin, il tomba à plusieurs reprises ; une branche lui ouvrit même une large plaie à la jambe droite. Il l'ignora pourtant, ses yeux ne reflétant qu'une anxiété dévorante.
+
+Après un long moment, le jeune homme atteignit le pied de la montagne, le souffle court. Il se précipita sur le sentier menant au village, le cœur battant et le corps parcouru par la peur.
+
+« Rien ne va arriver, rien ne va arriver ! » Son cœur semblait hurler, presque à implorer le destin. Tout ce qui l'entourait n'était qu'un flou indistinct, hormis le chemin sous ses pas. Il utilisa toutes ses forces pour atteindre la route principale à l'entrée du village. Il ne lui restait plus qu'à parcourir un demi-kilomètre pour l'atteindre.
+
+Cependant, s'il ne pouvait encore voir le village, il aperçut l'incendie monstrueux. Il percevait également, de manière diffuse, des cris plaintifs.
+
+Ces lamentations étaient assourdissantes, à faire trembler la terre elle-même. « Petite sœur ! » Le jeune homme s'élança de toutes ses forces.
+
+À cet instant précis, les vibrations sur la route devinrent plus violentes encore et plus de dix cavaliers surgirent au galop. Certains de ces hommes impitoyables portaient des vêtements en désordre, et leurs rires malveillants résonnaient dans l'air.
+
+« Haha ! Je ne m'attendais pas à ce que ce petit village recèle autant de belles femmes. Si je n'avais pas eu la tâche du seigneur à accomplir, j'en aurais vraiment pris quelques-unes ! »
+
+« Oui, surtout cette mariée, elle était magnifique... »
+
+La cavalerie passa rapidement devant le jeune homme. L'un des colosses leva aussitôt son fouet et projeta le garçon sur le bas-côté de la route.
+
+« Petit bâtard, tu oses barrer la route de notre Gang des Chevaux ? Écarte-toi de là ! »
+
+Le corps du jeune homme trembla et il poussa un cri déchirant. Une force puissante le frappa de plein fouet, l'assommant sur-le-champ.
+
+Les cavaliers passèrent, leurs rires faisant écho dans la nuit... Le temps s'écoula et l'obscurité tomba. Un vent froid soufflait alors que le jeune homme, au bord du chemin, ouvrait lentement les yeux en tremblant. La confusion se lisait sur son visage livide.
+
+Il lutta pour se redresser. Murmurant des paroles incohérentes, il tituba et s'élança vers le village.
+
+« Rien ne va arriver... Rien n'arrivera à Petite Sœur... Rien... »
+
+Après une longue errance, le village calciné apparut enfin sous la lumière de la lune. Le jeune homme tremblait en contemplant ce spectacle d'horreur. Il poussa un cri de désespoir et courut vers les ruines.
+
+« Petite sœur... Petite sœur... Petite Lan ! »
+
+En pénétrant dans le village, il fut frappé par l'odeur âcre de la fumée qui persistait, mêlée à la puanteur écœurante du sang. Sur le sol, parmi les taches sombres, gisaient des cadavres aux yeux grands ouverts, fixant le ciel nocturne.
+
+Ce spectacle lui infligea une douleur si intense qu'il manqua de s'effondrer. Tous ces corps étaient ceux de personnes qu'il connaissait intimement.
+
+La plupart des maisons alentour avaient été réduites en cendres. Seul le luxueux palanquin était intact. Par comparaison avec les décombres, sa couleur éclatante était d'un contraste saisissant et tragique !
+
+Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là : c'était Tiger... À ses côtés se trouvait une femme. C'était la sœur de Tiger, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Le cadavre était en lambeaux et le sang s'écoulait de ses orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
+
+« Petite sœur ! » Son cri déchirant résonna dans la nuit de ce village désolé et funeste ! Il persista longtemps... « Ne pleure pas, Petite Lan, sois sage. Grand frère ne dormira plus. Je t'apporterai cette orchidée pourpre, d'accord ? Alors, ne pleure plus. »
+
+« Petite Lan, c'est la centième fois que tu me demandes où sont partis Maman et Papa... Ne t'ai-je pas dit qu'ils étaient partis très loin... Ils te rattraperont, ils verront Lan Lan grandir, ils te verront te marier... Ne pleure pas... »
+
+« Euh... Puisque tu n'aimes pas Tiger, alors laisse tomber. Grand frère ne court pas après la grande sœur de Tiger comme tu le prétends... »
+
+« Le rêve de Grand frère est de devenir un Immortel ! Petite Lan, attends ton Grand frère. Quand j'aurai réussi, je reviendrai vous aider, toi et Tiger, à vivre éternellement ! »
+
+« Quand tu te marieras, Grand frère te préparera une dot magnifique pour que tu sois la plus belle des mariées. »
+
+Le jeune homme s'effondra en versant des larmes de sang. Ses yeux vides fixaient le corps de sa petite sœur.
+
+Quelques jours plus tard, après avoir enterré tous les défunts du village, il enterra sa sœur seule sur la montagne. C'était un sommet très élevé où fleurissaient de nombreuses orchidées pourpres. Assis au milieu de ce champ, on aurait pu contempler le monde entier... Sa petite sœur n'était pas morte de maltraitances, elle s'était pendue... Le jeune homme garda le morceau de soie blanche qui lui avait servi de lien. Un instant, il eut l'impression que l'âme de sa sœur résidait encore dans ce tissu.
+
+En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi cristalline qu'une cloche résonna alors à ses oreilles.
+
+« Grand frère... Grand frère, réveille-toi... Regarde là-bas, il y a plein d'orchidées pourpres... »
+
+« Grand frère, où sont partis Père et Mère ? Lan Lan les cherche... »
+
+« Grand frère... »
+
+Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomber sur la soie blanche. En s'étendant, elles formèrent une tache semblable à une fleur de prunier... « Le Gang des Chevaux... » Une haine monstrueuse brilla dans ses yeux alors qu'il s'éloignait vers l'horizon... « Grand frère, je t'attendrai... »
+
+Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Bris-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior !
+
+Dans le fief du Gang des Chevaux, mille quatre cents membres furent massacrés en une seule nuit pluvieuse ; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit anciens membres subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire ; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
+
+Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Les coupables qui avaient agressé sa petite sœur étaient morts depuis bien longtemps. Grâce à la recherche d'âme, il avait découvert que ces derniers n'avaient pas vraiment souffert, et il refusait de laisser cela ainsi !
+
+Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Bris-Ciel et fut accepté comme son disciple.
+
+En hiver, Sima Mo descendit de la montagne une nouvelle fois. Utilisant un sort pour calculer la réincarnation du coupable, il déclencha un massacre !
+
+Quelle haine pouvait pousser un homme à traquer un coupable jusque dans ses vies futures, par-delà le cycle de la réincarnation ?
+
+Le temps passa... Wang Lin vit tout cela à travers les souvenirs de Maître Simo. Il resta silencieux, plongé en pleine réflexion.
+
+Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Bris-Ciel, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur ? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape ? »
+
+« Si je dois mourir, alors que je meure ! »
+
+Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi reformer ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta culture réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
+
+L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo" ! »
+
+À l'intérieur du Fourneau Impérial, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un clou situé entre ses sourcils se propagea progressivement pour occuper tout son front.
+
+À l'extérieur du Fourneau Impérial, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard des cultivateurs environnants. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau Impérial avant qu'il ne se dissipe.
+
+La silhouette de Maître Simo apparut.
+
+Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Simo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
+
+Ce raffinage aurait sans doute échoué, car Maître Simo possédait encore de nombreux trésors. Poursuivre cette bataille n'aurait eu aucun sens.
+
+Maître Simo resta suspendu dans les airs, songeur. D'un mouvement de la main droite, il fit disparaître la femme dans sa manche.
+
+Grâce à son niveau de culture, il comprit vaguement ce qui venait de se passer. Il regarda Wang Lin avec un regard d'une extrême complexité.
+
+« Dites-moi... Ces paroles qu'elle a pronquées... venaient-elles de votre sort ou... ? »
+
+« Je l'ignore également », répondit Wang Lin dans un soupir.
+
+« Si j'avais été Sima Mo et si sa sœur avait été Wan Er... Quel aurait été mon choix... ? » Wang Lin craignait de concevoir la réponse... Peut-être serait-ce la même qu'il avait donnée à Sima Mo, ou peut-être la connaissait-il déjà.

@@ -1,0 +1,91 @@
+---
+n: 841
+title: "L'Étoile Brisée d'un Dieu Ancien"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 841 - Shattered Star of an Ancient God
+slug: letoile-brisee-dun-dieu-ancien
+---
+Les sept individus qui atteignaient presque l'apogée du Système Stellaire d'Allheaven avaient entamé une guerre contre le Serpent Moongazer !
+
+Le corps du Serpent Moongazer s'était éveillé de sa forme enroulée. Il laissa échapper un rugissement féroce tandis qu'il changeait de forme, ses tentacules imposants ondulant dans l'espace. Pour la première fois, une pointe de vigilance perçait dans son regard.
+
+Bien que ses sens fussent différents de ceux des humains, il pouvait encore ressentir un puissant sentiment de danger. Il n'avait pas éprouvé une telle menace depuis très longtemps.
+
+Il se souvenait vaguement qu'il y avait une éternité, alors qu'il dérivait, une voix indistincte lui avait ordonné de ne pas pénétrer dans une certaine région. Une force inimaginable émanait de cette voix, l'emplissant de terreur.
+
+Ce souvenir remontait à une époque si lointaine qu'il était extrêmement flou, mais ce sentiment de danger était si profond qu'il restait gravé dans son esprit. Même aujourd'hui, il parasitait sa conscience.
+
+À cet instant précis, il ressentait à nouveau le péril. Bien que bien plus faible qu'autrefois, cela le rendait prudent.
+
+Ses nombreux tentacules s'agitèrent alors que le Serpent Moongazer poussait un rugissement. C'était comme si le monde lui-même se déchirait en deux ; un son plus féroce que n'importe quel tonnerre, capable de fendre les cieux !
+
+Ce son ne s'était pas manifesté lors des deux précédentes colères du serpent. Lorsqu'il affrontait de faibles cultivateurs, il n'en avait nul besoin ; il se contentait de les massacrer. Cependant, dans sa rage actuelle, c'était le danger qu'il ressentait qui l'incitait à déployer sa véritable puissance !
+
+Un langage complexe, semblable à celui des humains, s'entremêlait à ce rugissement, créant un sortilège qui faisait s'effondrer l'espace environnant et se propageait sans relâche.
+
+Le vieillard en robe rouge pointa le ciel et fusionna avec la formation octogonale. La formation resta suspendue au-dessus du Serpent Moongazer et fit pleuvoir sur lui un tonnerre flamboyant. Simultanément, les éclairs rouges émanant des quatre jeunes restreignaient étroitement les mouvements de la créature.
+
+L'homme en robe noire se métamorphosa en un aigle géant de mille pieds. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent Moongazer, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven !
+
+L'ancêtre de la famille Shengong s'approcha du Serpent Moongazer en un seul pas. En ouvrant les bras, des filaments de tonnerre parcoururent son corps avec frénésie. Le tonnerre jaillissait sous forme de dragons tonnerreux et, bien qu'ils ne fussent pas issus d'un ancien dragon de tonnerre, ils provenaient d'un esprit du tonnerre !
+
+Pas moins de dix mille de ces dragons rugissants s'élancèrent, prenant l'ancêtre de la famille Shengong pour source, et lancèrent une attaque furieuse sur le Serpent Moongazer.
+
+Li Yunzi, de la famille Zhan, était tel un spectre blanc ; sa vitesse était proprement phénoménale. Armé d'une épée d'argent, son arme perçait le corps du serpent en un éclair, brillant d'un éclat si intense qu'il aurait pu aveugler n'importe quel cultivateur. L'épée d'argent s'étendait jusqu'à transpercer l'autre côté de la créature !
+
+C'était là le sort qui permettait à Li Yunzi de faire trembler le Système Stellaire d'Allheaven : le Sort Céleste du Mouvement du Cœur ! Tant que sa volonté le dictait, rien ne pouvait l'arrêter !
+
+Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux qui chargea le Serpent Moongazer.
+
+Le visage du Dieu du Sang était empreint d'indifférence lorsqu'il explosa en une vaste brume sanguine. L'odeur du sang devint entêtante tandis que la brume enveloppait le corps du serpent. Il s'insinua par les tentacules et commença un carnage destructeur au cœur de la créature.
+
+Des grondements incessants résonnaient dans l'intérieur du Serpent Moongazer.
+
+La main de Maître Flamespark traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste ! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles !
+
+Pour cette opération, presque tout le Domaine Nord avait été évacué par le Temple Céleste du Tonnerre. Tout cela n'avait qu'un but : capturer ce Serpent Moongazer !
+
+Le rugissement du serpent devint plus intense encore. Les impacts internes et externes lui infligeaient une douleur si aiguë qu'ils le rendaient presque fou. Cela faisait une éternité qu'il n'avait pas souffert ainsi. Hormis cette voix dans sa mémoire, il n'avait jamais connu une telle agonie !
+
+Dans un cri de rage, le Serpent Moongazer expulsa une multitude de petits serpents par sa gueule. Parmi eux, huit mesuraient cent mille pieds de long, accompagnés d'innombrables autres de dix mille ou mille pieds. Tandis que ces subalternes chargeaient, la langue du dieu ancien résonna de leurs bouches. Ce n'était pas seulement le serpent principal qui émettait cette voix divine, mais chaque petit serpent également !
+
+La colère du Serpent Moongazer était semblable au doigt d'un dieu ancien ! Une lumière éclatante apparut devant chaque petit serpent. Cette lueur brilla de plus belle et se condensa rapidement. Bientôt, les doigts du dieu ancien remplirent le firmament ! Parmi les étoiles, ces innombrables serpents formèrent une multitude de doigts divins. C'était là l'une des capacités les plus redoutables du Serpent Moongazer !
+
+Le doigt du dieu ancien balaya la zone, prenant le Serpent Moongazer pour centre. Cette force colossale fit changer d'expression les six individus présents !
+
+Le sortilège ne s'arrêta pas là. Après avoir libéré les doigts divins, l'énorme corps du serpent trembla violemment et il continua de rugir. Sa masse se contracta frénétiquement, comme s'il voulait absorber toute la vitalité qu'il avait accumulée. Des bruits d'éclatement résonnèrent dans l'espace alors que ses innombrables tentacules se rompaient à la racine !
+
+Une multitude de tentacules se détachèrent de son corps en tourbillonnant. Soudain, des poils poussèrent sur eux et ils se transformèrent tous en Serpents Moongazer de cent mille pieds de long !
+
+Hormis le Dieu du Sang, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Flamespark se rétractèrent, empreintes d'effroi.
+
+« Ceci... Quel genre de bête lunaire est-ce là ? Les anciens grimoires n'ont jamais mentionné qu'une bête lunaire puisse posséder un tel sort ! »
+
+Alors que le Serpent Moongazer déployait ce sortilège terrifiant, tous les mortels et cultivateurs proches de Wang Lin s'effondrèrent, leur vitalité ayant été totalement absorbée.
+
+Une fois l'absorption achevée, les innombrables tentacules disparurent. À cet instant précis, une masse considérable de tentacules s'évanouit. Les cent tentacules entourant le dieu ancien commencèrent à absorber l'énergie à un rythme terrifiant. Ce n'était plus de l'absorption, c'était une dévoration !
+
+De grosses protubérances apparurent sur chaque tentacule tandis qu'ils dévoraient la puissance du dieu ancien avec frénésie. Simultanément, d'innombrables poils jaillirent des tentacules et, en un clin d'œil, s'étirèrent pour pénétrer le corps du dieu ancien afin de se nourrir à son tour.
+
+« Cet enfant-dieu ancien est la source de vie du Serpent Moongazer ! » Les yeux de Wang Lin devinrent glacials et sa main droite traça un sceau. Juste au moment où il s'apprêtait à attaquer, cette voix antique résonna une nouvelle fois dans son âme originelle.
+
+Cette voix était encore plus faible qu'auparavant, comme si elle pouvait s'éteindre à tout instant.
+
+« N'attaquez pas... Je ne fais plus qu'un avec le Serpent Moongazer. Si vous attaquez, il ripostera immédiatement. Membre de mon clan, partez vite et amenez ici celui qui peut accepter mon héritage... Je n'ai plus beaucoup de temps... » La voix devint de plus en plus ténue. Alors que les tentacules continuaient leur festin, elle devint presque inaudible.
+
+« Vous ne pouvez pas partir avec votre pouvoir... Je vais vous aider à fuir... »
+
+L'enfant-dieu ancien, encerclé par d'innombrables tentacules, ouvrit soudainement les yeux. À l'instant où ses paupières s'ouvrirent, l'une des huit étoiles illusoires se brisa brusquement ! Une étoile du dieu ancien venait de voler en éclats !
+
+Cet effondrement généra une force inimaginable qui frôla Wang Lin avant de charger vers le vortex au bout du passage étroit.
+
+Alors que la tempête s'engouffrait dans le vortex, une lueur rouge émergea. C'était la silhouette du Dieu du Sang qui se condensait rapidement. Après avoir pénétré le Serpent Moongazer, il avait continué son œuvre de destruction jusqu'à trouver ce lieu. À peine avait-il repris forme que la puissance du dieu ancien l'atteignit de plein fouet.
+
+Malgré sa culture, le Dieu du Sang poussa un gémissement et son corps s'effondra brusquement. Une force démoniaque se répandit soudainement pour l'aider à parer l'impact. L'ombre démoniaque qui se forma fut saisie de choc et s'écroula aussitôt, repoussée avec le Dieu du Sang hors du vortex.
+
+Lorsque le corps du Dieu du Sang se reforma, son visage était d'une pâleur extrême et il cracha un flot de sang. Il recula précipitamment, la toux persistante. Il paraissait très affaibli, son âme originelle ayant été gravement blessée ! S'il n'avait pas eu le démon lié à son âme, il serait mort sur le coup !
+
+Ses yeux étaient remplis d'effroi, de peur et d'incrédulité.
+
+« Dieu ancien ! » L'ombre démoniaque apparut derrière lui et s'exclama la même chose. Leurs regards étaient identiques : ils étaient pétrifiés par la terreur.

@@ -1,0 +1,125 @@
+---
+n: 246
+title: "L'extermination des Teng (Fin)"
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 246 - Exterminating Teng (End)
+slug: lextermination-des-teng-fin
+---
+Teng Huayuan frappa son sac de rangement, et une épée gigantesque en jaillit. L'arme semblait extrêmement antique. Il mordit le bout de sa langue et cracha un jet de sang frais. Bien que son corps parût s'affaiblir aussitôt, l'épée massive se mit à luire et fonça vers Wang Lin telle un éclair.
+
+Les yeux de Wang Lin s'illuminèrent. À l'instant où l'épée géante apparut, son Royaume Ji entra en action. Une série d'éclairs rouges jaillit et encercla l'arme instantanément. Après une succession de craquements sinistres, la grande épée se brisa lentement. Finalement, le Royaume Ji fut épuisé et l'épée ne fut plus que poussière.
+
+Wang Lin plongea la main dans son sac de rangement et en sortit plusieurs Âmes Naissantes qu'il avait récupérées sur les membres de la famille Teng. Il les consomma pour restaurer rapidement l'énergie dépensée.
+
+Teng Huayuan fixa, abasourdi, l'endroit où l'épée avait disparu. Son apparence sembla soudainement vieillir de plusieurs décennies.
+
+Wang Lin forma un sceau de sa main droite. Il le pressa contre son front, et les démons Xu Liguo et le troisième démon s'élancèrent rapidement. Sous les ordres de Wang Lin, ils poussèrent des rugissements excités et chargèrent les membres de la famille Teng.
+
+En un clin d'œil, plusieurs autres personnes poussèrent des cris déchirants avant de mourir. Chaque hurlement faisait trembler le corps de Teng Huayuan.
+
+« Vas-tu parler ? » La voix de Wang Lin était aussi glaciale que la glace.
+
+Teng Huayuan prit une profonde inspiration et ferma les yeux.
+
+Le visage de Wang Lin demeura impassible. Il ne daigna même pas regarder Teng Huayuan alors que ses mains traçaient des sceaux pour lancer une restriction. La restriction qui entourait la Cité de la Famille Teng se contracta lentement.
+
+Ceux qui atteignirent la limite de la restriction la regardèrent avec désespoir. Voyant les murs se refermer, les membres de la famille Teng se divisèrent en deux groupes : un groupe abandonna totalement, tandis que l'autre, les yeux injectés de sang, chargea Wang Lin avec leurs trésors magiques, tels des papillons de nuit attirés par la flamme.
+
+De plus en plus de membres de la famille Teng se ruèrent vers Wang Lin. Cependant, dès qu'ils s'approchaient à moins de mille pieds de lui, ils étaient frappés par la restriction. Leurs corps explosaient, provoquant une pluie de sang qui s'abattait sur le sol.
+
+Les cris misérables de sa famille parvinrent aux oreilles de Teng Huayuan. Son corps tremblait violemment et son cœur était rongé par le chagrin. Il voulait résister, mais même le trésor magique offert par un pays de culture de rang supérieur ne lui fut d'aucun secours.
+
+L'apparence de Teng Huayuan devint encore plus décrépite. Il n'avait plus la prestance majestueuse qu'il arborait autrefois ; il n'était plus qu'un vieillard impuissant, contraint de regarder sa lignée s'éteindre.
+
+« Je... je parlerai ! »
+
+Teng Huayuan afficha une haine profonde dans ses yeux en fixant Wang Lin, et déclara mot pour mot : « Puisque ma famille Teng est frappée par un tel désastre, personne d'autre ne doit espérer s'en sortir non plus ! Autrefois, c'est Gao Qiming de la Secte Piao Miao qui, grâce à sa compétence de calcul céleste, m'a aidé à trouver la famille Wang. C'est lui ! Allez le chercher ! Il est l'Ancêtre Premier de la Secte Piao Miao. Sa parole fait loi au sein de la secte ! »
+
+« Gao Qiming ! » Wang Lin fixa Teng Huayuan. Peu importait que l'homme mente ou non, ce nom était gravé dans sa mémoire.
+
+En regardant Teng Huayuan, le regard de Wang Lin se tourna soudainement vers l'horizon, empreint d'une intention meurtrière. Il agita la main et la restriction qui se contractait lentement commença brusquement à s'accélérer. Elle passa de dix mille kilomètres de rayon à seulement quelques kilomètres en un instant. Durant ce processus, les victimes n'eurent même pas le temps de pousser un cri.
+
+Simultanément, les têtes volèrent une à une sous l'effet d'une force mystérieuse pour venir s'empiler sur la tour des têtes. Cette tour était désormais si haute qu'elle semblait toucher le ciel.
+
+À cet instant, tous les membres de la famille Teng, hormis Teng Huayuan, étaient morts.
+
+Au sol, le sang coulait comme une rivière et une odeur ferreuse et épaisse imprégnait l'air.
+
+Tout en contemplant la scène avec stupeur, Teng Huayuan se mit soudain à rire. Son rire était empreint de douleur tandis que deux filets de sang coulaient le long de ses joues.
+
+Wang Lin observa calmement Teng Huayuan. Après un long silence, ce dernier prit une profonde inspiration et leva la tête vers Wang Lin. Sa voix, chargée d'indignation, tonna : « Bien, bien. Désormais, la rancœur entre votre famille Wang et ma famille Teng est effacée. J'ai exterminé votre famille et vous avez anéanti la mienne. C'est le karma, vraiment. Wang Lin, tu peux me tuer maintenant ! »
+
+Wang Lin leva sa main droite. Son doigt irradia une lumière dorée tandis qu'il concentrait l'énergie spirituelle de son corps à sa pointe.
+
+Mais à cet instant précis, un rugissement retentit au loin : « Arrête ! »
+
+En entendant cette voix, Teng Huayuan reconnut immédiatement Punnan Zi. Une étincelle d'excitation brilla en lui ; il savait qu'il avait peut-être une chance de survivre aujourd'hui. Son regard tourné vers Wang Lin se fit soudainement meurtrier.
+
+Son instinct de survie s'était réveillé. S'il restait une once de chance, il ne se laisserait pas abattre si facilement. Quelle histoire de rancœur effacée ? Il n'avait dit cela que parce qu'il pensait sa mort imminente.
+
+S'il survivait aujourd'hui, il trouverait un moyen d'atteindre le stade de la Rupture Spirituelle, quel qu'en soit le prix, afin de pouvoir tuer Wang Lin avec la plus grande cruauté pour se venger.
+
+Cependant, il avait surestimé Punnan Zi et sous-estimé Wang Lin. Le Sens Divin de Wang Lin était aussi puissant que celui d'un cultivateur au stade de la Rupture Spirituelle. Comment aurait-il pu ne pas remarquer Punnan Zi de si loin et le laisser l'interrompre ?
+
+Au moment où Punnan Zi apparut, Wang Lin projeta la lumière dorée de son doigt sur le front de Teng Huayuan et l'acheva.
+
+C'était bien comme Teng Huayuan l'avait prédit ; la querelle entre les familles Teng et Wang était terminée. La famille Teng était désormais totalement effacée de ce monde.
+
+La silhouette de Punnan Zi apparut soudainement devant lui. Il regarda le sang qui inondait le sol, le cadavre de Teng Huayuan dont le visage avait esquissé une lueur d'espoir de vivre, et enfin la tour de têtes. Il ne put s'empêcher de frissonner.
+
+Sans perdre un instant, il forma un sceau de sa main. Des faisceaux de lumière verte et rouge jaillirent de son sac de rangement.
+
+L'expression de Wang Lin resta sereine alors qu'il fixait Punnan Zi : « Tu es en retard. »
+
+Punnan Zi regarda Wang Lin, stupéfait. Après l'avoir scruté attentivement, il s'exclama : « Tu... tu es un disciple de la Secte Heng Yue ! »
+
+Wang Lin fixa Punnan Zi et, sans un mot, son Royaume Ji jaillit. Cependant, au moment où l'éclair rouge atteignit Punnan Zi, les lumières verte et rouge formèrent un bouclier protecteur. Lorsque le Royaume Ji percuta la barrière, les deux lumières éclatèrent d'un vif éclat. Finalement, elles réussirent à bloquer l'attaque, mais leur intensité s'estompa considérablement.
+
+L'expression de Punnan Zi changea radicalement. Sans perdre une seconde, il mordit le bout de sa langue et cracha du sang sur les lumières protectrices.
+
+Punnan Zi pointa Wang Lin du doigt et hurla : « Va ! »
+
+Soudain, les lueurs verte et rouge s'élancèrent en avant, déchirant l'espace sur leur passage. Wang Lin pointa sa main droite et toutes les restrictions des drapeaux de restriction surgirent sous la forme de dragons pour tenter d'intercepter les lumières.
+
+Mais la qualité de ces énergies était extrêmement élevée. Les restrictions ne purent que ralentir leur progression, sans parvenir à les stopper.
+
+Les yeux de Wang Lin s'illuminèrent alors que son Royaume Ji réapparaissait. Sa cible n'était pas les lumières verte et rouge, mais Punnan Zi.
+
+Le visage de Punnan Zi se décomposa. Alors qu'il faisait face à une situation de vie ou de mort, une main gigantesque apparut de nulle part et saisit l'éclair du Royaume Ji. La main serra légèrement et l'éclair rouge fut pulvérisé, mais au même moment, la main géante trembla et émit un faible grognement.
+
+Peu après, un homme d'âge moyen, vêtu de vêtements luxueux sur un ventre quelque peu rebondi, apparut devant Punnan Zi. Il jeta un regard surpris à Wang Lin avant de manifester une expression d'extase : « C'était donc toi ! » Sur ce, il agita la main droite et les lumières verte et rouge revinrent rapidement flotter autour de lui.
+
+L'apparition de cet homme permit à Punnan Zi de se détendre un peu. Il s'inclina et dit : « Salutations, noble messager. »
+
+Bien que Punnan Zi fût rassuré, il en eut le cuir chevelu qui picotait. Il ignorait la nature exacte de cet éclair rouge, mais lorsqu'il l'avait vu approcher, il avait senti qu'il pouvait mourir instantanément. Ce sentiment de danger, il ne l'avait ressenti que sur le champ de bataille étranger.
+
+Il n'avait aucun doute : si le noble messager n'était pas intervenu, il serait déjà un cadavre. Il regarda Wang Lin avec un mélange de peur profonde et de regret.
+
+L'homme d'âge moyen fixa Wang Lin et déclara lentement : « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de culture. Très bien ! Remets-moi la perle défiant le ciel et je t'épargnerai la vie ! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu ? »
+
+L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à dix mille kilomètres. Cet individu était le messager de la Tour Céleste, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de culture était celui de la Rupture Spirituelle.
+
+S'il n'était pas au stade de la Rupture Spirituelle, comment aurait-il pu détruire si aisément l'éclair du Royaume Ji ?
+
+Le fait que cet homme sache pour la perle défiant le ciel faisait également partie des considérations de Wang Lin dans son plan de vengeance. C'est pourquoi, lors de son séjour à Zhao, il avait étendu son Sens Divin sur tout le pays. De cette façon, avec un Sens Divin de niveau Rupture Spirituelle, personne ne pourrait l'identifier.
+
+Et personne ne pouvait le verrouiller par leur propre Sens Divin. C'est ce qui expliquait pourquoi ce messager n'était jamais sorti pour le traquer durant son massacre.
+
+En réalité, l'homme d'âge moyen avait souffert de maux de tête ces derniers jours : peu importe la fréquence à laquelle il balayait Zhao avec son Sens Divin, il ne parvenait pas à débusquer celui qui exterminait les membres de la famille Teng.
+
+À moins que le Sens Divin de cette personne ne soit plus puissant que le sien, il était impossible de le détecter. Il faut dire que bien que son niveau de culture n'ait pas progressé en quatre cents ans, restant au début du stade de la Rupture Spirituelle, nul à Zhao ne pouvait l'égaler.
+
+Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant qu'au début de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Rupture Spirituelle. Même si ce messager de la secte du Grand Démon était venu en personne, il n'aurait pas pu trouver Wang Lin.
+
+Une telle chose était extrêmement rare dans le monde de la culture. Après tout, Wang Lin était l'unique dévoreur d'âmes errant sous forme humaine.
+
+De plus, il y avait cet étrange éclair rouge. Bien que l'homme d'âge moyen ait fait mine de résister avec aisance, en vérité, l'éclair rouge avait pénétré son corps et endommagé son âme. Le dommage n'était pas immense, mais il l'avait tout de même rendu craintif.
+
+Voyant le messager apparaître, les yeux de Wang Lin brillèrent et, sans un mot, il sortit une goutte de sang.
+
+Une goutte de sang de couleur dorée.
+
+Une goutte de sang doré qui émanait la pression d'un Dieu Ancien.
+
+Les yeux de Wang Lin brillèrent d'une intention meurtrière tandis qu'il disait : « Je t'attendais depuis longtemps ! » Sa main droite pointa légèrement la goutte de sang dorée. Le sang se mit soudainement à bouillir, se transforma en un symbole doré et s'élança vers le ciel.

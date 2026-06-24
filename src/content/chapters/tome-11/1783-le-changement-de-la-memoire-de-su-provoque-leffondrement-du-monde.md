@@ -1,0 +1,115 @@
+---
+n: 1783
+title: "Le Changement de la Mémoire de Su Provoque l'Effondrement du Monde"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1783 - The Change of Su’s Memory Causes the World to Collapse
+slug: le-changement-de-la-memoire-de-su-provoque-leffondrement-du-monde
+---
+Alors que Wang Lin marchait dans la plaine, l'herbe autour de lui s'écartait pour lui frayer un chemin. Son allure n'était pas rapide, car trois jours suffiraient pour qu'il accomplisse tout ce qu'il avait à faire.
+
+Cependant, Wang Lin réfléchissait encore à la manière de stimuler la troisième âme et de provoquer une confusion accrue dans ses souvenirs.
+
+« Alors, je devrais pouvoir procéder ainsi. » Wang Lin fit un pas en avant et leva les yeux vers le ciel sombre. Un rayon de lumière traversa l'azur et s'arrêta brusquement devant lui. Une lueur d'épée jaillit, et ce rayon fonça sur Wang Lin.
+
+Il s'agissait d'un jeune homme vêtu de bleu. Son visage était empreint d'une intention meurtrière et une aura sanglante émanait de lui. Dans un éclat de lumière d'épée, il s'approcha pour trancher la tête de Wang Lin.
+
+Pourtant, alors qu'il fondait sur sa proie, Wang Lin leva lentement la main droite et pointa l'éclat de l'épée. La lumière brilla intensément puis se brisa, révélant une lame fracassée et un jeune homme terrifié.
+
+Le jeune homme trembla, et son corps explosa instantanément. Il disparut sous les doigts de Wang Lin, ne laissant derrière lui que trois jetons. Ces derniers, entourés d'une douce lueur, flottaient là, immobiles.
+
+« Très bien, je vais simplement obtenir la première place de cet essai. » D'un revers de manche, Wang Lin rangea les trois jetons et disparut.
+
+Lorsqu'il réapparut, il se trouvait aux côtés d'un rayon de lumière fendant le ciel. Le jeune homme était sur ses gardes, scrutant les alentours avec prudence. Cependant, l'apparition soudaine de Wang Lin le projeta hors du ciel, assommé.
+
+Wang Lin ne tuait pas sans raison. Il leva la paume et un jeton apparut. En un éclair, il disparut à nouveau.
+
+Durant le premier essai, Wang Lin était tel un loup infiltré dans un troupeau de moutons. Personne ne pouvait lui échapper, et il s'emparait du jeton de quiconque croisait son chemin.
+
+La renommée de Wang Lin grandit rapidement au sein de cette première épreuve. Dès qu'on l'apercevait, les participants tremblaient et lui remettaient leur jeton. Ses attaques étaient d'une décontraction absolue ; il savait qu'il faisait face à la mémoire de Seven-Colored. Chaque acte déraisonnable devenait logique à mesure que les souvenirs se distordaient.
+
+Par exemple, à l'extérieur du Gouffre de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Seven-Colored. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
+
+« Qui est cet homme ?! En moins d'une journée, il a déjà obtenu plus de 300 jetons !! »
+
+« Ses actions sont décisives, pourtant son niveau de culture ne semble pas bien plus élevé. Chaque attaque est imprégnée d'une énergie nuageuse et semble extraordinaire ! »
+
+« Il est probable que personne ne puisse l'égaler dans cette compétition. Je ne m'attendais pas à un tel prodige en cette génération. »
+
+Parmi les silhouettes dorées, quiconque observait la performance de Wang Lin dans le vortex était frappé de stupeur. Sur la place, les maîtres fixaient Wang Lin avec des yeux écarquillés par l'incrédulité.
+
+Le visage du maître de Su Dao rayonnait d'un sourire fier. Plus les performances de Wang Lin étaient éclatantes, plus sa récompense serait grande.
+
+À l'intérieur du premier essai, Wang Lin sentait distinctement l'apparition de nombreuses distorsions alors qu'il collectait les jetons en dépit de ces génies issus de la mémoire de Su Dao. Ces anomalies résultaient des altérations mémorielles et signalaient que les souvenirs de la troisième âme étaient en train de changer.
+
+« La simulation n'est pas assez puissante... » Wang Lin secoua la tête et son Sens Divin se déploya sur toute la zone. À l'instant où son Sens Divin s'étendit, chaque présence apparut dans son esprit.
+
+Il traquait les génies qui avaient suscité une telle jalousie chez Su Dao autrefois. Ces individus avaient réalisé des prouesses éblouissantes et occupaient des rangs élevés lors des essais suivants.
+
+L'un d'eux se nommait Kun Peng. Ce cultivateur excellait dans la vitesse, laissant des images rémanentes derrière lui. Dans la mémoire de Seven-Colored, il occupait la troisième place lors du premier essai !
+
+Le regard de Wang Lin resta calme tandis qu'il parcourait le vide. D'un seul pas, il franchit une distance immense pour atteindre une nouvelle zone où se trouvait Kun Peng.
+
+Trois personnes entouraient ce dernier, mais dès l'apparition de Wang Lin, elles poussèrent des cris déchirants et battirent en retraite. Kun Peng esquissa un sourire glacial et s'apprêta à les poursuivre lorsqu'il se retourna brusquement. Il fixa Wang Lin, qui flottait à cent pieds derrière lui.
+
+La distorsion n'était visible que par Wang Lin. À mesure qu'il se rapprochait de Kun Peng, l'anomalie devenait plus intense, comme si la troisième âme s'excitait.
+
+« Donne-moi ton jeton, » dit lentement Wang Lin. Il n'avait aucune envie de devoir agir contre un simple cultivateur.
+
+Les pupilles de Kun Peng se rétractèrent et il recula sans hésiter. Malgré sa grande vitesse, il paraissait bien trop lent aux yeux de Wang Lin.
+
+Ce dernier soupira et agita nonchalamment la main droite. Kun Peng poussa un cri de douleur et projeta plus d'une douzaine de jetons de jade dans les airs. Tandis que les jetons volaient, la distorsion s'accentua considérablement.
+
+L'aura des huit portes devint plus dense, mais cela restait insuffisant pour qu'elles se révèlent totalement.
+
+« La simulation n'est toujours pas assez forte... Alors, je vais t'aider à tuer Zhou Li ! » Une lueur de froideur traversa le regard de Wang Lin tandis que son Sens Divin se verrouillait sur Zhou Li. Ce dernier était dans un état pitoyable, dissimulé avec prudence dans une montagne. Il possédait huit jetons.
+
+« Maudit Su Dao. Sans lui, l'Art Céleste du Nuage serait mien et je ne serais pas dans cet état lamentable lors de ce premier essai. Tout cela est de sa faute ! Je vais le tuer ! » Zhou Li était assis là, le visage féroce. Il haïssait Su Dao plus que tout.
+
+« Il est entré dans la secte bien après moi. Quelles sont ses qualifications pour apprendre l'Art Céleste du Nuage ? Pourquoi le Maître lui accorde-t-il tant d'importance ?! » Le cœur de Zhou Li bouillonnait de ressentiment. Il serra les dents, tentant de se soigner, quand la montagne où il se trouvait se mit à trembler.
+
+Après un instant de stupeur, la montagne gronda. Son expression changea radicalement et il s'élança hors de l'abri. À peine fut-il sorti que la montagne s'effondra, projetant des rochers vers lui. Il tenta d'esquiver, mais l'un d'eux le percuta. Il cracha du sang en reculant à mille pieds de l'amas de décombres.
+
+Au même instant, la silhouette de Wang Lin apparut derrière lui.
+
+Wang Lin dit calmement : « Zhou Li. »
+
+Ces deux mots furent comme un coup de tonnerre dans l'esprit de Zhou Li. Alors qu'il s'apprêtait à fuir, la main droite de Wang Lin s'abattit sur son front. À cet instant, le fracas dans la tête de Zhou Li devint éternel.
+
+Dès que Zhou Li mourut, Wang Lin sentit clairement la distorsion autour de lui devenir plus folle et gronder faiblement. C'était comme si le monde créé par la cinquième fleur était au bord de l'effondrement.
+
+L'aura des huit portes se manifesta soudainement. Wang Lin perçut immédiatement l'emplacement de trois des portes !
+
+Ses yeux brillèrent d'une lueur mystérieuse. Sans hésiter, il s'élança et projeta son Sens Divin pour traquer le reste des disciples de la Secte Dong Lin. Ils furent saisis par la terreur tandis que Wang Lin leur arrachait leurs jetons de jade.
+
+Plus il collectait de jetons, plus la distorsion s'intensifiait et plus la troisième âme tremblait. Chaque action de Wang Lin contredisait les souvenirs de la troisième âme. Ce contraste puissant était sur le point de déchirer la mémoire, et Wang Lin percevait les auras des huit portes avec une clarté croissante.
+
+« La compétition de la Secte Dong Lin n'aura ni deuxième ni troisième essai. Si je prends tous les jetons de jade dès la première épreuve, il n'y aura plus d'autres étapes car je serai le seul vainqueur. Cela subvertira totalement les souvenirs de la troisième âme ! » Les yeux de Wang Lin étincelèrent tandis qu'il se déplaçait avec rapidité. Tous les disciples de la Secte Dong Lin perdirent leurs jetons face à lui sur son passage.
+
+Quiconque osait résister était immédiatement balayé par Wang Lin. Toutefois, il n'avait aucune rancune contre eux. Bien qu'ils soient des émanations de la mémoire de Seven-Colored, il ne les tuait pas sans nécessité.
+
+Seuls ceux dont Seven-Colored était jalouse, ou avec qui elle avait eu des affrontements ultérieurs, furent exécutés par Wang Lin. Chaque mort augmentait considérablement la distorsion environnante.
+
+C'était comme si la troisième âme s'excitait dans ce chaos !
+
+Un vent violent balaya les lieux. Sur la place de la Secte Dong Lin, à l'extérieur, tous les spectateurs se levèrent. Leur environnement se déformait et certaines silhouettes semblaient même s'effondrer. Pourtant, ils n'en étaient nullement conscients, car leurs regards restaient rivés sur le vortex qui avait cessé de tourner dans le ciel.
+
+Ils virent les actions de Wang Lin et comprirent comment il avait accaparé presque tous les jetons de jade à lui seul. Ils assistaient à un moment historique sans précédent pour la Secte Dong Lin !
+
+Leurs expressions de choc et leurs pensées n'étaient que des constructions imaginaires de Seven-Colored. À cet instant, une vague monumentale déferla sur la Secte Dong Lin !
+
+Lors de la première épreuve, quand Wang Lin obtint le dernier jeton de jade, la distorsion fut saisissante. Les auras des huit portes étaient très nettes, mais il semblait qu'un voile de brume s'interposait encore !
+
+Wang Lin se fondit dans l'obscurité du ciel et ses mains semblèrent déchirer la voûte céleste. Il agrippa le firmament et ouvrit une faille gigantesque.
+
+De l'autre côté de cette brèche se trouvait la place principale de la Secte Dong Lin !
+
+Wang Lin sortit sur la place sous les yeux ébahis de la foule, flottant haut dans le ciel au-dessus de la secte !
+
+« Je, Su Dao, suis le premier de cette compétition ! » À peine eut-il prononcé ces mots que le ciel et la terre s'effondrèrent. Toutes les silhouettes disparurent et tout ce qui composait ce monde vola en éclats.
+
+La cinquième fleur trembla et se désintégra morceau par morceau !
+
+Simultanément, les auras des huit portes apparurent pleinement alors que les souvenirs de la troisième âme étaient subvertis. Leurs énergies jaillirent vers le ciel tels des piliers de fumée.
+
+La seule chose qui ne s'effondra pas fut la montagne arrière de la Secte Dong Lin : le Bassin de Dong Lin !

@@ -1,0 +1,125 @@
+---
+n: 1273
+title: "Arrivée !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1273 - Arrival!"
+slug: arrivee
+---
+Chapitre 1273 - Arrivée !
+
+Une silhouette solitaire se mouvait parmi les étoiles, vêtue de blanc et coiffée d'une longue chevelure bleue qui dégageait une beauté sublime. Li Qianmei volait en avant, partagée entre la confusion et la détermination.
+
+Des traces de larmes marquaient encore son visage alors qu'elle mordillait sa lèvre inférieure, accélérant sans cesse sa course.
+
+« Il y a des choses dans ce monde qui n'ont aucune logique, et l'on ne peut que se fier à ses sentiments. Peu importe que cela en vaille la peine ou non, il fallait le faire... » Elle poussa un soupir, endurant la tristesse et l'amertume qui lui serraient le cœur, puis vola plus vite encore.
+
+Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de culture était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
+
+À l'intérieur du palais, Mu Bingmei restait assise, le regard perdu dans le vide. Son beau visage affichait une expression d'indifférence.
+
+« Pourquoi me retiens-tu ici ? »
+
+Assise à l'extérieur du palais, Wang Shanshan fronça les sourcils et dit : « Grande Sœur Mu, il est difficile de désobéir aux ordres du Maître. Petite Sœur est également très perplexe. Peut-être que le Maître a donné cet ordre pour que tu puisses te rétablir au plus vite... »
+
+Mu Bingmei réfléchissait en silence. Elle ne comprenait pas pourquoi le Grand Ancien de la Secte Divine agissait ainsi, et cela lui inspirait un sentiment étrange. Un picotement inconnu lui serrait le cœur ; c'était comme si un événement majeur allait se produire, et qu'il allait frapper quelqu'un qu'elle connaissait.
+
+À cet instant, Mu Bingmei ignorait que la compétition des sectes de rang 8 avait été annulée ou que Li Qianmei avait quitté la Secte Briseuse de Ciel.
+
+Elle ne savait pas que Wang Lin affrontait sa plus grande crise à ce jour, et que son destin était suspendu à un fil !
+
+Si elle l'avait su, comment aurait-elle choisi...
+
+Le temps s'écoulait lentement, et Wang Lin était toujours assis sur le continent sauvage. Son âme originelle s'était transformée en feu sous les deux fragments de l'épée brisée, forçant l'extraction des taches de sang qui les maculaient.
+
+Une heure, deux heures, trois heures... jusqu'à ce que dix heures ne se soient écoulées.
+
+Après avoir consommé tous les cristaux d'origine, il avait finalement réussi à extraire 30 % du sang de l'épée de fer. Ce sang sombre se mua en une pilule de la taille d'un haricot qui dégageait une aura étrange et flottait autour de Wang Lin.
+
+Extraire 30 % du sang de l'épée de fer représentait la limite de Wang Lin. Même avec plus de temps, il n'aurait pu en extraire davantage. Sans le danger qui l'avait poussé dans ses derniers retranchements, il n'aurait jamais été capable d'en arracher autant.
+
+Il rangea ensuite l'épée de fer et la femme vêtue d'argent. Il se rassit pour ajuster son corps. Son rythme cardiaque ralentit jusqu'à ce qu'il ne batte plus qu'une fois toutes les quelques respirations.
+
+Un silence de mort régnait.
+
+Les deux dernières heures passèrent lentement. Au dernier moment, Wang Lin ouvrit les yeux et regarda calmement le ciel.
+
+À cet instant précis, le brouillard stellaire commença à bouillonner et une pression inimaginable émergea lentement de la brume.
+
+« Il est arrivé ! » Les pupilles de Wang Lin se rétractèrent soudainement, mais reprirent rapidement leur forme normale alors qu'il fixait froidement le ciel.
+
+Cette pression était capable de faire trembler les cieux. Dès son apparition, la terre trembla et menaça de s'effondrer. À cet instant même, tout le brouillard enveloppant la région de rang 5 fut soudainement repoussé !
+
+La brume se déplaça comme une vague, et les rugissements provenant du brouillard devinrent plus intenses encore, comme si toutes les bêtes féroces à l'intérieur étaient terrifiées.
+
+Simultanément, un vortex géant de brouillard apparut soudainement à la limite du champ de vision de Wang Lin. Un grondement de tonnerre résonna lorsqu'un bras gigantesque émergea du vortex et fondit sur lui.
+
+Ce bras était très vieux et ridé ; c'était la main d'un Ancien. En s'étendant vers Wang Lin, il donnait l'impression que le monde entier allait s'effondrer sous sa masse !
+
+L'énergie originelle du monde semblait avoir été scellée par une force mystérieuse ; il n'en restait plus aucune dans cette région.
+
+La vitesse de cette main géante était indescriptible. À l'instant où Wang Lin la vit sortir du vortex, elle surplombait déjà sa tête, s'abattant sur lui comme pour écraser une fourmi !
+
+Il n'y avait ni mots, ni questions, ni chance de survie alors que la main descendait !
+
+Wang Lin avait déjà rencontré cela dans le Royaume aux Sept Couleurs. Il semblait que chaque cultivateur du troisième pas aimait utiliser ce genre de sorts pour broyer ceux qu'ils considéraient comme des fourmis !
+
+Il semblait qu'en dehors des autres cultivateurs du troisième pas, personne ne pouvait faire apparaître ces êtres sous leur forme réelle, et encore moins une fourmi comme Wang Lin !
+
+Cependant, une fourmi peut toujours mordre, lutter et résister. Sans parler du fait que Wang Lin ne s'était jamais considéré comme une fourmi ! Et même si c'était le cas, il aurait voulu dévorer le monde, animé d'une volonté de défi !
+
+Au moment où la main descendit, les yeux de Wang Lin brillèrent d'un regard frénétique et il poussa un grognement froid. Il bondit vers la main tel un météore.
+
+« Même les cultivateurs du troisième pas ne me feront pas céder ! » L'intention de combat dans le cœur de Wang Lin s'enflamma et l'étoile de la loi entre ses sourcils tourna avec frénésie. Au moment où il chargea, il se rapprocha de la main et, alors qu'elle s'abattait sur lui, il poussa un rugissement qui fit trembler le ciel !
+
+« Dix millions d'ombres d'épées ! » L'index droit de Wang Lin pointa vers la main qui se refermait sur lui. L'énergie de l'épée dissimulée à l'intérieur explosa soudainement. Un, deux, dix, cent, mille, dix mille, cent mille... 5 millions, 8 millions... 9 999 999 !
+
+Il ne manquait qu'une seule ombre pour atteindre les dix millions.
+
+À cet instant, l'index droit de Wang Lin devint la ultime ombre d'épée, et le nombre atteignit dix millions : un niveau de complétion parfaite.
+
+Dès que cette complétude fut atteinte, les ombres de deux cerfs apparurent et encerclèrent l'index de Wang Lin lors de la collision avec la main !
+
+C'était le choc entre une paume et un doigt. Dix millions d'ombres d'épées condensées en un seul point. Cela possédait le pouvoir de tuer n'importe quel cultivateur Briseur de Nirvana, et même les cultivateurs de la Faille Céleste en seraient choqués !
+
+C'était la première attaque de Wang Lin contre celui qui voulait sa mort !
+
+Un fracas tonitruant résonna à travers le monde. Cette onde de choc se propagea dans toute la région de rang 5, faisant cracher du sang à tous les cultivateurs présents. Leurs visages étaient pâles, empreints d'une horreur indicible.
+
+Tout sembla ralentir. L'index de Wang Lin percuta la main et les dix millions d'ombres cachées à l'intérieur éclatèrent !
+
+Les ombres d'épées s'engouffrèrent dans la main géante avec une fureur folle. Ces dix millions d'ombres transportaient la folie, le refus et l'esprit de Wang Lin, ce cultivateur défiant les cieux, de manière extrême.
+
+Les deux ombres de cerfs jaillirent avec les dix millions d'ombres et se transformèrent en un gaz noir et blanc qui pénétra la paume. Des bruits de craquements résonnèrent de l'intérieur de la main, semblant supplanter tous les autres sons du monde. C'était comme si les cieux eux-mêmes s'étaient figés.
+
+La seule chose qui subsistait dans ce monde était la scène de l'impact entre le doigt de Wang Lin et cette paume !
+
+La paume géante et désolée marqua un arrêt soudain, tandis qu'un incessant craquement résonnait. Si l'on regardait de près, on aurait dit que dix millions de serpents argentés s'agitaient sous sa peau, rendant les bruits de craquements encore plus intenses.
+
+Un grondement assourdissant retentit, comme si le monde allait s'effondrer. La peau de la main éclata, mais, étrangement, aucun sang ne coula et aucune trace d'énergie originelle n'en sortit !
+
+La main se redressa après cette pause, et une exclamation étouffée parvint du brouillard infini derrière elle.
+
+Une voix ancienne émergea de la brume alors qu'une pression colossale descendait soudainement du ciel : « Tu as du talent ! Cependant, comment une luciole peut-elle se comparer à la lune ? Comment oses-tu t'élever devant moi ? Redescends ! »
+
+Cette pression était d'une puissance extrême. Si un cultivateur Briseur de Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
+
+Il n'avait absolument aucun moyen de résister !
+
+Cependant, Wang Lin possédait le corps d'un dieu ancien. Après avoir essuyé le sang au coin de sa bouche, il rugit : « Dix millions d'ombres d'épées, effondrez-vous ! Effondrez-vous ! Effondrez-vous !!!! »
+
+La voix de Wang Lin était empreinte d'une intention meurtrière déchaînée. Il avait été un cultivateur défiant les cieux toute sa vie ; il défiait le monde et ne céderait jamais !
+
+Dès que sa voix résonna, les dix millions d'ombres qui avaient pénétré la main tremblèrent soudainement avant d'exploser. L'explosion de ces dix millions d'ombres était indescriptible, et un grondement capable de faire s'effondrer la région de rang 5 retentit. En un éclair, une aura défiant les cieux se propagea depuis la main !
+
+C'était comme si dix millions de cultivateurs s'étaient transformés en épées volantes pour pénétrer dans la main et lancer une attaque autodestructrice et frénétique. Le rugissement semblait issu d'une époque antique, ébranlant le monde !
+
+Ce sort était suffisant pour tuer n'importe quel Briseur de Nirvana, et même les cultivateurs de la Faille Céleste en seraient sortis dans un état lamentable. Pourtant, à cet instant, la main géante trembla soudainement et une force étrange apparut. L'effondrement des dix millions d'ombres se dissipa brusquement. La main resta indemne !
+
+Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
+
+Les sorts de Wang Lin avaient pu détruire quatre doigts du Daoïste Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire !
+
+Lors de son premier échange avec le Daoïste Eau, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
+
+Cependant, le Daoïste Eau avait été blessé ! Même si ce n'était qu'une légère plaie, il était tout de même touché !

@@ -1,0 +1,115 @@
+---
+n: 1813
+title: "Trop Vicieux !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1813 - Too Vicious!"
+slug: trop-vicieux
+---
+Chapitre 1813 - Trop Vicieux !
+
+L'effondrement du dragon de feu terrestre se transforma en une gigantesque boule de feu qui enveloppa Wang Lin. À l'extérieur de cette sphère incandescente, les seize dragons de feu rugissaient et fusionnaient avec elle.
+
+On pouvait vaguement distinguer l'ombre d'un Oiseau Vermillon à l'intérieur de la boule de feu !
+
+De loin, cet amas de flammes ressemblait à un œuf, au sein duquel un changement stupéfiant se produisait !
+
+Alors que la voix de Wang Lin résonnait, le flanc de la boule de feu faisant face à Du Qing se déforma pour laisser apparaître un visage.
+
+C'était un visage glacial : celui de Wang Lin !
+
+Il fixa froidement Du Qing, et son visage s'anima d'une voix lente.
+
+« Seulement trois essences... Essence du tonnerre, apparais ! » À peine Wang Lin eut-il prononcé ces mots que des grondements tonitruants retentirent et que la foudre descendit des cieux.
+
+Dès l'apparition du tonnerre, le monde changea de couleur, comme si d'innombrables éclairs avaient jailli dans le firmament. Tandis que le tonnerre convergeait de toutes parts, l'illusion d'un gigantesque char de guerre apparut.
+
+Le char semblait de bronze, mais il était façonné par la foudre elle-même. Six éclairs étaient reliés au véhicule, comme s'ils le tiraient.
+
+Une silhouette floue se tenait debout sur ce char de tonnerre. La figure portait une cape bleue, mais il était impossible de la distinguer clairement !
+
+« Ceci... C’est le char de guerre de l'essence du tonnerre ! Seul un possesseur d'une essence du tonnerre extrêmement puissante peut provoquer un tel bouleversement ! Cet homme... non seulement il possède l'essence du feu, mais il détient aussi l'essence du tonnerre ! » Du Qing n'était pas surpris que Wang Lin possède deux essences, mais il fut stupéfait que son essence du tonnerre puisse engendrer une telle manifestation !
+
+« Essence de la vie et de la mort, apparais ! » Le visage de Wang Lin sur la boule de feu reprit sa parole.
+
+Aussitôt, un gaz blanc s'éleva du ciel tandis qu'un gaz noir jaillissait de la terre. Ces deux émanations formèrent un vortex devant Wang Lin.
+
+Les auras de la vie et de la mort émanaient du tourbillon. Wang Lin avait déjà constaté que les essences éthérées n'étaient nullement affectées par le Continent Astral Immortel. Les auras de la mort et de la vie, deux forces qui ne devraient jamais coexister, fusionnaient en parfaite harmonie.
+
+« Essence éthérée ! Cet homme... cet homme est comme moi : deux essences corporelles et une éthérée ! » L'expression de Du Qing devint livide. Cela dépassait déjà ses espérances ; il pensait que Wang Lin ne possédait qu'une seule essence corporelle et une seule éthérée.
+
+« Ainsi, si tu es si arrogant, c'est grâce à ces trois essences ! Même si ce n'en sont que trois... » rugit Du Qing, mais avant qu'il ne puisse achever sa phrase, Wang Lin l'interrompit.
+
+« Trois... Essences du karma et du vrai et du faux, manifestez-vous ! » Les paroles de Wang Lin firent chanceler Du Qing. Son cœur rata un battement et ses yeux se remplirent d'incrédulité lorsqu'il vit deux vortex apparaître devant Wang Lin !
+
+L'un des vortex oscillait sans cesse entre le réel et l'illusoire. En le regardant, Du Qing eut l'impression que son esprit était aspiré dans une hallucination, ce qui le fit haleter.
+
+« Ceci... ceci est... »
+
+L'autre essence contenait le karma. Le Karma était un Grand Dao, d'une complexité extrême. L'intérieur du vortex était chaotique et, à l'instar de la loi karmique, il était impossible de percer ses mystères !
+
+« Trois éthérées... trois... Cet homme a réellement eu la chance d'obtenir trois essences éthérées ! » Les yeux de Du Qing étaient pétris de choc et il recula inconsciemment de quelques pas. Même les essences du feu et de la terre qu'il tenait entre ses mains devinrent ternes.
+
+« Trois éthérées et deux corporelles... Quel genre de talent faut-il pour posséder cinq essences ? C’est... c'est du jamais vu, même au sein du Grand Secte des Âmes ! » Du Qing se remémora ses propres paroles : trois essences n'étaient rien face à un tel être.
+
+« Et alors, qu'importe si tu as cinq essences ? Posséder de nombreuses essences ne signifie pas pour autant que tu es puissant... » Bien que de nouveau sous le choc, Du Qing serra les dents et rugit.
+
+« Cinq ? Essence du massacre, apparais ! » Une fissure apparut entre les sourcils du visage de Wang Lin sur la boule de feu. Une froideur empreinte de carnage envahit le monde. Cette aura de massacre était d'une densité extrême, et une neige rouge tomba du ciel, recouvrant la terre d'un manteau écarlate !
+
+Face à cette aura meurtrière, Du Qing recula encore de plusieurs pas. Il ne regardait plus Wang Lin avec simple crainte, mais avec une pure terreur !
+
+« Massacre... L'essence du massacre !! C'est l'essence du massacre !! Tu possèdes réellement l'essence du massacre !! » Du Qing manqua de hurler. Sur le Continent Astral Immortel, l'essence du massacre était encore plus rare que son essence du poids. Même avec une seule essence, celle du massacre suffisait pour s'ériger en souverain !
+
+La formation de l'essence du massacre signifiait que les mains de celui qui la possédait étaient trempées dans le sang. Il fallait avoir mis fin à d'innombrables vies pour qu'elle puisse émerger. Du moins, c'était ce que croyait Du Qing.
+
+« Damnation, il possède vraiment l'essence du massacre. Il... combien de personnes a-t-il tuées ? C’est un homme extrêmement vicieux ! »
+
+« Essence de la restriction, apparais ! » Les paroles de Wang Lin frappèrent Du Qing comme un coup de poing massif, le faisant reculer de plus de cent pieds. Il vit des lignes de sang apparaître dans les yeux de Wang Lin ; elles s'en échappèrent pour former une restriction.
+
+L'aura de l'essence de la restriction explosa.
+
+« Sept !! Ce n'était pas six, mais sept ! Il... il... » Du Qing recula une fois de plus en contemplant les sept essences flottant entre lui et Wang Lin. Son cuir chevelu devint engourdi et des grondements tonitruants résonnèrent dans son esprit.
+
+Le choc que Wang Lin lui avait infligé était déjà immense, mais celui-ci était encore plus violent. L'idée de faire volte-face pour s'enfuir ne cessait de traverser son esprit.
+
+« Posséder sept essences, maîtriser des sorts de sectes puissantes, être capable d'absorber la veine du feu terrestre par la force, provoquer le changement du tonnerre... Un tel homme ne peut pas être provoqué ! »
+
+Ce n'était pas que sa propre culture était insuffisante, mais il ignorait combien de choses terrifiantes Wang Lin pourrait encore déchaîner. Combien d'atouts l'homme n'avait-il pas encore révélés ?
+
+Lorsqu'il avait attaqué deux fois auparavant, il n'avait même pas réussi à blesser Wang Lin. De là, il en déduisait que même si le niveau de culture de Wang Lin n'était pas son égal, il devait être très proche du sien !
+
+Dans une telle conjoncture, entre la nature mystérieuse de Wang Lin et la prudence de Du Qing, comment pourrait-il mener bataille ?
+
+« Et alors, qu'importe si tu as sept essences ! Oses-tu venir te mesurer à moi ?! » Du Qing serra les dents. Bien qu'il brûlasse de fuir, il devait lancer ces dernières paroles, faute de quoi cette poursuite serait trop humiliante.
+
+« Veux-tu vraiment te battre ? » demanda le visage de Wang Lin depuis l'intérieur de la boule de feu, ses yeux s'illuminant d'un éclat étrange. Tandis qu'il parlait, une pression terrifiante jaillit de la sphère de feu.
+
+Cette pression était si saisissante que, dès sa propagation, la terreur dans les yeux de Du Qing décupla. Il recula prestement sans l'ombre d'une hésitation, le visage marqué par l'horreur. Il fixa le visage de Wang Lin sur la boule de feu, tandis qu'une lumière dorée se propageait depuis les traits déformés du visage.
+
+La lumière dorée s'étendit loin et large, telle un soleil. Une empreinte dorée de la taille d'une tête s'éleva lentement de la boule de feu.
+
+Une fois apparue, la lueur brilla intensément, enveloppant toute la zone. Cette lumière dégageait l'aura d'une lignée céleste extrêmement pure, mais une autre force résidait en son sein. Lorsque Du Qing ressentit cette aura, il eut un nouveau haut-le-cœur !
+
+Cette aura provenant de l'empreinte dorée, bien que ténue, semblait capable de fendre le monde en deux !
+
+Elle était de nature à rendre fou quiconque la percevrait et la comprendrait !
+
+« Grand... Grand Empereur... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empereur.
+
+La puissance intrinsèque de ce trésor était secondaire ; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui ! Oubliez Du Qing, même la Grande Secte des Âmes et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée !
+
+Car à moins qu'un Grand Empereur n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel !
+
+Les Grands Empereurs offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne !
+
+Avec son niveau de culture, Du Qing était incapable de déterminer quel Grand Empereur l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empereur.
+
+Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empereur !
+
+Du Qing cracha une bouffée de sang. Tout en reculant, il lança un regard accusateur à Wang Lin et rugit :
+
+« Damnation, si tu possèdes un tel trésor, pourquoi ne l'as-tu pas utilisé plus tôt !! Si tu l'avais sorti dès le début, seuls des fantômes auraient tenté de te traquer. Même si tu avais massacré toute la Secte du Dragon Bleu, j'aurais fait comme si je n'avais rien vu ! »
+
+« Tu... Tu es trop vicieux ! Simplement trop vicieux !! Il n'existe personne comme toi ! »
+
+La réaction de Du Qing surprit jusqu'à Wang Lin. Il ne s'attendait pas à ce que cette empreinte dorée ait un effet aussi puissant, capable de faire cracher du sang à Du Qing et de le pousser à rugir de telles paroles, au mépris total de son rang.

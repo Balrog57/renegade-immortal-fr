@@ -1,0 +1,93 @@
+---
+n: 1849
+title: "La Pilule Céleste de la Mer des Pilules !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1849 - Pill Sea’s Celestial Pill!"
+slug: la-pilule-celeste-de-la-mer-des-pilules
+---
+Chapitre 1849 - La Pilule Céleste de la Mer des Pilules !
+
+La boussole entre les mains de la femme commença à se brouiller alors qu'elle continuait d'y apposer des sceaux. Elle était sur le point d'inverser le temps pour révéler la scène où Wang Lin se transformait en fumée afin de prendre possession de l'un des cultivateurs aux robes vertes.
+
+À cet instant, le groupe de cultivateurs dans lequel se trouvait Wang Lin se situait encore à 10 000 pieds de la femme. Le cultivateur contrôlé par Wang Lin fit un pas en avant et dépassa plusieurs autres membres du groupe. Tandis qu'ils le regardaient avec stupeur, il arriva derrière le cultivateur qui menait la marche.
+
+Ce dernier était un homme d'âge moyen au troisième niveau, proche du Nirvana Void. Il sembla percevoir quelque chose et se retourna. Les yeux du cultivateur que Wang Lin contrôlait s'illuminèrent d'une lueur étrange, et une volute de fumée s'échappa de son front pour pénétrer dans les yeux de l'homme d'âge moyen.
+
+Tout cela se produisit avec une rapidité fulgurante. Au moment où cela arriva, le corps de l'homme d'âge moyen trembla, manifestant un bref signe de lutte. Cependant, cette résistance s'estompa rapidement pour laisser place à un calme plat.
+
+La femme qui fixait la boussole fut également prise de tremblements. L'instrument entre ses mains se mit à vibrer violemment. Juste au moment où il allait révéler ce qui venait de se passer, l'homme d'âge moyen que Wang Lin avait usurpé chargea vers la femme, située à 10 000 pieds de là.
+
+« J'ai trouvé une goutte de liquide noir et j'ignore sa nature ! » lança l'homme d'une voix rauque avant de s'élancer sur plus de 1 000 pieds. Lorsque les cultivateurs assis présents ouvrirent les yeux, l'homme sortit la goutte de liquide noir et la projeta en avant.
+
+Dès que la goutte apparut, une puissante vague d'essence aquatique se manifesta. En entendant la voix de l'homme, la femme leva les yeux et vit le liquide noir. Ses pupilles se rétractèrent soudainement.
+
+« Le Liquide de Corruption des Dix Mille Raffinements ! » Les yeux de la femme étaient empreints de choc.
+
+Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola encore plusieurs milliers de pieds. Il n'était plus qu'à quelques milliers de pieds de sa cible. Cependant, alors qu'il entrait dans un rayon de 1 000 pieds, les trois drapeaux provoquèrent des ondulations et émit un sifflement strident. Simultanément, la boussole dans la main de la femme montra clairement la scène où Wang Lin se transformait en brume pour s'infiltrer dans l'oreille de l'homme d'âge moyen !
+
+« Arrêtez ! » Le cœur de la femme trembla et elle poussa un cri. Elle s'apprêtait à battre en retraite, tandis que le jeune homme au visage de jade blanc était également saisi par la terreur.
+
+« Essence, disperse-toi ! » Au moment où la femme cria, l'homme contrôlé par Wang Lin laissa échapper un rugissement. Son corps s'effondra et une volute de fumée en sortit pour se transformer en Wang Lin.
+
+Dès que Wang Lin apparut, le liquide noir qu'il avait projeté explosa. Cette substance semblable à de l'encre se répandit avec une rapidité effrayante, et tout ce qui se trouvait dans un rayon de 10 000 pieds devint noir !
+
+Les centaines de cultivateurs venaient à peine de réaliser ce qui arrivait lorsqu'ils poussèrent des cris déchirants. Leurs corps se décomposèrent instantanément pour se transformer en liquide noir. Même les plus d'une douzaine de cultivateurs aux robes vertes derrière Wang Lin ne purent s'échapper à temps et périrent tous.
+
+Au même moment, un rugissement retentit derrière Wang Lin. La marionnette Yi Si, bien qu'ayant perdu son bras droit, chargea vers les trois drapeaux. Dans un fracas assourdissant, Yi Si brisa l'un des drapeaux avant de foncer sur les deux restants !
+
+Tout cela se produisit à l'instant même où la femme criait « arrête ».
+
+Wang Lin fit un pas en avant et franchit 1 000 pieds en un instant, tandis que la femme et le jeune homme reculaient. Le jeune homme reconnut Wang Lin et fut terrifié. La femme pressa sa main gauche contre la boussole, sur le point de signaler l'incident aux autres !
+
+Soudain, Wang Lin leva sa main droite et les pointa du doigt !
+
+« Arrêtez ! »
+
+D'un seul mot, d'innombrables filaments remplirent le monde et enveloppèrent la femme et le jeune homme. Leurs corps tremblèrent, totalement immobilisés par Wang Lin. La peur se figea sur le visage du jeune homme, tandis que la main gauche de la femme, à moins d'un pouce de la boussole, resta pétrifiée en plein air !
+
+Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Nul n'était digne de pitié dans son cœur lorsqu'il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle. Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
+
+C'est à ce moment qu'un grondement de tonnerre résonna : les deuxième et troisième drapeaux venaient d'être brisés par le bras gauche de Yi Si !
+
+Tout l'encre noire située dans un rayon de 10 000 pieds se rétracta frénétiquement pour redevenir une simple goutte devant Wang Lin, qu'il avala aussitôt.
+
+Le carnage prit fin ; des centaines de cultivateurs étaient morts. La femme et le jeune homme nommé Zhao avaient également péri. Même les trois grands drapeaux étaient détruits ! Le visage de Wang Lin était légèrement pâle. Désirant clore l'affaire rapidement, il rangea Yi Si et disparut dans la mer.
+
+Sous la surface, Wang Lin chargea prestement. Tenant la boussole, il y projeta son sens divin. Ses yeux étaient injectés de sang alors que son essence de restriction s'y engouffrait. Il balaya l'empreinte du sens divin sur la boussole pour en prendre le contrôle total. Si n'importe qui d'autre avait tenté cela, il aurait échoué, mais Wang Lin possédait l'essence de restriction nécessaire pour y parvenir.
+
+La boussole en main, il prit le contrôle des restrictions surplombant la Mer des Pilules. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer des Pilules ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant ! Les autres points se trouvaient au-dessus de la surface ; il était évident qu'il était peu pratique de rester sous l'eau pendant que Void Cloud effectuait sa culture.
+
+Fixant ce point vert éclatant, une intention meurtrière traversa le regard de Wang Lin.
+
+« Void Cloud, tu es le prochain ! » Wang Lin fusionna avec la formation de restriction et disparut. Lorsqu'il réapparut, il se trouvait au centre de la Mer des Pilules.
+
+Dès son apparition, il remarqua que la mer autour de lui tournait et que des grondements tonitruants retentissaient. Il avait l'impression d'être aspiré par le courant. En observant la boussole, il réalisa qu'il n'était pas loin de Void Cloud. Cependant, Wang Lin observa la mer en plein tourbillonnement.
+
+« Peut-être n'ai-je pas besoin d'abandonner les 30 millions d'âmes dao... » songea Wang Lin, cessant toute progression. Au lieu de cela, il sombra vers les abysses pour s'y dissimuler.
+
+Des vagues monstrueuses déferlèrent sur la Mer des Pilules tandis que les grondements persistaient. Huit vortex tourbillonnaient le long des bordures, tandis qu'un neuvième se trouvait au centre même de la mer. Ce dernier tournait de plus en plus vite. Rapidement, les huit vortex convergèrent pour entraîner toute la masse marine vers le centre, autour du neuvième vortex.
+
+Au cœur de ce neuvième tourbillon siégeait Void Cloud. Le visage pâle, ses mains ne cessaient de tracer des sceaux.
+
+« La légende raconte que la Mer des Pilules s'est formée à la chute d'une Pilule Céleste. Pourtant, la vérité est qu'il ne s'agissait pas d'une Pilule Céleste complète, mais seulement d'une moitié ! » Les yeux de Void Cloud brillèrent et sa main droite s'élança vers le vide.
+
+« Mer des Pilules, condense-toi ! » Dans un fracas violent, les vortex accélérèrent leur rotation. À mesure qu'ils se concentraient, la mer diminuait de volume et des filaments d'énergie céleste se diffusèrent dans l'air.
+
+La Mer des Pilules ressemblait à un bassin dont le centre était un gigantesque tourbillon aspirant l'eau. Dans le ciel, des dizaines de milliers de cultivateurs du Continent du Démon Vert observaient la scène. Ils attendaient que Void Cloud condense cette demi-Pilule Céleste pour briser la barrière entourant le Continent du Taureau Céleste !
+
+Wang Lin se cachait également au sein du vortex, attendant que la Pilule Céleste soit formée pour lancer son assaut !
+
+Le temps s'écoulait lentement. Void Cloud était incapable d'observer ses environs ; toute l'attention des milliers de cultivateurs célestes était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent du Taureau Céleste subsistent dans la Mer des Pilules après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface !
+
+À cet instant, personne ne remarqua que les trois grands drapeaux avaient été brisés ni que la boussole avait changé de maître. Tous les regards étaient captivés par Void Cloud. Après tout, rien n'était plus crucial que d'observer l'un des quatre génies, Void Cloud, raffiner la Mer des Pilules en une Pilule Céleste.
+
+Même Void Cloud ne s'attendait pas au retour de Wang Lin après son départ !
+
+Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à moins de 1 000 000 de pieds ! L'eau de la gigantesque Mer des Pilules fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent du Démon Vert.
+
+Un sourire apparut sur les lèvres de Void Cloud. Il prit une profonde inspiration et poussa un rugissement vers le ciel alors que sa culture explosait. Son niveau était si singulier qu'il restait impossible d'en percevoir l'exactitude ; on ne pouvait que ressentir une puissante déferlante d'énergie d'épée. Une intention d'épée enveloppa toute la zone.
+
+« Mon Maître m'a permis de venir ici pour former la Pilule Céleste à partir de la Mer des Pilules, afin de porter ma réputation au-delà des trois autres. Ensuite, en tant que premier génie du Continent de l'Est, je me rendrai à la Capitale Impériale du Continent Central pour obtenir le droit d'entrer dans le temple ancestral ! » Les yeux de Void Cloud pétillèrent. L'eau de mer commença à se condenser à nouveau, passant de 1 000 000 de pieds à 500 000, puis à 300 000 pieds !
+
+Vu du ciel, seule une zone de 300 000 pieds était encore couverte d'eau. Les algues et les coraux apparurent alors que les innombrables créatures marines explosaient sous la pression !

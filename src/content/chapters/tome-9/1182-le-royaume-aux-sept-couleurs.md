@@ -1,0 +1,91 @@
+---
+n: 1182
+title: Le Royaume aux Sept Couleurs
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1182 - Seven-Colored Realm
+slug: le-royaume-aux-sept-couleurs
+---
+L'affaire du Maître Cloud Soul fut mise de côté et ne fut plus mentionnée. Le vieil homme nommé Pang bouillonnait intérieurement ; il restait sur ses gardes, car il venait d'offenser Wang Lin. En repensant au regard glacial de ce dernier, il ne put s'empêcher de frissonner.
+
+Le Maître Ashen Pine déclara d'un ton grave : « Ne déployez pas votre sens divin trop loin, sinon vous attirerez les bêtes féroces des environs. Bien que nous ne soyons que dans la région extérieure, on y trouve des bêtes de brume de rang 12. De plus, ne volez pas à plus de mille pieds de hauteur ! »
+
+Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléchit. Cette lueur était très étrange et lui procurait une sensation singulière ; elle semblait contenir une modification incompréhensible des lois de l'univers.
+
+« Qu'est-ce que cet endroit, par tous les diables ? » demanda Chen Tianjun, du Secte des Bêtes de Bataille.
+
+Le Maître Ashen Pine leva la tête et répondit lentement : « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région centrale. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux ; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
+
+Tous suivirent de près le Maître Ashen Pine, progressant avec prudence. Ce dernier restait d'une grande gravité tout au long du trajet, suivant un itinéraire précis depuis l'autel vers la plaine. Ils finirent par pénétrer dans une zone montagneuse noyée dans la brume.
+
+Les yeux de Wang Lin s'illuminèrent alors qu'il inspectait les environs. Il n'y avait aucun arbre ici, seulement des montagnes dénudées. Les différentes strates de brume coexistaient en groupes distincts sans jamais se mélanger.
+
+À cet instant précis, Chen Tianjun s'arrêta soudainement et fixa une montagne non loin de là. Une grotte de pierre était vaguement perceptible à mi-pente. Elle n'était manifestement pas naturelle ; on pouvait deviner au premier coup d'œil qu'elle avait été aménagée pour servir de grotte de culture.
+
+« Il y a bien une grotte là-bas, mais elle est gardée par des bêtes de rang 12. La dernière fois que je suis venu, j'ai attiré ces bêtes loin du site pour m'y faufiler. J'en avais tiré quelques précieux artefacts », murmura le Maître Ashen Pine en jetant un regard à Chen Tianjun, avant de reprendre sa marche.
+
+Chen Tianjun détourna les yeux et observa le Maître Ashen Pine qui lui précédait, sans que personne ne puisse deviner ses pensées.
+
+À mesure qu'ils avançaient, le sentier se rétrécissait. Le Maître Ashen Pine connaissait parfaitement les lieux ; dès que la route semblait s'interrompre, il changeait de direction et un nouveau passage apparaissait.
+
+Le temps s'écoulait lentement. En s'enfonçant davantage dans ce domaine, une sensation de majesté commença à les envahir. Ce sentiment s'intensifia au point de faire trembler leurs esprits. L'expression du Maître Ashen Pine se fit plus austère et il ralentit la cadence, marquant de longues pauses après chaque pas comme pour se remémorer le chemin.
+
+Wang Lin resta silencieux tout au long du périple, mais ses yeux brillaient d'une intelligence vive. Il avait déjà remarqué la présence de nombreuses restrictions. Bien que la plupart fussent trop anciennes et s'étaient effondrées, certaines étaient encore actives. Ce qui stupéfia Wang Lin fut la puissance de ces barrières : elles étaient plus redoutables que celles de la grotte de l'Empereur Céleste Qing Lin. Si elles n'avaient pas été dégradées par le temps, il aurait été impossible d'atteindre ce point.
+
+En regardant le chemin parcouru, ils avaient déjà avancé de plus de cinq kilomètres. Ils n'avaient pas encore franchi la chaîne de montagnes qui se dressait devant eux, et nul ne pouvait savoir ce qui se cachait au-delà. Dans ce royaume aux sept couleurs, la nuit n'existait pas ; seule la lumière multicolore emplissait le ciel.
+
+Le Maître Ashen Pine ralentit progressivement jusqu'à s'arrêter net. Il se frotta les tempes et dit : « Compagnon cultivateur Duanmu, la pilule de réincarnation n'est plus très loin. Cependant, une bête féroce de rang 12 garde le site ; si vous prétendez la prendre, cela pourrait devenir problématique. »
+
+Devant lui se trouvait un passage étroit, bordé par des parois montagneuses lugubres. Par intermittence, quelques pierres roulaient dans le vide, brisant le silence pesant qui régnait partout ailleurs.
+
+Une légère brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un squelette. Ses vêtements avaient presque totalement disparu, n'en laissant que quelques lambeaux autour des ossements. La chair s'était entièrement décomposée, laissant apparaître l'os iliaque. À l'intérieur se trouvait une pilule aux sept couleurs. Elle était incomplète et présentait de subtiles fissures ; une partie avait même fondu, lui donnant une forme de croissant plutôt que celle d'une sphère. C'était une pilule qu'un être avait tenté d'ingérer, mais qui était morte avant d'avoir pu l'absorber totalement ! Bien que des éons se soient écoulés, la pilule exhalait encore un parfum ténu, bien qu'extrêmement léger.
+
+En humant cette fragrance, les yeux de Wang Lin se plissèrent. Ce parfum était singulier ; dès qu'il atteignit ses narines, il fit trembler son âme originelle. Son esprit commença à dériver, et des scènes du passé apparurent de manière incontrôlée devant ses yeux.
+
+Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue pour reprendre ses esprits. Il fut secrètement stupéfait ! En observant les autres, il nota que le vieil homme nommé Pang avait déjà scellé ses cinq sens ; il était évident qu'il avait perçu l'étrangeté des lieux. Quant à la vieille femme en vert, elle parut confuse un instant avant de se ressaisir, tout comme Chen Tianjun du Secte des Bêtes de Bataille.
+
+« Quelle pilule puissante ! » s'exclama l'un d'eux.
+
+« C'est bel et bien la pilule de réincarnation ! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.
+
+« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seuls quelques fragments subsistent. Il est impossible de raffiner une véritable pilule ; nous ne pouvons que condenser une certaine énergie de réincarnation ! » expliqua lentement le Maître Ashen Pine.
+
+Les yeux de Duanmu s'illuminèrent et il fixa le Maître Ashen Pine d'un regard tranchant : « Le compagnon Ashen Pine est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
+
+Le Maître Ashen Pine sourit sans répondre.
+
+« Si ce n'était pour ce qui se trouve dans la brume, près du squelette, vous n'auriez pas été aussi aimable de m'inviter », rétorqua Duanmu en désignant le brouillard.
+
+« C'est exact. Le Dao de la réincarnation du compagnon Duanmu nous sera fort utile pour la suite du voyage. Nous vous aiderons à obtenir cette pilule, et en échange, vous nous ouvrirez la voie », admit franchement le Maître Ashen Pine avec calme.
+
+« D'accord ! » Le jeune homme réfléchit un instant en observant la pilule dans les restes du squelette, puis son visage se fit sévère.
+
+Le Maître Ashen Pine reprit d'une voix grave : « Il s'agit d'un dragon de rang 12, l'équivalent d'un cultivateur Nirvana Shatterer au sommet. Mais une bête féroce reste une bête féroce. Si nous coopérons étroitement et que nous aidons le compagnon Duanmu avec son sort de réincarnation, ce n'est pas impossible ! »
+
+Chen Tianjun se lécha les lèvres : « Je veux l'âme de ce dragon ! »
+
+La vieille femme en vert ajouta : « Le corps du dragon me revient ! »
+
+Les yeux de Wang Lin brillèrent et il déclara calmement : « Je veux tous les cristaux d'origine présents dans la brume ! » Après ces déclarations, leurs regards se tournèrent tous vers le Maître Ashen Pine.
+
+Ce dernier éclata de rire : « Très bien. Le compagnon Pang et moi n'avons que faire de ces choses. Nous voulons simplement passer. »
+
+Une lueur froide traversa le regard du jeune homme qui prit une grande inspiration. Ses mains formèrent un sceau et ses cheveux s'agitèrent comme sous l'effet d'un vent invisible. Ses yeux s'illuminèrent, laissant apparaître les symboles du soleil et de la lune dans chacun de ses globes oculaires. Il poussa alors un rugissement, pointant sa main gauche entre ses sourcils et sa main droite vers l'avant.
+
+Ses yeux brillèrent d'un éclat intense ; les marques solaires et lunaires devinrent si nettes que tous les alentour eurent l'impression que leur esprit était aspiré dans une illusion. Wang Lin, lui, observa le garçon avec un calme absolu.
+
+Dès que les marques apparurent, elles commencèrent à graviter l'une autour de l'autre pour former un vortex qui chargea directement la brume ! La vitesse fut telle que le vortex percuta instantanément le brouillard dans un fracas de déchirement. Soudain, la brume se mit à bouillonner violemment et un rugissement assourdissant en jaillit, faisant trembler les montagnes environnantes et provoquer des éboulements de roches.
+
+Simultanément, une tête de dragon titanesque surgit, projetant un vent aux effluves fétides vers le groupe. Si la menace n'avait été que celle du monstre, cela aurait suffi, mais l'apparition de la tête s'accompagna de la pression écrasante d'un cultivateur Nirvana Shatterer au sommet, faisant vaciller les esprits de chacun pendant un instant.
+
+Le jeune homme Duanmu poussa un cri de guerre tandis que le soleil et la lune apparaissaient devant la tête du dragon en charge. Les astres tournaient frénétiquement, créant un vortex qui agrippait la tête du monstre.
+
+« Mon sort de réincarnation ne durera que dix respirations ! Dépêchez-vous ! » cria le garçon, le front sillonné de veines saillantes sous l'effort. Il s'assit brusquement et, d'un geste de la main droite, fit apparaître une épée volante de sept pieds. Celle-ci se transforma en un rayon d'énergie tranchante qui fonça sur le dragon.
+
+Chen Tianjun fit un pas en avant, ses mains formant un sceau tandis qu'une lumière spectrale l'enveloppait. En un éclair, il atteignit la tête du dragon et s'y installa pour former un nouveau sceau. Sa lumière spectrale s'intensifia et, de manière inattendue, il pénétra à l'intérieur du corps du dragon.
+
+Le Maître Ashen Pine agita la main, faisant apparaître des dizaines de milliers d'épées qui tombèrent sur le dragon telle une pluie meurtrière. La vieille femme en vert forma un sceau et un vent glacial balaya le sentier ; dans un crissement strident, la glace envahit le passage pour se propager vers la créature.
+
+Le vieil homme nommé Pang ne resta pas inactif : il bondit dans les airs et, d'un geste, invoqua la foudre, faisant descendre des boules d'éclairs du ciel.
+
+Les yeux de Wang Lin s'illuminèrent alors qu'il se rapprochait immédiatement du dragon. Sa main droite se serra en un poing puissant et son coup percuta le corps gigantesque de la bête. Un grondement tonnerreux retentit : c'était le rugissement de colère du dragon tentant désespérément de briser le sceau de réincarnation qui l'emprisonnait.

@@ -1,0 +1,111 @@
+---
+n: 1374
+title: Arrivée du Maître Simo
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1374 - Arrival of Master Simo
+slug: arrivee-du-maitre-simo
+---
+Dès que le vieil homme sortit le Cristal de Mutation de Feu Brûlant, Wang Lin le reconnut. Il l'avait déjà vu auparavant et avait même passé plusieurs années à se soigner grâce à lui.
+
+Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent du Secte Divin de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
+
+Le Cristal de Mutation de Feu Brûlant des Terres Déchues était exactement le même que cette pierre blanche !
+
+« Se pourrait-il que le Grand Empereur soit lié au Secte de l'Oiseau Vermillon... » Wang Lin n'éprouvait pas beaucoup d'affection pour le Secte de l'Oiseau Vermillon. Cependant, il devait énormément à l'ancien Empereur Divin de l'Oiseau Vermillon, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
+
+L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était l'égal du Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divins, tandis que l'autre gardait tout le Royaume Intérieur.
+
+Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié.
+
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divin de l'Oiseau Vermillon...
+
+À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Mon Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou ! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon ! »
+
+Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Brûlant, et ses yeux s'illuminèrent.
+
+« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Les Terres Déchues abritent également quelqu'un appartenant au Secte Divin de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque ?
+
+En observant la chronologie, cela ne semble pas cohérent... » Wang Lin réprima son excitation initiale et commença à réfléchir. Après un long moment, il n'était toujours pas certain et laissa échapper un profond soupir.
+
+« Je le saurai tôt ou tard. Je ne m'attendais pas à ce qu'un tel secret puisse être découvert ici, dans les Terres Déchues... Si cet endroit est réellement lié au quatrième Empereur Divin de l'Oiseau Vermillon, alors je pourrai peut-être accomplir mon quatrième éveil ici ! Mon feu deviendra alors un feu éthéré capable d'embraser la colère de mes ennemis et de les réduire en cendres !
+
+Le moment venu, même si mon essence de feu n'est pas complète, elle sera comparable au ciel et à la terre face à mon feu actuel ! Autrefois, je ne pouvais pas percer ce cristal, mais maintenant, après mon troisième éveil, je peux faire jaillir de ce cristal une force destructrice capable de briser le ciel lui-même ! » Wang Lin agita sa main droite et rangea le cristal dans son espace de stockage.
+
+Il y avait également une statue de pierre dans son espace de stockage. Il s'agissait de la statue formant le corps du vieil Empereur Divin de l'Oiseau Vermillon. Elle maintenait la pose d'un doigt pointé entre ses sourcils.
+
+Son Sens Divin balaya la statue. Après un instant de réflexion, son regard se tourna vers la marionnette.
+
+Cette marionnette représentait un homme d'âge moyen, immobile avec une expression absente. Le Sens Divin de Wang Lin jaillit et enveloppa la marionnette. Il se transforma alors en d'innombrables aiguilles fines qui pénétrèrent le corps de l'automate.
+
+Le Sens Divin de Wang Lin s'insinua lentement, centimètre par centimètre, tentant de percer les secrets de la marionnette. Au fil du temps, l'expression de Wang Lin devint sérieuse.
+
+Cette marionnette ne contenait ni chair ni sang, mais était formée d'un étrange cristal, à la fois doux et petit.
+
+Quant à ses os, ils étaient également faits de cristal, mais un cristal extrêmement résistant émettant une puissante énergie originelle. Une fine couche de lumière protégeait l'intérieur de la marionnette, et elle était extrêmement robuste. Lorsque le Sens Divin de Wang Lin tenta d'y pénétrer, il fut stoppé.
+
+Les yeux de Wang Lin s'illuminèrent ; il mobilisa toute sa puissance sensorielle pour charger cette couche de protection.
+
+Un fracas tonitruant retentit et le corps de la marionnette trembla. Wang Lin se redressa soudainement. Son Sens Divin pouvait détruire cette marionnette, mais ne parvenait pas à briser cette couche protectrice !
+
+À cet instant, s'il n'avait pas retiré son Sens Divin assez rapidement, cette couche de lumière aurait détruit tous les secrets internes pour ne laisser aucune trace à quiconque.
+
+Les yeux de Wang Lin pétillèrent et son expression devint solennelle tandis qu'il méditait.
+
+« Cette marionnette est intéressante... » La main droite de Wang Lin s'avança et la marionnette vola vers lui, s'arrêtant à seulement sept centimètres de sa paume. Cela permit à Wang Lin d'appuyer facilement sa main contre le torse de l'automate.
+
+Son Sens Divin jaillit une nouvelle fois à travers sa main droite. Il était sur le point de s'étendre à nouveau dans la marionnette quand le corps de Wang Lin trembla et qu'il laissa échapper un son de surprise.
+
+« Il y a des méridiens à l'intérieur de cette marionnette ! » Le fait d'être si proche et de toucher l'objet lui permit de remarquer ce qui lui avait échappé jusqu'alors.
+
+Il vit des méridiens presque totalement cachés, desséchés et extrêmement difficiles à détecter au sein du corps de la marionnette.
+
+« Ceci... » Les yeux de Wang Lin s'illuminèrent et il prit une inspiration brusque. En examinant plus attentivement, il fut stupéfait.
+
+« Ce n'est pas une marionnette, mais un cultivateur ! C'est un automate formé par le raffinage d'un cultivateur selon une méthode inconnue ! » Wang Lin observa silencieusement la marionnette.
+
+L'automate arborait une expression figée ; ses yeux étaient vides, sans aucun signe de vie ou d'intelligence.
+
+« Le cristal qui remplace la chair et le sang... Cela me semble familier, comme si je l'avais déjà vu... » Wang Lin réfléchit un instant avant que la détermination ne gagne son regard.
+
+« Le secret de cette marionnette doit être caché derrière cette couche de protection. Seul en regardant à l'intérieur pourrai-je découvrir sa vérité ! » Le Sens Divin de Wang Lin s'agita et le tatouage de tonnerre dans son œil droit étincela avant de jaillir.
+
+Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan des Scorpions Noirs qui fixèrent tous l'entrée avec effroi.
+
+L'activation du tatouage de tonnerre avait considérablement augmenté le niveau de culture de Wang Lin. Même son Sens Divin était devenu un véritable orage, chargé contre la couche de protection à l'intérieur de la marionnette.
+
+Lorsque son Sens Divin percuta la barrière, un fracas de tonnerre retentit et la lumière commença à s'effondrer, incapable de résister à une telle puissance. Cependant, simultanément, le contenu interne commença également à se désintégrer, empêchant quiconque de voir le secret enfoui !
+
+Pourtant, à cet instant précis, les yeux de Wang Lin s'illuminèrent et il cria : « Arrête ! »
+
+D'un seul mot, il commanda l'arrêt des mouvements célestes, et tout ce qui se trouvait dans la marionnette se figea également. Mais la lumière ne fit que marquer une pause infime avant de reprendre son effondrement.
+
+La marionnette ainsi suspendue finit par se briser. L'automate explosa et l'onde de choc se propagea jusqu'à la montagne, créant un fracas de tonnerre.
+
+La montagne trembla, laissant tomber des masses de terre. Si Wang Lin n'avait pas placé de restrictions, la montagne serait devenue une ruine totalement aplatie et la planète elle-même aurait violemment tremblé.
+
+Les cultivateurs du Clan des Scorpions Noirs environnants regardaient la grotte avec crainte. Le vieil homme esquissa un sourire amer ; il avait ressenti une aura familière dans l'onde de choc, ce qui lui fit comprendre que la marionnette avait probablement été détruite.
+
+La grotte était remplie de nuages de poussière qui se dissipèrent progressivement. Wang Lin se tenait là, le regard brillant. Bien que le sort « Arrête » n'ait suspendu l'effondrement qu'un instant, il lui avait permis de saisir le secret !
+
+Il vit une âme originelle flotter à l'intérieur ! L'âme originelle ressemblait exactement à la marionnette ! Cette découverte confirma à Wang Lin que l'automate était un cultivateur !
+
+Au moment où la marionnette se brisa, les particules remplaçant la chair et le sang volèrent en éclats. Ce fut comme si la foudre frappait Wang Lin : il comprit enfin pourquoi elles lui semblaient familières !
+
+Dans la Terre des Esprits Démoniaques, il avait vu la tête tranchée d'un dieu ancien. Il y avait alors des particules cristallines sur la blessure qui ressemblaient étrangement à celles-ci !
+
+Il possédait toujours une petite fiole contenant les particules collectées sur la plaie de ce dieu ancien !
+
+Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pour qu'il puisse établir un lien précis.
+
+« Grand Empereur des Terres Déchues... qui est donc cet individu ? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
+
+« Ancien du Clan des Scorpions, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu ! » Le vieil homme du Clan des Scorpions Noirs hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+
+À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin : Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
+
+« Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant pour sauver le neuvième Ancien Déchu, le chef du Clan du Dragon Blindé. En empruntant son identité, je ne devrais rencontrer aucun problème ! »
+
+Tout en réfléchissant, Maître Simo s'élança vers les Terres Déchues.
+
+« Je dois le trouver au plus vite, peu importe le danger, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte du Vide sans les Flammes du Néant ! »

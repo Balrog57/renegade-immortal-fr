@@ -1,0 +1,147 @@
+---
+n: 1121
+title: Pas de soucis quant aux conséquences
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1121 - No Worries About Consequences
+slug: pas-de-soucis-quant-aux-consequences
+---
+Qing Lin regarda Wang Lin et dit lentement : « Le Maître a été gravement blessé à l'époque et a dû affronter Ta Jia et Bei Lou par la suite. Finalement, Ta Jia a envahi mon corps... »
+
+« Bien que je ne sois pas totalement impuissant, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
+
+« Ce nouveau Royaume Céleste de la Pluie deviendra une terre pour mes disciples. La porte du Royaume Céleste de la Pluie a été scellée, personne d'autre ne pourra donc y pénétrer désormais. »
+
+« Si tu as des amis ou des proches, tu peux les amener ici pour vivre dans le Royaume Céleste de la Pluie. Une fois que la culture de ton Maître aura retrouvé son niveau, nous pourrons rendre au Royaume Céleste sa gloire d'antan ! » Tandis que Qing Lin parlait calmement, son regard croisa celui de Wang Lin.
+
+Wang Lin réfléchit longuement et demanda doucement : « Le Maître connaît-il les dieux anciens... ? »
+
+L'expression de Qing Lin resta sereine et il hocha la tête.
+
+« Je ne sais pas si le Maître actuel peut résister à un dieu ancien à 8 étoiles... doté du lignage royal ! » Wang Lin regarda Qing Lin, la voix toujours basse.
+
+En entendant les mots « lignage royal », Qing Lin réfléchit un instant et dit : « Je présume que tu parles de l'ancien dieu Tu Si sur la planète Suzaku ! »
+
+Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, et Tu Si existait depuis l'ère du Royaume Céleste. Il était logique que Qing Lin soit au courant.
+
+« À mon apogée, je ne le considérais jamais comme une menace, mais pour des raisons particulières, je n'ai jamais pris la peine de vérifier... Désormais, je n'ai plus de force que pour une seule attaque ! »
+
+« Même lui serait contraint de battre en retraite après avoir encaissé mon unique assaut ! »
+
+« La force d'une seule attaque... » Wang Lin esquissa un sourire amer en comprenant le sens des paroles de Qing Lin. Ce dernier était trop blessé et n'avait plus la puissance nécessaire que pour lancer une seule attaque. Bien que cet assaut puisse dissuader Tuo Sen, il ne pouvait pas être utilisé. Même si l'ennemi était forcé de reculer, l'avenir en deviendrait périlleux.
+
+Qing Lin réfléchit un instant et reprit lentement : « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver ma culture de pointe. Sinon, mon royaume scellé sera anéanti... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi ! »
+
+Wang Lin secoua la tête, regarda Qing Lin et demanda : « Maître, quelle calamité le Royaume Céleste a-t-il subie à l'époque ? »
+
+Cette question brûlait le cœur de Wang Lin depuis plus de mille ans. Il n'en connaissait toujours pas la raison.
+
+Une pointe de froideur passa dans les yeux de Qing Lin, aussitôt remplacée par de l'amertume.
+
+« Tout cela est dû à la porte du ciel... » Qing Lin ne voulut pas en dire davantage, et son expression devint plus complexe encore.
+
+Wang Lin baissa la tête et dit doucement : « Dans la grotte du Maître, j'ai rencontré l'Ancêtre Saint du Clan Tatou... »
+
+Qing Lin réfléchit un instant et demanda doucement : « Crois-tu ses paroles ? »
+
+Wang Lin resta silencieux.
+
+« La bataille entre le monde extérieur et le royaume scellé dure depuis bien trop longtemps. Tu en sauras davantage à l'avenir. » Qing Lin soupira et mit fin au sujet.
+
+« Va chercher tes amis et tes proches pour les amener ici. Avec moi présent, je peux les protéger. » Qing Lin regarda Wang Lin, une lueur de bonté dans les yeux.
+
+Wang Lin hocha la tête avant d'hésiter un instant ; puis, sa main droite s'étira vers le vide. Une fissure apparut et un cercueil de cristal en émergea lentement.
+
+« Maître... Vous... Reconnaissez-vous ce cercueil... ? » Wang Lin était nerveux alors qu'il fixait Qing Lin. En vérité, il y avait une autre raison pour laquelle il voulait sauver Qing Lin, au-delà du poison de Situ Nan et du vœu de Zhou Yi : trouver des informations sur ce cercueil.
+
+Les yeux de Qing Lin se plissèrent et il perçut naturellement la nervosité de Wang Lin. Il examina attentivement le cercueil avant de réfléchir un instant et de hocher la tête. « Si le Maître ne se trompe pas, il devrait s'agir du Cercueil Évitant le Ciel ! »
+
+L'esprit de Wang Lin trembla et sa respiration devint saccadée.
+
+« Ce Cercueil Évitant le Ciel ne provient pas des quatre Royaumes Célestes ; il vient de l'Ancien Royaume Céleste. La rumeur prétend qu'il peut ressusciter les morts, mais ce n'est qu'une légende. Cependant, si l'on connaît l'incantation pour faire fonctionner ce cercueil, il devrait être possible de ramener un fragment d'âme. »
+
+« Malheureusement, le Maître ne connaît pas l'incantation... » Les paroles de Qing Lin offrirent un espoir à Wang Lin, avant de le briser aussitôt.
+
+C'était comme si un marteau céleste lui avait frappé la poitrine ; le visage de Wang Lin devint pâle et amer. Si Qing Lin ne connaissait pas l'incantation, alors qui le pourrait... ?
+
+« Cependant... » Qing Lin regarda Wang Lin.
+
+Wang Lin prit une profonde inspiration en fixant Qing Lin. L'espoir dans ses yeux fut ravivé.
+
+« Le Maître a entendu dire que le Cercueil Évitant le Ciel apparut pour la première fois dans le Royaume Céleste de la Foudre et appartenait à l'Empereur Céleste Zi Xia. La culture de Zi Xia se situait juste en dessous de la mienne et au-dessus de celle de Bai Fan. Elle a peut-être survécu à l'effondrement du Royaume Céleste de la Foudre, ou elle a peut-être laissé des disciples derrière elle. Tu pourrais peut-être trouver l'incantation du Cercueil Évitant le Ciel auprès d'elle ! »
+
+« Même si tu ne parviens pas à la trouver, ce n'est pas grave. Une fois que ma culture sera rétablie, je t'aiderai sans faute ! »
+
+Wang Lin se leva et joignit les mains. Il était déjà satisfait d'obtenir une telle réponse.
+
+« Va, rassemble les personnes que tu juges importantes et amène-les ici. Je peux t'aider à les garder en sécurité. » Qing Lin semblait fatigué en parlant ; il leva sa main droite et, d'un geste, fit apparaître une rune. Celle-ci se posa sur la paume droite de Wang Lin et s'insinua dans son corps.
+
+« Lorsque tu souhaiteras revenir, active cette rune. »
+
+Wang Lin hocha la tête en regardant Qing Lin. Il rangea ensuite le Cercueil Évitant le Ciel et partit.
+
+Les cultivateurs qui parcouraient autrefois le Système Stellaire de l'Alliance avaient tous disparu. La majorité des forces de diverses factions s'étaient dirigées vers la planète Suzaku.
+
+À cet instant, un rayon de lumière fendit le ciel. Wang Lin volait en avant, d'un calme olympien. Bien que l'éveil de Qing Lin et la formation du nouveau Royaume Céleste de la Pluie n'aient pas résolu ses problèmes, cela lui permettait désormais de ne plus craindre les conséquences.
+
+Il allait envoyer tous ses proches au Royaume Céleste de la Pluie. Grâce à la promesse de Qing Lin, Wang Lin pouvait se détendre.
+
+Il ne voulait pas que Qing Lin l'aide contre Tuo Sen. Bien que cela éliminerait temporairement la crise, comme l'avait souligné Qing Lin, il ne pourrait que le battre et non le tuer. Par conséquent, l'intérêt serait limité.
+
+« Je dois encore compter sur moi-même... » Wang Lin comprit que même s'il avait sauvé Qing Lin, personne ne pourrait l'aider face à une véritable crise.
+
+Il ne lui restait plus de véritables parents dans ce monde. Au maximum, il n'y en avait qu'une seule personne.
+
+Wang Lin se souvenait clairement que lorsque son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume du Vide Brillant.
+
+Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, il se trouvait devant une planète abandonnée, au loin.
+
+De loin, cette planète ne présentait rien d'anormal, mais Wang Lin savait que le réseau de transfert vers le Royaume du Vide Brillant se trouvait ici.
+
+Qu'il s'agisse de livrer le jade que l'ancien Empereur Divin lui avait confié ou d'emmener Zhou Ru, Wang Lin devait se rendre dans ce Royaume du Vide Brillant, même s'il n'était pas disposé à affronter Mu Bingmei.
+
+En contemplant la planète au loin, Wang Lin soupira, mais ne s'arrêta pas. Il pénétra directement dans l'atmosphère de la planète et atterrit.
+
+Se remémorant ce qu'il avait vu autrefois, Wang Lin vola vers l'emplacement du réseau de transfert.
+
+Cependant, alors que son sens divin détectait le réseau, quatre auras puissantes apparurent autour de lui, l'empêchant d'avancer.
+
+Simultanément, une voix glaciale résonna :
+
+« Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, tu seras détruit ! »
+
+Wang Lin fronça les sourcils, s'arrêta et dit : « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume du Vide Brillant au nom de l'ancien Empereur Divin Vermillon ! »
+
+Les auras autour de lui faiblirent légèrement et la voix glaciale résonna de nouveau :
+
+« Laisse le jade et disparais ! »
+
+Une lueur de froideur passa dans les yeux de Wang Lin. Il pouvait clairement distinguer que ces quatre auras appartenaient à des cultivateurs du Nirvana Scryer. Le fait d'avoir des cultivateurs au stade Nirvana Scryer pour garder la porte prouvait que le Royaume du Vide Brillant n'était pas moins puissant qu'une autre force de l'Alliance.
+
+Cependant, ces quatre cultivateurs étaient bien trop arrogants. Bien qu'ils aient détecté que Wang Lin était un cultivateur du Nirvana Cleanser, leurs paroles restaient brutales. Il était probable que, tant qu'un cultivateur du Nirvana Shatterer ne se présenterait pas, ils ne feraient preuve d'aucune courtoisie.
+
+Il n'avait déjà aucun sentiment favorable envers le Royaume du Vide Brillant, mais il était venu ici dans l'unique but de prendre Zhou Ru avec lui. Après une courte réflexion, Wang Lin réprima sa colère et dit calmement : « En plus de livrer le jade, je souhaite rencontrer Mu Bingmei. »
+
+Un rire éclata à nouveau, suivi par la voix glaciale :
+
+« Pour entrer dans le Royaume du Vide Brillant, tu dois présenter un jade d'invitation. L'as-tu ? »
+
+Wang Lin fronça les sourcils et répondit calmement : « Je ne l'ai pas. Je vais vous demander de bien vouloir... » Sans attendre qu'il termine, la voix glaciale l'interrompit d'un ton impatient :
+
+« Si tu n'as pas de jade d'invitation, tu ne peux pas entrer ! »
+
+La froideur dans les yeux de Wang Lin s'intensifia, mais il la maîtrisa encore davantage. Il dit calmement : « Je voudrais vous demander l'amabilité de transmettre un message. Dites simplement... »
+
+« On n'a plus de temps. C'est la dernière fois que je te dis de déguerpir ! » Ce fut la deuxième fois que Wang Lin se faisait interrompre par cette voix glaciale.
+
+Une aura meurtrière jaillit de son corps et une intention de tuer envahit son regard. Après avoir réfléchi un instant, il la réprima une fois de plus et dit calmement : « Je vous demande l'amabilité de transmettre un message. Dites simplement que Wang Lin est venu. »
+
+« Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Nirvana Cleanser, il n'aurait pas été aussi poli et aurait déjà attaqué.
+
+Wang Lin eut un sourire amer de colère. Il n'aurait jamais cru que les quatre gardiens du Royaume du Vide Brillant feraient preuve d'une telle arrogance.
+
+« Très bien, très bien ! » Une froideur glaciale apparut dans les yeux de Wang Lin alors qu'il fit un pas en avant et agita sa main droite. Une mer de flammes surgit dans le ciel, le teintant d'un rouge vif, et une pluie de feu s'abattit des hauteurs.
+
+Son corps vacilla et il réapparut à mille pieds de là, pointant l'avant du doigt. Les flammes s'écrasèrent avec violence. L'endroit que Wang Lin désignait se tordit, et un vieillard aux cheveux blancs dut esquiver avec une expression sombre.
+
+Au même moment, l'espace environnant se distordit et les trois autres individus apparurent également.

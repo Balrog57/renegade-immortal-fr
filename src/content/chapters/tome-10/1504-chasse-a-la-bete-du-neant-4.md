@@ -1,0 +1,129 @@
+---
+n: 1504
+title: Chasse à la Bête du Néant (4)
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: Chapter 1504 - Hunting Nether Beast (4)
+slug: chasse-a-la-bete-du-neant-4
+---
+Les paroles de Wang Lin possédaient une force indiscutable. Dès qu'il parla, ses sept étoiles rotatives se posèrent sur la gueule de la Bête du Néant.
+
+La première étoile brilla intensément, puis la deuxième, la troisième et la quatrième suivirent !
+
+Une force d'âme ancienne émana des étoiles et pénétra dans l'esprit de Wang Lin.
+
+Lorsque les sept étoiles seraient toutes allumées, le sceau de l'âme serait réussi !
+
+Cependant, à cet instant précis, le temps pressait. Ling Dong et Zhou Jin avaient déjà été dévorés et il n'y avait plus assez de temps. La force d'aspiration réapparut et le corps de Wang Lin commença à montrer des signes d'aspiration !
+
+Face au danger, Wang Lin laissa échapper un rugissement et agita sans pitié sa manche vers le royaume mystérieux à l'intérieur de la Bête du Néant.
+
+Alors que les hurlements résonnaient, toutes les Feuilles Anciennes s'envolèrent en direction du trou noir situé dans la gueule !
+
+Des grondements tonitruants retentirent. Tandis que la force d'aspiration faiblissait, la cinquième étoile brilla !
+
+Cependant, alors qu'elle scintillait, les Feuilles Anciennes furent aspirées par le trou noir et la force de succion s'intensifia davantage. Une lueur de froideur passa dans les yeux de Wang Lin. Il avait déjà payé un prix immense. S'il réussissait, Ling Dong et ses compagnons seraient sauvés, mais en cas d'échec, le tribut serait extrêmement lourd !
+
+Pourtant, il avait tout analysé en détail avant de commencer, et chaque chose était encore conforme à ses calculs !
+
+Il était confiant quant à l'allumage des deux dernières étoiles !
+
+Lorsque la force d'aspiration se manifesta de nouveau, Wang Lin agita sa manche. Derrière lui, le corps massif du Serpent Regardant la Lune apparut et s'élança vers le trou noir !
+
+En un éclair, le Serpent Regardant la Lune bloqua le gouffre. Tandis qu'il était aspiré, il parvint à gagner suffisamment de temps pour Wang Lin !
+
+La sixième étoile s'alluma !
+
+La septième étoile brilla intensément !!
+
+Les sept étoiles dans la bouche spirituelle de la Bête du Néant brillèrent de mille feux et, dans leur rotation, le sceau de l'âme fut achevé !
+
+Le royaume extérieur, le sceau de l'âme et le sceau interne ; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus ! Une fois que les étoiles de l'Ancien Dieu eurent terminé le sceau, elles retournèrent vers Wang Lin.
+
+Cependant, à ce moment précis, un changement stupéfiant se produisit !
+
+Un rayon de lumière aux sept couleurs jaillit de l'âme scellée de la Bête du Néant. Cette lumière était monstrueuse et enveloppa rapidement les environs !
+
+En voyant cette lumière aux sept couleurs, Wang Lin fut lui-même stupéfait un instant !
+
+« Sept couleurs !! »
+
+La lumière aux sept couleurs balaya le domaine étoilé. En se propageant depuis l'âme de la Bête du Néant, elle couvrit également son corps ! Tandis que la lueur se répandait, une force indescriptible émana de l'intérieur de la créature !
+
+Simultanément, le sceau que Wang Lin avait posé sur le corps de la Bête du Néant commença à se dissiper. Sous l'impact de la lumière aux sept couleurs, la majeure partie fut balayée, n'en laissant qu'un mince fragment. Mais même celui-ci était sur le point de disparaître.
+
+Le sceau spirituel des sept étoiles placé sur la gueule s'estompa immédiatement. C'était comme sept flammes de bougies luttant contre le vent, prêtes à s'éteindre à tout moment !
+
+En un éclair, trois sceaux stellaires s'éteignirent !
+
+Ce changement soudain dépassait les prévisions de Wang Lin. Il n'aurait jamais pu imaginer que cette Bête du Néant possédât le pouvoir de la lumière aux sept couleurs !!
+
+Sept couleurs, sept couleurs !!
+
+La lumière aux sept couleurs clignota rapidement et devint encore plus puissante. Des phantoms commencèrent à flotter hors de la gueule de la Bête du Néant !
+
+« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Attends le chemin de la culture... » Un murmure émana des phantoms qui flottaient hors de la gueule de la Bête du Néant.
+
+« Éveillé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la culture... »
+
+« Éveillé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête du Néant, finissant par encercler toute la zone !
+
+« Les Éveillés !!! » Les yeux de Wang Lin s'illuminèrent et il comprit vaguement quelque chose.
+
+Il comprit pourquoi la Bête du Néant ne s'était pas échappée et pourquoi sa personnalité avait été inversée !
+
+Il comprit pourquoi la Bête du Néant laissait des excrétions à l'intérieur de la brume !
+
+Il comprit pourquoi la Bête du Néant était si rusée et pourquoi une étincelle de sagesse brillait dans ses yeux !
+
+Il comprit pourquoi une lumière aux sept couleurs jaillirait de son âme après qu'il eut scellé la majeure partie de celle-ci !
+
+« Elle a en fait dévoré un Royaume aux Sept Couleurs au cours des mille dernières années !!! » Wang Lin était sous le choc et n'osait pas le croire.
+
+Son intuition n'était pas erronée. En vérité, après l'apparition de Wang Lin, la Bête du Néant errait dans la brume. Elle était timide et, bien qu'extrêmement puissante, la moindre bête féroce pouvait l'effrayer.
+
+Cependant, elle avait manifestement oublié la pression émanant de son corps, celle-là même qui empêchait toute bête ou cultivateur de s'approcher. Partout où elle passait, les bêtes environnantes se dispersaient.
+
+Tandis qu'elle errait, la Bête du Néant restait dans un état embrumé. Elle manquait d'intelligence et avait passé la majeure partie de sa vie à dormir. Même lors des rares moments d'éveil, elle restait dans la léthargie.
+
+Pourtant, après le départ de Wang Lin avec le Clan des Immortels Choisis, la Bête du Néant s'éveilla. Elle ressentit soudain la faim, mais craignant de quitter la brume, elle ne put que errer lentement à l'intérieur de celle-ci.
+
+Après un temps indéterminé, une gigantesque faille spatiale apparut devant elle. Des éclats de lumière aux sept couleurs jaillirent de la faille et brillèrent dans ses yeux.
+
+À ce moment précis, une silhouette embarrassée sortit de la faille. Les vêtements de cet homme étaient en lambeaux et, avant même d'avoir pu observer son environnement, il se mit à rire comme un fou.
+
+« Je suis enfin sorti. Je suis enfin sorti de cet endroit maudit. Ce vieil homme est enfin libre... » Cependant, il s'interrompit brusquement. L'homme avait manifestement aperçu la gigantesque Bête du Néant devant lui et ressentit sa pression terrifiante.
+
+Cette apparition surprit également la Bête du Néant. L'homme et la bête se fixèrent un court instant avant que des gouttes de sueur froide ne perlent sur le front de l'humain. Son visage pâlit et il poussa un cri déchirant !
+
+En entendant ce cri, la timide Bête du Néant réagit enfin, et des grondements tonitruants secouèrent son corps !
+
+Ce rugissement était terrifiant pour quiconque l'entendait, mais en réalité, ce n'était qu'un cri de peur après avoir été effrayée par cet homme.
+
+L'individu trembla et retourna sans hésiter dans la faille aux sept couleurs, s'enfuyant à nouveau dans le Royaume aux Sept Couleurs. Seul ce cri frénétique semblait encore résonner parmi les brumes.
+
+La Bête du Néant recula également en rugissant de panique, s'éloignant très loin. Elle fixait la faille avec effroi ; elle était totalement terrifiée... D'abord par l'apparition de la faille, puis par l'homme surgi de nulle part, et enfin par ce cri lugubre qu'il avait poussé avant même qu'elle ne puisse réagir, ce qui lui avait fait perdre la raison... Après un long moment, voyant que personne ne la poursuivait, la Bête du Néant commença à hésiter. Un peu de courage revint en elle et, après une très longue réflexion, elle retourna prudemment fixer la faille des sept couleurs avec confusion.
+
+Elle ignorait pourquoi, mais elle aimait énormément ces sept couleurs. Autrement, avec sa timidité naturelle, elle ne serait jamais revenue.
+
+Elle resta ainsi dans l'indécision pendant cent ans, fixant la faille comme si elle méditait.
+
+Après un siècle, elle ne comprenait toujours pas comment la faille était apparue ni ce qu'elle représentait. Cependant, les sept couleurs lui procuraient un immense bonheur ; elle refusait donc de partir et demeurait dans son état second.
+
+Pourtant, après une douzaine d'années supplémentaires, un autre incident survint... Les yeux de la Bête du Néant étaient larges de milliers de pieds, et l'un d'eux se trouvait à moins de dix pieds de la faille spatiale... C'était comme si elle voulait voir ce qui se cachait à l'intérieur.
+
+L'homme sorti de la faille semblait avoir lutté pendant cent ans avant de trouver enfin le courage de passer prudemment sa tête.
+
+Ses cheveux étaient ébouriffés et son corps décharné ; il paraissait extrêmement misérable. La Bête du Néant étant trop proche, sa vision était floue, mais dès que celle-ci s'éclaircit, son visage devint livide et il poussa une nouvelle fois ce cri de désespoir !
+
+« Toi... Tu es encore là !! Tu as attendu ici pendant cent ans !! » hurla l'homme en reculant précipitamment dans le Royaume aux Sept Couleurs.
+
+Ce changement soudain effraya à nouveau la Bête du Néant. Toutefois, sa mémoire semblait s'être affinée, car elle ne recula que de cent mille pieds. Elle attendit longtemps et, voyant que rien ne sortait plus de la faille, elle ne put plus résister à son attirance pour la lumière aux sept couleurs. Elle se rapprocha prudemment et continua de fixer la faille avec confusion.
+
+Le temps passa lentement : 200 ans, 300 ans... 500 ans... Jusqu'au jour où la Bête du Néant ressentit la faim, mais refusa de partir. Après avoir réfléchi un instant, elle ouvrit la gueule et dévora la faille aux sept couleurs !
+
+Une force d'aspiration surgit, et l'espace même dans lequel résidait le Royaume aux Sept Couleurs fut englouti dans le royaume intérieur de la Bête du Néant.
+
+Bien que Wang Lin n'eût pas assisté à tout le processus, il pouvait en deviner les étapes et le résultat. Alors que les murmures des Éveillés émanaient de l'intérieur de la créature, un grondement jaillit de sa gueule et une gigantesque tablette de pierre apparut !
+
+Du sang écarlate avait servi à graver des sections de scriptures du Dao sur cette tablette de pierre !

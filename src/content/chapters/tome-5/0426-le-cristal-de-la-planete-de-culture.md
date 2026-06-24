@@ -1,0 +1,127 @@
+---
+n: 426
+title: Le Cristal de la Planète de Culture
+book: 5
+bookTitle: Cultivation Planet Crystal
+en: Chapter 426 - Cultivation Planet Crystal
+slug: le-cristal-de-la-planete-de-culture
+---
+« Oh ? » Wang Lin tourna le regard vers Situ Nan.
+
+Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara : « Bien ! Ce vieil homme a enfin choisi son corps ! Wang Lin, suis-moi au pôle Nord. C'est là que se trouve l'enveloppe que je convoite ! »
+
+Sur ces mots, il s'élança dans les airs.
+
+Wang Lin frappa son sac de rangement. Le moustique laissa échapper un rugissement et apparut devant lui. Il sauta sur le dos de la créature, s'installa et suivit Situ Nan.
+
+Situ Nan se retourna pour observer le moustique. Ses yeux s'illuminèrent : « Quel genre de bête est-ce là ? Où l'as-tu déniché ? Ce vieil homme va en capturer un pour s'amuser ! »
+
+Le moustique avait toujours fait preuve d'une nature tyrannique, mais après avoir ressenti l'aura de Situ Nan, il émit quelques grognements et recula devant lui.
+
+Situ Nan fixa la bête un instant. En un éclair, il apparut aux côtés de Wang Lin sur le dos du moustique et lança : « Pourquoi fuis-tu ? Je ne vais pas te manger ! »
+
+Le corps du moustique trembla tandis qu'il lançait des regards suppliants à Wang Lin.
+
+Un léger sourire étira les lèvres de Wang Lin alors qu'il frottait la grosse tête de la créature. Il sortit un morceau de jade et, après y avoir imprimé quelques informations, il le tendit à Situ Nan : « Si tu te rends là-bas, tu pourras capturer autant de bêtes moustiques que tu le souhaites. »
+
+Situ Nan prit le jade. Après l'avoir scanné, son expression changea radicalement. Il finit par dire d'un ton embarrassé : « Laisse tomber... Je n'en veux plus... »
+
+Le jade que Wang Lin lui avait offert contenait des informations sur la planète où l'Ancien Dieu avait trouvé une quantité prodigieuse de bêtes moustiques.
+
+Malgré toute sa fierté, le cœur de Situ Nan trembla en découvrant ces données. Il reporta un regard étrange sur la créature.
+
+Un sourire malicieux apparut sur les lèvres de Situ Nan : « Wang Lin, et si nous faisions un marché ? Une fois que j'aurai un corps, prête-moi le moustique pour l'étudier un moment. Je me contenterai de l'étudier, sans jamais mettre sa vie en péril. »
+
+« Impossible ! » refusa Wang Lin sans la moindre hésitation.
+
+Paniqué, Situ Nan protesta : « Je ne le tuerai vraiment pas ! Il pourrait même devenir encore plus fort ! »
+
+« Impossible ! » répéta Wang Lin en secouant la tête.
+
+Les yeux de Situ Nan s'écarquillèrent et il hurla face à Wang Lin : « Petit morveux, personne n'ose refuser ce vieil homme ! À l'époque, je voulais la concubine de la première génération, et je me suis contenté de la lui voler. Tant que je le veux, nul ne peut s'y opposer. Vas-tu me le donner ? Sinon, je te tuerai d'un seul revers de main, espèce d'enfant ingrat ! »
+
+Wang Lin fixa Situ Nan. Il ne dit mot, se contentant de l'observer en silence.
+
+Peu après, Situ Nan afficha un sourire méfiant : « Comment ai-je pu tomber sur quelqu'un comme toi... Ah, quand tu n'étais qu'un enfant, c'est moi qui ai ajusté ton corps pour que tu puisses cultiver. C'est aussi moi qui t'ai donné l'idée de voler la fondation d'autrui. Et je t'ai sauvé la vie maintes fois ! As-tu oublié la fois où le petit morveux de la famille Teng te poursuivait ? »
+
+« De plus, à l'extérieur de la Vallée Jue Ming, j'ai risqué ma vie pour te sauver, et c'est ainsi que tu me remercies ? Je ne suis qu'un vieillard pitoyable ; je n'ai guère de désirs, je voulais juste emprunter le moustique pour l'étudier... »
+
+Wang Lin sentit une migraine l'assaillir. Si Situ Nan s'était contenté de jouer les durs, il aurait pu l'ignorer, mais désormais, chaque mot frappait droit au cœur. Après un moment, Wang Lin laissa échapper un sourire impuissant : « Très bien, je te le prête, je te le prête ! »
+
+Le visage de Situ Nan prit soudain une expression arrogante et il éclata de rire : « Bien ! Voilà qui ressemble davantage à la personne que ce vieil homme a choisie ! » Sur ces mots, il tourna un regard au sourire sinistre vers le moustique.
+
+Le corps du moustique trembla dans un cri strident. Ce sourire avait failli le faire tomber du ciel.
+
+Tandis qu'ils volaient, Wang Lin réfléchit un instant et demanda : « Situ, connais-tu le Royaume Ji ? »
+
+L'expression de Situ Nan devint solennelle : « Le Dao Ji est le Ji des trois royaumes. Pourquoi me demandes-tu cela ? »
+
+Wang Lin regarda son compagnon. Dans ce monde, hormis Li Muwan, la seule personne en qui il pouvait avoir une confiance absolue était Situ Nan.
+
+Wang Lin frappa son sac de rangement et une masse de lumière blanche apparut. Cette lueur dégageait une pression semblable à une calamité divine. Bien que cette aura ne fût pas dangereuse pour Wang Lin, elle aurait pu terrasser n'importe quel cultivateur de l'Âme Naissante !
+
+Situ Nan s'exclama de surprise. Il saisit la lumière blanche, l'examina de près et son visage changea brusquement. Son Sens Divin se propagea instantanément pour inspecter les environs avant qu'il ne projette la lueur vers le sac de Wang Lin. Il la fit passer à travers le Sens Divin de Wang Lin pour la ranger directement dans le sac.
+
+Situ Nan s'écria : « Pourquoi possèdes-tu le Royaume Ji !?!?! »
+
+Wang Lin répondit d'une voix lente : « Dans la Vallée Jue Ming, un fragment du Royaume Ji est apparu en moi. Tu dormais alors, tu ne l'as pas vu. Ensuite, mon corps fut détruit et tu as sauvé mon âme avant de sombrer à nouveau dans ton sommeil. Sur le champ de bataille étranger, mon Royaume Ji a atteint sa plénitude. »
+
+« Le Royaume Ji est une substance extrêmement tyrannique. Je n'ai que peu d'informations à son sujet, mais je sais que l'Alliance de Culture recherche sans cesse les cultivateurs possédant le Royaume Ji. Dès qu'ils en trouvent un, ils l'exterminent. Tu dois te souvenir de ne jamais le montrer à quiconque, surtout au Suzaku actuel ! » L'expression de Situ Nan était d'une gravité absolue.
+
+Wang Lin hocha la tête. Après une courte réflexion, il ajouta : « Je soupçonne que ce Royaume Ji a un lien avec ta Méthode de Culture de l'Ascension des Enfers. »
+
+Situ Nan fut stupéfait. Il se frotta le menton et dit : « Tu pourrais avoir raison, mais il y a des variables inconnues en jeu ; sinon, je posséderais moi aussi le Royaume Ji. Pour autant que je sache, les chances qu'il apparaisse sont infimes. De plus, il est bien trop difficile à cultiver ; le fait que tu aies pu l'extraire de ton corps sans en être affecté est déjà une rareté absolue. » Situ Nan regarda Wang Lin avec une pointe d'admiration.
+
+« Situ, j'ai entendu dire que le Cristal de la Planète de Culture pouvait aider le Royaume Ji à briser ses limitations. Est-ce vrai ? Qu'est-ce que ce Cristal exactement ? » Les yeux de Wang Lin s'illuminèrent en posant enfin la question qu'il retenait depuis des centaines d'années.
+
+« Tu connais même l'existence du Cristal de la Planète de Culture... » Situ Nan afficha une expression complexe avant de soupirer : « Le Cristal de la Planète de Culture... cet objet n'est pas une bonne chose, mais si tu veux quitter cette planète, tu devras impérativement l'obtenir, sans quoi cela pourrait causer des problèmes futurs... Ah ! Le Cristal de la Planète de Culture est l'outil le plus perfide que l'Alliance de Culture utilise pour asservir une planète de culture... »
+
+Situ Nan s'apprêtait à poursuivre quand il scruta soudain l'horizon : « Nous en reparlerons plus tard. Pour l'instant, des membres du Clan des Immortels Délaissés sont devant nous et procèdent à des offrandes pour leur esprit ancestral. Laisse-moi réfléchir... Je me souviens que le premier Suzaku étudiait un sort capable d'utiliser l'esprit ancestral pour absorber une part de ce pouvoir mystérieux... Je vieillis, ma mémoire me fait défaut. Je crois que c'est la bonne méthode. Wang Lin, donne-moi un jade céleste. »
+
+Wang Lin, les yeux fixés au loin, frappa son autre sac de rangement, en sortit un jade céleste et le tendit à Situ Nan.
+
+Situ Nan prit le jade et, d'une seule inspiration, le draina jusqu'à ce qu'il se brise. Ses yeux pétillaient d'énergie spirituelle céleste lorsqu'il dit : « Je me souviens que le premier Suzaku disait que ce sort possédait une faiblesse fatale. Bien que cette faille soit contrariante pour moi en ce moment, je devrais pouvoir l'éviter. Wang Lin, attends-moi ici. Je reviens de suite. »
+
+Sur ces mots, il disparut.
+
+Lorsque Situ Nan réapparut et fit fuir Zhuque Zi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
+
+Un vieil homme vêtu de blanc apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur Ascendant de la Secte du Jade Céleste. À cet instant, son expression était troublée. Après un moment, il soupira : « Une aura d'une puissance inouïe... »
+
+Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. Derrière lui se trouvaient des dizaines de cultivateurs ; la plupart étaient au stade de la Formation de l'Âme, et seuls trois atteignaient celui de la Transformation de l'Âme.
+
+Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
+
+Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plus de cent individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer : « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
+
+Après que Zhuque Zi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
+
+Dans les nuages noirs bordant l'est du continent de Suzaku, le cinquième ancêtre détourna son regard avec mélancolie.
+
+L'Ancien Sima de la Secte des Cadavres, dont la culture était au stade de la Transformation de l'Âme, ne put détecter le changement survenu lors de l'apparition de Situ Nan, mais en voyant l'expression du cinquième ancêtre se crisper, il fut frappé de surprise.
+
+Il s'apprêtait à sonder les informations quand le cinquième ancêtre agita ses manches et ordonna : « Ancien Sima, commençons. »
+
+Les yeux de Sima s'illuminèrent et il rit : « Bien ! La raison de ma venue est de livrer ce cadavre. Il permettra à l'arbre de l'esprit ancestral de votre Clan des Immortels Délaissés de prospérer davantage. »
+
+Sur ces mots, il se tourna vers les deux diacres de cadavres qui le suivaient.
+
+Sans dire un mot, les deux diacres descendirent du cercueil et commencèrent à tracer des sceaux. Des filaments d'énergie spirituelle jaillirent d'eux pour se poser sur la boîte de bois.
+
+Peu après, ils libérèrent une lueur mystérieuse et spectrale de leurs corps et crièrent : « Ouvrez ! »
+
+Le grincement du bois frottant contre le bois emplit l'air tandis que le couvercle glissait lentement pour créer une ouverture. L'ouverture s'élargit progressivement.
+
+Un gaz noir s'en échappa, accompagné d'une puanteur de chair putréfiée.
+
+Le regard du cinquième ancêtre demeura calme face au cercueil. Cependant, les trois chamans à huit feuilles derrière lui étaient fébriles et restaient sur leurs gardes.
+
+« Levez-vous ! » hurlèrent de nouveau les deux diacres de cadavres.
+
+Le couvercle fut soudainement repoussé par une main invisible et s'écrasa au sol dans un fracas.
+
+À cet instant, le gaz noir se fit plus dense, s'échappant du cercueil comme pour vouloir l'envelopper totalement.
+
+Le cinquième ancêtre du Clan des Immortels Délaissés demanda froidement : « Est-ce là le cadavre dont vous parliez ? »
+
+L'Ancien Sima esquissa un sourire malicieux : « Cinquième ancêtre, ne me blâmez pas ; les ordres et le corps sont venus d'en haut. Je n'ai aucun pouvoir de décision. Toutefois, sur la planète Suzaku, les cadavres de Grands Démons du stade de Transformation de l'Âme se font rares ; celui-ci a été transféré d'une autre planète. Les quatre autres cadavres auraient déjà dû être livrés à leurs emplacements respectifs. »

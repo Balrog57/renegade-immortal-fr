@@ -1,0 +1,105 @@
+---
+n: 1342
+title: "La Voie d'un Puissant Cultivateur du Tonnerre !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1342 - The Path of a Powerful Thunder Cultivator!"
+slug: la-voie-dun-puissant-cultivateur-du-tonnerre
+---
+Chapitre 1342 - La Voie d'un Puissant Cultivateur du Tonnerre !
+
+Il y avait ici 7 millions de mondes, ce qui donnait à cet endroit une apparence infinie. Mais les membres du Clan du Tonnerre Dispersé n'avaient pas besoin de chercher aveuglément. Chaque fois qu'un être était sur le point de subir sa rétribution divine, le talisman que tenaient les membres du clan le détectait. Alors, le cultivateur du Clan du Tonnerre Dispersé le plus proche était téléporté sur les lieux pour être transformé en puissance céleste !
+
+Alors que Wang Lin traversait les 7 millions de mondes et contemplait les planètes, un sentiment complexe envahit son cœur. Son expression était sombre tandis qu'il observait ce monde qui ne pouvait être distingué du monde réel. Après un long moment, il laissa échapper un soupir. Puis, d'un revers de la main droite, plus de dix marques du Clan du Tonnerre Dispersé apparurent dans sa paume.
+
+Après les avoir toutes écrasées, une grande quantité d'objets pouvant servir d'échange pour des cristaux de tonnerre jaillit. Après les avoir tous rangés, Wang Lin observa le tonnerre résiduel provenant des marques.
+
+Il ne s'agissait que de traces incomplètes de Tonnerre Spirituel. Elles avaient toutes été rassemblées par Zhang Jingyun et les autres au fil d'innombrables années en assassinant les nouveaux arrivants dans les 7 millions de mondes. Il y en avait près de mille, et une fois combinées, elles formeraient un éclair de Tonnerre Spirituel complet !
+
+D'un geste de la main, Wang Lin fit fusionner les près de mille filaments de Tonnerre Spirituel, jusqu'à ce qu'il n'en reste finalement plus qu'un seul !
+
+De loin, cela ne ressemblait plus à du tonnerre, mais plutôt à une boule de fumée. D'innombrables visages s'y agitaient, changeant à une vitesse fulgurante !
+
+Bien que l'apparence n'ait rien à voir avec le tonnerre, une étrange force tonitruante résidait en son sein. Elle était totalement différente du tonnerre que Wang Lin cultivait, mais dès son apparition, le tonnerre dans l'œil droit de Wang Lin se mit à briller frénétiquement.
+
+La boule de fumée trembla et fonça vers l'œil droit de Wang Lin. Elle y pénétra instantanément pour rejoindre son âme originelle, fusionnant avec le tonnerre qui s'y trouvait déjà.
+
+Le tonnerre rugit sauvagement dans le corps de Wang Lin, et ses cheveux s'agitèrent sans qu'aucun vent ne souffle. Son corps dégageait une puissance électrique infinie ; il était aussi éclatant que le soleil, projetant des éclairs dans toutes les directions !
+
+Au moment où les deux tonnerres fusionnèrent, des grondements tonitruants résonnèrent dans son âme originelle. Des fragments de mémoire semblant provenir d'époques ancestrales jaillirent du tonnerre au sein de son âme.
+
+Cette masse de souvenirs balaya l'âme originelle de Wang Lin telle une tempête. Son corps se mit à trembler et le monde devant lui sembla se fendre sous l'impact des éclairs. Une vision limpide du monde apparut alors clairement devant lui !
+
+Il s'agissait de l'héritage des essences de tonnerre, existant depuis la naissance même de ce phénomène. Cette mémoire était contenue dans les essences de tonnerre et restait rarement accessible. Aujourd'hui, en absorbant un éclair de Tonnerre Spirituel complet, une brèche s'était ouverte, laissant filtrer ces souvenirs !
+
+Dans l'image, un éclair de tonnerre infini surgissait du vide. Ce tonnerre possédait une puissante aura d'essence et était entouré de neuf types de tonnerre différents qui, ensemble, formaient un motif étrange !
+
+L'essence de tonnerre trônait au centre, accompagnée des neuf autres tonnerres. Lorsqu'ils tournaient, ils semblaient former leur propre monde, dégageant un sentiment de perfection absolue !
+
+C'était la véritable essence de tonnerre !
+
+Une voix antique brisa le temps et résonna dans les oreilles de Wang Lin. Cette voix paraissait extrêmement vieille, comme si elle était le son du Ciel lui-même ! « Neuf tonnerres constituent la limite. Ils ont été formés à la naissance de l'essence de tonnerre. Au-delà de neuf vient dix, et dix est la perfection. Essence de tonnerre, atteins la complétude... »
+
+À l'instant même où il entendit cette voix, l'âme originelle de Wang Lin tressaillit, puis tout ce qui l'entourait s'effondra et il reprit ses esprits. Il se trouvait toujours dans les 7 millions de mondes, plongé dans une obscurité ponctuée d'éclairs. Cependant, il était désormais trempé de sueur et ses yeux étaient empreints de choc.
+
+Il n'y avait initialement qu'une seule marque de tonnerre dans son œil droit, mais désormais, on pouvait en deviner une seconde. Elle était simplement un peu plus petite !
+
+Ce second éclair orbitait autour du premier à l'intérieur de l'œil droit de Wang Lin. À chaque rotation, l'origine du tonnerre de Wang Lin grandissait légèrement.
+
+Une compréhension plus profonde du tonnerre inonda l'esprit de Wang Lin. Après un long moment, le choc s'estompa et ses yeux s'illuminèrent. Tout devenait plus clair !
+
+« Le Clan du Tonnerre Dispersé prétend que le tonnerre se divise en six types, mais même eux ignorent qu'il n'y en a pas six, mais neuf ! Ces neuf tonnerres accompagnent tous l'essence de tonnerre... En un sens, un tonnerre complet possède dix types différents ! »
+
+« Mon origine du tonnerre est déjà apparue et se situe au même niveau d'existence que l'éclair éternel du Clan du Tonnerre Dispersé ; c'est aussi une essence de tonnerre ! Je peux renforcer mon essence en l'absorbant, et si je parviens à trouver les autres tonnerres compagnons, mon origine du tonnerre sera complète ! »
+
+« Je pourrais même franchir la deuxième étape de culture pour devenir un cultivateur de la troisième étape grâce à cette essence ! Pour l'instant, j'ai déjà absorbé le Tonnerre Spirituel... il en reste huit ! » Wang Lin n'avait jamais été aussi lucide quant à l'avenir de sa culture.
+
+Ce fragment de mémoire issu de son essence de tonnerre lui avait ouvert une voie ! On pourrait dire que sans le Clan du Tonnerre Dispersé, Wang Lin ne serait jamais venu dans les 7 millions de mondes et n'aurait probablement jamais découvert la vérité sur le tonnerre.
+
+Le Clan du Tonnerre Dispersé lui avait indirectement offert une immense fortune !
+
+L'éclair dans les yeux de Wang Lin scintilla et, d'une simple pensée, le tonnerre de son œil droit s'envola pour flotter devant lui. L'essence de tonnerre était vibrante de vie, entourée de ce petit éclair !
+
+Cela ressemblait énormément à ce qu'il avait vu, la seule différence étant l'absence des huit autres tonnerres compagnons ! Il était dommage que le seul présent soit trop faible ; bien qu'existant, il n'en était qu'une trace.
+
+Son œil droit brilla et l'essence incomplète retourna instantanément dans son orbite. Il murmura : « Je n'ai pas envie de tuer des gens qui subissent leur rétribution divine, mais je peux tuer les membres du Clan du Tonnerre Dispersé pour m'en emparer... »
+
+Avec un ricanement, Wang Lin disparut. Son sens divin se propagea comme une onde et un cauchemar commença dans les 7 millions de mondes.
+
+Quelques membres du Clan du Tonnerre Dispersé voyageaient à travers l'espace. Le plus faible d'entre eux était au stade Ascendant, tandis que le plus puissant était au stade Corporel Yang. Ils surveillaient attentivement leurs jetons, prêts à se précipiter au moindre signal.
+
+« Ce Tonnerre Spirituel est extrêmement difficile à collecter. Nous avons déjà tué quatre cultivateurs de royaumes inférieurs, mais aucun d'eux n'a engendré de Tonnerre Spirituel ! »
+
+« Ne te précipite pas, cela relève de la chance. Si aucun Tonnerre Spirituel n'apparaît, nous n'aurons qu'à voler les autres », répondit le cultivateur Corporel Yang avec arrogance.
+
+Les cultivateurs alentour commencèrent immédiatement à le flatter.
+
+C'est à ce moment précis qu'un cultivateur Ascendant, perplexe, pointa l'avant de lui en disant : « Tout le monde, voyez-vous cela... Je n'ai jamais rien vu de tel dans les 7 millions de mondes auparavant... »
+
+Avant qu'il ne puisse terminer sa phrase, un grondement tonitruant retentit là où il pointait. Le bruit se rapprochait et attira l'attention de tous. Les yeux du cultivateur Corporel Yang s'écarquillèrent, pétris de terreur !
+
+Un orage de plus de 100 000 pieds de large faisait rage devant eux. Avant même qu'il ne les atteigne, ils pouvaient déjà voir d'innombrables éclairs ressemblant à de petits serpents argentés s'agitant sur les pourtours. Le fracas du tonnerre était assourdissant !
+
+« Qu'est-ce que c'est que ça ?! Fuyez ! » Les cultivateurs devinrent livides. Ils sentirent leur cuir chevelu s'engourdir et tentèrent de battre en retraite. Quelques esprits avisés tentèrent de se téléporter ; le cultivateur Corporel Yang en faisait partie !
+
+Cependant, ils furent trop lents. En un instant, l'orage accéléra brusquement et les encercla. Même le cultivateur Corporel Yang fut expulsé de sa téléportation et aspiré dans la tempête.
+
+Leurs cris parurent insignifiants face au fracas du tonnerre... Les cultivateurs périrent tous !
+
+L'orage balaya les étoiles, et un visage gigantesque se dessina vaguement au sein de la tempête. C'était Wang Lin !
+
+Son visage restait dissimulé dans l'orage alors que celui-ci progressait. Aucun membre du Clan du Tonnerre Dispersé ne put échapper à la mort face à cette tempête !
+
+Un vieil homme Nirvana Scryer du Clan du Tonnerre Dispersé traversait l'espace. Soudain, son corps trembla et il se retourna brusquement. Ses pupilles se rétractèrent, ses yeux remplis d'incrédulité.
+
+Avant qu'il ne puisse fuir, l'orage passa en trombe et l'engloutit dans sa course !
+
+Alors que Wang Lin entamait son massacre, ni les cultivateurs Yin et Yang, ni ceux du Nirvana Scryer ne purent résister à l'orage et furent tous dévorés !
+
+En seulement quelques jours, près de mille cultivateurs avaient été tués par Wang Lin, et tout ce qui se trouvait sur leurs jetons lui appartenait. Il avait également obtenu quatre éclairs de Tonnerre Spirituel complets grâce à eux !
+
+Ces éclairs de Tonnerre Spirituel furent tous absorbés par son œil droit, qui continuait de croître !
+
+Le quatrième jour après que l'orage de Wang Lin eut englouti trois cultivateurs Nirvana Scryer, son jeton indiquant une rétribution divine se mit à trembler alors qu'il s'apprêtait à bouger. Cependant, les vibrations cessèrent net, car quelqu'un d'autre était déjà parti avant lui !
+
+L'orage se contracta violemment pour former un puissant vortex, et Wang Lin en sortit. Ses yeux brillèrent alors qu'il avançait, le jeton à la main, avant de disparaître !

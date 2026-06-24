@@ -1,0 +1,123 @@
+---
+n: 531
+title: Le Domaine Shi
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 531 - Shi Realm
+slug: le-domaine-shi
+---
+« La Terre des Esprits Démoniaques est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare ; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
+
+« Ce qu'on appelle le Début de l'Âme est un état très mystérieux. Une fois qu'un cultivateur entre dans cet état, la vitesse à laquelle il peut comprendre les lois célestes atteint un degré inimaginable. Si ce n'était que là, cela ne serait pas si exceptionnel. Ce qui rend tous les cultivateurs si fous, c'est qu'une fois dans cet état, il y a une chance de pouvoir créer son propre sort céleste en se fondant sur son domaine ! »
+
+« La rumeur raconte que les sorts célestes laissés par le Royaume Céleste ont été créés par de puissants cultivateurs lorsqu'ils atteignaient cet état... »
+
+Alors que Wang Lin volait, ses yeux s'illuminèrent. Après avoir parcouru tous les souvenirs de Lou Yun, il avait une idée assez précise de cette terre.
+
+« Il sera très difficile d'obtenir un ancien esprit démoniaque. D'après les souvenirs de Lou Yun, bien que ce lieu existe depuis des centaines de milliers d'années et ne s'ouvre que tous les 5 000 ans, le nombre de cultivateurs ayant réussi à obtenir un ancien esprit démoniaque est bien trop faible. La rumeur prétend qu'en ces innombrables années, seules dix personnes ont réellement obtenu un ancien esprit démoniaque.
+
+La seule façon d'en obtenir un est de s'illustrer par ses accomplissements !
+
+Chaque pays ne possède qu'un seul ancien esprit démoniaque. Ces esprits ne sont contrôlés par personne et constituent les symboles de leurs pays respectifs. Ils évoluent une fois tous les 100 000 ans, et si l'un d'eux fusionne avec quelqu'un avant son évolution, il faudra un million d'années pour qu'un nouveau se forme.
+
+Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays du Démon Céleste n'est né que voici 100 000 ans et possède le rang le plus bas.
+
+L'ancien démon du Pays de la Destruction Nulle n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
+
+Seuls ceux qui possèdent de grands accomplissements ont la chance de prier devant un ancien esprit démoniaque. Seuls ceux qui ont tué d'innombrables personnes ont la possibilité d'en devenir le maître.
+
+Les anciens esprits démoniaques sont très mystérieux ; peu importe les exploits que les natifs de cette terre accumulent, ils ne peuvent qu'y prier, mais jamais fusionner avec eux. Seuls les étrangers ont le droit de fusionner avec eux.
+
+Quant à la raison de tout cela, nul ne la connaît.
+
+De plus, l'énergie spirituelle démoniaque est la clé de la fusion avec un esprit. Si l'on n'en possède pas assez, même si l'on a l'occasion de fusionner, la tentative échouera.
+
+Par conséquent, cela a engendré le bain de sang qui se produit tous les 5 000 ans lors de l'arrivée des étrangers. Les étrangers doivent tuer car, en tuant, ils pourront absorber toute l'énergie spirituelle démoniaque que les autres ont amassée.
+
+Ce n'est qu'en tuant les autres que ma concurrence diminuera ! »
+
+Wang Lin afficha une expression pensive alors qu'il volait rapidement vers l'endroit où se trouvaient les âmes primaires. Il traversait le ciel tel un météore avant de disparaître à l'horizon.
+
+« Si Lou Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, malgré les 10 % de chances de survie seulement.
+
+Après son retour à la Secte du Fantôme Céleste, il a immédiatement consigné ses 500 ans d'expérience dans la Terre des Esprits Démoniaques. C'est ainsi que Lou Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche !
+
+Lou Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici, il devait rejoindre un pays au plus vite.
+
+C'est le seul moyen d'obtenir des exploits militaires, mais plus important encore, une fois ces exploits acquis, on n'est plus seul. On aura des soldats et des commandants démoniaques à son commandement. C'est la meilleure façon de prendre l'avantage dès le départ !
+
+Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt dans la cité de l'ancien démon et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer !
+
+Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin ! »
+
+Les yeux de Wang Lin s'illuminèrent alors qu'il agitait la main et qu'un cristal apparut dans sa paume. C'était le cristal démoniaque provenant du dantian de Lou Yun. Après avoir examiné le cristal, il réalisa qu'il contenait deux rangs d'énergie spirituelle démoniaque.
+
+« Pas étonnant que ce Lou Yun ait voulu me tuer. Le cristal démoniaque que j'ai absorbé dans la vallée ne contient qu'un seul rang, et en y ajoutant les deux rangs d'ici, cela fera trois rangs !
+
+Cependant, cela a fini par me profiter ! »
+
+Wang Lin ricana tout en se déplaçant à toute vitesse. Son sens divin détectait que les âmes primaires n'étaient pas loin.
+
+Son corps se transforma en un nuage de fumée verte et chargea rapidement. Cependant, une idée lui vint soudainement, et il força son corps à sortir de la fumée verte, le regard pensif.
+
+« Attendez une minute. Dans les souvenirs de Lou Yun, il était dit que lorsqu'on fusionne avec un ancien esprit démoniaque, il y a une chance d'entrer dans l'état appelé Début de l'Âme. Cela me semble familier... Début de l'Âme... Début de l'Âme... Âme... »
+
+Le corps de Wang Lin trembla ; il s'arrêta brusquement, figé dans les airs. Ses yeux brillaient d'un éclat intense. Si quelqu'un l'observait de loin, il verrait ses yeux rayonner si puissamment qu'ils pourraient éclairer une zone de plus de 10 000 pieds.
+
+« Le Domaine Shi ! Se pourrait-il que ce soit le Domaine Shi ?! » Les yeux de Wang Lin devinrent encore plus brillants.
+
+« Ji, Dao, Shi ! » Son cœur battait la chamade.
+
+Après avoir obtenu le Domaine Ji, Wang Lin avait entrepris une recherche effrénée d'informations à son sujet. Sa plus grande découverte provenait d'une grotte située profondément sous une plaine dans la Mer des Démons. Il y avait là une vaste collection de livres anciens, et c'est là qu'il avait trouvé une description détaillée du Domaine Ji.
+
+En cherchant des informations sur le Domaine Ji, il avait également découvert des détails sur les deux autres domaines, tout aussi célèbres !
+
+Le Domaine Dao, le Domaine Shi !
+
+Les yeux de Wang Lin s'illuminèrent et il se plongea dans ses pensées.
+
+« Début de l'Âme... Les trois domaines sont trois sphères d'énergie spirituelle qui existent depuis fort longtemps. Si le Domaine Ji a été capable de transformer l'énergie spirituelle en sens divin, alors les deux autres domaines devraient pouvoir changer également. L'état du Début de l'Âme pourrait-il être un effet du Domaine Shi se transformant en sens divin...
+
+Si le Domaine Ji est la mort, alors le Domaine Shi est la vie. Si le Domaine Shi est converti en sens divin, cela signifie-t-il que mon sens divin aura une vie infinie et ne mourra jamais, ou qu'il sera la création...
+
+Je cultive le domaine de la vie et de la mort du Ciel. Si je peux fusionner les domaines Ji et Shi, en utilisant le domaine Ji pour la mort et le domaine Shi pour la vie, cela achèverait-il mon domaine... » En songeant à cela, Wang Lin esquissa un sourire amer et secoua la tête. Il valait mieux ne pas trop s'emballer, car cela paraissait bien trop irréaliste.
+
+Il laissa échapper un léger soupir et mit cette idée de côté. Peu importe que ce Début de l'Âme soit ce qu'il imaginait, car pour l'instant, cela ne le concernait pas, et y réfléchir davantage était inutile.
+
+La silhouette de Wang Lin s'élança. D'un seul pas, il disparut. Lorsqu'il réapparut, il se trouvait à plus de 5 000 kilomètres de là.
+
+Alors que la silhouette de Wang Lin surgissait dans le ciel, il survolait une plaine. À son apparition, plusieurs entités spectrales volèrent vers lui et l'encerclèrent.
+
+L'une d'elles était une bête Qilin qui rugissait en se déplaçant.
+
+Le sens divin de Wang Lin s'étendit et se concentra sur une fissure noire au sol.
+
+Cette faille mesurait plus de 1 000 pieds de large. Elle semblait avoir été créée par quelqu'un frappant avec une épée volante depuis le ciel. Cependant, un long moment s'était écoulé et la majeure partie s'était refermée, ne laissant plus qu'un interstice de 100 pieds.
+
+L'herbe sauvage recouvrait toute la zone ; à moins de regarder très attentivement, il était difficile de distinguer cette fissure dans le sol.
+
+Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transformèrent en fumée noire et furent aspirées dans son corps, pour ensuite pénétrer dans l'étendard d'un milliard d'âmes situé à l'intérieur de son âme d'origine.
+
+Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
+
+« Selon les souvenirs de Lou Yun, le fantôme céleste est un avatar unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang d'hommes puissants comme guide, et ajoutent l'Âme Naissante d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+
+Lou Yun occupait un rang très élevé au sein de la Secte du Fantôme Céleste. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
+
+Les yeux de Wang Lin devinrent glacials et il agita sa main droite. Deux filaments de gaz gris apparurent soudainement et commencèrent à danser entre ses doigts. D'un coup de doigt, les deux filaments jaillirent vers la fissure au sol.
+
+Ces deux traînées de gaz chargèrent la faille comme deux dragons en furie. Le fantôme céleste se cachait à l'intérieur de cette crevasse. En trahissant son maître, il avait subi des conséquences et, ayant perdu le soutien de l'essence sanguine de son maître, il était extrêmement faible en ce moment.
+
+Mais cette faiblesse n'était que temporaire. S'il pouvait tenir sept jours, il n'aurait plus besoin de l'essence sanguine de son maître. S'il tenait quarante-neuf jours, il retrouverait totalement sa liberté et reprendrait une forme incorporelle. Après cela, il serait libre d'errer partout dans ce vaste monde !
+
+À cet instant, alors qu'il se tapissait dans la fissure, ses yeux s'illuminèrent soudainement ; il se manifesta et bondit sur l'un des filaments de gaz gris.
+
+Cependant, au moment où il bondit, le gaz gris s'effondra brusquement en une multitude de points lumineux. Le fantôme fut surpris et voulut battre en retraite, mais il était trop tard.
+
+Ces éclats de lumière grise se rassemblèrent rapidement, convergeant vers le fantôme.
+
+En un instant, le fantôme céleste fut recouvert de gaz gris. Le spectre poussa un rugissement de rage et recula précipitamment. À ce moment précis, l'autre filament de gaz gris atteignit le fantôme céleste et s'effondra également en éclats de lumière grise.
+
+Puis, ils se rassemblèrent à nouveau, prenant le fantôme comme centre de gravité.
+
+Ainsi, en un laps de temps très court, le fantôme céleste fut totalement enveloppé par ces points de lumière grise.

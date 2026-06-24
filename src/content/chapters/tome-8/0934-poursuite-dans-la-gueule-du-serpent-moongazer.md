@@ -1,0 +1,129 @@
+---
+n: 934
+title: Poursuite dans la gueule du Serpent Moongazer
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 934 - Chasing into the Mouth of the Moongazer Serpent
+slug: poursuite-dans-la-gueule-du-serpent-moongazer
+---
+D'innombrables trésors s'accumulèrent autour de l'Estimé Xuan Bao avant de s'effondrer. À chaque fois qu'un trésor se brisait, un filet de gaz blanc en s'échappait.
+
+En un instant, un riche gaz blanc enveloppa l'Estimé Xuan Bao. Au moment où l'Arsenal Magique de Qing Shui s'approcha, l'Estimé Xuan Bao ouvrit les bras et hurla : « Pouvoir Magique du Nirvana du Vide ! »
+
+Dès qu'il eut prononcé ces quatre mots, le gaz blanc autour de lui jaillit avec frénésie et percuta l'Arsenal Magique de Qing Shui.
+
+Bang, bang, bang, bang !!!
+
+Un choc colossal résonna à travers les étoiles, aggravant l'effondrement. Le vortex de 5 000 kilomètres se déchira soudainement davantage. De nombreux cultivateurs ne purent esquiver assez vite et disparurent dans le vide.
+
+Une fois capté par le vortex formé par l'effondrement de l'espace, il était difficile d'en sortir vivant. Personne n'oserait s'y aventurer sans précaution !
+
+À cet instant, l'espace tremblait violemment, mais cela n'avait aucun effet sur le Serpent Moongazer. Ses yeux étaient injectés de sang ; il haïssait l'Estimé Xuan Bao jusqu'à la moelle pour l'avoir blessé et pour avoir tué d'innombrables petits Serpents Moongazer !
+
+Le bras du Dieu Antique qui s'était lancé avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent Moongazer était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
+
+Simultanément, un rire retentit à travers les étoiles. C'était Maître Flamespark, qui s'était libéré de Wudo Chan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant une zone de milliers de kilomètres de large avec un vortex.
+
+Une riche énergie spirituelle céleste se propagea, remplissant le vortex d'une puissance colossale alors qu'il chargeait vers l'Estimé Xuan Bao !
+
+« Seigneur Céleste Qing Shui, laissez ce vieil homme vous prêter main-forte ! »
+
+Les yeux de Wudo Chan s'illuminèrent et il suivit de près. Il comptait aider l'Estimé Xuan Bao à surmonter cette crise de vie ou de mort !
+
+L'Estimé Xuan Bao sentit son cuir chevelu se crisper. Cette bataille pourrait être la plus périlleuse de sa vie, si l'on ne comptait l'effondrement du Royaume Céleste. Devant lui se tenait Qing Shui, derrière lui le Serpent Moongazer, et au-dessus de lui Maître Flamespark !
+
+Il n'y avait aucune possibilité d'esquive. Face à cette crise imminente, la puissante origine céleste de l'Estimé Xuan Bao jaillit de son corps pour former d'innombrables barrières !
+
+« Si je surmonte cela, j'aurai encore une chance de vivre ! »
+
+Alors que l'énergie d'origine céleste l'enveloppait, le bras du Dieu Antique du Serpent Moongazer frappa. Dans un fracas assourdissant, toutes les couches de barrières d'origine céleste se désintégrèrent.
+
+À ce moment précis, Qing Shui arriva, entraînant avec lui plusieurs éclairs rouges. Après une série de grondements, l'Estimé Xuan Bao cracha immédiatement du sang.
+
+Lorsque les fragments célestes de Maître Flamespark atteignirent leur cible, le corps de l'Estimé Xuan Bao s'effondra. Son âme d'origine fut expulsée et était sur le point de se dissiper, mais une robe dorée l'entourait, compensant constamment les impacts jusqu'à ce qu'elle finisse par éclater !
+
+Ce bouleversement fit s'étendre davantage l'espace déchiré. Plus de dix mille kilomètres d'espace étaient désormais transformés en une zone de destruction pure !
+
+D'innombrables cultivateurs furent aspirés à l'intérieur. Le fourneau du Dieu Antique apparut autour de Wang Lin, changeant constamment de position. Cependant, ses yeux restaient fixés sur le Serpent Moongazer, guettant la moindre opportunité !
+
+À cet instant, le lotus tournait autour de la femme en robe bleue, qui semblait parfaitement indemne. Le cadavre doré à ses côtés allait tout aussi bien et affichait une expression froide.
+
+En contemplant le chaos qui se jouait devant elle, elle poussa un soupir. Elle regarda Wang Lin, un regard complexe traversant ses yeux, et murmura : « Je ne sais pas si le Seigneur me reconnaîtra lors de notre prochaine rencontre... »
+
+Le lotus avait absorbé toute l'aura de mort durant cette bataille. Désormais, cette aura se propageait, donnant l'impression que le lotus était enveloppé d'une brume funeste.
+
+Elle leva sa main de jade, pointa le cadavre doré devant elle et dit doucement : « Libérer le sceau ! »
+
+Dès que ces deux mots furent prononcés, ils semblèrent se matérialiser en deux étranges sceaux qui se posèrent sur le cadavre doré. Ce dernier trembla, les cinq talismans sur sa tête cessèrent de tourner, et ses yeux brillèrent tandis qu'un rugissement de dragon s'échappait de sa bouche.
+
+Son corps s'étendit subitement et, en un éclair, il se mua en un dragon !
+
+C'était un véritable dragon ; ce n'était pas une illusion, il avait chair et sang ! Les écailles du dragon brillaient intensément et, dans un rugissement, il s'élança. La femme en robe bleue soupira et regarda Wang Lin au loin, avant que son corps ne s'estompe progressivement jusqu'à disparaître.
+
+Le dragon doré fonça avec fracas droit vers le champ de bataille ! Sur sa tête flottaient cinq talismans jaunes qui émettaient une aura de suppression.
+
+À son arrivée, le dragon doré brilla et une voix antique résonna à travers le monde.
+
+« Flamme Toxique ! »
+
+L'un des cinq talismans jaunes dégagea instantanément des flammes et, en un clin d'œil, le dragon fut encerclé par une mer de feu. Ces flammes étaient empoisonnées !
+
+La puissance de ce poison était inimaginable. En se rapprochant, il enveloppa l'âme d'origine presque dissipée de l'Estimé Xuan Bao qui tentait de s'enfuir.
+
+Cependant, à cet instant précis, un craquement retentit provenant du bois géant immuable et une immense fissure s'ouvrit.
+
+Dans un éclat de lumière verte, un homme en sortit. Vêtu d'une robe verte, il avait une prestance remarquable. En avançant, il sourit et se rapprocha instantanément du dragon doré. Puis, sa main forma un sceau et pointa vers la créature.
+
+Un bois géant illusoire apparut soudainement autour du dragon et s'abattit sur lui !
+
+« Ce vieil homme est le neuvième ancien des familles antiques d'Allheaven. Comment pourrais-je vous laisser vous échapper ? »
+
+Le dragon doré fut bloqué par le bois illusoire, mais ses yeux se mirent à briller. Il ouvrit la gueule et de la terre noire en jaillit, chargée d'une aura de mort extrêmement puissante !
+
+« Terre Enfouie ! »
+
+L'homme à la robe verte, Yi Muzi, transforma sa main droite en paume et frappa le vide. D'innombrables grondements tonnèrent, créant une tempête. Il fit un pas en avant en agitant le bras, faisant apparaître de gigantesques morceaux de bois derrière lui. Ces pièces de bois, étroitement liées, formèrent immédiatement une barrière dense.
+
+« Vous ne pouvez pas vous échapper ! » Avec un sourire, Yi Muzi agita sa main droite. Les morceaux de bois géants s'élancèrent, forçant le dragon doré à reculer sans cesse.
+
+À ce moment-là, Wudo Chan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Flamespark profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
+
+Parallèlement, le bras du Dieu Antique formé par le Serpent Moongazer arriva également. Cependant, le Serpent Moongazer avait perdu toute raison. Non seulement il haïssait l'Estimé Xuan Bao, mais il en avait fait payer à tous les autres.
+
+Au moment où le bras antique atteignit sa cible, le Serpent Moongazer ouvrit la gueule et aspira l'air avec une telle force que son propre corps en trembla. Le bras du Dieu Antique balaya tout sur son passage pour saisir directement le dragon doré.
+
+Saisissant le dragon, le bras antique recula rapidement pour le projeter dans la gueule du Serpent Moongazer. Pour la créature, tuer ce cultivateur qui l'avait blessée ne suffisait pas à apaiser sa rage ; elle allait lentement absorber et digérer sa force vitale !
+
+Après avoir dévoré le dragon doré, le Serpent Moongazer perdit toute lucidité résiduelle. Au lieu de poursuivre sa route, il se dirigea vers le vortex formé par l'effondrement de l'espace.
+
+Pénétrer dans le vortex signifiait s'enfoncer dans le vide sous l'espace effondré !
+
+Ce changement soudain fit briller les yeux de Qing Shui. Il était déterminé à capturer l'âme d'origine de l'Estimé Xuan Bao pour découvrir la vérité sur le bouleversement du Royaume Céleste.
+
+Voyant le dragon doré et l'Estimé Xuan Bao être dévorés, il utilisa sans hésiter la force d'aspiration du serpent et chargea vers sa gueule béante.
+
+Qing Shui n'était pas seul. Wudo Chan, appartenant au Palais Xuan et entretenant de bonnes relations avec l'Estimé Xuan Bao, serra les dents et chargea lui aussi dans la gueule du monstre.
+
+Les yeux de Wang Lin s'illuminèrent. Il attendait cette opportunité depuis longtemps. Sans hésiter, le tonnerre jaillit de son corps et, profitant de sa vitesse fulgurante, il chargea le Serpent Moongazer.
+
+Maître Flamespark hésita un instant tandis que les yeux du vieil homme Yi Muzi s'animaient. Il semblait avoir un plan alors qu'il pénétrait à son tour dans la gueule du serpent.
+
+À cet instant, le corps gigantesque du Serpent Moongazer était presque entièrement entré dans la fissure et sa gueule s'était déjà refermée. Il était sur le point de disparaître de cet espace.
+
+Wang Lin se rapprocha du Serpent Moongazer et atterrit sur son immense corps. Il s'apprêtait à bondir pour pénétrer à l'intérieur.
+
+Maître Flamespark vit naturellement Wang Lin. Il soupira et ne perdit plus de temps. Il tendit la main vers le vide, un fragment céleste de la taille d'un poing apparut dans sa paume et il le lança vers Wang Lin.
+
+« Vous avez grandement contribué à l'effort. Cet objet devrait vous protéger. Grâce à lui, je pourrai retrouver votre position et vous sauver, ainsi que Qing Shui ! »
+
+Il renonça à entrer. Après tout, il devait encore présider la guerre entre Allheaven et l'Alliance. Quant à savoir pourquoi Wang Lin s'enfonçait dans le Serpent Moongazer, Maître Flamespark ne le comprenait pas ; il imaginait seulement que le jeune homme voulait sauver Qing Shui.
+
+« Peut-être que cet enfant a d'autres intentions ! »
+
+Lorsque Wang Lin attrapa le fragment céleste qui rétrécissait, il sentit immédiatement l'aura d'une Bête de Tonnerre. En plus de la puissante âme primaire scellée à l'intérieur, la Bête de Tonnerre était là !
+
+« Merci, Senior ! » À peine eut-il prononcé ces mots que son corps disparut, s'engouffrant dans le Serpent Moongazer.
+
+À cet instant précis, le Serpent Moongazer sombra complètement dans le vortex. Cependant, sa masse était telle qu'il agrandit considérablement le vortex, provoquant un effondrement encore plus vaste.
+
+Alors que l'espace s'effondrait dans un fracas assourdissant, Maître Flamespark soupira et se retourna pour chercher les cultivateurs d'Allheaven dispersés.

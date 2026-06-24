@@ -1,0 +1,83 @@
+---
+n: 1445
+title: Plateforme de second ordre
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1445 - Second Order Platform
+slug: plateforme-de-second-ordre
+---
+Neuf cultivateurs se tenaient sur neuf plateformes, tous des hommes. Sept d'entre eux étaient des vieillards, tandis que les deux autres semblaient avoir environ quarante ans. Leurs regards étaient empreints d'une intention meurtrière.
+
+L'odeur du sang qui avait envahi cette terre scellée dès leur entrée était omniprésente.
+
+Leurs neuf plateformes étaient presque entièrement teintées de rouge et saturées de sang ! Ce qui était encore plus choquant, c’est qu'une multitude d'âmes flottaient sur ces plateformes, les visages tordus par la douleur, poussant des cris plaintifs.
+
+Aucun de ces neuf n'était faible : cinq se situaient autour du quatrième niveau du Fléau Céleste et deux au cinquième. Parmi les vieillards, l'un d'eux était particulièrement frappant avec sa chevelure rouge sang. Une faible Flamme Joss émanait de lui ; il était clairement quelqu'un qui avait déjà franchi un pas vers le troisième niveau ! Cependant, il était évident qu'il avait bénéficié de nombreux soutiens extérieurs pour en arriver là, car sans une grande quantité de Flammes Joss, il ne pourrait achever la dernière étape. Son corps dégageait une aura de majesté, témoignant de son rang élevé et du fait qu'il ne se montrait que rarement en public. Le dernier était un érudit d'âge moyen tenant un éventail en plumes. Ses yeux se plissèrent, laissant poindre une lueur singulière. Il n'était qu'au troisième niveau du Fléau Céleste, ce qui signifiait que sa présence ici témoignait de ses capacités extraordinaires. Ce qui stupéfia le plus l'assistance fut la taille des plateformes : elles mesuraient presque toutes 10 000 pieds de large, mais celle de l'homme ayant un pied dans le troisième niveau faisait 20 000 pieds, soit le double des autres. « Pas même une plateforme de second ordre, et pourtant ils convoitent les trésors d'ici... » Le vieil homme qui était à un pas du troisième niveau observa calmement le groupe de Wang Lin.
+
+Wang Lin plissa les yeux en fixant la plateforme de ce vieillard, mais resta silencieux. Les cultivateurs environnants gardaient également le silence, ayant manifestement remarqué la puissance de Wang Lin. Ils commencèrent à se regrouper, Wang Lin en tête.
+
+Le regard du vieil homme se posa sur Wang Lin. Non seulement lui, mais les huit autres cultivateurs le fixèrent avec une intention meurtrière. Une bataille sanglante semblait imminente.
+
+Cependant, à cet instant précis, l'érudit d'âge moyen au troisième niveau du Fléau Céleste fit un pas en avant et murmura quelque chose à l'oreille du vieillard. Ce dernier plissa les yeux, scruta le sol puis la plateforme située sur le dos de l'ancien dieu, avant que son regard ne balaie le groupe de Wang Lin.
+
+« Toi, viens ici ! » Le vieil homme pointa du doigt l'un des cultivateurs aux côtés de Wang Lin. C'était un homme qui avait réussi à s'emparer d'une plateforme ; sous le doigt accusateur du vieillard, son visage pâlit.
+
+Après une hésitation, il n'osa décliner l'ordre. Il s'avança et joignit les mains en signe de respect devant le vieil homme. « Ce junior salue l'Illustre Ling Dong ! » dit-il respectueusement.
+
+« Oh ? Tu connais donc ce vieil homme ! » Le vieillard ne montra aucun signe de colère.
+
+Le cultivateur répondit promptement : « Le nom de l'Illustre Ling Dong est célèbre dans mon Système Stellaire Antique, il est donc naturel que ce junior le connaisse. »
+
+« Va briser le sceau sur le dos de l'ancien dieu. Si tu parviens à en briser 10 %, je te laisserai la vie ! » ordonna lentement le vieillard, mais ses paroles étaient empreintes d'une autorité irrésistible.
+
+L'expression du cultivateur changea aussitôt, trahissant son tourment intérieur. Après un instant, il hocha la tête et prit une profonde inspiration. Ses mains formèrent un sceau et, entamant l'incantation d'un sort, il chargea vers la plateforme sur le dos de l'ancien dieu.
+
+En un éclair, le cultivateur atteignit l'ancien dieu et fit face à la plateforme enveloppée d'une brume rouge. Après un long moment, il serra les dents, sa main droite traça un sceau et une ombre apparut. Cette ombre prit la forme d'une main droite qui frappa immédiatement la brume. Celle-ci rugit et se métamorphosa instantanément en une gueule béante, fonçant à une vitesse inimaginable sur le cultivateur pour le dévorer.
+
+Sans aucune possibilité d'esquive, un cri déchirant retentit. Le cultivateur fut englouti et entraîné dans la brume. Les hurlements continuèrent de résonner, terrifiant l'assistance. « C'est bel et bien un esprit dao ! J'ignore seulement son rang ! » s'exclama le vieillard qui était à un pas du troisième niveau, ravi. Il fit un pas vers la brume rouge et balaya l'air de sa main droite.
+
+Alors que sa main allait frapper, un nouveau rugissement jaillit de la brume. Celle-ci tourbillonna violemment, prit la forme d'une ombre démoniaque et projeta des volutes de brume rouge. Cette dernière fut extrêmement rapide et chargea le vieillard. L'impact produisit un fracas tonitruant et le visage du vieil homme se décomposa soudainement. Il recula brusquement de plusieurs centaines de pieds avant de s'immobiliser.
+
+« Au moins de rang 6 ! Malheureusement, elle est protégée par une restriction ! »
+
+« C'est la Restriction de l'Âme Antique ! » Les yeux de l'érudit d'âge moyen au troisième niveau du Fléau Céleste s'illuminèrent. En parlant, un autre homme d'âge moyen parmi les sept restants plissa les yeux, comme s'il avait saisi un indice.
+
+L'Illustre Ling Dong observa la brume rouge sur la plateforme et déclara : « La Restriction de l'Âme Antique... Ce vieil homme ne connaît pas bien les restrictions. Quelle est votre confiance pour la briser ? »
+
+L'érudit hésita un instant : « Eh bien... seulement 20 %... »
+
+L'Illustre Ling Dong fronça les sourcils : « 20 % ! »
+
+Wang Lin observait la scène avec calme. Il avait remarqué la restriction sur la brume rouge dès son arrivée. Il s'agissait effectivement de la Restriction de l'Âme Antique, mais elle était entremêlée d'autres entraves. Ce ne serait pas une mince affaire ! Il resta silencieux, voulant voir comment ces neuf individus tenteraient de la briser.
+
+Tandis que l'Illustre Ling Dong méditait, un vieil homme vêtu de vert s'avança. Il joignit les mains et dit : « Illustre Ling Dong, je suis assez confiant pour briser cette restriction, mais une fois celle-ci levée... » Il laissa sa phrase en suspens en fixant le vieillard.
+
+L'Illustre Ling Dong répondit : « Si tu parviens à briser la restriction, tu pourras prétendre à tous les autres trésors, hormis l'esprit dao ! De plus, tu pourras te saisir de la majeure partie des richesses que ces petits cultivateurs ont obtenues sur les plateformes. »
+
+Les yeux du vieil homme en vert pétillèrent d'extase : « Soyez assuré, ce vieux bonhomme étudie les restrictions depuis l'enfance. D'autres n'oseront peut-être pas l'affirmer, mais il n'est aucune restriction qu'il ne puisse briser ! Même le collègue cultivateur Xiao Jing n'est pas mon égal ! »
+
+Son regard se tourna vers l'érudit. Ce dernier esquissa un sourire et joignit les mains : « Ce que le Senior Gao affirme est exact ; je ne suis qu'un novice comparé à vous, Senior. »
+
+Le vieil homme en vert éclata d'un rire fier : « Les restrictions sont l'essence même des formations. Je les étudie depuis près de 10 000 ans et j'en ai percé les mystères. J'ai développé une méthode capable de briser n'importe quelle restriction ! De plus, la barrière dans cette brume n'est pas une Restriction de l'Âme Antique. Je me suis plongé dans cet art et je n'ai jamais entendu parler d'une telle chose ! » Aussitôt, il chargea vers la brume rouge. À quelques dizaines de pieds, sa main droite traça un sceau qu'il projeta avec force, déclenchant des éclats de lumière de restriction.
+
+L'instant d'après, une rune gigantesque apparut. Formée de pure énergie de restriction, elle brillait d'un éclat intense. Sa puissance semblait capable de défier la brume rouge, et les rugissements provenant de l'intérieur s'apaisèrent. Comme sous l'effet d'une bourrasque, la brume rouge recula légèrement.
+
+Plus fier encore, le vieil homme pointa la rune en avant dans un rugissement. La rune fonça sur la brume.
+
+« Ce vieux bonhomme... » Alors qu'il hurlait, la rune chargea. Mais avant qu'il n'ait pu achever sa phrase, la brume rouge se mua de nouveau en une gueule béante. Avec une rapidité fulgurante, elle dévora la rune ainsi que le vieil homme en vert.
+
+Ses paroles inachevées se muèrent en un cri de douleur misérable qui résonna à travers le monde.
+
+Le visage de l'Illustre Ling Dong s'assombrit. Il n'aurait jamais imaginé qu'un homme si plein d'assurance puisse connaître un tel échec.
+
+Un gloussement s'éleva d'un cultivateur aux côtés de Wang Lin. C'était le cultivateur obèse. Son rire attira immédiatement l'attention de l'Illustre Ling Dong.
+
+L'obèse fit rapidement quelques pas devant Wang Lin et salua l'Illustre Ling Dong en joignant les mains. Un sourire aux lèvres, il dit : « Le junior Xu Fu salue l'Illustre Ling Dong. Ce junior est assez confiant pour briser la restriction. Je n'ai aucun lien avec les personnes présentes ; nous avons simplement été envoyés ici ensemble ! J'ai aussi un secret à confier au Senior. Parmi ce groupe, l'un d'entre eux est un Être Éthéré... »
+
+« Si tu parviens à briser la restriction de cette brume, je te laisserai la vie, je te donnerai des trésors et tu pourras me suivre ! » coupa l'Illustre Ling Dong. Le secret ne l'intéressait guère ; seul l'esprit dao comptait.
+
+« Soyez assuré, j'observe cette brume depuis longtemps. Bien que je ne sois pas certain à 100 %, avec votre aide, Senior, ma confiance est de 70 % ! » Ravi, le cultivateur obèse se retourna pour lancer un regard glacial à Wang Lin. Il esquissa un sourire méprisant et chargea vers la brume rouge. Il s'arrêta à cent pieds de distance, empreint de prudence. Ses mains manipulèrent rapidement un abaque qui finit par se briser, libérant les perles qui se transformèrent en un vortex de restriction. Puis, prenant une profonde inspiration, il chargea la brume.
+
+« Chercher la mort ! » Wang Lin le regarda calmement, un ricanement intérieur aux lèvres. Il leva ensuite les yeux vers l'érudit au éventail et y décela un regard de dédain.
+
+« Bien que cet homme ne soit qu'au troisième niveau du Fléau Céleste, sa capacité à côtoyer ces puissances prouve sa grande ruse ! Peut-être convoite-t-il lui aussi ce qui se cache dans la brume... » L'esprit de Wang Lin était aussi sournois qu'un démon, et une restriction apparut silencieusement sous son pied...

@@ -1,0 +1,106 @@
+---
+import Base from '~/layouts/Base.astro';
+import { getBooksSorted, getChaptersSorted, chapterSlug } from '~/lib/data';
+
+export async function getStaticPaths() {
+  const [books, chapters] = await Promise.all([
+    getBooksSorted(),
+    getChaptersSorted(),
+  ]);
+
+  return books.map(b => {
+    const bookNum = b.data.book;
+    const bookChapters = chapters.filter(c => c.data.book === bookNum);
+    return {
+      params: { book: String(bookNum) },
+      props: { book: b, chapters: bookChapters },
+    };
+  });
+}
+
+const { book, chapters: bookChapters } = Astro.props;
+const base = import.meta.env.BASE_URL;
+---
+
+<Base title={`Tome ${book.data.book} — ${book.data.title}`} active="chapitres">
+  <header class="page-header">
+    <p class="breadcrumb">
+      <a href={`${base}chapitres/`}>Chapitres</a>
+      <span class="sep">›</span>
+      <span>Tome {book.data.book}</span>
+    </p>
+    <h1 class="page-title">Tome {book.data.book}</h1>
+    <h2 class="page-subtitle">{book.data.title}</h2>
+    <p class="page-meta">{bookChapters.length} chapitres</p>
+  </header>
+
+  <div class="chapter-list">
+    {bookChapters.map(c => (
+      <a href={`${base}lecture/${chapterSlug(c)}/`} class="chapter-row">
+        <span class="chapter-n">{String(c.data.n).padStart(4, '0')}</span>
+        <span class="chapter-title">{c.data.title}</span>
+        {c.data.en && <span class="chapter-en">{c.data.en}</span>}
+        <span class="chapter-arrow">→</span>
+      </a>
+    ))}
+  </div>
+</Base>
+
+<style>
+.page-header { padding: 16px 0 32px; }
+.breadcrumb {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .15em;
+  text-transform: uppercase; color: var(--ink-4); margin: 0 0 16px;
+}
+.breadcrumb a { color: var(--ink-3); }
+.breadcrumb a:hover { color: var(--ink-1); }
+.breadcrumb .sep { margin: 0 6px; }
+.page-title {
+  font-family: 'Cinzel', serif; font-size: 14px; letter-spacing: .25em;
+  text-transform: uppercase; color: var(--crimson-2); margin: 0 0 4px;
+}
+.page-subtitle {
+  font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
+  color: var(--ink-1); margin: 0 0 8px; letter-spacing: .03em;
+}
+.page-meta {
+  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em;
+  text-transform: uppercase; color: var(--ink-4); margin: 0;
+}
+
+.chapter-list {
+  display: flex; flex-direction: column;
+  border: 1px solid var(--line); border-radius: var(--r-lg); overflow: hidden;
+}
+.chapter-row {
+  display: grid;
+  grid-template-columns: 64px 1fr auto auto;
+  align-items: center; gap: 16px;
+  padding: 12px 20px;
+  border-bottom: 1px solid var(--line);
+  text-decoration: none;
+  transition: background .15s;
+}
+.chapter-row:last-child { border-bottom: 0; }
+.chapter-row:hover { background: var(--bg-2); text-decoration: none; }
+.chapter-n {
+  font-family: 'Cinzel', serif; font-size: 12px; letter-spacing: .1em;
+  color: var(--crimson-2);
+}
+.chapter-title {
+  font-family: 'Noto Serif', serif; font-size: 15px; color: var(--ink-1);
+}
+.chapter-en {
+  font-family: 'Noto Serif', serif; font-size: 12px; font-style: italic;
+  color: var(--ink-4); white-space: nowrap;
+}
+.chapter-arrow { color: var(--ink-4); font-size: 14px; }
+
+@media (max-width: 640px) {
+  .chapter-row {
+    grid-template-columns: 48px 1fr auto;
+    gap: 8px; padding: 10px 12px;
+  }
+  .chapter-en { display: none; }
+}
+</style>

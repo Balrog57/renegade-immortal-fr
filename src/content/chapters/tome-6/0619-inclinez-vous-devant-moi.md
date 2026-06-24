@@ -1,0 +1,123 @@
+---
+n: 619
+title: "Inclinez-vous devant moi !"
+book: 6
+bookTitle: Arriving on Tian Yun
+en: "Chapter 619 - Get Down For Me!"
+slug: inclinez-vous-devant-moi
+---
+Chapitre 619 - Inclinez-vous devant moi !
+
+Les cultivateurs de l'Union de Culture s'envolèrent vers la Tribu du Raffinement des Âmes.
+
+Devant eux s'étendait un nuage noir et infini. Cette masse était si épaisse qu'il était impossible d'y voir clair ; sans même parler de la vue, leurs sens divins étaient instantanément repoussés par elle. En réalité, s'ils avaient été le moins peu vigilants, leurs sens divins auraient été dévorés par les fragments d'âmes qui s'y trouvaient !
+
+Des hurlements fantomatiques et stridents, capables de faire chavirer les cœurs, émanaient de l'intérieur du nuage noir !
+
+L'obscurité était telle qu'il était impossible de discerner ce qui s'y cachait, et cette immense masse sombre aurait stoppé la plupart des gens sur leur chemin !
+
+L'expression de l'homme en or se ternit en voyant cela. Il laissa échapper un reniflement froid : « L'endroit où se trouve Wang Lin n'est protégé que par cette unique couche. Une fois cette barrière franchie, nous pourrons facilement capturer cet enfant ! »
+
+Plusieurs personnes l'accompagnaient. Toutes affichaient des visages sombres et restaient muettes, les yeux fixés sur le nuage ténébreux.
+
+Une pointe de dérision apparut dans les yeux de Sun Yunshan. Il avait appris quelques détails sur cette affaire par l'intermédiaire de sa sœur. La plupart des petites équipes pensaient qu'il s'agissait d'une occasion facile de gagner du mérite, car l'Ancêtre avait envoyé un gardien céleste. Tous se battaient pour saisir cette chance.
+
+Le messager qui avait rapporté la position de Wang Lin avait certes mentionné que le lieu était entouré d'un puissant nuage, mais ceux qui convoitaient ce mérite n'y avaient pas prêté attention. Ils étaient convaincus que rien ne poserait problème en présence du gardien céleste.
+
+Sun Yunshan regarda autour de lui. En comptant lui-même, ils étaient près de vingt. La plupart se situaient au début du stade de la Transformation de l'Âme, et seuls quelques-uns atteignaient le milieu de ce stade. Il n'y avait qu'un seul cultivateur au stade tardif de la Transformation de l'Âme : l'Oncle Feng, qui était resté silencieux durant tout ce temps.
+
+En regardant le vieil homme aux cheveux gris non loin de lui, Sun Yunshan ne ressentit que de la tristesse. Il s'agissait de l'Oncle Martial Feng. C'était le frère apprenti du père de Sun Yunshan, et il était venu ici pour protéger ce dernier.
+
+Cependant, il n'aurait jamais pu imaginer que sa petite sœur les aurait secrètement suivis... le plongeant ainsi dans une situation aussi désespérée. L'Ancêtre avait même effacé la mémoire de l'Oncle Martial Feng à l'aide d'un sort secret pour en faire une marionnette. Une graine céleste lui ayant été implantée par l'Ancêtre, il n'avait plus aucun contrôle sur sa propre vie ou sa mort.
+
+L'homme en or s'écria : « Ce nuage noir n'est qu'une ruse ! Numéro 10, va briser ce nuage pour moi ! »
+
+Derrière l'homme en or, un cultivateur au début du stade de la Transformation de l'Âme afficha une expression disgracieuse. Il hésita, mais n'osa désobéir. Il poussa un soupir et déclara respectueusement : « Subordonné obéit ! »
+
+Le cultivateur serra les dents et chargea vers le nuage noir. Cependant, à mesure qu'il approchait, la pression capable d'ébranler l'âme originelle devenait de plus en plus intense. Les hurlements fantomatiques jaillissaient également comme des sorts de vagues sonores.
+
+À dix mille pieds du nuage, le cultivateur fut incapable de progresser davantage. Il sentit que s'il forçait le passage, il mourrait à coup sûr !
+
+Voyant le cultivateur s'arrêter, le visage de l'homme en or se mua en hostilité. Il hurla d'un ton glacial : « Numéro 10, oses-tu désobéir à un ordre ?! »
+
+En entendant cela, le visage du cultivateur s'adoucit légèrement. Il soupira et pensa : « Peu importe. Cette vie qui ressemble à peine à une existence humaine doit prendre fin. Si je peux mourir ici, je serai délivré de cette torture ! »
+
+Il prit une profonde inspiration, fit un pas en avant et chargea tel un météore !
+
+En un clin d'œil, il pénétra dans la zone des dix mille pieds du nuage noir, et à cet instant précis, le nuage bougea soudainement.
+
+La masse sombre se souleva comme des vagues déchaînées et prit des formes de champignons en s'étendant vers l'extérieur. Les hurlements stridents redoublèrent d'intensité, résonnant à travers le ciel. Alors que les nuages tourbillonnaient, une série de rugissements capables de faire trembler les cieux jaillit de l'intérieur. Simultanément, le nuage noir se transforma rapidement en une gueule béante capable d'engloutir le monde. Il dévora le cultivateur sans la moindre hésitation, ne laissant aucune trace de lui.
+
+Presque tous les membres de l'Union de Culture furent frappés de stupeur. Bien qu'ils fussent encore loin, ils eurent l'impression d'être juste à côté du nuage noir. Leurs vêtements se retrouvèrent instantanément trempés de sueur. C'était comme si le numéro 10 n'était pas le seul à avoir été dévoré par cette obscurité.
+
+Les yeux calmes du gardien céleste s'illuminèrent soudainement alors qu'il observait attentivement le nuage, affichant une expression perplexe.
+
+« Capitaine... Capitaine, ce nuage noir... » Un homme aux côtés de l'homme en or était terrifié.
+
+L'expression de l'homme en or devint encore plus sombre. Il pointa du doigt le vieil homme non loin et ordonna : « Numéro 3, à toi ! »
+
+Ce vieillard aux cheveux blancs était l'oncle martial de Sun Yunshan. Son visage était empreint de confusion, mais sans dire un mot, il s'avança.
+
+Sun Yunshan serra les poings. En regardant l'Oncle Martial Feng partir, son cœur saigna.
+
+En quelques enjambées seulement, le vieil homme atteignit la limite des dix mille pieds du nuage noir. Juste au moment où il allait poursuivre sa course, le nuage accéléra et tourbillonna brusquement. En un instant, il se fendit, laissant apparaître un passage dégagé au milieu.
+
+Un jeune homme au visage froid sortit pas à pas. Il jeta un regard au vieil homme avant de scruter les membres de l'Union de Culture. Puis, d'un ton calme, il déclara : « Mon Ancêtre vous souhaite la bienvenue ! »
+
+L'expression de l'homme en or changea radicalement et il hurla : « Numéro 3, tue-le ! Nous pouvons entrer par ce passage ! »
+
+Le jeune homme au visage froid n'était autre que Treize. Son expression restait neutre, dénuée de toute émotion. Quant au vieillard, il se précipita vers Treize en un éclair.
+
+Cependant, alors qu'il allait le rattraper, une volute de nuage noir jaillit soudainement. Elle enveloppa le vieil homme et le tira violemment dans l'obscurité. Le vieillard disparut sans laisser de trace.
+
+Cette scène frappa les membres de l'Union de Culture comme un coup de massue au cœur. Pour Sun Yunshan, ce fut d'autant plus douloureux que ses yeux devinrent rouges de rage et de chagrin.
+
+Treize tendit sa main droite et dit : « Par ici ! »
+
+Sur ce, il fit volte-face et s'éloigna.
+
+L'homme en or était empreint d'incertitude. Il regarda instinctivement l'homme vêtu de noir, ce qui apaisa un peu son cœur. Il ricana : « Allons-y. Je veux voir quels tours Wang Lin a encore dans son sac ! »
+
+Le groupe s'élança rapidement, suivant le chemin ouvert par le nuage noir. À mesure qu'ils avançaient, l'ouverture derrière eux se refermait lentement sous l'effet de la masse sombre.
+
+Après un court vol, l'homme en or s'arrêta brusquement. Ses yeux étaient écarquillés de choc et son visage devint extrêmement laid. Derrière lui, tous les autres restèrent pétrifiés par ce qui se dressait devant eux.
+
+Ce qui apparaissait à leurs yeux était une immense tribu peuplée d'une multitude de gens. À cet instant précis, tous levèrent la tête et les fixèrent avec des regards glacials.
+
+Les yeux de ces innombrables individus convergèrent vers les membres de l'Union de Culture. Bien que leur niveau de culture fût élevé, ils n'en furent pas moins stupéfaits.
+
+Au centre de la tribu se trouvait un espace ouvert d'un rayon de cinq kilomètres. Au milieu trônait une haute tour. Une puissance majestueuse émanait de cette structure et enveloppait toute la zone. Sous cette pression, les cultivateurs avaient l'impression de ne plus pouvoir respirer.
+
+Treize se tint à la lisière de l'espace vide et dit respectueusement : « Ancêtre, j'ai amené les invités ! »
+
+« Des compagnons de culture sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous ? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu du Raffinement des Âmes.
+
+Wang Lin perfectionnait progressivement le sortilège du Son du Démon Céleste tout en renforçant l'empreinte sur le démon dispersé. À cet instant, le sortilège fut propagé par le son. Chaque membre de l'Union de Culture, à l'exception de l'homme en noir, sentit la magie envahir son esprit.
+
+Le niveau de culture de l'homme en noir étant plutôt élevé, il ne se perdit pas dans ce tumulte sonore. Ses yeux brillèrent intensément alors qu'il fixait la tour, son visage révélant une nouvelle fois perplexité et incertitude.
+
+L'âme originelle de l'homme en or trembla. Ses yeux trahirent involontairement une pointe de confusion et il murmura malgré lui : « Vous n'avez pas offensé... »
+
+« Si tel est le cas, vous êtes bien trop présomptueux de venir me chercher des ennuis ! » La voix de Wang Lin était désormais chargée d'une intention glaciale.
+
+À cet instant, tous les membres de la Tribu du Raffinement des Âmes crièrent à l'unisson : « Impudent ! »
+
+Ce cri collectif se fondit avec les lamentations du nuage noir. Lorsqu'il atteignit les oreilles des cultivateurs, il fut plus assourdissant qu'un coup de tonnerre, comme si d'innombrables lames acérées s'étaient plantées dans leurs cœurs. Leurs oreilles bourdonnèrent et leurs âmes originelles furent secouées !
+
+Du sang jaillit de la bouche de certains ayant un faible niveau de culture ; il était évident que leurs entrailles avaient été ébranlées et leurs âmes originelles blessées. Ce cri parvint néanmoins à éclaircir l'esprit de tous.
+
+L'expression de l'homme en or changea radicalement. Il recula instinctivement, le visage déformé par la terreur. Si lui était dans cet état, les cultivateurs environnants étaient dans un état bien pire. Chacun d'eux eut un souffle court, le cœur battant la chamade, réalisant que la situation était critique.
+
+Quant à Sun Yunshan, l'excitation qui brûlait en lui surpassait largement le choc. Il criait intérieurement : « C'est lui, c'est vraiment lui ! »
+
+Alors qu'il reculait, l'homme en or hurla : « Gardien Céleste, attaque ! »
+
+À peine eut-il parlé que les yeux de l'homme en noir brillèrent d'un éclat soudain. Il fit un pas et apparut au-dessus de la tour en un instant. Sa main droite traça un sceau qu'il abattit avec force !
+
+Ce coup semblait posséder la puissance nécessaire pour soulever une montagne. Un symbole doré apparut dans le ciel et fonça vers la tour.
+
+Un ricanement froid s'éleva de l'intérieur de la tour, puis la silhouette de Wang Lin en émergea. Sans même lever les yeux, il libéra une lumière noire de sa main qui atteignit la voûte céleste. Il dit calmement : « Inclinez-vous devant moi ! »
+
+Dès que sa main fut tendue, des fissures apparurent sur le symbole doré. Après une série de craquements stridents, l'emblème s'effondra. L'expression de l'homme en noir changea brusquement et, pour la première fois, son visage fut pétrifié par la terreur. Il voulut esquiver, mais son corps fut immédiatement saisi par une force capable de dévorer la force vitale. Il fut impitoyablement arraché au ciel.
+
+Dans un fracas retentissant, le corps de l'homme en noir s'écrasa violemment au sol.

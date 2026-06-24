@@ -1,0 +1,232 @@
+---
+import Nav from '~/components/Nav.astro';
+import Footer from '~/components/Footer.astro';
+import '~/styles/global.css';
+import type { ChapterMenuItem } from '~/lib/data';
+
+interface Props {
+  title: string;
+  chapterN: number;
+  bookTitle: string;
+  book: number;
+  prev: { slug: string; title: string; n: number } | null;
+  next: { slug: string; title: string; n: number } | null;
+  menu: ChapterMenuItem[];
+}
+
+const { title, chapterN, book, prev, next, menu } = Astro.props;
+const base = import.meta.env.BASE_URL;
+
+const menuByBook = new Map<number, { title: string; items: ChapterMenuItem[] }>();
+for (const c of menu) {
+  if (!menuByBook.has(c.book)) menuByBook.set(c.book, { title: c.bookTitle, items: [] });
+  menuByBook.get(c.book)!.items.push(c);
+}
+const bookEntries = [...menuByBook.entries()].sort((a, b) => a[0] - b[0]);
+---
+
+<!DOCTYPE html>
+<html lang="fr">
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>{title} — Renegade Immortal FR</title>
+  <link rel="preconnect" href="https://fonts.googleapis.com" />
+  <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+  <link
+    href="https://fonts.googleapis.com/css2?family=Cinzel:wght@500;600;700&family=Cormorant+Garamond:ital,wght@0,400;0,600;1,400&family=Noto+Serif:ital,wght@0,400;0,600;1,400&display=swap"
+    rel="stylesheet"
+  />
+</head>
+<body class="reader-body">
+  <Nav title={title} active="chapitres" />
+
+  <div class="reader-topbar">
+    <div class="reader-topbar-inner">
+      {prev ? (
+        <a href={`${base}lecture/${prev.slug}/`} class="reader-nav-btn" rel="prev">
+          <span class="arrow">←</span>
+          <span class="label">Précédent</span>
+        </a>
+      ) : (
+        <span class="reader-nav-btn is-disabled"><span class="arrow">←</span><span class="label">Précédent</span></span>
+      )}
+
+      <div class="reader-jump">
+        <select id="chapter-select" aria-label="Aller au chapitre">
+          {bookEntries.map(([bookNum, info]) => (
+            <optgroup label={`Tome ${bookNum} — ${info.title}`}>
+              {info.items.map(c => (
+                <option value={c.slug} selected={c.n === chapterN}>
+                  {String(c.n).padStart(4, '0')} — {c.title}
+                </option>
+              ))}
+            </optgroup>
+          ))}
+        </select>
+      </div>
+
+      {next ? (
+        <a href={`${base}lecture/${next.slug}/`} class="reader-nav-btn" rel="next">
+          <span class="label">Suivant</span>
+          <span class="arrow">→</span>
+        </a>
+      ) : (
+        <span class="reader-nav-btn is-disabled"><span class="label">Suivant</span><span class="arrow">→</span></span>
+      )}
+    </div>
+  </div>
+
+  <main class="reader-main">
+    <p class="reader-breadcrumb">
+      <a href={`${base}chapitres/`}>Chapitres</a>
+      <span class="sep">›</span>
+      <a href={`${base}chapitres/tome-${book}/`}>Tome {book}</a>
+    </p>
+    <h1 class="reader-title">{title}</h1>
+    <p class="reader-chapter-num">Chapitre {chapterN}</p>
+    <hr class="reader-divider" />
+    <article class="reader-content">
+      <slot />
+    </article>
+    <hr class="reader-divider" />
+  </main>
+
+  <div class="reader-bottombar">
+    <div class="reader-bottombar-inner">
+      {prev ? (
+        <a href={`${base}lecture/${prev.slug}/`} class="reader-nav-btn" rel="prev">
+          <span class="arrow">←</span>
+          <span class="label">Chapitre {prev.n}</span>
+        </a>
+      ) : (
+        <span class="reader-nav-btn is-disabled"><span class="arrow">←</span><span>Début</span></span>
+      )}
+      <a href={`${base}chapitres/tome-${book}/`} class="reader-list-link">Liste des chapitres</a>
+      {next ? (
+        <a href={`${base}lecture/${next.slug}/`} class="reader-nav-btn" rel="next">
+          <span class="label">Chapitre {next.n}</span>
+          <span class="arrow">→</span>
+        </a>
+      ) : (
+        <span class="reader-nav-btn is-disabled"><span>Fin</span><span class="arrow">→</span></span>
+      )}
+    </div>
+  </div>
+
+  <Footer />
+
+  <script is:inline>
+    (() => {
+      const sel = document.getElementById('chapter-select');
+      if (!sel) return;
+      sel.addEventListener('change', () => {
+        const slug = sel.value;
+        if (slug) window.location.href = window.location.pathname.replace(/\/[^/]*\/?$/, '/') + slug + '/';
+      });
+    })();
+  </script>
+
+  <style is:global>
+    .reader-body { background: var(--bg-0); }
+
+    .reader-topbar {
+      position: sticky; top: 56px; z-index: 40;
+      background: rgba(8, 6, 15, .92);
+      backdrop-filter: blur(10px);
+      border-bottom: 1px solid var(--line);
+    }
+    .reader-topbar-inner {
+      max-width: 760px; margin: 0 auto;
+      display: flex; align-items: center; justify-content: space-between;
+      gap: 12px; padding: 8px 16px;
+    }
+    .reader-nav-btn {
+      display: inline-flex; align-items: center; gap: 6px;
+      font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .12em;
+      text-transform: uppercase; color: var(--ink-3);
+      padding: 6px 10px; border-radius: var(--r-md);
+      border: 1px solid transparent; text-decoration: none;
+      transition: color .2s, border-color .2s, background .2s;
+      white-space: nowrap;
+    }
+    .reader-nav-btn:hover { color: var(--ink-1); border-color: var(--crimson-dim); background: rgba(179,38,30,.08); text-decoration: none; }
+    .reader-nav-btn.is-disabled { opacity: .3; cursor: default; }
+    .reader-nav-btn .arrow { font-size: 14px; }
+
+    .reader-jump { flex: 1; max-width: 320px; }
+    .reader-jump select {
+      width: 100%;
+      background: var(--bg-2); color: var(--ink-2);
+      border: 1px solid var(--line); border-radius: var(--r-md);
+      padding: 6px 8px; font-family: 'Noto Serif', serif; font-size: 12px;
+      cursor: pointer;
+    }
+    .reader-jump select:focus { outline: 1px solid var(--crimson-dim); }
+
+    .reader-main {
+      max-width: 760px; margin: 0 auto; padding: 32px 24px 80px;
+    }
+    .reader-breadcrumb {
+      font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em;
+      text-transform: uppercase; color: var(--ink-4); margin: 0 0 8px;
+    }
+    .reader-breadcrumb a { color: var(--ink-3); }
+    .reader-breadcrumb a:hover { color: var(--ink-1); }
+    .reader-breadcrumb .sep { margin: 0 6px; color: var(--ink-4); }
+
+    .reader-title {
+      font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
+      color: var(--ink-1); margin: 0 0 4px; letter-spacing: .03em;
+    }
+    .reader-chapter-num {
+      font-family: 'Cinzel', serif; font-size: 12px; letter-spacing: .2em;
+      text-transform: uppercase; color: var(--crimson-2); margin: 0 0 16px;
+    }
+    .reader-divider {
+      border: 0; border-top: 1px solid var(--line); margin: 24px 0;
+    }
+
+    .reader-content {
+      font-family: 'Noto Serif', Georgia, serif;
+      font-size: 17px; line-height: 1.85; color: var(--ink-1);
+    }
+    .reader-content p { margin: 0 0 1.25em; text-align: justify; }
+    .reader-content h2, .reader-content h3 {
+      font-family: 'Cinzel', serif; color: var(--gold);
+      margin: 1.8em 0 .8em; letter-spacing: .03em;
+    }
+    .reader-content h2 { font-size: 20px; }
+    .reader-content h3 { font-size: 16px; }
+    .reader-content img { max-width: 100%; border-radius: var(--r-md); margin: 1em 0; }
+    .reader-content blockquote {
+      border-left: 3px solid var(--crimson-dim);
+      padding-left: 16px; color: var(--ink-3); font-style: italic;
+      margin: 1em 0;
+    }
+    .reader-content a { color: var(--crimson-2); }
+
+    .reader-bottombar {
+      background: var(--bg-1); border-top: 1px solid var(--line);
+      padding: 16px 0;
+    }
+    .reader-bottombar-inner {
+      max-width: 760px; margin: 0 auto;
+      display: flex; align-items: center; justify-content: space-between;
+      gap: 12px; padding: 0 16px;
+    }
+    .reader-list-link {
+      font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .12em;
+      text-transform: uppercase; color: var(--ink-3); text-decoration: none;
+    }
+    .reader-list-link:hover { color: var(--ink-1); }
+
+    @media (max-width: 640px) {
+      .reader-topbar-inner { flex-wrap: wrap; }
+      .reader-jump { order: 3; max-width: 100%; width: 100%; }
+      .reader-nav-btn .label { display: none; }
+      .reader-bottombar-inner { flex-direction: column; gap: 8px; }
+    }
+  </style>
+</body>
+</html>

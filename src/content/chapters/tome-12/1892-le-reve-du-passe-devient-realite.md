@@ -1,0 +1,93 @@
+---
+n: 1892
+title: "Le rêve du passé devient réalité !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1892 - The Dream of the Past Comes True!"
+slug: le-reve-du-passe-devient-realite
+---
+Chapitre 1892 - Le rêve du passé devient réalité !
+
+L'essence de tonnerre de Wang Lin devint encore plus puissante à mesure qu'il continuait son absorption. Grâce à la Perle Défiant le Ciel, le maître du Secte Dao des Démons était incapable de condenser sa volonté pour effacer l'esprit de Wang Lin.
+
+Cependant, à cet instant, après que le maître du Secte Dao des Démons eut dévoré la Perle de l'Empereur du Tonnerre, l'essence de tonnerre infinie qui pénétrait son corps fut absorbée par celui de Wang Lin avec une frénésie folle.
+
+Le corps de Wang Lin trembla violemment et ses longs cheveux s'agitèrent sans qu'aucun vent ne soufflât. D'innombrables arcs de tonnerre dansaient autour de lui, dégageant une puissance tonitruante sans fin.
+
+Cette puissance était capable de briser les cieux, au point que cet espace vert lui-même en trembla. La lumière verdâtre s'amalgama pour former une multitude de scorpions verts autour de Wang Lin, qui poussèrent des rugissements silencieux.
+
+Pourtant, alors que cette essence de tonnerre incroyablement puissante pénétrait le corps de Wang Lin et s'apprêtait à condenser la volonté du maître du Secte Dao des Démons, la Perle Défiant le Ciel tourna lentement. Elle aspira une partie de cette volonté. Ce fut comme une fontaine sur le point de déborder qui s'interromprait soudainement ; un équilibre fut atteint et l'eau commença à refluer lentement.
+
+« Comment est-ce possible ?! » À l'extérieur du bâtiment des scorpions, le maître du Secte Dao des Démons, perdu dans la brume, ouvrit soudain les yeux, révélant une expression d'incrédulité. Il ne pouvait pas voir la Perle Défiant le Ciel à l'intérieur du corps de Wang Lin. Pour lui, le corps de ce dernier paraissait normal, et il n'avait aucune idée de ce qu'était devenue sa volonté évanouie.
+
+Il n'était pas le seul à remarquer que quelque chose clochait. À l'intérieur du Temple des Scorpions, le vieil homme nommé Ji Si fronça également les sourcils. Après avoir marmonné quelques mots, il toussa et agita sa manche.
+
+Un autre éclair de tonnerre jaillit du bâtiment des scorpions et se transforma en une nouvelle Perle de l'Empereur du Tonnerre, qui vola ensuite vers le maître du Secte Dao des Démons.
+
+Une voix vieille et rauque retentit, entremêlée de toux : « La dernière Perle de l'Empereur du Tonnerre. Même le Continent de l'Empereur du Tonnerre en possède moins de trois exemplaires. Si tu ne réussis toujours pas, alors toutes les promesses passées seront nulles ! »
+
+Le maître du Secte Dao des Démons était extrêmement sombre. Il n'avait pas imaginé que ce serait si difficile. Il fixa la Perle de l'Empereur du Tonnerre, les veines de son visage saillantes sous l'effort. Puis, il ouvrit la bouche et aspira. Le tonnerre se précipita dans sa gorge.
+
+Dès l'instant où il dévora la perle, le maître du Secte Dao des Démons forma un sceau qu'il pressa contre ses sourcils, puis poussa un rugissement vers les cieux.
+
+« Essence de tonnerre, disperse-toi ! » rugit-il. Sans l'ombre d'une hésitation, il relâcha toute l'essence de tonnerre contenue dans son corps, laquelle se précipita vers Wang Lin. Ce tonnerre portait toute sa volonté ; il devait réussir cette fois !
+
+L'essence de tonnerre contenait également la puissante poussée provenant de la seconde Perle de l'Empereur du Tonnerre. Elle propulsa la volonté du maître du Secte Dao des Démons vers Wang Lin avec rapidité.
+
+Alors que cette essence indescriptible fonçait en avant, le corps de Wang Lin, dans l'espace vert, trembla une fois de plus. Des arcs de tonnerre encore plus nombreux entourèrent son corps et s'étendirent soudainement sur un rayon de plus de mille pieds. La zone environnante devint un véritable enfer de tonnerre !
+
+Le tonnerre jaillissait et brillait intensément. La tête de Wang Lin se souleva, hors de tout contrôle, et la marque de tonnerre dans son œil droit clignota neuf fois avant de s'envoler.
+
+La marque de tonnerre s'élança et se transforma en une empreinte gigantesque mille pieds au-dessus de lui. Dès son apparition, elle commença à absorber le tonnerre environnant avec frénésie. À mesure que la foudre fusionnait avec la marque, un contour humanoïde apparut autour de celle-ci !
+
+C'était l'ébauche d'un véritable corps d'essence. Bien qu'il ne fût pas encore totalement formé, à en juger par son état actuel, il ne tarderait pas à devenir un véritable corps d'essence !
+
+En un éclair, tout le tonnerre alentour fut absorbé, puis une quantité encore plus massive jaillit du corps de Wang Lin. La foudre s'échappait de chacun de ses pores. Ce n'était pas un simple filament par pore parmi les 108 000, mais au moins dix brins de tonnerre par orifice.
+
+C'était une quantité de tonnerre suffisante pour ébranler le monde. La foudre occupait chaque recoin de cet espace, remplaçant presque la lumière verte et transformant cette dimension en un domaine de tonnerre !
+
+Cette masse de foudre se précipita dans le contour humain de la marque. Le grondement était si puissant qu'il s'entendait clairement à l'extérieur du Temple des Scorpions. La fusion de tout ce tonnerre fit trembler une partie du Continent du Démon Vert.
+
+Le contour humanoïde continua d'absorber les éclairs et grandit rapidement. À l'intérieur, des os faits de tonnerre commencèrent à se former. Chaque os était constitué d'innombrables filaments de foudre étroitement assemblés. En un instant, un squelette complet apparut.
+
+Peu après, alors que d'immenses quantités de tonnerre affluaient, des lignes fines apparurent, formant les nerfs, la chair et le sang. Lorsque le dernier brin fut absorbé, ce qui flottait au-dessus du Wang Lin inconscient était un autre Wang Lin !
+
+Ses yeux étaient clos et il était enveloppé de foudre. Né du tonnerre, sa simple présence suffisait à faire plier tous les éclairs du monde.
+
+Un véritable corps d'essence de tonnerre !
+
+C'est ainsi que naquit le corps d'essence de tonnerre dont Wang Lin avait rêvé. Cependant, ce corps n'appartenait pas à Wang Lin, mais au maître du Secte Dao des Démons ! Car ce corps d'essence contenait la volonté de ce dernier !
+
+À l'extérieur du bâtiment des scorpions, le maître du Secte Dao des Démons luttait. Il sentit l'existence du véritable corps d'essence de tonnerre et fut stupéfait. Il avait une fois de plus sous-estimé Wang Lin. Il n'avait pas pensé que la compréhension de cette essence par Wang Lin serait si profonde, au point qu'après avoir formé le corps d'essence de feu, il posséderait le potentiel de donner naissance à un second corps d'essence !
+
+À cet instant, le maître du Secte Dao des Démons était face à un dilemme. Il désirait ardemment ce corps d'essence, mais s'il se l'appropriait, il ne pourrait remplir la requête de Ji Si.
+
+Alors qu'il hésitait, une toux retentit depuis le bâtiment des scorpions. En entendant cela, le maître du Secte Dao des Démons afficha un regard résolu.
+
+« Comparés aux bénéfices promis par le Scorpion du Démon Vert une fois réveillé, bien que le corps d'essence de tonnerre soit précieux, il n'est pas impossible de s'en passer ! » Ses mains formèrent rapidement des sceaux et il pointa l'espace entre ses sourcils. Il ferma les yeux et concentra toute son attention sur le corps d'essence de tonnerre surplombant Wang Lin dans l'espace vert du scorpion !
+
+Le véritable corps d'essence de tonnerre trembla. Les yeux clos, il leva sa main droite et l'abattit sur le Wang Lin en dessous. Au moment où la main pressa, le corps de Wang Lin tressaillit. Les sept derniers filaments d'essence de tonnerre s'échappèrent des orifices de la tête relevée de Wang Lin !
+
+Ils sortirent de ses yeux, de ses oreilles, de son nez et de sa bouche, pour pénétrer un à un dans les orifices correspondants du corps d'essence. Dès que ces sept filaments furent absorbés, le corps d'essence ouvrit les yeux !
+
+Il révéla un regard sombre, imprégné de l'aura du maître du Secte Dao des Démons. Son corps frémit et le tonnerre du monde entier trembla avec lui. À l'extérieur du scorpion, à l'extérieur du temple, d'immenses quantités de foudre spectaculaire apparurent sur la majeure partie du Continent du Démon Vert.
+
+Des grondements tonitruants retentirent et se précipitèrent vers le Temple des Scorpions au centre à une vitesse inimaginable !
+
+La rapidité de ce tonnerre était indescriptible, plus véloce que n'importe quel éclair. C'était comme une distorsion spatiale. Tout convergea vers l'espace vert à l'intérieur du scorpion, au sein du Temple des Scorpions.
+
+Instantanément, le corps d'essence de tonnerre fut enveloppé par cette déferlante, formant une armure. Une couronne se forma également sur sa tête !
+
+C'était la couronne de l'Empereur du Tonnerre !
+
+Au moment où la couronne prit forme, le tonnerre infini qui s'accumulait se condensa pour créer un char de guerre de tonnerre. C'est à cet instant précis que le véritable corps d'essence de tonnerre fut totalement achevé !
+
+Le corps de Wang Lin, assis en dessous, trembla violemment. La Perle Défiant le Ciel n'était pas cachée mais activée, protégeant son âme originelle. Son éveil fut provoqué par ce tressaillement au fond de son cœur.
+
+Dès que Wang Lin reprit conscience, il ouvrit les yeux et vit le véritable corps d'essence de tonnerre qui s'était formé dans le ciel !
+
+En voyant cette entité, Wang Lin frémit un instant. Il était encore hébété, mais comprit bientôt la situation !
+
+Il fut saisi par l'effroi face à la scène de choc qui s'était révélée lorsqu'il avait utilisé pour la première fois le Dao de l'Œil de l'Âme dans le Grand Secte de l'Âme ! Cette scène était exactement la même que celle qu'il contemplait maintenant !
+
+À l'époque, Wang Lin avait vu son propre corps d'essence de tonnerre s'apprêter à utiliser la foudre pour le supprimer. Il ne comprenait pas comment son propre corps d'essence pouvait agir ainsi ! Après tout, ce corps avait été formé par lui et lui appartenait entièrement. Ce qu'il avait vu paraissait impossible, et pourtant, c'était devenu réalité !

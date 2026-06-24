@@ -1,0 +1,119 @@
+---
+n: 662
+title: Les manœuvres de Jade
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 662 - Scheming Jade
+slug: les-manuvres-de-jade
+---
+Système stellaire d'Allheaven, planète Ran Yun.
+
+Au moment où Wang Lin apparut, trois puissants sens divins se précipitèrent vers lui. Dès leur arrivée, Wang Lin disparut, n'émettant plus aucune aura. Deux d'entre eux semblant se méfier l'un de l'autre, ils se retirèrent après avoir fouillé la zone.
+
+Seul le dernier sens divin balaya avec acharnement toute la planète. N'ayant rien trouvé, il laissa échapper un reniflement froid avant de disparaître.
+
+Le renflement froid de cet individu se propagea sur toute la planète et atteignit les oreilles de Wang Lin.
+
+La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea : « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire d'Allheaven est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
+
+« Si cette planète Ran Yun avait fait partie de l'Alliance de Culture, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
+
+Tandis que Wang Lin réfléchissait, son aura commença à se rétracter. En un clin d'œil, sa présence Ascendante disparut pour ne laisser paraître que celle d'un cultivateur de la Formation du Noyau.
+
+La culture de Wang Lin atteignait déjà le stade initial de l'Ascendant et son âme originelle était extrêmement singulière. À moins qu'un être doté d'un niveau de culture supérieur ne se trouve à proximité, il serait impossible de le percer par un simple balayage du sens divin.
+
+Bien sûr, ce n'était pas le cas pour les vieux monstres qui se trouvaient au deuxième échelon.
+
+« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire d'Allheaven, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
+
+« À en juger par l'expression de ces quatre petits gars, la planète Dong Lin est extrêmement puissante. Avant d'être assez fort, je ne peux pas m'y rendre ! »
+
+Un sourire apparut sur les lèvres de Wang Lin. Une douce brise printanière sembla souffler sur lui et toute la froideur de son visage s'évanouit. Il sortit une épée volante à l'apparence ordinaire et s'envola sur elle.
+
+Au fil de son vol, son apparence changea lentement. Peu de temps après, ses traits furent totalement transformés. À cet instant, même des personnes familières avec lui ne pourraient le reconnaître.
+
+Presque tous les cultivateurs de haut niveau maîtrisaient ce type de sort de changement d'apparence. Cependant, pour les experts, ce sort présentait trop de faiblesses : il suffisait à un cultivateur de haut niveau de se concentrer un instant pour déceler des indices, et face à des utilisateurs de sorts de vision, l'illusion serait perçue au premier coup d'œil.
+
+Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même ; il était lancé par la garde céleste cachée dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
+
+Après un court voyage, une ville apparut devant lui. Cette cité était entourée de remparts faits de grandes pierres bleues et dégageait une majesté imposante. Au-dessus de la porte, deux grands caractères étaient inscrits :
+
+« Famille Sun »
+
+Wang Lin rangea son épée volante à l'extérieur de la ville et atterrit. Il épousseta ses vêtements et marcha calmement vers les portes.
+
+Peut-être parce qu'ils avaient remarqué qu'il n'était qu'au stade avancé de la Formation du Noyau, les gardes de la ville ne furent pas trop stricts lors de l'inspection. Ils lui informèrent simplement que des grottes de culture étaient spécialement préparées pour les cultivateurs étrangers. Wang Lin paya les pierres spirituelles pour un séjour temporaire et reçut un jeton. Il pénétra ensuite dans la ville contrôlée par la famille Sun.
+
+De nombreux mortels circulaient en ville, mais il y avait aussi beaucoup de cultivateurs. Toutes sortes de boutiques, remplies d'articles indispensables aux pratiquants, bordaient les rues. Bien sûr, certaines enseignes étaient réservées aux mortels.
+
+Wang Lin ne ressentit aucune gêne en déambulant dans la rue ; c'était comme s'il était un habitant de cette cité. Puisqu'il avait décidé de s'y installer, il allait d'abord trouver un logement.
+
+En pénétrant dans le quartier nord de la ville, Wang Lin sentit immédiatement le silence et l'énergie spirituelle dense qui imprégnaient la zone. De nombreuses demeures isolées y étaient protégées par des restrictions.
+
+Une restriction à l'entrée interdisait l'accès aux mortels. Un rocher de trois cents pieds de haut se dressait également, sur lequel pendaient sept ou huit jetons noirs.
+
+Un jeune homme au stade de l'Âme Naissante était assis sous le rocher. Il avait les yeux clos et un souffle chaud s'échappait de ses narines.
+
+Wang Lin resta à l'entrée et observa l'intérieur. À ses yeux, la restriction était d'une simplicité extrême. Il n'eut même pas besoin de la briser et entra simplement, sans provoquer la moindre réaction du mécanisme.
+
+Alors qu'il observait la barrière, le jeune homme sous le rocher ouvrit les yeux. Il regarda Wang Lin et dit : « Il ne reste que huit chambres disponibles. Laquelle voulez-vous ? »
+
+L'expression de Wang Lin resta imperturbable tandis qu'il demandait calmement : « Y a-t-il des différences entre elles ? »
+
+Le jeune homme afficha un air impatient : « Les chambres supérieures coûtent mille pierres spirituelles de haute qualité, et les inférieures en coûtent cent. »
+
+Wang Lin réfléchit un instant avant de sortir cent pierres spirituelles et de les poser. Le jeune homme eut un regard méprisant ; d'un revers de manche, il ramassa les pierres, saisit un jeton sur le rocher, le lança vers Wang Lin et déclara : « La cinquième maison à partir de l'ouest, allez ! » Sur ce, le jeune homme referma les yeux pour se concentrer sur sa culture.
+
+Wang Lin attrapa le jeton et l'examina. Il comportait deux restrictions, dont l'une servait à franchir l'entrée. Wang Lin détourna le regard, rangea le jeton et entra.
+
+Au moment où il passa, le jeune homme sous la pierre rouvrit les yeux et marmonna avec dédain : « Encore un cultivateur étranger qui veut s'approprier l'énergie spirituelle de ma famille Sun pour former son Âme Naissante. Humph, comment peut-on former une Âme Naissante si facilement ? Le talent de cet individu est plutôt médiocre ; s'il a atteint le stade de la Formation du Noyau, c'est sans doute grâce aux pilules ! »
+
+Wang Lin entendit naturellement ces paroles. Il se retourna pour lui jeter un regard avant de poursuivre sa route. Bientôt, il arriva devant la cinquième maison en partant de l'ouest.
+
+La demeure semblait simple, mais elle était imprégnée d'énergie spirituelle. Après avoir inspecté la pièce, Wang Lin fut satisfait.
+
+Il n'y avait qu'un lit et un tapis de méditation, ainsi qu'un four à pilules et une salle de culture semi-fermée. Bien que petite, l'endroit était très élégant.
+
+À l'extérieur de la pièce, Wang Lin agita négligemment la main pour parfaire les restrictions de la demeure. Cela les rendit dix fois plus puissantes qu'auparavant. Il s'assit en position du lotus et inspira la dense énergie spirituelle.
+
+Son visage se détendit à mesure que l'énergie emplissait son corps. Peu après, Wang Lin expulsa une bouffée d'air vicié avec un soupçon de regret.
+
+« Cela fait longtemps que je n'ai pas pratiqué avec de l'énergie spirituelle. Malheureusement, peu importe sa densité, elle n'augmentera pas mon niveau de culture. » Presque tous les jades célestes dans le sac de Wang Lin avaient été épuisés lors de sa percée au stade Ascendant. Il n'en restait pas assez pour une pratique quotidienne.
+
+« Il ne me reste que cinq gouttes de liquide céleste. Les quatre gouttes que j'ai consommées sous l'effet du Fruit d'Ascension Céleste ont permis à mon corps de disposer d'une énergie spirituelle céleste infinie, mais cela ne durera pas éternellement. Dans quelques années seulement, le liquide céleste en moi sera épuisé et je n'aurai plus cette réserve infinie. »
+
+« De plus, une seule goutte m'a permis d'atteindre le stade Ascendant, mais la quantité d'énergie spirituelle céleste requise par la suite est bien plus élevée. En consommer maintenant n'aurait pas le même effet qu'auparavant. Plutôt que de les gaspiller, mieux vaut les garder pour lorsque je serai blessé ou que j'aurai besoin d'une énergie infinie sur une courte période ! Compte tenu de cela, ma priorité est d'obtenir suffisamment de jades célestes pour mes besoins quotidiens. »
+
+Le ciel s'obscurcitit à l'extérieur, plongeant la pièce dans la pénombre. Wang Lin agita la main et une bougie s'alluma instantanément dans un crépitement. La chambre fut immédiatement baignée de lumière.
+
+Au plafond pendait une perle bleue de la taille d'un poing. La fumée de la bougie monta et fut absorbée par la perle. Rapidement, celle-ci se remplit de fumée et commença à luire.
+
+Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une conception aussi ingénieuse. Il observa la perle bleue qui brillait comme la lune.
+
+Une demi-heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
+
+« Il y a trois restrictions à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire d'Allheaven est bien supérieur. »
+
+Une légère odeur de santal émanait de la perle, une senteur qui apaisait l'esprit.
+
+« La troisième formation est cette odeur de santal. » Les yeux de Wang Lin s'illuminèrent. Non seulement cette odeur n'était pas toxique, mais elle pouvait en réalité accélérer la vitesse de culture d'un pratiquant. C'était un matériau alchimique rare.
+
+Alors qu'il était assis dans le silence total de la nuit, une pensée traversa l'esprit de Wang Lin. Après un instant de réflexion, il l'effaça aussitôt.
+
+« Le vol est indigne de moi et, après tout, la quantité de jades célestes dont j'ai besoin n'est accessible qu'aux Ascendants. Peut-être que certaines grandes familles d'ici en possèdent assez. »
+
+« Cependant, si je faisais cela, je devrais quitter la planète Ran Yun pour m'installer ailleurs. Ce n'est donc pas un bon plan. »
+
+Après réflexion, Wang Lin leva la tête et prit une décision. Il frappa son sac de rangement, faisant sortir divers matériaux de raffinage.
+
+Il expulsa une bouffée d'énergie originelle pour envelopper les matériaux. Ceux-ci fondirent rapidement et formèrent trois moules, guidés par le sens divin de Wang Lin : une épée volante, un miroir de bronze et une broche à cheveux.
+
+La main de Wang Lin traça un sceau et d'innombrables restrictions se déposèrent sur les objets. Graduellement, ces trois trésors commencèrent à dégager une pression intense. De plus, comme ils avaient été raffinés par l'âme originelle de Wang Lin, des éclairs parcouraient parfois leur surface.
+
+Une fois les restrictions posées, Wang Lin réfléchit un instant, se remémorant le cultivateur de Suzaku qui possédait le domaine du temps. Avec son niveau actuel et sa propre voie, il était capable de l'imiter assez fidèlement.
+
+D'un mouvement de la main droite, le miroir de bronze bascula et le domaine du temps y pénétra.
+
+Puis Wang Lin se remémora à nouveau une autre sensation : le domaine des Mille Illusions Impitoyables de Liu Mei. D'innombrables visions traversèrent son esprit jusqu'à ce qu'elles se transforment en un rayon de lumière pénétrant la broche à cheveux.
+
+Quant à l'épée volante, Wang Lin n'y inséra aucun domaine, mais y plaça une empreinte de téléportation.

@@ -1,0 +1,111 @@
+---
+n: 715
+title: "Évasion, évasion, évasion !"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: "Chapter 715 - Escape Escape Escape!"
+slug: evasion-evasion-evasion
+---
+Chapitre 715 - Évasion, évasion, évasion !
+
+Même le corps de la garde céleste trembla, et la lumière dorée qui l'entourait s'estompa légèrement.
+
+Wang Lin serra les dents. Ignorant l'aura de la gueule géante, il chargea une fois de plus vers le brouillard dense.
+
+Cependant, la fissure au sol s'élargit follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder. De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète !
+
+Toutefois, cette planète s'était effondrée de l'intérieur, provoquant une explosion d'une puissance extrême ; si des cultivateurs de bas niveau avaient été trop proches, ils n'auraient eu aucune chance de survivre.
+
+La planète Yun Xia était légèrement différente. Bien qu'elle fût également en plein effondrement, il n'y avait aucune force destructrice. C'était plutôt le serpent Moongazer qui s'éveillait et secouait les débris accumulés sur son corps au fil des années.
+
+La terre qui se soulevait sans cesse n'était qu'une illusion, car ce que l'on prenait pour la « terre » n'était en réalité que le corps du serpent Moongazer. Ce soulèvement n'était que le serpent qui se retournait et redressait la tête.
+
+La fissure géante se referma instantanément avec une vitesse inimaginable. Le regard de Wang Lin devint glacial. Le pouvoir des Fruits d'Ascension Céleste était toujours là, sans quoi il n'aurait aucun moyen de s'échapper. Tant qu'il parviendrait à stopper le serpent Moongazer un court instant, il pourrait traverser le brouillard et atteindre l'espace.
+
+Wang Lin serra les dents et s'apprêta à saisir son sac de rangement quand ses yeux se rétrécirent soudainement. À cet instant précis, alors que la gueule géante approchait, il ressentit une fluctuation qu'il connaissait trop bien : c'était la fluctuation de la formation d'épées des sept étoiles !
+
+Il retira sa main droite du sac et forma un sceau. Puis, pointant vers l'avant, il hurla : « Formation d'épées, tournoie ! »
+
+Sa voix, chargée de puissance, jaillit comme un coup de tonnerre vers la formation d'épées des sept étoiles située à l'intérieur de la gueule géante !
+
+La formation tourna rapidement, dégageant une énergie d'épée infinie tandis qu'elle attaquait sauvagement depuis l'intérieur. Cependant, ces assauts étaient insignifiants pour le serpent Moongazer et ne purent l'arrêter, ne serait-ce que pour une demi-seconde.
+
+Voyant la gueule se rapprocher de plus en plus, les yeux de Wang Lin brillèrent d'un éclat vif et il cria : « Épée Rat, explose ! »
+
+Un son étouffé retentit dans la gueule, suivi d'un rugissement intérieur. La gueule s'avança encore plus vite et se retrouva à moins de mille pieds de Wang Lin. La vitesse de ce dernier était fulgurante ; lui et la garde céleste venaient de pénétrer dans le brouillard dense.
+
+Pourtant, ce brouillard se dissipa rapidement à mesure que la gueule se refermait. Il disparut sans laisser de trace en un clin d'œil ! Après d'innombrables années, c'était la première fois que le brouillard entourant le serpent s'évanouissait !
+
+« Cochon, mouton, singe, bœuf, tigre et lièvre, explosez tous ! » Les yeux de Wang Lin étaient empreints de folie.
+
+Grondement, grondement, grondement... d'innombrables explosions résonnèrent au sein du serpent Moongazer. Non seulement les épées explosèrent, mais les esprits maléfiques qui résidaient en elles explosèrent également. À cet instant, une puissante force destructrice se forma alors que la formation d'épées des sept étoiles lançait son assaut le plus dévastateur contre le serpent Moongazer.
+
+Cependant, le serpent était si puissant que l'explosion de la formation n'eut aucun effet réel sur lui ; elle ne fit que le ralentir un instant sous l'impact du choc. Mais ce que Wang Lin voulait, c'était précisément ce ralentissement !
+
+Lui et la garde céleste chargèrent avec précipitation. Les étoiles étaient désormais à portée de vue !
+
+La gueule géante se rétablit rapidement. La puissance des Fruits d'Ascension Céleste la laissait encore incertaine de l'origine de cette intense sensation mêlant douleur et excitation. Cependant, dans sa confusion post-éveil, elle sentit que les deux créatures tentant de s'échapper portaient quelque chose de familier. Instinctivement, elle se lança à leur poursuite pour retenir ces deux objets familiers.
+
+En voyant les deux fugitifs accélérer encore davantage, elle laissa échapper un son qui n'avait pas été entendu depuis des éons. Bien que ce cri n'eût aucune signification intelligible, il était d'une étrangeté absolue.
+
+Dès que ce son retentit, le cuir chevelu de Wang Lin devint instantanément engourdi. C'était la langue des anciens dieux !
+
+Wang Lin eut un haut-le-cœur. « Les souvenirs de Tu Si ne mentionnent pas que les serpents Moongazer puissent parler la langue des anciens dieux. Quel genre de serpent est-ce là ?! »
+
+Au moment où les mots des anciens dieux résonnèrent, le ciel changea. Wang Lin eut soudain l'impression que la chose qui le traquait n'était plus un serpent Moongazer, mais un ancien dieu adulte !
+
+La langue des anciens dieux, d'une antiquité profonde, résonna. Mais ce qu'elle apporta à Wang Lin fut la certitude qu'une crise de vie ou de mort était imminente ! Des fissures apparurent dans l'espace environnant comme si la réalité elle-même allait s'effondrer. Wang Lin en perdit presque son sang-froid.
+
+Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien dieu à huit étoiles pouvait utiliser ! Il pouvait pulvériser tout ce qui se trouvait sur son passage et réduire en poussière tout ce qui se trouvait dans sa portée. Le sentiment de péril n'avait jamais été aussi viscéral. Wang Lin se retourna et poussa un rugissement puissant et étrange !
+
+Ce qu'il prononça était lui aussi la langue des anciens dieux, héritée de Tu Si !
+
+La terre s'immobilisa soudainement et la gueule géante se entrouvrit légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids ! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
+
+L'interruption du serpent Moongazer stoppa l'effondrement de l'espace. Wang Lin s'enfuit sans hésiter, et la garde céleste le suivit sans relâche. À cet instant précis, une silhouette mince surgit des profondeurs de la fissure, animée par un mélange de terreur et d'exultation.
+
+C'était Greed !
+
+Le bouleversement massif du serpent Moongazer avait provoqué un changement violent dans ses zones d'absorption et d'excrétion, créant une ouverture. Greed en avait profité pour s'échapper, et bien sûr, il n'avait pas l'intention de laisser derrière lui son gigantesque fourneau.
+
+Après avoir surgi de cet endroit, Greed réalisa la terreur que représentait le serpent Moongazer. Il n'hésita pas à utiliser le fourneau pour s'élever dans les airs. En regardant autour de lui, il vit la fissure géante et même les étoiles au-delà !
+
+Une excitation qu'il n'avait pas ressentie depuis cent ans envahit son corps. Il sentit même des larmes perler à ses yeux. Ces jours passés à vivre ni comme un humain, ni comme un fantôme allaient enfin prendre fin.
+
+Il se remémora les cent dernières années. Il avait passé presque tout ce temps dans la zone d'excrétion de la bête. Pour lui, c'était une infamie ! En particulier, cette odeur nauséabonde qu'il ne pourrait jamais oublier ; bien que l'effluve eût disparu, il avait l'impression de pouvoir encore la sentir.
+
+Greed jura que, une fois échappé, il ne mettrait plus jamais les pieds dans le domaine nordique du système stellaire d'Allheaven. À l'avenir, lorsqu'il chasserait des trésors, il devrait être prudent, extrêmement prudent, et encore plus prudent !
+
+Voyant la fissure se rapprocher, l'excitation de Greed atteignit son apogée !
+
+« Le vieux Greed va enfin être libre ! »
+
+À cet instant, la confusion dans les yeux du serpent Moongazer disparut soudainement et la langue des anciens dieux résonna une nouvelle fois. Wang Lin fut envahi par un froid glacial. Dans ce moment de vie ou de mort, il ne pouvait plus hésiter. Il lança un ordre qui força la garde céleste à ralentir pour précipiter la moitié de l'os qu'elle portait vers le serpent Moongazer !
+
+« Je te rends la moitié ! »
+
+La moitié de l'os était semblable à une montagne titanesque, créant un sifflement strident en chutant à travers l'atmosphère. Cela fit une nouvelle fois hésiter la gueule géante. L'effondrement de l'espace environnant s'interrompit de nouveau. Le serpent Moongazer fixa la montagne qui tombait avec confusion. Cette chose lui était très familière, mais il ne parvenait pas à se souvenir de ce qu'elle était...
+
+Cependant, inconsciemment, il ouvrit la gueule et engloutit la chaîne de montagnes !
+
+L'excitation de Greed était si intense qu'il semblait avoir dévoré d'innombrables Fruits d'Ascension Céleste. Il progressait à une vitesse folle vers la fissure, au point de vouloir hurler de joie ! Les cent années de misère touchaient enfin à leur fin !
+
+Il savait déjà qu'il ne pouvait pas se téléporter à l'intérieur du serpent ; dès qu'il tentait de le faire, une force étrange l'obstruait et ralentissait sa vitesse. Pourtant, au moment où Greed était sur le point d'atteindre la fissure, une ombre gigantesque obscurcit soudainement l'ouverture.
+
+Greed fut stupéfait et se frotta les yeux, suspectant une hallucination. Qu'était cette ombre immense... Après avoir été imprégné par les émanations du serpent pendant si longtemps, même l'esprit de Greed était devenu quelque peu embrumé.
+
+« Ceci... ceci est... une montagne ! » Les yeux de Greed reflétèrent le désespoir et son excitation s'évapora instantanément. N'importe qui ressentant des sentiments aussi contradictoires et puissants se serait senti sur le point de s'effondrer.
+
+Toutefois, Greed était un puissant cultivateur. Il poussa un rugissement, chargea et pénétra dans son fourneau, lequel fonça brusquement sur le côté. La montagne passa dans un sifflement et son flanc racla le fourneau, provoquant une pluie d'étincelles. Les vibrations forcèrent Greed, resté à l'intérieur, à cracher du sang sans interruption.
+
+« Maudit soit-il !!! » Après avoir de justesse évité la montagne, Greed émergea du fourneau, livide. Il ne contrôlait pas totalement l'engin et, s'il y restait trop longtemps, il serait raffiné par l'aura terrifiante qu'il contenait.
+
+Après avoir englouti la moitié de la montagne, la confusion du serpent Moongazer s'intensifia. Ce sentiment était si familier... Il était sur le point de se souvenir...
+
+Profitant de cette hésitation, Wang Lin ordonna à la garde céleste de l'aider à porter l'os. Tous deux s'élancèrent rapidement vers les étoiles.
+
+La confusion du serpent Moongazer se dissipa progressivement et le pouvoir des Fruits d'Ascension Céleste était sur le point de s'évanouir. Il se souvint alors que cette montagne n'était pas un objet ordinaire : elle était... formée de ses propres os !
+
+Alors que l'effet des fruits disparaissait, le serpent Moongazer put localiser la source de sa douleur. Elle venait de l'endroit même où son os aurait dû se trouver !
+
+Une tempête éclata soudainement. Une fois l'effet des Fruits d'Ascension Céleste dissipé, la douleur qui avait été masquée se révéla brutalement. Cela provoqua l'explosion totale de la rage du serpent Moongazer !

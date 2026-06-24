@@ -1,0 +1,87 @@
+---
+n: 594
+title: "La Mort de l'Homme en Armure Dorée"
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 594 - Death Of The Golden Armor
+slug: la-mort-de-lhomme-en-armure-doree
+---
+Tout cela se produisit à l'instant même où les sorts du Commandant Céleste et de l'homme en armure dorée entrèrent en collision. Le Commandant Céleste fut stupéfait, car il n'aurait jamais pu prédire un tel résultat. Étant extrêmement proche de l'homme en armure dorée, il remarqua immédiatement que celui-ci avait subi de graves blessures. Et ce n'était pas une seule blessure grave, mais deux !
+
+Si son sort avait atteint sa cible, l'homme en armure dorée serait certainement mort. Il n'avait pas agi pour tuer, mais pour stopper l'homme en armure dorée ; il retira donc immédiatement son attaque sans la moindre hésitation.
+
+Pourtant, du point de vue des observateurs extérieurs, l'homme en armure dorée venait de recevoir un coup du Commandant Céleste et semblait mortellement blessé.
+
+Les yeux du Commandant Céleste se remplirent de choc alors qu'il retirait son sort, reculait de plusieurs pas et fixait l'homme en armure dorée.
+
+Le corps de ce dernier tremblait et il cracha une immense bouffée de sang. Toute l'énergie spirituelle démoniaque de son corps s'était évaporée et des fissures étaient apparues sur ses méridiens. À cet instant, il était passé du statut de dragon féroce à celui d'un simple insecte !
+
+« Ce... ce rugissement était trop terrifiant ; il était des milliers de fois plus puissant que celui de l'Empereur Démon. Non, on ne peut même pas dire des milliers de fois. C'était un niveau totalement différent. Il ne voulait pas me tuer ; s'il l'avait vraiment voulu, je serais déjà mort ! » L'homme en armure dorée avait été blessé deux fois de suite. Toute son énergie spirituelle démoniaque s'était effondrée, son visage était livide et une sueur froide trempait son corps.
+
+À cet instant, les graves blessures de l'homme en armure dorée semblaient avoir été causées par le Commandant Céleste, mais Wang Lin, qui se trouvait très près, savait que le sort du Commandant n'avait même pas touché sa cible !
+
+Les yeux de Wang Lin s'illuminèrent et il réprima le doute qui l'habitait. C'était le moment idéal pour tuer cet homme. Peu importe la raison de ses blessures, si Wang Lin ne le tuait pas maintenant, alors il ne serait plus Wang Lin !
+
+Sans aucune hésitation, il détacha sa main droite du tambour et saisit l'homme en armure dorée affaibli. Une intention meurtrière embrasa le regard de Wang Lin et, d'un geste brusque, il projeta l'homme contre le tambour démoniaque !
+
+Lorsque le corps de l'homme en armure dorée percuta violemment le tambour, une brume de sang jaillit de son corps déjà exsangue et il cracha une large quantité de sang sur l'instrument.
+
+La main droite de Wang Lin portait toute la tristesse de son cœur !
+
+C'était l'attaque ultime qu'il utiliserait durant le stade de la Transformation de l'Âme. Par ce coup, il allait expulser toute la tristesse qui l'habitait !
+
+Au moment où l'homme en armure dorée heurta le tambour démoniaque, toute la tristesse contenue dans le bras droit de Wang Lin jaillit. Elle transperça le corps de l'homme pour s'engouffrer dans le tambour.
+
+*Dong !* Le tambour résonna !
+
+Le violent rebond s'engouffra sans ménagement dans le corps de l'homme en armure dorée. À l'instant où le tambour sonna, l'homme en armure dorée — le chef intendant doré, Ji Wuxu — explosa en une brume sanglante, dispersée par les ondes sonores.
+
+Le corps de l'homme en armure dorée vola en éclats et il mourut d'une mort misérable ! Même son âme fut brisée par le son du tambour, effaçant ainsi toute trace de son existence dans ce monde !
+
+Cinq coups de tambour prennent un bras, dix coups prennent deux bras, quinze coups... Ce qui fut pris cette fois-ci, c'était sa vie !
+
+Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement blessé ! Si une seule des voix s'était manifestée, il n'aurait pas été si affaibli qu'il ne pouvait plus se défendre ; il ne serait pas devenu un mortel.
+
+Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays Démon Céleste en un déchet ! Et avec la nature imprévisible de Wang Lin, tout cela lui avait coûté la vie !
+
+Le jeune homme sur le bateau, stupéfait, marmonna : « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité Démon Céleste et percer le vide.
+
+Mais il baissa rapidement la tête, faisant mine que de rien n'était.
+
+Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet instant, en le regardant, il ressentit l'esprit rebelle du jeune homme. Il afficha l'expression d'un Ancien admirant le talent d'un junior. Il eut l'impression de revoir son propre passé, une autre vie s'il n'avait pas renoncé à l'époque !
+
+Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois !
+
+Quinze fois ! Cela surpassait tout le monde, faisant de Wang Lin celui qui avait frappé le plus de coups dans toute l'histoire du Pays Démon Céleste !
+
+Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration d'air glacial. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
+
+Les spectateurs lucides ne regardaient plus Wang Lin avec choc, mais avec respect !
+
+Le respect dû aux puissants de la Terre des Esprits Démoniaques !
+
+Parmi les généraux démons, le silence était total. Mo Lihai fixa la silhouette de Wang Lin ; il savait désormais qu'il n'y avait plus aucun doute sur son accession au rang de vice-commandant !
+
+Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une odeur de sang, il exhalait aussi une tristesse inimaginable. Cette mélancolie se fusionna avec le rythme et fut propagée aux quatre vents par l'instrument.
+
+À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité Démon Céleste !
+
+Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de culture défiant les cieux !
+
+Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse des cieux elle-même ! Tous les habitants de la Cité Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
+
+Sur le bateau, la femme qui jouait de la cithère, touchée par cette mélancolie, commença à jouer une mélodie empreinte de douceur.
+
+Wang Lin leva la tête vers les cieux et murmura : « J'ai conservé mon attachement... »
+
+Le Dao des Cieux est la voie céleste. Même les familles royales mortelles ont affirmé que les véritables souverains du monde n'étaient pas les rois ! Le Dao des Cieux est infini ; il s'étend à travers l'univers et imprègne toute chose !
+
+Qu'il s'agisse de la Terre des Esprits Démoniaques ou même de la demeure d'un être céleste, le Dao des Cieux ne cessera jamais de descendre ! Car tout ce qui existe dans le monde fait partie du Dao des Cieux ; si une chose existe, c'est parce que le Dao des Cieux l'autorise à être !
+
+Dao des Cieux, descends !
+
+Le Dao des Cieux est normalement invisible, mais lorsqu'il devient manifeste et qu'il descend, il ne porte qu'un seul nom... la rétribution divine !!!
+
+Avec la destruction du Royaume Céleste, la rétribution divine semblait avoir disparu. Mais ce qui s'était éclipsé n'était pas la véritable rétribution, mais seulement la rétribution céleste créée par les êtres célestes ! La véritable rétribution divine est un châtiment des cieux, et elle ne disparaît pas avec la destruction d'un royaume. Elle n'apparaîtra que lorsqu'elle devra apparaître !
+
+L'émergence d'un véritable cultivateur défiant le ciel est la condition sine qua non de l'apparition de la rétribution divine !

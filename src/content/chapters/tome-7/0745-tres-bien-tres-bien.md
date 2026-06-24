@@ -1,0 +1,103 @@
+---
+n: 745
+title: Très bien, très bien
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 745 - Very Good, Very Good
+slug: tres-bien-tres-bien
+---
+Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci touchèrent le sol, Wang Lin ressentit une étrange sensation. C'était comme si cet homme et l'épée de fer n'avaient fait qu'un.
+
+Wang Lin détourna les yeux, puis rétracta son Sens Divin. Il fit un pas en avant et s'élança dans le vide. Dès qu'il y pénétra, ce fut comme s'il avait franchi une frontière ; le grondement du tonnerre sembla alors décupler.
+
+La femme nommée Ge poussa un soupir intérieur : « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir offensif, il est inégalé pour résister au tonnerre ! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
+
+La femme nommée Ge observa Li Yuan en fronçant les sourcils. L'endroit où il se tenait lui inspirait un profond malaise. Cependant, ce n'était pas le moment de s'enquérir de la situation. Bien que l'épée ne fût pas très rapide, elle restait stable tandis qu'elle suivait la chaîne de tonnerre.
+
+Les environs n'étaient que néant, et rien ne se dessinait devant eux. Pourtant, aucun cultivateur du Royaume Céleste du Tonnerre ne pouvait s'égarer ; il suffisait de suivre les chaînes de tonnerre pour garder la bonne direction.
+
+Peu après, alors que l'épée filait, ils pénétrèrent lentement dans le vide profond. La femme ne pouvant déployer son Sens Divin, elle ne vit pas Wang Lin. Se demandant si elle l'avait perdu, elle se retourna et eut l'impression qu'un éclair venait de la transpercer. Figée, les yeux écarquillés par l'effroi, elle sentit sa terreur envers Wang Lin atteindre son paroxysme.
+
+Elle vit Wang Lin marcher sur la chaîne de tonnerre, drapé dans sa robe blanche. Il avançait pas à pas, comme s'il foulait un sol parfaitement plat.
+
+Le tonnerre traversait son corps, mais sans aucun effet sur lui. En réalité, il se sentait très à l'aise, et son âme originelle absorbait même la foudre.
+
+À chacun de ses pas, Wang Lin déclenchait de violentes ondes de tonnerre derrière lui. Cette scène était d'une clarté saisissante, même à distance, telle une balise lumineuse au cœur de la nuit.
+
+Li Yuan, posté sur la pointe de l'épée, était envahi par la mélancolie. Tandis qu'il se tenait là, des vagues d'émotions déferlaient dans son cœur, au point qu'il peinait presque à les maîtriser.
+
+« Vieux ami, cela fait bien longtemps... très longtemps... que nous ne nous sommes pas vus... » Li Yuan laissa échapper un soupir intérieur avant de raffermir ses pensées. Il perçut immédiatement le changement d'attitude de la femme nommée Ge et tourna instinctivement la tête. En voyant Wang Lin marcher sur la chaîne de tonnerre, ses pupilles se rétractèrent brusquement.
+
+« Il peut marcher sur les chaînes de tonnerre entre les fragments avec son propre corps ! » L'expression de Li Yuan se crispa, avant de redevenir rapidement normale.
+
+Wang Lin ne prononça pas un mot durant le voyage, mais le tonnerre qu'il laissait derrière lui brillait comme un brasier nocturne. Ce sillage finit par s'estomper progressivement. Après avoir passé la majeure partie d'un mois dans le vide, la traînée de tonnerre derrière Wang Lin avait totalement disparu.
+
+Ce n'est qu'à ce moment que Wang Lin se détendit. Ce tonnerre n'était pas un phénomène qu'il cherchait à provoquer ; il résultait simplement du fait que son propre corps contenait de la foudre. Elle naissait de la friction entre le tonnerre interne de son corps et celui de l'extérieur.
+
+Wang Lin n'appréciait guère ce genre de spectacle, car c'était trop ostentatoire et risquait d'attirer des ennuis inutiles. Maintenant que son corps s'était adapté à la chaîne, il put enfin se relâcher.
+
+« D'après ce que j'ai entendu, l'âme de vie de Li Yuan est entre les mains de la famille de cette femme parce qu'ils l'ont sauvé. Pourtant, je crains qu'il n'y ait une autre raison... » Tout en progressant le long de la chaîne, il continuait d'observer les deux individus et de méditer sur la situation.
+
+« L'épée de cette femme provoque une telle réaction chez Li Yuan. Je suppose que le fait d'être sauvé pour ensuite être lié à sa famille faisait partie intégrante de son plan ! » Le regard de Wang Lin se posa sur l'épée de fer. Après l'avoir examinée minutieusement à plusieurs reprises, il ne trouva aucun indice. Cette épée possédait une résistance phénoménale au tonnerre. Plus on s'enfonçait le long de la chaîne, plus la foudre devenait intense, mais l'épée de fer n'en était nullement affectée.
+
+Tout au long du trajet, les trois restèrent silencieux. Chaque fois que la femme nommée Ge jetait un regard vers Wang Lin, ses yeux étaient empreints de crainte. Elle avait désormais une véritable peur de lui. Il avait capturé son fantôme céleste avec une facilité déconcertante et parvenait à marcher sereinement sur la chaîne de tonnerre. Tout cela nourrissait sa terreur.
+
+D'autant plus qu'elle savait qu'une partie de son âme était entre ses mains, ce qui la terrifiait davantage.
+
+La femme songea : « Je n'ai aucune véritable haine envers lui, seulement quelques conflits passés. Puisqu'il est un aîné, tant que je reste obéissante et que je suis ses ordres, je devrais pouvoir survivre. »
+
+Quant à Li Yuan, il réprima le choc provoqué par la présence de Wang Lin et resta silencieusement sur la pointe de l'épée, immobile, comme s'il avait toujours été ainsi.
+
+Le temps passa rapidement. Les trois avaient voyagé dans le vide pendant près de deux mois. Le Royaume Céleste du Tonnerre était si vaste qu'ils ne croisèrent aucun autre cultivateur durant cette période. C'était comme si, pendant ces deux mois, ils étaient les seuls êtres au monde.
+
+Cette monotonie exaspérait la femme nommée Ge. Pourtant, chaque fois qu'elle voulait décharger sa frustration sur Li Yuan, elle ressentait une sensation inexplicable : cette silhouette, ce décor lui semblaient étrangement familiers.
+
+Ce sentiment de déjà-vu la forçait à réprimer son tempérament. Mais malgré ses efforts, elle ne parvenait pas à identifier l'origine de cette familiarité.
+
+« J'ai toujours l'impression d'avoir déjà vu cette scène quelque part... » La femme nommée Ge passa le reste de son temps à s'interroger.
+
+Ce jour-là, alors qu'ils progressaient davantage, le tonnerre devint encore plus puissant. Les rugissements de la foudre résonnaient sans fin, se propageant comme des dragons et s'éparpillant dans toutes les directions.
+
+Wang Lin ressentit également un inconfort émanant de la chaîne. Il devint vigilant, car ce qui le dérangeait n'était pas le tonnerre lui-même, mais les vibrations qui en émanaient.
+
+Ces secousses provenaient de l'avant et faisaient trembler la chaîne de tonnerre, projetant des éclairs dans tous les sens.
+
+Même le bouclier lumineux entourant l'épée de fer vacillait, comme s'il allait se briser à tout instant. La femme nommée Ge parut paniquer et intensifia son contrôle. Li Yuan fronça légèrement les sourcils.
+
+À mesure qu'ils avançaient, les vibrations s'accentuèrent. Le tonnerre semblait imprégné d'une aura violente ; le moindre contact provoquait un fracas assourdissant.
+
+Wang Lin continuait de froncer les sourcils, la prudence s'intensifiant dans son regard. Il avait un mauvais pressentiment, comme si une existence terrifiante les attendait plus loin.
+
+« Aîné, bien que je n'aie jamais visité le Royaume Céleste du Tonnerre auparavant, je sais que les chaînes reliant les fragments ne devraient pas trembler aussi violemment. Aîné, regardez là-bas ! » Li Yuan pointa le vide sur la gauche. Au bout de ce néant, on distinguait de vagues éclats de lumière.
+
+« Aîné, il devrait y avoir une chaîne de tonnerre là-bas également, et pourtant nous pouvons voir la lumière. Je crains que ces secousses ne concernent pas seulement notre chaîne, mais la majorité des chaînes de la région ! Je pense qu'un événement majeur est en cours ! »
+
+« Et si... et si nous faisions demi-tour ? Avant de venir ici, l'ancêtre de ma famille m'a prévenu : si les chaînes reliant les fragments tremblent, cela signifie... cela signifie que les deux fragments sont sur le point de s'effondrer ! » Le visage de la femme était pâle ; elle ressentait elle aussi les vibrations de la chaîne.
+
+Les secousses devinrent plus fréquentes et plus violentes. Le tonnerre engendré par ces vibrations était terrifiant.
+
+Wang Lin avait déjà remarqué l'endroit que Li Yuan désignait. Après une courte réflexion, il regarda sombrement devant lui et dit d'une voix lente : « La réponse est devant nous. Il n'y a plus de chemin pour reculer, alors nous ne saurons la vérité qu'en arrivant. »
+
+Li Yuan hocha la tête. Il partageait cette pensée. Ils avaient parcouru un chemin trop long pour faire marche arrière maintenant. Bien que les cultivateurs doivent être prudents, face à une voie sans issue, ils se doivent d'avancer avec courage.
+
+Li Yuan s'adressa à la femme : « Madame Ge, bien que ces vibrations soient liées à notre progression dans le vide, il est trop tard pour fuir ! »
+
+Wang Lin ne dit plus rien ; son corps vacilla et il accéléra sa course. Il dépassa les deux autres et chargea en avant.
+
+Li Yuan regarda le dos de Wang Lin en pensant : « Il n'utilisait pas réellement toute sa force auparavant. Cet homme n'est pas simple ! Mon instinct pour juger les gens ne m'a pas trompé ! Comment quelqu'un capable de vaincre un cultivateur de l'Illusoire Yin pourrait-il être ordinaire ?! »
+
+Peu après que Wang Lin eut chargé dans le vide, ses yeux se contractèrent soudainement et il s'arrêta net. Il fixa l'horizon et vit une immense étendue de brouillard saturée d'énergie spirituelle céleste. Ce brouillard était infini et obstruait toute progression.
+
+À cet instant, l'épée de fer les rattrapa. Lorsque Li Yuan aperçut le brouillard, il fut stupéfait. Après un examen plus attentif, son expression changea radicalement et il s'écria : « C'est une restriction ! »
+
+Wang Lin avait reconnu que ce brouillard portait les traces du pouvoir d'une restriction. Il demanda calmement : « Puisqu'il s'agit d'une restriction, êtes-vous certain de pouvoir la briser ? »
+
+Li Yuan fronça les sourcils en l'étudiant avec soin. Ses yeux brillèrent lorsqu'il répondit : « Je n'en suis pas sûr. Ce n'est pas une simple restriction, mais une combinaison de multiples restrictions qui empruntent la puissance du tonnerre du Royaume Céleste du Tonnerre. Qui a bien pu avoir l'audace de placer une telle barrière ?! »
+
+Son expression devint très grave alors qu'il frappait son sac de rangement pour en sortir une boussole. L'aiguille tournait frénétiquement tandis que ses mains traçaient des sceaux ; il calculait, les yeux étincelants de concentration. Mais soudain, la boussole explosa en poussière et se dissipa.
+
+« C'est une restriction céleste de rang intermédiaire qui utilise le Royaume Céleste du Tonnerre comme fondation, avec 9 999 esprits servant d'yeux à la formation. Elle peut créer une formation colossale et incomparable, capable de raffiner tout ce qui existe au monde ! »
+
+À cet instant précis, un rire jaillit du brouillard lointain, suivi de l'apparition d'un vieil homme sortant des brumes. Il tenait quelque chose à la main : une chaîne de tonnerre !
+
+« Oh ? Vous rencontrer ici prouve que vous êtes bel et bien destinés à ce vieux fou ! J'allais justement vous chercher, mais vous voilà venus d'eux-mêmes. Très bien, très bien ! »

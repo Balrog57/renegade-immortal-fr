@@ -1,0 +1,115 @@
+---
+n: 1876
+title: "La troisième transformation de Sept Couleurs !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1876 - Seven-Color’s Third Transformation!"
+slug: la-troisieme-transformation-de-sept-couleurs
+---
+Chapitre 1876 - La troisième transformation de Sept Couleurs !
+
+À la surface de la Prairie de l'Extrême Ciel, Zhang Daozong et le vieil homme nommé Zhao observaient le sol avec suspicion. Ils sentaient clairement une aura puissante jaillir des profondeurs de la terre.
+
+Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur faire rater un battement de cœur. C'était comme si un immense Taureau Céleste s'était éveillé et poussait un rugissement en se précipitant vers le ciel.
+
+Ils n'étaient pas les seuls à ressentir cela. Les quatre Messagers du Démon Vert affichaient des expressions solennelles en fixant la terre.
+
+Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent du Démon Vert. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple du Scorpion du Démon Vert pour devenir les serviteurs du Scorpion du Démon Vert.
+
+Au fil des éons, de nombreux messagers s'étaient succédé, mais après d'innombrables cycles d'élimination et de mort, seuls neuf d'entre eux avaient fini par obtenir la reconnaissance du Démon Vert !
+
+Ces neuf personnes étaient les Messagers du Démon Vert du Continent du Démon Vert. Ils étaient les héritiers de la volonté du Scorpion du Démon Vert, lequel était opprimé sous le continent !
+
+C'est pour cette raison que leurs perceptions étaient bien plus aiguisées que celles de Zhang Daozong et des autres. Ils savaient clairement que l'aura provenant du sous-sol émanait d'un messager du Taureau Céleste ayant obtenu la reconnaissance de ce dernier.
+
+La terre trembla plus violemment encore sous des grondements sourds. L'herbe s'effondra, réduite en une poudre verdâtre. Le vent souleva cette poussière vers le ciel, enveloppant les environs d'un brouillard épais.
+
+La peau de Zhang Daozong se hérissa et il fut le premier à s'élancer dans les airs, suivi de près par le vieil homme nommé Zhao.
+
+Les quatre Messagers du Démon Vert gardaient des visages graves, mais ils ne s'envolèrent pas. Ils se dispersèrent rapidement pour s'asseoir aux quatre points cardinaux. Leurs mains formèrent des sceaux tandis qu'ils poussaient des rugissements.
+
+À leurs cris, d'épaisses volutes de gaz vert apparurent derrière eux. La brume verdâtre tourbillonna avec rapidité pour former quatre scorpions verts !
+
+Ces quatre scorpions étaient d'une férocité extrême. Dès leur apparition, ils poussèrent des hurlements stridents et plongèrent dans la terre.
+
+Immédiatement après, les quatre messagers se mordirent la langue et crachèrent leur sang tout en pressant leurs mains contre le sol. Ils fermèrent les yeux, et quatre filaments de gaz vert, aussi épais qu'un bras, jaillirent d'eux. Le gaz s'assembla dans le ciel pour former un miroir vert !
+
+Bien que ce miroir fût une illusion, il dégageait une puissante aura démoniaque. En le voyant, les yeux de Zhang Daozong et du vieil homme Zhao se remplirent de respect.
+
+Alors que le gaz vert balayait la surface du miroir, un continent apparut. Cette terre ne comptait que peu de montagnes, mais était parsemée de nombreux marais. Même certaines cités mortelles étaient bâties au-dessus de ces marécages, ce qui était très étrange.
+
+Ce continent semblait plus petit que celui du Taureau Céleste, ne représentant que 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
+
+Le monde à l'intérieur du miroir était le Continent du Démon Vert !
+
+Tandis que les quatre Messagers rugissaient, le miroir s'enfonça lentement pour recouvrir le sol entre eux. De cette position, il couvrait toute la Prairie de l'Extrême Ciel afin de la réprimer.
+
+Au plus profond de la terre, Wang Lin, fusionné avec le Taureau Céleste derrière lui, s'élançait vers la surface. Le palais souterrain restait derrière lui. Il n'avait nullement l'intention de jouer les héros ; il ne faisait pas cela pour le continent du Taureau Céleste, mais pour remplir ses trois conditions.
+
+Cependant, Wang Lin était raisonnable. Son armure d'âme contenait la culture et le sang de plus de mille cultivateurs restés dans le palais souterrain. Il ne pouvait les abandonner. Il devait au moins assurer leur sécurité avant de partir.
+
+Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Vert Taureau !
+
+Alors qu'il chargeait, le visage de Wang Lin était dissimulé par l'armure noire, ne laissant paraître que ses yeux froids et sa chevelure d'un blanc immaculé. Sa vitesse était prodigieuse ; en un éclair, il n'était plus qu'à quelques milliers de pieds de la surface.
+
+Mais à cet instant précis, les yeux de Wang Lin se contractèrent. Il sentit clairement quatre auras très familières mais répugnantes surgir et foncer vers lui.
+
+Il entrevit vaguement quatre scorpions verts charger avec férocité.
+
+Un sentiment de dégoût et de haine envahit le cœur de Wang Lin envers ces quatre créatures. Il comprit que ce n'était pas son propre ressenti, mais celui de l'âme du Taureau Céleste !
+
+Il était évident qu'il y a des éons, avant que le Taureau Céleste et le scorpion ne soient opprimés par l'Ancêtre Céleste, ils s'étaient connus !
+
+Ou plutôt, ils étaient de vieux ennemis !
+
+Le regard de Wang Lin s'illumina et il s'arrêta brusquement. L'ombre du Taureau Céleste se condensa dans son corps avant de disparaître sans laisser de trace. Seul Wang Lin demeura sur place.
+
+Sans l'ombre d'une hésitation, Wang Lin leva le pied. Il ne chargea plus vers le haut, mais se dirigea vers l'ouest. D'un seul pas, il se déplaça comme un éclair et disparut. Lorsqu'il réapparut, du gaz vert l'attendait et un féroce scorpion vert fonçait sur lui.
+
+Avant que la créature ne puisse s'approcher, elle balança sa queue qui fouetta l'air vers Wang Lin tel un coup de fouet. Ce dernier afficha un regard glacial et ignora totalement l'attaque. Il leva les bras et agrippa la terre devant lui.
+
+« Déchirure Céleste ! » Sa culture de stade intermédiaire de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique !
+
+Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille gigantesque devant lui. Celle-ci s'étira directement vers le scorpion en approche !
+
+Un grondement tonitruant retentit. La faille s'étendit instantanément jusqu'à atteindre une taille incommensurable et percuta la queue du scorpion. La queue trembla puis se brisa net. Simultanément, l'immense fracture balaya le corps du scorpion vert dans sa course vers la surface.
+
+La Prairie de l'Extrême Ciel trembla. Sur le flanc ouest, la terre éclata soudainement, révélant une crevasse monumentale de plus de 100 000 pieds de large !
+
+Alors que la fissure s'ouvrait, un jet de gaz vert jaillit dans un cri misérable avant de se dissiper.
+
+L'un des quatre Messagers du Démon Vert pâlit et cracha du sang.
+
+Un seul « Déchirure Céleste » avait suffi à tuer une âme de Scorpion Vert. Wang Lin observa le reste du combat et tourna la tête pour voir trois masses de gaz vert charger vers lui. Il s'agissait de trois autres scorpions identiques qui fonçaient avec férocité.
+
+« Je me demande si, avec mon niveau de culture actuel, l'usage de la Lance aux Sept Couleurs posséderait la puissance de plusieurs soleils, comme lorsqu'elle était maniée par le Souverain Céleste aux Sept Couleurs à son apogée ? » pensa Wang Lin, l'intention de combat montant en lui.
+
+Il fit un pas en avant. À l'instant où son pied toucha le sol, la terre trembla comme si elle ne pouvait supporter son poids. Sa main droite bougea avec célérité pour invoquer la Lance aux Sept Couleurs !
+
+Sa vitesse n'était pas beaucoup plus grande qu'avant d'enfiler l'armure, mais elle était bien supérieure à celle de n'importe quel cultivateur ordinaire !
+
+D'un revers de main, une lumière septicolore envahit le monde et une lance apparut. Elle dégageait une aura destructrice, si instable qu'elle semblait pouvoir s'effondrer à tout instant.
+
+La lumière sur la lance changea rapidement pour se condenser en un noir profond !
+
+Auparavant, aucune nuance de noir n'existait parmi le rouge, l'orange, le jaune, le vert, le bleu, l'indigo et le violet.
+
+Cependant, à cet instant, la Lance aux Sept Couleurs devint d'un noir absolu, chargée d'une intention meurtrière monstrueuse. C'était la véritable Lance aux Sept Couleurs. Il fallait atteindre un certain niveau de culture pour qu'elle puisse opérer sa première transformation !
+
+Wang Lin leva la main et saisit cette première forme. Au moment où il la prit en main, la lance trembla et la lumière noire vira au blanc !
+
+C'était la deuxième transformation de la Lance aux Sept Couleurs !
+
+Le regard de Wang Lin, empreint d'une volonté de destruction, se fixa sur sa cible alors qu'il lançait l'arme. Des grondements sourds résonnèrent tandis que la lance blanche fendait l'air vers l'un des trois scorpions !
+
+Alors que la lance volait, sa couleur changea une nouvelle fois, passant du blanc au gris !
+
+C'était la troisième transformation de la Lance aux Sept Couleurs ! La forme la plus puissante dont le Souverain Céleste aux Sept Couleurs pouvait disposer !
+
+La lance grise fondit sur un scorpion. La créature poussa un hurlement et cracha une immense quantité de gaz vert qui percuta l'arme de plein fouet.
+
+Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol, provoquant l'effondrement d'une vaste zone de la Prairie de l'Extrême Ciel sous l'impact, projetant des tonnes de terre et d'herbe vers le ciel.
+
+« Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup ! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
+
+« Il reste encore deux scorpions. Je vais en profiter pour tester mes autres sorts et voir si je dois continuer à les perfectionner ! »

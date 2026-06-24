@@ -1,0 +1,31 @@
+---
+name: Wang Ping
+title: Wang Ping
+type: personnage
+categories: ["Characters", "Male", "Human", "Deceased", "School of Heaven", "Heaven Empire"]
+image: /renegade-immortal-fr/wiki/images/Child wang ping.webp
+url: "https://xian-ni.fandom.com/wiki/Wang_Ping"
+
+---
+![Wang Ping](/renegade-immortal-fr/wiki/images/Child wang ping.webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Wang_Ping) (CC BY-SA)
+
+**Catégories :** Characters, Male, Human, Deceased, School of Heaven, Heaven Empire
+
+## History
+
+When Wang Lin launched a soul that contains the domain of seduction, Liu Mei successfully absorbed this soul and when the domain of seduction was merged, Liu Mei lost control over the domain which caused Wang Lin and Liu Mei to have physical contact.
+
+Two hundred years after the events on Suzaku, Wang Lin enters the Allheaven Star System and finds Liu Mei who was forcefully raised to Peak Late Stage Ascendant but due to not comprehending her domain, her cultivation was unstable and led to her defeat; in order to leave a mark on Wang Lin's heart she tormented her unborn child over the two hundred years turning him into a resentful spirit whom was only ever told "Wang Lin is your father, and he abandoned you" and used him in her battle with him, ultimately she was killed by being absorbed by her "teacher" for her dao and left behind a Jade Slip with details on how to remove the effects of the resentful spirit on Wang Ping. (Whom she named Li'er)
+
+Wang Lin spends roughly 80 years raising Wang Ping as a mortal to understand what it means to live, and broaden his horizons but refuses his plea to cultivate three times; unbeknown to him the reason is that he is unable to cultivate as he is a resentful spirit in a false body. (His body was made from two strands of sword qi)
+
+Eventually he comes to understand life, learns of his origin and is still thankful to his father thus dispelling all of his resentment, when he dies of old age Wang Lin returns him to the Heaven Defying Bead hoping to one day resurrect him, Qing Yi says she wishes to forever be in the same place with Wang Ping and gives up her life so that she can stay besides him in death. (She was a peak soul transformation cultivator as Wang Lin saw that Wang Ping liked Qing Yi so he made a deal with her which included Nascent soul cultivation if she was willing to stay with Ping'er. )
+
+Wang Ping and Qing Yi settled down in a ordinary mountain village and they lived a quiet life. They were no longer young, and the passage of his life often flashed across Wang Ping’s eyes.
+
+His entire life was 18 years of ordinary life, eight years of travel with his father, 25 years of battle, and ten years of being the supreme leader(Emperor of Heaven Empire). Although it was a short life, it was more exciting than anything ordinary people would experience.
+
+However, in the end he still returned to his starting point, back to his ordinary life. When he died he was 72 years old and Wang Lin revealed that his body and soul were made from sword spirit energy and that is why he wouldn't let him cultivate otherwise he would die from the resentment left in his body. This was also the reason he didn't conceive a child with Qing Yi. Wang Lin then made his and Qing Yi's ball of light enter the Heaven Defying Bead and hence they rested next with Li Muwan's Nascent soul. He then declared Li Muwan (or Wan'er as Wang Lin called her sweetly) as his mother and left with heavy heart thus increasing his life and death domain to Late Ascendant stage. He is later expected to be revived by Wang Lin
+

@@ -1,0 +1,115 @@
+---
+n: 1628
+title: Rétribution de la Réalité Fantastique
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1628 - Fantasy Reality Retribution
+slug: retribution-de-la-realite-fantastique
+---
+Sa paume ouverte représentait la cause karmique, et sa paume fermée l'effet karmique. L'Empreinte du Karma jaillit, faisant trembler l'autel. Les deux pans surgissant de la faille libérèrent un fracas tonnerre.
+
+De nombreuses fissures apparurent sur ces deux sections avant qu'elles ne s'effondrent soudainement. D'innombrables fragments se dispersèrent et furent réduits en cendres par les flammes.
+
+Si seuls deux pans s'étaient effondrés, cela n'aurait été surprenant que peu. Cependant, sous l'assaut de l'Empreinte du Karma, non seulement ces deux pans s'écroulèrent, mais même les quatre épées gravitant autour de la silhouette vague tremblèrent en émettant des bourdonnements plaintifs.
+
+Wang Lin extraisit quatre auras semblables à de la fumée de ces quatre épées. Elles étaient invisibles à l'œil nu, mais perceptibles au Sens Divin. Elles volèrent vers la main de Wang Lin qui les saisit.
+
+Alors que les quatre auras se dissipaient, les quatre épées que Wang Lin redoutait autrefois perdirent tout leur éclat ; elles ne semblaient plus être que des lames ordinaires, dépourvues de toute essence spirituelle.
+
+Cependant, ce n'était pas encore terminé. Rien de ce qui possédait une essence ne pouvait échapper à l'Empreinte du Karma, car ce sort était d'une domination absolue. Les mortels n'étaient pas dignes de tenter de l'esquiver ; même les cultivateurs de la troisième étape, tel que le jeune homme en robe verte, étaient terrifiés devant elle.
+
+L'autel trembla violemment tandis qu'une aura semblait être extraite. Ses secousses s'intensifièrent, et des fissures semblables à des toiles d'araignée se propagèrent sur l'ensemble de la structure.
+
+Tout cela se produisit en un instant, et alors que la main droite de Wang Lin se fermait, une lueur froide traversa son regard.
+
+« Brise ! »
+
+D'un seul mot, un grondement monstrueux émana de l'autel. Même la partie qui n'avait pas encore émergé de la faille s'effondra. Les innombrables fragments se transformèrent en une tempête, mais dès son apparition, elle fut dévorée par le brasier environnant.
+
+Un rugissement retentit depuis l'intérieur de l'autel écroulé. La silhouette vague qui y siégeait leva les yeux et s'élança hors des décombres. Elle traversa la mer de feu pour charger Wang Lin.
+
+Cette figure restait floue, et même en pleine charge, son apparence demeurait impossible à discerner. La silhouette leva la main et sembla murmurer un sortilège. Sa main droite libéra une lumière jaune qui frappa vers Wang Lin.
+
+« Vie ! » Wang Lin laissa échapper un reniflement glacial. Il ne chercha ni à esquiver, ni à se cacher. D'un revers de manche, il enveloppa sa main gauche d'un gaz blanc pour affronter de front cette paume jaune. Les deux mains entrèrent en collision dans un fracas monstrueux. La silhouette fut forcée de reculer de plusieurs pas.
+
+Une force vitale ordinaire n'aurait pu causer de grands dégâts, mais Wang Lin avait compris l'essence même de la vie et de la mort. La force vitale injectée servait ici à engendrer la mort.
+
+« Tu oses m'attaquer avec une telle faiblesse ? » Wang Lin se déplaça et apparut devant la silhouette en retrait. Il leva sa main droite, entourée d'un gaz noir, et alors qu'il convergeait vers l'être, il pressa sa paume contre son torse.
+
+« Mort ! » En pressant, le gaz noir de sa main droite s'engouffra dans la silhouette, déclenchant la force vitale précédemment injectée. L'aura de vie et de mort fusionna pour compléter un cycle et former le Sceau de la Vie et de la Mort !
+
+Dès que le Sceau fut achevé, un grondement tonitruant secoua la silhouette vague qui se mit à trembler en expirant des souffles dorés. La figure fut projetée en arrière et son aspect flou se dissipa légèrement, révélant sa terreur et son incrédulité. Le Sceau de la Vie et de la Mort avait corrompu l'équilibre de son essence vitale, provoquant l'effondrement de son corps.
+
+Le messager des cieux qui avait tant fait souffrir Wang Lin était désormais si faible qu'il ne pouvait même pas résister à un seul coup.
+
+« Rétribution divine... De quel droit prétendez-vous m'infliger une rétribution divine ? » Les paroles de Wang Lin étaient calmes, mais elles se propagèrent à travers la brume jusqu'aux oreilles du Maître South Cloud, de Situ Nan et des milliers de cultivateurs à l'extérieur.
+
+Cette unique phrase suffit à faire bouillir le sang des cultivateurs du Royaume Intérieur. Elle était d'une arrogance extrême, mais personne n'osa la remettre en question !
+
+Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis sa première confrontation avec la rétribution divine dans la Terre des Esprits Démoniaques, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir !
+
+Demander aux cieux quel droit ils avaient d'emporter Li Muwan !
+
+Demander aux cieux qui leur avait donné le pouvoir de punir les êtres !
+
+Demander aux cieux qui leur avait accordé le droit de se faire passer pour le Ciel !
+
+Des grondements tonitruants éclatèrent et les nuages s'étendant sur un million de kilomètres semblèrent entrer dans une rage folle. Des rugissements sourds, capables d'ébranler l'esprit, émanèrent de la faille.
+
+À mesure que le son s'intensifiait, les nuages commencèrent à tourbillonner. Dans ce mouvement, le rugissement s'amplifia et une pression écrasante se propagea.
+
+Tandis qu'ils tournaient, d'innombrables silhouettes vagues apparurent au sein des nuées. Ces formes ressemblaient à des âmes et poussaient des cris de détresse. En un clin d'œil, ces spectres fantomatiques envahirent l'espace autour de Wang Lin. Rapidement, ils se précisèrent pour devenir des visages familiers.
+
+Il y avait ses parents, son quatrième oncle, Wang Zhou, Zhang Hu, Liu Mei et Li Muwan. Il y avait aussi Teng Li, Teng Yuan, ainsi que ceux qu'il considérait comme des ennemis, des amis ou des proches. Ils chargèrent Wang Lin de toutes parts.
+
+Alors qu'ils convergeaient, les nuages se remplirent de rugissements et d'appels empreints de douceur qui s'engouffrèrent dans l'esprit de Wang Lin.
+
+Wang Lin médita silencieusement face à ces silhouettes qui approchaient. Il vit ses parents aux cheveux blancs, s'enlaçant et tremblant alors qu'ils avançaient vers lui. Il vit les larmes dans leurs yeux et leurs mains desséchées levées comme pour effleurer son visage.
+
+Il vit Li Muwan. Elle avait le regard embué de larmes, mais un sourire chaleureux illuminait son visage. Elle essuya ses pleurs et marcha paisiblement vers lui.
+
+Il vit Liu Mei, tenant un nourrisson entouré d'un gaz noir. Les cris du bébé étaient perçants, capables de transpercer l'âme.
+
+Il voyait tout, il voyait énormément.
+
+Cette scène était d'un réalisme absolu ; forgée par la rétribution divine, il était presque impossible de distinguer le vrai du faux. Elle créait l'illusion qu'un instant suffisait pour basculer de l'un à l'autre. Si vous croyiez que tout était faux et que vous détruisiez tout, vous pourriez découvrir que tout était réel : vous auriez alors anéanti les dernières âmes de vos êtres chers en ce monde !
+
+Tandis qu'il réfléchissait, d'autres silhouettes l'encerclèrent. Wang Lin laissa échapper un soupir, observa profondément ces apparitions et ferma les yeux.
+
+Ayant compris l'essence du Vrai et du Faux, cela n'avait aucune prise sur lui. En fermant les yeux, tout devenait faux ; en les ouvrant, tout redevenait réel.
+
+Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte du Vide en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
+
+« Puisque les cieux sont assez impitoyables pour m'opposer une telle méthode, je ferai de même ! Cieux, ouvrez vos yeux et voyez combien d'êtres, en dehors de moi, rugissent face à vous ! » Wang Lin ouvrit les yeux, pointa le firmament et hurla !
+
+Dans son cri, son Dao du Vrai et du Faux surgit soudainement !
+
+Au cœur des nuages grondants, alors que Wang Lin rugissait, de multiples figures illusoires apparurent. Ces formes étaient façonnées par son propre Dao. Si l'on disait qu'elles étaient réelles, elles l'étaient ; si on les disait fausses, elles ne l'étaient pas.
+
+Parmi ces figures se trouvait Zhou Yi, tenant le cadavre de la femme et rugissant lamentablement vers le ciel...
+
+Parmi elles, Bai Fan, pointant les cieux en riant comme un fou...
+
+Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, rugissant contre l'éther...
+
+Parmi elles, Tuo Sen, maudissant les cieux avec arrogance...
+
+Et bien d'autres encore...
+
+On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et Maître Scattered Spirit lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
+
+Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de rétribution divine. La rétribution des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
+
+Alors que les rugissements résonnaient vers les hauteurs, une force invisible se précipita dans la faille. Cependant, celle-ci ne manifesta aucune réaction et le grondement intérieur ne fut point interrompu.
+
+« Pas assez... » Wang Lin ferma les yeux et déploya son Sens Divin. En un éclair, sa conscience embrassa l'intégralité du Brilliant Void. Son Sens Divin pénétra chaque planète de culture et sonda la mémoire de l'âme de chaque monde.
+
+Depuis des temps immémoriaux, quiconque avait vécu dans le Royaume du Brilliant Void, mortel ou cultivateur, avait poussé un rugissement de ressentiment en levant les yeux vers le ciel. Peut-être personne ne les avait vus, peut-être étaient-ils morts depuis longtemps, mais les planètes sur lesquelles ils avaient foulé le sol s'en souvenaient toutes.
+
+À cet instant, le Sens Divin de Wang Lin capta cette résonance et, fusionnant avec son Dao du Vrai et du Faux, se mua en une rétribution divine ciblant le Ciel lui-même.
+
+La faille qui incarnait la rétribution divine trembla pour la première fois, et le rugissement provenant de l'intérieur s'arrêta brusquement.
+
+Au même moment, de l'autre côté des nuages, les yeux du Vieux Fantôme Zhan brillèrent comme jamais auparavant, animés par une cupidité effrénée.
+
+« Il y a 30 % de chances qu'il soit le troisième ! » Le Vieux Fantôme Zhan se lécha les lèvres.

@@ -1,0 +1,151 @@
+---
+n: 550
+title: Yao Xixue
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 550 - Yao Xixue
+slug: yao-xixue
+---
+Sima Yan serra les dents et hurla : « Dispersez-vous ! »
+
+Cet ordre au sein du camp militaire était absolu !
+
+Les 9 000 soldats démons environnants se retirèrent rapidement. Le siège ayant pris fin, la formation disparut naturellement elle aussi.
+
+À cet instant précis, une lueur sanglante jaillit au centre du camp et la silhouette svelte de l'intendant de l'armée émergea lentement.
+
+Il n'était pas seul ; derrière lui se tenait un vieil homme vêtu de lin. Il se tenait là, ses cheveux flottant dans les airs, et tout ce qui l'entourait semblait osciller au rythme de ses mouvements.
+
+Au moment où le vieil homme apparut, Wang Lin ouvrit soudainement les yeux. Son regard transperça la masse des soldats démons pour se poser directement sur le vieillard.
+
+Les yeux du vieil homme se plissèrent également tandis qu'il fixait Wang Lin.
+
+Leurs regards se croisèrent et le cœur de Wang Lin trembla un instant avant de se stabiliser. Il perçut quatre sceaux à l'intérieur de cet homme.
+
+Le corps du vieil homme tressaillit à son tour et ses yeux brillèrent intensément ; il fut profondément stupéfait qu'un simple regard de Wang Lin ait failli provoquer l'effondrement des sceaux qui le scellaient.
+
+Une fois l'intendant apparu, celui-ci fit un pas et se téléporta instantanément à une vingtaine de mètres de Wang Lin. Le vieil homme fit de même.
+
+Le visage émacié de l'intendant ne trahit aucune émotion face aux cadavres jonchant le sol.
+
+Sima Yan s'exclama rapidement : « Seigneur Intendant, le Commandant a tué le chef de régiment Sun sans raison, et a également massacré plus de 500 soldats démons ! Tout cela a été vu et entendu par l'assistance ! »
+
+Wang Lin agita sa main droite et un morceau de jade vola vers l'intendant. Ce dernier le réceptionna et, en y injectant son énergie spirituelle démoniaque, diverses images se projetèrent dans son esprit.
+
+Ces images retranscrivaient fidèlement ce qui venait de se produire !
+
+L'intendant fixa Wang Lin d'un regard profond. Sa sous-estimation initiale du jeune homme s'était totalement évanouie, laissant place à une volonté de nouer des liens. Par cette action, Wang Lin avait pris l'initiative et s'était placé dans une position où il ne pouvait que l'emporter.
+
+Il esquissa un léger sourire et déclara : « Je vous prie de m'excuser pour ce dérangement, Commandant Wang. Je vais rapporter ces faits au Seigneur Général. Ceux qui ont osé se révolter méritaient ce sort ! »
+
+Tout en parlant, il joignit les mains en signe de respect avant de s'éloigner. Le vieil homme fit de même et ajouta : « La culture du Commandant Wang est prodigieuse, je suis impressionné ! »
+
+Une fois les deux hommes partis, Sima Yan resta pensif un long moment avant de dire respectueusement à Wang Lin : « J'ai fait preuve d'imprudence dans cette affaire. J'espère que le Commandant ne m'en tiendra pas rigueur ! »
+
+À ces mots, une lueur mystérieuse passa dans les yeux de plusieurs chefs de régiment. L'un d'eux s'avança immédiatement et dit avec respect : « Ce subordonné a également été imprudent dans cette affaire. »
+
+Peu après, tous les autres chefs de régiment firent la même déclaration.
+
+L'issue de ce conflit était décidée d'avance. Les personnes présentes n'étaient pas stupides et avaient déjà percé à jour les méthodes de Wang Lin.
+
+Tout aurait été simple si ce nouveau commandant s'était contenté de ne rien faire, mais lorsqu'il agissait, il frappait avec la rapidité de l'éclair. Si ces luttes intestines persistaient, le sort du chef de régiment Sun risquait de se répéter !
+
+De plus, à en juger par le niveau de culture du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
+
+Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa d'un pouce !
+
+La terre mise à nu se souleva brusquement sous les pieds de Wang Lin !
+
+Une poussière épaisse envahit l'air, comme si elle recouvrait le monde entier.
+
+En un instant, une pagode de terre apparut au milieu du camp militaire.
+
+C'était une construction à deux étages qui, bien que rudimentaire, dégageait une aura de majesté.
+
+D'un simple mouvement de la main, Wang Lin avait été capable d'arracher des pans entiers de terre à tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
+
+« Vous pouvez tous partir ! » Après avoir lancé cet ordre, Wang Lin se détourna et pénétra dans la pagode.
+
+Treize le suivit prestement. Quant à Hu Pao, il lança un regard narquois à son entourage avant de suivre Wang Lin à son tour. Il se sentait revigoré, car toute la colère refoulée depuis quinze jours venait d'être évacuée.
+
+Son respect envers Wang Lin n'en devint que plus profond !
+
+Une fois le trio entré dans la pagode, Sima Yan serra les poings et partit sans un mot.
+
+Les neuf chefs de régiment restants échangèrent des regards. Ils prirent tous une décision commune et quittèrent les lieux avec leurs régiments respectifs.
+
+Dès lors, parmi les huit chefs de régiment proches de Sima Yan — à l'exception du défunt chef Sun — seuls trois maintinrent leur lien étroit, tandis que les quatre autres commencèrent peu à peu à s'en distancier.
+
+À partir de ce jour, la figure de Wang Lin s'imposa avec clarté dans l'esprit de tous les soldats.
+
+Bien qu'il n'ait émis aucun ordre depuis sa nomination, sa majesté grandissait inexorablement, nourrie par le sang versé.
+
+Dans la Cité Démoniaque Antique, on comptait au total seize camps militaires. Tous portaient des armures noires, seules leurs insignes variaient légèrement. En ce moment même, dans le troisième camp, Yao Xixue cultivait silencieusement à l'intérieur d'une demeure.
+
+Tard dans la nuit, Yao Xixue ouvrit les yeux. Son regard était d'une clarté éclatante. De l'autre côté de la fenêtre, la lune de la Terre des Esprits Démoniaques diffusait une lueur pourpre. Ce soir marquait l'ascension semi-annuelle du Démon Pourpre. La légende voulait que lors de cette ascension, les cieux et la terre entrent en communion.
+
+Personne ne savait expliquer le mécanisme exact de ce phénomène. Cette rumeur remontait à des temps immémoriaux et nul n'avait pu l'élucider clairement.
+
+Elle prit une profonde inspiration et se leva. Après avoir scruté ses environs grâce à son Sens Divin, elle effleura sa sacoche de rangement, et une boussole rouge apparut immédiatement dans sa main.
+
+En contemplant la boussole, elle afficha une expression d'hésitation.
+
+« J'ai tenté d'atteindre ce lieu trois fois, et à chaque fois, j'ai été stoppée au même endroit. Père a dit que pour y pénétrer, ma culture doit d'abord atteindre le stade Ascendant... Selon son plan, je resterai ici jusqu'à ce que j'absorbe suffisamment d'énergie spirituelle démoniaque pour franchir le stade Ascendant ; avec l'aide des Pilules de l'Âme Sanguine, j'ai 80 % de chances de réussir. Cependant, ce jeton est apparu de manière inattendue lors de la marée... »
+
+Les sourcils délicats de Yao Xixue se froncèrent tandis qu'elle méditait, boussole en main.
+
+« Lorsque Père, l'Omniscient et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, celui-ci n'avait pas eu le temps d'explorer les lieux avant de s'enfoncer profondément dans la Terre des Esprits Démoniaques avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
+
+« Peu importe, j'y vais une dernière fois. Si je ne peux toujours pas entrer, je devrai attendre d'atteindre le stade Ascendant ! Après tout, j'ai déjà consommé trois des Pilules de l'Âme Sanguine créées par Père lors de mes trois précédentes tentatives. Il ne m'en reste que six. Je vais devoir rester ici encore longtemps, il vaut mieux ne pas les gaspiller. Une seule Pilule de l'Âme Sanguine représente une autre vie ! »
+
+Yao Xixue afficha un regard déterminé. Elle était déjà d'une grande beauté, et cette détermination qui brillait dans ses yeux lui conférait un air à la fois héroïque et fascinant.
+
+Elle posa délicatement la boussole au sol, toucha de nouveau sa sacoche, et une pilule de cire apparut immédiatement dans sa main !
+
+De petits symboles étaient gravés en rangées sur cette minuscule pilule. Ils scintillaient lentement, comme s'ils s'accordaient à la fréquence de la respiration et des battements de cœur de quelqu'un. Le spectacle était d'une étrange beauté.
+
+Yao Xixue prit une grande inspiration et écrasa la pilule ; une goutte de sang bleu apparut instantanément !
+
+La pilule de cire servait de sceau à cette goutte de sang bleu !
+
+Sans la moindre hésitation, elle se mordit le doigt, en pressa une perle de sang et traça un symbole complexe dans l'air. Une fois le symbole formé, il fusionna rapidement avec la goutte de sang bleu. Yao Xixue saisit le symbole et l'écrasa entre ses sourcils. Elle laissa échapper une expression de douleur qui ne s'estompa qu'après un long moment.
+
+Tout en reprenant son souffle, elle leva le doigt ; le symbole s'envola aussitôt, se mua de nouveau en goutte de sang bleu et resta en lévitation.
+
+D'un revers de la main, elle fit disparaître la goutte sans laisser de trace. Puis, serrant les dents, elle fit un pas et piétina la boussole au sol. Dans un éclat de lumière douce, une multitude de symboles jaillirent de la boussole pour saturer la pièce.
+
+Tout cela ne dura que trois respirations. Au bout de ces trois respirations, Yao Xixue disparut avec la boussole.
+
+Le temps s'écoula lentement. Le mode de vie de Wang Lin demeura inchangé : il quittait rarement sa chambre et passait ses journées à cultiver. Il fusionnait progressivement l'énergie spirituelle démoniaque avec son énergie spirituelle céleste, s'efforçant d'atteindre le stade avancé de la Transformation de l'Âme.
+
+Une vérité s'imposait dans ce monde : si les souverains des mondes mortels étaient si dignes et respectés par leurs ministres, c'était précisément parce que leur distance les rendait mystérieux !
+
+Aux yeux des ministres, le roi, trônant bien au-dessus d'eux, était une existence inaccessible à l'esprit impénétrable, ce qui forgeait sa majesté !
+
+C'est ainsi que se trouvait Wang Lin au sein du camp de l'Armée de l'Armure Noire.
+
+Il montrait rarement son visage, mais sa prestance grandissait de jour en jour, finissant par occulter totalement la présence de Sima Yan, qui, lui, apparaissait fréquemment.
+
+Au cours des mois passés, Hu Pao s'était senti comme un poisson dans l'eau au sein du camp militaire. Sa personnalité extravertie avait fait que, malgré quelques frictions initiales, les tensions s'étaient dissipées avec le temps. Ses interactions avec les différentes unités de l'armée s'étaient intensifiées.
+
+Cela était particulièrement vrai pour une chef d'équipe nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur ; depuis lors, il était éperdument amoureux d'elle.
+
+De son côté, Treize restait assis dans la pagode, cultivant toute la journée tel un gardien immuable. Il manifestait une indifférence totale envers quiconque, hormis Wang Lin.
+
+Plusieurs mois plus tard, dans le troisième camp militaire, au sein de la chambre de Yao Xixue, un éclat bleu jaillit. Bientôt, cette lumière se mua en symboles azurés.
+
+Ces symboles tournoyaient rapidement autour d'une goutte de sang bleu centrale. Cette dernière se mit à bouillonner avec une intensité croissante, comme si elle était portée à ébullition. La goutte grandit soudainement pour devenir une sphère de sang bleu gigantesque.
+
+Les symboles environnants accélérèrent leur rotation. Après un instant, ils s'arrêtèrent brusquement, comme appelés par une force invisible. Ils furent tous aspirés par la sphère de sang.
+
+Une fois le dernier symbole absorbé, la sphère de sang se contracta rapidement. Elle ne redevint pas une simple goutte, mais prit la forme d'un corps magnifique.
+
+Ce processus fut bref et s'acheva en cinq respirations à peine. La boule de sang disparut pour laisser place à un corps féminin. Cette femme était d'une beauté saisissante, dotée de courbes parfaites ; sa silhouette captivante était absolument idéale.
+
+C'était Yao Xixue !
+
+« J'ai encore échoué. Sans les Pilules de l'Âme Sanguine, je serais morte quatre fois... Mais cette fois, j'ai franchi plus de la moitié du chemin. S'il y avait eu quelqu'un pour m'aider, j'aurais certainement réussi... » Yao Xixue ouvrit les yeux et soupira.
+
+Cependant, elle plissa bientôt les yeux, plongée dans ses pensées.
+
+« Si quelqu'un pouvait m'aider... Wang Lin... »

@@ -1,0 +1,121 @@
+---
+n: 647
+title: Le Fourneau
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 647 - Furnace
+slug: le-fourneau
+---
+Alors que Chen Long s'élançait, l'énergie de l'épée de Ling Tianhou se rassembla dans sa main. Cette énergie tourbillonna autour de son poignet avant qu'une pression écrasante ne se répande.
+
+Les pupilles de Wang Lin se rétractèrent. Il avait déjà remarqué une anomalie dans le rayon d'énergie de l'épée de Ling Tianhou appartenant à Chen Long. Dès l'instant où cette énergie apparut, Wang Lin sentit son cœur se serrer.
+
+« C'est l'énergie de l'épée vitale de Ling Tianhou, elle est extrêmement puissante ! » La voix de Zhou Yi résonna dans l'esprit de Wang Lin.
+
+Les yeux de Wang Lin s'illuminèrent et il cessa sa course. Il ne poursuivit plus le jeton et retint le sort céleste qu'il tenait en main, tout en fixant froidement Chen Long du regard.
+
+Chen Long fit preuve d'une audace fulgurante et apparut soudainement aux côtés du jeton. Ses yeux brillaient de joie. Il ignorait ce que c'était, mais si Greed s'y intéressait à ce point, cela devait être un trésor rare !
+
+Cependant, au moment même où il tendit la main vers le jeton, le rugissement furieux de Greed jaillit de l'essaim de moustiques : « Jeune Chen Long, ce vieil homme va te tuer !!! Troisième style du Dévoreur de Mort !!! »
+
+La voix de Greed fut comme un éclair. Elle sembla se solidifier en traversant l'essaim de moustiques, passa devant Wang Lin et chargea directement vers Chen Long.
+
+Le regard de Wang Lin se glaça et il recula immédiatement de quelques pas. Le rugissement surgit de l'essaim et commença à prendre forme. Soudain, une petite silhouette cristalline apparut dans les airs !
+
+Cette personne ne ressemblait en rien à Greed, mais son corps dégageait son aura.
+
+« Deuxième âme originelle ! » Wang Lin eut un haut-le-cœur en fixant la petite silhouette.
+
+La colère de Greed était telle qu'elle aurait pu consumer son cœur. Impuissant, il n'avait d'autre choix que de projeter sa deuxième âme originelle tandis que son corps principal restait piégé par l'essaim de moustiques. Les sept aiguilles tournaient rapidement autour de lui ; elles pouvaient le protéger un temps, mais pas longtemps !
+
+Le corps de ces moustiques était extrêmement résistant, particulièrement leurs pièces buccales qui étaient dures comme de l'essence de fer. Si cela avait été leur seul atout, la situation n'aurait pas été si critique, mais chaque fois qu'un moustique était tué, il se dissolvait instantanément en un nuage rouge. Ce nuage se rétractait pour se condenser à nouveau en une bête moustique. Bien que plus faible, elle se précipitait de nouveau sur lui avec fureur.
+
+Dès l'apparition de la petite silhouette, celle-ci se transforma en un rayon de lumière. Sa main traça un sceau et des éclairs noirs commencèrent à crépiter autour de son corps. Puis, ces éclairs s'élancèrent comme des météores vers Chen Long.
+
+L'expression de Chen Long changea radicalement. S'il ne retirait pas sa main droite, les éclairs noirs l'atteindraient. Pourtant, tout serait vain s'il le faisait !
+
+« Je prends le risque ! » Chen Long serra les dents et projeta l'énergie de l'épée de Ling Tianhou. L'énergie fendit l'air, faisant trembler le ciel et la terre. Même la falaise de l'abîme gronda sous sa puissance, tandis qu'une pluie de gravats et de terre s'en écaillait.
+
+Les éclairs libérés par la deuxième âme originelle de Greed percutèrent l'énergie de l'épée et s'effondrèrent un à un. Une force colossale se dispersa dans toutes les directions.
+
+Les sceaux vitaux apparurent sur le corps de Wang Lin alors qu'il reculait, mais ses yeux brillaient comme des torches.
+
+Après avoir libéré l'énergie de l'épée de son maître, Chen Long s'emparera du jeton sans la moindre hésitation. Ses yeux étaient empreints d'extase. Il s'élança aussitôt vers le haut, cherchant à s'échapper.
+
+La deuxième âme originelle de Greed poussa un rugissement et voulut poursuivre sa proie. Cependant, l'énergie de l'épée de Ling Tianhou était bien trop puissante et contenait même le sens divin de Chen Long, ce qui la rendait facile à contrôler. L'énergie de l'épée bloquait sans cesse la trajectoire de la deuxième âme originelle, la repoussant inlassablement. Celle-ci n'osait point toucher l'énergie de l'épée, sachant qu'elle risquerait d'être gravement blessée ; elle ne pouvait donc qu'attendre que celle-ci se dissipe.
+
+Piégé par les bêtes moustiques, les yeux de Greed révélèrent une pointe de détermination. Le cœur serré, il toucha immédiatement son sac de rangement et en sortit un morceau de bois de santal de la taille d'un doigt !
+
+Dès son apparition, un parfum s'en dégagea. Ce bois semblait tout à fait ordinaire, comme un objet du monde mortel, mais les yeux de Greed étaient emplis de tristesse !
+
+« Enfant, tu as forcé ce vieil homme à utiliser un trésor du monde céleste : l'Encens de la Confusion Céleste ! Ce vieux va sans aucun doute te couper en morceaux ! » Greed serra les dents et leva la main gauche. Il alluma aussitôt l'encens, d'où commença à s'élever une fumée bleue.
+
+Cette fumée était singulière. Bien qu'elle fût ténue en se propageant, elle forma rapidement un nuage. Les bêtes moustiques furent soudainement piégées dans cette brume, tandis que Greed s'extrayait de l'essaim. Il s'avança sur la fumée et poursuivit Chen Long.
+
+« Senior Greed, Camarade Cultivateur Wang Lin, je prends ce jeton ! Merci infiniment ! » s'esclaffa Chen Long, les yeux déjà fixés sur la sortie au loin.
+
+Wang Lin ricana en observant la silhouette de Chen Long s'éloigner. Ses yeux projetèrent une lueur spectrale lorsqu'il murmura : « Arrête ! »
+
+La puissance du sort céleste de bas niveau, capable de sceller les cieux et de geler la terre, fut libérée ! Une force mystérieuse envahit instantanément l'abîme. Si un puissant cultivateur avait été présent, il aurait vu que la zone était saturée de fils invisibles qui s'enroulaient immédiatement autour de Chen Long.
+
+Chen Long sentit son corps se figer, et même son âme originelle fut stoppée. De plus, l'énergie spirituelle céleste en lui cessa tout mouvement, comme si elle avait été pétrifiée !
+
+À cet instant, il devint parfaitement immobile, et le jeton glissa de sa main !
+
+Greed, transporté par la joie, vit la fumée qu'il avait libérée encercler Chen Long. Il chargea droit sur le jeton.
+
+C'est à ce moment précis que Wang Lin agit. L'épée céleste de Zhou Yi était sous ses pieds, et ils s'élancèrent ! La vitesse de l'épée était telle que même l'expression de Greed changea !
+
+« Wang Lin, tu n'es pas digne de voler les trésors de ce vieil homme ! » Greed était presque sur le jeton ; il ne lui manquait qu'un geste de la main pour s'en saisir.
+
+Les yeux de Wang Lin brillèrent et il dit doucement : « Arrête ! »
+
+Greed marqua un temps d'arrêt. Bien qu'il soit immédiatement revenu à son état normal et que les fils l'ayant enveloppé se soient rompus, Wang Lin profita de l'élan de l'épée céleste pour combler la distance. Sous les yeux ébahis de Greed, Wang Lin s'empara du jeton et passa devant lui dans un éclair.
+
+« Wang Lin !!! Tu oses voler les biens de ce vieil homme !! » Les yeux de Greed devinrent injectés de sang alors qu'il rugissait et se précipitait.
+
+Chen Long s'était déjà rétabli, le visage sombre. Enveloppé par la fumée, il forma un sceau pour tenter de percer la brume, mais celle-ci lui barrait la route, l'empêchant de fuir.
+
+Les trois individus étaient désormais très proches de la sortie du Pays du Démon de Feu. Grâce à la vitesse de Zhou Yi, Wang Lin touchait au but ; il pouvait déjà apercevoir la lumière du soleil provenant de l'extérieur.
+
+Greed était au bord de la folie. Dans un rugissement, il frappa son sac de rangement et un fourneau gigantesque en jaillit !
+
+Ce fourneau, de la taille d'un homme, était d'un noir profond. D'innombrables runes en forme de bêtes le recouvraient, dégageant une aura de désolation.
+
+Greed hurla : « Inversion de l'univers, renversement des cieux et de la terre ! »
+
+Le fourneau trembla et un rayon de lumière noire fut projeté. Cette lueur enveloppa rapidement l'horizon. À cet instant, il sembla que les cieux et la terre avaient échangé leurs places. Le ciel devint la terre, et la terre devint le ciel !
+
+Les positions de Wang Lin, Chen Long et Greed furent soudainement inversées. Alors que Wang Lin se trouvait en tête, il se retrouva désormais à la place de Chen Long, prisonnier de la fumée.
+
+Quant à Chen Long, il apparut là où se tenait Wang Lin. Interloqué et terrifié, il chargea vers la sortie sans dire un mot.
+
+La peur l'habitait. Il n'avait jamais imaginé que Greed possédât des trésors aussi prodigieux. Ce jouet était d'une puissance inouïe : il pouvait renverser l'univers ! En échangeant sa position avec Wang Lin, il avait ressenti une puissance divine ; face à elle, il se sentait insignifiant.
+
+« Ce Greed est véritablement digne de la génération de Maître. Bien que son niveau de culture soit bien inférieur au sien, il doit y avoir quelque chose de spécial en lui pour avoir capté l'attention de Maître ! »
+
+Il ignorait que Greed ne partait jamais sans trésors. Au fil des millénaires, il en avait accumulé suffisamment pour rivaliser avec n'importe quel palais céleste ! Cependant, beaucoup de ces objets étaient inutilisables pour lui-même, et sa prudence extrême le poussait à fuir dès qu'un danger se profilait, craignant le vol.
+
+Greed haletait et tourna brusquement la tête. Il fixa Wang Lin, piégé dans la fumée, et s'approcha avec un sourire narquois.
+
+Wang Lin prit une inspiration glacée en fixant le fourneau. Une lueur mystérieuse passa dans ses yeux : il reconnut cet objet ! Sans hésiter, il rangea le jeton dans son sac. L'épée céleste sous ses pieds émit un bourdonnement et le message de la conscience divine de Zhou Yi pénétra son esprit :
+
+« Quel trésor puissant... Wang Lin, protège-toi ! »
+
+L'épée céleste de Zhou Yi brilla et un rayon d'énergie s'en échappa. Cette énergie enveloppa l'arme qui se mit à tournoyer. La fumée environnante commença à gonfler, puis Zhou Yi cria : « Ouvre ! »
+
+Dans un fracas assourdissant, une ouverture se déchira dans la brume. L'épée céleste s'élança et Wang Lin, les yeux étincelants, s'élança à son tour !
+
+« La culture de cet homme est ordinaire, mais ses trésors sont mystérieux. Comment un tel individu a-t-il pu obtenir autant d'artefacts magiques ?! » Après avoir surgi, l'épée céleste de Zhou Yi plongea vers Greed.
+
+Les yeux de Greed s'illuminèrent. Il recula et frappa à nouveau son sac de rangement. Ce geste fit non seulement hésiter Zhou Yi, mais fit également bondir le cœur de Wang Lin.
+
+« Wang Lin, ce vieil homme doit remercier Situ Nan. Sans lui, comment aurais-je été contraint de rester sur la planète déserte de Suzaku pendant des dizaines de milliers d'années ? Si ce n'était pour ces millénaires, je n'aurais jamais pu comprendre le fonctionnement de tant de trésors qui m'étaient autrefois inutilisables ! » Alors que Greed levait la main droite, un écran apparut.
+
+Une fois lancé, l'écran s'élargit jusqu'à atteindre cent pieds de large. Il présentait une peinture à l'encre d'un paysage montagneux. La brume emplissait les cimes, conférant à l'image l'aura d'un monde céleste.
+
+« Ce vieil homme n'a pas pu trouver la Peinture des Montagnes et des Rivières du Royaume Céleste, mais j'ai trouvé son empreinte sur cet écran. Rassemble-toi pour moi ! » Dans un cri de Greed, une force d'aspiration massive émana de l'écran.
+
+La silhouette de Zhou Yi émergea de l'épée céleste. L'expression était grave et sa main droite pointait vers l'avant. Sans hésiter, il libéra l'une des deux dernières énergies de l'épée vitale !
+
+Le visage de Wang Lin s'assombrit et il activa immédiatement l'énergie de l'épée de Ling Tianhou en lui. Cette force ouvrit un passage à travers la pression tandis qu'il s'élançait vers le bas. Derrière lui, la deuxième âme originelle de Greed, drapée d'innombrables éclairs, poursuivait lentement Wang Lin.

@@ -1,0 +1,133 @@
+---
+n: 2057
+title: Échec
+book: 13
+bookTitle: Light of the coming end
+en: Chapter 2057 - Failed
+slug: echec
+---
+Certains membres du clan des Anciens croyaient que l'Ancêtre n'était pas mort et qu'il était toujours vivant ! La plupart pensaient que même si l'Ancêtre était mort, son esprit demeurait là !
+
+L'esprit de l'Ancêtre continuait de protéger les trois clans. Autrement, comment expliquer la scène étrange qui s'était produite lors des épreuves au temple ancestral des trois clans, et comment justifier la bénédiction accordée par la statue de l'Ancêtre ?
+
+Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Scission d'Âme du Dao Antique ?
+
+Lors de la Triple Scission d'Âme du Dao Antique, lors de la première scission, neuf halos apparaissaient autour de la statue de l'Ancêtre. Lors de la deuxième scission, 18 halos apparaissaient, et lors de la troisième, un total de 27 halos se manifestaient !
+
+À cet instant, dans la ville impériale, à l'extérieur de la statue de l'Ancêtre, 18 halos brillaient et des ondulations se propageaient dans toutes les directions, attirant l'attention de tous les habitants de la cité.
+
+Song Tian se tenait à 10 000 pieds de la cité ancestrale, contemplant les 18 halos. Il médita silencieusement un instant avant de prendre congé. Trois ans plus tôt, il était venu pour expier ses actes et apaiser sa propre conscience.
+
+Il avait gardé Wang Lin pendant trois ans. Bien qu'il ne fût pas le seul ici, sa décision était prise. Si Wang Lin avait couru le moindre danger au cours de ces trois années, il l'aurait certainement aidé.
+
+Maintenant que la première scission était achevée, il sentait qu'il n'y avait plus de raison de rester. Il ne se retourna pas en regagnant sa Montagne d'Origine. Il cessa de prêter attention au temple ancestral et se remit à cultiver.
+
+Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à l'intérieur du temple ancestral, l'ombre surplombant sa tête était bien plus vaste qu'auparavant. Bien que son niveau de culture n'ait pas augmenté, il sentait qu'il était devenu plus puissant !
+
+Avec son niveau de culture actuel, même une infime augmentation de force était prodigieuse !
+
+« Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang de l'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement du Ciel ? » murmura Wang Lin pour lui-même.
+
+Wang Lin prit une profonde inspiration et ses yeux brillèrent. Il leva les yeux vers l'ombre au-dessus de lui.
+
+« La première scission a duré trois ans. Les derniers instants ressemblaient presque à la mort. Si ce n'était pas pour ma volonté, je crains que je n'aurais pas pu fusionner à nouveau... »
+
+« Cette Triple Scission d'Âme du Dao Antique est liée à la force de la volonté... mais aussi à la chance... » Wang Lin fronça les sourcils ; il comprenait désormais pourquoi si peu de personnes choisissaient de tenter une scission complète.
+
+La chance peut frapper une fois, ou peut-être deux, mais trois fois consécutives... était extrêmement improbable.
+
+« Alors, pour cette seconde fois... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était déterminé.
+
+« La chance est importante, mais si l'on possède une volonté assez puissante pour surpasser la chance en tout point, alors cela convient également ! » Wang Lin forma un sceau de la main et l'ombre apparut au-dessus de lui. Il ferma de nouveau les yeux !
+
+Dès qu'il les ferma, l'ombre au-dessus de sa tête trembla et de fines fissures apparurent à sa surface. La deuxième scission d'âme commençait !
+
+Dans le ciel de la ville impériale, Xuan Luo regardait vers le bas avec un sourire. Il s'assit et continua de veiller sur son disciple.
+
+Dans son cœur, il savait que si le Dao Antique avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
+
+En un éclair, trois ans passèrent.
+
+Les 18 halos au-dessus de la cité impériale des Anciens Shi semblaient faire partie intégrante de la ville. Beaucoup d'habitants s'étaient habitués à leur présence.
+
+Bien qu'ils ne cessassent de les observer, leur curiosité s'était lentement dissipée avec le temps. Désormais, une seule interrogation demeurait dans leurs esprits.
+
+Ils cherchaient à savoir combien de temps cet individu pourrait endurer la seconde scission d'âme.
+
+Après trois ans, trois autres années s'écoulèrent !
+
+Au total, après six ans, les 18 halos autour de la statue de l'Ancêtre persistaient. Cela rendait le jour et la nuit indiscernables dans la ville impériale.
+
+Même la nuit, la lumière des halos illuminait l'intégralité du palais impérial.
+
+Dix ans s'étaient écoulés depuis le début de la seconde scission d'âme. Certains enfants nés durant cette période pensaient que le ciel de la cité impériale avait toujours été ainsi.
+
+La rumeur de ces dix années de scission d'âme se répandit progressivement dans tout le clan des Anciens. Même des membres du Dao Antique et du Ji Antique étaient venus observer le phénomène.
+
+Le temps continuait de s'écouler. Lorsque la dixième année passa, la tête de l'ombre surplombant Wang Lin se brisa complètement. Il souffrait d'une douleur inimaginable, mais il tenait bon.
+
+Ces fragments invisibles continuaient de se désagréger, et une fois qu'ils seraient réduits en poussière, cela signifierait que son âme originelle s'était une seconde fois totalement brisée.
+
+L'Empereur des Anciens Shi semblait avoir abandonné ses idées irréalistes et avait cessé de surveiller la statue de l'Ancêtre. Il se concentrait désormais sur l'éducation de Ji Du pour qu'il hérite lentement du trône.
+
+Il restait moins de 40 ans avant que Ji Du ne succède à l'Empereur. Pour des mortels, 40 ans représentaient la moitié d'une vie, mais pour le clan des Anciens, bien que ce soit une période longue, ce n'était pas si lointain.
+
+Alors que Ji Du gagnait progressivement le contrôle des divers secrets des Anciens Shi, trois années supplémentaires s'écoulèrent.
+
+La seconde scission d'âme de Wang Lin durait depuis 13 ans ! Il y a six mois, une pression puissante s'était propagée depuis le temple ancestral, générant une force étrange. Cette force bloquait tout Sens Divin et empêchait quiconque d'entrer !
+
+Xuan Luo observait la scène depuis les cieux avec inquiétude. Même son Sens Divin ne pouvait pénétrer cette barrière, et il sentait qu'il lui serait impossible de franchir le seuil du temple face à une telle puissance.
+
+Ce pouvoir appartenait à l'Ancêtre, issu de cette unique goutte de sang d'âme !
+
+Lorsque ce phénomène se produisit au temple ancestral, Song Tian, qui avait initialement décidé de ne plus s'en soucier, ouvrit soudainement les yeux. Une pointe de doute traversa son regard alors qu'il tournait la tête vers le temple.
+
+La treizième année passa et la quatorzième arriva.
+
+Depuis que ce pouvoir mystérieux s'était déployé, l'aura de Wang Lin avait totalement disparu. On ignorait s'il était vivant ou mort ; même la volonté qui avait subsisté lors de la première scission n'était plus détectable.
+
+Le seul signe indiquant que Wang Lin n'était pas encore mort était la présence des 18 halos autour de la statue de l'Ancêtre.
+
+Nul ne savait que les innombrables fragments de l'ombre effondrée de Wang Lin s'étaient totalement transformés en poussière six mois auparavant.
+
+Cependant, après leur fragmentation, il avait été incapable de les refusionner. Wang Lin avait utilisé sa volonté surpuissante pour tenter de les rassembler à plusieurs reprises, mais sans succès.
+
+Sa volonté s'était lentement érodée à force d'essais répétés ; elle était désormais extrêmement ténue. Toute sa vitalité s'était envolée et il ne lui restait qu'un infime résidu de volonté pour tenter, encore et encore, la fusion.
+
+De multiples éclats de lumière convergeaient pour former une ombre, mais celle-ci devenait rapidement instable et s'effondrait en poussière avant de disparaître.
+
+C'était la treizième tentative !
+
+Privé de Sens Divin ou de conscience, Wang Lin utilisa le peu de volonté qu'il lui restait pour entamer la quatorzième fusion. Une masse considérable d'éclats lumineux se condensa lorsque la quatorzième année s'acheva.
+
+La quinzième année arriva.
+
+À l'aube de cette quinzième année, un événement stupéfiant se produisit concernant les 18 halos entourant la statue de l'Ancêtre. Cela attira l'attention de tous ceux qui s'étaient habitués à leur présence et provoqua un tollé dans toute la ville.
+
+Même l'Empereur des Anciens Shi, qui ne prêtait plus attention à la situation, sortit de ses appartements pour contempler la statue de l'Ancêtre. Il prit une profonde inspiration.
+
+Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inconsciemment le poing.
+
+Song Tian, debout au sommet de la corne de la Montagne d'Origine, affichait une expression incertaine.
+
+L'un des 18 halos s'étiola soudainement avant de se briser en d'innombrables fragments.
+
+Désormais, il ne restait que 17 halos autour de la statue de l'Ancêtre !
+
+« Les halos se sont brisés... mais... quelle en est la cause ?! »
+
+« La seconde scission d'âme de cette personne a-t-elle échoué ? Est-il mort ? Sinon, les halos ne devraient jamais se briser et se dissiper ainsi ! »
+
+« Je m'en souviens ! J'ai entendu dire autrefois que les trois scissions d'âme n'étaient pas infinies et qu'il y avait une limite de temps. Se pourrait-il que cette personne ait atteint le terme imparti pour sa seconde scission ? »
+
+Les murmures et les discussions s'intensifièrent dans la cité impériale des Anciens Shi.
+
+« Wang Lin a atteint la limite de temps de sa seconde scission. Si les 18 halos disparaissent sans qu'il ait réussi à refusionner son âme originelle, alors son âme sera définitivement perdue ! » Song Tian prit une profonde inspiration en fixant le temple, le front plissé.
+
+Dans le ciel, voyant cela, l'expression de Xuan Luo changea radicalement. Il comprenait parfaitement la raison de la disparition des halos. Sans hésiter, il se précipita vers le temple ancestral.
+
+Song Tian savait depuis longtemps que Xuan Luo était présent, mais il n'avait rien dit. En apercevant la silhouette de Xuan Luo, il hésita un instant, mais ne chercha pas à l'entraver.
+
+Xuan Luo arriva instantanément devant le temple et s'apprêta à y pénétrer sans hésitation. Une puissante force de répulsion jaillit alors, faisant chanceler son corps. Il fut bloqué à l'extérieur, incapable d'entrer.
+
+À cet instant précis, le deuxième, le troisième, le quatrième... jusqu'au onzième halo se brisèrent les uns après les autres !

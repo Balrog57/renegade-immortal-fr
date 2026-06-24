@@ -1,0 +1,77 @@
+---
+n: 556
+title: Inverser les Cieux
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 556 - Reversing The Heavens
+slug: inverser-les-cieux
+---
+Tout cela se passa à une vitesse fulgurante. Yao Xixue était encore stupéfaite lorsque le symbole à trois traits fut achevé.
+
+À l'instant même où le symbole fut complété, l'énergie spirituelle céleste à l'intérieur du corps de Wang Lin s'anima d'elle-même et pénétra dans le symbole par le bout de son doigt !
+
+Si l'on contemplait simplement ce symbole à trois traits, on n'y aurait vu rien d'inhabituel ; mais maintenant que Wang Lin l'avait tracé trait après trait, il y ressentait une perfection absolue, comme s'il s'agissait d'une empreinte laissée par les cieux eux-mêmes.
+
+Des vagues de lumière dorée jaillirent du symbole et illuminèrent les environs. Le gaz noir qui entourait la plateforme se dissipa lentement sous cette lueur radieuse.
+
+L'expression de Yao Xixue devint extrêmement complexe et choquante. Elle était venue ici à plusieurs reprises, mais chaque fois, elle s'efforçait de perdre le moins de temps possible en utilisant les sceaux de sang que son père lui avait donnés pour ne pas avoir à affronter ces entités. En quelque sorte, elle avait profité d'une faille dans le système.
+
+Bien qu'elle eût remarqué ces symboles dorés et tenté de les tracer elle aussi, elle n'avait jamais pu absorber un symbole comme Wang Lin, car elle ne détruisait jamais les statues.
+
+Alors que l'énergie spirituelle céleste s'engouffrait dans le symbole, l'index de Wang Lin ne put s'empêcher de marquer une pause. Bien que son visage restât impassible, il avait la sensation fulgurante que s'il ne traçait pas le quatrième trait, la perfection de ce symbole serait ruinée, voire qu'il s'effondrerait totalement.
+
+Wang Lin ne pouvait pas tracer ce quatrième trait dans le vide. Ses yeux s'illuminèrent ; il pointa le symbole du doigt et se retourna brusquement. D'un revers de main, il projeta le symbole, le faisant voler directement vers Yao Xixue.
+
+Le visage de Yao Xixue changea et elle recula précipitamment. Simultanément, elle sortit plusieurs jades de sang et les écrasa un par un devant elle.
+
+Dans un éclat de lumière sanglante, des couches de sang enveloppèrent le symbole. Tout se passa extrêmement vite. Au contact du sang, le symbole se dissipa, mais cela suffit à faire vaciller sa lueur.
+
+Yao Xixue continua de reculer, le front couvert d'une sueur parfumée. Elle s'acharna à briser les jades de sang dans sa main et, après sept respirations, la lumière dorée fut finalement totalement étouffée par le sang.
+
+Le symbole disparut au sein de cette lueur écarlate.
+
+L'expression de Yao Xixue était d'une extrême sévérité. Elle venait de consommer 10 % des jades célestes qui étaient censés lui durer des centaines d'années. Au moment où le symbole avait été projeté vers elle, elle avait eu l'impression de faire face à un adversaire de la génération de son père.
+
+« Wang Lin ! » cria Yao Xixue en écrasant un dernier jade de sang. Une fois le symbole disparu, elle se précipita vers la plateforme, en direction de Wang Lin.
+
+L'expression de Wang Lin demeura sereine. Alors que Yao Xixue s'approchait, son regard se fit glacial ; il toucha son sac de rangement pour en sortir l'épée céleste et la tint devant lui. Il déclara calmement : « Compagnon cultivateur Yao, ce symbole doré est apparu trop soudainement pour que je puisse le contrôler. Si vous souhaitez vous battre avec moi pour cette raison, alors je me ferai un plaisir de vous divertir ! »
+
+Le visage de Yao Xixue s'assombrit et une intention meurtrière perça son regard. Elle pensa : « Puisque cet homme est arrivé jusqu'ici, il n'a aucune chance de survivre à moins de pouvoir briser tous les sceaux. Si je me bats avec lui ici, ce serait une perte d'opportunité ! »
+
+Elle lança froidement : « Une seule fois ! » Sur ces mots, elle bondit par-dessus Wang Lin et atterrit sur le Chemin du Dragon Révéré pour atteindre la plateforme suivante.
+
+Wang Lin rangea le jade céleste et suivit avec loisir. Il observa Yao Xixue devant lui, le cœur loin d'être apaisé.
+
+« Un simple symbole à trois traits est déjà si puissant... D'après Yao Xixue, il y a un total de 18 couches. Si chaque couche possède un symbole, cela signifie qu'il y en a 18 au total. Quelle sera la puissance d'un symbole à 18 traits... Qu'est-ce que ce symbole exactement ? Pourrait-il s'agir d'un sort céleste ?! » Wang Lin prit une profonde inspiration et tenta de tracer à nouveau le symbole à trois traits. Hélas, l'énergie spirituelle céleste en son corps ne bougea pas, et le symbole disparut aussi vite qu'il était apparu, dépourvu de toute la puissance précédente.
+
+Wang Lin fronça légèrement les sourcils et se mit à réfléchir.
+
+Plusieurs jours passèrent, et la troisième plateforme apparut. Cette fois, Yao Xixue chargea directement la plateforme.
+
+La statue sur la plateforme était identique à la précédente. Mais au lieu d'un troisième œil, elle tenait désormais une longue épée dans sa main !
+
+Yao Xixue n'utilisa pas de sceau. Cette fois, elle n'hésita pas à déployer ses propres capacités pour combattre la statue de pierre.
+
+Wang Lin observa froidement Yao Xixue. Ses sorts étaient tous basés sur le sang ; la plupart du temps, un éclat écarlate précédait l'apparition de sa magie.
+
+Cette bataille contre la statue ne laissait place à aucun suspense. Avec la culture de Yao Xixue, le combat prit fin en la durée d'un demi-encens. Cependant, bien que la statue de pierre se soit effondrée, aucun symbole doré n'en était sorti. Son visage s'assombrit et elle frappa le sol avec mépris, réduisant les débris de la statue en poussière.
+
+Les yeux de Wang Lin se plissèrent tandis qu'il songeait : « Se pourrait-il que le symbole ne fusionne avec le corps qu'une fois la restriction de la statue brisée ? »
+
+Yao Xixue ne daigna même pas regarder Wang Lin ; elle franchit rapidement la plateforme et continua sa progression.
+
+Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mois, Wang Lin n'avait pas eu à grand-chose faire, car Yao Xixue ne lui avait laissé aucune opportunité d'agir. Après avoir tenté l'expérience deux fois sans obtenir de symbole doré, elle réalisa que sa méthode était erronée. En repensant à ce que Wang Lin avait fait, elle commença à comprendre.
+
+Elle redoutait énormément ces symboles dorés et, pour empêcher Wang Lin de les obtenir, elle décida de faire tout le travail elle-même. Elle ne brisait plus les statues, mais utilisait les jades de sang pour les sceller. C'était la méthode qu'elle avait employée lors de ses trois dernières visites.
+
+Ce jour-là, après avoir scellé la onzième statue et atteint la plateforme contenant la douzième, l'expression de Yao Xixue devint grave. Elle tourna un regard vers Wang Lin et dit : « Compagnon cultivateur Wang, ce douzième sceau est très différent des précédents ; il nécessite que nous travaillions ensemble pour le briser. C'est la raison pour laquelle je vous ai demandé de venir ! »
+
+Wang Lin acquiesça. La plateforme devant eux était radicalement différente des précédentes. Elle ne faisait que la moitié de la taille habituelle et, au centre, il n'y avait aucune statue de pierre, mais une porte de pierre gigantesque ! De plus, il n'y avait aucun autre Chemin du Dragon Révéré que celui sur lequel ils se tenaient.
+
+Des caractères flous étaient gravés sur la porte de pierre. Lorsqu'ils se chevauchaient, ils évoquaient presque un visage humain.
+
+Yao Xixue et Wang Lin atterrirent tous deux sur la plateforme. À cet instant précis, la porte de pierre s'ouvrit brusquement et une rafale de vent glacial s'en échappa. Dès l'apparition de ce vent, Yao Xixue fut enveloppée par une lumière couleur sang.
+
+Wang Lin fit plusieurs pas en arrière tout en saisissant son sac de rangement pour en sortir le drapeau de restriction, qui recouvrit rapidement son corps. Tandis que le vent glacial soufflait, des craquements retentirent autour de lui alors que des couches de glace se formaient sur les restrictions. Rapidement, Wang Lin fut emprisonné dans une épaisse couche de glace.
+
+En regardant Yao Xixue, il vit qu'elle était devenue une véritable sculpture de glace, seule une lumière rouge éclatante émanait de sa forme figée.

@@ -1,0 +1,99 @@
+---
+n: 1201
+title: Gardien
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1201 - Guardian
+slug: gardien
+---
+L'esprit de Wang Lin dépassa les trois jeunes et s'élança vers l'horizon. Bientôt, il aperçut un sommet montagneux. Cette montagne imposante ne possédait aucune restriction en son pourtour, et même la brume s'en tenait à distance, comme si elle craignait de s'en approcher.
+
+L'esprit de Wang Lin parvint sur place, mais alors qu'il s'apprêtait à pénétrer dans la montagne, un sens divin extrêmement puissant jaillit. Ce sens divin percuta l'esprit de Wang Lin !
+
+Un rugissement silencieux résonna dans son esprit. Ses pensées, auparavant confuses, devinrent instantanément limpides.
+
+« Cela fait longtemps que je n'ai pas vu un domaine aussi pur... » Un message divin lugubre émana de la montagne et, à cet instant même, un sens divin encore plus puissant balaya Wang Lin.
+
+Le monde changea de couleurs et la lumière aux sept couleurs recula. Le sens divin se mua en une main qui tenta impitoyablement de saisir l'esprit de Wang Lin.
+
+Cependant, au moment où elle s'étendit, l'esprit de Wang Lin se retira promptement. Les environs devinrent irréels, comme si le monde entier se brouillait.
+
+Un cri de surprise retentit dans le vide, et simultanément, un vieil homme aux cheveux blancs surgit du sommet. Il fixa le néant et s'élança en avant, levant sa main droite pour frapper violemment le vide.
+
+Un écho tonnerre retentit et l'esprit de Wang Lin trembla. Toutes les illusions s'effondrèrent et se dissipèrent totalement.
+
+« Tu oses utiliser de simples illusions devant ce vieil homme ? Puisque tu apportes ce cadeau à ma porte, reste donc ! Ce domaine pur est cent fois plus puissant que celui des Éclairés ! »
+
+Tandis que le vieil homme parlait, il se rapprocha encore. Sa main droite semblait capable de couvrir le ciel pour atteindre Wang Lin. Sa paume dégageait une force d'aspiration si puissante qu'elle fit tordre l'esprit de Wang Lin, tentant de l'aspirer.
+
+L'esprit de Wang Lin se contracta rapidement pour former une figure illusoire. Il fixa le vieil homme sans prononcer un mot. Wang Lin agita sa main droite et toutes les intentions du Dao qu'il avait abandonnées dans le Royaume aux Sept Couleurs se précipitèrent vers lui.
+
+Ces intentions du Dao étaient infinies ; en affluant, elles soulevèrent toute la brume du Royaume aux Sept Couleurs. Même la lumière aux sept couleurs s'estompa. Le nombre d'intentions du Dao rassemblées atteignit un degré effrayant en un instant.
+
+Alors que Wang Lin agitait sa main droite, les intentions du Dao formèrent un vortex gigantesque. Cela força le vieil homme à reprendre une expression sérieuse et à interrompre sa main géante.
+
+« Je contemple le Dao et mon esprit s'est égaré par mégarde. Je n'avais nullement l'intention de perturber la culture de ce Compagnon Cultivateur ! » Le corps de Wang Lin était entouré d'intentions du Dao infinies, tandis que des intentions encore plus chaotiques s'accumulaient pour protéger son image mentale.
+
+Les pupilles du vieil homme se rétractèrent alors qu'il fixait la silhouette illusoire de Wang Lin. Il n'avait jamais vu un sort mental capable de condenser une telle quantité d'intentions du Dao chaotique.
+
+Après avoir réfléchi un instant, le vieil homme lâcha un reniflement froid et déclara lentement : « Ce ne sera qu'une fois. Ne recommence pas ! » Il agita ses manches pour retourner dans la montagne et retira son sens divin.
+
+Wang Lin se retira. Enveloppé par les innombrables intentions du Dao, il traversa le royaume et regagna son corps dans la vallée.
+
+Un instant plus tard, il ouvrit lentement les yeux, laissant transparaître une lueur de froideur. Si ce vieil homme avait voulu le retenir de force, Wang Lin aurait riposté en utilisant toutes les intentions du Dao.
+
+Se relevant, Wang Lin pointa le ciel et les intentions du Dao infinies s'engouffrèrent dans la vallée. Elles affluèrent de tout le royaume aux sept couleurs pour se condenser en une sphère de lumière noire dans la main droite de Wang Lin.
+
+Peu après, toutes les intentions du Dao que Wang Lin avait rejetées s'étaient rassemblées dans cette sphère. Tous les Perdus à l'extérieur de la vallée furent de nouveau confus et se dispersèrent. Les Éclairés commencèrent à marmonner avant de s'éloigner.
+
+Même les bêtes féroces de rang 12 semblèrent reprendre leurs esprits et rugirent en partant. Tout ce qui se trouvait hors de la vallée revint à la normale. Le visage du Maître Ashen Pine était pâle et il se retira précipitamment.
+
+La main droite de Wang Lin s'étendit et des craquements résonnèrent dans la lumière noire avant qu'elle ne se transforme en un cristal noir. Wang Lin observa le cristal un instant. C'était un trésor formé par les intentions du Dao chaotiques issues de toutes ces pilules, et il était extrêmement puissant. Si ce cristal se brisait, les intentions du Dao qui s'en échapperaient suffiraient à anéantir le cœur du Dao d'un cultivateur au niveau Nirvana Shatterer.
+
+« Que garde-t-il... » Wang Lin commença à réfléchir. Il songea au vieil homme. Il était évident que s'il n'avait pas attaqué, c'était par crainte de quelque chose. Ce vieil homme se trouvait au stade avancé de Nirvana Shatterer mais vivait seul sur cette montagne. S'il prétendait ne rien garder ou ne rien comploter, Wang Lin ne le croirait pas.
+
+« Il y avait aussi ces trois jeunes cultivateurs, et j'en ai déjà vu un auparavant. Je ne m'attendais pas à ce qu'il apparaisse ici... » Wang Lin fronça les sourcils.
+
+« Cependant, puisque cet endroit est lié au Souverain, sa présence est compréhensible. » Wang Lin leva les yeux vers le ciel, calme. Son regard dégageait une lueur profonde, comme s'il contenait le Dao céleste.
+
+« Lorsque mon domaine a rencontré l'écrit sur le squelette, il a fait une percée. Je n'ai plus qu'à le consolider pour atteindre le stade intermédiaire de Nirvana Cleanser. » Wang Lin prit une profonde inspiration et son regard se porta au-delà de la restriction. Il se leva et sortit.
+
+Les ondulations de la restriction résonnèrent alors que Wang Lin apparut hors de la vallée. Il repéra la direction de la fuite du Maître Ashen Pine et chargea tel un éclair.
+
+« Le Maître Ashen Pine s'est rétabli et m'a trouvé par surprise. Il me hait viscéralement, je ne peux pas le laisser s'échapper. De plus, je dois découvrir la nature de ce liquide noir et apprendre comment quitter cet endroit grâce à lui. » Une lueur glaciale brilla dans les yeux de Wang Lin tandis qu'il poursuivait sa proie.
+
+Maître Ashen Pine s'enfuit à toute allure, le visage livide. Son cœur était bouillonnant de rage. Il pensait que ses blessures étaient guéries et qu'il pourrait facilement tuer ce dénommé Lu ; au pire, il devrait simplement fournir un effort pour briser la restriction. Cependant, lorsqu'il se retrouva à moins de 10 000 pieds de Wang Lin, son cœur du Dao fut saisi et son esprit faillit s'effondrer.
+
+En particulier, lorsqu'il se trouva au milieu des immanentes intentions du Dao chaotique, il se sentit comme un barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de culture était sur le point d'augmenter !
+
+À cette pensée, un frisson parcourut l'échine de Maître Ashen Pine. Avant que la culture de Wang Lin ne progresse, il avait tout utilisé pour n'aboutir qu'à un affrontement où les deux parties furent gravement blessées. Maintenant que Wang Lin s'apprêtait à faire une percée, il mourrait sans aucun doute s'ils venaient à combattre !
+
+Maître Ashen Pine ressentit une amertume profonde et rugit vers le ciel. Il s'était préparé durant de nombreuses années, mais il devait admettre qu'il avait échoué sans possibilité de répit. S'il continuait ainsi, il risquait d'y laisser la vie.
+
+« Je ne me résignerai pas ! » Les yeux de Maître Ashen Pine étaient empreints d'une haine monstrueuse. Il haïssait Wang Lin au point de vouloir dévorer sa chair crue !
+
+« Cet homme a ruiné tous mes efforts, sans compter cette vieille femme nommée Zhao. Si elle n'avait pas tenté de me voler, ce dénommé Lu n'aurait jamais eu sa chance... Peu importe ! Peu importe ! » L'expression de Maître Ashen Pine était tordue par la colère, mais aussi par une immense tristesse et un sentiment d'impuissance.
+
+« Je n'en veux plus. Si vous le voulez tous, prenez-le ! Je quitte ce Royaume aux Sept Couleurs et je vais sceller cet endroit définitivement. Je détruirai la fissure aux sept couleurs pour que vous soyez tous piégés ici à jamais ! Ce n'est qu'alors que ma colère s'apaisera un peu ! Cet homme nommé Lu a dû fouiller l'âme de Pang Decai lorsqu'il l'a tué. Mais même Pang Decai ignorait le véritable moyen de partir. Il ne savait que ce que je voulais bien qu'il sache ! »
+
+« Vous resterez tous ici pour l'éternité à cause de moi ! » Maître Ashen Pine se précipita vers la région extérieure, empruntant un sentier qu'ils n'avaient jamais utilisé pour rejoindre son chemin habituel de sortie.
+
+Ayant parcouru ce trajet deux fois, il le connaissait parfaitement. S'il n'avait pas craint de croiser les Perdus, il aurait pu se déplacer encore plus vite.
+
+Cependant, alors qu'il fonçait en avant, son corps trembla et il se retourna brusquement. La silhouette de Wang Lin apparut au loin, enveloppée d'une intention meurtrière. Un froid glacial saisit le cœur de Maître Ashen Pine.
+
+Il accéléra sa course et chargea.
+
+Tandis que Wang Lin fixait la silhouette de Maître Ashen Pine, ses mains formèrent un sceau et l'illusion du fourneau de l'Ancien Dieu apparut devant lui. Ses yeux s'illuminèrent et il pointa le doigt vers son adversaire.
+
+« Échange de position ! » À l'instant où il prononça ces mots, une lumière jaillit autour de Maître Ashen Pine. Ce dernier disparut pour être immédiatement substitué par Wang Lin.
+
+Maître Ashen Pine ne sentit que sa vision se brouiller ; lorsqu'elle redevint claire, son expression changea radicalement. Les positions de Wang Lin et de Maître Ashen Pine avaient été inversées. Profitant de la confusion causée par le sort, Wang Lin réduisit instantanément la distance.
+
+Wang Lin leva la main droite et pressa le vide, tandis que sa main gauche pointait rapidement le revers de sa main droite. Une vague d'énergie originelle jaillit de sa paume avant de s'élancer vers Maître Ashen Pine.
+
+Tout cela se produisit en un éclair, avec une rapidité dépassant l'entendement. Maître Ashen Pine n'aurait jamais imaginé que Wang Lin possédât un tel trésor ! Lorsqu'il s'en rendit compte, la puissante énergie originelle l'avait déjà atteint.
+
+Ses pupilles se rétractèrent dans un cri de terreur tandis que son visage se tordait. Sept Âmes Naissantes de sang apparurent et se condensèrent dans le symbole flou situé entre ses sourcils. Le symbole émit une lueur aveuglante pour tenter de repousser l'énergie originelle qui fonçait sur lui.
+
+Un grondement assourdissant ébranla la terre. Dans une grotte non loin de là, Chen Tianjun sortit et resta pétrifié, observant le combat titanesque entre Wang Lin et Maître Ashen Pine.

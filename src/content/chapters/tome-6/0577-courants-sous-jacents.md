@@ -1,0 +1,111 @@
+---
+n: 577
+title: Courants Sous-jacents
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 577 - Undercurrent
+slug: courants-sous-jacents
+---
+Après avoir quitté le manoir du vice-commandant en chef Xuan, les yeux de Mo Lihai étaient illuminés par la joie. À plusieurs reprises, il eut envie de parler, mais il hésita et finit par ne rien dire. De retour au manoir des Mo, Mo Lihai prit une profonde inspiration et, le regard empreint de sincérité, déclara : « Frère Wang, je compterai sur vous lors de la compétition des généraux démons. Je n'oublierai pas cette faveur ! »
+
+C'était la première fois que Mo Lihai s'adressait à Wang Lin sur ce ton. Dans son esprit, Wang Lin n'était plus son égal, mais quelqu'un capable de forcer le vice-commandant en chef à reculer de plusieurs pas d'un seul sortilège !
+
+Mo Lihai était convaincu qu'avec l'aide de Wang Lin, il pourrait balayer la compétition !
+
+Il était celui qui comprenait le mieux le sortilège de Wang Lin et en était profondément ébranlé. Tout au long du trajet du retour, ses pensées ne cessèrent de revenir à cette technique, s'imaginant lui-même face à elle. Au final, peu importe sa stratégie, il perdrait !
+
+L'expression de Wang Lin n'était ni arrogante ni fière ; il demeurait calme. À cet instant, il sourit et dit : « Frère Mo, puisque j'ai accepté cette affaire, je vous aiderai sans faute ! »
+
+Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère Wang, je possède un vin ancien enterré depuis cinq cents ans. Ce soir, nous boirons ensemble ! »
+
+Les yeux de Wang Lin s'illuminèrent et il acquiesça d'un sourire.
+
+Au même moment, au pavillon des épées situé au centre de la ville de Sky Demon, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit : « As-tu assez joué ? Ne retourne plus à la Prison de Hong ; repose-toi quelques jours. »
+
+L'épée argentée à l'intérieur de la formation émit plusieurs salves d'hymnes d'épée, comme si elle refusait de céder.
+
+L'homme rit : « Si tu continues à être aussi espiègle, je t'enverrai au lac du dragon. »
+
+L'épée impériale cessa soudainement son vacarme, comme si elle avait perdu toute son arrogance, et ne laissa échapper que quelques faibles hymnes. Bien qu'elle agît ainsi, sa colère envers cette nourriture qui osait la provoquer ne faisait que croître.
+
+Une fois que l'épée impériale eut cessé de fréquenter la Prison de Hong, le monde écarlate au fond du gouffre se rétablit lentement. De nouveaux criminels y furent jetés, et le cycle du massacre recommença.
+
+Un homme aux cheveux noirs restait assis en silence dans le bassin de sang. Des filaments d'intention meurtrière s'infiltraient continuellement dans son corps, et l'aura de mort qui l'entourait devenait de plus en plus oppressante.
+
+De temps à autre, il levait la tête, laissant transparaître une pointe de clarté dans ses yeux injectés de sang.
+
+« Je dois m'échapper, comme lui ! »
+
+Dès que le massacre débuta, tous les occupants du bassin de sang s'élancèrent dans les airs pour s'entretuer. L'homme aux cheveux noirs ressemblait à un dieu de la boucherie. Ses yeux étaient saturés d'une épaisse intention meurtrière et ses mouvements, aussi féroces qu'un dragon en furie, balayaient tout sur son passage.
+
+Une fois le carnage sans fin achevé, seul l'homme aux cheveux noirs subsistait dans les airs. Ceux qui venaient de renaître affichaient des expressions sereines et ne daignèrent même pas lever les yeux vers le ciel.
+
+La brume de sang entourant le jeune homme s'étendait sur des centaines de pieds. Il prit une profonde inspiration, montrant une rare lueur de lucidité, avant de foncer vers la sortie.
+
+Mais alors qu'il n'avait parcouru que quelques pas, un éclat de lumière argentée jaillit : le dragon argenté apparut soudainement et projeta sa griffe massive. L'homme aux cheveux noirs, au cœur de la brume de sang, esquissa un sourire amer.
+
+Il utilisa une voix que lui seul pouvait entendre et murmura : « Explose ! »
+
+Sur cet unique mot, son corps entier entra soudainement en explosion. Même la brume de sang qui l'entourait vola en éclats, et la force de cette déflagration percuta la griffe du dragon argenté.
+
+Un écho tonitruant emplit les lieux. Le dragon argenté rétracta ses griffes, marquées par de nombreuses blessures. Ce fut comme verser de l'huile sur le feu, car la haine du dragon envers Wang Lin s'enflamma de nouveau.
+
+Quant à l'homme aux cheveux noirs, il renaquit dans l'un des bassins de sang, baissa la tête et resta pensif.
+
+Le dragon argenté poussa un rugissement de rage et fixa l'homme du regard. Il poussa un second cri et un rayon d'énergie d'épée jaillit vers le bassin de sang.
+
+Le bassin vola en éclats et le jeune homme aux cheveux noirs mourut sur le coup.
+
+Ce cycle se répéta. À chaque renaissance, le dragon argenté le tuait. Après plusieurs répétitions, le dragon afficha une expression de fierté avant de disparaître. Puisque l'Empereur Démon lui avait interdit d'aller à la Prison de Hong et lui avait ordonné de rester tranquille, il avait décidé de vider sa colère ici.
+
+Oublions la Prison de Hong pour l'instant.
+
+Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la ville de Sky Demon, tandis que les divers généraux démons affinaient leurs préparatifs.
+
+Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon ignorait tout cela. Bien qu'un ordre règne sur la Terre des Esprits Démons, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles !
+
+La bataille entre les généraux démons était cruciale, car elle représentait une opportunité céleste pour gravir les échelons. S'ils la manquaient, ils risquaient de rester à jamais au rang de général démon ! Par conséquent, ces généraux accordaient à cet événement une importance sans précédent.
+
+Devenir vice-commandant en chef signifiait avoir les qualifications pour devenir commandant en chef par la suite. Pour atteindre ce but, toutes les méthodes étaient permises !
+
+Malgré le chaos, une règle unique subsistait : les généraux démons ne pouvaient pas se livrer à des combats à mort, sous peine d'être disqualifiés de la compétition !
+
+En conséquence, tous les stratagèmes visaient les subordonnés de chaque général. Tuer un auxiliaire revenait à briser le bras de son maître, et pour certains, cela détruisait même leurs chances de victoire ! Le massacre des aides devint ainsi un combat ouvert !
+
+Quant au combat secret, il consistait à assassiner les généraux eux-mêmes. S'ils ne pouvaient s'entretuer directement, leurs subordonnés le pouvaient. Ils pouvaient même engager des assassins, ce qui ne violait pas la règle.
+
+Cependant, bien que cela ne soit pas interdit, cela transgressait la ligne rouge de l'Empereur Démon. Ainsi, à moins que l'assassin ne possède une culture céleste, il lui serait presque impossible de s'échapper, même avec des ailes. Sa mort était inéluctable ! Après tout, la perte d'un général démon était un événement majeur pour le pays. On pourrait dire que quiconque comptait sur l'assassinat faisait preuve d'un désespoir absolu !
+
+Ces luttes, publiques et secrètes, s'intensifièrent à mesure que l'échéance approchait. Mo Lihai sortait rarement, passant la majeure partie de ses journées en culture isolée. Cela lui permettait de rester à son apogée tout en évitant délibérément les tentatives d'assassinat. Il avait également mis en place une formation et placé nombre de ses anciens subordonnés, dotés de hauts niveaux de culture, pour assurer sa garde.
+
+Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas ; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique du zither. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
+
+Chaque fois qu'il l'entendait, il s'y plongeait totalement et vivait une expérience singulière. Chaque jour, son cœur était purifié. Wang Lin ne se souciait guère de savoir si Mo Lihai serait assassiné ou non. Ce dernier était extrêmement rusé et possédait bien plus d'atouts qu'il n'en montrait. Après avoir interagi avec lui, Wang Lin en était certain : sans ses méthodes secrètes, il n'aurait jamais survécu en atteignant les sommets de la hiérarchie des généraux démons.
+
+Assis au bord de l'eau, les yeux fermés, Wang Lin écoutait le zither depuis son bateau. Il saisit sa cruche pour découvrir qu'elle était déjà vide. Il soupira, ouvrit les yeux et leva silencieusement le regard vers le ciel. Chaque fois que cette musique résonnait, son cœur tremblait et il ressentait l'ombre d'une percée imminente. Malheureusement, sa compréhension des cieux était encore trop éthérée.
+
+Tout en s'immergeant dans la mélodie, Wang Lin expérimentait silencieusement les vibrations. L'énergie spirituelle céleste en son corps avait appris à se dissimuler, car l'épée de l'Empereur Démon le traquait toujours.
+
+Pourtant, soudain, il fronça les sourcils. Sa compréhension des cieux et son plaisir musical furent interrompus.
+
+« Tu es le vice-général de Mo Lihai ? » Une voix empreinte de mépris perça la musique du zither, brisant net l'atmosphère.
+
+Un homme en robe noire se tenait à cent pieds de Wang Lin. Il avait une main posée sur la poitrine et une épée serpentiforme tournait autour de lui. Une trace d'impatience marquait son visage.
+
+« Tu peux attaquer ; te tuer reviendrait à trancher l'un des bras de Mo Lihai ! »
+
+Wang Lin reposa sa cruche, mais il ne se leva pas et ne daigna même pas regarder l'individu. Il pointa son pouce droit vers l'homme, et le doigt de la mort jaillit soudainement sous la forme d'un rayon de lumière noire.
+
+À l'instant où cette lueur apparut, l'herbe environnante se flétrit instantanément, sa force vitale étant aspirée silencieusement par la lumière noire.
+
+Le rayon progressa rapidement vers l'homme en robe noire. Ce dernier changea brusquement d'expression et recula de quelques pas. Son épée volante s'élança alors vers la lumière noire dans un éclair. Cependant, au moment du contact, l'épée commença à se fissurer depuis sa pointe. La lumière noire la transperça jusqu'à ce que même la garde s'effondre. L'arme fut réduite en d'innombrables fragments presque instantanément.
+
+L'homme en robe noire afficha un regard de stupéfaction tout en continuant de reculer. Hélas, il était trop lent ! La lumière noire franchit l'épée volante et frappa la poitrine de l'homme.
+
+Le corps fut projeté loin dans une trajectoire courbe, libérant une brume de sang tout au long de sa chute. Même après que l'homme eut percuté le sol, la brume resta suspendue dans les airs.
+
+En tombant, un soupçon de regret passa dans ses yeux avant qu'ils ne s'éteignent définitivement. Simultanément, un filet de gaz gris s'échappa de son corps pour disparaître dans la main droite de Wang Lin.
+
+Cet homme n'était pas un étranger, mais un natif de la Terre des Esprits Démons. Son niveau de culture n'était pas élevé ; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
+
+Wang Lin continua d'écouter la musique du zither...

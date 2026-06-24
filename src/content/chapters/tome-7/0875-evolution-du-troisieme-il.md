@@ -1,0 +1,73 @@
+---
+n: 875
+title: Évolution du Troisième Œil
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 875 - Evolution of the Third Eye
+slug: evolution-du-troisieme-il
+---
+À première vue, le mot « bataille » semblait tout à fait ordinaire, mais en y regardant de plus près, une intention meurtrière inimaginable, comme issue d'une guerre dévastatrice, s'abattit soudainement !
+
+À cet instant, des illusions apparurent devant les yeux de Wang Lin. C'était comme si le ciel et la terre s'étaient effondrés. Tout disparut : la place, les cultivateurs environnants, et même le Temple Céleste du Tonnerre. La seule chose qui subsistait était le mot « bataille ! »
+
+Wang Lin sentit son corps trembler et son être entier entra dans une transe. C'était comme si une puissance mystérieuse avait explosé à partir du mot « bataille ». Cette force descendit et prit possession de son esprit. Il eut l'impression que son âme originelle s'était séparée de sa chair ; il n'y avait plus aucun lien entre les deux.
+
+Une intention meurtrière monstrueuse l'enveloppa. Wang Lin se sentait comme un mortel en plein hiver, dépourvu de tout vêtement. Le froid semblait vouloir éteindre la flamme de sa vie.
+
+Dans cet état de transe, Wang Lin eut l'impression de revenir à l'époque où la perle défiant le ciel était achevée. Une porte apparut et, au moment où elle s'ouvrit, une vague d'énergie originelle surgit soudainement !
+
+Le troisième œil apparut lentement entre ses sourcils et s'ouvrit doucement, mais aucune lumière rouge n'en émana. À cet instant, Wang Lin était immobile, mais son esprit tremblait violemment. Le sentiment d'être confronté à la porte à l'intérieur de la perle défiant le ciel résonna une fois de plus !
+
+Cependant, comparée au sentiment ressenti autrefois, cette sensation était infiniment plus faible. À l'époque, Wang Lin avait failli s'effondrer après un seul regard. Désormais, lorsqu'il fixait le mot « bataille », bien qu'il fût choqué, il pouvait persévérer.
+
+Il était évident que l'énergie originelle contenue dans le mot « bataille » ne pouvait même pas être comparée à celle de la perle défiant le ciel. Pour Wang Lin, la perle était trop mystérieuse, mais ce mot, « bataille », était une chose qu'il pouvait saisir.
+
+Ces événements semblèrent se dérouler sur une longue période, mais tout s'était produit au moment même où Wang Lin avait levé la tête. Cela n'avait duré qu'une seconde !
+
+Li Yunzi n'avait initialement pas une bonne opinion de Wang Lin. Bien que ce Xu Mu ait pu combattre Russell et possédât des sorts incroyables, sans l'intervention de Qing Shui, c'est Xu Mu qui aurait perdu !
+
+Quant au deuxième essai, la raison pour laquelle Xu Mu avait pu dévorer l'esprit du tonnerre était également due à la chance. Li Yunzi était un homme qui avait atteint son niveau de culture actuel par son propre travail acharné. À ses yeux, les cultivateurs qui dépendaient de la chance n'étaient pas dignes. Xu Mu était l'un de ces cultivateurs selon lui.
+
+Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois pas en avant et fixa Wang Lin. C'était comme si quelque chose rugissait dans son cœur.
+
+« Une seconde ! Ce Xu Mu a pu entrer dans cet état en seulement une seconde ! » Même avec la force mentale de Li Yunzi, il était excité. Dans toute l'histoire de la famille Zhan, personne n'avait été capable d'entrer dans cet état en une seconde. Même son ancêtre, doté d'un talent défiant le ciel, avait mis deux secondes !
+
+À cet instant, Li Yunzi avait déjà oublié Xu Ting. Toutes ses pensées étaient désormais occupées par Wang Lin !
+
+Non seulement lui, mais tous les vieux monstres sur la natte de prière furent stupéfaits. Tout comme Li Yunzi, ils ne portaient pas grand cas aux performances de Wang Lin lors des deux derniers essais, trouvant cela simplement divertissant. Mais à présent, ils commençaient tous à lui accorder une attention sérieuse.
+
+Les pupilles du Dieu Sanglant se rétractèrent alors qu'il fixait Wang Lin. Tout en étant choqué, une intention meurtrière surgit de nouveau dans son cœur !
+
+« Cet enfant a pu entrer dans cet état en une seconde. On ne peut pas le laisser vivre ! » Alors qu'il formulait cette pensée, il sentit une intention meurtrière se verrouiller sur lui. Il se retourna et vit Qing Shui le regarder froidement.
+
+Le Dieu Sanglant laissa échapper un reniflement glacial. Il réprima son intention meurtrière et la cacha profondément au fond de son cœur.
+
+Les autres ancêtres des familles possédant des héritages du royaume céleste observaient la scène avec intensité.
+
+L'admiration de l'ancêtre de la famille Xiang s'intensifia. Plus il regardait Wang Lin, plus il était ravi. Il pensa : « Cet enfant n'est pas un simple poisson dans un étang ! »
+
+Maître Flamespark sourit, et en voyant le choc de Li Yunzi, son sourire s'élargit.
+
+Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule seconde, il eut un haut-le-cœur, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Li Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré !
+
+Le Sens Divin de Wang Lin se divisa en deux et fusionna avec le mot « bataille ». Une trace d'énergie originelle émana du mot et circula lentement à travers son corps. Juste au moment où elle allait quitter le corps de Wang Lin, elle tressaillit et cette trace d'énergie originelle chargea vers le troisième œil avec frénésie.
+
+L'énergie originelle se précipita dans le troisième œil apparu entre ses sourcils. Une lumière rouge éclatante jaillit soudainement de celui-ci.
+
+À mesure que les éclats d'énergie originelle pénétraient, la lueur rouge devenait de plus en plus intense. Après dix secondes, Wang Lin se réveilla et la lumière rouge accumulée dans son troisième œil jaillit brusquement en éventail !
+
+L'éclat rouge fit s'exclamer tous les cultivateurs environnants. Cette lumière en forme d'éventail enveloppa complètement le Parchemin de la Bataille.
+
+Dans un état de transe, Wang Lin entrevit une scène étrange dans le parchemin. C'était un système stellaire lointain, où un vieil homme vêtu de blanc agita son doigt dans l'espace pour écrire le mot « bataille ! ». Le mot scintilla et se divisa en six parchemins distincts.
+
+Une puissante énergie originelle émanait du vieil homme. Il était empreint de mélancolie, de regret et de réticence en contemplant le mot « bataille ». Il leva la tête vers les étoiles, ses yeux soudain remplis d'incrédulité.
+
+Le corps de Wang Lin trembla et la lumière rouge de son troisième œil disparut. Il était revenu à lui. La scène qu'il venait de voir était due au fait que son troisième œil avait établi une connexion avec le Parchemin de la Bataille. Ce qu'il avait entrevu ressemblait à une illusion, mais semblait pourtant si réel !
+
+Alors que la lueur rouge s'estompait, le troisième œil de Wang Lin se referma progressivement, sans toutefois disparaître. Il se mua en une ligne rouge qui resta entre ses sourcils. À cet instant, Wang Lin dégageait une sensation étrange.
+
+« Tu l'as vu ! » Li Yunzi fit un pas et apparut soudainement devant Wang Lin. Il le fixa, la voix empreinte d'une pointe d'excitation.
+
+Wang Lin réfléchit en silence et hocha la tête. Il sentait clairement qu'une puissance terrifiante résidait au sein de cette ligne rouge entre ses sourcils. Il y avait une trace de douleur, comme si cette force refusait de rester immobile et voulait exploser vers l'extérieur.
+
+Li Yunzi fixa Wang Lin. Après un long moment, il éclata de rire et dit : « Bien. Xu Mu, une fois la compétition céleste terminée, viens me trouver. Ce vieil homme te fera découvrir les deux autres parchemins de bataille ! »

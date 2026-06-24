@@ -1,0 +1,147 @@
+---
+n: 627
+title: Sortie de la culture en isolement
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 627 - Leaving Closed Door Cultivation
+slug: sortie-de-la-culture-en-isolement
+---
+Wang Lin ne se souciait guère de la bataille qui faisait rage dans le Pays du Démon de Feu. Il avait passé les vingt dernières années totalement immergé dans l'étude des sorts célestes. Les sorts célestes ne pouvaient être comparés aux sorts ordinaires ; leur apprentissage était d'une difficulté extrême.
+
+Vingt ans n'étaient que le début pour Wang Lin. Alors qu'il se consacrait à l'étude du sort céleste et des trésors célestes, le temps s'écoulait comme l'eau, et sans qu'il ne s'en rende compte, plus de cinquante ans s'étaient déjà écoulés !
+
+Il restait moins de dix ans avant que n'expire l'accord conclu avec le Démon Ancestral.
+
+Durant ces près de cent ans, en plus de ses recherches sur les arts et trésors célestes, Wang Lin n'avait jamais cessé d'imprimer son esprit sur le démon dispersé. Au fil du temps, cette empreinte était devenue encore plus puissante !
+
+Après plusieurs décennies, Wang Lin n'avait effleuré que l'essence du sort céleste « Arrêt ». L'exigence de ce sort ne résidait pas dans une certaine quantité d'énergie spirituelle céleste, mais dans la compréhension profonde des cieux par son utilisateur.
+
+Pour être plus précis, les principes régis par ce sort céleste dépassaient largement la portée des cultivateurs ordinaires. C'était un savoir ésotérique qui exigeait une étude et une assimilation constantes avant de pouvoir enfin le maîtriser et l'utiliser.
+
+Wang Lin avait passé de nombreuses années à comprendre progressivement l'Art du Massacre Céleste, atteignant finalement un stade de petite maîtrise complète. Ce sort « Arrêt » suivait la même logique.
+
+Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en culture en isolement, la Tribu des Raffineurs d'Âmes avait envoyé de nombreux membres sur le front du Pays du Démon de Feu pour collecter des âmes et renforcer leur propre puissance.
+
+Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays du Démon du Ciel. Au lieu de sortir, les membres de la tribu se mirent à défendre le Pays du Démon du Ciel.
+
+De nombreux membres de la tribu revinrent du Pays du Démon de Feu et commencèrent à combattre les soldats démons des autres nations démoniaques.
+
+Cependant, la puissance de la Tribu des Raffineurs d'Âmes était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité du Démon du Ciel car elle était scellée par le Démon Ancestral, ils tournèrent leurs regards vers la Tribu des Raffineurs d'Âmes.
+
+Après tout, quelque chose de singulier émanait de cette petite tribu. Le nuage noir qui surplombait la tribu et servait de protection naturelle était particulièrement étrange ; il avait repoussé les assauts des soldats démons à plusieurs reprises.
+
+Bien entendu, tous les pays démoniaques n'avaient pas jeté leur dévolu sur la Tribu des Raffineurs d'Âmes. Seuls les dirigeants de deux pays l'avaient fait, tandis que les cinq autres concentrèrent leurs efforts sur le Pays du Démon de Feu.
+
+Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au démon ancestral du Pays du Démon du Ciel.
+
+À cet instant, le Pays du Démon de l'Eau et le Pays du Démon du Tonnerre envoyèrent chacun un vice-commandant en chef escorté de 100 000 soldats démons. L'un venait du nord et l'autre du sud. Les deux armées encerclèrent ainsi la Tribu des Raffineurs d'Âmes.
+
+Le vice-commandant en chef du Pays du Démon de l'Eau était une femme. Son apparence était ordinaire, mais son regard dégageait une lumière glaciale. À ses côtés se tenait un général démon du Pays du Démon de l'Eau.
+
+Quant au Pays du Démon du Tonnerre, son vice-commandant en chef était un homme d'âge moyen, robuste et massif. Il était le seul à ne pas porter d'armure ; des éclairs parcouraient son corps et le sol sous ses pieds était calciné.
+
+« Cette petite tribu sauvage possède un trésor aussi incroyable... C'est intéressant ! » Bien que l'homme semble se parler à lui-même, sa voix résonna comme un coup de tonnerre.
+
+« Ce voyage dans le Pays du Démon du Ciel n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante ! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
+
+Le corps de l'homme s'élança rapidement vers le nuage noir. Sa vitesse était prodigieuse ; il avait manifestement atteint le stade équivalent d'un cultivateur Ascendant au début de sa progression. En un seul bond, il franchit une immense distance pour arriver à la lisière du nuage noir qui entourait la tribu.
+
+Les ondes d'énergie spirituelle démoniaque émanant de son corps formèrent un bouclier invisible qui repoussa le nuage noir.
+
+À l'intérieur de la Tribu des Raffineurs d'Âmes, Ouyang Hua gardait une expression sereine en contemplant le ciel. Au sol, les membres de la tribu étaient tous assis en position du lotus, plongés dans une concentration absolue.
+
+Ouyang Hua cria : « Âmes, dispersez-vous ! » Soudain, tous les membres de la tribu libérèrent les fragments d'âme qu'ils avaient collectés. En un instant, le monde fut envahi par un gaz noir composé de ces fragments. Sous le contrôle de leurs maîtres respectifs, cette masse gazeuse se condensa en une rivière noire qui chargea l'homme robuste.
+
+L'homme laissa échapper un rire. Loin de reculer, il s'élança et décocha un coup de poing. Ce coup, chargé d'une immense quantité d'énergie spirituelle démoniaque, produisit un rugissement tonitruant alors qu'il fonçait comme un dragon de foudre furieux vers la rivière noire.
+
+Non loin de là, la vice-commandante du Pays du Démon de l'Eau observa froidement le combat et déclara : « Le vice-commandant du Tonnerre sous-estime ce nuage noir ! »
+
+L'un des généraux démons à ses côtés, surpris, demanda : « Ma Dame, se pourrait-il que ce nuage cache un secret ? Le vice-commandant pourra-t-il le briser ? »
+
+« Ce nuage est très étrange et composé de multiples fragments d'âme. S'il n'y a personne pour le diriger, il le brisera aisément. Mais s'il y a un maître à sa tête, j'ai bien peur qu'il doive engager toutes ses forces pour l'ébranler ! »
+
+Le général démon sourit : « C'est parfait ainsi. Nous avons convenu qu'il prendrait le brouillard noir et que nous capturerions les membres de la tribu. De cette façon, sans effort excessif, nous récupérerons tout le peuple des Raffineurs d'Âmes. Une fois de retour pour les étudier, nous en apprendrons certainement beaucoup. »
+
+Le dragon de tonnerre engendré par le coup de poing de l'homme massif poussa un rugissement assourdissant et percuta le nuage noir formé par les fragments d'âme de la tribu. Au moment de la collision, une puissante onde de choc se propagea.
+
+Une brèche s'ouvrit dans le nuage sous la force du choc. La rivière noire se dissipa et l'homme robuste éclata de rire : « Une simple tribu de sauvages ose m'attaquer ? Bande de misérables fourmis ! »
+
+Alors qu'il parlait, il franchit l'ouverture dans le nuage noir. Les soldats du Pays du Démon du Tonnerre poussèrent des acclamations dont la puissance n'était pas moins fracassante que le tonnerre ! Ce soutien insuffla une confiance infinie à l'homme.
+
+La femme du Pays du Démon de l'Eau, restée à distance, secoua la tête : « Il n'y a plus de suspense dans cette bataille. Dès aujourd'hui, la Tribu des Raffineurs d'Âmes cessera d'exister. Attendez que le vice-commandant récupère le brouillard noir, puis lancez-vous pour capturer les membres de la tribu. Si quelqu'un ose résister, tuez-le ! »
+
+Les différents généraux démons acquiescèrent à son ordre.
+
+L'homme robuste pénétra d'un pas décidé dans l'enceinte de la tribu. Il affichait un sourire narquois, s'imaginant déjà la panique et la terreur sur les visages de ces primitifs.
+
+Pourtant, au moment où il entra, il fut frappé de stupeur. Sur cette zone de cinquante kilomètres, les membres de la tribu étaient tous assis en position de lotus. Ils le regardaient tous, mais...
+
+Il n'y avait aucune trace de panique dans leurs yeux, contrairement à ce qu'il avait anticipé. Au contraire, leur regard était d'un calme absolu, et ce calme n'avait rien de feint ! On y percevait même un profond sarcasme et une froideur glaciale.
+
+Ces innombrables regards étranges firent rater un battement au cœur du vice-commandant du Tonnerre. Son pas ralentit involontairement. De là où il se trouvait, il put voir qu'au centre de la tribu s'étendait une zone vide de cinq kilomètres de large, au milieu de laquelle trônait une haute tour !
+
+En voyant la tour, les yeux de l'homme se plissèrent. Fort de son expérience, il savait que les grandes tribus possédaient leurs propres cultes. Cette tour était manifestement le cœur de leur croyance !
+
+L'homme ricana : « Une fois cette tour détruite, je veux voir si vous aurez encore ce genre de regard ! » Il chargea droit vers la structure. Aucun des membres assis ne prononça un mot ; ils se contentèrent de fixer froidement l'assaillant.
+
+Ce silence pesait comme une pression invisible, donnant à l'homme la sensation diffuse que quelque chose n'allait pas. Cependant, confiant en sa culture, il laissa échapper un reniflement méprisant alors qu'il approchait de la tour et levait son poing droit pour frapper.
+
+« Arrête. » Une voix monocorde et à peine audible émana de l'intérieur de la tour.
+
+Cette voix était très faible, mais son apparition sembla suspendre le cours du temps. Même le nuage noir s'immobilisa à cet instant précis. Une puissance indéfinissable apparut soudainement et enveloppa l'homme robuste.
+
+Son corps trembla et les éclairs qui parcouraient sa peau cessèrent net. À cet instant, son aura disparut totalement. Son corps resta suspendu dans les airs, parfaitement immobile !
+
+Son poing avait déjà entamé la moitié d'un arc de cercle, mais il ne pourrait jamais achever son mouvement. Seuls ses yeux pouvaient encore bouger. À cet instant, une terreur qu'il n'avait jamais connue de sa vie l'envahit. Si la peur dans ses yeux était un océan, cet océan serait capable de noyer l'intégralité du Pays du Démon Spirituel.
+
+La silhouette de Wang Lin sortit lentement de la tour. Ses cheveux flottaient derrière lui et, vêtu de sa robe blanche, il ressemblait à une divinité céleste !
+
+Après être sorti, il ne daigna même pas regarder l'homme robuste et fit un mouvement de manche. Un vent puissant projeta immédiatement l'homme au loin. En crachant du sang, celui-ci fut expulsé hors de la Tribu des Raffineurs d'Âmes.
+
+Le corps de l'homme vola comme une météorite, laissant dans son sillage une brume de sang. Finalement, il s'écrasa violemment au sol, loin de la tribu. Jusqu'à présent, il n'avait pas été capable de bouger d'un pouce !
+
+Le silence qui suivit fut total !
+
+Les pupilles de la femme du Pays du Démon de l'Eau se contractèrent brusquement. Son esprit resta vide devant ce spectacle. Elle se ressaisit cependant rapidement et hurla : « Vite, retirez-vous ! »
+
+Malheureusement, il était trop tard. Wang Lin, les mains derrière le dos, flottait déjà hors de la tribu. Les membres des Raffineurs d'Âmes, exsudant une intention meurtrière, s'élancèrent immédiatement à sa suite.
+
+L'expression de la femme changea radicalement et elle cria : « Formation ! »
+
+Les soldats démons commençaient à peine à bouger et l'énergie spirituelle démoniaque venait juste de s'éveiller !
+
+« Arrête ! » Wang Lin ouvrit les bras, leva la tête et ferma les yeux. Des décennies de compréhension lui avaient permis d'effleurer l'essence du sort céleste. C'était la première fois qu'il activait un sort céleste à pleine puissance !
+
+D'un seul mot, le monde cessa de bouger !
+
+Tous ceux qui se trouvaient à l'extérieur de la tribu furent figés sur place !
+
+Les membres de la Tribu des Raffineurs d'Âmes semblèrent recevoir un ordre et s'élancèrent pour massacrer ! Simultanément, le nuage noir surplombant la tribu s'étira pour couvrir tout le ciel environnant.
+
+La femme du Pays du Démon de l'Eau fut également pétrifiée. Cependant, après trois respirations, une lumière bleue l'enveloppa. Ses yeux étaient emplis de terreur et elle tenta de fuir sans hésitation.
+
+À cet instant précis, trois rayons de lumière d'épée jaillirent, rattrapèrent la femme et l'encerclèrent. Les trois esprits d'épée — Zi Shu, Hai Zhu et Mo Yang — poussèrent des rugissements. Le cœur de la femme trembla alors que les trois lames la transpercèrent. Dans un nuage de sang, elle mourut !
+
+Wang Lin flottait dans les airs, ressentant silencieusement la puissance du sort céleste. Pour lui, le massacre qui se déroulait au sol semblait appartenir à un autre monde ; il n'y prêtait aucune attention.
+
+« Je ne maîtrise pas encore totalement ce sort céleste... Mais l'échéance de mon accord avec le Démon Ancestral approche, je n'ai plus le temps pour la compréhension... Il est temps de partir... » Wang Lin agita sa main droite et les trois épées volèrent vers lui. La gueule de Zi Shu contenait l'âme originelle de la femme.
+
+Un mois plus tard, Wang Lin quitta la Tribu des Raffineurs d'Âmes. En partant, il emporta le drapeau des âmes contenant un milliard d'âmes et laissa une trace de Sens Divin pour monter la garde sur la tribu.
+
+Wang Lin ne se précipita pas vers le Pays du Démon de Feu ; il se rendit d'abord dans sa grotte. Sur le Chemin du Dragon Sacré, il enregistra soigneusement les 11 symboles avant de partir !
+
+« Le jade indiquait 12 symboles, mais il n'y en a que 11 pour l'instant. J'ignore où se cache le dernier... » L'expression de Wang Lin restait neutre tandis qu'il avançait. Il activa ensuite le grand sort de téléportation et se dirigea droit vers le Pays du Démon de Feu.
+
+Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres nations continuaient de fortifier leurs tours militaires sur son territoire. Le pays était devenu un véritable champ de bataille. Après près de cent ans de conflit, la terre était maculée de rouge. En pénétrant dans le pays, une odeur de sang entêtante frappait les sens.
+
+Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays du Démon de Feu.
+
+C'était une lutte à mort entre le Pays du Démon du Ciel et le Pays du Démon de Feu ! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que la puissance du Pays du Démon de Feu s'étiolait lentement.
+
+La capitale du Pays du Démon de Feu était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert !
+
+Le démon ancestral du Pays du Démon de Feu avait imité celui du Pays du Démon du Ciel : il avait scellé la capitale pour en interdire l'accès.
+
+La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort ; elle ressemblait à une ville fantôme qui inspirait une profonde tristesse à quiconque la contemplait.
+
+Lorsque Wang Lin atterrit aux abords de la capitale du Pays du Démon de Feu, le bruit de ses pas résonna nettement, tant l'environnement était silencieux. La terre rouge sombre avait une texture boueuse sous les pieds ; cette consistance provenait du sang de dizaines de millions de personnes qui avait imprégné le sol au cours des cent dernières années.

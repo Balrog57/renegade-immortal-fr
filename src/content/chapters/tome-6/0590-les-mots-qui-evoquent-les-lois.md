@@ -1,0 +1,135 @@
+---
+n: 590
+title: Les mots qui évoquent les lois
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 590 - Words That Evoke Laws
+slug: les-mots-qui-evoquent-les-lois
+---
+Le vice-commandant en chef Xuan pensa : « Humph, qu'est-ce qui est impossible ? Tant qu'il s'agit de ce Wang Lin, rien n'est impossible ! » Il laissa échapper un soupir. S'il n'avait pas été aussi arrogant et n'avait pas sous-estimé Wang Lin comme tous les autres ici, il ne serait pas encore blessé à l'heure actuelle.
+
+Hormis le commandant en chef du Ciel, tous les autres commandants se levèrent, leurs regards tels des épées acérées fixés sur Wang Lin. Des vagues de choc et d'incrédulité déferlèrent dans leurs cœurs.
+
+Les vice-commandants en dessous d'eux étaient totalement stupéfaits, et leurs cœurs tremblaient violemment alors qu'ils dévoraient Wang Lin du regard.
+
+Il faut dire qu'il y avait parmi les présents des individus capables de faire résonner le tambour cinq fois ! Certains pouvaient même le faire cinq fois de suite, mais l'onde de choc créée lorsque les cinq coups fusionnaient en un seul pouvait être décrite comme un séisme céleste !
+
+Un tel contre-coup violent n'était pas une chose qu'un général démon pouvait supporter ! Même le génial général démon, Mo Fei, ne pouvait endurer que trois coups consécutifs. S'il y avait un quatrième, il perdrait sans aucun doute !
+
+Pourtant, Wang Lin avait été capable de faire résonner le tambour cinq fois de suite. Si l'onde de choc combinée avait été capable de blesser gravement Wang Lin ou de le forcer à battre en retraite dans un état pitoyable, les gens auraient peut-être accepté la chose avec réticence.
+
+Cependant, cet homme n'avait même pas bougé. Il flottait aux côtés du tambour démoniaque comme s'il ne l'avait pas frappé lui-même. C'était comme s'il frappait un tambour ordinaire, car il n'y avait eu aucun rebond.
+
+« Comment... Comment est-ce possible... Je ne me trompe pas, n'est-ce pas ? Il vient de faire résonner le tambour cinq fois, tout simplement... »
+
+« Il doit y avoir un problème ! Ce cultivateur a dû utiliser une méthode sournoise ! »
+
+« Yu Sen a déployé des efforts considérables pour le faire résonner quatre fois, et cet homme l'a fait cinq fois d'un geste nonchalant... Cependant, Mo Fei allait en faire huit, et cet homme ne pourra certainement pas faire plus ! » Des cris de stupeur incessants s'élevèrent de la foule.
+
+Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
+
+Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité Démon du Ciel ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible !
+
+Si ce Wang Lin avait rencontré des gens comme Mo Fei ou Shi Xiao, il aurait sans aucun doute perdu ! C'était une certitude partagée par tous.
+
+Pourtant, voilà que ce Wang Lin, qu'ils détestaient tant, était capable de faire résonner le tambour cinq fois avec une apparente trivialité.
+
+Cette scène choqua tout le monde !
+
+Certains soupçonnèrent même que le tambour démoniaque soit brisé. Cependant, ils réalisèrent leur erreur en voyant que certains de leurs voisins étaient gravement blessés ou inconscients, et que l'énergie spirituelle démoniaque dans leurs propres corps devenait incontrôlable. La sensation que leur énergie spirituelle démoniaque allait être expulsée de leur corps balaya immédiatement l'idée d'un tambour défectueux.
+
+De plus, la place fissurée au centre du tambour démontrait l'ampleur de l'impact précédent !
+
+Être capable de provoquer une telle destruction sur une place renforcée par d'innombrables restrictions ne pouvait être décrit que comme incroyable.
+
+Presque tous les commandants en chef aspirèrent une bouffée d'air froid. Yu Sen eut un sourire amer, secoua la tête et renonça totalement à l'idée de défier Wang Lin.
+
+La seule générale démon, Xie Lian, portait une armure intégrale. Bien qu'il s'agisse d'une armure complète, elle restait extrêmement révélatrice, mettant en valeur ses courbes magnifiques.
+
+Son gant violet dévoilait ses bras nacrés. Son haut couvrait ses deux pics et laissait apparaître sa taille fine. Un tatouage noir partait de son cou blanc comme neige, descendait le long de sa poitrine et s'étendait jusqu'à sa taille.
+
+Sa protection inférieure était constituée de lames en forme de feuilles qui l'entouraient, couvrant ses fesses rebondies, tandis que ses jambes de jade étaient protégées par des jambières. Elle dégageait une aura de beauté héroïque.
+
+Cette femme portait un casque qui lui couvrait le visage. Seuls ses yeux magnifiques étaient visibles, et ils brillaient intensément alors qu'elle fixait Wang Lin.
+
+Parmi les généraux démons, les yeux de Shi Xiao s'illuminèrent tandis qu'il observait attentivement Wang Lin. Chen Tao murmura doucement : « Je vous avais pourtant dit que cet homme était extrêmement fort ! »
+
+Shi Xiao laissa échapper un reniflement froid et ne répondit rien, mais son expression s'assombrit.
+
+Parmi les généraux démons, seul Mo Fei ne regardait pas Wang Lin. Au lieu de cela, il contemplait silencieusement l'horizon lointain. Le cultivateur de la Secte de l'Épée Da Lou fixait Wang Lin avec une intention meurtrière non dissimulée.
+
+Au milieu de tout ce tumulte, l'expression de l'homme en armure dorée était extrêmement disgracieuse. Il regarda le tambour démoniaque et serra les poings !
+
+Wang Lin retira sa main droite du tambour avant de se retourner pour faire face à l'homme en armure dorée. Tout le bruit cessa lorsqu'il se retourna, et tous les regards convergèrent vers lui.
+
+Wang Lin pointa l'homme en armure dorée du doigt et dit calmement : « Tu as perdu ! »
+
+La force de rebond provoquée par la frappe du tambour avait été bloquée par les sceaux de vie entourant le corps de Wang Lin. Cependant, le choc était si puissant qu'il fallut plus de 2 000 couches de sceaux pour neutraliser complètement cette puissance.
+
+Les sceaux de vie ne pouvaient être détruits que si l'intégralité des quelque 3 000 sceaux était brisée en un instant ! Autrement, ils se régénéraient. C'était là la véritable force des sceaux de vie.
+
+« Pas étonnant que cet All-Seer en robe grise ait prétendu posséder un milliard de sceaux de vie et qu'il serait parfaitement sain et sauf même si la planète Tian Yun explosait. Un sort d'une telle puissance défensive est extrêmement rare ! »
+
+En entendant les paroles de Wang Lin, le visage de l'homme en armure dorée devint encore plus livide. Il renifla froidement et rétorqua : « J'ai dit que tu ne pouvais pas dépasser cinq coups. Es-tu un imbécile incapable de comprendre le sens de mes paroles ?! Tu as frappé cinq fois, cela n'a pas dépassé cinq, donc ce n'est pas ta victoire ! »
+
+Après une telle déclaration, certains spectateurs dans les gradins estimèrent que la moralité de ce intendant à l'armure dorée était bien trop basse !
+
+Wang Lin lança un regard glacial à l'homme en armure dorée, puis sa main droite se referma en un poing et frappa le tambour démoniaque derrière lui.
+
+*Dong !* Le sixième coup jaillit du tambour et résonna sur toute la place. Ce son fit rater un battement de cœur à chacun.
+
+Une puissante force de rebond émergea soudainement du tambour, comme si une bourrasque violente projetait les cheveux de Wang Lin en arrière. La place déjà brisée se remit immédiatement à trembler, comme si un dragon géant s'agitait sous ses fondations.
+
+La main droite de Wang Lin ne s'arrêta pas ; il regarda froidement l'homme en armure dorée, dont l'expression était plus sombre encore, et frappa une nouvelle fois.
+
+*Dong !* Le septième son du tambour retentit dans les cieux. Si les six premiers coups pouvaient être comparés à des vagues déchaînées, la force de rebond du septième coup pouvait être assimilée à un raz-de-marée !
+
+Le général démon Mo Fei pouvait frapper six fois sans être blessé, mais au septième coup, il était repoussé et son armure volait en éclats ! Cela démontrait l'incroyable puissance de ce septième rebond !
+
+Alors que le septième coup retentissait, le ciel changea brusquement de couleur. Une tempête s'amoncela autour du tambour démoniaque, qui en était le centre, et commença à se propager avec une fureur folle.
+
+La main droite de Wang Lin resta immobile et il se tint droit dans les airs. Sa main touchait toujours le tambour tandis que son regard pesait sur l'homme en armure dorée.
+
+Ce septième coup provoqua des grondements tonitruants dans le ciel, et la voix de Wang Lin émergea lentement de ces fracas :
+
+« Sept fois, maintenant ! »
+
+Le visage de l'homme en armure dorée se crispa alors qu'il fixait Wang Lin : « Je vais te dénoncer à l'Empereur Démon ! »
+
+Wang Lin secoua la tête et répondit calmement : « Je veux une de tes mains ! »
+
+« Tu oses ?! » hurla l'homme en armure dorée. Ses yeux étaient emplis d'une intention meurtrière lorsqu'il cria : « Répète ça ! »
+
+« Je veux une de tes mains ! » Au moment même où la voix de Wang Lin s'échappait, sa main droite frappa de nouveau le tambour démoniaque.
+
+*Dong !* Le huitième coup se propagea comme des dizaines de milliers de vagues. Ce son résonna en harmonie avec les paroles de Wang Lin et commença à se répandre frénétiquement dans toutes les directions.
+
+« Je veux une de tes mains ! » À cet instant, c'était comme si ce fut le seul son restant au monde.
+
+C'était parce que Wang Lin avait utilisé la puissance du huitième coup du tambour démoniaque pour affecter les cieux. Des rugissements tonitruants résonnèrent dans l'éther, comme si la voûte céleste était sur le point de s'effondrer. Parmi ces grondements assourdissants, cette phrase ne semblait pas avoir été prononcée par Wang Lin, mais par les cieux eux-mêmes ! Par la Terre ! C'était un rugissement du monde ! Comme si Dieu avait ouvert ses yeux pour contempler la terre !
+
+Ce son représentait l'univers !
+
+Les cieux et la terre fusionnèrent avec le son du tambour pour forger cette sentence. Bien que cette phrase ne fût pas aussi bruyante que le tonnerre, elle en était plus saisissante !
+
+Cette force inimaginable fit soudainement pâlir l'homme en armure dorée. Il recula involontairement de quelques pas, ses oreilles bourdonnèrent et son visage devint livide !
+
+À cet instant, il eut l'illusion de faire face au monde entier. L'énergie spirituelle démoniaque dans son corps s'emballa, et il ressentit même l'impulsion irrépressible de se trancher lui-même le bras.
+
+Les personnes aux alentours étaient toutes sous le choc. Ils n'avaient plus le courage de parler comme auparavant ; la place entière était plongée dans un silence anormal !
+
+Hormis quelques individus privilégiés parmi les spectateurs, tous savaient sans aucun doute que si Wang Lin leur avait adressé ces mots à l'instant, ils s'auraient tranché leurs propres bras.
+
+Ce son était la puissance des cieux ! Ce son était la Loi, les paroles majestueuses et dominantes émanant du firmament !
+
+Parmi les généraux démons, Mo Fei détourna pour la première fois son regard du ciel pour le fixer sur Wang Lin.
+
+Parmi les commandants en chef, à l'exception du commandant en chef du Ciel qui n'avait toujours pas regardé Wang Lin, les sept autres virent leur expression changer légèrement. Leurs yeux brillaient d'une lueur mystérieuse alors qu'ils observaient Wang Lin.
+
+« Les mots qui évoquent la Loi ! » Les sept commandants se regardèrent, découvrant le choc dans les yeux de leurs pairs.
+
+Aucun d'eux ne remarqua qu'au moment où cette voix retentit, les yeux toujours clos du commandant en chef du Ciel s'ouvrirent légèrement, révélant une pointe de confusion.
+
+Parmi les vice-commandants, le vice-commandant jaune fut totalement stupéfait, tandis que le vice-commandant Xuan laissa échapper un soupir.
+
+Le visage de l'homme en armure dorée était d'une pâleur extrême, mais il se ressaisit rapidement. Il fixa Wang Lin et dit lentement : « Ta voix a fusionné avec la puissance du tambour, empruntant ainsi la force des cieux. Malheureusement, tu n'as fait qu'emprunter la puissance du tambour démoniaque. Si tu pouvais atteindre les Mots qui évoquent la Loi par ta propre force, alors oublie mes bras ; même si tu voulais ma vie, je te l'offrirais volontiers ! »

@@ -1,0 +1,119 @@
+---
+n: 1708
+title: "Le premier !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1708 - First One!"
+slug: le-premier
+---
+Chapitre 1708 - Le premier !
+
+L'homme en robe royale fixa les sourcils de la statue avec une pointe de surprise. Cependant, quatre gouttes de sang ne suffisaient pas à le choquer ; même Ye Mo en avait obtenu trois.
+
+Bien que la majorité des gens n'aient obtenu qu'une seule goutte de sang durant cette calamité, beaucoup en avaient tout de même obtenu deux. Hormis Ye Mo, la plupart de ceux dotés du lignage royal pouvaient obtenir au moins deux gouttes de Sang Céleste de la Race Ancienne.
+
+De plus, l'homme en robe royale avait lui-même obtenu six gouttes de sang. Il était l'être le plus puissant du clan Dao, après Xuan Luo !
+
+C'est ainsi qu'il devint le roi du clan Dao. Son statut était extrêmement élevé et il était vénéré par d'innombrables personnes. Malgré cela, Xuan Luo ne l'avait pas pris pour disciple. Il avait déjà beaucoup ruminé cette question, mais n'osait pas l'aborder.
+
+Lorsqu'il entendit le Grand Empereur Xuan Luo déclarer qu'il allait prendre l'héritier de Ye Mo comme disciple, il ressentit une profonde amertume, mais ne la laissa paraître.
+
+« Quatre gouttes de sang... une telle chose ne s'était pas produite depuis longtemps. »
+
+« Cependant, quatre gouttes devraient être la limite. Voyez comme la lumière de la statue faiblit. »
+
+« En treize jours, quatre gouttes, ce n'est pas beaucoup. »
+
+Les débats animaient les personnes rassemblées autour de la statue. Leurs regards étaient tous rivés sur elle. Ils observèrent la lumière rouge monstrueuse s'estomper lentement, jusqu'à ce qu'il ne reste qu'un infime éclat entre les sourcils.
+
+À cet instant, près d'un million de membres du clan ancien comprirent que tout allait prendre fin.
+
+L'homme en robe royale resta calme, mais un sourire méprisant étira son cœur.
+
+« Seulement quatre gouttes de sang. Comment pourrait-il avoir le pouvoir de protéger mon clan Dao ? L'affaire d'aujourd'hui est bien plus importante qu'elle ne l'est réellement. »
+
+« Si mon oncle veut accepter un disciple, notre clan Dao compte plusieurs membres ayant obtenu quatre gouttes. Même quand j'en ai obtenu six, il ne m'a pas considéré ! »
+
+« S'il décide malgré tout d'accepter l'héritier de Ye Mo, alors je serai le premier à m'y opposer ! »
+
+L'homme en robe royale ne révéla nullement ses véritables pensées, affichant plutôt une pointe de regret. Il secoua la tête et sourit amèrement en s'adressant doucement au Grand Empereur Xuan Luo à ses côtés :
+
+« Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut être considéré comme un génie au sein de notre clan Dao. »
+
+L'expression du Grand Empereur Xuan Luo resta impassible, comme s'il n'avait pas entendu l'homme en robe royale. Il fixait les sourcils de la statue et observait la lumière rouge s'amenuiser jusqu'à ne devenir qu'un mince filet.
+
+Il vit également les quatre gouttes qui venaient d'apparaître émettre une lumière cristalline. Elles perçèrent le vide et disparurent au loin.
+
+Après un long moment, le jeune homme aux cheveux noirs dit lentement : « Attendons encore un peu. »
+
+L'homme en robe royale acquiesça, mais son cœur était empli de dédain.
+
+« Hormis mon oncle, personne dans le clan Dao n'a un talent supérieur au mien. Ye Mo n'était pas assez doué, et son héritier ne l'est pas non plus ! »
+
+Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant, au sein de la faille de la Mer des Nuages, l'avatar de Wang Lin était assis au bord de l'autel. Il contemplait la goutte de sang formée par son corps original, située au centre de l'autel.
+
+Cette goutte flottait là, immobile et silencieuse, quand soudain un hurlement commença à résonner dans cet espace étrange. Des ondulations surgirent du néant et une aura ancienne et puissante se propagea lentement.
+
+Cette aura surpassait tout ce qui existait dans le monde des cavernes ; même le Grand Empereur ne pouvait lui être comparé. Pourtant, cette présence n'était pas effrayante et n'attira l'attention de personne d'autre. Seul Wang Lin pouvait la ressentir.
+
+Des ondulations parcoururent l'espace au-dessus de l'autel et un vortex gigantesque apparut. Il tourna lentement dans un grondement de tonnerre. Le vortex enveloppa l'autel tout entier et une force colossale se propagea, projetant l'avatar de Wang Lin hors de l'autel.
+
+Cette poussée fit trembler l'esprit de Wang Lin. Cette force était plus puissante que la puissance du ciel, plus puissante que toute pression qu'il avait jamais affrontée !
+
+Oubliez-le lui, même Seven-Colored aurait été expulsé de cet autel !
+
+Wang Lin sentit la goutte de sang de son corps original brûler, libérant une lueur sanguine qui semblait communiquer avec le vortex.
+
+Alors que la lumière rouge émanait du vortex, une goutte de sang s'en échappa et fonça vers celle de l'original de Wang Lin. Rapidement, les deux gouttes fusionnèrent pour n'en former qu'une.
+
+À cet instant, l'avatar de Wang Lin se rassoit immédiatement. Une douleur intense lui lacéra l'esprit. Cette souffrance rendait le contrôle de son avatar presque impossible, et il dut concentrer toute son attention sur lui.
+
+Dès qu'il s'assit, sa conscience quitta son avatar pour s'immerger totalement dans cette goutte de sang.
+
+Une douleur indicible résonna dans sa conscience. Bien qu'il n'ait pas de corps physique, il ressentait la brûlure de sa chair. La goutte de sang ayant fusionné avec lui semblait bouillir.
+
+C'est à ce moment que la deuxième goutte de sang jaillit du vortex et fusionna avec Wang Lin. La douleur dans sa conscience décupla, mais il ne pouvait émettre aucun rugissement ; il ne pouvait qu'endurer !
+
+Peu après, la troisième goutte s'envola du vortex et fusionna avec lui. Cela fit s'étendre la goutte de sang de Wang Lin jusqu'à atteindre trois pieds de large, et l'ombre d'un corps nu commença à se condenser !
+
+Ce corps avait une chevelure blanche. C'était Wang Lin !
+
+Son corps était couvert de runes complexes et étranges. Ses yeux étaient clos et des gémissements étouffés de douleur s'échappaient de sa bouche. Sa forme physique prenait progressivement corps.
+
+La quatrième goutte de sang s'élança du vortex. En sortant, elle inonda l'espace infini d'une lumière rouge. Un rayon écarlate jaillit et frappa directement entre les sourcils de Wang Lin.
+
+Sous ce choc, le corps de Wang Lin trembla et ses yeux s'ouvrirent brusquement. Ses pupilles étaient rouges et son corps tressaillait. Une force puissante déferla en lui, provoquant des craquements sinistres.
+
+Après avoir fusionné avec ces quatre gouttes, un lignage était né. Un lignage de la Race Ancienne. Désormais, Wang Lin était un véritable membre du clan ancestral et un citoyen du pays ancien !
+
+Une fois la quatrième goutte passée, le vortex commença à se dissiper ; une fois disparu, la calamité prendrait fin. Bien que Wang Lin l'ait surmontée, il n'avait obtenu que quatre gouttes, soit une seule de plus que Ye Mo !
+
+C'était déjà beaucoup pour lui. Après tout, il avait reçu l'héritage de Ye Mo, et quatre gouttes représentaient sa limite ultime !
+
+Il n'était pas un génie, il n'était pas né sur le Continent Astral Immortel, il n'était qu'une insignifiante créature des cavernes. Il ne pouvait rivaliser avec l'homme en robe royale qui avait obtenu six gouttes et intégré la famille royale. Wang Lin ne possédait rien qui puisse égaler un être aussi béni !
+
+Il ne pouvait pas non plus se comparer au Grand Empereur Xuan Luo, l'un des neuf soleils, l'un des neuf êtres les plus puissants du Continent Astral Immortel. Une telle existence légendaire trônait au-dessus de tous, ayant obtenu huit gouttes de sang. Wang Lin ne faisait pas le poids.
+
+Sa seule force résidait dans sa ténacité, son caractère inflexible et son refus viscéral d'être assujetti. À travers d'innombrables luttes entre la vie et la mort, il était passé du statut de simple mortel vulnérable à celui qu'il était devenu. Avec le recul, un tel parcours était proprement stupéfiant.
+
+Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'empereur et les anciens du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empereur, ils ne rencontraient que rarement le péril de la mort.
+
+Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
+
+Tandis que Wang Lin serrait Li Muwan contre lui en pleurant, luttant désespérément pour la ressusciter, l'homme en robe royale jouait avec des trésors exotiques offerts par son peuple. Il pouvait choisir n'importe quelle femme pour en faire l'une de ses nombreuses concubines.
+
+« Quatre gouttes de sang sont ma limite... » Le lignage dans le corps de Wang Lin se condensa progressivement. Il observa le vortex qui s'étiolait au-dessus de lui. Il n'était pas satisfait !
+
+Bien qu'il ignorât l'agitation qu'il provoquait sur le Continent Astral Immortel, c'était là son essence même. Il ne se contentait jamais ; il voulait que son lignage soit encore plus puissant !
+
+Rien d'autre que pour sa volonté indomptable, cette volonté qui défiait les cieux !
+
+« Puisque vous reconnaissez mon sang ancien, alors quatre gouttes ne suffiront pas ! » Un éclat de froideur traversa le regard de Wang Lin alors qu'il bondissait dans les airs, chargé vers le vortex en pleine dissipation !
+
+Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancestral. Il ne vouait aucun culte à une existence aussi éthérée ; il ne croyait qu'en sa propre force !
+
+C'était un concept que personne sur le Continent Astral Immortel, pas même le Grand Empereur Xuan Luo, ne pouvait concevoir. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
+
+Mais Wang Lin était différent !
+
+Il fut le premier à ne pas se satisfaire des gouttes de Sang Céleste de la Race Ancienne, et il se précipita dans le vortex !

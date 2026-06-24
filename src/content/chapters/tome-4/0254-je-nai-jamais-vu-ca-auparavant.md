@@ -1,0 +1,127 @@
+---
+n: 254
+title: "Je n'ai jamais vu ça auparavant"
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 254 - Never Seen It Before
+slug: je-nai-jamais-vu-ca-auparavant
+---
+Wang Lin saisit l'or sur la table et le jeta négligemment dans un petit panier sans même y regarder.
+
+Quant aux sculptures du magasin, hormis celles de ses parents et de ses proches, il ne s'en souciait absolument pas. À ses yeux, ces objets n'étaient que des outils. Des outils destinés à l'aider à apaiser son cœur et à comprendre les lois célestes.
+
+Il était convaincu que le jour où il parviendrait à sculpter la statue d'un cultivateur du niveau de Formation de l'Âme ou d'une bête spirituelle, sa culture connaîtra une percée.
+
+Da Niu quitta la boutique, l'esprit ailleurs. En marchant, il ne cessait de marmonner pour lui-même, mais nul ne savait ce qui occupait ses pensées.
+
+Wang Lin prit une gorgée de vin de fruits et se replongea dans sa sculpture. À mesure qu'il travaillait, des copeaux de bois tombaient au sol tandis que le bloc prenait forme. Une aura puissante émanait de l'œuvre, mais cette puissance ne pouvait se propager ; elle restait prisonnière de la sculpture.
+
+À chaque coup de son couteau, l'aura s'intensifiait. Lentement, la silhouette d'un dragon imposant apparut sur le bois, mais le geste de Wang Lin commença à hésiter.
+
+Il réfléchit longuement, puis poussa un soupir. Le couteau disparut de sa main. De sa main gauche, il jeta nonchalamment l'œuvre inachevée dans une grande caisse qui contenait déjà plus d'une douzaine de sculptures incomplètes.
+
+Si l'on regardait attentivement ces pièces, on y reconnaîtrait diverses personnes et bêtes spirituelles : le Bossu Meng, l'Empereur Ancien, le Seigneur Démoniaque des Six Désirs, des bêtes spirituelles de haut rang, et même des bêtes désolées...
+
+Bien que ces sculptures représentaient des sujets variés, elles avaient un point commun : toutes mettaient en scène des êtres ou des créatures dépassant le niveau de Formation de l'Âme.
+
+Au cours de l'année écoulée, Wang Lin avait tenté à plusieurs reprises de sculpter une entité au stade de Formation de l'Âme, mais tous ses essais avaient échoué. S'il s'était forcé à terminer la sculpture, celle-ci se serait transformée en poussière.
+
+Il ferma les yeux pour méditer. Soudain, une substance rouge d'environ une paume d'épaisseur apparut autour de lui.
+
+Cette substance était l'aura maléfique que Wang Lin avait condensée durant l'année écoulée. Il était très satisfait du résultat. En réalité, il n'avait pas forcé cette condensation ; elle s'était produite naturellement au gré de ses activités.
+
+Wang Lin pensait qu'en seulement un an supplémentaire, il serait capable de comprimer cette aura maléfique jusqu'à son paroxysme. Bien que se débarrasser de cette aura n'augmenterait pas son niveau de culture.
+
+Cependant, Wang Lin était convaincu que s'il laissait cette aura disparaître simplement, il le regretterait plus tard. C'était l'instinct d'un cultivateur qui pressent qu'il pourrait avoir besoin de ressources à l'avenir qui avait poussé Wang Lin à condenser cette essence maléfique.
+
+La voix du père de Da Niu retentit de l'extérieur : « Frère Wang, votre belle-sœur a préparé de bons plats aujourd'hui. Venez manger, nous pourrons ainsi boire quelques coupes entre frères ! »
+
+Les yeux de Wang Lin s'ouvrirent soudainement, révélant une lueur ancestrale. Cette lumière disparut lentement et il retrouva son apparence d'homme ordinaire. Il saisit le pichet, fit deux pas, hésita un instant, puis prit quelques pièces d'or dans le panier avant de sortir.
+
+Quant au jeune homme nommé Xu, il se trouvait actuellement dans sa calèche. Son cœur battait la chamade alors qu'il serrait le paquet entre ses mains, les yeux brillants d'excitation.
+
+Il n'aurait jamais imaginé que sa visite familiale lui permettrait de rencontrer un artisan capable de créer de telles sculptures. On pouvait dire que l'unique passion du Roi était de collectionner ce genre d'objets.
+
+Qu'ils soient sculptés dans la pierre ou le bois, peu importait le matériau. Tant qu'il s'agissait d'une sculpture, le Roi en raffolait.
+
+Et le Prince était un fils très dévoué. S'il lui offrait cet objet, il serait richement récompensé. En y pensant, Xu Tao prit une profonde inspiration.
+
+Le convoi de plus de dix calèches progressait rapidement à travers la capitale, mais il aurait voulu qu'ils aillent encore plus vite afin de regagner le palais au plus tôt.
+
+Après un long moment, la calèche s'arrêta. Le jeune homme Xu ouvrit précipitamment la portière et se précipita vers le palais.
+
+Dans la cour est, il s'arrêta devant un bâtiment très élégant et annonça : « Prince, Xu Tao souhaite vous voir pour une affaire importante. »
+
+Après un instant, une voix nonchalante s'éleva de l'édifice : « Xu Tao, n'étais-tu pas parti rendre visite à tes proches ? Pourquoi es-tu déjà de retour ? Si c'est important, nous en parlerons demain. »
+
+Xu Tao percevait vaguement des voix charmantes et tentatrices émanant du palais. Il hésita. Normalement, il n'était guère opportun de déranger le Prince à un tel moment, mais il était extrêmement confiant quant à l'objet qu'il portait. Serrant les dents, il déclara : « Prince, j'ai vraiment une affaire urgente. Sur le chemin du retour, j'ai trouvé une sculpture sur bois. Si le Roi la voyait, il en serait certainement ravi. »
+
+Un silence s'installa dans le bâtiment. Puis, une voix mécontente retentit de l'intérieur : « Entre, alors. Mais si cet objet n'est pas à la hauteur de tes paroles, tu perdras ton salaire de ce mois. »
+
+Xu Tao entra rapidement dans le palais et découvrit un lit gigantesque recouvert d'un voile. Un jeune homme au teint légèrement pâle était assis au bord du lit, le regard sombre.
+
+Xu Tao posa son manteau au sol, puis l'ouvrit avec précaution pour révéler la sculpture de dragon qu'il contenait.
+
+Dès que le jeune homme aperçut la sculpture, ses yeux s'aiguisèrent soudainement. Il se leva et s'approcha d'un pas vif. Il tendit la main et saisit l'œuvre de sa main droite.
+
+Alors que Xu Tao s'apprêtait à l'avertir, il entendit le jeune homme s'exclamer : « Magnifique ! Xu Tao, tu as accompli un grand service ! »
+
+Sur ce, il frappa un sac d'apparence usée accroché à sa taille. Soudain, une vague de gaz pourpre s'en échappa et enveloppa le jeune homme. Une fois le gaz dissipé, celui-ci portait désormais une robe violette.
+
+À l'apparition du gaz pourpre, une brise souffla dans la pièce, soulevant légèrement le voile. Deux cris mélodieux s'élevèrent du lit tandis que le voile se dévoilait, révélant deux corps magnifiques.
+
+Les yeux de Xu Tao furent irrésistiblement attirés. Il déglutit difficilement et détourna le regard, n'osant pas insister.
+
+Le jeune homme n'était pas un mortel, mais un cultivateur ; cependant, son niveau de culture n'était guère élevé. Il n'était qu'au 8ème étage de la Condensation de Qi.
+
+Il remarqua le regard de Xu Tao et rit : « Mei Ji, sors. Aujourd'hui, tu appartiens à Xu Tao. »
+
+Une réponse charmante vint du lit alors qu'une silhouette sublime en émergeait. Elle s'avança avec nonchalance, saisit l'étonné Xu Tao et l'entraîna avec elle par la porte latérale.
+
+Les yeux du jeune homme s'illuminèrent et il quitta rapidement le palais.
+
+Il se dirigea droit vers le Palais Central. Arrivé devant les portes, il entendit des chants, de la musique et les rires de son père s'échapper de l'intérieur.
+
+Des rangées de gardes montaient la garde devant la salle. En voyant le Prince, ils s'agenouillèrent tous d'un même mouvement. Le jeune homme passa rapidement entre eux pour entrer dans la grande salle.
+
+À l'intérieur se trouvaient deux petites tables, derrière lesquelles siégeaient deux cultivateurs. Ils portaient des robes de couleurs différentes : l'un en noir, l'autre en vert.
+
+Le cultivateur en noir gardait les yeux clos ; la musique et la danse ne l'intéressaient guère. Le cultivateur en vert, quant à lui, souriait en observant les artistes.
+
+Au-dessus de la grande salle siégeait un homme d'âge moyen très beau. Il dégageait une majesté souveraine.
+
+Lorsque le jeune homme entra, l'homme d'âge moyen rit : « Pourquoi ne t'amuses-tu pas au Palais Rose ? Pourquoi es-tu venu voir ton vieux père ? »
+
+Le jeune homme salua respectueusement les deux cultivateurs, puis s'adressa à l'homme d'âge moyen : « Père, je t'en prie, regarde ceci. » Il sortit la sculpture du dragon et la posa au sol.
+
+À cet instant, le cultivateur en vert, qui suivait les artistes du regard, fixa soudainement la sculpture. Les yeux de l'homme d'âge moyen s'illuminèrent également. D'un geste de la main, il fit partir précipitamment tous les interprètes.
+
+Le cultivateur en vert se leva brusquement et s'approcha de l'œuvre. Il l'examina attentivement, prit une grande inspiration et dit : « C'est... » Il avait déjà une intuition, mais il n'en était pas certain.
+
+L'homme en noir, qui gardait habituellement les yeux fermés, les ouvrit lentement et déclara : « C'est une sculpture sur bois. »
+
+Le cultivateur en vert fut déconcerté. Il esquissa un sourire amer et répliqua : « Frère aîné, je sais bien que c'est une sculpture sur bois. Je me demande ce qu'elle représente ! »
+
+Le cultivateur en noir, appelé frère aîné, réfléchit un instant avant de dire lentement : « Je n'ai jamais vu cela auparavant. »
+
+Le cultivateur en vert eut un sourire désabusé. Il était habitué aux excentricités de son frère aîné.
+
+L'homme d'âge moyen fixa la sculpture et sourit : « Deux anciens immortels, y a-t-il quelque chose de spécial dans cette œuvre ? »
+
+Le cultivateur en vert s'approcha pour saisir l'objet. Soudain, une aura ancestrale le percuta. Cette aura était si puissante qu'elle le glaça d'effroi. Avec sa culture au stade intermédiaire de l'Établissement des Fondations, il eut l'impression que ses fondations allaient s'effondrer. Horrifié, il lâcha brusquement la sculpture.
+
+Son frère aîné fit un mouvement de manche et la sculpture vola vers sa main. Le visage du cultivateur en vert pâlit instantanément alors que son noyau devenait instable. Il lui fallut un long moment avant de parvenir à maîtriser les fluctuations de son noyau.
+
+Plus le niveau de culture est élevé, plus l'effet de la sculpture de Wang Lin est violent ; pour un mortel, l'impact reste minime.
+
+L'homme en noir dit d'une voix calme : « Cet objet n'est pas une sculpture ordinaire. La créature représentée est presque identique au dragon mentionné dans les anciens registres de notre secte. »
+
+Le cultivateur en vert demanda, avec une expression étrange : « Frère aîné, ne veniez-vous pas de dire que vous ne l'aviez jamais vue ? Comment pouvez-vous affirmer qu'il s'agit d'un dragon maintenant ? »
+
+Le cultivateur en noir regarda son cadet avec étonnement. Ses yeux brillaient de surprise lorsqu'il répondit : « Jeune frère, je comprends enfin pourquoi ta culture ne progresse pas... »
+
+Le visage du cultivateur en vert se crispa, mais il garda le silence.
+
+Le cultivateur en noir soupira : « Je n'ai jamais vu la bête qui est sculptée, mais je n'ai jamais dit que je ne reconnaissais pas ce qu'elle était. »
+
+Le Dao de cœur du cultivateur en vert n'étant pas assez stable, il cracha une bouchée de sang. Après un long moment, il retrouva son calme et eut un rire amer. Il sentait qu'il ne pourrait jamais rien faire de son frère aîné.

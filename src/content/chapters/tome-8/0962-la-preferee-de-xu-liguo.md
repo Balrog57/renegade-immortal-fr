@@ -1,0 +1,139 @@
+---
+n: 962
+title: La préférée de Xu Liguo
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 962 - Xu Liguos Favorite
+slug: la-preferee-de-xu-liguo
+---
+Bai Wei sourit à Wang Lin, ses yeux de phénix emplis d'attente, puis elle partit.
+
+Wang Lin esquissa un sourire amer. Cette Bai Wei lui donnait mal à la tête. À cet instant, une ondulation apparut dans son sac et la voix de Xu Liguo résonna dans son esprit.
+
+« Qualité supérieure ! Qualité supérieure ! Maître, c'est de la qualité supérieure ! Moi, Xu Liguo, j'ai rencontré d'innombrables personnes, mais je n'ai jamais vu quelqu'un d'aussi gracieux. Surtout son regard au moment de partir, il a même fait fléchir les os du Grand-père Xu. Maître, si vous ne l'aimez pas, moi je l'aime ! En la voyant, cela m'a rappelé Mei Ji [1]. »
+
+Wang Lin ignora les paroles de Xu Liguo et lui coupa la parole.
+
+À ce moment, un petit rire parvint du côté de Wang Lin. Zhao Xinmeng apparut, et son regard envers Wang Lin était quelque peu différent.
+
+Wang Lin fronça les sourcils, puis se rasseit sur sa chaise. Il dit : « Quatrième Sœur Aînée, je vais réfléchir à votre demande. »
+
+Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit doucement : « Bien que mon niveau de culture ne soit pas élevé, j'ai préservé ma virginité durant mes mille ans de culture. Si vous pouvez renforcer mon sceau, je... je peux vous donner mon Yin d'Origine millénaire. » Le visage de Zhao Xinmeng rougit alors qu'elle faisait face à Wang Lin. Elle écarta sa manche, révélant un petit point rouge.
+
+Elle mordit sa lèvre inférieure, rabattit sa manche, puis regarda Wang Lin avant de s'en aller.
+
+« C'est mon dernier espoir. S'il peut combattre Ling Tianhou, sa culture ne peut pas être seulement au stade du Nirvana Scryer ; il est probablement au stade du Nirvana Cleanser. S'il m'aide, il doit être capable de supprimer complètement le sceau... » Zhao Xinmeng laissa échapper un soupir et sa silhouette disparut à l'horizon.
+
+« Si je demande l'aide d'autrui, avec Maître présent, je crains que personne n'ose m'aider... »
+
+Wang Lin resta seul dans la pièce et réfléchit. Aider Zhao Xinmeng serait facile, mais cela ne plairait pas à l'All-Seer.
+
+« Si ce que dit Zhao Xinmeng est vrai, alors il doit y avoir une signification profonde derrière l'indifférence de Maître... Vraisemblablement... Il est lui aussi tiraillé par cette question dans son esprit. »
+
+Pendant qu'il réfléchissait, l'épée céleste où se trouvait Xu Liguo commença à s'agiter, et les fluctuations émanant du sac perturbèrent ses pensées. Wang Lin fronça les sourcils et frappa son sac de rangement. L'épée céleste s'envola immédiatement et une grande quantité de brume noire apparut. Cette brume se condensa rapidement pour révéler la silhouette de Xu Liguo.
+
+Les yeux de Xu Liguo brillèrent. Dès qu'il apparut, il inspira profondément à l'endroit où Bai Wei se tenait auparavant. Son visage était empreint d'une expression enivrée et il marmonna : « Qualité supérieure ! Vraiment de la qualité supérieure ! Comparée à elle, même la petite fille du Territoire de l'Esprit Démoniaque ne vaut rien. Si je pouvais... » Xu Liguo esquissa un sourire pervers.
+
+Wang Lin lança un regard froid à Xu Liguo. Ce dernier trembla, sentant une intention glaciale se répandre sur son corps. Cette froideur pénétra son âme, le ramenant brusquement à la raison, et il commença à se plaindre intérieurement.
+
+« Bon sang, pourquoi le niveau de culture de ce démon a-t-il encore augmenté ? Ce n'est pas juste ! Bien que je l'appréhendais déjà, mon âme ne tremblait pas ainsi d'un simple regard de sa part. On dirait que ce démon pourrait tuer le Grand-père Xu par la seule force de sa pensée ! » L'expression de Xu Liguo changea, mais il afficha aussitôt un air flatteur.
+
+« Maître est puissant. Votre niveau de culture a encore progressé. Maître est vraiment béni par les cieux... »
+
+Sans attendre qu'il finisse, Wang Lin l'interrompit d'un ton calme : « Pourquoi étais-tu si impatient de sortir ? » Bien que sa voix fût sereine, ses yeux étaient glacials.
+
+Du point de vue de Wang Lin, il fallait parfois mater Xu Liguo ; sinon, ce dernier deviendrait trop indiscipliné. Ce démon était une créature qu'il avait lui-même façonnée, et peut-être était-il le seul à vraiment le comprendre.
+
+Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Il savait que si Xu Liguo retrouvait sa forme véritable, la seule façon de le contrôler serait d'être toujours plus fort que lui.
+
+Lorsqu'ils étaient dans la Bête des Abysses, le vieil homme pensait que Xu Liguo était quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
+
+Des pensées rebelles apparaissaient parfois dans le cœur de Xu Liguo. Wang Lin en était parfaitement conscient.
+
+« Pas bon... Ce démon va me punir aujourd'hui... » Xu Liguo, nerveux, se lécha les lèvres et flatta : « Maître, si le petit Xu est sorti, c'est pour féliciter l'augmentation de votre culture. Depuis que j'ai brillamment décidé de suivre Maître, votre niveau de culture augmente chaque fois que je sors. Après un certain temps, ce petit a pensé que s'il sortait plus souvent, peut-être que la culture de Maître deviendrait encore plus élevée. Héhé... » Tout en parlant, Xu Liguo surveillait attentivement Wang Lin, prêt à changer de discours à tout instant.
+
+Wang Lin fronça les sourcils mais esquissa un sourire. Il regarda Xu Liguo et dit : « Puisque tu en as envie, ne retourne pas dans l'épée céleste pour le moment. Reste avec moi et cherche à comprendre correctement l'intention de l'épée que tu as héritée. »
+
+Xu Liguo se tapa immédiatement la poitrine : « Maître, soyez rassuré, le petit Xu ne vous décevra pas et cultivera sérieusement. » Bien qu'il dise cela, il riait intérieurement.
+
+« C'est toujours votre Grand-père Xu qui est le plus malin et le plus réactif. Quelques mots doux et même ce démon se laisse berner ! Peu importe la hauteur de votre culture, vous ne pourrez jamais battre la ruse de votre Grand-père ! »
+
+Wang Lin ne prêta plus attention à Xu Liguo. Il s'assit et commença sa culture.
+
+Xu Liguo flottait dans la pièce comme un fantôme. Puis, s'ennuyant, il ne put s'empêcher de songer à la beauté incomparable de Bai Wei. Il jeta d'abord un regard prudent vers Wang Lin, puis renifla avec une expression enivrée.
+
+« Une beauté... une vraie beauté... Si elle était une femme, elle ne serait pas si spéciale. Le Grand-père Xu a rencontré beaucoup de femmes, mais elle, si c'était un homme... » L'esprit de Xu Liguo vacilla et son cœur s'agita. Il avait envie d'aller trouver Bai Wei immédiatement pour une discussion de cœur à cœur.
+
+Son esprit était rempli de fantasmes et il se sentait agité. Cependant, pensant que Wang Lin était toujours à proximité, il ne put s'empêcher de soupirer.
+
+« Quand le Grand-père Xu suivait l'ancêtre du Clan des Démons Géants, l'ancêtre était si bon avec moi. Il m'a donné Mei Ji. Ces jours-là étaient merveilleux... Malheureusement, après être revenu auprès de ce démon, je suis enfermé dans ce sac toute la journée. La belle vie est si loin. » En y pensant, Xu Liguo ressentit une pointe de colère.
+
+« Un jour, quand ma culture sera assez forte, je me vengerai de ce démon. Au pire, je me battrai à mort... je me battrai... » Alors qu'il était perdu dans ses pensées, il vit soudain les paupières de Wang Lin bouger. Il afficha aussitôt un sourire flatteur.
+
+Cependant, après une longue attente, les yeux de Wang Lin ne s'ouvrirent pas. Xu Liguo jura intérieurement : « Il ne sait vraiment pas profiter de la vie. Si j'avais quelqu'un d'aussi dévoué à moi, je me serais déjà jeté sur lui, sans parler de cette beauté... » Xu Liguo soupira. Il savait qu'il n'était pas encore assez puissant. Après avoir longuement réfléchi, il s'assit pour commencer à comprendre l'héritage de l'ancienne intention d'épée.
+
+« Le Grand-père Xu doit travailler dur ; sinon, l'écart entre moi et ce démon ne fera que se creuser. Je ne pourrai alors jamais échapper à ses griffes ni sortir de cet abîme de misère. »
+
+Une fois que Xu Liguo eut commencé sa culture, Wang Lin ouvrit les yeux. Son regard brilla intensément avant qu'il ne referme les paupières en ignorant Xu Liguo. Toutefois, Wang Lin avait pris la décision de raffiner ce démon une fois de plus.
+
+Le temps passa rapidement et, en un clin d'œil, midi sonna. Le soleil au-dessus du pavillon était éclatant et semblait dissiper toute obscurité. Le ciel était clair et bleu, de quoi apaiser le cœur de quiconque.
+
+Wang Lin ouvrit les yeux et se mit en mouvement. La porte s'ouvrit d'elle-même et il sortit. Xu Liguo se leva pour le suivre, scrutant les environs tout en réprimant son excitation.
+
+« Je vais bientôt voir cette beauté ! »
+
+Wang Lin fendit l'air et se dirigea vers le pied de la Montagne Pourpre. Au loin, il pouvait apercevoir des silhouettes s'agiter parmi les sept montagnes, signe de l'étendue d'une grande secte.
+
+On entendait des chants au loin ; c'étaient les disciples de bas niveau du Secte du Destin Céleste qui pratiquaient leurs sorts.
+
+Une énergie spirituelle dense imprégnait le Secte du Destin Céleste. Cependant, en ce midi, l'énergie était chargée de feu Yang et n'était pas propice à la culture. Il n'y avait pas ces magnifiques fluctuations d'énergie que l'on observe à l'aube ou au crépuscule.
+
+La Division Pourpre occupait le rang le plus bas parmi les sept divisions. Même la lignée des sept disciples directs n'était pas complète ; en comptant Wang Lin, ils n'étaient que cinq.
+
+En conséquence, il y avait peu de disciples ordinaires sur la Montagne Pourpre, ce qui rendait cette immense montagne assez austère et peu peuplée.
+
+En descendant la montagne, il ne croisa personne. Xu Liguo suivait Wang Lin, et la lumière du soleil qui tombait sur lui ne lui causait aucun inconfort. Au contraire, cela lui semblait agréable, surtout à l'idée de rencontrer bientôt cette beauté. Le cœur de Xu Liguo s'agita, et il en voulut à Wang Lin d'être aussi lent.
+
+En observant l'ombre de Wang Lin, Xu Liguo pensa : « Ce démon a cultivé pendant tant d'années sans avoir connu le moindre plaisir, mais même ce Grand-père Xu doit admirer sa progression ! Ce petit cultivateur de la Formation du Noyau est devenu une puissance... » Aussitôt, il chassa cette pensée : « Je ne peux pas devenir comme lui. Quel intérêt y a-t-il à vivre ainsi ? On peut dire que la culture de ce démon s'est bâtie sur le danger et le massacre. Moi, Xu Liguo, je ne suis pas fait pour ça. C'est bien plus agréable de tenir des beautés dans ses bras. »
+
+« Si j'étais comme lui, je serais certainement détruit tôt ou tard. Je me demande quand la malchance frappera ce démon et qu'il sera tué... Non, s'il meurt, mon sort ne sera pas meilleur. Peut-être que mon esprit sera effacé pour n'être qu'un simple esprit d'épée. » Tandis qu'Xu Liguo divaguait, Wang Lin était arrivé au pied de la montagne.
+
+Un pavillon se dressait là. Une silhouette pourpre se tenait à l'intérieur et, de loin, elle dégageait une grâce infinie. Cependant, cette silhouette était féminine et laissait transparaître une certaine fragilité.
+
+À cet instant, une brise légère souffla et souleva les cheveux de la silhouette pourpre. La personne releva sa mèche de sa main de jade, puis se retourna et sourit à Wang Lin.
+
+Pour qui ne connaissaitrait pas les détails, cette personne était bien plus belle que la plupart des femmes.
+
+Les yeux de Bai Wei s'illuminèrent et il sourit : « Le Frère Aîné Wang a bel et bien tenu sa promesse. »
+
+Bien que l'expression de Wang Lin fût neutre, Xu Liguo fixait Bai Wei derrière lui. Si Wang Lin n'avait pas été là, peu importait le risque, il se serait jeté sur Bai Wei.
+
+« Qu'est-ce que c'est ? » Le regard de Bai Wei se posa sur Xu Liguo. Le corps de ce dernier était enveloppé d'une brume noire qui, à cet instant, se contracta pour révéler son apparence de cultivateur. Ses yeux brillaient d'un éclat maléfique, mais son expression était sérieuse. Juste au moment où il allait parler, un reniflement froid le fit sursauter, le forçant à arborer immédiatement un air flatteur.
+
+Ce changement soudain surprit Bai Wei.
+
+« C'est mon esprit de trésor. Frère Bai, où se trouve le marché dont vous parliez ? Veuillez nous guider. » Wang Lin ne fit pas de longues présentations.
+
+En présence de Wang Lin, même si son cœur brûlait d'envie, Xu Liguo n'osait pas trop en faire. Il ne put que regarder Bai Wei avec impuissance tout en maudissant intérieurement : « Ce maudit démon de Wang Lin ! Il ne va pas le manger lui-même, et il ne laissera pas non plus le Grand-père Xu en profiter. Il n'y a aucune justice, aucune justice ! »
+
+Bai Wei fronça les sourcils et dit : « Frère Aîné Wang ! »
+
+Wang Lin fut immédiatement embarrassé. Il était très rare qu'il ressente de l'embarras, et Bai Wei venait de le lui faire subir deux fois.
+
+Pendant que Wang Lin rougissait, les yeux de Xu Liguo s'illuminèrent en fixant Bai Wei. Il pensa : « Le Ciel a souri à Xu Liguo en lui faisant rencontrer l'amour de sa vie. Je n'en reviens pas ! » Une fumée noire apparut autour de lui et il se transforma en une immense gueule qui semblait prête à dévorer Bai Wei.
+
+À cet instant, toutes les pensées de Wang Lin furent balayées par son esprit ; il ne voyait plus que le sourire de Bai Wei. Alors qu'il s'élançait, une lueur froide traversa les yeux de Wang Lin et sa main perça la brume noire pour saisir directement l'âme de Xu Liguo.
+
+Xu Liguo sursauta et lança un regard féroce à Wang Lin au moment où celui-ci le saisissait. Puis, il retrouva aussitôt son air flatteur en répétant : « Maître, Maître, je sais que j'ai eu tort. J'ai eu tort ! »
+
+Wang Lin agrippa Xu Liguo et dit : « Bai... Sœur Cadette Bai, veuillez nous guider. »
+
+Bai Wei remarqua également quelque chose et regarda Xu Liguo avec un grand intérêt. Ce regard excita Xu Liguo.
+
+Bai Wei sourit et, d'un geste, frappa son sac de rangement d'où apparut une épée volante. Il monta sur l'épée et s'élança vers l'horizon. Wang Lin, imperturbable, fit un pas et rattrapa la lumière de l'épée.
+
+« Bien que ce Bai Wei ait eu des traits féminins auparavant, ce n'était pas à ce point. Son corps est désormais imprégné d'une aura Yin, et même son tempérament a radicalement changé ! » En avançant, Wang Lin sentit que quelqu'un le suivait discrètement. Sans même se retourner, il sut qu'il s'agissait de Zhao Xinmeng !
+
+***
+
+[1] L'esprit du domaine de la luxure que Wang Lin avait utilisé contre Liu Mei.

@@ -1,0 +1,113 @@
+---
+n: 1356
+title: "Sept coups d'épée contre la Montagne Céleste (3)"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1356 - Seven Sword Chops the Heavenly Mountain (3)
+slug: sept-coups-depee-contre-la-montagne-celeste-3
+---
+Les yeux du Taoïste Scattered Spirit étaient empreints de tristesse, comme s'il ne voulait pas activer cette formation, mais il le devait. Il n'avait jamais rien imposé à quiconque ; ses enseignements taoïstes s'étaient diffusés au fil des âges auprès d'innombrables cultivateurs et mortels...
+
+« Le monde dans lequel nous vivons est une illusion. Le Royaume Céleste dont on nous a parlé est un mensonge. Nous devons briser ce monde ensemble pour découvrir la vérité, pour sortir de cette existence et devenir de véritables... êtres humains ! Tel est mon Dao ! »
+
+La Formation de Vie des Cent Millions d'Êtres des 7 Millions de Mondes utilisait les vies des cent millions d'habitants des 7 Millions de Mondes comme racine. Alors que les paroles du Maître Scatter Thunder résonnaient, les gens quittèrent leurs foyers à travers les cités mortelles des 7 Millions de Mondes.
+
+Jeunes et vieux, hommes et femmes, tous sortirent et s'assirent. Ils ne pouvaient pas utiliser de sorts, mais une volonté puissante embrasait leurs esprits. La volonté de briser le monde !
+
+« Nous ne sommes pas des fourmis, nous ne sommes pas du bétail. Nous ne voulons pas être des captifs, nous voulons briser les cieux, sortir de ce monde et fracasser le Royaume Céleste ! Je suis prêt à donner ma vie pour que les générations futures aient un avenir radieux ! »
+
+Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respectives. Ils fixèrent le ciel avec détermination avant de s'asseoir, libérant une volonté plus puissante encore !
+
+« Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine ; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux, alors nous allons le détruire et devenir nous-mêmes des êtres célestes ! »
+
+D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Taoïste Scattered Spirit pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa !
+
+« Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Foudre Spirituelle ! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage ! »
+
+Les pensées de chaque être vivant affluèrent dans leurs esprits et convergèrent pour former une tempête indescriptible !
+
+Cette tempête était la résistance des 7 Millions de Mondes après avoir été opprimés pendant d'innombrables années. C'était l'indignation des 7 Millions de Mondes, amplifiée un nombre incalculable de fois !
+
+Ce pouvoir était invincible ; même le Dao Céleste tremblerait devant une telle force. C'était la rébellion des fourmis, une volonté défiant les cieux qui stupéfiait même Wang Lin !
+
+Il ne s'agissait pas de la volonté d'un seul homme, mais de la volonté défiant les cieux d'innombrables êtres vivants des 7 Millions de Mondes !
+
+« J'utilise la chair et le sang de mes 7 Millions de Mondes pour briser ce sceau qui empêche toute force extérieure de pénétrer ! » La voix puissante du Taoïste Scattered Spirit se propagea dans chaque recoin des 7 Millions de Mondes !
+
+Alors que sa voix résonnait, sa puissance augmenta soudainement, devenant toujours plus forte, formant une tempête déchaînée. Cette tempête était d'une puissance extrême, une chose que Wang Lin n'avait jamais vue de toute sa vie !
+
+Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens Divin, la tempête ressemblait à un soleil dégageant une force capable de briser les cieux !
+
+Cette tempête était forgée par la volonté et la vie de chaque habitant des 7 Millions de Mondes, et elle était partout ! Elle formait un mur gigantesque empêchant toute force extérieure d'entrer !
+
+Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, l'éclair éternel du Clan Scatter Thunder perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration !
+
+Un grondement tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même !
+
+Wang Lin resta stupéfait devant ce spectacle, son esprit tremblant sous l'effet du rugissement. Son âme sembla entrer en résonance avec ce cri, et il eut la sensation d'être baptisé. La confirmation de son propre Dao devint plus limpide.
+
+L'éclair éternel ne brisa pas la tempête dès le premier assaut, et celle-ci devint plus forte encore. Le rugissement de millions de personnes éclata simultanément !
+
+Sous la pression de cette force, l'éclair éternel fut repoussé de plusieurs milliers de pieds !
+
+Des tonnerres sourds retentirent. L'éclair éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement !
+
+Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait ! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes ! Ni lui, ni même le premier ancêtre du Clan Scatter Thunder n'auraient pu concevoir une telle chose !
+
+« Fous... vous êtes tous devenus fous. Tous les cultivateurs des 7 Millions de Mondes sont devenus fous. Même tous les mortels aussi... tous sont devenus fous ! »
+
+L'éclair éternel atteignit la limite de la tempête entourant les 7 Millions de Mondes et frappa la tempête une seconde fois.
+
+La tempête gronda ; d'innombrables mortels des 7 Millions de Mondes crachèrent du sang et s'effondrèrent, mais encore plus de personnes sortirent pour remplacer ceux qui étaient tombés.
+
+Certains mortels luttèrent pour se relever. Même si le sang jaillissait de leur bouche, ils voulaient donner jusqu'à leur dernier souffle !
+
+Les cultivateurs crachaient également du sang, mais libérant une volonté encore plus intense que celle des mortels, leurs blessures étaient plus graves. Les corps de certains cultivateurs explosèrent, mais les autres ne renoncèrent pas. Même face à la mort, ils étaient prêts à continuer !
+
+Ils n'avaient aucune voie de retraite !
+
+Les yeux du Maître Scatter Spirit étaient remplis d'une tristesse infinie alors qu'il s'asseyait et fermait les yeux. En fermant les paupières, il sembla se dissoudre dans le monde pour ne faire qu'un avec les 7 Millions de Mondes.
+
+À cet instant, une lumière immense émana du Taoïste Scattered Spirit. Il devint le centre de la tempête des 7 Millions de Mondes et gagna en puissance !
+
+C'était comme si la formation avait acquis un esprit de formation !
+
+La tempête rugissait. Peu importait le nombre de bombardements de l'éclair éternel, la tempête ne bougeait pas !
+
+Une épée cristalline commença à se condenser au cœur de cette tempête. Dès son apparition, le monde trembla et elle flotta au-dessus du Taoïste Scattered Spirit.
+
+Cette épée mesurait sept pieds de long pour trois pouces de large. Elle était radieuse et dégageait une lueur éblouissante !
+
+« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée et porte sept coups pour terrasser le Grand Ancien. C'est là que réside mes 70 % de certitude ! »
+
+L'épée de sept pieds brilla et vola vers Wang Lin. Ce dernier leva la main et l'épée vint se loger dans sa paume. En la tenant, Wang Lin sentit clairement la folie inimaginable qui l'habitait !
+
+Cette aura était imprégnée d'un refus ultime et de l'intention même de briser le monde !
+
+Qu'était cette épée ? Elle était manifestement l'espoir de toute vie dans les 7 Millions de Mondes !
+
+Tout cela se déroula en un laps de temps infime. L'expression du Grand Ancien changea radicalement. Il fixa l'épée de sept pieds, une lueur de froideur dans le regard.
+
+« Arrogant ! Vous n'êtes rien de plus que les 7 Millions de Mondes ! » Il ricana en s'avançant vers Wang Lin, la main droite levée, déclenchant un grondement tonnerre !
+
+Wang Lin restait silencieux, comme s'il ne voyait pas le Grand Ancien approcher. L'éclair infini se referma instantanément, formant d'innombrables sphères de tonnerre. Elles étaient sur le point de percuter Wang Lin, et le Grand Ancien n'était plus qu'à trente mètres !
+
+Soudain, Wang Lin leva la tête, agrippa fermement l'épée de sept pieds et abattit un coup !
+
+Le monde trembla et une lumière aveuglante jaillit. Cette clarté recouvrit le monde entier et sembla absorber toute autre source de lumière. C'était comme le premier rayon d'une épée apparaissant à l'aube des temps !
+
+Un seul coup d'épée pour ébranler les cieux !
+
+Il n'y avait pas d'énergie d'épée, mais d'innombrables rugissements capables de briser les os résonnèrent. Au moment où l'épée frappa, d'innombrables êtres moururent dans les 7 Millions de Mondes ! Cependant, toutes ces morts étaient consenties, et elles se transformèrent en une force indescriptible jaillissant de la lame !
+
+Les rugissements incessants étaient nichés au cœur de la lumière de l'épée, fonçant sur le Grand Ancien. Le tonnerre qu'il avait généré s'effondra instantanément, sans aucune possibilité de résistance !
+
+L'esprit du Grand Ancien trembla violemment et il battit en retraite précipitamment. L'armure de tonnerre autour de lui s'étendit pour former un bouclier. Le premier coup d'épée percuta l'armure de tonnerre.
+
+Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre du troisième stade du Clan Scatter Thunder et pouvait résister aux Flammes Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
+
+La lumière de l'épée disparut : le premier coup était porté !
+
+Le Grand Ancien avait les yeux écarquillés par une peur monstrueuse. Son corps tremblait et des craquements sinistres résonnaient dans son armure, avant que de multiples fissures n'y apparaissent. Puis, dans un fracas violent, le trésor transmis depuis des dizaines de milliers d'années vola en éclats.
+
+Une blessure profonde apparut sur la poitrine du Grand Ancien. C'était une plaie sanglante et son visage devint livide. Il cracha une nouvelle bouchée de sang et n'hésita pas à reculer, titubant sous l'effet du choc !

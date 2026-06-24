@@ -1,0 +1,83 @@
+---
+n: 2
+title: Les Immortels
+book: 1
+bookTitle: The Mediocre Youth
+en: Chapter 2 - Immortals
+slug: les-immortels
+---
+Alors que la calèche filait rapidement sur la route, le corps de Wang Lin tressautait au rythme des irrégularités du terrain. Serré contre lui, le paquet contenait tous les espoirs de ses parents. Il quittait le village où il avait vécu pendant quinze ans.
+
+Le voyage serait long. Wang Lin s'allongea et finit par sombrer dans le sommeil. Ignorant combien de temps s'était écoulé, il fut doucement tiré de sa torpeur. En ouvrant les yeux, il découvrit l'Oncle Quatrième qui lui adressait un sourire : « Tie Zhu, que ressens-tu à l'idée de quitter la maison pour la première fois ? »
+
+Wang Lin remarqua que la calèche s'était arrêtée et sourit à son tour. « Je ne saurais le dire, je suis juste un peu anxieux, car j'ignore si les immortels me choisiront ou non. »
+
+L'Oncle Quatrième laissa échapper un rire et tapota l'épaule de Tie Zhu : « Très bien, ne te tourmente pas pour rien. Nous sommes chez moi. Repose-toi d'abord, et je t'emmènerai voir la famille demain matin. »
+
+Lorsqu'il descendit de la calèche, Wang Lin se retrouva devant une maison au toit de tuiles. Il suivit l'Oncle Quatrième jusqu'à une chambre. Une fois assis sur le lit, il fut incapable de trouver le sommeil. Les paroles de ses parents, du village et de ses proches défilaient dans son esprit. Il soupira intérieurement ; la pensée de devenir le disciple d'un immortel pesait de plus en plus lourd dans son cœur.
+
+Le temps passa, goutte à goutte. Peu après, le soleil commença à poindre. Bien qu'il n'ait presque pas dormi de la nuit, Wang Lin était encore plein d'énergie. C'est avec une pointe d'appréhension qu'il suivit l'Oncle Quatrième jusqu'à la demeure principale de la famille Wang.
+
+C'était la première fois que Wang Lin voyait une bâtisse d'une telle envergure, ce qui le laissa stupéfait. En marchant, l'Oncle Quatrième lui dit : « Tie Zhu, tu dois rendre ton père fier. Ne laisse pas les proches se moquer de toi. »
+
+L'esprit de Wang Lin se crispa. Il se mordit la lèvre et hocha la tête.
+
+Bientôt, l'Oncle Quatrième le conduisit au centre de la cour. Le frère aîné du père de Tie Zhu se tenait là. En voyant le garçon, il acquiesça et déclara : « Tie Zhu, quand l'immortel arrivera, ne panique pas. Contente-toi de suivre ton frère Wang Zhuo. Fais tout ce qu'il fait. »
+
+Le ton du vieil homme se fit particulièrement dur sur ces derniers mots.
+
+Wang Lin resta silencieux. En observant les alentours, il remarqua qu'à côté de Wang Zhuo se tenait un autre jeune homme. Ce dernier avait le teint basané, une carrure imposante et des yeux qui trahissaient une certaine intelligence. Un renflement sous sa chemise laissait penser qu'il dissimulait quelque chose.
+
+Le garçon jeta un regard à Tie Zhu en faisant une grimace, puis s'approcha en disant : « Alors, tu es le fils du Deuxième Oncle ? Moi, c'est Wang Hao. »
+
+Wang Lin esquissa un sourire et hocha la tête.
+
+Voyant que Wang Lin l'ignorait, le vieil homme s'en trouva profondément irrité et s'apprêta à le réprimander.
+
+À cet instant précis, les nuages se déchirèrent soudainement dans le ciel. Une épée de lumière descendit alors comme un éclair. Une fois l'éclat dissipé, un jeune homme vêtu de blanc apparut ; son regard était brillant et perçant, dégageant une aura d'une grande élégance. Ses yeux froids balayèrent les trois jeunes gens, s'attardant particulièrement sur celui dont la chemise présentait un renflement. Il demanda d'un ton glacial : « Est-ce que ces trois-là sont ceux recommandés par la famille Wang ? »
+
+« C'est donc lui, un immortel ? » Sous ce regard, Wang Lin sentit un frisson le parcourir. Son cœur s'emballa et son visage pâlit tandis qu'il fixait l'immortel.
+
+Le jeune homme à la peau sombre, voyant l'immortel, plaça ses mains près de ses poches dans une attitude respectueuse, ses yeux brillant d'un fanatisme manifeste. Seul Wang Zhuo jeta un regard désinvolte aux autres en reniflant avec mépris.
+
+Le père de Wang Zhuo s'avança précipitamment et dit respectueusement : « Immortel, ces trois-là sont les recommandations de la famille Wang. »
+
+Le jeune homme hocha la tête puis demanda avec impatience : « Qui est Wang Zhuo ? »
+
+Un éclair de joie traversa le visage du vieil homme, qui tira rapidement Wang Zhuo vers lui : « Immortel, voici mon fils, Wang Zhuo. »
+
+L'immortel observa Wang Zhuo intensément. Puis son visage s'illumina et il acquiesça : « Wang Zhuo est effectivement talentueux ; il n'est pas étonnant que l'Oncle Martial ait eu un penchant pour lui. »
+
+Wang Zhuo regarda fièrement Wang Lin et le jeune homme à l'air intelligent, puis déclara avec arrogance : « C'est tout naturel. Pour devenir un immortel, il faut posséder une volonté de fer. »
+
+Le jeune homme fronça les sourcils, mais cela ne dura qu'un instant. Il esquissa un léger sourire en direction de Wang Zhuo, agita ses manches, et emporta les trois jeunes sur l'arc-en-ciel avant de disparaître.
+
+L'Oncle Quatrième leva les yeux vers le ciel et murmura : « Tie Zhu, tu dois être choisi ! »
+
+Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lui causait une vive douleur. En y regardant de plus près, il réalisa qu'il était retenu sous le bras du jeune homme et qu'ils fendaient le ciel à toute allure. Le village ne devint bientôt plus que de petits points noirs dans leur sillage.
+
+Au bout de quelques instants, la force du vent lui fit pleurer les yeux, qui devinrent rouges.
+
+« À moins que vous ne vouliez devenir aveugles, fermez les yeux », ordonna froidement le jeune homme. Le cœur de Wang Lin se serra et il ferma précipitamment les paupières, craignant de continuer à regarder.
+
+Après un certain temps, Wang Lin sentit que le jeune homme s'essoufflait et que sa vitesse diminuait. Puis, en un éclair, il entama une descente rapide. Juste avant l'impact, l'immortel relâcha son bras, laissant les trois jeunes tomber au sol.
+
+Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Devant Wang Lin s'étendait un paysage paradisiaque, composé de montagnes, de fleurs et d'une rivière ; une scène véritablement idyllique.
+
+Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé de nuages, dissimulait sa silhouette véritable. On pouvait entendre les échos des cris de bêtes sauvages. Un sentier de marches sinueuses serpentait le long de la paroi, tel un tableau vivant, évoquant l'atmosphère d'un autre monde.
+
+Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont argenté en forme de croissant de lune reliait ce sommet à une autre crête.
+
+Avec de telles beautés naturelles, cet endroit était véritablement digne d'abriter la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle était la puissance dominante du royaume et comptait plusieurs vieux monstres au stade de l'Âme Naissante. Cependant, avec le passage du temps, elle s'était rétrécie pour atteindre sa taille actuelle, ne parvenant plus qu'à maintenir une présence fragile dans le monde de la culture.
+
+Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité légendaire et insaisissable.
+
+« Petit frère Zhang, sont-ce là les trois candidats recommandés par la famille Wang ? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, descendit en flottant du sommet de la montagne.
+
+Le jeune homme afficha un visage empreint de respect : « Troisième frère, ce sont bien les trois jeunes recommandés par la famille Wang. »
+
+Le regard de l'homme d'âge moyen balaya le groupe, s'attardant plusieurs fois sur Wang Zhuo. Souriant, il dit : « Je sais que tu es sur le point de réaliser une percée. Je m'occuperai des tests, va te consacrer à ta culture. »
+
+Le jeune homme acquiesça, puis son corps s'élança vers la montagne et disparut sans laisser de trace en un clin d'œil.
+
+Wang Lin contemplait la scène, le cœur battant d'excitation. Soudain, il sentit quelqu'un tirer sur ses vêtements et se retourna : c'était Wang Hao. Les yeux brillants d'une excitation sauvage, il s'exclama : « C'est donc ici que vivent les immortels, bordel ! Quoi qu'il en coûte, moi, Wang Hao, je dois être choisi. » Sur ces mots, il toucha l'objet volumineux dissimulé sous sa chemise.

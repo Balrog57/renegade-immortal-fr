@@ -1,0 +1,91 @@
+---
+n: 570
+title: Musique de cithare
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 570 - Zither Music
+slug: musique-de-cithare
+---
+Des scènes du passé défilèrent dans l'esprit de Wang Lin. Ce processus était extrêmement lent. Assis dans la cour, il triait ses souvenirs avec patience. Les images de sa maîtrise réussie de l'Art du Massacre Céleste se jouaient en boucle dans son esprit alors qu'il cherchait des points communs entre elles.
+
+Après un long moment, Wang Lin poussa un soupir. Après avoir examiné attentivement chaque fois où il avait réussi à générer une énergie de massacre, il semblait que tout cela n'était arrivé que par hasard ; rien ne semblait les lier.
+
+« Pourtant, s'il y a bien une chose... Le jour où j'ai tué Sima Yan, quelque chose d'étrange s'est produit... À ce moment-là, j'ai agi sous le coup de la colère et j'ai pu créer un fil d'énergie de massacre... » Les yeux de Wang Lin s'illuminèrent un instant avant de s'éteindre à nouveau.
+
+« Cependant, cela n'a aucun sens, car j'ai aussi créé des fils d'énergie de massacre alors que j'étais parfaitement calme. Il y en avait aussi qui provenaient de soldats démons, mais il est impossible de dire de quels soldats il s'agissait précisément. »
+
+Wang Lin réfléchit longuement, mais sans succès ; ses sourcils se froncèrent progressivement.
+
+« Cultiver l'Art du Massacre Céleste est l'une des raisons principales pour lesquelles je suis venu ici. J'ai appris ce sort pour l'utiliser contre Tuo Sen. Tuo Sen est très puissant, j'aurai donc besoin de beaucoup de ressources pour l'affronter... Maintenant que je possède les Pilules d'Âme Sanguine, mes chances de survie sont bien plus grandes si je combine ces deux éléments. Cependant, mes réserves de Pilules d'Âme Sanguine sont limitées, ma priorité reste donc cet Art du Massacre Céleste ! »
+
+Wang Lin songea. Il cultivait l'Art du Massacre Céleste depuis plusieurs années déjà, et la création de ce premier fil d'énergie de massacre signifiait qu'il avait atteint le premier stade. Toutefois, pour maîtriser pleinement ce sort, la difficulté demeurait immense.
+
+« J'ai l'impression que cet Art du Massacre Céleste recèle des mystères, mais la quantité que je contrôle est trop infime pour les tester. » Wang Lin leva sa main droite et cinq filaments de gaz gris dansèrent entre ses doigts.
+
+« Seulement cinq fils... Même en comptant celui qui scelle Yao Xixue, cela ne fait que six ! »
+
+Wang Lin soupira. Il n'était pas encore parvenu à percer les secrets de l'Art du Massacre Céleste. La méthode exacte de production de cette énergie de massacre restait un mystère pour lui. Il envisagea de nombreuses hypothèses, mais chacune ne s'appliquait qu'à une seule situation.
+
+« Il semble que je doive multiplier les tests et les déductions pour espérer comprendre les mystères de l'Art du Massacre Céleste ! » Les yeux de Wang Lin devinrent froids, une intention meurtrière émanant de son regard.
+
+Après une courte réflexion, il déploya son Sens Divin et localisa les deux sergents chargés de ses conditions de vie derrière la fausse montagne. Ces deux hommes craignaient le sort de Wang Lin du plus profond de leur âme et n'osaient s'approcher de lui. Cependant, l'ordre de leur seigneur était sacré ; ils avaient donc décidé de monter la garde à l'entrée de la cour pour ne laisser entrer personne.
+
+Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message divin. Peu de temps après, ils pénétrèrent dans la cour. Ils s'arrêtèrent à trois pieds de lui et saluèrent respectueusement : « Salutations, Vice-Général Wang ! »
+
+Wang Lin déclara calmement : « Je sors. Vous me montrez le chemin. »
+
+Surpris, les deux hommes hochèrent rapidement la tête. Wang Lin s'avança de quelques pas et fut immédiatement suivi, bien que l'un d'eux hésitât un instant avant de demander respectueusement : « Vice-Général Wang, devons-nous préparer une monture ? »
+
+« Pas besoin ! » En un éclair, Wang Lin contourna la fausse montagne et quitta la cour.
+
+Les trois quittèrent le Manoir Mo, avec Wang Lin en tête. Le manoir se situait à l'angle est de la ville de Hong et était relativement calme. Il marcha nonchalamment le long des rues.
+
+Wang Lin ne pressait pas le pas ; il observait les environs tout en progressant vers la rue principale de la ville de Hong. Une rivière passait à proximité, la foule était dense et les boutiques bordaient les rues. L'endroit était très animé.
+
+Des éclats de voix flottaient dans l'air tandis que des hommes et des femmes déambulaient. Dans la Terre des Esprits Démons, les vêtements étaient audacieux, particulièrement ceux des femmes. Non seulement ils étaient colorés, mais ils révélaient une grande partie de la peau, offrant un spectacle plaisant aux yeux.
+
+Tout ce qui l'entourait permit à l'humeur tendue de Wang Lin de s'apaiser après ces derniers jours. Il marchait dans les rues comme un simple mortel, et l'énergie spirituelle céleste en son corps se rétracta lentement, telle une rivière qui s'assèche.
+
+En chemin, il s'arrêtait parfois devant une boutique. Parfois il entrait, parfois il passait simplement son chemin, mais ses visites étaient toujours très brèves. Il n'était qu'un passant de passage dans cette cité étrangère.
+
+Bien que Wang Lin ne fût pas un homme d'une beauté éclatante, sa nature de cultivateur lui conférait un tempérament raffiné. En conséquence, les femmes les plus hardies parmi la foule lançaient parfois des regards vers lui en passant. Vêtu de sa robe blanche, il ressemblait à un érudit sans défense ; quant aux deux sergents qui le suivaient, ils passaient pour de simples gardes aux yeux du public.
+
+Pourtant, une aura émanant de Wang Lin jurait avec cet endroit ; il n'avait pas sa place ici. De ce fait, une légère mélancolie semblait émaner de lui. Parmi les passants, des couples d'hommes et de femmes discutaient et riaient ensemble. Comparée à eux, la silhouette de Wang Lin paraissait infiniment solitaire...
+
+Alors qu'il errait dans la foule, le tumulte environnant semblait appartenir à un autre monde. Ces couples semblaient issus d'une autre époque, d'un autre espace. Rien autour de lui ne lui semblait familier ou lié à son existence.
+
+Un sentiment indéfinissable envahit le cœur de Wang Lin, et il soupira. Ce chemin était long, mais il n'avait plus envie de continuer à marcher.
+
+La journée déclinait et, alors qu'il s'apprêtait à partir, le son d'une cithare, empreint d'une subtile tristesse, parvint à ses oreilles... Cette mélancolie et cette musique s'accordaient étrangement avec l'état d'âme de Wang Lin, ce qui le fit s'arrêter net.
+
+Wang Lin suivit lentement la mélodie. Non loin de la rue coulait une rivière, l'un des cours d'eau intérieurs de la Cité du Démon Céleste. Plusieurs embarcations naviguaient sur l'eau, et cette musique provenait de l'une d'elles.
+
+Wang Lin se tint silencieusement au bord de l'eau, écoutant les notes de la cithare. Grâce à sa vue perçante, il put distinguer une femme jouant de l'instrument sur le bateau... Elle ne montrait que son dos.
+
+Son dos évoquait la même sensation de tristesse et de solitude que sa musique. Non loin d'elle, quelques jeunes gens riaient et buvaient. Leurs éclats de voix semblaient déplacés face à la mélodie de la cithare...
+
+Wang Lin observa le bateau en silence. Alors que la musique l'enveloppait, il savoura chaque note et ressentit un sentiment de familiarité. À cet instant, il se souvint de la vallée paisible sur la planète Suzaku, de son foyer avec Li Muwan... La musique de Wan Er, en ces jours de paix, accompagnait encore Wang Lin.
+
+La musique de Wan Er contenait elle aussi une pointe de tristesse, mais le Wang Lin de l'époque ne l'avait pas comprise ; cette mélancolie était alors trop ténue, trop éthérée. Après le départ de Wan Er, Wang Lin n'avait plus jamais entendu ce genre de musique. Aujourd'hui, grâce à ces notes, la tristesse enfouie dans son cœur refaisait surface.
+
+Avant que Li Muwan ne parte, les sentiments de Wang Lin pour elle étaient empreints d'émotion et du poids de sa responsabilité face à ses centaines d'années d'attente. Ce n'était pas de l'amour... Cependant, après le départ de Wan Er, Wang Lin pensait parfois inconsciemment à Li Muwan. À ces moments-là, son cœur souffrait ; c'était comme s'il pénétrait dans une forêt de solitude.
+
+Au sein de cette forêt, l'émotion qui sommeillait en lui s'éveilla lentement. C'était comme une coupe d'eau amère au fond de son cœur, créant des ondulations dont il ne pouvait se défaire. Il se souvenait toujours de la panique dans les yeux de la jeune femme lors de leur première rencontre...
+
+Même si cette musique était manifestement artificielle, Wang Lin pouvait presque sentir Wan Er sortir du néant pour venir s'élancer dans ses bras... C'était comme autrefois dans la vallée, quand lui et Li Muwan regardaient silencieusement le coucher du soleil, en attendant l'aube...
+
+On ne désire vraiment que ce que l'on a perdu. C'est au moment des adieux que l'on souhaite revenir. Durant les années qui suivirent le départ de Wan Er, Wang Lin s'était remémoré son souvenir sans cesse, la rendant de plus en plus essentielle à sa vie. Elle était désormais gravée dans son cœur et le resterait jusqu'à la fin des temps...
+
+Le jour touchait à sa fin et, avant que le ciel ne soit totalement obscurci, un rayon de lumière stellaire apparut soudainement. Tant d'événements inimaginables se produisaient dans la Terre des Esprits Démons que personne ne s'interrogeait sur l'origine de cette lueur ; cela n'avait aucune importance. Ce qui importait, c'est que cette lumière stellaire, conjuguée à la musique de la cithare, avait touché les souvenirs que Wang Lin avait scellés.
+
+La lumière stellaire s'imprima dans le regard de Wang Lin et, tandis que la musique s'éloignait progressivement, un sentiment commença à se condenser dans sa poitrine. C'était une profonde solitude qui resta gravée en lui durant un long moment.
+
+Les notes devinrent de plus en plus ténues. Wang Lin leva la main pour presser l'espace entre ses sourcils. C'était comme s'il effleurait Li Muwan à l'intérieur de la Perle Défiant le Ciel, et il murmura : « Wan Er, nous nous retrouvons enfin... C'est ma promesse envers toi... »
+
+Le bateau s'éloigna lentement, emportant avec lui la silhouette de la femme. Au moment où la musique s'éteignait presque totalement, la femme sembla remarquer quelque chose et se retourna. Elle regarda vers le rivage au loin, mais l'obscurité était trop dense. Pourtant, dans ce noir, elle crut apercevoir une silhouette solitaire s'éloignant lentement.
+
+Sur l'embarcation, la femme soupira et recommença à jouer ; une musique mélancolique reprit sa course pour emplir la rivière... Bien qu'il y eût de la lumière sur le bateau, tout lui paraissait sombre, que ce soit le jour ou la nuit.
+
+Sa main nacrée bougeait dans l'obscurité, et les rires provenant du reste du bateau furent rapidement étouffés par sa cithare. Assise à la proue, elle n'avait aucune lumière dans le regard, mais à cet instant, elle ressemblait à une fleur de lotus s'épanouissant dans la boue... Une floraison que personne ne pouvait comprendre et à laquelle nul ne prêtait attention...
+
+La musique résonnait encore dans les environs, mais personne n'écoutait vraiment... Et même si quelqu'un l'avait fait, elle ne l'aurait pas vu.

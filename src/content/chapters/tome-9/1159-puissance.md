@@ -1,0 +1,87 @@
+---
+n: 1159
+title: Puissance
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1159 - Might
+slug: puissance
+---
+Toute l'énergie originelle dans un rayon de 50 kilomètres se précipitait, mais cela ne suffisait toujours pas !
+
+Le torse supérieur de Wang Lin s'était déjà reformé, tandis que sa moitié inférieure était encore en cours de reconstruction. L'énergie originelle continuait d'affluer, puisée dans une zone de 500 kilomètres à la périphérie.
+
+Ce vortex gigantesque remuait toute l'énergie originelle et le brouillard stellaire de la région, mais son expansion ne s'arrêtait pas. Après tout, comparé au continent de Mo Luo, 500 kilomètres étaient véritablement insignifiants !
+
+1 500 kilomètres, 2 500 kilomètres, 5 000 kilomètres, 15 000 kilomètres… 50 000 kilomètres, 150 000 kilomètres… 500 000 kilomètres !!
+
+Le brouillard et l'énergie originelle dans un rayon de 500 000 kilomètres autour du continent de Mo Luo devinrent fous et se précipitèrent vers le continent !
+
+Très peu de personnes dans la Mer des Nuages savaient d'où venait le brouillard stellaire. C'était comme si ce brouillard avait toujours été là. Si l'on remontait le temps, on découvrirait que ce brouillard existait déjà avant l'effondrement du Royaume Céleste, alors que l'Ancien Royaume Céleste était encore en place.
+
+Ce qu'était exactement le brouillard stellaire était une question difficile à expliquer pour les cultivateurs de la Mer des Nuages. Ils savaient seulement que c'était à cause de ce brouillard que la Mer des Nuages était peuplée de bêtes féroces !
+
+Wang Lin ignorait la nature du brouillard stellaire, mais alors qu'il fusionnait avec ses os en cours de reformation, il ressentit une étrange sensation. Cependant, il ne parvint pas à en comprendre la raison.
+
+Alors que l'énergie originelle provenant d'un rayon de 500 000 kilomètres autour du continent de Mo Luo affluait, les jambes de Wang Lin commencèrent à se reformer. La vitesse de croissance explosive était plus intense que celle de la calamité osseuse et, un instant plus tard, sa jambe gauche fut formée !
+
+Sa jambe droite se reforma bientôt également. Une fois que tous les os de son corps furent reconstitués, la calamité osseuse disparut !
+
+Cependant, la calamité n'était pas encore terminée. Après la restauration des os, les tendons commencèrent à apparaître et la chair se mit à se former autour du squelette.
+
+Pourtant, dès que cette chair réapparut, elle s'effondra immédiatement. La calamité charnelle survint, atteignant son objectif : consumer sa vitalité.
+
+Wang Lin s'était déjà préparé à ce phénomène. Dès l'apparition de la calamité charnelle, l'avatar essuya le sang au coin de sa bouche et ouvrit son espace de stockage.
+
+Des cristaux de sang de la taille d'un poing, obtenus dans la Terre de l'Ancien Dieu, s'envolèrent. Il en avait utilisé certains pour aider le corps original à conserver un reste de vitalité, et il comptait utiliser les autres ici même.
+
+À cet instant, ces cristaux de sang volèrent et se posèrent sur les os de Wang Lin. Dès qu'ils touchèrent leur cible, ils envahirent son squelette.
+
+Au moment où Wang Lin sortit les cristaux de sang, toutes les bêtes féroces en retraite s'arrêtèrent, fixèrent le continent et commencèrent à rugir. Une lueur de folie brillait dans leurs yeux, comme si ces cristaux de sang étaient la nourriture suprême. Tant qu'elles pouvaient en percevoir l'odeur, elles étaient prêtes à tout pour les obtenir.
+
+Alors que les rugissements redoublaient, ces bêtes féroces changèrent immédiatement de direction et chargèrent le continent de Mo Luo. Parmi elles se trouvaient des bêtes de rangs 5, 6 et 7 ; toutes semblaient avoir perdu la raison dans leur course effrénée.
+
+Les cultivateurs du Secte Originel furent stupéfaits par ces événements, réveillés en sursaut par la charge des bêtes féroces.
+
+Une fois que le corps original de Wang Lin eut absorbé les cristaux de sang, des lignes de sang apparurent sur ses os. Tandis que l'énergie originelle et le brouillard stellaire affluaient, la chair commença à se former le long de ces tracés écarlates.
+
+À ce moment précis, les rugissements des bêtes féroces atteignirent le sol. Une intention meurtrière jaillit des yeux de l'avatar, tandis que les yeux du corps original émettaient une lueur spectrale.
+
+Des craquements résonnèrent alors que le corps original rétrécissait de 3 000 pieds pour atteindre la taille d'un homme ordinaire. L'avatar chargea et fusionna à nouveau avec le corps original !
+
+Après cette fusion, Wang Lin leva les yeux et s'élança. Des bruits de rupture retentirent alors qu'il jaillissait de sous terre !
+
+Dès qu'il émergea, toutes les bêtes féroces se précipitèrent sur lui comme des possédées. Un froid glacial passa dans le regard de Wang Lin lorsqu'il apparut devant une créature semblable à un poulpe et asséna un coup de poing de la main droite.
+
+Dans un fracas retentissant, le corps de la bête chancela et le sang jaillit en toutes directions, créant une brume écarlate. Même son âme fut brisée, mais une énergie invisible apparut et pénétra dans le corps de Wang Lin.
+
+Cette énergie invisible était la vitalité de la bête féroce, et c'était précisément ce dont Wang Lin avait le plus besoin !
+
+Il sentit clairement que la reformation de son corps original s'accélérait dès que cette vitalité pénétrait en lui. Wang Lin se précipita vers une autre bête et frappa. Ses mouvements étaient si rapides qu'ils laissaient des images rémanentes ; il faisait pleuvoir le sang sur le continent de Mo Luo !
+
+Ces bêtes féroces voulaient dévorer les cristaux de sang que Wang Lin avait absorbés, mais avant qu'elles ne puissent y parvenir, elles explosèrent toutes l'une après l'autre. Un grondement tonnerrelement assourdissant secoua le ciel.
+
+D'un pas, Wang Lin apparut aux côtés d'un python géant. Alors que la créature ouvrait la gueule pour l'engloutir, le poing de Wang Lin s'écrasa dans sa bouche. Des craquements sinistres retentirent, puis la vitalité du python pénétra le corps de Wang Lin tandis que la gueule de la bête explosait.
+
+En un temps record, plus de cent bêtes féroces périrent. Après avoir absorbé leur vitalité, Wang Lin ressentit une sensation d'un confort extrême dans son corps. Ses yeux s'illuminèrent et il repartit de plus belle.
+
+Les bêtes féroces explosaient les unes après les autres. Lorsque les cultivateurs environnants qui se cachaient virent cela, ils furent totalement terrassés par la stupeur. C'était particulièrement le cas pour Li Xiangdong et sa compagnie ; Lu Yanfei s'en sortit un peu mieux, car elle s'y était quelque peu préparée.
+
+Cependant, Li Xiangdong contemplait la scène, hébété, tandis que les deux anciens à ses côtés étaient livides.
+
+« Grand Oncle-Maître… Il… C’est bien lui, le Grand Oncle-Maître… C’était une bête de rang 6, et il l'a terrassée d'un seul coup de poing ! »
+
+À cet instant précis, le rugissement d'une bête retentit au loin. À l'horizon, une créature semblable à un lion, haute de 2 000 pieds et recouverte d'épines, déferlait vers eux.
+
+Dès son apparition, toutes les bêtes féroces environnantes se dispersèrent, comme si elles refusaient de s'approcher d'elle.
+
+« Une Bête Lion d'Épée de rang 8 ! » Les pupilles de Li Xiangdong se contractèrent et les deux anciens s'exclamèrent. Même Lu Yanfei prit une profonde inspiration, le visage marqué par l'inquiétude.
+
+Wang Lin leva soudain la tête, le regard étincelant. Sous les yeux de tous les cultivateurs, il chargea comme une météorite vers le ciel, en direction de la puissante bête de rang 8.
+
+Il se déplaçait plus vite que l'éclair. Lorsqu'il atteignit le lion, Wang Lin lui asséna un coup de pied impitoyable.
+
+Un rugissement capable de faire trembler les cieux retentit alors que le corps de la puissante bête vacillait avant d'exploser en une brume de sang. Une quantité massive de vitalité s'engouffra dans le corps de Wang Lin. Il se tenait là tel un dieu, savourant l'immense vitalité de la bête de rang 8 !
+
+Le silence tomba soudainement sur les environs ; l'avidité des bêtes féroces environnantes s'était évanouie, remplacée par une terreur pure. Tous les cultivateurs fixaient cette scène, incapables de croire ce qu'ils voyaient.
+
+« Rang 8… » Li Xiangdong était sidéré, l'esprit vide. Les deux anciens derrière lui étaient également dans un état de prostration totale, absolument terrassés par la stupeur.

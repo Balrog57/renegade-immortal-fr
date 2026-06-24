@@ -1,0 +1,99 @@
+---
+n: 1231
+title: Centipède de Feu
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1231 - Fire Centipede
+slug: centipede-de-feu
+---
+L'Empreinte de l'Esprit Guerrier était immense. Elle avait absorbé tellement d'énergie originelle que la puissance qu'elle contenait pouvait faire trembler de peur un cultivateur du stade Nirvana Shatterer.
+
+Trois jours plus tôt, l'Empreinte de l'Esprit Guerrier avait atteint les limites de contrôle de Wang Lin ; il avait donc coupé sa capacité à absorber davantage d'énergie originelle. Le brouillard sur son chemin était constamment repoussé tandis qu'il se rapprochait de la région de rang 8.
+
+En ce jour, la région de rang 8 apparut enfin dans sa vision !
+
+Près de vingt jours de voyage continu avaient épuisé Wang Lin, mais ses yeux brillaient d'éclat. Bien qu'il fût en mouvement, il ajustait continuellement son corps et continuait de dévorer des pilules pour favoriser sa récupération.
+
+Il n'y avait pas de formation entre les régions de rang 7 et de rang 8, mais une épaisse couche de brouillard les séparait. Ce brouillard était dense et vaste, enveloppant totalement la région de rang 8. De nombreuses bêtes de rang 10 s'y trouvaient, et même des créatures de rang 12 résidaient dans ses profondeurs. Il y avait tout simplement trop de bêtes féroces ici, faisant de cet endroit une zone extrêmement périlleuse de la Mer des Nuages.
+
+Ce lieu était appelé le Royaume du Brouillard des Bêtes du Chaos !
+
+Si on le décrivait comme un « royaume », c'était en raison de son immensité. Si un cultivateur ordinaire y pénétrait seul, il n'en resterait même pas les os. Seuls de véritables vieux monstres pouvaient y entrer, et encore, ils devaient faire preuve d'une prudence extrême.
+
+Cependant, le Secte de Dieu avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent jamais ce royaume ; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
+
+Quatre chemins existaient dans le Royaume du Brouillard des Bêtes du Chaos, et seuls ces quatre sentiers étaient sûrs. C'étaient les voies que les disciples des sectes de rang 8 devaient emprunter s'ils souhaitaient quitter la région de rang 8 sans utiliser de matrice de transfert.
+
+La rumeur disait qu'ils avaient été ouverts par le Secte de Dieu il y a des éons. Ils avaient employé une méthode spéciale pour garantir la sécurité de ces quatre voies, afin que ceux qui les empruntaient ne soient pas attaqués par les bêtes féroces.
+
+Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne n'ignorait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume du Brouillard des Bêtes du Chaos, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
+
+À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent sous la seule force de sa vue.
+
+Ce vieil homme dégageait une puissante aura de Nirvana Shatterer ; il avait manifestement atteint le sommet de ce stade. Les lois du monde convergeaient en lui à chacun de ses mouvements.
+
+Derrière lui suivaient trois personnes, deux hommes et une femme. Ils paraissaient jeunes et se situaient au stade Nirvana Cleanser. Bien que la femme portât également une robe taoïste, celle-ci ne pouvait dissimuler ses formes voluptueuses, bien qu'elle conservait une apparence très pure. Elle dégageait un charme extrême, et le moindre mouvement de ses yeux suffisait à embraser le désir des deux hommes à ses côtés.
+
+Tandis qu'ils volaient, la femme demanda d'une voix suave : « Maître, où nous emmenez-vous ? »
+
+Le vieil homme ne répondit pas et continua sa progression jusqu'aux profondeurs du Royaume du Brouillard des Bêtes du Chaos. Ce n'est qu'alors qu'il s'arrêta et se retourna vers les trois disciples.
+
+« Vous êtes tous les disciples principaux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de culture, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons ! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
+
+Le vieil homme s'assit et réfléchit en silence, tandis que son sens divin se déployait pour observer ses trois disciples. À moins qu'ils ne soient réellement face à la mort, il n'interviendrait pas.
+
+Dans la région de rang 7, à l'extérieur du Royaume du Brouillard des Bêtes du Chaos, l'Empreinte de l'Esprit Guerrier traversait les étoiles, suivie de près par Wang Lin. Il connaissait déjà l'existence du Royaume du Brouillard des Bêtes du Chaos sur Peng Lai et savait qu'un itinéraire existait. Cependant, il n'était pas certain de ses informations ; sans une direction exacte, il risquait de s'égarer dans la brume.
+
+Plus important encore, l'itinéraire connu l'aurait obligé à faire un immense détour, doublant ainsi le temps de trajet. Ce n'était pas non plus une garantie de succès ; en fin de compte, il renonça à cette option.
+
+Il décida de prendre une route directe et de forcer le passage. Cela lui permettrait d'entrer dans la région de rang 8 dans les plus brefs délais !
+
+Une fois sa décision prise, Wang Lin n'hésita pas à foncer vers le Royaume du Brouillard des Bêtes du Chaos qui entourait la région de rang 8, l'Empreinte de l'Esprit Guerrier rugissant pour ouvrir une voie.
+
+Rapide comme une météorite, il percuta le Royaume du Brouillard des Bêtes du Chaos. Lorsque l'Empreinte s'approcha de la brume dense, celle-ci recula promptement, comme si elle n'osait s'approcher, laissant passer la paume.
+
+Cependant, ce brouillard était singulier. Bien qu'il se retirât, il ne traçait pas de chemin net comme les brumes que Wang Lin avait vues jusqu'ici. Le brouillard entourait l'Empreinte de l'Esprit Guerrier et semblait vouloir la dévorer.
+
+Les grondements tonitruants de l'empreinte de la paume plongèrent le calme Royaume du Brouillard des Bêtes du Chaos dans le chaos, tel un rocher jeté dans un lac paisible. Les ondulations provoquées firent rugir les bêtes à l'intérieur.
+
+L'expression de Wang Lin resta imperturbable et sa vitesse ne faiblit pas alors qu'il suivait la trace de la paume. Son sens divin se déploya pour saturer la zone. Il détecta une quantité massive de bêtes féroces au sein de ce brouillard.
+
+C'est à cet instant qu'un rugissement, capable de repousser la brume, retentit devant lui. C'était une centipède rouge longue de milliers de pieds, couverte de poils et d'une férocité extrême. Elle surgit du brouillard et chargea Wang Lin.
+
+Cette centipède était plutôt laide, et les deux pinces géantes sur les côtés de sa mâchoire brillaient d'un éclat froid. Son corps massif se mouvait avec l'agilité d'un poisson en pleine charge.
+
+Dès l'apparition de la créature, les bêtes environnantes détectées par le sens divin de Wang Lin cessèrent de rugir et se dispersèrent. C'était comme si cette centipède était le roi de la zone et que sa présence imposait la retraite aux autres bêtes.
+
+Les yeux de Wang Lin étaient calmes. Grâce à son niveau de culture, il vit immédiatement que cette centipède était de rang 11, ce qui équivalait à un cultivateur du stade Nirvana Shatterer de niveau intermédiaire. Wang Lin fut surpris qu'une bête de ce niveau ose se dresser devant l'Empreinte de l'Esprit Guerrier.
+
+En un instant, la centipède rouge jaillit du brouillard en poussant un sifflement strident. Ce cri était assourdissant et résonnait comme un tonnerre grondant, faisant tourbillonner le brouillard environnant avec une violence accrue.
+
+La centipède fixa l'Empreinte de l'Esprit Guerrier avec un regard chargé de haine. Elle poussa un rugissement et libéra d'immenses quantités de lumière rouge qui se transformèrent en une mer de feu monstrueuse. Puis, elle chargea Wang Lin, enveloppée dans ce brasier.
+
+Wang Lin n'eut pas le temps de prêter attention à la créature car l'Empreinte de l'Esprit Guerrier avançait inexorablement, mais dès que la centipède s'approcha, le feu autour d'elle se mua en une tempête de flammes. Le brasier encercla l'Empreinte dans une tentative désespérée de stopper sa progression.
+
+Cependant, l'Empreinte de l'Esprit Guerrier avait absorbé tellement d'énergie originelle qu'elle possédait une puissance inimaginable. Lorsque le feu s'en approcha, il fut immédiatement repoussé ; une grande partie des flammes s'éteignit au passage de l'Empreinte.
+
+Wang Lin, situé derrière la paume, avançait sereinement. Il se déplaçait à une vitesse fulgurante sans marquer le moindre temps d'arrêt en dépassant la centipède. Tout cela se produisit en un éclair ; c'était d'une rapidité inconcevable.
+
+Pourtant, la centipède ne renonça pas. Elle rugit et poursuivit Wang Lin. Le feu enveloppait son corps tandis qu'elle le fixait avec une haine profonde, comme si elle n'entendait s'arrêter qu'en le déchiquetant.
+
+À cet instant précis, plusieurs rugissements jaillirent du brouillard au loin. Six autres centipèdes identiques chargeaient vers ce point précis.
+
+Plus loin encore, un rugissement impétueux qui écrasa tout sur son passage retentit. Ce cri révélait la puissance d'une bête de rang 12.
+
+Une hideuse centipède bleue de 10 000 pieds de long fonçait à une vitesse extrême vers Wang Lin. Tout le brouillard était repoussé devant elle, décuplant sa célérité.
+
+Au moment où cette centipède bleue rugit, l'ancien vêtu de la robe taoïste sur le troisième chemin, non loin de là, ouvrit les yeux. Il scruta l'horizon et un regard de choc envahit son visage.
+
+« Une Centipède de Feu de rang 12 ! Bien que cette bête vive dans le brouillard, elle apparaît rarement. Que diable s'est-il passé pour qu'elle rugisse avec une telle rage ? Ce n'est pas bon. Mes disciples sont encore dans la brume. S'ils la rencontrent, ils ne pourront pas échapper à la mort ! » L'ancien se précipita immédiatement dans le brouillard.
+
+Après avoir entendu le rugissement de la bête de rang 12, Wang Lin fronça légèrement les sourcils. Il comprit naturellement que ces centipèdes semblaient nourrir une haine intense envers l'Empreinte de l'Esprit Guerrier, et qu'il était désormais entraîné dans leur sillage.
+
+« La bête la plus proche n'a pas hésité à sacrifier sa vie pour me ralentir, et la suivante est arrivée pour m'entraver également. Tout cela pour permettre à la bête de rang 12 d'arriver à temps... C'est intéressant ! » Un éclair de froideur passa dans les yeux de Wang Lin.
+
+Peu importait la haine que ces centipèdes entretenaient envers le Secte de Dieu ; si elles le provoquaient, elles ne rencontreraient que la mort ! Les yeux de Wang Lin s'illuminèrent. Il savait qu'il devait éliminer celle qui le poursuivait, sans quoi elle continuerait à rugir et trahirait sa position.
+
+Ce rugissement était également très irritant pour lui.
+
+« Puisque vous cherchez la mort, ne me reprochez pas de vous l'accorder ! » Wang Lin se retourna soudainement, leva sa main droite et pointa la bête féroce qui le traquait !

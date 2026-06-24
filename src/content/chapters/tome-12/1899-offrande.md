@@ -1,0 +1,109 @@
+---
+n: 1899
+title: "Offrande !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1899 - Offering!"
+slug: offrande
+---
+Chapitre 1899 - Offrande !
+
+« Je déteste !!! » Ce furent les derniers mots que hurla l'ancien à la robe verte avant de mourir. Grâce à sa sagesse, il avait naturellement compris ce qui s'était passé. Il avait vu Wang Lin utiliser l'œil de suppression et la Lame Yin qu'il lui avait données sur le scorpion vert.
+
+Cette scène suffit à le pousser dans une telle colère qu'il en fit une crise cardiaque. Son espérance de vie étant déjà bien entamée, il cracha un flot de sang avant de s'éteindre !
+
+Il avait offert à Wang Lin un corps résistant, des yeux capables de réprimer le monde, une veine formée à partir des cheveux de l'Ancêtre Céleste, la Lame Yin et l'essence terrestre. Au-delà de tout cela, il avait même aidé Wang Lin à former deux corps vrais d'essence !
+
+Tout cela lui avait été donné par lui...
+
+Ses yeux s'écarquillèrent sous l'effet de la rage, emplis d'une haine monstrueuse. Bien qu'il fût mort, sa haine persistait, comme si elle allait elle-même se métamorphoser en fantôme.
+
+Wang Lin n'eut pas le temps de prêter attention au vieillard décédé. Il bondit en avant et leva la lame que sa main droite avait transformée. Ses quatre corps vrais d'essence firent de même. Il trancha impitoyablement l'âme du Scorpion Vert Démoniaque qui tentait de s'échapper !
+
+L'âme du Scorpion Vert Démoniaque était elle aussi habitée par une haine infinie. Elle haïssait l'ancien à la robe verte pour l'avoir réduite à son état actuel. Cependant, ce dernier étant mort, elle n'avait plus personne vers qui déverser sa colère. Ne pouvant non plus évacuer sa rage en cet instant de péril, elle ne pouvait que fuir.
+
+De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dispersant ses fragments. L'âme du scorpion hurlait dans sa fuite. Derrière elle, les cheveux blancs de Wang Lin flottaient tandis qu'il la poursuivait, porté par une aura puissante. Il leva la lame qu'il tenait avec un élan capable de briser le ciel et la terre, puis frappa de concert avec ses quatre corps vrais d'essence !
+
+C'est à cet instant que des ondulations résonnèrent et que trois rayons de lumière convergèrent. Pourtant, lorsqu'ils révélèrent leur présence, les trois hommes tremblèrent de stupeur face au spectacle qui s'offrait à eux !
+
+Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin : Yun Yifeng, Tang Jia et le vieil homme Edge Cloud !
+
+Après cent ans, ils étaient venus au Temple du Scorpion Vert pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
+
+Cependant, ce qui les attendait était cette lame capable de faire trembler les âmes !
+
+« Wang Lin !! Il est donc vraiment ici !! » Yun Yifeng et Tang Jia furent tous deux stupéfaits.
+
+« N'était-il pas mort ?! » Les pupilles d'Edge Cloud se rétractèrent, le visage empreint de choc.
+
+La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps vrais d'essence convergeaient également sur elle !
+
+Lorsque la première lame approcha, l'âme du scorpion se déforma pour tenter d'esquiver. La deuxième et la troisième arrivèrent, mais le scorpion ne put toutes les éviter. Il fit soudain volte-face et projeta une immense quantité de brouillard vert tandis que la quatrième et la cinquième lames s'abattaient.
+
+Des grondements tonitruants résonnèrent à travers le monde. L'âme du scorpion poussa un cri misérable alors qu'elle était découpée en six morceaux par les cinq lames.
+
+Quatre de ces fragments furent absorbés par Wang Lin, se transformant en volutes de fumée autour de lui, lui conférant une allure céleste.
+
+Les deux fragments restants s'échappèrent prestement au loin dans un hurlement. Ils disparurent dans les profondeurs du bâtiment du scorpion, et leur destination resta inconnue.
+
+Le calme revint peu à peu. Seuls les respirations de Yun Yifeng et de ses compagnons résonnaient nettement dans le silence du temple.
+
+Wang Lin flottait là, et le brouillard environnant se condensa bientôt en sept mèches de force d'âme qui pénétrèrent son corps. Sa main droite était toujours une lame et ses quatre corps vrais d'essence se tenaient là, immobiles et froids. Son regard balaya Yun Yifeng et les autres.
+
+« Partez ! » Il ne parla que très peu, se contentant de cette unique injonction. Pourtant, dès qu'il prit la parole, une aura terrifiante jaillit de son corps. Lorsque ses yeux se posèrent sur eux, le cœur de Yun Yifeng tressaillit. C'était comme si Wang Lin pouvait percer tous ses secrets ; il eut même l'illusion d'être oppressé.
+
+Heureusement, ce sentiment disparut aussitôt. Autrement, il n'aurait peut-être même pas pu articuler un mot tant il tremblait.
+
+Tang Jia fut frappée par la même sensation. Le visage pâle, elle fixait Wang Lin, incapable de croire que son regard soit devenu si terrifiant en seulement cent ans !
+
+Ce regard possédait une acuité capable de déchirer le monde lui-même. Il dégageait une force de suppression qui pouvait briser quiconque s'y heurtait !
+
+Comparé aux deux autres, Edge Cloud ressentit l'effet de manière encore plus brutale. Il avait déjà combattu Wang Lin par le passé, et ce dernier ne l'avait pas ménagé. Sous la puissance du regard, son cœur cogna violemment contre sa poitrine et il recula de trois pas. Son visage devint livide et son front se couvrit de sueur. Des échos tonitruants martelaient ses oreilles ; il se sentit abandonné du monde, seul face à l'oppression des cieux.
+
+Il eut même l'impression que les cieux qui l'écrasaient n'étaient autre que le regard de Wang Lin. Il lui semblait qu'une épée invisible résidait dans les yeux de Wang Lin, une lame qui ne s'était pas encore pleinement manifestée. Si elle le faisait, il serait instantanément mis en pièces !
+
+Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Edge Cloud battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à des milliers de kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
+
+Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle d'Edge Cloud. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
+
+Les trois restèrent silencieux, songeant à la situation, avant de se retirer lentement. Ils ne quittèrent pas le temple du scorpion, mais s'arrêtèrent à une distance respectable de Wang Lin. Ils avaient encore une mission à accomplir et le temple n'était pas totalement détruit.
+
+Toutefois, la présence de Wang Lin les empêchait toute action imprudente. Tang Jia regardait au loin, l'incrédulité toujours ancrée dans ses yeux. Elle restait silencieuse, l'esprit en proie au chaos.
+
+Wang Lin, suspendu dans les airs, contemplait le cadavre de l'ancien à la robe verte. Il était d'un calme absolu. Cet homme l'avait grandement aidé, bien que toutes ses intentions eussent été de le tuer !
+
+Peu importaient les richesses que cet homme lui avait léguées, Wang Lin n'éprouvait aucune gratitude. Alors qu'il s'apprêtait à détourner les yeux, il s'exclama doucement et regarda de nouveau.
+
+Il vit un filet de gaz noir s'échapper du corps du vieillard pour se condenser au niveau de sa tête, formant un nuage de brume de la taille d'une paume. Cette brume, chargée de haine, dégageait un froid extrême qui fit chuter instantanément la température environnante.
+
+« C'est... » La pensée de Wang Lin s'anima et son sens divin se propagea vers la brume noire. Dès que son sens divin effleura le brouillard, une voix rauque rugit dans son esprit :
+
+« Je déteste !!! »
+
+« Je déteste !!! »
+
+Cette voix était si féroce qu'elle fit même tressaillir le cœur de Wang Lin, et ses yeux brillèrent d'un éclat vif.
+
+« Une âme fantôme !! Cet homme a formé une âme fantôme aussi puissante après sa mort !! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie d'Extreme Sky ! Elle était d'une qualité supérieure, infiniment proche de la perfection !
+
+Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme fantôme formée par le vieillard vola vers lui et fut emmagasinée !
+
+Avec cette âme et celle de la Prairie d'Extreme Sky, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantomatique de qualité quasi parfaite !
+
+Grâce à elle et à la Vice-Voile Fantomatique qu'il possédait déjà, il pourrait déployer des sorts d'illusion d'un niveau presque parfait !
+
+L'ancien à la robe verte n'avait pas seulement offert de nombreuses fortunes à Wang Lin ; il s'était finalement offert lui-même...
+
+Après avoir mis l'âme de côté, Wang Lin eut une expression étrange. Il regarda le vieil homme avec une complexité d'émotions et, après un long moment, poussa un soupir.
+
+D'un revers de manche, il réduisit le corps du vieillard en cendres, ne laissant derrière lui que la robe verte.
+
+Saisissant l'étoffe, il la soumit à son sens divin. Cet objet était singulier : son sens divin ne pouvait ni le pénétrer, ni percevoir ce qu'il contenait. Après un instant de réflexion, Wang Lin rangea le dernier vestige du vieillard : sa robe verte.
+
+Ainsi, on pouvait dire que l'ancien à la robe verte avait tout donné à Wang Lin...
+
+Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes d'augmentation. Il prit une profonde inspiration, l'excitation brillant dans son regard !
+
+« Cette fois, voyons jusqu'où ma culture peut s'élever !! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela !! »
+
+« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans !! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Extreme Sky. Ils étaient tous là, gravés dans sa mémoire.

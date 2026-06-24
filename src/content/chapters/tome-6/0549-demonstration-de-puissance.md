@@ -1,0 +1,127 @@
+---
+n: 549
+title: Démonstration de Puissance
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 549 - Displaying Might
+slug: demonstration-de-puissance
+---
+« Quelle opinion pourrions-nous avoir ? Cet homme est un bon à rien, il n'est donc pas nécessaire de se soucier de lui ! » L'homme qui venait de parler était un quadragénaire. Son visage était empreint de mépris et, dans son cœur, il considérait le nouveau commandant avec dédain.
+
+Pour être exact, il ne jugerait jamais aucun étranger digne de son attention !
+
+« Le chef de régiment Sun fait erreur ici. Ce nouveau commandant est probablement un homme très calculateur. Être capable de rester ainsi immobile sans rien faire n'est pas chose commune pour une personne normale ! » déclara parmi eux un vieil homme aux cheveux blancs.
+
+Bien que cet homme fût âgé, son armure noire lui conférait une apparence calme et stable.
+
+Le chef de régiment Sun laissa échapper un froid renâclement et dit : « Vous en faites trop. »
+
+Chacun avait ses propres opinions sur Wang Lin, mais aucune décision commune ne fut finalement prise. Sima Yan se frotta les tempes et déclara : « Très bien, souvenez-vous de ne pas provoquer activement cet homme. Je ne crois pas qu'il puisse rester silencieux très longtemps. Tant qu'il est celui qui déclenche le conflit, nous aurons les moyens de le gérer. »
+
+Le temps passa lentement et, en un clin d'œil, Wang Lin avait cultivé pendant une demi-lune au sein du camp militaire. Durant cette période, il n'avait rien fait ; il s'était contenté de rester assis, poursuivant sa culture en silence. Le camp militaire semblait être devenu son propre terrain de culture.
+
+Le cœur de Treize s'était également apaisé alors qu'il cultivait aux côtés de Wang Lin.
+
+Cependant, la colère de Hu Pao ne cessait de croître. S'il n'avait pas été inquiet de la réaction de Wang Lin, il aurait déjà sorti son drapeau d'âme pour livrer une grande bataille.
+
+Le silence de Wang Lin ne faisait qu'accroître le mépris dans les yeux des dix mille soldats démons.
+
+Wang Lin, quant à lui, n'en avait cure.
+
+Ce jour-là, le régiment dirigé par le chef de régiment Sun passa devant Wang Lin alors qu'ils s'entraînaient. Le chef de régiment Sun ne cacha nullement son mépris et son dédain ; il considérait le nouveau commandant de tout son cœur. En passant à sa hauteur, il ne put s'empêcher de cracher en disant : « Déchet ! »
+
+Voyant l'expression et le geste de leur chef, le régiment éclata de rire. Leurs rires étaient empreints de dédain.
+
+Au moment même où la salive toucha le sol, Wang Lin ouvrit les yeux. Son regard était calme, et sa voix l'était plus encore lorsqu'il dit : « Chef de régiment Sun, qu'avez-vous dit ? »
+
+Le chef de régiment Sun fut surpris. C'était la première fois que Wang Lin prenait la parole depuis une demi-lune. Il ricana intérieurement et répondit avec arrogance : « J'ai dit que tu étais un déchet... »
+
+Sa voix était pleine d'orgueil, mais avant même qu'il ne puisse achever sa phrase, les yeux de Wang Lin devinrent glacials et il esquissa un sourire énigmatique. Sa main droite bougea avec la rapidité de l'éclair et s'élança, faisant apparaître une force invisible.
+
+Le corps du chef de régiment Sun fut instantanément écrasé par cette force invisible et traîné vers Wang Lin, incapable de lui opposer la moindre résistance.
+
+L'expression du chef de régiment Sun changea radicalement et il tenta de lutter. Mais quels que soient ses efforts, même en utilisant toute son énergie spirituelle démoniaque, tout fut vain. La force qui le réprimait était aussi implacable que l'acier et le pressait de plus en plus fort.
+
+Son corps vola immédiatement vers Wang Lin et son cou fut saisi par la main de ce dernier.
+
+« Tu... » Le sang afflua rapidement à sa tête et son visage devint pourpre. La main serrée sur sa gorge était comme la porte de la mort qui l'emprisonnait.
+
+Même dans sa situation désespérée, il écarquilla les yeux pour fixer Wang Lin. Il ne croyait pas que cet homme oserait le tuer, mais il redoutait désormais la culture de Wang Lin. D'un seul mouvement, Wang Lin l'avait neutralisé sans qu'il puisse opposer la moindre résistance. Même le commandant Sima n'aurait pu accomplir un tel exploit.
+
+Voyant leur chef de régiment capturé, les mille soldats démons s'élancèrent soudainement vers Wang Lin.
+
+Le regard de Wang Lin se glaça et il ordonna : « Treize, récite la 8e loi militaire du Pays Démon ! »
+
+Treize avait mémorisé le contenu du jade. Puisque Wang Lin posait la question, il répondit promptement : « Ceux qui se révoltent contre leur supérieur sont exécutés ! »
+
+Le corps du chef de régiment Sun trembla et un sombre pressentiment l'envahit. Il voulut parler, mais avec la main de Wang Lin sur sa gorge, il fut incapable de prononcer une phrase complète.
+
+Les yeux de Wang Lin étaient d'une froideur extrême alors qu'il affichait un sourire sinistre. Il appliqua soudainement une force immense à sa main droite et, dans un craquement sinistre, le cou du chef de régiment Sun fut broyé avant même qu'il ne puisse dire un mot. Simultanément, Wang Lin projeta frénétiquement son énergie spirituelle céleste dans le corps de cet homme, détruisant ainsi sa culture.
+
+Jusque dans l'instant de sa mort, le chef de régiment Sun fut envahi par l'incrédulité. Il n'aurait jamais pu imaginer que le nouveau commandant oserait l'assassiner !
+
+Tenant le cadavre, Wang Lin prit une profonde inspiration ; alors des filaments d'énergie spirituelle démoniaque s'échappèrent du corps du chef de régiment pour être absorbés par Wang Lin.
+
+Tout cela se produisit avec une rapidité fulgurante. C'est au moment même où Treize terminait sa phrase que Wang Lin avait tué l'homme sans la moindre hésitation.
+
+À cet instant, les soldats démons qui chargeaient s'arrêtèrent net. Leurs yeux étaient brûlants de rage. Les plus perspicaces tournèrent immédiatement leur regard vers Wang Lin.
+
+Wang Lin projeta le corps du chef de régiment Sun en avant. Il fixa froidement les soldats démons sans prononcer un mot.
+
+Le corps atterrit devant eux. En voyant le visage convulsé du chef de régiment Sun, la colère monta au cœur des soldats qui avaient été personnellement élevés par ce dernier.
+
+L'un des soldats démons cria avec rage : « Frères, vengons notre chef de régiment ! »
+
+À ces mots, une majorité de soldats démons poussèrent des rugissements furieux. Ils chargèrent tous vers Wang Lin sans hésiter, libérant leurs auras démoniaques. À leurs yeux, Wang Lin était leur ennemi !
+
+Le regard de Wang Lin devint plus glacial encore et il murmura doucement : « Se révolter contre son supérieur... »
+
+Il esquissa alors un sourire effroyable. Sans s'envoler, il frappa son sac de rangement et en sortit son épée céleste. D'un seul mouvement, un rayon d'énergie d'épée jaillit comme pour fendre les cieux. La lame en croissant suivit rapidement la trajectoire et chargea de plein fouet les soldats démons.
+
+Des cris commencèrent immédiatement à résonner dans la zone. Pour l'épée céleste, traiter avec ces soldats démons qui n'étaient qu'au stade de la Formation du Noyau était d'une facilité déconcertante. En un éclair, des têtes de soldats démons roulèrent au sol.
+
+Le chaos fut instantanément remarqué par les soldats démons des autres régiments, dont les regards se tournèrent vers leurs chefs respectifs. Les neuf chefs de régiment restants chargèrent rapidement, suivis de près par leurs troupes.
+
+L'un d'eux cria précipitamment : « Arrêtez ! »
+
+Cinquante kilomètres n'étaient pas une grande distance. Bientôt, un nuage de poussière apparut au loin alors que neuf mille soldats démons chargeaient vers la position de Wang Lin.
+
+Wang Lin ne da même pas un regard vers eux ; il ouvrit les bras et les énergies spirituelles démoniaques et célestes de son corps formèrent un vortex. À cet instant, l'énergie spirituelle démoniaque des centaines de soldats tués par l'épée céleste et la lame en croissant quitta leurs corps pour être aspirée par Wang Lin.
+
+L'énergie démoniaque était si dense qu'elle créa un tourbillon dont Wang Lin était le centre. Lorsque les neuf mille soldats arrivèrent, Wang Lin avait fini d'absorber l'énergie. Il pointa le doigt vers le ciel, faisant revenir l'épée céleste et la lame en croissant. Ces armes flottèrent au-dessus de sa tête, émettant des vibrations stridentes.
+
+En un laps de temps très court, plus de la moitié du régiment d'un millier d'hommes du chef de régiment Sun avait péri !
+
+Les neuf chefs de régiment, vêtus de leurs armures noires, encerclèrent Wang Lin. Leurs regards se posèrent immédiatement sur le cadavre du chef de régiment Sun.
+
+Les neuf mille soldats démons se déployèrent pour entourer la position de Wang Lin, et une épaisse intention de tuer emplit instantanément la zone. Ils ne se contentaient pas de l'encercler ; ils mettaient en place une formation dont la cible était Wang Lin !
+
+Treize et Hu Pao se levèrent d'un bond, le regard froid. Surtout Hu Pao qui, léchant ses lèvres, sortit tous ses drapeaux d'âme tout en scrutant les environs avec froideur.
+
+Wang Lin était toujours assis en position de lotus sur le sol. Même lors du massacre précédent, il ne s'était pas levé. À cet instant, bien qu'entouré de neuf mille soldats démons, son expression restait sereine, et il demanda calmement : « Comptez-vous tous vous révolter contre votre supérieur ? »
+
+Le cœur des neuf chefs de régiment se glaça subitement. Les traces de sang sur le sol n'avaient pas encore séché et des crânes tranchés jonchaient encore les lieux. Tout cela changea instantanément la perception que ces chefs avaient de Wang Lin.
+
+Après avoir entendu ses paroles, ils échangèrent des regards sans dire un mot.
+
+C'est alors qu'un rugissement de colère retentit au loin. Sima Yan déferla comme une bourrasque et chargea. Il fendit la foule des soldats démons pour arriver sur les lieux. Voir le carnage qui s'était produit là fit assombrir son visage de façon extrême.
+
+Il méditait plus tôt et, en entendant le chaos dans le camp, il s'était immédiatement interrompu. Cependant, il ne s'était pas montré directement, utilisant une technique secrète pour contacter l'intendant de l'armée. Il avait attendu que Wang Lin soit encerclé avant de se manifester.
+
+Sima Yan déclara d'un ton grave : « Seigneur Commandant, quelle qu'en soit la raison, après avoir tué le chef de régiment Sun, vous avez également massacré ses soldats. Je ne laisserai pas passer cela ! »
+
+L'expression de Wang Lin resta imperturbable et il esquissa un léger sourire. « Treize, récite la 13e loi militaire du Pays Démon ! »
+
+Treize récita promptement : « Ceux qui assiègent le camp militaire doivent se retirer en trente respirations. Faute de quoi, ils sont exécutés ! »
+
+« Récite la deuxième loi du Pays Démon ! »
+
+« L'utilisation de formations de niveau Extermination d'Immortels ou supérieur pour des affaires internes sans autorisation doit cesser en vingt respirations, faute de quoi cela constitue un crime majeur ! »
+
+L'expression de Wang Lin était calme, mais le visage de Sima Yan devint encore plus sombre. Il comprit immédiatement pourquoi cet homme n'avait rien fait pendant une demi-lune : il attendait, il attendait l'occasion d'agir pour que chacun soit entraîné dans un désastre !
+
+Parmi les neuf chefs de régiment, trois firent immédiatement un pas en arrière. Ils se regardèrent, voyant la terreur dans les yeux de leurs pairs. Ils ne voulaient nullement s'impliquer dans cette querelle pour le commandement.
+
+« Treize, commence le compte ! » Wang Lin ferma les yeux et cessa de regarder Sima Yan.
+
+Le regard de Treize était serein alors qu'il disait lentement : « Treize respirations se sont déjà écoulées. Seize, quinze, quatorze, treize... »

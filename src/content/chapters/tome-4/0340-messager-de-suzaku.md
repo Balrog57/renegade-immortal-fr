@@ -1,0 +1,111 @@
+---
+n: 340
+title: Messager de Suzaku
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 340 - Messenger of Suzaku
+slug: messager-de-suzaku
+---
+Wang Lin vola jusqu'à la pagode et atterrit à ses côtés. Son corps original se sépara de lui, cracha un peu de sang, puis s'assit pour cultiver.
+
+Après une très longue attente, Wang Lin ouvrit les yeux. Il s'assit rapidement, sortit quelques pilules et commença à réguler l'énergie spirituelle dans son corps.
+
+Trois jours plus tard, lui et son corps original ouvrirent les yeux simultanément.
+
+« Ma blessure est trop grave cette fois. Je dois me retirer en culture fermée pour récupérer ! » Wang Lin pensa secrètement que le messager des cieux n'avait eu aucune intention de le tuer avant ce tout dernier coup. Le messager n'avait aucune émotion ; il agissait strictement selon les lois.
+
+« Avec la quantité d'Âme Naissante de Wan Er qui s'est dissipée, il lui faudra dix-neuf ans pour se rétablir et s'éveiller. Une fois qu'elle sera éveillée, les cieux reviendront pour anéantir quiconque osera tenter de fuir la loi céleste. » Wang Lin fixa le ciel du regard.
+
+Wang Lin se leva. Au même moment, son corps original s'envola silencieusement vers l'immense crevasse créée durant la bataille. Il atterrit au fond du gouffre et sombra. Tandis qu'il s'enfonçait, la terre environnante l'emporta avec lui. Bientôt, le trou fut comblé, comme s'il n'avait jamais existé.
+
+À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière pourpre émanait de son corps, formant une petite sphère lumineuse à ses côtés.
+
+La blessure infligée au corps original était bien plus lourde que celle de Wang Lin. Surtout lors de cette ultime attaque, où le corps original avait encaissé 70 % des dégâts. Cependant, compte tenu de la puissance de son essence physique, ce n'était pas mortel, bien qu'une culture fermée fût également nécessaire.
+
+Wang Lin prit une profonde inspiration. Il frappa ensuite son sac de rangement et en sortit un jade. Après y avoir laissé un message, il le lança vers le ciel ; l'objet disparut dans une traînée de lumière.
+
+Une fois cela fait, Wang Lin s'assit près de la pagode et activa un fragment du domaine de Zhou Yi. À moins qu'un cultivateur Ascendant ne se présente, nul autre ne pourrait l'approcher.
+
+C'est ainsi que Wang Lin ferma les yeux et soigna ses blessures en silence.
+
+Le jour, les rayons du soleil frappaient Wang Lin, lui apportant une pointe de chaleur.
+
+La nuit, la lune arrivait discrètement, apportant avec elle la fraîcheur nocturne.
+
+Les jours de pluie, l'eau tombait du ciel et imprégnait Wang Lin presque instantanément.
+
+Les jours de neige, les flocons descendaient lentement, recouvrant tout d'un manteau blanc. Partout où le regard se posait, la blancheur régnait. Un bonhomme de neige s'était même formé à côté de la pagode.
+
+Que ce soit de jour ou de nuit, sous la pluie ou la neige, le corps de Wang Lin restait immobile. Il ressemblait à un vieux moine mort ; aucune trace de vitalité n'émanait de lui.
+
+Six mois après la bataille, le printemps revint. Dans l'ancienne demeure du vieux Zhou, au village d'Apricot, un bébé naquit. Elle s'appelait Zhou Ru.
+
+Cette petite fille poussa des cris comme tous les nouveau-nés, mais nul n'ignora que ce cri différait de celui d'un enfant ordinaire.
+
+Le corps de la fillette était très faible. Heureusement, le vieux Zhou était respecté au village d'Apricot et possédait un commerce, ce qui lui permettait de vivre mieux que la plupart des gens.
+
+Une grotte se trouvait dans la montagne à cinquante kilomètres du village d'Apricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yun et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan.
+
+Après en avoir discuté, Tie Yan était venu. Son Sens Divin restait verrouillé sur le village à chaque instant tandis qu'il assurait une garde silencieuse.
+
+La guérison de Wang Lin se poursuivait. La neige autour de la pagode s'était déjà transformée en eau et avait été absorbée par la terre.
+
+Le corps original, quant à lui, se trouvait à des milliers de kilomètres sous la surface. Durant ces six mois, il s'était enfoncé trois fois plus profondément, s'enfonçant de plusieurs milliers de kilomètres à chaque étape. Il avait déjà parcouru le cinquième du chemin vers le noyau de la planète.
+
+Il était vrai que les Dieux Anciens grandissaient au combat. Après cette lutte acharnée, le corps original montrait des signes de percée. Bien que le processus fût lent, il avait déjà atteint le sommet du stade à deux étoiles. La troisième transformation n'était plus très loin.
+
+En un clin d'œil, une année s'écoula. Zhou Ru avait désormais un an. Alors que la plupart des enfants de cet âge commençaient à émettre des sons, même sans parler, Zhou Ru demeurait silencieuse. Les villageois commencèrent ainsi à répandre la rumeur selon laquelle la petite était muette.
+
+Ce jour-là, un groupe de personnes sortit d'un réseau de transfert ordinaire à la lisière de Chu. Parmi eux se trouvait une femme portant un voile. Une trace de fatigue perçait dans son regard, mais ses yeux brillaient toujours comme des étoiles, capables de fasciner n'importe qui.
+
+Elle était suivie par un vieil homme vêtu d'un manteau noir usé, dont les yeux étaient ternes, comme s'il souffrait d'une maladie grave. Si Wang Lin les avait vus, il les aurait reconnus comme les deux individus ayant acheté la recette de pilule de rang 6.
+
+À leurs côtés se tenait un vieil homme aux cheveux blancs : c'était Hu, le cultivateur de Formation de l'Âme du Pavillon de Raffinage des Trésors. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien : Qiu Siping. Les deux autres étaient Xu Luo et une femme d'une grande beauté — celle-là même qui avait livré le jade violet.
+
+Une fois sortis du réseau de transfert, le vieil homme regarda vers le nord et déclara : « Bien que Chu ne soit pas la voie la plus rapide pour atteindre le Cimetière des Immortels, c'est plus simple que de passer par Zhou. »
+
+La femme voilée acquiesça : « Ce que dit l'Ancien est exact. Certes, traverser Chu prend plus de temps, mais il n'y a pas de points de contrôle comme dans Zhou, ce qui facilite grandement le voyage. »
+
+Le vieil homme nommé Hu s'élança en avant, et les autres le suivirent promptement.
+
+Qiu Siping soupira intérieurement. Après le départ de Wang Lin, il avait décidé de suivre l'Ancien Hu dans l'espoir d'atteindre un jour le stade de la Formation de l'Âme. Bien que son niveau de culture ait progressé ces dix dernières années, l'écart restait immense. Il était convaincu qu'en obtenant l'objet recherché dans le Cimetière des Immortels, atteindre la Formation de l'Âme ne serait plus un simple rêve.
+
+La femme soupira elle aussi. Durant ces dix ans, elle avait sollicité de nombreux cultivateurs de la Formation de l'Âme. Finalement, elle s'était souvenue que le Pavillon de Raffinage des Trésors en comptait un. En révélant certains secrets qu'elle n'avait jamais dits à Wang Lin, elle avait réussi à convaincre le vieil homme de lui prêter aide.
+
+Le groupe de six vola vers le nord, survolant de nombreuses sectes que personne n'osa interpeller.
+
+L'Ancien Hu fut surpris : « Je n'étais pas revenu à Chu depuis plus de cent ans. Il semble y avoir eu bien des changements. »
+
+Derrière lui, Xu Luo répondit respectueusement : « Ancêtre, ces dernières années, la Secte du Ciel Nuageux a dévoré plusieurs autres sectes et est officiellement devenue la première puissance de Chu. »
+
+L'Ancien Hu hocha la tête : « La Secte du Ciel Nuageux se spécialise dans l'alchimie, ils doivent donc posséder de nombreux cultivateurs de l'Âme Naissante. À notre retour du Cimetière des Immortels, rappelle-moi d'aller visiter leur secte pour solliciter quelques pilules ! »
+
+Xu Luo esquissa un léger sourire. Il était certain que la Secte du Ciel Nuageux leur remettrait immédiatement des pilules pour garantir leur propre sécurité.
+
+Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur position, le pilier ne semblait pas plus épais que le poing d'un nourrisson, mais s'ils avaient été plus proches, il aurait été infiniment plus imposant.
+
+L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expérience, il fut frappé de stupeur. Le vieil homme qui suivait la femme eut également les yeux illuminés par la surprise en contemplant le phénomène. Ce pilier de lumière émanait du centre de Chu, là où se trouvait la Tour Céleste.
+
+« C'est un messager descendant d'un pays de culture supérieur... Pourtant, un messager d'un pays de rang 4 ne provoquerait pas une telle agitation ! » Plus il observait, plus son choc grandissait.
+
+Soudain, plusieurs dragons dorés apparurent autour du pilier et, bientôt, un jeune homme vêtu de blanc en sortit lentement. À l'instant où il émergea, les dragons poussèrent des rugissements si puissants que les six voyageurs purent les entendre distinctement malgré la distance.
+
+Peu après, les dragons dorés chargèrent le jeune homme. Au moment de l'impact imminent, ils se transformèrent en d'innombrables fils d'or qui vinrent broder les vêtements du jeune homme.
+
+« Un messager de Suzaku ! » Le vieil homme afficha une expression d'effroi. Il comprit que quelque chose de colossal s'apprêtait à se produire à Chu. Pourquoi un messager de Suzaku descendrait-il dans un simple pays de culture de rang 3 ?
+
+Le visage de la femme trahissait une pointe de panique. Le vieil homme fit un pas en avant pour se placer devant elle. La peur sur les traits de la jeune femme disparut rapidement, mais ses poings serrés étaient moites de sueur.
+
+Qiu Siping, Xu Luo et la belle femme étaient tous sous le choc. Qiu Siping, particulièrement, fixa la lumière en murmurant : « C'est la première fois que je vois quelqu'un de Suzaku... Suzaku... »
+
+La belle femme prit une profonde inspiration et demanda doucement : « Ancêtre, pourquoi un messager de Suzaku est-il venu à Chu ? »
+
+« Cher collègue Gong Sun, qu'en pensez-vous ? » demanda l'Ancien Hu en se tournant vers le vieil homme au manteau noir.
+
+Ce dernier répondit lentement : « Cher collègue Hu, je viens tout juste d'atteindre le stade de la Formation de l'Âme, je ne connais donc que peu de choses sur Suzaku. Cependant, je crois qu'un événement majeur se prépare. J'ignore ce que c'est, mais pourquoi un messager de Suzaku viendrait-il à Chu autrement ? »
+
+L'Ancien Hu pensa intérieurement : « Balivernes ! » et reporta son regard sur le pilier de lumière.
+
+À cet instant précis, la colonne lumineuse commença à s'estomper. Le jeune homme en blanc fondit vers eux tel un météore. Le corps de la femme au voile blanc trembla, ses yeux emplis d'une terreur extrême.
+
+L'Ancien Hu remarqua la scène. Bien qu'il ne montrât aucune réaction visible, un soupçon de doute s'installa dans son cœur.

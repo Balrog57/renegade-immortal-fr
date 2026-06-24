@@ -1,0 +1,119 @@
+---
+n: 86
+title: Les Ruines de la Forêt
+book: 2
+bookTitle: The Bloody Image of Cultivation
+en: Chapter 86 - Forest Ruins
+slug: les-ruines-de-la-foret
+---
+Wang Lin réfléchit un instant. Il pointa l'esprit de Teng Li et commença à l'absorber. L'esprit de Teng Li se mit à gonfler et à bouillonner.
+
+Puis, la sphère de sang jaillit rapidement pour se fondre dans l'esprit. Graduellement, l'esprit commença à rétrécir, tandis que la masse de chair et d'os se dissolvait également dans la brume spirituelle.
+
+L'esprit avait considérablement changé ; il n'était plus qu'un anneau étroit flottant dans les airs, émettant une douce lueur.
+
+Wang Lin prit une profonde inspiration. Il savait qu'il atteignait l'ultime étape. Sa concentration s'intensifia lorsqu'il plaça l'âme dans l'anneau.
+
+Après un long moment, l'anneau projeta soudain un éclat éblouissant. Les yeux de Wang Lin s'illuminèrent ; il mordit vivement le bout de sa langue et cracha un jet de sang. Dès que le sang toucha l'anneau, un sifflement retentit et le liquide disparut instantanément.
+
+Une fois fusionné avec le sang, l'anneau se mit à trembler. Il commença à émettre une pression puissante, et toutes les créatures vivantes dans un rayon d'un kilomètre autour de Wang Lin ressentirent ce changement.
+
+Plusieurs auras puissantes apparurent et chargèrent prestement vers lui.
+
+Wang Lin ne cilla même pas. D'un revers de la main, il fit fusionner l'anneau dans sa poitrine. Une puissante vague de puissance spirituelle traversa soudain son corps, faisant rougir son visage.
+
+Prenant une profonde inspiration, son corps s'élança comme une flèche et disparut rapidement dans la forêt.
+
+Peu après son départ, un python géant redressa brusquement la tête. Après avoir reniflé l'air, il afficha une expression confuse. Après avoir secoué la tête, il fit volte-face et s'en alla.
+
+Aussitôt après, un singe de trois mètres de haut arriva aussi vite que l'éclair. Il se rua dans le creux de l'arbre et fouilla un moment avant de repartir, frustré.
+
+Plusieurs autres bêtes puissantes vinrent inspecter les lieux, mais elles repartirent toutes, perplexe.
+
+Wang Lin traversait la jungle, le corps saturé d'énergie spirituelle. En même temps, alors qu'il courait, un liquide noir malodorant s'échappait de chacun de ses pores.
+
+Sentant son corps comme déchiré, Wang Lin fronça les sourcils et s'arrêta. Après avoir fait le tour de la zone, ses yeux brillèrent et il utilisa l'immense quantité d'énergie spirituelle en lui pour activer sa technique d'attraction.
+
+La terre au sol se déplaça sur les côtés, comme poussée par deux mains gigantesques. Bientôt, un gouffre sans fond apparut dans le sol.
+
+Sans un mot, Wang Lin sauta dans le trou. La terre fut alors ramenée pour combler la cavité et tout revint à la normale, comme si rien de tout cela ne s'était produit.
+
+Assis en tailleur sous terre, Wang Lin concentra son attention pour organiser l'énergie spirituelle dans son corps. Sa physiologie changeait constamment pour atteindre l'Établissement des Fondations.
+
+Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de culture en méditation.
+
+Le temps s'écoula et, en un clin d'œil, deux années passèrent.
+
+La terre au-dessus de l'endroit où Wang Lin pratiquait était désormais recouverte de couches de feuilles en décomposition où grouillaient des insectes venimeux.
+
+Ce jour-là, le sol trembla soudainement et d'innombrables insectes sortirent des feuilles. La litière végétale fut repoussée, suivie par une couche de terre, alors qu'une silhouette sombre émergeait du trou.
+
+Dès l'apparition de la silhouette, tous les insectes poussèrent des cris de terreur et reculèrent précipitamment.
+
+« Cette technique de vol de fondation est véritablement mystérieuse. J'ai enfin atteint l'Établissement des Fondations. » Cette silhouette sombre n'était autre que Wang Lin.
+
+Le regard de Wang Lin était électrique et tout son corps débordait d'une puissante énergie spirituelle. Il ouvrit la bouche et cracha une lumière verte qui se mua en son épée volante.
+
+Ses yeux brillèrent. Il leva la main et le fourreau s'envola vers lui tandis qu'il murmurait : « Après deux ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
+
+Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea : « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a deux ans pour m'aider à échapper à Teng Li. Il a également lancé un sort pour empêcher Teng Huayuan de me trouver. Il dort depuis plus d'un an et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Il ne me reste plus qu'à trouver un lieu imprégné d'une forte énergie Yin pour la pratiquer. »
+
+Ayant pris sa décision, Wang Lin prit une profonde inspiration et déploya son Sens Divin. Il se dirigea soudainement vers le nord jusqu'à atteindre une rivière, où il se débarrassa de toute la terre noire qui recouvrait son corps. Une fois propre, il se sentit revigoré.
+
+Assis sur un rocher près de l'eau, il se remémora sa récente expérience de mort imminente avec un sentiment de regret. Il ignorait si Zhang Hu était toujours en vie et priait pour qu'il ait survécu.
+
+Soupirant, Wang Lin chassa ces pensées pour se concentrer. Après un long moment, il forma un sceau de la main droite et projeta un rayon de lumière blanche. Dès son apparition, la couleur changea : passant du blanc au gris, elle s'assombrit progressivement tout en volant vers l'ouest.
+
+Wang Lin était stupéfait. Cette technique lui avait été enseignée par Situ Nan pour débusquer les lieux à forte concentration d'énergie Yin. Plus la lumière était sombre, plus il approchait d'une énergie Yin extrême. Si la lumière devenait noire, cela signifierait qu'il avait trouvé sa destination.
+
+Sans perdre un instant, Wang Lin poursuivit la lueur déjà devenue grise. Celle-ci s'assombrit de plus en plus jusqu'à devenir noire, avant de s'effondrer soudainement et de disparaître.
+
+Soudain, Wang Lin s'arrêta net. Il fixait l'horizon, stupéfié, incapable de prononcer le moindre mot.
+
+Devant lui s'étendaient des ruines infinies. Des bâtiments effondrés et des arbres déchus s'étendaient à perte de vue.
+
+La végétation luxuriante recouvrait les vestiges, et de petits animaux s'y faufilaient en poussant parfois des cris stridents.
+
+Des fissures parcouraient le sol, comme si la terre cherchait à dévorer toute vie en surface.
+
+Les amas de débris métalliques entremêlés à la végétation verdoyante renforçaient cette impression de désolation. L'atmosphère oppressante aurait fait frissonner n'importe quel cœur.
+
+Wang Lin prit une profonde inspiration, totalement abasourdi par ce spectacle.
+
+À cet instant précis, un pilier de lumière blanche jaillit d'une des tours en ruine.
+
+Surpris, le visage de Wang Lin se crispa tandis qu'il tournait la tête vers la jungle voisine. Il vit une petite bête ensanglantée ramper vers l'endroit où le pilier de lumière s'était posé. Une blessure profonde, laissant apparaître l'os sur sa patte droite, laissait derrière elle une traînée de sang.
+
+Après un long moment, elle atteignit enfin le pilier et poussa un cri de joie. En quelques secondes seulement, la plaie se referma et la petite créature fut totalement guérie.
+
+Elle secoua joyeusement son corps avant de quitter la zone de lumière et de disparaître au loin.
+
+Le pilier de lumière continuait de briller. Wang Lin l'observait, interdit.
+
+Soudain, le pilier se dissipa en d'innombrables particules argentées. Wang Lin resta vigilant. Une demi-heure plus tard, le pilier réapparut.
+
+Ce cycle se répéta plusieurs fois. Après une journée entière d'observation, Wang Lin parvint enfin à comprendre le phénomène.
+
+D'après ses déductions, ce pilier de lumière était lié au rayonnement solaire. Il semblait que, malgré la ruine du site, certains trésors étaient encore actifs ; après avoir absorbé suffisamment de lumière, ils déclenchaient leur pouvoir.
+
+De plus, de nombreuses bêtes sauvages semblaient connaître l'effet cicatrisant du pilier. Au cours de la journée, Wang Lin vit au moins vingt créatures blessées se diriger vers lui.
+
+Voyant l'obscurité tomber, Wang Lin calcula que le dernier pilier allait bientôt apparaître. Sans hésiter, il s'élança et plongea la main dans la colonne lumineuse. Il ressentit un flux d'air très chaud ; ce n'était pas de la puissance spirituelle, mais une sensation totalement inédite pour lui.
+
+Tandis qu'il explorait du bout des doigts ce courant d'air, les yeux de Wang Lin brillèrent. Il se fit une entaille au bras et plongea le membre dans le pilier. En un clin d'œil, la blessure disparut.
+
+Après réflexion, il se dirigea à travers les ruines jusqu'à une immense tour.
+
+Il s'agissait des vestiges d'une gigantesque tour cylindrique. De l'extérieur, on voyait clairement qu'une partie de l'édifice s'était effondrée. Pourtant, même en ruine, sa splendeur passée était évidente. Deux statues géantes tenant des épées se dressaient, surmontées d'une tour d'environ trente mètres de haut.
+
+Wang Lin contempla les décombres, imaginant le moment tragique où cette tour glorieuse s'était brisée, s'abattant en partie sur les deux statues.
+
+Le pilier de lumière provenait d'une sphère de pierre d'environ deux mètres de diamètre située au sommet de la structure.
+
+Près de la sphère, Wang Lin hésita. L'objet était trop massif pour être déplacé aisément. De plus, il ignorait le mécanisme exact de la guérison et craignait que son retrait n'annule l'effet du trésor.
+
+Plutôt que d'agir avec précipitation, il choisit d'observer les environs. Progressivement, une expression étrange envahit son visage. En inspectant les lieux, il découvrit une anomalie.
+
+Dans certaines parties bien préservées des ruines, on trouvait de la vaisselle en porcelaine encore intacte. Certains récipients contenaient même une substance noire.
+
+Le ciel s'assombrissant davantage, Wang Lin quitta rapidement les ruines. Une fois l'obscurité totale installée, il retourna vers la jungle, jetant un dernier regard sur les vestiges, les yeux brillants de curiosité.

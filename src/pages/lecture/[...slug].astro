@@ -1,0 +1,43 @@
+---
+import Reader from '~/layouts/Reader.astro';
+import { render } from 'astro:content';
+import {
+  getChaptersSorted,
+  chapterSlug,
+  getChapterMenu,
+} from '~/lib/data';
+
+export async function getStaticPaths() {
+  const all = await getChaptersSorted();
+  const menu = await getChapterMenu();
+
+  return all.map((chapter, i) => {
+    const prev = i > 0 ? all[i - 1] : null;
+    const next = i < all.length - 1 ? all[i + 1] : null;
+    return {
+      params: { slug: chapterSlug(chapter) },
+      props: {
+        chapter,
+        prev: prev ? { slug: chapterSlug(prev), title: prev.data.title, n: prev.data.n } : null,
+        next: next ? { slug: chapterSlug(next), title: next.data.title, n: next.data.n } : null,
+        menu,
+      },
+    };
+  });
+}
+
+const { chapter, prev, next, menu } = Astro.props;
+const { Content } = await render(chapter);
+---
+
+<Reader
+  title={chapter.data.title}
+  chapterN={chapter.data.n}
+  bookTitle={chapter.data.bookTitle}
+  book={chapter.data.book}
+  prev={prev}
+  next={next}
+  menu={menu}
+>
+  <Content />
+</Reader>

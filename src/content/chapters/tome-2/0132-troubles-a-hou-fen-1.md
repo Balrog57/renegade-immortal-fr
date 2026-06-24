@@ -1,0 +1,105 @@
+---
+n: 132
+title: Troubles à Hou Fen (1)
+book: 2
+bookTitle: The Bloody Image of Cultivation
+en: Chapter 132 - Upheaval in Hou Fen (1)
+slug: troubles-a-hou-fen-1
+---
+Le corps de Sun Youcai tremblait alors qu'il s'enfuyait sous terre. La peur le paralysait au point où il avait du mal à respirer. À cet instant précis, il sentit la terre devant lui se réchauffer et il s'en plaignit intérieurement. Cette technique d’« évasion tellurique » était formidable partout ailleurs, mais ici, à Hou Fen, où les volcans abondaient, elle présentait des restrictions sérieuses.
+
+S'il creusait accidentellement dans la lave, il ne pourrait que s'en vouloir.
+
+Normalement, lorsque Sun Youcai fuyait, il identifiait la direction et changeait immédiatement de cap dès qu'il ressentait de la chaleur. Mais maintenant, il était persuadé d'être poursuivi par un expert du stade de la Formation de l'Âme. Il n'avait pas prêté attention aux signes et il était désormais trop tard. Tout ce qu'il pouvait faire était d'utiliser toute sa force pour propulser son corps vers le haut.
+
+Dans un grand fracas, son corps jaillit de sous terre pour atterrir dans une grotte située à l'intérieur d'un volcan. Une vague de chaleur le frappa instantanément, faisant boucler ses cheveux et ses sourcils.
+
+Il poussa un cri en lançant précipitamment son épée volante pour se réfugier sur un rocher. Après seulement quelques instants d'exposition à cette chaleur, sa peau commençait déjà à craqueler et ses vêtements s'étaient instantanément réduits en cendres.
+
+Même l'épée volante sous ses pieds avait viré au rouge, et sa température ne cessait de grimper.
+
+Dès que la sueur apparut sur le corps de Sun Youcai, chaque goutte se transforma en vapeur blanche. En le regardant à présent, tout son corps était enveloppé de cette vapeur. Bien qu'il fût nu, il dégageait encore une certaine aura divine.
+
+Sous lui s'étendait un vaste bassin de lave. De nombreuses bulles massives s'y agitaient et, à chaque explosion, des gaz noirs s'en échappaient.
+
+Sun Youcai parvint à braver le danger pour traverser la partie volcanique avant de s'immobiliser, fixant la lave en contrebas avec un regard terrifié.
+
+À cet instant, Wang Lin l'avait rattrapé. Il ne maîtrisait pas la technique d’évasion tellurique, mais son Sens Divin était resté verrouillé sur Sun Youcai tout au long de la poursuite. Remarquant soudain que Sun Youcai s'était arrêté, il sortit le morceau de métal et le pointa vers le sol. Le métal tourna en frappant la terre, creusant un tunnel. Le corps de Wang Lin suivit rapidement le mouvement pour pénétrer dans le bassin de lave où se trouvait Sun Youcai.
+
+Dès qu'il entra dans le volcan, Wang Lin aperçut Sun Youcai, qui contemplait la lave avec effroi.
+
+Wang Lin suivit le regard de l'homme vers la lave et vit des yeux triangulaires. Il prit une profonde inspiration et recula dans le tunnel. Se cachant sans bouger d'un pouce, il fixa ces yeux.
+
+D'après les souvenirs de Ma Liang, d'après ce qu'il avait appris durant son enfance, aucune créature ne vivait dans les volcans de Hou Fen. Si une telle chose existait, il aurait été impossible qu'elle échappe à la détection des cultivateurs de la région. Il faut dire que tous les quelques années, les ancêtres des quatre grandes sectes scellaient les volcans par mesure de sécurité.
+
+Au même moment, Sun Youcai sembla être possédé par ce regard. Il descendit de son épée volante et posa ses pieds nus sur le rocher. Dès que sa peau toucha la pierre, une odeur de chair brûlée se propagea.
+
+Il ne fit que trois pas avant que sa chair et sa peau ne soient totalement consumées, révélant des os noircis par les flammes. Pourtant, Sun Youcai ne manifesta aucune souffrance lorsqu'il sauta dans la lave depuis le rebord du rocher.
+
+Les yeux de Wang Lin s'illuminèrent et il tendit la main. Au moment où Sun Youcai chutait, il attrapa son sac de voyage et recula prestement sans même jeter un regard derrière lui vers la lave.
+
+Un rugissement retentit derrière Wang Lin et la chaleur environnante intensifia soudainement. Tandis qu'il courait, le tunnel autour de lui vira au rouge. Si quelqu'un avait regardé depuis les hauteurs, il aurait vu tous les volcans, petits et grands, cracher une fumée noire ; en particulier l'un des plus imposants. Autour de celui-ci, une lumière rouge visible à l'œil nu se propageait. Tout ce que cette lueur touchait devenait incandescent.
+
+Le visage de Wang Lin était sombre alors qu'il s'engouffrait dans le tunnel. Il s'arrêta brusquement en voyant un océan de flammes se rassembler devant lui. Le feu prit la forme d'une créature dotée d'yeux triangulaires et d'une corne unique. Elle fixa Wang Lin avec une intention meurtrière.
+
+Sans un mot, Wang Lin projeta son Sens Divin du Royaume Ji. Un éclair de foudre rouge jaillit de ses yeux pour pénétrer la bête de feu. Les flammes de la créature faiblirent un instant, mais elle se rétablit rapidement. Elle ouvrit alors la gueule et poussa un rugissement avant de charger Wang Lin.
+
+Le visage de Wang Lin s'assombrit davantage. Il fit volte-face, mais ses pupilles se rétractèrent soudainement : une autre bête de feu venait d'apparaître derrière lui.
+
+À cet instant, dans l'étroit tunnel, deux bêtes de feu bloquaient les deux issues. Serrant les dents, il lança le morceau de métal. L'objet commença à creuser un nouveau tunnel et Wang Lin s'y engouffra rapidement.
+
+Mais au même moment, les deux bêtes de feu poussèrent des rugissements soudains. Le cœur de Wang Lin sombra. La terre autour de lui devint brusquement rouge et se durcit jusqu'à former une cage. Wang Lin était pris au piège.
+
+La cage se referma sur lui jusqu'à l'enfermer complètement.
+
+Soudain, des fissures apparurent sur le sol. La terre s'effondra vers l'intérieur, formant un bassin. Une boule de terre noire se forma, emprisonnant Wang Lin à l'intérieur.
+
+Autour de cette sphère, huit bêtes de feu crachaient continuellement des flammes pour en réduire la taille. Rapidement, la boule devint de plus en plus petite, jusqu'à ce que les bêtes s'arrêtent enfin.
+
+L'une des bêtes de feu saisit la sphère de terre et bondit sur le sol, suivie par les autres. Elles retournèrent bientôt dans la grotte où elles se trouvaient initialement.
+
+La créature jeta la boule de terre dans la lave avant de plonger à son tour avec ses semblables. Elles disparurent toutes dans la lave, qui ne fit que quelques bulles avant de s'apaiser.
+
+Les volcans environnants cessèrent de cracher leur fumée noire et la vague de chaleur se dissipa. Hormis le bassin géant formé par les bêtes de feu, aucune autre trace de l'événement ne subsistait.
+
+Et les bassins étaient très communs à Hou Fen. Presque chaque volcan était bordé de cuvettes, grandes ou petites.
+
+Wang Lin serra son corps pour résister aux ondes de chaleur intense. Au moment où la terre l'avait enveloppé, il avait recouvert son corps de son Sens Divin du Royaume Ji. Actuellement, son sens divin dissolvait lentement la sphère de terre.
+
+Il sentait distinctement qu'il tremblait. Dans un sursaut, il eut l'impression d'être projeté au sol. Son sens divin ayant désormais brisé la restriction de la boule de terre, il pouvait voir clairement ce qui l'entourait.
+
+Devant lui s'étendait un lac de lave sans fin. D'innombrables ouvertures surplombaient la scène, et la lave coulait dans ce gouffre infini par ces interstices.
+
+La sphère de terre dans laquelle il était piégé flottait désormais sur la lave. Autour de lui, sept ou huit autres sphères flottaient également, chacune surmontée d'une bête de feu.
+
+En scrutant la lave, il aperçut d'innombrables yeux triangulaires. L'une des bêtes de feu jaillit du magma pour s'asseoir sur la sphère de Wang Lin. Les créatures ne remarquèrent absolument pas son Sens Divin.
+
+Le temps passa lentement et de nouvelles bêtes de feu apparurent, descendant des tunnels supérieurs. Chaque groupe transportait également une sphère de terre.
+
+Soudain, l'ensemble du lac de lave se mit à trembler. Chaque bête de feu creusa rapidement une ouverture d'où émergea une bête de feu géante. Wang Lin retira promptement son sens divin et commença à observer attentivement.
+
+Une bête de feu normale ne mesurait que trois pieds de haut, mais la tête seule de cette créature géante dépassait déjà les dix pieds. Lentement, une grande partie de son corps apparut. Avec cette masse colossale vint une pression écrasante qui força toutes les petites bêtes de feu à l'immobilité.
+
+Le cœur de Wang Lin fut frappé de stupeur. La puissance de cette bête géante atteignait au moins le stade de l'Âme Naissante. Quant à sa force exacte, il était incapable de la déterminer, n'ayant jamais rencontré de cultivateur de la Formation de l'Âme auparavant.
+
+La grande bête de feu inspecta les environs avant de se déplacer vers la gauche. Bientôt, une autre apparut. Elles surgirent une à une, jusqu'à ce que seize créatures géantes soient présentes.
+
+Ces seize bêtes formèrent un cercle. Une fois le cercle complété, un anneau de feu translucide apparut au centre, émanant une lumière multicolore.
+
+Wang Lin observa attentivement et vit une silhouette se solidifier lentement pour former une boule de feu de la taille d'un poing.
+
+De fines lignes rouges reliaient la boule de feu à l'anneau flamboyant.
+
+Dès que la sphère ardente apparut, les seize géantes poussèrent des rugissements. L'une après l'autre, elles bondirent hors du lac de lave pour s'agenouiller sur le magma. Toutes les petites bêtes de feu firent de même.
+
+Alors qu'il observait la scène, Wang Lin ressentit soudain un choc cérébral : la perle défiant le ciel apparut de sa propre initiative pour la première fois. S'il ne l'arrêtait pas immédiatement, elle aurait brisé la sphère de terre.
+
+À cet instant précis, une bête de feu saisit la sphère sous elle et la lança vers la boule de feu. La sphère de terre s'immobilisa net en plein vol, et la boule de feu pénétra rapidement à l'intérieur. Le bruit d'aspiration résonna distinctement dans le silence de la grotte.
+
+Un cri glaçant jaillit de l'intérieur de la sphère. Le hurlement persista, mais s'affaiblit progressivement jusqu'au silence total. Bientôt, de fines volutes de brume sanglante s'échappèrent de la sphère, et la boule de feu en ressortit.
+
+La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de Wang Lin sombra à son tour. Il comprenait désormais qu'il n'était pas le seul être vivant enfermé dans ces sphères. Même sans protection, la sphère ne l'aurait pas tué ; au pire, il aurait été plongé dans un sommeil profond.
+
+Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent plus d'une demi-heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
+
+La perle défiant le ciel trembla violemment et, avec une impulsion sans précédent, elle brisa le contrôle de Wang Lin. C'est à ce moment précis que la boule de feu pénétra dans la sphère de terre où il se trouvait.

@@ -1,0 +1,121 @@
+---
+n: 1205
+title: Fierté
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1205 - Pride
+slug: fierte
+---
+Wang Lin s'assit sur la tête de la statue. Il savait que si Maître Ashen Pine avait pu restaurer son corps et obtenir cette marque de foudre, c'était en lien étroit avec cette statue de pierre.
+
+L'une des âmes naissantes de sang de Maître Ashen Pine avait cultivé la méthode laissée dans cette statue. Grâce à sa puissance de compréhension décuplée, il n'en avait obtenu qu'une infime partie de l'héritage.
+
+Désormais, Wang Lin avait absorbé la majeure partie de cet héritage lors de leur combat grâce à son contrôle du tonnerre, et tout cela était concentré dans son œil droit.
+
+À cet instant, il prit une profonde inspiration et son sens divin enveloppa la statue. La foudre jaillit de son œil droit pour l'entourer. Aussitôt, la marque de foudre sur la statue brilla intensément et des craquements résonnèrent.
+
+Un faible rugissement retentit.
+
+Wang Lin gardait les yeux clos tandis que son sens divin enveloppait la statue de pierre et que la foudre l'encerclait. Il possédait une âme originelle de dragon de tonnerre ancien et exerçait le contrôle sur le tonnerre céleste. Tout le tonnerre devait obéir à ses ordres !
+
+Cependant, la foudre émanant de la statue dégageait une aura antique empreinte de fierté. Elle gravitait autour de la statue et ne cessait de heurter le tonnerre que Wang Lin contrôlait.
+
+De loin, on ne pouvait percevoir qu'une sphère de tonnerre entourant la statue, tandis que des éclairs jaillissaient de toutes parts. Les grondements du tonnerre continuaient de résonner.
+
+C'était une bataille entre la foudre et le tonnerre ; un combat pour la domination !
+
+Wang Lin ne cherchait pas à comprendre comme Maître Ashen Pine. Il ne s'inclinait pas devant la marque de foudre de la statue pour en saisir l'essence. Il ne se soumettait pas à cette marque tel un serviteur pour augmenter sa propre compréhension.
+
+Maître Ashen Pine était comme un mendiant qui avait attendu une éternité pour obtenir les derniers vestiges de la puissance de la foudre afin de les transformer en son propre sortilège. Cela lui avait même permis d'invoquer le septième esprit du Royaume Scellé, capable de blesser le corps de Dieu Ancien de Wang Lin !
+
+Maître Ashen Pine avait choisi la voie de la soumission. Il considérait cette statue comme un dieu et avait chargé l'une de ses âmes naissantes de la comprendre et de la vénérer.
+
+Il n'y avait aucun danger dans cette voie ; tant que l'on était digne, on pouvait en récolter les fruits.
+
+Mais comment Wang Lin aurait-il pu choisir ce chemin ? Lui qui osait défier les cieux ! Il agissait selon son bon vouloir en parcourant le monde et affrontait les cieux sans trembler. Il avait défié le ciel pour forger son propre Dao et osait rivaliser avec lui !
+
+Il ne vénérerait jamais cette simple statue comme l'avait fait Maître Ashen Pine, même si la foudre à l'intérieur de la statue était capable de faire trembler les cieux et d'invoquer le septième esprit du Royaume Scellé !
+
+Ce qu'il exigeait, c'était que la foudre de la statue se soumette ! Qu'elle s'incline devant lui ! Il ne voulait pas comprendre la foudre de la statue, il voulait l'absorber intégralement ! Il voulait la forcer à le vénérer !
+
+Telle était sa fierté : la fierté d'un cultivateur défiant les cieux et la dignité d'un Dieu Ancien !
+
+Parmi les innombrables clans du monde antique, lequel pouvait égaler le clan des Dieux Anciens ?
+
+Comme le Clan Dévorant la Lune. Wang Lin avait appris de Ling Er qu'ils n'étaient que les serviteurs des Dieux Anciens. Si le Clan Dévorant la Lune était ainsi, alors ce clan de la marque de foudre, qui semblait également appartenir au Royaume Extérieur, devait lui aussi se soumettre !
+
+Wang Lin ouvrit les yeux et révéla un regard d'une tyrannie absolue. Il laissa échapper un froid reniflement et sa main droite s'abattit sur la tête de la statue de pierre. Un grondement tonnerre retentit, mais la statue ne s'effondra pas. Au contraire, un éclair assourdissant jaillit vers le ciel avant de se transformer en un dragon de foudre qui chargea Wang Lin !
+
+En fonçant, il absorba toute la foudre environnante. Il se rapprocha de Wang Lin avec une aura féroce et démente !
+
+Ce dragon de foudre était féroce, mais Wang Lin l'était plus encore. Ce dragon de foudre était fou, mais Wang Lin l'était dix fois, cent fois plus !
+
+Au moment où il allait le percuter, un éclair jaillit de l'œil droit de Wang Lin. Un vortex apparut entre ses sourcils et le dragon de tonnerre ancien descendit dans le Royaume aux Sept Couleurs !
+
+Dans un rugissement, l'âme originelle du dragon de tonnerre de Wang Lin entra en collision avec le dragon de foudre et commença à le dévorer avec frénésie.
+
+Au fil de cette dévoration constante, les étoiles d'un Dieu Ancien apparurent vaguement derrière le vortex et la puissance d'un Dieu Ancien emplit son corps. Sa main droite s'étira impitoyablement tandis que l'image d'un Dieu Ancien se matérialisait. Wang Lin saisit le dragon de foudre et le broya sans aucune pitié !
+
+Tandis que le dragon de foudre luttait contre l'âme originelle de Wang Lin, son corps trembla et il poussa un rugissement pour tenter de s'extirper de sa prise. Cependant, la main du Dieu Ancien le maintenait fermement et, à chaque pression, d'immenses quantités de foudre jaillissaient.
+
+À cet instant précis, l'âme originelle de Wang Lin jaillit et dévora ce dragon de foudre avant de retourner dans son corps.
+
+Le tonnerre dans son œil droit devint plusieurs fois plus puissant. Cela rendit le corps entier de Wang Lin flou, mais son œil droit émit une lueur intense !
+
+« Tout le tonnerre du monde doit obéir à mes ordres ! » La voix de Wang Lin était calme, mais une aura invisible se propagea. Toute la foudre dispersée se rassembla immédiatement dans l'œil de Wang Lin pour former une marque de foudre !
+
+Dès que la marque de foudre apparut dans l'œil droit de Wang Lin, de nombreuses fissures éclatèrent sur la statue de pierre. Elles commencèrent aux pieds et se propagèrent avec frénésie, tels des dragons chargeant vers Wang Lin, posté au sommet de la statue.
+
+Les bruits de craquements étaient assourdissants et des éclats lumineux jaillissaient des fissures. La statue semblait sur le point de se fragmenter, mais elle demeurait immobile.
+
+La foudre bougeait à l'intérieur des fissures et s'approcha instantanément de Wang Lin. Un grondement tonnerre retentit alors que la foudre serpentait comme d'innombrables serpents argentés autour du corps de Wang Lin, formant une sphère géante de foudre de plus de mille pieds de large !
+
+Wang Lin se trouvait au cœur de cette sphère. La foudre se débattait et refusait d'être contrôlée par lui. Puis, elle commença à se contracter frénétiquement vers lui !
+
+Wang Lin laissa échapper un reniflement glacial alors que la foudre enveloppait son corps. Bien que son niveau de culture ne puisse égaler celui de la statue, son âme originelle était celle d'un dragon de tonnerre ancien. Il était le maître du tonnerre en ce monde. Tant qu'il s'agissait de tonnerre, cela n'était pas digne de le défier !
+
+Cela n'avait rien à voir avec la culture ; c'était une bataille de tonnerre !
+
+Les dragons de tonnerre anciens s'étaient vu accorder par le Dao céleste le droit de contrôler le tonnerre. Mais Wang Lin ne croyait pas aux cieux et allait utiliser son propre Dao pour dérober aux cieux le droit de commander au tonnerre !
+
+La statue de pierre était l'ancêtre du Clan de l'Éclair de Tonnerre. Bien que mort, il avait passé sa vie avec le tonnerre pour seul compagnon, au point de devenir presque lui-même le tonnerre. La marque de foudre entre ses sourcils refusait de céder ! La rumeur disait que l'ancêtre originel du Clan de l'Éclair de Tonnerre était un éclair lui-même ; un éclair défiant les cieux qui ne s'inclinerait même pas devant le firmament !
+
+Si d'autres le vénéraient, ils obtenaient le droit de contrôler le tonnerre. Mais si l'on lui résistait, on était détruit par le tonnerre !
+
+Pourtant, Wang Lin allait lui résister. La foudre clignota dans son œil droit et l'âme originelle du dragon de tonnerre ancien s'élança. Alors que la sphère de foudre se refermait, elle poussa un rugissement. Ce cri portait en lui la majesté nécessaire pour commander tout le tonnerre du monde !
+
+La sphère de foudre continua de se contracter, mais elle s'arrêta à dix pieds de Wang Lin. Un grondement assourdissant retentit, mais elle ne put reculer d'un pouce supplémentaire !
+
+Wang Lin s'était déjà redressé. Il ressemblait à une divinité du tonnerre !
+
+L'aura d'un Dieu Ancien émanait de son corps. Si un Dieu Ancien et le tonnerre pouvaient fusionner, alors il était un Dieu Ancien du Tonnerre !
+
+Wang Lin envoya un message par sens divin : « Cède ou sois détruit ! » Il savait que la foudre autour de lui n'était pas ordinaire ; elle possédait sa propre volonté !
+
+Si elle avait une volonté, c'était un esprit ! Cette foudre était un esprit du tonnerre formé par la volonté de l'être défunt !
+
+Des grondements résonnèrent. La sphère de foudre autour de Wang Lin sembla trembler sous la puissance du tonnerre émanant de lui. De plus, sous l'impact de son aura de Dieu Ancien, elle finit par céder.
+
+La sphère se transforma en rayons de foudre et chargea vers l'âme originelle du dragon de tonnerre ancien. Elle poussa un rugissement qui fit trembler les cieux et s'agrandit soudainement. La statue de pierre vacilla comme si elle allait s'effondrer.
+
+Wang Lin fit un pas en avant, marchant sur le vide. Il se retourna et fixa la marque de foudre entre les sourcils de la statue qui ne s'était toujours pas dissipée.
+
+« Désormais, votre clan ne pourra plus contester mon droit sur le tonnerre ! » L'œil droit de Wang Lin s'illumina et l'âme originelle du dragon de tonnerre ancien poussa un rugissement en s'enroulant autour de lui. Elle fusionna avec le tonnerre issu de son œil et chargea la marque de foudre sur la statue.
+
+Le dragon sur la marque entre les sourcils de la statue et la statue elle-même tremblèrent plus violemment encore. Au moment précis où le dragon toucha sa cible, les yeux de la statue s'illuminèrent et Wang Lin aperçut un système stellaire à l'intérieur.
+
+Une formation gigantesque couvrait de nombreux champs stellaires. À l'extérieur, des cultivateurs portant des vêtements étranges observaient la scène. Il était évident qu'ils n'étaient pas des cultivateurs ! Leurs visages exprimaient l'indifférence, le sarcasme et le dédain alors qu'ils scrutaient l'intérieur de la formation.
+
+L'intérieur de la formation était saturé d'énergie spirituelle céleste et de vagues d'énergie originelle. D'innombrables anciens cultivateurs du Qi et êtres célestes attaquaient la formation avec frénésie dans une tentative désespérée de s'en échapper.
+
+Cependant, cette formation était extrêmement étrange et difficile à briser. Peu importaient les assauts de ces cultivateurs et de ces êtres célestes, la formation ne bougeait pas d'un iota ! Certains êtres célestes allèrent jusqu'à sacrifier leur vie en explosant, mais cela n'altéra pas la formation d'un cheveu. Un sentiment de tristesse et de désespoir enveloppait l'intérieur de la formation.
+
+Neuf rayons de lumière clignotaient à l'intérieur. L'un d'eux était une hache. Lorsqu'elle fendait l'air, quiconque osait tenter de passer mourait sur le coup.
+
+Wang Lin vit même de nombreux cultivateurs du Qi décider de s'autodétruire dans leur désespoir pour tenter d'arrêter cette hache capable de fendre le ciel, mais ils échouèrent !
+
+Parmi les neuf rayons, il y en avait un autre : un éclair. Partout où il passait, que ce soit devant des cultivateurs ou des êtres célestes, la mort était inévitable !
+
+L'indifférence et le dédain dans le regard de ceux qui étaient à l'extérieur s'accentuèrent. C'était comme si des nobles observaient des mortels semblables à des fourmis !
+
+« Je refuse que cela continue ! Je refuse ! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera votre extinction, vous les étrangers ! Des rivières de sang couleront dans votre Royaume Extérieur ! » hurla un être céleste touché par l'éclair juste avant de mourir.

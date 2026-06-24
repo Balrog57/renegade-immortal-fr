@@ -1,0 +1,137 @@
+---
+n: 719
+title: "Absorption de la Perle Défiant le Ciel et Trésor de l'Avarice"
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 719 - Heaven Defying Bead Absorption and Greeds Treasure
+slug: absorption-de-la-perle-defiant-le-ciel-et-tresor-de-lavarice
+---
+Un corps nu déchira une ouverture depuis l'intérieur du cocon et en sortit lentement. Un tonnerre impétueux jaillit de la brèche. Ce tonnerre ne provenait pas du cocon, mais du corps lui-même.
+
+C'était Wang Lin !
+
+Wang Lin prit une profonde inspiration en contemplant son propre corps, une expression étrange sur le visage.
+
+Il avait passé soixante ans à absorber une quantité immense de tonnerre et de vitalité pour façonner ce corps. Cette enveloppe charnelle contenait la puissance du tonnerre et entretenait un lien étroit avec l'éclair résidant dans son âme originelle.
+
+D'une simple pensée, l'âme originelle de Wang Lin quitta son corps. Après avoir erré un instant, elle réintégra son enveloppe.
+
+Un rire long et sonore s'échappa de la bouche de Wang Lin. Ce son ressemblait au grondement du tonnerre !
+
+Le rugissement de l'éclair résonna à travers le monde, tel un cri défiant les cieux.
+
+« J'ai obtenu une nouvelle vie. Je ne dois pas la gaspiller ! » Wang Lin agita la main et son sac de rangement émergea de son âme originelle ; aussitôt, une robe blanche enveloppa son corps.
+
+Il atterrit au sol et s'assit en position du lotus. Son regard se posa sur la montagne qui ressemblait à un dragon accroupi.
+
+Les yeux de Wang Lin brillèrent et il frappa son sac de rangement. Le drapeau des mille millions d'âmes apparut dans sa main. Il agita la main et d'innombrables fragments d'âmes s'envolèrent. Si le tonnerre qui entourait la planète était encore présent, ces fragments d'âmes n'auraient absolument pas pu résister à un tel environnement.
+
+La masse de fragments d'âmes se rassembla pour former trois âmes primordiales qui commencèrent à errer dans la région.
+
+Une fois la protection établie, Wang Lin déploya son sens divin et inspecta soigneusement les environs. Après s'être assuré que la zone était sûre, il prit une profonde inspiration et pressa sa main droite entre ses sourcils. Une ondulation apparut sur son front et une perle cristalline se forma lentement.
+
+Les yeux de Wang Lin brillaient comme le feu alors qu'il exécutait un sceau manuel et pointait du doigt. La Perle Défiant le Ciel s'envola immédiatement pour atterrir sur l'os de Moongazer, lequel avait la forme d'une montagne.
+
+Comparée à l'immense montagne, la Perle Défiant le Ciel paraissait insignifiante.
+
+L'expression de Wang Lin était extrêmement prudente. Cette perle était son trésor numéro un, issu du Système Stellaire d'Allheaven. Son sens divin restait déployé ; au moindre signe de trouble, il prendrait immédiatement les mesures nécessaires.
+
+C'est pour cette raison qu'il avait dû attendre que son corps soit totalement formé avant de sortir la Perle Défiant le Ciel. Sans son corps, il ne pouvait user de toute sa puissance. Sortir la perle prématurément aurait été trop dangereux et imprudent.
+
+La Perle Défiant le Ciel émit une lueur dorée. Sous cette lumière, l'os de Moongazer trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
+
+Ce processus était extrêmement lent, et Wang Lin n'en comprenait pas la raison. Contrairement à l'absorption de l'élément eau, plus la perle approchait de sa complétion, plus l'absorption devenait lente.
+
+Le sens divin de Wang Lin continuait de balayer les environs, toujours en état d'alerte maximale. Il envoya même sa quatrième âme se cacher quelque part près de la planète.
+
+Wang Lin utilisa cette quatrième âme comme tremplin pour étendre son sens divin encore plus loin.
+
+L'absorption par la Perle Défiant le Ciel était très lente ; après tout, l'os de Moongazer était tout simplement trop vaste. Après quelques jours, Wang Lin scinda une partie de son sens divin et sortit quelques trésors magiques.
+
+Ces trésors appartenaient tous à l'Avarice. C'étaient les récoltes que Wang Lin avait faites il y a soixante ans.
+
+Le premier trésor était cette montagne gigantesque. Bien qu'endommagée, l'énergie spirituelle céleste qui s'en dégageait était extrêmement riche. Mieux encore, l'empreinte du sens divin de l'Avarice s'était déjà dissipée.
+
+C'était l'une des raisons pour lesquelles Wang Lin était si tenté.
+
+La dissipation du sens divin de l'Avarice ne signifiait pas qu'il était mort ; elle avait été effacée après cent ans d'assimilation avec l'os de Moongazer.
+
+Wang Lin posa sa main droite sur la montagne et se remémora le moment où l'Avarice avait extrait l'âme de la montagne. Les yeux calmes, il frotta légèrement la roche.
+
+Wang Lin gardait un souvenir profond de l'extraction des âmes d'objets dotés d'un esprit, tels que les planètes, les montagnes ou les rivières. C'était une prouesse que seuls les cultivateurs du second niveau étaient censés pouvoir accomplir, mais Wang Lin l'avait expérimentée personnellement lorsque le Démon Dispersé avait contrôlé son corps.
+
+Alors qu'il frottait la montagne de sa main droite, celle-ci s'arrêta soudainement et ses yeux s'illuminèrent d'une lueur étrange. Il leva lentement la main ; une aura ancienne, chargée d'une riche énergie spirituelle céleste, émana alors du rocher. Tandis qu'il levait la main, une sphère de brume illusoire se forma entre sa paume et la montagne.
+
+Il leva sa main avec une extrême délicatesse. Son regard était aussi vif que l'éclair alors qu'il fixait la petite boule de brume.
+
+Cette petite sphère dégageait une aura puissante. Ce qui choqua le plus Wang Lin, c'était que l'énergie spirituelle céleste était parfaitement contenue dans la sphère, comme si un être céleste utilisait ce sortilège.
+
+« Bien que cette âme de montagne soit bien plus faible qu'à l'époque où l'Avarice l'utilisait, elle n'en reste pas moins extrêmement puissante ! Cependant, l'âme de la montagne est très instable ; si je suis imprudent, loin de blesser l'ennemi, elle pourrait bien se retourner contre moi. » Les yeux de Wang Lin brillèrent.
+
+Il savait que cela était dû au fait que la montagne n'était pas complète, ce qui avait endommagé l'âme de la montagne.
+
+De plus, il n'y eut aucune résistance lorsqu'il tenta d'extraire l'âme de la montagne. C'était comme si Wang Lin pouvait le faire par une simple pensée. Ce fut ce qui le stupéfia réellement. Ses yeux étincelèrent alors que sa main droite pressait doucement la montagne, faisant ainsi retourner l'âme en son sein.
+
+Wang Lin pressa immédiatement sa main droite contre la terre. D'une seule pensée, il leva la main et toute la planète sembla trembler. Toutefois, ce n'était qu'une sensation perçue par son sens divin ; en réalité, la terre n'avait pas bougé d'un pouce !
+
+Dès l'apparition de l'aura ancienne, celle-ci se dissipa aussitôt. C'était comme si l'on avait jeté un seau en bois dans un puits pour en remonter un plein ; mais sur la remontée, le fond du seau s'était brisé, et toute l'eau était retombée au fond du puits.
+
+La personne qui tirait le seau ressentirait naturellement une secousse. Si elle était distraite, elle pourrait se blesser.
+
+Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la planète. Au moment où l'aura ancienne se dissipa, une force puissante percuta son corps. Des craquements résonnèrent dans ses os et son visage pâlit. Il lui fallut un certain temps pour s'en remettre.
+
+En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. La valeur de ce mont résidait dans le fait qu'il lui permettait d'expérimenter le sort d'extraction d'âme, normalement réservé aux cultivateurs du second niveau.
+
+« Cet objet me sera très utile. Je me demande simplement comment l'Avarice a pu le découvrir et l'affiner ! » Bien que l'Avarice fût l'ennemi de Wang Lin, la vue de ce sort lui inspira une certaine admiration pour lui.
+
+« Le Dragon de Tonnerre Ancien, la Montagne Céleste, le Fourneau du Dieu Ancien, l'Écran des Montagnes et des Rivières, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de l'Avarice. Il est véritablement béni par les cieux ! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à l'Avarice.
+
+Cela le laissait totalement perplexe.
+
+Il regarda la montagne céleste et ses yeux trahirent une pointe d'excitation.
+
+« Il devrait être possible de la réparer, mais cela nécessitera de l'énergie originelle... » Wang Lin rangea l'objet, puis frappa son sac de rangement pour en sortir un autre.
+
+C'était l'Écran des Montagnes et des Rivières !
+
+Wang Lin n'avait jamais entendu parler du tableau des montagnes et des rivières. Cependant, certaines figures célèbres du monde de la culture le connaissaient parfaitement.
+
+Parmi les dix trésors célestes de haut rang du Royaume Céleste, le tableau des montagnes et des rivières était classé au cinquième rang !
+
+La rumeur prétendait que ce tableau était imprévisible. Mais sa véritable puissance ne résidait pas dans le sortilège représenté à sa surface, mais dans l'encre même du tableau !
+
+Bien que cette encre paraisse noire, elle était en réalité d'un rouge sombre, car elle était constituée de sang. C'est dans ce sang que résidait la véritable puissance de l'œuvre.
+
+On disait que le sang utilisé pour peindre les montagnes et les rivières était le sang du Tao Céleste. Or, le Tao Céleste n'ayant pas de forme, comment pouvait-il avoir du sang ? Cela demeurait un mystère éternel.
+
+Ainsi, cet objet fut également nommé le Tableau du Tao Céleste !
+
+Ce qu'avait obtenu l'Avarice n'était pas le véritable tableau des montagnes et des rivières, mais une copie imprimée sur un écran.
+
+Quant au type de sort capable d'imprimer un tel chef-d'œuvre sur un écran, l'Avarice avait beau avoir fouillé les registres anciens, il n'avait jamais réussi à en découvrir le secret.
+
+Le regard de Wang Lin se posa sur l'écran. Celui-ci semblait très simple, sans rien d'extraordinaire ; il ressemblait aux paravents que l'on trouvait dans les demeures des gens peu fortunés.
+
+Le paysage des montagnes et des rivières paraissait légèrement flou, mais en le fixant longuement, il devenait extrêmement net.
+
+Cependant, à cet instant, une fissure traversait la surface de la gauche, comme si elle divisait les monts et les eaux. Cela rendait l'ensemble très déséquilibré.
+
+L'empreinte du sens divin sur ce trésor s'était depuis longtemps effondrée sous la puissance du doigt du Dieu Ancien. Wang Lin agita sa main droite pour y déposer sa propre empreinte. Après une courte réflexion, il ouvrit la bouche et aspira l'écran dans son âme originelle.
+
+Il commença à affiner cet objet en utilisant le tonnerre de son âme originelle.
+
+Le dernier trésor magique était la couronne. Wang Lin avait constaté personnellement que, sous la puissance du doigt du Dieu Ancien du Serpent Regardant la Lune, pas une seule fissure n'était apparue sur la couronne !
+
+Tenant l'objet de la main gauche, Wang Lin le scruta avec son sens divin et ne trouva rien d'anormal. Elle ressemblait à la couronne d'un empereur mortel, sans particularité apparente.
+
+Cependant, les cinq perles qui la décoraient attirèrent son attention. Wang Lin comprit immédiatement que ces cinq perles contenaient le pouvoir des cinq éléments !
+
+Ces cinq éléments étaient similaires aux esprits élémentaires de Red Butterfly, mais dotés d'une vitalité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme l'Avarice l'avait fait.
+
+À cet instant, une force mystérieuse émana immédiatement du sommet de la tête de Wang Lin. Après avoir parcouru son corps, elle retourna dans la couronne et resta inactive.
+
+Les yeux de Wang Lin prirent une teinte étrange. Il retira la couronne et l'examina avec attention avant de songer :
+
+« Cette puissance n'était pas très forte. En traversant mon corps, on aurait dit qu'elle cherchait quelque chose. N'ayant rien trouvé, elle est finalement retournée dans la couronne... Que cherchait-elle ? »
+
+« Perles des cinq éléments... Cherchant... » Wang Lin fut saisi de stupeur. Ses yeux brillèrent et il murmura doucement : « Corps pseudo-élémentaire des cinq éléments... Red Butterfly... »

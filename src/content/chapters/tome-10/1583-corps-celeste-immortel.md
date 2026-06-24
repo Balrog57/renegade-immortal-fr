@@ -1,0 +1,127 @@
+---
+n: 1583
+title: "Corps Céleste Immortel !"
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: "Chapter 1583 - Immortal Celestial Body!"
+slug: corps-celeste-immortel
+---
+Chapitre 1583 - Corps Céleste Immortel !
+
+Ce sort de divination était similaire à celui que possédait l'Omniscient, mais cette femme l'utilisait d'une manière très différente. Après qu'elle eut parlé, des cercles noirs de la taille d'un poing apparurent sur tout le corps de Wang Lin.
+
+Dès leur apparition, les cercles noirs commencèrent à s'infecter. Le corps de Wang Lin trembla et il eut la sensation que la mort approchait.
+
+« Je prédis que votre corps pourrira au premier souffle ! » La femme sourit en regardant Wang Lin.
+
+Les nombreux cercles noirs qui recouvraient le corps de Wang Lin pénétrèrent profondément en lui, jusqu'à ce que ses os soient visibles. Même ses os devinrent noirs et commencèrent à se briser.
+
+La musique de la harpe devint encore plus pressante et fusionna avec les paroles douces de la femme. Elle s'engouffra dans les cercles noirs infectés et déchira son corps.
+
+« Je prédis que vos os s'effondreront au deuxième souffle ! »
+
+Des craquements retentirent dans le corps de Wang Lin, et d'innombrables fissures apparurent sur ses os noircis. Les fractures se propagèrent jusqu'à ce que même son crâne subisse le même sort !
+
+Si son corps était transparent, on verrait clairement que tous ses os étaient sur le point de s'effondrer sous l'extension des fissures noires. Certaines parties s'étaient déjà brisées.
+
+La douleur infligée ici n'était pas moins intense que celle qu'il avait ressentie lors du sort des Cinq Enterrements de la première concubine impériale céleste. Tandis que Wang Lin reculait, toute sa force vitale se dissipait rapidement et il marchait lentement vers la mort.
+
+Il était déjà gravement blessé et parvenait à peine à réprimer la force de rejet qui faisait rage dans son corps. Ses cinq organes internes avaient disparu, et désormais, sous l'effet du sort de divination, il touchait à sa fin.
+
+Pourtant, Wang Lin n'avait toujours pas sorti l'arc. Bien qu'il soit mourant, il n'était pas encore mort. Le Souverain n'était pas apparu, et il ne croyait pas que ces deux concubines impériales célestes soient les dernières.
+
+Wang Lin savait qu'il n'aurait le pouvoir d'utiliser l'arc qu'une seule fois. Si cette flèche ne pouvait blesser gravement le Souverain et tous ceux présents ici, alors il mourrait véritablement !
+
+Il ne pourrait sortir l'arc qu'à l'ultime instant !
+
+La femme regarda Wang Lin avec douceur, de la même manière qu'elle regarderait un amant. Sa main de jade pointa vers lui tandis qu'elle prononçait les derniers mots : « Je prédis le troisième souffle... La mort de l'âme. »
+
+Sa voix était suave et fusionnait avec la musique de la harpe ! Les deux concubines impériales célestes utilisaient des méthodes différentes simultanément pour tuer Wang Lin !
+
+Leurs pouvoirs étaient entrelacés ; une partie perturbait l'esprit de Wang Lin tandis que l'autre utilisait le sort de divination pour le supprimer. Les deux se complétaient, rendant évident qu'il s'agissait d'un plan orchestré.
+
+Au moment même où elle prononçait ces derniers mots, Wang Lin laissa échapper un rugissement terrifiant. Il ne comprenait pas ce sort de divination, mais il sentait qu'il contenait une force destructrice colossale.
+
+La chair de Wang Lin s'infecta et ses os se brisèrent. Une douleur intense l'envahit, son corps montrant des signes d'effondrement imminent ! Cependant, à cet instant précis, Wang Lin leva la main droite et frappa son propre front !
+
+À ce contact, son corps gronda. Son être était une fusion de l'ancien et du céleste, après s'être effondré et reformé maintes fois au sein de la Bête du Néant.
+
+Grâce au travail acharné du fou, son corps céleste représentait désormais 50 % du Corps Céleste Immortel ! Bien qu'imparfait, il contenait déjà le pouvoir de l'immortalité !
+
+Sans cette crise, Wang Lin n'aurait pas changé. Mais une fois la transformation amorcée, la force de rejet à l'intérieur de son corps allait éclater et devenir incontrôlable.
+
+Tout au long de ce processus, bien que la force de rejet ait fait rage en lui, Wang Lin l'avait maintenue sous contrôle. Cependant, en passant de son corps ancien à son corps céleste, son contrôle allait s'effondrer.
+
+Une fois que la force de rejet aurait complètement éclaté, Wang Lin perdrait toute chance de la réprimer. Ce serait comme un cheval sauvage s'échappant de ses rênes : il serait impossible de le capturer de nouveau !
+
+Cependant, à cet instant, il n'avait pas le temps d'y réfléchir. Alors que son âme était sur le point de s'effondrer, sa main se posa et une lumière dorée jaillit de son corps.
+
+Cette lueur était éclatante et se propagea dans toutes les directions. Même la planète Suzaku, au loin, fut baignée d'or par cette lumière.
+
+L'homme à l'intérieur de la glace avait fait fondre sa prison et sortait à peine, le visage pâle. Il vit immédiatement cette lumière dorée aveuglante et son expression changea de nouveau.
+
+Tandis que la lumière se répandait, le corps divin ancien de Wang Lin se dissipa pour se nicher au cœur de ses étoiles divines anciennes. Son être émit une lumière dorée infinie et devint le Corps Céleste Immortel !
+
+À l'apparition du Corps Céleste Immortel, l'expression de la femme aux paroles douces changea radicalement. Ses yeux étaient empreints d'incrédulité. Elle venait du même monde que le Souverain Céleste. En voyant la transformation de Wang Lin, elle pensa à une légende !
+
+Lorsque le Corps Céleste Immortel de Wang Lin apparut, l'étrange sort de divination en lui explosa. Le corps immortel de Wang Lin s'effondra.
+
+Pourtant, juste au moment de son effondrement, un éclair de lumière dorée jaillit et il se reforma !
+
+La femme à l'expression douce recracha un sang illusoire et recula de quelques pas. Son sort de divination était détruit et son esprit blessé ! Cependant, rien de tout cela ne pesait face à la terreur et à l'incrédulité qu'elle ressentait !
+
+Elle avait pressenti que l'apparence originale de Wang Lin lui semblait familière et elle nourrissait des soupçons. Mais après avoir vu son corps s'effondrer et se reconstruire à partir de la lumière dorée, son expression changea totalement !
+
+« Corps Céleste Immortel !! » La femme sursauta et recula par réflexe, les yeux emplis de peur.
+
+« Vous... Vous possédez réellement le Corps Céleste Immortel. Le Corps Céleste Immortel que tous les êtres célestes vénèrent ! Vous n'êtes pas un cultivateur natif d'ici, vous... Qui êtes-vous donc et quel est votre lien avec l'Empereur du Ciel Céleste ?! » La femme était ébranlée par les mutations de Wang Lin. Son esprit vacillait comme si d'innombrables éclairs célestes avaient explosé en elle.
+
+« Je ne peux pas... je ne peux pas le tuer !! » Ce changement lui inspirait une peur extrême, bien plus intense que lorsqu'elle avait affronté le Souverain Céleste.
+
+Non seulement elle, mais la femme jouant de la harpe trembla également, et son jeu s'interrompit. Elle fixait, stupéfaite, Wang Lin enveloppé dans cette lumière dorée.
+
+Au cœur de cet éclat, une tempête faisait rage dans le corps de Wang Lin. Cette tempête était la force de rejet qui avait pleinement éclaté. Son corps s'effondra soudainement sous les yeux des deux concubines impériales célestes !
+
+Après l'effondrement, il se reforma.
+
+Une fois que cela se répéta plusieurs fois, la femme qui avait cessé de jouer serra les dents. À ce moment-là, la lune noire s'étendait davantage. Si elle ne tuait pas Wang Lin, non seulement sa projection serait détruite, mais son corps original en subirait les conséquences.
+
+« Ce Corps Céleste Immortel n'est pas complet, il a manifestement été volé. Tuez-le ! » La femme grimaça et saisit la harpe. Elle tira sur les cordes et le monde trembla tandis qu'une musique de harpe fracassante résonnait.
+
+Alors que la musique s'élevait, des lames floues apparurent devant l'instrument. Elle cracha du sang pour imprégner ces lames avant de les projeter vers Wang Lin.
+
+Tout cela se produisit en un instant. Entre deux effondrements et reformations, les yeux de Wang Lin étaient injectés de sang à cause de la douleur. Il poussa un rugissement et ses mains formèrent un sceau. Juste au moment où les neuf lames approchaient, il fit un geste de la main.
+
+D'un revers de main, son corps s'effondra une fois de plus.
+
+Bien que son corps se fût effondré, le sort fut tout de même exécuté. Le monde devint sombre comme s'il était enveloppé d'obscurité. Puis, au loin, un soleil commença à poindre.
+
+Sundered Night, le premier sort original de Wang Lin !
+
+Le monde était trouble dans cette obscurité, mais cela ne pouvait masquer la lumière dorée entourant le corps décharné de Wang Lin. Cette lueur sembla fusionner avec le soleil levant et explosa avec la puissance nécessaire pour déchirer les ténèbres.
+
+La puissance de Sundered Night éclata.
+
+À cet instant, le corps de Wang Lin se reforma une nouvelle fois. Il poussa un rugissement, le visage tordu par une douleur si intense qu'elle le rendait presque fou. Il agita la main et l'eau sous ses pieds gronda. Une porte de pierre gigantesque apparut !
+
+Dès que la porte surgit, une aura de temps évanescent enveloppa les environs. Le second sort original de Wang Lin, Flowing Time, fit son apparition.
+
+Sundered Night et Flowing Time étaient des sorts extraordinaires. Alors que le corps de Wang Lin continuait de s'effondrer et de se reconstruire, ces sorts absorbaient son énergie céleste pour devenir encore plus puissants !
+
+Le monde trembla et l'obscurité fut lacérée par la lumière dorée. Quatre des neuf lames furent anéanties par Sundered Night. Les cinq restantes entrèrent en collision avec Flowing Time. Finalement, seules trois lames atteignirent le corps de Wang Lin, avant de s'effondrer avec lui.
+
+L'autre femme, celle qui avait émis les prédictions, recula précipitamment, prise dans l'étreinte de Sundered Night et Flowing Time. Le choc et la panique provoquaient déjà une faille dans son cœur de Dao. Frappée par ces deux sorts célestes, elle cracha du sang et s'enfuit en hâte.
+
+Elle n'avait plus aucune intention de combattre !
+
+Cependant, au moment même où Wang Lin utilisait ces deux sorts et que son corps s'effondrait pour se reformer, une silhouette floue émergea derrière lui.
+
+Il était impossible de dire si cette silhouette était un homme ou une femme, jeune ou vieille. Son corps était enveloppé d'une brume vague qui dérivait vers l'extérieur.
+
+« Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Void Gate ! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
+
+Le corps de Wang Lin trembla violemment et il cracha une gorgée de sang doré. Il fut projeté vers la planète Suzaku et s'y écrasa avec fracas.
+
+La silhouette floue ouvrit la bouche pour inhaler le sang doré que Wang Lin avait rejeté. Ses yeux brillaient d'avidité tandis que son corps se transformait en un nuage pour poursuivre Wang Lin.
+
+« Une lignée céleste... Peu importe ton identité, ce vieil homme s'emparera de ton corps immortel ! »

@@ -1,0 +1,75 @@
+---
+n: 1026
+title: "Qing Lin, tu m'as menti"
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1026 - Qing Lin, You Lied to Me
+slug: qing-lin-tu-mas-menti
+---
+Ta Shan s'approcha de la femme, mais son regard demeurait glacial. Bien qu'en tant que Gardien Céleste il conservât sa conscience, toutes ses émotions s'étaient éteintes, ne laissant place qu'à une froide indifférence.
+
+La femme leva la main et posa délicatement sa paume entre les sourcils de Ta Shan. Une puissante déferlante d'énergie s'y infiltra et brisa le sceau du Gardien Céleste.
+
+Alors que Ta Shan tremblait, d'importantes quantités de liquide doré s'échappèrent de son corps. Ce précieux fluide contenait tous les trésors magiques qui avaient servi à raffiner sa chair.
+
+En un instant, toute trace du sceau du Gardien Céleste disparut de l'être de Ta Shan. Cette extraction brutale du sceau fit frissonner Wang Lin ; heureusement qu’il n’avait contrôlé le sceau que par la force, car même si celui-ci était détruit, il n'en subirait aucun contrecoup.
+
+Privé de son sceau, les yeux de Ta Shan commencèrent à s'estomper progressivement. Il était déjà au seuil de la mort auparavant ; sans le raffinage de Wang Lin, il aurait déjà rendu l'âme.
+
+Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une aura de mort. Pourtant, comment cette femme pouvait-elle laisser Ta Shan mourir ainsi ? Elle leva sa main droite et commença à tracer des lignes entre les sourcils de l'homme, la pointe du doigt. Un trait, un trait, un trait !
+
+Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
+
+« En tant qu'Ancêtre Sainte de votre clan des Tatouages, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
+
+Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête du Néant, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête du Néant pour leur trouver un nouveau foyer.
+
+Elle avait tout vu.
+
+Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du clan des Tatouages, un flot de sang noir jaillit de ses orbites vides !
+
+« Qing Lin... Tu m'as menti !!! » La femme leva la tête et poussa un cri strident, chargé de rage. Ce hurlement était d'une virulence extrême, et le Vortex de l'Enterrement Céleste sous ses pieds devint soudainement plus intense encore. Le gémissement d'innombrables âmes s'échappait du vortex.
+
+Alors que le vortex tournait avec frénésie, une aura maléfique infinie en jaillit, jusqu'à ce qu'il soit sur le point de s'effondrer. Le visage de la femme était déformé par une expression hideuse, consumée par un ressentiment inimaginable. C'était comme si toutes les années de rancœur refoulées en elle étaient sur le point d'éclater.
+
+Alors que son cri résonnait, le vortex sembla prêt à être aspiré vers le haut. Cependant, à cet instant précis, la veine rouge qui entourait sa jambe brilla d'un éclat rubis. Cette lumière rouge sembla envelopper son corps et la clouer sur place.
+
+Pourtant, le ressentiment incommensurable scellé depuis des éternités et la colère de découvrir le mensonge de Qing Lin furent tels que la lumière qui la retenait s'effondra instantanément !
+
+Elle leva sa main droite et griffa sans pitié le vortex sous ses pieds !
+
+D'un seul geste, la terre trembla, tout comme le vortex. Même la Grotte de l'Empereur Céleste vacilla, comme si elle allait s'écrouler !
+
+Le vortex formé par le Bassin de l'Enterrement Céleste commença à se désintégrer sous sa griffe. Comme s'il était déchiré, il commença à converger vers la main droite de la femme.
+
+C’était comme si elle s'apprêtait à arracher le vortex même du sol !
+
+Ce bouleversement radical modifia profondément les environs. L'Omniscient observa la scène en silence, l'expression assombrie. Le Maître du Vide esquissa un sourire amer et secoua la tête. Ayant consulté les archives du Royaume Céleste, il connaissait quelques pans de ce passé. Les rumeurs disaient qu'elle était morte, mais en la voyant encore en vie, il fit le lien et devina ce qui s'était réellement produit autrefois.
+
+« Tu m'as menti. Tu m'avais promis que tu ne nuirais pas à mon clan et que tu leur ouvrirais un nouveau système stellaire pour qu'ils puissent y vivre. Ainsi, tes Célestiels et mon clan pourraient coexister. Ce sont là les promesses que tu m'avais faites ! Qing Lin, pourquoi m'as-tu menti !?! »
+
+Sa voix lugubre résonnait, saturée de ressentiment. Tandis que sa main droite continuait de griffer, le vortex s'effondrait davantage. En se contractant, il dévoila l'abîme sous-jacent, et toute la puissance du vortex fut aspirée dans la paume de la femme.
+
+D'innombrables âmes s'en échappèrent. La plupart étaient des Célestiels que Qing Lin avait massacrés. Elles emplirent l'espace, offrant un spectacle terrifiant.
+
+La veine rouge brilla de plus belle et des couches de lumière pourpre l'enveloppèrent. Mais au moment même où cette lumière la cerclait, elle se brisa !
+
+À cet instant, d'innombrables runes apparurent sur la veine rouge. Dès leur apparition, elles libérèrent une lueur cristalline qui s'éleva de la veine. Ces innombrables éclats de lumière se rassemblèrent devant la femme pour former une silhouette éthérée !
+
+L'être ainsi formé était un homme d'âge moyen, à la silhouette semi-transparente. Vêtu d'une robe dorée et portant ses longs cheveux attachés par un ruban jaune, il était d'une grande beauté et dégageait l'aura d'un Célestiel.
+
+Son regard était impitoyable et glacial, mais ses yeux étaient totalement dépourvus de vie.
+
+Dès que son ombre apparut, une aura telle qu'on aurait dit que lui seul pouvait régner sur le monde se propagea. À cet instant, même l'expression de puissants êtres comme l'Omniscient changea ! D'innombrables avatars de ce dernier commencèrent à apparaître autour de lui ; ce n'était pas de sa volonté, mais une réaction instinctive au choc provoqué par cette aura !
+
+« Il était encore plus puissant que cet homme !! » L'Omniscient prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être !
+
+Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue avec le Célestiel Floral !
+
+« Qing Lin ! »
+
+« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin qu'il a laissé lors du scellement de l'Ancêtre Sainte du clan des Tatouages. Il est dépourvu d'intelligence, de souvenirs et de sorts ; il ne possède que l'instinct d'empêcher cet Ancêtre Sainte de s'échapper ! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel ; si fragile qu'un souffle pourrait l'anéantir.
+
+À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans le Secte Divin de l'Oiseau Vermillon !
+
+Tout cela n'était dû qu'à l'éveil de l'Oiseau Vermillon !

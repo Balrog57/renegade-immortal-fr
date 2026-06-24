@@ -1,0 +1,115 @@
+---
+n: 1309
+title: "Chasse !!"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1309 - Hunt!!"
+slug: chasse
+---
+Chapitre 1309 - Chasse !!
+
+« Tuo Sen ! » À l'instant où Wang Lin fusionna avec le monde, une lueur de froideur traversa son regard alors qu'il contemplait la silhouette gigantesque derrière lui. Bien qu'il fût encore à distance, le corps de Tuo Sen était d'une démesure extrême. Son simple rugissement était capable de faire vaciller l'énergie originelle du monde.
+
+« Il est donc bel et bien dans le Royaume Extérieur ! » Wang Lin disparut.
+
+Peu après sa disparition, un grondement tonitruant retentit et un corps colossal surgit à l'extérieur de la Formation du Domaine Scellé. Son être exhalait une odeur de sang entêtante. Durant ces dernières années dans le Royaume Extérieur, il avait massacré clan après clan, au point de pousser les cultivateurs du troisième niveau du Système Stellaire Antique à le traquer !
+
+S'il n'y avait eu qu'un ou deux cultivateurs du troisième niveau, il ne s'en serait pas inquiété ; il est probable qu'il les aurait même éliminés. Cependant, ce n'était pas un ou deux, mais bien trois cultivateurs du troisième niveau qui le poursuivaient !
+
+L'un d'eux se trouvait au stade du Vide Spirituel. Bien qu'il n'ait pas encore subi sa rétribution, il pouvait déjà manier des sorts capables de déchirer les cieux ! Cela suffisait à lui seul à donner des maux de tête à Tuo Sen.
+
+Tuo Sen était déjà blessé lorsqu'il avait brisé la Formation du Domaine Scellé, et ayant dû faire exploser les cultivateurs du troisième niveau qu'il avait capturés dans ses étoiles, il se trouvait à son point le plus vulnérable. Toutefois, sa constitution physique était une chose que Wang Lin ne pouvait égaler !
+
+Son corps était celui d'un véritable Dieu Ancien, un corps royal de Dieu Ancien ayant survécu durant des éons. Sa puissance était inimaginable.
+
+Sous la traque des trois cultivateurs du troisième niveau, ses blessures se multipliaient, mais ces trois derniers ne s'en sortaient pas non plus à l'aise. Ils étaient également blessés, et aucune des parties ne parvenait à prendre le dessus sur l'autre.
+
+Seul le puissant cultivateur au stade du Vide Spirituel parvenait à infliger un coup sévère à Tuo Sen, le forçant à battre en retraite avec rage. Il détruisait tout être vivant sur son passage, et les trois poursuivants ne semblaient pas vouloir le pousser à bout ; il paraissait qu'ils voulaient simplement traquer Tuo Sen jusqu'à son épuisement total !
+
+La colère qui bouillonnait dans son cœur depuis dix ans suffisait à embraser le monde. Il était venu ici en quête de Wang Lin, mais ne l'ayant point trouvé, il avait failli sombrer dans la folie.
+
+Cependant, alors que sa rage atteignait son paroxysme, il sentit soudainement l'aura de Wang Lin dans le Système Stellaire Antique. Dès cette découverte, Tuo Sen chargea sans aucune hésitation !
+
+Trois rayons de lumière le suivaient au loin. Il s'agissait de deux hommes et d'une femme. Impossible de distinguer leurs traits, car l'espace autour d'eux était distordu par un sort capable de bloquer tout Sens Divin et toute vision.
+
+Ils poursuivaient Tuo Sen à distance, sans relâche.
+
+Tuo Sen parvint près de la Formation du Domaine Scellé dans un fracas de tonnerre et frappa le vide de sa main droite. Un rugissement puissant résonna alors qu'il déchirait une faille spatiale. Son corps se rétracta jusqu'à la taille d'un homme ordinaire et disparut dans la brèche.
+
+Chasser !!
+
+Quoi qu'il en coûte, il devait capturer Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur !
+
+Wang Lin fusionna avec le monde et utilisa la Déformation Spatiale sans aucune cible précise. Il déploya toute sa puissance pour s'éloigner le plus possible.
+
+De vastes ondulations se propagèrent dans un champ stellaire de la partie nord du Système Stellaire Antique. La silhouette de Wang Lin en émergea, toujours enveloppée d'un brouillard noir. Sans hésiter, il entreprit de se téléporter à nouveau.
+
+Pourtant, l'instant après son apparition, une tempête commença à se lever derrière lui. Cette tempête possédait une puissance dépassant l'entendement. Elle rugit et déchira immédiatement une faille spatiale.
+
+Un vent glacial s'en échappa avec sauvagerie tandis qu'un rugissement retentissait. Tuo Sen surgit de la faille spatiale comme un possédé, les yeux injectés de sang et emplis d'avidité.
+
+« Wang Lin !! Ce Dieu t'a enfin trouvé !! »
+
+Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déformation Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Domaine Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
+
+Tuo Sen afficha une expression féroce, serra le poing de sa main droite et lança un coup de poing dévastateur.
+
+Un seul de ses coups possédait la puissance nécessaire pour faire exploser une planète de culture !
+
+Sa main droite bougea avec une célérité fulgurante et percuta les éclairs rouges. Ces derniers pénétrèrent le corps de Tuo Sen, déclenchant une frénésie de destruction.
+
+Cependant, simultanément, l'attaque de Tuo Sen fut projetée en avant, et une partie de celle-ci frappa Wang Lin. Elle atteignit son corps alors qu'il fusionnait avec le monde.
+
+Son corps trembla violemment et il cracha un flot de sang. Le brouillard noir qui l'entourait s'effondra et il disparut dans les profondeurs du monde.
+
+La main droite de Tuo Sen marqua une pause, et ses yeux brillèrent d'une lueur étrange !
+
+« Rétribution Divine du Domaine Ji !! »
+
+Son expression changea. Incapable de détruire les éclairs rouges à l'intérieur de lui, il les laissa continuer leur œuvre destructrice. Toutefois, le dommage restait minime comparé à l'incroyable capacité de régénération d'un Dieu Ancien. Mais Tuo Sen étant déjà blessé, cela constituait un danger latent.
+
+Alors qu'il s'apprêtait à reprendre sa poursuite, il fronça soudainement les sourcils. Les trois rayons de lumière derrière lui accélérèrent brusquement. Depuis son arrivée, ils l'avaient suivi sans relâche. Dès qu'ils aperçurent les éclairs rouges, ils les reconnurent instantanément. Sans hésiter, ils resserrèrent l'étau et les trois rayons de lumière chargèrent Tuo Sen !
+
+La silhouette de Wang Lin tituba en émergeant du vide quelque part dans le Système Stellaire Antique. Le visage pâle, il cracha une nouvelle bouchée de sang. La blessure sur sa poitrine s'était rouverte, teintant ses vêtements de pourpre.
+
+Cette plaie portait l'aura de la Hache Brise-Ciel ; il était donc extrêmement difficile pour un Dieu Ancien de s'en remettre. À moins d'extraire de force cette aura, sa guérison prendrait une éternité.
+
+Wang Lin n'était pas surpris de croiser Tuo Sen ici. Cependant, bien qu'il sache que Tuo Sen le traquait pour le tuer, comment Wang Lin aurait-il pu ne pas braver la mort ?
+
+Une fois son corps réapparu, il agita sa main gauche et l'Épée de Sang se matérialisa. Il commença à se téléporter sans plus attendre. Outre le Domaine Ji, il possédait encore cette épée de sang !
+
+Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas à la hauteur de la Hache Brise-Ciel, elle pouvait infliger de lourds dégâts aux Dieux Anciens. Lors de son bref contact avec Tuo Sen, Wang Lin avait remarqué que ce dernier était bien plus faible que lorsqu'il l'avait affronté dans la Terre du Dieu Ancien.
+
+Plus important encore, grâce à sa sagacité et à sa compréhension de Tuo Sen, il savait que ce dernier ne resterait pas caché. Il avait forcément mené un carnage, ce qui attirerait inévitablement l'attention des cultivateurs du troisième niveau du Système Stellaire Antique, pouvant même mener à une traque !
+
+« Outre la brèche de la Formation du Domaine Scellé, les blessures de Tuo Sen doivent aussi provenir d'une attaque. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment ! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
+
+Sa silhouette traversa l'espace, franchissant à chaque éclat des distances incommensurables. Après un temps, Wang Lin ne détecta aucun signe de la poursuite de Tuo Sen, ce qui confirma ses soupçons.
+
+Cependant, il savait que cela ne serait que de courte durée. Il devait bien y avoir une raison pour laquelle Tuo Sen avait pu faire preuve d'une telle arrogance ici pendant tant d'années ; avec la puissance de son corps, peu de gens pouvaient l'abattre !
+
+Tuo Sen le poursuivrait très bientôt, Wang Lin en était certain !
+
+Le temps lui manquait ; il devait rapidement retrouver son apogée. À cet instant, il vola à toute allure, fendant l'espace.
+
+« Ce n'est qu'une fois Tuo Sen écarté que je pourrai confier Li Qianmei au Maître du Dao Blue Dream. Plus tôt, en dévorant ces centaines de cultivateurs, j'ai également acquis leurs souvenirs. Le Maître du Dao Blue Dream est l'un des cinq maîtres du Système Stellaire Antique. Il réside sur le Mont Bleu, au sein du Clan de la Soie Bleue ! » Tandis qu'il se téléportait à travers les étoiles, une froideur glaciale s'empara de son regard. Il détecta une planète de culture au loin, peuplée de nombreux cultivateurs du Système Stellaire Antique.
+
+« Pour l'instant, je ne peux me permettre aucune pitié. Je suis né dans le Royaume Intérieur, et tôt ou tard, les Royaumes Intérieur et Extérieur entreront en guerre totale. Tuer une personne de plus maintenant affaiblira le Royaume Extérieur ! C'est une lutte entre deux mondes, où le bien et le mal n'existent pas ! » La vitesse de Wang Lin augmenta considérablement tandis qu'il réfléchissait, des craquements résonnant dans son corps. Le brouillard noir revint et le projeta vers la planète de culture.
+
+Il volait de plus en plus vite, perçant l'espace pour s'approcher de la planète. Celle-ci apparaissait sombre, recouverte de marécages. L'énergie spirituelle y était extrêmement dense, et non seulement des cultivateurs y résidaient, mais aussi une multitude de bêtes spirituelles ! Cependant, un détail étrange frappait : la planète était saturée de ressentiment. Cette rancœur était si dense qu'elle semblait s'élever vers le ciel.
+
+Alors qu'il approchait, un cri strident retentit sur la planète et la formation protectrice s'activa. Elle avait apparemment anticipé l'arrivée de Wang Lin.
+
+Toutefois, la vitesse d'activation de la formation était bien trop lente pour lui ! En un éclair, il chargea à travers la formation alors qu'elle s'ouvrait. Le brouillard noir se fragmenta en des centaines, des milliers, des dizaines de milliers de particules qui se répandirent sur la planète et commencèrent un festin dévorant !
+
+Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité et leur sang étaient aspirés par l'obscurité.
+
+Un vieil homme vêtu de vert s'élança hors de la planète en rugissant : « Quel démon ose venir dévorer sur ma planète Devil Na ?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste !
+
+« Un puissant cultivateur ! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Domaine Ji qui perça le brouillard pour frapper le vieillard.
+
+L'expression du vieil homme changea ; il s'apprêtait à résister quand une voix lugubre résonna :
+
+« Arrête ! »
+
+En un seul mot, le corps du vieil homme se figea un instant, et ce bref sursis fut la différence entre la vie et la mort. L'éclair rouge dans lequel Wang Lin s'était transformé percuta l'homme, qui poussa un cri de douleur déchirant. Le brouillard noir enveloppa immédiatement le vieillard.

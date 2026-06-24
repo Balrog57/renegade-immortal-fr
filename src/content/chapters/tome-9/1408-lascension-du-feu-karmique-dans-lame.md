@@ -1,0 +1,113 @@
+---
+n: 1408
+title: "L'Ascension du Feu Karmique dans l'Âme"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1408 - Karma Fire Rise In the Soul
+slug: lascension-du-feu-karmique-dans-lame
+---
+Au sein de l'Épreuve Humaine, le vortex que seul Wang Lin pouvait percevoir s'effondra comme si une force invisible l'avait déchiré. Le ciel retrouva progressivement son aspect normal.
+
+Personne d'autre au sein de l'Épreuve Humaine ne remarqua ce phénomène ; pour les autres, il ne s'était absolument rien passé.
+
+Wang Lin détourna son regard du ciel et s'assit au sommet de la montagne.
+
+Allumer le feu karmique, créer un brasier par la seule force de sa pensée. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, franchissant ainsi le royaume du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan de l'Oiseau Vermillon !
+
+Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré !
+
+Les cultivateurs capables d'atteindre le Feu Éthéré étaient d'une puissance redoutable. Même s'ils n'égalaient pas la force d'un cultivateur du troisième niveau, les cultivateurs de ce même niveau devaient néanmoins se méfier d'eux ! Face à un tel expert, il était impossible de laisser paraître la moindre émotion, car la plus infime fluctuation sentimentale pouvait être exploitée par l'ennemi pour vous tuer !
+
+C'était une technique terrifiante. Il faut admettre que tous les êtres vivants possèdent des émotions. Peu importe l'indifférence d'un individu ou sa capacité à les dissimuler, les émotions résident toujours en lui.
+
+Même le désir ardent du Maître Dao Blue Dream pour sa femme et sa fille pouvait servir de combustible au Feu Éthéré ! Seuls ceux capables de bloquer parfaitement toute émotion, ou de les supprimer totalement, pouvaient espérer ne pas craindre le Feu Éthéré !
+
+La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe !
+
+Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs du troisième niveau savaient qu'il était extrêmement difficile de briser la Porte du Vide en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte du Vide avec lui s'avérait encore plus ardu !
+
+L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao, on pourrait alors l'utiliser pour consumer la Porte du Vide et ainsi devenir un cultivateur du troisième niveau !
+
+Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de l'Oiseau Vermillon ! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
+
+Ce chemin était une marche entre la vie et la mort. Wang Lin pouvait encore choisir de quitter cet endroit et d'échouer à l'épreuve.
+
+« Le vieil Oiseau Vermillon m'a si bien traité, comment pourrais-je abandonner si facilement ? » murmura Wang Lin, une détermination farouche brillant dans ses yeux.
+
+Tout comme il refusait de consumer ce monde, Wang Lin tenait énormément à son bienfaiteur. Il ne pouvait décevoir le vieil Oiseau Vermillon !
+
+Wang Lin prit une profonde inspiration et ferma les yeux. À cet instant, une flamme bleue jaillit de son corps. La flamme ne se propagea pas, mais brûla intensément à l'intérieur même de son être.
+
+Les observateurs extérieurs ne pouvaient voir cette flamme, mais la douleur de son âme en proie aux flammes fit trembler Wang Lin lui-même. Il serra les dents et endura la combustion de son âme et de ses obsessions jusqu'à l'autodestruction.
+
+« J'entrerai dans le Dao avec cette obsession, et même la divine rétribution ne m'arrêtera pas ! » Wang Lin redressa soudainement la tête et ouvrit les yeux. La flamme brûlait avec éclat en lui, bien que personne à l'extérieur ne pût la voir.
+
+Le temps s'écoulait lentement au sein de l'Épreuve Humaine. La fréquence des visites de Li Muwan au sommet de la montagne avait progressivement augmenté. Chaque fois que Wang Lin la voyait, le brasier dans son âme gagnait en intensité, mais il ne laissait rien paraître. La douceur dans ses yeux était aussi profonde qu'un lac.
+
+Li Muwan finit par s'habituer à l'expression de Wang Lin. Parfois, lorsqu'elle montait sur la montagne, elle engageait la conversation avec lui, animée par la curiosité.
+
+Cependant, Li Muwan, qui était très attentive, remarqua peu à peu que chaque fois qu'elle venait le voir, ce mystérieux senior semblait s'affaiblir, et son apparence même paraissait vieillir.
+
+Elle ignorait que Wang Lin subissait actuellement une douleur indicible. Il cherchait à allumer le feu karmique en utilisant l'obsession de son cœur comme combustible. Plus son obsession était forte, plus le feu s'intensifiait !
+
+Chaque rencontre avec Li Muwan renforçait son obsession ! Le feu devenait plus ardent et la douleur, plus aiguë !
+
+Les années passèrent. Après un temps indéterminé, le feu au sein de l'âme de Wang Lin atteignit un stade critique. Son regard se voila et son corps s'affaiblit. Son visage, autrefois celui d'un jeune homme, avait vieilli pour devenir celui d'un homme d'âge mûr.
+
+C'était comme si deux mille ans s'étaient abattus sur Wang Lin pendant que son âme brûlait.
+
+« Abandonne... Tu ne pourras pas résister à la combustion de ton âme. Bien que ce vieil homme ne l'ait pas vécu, d'après ce que j'ai entendu de l'Ancêtre, je peux dire qu'il redoute encore ce sentiment... »
+
+Le vortex effondré réapparut dans le ciel. Le vieil Oiseau Vermillon était revenu, poussé par l'inquiétude. Ses paroles étaient empreintes de sollicitude.
+
+Wang Lin serra les dents, son esprit déjà embrumé. La douleur intense agissait comme une marée qui menaçait de l'engloutir. Cette souffrance était des dizaines de fois plus puissante que tout ce que Wang Lin avait connu jusqu'alors !
+
+Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait sans cesse, lui avait infligé une douleur comparable. Pourtant, il existait une différence fondamentale entre ces deux tourments.
+
+« Tu continues à brûler ton âme, mais ton obsession ne s'est pas encore transformée en feu karmique. Ce niveau de douleur n'est que le commencement. Une fois que le feu karmique sera apparu, tu devras affronter les neuf rétributions karmiques. Même l'Ancêtre n'a pu les traverser que grâce à la protection d'autrui. Tu peux encore renoncer. Dès que ton obsession se transformera en feu karmique, elle détruira ton âme en un instant. Il ne te restera aucune chance de la transformer en flamme karmique ! »
+
+« Sans la protection de l'Empereur Céleste, l'Ancêtre n'aurait pas réussi ! » La voix du vieil Oiseau Vermillon était chargée d'anxiété.
+
+« Cette petite fille est l'obsession de ton cœur... Dans cette Épreuve Humaine, tout n'est qu'illusion. Pourquoi te condamner à une telle situation de vie ou de mort pour une simple illusion ? »
+
+« Wang Lin, pourquoi es-tu si obstiné ?! » La voix du vieil Oiseau Vermillon devint plus pressante, teintée d'une certaine dureté.
+
+Wang Lin ne répondit pas. À cet instant, sa conscience n'était plus qu'un brouillard. La douleur se mua en souvenirs qui défilèrent à travers son âme.
+
+Sa première rencontre avec Li Muwan... la Mer des Diables... la Secte Cloud Sky... sa mort... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans son cercueil.
+
+Tous ces souvenirs brûlaient au plus profond de son être.
+
+« Cela fait bien assez longtemps. Si tu persistes, ta vie est en danger. Puisque tu refuses de te détacher de ce monde, alors même si tu finis par me haïr, je détruirai ce monde pour toi ! » Tandis que les paroles du vieil Oiseau Vermillon résonnaient, une mer de feu surgit soudainement du vortex. Les flammes se propagèrent dans toutes les directions et, en un clin d'œil, enveloppèrent le monde. Elles s'apprêtaient à descendre pour tout consumer !
+
+À cet instant précis, Li Muwan apparut au sommet de la montagne. Haletante, elle venait d'atteindre le sommet. Elle ne voyait pas le brasier, mais dans la vision trouble de Wang Lin, il pouvait voir cette mer de feu tenter d'engloutir Li Muwan telle une gueule béante !
+
+Soudain, les yeux de Wang Lin s'éclaircirent et un feu monstrueux y jaillit. Au moment où les flammes allaient toucher Li Muwan, Wang Lin la prit dans ses bras et utilisa son propre dos pour faire rempart contre cette mer de feu !
+
+Li Muwan fut stupéfaite. Alors qu'il l'enlaçait, Wang Lin se tourna vers le ciel et poussa un rugissement :
+
+« Je peux le faire ! »
+
+« Toi ! » Le vieil Oiseau Vermillon était furieux ; le brasier qu'il avait projeté du ciel fut stoppé net.
+
+« Ancêtre, j'ai cultivé toute ma vie pour elle seule ! Même si ce n'est qu'une illusion, ce junior refuse de la blesser, et encore moins de la détruire ! » Wang Lin regarda le ciel, des larmes coulant sur ses joues pour venir mouiller Li Muwan dans ses bras. Ses larmes brûlantes semblèrent pénétrer le cœur de la jeune femme, dont les yeux se remplirent de confusion.
+
+Au moment où Wang Lin prononça ces mots, le feu dans son âme explosa, devenant des dizaines de fois plus puissant qu'auparavant !
+
+Une volute de feu noir apparut au sein de ce brasier. Ce feu noir modifia les couleurs du monde et supprima totalement la flamme bleue qui brûlait dans l'âme de Wang Lin.
+
+« Le feu karmique ! » Le vieil Oiseau Vermillon eut un haut-le-cœur et poussa un soupir.
+
+« Maintenant que ton obsession s'est muée en feu karmique, personne ne pourra t'arrêter, hormis le premier Ancêtre. Laisse tomber... Puisque tu l'as choisi, laisse tomber... » La voix du vieil Oiseau Vermillon s'estompa progressivement, la mer de feu se dissipa et le vortex s'effondra.
+
+Le feu noir envahit instantanément le corps de Wang Lin, supplantant la flamme bleue. En un instant, plus de 80 % du feu bleu était devenu noir.
+
+Une douleur atroce émanant de son âme fit trembler tout son être. La souffrance devint des milliers de fois plus intense qu'auparavant. Son âme était en train d'être rapidement anéantie.
+
+Son corps se dissipait à vue d'œil, mais ses bras continuaient de serrer Li Muwan. Il fit tout son possible pour masquer l'intensité de sa douleur et lui lança un regard empreint de tendresse.
+
+Wang Lin fixa Li Muwan et murmura doucement : « T'avoir à mes côtés durant ces jours... j'ai été très heureux... Même si tu n'es qu'une illusion, je ne permettrai à personne de te blesser... »
+
+Cependant, sa voix portait une force qui ébranla l'esprit de Li Muwan.
+
+« Toi... Qui es-tu ? » Li Muwan fixa Wang Lin, le regard hagard.

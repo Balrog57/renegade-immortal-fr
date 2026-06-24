@@ -1,0 +1,139 @@
+---
+n: 591
+title: Le Commandant en Chef du Ciel est ému
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 591 - The Heaven Commander-in-Chief Is Moved
+slug: le-commandant-en-chef-du-ciel-est-emu
+---
+« Cependant, il vous est actuellement impossible de me trancher le bras ! » L'homme en armure dorée prit une profonde inspiration avant de regarder Wang Lin en secouant la tête. « Si vous parvenez à le faire sonner quinze fois, alors je jure devant le Démon Céleste que je vous offrirai mon bras ! »
+
+« Si vous n'y arrivez pas, alors taisez-vous ! Si vous continuez à faire du bruit, ne me reprochez pas de devoir vous traiter durement ! » L'homme en armure dorée laissa échapper un reniflement glacial.
+
+Wang Lin regarda froidement l'homme en armure dorée. Le niveau de culture de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance dorée, Wang Lin avait pu constater que sa culture se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif !
+
+Bien que le niveau de culture de cet individu ne soit qu'un cran au-dessus de celui du Vice-Commandant en Chef Xuan, pour Wang Lin, l'écart était abyssal !
+
+Cependant, ce n'était là que l'aspect secondaire. Le plus important résidait dans le fait que le sort cultivé par l'homme en armure dorée était d'une tyrannie extrême. En encaissant la lance solaire, Wang Lin avait immédiatement perçu la force mystérieuse qui sous-tendait ce pouvoir. Le sort de cet homme était lié aux flammes Yang. Combiné à sa culture, cela le plaçait au sommet des cultivateurs Ascendants du stade intermédiaire. Il était même assez puissant pour affronter un cultivateur Ascendant moyen du stade tardif !
+
+À moins de croiser un cultivateur Ascendant titré, il serait très difficile de le vaincre !
+
+Bien entendu, l'issue d'un combat contre lui varierait grandement selon l'heure du jour ou de la nuit. À midi, Wang Lin perdrait sans aucun doute ! Mais s'il devait l'affronter la nuit, dans un lieu imprégné d'une puissante énergie Yin, la tâche serait plus aisée.
+
+Wang Lin détourna son regard et cessa de prêter attention à l'homme en armure dorée pour se concentrer sur le tambour démoniaque. Il l'avait déjà fait sonner huit fois, et le rebond de la huitième frappe avait brisé près de 3 000 couches de sceaux de vie.
+
+« Même si Mo Lihai ne peut pas entrer, j'ai déjà atteint huit coups. Au plus, je n'ai besoin que d'un coup supplémentaire pour intégrer le top dix et m'arrêter là. Si je cherche à aller plus loin au risque d'être blessé, cela n'en vaudra pas la peine... »
+
+« Pourtant, lorsque je frappe ce tambour démoniaque, mon esprit est troublé. Je ressens la même sensation que lorsque j'écoute la musique d'une cithare au bord de l'eau... Se pourrait-il que le son de ce tambour aide également mon Dao... »
+
+« Frapper ce tambour ne suit pas mon Dao, mais le rebond qu'il produit est une forme de défi. La force que j'utilise pour frapper suit la volonté des cieux, mais le rebond, lui, défie les cieux ! »
+
+« Ce cycle de soumission puis de défi crée un mystérieux cycle céleste... » Les yeux de Wang Lin brillèrent d'une lueur énigmatique alors qu'il fixait le tambour démoniaque. À cet instant, il n'hésita plus ; il prit une profonde inspiration et frappa le tambour.
+
+*Dong !* La neuvième résonance jaillit du tambour !
+
+Le rebond s'engouffra dans son corps comme un raz-de-marée. C'était une force de défi et, en traversant le corps de Wang Lin, les sceaux de vie qui le protégeaient se brisèrent promptement. 100, 800, 1 000, 2 200, 3 400... jusqu'à ce que plus de 3 600 sceaux de vie se dissipent. Bien que cette force ait été considérablement affaiblie, plus de la moitié de l'énergie résiduelle chargeait toujours vers Wang Lin.
+
+Plus de 3 700 sceaux de vie s'effondrèrent totalement, la première fois depuis que Wang Lin les avait obtenus.
+
+Alors que le dernier sceau se brisait, le rebond perça violemment le corps de Wang Lin et parcourut ses méridiens. C'était comme si son corps était pris dans une tempête gigantesque ; sa silhouette et ses vêtements furent violemment projetés vers l'arrière.
+
+Son corps recula involontairement. Un pas, deux pas, trois pas, quatre pas... Jusqu'au dix-neuvième pas, où le pied droit de Wang Lin se planta fermement pour stopper sa course !
+
+Son visage devint rouge et il lui fallut quelques instants avant de retrouver son aspect normal.
+
+Voyant cela, l'homme en armure dorée fut un peu rassuré et un rictus réapparut sur ses lèvres. Il pensa : « Cet enfant ne pourra jamais atteindre les quinze coups ; il n'en est qu'au neuvième et atteint déjà ses limites. Je peux affirmer que dix est son maximum ! »
+
+Le silence tomba sur les environs. Personne n'osait plus parler après l'écho de la neuvième résonance sur la place. Ce résultat surpassait celui du premier général démoniaque, Mo Fei, et tous savaient qu'à partir de ce jour, le nom de « Wang Lin » brillerait dans le Pays du Démon Céleste !
+
+Il faut dire que l'Empereur Démon se souciait peu de l'origine des gens. Le Commandant en Chef du Ciel n'était-il pas lui aussi un cultivateur ?!
+
+Nul ne parlait, et tous les regards étaient rivés sur Wang Lin.
+
+Mo Lihai fixait Wang Lin. Le changement chez ce dernier au cours des derniers mois était tout simplement prodigieux.
+
+« Neuf fois... Je ne peux pas le faire... » Mo Lihai laissa échapper un soupir amer.
+
+Alors que Wang Lin se tenait au centre de la place, tous les regards convergeaient vers lui, mais il les ignorait totalement. Son expression était sombre et troublée, et il fronça lentement les sourcils.
+
+Après que la force du rebond eut été atténuée par plus de 3 700 couches de sceaux de vie, la quantité pénétrant dans son corps n'était pas immense ! Il lui suffisait de faire circuler un peu de son énergie spirituelle céleste pour revenir à la normale.
+
+Mais au moment où le rebond entra en lui, il ressentit immédiatement une aura étrange au cœur de cette force. Elle contenait un esprit indomptable et ce sentiment de domination propre à ceux qui s'opposent aux cieux.
+
+Cette force de rebond émanait d'une aura aussi inflexible qu'arrogante. Quiconque osait la provoquer subirait son assaut implacable. Même si le ciel s'effondrait sur elle, elle soutiendrait la voûte céleste pour mieux la transpercer !
+
+Telle était l'intention de cette aura !
+
+Wang Lin murmura : « Défier... »
+
+« Je me trompais. Utiliser les sceaux de vie pour résister à cette force de défi revenait à résister à ma propre nature de défi intérieure... » Les yeux de Wang Lin révélèrent une puissance mystérieuse. Puis, il retrouva une grande sérénité et fixa silencieusement le tambour démoniaque.
+
+À cet instant, le Commandant en Chef du Ciel entrouvrit les yeux pour observer Wang Lin.
+
+Wang Lin réfléchit longuement avant de faire un pas, puis un autre, encore un autre. Après dix-neuf pas, il se tint devant le tambour démoniaque. Il ne frappa pas immédiatement, mais utilisa sa paume pour le toucher délicatement, sentant sa surface rugueuse.
+
+Des fragments d'une intention inflexible pénétrèrent lentement Wang Lin par la paume de sa main.
+
+Il ferma lentement les yeux. À cet instant, il sembla fusionner avec le tambour démoniaque, et son aura commença à s'estomper.
+
+L'homme en armure dorée fronça les sourcils avant de ricaner : « Essayer de faire le mystérieux, hein ? Si le simple fait de toucher le tambour permettait d'atteindre quinze coups, alors les serviteurs qui le nettoient chaque jour le feraient plus de cent fois ! Ridicule ! »
+
+Il n'était pas le seul à penser ainsi ; même les commandants fronçaient les sourcils.
+
+Le Commandant Xuan était perplexe : « Que fait cet enfant ? »
+
+L'un des commandants gloussa : « Ce cultivateur peut-il communiquer avec le tambour démoniaque ? »
+
+La seule femme parmi les commandants, la Commandante de l'Univers, déclara doucement : « Il ne communique pas avec lui, il le comprend. Lorsque j'ai frappé le tambour, j'ai moi aussi ressenti cette aura. Auriez-vous donc tous oublié ? »
+
+À ces mots, les visages des commandants devinrent graves.
+
+Les officiels observant depuis les gradins ne purent plus rester silencieux et commencèrent à murmurer.
+
+Parmi les généraux démoniaques, les yeux de Mo Fei s'illuminèrent en fixant Wang Lin. Il dit doucement : « Se pourrait-il que vous ayez ressenti cette aura, vous aussi... »
+
+Au moment où Wang Lin ferma les yeux, cette aura inflexible devint limpide.
+
+Elle se rassembla lentement dans son corps et fusionna avec son âme originelle. Totalement immergé dans cette présence, il s'intégra pleinement au tambour démoniaque.
+
+« Je ne dois pas résister à l'aura de défi du tambour, je dois fusionner avec elle. Si je parviens à comprendre cette aura, alors ce rebond ne pourra plus me blesser, mais aidera plutôt à raffiner mon corps ! » Wang Lin ouvrit les yeux. Son regard était empreint d'une clarté absolue lorsqu'il leva la main et la laissa retomber avec douceur.
+
+*Dong !* La dixième résonance du tambour retentit sur toute la place.
+
+Le corps de Wang Lin fut immédiatement percuté par une force inimaginable. À cet instant, il retira ses sceaux de vie, laissant la force pénétrer directement en lui.
+
+La force de rebond se propagea avec frénésie dans son organisme, et des gouttes de sueur noire jaillirent de ses pores. Wang Lin ressentit une sensation rafraîchissante de purification. C'était un sentiment qu'il n'avait pas éprouvé depuis qu'il avait atteint le stade de l'Établissement des Fondations.
+
+Cependant, ce sentiment fut de courte durée. La force à l'intérieur de son corps devint soudainement violente. En parcourant ses membres, elle lui fit pâlir le visage.
+
+« Purification de la moelle !! Cet enfant utilise le tambour démoniaque pour purifier sa moelle ! » Les différents commandants furent stupéfaits.
+
+Non seulement eux, mais des exclamations retentirent parmi les généraux démoniaques. Le regard de Shi Xiao vers Wang Lin était chargé d'une intention meurtrière. Il leva la main à plusieurs reprises, hésita, puis la baissa.
+
+L'homme en armure dorée eut le regard froid et pensa avec mépris : « Purification de la moelle... Ce vieil homme suit l'Empereur Démon depuis longtemps, et l'Empereur a bien dit que l'on pouvait purifier sa moelle au son du tambour démoniaque. Cependant, cela n'est possible que si l'on possède un niveau de culture suffisamment élevé. Autrement, tenter de forcer la purification ne fera que vous blesser gravement ! »
+
+Les yeux du Commandant en Chef du Ciel étaient à demi ouverts. Il laissa paraître une pointe de déception avant de refermer les paupières.
+
+Au moment où le Commandant en Chef du Ciel ferma les yeux, il soupira intérieurement : « Il n'est plus nécessaire d'observer cet enfant... »
+
+Le visage de Wang Lin était d'une pâleur mortelle, mais ses yeux brillaient !
+
+« Il y a une certaine conscience au sein de cette force de défi. Si je fusionnais avec elle sans réfléchir, bien que cela soit considéré comme un acte de défi, ce serait le chemin du tambour et non le mien ! »
+
+« J'ai été blessé par la purification de la moelle non pas parce que ma culture est insuffisante, mais parce que mon Dao est différent ! Dans ce monde, qu'il s'agisse de cultivateurs ou d'autres créatures, tant qu'ils cultivent pour défier les cieux, ils possèdent tous leur propre nature de défi ! »
+
+« Bien que le mot soit "défier", chacun en a sa propre compréhension, et il existe d'innombrables Dao pour cela ! » Les yeux de Wang Lin s'illuminèrent comme jamais auparavant. Bien que son visage fût pâle, à cet instant, c'était comme si son domaine fusionnait avec son corps ! La lumière dans ses yeux s'estompa pour faire place à une profonde tristesse et à la solitude.
+
+Puis, il leva sa main droite et toucha délicatement le tambour démoniaque !
+
+*Dong !* La onzième résonance jaillit du tambour.
+
+À cet instant, une aura de mélancolie se propagea depuis l'instrument. Elle résonna sur toute la place, s'étendant au point d'affecter la Cité du Démon Céleste !
+
+La tristesse contenue dans l'écho du tambour était semblable à celle d'une musique de cithare ; elle bouleversait les cœurs !
+
+La tristesse pénétra son âme, son âme forgea une volonté, la volonté frappa le tambour, et le tambour répandit son Dao...
+
+« Le son du tambour contient une intention... Impossible, c'est impossible. Comment cet homme a-t-il pu parvenir à cela ? C'est absolument impossible !!! » Pour la première fois, l'expression de l'homme en armure dorée changea radicalement. Il recula inconsciemment de plusieurs pas, les yeux fixés sur Wang Lin.
+
+Le Commandant en Chef du Ciel ouvrit complètement les yeux et se leva pour contempler Wang Lin ! Dans toute la place, la seule personne qui captivait son attention était Wang Lin !

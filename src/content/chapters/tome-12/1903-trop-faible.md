@@ -1,0 +1,125 @@
+---
+n: 1903
+title: "Trop Faible !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1903 - Too Weak!"
+slug: trop-faible
+---
+Chapitre 1903 - Trop Faible !
+
+La Tribulation Arcane était une métamorphose située entre le Vide Arcane et la Tribulation du Vide. Elle différait de la Tribulation Divine, qui n'utilisait que des formes de tonnerre ; elle employait au contraire une méthode spéciale pour provoquer l'effondrement de chaque étape chez un cultivateur.
+
+Si l'on ne parvenait pas à surmonter une Tribulation Arcane, on mourait. De nombreux cultivateurs du Vide Arcane redoutaient ces tribulations. Beaucoup préféraient rester au stade du Vide Arcane plutôt que de faire face à ces terrifiantes épreuves !
+
+À l'instar du Dao Master Blue Dream, qui était resté au sommet du Vide Arcane pendant une longue période sans jamais franchir le stade de la Tribulation Arcane.
+
+Une fois engagé dans une Tribulation Arcane, c’était comme affronter neuf situations de vie ou de mort. Tout le monde n'avait pas un tel courage. La plupart des cultivateurs de la Tribulation Arcane passaient des milliers d'années, voire plus, pour surmonter lentement chaque étape.
+
+Ils n'avaient pas assez de confiance pour en traverser neuf d'un coup. Dès qu'ils sentaient que la situation tournait mal, ils interrompaient le processus par la force, renonçant ainsi à chercher la fortune contenue dans la Tribulation Arcane !
+
+La Tribulation Arcane était une calamité, mais aussi une chance inestimable.
+
+Si l'on surmontait trois étapes consécutives, son âme originelle doublait de taille. Ceux qui parvenaient à en franchir six voyaient leur âme originelle tripler. Quant à ceux qui surmontaient les neuf d'affilée, leur âme originelle augmentait de plusieurs multiples ! Quant à l'ampleur exacte de cette croissance, nul ne le savait, car seuls deux êtres avaient réussi cet exploit, et tous deux étaient devenus des Grands Empereurs par la suite.
+
+S'ils ne le divulguaient pas, personne ne le saurait. Cependant, cela révélait la dangerosité de l'épreuve. La rumeur disait que ces deux Grands Empereurs avaient été gravement blessés après avoir surmonté les neuf Tribulations Arcanes et s'étaient retirés en culture fermée pendant une très longue période.
+
+Si des cultivateurs ordinaires parvenaient à franchir six Tribulations Arcanes consécutives, ils deviendraient extrêmement puissants au début du stade de la Tribulation du Vide. Sans même compter leurs trésors, ils pourraient combattre des experts du milieu du stade de la Tribulation du Vide sans subir de défaite !
+
+Cependant, il était très rare d'obtenir une telle fortune. Réussir neuf épreuves d'affilée était une chose totalement différente de les réussir une par une sur des millénaires !
+
+Les Tribulations Arcanes étaient extrêmement étranges. Les spectateurs ne pouvaient rien y faire ; tout dépendait de soi-même.
+
+Du Qing avait passé plusieurs Tribulations Arcanes, mais il les avait affrontées séparément, chaque étape devenant de plus en plus difficile. Il était probable qu'il resterait bloqué ainsi pour le reste de sa vie. Cependant, l'espoir n'était pas totalement perdu. Après tout, il disposait encore d'un certain temps pour se préparer. Ce n'était pas beaucoup, mais c'était bien mieux que de devoir toutes les affronter d'un coup.
+
+Néanmoins, plus on progressait, plus l'épreuve devenait une lutte entre la vie et la mort, finissant par se transformer en un véritable cauchemar. Une fois entré dans le stade de la Tribulation Arcane, même si l'on ne souhaitait pas les affronter, elles finiraient par survenir. Elles devenaient alors un signe de mort imminente.
+
+Sur le Continent Astral Immortel, quelqu'un avait calculé les probabilités et, bien que ce ne fût pas une certitude, la première Tribulation Arcane présentait 10 % de chances de mort. Ce chiffre augmentait jusqu'à la neuvième étape, où les chances de mourir atteignaient 90 %.
+
+Sur cette base, surmonter neuf Tribulations Arcanes d'un coup nécessitait non seulement une force colossale, mais aussi une part considérable de chance.
+
+Wang Lin se tenait dans les profondeurs du bâtiment en forme de scorpion, parfaitement calme. Il fit un pas en avant et disparut de l'intérieur du temple. Lorsqu'il réapparut, il se trouvait au sommet de la queue du scorpion.
+
+Sa chevelure blanche flottait comme s'il allait s'envoler avec le vent. Il restait là, attendant l'arrivée des Tribulations Arcanes.
+
+« Tribulation Arcane, comment vas-tu surgir ? J'ai hâte de te voir... » Les yeux de Wang Lin brillèrent. Il avait la confiance nécessaire pour affronter n'importe quelle Tribulation Arcane !
+
+Sa culture s'accéléra de plus en plus jusqu'à ce que son corps dégage l'aura de son apogée du Vide Arcane. Cette aura se concentra dans son corps avant d'éclater comme une tempête et de jaillir vers le ciel. Elle semblait fusionner avec les cieux, formant un orage terrifiant !
+
+Dès l'apparition de la tempête, une pression invisible se forma et se propagea autour de Wang Lin, prenant le centre du phénomène. Elle couvrit instantanément des centaines de kilomètres et continua sa progression.
+
+Dans ce périmètre de centaines de kilomètres, tous les êtres vivants durent reculer devant cette pression ; nul n'était autorisé à faire le moindre pas vers l'intérieur !
+
+C'était une Tribulation Arcane. Une fois qu'un cultivateur décidait de l'affronter, personne ne pouvait se trouver à ses côtés pour l'aider !
+
+La pression continua de s'étendre, atteignant des milliers de kilomètres de large. Elle se referma lentement sur la douzaine de cultivateurs du Continent du Démon Vert venus assister à la résurrection du Scorpion du Démon Vert.
+
+Les expressions de ces cultivateurs changèrent l'une après l'autre. Ils n'eurent même pas besoin d'utiliser leur Sens Divin pour comprendre qu'un être était en train de traverser une Tribulation Arcane !
+
+« Une Tribulation Arcane ?!! Mais... comment la pression d'une telle épreuve a-t-elle pu apparaître ici ?! »
+
+« Se pourrait-il que le niveau de culture du Seigneur Démon Vert ait chuté après sa résurrection, et qu'il doive maintenant traverser des Tribulations Arcanes pour récupérer ? »
+
+« Le Seigneur Démon Vert avait été personnellement réprimé par l'Ancêtre Céleste, ce qui signifie que son niveau était extrêmement élevé. Cependant, il a été contenu trop longtemps, et peut-être que sa culture a réellement beaucoup décliné... »
+
+La douzaine de cultivateurs du Continent du Démon Vert avaient chacun leurs propres pensées tout en reculant devant la pression. Ils regardèrent vers le temple, mais leur Sens Divin ne pouvait pénétrer profondément dans cette zone de pression ; ils ne pouvaient donc pas voir ce qui s'y passait.
+
+Alors que la pression s'étendait sur des milliers de kilomètres, au centre, Wang Lin se tenait sur la queue du temple-scorpion et leva les yeux vers le ciel. Il vit soudain des flocons de neige apparaître.
+
+Ces flocons étaient d'un blanc pur. Bientôt, ils couvrirent le ciel, formant un rideau qui enveloppait toute la zone.
+
+« De la neige ? » Wang Lin observa.
+
+La neige devint de plus en plus abondante jusqu'à occuper tout l'horizon, devenant la seule chose flottant dans le ciel sur des milliers de kilomètres. En tombant, une aura de froid se propagea et une épaisse couche de neige recouvrit le sol.
+
+Dès que la neige apparut, les cultivateurs du Continent du Démon Vert ressentirent le froid intense. Ils virent les flocons flotter devant eux !
+
+« Sa première Tribulation Arcane est faite de neige ! C'est rare... »
+
+« Il y a au total neuf Tribulations Arcanes. Les trois premières sont externes, les trois suivantes sont internes, et les trois dernières sont liées à l'âme ! »
+
+« Voyons comment le Seigneur Démon Vert va surmonter cette Tribulation Arcane de neige ! »
+
+Wang Lin regardait la neige avec une expression sereine. Il n'agit pas immédiatement, mais observa la chute des flocons...
+
+La neige devint de plus en plus dense et le froid s'intensifia. Peu après, les flocons semblèrent soudainement se figer dans l'air comme si le temps s'était arrêté.
+
+Les innombrables flocons parurent se transformer en lames de glace acérées, fonçant vers Wang Lin de toutes parts. Ils se rapprochèrent instantanément !
+
+« Est-ce donc la première Tribulation Arcane... » Wang Lin secoua la tête, une pointe de déception dans le regard. Il leva sa main droite et fit un geste vers la neige approchante.
+
+Par ce mouvement, son Corps Véritable des Cinq Éléments s'activa. Une ombre superposée apparut alors qu'elle sortait du corps de Wang Lin.
+
+Au moment où le Corps Véritable des Cinq Éléments émergea, Wang Lin s'assit sur la queue du gigantesque scorpion. Il fit un geste de la main droite et une cruche de vin apparut dans sa paume. Cette cruche provenait d'une cité mortelle du Continent du Taureau Céleste. Il porta la cruche à ses lèvres et prit une longue gorgée.
+
+Sa silhouette dégageait une profonde mélancolie alors qu'il restait assis là, ses cheveux blancs flottant au vent. Son apparence rappelait celle de l'homme d'âge moyen en robe noire, assis sur cette statue brisée loin du Continent Astral Immortel.
+
+Seul, mélancolique et indifférent.
+
+Le Corps Véritable des Cinq Éléments sortit et libéra une mer de feu monstrueuse. Cette mer se transforma en 99 dragons de feu qui jaillirent pour entrer en collision avec l'infinité de flocons de neige. À cet instant, des grondements tonitruants retentirent.
+
+Bien que les flocons fussent tranchants et glacés, ils ne représentaient rien face au corps élémentaire de feu de Wang Lin ! D'immenses nuages de vapeur blanche apparurent tandis que la neige fondait, remplissant la zone en un clin d'œil. Les 99 dragons de feu se fusionnèrent en un seul dragon colossal alors que toute la neige disparaissait. Chargé d'une chaleur et de flammes intenses, il s'élança vers le ciel.
+
+C'était comme une épée acérée transperçant l'azur et embrasant les cieux !
+
+Tandis qu'il brûlait, la première Tribulation Arcane s'effondra purement et simplement !
+
+Wang Lin prit une gorgée de vin et secoua la tête en murmurant : « Trop faible... »
+
+Le ciel trembla soudainement et vibra violemment. Un vent puissant hurla, et neuf tempêtes fracassantes apparurent dans le firmament !
+
+Ces neuf tempêtes étaient autant de tornades balayant le ciel, dispersant et amincissant la mer de feu jusqu'à ce qu'il ne reste que les tourbillons.
+
+Une force extrêmement puissante émanait de ces neuf tornades, et le hurlement du vent devint le seul son audible au monde !
+
+Le rugissement des vents résonna alors que les neuf tornades se précipitèrent vers Wang Lin. Elles possédaient une force de déchirement telle qu'elles semblaient vouloir broyer son corps !
+
+En un éclair, la première tornade fondit sur lui !
+
+Le Corps Véritable des Cinq Éléments ne bougea pas ; il restait simplement debout, froidement derrière Wang Lin. Il observa la tornade s'approcher et envelopper le corps de son maître.
+
+Le vent tourbillonna frénétiquement autour de Wang Lin. Des forces colossales l'assaillirent dans un hurlement tonitruant. Pourtant, Wang Lin resta assis sur la queue du scorpion, buvant son vin, ses vêtements et ses cheveux battus par les vents, son expression restant imperturbable.
+
+Il continua à boire tandis que passaient la deuxième, la troisième, la quatrième... jusqu'à ce que les neuf tornades se rejoignent pour former un seul tourbillon gigantesque relié aux cieux. Ce ne fut qu'à cet instant que Wang Lin leva la tête.
+
+« Toujours... trop faible ! »

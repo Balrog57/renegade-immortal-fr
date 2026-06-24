@@ -1,0 +1,97 @@
+---
+n: 1636
+title: Les vestiges célestes en voie de récupération
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1636 - The Recovering Remnant Celestials
+slug: les-vestiges-celestes-en-voie-de-recuperation
+---
+Wang Lin continua d'explorer l'intérieur du neuvième soleil. Finalement, bien qu'il ait trouvé de nombreuses personnes qu'il connaissait, il ne put retrouver ni Qing Shui, ni Situ Nan, ni la femme la plus importante à ses yeux.
+
+Lorsque son Sens Divin revint du neuvième soleil, il ouvrit les yeux. L'éclat de confusion dans son regard lui donnait l'air stupéfait.
+
+« Pourquoi le destin de Situ Nan et de Qing Shui n'existe-t-il pas ici... Ne font-ils pas partie de cette grotte... » La confusion dans les yeux de Wang Lin s'intensifia.
+
+Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait perçu toute la vie de Qing Shui, et le regard étrange du Daoïste aux Sept Couleurs lui semblait encore d'une vivacité frappante.
+
+« Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de culture a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil ? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
+
+« Il y a aussi l'Omniscient. Il est toujours insaisissable, et je ne parviens toujours pas à deviner ses pensées. Peut-être est-il le seul à les connaître... Même avec ma culture de niveau intermédiaire du Vide Spirituel, je le crains encore... Il possède bien trop de secrets, ce qui le rend terrifiant ! » Wang Lin fixa le neuvième soleil devant lui, une lueur de froideur traversant son regard.
+
+« Le destin de Wan Er est différent de celui de Situ et des autres. Des traces de son destin existent ici, indiquant qu'il devrait être présent, mais je ne parviens pas à le trouver. Qui a donc dérobé le destin de Wan Er ?! »
+
+La froideur dans les yeux de Wang Lin devint plus intense, jusqu'à devenir monstrueuse. Finalement, il leva les yeux vers le ciel et son regard se mua en une intention meurtrière.
+
+« Wan Er n'est qu'une femme ordinaire, son destin n'aurait donc pas dû attirer l'attention, et pourtant on le lui a pris. Peu importe qui est le coupable, je, Wang Lin, jure ici, dans le Royaume Céleste Antique, que je le récupérerai. Si quelqu'un ose altérer son destin, fût-ce le Continent Astral Immortel, je me vengerai et laverai le Continent Astral Immortel de son sang, comme je l'ai fait pour la famille Teng !!! »
+
+La limite ultime de Wang Lin était Wan Er. Apprendre que le destin de Wan Er avait été volé lui fit l'effet d'un poignard lui arrachant le cœur de la poitrine. Sous une telle douleur, Wang Lin aurait sombré dans la folie !
+
+Plus on comprend, plus la souffrance est grande. À cet instant, Wang Lin était dans cet état. Peut-être que s'il avait eu le choix, il aurait préféré ne rien savoir, redevenir un mortel et simplement vivre sa vie.
+
+Cependant, puisqu'il savait, il n'avait plus de voie de retraite. Le destin de Wan Er ayant été dérobé, il se devait de le recouvrer. Lui permettre d'échapper à son destin, tout comme lui l'avait fait, était la première étape pour provoquer son éveil !
+
+Wang Lin l'avait compris en voyant les destins à l'intérieur du neuvième soleil. Ce qu'il allait faire, c'était ressusciter Li Muwan et permettre son éveil.
+
+L'intention meurtrière monstrueuse qui brûlait dans ses yeux s'estompa tandis qu'il la dissimulait progressivement. L'expression sombre, il ne daigna même plus regarder le neuvième soleil et se dirigea vers la terre.
+
+Les statues des trois clans anciens jonchaient le sol. Un vent désolé soufflait, soulevant d'innombrables grains de poussière. Le sable et la poussière recouvraient le monde.
+
+Au premier coup d'œil, aucune vie ne semblait subsister sur cette terre, hormis de profondes ravines et des fosses creusées entre les statues.
+
+Ces ravines étaient les vestiges d'une grande guerre lointaine, tout comme ces fosses. Elles étaient telles des cicatrices gravées dans la terre.
+
+Le rugissement du vent ne pouvait emporter que la poussière à la surface de ces cicatrices, mais il ne pouvait effacer l'aura laissée par ces divers sorts.
+
+Wang Lin se posa au sommet d'une statue de Dieu Ancien. Ses cheveux blancs flottaient au vent et ses vêtements claquaient bruyamment. Son regard finit par s'apaiser et, après un long moment, il observa la statue sous ses pieds.
+
+Ce Dieu Ancien était déjà mort, mais une puissance étrange subsistait en lui. C'était cette force qui permettait à la statue de s'éveiller à tout instant pour devenir une marionnette dépourvue de conscience, agissant comme un messager des cieux.
+
+« Les trois clans anciens sont devenus les gardiens de cette grotte. Pathétique, pitoyable, odieux ! » Wang Lin secoua la tête et frappa la statue de son pied droit. Au moment où il s'élança dans les airs, un grondement de tonnerre émana de l'autel. D'innombrables fissures se propagèrent depuis l'endroit où il avait frappé, recouvrant instantanément la statue.
+
+Dans un fracas assourdissant, la statue s'effondra en une multitude de fragments qui se dispersèrent sur le sol.
+
+« Poussière retourne à la poussière, terre retourne à la terre. Puisque vous êtes morts depuis longtemps, ne cherchez plus à tenir bon. Mourir sur le champ de bataille est le seul destin digne de gens comme nous ! » Wang Lin agita ses manches et avança. Partout où il passait, qu'il s'agisse d'une statue de Dieu Ancien, de Démon Ancien ou de Diable Ancien, elles toutes s'effondraient.
+
+« Si je ne vous détruis pas tous aujourd'hui, vous vous réveillerez dans le futur pour troubler le monde en tant que marionnettes... » Wang Lin soupira et fit un geste de la main droite. Une statue de Diable Ancien s'écroula, éparpillant ses débris.
+
+À mesure que les statues des trois clans anciens s'effondraient, leurs auras — celle des Dieux Anciens, des Diables Anciens et des Démons Anciens — se manifestaient comme une fumée, formant de vagues silhouettes sur cette terre.
+
+Ces ombres reflétaient leur apparence lorsqu'ils étaient vivants, montrant même leurs blessures. Un instant de confusion passa dans leurs yeux, mais ils comprirent rapidement la situation. Ils affichèrent des sourires amers avant de s'incliner devant Wang Lin et de se dissiper en fumée. Cette fumée se précipita vers lui pour fusionner avec son être.
+
+Tandis que Wang Lin progressait, toutes les statues s'effondraient. Le vacarme incessant des débris et la vision de ces innombrables ombres s'inclinant devant lui étaient saisissants. Pourtant, un profond sentiment de tristesse imprégnait l'atmosphère.
+
+Wang Lin ne dit plus un mot et continua sa marche silencieuse. Les grondements tonitruants se poursuivaient, les ombres se prosternaient sans cesse, et l'aura infinie des trois clans anciens pénétrait dans les étoiles situées entre ses sourcils, ainsi que dans son œil gauche et son œil droit.
+
+La terre était vaste. Alors que le fracas de l'effondrement des statues résonnait, le vent continuait de hurler, comme s'il était empreint de chagrin, tel un murmure évoquant sans cesse le passé.
+
+Après un temps indéterminé, une statue gigantesque de plus de dix mille pieds de haut apparut devant lui. Cette statue portait neuf étoiles entre les sourcils. Bien que la neuvième étoile fût encore floue, elle avait pris forme. C'était la statue d'un Dieu Ancien qui était infiniment proche d'atteindre le stade de la neuvième étoile.
+
+Elle se tenait là, le poing droit levé, figée à mi-course dans un mouvement de frappe. Son expression trahissait la douleur et la réticence, comme si une force l'avait brusquement transformée en pierre.
+
+Elle portait une armure simple, mais même cette armure faisait désormais partie intégrante de la statue.
+
+C'était le plus haut niveau de Dieu Ancien que Wang Lin ait jamais vu. Devant cette stature, il pouvait vaguement ressentir la puissance phénoménale de cet être. Son coup de poing suspendu semblait capable de briser le monde et d'annihiler d'innombrables cultivateurs.
+
+Ses yeux ouverts exprimaient un regret profond. Quiconque croisait son regard avait l'impression d'entendre son rugissement de colère résonner depuis des millénaires.
+
+Face à la statue, Wang Lin réfléchit un instant. Il joignit les mains puis les agita vers l'œuvre monumentale. D'innombrables fissures apparurent silencieusement avant de recouvrir rapidement toute la structure. Un fracas de tonnerre retentit alors que la statue commençait à s'écrouler.
+
+Cependant, au moment même de son effondrement, un vortex apparut et se mit à tourbillonner avec rapidité au centre des neuf étoiles entre les sourcils de la statue.
+
+Dans sa rotation, la zone entre les sourcils sembla fondre, et un cri strident jaillit de l'intérieur du vortex. Les yeux de Wang Lin se plissèrent. Dès l'apparition du vortex, il remarqua quelque chose et fixa le phénomène d'un regard glacial.
+
+Une main desséchée et couverte de mucus tenta de s'extraire du vortex. Tandis qu'elle s'étirait, une aura sinistre se propagea depuis les profondeurs du tourbillon.
+
+Cette aura émanait entièrement de cette main droite flétrie. Cette main semblait incarner la mort elle-même et recelait une puissance infinie, parsemée d'éclats de lumière dorée.
+
+Le cri strident devint plus intense, et la main desséchée agrippa le bord du vortex comme pour s'en extraire. Le rugissement se fit plus clair, terrifiant, capable de briser la terre.
+
+« Tu as perturbé le sommeil d'un être céleste, tu as détruit l'embryon destiné à ma guérison, tu as commis un crime capital... Peu importe d'où tu viens, tu vas mourir, mourir, mourir... Non seulement tu vas mourir, mais toute ta lignée périra ! Puisque tu as détruit mon embryon de guérison, c'est toi qui deviendras mon embryon... Tu... »
+
+« Trop bruyant ! » Avant que la voix ne puisse achever sa phrase, Wang Lin laissa échapper un reniflement méprisant et l'interrompit. Il fit un pas en avant et sa main droite fendit l'air comme l'éclair pour saisir la main desséchée. Dans un éclair de froideur, Wang Lin tira violemment l'être hors du vortex.
+
+« Tu te débattais avec tant de douleur, laisse-moi t'aider à sortir ! Sors d'ici, bordel ! » Wang Lin poussa un rugissement et tira de toutes ses forces. La statue s'effondra totalement et une silhouette mince et nue fut extraite du vortex. Il la projeta sans ménagement au sol.
+
+La terre trembla sous l'impact et une onde de choc se propagea, creusant un trou gigantesque dans le sol. Wang Lin s'élança immédiatement dans cette fosse !
+
+« Tant qu'il y a quelqu'un de vivant, cela me convient. Peu importe que tu sois un être céleste ou un cultivateur, je prendrai ta mémoire. »

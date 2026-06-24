@@ -1,0 +1,115 @@
+---
+n: 1200
+title: Dispersion du Dao
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1200 - Dao Scatter
+slug: dispersion-du-dao
+---
+Le Dao. Qu'est-ce que le Dao ?
+
+Le cycle de la vie et de la mort, le cycle du karma, ainsi que le vrai et le faux : tout cela constituait des Daos que Wang Lin avait lui-même compris ou qui représentaient des mutations dans sa propre perception. D'un simple cultivateur inconnu jusqu'à l'homme qu'il était devenu, capable de se tenir parmi les puissants, tous ces changements marquaient la croissance que Wang Lin avait vécue au fil de son existence.
+
+À travers le cycle de la réincarnation de la vie et de la mort, il avait percé le mystère de l'existence. Cela lui avait permis de lutter à travers ses crises et de trouver la vie au cœur même de la mort. En fin de compte, cela avait permis à sa volonté défiante de surgir dans son cœur, lui donnant l'audace de devenir un cultivateur défiant les cieux.
+
+Diviser les étoiles, trancher la lune et dominer les cieux : tel était le chemin d'un cultivateur défiant les cieux. Puisqu'il avait percé le mystère de la vie et de la mort, il n'avait plus rien à craindre ! Telles étaient les réflexions que le domaine de la vie et de la mort avait insufflées à Wang Lin.
+
+Il était devenu puissant parce qu'il possédait cette intention ! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance ! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les cieux et à cultiver sur une voie harmonieuse !
+
+Mais Wang Lin ne suivrait pas ce chemin !
+
+Après la vie et la mort venait le karma. Une fois que le domaine de Wang Lin eut subi une métamorphose, il devint semblable à un éminent lettré parmi les mortels. Il ne se souciait plus de la vie ou de la mort, mais recherchait le sens véritable du monde.
+
+Le karma était ainsi fait. Il avait percé le mystère de la cause karmique et entrevu l'effet karmique. Chaque chose dans ce monde possédait son propre karma. Après avoir achevé sa quête du karma, la vie de Wang Lin atteignit un sommet. À mesure que son esprit évoluait, son cœur Dao se trouvait davantage confirmé. En traversant les cycles du karma, son cœur Dao s'enracinait plus profondément encore. Le monde changea sous ses yeux.
+
+Ces cieux ne sont pas mes cieux ! Aux yeux des autres, le ciel et la terre étaient infinis, sans que nul ne sache où ils s'arrêtaient. Ils cherchaient aveuglément dans l'immensité du cosmos. Mais aux yeux de Wang Lin, la frontière entre le ciel et la terre n'avait plus d'importance. Le ciel était la cause karmique et la terre l'effet karmique. Le monde était un cycle de karma. Il voulait sortir de ce fourneau karmique ; il voulait savoir ce qui existait au-delà de ce monde.
+
+En atteignant cette étape, Wang Lin avait touché à la limite de son domaine. Il se trouvait également dans le cercle qu'il avait tracé autour de Li Qianmei et Lu Yuncong.
+
+Cependant, l'apparition de Qing Lin et la possession de la Perle Défiant les Cieux permirent au domaine karmique de Wang Lin de subir une autre métamorphose après avoir atteint sa complétion. Son domaine évolua et il commença à explorer les origines du vrai et du faux !
+
+Le domaine du vrai et du faux exigeait une compréhension si profonde que les gens ordinaires n'étaient tout simplement pas qualifiés pour le saisir. Cela se situait déjà à la frontière du Dao céleste, à un seul pas de l'essence même !
+
+Au fil des éons, ce n'était pas que des cultivateurs n'avaient jamais atteint cette étape, c'est qu'ils étaient bien trop rares... Le domaine détermine le niveau de culture d'un individu, et la profondeur du domaine engendre des différences drastiques dans sa puissance.
+
+Ce que Wang Lin recherchait était le Grand Dao. Bien que cela puisse sembler identique pour tous, en raison de sa compréhension unique, le chemin qu'il percevait surpassait largement les objectifs d'autrui.
+
+Le liquide formé par les trois pilules de rang 11 fut consommé par Wang Lin. Sa compréhension ne s'interrompit pas et continua de croître. Son espace de stockage s'ouvrit devant lui et des flacons de pilules en jaillirent. Il y avait là des pilules de rang 8, 9 et 10.
+
+Il en oublia le temps. Tout en accédant à l'illumination, il ramassa les pilules une à une. Il ne les dévorait pas ; elles s'effondraient toutes lorsqu'elles approchaient de sa bouche. Les innombrables intentions Dao issues des âmes bestiales fusionnèrent avec le vortex et furent confirmées par Wang Lin.
+
+De plus en plus d'intentions Dao chaotiques apparurent et commencèrent à se propager une fois de plus.
+
+Les Perdus, à l'extérieur de la vallée, retrouvèrent progressivement une lueur de clarté dans leurs yeux confus. Les corps éthérés des Éclairés commençaient à se matérialiser.
+
+Ces bêtes féroces de rang 12 ne dégageaient plus d'auras sauvages en leur quête du Dao.
+
+Maître Ashen Pine luttait pour protéger son esprit. C’était comme s'il pouvait être submergé par cette intention Dao chaotique à tout instant. Encore plus d'intentions Dao apparurent hors de la vallée.
+
+Le Royaume aux Sept Couleurs semblait tout entier saturé par les intentions Dao que Wang Lin avait abandonnées et qui étaient devenues tourmentées. C'était comme si d'innombrables intentions Dao entraient en collision.
+
+En se propageant, même les profondeurs du Royaume aux Sept Couleurs furent ainsi affectées.
+
+Alors que Wang Lin continuait de s'éveiller, son esprit quitta progressivement son corps. Il vit la vallée, il se vit assis au milieu de celle-ci, et il vit les pilules flotter devant lui avant de s'effondrer une à une.
+
+Son esprit s'étendit lentement, prenant la vallée pour centre. Lorsque sa conscience balaya les Éclairés, leurs corps tremblèrent tous.
+
+Les Perdus et les bêtes féroces subirent le même sort. Quant au Maître Ashen Pine, son cœur Dao s'effondra soudainement et ses yeux se remplirent de confusion.
+
+Rien de tout cela n'intéressait Wang Lin. Son esprit continua de s'étendre et il vit un homme robuste assis dans une grotte, au sein d'une montagne de la région extérieure. Les yeux de l'homme étaient empreints de panique alors qu'il fixait le vide. Il ouvrit la bouche, mais fut incapable de prononcer le moindre mot.
+
+Même après le départ de l'esprit de Wang Lin, l'homme robuste ne se remit pas de son choc.
+
+L'esprit de Wang Lin parcourut toute la région extérieure et traversa toutes les grottes avant de se diriger vers la chaîne de montagnes semblable à un mur. En chemin, il aperçut la restriction où la Restriction de Vie et de Mort avait fusionné avec la Restriction d'Annihilation.
+
+Il vit une vieille femme au visage pâle, vêtue de vert, assise là, cultivant les yeux clos. Son cœur Dao était en désordre et montrait des signes inattendus de rupture. Son apparence changeait rapidement : tantôt elle paraissait vieille, tantôt antique, tantôt d'âge moyen.
+
+Cette vieille femme n'arrêta pas Wang Lin. Il continua sa progression dans la montagne enveloppée de brume. Le brouillard ne put nullement le retenir et, à l'intérieur, il vit deux montagnes entourées de restrictions.
+
+La Restriction du Temps ne put non plus entraver l'esprit de Wang Lin. Sur la première montagne, il n'y avait rien d'autre qu'une tablette de pierre. Elle semblait vide, mais dégageait une aura antique.
+
+Cependant, aux yeux de Wang Lin, cette aura ancienne disparut progressivement pour révéler que la tablette entière était un trésor.
+
+Alors que l'esprit de Wang Lin s'étendait, il se dirigea vers la seconde montagne protégée par la Restriction du Temps. Là, il vit une statue imposante et une gigantesque porte de pierre à mi-pente. Une marque de foudre ornait la porte.
+
+Son esprit traversa la porte de pierre et aperçut des orbes de lumière aux sept couleurs. Des âmes de bêtes y étaient scellées, du rang 7 au rang 13...
+
+Dans cette grotte, il vit une jeune fille qui ressemblait à la vieille femme. Son visage était livide, elle semblait morte, mais son corps tremblait.
+
+Wang Lin vit également qu'un espace caché existait au sommet, et à l'intérieur, il retrouva la tablette. Il vit aussi le squelette qui était cloué contre la tablette par deux ongles aux sept couleurs.
+
+À cet instant, son esprit fut attiré par le squelette et se fixa sur les innombrables mots gravés sur celui-ci.
+
+Ce fut comme si un coup de tonnerre explosait dans l'esprit de Wang Lin. Son esprit, d'ordinaire calme, fut soudainement bouleversé par un changement radical. Sa conscience se concentra sur le squelette et les mots furent gravés dans son cœur. Ces mots étaient exactement ceux qui résonnaient en lui :
+
+« ... Attendre le chemin de la culture... »
+
+L'esprit de Wang Lin fluctua pendant une durée indéterminée avant de quitter les lieux, confus. Il s'enfonça plus profondément dans cette terre brumeuse et pénétra pour la première fois dans les profondeurs du Royaume aux Sept Couleurs.
+
+La brume y était également présente, mais encore plus dense. Pourtant, cela ne put toujours pas arrêter l'esprit de Wang Lin. Il vit trois jeunes gens vêtus d'habits étranges. Le jeune homme portant la marque en forme de croissant de lune... il l'avait déjà vu...
+
+Le jeune homme marqué par la foudre dit doucement : « Cet endroit est très mystérieux. Ce qui est encore plus étrange, c'est que je peux ressentir l'aura de l'ancêtre de mon Clan du Tonnerre Fulgurant. »
+
+Derrière lui, le jeune homme avec la marque de flamme entre les sourcils se frotta les tempes. L'expression sombre, il murmura : « C'est en effet très étrange. Depuis que nous sommes entrés ici, je sens quelque chose m'appeler dans mon cœur. De plus, j'ai l'impression que ma marque ancestrale est sur le point de quitter mon corps. »
+
+Le dernier jeune homme, celui au croissant de lune, observait les environs avec prudence et ses yeux s'illuminèrent. Juste au moment où il allait accélérer, son expression changea radicalement.
+
+L'esprit de Wang Lin balaya les trois jeunes gens. À cet instant, ce fut comme si un éclair frappait le jeune homme marqué par la foudre entre les sourcils. La marque commença à briller violemment.
+
+Le jeune homme au croissant de lune trembla également, comme s'il venait de penser à quelque chose, sans toutefois en être certain. Son visage devint pâle et une vague immense déferla dans son cœur.
+
+Le plus choqué fut le jeune homme à la marque de flamme. Au moment où l'esprit de Wang Lin passa, il eut l'impression de perdre toute force. Une peur indicible l'envahit et la marque de flamme commença à brûler, comme si elle voulait réduire son corps en cendres.
+
+Heureusement, ce sentiment ne dura qu'un instant. Lorsque l'esprit de Wang Lin passa, la douleur disparut.
+
+Après un long moment, les trois se regardèrent, voyant le choc dans les yeux de chacun.
+
+« Quelle puissance d'esprit ! » haleta le jeune homme marqué par la foudre.
+
+« Il doit s'agir d'un ancêtre de mon Clan du Paon de Feu. Cet esprit que je viens de ressentir contenait certainement l'un des ancêtres de mon clan, sans quoi ma marque n'aurait pas réagi ainsi ! » Le jeune homme à la flamme était pâle, mais ses yeux brillaient de cupidité.
+
+Seul le dernier, le jeune homme au croissant de lune, resta silencieux. Il réfléchissait, une peur cachée dans le regard. Au moment où l'esprit de Wang Lin l'avait effleuré, il s'était remémoré cette scène cauchemardesque qu'il refusait de se souvenir.
+
+« Serait-ce... lui... Impossible. Comment pourrait-il apparaître ici... » Le corps du jeune homme trembla.
+
+Le jeune homme à la flamme se lécha les lèvres et dit lentement : « Bien que l'esprit de cet individu soit puissant, si nous sommes trois à ouvrir le sceau, nous avons encore une chance. J'espère que vous deux m'aiderez ! »

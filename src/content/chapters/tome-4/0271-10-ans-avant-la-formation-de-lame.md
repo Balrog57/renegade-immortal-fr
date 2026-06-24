@@ -1,0 +1,133 @@
+---
+n: 271
+title: "10 ans avant la Formation de l'Âme"
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 271 - 10 Years To Soul Formation
+slug: 10-ans-avant-la-formation-de-lame
+---
+La première personne que Wang Lin avait tuée était son maître, Sun Dazhu !
+
+Alors que sa main s'activait, des copeaux de bois tombaient sur le sol. Peu après, le moment de la mort de Sun Dazhu, ce regard de terreur et de désespoir, fut parfaitement capturé dans la sculpture.
+
+Le cœur de Wang Lin était d'un calme absolu tandis qu'il contemplait l'œuvre de Sun Dazhu. Si Sun Dazhu n'avait pas été si avide du calice de Wang Lin, il ne serait pas mort. C'était le karma. Là où la vie existe, la mort règne également.
+
+La deuxième sculpture représentait un homme d'âge moyen. Les yeux de cet homme étaient injectés de sang, ses lèvres très fines et son visage empreint d'une grande méchanceté. À ce stade, il tenait une épée volante à la main ; l'arme paraissait d'un tranchant redoutable. Une intention meurtrière émanait de cette sculpture.
+
+C'était le maître de Zhang Hu et le disciple du vieil homme Jimo, la deuxième personne que Wang Lin avait assassinée.
+
+Ce jour-là, cet homme avait décidé de tuer Wang Lin, pour finalement devenir la deuxième victime de ce dernier.
+
+Après avoir observé la sculpture sur bois, il la mit de côté et prit un nouveau morceau de bois.
+
+Le troisième était un jeune homme. C'était Teng Li, celui qui l'avait traqué autrefois. En pensant à Teng Li, le cœur de Wang Lin fut parcouru d'un tressaillement, mais il se calma rapidement une fois de plus.
+
+Les scènes de son combat contre Teng Li résonnèrent dans son esprit. Après un long moment, son doigt droit se mua en couteau et il entama son travail sur le bois. Une demi-heure plus tard, la sculpture de Teng Li était achevée.
+
+Cet homme était très beau, mais une arrogance extrême se lisait sur son visage. Sa main droite formait un sceau, son regard était sombre, dissimulant une cupidité profonde, tandis qu'un léger sourire se dessinait au coin de sa bouche.
+
+Mais ce sourire appartenait au passé et s'était perdu dans les méandres de l'histoire. Avec ce sourire, c'est toute la lignée de la famille Teng qui avait disparu.
+
+Une à une, les sculptures furent achevées par Wang Lin et mises de côté. Peu à peu, le sol se couvrit d'œuvres de bois.
+
+L'intention meurtrière dans la pièce devenait de plus en plus dense. Chaque nouvelle sculpture terminée alourdissait l'atmosphère.
+
+Si un cultivateur passait par là, il remarquerait clairement qu'en plus de la neige, une couche de glace recouvrait également le toit de Wang Lin.
+
+Wang Lin n'y prêtait aucune attention. Il était absorbé par ses souvenirs, sculptant chaque personne qu'il avait tuée.
+
+Progressivement, Wang Lin oublia l'acte même de sculpter pour plonger au plus profond de sa mémoire. Quatre cents ans de souvenirs apparurent dans son esprit, et il les observa comme s'il s'agissait de ceux d'un autre.
+
+Du garçon qu'il était au début, au jeune homme à la Secte Heng Yue, de son manque de talent à la découverte de la perle défiant le ciel, des enseignements de Situ Nan jusqu'à l'expulsion de la Secte Heng Yue de sa montagne.
+
+Puis il avait quitté la Secte Heng Yue pour cultiver seul. Après cela, il avait retrouvé Zhang Hu, tué le maître de ce dernier et pénétré dans la ville de la famille Teng, avant que Teng Li ne surgisse de nulle part.
+
+À la suite de cela, il s'était séparé de Zhang Hu. Encore aujourd'hui, il ignorait si Zhang Hu était toujours en vie ou s'il avait péri.
+
+Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le début d'une route semée de conflits. La Secte des Cadavres, puis la Vallée de Jue Ming, et enfin ce moment qui changea radicalement sa vie.
+
+La mort de ses parents. Le sourire de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
+
+Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
+
+Hou Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
+
+Quant à la terre de l'Ancien Dieu, les souvenirs de Wang Lin concernant Hunchback Meng et les autres étaient profonds et difficiles à oublier.
+
+Ces nombreuses années dans la terre de l'Ancien Dieu furent un tournant majeur pour lui. Tant son corps que son esprit subirent d'immenses transformations.
+
+Les dangers y étaient légion. Sans prudence, il n'aurait jamais pu en sortir.
+
+Peu après, il forma son Âme Naissante à Chu et rencontra à nouveau Li Muwan. Une fois le stade de l'Âme Naissante atteint, il put enfin entamer sa vengeance.
+
+Quiconque possédait la lignée de la famille Teng au sein de Zhao mourut par la main de Wang Lin, réglant ainsi ce différend.
+
+La main de Wang Lin ne s'était pas arrêtée un instant alors qu'il sculptait les figures de ses souvenirs. Ses mouvements devinrent de plus en plus rapides, jusqu'à n'être plus qu'un flou.
+
+Les images défilaient dans son esprit avec une célérité croissante. Peu à peu, il revit les trente années passées à se transformer en mortel. Naissance et mort, les scènes de la vie s'imprimant lentement dans l'esprit de Wang Lin.
+
+Bien plus tard, il n'eut plus aucun souvenir en tête. Il ne restait désormais que deux mots : « Vie » et « Mort ».
+
+La vie et la mort, les mutations qui surviennent dans la réincarnation céleste. Wang Lin avait compris le sens de la mort au fil de ses quatre cents ans de tueries, et lors de ses trente années de vie mortelle, il était venu à comprendre la vie.
+
+Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarnation céleste, cela lui avait laissé une impression indélébile. C'était comme s'il avait percé un voile, lui permettant d'obtenir cette intuition.
+
+Mais l'intuition ne signifie pas la compréhension.
+
+On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture :
+
+« Ce que tu vois comme une montagne est une montagne, et ce que tu vois comme de l'eau est de l'eau. »
+
+Wang Lin en était actuellement à ce stade.
+
+Lorsqu'il ouvrit les yeux, d'innombrables sculptures jonchaient sa boutique. Une lueur maléfique brillait dans le regard de Wang Lin. Cette lumière ressemblait étroitement à celle de Ta Sen dans la terre de l'Ancien Dieu.
+
+Il contempla calmement toutes les sculptures devant lui et leva lentement les mains. Soudain, toutes les pièces de bois se mirent à trembler et convergèrent vers ses paumes. De plus en plus de sculptures volèrent vers lui, mais à cet instant, un vortex noir apparut entre ses mains. Bien que les sculptures s'y engouffrèrent une à une, la taille du vortex ne changea point.
+
+Une par une, les sculptures furent aspirées dans le vortex noir. Une fois la dernière entrée, Wang Lin fixa calmement l'abîme. À cet instant, la sacoche de rangement à sa ceinture s'ouvrit et trois sphères d'intention meurtrière s'en échappèrent.
+
+Les trois sphères pénétrèrent le vortex noir. Lorsque la dernière fut absorbée, les yeux de Wang Lin révélèrent une lumière mystérieuse et ses mains s'animèrent.
+
+Le vortex noir changea rapidement de forme sous le contrôle de Wang Lin. Finalement, il prit une forme carrée et devint progressivement solide. Lentement, le vortex disparut pour laisser place à un sceau noir devant lui.
+
+Le sceau avait la taille de la paume de Wang Lin et portait la gravure d'une personne, mais cette silhouette n'avait ni visage ni traits distinctifs. Ce sceau noir contenait les quatre cents ans de meurtres de Wang Lin. C'était la forme physique de la mort.
+
+La main droite de Wang Lin pressa le sceau noir. Une sensation d'être submergé par le sang envahit soudainement son cœur. Il prit une profonde inspiration, et le sceau pénétra progressivement dans son Âme Naissante.
+
+Wang Lin contempla un instant la boutique où il avait vécu pendant trente ans avec une expression mélancolique. D'un geste de la main, il fit disparaître toutes les sculptures de la pièce.
+
+Puis, il ouvrit la porte et s'avança dans la nuit enneigée.
+
+Wang Lin marcha lentement dans la rue alors que la tempête de neige redoublait d'intensité.
+
+Lorsqu'il sortit de la boutique, sa silhouette était encore celle d'un vieillard au crépuscule de sa vie, mais à mesure qu'il progressait vers le bout de la rue, son dos se redressa progressivement. Les rides sur son visage s'effacèrent lentement et, lorsqu'il atteignit l'extrémité de la rue, il était passé avec succès du stade de mortel à celui de cultivateur.
+
+Bien qu'il n'ait pas encore atteint le stade de la Formation de l'Âme, il s'en rapprochait considérablement. Après avoir découvert le Domaine de la Vie et de la Mort et avoir appréhendé les lois célestes, le corps de Wang Lin ressentait un puissant désir d'ascension.
+
+C'était comme si une force mystérieuse dans les cieux l'attirait vers elle.
+
+Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes ; il lui suffisait de trouver un endroit pour s'isoler en culture fermée pendant dix ans pour atteindre ce stade.
+
+Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte. Il avait vécu dans cette vieille rue pendant plus de trente ans. Il en avait gravé chaque détail, jusqu'au moindre brin d'herbe, dans son esprit. Une pointe de tristesse lui serra le cœur.
+
+Après avoir contemplé la scène un long moment, il en fixa l'image dans sa mémoire. Il poussa un soupir et disparut dans la nuit.
+
+Dans une ville située à 10 000 kilomètres au nord, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
+
+Ils avaient tous été rassemblés ici pour aider au débloiement de la neige. Da Niu vivait dans l'une de ces demeures.
+
+Trente autres personnes partageaient la maison avec lui, rendant ce logement déjà exigu encore plus étouffant. Da Niu fixait le plafond d'un regard vide.
+
+Son fils, sa femme et, par-dessus tout, Wang Lin lui manquaient.
+
+Tout avait été balayé par cette neige.
+
+Avant ces tempêtes, il était un homme qui disposait de temps libre, un boutiquier qui avait quelques employés sous ses ordres. Son fils était entré dans une secte d'immortels et était devenu un immortel.
+
+Dans cette rue, on pouvait dire qu'il menait une vie prospère.
+
+Lui et sa femme s'étaient toujours aimés. La vie était empreinte de joie. Il avait même prévu d'arrêter l'oncle Wang de sculpter dans quelques années pour le servir durant ses dernières années de vie.
+
+Dans son esprit, la mort de ses parents lui rappelait l'oncle Wang qui l'avait vu grandir, tel un aîné. Mais cette neige avait tout changé.
+
+Il ignorait ce qu'il en était de sa femme à cet instant. Lorsqu'il avait appris, il y a quelques mois, que même les femmes étaient mobilisées pour déblayer la neige, il avait été rongé par l'inquiétude. La santé de sa femme n'avait jamais été robuste. Son corps pourrait-il seulement supporter ce froid glacial...

@@ -1,0 +1,97 @@
+---
+n: 977
+title: "La Perle Défiant le Ciel S'Ouvre à Nouveau (3)"
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 977 - Heaven Defying Bead Opens Once More (3)
+slug: la-perle-defiant-le-ciel-souvre-a-nouveau-3
+---
+Ce brouillard était rouge et tournait lentement. Il devenait progressivement plus dense en absorbant la lumière.
+
+Non seulement son âme originelle, mais même son corps changeait graduellement sous l'effet de cette lueur. Son corps de Dieu Ancien était déjà extrêmement puissant, et après avoir absorbé cette lumière, sa constitution devint encore plus robuste.
+
+Au fil du temps, la peau de Wang Lin devint lentement rouge. Des gouttes de sueur s'évaporèrent au gré du vent. Bien que cela provoquât une sensation de froid, Wang Lin ne pouvait pas le ressentir.
+
+Une atmosphère brûlante se manifesta dans un rayon de mille pieds autour de lui. Si quiconque osait s'approcher, il serait stoppé par cette chaleur. S'ils tentaient de forcer le passage, leur âme serait instantanément détruite !
+
+Wang Lin resta assis dans cet environnement relativement calme pendant dix jours. Durant ces dix jours, il demeura immobile, totalement absorbé par les changements radicaux qui s'opéraient au sein de son corps.
+
+Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Nirvana Scryer après la bataille entre Allheaven et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
+
+Cependant, au onzième jour, alors que la perle défiant le ciel changeait une fois de plus, la situation bascula !
+
+Le soleil sur la perle défiant le ciel, qui tournait rapidement, ralentit et, à midi le onzième jour, s'arrêta complètement. Mais au moment même où il s'immobilisa, le troisième œil de Wang Lin s'ouvrit spontanément !
+
+Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la perle défiant le ciel.
+
+Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la flamme du clan Tattoo sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était l'ultime atout que Wang Lin avait préparé pour le combat.
+
+À cet instant, cette rare énergie source originelle pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant l'âme originelle de Wang Lin à l'intérieur même de l'objet.
+
+Wang Lin sentit seulement sa vision se brouiller, et lorsqu'il retrouva la vue, il découvrit cette scène familière.
+
+Dans cet endroit semblable au vide, se dressait une porte monumentale. Cette porte était aussi haute que les cieux, et Wang Lin n'était qu'une fourmi face à elle.
+
+Wang Lin fixa la porte. Chaque fois qu'il l'apercevait, il ressentait un choc total. La dernière fois, il n'en avait entrevu que l'intérieur, et lorsqu'il s'était réveillé, il avait vaguement pris conscience de l'énergie source originelle.
+
+Après avoir longuement médité, Wang Lin flotta en avant, se rapprochant de plus en plus de l'édifice. À mesure qu'il s'approchait, la porte gronda et une ouverture se forma.
+
+Dès que cette brèche apparut, un impact inimaginable en émana. Cet impact pouvait être ressenti, mais était totalement invisible. Lorsqu'il frappa Wang Lin, celui-ci fut saisi de stupeur et cessa de bouger. Comme auparavant, il tomba dans une sorte de transe.
+
+Cependant, cette fois, au moment où Wang Lin sombrait dans cet état, une aura brûlante émana de la porte et pénétra son corps. Cela fit trembler son esprit et lui permit de reprendre ses esprits.
+
+« Extrême Yang ! » Wang Lin sentit clairement que cette aura ardente était l'Extrême Yang que la perle défiant le ciel avait absorbé.
+
+Tandis qu'il réfléchissait, une lueur d'illumination brilla dans les yeux de Wang Lin.
+
+« L'achèvement des cinq éléments a fait apparaître la porte défiant le ciel, mais il était impossible d'y entrer. À l'époque, je n'ai pu franchir le seuil et seul mon esprit s'est perdu en son sein. »
+
+« Après les cinq éléments viennent le Yin et le Yang. Maintenant que la perle défiant le ciel a absorbé l'Extrême Yang, l'exigence du Yin et du Yang est à moitié remplie. C'est pourquoi elle m'a tiré de ma transe. J'ignore simplement quel rôle jouera l'Extrême Yin... Si le Yin et le Yang sont complets, que se passera-t-il... » Wang Lin réfléchit longuement avant de fixer la porte et de flotter vers elle.
+
+Cette fois, même en contemplant l'ouverture, il ne tomba plus en transe. Il s'approcha de plus en plus jusqu'à se retrouver au pied de la faille, à un seul pas de l'entrée. À cet instant, ce sentiment d'être une minuscule fourmi envahit à nouveau son cœur.
+
+Une détermination sans faille remplit les yeux de Wang Lin alors qu'il leva le pied pour s'avancer vers cette porte qui semblait soutenir la voûte céleste !
+
+« Je veux connaître le véritable secret de la perle défiant le ciel ! » Juste au moment où le pied droit de Wang Lin allait pénétrer dans l'ouverture, son corps trembla. C'était comme si une bourrasque d'air glacial avait transpercé son être.
+
+Soudain, Wang Lin sentit son âme être arrachée et repoussée par ce vent froid. Il disparut dans le vide infini.
+
+Alors qu'il continuait de reculer, Wang Lin sentit qu'il entrait dans une trace. Il se sentit rétrécir, et ses mille ans de culture s'inversèrent. Tout remonta le cours du temps jusqu'à ce qu'il ne soit plus qu'un nourrisson dans le ventre de sa mère.
+
+Le son des battements de cœur parvint clairement aux oreilles de Wang Lin, et l'affection longtemps perdue de ses parents envahit son esprit. Cependant, cela ne dura qu'un instant avant que le vent froid ne le projette loin de là.
+
+Wang Lin tenta de reculer une fois de plus, mais une force mystérieuse l'en empêchait cette fois. Pourtant, comparée au vent glacial, cette force était dérisoire.
+
+La force mystérieuse qui entravait sa retraite se brisa. Ce que Wang Lin vit alors le choqua profondément. Un tel choc était extrêmement rare en mille ans de culture !
+
+« Ceci... ceci est... » murmura Wang Lin. Il vit le ciel bleu, les nuages blancs et un oiseau volant sous la blancheur des cieux.
+
+Cet oiseau était magnifique ; il arborait des plumes colorées et son vol était empreint de vigueur. Il volait comme s'il peignait dans l'immensité céleste avant de s'estomper graduellement.
+
+En regardant l'oiseau disparaître au loin, Wang Lin eut l'illusion que cet oiseau était lui-même... C'était si familier, si étrangement familier...
+
+Il vit la courte vie de l'oiseau. Bien que pour autrui cette existence puisse sembler insignifiante, pour Wang Lin, c'étaient des souvenirs d'une époque très, très lointaine. Les souvenirs de cette vie venaient d'être effleurés et révélés.
+
+« Énergie source... Ceci... C'est l'énergie source... » Ce fut comme si un coup de tonnerre explosait dans l'esprit de Wang Lin ; il semblait avoir saisi une piste !
+
+La vie de l'oiseau n'était pas longue, seulement quelques décennies. Lorsque Wang Lin vit l'oiseau mourir dans la gueule d'un python, il ressentit une douleur au cœur. Et lorsque le regard moribond de l'oiseau, qui semblait tout voir, croisa celui de Wang Lin, ces souvenirs cachés que nulle puissance ne pouvait ouvrir furent enfin dévoilés.
+
+Le corps de Wang Lin recula avec fracas, expulsé par le vent froid. Cependant, cette étrange force qui l'empêchait de reculer réapparut !
+
+Cette fois, cette puissance était bien plus grande qu'auparavant. Le vent glacial n'avait aucune prise sur cette force mystérieuse. La lutte entre les deux puissances ressemblait à un rugissement éternel.
+
+Après un long moment, une fissure apparut dans la barrière formée par la force mystérieuse. Le corps de Wang Lin franchit l'ouverture et, à cet instant, il vit une lumière rouge. Avant qu'il ne puisse distinguer quoi que ce soit, une force inimaginable jaillit de l'intérieur de la faille et percuta son corps.
+
+Wang Lin sentit son être se déchirer en d'innombrables fragments. Alors qu'il était projeté en arrière, tout son corps s'effondra.
+
+Au moment même de cet effondrement, Wang Lin ouvrit brusquement les yeux. Il se tenait toujours au pied de la gigantesque porte défiant le ciel. Son pied droit était levé dans les airs, sur le point de franchir le seuil !
+
+Wang Lin prit une profonde inspiration et le choc qui habitait son regard s'apaisa progressivement. Tout ce qui venait de se produire s'était produit à l'instant précis où il avait levé le pied.
+
+À cet instant, la fissure sur la porte défiant le ciel se referma lentement. Puis elle devint illusoire et disparut devant lui.
+
+Au sein de la Secte de l'Épée Da Lou, Wang Lin ouvrit lentement les yeux et observa la réalité qui l'entourait. Après un long moment, il laissa échapper un soupir et se redressa.
+
+Dès qu'il se leva, une aura extrêmement puissante explosa de son corps. Cette aura était d'une force prodigieuse et avait atteint le sommet du stade intermédiaire du Nirvana Scryer !
+
+« Alors, c'est donc cela, l'énergie source... »

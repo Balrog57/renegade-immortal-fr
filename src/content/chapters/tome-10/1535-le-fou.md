@@ -1,0 +1,101 @@
+---
+n: 1535
+title: "Le Fou !"
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: "Chapter 1535 - Madman!"
+slug: le-fou
+---
+Chapitre 1535 - Le Fou !
+
+Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête Nether, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne !
+
+C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête Nether et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.
+
+Une planète de culture semi-effondrée se trouvait dans la Bête Nether. Cette planète n'était plus ronde, elle ne portait aucune végétation et régnait dans un silence absolu.
+
+Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était accroupi là, fixant un corps au sol.
+
+« Étrange, cet homme est-il mort ? Il y a quelques jours, avant que je ne parte, il n'était pas aussi grand, et après seulement quelques jours d'absence, il a bien grandi. À en juger, il faudra encore quelques années pour qu'il soit complètement formé... Eh bien, cela semble avoir un rapport avec mon sang... » Le cultivateur aux yeux vitreux se toucha le menton tout en tournant autour du cadavre, lui donnant même quelques coups de pied.
+
+« Bon sang, tu oses faire semblant d'être mort devant ce roi ? » Le cultivateur lança un regard noir au corps et le frappa. Constatant l'absence de réaction, il multiplia les coups. Finalement, il gloussa et sauta sur le corps. Après avoir bondi dessus pendant une heure, il se sentit satisfait et s'allongea sur le sol, contemplant le ciel d'un air absent.
+
+Il avait erré dans cet endroit durant d'innombrables années sans jamais croiser une seconde âme. Il se souvenait qu'il y a un nombre indéterminé d'années, il était également allongé ici, regardant le ciel avec vacuité.
+
+Il avait supplié les cieux de lui accorder un compagnon de culture pour rompre sa solitude.
+
+Il y pensait presque chaque jour, mais cette fois-ci était différente. À l'instant même où une telle pensée lui traversa l'esprit, ses yeux s'écarquillèrent : une lueur jaillit dans le ciel étoilé. Il vit quelque chose tomber des cieux et atterrir de l'autre côté de la planète.
+
+Il resta stupéfait pendant quatre ou cinq jours avant de réagir. Il se précipita alors vers l'autre extrémité de la planète, transporté par la joie.
+
+C'est là qu'il avait trouvé ce corps brisé et l'avait ramené ici.
+
+« Enfin, quelqu'un pour m'accompagner... Bien que ce soit un mort, comment un cadavre peut-il croître à nouveau ? Oh... Peut-être, qui sait. Je le dis, il va pleuvoir aujourd'hui... Petite Rouge, va chercher la Pierre de Jade de l'Abri de Pluie... Hein ? Je l'ai mangée la dernière fois que j'étais ivre, tu dis... Alors va demander à la famille Lee d'en fournir une autre. Bon sang, s'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir la voler demain ! »
+
+« C'est peut-être ça... Peut-être qu'il n'y a pas assez d'argent... Et s'il n'y en a pas assez... Petit Gui, va trouver mon grand frère et dis-lui de m'en donner. S'il refuse, dis-lui que demain ce roi va... Euh, j'irai la voler moi-même ! » Le cultivateur ne savait même plus ce qu'il marmonnait. Ce phénomène avait commencé lorsqu'il était piégé dans le Royaume aux Sept Couleurs. Sans ces divagations incessantes, il serait sans doute devenu véritablement fou.
+
+Après avoir marmonné longtemps, il laissa échapper un grand soupir et regarda le cadavre. Son expression changea brusquement pour devenir féroce.
+
+« Tu oses effrayer ce roi ? Voyons comment je vais te traiter ! » rugit-il.
+
+Tout en rugissant, il bondit dans les airs et ses mains formèrent des sceaux, lançant une multitude de sorts sur le corps. La terre trembla longuement, et avant même que les secousses ne cessent, ce cultivateur fou utilisa encore plus de sorts.
+
+Le bombardement dura plusieurs jours consécutifs... Si un cultivateur du troisième niveau avait vu les sortilèges utilisés par ce fou, il en aurait été terrifié !
+
+« Petite Rose, reçois mon attaque ! » Le fou leva la main droite. Le monde trembla et une empreinte de paume gigantesque apparut. Cependant, l'empreinte semblait manquer de puissance et s'effondra dès qu'elle toucha le corps.
+
+Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit de Guerre la plus authentique ! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée au Secte Divin, mais celle utilisée par ce fou était encore plus pure !
+
+« Petit Argent, regarde comment ce roi te frappe ! » rugit le fou, puis il pointa le ciel. Le firmament se transforma soudainement en une voûte et un pilier gigantesque soutenant la voûte céleste apparut. C'était un parapluie colossal !
+
+« Parapluie de la Brûlure du Royaume, brûle pour ce roi ! » Le fou agita sa main droite et le parapluie rétrécit jusqu'à ce qu'il puisse le tenir en main. Il le planta contre le corps au sol, mais bien que l'objet fût puissant, il se révéla impuissant. Dès qu'il toucha le cadavre, il se dissipa instantanément.
+
+« Vieux Li Guang, reçois la flèche de cet homme ! » Le fou sourit et leva les mains comme s'il tenait un arc. Aucun arc n'était visible, mais une flèche apparut soudainement et fila vers Wang Lin.
+
+« Petite Fille aux Sept Couleurs, ton mari a été chassé par mon grand frère. Je te le dis, tu ferais mieux de suivre ce roi. Vois-tu, je peux aussi utiliser les sorts aux sept couleurs ! » Le fou leva la main droite et une lueur multicolore jaillit. Cette lumière se mua en un disque de sorts qui fonça en avant.
+
+Le temps passa lentement. Le fou continuait de divaguer, utilisant une quantité phénoménale de sortilèges qui n'avaient jamais été vus dans les Royaumes Intérieur ou Extérieur !
+
+Ce ne fut que quelques jours plus tard que le fou s'arrêta enfin. Essoufflé sur le côté, il affichait un air de satisfaction.
+
+« Pas mal, pas mal du tout. Les sorts de ce roi sont devenus encore plus puissants, pas mal ! Maintenant, il est temps d'éprouver ma force. » Il se leva et s'approcha du cadavre. Un arc se trouvait dans la main du mort !
+
+Le corps serrait l'arc fermement, mais sa corde était brisée. L'une des extrémités de la corde était attachée à l'arc, tandis que l'autre était fusionnée avec la chair du cadavre.
+
+Le fou se frotta les mains et saisit l'arc. Son visage devint rouge alors qu'il tentait d'arracher l'arme. Son corps tressaillait et il continuait de rugir.
+
+« Bon sang, cet homme maudit de la Nation Ancienne qui tient l'arc de Li Guang... Même mort, il est toujours aussi fort... Hein ? Qu'est-ce que je viens de dire ? La Nation Ancienne ? L'arc de Li Guang ? »
+
+Le fou sursauta et desserra sa prise. Il resta pensif un long moment. Il regarda le cadavre en secouant la tête : « Nation Ancienne... cela me semble très familier... Je ressens une immense haine... » Malgré son insistance, il ne parvint pas à se souvenir de quoi qu'il s'agissait. Il se gratta la tête et soupira devant le corps. Puis, il se mordit le doigt de la main droite et le porta à la bouche du cadavre.
+
+« Bois, bois encore pour que tu puisses vite reconstruire ton corps et pouvoir jouer avec moi... » Cela faisait bien plus d'un ou deux jours qu'il nourrissait ce corps. Depuis qu'il l'avait trouvé, chaque fois qu'il y pensait, il lui donnait un peu de son sang.
+
+« Le sang de ce roi est très précieux. Cette petite fille de la famille Li m'a supplié pendant des années avant que je ne lui en donne une seule goutte. Et puis, il y avait aussi qui... qui... qui... Petite Rouge, c'était elle ? »
+
+« Ah oui, c'était la sainte de cette secte qui avait été enlevée par cet homme. Si je n'avais pas eu pitié d'elle, ce roi ne lui en aurait jamais donné. »
+
+« Une seule goutte du sang de ce roi est plus précieuse que le Sage du Dao ! »
+
+« Hélas, il n'y a rien à manger. Petite Rouge, va chez la famille Chi Mu me chercher des fruits. Ces fruits qu'ils cultivent et qui ne poussent qu'une fois tous les 100 000 ans... Le Fruit du Rêve. Apporte-les moi. S'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir les voler demain ! »
+
+Alors que le fou marmonnait pour lui-même, il ne remarqua pas que le cadavre, qui se remettait rapidement, ralentit soudainement après avoir absorbé son sang. Non seulement la guérison s'arrêta, mais elle s'inversa, aggravant les blessures.
+
+Une force rejetait ce sang avec frénésie, comme si les deux ne pouvaient coexister. Cependant, au cœur de ce rejet, il y avait un soupçon de fusion... Ce cadavre était Wang Lin !
+
+Le sang du fou ne pouvait absolument pas se fondre avec la puissance de l'Ordre Ancien qui résidait en lui. Les deux se dévoraient mutuellement dans une lutte acharnée, comme dans un combat à mort. Cette destruction mutuelle provoqua chez Wang Lin un étrange changement. Ce processus semblait transformer sa lignée... passant d'une condition mortelle à celle d'un véritable être céleste !
+
+L'arc de Li Guang n'avait reconnu aucun autre maître depuis la mort de son premier possesseur, et même le Vieux Fantôme Zhan ne pensait pas qu'un nouveau maître puisse émerger. Tandis que cette métamorphose s'opérait en Wang Lin, un changement phénoménal se produisait également dans l'arc de Li Guang !
+
+Si le Vieux Fantôme Zhan avait été témoin de la scène, il en serait resté incrédule !
+
+La corde brisée, qui s'était intégrée au corps de Wang Lin, fusionnait lentement avec sa nouvelle lignée. La puissance de son sang imprégnait peu à peu l'intégralité de l'arc.
+
+L'arc laissait échapper de faibles échos d'excitation que seul Wang Lin pouvait percevoir. C'était un cri de joie pour avoir trouvé un nouveau maître après la mort du premier, il y a des millénaires !
+
+L'arc sentait que la lignée changeante de Wang Lin était cent fois plus pure que celle de son précédent maître, comme la différence entre l'eau et le vin !
+
+Le fou fixait le ciel d'un air absent et continuait ses divagations.
+
+« Il pleut... Hein ? Petite Rouge, viens masser les épaules de ton maître... »
+
+« Va dire à mon grand frère que ce gamin est fatigué et qu'il ne va pas cultiver. Je sors jouer... Dis-lui de ne pas me chercher. Une fois que j'aurai assez joué, je reviendrai. S'il ose encore me traquer comme autrefois, je romps tout lien avec lui ! »

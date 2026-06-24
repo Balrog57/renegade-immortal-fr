@@ -1,0 +1,111 @@
+---
+n: 1733
+title: "Une goutte de l'univers !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1733 - One Drop of the Universe!"
+slug: une-goutte-de-lunivers
+---
+Chapitre 1733 - Une goutte de l'univers !
+
+La terreur du Général des Eaux était aussi vaste que les vagues de l'océan. Cette armure lui avait été léguée par ses ancêtres ; il l'utilisait depuis si longtemps qu'il avait lentement fusionné sa propre lignée avec elle pour qu'elle ne fasse plus qu'un avec lui.
+
+Sans cette armure, il n'était qu'un cultivateur du quatrième niveau de la Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la culture. Cependant, l'armure était extrêmement étrange : une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.
+
+Il se souvenait que lorsque son ancêtre la lui avait remise, celui-ci avait précisé que même au sein de la secte ancestrale, une telle armure était rare. Elle était extrêmement difficile à raffiner et ne serait confiée qu'à celui ayant accompli de grands mérites ou s'apprêtant à se rendre dans un lieu périlleux.
+
+Chaque armure était un trésor précieux qui ne pouvait être dérobé par un étranger !
+
+Ce qui fit trembler le cœur du Général des Eaux, c'était que l'attaque de Wang Lin avait provoqué des fissures sur l'armure, menaçant de faire éclater son corps tout entier. S'il n'avait pas été sauvé par la force vitale émise par l'armure, il serait déjà mort !
+
+Ce qui le terrifiait le plus, c'était que d'un simple regard, Wang Lin avait été capable de percer le secret de l'armure. Une telle perspicacité et une telle puissance firent frissonner le cœur du Général des Eaux.
+
+Lorsque Wang Lin posa les yeux sur lui, le Général des Eaux vit des lignes de sang dans le regard de ce dernier. Ces lignes contenaient une sorte de loi qui lui fit perdre la raison un instant.
+
+« Enlève ton armure et je t'épargnerai. » À cet instant, l'eau entourant Wang Lin et le Général des Eaux retomba, levant le rideau d'eau qui occultait la vue de tous. Lorsque les cultivateurs de la Secte Gui Yi virent le Général des Eaux dans un état aussi pitoyable, leur joie s'évanouit et ils tombèrent dans le silence.
+
+L'expression du Général des Eaux était extrêmement sombre. Les paroles de Wang Lin firent battre son cœur violemment. Il serra les dents pour contenir sa peur, puis bondit en arrière afin de mettre de la distance entre lui et Wang Lin.
+
+Wang Lin conservait la même expression impassible tandis qu'il observait froidement le recul du Général des Eaux. Il vit ce dernier lever sa lance d'eau, une intention meurtrière brillant dans ses yeux.
+
+Wang Lin ne ferait preuve d'aucune clémence envers ceux qui n'appartenaient pas au monde des grottes. On ne discute pas avec des brigands !
+
+« Tu cherches la mort ! » lança Wang Lin en s'avançant vers le Général des Eaux.
+
+Le visage du Général des Eaux était pâle, ses yeux empreints de folie. Il leva la main droite et projeta sa lance dans la mer en contrebas. La lance d'eau émit une lueur éblouissante, faisant gronder l'océan. Des tourbillons surgirent de la surface.
+
+« Par mon corps spirituel de l'eau, rassemble le pouvoir des eaux ! » Le Général des Eaux cracha une gorgée de sang vers la mer et tendit ses mains vers les flots.
+
+À cet instant, les vagues rugirent comme si un dragon géant s'agitait dans les profondeurs. Tandis qu'il étendait ses mains, la mer entière sembla bouillir et s'élever.
+
+De loin, le spectacle était saisissant. Toute l'étendue marine s'élança dans les airs vers Wang Lin.
+
+Simultanément, le Général des Eaux cracha de nouveau du sang, révélant un visage épuisé et tourmenté. Sa main gauche se tendit vers le ciel.
+
+« Que les nuages s'ouvrent et que la brume se dissipe ! Que la lumière détruise tout et que la pluie forme la mer ! » La main gauche du Général des Eaux vibra et tous les nuages s'effondrèrent. Une autre mer sembla apparaître dans le ciel avant de retomber soudainement, fusionnant avec l'océan en contrebas. Les deux masses d'eau se rejoignirent pour former une sphère d'eau gigantesque flottant dans les airs.
+
+Cette sphère était trouble, arborant la couleur profonde de l'océan. Sa taille semblait infinie ; du regard, il était impossible d'en percevoir les limites. C'était comme une petite planète faite d'eau !
+
+« Goutte de l'univers ! » Le Général des Eaux serra les dents pour achever le sort transmis par son ancêtre. Sa chair commença à dépérir et son visage autrefois handsome se couvrit de pustules hideuses.
+
+Il n'aurait jamais pu survivre aussi longtemps avec sa seule force vitale. Quatre Fléaux Célestes avaient éclaté dans son corps ; avec son talent, il n'aurait jamais pu les surmonter en toute sécurité.
+
+Il n'avait survécu que grâce à l'armure, mais il venait d'en épuiser toute la puissance. Privé de la protection de cette armure, il retrouvait son véritable état de décrépitude.
+
+Devant lui, la sphère d'eau géante tournait frénétiquement. À mesure qu'elle pivotait, elle commençait à se condenser à une vitesse fulgurante.
+
+Chaque fois qu'elle rétrécissait d'une taille, la pression interne augmentait de façon incalculable !
+
+Si cette sphère pouvait être raffinée en une seule goutte, même un système stellaire entier s'effondrerait sous sa pression !
+
+C'était là le pouvoir de l'eau, le pouvoir de l'essence de l'eau !
+
+Wang Lin se trouvait à l'intérieur de la sphère, observant le mouvement des flots. La pression de l'eau venait de toutes parts, dégageant une aura destructrice capable d'anéantir n'importe quoi.
+
+Les yeux de Wang Lin brillèrent alors qu'il contemplait l'eau qui l'entourait. Son regard trahissait une lumière étrange doublée d'un sentiment d'excitation extrême.
+
+« C'est le pouvoir de l'essence de l'eau !!! » L'exaltation dans ses yeux s'intensifia.
+
+« Il serait très facile de quitter cet endroit, et même de tuer ce Général des Eaux. Cependant, c'est une opportunité unique. En s'appuyant sur son armure, le Général des Eaux a créé l'essence de l'eau. Cette force est en train de muter sous mes yeux ; si je parviens à la comprendre, je n'aurai plus sept essences, mais huit ! »
+
+Comme Wang Lin l'avait pressenti, une telle occasion était extrêmement rare, d'autant plus que l'essence contrôlée par le Général des Eaux n'était pas ordinaire. Elle avait été forgée par la Secte Gui Yi sur le Continent Astral Immortel via une méthode spéciale, issue d'une compréhension absolue de l'élément aqueux.
+
+C'était comme si toute la vérité était exposée devant lui. C'était bien plus clair que les enseignements qu'un maître pourrait transmettre à son disciple !
+
+Comment Wang Lin pouvait-il laisser passer une telle chance ?
+
+Bien que son talent ne fût pas exceptionnel, sa compréhension et son intuition étaient prodigieuses ; sans cela, il n'aurait jamais pu obtenir d'essences. De plus, ce n'était pas la première fois qu'il rencontrait l'essence de l'eau. Lorsque la Perle Défiant le Ciel avait dû absorber de l'eau, et lorsque l'Omniscient lui avait donné cette goutte d'essence, Wang Lin avait déjà reçu les clés pour emprunter ce chemin !
+
+L'excitation atteignit son paroxysme dans ses yeux. Sans perdre un instant, il s'assit au cœur de la sphère en pleine condensation. Ses yeux brillaient d'une lueur singulière tandis qu'il observait chaque mutation de l'eau devant lui.
+
+Ces changements semblaient dépourvus de logique, mais lorsque les lignes de sang apparurent dans ses yeux, il commença à en déceler les indices. Ses yeux pétillèrent d'excitation alors qu'il mémorisait frénétiquement les variations de l'essence !
+
+À part Wang Lin, personne ne pouvait remarquer ce phénomène. Le Général des Eaux n'en avait aucune idée. Son expression était féroce, teintée elle aussi d'une pointe d'excitation.
+
+Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques centaines de milliers de pieds !
+
+L'essence au sein de cette sphère devint encore plus puissante à mesure que l'eau de mer et la pluie se condensaient !
+
+« Même si ta culture défie le ciel, avec cette Goutte de l'Univers, la puissance de mon sort a décuplé. Je vais te comprimer en une seule goutte et te raffiner jusqu'à la mort ! » Le Général des Eaux traçait des sceaux avec frénésie et frappait la sphère. Chaque impact faisait onduler le pouvoir de l'armure à travers l'eau, accélérant sa réduction.
+
+Wang Lin ressentit presque de la gratitude envers le Général des Eaux. Les actions de ce dernier lui permettaient d'observer encore plus de changements dans l'essence et de mieux la comprendre !
+
+La sphère de plusieurs centaines de milliers de pieds se contracta de moitié pour atteindre 200 000 pieds. Le Général des Eaux, bien qu'exalté, haletait lourdement, comme épuisé.
+
+Il leva les yeux vers le ciel et poussa un rugissement : « Na Duo, aide-moi !! »
+
+À la suite de son cri, un vortex apparut dans le ciel. Une puissance métallique en jaillit et se propagea instantanément.
+
+L'eau métallique des cinq éléments ! Les avis divergeaient sur l'origine de cette substance. Certains disaient qu'il s'agissait de métal fondu dans l'eau ; d'autres croyaient que l'eau se rassemblait naturellement sur le métal après une exposition prolongée.
+
+Mais quelle que soit la vérité, tous les anciens sages s'accordaient pour dire que le métal pouvait engendrer l'eau !
+
+C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau autour de Wang Lin se contracta encore plus rapidement. Le rire du Général des Eaux se mua en un ricanement sinistre.
+
+« Wang Lin, tu es mort !! »
+
+À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empereur Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
+
+« Comment peut-il l'affiner ? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage ancien mais aussi les sorts des Célestes. C'est extrêmement rare ! »
+
+« Et il porte réellement sept essences dans son corps, c'est extraordinaire !! Utiliser les lignes de sang dans les yeux pour contenir l'essence de la restriction... je n'ai jamais vu personne faire cela auparavant ! Une double culture, ancienne et céleste... »

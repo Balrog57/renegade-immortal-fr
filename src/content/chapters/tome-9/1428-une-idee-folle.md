@@ -1,0 +1,125 @@
+---
+n: 1428
+title: "Une idée folle !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1428 - Crazy Idea!"
+slug: une-idee-folle
+---
+Chapitre 1428 - Une idée folle !
+
+L'ancêtre du Clan de l'Hirondelle de Feu était un cultivateur du troisième niveau. Bien qu'il ne fût qu'au début du stade Nirvana Vide, il pouvait faire trembler les cieux d'un simple revers de main. Il utilisa la Distorsion Spatiale pour retourner rapidement au quartier général du Clan de l'Hirondelle de Feu en compagnie de Liu Jinbiao.
+
+L'ancêtre émergea à l'extérieur de la planète principale du Clan de l'Hirondelle de Feu. Ses yeux étaient empreints d'extase et, en un éclair, il s'élança vers le centre de la planète, enveloppée de flammes.
+
+Sa vitesse était telle qu'il atteignit instantanément le lieu où il restait habituellement pour sa culture en isolement.
+
+La température des flammes ici était absolument terrifiante ; une simple étincelle suffisait à tuer un cultivateur. Pourtant, l'ancêtre du Clan de l'Hirondelle de Feu demeurait parfaitement indemne et s'approcha rapidement, tenant Liu Jinbiao par la main.
+
+L'expression de Liu Jinbiao était aussi sombre que l'eau alors qu'il lançait un regard glacial à l'ancêtre. Il avait complètement oublié son passé, se mentant à lui-même en croyant être le sixième descendant de l'Oiseau Vermillon !
+
+Après avoir exercé son pouvoir pendant si longtemps, il avait été capturé par le Clan de l'Hirondelle de Feu. Cependant, en tant que sixième descendant de l'Oiseau Vermillon, il possédait sa propre fierté. Même face à la mort, il ne supplierait pas pour obtenir grâce.
+
+Une porte illusoire se dressait au plus profond de la mer de feu. Un être ordinaire ne pourrait même pas faire un demi-pas à l'intérieur. De plus, avec l'ancêtre pour la garder, cet endroit était extrêmement bien protégé.
+
+Bien qu'il fût parti, une restriction d'une puissance inouïe avait été placée sur cette porte au sein de la mer de feu. Cette restriction n'avait pas été posée par lui, mais par son Maître. Même des cultivateurs du troisième niveau auraient eu du mal à la briser en peu de temps.
+
+Arrivé devant la porte, l'ancêtre du Clan de l'Hirondelle de Feu fut pris d'une immense excitation et s'agenouilla au sol. Ce geste fit plisser les yeux de Liu Jinbiao.
+
+Un cultivateur du troisième niveau, l'ancêtre même du Clan de l'Hirondelle de Feu, était à genoux devant la porte !
+
+« Maître, ce vieil esclave a capturé le sixième descendant de l'Oiseau Vermillon pour vous l'offrir en présent, afin d'aider votre blessure à guérir ! »
+
+« Maître ? » Le cuir chevelu de Liu Jinbiao devint engourdi et ses yeux se remplirent de choc. Tandis qu'il fixait la porte floue, une vague monstrueuse déferla dans son cœur !
+
+« Le Maître d'un cultivateur du troisième niveau... C'est... C'est... »
+
+La porte resta silencieuse, tandis que l'ancêtre demeurait agenouillé. Il attendit longuement sans la moindre impatience, conservant une attitude empreinte de respect. Plus le temps passait, plus Liu Jinbiao était stupéfait, et les signes d'un réveil de son propre mensonge commençaient à apparaître.
+
+Il allait être tiré de son illusion par l'effroi !
+
+« Sixième descendant de l'Oiseau Vermillon ? » Après un moment, une voix indistincte s'échappa de la porte.
+
+L'ancêtre du Clan de l'Hirondelle de Feu trembla et redoubla de déférence. Ses yeux brillèrent d'excitation lorsqu'il répondit promptement : « Ce vieil esclave a mené ses investigations avec soin. J'ai dévoré son sang et fouillé son âme, je ne peux donc me tromper ! C'est bien le sixième descendant de l'Oiseau Vermillon ! »
+
+« Ce vieil esclave l'a capturé dans les Terres Déchues ! »
+
+La voix sembla réfléchir en silence, tandis qu'une aura invisible se propageait progressivement. Cela fit trembler le corps de Liu Jinbiao ; la fierté qui brillait dans ses yeux s'évanouit, remplacée par une peur infinie.
+
+Il venait de s'éveiller brutalement sous l'effet de la terreur !
+
+« J'ai enfin réussi ! J'ai été trop loin ! » Liu Jinbiao sentit sa bouche se dessécher et ses yeux s'emplir de panique. Il hurla sauvagement intérieurement : « Avoir un cultivateur du troisième niveau comme esclave... qui est donc cet être ? Ce Wang Lin m'a dit de venir ici en prétendant pouvoir me sauver, mais même s'il venait, je crains qu'il ne meure aussi... »
+
+Après un long moment de silence, la voix floue retentit de nouveau derrière la porte.
+
+« Fais-le entrer ! »
+
+Le corps de Liu Jinbiao trembla et il s'apprêta à ouvrir la bouche pour se justifier. Cependant, l'ancêtre du Clan de l'Hirondelle de Feu le saisit brutalement et le traîna vers la porte !
+
+Tout cela se produisit avec une rapidité fulgurante. Avant qu'il ne puisse dire un mot, il sentit son corps secoué alors qu'il était entraîné à travers le seuil par l'ancêtre !
+
+Les restrictions de la porte semblèrent être supprimées et ne s'activèrent pas, permettant ainsi à l'ancêtre de pénétrer à l'intérieur.
+
+Une fois la porte franchie, ce qui apparut devant Liu Jinbiao fut une vision qu'il n'oublierait jamais !
+
+C'était un monde sans ciel ni terre ; la seule chose existante était une flamme monumentale ! Ce feu occupait 70 % de cet univers et grondait avec fracas.
+
+Il n'y avait aucune étoile aux alentours, mais des lignes aussi épaisses qu'un bras se ramifiaient à travers l'espace, formant au premier coup d'œil une toile d'araignée géante !
+
+Le feu trônait au cœur de cette toile ! Celle-ci ressemblait à un réseau de tunnels où semblaient circuler des choses vers la flamme.
+
+Le feu était sept couleurs, dépourvu de noir ou de blanc ! Ce brasier chromatique brûlait d'un éclat vif, et une silhouette vague pouvait y être aperçue, assise en méditation !
+
+La silhouette était couverte d'une armure, avec un Oiseau Vermillon aux sept couleurs flamboyant derrière elle.
+
+« Tu peux partir... » La voix indistincte résonna dans le firmament tandis qu'une boule de feu septicolore de la taille d'un poing volait vers l'ancêtre du Clan de l'Hirondelle de Feu. Le feu s'insinua entre les sourcils de l'ancêtre.
+
+Ce dernier trembla, l'extase illuminant son regard.
+
+« Va cultiver et absorbe ceci... » L'ancêtre s'inclina respectueusement et disparut de ce monde.
+
+À cet instant, seuls Liu Jinbiao et la silhouette au cœur des flammes demeurèrent.
+
+Le corps de Liu Jinbiao frissonnait. Il ressentait une pression suffocante émanant du feu septicolore où siégeait l'être mystérieux. Cette pression était suffisante pour le tuer des millions de fois !
+
+« Tu n'es pas le sixième descendant de l'Oiseau Vermillon... » La voix floue résonna, pesant lourdement sur l'esprit de Liu Jinbiao. Son cuir chevelu picota et il perdit toute contenance.
+
+Liu Jinbiao s'effondra à genoux, les yeux inondés d'une peur intense. Sans hésiter, il implora immédiatement : « Seigneur Céleste, pardonnez-moi ! Seigneur Céleste, je vous en supplie... Le cadet Liu Jinbiao n'est qu'un simple cultivateur et a été contraint de venir ici par autrui. Si je n'étais pas venu, j'aurais déjà péri. J'espère que le Seigneur Céleste aura pitié. Ce humble serviteur est prêt à tout pour vous servir... »
+
+La voix floue l'interrompit : « Cependant, il y a quelque chose qui m'intéresse sur ton corps... » Quelques-unes des innombrables ramifications s'animèrent et s'enroulèrent autour de Liu Jinbiao. En un éclair, elles percèrent sa chair pour commencer à l'absorber, arrachant à Liu Jinbiao des hurlements de douleur.
+
+Son corps dépérissait rapidement tandis que d'énormes quantités de sang étaient aspirées, se transformant en protubérances qui ondulaient le long des branches vers la flamme.
+
+Outre son sang, sa vitalité même était brusquement drainée. Face à cette crise imminente, Liu Jinbiao poussa un cri et cracha une bouchée d'essence !
+
+À l'instant où cette essence fut expulsée, une énergie d'épée monstrueuse surgit soudainement. Xu Liguo se manifesta sous la forme d'une épée gigantesque, mais au lieu de frapper la flamme, il se transforma en une tempête d'épées !
+
+« Maître, le passage est ouvert ! » Xu Liguo était lui aussi terrifié. Une fois apparu, il commença à rugir intérieurement :
+
+« Tout cela est la faute de ce démon ! Il pensait que ce lieu sacré contenait de l'essence de feu, mais en réalité, une personne vivante se trouve ici. Une personne capable de faire d'un cultivateur du troisième niveau son esclave ! »
+
+« Intéressant... » La voix illusoire sembla sourire alors qu'elle résonnait.
+
+Sur la Planète du Grand Empereur, Wang Lin ferma les yeux et scruta l'intérieur du réseau de transfert. Son esprit pénétra dans le Royaume des Vents et des Pluies pour traquer l'âme de l'Omniscient. Il utilisa cette âme et divina rapidement l'avenir... À cet instant, ses yeux s'ouvrirent brusquement, révélant une lueur d'intention meurtrière !
+
+Quelqu'un était en train de se soigner dans la terre sacrée du Clan de l'Hirondelle de Feu. Avant de venir dans les Terres Déchues, il n'en était pas certain, mais après avoir parlé au premier descendant de l'Oiseau Vermillon, il en avait la certitude : quelqu'un se trouvait à l'intérieur !
+
+S'il avait renoncé à son plan autrefois, il n'aurait peut-être pas été impossible pour Liu Jinbiao de revenir même après sa capture, mais une idée folle venait de germer dans le cœur de Wang Lin !
+
+Le premier descendant de l'Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été piégé dans les Terres Déchues, il aurait massacré son chemin jusqu'au traître !
+
+Bien qu'il ne l'ait pas explicitement dit, il avait fait savoir à Wang Lin qu'il pourrait aider son plan et lui permettre d'entrer dans la terre sacrée du Clan de l'Hirondelle de Feu. Il lui avait également offert une plume d'Oiseau Vermillon en présent.
+
+Tout cela pointait vers un problème majeur !
+
+Plus important encore, le traître, le troisième Oiseau Vermillon, possédait une autre identité dans le Système Stellaire Antique. En vérité, Wang Lin avait une intuition, et il en était sûr à 70 % ! Non, on pourrait même dire qu'il en était sûr à 90 % !
+
+Une certitude de 70 % suffisait pour décider d'entreprendre un acte capable de secouer les cieux ! Alors, imaginez avec 90 % ! Une fois cela accompli, il quitterait le Système Stellaire Antique pour retourner dans le Royaume Intérieur !
+
+« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements ! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire le royaume céleste utilisé pour générer les Flammes de Joss, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé. »
+
+« Il a tout mis en œuvre pour tenter les personnes ayant attiré son attention dans le Royaume Intérieur, comme Sima Mo ou Qing Lin, et si je ne me trompe pas, la folie de Qing Shui doit aussi être liée à cet homme ! Il a même utilisé la malveillance de l'implantation du Dao... Tout cela est de sa main. Maintenant qu'il est gravement blessé, je dois saisir cette opportunité ! » Une lueur de folie apparut dans les yeux de Wang Lin. Ce qu'il prévoyait de faire était déjà insensé en soi !
+
+La lumière de la formation clignota frénétiquement et des grondements tonitruants retentirent. La formation tourna jusqu'à former un vortex qui, dans un fracas assourdissant, disparut de la Planète du Grand Empereur. La silhouette de Wang Lin s'évanouit avec elle !
+
+Le vieil Oiseau Vermillon assis au bord du lac ouvrit les yeux. Il fixa longuement l'endroit où Wang Lin avait disparu et murmura doucement : « Premier ancêtre, tu penses toujours qu'il n'appartient pas à notre clan de l'Oiseau Vermillon... Bien qu'il ait passé l'épreuve... Mais je crois qu'il est des nôtres... J'ai désobéi à tes ordres en lui enseignant la technique la plus puissante du Clan de l'Oiseau Vermillon sans ta permission... Car c'est ce qu'il aurait dû recevoir une fois l'épreuve accomplie... »

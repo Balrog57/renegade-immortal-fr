@@ -1,0 +1,131 @@
+---
+n: 1930
+title: "Un esprit qui ne provient pas du Continent Astral Immortel !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1930 - Spirit not of the Immortal Astral Continent!"
+slug: un-esprit-qui-ne-provient-pas-du-continent-astral-immortel
+---
+Chapitre 1930 - Un esprit qui ne provient pas du Continent Astral Immortel !
+
+« Je n'ai pas besoin de vous vaincre, je veux seulement que vous restiez immobile ! » Le corps de Wang Lin s'élança et ses cinq veines magiques pivotèrent rapidement. Soudain, 97 images rémanentes de Wang Lin apparurent !
+
+Avec son corps original, cela faisait un total de 98 corps !
+
+Chaque image rémanente était une copie exacte du corps originel, d'un réalisme saisissant.
+
+« Arrêtez ! »
+
+« Arrêtez !! »
+
+« Arrêtez !!! »
+
+Les 97 images rémanentes et le corps original utilisèrent tous le même sort : le sort d'Arrêt !
+
+À l'instant où ce sort fut activé, les couleurs du monde changèrent. Les 98 Wang Lin tendirent la main droite vers la magnifique femme en contrebas !
+
+Par ce geste, les 97 images rémanentes fusionnèrent avec le corps de Wang Lin, et une ombre gigantesque surgit dans le monde. Cette ombre était un doigt qui semblait capable de soutenir le ciel et la terre !
+
+Le doigt apparut et pointa vers l'Exalt Empyréen Hai Zi !
+
+Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors écrasé l'ancêtre de la Secte du Dao Démoniaque, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
+
+Même le Sens Divin du Grand Empyréen Dao Yi avait dû intervenir pour repousser le coup dévastateur de Wang Lin !
+
+Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années et avait pris le contrôle total de sa puissance. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyrés. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure !
+
+Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art de Sort Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis !
+
+L'expression de l'Exalt Empyréen Hai Zi changea soudainement, son visage marqué par l'incrédulité. C'était la première fois qu'elle voyait Wang Lin déployer toute sa force, et ces 98 sorts firent trembler son cœur !
+
+Alors que le doigt pointait, tout dans le monde sembla s'immobiliser. La brise marine cessa, les vagues se turent et le mouvement même de l'univers se figea.
+
+Cette force capable de tout stopper s'abattit sur l'Exalt Empyréen Hai Zi. Lorsqu'elle fut frappée, même sa main droite s'immobilisa et son âme originelle cessa de bouger !
+
+98 sorts d'Arrêt !
+
+Le visage de Wang Lin était pâle. Ce geste contenait toute sa puissance. Après l'apparition des 98 sorts d'Arrêt, un changement occulte, que Wang Lin ne pouvait expliquer lui-même, s'était produit. Cela ressemblait étrangement à la façon dont le monde s'était figé lorsque le Grand Empyréen Dao Yi était apparu.
+
+« Il n'y a aucune haine entre nous, je ne veux pas vous tuer ! » Wang Lin regarda l'Exalt Empyréen Hai Zi pétrifiée, puis disparut dans les profondeurs de la mer.
+
+À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalt Empyré, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyré pouvait l'anéantir d'un simple coup de poing.
+
+Cependant, maintenant, sans même avoir besoin de ses avatars, il pouvait fusionner neuf sorts dans son propre corps. Puis, grâce au pouvoir de compression mystérieux de ses avatars, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant !
+
+Auparavant, c'était une troupe de soldats dispersés ; désormais, il y avait un général. Bien que le général ne fût pas seul à porter la force, la puissance des sorts avait considérablement augmenté !
+
+Après avoir immobilisé l'Exalt Empyréen Hai Zi, Wang Lin savait que cela ne durerait pas longtemps. Il se déplaça avec une vitesse fulgurante vers les abysses.
+
+Le temps s'écoula lentement. Au quatrième souffle, Wang Lin atteignit la partie la plus profonde de la mer. La pression ici était suffisante pour broyer le corps d'un cultivateur ordinaire, mais elle ne posait aucun problème au Corps du Dao Antique de Wang Lin.
+
+Soudain, Wang Lin lança un coup de poing vers le fond marin. Ce coup provoqua une tempête dans les eaux, et 98 vortex apparurent devant lui pour charger vers le plancher océanique.
+
+Dans un fracas de tonnerre, le fond de la mer s'effondra et un trou gigantesque se forma. Une quantité phénoménale d'eau s'y engouffra, transformant l'orifice en un véritable trou noir.
+
+Wang Lin n'hésita pas. Il avait exploré la Mer de la Montagne pendant les trois dernières années ; il savait comment trouver l'Arbre de la Mer de la Montagne qui soutenait l'océan !
+
+Il s'élança dans le trou noir et disparut sans laisser de trace.
+
+À ce moment, le sixième souffle s'était écoulé ! L'octopus était également sous l'effet du sort d'Arrêt et demeurait immobile. La magnifique femme conservait sa posture précédente ; même ses paupières ne pouvaient plus se fermer.
+
+Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers l'octopus dans une langue que seuls les êtres marins comme eux pouvaient comprendre.
+
+Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer de la Montagne. Dans ce monde situé à l'intérieur du trou noir, se dressait un arbre absolument colossal !
+
+Cet arbre constituait la moitié de la Mer de la Montagne, et on ne pouvait en percevoir les limites d'un seul coup d'œil. Le tronc était desséché, mais ses branches s'étendaient pour soutenir l'immensité marine.
+
+En comparaison, Wang Lin paraissait si minuscule qu'il était presque invisible. L'arbre était imprégné d'une aura de mort et de multiples couches de sceaux. De plus, il dégageait une intention meurtrière si puissante que l'on aurait dit que cet arbre avait autrefois tué d'innombrables êtres !
+
+Autour du vaste tronc desséché flottaient sept amas de lumière verte. Chacun n'était pas plus grand qu'un poing et semblait dérisoire face à la démesure de l'arbre.
+
+Ces amas verts étaient ce que Wang Lin recherchait. Il s'agissait des Esprits de l'Arbre de la Mer de la Montagne, nés après la mort de l'arbre originel. Ces esprits pouvaient aider un cultivateur à obtenir l'essence de bois.
+
+L'Arbre de la Mer de la Montagne en possédait autrefois une multitude, mais après sa mort, beaucoup avaient été emportés. Désormais, il n'en restait que sept !
+
+Ces Esprits ne se trouvaient pas à l'intérieur du sceau, mais flottaient à l'extérieur pour une raison inconnue. Il semblait que le sceau n'ait aucune prise sur eux.
+
+Dix souffles s'étaient désormais écoulés.
+
+Sans hésiter, Wang Lin s'approcha de l'Arbre et fit un geste de la main. Il saisit six des sept Esprits, puis se détourna pour partir.
+
+Alors qu'il faisait volte-face, Wang Lin ressentit soudain une douleur lancinante dans les yeux, et la lumière dorée de son regard brilla de manière incontrôlée. Ce changement brusque le força à s'arrêter.
+
+Cette douleur était accompagnée d'un sentiment d'appel. C'était comme si quelque chose, au cœur de l'Arbre de la Mer de la Montagne, appelait ses yeux !
+
+Les yeux de Wang Lin contenaient un fragment de l'Épée de l'Ancêtre Céleste, ce qui leur conférait le pouvoir de suppression de l'arme.
+
+Il se retourna brusquement. Tandis que la lumière dorée jaillissait de son regard, il vit un rayon doré foncer vers lui.
+
+Tout cela se produisit en un éclair. En remarquant cette lueur, Wang Lin s'aperçut qu'un fragment doré de la taille d'une paume se trouvait dans l'Arbre de la Mer de la Montagne !
+
+« Un fragment de l'Épée de l'Ancêtre Céleste ! » Les yeux de Wang Lin se plissèrent.
+
+Le fragment doré vola vers lui. Plus qu'il n'appelait Wang Lin, c'était comme si Wang Lin l'appelait.
+
+Cependant, le sceau entourant l'arbre brilla intensément alors que le fragment tentait de s'échapper. Des ondulations résonnèrent et, finalement, la moitié du fragment parvint à percer le sceau. Le reste resta prisonnier et ne put s'envoler.
+
+Dès que la moitié fut libérée, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. C'était comme si un fragment similaire dans ses propres yeux était sur le point de jaillir.
+
+« Comment l'Arbre de la Mer de la Montagne peut-il posséder un fragment de l'Épée de l'Ancêtre Céleste ?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple du Scorpion Vert avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
+
+La rumeur disait que l'Épée de l'Ancêtre Céleste avait été brisée lors de la bataille contre le Démon Scorpion Vert par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet !
+
+Presque chaque continent possédait une légende affirmant que l'âme scellée sur leur terre avait causé le bris de l'épée. Wang Lin ne pouvait savoir laquelle était vraie.
+
+Il existait même une légende selon laquelle l'épée s'était brisée d'elle-même après la disparition de l'Ancêtre Céleste, ses fragments se dispersant à travers les divers continents.
+
+Ces pensées traversèrent l'esprit de Wang Lin et il hésita.
+
+« Ce sceau a été placé par l'Ancêtre Céleste lui-même. Si je prends ce fragment... je risque de déclencher toute la puissance du sceau ! »
+
+Depuis le début, 15 souffles s'étaient écoulés. Wang Lin recula d'un pas décisif et ne fit pas bouger son corps original. Au lieu de cela, son Corps Véritable d'Essence de Tonnerre s'élança vers le fragment. Il chargea et saisit directement l'objet !
+
+« Le Temple du Démon Vert possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides ! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
+
+Au moment même où sa main droite saisit l'objet, la force de scellement de l'Arbre de la Mer de la Montagne explosa !
+
+Des ondulations apparurent là où se trouvait le fragment. Elles formèrent un visage gigantesque empreint de majesté, et une force de suppression s'abattit sur le Corps Véritable d'Essence de Tonnerre de Wang Lin.
+
+« Âme non issue du Continent Astral Immortel détectée. Activation du sceau ! » Une voix antique résonna sous les mers.
+
+« Il y a bel et bien un problème ! » Les yeux de Wang Lin s'illuminèrent.

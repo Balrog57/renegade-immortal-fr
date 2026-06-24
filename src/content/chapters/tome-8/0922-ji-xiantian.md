@@ -1,0 +1,115 @@
+---
+n: 922
+title: Ji Xiantian
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 922 - Ji Xiantian
+slug: ji-xiantian
+---
+« Continuez en avant et détruisez le royaume sous le Royaume Céleste de la Pluie. Je vous donnerai un corps ! Je vous aiderai à vous échapper ! » C'était ainsi que s'exprimait le message dans la langue des anciens dieux.
+
+La confusion qui habitait le Serpent aux Yeux de Lune fit place à une clarté soudaine, et son rugissement s'apaisa lentement. Il chargea en avant, devançant l'arbre géant.
+
+De loin, le corps colossal du Serpent aux Yeux de Lune et ses innombrables tentacules oscillants ressemblaient aux nuages de poussière cosmique enveloppant les étoiles ; il n'était en rien moins imposant que l'arbre géant.
+
+Li Yunzi observa Wang Lin. Il ressentit une pointe de suspicion en remarquant le changement d'expression de ce dernier lorsque le son émana de la pierre de jade.
+
+Wang Lin, qui avait cultivé pendant des milliers d'années, était extrêmement rusé. Il ne laisserait rien passer inaperçu ; il esquissa alors un sourire amer et dit : « Je ne m'attendais pas à ce que cette bête nourrisse une telle rancune. Je ne l'ai utilisée que pour exterminer la famille Yao, et pourtant, elle s'est encore souvenue de moi en me voyant. »
+
+Li Yunzi hocha la tête et répondit : « Une fois cette bataille terminée, n'oublie pas de venir me voir pour consulter les Tableaux de Bataille restants ! »
+
+Avec une expression respectueuse, Wang Lin dit : « Junior le sait. »
+
+L'ancêtre de la famille Shengong était resté silencieux jusqu'alors, quand il déclara soudainement : « Xu Mu, sors le Dao de Shengong Hu ! »
+
+Wang Lin réfléchit en silence. Un instant plus tard, sans hésiter, il toucha l'espace entre ses sourcils et le Dao de Shengong Hu s'envola. L'ancêtre de la famille Shengong s'en saisit, l'examina un instant, puis le rangea. Il ne prêta plus aucune attention à Wang Lin et reporta son regard vers l'avant.
+
+Le Serpent aux Yeux de Lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs d'Allheaven s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
+
+L'arbre géant suivait de près le Serpent aux Yeux de Lune en direction de la région nord !
+
+Le Serpent aux Yeux de Lune et l'arbre géant étaient d'une rapidité extrême, bien au-delà des trésors des cultivateurs. Leur vitesse égalait celle de la téléportation, créant des détonations soniques constantes en fendant l'espace.
+
+À cet instant, une guerre titanesque éclata dans la région nord !
+
+À l'origine, les cultivateurs de l'Alliance, menés par l'un des quatre saints, le Saint Démon du Noir, détenaient un avantage considérable. La destruction de la région ouest avait décimé un grand nombre de cultivateurs d'Allheaven et avait coupé leur retraite. L'armée d'Allheaven qui chargeait dans la région nord se trouvait donc sans aucun soutien.
+
+Par conséquent, l'Alliance possédait les meilleures chances de victoire lors de cette première grande bataille entre les deux systèmes stellaires.
+
+Cependant, la contre-attaque de Maître Flammespark et l'intervention des 18 Lou Fu inversèrent immédiatement la situation dans la région nord. Les cultivateurs de l'Alliance furent réprimés par les 18 Lou Fu. Mais ce n'était pas là le plus grand problème ; le véritable tournant fut que l'isolement des cultivateurs d'Allheaven fut brisé par l'arbre géant !
+
+Désormais, les cultivateurs d'Allheaven n'étaient plus isolés. Il leur suffisait de tenir jusqu'à l'arrivée des renforts pour que le camp d'Allheaven reprenne un avantage absolu !
+
+L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Flammespark agir à sa guise ? Pourtant, le Dieu de Sang était un être doté d'un niveau de culture extrêmement élevé. Tandis qu'ils se affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
+
+Ces affrontements généraient d'immenses ondes de choc. Tout cultivateur touché par ces remous mourait instantanément !
+
+« Camarade cultivateur, ne me fais pas perdre mon temps, attaque ! » Le Saint Démon du Noir esquissa un sourire amer et agita sa main droite. Un vent chargé d'une odeur fétide de poisson apparut. Sous l'impulsion de ses mains, ce vent se transforma en une baleine géante devant lui. La créature ouvrit sa gueule et aspira tout sur son passage avec une férocité sans nom.
+
+L'énergie d'origine du monde était aspirée frénétiquement par la baleine formée par le Saint Démon du Noir, avant que celle-ci ne lance l'attaque contre le Dieu de Sang.
+
+Au même moment, un pilier de lumière violette descendit du ciel. Ce pilier, dont on ne percevait pas la limite, semblait être apparu de nulle part.
+
+Un rire jaillit du pilier de lumière et une silhouette en émergea ! C'était un homme d'âge moyen vêtu d'une robe jaune. Il était beau, et alors qu'il avançait, deux illusions de dragons tournaient autour de son corps en rugissant.
+
+« Maître Flammespark, votre nom m'est connu depuis longtemps ! Ce vieil homme est l'un des nouveaux saints de l'Alliance : le Saint Démon du Dragon Céleste ! »
+
+Les yeux de Maître Flammespark s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon Céleste.
+
+« Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire de la Rupture du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial de la Rupture du Nirvana ; ils doivent donc unir leurs forces pour espérer tenir ! Pourtant, ces individus ne sont pas les plus puissants de cette bataille ! » Les yeux de Maître Flammespark brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon Céleste à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement : « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore ? »
+
+Tandis que Maître Flammespark parlait, il avança pour se placer aux côtés des 18 Lou Fu. Puis, de ses deux doigts, il pointa impitoyablement vers l'avant.
+
+Un éclat de rire strident résonna à travers les étoiles. D'innombrables fissures apparurent là où Maître Flammespark avait désigné, et une main aussi blanche que le jade en surgit. Cette paume éblouissante entra en collision avec les doigts de Maître Flammespark !
+
+Bang !
+
+La région nord entière trembla et une intention meurtrière traversa les yeux de Maître Flammespark. Il recula rapidement de plusieurs pas. Une autre silhouette fut également projetée hors de la fissure ; elle ressemblait à une femme. En reculant, cette personne poussa un cri :
+
+« Maître Flammespark, tu as encore le courage de revenir !!! »
+
+Cette voix était trop aiguë, presque stridente, et portait en elle des fluctuations d'énergie d'origine inimaginables.
+
+Alors que ce cri résonnait, tous les cultivateurs d'Allheaven furent saisis de tremblements. Certains crachèrent du sang tandis que leur énergie d'origine s'échappait de leurs corps, entraînant leur mort immédiate !
+
+Même l'un des 18 Lou Fu s'effondra soudainement sous la violence de ce cri !
+
+Une quantité infinie d'énergie d'origine provenant du monde afflua des cultivateurs et du Lou Fu déchus pour pénétrer dans la silhouette féminine.
+
+« Ji Xiantian, je ne t'ai pas vue depuis de nombreuses années. Tu es toujours aussi efféminée ! » Les yeux de Maître Flammespark restèrent calmes alors qu'il agitait sa main droite. Des flammes infinies enveloppèrent immédiatement la zone et, en se propageant, repoussèrent tous les cultivateurs d'Allheaven à plus de 5 000 kilomètres.
+
+Bien que la distance fût de 5 000 kilomètres, elle restait dans le rayon d'action des Lou Fu. C'est ainsi que la grande guerre commença véritablement. Une multitude de cultivateurs de l'Alliance et d'Allheaven s'engagèrent dans des combats à mort.
+
+C'était une bataille chaotique ; la moindre imprudence pouvait provoquer l'effondrement du corps et l'extinction de l'âme d'origine ! À l'origine, les cultivateurs d'Allheaven n'étaient pas de taille face à ceux de l'Alliance ; l'un se remettait du choc tandis que l'autre était préparé. Cependant, sous l'influence des Lou Fu, la situation s'équilibra instantanément.
+
+Il devint alors difficile de prédire le vainqueur. Toutefois, à petite échelle, l'Alliance conservait l'avantage !
+
+Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux camps subirent des pertes. Au loin, un cultivateur de l'Alliance cracha du sang et tenta de battre en retraite. Mais avant même d'avoir parcouru cent pieds, sa poitrine fut transpercée par une épée volante lancée au hasard. Son âme d'origine s'échappa alors, mais fut immédiatement frappée par les ondes d'un sort, provoquant son effondrement définitif.
+
+Les yeux de trois cultivateurs d'Allheaven devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
+
+Le rayon de lumière se mua en une silhouette humaine au visage sombre. Alors qu'il s'apprêtait à poursuivre son action après s'être léché les lèvres, une lueur sanglante jaillit. Il poussa un cri et tout son corps se changea en sang. C'était le Dieu de Sang et le Saint Démon du Noir qui passaient par là au milieu de leur propre combat.
+
+À chaque mort, le sang était immédiatement aspiré par les 17 Lou Fu restants. Certaines âmes d'origine, trop endommagées, furent également absorbées par ces entités.
+
+Les cultivateurs mouraient à chaque instant. Les deux camps avaient rassemblé des dizaines de milliers de combattants ; cette bataille était apocalyptique, et les Lou Fu s'abreuvaient de quantités phénoménales de sang !
+
+L'espace était saturé d'éclats de trésors magiques, de rugissements incessants et de voix plaintives. La zone était devenue une terre de mort !
+
+Le sang et les âmes d'origine absorbés rendaient les 17 Lou Fu encore plus démoniaques. Alors que la bataille redoublait de férocité, un grondement tonnerreux retentit et d'innombrables fissures apparurent. Même le vent glacial s'échappant des failles ne put apaiser cette guerre ardente ; au contraire, cela ne fit qu'intensifier le chaos.
+
+Au centre du champ de bataille, les flammes de Maître Flammespark étaient monstrueuses, semblant illuminer la moitié de la région. Face à lui, Ji Xiantian dégageait un froid infini qui provoquait des craquements constants. Bien que ces bruits ne fussent pas assourdissants, chaque combattant aux alentours pouvait les entendre distinctement.
+
+Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants, s'élançant droit vers le ciel. Ji Xiantian était entouré de glaces semblables à des épines acérées pointées vers les cieux, faisant face à Maître Flammespark.
+
+« Maître Flammespark, nous t'avons laissé échapper lors de la bataille d'il y worth des dizaines de milliers d'années. Aujourd'hui, en l'absence de Zhong Xuanzi, je vais te tuer ici et maintenant ! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
+
+Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que, malgré sa petite taille, son pomme d'Adam était bien visible ! C'était manifestement un homme !
+
+Le regard de Maître Flammespark resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement : « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort ! »
+
+À ce moment précis, dans la région occidentale, avec le Serpent aux Yeux de Lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
+
+Sur l'arbre géant, Wang Lin regardait devant lui. Une pointe d'incertitude flottait dans ses yeux, particulièrement lorsqu'il posait son regard sur le Serpent aux Yeux de Lune.
+
+« Enfant divin ancien... » Un éclat de lumière froide, presque imperceptible, passa dans les yeux de Wang Lin.

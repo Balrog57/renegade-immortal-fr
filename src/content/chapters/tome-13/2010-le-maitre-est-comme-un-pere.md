@@ -1,0 +1,139 @@
+---
+n: 2010
+title: "Le Maître est comme un Père !"
+book: 13
+bookTitle: Light of the coming end
+en: "Chapter 2010 - The Teacher is Like a Father!"
+slug: le-maitre-est-comme-un-pere
+---
+Chapitre 2010 - Le Maître est comme un Père !
+
+Une fois qu'il eut parlé, le silence s'abattit sur l'assemblée et tous les regards se tournèrent vers Wang Lin. C'était comme l'avait dit le vieil homme : dans l'Ancien Dao, hormis le Grand Empereur, quiconque se trouvait en présence de l'Empereur de l'Ancien Dao devait s'agenouiller !
+
+C'était là l'incarnation même du pouvoir impérial. Ne pas s'y soumettre équivalait à un acte d'irrespect envers la puissance souveraine !
+
+Et au sein du clan Ancien, peu de crimes étaient plus graves que le manque de respect envers le pouvoir impérial !
+
+Même Xuan Luo fut stupéfait en entendant ces mots. Bien qu'il fût un Grand Empereur, il appartenait toujours à l'Ancien Dao. Avant d'atteindre ce rang, il devait encore s'agenouiller devant l'empereur de sa génération pour marquer son respect.
+
+L'Empereur de l'Ancien Dao sourit en regardant Wang Lin, mais un ricanement intérieur le traversa. Il était venu aujourd'hui pour vérifier si la personne ayant causé l'anomalie du brasero d'encens était bien celle qu'il soupçonnait.
+
+Si ce n'était pas le cas, il recruterait cette personne.
+
+Mais s'il s'agissait bien de l'individu qu'il avait en tête, il devait voir de ses propres yeux ce qui rendait cet être si extraordinaire !
+
+« Quel droit as-tu de devenir le disciple de Xuan Luo alors que lui-même m'a rejeté ? Pourquoi n'ai-je que six gouttes et toi... toi en as dix !! Et la dernière est une goutte de sang d'âme !! »
+
+« Cette affaire a été scellée par Xuan Luo, l'Ancien Dao l'ignore donc. Xuan Luo n'a même pas hésité à déclarer que quiconque violerait ce secret serait mis à mort, quelle que soit son identité ! »
+
+« Un Grand Empereur n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance de l'Empereur Exalt Gu Dao ! »
+
+« Mais il ne peut être un descendant de la famille royale. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empereur Gu Dao !! » L'Empereur de l'Ancien Dao conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie !
+
+Cette jalousie brûlait en lui depuis que Wang Lin avait obtenu le sang d'âme, et elle atteignit son paroxysme lorsqu'il réalisa que Wang Lin était bel et bien l'Ascendant Empereur aux Cheveux Blancs, le numéro un sous les Grands Empereurs. Sa rancœur fut soudainement attisée, mais il parvint à la réprimer.
+
+L'expression de Wang Lin resta calme alors que son regard balayait l'empereur. Lorsqu'il posa ses yeux sur le vieil homme qui avait rugi contre lui, une lueur dorée jaillit de ses prunelles.
+
+Wang Lin dit lentement : « Qu'as-tu dit ? Répète encore une fois. »
+
+Ce vieil homme possédait la culture d'un Ascendant Empereur, mais malgré cela, sous le regard de Wang Lin, son visage se décomposa.
+
+Il pâlit instantanément et son pouvoir ancien gronda dans son corps. Il ressentit une pression émanant du corps de Wang Lin qu'il fut incapable de supporter.
+
+Plus important encore, sous l'égide du regard de Wang Lin, il sentit son sang frémir, comme si Wang Lin possédait une lignée d'une noblesse inimaginable. Cette ascendance fit trembler tout le corps du vieillard.
+
+« Assez ! Es-tu venu ici pour forcer mon disciple à s'agenouiller devant toi ? Il est le futur gardien de l'Ancien Dao que j'ai choisi. » Xuan Luo afficha un visage mécontent.
+
+L'Empereur de l'Ancien Dao sourit et tourna un regard glacial vers le vieil homme.
+
+« Recule. Le disciple de Lord Xuan possède le même statut que moi. Tu n'as pas le droit de parler ! »
+
+Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si celle-ci provenait du rugissement de l'Empereur ou de la terreur inspirée par le regard de Wang Lin.
+
+« Wang Lin, c'est bien cela ? J'ai beaucoup entendu parler de ton nom, surtout en tant qu'Ascendant Empereur aux Cheveux Blancs qui a ébranlé le clan céleste ! Lorsque j'ai appris ton existence, j'ai regretté qu'un tel génie ne soit pas né dans l'Ancien Dao ! »
+
+« Mais aujourd'hui, je suis comblé de joie ! »
+
+« Ce puissant cultivateur, premier sous les Grands Empereurs, est un membre de mon Ancien Dao ! C'est une nouvelle merveilleuse ! » L'Empereur de l'Ancien Dao souriait comme s'il était transporté par le bonheur.
+
+« Chang Shi ! » Tandis que l'Empereur souriait, un autre vieil homme derrière lui s'inclina immédiatement.
+
+« Votre humble serviteur est à votre service ! »
+
+« Informe le clan Ancien que Wang Lin est le futur gardien de l'Ancien Dao et qu'il possède un statut égal au mien. Hormis la grande cérémonie du clan, nul n'a besoin de s'agenouiller devant lui ! Si quiconque ose désobéir, son clan tout entier sera exterminé ! »
+
+Le vieil homme répondit respectueusement : « À vos ordres ! »
+
+« Wang Lin, je te remets ceci. Grâce à cela, tu pourras entrer et sortir du palais à ta guise. J'ai quelques fils que je souhaite que tu rencontres personnellement afin de choisir un héritier pour moi ! » L'Empereur sourit et fit un geste de la main droite. Un jade pourpre apparut et flotta devant Wang Lin, attendant qu'il le saisisse à deux mains.
+
+Wang Lin réfléchit silencieusement. L'ancien empereur ne montra aucune impatience et continua de sourire en attendant.
+
+Xuan Luo restait immobile sur le côté. Il savait que si Wang Lin souhaitait rester, il devrait s'intégrer à l'Ancien Dao et accepter le pouvoir de la famille impériale.
+
+En réalité, au début, Xuan Luo ne s'en inquiétait pas car Wang Lin était alors très faible. Juste après avoir quitté le monde des grottes, il aurait été plus facile pour lui d'accepter cette autorité.
+
+Cependant, la progression de Wang Lin avait dépassé toutes les attentes de Xuan Luo. Bien qu'il fût fier de son évolution, il éprouvait un regret : au niveau de culture actuel de Wang Lin, il lui faudrait bien plus de temps pour accepter le joug de la famille impériale.
+
+« C'est mon engagement... Je peux endurer cela ! » Wang Lin soupira. Il avait parfaitement perçu les intentions de l'Empereur, mais ne souhaitait pas en discuter davantage. Dans un soupir, il fit quelques pas en avant et accepta le jade. Puis, il joignit les mains devant l'Empereur.
+
+« Merci... Empereur. » Wang Lin tenait le jade, son expression restant imperturbable. Il recula de quelques pas pour se placer aux côtés de Xuan Luo.
+
+L'Empereur de l'Ancien Dao acquiesça avec un sourire. Il regarda Xuan Luo et s'inclina.
+
+« Je m'en vais maintenant. Je suis très heureux de t'avoir rencontré aujourd'hui, Wang Lin. Le choix de Lord Xuan est pour l'avenir de mon Ancien Dao ! » Après avoir vu Xuan Luo hocher la tête, l'Empereur agita sa manche. Il ne daigna même pas regarder Wang Lin en se détournant pour partir. Ses gardes s'inclinèrent devant Xuan Luo et disparurent rapidement.
+
+Bientôt, la brume pourpre qui emplissait le ciel se dissipa, rendant à l'atmosphère son aspect normal.
+
+Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori. Un sourire sardonique étira ses lèvres et il éclata de rire.
+
+« Qu'importe s'il est le disciple de Xuan Luo ! Qu'importe ! Il possède dix gouttes du sang de l'Ancêtre Ancien, et alors ? Même si tu possèdes une goutte de sang d'âme, qu'est-ce que cela peut bien changer ! Wang Lin, devant moi, tu devras toujours t'agenouiller ! »
+
+« Et pas une seule fois, mais sans cesse ! Tu n'oseras jamais me nuire, car je suis protégé par le Grand Empereur Gu Dao. Une fois que Xuan Luo sera entré en réincarnation, sache que si je voulais te tuer, ce serait aussi simple que de lever la main ! »
+
+À l'extérieur du Temple de l'Ancien Dao, Xuan Luo regardait Wang Lin avec une expression complexe, plongé dans ses pensées.
+
+À l'inverse, après le départ de l'Empereur, Wang Lin sourit et s'adressa doucement à Xuan Luo.
+
+« Maître, j'attends depuis trois jours le cadeau que vous m'aviez promis. » Le sourire de Wang Lin rendit le visage de Xuan Luo encore plus tourmenté.
+
+« Tu viens du monde des grottes où ton statut était très élevé. Dans le clan céleste, tu es l'Empereur Exalt aux cheveux blancs, le premier sous les Grands Empereurs ! Mais dans le clan Ancien, en raison de la suprématie du pouvoir impérial, tu dois courber l'échine... »
+
+« Ton Maître s'y attendait, mais j'ai maintenant le sentiment de t'avoir lésé... » Xuan Luo regarda son disciple.
+
+« Ne vous en préoccupez pas trop, Maître, cela n'a aucune importance. Puisque le Disciple a décidé de venir ici, il peut ignorer ces futilités. »
+
+« Puisque le pouvoir impérial est suprême dans le clan Ancien et que l'Empereur veut me soumettre, alors le Disciple s'agenouillera lors de la cérémonie du clan. S'il peut le supporter, il le fera. »
+
+« Dans le monde des grottes, le Disciple avait promis au Maître de protéger l'Ancien Dao. Cette promesse... le Disciple la remplira. » Wang Lin sourit en parlant.
+
+Xuan Luo resta silencieux. Après un long moment, il prit une décision.
+
+« Tu es mon unique disciple. Si tu estimes que cet endroit ne te convient pas, tu n'as pas à honorer ta promesse passée. Tu peux partir à tout instant ! »
+
+« Peu importe ton choix, où que tu sois, moi, Xuan Luo, je resterai ton maître ! »
+
+Les paroles de Xuan Luo étaient empreintes d'une sincérité qui fit naître une vague de chaleur dans le cœur de Wang Lin. Cette sensation était semblable au thé d'il y a trois jours ; elle lui apportait à nouveau un sentiment de réconfort.
+
+Il hocha la tête.
+
+« Bien, ne parlons plus de cela. Ton Maître va t'emmener dans certains lieux qui seront d'une aide précieuse pour tes essences ! » Xuan Luo sourit et agita sa manche. Il prit Wang Lin avec lui et ils disparurent.
+
+Ancien Dao, Pays de Ping Tian !
+
+Ce pays était une vaste plaine dépourvue de montagnes. L'étendue était recouverte d'herbe et, lorsque le vent soufflait, un bruissement continu se faisait entendre. C'était très agréable à l'oreille.
+
+Dans la partie septentrionale de cette plaine, se trouvait un bassin profond exhalant une odeur de décomposition. Cela contrastait violemment avec le reste de la plaine, comme si cet endroit n'aurait jamais dû exister.
+
+« Ceci fut découvert par le Grand Empereur de la génération précédente de l'Ancien Dao et fut scellé pour être préservé. Après qu'il m'ait été transmis, j'avais l'intention de l'utiliser plus tard pour raffiner un trésor de foi, mais après t'avoir pris comme disciple, j'ai réalisé que cet endroit te serait d'une grande aide. Je te l'offre donc ! »
+
+« Ce bassin existe depuis fort longtemps. Je l'ai étudié et j'ai déterminé qu'il s'agissait probablement d'un ancien champ de bataille. Il contient une puissante intention meurtrière qui devrait aider ton essence de massacre à se renforcer ! »
+
+« Il existe plusieurs lieux de ce type contenant différentes essences, et je t'y emmènerai un par un. Beaucoup se trouvent dans les deux autres clans, mais nous avons conclu un accord avec les deux autres Grands Empereurs il y a des centaines d'années pour que tu puisses y aller afin de les raffiner et de les absorber. » Près du bassin, Xuan Luo sourit à Wang Lin.
+
+Il ne lui dit pas quel prix il avait dû payer pour obtenir l'accord des deux autres Grands Empereurs, mais le prix ne pouvait être insignifiant !
+
+« Enfin, je t'emmènerai voir l'ancêtre de notre clan Ancien, le Grand Empereur Gu Dao ! C'est précisément grâce à son existence que le clan céleste n'ose nous envahir ! »
+
+« Le Grand Empereur Gu Dao est en retraite méditative permanente. Je lui ai fait part de ta situation autrefois ; lorsque je t'y emmènerai, il devrait te recevoir. »
+
+« Peut-être sera-ce une chance inouïe pour toi ! » Xuan Luo regarda Wang Lin avec bienveillance. Il avait pavé la voie pour Wang Lin durant ces derniers siècles !

@@ -1,0 +1,135 @@
+---
+n: 446
+title: "L'Autel"
+book: 5
+bookTitle: Cultivation Planet Crystal
+en: Chapter 446 - Alter
+slug: lautel
+---
+Wang Lin resta silencieux et observa Murong Yun.
+
+Le cœur de Mu Yunhai manqua un battement.
+
+Murong Yun esquissa un léger sourire, joignit ses mains et dit : « Le jeune Murong Yun salue l'Aîné. »
+
+Mu Yunhai hocha la tête et demanda : « Sais-tu comment pénétrer dans la section intérieure ? »
+
+Murong Yun acquiesça et répondit : « Aîné Mu, le jeune connaît la méthode pour y accéder, mais l'Aîné doit promettre de nous faire entrer également. Si vous acceptez, je promets de vous révéler tout ce que je sais. »
+
+Les yeux de Mu Yunhai s'illuminèrent et il déclara : « Parle, ce vieil homme accepte. »
+
+Un éclat de joie apparut dans les yeux de Murong Yun. « Le jeune va vous guider. Notre destination est un autel ; c'est l'unique passage vers la section intérieure. »
+
+Mu Yunhai demanda d'un ton solennel : « Y a-t-il des dangers là-bas ? »
+
+Murong Yun répondit promptement : « Oui. Le jeune a vu mourir plusieurs membres du Clan de l'Immortel Délaissé à huit feuilles. Ils étaient huit au total, mais le premier à entrer n'a rencontré aucun danger. »
+
+Mu Yunhai fronça les sourcils, puis se tourna vers Wang Lin et demanda : « Camarade cultivateur Ceng, qu'en pensez-vous ? »
+
+Wang Lin regarda Murong Yun avec un sourire qui n'en était pas un et dit à Mu Yunhai : « En travaillant ensemble, même si nous ne parvenons pas à passer, nos vies ne devraient pas être en danger. »
+
+Mu Yunhai rit, puis il hocha la tête et dit à Murong Yun : « Petit morveux, guide-nous ! »
+
+Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin avec un sourire de défi. « L'Aîné n'est certainement pas un cultivateur au stade de la Formation de l'Âme. Je ne le savais pas auparavant ; j'espère que l'Aîné ne m'en voudra pas. » Sur ces mots, il s'élança en tête. Mu Yunhai fit signe à Wang Lin et tous deux suivirent sa trace.
+
+Quant à la femme laide, elle hésita un instant avant de les suivre à son tour.
+
+Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une demi-heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit : « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
+
+Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
+
+Les yeux de Wang Lin s'illuminèrent. Il agita sa main droite et la femme laide fut immédiatement enveloppée par une puissance mystérieuse. Wang Lin s'envola à son tour en l'emportant avec lui.
+
+« L'Aîné est Ceng Niu ? » La femme se trouvait derrière Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
+
+Wang Lin répondit calmement : « C'est bien moi. »
+
+La femme sembla perplexe, puis ajouta soudainement : « Aîné, méfiez-vous de Murong Yun. » Après cela, elle se tut.
+
+Wang Lin et Mu Yunhai étaient extrêmement rapides. Guidés par Murong Yun, ils traversèrent promptement la plaine.
+
+Trois jours plus tard, une chaîne de montagnes infinie apparut sous leurs pieds. Au-dessus de celle-ci planait un immense nuage noir. Ce nuage s'agitait constamment et dégageait une aura sinistre.
+
+Sur le versant ouest de la chaîne de montagnes se dressait un pic vertigineux. La majeure partie du sommet était dissimulée dans l'amas noir, de sorte que seule sa moitié était visible de l'extérieur.
+
+Sous la direction de Murong Yun, Mu Yunhai plongea dans le nuage noir. Wang Lin déploya son Sens Divin et le suivit de près.
+
+À l'intérieur du nuage, Wang Lin ouvrit la bouche et cracha une lueur noire qui disparut aussitôt dans l'obscurité.
+
+Puis, il frappa son sac de rangement pour en extraire un objet. D'un geste sec, celui-ci disparut également dans le nuage noir. Il accomplit tout cela avec une discrétion absolue sous le couvert des ténèbres, si bien que personne ne remarqua rien. Même la femme à ses côtés n'en décela rien, tant l'écart entre leurs niveaux de culture était immense.
+
+La montagne nichée dans le nuage semblait floue ; c'était comme si quelque chose enveloppait le sommet, lui conférant un aspect éthéré. Au sommet se trouvait une vaste plateforme, et au centre de celle-ci trônait un autel noir.
+
+Cet autel prenait la forme d'une tour dont les marches menaient au sommet. Une concavité se trouvait au faîte de la tour, où s'engouffrait une brume noire.
+
+Mu Yunhai saisit Murong Yun et atterrit sur l'autel. Wang Lin les rejoignit peu après.
+
+Ils virent des traces de sang séché sur l'autel et l'odeur du sang flottait encore dans l'air. Par intermittence, des gémissements s'élevaient du nuage noir, comme les lamentations de fantômes.
+
+Une fois au sol, Wang Lin relâcha la femme et ses yeux s'illuminèrent. En observant les environs, il constata que cet endroit différait grandement de la description de Situ Nan.
+
+L'autel dont Situ Nan lui avait parlé se trouvait dans une vallée entourée de montagnes, et non sur un sommet. Son regard devint instantanément glacial.
+
+Mu Yunhai déploya son Sens Divin pour inspecter les lieux. Puis il dit : « Jeune Murong, est-ce l'autel dont tu parlais ? »
+
+Murong Yun acquiesça vigoureusement et affirma avec assurance : « Aîné, c'est bien ici. Cependant, soyez prudent ; outre le premier shaman à huit feuilles, tous ceux qui l'ont suivi ont péri de mort mystérieuse. »
+
+Mu Yunhai fixa Murong Yun avant de s'emparer brusquement de lui et de presser sa main sur son front. Les yeux de Mu Yunhai brillèrent d'une lueur intense et il murmura : « Recherche de l'âme ! »
+
+Murong Yun laissa échapper un gémissement de douleur et son corps se mit à trembler. Le regard de Mu Yunhai s'intensifia encore, puis il relâcha le jeune homme après un moment.
+
+Murong Yun s'effondra comme une masse de boue. Son corps dégageait une aura de mort et restait immobile.
+
+« Camarade cultivateur Ceng, cet homme ne ment pas ! » Sur ces mots, il bondit sur l'autel. « Camarade cultivateur Ceng, je vais explorer les lieux. Veuillez me protéger ! »
+
+« Très bien ! » Une pointe de dédain apparut dans les yeux de Wang Lin.
+
+Mu Yunhai atteignit le sommet de l'autel en un clin d'œil. Après y avoir stationné un instant, son expression devint soudainement étrange. Ses yeux brillèrent d'une lueur singulière alors qu'il contemplait la concavité au sommet de l'édifice.
+
+Peu après, la joie illumina son visage et il éclata de rire : « C'est bien ici ! Camarade cultivateur Ceng, je vous devance ! » Sur ce, il s'avança vers le centre de l'autel et disparut.
+
+La femme laide hésita un instant. Elle regarda Wang Lin, puis Murong Yun, avant de sombrer dans une réflexion silencieuse.
+
+Wang Lin eut un ricanement et ne daigna pas regarder l'autel. Au lieu de cela, il fixa Murong Yun et lança un sort vers son front.
+
+Dès que le sort atteignit sa cible, Murong Yun ouvrit brusquement les yeux, intercepta l'attaque et la broya. Il se redressa et fixa Wang Lin. Un gaz noir surgit soudainement pour recouvrir son visage, transformant ses traits autrefois séduisants en une expression féroce.
+
+« Comment as-tu deviné ?! » Sa voix était empreinte d'une puissance mystérieuse.
+
+Le regard de Wang Lin restait serein lorsqu'il répondit : « Je peux te le dire, mais tu devras répondre à quelques questions de ma part. »
+
+Les yeux de Murong Yun s'illuminèrent : « Intéressant. Réponds-moi d'abord. »
+
+Wang Lin déclara calmement : « Tous les cultivateurs aiment la propreté et gardent des vêtements de rechange dans leurs sacs de rangement. Il est rare que quelqu'un apparaisse dans un état aussi négligé que le tien. »
+
+Murong Yun ricana : « Rien que pour ça ? »
+
+L'expression de Wang Lin demeura imperturbable. Il fixa Murong Yun et dit : « Bien sûr qu'il y avait d'autres indices, mais pour l'instant, je veux savoir ce que tu es. »
+
+Murong Yun renifla : « Je suis fait de fragments d'âme ! Dis-moi ce qui t'a trahi d'autre ! »
+
+Wang Lin répliqua : « Tes vêtements sont bien trop vieux et ne correspondent pas à ceux que porteraient les cultivateurs venant d'entrer. Quel est ton objectif ? »
+
+« Je n'ai pas d'objectif ; je veux simplement vous empêcher de récupérer le Cristal de Planète de Culture. Est-ce là tes seuls points ? » Murong Yun fronça les sourcils.
+
+Wang Lin soupira et secoua la tête. « La dernière raison est le symbole sur tes vêtements... » Sur ces mots, la main droite de Wang Lin bougea brusquement. Il activa l'énergie spirituelle céleste de son corps, faisant apparaître un sort chargé de cette même énergie devant lui. Alors que sa main s'élevait, le sort céleste jaillit vers Murong Yun.
+
+Murong Yun ricana sans bouger, mais au moment où le sort céleste percuta sa cible, son corps se désintégra en filaments de gaz noir et disparut dans les nuages environnants.
+
+Wang Lin ne poursuivit pas la traque, un soupçon de moquerie dans les yeux. Bientôt, un cri retentit de l'intérieur du nuage noir ; les filaments de brume revinrent et se condensèrent pour reformer Murong Yun. Son expression était devenue extrêmement livide alors qu'il lançait à Wang Lin : « Tu n'es pas un simple cultivateur au stade de la Transformation de l'Âme ! »
+
+Un drapeau de trente pieds de long jaillit des nuages noirs, oscillant comme une vague à l'intérieur du nuage. Une quantité massive de fragments d'âme entrait et sortait du drapeau. Dix âmes primaires résidaient dans le nuage noir, leurs regards verrouillés sur Murong Yun.
+
+Parmi ces âmes primaires se trouvait un Qilin doré et pourpre, dont les yeux brillaient d'une férocité sauvage.
+
+Wang Lin avait raffiné le drapeau d'âme du milliard d'âmes une fois de plus en chemin avec Situ Nan. Il y avait fusionné ses deux autres drapeaux ; désormais, le Qilin et Li Yuanfeng étaient tous deux des âmes primaires de ce même drapeau.
+
+À présent, ce drapeau d'âme du milliard d'âmes comptait 28 âmes primaires !
+
+« Tu crois pouvoir me piéger ainsi ? » Murong Yun ricana et chargea de nouveau. Il se mua une fois de plus en brouillard noir pour foncer vers les orifices de Wang Lin.
+
+Le corps de Wang Lin recula et son regard devint glacial. Il leva la main et murmura : « Sceau ! »
+
+À cet instant, un autre drapeau surgit des nuages noirs. Dès son apparition, une multitude de restrictions s'en échappèrent. À une vitesse fulgurante, elles se refermèrent pour créer une cage de la taille d'un homme, emprisonnant tout le brouillard noir. La cage se contracta rapidement jusqu'à n'atteindre plus la taille d'un poing.
+
+Cette sphère était faite de restrictions. Les rangées de sceaux verrouillaient hermétiquement le brouillard noir à l'intérieur.

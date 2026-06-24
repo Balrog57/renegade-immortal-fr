@@ -1,0 +1,125 @@
+---
+n: 1728
+title: "Xuan Luo entre dans la grotte !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1728 - Xuan Luo Enters the Cave!"
+slug: xuan-luo-entre-dans-la-grotte
+---
+Chapitre 1728 - Xuan Luo entre dans la grotte !
+
+Alors qu'il parlait, l'expression des quatre généraux changea. Même celle du Vieux Fantôme Zhan devint sérieuse alors qu'il fixait Wang Lin.
+
+C'était la première fois que Wang Lin mentionnait cette troisième âme dont tout le monde songeait !
+
+Les quatre généraux n'avaient jamais évoqué ce sujet devant lui. Pour eux, il s'agissait du secret le plus impénétrable du monde des grottes, une vérité que très peu d'êtres connaissaient !
+
+Cependant, avant qu'ils ne puissent se remettre du choc provoqué par les paroles de Wang Lin, la Hache Divisant le Ciel dans sa main s'agrandit rapidement. L'aura du Dao Antique en lui explosa.
+
+La Hache Divisant le Ciel des anciens dieux fut imprégnée du pouvoir du Dao Antique de Wang Lin. Dans ce monde, nul n'était plus apte que lui à manier une telle arme. Wang Lin saisit la hache et frappa sans l'ombre d'une hésitation !
+
+Tout se produisit en un instant. Au moment où la hache descendit, le système stellaire trembla et une ombre du Dao Antique apparut. Cette ombre, tenant elle aussi la hache, frappa de concert avec Wang Lin !
+
+Le général du Dragon Azure était le plus proche. Instantanément, sa lignée céleste s'éveilla et l'ombre d'un Dragon Azure se manifesta autour de lui. Il chargea vers la hache !
+
+Simultanément, la Tortue Noire, l'Oiseau Vermillon et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, l'Oiseau Vermillon semblable à une flamme et la massive Tortue Noire aux traits telluriques se précipitèrent vers lui.
+
+L'expression de Wang Lin demeura sereine. Il allait faire ressentir la douleur à ces anciens célestes et leur donner une leçon mémorable. Il ne chercha pas à esquiver, mais son pouvoir du Dao Antique satura son corps pour former le Corps Antique Immortel !
+
+Tandis que son corps continuait de se régénérer, la hache dans la main gauche de Wang Lin s'abattit, creusant une faille béante. Le Dragon Azure lutta un instant avant d'exploser soudainement. Le général du Dragon Azure réapparut et chargea contre Wang Lin.
+
+Les quatre unirent leurs forces et leurs sorts frappèrent Wang Lin simultanément.
+
+Wang Lin leva de nouveau la hache de sa main gauche. Il effectua un large mouvement circulaire et un grondement tonitruant résonna. L'énergie puissante de la hache entra en collision avec leurs sorts, créant une onde de choc si violente qu'elle repoussa les cent célestes environnants.
+
+Au même instant, les sorts des quatre généraux pénétrèrent l'énergie de la hache pour frapper Wang Lin !
+
+Le fracas fut tel qu'on aurait dit que le système stellaire tout entier allait s'effondrer. Les quatre généraux reculèrent, leurs visages empreints d'une intention meurtrière !
+
+Wang Lin restait debout sur le corps de la Bête des Enfers, utilisant la puissance de son Corps Antique Immortel pour résister de force à leur attaque combinée !
+
+« Vos cultures ne se sont pas encore totalement rétablies, elles n'en sont qu'au stade avancé du Vide Arcanique... Avec des niveaux aussi bas, vous ne pourrez pas blesser mon corps. » Wang Lin fit un pas en avant avec une rapidité fulgurante. Il surgit derrière un céleste et projeta sa main droite en griffant l'air.
+
+Le pouvoir de la Déchirure Céleste se manifesta. Le bras droit de Wang Lin était celui de Ye Mo. Le céleste ne put rien opposer à cette force de déchirement et son corps s'effondra instantanément en un amas de chair et de sang.
+
+Même les deux célestes situés derrière lui ne purent échapper à la force destructrice. Leurs corps furent broyés et leurs âmes d'origine déchirées !
+
+Le corps de Wang Lin vacilla et plongea dans une faille alors que les quatre généraux convergeaient vers lui. Il réapparut au milieu d'un groupe de célestes peu éloigné.
+
+« Déchirure Céleste ! » Dès son apparition, Wang Lin utilisa sans pitié sa technique. Tandis que des cris déchirants retentissaient, sept ou huit célestes s'effondrèrent.
+
+Les quatre généraux rugirent et leurs sorts emplirent le système stellaire en fonçant vers Wang Lin. Cependant, il les repoussa grâce à son Corps Antique Immortel et surgit devant un autre groupe de célestes.
+
+Les célestes furent envahis par la terreur et une douleur atroce ravagea leurs corps. Incapables d'esquiver ou de résister, ils furent déchiquetés.
+
+« Wang Lin, je vais massacrer ton Royaume Céleste ! » rugit le général du Dragon Azure, les yeux brûlants de rage. Pourtant, au-delà de la colère, il était frappé par l'incrédulité face aux méthodes et à la puissance physique phénoménale de Wang Lin.
+
+« Il semble que cette leçon de sang ne suffise pas ! » Wang Lin recula pour se tenir sur le dos de la Bête des Enfers. Juste au moment où le Vieux Fantôme Zhan s'apprêtait à l'encercler, Wang Lin secoua le sang de sa main droite et tapota la bête.
+
+« Dévore ces gens. »
+
+À ces mots, le Vieux Fantôme Zhan s'immobilisa brusquement, tandis que les yeux de la Bête des Enfers s'ouvraient.
+
+La cruauté et l'indifférence qui émanaient de ce regard terrifièrent l'assistance.
+
+C’est à cet instant précis que l’esprit du général du Dragon Azure fut secoué. Un tel regard était extrêmement rare ; il ne l'avait vu qu'une seule fois dans sa vie. Il y a fort longtemps, la brume qui avait dévoré Lian Daofei possédait ce même regard !
+
+« C'est... c'est... » Alors que les quatre généraux commençaient à céder à la terreur, la Bête des Enfers obéit à l'ordre de Wang Lin et ouvrit sa gueule pour dévorer !
+
+Si les étoiles constituaient le monde, alors le monde changea de couleur. Si la poussière était le vent, alors la poussière se dispersa ! Une brume infinie apparut soudainement dans le système stellaire, exhalant une aura antique que chacun pouvait ressentir.
+
+Une puissante force d'aspiration surgit alors. Les soixante-dix ou quatre-vingts célestes restants autour des quatre généraux pâlirent tandis qu'ils étaient aspirés par ce tourbillon. Des cris de détresse résonnèrent alors que tous étaient engloutis par la Bête des Enfers.
+
+Tout cela se produisit en un battement de cils ! L'événement fut trop rapide pour permettre toute réaction. Ils ne sentirent que la brume les envahir, suivis par des hurlements de douleur !
+
+Une fois le chaos passé, le système stellaire semblait inchangé et aucune trace de brume ne subsistait, comme si elle n'avait jamais existé. Pourtant, hormis Wang Lin, il ne restait que cinq survivants !
+
+« Vous vous souviendrez de cette douleur ? » Wang Lin était toujours assis sur la Bête des Enfers, immobile. Sa voix n'était pas forte, mais lorsqu'elle atteignit les oreilles des cinq survivants, dont le Vieux Fantôme Zhan, leurs cœurs tremblèrent !
+
+« Le Dao Céleste !!! C'est le Dao Céleste !! » Le général du Dragon Azure tremblait, les yeux emplis d'une peur telle qu'il se sentait comme noyé par une marée montante. Il n'avait jamais été aussi terrifié, pas même lorsqu'il avait vu Wang Lin manier l'arc de Li Guang !
+
+« Le Dao Céleste... est en fait en toi... Ceci... ceci est... » Le plus rusé des généraux, la Tortue Noire, fut également ébranlé, et la peur dans ses yeux n'était pas moindre à celle du Dragon Azure. Il sentait que cette force d'aspiration aurait suffi à l'engloutir totalement.
+
+Dans son esprit, ce qui dominait n'était plus seulement la terreur, mais le désespoir pur. Aux yeux de Wang Lin, il était devenu une existence terrifiante !
+
+Les généraux du Tigre Blanc et de l'Oiseau Vermillon restèrent pétrifiés, comme si un sort de paralysie les avait frappés.
+
+« J'ai en fait porté mon regard sur le Dao Céleste... »
+
+« Pas étonnant que je n'aie pu détecter son aura, pas étonnant... »
+
+Les pupilles du Vieux Fantôme Zhan se rétractèrent, révélant un choc inimaginable. L'âme aux sept couleurs en lui entra dans une rage folle et prit le contrôle de son corps. Son visage se déforma tandis qu'il se précipitait vers Wang Lin, les yeux écarquillés par l'effroi !
+
+S'ils n'étaient pas dans le monde des grottes, ils ne craindraient pas le Dao Céleste, mais ici, la donne était différente. Le Dao Céleste était la loi suprême de ce lieu !
+
+Contrôler le Dao Céleste signifiait contrôler toute existence ici.
+
+Cependant, même ainsi, la capacité de dévoration du Dao Céleste avait ses limites ; autrement, il n'aurait pas été scindé par l'autodestruction de Lian Daofei. Le Vieux Fantôme Zhan possédait sa propre méthode pour y faire face, mais une autre pensée le taraudait.
+
+« Tu as trouvé la troisième âme... » La voix du Vieux Fantôme Zhan était empreinte d'amertume et de désolation. Pourtant, ce n'était pas lui qui parlait ; ces mots appartenaient à l'âme aux sept couleurs.
+
+« Je ne l'ai pas trouvée. » Wang Lin secoua la tête. La Bête des Enfers en dessous de lui lança un regard froid aux cinq individus avant de fermer les yeux et de s'éloigner.
+
+Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et prirent la fuite. Ils n'osaient plus barrer la route à Wang Lin. Ils regardèrent Wang Lin et la Bête des Enfers disparaître au loin, incapables de retrouver leur calme pendant un long moment.
+
+Ils possédaient peut-être des moyens de ne pas craindre le Vieux Fantôme Zhan — après tout, son corps abritait l'âme du Souverain Céleste aux Sept Couleurs — mais face à Wang Lin et au Dao Céleste, ils ne purent que rester silencieux.
+
+Wang Lin, assis sur la Bête des Enfers, flottait vers le Vide Brillant. Bien qu'il paraisse calme, il soupira intérieurement.
+
+« Le Dao Céleste est-il incomplet... ? Les quatre généraux étaient une formalité, mais la Bête des Enfers a laissé entendre qu'il serait très difficile de dévorer le Vieux Fantôme Zhan... »
+
+Également dans le Vide Brillant, un rayon de lumière aux sept couleurs traversait l'espace. Le Daoïste aux Sept Couleurs, tenant neuf sphères de sang de la taille d'un poing, volait vers l'avant.
+
+« Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine secrète, je peux pénétrer dans la réincarnation et trouver où la troisième âme s'est incarnée... Elle doit se trouver dans le Vide Brillant. »
+
+Sur le Continent Astral Immortel, dans une région appartenant aux célestes, se dressait un entrelacs de montagnes. La zone était couverte d'une forêt dense, tel un territoire sauvage et indompté.
+
+La nuit était tombée, et la lumière des étoiles se répandait sur la terre. Mais le silence n'était pas de mise ; les rugissements de bêtes féroces résonnaient depuis l'épaisseur du bois.
+
+Il y a fort longtemps, une secte céleste s'était tenue ici : la Secte des Sept Dao.
+
+Des ondulations se formèrent dans le ciel où la lune était suspendue. Ces distorsions semblaient déformer l'astre lunaire tandis qu'une silhouette apparaissait lentement. C'était un jeune homme aux cheveux noirs.
+
+Le jeune homme paraissait épuisé en contemplant la terre en contrebas. Pourtant, son visage las affichait un sourire empreint d'attente. Il semblait que, malgré le prix immense payé pour arriver jusqu'ici, tout en valait la peine.
+
+« Enfant de mon Clan du Dao Antique, je suis venu te ramener chez toi... Le chemin du retour sera ardu, mais je sais que tu ne craindras rien. » Le jeune homme sourit en avançant.

@@ -1,0 +1,115 @@
+---
+n: 618
+title: Un Nouveau Changement, la Bête Tonnerre aux Cornes Argentées
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 618 - A New Change, The Silver Horn Thunder Beast
+slug: un-nouveau-changement-la-bete-tonnerre-aux-cornes-argentees
+---
+Wang Lin fixait l'animal spirituel. Après que le troisième symbole sanguin eut été imprimé sur lui, l'aura qu'il dégageait terrifiait même Wang Lin.
+
+Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur trois pouces hors de ses orbites.
+
+Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard vacillait. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
+
+L'essentiel de la puissance du Char de Guerre Divin résidait dans l'animal spirituel. Chacun des sept sceaux de sang de l'âme originelle pouvait stimuler l'évolution de la bête.
+
+Si les sceaux n'étaient pas levés lorsque cette simulation atteindrait son apogée, l'animal spirituel exploserait et mourrait. Cependant, si le sceau était levé trop tôt, l'évolution de la bête serait interrompue et elle ne pourrait jamais atteindre sa puissance maximale à l'avenir.
+
+En vérité, aucun des trois Chars de Guerre Divins n'avait été utilisé avant la mort de leur créateur. Selon son plan initial, les trois Chars de Guerre Divins atteindraient la perfection après avoir été activés une première fois.
+
+C'est pourquoi il devait lever le sceau une fois que l'évolution aurait atteint son paroxysme. Ce n'était qu'à cette condition que la puissance du Char de Guerre Divin serait à la hauteur de son nom !
+
+Selon les plans originaux du créateur, il prévoyait de rassembler tous les matériaux nécessaires, puis de trouver un expert au niveau d'un Empereur Céleste pour l'aider lors de la première activation. Cela garantirait qu'aucun regret ne subsiste concernant l'un ou l'autre des chars de guerre !
+
+Dans le jade, il affirmait même que nul, pas même un être au niveau d'un Empereur Céleste, ne pourrait permettre une activation parfaite du troisième char de guerre.
+
+L'animal spirituel continuait de se contracter et l'aura à l'intérieur de son corps devenait de plus en plus terrifiante. À l'origine, le vent soufflait sur les plaines, mais désormais, c'était comme si le vent n'osait plus s'approcher. Le ciel s'obscurcissait progressivement, perdant sa clarté d'autrefois.
+
+D'innombrables grains de sable tremblaient sur le sol, comme secoués par une force mystérieuse.
+
+Les yeux de Wang Lin brillèrent comme des torches. L'aura de l'animal spirituel devant lui avait déjà surpassé la force d'un cultivateur Ascendant du stade initial. Elle atteignait progressivement le stade intermédiaire de l'Ascendance et continuait de croître.
+
+Après plusieurs respirations, le corps de la bête se réduisit, passant de 1 000 pieds à 100 pieds de hauteur. Cependant, la lumière rouge émanant de ses yeux s'étendait désormais sur près de sept pieds, et une brume soyeuse entourait son regard.
+
+Les yeux de Wang Lin se plissèrent ; sa main traça un sceau et une lueur noire apparut dans sa paume. Son regard fut aussi perçant que l'éclair tandis qu'il fixait la bête.
+
+À cet instant précis, la lumière rouge des yeux de la bête se rétracta soudainement. Une aura destructrice puissante, presque frénétique, commença brusquement à croître à l'intérieur de son corps !
+
+Cette progression fut d'une rapidité fulgurante ; c'était comme si une sphère gonflait frénétiquement dans les entrailles de la bête. L'esprit de Wang Lin était en pleine analyse alors qu'il observait attentivement la créature. Il pointa la bête du doigt et cria : « Second sceau, ouvre-toi ! »
+
+La lueur noire s'élança et, au moment même où l'aura de la bête atteignait son apogée, elle percuta son corps. Un instant plus tard, les tremblements cessèrent et l'aura destructrice se stabilisa autour de l'animal. Ce dernier leva alors la tête et poussa un rugissement vers le ciel.
+
+Des grondements tonitruants retentirent soudainement dans les cieux et des éclairs descendirent. Ce n'était pas une tribulation divine, mais une manifestation créée par la bête elle-même.
+
+Les foudres tombèrent du ciel pour frapper le corps de l'animal spirituel. Les éclairs successifs se lient entre eux, formant une chaîne continue.
+
+Le corps de l'animal fut enveloppé dans une sphère de foudre. Il se tenait debout, puis s'allongea progressivement pour finir par prendre la forme d'une créature semblable à un qilin.
+
+Toutefois, ce n'était pas un qilin, mais une bête encore plus rare que le qilin dans le Royaume Céleste : une bête tonnerre ! Une corne argentée perça lentement son crâne sous l'effet de la foudre.
+
+Une pointe de déception passa dans les yeux de Wang Lin en voyant cette corne argentée. Il poussa un soupir, puis s'avança. Tandis qu'il traçait un geste dans les airs, le quatrième symbole sanguin fut achevé. Il saisit le symbole et se précipita droit sur la bête tonnerre.
+
+« Selon le jade, si le second sceau du second char de guerre est activé parfaitement, une corne dorée devrait apparaître... » Il se rapprocha immédiatement de la bête tonnerre, traversa les éclairs et pressa directement le symbole sanguin entre les sourcils de l'animal spirituel.
+
+Le moment qu'il choisit était celui-là même mentionné dans le jade. L'instant où l'animal spirituel évolue en bête tonnerre est l'unique moment de sa vie pour y imprimer un sceau. Ce créneau avait été spécifiquement laissé par le créateur pour permettre l'empreinte.
+
+Le symbole sanguin fut gravé entre les sourcils de la bête. Au moment de l'impact, une lueur dorée jaillit. Wang Lin fut surpris, mais lorsqu'il regarda de plus près, toute trace de lumière dorée avait disparu.
+
+Une fois le quatrième symbole imprimé, la bête tonnerre ne lança plus de regard hostile à Wang Lin. Cependant, elle n'affichait aucune bienveillance non plus. Après l'avoir dévisagé, elle disparut pour retourner dans le Char de Guerre Divin.
+
+Wang Lin tendit sa main droite et le Char de Guerre Divin fut rangé dans son sac de rangement. Ses yeux brillèrent de réflexion : « Cette lueur dorée ne peut pas être une illusion de ma vue, alors pourquoi est-elle apparue... Même avec une corne argentée, elle reste assez puissante pour affronter des cultivateurs Ascendants du stade intermédiaire ! Bien que les indigènes ici soient faciles à traiter, comment un cultivateur ayant atteint le milieu de l'Ascendance pourrait-il être insignifiant ? Ils possèdent soit des sorts redoutables, soit des trésors incroyables, ou bien les deux ! »
+
+« Par conséquent, bien que je n'ose prétendre pouvoir vaincre n'importe quel cultivateur Ascendant du stade intermédiaire avec ma propre culture au stade initial... il est impossible qu'ils me tuent ! Et si je rencontre un cultivateur de ce niveau dont les sorts et les trésors sont plus faibles que les miens, je serai capable de l'éliminer ! »
+
+« Quant aux cultivateurs Ascendants du stade avancé... c'est tout simplement trop difficile ! » Wang Lin laissa échapper un soupir.
+
+« Que ce soit Zhuque Zi ou ce vieil homme en robe noire, tous deux ont atteint le stade avancé de l'Ascendance. Même en utilisant la bête tonnerre, je crains de ne pouvoir résister à la puissance d'un tel adversaire. Heureusement, je possède l'énergie de l'épée de Ling Tianhou ; si je rencontre vraiment l'un d'eux, je n'aurai rien à craindre ! »
+
+Wang Lin fit un pas en avant et se téléporta dans la tour.
+
+« La raison pour laquelle les cultivateurs Ascendants du stade avancé sont si puissants est qu'ils sont déjà au terme de la première étape ! Surtout ceux qui atteignent le sommet de ce stade ; ils sont considérés comme l'apogée de cette première étape. Seuls des êtres de niveau similaire peuvent rivaliser avec eux en combat. Ce ne sont pas des adversaires que les cultivateurs du stade intermédiaire peuvent espérer surmonter... à moins de posséder un trésor défiant les cieux, comme l'énergie de l'épée de Ling Tianhou, ou la quatrième âme du drapeau aux un milliard d'âmes ! »
+
+« Et même ainsi, cette quatrième âme a été capturée par Zhuque Zi, et le Maître Dun Tian est mort... »
+
+« À l'époque, le vieil homme sous la tour des démons avait dit que le sort de vent, de pluie, de tonnerre et d'éclairs était son sort le plus faible. Cela ne devrait pas être faux... »
+
+Wang Lin s'assit en position du lotus dans la tour et médita.
+
+« Si j'ai plus d'un million de filaments d'énergie de massacre, le drapeau aux un milliard d'âmes, le Char de Guerre Divin et la rivière des enfers... Pourrais-je vaincre un cultivateur Ascendant du stade avancé... » Wang Lin songeait en silence.
+
+« Je n'en suis pas sûr... Cependant, avec l'énergie de l'épée de Ling Tianhou, si un cultivateur Ascendant du stade avancé me provoque réellement, je n'aurai d'autre choix que d'utiliser l'une de ces énergies d'épée ! » Le regard de Wang Lin devint glacial.
+
+« Désormais, je vais devoir affiner correctement les trois épées obtenues parmi les Douze Épées. Ces trois lames ont été gaspillées par leurs anciens propriétaires. Je les ai étudiées une fois auparavant, et il semble qu'une autre capacité y soit cachée. Cependant, cette capacité nécessite une attaque combinée pour être activée. » Wang Lin frappa son sac de rangement, et les trois épées de Mo Yang, Zi Shu et Hai Zhu s'envolèrent.
+
+Ces trois épées dégageaient une aura spirituelle féroce. Wang Lin cracha une bouffée d'énergie originelle qui se transforma en une brume verte enveloppant les lames. Il ferma ensuite les yeux pour se concentrer sur leur affinement.
+
+En un clin d'œil, trois mois passèrent. Ce jour-là, plusieurs rayons de lumière apparurent dans le ciel, à 50 000 kilomètres du Clan de l'Affinement des Âmes. Leur cible était clairement le Clan de l'Affinement des Âmes !
+
+Parmi ces individus se trouvait un homme vêtu d'or dont les vêtements irradiaient une lueur dorée. Il ne paraissait pas très âgé, et son visage dégageait une arrogance glaciale.
+
+Un autre le suivait : un jeune homme vêtu de blanc comme la neige. Il était beau, mais son visage était empreint d'amertume. Il observait le Clan de l'Affinement des Âmes avec une hésitation manifeste dans ses yeux.
+
+L'homme en or regarda le jeune homme et renifla froidement : « À quoi penses-tu, Sun Yunshan ? »
+
+Le jeune homme en robe blanche était celui qui était venu dans les Terres de l'Esprit Démoniaque avec Wang Lin. Le jeune maître de la Secte Xuan Yuan, Sun Yunshan !
+
+Lorsqu'il était entré dans les Terres de l'Esprit Démoniaque, il était protégé par plusieurs Anciens de haut niveau. Désormais, il se retrouvait seul.
+
+Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement : « Seigneur, ce subordonné... »
+
+Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre union de culture, tu dois obéir à tous les ordres. Si je n'avais pas fait honneur à ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin ?! »
+
+Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même : « Je ne sais pas si le Wang Lin de ce Clan de l'Affinement des Âmes... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop ; il est impossible qu'ils soient le même homme. »
+
+« L'ancêtre a même délibérément envoyé une garde céleste pour capturer ce Wang Lin. Ce voyage ne présente aucun danger, mais tu dois rester vigilant et ne pas laisser ce Wang Lin s'échapper ! » Une fois son discours achevé, l'homme en or tourna son regard vers l'homme d'âge moyen vêtu de noir qui fermait la marche.
+
+Cet homme était ordinaire et son expression était restée imperturbable tout ce temps. C'était comme si rien au monde ne pouvait altérer son visage.
+
+Une série de fines ondulations se propagea lentement depuis son corps, semblant fusionner avec l'environnement. Son aura avait presque totalement disparu. Un cultivateur ordinaire ne pourrait absolument pas détecter sa présence.
+
+Pouvoir se fondre dans les cieux et la terre et fusionner avec le vide signifiait que la culture de cet homme avait atteint le stade initial de l'Ascendance. Cependant, sa culture était étrange : il n'y avait aucune énergie originelle au sein de son âme originelle.
+
+Wang Lin, assis en position du lotus à l'intérieur de la tour, ouvrit soudainement les yeux. Un éclat de lumière jaillit de ses pupilles.
+
+« Treize, nous avons des invités. Fais-les venir ! »

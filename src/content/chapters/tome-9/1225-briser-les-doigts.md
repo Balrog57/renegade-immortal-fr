@@ -1,0 +1,115 @@
+---
+n: 1225
+title: Briser les doigts
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1225 - Breaking Fingers
+slug: briser-les-doigts
+---
+Alors qu'il chargeait, l'anneau que Wang Lin avait obtenu de Pang Decai brilla, et des rayons de lumière l'enveloppèrent. La clarté tournait avec frénésie, formant une tempête autour de lui. Wang Lin fonça vers la paume gigantesque façonnée par le Royaume aux Sept Couleurs.
+
+Maître Cloud Soul hésita un instant, puis serra les dents et chargea à la suite de Wang Lin.
+
+Quant à la vieille femme en vert, elle était trop blessée. Sans réfléchir, elle s'éleva dans les airs dans une tentative désespérée d'échapper à la paume.
+
+La paume formée par l'intégralité du Royaume aux Sept Couleurs gronda alors que les cinq doigts se refermaient. Elle voulait broyer Wang Lin de fond en comble !
+
+Cette scène fit trembler le monde. Les cinq doigts, sculptés dans la montagne, surgirent de cinq directions pour s'abattre avec force. Le ciel entier semblait désormais occupé par ces masses rocheuses ; c'était un spectacle terrifiant.
+
+Le plus rapide fut le petit doigt de la paume. Avant même qu'il ne soit à portée, des rafales de vent déferlèrent déjà. Ce vent était d'une puissance telle qu'on aurait dit que le monde allait s'effondrer sous sa force et que toute vie allait périr !
+
+Portée par ce souffle, la vieille femme, déjà gravement blessée, devint livide. Elle lutta néanmoins pour s'élever davantage afin de fuir la paume.
+
+Elle savait que la cible de cette attaque inimaginable était Wang Lin. Tant que Wang Lin mourrait, tout devrait cesser. À ce stade, elle n'osait même plus songer à quitter le Royaume aux Sept Couleurs. Une seule pensée l'habitait : survivre !
+
+Quoi qu'il en coûte, elle devait survivre !
+
+« Tant que je peux tenir jusqu'à la mort de cet individu nommé Lu, je pourrai vivre ! » La robe verte de la vieille femme était maculée de sang. Elle se débattait contre les vents pour gagner de l'altitude.
+
+Les yeux de Wang Lin s'embrasèrent d'une intention de combat en voyant le petit doigt approcher. Le doigt était d'une démesure absolue, couvrant presque la moitié du ciel. À cet instant précis, il se courba vers lui !
+
+« Je me demande si cet homme est le Souverain. Il veut que je m'échappe, mais pourquoi devrais-je fuir et comment pourrais-je le faire ? Autant... combattre ! » Wang Lin éclata d'un rire alors que l'étoile faite de lois tournait, tandis que sa main gauche pointait vers les cieux.
+
+Un vent noir envahit soudainement le ciel. Cette tempête obscure était si dense qu'elle recouvrit entièrement la voûte céleste. À l'intérieur, six dragons rugissaient et chargèrent immédiatement le petit doigt !
+
+À l'instant même où les six dragons noirs apparurent, un septième surgit de la noirceur ! En temps normal, avec le niveau de culture de Wang Lin, six dragons auraient été sa limite, mais grâce à l'étoile faite de lois, il parvint à briser ce plafond pour invoquer le septième dragon !
+
+Les sept dragons noirs dégageaient une énergie glaciale capable d'éteindre toute vie en direction du petit doigt. Si le doigt était une montagne imposante, les sept dragons noirs étaient des créatures célestes venues la fracasser. Ils ne céderaient pas avant que la montagne ne s'effondre !
+
+Un grondement tonitruant résonna à travers le monde alors qu'un impact colossal se propageait avec fureur. Loin de reculer devant cette onde de choc, Wang Lin s'en rapprocha et pointa le ciel.
+
+Alors que les dragons noirs continuaient de marteler la montagne en s'effondrant un à un, une énergie glaciale émana du choc. Elle possédait une consistance visqueuse et, en un éclair, d'innombrables lueurs jaillirent. Puis, des gouttes de pluie se formèrent instantanément !
+
+Dès que les gouttes apparurent, une énergie originelle infinie se condensa, soulevant le vent pour fusionner avec la pluie. Une aura extrême enveloppa soudainement la zone !
+
+D'un geste de la main gauche, Wang Lin projeta ces gouttes qui jaillirent tels des glaives vers la paume en contrebas. Des craquements résonnèrent tandis qu'un givre blanc recouvrait la surface de la paume et que, dans un battement de cils, la glace se forma !
+
+Le petit doigt fut particulièrement touché par cette pluie. Le givre le balaya et l'enveloppa de glace ! Mais la glace ne s'arrêta pas là ; elle explosa immédiatement. Ce n'était pas dû à la puissance de la paume, mais au pouvoir de « l'Invocation de la Pluie » !
+
+Avant que le niveau de culture de Wang Lin n'augmente, un tel changement n'aurait pu se produire. Cependant, avec sa progression et la stimulation du domaine de combat, une mutation radicale de l'Invocation de la Pluie s'était opérée !
+
+Après la pluie vint la glace, et après la glace vint l'effondrement. La puissance de la glace entraînait désormais la désintégration de la cible, créant une attaque bien plus dévastatrice qu'un simple gel.
+
+Les sons de la glace qui se brise résonnèrent à travers le Royaume aux Sept Couleurs. La paume aux cinq doigts vacilla, mais ne s'interrompit pas ; elle continua sa chute implacable.
+
+Même le petit doigt ne fit que tressaillir, malgré les assauts répétés des dragons noirs et de l'effondrement de la glace.
+
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé l'effondrement de la glace, il ne s'arrêta pas. Il agita sa main gauche, ouvrit la bouche, et le Sceau Céleste s'envola. Une multitude d'âmes de bataille apparurent, bien que l'âme de l'All-Seer soit absente. Les autres suivirent Maître Void et chargèrent le petit doigt en poussant des cris lugubres.
+
+Wang Lin se donnait corps et âme. Après avoir déployé son Arsenal Magique, sa main gauche traça un sceau tandis qu'il pointait le sol et hurlait :
+
+« Effondrement de la Montagne ! »
+
+La terre entière trembla alors que cinq volcans majestueux surgirent devant lui, leurs entrailles bouillonnantes de feu. Bien qu'ils ne fussent que des illusions, les montagnes continuaient de s'écrouler !
+
+Simultanément, d'innombrables filaments d'énergie de massacre jaillirent de son corps. C'était toute l'énergie de massacre absorbée de l'All-Seer aux robes grises. Cette énergie se condensa en une épée rouge et fonça vers le petit doigt qui s'approchait, rejoignant tous ses autres sortilèges.
+
+Tout cela se produisit en un éclair, au moment même où les cinq doigts se refermaient.
+
+À cet instant, le vent noir emplissait le ciel, les dragons noirs rugissaient, la pluie tombait de partout, la glace s'effondrait, les âmes de bataille hurlaient et s'autodétruisaient, l'Effondrement de la Montagne déchaînait une force monstrueuse, et l'air était saturé d'énergie de massacre !
+
+L'ensemble fusionna en un sortilège d'une puissance inouïe qui percuta le petit doigt.
+
+Les six volcans entrèrent immédiatement en collision avec le doigt dans un fracas apocalyptique. Les sept dragons noirs percutèrent l'auriculaire avant d'exploser. La pluie continuait de geler, provoquant un effondrement constant !
+
+D'innombrables âmes de bataille convergèrent et explosèrent soudainement, créant des impacts dévastateurs. L'épée de massacre transperça le doigt avant de se briser en une infinité de filaments d'énergie qui s'engouffrèrent dans la masse.
+
+La terre trembla si violemment que Maître Cloud Soul en cracha du sang et que l'âme originelle de la vieille femme en vert faillit se dissiper. Ce rugissement qui ébranlait les cieux résonna dans tout le royaume.
+
+L'auriculaire formé par la montagne s'effondra soudainement !
+
+Dans un fracas de bris, d'innombrables fissures apparurent alors que la partie supérieure du petit doigt explosait, projetant une tempête de débris dans toutes les directions.
+
+Le visage de Wang Lin devint livide et il cracha du sang. La lumière qui le protégeait vola en éclats et l'anneau de Pang Decai se brisa ! Le corps de Wang Lin fut immédiatement projeté en arrière par la violence du choc.
+
+Maître Cloud Soul se trouvait derrière Wang Lin. En étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés ; il n'était plus qu'un amas sanglant.
+
+La vieille femme en vert, étant restée à distance, ne fut que peu affectée par l'onde de choc. Elle avait volé vers le haut et s'était échappée par pur hasard, bien que le choc ait failli provoquer l'effondrement de son corps.
+
+Elle crut d'abord avoir survécu au désastre et se sentit chanceuse, mais son expression changea brusquement. Elle voulut battre en retraite, mais il était trop tard : l'index s'abattit sur elle à une vitesse prodigieuse.
+
+Le corps de la vieille femme en vert se mua en un brouillard de sang. Son âme originelle lutta pour s'enfuir, mais alors que Wang Lin reculait, il agita sa manche et captura son essence.
+
+La paume du Royaume aux Sept Couleurs possédait cinq doigts, et désormais, il en manquait la moitié. Cependant, l'auriculaire brisé ne se dissipe pas ; il absorbait l'énergie originelle du monde avec une frénésie absolue pour se reformer rapidement !
+
+Si ce demi-doigt finissait par se reconstruire, tous les efforts de Wang Lin seraient vains. En cette heure critique, les yeux de Wang Lin brillèrent d'une intention de combat mêlée de folie. Il chargea vers l'index qui venait de balayer la vieille femme !
+
+Il devait agir vite, car les trois autres doigts convergeaient également. Il pouvait imaginer qu'une fois les doigts refermés et la paume transformée en poing, ses chances de survie seraient nulles !
+
+Il avait traversé d'innombrables crises au cours de sa vie, mais l'adversaire qui provoquait celle-ci était le plus puissant qu'il ait jamais affronté.
+
+Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vide et le trésor Pseudo Nirvana Void de Maître Ashen Pine — l'épée de cristal — apparut. Il cracha du sang sur la lame pour en extraire tout le potentiel, puis la projeta vers l'index.
+
+L'épée de cristal libéra instantanément un chant d'épée qui ébranla les cieux et une énergie monstrueuse. Enveloppée de cette puissance tranchante, elle fonça sur l'index.
+
+Les trésors Pseudo Nirvana Void étaient extrêmement rares dans le Royaume Scellé ; c'étaient des artefacts d'une puissance phénoménale ! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
+
+Un grondement tonitruant retentit. Ce fracas sembla presque faible comparé au rugissement de Wang Lin, mais il permit à l'épée de cristal de libérer une attaque encore plus dévastatrice.
+
+« Épée, brise-toi ! »
+
+À peine eut-il prononcé ces mots que l'épée de cristal s'effondra soudainement, générant une onde de choc inimaginable qui fit hésiter l'index !
+
+Il n'eut pas le temps de déplorer la perte de son arme ; d'un geste de la main gauche vers son espace de stockage, un autre trésor vola hors de celui-ci. La même aura Pseudo Nirvana Void se propagea.
+
+Il restait un dernier trésor Pseudo Nirvana Void dans l'espace de Maître Ashen Pine : une hache de bataille bleue. Cette hache, affinée par une méthode inconnue, était couverte d'innombrables sceaux.

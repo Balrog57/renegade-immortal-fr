@@ -1,0 +1,137 @@
+---
+n: 825
+title: Les Pensées du Dieu Sanglant (2)
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 825 - Blood Gods Thoughts (2)
+slug: les-pensees-du-dieu-sanglant-2
+---
+Un rugissement de colère éclata sous le Sceau de la Scellement Céleste. Une aura terrifiante et suffocante commença soudainement à se répandre avec frénésie.
+
+Au moment où le Sceau de la Scellement Céleste s'abattit, il fut repoussé par cette force. Les innombrables runes dorées furent déchirées par cette puissance et constamment refoulées.
+
+Des bruits de craquement résonnèrent dans le poing de Ta Shan ; son poing droit fut broyé. Même la moitié de son corps fut affectée par l'onde de choc, le projetant au loin.
+
+À cet instant, l'élégance et la fierté de Yao Changdong avaient disparu. Ses cheveux étaient en bataille, ses vêtements en lambeaux et ses yeux brûlaient de rage.
+
+Une perle de la taille d'un poing flottait devant lui. L'appeler une perle était presque inapproprié ; c'était plutôt le noyau d'un cultivateur !
+
+C'est ce noyau qui avait absorbé toutes les attaques précédentes, permettant à Yao Changdong de ne rester dans un état pitoyable sans subir la moindre blessure réelle.
+
+« Tu es la deuxième personne à me forcer à utiliser la pilule céleste que l'Ancêtre m'a donnée ! » Yao Changdong grinça presque des dents. Son intention meurtrière envers Wang Lin ne découlait plus de l'Ordre Céleste de sa famille, mais de la rage pure qui bouillonnait dans son cœur.
+
+Il n'avait jamais été dans une situation aussi désavantageuse de toute sa vie. Depuis l'embuscade initiale, il n'avait eu aucune chance de riposter et avait été contraint à une défense passive. À cause de ce sort étrange, Yao Changdong s'était retrouvé dans une position périlleuse.
+
+L'expression de Wang Lin était sombre. Tout en reculant, il frappa son sac de rangement et en sortit immédiatement le drapeau des âmes. Il saisit aussitôt deux âmes originelles Illusoires Yin et les dévora. Alors que l'énergie originelle remplissait son corps, il fixa le noyau devant Yao Changdong d'un regard glacial.
+
+Wang Lin avait tenu l'avantage auparavant et n'avait laissé aucune chance de riposte à Yao Changdong. Tout avait été orchestré pour le tuer, mais finalement, cela avait échoué.
+
+Wang Lin comprenait désormais clairement la différence entre les cultivateurs Corporel Yang et Nirvana Scryer. Il était certain que la situation qu'il avait mise en place aurait pu tuer n'importe quel cultivateur Corporel Yang, mais Yao Changdong n'était pas blessé du tout.
+
+Bien que ce noyau ait joué un rôle majeur, même sans lui, Yao Changdong devait posséder d'autres sorts.
+
+« Une famille possédant une héritage du Royaume Céleste doit impérativement disposer de nombreux sorts célestes ! »
+
+Les yeux de Yao Changdong révélèrent une expression féroce. Sa main droite forma un sceau et le noyau commença à graviter autour de son corps. Simultanément, sa main gauche traça un autre sceau et il hurla : « Sort céleste, Effondrement du Vide ! »
+
+Wang Lin n'hésita pas à battre en retraite. Tandis qu'il reculait, l'espace où il se trouvait s'effondra, provoquant un impact dévastateur.
+
+Cette scène fit se rétracter les pupilles de Wang Lin.
+
+« Sort céleste, Effondrement Imaginaire ! » La main de Yao Changdong forma un nouveau sceau et son visage prit une expression cruelle.
+
+Des effondrements violents continuèrent de résonner ; Wang Lin ne pouvait s'accorder aucun répit car les déchirements spatiaux le poursuivaient de près.
+
+L'expression de Wang Lin était sombre, mais il restait calme. Des ondulations apparurent sous ses pieds et il disparut sans laisser de trace. Il réapparut instantanément à cent pieds derrière Yao Changdong et lança une Hache Céleste vers lui.
+
+Cependant, alors que la Hache Céleste s'approchait de sa cible, le noyau surgit soudainement pour la percuter. Dès qu'il toucha l'arme, il en absorba toute la puissance.
+
+« Sort céleste, les 19 Âmes ! » Yao Changdong fit un mouvement brusque, afficha un sourire sardonique et cracha une bouffée de brume blanche. Des hurlements misérables s'échappèrent de la brume. Dix-neuf bébés se trouvaient à l'intérieur ; ils étaient totalement noirs. Ces monstres se précipitèrent vers Wang Lin, portés par le nuage de brume.
+
+Une lueur froide passa dans les yeux de Wang Lin. Il fit un pas en arrière et fusionna avec le monde.
+
+Les dix-neuf âmes manquèrent leur cible, puis retournèrent vers Yao Changdong pour graviter autour de lui.
+
+Le visage de Yao Changdong devint féroce. Sans hésiter, il tendit la main vers le noyau et cria : « Je suis prêt à subir le châtiment de l'Ancêtre pour avoir sacrifié ce noyau afin de briser ton sort ! » En parlant, il écrasa le noyau, libérant une aura destructrice qui se propagea comme une tempête.
+
+Cette force était trop puissante. À mesure qu'elle s'étendait, l'énergie originelle dans un rayon de 100 000 pieds commença à se tordre et à se distordre. L'énergie originelle du monde n'était plus en équilibre ; c'était comme si d'immenses mains la remuaient sans cesse. Quiconque y était fusionné devait s'enfuir au plus vite, à moins de posséder un sort capable de contrer ces fluctuations.
+
+Wang Lin réapparut à mille pieds de là. Ses yeux étaient emplis d'intention meurtrière lorsqu'il leva sa main droite et pointa le vide. La Paire Dao Fanée apparut rapidement. L'os de la bête féroce émit un éclat fantomatique et une puissante aura maléfique emplit le monde.
+
+L'expression de Yao Changdong changea légèrement et ses deux mains formèrent un sceau. Les dix-neuf bébés se mirent à tournoyer rapidement autour de lui, créant une illusion : celle d'un bébé gigantesque.
+
+Une fois apparue, l'entité laissa échapper un rugissement. Cependant, elle ne put pousser qu'un demi-cri avant que son corps ne soit recouvert d'une lumière grise et ne se change instantanément en pierre.
+
+Wang Lin profita de cette opportunité pour reculer et sortit immédiatement deux âmes originelles Illusoires Yin. Après les avoir dévorées, il leva sa main droite et hurla : « Invoque le Vent ! »
+
+Un vent noir rugit et s'amassa autour de sa main droite. Il s'étendit instantanément, créant un vent noir et dense tout autour de Wang Lin.
+
+À ce moment précis, le bébé pétrifié s'effondra et Yao Changdong en sortit sans la moindre égratignure.
+
+Il fixa le vent noir entourant Wang Lin et ricana : « C'est tout ce que tu as ? Aujourd'hui, tu mourras sans aucun doute ! »
+
+À peine eut-il fini de parler que Wang Lin agita la main et le vent noir chargea. Il balaya les étoiles et se transforma en un dragon noir qui ouvrit la gueule pour expulser un vent glacial.
+
+Initialement, Yao Changdong n'avait pas considéré ce vent comme une menace, mais son corps fut saisi par un froid intense et il eut l'impression que son âme originelle était sur le point de s'effondrer. Il recula immédiatement, sous le choc, mais le vent noir le poursuivait de près.
+
+Pris de peur en voyant qu'il allait être encerclé, Yao Changdong forma rapidement un sceau et cria : « Sort céleste, Calamité Nuageuse ! » Des grondements tonitruants surgirent de nulle part et des nuages entourèrent Yao Changdong. Des éclairs jaillirent entre les nuages, formant un bouclier complet.
+
+Cependant, sous la puissance du vent déchaîné par le dragon noir, les nuages se dissipèrent, révélant un Yao Changdong terrifié.
+
+« Quoi... Quel est ce sort céleste ?! » Le corps de Yao Changdong trembla ; il serra les dents et cracha une bouffée d'énergie originelle essentielle. Sa main droite s'activa rapidement et il cria : « Âme Sanguine, six cycles ! »
+
+Après avoir utilisé ce sort, le visage de Yao Changdong devint livide. Ce sort céleste de l'Âme Sanguine lui avait été transmis par l'Ancêtre, le Dieu Sanglant. On disait que c'était l'un des plus grands sorts de leur ancêtre céleste.
+
+À son apogée, il pouvait atteindre dix-neuf cycles, mais avec le niveau de culture actuel de Yao Changdong, il ne pouvait en gérer que six, et même ainsi, cela consommait la majeure partie de son énergie originelle.
+
+Le sang commença à bouger rapidement, formant un vortex avant de s'élancer vers le ciel. Tel un tourbillon écarlate, il créa une force puissante qui entra en collision avec le vent. Les deux forces se neutralisèrent promptement.
+
+Yao Changdong fixa Wang Lin, dont l'aura vacillait. Il serra les dents, frappa son sac de rangement et fit apparaître un talisman dans sa main.
+
+« Avec le talisman que l'Ancêtre m'a donné, peu importe tes sorts, tu mourras sans aucun doute ! »
+
+Il leva la main et le talisman s'envola aussitôt. Une rune complexe tracée à l'encre rouge ornait l'objet. Yao Changdong forma un sceau tout en se mordant la langue pour cracher du sang directement sur le talisman.
+
+En un instant, le talisman fut teinté de rouge sang et la rune sembla prendre vie. Une étrange lumière émana de lui et une flamme verte singulière commençaa à brûler sur son bord.
+
+« Talisman Céleste Impérial ! Tue cet homme ! » Yao Changdong pointa Wang Lin, sa voix révélant toute sa férocité.
+
+Le talisman brilla et chargea. Il perça le vortex de l'âme sanguine et le vent glacial sans subir le moindre dommage, fonçant droit sur Wang Lin.
+
+Les pupilles de Wang Lin se rétractèrent soudainement. Il connaissait très bien ce talisman, car il était presque identique aux deux qu'il possédait. À cet instant, une aura qui bouleversa son esprit émana de l'objet.
+
+Cette aura était extrêmement terrifiante.
+
+« Je ne peux pas résister ! » Tous les poils sur le corps de Wang Lin se hérissèrent et il sentit un sentiment de crise l'envelopper. Il recula sans hésiter, mais loin de se dissiper, le talisman accéléra encore davantage.
+
+Face à cette urgence, Wang Lin frappa son sac de rangement sans attendre et le Chariot de Guerre qui Tue les Dieux s'élança. Il pointa Yao Changdong du doigt puis sortit également un talisman. Copiant le geste de son adversaire, il se mordit la langue et cracha son sang essentiel.
+
+Le sang essentiel fit briller le talisman qui brûla intensément. Il entra en collision avec celui de Yao Changdong, provoquant une immense onde de choc. Le talisman de Wang Lin s'effondra immédiatement, réduit en poussière.
+
+Cependant, le talisman de Yao Changdong ne se dissipa pas totalement ; un fragment de la taille d'un ongle subsista. Il se déplaça à une vitesse incroyable et vint se loger entre les sourcils de Wang Lin.
+
+Le corps de Wang Lin trembla. Il ressentit une chaleur entre ses sourcils, comme si une flamme y brûlait. Un pouvoir de scellement inimaginable se propagea dans tout son corps avec frénésie. En un clin d'œil, son énergie originelle et son âme originelle furent totalement scellées.
+
+« Ceci... C'est le pouvoir du tatouage du Clan des Immortels Choisis ! Mais comment le tatouage du Clan des Immortels Choisis peut-il être aussi puissant ?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel !
+
+Son corps devint instantanément très faible. Si Ta Shan n'avait pas permis à Wang Lin de s'appuyer sur son bras gauche, ce dernier serait immédiatement tombé dans le vide infini.
+
+À ses côtés, le Chariot de Guerre qui Tue les Dieux se transforma en papillon. Il battait doucement des ailes, paraissant inoffensif.
+
+Yao Changdong éclata de rire. Sans énergie originelle, tous les trésors de Wang Lin avaient perdu leur efficacité et l'Invoque le Vent avait disparu. Yao Changdong forma une épée avec ses deux doigts de la main droite et chargea directement vers lui.
+
+« Un simple cultivateur Corporel Yang ose défier ma puissance ?! Xu Mu, meurs ! »
+
+Alors qu'il riait, sa vitesse était ahurissante. Ses doigts étaient imprégnés d'énergie originelle ; s'ils atteignaient Wang Lin, non seulement son corps se briserait, mais même son âme originelle serait anéantie !
+
+Juste au moment où Yao Changdong allait le percuter, le papillon battit doucement des ailes. Bien qu'il ne possédât plus l'énergie de Wang Lin, il était manifestement différent des autres trésors : une fois activé, il pouvait fonctionner de manière autonome.
+
+Le corps de Yao Changdong fut stoppé net et sa poitrine explosa, le projetant en arrière. Il parvint à se stabiliser après cent pieds, mais le papillon battit à nouveau ses ailes.
+
+Les yeux de Yao Changdong étaient emplis d'une intention meurtrière. Tandis que le papillon battait des ailes, il sortit un autre talisman. Cette fois, il ne le lança pas, mais le pressa contre ses propres sourcils.
+
+Une puissante fluctuation du pouvoir du tatouage émana du talisman et se diffusa dans le corps de Yao Changdong. Rapidement, une multitude de tatouages apparurent sur lui.
+
+Des bruits de craquement retentirent. À chaque battement d'ailes du papillon, une partie des tatouages s'effondrait. Pourtant, il continua sa charge et se rapprocha à nouveau de Wang Lin.
+
+« Je dois tuer Xu Mu. Il n'est qu'au stade Corporel Yang et il est déjà si puissant. Une fois qu'il atteindra le stade Nirvana Scryer, je ne serai plus son adversaire ! »

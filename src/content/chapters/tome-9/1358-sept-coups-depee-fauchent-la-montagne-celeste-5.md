@@ -1,0 +1,109 @@
+---
+n: 1358
+title: "Sept coups d'épée fauchent la Montagne Céleste (5)"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1358 - Seven Sword Chops the Heavenly Mountain (5)
+slug: sept-coups-depee-fauchent-la-montagne-celeste-5
+---
+Lorsque le Grand Ancien vit cela, il perdit toute contenance. Il recula plus violemment encore, et la terreur qui glaçait son regard était une émotion qu'il n'avait jamais connue de sa vie !
+
+Si les habitants du Système Stellaire Antique avaient vu le Grand Ancien du Clan du Tonnerre Dispersé — un homme qui ne s'inclinait que rarement devant les cultivateurs du troisième niveau — agir ainsi, ils en seraient restés incrédules !
+
+Alors qu'il tenait l'épée de sept pieds, Wang Lin sentait distinctement que le sixième coup était bien plus puissant que le cinquième. Il y respirait également des traces d'une rancœur monstrueuse !
+
+Cette rancœur était si intense que même Wang Lin en fut stupéfait. Il avait déjà rassemblé de la rancœur par le passé, mais cela n'était rien comparé à ce qu'il ressentait ici !
+
+À l'instant où le sixième coup apparut, le monde trembla et les pupilles de Wang Lin se rétractèrent. Il vit clairement des âmes jaillir du vide telles des filaments. Ces âmes étaient différentes des précédentes ; elles étaient imprégnées d'une haine démoniaque !
+
+En un instant, une quantité infinie d'âmes tourmentées sembla être invoquée et manifesta sa présence dans le monde ! Ces âmes révélèrent aussitôt leurs formes — hommes et femmes — affichant toutes des regards venimeux. Elles encerclèrent le sixième rayon d'énergie de l'épée pour former ce sixième coup fantomatique qui faisait trembler les cieux !
+
+C'était un coup de pure rancœur !
+
+Il était forgé par les âmes de tous les cultivateurs morts lors des tribulations divines dans les 7 Millions de Mondes. Bien qu'ils fussent décédés, leur ressentiment persistait. Au moment de leur agonie, ils avaient tout compris. Ils vouaient une haine farouche aux êtres célestes et au Royaume Céleste lui-même !
+
+À cet instant, le sixième coup réveilla toutes ces âmes qui s'étaient accumulées durant d'innombrables années. Elles allaient dévorer les êtres célestes pour venger leur sort !
+
+Lorsque Wang Lin abattit le sixième coup, le rayon d'énergie fonça sur le Grand Ancien comme s'il avait enfin trouvé un exutoire à sa souffrance. Le rayon d'énergie de l'épée descendit soudainement sur lui !
+
+Le Grand Ancien n'avait pas pu reculer suffisamment et n'eut pas le temps de lancer un sort. Gravement blessé et dépourvu de vitalité, il fut instantanément submergé par les âmes tourmentées.
+
+Il poussa un rugissement misérable alors que les âmes l'encerclaient et le dévoraient avec frénésie. En un éclair, la partie inférieure de son corps, qu'il venait à peine de régénérer, fut totalement dévorée ; même ses os brisés disparurent !
+
+Son torse fut enveloppé par cette masse infinie d'âmes rancunières. Son corps n'était plus qu'un amas sanglant et la douleur le submergea. Ses cris étaient déchirants tandis que les âmes lui arrachaient la chair.
+
+En un instant, la chair et les os du Grand Ancien furent consumés, ne laissant que son âme originelle imprégnée de tonnerre. Cependant, même son âme originelle était en train d'être dévorée.
+
+Sous l'effet de cette douleur atroce, le Grand Ancien perdit la raison. Ses rugissements de souffrance résonnèrent tandis que le tonnerre éclatait hors de lui. Il détruisait une âme tourmentée, mais d'autres prenaient immédiatement sa place. C'était comme s'ils ne lâcheraient prise qu'une fois son essence totalement dévorée !
+
+« Meurs ! Meurs ! Meurs pour ce vieil homme ! » rugit le Grand Ancien alors que la marque du clan entre ses sourcils volait en éclats. Cette fois, elle se brisa complètement, libérant une force monstrueuse qui pulvérisa instantanément toutes les âmes tourmentées !
+
+L'effondrement de la marque du clan équivalait à l'autodestruction d'un cultivateur du Royaume Intérieur ! Cependant, en raison de la nature unique des cultivateurs du Royaume Extérieur, briser leur marque ne signifiait pas une mort immédiate. Au contraire, ils gagnaient une puissance colossale pour une période limitée !
+
+À cet instant, la marque du Grand Ancien explosa et son pouvoir décupla. Il forgea un nouveau corps de pur tonnerre et balaya les âmes tourmentées. Cependant, ses yeux étaient injectés de sang et égarés par la folie alors qu'il chargeait Wang Lin.
+
+« Meurs ! Meurs ! Meurs !! Vous allez tous crever !! Je sacrifie ma vie entière, toute ma culture ! Ce vieil homme va utiliser le Sort des Trois Souffles !! Vous mourrez tous !!! »
+
+Le Sort des Trois Souffles n'était pas une technique du Clan du Tonnerre Dispersé, mais un héritage laissé par ces mystérieux cultivateurs avant leur départ. On pouvait le considérer comme un sort Dao !
+
+Il permettait d'arracher toute vitalité à l'ennemi en trois souffles, mais au prix de sa propre vie. Quiconque l'utilisait ne survivait jamais, car c'était un sort où une vie s'échangeait contre une autre !
+
+Même les cultivateurs du troisième niveau auraient eu des difficultés face à ce sort Dao. C'était la raison pour laquelle le Clan du Tonnerre Dispersé restait une grande puissance malgré l'absence de cultivateur du troisième niveau !
+
+Le Grand Ancien, devenu fou, pointa Wang Lin du doigt et poussa un cri féroce.
+
+« Sort des Trois Souffles, meurs pour moi !! »
+
+Instantanément, une aura inimaginable envahit les 7 Millions de Mondes et convergea vers Wang Lin. C'était la puissance brute d'un sort Dao !
+
+L'expression de Wang Lin changea radicalement. Il était impossible de résister ou de briser cette force qui l'atteignait déjà. Wang Lin sentit sa vitalité s'étioler, comme si on l'extrayait violemment de son corps !
+
+Un premier souffle passa rapidement. La porte du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin et le Sort du Temps Fluide s'activa.
+
+« Temps Fluide, remonte 1 000 ans !! »
+
+Tandis que le Temps Fluide agissait avec célérité, Wang Lin abattit son épée une ultime fois. Le septième coup !
+
+Le septième coup fit trembler les cieux. La longue épée quitta la main de Wang Lin pour s'élancer dans le vide ! Ce coup était si puissant qu'il provoqua l'effondrement de l'espace et le fracas des continents. Un rugissement apocalyptique se propagea à travers les 7 Millions de Mondes !
+
+L'effondrement des 7 Millions de Mondes s'étendit sans fin, entraînant la chute d'innombrables fragments. Sur ces débris se trouvaient une multitude de mortels et de cultivateurs qui donnèrent tous tout ce qu'ils possédaient !
+
+Un coup d'épée infiniment proche, dépassant même la puissance d'un cultivateur du troisième niveau, surgit soudainement !
+
+Si le Daoïste Eau devait faire face à cette attaque, il n'aurait d'autre choix que de fuir. S'il était touché, il mourrait sans l'ombre d'un doute !
+
+Malgré tous ses efforts, le Grand Ancien ne put l'éviter. Il cracha une gorgée d'énergie originelle et son corps, qu'il venait de reconstruire avec le tonnerre, explosa !
+
+Son âme originelle ne parvint pas à s'échapper avant que le rayon d'énergie ne la transperce. Dans un cri déchirant, son âme commença à se dissiper rapidement tandis qu'il tentait de battre en retraite.
+
+Voyant sa fin imminente, ses yeux s'écarquillèrent et il poussa un dernier rugissement désespéré !
+
+« Tonnerre sacré éternel, sauve-moi, sauve-moi !!! »
+
+Alors que son cri résonnait, l'éclair éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti la mort de son maître. Le tonnerre gronda avec violence et se mua en un éclair divin de plus de 100 000 pieds de long !
+
+Il chargea directement vers la tempête. La puissance du tonnerre éternel décupla et s'abattit sur l'orage. La tempête qui persistait jusqu'alors s'effondra brusquement !
+
+Des fissures lacérèrent la tempête, se multipliant jusqu'à ce qu'elle éclate et se disperse dans toutes les directions.
+
+Le Daoïste Esprit Dispersé cracha du sang et fut expulsé de sa fusion avec les 7 Millions de Mondes. L'éclair éternel fonça instantanément dans les 7 Millions de Mondes pour atteindre le Grand Ancien mourant. Il entra en collision avec l'inimaginable septième coup !
+
+Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependant, la lame elle-même était à l'intérieur et chargea l'éclair éternel !
+
+À cet instant, le Daoïste Esprit Dispersé forma un sceau et rugit :
+
+« Les 7 Millions de Mondes sont brisés et mon clan est libre. Tous mes gens, toutes les créatures, nous allons briser le Royaume Céleste ensemble !!! »
+
+Les 7 Millions de Mondes en plein effondrement se transformèrent en d'innombrables fragments. Toutes les survivantes offrirent volontairement leur vie à l'épée pour entamer leur ultime combat contre le tonnerre éternel !
+
+L'épée de sept pieds contenait toute la puissance des 7 Millions de Mondes ! Le tonnerre éternel était l'objet sacré du Clan du Tonnerre Dispersé. La confrontation de ces deux forces représentait la détermination des peuples des 7 Millions de Mondes à conquérir leur liberté !
+
+Un rugissement tonitruant résonna dans le monde entier. Ce grondement fut si puissant qu'il fit apparaître des fissures sur la barrière aux confins du monde, avant que celle-ci ne s'effondre brusquement !
+
+L'effondrement de la barrière laissa entrer le chaos, et les 7 Millions de Mondes commencèrent à se désintégrer !
+
+Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. Le tonnerre éternel sembla également avoir subi un coup terrible. Délaissant le Grand Ancien, il brisa rapidement le vide pour regagner la terre sacrée. Dès son retour dans le temple, une formation s'activa, interdisant tout accès au Clan du Tonnerre Dispersé. Elle fut déclenchée hors du contrôle du clan !
+
+« Membres restants du clan, le Royaume Céleste est ouvert. Le monde est détruit, nous partons donc vers l'extérieur ! » Le Daoïste Esprit Dispersé était transporté par une excitation monstrueuse. D'un revers de manche, il emmena toutes les vies restantes des 7 Millions de Mondes à travers la brèche laissée par le départ du tonnerre éternel !
+
+Les yeux de Wang Lin s'illuminèrent et le Fouet de l'Âme apparut soudainement. Il fonça droit sur l'âme originelle du Grand Ancien, agonisant, pour lui interdire toute résistance !

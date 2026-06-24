@@ -1,0 +1,125 @@
+---
+n: 1319
+title: Choix
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1319 - Choice
+slug: choix
+---
+Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il fixait le Maître Dao Bleu Rêve.
+
+Le Maître Dao Bleu Rêve flottait dans les airs et, d'un seul pas, atteignit le sommet de la montagne. Les mains derrière le dos, il contemplait la lueur bleue qui émanait de lui tout en attendant la réponse de Wang Lin. Le vent de la montagne faisait flotter ses cheveux bleus, et son corps dégageait une pression subtile.
+
+Lorsqu'il se tenait au sommet de la montagne, celle-ci semblait disparaître. Lorsqu'il se tenait sur cette planète de culture, la planète elle-même semblait s'effacer. Lorsqu'il se tenait dans ce monde, le monde lui-même paraissait s'incliner. Tout baissait la tête devant le Maître Dao Bleu Rêve.
+
+Lorsqu'il se tenait parmi les étoiles, toute la lumière stellaire devait l'éviter. Partout où il se trouvait, il était la montagne, il était le ciel et il était les étoiles !
+
+« La plupart de mes sorts sont de ma propre création. Il y en a neuf : six sorts célestes, trois sorts du Dao et un sort de vie et de mort. Je peux tous vous les transmettre. Êtes-vous prêt à les apprendre ? »
+
+Wang Lin resta silencieux.
+
+« J'ai les Flammes Joss de plus de 200 milliards de disciples, ainsi que ma compréhension du royaume du vide. Les voulez-vous ? »
+
+La respiration de Wang Lin devint un peu saccadée alors qu'il observait le Maître Dao Bleu Rêve, mais il ne dit toujours rien.
+
+« Je possède également cinq trésors du Dao raffinés à partir de météorites du monde extérieur. Même le Souverain les craint. Avec ces cinq trésors du Dao, le monde serait déchiré ! Les voulez-vous ? »
+
+Les yeux de Wang Lin s'illuminèrent et son souffle se fit plus lourd encore.
+
+« J'ai aussi un héritage du Dao de la troisième étape que je n'ai transmis à personne. Le voulez-vous ?
+
+Je peux également vous emmener en voyage à travers le Système Stellaire Antique et obtenir des esprits du Dao auprès des quatre autres maîtres, afin que vous puissiez acquérir les sorts les plus puissants !
+
+Je peux briser le vide pour vous et vous mener au légendaire Cimetière de l'Ordre Antique. Cela vous aidera à absorber les âmes anciennes et permettra à votre corps de Dieu Ancien d'atteindre la perfection !
+
+Il y a cinq essences dans votre corps et vous possédez un talent prodigieux. Je n'ai jamais entendu parler de quiconque capable de créer cinq essences. Je peux aider chacune de vos essences à atteindre la perfection, et lorsque vous hériterez de mon Dao, vous en aurez sept ! »
+
+La voix du Maître Dao Bleu Rêve était calme. Son regard se posa sur Wang Lin et il demanda lentement : « Voulez-vous tout cela ? »
+
+Les yeux de Wang Lin étaient injectés de sang alors qu'il fixait le Maître Dao Bleu Rêve. Le message véhiculé par ces paroles était à ébranler les cieux. Comment Wang Lin pouvait-il ne pas être tenté ?!
+
+Il l'était au plus haut point !
+
+« Vous devez avoir pris conscience du danger qui rôde hors du Clan de la Soie Bleue. Cette femme possède un soutien puissant, mais si vous devenez mon héritier, je porterai tout le danger pour vous ! Réfléchissez-y ! »
+
+« ... Les conditions !! » La voix de Wang Lin était rauque. Les paroles du Maître Dao Bleu Rêve résonnaient comme le tonnerre dans son esprit.
+
+L'expression du Maître Dao Bleu Rêve resta neutre alors qu'il soutenait le regard de Wang Lin et disait doucement : « Les conditions sont très simples ; il n'y en a que deux ! Désormais, vous ne serez plus un homme du Royaume Intérieur, mais un membre de mon Système Stellaire Antique, le jeune maître du Clan de la Soie Bleue ! Prenez le Fruit de l'Oubli du Cœur et jurez par une essence de laisser le Royaume Intérieur derrière vous !
+
+Votre corps, votre cœur, tout ce que vous êtes ne sera plus lié au Royaume Intérieur. Vous ne pourrez plus participer à la bataille entre les Royaumes Intérieur et Extérieur, et vous ne pourrez plus jamais aider le Royaume Intérieur ! »
+
+Les paroles du Maître Dao Bleu Rêve étaient comme des lames s'enfonçant dans le corps de Wang Lin, faisant trembler tout son être.
+
+« Deuxièmement, peu m'importent vos relations dans le Royaume Intérieur. Tout sera rompu ! Je n'ai qu'une seule fille. Vous et elle pourrez former un couple de culture, et elle sera votre unique compagne ! »
+
+Wang Lin ferma les yeux. La tentation du Maître Dao Bleu Rêve était la plus grande qu'il ait jamais affrontée dans sa vie. Si les conditions avaient été différentes, Wang Lin aurait très probablement accepté !
+
+Cependant, comment pouvait-il consentir aux deux conditions du Maître Dao Bleu Rêve ?
+
+Il était un membre du Royaume Intérieur ; il y était né et il y avait grandi. Si le Royaume Intérieur était une nation, il serait un traître s'il acceptait ! Les paroles des êtres célestes morts pour la Formation de l'Espace Scellé résonnaient à ses oreilles. Le sacrifice du Seigneur de l'Espace Scellé grondait dans son esprit.
+
+Il ne pouvait accepter la première condition, et encore moins la seconde. Abandonner Li Muwan revenait à abandonner son Dao, sa quête de vie et sa promesse !
+
+Il ne devait pas accepter cela !
+
+Il ouvrit les yeux. Le regard de Wang Lin était embrasé de sang lorsqu'il dit : « Je ne veux pas apprendre... »
+
+Une lueur de froideur passa dans les yeux du Maître Dao Bleu Rêve alors qu'il fixait Wang Lin.
+
+Ce que Wang Lin ignorait, c'est que bien des années auparavant, Qing Lin avait également été confrontée à cette immense tentation. Sauf que Qing Lin avait été tentée par le Souverain, tandis que Wang Lin faisait face au Maître Dao Bleu Rêve !
+
+Wang Lin baissa la tête et dit doucement : « La culture de l'Aîné est en effet puissante, mais le Junior souhaite demander si l'Aîné a quelqu'un d'autre de plus important que lui-même ! »
+
+Le Maître Dao Bleu Rêve réfléchit un instant puis répondit lentement : « Il y en a une ! »
+
+« Si l'Aîné était à ma place et devait abandonner cette personne précieuse pour obtenir la puissance, l'Aîné accepterait-il ? » Wang Lin leva la tête et regarda le Maître Dao Bleu Rêve. « De plus, si l'Aîné devait abandonner l'ensemble du Clan de la Soie Bleue, l'Aîné accepterait-il ? »
+
+Le Maître Dao Bleu Rêve ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara :
+
+« La troisième étape de la culture est appelée les quatre royaumes du vide ! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet ! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant réussi à atteindre cette quatrième étape légendaire : la Marche sur le Ciel !
+
+Même les huit concubines impériales n'ont pas atteint ce stade ! » Le Maître Dao Bleu Rêve détourna son regard de Wang Lin et parla lentement en contemplant l'horizon lointain.
+
+« J'ai deux essences dans mon corps. L'une est au stade intermédiaire du Vide Arcanique, et l'autre essence est actuellement scellée, mais elle est infiniment proche du début du Vide de la Tribulation. Lorsque les deux fusionneront, je pourrai déployer une puissance égale au sommet du stade du Vide Arcanique !
+
+Savez-vous combien de personnes comme moi existent ici, dans le Royaume Extérieur ? » demanda calmement le Maître Dao Bleu Rêve.
+
+« Sans compter les anciennes concubines impériales, il y en a au moins sept ! »
+
+« Votre Royaume Intérieur ne possède pas de Flammes Joss et il est piégé par la Formation de l'Espace Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a failli causer l'effondrement de votre Royaume ! À quoi bon vous accrocher à une cause perdue ? » Face aux paroles du Maître Dao Bleu Rêve, Wang Lin resta silencieux.
+
+Après un long moment, Wang Lin leva la tête vers le Maître Dao Bleu Rêve et dit calmement : « Si ce que l'Aîné dit est vrai, alors pourquoi le Royaume Extérieur n'a-t-il pas encore déclenché de guerre contre le Royaume Intérieur ? Pourquoi se contentent-ils d'affaiblir lentement les forces du Royaume Intérieur ? Je crains qu'il n'y ait quelque chose dans le Royaume Intérieur qui inquiète profondément l'Aîné et les autres ! »
+
+Le Maître Dao Bleu Rêve réfléchit silencieusement un instant avant de répondre calmement : « Il existe en effet une telle existence. Autrefois, un simple rugissement avait eu le pouvoir de forcer le Souverain à fuir dans la panique ! »
+
+L'esprit de Wang Lin fut secoué. Ce n'était qu'une conjecture, mais il ne s'attendait pas à entendre un tel secret de la part du Maître Dao Bleu Rêve !
+
+« Puisque votre décision est prise, je ne vous forcerai pas. Vous avez amené Yue Er ici ; ainsi, bien que je ne puisse vous transmettre mon enseignement du Dao et mes Flammes Joss, je peux vous enseigner trois sorts. Votre compréhension dépendra de vous-même ! » Le Maître Dao Bleu Rêve laissa échapper un soupir. Il appréciait Wang Lin, et tout ce qu'il avait dit était vrai, mais certaines choses ne pouvaient être imposées.
+
+En tant que l'un des cinq maîtres du Système Stellaire Antique et cultivateur de la troisième étape, il possédait sa propre fierté. Il ne voulait pas contraindre autrui !
+
+« Regardez attentivement, voici mon premier sort ! » Le Maître Dao Bleu Rêve leva sa main droite vers le ciel. Le vent rugit et les nuages tourbillonnèrent. Tout le firmament se remplit d'une lumière bleue infinie et un vortex gigantesque apparut.
+
+Tandis que le vortex grondait, l'énergie originelle convergea de toutes parts pour former rapidement un sceau colossal ! Ce sceau, constitué d'énergie originelle, ressemblait au sceau d'un empereur mortel !
+
+Lorsque le sceau s'abattit, les cieux et la terre tremblèrent. À cet instant, le ciel devint la terre et la terre devint le ciel. Les mondes furent inversés !
+
+La montagne sur laquelle se tenait Wang Lin sembla basculer. La terre devint le ciel, prenant la forme d'un cône géant suspendu dans les airs. Pourtant, ce qui était étrange, c'est qu'aucune pierre ne tomba ; ce n'était qu'une sensation éprouvée par Wang Lin. Son esprit vacillait alors qu'une force indescriptible emplissait le monde.
+
+Sous ses pieds s'étendait un ciel baigné de lumière bleue. Les nuages et le soleil étaient inversés, et seul le Maître Dao Bleu Rêve demeurait debout !
+
+« Ce sort s'appelle le Sceau de l'Inversion Céleste ! Qu'est-ce que l'inversion céleste ? À mon sens, c'est retourner le ciel pour en faire la terre ! La terre qui est devenue le ciel sera le sceau le plus puissant ! » Le Maître Dao Bleu Rêve agita sa main droite et la terre, transformée en ciel, s'abattit avec fracas vers les hauteurs !
+
+L'esprit de Wang Lin trembla face à ce spectacle, laissant paraître une incrédulité totale. Il n'aurait jamais imaginé qu'un tel sort puisse exister. Ce sort était d'une puissance extrême et, s'il était utilisé dans l'espace, il pourrait massacrer toute vie !
+
+« Si vous voulez l'utiliser dans l'espace, vous devrez contenir un monde dans votre cœur ! » Le Maître Dao Bleu Rêve leva sa main droite et le temps sembla refluer. Tout revint à la normale en un instant. Le ciel redevint le ciel et la terre redevint la terre !
+
+« Qu'est-ce qui est le plus abondant dans l'espace ? Ce ne sont ni les hommes, ni les esprits, ni les sorts, ni l'énergie originelle. À mon avis, c'est la lumière ! La chose la plus abondante en ce monde est la lumière ! La lumière est partout, et il n'est point de lieu sans elle ! Le Sceau de l'Inversion Céleste est un sort d'attaque ; mon second sort est un sort défensif. Regardez attentivement ! » Le Maître Dao Bleu Rêve ne laissa pas à Wang Lin le temps de digérer avant de lever à nouveau sa main droite.
+
+Dès qu'il leva la main, tout ce qui existait dans le monde émit une lumière infinie. Une clarté éclatante émanait même de l'espace lointain.
+
+Cette lumière sans fin surgit instantanément, secouant les cieux alors qu'elle enveloppait le Maître Dao Bleu Rêve. À cet instant, il sembla devenir la source de toute lumière au monde. Même Wang Lin sentit qu'il ne pouvait plus ouvrir les yeux sous l'intensité de la douleur.
+
+Une ombre gigantesque apparut autour du Maître Dao Bleu Rêve. Elle était aussi haute que les cieux !
+
+« Bien que ce sort ne soit pas un sort du Dao, c'est une technique que j'ai comprise lors de mon stade de Vide de l'Esprit. Si vous parvenez à l'apprendre, vous aurez la capacité de vous protéger dans le Système Stellaire Antique ! Quant au dernier sort que je vais vous enseigner, c'est celui que j'ai compris au sommet du stade du Vide de l'Esprit ; c'est l'un de mes trois grands sorts ! »

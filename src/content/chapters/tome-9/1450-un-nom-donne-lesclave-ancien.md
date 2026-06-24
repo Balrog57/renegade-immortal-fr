@@ -1,0 +1,111 @@
+---
+n: 1450
+title: "Un nom donné : l'Esclave Ancien !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1450 - Given the Name Ancient Slave!"
+slug: un-nom-donne-lesclave-ancien
+---
+Chapitre 1450 - Un nom donné : l'Esclave Ancien !
+
+L'estimé Ling Dong, qui gisait là, ouvrit soudain les yeux, révélant une expression hideuse. Il se redressa pour s'asseoir. Ses yeux sombres fixaient l'horizon et semblaient capables de percer le Fourneau Impérial pour voir Wang Lin en train de procéder au raffinage à l'extérieur. Cependant, il n'était plus qu'une lampe à huile vide.
+
+« Pour que ce vieil homme finisse dans un état aussi lamentable, tu ne peux pas être un inconnu. Qui es-tu ? » Une voix rauque s'échappa de la gorge de Ling Dong, trahissant une haine monstrueuse.
+
+L'expression de Wang Lin resta calme ; sa seule réponse fut d'injecter davantage de son pouvoir de Dieu Ancien dans le Fourneau Impérial. La puissance de raffinage du fourneau déferla, et des cris déchirants résonnèrent alors à l'intérieur.
+
+« Tu veux me raffiner ? C'est impossible ! Bien que ce vieil homme ait été gravement blessé par toi, j'ai cultivé durant d'innombrables années. Mon cœur de Dao est inébranlable, il t'est donc impossible de me raffiner ! » ricana l'estimé Ling Dong. Voyant que Wang Lin ne répondait pas, il ferma les yeux pour entamer sa guérison.
+
+Il en conclut que Wang Lin ne pourrait le raffiner en peu de temps. Dès qu'il aurait recouvré une partie de ses forces, il pourrait briser ce fourneau étrange et s'échapper. En effet, Wang Lin n'avait pas le niveau de culture nécessaire pour raffiner un cultivateur du troisième pas. Même avec le Fourneau Impérial, cela prendrait un temps dont il ne disposait pas dans la Tombe de l'Ordre Antique.
+
+« Je ne peux pas te raffiner... » Un soupçon de moquerie brilla dans les yeux de Wang Lin, puis il injecta une quantité encore plus massive de pouvoir de Dieu Ancien dans le Fourneau Impérial. De nouvelles âmes apparurent à l'intérieur du fourneau jusqu'à former une tempête. Tandis que la tempête d'âmes hurlait, elle se mua soudainement en une ombre gigantesque. C'était l'ombre d'un Dieu Ancien. Cette entité était extrêmement bizarre : elle était rouge et brandissait une hache monumentale. Elle leva son arme et s'abattit sur l'estimé Ling Dong.
+
+Les yeux de Wang Lin s'illuminèrent et il commença à psalmodier dans la langue des Dieux Anciens : « Fourneau Impérial, dix coups pour raffiner l'esclave ! » Des empreintes illusoires apparurent et se fixèrent sur le Fourneau Impérial.
+
+Des grondements tonitruants firent vibrer l'intérieur du fourneau. Le Dieu Ancien rouge abattit sa hache de la main droite. L'arme perça la tempête et fondit sur la tête de Ling Dong.
+
+« Ce vieil homme veut voir comment tu comptes me raffiner ! » L'expression de Ling Dong changea brusquement et ses yeux s'ouvrirent. Il leva les yeux vers la hache et poussa un rugissement. Ses mains formèrent un sceau, et le fantôme d'une statue gigantesque apparut devant lui. Cette statue était identique au Dieu Démon qu'il avait invoqué précédemment.
+
+En un instant, la hache percuta la lumière spectrale de la statue. Un fracas assourdissant retentit, puis la hache se dissipa et la statue s'effondra.
+
+Ling Dong cracha du sang. Au moment même où il le rejetait, ce sang se mua en une statue qui l'enveloppa.
+
+Le visage de Wang Lin pâlit légèrement et une lueur froide traversa son regard. Sans hésiter, il pointa le Fourneau Impérial. Une autre hache apparut dans la main du Dieu Ancien et s'abattit. Avant même que la seconde hache ne frappe, d'autres âmes se rassemblèrent pour former un autre Dieu Ancien. Ce second dieu tenait également une hache dans sa main droite et frappa de nouveau. Le processus ne s'arrêta pas là ; les âmes se condensèrent frénétiquement jusqu'à ce que le troisième, quatrième, cinquième, sixième, septième et huitième Dieux Anciens se forment. Les huit Dieux Anciens frappèrent tous simultanément avec leurs haches. Les coups semblaient ne former qu'une seule frappe, laissant derrière eux des images rémanentes alors qu'ils descendaient vers Ling Dong. « Raffine-le pour moi ! » rugit Wang Lin, une intention meurtrière brillant dans ses yeux.
+
+Des grondements tonitruants résonnèrent follement à l'intérieur du Fourneau Impérial. La statue entourant Ling Dong fut frappée par la première hache. Elle trembla violemment mais ne se dissipa pas.
+
+La deuxième hache descendit rapidement.
+
+Troisième, quatrième... jusqu'à ce que la huitième hache s'abatte comme si elles avaient toutes fusionné en une seule. La statue ne put résister à l'onde de choc monstrueuse et vola en éclats. L'énergie résiduelle perça les débris de la statue pour frapper directement Ling Dong.
+
+L'impact atteignit la tête de Ling Dong à une vitesse inimaginable et pénétra le sol sans aucune hésitation.
+
+Le Fourneau Impérial tout entier trembla et Ling Dong cracha du sang. Un bref instant de confusion passa dans ses yeux.
+
+Wang Lin attendait ce moment précis. Dès que cette confusion apparut, une lueur étrange brilla dans les yeux de Wang Lin. Sa main forma un sceau, puis il pointa entre ses sourcils en murmurant : « Sortilège de Dao, le Dao du Rêve ! »
+
+À l'intérieur du Fourneau Impérial, le corps de Ling Dong trembla et la confusion dans son regard s'intensifia. Les souvenirs de toute sa vie défilèrent devant ses yeux.
+
+« Ton talent est excellent, je vais donc t'intégrer au Clan Ling Dong. Si tu parviens à accomplir de grandes choses, ce sera grâce à ta propre chance ! Souviens-toi de mon nom : mon nom est Wang Lin ! » La silhouette vague d'un jeune homme s'adressait à un adolescent agenouillé devant lui.
+
+« Je me souviendrai de ce nom toute ma vie ! » Les yeux de l'adolescent étaient empreints de détermination et de gratitude.
+
+« Bien que tu ne sois pas un membre de mon Clan Ling Dong, tu lui es fidèle et tu possèdes un grand talent. Ce vieil homme va te donner sa marque de clan... Prends soin de toi ! » L'homme vêtu de noir était livide, un trou sanglant béant dans la poitrine. Ses blessures étaient si graves que même son âme originelle s'était effondrée ; il était à l'agonie.
+
+Devant lui agenouillé se trouvait un homme d'âge moyen. Cet homme était Ling Dong.
+
+« Le vrai nom de Maître est... Wang Lin ! »
+
+« Wang Lin... » L'homme fut stupéfait. Ce nom lui était familier.
+
+Dans le Système des Étoiles Anciennes, un vieil homme fuyait précipitamment. Son visage était pâle et il crachait du sang. Trois personnes le poursuivaient.
+
+« Est-il possible que moi, Ling Dong, je meure ici aujourd'hui ? » Le désespoir se lisait dans les yeux du vieillard.
+
+Les trois poursuivants se rapprochèrent soudainement, leurs sorts se transformant en trois dragons. Alors que les créatures approchaient, le vieil homme afficha un sourire misérable. Il avait décidé de s'autodétruire pour les emporter avec lui.
+
+À cet instant précis, une douce lumière apparut dans le vide et balaya les trois poursuivants. Ces derniers crachèrent du sang et reculèrent, terrifiés.
+
+« La personne qui vous a sauvés est Wang Lin ! »
+
+Le vieil homme venait d'échapper aux griffes de la mort, mais en entendant ce nom, ses yeux se remplirent de peur et de confusion.
+
+« Encore... C'est encore Wang Lin... »
+
+Après un temps indéterminé, un vieillard aux cheveux blancs se trouvait au sein du Clan Ling Dong. Il était totalement décrépit et atteignait l'heure de sa mort.
+
+« L'Affliction du Cinquième Ciel... L'Affliction du Cinquième Ciel... Ma culture s'arrête-t-elle donc ici ? » Le vieil homme esquissa un sourire amer alors que la dernière gorgée de sang noir s'échappait de sa bouche, puis il ferma les yeux.
+
+Cependant, au moment où il ferma les paupières, il sembla pénétrer dans un monde étrange. Cet endroit était d'un flou absolu ; il ne percevait rien, si ce n'est le dos d'une silhouette qui lui paraissait limpide.
+
+« Deviens mon esclave et je laisserai ton Dao s'accomplir ! » Une voix froide résonna.
+
+« Qui êtes-vous ? » Les yeux du vieil homme se plissèrent.
+
+« Wang Lin ! » La silhouette se retourna, révélant un regard semblable à des éclairs. L'apparence était celle de Wang Lin. L'esprit du vieillard trembla. Avec sa force mentale, il n'aurait normalement pas été ébranlé, mais le nom de « Wang Lin » l'avait accompagné toute sa vie, dès son entrée dans le Clan Ling Dong. Son mentor bienfaiteur, celui qui lui avait donné sa marque de clan, avait dit s'appeler Wang Lin.
+
+Chaque fois qu'il faisait face à un danger mortel, quelqu'un se faisant appeler Wang Lin venait le secourir. Tout cela ressemblait à un rêve. « Si tu acceptes, tu ne seras plus Ling Dong ; ton nouveau nom sera l'Esclave Ancien ! »
+
+À l'instant où cette voix résonna, le monde flou s'effondra en d'innombrables fragments. Cela déchira tous les souvenirs de Ling Dong. À l'intérieur du Fourneau Impérial, son corps trembla et il reprit ses esprits.
+
+Toutefois, bien qu'il fût lucide, la confusion persistait dans ses yeux.
+
+Dès qu'il retrouva la conscience dans le fourneau, les huit Dieux Anciens se superposèrent pour ne former qu'un neuvième Dieu Ancien. La dixième hache s'abattit alors vers le vénérable Ling Dong. À moins de trente mètres, il lutta contre la confusion et s'apprêta à résister.
+
+Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Impérial : « Es-tu Ling Dong ou l'Esclave Ancien... » Le vénérable Ling Dong frémit. Une peur infinie envahit son regard et il rugit : « Qui diable es-tu ?! »
+
+« Je suis Wang Lin ! » Wang Lin était épuisé à l'extérieur du Fourneau Impérial. Sa voix résonna lentement dans le fourneau, se transformant en un tonnerre incessant dans l'esprit de Ling Dong. Il n'entendit que le nom « Wang Lin » au moment où la hache frappa son crâne. L'arme se mua en une empreinte circulaire sur son front... Puis ses yeux s'éteignirent et il s'effondra. La tempête d'âmes l'emporta.
+
+À l'extérieur du Fourneau Impérial, Wang Lin était encore plus exténué, mais une pointe de joie brillait dans ses yeux. Il prit une profonde inspiration. Grâce au Fourneau Impérial, il avait utilisé son Dao du Rêve pour troubler l'esprit de Ling Dong, lui permettant ainsi de marquer l'homme. Néanmoins, il devrait encore procéder au raffinage pendant un certain temps et ajouter de nombreuses restrictions avant que Ling Dong ne soit utilisable.
+
+« Malheureusement, il reste encore beaucoup d'inconvénients... Mais le temps presse, c'est tout ce que je peux faire. » Les yeux de Wang Lin s'illuminèrent et l'univers à l'intérieur du Fourneau Impérial commença à changer. Il était rempli de nuages qui se dissipèrent rapidement pour révéler un autre monde. L'esprit de Dao que Wang Lin avait scellé ici rugissait sans cesse, son corps étant enveloppé de flammes. Ses blessures guérissaient à une vitesse fulgurante.
+
+En voyant cela, il ne faudrait pas longtemps pour qu'il retrouve son état initial. Wang Lin ne savait pas exactement ce qu'était un esprit de Dao ; c'était la première fois qu'il voyait une telle chose. Constatant la rapidité de sa régénération, les yeux de Wang Lin se plissèrent.
+
+« Je veux voir précisément ce qu'est cet esprit de Dao ! » La main de Wang Lin forma un sceau, puis il fit un geste de la main. Une porte de pierre apparut à l'intérieur du Fourneau Impérial. C'était la porte de pierre du Royaume Céleste du Vent. Il s'agissait de son sort original : le Temps Fluide !
+
+Le temps remonta et Wang Lin put voir clairement l'esprit de Dao derrière la porte, comme si des couches de mystère étaient progressivement dépouillées.
+
+Un instant plus tard, l'expression de Wang Lin changea et il se redressa. Instinctivement, il fit quelques pas en arrière.
+
+« Ceci... ceci est... impossible !! »

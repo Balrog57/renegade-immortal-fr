@@ -1,0 +1,111 @@
+---
+n: 926
+title: "L'autodestruction d'un démon géant de 10 000 pieds"
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 926 - Self-collapse of a 10,000 Foot Giant Demon
+slug: lautodestruction-dun-demon-geant-de-10-000-pieds
+---
+Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blanche s'élancèrent vers les Lou Fu. Bien que ces derniers exercent une grande influence sur les cultivateurs de l'Alliance, ils n'affectèrent pas ces deux individus ; au contraire, ils leur apportèrent une aide précieuse en se précipitant pour les protéger à l'aide de leurs sorts.
+
+Li Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
+
+À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur d'Allheaven plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
+
+Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang ; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Nirvana Scryer.
+
+Grâce à la robustesse de son corps, il ne craignait guère la plupart des trésors magiques. En ce moment même, le géant chargeait droit sur Li Yunzi, qui se trouvait sur le bois géant. Les yeux du colosse étaient voilés et une lueur de folie y brillait.
+
+« Il veut s'autodétruire ! » Une voix mélodieuse apparut à l'oreille de Wang Lin. C'était la femme en robe de palais qui s'exprima alors que le géant approchait à une vitesse fulgurante.
+
+Wang Lin hocha la tête et observa l'âme originelle de Li Yunzi. Celle-ci était en pleine récupération pour invoquer une autre silhouette de sang. Li Yunzi ne pouvait être dérangé pour l'instant.
+
+Toutefois, Wang Lin ne croyait pas que Li Yunzi manqué de ressources, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement : « Laisse-moi faire ! »
+
+Sur ces mots, il fit un pas et chargea droit vers le géant.
+
+La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin : « Cher compagnon de culture Xu, soyez prudent. »
+
+Lorsque Wang Lin quitta le bois géant et sortit de sa zone d'influence, il fut assailli par le chaos des batailles environnantes. À mesure que le membre du clan des Démons Géants approchait, il pouvait entendre les détonations soniques provoquées par sa charge.
+
+Le démon chargeait, gagnant en vitesse à chaque instant. Une aura destructrice émanait de son corps et, en un éclair, le géant fut sur lui. Sa main droite se serra en un poing et, tout en lançant son coup, il hurla : « Reculez ! »
+
+Le poing arriva, créant un souffle de vent qui balaya Wang Lin. Bien que cette rafale fût puissante, elle ne fit pas reculer Wang Lin d'un demi-pas. L'expression glaciale au visage, il lança lui aussi un coup de poing.
+
+La scène était d'une étrangeté absolue. Le poing du géant de 10 000 pieds était d'une démesure incomparable, tandis que Wang Lin n'était qu'une fourmi insignifiante. Son propre poing semblait encore plus dérisoire.
+
+Pourtant, lorsque les deux poings se rejoignirent, un grondement tonitruant retentit, de plus en plus intense. C'était comme si tous les sons précédents n'avaient été que des préludes à la collision de ces deux membres !
+
+À mesure que les poings se rapprochaient, le fracas du tonnerre sembla occulter tout autre bruit. Les cultivateurs environnants ne percevaient plus qu'un bourdonnement infini résonnant dans leurs oreilles.
+
+Le temps parut ralentir alors que les deux poings convergeaient. Puis, en un instant unique, ils se percutèrent dans un fracas de tonnerre !
+
+Le son fut si violent qu'il fit trembler les innombrables cultivateurs aux alentours et créa une onde de choc invisible se propageant dans toutes les directions.
+
+De nombreux combattants furent interrompus dans leurs duels et battirent en retraite, observant avec terreur l'affrontement entre Wang Lin et le géant.
+
+Le corps du colosse trembla violemment sous la force inimaginable émanant du minuscule poing de son adversaire. Il cracha une bouffée de sang et des craquements sinistres résonnèrent dans son membre ; un instant plus tard, son poing droit explosa dans un amas de chair et de sang.
+
+Après avoir poussé un cri déchirant, le géant ne put résister à la puissance de l'autre et fut repoussé.
+
+L'effondrement de son corps ne s'arrêta pas là. Bien qu'il fût issu du clan des Démons Géants, il ne pouvait supporter le pouvoir de l'Ancien Dieu de Wang Lin. Non seulement son bras droit se désintégra, mais une grande partie de son torse fut également pulvérisée.
+
+La folie dans les yeux du démon s'intensifia. Il poussa un rugissement, une aura destructrice déferla de l'intérieur de son corps et, à cet instant précis, il explosa !
+
+L'autodestruction d'un cultivateur Corporel Yang au sommet était extrêmement puissante, d'autant plus que l'individu possédait le corps d'un Démon Géant. Cette puissance fut suffisante pour faire froncer les sourcils de Wang Lin.
+
+Le visage de Wang Lin devint légèrement rouge et son regard se fit plus glacial encore. Il cracha délibérément un peu de sang pour ne pas éveiller trop de soupçons, puis sa main droite traça un sceau en criant : « Invoquez le Vent ! »
+
+À la suite de cet ordre, un vent noir apparut dans la main droite de Wang Lin et se mua en deux dragons noirs. Les dragons s'élancèrent et, tout en dévorant, ils recrachèrent des rafales d'air glacial capables d'éteindre toute vie.
+
+L'invocation « Invoquez le Vent » était d'une force redoutable ; sous l'impact des dragons noirs, le corps du géant fut instantanément projeté très loin. Les deux dragons dévorèrent une partie du corps du colosse, ce qui affaiblit considérablement la puissance de son autodestruction.
+
+Boum !
+
+Après une explosion fracassante, le membre du clan des Démons Géants vola en éclats, provoquant un impact incommensurable. Cela attira l'attention des cultivateurs environnants ; même les vieux monstres engagés dans les combats ne purent s'empêcher de jeter un regard.
+
+Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du clan des Démons Géants de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu !
+
+La femme en robe de palais sur le bois géant sourit : « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet d'accroître instantanément la puissance de votre corps est particulièrement impressionnant. »
+
+Li Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa l'un des Parchemins de Bataille et y injecta son Sens Divin.
+
+Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité semblait porter un sort de sang capable d'inverser le ciel. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang, ainsi que le vieillard en robe noire et le jeune homme en blanc.
+
+Au loin, la femme en robe bleue fronça davantage les sourcils. De sa main semblable au jade, elle désigna deux autres géants de 10 000 pieds qui s'élancèrent. L'un d'eux se dirigea droit vers le Lou Fu.
+
+L'autre chargea directement vers le bois géant ! Alors que ce membre du clan des Démons Géants approchait, le vieil homme sur la planète de culture s'éleva dans les airs. Ses mains formèrent un sceau et il pressa la paume vers le bas !
+
+La planète de culture située entre le vieil homme et le démon commença soudainement à pivoter en émettant des ondulations. Le vieillard entama une incantation, ses yeux brillant d'une lueur intense. Puis, d'un geste sec, il cria : « Fluctuation planétaire ! »
+
+Après cet ordre, la planète de culture s'éleva et tourna avec une célérité accrue. Cependant, au fur et à mesure de sa rotation, elle commença à rétrécir jusqu'à n'atteindre que la moitié de sa taille initiale.
+
+Simultanément, une onde rouge écarlate se propagea depuis la planète. Sous le contrôle du vieil homme, elle s'étendit vers l'avant à une vitesse prodigieuse.
+
+Cette onde était trop rapide. En se propageant, elle affecta plusieurs cultivateurs d'Allheaven qui commencèrent à trembler ; en un instant, leurs corps entiers, ainsi que leurs sacs de rangement, s'effondrèrent.
+
+L'onde fonça droit sur le bois géant. L'expression de Wang Lin changea, et Li Yunzi ouvrit les yeux pour hurler : « Xu Mu, Zi Yan, éparpillez-vous rapidement ! Occupez-vous de vos affaires et ne vous souciez plus de protéger ce vieil homme ! »
+
+Même sans l'ordre de Li Yunzi, Wang Lin s'était déjà mis en mouvement dès que celui-ci eut parlé. Il quitta le bois géant et s'éloigna promptement grâce à une téléportation.
+
+La femme en robe de palais fit de même et disparut rapidement.
+
+À peine étaient-ils partis que l'onde rouge écarlate atteignit sa cible. L'âme originelle de Li Yunzi enveloppa son corps pour former un sceau. À cet instant, son âme originelle et son corps disparurent dans le bois géant.
+
+L'onde écarlate percuta le bois géant et balaya toute sa longueur.
+
+Wang Lin esquiva l'onde de loin. Cependant, tout autour de lui, c'était le chaos total. Au moment où il réapparut, une épée lancée par un cultivateur de l'Alliance fendit l'air vers lui.
+
+Une lueur glaciale passa dans les yeux de Wang Lin ; il ne prit même pas la peine d'esquiver. L'épée frappa son corps avant de rebondir. Il se retourna alors et pointa du doigt.
+
+Ce geste concentrait l'énergie originelle et la puissance d'un Ancien Dieu. L'attaque atteignit directement l'assaillant. La terreur envahit les yeux de cet homme qui, alors qu'il tentait de battre en retraite, vit une immense brume de sang exploser de son corps. Son âme originelle s'enfuit en panique, mais un autre cultivateur d'Allheaven la saisit et la broya sur-le-champ.
+
+Le cultivateur d'Allheaven fixait Wang Lin avec une intention meurtrière évidente. Il se lécha les lèvres et dit d'une voix rauque : « Xu Mu, pourquoi ne pas nous mesurer à nouveau ? Voyons qui en tuera le plus ! »
+
+Ce cultivateur d'Allheaven n'était autre que le Vice-Céleste du Tonnerre, Xu Ting !
+
+L'expression de Wang Lin resta impassible tandis qu'il répondait calmement : « Si tu veux vraiment comparer, pourquoi ne pas voir qui parviendra à tuer cette femme ? » Tout en parlant, il désigna la femme en robe bleue.
+
+Xu Ting fut déconcerté et son expression devint incertaine. Serrant les dents, il déclara : « Très bien, relevons ce défi ! Nous massacrerons tout sur notre passage jusqu'à elle, et nous verrons qui réussira ! »
+
+La femme jouissait manifestement d'un rang très élevé, sans quoi elle ne dirigerait pas cette bataille. Pourtant, sa culture ne semblait pas si élevée, se situant seulement au milieu du stade Nirvana Scryer.

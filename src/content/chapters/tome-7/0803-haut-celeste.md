@@ -1,0 +1,89 @@
+---
+n: 803
+title: Haut Céleste
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 803 - Upper Celestial
+slug: haut-celeste
+---
+Les yeux de Wang Lin s'illuminèrent. L'homme ne possédait aucune énergie spirituelle, il n'était donc même pas question d'énergie spirituelle céleste. Cependant, il était pourtant capable de voler, ce qui prouvait qu'il n'était manifestement pas un être ordinaire.
+
+Plus important encore, le tatouage sur le visage de l'homme était très familier à Wang Lin. En voyant l'individu battre en retraite, Wang Lin réfléchit un instant avant de se lancer à sa poursuite.
+
+Alors que Wang Lin chargeait, la fissure derrière lui se referma complètement.
+
+La terreur dans les yeux de l'homme s'intensifia. Le tatouage sur son visage se mit à bouger et s'étira jusqu'entre ses sourcils. Bientôt, une plante à sept feuilles apparut au milieu de son front.
+
+Lorsque les feuilles de la plante se déployèrent, une force mystérieuse envahit instantanément le corps de l'homme. Sa vitesse augmenta soudainement et il disparut en un éclair.
+
+En voyant cela, les yeux de Wang Lin s'écarquillèrent, brillant d'une lueur vive.
+
+« Le Clan des Immortels Délaissés ! »
+
+Il accéléra encore davantage, puis sa main droite traça un sceau tandis que l'énergie originelle à l'intérieur de son corps s'agita. Sa main frappa le vide, provoquant la diffusion de l'énergie originelle dans le néant. Les énormes fluctuations d'énergie originelle firent tordre le vide devant lui, et l'homme qui tentait de se téléporter réapparut instantanément.
+
+Ses yeux étaient empreints de confusion, mais bientôt ses pupilles se rétractèrent, envahies par la peur. Wang Lin s'avança vers lui et plongea son regard dans le sien.
+
+Le corps de l'homme trembla et il laissa échapper un cri avant de tenter de reculer une fois de plus. Wang Lin fronça les sourcils et tendit sa main droite. Le corps de l'homme se raidit aussitôt, comme si une main invisible le saisissait pour le traîner violemment vers Wang Lin.
+
+Alors qu'il tenait le prisonnier, Wang Lin s'apprêtait à l'interroger quand son expression changea soudainement et qu'il se retourna. Il vit plus de cent rayons de lumière aux couleurs variées, dégageant une aura terrifiante, fondre sur lui.
+
+En un instant, les rayons de lumière convergèrent et s'arrêtèrent à mille pieds de Wang Lin. Les lueurs se dissipèrent, révélant des silhouettes vêtues d'habits grossiers, semblables à l'homme qu'il venait de capturer.
+
+Il n'y avait aucune femme parmi eux, et la plupart étaient d'âge mûr. Tous fixaient Wang Lin avec une peur dissimulée dans le regard.
+
+Des marques de tatouage ornaient leurs visages et leurs membres. Les plus notables étaient ces plantes qui scintillaient entre leurs sourcils. Cependant, les feuilles étaient contractées, il ne pouvait donc pas compter combien chaque individu en possédait.
+
+Un vieil homme s'avança de la foule. Il avait une chevelure blanche et le visage profondément ridé. Ses yeux brillaient d'un mélange d'admiration et d'une pointe d'excitation alors qu'il observait Wang Lin, scrutant sa main droite.
+
+« Que vient faire un Haut Céleste ici ? » Son regard était empreint de respect tandis qu'il fixait le Tatouage de l'Os de la Bête sur la main droite de Wang Lin.
+
+Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d'un millénaire de culture, il pouvait maintenir une expression calme même face à la stupéfaction. Pour l'instant, il ne laissa paraître le moindre signe de choc.
+
+Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan des Immortels Délaissés, la portée était tout autre !
+
+Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon de la Collection, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
+
+Le regard de Wang Lin demeura serein lorsqu'il demanda lentement : « Vous pouvez percevoir mon niveau de culture ? »
+
+Le vieil homme hocha la tête en fixant la main droite de Wang Lin. L'excitation dans ses yeux s'intensifia lorsqu'il répondit : « Un Haut Céleste de rang 8. Ce humble serviteur peut reconnaître votre culture. »
+
+Wang Lin réfléchit silencieusement tout en observant le vieillard. L'autre se qualifiait de « humble serviteur » et ne cessait de fixer sa main droite. Wang Lin trouva cela étrange et, face à l'exaltation de son interlocuteur, une idée audacieuse germa dans son esprit.
+
+« Se pourrait-il que... ces gens ignorent que le Royaume Céleste s'est effondré ? Si tel est le cas, ils doivent vivre ici depuis des éons ! »
+
+Après mûre réflexion, les yeux de Wang Lin s'illuminèrent et il demanda avec lenteur : « Depuis combien de temps aucun Céleste n'est-il venu ? »
+
+L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement : « Cela fait une éternité que le dernier jade céleste n'a été envoyé par le Roi Céleste Carefree. Quant à la durée exacte, ce humble serviteur est incapable de la calculer. »
+
+« Carefree... » Wang Lin comprit soudain pourquoi le vieil homme ne quittait pas sa main droite du regard. Il leva cette main pour exposer pleinement le Tatouage de l'Os de la Bête, fixa le vieillard et demanda : « Connaissez-vous ceci ? »
+
+Les yeux du vieil homme s'emplirent d'exaltation lorsqu'il déclara respectueusement : « C'est le trésor du Roi Céleste Carefree, la Paire de Dao Flétrie. Je la reconnais naturellement. Si vous la possédez, c'est que vous êtes un proche du Roi Céleste Carefree. Êtes-vous venu pour le Fourneau Yin Mystérieux ? »
+
+Wang Lin regarda le vieil homme sans répondre. Son regard se porta vers le continent situé derrière l'homme.
+
+Le vieillard dit avec déférence : « Ce vieux serviteur est impoli. Ô Céleste, je vous en prie, suivez-moi. Les Fruits de l'Esprit Céleste ont mûri il y a longtemps. Je vais ordonner à quelqu'un de vous en apporter pour que vous puissiez en goûter la saveur. »
+
+Sous la conduite du vieil homme, Wang Lin suivit silencieusement. Quant au reste du Clan des Immortels Délaissés, ils traînaient derrière eux, comme s'ils craignaient de s'approcher trop près.
+
+L'homme capturé par Wang Lin retrouva sa liberté une fois que celui-ci relâcha son sortilège. Son regard vers Wang Lin était chargé de terreur.
+
+Guidé par le vieillard, Wang Lin se rapprocha progressivement du continent. Un instant plus tard, il survolait la contrée, qui s'étalait sous ses yeux comme une vaste plaine verdoyante.
+
+Son regard ne pouvait en voir l'extrémité, mais le parfum de l'herbe porté par le vent était des plus apaisants. Le vieil homme ne marqua pas de pause et continuait d'ouvrir la voie avec respect.
+
+Au centre de la plaine se dressait un groupe de bâtiments très anciens. Bien qu'ils ne fussent pas en ruines, ils dégageaient une aura d'antiquité profonde.
+
+Cette aura était très ténue, mais ayant acquis une certaine compréhension du sort d'extraction de l'âme, Wang Lin était devenu sensible à ce genre de vibrations. Ses yeux s'illuminèrent ; il cessa de voler et regarda vers le bas.
+
+L'herbe ici ne différait pas de celle de l'extérieur. Cependant, les connaissances de Wang Lin sur les restrictions avaient considérablement progressé grâce à ses expériences dans le Royaume Céleste du Tonnerre et aux enseignements de Li Yuan. En particulier, sa compréhension des restrictions célestes s'était grandement affinée.
+
+À cet instant précis, il put immédiatement déceler une immense restriction entourant les bâtiments.
+
+Le vieil homme remarqua le regard de Wang Lin et dit respectueusement : « Haut Céleste, cette formation a été placée personnellement par le Roi Céleste pour protéger mon clan des attaques des bêtes de brume. »
+
+Wang Lin ignorait ce qu'étaient les bêtes de brume et se contenta d'un signe de tête silencieux. Toutefois, dans son for intérieur, il était très intrigué par cet endroit.
+
+« Maître Carefree, le Clan des Immortels Choisis et le Fourneau Yin Mystérieux... Que cache donc réellement ce lieu ? »
+
+Alors que Wang Lin était plongé dans ses pensées, un bruit parvint du lointain.

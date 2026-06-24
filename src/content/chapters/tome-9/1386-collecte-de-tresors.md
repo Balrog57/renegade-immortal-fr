@@ -1,0 +1,103 @@
+---
+n: 1386
+title: Collecte de trésors
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1386 - Collecting Treasure
+slug: collecte-de-tresors
+---
+Wang Lin n'aurait jamais pensé revoir Greed dans le Système Stellaire Antique ! Dans ses souvenirs, Greed aurait dû mourir face au Serpent Moongazer !
+
+Dès que Wang Lin aperçut Greed, même avec sa force mentale, il en fut stupéfait un instant.
+
+Lorsqu'il regarda à nouveau, Greed s'était déjà échappé sans laisser de trace, laissant derrière lui mille cultivateurs abasourdis.
+
+Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Greed de briser la Formation du Royaume Scellé avec son niveau de culture, et pourtant il était là !
+
+La vitesse de Greed était également extrêmement rapide, ce qui surprit même Wang Lin. En un clin d'œil, il s'était déjà échappé de la planète, n'ayant même pas eu le temps de ranger ses trésors.
+
+Le gigantesque arbre formé par la forêt restait là, immobile. Après avoir perdu le contrôle de Greed, il ne possédait plus aucun pouvoir destructeur.
+
+À côté du géant végétal se trouvait également un immense fourneau. Il dégageait une aura antique ; on pouvait ressentir sa puissance terrifiante sans même s'en approcher.
+
+De l'autre côté se trouvait aussi une lance faite de brume. Elle n'avait pas encore complètement pris forme, oscillant entre la lance et la brume. Elle changeait d'état au moins cent fois en un seul souffle.
+
+Il restait également neuf tablettes de pierre géantes qui semblaient former une formation. Elles émanaient une lumière fantomatique et constituaient une puissante protection. Il y avait aussi 99 épées volantes qui tourbillonnaient dans la zone. Les hurlements de leur énergie d'épée donnaient l'impression que d'innombrables dragons circulaient dans les airs.
+
+Le regard de Wang Lin balaya tous ces trésors. Il prit une profonde inspiration et ses pupilles se rétractèrent.
+
+« Ce Greed... Je ne l'ai pas vu depuis tant d'années, et il a accumulé tellement de trésors incroyables ! » Wang Lin ne daigna même pas regarder les mille cultivateurs avant que sa main ne s'abatte impitoyablement.
+
+Une main gigantesque couvrit le ciel et descendit. Les 99 épées commencèrent à trembler. C'était comme si la main contenait une puissante force magnétique qui absorbait les 99 lames !
+
+Après avoir saisi les 99 épées, Wang Lin ouvrit la bouche et cracha un flot d'énergie originelle. L'énergie balaya les épées comme le vent, et les empreintes du Sens Divin de Greed s'effondrèrent rapidement.
+
+Pendant que le Sens Divin de Greed était effacé des 99 épées, loin de la planète de culture, Greed s'échappait avec un regard paniqué, dans un état lamentable.
+
+Lorsqu'il vit Wang Lin, aucune pensée ne traversa son esprit ; il ne réfléchit même pas à fuir. Sa peur subconsciente de Wang Lin éclata et il s'enfuit immédiatement à pleine puissance.
+
+Il craignait que s'il était trop lent, tous ses trésors ne soient repris un par un par Wang Lin.
+
+Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva soudainement ses esprits. Il s'arrêta, l'expression empreinte d'incertitude.
+
+« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs de la Fléau Céleste ! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui ?! » Greed serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même !
+
+« Ce vieil homme ne fuira plus, je vais tuer Wang Lin et me venger ! » Une intention meurtrière apparut dans les yeux de Greed et il fit demi-tour, prêt à repartir.
+
+Cependant, à cet instant précis, son expression changea radicalement. Son corps trembla et ses pupilles se rétractèrent.
+
+« Le Sens Divin sur les 99 épées a été effacé par la force !! Bon sang, quel est le niveau de culture de Wang Lin pour être capable d'effacer mon Sens Divin ainsi ?! » Greed marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
+
+Des pensées fulgurèrent dans ses yeux et il chargea vers Wang Lin... Cependant, il ne fit que trois pas avant de s'arrêter, le visage livide, saisi par le choc.
+
+« Le Sens Divin des Neuf Tablettes de Protection Osseuse a... a été effacé par la force !! J'ai trouvé ces tablettes à l'extérieur de cette tombe mystérieuse, et elles n'avaient pas porté d'empreinte de Sens Divin depuis des dizaines de milliers d'années. Mon Sens Divin y était totalement intégré, personne ne devrait pouvoir l'effacer si facilement... Comment a-t-il pu effacer mon Sens Divin en un temps si court ?! »
+
+Greed commença à hésiter. Il pressentait que la culture de Wang Lin n'était pas simple !
+
+« Je me déteste d'être parti trop tôt. Je n'ai pas eu le temps de vérifier son niveau de culture... Cependant, même s'il a pris les tablettes et les épées volantes, j'ai encore le Fourneau Impérial, la Lance du Démon de Brume et l'Esprit de l'Arbre de Sépulture Céleste ! Il ne pourra pas les ravir en si peu de temps ! » Greed afficha une expression féroce tout en volant sur le chemin qu'il avait emprunté.
+
+Pourtant... Après seulement trois respirations, un bruit de craquement résonna dans le corps de Greed. Il cracha du sang, son visage devint livide et son expression changea radicalement !
+
+« La Lance du Démon de Brume... a été prise !! » Greed fut terrifié, la peur l'envahissant totalement. À cet instant, il n'avait plus aucune intention de chercher querelle à Wang Lin. L'unique pensée de s'échapper occupa à nouveau son esprit.
+
+Sans hésiter, Greed fit volte-face et s'enfuit au loin à plus de 90 fois sa vitesse normale !
+
+« Némésis, némésis !!! Ce maudit Wang Lin est ma némésis !!! » Les paroles de Greed étaient empreintes d'amertume, d'une immense réticence et de colère, mais surtout d'un sentiment... d'injustice !
+
+Il avait survécu au Moongazer après avoir frôlé la mort certaine et avait trouvé de grandes opportunités. Il avait obtenu des trésors plus puissants et pensait pouvoir ébranler le monde.
+
+Cependant, avant même de pouvoir profiter de cette vie nouvelle, il rencontra à nouveau Wang Lin. Greed ressentit une profonde tristesse au cœur et poussa un rugissement alors qu'il s'enfuyait !
+
+Après quelques respirations, le corps de Greed trembla ; il rugit et cracha de nouveau du sang. Son corps était instable tandis qu'il fuyait avec précipitation.
+
+« Maudite némésis !!! Il a même volé mon Fourneau Impérial !!! Mon Fourneau Impérial !! » Le cœur de Greed se serra, comme si une main s'était introduite dans sa poitrine pour en arracher un morceau de chair.
+
+« Je n'aurais pas dû sortir autant de trésors devant le Clan de l'Évasion des Nuages ! Si j'en avais pris un seul, ou même aucun... » Greed regrettait ses actes alors qu'il s'échappait, le visage pâle.
+
+Il s'enfuit très rapidement et, peu après, il fut loin de la planète où se trouvait Wang Lin. Il vola profondément dans les Terres Déchues.
+
+Sur la planète du Clan du Scorpion Noir, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
+
+« Les trésors que Greed possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume de la Massacre ! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante !
+
+« Plus important encore, la lance de brume possède l'aura d'un ancien démon. Son aura est extrêmement antique. Elle existe probablement depuis des dizaines de milliers d'années, voire... bien plus !
+
+« Quant au fourneau, cet objet n'est pas simple du tout. La méthode utilisée par Greed pour y imprégner son Sens Divin est totalement erronée, tout comme pour le fourneau de l'Ancien Dieu ; il n'en contrôlait que les fonctions superficielles. Cet objet a un lien étroit avec les anciens démons ! Bien qu'il ne possède pas d'énergie démoniaque, je sens vaguement qu'il est lié aux anciens démons ! » Les yeux de Wang Lin s'illuminèrent tandis qu'il dirigeait la main géante vers l'arbre immobile.
+
+Lorsque la main de Wang Lin toucha l'arbre, un grondement retentit, mais le végétal resta indemne. Au lieu de cela, la main créée par Wang Lin fut repoussée et une énergie verte jaillit de l'arbre. Sous son impact, la main de Wang Lin fut déchiquetée !
+
+Une lueur de joie brilla dans les yeux de Wang Lin ; il ne s'attendait pas à ce que l'arbre possède une telle capacité de protection. Cette paume aurait suffi à tuer un cultivateur de niveau Briseur de Nirvana, mais non seulement l'arbre n'avait pas été endommagé, il avait même riposté !
+
+Il faut dire qu'il n'y avait personne pour contrôler les trésors. Si quelqu'un les dirigeait, leur puissance augmenterait !
+
+« La plupart de mes trésors proviennent de Greed. Ce dernier est extrêmement chanceux et béni par le ciel. Ses trésors sont suffisants pour stupéfier la plupart des cultivateurs ! » Wang Lin cracha un flot d'énergie originelle qui enveloppa l'arbre. Puis, d'un revers de manche, il rangea l'arbre dans son espace de stockage.
+
+Après cela, il considéra les mille cultivateurs, choqués et terrifiés par ses actes. Il laissa échapper un reniflement froid et leva sa main droite, révélant un jeton de jade.
+
+« L'un d'entre vous reconnaît-il ceci ? »
+
+L'un des vieillards qui vit le jade trembla immédiatement, l'incrédulité brillant dans ses yeux. Il regarda de plus près avant que son visage ne devienne livide et qu'il ne s'exclame : « Le Jeton d'Empereur ! »
+
+« Avant que je ne revienne, aucun d'entre vous ne pourra partir. Attendez tous ici ! » La voix glaciale de Wang Lin résonna alors qu'il désignait le très agité Zhong Big Red non loin de là et ordonnait : « Suivez ses ordres ! »
+
+Après avoir donné cet ordre, Wang Lin s'élança vers le ciel. Des ondulations apparurent, puis il fit un pas et disparut sans laisser de trace.

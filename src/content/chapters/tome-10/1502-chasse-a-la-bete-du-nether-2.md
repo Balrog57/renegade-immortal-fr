@@ -1,0 +1,115 @@
+---
+n: 1502
+title: Chasse à la Bête du Nether (2)
+book: 10
+bookTitle: Rampage Through the Inner Realm
+en: Chapter 1502 - Hunting Nether Beast (2)
+slug: chasse-a-la-bete-du-nether-2
+---
+Fixant l'amas de rochers devant lui, Wang Lin agita la main et une bourrasque de vent les balaya. Les roches s'effondrèrent toutes, libérant l'énergie spirituelle qu'elles contenaient. Puis, la main droite de Wang Lin s'avança et l'énergie spirituelle se condensa en un vortex dans sa paume.
+
+« Guide par l'esprit ! » La main gauche de Wang Lin traça un sceau et pointa le vortex d'énergie spirituelle.
+
+En un instant, l'énergie spirituelle s'éleva dans les airs telle une fumée évanescente. Les yeux de Wang Lin s'illuminèrent alors qu'il suivait la trace de cette énergie, progressant rapidement à travers l'épais brouillard.
+
+Bien que cette énergie spirituelle issue des rochers fût dépourvue de vie et porteuse de traces du temps, elle provenait de la Bête du Nether et contenait donc une faible aura de celle-ci !
+
+Grâce à cette aura pour guide, il pourrait trouver la Bête du Nether !
+
+Le regard de Wang Lin s'anima et il se déplaça comme l'éclair après la fumée d'énergie spirituelle, s'enfonçant rapidement dans les profondeurs du brouillard.
+
+À mesure qu'il avançait, une pointe de joie brillait dans ses yeux. Il sentait vaguement une pression émaner du brouillard devant lui. Une telle pression était telle qu'aucune bête féroce n'oserait vivre en un tel lieu.
+
+Dès que cette sensation pénétra l'esprit de Wang Lin, la pression sembla se muer en une force puissante qui fit trembler son âme.
+
+Sans hésiter, il rétracta lentement son Sens Divin, qui s'étendait sur des centaines de pieds, afin de ne pas alerter cette présence. Son Sens Divin se contracta, encore et encore... jusqu'à ne couvrir plus qu'un périmètre de mille pieds autour de lui.
+
+Simultanément, son corps perça le brouillard, porté par la fumée d'énergie spirituelle, pour charger dans les profondeurs des brumes.
+
+Plus il progressait, plus la pression devenait forte et tangible. C'était comme si d'innombrables montagnes s'étaient abattues sur Wang Lin, mais cette force ne le contraignit pas à reculer. Au contraire, une excitation intense et une intention de combat pure s'allumèrent dans ses yeux.
+
+Il agita la main droite et la fumée d'énergie spirituelle retourna dans son espace de stockage. Il resta là un instant, léchant ses lèvres, tandis qu'un feu intérieur semblait embraser son corps.
+
+« Si cette Bête du Nether n'est pas puissante, sa chasse sera ennuyeuse. Plus elle sera redoutable, plus la traque en vaudra la peine ! Ce n'est qu'à ce prix qu'elle pourra prétendre devenir la bête d'essence vitale de mon Dieu Ancestral ! » Wang Lin sourit et avança d'un pas lent.
+
+La pression s'intensifia à mesure que Wang Lin approchait. C'était comme si une présence inimaginable se tenait devant lui. Cette présence semblait assoupie, libérant une pression silencieuse qui se propageait partout.
+
+À mesure que cette force se répandait, elle entraînait le brouillard dans son sillage. Vu d'en haut, on aurait dit que la pression créait des ondulations à la surface de la brume.
+
+Wang Lin fonçait vers sa proie, le cœur battant d'excitation !
+
+Chasser la Bête du Nether !
+
+Son Sens Divin restait limité à mille pieds autour de lui. À ce stade, Wang Lin n'avait plus besoin ni de son Sens Divin, ni de la fumée d'énergie spirituelle pour se guider. Il pouvait trouver la Bête du Nether en suivant simplement cette pression !
+
+Le brouillard ressemblait à des vagues se propageant silencieusement dans toutes les directions. Wang Lin traversa les brumes sans l'ombre d'une hésitation. Lorsque la pression et le brouillard atteignirent leur paroxysme, une lueur froide traversa le regard de Wang Lin et il accéléra soudainement.
+
+Tout ce qu'il avait fait jusqu'ici n'était qu'une préparation pour cette ultime accélération. À cet instant, la vitesse de Wang Lin atteignit le sommet de ce que son corps de Dieu Ancestral à sept étoiles pouvait accomplir. Même le Maître Lu Fu ne pourrait l'égaler !
+
+Cette vitesse était prodigieuse, dépassant de plusieurs fois celle du son, provoquant un instant de silence absolu ! Wang Lin laissa le bang sonique loin derrière lui et chargea en avant !
+
+Le brouillard s'effondra devant lui et se dispersa. La pression se désintégra strate après strate sur son passage.
+
+En un éclair, Wang Lin eut percé tout le brouillard et vit la créature géante à mille pieds de lui !
+
+Cette bête féroce ressemblait à une baleine et mesurait des millions de pieds de long. Les cultivateurs n'étaient que des fourmis face à elle !
+
+La Bête du Nether !
+
+Sur les côtés de sa gueule, deux grandes moustaches ondulaient lentement. Sa bouche et ses yeux étaient clos, comme si elle dormait.
+
+Son corps était d'un bleu profond. De loin, on aurait dit une mer sombre flottant au milieu des brumes ! Une pression colossale émanait de son corps, écartant le brouillard sur son passage.
+
+Les pupilles de Wang Lin se contractèrent et il ne ralentit pas, chargeant droit sur elle !
+
+Mille pieds, huit cents pieds, cinq cents pieds, trois cents pieds... jusqu'à n'être plus qu'à trente pieds !!!
+
+À trente pieds de distance, Wang Lin leva la main droite et frappa impitoyablement la Bête du Nether endormie !
+
+Des grondements tonitruants éclatèrent soudainement. Le bang sonique provoqué par Wang Lin le rattrapa au même instant. Une explosion fracassante résonna à travers le brouillard !
+
+Ce vacarme était semblable à l'effondrement d'un domaine stellaire. Il aurait suffi de cela pour briser l'esprit de n'importe qui et mettre leurs corps en pièces !
+
+« En tant que Dieu Ancestral Royal, j'utilise la puissance de mon héritage de l'Ordre Ancestral pour sceller ton corps extérieur en tant que ma bête d'essence vitale ! » Tandis que les grondements retentissaient, la main droite de Wang Lin percuta la Bête du Nether, formant une rune de l'Ordre Ancestral de la taille d'une paume.
+
+« Le sceau extérieur est achevé ! Vient maintenant le sceau intérieur, mais je ne peux pénétrer dans ce royaume ! Enfin, le plus difficile : le sceau de l'âme ! Ce n'est qu'une fois ces trois sceaux posés que cette bête pourra devenir la bête d'essence vitale de mon Dieu Ancestral ! »
+
+Le corps de la Bête du Nether trembla soudainement et un rugissement de colère jaillit de ses entrailles. Ce cri était semblable à la technique d'un cultivateur du troisième stade, et il étouffa immédiatement le son de l'explosion. À leur collision, une onde de choc indicible se forma !
+
+Cette force se propagea rapidement, faisant tourbillonner frénétiquement tout le brouillard à l'intérieur du domaine stellaire. Vu de l'extérieur, on aurait dit que la brume explosait vers l'extérieur à un rythme effréné, telle une catastrophe précédant l'effondrement d'un domaine stellaire !
+
+Tous les cultivateurs d'Allheaven sentirent le monde trembler !
+
+Wang Lin, étant le plus proche de la Bête du Nether, fut violemment repoussé de plusieurs milliers de pieds par l'impact. Chaque pas qu'il faisait faisait gronder et s'effondrer l'espace sous ses pieds, révélant un réseau illusoire : c'était la Formation de Scellement du Royaume !!
+
+Le corps de la Bête du Nether tressaillit alors que ses yeux s'ouvraient pour fixer Wang Lin. Ses deux moustaches s'agitèrent et des rugissements jaillirent de sa gueule. Son corps colossal ne recula pas ; au contraire, tandis qu'elle rugissait, ses yeux brillaient d'un regard féroce et elle fonça sur Wang Lin !
+
+Les yeux de Wang Lin se plissèrent. Tout en essuyant le sang au coin de ses lèvres, il laissa échapper un rire. Il ne recula pas non plus et fit face à l'assaut de front.
+
+« On disait tous que cette bête était timide, qu'elle s'enfuirait devant un ennemi. Quand je l'ai vue autrefois, c'était vrai, mais pour une raison inconnue, elle ne fuit pas maintenant ! C'est encore mieux ! » Des craquements retentirent dans le corps de Wang Lin. Les sept étoiles du Dieu Ancestral entre ses sourcils tournèrent rapidement et son corps grandit soudainement pour atteindre plus de dix mille pieds de haut !
+
+Dans un fracas tonitruant, Wang Lin ouvrit les bras et étreignit la Bête du Nether alors qu'elle percutait sa forme. Il sentit immédiatement une force dévastatrice frapper son corps, le faisant cracher du sang. Simultanément, il fut repoussé !
+
+Il recula de 10 000 pieds !
+
+Cependant, l'intention de combat de Wang Lin devint plus ardente encore. Son rire résonna alors qu'il verrouillait sa mâchoire sur celle de la Bête du Nether dans un rugissement puissant.
+
+« Voilà qui est plus intéressant ! Rivaliser avec moi en force ! » Wang Lin s'imposa pour stopper sa course et, à cet instant, une autre force colossale jaillit de la Bête du Nether. Les sept étoiles entre les sourcils de Wang Lin tournèrent avec frénésie et le pouvoir du Dieu Ancestral emplit son corps. Cela ne fit pas que l'empêcher de reculer ; il fit un pas en avant tout en maintenant sa prise sur la bête !
+
+L'espace lui-même trembla et le brouillard hurla. Le rire de Wang Lin se propagea, ses yeux injectés de sang mais brûlants d'une intention de combat sauvage. Après avoir repoussé la Bête du Nether d'un pas, il en fit un second !
+
+Un rugissement s'échappa des entrailles de la Bête du Nether, comme si elle ne pouvait résister au pouvoir divin ancestral de Wang Lin. Elle continuait d'être repoussée !
+
+Wang Lin accélérait sans cesse, faisant un pas après l'autre tout en rugissant !
+
+100 pieds, 500 pieds, 1 000 pieds... jusqu'à 10 000 pieds !
+
+Peu importait la lutte de cette Bête du Nether de cent mille pieds, elle ne pouvait se libérer des mains de Wang Lin. Après avoir parcouru plus de 10 000 pieds, le bras de Wang Lin gonfla ; il souleva la créature avant de la projeter violemment au sol !
+
+Des grondements tonitruants éclatèrent et le brouillard du domaine stellaire fut balayé, créant une brèche au centre. La Bête du Nether fut projetée par Wang Lin et vola vers les profondeurs.
+
+Un bruit sourd retentit, suivi d'un rugissement de panique. La peur apparut dans les yeux de la bête qui agita sa queue semblable à celle d'une baleine. Elle n'osa plus lutter et, après avoir été projetée par Wang Lin, commença à fuir vers le bas.
+
+« Deviens la bête de vie de ce Dieu et ravage le monde avec lui ! » Les yeux de Wang Lin brillèrent. La première frappe qu'il avait décochée contenait l'aura de sa force vitale, et celle-ci avait déjà pénétré le corps de la Bête du Nether !
+
+Voyant la créature s'enfuir, Wang Lin avança. Cependant, au moment même où il allait la rattraper, la bête se retourna brusquement. La peur dans ses yeux disparut, remplacée par une lueur d'intelligence !

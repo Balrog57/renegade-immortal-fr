@@ -1,0 +1,105 @@
+---
+n: 1199
+title: Quête du Dao
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1199 - Seeking Dao
+slug: quete-du-dao
+---
+Au moment où les trois individus arrivèrent dans le Royaume aux Sept Couleurs, la brume multicolore qui entourait Maître Ashen Pine se referma lentement jusqu'à envelopper totalement son âme originelle.
+
+Des filaments d'éclairs blancs jaillirent de la statue et pénétrèrent la brume aux sept couleurs pour fusionner avec son âme originelle.
+
+Le corps de Maître Ashen Pine commença inopinément à se recondenser jusqu’à redevenir corporel. Son corps dégageait des éclairs de plus en plus fréquents, et une légère marque électrique apparut entre ses sourcils.
+
+Il ouvrit soudainement les yeux, révélant un éclat sombre et lugubre.
+
+« C'est lui qui a forcé ce vieil homme à agir ainsi. Si je ne me venge pas, je ne suis plus humain ! » Il bondit en avant, se transformant en un éclair fulgurant. Il perça la brume et s'élança vers les montagnes.
+
+« Ce cultivateur nommé Lu a été blessé par mon ongle aux sept couleurs ; même s'il n'est pas mort, il est à l'agonie. J'ignore simplement où il se cache... Cependant, peu importe. Si je le veux, je peux le découvrir sans peine ! » Maître Ashen Pine ricana et tendit la main droite vers le vide. Une faille s'ouvrit dans son espace de stockage et une perle en jaillit.
+
+« Invoque, Défieur ! » Maître Ashen Pine mordit l'extrémité de sa langue et cracha du sang sur la perle. Celle-ci commença à absorber la lumière aux sept couleurs avant de s'effondrer. Au moment de son effondrement, une aura puissante surgit et une ombre floue se manifesta dans le monde.
+
+Il était impossible de distinguer l'apparence de cet être, mais ses yeux étaient d'une clarté telle qu'ils semblaient pouvoir percer les cieux. Rien n'échappait à son regard ; si vous le croisiez, vous vous sentiriez nu, comme si tous vos secrets étaient exposés.
+
+Maître Ashen Pine interrogea la silhouette floue : « Où est-il ? »
+
+La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer Maître Ashen Pine. Ce dernier trembla tandis que plusieurs images défilaient dans son esprit. En voyant ces visions, il fronça les sourcils !
+
+« La grotte de Sima Mo ! Il a réussi à briser les restrictions de la grotte alors qu'il était gravement blessé ? » Un éclat de froideur passa dans les yeux de Maître Ashen Pine et il s'élança.
+
+Dans la vallée où se trouvait la grotte de Sima Mo, Wang Lin n'avait pas consacré toute son énergie à l'alchimie. Il avait également nettoyé la première grotte. Après avoir disposé un grand nombre de restrictions et agrandi la cavité, il libéra la bête moustique.
+
+La reine des moustiques était plus féroce encore. En sortant, ses yeux froids fixèrent Wang Lin avec détermination. Son esprit étant lié à celui de Wang Lin, elle connaissait déjà son plan. Elle émit un léger sifflement.
+
+Après une courte méditation silencieuse, Wang Lin agita la main droite et la reine des moustiques fut aspirée dans les restrictions de la grotte.
+
+« Avec suffisamment de cristaux d'origine, tout ira bien ! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées, ainsi que l'âme de la bête mutée qu'il avait créée dans la grotte du Secte de l'Origine. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
+
+« J'utiliserai les méthodes du Secte aux Cinq Pois pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en une reine des moustiques plus puissante. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent ! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
+
+Simultanément, grâce aux restrictions, les cristaux d'origine se transformaient en une énergie d'origine dense qui pénétrait le corps de la bête moustique.
+
+Après avoir laissé un fil de son sens divin dans la grotte pour surveiller l'évolution, Wang Lin réfléchit un instant puis se dirigea vers le fourneau à pilules.
+
+Wang Lin s'assit près du fourneau. Il manipulait sans relâche les flammes pour raffiner ses pilules. Le temps passa lentement et, en un clin d'œil, deux jours s'écoulèrent. Le feu s'éteignit progressivement et le parfum des pilules emplit la pièce.
+
+L'expression de Wang Lin restait calme tandis qu'il tendait la main droite. Le couvercle du fourneau s'envola et une épaisse brume en jaillit. Cette dernière se dissipa peu à peu, laissant flotter dans l'air un bassin de liquide doré.
+
+Sous le contrôle de Wang Lin, le liquide vola vers lui et fut réparti dans trois petites bouteilles.
+
+Prenant une profonde inspiration, Wang Lin observa la restriction de lumière noire qui entourait la vallée, saisit une petite bouteille et en but une gorgée. Dès que le liquide pénétra son corps, une sensation de fraîcheur se propagea instantanément à travers lui. Il pouvait vaguement percevoir l'écho d'un rugissement bestial. Wang Lin ferma les yeux et commença à appréhender lentement la compréhension des cieux propre à la bête.
+
+Dans cet état étrange, Wang Lin perdit la notion du temps, son esprit étant totalement absorbé par cette compréhension céleste. C'était comme s'il s'était transformé en une bête féroce, vivant chaque lutte acharnée pour la survie entre la vie et la mort.
+
+Tout en poursuivant le Dao, il confirmait son propre domaine de la vérité et du faux à travers l'expérience de la bête. Wang Lin était tel un observateur, organisant constamment ces diverses compréhensions.
+
+Son environnement sembla se distordre puis se métamorphoser. Ce changement s'accéléra jusqu'à ce que tout autour de lui devienne irréel.
+
+Après un long moment, Wang Lin tendit la main droite pour saisir la petite bouteille et en prendre une autre gorgée. Il restait immergé dans sa quête du Dao et son illumination. De plus en plus d'intentions du Dao apparurent autour de lui.
+
+S'il l'avait voulu, il aurait pu choisir arbitrairement l'une des compréhensions de la bête pour améliorer sa culture. Cependant, cela aurait eu pour conséquence de troubler son cœur du Dao. Après tout, il s'agirait d'emprunter le Dao d'autrui et non sa propre compréhension. Wang Lin ne voulait pas d'une telle culture !
+
+Ce qu'il recherchait, c'était de continuer à confirmer son propre domaine de la vérité et du faux tout en vivant la vie de la bête, afin de comprendre les cieux par le prisme du vrai et du faux.
+
+Il ne cherchait qu'à saisir l'étincelle de pensée qui traversait l'esprit de la bête lors de sa compréhension des cieux. C'était là l'essence même de l'âme de la bête féroce. Cette pensée était vague, mais une bête en avait besoin pour progresser et, à terme, atteindre la forme humaine !
+
+Le temps passa. Wang Lin avait consommé la première bouteille et continuait sa quête. La distorsion autour de son corps s'étendit jusqu'à couvrir toute la vallée. Si quelqu'un était apparu à cet instant, son cœur du Dao serait devenu chaotique. Il y avait trop d'intentions du Dao que Wang Lin avait triées puis rejetées.
+
+« S'il n'y a pas de faux, il n'y a pas de vrai. Et s'il n'y avait pas de vrai, d'où viendrait le faux ? Entre la vérité et la fausseté, il n'est pas nécessaire de les distinguer totalement... » Wang Lin saisit la deuxième bouteille et en prit une grande gorgée. Ses yeux brillèrent d'illumination avant qu'il ne les referme pour continuer à confirmer son propre Dao.
+
+À mesure que ces innombrables intentions du Dao étaient triées, elles se répandirent hors de la vallée, provoquant une distorsion de tout le lieu.
+
+C'était un phénomène invisible à l'œil nu, mais tout cultivateur au-dessus du stade de Formation de l'Âme pouvait ressentir les intentions du Dao ici. Chacune d'entre elles était façonnée par les lois célestes.
+
+À première vue, cela semblait réel, mais on découvrait vite que c'était faux. La distinction devenait extrêmement difficile et, une fois tombé dans ce piège, il était presque impossible de s'échapper de cet abîme.
+
+De plus en plus d'intentions du Dao chaotiques se propagèrent, couvrant un rayon de 10 000 pieds. Même le ciel finit par se distordre.
+
+Wang Lin avait déjà consommé la troisième bouteille au sein de la vallée. Il avait tout oublié, continuant sa quête de son Dao dans ce monde infini !
+
+Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et devint progressivement plus claire :
+
+« Illuminé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+
+« Aucune vie ne connaît le vrai Dao. L'abîme amer déforme éternellement le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
+
+Maître Ashen Pine se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visage était extrêmement pâle tandis qu'il fixait l'horizon, restant pourtant immobile. Il était arrivé là il y a deux jours, mais avant même d'avoir pu faire un pas de plus, il avait ressenti ces intentions du Dao chaotiques et infinies.
+
+Ces intentions étaient comme un vortex gigantesque capable d'absorber tous les domaines pour les soumettre à la confirmation de Wang Lin par une méthode spéciale.
+
+Le domaine de la vérité et du faux était la seconde évolution de son Dao. Ce qu'il recherchait avait déjà surpassé ceux de son niveau de culture, et même ceux de rangs supérieurs.
+
+Le visage de Maître Ashen Pine, livide, s'affaissa alors qu'il s'asseyait par terre pour stabiliser son esprit. Il luttait sans relâche contre les intentions du Dao chaotiques et la succion du vortex invisible. Il ne remarqua pas les Perdus chauves qui s'approchaient lentement de lui.
+
+Ils avançaient d'un pas nonchalant, mais chaque mouvement s'apparentait à une distorsion spatiale. Bientôt, ils arrivèrent, mais ne s'avancèrent pas davantage ; ils restèrent là, comme s'ils cherchaient eux aussi le Dao.
+
+Plus loin encore, les Illuminés qui ne flottaient que dans la brume en sortirent tous pour voler vers la vallée où se trouvait Wang Lin. Leurs murmures s'élevèrent également.
+
+Tout convergeait vers la vallée de Wang Lin, point central d'un raffinement du Dao qui bouleversait le Royaume aux Sept Couleurs. À mesure que les intentions du Dao rejetées par Wang Lin se multipliaient, le royaume entier semblait se tordre.
+
+Les Perdus cherchaient le Dao et leurs yeux devenaient de plus en plus confus. Ils fixaient l'horizon tandis qu'innombrables intentions invisibles étaient absorbées par eux.
+
+Les Illuminés arrivèrent et flottèrent dans les airs. Le murmure qui durait depuis des éons s'interrompit. Tous contemplèrent la vallée et fermèrent les yeux, comme s'ils cherchaient à comprendre le Dao de Wang Lin.
+
+Même les bêtes de brume de rang 12 se transformèrent en diverses bêtes féroces sans émettre le moindre rugissement. Elles traversèrent le ciel pour encercler la vallée, flottant dans les airs telles les Illuminés, plongées dans la compréhension du Dao de Wang Lin.

@@ -1,0 +1,117 @@
+---
+n: 257
+title: "C'est toi !"
+book: 4
+bookTitle: Clean Sweep
+en: "Chapter 257 - Its You!"
+slug: cest-toi
+---
+Chapitre 257 - C'est toi !
+
+Après avoir raccompagné Da Niu et son père, Wang Lin s'assit près du feu et ressentit soudainement un profond regret. Dix pièces d'or représentaient une fortune immense pour des mortels, mais pour les immortels, ce n'était que de la poussière dont ils ne daigneraient même pas prendre notice.
+
+Il resta assis tranquillement dans la boutique, ramassa un morceau de bois et, sa main s'animant à nouveau, il se remit à sculpter.
+
+Le temps passa et trois autres années s'écoulèrent. La boutique de Da Niu avait presque doublé de volume et, comme le pensait sa mère, leurs affaires prospéraient. Cependant, avec ce succès, Da Niu disposait de moins de temps libre, car il devait travailler à la forge aux côtés de son père.
+
+Ce n'est qu'une fois la boutique fermée que Da Niu traînait son corps fatigué, une cruche de vin de fruits à la main, pour venir observer Wang Lin sculpter.
+
+Le corps de Da Niu, sans doute en raison de l'effort fourni à la forge, était devenu encore plus robuste. Le jeune homme de dix-sept ans ne ressentait aucune morsure du froid, malgré sa fine chemise.
+
+En revanche, les rides sur le visage de ses parents s'étaient accentuées avec le temps.
+
+L'apparence de Wang Lin avait également changé par rapport à celle d'il y a six ans. Il ne ressemblait plus à un jeune homme, mais à un homme d'âge mûr dont le visage était marqué par les rides.
+
+C'était un changement délibéré de la part de Wang Lin. Après tout, si quelqu'un n'avait absolument pas changé en six ans, cela aurait été une chose bien trop incroyable pour ces voisins honnêtes et bienveillants.
+
+Au cours des trois dernières années, Xu Tao commença à venir plus fréquemment. Il venait chaque mois, apportant de l'or et de l'argent, avec l'intention d'attirer Wang Lin de son côté. Et à chaque fois, il insistait sur le fait que ces présents étaient offerts par le prince en signe de respect envers lui.
+
+Wang Lin n'avait aucun intérêt pour ce prince. Il était venu dans la capitale avec un seul but : expérimenter la vie mortelle afin de réaliser une percée dans sa culture.
+
+Compte tenu de son niveau de culture, il n'avait aucune envie de s'impliquer dans les luttes de pouvoir des mortels.
+
+À la fin de l'automne de cette année-là, le vent arracha les feuilles des saules bordant la rue, les faisant voler au loin et les séparant de leurs branches.
+
+On pouvait voir des feuilles joncher tout le pavé. Wang Lin sortit nonchalamment de la boutique, vêtu d'habits épais et coiffé d'un chapeau de cuir. Si, à cet instant, un membre des royaumes de Zhao ou de Chu passait par là, il serait incapable de reconnaître Wang Lin. Cet homme était celui qui avait semé le chaos dans tout le pays, celui qui avait tué des milliers de personnes et dont les mains étaient tachées de sang.
+
+Même les cultivateurs qui l'avaient combattu ne pourraient pas l'identifier.
+
+Son apparence actuelle ne différait en rien de celle d'un mortel. Cela s'appliquait non seulement à son aspect physique, mais aussi à son esprit. Jusque dans la moelle de ses os, il était devenu semblable à un mortel.
+
+Après six années passées à se transformer en mortel, il l'était devenue totalement. Il paraissait un peu vieilli ; bien que son dos fût toujours droit, il ne se distinguait pas des autres hommes d'âge mûr croisés dans la rue.
+
+Le seul détail qui le différenciait des simples mortels résidait dans ses yeux. Une distinction nette entre le noir et le blanc s'y dessinait, doublée d'une lueur subtile qui lui conférait un regard singulier.
+
+Au cours des trois dernières années, Wang Lin n'avait pas pratiqué sa culture une seule fois ; la dernière substance rouge s'était inconsciemment condensée en une perle qu'il avait rangée dans son sac de rangement.
+
+Il ouvrit la porte de la boutique et le vent glacial de l'automne lui fouetta le visage. Wang Lin resserra son col, referma la porte et s'éloigna.
+
+À ce moment précis, un jeune homme plutôt robuste sortit de la boutique d'en face, portant un seau de charbon brisé. En voyant Wang Lin, il lui adressa un sourire : « Oncle Wang, allez-vous encore voir le spectacle ? »
+
+Wang Lin se retourna et sourit : « Da Niu, apporte-moi une cruche de vin. »
+
+Le jeune homme hocha la tête. Il jeta rapidement le charbon sur le côté et entra dans la boutique. Peu de temps après, il en ressortit avec une cruche de vin. Ses yeux étaient empreints de sollicitude lorsqu'il dit : « Oncle Wang, à votre âge, vous ne devriez pas boire autant. Buvez juste un peu pour vous réchauffer. »
+
+Wang Lin acquiesça avec un sourire. Il tapota l'épaule de Da Niu, puis se détourna et partit.
+
+Da Niu ressentit une pointe d'amertume en regardant le dos de Wang Lin. En ces six années, l'omnipotent Oncle Wang avait beaucoup vieilli. Il se souvenait encore de l'Oncle Wang d'il y a six ans, plein de vigueur, dont les yeux brillaient comme des étoiles.
+
+Une à une, des sculptures de bois d'un réalisme saisissant prenaient forme entre ses mains.
+
+Il se souvenait aussi de l'Oncle Wang disant qu'une fois devenu un grand homme, il reviendrait épouser sa femme. Cependant, durant ces six dernières années, Da Niu n'avait jamais vu la femme de l'Oncle Wang, alors il n'avait plus jamais posé la question.
+
+Da Niu poussa un soupir et retourna à la boutique. Lui aussi avait grandi ; il était désormais le principal ouvrier de la forge. Même après la fermeture de l'atelier, il restait de nombreuses tâches à accomplir. L'habitude qu'il avait de regarder Wang Lin sculpter chaque jour ne pouvait plus se maintenir.
+
+Tous les quelques jours, il trouvait tout de même un moment pour accompagner ce solitaire Oncle Wang.
+
+Une fraîcheur s'était glissée dans le vent de la fin de l'automne. Wang Lin marchait lentement. Après un moment, il atteignit une auberge au coin de la rue. Dès qu'il entra, le serveur, un garçon très vif avec une serviette sur l'épaule, s'exclama : « Si ce n'est pas le tenancier Wang ! Entrez, je vous en prie ! »
+
+Une fois à l'intérieur, Wang Lin retira son chapeau et sourit : « Je n'ai pas d'argent pour vous donner de pourboire. Peu importe votre amabilité, cela ne servira à rien. »
+
+Le serveur sourit : « Ne dites pas de bêtises. Le tenancier a déjà précisé que la première table près de la fenêtre est votre place réservée. » Sur ce, il se dirigea rapidement vers une table, l'essaya avec sa serviette et s'inclina avant de partir.
+
+Wang Lin s'assit. Bientôt, le serveur apporta plusieurs plats et un petit brasero surmonté d'une marmite d'eau bouillante. Wang Lin y plaça la cruche de vin pour commencer à la réchauffer.
+
+De temps à autre, il se versait une coupe. Il restait là, observant les clients entrer dans l'auberge. Peu à peu, la salle se remplit. Après environ trente minutes, des artistes apparurent depuis l'arrière-boutique et les clients commencèrent à acclamer.
+
+Parmi les interprètes, une femme particulièrement jolie attira tous les regards. La plupart des clients étaient venus pour elle.
+
+Ses yeux étaient magnifiques. Ses longues manches dansaient au rythme de son chant. Sa voix était si captivante que les clients de l'auberge s'époumonaient en éloges. À cet instant, l'ambiance atteignit son apogée.
+
+Wang Lin souriait en la regardant chanter. Il passait ses journées ainsi depuis plus d'un an.
+
+Peu après, un homme d'âge moyen, corpulent et vêtu d'habits épais, sortit de l'arrière-salle et s'assit à la table de Wang Lin. Dès son arrivée, le serveur lui servit promptement du vin.
+
+L'homme gras but rapidement sa coupe, regarda Wang Lin et dit : « Tenancier Wang, ceci... »
+
+Wang Lin saisit la cruche, prit une gorgée et l'interrompit : « Tenancier Lee, je ne suis pas venu aujourd'hui pour collecter le loyer, alors détendez-vous. »
+
+L'homme sourit : « Les affaires ne vont pas fort ces derniers temps. Le fait d'avoir beaucoup de clients aujourd'hui ne change pas grand-chose. J'ai dû dépenser une fortune pour engager ce groupe. Ce n'est pas facile, la gestion. »
+
+Wang Lin sourit sans dire un mot, se contentant d'observer la représentation. Cet homme s'appelait Lee, mais Wang Lin ignorait son prénom. Deux ans auparavant, cet homme était venu voir Wang Lin et avait engagé sa boutique en gage pour emprunter vingt pièces d'or. À ce jour, il n'avait toujours pas remboursé la dette ; la boutique appartenait donc désormais à Wang Lin.
+
+Durant l'année écoulée, il voyait Wang Lin venir chaque jour. Cela le rendait très nerveux, alors il venait souvent vérifier les intentions du propriétaire.
+
+Alors que le regard de la jolie chanteuse balayait la foule sous les acclamations, une voix libertine s'éleva de l'extérieur : « Hé, cette petite merveille chante divinement ! Elle m'a attiré depuis le nord de la ville ! »
+
+À ces mots, un vieil homme vêtu d'une robe grise entra. Ses cheveux étaient en bataille, son visage couvert de contusions et une large empreinte de pas marquait sa poitrine.
+
+Dès qu'il franchit le seuil, il se mit à crier. Le serveur fronça les sourcils : « D'où sort ce mendiant ? Il n'y aura rien pour vous aujourd'hui ! » Il s'avança pour le repousser.
+
+Le vieillard le fixa et rétorqua : « Tu oses me toucher ? Si tu me touches, je m'allonge ici et je ne me relèverai plus de la journée. Je suis venu écouter de la musique ! »
+
+Quand Wang Lin vit le vieil homme, l'étincelle qui n'avait pas brillé dans ses yeux depuis des années s'enflamma soudainement. Ce vieillard n'était pas n'importe qui : c'était celui qui lui avait soutiré un repas six ou sept ans auparavant.
+
+Le propriétaire de l'auberge, assis près de Wang Lin, s'approcha. Il fouilla dans ses poches, en sortit une pièce de bronze et la lança au vieillard : « Je vous ai donné de quoi payer, maintenant partez. Vous gâchez l'ambiance. »
+
+Le vieil homme ramassa la pièce et la mordit. Il sourit au serveur : « C'est du vrai. Plus dur que l'or. Voyez-vous, votre patron sait comment faire. Humph, humph ! » Il lança la pièce dans la main du serveur en ajoutant : « Une théière de thé ! »
+
+Puis, son regard balaya la salle. Ses yeux se posèrent sur Wang Lin et il s'approcha. Ce n'était pas par reconnaissance qu'il venait, mais simplement parce que la seule place libre dans l'auberge était à côté de lui.
+
+Le serveur fut stupéfait. Il regarda la pièce de bronze, puis le propriétaire. Il avait vu passer bien des mendiants, mais c'était la première fois qu'il en voyait un mordre une pièce pour vérifier sa valeur avant d'acheter du thé.
+
+Le visage de l'homme corpulent se crispa. Il retroussa ses manches, prêt à expulser le vieillard, quand Wang Lin leva la main : « Laissez tomber. »
+
+L'homme s'immobilisa aussitôt. Il hésita un instant, marmonna quelques mots, puis retourna dans l'arrière-salle.
+
+Le vieil homme esquissa un sourire malicieux. Il regarda Wang Lin et commença : « Vous... » Mais alors qu'il allait prononcer ce mot, il fut soudainement saisi d'un sursaut et fixa intensément Wang Lin. Il l'examina avec attention, une expression étrange envahissant son visage, avant de s'exclamer : « C'est toi ! »

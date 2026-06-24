@@ -1,0 +1,111 @@
+---
+n: 992
+title: Retrouvailles (2)
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 992 - Reunion(2)
+slug: retrouvailles-2
+---
+Tout en parlant, il recula et s'apprêta à partir.
+
+Les yeux des trois frères Chen étaient injectés de sang, en particulier ceux du Maître Yi Chen ; on aurait dit que son cœur était déchiré. Bien que Ling Er fût une junior d'une génération différente, il la traitait comme sa propre fille. À cet instant, c'était comme s'il regardait un scélérat voler sa fille sous ses yeux.
+
+Il serra les dents, se tourna vers le palais où se trouvait Wang Lin et s'inclina. Sa voix, empreinte de chagrin et d'indignation, s'éleva bruyamment : « Frère Wang, je vous en prie, aidez ce vieil homme une dernière fois ! »
+
+Malheureusement, Wang Lin était totalement absorbé par le raffinage du cadavre, car il traversait l'instant le plus critique. Il n'avait déployé son Sens Divin qu'aux alentours du palais ; ainsi, même s'il détectait ce qui se passait à l'extérieur, il ne pouvait se permettre aucune distraction.
+
+Situ Nan s'apprêtait initialement à partir, mais lorsqu'il entendit « Frère Wang », son corps trembla et il s'immobilisa. Ses yeux révélèrent une lueur mystérieuse et il marmonna pour lui-même : « Quelqu'un qui s'appelle Wang ? »
+
+« Quel est le nom de ce frère Wang dont tu parles ? » Situ Nan se tourna vers le Maître Yi Chen, mais secoua rapidement la tête en disant : « Laisse tomber, je le saurai bien assez tôt ! »
+
+Sur ces mots, il fit un pas et chargea vers le palais où se trouvait Wang Lin.
+
+Si Situ Nan n'était pas allé vers Wang Lin, le Maître Hollow Wind ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir !
+
+Les êtres ayant atteint son niveau de culture étaient assez directs. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
+
+Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Hollow Wind s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, ce dernier apparut devant lui.
+
+L'expression du Maître Hollow Wind était calme lorsqu'il dit lentement : « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir ! »
+
+Les yeux de Situ Nan se plissèrent, mais son expression était empreinte d'impatience et il cria : « Si tu n'étais pas blessé, tu ne serais même pas à la hauteur, mais en l'état actuel, tu n'es absolument pas qualifié pour me barrer la route ! » Tout en parlant, Situ Nan leva sa main droite et pointa le doigt sans hésiter.
+
+Le Doigt des Enfers !
+
+Alors que ce doigt était projeté, le ciel changea de couleur et une aura de mort dense emplit le monde. Le Doigt des Enfers possédait désormais une puissance considérable après avoir été perfectionné par Situ Nan.
+
+Empruntant l'infime étincelle de vie qui apparaîtrait dans une terre saturée de mort, il permettait au Doigt des Enfers de contenir une trace ténue de vitalité !
+
+En conséquence, il créa son propre équilibre Yin et Yang, devenant un sort féroce qui fonça droit sur le Maître Hollow Wind.
+
+Le Maître Hollow Wind forma un sceau de ses mains et fit un geste ample. Une immense quantité d'énergie originelle se rassembla et entra en collision avec le Doigt des Enfers.
+
+Un fracas retentit, le corps du Maître Hollow Wind trembla et il fut contraint de reculer de plusieurs dizaines de pieds. Cependant, le Doigt des Enfers ne fut nullement affecté et continua sa poursuite après une brève pause.
+
+Le mépris emplissait les yeux de Situ Nan lorsqu'il hurla : « Mutation des Enfers ! »
+
+À la suite de son cri, le vent des enfers se contracta rapidement et une aura destructrice se propagea avec frénésie.
+
+L'expression du Maître Hollow Wind changea radicalement. Voyant naturellement que ce vent était anormal, il recula sans hésiter.
+
+Situ Nan ne prêta aucune attention au Maître Hollow Wind et marcha droit vers le palais de Wang Lin. Ta Shan et Big Head voulurent l'intercepter, mais Situ Nan agita sa manche. Big Head fut projeté au loin, tandis que Ta Shan parvint à maintenir sa position ; après tout, il était un garde céleste. Ce dernier lança alors un coup de poing !
+
+Ce coup créa un bang sonique qui chargea vers Situ Nan.
+
+Surpris, Situ Nan examina attentivement Ta Shan avant de le pointer du doigt. Le corps de Ta Shan trembla et il fut balayé par la force.
+
+« Intéressant... un Purificateur du Nirvana, un Voyant du Nirvana et une marionnette dotée d'un corps aussi puissant. Il faut absolument que je voie ce cultivateur nommé Wang qu'ils gardent ainsi. »
+
+Riant de bon cœur, Situ Nan s'approcha à moins de mille pieds du palais. Au moment où il atterrit, il fut saisi de stupeur, affichant une expression extrêmement étrange, la bouche bée. Il ne pouvait croire ce qu'il voyait. Après tout, ce que son Sens Divin lui avait montré différait grandement de la réalité physique.
+
+Situ Nan allait prendre la parole quand un sifflement strident retentit depuis le palais. D'innombrables restrictions jaillirent, emplissant le ciel et s'élançant vers lui.
+
+« Bon sang... » Situ Nan voulut reculer, mais les restrictions étaient trop nombreuses. Elles se ruaient sur lui comme si elles ne pouvaient s'arrêter avant de l'avoir scellé !
+
+Situ Nan esquissa un sourire amer et décida simplement de ne pas battir en retraite. Il ouvrit les bras et un vortex géant apparut devant lui. Ce vortex tournait à une vitesse vertigineuse ; d'un mouvement des bras, Situ Nan fit s'effondrer le tourbillon, envoyant des ondes de choc successives.
+
+Toutes les restrictions touchées par ces ondulations s'effondrèrent, et en un instant, elles furent toutes annihilées.
+
+Situ Nan allait parler quand son expression changea à nouveau, alors qu'une voix féminine aiguë jaillissait du palais. Ce cri perça les cieux et même Situ Nan ne put s'empêcher de reculer de quelques pas.
+
+À cet instant précis, la porte du palais s'ouvrit brusquement. Une femme vêtue d'argent jaillit dans un rayon de lumière argentée vers Situ Nan.
+
+Les yeux de Situ Nan se plissèrent alors qu'il reculait en agitant sa main droite. Il forma un sceau et pointa la femme, créant un anneau de lumière, et hurla : « Doigt d'Emprisonnement Céleste ! »
+
+Cet anneau de lumière brilla d'un éclat violet et émit une puissante fluctuation d'énergie originelle. Tandis que Situ Nan l'activait, le sort fonça vers le cadavre féminin.
+
+Au moment où Situ Nan pointa le doigt, l'anneau disparut, mais un instant plus tard, il réapparut autour de la femme. Il l'emprisonna à l'intérieur et se contracta impitoyablement !
+
+L'anneau se multiplia soudainement, passant de un à deux, de deux à quatre, et en un clin d'œil, devint une multitude d'anneaux piégeant la cible ! Cependant, cette femme n'était pas ordinaire. Elle ouvrit la bouche pour cracher une paire de ciseaux qui tournèrent autour d'elle, tranchant les anneaux.
+
+Profitant de cet instant, Situ Nan cracha au sol avec un sourire amer : « Malédiction, qu'est-ce que c'est ? Je n'ai pas reconnu quelqu'un que je connaissais... » Sur ce, il passa devant la femme et se dirigea directement vers le palais.
+
+En s'approchant, ses mains formèrent un sceau et il pointa du doigt en riant : « Reçois mon Doigt du Tremblement de Montagne ! » D'un geste, l'ombre d'une montagne majestueuse apparut derrière lui. Elle était si immense qu'elle semblait relier le ciel et la terre. Puis, cette ombre se condensa rapidement sur le doigt de Situ Nan.
+
+Finalement, lorsque la montagne disparut totalement, la puissance de ce doigt atteignit son apogée. Ce coup était comme une montagne s'effondrant sur sa proie !
+
+Un rire joyeux retentit depuis l'intérieur du palais et une aura frénétique explosa de l'enceinte.
+
+Les deux forces entrèrent en collision, provoquant une onde de choc inimaginable. Le souffle de l'impact souleva une poussière épaisse qui enveloppa les environs du palais de Wang Lin, projetant des fragments de pierre dans toutes les directions.
+
+Le corps de Situ Nan trembla et la stupeur se lut dans ses yeux. Il se transforma en un rayon de lumière et recula de mille pieds avant que la force ne se dissipe. Néanmoins, sa main droite restait tremblante et engourdie.
+
+« Quel genre de sort est-ce là ? La simple puissance physique a non seulement brisé mon Doigt du Tremblement de Montagne, mais m'a même forcé à reculer ! Quand ce gamin est-il devenu aussi fort ?! » L'excitation illumina les yeux de Situ Nan alors qu'il riait et s'élançait dans les airs. Il pointa le ciel en souriant : « Ce Tremblement de Montagne n'utilisait qu'une fraction de ma force. Maintenant, je vais te montrer sa pleine puissance ! J'ai passé un temps infini à comprendre ce sort sur cette planète abandonnée qui ne valait pas un clou, tout cela pour le perfectionner ! »
+
+« Très bien ! » Le rire de Wang Lin parvint d'en bas alors qu'il s'élevait dans les airs. Lorsqu'il croisa le regard de Situ Nan, une rare lueur d'excitation et de familiarité apparut dans ses yeux.
+
+Situ Nan sourit, mais l'admiration et l'enthousiasme de revoir Wang Lin après tant d'années transparaissaient encore sur son visage.
+
+Les deux hommes se contemplèrent dans les airs. Parfois, les frères n'ont pas besoin de longs discours ; un seul regard suffit à raviver leur amitié.
+
+Tout ce qui s'était passé sur la planète Suzaku résonna presque simultanément dans leurs cœurs.
+
+« Doigt du Tremblement de Montagne ! » rit Situ Nan en pointant Wang Lin de sa main droite. À cet instant, la planète entière trembla et les âmes des montagnes s'envolèrent. Une illusion enveloppa Situ Nan.
+
+Des montagnes apparurent autour de lui ; il y en avait des centaines de milliers. Situ Nan avait, de manière inattendue, invoqué toutes les âmes de montagne de la planète. Elles apparaissaient comme des mirages d'un réalisme saisissant.
+
+Alors qu'il pointait le doigt, ces âmes de montagne dégageaient des auras ancestrales qui se rassemblèrent promptement ! Elles se condensèrent en une force colossale qui fonça vers Wang Lin.
+
+Ce doigt était un sort puissant capable de rassembler toutes les âmes de montagne de la planète Esprit d'Eau !
+
+La puissance de ce Doigt du Tremblement de Montagne fit briller une lueur mystérieuse dans les yeux de Wang Lin. Il serra le poing et le ciel gronda, comme si Wang Lin tenait la voûte céleste entre ses mains.

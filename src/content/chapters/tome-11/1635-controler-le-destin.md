@@ -1,0 +1,113 @@
+---
+n: 1635
+title: Contrôler le Destin
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: Chapter 1635 - Controlling Fate
+slug: controler-le-destin
+---
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse ! Mais après tout, qu'est-ce que cela change ? Si moi, Wang Lin, je pouvais pénétrer dans l’Ancient Celestial Realm et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants !
+
+« De quels droits se permettent-ils d'élever des êtres sensibles en captivité ? De quels droits se croient-ils maîtres d'autres êtres ?
+
+« Ce n'est pas étonnant que l'oiseau Vermillion de la première génération ait dit qu'il ne pouvait emmener qu'un nombre limité de personnes dans sa ville natale. C'est parce qu'en dehors de lui, tous les autres ne sont pas originaires du Continent Astral Immortel. Ils ne sont que des cultivateurs nés dans cette grotte !
+
+« Ce n'est pas étonnant qu'il ait dit que quelqu'un dans sa ville natale pourrait ressusciter Li Muwan, mais que lui ne le pouvait pas. Ce n'est pas étonnant... Ce n'est pas étonnant...
+
+« Si l’Estimé Scatter Spirit peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants !
+
+« Quand je sortirai de cette grotte pour entrer dans le Continent Astral Immortel, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux me hisser au-dessus de ces puissants cultivateurs du Continent Astral Immortel ! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
+
+Pourtant, aujourd'hui, il avait tout vu clair. Qu'importe s'il connaissait la vérité ? Il restait Wang Lin, il restait un cultivateur défiant le ciel. Il allait toujours ressusciter Li Muwan, et il allait toujours affronter le monde seul.
+
+Même si c'était la vérité, qu'importe ? Tant qu'il posséderait en lui un cœur et une volonté indomptables, il continuerait sa route !
+
+Tout en riant, il s'avança vers le second soleil, porté par sa compréhension de la vérité. Ce soleil contenait la divine rétribution du feu. Il lança un coup de poing en se rapprochant.
+
+Des grondements tonitruants résonnèrent et le second soleil s'effondra. La divine rétribution du feu formée par l'homme aux sept couleurs fut révélée.
+
+Sans marquer de pause, Wang Lin s'avança vers le troisième soleil. Un fracas de tonnerre retentit et une pression se propagea depuis l'intérieur de l'astre. Cette pression était comparable à la puissance des cieux et pouvait supprimer toute forme de vie.
+
+Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, riant comme un fou. Il leva la main droite et créa une paume géante qui s'abattit sur le quatrième soleil.
+
+Le quatrième soleil contenait quatre épées et dégageait une énergie de sabre terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie !
+
+Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient pour former un flou indistinct. C'était la racine de la rétribution de l'illusion.
+
+Le sixième soleil contenait les auras de trois trésors. Il s'agissait des trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin en avait détruit deux, leurs auras s'étaient fusionnées.
+
+Le septième soleil contenait la force de l'âme des trois clans anciens. D'innombrables âmes de ces trois clans y étaient scellées. C'était la méthode ultime pour manipuler les messagers des cieux.
+
+En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution de soi. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
+
+Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Ancient Celestial Realm. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
+
+Cependant, Wang Lin n'en avait cure. Son regard se posa sur le neuvième soleil. Il n'avait jamais vu la divine rétribution qui résidait dans ce neuvième soleil auparavant.
+
+Il percevait vaguement des auras très familières à l'intérieur du neuvième soleil. Ces auras appartenaient à lui, à Li Muwan, à ses parents et aux innombrables personnes qu'il avait rencontrées.
+
+Debout près du neuvième soleil, Wang Lin se calma et ferma les yeux. Il resta là très longtemps ; on ignorait combien de temps s'était écoulé avant qu'il ne les rouvre. Une lueur d'illumination brillait dans son regard.
+
+« Ce neuvième soleil, la neuvième divine rétribution, l'origine même de la rétribution divine... Elle contient le destin de tous les êtres sensibles des Royaumes Intérieur et Extérieur. Cette neuvième divine rétribution était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
+
+En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette divine rétribution et, avec son niveau de culture actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel ; il avait été créé par l'homme aux sept couleurs.
+
+Tout en méditant, Wang Lin leva la main droite et pressa le neuvième soleil. Son Sens Divin se propagea à travers sa main et s'engouffra dans le neuvième soleil telle une tempête.
+
+Le Sens Divin de Wang Lin pénétra dans les profondeurs du neuvième soleil. L'intérieur de l'astre n'était qu'un chaos total, et tandis que son Sens Divin se déployait, il vit bien des choses.
+
+Il vit la vie d'innombrables mortels et de cultivateurs. Il vit les visages de nombreuses personnes qu'il ne connaissait pas. Ils portaient tous des vêtements antiques et étaient morts depuis très longtemps.
+
+Ce neuvième soleil contenait le destin de tous les êtres vivants apparus depuis la création de ce monde. C'était comme la réincarnation, c'était comme la loi. Cela transformait tout ce qui touchait à la chance et à l'opportunité pour tout réduire au seul destin.
+
+Le neuvième soleil contenait le soi-disant Destin !
+
+Alors que le Sens Divin de Wang Lin s'étendait, après un temps indéterminé, il trouva son propre destin. Cette aura était extrêmement puissante et se détachait nettement dans ce chaos sans limites.
+
+Contemplant son propre destin, Wang Lin médita silencieusement. Après un long moment, il prit une décision. Son Sens Divin s'étendit et enveloppa son propre destin. Il le dévora et le fusionna avec lui-même.
+
+À l'instant même où ce destin fut fusionné en lui, le Sens Divin de Wang Lin changea radicalement. Son corps trembla violemment.
+
+Tandis qu'il tremblait, son être sembla devenir complet, comme si, désormais, il pouvait déterminer sa propre destinée. Aucune force dans ce monde ne pourrait plus changer son sort !
+
+Cette divine rétribution ne le pourrait pas ! Pas même cet homme aux sept couleurs !
+
+C'était comme s'il était devenu entier, comme s'il avait arraché son destin au ciel pour s'en libérer ! À travers les âges, les mortels avaient poursuivi le luxe de décider de leur propre sort, mais depuis l'Antiquité, presque aucun n'y était parvenu.
+
+Le destin est capricieux et la puissance d'un mortel est limitée. Ils ne peuvent que lutter contre lui en poussant des rugissements de révolte. C'est comme une fourmi prise dans la paume d'une main : elle ne peut que subir la volonté du géant, incapable d'échapper à l'étreinte de la main.
+
+Même à la fin, lorsqu'elle meurt, elle meurt dans cette paume. Même son corps est déposé là où la main le décide pour être mis au repos. Mais même ce repos est contrôlé par le destin.
+
+Les gens du monde mortel croyaient que si le roi des enfers voulait votre mort, personne ne pourrait survivre à l'aube. Les mortels avaient créé les enfers et le roi des enfers parce qu'ils craignaient la mort.
+
+Cela témoignait de la peur des hommes et de leur lutte contre le destin, mais au final, ils ne parvenaient jamais à s'en échapper.
+
+Même ceux qui croyaient l'avoir fait ne faisaient que se leurrer. Seul aujourd'hui, seul Wang Lin avait repris son destin et pris le contrôle de sa propre destinée !
+
+Après avoir récupéré son destin, il ne retira pas son Sens Divin. Celui-ci continua d'explorer le neuvième soleil, cherchant ses amis, ses proches et ceux qu'il aimait. Il allait reprendre leurs destins à lui aussi !
+
+Bien que beaucoup d'entre eux soient morts, Wang Lin ne les laisserait pas être entravés par le destin, même dans la mort !!
+
+En continuant sa recherche, il trouva son père et sa mère. Ce qui lui fit monter les larmes aux yeux fut de constater que, bien que ses parents fussent morts, leurs destins étaient toujours entrelacés.
+
+L'amour entre ses parents était calme et chaleureux. Même dans la mort, ils continuaient à compter l'un sur l'autre.
+
+Son Sens Divin enveloppa doucement les destins de ses parents. Il trouva Treize, Big Head, Zhou Yi, Qing Shuang, Qing Lin...
+
+Il trouva Maître South Cloud, Maître Hong Shan, Wang Zhuo, le vieil Empereur Divin Vermillion Bird, Dun Tian...
+
+Il trouva encore plus de monde. Il trouva son propre enfant, Wang Ping, et Zhou Ru. Il prit leurs destins afin qu'ils ne soient plus asservis par les cieux, leur permettant de s'échapper des cieux comme il l'avait fait.
+
+Il trouva également Red Butterfly, Mu Bingmei, Xizi Feng ; il retrouva tous ces visages qu'il ne pouvait oublier.
+
+Il y avait aussi Li Qianmei.
+
+Cependant, alors qu'il poursuivait sa quête, il ne put trouver Qing Shui ni Situ Nan, et il tenta même de retrouver son maître disparu, l'Omniscient. Pourtant, en fin de compte, c'était comme si leurs destins s'étaient volatilisés.
+
+Wang Lin ne put pas non plus trouver une autre personne cruciale. Cette personne était sa compagne et, aux côtés de ses parents, elle était aussi importante que sa propre vie.
+
+Cette femme s'appelait Li Muwan.
+
+Peu importe l'ardeur de ses recherches, Wang Lin ne parvint pas à trouver l'aura du destin de Li Muwan. C'était comme si elle s'était évaporée dans le néant. Pourtant, cela différait de Qing Shui, Situ Nan ou de l'Omniscient : leurs destins semblaient n'avoir jamais existé au sein du neuvième soleil.
+
+Il y avait une trace de l'existence du destin de Li Muwan, mais il semblait que quelqu'un l'avait devancé d'un pas...

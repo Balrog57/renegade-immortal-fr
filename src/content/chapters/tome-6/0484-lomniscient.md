@@ -1,0 +1,127 @@
+---
+n: 484
+title: "L'Omniscient"
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 484 - All-Seer
+slug: lomniscient
+---
+Un rayon de flammes pourpres jaillit de son doigt. La flamme vacillait et ne semblait guère impressionnante ; on aurait dit qu'elle pouvait s'éteindre à tout instant.
+
+Pourtant, cette traînée de feu était une technique que Wang Lin avait peinement réussi à apprendre de Situ Nan après un mois de travail acharné. C’était une flamme démoniaque !
+
+En utilisant l'énergie spirituelle céleste de son corps comme combustible, il avait créé un feu pour le transformer en flamme démoniaque. Selon Situ Nan, n'importe quel cultivateur ordinaire au stade intermédiaire de la Transformation de l'Âme mourrait instantanément face à ce sortilège.
+
+Son expression était glaciale tandis que la flamme dansait entre ses doigts. Grâce au vacillement de ces flammes, Wang Lin affichait une apparence profondément démoniaque lorsqu'il pointa l'homme d'âge moyen du doigt.
+
+Au moment où le brouillard noir se referma, la flamme démoniaque au bout du doigt de Wang Lin jaillit et fusionna avec la brume.
+
+En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à trois pouces de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
+
+Wang Lin ricana. Il chargea et le Fouet de l'Âme apparut dans sa main. Il abattit violemment le fouet à plusieurs reprises sur le brouillard noir.
+
+La brume tourbillonna plus violemment encore, comme si elle était sur le point de s'effondrer. Wang Lin la poursuivit de près et continua de cingler avec le Fouet de l'Âme.
+
+À cet instant, parmi les trois spectateurs, l'expression de Zhao Xingsha changea. Il chargea rapidement et cria : « Septième frère, arrête ! »
+
+Tout en parlant, Zhao Xingsha frappa son sac de rangement et un disque de lumière apparut dans sa main. Une lueur étrange brilla dans ses yeux et il s'apprêta à le lancer.
+
+Mais à ce moment précis, Wang Lin se retourna soudainement vers lui et lança : « Toi, dégage ! »
+
+Le visage de Zhao Xingsha se décomposa et il ricana. Au lieu de reculer, il s'élança plus vite encore pour projeter le disque de lumière vers Wang Lin.
+
+Wang Lin afficha un regard de mépris, pointa le char de guerre à ses côtés et ordonna : « Sceau, libère ! »
+
+À peine eut-il prononcé ces deux mots qu'un rugissement qui ébranla toute la zone environnante jaillit du char de guerre.
+
+Ce rugissement portait en lui une nature indomptable et puissante ; il était inflexible face aux cieux, face à la terre, face aux immortels, face aux démons, inflexible face à toute chose en ce monde.
+
+Le corps de Zhao Xingsha se figea et son visage devint livide. Il se retourna pour contempler le char de guerre, stupéfait, avant de battre en retraite précipitamment.
+
+Une bête spirituelle gigantesque, haute de plus de cent pieds, surgit du char de guerre. Elle leva sa tête monumentale, révélant deux yeux froids qui dégageaient un éclat démoniaque capable de faire frissonner n'importe quel être.
+
+Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il ne s'arrêta que lorsqu'il fut à plus de mille pieds de là, fixant la créature avec terreur dans les yeux.
+
+Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plusieurs centaines de pieds. À en juger par son regard, même elle redoutait cette bête.
+
+Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la division pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux ; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
+
+Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui s'en querellaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire ? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
+
+Les disciples environnants reculèrent tous en fixant Wang Lin avec stupeur, mais leurs yeux brillaient désormais d'un nouveau respect.
+
+Les forts suscitent le respect des faibles, peu importe où ils se trouvent. C'était une loi immuable du monde de la culture !
+
+Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement : « Tuez-le ! Je vous autorise à dévorer son âme en guise de récompense ! »
+
+La bête spirituelle tourna brusquement sa tête gigantesque vers Wang Lin et poussa un autre rugissement. Cette fois, elle s'élança soudainement, faisant apparaître les chaînes qui la reliaient au char. Cependant, les chaînes furent tendues à l'extrême et produisirent des cliquetis métalliques comme si elles allaient rompre.
+
+Même le char de guerre fut entraîné par la bête spirituelle.
+
+L'expression de Zhao Xingsha changea radicalement ; il recula en hurlant : « Troisième frère et quatrième sœur, agissez maintenant ! »
+
+Wang Lin ricana et ignora Zhao Xingsha, continuant de fouetter le brouillard noir. Les cris émanant de la brume devinrent de plus en plus stridents. Trois respirations plus tard, le brouillard s'effondra et l'homme d'âge moyen réapparut.
+
+L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de trois pouces.
+
+Wang Lin rangea le Fouet de l'Âme et sortit l'étendard de l'âme. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
+
+Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au loin, tous les disciples de la division pourpre baissèrent la tête, n'osant croiser son regard.
+
+Même les anciens disciplinaires inclinèrent la tête, le cœur rempli de crainte.
+
+« Comment Wang Lin, qui vient d'une planète de culture stérile, peut-il posséder de tels sortilèges ?! » Cette question hantait l'esprit de chacun depuis longtemps.
+
+Finalement, le regard de Wang Lin se posa sur Bai Wei et la femme au stade avancé de la Transformation de l'Âme. Il leur demanda calmement : « Voulez-vous toujours agir ? »
+
+Bai Wei esquissa un sourire amer et secoua la tête.
+
+Les yeux de la femme s'illuminèrent et elle rit : « Septième frère, tu as vraiment fait étalage de ta puissance aujourd'hui. Si l'occasion se présente, nous pourrons toujours nous affronter une autre fois. »
+
+Wang Lin hocha la tête, puis d'un geste de la main droite, il rappela les âmes primaires qui poursuivaient l'homme. Lorsqu'elles furent proches, il les aspira toutes, les renvoyant dans l'étendard de l'âme contenu au sein de son âme originelle.
+
+L'âme originelle de l'homme d'âge moyen était pétrifiée par la peur ; il était véritablement terrifié. Plus tôt, il avait utilisé la technique de l'Avatar Interdit pour transformer son corps en celui d'un démon immortel. Ce corps était censé pouvoir tout dévorer, mais il n'avait pu engloutir ni l'épée ni la lame, avant que cette flamme à l'apparence si faible n'envahisse son être. La flamme avait provoqué l'effondrement de son corps de démon immortel, bien qu'un fragment en subsistât. Elle avait également fait évaporer instantanément tout le sang qui coulait dans ses veines.
+
+Et ce n'était pas tout. Ce fouet étrange continuait de le frapper, et les dégâts traversaient sa chair pour atteindre directement son âme originelle. Le coup final l'avait même expulsée de son corps. Un tel sort et un tel trésor magique faisaient trembler son essence même.
+
+Puis il s'était retrouvé traqué par plusieurs fragments d'âmes de la Transformation de l'Âme. Si Wang Lin ne les avait pas rappelés, il aurait dû provoquer sa propre autodestruction et perdre une grande partie de sa culture pour espérer survivre.
+
+Quant à Zhao Xingsha, quelle que fût sa vitesse, il ne pouvait échapper à la bête spirituelle. Juste avant qu'il ne soit frappé, une lumière douce descendit du ciel.
+
+Des particules lumineuses au sein de ce rayon se rassemblèrent soudainement pour former un vieil homme. Ce dernier arborait un sourire serein et ses longues sourcils flottaient au gré du vent. Avec une pointe d'amusement sur le visage, il fit un geste vers la bête spirituelle et dit : « Quelle magnifique Bête Céleste ! »
+
+La bête tourna brusquement la tête et rugit vers le vieil homme, mais ses yeux étaient emplis de terreur.
+
+Le vieil homme secoua doucement la tête et agita sa paume. La bête poussa un cri tandis que son corps rétrécissait ; l'homme la renvoya alors vers le char et, dans un fracas assourdissant, le char de guerre redevint le piège à bêtes.
+
+Le visage de Zhao Xingsha était d'une pâleur extrême. En voyant le vieil homme, il s'inclina respectueusement : « Salutations, Maître. »
+
+Bai Wei et la femme au stade avancé de la Transformation de l'Âme devinrent également très sérieux et dirent avec respect : « Salutations, Maître. »
+
+Quant à l'homme d'âge moyen, qui n'était toujours pas réintégré dans son corps, il se montra tout aussi déférent. Il cessa toute tentative de retour et s'inclina : « Ce disciple salue le Maître. »
+
+À cet instant, tous les disciples de la division pourpre présents s'inclinèrent pour le saluer.
+
+Le vieil homme hocha légèrement la tête, puis d'un mouvement de sa main droite, l'âme originelle de l'homme fut enveloppée d'une douce lumière. L'âme de l'homme retourna dans son corps et toutes ses blessures furent instantanément guéries.
+
+Une fois cela fait, le regard du vieil homme se posa sur Wang Lin et il sourit : « En réalité, tu m'as rencontré il y a bien longtemps ! »
+
+Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains : « Le junior Wang Lin salue le senior l'Omniscient. »
+
+Le vieil homme observa le Pavillon de la Forêt Pourpre qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots : « Pavillon de la Forêt Pourpre ».
+
+« Quel beau nom ! » Le vieil homme caressa sa barbe blanche avant de pointer le pavillon du doigt. Une douce lumière blanche enveloppa l'édifice, qui fut alors totalement restauré, comme s'il n'avait jamais été endommagé. Même les fissures dans la terre, les rochers brisés et les arbres déracinés furent remis en état.
+
+Ce sort fit trembler violemment le cœur de Wang Lin.
+
+« Wang Lin, lorsque je t'ai vu sur la planète Suzaku, j'ai eu l'envie de te prendre pour disciple. J'avais initialement prévu de faire de toi un disciple honorifique pour cent ans, mais en te revoyant, j'ai changé d'avis. Wang Lin, es-tu prêt à m'accepter comme maître, à cultiver le Dao des Cieux et à devenir un véritable disciple de la division pourpre ? »
+
+L'Omniscient fixait Wang Lin avec une expression solennelle.
+
+Wang Lin soutint son regard. Après un court instant, il s'agenouilla sur un genou et dit respectueusement : « Le disciple Wang Lin salue le Maître ! »
+
+« Bien ! » L'Omniscient rit en regardant Wang Lin avec un sourire bienveillant. « Ne vas-tu pas libérer ta cinquième sœur ? Si tu t'attardes trop, ton maître ne risque-t-il pas de manquer un disciple ? »
+
+Wang Lin leva la tête et répondit calmement : « Je peux libérer l'âme originelle de la cinquième sœur, mais les deux autres ont été irrespectueuses envers moi, je ne peux donc pas les libérer ! »
+
+L'Omniscient réfléchit un instant avant de sourire. Il lança à Wang Lin un regard profond et dit simplement : « Très bien ! »

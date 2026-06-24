@@ -1,0 +1,139 @@
+---
+n: 1472
+title: "Le Dieu Ancestral à 7 Étoiles !!!"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1472 - 7-Star Ancient God!!!"
+slug: le-dieu-ancestral-a-7-etoiles
+---
+Chapitre 1472 - Le Dieu Ancestral à 7 Étoiles !!!
+
+Tuo Sen ne parvenait à rien distinguer à l'intérieur du palais. Il avait déployé toute son énergie pour forcer le passage, mais dès qu'il eut pénétré dans la salle, sa vision fut obscurcie par la silhouette gigantesque d'un corps de dieu ancestral qui lui fondait dessus.
+
+Tout s'était passé si vite qu'il ne put l'esquiver. Il ne put que lever la main droite pour tenter de résister avec la puissance de son corps de dieu ancestral à 8 étoiles. Cependant, il ne s'attendait pas à ce que cette force soit aussi terrifiante !
+
+Cette puissance dévastatrice s'engouffra dans le corps de Tuo Sen avec une violence inouïe. Les os de son bras droit se brisèrent net et il fut projeté en arrière. Tout en crachant du sang, il aperçut Wang Lin assis sur le trône, dominant la plateforme de pierre !
+
+Grâce à l'intervention de Tuo Sen, Wang Lin avait utilisé son bras droit comme tribut pour franchir la dix-neuvième respiration. La septième étoile entre ses sourcils avait désormais pris forme et atteignait le point de perfection !!
+
+La terrifiante dix-neuvième respiration descendit !
+
+Au même instant, Tuo Sen vit distinctement la septième étoile qui se forgeait entre les sourcils de Wang Lin !
+
+Personne ne connaissait mieux le corps de dieu ancestral de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il réalisa que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement !!
+
+« Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage d'Ordre Ancien !! » Les yeux de Tuo Sen étaient injectés de sang ; malgré ses blessures, il chargea comme un fou alors que la dix-neuvième respiration s'abattait.
+
+Il se déplaçait avec une rapidité extrême et allait immédiatement franchir le filet qu'il avait brisé. Il était sur le point d'entrer !
+
+Lorsque la dix-neuvième respiration frappa, la force de rejet fut impossible à calculer. La taille de Wang Lin s'effondra et la décomposition se propagea rapidement à travers son corps. En un instant, sa poitrine explosa.
+
+Son bras gauche restant émit des craquements sinistres. Juste avant qu'il ne s'effondre, Wang Lin afficha un regard de démence et pointa l'espace entre ses sourcils, faisant apparaître 20 Feuilles Ancestrales. D'un revers de la main gauche, il projeta les 20 Feuilles Ancestrales en avant.
+
+Une fois cette ultime action accomplie, son bras gauche vola en éclats.
+
+« Scellez !! Ling Dong, Zhou Jin, arrêtez cet homme ! »
+
+Les 20 Feuilles Ancestrales se déplacèrent à une vitesse fulgurante et scellèrent le filet au moment précis où Tuo Sen s'apprêtait à charger. Tuo Sen percuta les feuilles.
+
+Toutefois, la puissance de Tuo Sen était telle que même la Formation de Scellement du Royaume ne pouvait l'endiguer. Tandis que les Feuilles Ancestrales arrivaient, Tuo Sen lança un coup de poing.
+
+Des grondements de tonnerre résonnèrent et trois des 20 feuilles s'effondrèrent instantanément ! La main droite de Tuo Sen passa à travers l'ouverture créée par ces trois feuilles brisées et s'apprêtait à tout déchirer !
+
+Ling Dong serra les dents et chargea, faisant fi de ses blessures. Ses mains formèrent des sceaux et une mer pourpre monstrueuse jaillit, contenant d'innombrables âmes de Flammes Joss. Cette vague impétueuse se précipita vers l'avant !
+
+Zhou Jin bondit également dans les airs et rugit en agitant la main : « Meute de loups, adorez la lune ! »
+
+Alors qu'il parlait, des loups illusoires apparurent autour de lui. En un éclair, des centaines de milliers de loups surgirent, envahissant le monde.
+
+Une lune de sang parfaitement ronde apparut au-dessus du palais !
+
+Ces centaines de milliers de loups poussèrent des hurlements et se transformèrent en une fumée qui fusionna avec la lune de sang !
+
+Après avoir absorbé la meute, la lune de sang plongea vers le poing de Tuo Sen !
+
+Deux cultivateurs au stade initial du Néant Nirvana utilisaient leurs sorts les plus puissants contre lui !
+
+Le tonnerre gronda. Au moment où la mer pourpre de Ling Dong descendit, la lune de sang s'écrasa. La main droite de Tuo Sen fut forcée de battre en retraite !
+
+Cependant, alors que son bras se retirait, la tête de Tuo Sen surgit à travers l'interstice. Il poussa un rugissement qui ébranla le palais tout entier !
+
+Le rugissement du dieu ancestral !
+
+Son cri était comme le tonnerre et se propagea dans tout le palais. Ce rugissement assourdissant, chargé de la puissance d'un dieu ancestral, créa une tempête dévastatrice qui balaya le lieu avec une aura tyrannique. Ling Dong cracha du sang et sa mer pourpre s'effondra ; il tomba au sol, vidé de toute force !
+
+La lune de sang de Zhou Jin se distordit sous des cris misérables. Les loups absorbés disparurent un à un, et bientôt la lune elle-même se désintégra !
+
+Le visage de Zhou Jin était livide et sa poitrine s'affaissa. Il cracha du sang alors qu'il était projeté en arrière, s'écrasant violemment au sol.
+
+La tempête provoquée par le rugissement du dieu ancestral balaya le palais. Les corps d'innombrables cultivateurs s'effondrèrent. Même les huit montagnes de cadavres tombèrent en poussière, et même les huit dragons se désintégrèrent !
+
+Seuls les cadavres des trois membres du clan de l'Ordre Ancien ne furent pas balayés par ce rugissement.
+
+Tuo Sen était devenu fou !
+
+Il laissa échapper un cri féroce ! Wang Lin avait volé son héritage de mémoire, et maintenant il allait lui voler son héritage d'Ordre Ancien ; comment ne pas sombrer dans la démence ? Même au prix de blessures graves, il allait reprendre ce qu'il considérait comme le sien !
+
+Maintenant que Ling Dong et Zhou Jin ne pouvaient plus l'entraver, son bras s'engouffra dans la brèche laissée par les Feuilles Ancestrales. Il les déchira et s'apprêtait à charger à l'intérieur !
+
+Tout cela se passa à une vitesse prodigieuse !
+
+Le corps de Wang Lin continuait de se désagréger sous la force de rejet de la dix-neuvième respiration qui s'engouffrait en lui. Sa poitrine et son bras gauche se dissipèrent dans les airs !
+
+Seule une tête flottait sur le siège, maintenue connectée au trône par une volonté résiduelle ! Cependant, l'effondrement ne faisait que commencer. La dix-neuvième respiration devint extrêmement lente, comme si elle ne devait jamais finir.
+
+Des fissures apparurent sur le menton de Wang Lin avant qu'il ne se dissipe dans le néant. Ses lèvres, son nez et ses yeux disparurent également dans le vide.
+
+Seules les six étoiles entre ses sourcils demeuraient, tournant rapidement. La décomposition se poursuivait et s'apprêtait à atteindre les étoiles de dieu ancestral qui abritaient son âme originelle !
+
+Soudain, la septième étoile émit une lumière éblouissante. Puis, un flux massif de puissance de dieu ancestral jaillit de cette étoile telle une vague déferlante !
+
+En jaillissant, la septième étoile passa instantanément d'un état illusoire à un état solide. Elle franchit le seuil et était désormais... complète !!!
+
+Dès que la septième étoile apparut, les sept étoiles ralentirent pour entamer une rotation lente. Elles effectuèrent un tour complet !
+
+Une puissance de dieu ancestral des milliers de fois supérieure à celle qu'il possédait avec six étoiles éclata. Cette force descendit des sept étoiles vers la tête de Wang Lin. Ses sourcils, ses yeux clos et ses lèvres réapparurent en un éclair !
+
+Une tête entière fut reconstituée, donnant l'impression que Wang Lin renaissait. Puis, les sept étoiles effectuèrent un deuxième tour complet !
+
+Le cou, la poitrine, l'abdomen, les bras et tout le haut du corps de Wang Lin apparurent. Ses os se formèrent d'abord, suivis de sa chair et de ses organes !
+
+Chaque fibre musculaire était saturée de puissance de dieu ancestral. Chaque centimètre d'os exhalait une puissante aura divine ancienne !
+
+Lorsque les étoiles de dieu ancestral de Wang Lin achevèrent leur troisième rotation, son corps inférieur apparut soudainement. Le nouveau corps de Dieu Ancestral de Wang Lin ne mesurait pas des milliers de pieds, mais... dix mille pieds !!
+
+Un Dieu Ancestral de dix mille pieds !
+
+Un Dieu Ancestral à 7 étoiles !
+
+Un Dieu Ancestal Royal de dix mille pieds !
+
+Les yeux de Wang Lin s'ouvrirent brusquement. Son corps resta assis sur le trône ; il ne bougea pas d'un iota !
+
+Les sept étoiles tournèrent lentement avant d'accélérer brutalement tandis que la puissance du dieu ancestral remplissait son être. Wang Lin sentit qu'il pourrait pulvériser une planète d'un seul coup de poing !
+
+De plus, à cet instant précis, le coup le plus puissant du Clan de la Tortue Noire, enseigné par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience !
+
+Des scènes d'avatars issus de l'héritage jaillirent du trône !! Ces sorts étaient tels des fragments de Sens Divin, et ils devinrent ses propres souvenirs !
+
+Simultanément, parce que Wang Lin avait résisté pendant 18 respirations, son Sens Divin forgea une connexion inexplicable avec le trône !
+
+Cette connexion était extrêmement étrange. Même Wang Lin ne pouvait la comprendre en si peu de temps, et il n'avait pas le loisir de s'y attarder !
+
+C'est grâce à ce lien que le trône sembla se transformer en une plateforme. Tandis qu'il y était assis, la cartographie complète des trois couches de l'ancienne tombe apparut dans son esprit !
+
+Son Sens Divin fut amplifié des dizaines de milliers de fois par le trône via une méthode mystérieuse. Il pouvait ressentir une volonté à l'intérieur de cette tombe ! C'étaient les vestiges de la volonté de l'Ordre Ancien Ye Mo !
+
+Le Sens Divin de Wang Lin fut magnifié, puis fusionna avec cette volonté. Son Sens Divin se projeta soudainement hors du palais.
+
+Le premier à le ressentir fut Tuo Sen. Son rugissement s'interrompit et son corps trembla. La terreur se lut dans ses yeux !
+
+Dans la neuvième carte, la femme séduisante afficha une expression sombre en chargeant vers l'avant. La restriction qu'elle utilisait pour contrôler Tuo Sen s'était relâchée, ce qui l'emplissait d'inquiétude !
+
+« Je ne m'attendais pas à ce que ce petit dieu ancestral arrive le premier. Cependant, j'ai Tuo Sen, j'ai donc encore une chance... Mais comment cette restriction a-t-elle pu se relâcher... » Elle fronça les sourcils, songeant tout en volant vers l'avant.
+
+Le corps de la femme s'immobilisa soudainement tandis qu'un vent fou semblait s'échapper des failles spatiales environnantes. Elle leva brusquement les yeux et son expression changea. Elle venait de ressentir un Sens Divin capable de la faire trembler !
+
+Ce Sens Divin était d'une puissance telle qu'elle en eut le vertige. Elle resta stupéfaite un long moment avant de reprendre ses esprits. La terreur envahit son regard !
+
+« C'est... De quel Sens Divin s'agit-il ?! Se pourrait-il que l'Ordre Ancien Ye Mo n'ait pas été tué par le Souverain Céleste ?! »

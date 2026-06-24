@@ -1,0 +1,119 @@
+---
+n: 1829
+title: "L'Âme Morte du Taureau Céleste !"
+book: 12
+bookTitle: Tenth Sun of the Immortal Astral Continent
+en: "Chapter 1829 - The Dead Soul of the Heavenly Bull!"
+slug: lame-morte-du-taureau-celeste
+---
+Chapitre 1829 - L'Âme Morte du Taureau Céleste !
+
+D'un seul geste, l'ombre de phénix entourant Yan Lu s'effondra. Un vent ardent jaillit de la distorsion et forma huit piliers de fumée autour de Wang Lin !
+
+Des hurlements déchirants s'élevèrent des piliers de fumée, enveloppant toute la zone.
+
+Ces huit piliers n'étaient pas statiques ; ils tournaient autour de Wang Lin telle une tempête avant de fondre sur Yan Lu pour l'encercler. Des grondements tonitruants résonnèrent à travers les terres.
+
+Les Anciens du Grand Secte des Âmes qui observaient la scène devinrent graves. Le sort de Wang Lin était tout simplement trop stupéfiant. Même eux sentirent leur cœur rater un battement en voyant cela.
+
+« C'est un pur sort du Dao Antique, totalement différent de celui de mon clan céleste ! »
+
+« La plupart des sorts du Dao Antique ne déploient pas toute leur puissance d'un coup, mais suivent une série de combinaisons avant que leur plein potentiel n'éclate au dernier moment. L'identité de cet homme est trop sensible. Pourquoi l'Ancêtre l'a-t-il ramené... »
+
+« La culture de cette personne semble ordinaire, mais avec un tel sort, même moi je devrais battre en retraite... Si j'avais été le moins prudent, je serais déjà mort ! »
+
+« Les cultivateurs des pays antiques possèdent des corps physiques incroyables. Sa force physique doit être extraordinaire ! »
+
+Les cheveux de Yan Lu étaient ébouriffés. Elle se trouvait prise au piège par les huit piliers de fumée qui formaient une tempête de feu. Tout n'était que pénombre, et le rugissement dans ses oreilles, conjugué à la force d'aspiration, lui donnait l'impression que son corps allait s'effondrer.
+
+Un sentiment de vie ou de mort envahit son cœur.
+
+« Que diable est-il donc ?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant ! » Il était trop tard pour que Yan Lu réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade forma un sceau avant de saisir le sang pour l'écraser sans pitié !
+
+« J'utiliserai mon essence de sang pour invoquer l'Ancêtre du Grand Secte des Âmes et briser le vide !! Origine du Fantôme de l'Âme ! » La voix de Yan Lu était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
+
+Lorsque Yan Lu broya le sang, des volutes de brume sanguine s'échappèrent entre ses doigts. Rapidement, cette masse de brouillard se rassembla pour former une route de sang !
+
+Cette voie sanglante s'étendait vers le vide infini et plongeait dans l'inconnu. Un grondement tonitruant retentit, comme si une connexion avec un espace étrange s'était ouverte au bout du chemin. Une ombre de sang, couverte d'innombrables esprits vengeurs, sortit de cette dimension mystérieuse.
+
+Au moment où elle posa le pied sur la route de sang, le monde changea de couleur !
+
+« C'est le neuvième Ancêtre. L'Origine du Fantôme de l'Âme de Yan Lu peut invoquer le neuvième Ancêtre ! Depuis quand possède-t-elle une volonté aussi puissante ? »
+
+« Le neuvième Ancêtre, Luo Yunhai. Des peintures murales dans la secte dépeignent sa vie de massacre. Il était entouré d'un milliard d'âmes de vengeurs ; c'était la puissance d'une génération ! »
+
+« À son apogée, le neuvième Ancêtre avait défié le Grand Empereur Dao Yi. Il échoua et fut tué par le Grand Empereur. Cependant, devant son talent exceptionnel, son âme ne fut pas détruite et il fut autorisé à revenir au sein de la secte ! »
+
+Des rumeurs de choc parcoururent le monde alors que l'ombre de sang surgissait de la voie derrière Yan Lu.
+
+Il était impossible de distinguer le visage de cette ombre, et même son corps restait flou. Pourtant, elle dégageait une aura capable de faire trembler les cieux. Dès son apparition, elle fit un premier pas.
+
+Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se propagea dans toutes les directions. La tempête de feu autour de Yan Lu fut repoussée, comme incapable de supporter cette pression. Même Wang Lin fut stupéfait, ses yeux brillant d'un éclat vif.
+
+« Les sorts du Dao du Grand Secte des Âmes sont effectivement prodigieux ! Le statut d'Ancien est un immense avantage pour moi ! Que ce soit le Sort de l'Œil de l'Âme ou cette Origine du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre ! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle : elle portait une armure antique et ressemblait trait pour trait à Wang Lin !
+
+Tout en reculant, Wang Lin retira sa main droite et tendit son index !
+
+« Dao Démoniaque, Inversion de la Vie et de la Mort !! »
+
+À cet instant, l'expression de Yan Lu changea à nouveau. Elle sentit la puissante force vitale de son corps se muer en une aura de mort. Un sentiment de faiblesse envahit ses membres.
+
+Lorsque Wang Lin utilisa le Dao Démoniaque, le monde fut enveloppé d'une puissance funeste. Les innombrables âmes de ceux qui étaient morts dans le Grand Secte des Âmes devinrent une partie intégrante de cette aura.
+
+Cette aura mortelle était comme un océan ; en se rassemblant, elle forma une mer de mort à l'extérieur du Grand Secte des Âmes. Des rugissements retentirent et la zone fut obscurcie.
+
+Sous l'effet de ce sort, les Anciens du Grand Secte des Âmes reculèrent sans hésiter. Seuls ceux possédant un niveau de culture élevé restèrent, mais leurs visages étaient graves. Ils regardaient Wang Lin avec une profonde terreur.
+
+L'aura mortelle se concentra instantanément, mais ce n'était pas fini. Tandis qu'elle s'accumulait rapidement, Wang Lin sembla entendre un rugissement sourd provenant des profondeurs de la terre.
+
+Ce rugissement était celui du Taureau Céleste !
+
+Le Taureau Céleste était scellé sous ce continent. Il se trouvait en réalité dans un état de mort apparente. Son corps formait la terre, son âme originelle nourrissait la vie, et son essence était supprimée. Cependant, sa volonté indomptable subsistait toujours.
+
+À cet instant, le Dao Démoniaque de Wang Lin inversant la vie et la mort, une aura mortelle choquante jaillit du sol. En surgissant, elle sembla plonger le monde dans un brouillard épais. Une fois cette aura fusionnée avec la mer de mort, elle prit la forme d'un Taureau Céleste gigantesque !
+
+Le Taureau Céleste arborait une expression féroce et ses yeux étaient injectés de sang. Il poussa un rugissement terrifiant, empreint de son refus de mourir.
+
+Dès l'apparition du Taureau Céleste, tout le Grand Secte des Âmes fut ébranlé. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
+
+« Le Taureau Céleste !! »
+
+« C'est... est-ce le Taureau Céleste ?! Il a pris sa forme !! »
+
+« C'est impossible, comment peut-il en être ainsi ?! »
+
+Même les vieux monstres qui n'étaient pas sortis et qui observaient via leur Sens Divin furent choqués. Ils quittèrent leurs sommets pour contempler le Taureau Céleste formé par l'aura de mort. Même certains vieux monstres qui pensaient que ce combat ne méritait pas leur attention furent émus.
+
+Dans la partie la plus profonde du Grand Secte des Âmes, sur le pic le plus élevé, siégeait un vieil homme. Ce dernier ressemblait trait pour trait au corps véritable de l'Illustre Taureau Vert. C'était son corps originel !
+
+Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
+
+« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé !! Il y a d'innombrables années, l'Ancêtre a déplacé tout le Grand Secte des Âmes vers le Continent du Taureau Céleste et a choisi cette veine principale de terre-feu pour attendre une seule personne ! »
+
+« Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui !! »
+
+« Il n'est pas issu du Continent Astral Immortel ; il vient du monde des grottes. D'une certaine manière, il est très similaire aux 72 bêtes scellées sous les 72 continents ! »
+
+« Le Taureau Céleste provient de l'extérieur des cieux, et non du Continent Astral Immortel. Cet homme est identique, c'est pourquoi il peut déclencher l'âme du Taureau Céleste !! »
+
+Au moment où le Taureau Céleste d'aura mortelle apparut, le visage de Yan Lu devint livide. Elle n'avait pas imaginé que ce combat prendrait une telle tournure.
+
+Un rugissement déchira le monde alors que le taureau d'ombre et de mort chargeait Yan Lu, porté par l'océan funeste. Simultanément, l'ombre de sang sur la voie derrière elle leva le pied et fit trois pas !
+
+À chaque pas, le visage de Yan Lu pâlissait davantage tandis que la pression de l'ombre de sang s'intensifiait pour contrer le Taureau Céleste !
+
+Des grondements tonitruants éclatèrent. Bien que le Taureau d'aura mortelle et l'ombre de sang ne fussent pas proches, la pression qu'ils généraient entra en collision. Le monde sembla s'inverser sous l'impact.
+
+L'ombre de sang se distordit puis finit par disparaître ; au même moment, le Taureau Céleste d'aura mortelle s'effondra et la brume se dissipa. Ce taureau ne contenait qu'une infime partie de la volonté originale et était loin de la puissance du véritable Taureau Céleste. Néanmoins, il n'en demeurait pas moins redoutable !
+
+« Dieu, Démon, Diable, Dao Antique, Sans Ciel ! » murmura Wang Lin en tendant sa main comme une paume. Les trois auras des clans antiques fusionnèrent rapidement en lui. Il forma alors un poing et lança un coup dévastateur.
+
+Sous l'effet de ce coup, le géant du Dao Antique en armure derrière Wang Lin laissa échapper un hurlement invisible et frappa de concert avec lui.
+
+Ce coup percuta le vide, provoquant neuf ondulations résonnantes. Partout où les ondes passaient, des craquements retentissaient. Le ciel, les montagnes, l'herbe, les pavillons et tout ce qui se trouvait à portée furent frappés d'un éclat gris et commencèrent à se pétrifier.
+
+Yan Lu cracha une bouchée de sang et recula précipitamment. Son expression avait radicalement changé et son regard vers Wang Lin était désormais empreint de terreur.
+
+Alors que les neuf ondulations fonçaient sur Yan Lu, un rugissement retentit soudainement à travers le monde.
+
+« Assez !! Yan Lu, recule ! Tu ne peux manquer de respect au nouvel Ancien ! Quant à ton Pic de Feu, je te compenserai ! »

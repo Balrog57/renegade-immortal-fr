@@ -1,0 +1,127 @@
+---
+n: 348
+title: "L'Arbre de la Réincarnation"
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 348 - Reincarnation Tree
+slug: larbre-de-la-reincarnation
+---
+Une fois que le vieil homme Hu eut fini de parler, il saisit Xu Luo et se téléporta vers l'ouest.
+
+Qiu Siping serra les dents et utilisa lui aussi une téléportation pour les suivre rapidement.
+
+Seule la belle Yun Meng resta en arrière. Elle s'approcha de Wang Lin et murmura : « Merci infiniment, aîné. »
+
+Wang Lin resta impassible. Il la saisit, sentant sa taille fine sous sa main, tout en gardant son calme habituel. « Ferme les yeux », dit-il simplement.
+
+La jeune femme ferma aussitôt les yeux, le visage légèrement empourpré. Elle n'avait jamais été aussi proche d'un homme auparavant. Le parfum de Wang Lin lui parvint, faisant rougir ses joues davantage encore.
+
+Après l'avoir prise avec lui, Wang Lin fit un pas et disparut.
+
+La femme sentit le vent siffler contre ses oreilles comme une lame, accompagné de vagues d'énergie spirituelle, mais la bourrasque s'apaisa rapidement.
+
+Ses cils tremblèrent lorsqu'elle ouvrit les yeux. Elle vit une douce lumière bleue l'envelopper, la protégeant des vents impétueux.
+
+Elle leva discrètement la tête pour observer Wang Lin. Bien qu'il ne fût pas d'une beauté éclatante, une aura mystérieuse émanait de lui. C'était un changement singulier qui frappait tous les cultivateurs au stade de la Formation de l'Âme ; une transformation dont la nature dépendait du domaine qu'ils avaient acquis.
+
+En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les yeux. Son attention restait fixée sur Qiu Siping. La distance entre lui et le vieil homme Hu ne cessait de s'accroître. Avec le niveau de culture de Qiu Siping, il était impossible pour lui de suivre un cultivateur de la Formation de l'Âme.
+
+Une pointe d'anxiété perçait dans les yeux de Qiu Siping. En voyant Wang Lin le rattraper, il s'écria précipitamment : « Frère Wang, aidez-moi, je vous en prie ! Je suis prêt à vous offrir des trésors en échange ! »
+
+À l'origine, Wang Lin n'avait pas l'intention de se soucier de lui, car ils n'étaient pas intimes. Cependant, le mot « trésors » réveilla en lui le souvenir de la grotte souterraine où il avait suivi Qiu Siping, un lieu regorgeant de textes anciens et d'objets qu'un homme ordinaire ne pourrait jamais posséder.
+
+Il frappa son sac de rangement et la bête-moustique en sortit. Sur l'ordre de Wang Lin, elle prit Qiu Siping sur son dos, bien que ses yeux trahissent une certaine insatisfaction ; elle estimait clairement que ce dernier n'était pas digne de chevaucher sa monture.
+
+Qiu Siping poussa un soupir de soulagement. Bien que la bête-moustique fût plus lente qu'un cultivateur de la Formation de l'Âme, elle parvenait tout juste à maintenir la cadence. Il sortit rapidement une paire de cloches de son sac et dit : « Frère Wang, j'ai obtenu ceci par accident, à l'intérieur d'une bête. Ce doit être un trésor des temps anciens, mais mon niveau de culture est trop faible pour en saisir toute la puissance. Je jure cependant que ce trésor n'est pas ordinaire. J'espère que le frère Wang me permettra de cultiver sous l'arbre de la réincarnation plus tard. »
+
+Il lança les cloches vers Wang Lin. Ce dernier les attrapa et constata qu'elles étaient protégées par une restriction. Tant qu'il ne l'aurait pas brisée, il ne pourrait pas en découvrir le véritable potentiel. N'ayant pas le temps pour cela, il les rangea.
+
+À cet instant précis, deux rayons de lumière noire surgirent du lointain. Ils se transformèrent en deux visages gigantesques : l'un fonça vers le vieil homme Hu, tandis que l'autre se dirigea vers Wang Lin.
+
+Les yeux de Wang Lin s'illuminèrent. D'un geste de la main droite, il fit apparaître l'épée céleste dans sa paume. Il fendit l'air et un rayon d'énergie tranchante jaillit de son épée pour frapper le visage.
+
+Ce mouvement n'interrompit même pas la course de Wang Lin ; au contraire, il se déplaça avec une célérité accrue.
+
+Une masse de gaz noir s'accumula devant le visage pour former un immense tatouage destiné à bloquer l'énergie de l'épée. Le tatouage percuta l'attaque dans un fracas assourdissant, avant de se briser et de laisser l'énergie de l'épée se dissiper.
+
+Une silhouette émergea de la fumée. L'homme avait les cheveux blancs et le regard sombre ; une blessure fraîche saignait sur son œil droit. Il toucha sa plaie, lécha son doigt, puis se lança à la poursuite de Wang Lin.
+
+Wang Lin fronça les sourcils. « Il n'est que blessé et n'est pas mort. Cela signifie qu'il doit être un sauvage à six feuilles, une puissance équivalente à un cultivateur de la Formation de l'Âme au stade avancé. »
+
+Devant lui, le vieil homme Hu était dans un état lamentable. Il avait dû s'arrêter pour échanger des coups avec la vieille femme surgie du visage. Tout en tentant de protéger Xu Luo, il devait lutter contre elle, mais comme il n'était qu'au stade intermédiaire de la Formation de l'Âme, il était constamment repoussé et exposé à de multiples dangers.
+
+« Bête-tortue ! » hurla le vieil homme Hu. Soudain, une tortue géante apparut pour combattre la vieille femme aux côtés du vieil homme.
+
+Dès que la vieille femme aperçut la bête-tortue, ses yeux brillèrent d'avidité. Elle abandonna le combat contre le vieil homme Hu pour charger la créature.
+
+Le vieil homme aux cheveux blancs qui poursuivait Wang Lin tourna également son regard gourmand vers la tortue. Après avoir jeté un dernier regard à la vieille femme, il délaissa Wang Lin pour foncer sur la bête-tortue.
+
+À ses yeux, plutôt que de traquer un étranger, il valait mieux s'emparer du sang de cette créature pour renforcer ses propres tatouages. Quant à la bête-moustique, ils l'ignorèrent tous deux, car elle n'avait aucune valeur à leurs yeux.
+
+Wang Lin dépassa rapidement le vieil homme Hu et cria : « Camarade Hu, ne tergiverssez pas ! Il n'y aura pas que deux sauvages ici. Si nous perdons du temps, d'autres arriveront. Partons ! »
+
+Le vieil homme Hu fixa la bête-tortue attaquée par les deux sauvages, le regard empreint de regret. Cependant, il réprima cette hésitation et s'envola prestement. Il n'eut d'autre choix lorsqu'il vit trois autres rayons de lumière noire foncer vers leur position.
+
+« À l'ouest ! L'arbre de la réincarnation est à l'ouest ! » lança le vieil homme Hu.
+
+Le troisième étage était bien plus restreint que les deux premiers. Une fois arrivés à l'extrémité ouest, ils déployèrent leur Sens Divin. Les yeux du vieil homme Hu se fixèrent soudainement sur un point précis.
+
+« C'est par là ! »
+
+Wang Lin déploya son propre Sens Divin et aperçut l'arbre flétri dont parlait le vieil homme.
+
+L'arbre n'était pas imposant ; sa circonférence n'était que celle d'un bras humain. Seul et dépourvu de feuilles, il ne semblait guère différent d'un arbre ordinaire. Pourtant, c'était l'unique arbre de ce troisième étage.
+
+Le vieil homme Hu se tint sous l'arbre et déclara d'une voix grave : « Je suis déjà venu ici par le passé et je n'avais jamais vu d'arbre au troisième étage. Sans le jade de Zi Xin, je n'aurais jamais cru qu'un arbre de la réincarnation puisse exister en ce lieu. »
+
+Qiu Siping finit par les rejoindre. À leur approche, la bête-moustique le jeta brutalement au sol avant de retourner auprès de Wang Lin.
+
+Qiu Siping n'en tint pas compte. Il se téléporta près de l'arbre, exalté, et s'apprêtait à s'asseoir pour cultiver quand le vieil homme Hu le dévisagea en fronçant les sourcils.
+
+Le cœur de Qiu Siping trembla ; il jeta un regard inquiet vers Wang Lin.
+
+Wang Lin dit d'un ton calme : « Laissez-le cultiver. La culture est, par nature, un acte qui défie le ciel ; puisque son destin l'a mené ici, nous ne devons pas interférer. »
+
+Le vieil homme Hu garda le silence et tourna son regard vers Xu Luo et Yun Meng. Les deux s'empressèrent de s'installer sous l'arbre, de part et d'autre du tronc.
+
+Qiu Siping lança un regard plein de gratitude à Wang Lin avant de se concentrer intensément sur sa culture. Il savait que le temps pressait : sa capacité à atteindre le stade de la Formation de l'Âme dépendait entièrement des résultats de cet instant.
+
+Le vieil homme Hu reprit : « Frère Wang, Xu Luo et Yun Meng auront besoin de trois heures pour forcer l'arbre de la réincarnation à produire ses fruits. Nous devrons les protéger durant ce laps de temps. »
+
+Les yeux de Wang Lin brillèrent d'intérêt : « Je me demande combien de fruits de la réincarnation apparaîtront. »
+
+Le vieil homme Hu réfléchit un instant avant de répondre : « Il devrait y en avoir au moins deux. Si ce sont deux, nous en recevrons chacun un ; mais s'il y en a trois, je devrai prendre le surplus. Après tout, ce sont les gens du Pavillon de l'Affinage des Trésors qui risquent leur vie ici. J'espère que le frère Wang comprendra. »
+
+Wang Lin désigna l'arbre et rétorqua : « Très bien, mais les branches de l'arbre de la réincarnation m'appartiendront. »
+
+Le vieil homme Hu éclata de rire. « Ha ha, aucun problème ! » pensa-t-il en ricanant intérieurement. Cet arbre était déjà flétri et n'aurait plus aucune utilité après avoir été contraint de produire ses fruits ; le céder à Wang Lin ne lui coûtait donc rien.
+
+Wang Lin acquiesça. Il fit un pas en avant et saisit une branche.
+
+L'expression du vieil homme Hu changea brusquement et il s'exclama : « Camarade cultivateur Wang, que faites-vous ? »
+
+Wang Lin le regarda froidement : « Puisque ces branches me sont acquises, qu'importe si je les prends dès maintenant ? »
+
+Surpris, le vieil homme Hu s'apprêta à protester, mais Wang Lin brisa déjà une large section de bois. Il rangea la branche dans son sac et s'assit pour cultiver.
+
+Le vieil homme Hu hésita. Songeant à la renommée de Wang Lin et à la puissance de son épée, il préféra se taire. Il s'assit et sourit : « Frère Wang, ne vous méprenez pas ; si vous n'en prenez qu'une partie, cela conviendra, mais cela pourrait réduire le nombre de fruits de la réincarnation. »
+
+Wang Lin ne répondit pas. Ses mains s'activèrent, faisant apparaître des restrictions qui se déposèrent aux alentours. Ses mouvements s'accélérèrent progressivement, multipliant les sceaux.
+
+Les yeux du vieil homme Hu s'illuminèrent. Après une brève réflexion, il sortit seize petits drapeaux et les dispersa. Une fois posés, ils émitrent des lueurs violettes, comme s'ils communiquaient entre eux.
+
+Les restrictions continuaient de jaillir des mains de Wang Lin. Une fois les quatre-vingt-dix-neuf sceaux placés, il sortit un drapeau de restriction qui se mua en un nuage de brume noire, enveloppant rapidement la zone.
+
+« Mystérieux ! » s'exclama le vieil homme Hu en frappant son sac de rangement. Cinq faux noires apparurent devant lui, dégageant une puissante odeur de sang. À leur apparition, d'innombrables âmes piégées à l'intérieur tentèrent de s'échapper.
+
+D'un geste de la main, le vieil homme Hu fit plonger les cinq faux dans la brume noire.
+
+Le temps s'écoula lentement. Le troisième étage était plongé dans un silence absolu. Une aura d'un blanc laiteux s'élevait des têtes de Xu Luo et de Yun Meng pour être absorbée par l'arbre de la réincarnation.
+
+Leurs visages oscillaient entre le blanc et le rouge, trahissant une profonde douleur. Au fil des heures, cette aura blanche devint de plus en plus dense au-dessus de leurs têtes.
+
+Pourtant, l'arbre de la réincarnation ne semblait pas changer. L'aura blanche qui s'y engouffrait ne paraissait produire aucun effet visible. Même en utilisant le Sens Divin, il était impossible de percevoir où cette énergie se déversait réellement.
+
+L'apparence de Xu Luo changea ; sa jeunesse s'effaçait tandis qu'il vieillissait lentement. Des rides marquèrent son front et ses cheveux noirs virèrent au gris.
+
+Il en fut de même pour Yun Meng. Son visage enfantin se transforma progressivement pour devenir celui d'une femme accomplie. Cependant, sa beauté ne faiblissait pas ; elle acquérait désormais le charme envoûtant d'une femme mature.

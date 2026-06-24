@@ -1,0 +1,123 @@
+---
+n: 1081
+title: Rêve des Temps Anciens
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1081 - Dream of Ancient Times
+slug: reve-des-temps-anciens
+---
+À cet instant précis, des rayons de lumière apparurent au sein de l'espace infini. Ces éclats étaient d'une rapidité fulgurante et traversèrent le ciel déchiré pour s'engouffrer dans la Terre des Esprits Démoniaques.
+
+Un être céleste, imprégné d'une immense énergie spirituelle céleste, menait la charge ! Derrière lui, de nombreux autres êtres célestes avaient également ouvert la voie par le massacre. Une multitude de cultivateurs de l'Alliance arrivèrent et encerclèrent la zone.
+
+Pour l'Alliance de Cultivation, qu'il s'agisse des Quatre Sectes Divines, du Tout-Voyant ou de l'Ancien Démon Ta Jia, tous étaient des ennemis ! Même ces êtres célestes ne voulaient pas que Qing Lin s'éveille ; ils préféraient que l'ancien démon occupe son corps.
+
+Cependant, l'ancien démon était un être qu'ils devaient impérativement éliminer !
+
+La renommée de Qing Lin suffisait à terrifier les restes des êtres célestes. Même le Seigneur Céleste qui menait l'assaut avait autrefois témoigné un immense respect envers Qing Lin ; il n'osait même pas nourrir la moindre pensée de rébellion.
+
+Pourtant, ces êtres célestes avaient été vénérés durant d'innombrables années grâce à l'Alliance de Cultivation, et aucun d'entre eux ne voulait renoncer à ses acquis pour retourner au passé.
+
+Par conséquent, ils refusaient le réveil de Qing Lin ! L'ancien démon devait mourir !
+
+« Formez la formation ! » Dès qu'ils pénétrèrent dans la Terre des Esprits Démoniaques, l'ancien Seigneur Céleste poussa un rugissement. Les cultivateurs de l'Alliance formèrent rapidement des sceaux. Alors qu'une énergie originelle infinie emplissait le ciel, neuf épées géantes et étincelantes apparurent !
+
+Ces neuf épées colossales flottèrent dans les airs, encerclant une zone de cinquante kilomètres.
+
+« Affinement du Dao ! » crièrent en chœur d'innombrables cultivateurs de l'Alliance, leurs voix résonnant comme un tonnerre grondant. La formation s'activa et, à cet instant, la zone fut enveloppée par une lumière d'épée infinie.
+
+Les nombreux êtres célestes s'élancèrent pour charger les combattants en contrebas. La plupart d'entre eux visaient le brouillard noir où se trouvaient l'ancien démon et le vieil homme. Un autre groupe se dirigea directement vers le Tout-Voyant !
+
+En un instant, tout sombra dans le chaos.
+
+Pourtant, au milieu de ce tumulte, une lumière bleue monstrueuse jaillit de l'œil droit de Wang Lin. Le pilier que le Tout-Voyant avait érigé commença à s'effondrer, transpercé par cet éclat azur.
+
+Sous la force du choc, le pilier s'écrasa en un tas de gravats. Une épaisse couche de poussière s'éleva dans les airs, dispersant tous ceux qui se trouvaient sur l'édifice.
+
+Wang Lin bondit dans les airs et chargea le Tout-Voyant.
+
+L'apparition soudaine de l'Alliance de Cultivation et le sortilège de Wang Lin captèrent l'attention du Tout-Voyant. Son expression devint extrêmement sombre ; utilisant son trident, il repoussa Mu Bingmei en criant : « Puisque tu cherches la mort, je vais exaucer ton vœu ! »
+
+Mu Bingmei hésita un instant, mais la voix glaciale de Wang Lin retentit aussitôt : « Je n'ai pas besoin de ton aide !!! Quant à la pilule d'autrefois, je trouverai le moyen de te rendre la pareille au centuple ! Quant au fait de m'avoir sauvé la vie, je te le rembourserai également mille fois ! »
+
+Le visage de Mu Bingmei pâlit instantanément alors qu'elle se retirait en silence. Elle se mordit la lèvre inférieure jusqu'au sang. Fixant Wang Lin, elle hurla d'une voix empreinte de tristesse : « Je veux le voir !!! » C'était son désir le plus profond, une aspiration qui résonnait dans son esprit depuis d'innombrables années et qui la laissait toujours tourmentée.
+
+Ce « lui » était une personne que nul étranger ne pouvait connaître ou comprendre. Pourtant, le corps de Wang Lin trembla. Comment aurait-il pu ignorer ? Ce « lui » n'était autre que... Wang Ping !
+
+La mention de Wang Ping infligea une douleur atroce au cœur de Wang Lin. Si l'on ne l'avait pas vécu soi-même, il était impossible d'en comprendre l'intensité !
+
+« Tu n'es pas digne ! » Le cœur de Wang Lin se serra alors qu'il chargeait le Tout-Voyant.
+
+Mu Bingmei esquissa un sourire misérable. Elle voulut dire quelque chose, mais aucun son ne sortit de sa bouche. Alors que les êtres célestes de l'Alliance se rapprochaient, elle les fixa d'un regard glacial.
+
+La colère née des émotions complexes qui l'habitaient fut déversée sur ces êtres célestes. Elle chargea, une courte épée à la main.
+
+Ignorant la scène pour le moment, Wang Lin vola droit vers le Tout-Voyant. La lumière bleue de son œil droit était semblable à un soleil illuminant le monde, conférant à son corps une majesté indescriptible.
+
+Le Tout-Voyant, brandissant son trident, fut saisi par la peur. Cette lumière bleue contenait un sortilège qu'il ne parvenait pas à percer.
+
+« C'est... »
+
+« Tout-Voyant, notre combat prend fin ici ! » rugit Wang Lin alors que l'éclat bleu de son œil droit jaillissait et qu'un bouclier de lumière azur apparaissait. Ce bouclier, bien qu'ayant été scindé en deux, fusionna soudainement avant de se briser en d'innombrables particules de lumière qui envahirent la zone.
+
+À cet instant, le cœur du Tout-Voyant vacilla ; un sentiment de danger inconnu l'envahit. C'était une menace d'une intensité si rare qu'il en eut le souffle coupé. Sans hésiter, il porta sa main gauche entre ses sourcils et déchira violemment !
+
+Il parvint à entrouvrir le second sceau situé entre ses sourcils !
+
+Mais avant qu'il n'ait pu achever son geste, une paume gigantesque descendit du ciel. Sa vitesse dépassait l'entendement. Elle se mua en un poing massif qui s'écrasa sur le corps du Tout-Voyant.
+
+Les grondements tonnerres continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de poings colossaux s'abattit au sol dans un bruit sourd.
+
+Simultanément, un changement inimaginable se produisit dans l'espace surplombant la Terre des Esprits Démoniaques. Le ciel gronda et un vortex immense apparut, tournant à une vitesse prodigieuse.
+
+Ce vortex était vaste et sans limites, engloutissant toutes les planètes de la zone. Des scènes d'un réalisme saisissant commencèrent à se manifester.
+
+On y voyait de majestueux édifices. Ces bâtiments étaient simples, mais d'une ancienneté profonde. C'était une terre rouge sang où ne subsistaient que ces constructions infinies, comme si rien d'autre que ces structures ne soutenait l'existence du monde.
+
+Soudain, un pied gigantesque descendit des cieux pour frapper le sol. À son contact, la terre se brisa dans un fracas assourdissant.
+
+Le pied s'écrasa sur un bâtiment, le réduisant instantanément en poussière. Au même moment, un rugissement apocalyptique traversa le vide.
+
+Au sein de cette vision hyperréaliste à l'intérieur du vortex, le propriétaire de ce pied était un géant colossal ! C'était un dieu ancien ! Un dieu ancien 8 étoiles !
+
+Si cela seul n'aurait pas été assez choquant, près de cent autres géants de taille équivalente se tenaient aux côtés du dieu ancien 8 étoiles ! Ces cent colosses étaient tous des dieux anciens 8 étoiles !!
+
+Plus loin se dressait une figure encore plus immense. Les dieux anciens 8 étoiles ne faisaient pas le poids face à elle ; ils n'étaient que des fourmis comparés à un éléphant, et même cette comparaison restait dérisoire pour décrire sa taille !
+
+Plus loin encore, une vague monstrueuse d'énergie démoniaque déferla, et des démons anciens émergèrent de ce tumulte. L'énergie démoniaque infinie inonda le monde tandis que leurs rugissements et leurs cris de guerre résonnaient.
+
+Dans une autre direction, une énergie diabolique ébranlait les cieux, et d'anciens démons chargeaient avec une soif de sang démente dans le regard !
+
+C'était une bataille titanesque entre les trois clans de l'Ordre Ancien !
+
+Au sol, d'innombrables cultivateurs raffineurs de Qi s'agitaient, mais ils étaient bien plus puissants que n'importe quel cultivateur de l'ère actuelle. Regroupés par clans familiaux et arborant divers tatouages entre les sourcils, ils entamèrent un massacre frénétique !
+
+Ce champ de bataille était d'une démesure absolue. Le vortex parmi les étoiles ne montrait qu'un infime fragment du conflit !
+
+Soudain, tous ceux qui se trouvaient dans la Terre des Esprits Démoniaques remarquèrent que celle-ci avait disparu...
+
+Tout ce qu'ils connaissaient s'était évanoui ; ils avaient été projetés au cœur même de la bataille. Le paysage environnant était d'un réalisme terrifiant !
+
+Pourtant, certains refusèrent d'y croire, pensant qu'il ne s'agissait que d'une illusion. Bien que choqué, un être céleste de l'Alliance observa la scène avec dédain. Soudain, une ombre plana au-dessus de lui et le pied d'un dieu ancien s'abattit impitoyablement.
+
+Il n'eut même pas le temps d'esquiver. En un clin d'œil, le pied droit percuta la terre dans un tremblement de fougue. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée !
+
+Cette scène fit reprendre haleine à l'assistance. À cet instant, un oiseau géant de 10 000 pieds de long laissa échapper un cri féroce et survola les lieux.
+
+Un grondement tonnerre accompagna son passage ; ses ailes étaient comme des lames tranchantes. Il balaya les cultivateurs de l'Alliance qui formaient la formation, et des centaines d'entre eux furent tranchés en deux. Le sang éclaboussa tout autour...
+
+« Rêve... Rêve des Temps Anciens !! » L'ancien démon, le vieil homme et les êtres célestes qui combattaient s'arrêtèrent net, fixant la scène avec stupeur.
+
+Lorsque l'Ancien Démon Ta Jia vit cela, la terreur se lut dans ses yeux.
+
+« Les temps primordiaux !! Serait-ce un champ de bataille primordial ? » haleta le vieil homme du Royaume du Vide Brillant.
+
+C'était là le trésor salvateur que le dieu ancien 8 étoiles avait laissé au sein du bouclier de lumière azur. Le sort de survie d'un dieu ancien 8 étoiles ne pouvait être une simple formalité !
+
+Le rêve du dieu ancien, le rêve des temps anciens !
+
+À cet instant, la terre trembla avec encore plus de violence. Les quelque cent dieux anciens marchèrent sur le sol et commencèrent à charger vers tout le monde !
+
+Les clans des anciens démons rugirent également en se précipitant. Il semblait que l'endroit où se trouvaient tous les observateurs était le centre même de la bataille !
+
+La figure inconcevable qui trônait derrière les cent dieux anciens leva elle aussi son pied...

@@ -1,0 +1,145 @@
+---
+n: 369
+title: La Raison
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 369 - The Reason
+slug: la-raison
+---
+Chi Hu arriva rapidement devant Wang Lin et lui décocha un coup de pied qui le projeta très loin. Ce coup ne fit pas seulement du mal à Wang Lin ; il lui injecta même une nouvelle vague d'énergie spirituelle.
+
+« Frère Ceng, échappez-vous vers le sud-est ! » La voix anxieuse de Chi Hu parvint aux oreilles de Wang Lin.
+
+L'homme d'âge moyen comprit immédiatement la situation et laissa échapper un grognement méprisant.
+
+L'ancêtre du Clan des Démons Géants surgit et hurla : « Chi Hu, que fais-tu ?! »
+
+Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria : « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Ceng Niu, ce n'est pas quelque chose qu'il a volé ! Moi, Chi Hu, suis un homme d'honneur ! Ceng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je l'abandonner ainsi ?! »
+
+L'ancêtre du Clan des Démons Géants laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
+
+Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria : « Cette boussole stellaire ne nous sert à rien ! Et alors si je la donne à quelqu'un d'autre ? Vous avez déjà pris son épée volante ! N'est-ce pas suffisant ?! »
+
+L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
+
+« Si tu n'étais pas le cadet possédant le sang le plus pur du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat ! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel ! »
+
+Sur ces mots, il se remit à la poursuite de Wang Lin qui s'enfuyait.
+
+Chi Hu serra les poings en regardant vers la direction où Wang Lin s'était échappé.
+
+« Frère Ceng, je... j'ai fait de mon mieux... » Chi Hu était envahi par la mélancolie. Il ne pensait pas que Wang Lin survivrait. La raison pour laquelle il était prêt à offenser l'ancêtre était de ne pas se décevoir lui-même.
+
+« Moi, Chi Hu, suis un homme d'honneur ! Ceng Niu me considère comme un ami, je ne peux donc pas agir de façon aussi impitoyable. »
+
+Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'aide de Chi Hu et l'utilisait pour fuir.
+
+Tout en volant, Wang Lin pointa du doigt cette zone et soupira. Il ignorait quelle formation les ennemis avaient déployée ; il savait seulement qu'il ne pouvait ni déchirer l'espace ni se téléporter, et il sentait même que quelque chose l'empêchait d'entrer dans la perle défiant le ciel. Pour l'instant, il lui faudrait un certain temps avant de pouvoir y pénétrer.
+
+Cette formation était extrêmement mystérieuse. Non seulement Wang Lin ne pouvait pas se téléporter, mais l'ancêtre du Clan des Démons Géants qui l'avait mise en place en était également incapable.
+
+« L'épée céleste a été volée... Si je survit aujourd'hui, je dois la récupérer ! » Une lueur de haine apparut dans les yeux de Wang Lin.
+
+Cependant, à cet instant précis, l'homme d'âge moyen rattrapa Wang Lin et dit froidement : « Tu ne peux pas t'échapper. Je vais t'envoyer à la mort ! »
+
+Il leva sa main droite et pressa son pouce. Une force puissante jaillit de son doigt, mais juste avant que cette force n'atteigne Wang Lin, un domaine puissant surgit également vers lui.
+
+Ce domaine exhalait un parfum, celui du thé. C'était l'idée de consacrer tous ses efforts à l'appréciation du thé, pour faire de lui le compagnon de toute une vie.
+
+Le domaine de la Vie et de la Mort de Wang Lin apparut instantanément, mais face au domaine d'un cultivateur en stade de Transformation de l'Âme, il ne pouvait rivaliser. Il cracha davantage de sang et son âme originelle fut de nouveau endommagée.
+
+Le corps de Wang Lin tomba du ciel.
+
+Des marques semblables à des feuilles de thé apparurent sur son visage. À chaque fois qu'elles brillaient, le corps de Wang Lin s'affaiblissait. Son âme originelle se dissipait lentement.
+
+À ce moment-là, l'ancêtre du Clan des Démons Géants rattrapa la scène et baissa les yeux vers Wang Lin.
+
+« Nous avons déjà perdu trop de temps. Une fois cet homme tué, j'aurai d'autres affaires à régler. Camarade cultivateur Li, allez-y. »
+
+Les yeux de l'homme d'âge moyen s'illuminèrent et il sourit : « Tu hésites à agir par peur du Mont Suzaku. Très bien, puisque c'est mon plan, je vais m'en charger ! »
+
+Sur ces mots, il pointa Wang Lin du doigt, prêt à lui ôter la vie.
+
+Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une immense faille spatiale se déchira. Un cercueil noir et pourpre descendit des cieux.
+
+Un reniflement froid émana du cercueil : « La Formation de Scellement Démoniaque de la Vie et de la Mort... Si je ne connaissais pas déjà cette formation, il m'aurait été très difficile d'entrer. »
+
+Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura : « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis ?! Je dois dire que vous deux, vieux débris, n'avez-vous pas honte de devoir vous liguer pour tuer un simple junior en stade de Formation de l'Âme ? »
+
+« La Secte des Cadavres ! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
+
+Le vieil homme en robe rouge était le Grand Ancien de la Secte des Cadavres, Sun Tai !
+
+L'expression de Sun Tai était sombre alors qu'il observait l'homme d'âge moyen. Il reporta ensuite son regard sur l'ancêtre du Clan des Démons Géants, jurant intérieurement. Bien que l'ancêtre ne fût qu'au début du stade de Transformation de l'Âme, il savait que les membres de ce clan accédaient à la puissance de leur lignée dès qu'ils atteignaient ce niveau. Même si Sun Tai était au milieu de la Transformation de l'Âme, cette puissance était une force avec laquelle il ne souhaitait pas se mesurer trop facilement.
+
+Sun Tai déclara : « Je vais emporter cet homme ! »
+
+« Camarade cultivateur... » L'homme d'âge moyen de Xue Yue s'apprêta à intervenir.
+
+Sun Tai le coupa d'un cri : « Ferme ta sale gueule et dégage ! Un simple cultivateur au début de la Transformation de l'Âme, et qui l'a atteint par la force en plus, n'a pas les compétences pour me parler ! »
+
+Le visage de l'homme d'âge moyen passa du bleu au rouge. Depuis qu'il avait atteint le stade de Transformation de l'Âme, il était traité comme un souverain à Xue Yue. Même face à d'autres cultivateurs de son rang, aucun n'osait lui adresser la parole ainsi.
+
+Sun Tai renifla et tourna son regard vers l'ancêtre du Clan des Démons Géants.
+
+L'expression de ce dernier était lugubre. Après une courte réflexion, il secoua la tête et dit : « Non, cet homme doit mourir, et sa dépouille doit m'appartenir ! »
+
+L'homme d'âge moyen de Xue Yue fut surpris. Il tourna la tête vers l'ancêtre ; c'était la première fois qu'il exprimait le désir de récupérer le cadavre.
+
+Sun Tai ricana : « Tu n'es pas membre de ma Secte des Cadavres. Quel intérêt aurais-tu pour un corps ?! »
+
+L'ancêtre du Clan des Démons Géants fixa Sun Tai et trancha : « J'ai mes propres raisons ! »
+
+Il en avait effectivement une. Même si l'homme de Xue Yue n'était pas venu le solliciter, il aurait agi secrètement pour tuer Wang Lin.
+
+Il savait que le vrai nom de Ceng Niu était Wang Lin !
+
+Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan qui s'était rendu sur un champ de bataille étranger il y a 500 ans !
+
+« La perle défiant le ciel est un trésor que même l'Alliance des Cultivateurs convoite ! Si mon Clan des Démons Géants l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter Suzaku et obtenir notre propre planète. Mon clan aurait alors la capacité de posséder des cultivateurs de niveau Ascendant. »
+
+« La perle défiant le ciel a été obtenue par ce Wang Lin ! » Toutes ces pensées traversèrent son esprit. Il s'était fait une certitude : personne ne volerait Wang Lin aujourd'hui !
+
+L'année où le membre du clan avait rapporté la nouvelle, l'ancêtre l'avait immédiatement tué et avait soigneusement fouillé son âme. Ayant déterminé que l'information n'avait pas été divulguée et que très peu de gens étaient au courant, il avait décidé de ne pas massacrer tout le monde et de chercher secrètement Wang Lin.
+
+Cependant, malgré son immense pouvoir, Wang Lin semblait s'être évaporé, et Suzaku était bien trop vaste. Selon les informations recueillies, Wang Lin avait disparu dans une faille spatiale au sein du champ de bataille étranger.
+
+Il s'y était donc rendu personnellement pour chercher pendant cent ans dans cette faille, sans aucun succès.
+
+Il avait fini par laisser l'affaire de côté, empreint de regret, pensant que Wang Lin était mort sans laisser de trace et que la perle défiant le ciel était à nouveau perdue.
+
+Mais tout avait changé avec l'apparition de Ceng Niu. Il avait trouvé les propos de Chi Hu suspects. Après avoir utilisé son autorité d'ancêtre pour le contraindre, Chi Hu lui avait finalement avoué la vérité.
+
+L'ancêtre devint instantanément méfiant. Après quelques investigations, il découvrit que Ceng Niu était en réalité Wang Lin !
+
+Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il ne pouvait pas agir sans risquer de voir ses espoirs s'effondrer.
+
+Cependant, il avait bien tué l'autre personne au courant de cette affaire : un messager d'un pays de culture de rang 4. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
+
+Un jour, Li Yuan de Xue Yue était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait utilisé l'excuse de la récupération de la boussole stellaire pour s'approcher du prisonnier.
+
+Ainsi, même si Suzaku enquêtait, c'est Xue Yue qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, il pourrait utiliser une technique secrète pour localiser l'objet.
+
+Les yeux de Sun Tai s'assombrirent. Il renifla et vola vers Wang Lin.
+
+L'homme d'âge moyen s'élança rapidement. Il sortit une montre en bronze, prêt à barrer la route à Sun Tai.
+
+Mais Sun Tai hurla : « Dégage ! » Une force jaillit de son corps, faisant hésiter l'homme d'âge moyen.
+
+« Oses-tu ?! » L'ancêtre du Clan des Démons Géants lança un coup de poing. Un vortex noir apparut soudainement et se referma sur Sun Tai.
+
+La main droite de Sun Tai pointa le cercueil derrière lui. Le couvercle bougea légèrement et un corps momifié s'en échappa pour affronter l'ancêtre du Clan des Démons Géants.
+
+Sun Tai profita de cette diversion pour tendre la main et saisir Wang Lin. Ce dernier était extrêmement faible ; ses yeux étaient clos et son visage d'une pâleur mortelle.
+
+Sans un mot, Sun Tai fit volte-face et s'engouffra dans la faille.
+
+L'expression de l'homme d'âge moyen était troublée. Il hésita un instant, puis resta immobile.
+
+Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "mouton gras" lui être volé ainsi ? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre cent pieds de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
+
+Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan des Démons Géants était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
+
+Boum !
+
+Après une explosion fracassante, Sun Tai jaillit de la faille.

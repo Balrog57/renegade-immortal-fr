@@ -1,0 +1,53 @@
+@import "tailwindcss";
+
+/* ===== Design tokens: dark, mystical, "xianxia premium" ===== */
+:root {
+  --bg-0: #05040a;
+  --bg-1: #08060f;
+  --bg-2: #0d0a18;
+  --bg-3: #14101f;
+  --line: #2a2336;
+  --ink-1: #ece8df;
+  --ink-2: #c3b9c5;
+  --ink-3: #8b8194;
+  --ink-4: #5a5364;
+  --gold: #c8a44a;
+  --gold-dim: #7a6326;
+  --crimson: #b3261e;
+  --crimson-dim: #6e1813;
+  --crimson-2: #cf6a3a;
+  --mystic: #4a6ed8;
+  --mystic-2: #2a3a8a;
+  --r-md: 6px;
+  --r-lg: 10px;
+  --ease: cubic-bezier(.2,.7,.2,1);
+}
+
+html { background: var(--bg-0); }
+
+body {
+  background: var(--bg-0);
+  color: var(--ink-1);
+  font-family: 'Noto Serif', Georgia, serif;
+  -webkit-font-smoothing: antialiased;
+  text-rendering: optimizeLegibility;
+}
+
+/* Typography helpers */
+.font-cinzel { font-family: 'Cinzel', serif; }
+.font-cormorant { font-family: 'Cormorant Garamond', serif; }
+
+a { color: var(--crimson-2); text-decoration: none; }
+a:hover { text-decoration: underline; text-underline-offset: 3px; }
+
+/* Headings default */
+h1, h2, h3 { font-family: 'Cinzel', serif; letter-spacing: .03em; }
+
+/* Selection */
+::selection { background: rgba(207, 106, 58, .3); color: #fff; }
+
+/* Scrollbar (webkit) */
+::-webkit-scrollbar { width: 10px; height: 10px; }
+::-webkit-scrollbar-track { background: var(--bg-1); }
+::-webkit-scrollbar-thumb { background: var(--bg-3); border-radius: 6px; border: 1px solid var(--line); }
+::-webkit-scrollbar-thumb:hover { background: var(--line); }

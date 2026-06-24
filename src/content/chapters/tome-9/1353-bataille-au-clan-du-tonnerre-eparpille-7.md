@@ -1,0 +1,109 @@
+---
+n: 1353
+title: "Bataille au Clan du Tonnerre Éparpillé ! (7)"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1353 - Battle at the Scatter Thunder Clan! (7)"
+slug: bataille-au-clan-du-tonnerre-eparpille-7
+---
+Les huit âmes de dragons de tonnerre anciens furent déchiquetées et se dissipèrent rapidement. Cependant, alors que Wang Lin inspirait, il en absorba 30 %.
+
+Au moment où les âmes originelles des dragons de tonnerre anciens pénétrèrent dans son âme originelle, le tonnerre à l'intérieur de celle-ci déferla. Le tonnerre au sein de son corps rugit et se métamorphosa en des serpents d'argent de cent pieds de large et de mille pieds de long. Les craquements qu'ils émettaient ressemblaient au claquement de fouets cinglant le ciel !
+
+Une puissance tonnerreuse indescriptible émana de l'âme originelle de Wang Lin. Elle était capable de briser les cieux !
+
+Tout le tonnerre, tous les éclairs et tout ce qui se rapportait au tonnerre se formèrent rapidement en lui. Il semblait vaguement saisir quelque chose, mais tout restait encore flou.
+
+L'essence du tonnerre dissimulée dans son âme originelle commença à s'étendre follement. Tel un cœur battant, chaque pulsation faisait croître l'essence du tonnerre, engendrant toujours plus d'énergie essentielle !
+
+Ce qui était encore plus stupéfiant concernait l'âme originelle de Wang Lin. Lorsqu'il avait dévoré la moitié d'un dragon de tonnerre ancien dans les Terres des Esprits Démoniaques, son âme originelle s'était transformée en celle d'un tel dragon. Puis, au fil des années, elle s'était progressivement métamorphosée pour former l'essence du tonnerre. Son âme originelle était désormais presque un éclair de tonnerre !
+
+Cependant, ce n'était encore qu'un « presque ». Son âme originelle n'était pas encore véritablement devenue un éclair !
+
+À cet instant, son âme originelle commença à changer radicalement ! Elle évoluait sans cesse pour devenir un véritable éclair de tonnerre ! Les dragons de tonnerre anciens qu'il avait dévorés poussaient son âme originelle vers la perfection !
+
+Auparavant, bien que son âme originelle fût au même niveau que l'Éclair Éternel du Clan du Tonnerre Éparpillé, ils n'étaient que de niveau équivalent. Il existait toujours des différences de puissance au sein d'un même rang. Mais tout cela était en train de changer rapidement !
+
+La compréhension du tonnerre par Wang Lin se voyait confirmée des dizaines de milliers de fois. Son âme originelle laissa échapper un rugissement, se mua en une dévoreuse d'âmes et aspira à nouveau !
+
+Le monde changea de couleur, l'espace trembla et d'innombrables fissures spatiales apparurent. Toutes les âmes restantes des dragons de tonnerre anciens furent aspirées dans l'âme originelle de Wang Lin !
+
+À cet instant, l'âme originelle de Wang Lin s'agita frénétiquement et se condensa, quittant sa forme brumeuse. Une puissance terrifiante d'essence du tonnerre jaillit de son âme originelle.
+
+Dès que cette aura apparut, le lac de tonnerre entourant le Clan du Tonnerre Éparpillé recula et se soumit ! À mesure que l'aura se propageait, l'Éclair Éternel dans la terre sainte du clan laissa échapper un rugissement fracassant, pour la première fois depuis le début de la bataille !
+
+Ce rugissement semblait provenir d'une époque antique et portait une pression indescriptible. C'était comme un défi lancé par l'Éclair Éternel après avoir détecté une menace potentielle !
+
+Tandis que l'âme originelle de Wang Lin se rétractait, son aura d'essence du tonnerre s'étendit. En un instant, des éclairs aveuglants en jaillirent. Alors que son âme originelle continuait de rétrécir, la brume disparut pour laisser place à un gigantesque tatouage de tonnerre émergeant des ténèbres.
+
+Dès l'apparition de ce tatouage, une pression égale à celle de l'Éclair Éternel se propagea. Le monde trembla, l'espace lui-même s'effondra, et le grondement du tonnerre fit vibrer les cieux !
+
+L'Esprit du Tonnerre tournait rapidement autour de la foudre pour former ce tatouage !
+
+Bien que cela puisse paraître lent, tout se produisit en un éclair. Le Grand Ancien fut stupéfait par ce changement soudain. Il n'avait jamais entendu parler d'un être capable de dévorer des dragons de tonnerre anciens !
+
+Pourtant, un puissant sentiment de crise éclata dans son cœur. Il sentit vaguement qu'un malheur se préparait. Le rugissement de l'Éclair Éternel semblait presser le Grand Ancien !
+
+« Je ne peux pas le laisser continuer. Je dois l'arrêter, sinon ce sera une catastrophe pour mon Clan du Tonnerre Éparpillé ! » L'expression du Grand Ancien devint hideuse alors qu'il reprenait ses esprits. Il poussa un rugissement et se précipita vers Wang Lin.
+
+Cependant, juste au moment où il allait le rattraper, le tatouage de tonnerre formé par l'âme originelle de Wang Lin se rétracta pour venir se loger entre ses sourcils. Son âme originelle retourna dans son corps dans un grondement sourd. Chaque fibre de ses muscles, chaque centimètre de ses os et même ses organes internes furent imprégnés du pouvoir de la foudre !
+
+C'était comme s'il s'était réincarné en tonnerre !
+
+La marque de tonnerre brilla dans son œil droit et l'essence du tonnerre apparut, dix fois plus puissante qu'auparavant. Alors que le Grand Ancien approchait, Wang Lin agita sa main droite.
+
+Des grondements tonitruants résonnèrent de toutes parts. Un fin filet de tonnerre se déploya autour de Wang Lin. Ce réseau contenait sa volonté et ne pourrait être brisé, à moins de faire face à un cultivateur du tonnerre capable de rivaliser avec lui en termes d'essence ; sinon, il n'y avait aucune chance !
+
+D'un geste de la main, il fit apparaître de plus en plus de filets, couche après couche. Bientôt, 10 couches, 100 couches, 1 000 couches, 10 000 couches... jusqu'à 70 000 !
+
+Le Grand Ancien fondit soudainement sur lui, la main tendue, déployant sa cinquième Affliction Céleste. Il déchira des dizaines de milliers de couches de ce filet, mais elles se rétablirent instantanément !
+
+« Je dois trouver un endroit sûr pour m'isoler en culture et absorber tout cela. Je ne peux pas poursuivre ce combat ! » Wang Lin recula rapidement, tandis que le talisman menant aux 7 Millions de Mondes apparaissait dans sa main gauche !
+
+Voyant Wang Lin battre en retraite, le Grand Ancien sembla perdre la raison, le sentiment de danger dans son cœur devenant de plus en plus oppressant !
+
+« Je ne peux pas le laisser s'échapper ! » Le Grand Ancien cracha du sang et se transforma en un éclair de tonnerre sanglant. La marque entre ses sourcils brilla et la foudre se concentra dans cet éclair écarlate qui frappa le réseau de Wang Lin.
+
+Le monde entier résonna de grondements tonitruants tandis que 60 000 des 70 000 couches du filet s'effondraient instantanément. Cependant, alors que le Grand Ancien allait charger, les 60 000 couches se régénérèrent aussitôt !
+
+Toute la culture du Grand Ancien reposait sur le tonnerre et, au début de ce combat, il détenait l'avantage. Mais l'essence du tonnerre de Wang Lin avait tellement augmenté qu'il ne pouvait plus l'affronter de front. Si c'était n'importe quel autre cultivateur de la cinquième Affliction Céleste, tuer Wang Lin aurait été bien plus simple. Mais ce n'était pas le cas ici : tous deux étaient des cultivateurs du tonnerre, et ils se disputaient la suprématie sur l'élément !
+
+À cet instant, Wang Lin reculait encore plus vite, troublé par le talisman qu'il tenait. Sans avoir le temps de réfléchir, son regard devint d'une détermination absolue !
+
+Un cultivateur de la cinquième Affliction Céleste ne se limitait pas à ce qu'il avait montré jusqu'ici. Il représentait la puissance suprême sous le troisième stade. Une fois ce niveau atteint, on était bien plus fort que les cultivateurs de la quatrième Affliction Céleste.
+
+Mais cela exigeait l'usage d'un sort unique aux maîtres de la cinquième Affliction !
+
+Le Sort de Vie !
+
+Sacrifier sa propre existence et utiliser sa vitalité pour déclencher un sort imprégné d'une nuance du troisième stade. C'était là la véritable raison pour laquelle les cultivateurs de la cinquième Affliction étaient les plus puissants avant d'atteindre le troisième stade !
+
+Le Grand Ancien n'avait jamais eu à l'utiliser dans ses combats. Sa vitalité était déjà entamée et il devait maintenir sa culture scellée pour ne pas s'épuiser trop vite ; il luttait pour survivre assez longtemps afin de saisir sa chance d'atteindre le troisième stade !
+
+Mais il n'avait plus le luxe de réfléchir. Une intention meurtrière embrasa ses yeux alors qu'il pointait sa main droite vers le ciel et hurlait :
+
+« Sacrifice aux cieux ! En tant que serviteur de l'Éclair Éternel descendu dans mon clan, je sacrifie 500 ans de ma vie en échange d'un corps divin. Je demande à la sainte foudre de descendre sur moi et de me transformer en... le Chaos Tonnerre Invincible ! » La voix du Grand Ancien prit une tonalité étrange. Aussitôt, sa marque projeta un éclat brûlant.
+
+Une boussole gigantesque apparut vaguement dans le monde. Cette boussole était infinie ; on pouvait l'apercevoir simplement en levant les yeux. Même hors du Clan du Tonnerre Éparpillé, elle restait parfaitement visible !
+
+Cette boussole dégageait une aura antique et paraissait endommagée par endroits, comme si elle avait failli s'effondrer lors d'une grande guerre. Pourtant, lors de son apparition, une pression colossale descendit sur le monde !
+
+Cette pression était si intense qu'elle fit craquer les 70 000 couches de tonnerre entourant Wang Lin, comme si elles atteignaient leur point de rupture. L'expression de Wang Lin se crispa alors qu'il fixait la boussole avec gravité.
+
+Sa main droite, tenant le talisman, ralentit également.
+
+Il voulait voir ce que cette mystérieuse boussole représentait et quelle était la puissance réelle d'un sort de cinquième Affliction Céleste !
+
+Une fois apparue, la boussole se mit à tourner silencieusement. À mesure qu'elle pivotait, le temps sembla s'accélérer, projetant le monde des années durant en un instant !
+
+Le visage du Grand Ancien pâlit, comme si une partie de son âme lui était arrachée. Une aura de mort envahit ses traits, avant de se dissiper aussitôt.
+
+Lorsque l'aura disparut, la grande boussole s'évanouit également, comme si elle avait puisé assez de vitalité pour accomplir sa tâche. Après sa disparition, un éclair sembla se détacher de l'Éclair Éternel dans la terre sainte et fonça vers le champ de bataille.
+
+L'éclair arriva instantanément. Alors que le Grand Ancien du Clan du Tonnerre Éparpillé poussait un rugissement, la foudre s'abattit sur les 70 000 couches de divine retribution de Wang Lin.
+
+Le fracas qui en résulta fit trembler les cieux et les 70 000 couches s'effondrèrent d'un coup. Bien qu'elles tentassent de se régénérer, elles furent immédiatement balayées à nouveau par une puissance tonnerreuse dévastatrice. Les pupilles de Wang Lin se contractèrent ; il n'hésita pas une seconde et broya le jade alors que l'Éclair Éternel convergeait vers lui !
+
+Un vortex noir apparut soudainement derrière Wang Lin. Il fit un pas en arrière et disparut instantanément ! L'Éclair Éternel s'engouffra dans le vortex.
+
+Le Grand Ancien hésita un instant, mais voyant que le vortex était sur le point de se refermer, il n'eut plus le temps de réfléchir. Il se précipita à son tour dans le vortex !

@@ -1,0 +1,37 @@
+---
+name: Corpse Yin Sect
+title: Corpse Yin Sect
+type: secte
+categories: ["Organisations", "Sects", "Great Sect", "Brilliant Void Star System", "Sealed Realm", "Wang Lin's Cave World"]
+image: /renegade-immortal-fr/wiki/images/Corpse Yin Sect(Country of Zhao).webp
+url: "https://xian-ni.fandom.com/wiki/Corpse_Yin_Sect"
+
+---
+![Corpse Yin Sect](/renegade-immortal-fr/wiki/images/Corpse Yin Sect(Country of Zhao).webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Corpse_Yin_Sect) (CC BY-SA)
+
+**Catégories :** Organisations, Sects, Great Sect, Brilliant Void Star System, Sealed Realm, Wang Lin's Cave World
+
+## Practices
+
+They collect resentment and like to target the Giant Demon Clan for possession because of their strong bodies. They are highly valued in the Cultivation Alliance because they can produce replacement bodies for cultivator’s who had their original bodies destroyed during battle.
+
+The sect places strict requirements upon its disciples, for example they must reach Qi Condensation 's tenth layer in ten years, Foundation Establishment in thirty years and Core Formation in a century. Should they fail at this, they will be refined into a corpse puppet. They mass recruit to compensate for this and each new disciple has a portion of their soul sealed into a jade as both a symbol of membership and a means of preventing rebellion. At this point, a cultivator from a Rank 4 or 5 country is placed into the Core Formation disciple's corpse puppet. This cultivator will in time devour the puppet's owner's soul and possess their body. In essence, the disciples are cattle being raised for their bodies, some sects even pay to have a whole branch of the Corpse Yin Sect act as their exclusive resource. However, should the disciple reach Nascent Soul , they will be allowed to possess someone else's body after their's is taken away by the same method, but if they don't reach Soul Formation in an acceptable amount of time after, then they will be sent to die in a Foreign Battleground . Each branch also teaches the Disciples a different technique to accommodate their clientele, for example the Country of Zhao branch practiced the Underworld Ascension Method . Should the disciple reach Soul Formation they'll become an elder in a Rank 4 country and are then given 1000 years to reach Soul Transformation .
+
+If a disciple breaks the jade given to them it releases the bonds on the corpse puppet and so the soul trapped within eats the disciple who was cultivating it.
+
+### Main Sect
+
+The main sect of the Corpse Yin Sect is governed over by the Eight Kings of the Corpse Yin Sect, all of whom are Heaven's Blight cultivators. They also have a Third Step Ancestor named Master South Cloud . All nine of these entities tend to remain in closed door cultivation unless some matter arises that is worthy of their attention.
+
+### Planet Suzaku
+
+On Planet Suzaku , many Corpse Yin Sect branches were mysteriously hidden in almost every Rank 3 country and above with a Rank 5 serving as the local "Main Branch". The Zhao Branch was particularly significant as it acted as a transfer hub for several other branches, the advancement test for Rank 1 and 2 country branches were even held there. However these branches were wiped out by Wang Lin when they angered him by having his descendants collect resentment for them.
+
+### History
+
+The Eight Kings entered the Land of the Ancient God inside the Sea of Devils after hearing about it from Wang Lin. There, five of them died to Tuo Sen while the remaining three were saved by Master South Cloud .
+
+After Wang Lin returned from the Outer Realm , he executed the traitor Daoist Water . During that time, Daoist Water attempted to destroy the Golden Bell he received from the Ancient Celestial Realm to destroy the Cloud Sea Star System and escape to the Outer Realm . Master South Cloud , Master Hong Shan , Zhou De, Cloud Edge and Esteemed Great Void attempted to stop him but could not. Just when they began despairing, Wang Lin 's Nether Beast appeared and swallowed the golden storm energy from the destroyed Golden Bell.
+

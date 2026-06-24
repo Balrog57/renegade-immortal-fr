@@ -1,0 +1,35 @@
+---
+import Nav from '~/components/Nav.astro';
+import Footer from '~/components/Footer.astro';
+import '~/styles/global.css';
+
+interface Props {
+  title: string;
+  active?: string;
+  bare?: boolean;
+}
+
+const { title, active = '', bare = false } = Astro.props;
+---
+<!DOCTYPE html>
+<html lang="fr">
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>{title} — Renegade Immortal FR</title>
+  <link rel="preconnect" href="https://fonts.googleapis.com" />
+  <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+  <link rel="preconnect" href="https://static.wikia.nocookie.net" />
+  <link
+    href="https://fonts.googleapis.com/css2?family=Cinzel:wght@500;600;700&family=Cormorant+Garamond:ital,wght@0,400;0,600;1,400&family=Noto+Serif:ital,wght@0,400;0,600;1,400&display=swap"
+    rel="stylesheet"
+  />
+</head>
+<body class:list={['min-h-screen', { 'is-home': active === 'home' }]}>
+  {!bare && <Nav title={title} active={active} />}
+  <main class="max-w-[1280px] mx-auto px-6 py-8">
+    <slot />
+  </main>
+  {!bare && <Footer />}
+</body>
+</html>

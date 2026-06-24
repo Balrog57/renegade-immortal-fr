@@ -1,0 +1,125 @@
+---
+n: 1006
+title: Crise
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1006 - Crisis
+slug: crise
+---
+Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xiang se rua sur les deux autres. Ses mains formèrent un sceau, puis il en saisit un et le lança vers Maître Yi Long.
+
+Désormais, il ne restait plus qu'un seul soldat !
+
+Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Hollow Wind s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Hollow Wind affrontait désormais quatre soldats célestes.
+
+Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Hollow Wind et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre de l'Esprit Démoniaque à l'époque et s'il n'avait pas été déterminé à briser les restrictions, même en atteignant ce stade, il n'aurait eu aucun moyen de faire face à l'esprit floral ou aux soldats célestes.
+
+L'expression de Wang Lin demeurait calme alors qu'il marchait vers le palais central. Cependant, avant même qu'il ne puisse s'en approcher, un changement choquant se produisit.
+
+À cet instant, les quatre tours devinrent floues pour Wang Lin et se transformèrent en illusions. Simultanément, des lueurs puissantes émanèrent de ces illusions.
+
+Ces lumières fusionnèrent pour former une carapace de tortue qui entoura le palais. De loin, on aurait dit qu'une gigantesque carapace recouvrait l'édifice.
+
+Au même moment, quatre volutes de fumée verte s'échappèrent de la carapace et se transformèrent en quatre anciens vêtus de robes vertes !
+
+Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de culture oscillait entre le début et le milieu du stade Nirvana Scryer.
+
+Les quatre anciens dégageaient tous une aura céleste et une énergie spirituelle céleste dense. L'un d'eux, dont les yeux brillaient comme la foudre, fixa Wang Lin et hurla : « Saleté des bas-mondes, tu oses envahir la grotte céleste ? Ta punition est la mort ! »
+
+Sitôt ses paroles prononcées, il ne laissa même pas le temps à Wang Lin de s'expliquer ; il fit un pas en avant et pointa le ciel. Toute l'énergie spirituelle céleste de la grotte se rassembla pour former un vortex au creux de sa main.
+
+Le vortex s'effondra sous le geste de l'homme, mais un rugissement en jaillit aussitôt. Une bête surgit du vortex décollapsed !
+
+Cette créature était couverte d'une fourrure noire ; il s'agissait manifestement d'un immense singe primitif. Mesurant environ trois mètres de haut, elle se rua directement sur Wang Lin.
+
+L'ancien bougea avec une expression sombre. Il se transforma en un rayon de lumière verte et chargea Wang Lin, passant derrière le singe primitif.
+
+Les trois autres anciens s'élancèrent également. L'un d'eux leva la main, provoquant l'apparition d'une tempête de sable et de poussière qui prit la forme d'un python tentant d'engloutir Wang Lin.
+
+Un autre étendit le bras, lequel se mua en fumée verte. Tandis que l'énergie spirituelle céleste de la grotte convergeait, il se transforma en un aigle géant qui fonça sur Wang Lin tel un éclair.
+
+Les yeux du dernier ancien s'illuminèrent et ses mains formèrent un sceau. Il pointa le ciel et cria : « Attaque de la Montagne Céleste ! »
+
+À l'instant même où il parla, un grondement retentit dans la grotte, puis une montagne massive apparut et s'abattit sur Wang Lin !
+
+En un instant, les quatre anciens attaquèrent de concert. Leurs sorts célestes fusionnèrent avec une intention meurtrière !
+
+Les yeux de Wang Lin brillèrent intensément et, loin de reculer, il chargea en avant. Alors que le singe approchait, la main droite de Wang Lin se serra en un poing et il lança un coup. Un fracas assourdissant accompagna son mouvement et, dans leur élan respectif, le poing de Wang Lin percuta la poitrine du singe.
+
+Des grondements sourds résonnèrent dans le haut du corps du singe géant, qui recula brusquement. Cependant, il ne fit que trois pas avant que la moitié supérieure de son corps n'explose.
+
+Sans perdre un instant, Wang Lin bondit dans les airs. Il pointa vers le bas et dit calmement : « Paire de Flétrissement du Dao ! »
+
+À sa parole, la Paire de Flétrissement du Dao sur le dos de sa main libéra une lueur sombre et s'élança. Un crâne de bête sinistre, enveloppé d'une brume noire, vola vers l'ennemi. Une lumière fantomatique émanait des orbites du crâne !
+
+À cet instant, une aura meurtrière terrifiante apparut ; alors que la lumière spectrale brillait, une lueur grise recouvrit l'aigle géant qui fonçait sur lui. En un éclair, l'aigle se mua en une statue de pierre !
+
+Au même moment, le python noir s'approcha. Il ouvrit la gueule, créant une puissante force d'aspiration. Une odeur de sang écœurante s'en dégagea tandis qu'il tentait de dévorer Wang Lin. Un éclat de froideur passa dans les yeux de Wang Lin qui, en reculant, frappa son sac de contenance et cria : « Trois séries de neuf épées ! »
+
+Des épées dorées jaillirent immédiatement de son sac et flottèrent autour de lui. Il y en avait vingt-sept ! Dès leur apparition, elles s'organisèrent en une formation d'épées et foncèrent sur le python géant.
+
+Boum, boum, boum, boum !
+
+Alors que des grondements fracassants résonnaient, le python fut encerclé par les vingt-sept épées. Celles-ci le transpercèrent rapidement, arrachant à la créature des cris de douleur déchirants.
+
+Bien que tout cela semble lent, l'action se déroula en un éclair. La grotte intérieure s'obscurcit soudainement alors que la montagne céleste pénétrait la brume blanche pour s'écraser !
+
+L'expression de Wang Lin resta imperturbable tandis qu'il projetait un objet : les dix-huit Sceaux Célestes de l'Enfer ! Dès son apparition, l'objet grandit et chargea la montagne céleste.
+
+Il percuta la montagne dans un fracas colossal.
+
+Profitant de cet instant, une intention meurtrière fulgurante brilla dans les yeux de Wang Lin qui hurla : « Invoque le Vent ! »
+
+Soudain, les couleurs du monde basculèrent, puis un vent noir apparut dans la main de Wang Lin, recouvrant l'univers. Quatre dragons noirs surgirent immédiatement de ce vent et chargèrent dans un rugissement de fureur.
+
+L'expression de l'ancien qui avait invoqué le singe géant changea radicalement et il cria : « Le sort de Bai Fan ! » Il n'hésita pas à battre en retraite, mais il était trop tard ; l'un des dragons noirs le dévora.
+
+Parmi les trois restants, outre celui qui avait invoqué la montagne, les deux autres ne purent s'échapper et furent engloutis par les dragons noirs.
+
+Tout cela se produisit avec une rapidité fulgurante. L'ancien survivant se retira pour atterrir sur la tortue. Il entonna un étrange incantation, et une lumière commença à couler de la carapace vers lui, tel un flux d'eau.
+
+Voyant l'aura du vieil homme croître, comment Wang Lin pouvait-il le laisser faire ? Il leva la main droite et ordonna : « Arrête ! »
+
+À cet instant, l'homme eut la sensation d'entrer en transe ; il sentit distinctement son corps entouré d'innombrables fils invisibles. Il marmonna : « Sort d'arrêt... » Son expression devint étrange, et alors qu'il s'apprêtait à parler, le dernier dragon noir le dévora.
+
+Wang Lin remarqua l'expression singulière qui traversa le visage du vieil homme, mais ce n'était pas le moment de réfléchir. Il atteignit la carapace de la tortue et leva la main droite. Ses doigts formèrent un poing, et l'illusion d'un bras de Dieu Ancien apparut. Il frappa impitoyablement la carapace sous ses pieds.
+
+Un grondement assourdissant retentit, comme si la grotte entière tremblait, et d'innombrables fissures parcoururent le sol. La carapace de la tortue vacilla violemment, mais ne montra aucun signe de rupture.
+
+À ce moment-là, Maître Hollow Wind et ses compagnons avaient achevé les soldats célestes, et le cadavre argenté avait fini d'absorber les esprits floraux. Son visage était désormais rosé, semblant avoir subi une transformation mystérieuse.
+
+« Brisez cette formation ! » Sur un ordre de Wang Lin, chacun utilisa ses divers sorts en ciblant la carapace.
+
+Alors que des grondements tonitruants résonnaient, la carapace vacilla une nouvelle fois. Le pont de pierre commença à s'effondrer avant d'être totalement détruit.
+
+Cependant, la carapace de la tortue resta intacte et ne perdit qu'un peu de son éclat.
+
+Wang Lin fronça les sourcils, secrètement stupéfait. La capacité protectrice de cette carapace dépassait ses espérances. Ni son propre poing de Dieu Ancien, ni les assauts de nombreux vieux monstres n'avaient réussi à la faire céder.
+
+« Je me demande si les grottes célestes où l'Omniscient et Ling Tianhou sont entrés possédaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
+
+Non seulement lui était sous le choc, mais Maître Hollow Wind et ses compagnons l'étaient tout autant, leurs regards convergeant vers la carapace.
+
+Alors que tous la fixaient, celle-ci se mit à scintiller, révélant progressivement le palais qu'elle protégeait.
+
+Le palais était plongé dans une obscurité totale, rendant toute vision impossible, mais des bruits de pas en émergeaient. La grotte étant silencieuse, bien que les pas fussent légers, ils étaient parfaitement audibles.
+
+Ces pas possédaient une force étrange ; dès qu'ils atteignirent les oreilles de chacun, ils se synchronisèrent inopinément avec leur propre rythme cardiaque. C'était comme si chaque pas martelait leurs cœurs.
+
+L'expression de Maître Hollow Wind changea ; il fit circuler l'énergie d'origine dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
+
+Cependant, les trois frères Chen, Big Head et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
+
+Seul le cadavre argenté resta de marbre. Étant un cadavre doté d'intelligence, l'absence de battements cardiaques la rendait insensible.
+
+Le visage de Wang Lin s'assombrit progressivement. Possédant le corps d'un Dieu Ancien, il pouvait endurer ce genre d'attaque mentale.
+
+Les pas se firent de plus en plus nets, comme si quelqu'un émergeait des profondeurs du palais. Les visages des trois frères Chen pâlirent encore davantage et les veines sur le front de Big Head se gonflèrent.
+
+Lei Ji, qui avait le niveau de culture le plus bas, tremblait de tout son corps. Il recula de quelques pas, incapable de supporter la pression. Il poussa un rugissement et son corps s'étendit jusqu'à atteindre plusieurs centaines de pieds de haut pour enfin pouvoir tenir bon.
+
+Les pas semblaient avoir atteint l'entrée du palais. À cet instant, une silhouette blanche apparut de l'intérieur.
+
+Un rayon de lumière perça la carapace de la tortue et se posa sur Wang Lin.
+
+Une sensation de crise vitale, une menace de mort qu'il n'avait pas ressentie depuis longtemps, enveloppa soudainement Wang Lin comme une tempête. Cela fit dresser tous les poils de son corps !

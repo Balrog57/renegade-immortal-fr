@@ -1,0 +1,115 @@
+---
+n: 1351
+title: "Bataille au Clan du Tonnerre Éparpillé ! (5)"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1351 - Battle at the Scatter Thunder Clan! (5)"
+slug: bataille-au-clan-du-tonnerre-eparpille-5
+---
+L'Ancien en chef du Clan du Tonnerre Éparpillé affichait une expression venimeuse ; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
+
+À l'origine, il ne considérait pas Wang Lin comme une menace ; il pensait pouvoir l'éliminer aisément avec le seul pouvoir de la quatrième étape de la Calamité Céleste. Cependant, à cet instant précis, lorsqu'il ressentit cette crise de vie ou de mort — un sentiment auquel il n'avait pas été confronté depuis des dizaines de milliers d'années — son esprit s'éclaircit.
+
+S'il n'avait pas été disposé à subir des blessures et à briser le dernier sceau pour déployer la pleine puissance de sa culture de la cinquième étape de la Calamité Céleste, l'impact qu'il venait de subir l'aurait gravement blessé, voire tué !
+
+L'onde de choc du tonnerre était comme une vague colérique qui avait brisé toutes ses protections. À cet instant, un éclair rouge fonça droit sur lui. Cet éclair contenait une trace de rétribution divine et fit trembler la marque de son clan jusqu'à ce qu'une fissure n'y apparaisse.
+
+Il y avait aussi cette épée de sang bizarre et presque invincible qui lui avait fait vivre un véritable cauchemar. Elle avait tout percé pour s'enfoncer dans sa poitrine. S'il n'avait pas libéré la puissance de sa cinquième étape de la Calamité Céleste, cette seule épée aurait suffi à le couvrir de sueur froide.
+
+De plus, l'essence de tonnerre de l'autre partie s'était rapprochée, chargée d'une volonté infinie. Elle avait déclenché le tonnerre en lui, et les attaques simultanées, venant de l'intérieur comme de l'extérieur, avaient laissé de nombreuses blessures sur son corps.
+
+Tout cela était une leçon qu'il payait au prix du sang. Ce choc avait réveillé l'Ancien en chef. Le jeune homme devant lui était son véritable rival ! Conjugué au fait qu'il utilisait le Bouclier d'Ombre et de Lumière du Maître Dao Blue Dream, d'innombrables spéculations traversèrent son esprit !
+
+Cependant, que ce soient les blessures ou le sort du Maître Dao Blue Dream, ils n'avaient fait qu'étonner l'Ancien. Ce qui le terrifiait réellement, c'était la maîtrise du timing de l'autre partie, ainsi que sa nature audacieuse et décisive !
+
+« Au moment extrêmement périlleux où le tonnerre s'effondrait, il a utilisé le Bouclier d'Ombre et de Lumière pour contre-attaquer, me prenant au dépourvu. Cela semble simple, mais très peu de gens seraient capables de saisir le timing et de réussir une telle prouesse ! Même moi, j'aurais hésité !
+
+« Cet homme n'est pas très âgé, mais il possède déjà un esprit aussi rusé. Il doit être très célèbre dans le Système d'Étoiles Anciennes, pourtant je n'ai jamais entendu parler du nom de "Wang Lin" auparavant !
+
+« Que cache-t-il donc exactement ?! »
+
+L'expression de l'Ancien en chef du Clan du Tonnerre Éparpillé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant !
+
+« Ouvrez le Royaume du Tonnerre Antique ! »
+
+Un grondement tonitruant résonna. C'était un fracas qui faisait trembler les cieux, encore plus choquant qu'auparavant. C'était comme si le monde allait s'effondrer, et un vortex géant apparut devant l'Ancien !
+
+Le centre du vortex était d'un noir absolu, et un tonnerre infini y bouillonnait. En tournant, il semblait ouvrir un trou noir vers un autre monde !
+
+Ce sort était infiniment proche de la capacité des cultivateurs de la troisième étape à extraire le pouvoir des Flammes Joss !
+
+Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas utilisé le Bouclier d'Ombre et de Lumière pour se protéger, il aurait été gravement atteint !
+
+C'était une bataille acharnée. On pouvait dire que c'était l'adversaire le plus puissant que Wang Lin ait affronté dans sa vie ! Le Daoïste Eau était un cultivateur de la troisième étape et avait été contraint de battre en retraite avant même de pouvoir tuer Wang Lin. Cependant, ce n'était pas Wang Lin qui l'avait forcé à fuir, mais le Seigneur du Royaume Scellé !
+
+Par conséquent, puisqu'il affrontait lui-même l'Ancien en chef du Clan du Tonnerre Éparpillé depuis tout ce temps, son sang bouillonnait presque !
+
+L'intention de combat illuminait ses yeux !
+
+« Les cultivateurs comme nous ne reculent jamais devant un combat, ils n'en ont jamais peur ! »
+
+« Si je ne peux surmonter un cultivateur de la cinquième étape de la Calamité Céleste, comment pourrais-je être qualifié pour défier un cultivateur de la troisième étape et tuer le Daoïste Eau ? » Wang Lin rit bruyamment et ses mains formèrent un sceau. Des grondements résonnèrent dans son corps alors que ses étoiles de Dieu Antique tournaient rapidement, et l'étoile de la Loi apparut également.
+
+Toute sa culture monta en flèche, et l'épée de sang était revenue depuis longtemps à ses côtés, dégageant une énergie tranchante infinie ! Les yeux de Wang Lin brillaient comme des torches, et il ne laissa pas à l'Ancien le temps de poursuivre son sort. Il leva la main droite et chargea en avant !
+
+L'épée de sang ouvrait la voie tandis qu'un tonnerre incessant l'entourait. En un instant, Wang Lin devint tel une météorite de tonnerre, fonçant à travers ce fracas éternel !
+
+« Une luciole ose défier la lune éclatante ! » L'Ancien ricana en mordant le bout de sa langue pour recracher une gorgée d'essence sanguine de cultivateur de la cinquième étape de la Calamité Céleste. Le sang fut immédiatement absorbé par le vortex géant.
+
+« Dragons du tonnerre antiques, disparus depuis des éons, aujourd'hui, en tant que serviteur de l'éclair éternel, j'éveille vos âmes dissipées. J'utilise mon sang comme guide afin que votre pouvoir de tonnerre infini puisse se rassembler et descendre sur ce monde. Manifestez votre puissance capable de détruire le monde ! »
+
+Au moment où le sang de l'Ancien fut absorbé par le vortex, des rugissements étouffés en jaillirent. Ces cris étaient fracassants, et avant même qu'ils ne sortent du vortex, le tonnerre environnant gronda !
+
+Dès qu'il eut fini de parler, des grondements tonitruants résonnèrent à l'intérieur du vortex, comme si une existence puissante tentait de s'en extraire par la force !
+
+« Dragons du tonnerre antiques, descendez ! » rugit l'Ancien en tendant à nouveau la main. Le vortex géant tourna frénétiquement et un fracas assourdissant en sortit !
+
+Une tête de dragon gigantesque surgit soudainement du centre du vortex. Cette tête était d'un vert profond et dégageait un tonnerre incessant. Dès son apparition, elle poussa un rugissement unique à celui des dragons du tonnerre antiques !
+
+ROAR !!
+
+Wang Lin s'approchait avec un tonnerre infini, mais dès qu'il fut proche, tout le tonnerre autour de lui s'effondra. Lui-même fut affecté par le rugissement. Il trembla violemment comme si son corps allait exploser. Puis il cracha du sang et fut projeté en arrière. L'incrédulité se lisait dans ses yeux !
+
+« Un véritable dragon du tonnerre antique ! » Wang Lin recula, l'expression extrêmement sombre.
+
+La tête de dragon géante luttait pour sortir du vortex avec une aura monstrueuse. Son corps mesurait plus de 100 000 pieds de long et chacune de ses écailles vertes contenait le tonnerre !
+
+En surgissant, elle fit s'effondrer l'espace environnant. C'était comme si son simple mouvement pouvait détruire le monde !
+
+S'il n'y avait eu qu'un seul dragon du tonnerre antique, Wang Lin n'aurait pas été si choqué. Cependant, après le premier, un autre jaillit du vortex !
+
+Deux, trois, quatre... jusqu'à ce que huit dragons du tonnerre antiques apparaissent devant lui. Huit dragons du tonnerre antiques étaient apparus dans ce monde !
+
+Chaque dragon était d'une puissance dépassant l'imagination. Maintenant qu'ils étaient huit, tout le tonnerre devait obéir à leurs ordres !
+
+« Dragons du tonnerre antiques, tuez cet homme ! » L'Ancien sourit en pointant Wang Lin du doigt. Les huit dragons se précipitèrent vers lui !
+
+Ces huit créatures se rapprochèrent instantanément. Le tonnerre n'avait aucun effet sur elles car elles étaient des dragons du tonnerre antiques ; elles étaient les plus puissants messagers du ciel, investis du droit de commander le tonnerre !
+
+À cet instant, elles encerclèrent Wang Lin.
+
+Les grondements continuaient. Wang Lin poussa un rugissement et agrippa l'un des dragons. Son corps trembla comme s'il avait été percuté par un char de plusieurs millions de livres, et il recula immédiatement en crachant du sang.
+
+Cependant, à peine avait-il reculé de trois pas que deux autres dragons se précipitèrent sur lui. Alors que l'impact se poursuivait, Wang Lin continuait de cracher du sang. Incapable de s'arrêter, il fut poussé sans cesse en arrière !
+
+Mais à ce moment précis, trois autres dragons surgirent de derrière lui, le piégeant. Les huit dragons du tonnerre antiques chargeaient tous sur lui simultanément !
+
+Une crise de vie ou de mort surgit dans l'esprit de Wang Lin. Son visage était pâle, mais son expression était empreinte de folie. Tout son corps était couvert de sang et il ne parvenait plus du tout à contrôler le tonnerre en lui.
+
+La puissance des dragons du tonnerre antiques dépassait tout ce qu'il avait imaginé. Ils étaient bien plus forts que celui qu'il avait dévoré autrefois !
+
+« C'est un véritable dragon du tonnerre antique !! Cependant, ces espèces sont éteintes, donc ces huit ne sont pas réels, mais formés d'âmes. Néanmoins, si ces huit dragons explosent en même temps, ils me tueront instantanément. Même mon corps de Dieu Antique ne pourra pas y résister à cause des limites de mes étoiles !
+
+« Pourtant, c'est parce que j'ai dévoré la moitié de l'âme d'un dragon du tonnerre antique que j'ai pu créer l'essence de tonnerre. Si je parviens à dévorer ces huit dragons, ma puissance de tonnerre augmentera considérablement ! » Les blessures de Wang Lin s'aggravaient sous le bombardement incessant. Son âme originelle était sur le point de s'effondrer et son corps atteignait ses limites.
+
+« Que faire ?! L'âme ! L'âme !! Bien que ces dragons aient été puissants de leur vivant, ils ne sont plus que des âmes désormais ! Il me faut une chance ! » Les yeux de Wang Lin étaient injectés de sang alors qu'il affrontait le déluge, et une lueur étrange brilla dans son regard. Il ne recula plus, mais poussa un rugissement envers les huit dragons qui n'était pas moins puissant que le leur !
+
+ROAR !!
+
+Un vortex apparut entre les sourcils de Wang Lin, et son âme originelle s'étendit sous la forme d'un dragon du tonnerre antique. Il laissa échapper un rugissement qui égalait le leur !
+
+Son cri déchira les cieux. En se propageant, il força les huit dragons environnants à marquer une pause un instant !
+
+« Fouet de l'Âme !! » À cet instant, une lueur jaillit autour de Wang Lin. Le fouet mystérieux qui l'accompagnait depuis d'innombrables années apparut soudainement !
+
+Depuis que le Fouet de l'Âme s'était fusionné avec le Dao de Wang Lin, il pouvait changer de taille à volonté. Il enveloppa Wang Lin et se projeta comme un fouet vers les huit dragons du tonnerre antiques !

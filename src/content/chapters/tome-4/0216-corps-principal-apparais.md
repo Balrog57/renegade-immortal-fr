@@ -1,0 +1,113 @@
+---
+n: 216
+title: "Corps principal, apparais !"
+book: 4
+bookTitle: Clean Sweep
+en: "Chapter 216 - Main Body, Appear!"
+slug: corps-principal-apparais
+---
+Chapitre 216 - Corps principal, apparais !
+
+Avant que Wang Lin n'entre dans la perle défiant le ciel, il avait mis en place des restrictions cachées pour empêcher quiconque de pénétrer dans la pièce. Même si quelqu'un parvenait à entrer, le corps de Wang Lin aurait disparu, et ils ne trouveraient donc rien.
+
+Après tout, même Duanmu, capable de trancher l'âme, ne pourrait détecter l'existence de l'espace de la perle défiant le ciel. La Secte Ciel Nuage n'abritait que des cultivateurs au stade de l'Âme Naissante, ils ne trouveraient donc absolument rien.
+
+Wang Lin rendit hommage à ses parents et à Situ Nan, puis s'assit pour cultiver un moment. Ensuite, il sortit les pilules d'Établissement des Fondations, les posa sur le côté, et en prit une.
+
+Dès que la pilule d'Établissement des Fondations entra dans sa bouche, elle se transforma en pure énergie spirituelle. Wang Lin activa calmement la technique de l'Ancien Dieu.
+
+Sous son contrôle, l'énergie spirituelle absorbée par la technique de l'Ancien Dieu ne pénétra pas dans son corps, mais forma un tourbillon dans son abdomen.
+
+Une fois que la dernière parcelle d'énergie spirituelle de la pilule fut absorbée par le tourbillon, celui-ci s'agrandit soudainement et commença à remonter vers le haut.
+
+Le Wang Lin actuel n'était plus un cultivateur novice. Il savait que si ce tourbillon pouvait circuler dans tout son corps, il aurait réussi à franchir l'étape de l'Établissement des Fondations. S'il possédait suffisamment de talent, le tourbillon n'aurait aucun mal à le faire.
+
+Cependant, si son talent était insuffisant, il semblerait que des blocages invisibles entravent la progression du tourbillon à travers son corps.
+
+Le tourbillon dans son organisme commença à tourner de plus en plus vite. Il ressemblait à un arbre majestueux, étendant rapidement ses racines à travers le corps de Wang Lin.
+
+Mais Wang Lin présentait trop d'obstacles internes. Le tourbillon devint semblable à une vague se fracassant sur les rochers du rivage. Au début, il brisa de nombreux obstacles, mais il finit par ralentir, semblant même sur le point de se résorber.
+
+Wang Lin prit une profonde inspiration. Sans un mot, il prit une autre pilule d'Établissement des Fondations. Le tourbillon reçut soudainement une impulsion de puissance et recommença à se propager.
+
+Le temps passa lentement tandis que Wang Lin tentait de franchir l'étape de l'Établissement des Fondations. Après un laps de temps indéterminé, Wang Lin prit sa huitième pilule et, dans un fracas sourd, le tourbillon déferla à travers tout son corps. D'innombrables points de lumière scintillèrent autour de lui alors qu'un liquide sombre commençait à suinter de ses pores.
+
+Après une longue attente, Wang Lin ouvrit soudainement les yeux. Son regard brillait comme l'éclair et il remarqua immédiatement que ses méridiens étaient devenus presque translucides et plusieurs fois plus larges qu'auparavant. Même son corps principal n'avait pas connu une telle transformation lors de son propre Établissement des Fondations.
+
+Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, et une pilule d'Établissement des Fondations n'était qu'une version bien plus puissante d'une pilule Pei Yuan.
+
+Une déferlante d'énergie spirituelle pour laver tout le corps afin de le rendre plus apte à la culture : tel était le véritable sens de l'Établissement des Fondations.
+
+Cependant, ce type de changement se produisait à l'intérieur, tandis que la reconstruction du corps de l'Ancien Dieu était un changement extérieur. En réalité, les deux étaient très similaires ; seul l'Ancien Dieu utilisait l'énergie spirituelle pour transformer le corps physique afin de mieux absorber l'énergie et gagner en puissance.
+
+Le changement intérieur du cultivateur visait à mieux ressentir l'énergie spirituelle du ciel et de la terre, mais, en fin de compte, le but ultime était également de devenir plus fort.
+
+L'un relevait de la culture intérieure, l'autre du raffinement corporel extérieur. Les voies différaient, mais la destination était la même.
+
+Le corps principal de Wang Lin empêchait délibérément son avatar d'absorber l'énergie spirituelle pour la pousser vers son noyau ; mais après que son propre corps eut subi une reconstruction et que l'étoile violette fut apparue sur son front, son corps principal s'était déjà engagé sur la voie du raffinement corporel.
+
+Il avait été très prudent lors de la création de son avatar pour éviter qu'il ne subisse une reconstruction corporelle. Ayant prêté attention à cela dès le début, son avatar suivait donc la voie de la culture intérieure.
+
+Wang Lin ramassa la fiole de jade. Il restait encore cinq pilules d'Établissement des Fondations. Après réflexion, il les intégra en son sein et recommença à cultiver.
+
+Le temps s'écoula. L'énergie spirituelle contenue dans les cinq pilules explosa vers l'extérieur. Un être ordinaire ne pourrait contenir une telle quantité ; sans en mourir, il perdrait toute l'énergie spirituelle de son corps.
+
+Mais Wang Lin possédait la technique de l'Ancien Dieu, l'une des méthodes les plus écrasantes qui soient. La seule chose dont cette technique n'avait pas peur était l'énergie spirituelle, quelle qu'en soit la quantité. Toute l'énergie générée par les cinq pilules fut absorbée avant même de pouvoir causer le moindre dommage au corps.
+
+La culture de Wang Lin passa du stade de l'Établissement des Fondations à l'apogée du premier stade de ce niveau.
+
+Pourtant, Wang Lin n'était pas satisfait. Il réfléchit un moment et sortit un fourneau à pilules. Ce dernier semblait tout à fait ordinaire, si ce n'est qu'un sceau en papier jaune le recouvrait.
+
+Ce fourneau était celui que Wang Lin avait obtenu de Yun Fei, celui qu'elle avait tenté d'utiliser pour convaincre quelqu'un de lever les restrictions qui l'entravaient. Cependant, tout ce qu'elle faisait était perçu par le démon qui la suivait, ce qui mena à sa perte.
+
+Ce fourneau était naturellement tombé entre les mains de Wang Lin.
+
+Il avait tenté de l'analyser auparavant, mais n'avait pas eu le temps nécessaire. À présent, il était à court de pilules et devrait retourner à l'extérieur pour en fabriquer de nouvelles ; la seule affaire qu'il lui restait à régler dans l'espace de la perle était donc ce fourneau.
+
+En fixant l'objet, les yeux de Wang Lin tremblèrent légèrement. Il savait que ce fourneau n'était pas normal. Les simples inscriptions sur le sceau lui donnaient la chair de poule.
+
+Après réflexion, il prit le fourneau et le secoua. Des bruits sourds en émanèrent. Il y avait clairement quelque chose à l'intérieur.
+
+D'après le son, il ne pouvait s'agir que d'une seule chose. Si un objet était placé dans un fourneau à pilules, il y avait de fortes chances que ce fût une pilule.
+
+Pourquoi quelqu'un aurait-il apposé un papier jaune sur un tel fourneau ? Et quelle était l'utilité de ce papier ? S'il ne l'avait pas encore ouvert, c'était précisément parce qu'il ignorait la fonction du sceau. Si ce papier constituait une restriction et qu'il tentait de l'ouvrir par la force, cela pourrait déclencher une série d'événements incontrôlables.
+
+Après avoir pesé le pour et le contre, il agita la main et un mince filet d'énergie spirituelle apparut au bout de son doigt. Il poussa un soupir et fléchit le doigt. Le filet d'énergie se dirigea rapidement vers le papier jaune.
+
+À cet instant, une scène étrange se déroula sous ses yeux. Dès que l'énergie s'approcha du papier, elle accéléra soudainement et disparut sans laisser de trace à l'intérieur du sceau.
+
+Les yeux de Wang Lin brillèrent. Il posa le fourneau au sol, ses mains tracèrent de nombreux sceaux et il cria : « Disperse ! »
+
+Soudain, d'innombrables particules de lumière flottèrent autour de son corps, formant des filaments d'énergie spirituelle qui commencèrent à converger vers le fourneau. Mais avant qu'ils ne puissent l'atteindre, toute l'énergie accéléra brusquement et fut engloutie par le papier jaune.
+
+Wang Lin fronça les sourcils. Ce papier était véritablement singulier, comme s'il avait été conçu pour absorber l'énergie spirituelle.
+
+Une idée lui traversa l'esprit et il pressa légèrement son doigt sur le fourneau. Au moment où il toucha le papier, rien de spécial ne se produisit. Il tenta doucement de le déchirer, mais une aspiration inimaginable jaillit soudainement du papier. L'énergie spirituelle de Wang Lin commença à être aspirée de manière incontrôlable.
+
+Heureusement, Wang Lin était sur ses gardes. Dès qu'il sentit l'aspiration, il retira sa main.
+
+Après réflexion, Wang Lin décida de ne plus insister. Il ramassa soigneusement le fourneau et le remit dans son sac de rangement. Cet objet était vraiment mystérieux. Lorsqu'il l'avait reçu la première fois, il ne pouvait pas le ranger dans un sac, mais depuis qu'il avait créé son avatar, il y parvenait.
+
+Toutes ces étrangetés troublaient profondément Wang Lin.
+
+Une fois le fourneau rangé, il se leva et quitta l'espace de la perle défiant le ciel.
+
+Dès qu'il apparut dans la cour, il sentit que quelque chose ne tournait pas rond. Une légère odeur de sang flottait dans l'air. Après avoir inspecté les environs, son regard se fixa sur la porte principale ; l'odeur de sang provenait de là.
+
+Wang Lin avança d'un pas calme vers l'entrée. Là, il découvrit le cadavre d'un singe spirituel.
+
+Les yeux du singe étaient grands ouverts et ternes. Son corps était couvert de blessures, dont une plaie béante de la taille d'un bol dans l'abdomen. Il ne s'écoulait plus de sang, seule une légère odeur métallique flottait encore dans l'air.
+
+Wang Lin s'accroupit et toucha sa patte droite. Il constata que tous les os de la patte étaient broyés. C'était manifestement le singe spirituel qui était venu plusieurs jours auparavant pour livrer la recette des pilules d'Établissement des Fondations.
+
+Les yeux de Wang Lin s'illuminèrent. La blessure à l'abdomen du singe avait été déchirée par une main humaine. Le but était clairement de s'emparer du noyau du singe spirituel.
+
+Wang Lin lui-même avait déjà pratiqué ce genre de méthode. Il réfléchit un moment et parvint à une conclusion limpide.
+
+Il ignorait si Cheng Xian était impliqué dans cette affaire. Durant ces six derniers mois, Cheng Xian s'était montré très enthousiaste et semblait entretenir des liens profonds avec les singes spirituels. Lorsque le singe était venu livrer la recette au lieu de Cheng Xian, Wang Lin avait déjà eu des doutes.
+
+Quoi qu'il en soit, du seul fait que ce singe lui avait apporté la recette des pilules d'Établissement des Fondations, Wang Lin ne pouvait pas ignorer cet événement.
+
+Il soupira intérieurement. Sans même accorder un second regard au cadavre, il retourna dans sa chambre. Cette fois, il ne prit aucune potion spirituelle et fit apparaître un cercle de restriction.
+
+Le cercle se posa au sol et propagea une onde de choc à travers la terre. Lentement, un jeune homme aux cheveux blancs émergea et, dès son apparition, il dégagea une bouffée d'air glacial.

@@ -1,0 +1,101 @@
+---
+n: 133
+title: Troubles à Hou Fen (2)
+book: 2
+bookTitle: The Bloody Image of Cultivation
+en: Chapter 133 - Upheaval in Hou Fen (2)
+slug: troubles-a-hou-fen-2
+---
+Une vague de chaleur se propagea rapidement dans la sphère de terre au moment où la boule de feu y pénétra avec fluidité. Cependant, au même instant précis, la perle défiant le ciel jaillit, forçant la boule de feu à s'interrompre pour rebrousser chemin sans l'ombre d'une hésitation.
+
+Mais il était déjà trop tard. La perle défiant le ciel ignora tout obstacle sur son passage et percuta la boule de feu. Cette dernière poussa un cri et tenta de lutter, mais avant qu'elle n'ait pu manifester la moindre résistance, elle fut absorbée par la perle.
+
+Les feuilles qui recouvraient la perle défiant le ciel disparurent, remplacées par une sphère de feu. Bientôt, de nombreuses autres sphères de feu apparurent à sa surface.
+
+La boule de feu devint de plus en plus terne jusqu'à se dissiper complètement. À cet instant, une dixième sphère apparut sur la perle défiant le ciel, émettant un éclat si vif qu'il était visible même depuis l'extérieur de la sphère de terre.
+
+Avec la disparition de cette boule de feu, le cercle de flammes commença à faiblir et les filaments rouges qui reliaient l'anneau de feu à la sphère se rompirent.
+
+Wang Lin regarda ce qui venait de se passer, totalement stupéfait. Non seulement lui, mais toutes les bêtes de feu étaient également pétrifiées par la surprise. Elles restèrent immobiles dans la grotte, ne sachant plus quel comportement adopter.
+
+La perle défiant le ciel se dirigea rapidement vers Wang Lin et se rétracta dans son front. Wang Lin n'eut pas le temps d'examiner la perle ; il mobilisa son corps pour activer sa technique d'attraction, soulevant la sphère de terre pour s'engouffrer dans l'un des tunnels.
+
+Tout cela se produisit en un laps de temps extrêmement court. Ce n'est que lorsque la sphère de Wang Lin eut quitté les lieux que les bêtes de feu réalisèrent ce qui s'était passé. Les seize grandes bêtes de feu poussèrent des rugissements et déchirèrent le tunnel pour se lancer à la poursuite de Wang Lin.
+
+Derrière lui, des dizaines de milliers d'autres bêtes de feu hurlaient de rage et le traquaient.
+
+Le corps de Wang Lin était prisonnier de la sphère de terre alors qu'il progressait dans la lave. Il fallait préciser que la lave coulait vers le fond de la grotte ; Wang Lin allait donc à contre-courant, ce qui l'empêchait de se déplacer rapidement.
+
+Les bêtes de feu, quant à elles, n'étaient nullement ralenties puisqu'elles étaient nées dans la lave. On pouvait dire qu'elles étaient des esprits du feu : plus la chaleur augmentait, plus elles gagnaient en célérité.
+
+Bien que Wang Lin ignorât la nature exacte de cette boule de feu, le simple fait qu'elle ait pu compléter l'élément feu de la perle défiant le ciel était un choc immense. À en juger par le respect témoigné par les bêtes et leur fureur actuelle, cette sphère devait être d'une importance capitale pour elles. Il était fort probable qu'il s'agisse de leur roi.
+
+L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave ; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon l'Union de Culture, elles étaient universellement appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une intelligence. Elle avait cultivé dans la lave sous Hou Fen durant de longues années, et sa culture était extrêmement puissante.
+
+Au cours des innombrables années de son existence, elle s'était transformée cinq fois. Si elle atteignait neuf transformations, elle pourrait passer du rang de bête-esprit à celui de bête désolée. Cependant, après chaque transformation, elle entrait dans un état de faiblesse durant 500 ans, incapable d'utiliser la moindre énergie spirituelle.
+
+Pour se protéger, chaque fois qu'elle était sur le point de se transformer, elle diffusait son énergie spirituelle pour accélérer la croissance de la génération suivante afin d'assurer sa propre survie.
+
+Parallèlement, au fil de ses transformations, elle apprit qu'il existait un moyen de raccourcir cette période de vulnérabilité : dévorer des cultivateurs.
+
+Elle n'avait pas besoin d'en consommer beaucoup, juste quelques-uns de temps à autre. Elle utilisait donc sa progéniture pour capturer les cultivateurs qui pénétraient dans le volcan afin de les lui offrir en pâture.
+
+Pour empêcher les cultivateurs de nuire à l'esprit du feu, ils étaient tous emprisonnés dans la terre, permettant ainsi à l'esprit de savourer son repas en toute tranquillité.
+
+Mais voilà que l'esprit du feu, alors qu'il était affaibli, avait été lui-même dévoré. À l'instant même de sa disparition, toutes les bêtes de feu furent prises d'une rage folle.
+
+Dans leur cœur, l'esprit du feu n'était pas seulement leur roi, il était aussi leur père.
+
+Leur père avait été tué sous leurs yeux ; comment ne pouvaient-ils être en colère ? Peu à peu, elles se rapprochèrent. L'une des seize bêtes de tête ouvrit la gueule et cracha une flamme presque blanche.
+
+Au sein de la lave pourpre, cette flamme blanche était frappante de contraste. Lorsqu'elle percuta la sphère de terre de Wang Lin, celle-ci rétrécit instantanément d'une taille.
+
+Wang Lin saigna abondamment sous l'impact de la flamme blanche. Son Sens Divin du Royaume Ji ne pouvait faire qu'une partie du travail pour le protéger. Serrant les dents, il mobilisa encore plus d'énergie spirituelle pour tenter de s'échapper.
+
+Les bêtes de feu détruisaient tout sur leur passage en chargeant Wang Lin.
+
+Elles se rapprochèrent jusqu'à ce que huit bêtes de feu crachent simultanément des flammes blanches. Au moment où le brasier frappa la sphère de terre, le corps de Wang Lin fut secoué et il fut projeté hors de l'enveloppe. Son corps était enveloppé par son Sens Divin pour résister à la chaleur insupportable tandis qu'il s'élançait.
+
+Une fois sorti, il marqua un temps d'arrêt alors qu'un morceau de métal surgissait de son sac de rangement et volait sous ses pieds. Le métal traça un arc-en-ciel et transporta Wang Lin vers les hauteurs.
+
+De l'extérieur, on pouvait voir une silhouette totalement noire, dont les vêtements étaient presque entièrement calcinés, jaillir du cratère du volcan.
+
+Les seize bêtes de feu le suivirent, le poursuivant jusqu'à l'entrée du volcan. Elles poussèrent des rugissements de frustration, mais étrangement, elles n'osèrent pas le suivre à l'extérieur.
+
+Ce n'est qu'alors que Wang Lin put enfin pousser un soupir de soulagement. Il baissa les yeux et sentit soudain son cuir chevelu s'engourdir. Il vit qu'en dessous des seize bêtes, d'innombrables yeux triangulaires le scrutaient. Ils n'avaient qu'un seul intérêt : lui.
+
+Chacune de ces bêtes de feu était capable de bloquer son Sens Divin du Royaume Ji. Cela semblait impossible, mais si c'était le cas, la seule explication était que ces créatures n'avaient ni âme, ni sens divin.
+
+Le visage de Wang Lin s'assombrit. Il jeta un regard sur les innombrables bêtes en contrebas et s'envola vers l'horizon sans dire un mot. Son humeur devint de plus en plus morne car, tout au long de son périple, chaque volcan croisé abritait des bêtes de feu. Elles attendaient toutes au bord des cratères, le fixant de leurs regards froids. Elles semblaient attendre un ordre pour surgir massivement de la terre.
+
+Wang Lin se frotta les tempes, le cuir chevelu encore endolori. Il se jura d'obtenir une carte au plus vite afin de quitter Hou Fen et de ne plus jamais y revenir.
+
+Sur cette pensée, il cessa de progresser et déploya son Sens Divin. Après avoir sondé les environs un moment, il changea de direction pour voler vers le nord.
+
+Bien qu'il ne regardât plus les volcans, il percevait encore distinctement ces regards glacials qui le suivaient.
+
+À cet instant, tous les ancêtres de l'Âme Naissante sortirent de leur culture en isolement. Eux, qui se trouvaient au sommet de la hiérarchie d'un pays de culture de rang 3, pouvaient ressentir clairement les ondes d'énergie destructrice qui bouillonnaient à l'intérieur de Hou Fen.
+
+Cela s'était déjà produit par le passé. Cela signifiait que les volcans de Hou Fen étaient sur le point d'entrer en éruption. Chaque fois que cela arrivait, ils se rendaient aux volcans dont ils avaient la charge pour les sceller et prévenir la catastrophe.
+
+Car si une éruption survenait, ce serait un désastre majeur pour Hou Fen. Les mortels pourraient peut-être fuir vers un autre pays sans résistance majeure. Même la famille royale ferait appel aux cultivateurs pour agir en son nom.
+
+Après tout, bien que les mortels ne soient que des fourmis face aux cultivateurs, les chances de trouver des disciples parmi eux étaient plus grandes s'ils étaient nombreux.
+
+Les mortels pouvaient partir, mais pas les cultivateurs ; si une masse importante de cultivateurs migrait vers un autre pays, cela déclencherait une guerre immense. Dans le monde de la culture, il est extrêmement tabou pour un pays de migrer, car cela équivaut à une perte massive d'énergie spirituelle, à des chaos entre les sectes et à un bouleversement majeur de la possession des pierres spirituelles et des trésors magiques.
+
+Sur la planète Suzaku, le nombre de pays de culture est fixe. Si les volcans entraient en éruption, une quantité colossale d'énergie spirituelle de feu violente s'échapperait. Cette énergie étant impossible à cultiver, les cultivateurs ne pourraient plus survivre à Hou Fen pendant longtemps.
+
+Heureusement, ce genre de catastrophe ne s'était jamais produit. À chaque fois, les volcans avaient été scellés sans encombre. Même en cas d'éruptions mineures, elles n'affectaient que de petites zones et non l'intégralité du pays.
+
+Trois heures plus tard, Wang Lin s'arrêta au-dessus d'une route principale. Si son visage était déjà sombre, il devint livide en voyant ce qui jonchait le chemin.
+
+Sur la route gisaient des dizaines de cadavres ainsi que plusieurs chevaux morts, éparpillés près d'un chariot.
+
+La plupart des défunts étaient des hommes. Sans exception, leurs visages étaient figés dans une expression de souffrance atroce. Ils tenaient encore leurs armes, preuve qu'ils combattaient encore au moment de leur mort.
+
+Wang Lin s'arrêta près d'un chariot et fit un geste de la main. Une bourrasque violente frappa l'engin, le faisant s'envoler dans les airs. Alors qu'un cadavre en tombait, une lueur rouge jaillit du corps pour prendre la forme d'un démon. Ce dernier fixa Wang Lin avec une expression de terreur qui se mua rapidement en un sourire vicieux, avant de hurler : « Vous tombez à point nommé ! J'allais justement vous chercher. Les âmes de ces mortels sont bien trop fades... Je me demande quel est le goût de la vôtre ! »
+
+Sur ces mots, il bondit sur Wang Lin.
+
+Wang Lin restait extrêmement prudent. Il avait pu traquer ce démon car il avait laissé une marque avec son Sens Divin sur toutes les bêtes dont il l'avait nourri. S'il continuait ainsi, peu importe la puissance du démon, il pourrait le contrôler facilement. Mais le temps pressant, il ne pouvait désormais le détecter que s'il se trouvait à une certaine distance.

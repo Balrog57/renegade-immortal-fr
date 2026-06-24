@@ -1,0 +1,47 @@
+---
+name: Fan Shanmeng
+title: Fan Shanmeng
+type: personnage
+categories: ["Characters", "Female", "Celestial", "Alive", "Antagonistic", "Seven Dao Sect", "Great Soul Sect", "Heavenly Bull Continent"]
+image: /renegade-immortal-fr/wiki/images/Eng.webp
+url: "https://xian-ni.fandom.com/wiki/Fan_Shanmeng"
+
+---
+![Fan Shanmeng](/renegade-immortal-fr/wiki/images/Eng.webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Fan_Shanmeng) (CC BY-SA)
+
+**Catégories :** Characters, Female, Celestial, Alive, Antagonistic, Seven Dao Sect, Great Soul Sect, Heavenly Bull Continent
+
+## Personality
+
+She is a treacherous woman who uses her charm on men to succeed in life. She charmed Su Dao into marrying her and then, supposedly, had an affair with Lian Daofei which was one of motivations behind Su Dao killing her despite his love for her.
+
+### Background
+
+In the past, she was just an Arcane Void core disciple of Great Soul Sect but she somehow caught Su Dao's eye and became his Dao Companion. To please him, she even brought her younger sister, Fan Shanlu , along to become his concubine.
+
+Many years later, two of the nine suns, the Grand Empyrean Dao Yi and the ancient countries’ Grand Empyrean Xuan Luo appeared near the Seven Dao Sect. Their powers were heavenly and they were fighting for a treasure storage that had somehow flown out from the Immemorial God Realm .
+
+During their battle, the treasure storage broke and its broken fragment fell in Su Dao's hands. In order to cover up its aura, Fan Shanmeng used all her cultivation to fully suppress it and began to quickly return to the Seven Dao Sect. However, during the trip back, Fan Shanmeng attempted to backstab Su Dao but he evaded her assault and killed her in his rage. However, she didn’t die. As a core disciple of the Great Soul Sect, a part of her soul had been left with her sect. Her teacher, Yan Lu , used a secret spell and allowed her to be reborn from her soul left back in the sect.
+
+Throughout the years, she had slowly birthed a faction inside the Seven Dao Sect loyal to her, especially her younger sister, Fan Shanlu . She borrowed her teacher’s spell and lied to her sister, claiming that Su Dao had attempted to kill her so that he could have the treasure fragment for himself. Thus, the sect's civil war began. Although it seemed like the defectors were fighting due to their loyalty towards Fan Shanmeng, seven of Su Dao's Eight Concubines had defected due to their hunger for power. They just used Su Dao's "murderous act" to gain moral high ground. Although the civil war caused the Seven Dao Sect disciples to split, Su Dao suppressed the civil war easily with his mid-stage Void Tribulant cultivation when he returned to the Cave . He then sealed the eight concubines except Zi Xia who did not defect.
+
+A few years later, Fan Shanmeng heard that Su Dao had lured Ye Mo inside the Cave , where he ambushed him with Li Guang's Bow and eventually managed to kill him. Afterwards, he enslaved Ye Mo's Ancient Clan underlings and began using their bodies to allow his wounded subordinates to heal by gestating inside their petrified corpses. Feeling particularly vengeful, she told the news about the treasure fragment from the Immemorial God Realm to Lian Daofei and told him how to enter the Cave. Lian Daofei entered the Cave with Little Red and Sovereign just a few weeks after Su Dao's war with Ye Mo ended. Su Dao was still recovering from the injuries he received during his battle with Ye Mo which allowed Lian Daofei to easily defeat the Four Generals and the remaining Seven Dao Sect disciples. Ultimately, Su Dao had to appear and was forced to use the immature Heavenly Dao to devour Lian Daofei's divine sense. However, this came with side-effects that caused Su Dao to split into three souls and seven fragments .
+
+Su Dao's tragic fate allowed the seven sealed concubines to escape their bindings and take the disciples loyal to them to create the Outer Realm while the disciples loyal to the Four Generals remained in the Inner Realm. Sometime later, Sovereign was caught by Seven-Colored Daoist and made to join forces with the concubines to find the third soul.
+
+### Book Eleven
+
+During the three years Wang Lin was guarding the Unnamed Wheel Formation , he contacted Fan Shanlu through the jade she gave him centuries ago when he met her in the vortex inside the Cloud Sea Star System .
+
+After destroying the Outer Realm 's Ancient Celestial Realm , Wang Lin killed the Sovereign , once again, sealed the souls of Dao Master Miao Yin and Devil Master Nine Heavens and gravely injured the Seventh Concubine . At this point, Seven-Colored Daoist appeared to reclaim Li Guang's Bow that he had "lent" to Wang Lin. However, Wang Lin immediately crushed the jade Fan Shanlu had given him and was instantly teleported to vortex inside the Cloud Sea Star System.
+
+There, he learnt about demise of the Seven Dao Sect from Fan Shanmeng who temporarily took over Fan Shanlu's body by using a bloodline spell. Fan Shanmeng led him onto the Soul Devil Ship, a mid-level treasure of her Great Soul Sect. The ship was in fact made entirely of ancient restrictions from the Immortal Astral Continent . There, Wang Lin learnt the complete Four Great Ancient Restrictions which would allow him to create his restriction essence.
+
+In reality, from the time Wang Lin entered the ship, he was put under Fan Shanmeng's Great Soul True Illusion spell. Even Fan Shanlu was put under that spell so that Wang Lin may not notice any flaws. However, he still managed to realize the reality and broke through the spell.
+
+### Book Twelve
+
+Despite the damage he caused inside the Great Soul Sect, Wang Lin was invited to be an elder of the sect by Esteemed Green Bull . While leaving for his Fire Vein Mountain, Wang Lin noticed Fan Shanmeng and asked Yan Lu to give her to him as a servant girl. Although Yan Lu was initially incensed by this request, she later accepted it as a way to vent her anger at Fan Shanmeng for causing troubles with Wang Lin inside the Cave World which may have influenced him to come to the Great Soul Sect.
+

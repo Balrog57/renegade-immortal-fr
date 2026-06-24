@@ -1,0 +1,89 @@
+---
+n: 473
+title: Planète de commerce
+book: 6
+bookTitle: Arriving on Tian Yun
+en: Chapter 473 - Trading Planet
+slug: planete-de-commerce
+---
+Dans l'immensité de l'espace au-delà de la planète Suzaku, un rayon de lumière fendait rapidement le vide intersidéral.
+
+À la pointe de ce sillage lumineux se trouvait une boussole géante. Bien qu'il lui manquât une pièce, elle se déplaçait avec une vélocité fulgurante. Wang Lin était assis en son centre tandis que Situ Nan siégeait à ses côtés.
+
+« Wang Lin, nous faisons route dans la même direction pour l'instant. Une fois que nous aurons atteint la planète de commerce et que j'aurai fait mes achats, nous nous séparerons... » La voix de Situ Nan était empreinte d'une pointe de mélancolie.
+
+Wang Lin réfléchit un instant avant de répondre d'un ton calme : « Un jour, nous nous reverrons. N'avais-tu pas l'ambition de devenir un roi sur la planète Feng Luan ? »
+
+À l'évocation du mot « roi », Situ Nan éclata d'un rire immédiat. « C'est exact ! C'est précisément mon objectif ! »
+
+Wang Lin esquissa un léger sourire, puis reporta son attention sur la boussole stellaire pour suivre la carte céleste que Situ Nan lui avait remise. Ils virèrent à gauche, s'enfonçant dans le vide infini de l'espace.
+
+Wang Lin demanda : « La dernière fois que tu t'es rendu sur cette planète de commerce, c'était il y a des dizaines de milliers d'années. Je me demande si elle existe toujours. »
+
+Situ Nan réfléchit un moment avant de répondre : « Elle devrait toujours être là. C'est une planète de libre-échange qui existe depuis fort longtemps. À moins qu'un bouleversement céleste ne soit survenu, elle n'aurait pas dû disparaître. Il y règne d'innombrables trésors et matériaux. Ceux qui s'y rendent proviennent généralement des planètes de culture environnantes. J'y suis allé une fois avec Ye Wuyou et j'y avais acquis pas mal de trésors. »
+
+Wang Lin acquiesça. L'une des raisons de ce voyage était d'escorter Situ Nan ; celui-ci prévoyait d'acquérir certains outils nécessaires pour voyager sur de longues distances à travers l'espace. La seconde raison résidait dans la volonté de Wang Lin de trouver des matériaux pour réparer sa boussole stellaire. Après tout, cet objet n'était qu'une imitation et il lui manquait encore certains composants essentiels.
+
+Avec ces matériaux, Wang Lin pourrait affiner la boussole et la parfaire. Dès lors, non seulement elle gagnerait en vitesse, mais elle acquerrait également une capacité de combat.
+
+Après plusieurs jours de vol, une petite planète apparut au loin. Ce n'était pas la planète de commerce dont parlait Situ Nan, mais la lune de la planète Suzaku ! Son corps original y cultivait depuis tout ce temps.
+
+Alors que la boussole s'approchait de la lune, le corps original, enfoui dans ses profondeurs, lança un coup de poing. Des fissures semblables à des dragons terrifiants se propagèrent des entrailles du sol jusqu'à la surface. Une série de craquements retentit, suivie d'un fracas assourdissant provenant d'un bassin lunaire. Simultanément, une silhouette noire s'en extirpa.
+
+Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux froids, noirs comme la nuit éternelle, projetaient un frisson glacial. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse ; mais c'était cette texture même qui conférait à son être une aura désolée. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
+
+« Ehh !!! » Situ Nan fut stupéfait. Bien qu'il eût été informé de l'existence du corps original par Wang Lin, il ne put s'empêcher de sentir son cœur vaciller, malgré sa vaste expérience de cultivateur.
+
+« Magnifique ! » Les yeux de Situ Nan brillèrent d'un vif éclat.
+
+Le regard glacial du corps original se fit un peu plus chaleureux en apercevant Situ Nan. Ce dernier hocha la tête et atterrit sur la boussole stellaire.
+
+Situ Nan observa le corps original, puis Wang Lin. Il acquiesça et dit : « Impressionnant. Même avec ma culture, il est difficile de percevoir que vous deux ne formez qu'un seul être. Je parie qu'une fois votre fusion accomplie, votre niveau de culture augmentera d'un cran ! »
+
+Wang Lin sourit discrètement : « Après avoir fusionné avec mon corps original, ma culture atteindra le sommet du stade intermédiaire de la Transformation de l'Âme ! »
+
+Le corps original fusionna avec Wang Lin, provoquant un léger tressaillement de ce dernier. Une pointe de froideur apparut dans les yeux de Wang Lin alors qu'il serrait le poing : « Cette sensation est excellente ! »
+
+Une fois la fusion opérée, la boussole stellaire ne marqua plus d'arrêt et vira en direction de la planète de commerce évoquée par Situ Nan. En un clin d'œil, un mois s'écoula.
+
+Durant ce mois, Wang Lin et Situ Nan ne restèrent pas oisifs. Situ Nan enseigna à Wang Lin certains sorts qu'il maîtrisait, et ils passèrent le reste du temps à s'affronter. Au début, Situ Nan bridait sa culture pour s'aligner sur celle de Wang Lin. Ils combattaient au même niveau de culture, sans aucun trésor et en n'utilisant que des sorts, ce qui exposa les faiblesses de Wang Lin.
+
+Situ Nan possédait un flux infini de sorts variés maîtrisés au fil des ans ; il était donc extrêmement puissant, même dépourvu de trésors magiques. Grâce à son corps original, Wang Lin ne fut pas vaincu, mais se retrouva dans un état lamentable. Sous l'égide de Situ Nan, Wang Lin réapprit lentement de nombreux sorts qu'il n'avait pas pratiqués depuis longtemps et, grâce aux nouvelles techniques transmises, il parvint à tenir tête à son mentor.
+
+Puis, Situ Nan augmenta son niveau pour atteindre le stade avancé de la Transformation de l'Âme. Wang Lin ne pouvait naturellement pas rivaliser sans trésors magiques, mais Situ Nan lui fit remarquer : « Tu manques cruellement d'expérience de combat face à des cultivateurs du stade avancé de la Transformation de l'Âme ou des Ascendants. C'est pourquoi tu es incapable de prendre des décisions précises lors de tes affrontements. Tu dois profiter de ce temps avec moi pour éprouver la puissance de grands cultivateurs et affiner ton instinct de combat. »
+
+En entendant cela, Wang Lin sembla acquérir une nouvelle compréhension. Ses mouvements devinrent progressivement plus astucieux et plus habiles.
+
+Finalement, Situ Nan éleva sa culture jusqu'au stade initial d'Ascendant. Un cultivateur de ce niveau pouvait aisément tuer Wang Lin ; l'exigence de Situ Nan était donc que ce dernier se concentre exclusivement sur l'esquive et la fuite. Cet entraînement était impitoyable. Fort heureusement pour Wang Lin, sa fusion avec son corps original lui avait sauvé la mise ; sans le corps d'un Dieu Ancien à trois étoiles, il aurait été gravement blessé à maintes reprises. Situ Nan l'avait bien vu, et c'est ce qui l'avait poussé à endurcir son cœur pour entraîner Wang Lin avec une telle rigueur.
+
+Bien qu'un mois soit une période courte, les gains de Wang Lin furent considérables.
+
+Ce jour-là, une planète de culture bleue apparut devant lui. Un anneau de lumière entourait l'astre, diffusant un éclat doux. Les yeux de Situ Nan s'illuminèrent en contemplant la planète. Son puissant Sens Divin s'étira jusqu'à la surface de l'astre. Après un court instant, il rétracta son sens et déclara avec fierté : « C'est identique à ma dernière visite. Rien n'a changé. La seule différence est qu'il n'y a plus personne ici ayant une culture supérieure à la mienne ! Haha, alors je vais aller me servir ! De toute façon, je suis venu ici pour piller ! »
+
+Wang Lin esquissa un sourire amer. La boussole stellaire laissa derrière elle une traînée de lumière tandis qu'il fonçait vers la planète. La douce aura lumineuse ne chercha nullement à les barrer ; en leur approche, elle s'écarta pour leur ouvrir le passage.
+
+La boussole stellaire perça l'atmosphère et pénétra dans l'orbite de la planète. À cet instant précis, trois rayons de lumière foncèrent rapidement vers eux. Situ Nan les vit et hurla : « Dégagez de là, face à ce vieux ! »
+
+Les trois rayons s'arrêtèrent brusquement. Après une courte hésitation, ils firent demi-tour et disparurent. Situ Nan éclata d'un rire sonore, sauta de la boussole stellaire et vola vers la surface en lançant : « Wang Lin, ce vieux va aller faire quelques larcins. Va te promener tranquillement. Je reviendrai te retrouver dans trois jours ! »
+
+À peine ces mots atteignirent-ils les oreilles de Wang Lin que la silhouette de Situ Nan avait déjà disparu de sa vue. Après avoir rangé la boussole stellaire, Wang Lin fit un pas et se transforma en une nuée de fumée verte pour s'envoler rapidement.
+
+Cette planète de culture était majoritairement recouverte d'un océan. En descendant, l'odeur saline frappa le visage de Wang Lin. L'océan bleu foncé était très agité ; la brise marine malmenait Wang Lin alors qu'il volait vers le continent. Son Sens Divin se déploya, lui permettant de ressentir le moindre mouvement d'un brin d'herbe dans un rayon de 5 000 kilomètres.
+
+Le continent au loin se rapprocha jusqu'à ce qu'il puisse enfin atterrir. Grâce à son Sens Divin, il aperçut une cité gigantesque qui ressemblait à une bête féroce accroupie.
+
+La ville de Ming Mei était l'une des plus vastes de la planète. Aucun mortel n'y résidait ; elle n'abritait que des cultivateurs. D'innombrables boutiques couvraient toute la cité. Sur le côté ouest, une immense place en plein air permettait aux cultivateurs d'autres planètes de louer un étal à l'aide de pierres spirituelles pour vendre des trésors, commercer ou échanger leurs biens contre des pierres spirituelles et du jade céleste. Une foule compacte de cultivateurs circulait entre les enseignes, rendant la place extrêmement bondée.
+
+Le secteur nord était moins fréquenté, mais c'était là que se trouvaient les boutiques les plus prestigieuses. On n'y dénombrait que neuf magasins, chacun ressemblant à un pavillon du Royaume Céleste, et tous leurs propriétaires possédaient des niveaux de culture élevés. C'était particulièrement vrai pour la neuvième boutique, réputée comme l'établissement numéro un de la ville de Ming Mei.
+
+À cet instant, un jeune homme vêtu d'une robe verte entra par la porte est. Il se tenait droit, ses longs cheveux flottant derrière lui, lui conférant une élégance certaine. Cet homme n'était autre que Wang Lin. Après avoir payé des pierres spirituelles pour entrer, son regard balaya les boutiques les unes après les autres.
+
+L'objectif de Wang Lin était limpide : il lui fallait deux matériaux pour réparer la boussole stellaire. Ces composants étaient extrêmement rares et ne se trouvaient point dans les commerces ordinaires. Tandis qu'il progressait, il inspectait chaque boutique, marquant parfois une pause avant de reprendre sa marche.
+
+Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point ; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect : « Je présume que c'est la première fois que Senior vient à Ming Mei. »
+
+La culture de cet individu était au stade avancé de l'Âme Naissante, n'ayant pas encore atteint le stade de la Formation de l'Âme.
+
+Wang Lin demanda sans détour : « Que me voulez-vous ? »
+
+Le sourire du jeune homme resta imperturbable, mais son cœur battait la chamade. Dès l'entrée de Wang Lin dans la ville, il avait instantanément compris que ce dernier ne connaissait pas encore la cité.

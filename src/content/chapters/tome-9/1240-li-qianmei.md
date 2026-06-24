@@ -1,0 +1,119 @@
+---
+n: 1240
+title: Li Qianmei
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1240 - Li Qianmei
+slug: li-qianmei
+---
+L'expression de Liu Yingjie était sombre alors qu'il fixait Lu Yuncong. Il se souvenait encore qu'il y a mille ans, c'était cet homme qui avait dirigé la première secte de rang 5 à oser défier la secte numéro un de la région de rang 6 : la Secte de la Musique Céleste.
+
+Bien que leur défi eût échoué en fin de compte, cela restait une humiliation pour la Secte de la Musique Céleste. Cet homme avait piétiné la Secte de la Musique Céleste pour faire la renommée de la Secte du Dao Violet et avait permis au nom de « Lu Yuncong » de se répandre à travers toute la Mer des Nuages !
+
+Lu Yuncong s'était montré encore plus menaçant lors de cette grande compétition, étant devenu bien plus puissant qu'il ne l'était il y a mille ans. Il était fort probable qu'il défie à nouveau la Secte de la Musique Céleste !
+
+Si une secte de rang 5 les défiait deux fois, la Secte de la Musique Céleste perdrait la face. S'ils faisaient preuve de la moindre faiblesse, même en cas de victoire, ils seraient tout de même secrètement ridiculisés.
+
+« Lu Yuncong, tout le monde peut parler. Je me demande seulement comment cet homme nommé Liu va me tuer comme une simple fourmi ! » L'expression de Liu Yingjie se calma progressivement. C'était un homme sombre, mais il n'aimait pas le montrer. Il ne lui fallut que quelques secondes pour réprimer la colère qui montait en lui.
+
+Un éclair de froideur passa dans les yeux de Lu Yuncong. Il pouvait naturellement percer à jour la personnalité de Liu Yingjie, mais plus il le voyait, moins il l'appréciait.
+
+« S'il vient, tu le découvriras ! » La voix de Lu Yuncong était glaciale. Outre la compétition, la raison principale de sa venue à la Secte Éternelle était de revoir Wang Lin.
+
+Par conséquent, il accordait une attention particulière à la Secte Originelle.
+
+Cependant, alors que Lu Yuncong parlait, une voix étrange, semblant sourdre du fond des dents de quelqu'un, enveloppa la zone.
+
+« Je suis également impatient de découvrir cet homme nommé Liu dont tu parles, Lu Yuncong. »
+
+À l'instant même où cette voix apparut, l'expression de Lu Yuncong changea. Non seulement la sienne, mais aussi celle de tous les membres de la Secte Originelle, y compris celle de Lu Yanfei.
+
+Cette voix semblait faible, mais dès son apparition, elle affecta les âmes originelles de chacun, provoquant de violentes fluctuations.
+
+Si le niveau de culture d'une personne n'était pas assez élevé, son visage pâlirait et son âme originelle en serait blessée dans cette confusion.
+
+Seul Liu Yingjie resta impassible, bien qu'un regard de surprise brille dans ses yeux. Il se retourna et joignit respectueusement les mains : « Salutations, Senior Zhao. »
+
+L'espace derrière Liu Yingjie se tordit dans un écho d'ondulations tandis qu'une silhouette en sortait progressivement. C'était un homme d'âge moyen dont les traits les plus notables étaient un nez crochu, des lèvres fines et des yeux sombres. Tout en lui exhalait la malveillance.
+
+L'expression de Lu Yuncong changea et, après un long moment, il dit : « Salutations, Senior Zhao de la Secte de la Recherche Montagnarde de rang 7. » Les paroles de Lu Yuncong servaient d'avertissement à Lu Yanfei et aux autres en révélant l'identité de cet homme.
+
+Le visage de Lu Yanfei afficha un instant d'amertume alors qu'elle, ainsi que les autres cultivateurs de la Secte Originelle, saluaient respectueusement cet individu.
+
+L'apparition de cet homme refroidit immédiatement l'atmosphère. Certains spectateurs reculèrent sur-le-champ, tandis que d'autres quittèrent purement et simplement les lieux. Ce qui n'était au départ qu'une affaire concernant la Secte Originelle venait de se transformer en un affrontement entre la Secte du Dao Violet, la Secte de la Musique Céleste et la Secte de la Recherche Montagnarde.
+
+Le point central de leur confrontation semblait être l'énigmatique Liu mentionné par Lu Yuncong.
+
+L'homme d'âge moyen nommé Zhao se posta aux côtés de Liu Yingjie et hocha légèrement la tête. Liu Yingjie se montra encore plus respectueux.
+
+« Puisque cet homme a affirmé que cette personne peut vous tuer comme on écrase une fourmi, alors vous devriez accepter ce défi. Je souhaite également voir si ce mystérieux Liu est réel ou s'il ne fait qu'étaler de vaines paroles », dit lentement l'homme d'âge moyen d'une voix aussi féminine que d'ordinaire.
+
+Liu Yingjie esquissa un sourire et acquiesça : « Puisqu'il en est ainsi, je brûle d'envie de voir la puissance de ce mystérieux Liu. Cependant, si cet homme n'apparaît pas ou s'il n'est pas aussi fort que ce qu'affirme le Compagnon Cultivateur Lu, que devrons-nous faire ? Senior Zhao, nous vous prions de nous guider. »
+
+L'homme d'âge moyen nommé Zhao regarda Lu Yuncong et dit d'un ton sombre : « Si tel est le cas, je serai naturellement le témoin. Ce n'est pas une mince affaire ; comment peut-on proférer de tels mots en l'air ? »
+
+L'expression de Lu Yuncong resta sombre et il garda le silence un long moment. Bien que la Secte de la Recherche Montagnarde ne fût pas la plus puissante des sectes de rang 7, Senior Zhao était un Ancien extérieur ayant de bonnes relations avec la Secte de l'Âme Silencieuse. S'il s'en mêlait, il pourrait faire grand bruit autour de cette affaire.
+
+Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement : « Cette affaire n'a rien à voir avec le Compagnon Cultivateur Lu. C'est un différend qui concerne notre Secte Originelle. Si... »
+
+Avant que Lu Yanfei ne puisse achever sa phrase, les yeux de l'homme d'âge moyen nommé Zhao devinrent glacials et se fixèrent sur elle. Ce regard était tel une paire d'épées s'élançant pour percuter ses propres yeux.
+
+Lu Yanfei sentit son corps trembler et un rugissement résonna dans son âme originelle. Elle ne put s'empêcher de reculer de plusieurs dizaines de pieds, le visage livide et la bouche ensanglantée. Tout son corps devint flasque.
+
+« Une gamine comme toi n'est pas qualifiée pour prendre la parole ici ! »
+
+Un silence immédiat tomba sur les environs. Les membres de la Secte Originelle étaient furieux, mais aucun n'osait dire un mot. Ils ne purent que ravaler cette humiliation, laissant l'amertume envahir leurs corps.
+
+Après une longue réflexion, Lu Yuncong regarda Zhao Long et dit : « Si le Frère Liu ne vient pas ou s'il ne peut pas tuer Liu Yingjie comme on écrase une fourmi, je donnerai naturellement des explications à Senior Zhao ! »
+
+Zhao Long afficha un sourire sinistre et laissa échapper un rire rauque avant de se détourner. À ses côtés, Liu Yingjie lança un regard d'excuse à Lu Yanfei, mais il ne daigna même pas regarder Lu Yuncong alors qu'il partait avec Zhao Long.
+
+L'endroit où ils se trouvaient n'était qu'une goutte d'eau dans l'océan comparé à la vaste plateforme où se déroulait la compétition. À cet instant, un rayon de lumière blanche convergea vers les différentes plateformes de combat. Cette lumière traversa le ciel en provoquant une série de grondements tonitruants. Avant même son approche, elle avait déjà capté l'attention des cultivateurs environnants.
+
+L'aura d'un cultivateur de niveau Briseur de Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Éternelle pour l'accueillir.
+
+Alors que la lumière blanche approchait, elle ralentit, permettant à tous les observateurs de distinguer une femme à l'intérieur. Ils aperçurent également des cheveux bleus qui n'appartenaient qu'à une seule personne dans toute la Mer des Nuages !
+
+Li Qianmei !
+
+De la Secte Heaven Breaking de rang 9 !
+
+Un tumulte soudain éclata alors que près de cent mille cultivateurs présents reconnurent instantanément l'identité de la femme aux cheveux bleus !
+
+« Il s'agit de Li Qianmei de la Secte Heaven Breaking ! Je ne pensais pas que la compétition de la Secte Éternelle attirerait sa présence ! »
+
+« Les rumeurs disaient qu'elle combattait la marée de bêtes au Secteur Démon. Il est inattendu qu'elle l'ait quitté pour venir ici ! »
+
+« On raconte que lors de la bataille contre la marée de bêtes, aucun cultivateur impliqué n'est autorisé à partir. Comment Li Qianmei a-t-elle obtenu la permission du Secteur Démon ? »
+
+Les murmures se propagèrent sur toute la plateforme avec l'apparition de Li Qianmei. Même les combats des sectes de rang 4 ne suscitaient plus l'intérêt de personne.
+
+Lu Yingjie vit également Li Qianmei, perchée haut dans le ciel, et ses yeux s'illuminèrent. Il connaissait Li Qianmei ; elle lui avait autrefois posé trois questions.
+
+Même Zhao Long, aux côtés de Liu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Heaven Breaking de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
+
+L'homme chargé de la compétition aujourd'hui était un vieil homme nommé Feng Hai, accompagné de six autres Anciens de la Secte Éternelle. Ayant senti la présence de Li Qianmei, il s'élança immédiatement avec les Anciens et une trentaine de disciples. Ils furent suivis par les cent personnes responsables de l'événement.
+
+Ce groupe imposant vint saluer l'arrivée de Li Qianmei.
+
+« C'est un immense honneur pour notre Secte Éternelle que le Compagnon Cultivateur Lu nous fasse l'honneur de sa présence. Je m'appelle Feng Hai. » Feng Hai sourit, très enthousiaste, en joignant les mains.
+
+Les six Anciens derrière lui sourirent également et s'inclinèrent respectueusement. Les disciples affichaient tous des expressions déférentes, regardant Li Qianmei avec un mélange d'admiration et de crainte.
+
+Outre ce groupe, plus de dix rayons de lumière convergeaient depuis les confins de la planète. Il s'agissait d'un autre noyau dirigeant de la Secte Éternelle, témoignant de l'importance capitale accordée à Li Qianmei.
+
+« Je suppose que le Compagnon Cultivateur Li revient tout juste de la marée de bêtes. Je vous prie de me suivre vers un lieu préparé par la Secte Éternelle pour votre repos. J'imagine que le Maître de la Secte a également été informé de votre arrivée. C'est un grand honneur que vous ayez accepté de venir. » Feng Hai joignit les mains tandis que son rire résonnait.
+
+Bien qu'elle soit devenue le centre de toutes les attentions, Li Qianmei restait sereine. Elle ne déploya pas précipitamment son Sens Divin pour inspecter les lieux, mais observa d'abord l'assemblée avant de poser son regard sur Feng Hai. Elle dit doucement : « Le repos n'est pas une priorité. Compagnon Cultivateur Feng, la Secte Originelle de rang 5 est-elle présente à cette compétition ? »
+
+« La Secte Originelle ? » Feng Hai fut surpris. Un disciple s'approcha immédiatement pour lui glisser un mot à l'oreille.
+
+« La Secte Originelle est bel et bien là. » Après avoir entendu cela, Feng Hai sourit, mais un doute germa dans son esprit. La modeste Secte Originelle pouvait-elle avoir un lien avec Li Qianmei ?
+
+Li Qianmei réprima ses émotions avant de demander : « Où sont-ils ? »
+
+Le doute de Feng Hai s'intensifia, mais il ne laissa rien paraître. Il regarda le jeune disciple qui l'avait informé et ce dernier répondit rapidement : « Sur la plateforme nord... à la lisière. »
+
+À peine ces mots prononcés, le Sens Divin de Li Qianmei se déploya pour envelopper toute la zone nord. Elle repéra instantanément les membres de la Secte Originelle. Comparé à l'immensité de la plateforme, cet endroit était véritablement insignifiant.
+
+Cependant, dès que Li Qianmei eut localisé la Secte Originelle, elle s'élança vers eux tel un éclair !

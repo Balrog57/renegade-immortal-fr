@@ -1,0 +1,111 @@
+---
+n: 1208
+title: "Résoudre l'Ancien Pacte"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1208 - Resolve the Ancient Covenant
+slug: resoudre-lancien-pacte
+---
+Le jeune homme portant la marque du croissant de lune se retourna et rugit face à Wang Lin : « Je ne viens pas d'un clan esclave ! »
+
+Wang Lin le regarda avec indifférence, tandis que les flammes autour de lui redoublaient d'intensité. La première fois qu'il avait rencontré ce jeune homme, c'était au sein du vide lors de la bataille contre le Serpent Lunatique. Ce dernier venait du Royaume Extérieur et avait formé un vortex dans une tentative de capturer le Serpent Lunatique !
+
+Cet individu était d'une arrogance extrême, se vantant fièrement d'être le Dao Céleste devant les habitants du Royaume Scellé comme Wang Lin. Wang Lin avait été stupéfait à l'époque, mais plus il en apprenait sur le passé, plus son regard devenait glacial envers le jeune homme.
+
+Le clan esclave des anciens dieux. Celui qui était protégé par les anciens dieux depuis les temps primordiaux : le Clan Dévorant la Lune !
+
+Alors que Wang Lin laissait échapper un reniflement glacial, sa main droite se serra en un poing et il lança un coup fulgurant. La puissance d'un ancien dieu déferla à travers le vide dans un grondement tonnerreux, comme si elle pouvait anéantir le monde. Elle convergea rapidement vers le jeune homme.
+
+Le visage de ce dernier devint livide. Il savait qu'il ne pouvait pas s'échapper. S'il voulait survivre, il devait se battre ! Pourtant, son cœur était amer. Même en combattant, quelles étaient ses chances de survie... Il l'ignorait.
+
+S'il s'était trouvé à l'extérieur et qu'il avait combattu un membre de son propre clan, il aurait pu au moins se rendre. Cependant, cet homme était un cultivateur du Royaume Scellé et aussi un ancien dieu, un ancien dieu royal. D'après les archives de sa famille, son clan avait trahi les anciens dieux. Même s'il se rendait, il ne pourrait échapper à la mort ni à l'exploration de son âme.
+
+« Qu'est-ce que ce fichu endroit ? Pourquoi des cultivateurs du Royaume Scellé apparaissent-ils ici ?! »
+
+L'expression du jeune homme devint encore plus féroce et il poussa un rugissement. Ses mains formèrent un sceau et son corps prit une apparence cristalline, comme s'il était drapé de lumière lunaire. Alors que le poing de Wang Lin approchait, il commença à pivoter pour former un vortex. Au centre de ce tourbillon, un croissant de lune gigantesque apparut !
+
+Au moment où le poing de Wang Lin percuta le sort, un fracas tonnerre retentit. Le croissant de lune trembla violemment mais ne se brisa pas. Cependant, du sang jaillit du coin de la bouche du jeune homme. Il serra les dents et déversa toute la puissance de son corps. Puis, en s'élançant, il hurla : « Force de Rebond Lunaire ! »
+
+Instantanément, l'éclat du croissant devint aveuglant et l'image d'un coup de poing d'ancien dieu jaillit vers Wang Lin !
+
+Le visage de Wang Lin resta imperturbable. Il ricana et leva sa main droite pour porter un nouveau coup. Simultanément, il fit un pas en avant, se rapprochant à une vitesse inimaginable.
+
+L'impact entre le poing de Wang Lin et celui formé par le croissant lunaire provoqua un rugissement assourdissant.
+
+« Comment le sort d'un clan esclave peut-il défier un ancien dieu ? » Wang Lin chargea et son poing droit enchaîna les coups contre le vortex. Le fracas se poursuivait tandis que le jeune homme, prisonnier du tourbillon, était repoussé sans cesse. Chaque pas en arrière faisait trembler violemment son corps.
+
+À cet instant, Wang Lin ressemblait à un dieu de la guerre. Empli d'une intention de combat infinie, il progressait pas à pas !
+
+L'un attaquait, l'autre reculait, et chaque choc générait une Force de Rebond Lunaire. À cet instant précis, tous les autres sons étaient étouffés par ces grondements.
+
+« Brise-toi ! » La voix de Wang Lin était calme, mais empreinte d'une pression invisible. À ce moment, son corps pivota et son pied droit frappa le vortex.
+
+Dans un déluge de craquements, le vortex s'effondra. Le croissant de lune à l'intérieur se fragmenta et explosa !
+
+Une silhouette ensanglantée fut expulsée. C'était le jeune homme, couvert de sang, projeté au loin en une trajectoire courbe. Wang Lin marcha alors vers lui.
+
+La vue du jeune homme était trouble, mais il lutta pour réciter un sort extrêmement complexe. Simultanément, ses mains formèrent un sceau et il pointa l'espace entre ses sourcils.
+
+« Sort de la Lune Interdit, Colère Divine ! » Ce jeune homme savait que son Clan Dévorant la Lune possédait un ancien sort interdit. Il ne devait l'utiliser qu'en dernier recours, car cela était humiliant pour son clan !
+
+Alors qu'il rugissait, il s'agenouilla au sol. Wang Lin se rapprocha. La main du jeune homme traça un sceau étrange et il commença à pratiquer une adoration.
+
+« Prêtez la puissance des âmes des dieux aux membres de mon Clan Dévorant la Lune ! »
+
+À l'instant où sa voix résonna, une puissance colossale d'ancien dieu émana du jeune homme. L'espace derrière lui se tordit et l'ombre d'un ancien dieu de plusieurs milliers de pieds de haut apparut !
+
+L'ombre était floue et ses yeux étaient clos. Seules ses sept étoiles d'ancien dieu émettaient une lueur éblouissante !
+
+Le cœur du jeune homme était rongé par l'humiliation, mais en ce moment de crise, il ne pouvait plus s'en soucier. Sa voix rauque résonna dans le vide : « Je demande à l'âme de l'ancien dieu de donner à cet esclave la puissance de la lune pour anéantir tous mes ennemis ! »
+
+L'ombre de l'ancien dieu qui se dressait derrière lui ouvrit soudainement les yeux, révélant un regard antique et tyrannique. Il leva lentement sa main droite, puis la laissa retomber vers Wang Lin.
+
+Le regard du jeune homme devint venimeux alors qu'il pensait : « Puisque vous êtes tous deux des anciens dieux, je vais vous laisser vous entretuer ! »
+
+Les yeux de Wang Lin se remplirent de tristesse en contemplant l'ombre de l'ancien dieu et le coup de poing qui s'approchait. Il laissa échapper un soupir et les étoiles d'ancien dieu entre ses sourcils apparurent. Elles se mirent à tourner, et une aura divine antique enveloppa son corps.
+
+La langue des anciens dieux sortit de la bouche de Wang Lin, se propageant comme des ondulations : « Le clan que tu protèges a trahi mon clan des anciens dieux. En tant qu'ancien dieu royal, je vous ordonne à tous de vous disperser ! »
+
+L'ombre de l'ancien dieu s'interrompit. Ses yeux se remplirent de confusion, puis de libération, alors qu'il disparaissait progressivement... Cela faisait bien longtemps qu'un ancien dieu royal n'était pas apparu parmi les anciens dieux. L'âme d'ancien dieu qui protégeait le Clan Dévorant la Lune n'était qu'une infime parcelle de volonté... Autrefois, c'était un ancien dieu royal qui avait décidé de protéger le clan esclave Dévorant la Lune, et l'ensemble du clan des anciens dieux l'avait suivi sans hésiter pendant une éternité. Même avec le passage du temps et leur propre mort, cette volonté persistante continuait de les abriter.
+
+Cela aurait duré jusqu'à ce qu'un autre ancien dieu royal apparaisse pour donner l'ordre d'arrêter. C'était la seule façon de résoudre cet ancien pacte !
+
+Aujourd'hui, à cet instant précis, les paroles de Wang Lin étaient la volonté des anciens dieux royaux !
+
+Le jeune homme fut totalement stupéfait. Avec son expérience, comment aurait-il pu connaître un tel secret ? Il l'ignorait, et c'est pour cela qu'il avait été assez stupide pour emprunter le pouvoir des anciens dieux devant un ancien dieu royal tel que Wang Lin !
+
+« Désormais, les anciens dieux ne protégeront plus le Clan Dévorant la Lune, ils le détruiront ! » Ce furent les derniers mots que le jeune homme entendit. Wang Lin avança et envoya un coup de pied. Un fracas résonna dans le corps du jeune homme alors que tous ses os se brisaient, sans que sa chair ne se désintègre pour autant. Au lieu de cela, il fut projeté vers le squelette situé sous la tablette de pierre par la force du coup.
+
+Dans un choc brutal, son corps percuta le squelette et son épaule fut transpercée par les deux ongles aux sept couleurs ! Un cri déchirant s'échappa du jeune homme alors que son corps se retrouvait cloué par ces deux ongles. La douleur de voir son Dao aspiré et son âme constamment broyée était une épreuve qu'aucun être ordinaire ne pouvait endurer.
+
+Wang Lin ne le tua pas immédiatement ; il lui fit subir la même souffrance que Zhan Xingye. Attendre la mort après une torture sans fin !
+
+Le corps du jeune homme trembla sous la tablette de pierre. Il lutta pour s'enfuir, mais en vain. Même son âme originelle ne pouvait s'échapper, car elle était scellée dans son propre corps.
+
+Wang Lin s'approcha lentement et pressa sa main droite sur le front du jeune homme. Son Sens Divin s'engouffra en lui pour fouiller son âme par la force. Après avoir extrait les souvenirs, le jeune homme fut sur le point de sombrer dans l'inconscience. Cependant, la douleur était si intense qu'il ne pouvait pas s'évanouir. Il ne pouvait ni se suicider, ni échapper à cette torture infinie qui le menait lentement vers la mort.
+
+Wang Lin retira sa main et poussa un soupir.
+
+À cet instant, les flammes de l'Oiseau Vermillon atteignirent un nouveau sommet. Tandis que le feu brûlait, il continua de croître vers le troisième éveil !
+
+À l'extérieur de la majestueuse formation qui scellait cette zone se trouvait le vaste système stellaire connu sous le nom d'Ancien Système Stellaire, ou le Royaume Extérieur !
+
+Dans l'immensité de l'Ancien Système Stellaire, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan du Tonnerre Disséminé.
+
+Un lac de tonnerre existait depuis l'éternité au sein du Clan du Tonnerre Disséminé. Ce tonnerre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour de lui pour lui offrir des sacrifices.
+
+Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, ce lac éternel émit un hymne tonnerre capable de faire trembler les cieux ! Cela choqua tout le Clan du Tonnerre Disséminé et fit sursauter tous leurs cœurs !
+
+Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, le lac de tonnerre éternel disparut soudainement sans laisser de trace, comme s'il avait été arraché... Après dix respirations, il réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
+
+Dans l'Ancien Système Stellaire, il y avait aussi la zone du Clan de l'Hirondelle de Feu... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
+
+De même, d'innombrables statues d'oiseaux vermillions étaient érigées sur les temples. Cependant, ces oiseaux étaient noirs, comme s'ils étaient des oiseaux de feu.
+
+Pourtant, au moment où le membre du Clan de l'Hirondelle de Feu mourut et que Wang Lin déclara qu'il reprenait le contrôle du feu, toutes les statues d'oiseaux de feu tremblèrent et des cris d'hostilité emplirent les étoiles. Des craquements retentirent à travers le cosmos et environ 30 % des statues s'effondrèrent !
+
+Tout le Clan de l'Hirondelle de Feu fut sous le choc !
+
+Au moment où les statues s'écroulèrent, un vieil homme leva les yeux vers le ciel et murmura pour lui-même : « La légende ancienne disait que lorsqu'ils reviendraient, tous les faux oiseaux vermillions s'effondreraient... »
+
+Simultanément, parmi les sept puissants clans, un événement terrifiant se produisit au sein du Clan Dévorant la Lune. C'était un changement qui terrifia tous ses membres !

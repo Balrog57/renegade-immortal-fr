@@ -1,0 +1,117 @@
+---
+n: 1306
+title: Naissance du Royaume Ji
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1306 - Birth of the Ji Realm
+slug: naissance-du-royaume-ji
+---
+Les Sept Étoiles, les Six Directions et les Cinq Éléments fusionnèrent. Ce pouvoir pouvait tout détruire ! Le visage de Wang Lin était pâle, mais ses yeux devenaient de plus en plus brillants !
+
+Il saisit vaguement le sens des paroles du Seigneur du Domaine Scellé. La rétribution divine était une calamité, mais aussi une fortune !
+
+« Neuf est la limite. Il y a les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments ; il existe donc sûrement quatre, trois et deux ! J'ignore ce que sont le quatre et le trois, mais le deux est indubitablement le Yin et le Yang ! »
+
+« De neuf à deux, après avoir traversé diverses phases de changement, ils se transformeront en un seul ! Et si l'Un de cette rétribution était le Ji ?! » Le cœur de Wang Lin battait la chamade, mais il n'en était pas certain. Cependant, il devait lutter et résister jusqu'au bout pour voir si c'était là ce royaume Ji qu'il désirait tant ; il refusait d'abandonner !
+
+À cet instant, les Sept Étoiles convergèrent soudainement, et l'expression du Grand Ancien de la Secte Démon changea. Bien que le Maître de Secte n'ait rien dit sur la personne faisant face à la rétribution divine, à en juger par ses derniers mots et le jade, la relation entre cet individu et le Maître de Secte ne pouvait être ordinaire.
+
+Ses yeux s'illuminèrent et il s'apprêta à s'avancer pour aider Wang Lin à résister à la calamité des Sept Étoiles !
+
+« Aîné, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette rétribution divine ! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient !
+
+Les Sept Étoiles descendirent avec une intention meurtrière monstrueuse et sept rayons de lumière s'abattirent sur Wang Lin. Un grondement de tonnerre retentit et il fut couvert de sang. Son âme originelle trembla et il fut repoussé. Il devint mortellement pâle par la suite, mais il se mit à rire.
+
+Au moment où les Sept Étoiles pénétrèrent dans son corps, elles se lièrent au Huit Diagrammes pour former une aura encore plus destructrice, destinée à faire s'effondrer son organisme !
+
+Cependant, sous cette puissance, Wang Lin pressentit faiblement l'aura du Royaume Ji. Il connaissait extrêmement bien ce royaume ; il l'avait accompagné pendant plusieurs centaines d'années !
+
+En ressentant cet infime fragment de Ji, comment ne pouvait-il être transporté par la joie et rire ? Bien qu'il fût gravement blessé à cet instant et que son corps fût sur le point de s'effondrer, il continuait de rire. Il ouvrit les bras et permit aux carapaces formées par les Six Directions de s'écraser contre lui.
+
+De nouveaux grondements tonnerreux résonnèrent. Son corps n'était plus qu'un carnage sanglant, mais l'endroit où se cachait Li Qianmei était parfaitement épargné ! Le corps d'un dieu ancien, particulièrement celui d'un dieu ancien à six étoiles, était d'une robustesse indescriptible. Même après avoir subi de tels coups, il se rétablissait déjà rapidement.
+
+Les carapaces formées par les Six Directions pénétrèrent le corps de Wang Lin et se lièrent aux Sept Étoiles, aux Huit Diagrammes et aux Neuf Palais. L'âme originelle de Wang Lin explosa ! Cependant, il la verrouilla à l'intérieur de son corps pour ne pas la laisser se dissiper.
+
+Le regard de Wang Lin devint d'abord las, puis se raffermit. Il agita sa main droite et une grande quantité de pilules apparut. Il les dévora pour récupérer ses forces, alors que les empreintes de paumes des Cinq Éléments arrivèrent !
+
+Au moment où elles frappèrent, les yeux de Wang Lin brillèrent intensément. Il attendait ce moment ! Il lutta pour avancer, puis ouvrit la bouche pour engloutir l'empreinte de paume de feu.
+
+« Feu des cieux, entre dans mon corps et forge mon âme originelle ! » rugit Wang Lin en dévorant l'empreinte. Un incendie incessant balaya son corps et son âme originelle effondrée. Contre toute attente, l'âme originelle de Wang Lin se reforma sous ce feu, et des essences de feu commencèrent à apparaître. Elles formèrent un vortex au sein de son âme originelle, absorbant la puissance de l'empreinte de paume.
+
+Simultanément, les empreintes de métal, de bois, d'eau et de terre frappèrent le corps de Wang Lin. Elles laissèrent quatre marques distinctes et commencèrent à provoquer l'effondrement de ses organes internes.
+
+« Feu et tonnerre du Huit Diagrammes, renforcez mon corps ! » Alors que Wang Lin rugissait, le Huit Diagramme qui avait pénétré son corps surgit. Les diagrammes de feu et de tonnerre se libérèrent et commencèrent à résister aux empreintes de paumes !
+
+Après avoir introduit ces deux diagrammes dans son corps, il les avait cachés. En les faisant jaillir maintenant, il prit la rétribution divine au dépourvu ! Grâce à la régénération du dieu ancien et aux deux diagrammes, il parvint à contrer l'effondrement des Cinq Éléments !
+
+Il n'était pas mort après avoir subi les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments !
+
+Wang Lin essuya le sang au coin de ses lèvres et rugit face au vortex de la rétribution divine : « Y en a-t-il d'autres ?! »
+
+« Quatre Divins... Infini... » Une voix vague, dénuée de toute émotion, résonna à travers le monde comme pour répondre à Wang Lin.
+
+Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaillirent du vortex. Un Dragon Azure émergea lentement, suivi d'un Oiseau Vermillon rouge qui poussa un cri faisant trembler les cieux.
+
+Une intention meurtrière se propagea alors qu'un Tigre Blanc chargeait en rugissant, et une Tortue Noire fit également son apparition !
+
+Les Quatre Esprits de la Rétribution Divine !
+
+« C'étaient donc les Quatre Divins ! Oiseau Vermillon, reviens ! » Les yeux de Wang Lin brillèrent et il sourit en pointant l'Oiseau Vermillon. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
+
+Elle le rejoignit en un instant et l'encercla dans des rugissements d'exultation. Simultanément, une ombre d'Oiseau Vermillon apparut autour du corps de dieu ancien de Wang Lin. En résonnant avec lui, l'Oiseau Vermillon fusionna avec Wang Lin et des flammes jaillirent dans le vide.
+
+Après avoir absorbé le feu du Huit Diagramme, des Cinq Éléments et de l'Oiseau Vermillon, le feu intérieur de Wang Lin avait atteint un sommet prodigieux !
+
+L'Oiseau Vermillon en lui s'était déjà éveillé trois fois, et à chaque réveil, sa compréhension du feu augmentait considérablement. Ces trois éveils avaient porté sa maîtrise du feu à un niveau inimaginable et avaient donné naissance à des essences !
+
+Tous les sorts de feu devaient s'incliner devant lui !
+
+Il pouvait embraser la flamme de quiconque cultivait des arts pyrotechniques et les tuer d'un simple revers de main. Après la naissance de l'essence, le contrôle de Wang Lin sur le feu avait atteint une limite, mais cette limite ne concernait que le feu corporel !
+
+Le feu se divisait en deux. L'un était le feu corporel, englobant de multiples types de flammes. L'autre était le feu éthéré, bien plus insaisissable. À moins d'avoir atteint la limite du feu corporel, il était impossible de saisir le royaume du feu éthéré !
+
+La colère est une forme de feu éthéré. Elle n'a pas de forme physique, mais elle peut surpasser toutes les flammes du monde. C'est une sorte de Dao, un esprit, et aussi un domaine !
+
+Si Wang Lin pouvait éveiller l'Oiseau Vermillon une quatrième fois pour atteindre le royaume du feu éthéré, alors même si quelqu'un n'avait jamais cultivé de sorts de feu, Wang Lin pourrait enflammer sa colère. Il pourrait alors le consumer jusqu'à la mort par le feu de la colère !
+
+Le feu le plus puissant au monde est celui de la colère. Tout le monde le possède, et il est invisible. Si l'on ne peut y résister, on meurt sans aucun doute !
+
+À cet instant, après avoir absorbé les différents feux de la rétribution divine, Wang Lin atteindrait son quatrième éveil. Il n'avait besoin que d'un peu plus pour franchir le stade du feu corporel et entrer dans celui du feu éthéré !
+
+L'Oiseau Vermillon autour de lui poussa un cri et pénétra dans son corps. Il nourrissait sa chair et réparait son âme originelle, donnant à Wang Lin la force nécessaire pour résister à l'arrivée des trois autres esprits !
+
+Cependant, la rétribution divine n'était pas achevée et devenait de plus en plus puissante. À ce moment, la voix vague résonna une nouvelle fois. Elle était froide et impitoyable, dépourvue de toute émotion !
+
+« Trois Talents... Infini... »
+
+Trois Talents : le Ciel, la Terre et l'Humain ! Ceux-ci correspondaient au Soleil, à la Lune et aux Étoiles ! Le Ciel représentait le Soleil, la Terre la Lune, et l'Humain les Étoiles ! À mesure que le son se diffusait, le vide changea et devint chaotique !
+
+Le Ciel possédait le pouvoir du soleil et émettait une loi d'origine infinie ! L'origine de toute chose. Ce pouvoir se propageait sans fin !
+
+La Terre possédait le pouvoir de la lune et contenait l'opposé de la loi d'origine. La loi de la fin apparut dans le vide !
+
+L'Humain possédait le pouvoir des étoiles et s'enfonça dans le chaos, formant une loi que Wang Lin n'avait jamais vue auparavant. Elle n'appartenait ni à la loi d'origine, ni à la loi de la fin ! Les trois forces se transformèrent en trois rayons de lumière qui frappèrent Wang Lin.
+
+La puissance qu'ils contenaient était inimaginable et pouvait tout détruire !
+
+« Deux Rites... Infini... » La voix vague résonna encore une fois. Alors que cet écho glacial se propageait, autre chose apparut dans le vide !
+
+Les Deux Rites représentaient le pouvoir du Yin et du Yang, de la vie et de la mort. C'était aussi le pouvoir du karma. Tout ce qui existe dans le monde y était inclus. Le Ciel et la Terre avaient engendré les Quatre Divins, et les Quatre Divins s'étaient transformés en Neuf Palais. Ils résonnaient également avec les Trois Talents pour créer une puissance capable d'ébranler les cieux. Ils formèrent un diagramme Yin et Yang gigantesque dans le vide.
+
+Le diagramme se forma avec Wang Lin en son centre. Il tournait frénétiquement, et un rugissement tonnerreux retentit alors qu'il se contractait rapidement vers lui !
+
+Simultanément, la lumière des Trois Talents convergea vers Wang Lin. C'était une puissance à laquelle il ne pouvait rien faire. La Lumière du Ciel perça entre les sourcils de Wang Lin. La Lumière de la Terre transperça sa poitrine. La Lumière de l'Humain se divisa en quatre pour frapper ses membres !
+
+À cet instant, le diagramme Yin et Yang s'abattit sur Wang Lin et recouvrit tout son corps.
+
+Des grondements tonnerreux éclatèrent. Le corps de dieu ancien à six étoiles de Wang Lin ne put supporter cette puissance destructrice. Son corps était un carnage sanglant, mais Li Qianmei n'était nullement blessée. Cette rétribution divine ne visait que Wang Lin et ignorait tous les autres !
+
+« Une rétribution... Infinité de rétributions, commence... » Alors que le corps de Wang Lin était sur le point de s'effondrer, la voix vague résonna une ultime fois. Le vide sembla avoir été anéanti, et des vagues de lumière apparurent de nulle part.
+
+Les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions, les Cinq Éléments, les Quatre Divins, les Trois Talents et les Deux Rites apparurent tous ensemble, et alors qu'ils tournaient les uns autour des autres, une force céleste extrême naquit !
+
+C'était le Ji !
+
+Bien que Wang Lin fût gravement blessé, son cœur de Dao et ses domaines étaient toujours là. Puis, un changement soudain se produisit ! Dans son corps, du Neuf Palais aux Deux Rites, tout apparut de manière inattendue... de manière inattendue également dans son être, à l'image de la rétribution divine !
+
+Le Ji était lui aussi né à l'intérieur de son corps !

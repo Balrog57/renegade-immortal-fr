@@ -1,0 +1,77 @@
+---
+n: 784
+title: Le Pavillon des Collections
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 784 - Collection Pavilion
+slug: le-pavillon-des-collections
+---
+Des aiguilles d'argent apparurent devant le cultivateur nommé Chen. Chaque aiguille émettait une lueur bleue tandis que sa main traçait un sceau, faisant surgir autour de lui une immense figure illusoire imprégnée d'énergie spirituelle céleste. La silhouette pointa Wang Lin du doigt, et les aiguilles jaillirent vers le dos de ce dernier.
+
+Le cultivateur nommé Song brandit un motif yin et yang dans sa main ; lorsqu'il le projeta, des éclairs parcoururent l'artefact. Il était chargé d'une puissante énergie originelle qui fonça sur Wang Lin.
+
+Un autre suivit le motif, sa main droite formant un sceau étrange pour faire apparaître un long fil de soie sombre. Dès son apparition, ce fil dégagea une pression intense et une épaisse brume verte.
+
+Enfin, la cultivatrice dont le corps avait été perdu ouvrit la bouche pour cracher un petit éventail de cristal. Elle s'en saisit, le lança, puis expulsa de l'énergie originelle. Celle-ci se mua instantanément en six dragons qui encerclèrent Wang Lin pour lui barrer toute fuite.
+
+Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une idée en tête : tuer Wang Lin pour s'emparer du sort céleste du neuvième étage. Leurs attaques étaient fulgurantes, et leurs sorts ainsi que leurs trésors magiques convergeaient rapidement vers Wang Lin, ne faisant plus qu'un avec lui en un instant.
+
+Wang Lin était encore en état de transe, son esprit captivé par la scène prodigieuse qu'il avait contemplée avec le vent. Alors que les trois assaillants approchaient, il pointa inconsciemment un doigt vers eux et murmura : « Appeler le Vent. »
+
+À l'instant même où il prononça ces mots, un vent noir jaillit de la main de Wang Lin. Ce souffle s'amplifia aussitôt pour envelopper toute la zone. Tandis que ce vent glacial soufflait, le ciel s'obscurcit comme s'il se repliait sur lui-même.
+
+Le fragment entier commença à trembler et une aura puissante emplit le monde. Tout cela était dû au vent noir ! À cause de ce sort céleste ! C'était comme si la terre gardait le souvenir de ce sort, comme si le ciel avait déjà été fustigé par lui par le passé.
+
+Au moment où le vent noir apparut, le sort de l'empereur céleste, disparu depuis d'innombrables années, venait de renaître !
+
+Dès son apparition, le vent chargea sans la moindre hésitation vers les trois personnes situées derrière Wang Lin.
+
+Sitôt que les aiguilles d'argent du cultivateur Chen touchèrent le vent noir, elles explosèrent sans opposer la moindre résistance. La figure qui pointait Wang Lin se désintégra comme une flamme balayée par la bourrasque.
+
+« C'est le sort céleste du neuvième étage ! » Les yeux du cultivateur Chen trahirent sa terreur et son cuir chevelu en fut engourdi. Dans son esprit, il comprit que ce vent noir allait lui ôter la vie. Il ne trouva aucune volonté de résister ; c'était comme s'il faisait face à la puissance même des cieux.
+
+Il se retourna précipitamment pour fuir et tenta une téléportation. Cependant, même cela fut vain. Sous la force du vent, son corps trembla et il réapparut brutalement au milieu de sa transition. Ses yeux s'éteignirent et son corps s'effondra.
+
+Son origine était telle un feu que le vent noir venait d'étouffer...
+
+Tout cela se produisit en un éclair. Outre Chen, le cultivateur Song subit un sort similaire. Le motif yin et yang s'effondra instantanément avec son corps. Terrifié, il abandonna précipitamment son enveloppe physique pour tenter de s'échapper.
+
+Quant à la cultivatrice nommée Lu, l'éventail qu'elle tenait se désintégra dès qu'il toucha le vent noir. Elle était déjà sous forme d'âme originelle et, tout aussi terrifiée, elle battit en retraite avec précipitation.
+
+À cet instant, le vent noir disparut soudainement, comme s'il n'avait jamais existé. Les yeux de Wang Lin quittèrent leur état de transe pour retrouver toute leur clarté.
+
+« Ainsi donc, c'est cela, le sort céleste "Appeler le Vent" ! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant la cultivatrice Lu.
+
+De son côté, le regard de Wang Lin devint glacial ; il cracha un grain de sable qui se mua en un sceau pour poursuivre le cultivateur Song. L'artefact le rattrapa instantanément et s'abattit sur lui sans merci.
+
+Le cultivateur Song poussa un cri et son âme originelle libéra une immense quantité d'énergie originelle. Ses yeux étaient emplis de terreur alors qu'il tentait désespérément de fuir, mais le Fouet du Karma surgit et le ramena brutalement vers Wang Lin.
+
+« Cher camarade Xu, ayez pitié ! Je sais que j'ai eu tort, j'ai eu tort ! » Sans accorder la moindre attention aux supplications de Song, Wang Lin garda un regard froid et pinça ses doigts. L'âme originelle du cultivateur Song s'effondra immédiatement, se transformant en une énergie originelle que Wang Lin dévora.
+
+La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt la cultivatrice Lu, qui était piégée par le drapeau des âmes.
+
+Sa main s'étira et le Fouet du Karma fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle de la cultivatrice Lu du drapeau.
+
+« Si vous me tuez, la famille Lu ne vous lâchera jamais ! » hurla la cultivatrice, avant de se muer en silence lorsque Wang Lin pinça son âme originelle pour la dévorer.
+
+Le visage de Wang Lin retrouva un peu de rose, tout en restant pâle. Sans hésiter, il plongea la main dans le drapeau des âmes pour en extraire l'âme originelle de la première personne qu'il avait tuée ici. Après l'avoir broyée en énergie pure, il la dévora.
+
+Une fois les trois âmes originelles consommées, Wang Lin s'assit immédiatement pour cultiver.
+
+Après un long moment, ses traits retrouvèrent progressivement leur normalité, bien que des traces de pâleur subsistent. Wang Lin ouvrit les yeux et expulsa une bouffée d'air vicié. L'air qu'il rejetait était noir, ce qui était extrêmement troublant.
+
+« Quel sort céleste redoutable ! Je n'en ai saisi qu'une infime partie, et pourtant, lors de son usage, je n'ai pu le contrôler. La consommation d'énergie originelle fut si intense qu'elle faillit aspirer toute l'énergie environnante du Royaume Ji. Si je ne m'étais pas rétabli assez vite, les conséquences auraient été inimaginables ! »
+
+« Cependant, peu importe comment on le regarde, cela ressemble moins à un sort céleste qu'à un sort démoniaque ! De plus, ce sort exige trop d'énergie... Pour l'utiliser, je devrai préparer les âmes originelles de plusieurs cultivateurs yin et yang. »
+
+Wang Lin se leva et ramassa les sacs de contenance des défunts. Il contempla le Pavillon des Collections en marmonnant : « Hélas, ce pavillon ne peut être emporté... Autrement, les quatre grandes familles l'auraient déjà arraché de force au Royaume Céleste. Mais je n'ai pas l'intention de le laisser ici sans rien faire. Si seulement je pouvais l'emporter... »
+
+Alors qu'il réfléchissait, les yeux de Wang Lin s'illuminèrent soudainement en repensant aux paroles entendues à l'intérieur du tableau.
+
+« Le Maître Sans Souci dessinera un tableau pour l'ouverture initiale du Pavillon des Collections... » Les yeux de Wang Lin brillèrent davantage lorsqu'il se remémora les sceaux manuels du garçon sous l'arbre.
+
+« Lorsque j'ai utilisé ces sceaux auparavant, j'ai senti le pavillon trembler... » Le cœur de Wang Lin fit un bond. Il se précipita immédiatement auprès du Pavillon des Collections.
+
+Il prit une profonde inspiration et forma les sceaux appris du garçon. En un instant, le Pavillon des Collections se mit à luire. Sous les yeux de Wang Lin, l'édifice rétrécit de plus en plus jusqu'à atteindre une taille tenant dans la paume d'une main, avant de voler vers lui.
+
+Tenant le Pavillon des Collections dans sa main, malgré sa force mentale, Wang Lin laissa échapper un rire. Un rire empreint d'une joie pure !

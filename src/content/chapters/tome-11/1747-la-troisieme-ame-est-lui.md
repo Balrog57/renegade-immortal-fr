@@ -1,0 +1,127 @@
+---
+n: 1747
+title: "La Troisième Âme est Lui !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1747 - The Third Soul is Him!"
+slug: la-troisieme-ame-est-lui
+---
+Chapitre 1747 - La Troisième Âme est Lui !
+
+Le pêcheur était un homme d'environ trente ans. Il n'était pas imposant et paraissait plutôt frêle. Il ne ressemblait guère à un pêcheur, mais davantage à un érudit.
+
+Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil scintillait sur l'écaille de l'animal, lui conférant une apparence extraordinaire.
+
+L'homme sourit et déposa le poisson dans un récipient rempli d'eau, puis s'éloigna avec celui-ci.
+
+Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha un certain temps avant d'arriver devant une humble demeure nichée près de la rivière.
+
+La maison était entourée d'une cour délimitée par des bambous. Quelques volailles criaient en se disputant de la nourriture autour d'une femme enceinte.
+
+La femme portait des vêtements simples, qui ne parvenaient toutefois pas à dissimuler sa belle silhouette. Elle tenait un panier et en répandait le grain.
+
+Elle semblait fatiguée, une main soutenant le panier tandis que l'autre reposait sur sa hanche. Elle essuya la sueur de son front tout en scrutant la porte, attendant le retour de son époux.
+
+L'après-midi était bien avancé et la lumière du soleil était éblouissante. Peu après, des pas se firent entendre dans la forêt de bambous, et le sourire de la femme s'élargit.
+
+« Su Er, j'ai pêché un poisson pour toi. » Les pas s'arrêtèrent devant l'entrée et la porte de bambou fut poussée. L'homme entra en souriant, tenant le récipient.
+
+« Je ressentais soudainement une envie de poisson. Si je patiente, l'envie passera... Toi, ah... » Le regard de la femme était empreint de tendresse.
+
+L'homme rit et s'avança pour aider sa femme à entrer dans la pièce.
+
+Un instant plus tard, une fumée s'éleva haut dans les airs. De loin, cette volute ressemblait à un tableau et dégageait une certaine beauté.
+
+La silhouette de Wang Lin flottait dans la forêt de bambous tandis qu'il observait tout cela en méditant silencieusement. Il comprenait vaguement que ce pouvait être la dernière réincarnation de la troisième âme.
+
+Trois jours plus tard, tard dans la nuit, le monde changea de teinte et le tonnerre gronda sous une pluie battante. De lourdes gouttes frappaient les bambous et la demeure.
+
+Le ciel et la terre semblaient reliés par l'averse. Les éclairs déchiraient la noirceur, illuminant la forêt de bambous en contrebas.
+
+La femme enceinte était allongée sur un lit à l'intérieur de la maison, laissant échapper des gémissements de douleur. Sa main crispée sur le couvre-lit, elle était assistée par une sage-femme.
+
+Dehors, l'homme restait calme en contemplant la pluie, mais ses poings serrés trahissaient l'anxiété qui rongeait son cœur.
+
+Le temps s'écoulait lentement. La voix de la femme devenait de plus en plus faible, ce qui lui infligeait une douleur toujours plus vive. Pourtant, son expression ne changeait pas ; au contraire, ses yeux s'illuminèrent alors qu'il fixait le ciel obscurci par l'orage.
+
+« Moi, Xie Dongming, j'étudie depuis mon enfance. Je suis resté intègre et concentré sur mes études. Durant ma carrière, j'ai travaillé pour aider le peuple, et en partant, je n'ai laissé aucune rancœur derrière moi. En mes maigres trente-trois années de vie, je n'ai jamais rien fait dont je puisse avoir honte !
+
+« Ciel, maintenant que mon enfant est sur le point de naître, pourquoi rends-tu les choses si difficiles pour Nei Zi ?! » La main droite de la femme frappa le mur de bambou. Le sang coula de son doigt et tomba au sol avant d'être emporté par la pluie.
+
+Au moment même où le sang se mêla à l'eau, un coup de tonnerre déchira le ciel. Simultanément, le cri d'un nouveau-né retentit dans la pièce, et tout le corps de l'homme trembla. Son calme fit place à une excitation fébrile et il se retourna brusquement. La porte s'ouvrit sur la sage-femme qui, couverte de sueur mais arborant un sourire bienveillant, tenait un bébé dans ses bras.
+
+« Félicitations, Seigneur Xie, la mère et l'enfant sont sains et saufs ! »
+
+L'homme s'approcha avec émotion de l'enfant, puis entra immédiatement dans la pièce. Plus que le nouveau-né, il s'inquiétait pour sa femme. Elle était allongée sur le lit, très pâle, mais un sourire doux éclairait son visage alors qu'elle regardait son mari.
+
+La femme murmura doucement : « C'est un garçon. »
+
+« Su Er, repose-toi encore un peu, j'ai déjà trouvé un nom. Puisque c'est un garçon, il s'appellera Xie Qing ! Je veux qu'il grandisse comme le bambou, qu'il s'élève haut vers le ciel et devienne un grand érudit ! » L'homme éclata de rire.
+
+Alors qu'il riait, le bébé tenu par la sage-femme sembla cesser de pleurer. Il ouvrit les yeux, et une lueur mystérieuse sembla y briller.
+
+La chaleur de la pièce, le grondement du tonnerre et les rires de l'homme fusionnèrent pour pénétrer le cœur de Wang Lin. Ce dernier trembla, car tout semblait se condenser en ce seul rugissement qui faisait vibrer son être. Wang Lin recula de quelques pas, fixant la maison, les yeux emplis d'incrédulité !
+
+Il avait eu une vague intuition auparavant, et elle était désormais confirmée, mais cela déclencha tout de même une tempête dans son cœur.
+
+À cet instant, Wang Lin n'entendait plus le tonnerre ni les rires de la maison. Sa vision se brouilla et une seule voix résonna dans ses oreilles :
+
+« Xie Qing... Xie Qing... Xie Qing !!! »
+
+« La troisième âme est Xie Qing !!! »
+
+La bouche de Wang Lin s'entrouvrit comme s'il voulait parler, mais les mots lui manquaient. Son esprit était en plein chaos.
+
+Lorsqu'il avait commencé à traquer la troisième âme, il avait envisagé diverses possibilités : des mortels, des cultivateurs ou même des bêtes féroces, mais il n'avait jamais imaginé que ce serait Xie Qing !
+
+C'était en réalité son disciple !
+
+Le visage de Wang Lin devint livide alors qu'il continuait de reculer. Il était le premier à connaître l'identité de la troisième âme, mais cette révélation lui imposait un choix déchirant.
+
+Tuer ou ne pas tuer !
+
+Le monde gronda et le tonnerre se fit plus violent encore. La pluie tombait avec acharnement tandis que le vent la balayait, la faisant danser dans le ciel.
+
+Wang Lin n'oublierait jamais qu'il s'était perdu ici, plongé dans la confusion, en quête du Dao. Il avait interrogé le grand érudit sur la nature même du Dao !
+
+Il avait questionné tous ceux qu'il pouvait, jusqu'à ce qu'il interroge Xie Qing. C'était aussi Xie Qing qui lui avait apporté compréhension et illumination.
+
+Il ne pouvait pas non plus oublier ce moment où il était assis au sommet de la montagne pour cultiver, et que Xie Qing, déjà âgé, avait gravi la pente, insistant pour apprendre le Dao à ses côtés !
+
+« Je pensais avoir tout compris des relations humaines et avoir atteint l'illumination dans le monde académique. J'avais fait de mon devoir celui de civiliser le monde. Cependant, au crépuscule de ma vie, j'ai soudainement eu une révélation : je suis un poisson dans l'eau... »
+
+C'étaient les mots de Xie Qing lorsqu'il était monté sur la montagne. À l'époque, Wang Lin n'avait saisi que les premières phrases et ne s'était pas attardé sur la conclusion.
+
+Il n'avait eu aucune envie de méditer sur cette dernière sentence et, même s'il l'avait fait, il n'y aurait trouvé aucune réponse.
+
+Cependant, en observant le cycle de réincarnation de la troisième âme, il l'avait vue se réincarner des centaines de fois sous forme de poisson, avant de réaliser que la troisième âme était Xie Qing. Comment ne pas comprendre le sens de ces mots désormais ?
+
+« Ainsi, c'est vrai... je suis un poisson dans l'eau... » Wang Lin leva amèrement les yeux vers la lumière chaleureuse émanant de la maison. Il se remémora les paroles de Xie Qing et comprit.
+
+Pourquoi avait-il rencontré Su Dao, et pourquoi ce dernier l'avait-il guidé pour devenir le grand érudit non seulement de Zhao, mais de toute la planète Suzaku ? Tout cela n'était que karma. Wang Lin pensait avoir accompli son karma, mais il réalisait que le karma était une chose que l'on pouvait percevoir sans jamais pouvoir la saisir !
+
+« À l'époque, j'avais involontairement donné des conseils à Xie Qing et je l'avais pris pour disciple. Il était la troisième âme du Souverain Céleste aux Sept Couleurs. Cela a créé un lien entre nous ; c'est là la cause karmique !
+
+« C'est aussi pour cette raison que Su Dao est apparu dans mon Dao de rêve...
+
+« En réalité, il est mon disciple, et dans le Dao de rêve, j'étais son disciple. Cela formait un cycle de karma ! J'aurais dû y penser... » Wang Lin fit un pas. À l'instant où son pied toucha le sol, le monde trembla. Le ciel se brisa et la terre s'effondra comme si un dragon s'agitait dans les profondeurs. Tout se dissipa, ne laissant que la maison et la lumière douce et joyeuse qui en émanait.
+
+Wang Lin fit un deuxième pas de recul. Dès que son pied toucha le sol, la demeure se déforma et d'innombrables ombres apparurent. Il devint impossible de savoir si c'était la maison ou le corps qui bougeaient, alors qu'ils devenaient progressivement flous, dévorés par les ténèbres.
+
+La silhouette de Wang Lin devint elle aussi incertaine. Lorsqu'elle se clarifia, il se retrouva dans la première illusion.
+
+Qing Shui ouvrit les yeux et regarda Wang Lin en laissant échapper un soupir.
+
+L'amertume marquait toujours son visage. Wang Lin murmura quelque chose que lui seul pouvait entendre et fit un troisième pas en arrière. Lorsque ce pas toucha le sol, la première illusion du palais du pays de Qing Shui, taché de sang, s'effondra soudainement.
+
+Cet effondrement brisa le palais, la terre et le ciel, ainsi que toutes les taches de sang au sol, formant un vortex gigantesque. Le vortex tourna de plus en plus vite avant de prendre la forme d'un visage spectral immense. Ce visage laissa échapper un rugissement silencieux et se précipita pour dévorer Wang Lin et Qing Shui.
+
+En un éclair, il les engloutit tous deux et ils disparurent dans le vide. Tout s'évanouit dans le flux du temps, et l'illusion s'effondra !
+
+Monde des Grottes.
+
+Royaume Céleste.
+
+Au sommet de la montagne, Wang Lin et Qing Shui ouvrirent les yeux simultanément. Ce qui venait de se passer ressemblait à un rêve si réel qu'il était difficile de distinguer le vrai du faux. Le visage de Wang Lin était pâle alors qu'il levait les yeux vers le ciel, le regard tourmenté.
+
+« La troisième âme est lui... »

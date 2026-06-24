@@ -1,0 +1,95 @@
+---
+n: 1048
+title: Trésor Précieux
+book: 8
+bookTitle: "Alliance's Secret"
+en: Chapter 1048 - Precious Treasure
+slug: tresor-precieux
+---
+Au moment où Wang Lin saisit l'épée de fer, toute l'intention meurtrière qui émanait de ses yeux disparut, laissant son regard aussi calme que l'eau.
+
+C'était comme si toute cette soif de sang qu'il nourrissait envers Maître Void avait été absorbée par l'épée de fer. Cependant, ce regard dénué de toute intention meurtrière était bien plus terrifiant que celui empreint d'une intention monstrueuse.
+
+Wang Lin sentait vaguement que l'épée de fer possédait son propre esprit et qu'elle s'apprêtait à s'éveiller en cet instant précis. Une fois éveillée, elle libérerait un pouvoir capable de détruire le monde.
+
+La belle femme fixait toujours Wang Lin. Au moment où il sortit le fourreau, elle fronça les sourcils, ne reconnaissant toujours pas l'objet. Pourtant, dès que le regard de Wang Lin retrouva son calme, ses yeux s'écarquillèrent brusquement, emplis d'incrédulité, alors qu'un fragment de sa mémoire revenait à la surface.
+
+L'homme en noir, lui aussi, avait les yeux rivés sur le fourreau dans la main de Wang Lin, et ses pupilles se rétractèrent violemment.
+
+Le regard de Wang Lin resta serein tandis qu'il tenait la poignée et qu'il la dégainait d'un coup sec. Lorsque l'épée de fer quitta son fourreau, une aura terrifiante jaillit.
+
+Cette aura était d'une puissance inouïe. Dès son apparition, des craquements se firent entendre dans la salle, comme si elle allait s'effondrer. En un clin d'œil, d'innombrables fissures apparurent sur les deux statues à côté de Wang Lin, donnant l'impression qu'elles allaient voler en éclats à tout moment.
+
+En un instant, l'épée de fer fut complètement dégainée. Sans la moindre hésitation, Wang Lin leva l'arme et frappa impitoyablement Maître Void, qui était encore plongé dans sa compréhension de l'origine première !
+
+À l'origine, Maître Void ne considérait pas Wang Lin comme une menace. À ses yeux, le jeune homme n'était qu'une fourmi. Son sens divin s'était rapidement propagé autour de l'origine première, tentant d'en percer le secret de création.
+
+Son intuition lui dictait que s'il trouvait la réponse, il trouverait le chemin vers la troisième étape. Plus il y pensait, plus son excitation grandissait.
+
+Il pouvait même entendre ses propres battements de cœur s'accélérer. Cependant, alors qu'il progressait rapidement et qu'il était sur le point de découvrir un indice, son corps se figea instantanément et un sentiment de crise de vie ou de mort l'envahit.
+
+Cette sensation de péril n'était pas moins intense que l'effondrement du Bassin de l'Enterrement Céleste ; en réalité, elle était plusieurs fois plus puissante. Maître Void eut même la sensation que cette aura lui était familière. Ses pupilles se contractèrent alors qu'il fixait l'épée de fer dans la main de Wang Lin.
+
+« Un trésor de Pseudo-Nirvana Void ! »
+
+Bien que l'épée ne quittât pas la main de Wang Lin, l'illusion d'une épée d'argent gigantesque de cent mille pieds de long apparut entre lui et Maître Void.
+
+Cette lame massive était entièrement faite de lumière argentée et dégageait un éclat aveuglant. Dès son apparition, elle s'abattit impitoyablement sur Maître Void. Ce dernier prit une inspiration glacée, les yeux écarquillés par le choc.
+
+Il n'eut aucun temps pour esquiver. Le timing de Wang Lin était parfait, et c'était là la clé de cette formation meurtrière. L'épée d'argent était trop rapide, bien plus qu'un sortilège lancé par un cultivateur du Nirvana Briseur. La lumière argentée percuta violemment la poitrine de Maître Void.
+
+À cet instant précis, l'âme originelle de Maître Void jaillit de son corps à une vitesse inimaginable pour entourer sa silhouette. Le corps de Maître Void brilla d'une lueur pourpre, tout comme son âme originelle qui devint entièrement violette.
+
+L'âme originelle d'un cultivateur ordinaire est très fragile et dépend de son corps physique. Cependant, lorsqu'on atteint un niveau de culture aussi élevé que celui de Maître Void, l'âme originelle devient bien plus puissante que le corps lui-même. Maître Void utilisa donc son âme pour envelopper son corps afin de bloquer l'épée d'argent !
+
+La lumière argentée jaillit violemment et le corps de Maître Void trembla ; son visage devint rouge avant qu'il ne crache un flot de sang. Son âme originelle vacilla avant de se rétracter dans son corps.
+
+Maître Void afficha une expression de terreur qu'il n'avait jamais montrée auparavant, tandis que des bruits de craquements résonnaient en lui. Repoussé, il se força à s'arrêter pour rester au sein de l'origine première. Cela permit à cette dernière d'envahir son corps, aggravant ainsi ses blessures.
+
+« Petit bâtard ! Même avec un trésor de Pseudo-Nirvana Void, tu n'as pas les capacités pour me tuer ! » Les yeux de Maître Void se plissèrent alors qu'il lançait une attaque griffue vers Wang Lin.
+
+Le visage de Wang Lin était pâle ; son énergie originelle quittait son corps pour se précipiter avec frénésie dans l'épée de fer. Il avait déjà inspecté l'arme auparavant et savait qu'il pouvait s'en servir sans l'avoir raffinée.
+
+Cette épée de fer, si différente des trésors traditionnels, déconcertait Wang Lin. Cependant, pour achever la formation meurtrière, il l'utilisa sans l'ombre d'une hésitation.
+
+Wang Lin s'était déjà préparé à ce qu'elle absorbe son énergie originelle. Bien qu'une quantité massive de cette énergie quittât son corps, il ne paniqua pas et resta calme.
+
+Au moment où Maître Void chargea, Wang Lin leva une fois de plus l'épée de fer et prit une profonde inspiration. L'énergie originelle jaillit de lui alors que l'épée se couvrait à nouveau d'une lumière argentée, et il asséna un coup tranchant.
+
+La lumière était éblouissante lorsque la main droite de Maître Void fut projetée violemment en arrière, son expression devenant extrêmement sombre. Il était désormais anxieux : être coincé dans l'origine première signifiait subir des attaques constantes de sa part, même si elles n'étaient pas dévastatrices. En comparaison, cette quantité d'origine ne représentait même pas un dix-millième de son énergie originelle, et pourtant, il lui fallait la majeure partie de ses ressources pour résister à ce faible flux.
+
+Il devait également concentrer tout son esprit pour la comprendre tout en luttant contre elle. Auparavant, Maître Void ne voyait en Wang Lin qu'une menace mineure, mais il n'avait jamais imaginé qu'il posséderait un trésor de Pseudo-Nirvana Void !
+
+Il se devait donc d'être vigilant, mais il refusait de renoncer à cette chance de comprendre l'origine première. Son intention meurtrière envers Wang Lin avait atteint son paroxysme.
+
+« Il ne me faut que sept minutes de plus et je serai certain de percer le mystère de cette origine première ! » Maître Void frappa son sac de rangement, et un cube de glace violet apparut dans sa main. À l'instant où il se matérialisa, toute la salle fut enveloppée d'un froid glacial.
+
+Sentant son cœur se serrer, une partie de l'âme originelle de Maître Void se divisa pour former un avatar. Ce double avala le cube de glace violet et chargea Wang Lin tel un éclair.
+
+Wang Lin agita l'épée de fer et, dans un éclat argenté, l'illusion de la gigantesque épée réapparut. Elle fonça vers l'avatar de l'âme originelle de Maître Void. L'avatar forma un sceau et pointa vers la lame géante. Dans un fracas assourdissant, l'avatar fut repoussé ; il s'affaiblit considérablement, mais l'épée illusoire s'effondra également.
+
+Dès l'apparition du cube de glace violet, Wang Lin avait ressenti une aura similaire à celle de son épée de fer et de la flèche de l'Estimé Xuan Bao. Il était évident que ce cube était lui aussi un trésor de Pseudo-Nirvana Void.
+
+À cet instant, Wang Lin avait perdu une quantité immense d'énergie originelle, mais ce n'était pas le moment de s'en soucier. La formation meurtrière était lancée et Wang Lin refusait de reculer. Il avait utilisé l'origine première comme appât pour tendre ce piège. S'il ne parvenait pas à tuer ou à blesser gravement Maître Void, son plan serait un échec total.
+
+Non seulement il avait exposé son origine première, mais aussi son trésor de Pseudo-Nirvana Void. Cependant, s'il réussissait à terrasser ou à mutiler Maître Void, cela suffirait à dissuader la belle femme et l'homme en noir.
+
+Après une profonde inspiration, Wang Lin décida de fermer les yeux. En utilisant cette épée, il avait le sentiment qu'elle possédait son propre esprit. Son niveau de culture ne lui permettait pas d'en manifester la pleine puissance, mais puisque l'épée ne nécessitait aucun affinage, il existait un moyen de libérer sa véritable force : il devait simplement traiter le trésor comme une personne à part entière.
+
+Au moment où Wang Lin ferma les yeux et abandonna le contrôle de l'arme, l'épée laissa échapper un chant martial. L'avatar de Maître Void chargea à nouveau. Le cube de glace violet à l'intérieur de l'avatar dégageait un froid infini. Avant même qu'il n'atteigne sa cible, une énergie glaciale surpuissante convergeait déjà vers Wang Lin.
+
+L'épée de fer dans la main de Wang Lin s'éleva soudainement ; ce n'était pas Wang Lin qui bougeait, mais l'épée qui tirait la main du jeune homme. L'énergie originelle de Wang Lin s'échappa de son corps avec frénésie, et l'épée libéra des chants martiaux qui faisaient trembler le ciel, comme si elle exultait de joie. Juste au moment où l'avatar de Maître Void allait le percuter, une autre épée d'argent gigantesque apparut.
+
+Cependant, cette lame était différente ; elle ressemblait à une véritable épée, si réelle qu'il était impossible de croire à une illusion. Dès son apparition, la gigantesque épée argentée trancha l'air avec violence !
+
+Dans un fracas retentissant, l'avatar de Maître Void heurta la grande lame et recula de quelques pas. Pourtant, l'épée ne disparut pas ; sa lumière argentée brilla de plus belle. Elle décrivit ensuite un arc pour attaquer par le flanc gauche.
+
+La seconde attaque s'enchaîna à la première comme si un mortel pratiquait les arts martiaux de l'épée. Si cela s'était arrêté là, ce n'aurait pas été surprenant, mais dès que l'épée argentée percuta l'avatar pour la deuxième fois, elle changea immédiatement de trajectoire pour attaquer par le bas.
+
+Il n'y avait aucune pause ; la grande épée d'argent se transforma en un rayon de lumière et continua de harceler l'avatar de Maître Void tel un dragon argenté. Cou après coup, l'épée martelait l'avatar.
+
+Sa vitesse devenait de plus en plus effrénée. Le premier coup était quelque peu lent, le second fut plus vif. Désormais, en un clin d'œil, sept frappes se combinaient en une seule.
+
+Toute l'énergie originelle de Wang Lin s'était évaporée lors du sixième coup. Quant au septième, il absorba l'essence même de son corps. Heureusement, son corps de Dieu Ancien était extrêmement robuste et parvint à l'endurer.
+
+Après le septième coup, le huitième frappa tel un dragon d'argent, suivi des neuvième, dixième et onzième assauts !

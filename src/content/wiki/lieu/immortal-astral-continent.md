@@ -1,0 +1,75 @@
+---
+name: Immortal Astral Continent
+title: Immortal Astral Continent
+type: lieu
+categories: ["Locations", "Stub", "Continents"]
+image: /renegade-immortal-fr/wiki/images/O.webp
+url: "https://xian-ni.fandom.com/wiki/Immortal_Astral_Continent"
+
+---
+![Immortal Astral Continent](/renegade-immortal-fr/wiki/images/O.webp)
+
+> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Immortal_Astral_Continent) (CC BY-SA)
+
+**Catégories :** Locations, Stub, Continents
+
+## Geography
+
+The Immortal Astral Continent is stated to be one of the countless continents inhabiting The World of Renegade Immortal . In terms of size, its proportions are indescribably massive. In fact, it is said to be so large that the Cave World created by the Seven-Colored Celestial Sovereign wouldn't even be equal to 1/10,000th the size even if the Inner Realm and Outer Realm were considered together.
+
+### Nine Suns
+
+The continent itself is noted to have Nine Suns , each of which is in reality one of the continents nine strongest individuals. Each sun possesses a cultivation of at least Grand Empyrean. The size of these Suns represents the power of its owner, with Dao Yi 's being the smallest and Gu Dao's being by far the largest until Wang Lin came along.
+
+### Ruler
+
+While both the Celestial Clan and Ancient Clan war with each other over dominion over the Immortal Astral Continent, neither side is able to completely outmatch the other.
+
+It is universally acknowledged by both the Celestial Clan and Ancient Clan that Grand Empyrean Gu Dao is the strongest being in the entire continent. According to Wang Lin and also by Gu Dao's own admittance, he has the power to eradicate the Celestial Clan and conquer the entire Immortal Astral Continent. The reason he does not is because his power is tied to a unique inheritance from the Ancient Ancestor that spans only the Ancient Clan's territory.
+
+After the Nine Suns witness Wang Lin defeat Gu Dao, thereby becoming the strongest being in the Immortal Astral Continent (without a distance restriction) he unofficially becomes its ruler. Though he is not formally acknowledged as its ruler, he receives the same level of respect as one from both the Celestial Clan and Ancient Clan, including the Grand Empyrean's.
+
+It is strongly implied that the Continent itself used to be much smaller however it has grown significantly after the Ancient and Celestial Ancestors sealed the souls of many powerful(Half Heaven Trampling) foreign beasts and Cultivators from outside the continent to create the 36 States and 72 Continents respectively. Over time, many of these beings have wasted away, however many of them still live, fuelling the land they were sealed upon with their power.
+
+### Factions
+
+The entire continent is controlled by two great powers, the Celestial Clan and the Ancient Clan .
+
+The North and Western parts of the continent belong to the Ancient Clan's 36 States while the Southern and Eastern parts of it are split into the Celestial Clan's five major continents, which themselves are further divided into the 72 minor continents. Between these two territories lay a vast and cold sea which can freeze even extremely powerful members of both clans.
+
+### Ancient Clan
+
+The Ancient Clan have an extremely rigid monarchy, unlike the largely independent Celestials. Even Grand Empyreans cannot be considered anything but guardians while it is the Ancient Emperor of each kingdom who controls almost all authority in the country. Grand Empyreans do however have the right to choose the next emperor when the last one is set to retire.
+
+### Celestial Clan
+
+The territory is made up of a variety of sects and clans that are run by supreme cultivators, the strongest of whom have cultivation beyond Void Tribulant while even the weakest among them reach Nirvana Void, at least.The Celestial Clan are largely independent, but even so they are loosely ruled by the Celestial Emperor of each generation, this generation's being Lian Daozhen, before he was killed by Wang Lin and replaced with Lian Daofei. Five of the Nine Suns belong to the Celestials, and one is always given the title of Eight Extreme that being the Celestial Emperor.
+
+### Cave Worlds
+
+Many sects have a Cave World of some description. The inhabitants of these Cave Worlds are usually unable to rebel, and likely don't even know they're living in a false reality, however, even in the rare event of these inhabitants killing and usurping the Cave World's master, they still cannot leave the Cave World because of the Immortal Astral Continent's law, which was present since primal chaos began. Anyone who doesn't possess the bloodline of the continent would simply be wiped out upon arrival. There are two known ways to subvert this law. One must either resist this will of extermination directly, or avoid it by reincarnating on the continent and therefore being reborn with its bloodline. In the former case, one would likely fail unless a Grand Empyrean was helping them. In the latter case, someone would have to unseal the reborn individual's memory and there's no telling when they'd be reborn to begin with. The purpose of the Cave worlds is to supply Joss Flames to the Celestials in a form they can digest.
+
+### Immemorial God Realm
+
+The Immemorial God Realm is a mystical place of great fortune that can only be entered through the Immortal Astral Continent.
+
+Once every few hundred years, the entrance to the Immemorial God Realm will open, turning the sea dividing the Ancient and Celestial Clan sides of the continent into a vortex surrounded by nine pillars. This process can be accelerated as seen when the The Ancient Dao Imperial Teacher forcibly causes the Immemorial God Realm to open within the next 500 years using a technique involving slaughter essence.
+
+The Immemorial God Realm is rich with fortune and benefits for cultivators on both sides. A testament to it's massive fortunes is that it is the only place where one can become a Grand Empyrean without merging multiple Essence True Bodies like Wang Lin did.
+
+The Ancient and Celestial Clan's take preparations for the opening of the realm very seriously. That is because if one side were to get lucky enough to obtain another Grand Empyrean it could upset the balance of power between the two clans. If such a thing were to occur, all out war could be sparked over the entire Immortal Astral Continent.
+
+When the opening of the Immemorial God Realm draws near, an oppressive force is released that continuously gets stronger up until the entrance is finally revealed. Typically, the force peaks at a stage where all those below Void Tribulant would be killed if they did not retreat. To counteract this and bring in as many people in as possible, the Ancient and Celestial Clan Grand Empyrean's would use their power to subsidize the oppressive might. However, during the opening Wang Lin participated in the oppressive force was so strong that not even Grand Empyrean's could resist it. This was the first time in history where neither the Celestial's or Ancient's were able to enter the Immemorial God Realm. The only people who managed to enter at this time were Wang Lin and Gu Dao, who possessed Half-Heaven Trampling cultivation.
+
+Once inside the Immemorial God Realm, one will find themselves upon a gigantic curving continent with a mountain at the centre where seven coloured snow falls. At the top of the realm is the Ninth Heaven Trampling Bridge and an enormous compass. This is the Boundary Compass, the only Void Extinction Treasure.
+
+### Trivia
+
+Interestingly, the Celestial and Ancient Cultivation Systems and Cultures directly oppose each other:
+
+The Celestials are nominally an Imperial Monararchy but functionally are almost completely independent, their Cultivation System is clearly progression based and there are numerous variations shown throughout the books, making it far from a rigid straight line.
+
+The Ancients are a legitimate Imperial Monarchy and their Cultivation System seems based on trying to get as close to the Ancient Ancestor as possible, returning to the source, with next to no variation permitted or presumably possible.
+
+Coincidentally or not, this carries over to their names, which are also extremely fitting: Celestials/Immortals in Chinese culture are enlightened beings seeking further knowledge of the Dao. Meanwhile the Ancients are conversely shown to adhere to their monarchy and traditions extremely rigidly, permitting little growth or change to occur over time.
+

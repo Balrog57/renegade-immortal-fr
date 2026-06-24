@@ -1,0 +1,115 @@
+---
+n: 772
+title: La famille Yao (3)
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 772 - Yao Family (3)
+slug: la-famille-yao-3
+---
+Le jeune homme esquissa un léger sourire et dit : « Il va bientôt mourir, mais cet homme est plutôt doué pour avoir tenu treize jours. Les cultivateurs qui l'ont précédé n'ont tenu que huit jours ! Vieux Oncle, attrape-moi un cultivateur de l'Illusoire Yin la prochaine fois, afin que je puisse jouer un peu plus longtemps. De cette façon, mes vers d'âme octaires mûriront plus vite. »
+
+L'expression du vieil homme resta neutre lorsqu'il répondit : « D'accord ! » C'était un mot très simple, mais empreint d'une immense confiance.
+
+À côté du jeune homme, la belle femme cligna des yeux et sourit. « Cousin, combien d'épées cet homme possède-t-il encore ? »
+
+Le jeune homme rit et passa son bras autour de la taille de la femme. « Laisse tomber, ces neuf épées sont toutes à toi ! Sans parler de ces neuf épées, il n'y a rien dans le Royaume Céleste du Tonnerre que je ne puisse obtenir si je le décide. Une fois que nous aurons extrait la source de ces épées de son âme originelle, nous pourrons faire un voyage là-bas. »
+
+La femme sourit, affichant un regard charmeur. Sa voix était séduisante lorsqu'elle dit : « Puisque le cousin est un membre de la famille Yao, tu peux naturellement tout obtenir. »
+
+Le jeune homme afficha sa fierté. La famille Yao était un nom que même le Temple Céleste du Tonnerre devait respecter. En tant que membre de la lignée Yao, il en était ainsi : tant qu'il posait les yeux sur une chose, rien ne lui résistait.
+
+À cet instant, au sein du vide, Wang Lin vit le fragment devant lui. Son corps vacilla et apparut au-dessus de celui-ci.
+
+« Je me demande où se trouve le Frère Li... » Le Sens Divin de Wang Lin se projeta inconsciemment, mais son expression devint immédiatement sombre. Une intention meurtrière aussi puissante que celle qu'il avait ressentie face à l'Ancêtre Sanguin explosa à nouveau.
+
+Le regard de Li Yuan était vacillant ; sa conscience était sur le point de s'évanouir.
+
+« Je vais mourir... peu importe, je n'ai qu'à accepter ma fin... Ce sera un soulagement. C'est juste que je ne pourrai pas enseigner la restriction du cœur au Frère Xu... » Li Yuan laissa échapper un sourire amer.
+
+Il ne percevait déjà plus rien autour de lui. Plusieurs insectes blancs s'agitaient à l'intérieur de ses pupilles. La chose étrange était que Li Yuan ne ressentait aucune douleur.
+
+« Même si je meurs, en tant que membre de la famille Li, je dois mourir avec dignité ! » Les yeux de Li Yuan retrouvèrent leur éclat et révélèrent une détermination farouche. Il se retourna pour fixer les trois personnes qui le poursuivaient avec désinvolture.
+
+Une haine profonde brûlait dans ses yeux !
+
+« Je n'ai aucune rancœur envers vous trois. Si vous vouliez mes trésors magiques, vous n'aviez qu'à les prendre, mais vous avez choisi de jouer avec moi. Quand je mourrai, je reviendrai en fantôme vengeur pour venger cette offense ! »
+
+Li Yuan frappa son sac de rangement et les trois épées restantes s'envolèrent, dégageant une énergie d'épée féroce. D'un geste du doigt, il projeta les trois lames vers le jeune homme !
+
+« Impudent ! » Le jeune homme ricana. Sa main droite s'avança et une main de sang apparut instantanément devant lui. D'une seule pression, il captura les trois épées volantes.
+
+Le visage de Li Yuan devint féroce. À l'instant où le jeune homme saisit les lames, Li Yuan forma un sceau de sa main droite et l'écrasa entre ses sourcils. Un rayon de lumière noire, aussi épais qu'un bras, jaillit de son front. Cette lumière se divisa immédiatement en d'innombrables lignes et, tandis que ses mains traçaient des sceaux, elles formèrent une restriction.
+
+Dès leur apparition, ces restrictions se divisèrent en dix-huit segments qui entourèrent instantanément Li Yuan. Ce dernier cracha une large bouffée de sang qui vint s'écraser sur les restrictions.
+
+Cependant, on pouvait voir de nombreux insectes blancs au sein du sang, ce qui était particulièrement choquant.
+
+Après avoir absorbé son sang, les restrictions s'élancèrent vers le jeune homme à une vitesse fulgurante. À cet instant, celui-ci venait à peine de réussir à maîtriser les trois épées par la magie.
+
+En voyant ces restrictions fondre sur lui, le jeune homme ne paniqua pas. Il laissa échapper un reniflement méprisant, ses yeux emplis de dédain. Le vieil homme à ses côtés fit un pas en avant et leva la main droite. Une énergie originelle dense enveloppa immédiatement la zone.
+
+« Brise ! » ne dit le vieil homme qu'en un mot.
+
+Instantanément, les restrictions furent enserrées par l'énergie originelle et s'effondrèrent. Pourtant, après leur explosion, elles ne disparurent pas ; elles se transformèrent en lignes noires qui se condensèrent avant de foncer droit sur le vieil homme, portées par une aura destructrice.
+
+Le vieil homme frappa son sac de rangement pour faire apparaître un miroir antique et le pointa vers les lignes noires. Un éclair jaillit. C'était comme si le monde entier s'était obscurci, toute la lumière semblant se concentrer autour du miroir ancien. Les lignes noires s'effondrèrent aussitôt.
+
+Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il était imprégné d'une aura de mort. Il murmura : « Ce n'est pas que la restriction de ma famille Li soit défaillante, c'est que j'ai trop utilisé mon cœur de restriction pour aider le Frère Xu. Après cela, je n'ai pas eu le temps de le restaurer. Comment ce miroir brisé a-t-il pu arrêter les restrictions ?! Cependant, le Frère Xu a énormément aidé ma famille, je ne le regrette pas ! Si je dois mourir, alors je mourrai ! »
+
+Li Yuan esquissa un sourire misérable. À ce moment, le vieil homme s'avança et lui décocha un coup de pied sans même le regarder. Un craquement sinistre retentit alors que Li Yuan recrachait du sang avant de s'effondrer au sol, le regard éteint. Ce coup avait dispersé toute l'énergie spirituelle céleste restante dans son corps, le laissant incapable de riposter.
+
+« Jeune Maître, cet homme n'est plus dangereux. Vous pouvez attaquer maintenant. » Le vieil homme recula, l'expression froide. En tant que cultivateur de l'Illusoire Yin, il ne ressentait aucune honte à attaquer un junior Ascendant.
+
+Le jeune homme avait tout juste réussi à saisir les trois épées grâce à la perte de connexion de Li Yuan avec celles-ci. Il les récupéra et les tendit directement à la femme à ses côtés.
+
+Il fit un pas en avant, un sourire narquois aux lèvres : « Voyons exactement où tu as trouvé ces épées célestes ! » Sa main droite s'abattit pour écraser Li Yuan.
+
+« Dépêche-toi, cousin », sourit la femme en observant la scène, ses yeux brillant d'un charme envoûtant tandis qu'elle jouait avec l'épée céleste dans sa main.
+
+Quant au vieil homme, son expression demeurait aussi calme que d'ordinaire.
+
+Mais soudain, alors que la main du jeune homme nommé Yao s'apprêtait à percuter Li Yuan, une ondulation apparut brusquement à ses côtés ! Le visage du vieil homme, jusque-là imperturbable, changea radicalement. Il chargea en avant et hurla : « Jeune Maître, reculez ! »
+
+Le jeune homme fut pris de surprise.
+
+En un instant, une intention meurtrière inimaginable émana de l'ondulation. Cette présence était si puissante qu'elle fit glacer le monde entier ; même de la glace se mit à tomber du ciel.
+
+Le visage du jeune homme devint livide. Avant même d'avoir pu procéder à la fouille de l'âme de Li Yuan, il battit en retraite. Cependant, une silhouette sortit de l'ondulation. Dès son apparition, l'intention meurtrière atteignit son paroxysme.
+
+Des grondements tonnantes déchirèrent le ciel. Tandis que le jeune homme reculait, la silhouette surgie de l'ondulation fit un pas en avant et pointa du doigt la poitrine du garçon.
+
+Un bruit de craquements résonna et le jeune homme cracha une bouchée de sang. Tous les os de son corps furent brisés, le projetant violemment au loin.
+
+La silhouette se rapprocha encore et le doigt se posa entre les sourcils du jeune homme. Une énergie originelle opulente pénétra son corps, provoquant l'effondrement instantané de toute son énergie spirituelle céleste !
+
+Le jeune homme devint livide. À ses yeux, ce doigt avait remplacé le monde et était devenu le maître absolu de sa destinée.
+
+Son corps fut projeté dans les airs en une trajectoire arquée. Des craquements continuaient de déchirer sa carcasse tandis qu'il crachait des bouffées de sang qui se transformaient en brume rouge.
+
+L'énergie originelle dans son organisme déferlait comme une tempête. Elle détruisit d'abord son énergie spirituelle céleste, puis sa base de culture, pour finalement forcer tout le sang de son corps à s'échapper par ses pores.
+
+Il ressemblait désormais à un être de sang flottant dans les airs, son corps émettant une épaisse brume écarlate !
+
+L'énergie originelle ne s'arrêta pas et continua sa rage dévastatrice. Chaque muscle fut détruit pouce par pouce et tous ses organes internes furent instantanément broyés !
+
+Et ce n'était pas fini. L'énergie originelle était d'une puissance si incommensurable qu'il était impossible de la mesurer. Après avoir ravagé les fondements internes, elle se précipita vers sa tête. Son crâne s'effondra avec son cerveau. À cet instant précis, la chair du jeune homme nommé Yao se désintégra totalement !
+
+Alors qu'il n'était qu'à mi-chemin de sa chute, son corps s'effondra, se désintégra et se dissipa.
+
+Son âme originelle était plongée dans une confusion et une terreur indicibles ; il avait même l'impulsion de pleurer. Au moment où son corps disparut et que son âme apparut, l'énergie originelle explosa, déchirant et détruisant l'âme originelle de part en part !
+
+Pourtant, l'âme ne se dissipa pas complètement. L'énergie originelle la condensa rapidement en une sphère de lumière de la taille d'un poing. Cette sphère retourna instantanément dans la main de Wang Lin, qui la pressa entre les sourcils de Li Yuan pour aider ce dernier à nourrir son âme originelle en pleine dissipation.
+
+« Qui t'a donné le droit de blesser mon ami ?! » Des paroles d'une froideur absolue s'échappèrent lentement de la bouche de Wang Lin.
+
+Tout cela s'était produit en un éclair, avec une rapidité dépassant l'entendement. Le vieil homme avait à peine bougé que tout était déjà terminé.
+
+Une sueur froide perla sur le front du vieil homme. Son calme s'était évanoui et son indifférence s'était effondrée. Ses yeux étaient empreints d'horreur et de peur. Il n'avait pas pu distinguer clairement l'autre personne plus tôt, mais la richesse de l'énergie originelle apparue avec l'ondulation lui avait coupé le souffle.
+
+Ce qui le terrifiait davantage était l'aura émanant de l'ondulation : celle du jeune homme qui en sortait semblait fusionner parfaitement avec les lois du monde.
+
+« Trop terrifiant... Je connais tous les cultivateurs du Yang Corporel, mais qui est-il ?! » Son visage était livide et la sueur coulait sur son front. L'intention meurtrière de l'inconnu était si intense qu'elle faisait trembler son esprit. Inconsciemment, il recula de quelques pas, avec l'envie irrépressible de s'enfuir immédiatement.
+
+Non loin de là, la femme était pétrifiée. La scène qui venait de se dérouler avait laissé son esprit totalement vide.
+
+« Xu... Frère Xu... » Au sol, les yeux de Li Yuan brillaient d'excitation alors qu'il luttait pour parler. « Aide-moi... Tue-les !! »

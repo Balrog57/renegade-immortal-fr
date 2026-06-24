@@ -1,0 +1,129 @@
+---
+n: 659
+title: Départ
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 659 - Leaving
+slug: depart
+---
+Cette paume s'abattit sur la porte du Royaume des Esprits Démoniaques, mais ce qu'elle ébranla, ce fut l'intégralité du Royaume des Esprits Démoniaques. À cet instant, les neuf pays du Royaume des Esprits Démoniaques tremblèrent de fond en comble.
+
+Le Royaume des Esprits Démoniaques fut envahi par les cris, et le ciel ne fut plus bleu mais s'assombrit. Les nuages tourbillonnaient, formant un gigantesque vortex.
+
+Ce vortex était d'une démesure absolue ; il s'étendait en une rotation lente. Une énergie d'épée émanait de son centre pour se répandre dans les cieux.
+
+Une aura aussi écrasante que le firmament apparut. Simultanément, sept lumières arc-en-ciel jaillirent du vortex et descendirent vers la terre.
+
+À cet instant, tous les anciens démons sortirent de leurs terres saintes respectives pour fixer d'un regard sombre le vortex céleste.
+
+Bei Lou fronça les sourcils en levant les yeux au ciel. Après un bref coup d'œil, il agita ses manches et disparut.
+
+Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenait là, vêtu de robes vertes. Dominant la terre du regard, il rugit : « Cupidité, sors et viens à la rencontre de ce vieil homme ! »
+
+Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans tout le Royaume des Esprits Démoniaques.
+
+Étrangement, il semblait que tous savaient déjà que Cupidité était arrivé, car personne ne manifesta la moindre surprise.
+
+L'Ancêtre Sanguin fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied dans le Royaume des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
+
+Il prit une profonde inspiration et commença à activer secrètement un sortilège. Il scanna à nouveau la zone avec ses techniques occultes, et son expression devint plus lugubre encore.
+
+L'Omniscient leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer des Esprits Démoniaques de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur du Royaume, plus rien ne l'obstruait.
+
+Au moment même où ces vieux monstres pénétraient dans le Royaume des Esprits Démoniaques, Wang Lin plongea dans l'Abîme des Marées. Il fondit vers les profondeurs tel une météorite.
+
+La force d'aspiration agissait comme un puissant propulseur qui précipitait Wang Lin au fond du gouffre.
+
+L'expression de Ling Tianhou était sombre. Après avoir crié, il déploya son sens divin pour balayer la zone. Dans l'extrême nord, deux autres sens divins apparurent soudainement et entrèrent en collision avec le sien. Ling Tianhou poussa un grognement étouffé et son corps trembla légèrement, avant que ses yeux ne brillent d'un éclat vif.
+
+Au même instant, un nuage apparut silencieusement devant eux. Ce n'était pas un nuage solide, mais une simple illusion. Un homme et une femme y étaient assis.
+
+Il s'agissait du Couple Céleste des Nuages, Wang Wei et Hu Juan.
+
+Wang Wei observa calmement Ling Tianhou et sa compagnie. Lorsque son regard se posa sur l'Omniscient, ses pupilles se rétractèrent imperceptiblement. L'Omniscient gardait les yeux clos ; il continuait ses calculs même après leur arrivée.
+
+Wang Wei sourit. « Chers compagnons de culture, cela fait bien longtemps ! »
+
+Hu Juan esquissa également un sourire discret, sans toutefois prendre la parole.
+
+Ling Tianhou fixa Wang Wei et dit froidement : « Compagnon de culture Wang, j'ai remarqué que Cupidité est avec vous. Remettez-le moi, j'ai des questions cruciales à lui poser ! »
+
+Wang Wei sourit et dit à son amante : « Regarde, après tant d'années, non seulement le tempérament du Saint de l'Épée n'a pas faibli, mais il s'est encore aggravé. »
+
+Hu Juan lança un regard tendre et sourit. « Il est compréhensible que le Saint de l'Épée se soucie de ses disciples. »
+
+L'expression de Ling Tianhou était extrêmement sombre. S'il ne craignait pas ces deux-là, sa personnalité l'aurait déjà poussé à les attaquer.
+
+Wang Wei frappa son sac de rangement et deux personnes en sortirent immédiatement : Chen Long et Cupidité.
+
+En voyant Ling Tianhou, les yeux de Chen Long se remplirent de joie. Il s'agenouilla, les larmes aux yeux, et s'écria : « Maître ! C'est lui, c'est Cupidité qui a fait du mal à tous mes jeunes frères apprentis ! »
+
+L'expression de Cupidité resta parfaitement neutre. Après être apparu, il se tint simplement derrière Wang Wei et Hu Juan, tel un vieux serviteur.
+
+Ling Tianhou ne daigna pas regarder Chen Long ; il fixa Cupidité et dit d'un ton menaçant : « Cupidité, tu as sacrément du cran ! »
+
+Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua : « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ton Secte de l'Épée Da Lou ? »
+
+Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla : « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette ! Sans cela, comment mes jeunes frères auraient-ils pu mourir ?! »
+
+Cupidité eut un rire moqueur. « Ce vieil homme vous a enfermés dans la brume pour obtenir le jeton, mais ai-je porté la moindre main sur l'un de vous ? Au lieu de chercher celui qui a tué tes frères, tu viens m'accuser. Quelles futilités ! »
+
+Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et trancha froidement : « Chen Long, tais-toi ! » Puis, fixant Cupidité avec une intention meurtrière, il ajouta mot pour mot : « Cupidité, où est le jeton ?! »
+
+Cupidité eut un sourire amer et déclara d'un ton désespéré : « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains ! »
+
+Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Cupidité.
+
+Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement : « C'est Wang Lin, du Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner ! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Lou ! »
+
+Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
+
+Ce dernier s'empressa de dire : « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Cupidité. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes jeunes frères ! »
+
+À cet instant précis, l'Omniscient ouvrit soudainement les yeux et regarda vers l'est.
+
+« Il veut partir ! » La main de l'Omniscient bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays du Démon d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
+
+Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. L'Omniscient sentit que son regard était perturbé par cette force ; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
+
+Le sortilège de l'Omniscient attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de l'Omniscient au plus profond de l'Abîme des Marées.
+
+L'expression de Wang Lin resta impassible tandis qu'il frappait son sac de rangement pour libérer la formation d'épée des sept étoiles. La formation tourbillonna autour de lui, décuplant sa vitesse.
+
+Wang Lin fonça droit vers le fond du gouffre et atteignit bientôt le vortex. À cet instant, l'Omniscient et les sens divins de tous les vieux monstres descendirent vers lui !
+
+Ling Tianhou aperçut immédiatement la formation d'épée des sept étoiles, ce qui le fit entrer dans une rage folle.
+
+L'Omniscient vit également que Wang Lin ne portait aucune marque du Massacre Céleste. Un éclair de froideur passa dans son regard.
+
+Wang Lin posa le pied sur le vortex, se retourna pour lancer un dernier regard glacial à l'assemblée, avant de s'y enfoncer progressivement.
+
+Une force colossale jaillit du vortex et se propagea. Cette puissance était si immense qu'elle repoussa même les sens divins de l'Omniscient et des autres. Ils ne purent que reculer et regarder Wang Lin être totalement englouti par le vortex.
+
+Ce n'était pas qu'ils manquaient de volonté pour l'arrêter, mais la puissance émanant du vortex était celle qui reliait deux systèmes stellaires. C'était une force tout simplement insurmontable !
+
+Au moment où la silhouette de Wang Lin disparut dans le vortex, le sens divin de l'Ancêtre Sanguin se fixa sur lui, le visage livide. Un instant plus tôt, il avait perçu l'aura de Yao Xixue sur Wang Lin. Cela révélait la lutte et la rébellion de sa fille, ce qui lui permit de conclure que la disparition de Yao Xixue était liée à Wang Lin. Il était fort probable que Wang Lin l'ait capturée !
+
+Son expression devint extrêmement sombre et il hurla : « Wang Lin, où est ma fille ?! »
+
+« Il n'y a pas seulement trois fausses grottes, mais quatre ! » lança Wang Lin juste avant de disparaître.
+
+Là où d'autres n'auraient rien compris, l'Ancêtre Sanguin saisit immédiatement le sens de ses paroles. La quatrième fausse grotte était un secret que lui seul et Yao Xixue partageaient. C'était une chose que Yao Xixue n'aurait révélée à personne d'autre !
+
+C'était là le pari de Wang Lin. Bien qu'il fût sur le point de partir, il allait semer le chaos ! Si l'Ancêtre Sanguin n'avait pas remarqué la présence de Yao Xixue, cela aurait été une chose de moins. Mais puisque le secret était découvert, Wang Lin devait contre-attaquer. Son but était d'empêcher l'Ancêtre Sanguin de le poursuivre personnellement à cause de sa fille ! Il savait qu'avec l'esprit de ces vieux monstres, ses paroles les pousseraient à mille interprétations.
+
+Wang Lin avait disparu.
+
+Le silence retomba autour du vortex. Tous ces vieux monstres affichaient des visages lugubres. Ils avaient chacun leurs propres desseins, mais après avoir entendu les paroles de Wang Lin et vu la réaction de l'Ancêtre Sanguin, tous tournèrent leurs regards vers ce dernier.
+
+L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Après une réflexion rapide, il déclara : « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton ; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte ! »
+
+« Nous savions déjà que ce vortex était une porte vers le système stellaire Allheaven, mais la puissance à l'intérieur était trop forte. Ce Wang Lin a réussi à obtenir un objet lui permettant d'y pénétrer ! »
+
+« Nous avons tous tenté l'expérience sans succès. Cependant, si nous unissons nos forces pour n'envoyer qu'une seule personne, nous devrions y parvenir ! »
+
+Ling Tianhou demanda d'une voix pesante : « Qui ira ? »
+
+« Si je me propose, mes compagnons de culture se méfieront de moi. Le meilleur choix est sans aucun doute Cupidité ! Nous placerons chacun une restriction sur lui, et ainsi, ce Cupidité ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener ! De plus, le niveau de culture de Cupidité est assez élevé pour faire face à lui ! »
+
+L'Omniscient fixa silencieusement le vortex, ses yeux brillant d'une lueur mystérieuse. Personne ne savait ce qu'il méditait.

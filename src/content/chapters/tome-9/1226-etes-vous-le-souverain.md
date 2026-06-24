@@ -1,0 +1,121 @@
+---
+n: 1226
+title: Êtes-vous le Souverain ?
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: Chapter 1226 - Are You the Sovereign
+slug: etes-vous-le-souverain
+---
+Chapitre 1226 - Êtes-vous le Souverain ?
+
+Wang Lin sortit l'objet et le couvrit de sang avant de le projeter comme un rayon de lumière verte vers l'index. L'index était bien plus puissant que l'auriculaire. L'épée de cristal s'effondra au moment du contact, créant une puissante onde de choc dans le ciel.
+
+Cependant, cela ne fit que stopper la course du doigt un instant sans le briser.
+
+Mais dès que ce mouvement fut suspendu, la lumière verte se rapprocha et la hache balaya l'espace pour frapper le doigt. Sous le contrôle de Wang Lin, la hache de bataille libéra une aura destructrice. Des craquements résonnèrent alors que tous les sceaux de la hache étaient levés, déchaînant son pouvoir dévastateur !
+
+De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé : tous ses sorts et deux trésors du Pseudo Nirvana Vide ! Les rumeurs furent encore plus assourdissantes et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
+
+Le corps de Maître Âme Nuageuse ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
+
+L'index, au centre de l'impact, ne s'était toujours pas effondré, mais d'innombrables fissures le parcouraient déjà. Le doigt pressait impitoyablement vers Wang Lin !
+
+À cet instant, le ciel semblait avoir été remplacé par cet index colossal. Voyant la menace approcher, Wang Lin poussa un rugissement et la folie dans ses yeux s'intensifia. Dans un éclair de lumière, le Fourneau du Dieu Antique apparut.
+
+Le Fourneau du Dieu Antique était l'un des deux trésors du Dieu Antique qu'il possédait. C'était un trésor personnellement affiné par Tu Si. Pour Wang Lin, c'était un objet qu'il ne pouvait pleinement contrôler et dont la nature était bien plus profonde qu'il n'y paraissait.
+
+Cependant, en ce moment de vie ou de mort, Wang Lin allait donner tout ce qu'il avait !
+
+« Si je meurs, à quoi bon posséder un trésor ? Je ne crois pas être incapable de briser cet index ! » Alors que Wang Lin rugissait, le Fourneau du Dieu Antique sembla se solidifier autour de lui et percuta l'index.
+
+Un fracas tonitruant retentit et Wang Lin eut l'impression d'être frappé par une planète de culture. Il cracha du sang, le visage livide, gravement blessé. Le Fourneau du Dieu Antique trembla violemment alors qu'il était enfoncé dans le sol avec le corps de Wang Lin !
+
+« Effondre-toi ! » Le corps de Wang Lin s'immobilisa soudainement pour empêcher son propre enfoncement. Les trois autres doigts remplacèrent également le ciel et descendirent avec une fureur dévastatrice.
+
+L'expression de Wang Lin était féroce, révélant une folie mêlée à une volonté défiant les cieux. Il avait vécu une existence semée de dangers, et plus la situation devenait périlleuse, plus il se montrait inflexible !
+
+Qu'il s'agisse de vie ou de mort, il serait un héros !
+
+Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit un grondement de tonnerre. En tournant, une aura capable de faire trembler les cieux jaillit et forma une tempête. Le Fourneau du Dieu Antique s'effondra au cœur de la tempête et chargea l'index !
+
+Le fracas fit trembler l'âme originelle de Wang Lin, endommageant son esprit. Soudain, le puissant index s'effondra !
+
+Ce ne fut pas comme l'auriculaire qui n'avait été qu'à moitié brisé, mais un effondrement total en gravats. L'esprit de Wang Lin était affaibli, mais son intention de combat devint plus intense encore. Repoussé par l'explosion, il essuya le sang au coin de sa bouche et recueillit l'âme originelle mourante de Maître Âme Nuageuse au milieu du chaos.
+
+À cet instant, il était le seul être vivant dans le Royaume aux Sept Couleurs !
+
+Ce sort venu du Domaine Extérieur, qui avait transformé le Royaume aux Sept Couleurs en une paume de cinq doigts, avait deux doigts brisés. Cependant, même le doigt totalement réduit en miettes absorbait l'énergie originelle avec frénésie et se régénérait à un rythme effarant.
+
+Wang Lin n'avait pas le temps de réfléchir. S'il voulait quitter le Royaume aux Sept Couleurs, il devait tout risquer !
+
+Les trois doigts restants continuaient de descendre, les grondements tonitruants résonnant dans ses oreilles. Les doigts se courbaient comme des cieux prêts à anéantir toute vie, fonçant sur Wang Lin !
+
+Wang Lin respirait lourdement. Il avait épuisé tous ses sorts et trésors. L'étoile formée par son Dao tournait rapidement et son corps était enveloppé d'une intention de combat alors que les trois doigts approchaient. Le pouce, le plus puissant, était légèrement plus lent, mais le majeur et l'annulaire arrivaient presque simultanément.
+
+Wang Lin ne pouvait affronter deux doigts de front.
+
+Il lança le trident qu'il tenait dans un rugissement ; celui-ci vola vers l'annulaire. Tandis que le trident bloquait l'annulaire un instant, Wang Lin chargea vers le majeur !
+
+Sa silhouette fendait l'air comme une météore et l'étoile de la loi entre ses sourcils tournait avec célérité. Des flammes bleues enveloppèrent soudainement son corps, remontant depuis la racine de ses cheveux blancs jusqu'à leurs pointes !
+
+De loin, on aurait vu clairement cette immense paume tenir une mer de feu. Au centre des flammes se dressait une silhouette droite : l'inflexible Wang Lin !
+
+Dès que ce brasier s'embrasa, d'innombrables éclairs jaillirent tels des serpents d'argent. La foudre dansait au sein du feu et entre les doigts, produisant des crépitements incessants.
+
+Le tonnerre se multiplia jusqu'à entourer complètement la paume, créant une scène d'une beauté saisissante.
+
+Dans ce spectacle, une paume géante brandissait un feu bleu tout en étant enserrée dans un filet de foudre. Ce fut une vision inoubliable pour quiconque l'aurait contemplée !
+
+À l'intérieur des flammes bleues, l'étoile de la loi entre les sourcils de Wang Lin fulgurait violemment. La mer de feu autour de lui fut projetée vers le majeur. L'attaque fut si rapide qu'elle percuta instantanément le doigt.
+
+Au moment de la collision, les flammes bleues entourant Wang Lin se rassemblèrent frénétiquement dans sa main avant de jaillir contre le majeur !
+
+C'était comme si Wang Lin avait lancé un brasier monstrueux pour engager un combat acharné entre la vie et la mort !
+
+Soit le doigt s'effondrait, soit Wang Lin mourait !
+
+Il n'y avait pas de retraite ; il devait tout donner !
+
+Les flammes bleues chargèrent le majeur avec une fureur démentielle. Le visage de Wang Lin était pâle et du sang coulait de sa bouche. En affrontant personnellement le majeur, il en ressentit la puissance colossale, suffisante pour faire trembler son corps et l'enfoncer violemment.
+
+« Je ne me résignerai pas ! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur de Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
+
+Il ne se résignerait pas !
+
+Alors qu'il hurlait, un tonnerre monstrueux s'assembla frénétiquement pour frapper le majeur aux côtés des flammes bleues ! Les grondements étaient plus intenses que jamais et d'immenses fissures apparurent dans le ciel, se déchirant et s'élargissant instantanément.
+
+Mais malgré la violence de ces fracas, ils ne pouvaient couvrir les paroles inébranlables de Wang Lin !
+
+« Je ne me résignerai pas ! » L'étoile de loi entre les sourcils de Wang Lin tournait encore plus vite. Alors que le feu et la foudre bombardaient le doigt, la puissance scellée par Wang Lin explosa !
+
+Cette force n'était pas extrêmement puissante en soi, mais après avoir fusionné avec le feu, la foudre et le domaine de bataille, elle avait engendré une nouvelle loi ! Une loi qui n'appartenait qu'à Wang Lin !
+
+Au moment où cette loi explosa, l'espace autour de Wang Lin se tordit comme si le temps s'était superposé, incapable de se mélanger au monde. Cette zone de distorsion s'étendit jusqu'à envelopper la totalité du majeur. Wang Lin poussa un cri de folie et, grâce à la distorsion provoquée par cette loi, son corps cessa de sombrer.
+
+Loin de s'enfoncer davantage, alors que ses veines gonflaient, Wang Lin projeta le majeur vers le haut et chargea vers le ciel !
+
+Les ondulations tordues enveloppèrent le doigt. La puissance de la loi, fusionnée avec le feu et la foudre, combinée à l'élan de Wang Lin, brisa le majeur !
+
+Au moment de son effondrement, Wang Lin fut projeté en arrière et s'écrasa au sol. Il tomba sur la paume, son propre sang teintant son corps. L'étoile de loi entre ses sourcils s'estompa progressivement pour se dissimuler.
+
+Bien que gravement blessé, dès qu'il toucha terre, Wang Lin repartit aussitôt à la charge vers l'annulaire !
+
+Le trident était planté dans l'annulaire, offrant une opportunité à Wang Lin, mais s'il abandonnait maintenant, tout cela aurait été vain !
+
+Il n'y avait eu qu'une seule autre fois où Wang Lin avait été aussi désespéré. La première fut son combat contre l'Omniscient dans la Terre des Esprits Démoniaques. C'était la deuxième fois en près de 2 000 ans de culture !
+
+Une aura tragique émanait du corps de Wang Lin. Son visage était livide et, malgré ses blessures graves, son intention de combat ne faiblissait pas. Au contraire, elle semblait... encore plus féroce !
+
+Certains étaient nés pour la bataille, nés pour le massacre, nés pour défier les cieux ! Wang Lin était de cette race !
+
+Après avoir fusionné avec le domaine de bataille de Zhan Xingye, Wang Lin était devenu encore plus semblable à cela !
+
+« La vie est précieuse et doit être chérie, mais je ne crains pas la mort ! Cependant, je dois mourir avec dignité et honneur ! » Wang Lin lâcha un rire assourdissant qui aurait pu effrayer les fantômes eux-mêmes !
+
+Même cette existence mystérieuse, restée imperturbable durant d'innombrables années, fut légèrement émue !
+
+« Si tu peux survivre à la puissance de la paume, je ne te tuerai pas ! » Une voix lassée résonna à travers le monde.
+
+« Êtes-vous le Souverain du Domaine Extérieur ? » Wang Lin s'élança dans les airs pour charger l'annulaire.
+
+« Ce vieil homme est issu du Clan de la Soie Bleue de l'Ancien Haut, le Maître Dao du Rêve Bleu ! »

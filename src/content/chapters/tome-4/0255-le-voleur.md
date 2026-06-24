@@ -1,0 +1,149 @@
+---
+n: 255
+title: Le Voleur
+book: 4
+bookTitle: Clean Sweep
+en: Chapter 255 - Robber
+slug: le-voleur
+---
+La nuit était tombée et la lune était absente.
+
+Wang Lin était allongé sur son lit, à l'arrière de la boutique. Une cruche de vin reposait à ses côtés ; il s'en saisit et prit une gorgée. Wang Lin sentait qu'au cours de cette année écoulée, il avait réussi à se défaire de sa mentalité de cultivateur pour devenir semblable à un mortel.
+
+Prenons cet exemple : il ne pratiquait presque plus la culture désormais, ce qui aurait été impensable autrefois. Durant ces quatre cents ans de fuite et de combats, son énergie spirituelle bouillonnait presque constamment dans son corps, et il saisissait chaque instant de répit pour élever son niveau de culture. Sa vie n'était qu'un enchaînement de complots mortels et de périls extrêmes. Le moindre manque de prudence l'aurait conduit à la tombe.
+
+Il ne s'était jamais allongé ainsi pour dormir auparavant. Il passait la majeure partie de ses nuits à cultiver.
+
+Ce genre de vie était exaltant, empreint de passion, mais aussi chargé de regrets. Elle manquait d'équilibre. Cette existence était incomplète.
+
+Désormais, les conflits avaient quitté la vie de Wang Lin. Bien que ce soit un peu monotone, cela purifiait son âme.
+
+Wang Lin avait éprouvé une sensation étrange lorsqu'il l'avait remarqué pour la première fois, mais il l'avait progressivement acceptée pour continuer à mener sa vie de mortel.
+
+Il saisit la cruche et en prit une longue gorgée. Soudain, il fronça les sourcils.
+
+À cet instant, deux cultivateurs arrivèrent devant sa boutique. Leurs corps flottaient vers l'échoppe tels des spectres. L'un d'eux fit un geste de la main et la porte principale du magasin de Wang Lin s'ouvrit silencieusement.
+
+Les deux entrèrent précipitamment. La porte se referma derrière eux sous l'effet du vent.
+
+À l'intérieur, les yeux des deux hommes s'illuminèrent en contemplant les diverses sculptures. Leur regard fut d'abord empreint de stupeur, mais cette surprise fut bientôt balayée par une cupidité infinie.
+
+— Tant de trésors magiques ! souffla l'un des cultivateurs dans un souffle court. Il saisit une sculpture et l'examina. Son corps trembla et il la repoussa brusquement.
+
+L'avidité dans ses yeux s'intensifia. D'un revers de main, il fit en sorte que toutes les sculptures des étagères soient aspirées dans son sac de rangement.
+
+L'autre cultivateur s'accroupit pour fouiller une boîte dans un coin. Il poussa soudain un cri en saisissant une sculpture incomplète. Son expression se mua en une grimace étrange alors qu'il sentait une saveur sucrée monter dans sa gorge et qu'il recrachait une bouffée de sang.
+
+Il jeta précipitement l'objet et recula, comme s'il faisait face à une créature antique.
+
+En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
+
+Heureusement, il l'avait lâchée à temps et la pression spirituelle de la sculpture ne s'était pas véritablement éveillée. Autrement, il n'aurait pas seulement perdu une simple bouchée de sang.
+
+Alors que la sculpture tombait, elle fut rattrapée par une main invisible géante qui la déposa dans la main de Wang Lin. Ce dernier sortit de la pièce arrière. Il replaça nonchalamment la sculpture sur une étagère, prit une gorgée de vin et déclara :
+
+— Cela fait un total de 4 520 pièces d'or. Payez.
+
+À l'apparition de Wang Lin, les deux hommes s'immobilisèrent net, le fixant avec des expressions horrifiées.
+
+En particulier le cultivateur qui venait d'être blessé par la pression spirituelle ; son visage était livide et son front perlé de sueur.
+
+À leurs yeux, l'apparence de Wang Lin était trop singulière. Avant d'entrer dans la boutique, ils avaient utilisé leur énergie spirituelle pour scruter l'intérieur. Bien qu'une personne ait été présente à l'arrière, elle n'était qu'un simple mortel.
+
+Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était comme si la foudre venait de les frapper, les plongeant dans la terreur.
+
+Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
+
+Ils se regardèrent et s'inclinèrent respectueusement :
+
+— Salutations, Senior. Ces juniors sont des disciples de la Secte Nuage Blanc. Nous avons été impolis et espérons que le Senior nous pardonnera.
+
+Wang Lin demanda simplement :
+
+— Avez-vous 4 520 pièces d'or ?
+
+Ils se regardèrent, perplexes. En tant que cultivateurs, ils possédaient des pierres spirituelles, mais ils ne disposaient pas de beaucoup de l'or utilisé par les mortels. Bien sûr, avec du temps, ils auraient pu en réunir 4 000, voire 40 000.
+
+Réalisant leurs pensées, Wang Lin soupira. D'un geste de la main, il fit voler le sac de rangement contenant les sculptures jusqu'à lui. Il effleura nonchalamment le sac d'un revers de main, forçant le propriétaire à avaler une nouvelle bouchée de sang.
+
+Le respect dans les yeux du cultivateur s'intensifia encore : ce simple geste venait d'effacer son sens divin du sac.
+
+Wang Lin secoua le sac et toutes les sculptures retournèrent à leur place initiale sans la moindre erreur, comme si elles n'avaient jamais été déplacées.
+
+— Repartez. Et quand vous reviendrez, apportez suffisamment d'or.
+
+Sur ces mots, Wang Lin renvoya le sac de rangement vers le cultivateur d'un geste de la main. Une force puissante poussa ensuite les deux hommes vers la sortie.
+
+Au moment où ils allaient heurter la porte, celle-ci s'ouvrit et ils furent expulsés de la boutique.
+
+Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
+
+Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
+
+Ayant remarqué l'anomalie de la sculpture, ils étaient allés trouver Xu Tao qui s'amusait, pour découvrir l'existence de cette boutique. Mais après ce qui venait de se passer, ils n'osaient plus songer à quoi que ce soit concernant cet établissement.
+
+Ils ignoraient que Wang Lin avait déjà laissé son sens divin sur eux. S'ils nourrissaient la moindre pensée malveillante à son égard, ils seraient instantanément tués.
+
+En vérité, s'ils avaient su qui était Wang Lin, ils se seraient sentis encore plus chanceux. Si c'était le Wang Lin d'il y a un an, la seule issue possible aurait été la mort.
+
+Wang Lin se rassit dans la boutique. Il but une gorgée de vin et soupira :
+
+— Je n'ai tué personne depuis un an.
+
+Puis, il retourna dans la pièce arrière pour dormir.
+
+Le temps s'écoula rapidement ; deux années passèrent. C'était déjà la troisième année que Wang Lin résidait à la capitale.
+
+Da Niu était devenu plus grand et plus robuste, et de nouveaux voisins s'installaient. Le propriétaire de la boutique de tissus Kong mourut de maladie et l'échoppe fut vendue à autrui.
+
+Les visages des parents de Da Niu s'étaient marqués de quelques rides. Bien qu'ils fussent encore jeunes, ils ne pouvaient échapper au passage du temps.
+
+Il est à noter que durant ces deux ans, de nombreux voisins étaient venus voir Wang Lin pour lui proposer des mariages, mais il les avait tous rejetés.
+
+Le second fils de la famille Xu s'était déjà marié et avait un enfant en bonne santé. Xu Tao revint présenter ses respects à Wang Lin. Il lui offrit cent pièces d'or, affirmant que cela venait du prince.
+
+En réalité, au cours de ces deux années, à chaque passage à la nouvelle année, Xu Tao apportait une quantité importante d'or et d'argent. Wang Lin ne le repoussait pas et acceptait tout.
+
+L'automne passa et l'hiver arriva. Le soleil se leva et se coucha. Durant ces deux dernières années, Wang Lin avait vu naître les jeunes et mourir les vieillards. Il ressentait une profonde mélancolie.
+
+En deux ans, il n'avait pratiqué la culture que deux fois. Il ne se souciait plus de son niveau de culture et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
+
+Selon ses analyses, lorsque la quatrième perle serait créée, la substance rouge aurait totalement disparu.
+
+Les deux cultivateurs d'autrefois n'étaient revenus qu'une seule fois durant cette période. Après avoir versé une grande quantité d'or mortel, ils avaient emporté trois sculptures sur bois.
+
+Au fil de ces deux ans, la boutique de Wang Lin avait acquis une certaine renommée dans le quartier ouest de la ville. Bien que la clientèle ne fût pas immense, c'était bien mieux que lors de sa première année.
+
+Cependant, les visiteurs les plus fréquents n'étaient pas des mortels, mais des cultivateurs. Six clients sur dix étaient des pratiquants.
+
+Chaque cultivateur venu achetait des sculptures avec de l'or mortel. En deux ans, il en avait vendu beaucoup et avait accumulé une fortune en or et en argent.
+
+La rumeur selon laquelle un être extraordinaire résidait dans le quartier ouest de la capitale s'était progressivement propagée parmi les cultivateurs.
+
+Le cœur de Wang Lin demeurait serein. Son souhait était toujours de vivre une vie de mortel. La boutique n'était qu'un outil pour cette expérience, et les sculptures en étaient le support.
+
+La nouvelle année approchait et la capitale était devenue très animée. Wang Lin sortit de sa boutique et s'assit à l'extérieur, le regard empreint de nostalgie.
+
+C'était le troisième Nouvel An qu'il traversait depuis son arrivée. Chaque fois, l'expérience était différente, sauf pour une chose : le regret qu'il éprouvait envers son enfance.
+
+Da Niu déboula de la forge située de l'autre côté de la rue, des feux d'artifice à la main, s'amusant joyeusement avec eux. En voyant l'enfant, un sentiment de bonheur traversa les yeux de Wang Lin. Il avait vu ce gamin grandir, passant d'un enfant de onze ans à un adolescent de quatorze ans.
+
+L'année dernière, Da Niu n'avait plus pu refuser les ordres de son père et avait commencé l'apprentissage de la forge. Cependant, dès qu'il en avait le temps, il venait regarder Wang Lin sculpter le bois.
+
+Bien que Da Niu ne vînt pas aussi souvent, sa jarre de vin de fruits quotidienne n'avait jamais manqué.
+
+Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le banc froid, sans semble guère importuné par la fraîcheur. Il adressa un clin d'œil à Wang Lin et dit :
+
+— Oncle Wang, j'ai entendu mon père dire il y a quelques jours que le marchand Lu, du côté est de la ville, voulait marier sa fille à toi. Pourquoi n'as-tu pas accepté ? Je l'ai vue en secret et elle est très belle !
+
+Wang Lin sourit. Il frotta la tête de Da Niu et répondit :
+
+— L'oncle a déjà une femme.
+
+— Ah ? Vraiment ? Comment se fait-il que je ne l'aie jamais vue ? s'exclama soudainement Da Niu, le visage empreint de stupeur.
+
+— Elle est dans un endroit très lointain, elle m'attend. Un jour, j'irai la chercher ! La voix de Wang Lin était douce tandis qu'une image de femme apparaissait dans son esprit.
+
+Da Niu esquissa un sourire espiègle :
+
+— Je comprends ! Oncle Wang, tu es venu à la capitale pour gagner de l'argent afin de pouvoir rentrer chez toi et te marier !

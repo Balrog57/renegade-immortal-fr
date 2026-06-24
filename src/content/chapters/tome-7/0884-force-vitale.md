@@ -1,0 +1,131 @@
+---
+n: 884
+title: Force Vitale
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 884 - Life Force
+slug: force-vitale
+---
+La terre trembla. Wang Lin pouvait clairement sentir une onde sourdre des profondeurs du sol. Les secousses à la surface n'étaient que la conséquence de cette onde.
+
+Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surface, elle fit vibrer la planète tout entière dans un violent ébranlement.
+
+« Qu'est-ce que c'est... » Une voix calme résonna entre le ciel et la terre. Soudain, une aura antique envahit les environs. C'était comme si cette voix ne provenait pas d'en bas, mais du vide et à travers les âges. Elle semblait émaner du monde de culture ancestral d'il y a d'innombrables années.
+
+Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
+
+Le vieil homme Xiang dit respectueusement : « La bataille entre le système stellaire Allheaven et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que ce junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qi Xi ! »
+
+À peine Xiang Yundong eut-il fini de parler que Wang Lin sentit immédiatement un Sens Divin inimaginable se verrouiller sur lui. Horrifié, il se força à ne pas reculer et tenta de retrouver son calme autant que possible.
+
+Ce Sens Divin était d'une puissance absolue, mais il ne put le transpercer totalement. À cet instant, l'étincelle d'énergie d'origine de son troisième œil se propagea sur tout son corps.
+
+Le Sens Divin l'examina une fois, puis se retira promptement.
+
+« Laissez-le descendre de lui-même ! » La voix antique résonna de nouveau. Puis, un grondement encore plus intense émana de la terre. Une faille s'ouvrit soudainement dans le sol, créant un ravin profond.
+
+Xiang Yundong hocha rapidement la tête et se tourna vers Wang Lin. Initialement, il n'était sûr qu'à 50 %. Après tout, l'Ancêtre avait montré une attitude étrange ; il se pourrait que l'Ancêtre ne se soucie guère de la promesse issue de la compétition des titres célestes.
+
+Mais maintenant que l'Ancêtre avait accepté, Xiang Yundong sourit et dit : « Xu Mu, descends. Je t'attendrai ici. »
+
+Wang Lin acquiesça et lança un regard à Qing Shui.
+
+L'œil droit de Qing Shui brilla d'un rouge éclatant et il déclara calmement : « Si quiconque ose te blesser, alors des rivières de sang issues de ceux nommés Xiang couleront sur la planète Dong Lin. » Bien que sa voix fût légère, elle était empreinte d'une intention meurtrière glaciale. Xiang Yundong fronça les sourcils et ne put que sourire amèrement en silence.
+
+Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian... et maintenant Qing Shui !
+
+Wang Lin prit une profonde inspiration, salua respectueusement Qing Shui et Xiang Yundong en joignant les mains, puis se retourna pour s'enfoncer dans le ravin !
+
+Ce gouffre était immense. Les yeux de Wang Lin brillèrent alors qu'il poursuivait sa descente. Les parois étaient lisses, mais aucun signe de vie ne s'y dessinait. Le ravin était saturé d'une aura de mort.
+
+Au fur et à mesure de sa descente, cette aura devint plus oppressante encore. Finalement, elle enveloppa toute la zone au point de devenir presque tangible. Wang Lin se sentait extrêmement mal à l'aise.
+
+Il était comme une petite flamme entourée par un vent glacial, prêt à être éteint à tout instant par ce souffle funèbre.
+
+L'aura de mort devint progressivement violente lors de sa descente, s'infiltrant jusque dans son corps. Si n'importe qui d'autre avait été à sa place, son corps se serait raidi et sa vie aurait été en péril immédiat.
+
+Cependant, Wang Lin avait cultivé le domaine de la Vie et de la Mort dès sa première étape de culture. Durant ses débuts, il avait pratiqué la Méthode de l'Ascension des Enfers ; il était donc très familier avec les énergies funèbres.
+
+À cet instant, son énergie d'origine circula et les poissons Yin et Yang commencèrent à pivoter autour de lui. L'aura de mort fut repoussée, l'empêchant d'être gravement blessé.
+
+Le ravin semblait sans fin. Wang Lin descendait très vite, mais même après sept minutes, il ne percevait toujours pas le fond. Il garda une expression calme tout en faisant circuler son énergie d'origine et en activant son domaine du Karma.
+
+Après un long moment, alors que l'aura de mort devenait si dense que même les poissons Yin et Yang furent ralentis par son influence, son corps tressaillit lorsqu'il toucha enfin le sol.
+
+Ce qui se dressait devant lui était un tunnel. Ce passage était plongé dans une obscurité totale. Même avec la culture de Wang Lin, il ne pouvait voir clairement ; seuls des contours informes se dessinaient.
+
+« Viens ici ! » La voix antique résonna dans ce tunnel silencieux, dégageant une sensation troublante. Wang Lin réfléchit un instant, puis ses yeux s'animèrent d'une détermination farouche et il s'engagea dans le passage.
+
+Le tunnel n'était pas très long. Après sept minutes de marche, Wang Lin atteignit le bout. Ce qu'il vit fit brusquement se rétracter ses pupilles !
+
+Des crânes humains !
+
+D'innombrables crânes humains, entassés les uns contre les autres avec une densité effrayante !
+
+Une vaste étendue s'ouvrait au bout du tunnel. On n'en voyait pas la fin ; seuls ces crânes infinis dégageaient un froid glacial.
+
+Ce qui se présentait devant lui était une mer de crânes humains absolument titanesque !
+
+Malgré sa force mentale, Wang Lin en eut le cuir chevelu qui picotait. Il ne put s'empêcher de reculer de deux pas, le visage marqué par l'horreur.
+
+Il y avait tout simplement trop de crânes ici, une quantité impossible à dénombrer. Un spectacle de nature à faire trembler n'importe quel cœur. L'aura dense de la mort formait une tempête qui sifflait à travers cette mer d'ossements.
+
+Sous l'impact de cette aura funèbre, Wang Lin eut la sensation de suffoquer. L'effroi dans ses yeux atteignit son paroxysme.
+
+Au cœur de la tempête, au centre de cette mer de crânes, se trouvait une plateforme artificielle sur laquelle reposait un cercueil de couleur terre. Le bois du cercueil était partiellement gangrené, mais une aura presque démente s'en échappait.
+
+« Quel est ton nom ? » Une voix antique émana du cercueil et fit écho dans toute la zone.
+
+Wang Lin prit une grande inspiration pour réprimer le choc de son esprit et l'aura suffocante. Il dit respectueusement : « Junior Xu Mu salue Senior ! »
+
+« C'est toi qui souhaites que ce vieil homme utilise le sort Qi Xi ? » Il était impossible de dire si la voix était empreinte de colère ou de joie, mais une pression écrasante enveloppait les environs.
+
+Wang Lin apaisa son cœur et répondit calmement : « C'est bien moi ! »
+
+« Je peux t'aider, mais la seule promesse de la famille Xiang ne suffit pas. Je veux la moitié de ta force vitale ! »
+
+La voix antique se mua en un Sens Divin. Dès qu'elle s'étendit, elle densifia davantage l'aura de mort environnante.
+
+Même les innombrables crânes de la mer d'ossements commencèrent à bouger. Une lueur spectrale s'alluma dans les orbites de ces milliers de restes humains.
+
+La scène était d'une étrangeté absolue. Aux yeux de Wang Lin, c'était comme si chaque crâne avait ouvert les yeux, doté d'une âme propre. Tous leurs regards convergeaient vers lui.
+
+Au moment où ces regards incommensurables se posèrent sur lui, la force vitale dans le corps de Wang Lin s'effondra et se dissipa. La moitié de ses cheveux passa du noir au blanc comme la neige.
+
+L'apparence de Wang Lin vieillit instantanément sous ses yeux, passant d'un jeune homme à un homme d'âge mûr.
+
+Un sentiment de faiblesse qu'il n'avait jamais connu jusqu'alors envahit son cœur. Bien que sa culture ne fût pas endommagée, cette sensation de défaillance ne s'estompait pas.
+
+La voix de l'Ancêtre de la famille Xiang flotta doucement : « Sorts la personne que tu souhaites sauver ! »
+
+Wang Lin réfléchit un instant avant de frapper son sac de rangement ; la sphère de restriction contenant l'Âme Naissante de Li Muwan apparut. Cependant, avant qu'elle ne puisse atteindre les mains de Wang Lin, une aura de mort tyrannique s'y précipita et la ramena au centre de la tempête funèbre.
+
+À cet instant, Wang Lin oublia tout. Il en oublia même l'écart de culture insurmontable qui le séparait de l'entité. Ses yeux devinrent instantanément rouges et une lumière écarlate jaillit de son troisième œil.
+
+« Que comptes-tu faire ?! » rugit Wang Lin en chargeant pour poursuivre l'aura de mort qui enveloppait Li Muwan.
+
+Un ricanement glacial provint du cercueil, et un autre flux d'aura de mort s'élança vers lui. À cet instant, comme s'il était devenu fou, Wang Lin ouvrit sans hésiter son troisième œil. La lumière rouge se projeta et frappa l'aura de mort qui le visait.
+
+L'aura de mort s'effondra immédiatement. Wang Lin se déplaça comme un éclair vers la sphère de restriction où se trouvait Li Muwan !
+
+« Trop bruyant. J'ai pris la moitié de ta force vitale, et maintenant j'utiliserai le sort Qi Xi ! » Alors que la voix antique résonnait, le corps de Wang Lin se figea. Il fixa le cercueil devant lui, le regard glacial.
+
+Sous l'influence de l'aura de mort, la sphère de restriction entourant Li Muwan se désintégra. Tandis que Wang Lin ressentait une douleur lancinante au cœur, l'Âme Naissante de Li Muwan ne fut pas blessée et flotta dans les airs.
+
+« Ainsi, il s'agit d'une Âme Naissante brisée qui a perdu toute vie et qui a été contrainte de subsister ! Pas étonnant que tu sois venu voir ce vieux monsieur pour le sort Qi Xi ! »
+
+Wang Lin resta silencieux, contemplant fixement le cercueil.
+
+« Cependant, si j'étais à mon apogée en utilisant le sort Qi Xi, je pourrais la restaurer. Même si ce n'était que pour l'éveiller, j'y parviendrais de justesse. Mais pour l'instant, ce vieux monsieur n'a plus que 30 % de certitude ! » Tandis qu'il parlait, parmi la mer de crânes, de nombreux yeux s'illuminèrent. Soudain, une aura de mort enveloppa Wang Lin.
+
+Wang Lin ne résista pas. Alors que l'aura de mort le submergeait, elle lui arrachait des filaments de vitalité. Ces filaments étaient sa propre durée de vie !
+
+À mesure que sa vitalité s'évanouissait, ses cheveux blanchissaient et tombaient. Son corps se flétrit progressivement et sa peau se couvrit de rides.
+
+Son visage vieillit rapidement, passant de l'âge mûr à la vieillesse extrême. Seule une trace ténue de son apparence originelle subsistait sur ses traits.
+
+Les yeux de Wang Lin devinrent ternes, et sa faiblesse s'intensifia décuplement. Il sentit vaguement quelque chose l'appeler depuis le vide.
+
+C'était comme si une puissance lui faisait signe, voulant l'emporter avec elle.
+
+Après avoir pratiqué la culture pendant plus de 1 000 ans, comment Wang Lin aurait-il pu ignorer cette force... C'était le cycle de réincarnation des cieux. Il ne lui restait plus beaucoup de temps, et le cycle de réincarnation céleste commençait à l'appeler. Tout comme ce fut le cas pour Li Muwan. Lorsque sa durée de vie s'éteindrait, il mourrait !

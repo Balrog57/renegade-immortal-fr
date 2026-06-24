@@ -1,0 +1,119 @@
+---
+n: 1703
+title: "La cupidité refait surface !"
+book: 11
+bookTitle: Mysteries of the Ancient Era
+en: "Chapter 1703 - Greed Appears Once More!"
+slug: la-cupidite-refait-surface
+---
+Chapitre 1703 - La cupidité refait surface !
+
+Le rugissement de Wang Lin se transforma en une tempête qui pénétra la corne formée par ses six essences. Après avoir résonné un instant à l'intérieur, la tempête jaillit par l'autre extrémité de la corne.
+
+Ce rugissement était déjà extrêmement puissant, mais il fut alors amplifié d'une multitude de fois. La première illusion commença à se désintégrer à une vitesse fulgurante.
+
+Le fracas forma un son inimaginable qui s'abattit sur les neuf soleils entourant le Daoïste aux Sept Couleurs telle une tempête. Les neuf soleils montrèrent des signes d'extinction, et le son pénétra directement dans les oreilles du Daoïste aux Sept Couleurs !
+
+Au sein de la deuxième illusion, le Daoïste aux Sept Couleurs était transporté par l'excitation. Normalement, un tel sentiment n'aurait pas dû animer un cultivateur de son rang, mais il ne pouvait s'en empêcher. Il avait attendu si longtemps qu'on aurait pu dire qu'il avait attendu une vie entière !
+
+Aujourd'hui, grâce au pouvoir du Continent Astral Immortel, il avait enfin trouvé une piste menant à la troisième âme. Il ignorait si cela était réel ou s'il ne faisait que l'imaginer, mais c'était la première fois qu'il se trouvait aussi proche de cette troisième âme !
+
+Sous ses yeux, il vit la troisième âme percer la Rivière des Invocations et se diriger vers ce qui deviendrait plus tard le Vide Brillant. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit !
+
+Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour devenir le seul son perceptible par le Daoïste aux Sept Couleurs !
+
+ROAR !!
+
+Sous ce rugissement, tout ce qui se trouvait devant le Daoïste aux Sept Couleurs sembla être déchiré par une force colossale. C'était comme si on cherchait à l'arracher de cette deuxième illusion !
+
+La troisième âme qu'il pouvait encore distinguer clairement disparut sous ses yeux. La carte stellaire devant lui se brouilla et s'effondra. Non seulement la carte, mais tout ce qui l'entourait se désintégra !
+
+Tout cela advint trop vite. Il était au paroxysme de son excitation, mais juste au moment où il allait découvrir la destination de la troisième âme, tout disparut.
+
+Le Daoïste aux Sept Couleurs fut stupéfait. Il ne pouvait l'empêcher, car c'était quelqu'un, dans la première illusion, qui était en train de le réveiller.
+
+« NON !!! » Après cet instant de stupeur, il lâcha un rugissement d'une colère noire !
+
+Ce cri jaillit de sa propre bouche, mais aussi de celle du Daoïste aux Sept Couleurs dans la première illusion. Les deux rugissements entrèrent en collision avec celui de Wang Lin, créant une force destructrice !
+
+La corne formée par les six essences vola en éclats instantanément. Wang Lin cracha du sang, sentant son corps tout entier sur le point de se briser. Simultanément, les neuf soleils se dispersèrent et un impact puissant fut projeté vers lui.
+
+Face à ce danger imminent, Wang Lin utilisa son Sortilège de l'Immortel Antique pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
+
+À mille pieds de là, à l'extérieur de l'espace mystérieux rempli de bêtes féroces où se trouvait le Daoïste aux Sept Couleurs, Wang Lin ouvrit les yeux. Il cracha du sang et son regard était terne, mais il recula sans la moindre hésitation.
+
+D'un pas, il s'évanouit sans laisser de trace. Lorsqu'il réapparut, il se trouvait extrêmement loin et expulsa une nouvelle bouchée de sang. Wang Lin n'eut même pas le temps de se soigner avant de fuir comme un possédé.
+
+Le Daoïste aux Sept Couleurs, assis au milieu d'un amas de cadavres de bêtes, ouvrit soudain les yeux. Ses globes étaient injectés de sang et son expression était tordue par la rage. Il fixa l'horizon et poussa un rugissement violent.
+
+« Wang Lin, si je ne te tue pas, alors je ne suis plus un homme !!! » Ce cri résonna à travers le domaine stellaire. La montagne de cadavres de bêtes féroces trembla, se changea en poussière et fut dispersée dans toutes les directions.
+
+Le Daoïste aux Sept Couleurs s'élança à la poursuite de Wang Lin, animé d'une intention meurtrière monstrueuse !
+
+Bien que très loin, Wang Lin entendit ce rugissement colérique. Le visage pâle, il cracha du sang sans attendre et utilisa l'Évasion Sanguine pour fuir !
+
+« Inutile. Même si je n'avais pas détruit sa chance de trouver la troisième âme, il aurait eu de mauvaises intentions en me poursuivant jusqu'ici ! » Bien que son regard fût éteint, Wang Lin ne regrettait pas son geste.
+
+Il fallait le faire. S'il n'avait pas brisé le plan du Daoïste aux Sept Couleurs pour se rendre à l'autel, il n'aurait fait que retarder sa propre mort.
+
+Si tout ce qui se trouvait dans cette illusion était réel, alors une fois la troisième âme trouvée, il n'y aurait plus aucun espoir pour le monde de la grotte !
+
+Tout passerait sous le contrôle total du nouveau Souverain Céleste aux Sept Couleurs. À ce moment-là, Wang Lin n'aurait plus aucune emprise sur son propre destin !
+
+Il ne permettrait absolument pas une telle chose, et il devait donc détruire les desseins du Daoïste aux Sept Couleurs, dût-il être poussé au bord de la mort !
+
+Alors qu'il fuyait, l'espace derrière lui trembla ; il sentait la présence du Daoïste aux Sept Couleurs qui le traquait. Ce dernier était extrêmement puissant et son Sens Divin pouvait porter très loin, ce qui rendrait la tâche de retrouver Wang Lin bien trop facile !
+
+« Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère ! » Wang Lin avait mûrement réfléchi avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
+
+Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de l'Omniscient pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie !
+
+Fan Shan avait mentionné que cette faille spatiale dans la Mer des Nuages s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Ciel et où le Souverain Céleste aux Sept Couleurs fut brisé.
+
+Elle avait aussi précisé que cet endroit était relié à un espace mystérieux, ce qui expliquait l'apparition de tant de bêtes féroces.
+
+Au plus profond de cette faille spatiale flottait un autel gigantesque. Bien qu'en ruines, il demeurait immobile, ancré dans un seul lieu.
+
+L'autel était d'un noir absolu, semblable à l'espace qui l'entourait. Cependant, un de ses angles émettait une douce lueur.
+
+Si l'autel restait en place, c'était parce qu'un de ses coins semblait connecté à un autre espace. Des ondulations émanaient de cet angle, faisant perdurer cette situation depuis des dizaines de milliers d'années.
+
+L'espace auquel il était lié n'était pas intact ; on y trouvait également plusieurs failles spatiales dont provenait la lumière.
+
+C'était comme si une flèche avait transpercé un morceau de papier mais s'y était coincée : il y avait naturellement une ouverture là où l'obscurité pénétrait le papier.
+
+Des éclats d'aura d'un Être Ancien émanaient de l'autel, mais ils ne se propageaient pas très loin, comme si une force invisible les contenait.
+
+Cet autel ressemblait à une petite montagne dotée de huit arêtes. Des gradins entouraient sa base, et le sommet était une zone plane d'environ mille pieds de large. En y regardant de plus près, on pouvait distinguer une formation ancienne sur sa surface.
+
+Au centre de l'autel gisait un bras. C'était de ce membre que provenait l'aura de l'Être Ancien.
+
+Ce bras n'était pas très imposant, ne mesurant que quelques centaines de pieds de long. Il restait là, silencieux et immobile.
+
+À cause de la faille spatiale, un coin de l'autel était coincé dans un autre monde. Ce monde était parsemé de fleurs et d'oiseaux, avec une terre recouverte d'herbe céleste. De nombreux petits animaux y jouaient, tel un jardin céleste.
+
+À cet instant précis, un cri misérable s'éleva de cet espace. C'était un cri empreint d'impuissance et de supplication. Quiconque l'entendrait ressentirait inévitablement pitié et compassion.
+
+« Petits ancêtres, je vous en prie, laissez-moi partir ! Je n'ai vraiment plus d'histoires à raconter. Même si vous me donnez davantage de trésors, je suis à sec ! Ah, après plus de cent ans, ma gorge est sèche à force de parler. Je ne peux plus tenir ! »
+
+Tandis que les cris résonnaient, une silhouette humaine au visage hagard, aux yeux ternes et à l'expression douloureuse tenta de s'extirper de la faille spatiale.
+
+Une barrière entourait manifestement la faille, mais elle n'avait aucun effet sur cet homme. Plus de la moitié de son corps était sortie, révélant son apparence.
+
+À travers la brèche, on pouvait voir deux fillettes d'environ sept ou huit ans, accroupies derrière lui. Elles étaient très mignonnes ; l'une portait une robe violette et l'autre une robe verte.
+
+« Han Han, et si on le laissait partir ? Il a l'air tellement pitoyable, » dit la petite fille en vert, qui semblait ne plus pouvoir supporter la scène, en se tournant vers sa compagne.
+
+En entendant ces mots, l'homme laissa couler ses larmes, les yeux emplis de panique.
+
+« Wa Wa, il n'a pas fini son histoire, ne prends pas pitié de lui. Tu te souviens comment il nous a menacées en arrivant ici ? » La petite fille nommée Han Han attrapa la jambe de l'homme et le tira en arrière alors qu'il poussait un cri de détresse.
+
+« Cupidité, dépêche-toi, finis cette histoire. Tu parlais justement du Serpent Moongazer, dis vite la suite ! »
+
+La petite fille appelée Wa Wa sourit en regardant Cupidité. Après une courte réflexion, elle reprit :
+
+« Que dirais-tu de ceci : raconte-nous encore mille ans d'histoires, et je déciderai si je te laisse partir ou non. »
+
+Cupidité poussa un hurlement alors que son corps était traîné en arrière vers ce lieu terrifiant. En entendant les paroles de Wa Wa, ses larmes redoublèrent.
+
+« Je le savais... vous deux... Vous êtes pareilles ! C'était la même chose la dernière fois. Je n'ai vraiment plus d'histoires... j'ai juste soif... »

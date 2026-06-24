@@ -1,0 +1,121 @@
+---
+n: 780
+title: Zhan Konglie
+book: 7
+bookTitle: Fame Shakes Allheaven Star System
+en: Chapter 780 - Zhan Konglie
+slug: zhan-konglie
+---
+« Le Royaume Ji ! Quel genre d'individu est scellé dans ce vortex aux cinq couleurs ? Comment peut-il avoir atteint le Royaume Ji ?! » Tout en traversant le vide, Wang Lin ne parvenait pas à apaiser son esprit.
+
+Bien qu'il paraisse calme, de puissantes ondes s'agitaient dans son cœur.
+
+« Le sommet du Royaume Ji correspond au stade de l'Âme Naissante. La personne que j'ai rencontrée était originaire de la planète des Cinq Éléments. Elle possédait le Royaume Ji et affirmait que c'était un don d'un ami défunt. En plus d'elle, c'est la deuxième fois que je rencontre le Royaume Ji ! » Wang Lin commença à réfléchir tout en survolant de nombreux fragments à travers le vide, en direction du centre du royaume céleste.
+
+« Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji... ? » Le cœur de Wang Lin rata un battement et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
+
+« Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon de la Collection.
+
+Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le vide était immense et la plupart des cultivateurs passaient le plus clair de leur temps sur les fragments ; ils ne traversaient l'espace que pour passer d'un fragment à un autre. Cependant, au cours du demi-mois où Wang Lin et Li Yuan progressaient dans le vide, ils virent de nombreux rayons de lumière apparaître au loin et à proximité.
+
+Au début, Wang Lin n'y prêta pas attention, mais après un mois de progression, ils commencèrent à croiser de plus en plus de cultivateurs.
+
+La plupart d'entre eux étaient au stade de l'Ascendant, et occasionnellement, on pouvait apercevoir un cultivateur du stade Illusoire Yin.
+
+Ils voyageaient seuls, en groupes de deux ou trois, ou accompagnés de leurs membres familiaux, défilant à toute vitesse. Ce phénomène attira l'attention de Wang Lin et Li Yuan.
+
+Bien que les expressions des cultivateurs fussent diverses, l'excitation subtile qui brillait dans leurs yeux était singulièrement similaire.
+
+Ces cultivateurs en mouvement remarquèrent également Wang Lin et Li Yuan. Lorsque certains d'entre eux comprirent que le niveau de culture de Wang Lin dépassait celui de l'Ascendant, leurs regards se firent vigilants et ils les contournèrent tous, refusant de provoquer le moindre problème.
+
+« Frère Xu, quelque chose ne va pas. Se pourrait-il qu'un événement majeur soit en train de se produire ? » Li Yuan commença à s'inquiéter. Il avait croisé bien trop de cultivateurs en chemin.
+
+C'était un phénomène très inhabituel dans le vide !
+
+De plus, alors que les deux continuaient leur route vers le centre, ils virent encore davantage de cultivateurs. C'était comme si tous les êtres du Royaume Céleste du Tonnerre convergeaient vers un seul et même fragment.
+
+« Ils ne se dirigent pas vers le même endroit ! » Les yeux de Wang Lin s'illuminèrent et il déclara lentement : « Ils partent dans quatre directions différentes ! »
+
+« Que se passe-t-il exactement... ? » Li Yuan fronça les sourcils en observant les cultivateurs filer devant eux.
+
+Wang Lin réfléchit un instant. Sans ajouter un mot, il prit Li Yuan sous son aile et accéléra sa course.
+
+À ce moment précis, plus de dix rayons d'énergie d'épée traversèrent le vide lointain. Une riche énergie originelle émanait de ces éclairs, faisant en sorte que les cultivateurs environnants n'osassent bloquer leur passage.
+
+Ces dix rayons d'énergie d'épée dégageaient une pression dominante en balayant la zone. Même les clans regroupant un grand nombre de cultivateurs reculèrent immédiatement lorsqu'ils virent ces traînées fulgurantes.
+
+Quant aux cultivateurs solitaires, il allait sans dire qu'ils s'arrêtèrent net, n'osant se mettre en travers de leur route.
+
+En un instant, presque tous les cultivateurs devant Wang Lin tournèrent le regard vers ces dix rayons d'énergie d'épée avant de s'écarter promptement.
+
+Wang Lin garda un regard calme tandis qu'il observait silencieusement ces éclairs de lumière.
+
+Ces rayons d'énergie d'épée ne ralentirent pas et continuèrent leur course dans le vide. Cependant, juste au moment où ils étaient sur le point de disparaître, l'un d'eux tourna soudainement pour foncer vers Wang Lin.
+
+Simultanément, tous les rayons d'énergie d'épée s'arrêtèrent, se transformant en divers cultivateurs masculins et féminins. Tous possédaient un niveau de culture supérieur à celui de l'Ascendant. La plupart étaient au stade Illusoire Yin, et seuls quelques-uns atteignaient le stade Corporel Yang.
+
+Une fois leurs silhouettes révélées, tous fixèrent le rayon d'énergie qui volait vers Wang Lin, les yeux emplis de perplexité.
+
+Non seulement eux, mais l'ensemble des cultivateurs aux alentours suivirent du regard la trajectoire de cet éclair.
+
+L'expression de Li Yuan changea légèrement lorsqu'il leva sa main gauche pour préparer une restriction.
+
+Seul Wang Lin resta d'un calme imperturbable ; il esquissa un léger signe de tête vers le rayon qui approchait.
+
+Le rayon d'énergie s'arrêta à deux cents pieds de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
+
+Vêtu d'une robe pourpre et dorée, il se tenait droit. Il joignit les mains en signe de salut devant Wang Lin avec une attitude extrêmement respectueuse : « Le junior Zhan Konglie salue le Senior ! »
+
+Dès qu'il eut parlé, tous ceux qui l'entendirent furent stupéfaits et leurs regards convergèrent vers Wang Lin.
+
+À cet instant, bien que le nombre de cultivateurs ne fût pas immense, la scène n'était pas moins impressionnante que si des dizaines de milliers de personnes avaient observé. Malgré cette convergence de regards, l'expression de Wang Lin ne changea aucunement ; il demeurait aussi serein qu'une eau dormante.
+
+Zhan Konglie était très célèbre, et certains cultivants environnants le reconnurent naturellement, même ceux qui ne percevaient pas la puissante énergie originelle émanant de lui. Puis, en entendant ses paroles, ils l'identifièrent aussitôt comme étant Zhan Konglie, venu du domaine Sud.
+
+« Qui est cet homme ? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior" ?! »
+
+« J'ai entendu dire que Zhan Konglie est déjà devenu un messager du Temple Céleste du Tonnerre. S'il appelle quelqu'un ainsi, cet homme pourrait-il être un Ancien du Temple Céleste du Tonnerre ? »
+
+Diverses pensées traversèrent l'esprit des cultivateurs alentour.
+
+En particulier, les dix personnes accompagnant Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Senior », leur curiosité fut piquée au vif.
+
+Il faut dire que Zhan Konglie possédait l'un des niveaux de culture les plus élevés parmi eux. Ils savaient également qu'il était d'une arrogance extrême. Ce n'était pas une simple façade, mais un trait de caractère profondément ancré en lui.
+
+Même les Anciens de sa propre lignée ne recevaient souvent pas son respect. Il était extrêmement rare qu'il se montre déférent envers qui que ce soit.
+
+Le respect de Zhan Konglie était sincère et venait du plus profond de son être. En voyant Wang Lin, il perçut naturellement sa culture au stade Corporel Yang et ressentit une pointe de mélancolie.
+
+« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
+
+Lorsqu'il était reparti autrefois, il était resté mélancolique et éprouvait une immense envie envers Shengong Hu. Après son retour chez lui, il avait hésité, se demandant s'il n'aurait pas dû faire comme Shengong Hu et saisir cette chance inouïe.
+
+Fort de cette réflexion, lorsqu'il apprit que Shengong Hu avait été puni par sa famille et abandonné par le Temple Céleste du Tonnerre, il ressentit un sentiment complexe. S'il n'avait pas vécu cela lui-même, il se serait moqué ouvertement de la situation de Shengong Hu.
+
+Cependant, après avoir traversé l'épreuve au lac du tonnerre, il s'était trouvé en accord avec Shengong Hu et en était même venu à éprouver de la tristesse. Dans son cœur, il éprouvait une véritable admiration pour ce dernier.
+
+Li Yuan fixait Wang Lin, hébété, l'esprit totalement embrumé. Il connaissait le nom de Zhan Konglie. Parmi la jeune génération, Zhan Konglie, Shengong Hu et Tan Yanfeng étaient considérés comme les trois génies du domaine Sud.
+
+Tous étaient des prodiges ayant atteint le stade Corporel Yang en un temps record.
+
+Pourtant, voir Zhan Konglie appeler ainsi cet homme laissa Li Yuan sans voix.
+
+Wang Lin fronça les sourcils vers Zhan Konglie et demanda : « Où cours-tu avec une telle hâte ? »
+
+En voyant ce froncement de sourcils, le cœur de Zhan Konglie trembla. Il se fit encore plus respectueux et répondit promptement : « Quatre fragments du Temple Céleste du Tonnerre émettent de puissantes fluctuations d'énergie spirituelle céleste. Cependant, leurs emplacements sont protégés par des restrictions qui ne peuvent être levées en peu de temps. Il est manifeste que dès que ces barrières tomberont, de grands trésors apparaîtront. Dès que le junior a eu vent de cela, j'ai décidé d'aller vérifier par moi-même. »
+
+Wang Lin observa les environs. Il était évident que les autres cultivateurs avaient également découvert la nouvelle par divers moyens ; c'était ce qui provoquait ce mouvement de masse.
+
+« Protégés par des restrictions... » Les yeux de Wang Lin se plissèrent et, après un moment d'hésitation, il fit un geste de la main. « Si tel est le cas, j'espère que vous ferez de bonnes récoltes ! »
+
+Zhan Konglie hésita, puis dit avec déférence : « Le junior n'est pas certain de réussir. J'ignore si le Senior aura le temps... De plus, le junior et le frère Shengong Hu avons convenu de nous rejoindre sur le fragment de gauche pour unir nos forces et s'emparer du trésor ! »
+
+Wang Lin fronça les sourcils plus profondément : « J'ai d'autres affaires importantes à régler ! Si j'ai le temps, je viendrai voir. »
+
+Zhan Konglie hocha immédiatement la tête, un air d'excitation sur le visage. Hormis Wang Lin, seule une poignée de membres de sa famille et du Temple Céleste du Tonnerre pouvaient provoquer une telle réaction chez lui.
+
+Zhan Konglie pensa : « Puisque le Senior a dit cela, alors je suis certain de pouvoir obtenir le trésor cette fois ! » Il adressa ses respects respectueusement avant de rejoindre son groupe pour s'envoler en tête.
+
+Ses compagnons le regardèrent avec perplexité et le suivirent. Ce n'est que lorsqu'ils furent loin qu'une femme vêtue de blanc ne put s'empêcher de demander doucement : « Grand frère Zhan, qui était cette personne ? »
+
+Zhan Konglie esquissa un léger sourire. Ses yeux étaient toujours empreints de respect lorsqu'il répondit : « C'était un puissant Senior. Pouvoir le rencontrer est ma chance ! »

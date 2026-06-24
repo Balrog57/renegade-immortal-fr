@@ -1,0 +1,127 @@
+---
+n: 1422
+title: "Scellez le Royaume de la Flamme Joss !"
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1422 - Seal the Joss Flame Realm!"
+slug: scellez-le-royaume-de-la-flamme-joss
+---
+Chapitre 1422 - Scellez le Royaume de la Flamme Joss !
+
+L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieil Oiseau Vermillon. S'il commettait un tel acte, il ferait face à la mort.
+
+S'il ne tuait pas Wang Lin, l'ancien Oiseau Vermillon ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui ! Il avait utilisé le Culte de la Flamme Joss dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
+
+Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute sécurité.
+
+La puissance de l'adoration des innombrables âmes se transforma en un vent violet qui chargea Wang Lin de toutes les directions. À première vue, on aurait dit que le monde entier avait été teinté de pourpre !
+
+Ce sort de la Flamme Joss était assourdissant et suffisamment puissant pour détruire un cultivateur de la Peste Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Daoist Water ; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
+
+Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Daoist Water, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans l'Ancien Système Stellaire.
+
+Auparavant, il ne pouvait que se protéger, mais désormais, il pouvait tenir tête à son adversaire !
+
+Voyant le vent violet approcher, des éclairs jaillirent de l'œil droit de Wang Lin. Il fit un pas en avant et agita sa main droite.
+
+« Royaume du Tonnerre Ancien, ouvre-toi ! »
+
+Le monde gronda et une autre immense faille apparut dans le ciel, recouverte par le vent violet. Cette déchirure mesurait 10 000 pieds de large et semblait avoir lacéré la pourpre pour apparaître devant Wang Lin !
+
+Des grondements tonitruants résonnèrent à l'intérieur de la faille, dégageant une aura antique. Les rugissements d'anciens dragons de tonnerre retentirent. Tandis que les éclairs jaillissaient de la brèche, le corps gigantesque d'un ancien dragon de tonnerre se manifesta.
+
+Un tonnerre infini s'échappa de la faille et fit rage au sein du vent violet.
+
+Tout cela se produisit en un instant. Dès que le Royaume du Tonnerre Ancien fut ouvert par Wang Lin, le tatouage de tonnerre dans son œil droit s'élança vers la faille.
+
+Simultanément, un rugissement fracassant provenant de la brèche étouffa tous les sons de tonnerre. La tête d'un géant dragon de tonnerre antique surgit et chargea le tatouage.
+
+En un éclair, l'ancien dragon de tonnerre fusionna avec l'un des éclairs accompagnateurs gravitant autour du tatouage, augmentant considérablement la puissance de ce dernier !
+
+Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et fusionnèrent rapidement avec les éclairs accompagnateurs avant que le vent violet n'atteigne sa cible !
+
+« Le Royaume du Tonnerre Ancien sera la source de mon essence de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste ! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
+
+Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré l'éclair éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet !
+
+Sans cela, comment aurait-il pu faire apparaître la Porte du Vide avec sa seule essence de tonnerre, puis réussir à l'entrouvrir ?
+
+Alors qu'il pointait le doigt, les neuf éclairs accompagnateurs tournèrent rapidement autour de l'essence de tonnerre et entamèrent un combat contre le vent violet imminent !
+
+De loin, on pouvait voir que la faille de 10 000 pieds avait la forme d'un éclair. Les innombrables décharges électriques qui en sortaient lui donnaient l'apparence même d'une foudre divine.
+
+Les neuf éclairs accompagnateurs formèrent une tempête de tonnerre capable de secouer les cieux !
+
+Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme Joss s'inclinaient, elle se referma sur eux !
+
+La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Ancien !
+
+*Rumble, rumble, rumble, rumble !*
+
+La collision des deux tempêtes fit trembler la Planète de l'Empereur. Une aura destructrice se propagea telle une main gigantesque balayant la terre. La tortue géante poussa un cri lugubre et s'effondra soudainement !
+
+L'effondrement de la tortue provoqua la désintégration de l'arène, projetant les cultivateurs environnants qui crachèrent du sang sous le choc.
+
+La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume du Tonnerre Ancien commença à se distordre, comme sur le point de se dissiper.
+
+La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra face à l'essence de tonnerre de Wang Lin. Les âmes de la Flamme Joss environnantes furent affectées et commencèrent à se désagréger à grande échelle.
+
+C'était comme une main invisible balayant le ciel, annihilant toutes les âmes de la Flamme Joss.
+
+Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il agita la main et rugit : « Les âmes de la Flamme Joss de ce vieil homme sont infinies ! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume de la Flamme Joss, apparaissez à nouveau ! »
+
+Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume de la Flamme Joss du Maître Simo.
+
+Du coin de la bouche de Wang Lin coula un filet de sang. Son visage était pâle et il recula de plusieurs pas. Cependant, tout en reculant, il leva la tête et révéla une intention de combat monstrueuse !
+
+Il se força à cesser sa retraite et chargea en avant tel un météore. Il agita sa main droite et une feuille jaunie et flétrie apparut dans sa paume !
+
+À l'instant où la feuille se manifesta, les étoiles de l'Ancien Dieu de Wang Lin brillèrent entre ses sourcils. Il ouvrit la bouche et cracha du sang. C'était du sang d'Ancien Dieu !
+
+Le sang tomba sur la feuille flétrie, provoquant l'émission d'une lumière rouge. Wang Lin agita la main et la feuille rouge fonça vers le Maître Simo !
+
+Elle était extrêmement rapide et se rapprocha en un instant. Telle un vent violent, elle grandit instantanément pour atteindre 1 000, puis 10 000, puis 100 000 pieds de large !
+
+La Feuille Ancienne !
+
+L'un des trésors que Greed avait obtenus dans ce lieu mystérieux. Même avec le niveau de culture de Greed, lorsqu'il l'utilisait, il pouvait sceller le chemin de Wang Lin. Wang Lin ne pouvait ni la briser, ni l'éviter !
+
+Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir nourrie de son propre sang divin. Il utilisait également la méthode appropriée pour la contrôler ; sa puissance était donc bien plus redoutable que lorsqu'elle était entre les mains de Greed !
+
+Une seule feuille pour couvrir le ciel !
+
+La Feuille Ancienne survola instantanément le Maître Simo et se matérialisa aux côtés de son Royaume de Flamme Joss. Elle recouvrit la faille !
+
+« Scellez ! Scellez ! Scellez ! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume de la Flamme Joss du Maître Simo, elle libéra une force de scellement colossale !
+
+Sous la puissance de la Feuille Ancienne, le Royaume de la Flamme Joss trembla, et pas une seule âme ne put s'en échapper !
+
+Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume de la Flamme Joss d'un cultivateur du troisième pas !
+
+« Ceci... Quel genre de trésor est-ce là ?! »
+
+Non seulement le Maître Simo était stupéfait, mais les pupilles du vieil Oiseau Vermillon se rétractèrent également. Ses yeux étaient remplis d'incrédulité.
+
+« Ce petit gars possède un tel trésor ?! »
+
+Le visage de la Grand Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles pour sceller le Système Stellaire Antique. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système !
+
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume de la Flamme Joss du Maître Simo, il ne recula pas, mais chargea au contraire vers lui !
+
+Wang Lin arriva à moins de 1 000 pieds du Maître Simo et rugit : « Âme du démon ancien, sors ! » Un brouillard noir commença à apparaître et se répandit immédiatement.
+
+Il prit la forme d'une petite silhouette de la même taille que Wang Lin. C'était l'âme du démon ancien !
+
+Dès l'apparition de cette petite entité, elle poussa un rugissement strident vers le ciel. Une énergie démoniaque l'enveloppa et une lance éthérée apparut soudainement. Puis, la petite silhouette s'enroula autour de la lance et fonça sur le Maître Simo !
+
+Une lueur de froideur passa dans les yeux du Maître Simo, mais alors que son intention meurtrière montait, le Feu Éthéré en lui brûla une fois de plus. Il ignora le Feu Éthéré et fit un pas en avant. Puis, il agita sa main droite et une lumière violette brilla intensément.
+
+« Ce vieil homme a accompli de grands mérites pour le Souverain et s'est vu offrir le Dao Violet issu du Dao aux Sept Couleurs. C'est la source de la folie ; tant que votre trésor possédera un esprit, il deviendra fou sous l'effet de mon Dao Violet ! » La main droite du Maître Simo sembla saisir toute la pourpre du monde, puis il fit un geste brusque.
+
+Des grondements tonitruants retentirent et le brouillard violet se referma sur l'âme du démon ancien de Wang Lin !
+
+L'âme démoniaque manifesta une immense excitation et poussa un cri de joie. Avant même que le brouillard violet ne l'atteigne, elle se précipita vers lui. Elle ouvrit la bouche et aspira profondément.
+
+L'excitation dans ses yeux devint plus intense encore.
+
+Le démon ancien étant le plus puissant démon au monde, comment pourrait-il craindre la folie ? Plus il y avait de folie, plus la nature démoniaque s'affirmait. Après avoir dévoré une partie du brouillard violet, ses yeux devinrent rouges. Puis, il perça le brouillard pour foncer sur le Maître Simo !
