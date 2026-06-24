@@ -1,9 +1,9 @@
 ---
 n: 2054
-title: Troisième Épreuve, Deuxième Calamité
+title: Trois pertes, deux calamités
 book: 13
 bookTitle: Light of the coming end
-en: Chapter 2054 - Third Trial, Second Calamity
+en: Three Losses, Two Calamities
 slug: troisieme-epreuve-deuxieme-calamite
 ---
 Il n'existait que trois temples ancestraux dans tout le clan Ancient. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de la statue de chaque pays.

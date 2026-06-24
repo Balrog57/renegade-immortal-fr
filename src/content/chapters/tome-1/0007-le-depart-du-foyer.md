@@ -1,9 +1,9 @@
 ---
 n: 7
-title: Le départ du foyer
+title: La lettre laissée
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 7 - Leaving Home
+en: The Letter Left Behind
 slug: le-depart-du-foyer
 ---
 « C'est exact ! Quatrième frère, nous parlons pour toi parce que tu as cédé ta place au deuxième frère. Ce que Wang Zhuo a dit est vrai, ton fils est plus fort que Tie Zhu. Il se peut qu'il ait réellement été choisi par les immortels. » Le cinquième frère de Tie Zhu ajouta cela sur le côté.

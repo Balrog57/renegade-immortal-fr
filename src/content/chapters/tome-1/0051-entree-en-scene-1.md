@@ -1,9 +1,9 @@
 ---
 n: 51
-title: Entrée en scène (1)
+title: Quatorzième niveau de condensation du Qi ?
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 51 - Entering the Stage (1)
+en: Fourteenth Level of Qi Condensation?
 slug: entree-en-scene-1
 ---
 Pendant ce temps, il fit un pas en avant et apparut sur la scène. Il lança aux disciples de la Secte Heng Yue un regard arrogant et déclara : « Que tous les disciples internes de la Secte Heng Yue viennent d'un coup ! Moi, Zhou Peng, je vais vous affronter tous ! »

@@ -1,9 +1,9 @@
 ---
 n: 33
-title: Chapitre 33
+title: L'incantation
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 33 - Main Text
+en: The Incantation
 slug: chapitre-33
 ---
 Wang Lin n'avait aucun intérêt pour cette Pilule d'Établissement des Fondations. Voyant que son prix était déjà si élevé, il eut une pensée compatissante pour Wang Hao. Il semblait que ce dernier ne parviendrait pas à l'obtenir.

@@ -1,9 +1,9 @@
 ---
 n: 1530
-title: "L'arc de Li Quang !"
+title: L'arc de Li Guang
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1530 - Li Quang Bow!"
+en: Li Guang's Bow
 slug: larc-de-li-quang
 ---
 Chapitre 1530 - L'arc de Li Quang !

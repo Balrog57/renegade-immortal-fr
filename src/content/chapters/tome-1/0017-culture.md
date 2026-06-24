@@ -1,9 +1,9 @@
 ---
 n: 17
-title: Culture
+title: La voie des immortels
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 17 - Cultivation
+en: The Path of Immortals
 slug: culture
 ---
 Après avoir attendu un moment dans le jardin, l'Ancien Sun revint, le visage sombre et empreint de colère. Plus tôt, lorsqu'il avait discuté de cette affaire avec le patriarche, certains de ses frères de discipline s'étaient moqués de lui. Il pensa : « Attendez que je récupère toutes les gourdes et que je crée une pilule immortelle qui augmentera considérablement ma culture. Nous verrons bien qui rira alors. »

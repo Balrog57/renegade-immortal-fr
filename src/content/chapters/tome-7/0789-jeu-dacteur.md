@@ -1,9 +1,9 @@
 ---
 n: 789
-title: "Jeu d'acteur"
+title: Passer à l'action
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
-en: Chapter 789 - Acting
+en: Strike
 slug: jeu-dacteur
 ---
 À cet instant, Wang Lin était sous les feux de la rampe. Non seulement Shengong Hu, Zhan Konglie, Tang Yanfeng et les deux derniers cultivateurs du Yang Corporel le scrutaient, mais tous les cultivateurs des diverses familles avaient également les yeux rivés sur lui.

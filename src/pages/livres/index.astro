@@ -185,7 +185,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
       </div>
       <div class="book-modal-body">
         <p id="book-modal-summary" class="book-modal-summary"></p>
-        <a id="book-modal-link" class="book-modal-link" href="#">Lire ce tome →</a>
       </div>
     </div>
   </dialog>
@@ -203,7 +202,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
     const titleEl = document.getElementById('book-modal-title');
     const metaEl = document.getElementById('book-modal-meta');
     const summaryEl = document.getElementById('book-modal-summary');
-    const linkEl = document.getElementById('book-modal-link');
 
     grid.addEventListener('click', (e) => {
       const card = e.target.closest('.book-card');
@@ -227,7 +225,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
         : '';
 
       summaryEl.textContent = summary;
-      linkEl.setAttribute('href', `chapitres/tome-${book}/`);
 
       dialog.showModal();
       document.body.style.overflow = 'hidden';
@@ -445,16 +442,9 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 }
 .book-modal-body { font-family: 'Noto Serif', serif; }
 .book-modal-summary {
-  font-size: 14.5px; line-height: 1.8; color: var(--ink-2); margin: 0 0 24px;
+  font-size: 14.5px; line-height: 1.8; color: var(--ink-2); margin: 0;
   text-align: left;
 }
-.book-modal-link {
-  display: inline-block;
-  font-family: 'Cinzel', serif; font-size: 11px; letter-spacing: .15em;
-  text-transform: uppercase; color: var(--crimson-2); text-decoration: none;
-  padding: 10px 20px; border: 1px solid var(--crimson-dim); border-radius: var(--r-md);
-}
-.book-modal-link:hover { color: var(--gold); border-color: var(--gold-dim); text-decoration: none; }
 
 @media (max-width: 640px) {
   .book-modal-header { flex-direction: column; align-items: center; text-align: center; }

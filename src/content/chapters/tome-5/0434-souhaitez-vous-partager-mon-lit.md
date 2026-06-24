@@ -1,9 +1,9 @@
 ---
 n: 434
-title: Souhaitez-vous partager mon lit ?
+title: Le veux-tu ?
 book: 5
 bookTitle: Cultivation Planet Crystal
-en: Chapter 434 - Do you wish to lie with me
+en: Will You?
 slug: souhaitez-vous-partager-mon-lit
 ---
 Chapitre 434 - Souhaitez-vous partager mon lit ?

@@ -1,9 +1,9 @@
 ---
 n: 642
-title: La Bête Moustique aux Brumes Violettes
+title: La sagesse de Wang Lin
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 642 - Purple Mist Mosquito Beast
+en: Wang Lin's Wisdom
 slug: la-bete-moustique-aux-brumes-violettes
 ---
 Une brise légère faisait doucement onduler l'herbe au sol. Les vêtements de l'homme et de la femme oscillaient également au gré du vent.

@@ -1,9 +1,9 @@
 ---
 n: 1322
-title: Changement soudain
+title: Les flammes d'encens des disciples
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1322 - Sudden Change
+en: The Disciples' Incense Flames
 slug: changement-soudain
 ---
 Le temps passa. Une brise printanière soufflait sur la terre. Tout reprenait vie : l'herbe verdissait et les parfums embaumaient l'air, tandis que le ciel demeurait d'un bleu éternel.

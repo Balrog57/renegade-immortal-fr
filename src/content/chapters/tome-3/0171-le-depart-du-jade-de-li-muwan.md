@@ -1,9 +1,9 @@
 ---
 n: 171
-title: Le départ du jade de Li Muwan
+title: Le jade laissé par Li Muwan
 book: 3
 bookTitle: Famous in the Sea of Devils
-en: Chapter 171 - The Jade Li Muwan Left
+en: The Jade Slip Left by Li Muwan
 slug: le-depart-du-jade-de-li-muwan
 ---
 Il était évident qu'il ne pouvait l'éviter. S'il voulait sortir d'ici, il devait affronter cette épreuve.

@@ -1,9 +1,9 @@
 ---
 n: 1827
-title: "Trois mots !"
+title: Quatre mots !
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1827 - Three Words!"
+en: Four Words!
 slug: trois-mots
 ---
 Chapitre 1827 - Trois mots !

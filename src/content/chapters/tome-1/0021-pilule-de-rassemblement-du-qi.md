@@ -1,9 +1,9 @@
 ---
 n: 21
-title: Pilule de Rassemblement du Qi
+title: La saisie de l'esprit
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 21 - Qi Gathering Pill
+en: Seizing the Spirit
 slug: pilule-de-rassemblement-du-qi
 ---
 Le dernier homme était un jeune d'environ vingt ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux : « Frère apprenti Wang, tu as passé trois mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »

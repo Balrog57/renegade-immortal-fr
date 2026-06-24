@@ -1,9 +1,9 @@
 ---
 n: 24
-title: Culture
+title: L'entraînement
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 24 - Cultivation
+en: The Training
 slug: culture
 ---
 Après avoir récolté une grande quantité d'eau de source dans la montagne, Wang Lin commença à préparer de l'eau de source enrichie en énergie spirituelle. Lorsqu'il fut dix heures du soir, il verrouilla sa porte. Par mesure de précaution, il attacha une extrémité d'une corde à la porte et l'autre à son bras, afin de savoir instantanément si quelqu'un tentait de l'ouvrir.

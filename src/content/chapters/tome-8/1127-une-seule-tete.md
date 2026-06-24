@@ -1,9 +1,9 @@
 ---
 n: 1127
-title: Une seule tête
+title: La mort de l'avatar
 book: 8
 bookTitle: "Alliance's Secret"
-en: Chapter 1127 - One Head
+en: The Death of the Avatar
 slug: une-seule-tete
 ---
 Il chargea directement vers l'une des dix-huit têtes ; c'était celle de l'homme d'âge moyen qui était déterminée à tuer Wang Lin. L'énergie de massacre était si rapide qu'elle se referma sur sa cible en un instant.

@@ -1,9 +1,9 @@
 ---
 n: 149
-title: Formation du Noyau (5)
+title: Formation du Noyau (Finale)
 book: 3
 bookTitle: Famous in the Sea of Devils
-en: Chapter 149 - Core Formation (5)
+en: Core Formation (Finale)
 slug: formation-du-noyau-5
 ---
 Wang Lin cultivait sans relâche. De temps à autre, il jetait un coup d'œil vers l'extérieur et son regard se faisait plus glacial. L'arôme des remèdes flottait dans l'air et, après en avoir respiré les effluves, Wang Lin ouvrit calmement son sac de rangement pour commencer à organiser son contenu.

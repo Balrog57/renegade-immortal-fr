@@ -1,9 +1,9 @@
 ---
 n: 1740
-title: Armure aux doubles elements
+title: Frère aîné Ma !
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: Chapter 1740 - Double Elements Armor
+en: Senior Brother Ma!
 slug: armure-aux-doubles-elements
 ---
 Les paroles du vieil homme du troisième étage résonnèrent à travers le monde. Elles atteignirent les oreilles de Wang Lin et furent également entendues par Yun Yifeng, de la Secte Gui Yi. Ce dernier fronça les sourcils.

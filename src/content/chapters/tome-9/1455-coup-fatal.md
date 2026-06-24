@@ -1,9 +1,9 @@
 ---
 n: 1455
-title: Coup fatal
+title: La main géante réapparaît !
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1455 - Killing Move!"
+en: The Giant Hand Returns!
 slug: coup-fatal
 ---
 Il avait utilisé l'essence sonore pour briser la Porte du Vide et atteindre la troisième étape. Puis, il avait raffiné la Mer Étoilée Ancienne et avait bénéficié d'une immense chance qui permit à son essence aquatique de se concrétiser. Bien qu'elle n'ait pas atteint la perfection, la fusion des deux essences était suffisante pour lui permettre de secouer les cieux ! C'était l'un des cinq maîtres du Système Stellaire Ancien, le Maître Dao Miao Yin !

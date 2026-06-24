@@ -1,9 +1,9 @@
 ---
 n: 823
-title: Yao Changdong
+title: Yao Changkong
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
-en: Chapter 823 - Yao Changdong
+en: Yao Changkong
 slug: yao-changdong
 ---
 Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire qu'il le dépassait légèrement.

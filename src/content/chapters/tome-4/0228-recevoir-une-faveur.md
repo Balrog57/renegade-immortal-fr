@@ -1,9 +1,9 @@
 ---
 n: 228
-title: Recevoir une faveur
+title: La capture d'une bête de compagnie
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 228 - Receiving Favor
+en: Capturing a Spirit Pet
 slug: recevoir-une-faveur
 ---
 Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit : « Ces deux juniors sont issus du Palais de l'Enchantement Magique. Frère Qiu devrait redoubler de prudence dorénavant. »

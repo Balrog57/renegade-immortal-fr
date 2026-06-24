@@ -1,9 +1,9 @@
 ---
 n: 75
-title: "Rencontre avec l'ennemi"
+title: Retrouvailles avec un vieil ami
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 75 - Encountering the Enemy Again
+en: Reunited with an Old Friend
 slug: rencontre-avec-lennemi
 ---
 Liu San et son groupe étaient stupéfaits. Ils n'avaient jamais vu cet homme d'âge mûr agir de la sorte. Il recula discrètement de quelques pas pour s'éloigner de Wang Lin et demanda : « Monsieur, qu'en est-il de ce jeune frère ? Va-t-il être entraîné dans cette catastrophe sanglante à cause de nous ? »

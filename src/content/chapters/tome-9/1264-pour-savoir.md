@@ -1,9 +1,9 @@
 ---
 n: 1264
-title: Pour savoir
+title: Un changement saisissant !
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1264 - To Know
+en: A Startling Change!
 slug: pour-savoir
 ---
 Les regards de Wang Lin et de Mu Bingmei se croisèrent par l'ouverture de la porte du patio. Cette porte était comme un gouffre infranchissable, et les deux restèrent silencieux sous la lumière lunaire.
