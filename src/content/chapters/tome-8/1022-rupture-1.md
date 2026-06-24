@@ -123,3 +123,129 @@ C'était comme si toutes les flammes s'étaient précipitées dans son corps, po
 Ses yeux brillèrent intensément et son énergie originelle circula frénétiquement pour absorber la chaleur. Rapidement, la température de son énergie originelle atteignit un niveau prodigieux !
 
 Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante soit-elle. C'était là le véritable défi de l'éveil de l'Oiseau Vermillon ! Au fil des millénaires, de nombreux éveils avaient eu lieu au sein des Quatre Sectes Divines. Cependant, au moment crucial, la majorité de ceux qui tentaient l'expérience ne supportaient pas la chaleur et finissaient en cendres.
+
+Au sein du Secte des Quatre Divinités, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de ce secte !
+
+« Des Quatre Divinités qui s'éveillent : la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et l'Oiseau Vermillon est le plus difficile ! »
+
+Au sein du Secte des Quatre Divinités, les éveils de la Tortue Noire n'étaient pas rares, car leur processus présentait le risque le plus faible. Ceux qui éveillaient le Tigre Blanc étaient souvent d'une férocité extrême ; ils étaient ceux qui avaient massacré d'innombrables êtres !
+
+Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure !
+
+Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à sa troisième Affliction Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement !
+
+L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités ; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux !
+
+Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de l'Oiseau Vermillon ! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus !
+
+Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire du Secte Divin de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode !
+
+L'éveil de Wang Lin était classé comme un éveil par force externe. À mesure que les flammes s'accumulaient, la chaleur devenait plus intense encore. S'il n'avait pas eu son corps de Dieu Ancien, il serait déjà réduit en poussière !
+
+Personne ne s'était jamais éveillé par une force externe dans toute l'histoire du Secte Divin de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps !
+
+Wang Lin endurait actuellement cette chaleur incroyable grâce à son corps de Dieu Ancien Royal à 5 étoiles. Lorsque sa peau se fissurait, une chair nouvelle la remplaçait instantanément. Ce cycle se poursuivait jusqu'à ce que le corps de Dieu Ancien de Wang Lin s'adapte progressivement à cette température extrême !
+
+Les flammes envahirent la zone, et toutes les lueurs du royaume convergèrent vers elles. Tandis que l'Oiseau Vermillon absorbait les flammes, il finit par former une gigantesque sphère de feu !
+
+Au moment où la boule de feu prit forme, elle enveloppa Wang Lin et l'Oiseau Vermillon.
+
+À cet instant, l'Oiseau Vermillon poussa un nouveau cri, et son corps rouge jaillit des sourcils de Wang Lin pour s'enrouler autour de lui. Bientôt, il se mua en un tatouage d'un réalisme saisissant qui se propagea sur le torse de Wang Lin !
+
+La peau de Wang Lin était alors couverte de craquelures. Mariée au tatouage rouge de l'Oiseau Vermillon, son apparence était d'une beauté inattendue ! Particulièrement ses yeux, qui brillaient comme des étoiles !
+
+Cependant, nul n'était destiné à contempler ce spectacle. La sphère de feu dévora rapidement Wang Lin et grandit encore.
+
+Bientôt, une aura destructrice apparut ; à mesure que les flammes s'accumulaient, la boule de feu devenait de plus en plus immense !
+
+Il était difficile de décrire ce qui se produisait. La mer de flammes s'élevait vers la sphère céleste. Si l'on observait la scène d'une hauteur suffisante, on aurait l'impression que la mer de flammes était en train de rétrécir !
+
+Cette mer de feu infinie se contractait rapidement autour de la boule de feu qui en était le centre. À mesure que davantage de flammes pénétraient dans la sphère, la vitesse de contraction atteignit un paroxysme.
+
+Une fois la mer de flammes épuisée, la terre blanche semblable à un miroir fut exposée !
+
+La boule de feu grandissait sans cesse jusqu'à atteindre le ciel ! Le feu du royaume diminua, car presque toutes les flammes de ce plan avaient été absorbées par la sphère !
+
+À cet instant, il ne restait plus aucune flamme à part celle de la sphère. Les flammes infinies invoquées par le « Brûler le Ciel » de Ming Hai se trouvaient toutes à l'intérieur de la boule de feu !
+
+Au même moment, la fumée noire qui recouvrait le ciel s'agglutina autour de la sphère. Si quiconque avait vu cette scène, son esprit en aurait été ébranlé !
+
+Dès que la fumée entoura la boule de feu, une quantité colossale d'énergie démoniaque apparut dans les cieux. Elle se transforma en un brouillard noir et s'élança.
+
+Tandis que l'énergie démoniaque descendait, elle se rassembla pour former une ombre démoniaque gigantesque. Immense, dotée d'yeux assoiffés de sang, elle fonça droit sur la boule de feu !
+
+Cependant, elle ressentit immédiatement la chaleur émanant de la sphère. Elle s'interrompit et recula légèrement, puis fixa la boule de feu avec une intention meurtrière encore plus intense dans le regard.
+
+Wang Lin gardait les yeux clos au cœur de l'immense sphère de feu. Le tatouage de l'Oiseau Vermillon sur son torse brillait d'un éclat vif tandis que des quantités massives de flammes étaient absorbées et dévorées par le corps de Wang Lin.
+
+Cela renforçait la constitution de Wang Lin et portait la température à un nouveau sommet. Cela modifia même l'énergie originelle de Wang Lin, laquelle se chargea d'une chaleur terrifiante.
+
+Soudain, les yeux clos de Wang Lin s'ouvrirent brusquement. À l'instant même, toutes les fissures sur sa peau volèrent en éclats, révélant une peau légèrement rouge !
+
+Une tempête inimaginable se déchaîna lorsque Wang Lin ouvrit les yeux ! Le tatouage de l'Oiseau Vermillon s'arracha de son corps et se mit à graviter rapidement autour de lui.
+
+La gigantesque sphère qui entourait Wang Lin rétrécit à une vitesse prodigieuse pour entrer dans son corps. L'ombre démoniaque réagit aussitôt ; l'énergie démoniaque emplit le monde alors qu'elle poursuivait la sphère en pleine contraction !
+
+En un temps record, la boule de feu se rétracta brusquement dans un grondement assourdissant, avant de pénétrer intégralement dans le corps de Wang Lin !
+
+À cet instant, il ne restait plus la moindre trace de flamme dans le royaume où se trouvait Wang Lin !
+
+La silhouette de Wang Lin réapparut une fois la dernière parcelle de flamme absorbée ! Sa peau rouge, l'Oiseau Vermillon et ses yeux ardents et éclatants lui donnaient l'apparence même de l'Empereur Divin de l'Oiseau Vermillon !
+
+Dès que les flammes se dissipèrent, l'ombre démoniaque s'approcha. Avant même qu'elle ne puisse l'atteindre, une énergie démoniaque infinie se mua en un brouillard noir, cherchant à encercler Wang Lin pour le déchirer en morceaux !
+
+Pourtant, alors que l'ombre démoniaque convergeait, des flammes jaillirent des yeux de Wang Lin. Suite à cela, un feu terrifiant, capable de dévaster le monde, explosa de son corps !
+
+Wang Lin avait dévoré trop de flammes. Les flammes qui jaillissaient de lui étaient les résidus après que son corps eut absorbé ce qu'il pouvait. S'il les gardait en lui, elles finiraient par le blesser ; il n'avait d'autre choix que de les libérer !
+
+La chaleur de cette mer de feu différait du « Brûler le Ciel ». Non seulement elle possédait la puissance de cette technique, mais elle contenait également une étincelle de la Flamme Divine de l'Oiseau Vermillon !
+
+Elle jaillit et s'étendit rapidement en un cercle parfait. La mer de flammes était si vaste qu'elle couvrit le ciel et la terre. En se propageant, l'ombre démoniaque envoyée par l'homme caché dans les brumes noires percuta de front cet océan de feu !
+
+Un cri de douleur s'échappa de l'ombre démoniaque. La peur envahit ses yeux et elle recula précipitamment !
+
+Cependant, il était trop tard !
+
+Dès son retrait, la mer de flammes se projeta comme une vague colérique pour submerger l'ombre démoniaque. Le rugissement de cette ombre résonna dans les flammes avant de se dissiper rapidement. Lorsqu'il ne resta qu'un minuscule fragment, celui-ci parvint enfin à s'extirper de la mer de feu et tenta de fuir !
+
+Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue bien plus puissante que le « Brûler le Ciel » !
+
+À cet instant, elle se propagea dans toutes les directions. Ce qu'elle consumait n'était pas seulement le royaume de Wang Lin, mais tous les royaumes contenus dans cette bouteille !
+
+Alors que la mer de feu faisait rage, des fissures apparurent dans le ciel avant de s'effondrer soudainement ! Cet effondrement ne se limita pas à ce seul royaume ; à mesure que les flammes s'étendaient, c'était comme si elles écaillaient les couches du monde. Chaque lieu traversé était désintégré !
+
+Après cet effondrement, un autre royaume de l'univers de la bouteille fut révélé !
+
+Ce royaume était rempli de sable noir, mais une masse de flammes s'y précipita. Le feu dévora tout, et ce royaume commença également à s'effondrer !
+
+Celui-ci se désintégra à son tour !
+
+*Rumble, rumble, rumble, rumble !*
+
+Des grondements titanesques résonnèrent alors que les royaumes de la bouteille s'effondraient les uns après les autres. Dès qu'un royaume cédait, les flammes s'engouffraient dans le suivant, provoquant sa chute !
+
+L'ombre démoniaque résiduelle parvint à échapper aux flammes d'un royaume, mais elle ne put survivre à travers les 99 royaumes. Après l'effondrement de treize d'entre eux, l'ombre laissa échapper un ultime cri misérable avant d'être éteinte.
+
+Pourtant, cet effondrement ne faisait que commencer ! À mesure que les flammes continuaient leur progression, c'était comme une tempête dévastatrice : les royaumes s'écroulaient les uns après les autres !
+
+À ce moment-là, un autre royaume s'effondra, et le rugissement de colère de Situ Nan retentit de l'intérieur !
+
+« Quel maudit bâtard ose interrompre la culture de ce vieillard ?! » À peine eut-il crié qu'il laissa échapper un hurlement et s'enfuit de la mer de flammes.
+
+« Bon sang, quel genre de feu est-ce là !?! »
+
+Au moment où Situ Nan cria, le royaume dans lequel il se trouvait s'effondra, révélant le suivant !
+
+Ling Tianhou fixa le ciel qui semblait avoir été déchiré par des mains invisibles, tandis que les flammes infinies descendaient des cieux. Il sentit son cuir chevelu s'engourdir et esquiva la mer de feu sans la moindre hésitation !
+
+La mer de flammes pénétrait les mondes telle une force irrésistible, écrasant toutes les frontières et tous les remparts. Cette puissance continuait de jaillir du point où se trouvait Wang Lin, et le fracas des royaumes se brisant dans la bouteille était apocalyptique !
+
+La silhouette de l'All-Seer apparut dans le ciel effondré. Il observa tous ceux qui étaient devant lui en réfléchissant silencieusement. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
+
+Ling Tianhou, Situ Nan et l'All-Seer n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
+
+Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Big Head, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître Void !
+
+Cependant, cet effondrement ne cessait pas ; il continuait de se propager. Cette destruction était infusée du pouvoir de chaque royaume, créant une force que nul ne pouvait stopper. Elle devenait de plus en plus puissante en chargeant vers le dernier royaume du monde de la bouteille !
+
+Une fois ce royaume détruit, ils pourraient enfin quitter cette bouteille de jade blanc !

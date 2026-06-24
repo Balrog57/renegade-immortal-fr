@@ -5,7 +5,7 @@ type: personnage
 categories: ["Novel", "Reality", "Author"]
 image: "/renegade-immortal-fr/wiki/images/Er Gen's Xianxia World.webp"
 url: "https://xian-ni.fandom.com/wiki/Er_Gen"
-
+sections: ["{\"heading\":\"Er Gen's Xianxia World\",\"body\":\"\\\"...there may be some small mistakes in the translation... The video contains some spoilers regarding the end of some of his novels. Major spoilers are left untranslated, some minor ones remain. Be warned, if you speak Chinese, you might want to turn the volume down during those parts if you wish to avoid the spoilers.\\\"\"}"]
 ---
 ![Er Gen](/renegade-immortal-fr/wiki/images/Er Gen's Xianxia World.webp)
 

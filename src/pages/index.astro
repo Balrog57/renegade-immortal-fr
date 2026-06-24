@@ -1,13 +1,9 @@
 ---
 import Base from '~/layouts/Base.astro';
-import { getCollection } from 'astro:content';
 import { getChaptersSorted, chapterSlug } from '~/lib/data';
 
 const base = import.meta.env.BASE_URL;
 const chapters = await getChaptersSorted();
-const bookEntries = await getCollection('books');
-const chapterCount = chapters.length;
-const bookCount = bookEntries.length;
 ---
 
 <Base title="Accueil" active="home">
@@ -27,11 +23,11 @@ const bookCount = bookEntries.length;
 
   <section class="stats">
     <div class="stat">
-      <span class="stat-num">{chapterCount.toLocaleString('fr')}</span>
+      <span class="stat-num">2 088</span>
       <span class="stat-label">Chapitres</span>
     </div>
     <div class="stat">
-      <span class="stat-num">{bookCount}</span>
+      <span class="stat-num">13</span>
       <span class="stat-label">Tomes</span>
     </div>
     <div class="stat">

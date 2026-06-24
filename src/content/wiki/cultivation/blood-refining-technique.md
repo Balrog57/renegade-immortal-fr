@@ -5,7 +5,7 @@ type: cultivation
 categories: ["Techniques", "Demonic Techniques"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Blood_Refining_Technique"
-
+sections: ["{\"heading\":\"Uses\",\"body\":\"The technique is considerably more effective than refining on one's own as shown when Wang Lin used it to refine a Core Formation\\n\\nTreasure that was infinitely close to Nascent Soul under the guidance of Situ Nan . However it comes with a few drawbacks. The user will feel much more significant levels of harm whenever the weapon is damaged and furthermore the weapon will forever release a blood-like smell, which will only get worse as it claims more lives.\"}"]
 ---
 ![Blood Refining Technique](/renegade-immortal-fr/wiki/images/O.webp)
 

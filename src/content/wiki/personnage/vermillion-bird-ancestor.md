@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Celestial", "Alive", "Vermillon Bird Divine Sect", "Four Divine Sect", "Fallen Land", "Outer Realm"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Vermillion_Bird_Ancestor"
-
+sections: ["{\"heading\":\"Background\",\"body\":\"In the past, the Third Generation Vermillion Bird Divine Emperor betrayed the Vermillion Bird Divine Sect, stole a lot of their treasures, and sealed the three Vermillion Birds into the Fallen Land such that the First Vermillion Bird cannot leave the Heaven Test, the Second Vermillion Bird cannot leave the Great Emperor Planet, and the Fourth Vermillion Bird cannot leave the Earth Test.\\n\\nIt is speculated by the Vermillion Bird Ancestor that he was sent by the Sovereign Council who then used the treasures he stole to help create the Fire Sparrow Clan .\"}"]
 ---
 ![Vermillion Bird Ancestor](/renegade-immortal-fr/wiki/images/O.webp)
 

@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Human", "Teng Clan", "Nascent Soul", "Planet Suzaku"]
 image: /renegade-immortal-fr/wiki/images/Eng.webp
 url: "https://xian-ni.fandom.com/wiki/Teng_Xingsen"
-
+sections: ["{\"heading\":\"Background\",\"body\":\"He was the family head of the Teng Clan and reached the Nascent Soul stage in the last 500 years.\\n\\nHe was also Wu Feng Valley’s minister, so his position was very high. Because the Teng Family had an ancestor like him, no one dared to mess with them, even though they weren’t a big sect.\"}"]
 ---
 ![Teng Xingsen](/renegade-immortal-fr/wiki/images/Eng.webp)
 

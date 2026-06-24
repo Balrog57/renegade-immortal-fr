@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Human", "Deceased", "War God Shrine Sect", "Planet Suzaku", "Brilliant Void Star System", "Sealed Realm"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Chen_Chong"
-
+sections: ["{\"heading\":\"Background\",\"body\":\"Carved 10% of the Divine Path from memory.\"}"]
 ---
 ![Chen Chong](/renegade-immortal-fr/wiki/images/O.webp)
 

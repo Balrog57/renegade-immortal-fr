@@ -5,7 +5,7 @@ type: lieu
 categories: ["Locations", "Alliance Star System", "Realms", "Sealed Realm", "Wang Lin's Cave World", "Planet Suzaku"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Foreign_Battleground"
-
+sections: ["{\"heading\":\"Warning Spoiler\",\"body\":\"The Foreign Battleground is a piece of the Cave World's Core's Door, a planet are created on it to stabilize the space after it was destroyed.\"}", "{\"heading\":\"Background\",\"body\":\"The Foreign Battleground was originally a fragment of a door that led from the cave world to the Immortal Astral Continent , it was however destroyed and one of its fragments became its own world.\\n\\nPlanet Suzaku itself wouldn't exist without these Battleground.\\n\\nAs time passed Cultivators started using the dimension to fight and gather resources.\\n\\nThe battleground is split into three known layers:\\n\\nThe First Layer is shown to be a place where Cultivators compete and kill each othe for resources, it was regularly maintained by many sects.\\n\\nThe Second Layer is shown to be filled with corpses and Soul Devourers , the latter of whom are known to divide up their territory.\\n\\nThe Third Layer is infinity larger than the second, which itself is much larger than the First Layer. It is shown to be filled with the corpses of Celestial Clan members.\"}"]
 ---
 ![Foreign Battleground](/renegade-immortal-fr/wiki/images/O.webp)
 

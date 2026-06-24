@@ -5,7 +5,7 @@ type: lieu
 categories: ["Locations", "Cities", "Planet Tian Yun", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Ghost_Eye_City"
-
+sections: ["{\"heading\":\"History\",\"body\":\"Three Chen Brothers took the security job of securing the Ghost Eye City during the period when its auction took place.\\n\\nIt was most likely destroyed due to the battle between Wang Lin and All-Seer and grey-robed All-Seer and Ling Tianhou that took place here.\"}"]
 ---
 ![Ghost Eye City](/renegade-immortal-fr/wiki/images/O.webp)
 

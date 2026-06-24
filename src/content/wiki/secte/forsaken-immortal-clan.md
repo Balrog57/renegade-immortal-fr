@@ -5,7 +5,7 @@ type: secte
 categories: ["Clans", "Organisations", "Alliance Star System", "Planet Suzaku", "Wang Lin's Cave World", "Sealed Realm"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Forsaken_Immortal_Clan"
-
+sections: ["{\"heading\":\"Cultivation Ranking\",\"body\":\"seven and eight-leaf shamans were similar to Soul Transformation cultivators, while nine-leaf shamans were similar to early stage Ascendant cultivators.\\n\\nPower of the clan members come from black tattoos on their bodies. The more tattoos they have, the stronger they are. Members are split into two types: shamans and warriors.\"}", "{\"heading\":\"Leaf (comparable to  Corporeal Yang )\",\"body\":\"At a certain point the leaf mark on their foreheads allow them to reach the 2nd Step and beyond without possessing a Cultivator's Domain. This trait is in common with most other Outer Realm Cultivators.\"}"]
 ---
 ![Forsaken Immortal Clan](/renegade-immortal-fr/wiki/images/O.webp)
 

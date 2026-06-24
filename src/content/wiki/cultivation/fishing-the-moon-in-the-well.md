@@ -5,7 +5,7 @@ type: cultivation
 categories: ["Techniques", "Spells"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Fishing_the_Moon_in_the_Well"
-
+sections: ["{\"heading\":\"Other novels\",\"body\":\"This technique also appears in other novel of Er Gen - Pursuit of the Truth .\"}"]
 ---
 ![Fishing the Moon in the Well](/renegade-immortal-fr/wiki/images/O.webp)
 

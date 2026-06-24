@@ -5,7 +5,7 @@ type: secte
 categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council", "Ancient Primordial Star System", "Outer Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Fire_Sparrow_Clan"
-
+sections: ["{\"heading\":\"Background\",\"body\":\"In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.\\n\\nTheir origin is from the Vermillion Bird Divine Sect.\"}", "{\"heading\":\"History\",\"body\":\"A member of the Fire Sparrow Clan entered the Seven-Colored Realm during the time Wang Lin was there.\\n\\nHe attempted to steal Wang Lin's Vermillion Bird mark but was instead killed by him. Wang Lin then took away the Fire Sparrow Clan's ability to manipulate fire. Although this did not take away their entire abilities, it still significantly weakened the clan as three of their nine Black Vermillion Bird statues collapsed while the rest were severely damaged.\\n\\nWang Lin also absorbed the Fire Sparrow Clan member's Flame mark which, along with the feather of Vermillion Bird he got from Wu Qing , allowed him to achieve the unprecedented third-awakening of his Vermillion Bird.\"}"]
 ---
 ![Fire Sparrow Clan](/renegade-immortal-fr/wiki/images/O.webp)
 

@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "East Demon Spirit Sea", "Sky Demon Country", "Soul Transformation"]
 image: /renegade-immortal-fr/wiki/images/Di Ya.webp
 url: "https://xian-ni.fandom.com/wiki/Di_Ya"
-
+sections: ["{\"heading\":\"Description\",\"body\":\"He was wearing an earth-colored suit of armor.\"}"]
 ---
 ![Ao Di](/renegade-immortal-fr/wiki/images/Di Ya.webp)
 

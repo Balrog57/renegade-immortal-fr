@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Human", "Soul Formation", "Planet Suzaku"]
 image: /renegade-immortal-fr/wiki/images/Lin Yi.webp
 url: "https://xian-ni.fandom.com/wiki/Lin_Yi"
-
+sections: ["{\"heading\":\"Soul formation cultivator\",\"body\":\"almost killed by wang lin with heavenly tribulation\"}"]
 ---
 ![Lin Yi](/renegade-immortal-fr/wiki/images/Lin Yi.webp)
 

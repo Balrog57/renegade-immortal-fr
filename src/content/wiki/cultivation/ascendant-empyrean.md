@@ -4,7 +4,7 @@ title: Ascendant Empyrean
 type: cultivation
 categories: ["Cultivation", "Third Step"]
 url: "https://xian-ni.fandom.com/wiki/Ascendant_Empyrean"
-
+sections: ["{\"heading\":\"Notable Members\",\"body\":\"Wang Lin , strongest Ascendant Empyrean who passed 17 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nWang Lin passed the 5th-17th palaces consecutively.\\n\\nMing Dao , former strongest Ascendant Empyrean who passed 16 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nMing Dao passed the 10th, 11th, and 12th palaces consecutively.\\n\\nHe is a subordinate of the Celestial Emperor .\\n\\nCai Wei, Ascendant Empyrean who passed 14 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nCai Wei passed the 10th and 11th palaces consecutively.\\n\\nLuo Yunhai , Great Soul Sect 's Ninth Ancestor (Deceased).\\n\\nSnow Rain, Ascendant Empyrean who passed 10 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nDao Wheel, Ascendant Empyrean who passed 10 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nMeng Shuang, Ascendant Empyrean who passed 10 of the 19 palaces in the Ascendant Empyrean Trial.\\n\\nTiny Child, Ascendant Empyrean who passed 11 of the 19 palaces in the Ascendant Empyrean Trial.\"}"]
 ---
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Ascendant_Empyrean) (CC BY-SA)
 

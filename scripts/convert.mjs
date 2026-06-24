@@ -54,12 +54,11 @@ function yamlScalar(v) {
 }
 
 // Préserve les valeurs "natives" (chaînes, nombres) dans les tableaux.
+// Utilise toujours le format flow [item, item] — valide en YAML,
+// contrairement à l'ancien mélange [ + - qui produisait du YAML cassé.
 function yamlList(arr) {
   if (!Array.isArray(arr) || arr.length === 0) return '[]';
-  if (arr.every(x => typeof x !== 'string' || !/[:#\[\]{}&'*!|>"'%@`\n]/.test(x))) {
-    return '[' + arr.map(x => JSON.stringify(String(x))).join(', ') + ']';
-  }
-  return '[\n' + arr.map(x => '  - ' + JSON.stringify(String(x))).join('\n') + '\n]';
+  return '[' + arr.map(x => JSON.stringify(String(x))).join(', ') + ']';
 }
 
 function frontmatter(obj) {

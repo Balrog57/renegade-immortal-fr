@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Human", "Deceased", "Antagonistic", "Nirvana Scryer", "Yao Family", "Sealed Realm"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Yao_Changdong"
-
+sections: ["{\"heading\":\"Appearance\",\"body\":\"Yao Changdong is usually dressed in a pristine white robe.\"}"]
 ---
 ![Yao Changdong](/renegade-immortal-fr/wiki/images/O.webp)
 

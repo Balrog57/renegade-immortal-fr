@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Male", "Ascendant"]
 image: /renegade-immortal-fr/wiki/images/Eng.webp
 url: "https://xian-ni.fandom.com/wiki/Huan_Feng_Shen"
-
+sections: ["{\"heading\":\"History\",\"body\":\"Category:Characters Category:Male Category:Ascendant\"}"]
 ---
 ![Huan Feng Shen](/renegade-immortal-fr/wiki/images/Eng.webp)
 

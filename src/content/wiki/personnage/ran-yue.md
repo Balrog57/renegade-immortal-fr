@@ -5,7 +5,7 @@ type: personnage
 categories: ["Characters", "Female", "Soul_Transformation"]
 image: /renegade-immortal-fr/wiki/images/Ran Yue.webp
 url: "https://xian-ni.fandom.com/wiki/Ran_Yue"
-
+sections: ["{\"heading\":\"Appearance\",\"body\":\"The woman looked like she was in her twenties. Although she was beautiful, there was a hint of coldness coming from her. However, instead of pride she gave off a lady-like atmosphere. Category:Characters Category:Female Category:Soul Transformation\"}"]
 ---
 ![Ran Yue](/renegade-immortal-fr/wiki/images/Ran Yue.webp)
 

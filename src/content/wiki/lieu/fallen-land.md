@@ -4,7 +4,7 @@ title: Fallen Land
 type: lieu
 categories: ["Locations", "Outer Realm", "Vermillon Bird Divine Sect"]
 url: "https://xian-ni.fandom.com/wiki/Fallen_Land"
-
+sections: ["{\"heading\":\"Great Emperor and  Vermillon Bird Divine Sect\",\"body\":\"The Great Emperor who rules over this region in reality is the First Generation Vermilion Bird Divine Emperor. He cares nothing for the Fallen Land itself.\\n\\nThere are also three Young Emperors in the Fallen Land. These are the Second Generation Vermilion Bird Divine Emperor, the Fourth Generation Vermilion Bird Divine Emperor and the Sixth Generation Vermilion Bird Divine Emperor, Wang Lin .\"}"]
 ---
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Fallen_Land) (CC BY-SA)
 

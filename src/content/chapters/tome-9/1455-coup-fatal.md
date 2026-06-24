@@ -1,4 +1,114 @@
-﻿Chapitre 1455 - L'Apparition de la Main Géante
+---
+n: 1455
+title: Coup fatal
+book: 9
+bookTitle: Peak of the Cloud Sea
+en: "Chapter 1455 - Killing Move!"
+slug: coup-fatal
+---
+Il avait utilisé l'essence sonore pour briser la Porte du Vide et atteindre la troisième étape. Puis, il avait raffiné la Mer Étoilée Ancienne et avait bénéficié d'une immense chance qui permit à son essence aquatique de se concrétiser. Bien qu'elle n'ait pas atteint la perfection, la fusion des deux essences était suffisante pour lui permettre de secouer les cieux ! C'était l'un des cinq maîtres du Système Stellaire Ancien, le Maître Dao Miao Yin !
+
+À cet instant, la plupart des écailles violettes sur son corps s'étaient effondrées et il était trempé de sang. Son expression était extrêmement hideuse et il laissa échapper un cri assourdissant tout en battant en retraite.
+
+C'était pour lui un moment de vie ou de mort !
+
+« Vieux Poison de la Grande Désolation, ton serment est entre mes mains. Je veux voir comment tu comptes gérer le contrecoup de la Flamme Joss !! » Miao Yin agita la main et sortit la rune formée par le serment de la Grande Désolation.
+
+Tenant la rune, le Maître Dao Miao Yin l'écrasa, la transformant en une pluie d'étincelles lumineuses.
+
+Le visage de la Grande Désolation pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit : « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux ; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme ? Une simple bouchée de sang suffit ! »
+
+Au moment où la Grande Désolation cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
+
+Dans l'Ancienne Tombe, la Grande Désolation agita la main et l'énorme empreinte de paume chargea le Maître Dao Miao Yin. À cet instant, les cinq doigts changèrent soudainement de forme.
+
+L'index se transforma en un centipède noir aux longues moustaches. Son corps se tordait de manière extrêmement hideuse. Une fois apparu, il laissa échapper un rugissement.
+
+Les quatre autres doigts scintillèrent simultanément pour se transformer en un serpent noir à corne, une immense araignée noire et une queue de scorpion massive semblant capable de briser le vide.
+
+Le pouce devint un crapaud à l'apparence terrifiante, dont le dos était couvert de protubérances exsudant un poison inimaginable.
+
+Cinq poisons distincts jaillirent vers le Maître Dao Miao Yin, la Grande Désolation se tenant au centre. Sa main forma un sceau et il cracha une bouchée de venin. Cependant, celle-ci ne fut pas projetée vers l'ennemi, mais retourna frapper le visage de la Grande Désolation ! Son apparence physique commença soudainement à changer !
+
+Son visage devint jaune et noir, comme s'il pourrissait, dégageant une odeur fétide. Ses traits bougèrent étrangement avant de reprendre l'apparence de son corps original !
+
+Son visage était couvert de cicatrices et trois aiguilles transperçaient ses lèvres. Sous sa chevelure ébouriffée, ses yeux projetaient un regard d'une froideur infinie !
+
+« Il y a 40 000 ans, ce vieil homme a raffiné les trois Grands Célestes de la Désolation en aiguilles pour sceller mes lèvres. Afin de vous tuer aujourd'hui, je vais vous faire comprendre pourquoi je devais les garder scellées ! Trois Célestes, libérez-vous ! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
+
+Elles se transformèrent en trois rayons de lumière noire fonçant vers le Maître Dao Miao Yin !
+
+Alors que le Maître Dao Miao Yin reculait, il agita la main et les grondements dans l'air s'intensifièrent. En quelques instants seulement, ce son supplanta tout le reste au monde.
+
+Un océan violet apparut également devant lui, accompagné du fracas des vagues !
+
+La fusion de l'essence sonore et aquatique sous la forme d'un océan engendra le rugissement des mers, la voix de l'océan céleste ! Le son fut amplifié des milliers de fois jusqu'à devenir assez puissant pour briser les cieux. Ce bruit fit s'effondrer le sceau qui retenait cette terre !
+
+Même les quelque cent cultivateurs au sol ne purent l'éviter. Tandis que l'océan rugissait, ils poussèrent des cris déchirants alors que leurs corps s'effondraient un à un.
+
+La terre scellée se désintégra et s'effondra instantanément. De vastes quantités de brouillard affluèrent pour fusionner avec l'océan.
+
+Wang Lin réagit très vite. Dès que le Maître Dao Miao Yin utilisa son sort, il rassembla tous les insectes moustiques. Il avança ensuite pour lancer une attaque en tenaille sur le Maître Dao Miao Yin aux côtés de la Grande Désolation !
+
+À cet instant, il chargea Miao Yin tandis que des éclats de lumière scintillaient autour de lui pour contrer les ondes sonores. Le tonnerre et le feu dans ses yeux brillaient pour compenser la puissance du rugissement océanique.
+
+« Monde Océanique ! Ouvrez-vous ! » rugit Miao Yin, tandis qu'une gigantesque faille de plusieurs centaines de pieds apparaissait derrière lui !
+
+C'était l'espace à l'intérieur de la faille, mais sans aucune planète. À la place, un océan violet grouillait d'innombrables formes de vie : toutes étaient les âmes de Flamme Joss du Maître Dao Miao Yin !
+
+Alors qu'il utilisait son sort, le Maître Dao Miao Yin tendit la main derrière lui, multipliant par dix la taille de la faille. Celle-ci devint sans limites et s'étendit rapidement à partir de cette terre scellée en ruines !
+
+Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de plusieurs centaines de pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers la Grande Désolation qui approchait.
+
+Tout cela se produisit en un éclair. L'océan violet entra en collision avec les cinq poisons de la Grande Désolation sous le rugissement assourdissant des mers.
+
+Des grondements tonitruants résonnèrent frénétiquement et la terre scellée vola en éclats, transformant l'endroit en un fragment de la mer de brouillard. Le brouillard fut repoussé dans toutes les directions.
+
+La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un sifflement retentit. Une lumière noirâtre jaillit des lèvres de la Grande Désolation.
+
+C'était une langue !
+
+Une langue qui ne semblait pas appartenir à un être humain. Elle était violette et noire, et percuta immédiatement l'océan violet. La Grande Désolation laissa échapper un gémissement étouffé alors que l'océan passait devant cette langue bizarre pour venir s'écraser contre son corps. Puis, la Grande Désolation cracha du sang et son corps s'effondra !
+
+Une âme apparut et se retira aussitôt.
+
+Simultanément, l'océan violet changea de couleur. Après avoir été touché par la langue, l'océan devint noir comme de l'encre, dégageant une odeur pestilentielle. L'océan de Flamme Joss s'était transformé en un océan de poison !
+
+Au sein de cet océan, les cinq poisons s'étaient presque tous effondrés. Ils se changèrent en cinq filaments de gaz noir qui traversèrent l'océan vers Miao Yin.
+
+En un instant, le Maître Dao Miao Yin cracha du sang et recula précipitamment. Trois aiguilles venaient de transpercer la zone entre ses sourcils !
+
+Ces trois aiguilles s'enfoncèrent à moitié dans son front, provoquant des ondulations noires. Cinq filaments de gaz noir entourèrent également sa poitrine ensanglantée, se transformant en les cinq poisons pour pénétrer son corps.
+
+L'océan de Flamme Joss avait été pollué et lui-même était empoisonné. Cependant, il avait détruit le corps physique de son ennemi, ne laissant que son âme. C'était une victoire pyrrhique !
+
+Pourtant, en raison de la présence de Wang Lin, un changement soudain survint !
+
+Wang Lin s'était préparé tout ce temps. Ses yeux brillaient d'un éclat glacial alors qu'il se rapprochait. Tandis que le Maître Dao Miao Yin reculait, l'écart entre eux ne cessait de diminuer !
+
+En un éclair, il ne restait plus que quelques centaines de pieds de distance. Le Maître Dao Miao Yin, continuant de cracher du sang, se retourna brusquement. Il agita la main droite qui se détacha inopinément de son corps. Elle explosa pour former une bourrasque de vent puissante balayant Wang Lin !
+
+Cette rafale contenait toute sa volonté de tuer ! Tel une lampe à huile épuisée, il devait absolument tuer Wang Lin pour pouvoir battre en retraite !
+
+« Dégage !! » Bien qu'il eût été pris par surprise par l'épée de sang de Wang Lin, dans son cœur, Wang Lin, qui n'avait pas encore atteint la troisième étape, n'était toujours qu'une fourmi !
+
+Wang Lin s'arrêta net. Lorsque la bourrasque arriva, il pointa l'espace entre ses sourcils. Des étoiles divines anciennes apparurent et le Fourneau Impérial surgit de la première étoile !
+
+Le Fourneau Impérial éthéré devint instantanément solide et la rafale s'écrasa contre lui !
+
+Le Fourneau Impérial gronda violemment, mais à cet instant, la partie faisant face à Miao Yin sembla fondre. Une intention meurtrière longtemps dissimulée éclata soudainement. Une silhouette jaillit et fendit la bourrasque de vent !
+
+À l'apparition de cette silhouette, une statue géante et noire se manifesta avec elle. Cette statue ressemblait à un dieu démon aux bras croisés. Soudain, ses bras s'ouvrirent et une puissance destructrice balaya Miao Yin !
+
+Le timing était d'une précision extrême ; c'était précisément le moment où le Maître Dao Miao Yin était le plus blessé et trop proche pour esquiver. Miao Yin n'aurait jamais pu imaginer que Wang Lin, qu'il considérait comme une fourmi, puisse posséder des méthodes aussi terrifiantes !
+
+« Ling Dong !! » L'expression du Maître Dao Miao Yin changea radicalement, l'incrédulité brillant dans ses yeux. Alors qu'il s'exclamait, la statue chargée de puissance destructrice abattit sa main droite sur le point entre ses sourcils. La force poussa les trois aiguilles d'un pouce supplémentaire dans son crâne... sans toutefois les y enfoncer complètement.
+
+Le Maître Dao Miao Yin poussa un cri déchirant tandis que son corps se couvrait de brume noire. Le poison en lui explosa et, sous l'effet de la force destructrice, il fut laissé à l'agonie !
+
+Il fut projeté en arrière dans une brume de sang. Au même moment, l'âme de la Grande Désolation arriva rapidement pour tenter de posséder de force le corps de Miao Yin !
+
+C'était l'atout de Wang Lin, le coup le plus puissant qu'il avait préparé pour prendre l'adversaire totalement au dépourvu !!
 
 L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien [1], n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
@@ -117,4 +227,5 @@ Quelques heures plus tard, un groupe de plus de vingt cultivateurs passa en vol,
 « Nous avons cherché longtemps sans rien trouver. La carte est-elle erronée ? » Le groupe s'éloigna peu à peu...
 
 ***
+
 [1] Note de traduction : Changement de "Gu Nuzi" en "esclave ancien". Il s'agit ici d'un titre et non d'un nom propre.
