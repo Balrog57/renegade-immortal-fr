@@ -15,59 +15,121 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
   </header>
 
   <section class="about-work">
-    <div class="work-grid">
-      <article class="work-block">
+    <article class="work-block work-block-full">
+      <header class="work-block-header">
         <h2 class="work-title">L'œuvre</h2>
-        <p>
-          <em>Renegade Immortel</em> (仙逆, <em>Xiān Nì</em> — « Immortel à contre-courant ») est un roman web chinois du genre <strong>xianxia</strong>, publié en feuilleton sur la plateforme <strong>Qidian</strong> (起点中文网, China Literature) du 8 juin 2009 au 8 janvier 2012. Fort de <strong>2 088 chapitres</strong> répartis en <strong>13 tomes</strong> et d'environ <strong>6,57 millions de caractères</strong>, il est l'un des piliers de la bibliothèque Qidian et un monument du genre.
-        </p>
-        <p>
-          L'intrigue suit Wang Lin, un jeune garçon au talent médiocre, sur plus de deux mille chapitres de combats, de pertes, de renaissance et de transcendance. Des sectes qui s'effondrent aux guerres entre Immortels, son chemin n'est jamais droit : il tue pour protéger ce qu'il aime, trahit pour survivre, et attend pendant des siècles ce que d'autres ont oublié — jusqu'à devenir l'une des figures les plus redoutables du cosmos.
-        </p>
-        <p>
-          Le roman a été adapté en <strong>manhua</strong> (2012, Youman et Bilibili Comics), en <strong>jeu mobile</strong> (2015), en <strong>série animée</strong> (2023, studio BUILD DREAM, 180 épisodes, Tencent Video) et en <strong>films d'animation</strong> à partir de 2025, dont <em>Bataille de l'Avènement Divin</em> (n°1 des ventes payantes Tencent Video). La version imprimée, publiée par la Maison d'Édition de l'Éducation du Yunnan à partir d'août 2012, s'est écoulée à plus de <strong>100 000 exemplaires par volume</strong>.
-        </p>
-      </article>
+        <p class="work-subtitle">仙逆 — <em>Xiān Nì</em>, « Immortel à contre-courant »</p>
+      </header>
 
-      <article class="work-block">
-        <h2 class="work-title">L'auteur</h2>
-        <p>
-          <strong>Er Gen</strong> (耳根, signifiant littéralement « racine d'oreille ») est le pseudonyme d'un romancier chinois de web-novels dont le vrai nom est <strong>Liu Yong</strong> (刘勇). <em>Renegade Immortal</em> est son œuvre fondatrice (« flagship work ») et sa deuxième œuvre publiée.
-        </p>
-        <p>
-          Er Gen est une figure majeure du xianxia moderne. Ses romans, souvent très longs (souvent plus de mille chapitres), explorent la cultivation, les héritages divins et les voyages entre mondes. En 2025, une interview vidéo réalisée par <strong>Wuxiaworld</strong>, intitulée <em>« Er Gen's Xianxia World »</em>, lui donne la parole sur sa vision de l'univers xianxia et sur la genèse de ses œuvres.
-        </p>
-
-        <div class="video-frame">
-          <iframe
-            src="https://www.youtube.com/embed/mxUvD2TEeF8"
-            title="Er Gen's Xianxia World — Interview par Wuxiaworld"
-            loading="lazy"
-            allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"
-            allowfullscreen
-            referrerpolicy="strict-origin-when-cross-origin"
-          ></iframe>
+      <div class="work-meta">
+        <div class="work-meta-item">
+          <span class="work-meta-label">Auteur</span>
+          <span class="work-meta-value">Er Gen (耳根)</span>
         </div>
-        <p class="video-caption">
-          <em>Er Gen's Xianxia World</em> — Interview par Wuxiaworld (YouTube). <strong>Attention :</strong> la vidéo contient des spoilers sur la fin de plusieurs de ses romans.
-        </p>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Publication</span>
+          <span class="work-meta-value">8 juin 2009 – 8 janvier 2012 (Qidian)</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Chapitres</span>
+          <span class="work-meta-value">2 088</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Tomes</span>
+          <span class="work-meta-value">13</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Volume</span>
+          <span class="work-meta-value">~6,57 millions de caractères</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Genre</span>
+          <span class="work-meta-value">Xianxia</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Ventes</span>
+          <span class="work-meta-value">100 000+ ex. / volume (Yunnan)</span>
+        </div>
+        <div class="work-meta-item">
+          <span class="work-meta-label">Note Wuxiaworld</span>
+          <span class="work-meta-value">85 % · 151 avis</span>
+        </div>
+      </div>
 
-        <h3 class="work-subtitle">Bibliographie</h3>
-        <p class="biblio-legend">Œuvres terminées</p>
-        <ul class="biblio">
-          <li><strong>Renegade Immortel</strong> (仙逆) — 2009 — 13 tomes, 2 088 chapitres</li>
-          <li><strong>Pursuit of the Truth</strong> (求魔) — 2012 — 7 tomes, 1 484 chapitres</li>
-          <li><strong>I Shall Seal the Heavens</strong> (我欲封天) — 2014 — 10 tomes, 1 613 chapitres + 3 histoires secondaires</li>
-          <li><strong>A Will Eternal</strong> (一念永恒) — 2016 — 7 tomes, 1 314 chapitres</li>
-          <li><strong>A World Worth Protecting</strong> (三寸人间) — 2018 — 3 tomes, 1 457 chapitres</li>
-          <li><strong>Beyond Time</strong> (光阴之外) — 2022 — 14 tomes, 1 354 chapitres</li>
-        </ul>
-        <p class="biblio-legend">Œuvre abandonnée</p>
-        <ul class="biblio">
-          <li><strong>Against Heaven</strong> (天逆) — 2013 — 3 volumes, 118 chapitres</li>
-        </ul>
-      </article>
-    </div>
+      <h3 class="work-h3">Synopsis</h3>
+      <p>
+        Dans un petit village du Pays de Zhao, un jeune garçon au talent médiocre nommé <strong>Wang Lin</strong> grandit avec ses parents, loin de se douter du destin hors du commun qui l'attend. Admis à la <strong>Secte Heng Yue</strong> après avoir échoué aux trois tests initiaux, il se voit offrir une dernière chance : devenir Saint en cinq ans, sous peine d'être renvoyé. Commence alors pour Wang Lin un long chemin sur la voie de la cultivation, fait de combats, de pertes, de trahisons et de renaissance.
+      </p>
+      <p>
+        De la modeste Secte Heng Yue aux profondeurs de la Mer des Démons, des rivages du Pays de Zhao aux cieux du <strong>Continent Astral Immortel</strong>, Wang Lin traverse plus de deux mille chapitres de conflits où s'affrontent sectes ancestrales, dieux anciens, démons et immortels. Son chemin n'est jamais droit : il tue pour protéger ce qu'il aime, trahit pour survivre, et attend pendant des siècles ce que d'autres ont oublié — jusqu'à devenir l'une des figures les plus redoutables du cosmos. L'œuvre est unanimement saluée comme un monument du genre <em>xianxia</em> moderne.
+      </p>
+
+      <h3 class="work-h3">Publication et adaptations</h3>
+      <ul class="work-list">
+        <li><strong>Webnovel (2009–2012)</strong> — Publication en feuilleton sur la plateforme Qidian (起点中文网, China Literature).</li>
+        <li><strong>Édition imprimée (août 2012)</strong> — Maison d'Édition de l'Éducation du Yunnan (云南教育出版社) ; ventes dépassant 100 000 exemplaires par volume.</li>
+        <li><strong>Manhua (2012+)</strong> — Adaptation en bande dessinée publiée sur Youman (有漫) et Bilibili Comics.</li>
+        <li><strong>Jeu mobile (2015)</strong> — Sortie officielle.</li>
+        <li><strong>Série animée (25 sept. 2023 – en cours)</strong> — Studio <strong>BUILD DREAM</strong>, 180 épisodes ONA, diffusée sur Tencent Video. Note MyAnimeList : 8,50/10.</li>
+        <li><strong>Films d'animation (2025+)</strong> — <em>Bataille de l'Avènement Divin</em> (n°1 des ventes payantes Tencent Video), second film annoncé.</li>
+      </ul>
+
+      <h3 class="work-h3">Trois grandes périodes narratives</h3>
+      <p class="periods">
+        <span class="period"><strong>Période 1 — De l'Étoile du Phénix (années 1 – 600) :</strong> enfance et formation dans les Royaumes, Secte Heng Yue, Vallée Jueming, Royaume de l'Incendie. Tomes 1 à 5.</span>
+        <span class="period"><strong>Période 2 — Intérieur et extérieur des royaumes (années 600 – 1500) :</strong> apprentissage auprès de Situ Nan, Tianyunzi, Commanderie du Démon Céleste, Mer des Nuages. Tomes 6 à 9.</span>
+        <span class="period"><strong>Période 3 — Le Continent de l'Immortalité (années 1500 – 2288) :</strong> ascension cosmique, confrontation avec l'Ancienne Voie, stade « Marche sur le Ciel » (quatrième étape). Tomes 10 à 13.</span>
+      </p>
+    </article>
+
+    <article class="work-block work-block-full">
+      <header class="work-block-header">
+        <h2 class="work-title">L'auteur</h2>
+        <p class="work-subtitle">Er Gen (耳根) — Liu Yong (刘勇)</p>
+      </header>
+
+      <p>
+        <strong>Er Gen</strong> (耳根, signifiant littéralement « racine d'oreille ») est le pseudonyme d'un romancier chinois de web-novels dont le vrai nom est <strong>Liu Yong</strong> (刘勇). <em>Renegade Immortal</em> est son œuvre fondatrice (« flagship work ») et sa deuxième œuvre publiée. Il est considéré comme l'une des figures majeures du genre <em>xianxia</em> moderne.
+      </p>
+      <p>
+        Toutes ses œuvres s'inscrivent dans le genre xianxia / xuanhuan (cultivation, immortels, mondes parallèles) et partagent des thèmes récurrents : la solitude du puissant, le prix de l'immortalité, la persévérance face à un monde sans pitié, et la transcendance par la compréhension du Dao. Ses romans, souvent très longs, explorent les héritages divins, les voyages entre mondes et les confrontations à une échelle cosmique.
+      </p>
+
+      <h3 class="work-h3">Interview exclusive — « Er Gen's Xianxia World »</h3>
+      <p>
+        En 2025, <strong>Wuxiaworld</strong> a réalisé une interview vidéo d'Er Gen, intitulée <em>« Er Gen's Xianxia World »</em>, dans laquelle l'auteur revient sur sa vision de l'univers xianxia et sur la genèse de ses œuvres. <strong>Attention :</strong> la vidéo contient des spoilers sur la fin de plusieurs de ses romans.
+      </p>
+
+      <div class="video-frame">
+        <iframe
+          src="https://www.youtube.com/embed/mxUvD2TEeF8"
+          title="Er Gen's Xianxia World — Interview par Wuxiaworld"
+          loading="lazy"
+          allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"
+          allowfullscreen
+          referrerpolicy="strict-origin-when-cross-origin"
+        ></iframe>
+      </div>
+
+      <h3 class="work-h3">Bibliographie complète</h3>
+      <p class="biblio-legend">Œuvres terminées</p>
+      <ul class="biblio">
+        <li><strong>Renegade Immortel</strong> (仙逆) — 2009 — 13 tomes, 2 088 chapitres</li>
+        <li><strong>Pursuit of the Truth</strong> (求魔) — 2012 — 7 tomes, 1 484 chapitres</li>
+        <li><strong>I Shall Seal the Heavens</strong> (我欲封天) — 2014 — 10 tomes, 1 613 chapitres + 3 histoires secondaires</li>
+        <li><strong>A Will Eternal</strong> (一念永恒) — 2016 — 7 tomes, 1 314 chapitres</li>
+        <li><strong>A World Worth Protecting</strong> (三寸人间) — 2018 — 3 tomes, 1 457 chapitres</li>
+        <li><strong>Beyond Time</strong> (光阴之外) — 2022 — 14 tomes, 1 354 chapitres</li>
+      </ul>
+      <p class="biblio-legend">Œuvre abandonnée</p>
+      <ul class="biblio">
+        <li><strong>Against Heaven</strong> (天逆) — 2013 — 3 volumes, 118 chapitres</li>
+      </ul>
+
+      <p class="sources-footer">
+        Sources : <a href="https://xian-ni.fandom.com/wiki/Er_Gen" target="_blank" rel="noopener">Xian Ni Wiki — Er Gen</a> · <a href="https://baike.baidu.com/fr/item/Immortel%20Ren%C3%A9gat/1295062" target="_blank" rel="noopener">Baidu Baike</a> · <a href="https://www.wuxiaworld.com/novel/renegade-immortal" target="_blank" rel="noopener">Wuxiaworld</a> · <a href="https://www.webnovel.com/fr/book/renegade-immortal_8094127105005005" target="_blank" rel="noopener">Webnovel</a> · <a href="https://novelfrance.fr/novel/renegade-immortal" target="_blank" rel="noopener">NovelFrance</a> · <a href="https://myanimelist.net/anime/55809/Xian_Ni" target="_blank" rel="noopener">MyAnimeList</a> · <a href="https://www.youtube.com/watch?v=mxUvD2TEeF8" target="_blank" rel="noopener">Interview YouTube</a>
+      </p>
+    </article>
   </section>
 
   <section class="books-section">
@@ -165,7 +227,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
         : '';
 
       summaryEl.textContent = summary;
-      linkEl.href = `${window.location.pathname.replace(/\/$/, '')}/../chapitres/tome-${book}/`.replace(/\/[^/]*\/\.\.\//, '/chapitres/tome-' + book + '/');
       linkEl.setAttribute('href', `chapitres/tome-${book}/`);
 
       dialog.showModal();
@@ -198,44 +259,72 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
   color: var(--ink-3); margin: 0;
 }
 
-.about-work { padding: 0 0 64px; }
-.work-grid {
-  display: grid; grid-template-columns: repeat(auto-fit, minmax(380px, 1fr));
-  gap: 24px;
-}
+.about-work { padding: 0 0 32px; display: flex; flex-direction: column; gap: 24px; }
 .work-block {
-  padding: 28px; border: 1px solid var(--line); border-radius: var(--r-lg);
+  padding: 32px; border: 1px solid var(--line); border-radius: var(--r-lg);
   background: var(--bg-1);
 }
+.work-block-full { width: 100%; }
+.work-block-header { margin-bottom: 16px; }
 .work-title {
-  font-family: 'Cinzel', serif; font-size: 18px; font-weight: 600;
-  color: var(--gold); margin: 0 0 16px; letter-spacing: .04em;
+  font-family: 'Cinzel', serif; font-size: 20px; font-weight: 600;
+  color: var(--gold); margin: 0 0 6px; letter-spacing: .04em;
 }
 .work-subtitle {
-  font-family: 'Cinzel', serif; font-size: 13px; font-weight: 600;
-  color: var(--gold); margin: 24px 0 8px; letter-spacing: .08em;
+  font-family: 'Cormorant Garamond', serif; font-size: 16px; font-style: italic;
+  color: var(--ink-3); margin: 0;
+}
+.work-h3 {
+  font-family: 'Cinzel', serif; font-size: 12px; font-weight: 600;
+  color: var(--gold); margin: 20px 0 10px; letter-spacing: .12em;
   text-transform: uppercase;
 }
 .work-block p {
-  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.75;
+  font-family: 'Noto Serif', serif; font-size: 14.5px; line-height: 1.8;
   color: var(--ink-2); margin: 0 0 12px; text-align: left;
 }
 .work-block p:last-child { margin-bottom: 0; }
 .work-block strong { color: var(--ink-1); }
 .work-block em { color: var(--ink-1); font-style: italic; }
 
+.work-meta {
+  display: grid; grid-template-columns: repeat(auto-fit, minmax(200px, 1fr));
+  gap: 8px 24px; padding: 16px 0; margin: 16px 0;
+  border-top: 1px solid var(--line); border-bottom: 1px solid var(--line);
+}
+.work-meta-item { display: flex; flex-direction: column; gap: 2px; }
+.work-meta-label {
+  font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .18em;
+  text-transform: uppercase; color: var(--ink-4);
+}
+.work-meta-value {
+  font-family: 'Noto Serif', serif; font-size: 13px; color: var(--ink-1);
+}
+
+.work-list {
+  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.8;
+  color: var(--ink-2); margin: 0; padding-left: 20px; text-align: left;
+}
+.work-list li { margin-bottom: 6px; }
+.work-list strong { color: var(--ink-1); }
+
+.periods { display: flex; flex-direction: column; gap: 8px; }
+.period {
+  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.7;
+  color: var(--ink-2); padding: 10px 14px;
+  border-left: 2px solid var(--crimson-dim); background: var(--bg-2);
+  border-radius: 0 var(--r-md) var(--r-md) 0;
+}
+.period strong { color: var(--ink-1); }
+
 .video-frame {
-  position: relative; margin: 20px 0 8px;
+  position: relative; margin: 16px 0 8px;
   padding-bottom: 56.25%; height: 0; overflow: hidden;
   border-radius: var(--r-md); border: 1px solid var(--line);
   background: var(--bg-0);
 }
 .video-frame iframe {
   position: absolute; inset: 0; width: 100%; height: 100%; border: 0;
-}
-.video-caption {
-  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
-  text-transform: uppercase; color: var(--ink-4); margin: 0 0 12px;
 }
 
 .biblio-legend {
@@ -244,11 +333,17 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 }
 .biblio {
   font-family: 'Noto Serif', serif; font-size: 13px; line-height: 1.8;
-  color: var(--ink-2); margin: 0; padding-left: 18px;
-  text-align: left;
+  color: var(--ink-2); margin: 0; padding-left: 20px; text-align: left;
 }
 .biblio li { margin-bottom: 4px; }
 .biblio strong { color: var(--ink-1); }
+
+.sources-footer {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
+  color: var(--ink-4); margin: 20px 0 0; line-height: 1.8;
+}
+.sources-footer a { color: var(--crimson-2); text-decoration: none; }
+.sources-footer a:hover { color: var(--gold); text-decoration: underline; }
 
 .books-section { padding: 24px 0 64px; }
 .section-header { text-align: center; margin-bottom: 32px; }
@@ -330,7 +425,7 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 }
 .book-modal-cover-wrap { flex-shrink: 0; }
 .book-modal-cover {
-  width: 130px; height: 190px; object-fit: cover;
+  width: 150px; height: 220px; object-fit: cover;
   border-radius: var(--r-md); border: 1px solid var(--line);
   box-shadow: 0 4px 16px rgba(0,0,0,.4);
 }
@@ -350,7 +445,7 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 }
 .book-modal-body { font-family: 'Noto Serif', serif; }
 .book-modal-summary {
-  font-size: 15px; line-height: 1.8; color: var(--ink-2); margin: 0 0 24px;
+  font-size: 14.5px; line-height: 1.8; color: var(--ink-2); margin: 0 0 24px;
   text-align: left;
 }
 .book-modal-link {

@@ -1,7 +1,7 @@
 ---
 book: 12
 title: Tenth Sun of the Immortal Astral Continent
-cover: /renegade-immortal-fr/wiki/images/Book 12.webp
+cover: /renegade-immortal-fr/wiki/images/Book 12.svg
 chaptersCount: 209
 rangeStart: 1794
 rangeEnd: 2002

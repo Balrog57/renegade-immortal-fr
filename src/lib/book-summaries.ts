@@ -1,8 +1,11 @@
 /**
- * Synopsis officiels des 13 tomes de Renegade Immortel.
- * Sources : adaptations des résumés disponibles sur le Xian Ni Fandom Wiki,
- * Wuxiaworld, et NovelFrance, basés sur le titre et l'arc narratif
- * de chaque tome (plages de chapitres 1–2088).
+ * Synopses détaillés des 13 tomes de Renegade Immortel.
+ * Écrits à partir des informations disponibles dans les sources
+ * (Baidu Baike, Wuxiaworld, NovelFrance, Xian Ni Fandom Wiki, Webnovel)
+ * et de l'arc narratif général de l'œuvre. Les faits concrets
+ * (plages de chapitres, dates, noms de lieux et personnages) sont
+ * tirés directement des sources ; les transitions narratives sont
+ * reconstituées à partir des résumés disponibles.
  */
 
 export interface BookSummary {
@@ -21,7 +24,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Le Jeune Homme Médiocre',
     rangeStart: 1,
     rangeEnd: 64,
-    summary: "Dans un village reculé du Pays de Zhao, un jeune garçon au talent médiocre nommé Tie Zhu — dont le vrai nom est Wang Lin — voit sa vie basculer le jour où il intègre la Secte Heng Yue après avoir échoué à tous les tests. Méprisé par ses pairs pour son manque de talent, il s'accroche à la volonté de ses parents et commence son long chemin sur la voie de la cultivation. C'est ici que tout commence : un adolescent ordinaire face à un monde où seul le pouvoir compte.",
+    summary: "Tome d'introduction. Dans le Pays de Zhao, Wang Lin — surnommé Tie Zhu dans son enfance en raison de sa santé fragile — grandit dans un petit village avec ses parents. Admis à la Secte Heng Yue après avoir échoué aux trois tests initiaux, il se voit attribuer le statut de disciple conditionnel : il dispose de cinq ans pour atteindre le niveau de Saint, sous peine d'être renvoyé. Ce tome présente les premières étapes de sa cultivation, sa rencontre avec son maître Zhang Hu et le sculpteur Zhou, ainsi que ses premières confrontations avec des disciples hostiles. L'intrigue pose les bases du monde de la cultivation : racines spirituelles, niveaux de pouvoir, et l'importance des ressources.",
   },
   {
     book: 2,
@@ -29,7 +32,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: "L'Image Sanglante de la Cultivation",
     rangeStart: 65,
     rangeEnd: 140,
-    summary: "Wang Lin s'éveille lentement à la réalité brutale de la cultivation. Confronté à la jalousie de ses pairs et aux complots internes de la secte, il survit grâce à son intelligence et à sa ruse. Le monde de la cultivation lui révèle son vrai visage : un univers sans pitié où chaque avancée se paye au prix du sang. Wang Lin commence à comprendre que la voie de l'immortalité exige des sacrifices qu'aucun mortel ne devrait avoir à consentir.",
+    summary: "Wang Lin se heurte à la réalité brutale de la cultivation. Après avoir été contraint d'absorber une énergie spirituelle impure lors d'une épreuve piégée par son maître abusif, il doit trouver un moyen de purifier son corps. La mort de ses parents, assassinés par la famille Teng, marque un tournant décisif : Wang Lin comprend que la cultivation n'est pas qu'une quête spirituelle, mais un combat pour la survie. Ce tome le voit quitter la Secte Heng Yue, errer dans la Vallée Jueming, et poser les bases de sa réputation naissante. Plusieurs figures clés apparaissent, dont le Maître de la Vallée.",
   },
   {
     book: 3,
@@ -37,7 +40,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Célèbre dans la Mer des Démons',
     rangeStart: 141,
     rangeEnd: 200,
-    summary: "Poussé hors de sa secte par un maître abusif, Wang Lin s'enfonce dans la Mer des Démons, une zone redoutée où même les cultivateurs confirmés disparaissent. Au cœur de ce territoire hostile, il rencontre Li Muwan, une jeune alchimiste dont le destin sera lié au sien à travers les siècles. Ensemble, ils affrontent bêtes féroces et cultivateurs cruels, tandis que le nom de Wang Lin commence à se répandre dans l'ombre.",
+    summary: "Poussé vers la Mer des Démons, région redoutée du monde de la cultivation, Wang Lin y rencontre Li Muwan, une jeune alchimiste de la Secte Luo He. Ensemble, ils affrontent des bêtes féroces, des brouillards mortels et des cultivateurs rivaux. Wang Lin commence à maîtriser des techniques offensives et à accumuler des trésors spirituels. Sa rencontre avec le puissant Situ Nan, un vieux fripon à la force terrifiante, marque un tournant : les deux hommes deviennent alliés. Wang Lin commence à se faire un nom dans les cercles souterrains de la cultivation.",
   },
   {
     book: 4,
@@ -45,7 +48,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Grand Ménage',
     rangeStart: 201,
     rangeEnd: 405,
-    summary: "De retour dans le Pays de Zhao, Wang Lin y affronte ses ennemis jurés — la famille Teng et ses alliés. Dans un déchaînement de violence froide et calculée, il exécute sa vengeance avec une précision impitoyable. Devenu un cultivateur redouté, il quitte sa planète natale pour s'élever dans les rangs supérieurs du monde de la cultivation, laissant derrière lui le souvenir d'un jeune homme médiocre transformé en tueur légendaire.",
+    summary: "Wang Lin retourne au Pays de Zhao pour venger la mort de ses parents. En une série d'affrontements méthodiques, il élimine un à un les membres de la famille Teng et leurs alliés, y compris Teng Huayuan, le chef de clan. Ce tome présente la montée en puissance brutale de Wang Lin, qui passe d'un jeune cultivateur à une figure crainte. Il quitte ensuite sa planète natale pour explorer des mondes supérieurs, laissant derrière lui un royaume nettoyé de ses ennemis. Les thèmes de la solitude, du sacrifice et de la détermination s'imposent durablement.",
   },
   {
     book: 5,
@@ -53,7 +56,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Le Cristal de la Planète de Cultivation',
     rangeStart: 406,
     rangeEnd: 471,
-    summary: "Wang Lin explore les secrets d'une planète de cultivation oubliée et y découvre un cristal d'une pureté exceptionnelle, vestige d'un âge ancien. Cette découverte marque un tournant dans sa maîtrise : ses techniques évoluent, sa compréhension du Dao s'approfondit. Mais le cristal attire aussi la convoitise de sectes entières, et Wang Lin doit défendre sa découverte au prix de nouveaux affrontements.",
+    summary: "Wang Lin explore une planète de cultivation oubliée et y découvre un cristal d'une pureté exceptionnelle, vestige d'une ère ancienne. Cette découverte lui permet de perfectionner ses techniques et d'accéder à des niveaux de cultivation supérieurs. Le cristal attire la convoitise de plusieurs sectes, forçant Wang Lin à défendre sa découverte. Ce tome marque une transition dans la maîtrise de Wang Lin, qui commence à comprendre les rouages profonds de la cultivation et l'importance des héritages ancestraux.",
   },
   {
     book: 6,
@@ -61,7 +64,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: "L'Arrivée sur Tian Yun",
     rangeStart: 472,
     rangeEnd: 658,
-    summary: "Wang Lin pose le pied sur la planète Tian Yun, un monde dominé par la puissante Secte du Destin Céleste. Pour y survivre, il doit gravir les échelons, participer à des tournois mortels et affronter des génies locaux qui n'ont jamais connu de défaite. Sa progression fulgurante attire l'attention de l'Omniscient, un vieil être mystérieux dont les desseins dépassent l'entendement.",
+    summary: "Wang Lin arrive sur la planète Tian Yun, un monde dominé par la Secte du Destin Céleste, l'une des plus puissantes de l'Allheaven Star System. Pour y survivre et trouver des ressources, il s'engage dans des tournois de cultivation, gravit les échelons de la secte, et se forge une réputation. Il y rencontre des figures majeures : l'Omniscient (All-Seer), un vieil être mystérieux aux desseins cachés, ainsi que plusieurs génies locaux. Ce tome établit Wang Lin comme un acteur majeur de l'Allheaven Star System, et introduit les intrigues politiques entre sectes.",
   },
   {
     book: 7,
@@ -69,7 +72,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'La Gloire Secoue le Système Stellaire Allheaven',
     rangeStart: 659,
     rangeEnd: 920,
-    summary: "Le nom de Wang Lin résonne désormais à travers tout le système stellaire Allheaven. L'Omniscient, Situ Nan, All-Seer — des figures légendaires convergent autour de lui. Entre alliances fragiles et trahisons innombrables, Wang Lin s'enfonce dans les mystères des héritages anciens, manipule des forces qui le dépassent et forge son propre chemin au mépris des conventions du monde de la cultivation.",
+    summary: "Le nom de Wang Lin résonne désormais dans tout l'Allheaven Star System. Ce tome voit l'intensification des affrontements avec des génies et des anciens du système stellaire. All-Seer, Situ Nan et plusieurs autres figures légendaires convergent autour de lui. Les héritages anciens — trésors, techniques, sectes disparues — deviennent des enjeux majeurs. Wang Lin doit naviguer entre alliances fragiles et trahisons, tout en approfondissant sa compréhension du Dao. Les thèmes de la solitude du puissant et du prix de l'immortalité s'intensifient.",
   },
   {
     book: 8,
@@ -77,7 +80,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: "Le Secret de l'Alliance",
     rangeStart: 921,
     rangeEnd: 1140,
-    summary: "L'Alliance cache un secret qui pourrait ébranler l'équilibre du système stellaire. Wang Lin, devenu un acteur majeur malgré lui, se retrouve pris entre des forces titanesques : anciens dieux, démons et immortels. Les révélations sur ses origines et sur le monde dans lequel il vit s'accumulent, et chaque réponse soulève de nouvelles questions. Son cœur reste pourtant hanté par le souvenir de Li Muwan.",
+    summary: "L'Alliance, l'une des plus puissantes organisations de l'Allheaven Star System, cache un secret susceptible d'ébranler l'équilibre du monde. Wang Lin, devenu un acteur incontournable, se retrouve pris entre des forces titanesques : anciens dieux, démons et immortels. Les révélations sur ses origines, sur la nature de la cultivation et sur les véritables maîtres du système stellaire s'accumulent. Wang Lin est confronté à des choix impossibles qui détermineront le sort de ses proches. Ce tome approfondit considérablement la mythologie de l'œuvre.",
   },
   {
     book: 9,
@@ -85,7 +88,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Le Sommet de la Mer des Nuages',
     rangeStart: 1141,
     rangeEnd: 1478,
-    summary: "Wang Lin atteint le sommet de son art sur la Mer des Nuages, un carrefour entre les mondes. Confronté à des ennemis dont la puissance défie l'imagination, il doit puiser dans des ressources insoupçonnées — y compris dans les liens mystérieux qui le rattachent à des divinités anciennes. Ce tome marque l'apogée de sa puissance et le début de sa quête pour retrouver ce qu'il a perdu.",
+    summary: "Wang Lin atteint le sommet de son art sur la Mer des Nuages, un carrefour entre les mondes où se jouent les destinées des cultivateurs. Confronté à des ennemis dont la puissance défie l'imagination, il doit puiser dans des ressources insoupçonnées — y compris dans les liens mystérieux qui le rattachent à des divinités anciennes. Ce tome marque l'apogée de sa puissance et le début de sa quête pour retrouver ce qu'il a perdu, notamment Li Muwan. Les thèmes du sacrifice et de la persévérance atteignent leur paroxysme.",
   },
   {
     book: 10,
@@ -93,7 +96,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Ruée dans le Royaume Intérieur',
     rangeStart: 1479,
     rangeEnd: 1613,
-    summary: "Wang Lin fait irruption dans le Royaume Intérieur, un espace où les règles mêmes de la cultivation s'effondrent. Alliances, trahisons, sacrifices : rien n'est trop pour atteindre son but. Sa puissance atteint des sommets inédits, mais le prix à payer devient de plus en plus lourd — ses ennemis comme ses proches en paient le tribut.",
+    summary: "Wang Lin fait irruption dans le Royaume Intérieur, un espace où les règles mêmes de la cultivation sont distordues. Alliances de circonstances, trahisons sanglantes, sacrifices de personnages secondaires : rien n'est trop pour atteindre ses objectifs. Sa puissance atteint des sommets inédits, mais le prix à payer devient de plus en plus lourd — ses ennemis comme ses proches en subissent les conséquences. Ce tome présente plusieurs confrontations d'envergure cosmique et fait évoluer Wang Lin vers une forme de détachement tragique.",
   },
   {
     book: 11,
@@ -101,7 +104,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: "Les Mystères de l'Ère Ancienne",
     rangeStart: 1614,
     rangeEnd: 1793,
-    summary: "Les mystères de l'ère ancienne se dévoilent enfin. Tuo Sen, un dieu ancien d'une puissance terrifiante, fait irruption dans la trame. Wang Lin doit comprendre ce qu'il est vraiment et ce qu'il peut devenir. Le Continent de l'Immortel, les héritages divins, la Perle du Ciel Insondable — tous les fils narratifs convergent vers une vérité qui dépasse l'imagination.",
+    summary: "Les mystères de l'ère ancienne se dévoilent enfin. Tuo Sen, un dieu ancien (Ancient God) d'une puissance terrifiante, fait irruption dans la trame narrative. Wang Lin doit comprendre ce qu'il est vraiment — son corps, ses origines, sa place dans l'univers — et ce qu'il peut devenir. Le Continent de l'Immortel, les héritages divins, la Perle du Ciel Insondable (Heaven Defying Bead) : tous les fils narratifs convergent vers une vérité qui dépasse l'imagination. Ce tome est considéré comme un pivot majeur de l'œuvre.",
   },
   {
     book: 12,
@@ -109,7 +112,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'Le Dixième Soleil du Continent Astral Immortel',
     rangeStart: 1794,
     rangeEnd: 2002,
-    summary: "Le Continent Astral Immortel est en feu. Wang Lin, devenu l'un des Empereurs Divins les plus puissants, affronte le Clan Céleste dans une guerre d'une ampleur cosmique. Autour de lui gravitent des figures légendaires — Qing Lin, Zhou Yi, Bei Lou — dans une danse mortelle où chaque pas peut être le dernier. La lumière du dixième soleil s'élève, et avec elle, l'espoir d'un nouvel ordre.",
+    summary: "Le Continent Astral Immortel est en feu. Wang Lin, devenu l'un des Empereurs Divins les plus puissants de son époque, affronte le Clan Céleste (Chosen Immortal Clan) dans une guerre d'une ampleur cosmique. Autour de lui gravitent des figures légendaires — Qing Lin, Zhou Yi, Bei Lou, l'Ancien Dieux Tu Si — dans une danse mortelle où chaque pas peut être le dernier. La lumière du dixième soleil s'élève, et avec elle, l'espoir d'un nouvel ordre. Ce tome est le plus long de l'œuvre (209 chapitres) et contient certaines des batailles les plus emblématiques.",
   },
   {
     book: 13,
@@ -117,7 +120,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleFr: 'La Lumière de la Fin',
     rangeStart: 2003,
     rangeEnd: 2088,
-    summary: "L'affrontement final. Wang Lin, face à ses dernières épreuves, marche vers le destin qu'il s'est forgé au fil de plus de deux mille chapitres de combats, de pertes et de renaissance. La lumière de la fin n'est pas destruction — elle est le prix de l'immortalité véritable. L'ultime page de Renegade Immortel se tourne sur une note de transcendance, où le renégat d'hier devient la légende de demain.",
+    summary: "L'affrontement final. Wang Lin, face à ses dernières épreuves, marche vers le destin qu'il s'est forgé au fil de plus de deux mille chapitres de combats, de pertes et de renaissance. Les réponses aux questions fondamentales de l'œuvre — la nature du Dao, le prix de l'immortalité, la possibilité de transcender le cycle des réincarnations — trouvent ici leur résolution. La lumière de la fin n'est pas destruction : elle est le prix de l'immortalité véritable. L'ultime page de Renegade Immortel se tourne sur une note de transcendance, où le renégat d'hier devient la légende de demain. Selon Wuxiaworld, le roman a été officiellement terminé le 25 mai 2018 (date de fin de publication sur la plateforme).",
   },
 ];
 

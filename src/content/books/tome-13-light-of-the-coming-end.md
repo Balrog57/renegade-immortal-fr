@@ -1,7 +1,7 @@
 ---
 book: 13
 title: Light of the coming end
-cover: /renegade-immortal-fr/wiki/images/Book 13.webp
+cover: /renegade-immortal-fr/wiki/images/Book 13.svg
 chaptersCount: 86
 rangeStart: 2003
 rangeEnd: 2088
