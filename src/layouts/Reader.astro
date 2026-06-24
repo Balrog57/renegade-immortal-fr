@@ -3,6 +3,7 @@ import Nav from '~/components/Nav.astro';
 import Footer from '~/components/Footer.astro';
 import '~/styles/global.css';
 import type { ChapterMenuItem } from '~/lib/data';
+import { getBookSummary } from '~/lib/book-summaries';
 
 interface Props {
   title: string;
@@ -19,7 +20,10 @@ const base = import.meta.env.BASE_URL;
 
 const menuByBook = new Map<number, { title: string; items: ChapterMenuItem[] }>();
 for (const c of menu) {
-  if (!menuByBook.has(c.book)) menuByBook.set(c.book, { title: c.bookTitle, items: [] });
+  if (!menuByBook.has(c.book)) {
+    const summary = getBookSummary(c.book);
+    menuByBook.set(c.book, { title: summary?.titleFr || c.bookTitle, items: [] });
+  }
   menuByBook.get(c.book)!.items.push(c);
 }
 const bookEntries = [...menuByBook.entries()].sort((a, b) => a[0] - b[0]);

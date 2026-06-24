@@ -73,13 +73,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
         <li><strong>Série animée (25 sept. 2023 – en cours)</strong> — Studio <strong>BUILD DREAM</strong>, 180 épisodes ONA, diffusée sur Tencent Video. Note MyAnimeList : 8,50/10.</li>
         <li><strong>Films d'animation (2025+)</strong> — <em>Bataille de l'Avènement Divin</em> (n°1 des ventes payantes Tencent Video), second film annoncé.</li>
       </ul>
-
-      <h3 class="work-h3">Trois grandes périodes narratives</h3>
-      <p class="periods">
-        <span class="period"><strong>Période 1 — De l'Étoile du Phénix (années 1 – 600) :</strong> enfance et formation dans les Royaumes, Secte Heng Yue, Vallée Jueming, Royaume de l'Incendie. Tomes 1 à 5.</span>
-        <span class="period"><strong>Période 2 — Intérieur et extérieur des royaumes (années 600 – 1500) :</strong> apprentissage auprès de Situ Nan, Tianyunzi, Commanderie du Démon Céleste, Mer des Nuages. Tomes 6 à 9.</span>
-        <span class="period"><strong>Période 3 — Le Continent de l'Immortalité (années 1500 – 2288) :</strong> ascension cosmique, confrontation avec l'Ancienne Voie, stade « Marche sur le Ciel » (quatrième étape). Tomes 10 à 13.</span>
-      </p>
     </article>
 
     <article class="work-block work-block-full">
@@ -125,10 +118,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
       <ul class="biblio">
         <li><strong>Against Heaven</strong> (天逆) — 2013 — 3 volumes, 118 chapitres</li>
       </ul>
-
-      <p class="sources-footer">
-        Sources : <a href="https://xian-ni.fandom.com/wiki/Er_Gen" target="_blank" rel="noopener">Xian Ni Wiki — Er Gen</a> · <a href="https://baike.baidu.com/fr/item/Immortel%20Ren%C3%A9gat/1295062" target="_blank" rel="noopener">Baidu Baike</a> · <a href="https://www.wuxiaworld.com/novel/renegade-immortal" target="_blank" rel="noopener">Wuxiaworld</a> · <a href="https://www.webnovel.com/fr/book/renegade-immortal_8094127105005005" target="_blank" rel="noopener">Webnovel</a> · <a href="https://novelfrance.fr/novel/renegade-immortal" target="_blank" rel="noopener">NovelFrance</a> · <a href="https://myanimelist.net/anime/55809/Xian_Ni" target="_blank" rel="noopener">MyAnimeList</a> · <a href="https://www.youtube.com/watch?v=mxUvD2TEeF8" target="_blank" rel="noopener">Interview YouTube</a>
-      </p>
     </article>
   </section>
 
@@ -159,8 +148,8 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
             )}
             <div class="book-info">
               <span class="book-num">Tome {b.data.book}</span>
-              <h3 class="book-title">{b.data.title}</h3>
-              {summary && <p class="book-title-fr">{summary.titleFr}</p>}
+              <h3 class="book-title">{summary?.titleFr || b.data.title}</h3>
+              {summary?.titleCn && <p class="book-title-cn">{summary.titleCn}</p>}
               <p class="book-meta">
                 {b.data.chaptersCount || '—'} chapitres
                 {b.data.rangeStart && b.data.rangeEnd ? ` · n°${b.data.rangeStart}–${b.data.rangeEnd}` : ''}
@@ -305,15 +294,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 .work-list li { margin-bottom: 6px; }
 .work-list strong { color: var(--ink-1); }
 
-.periods { display: flex; flex-direction: column; gap: 8px; }
-.period {
-  font-family: 'Noto Serif', serif; font-size: 14px; line-height: 1.7;
-  color: var(--ink-2); padding: 10px 14px;
-  border-left: 2px solid var(--crimson-dim); background: var(--bg-2);
-  border-radius: 0 var(--r-md) var(--r-md) 0;
-}
-.period strong { color: var(--ink-1); }
-
 .video-frame {
   position: relative; margin: 16px 0 8px;
   padding-bottom: 56.25%; height: 0; overflow: hidden;
@@ -334,13 +314,6 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
 }
 .biblio li { margin-bottom: 4px; }
 .biblio strong { color: var(--ink-1); }
-
-.sources-footer {
-  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .1em;
-  color: var(--ink-4); margin: 20px 0 0; line-height: 1.8;
-}
-.sources-footer a { color: var(--crimson-2); text-decoration: none; }
-.sources-footer a:hover { color: var(--gold); text-decoration: underline; }
 
 .books-section { padding: 24px 0 64px; }
 .section-header { text-align: center; margin-bottom: 32px; }
@@ -386,9 +359,9 @@ const summaryByBook = new Map(BOOK_SUMMARIES.map(s => [s.book, s]));
   font-family: 'Noto Serif', serif; font-size: 14px; font-weight: 600;
   color: var(--ink-1); margin: 0; line-height: 1.3;
 }
-.book-title-fr {
-  font-family: 'Cormorant Garamond', serif; font-size: 13px; font-style: italic;
-  color: var(--ink-3); margin: 0;
+.book-title-cn {
+  font-family: 'Noto Serif', serif; font-size: 13px;
+  color: var(--ink-4); margin: 2px 0 0; letter-spacing: .05em;
 }
 .book-meta {
   font-family: 'Cinzel', serif; font-size: 9px; letter-spacing: .1em;
