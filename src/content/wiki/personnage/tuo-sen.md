@@ -2,54 +2,93 @@
 name: Tuo Sen
 title: Tuo Sen
 type: personnage
-categories: ["Characters", "Male", "Ancient God", "Ancient Clan", "Alive", "Sea of Devils", "Planet Suzaku", "Alliance Star System"]
-image: /renegade-immortal-fr/wiki/images/Tuo Sen.webp
+categories: ["Characters", "Male", "Ancient God", "Ancient Clan", "Alive", "Sea of Devils", "Planet Suzaku", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World"]
+image: /renegade-immortal-fr/wiki/images/Tuo-sen.webp
 url: "https://xian-ni.fandom.com/wiki/Tuo_Sen"
-sections: ["{\"heading\":\"Background\",\"body\":\"In the past, Tu Si forcefully practiced the dangerous Flowing Ink Transformation Divine Technique in an attempt to break through to the legendary 9-Star stage. This resulted in him experiencing cultivation deviation and it allowed his inner devil, Tuo Sen, to devour his origin soul and take over the control of his body.\\n\\nHowever, Tu Si managed to seal him inside his cave which later came to be known as the Land of the Ancient God .\"}", "{\"heading\":\"Book Three\",\"body\":\"Wang Lin entered the Land of the Ancient God located inside the Chaotic Broken Stars in the Sea of Devils on Planet Suzaku .\\n\\nThere, he met a sealed Tuo Sen and after outwitting him, and with a bit of help from Tu Si's Moongazer Serpent, he obtained part of Tu Si's inheritance of knowledge and Tuo Sen obtained the entire inheritance of power. S1 EP33 Donghua First Appearance\"}", "{\"heading\":\"Book Five\",\"body\":\"Afterwards, Tuo Sen sent an avatar that was at the peak of Ascendant to kill Wang Lin while the cultivators of Suzaku were fighting for control of the Cultivation Planet Crystal. Fortunately, Mo Zhi appeared and saved Wang Lin from Tuo Sen's avatar.\"}", "{\"heading\":\"Book Eight\",\"body\":\"Over one thousands years later, Wang Lin gave the cultivators of Allheaven and Corpse Sect information regarding the sealed Tuo Sen inside the Land of the Ancient God. There, Tuo Sen made his Ancient Qi cultivator followers kill most of the weaker invaders while he fought Master Lu Fu . He also absorbed a sealed Master Wuji into one of his Ancient God stars.\"}", "{\"heading\":\"Book Nine\",\"body\":\"Finally, in the span of the next century, he broke his seal and escaped from the Land of the Ancient God. After escaping, he killed tens of thousands of Allheaven cultivators, seriously injured the Azure Dragon Divine Emperor , sealed the Brilliant Void Realm 's Ancestor, Lu Yundao , in one of his stars, destroyed the Brilliant Void Realm, seriously injured Mu Bingmei , killed quite a few members of the Corpse Sect, and then left the Alliance after talking to Qing Lin .\\n\\nAfter Wang Lin entered the Outer Realm , Tuo Sen immediately sensed his aura and rushed towards him. He pursued Wang Lin for a long time before the latter stopped near a Moon Devourer Clan branch and the two fought. During the climax of the battle, Tuo Sen suddenly escaped as Fourth Concubine used a spell on him to attempt to bind his will.\\n\\nLater, inside Ye Mo 's Ancient Tomb, Tuo Sen battled with Wang Lin in Ye Mo's throne room. Wang Lin used the energy from Ye Mo's inheritance to battle a much stronger Tuo Sen on equal grounds. After receiving Ye Mo's inheritance, Wang Lin became much stronger and managed to defeat Tuo Sen. However, Wang Lin still gave up his bit of inheritance of knowledge he got from Tu Si to Tuo Sen as he had already obtained a much stronger Ye Mo's inheritance.\\n\\nHowever, Wang Lin informed him that obtaining the entire inheritance might backfire as it might be Tu Si's backup plan in case something went wrong while practicing the dangerous Flowing Ink Transformation Divine Technique .\"}", "{\"heading\":\"Book Eleven\",\"body\":\"After Wang Lin exited the Cave's Dong Lin Sect , he entered the Fourth Flower among the Five Flowers Eight Doors after hearing Tuo Sen's roar from within it. He then realized that the Fourth Flower was connected to Ye Mo's Ancient Tomb. Wang Lin opened the Tomb and inside he found Tuo Sen who had attained Tu Si's complete inheritance. In fact, Wang Lin believed that this \\\"Tuo Sen\\\" was actually 50% Tuo Sen while the other 50% was Tu Si. He helped Wang Lin seal the Sovereign's soul to summon the Yi Si Puppet. He also held off Old Ghost Zhan and Vermillion Bird General and Black Tortoise General while Wang Lin entered the Tomb to obtain Ye Mo's complete inheritance.\\n\\nAfterwards, he bid farewell to Wang Lin and chose to stay back in the Cave World instead of reincarnating in the Immortal Astral Continent .\"}", "{\"heading\":\"Trivia\",\"body\":\"While Tuo Sen is considered to be a royal Ancient God in the cave world, he is only slightly above average at most in the Immortal Astral Continent. This is due to his bloodline being derived directly from Ye Mo, who although was a royal Ancient Clansmen in the Immortal Astral Continent, was not a very pure one. Since all the other members of the Ancient Clan in the Immortal Astral Continent are tied directly to the Ancient Ancestor, their bloodlines, especially the royals like Ye Dao and Ji Du, are much higher than his.\"}"]
+sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, **Tu Si** pratiqua forcément la dangereuse **Technique Divine de Transformation de l'Encre Courante** dans une tentative de percer jusqu'au stade légendaire de 9 Étoiles. Cela entraîna une déviation de sa cultivation et permit à son démon intérieur, Tuo Sen, de dévorer son âme originelle et de prendre le contrôle de son corps.\\n\\nCependant, Tu Si parvint à le sceller à l'intérieur de sa grotte, qui devint plus tard connue sous le nom de **Terre du Dieu Antique**.\"}", "{\"heading\":\"Tome 3\",\"body\":\"**Wang Lin** entra dans la Terre du Dieu Antique située dans les **Étoiles Brisées Chaotiques** de la **Mer des Démons** sur la **Planète Suzaku**.\\n\\nLà, il rencontra un Tuo Sen scellé et, après l'avoir trompé, et avec un peu d'aide du Serpent Regardeur de Lune de Tu Si, il obtint une partie de l'héritage de connaissance de Tu Si tandis que Tuo Sen obtint l'intégralité de l'héritage de puissance. Première apparition donghua S1 EP33.\"}", "{\"heading\":\"Tome 5\",\"body\":\"Ensuite, Tuo Sen envoya un avatar au stade de culmination d'**Ascendant** pour tuer Wang Lin pendant que les cultivateurs de Suzaku se battaient pour le contrôle du **Cristal de Planète de Cultivation**. Heureusement, **Mo Zhi** apparut et sauva Wang Lin de l'avatar de Tuo Sen.\"}", "{\"heading\":\"Tome 8\",\"body\":\"Plus de mille ans plus tard, Wang Lin donna aux cultivateurs d'**Allheaven** et de la **Secte des Cadavres** des informations concernant le Tuo Sen scellé à l'intérieur de la Terre du Dieu Antique. Là, Tuo Sen fit tuer par ses adeptes cultivateurs de Qi Antique la plupart des envahisseurs les plus faibles, tandis qu'il combattit **Maître Lu Fu**. Il absorba également un Maître Wuji scellé dans l'une de ses étoiles de Dieu Antique.\"}", "{\"heading\":\"Tome 9\",\"body\":\"Finalement, au cours du siècle suivant, il brisa son sceau et s'échappa de la Terre du Dieu Antique. Après s'être échappé, il tua des dizaines de milliers de cultivateurs d'Allheaven, blessa gravement l'**Empereur Divin du Dragon Azur**, scella l'Ancêtre du **Royaume du Vide Brillant**, Lu Yundao, dans l'une de ses étoiles, détruisit le Royaume du Vide Brillant, blessa gravement **Mu Bingmei**, tua un bon nombre de membres de la Secte des Cadavres, puis quitta l'**Alliance** après avoir parlé à **Qing Lin**.\\n\\nAprès que Wang Lin entra dans le **Royaume Extérieur**, Tuo Sen sentit immédiatement son aura et se précipita vers lui. Il poursuivit Wang Lin pendant longtemps avant que ce dernier ne s'arrête près d'une branche du **Clan Dévoreur de Lune** et les deux se battirent. Au paroxysme de la bataille, Tuo Sen s'échappa soudainement alors que la **Quatrième Concubine** utilisait un sortilège sur lui pour tenter de lier sa volonté.\\n\\nPlus tard, à l'intérieur de la **Tombe Antique de Ye Mo**, Tuo Sen combattit Wang Lin dans la salle du trône de Ye Mo. Wang Lin utilisa l'énergie de l'héritage de Ye Mo pour combattre un Tuo Sen bien plus fort sur un pied d'égalité. Après avoir reçu l'héritage de Ye Mo, Wang Lin devint bien plus fort et parvint à vaincre Tuo Sen. Cependant, Wang Lin renonça quand même au fragment d'héritage de connaissance qu'il avait obtenu de Tu Si pour le donner à Tuo Sen, car il avait déjà obtenu un héritage de Ye Mo bien plus puissant.\\n\\nCependant, Wang Lin l'informa que l'obtention de l'héritage complet pourrait se retourner contre lui, car cela pouvait faire partie du plan de secours de Tu Si au cas où quelque chose se serait mal passé pendant la pratique de la dangereuse Technique Divine de Transformation de l'Encre Courante.\"}", "{\"heading\":\"Tome 11\",\"body\":\"Après que Wang Lin quitta la **Secte Dong Lin** de la Grotte, il entra dans la **Quatrième Fleur** parmi les **Cinq Fleurs Huit Portes** après avoir entendu le rugissement de Tuo Sen depuis l'intérieur. Il réalisa alors que la Quatrième Fleur était connectée à la Tombe Antique de Ye Mo. Wang Lin ouvrit la Tombe et à l'intérieur il trouva Tuo Sen qui avait atteint l'héritage complet de Tu Si. En fait, Wang Lin crut que ce \\\"Tuo Sen\\\" était en réalité à 50% Tuo Sen et à 50% Tu Si. Il aida Wang Lin à sceller l'âme du Souverain pour invoquer la **Marionnette Yi Si**. Il retint également **le Vieux Fantôme Zhan** et le **Général Oiseau Vermillon** et le **Général Tortue Noire** pendant que Wang Lin entrait dans la Tombe pour obtenir l'héritage complet de Ye Mo.\\n\\nEnsuite, il fit ses adieux à Wang Lin et choisit de rester dans le Monde de la Grotte plutôt que de se réincarner sur le **Continent Astral Immortel**.\"}"]
 ---
-![Tuo Sen](/renegade-immortal-fr/wiki/images/Tuo Sen.webp)
+
+![Tuo Sen](/renegade-immortal-fr/wiki/images/Tuo-sen.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Tuo_Sen) (CC BY-SA)
 
-**Catégories :** Characters, Male, Ancient God, Ancient Clan, Alive, Sea of Devils, Planet Suzaku, Alliance Star System
+**Catégories :** Characters, Male, Ancient God, Ancient Clan, Alive, Sea of Devils, Planet Suzaku, Alliance Star System, Sealed Realm, Wang Lin's Cave World
 
-## Background
+## Description
 
-In the past, Tu Si forcefully practiced the dangerous Flowing Ink Transformation Divine Technique in an attempt to break through to the legendary 9-Star stage. This resulted in him experiencing cultivation deviation and it allowed his inner devil, Tuo Sen, to devour his origin soul and take over the control of his body.
+**Tuo Sen** (托森, *Tuō Sēn*) est un **Dieu Antique** et l'un des principaux antagonistes de Wang Lin pendant la majeure partie de l'œuvre. Tuo Sen et Wang Lin finirent par se réconcilier à la fin.
 
-However, Tu Si managed to seal him inside his cave which later came to be known as the Land of the Ancient God .
+### Fiche signalétique
 
-### Book Three
+- **Nom chinois :** 托森
+- **Pinyin :** Tuō Sēn
+- **Alias :** Tu Si (Forme Originelle), Mo Lihai (Marionnette)
+- **Statut vital :** Vivant
+- **Âge :** 100 000+
+- **Genre :** Homme
+- **Espèce :** Dieu Antique
+- **Cheveux :** Rouges
+- **Yeux :** Violet
+- **Corps :** Corps Antique
+- **Lignée :** Clan Antique
+- **Niveau de cultivation :** Dieu Antique 8 Étoiles (sans Héritage de Connaissance, infiniment proche de 9 Étoiles) → Dieu Antique 9 Étoiles
+- **Pouvoir de combat :** Étape initiale du Vide Arcane
+- **Ami :** Wang Lin
+- **Ennemi :** Wang Lin (anciennement)
+- **Alliés :** Magicien Démon Céleste, Seigneur Démon Six Désirs, Bossu Meng, Duanmu Ji, Wang Qingyue, Gun Lan (toutes marionnettes)
+- **Occupation :** Souverain de la Terre du Dieu Antique
+- **Système stellaire :** Système Stellaire de l'Alliance
+- **Royaume :** Royaume Scellé
+- **Monde :** Monde de la Grotte de Wang Lin
+- **Planète :** Planète Suzaku
+- **Continent :** Mer des Démons
+- **Région :** Étoiles Brisées Chaotiques
+- **Première apparition :** Chapitre ~400 (Tome 3)
 
-Wang Lin entered the Land of the Ancient God located inside the Chaotic Broken Stars in the Sea of Devils on Planet Suzaku .
+## Citation célèbre
 
-There, he met a sealed Tuo Sen and after outwitting him, and with a bit of help from Tu Si's Moongazer Serpent, he obtained part of Tu Si's inheritance of knowledge and Tuo Sen obtained the entire inheritance of power. S1 EP33 Donghua First Appearance
+> « Petit brat de la Pilule Dorée. Même si tu te caches parmi les cieux, ou que tu fuis dans le monde souterrain le plus profond. Moi, Tuo Sen, te trouverai. Je déchirerai ton corps et ton âme et reprendrai l'héritage qui n'a jamais été le tien. »
 
-### Book Five
+— Tuo Sen à Wang Lin
 
-Afterwards, Tuo Sen sent an avatar that was at the peak of Ascendant to kill Wang Lin while the cultivators of Suzaku were fighting for control of the Cultivation Planet Crystal. Fortunately, Mo Zhi appeared and saved Wang Lin from Tuo Sen's avatar.
+## Contexte
 
-### Book Eight
+Dans le passé, **Tu Si** pratiqua forcément la dangereuse **Technique Divine de Transformation de l'Encre Courante** dans une tentative de percer jusqu'au stade légendaire de 9 Étoiles. Cela entraîna une déviation de sa cultivation et permit à son démon intérieur, Tuo Sen, de dévorer son âme originelle et de prendre le contrôle de son corps.
 
-Over one thousands years later, Wang Lin gave the cultivators of Allheaven and Corpse Sect information regarding the sealed Tuo Sen inside the Land of the Ancient God. There, Tuo Sen made his Ancient Qi cultivator followers kill most of the weaker invaders while he fought Master Lu Fu . He also absorbed a sealed Master Wuji into one of his Ancient God stars.
+Cependant, Tu Si parvint à le sceller à l'intérieur de sa grotte, qui devint plus tard connue sous le nom de **Terre du Dieu Antique**.
 
-### Book Nine
+## Histoire
 
-Finally, in the span of the next century, he broke his seal and escaped from the Land of the Ancient God. After escaping, he killed tens of thousands of Allheaven cultivators, seriously injured the Azure Dragon Divine Emperor , sealed the Brilliant Void Realm 's Ancestor, Lu Yundao , in one of his stars, destroyed the Brilliant Void Realm, seriously injured Mu Bingmei , killed quite a few members of the Corpse Sect, and then left the Alliance after talking to Qing Lin .
+### Tome 3
 
-After Wang Lin entered the Outer Realm , Tuo Sen immediately sensed his aura and rushed towards him. He pursued Wang Lin for a long time before the latter stopped near a Moon Devourer Clan branch and the two fought. During the climax of the battle, Tuo Sen suddenly escaped as Fourth Concubine used a spell on him to attempt to bind his will.
+**Wang Lin** entra dans la Terre du Dieu Antique située dans les **Étoiles Brisées Chaotiques** de la **Mer des Démons** sur la **Planète Suzaku**.
 
-Later, inside Ye Mo 's Ancient Tomb, Tuo Sen battled with Wang Lin in Ye Mo's throne room. Wang Lin used the energy from Ye Mo's inheritance to battle a much stronger Tuo Sen on equal grounds. After receiving Ye Mo's inheritance, Wang Lin became much stronger and managed to defeat Tuo Sen. However, Wang Lin still gave up his bit of inheritance of knowledge he got from Tu Si to Tuo Sen as he had already obtained a much stronger Ye Mo's inheritance.
+Là, il rencontra un Tuo Sen scellé et, après l'avoir trompé, et avec un peu d'aide du Serpent Regardeur de Lune de Tu Si, il obtint une partie de l'héritage de connaissance de Tu Si tandis que Tuo Sen obtint l'intégralité de l'héritage de puissance. Première apparition donghua S1 EP33.
 
-However, Wang Lin informed him that obtaining the entire inheritance might backfire as it might be Tu Si's backup plan in case something went wrong while practicing the dangerous Flowing Ink Transformation Divine Technique .
+### Tome 5
 
-### Book Eleven
+Ensuite, Tuo Sen envoya un avatar au stade de culmination d'**Ascendant** pour tuer Wang Lin pendant que les cultivateurs de Suzaku se battaient pour le contrôle du **Cristal de Planète de Cultivation**. Heureusement, **Mo Zhi** apparut et sauva Wang Lin de l'avatar de Tuo Sen.
 
-After Wang Lin exited the Cave's Dong Lin Sect , he entered the Fourth Flower among the Five Flowers Eight Doors after hearing Tuo Sen's roar from within it. He then realized that the Fourth Flower was connected to Ye Mo's Ancient Tomb. Wang Lin opened the Tomb and inside he found Tuo Sen who had attained Tu Si's complete inheritance. In fact, Wang Lin believed that this "Tuo Sen" was actually 50% Tuo Sen while the other 50% was Tu Si. He helped Wang Lin seal the Sovereign's soul to summon the Yi Si Puppet. He also held off Old Ghost Zhan and Vermillion Bird General and Black Tortoise General while Wang Lin entered the Tomb to obtain Ye Mo's complete inheritance.
+### Tome 8
 
-Afterwards, he bid farewell to Wang Lin and chose to stay back in the Cave World instead of reincarnating in the Immortal Astral Continent .
+Plus de mille ans plus tard, Wang Lin donna aux cultivateurs d'**Allheaven** et de la **Secte des Cadavres** des informations concernant le Tuo Sen scellé à l'intérieur de la Terre du Dieu Antique. Là, Tuo Sen fit tuer par ses adeptes cultivateurs de Qi Antique la plupart des envahisseurs les plus faibles, tandis qu'il combattit **Maître Lu Fu**. Il absorba également un Maître Wuji scellé dans l'une de ses étoiles de Dieu Antique.
 
-### Trivia
+### Tome 9
 
-While Tuo Sen is considered to be a royal Ancient God in the cave world, he is only slightly above average at most in the Immortal Astral Continent. This is due to his bloodline being derived directly from Ye Mo, who although was a royal Ancient Clansmen in the Immortal Astral Continent, was not a very pure one. Since all the other members of the Ancient Clan in the Immortal Astral Continent are tied directly to the Ancient Ancestor, their bloodlines, especially the royals like Ye Dao and Ji Du, are much higher than his.
+Finalement, au cours du siècle suivant, il brisa son sceau et s'échappa de la Terre du Dieu Antique. Après s'être échappé, il tua des dizaines de milliers de cultivateurs d'Allheaven, blessa gravement l'**Empereur Divin du Dragon Azur**, scella l'Ancêtre du **Royaume du Vide Brillant**, Lu Yundao, dans l'une de ses étoiles, détruisit le Royaume du Vide Brillant, blessa gravement **Mu Bingmei**, tua un bon nombre de membres de la Secte des Cadavres, puis quitta l'**Alliance** après avoir parlé à **Qing Lin**.
 
+Après que Wang Lin entra dans le **Royaume Extérieur**, Tuo Sen sentit immédiatement son aura et se précipita vers lui. Il poursuivit Wang Lin pendant longtemps avant que ce dernier ne s'arrête près d'une branche du **Clan Dévoreur de Lune** et les deux se battirent. Au paroxysme de la bataille, Tuo Sen s'échappa soudainement alors que la **Quatrième Concubine** utilisait un sortilège sur lui pour tenter de lier sa volonté.
+
+Plus tard, à l'intérieur de la **Tombe Antique de Ye Mo**, Tuo Sen combattit Wang Lin dans la salle du trône de Ye Mo. Wang Lin utilisa l'énergie de l'héritage de Ye Mo pour combattre un Tuo Sen bien plus fort sur un pied d'égalité. Après avoir reçu l'héritage de Ye Mo, Wang Lin devint bien plus fort et parvint à vaincre Tuo Sen. Cependant, Wang Lin renonça quand même au fragment d'héritage de connaissance qu'il avait obtenu de Tu Si pour le donner à Tuo Sen, car il avait déjà obtenu un héritage de Ye Mo bien plus puissant.
+
+Cependant, Wang Lin l'informa que l'obtention de l'héritage complet pourrait se retourner contre lui, car cela pouvait faire partie du plan de secours de Tu Si au cas où quelque chose se serait mal passé pendant la pratique de la dangereuse Technique Divine de Transformation de l'Encre Courante.
+
+### Tome 11
+
+Après que Wang Lin quitta la **Secte Dong Lin** de la Grotte, il entra dans la **Quatrième Fleur** parmi les **Cinq Fleurs Huit Portes** après avoir entendu le rugissement de Tuo Sen depuis l'intérieur. Il réalisa alors que la Quatrième Fleur était connectée à la Tombe Antique de Ye Mo. Wang Lin ouvrit la Tombe et à l'intérieur il trouva Tuo Sen qui avait atteint l'héritage complet de Tu Si. En fait, Wang Lin crut que ce « Tuo Sen » était en réalité à 50 % Tuo Sen et à 50 % Tu Si. Il aida Wang Lin à sceller l'âme du Souverain pour invoquer la **Marionnette Yi Si**. Il retint également **le Vieux Fantôme Zhan** et le **Général Oiseau Vermillon** et le **Général Tortue Noire** pendant que Wang Lin entrait dans la Tombe pour obtenir l'héritage complet de Ye Mo.
+
+Ensuite, il fit ses adieux à Wang Lin et choisit de rester dans le Monde de la Grotte plutôt que de se réincarner sur le **Continent Astral Immortel**.
+
+## Trivia
+
+Bien que Tuo Sen soit considéré comme un Dieu Antique royal dans le monde de la grotte, il n'est que légèrement au-dessus de la moyenne tout au plus sur le Continent Astral Immortel. Cela est dû au fait que sa lignée dérive directement de Ye Mo, qui, bien qu'il fût un membre royal du Clan Antique sur le Continent Astral Immortel, n'avait pas une lignée très pure. Puisque tous les autres membres du Clan Antique sur le Continent Astral Immortel sont directement liés à l'Ancêtre Antique, leurs lignées, en particulier celles des royautés comme Ye Dao et Ji Du, sont bien supérieures à la sienne.
