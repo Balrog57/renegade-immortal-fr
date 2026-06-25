@@ -6,15 +6,19 @@ import LoreEntry from '~/components/LoreEntry.astro';
 interface Props {
   type: 'personnage' | 'lieu' | 'secte' | 'cultivation';
   active: string;
+  heroSlug?: string;
 }
 
-const { type, active } = Astro.props;
+const { type, active, heroSlug } = Astro.props;
 const section = loreSectionByType(type);
 const entries = await getLoreEntries(type);
 const prepared = await Promise.all(entries.map(prepareLore));
+const hero = heroSlug ? prepared.find(p => p.slug === heroSlug) : null;
+const rest = hero ? prepared.filter(p => p.slug !== heroSlug) : prepared;
 ---
 
 <Base title={section?.label ?? 'Wiki'} active={active}>
+<div class="lore-container">
   <header class="page-header">
     <h1 class="page-title">{section?.label}</h1>
     <p class="page-intro">
@@ -23,9 +27,39 @@ const prepared = await Promise.all(entries.map(prepareLore));
     </p>
   </header>
 
+  {hero && (
+    <a href="#" class="hero-card" data-slug={hero.slug} data-name={hero.name} data-cats={hero.categories.join(', ')} data-image={hero.image} data-url={hero.url}>
+      <div class="hero-card-img-wrap">
+        {hero.image
+          ? <img src={hero.image} alt={hero.name} class="hero-card-img" />
+          : <div class="hero-card-placeholder">{hero.name.charAt(0)}</div>}
+      </div>
+      <div class="hero-card-body">
+        <p class="hero-card-tag">Personnage principal</p>
+        <h2 class="hero-card-name">{hero.name}</h2>
+        <p class="hero-card-title">{hero.title}</p>
+        <p class="hero-card-cats">{hero.categories.join(' · ')}</p>
+      </div>
+    </a>
+  )}
+
   <div class="lore-grid">
-    {prepared.map(p => <LoreEntry entry={p} />)}
+    {rest.map(p => <LoreEntry entry={p} />)}
   </div>
+
+  {hero && (
+    <template
+      data-lore={hero.slug}
+      data-name={hero.name}
+      data-title={hero.title}
+      data-image={hero.image || ''}
+      data-cats={hero.categories.join(', ')}
+      data-url={hero.url || ''}
+    >
+      <hero.Content />
+    </template>
+  )}
+</div>
 
   <dialog id="lore-modal" class="lore-modal">
     <div class="lore-modal-inner">
@@ -47,10 +81,10 @@ const prepared = await Promise.all(entries.map(prepareLore));
 
 <script is:inline>
   (() => {
-    const grid = document.querySelector('.lore-grid');
+    const container = document.querySelector('.lore-container');
     const dialog = document.getElementById('lore-modal');
     const closeBtn = document.getElementById('lore-modal-close');
-    if (!grid || !dialog) return;
+    if (!container || !dialog) return;
 
     const nameEl = document.getElementById('lore-modal-name');
     const catsEl = document.getElementById('lore-modal-cats');
@@ -58,8 +92,8 @@ const prepared = await Promise.all(entries.map(prepareLore));
     const bodyEl = document.getElementById('lore-modal-body');
     const sourceEl = document.getElementById('lore-modal-source');
 
-    grid.addEventListener('click', (e) => {
-      const card = e.target.closest('.lore-card');
+    container.addEventListener('click', (e) => {
+      const card = e.target.closest('.lore-card, .hero-card');
       if (!card) return;
       const slug = card.dataset.slug;
       const tpl = document.querySelector(`template[data-lore="${slug}"]`);
@@ -112,6 +146,52 @@ const prepared = await Promise.all(entries.map(prepareLore));
 .page-intro {
   font-family: 'Cormorant Garamond', serif; font-size: 18px; font-style: italic;
   color: var(--ink-3); margin: 0;
+}
+
+.hero-card {
+  display: flex; align-items: center; gap: 24px;
+  padding: 24px; margin-bottom: 32px;
+  border: 1px solid var(--line); border-radius: var(--r-lg);
+  background: linear-gradient(135deg, var(--bg-2) 0%, var(--bg-1) 100%);
+  cursor: pointer; text-decoration: none; color: inherit;
+  transition: border-color .2s, transform .2s, box-shadow .2s;
+}
+.hero-card:hover {
+  border-color: var(--gold-dim); transform: translateY(-2px);
+  box-shadow: 0 8px 24px rgba(0, 0, 0, .3);
+}
+.hero-card-img-wrap { flex-shrink: 0; }
+.hero-card-img {
+  width: 120px; height: 120px; border-radius: 50%; object-fit: cover;
+  border: 3px solid var(--line);
+}
+.hero-card-placeholder {
+  width: 120px; height: 120px; border-radius: 50%;
+  display: flex; align-items: center; justify-content: center;
+  font-family: 'Cinzel', serif; font-size: 40px; font-weight: 600;
+  color: var(--ink-3); background: var(--bg-3); border: 3px solid var(--line);
+}
+.hero-card-body { flex: 1; min-width: 0; }
+.hero-card-tag {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .2em;
+  text-transform: uppercase; color: var(--crimson-2); margin: 0 0 8px;
+}
+.hero-card-name {
+  font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
+  color: var(--ink-1); margin: 0 0 4px; letter-spacing: .03em;
+}
+.hero-card-title {
+  font-family: 'Cormorant Garamond', serif; font-size: 18px;
+  font-style: italic; color: var(--ink-3); margin: 0 0 12px;
+}
+.hero-card-cats {
+  font-family: 'Cinzel', serif; font-size: 10px; letter-spacing: .12em;
+  text-transform: uppercase; color: var(--ink-4); margin: 0;
+}
+
+@media (max-width: 640px) {
+  .hero-card { flex-direction: column; text-align: center; gap: 16px; }
+  .hero-card-body { text-align: center; }
 }
 
 .lore-grid {
