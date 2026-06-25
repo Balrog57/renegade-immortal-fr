@@ -1,39 +1,61 @@
 ---
 name: Daoist Water
-title: Daoist Water
+title: Daoist Water (Shui Daozi)
 type: personnage
-categories: ["Characters", "Male", "Human", "Antagonistic", "God Sect", "Cloud Sea Star System", "Sealed Realm", "Wang Lin's Cave World"]
-image: /renegade-immortal-fr/wiki/images/O.webp
+categories: ["Characters", "Male", "Human", "Antagonistic", "God Sect", "Cloud Sea Star System", "Sealed Realm", "Wang Lin's Cave World", "Deceased", "Nirvana Void"]
 url: "https://xian-ni.fandom.com/wiki/Daoist_Water"
-sections: ["{\"heading\":\"Appearance\",\"body\":\"This person looked like a boy, but his hair was grey.\"}", "{\"heading\":\"Personality\",\"body\":\"He is a cruel person and takes pleasure in witnessing others' misery; he loves destroying the treasures of weaker cultivators and watching their reaction.\"}", "{\"heading\":\"Background\",\"body\":\"In the past, he served the previous Lord of the Sealed Realm as his slave and fought alongside him on numerous battlefields.\\n\\nAt some point in time, he betrayed his own master, the Lord of the Sealed Realm, by helping Sovereign and Dao Master Miao Yin to gravely injure him as such that he was forced to seek refuge inside the Heaven Defying Bead ..\"}", "{\"heading\":\"History\",\"body\":\"Soon after Wang Lin entered the Cloud Sea Star System, Daoist Water sensed the aura of the previous Lord of the Sealed Realm and began investigating into who it was coming from.\\n\\nAfter the ranking competition at the Everlasting Sect concluded, Daoist Water's disciple, Wang Shanshan , sent him a recording of Wang Lin's battles in which he saw Wang Lin use the Stop Spell and became convinced that Wang Lin was actually the reincarnated Lord of the Sealed Realm.\\n\\nHe stopped the ranking competition held between the rank 8 sects and soon after rushed to the Rank 5 Region to kill Wang Lin. During the battle, Wang Lin managed to awaken his five essences: Thunder, Fire, Life & Death, Karma, and True & False. This terrified the already weak-minded Daoist Water and further strengthened his determination to kill Wang Lin. However, before he could do so, the Lord of the Sealed Realm appeared from the Sealed Realm Jade , injured Daoist Water, and forced him to retreat.\\n\\nMany years later, Wang Lin returned from the Outer Realm and killed him.\"}"]
+sections: ["{\"heading\":\"Apparence\",\"body\":\"Cette personne ressemblait à un jeune garçon, mais ses cheveux étaient gris.\"}", "{\"heading\":\"Personnalité\",\"body\":\"C'est une personne cruelle qui prend plaisir à être témoin de la misère des autres ; il aime détruire les trésors des cultivateurs plus faibles et observer leur réaction.\"}", "{\"heading\":\"Background\",\"body\":\"Dans le passé, il servit l'ancien **Seigneur du Royaume Scellé** comme son esclave et combattit à ses côtés sur de nombreux champs de bataille.\\n\\nÀ un moment, il **trahit** son propre maître, le Seigneur du Royaume Scellé, en aidant le **Souverain** et **Dao Master Miao Yin** à le blesser gravement, de sorte qu'il fut forcé de chercher refuge à l'intérieur de la **Perle du Ciel Insondable**.\"}", "{\"heading\":\"Histoire\",\"body\":\"Peu après que Wang Lin entra dans le **Cloud Sea Star System**, Daoist Water sentit l'aura de l'ancien Seigneur du Royaume Scellé et commença à enquêter sur sa provenance.\\n\\nAprès la fin de la compétition de classement à l'**Everlasting Sect**, la disciple de Daoist Water, **Wang Shanshan**, lui envoya un enregistrement des batailles de Wang Lin dans lequel il vit Wang Lin utiliser le **Stop Spell** et devint convaincu que Wang Lin était en fait le Seigneur du Royaume Scellé réincarné.\\n\\nIl arrêta la compétition de classement tenue entre les sectes de rang 8 et se précipita peu après vers la **Région de Rang 5** pour tuer Wang Lin. Durant la bataille, Wang Lin parvint à éveiller ses cinq essences : **Tonnerre, Feu, Vie et Mort, Karma, et Vrai et Faux**. Cela terrifia le Daoist Water déjà faible d'esprit et renforça davantage sa détermination à tuer Wang Lin. Cependant, avant qu'il ne puisse le faire, le **Seigneur du Royaume Scellé** apparut du Jade Scellé, blessa Daoist Water, et le força à se retirer.\\n\\nDe nombreuses années plus tard, Wang Lin revint du **Royaume Extérieur** et le tua.\"}"]
 ---
-![Daoist Water](/renegade-immortal-fr/wiki/images/O.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Daoist_Water) (CC BY-SA)
 
-**Catégories :** Characters, Male, Human, Antagonistic, God Sect, Cloud Sea Star System, Sealed Realm, Wang Lin's Cave World
+**Catégories :** Characters, Male, Human, Antagonistic, God Sect, Cloud Sea Star System, Sealed Realm, Wang Lin's Cave World, Deceased, Nirvana Void
 
-## Appearance
+## Description
 
-This person looked like a boy, but his hair was grey.
+**Daoist Water** (水道子, *Shuǐ Dào Zi*), aussi connu comme le **Premier Ancien de la Secte du Dieu** (Head Elder God Sect), est un antagoniste majeur des Tomes 9 à 12. Depuis qu'il a tué l'ancien Chef de la Secte du Dieu, le **Seigneur du Royaume Scellé**, il a obtenu l'autorité de diriger la secte.
 
-### Personality
+### Fiche signalétique
 
-He is a cruel person and takes pleasure in witnessing others' misery; he loves destroying the treasures of weaker cultivators and watching their reaction.
+- **Nom chinois :** 水道子
+- **Pinyin :** Shuǐ Dào Zi
+- **Alias :** Premier Ancien de la Secte du Dieu
+- **Statut vital :** Décédé
+- **Tué par :** Wang Lin
+- **Âge :** 100 000+
+- **Genre :** Homme
+- **Espèce :** Humain
+- **Cheveux :** Blancs
+- **Yeux :** Bleus
+- **Essence :** Yin-Yang
+- **Niveau de cultivation :** Nirvana Void (début)
+- **Occupation :** Premier Ancien de la **Secte du Dieu**, Espion du **Royaume Extérieur**
+- **Ennemis :** Wang Lin, Seigneur du Royaume Scellé
+- **Alliés :** Souverain, Dao Master Miao Yin
+- **Maître/Propriétaire :** Seigneur du Royaume Scellé
+- **Système stellaire :** Cloud Sea Star System
+- **Première apparition :** Chapitre 1221
 
-### Background
+## Apparence
 
-In the past, he served the previous Lord of the Sealed Realm as his slave and fought alongside him on numerous battlefields.
+Cette personne ressemblait à un jeune garçon, mais ses cheveux étaient gris.
 
-At some point in time, he betrayed his own master, the Lord of the Sealed Realm, by helping Sovereign and Dao Master Miao Yin to gravely injure him as such that he was forced to seek refuge inside the Heaven Defying Bead ..
+## Personnalité
 
-### History
+C'est une personne cruelle qui prend plaisir à être témoin de la misère des autres ; il aime détruire les trésors des cultivateurs plus faibles et observer leur réaction.
 
-Soon after Wang Lin entered the Cloud Sea Star System, Daoist Water sensed the aura of the previous Lord of the Sealed Realm and began investigating into who it was coming from.
+## Background
 
-After the ranking competition at the Everlasting Sect concluded, Daoist Water's disciple, Wang Shanshan , sent him a recording of Wang Lin's battles in which he saw Wang Lin use the Stop Spell and became convinced that Wang Lin was actually the reincarnated Lord of the Sealed Realm.
+Dans le passé, il servit l'ancien **Seigneur du Royaume Scellé** comme son esclave et combattit à ses côtés sur de nombreux champs de bataille.
 
-He stopped the ranking competition held between the rank 8 sects and soon after rushed to the Rank 5 Region to kill Wang Lin. During the battle, Wang Lin managed to awaken his five essences: Thunder, Fire, Life & Death, Karma, and True & False. This terrified the already weak-minded Daoist Water and further strengthened his determination to kill Wang Lin. However, before he could do so, the Lord of the Sealed Realm appeared from the Sealed Realm Jade , injured Daoist Water, and forced him to retreat.
+À un moment, il **trahit** son propre maître, le Seigneur du Royaume Scellé, en aidant le **Souverain** et **Dao Master Miao Yin** à le blesser gravement, de sorte qu'il fut forcé de chercher refuge à l'intérieur de la **Perle du Ciel Insondable**.
 
-Many years later, Wang Lin returned from the Outer Realm and killed him.
+## Histoire
 
+Peu après que Wang Lin entra dans le **Cloud Sea Star System**, Daoist Water sentit l'aura de l'ancien Seigneur du Royaume Scellé et commença à enquêter sur sa provenance.
+
+Après la fin de la compétition de classement à l'**Everlasting Sect**, la disciple de Daoist Water, **Wang Shanshan**, lui envoya un enregistrement des batailles de Wang Lin dans lequel il vit Wang Lin utiliser le **Stop Spell** et devint convaincu que Wang Lin était en fait le Seigneur du Royaume Scellé réincarné.
+
+Il arrêta la compétition de classement tenue entre les sectes de rang 8 et se précipita peu après vers la **Région de Rang 5** pour tuer Wang Lin. Durant la bataille, Wang Lin parvint à éveiller ses cinq essences : **Tonnerre, Feu, Vie et Mort, Karma, et Vrai et Faux**. Cela terrifia le Daoist Water déjà faible d'esprit et renforça davantage sa détermination à tuer Wang Lin. Cependant, avant qu'il ne puisse le faire, le **Seigneur du Royaume Scellé** apparut du Jade Scellé, blessa Daoist Water, et le força à se retirer.
+
+De nombreuses années plus tard, Wang Lin revint du **Royaume Extérieur** et le tua.
