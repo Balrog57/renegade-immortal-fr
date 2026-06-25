@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Planète violette\",\"body\":\"La planète Tian Yun �
 ---
 ![Planet Tian Yun](/renegade-immortal-fr/wiki/images/Planet Tian Yun.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Planet_Tian_Yun) (CC BY-SA)
 
 **Catégories :** Stub, Planets, Locations, Heavenly Fate Sect, Alliance Star System, Sealed Realm, Wang Lin's Cave World
 

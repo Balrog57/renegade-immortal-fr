@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Personnalité\",\"body\":\"Au début de l'histoire, W
 
 ![Wang Zhuo](/renegade-immortal-fr/wiki/images/Wang-zhuo.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Wang_Zhuo) (CC BY-SA)
 
 **Catégories :** Characters, Male, Wang Clan, Heng Yue Sect, Human, Deceased, Tian Dao Sect, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku, Country of Zhao, Core Formation
 

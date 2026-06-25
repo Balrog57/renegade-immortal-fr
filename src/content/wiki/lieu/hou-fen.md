@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Localisation\",\"body\":\"Le pays de cultivation de r
 ---
 ![Hou Fen](/renegade-immortal-fr/wiki/images/Corpse Yin Sect(Hou Fen).webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Hou_Fen) (CC BY-SA)
 
 **Catégories :** Locations, Countries
 

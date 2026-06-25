@@ -68,10 +68,7 @@ const rest = hero ? prepared.filter(p => p.slug !== heroSlug) : prepared;
         <div id="lore-modal-img-wrap"></div>
         <div class="lore-modal-titles">
           <h2 id="lore-modal-name"></h2>
-          <p id="lore-modal-cats"></p>
-          <a id="lore-modal-source" href="#" target="_blank" rel="noopener" class="lore-modal-source">
-            Source : Fandom Wiki ↗
-          </a>
+          <p id="lore-modal-title-sub"></p>
         </div>
       </div>
       <div class="lore-modal-body" id="lore-modal-body"></div>
@@ -87,10 +84,9 @@ const rest = hero ? prepared.filter(p => p.slug !== heroSlug) : prepared;
     if (!container || !dialog) return;
 
     const nameEl = document.getElementById('lore-modal-name');
-    const catsEl = document.getElementById('lore-modal-cats');
+    const titleEl = document.getElementById('lore-modal-title-sub');
     const imgWrap = document.getElementById('lore-modal-img-wrap');
     const bodyEl = document.getElementById('lore-modal-body');
-    const sourceEl = document.getElementById('lore-modal-source');
 
     container.addEventListener('click', (e) => {
       const card = e.target.closest('.lore-card, .hero-card');
@@ -100,20 +96,12 @@ const rest = hero ? prepared.filter(p => p.slug !== heroSlug) : prepared;
       if (!tpl) return;
 
       nameEl.textContent = tpl.dataset.name || '';
-      catsEl.textContent = tpl.dataset.cats || '';
+      titleEl.textContent = tpl.dataset.title || '';
 
       const img = tpl.dataset.image;
       imgWrap.innerHTML = img
         ? `<img src="${img}" alt="${tpl.dataset.name || ''}" class="lore-modal-img" />`
         : '';
-
-      const url = tpl.dataset.url;
-      if (url) {
-        sourceEl.href = url;
-        sourceEl.style.display = '';
-      } else {
-        sourceEl.style.display = 'none';
-      }
 
       bodyEl.innerHTML = '';
       bodyEl.appendChild(tpl.content.cloneNode(true));

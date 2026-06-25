@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Description\",\"body\":\"Hongdie était une cultivatr
 
 ![Red Butterfly](/renegade-immortal-fr/wiki/images/Hongdie.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Hongdie) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Alive, Xue Yue, Planet Suzaku, Cultivation Alliance, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Nirvana Scryer
 

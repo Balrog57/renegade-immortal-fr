@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Personnalité\",\"body\":\"Teng Huayuan est un homme 
 
 ![Teng Huayuan](/renegade-immortal-fr/wiki/images/Teng-huayuan.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Teng_Huayuan) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Teng Clan, Antagonistic, Nascent Soul, Deceased, Planet Suzaku, Sealed Realm, Alliance Star System, Wang Lin's Cave World, Country of Zhao
 

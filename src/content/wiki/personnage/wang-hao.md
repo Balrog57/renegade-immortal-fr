@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Personnalité\",\"body\":\"Contrairement à son père
 
 ![Wang Hao](/renegade-immortal-fr/wiki/images/Young-wang-hao.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Wang_Hao) (CC BY-SA)
 
 **Catégories :** Characters, Male, Wang Clan, Heng Yue Sect, Deceased, Foundation Establishment, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku, Country of Zhao
 

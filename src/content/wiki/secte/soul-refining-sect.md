@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Contexte\",\"body\":\"Lorsque le pays de Suzaku arriv
 ---
 ![Secte de Raffinage des Âmes](/renegade-immortal-fr/wiki/images/SoulRefiningSect.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Soul_Refining_Sect) (CC BY-SA)
 
 **Catégories :** Sects, Organisations, Country of Pilu, Planet Suzaku, Sealed Realm, Alliance Star System, Wang Lin's Cave World
 

@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Clan Céleste — Stades de cultivation\",\"body\":\"
 
 ![Cultivation](/renegade-immortal-fr/wiki/images/Celestial-cloud-cultivation-couple.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Cultivation) (CC BY-SA)
 
 **Catégories :** Cultivation
 

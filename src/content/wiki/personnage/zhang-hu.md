@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Personnalité\",\"body\":\"Zhang Hu est un jeune homm
 
 ![Zhang Hu](/renegade-immortal-fr/wiki/images/Zhang-hu.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Zhang_Hu) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Qi Condensation, Heng Yue Sect, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku
 

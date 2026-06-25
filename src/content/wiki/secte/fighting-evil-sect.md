@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Histoire\",\"body\":\"La **Secte de la Lutte contre l
 ---
 ![Secte de la Lutte contre le Mal](/renegade-immortal-fr/wiki/images/Fighting Evil Sect.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Fighting_Evil_Sect) (CC BY-SA)
 
 **Catégories :** Sects, Organisations, Planet Suzaku, Sea of Devils
 

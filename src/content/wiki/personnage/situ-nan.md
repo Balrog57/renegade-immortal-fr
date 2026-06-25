@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Personnalité\",\"body\":\"Situ Nan est un homme **li
 
 ![Situ Nan](/renegade-immortal-fr/wiki/images/Situ-nan.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Situ_Nan) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku
 

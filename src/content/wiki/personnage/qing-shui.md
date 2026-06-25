@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"L'apparence de Qing Shui chang
 
 ![Qing Shui](/renegade-immortal-fr/wiki/images/Qing-shui.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Qing_Shui) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Immortal Monarch, Celestial, Allheaven Star System, Thunder Celestial Realm
 

@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"Qing Yi avait environ la vingt
 
 ![Qing Yi](/renegade-immortal-fr/wiki/images/Qing-yi.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Qing_Yi) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Deceased, Wang Lin's Cave World, Sealed Realm, Alliance Star System, Planet Ran Yun, Soul Formation
 

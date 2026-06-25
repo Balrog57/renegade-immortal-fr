@@ -8,7 +8,6 @@ interface Props {
 const { entry } = Astro.props;
 const C = entry.Content;
 const initial = entry.name.charAt(0).toUpperCase();
-const cats = entry.categories.join(', ');
 ---
 
 <div class="lore-card" data-slug={entry.slug}>
@@ -18,18 +17,14 @@ const cats = entry.categories.join(', ');
     <div class="lore-card-placeholder">{initial}</div>
   )}
   <span class="lore-card-name">{entry.name}</span>
-  {entry.categories.length > 0 && (
-    <span class="lore-card-cats">{cats}</span>
-  )}
 </div>
 
-<template
-  data-lore={entry.slug}
-  data-name={entry.name}
-  data-title={entry.title}
-  data-image={entry.image || ''}
-  data-cats={cats}
-  data-url={entry.url || ''}
->
+  <template
+    data-lore={entry.slug}
+    data-name={entry.name}
+    data-title={entry.title}
+    data-image={entry.image || ''}
+    data-url={entry.url || ''}
+  >
   <C />
 </template>

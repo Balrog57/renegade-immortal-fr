@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"Zhou Rui est une jeune femme j
 
 ![Zhou Rui](/renegade-immortal-fr/wiki/images/Zhou-Rui.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Zhou_Rui) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Heng Yue Sect, Country of Zhao, Planet Suzaku, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Qi Condensation, Deceased
 

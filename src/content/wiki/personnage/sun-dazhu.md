@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Description\",\"body\":\"Sun Dazhu est un ancien (Eld
 
 ![Sun Dazhu](/renegade-immortal-fr/wiki/images/Sun-Dazhu.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Sun_Dazhu) (CC BY-SA)
 
 **Catégories :** Characters, Male, Deceased, Antagonistic, Heng Yue Sect, Qi Condensation, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku, Country of Zhao
 

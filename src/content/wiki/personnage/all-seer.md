@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"L'All-Seer se frotta la barbe 
 
 ![All-Seer](/renegade-immortal-fr/wiki/images/All-seer.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/All-Seer) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Deceased, Antagonistic, Heavenly Fate Sect, Planet Tian Yun, Cultivation Alliance, Brilliant Void Star System, Sealed Realm, Wang Lin's Cave World, Arcane Void, Third Step
 

@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Histoire\",\"body\":\"### Origines et renaissance de 
 
 ![Zhou Ru](/renegade-immortal-fr/wiki/images/Zhou-ru.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Zhou_Ru) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Planet Suzaku, Country of Zhao
 

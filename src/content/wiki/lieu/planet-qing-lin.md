@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Présentation\",\"body\":\"La planète Qing Lin est r
 ---
 ![Planet Qing Lin](/renegade-immortal-fr/wiki/images/Qing lin.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Planet_Qing_Lin) (CC BY-SA)
 
 **Catégories :** Locations, Planets, Allheaven Star System, Sealed Realm, Wang Lin's Cave World
 

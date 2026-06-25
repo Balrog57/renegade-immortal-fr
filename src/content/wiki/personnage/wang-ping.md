@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Histoire\",\"body\":\"### Origines tragiques\\n\\nLor
 
 ![Wang Ping](/renegade-immortal-fr/wiki/images/Wang-ping.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Wang_Ping) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Deceased, School of Heaven, Heaven Empire
 

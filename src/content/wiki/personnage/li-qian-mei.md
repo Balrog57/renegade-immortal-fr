@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Background\",\"body\":\"Elle fut saluée comme la cul
 
 ![Li Qian Mei](/renegade-immortal-fr/wiki/images/Li-qian-mei.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Li_Qian_Mei) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Blue Silk Sect, Heaven Breaking Sect, Cloud Sea Star System, Sealed Realm, Wang Lin's Cave World, Heaven's Blight
 

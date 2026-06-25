@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, **Tu Si** prati
 
 ![Tuo Sen](/renegade-immortal-fr/wiki/images/Tuo-sen.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Tuo_Sen) (CC BY-SA)
 
 **Catégories :** Characters, Male, Ancient God, Ancient Clan, Alive, Sea of Devils, Planet Suzaku, Alliance Star System, Sealed Realm, Wang Lin's Cave World
 

@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Contexte\",\"body\":\"Il y a longtemps, il n'y avait 
 ---
 ![Secte Divine](/renegade-immortal-fr/wiki/images/God.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/God_Sect) (CC BY-SA)
 
 **Catégories :** Organisations, Sects, Rank 9 Region, Cloud Sea Star System, Sealed Realm, Wang Lin's Cave World
 

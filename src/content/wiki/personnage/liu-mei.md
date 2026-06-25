@@ -10,7 +10,6 @@ sections: ["{\"heading\":\"Background\",\"body\":\"La Sainte du Vide Brillante, 
 
 ![Liu Mei](/renegade-immortal-fr/wiki/images/Liu-mei.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Liu_Mei) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Deceased, Xuan Dao Sect, Mount Suzaku, Planet Suzaku, Alliance Star System, Huan Family, Planet Thousand Illusion, Allheaven Star System, Sealed Realm, Wang Lin's Cave World, Illusory Yin
 

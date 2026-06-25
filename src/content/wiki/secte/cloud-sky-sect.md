@@ -9,7 +9,6 @@ sections: ["{\"heading\":\"Histoire\",\"body\":\"La Secte du Ciel des Nuages (Cl
 ---
 ![Secte du Ciel des Nuages](/renegade-immortal-fr/wiki/images/Cloud Sky Sect.webp)
 
-> Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Cloud_Sky_Sect) (CC BY-SA)
 
 **Catégories :** Sects, Organisations, Planet Suzaku, Brilliant Void Star System, Sealed Realm, Wang Lin's Cave World
 
