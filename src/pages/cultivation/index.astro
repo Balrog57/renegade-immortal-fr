@@ -1,5 +1,124 @@
 ---
-import LoreSection from '~/components/LoreSection.astro';
+import Base from '~/layouts/Base.astro';
+import { getWikiByType, prepareLore } from '~/lib/data';
+
+const entries = await getWikiByType('cultivation');
+const entry = entries[0];
+const p = await prepareLore(entry);
+const C = p.Content;
 ---
 
-<LoreSection type="cultivation" active="cultivation" />
+<Base title="Cultivation" active="cultivation">
+  <article class="cultivation-page">
+    <header class="cultivation-header">
+      {p.image && (
+        <div class="cultivation-hero">
+          <img src={p.image} alt={p.name} class="cultivation-hero-img" />
+        </div>
+      )}
+      <h1 class="cultivation-title">{p.name}</h1>
+      <p class="cultivation-subtitle">{p.title}</p>
+    </header>
+
+    <div class="cultivation-body">
+      <C />
+    </div>
+  </article>
+</Base>
+
+<style>
+  .cultivation-page {
+    max-width: 800px;
+    margin: 0 auto;
+    padding: 40px 24px 64px;
+  }
+  .cultivation-header {
+    text-align: center;
+    margin-bottom: 40px;
+    padding-bottom: 32px;
+    border-bottom: 1px solid var(--line);
+  }
+  .cultivation-hero {
+    margin-bottom: 24px;
+  }
+  .cultivation-hero-img {
+    max-width: 100%;
+    max-height: 400px;
+    border-radius: var(--r-lg);
+    border: 1px solid var(--line);
+    object-fit: cover;
+  }
+  .cultivation-title {
+    font-family: 'Cinzel', serif;
+    font-size: 36px;
+    font-weight: 600;
+    color: var(--ink-1);
+    margin: 0 0 8px;
+    letter-spacing: 0.05em;
+  }
+  .cultivation-subtitle {
+    font-family: 'Cormorant Garamond', serif;
+    font-size: 18px;
+    font-style: italic;
+    color: var(--ink-3);
+    margin: 0;
+  }
+  .cultivation-body {
+    font-family: 'Noto Serif', Georgia, serif;
+    font-size: 16px;
+    line-height: 1.8;
+    color: var(--ink-1);
+  }
+  .cultivation-body :global(h2) {
+    font-family: 'Cinzel', serif;
+    font-size: 22px;
+    color: var(--gold);
+    margin: 2em 0 0.8em;
+    letter-spacing: 0.03em;
+  }
+  .cultivation-body :global(h3) {
+    font-family: 'Cinzel', serif;
+    font-size: 17px;
+    color: var(--gold);
+    margin: 1.5em 0 0.6em;
+    letter-spacing: 0.03em;
+  }
+  .cultivation-body :global(p) {
+    margin: 0 0 1.2em;
+  }
+  .cultivation-body :global(ul),
+  .cultivation-body :global(ol) {
+    margin: 0 0 1.2em;
+    padding-left: 24px;
+  }
+  .cultivation-body :global(li) {
+    margin: 0.4em 0;
+  }
+  .cultivation-body :global(strong) {
+    color: var(--ink-1);
+  }
+  .cultivation-body :global(blockquote) {
+    border-left: 3px solid var(--crimson-dim);
+    padding-left: 16px;
+    color: var(--ink-3);
+    font-style: italic;
+    margin: 1.5em 0;
+  }
+  .cultivation-body :global(img) {
+    max-width: 100%;
+    border-radius: var(--r-md);
+    margin: 1.5em 0;
+  }
+  .cultivation-body :global(a) {
+    color: var(--crimson-2);
+  }
+
+  @media (max-width: 640px) {
+    .cultivation-page {
+      padding: 24px 16px 48px;
+    }
+    .cultivation-title {
+      font-size: 28px;
+    }
+  }
+</style>

@@ -3,18 +3,21 @@ import type { PreparedLore } from '~/lib/data';
 
 interface Props {
   entry: PreparedLore;
+  shape?: 'portrait' | 'circle';
 }
 
-const { entry } = Astro.props;
+const { entry, shape = 'circle' } = Astro.props;
 const C = entry.Content;
 const initial = entry.name.charAt(0).toUpperCase();
+const imgClass = shape === 'portrait' ? 'lore-card-img lore-card-img--portrait' : 'lore-card-img';
+const placeholderClass = shape === 'portrait' ? 'lore-card-placeholder lore-card-placeholder--portrait' : 'lore-card-placeholder';
 ---
 
 <div class="lore-card" data-slug={entry.slug}>
   {entry.image ? (
-    <img src={entry.image} alt={entry.name} class="lore-card-img" loading="lazy" />
+    <img src={entry.image} alt={entry.name} class={imgClass} loading="lazy" />
   ) : (
-    <div class="lore-card-placeholder">{initial}</div>
+    <div class={placeholderClass}>{initial}</div>
   )}
   <span class="lore-card-name">{entry.name}</span>
 </div>
@@ -27,4 +30,25 @@ const initial = entry.name.charAt(0).toUpperCase();
     data-url={entry.url || ''}
   >
   <C />
-</template>
+  </template>
+
+<style is:global>
+  .lore-card-img {
+    width: 80px; height: 80px; border-radius: 50%; object-fit: cover;
+    border: 2px solid var(--line);
+  }
+  .lore-card-img--portrait {
+    width: 80px; height: 120px; border-radius: 8px; object-fit: cover;
+    border: 2px solid var(--line);
+  }
+  .lore-card-placeholder {
+    width: 80px; height: 80px; border-radius: 50%;
+    display: flex; align-items: center; justify-content: center;
+    font-family: 'Cinzel', serif; font-size: 28px; font-weight: 600;
+    color: var(--ink-3); background: var(--bg-3); border: 2px solid var(--line);
+  }
+  .lore-card-placeholder--portrait {
+    width: 80px; height: 120px; border-radius: 8px;
+    font-size: 36px;
+  }
+</style>
