@@ -1,38 +1,61 @@
 ---
-name: Heavenly Fate Sect
-title: Heavenly Fate Sect
+name: Secte du Destin Céleste
+title: Secte du Destin Céleste
 type: secte
 categories: ["Sects", "Organisations", "Planet Tian Yun", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World"]
 url: "https://xian-ni.fandom.com/wiki/Heavenly_Fate_Sect"
-sections: ["{\"heading\":\"MAIN HALL\",\"body\":\"If someone looked at the Heavenly Fate Sect from above at this moment, they would see a mountain at the center. This mountain was where the main sect of the Heavenly Fate Sect was located, and around it were seven different-colored stars. These seven stars were the seven divisions of the Heavenly Fate Sect.\\n\\nThree towering mountains extended above the clouds.\\n\\nThe mountain in the middle was snow white. When the sunlight hit the mountain, it created a blinding glare that caused anyone who looked at it to feel dizzy.\\n\\nThere was greenery scattered all over the mountain, making it look even more magnificent!\\n\\nThere was no road on the mountain; it was purely snow white. This snow was Nine Ghost Snow, which won’t melt for 10,000 years. It would be impossible for a mortal to get close, because if they came within 1,000 feet of the snow, their body would completely freeze\\n\\nAside from the middle mountain, which was completely white, the other two mountains on the sides were black.\\n\\nCompared with the pure white of the mountain in the middle, this kind of black gave off a powerful sense of contrast. One by one the black snowflakes fell on the two mountains like they would never end.\\n\\nFrom a distance, the scene before him didn’t look real; it was as if someone had used the power of the heavens and earth to draw a very striking black and white mountain and river painting.\"}", "{\"heading\":\"The Purple Cloud Pavilion had a total of three floors\",\"body\":\"The Purple Cloud Pavilion is not some place an ordinary honorary disciple could stay in. The Purple Sky Palace and my Purple Dream Palace are places that only true disciples can stay in\"}", "{\"heading\":\"The Red Division\",\"body\":\"had a total of seven disciples, and none of them were missing. They all wore red robes with golden dragons embroidered on the sleeves and warm, green sashes around their waists\"}"]
+sections: ["{\"heading\":\"Pavillon Principal\",\"body\":\"Si l'on regardait la Secte du Destin Céleste (Heavenly Fate Sect) d'en haut, on verrait une montagne en son centre. C'est sur cette montagne qu'était située la secte principale de la Secte du Destin Céleste, et autour d'elle se trouvaient sept étoiles de couleurs différentes. Ces sept étoiles représentaient les sept divisions de la secte.\\n\\nTrois montagnes imposantes s'élevaient au-dessus des nuages.\\n\\nLa montagne du milieu était d'un blanc neigeux. Lorsque la lumière du soleil frappait la montagne, elle créait un éblouissement tel que quiconque la regardait se sentait pris de vertiges.\\n\\nDe la verdure était parsemée sur toute la montagne, la rendant encore plus magnifique !\\n\\nIl n'y avait aucune route sur la montagne ; elle était purement d'un blanc neigeux. Cette neige était la **Neige des Neuf Fantômes** (Nine Ghost Snow), qui ne fond pas pendant 10 000 ans. Il serait impossible à un mortel de s'en approcher, car s'il venait à moins de 1 000 pieds (environ 300 m) de la neige, son corps gèlerait complètement.\\n\\nÀ part la montagne centrale, qui était entièrement blanche, les deux autres montagnes sur les côtés étaient noires.\\n\\nPar rapport au blanc pur de la montagne du milieu, ce noir dégageait un puissant effet de contraste. Les flocons de neige noire tombaient un à un sur les deux montagnes comme s'ils ne devaient jamais cesser.\\n\\nDe loin, la scène ne semblait pas réelle ; c'était comme si quelqu'un avait utilisé le pouvoir des cieux et de la terre pour peindre une peinture de montagne et de rivière en noir et blanc d'une grande frappe.\"}", "{\"heading\":\"Pavillon des Nuages Pourpres\",\"body\":\"Le Pavillon des Nuages Pourpres (Purple Cloud Pavilion) comptait un total de trois étages.\\n\\nLe Pavillon des Nuages Pourpres n'est pas un endroit où un disciple honoraire ordinaire pourrait séjourner. Le Palais du Ciel Pourpre (Purple Sky Palace) et mon Palais du Rêve Pourpre (Purple Dream Palace) sont des lieux où seuls les vrais disciples peuvent séjourner.\"}", "{\"heading\":\"Division Rouge\",\"body\":\"La Division Rouge comptait un total de sept disciples, et aucun ne manquait. Ils portaient tous des robes rouges avec des dragons dorés brodés sur les manches et des ceintures vertes et chaudes autour de la taille.\"}"]
 ---
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Heavenly_Fate_Sect) (CC BY-SA)
 
 **Catégories :** Sects, Organisations, Planet Tian Yun, Alliance Star System, Sealed Realm, Wang Lin's Cave World
 
-## MAIN HALL
+## Description
 
-If someone looked at the Heavenly Fate Sect from above at this moment, they would see a mountain at the center. This mountain was where the main sect of the Heavenly Fate Sect was located, and around it were seven different-colored stars. These seven stars were the seven divisions of the Heavenly Fate Sect.
+La **Secte du Destin Céleste** (Heavenly Fate Sect) est la secte la plus puissante de la **Planète Tian Yun** et des petites planètes alentour. Son maître et fondateur est l'**Omniscient** (All-Seer).
 
-Three towering mountains extended above the clouds.
+La secte se trouvait sur le côté est de la planète Tian Yun, recouverte de brume et de nuages. D'une distance, on aurait dit qu'elle était enveloppée de couches de brume, rendant impossible de voir ce qu'elle contenait. Un immense temple flottait en son centre, émettant une douce lumière dorée. Sous le temple, des pierres flottantes formaient des marches menant aux montagnes situées en dessous, là où se trouvait la secte extérieure.
 
-The mountain in the middle was snow white. When the sunlight hit the mountain, it created a blinding glare that caused anyone who looked at it to feel dizzy.
+La Secte du Destin Céleste possède sept divisions différenciées par couleur : Pourpre, Cyan, Bleue, Verte, Jaune, Orange et Rouge. Chaque division compte sept disciples, parmi lesquels un est choisi comme le vrai disciple de la division et devient l'un des sept Vrais Disciples de l'Omniscient.
 
-There was greenery scattered all over the mountain, making it look even more magnificent!
+### Fiche signalétique
 
-There was no road on the mountain; it was purely snow white. This snow was Nine Ghost Snow, which won’t melt for 10,000 years. It would be impossible for a mortal to get close, because if they came within 1,000 feet of the snow, their body would completely freeze
+- **Nom :** Secte du Destin Céleste (Heavenly Fate Sect)
+- **Divisions :** Pourpre, Cyan, Bleue, Verte, Jaune, Orange, Rouge
+- **Affiliation :** Alliance de Cultivation (Cultivation Alliance)
+- **Fondateur :** Omniscient (All-Seer)
+- **Chef de secte :** Omniscient (All-Seer)
+- **Jeune génération :** Bai Wei (Pourpre), Jin Ye (Pourpre), Zhou Wan (Pourpre), Zhao Xinmeng (Pourpre), Chen Tao (Pourpre), Zhao Xingsha (Pourpre), Wang Yu (Verte), Kunpeng Zi (Jaune), Yundao Zi (Jaune), Qu Yichang (Bleue), Sima Rufeng (Bleue), Du Jian (Rouge), Sun Hong (Rouge), Lu Hai (Rouge), Li Shengnan (Verte)
+- **Anciens membres :** Sun Yun (Pourpre), Du Jian (Rouge), Wang Lin (Pourpre)
+- **Système stellaire :** Système Stellaire de l'Alliance
+- **Monde :** Monde de la Grotte de Wang Lin
+- **Royaume :** Royaume Scellé
+- **Planète :** Planète Tian Yun
 
-Aside from the middle mountain, which was completely white, the other two mountains on the sides were black.
+## Pavillon Principal
 
-Compared with the pure white of the mountain in the middle, this kind of black gave off a powerful sense of contrast. One by one the black snowflakes fell on the two mountains like they would never end.
+Si l'on regardait la Secte du Destin Céleste (Heavenly Fate Sect) d'en haut, on verrait une montagne en son centre. C'est sur cette montagne qu'était située la secte principale de la Secte du Destin Céleste, et autour d'elle se trouvaient sept étoiles de couleurs différentes. Ces sept étoiles représentaient les sept divisions de la secte.
 
-From a distance, the scene before him didn’t look real; it was as if someone had used the power of the heavens and earth to draw a very striking black and white mountain and river painting.
+Trois montagnes imposantes s'élevaient au-dessus des nuages.
 
-### The Purple Cloud Pavilion had a total of three floors
+La montagne du milieu était d'un blanc neigeux. Lorsque la lumière du soleil frappait la montagne, elle créait un éblouissement tel que quiconque la regardait se sentait pris de vertiges.
 
-The Purple Cloud Pavilion is not some place an ordinary honorary disciple could stay in. The Purple Sky Palace and my Purple Dream Palace are places that only true disciples can stay in
+De la verdure était parsemée sur toute la montagne, la rendant encore plus magnifique !
 
-### The Red Division
+Il n'y avait aucune route sur la montagne ; elle était purement d'un blanc neigeux. Cette neige était la **Neige des Neuf Fantômes** (Nine Ghost Snow), qui ne fond pas pendant 10 000 ans. Il serait impossible à un mortel de s'en approcher, car s'il venait à moins de 1 000 pieds (environ 300 m) de la neige, son corps gèlerait complètement.
 
-had a total of seven disciples, and none of them were missing. They all wore red robes with golden dragons embroidered on the sleeves and warm, green sashes around their waists
+À part la montagne centrale, qui était entièrement blanche, les deux autres montagnes sur les côtés étaient noires.
 
+Par rapport au blanc pur de la montagne du milieu, ce noir dégageait un puissant effet de contraste. Les flocons de neige noire tombaient un à un sur les deux montagnes comme s'ils ne devaient jamais cesser.
+
+De loin, la scène ne semblait pas réelle ; c'était comme si quelqu'un avait utilisé le pouvoir des ciers et de la terre pour peindre une peinture de montagne et de rivière en noir et blanc d'une grande frappe.
+
+### Pavillon des Nuages Pourpres
+
+Le Pavillon des Nuages Pourpres (Purple Cloud Pavilion) comptait un total de trois étages.
+
+Le Pavillon des Nuages Pourpres n'est pas un endroit où un disciple honoraire ordinaire pourrait séjourner. Le Palais du Ciel Pourpre (Purple Sky Palace) et mon Palais du Rêve Pourpre (Purple Dream Palace) sont des lieux où seuls les vrais disciples peuvent séjourner.
+
+### Division Rouge
+
+La Division Rouge comptait un total de sept disciples, et aucun ne manquait. Ils portaient tous des robes rouges avec des dragons dorés brodés sur les manches et des ceintures vertes et chaudes autour de la taille.

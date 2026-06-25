@@ -1,29 +1,49 @@
 ---
-name: Moon Devourer Clan
-title: Moon Devourer Clan
+name: Clan Dévoreur de Lune
+title: Clan Dévoreur de Lune
 type: secte
 categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council", "Ancient Primordial Star System", "Outer Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Moon_Devourer_Clan"
-sections: ["{\"heading\":\"Background\",\"body\":\"Originally, they were slaves to the Ancient Gods , who took them under their protection during ancient times. They were known as God Slaves. However, they betrayed the Ancient Gods and now seek to turn them into their slaves to erase their past humiliation. This mindset led to them becoming very arrogant and creating a method to devour Ancient Gods. However, this method has never once yielded success.\"}", "{\"heading\":\"History\",\"body\":\"A member of the Moon Devourer Clan entered the Seven-Colored Realm during the time Wang Lin was there.\\n\\nHe attempted to steal Wang Lin's Ancient God Powers but had the tables turned on him. He could only stare in stupefaction while Wang Lin killed the two members of the Scatter Thunder Clan and the Fire Sparrow Clan.\\n\\nBacked into a corner, he used his clan's secret ability which summons the leftover will of a Seven-Star Ancient God to protect them. However, this only led to his demise as Wang Lin, with his authority as a Royal Ancient God, annulled the Ancient Covenant wherein the Ancient Gods would protect the members of the Moon Devourer Clan.\\n\\nThis resulted in the death of most of the Moon Devourer Clan Ancestors who were attempting devour Ancient Gods. Furthermore, every single member of the Moon Devourer Clan lost even the tiniest vestiges of their Ancient God powers.\"}"]
+sections: ["{\"heading\":\"Contexte\",\"body\":\"À l'origine, ils étaient les esclaves des **Dieux Antiques** (Ancient Gods), qui les prirent sous leur protection durant les temps anciens. Ils étaient connus sous le nom de **Serviteurs des Dieux** (God Slaves). Cependant, ils trahirent les Dieux Antiques et cherchent désormais à les transformer en leurs esclaves afin d'effacer leur ancienne humiliation. Cette mentalité les rendit très arrogants et les poussa à créer une méthode pour dévorer les Dieux Antiques. Cependant, cette méthode n'a jamais encore produit le moindre succès.\"}", "{\"heading\":\"Histoire\",\"body\":\"Un membre du Clan Dévoreur de Lune entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.\\n\\nIl tenta de voler les pouvoirs de Dieu Antique de Wang Lin, mais la situation se retourna contre lui. Il ne put que regarder avec stupeur tandis que Wang Lin tuait les deux membres du **Clan de la Foudre Dispersée** (Scatter Thunder Clan) et du **Clan du Moineau de Feu** (Fire Sparrow Clan).\\n\\nCoincé, il utilisa la capacité secrète de son clan qui invoque la volonté résiduelle d'un **Dieu Antique à Sept Étoiles** (Seven-Star Ancient God) pour les protéger. Cependant, cela ne fit que précipiter sa perte : Wang Lin, avec son autorité de **Dieu Antique Royal**, annula l'**Ancienne Alliance** (Ancient Covenant) par laquelle les Dieux Antiques protégeraient les membres du Clan Dévoreur de Lune.\\n\\nCela entraîna la mort de la plupart des Ancêtres du Clan Dévoreur de Lune qui tentaient de dévorer des Dieux Antiques. De plus, chaque membre du Clan Dévoreur de Lune perdit jusqu'à la moindre trace de ses pouvoirs de Dieu Antique.\"}"]
 ---
-![Moon Devourer Clan](/renegade-immortal-fr/wiki/images/O.webp)
+![Clan Dévoreur de Lune](/renegade-immortal-fr/wiki/images/O.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Moon_Devourer_Clan) (CC BY-SA)
 
 **Catégories :** Organisations, Clans, High Ancient Clans, Sovereign Council, Ancient Primordial Star System, Outer Realm, Wang Lin's Cave World
 
-## Background
+## Description
 
-Originally, they were slaves to the Ancient Gods , who took them under their protection during ancient times. They were known as God Slaves. However, they betrayed the Ancient Gods and now seek to turn them into their slaves to erase their past humiliation. This mindset led to them becoming very arrogant and creating a method to devour Ancient Gods. However, this method has never once yielded success.
+Le **Clan Dévoreur de Lune** (Moon Devourer Clan) est l'un des sept grands clans antiques du **Système Stellaire Primordial Antique** (Ancient Primordial Star System), rattaché au **Conseil Souverain** (Sovereign Council) et au **Royaume Extérieur** (Outer Realm).
 
-### History
+À l'origine, ses membres étaient les esclaves des **Dieux Antiques** (Ancient Gods), connus sous le nom de **Serviteurs des Dieux** (God Slaves). Ils trahirent cependant leurs protecteurs et cherchent désormais à les asservir pour effacer leur ancienne humiliation. Cette arrogance les poussa à développer une méthode pour dévorer les Dieux Antiques — méthode qui, pourtant, n'a jamais fonctionné.
 
-A member of the Moon Devourer Clan entered the Seven-Colored Realm during the time Wang Lin was there.
+Lorsqu'un membre du clan tenta de voler les pouvoirs de Dieu Antique de **Wang Lin** dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm), Wang Lin usa de son autorité de Dieu Antique Royal pour annuler l'**Ancienne Alliance** (Ancient Covenant) qui protégeait le clan. Cela causa la mort de la plupart des Ancêtres du clan et la perte des pouvoirs de Dieu Antique de tous ses membres.
 
-He attempted to steal Wang Lin's Ancient God Powers but had the tables turned on him. He could only stare in stupefaction while Wang Lin killed the two members of the Scatter Thunder Clan and the Fire Sparrow Clan.
+### Fiche signalétique
 
-Backed into a corner, he used his clan's secret ability which summons the leftover will of a Seven-Star Ancient God to protect them. However, this only led to his demise as Wang Lin, with his authority as a Royal Ancient God, annulled the Ancient Covenant wherein the Ancient Gods would protect the members of the Moon Devourer Clan.
+- **Nom :** Clan Dévoreur de Lune (Moon Devourer Clan)
+- **Origine :** Anciens Serviteurs des Dieux (God Slaves)
+- **Statut :** L'un des sept grands clans antiques
+- **Affiliation :** Conseil Souverain (Sovereign Council)
+- **Objectif :** Dévorer les Dieux Antiques
+- **Méthode secrète :** Invocation de la volonté résiduelle d'un Dieu Antique à Sept Étoiles
+- **Ennemi :** Wang Lin (annula l'Ancienne Alliance)
+- **Système stellaire :** Système Stellaire Primordial Antique (Ancient Primordial Star System)
+- **Royaume :** Royaume Extérieur (Outer Realm)
+- **Monde :** Monde de la Grotte de Wang Lin
 
-This resulted in the death of most of the Moon Devourer Clan Ancestors who were attempting devour Ancient Gods. Furthermore, every single member of the Moon Devourer Clan lost even the tiniest vestiges of their Ancient God powers.
+## Contexte
 
+À l'origine, ils étaient les esclaves des **Dieux Antiques** (Ancient Gods), qui les prirent sous leur protection durant les temps anciens. Ils étaient connus sous le nom de **Serviteurs des Dieux** (God Slaves). Cependant, ils trahirent les Dieux Antiques et cherchent désormais à les transformer en leurs esclaves afin d'effacer leur ancienne humiliation. Cette mentalité les rendit très arrogants et les poussa à créer une méthode pour dévorer les Dieux Antiques. Cependant, cette méthode n'a jamais encore produit le moindre succès.
+
+## Histoire
+
+Un membre du Clan Dévoreur de Lune entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.
+
+Il tenta de voler les pouvoirs de Dieu Antique de Wang Lin, mais la situation se retourna contre lui. Il ne put que regarder avec stupeur tandis que Wang Lin tuait les deux membres du **Clan de la Foudre Dispersée** (Scatter Thunder Clan) et du **Clan du Moineau de Feu** (Fire Sparrow Clan).
+
+Coincé, il utilisa la capacité secrète de son clan qui invoque la volonté résiduelle d'un **Dieu Antique à Sept Étoiles** (Seven-Star Ancient God) pour les protéger. Cependant, cela ne fit que précipiter sa perte : Wang Lin, avec son autorité de **Dieu Antique Royal**, annula l'**Ancienne Alliance** (Ancient Covenant) par laquelle les Dieux Antiques protégeraient les membres du Clan Dévoreur de Lune.
+
+Cela entraîna la mort de la plupart des Ancêtres du Clan Dévoreur de Lune qui tentaient de dévorer des Dieux Antiques. De plus, chaque membre du Clan Dévoreur de Lune perdit jusqu'à la moindre trace de ses pouvoirs de Dieu Antique.

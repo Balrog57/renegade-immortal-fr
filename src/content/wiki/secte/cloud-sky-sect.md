@@ -1,29 +1,48 @@
 ---
-name: Cloud Sky Sect
-title: Cloud Sky Sect
+name: Secte du Ciel des Nuages
+title: Secte du Ciel des Nuages
 type: secte
 categories: ["Sects", "Organisations", "Planet Suzaku", "Brilliant Void Star System", "Sealed Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/Cloud Sky Sect.webp
 url: "https://xian-ni.fandom.com/wiki/Cloud_Sky_Sect"
-sections: ["{\"heading\":\"History\",\"body\":\"The Cloud Sky Sect was located in a 3rd rank cultivation country, named Chu. It was a very mysterious sect which was well known for its alchemy and rarely recruiting disciples.\\n\\nAfter Wang Lin returns to Chu he decides to become part of the Cloud Sky Sect to learn about Alchemy and reach Nascent Soul stage. There he finds his one true love Li Muwan . After the people of the sect try to turn on him and Li Muwan, he tramples on them and takes their soul blood. This made him the new sect leader. Li Muwan controlled the sect in his absence.\\n\\nWhen he returns and notices that Li Muwan's lifespan is nearly running out he decides to try and save her. During this trial he recruits two people from the Cloud Sky Sect which follow him to reach the Soul Formation stage.\\n\\nAfter the Suzaku Arc the Cloud Sky Sect used its entire foundation and the help of fellow cultivators to create a statue of Wang Lin for all he has done for the planet Suzaku. The Cloud Sky Sect pretty much gains control over the country of Chu and gets elevated as well to a 4th rank cultivation country due to one of the followers finally reaching Soul Formation .\\n\\nThe Cloud Sky Sect has become so powerful now that even 5th rank cultivation countries need to be respectful to them. This is mainly due to Wang Lin's statue and the accomplishments he has achieved.\\n\\nAfter Wang Lin rises as the new Lord of the Sealed Realm, Suzaku is remodelled by the powerful cultivators of the realm who wish to honour him. Only nine sects survive this period with the rest being assimilated or wiped out. The Cloud Sky Sect is one of these nine sects.\"}"]
+sections: ["{\"heading\":\"Histoire\",\"body\":\"La Secte du Ciel des Nuages (Cloud Sky Sect) était située dans un pays de cultivation de rang 3, nommé Chu. C'était une secte très mystérieuse, bien connue pour son alchimie et qui recrutait rarement des disciples.\\n\\nAprès que **Wang Lin** soit revenu à Chu, il décida de rejoindre la Secte du Ciel des Nuages pour apprendre l'alchimie et atteindre le stade de l'**Âme Naissante** (Nascent Soul). C'est là qu'il trouva son grand amour, **Li Muwan**. Après que les membres de la secte tentèrent de se retourner contre lui et Li Muwan, il les piétina et prit leur sang d'âme (soul blood). Cela fit de lui le nouveau chef de secte. Li Muwan dirigea la secte en son absence.\\n\\nÀ son retour, il remarqua que l'espérance de vie de Li Muwan touchait presque à sa fin et décida d'essayer de la sauver. Au cours de cette épreuve, il recruta deux personnes de la Secte du Ciel des Nuages qui le suivirent pour atteindre le stade de la **Formation de l'Âme** (Soul Formation).\\n\\nAprès l'arc de Suzaku, la Secte du Ciel des Nuages utilisa toute sa fondation et l'aide de cultivateurs alliés pour créer une statue de **Wang Lin** en reconnaissance de tout ce qu'il avait fait pour la planète Suzaku. La Secte du Ciel des Nuages prit pratiquement le contrôle du pays de Chu et fut élevée au rang de pays de cultivation de rang 4 grâce à l'un des disciples qui atteignit finalement la Formation de l'Âme.\\n\\nLa Secte du Ciel des Nuages devint si puissante que même les pays de cultivation de rang 5 devaient lui témoigner du respect. Cela était principalement dû à la statue de Wang Lin et aux accomplissements qu'il avait réalisés.\\n\\nAprès que Wang Lin s'éleva comme le nouveau Seigneur du Royaume Scellé (Lord of the Sealed Realm), Suzaku fut remodelée par les puissants cultivateurs du royaume qui souhaitaient l'honorer. Seules neuf sectes survécurent à cette période, les autres étant assimilées ou anéanties. La Secte du Ciel des Nuages est l'une de ces neuf sectes.\"}"]
 ---
-![Cloud Sky Sect](/renegade-immortal-fr/wiki/images/Cloud Sky Sect.webp)
+![Secte du Ciel des Nuages](/renegade-immortal-fr/wiki/images/Cloud Sky Sect.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Cloud_Sky_Sect) (CC BY-SA)
 
 **Catégories :** Sects, Organisations, Planet Suzaku, Brilliant Void Star System, Sealed Realm, Wang Lin's Cave World
 
-## History
+## Description
 
-The Cloud Sky Sect was located in a 3rd rank cultivation country, named Chu. It was a very mysterious sect which was well known for its alchemy and rarely recruiting disciples.
+La **Secte du Ciel des Nuages** (Cloud Sky Sect) était située dans un pays de cultivation de rang 3, nommé **Chu**, sur la **Planète Suzaku**. C'était une secte très mystérieuse, réputée pour son alchimie et qui recrutait rarement des disciples.
 
-After Wang Lin returns to Chu he decides to become part of the Cloud Sky Sect to learn about Alchemy and reach Nascent Soul stage. There he finds his one true love Li Muwan . After the people of the sect try to turn on him and Li Muwan, he tramples on them and takes their soul blood. This made him the new sect leader. Li Muwan controlled the sect in his absence.
+Wang Lin la rejoignit pour apprendre l'alchimie et atteindre le stade de l'**Âme Naissante** (Nascent Soul). C'est là qu'il rencontra son grand amour, **Li Muwan**. Après que les membres de la secte tentèrent de se retourner contre eux, Wang Lin prit leur sang d'âme (soul blood) et devint ainsi le nouveau chef de secte.
 
-When he returns and notices that Li Muwan's lifespan is nearly running out he decides to try and save her. During this trial he recruits two people from the Cloud Sky Sect which follow him to reach the Soul Formation stage.
+Après l'arc de Suzaku, la secte consacra toute sa fondation à ériger une statue de Wang Lin en reconnaissance de ses actions pour la planète. Elle prit le contrôle du pays de Chu et fut élevée au rang de pays de rang 4, devenant si puissante que même les pays de rang 5 devaient lui témoigner du respect.
 
-After the Suzaku Arc the Cloud Sky Sect used its entire foundation and the help of fellow cultivators to create a statue of Wang Lin for all he has done for the planet Suzaku. The Cloud Sky Sect pretty much gains control over the country of Chu and gets elevated as well to a 4th rank cultivation country due to one of the followers finally reaching Soul Formation .
+### Fiche signalétique
 
-The Cloud Sky Sect has become so powerful now that even 5th rank cultivation countries need to be respectful to them. This is mainly due to Wang Lin's statue and the accomplishments he has achieved.
+- **Nom :** Secte du Ciel des Nuages (Cloud Sky Sect)
+- **Localisation :** Pays de Chu (rang 3, puis rang 4), Planète Suzaku
+- **Spécialité :** Alchimie
+- **Chef de secte :** Wang Lin (après coup de force)
+- **Personnalité clé :** Li Muwan
+- **Système stellaire :** Système Stellaire du Vide Brillant (Brilliant Void Star System)
+- **Monde :** Monde de la Grotte de Wang Lin
+- **Royaume :** Royaume Scellé
+- **Statut :** L'une des neuf sectes survivantes après le remodelage de Suzaku
 
-After Wang Lin rises as the new Lord of the Sealed Realm, Suzaku is remodelled by the powerful cultivators of the realm who wish to honour him. Only nine sects survive this period with the rest being assimilated or wiped out. The Cloud Sky Sect is one of these nine sects.
+## Histoire
 
+La Secte du Ciel des Nuages (Cloud Sky Sect) était située dans un pays de cultivation de rang 3, nommé Chu. C'était une secte très mystérieuse, bien connue pour son alchimie et qui recrutait rarement des disciples.
+
+Après que **Wang Lin** soit revenu à Chu, il décida de rejoindre la Secte du Ciel des Nuages pour apprendre l'alchimie et atteindre le stade de l'**Âme Naissante** (Nascent Soul). C'est là qu'il trouva son grand amour, **Li Muwan**. Après que les membres de la secte tentèrent de se retourner contre lui et Li Muwan, il les piétina et prit leur sang d'âme (soul blood). Cela fit de lui le nouveau chef de secte. Li Muwan dirigea la secte en son absence.
+
+À son retour, il remarqua que l'espérance de vie de Li Muwan touchait presque à sa fin et décida d'essayer de la sauver. Au cours de cette épreuve, il recruta deux personnes de la Secte du Ciel des Nuages qui le suivirent pour atteindre le stade de la **Formation de l'Âme** (Soul Formation).
+
+Après l'arc de Suzaku, la Secte du Ciel des Nuages utilisa toute sa fondation et l'aide de cultivateurs alliés pour créer une statue de **Wang Lin** en reconnaissance de tout ce qu'il avait fait pour la planète Suzaku. La Secte du Ciel des Nuages prit pratiquement le contrôle du pays de Chu et fut élevée au rang de pays de cultivation de rang 4 grâce à l'un des disciples qui atteignit finalement la Formation de l'Âme.
+
+La Secte du Ciel des Nuages devint si puissante que même les pays de cultivation de rang 5 devaient lui témoigner du respect. Cela était principalement dû à la statue de Wang Lin et aux accomplissements qu'il avait réalisés.
+
+Après que Wang Lin s'éleva comme le nouveau Seigneur du Royaume Scellé (Lord of the Sealed Realm), Suzaku fut remodelée par les puissants cultivateurs du royaume qui souhaitaient l'honorer. Seules neuf sectes survécurent à cette période, les autres étant assimilées ou anéanties. La Secte du Ciel des Nuages est l'une de ces neuf sectes.

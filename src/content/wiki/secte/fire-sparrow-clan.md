@@ -1,29 +1,49 @@
 ---
-name: Fire Sparrow Clan
-title: Fire Sparrow Clan
+name: Clan du Moineau de Feu
+title: Clan du Moineau de Feu
 type: secte
 categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council", "Ancient Primordial Star System", "Outer Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/O.webp
 url: "https://xian-ni.fandom.com/wiki/Fire_Sparrow_Clan"
-sections: ["{\"heading\":\"Background\",\"body\":\"In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.\\n\\nTheir origin is from the Vermillion Bird Divine Sect.\"}", "{\"heading\":\"History\",\"body\":\"A member of the Fire Sparrow Clan entered the Seven-Colored Realm during the time Wang Lin was there.\\n\\nHe attempted to steal Wang Lin's Vermillion Bird mark but was instead killed by him. Wang Lin then took away the Fire Sparrow Clan's ability to manipulate fire. Although this did not take away their entire abilities, it still significantly weakened the clan as three of their nine Black Vermillion Bird statues collapsed while the rest were severely damaged.\\n\\nWang Lin also absorbed the Fire Sparrow Clan member's Flame mark which, along with the feather of Vermillion Bird he got from Wu Qing , allowed him to achieve the unprecedented third-awakening of his Vermillion Bird.\"}"]
+sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, ils piégèrent les cultivateurs du **Royaume Scellé** (Sealed Realm) à l'intérieur de la **Formation de Sceau du Royaume** (Realm-Sealing Formation) et les massacrèrent comme des chiens.\\n\\nLeur origine remonte à la **Secte Divine de l'Oiseau Vermillon** (Vermillion Bird Divine Sect).\"}", "{\"heading\":\"Histoire\",\"body\":\"Un membre du Clan du Moineau de Feu entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.\\n\\nIl tenta de voler la **Marque de l'Oiseau Vermillon** (Vermillion Bird mark) de Wang Lin, mais ce dernier le tua à la place. Wang Lin s'empara alors de la capacité du Clan du Moineau de Feu à manipuler le feu. Bien que cela ne leur enlevât pas toutes leurs capacités, cela affaiblit considérablement le clan puisque trois de leurs neuf statues du Vermillon Noir (Black Vermillion Bird) s'effondrèrent tandis que les autres furent gravement endommagées.\\n\\nWang Lin absorba également la marque de Flamme du membre du Clan du Moineau de Feu, ce qui, avec la plume d'Oiseau Vermillon qu'il obtint de **Wu Qing**, lui permit de réaliser le triple-éveil sans précédent de son Oiseau Vermillon.\"}"]
 ---
-![Fire Sparrow Clan](/renegade-immortal-fr/wiki/images/O.webp)
+![Clan du Moineau de Feu](/renegade-immortal-fr/wiki/images/O.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Fire_Sparrow_Clan) (CC BY-SA)
 
 **Catégories :** Organisations, Clans, High Ancient Clans, Sovereign Council, Ancient Primordial Star System, Outer Realm, Wang Lin's Cave World
 
-## Background
+## Description
 
-In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.
+Le **Clan du Moineau de Feu** (Fire Sparrow Clan) est l'un des sept grands clans antiques du **Système Stellaire Primordial Antique** (Ancient Primordial Star System), rattaché au **Conseil Souverain** (Sovereign Council) et au **Royaume Extérieur** (Outer Realm).
 
-Their origin is from the Vermillion Bird Divine Sect.
+Son origine remonte à la **Secte Divine de l'Oiseau Vermillon** (Vermillion Bird Divine Sect). Comme les autres grands clans antiques, il participa jadis au piégeage des cultivateurs du **Royaume Scellé** dans la **Formation de Sceau du Royaume** et à leur massacre.
 
-### History
+Un membre du clan tenta de voler la **Marque de l'Oiseau Vermillon** de **Wang Lin** dans le Royaume aux Sept Couleurs, mais Wang Lin le tua, s'empara de la capacité du clan à manipuler le feu — provoquant l'effondrement de trois des neuf statues du Vermillon Noir et gravement endommageant les autres — et absorba la marque de Flamme, ce qui, combiné à la plume d'Oiseau Vermillon obtenue de **Wu Qing**, lui permit de réaliser le triple-éveil sans précédent de son Oiseau Vermillon.
 
-A member of the Fire Sparrow Clan entered the Seven-Colored Realm during the time Wang Lin was there.
+### Fiche signalétique
 
-He attempted to steal Wang Lin's Vermillion Bird mark but was instead killed by him. Wang Lin then took away the Fire Sparrow Clan's ability to manipulate fire. Although this did not take away their entire abilities, it still significantly weakened the clan as three of their nine Black Vermillion Bird statues collapsed while the rest were severely damaged.
+- **Nom :** Clan du Moineau de Feu (Fire Sparrow Clan)
+- **Origine :** Secte Divine de l'Oiseau Vermillon (Vermillion Bird Divine Sect)
+- **Statut :** L'un des sept grands clans antiques
+- **Affiliation :** Conseil Souverain (Sovereign Council)
+- **Capacité :** Manipulation du feu
+- **Reliques :** 9 statues du Vermillon Noir (3 détruites, autres gravement endommagées)
+- **Ennemi :** Wang Lin
+- **Système stellaire :** Système Stellaire Primordial Antique (Ancient Primordial Star System)
+- **Royaume :** Royaume Extérieur (Outer Realm)
+- **Monde :** Monde de la Grotte de Wang Lin
 
-Wang Lin also absorbed the Fire Sparrow Clan member's Flame mark which, along with the feather of Vermillion Bird he got from Wu Qing , allowed him to achieve the unprecedented third-awakening of his Vermillion Bird.
+## Contexte
 
+Dans le passé, ils piégèrent les cultivateurs du **Royaume Scellé** (Sealed Realm) à l'intérieur de la **Formation de Sceau du Royaume** (Realm-Sealing Formation) et les massacrèrent comme des chiens.
+
+Leur origine remonte à la **Secte Divine de l'Oiseau Vermillon** (Vermillion Bird Divine Sect).
+
+## Histoire
+
+Un membre du Clan du Moineau de Feu entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.
+
+Il tenta de voler la **Marque de l'Oiseau Vermillon** (Vermillion Bird mark) de Wang Lin, mais ce dernier le tua à la place. Wang Lin s'empara alors de la capacité du Clan du Moineau de Feu à manipuler le feu. Bien que cela ne leur enlevât pas toutes leurs capacités, cela affaiblit considérablement le clan puisque trois de leurs neuf statues du Vermillon Noir (Black Vermillion Bird) s'effondrèrent tandis que les autres furent gravement endommagées.
+
+Wang Lin absorba également la marque de Flamme du membre du Clan du Moineau de Feu, ce qui, avec la plume d'Oiseau Vermillon qu'il obtint de **Wu Qing**, lui permit de réaliser le triple-éveil sans précédent de son Oiseau Vermillon.

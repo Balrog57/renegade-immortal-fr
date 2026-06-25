@@ -1,30 +1,51 @@
 ---
-name: Scatter Thunder Clan
-title: Scatter Thunder Clan
+name: Clan de la Foudre Dispersée
+title: Clan de la Foudre Dispersée
 type: secte
 categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council", "Ancient Primordial Star System", "Outer Realm", "Wang Lin's Cave World"]
 url: "https://xian-ni.fandom.com/wiki/Scatter_Thunder_Clan"
-sections: ["{\"heading\":\"Background\",\"body\":\"In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.\"}", "{\"heading\":\"History\",\"body\":\"A member of the Scatter Thunder Clan entered the Seven-Colored Realm during the time Wang Lin was there.\\n\\nHe attempted to steal Wang Lin's Ancient Thunder Dragon Soul but was instead killed by him. Wang Lin then took away the Scatter Thunder Clan's ability to manipulate thunder. Although this did not take away their entire abilities, it still significantly weakened the clan as their primordial thunder lake located deep within the clan had more than 30% of its content drained.\\n\\nWang Lin also absorbed the Scatter Thunder Clan member's Lightning mark which, along with the lightning mark he absorbed from the statue of Scatter Thunder Clan's Ancestor, significantly boosted his thunder and lightning powers.\\n\\nIt was created long ago by the founding Ancestor of the Scatter Thunder Clan who was also the only one to ever reach the Third Step . He did so with aid from a group of mysterious cultivators who also helped the Moon Devourer Clan enslave the weaker Ancient Gods and absorb their qi.\\n\\nThe 7 million worlds is a type of sealed realm within which is a starsystem. This starsystem has 7 million planets all of whom hold cultivators and all of whom are exactly the same distance from each other. The starsystem orbits a large continent where a huge statue can be seen looking into the distance. This is where the Scatter Thunder Clan opperates.\\n\\nThe Divine Tribulation of these 7 million worlds is actually created by the Scatter Thunder Clan itself, who use it to kill any and all peak Soul Formation Cultivators. Very rarely however one of these cultivators will manifest one of the six special kinds of lightning the Scatter Thunder Clan Cultivates at the momen he or she undergoes this Tribulation. These people will thus \\\"Pass\\\" the tribulation and enter the Celestial Realm, becoming legends to their peers. However, in truth, their Celestial Realm is the Scatter Thunder Clan itself and they are simply killed so that their unique thunder can be extracted for the clan's own use.\"}"]
+sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, ils piégèrent les cultivateurs du **Royaume Scellé** (Sealed Realm) à l'intérieur de la **Formation de Sceau du Royaume** (Realm-Sealing Formation) et les massacrèrent comme des chiens.\"}", "{\"heading\":\"Histoire\",\"body\":\"Un membre du Clan de la Foudre Dispersée entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.\\n\\nIl tenta de voler l'**Âme du Dragon de Foudre Antique** (Ancient Thunder Dragon Soul) de Wang Lin, mais ce dernier le tua à la place. Wang Lin s'empara alors de la capacité du Clan de la Foudre Dispersée à manipuler la foudre. Bien que cela ne leur enlevât pas toutes leurs capacités, cela affaiblit considérablement le clan puisque leur lac de foudre primordial situé dans les profondeurs du clan vit plus de 30 % de son contenu drainé.\\n\\nWang Lin absorba également la marque de Foudre du membre du Clan de la Foudre Dispersée, ce qui, avec la marque de foudre qu'il absorba de la statue de l'Ancêtre du Clan de la Foudre Dispersée, renforça considérablement ses pouvoirs de foudre et d'éclair.\\n\\nLe clan fut créé il y a longtemps par l'Ancêtre fondateur du Clan de la Foudre Dispersée, qui fut également le seul à atteindre la **Troisième Étape** (Third Step). Il y parvint avec l'aide d'un groupe de cultivateurs mystérieux qui aidèrent également le **Clan Dévoreur de Lune** à asservir les Dieux Antiques les plus faibles et à absorber leur qi.\\n\\nLes **7 millions de mondes** forment un type de royaume scellé à l'intérieur duquel se trouve un système stellaire. Ce système stellaire compte 7 millions de planètes abritant toutes des cultivateurs, toutes situées exactement à la même distance les unes des autres. Le système stellaire orbite autour d'un vaste continent où une immense statue peut être vue regardant au loin. C'est de là qu'opère le Clan de la Foudre Dispersée.\\n\\nLa **Tribulation Divine** (Divine Tribulation) de ces 7 millions de mondes est en réalité créée par le Clan de la Foudre Dispersée lui-même, qui l'utilise pour tuer tous les cultivateurs au stade culminant de la **Formation de l'Âme** (Soul Formation). Très rarement, cependant, l'un de ces cultivateurs manifestera l'un des six types spéciaux de foudre que cultive le Clan de la Foudre Dispersée au moment où il subit cette Tribulation. Ces personnes « réussissent » ainsi la tribulation et entrent dans le **Royaume Céleste** (Celestial Realm), devenant des légendes aux yeux de leurs pairs. En vérité, cependant, leur Royaume Céleste n'est autre que le Clan de la Foudre Dispersée, et ils sont simplement tués afin que leur foudre unique puisse être extraite pour l'usage propre du clan.\"}"]
 ---
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Scatter_Thunder_Clan) (CC BY-SA)
 
 **Catégories :** Organisations, Clans, High Ancient Clans, Sovereign Council, Ancient Primordial Star System, Outer Realm, Wang Lin's Cave World
 
-## Background
+## Description
 
-In the past, they trapped the cultivators of the Sealed Realm inside the Realm-Sealing Formation and slaughtered them like dogs.
+Le **Clan de la Foudre Dispersée** (Scatter Thunder Clan) est l'un des sept grands clans antiques du **Système Stellaire Primordial Antique** (Ancient Primordial Star System), rattaché au **Conseil Souverain** (Sovereign Council) et au **Royaume Extérieur** (Outer Realm).
 
-### History
+Dans le passé, ce clan piégea les cultivateurs du **Royaume Scellé** dans la **Formation de Sceau du Royaume** et les massacra. Il fut fondé par un Ancêtre qui fut le seul membre à atteindre la **Troisième Étape**, avec l'aide d'un groupe de cultivateurs mystérieux. Le clan opère depuis un système stellaire de 7 millions de mondes et contrôle la **Tribulation Divine** de ces mondes pour tuer les cultivateurs au stade culminant de la Formation de l'Âme et récupérer leur foudre unique.
 
-A member of the Scatter Thunder Clan entered the Seven-Colored Realm during the time Wang Lin was there.
+Un membre du clan tenta de voler l'**Âme du Dragon de Foudre Antique** de **Wang Lin**, mais ce dernier le tua, draina plus de 30 % du lac de foudre primordial du clan, et s'appropria la marque de Foudre, affaiblissant considérablement le clan.
 
-He attempted to steal Wang Lin's Ancient Thunder Dragon Soul but was instead killed by him. Wang Lin then took away the Scatter Thunder Clan's ability to manipulate thunder. Although this did not take away their entire abilities, it still significantly weakened the clan as their primordial thunder lake located deep within the clan had more than 30% of its content drained.
+### Fiche signalétique
 
-Wang Lin also absorbed the Scatter Thunder Clan member's Lightning mark which, along with the lightning mark he absorbed from the statue of Scatter Thunder Clan's Ancestor, significantly boosted his thunder and lightning powers.
+- **Nom :** Clan de la Foudre Dispersée (Scatter Thunder Clan)
+- **Statut :** L'un des sept grands clans antiques
+- **Affiliation :** Conseil Souverain (Sovereign Council)
+- **Ancêtre fondateur :** Seul membre à avoir atteint la Troisième Étape
+- **Capacité :** Manipulation de la foudre (6 types spéciaux)
+- **Territoire :** 7 millions de mondes formant un royaume scellé
+- **Activité :** Création de la Tribulation Divine pour tuer les cultivateurs de la Formation de l'Âme et extraire leur foudre
+- **Ennemi :** Wang Lin
+- **Système stellaire :** Système Stellaire Primordial Antique (Ancient Primordial Star System)
+- **Royaume :** Royaume Extérieur (Outer Realm)
+- **Monde :** Monde de la Grotte de Wang Lin
 
-It was created long ago by the founding Ancestor of the Scatter Thunder Clan who was also the only one to ever reach the Third Step . He did so with aid from a group of mysterious cultivators who also helped the Moon Devourer Clan enslave the weaker Ancient Gods and absorb their qi.
+## Contexte
 
-The 7 million worlds is a type of sealed realm within which is a starsystem. This starsystem has 7 million planets all of whom hold cultivators and all of whom are exactly the same distance from each other. The starsystem orbits a large continent where a huge statue can be seen looking into the distance. This is where the Scatter Thunder Clan opperates.
+Dans le passé, ils piégèrent les cultivateurs du **Royaume Scellé** (Sealed Realm) à l'intérieur de la **Formation de Sceau du Royaume** (Realm-Sealing Formation) et les massacrèrent comme des chiens.
 
-The Divine Tribulation of these 7 million worlds is actually created by the Scatter Thunder Clan itself, who use it to kill any and all peak Soul Formation Cultivators. Very rarely however one of these cultivators will manifest one of the six special kinds of lightning the Scatter Thunder Clan Cultivates at the momen he or she undergoes this Tribulation. These people will thus "Pass" the tribulation and enter the Celestial Realm, becoming legends to their peers. However, in truth, their Celestial Realm is the Scatter Thunder Clan itself and they are simply killed so that their unique thunder can be extracted for the clan's own use.
+## Histoire
 
+Un membre du Clan de la Foudre Dispersée entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.
+
+Il tenta de voler l'**Âme du Dragon de Foudre Antique** (Ancient Thunder Dragon Soul) de Wang Lin, mais ce dernier le tua à la place. Wang Lin s'empara alors de la capacité du Clan de la Foudre Dispersée à manipuler la foudre. Bien que cela ne leur enlevât pas toutes leurs capacités, cela affaiblit considérablement le clan puisque leur lac de foudre primordial situé dans les profondeurs du clan vit plus de 30 % de son contenu drainé.
+
+Wang Lin absorba également la marque de Foudre du membre du Clan de la Foudre Dispersée, ce qui, avec la marque de foudre qu'il absorba de la statue de l'Ancêtre du Clan de la Foudre Dispersée, renforça considérablement ses pouvoirs de foudre et d'éclair.
+
+Le clan fut créé il y a longtemps par l'Ancêtre fondateur du Clan de la Foudre Dispersée, qui fut également le seul à atteindre la **Troisième Étape** (Third Step). Il y parvint avec l'aide d'un groupe de cultivateurs mystérieux qui aidèrent également le **Clan Dévoreur de Lune** à asservir les Dieux Antiques les plus faibles et à absorber leur qi.
+
+Les **7 millions de mondes** forment un type de royaume scellé à l'intérieur duquel se trouve un système stellaire. Ce système stellaire compte 7 millions de planètes abritant toutes des cultivateurs, toutes situées exactement à la même distance les unes des autres. Le système stellaire orbite autour d'un vaste continent où une immense statue peut être vue regardant au loin. C'est de là qu'opère le Clan de la Foudre Dispersée.
+
+La **Tribulation Divine** (Divine Tribulation) de ces 7 millions de mondes est en réalité créée par le Clan de la Foudre Dispersée lui-même, qui l'utilise pour tuer tous les cultivateurs au stade culminant de la **Formation de l'Âme** (Soul Formation). Très rarement, cependant, l'un de ces cultivateurs manifestera l'un des six types spéciaux de foudre que cultive le Clan de la Foudre Dispersée au moment où il subit cette Tribulation. Ces personnes « réussissent » ainsi la tribulation et entrent dans le **Royaume Céleste** (Celestial Realm), devenant des légendes aux yeux de leurs pairs. En vérité, cependant, leur Royaume Céleste n'est autre que le Clan de la Foudre Dispersée, et ils sont simplement tués afin que leur foudre unique puisse être extraite pour l'usage propre du clan.
