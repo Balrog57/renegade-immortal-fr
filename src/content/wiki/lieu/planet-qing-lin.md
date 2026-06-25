@@ -5,7 +5,7 @@ type: lieu
 categories: ["Locations", "Planets", "Allheaven Star System", "Sealed Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/Qing lin.webp
 url: "https://xian-ni.fandom.com/wiki/Planet_Qing_Lin"
-sections: ["{\"heading\":\"Presentation\",\"body\":\"It is filled with vitality, so it mean that there are a lot of mortals living there. The reason Wang Lin choses this place was because it was very similar to planet Suzaku .\\n\\nIt was a considered a child as a planet but was able to mature quicker thanks to Wang Lin's Dream Dao that allowed the planet soul to obtain enlightenment when Wang Lin came out from the Dream Dao.\"}", "{\"heading\":\"Locations\",\"body\":\"Wang Lin's Cave - It was entirely create by Wang Lin since the day he arrived on the planet. The door to the cave is at the top of the mountain, surrounded by rocks. It looks very majestic. The presence of a celestial spell create a powerful pressure.\\n\\nFeng Yun Peak - It is the highest peak on Planet Qing Ling. Although the spiritual energy here is thin, it has a spectacular view. One can easily see the end of the world from the peak. It is also covered in mist, making it look like a celestial mountain.\\n\\nHeng Yun Peak - It belonged to the Zhang Family , who had the most Nascent Soul cultivators. Normally, the Nascent Soul cultivators in the Zhang family, whose lifespans were almost up, would come here and enter closed door cultivation to attempt to comprehend the heavens. Over time, the originally beautiful peak became bare for some unknown reason. Even the wind that came from the mountain became cold. It later become a True Spirit Mountain after Wang Lin entered the Dream Dao.\"}", "{\"heading\":\"Population\",\"body\":\"There are many cultivation families on planet Qing Ling. Their numbers are on par with the amount of mortal nations on this densely populated planet. Almost every mortal country has at least one or two cultivation families.\"}"]
+sections: ["{\"heading\":\"Présentation\",\"body\":\"La planète Qing Lin est remplie de vitalité, ce qui signifie qu'il y a beaucoup de mortels qui y vivent. La raison pour laquelle Wang Lin a choisi cet endroit est qu'il ressemblait beaucoup à la planète Suzaku.\\n\\nElle était considérée comme une enfant en tant que planète, mais a pu mûrir plus rapidement grâce au Dao du Rêve (Dream Dao) de Wang Lin, qui a permis à l'âme de la planète d'obtenir l'éveil lorsque Wang Lin sortit du Dao du Rêve.\"}", "{\"heading\":\"Lieux remarquables\",\"body\":\"**Grotte de Wang Lin** - Elle a été entièrement créée par Wang Lin depuis le jour de son arrivée sur la planète. La porte de la grotte se trouve au sommet de la montagne, entourée de rochers. Elle a l'air très majestueuse. La présence d'un sort céleste crée une puissante pression.\\n\\n**Pic Feng Yun** - C'est le plus haut pic de la planète Qing Lin. Bien que l'énergie spirituelle y soit fine, il offre une vue spectaculaire. On peut facilement voir la fin du monde depuis le pic. Il est également couvert de brume, ce qui le fait ressembler à une montagne céleste.\\n\\n**Pic Heng Yun** - Il appartenait à la Famille Zhang, qui avait le plus de cultivateurs de l'Âme Naissante (Nascent Soul). Normalement, les cultivateurs de l'Âme Naissante de la famille Zhang, dont l'espérance de vie touchait à sa fin, venaient ici et entraient en cultivation à porte close pour tenter de comprendre les cieux. Au fil du temps, le pic originellement beau est devenu nu pour une raison inconnue. Même le vent venant de la montagne est devenu froid. Il devint plus tard une Montagne du Vrai Esprit (True Spirit Mountain) après que Wang Lin entra dans le Dao du Rêve.\"}", "{\"heading\":\"Population\",\"body\":\"Il y a de nombreuses familles de cultivation sur la planète Qing Lin. Leur nombre est comparable à celui des nations mortelles sur cette planète densément peuplée. Presque chaque pays mortel possède au moins une ou deux familles de cultivation.\"}"]
 ---
 ![Planet Qing Lin](/renegade-immortal-fr/wiki/images/Qing lin.webp)
 
@@ -13,21 +13,39 @@ sections: ["{\"heading\":\"Presentation\",\"body\":\"It is filled with vitality,
 
 **Catégories :** Locations, Planets, Allheaven Star System, Sealed Realm, Wang Lin's Cave World
 
-## Presentation
+## Description
 
-It is filled with vitality, so it mean that there are a lot of mortals living there. The reason Wang Lin choses this place was because it was very similar to planet Suzaku .
+La **Planète Qing Lin** (Planet Qing Lin), également connue sous le nom de *Planète de Cultivation de Wang Lin*, est une planète du système stellaire Allheaven (Allheaven Star System), située dans le Royaume Scellé (Sealed Realm) et faisant partie du Monde des Cavernes de Wang Lin. Elle est remplie de vitalité et abrite une grande population de mortels.
 
-It was a considered a child as a planet but was able to mature quicker thanks to Wang Lin's Dream Dao that allowed the planet soul to obtain enlightenment when Wang Lin came out from the Dream Dao.
+Wang Lin a choisi cette planète parce qu'elle ressemblait beaucoup à la planète Suzaku. Considérée comme une planète « enfant », elle a pu mûrir plus rapidement grâce au Dao du Rêve (Dream Dao) de Wang Lin, qui a permis à l'âme de la planète d'atteindre l'éveil. Le dirigeant actuel de la planète est Wang Lin, et Xie Qing figure parmi ses membres notables.
 
-### Locations
+### Fiche signalétique
 
-Wang Lin's Cave - It was entirely create by Wang Lin since the day he arrived on the planet. The door to the cave is at the top of the mountain, surrounded by rocks. It looks very majestic. The presence of a celestial spell create a powerful pressure.
+- **Nom anglais :** Planet Qing Lin
+- **Autre nom :** Planète de Cultivation de Wang Lin (Wang Lin's Cultivation Planet)
+- **Type :** Planète
+- **Statut :** Existant
+- **Système stellaire :** Allheaven Star System
+- **Monde :** Monde des Cavernes de Wang Lin (Wang Lin's Cave World)
+- **Royaume :** Sealed Realm
+- **Dirigeant :** Wang Lin
+- **Membre notable :** Xie Qing
+- **Particularité :** Planète enfant ayant mûri grâce au Dao du Rêve
 
-Feng Yun Peak - It is the highest peak on Planet Qing Ling. Although the spiritual energy here is thin, it has a spectacular view. One can easily see the end of the world from the peak. It is also covered in mist, making it look like a celestial mountain.
+## Présentation
 
-Heng Yun Peak - It belonged to the Zhang Family , who had the most Nascent Soul cultivators. Normally, the Nascent Soul cultivators in the Zhang family, whose lifespans were almost up, would come here and enter closed door cultivation to attempt to comprehend the heavens. Over time, the originally beautiful peak became bare for some unknown reason. Even the wind that came from the mountain became cold. It later become a True Spirit Mountain after Wang Lin entered the Dream Dao.
+La planète Qing Lin est remplie de vitalité, ce qui signifie qu'il y a beaucoup de mortels qui y vivent. La raison pour laquelle Wang Lin a choisi cet endroit est qu'il ressemblait beaucoup à la planète Suzaku.
 
-### Population
+Elle était considérée comme une enfant en tant que planète, mais a pu mûrir plus rapidement grâce au Dao du Rêve (Dream Dao) de Wang Lin, qui a permis à l'âme de la planète d'obtenir l'éveil lorsque Wang Lin sortit du Dao du Rêve.
 
-There are many cultivation families on planet Qing Ling. Their numbers are on par with the amount of mortal nations on this densely populated planet. Almost every mortal country has at least one or two cultivation families.
+## Lieux remarquables
 
+**Grotte de Wang Lin** - Elle a été entièrement créée par Wang Lin depuis le jour de son arrivée sur la planète. La porte de la grotte se trouve au sommet de la montagne, entourée de rochers. Elle a l'air très majestueuse. La présence d'un sort céleste crée une puissante pression.
+
+**Pic Feng Yun** - C'est le plus haut pic de la planète Qing Lin. Bien que l'énergie spirituelle y soit fine, il offre une vue spectaculaire. On peut facilement voir la fin du monde depuis le pic. Il est également couvert de brume, ce qui le fait ressembler à une montagne céleste.
+
+**Pic Heng Yun** - Il appartenait à la Famille Zhang, qui avait le plus de cultivateurs de l'Âme Naissante (Nascent Soul). Normalement, les cultivateurs de l'Âme Naissante de la famille Zhang, dont l'espérance de vie touchait à sa fin, venaient ici et entraient en cultivation à porte close pour tenter de comprendre les cieux. Au fil du temps, le pic originellement beau est devenu nu pour une raison inconnue. Même le vent venant de la montagne est devenu froid. Il devint plus tard une Montagne du Vrai Esprit (True Spirit Mountain) après que Wang Lin entra dans le Dao du Rêve.
+
+## Population
+
+Il y a de nombreuses familles de cultivation sur la planète Qing Lin. Leur nombre est comparable à celui des nations mortelles sur cette planète densément peuplée. Presque chaque pays mortel possède au moins une ou deux familles de cultivation.

@@ -5,7 +5,7 @@ type: lieu
 categories: ["Sects", "Locations", "Organisations", "Country of Zhao", "Planet Suzaku", "Sealed Realm", "Wang Lin's Cave World", "Alliance Star System"]
 image: /renegade-immortal-fr/wiki/images/Eng.webp
 url: "https://xian-ni.fandom.com/wiki/Heng_Yue_Sect"
-sections: ["{\"heading\":\"Influence\",\"body\":\"Heng Yue Sect was a mighty force that unified the Country of Zhao 500 years ago; however by the start of the novel it is on the verge of being suppressed by the other sects, barely hanging on. [ 1 ] [ 2 ]\\n\\nAfter 400 years, the Heng Yue Sect fell to a sect less than third-rank.\"}", "{\"heading\":\"Fire\",\"body\":\"Each with its own disciples & honorary disciples. Inner disciples & elders live in the main court yard. Core formation elders live on top of the mountain peaks. Wang Lin resides at the Earth Subdivision (Chapter 13, 20).\\n\\nHeng Yue Sect disciples were ranked by the color they wore. Honorary disciples were divided into gray and yellow. The yellows were given the right to start cultivating immortal technique. Inner disciples were ranked based on their strength. From high to low are purple, black, white and red.\"}", "{\"heading\":\"Entrance Requirements\",\"body\":\"After 500 years, the requirement became harsh else even those who don't have great talent could be chosen in the three test.\\n\\nDisciples are accepted if they have natural talent / strong spirit (Wang Zhuo), if they have perseverance / strong willpower as demonstrated by climbing the mountain of stairs, or if they have Spiritual Affinity with the Sword Spirit as demonstrated by opening the doors of the House of Sword (Chapter 3, 4, 20). Since Wang Lin failed all two tests, succeeded one but because of talent failed, he was not able to become a disciple.\\n\\nBelow Inner Disciples are helpers who are able to cultivate as long as they fulfill all tasks assigned to them by their master (Wang Hao entered the sect this way by bribing Elder Hui Bing of the Pill Divison with a 300 year old mushroom)\\n\\nThrough special circumstances or contacts others can enter the sect as Honorary Disciples. Because Wang Lin's 4th Uncle bribed Elder Li with a precious metal, the old man fought to have Wang Lin accepted into the sect as an Honorary Disciple.\"}", "{\"heading\":\"Members\",\"body\":\"It has 2 Core Formation experts and 10 Foundation Establishment; however the day to day tasks of the sect are run by Qi Condensation experts. For example, Sun Dazhu (Wang Lin's 1st Master) is considered an elder despite being only at the 12th stage of Qi Condensation (Chapter 20). Inner disciples are ranked based on cultivation levels and differentiated based on the color of their uniform. Red (Lowest), White, Black (5th Qi Stage), Purple (Highest) (Chapter 12, 28). Below them are the helpers/servants who are able to cultivate upon entering the sect. At the bottom of the hierarchy are the honorary disciples (yellow & gray). Yellow can cultivate; whereas gray have to serve for around 10 years before they can obtain a cultivation method. Honorary disciples can become inner disciples if they rank in top 3 in the yearly competition.\"}", "{\"heading\":\"Dao Xu  (Master of Wang Zhuo)\",\"body\":\"Li (accepts precious metal from 4th Uncle to help make Wang Lin a Honorary Disciple)\"}", "{\"heading\":\"Hui Bing (administered the entrance exam and accepted Wang Hao as a Servant)\",\"body\":\"Zhang (white robed: brought Wang Lin to Heng Yue Sect, saved him from \\\"suicide\\\". At Black robe:competed in competition)\"}", "{\"heading\":\"Sun Hao (bullies Wang Lin during 4yr training at the mountain)\",\"body\":\"Can Jie/Zhang Kuang (2nd eldest, won last year's tournament, bought \\\"water\\\" from Wang Lin for chants)\\n\\nHonorary Disciples - Yellow Robed \\\"Weasel\\\" Liu (corrupt & bulliles gray disciples, eventually killed by Zhang Hu) Zhang Hu (Wang Lin's first roommate, eventually leaves the sect)\"}"]
+sections: ["{\"heading\":\"Influence\",\"body\":\"La Secte Heng Yue était une force puissante qui a unifié le Pays de Zhao (Country of Zhao) il y a 500 ans ; cependant, au début du roman, elle est au bord de l'écrasement par les autres sectes et se raccroche difficilement. Après 400 ans, la Secte Heng Yue est tombée au rang d'une secte de moins de troisième rang.\"}", "{\"heading\":\"Disposition\",\"body\":\"La secte possède 5 subdivisions : Métal (Metal), Bois (Wood), Eau (Water), Terre (Earth) et Feu (Fire). Chacune possède ses propres disciples et disciples honoraires. Les disciples intérieurs et les anciens vivent dans la cour principale. Les anciens de la Formation du Cœur (Core Formation) vivent au sommet des pics montagneux. Wang Lin réside dans la subdivision de la Terre (Chapitres 13, 20).\\n\\nLes disciples de la Secte Heng Yue étaient classés selon la couleur qu'ils portaient. Les disciples honoraires étaient divisés en gris et jaune. Les jaunes recevaient le droit de commencer à cultiver la technique immortelle. Les disciples intérieurs étaient classés selon leur force. Du plus haut au plus bas : violet, noir, blanc et rouge.\"}", "{\"heading\":\"Conditions d'admission\",\"body\":\"Après 500 ans, les conditions sont devenues strictes, sinon même ceux sans grand talent pourraient être choisis lors des trois épreuves.\\n\\nLes disciples sont acceptés s'ils ont un talent naturel / un esprit fort (comme Wang Zhuo), s'ils ont de la persévérance / une forte volonté démontrée en gravissant la montagne d'escaliers, ou s'ils ont une Affinité Spirituelle avec l'Esprit de l'Épée (Sword Spirit) démontrée en ouvrant les portes de la Maison de l'Épée (Chapitres 3, 4, 20). Comme Wang Lin a échoué à deux des épreuves et réussi une mais a échoué sur le talent, il n'a pas pu devenir disciple.\\n\\nEn dessous des Disciples Intérieurs se trouvent les aides qui peuvent cultiver tant qu'ils accomplissent toutes les tâches assignées par leur maître (Wang Hao est entré dans la secte de cette façon en corrompant l'Ancien Hui Bing de la Division des Pilules avec un champignon de 300 ans).\\n\\nPar des circonstances spéciales ou des contacts, d'autres peuvent entrer dans la secte comme Disciples Honoraires. Parce que le 4ème oncle de Wang Lin a corrompu l'Ancien Li avec un métal précieux, le vieil homme s'est battu pour que Wang Lin soit accepté dans la secte comme Disciple Honoraire.\"}", "{\"heading\":\"Membres\",\"body\":\"La secte possède 2 experts de la Formation du Cœur (Core Formation) et 10 de l'Établissement des Fondations (Foundation Establishment) ; cependant, les tâches quotidiennes de la secte sont gérées par des experts de la Condensation du Qi (Qi Condensation). Par exemple, Sun Dazhu (le 1er maître de Wang Lin) est considéré comme un ancien bien qu'il ne soit qu'au 12ème stade de la Condensation du Qi (Chapitre 20). Les disciples intérieurs sont classés selon leurs niveaux de cultivation et différenciés par la couleur de leur uniforme. Rouge (le plus bas), Blanc, Noir (5ème stade du Qi), Violet (le plus haut) (Chapitres 12, 28). En dessous d'eux se trouvent les aides/serviteurs qui peuvent cultiver en entrant dans la secte. Au bas de la hiérarchie se trouvent les disciples honoraires (jaune et gris). Les jaunes peuvent cultiver ; tandis que les gris doivent servir pendant environ 10 ans avant de pouvoir obtenir une méthode de cultivation. Les disciples honoraires peuvent devenir disciples intérieurs s'ils se classent dans le top 3 de la compétition annuelle.\"}", "{\"heading\":\"Membres notables\",\"body\":\"**Ancêtres :** Heng Yue Zi, Ancêtre Wang. **Chef de secte :** Huang Long. **Grand Ancien :** Liu Wenju. **Anciens :** Hui Bing, Sun Dazhu, Dao Xu (maître de Wang Zhuo), Ancien Li (accepte le métal précieux du 4ème oncle pour aider Wang Lin), Ancien Ma (vieil homme au visage rouge opposé à l'acceptation de Wang Lin), Ancien Lu, Ancien Zhang, Ancien Song.\\n\\n**Disciples intérieurs :** Zhang (en robe blanche : a amené Wang Lin à la secte, l'a sauvé du \\\"suicide\\\" ; en robe noire : a participé à la compétition), Lady Xu (aime Wang Zhuo), Lady Zhuo (Wang Zhuo l'aime), Sun Hao (intimide Wang Lin pendant l'entraînement de 4 ans à la montagne), Can Jie / Zhang Kuang (2ème plus âgé, a gagné le tournoi de l'année précédente).\\n\\n**Disciples honoraires :** \\\"Weasel\\\" Liu en robe jaune (corrompu et intimide les disciples gris, finalement tué par Zhang Hu), Zhang Hu (le premier colocataire de Wang Lin, finit par quitter la secte).\"}"]
 ---
 ![Heng Yue Sect](/renegade-immortal-fr/wiki/images/Eng.webp)
 
@@ -13,43 +13,57 @@ sections: ["{\"heading\":\"Influence\",\"body\":\"Heng Yue Sect was a mighty for
 
 **Catégories :** Sects, Locations, Organisations, Country of Zhao, Planet Suzaku, Sealed Realm, Wang Lin's Cave World, Alliance Star System
 
+## Description
+
+La **Secte Heng Yue** (Heng Yue Sect, 恒岳派) est la première secte que [Wang Lin](https://xian-ni.fandom.com/wiki/Wang_Lin) rejoint au début du roman. C'est une secte affiliée à la [Secte Xuan Dao](https://xian-ni.fandom.com/wiki/Xuan_Dao_Sect), située dans le Pays de Zhao sur la planète Suzaku.
+
+Puissante force qui a unifié le Pays de Zhao 500 ans avant le début de l'histoire, la secte est pourtant sur le déclin au moment où Wang Lin y entre. Après 400 ans, elle tombera au rang d'une secte de moins de troisième rang. Finalement, les terres de la Secte Heng Yue seront reprises par la Secte Xuan Dao ; certains disciples choisiront de rejoindre Xuan Dao, tandis que d'autres préféreront partir.
+
+### Fiche signalétique
+
+- **Nom chinois :** 恒岳派 (Héng Yuè Pài)
+- **Pinyin :** Héng Yuè Pài
+- **Type :** Secte
+- **Statut :** Tombée (première fois) / Dissoute (actuellement)
+- **Affiliation :** Secte Xuan Dao
+- **Système stellaire :** Alliance Star System
+- **Monde :** Monde des Cavernes de Wang Lin (Wang Lin's Cave World)
+- **Royaume :** Sealed Realm
+- **Planète :** Planète Suzaku
+- **Continent :** Zhou Wu
+- **Pays :** Pays de Zhao (Country of Zhao)
+- **Ancêtres :** Heng Yue Zi, Ancêtre Wang
+- **Chef de secte :** Huang Long
+- **Grand Ancien :** Liu Wenju
+
 ## Influence
 
-Heng Yue Sect was a mighty force that unified the Country of Zhao 500 years ago; however by the start of the novel it is on the verge of being suppressed by the other sects, barely hanging on. [ 1 ] [ 2 ]
+La Secte Heng Yue était une force puissante qui a unifié le Pays de Zhao (Country of Zhao) il y a 500 ans ; cependant, au début du roman, elle est au bord de l'écrasement par les autres sectes et se raccroche difficilement. Après 400 ans, la Secte Heng Yue est tombée au rang d'une secte de moins de troisième rang.
 
-After 400 years, the Heng Yue Sect fell to a sect less than third-rank.
+## Disposition
 
-### Fire
+La secte possède 5 subdivisions : Métal (Metal), Bois (Wood), Eau (Water), Terre (Earth) et Feu (Fire). Chacune possède ses propres disciples et disciples honoraires. Les disciples intérieurs et les anciens vivent dans la cour principale. Les anciens de la Formation du Cœur (Core Formation) vivent au sommet des pics montagneux. Wang Lin réside dans la subdivision de la Terre (Chapitres 13, 20).
 
-Each with its own disciples & honorary disciples. Inner disciples & elders live in the main court yard. Core formation elders live on top of the mountain peaks. Wang Lin resides at the Earth Subdivision (Chapter 13, 20).
+Les disciples de la Secte Heng Yue étaient classés selon la couleur qu'ils portaient. Les disciples honoraires étaient divisés en gris et jaune. Les jaunes recevaient le droit de commencer à cultiver la technique immortelle. Les disciples intérieurs étaient classés selon leur force. Du plus haut au plus bas : violet, noir, blanc et rouge.
 
-Heng Yue Sect disciples were ranked by the color they wore. Honorary disciples were divided into gray and yellow. The yellows were given the right to start cultivating immortal technique. Inner disciples were ranked based on their strength. From high to low are purple, black, white and red.
+## Conditions d'admission
 
-### Entrance Requirements
+Après 500 ans, les conditions sont devenues strictes, sinon même ceux sans grand talent pourraient être choisis lors des trois épreuves.
 
-After 500 years, the requirement became harsh else even those who don't have great talent could be chosen in the three test.
+Les disciples sont acceptés s'ils ont un talent naturel / un esprit fort (comme Wang Zhuo), s'ils ont de la persévérance / une forte volonté démontrée en gravissant la montagne d'escaliers, ou s'ils ont une Affinité Spirituelle avec l'Esprit de l'Épée (Sword Spirit) démontrée en ouvrant les portes de la Maison de l'Épée (Chapitres 3, 4, 20). Comme Wang Lin a échoué à deux des épreuves et réussi une mais a échoué sur le talent, il n'a pas pu devenir disciple.
 
-Disciples are accepted if they have natural talent / strong spirit (Wang Zhuo), if they have perseverance / strong willpower as demonstrated by climbing the mountain of stairs, or if they have Spiritual Affinity with the Sword Spirit as demonstrated by opening the doors of the House of Sword (Chapter 3, 4, 20). Since Wang Lin failed all two tests, succeeded one but because of talent failed, he was not able to become a disciple.
+En dessous des Disciples Intérieurs se trouvent les aides qui peuvent cultiver tant qu'ils accomplissent toutes les tâches assignées par leur maître (Wang Hao est entré dans la secte de cette façon en corrompant l'Ancien Hui Bing de la Division des Pilules avec un champignon de 300 ans).
 
-Below Inner Disciples are helpers who are able to cultivate as long as they fulfill all tasks assigned to them by their master (Wang Hao entered the sect this way by bribing Elder Hui Bing of the Pill Divison with a 300 year old mushroom)
+Par des circonstances spéciales ou des contacts, d'autres peuvent entrer dans la secte comme Disciples Honoraires. Parce que le 4ème oncle de Wang Lin a corrompu l'Ancien Li avec un métal précieux, le vieil homme s'est battu pour que Wang Lin soit accepté dans la secte comme Disciple Honoraire.
 
-Through special circumstances or contacts others can enter the sect as Honorary Disciples. Because Wang Lin's 4th Uncle bribed Elder Li with a precious metal, the old man fought to have Wang Lin accepted into the sect as an Honorary Disciple.
+## Membres
 
-### Members
+La secte possède 2 experts de la Formation du Cœur (Core Formation) et 10 de l'Établissement des Fondations (Foundation Establishment) ; cependant, les tâches quotidiennes de la secte sont gérées par des experts de la Condensation du Qi (Qi Condensation). Par exemple, Sun Dazhu (le 1er maître de Wang Lin) est considéré comme un ancien bien qu'il ne soit qu'au 12ème stade de la Condensation du Qi (Chapitre 20). Les disciples intérieurs sont classés selon leurs niveaux de cultivation et différenciés par la couleur de leur uniforme. Rouge (le plus bas), Blanc, Noir (5ème stade du Qi), Violet (le plus haut) (Chapitres 12, 28). En dessous d'eux se trouvent les aides/serviteurs qui peuvent cultiver en entrant dans la secte. Au bas de la hiérarchie se trouvent les disciples honoraires (jaune et gris). Les jaunes peuvent cultiver ; tandis que les gris doivent servir pendant environ 10 ans avant de pouvoir obtenir une méthode de cultivation. Les disciples honoraires peuvent devenir disciples intérieurs s'ils se classent dans le top 3 de la compétition annuelle.
 
-It has 2 Core Formation experts and 10 Foundation Establishment; however the day to day tasks of the sect are run by Qi Condensation experts. For example, Sun Dazhu (Wang Lin's 1st Master) is considered an elder despite being only at the 12th stage of Qi Condensation (Chapter 20). Inner disciples are ranked based on cultivation levels and differentiated based on the color of their uniform. Red (Lowest), White, Black (5th Qi Stage), Purple (Highest) (Chapter 12, 28). Below them are the helpers/servants who are able to cultivate upon entering the sect. At the bottom of the hierarchy are the honorary disciples (yellow & gray). Yellow can cultivate; whereas gray have to serve for around 10 years before they can obtain a cultivation method. Honorary disciples can become inner disciples if they rank in top 3 in the yearly competition.
+## Membres notables
 
-### Dao Xu  (Master of Wang Zhuo)
+**Ancêtres :** Heng Yue Zi, Ancêtre Wang. **Chef de secte :** Huang Long. **Grand Ancien :** Liu Wenju. **Anciens :** Hui Bing, Sun Dazhu, Dao Xu (maître de Wang Zhuo), Ancien Li (accepte le métal précieux du 4ème oncle pour aider Wang Lin), Ancien Ma (vieil homme au visage rouge opposé à l'acceptation de Wang Lin), Ancien Lu, Ancien Zhang, Ancien Song.
 
-Li (accepts precious metal from 4th Uncle to help make Wang Lin a Honorary Disciple)
+**Disciples intérieurs :** Zhang (en robe blanche : a amené Wang Lin à la secte, l'a sauvé du "suicide" ; en robe noire : a participé à la compétition), Lady Xu (aime Wang Zhuo), Lady Zhuo (Wang Zhuo l'aime), Sun Hao (intimide Wang Lin pendant l'entraînement de 4 ans à la montagne), Can Jie / Zhang Kuang (2ème plus âgé, a gagné le tournoi de l'année précédente).
 
-### Hui Bing (administered the entrance exam and accepted Wang Hao as a Servant)
-
-Zhang (white robed: brought Wang Lin to Heng Yue Sect, saved him from "suicide". At Black robe:competed in competition)
-
-### Sun Hao (bullies Wang Lin during 4yr training at the mountain)
-
-Can Jie/Zhang Kuang (2nd eldest, won last year's tournament, bought "water" from Wang Lin for chants)
-
-Honorary Disciples - Yellow Robed "Weasel" Liu (corrupt & bulliles gray disciples, eventually killed by Zhang Hu) Zhang Hu (Wang Lin's first roommate, eventually leaves the sect)
-
+**Disciples honoraires :** "Weasel" Liu en robe jaune (corrompu et intimide les disciples gris, finalement tué par Zhang Hu), Zhang Hu (le premier colocataire de Wang Lin, finit par quitter la secte).
