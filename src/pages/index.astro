@@ -21,6 +21,20 @@ const chapters = await getChaptersSorted();
     </div>
   </section>
 
+  <section class="illustration">
+    <figure class="illustration-frame">
+      <img
+        src={`${base}wiki/images/Raws-1.webp`}
+        alt="Couverture du manhua Xian Ni — planche d'illustration"
+        class="illustration-img"
+        loading="lazy"
+      />
+      <figcaption class="illustration-caption">
+        仙逆 — Planche d'illustration du manhua (couverture)
+      </figcaption>
+    </figure>
+  </section>
+
   <section class="stats">
     <div class="stat">
       <span class="stat-num">2 088</span>
@@ -150,6 +164,36 @@ const chapters = await getChaptersSorted();
   display: flex; gap: 16px; justify-content: center; flex-wrap: wrap;
   padding: 48px 0; border-bottom: 1px solid var(--line);
 }
+
+.illustration {
+  padding: 56px 0 24px;
+  display: flex; justify-content: center;
+}
+.illustration-frame {
+  margin: 0;
+  width: 100%;
+  max-width: 960px;
+  position: relative;
+  overflow: hidden;
+  border-radius: var(--r-md);
+  box-shadow: 0 12px 40px rgba(0, 0, 0, .55);
+  background: var(--bg-0);
+}
+.illustration-img {
+  display: block;
+  width: 100%;
+  height: auto;
+  object-fit: cover;
+}
+.illustration-caption {
+  position: absolute; left: 0; right: 0; bottom: 0;
+  padding: 14px 20px;
+  font-family: 'Cinzel', serif;
+  font-size: 11px; letter-spacing: .18em; text-transform: uppercase;
+  color: var(--ink-1);
+  background: linear-gradient(180deg, transparent 0%, rgba(5,4,10,.85) 100%);
+  text-align: center;
+}
 .stat { text-align: center; min-width: 120px; }
 .stat-num {
   display: block; font-family: 'Cinzel', serif; font-size: 32px; font-weight: 600;
@@ -206,5 +250,7 @@ const chapters = await getChaptersSorted();
   .stat { min-width: 90px; }
   .stat-num { font-size: 24px; }
   .about-grid { grid-template-columns: 1fr; }
+  .illustration { padding: 32px 0 16px; }
+  .illustration-caption { font-size: 9px; padding: 10px 14px; }
 }
 </style>
