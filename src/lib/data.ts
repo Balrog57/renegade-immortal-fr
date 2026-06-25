@@ -1,19 +1,17 @@
 import { getCollection, render, type CollectionEntry } from 'astro:content';
 
 export const FEATURED_PERSONNAGES = [
-  'wang-lin', 'situ-nan', 'li-muwan', 'tuo-sen', 'all-seer', 'sima-mo',
-  'master-devil-god', 'zhou-yi', 'wang-ping', 'blood-ancestor', 'ancient-god',
+  'wang-lin', 'li-muwan', 'wang-hao', 'wang-zhuo', 'wang-ping', 'situ-nan',
+  'teng-huayuan', 'zhang-hu', 'zhou-rui', 'zhou-ru', 'hongdie', 'li-qian-mei',
+  'qing-yi', 'qing-shui', 'liu-mei', 'all-seer', 'sun-dazhu', 'daoist-water',
+  'lian-daozhen', 'su-dao', 'tuo-sen',
 ];
 
-export const FEATURED_LIEUX = [
-  'sea-of-devils', 'planet-suzaku', 'chu-country', 'country-of-zhao',
-  'tian-yun', 'sky-demon-country', 'outer-realm', 'foreign-battleground',
-  'forest-ruins', 'ancient-demon-city', 'cloud-sea-star-system',
-  'allheaven-star-system',
-];
+export const FEATURED_FACTIONS: string[] = [];
+export const FEATURED_LIEUX: string[] = [];
 
 export interface LoreSection {
-  type: 'personnage' | 'lieu' | 'secte' | 'cultivation';
+  type: 'personnage' | 'lieu' | 'secte' | 'cultivation' | 'faction';
   segment: string;
   label: string;
   singular: string;
@@ -22,8 +20,7 @@ export interface LoreSection {
 
 export const LORE_SECTIONS: LoreSection[] = [
   { type: 'personnage', segment: 'personnages', label: 'Personnages', singular: 'Personnage', active: 'personnages' },
-  { type: 'lieu', segment: 'lieux', label: 'Lieux', singular: 'Lieu', active: 'lieux' },
-  { type: 'secte', segment: 'sectes-clans', label: 'Sectes & Clans', singular: 'Secte / Clan', active: 'sectes' },
+  { type: 'faction', segment: 'factions-lieux', label: 'Factions & Lieux', singular: 'Fiche', active: 'factions' },
   { type: 'cultivation', segment: 'cultivation', label: 'Cultivation', singular: 'Cultivation', active: 'cultivation' },
 ];
 
@@ -60,6 +57,28 @@ export function featuredSlugs(type: string): string[] | null {
   if (type === 'personnage') return FEATURED_PERSONNAGES;
   if (type === 'lieu') return FEATURED_LIEUX;
   return null;
+}
+
+export interface FactionEntry {
+  entry: CollectionEntry<'wiki'>;
+  subtype: 'secte' | 'clan' | 'lieu';
+}
+
+export async function getFactionEntries(): Promise<FactionEntry[]> {
+  const [sectes, lieux] = await Promise.all([
+    getWikiByType('secte'),
+    getWikiByType('lieu'),
+  ]);
+  const result: FactionEntry[] = [];
+  for (const s of sectes) {
+    const cats = (s.data.categories || []).map(c => c.toLowerCase());
+    const isClan = cats.some(c => c.includes('clan'));
+    result.push({ entry: s, subtype: isClan ? 'clan' : 'secte' });
+  }
+  for (const l of lieux) {
+    result.push({ entry: l, subtype: 'lieu' });
+  }
+  return result.sort((a, b) => a.entry.data.name.localeCompare(b.entry.data.name, 'fr'));
 }
 
 export async function getLoreEntries(type: string): Promise<CollectionEntry<'wiki'>[]> {
