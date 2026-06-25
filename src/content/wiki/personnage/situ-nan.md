@@ -3,41 +3,73 @@ name: Situ Nan
 title: Situ Nan
 type: personnage
 categories: ["Characters", "Male", "Human", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World", "Planet Suzaku"]
-image: /renegade-immortal-fr/wiki/images/Situ nan.webp
+image: /renegade-immortal-fr/wiki/images/Situ-nan.webp
 url: "https://xian-ni.fandom.com/wiki/Situ_Nan"
-sections: ["{\"heading\":\"Personality\",\"body\":\"Situ Nan is a lecherous, perverted, and happy-go-lucky man who does not have a care in the world. He rarely cultivates and is more interested in philandering with women. However, he still has a noble and soft heart for those close to him.\"}", "{\"heading\":\"Background\",\"body\":\"Long ago, Situ Nan found the Heaven Defying Bead. However, news of him having possession of the bead spread and he was hunted by the Cultivation Alliance and many vagrants cultivators, including Greed .\\n\\nHe was severely injured and only managed to barely escape with a damaged origin soul. He put his origin soul inside the heaven defying bead and recuperated in the country of Zhao of Planet Suzaku until he met Wang Lin.\\n\\nSitu Nan was born on Planet Four Saints, and begun cultivating there. At Foundation Building, he went to a mortal country to become the king but a few years later, he had a conflict with a Core Formation Expert and fled to cultivate until Late-stage Core Formation. After attaining Core Formation, he went to a Rank 2 country to enjoy life but a few years later, a Nascent Soul cultivator want one of his concubine and conflicted, so he went to cultivate to Late-stage Nascent Soul. After cultivating, he went to a country to enjoy life but killed someone related to a Soul Formation but was saved by Ye Wuyou, he then went to cultivate until Late-stage Soul Formation and killed the Soul Formation's Sect and Family. He wanted to go in a country to enjoy a prince life but was tricked by Ye Wuyou to help him make Suzaku a Rank 6 country.\"}", "{\"heading\":\"History\",\"body\":\"He sealed himself in the Heaven Defying Bead and watched Wang Lin cultivate in its world. The first time he speaks to him is after Wang Lin enters the world of the Heaven Defying Bead before trying to see through it with divine sense. From then on he consistently mocks him and his sect as well as their techniques.\\n\\nHe taught Wang Lin the Underworld Ascension Method which helped him advance through Foundation Establishment quickly. He used up all his saved-up origin energy to save Wang Lin from Teng Huayuan .\\n\\nHe didn't make another appearance until many centuries later when Wang Lin reached Soul Transformation and revived him. Situ Nan inhabited the body of a young male corpse with the excellent qualities of a demonic cultivator.\\n\\nAfter leaving Planet Suzaku, Situ Nan robbed a trading planet and shared some treasures with Wang Lin before the two parted ways.\\n\\nA few centuries later, Situ Nan was chased around by a sect master from Planet Fengluan . He escaped and went into closed-door cultivation to breakthrough into the Nirvana Cleanser realm and vowed to take revenge once he returned.\\n\\nDuring the war between the Inner and Outer Realms, he became a third step cultivator under Qing Lin's tutelage.\\n\\nHe reincarnated into the Immortal Astral Continent, later Wang Lin finds him but Situ Nan stops him saying after he reincarnates into a king couple more times he will find him.\"}"]
+sections: ["{\"heading\":\"Personnalité\",\"body\":\"Situ Nan est un homme **libidineux, pervers et insouciant** qui ne se soucie de rien. Il cultive rarement et préfère courir les jupons. Pourtant, il garde un cœur noble et tendre pour ceux qui lui sont proches.\\n\\nSa célèbre réplique résume parfaitement sa philosophie de vie :\\n\\n> « Ce vieux n'a pas encore assez profité de la vie. Cultiver, cultiver, quel pet de chien y a-t-il à cultiver ?! Ma vie de roi est bien meilleure ; je peux faire ce que je veux et personne n'ose m'offenser ! »\"}", "{\"heading\":\"Histoire\",\"body\":\"### Origines et rencontre avec la Perle du Ciel Insondable\\n\\nIl y a longtemps, Situ Nan trouva la **Perle du Ciel Insondable** (Heaven Defying Bead). Cependant, la nouvelle de sa possession se répandit, et il fut chassé par l'**Alliance de Cultivation** et de nombreux cultivateurs vagabonds, dont **Greed**.\\n\\nIl fut grièvement blessé et ne parvint à s'échapper de justesse avec une âme originelle endommagée. Il plaça cette âme à l'intérieur de la perle céleste et se rétablit dans le Pays de Zhao de la **Planète Suzaku**, jusqu'à ce qu'il rencontre Wang Lin.\\n\\nSitu Nan est né sur la **Planète des Quatre Saints** et y a commencé à cultiver. À l'étape Foundation Building, il alla dans un pays mortel pour devenir roi, mais quelques années plus tard, il eut un conflit avec un expert Core Formation et s'enfuit pour cultiver jusqu'à l'étape Core Formation tardive. Après avoir atteint Core Formation, il alla dans un pays de Rang 2 pour profiter de la vie, mais quelques années plus tard, un cultivateur Nascent Soul voulut une de ses concubines et ils entrèrent en conflit, ce qui le poussa à cultiver jusqu'à Nascent Soul tardif. Après avoir cultivé, il alla dans un pays pour profiter de la vie, mais tua quelqu'un lié à un Soul Formation et fut sauvé par **Ye Wuyou**, puis il cultiva jusqu'à Soul Formation tardif et tua la secte et la famille du Soul Formation. Il voulait ensuite vivre une vie de prince, mais fut piégé par Ye Wuyou pour l'aider à faire de Suzaku un pays de Rang 6.\\n\\n### La rencontre avec Wang Lin\\n\\nIl se scella dans la Perle du Ciel Insondable et observa Wang Lin cultiver dans son monde. La première fois qu'il lui parle, c'est après que Wang Lin entre dans le monde de la perle avant d'essayer de voir à travers avec son sens divin. Dès lors, il se moque constamment de lui et de sa secte, ainsi que de leurs techniques.\\n\\nIl enseigna à Wang Lin la **Méthode d'Ascension du Monde Souterrain** (Underworld Ascension Method), qui l'aida à progresser rapidement à travers l'étape **Foundation Establishment**. Il utilisa toute son énergie d'origine sauvegardée pour sauver Wang Lin de **Teng Huayuan**.\\n\\n### Renaissance et aventures\\n\\nIl ne réapparut que plusieurs siècles plus tard, lorsque Wang Lin atteignit l'étape **Soul Transformation** et le ressuscita. Situ Nan habite alors le corps d'un jeune homme mort avec d'excellentes qualités de cultivateur démoniaque.\\n\\nAprès avoir quitté la Planète Suzaku, Situ Nan pilla une planète commerciale et partagea quelques trésors avec Wang Lin avant que les deux ne se séparent.\\n\\nQuelques siècles plus tard, Situ Nan fut pourchassé par un maître de secte de la Planète Fengluan. Il s'échappa et entra en cultivation à portes fermées pour franchir le stade **Nirvana Cleanser** et fit le vœu de se venger à son retour.\\n\\nPendant la guerre entre les Royaumes Intérieur et Extérieur, il devint un cultivateur de la **Troisième Étape** sous la tutelle de **Qing Lin**.\\n\\nIl se réincarna ensuite dans le **Continent Astral Immortel**. Plus tard, Wang Lin le retrouve, mais Situ Nan l'arrête en disant qu'après s'être réincarné encore quelques fois en couple royal, il le retrouvera.\"}"]
 ---
-![Situ Nan](/renegade-immortal-fr/wiki/images/Situ nan.webp)
+
+![Situ Nan](/renegade-immortal-fr/wiki/images/Situ-nan.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Situ_Nan) (CC BY-SA)
 
 **Catégories :** Characters, Male, Human, Alliance Star System, Sealed Realm, Wang Lin's Cave World, Planet Suzaku
 
-## Personality
+## Description
 
-Situ Nan is a lecherous, perverted, and happy-go-lucky man who does not have a care in the world. He rarely cultivates and is more interested in philandering with women. However, he still has a noble and soft heart for those close to him.
+**Situ Nan** (司徒南, *sī tú nán*) est l'un des personnages majeurs de **Renegade Immortal**. Il est l'**ancien propriétaire de la Perle du Ciel Insondable** (Heaven Defying Bead) et le **maître de Wang Lin**, qui deviendra son disciple. C'est un personnage haut en couleur, aussi décontracté que puissant.
 
-### Background
+### Fiche signalétique
 
-Long ago, Situ Nan found the Heaven Defying Bead. However, news of him having possession of the bead spread and he was hunted by the Cultivation Alliance and many vagrants cultivators, including Greed .
+- **Nom chinois :** 司徒南
+- **Pinyin :** sī tú nán
+- **Alias :** Situ, King, Second Suzaku, Pink Palace's Lord, Si Nan (Réincarnation)
+- **Statut vital :** Vivant
+- **Âge :** 10 000+
+- **Genre :** Homme
+- **Espèce :** Humain
+- **Cheveux :** Blancs
+- **Yeux :** Noirs
+- **Niveau de cultivation :** Corporeal Yang (actuel, donghua), Nirvana Cleanser (Chapitre 994), Nirvana Void (ancien), mortel (réincarné)
+- **Occupations :** Cultivateur démoniaque, Roi, 2ème Suzaku, Maître du Pink Palace, Grand Général du Pays Wu Xuan
+- **Amis :** Wang Lin, Ye Wuyou
+- **Ennemis :** Alliance de Cultivation, Na Duo
+- **Maîtres :** Qing Lin
+- **Disciples :** Wang Lin
+- **Origine :** Planète des Quatre Saints
+- **Pays :** Suzaku (ancien), Wu Xuan (actuel)
 
-He was severely injured and only managed to barely escape with a damaged origin soul. He put his origin soul inside the heaven defying bead and recuperated in the country of Zhao of Planet Suzaku until he met Wang Lin.
+## Personnalité
 
-Situ Nan was born on Planet Four Saints, and begun cultivating there. At Foundation Building, he went to a mortal country to become the king but a few years later, he had a conflict with a Core Formation Expert and fled to cultivate until Late-stage Core Formation. After attaining Core Formation, he went to a Rank 2 country to enjoy life but a few years later, a Nascent Soul cultivator want one of his concubine and conflicted, so he went to cultivate to Late-stage Nascent Soul. After cultivating, he went to a country to enjoy life but killed someone related to a Soul Formation but was saved by Ye Wuyou, he then went to cultivate until Late-stage Soul Formation and killed the Soul Formation's Sect and Family. He wanted to go in a country to enjoy a prince life but was tricked by Ye Wuyou to help him make Suzaku a Rank 6 country.
+Situ Nan est un homme **libidineux, pervers et insouciant** qui ne se soucie de rien. Il cultive rarement et préfère courir les jupons. Pourtant, il garde un cœur noble et tendre pour ceux qui lui sont proches.
 
-### History
+Sa célèbre réplique résume parfaitement sa philosophie de vie :
 
-He sealed himself in the Heaven Defying Bead and watched Wang Lin cultivate in its world. The first time he speaks to him is after Wang Lin enters the world of the Heaven Defying Bead before trying to see through it with divine sense. From then on he consistently mocks him and his sect as well as their techniques.
+> « Ce vieux n'a pas encore assez profité de la vie. Cultiver, cultiver, quel pet de chien y a-t-il à cultiver ?! Ma vie de roi est bien meilleure ; je peux faire ce que je veux et personne n'ose m'offenser ! »
 
-He taught Wang Lin the Underworld Ascension Method which helped him advance through Foundation Establishment quickly. He used up all his saved-up origin energy to save Wang Lin from Teng Huayuan .
+## Histoire
 
-He didn't make another appearance until many centuries later when Wang Lin reached Soul Transformation and revived him. Situ Nan inhabited the body of a young male corpse with the excellent qualities of a demonic cultivator.
+### Origines et rencontre avec la Perle du Ciel Insondable
 
-After leaving Planet Suzaku, Situ Nan robbed a trading planet and shared some treasures with Wang Lin before the two parted ways.
+Il y a longtemps, Situ Nan trouva la **Perle du Ciel Insondable** (Heaven Defying Bead). Cependant, la nouvelle de sa possession se répandit, et il fut chassé par l'**Alliance de Cultivation** et de nombreux cultivateurs vagabonds, dont **Greed**.
 
-A few centuries later, Situ Nan was chased around by a sect master from Planet Fengluan . He escaped and went into closed-door cultivation to breakthrough into the Nirvana Cleanser realm and vowed to take revenge once he returned.
+Il fut grièvement blessé et ne parvint à s'échapper de justesse avec une âme originelle endommagée. Il plaça cette âme à l'intérieur de la perle céleste et se rétablit dans le Pays de Zhao de la **Planète Suzaku**, jusqu'à ce qu'il rencontre Wang Lin.
 
-During the war between the Inner and Outer Realms, he became a third step cultivator under Qing Lin's tutelage.
+Situ Nan est né sur la **Planète des Quatre Saints** et y a commencé à cultiver. À l'étape Foundation Building, il alla dans un pays mortel pour devenir roi, mais quelques années plus tard, il eut un conflit avec un expert Core Formation et s'enfuit pour cultiver jusqu'à l'étape Core Formation tardive. Après avoir atteint Core Formation, il alla dans un pays de Rang 2 pour profiter de la vie, mais quelques années plus tard, un cultivateur Nascent Soul voulut une de ses concubines et ils entrèrent en conflit, ce qui le poussa à cultiver jusqu'à Nascent Soul tardif. Après avoir cultivé, il alla dans un pays pour profiter de la vie, mais tua quelqu'un lié à un Soul Formation et fut sauvé par **Ye Wuyou**, puis il cultiva jusqu'à Soul Formation tardif et tua la secte et la famille du Soul Formation. Il voulait ensuite vivre une vie de prince, mais fut piégé par Ye Wuyou pour l'aider à faire de Suzaku un pays de Rang 6.
 
-He reincarnated into the Immortal Astral Continent, later Wang Lin finds him but Situ Nan stops him saying after he reincarnates into a king couple more times he will find him.
+### La rencontre avec Wang Lin
 
+Il se scella dans la Perle du Ciel Insondable et observa Wang Lin cultiver dans son monde. La première fois qu'il lui parle, c'est après que Wang Lin entre dans le monde de la perle avant d'essayer de voir à travers avec son sens divin. Dès lors, il se moque constamment de lui et de sa secte, ainsi que de leurs techniques.
+
+Il enseigna à Wang Lin la **Méthode d'Ascension du Monde Souterrain** (Underworld Ascension Method), qui l'aida à progresser rapidement à travers l'étape **Foundation Establishment**. Il utilisa toute son énergie d'origine sauvegardée pour sauver Wang Lin de **Teng Huayuan**.
+
+### Renaissance et aventures
+
+Il ne réapparut que plusieurs siècles plus tard, lorsque Wang Lin atteignit l'étape **Soul Transformation** et le ressuscita. Situ Nan habite alors le corps d'un jeune homme mort avec d'excellentes qualités de cultivateur démoniaque.
+
+Après avoir quitté la Planète Suzaku, Situ Nan pilla une planète commerciale et partagea quelques trésors avec Wang Lin avant que les deux ne se séparent.
+
+Quelques siècles plus tard, Situ Nan fut pourchassé par un maître de secte de la Planète Fengluan. Il s'échappa et entra en cultivation à portes fermées pour franchir le stade **Nirvana Cleanser** et fit le vœu de se venger à son retour.
+
+Pendant la guerre entre les Royaumes Intérieur et Extérieur, il devint un cultivateur de la **Troisième Étape** sous la tutelle de **Qing Lin**.
+
+Il se réincarna ensuite dans le **Continent Astral Immortel**. Plus tard, Wang Lin le retrouve, mais Situ Nan l'arrête en disant qu'après s'être réincarné encore quelques fois en couple royal, il le retrouvera.

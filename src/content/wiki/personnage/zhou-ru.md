@@ -3,35 +3,60 @@ name: Zhou Ru
 title: Zhou Ru
 type: personnage
 categories: ["Characters", "Female", "Human", "Planet Suzaku", "Country of Zhao"]
-image: /renegade-immortal-fr/wiki/images/Zhou Ru.webp
+image: /renegade-immortal-fr/wiki/images/Zhou-ru.webp
 url: "https://xian-ni.fandom.com/wiki/Zhou_Ru"
-sections: ["{\"heading\":\"History\",\"body\":\"To revive Li MuWan , Wang Lin put her nearly shattered Nascent Soul into a new born baby. He thought that this baby had no soul yet and so Li Muwan could grow up through this body and dodge Divine Tribulation. This way Wang Lin and her could be together again.\\n\\nThe new baby was named Zhou Ru and shortly after her birth within a couple years she was taken away from her mortal parents by Wang Lin to raise her. He soon discovered though that Zhou Ru had a soul besides Li Muwan. The only way for Li Muwan to revive fully now was to devour Zhou Ru's soul. Wang Lin hardened his heart to let this happen, but he struggled as he raised Zhou Ru like his own child. This was further reinforced when Li Muwan resisted the process of devouring Zhou Ru's soul. She willingly sacrificed herself and weakened again so Zhou Ru had a chance to live.\\n\\nWang Lin placed Li Muwan's soul into the heaven defying bead and took Zhou Ru back to her parents after taking her with during the Suzaku Arc. Wang Lin then decided to give a bag of holding to the Soul Formation cultivator of Chu stating that if Zhou Ru would reach Nascent Soul the bag of holding should be given to her. This is most likely a method to reach Wang Lin to become his disciple.\\n\\nLater on she reaches the Soul Transformation stage with the help of Tie Yan and leaves planet Suzaku to find Wang Lin. Shortly after leaving, she encounters danger where she is saved by Mu Bingmei and is taken as her disciple. Later on, Wang Lin enters the Brilliant Void Sect and takes Zhou Ru back to the Rain Celestial Realm to be protected before Tuo Sen's destruction of the Brilliant Void Sect.\\n\\nWhen leaving the cave world she chooses to reincarnate and Wang Lin finds her many years later but since she was living a happy mortal life he chose not to awaken her memories and gave the black dog with her (which was the reincarnated white tiger) the ability to awaken her memories if she ever decided to move on.\\n\\nBecause of her Wang Lin Comprehend life and death domain essence :\\n\\n“After 19 years of time…. Wang Er, thank you for allowing me to understand… I should let things that are lost in the world stay lost and those that still exist to remain existing.”\\n\\n“This rain was born in the sky but doesn’t die when it hits the earth. On the earth it will gain new life; it will help plants grow and then it will turn into clouds once more. This change is life!”\\n\\n“I can’t let go of my parents’ soul and your departure. In truth, I wasn’t filial to my parents, and to you I have always been neglectful. Although this emotion is real, it was more of a sense of duty… because I was moved…”\\n\\nWang Lin’s parents’ souls flew out from his brow. They gently gazed at him as they slowly disappeared. They didn’t die but entered a different realm of life.\"}"]
+sections: ["{\"heading\":\"Histoire\",\"body\":\"### Origines et renaissance de Li Muwan\\n\\nPour ressusciter **Li Muwan**, Wang Lin plaça son Nascent Soul presque brisé dans un bébé à naître. Il pensait que ce bébé n'avait pas encore d'âme et que Li Muwan pourrait ainsi grandir à travers ce corps, esquivant ainsi la Tribulation Divine. Wang Lin pourrait ainsi être à nouveau avec elle.\\n\\nLe nouveau bébé fut nommé **Zhou Ru** et, peu après sa naissance, fut emmené par Wang Lin loin de ses parents mortels pour qu'il l'élève. Il découvrit cependant que Zhou Ru avait une âme en plus de celle de Li Muwan. La seule façon pour Li Muwan de ressusciter pleinement était désormais de dévorer l'âme de Zhou Ru. Wang Lin endurcit son cœur pour laisser cela se produire, mais il souffrait en élevant Zhou Ru comme son propre enfant.\\n\\nLa situation fut encore renforcée lorsque **Li Muwan résista au processus** de dévoration de l'âme de Zhou Ru. Elle se sacrifia volontairement et s'affaiblit à nouveau pour donner à Zhou Ru une chance de vivre.\\n\\nWang Lin plaça alors l'âme de Li Muwan dans la **Perle du Ciel Insondable** et ramena Zhou Ru chez ses parents après l'avoir emmené durant l'Arc Suzaku. Il décida ensuite de donner un sac de stockage au cultivateur Soul Formation de Chu, stipulant que si Zhou Ru atteignait **Nascent Soul**, le sac devrait lui être donné — c'était probablement une méthode pour atteindre Wang Lin et devenir son disciple.\\n\\n### Vie adulte et cultivation\\n\\nPlus tard, Zhou Ru atteint l'étape **Soul Transformation** avec l'aide de **Tie Yan** et quitte la Planète Suzaku pour retrouver Wang Lin. Peu après son départ, elle rencontre un danger où elle est sauvée par **Mu Bingmei** et est prise comme disciple. Plus tard, Wang Lin entre dans la **Brilliant Void Sect** et ramène Zhou Ru dans le **Rain Celestial Realm** pour qu'elle soit protégée avant la destruction de la Brilliant Void Sect par Tuo Sen.\\n\\nLors de sa sortie du monde de la grotte, elle choisit de se réincarner. Wang Lin la retrouve de nombreuses années plus tard mais, comme elle vivait une vie de mortelle heureuse, il choisit de ne pas éveiller ses souvenirs et donna au chien noir qui l'accompagnait (le tigre blanc réincarné) la capacité d'éveiller ses souvenirs si elle décidait un jour de passer à autre chose.\\n\\n### L'importance pour Wang Lin — Le Domaine de Vie et de Mort\\n\\nZhou Ru joue un rôle crucial dans la cultivation de Wang Lin. Voici les paroles prononcées lors de cet épisode marquant :\\n\\n> « Après 19 ans... Wang Er, merci de m'avoir permis de comprendre... Je dois laisser les choses perdues dans le monde rester perdues et celles qui existent encore demeurer existantes. »\\n\\n> « Cette pluie est née dans le ciel mais ne meurt pas quand elle touche la terre. Sur la terre, elle gagnera une nouvelle vie ; elle aidera les plantes à pousser puis redeviendra des nuages. Ce changement, c'est la vie ! »\\n\\n> « Je ne peux pas laisser partir l'âme de mes parents et ton départ. En vérité, je n'ai pas été filial envers mes parents, et envers toi j'ai toujours été négligent. Bien que cette émotion soit réelle, c'était davantage un sens du devoir... parce que j'étais ému... »\\n\\nLes âmes des parents de Wang Lin s'envolèrent de son front. Elles le regardèrent doucement en disparaissant lentement. Elles ne moururent pas mais entrèrent dans un autre royaume de la vie.\"}"]
 ---
-![Zhou Ru](/renegade-immortal-fr/wiki/images/Zhou Ru.webp)
+
+![Zhou Ru](/renegade-immortal-fr/wiki/images/Zhou-ru.webp)
 
 > Source : [Fandom Wiki](https://xian-ni.fandom.com/wiki/Zhou_Ru) (CC BY-SA)
 
 **Catégories :** Characters, Female, Human, Planet Suzaku, Country of Zhao
 
-## History
+## Description
 
-To revive Li MuWan , Wang Lin put her nearly shattered Nascent Soul into a new born baby. He thought that this baby had no soul yet and so Li Muwan could grow up through this body and dodge Divine Tribulation. This way Wang Lin and her could be together again.
+**Zhou Ru** (周茹, *Zhōu rú*) est un personnage au destin tragique de Renegade Immortal. Elle est née pour servir de **réceptacle à la renaissance de Li Muwan**, mais sa propre existence a bouleversé ce plan, devenant l'un des éléments les plus émouvants de la psychologie de Wang Lin.
 
-The new baby was named Zhou Ru and shortly after her birth within a couple years she was taken away from her mortal parents by Wang Lin to raise her. He soon discovered though that Zhou Ru had a soul besides Li Muwan. The only way for Li Muwan to revive fully now was to devour Zhou Ru's soul. Wang Lin hardened his heart to let this happen, but he struggled as he raised Zhou Ru like his own child. This was further reinforced when Li Muwan resisted the process of devouring Zhou Ru's soul. She willingly sacrificed herself and weakened again so Zhou Ru had a chance to live.
+### Fiche signalétique
 
-Wang Lin placed Li Muwan's soul into the heaven defying bead and took Zhou Ru back to her parents after taking her with during the Suzaku Arc. Wang Lin then decided to give a bag of holding to the Soul Formation cultivator of Chu stating that if Zhou Ru would reach Nascent Soul the bag of holding should be given to her. This is most likely a method to reach Wang Lin to become his disciple.
+- **Nom chinois :** 周茹
+- **Pinyin :** Zhōu rú
+- **Genre :** Femme
+- **Espèce :** Humaine
+- **Appartenances :** Planète Suzaku, Pays de Zhao
+- **Père adoptif :** Wang Lin
+- **Oncle (non lié par le sang) :** Tie Yan
+- **Maîtres :** Wang Lin, Mu Bingmei
+- **Animaux de compagnie :** Little White, Little Violet
+- **Première apparition :** Chapitre 356
 
-Later on she reaches the Soul Transformation stage with the help of Tie Yan and leaves planet Suzaku to find Wang Lin. Shortly after leaving, she encounters danger where she is saved by Mu Bingmei and is taken as her disciple. Later on, Wang Lin enters the Brilliant Void Sect and takes Zhou Ru back to the Rain Celestial Realm to be protected before Tuo Sen's destruction of the Brilliant Void Sect.
+## Histoire
 
-When leaving the cave world she chooses to reincarnate and Wang Lin finds her many years later but since she was living a happy mortal life he chose not to awaken her memories and gave the black dog with her (which was the reincarnated white tiger) the ability to awaken her memories if she ever decided to move on.
+### Origines et renaissance de Li Muwan
 
-Because of her Wang Lin Comprehend life and death domain essence :
+Pour ressusciter **Li Muwan**, Wang Lin plaça son Nascent Soul presque brisé dans un bébé à naître. Il pensait que ce bébé n'avait pas encore d'âme et que Li Muwan pourrait ainsi grandir à travers ce corps, esquivant ainsi la Tribulation Divine. Wang Lin pourrait ainsi être à nouveau avec elle.
 
-“After 19 years of time…. Wang Er, thank you for allowing me to understand… I should let things that are lost in the world stay lost and those that still exist to remain existing.”
+Le nouveau bébé fut nommé **Zhou Ru** et, peu après sa naissance, fut emmené par Wang Lin loin de ses parents mortels pour qu'il l'élève. Il découvrit cependant que Zhou Ru avait une âme en plus de celle de Li Muwan. La seule façon pour Li Muwan de ressusciter pleinement était désormais de dévorer l'âme de Zhou Ru. Wang Lin endurcit son cœur pour laisser cela se produire, mais il souffrait en élevant Zhou Ru comme son propre enfant.
 
-“This rain was born in the sky but doesn’t die when it hits the earth. On the earth it will gain new life; it will help plants grow and then it will turn into clouds once more. This change is life!”
+La situation fut encore renforcée lorsque **Li Muwan résista au processus** de dévoration de l'âme de Zhou Ru. Elle se sacrifia volontairement et s'affaiblit à nouveau pour donner à Zhou Ru une chance de vivre.
 
-“I can’t let go of my parents’ soul and your departure. In truth, I wasn’t filial to my parents, and to you I have always been neglectful. Although this emotion is real, it was more of a sense of duty… because I was moved…”
+Wang Lin plaça alors l'âme de Li Muwan dans la **Perle du Ciel Insondable** et ramena Zhou Ru chez ses parents après l'avoir emmené durant l'Arc Suzaku. Il décida ensuite de donner un sac de stockage au cultivateur Soul Formation de Chu, stipulant que si Zhou Ru atteignait **Nascent Soul**, le sac devrait lui être donné — c'était probablement une méthode pour atteindre Wang Lin et devenir son disciple.
 
-Wang Lin’s parents’ souls flew out from his brow. They gently gazed at him as they slowly disappeared. They didn’t die but entered a different realm of life.
+### Vie adulte et cultivation
 
+Plus tard, Zhou Ru atteint l'étape **Soul Transformation** avec l'aide de **Tie Yan** et quitte la Planète Suzaku pour retrouver Wang Lin. Peu après son départ, elle rencontre un danger où elle est sauvée par **Mu Bingmei** et est prise comme disciple. Plus tard, Wang Lin entre dans la **Brilliant Void Sect** et ramène Zhou Ru dans le **Rain Celestial Realm** pour qu'elle soit protégée avant la destruction de la Brilliant Void Sect par Tuo Sen.
+
+Lors de sa sortie du monde de la grotte, elle choisit de se réincarner. Wang Lin la retrouve de nombreuses années plus tard mais, comme elle vivait une vie de mortelle heureuse, il choisit de ne pas éveiller ses souvenirs et donna au chien noir qui l'accompagnait (le tigre blanc réincarné) la capacité d'éveiller ses souvenirs si elle décidait un jour de passer à autre chose.
+
+### L'importance pour Wang Lin — Le Domaine de Vie et de Mort
+
+Zhou Ru joue un rôle crucial dans la cultivation de Wang Lin. Voici les paroles prononcées lors de cet épisode marquant :
+
+> « Après 19 ans... Wang Er, merci de m'avoir permis de comprendre... Je dois laisser les choses perdues dans le monde rester perdues et celles qui existent encore demeurer existantes. »
+
+> « Cette pluie est née dans le ciel mais ne meurt pas quand elle touche la terre. Sur la terre, elle gagnera une nouvelle vie ; elle aidera les plantes à pousser puis redeviendra des nuages. Ce changement, c'est la vie ! »
+
+> « Je ne peux pas laisser partir l'âme de mes parents et ton départ. En vérité, je n'ai pas été filial envers mes parents, et envers toi j'ai toujours été négligent. Bien que cette émotion soit réelle, c'était davantage un sens du devoir... parce que j'étais ému... »
+
+Les âmes des parents de Wang Lin s'envolèrent de son front. Elles le regardèrent doucement en disparaissant lentement. Elles ne moururent pas mais entrèrent dans un autre royaume de la vie.
