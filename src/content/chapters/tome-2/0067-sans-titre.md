@@ -1,10 +1,10 @@
 ---
 n: 67
-title: (Sans titre)
+title: La Demande de Wang Lin
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 67 - (Untitled)
-slug: sans-titre
+en: Chapter 67 - Wang Lin's Request
+slug: la-demande-de-wang-lin
 ---
 La vieille femme nommée Wang hocha la tête et dit : « Wang Lin, si tu as des questions, tu peux venir nous les poser à tout moment. »
 

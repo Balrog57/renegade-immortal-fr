@@ -2,7 +2,7 @@
 name: Pics du Pin Bleu
 title: Pics du Pin Bleu
 type: lieu
-categories: ["Heng Yue Sect/Locations", "Locations"]
+categories: ["Secte Heng Yue/Lieux", "Lieux"]
 url: "https://xian-ni.fandom.com/wiki/Blue_Pine_Peaks"
 sections: ["{\"heading\":\"Description\",\"body\":\"Les Pics du Pin Bleu (Blue Pine Peaks) sont un lieu situé dans les pics de la Secte Heng Yue, où se déroule le concours avec la [Secte Xuan Dao](https://xian-ni.fandom.com/wiki/Xuan_Dao_Sect). Deux experts de la formation dan passent tout leur temps ici.\"}"]
 ---

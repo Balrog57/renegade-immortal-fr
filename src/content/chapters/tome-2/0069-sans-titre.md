@@ -1,10 +1,10 @@
 ---
 n: 69
-title: (Sans titre)
+title: Le Retour Téléporté
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 69 - (Untitled)
-slug: sans-titre
+en: Chapter 69 - The Teleported Return
+slug: le-retour-teleporte
 ---
 Situ Nan marmonna quelques mots. Sachant que Wang Lin était rongé par l'inquiétude, il ne perdit plus de temps. « Il me reste encore un peu d'essence de mon âme. Je peux t'aider à te téléporter une fois, mais une seule ; car si une trop grande partie de mon essence est consumée, je disparaîtrai avant que tu n'atteignes la Transformation de l'Âme », dit-il.
 

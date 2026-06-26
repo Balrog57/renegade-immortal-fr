@@ -2,7 +2,7 @@
 name: Clan Teng
 title: Clan Teng
 type: secte
-categories: ["Clans", "Organisations", "Planet Suzaku", "Country of Zhao", "Alliance Star System", "Wang Lin's Cave World", "Sealed Realm"]
+categories: ["Clans", "Organisations", "Planète Suzaku", "Pays de Zhao", "Système Stellaire Alliance", "Monde de la Grotte de Wang Lin", "Royaume Scellé"]
 url: "https://xian-ni.fandom.com/wiki/Teng_Clan"
 sections: ["{\"heading\":\"Histoire\",\"body\":\"Le **Clan Teng** (Teng Clan, ou Teng Family Clan) est l'une des quatre grandes familles du Domaine Sud du Système Stellaire d'**Allheaven** (Allheaven Star System). Le jeune maître du clan Teng et arrière-arrière-petit-fils de **Teng Huayan** fut tué par **Wang Lin**. Dans sa colère, Teng Huayuan posa un sceau de malédiction sur Wang Lin et lança la traque qui mena au massacre du Clan Wang.\"}"]
 ---

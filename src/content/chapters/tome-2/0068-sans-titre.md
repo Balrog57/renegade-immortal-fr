@@ -1,10 +1,10 @@
 ---
 n: 68
-title: (Sans titre)
+title: Le Complot de Zhou Peng
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 68 - (Untitled)
-slug: sans-titre
+en: Chapter 68 - Zhou Peng's Scheme
+slug: le-complot-de-zhou-peng
 ---
 Zhang Kuang secoua la tête et dit : « Frère aîné, dans toute la Secte Xuan Dao, nous sommes les seuls à le savoir. Je n'en ai parlé à personne d'autre. »
 

@@ -1,10 +1,10 @@
 ---
 n: 66
-title: (Sans titre)
+title: Le Voyage sur le Disque de Jade
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 66 - (Untitled)
-slug: sans-titre
+en: Chapter 66 - The Journey on the Jade Disc
+slug: le-voyage-sur-le-disque-de-jade
 ---
 Liu Wenju se leva et sortit un morceau de jade. Il le lança en l'air et forma rapidement plusieurs sceaux de la main. Puis, il cracha une bouffée d'énergie essence et le jade commença à tournoyer dans les airs.
 
