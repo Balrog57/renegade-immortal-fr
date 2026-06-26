@@ -6,7 +6,6 @@ categories: ["Sects", "Organisations", "Country of Zhao", "Sealed Realm", "Wang 
 url: "https://xian-ni.fandom.com/wiki/Xuan_Dao_Sect"
 sections: ["{\"heading\":\"Histoire\",\"body\":\"La **Secte Xuan Dao** (玄道宗, *Xuán Dào Zōng*) est l'une des principales sectes du **Pays de Zhao**, un pays de cultivation de rang 3 situé sur la **Planète Suzaku**. Son chef de secte, **Punan Zi** (aussi orthographié Punnan Zi), est un cultivateur au stade de l'**Âme Naissante** (Nascent Soul).\\n\\nAprès la mort des ancêtres au stade de l'Âme Naissante de la **Secte Heng Yue**, la Secte Xuan Dao prit de force le contrôle de la **Montagne Heng Yue** et du territoire de la Secte Heng Yue.\\n\\nLa secte est affiliée à la Secte Heng Yue et possède un ancêtre nommé **Punan Zi**, un chef de secte nommé **Ouyang**, un ancien nommé **Qin Gu Lei**, ainsi qu'un disciple de la jeune génération nommé **Xu Mu**. Parmi ses membres notables figurent **Chang Hao** et **Xu Fei**, tandis que **Zhou Peng** en est un ancien membre.\"}"]
 ---
-**Catégories :** Sects, Organisations, Country of Zhao, Sealed Realm, Wang Lin's Cave World, Planet Suzaku, Alliance Star System
 
 ## Description
 

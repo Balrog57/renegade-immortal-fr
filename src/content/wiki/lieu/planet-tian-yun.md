@@ -1,17 +1,12 @@
 ---
-name: Planet Tian Yun
-title: Planet Tian Yun
+name: Planète Tian Yun
+title: Planète Tian Yun
 type: lieu
-categories: ["Stub", "Planets", "Locations", "Heavenly Fate Sect", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World"]
 image: /renegade-immortal-fr/wiki/images/Planet Tian Yun.webp
+categories: ["Stub", "Planets", "Locations", "Heavenly Fate Sect", "Alliance Star System", "Sealed Realm", "Wang Lin's Cave World"]
 url: "https://xian-ni.fandom.com/wiki/Planet_Tian_Yun"
 sections: ["{\"heading\":\"Planète violette\",\"body\":\"La planète Tian Yun était entourée d'une couche de gaz vert. Elle n'était pas dense, mais elle couvrait toute la planète. De loin, la planète semblait recouverte d'un fin rideau vert.\\n\\nÀ l'intérieur du brouillard vert se trouvaient également des points qui brillaient comme des étoiles.\\n\\nDe la grande planète violette au centre, d'abondantes quantités d'énergie spirituelle jaillissaient dans le gaz vert, le faisant tourbillonner et révéler des scènes étranges.\\n\\nCette planète était beaucoup trop grande ; elle faisait des dizaines de fois la taille de la planète Suzaku, et avec une planète de cette taille, il y avait naturellement plus de morts.\\n\\nCinq planètes plus petites orbitaient autour de cette grande planète. D'innombrables cultivateurs vivaient également sur chacune d'elles. Il y avait des planètes encore plus petites plus loin, protégées par de puissantes formations.\\n\\nLa plus grande planète, celle au centre, était la planète Tian Yun.\\n\\nLes cinq planètes plus petites étaient sous le contrôle de la planète Tian Yun, qui était une planète de rang 7. Quant aux planètes encore plus petites, elles étaient des planètes personnelles de cultivateurs très puissants. À moins d'être personnellement invité, personne ne pouvait y entrer.\\n\\nLa planète Suzaku était tout simplement trop petite en comparaison.\\n\\nIl y avait de nombreuses sectes sur la planète Tian Yun, mais bien sûr la plus importante était la Secte du Destin Céleste (Heavenly Fate Sect).\\n\\nLa Secte du Destin Céleste dit que tout dans la vie dépend du destin. Tout a déjà été fixé, donc on ne peut pas le forcer et on ne peut pas y échapper. Ce décret de la secte leur donnait un sentiment transcendantal.\\n\\nLa personne qui a établi ce décret était une personne que la majorité de la population de la planète Tian Yun respectait ; c'était l'Omniscient (All-Seer).\\n\\nL'Omniscient ouvrit les yeux de sa cultivation à porte close. Il avait une expression douce sur le visage, et bien qu'il ait les cheveux blancs, il ne paraissait pas vieux, lui donnant un sentiment transcendantal. Ses yeux brillants montraient plus d'énergie que les yeux de nombreux jeunes.\\n\\nIl n'y avait pas l'ombre de la mort sur lui ; il était rempli d'une vitalité sans fin.\"}", "{\"heading\":\"Distance\",\"body\":\"1 an de Suzaku en utilisant la boussole stellaire (star compass), seulement à mi-chemin.\"}"]
 ---
-![Planet Tian Yun](/renegade-immortal-fr/wiki/images/Planet Tian Yun.webp)
-
-
-**Catégories :** Stub, Planets, Locations, Heavenly Fate Sect, Alliance Star System, Sealed Realm, Wang Lin's Cave World
-
 ## Description
 
 La **Planète Tian Yun** (Planet Tian Yun) est une planète de cultivation de rang 7, immense et violette, entourée d'une couche de gaz vert qui lui donne l'apparence d'être recouverte d'un fin rideau vert. Elle est des dizaines de fois plus grande que la planète Suzaku et abrite une nombreuse population mortelle ainsi que d'innombrables cultivateurs.

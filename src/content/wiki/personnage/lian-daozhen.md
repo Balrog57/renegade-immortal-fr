@@ -8,7 +8,6 @@ sections: ["{\"heading\":\"Histoire\",\"body\":\"### Tome 12\\n\\nImmédiatement
 ---
 
 
-**Catégories :** Characters, Male, Celestial, Antagonistic, Deceased, Celestial Clan, Central Continent, Immortal Astral Continent, Grand Empyrean
 
 ## Description
 

@@ -1,6 +1,6 @@
 ---
 name: Daoist Water
-title: Daoist Water (Shui Daozi)
+title: Daoist Water
 type: personnage
 categories: ["Characters", "Male", "Human", "Antagonistic", "God Sect", "Cloud Sea Star System", "Sealed Realm", "Wang Lin's Cave World", "Deceased", "Nirvana Void"]
 url: "https://xian-ni.fandom.com/wiki/Daoist_Water"
@@ -8,7 +8,6 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"Cette personne ressemblait à 
 ---
 
 
-**Catégories :** Characters, Male, Human, Antagonistic, God Sect, Cloud Sea Star System, Sealed Realm, Wang Lin's Cave World, Deceased, Nirvana Void
 
 ## Description
 

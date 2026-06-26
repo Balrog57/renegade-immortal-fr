@@ -6,7 +6,6 @@ categories: ["Organisations", "Clans", "High Ancient Clans", "Planet Suzaku", "A
 url: "https://xian-ni.fandom.com/wiki/Tattoo_Clan"
 sections: ["{\"heading\":\"Planète Suzaku\",\"body\":\"Sur Suzaku, il existe une tribu appelée le **Clan de l'Immortel Banni** (Forsaken Immortal Clan). Cette branche fut créée par **Tuo Sen**. Lorsque les sauvages de Suzaku le virent pour la première fois, ils le prirent pour un dieu et commencèrent à l'adorer. Tuo Sen leur donna la méthode de cultivation du **Clan du Tatouage** (Tattoo Clan).\"}", "{\"heading\":\"Système Stellaire d'Allheaven\",\"body\":\"Dans le **Domaine Ouest** (Western Domain), aussi connu sous le nom de **Domaine Étrange** (Strange Domain), se trouve une tribu appelée le **Clan de l'Immortel Élu** (Chosen Immortal Clan) qui pratique la même méthode de cultivation que le Clan de l'Immortel Banni de la Planète Suzaku. Les membres de cette tribu étaient sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree) et avaient pour rôle de garder le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast).\"}"]
 ---
-**Catégories :** Organisations, Clans, High Ancient Clans, Planet Suzaku, Alliance Star System, Western Domain, Allheaven Star System, Sealed Realm
 
 ## Description
 

@@ -8,7 +8,6 @@ sections: ["{\"heading\":\"Background\",\"body\":\"Quand il était jeune, il gra
 ---
 
 
-**Catégories :** Characters, Male, Celestial, Deceased, Antagonistic, Seven Dao Sect, Heavenly Bull Continent, Eastern Continent, Immortal Astral Continent, Void Tribulant
 
 ## Description
 

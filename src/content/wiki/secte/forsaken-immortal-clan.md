@@ -6,7 +6,6 @@ categories: ["Clans", "Organisations", "Alliance Star System", "Planet Suzaku", 
 url: "https://xian-ni.fandom.com/wiki/Forsaken_Immortal_Clan"
 sections: ["{\"heading\":\"Rang de Cultivation\",\"body\":\"Les chamans à sept et huit feuilles étaient semblables aux cultivateurs de la **Transformation de l'Âme** (Soul Transformation), tandis que les chamans à neuf feuilles étaient semblables aux cultivateurs de l'étape initiale Ascendant.\\n\\nLe pouvoir des membres du clan provient des tatouages noirs sur leurs corps. Plus ils ont de tatouages, plus ils sont forts. Les membres se divisent en deux types : les chamans et les guerriers.\"}", "{\"heading\":\"Feuille (comparable au Yang Corporel)\",\"body\":\"À un certain stade, la marque de feuille sur leur front leur permet d'atteindre la **Deuxième Étape** (2nd Step) et au-delà sans posséder de Domaine de Cultivateur. Cette caractéristique est commune à la plupart des autres cultivateurs du Royaume Extérieur (Outer Realm Cultivators).\"}"]
 ---
-**Catégories :** Clans, Organisations, Alliance Star System, Planet Suzaku, Wang Lin's Cave World, Sealed Realm
 
 ## Description
 

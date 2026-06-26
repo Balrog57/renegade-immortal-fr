@@ -2,8 +2,8 @@
 name: Li Muwan
 title: Li Muwan
 type: personnage
-categories: ["Personnages", "Femme", "Humain", "Monde de la Grotte de Wang Lin", "Système stellaire Alliance", "Royaume Scellé", "Planète Suzaku", "Core Formation", "Nascent Soul"]
 image: /renegade-immortal-fr/wiki/images/Li Muwan and Wang Lin in Cloud Sky Sect.webp
+categories: ["Personnages", "Femme", "Humain", "Monde de la Grotte de Wang Lin", "Système stellaire Alliance", "Royaume Scellé", "Planète Suzaku", "Core Formation", "Nascent Soul"]
 url: "https://xian-ni.fandom.com/wiki/Li_Muwan"
 sections: ["{\"heading\":\"Aperçu\",\"body\":\"Li Muwan est l'unique épouse de Wang Lin et l'un des personnages féminins les plus marquants de Renegade Immortal. Douée pour le raffinage des pilules et les formations, elle est aimée des anciens de sa secte. Sa beauté n'égale pas celle de Liu Mei, mais son tempérament doux, sa tendresse et son regard ont fait battre le cœur de Wang Lin. Elle est le seul véritable amour et la seule épouse du protagoniste.\"}", "{\"heading\":\"Personnalité\",\"body\":\"Li Muwan est une jeune fille ordinaire, craignant d'être utilisée comme corps de cultivation par des cultivateurs maléfiques. Au fil du roman, sa personnalité évolue : elle devient plus froide après avoir connu la cruauté du monde aux côtés de Wang Lin. Grâce à son talent dans le raffinage des pilules et les formations, elle était très populaire dans sa secte et beaucoup la courtisaient, mais seul Wang Lin parvint à émouvoir son cœur.\"}"]
 ---

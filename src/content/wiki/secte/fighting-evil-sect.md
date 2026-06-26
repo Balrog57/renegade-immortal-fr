@@ -2,12 +2,11 @@
 name: Secte de la Lutte contre le Mal
 title: Secte de la Lutte contre le Mal
 type: secte
+image: /renegade-immortal-fr/wiki/images/Fighting-Evil-Sect.webp
 categories: ["Sects", "Organisations", "Planet Suzaku", "Sea of Devils"]
-image: /renegade-immortal-fr/wiki/images/Fighting Evil Sect.webp
 url: "https://xian-ni.fandom.com/wiki/Fighting_Evil_Sect"
 sections: ["{\"heading\":\"Histoire\",\"body\":\"La **Secte de la Lutte contre le Mal** (Fighting Evil Sect) est une secte située dans la **Mer des Diables** (Sea of Devils) sur la **Planète Suzaku**. Le chef de la secte était un cultivateur au stade de la **Formation du Cœur** (Core Formation) qui fut tué par **Wang Lin**.\"}"]
 ---
-**Catégories :** Sects, Organisations, Planet Suzaku, Sea of Devils
 
 ## Description
 

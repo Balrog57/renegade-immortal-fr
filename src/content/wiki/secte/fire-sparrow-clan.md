@@ -6,7 +6,6 @@ categories: ["Organisations", "Clans", "High Ancient Clans", "Sovereign Council"
 url: "https://xian-ni.fandom.com/wiki/Fire_Sparrow_Clan"
 sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, ils piégèrent les cultivateurs du **Royaume Scellé** (Sealed Realm) à l'intérieur de la **Formation de Sceau du Royaume** (Realm-Sealing Formation) et les massacrèrent comme des chiens.\\n\\nLeur origine remonte à la **Secte Divine de l'Oiseau Vermillon** (Vermillion Bird Divine Sect).\"}", "{\"heading\":\"Histoire\",\"body\":\"Un membre du Clan du Moineau de Feu entra dans le **Royaume aux Sept Couleurs** (Seven-Colored Realm) pendant la période où **Wang Lin** s'y trouvait.\\n\\nIl tenta de voler la **Marque de l'Oiseau Vermillon** (Vermillion Bird mark) de Wang Lin, mais ce dernier le tua à la place. Wang Lin s'empara alors de la capacité du Clan du Moineau de Feu à manipuler le feu. Bien que cela ne leur enlevât pas toutes leurs capacités, cela affaiblit considérablement le clan puisque trois de leurs neuf statues du Vermillon Noir (Black Vermillion Bird) s'effondrèrent tandis que les autres furent gravement endommagées.\\n\\nWang Lin absorba également la marque de Flamme du membre du Clan du Moineau de Feu, ce qui, avec la plume d'Oiseau Vermillon qu'il obtint de **Wu Qing**, lui permit de réaliser le triple-éveil sans précédent de son Oiseau Vermillon.\"}"]
 ---
-**Catégories :** Organisations, Clans, High Ancient Clans, Sovereign Council, Ancient Primordial Star System, Outer Realm, Wang Lin's Cave World
 
 ## Description
 
