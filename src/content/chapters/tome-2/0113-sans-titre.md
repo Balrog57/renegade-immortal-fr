@@ -1,10 +1,10 @@
 ---
 n: 113
-title: Sans titre
+title: Cultivation vers l'Établissement
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 113 - Untitled
-slug: sans-titre
+en: Chapter 113 - Cultivating Toward Foundation
+slug: cultivation-vers-letablissement
 ---
 Situ Nan lui avait expliqué que durant l'étape de la Transformation de l'Âme, l'Âme Naissante se transforme et gagne en volume. Cependant, le corps ne grandit pas pour autant ; l'Âme Naissante n'atteint cette taille que lorsqu'elle se trouve hors du corps.
 

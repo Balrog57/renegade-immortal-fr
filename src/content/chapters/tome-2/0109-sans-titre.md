@@ -1,10 +1,10 @@
 ---
 n: 109
-title: Sans titre
+title: Les Jetons du Champ de Bataille
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 109 - Untitled
-slug: sans-titre
+en: Chapter 109 - The Foreign Battlefield Tokens
+slug: les-jetons-du-champ-de-bataille
 ---
 L'homme fut pris de surprise. Pensant que Wang Lin refusait de dire la vérité, il esquissa un sourire amer. Il frappa son sac de rangement, en fit jaillir un jeton, se retourna et s'exclama d'une voix forte : « Le Sect Piao Miao renonce à sa chance d'entrer sur le champ de bataille étranger. Une fois la vallée ouverte, nous partirons. » Sur ces mots, il mena son groupe de cultivateurs vers le sud-ouest et disparut lentement.
 

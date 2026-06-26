@@ -1,10 +1,10 @@
 ---
 n: 112
-title: Sans titre
+title: Dans l'Espace de la Perle
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 112 - Untitled
-slug: sans-titre
+en: Chapter 112 - Inside the Pearl's Space
+slug: dans-lespace-de-la-perle
 ---
 Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, telle que celle de la Secte des Cadavres qui lui permettra d'invoquer des fantômes pour combattre à ses côtés.
 

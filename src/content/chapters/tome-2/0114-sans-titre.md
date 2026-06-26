@@ -1,10 +1,10 @@
 ---
 n: 114
-title: Sans titre
+title: Le Messager de la Tour Céleste
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 114 - Untitled
-slug: sans-titre
+en: Chapter 114 - The Celestial Tower Messenger
+slug: le-messager-de-la-tour-celeste
 ---
 Xin Hai regarda Shangguan Yun et dit : « Mon frère aîné est allé accueillir le messager de la Tour Céleste. Je pense qu'il sera bientôt de retour. »
 

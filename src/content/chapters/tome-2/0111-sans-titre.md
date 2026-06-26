@@ -1,10 +1,10 @@
 ---
 n: 111
-title: Sans titre
+title: Les Sept Jetons
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 111 - Untitled
-slug: sans-titre
+en: Chapter 111 - The Seven Tokens
+slug: les-sept-jetons
 ---
 Il y avait un total de sept jetons. Wang Lin en avait obtenu deux de la part de Li Shan, un du Secte Piao Miao, un du Secte He Huan et un du Secte Xuan Dao. Au total, il en possédait cinq.
 

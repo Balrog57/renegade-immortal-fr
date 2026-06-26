@@ -1,10 +1,10 @@
 ---
 n: 115
-title: Sans titre
+title: La Fureur de Teng Huayuan
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 115 - Untitled
-slug: sans-titre
+en: Chapter 115 - The Fury of Teng Huayuan
+slug: la-fureur-de-teng-huayuan
 ---
 La formation brilla et une silhouette en sortit.
 

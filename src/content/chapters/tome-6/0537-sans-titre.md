@@ -1,10 +1,10 @@
 ---
 n: 537
-title: Sans titre
+title: Le Tremblement de Terre
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 537 - Untitled
-slug: sans-titre
+en: Chapter 537 - The Earthquake
+slug: le-tremblement-de-terre
 ---
 Le vieil homme en robe grise réfléchissait silencieusement. Il n'avait guère d'estime pour son compatriote de tribu qui s'était rendu à la Cité du Démon Ancien pour y obtenir un poste.
 
