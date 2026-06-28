@@ -14,7 +14,7 @@ sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste pri
 
 - **Nom chinois :** 王林
 - **Pinyin :** Wáng Lín
-- **Alias :** Xu Mu, Tie Zhu, Xiao Lin Zi, Ma Liang, Zeng Niu, Ceng Niu, Qian Mu, Na Du, Maître Démon, Grand Diable, Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
+| **Alias :** Xu Mu (许木), Tie Zhu (铁柱), Xiao Lin Zi, Ma Liang (马良), Zeng Niu, Ceng Niu (曾牛), Qian Mu, Na Du, Lyu Zihao (吕子浩), Maître Démon (王魔头), Grand Diable, Démon Daozi (魔道子), Wang Pockmark (王麻子), Fléau (煞星), Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
 - **Statut :** Vivant
 - **Âge :** 15 ans (début) · 3000+ ans (fin)
 - **Genre :** Homme
