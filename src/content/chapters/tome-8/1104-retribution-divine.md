@@ -30,7 +30,9 @@ Tout en réfléchissant, Wang Lin agita la main droite et une fissure d'environ 
 
 La main droite de Wang Lin plongea dans la fissure pour en extraire un talisman jaune. D'une simple pensée, la faille disparut instantanément.
 
-Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon teintait la terre de jaune et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, décuplant sa vitesse.
+Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon teintait la terre de jaune et, en tournant, il produisait un hurlement de vent violent.
+
+Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, décuplant sa vitesse.
 
 La bête atteignit alors une limite de célérité telle que Wang Lin se retrouva chevauchant la créature ; elle allait si vite que les étoiles au loin ne lui apparaissaient plus que comme de longues traînées lumineuses.
 
@@ -44,7 +46,9 @@ Un groupe de cultivateurs de l'Alliance, ayant reçu l'ordre de se retirer du ch
 
 Ce n'est qu'à ce moment qu'ils entendirent le cri de la bête-moustique, un son dont la portée semblait bien en retard sur la vitesse du monstre. Les visages des cultivateurs se décomposèrent ; terrifiés, ils échangèrent un regard avant de fuir les lieux précipitamment.
 
-Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé. Les planètes de cultivation y étaient rares et, pour la plupart, abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
+Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé.
+
+Les planètes de cultivation y étaient rares et, pour la plupart, abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
 
 En voyant cette étendue de ruines, la bête-moustique poussa un cri strident, ses yeux brillant d'une colère infinie. Elle chargea à travers le champ de débris dans une série de fracas successifs, pulvérisant tout ce qui se dressait sur son passage. La bête fonçait tête baissée dans les profondeurs du chaos, comme possédée par la folie.
 

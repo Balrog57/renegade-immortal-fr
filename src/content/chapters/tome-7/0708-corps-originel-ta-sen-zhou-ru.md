@@ -22,7 +22,9 @@ La zone environnante devint aussi lisse qu'un miroir. Toutes les roches saillant
 
 Wang Lin redescendit et s'assit au centre. Il frappa sa sacoche de stockage, et tout le jade céleste qu'il avait obtenu des trois familles s'en échappa pour retomber autour de lui en amas denses.
 
-Il frappa à nouveau sa sacoche, et l'étendard de l'âme d'un milliard d'âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois âmes primaires ultimes qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
+Il frappa à nouveau sa sacoche, et l'étendard de l'âme d'un milliard d'âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois âmes primaires ultimes qui commencèrent à patrouiller la zone.
+
+Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
 
 Une fois ces préparatifs achevés, Wang Lin prit une profonde inspiration, forma un sceau de la main et ferma les yeux.
 
@@ -36,7 +38,9 @@ De plus en plus d'énergie spirituelle céleste imprégna le corps de Wang Lin, 
 
 À cet instant, dans le lointain Système Stellaire de l'Alliance, se trouvait une planète abandonnée. Cette planète n'était pas vaste, bien plus petite que la planète Suzaku, et elle était dépourvue de toute vie.
 
-Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoiles. Celle qui menait le groupe était une femme vêtue d'une robe de coton violet clair. Sa tenue était simple mais pleine de goût, dégageant une élégance naturelle. Un léger rouge à lèvres couleur prune ornait ses lèvres délicates. Son visage unique et raffiné possédait un charme capable de séduire n'importe qui.
+Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoiles. Celle qui menait le groupe était une femme vêtue d'une robe de coton violet clair.
+
+Sa tenue était simple mais pleine de goût, dégageant une élégance naturelle. Un léger rouge à lèvres couleur prune ornait ses lèvres délicates. Son visage unique et raffiné possédait un charme capable de séduire n'importe qui.
 
 Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps exhalait un parfum subtil qui se répandait partout sur son passage. Plusieurs disques papillons scintillants ornaient le côté droit de son front, et leurs reflets colorés la rendaient encore plus belle.
 
@@ -50,11 +54,15 @@ Zi Xin était très rapide et mena bientôt les deux esclaves vers cette minuscu
 
 L'un des esclaves sanguins répondit d'une voix lente : « Maîtresse, c'est bien elle. »
 
-Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement. Cette planète appartenait à la sphère d'influence de l'Ancêtre Sanguin. Depuis son voyage dans la Terre des Esprits Démoniaques, l'Ancêtre Sanguin affichait toujours une expression sombre, avant de partir sans laisser de trace.
+Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement.
+
+Cette planète appartenait à la sphère d'influence de l'Ancêtre Sanguin. Depuis son voyage dans la Terre des Esprits Démoniaques, l'Ancêtre Sanguin affichait toujours une expression sombre, avant de partir sans laisser de trace.
 
 Après avoir réfléchi un instant, Zi Xin se dirigea vers la petite planète avec ses deux esclaves.
 
-Aucun être vivant ne résidait sur ce monde totalement abandonné. La terre était desséchée. À leur arrivée, un grondement continu résonna sous leurs pieds. Elle vit alors de nouvelles fissures déchirer le sol et une montagne au loin s'effondrer brusquement dans un nuage de poussière. Plus loin, une rivière de cent pieds de large n'était plus qu'un lit asséché.
+Aucun être vivant ne résidait sur ce monde totalement abandonné. La terre était desséchée. À leur arrivée, un grondement continu résonna sous leurs pieds.
+
+Elle vit alors de nouvelles fissures déchirer le sol et une montagne au loin s'effondrer brusquement dans un nuage de poussière. Plus loin, une rivière de cent pieds de large n'était plus qu'un lit asséché.
 
 L'un des esclaves commenta : « Bien que cette planète ait été abandonnée il y a 400 ans, elle n'était pas aussi étrange autrefois. C'est comme si elle avait accompli un cycle de vie entier en seulement quatre siècles. Cela est devenu flagrant ces dernières décennies. »
 
@@ -62,7 +70,9 @@ Les yeux de Zi Xin s'illuminèrent et son sens divin se déploya pour sonder les
 
 Une froideur empreinte d'une intention meurtrière retentit soudainement.
 
-« DISPARAIS ! » Cette voix était plus violente que le tonnerre et dégageait une majesté écrasante. De nouvelles fissures déchirèrent la terre, et le ciel s'assombrit comme s'il n'osait résister à ce commandement. La voix portait des ondes sonores infinies qui se superposaient, rugissant comme une multitude de voix simultanées.
+« DISPARAIS ! » Cette voix était plus violente que le tonnerre et dégageait une majesté écrasante. De nouvelles fissures déchirèrent la terre, et le ciel s'assombrit comme s'il n'osait résister à ce commandement.
+
+La voix portait des ondes sonores infinies qui se superposaient, rugissant comme une multitude de voix simultanées.
 
 « DISPARAIS !!! »
 
@@ -94,7 +104,9 @@ L'expression de ce corps était aussi glaciale qu'une glace millénaire. Il dég
 
 « Ce sort d'extraction d'âme exige un certain niveau de cultivation ! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
 
-« Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles... Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Ta Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
+« Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles...
+
+Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Ta Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
 
 ***
 
@@ -116,7 +128,9 @@ Une épée rouillée, tachée de sang séché, était plantée dans le sol à se
 
 « Wang Lin, je suis sur le point d'être libre... »
 
-Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Diables. Ce n'était pas Ta Sen, mais un messager envoyé par lui ! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu : c'était le Magicien Démon Céleste, censé être mort depuis longtemps !
+Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Diables.
+
+Ce n'était pas Ta Sen, mais un messager envoyé par lui ! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu : c'était le Magicien Démon Céleste, censé être mort depuis longtemps !
 
 Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui aurait appartenu. Maître du Seigneur Démon des Six Désirs, il avait comploté pendant des millénaires pour finalement tout voir détruit par Wang Lin. Sa haine envers ce dernier n'était en rien moindre que celle de Ta Sen !
 

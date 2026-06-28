@@ -20,7 +20,9 @@ Les cultivateurs du Fleuve Invoqué affichaient tous une expression grave ; ils 
 
 Une cultivatrice à l'allure de lettrée, vêtue d'une longue tunique, se tenait sur un éclair en forme de dragon. Ses cheveux flottaient au vent, révélant un visage d'une grande beauté. À ses côtés, une superbe femme d'âge mûr suivait silencieusement le mouvement sur un autre éclair !
 
-Du côté d'Allheaven, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de cultivation. Ils venaient de diverses familles, mais ils étaient unis par un seul but ! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée !
+Du côté d'Allheaven, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de cultivation.
+
+Ils venaient de diverses familles, mais ils étaient unis par un seul but ! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée !
 
 À cet instant, ils n'étaient plus des cultivateurs du Fleuve Invoqué ou d'Allheaven ; ils étaient tous les membres des cultivateurs du Royaume Intérieur !
 
@@ -30,7 +32,9 @@ Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux,
 
 En conséquence, ce fut une véritable déroute ! Le rugissement de Wang Lin fut comme un coup de tonnerre qui brisa les derniers restes de résistance dans le cœur des cultivateurs du Royaume Extérieur !
 
-« L'ancêtre du Clan du Moineau de Feu est mort ! Le cultivateur de la troisième étape Nan Zhao est mort ! Le Grand Maître Yuo Luo du Conseil Souverain est mort ! Et vous serez les prochains ! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol !
+« L'ancêtre du Clan du Moineau de Feu est mort ! Le cultivateur de la troisième étape Nan Zhao est mort ! Le Grand Maître Yuo Luo du Conseil Souverain est mort ! Et vous serez les prochains ! »
+
+Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol !
 
 Le Maître South Cloud combattait la concubine impériale céleste quand, à cet instant, la jeune femme du Fleuve Invoqué, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
@@ -54,7 +58,9 @@ Alors que l'océan empoisonné faisait rage, les cultivateurs du Royaume Extéri
 
 Les cultivateurs du Royaume Extérieur étaient repoussés sans relâche ! Près de 10 000 d'entre eux périrent en un laps de temps si court, et ils ne cessaient de reculer ! Leur confiance avait été pulvérisée par Wang Lin lorsqu'il avait tué ces trois individus. Ils n'osaient plus combattre !
 
-Lorsqu'ils étaient arrivés, ils débordaient d'assurance. À leurs yeux, les cultivateurs du Royaume Intérieur n'étaient que des fourmis. Ils étaient venus pour tuer et piller, convaincus que le Royaume Intérieur ne pourrait opposer aucune résistance sérieuse. En vérité, après leur entrée, le massacre des cultivateurs de la Mer Nuageuse n'avait fait qu'alimenter leur arrogance. Mais ils s'étaient trompés. Désormais, tous savaient qu'ils avaient sous-estimé la puissance que pouvait libérer un peuple lorsqu'il défendait sa patrie !
+Lorsqu'ils étaient arrivés, ils débordaient d'assurance. À leurs yeux, les cultivateurs du Royaume Intérieur n'étaient que des fourmis. Ils étaient venus pour tuer et piller, convaincus que le Royaume Intérieur ne pourrait opposer aucune résistance sérieuse.
+
+En vérité, après leur entrée, le massacre des cultivateurs de la Mer Nuageuse n'avait fait qu'alimenter leur arrogance. Mais ils s'étaient trompés. Désormais, tous savaient qu'ils avaient sous-estimé la puissance que pouvait libérer un peuple lorsqu'il défendait sa patrie !
 
 La mort de l'ancêtre du Clan du Moineau de Feu avait ébranlé leur foi ! Le cri déchirant de l'estimé Nan Zhao avait brisé leur courage ! Enfin, la mort du Grand Maître Yuo Luo avait achevé de détruire leur assurance, transformant leur orgueil en une terreur monstrueuse !
 
@@ -62,13 +68,17 @@ La mort de l'ancêtre du Clan du Moineau de Feu avait ébranlé leur foi ! Le cr
 
 L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Nuageuse attaquaient sans égard pour leur propre vie. Les forces d'Allheaven chargeaient tandis que celles du Fleuve Invoqué fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie !
 
-Wang Lin leva la Hache Bris-Ciel et chargea. À chaque coup de sa hache, des vies s'éteignaient. Ses vêtements blancs étaient désormais trempés de sang. Puis, Wang Lin se mua en un nuage de brume et fonça dans la mêlée. Cette brume, large de plus de 100 000 pieds, enveloppa une multitude de cultivateurs dont la force vitale fut instantanément aspirée, les transformant en eau sanglante.
+Wang Lin leva la Hache Bris-Ciel et chargea. À chaque coup de sa hache, des vies s'éteignaient. Ses vêtements blancs étaient désormais trempés de sang. Puis, Wang Lin se mua en un nuage de brume et fonça dans la mêlée.
+
+Cette brume, large de plus de 100 000 pieds, enveloppa une multitude de cultivateurs dont la force vitale fut instantanément aspirée, les transformant en eau sanglante.
 
 C'était la contre-attaque !
 
 Tout comme les cultivateurs de la Mer Nuageuse avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique ! Sous le choc des troupes d'Allheaven et du Fleuve Invoqué, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore !
 
-C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage ! Deux cultivateurs de la troisième étape, au stade intermédiaire du Néant Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter !
+C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage !
+
+Deux cultivateurs de la troisième étape, au stade intermédiaire du Néant Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter !
 
 Bien que cette troisième armée n'ait pas encore franchi la formation, ses seuls rugissements suffirent à faire hésiter la troupe du Royaume Extérieur qui s'enfuiait.
 
@@ -82,7 +92,9 @@ Alors qu'il parlait, des craquements retentirent dans son corps. Sa stature s'é
 
 Wang Lin resta immobile, observant froidement ces envahisseurs. Deux cultivateurs de la troisième étape l'observaient avec calme. Il déplaça sa main droite sur le côté et, au moment où la troisième armée atteignit sa position, il poussa un rugissement qui ébranla les cieux !
 
-« TUEZ ! » Une tempête de Feu Éthéré jaillit de son œil gauche vers les milliers de cultivateurs en face de lui. Ces derniers hurlèrent tandis que leurs corps s'embrasaient, avant de se transformer instantanément en cendres... « TUEZ ! » rugit à nouveau Wang Lin, alors que le tatouage du tonnerre dans son œil droit libérait une foudre infinie. Ce tonnerre se propagea en une mer électrique qui s'étendit rapidement. Quiconque était touché par la foudre s'effondrait !
+« TUEZ ! » Une tempête de Feu Éthéré jaillit de son œil gauche vers les milliers de cultivateurs en face de lui. Ces derniers hurlèrent tandis que leurs corps s'embrasaient, avant de se transformer instantanément en cendres... « TUEZ ! » rugit à nouveau Wang Lin, alors que le tatouage du tonnerre dans son œil droit libérait une foudre infinie.
+
+Ce tonnerre se propagea en une mer électrique qui s'étendit rapidement. Quiconque était touché par la foudre s'effondrait !
 
 L'expression des cultivateurs de la troisième étape changea radicalement, mais ils n'hésitèrent pas à charger Wang Lin !
 

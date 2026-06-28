@@ -6,7 +6,6 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 185 - Master of the Blood Sea
 slug: maitre-de-la-mer-de-sang
 ---
-
 L'individu qui se tenait là mesurait plus de dix pieds de haut. Il dégageait une puissante intention meurtrière et portait une armure violette d'où jaillissaient des épines osseuses extrêmement acérées.
 
 Ses cheveux noirs flottaient derrière sa tête sans qu'un souffle de vent ne les agite. Son visage était d'une grande beauté, aux traits tranchants. Il ressemblait à un démon, particulièrement avec son expression impitoyable.
@@ -45,7 +44,9 @@ Toutes les techniques du Seigneur Démon des Six Désirs lui avaient été perso
 
 Comparée à la technique de la malédiction mortelle, elle n'était que légèrement moins cruelle. L'aspect crucial de cette méthode était la maîtrise de soi. Si l'on parvenait à contrôler quatre désirs, on atteignait le stade de la Formation de l'Âme ; si l'on maîtrisait les six, on atteignait celui de la Transformation de l'Âme.
 
-Le Seigneur Démon des Six Désirs avait déjà pris le contrôle de cinq de ses désirs innés. Le dernier, qu'il n'avait pas encore dompté, était l'obsession. Malgré tous ses efforts, il ne parvenait pas à maîtriser ce désir. Sa seule obsession était sa propre cultivation. Dès son premier jour d'entraînement, il s'était promis d'atteindre le stade de la Transformation de l'Âme.
+Le Seigneur Démon des Six Désirs avait déjà pris le contrôle de cinq de ses désirs innés. Le dernier, qu'il n'avait pas encore dompté, était l'obsession.
+
+Malgré tous ses efforts, il ne parvenait pas à maîtriser ce désir. Sa seule obsession était sa propre cultivation. Dès son premier jour d'entraînement, il s'était promis d'atteindre le stade de la Transformation de l'Âme.
 
 C'était son rêve et le but de sa vie. Le Magicien Démon Céleste avait prédit que cette obsession deviendrait le plus grand obstacle du Seigneur Démon des Six Désirs, et cela s'était réalisé.
 
@@ -75,21 +76,31 @@ Cependant, peu après avoir entamé sa course, il sentit immédiatement la flamm
 
 Le Bossu Meng ricana, prêt à accélérer, quand son visage changea soudainement. Bien que la glace se dissipât lentement, il remarqua que sa poitrine était devenue bleue, recouverte d'une couche de givre. La glace commença rapidement à se propager sur tout son corps.
 
-Le Bossu Meng s'arrêta. Il baissa les yeux et posa sa main droite sur la glace, ce qui la fit craquer et stoppa sa progression. À cet instant précis, il aperçut un éclair au loin. En suivant cette lueur, une épée noire à la forme singulière arriva instantanément près de son épaule. La silhouette de l'épée volante était très étrange : de minuscules épines bleues ornaient la lame courte, signe qu'elle était imprégnée de toxines redoutables.
+Le Bossu Meng s'arrêta. Il baissa les yeux et posa sa main droite sur la glace, ce qui la fit craquer et stoppa sa progression. À cet instant précis, il aperçut un éclair au loin.
 
-À la vue de cette épée, le cœur du Bossu Meng fut ébranlé. Il ressentit un profond sentiment de familiarité, comme si cet objet lui était essentiel. Pendant un bref instant, il perdit sa concentration, et l'épée s'enfonça dans son épaule droite. Un tintement retentit lors de l'impact. Bien que la vitesse de l'arme fût prodigieuse, elle ne parvint qu'à peine à percer la peau du Bossu Meng.
+En suivant cette lueur, une épée noire à la forme singulière arriva instantanément près de son épaule. La silhouette de l'épée volante était très étrange : de minuscules épines bleues ornaient la lame courte, signe qu'elle était imprégnée de toxines redoutables.
+
+À la vue de cette épée, le cœur du Bossu Meng fut ébranlé. Il ressentit un profond sentiment de familiarité, comme si cet objet lui était essentiel.
+
+Pendant un bref instant, il perdit sa concentration, et l'épée s'enfonça dans son épaule droite. Un tintement retentit lors de l'impact. Bien que la vitesse de l'arme fût prodigieuse, elle ne parvint qu'à peine à percer la peau du Bossu Meng.
 
 Mais malgré cette pénétration superficielle, la toxine commença déjà à envahir son corps. Le Bossu Meng ne se soucia guère du poison et saisit l'épée ; il avait le sentiment viscéral que cette arme lui appartenait autrefois. Avec son niveau de cultivation, attraper une épée volante était un jeu d'enfant. Alors qu'il tendait la main, des couches de Qi enveloppèrent l'arme, formant un tourbillon qui l'empêchait de s'échapper.
 
 Wang Lin était presque à la sortie quand son visage se décomposa. Il perçut le danger auquel l'épée volante faisait face. Sans s'arrêter, ses mains s'activèrent rapidement pour former des signes, jusqu'à ce qu'il crache une bouffée de Qi doré. Au même moment, l'épée piégée dans le tourbillon de Qi en ressentit l'effet, et la toxine bleue sur sa lame s'intensifia.
 
-Alors que le Bossu Meng tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était dérisoire comparée à celle des épines. Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières ; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
+Alors que le Bossu Meng tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était dérisoire comparée à celle des épines.
 
-Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le Poison Wang Ding. Ce poison étant originellement son propre trésor, il ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
+Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières ; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
+
+Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le Poison Wang Ding.
+
+Ce poison étant originellement son propre trésor, il ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
 
 Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque du Bossu Meng avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 
-Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa cultivation était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de 1000 pieds du Bossu Meng.
+Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main.
+
+Mais sa cultivation était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de 1000 pieds du Bossu Meng.
 
 Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du troisième essai, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 

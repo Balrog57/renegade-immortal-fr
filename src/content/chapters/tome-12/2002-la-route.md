@@ -46,7 +46,9 @@ Son corps entier était couvert d'une armure et, dans sa main droite, elle brand
 
 Grâce à la complétion de l'essence de métal, Wang Lin passa du stade intermédiaire de la Tribulation du Vide au stade avancé de la Tribulation du Vide. Ensuite, grâce à l'héritage de l'Ancêtre Céleste, il avait pu faire apparaître les contours du soleil de Grand Empyréen lorsqu'il déchaînait sa pleine puissance.
 
-« Le corps véritable de l'essence du tonnerre meurtrier est complet avec les cinq essences. Le corps véritable des cinq éléments est également achevé. Ce qui suit, ce sont mes essences éthérées... Si je peux comprendre mes deux autres essences éthérées, ma cultivation peut atteindre le sommet de la Tribulation du Vide ! Mais comprendre les essences éthérées est extrêmement difficile... Dans toute ma vie, je n'en ai compris que trois. » Dans ce rare moment de calme, Wang Lin commença à analyser la voie future de sa cultivation.
+« Le corps véritable de l'essence du tonnerre meurtrier est complet avec les cinq essences. Le corps véritable des cinq éléments est également achevé. Ce qui suit, ce sont mes essences éthérées... Si je peux comprendre mes deux autres essences éthérées, ma cultivation peut atteindre le sommet de la Tribulation du Vide !
+
+Mais comprendre les essences éthérées est extrêmement difficile... Dans toute ma vie, je n'en ai compris que trois. » Dans ce rare moment de calme, Wang Lin commença à analyser la voie future de sa cultivation.
 
 « Si je m'appuie sur les essences éthérées pour élever mon niveau, alors ma progression future sera très laborieuse... Il faudra de nombreuses années avant que je ne puisse encore progresser. » Wang Lin fronça les sourcils tandis que le dragon de mer nageait sous lui, fendant les vagues et traçant un sillon dans l'océan.
 
@@ -56,13 +58,19 @@ La mer était déchaînée, montant et descendant avec violence. Wang Lin n'y je
 
 Quelques jours plus tard, Wang Lin ouvrit les yeux, laissant paraître une pointe de fatigue.
 
-« Je ne peux pas compter uniquement sur les essences éthérées. Néanmoins, je les garderai comme objectif à long terme. Entre-temps, je me concentrerai sur le corps véritable des cinq éléments et celui de l'essence du tonnerre meurtrier. L'eau, le feu et la terre ont déjà formé leurs corps véritables d'essence. Désormais, seuls le métal et le bois doivent condenser les leurs. Selon mes analyses, une fois que les essences de métal et de bois auront formé leurs corps véritables, le corps véritable des cinq éléments sera complet !
+« Je ne peux pas compter uniquement sur les essences éthérées. Néanmoins, je les garderai comme objectif à long terme. Entre-temps, je me concentrerai sur le corps véritable des cinq éléments et celui de l'essence du tonnerre meurtrier.
+
+L'eau, le feu et la terre ont déjà formé leurs corps véritables d'essence. Désormais, seuls le métal et le bois doivent condenser les leurs. Selon mes analyses, une fois que les essences de métal et de bois auront formé leurs corps véritables, le corps véritable des cinq éléments sera complet !
 
 « Si tel est le cas, j'ai 50 % de chances d'éviter de devoir élever mes essences éthérées pour atteindre le sommet de la Tribulation du Vide... Bien que ma puissance de combat soit bien moindre à cause de l'incomplétude de ces essences, une fois qu'elles seront complètes, ma force augmentera considérablement !
 
-« Ensuite, il y aura le corps véritable de l'essence du tonnerre meurtrier. Pour l'instant, seule l'essence du tonnerre a formé un corps véritable. Les quatre autres — la mise à mort, le commencement absolu, la fin absolue et la restriction — sont incomplètes. Si elles parviennent toutes à former leurs propres corps véritables, alors mon essence du tonnerre meurtrier sera complète et me permettra de dépasser le stade de la Tribulation du Vide ! Cependant, je devrai attendre que les corps véritables des essences de métal et de bois apparaissent pour savoir si cette voie est la bonne. » Wang Lin médita en décidant de son avenir.
+« Ensuite, il y aura le corps véritable de l'essence du tonnerre meurtrier. Pour l'instant, seule l'essence du tonnerre a formé un corps véritable. Les quatre autres — la mise à mort, le commencement absolu, la fin absolue et la restriction — sont incomplètes.
 
-« Quant au schéma du soleil de Grand Empyréen... La raison de son apparition est profondément liée à l'héritage céleste que j'ai reçu. Cet héritage n'a pas augmenté mon niveau de cultivation, mais m'a permis de condenser ce soleil une fois ma pleine puissance déchaînée. Avec ce soleil, ma puissance de combat augmente de façon prodigieuse ! Cela compense la destruction de mon armure d'âme du Taureau Céleste. Avec mon niveau et ma force actuels, je suis le plus puissant sous les Grands Empyréens. Même face à un Grand Empyréen, à moins qu'il ne consume sa puissance de Grand Empyréen, je peux encore lutter !
+Si elles parviennent toutes à former leurs propres corps véritables, alors mon essence du tonnerre meurtrier sera complète et me permettra de dépasser le stade de la Tribulation du Vide ! Cependant, je devrai attendre que les corps véritables des essences de métal et de bois apparaissent pour savoir si cette voie est la bonne. » Wang Lin médita en décidant de son avenir.
+
+« Quant au schéma du soleil de Grand Empyréen... La raison de son apparition est profondément liée à l'héritage céleste que j'ai reçu. Cet héritage n'a pas augmenté mon niveau de cultivation, mais m'a permis de condenser ce soleil une fois ma pleine puissance déchaînée.
+
+Avec ce soleil, ma puissance de combat augmente de façon prodigieuse ! Cela compense la destruction de mon armure d'âme du Taureau Céleste. Avec mon niveau et ma force actuels, je suis le plus puissant sous les Grands Empyréens. Même face à un Grand Empyréen, à moins qu'il ne consume sa puissance de Grand Empyréen, je peux encore lutter !
 
 « Si mes analyses sont justes, une fois que les cinq éléments auront formé leurs corps véritables et que mon niveau aura augmenté, je devrais être capable d'échanger des coups avec un Grand Empyréen brûlant sa puissance de Grand Empyréen ! Et quand mon essence du tonnerre meurtrier possédera ses propres corps véritables, très peu de Grands Empyréens pourront me tenir tête ! Ensuite, si je parviens à comprendre la quatrième essence éthérée — l'essence de la réincarnation que j'ai comprise au Secte Dong Lin —, je pourrai l'utiliser pour briser les innombrables barrières du rêve afin de trouver mon moi véritable et obtenir la cinquième essence éthérée !
 

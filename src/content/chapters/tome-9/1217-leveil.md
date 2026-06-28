@@ -1,4 +1,4 @@
-﻿---
+---
 n: 1217
 title: "L'Éveil"
 book: 9
@@ -30,7 +30,9 @@ Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase :
 
 Aucun des cultivateurs d'Allheaven n'osa le poursuivre, pas même Maître Lufu, qui se terrât de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied !
 
-Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien et de celle de ses étoiles, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion ! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois :
+Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien et de celle de ses étoiles, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup.
+
+Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion ! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois :
 
 « Tu es trop faible ! »
 
@@ -68,7 +70,9 @@ Dans le Système Stellaire de la Mer Nuageuse, le Secte du Dao Pourpre s'était 
 
 « Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma cultivation s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
 
-De même, dans la région de niveau 9, au plus profond du brouillard où se trouvait le Secte Démon, Li Qianmei, la femme aux cheveux bleus, restait calme alors qu'elle massacrait les bêtes féroces au sein de la faille spatiale. Les cultivateurs des diverses sectes qui l'accompagnaient étaient tous en admiration devant elle. Parallèlement, beaucoup d'entre eux nourrissaient pour elle une affection cachée. Parmi eux figuraient de nombreux cultivateurs célèbres. Sous les assauts constants des vagues de bêtes, le nombre de personnes tentant de faire étalage de leurs capacités augmentait.
+De même, dans la région de niveau 9, au plus profond du brouillard où se trouvait le Secte Démon, Li Qianmei, la femme aux cheveux bleus, restait calme alors qu'elle massacrait les bêtes féroces au sein de la faille spatiale. Les cultivateurs des diverses sectes qui l'accompagnaient étaient tous en admiration devant elle.
+
+Parallèlement, beaucoup d'entre eux nourrissaient pour elle une affection cachée. Parmi eux figuraient de nombreux cultivateurs célèbres. Sous les assauts constants des vagues de bêtes, le nombre de personnes tentant de faire étalage de leurs capacités augmentait.
 
 Durant ces cent ans, de nombreux cultivateurs périrent en résistant aux vagues de bêtes. La mort frappait presque chaque jour. Avec le temps, les vagues devinrent plus féroces, peuplées de bêtes de niveau 12. Parfois, une bête de niveau 13 faisait son apparition, et chaque telle créature représentait un désastre pour les cultivateurs.
 
@@ -76,9 +80,13 @@ Les membres du Secte Démon se trouvaient également sur le champ de bataille ; 
 
 Presque tous les cultivateurs savaient que Li Qianmei possédait un trésor : un stylo doré capable de tracer des runes d'une puissance extrême ! Lorsque l'on tentait de l'emprunter pour l'examiner, Li Qianmei refusait catégoriquement, même si les demandeurs étaient membres du Secte Démon. Son tempérament calme devenait alors d'une obstination inflexible !
 
-À une occasion, Li Qianmei fut encerclée par de nombreuses bêtes féroces de niveau 12. Elle finit par être gravement blessée et tomba dans le coma. Secourue par les membres du Secte Démon, elle se réveilla peu après. Ignorant tous les avertissements, elle chargea à nouveau sur le champ de bataille, les cheveux en désordre, avec pour seul but de récupérer son stylo doré... Depuis lors, tous savaient que ce stylo était la possession la plus précieuse de Li Qianmei.
+À une occasion, Li Qianmei fut encerclée par de nombreuses bêtes féroces de niveau 12. Elle finit par être gravement blessée et tomba dans le coma. Secourue par les membres du Secte Démon, elle se réveilla peu après.
 
-« Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de cultivation, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes ; elle leva la tête et regarda au loin...
+Ignorant tous les avertissements, elle chargea à nouveau sur le champ de bataille, les cheveux en désordre, avec pour seul but de récupérer son stylo doré... Depuis lors, tous savaient que ce stylo était la possession la plus précieuse de Li Qianmei.
+
+« Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de cultivation, le visage pâle. Elle semblait blessée.
+
+Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes ; elle leva la tête et regarda au loin...
 
 Quelque part dans la Mer Nuageuse se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume du Vide Brillant pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
 

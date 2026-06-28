@@ -12,7 +12,9 @@ L'expression de la vieille femme changea. Elle fixa Wang Lin et dit : « Tuer Li
 
 La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Transformation de l'Âme et qu'elle pût facilement tuer Wang Lin, elle n'avait aucune chance de le faire en présence de Du Tian. Après avoir jeté un regard au vieil homme à ses côtés, elle poussa un autre soupir intérieur.
 
-L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan du Démon Géant, la victoire aurait été bien difficile à obtenir. Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de cultivation.
+L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan du Démon Géant, la victoire aurait été bien difficile à obtenir.
+
+Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de cultivation.
 
 Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres du Secte du Raffinage de l'Âme devaient agir ainsi.
 
@@ -24,7 +26,9 @@ Du Tian la regarda et répondit : « Cela dépendra du nombre de jades célestes
 
 La vieille femme eut un sourire amer. Elle sortit un sac de rangement et le lança à Du Tian sans même y regarder. Elle dit : « Cela devrait vous satisfaire. »
 
-Du Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit : « Vous, les membres du Secte des Insectes Démoniaques, étiez vraiment immensément riches autrefois. Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler ? »
+Du Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit : « Vous, les membres du Secte des Insectes Démoniaques, étiez vraiment immensément riches autrefois.
+
+Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler ? »
 
 La vieille femme répondit calmement : « Cela ne te regarde pas. Souviens-toi de notre accord. » Sur ce, elle s'envola vers l'horizon.
 
@@ -38,7 +42,9 @@ Du Tian tapota son sac de rangement et sourit à Wang Lin : « Tu vois tout ceci
 
 Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Du Tian.
 
-« Il y a bien longtemps, un ancêtre de mon Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau des âmes du milliard de fragments, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
+« Il y a bien longtemps, un ancêtre de mon Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku.
+
+Avec le drapeau des âmes du milliard de fragments, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
 
 Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultivateurs Ascendants de Suzaku avaient dû ressentir à l'époque. Donner les jades célestes revenait presque à leur offrir de l'argent gratuitement. Après tout, chaque génération détenant ce drapeau était une tyrannie.
 
@@ -68,7 +74,9 @@ Wang Lin hocha la tête. Il n'avait aucun problème avec le fait de voler, mais 
 
 Une fois les ressources réunies, Du Tian emmena Wang Lin vers le Secte du Raffinage de l'Âme pour le protéger pendant sa percée vers la Transformation de l'Âme.
 
-Du Tian soupira : « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance de la Cultivation, de nombreux pays de rang 6 organisent des raids pour dépouiller d'autres planètes. »
+Du Tian soupira : « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux.
+
+Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance de la Cultivation, de nombreux pays de rang 6 organisent des raids pour dépouiller d'autres planètes. »
 
 « La planète Tian Yun... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -90,7 +98,9 @@ Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateu
 
 Ce qui alimentait davantage les conversations était le fait qu'elle soit la disciple personnelle du Suzaku actuel et une candidate au titre de prochain Suzaku. Dès son apparition, elle avait attiré l'attention de plusieurs chamans à sept feuilles, parvenant même à capturer un shaman à huit feuilles, aussi puissant qu'un cultivateur au stade avancé de la Transformation de l'Âme. Sa renommée était devenue fulgurante.
 
-Un autre aspect de sa personnalité fascinait tout le monde : les rumeurs disaient qu'elle était empreinte de bonté et d'une pureté de cœur absolue, malgré son immense puissance. Elle n'avait jamais tué personne de sa vie ; même lors des combats contre le Clan Immortel Déchu, elle se contentait de capturer ses adversaires sans les achever. Grâce à ces vertus, elle jouissait d'un respect unanime. Partout où elle apparaissait, les cultivateurs environnants obéissaient à ses ordres avec déférence. Même dans des batailles perdues d'avance, sa simple présence redonnait courage aux troupes, leur permettant de remporter la victoire grâce à son aide. Cette femme était considérée comme l'un des deux génies de cette génération.
+Un autre aspect de sa personnalité fascinait tout le monde : les rumeurs disaient qu'elle était empreinte de bonté et d'une pureté de cœur absolue, malgré son immense puissance. Elle n'avait jamais tué personne de sa vie ; même lors des combats contre le Clan Immortel Déchu, elle se contentait de capturer ses adversaires sans les achever.
+
+Grâce à ces vertus, elle jouissait d'un respect unanime. Partout où elle apparaissait, les cultivateurs environnants obéissaient à ses ordres avec déférence. Même dans des batailles perdues d'avance, sa simple présence redonnait courage aux troupes, leur permettant de remporter la victoire grâce à son aide. Cette femme était considérée comme l'un des deux génies de cette génération.
 
 L'autre génie était Qian Feng. Il était d'une grande beauté et possédait une prestance digne. Son niveau de cultivation se situait également au stade intermédiaire de la Transformation de l'Âme. Il n'affichait aucune trace d'arrogance, se montrant toujours moralement droit, juste et empreint de douceur.
 

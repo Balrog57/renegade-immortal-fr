@@ -36,11 +36,15 @@ Alors que les membres des sectes et familles environnantes s'apprêtaient à exp
 
 Song Qing et Liu Fei échangèrent un regard, puis se tournèrent vers les Anciens. Tous les Anciens tentèrent de réfléchir à qui pourrait être en train de briser le goulot d'étranglement de l'Âme Naissante en ce moment même, mais ne trouvèrent personne ; ils secouèrent tous la tête.
 
-En conséquence, le visage des deux hommes s'assombrit lentement. Song Qing, le teint sombre, déclara d'une voix lente : « Je vous prie de m'excuser, camarade cultivateur Sima. Même moi, je suis curieux de savoir qui est ce cultivateur. Si nous pouvons l'inviter, nous ne manquerons pas de le présenter à tous. » Une pointe d'obscurité perçait dans sa voix, particulièrement sur le mot « inviter », qui résonnait avec une lourdeur menaçante.
+En conséquence, le visage des deux hommes s'assombrit lentement. Song Qing, le teint sombre, déclara d'une voix lente : « Je vous prie de m'excuser, camarade cultivateur Sima. Même moi, je suis curieux de savoir qui est ce cultivateur.
+
+Si nous pouvons l'inviter, nous ne manquerons pas de le présenter à tous. » Une pointe d'obscurité perçait dans sa voix, particulièrement sur le mot « inviter », qui résonnait avec une lourdeur menaçante.
 
 Dès que ces mots furent lâchés, les sourcils de tous les cultivateurs se relevèrent. S'il n'y avait personne au sein de la Secte du Nuage Céleste tentant d'atteindre l'Âme Naissante, la situation allait devenir très intéressante.
 
-Simultanément, les cultivateurs des sectes et familles voisines ressentirent un pincement de regret. Cet individu avait fait preuve d'une grande imprudence en choisissant ce lieu pour sa percée. Il semblait que le jour de son ascension serait aussi celui de sa mort. La réputation de la Secte du Nuage Céleste passait avant tout. Cet homme allait certainement mourir !
+Simultanément, les cultivateurs des sectes et familles voisines ressentirent un pincement de regret. Cet individu avait fait preuve d'une grande imprudence en choisissant ce lieu pour sa percée.
+
+Il semblait que le jour de son ascension serait aussi celui de sa mort. La réputation de la Secte du Nuage Céleste passait avant tout. Cet homme allait certainement mourir !
 
 L'expression du chef de la secte extérieure du Nuage Céleste était extrêmement laide. Il força un sourire et dit : « Je veux voir qui a l'audace d'utiliser ma Montagne du Nuage Céleste pour atteindre l'Âme Naissante. Son Âme Naissante m'appartient ! »
 
@@ -72,11 +76,15 @@ Puis, un jeune homme aux longs cheveux blancs émergea de la faille. Une étoile
 
 Dans sa main droite, il tenait Liu Fei par les cheveux. En remontant de la fissure, le visage pâle et les yeux clos de Liu Fei apparurent au grand jour.
 
-Simultanément, le père de Sun Zhenwei recula précipitamment en fixant le jeune homme. Les regards des autres cultivateurs de l'Âme Naissante de la Secte du Nuage Céleste se durcirent également. Tous les autres experts des sectes et familles voisines étaient sous le choc, exception faite de Sima Yunnan. Ils observaient silencieusement la scène pour voir comment elle évoluerait. Après tout, si même Liu Fei ne pouvait rien contre cet individu, leurs aides seraient vaines.
+Simultanément, le père de Sun Zhenwei recula précipitamment en fixant le jeune homme. Les regards des autres cultivateurs de l'Âme Naissante de la Secte du Nuage Céleste se durcirent également.
+
+Tous les autres experts des sectes et familles voisines étaient sous le choc, exception faite de Sima Yunnan. Ils observaient silencieusement la scène pour voir comment elle évoluerait. Après tout, si même Liu Fei ne pouvait rien contre cet individu, leurs aides seraient vaines.
 
 Song Qing prit une inspiration sifflante. Il fit signe à un Ancien. Au moment où celui-ci sortit un jade pour le lancer, le jeune homme aux cheveux blancs se tourna vers l'Ancien et Song Qing, affichant un sourire moqueur.
 
-Le cœur de Song Qing tressaillit soudainement. Il eut la sensation d'être totalement percé à jour. Il n'avait ressenti cela que face aux ancêtres de la secte. Terrifié, il ne put s'empêcher de reculer de quelques pas. Quant à l'Ancien, son sort était pire encore : il lâcha le jade et n'osa plus bouger, sentant que toute tentative supplémentaire entraînerait des conséquences inimaginables.
+Le cœur de Song Qing tressaillit soudainement. Il eut la sensation d'être totalement percé à jour. Il n'avait ressenti cela que face aux ancêtres de la secte. Terrifié, il ne put s'empêcher de reculer de quelques pas.
+
+Quant à l'Ancien, son sort était pire encore : il lâcha le jade et n'osa plus bouger, sentant que toute tentative supplémentaire entraînerait des conséquences inimaginables.
 
 Song Qing prit une grande inspiration. Il regarda Liu Fei, retenu par la main droite du jeune homme, puis se força au calme : « Camarade cultivateur, tout ceci est un malentendu ! Un simple malentendu ! »
 
@@ -86,11 +94,15 @@ Li Muwan esquissa un magnifique sourire en marchant vers Wang Lin. Tous les cult
 
 Sima Yunnan prit une profonde inspiration, les yeux brillants d'ambition. Bien qu'il détestât profondément la Secte du Nuage Céleste, elle dominait toujours sa propre secte Hao Ran. Au moment où le jeune homme apparut, il se souvint immédiatement de la description de Xu Li. Il était désormais absolument certain qu'il s'agissait du désastre venu de la Mer des Démons.
 
-Pourtant, même lui ne s'attendait pas à ce que le niveau de cultivation de cet individu soit assez élevé pour neutraliser Liu Fei si aisément. Son cœur fut frappé par la stupeur. Au minimum, il était incapable de discerner le niveau de cultivation de Liu Fei, ce qui signifiait qu'il n'osait même pas imaginer celui du jeune homme. Mais en même temps, une satisfaction l'habitait : plus cet individu était puissant, plus les chances que la Secte du Nuage Céleste soit anéantie aujourd'hui étaient grandes. Surtout après que Liu Fei, qui prétendait vouloir s'emparer de son Âme Naissante, ait été si facilement vaincu. Ce jour-là, la secte perdait véritablement son prestige.
+Pourtant, même lui ne s'attendait pas à ce que le niveau de cultivation de cet individu soit assez élevé pour neutraliser Liu Fei si aisément. Son cœur fut frappé par la stupeur. Au minimum, il était incapable de discerner le niveau de cultivation de Liu Fei, ce qui signifiait qu'il n'osait même pas imaginer celui du jeune homme.
+
+Mais en même temps, une satisfaction l'habitait : plus cet individu était puissant, plus les chances que la Secte du Nuage Céleste soit anéantie aujourd'hui étaient grandes. Surtout après que Liu Fei, qui prétendait vouloir s'emparer de son Âme Naissante, ait été si facilement vaincu. Ce jour-là, la secte perdait véritablement son prestige.
 
 Tout le monde s'écarta pour laisser passer Li Muwan. Même Song Qing, le visage livide, força un sourire pour se pousser. Seul l'homme en robe grise affichait une expression extrêmement disgracieuse, principalement parce que Li Muwan était sa belle-fille et qu'elle marchait vers cet homme sur son appel, ce qui le mettait dans l'embarras. Mais il était avisé : malgré son irritation intérieure, il retrouva rapidement un visage impassible pour s'écarter.
 
-Li Muwan traversa lentement la rangée de cultivateurs de l'Âme Naissante. Habituellement, lorsqu'ils la croisaient, ils la saluaient avec des sourires tout en restant arrogants et hautains. Mais aujourd'hui, tous ces experts montraient des signes de peur, et leur attitude envers elle avait radicalement changé. Li Muwan savait que tout cela était dû à un seul homme. Un homme qu'ils redoutaient et qui pouvait terrasser Liu Fei sans effort. Cet homme était son compagnon, Wang Lin.
+Li Muwan traversa lentement la rangée de cultivateurs de l'Âme Naissante. Habituellement, lorsqu'ils la croisaient, ils la saluaient avec des sourires tout en restant arrogants et hautains.
+
+Mais aujourd'hui, tous ces experts montraient des signes de peur, et leur attitude envers elle avait radicalement changé. Li Muwan savait que tout cela était dû à un seul homme. Un homme qu'ils redoutaient et qui pouvait terrasser Liu Fei sans effort. Cet homme était son compagnon, Wang Lin.
 
 Arrivée aux côtés de Wang Lin, Li Muwan esquissa un sourire radieux, ressentant une profonde satisfaction intérieure.
 
@@ -106,7 +118,9 @@ L'homme en robe grise regarda Sun Zhenwei, stupéfait, les yeux injectés de san
 
 Wang Lin agita sa main droite. Le corps de Liu Fei tressaillit alors qu'il ouvrait les yeux. Son visage était livide et sa cultivation était écrasée par une force mystérieuse. Ses yeux brûlaient de rage lorsqu'il cria : « Si tu veux me tuer, tue-moi ! Pourquoi humilier ce vieillard ? »
 
-Le cœur de Song Qing était rongé par l'anxiété. Bien qu'il n'ait pas envoyé de message, les ancêtres auraient dû remarquer quelque chose. Pourquoi n'étaient-ils pas encore là ? Il prit une grande inspiration, sachant qu'il devait gagner du temps. Il força un sourire : « Aîné, la Secte du Nuage Céleste ignorait que l'Aînée Li était votre amie. Je vous prie de nous excuser pour cette offense. C'est la faute de notre secte. Que diriez-vous de m'accompagner dans la salle principale afin que je puisse tenter de réparer cette offense ? »
+Le cœur de Song Qing était rongé par l'anxiété. Bien qu'il n'ait pas envoyé de message, les ancêtres auraient dû remarquer quelque chose. Pourquoi n'étaient-ils pas encore là ? Il prit une grande inspiration, sachant qu'il devait gagner du temps.
+
+Il força un sourire : « Aîné, la Secte du Nuage Céleste ignorait que l'Aînée Li était votre amie. Je vous prie de nous excuser pour cette offense. C'est la faute de notre secte. Que diriez-vous de m'accompagner dans la salle principale afin que je puisse tenter de réparer cette offense ? »
 
 Avec son âge, comment ne pas comprendre l'origine du conflit ? Il pensait secrètement que les ancêtres étaient trop indiscrets ; Li Muwan allait bien, mais leur ingérence avait attiré l'ami de celle-ci. Quant à la mort de Sun Zhenwei, il n'en avait cure : pour lui, ce n'était qu'un simple disciple de la secte extérieure.
 
@@ -118,13 +132,17 @@ Liu Fei afficha un visage frustré, mais finit par soupirer en silence. Lorsqu'i
 
 L'expression de Wang Lin resta sereine. Quant aux sept épées volantes fonçant sur lui, il les ignora totalement. Son domaine Ji s'activa de nouveau et des éclairs rouges scintillèrent dans ses yeux.
 
-Tout se passa en un éclair. L'homme en robe grise cracha un flot de sang, le regard vide. Son Âme Naissante tenta de s'extirper du sommet de sa tête pour s'enfuir. Les yeux de Wang Lin s'illuminèrent. D'un revers de main sur son sac de rangement, il en sortit un miroir de bronze. Ses mains formèrent un sceau tandis qu'il lançait l'artefact. Le miroir projeta une lumière verte qui percuta immédiatement l'Âme Naissante en fuite. Celle-ci poussa un cri de douleur en émettant une fumée verdâtre.
+Tout se passa en un éclair. L'homme en robe grise cracha un flot de sang, le regard vide. Son Âme Naissante tenta de s'extirper du sommet de sa tête pour s'enfuir. Les yeux de Wang Lin s'illuminèrent. D'un revers de main sur son sac de rangement, il en sortit un miroir de bronze.
+
+Ses mains formèrent un sceau tandis qu'il lançait l'artefact. Le miroir projeta une lumière verte qui percuta immédiatement l'Âme Naissante en fuite. Celle-ci poussa un cri de douleur en émettant une fumée verdâtre.
 
 Wang Lin rengena le miroir d'un geste fluide. Il saisit l'Âme Naissante avec une expression impitoyable, en anéantit la conscience d'un simple mouvement de la main, puis la tendit à Li Muwan : « Prends ceci pour raffiner une pilule. »
 
 Li Muwan esquissa un sourire gracieux et rangea docilement l'objet dans son sac. Elle hocha la tête et dit délicatement : « D'accord, cela devrait permettre de fabriquer une pilule spirituelle de haute qualité. »
 
-Un silence de mort s'abattit sur les lieux. Les membres de la salle principale apparurent sur la place et virent l'exécution. Nul n'osait respirer trop fort en fixant Wang Lin. Xu Li, parmi eux, baissa rapidement la tête pour masquer son effroi. Quant aux autres experts de l'Âme Naissante du Nuage Céleste, ils bouillonnaient de rage mais restaient pétrifiés par la crainte. Les cultivateurs des autres sectes reculèrent davantage, résolus à ne pas s'immiscer dans ce carnage.
+Un silence de mort s'abattit sur les lieux. Les membres de la salle principale apparurent sur la place et virent l'exécution. Nul n'osait respirer trop fort en fixant Wang Lin. Xu Li, parmi eux, baissa rapidement la tête pour masquer son effroi.
+
+Quant aux autres experts de l'Âme Naissante du Nuage Céleste, ils bouillonnaient de rage mais restaient pétrifiés par la crainte. Les cultivateurs des autres sectes reculèrent davantage, résolus à ne pas s'immiscer dans ce carnage.
 
 Peu après avoir tué l'homme en robe grise, Wang Lin passa à l'action sans hésiter. D'une impulsion de sa main droite, il força le corps de Liu Fei à le suivre par une force invisible. Enlaçant Li Muwan, il chargea vers l'Ancien le plus proche du Nuage Céleste.
 

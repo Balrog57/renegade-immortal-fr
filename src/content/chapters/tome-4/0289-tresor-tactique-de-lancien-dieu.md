@@ -14,7 +14,9 @@ Cette expression était très étrange pour une telle bête. Si quelqu'un d'autr
 
 Wang Lin esquissa un léger sourire. Il sortit quelques pilules et les lança devant lui. La bête moustique afficha aussitôt une sorte de sourire, s'élança et dévora les pilules.
 
-Ainsi continua Wang Lin, lançant des pilules tandis que la bête moustique s'envolait de plus en plus vite. Bientôt, la fiole fut vide. Wang Lin frotta la tête de la bête et dit : « D'accord, petit morveux. Plus de pilules pour aujourd'hui. Si tu voles plus vite, je t'en donnerai davantage demain. »
+Ainsi continua Wang Lin, lançant des pilules tandis que la bête moustique s'envolait de plus en plus vite. Bientôt, la fiole fut vide.
+
+Wang Lin frotta la tête de la bête et dit : « D'accord, petit morveux. Plus de pilules pour aujourd'hui. Si tu voles plus vite, je t'en donnerai davantage demain. »
 
 La bête moustique poussa un rugissement et fendit le ciel comme l'éclair.
 
@@ -34,7 +36,9 @@ Sur ce, il poussa le vieil homme sur le côté et s'éloigna.
 
 L'homme soupira avec un air de regret, puis se précipita immédiatement vers le cultivateur, une poignée de jetons à la main : « Petit frère, j'ai des jetons pour les huit grandes sectes de Sang Mi, même des jetons de chef de secte. Ce sont des objets puissants pour te protéger ! Si quelqu'un ose t'embêter, lance-en un et dis-lui de dégager. »
 
-Wang Lin n'avait rien vu de tout cela. Une fois son rire terminé, il sortit une sculpture en bois de son sac de rangement. Cette sculpture représentait le vieil homme et possédait un domaine temporel. De sa main gauche, il fit apparaître une sphère de lumière dorée. Puis, il se mordit l'extrémité du doigt pour en extraire une goutte de sang qu'il fusionna avec la lumière dorée avant de l'injecter dans la sculpture.
+Wang Lin n'avait rien vu de tout cela. Une fois son rire terminé, il sortit une sculpture en bois de son sac de rangement. Cette sculpture représentait le vieil homme et possédait un domaine temporel.
+
+De sa main gauche, il fit apparaître une sphère de lumière dorée. Puis, il se mordit l'extrémité du doigt pour en extraire une goutte de sang qu'il fusionna avec la lumière dorée avant de l'injecter dans la sculpture.
 
 Soudain, la sculpture trembla. Une veine sanguine supplémentaire s'était mise à circuler à l'intérieur de l'objet. En regardant de plus près, on ne voyait pas une seule, mais plus de trente veines sanguines s'agiter à l'intérieur. Ces veines étaient toutes en mouvement et passaient souvent les unes devant les autres sans jamais entrer en contact.
 

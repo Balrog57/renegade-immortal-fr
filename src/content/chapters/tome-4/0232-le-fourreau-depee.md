@@ -60,7 +60,9 @@ On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pi�
 
 Sous ce volcan se trouvait un édifice complet : le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de l'attaque. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
 
-À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce. Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
+À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce.
+
+Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
 
 Peu de temps après, un jeune homme dégageant une atmosphère sinistre apparut. Il était très beau, mais portait en lui une pointe de malveillance. Ses yeux brillaient d'une lueur antique tandis qu'il reprenait lentement conscience.
 
@@ -78,7 +80,9 @@ Soudain, d'innombrables lueurs vertes jaillirent de son corps. Chaque lueur prit
 
 Quant à Wang Lin, il se tenait actuellement sur le dos de la bête moustique, tenant un morceau de jade dans sa main : la tablette contenant la carte.
 
-Wang Lin était très anxieux. Il aurait voulu que sa vitesse soit multipliée par dix, par cent, par mille ! Il aurait voulu être instantanément de retour au pays de Zhao. Mais la réalité était cruelle. Après avoir obtenu la carte, il découvrit qu'il était extrêmement loin de Zhao. S'il se contentait de voler, il lui faudrait plusieurs années pour atteindre son pays natal.
+Wang Lin était très anxieux. Il aurait voulu que sa vitesse soit multipliée par dix, par cent, par mille ! Il aurait voulu être instantanément de retour au pays de Zhao. Mais la réalité était cruelle.
+
+Après avoir obtenu la carte, il découvrit qu'il était extrêmement loin de Zhao. S'il se contentait de voler, il lui faudrait plusieurs années pour atteindre son pays natal.
 
 Ce n'était manifestement pas ce que Wang Lin souhaitait ; il devait donc utiliser les anciens réseaux de transfert. Heureusement, la carte contenait des informations détaillées sur ces réseaux. Après un certain temps, Wang Lin traça un itinéraire pour retourner à Zhao. Sur cette route, il devait passer par trois réseaux de transfert anciens : un dans la Mer des Démons et deux sur le continent où se trouvait Zhao.
 

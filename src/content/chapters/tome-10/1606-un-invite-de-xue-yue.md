@@ -52,11 +52,15 @@ Une année, deux années... le temps s'écoulait, et en un clin d'œil, douze an
 
 Durant ces douze années, Wang Lin avait parcouru de nombreux lieux. Son nom s'était propagé, sans qu'il le sache, dans des contrées qu'il n'avait jamais visitées. Il avait quitté Zhao seul il y a douze ans ; douze ans plus tard, il était toujours seul à traverser la planète Suzaku.
 
-Ce jour-là, alors que la neige tombait, Wang Lin arriva à la capitale d'un pays dont il ignorait le nom. Ce pays était vaste, équivalent à trois pays de Zhao. Wang Lin était déjà venu dans cette capitale en rêve. Il se tenait devant la porte tandis que les flocons tombaient, une pointe de mélancolie marquant son vieux visage. Il resserra son manteau et pénétra dans la ville.
+Ce jour-là, alors que la neige tombait, Wang Lin arriva à la capitale d'un pays dont il ignorait le nom. Ce pays était vaste, équivalent à trois pays de Zhao. Wang Lin était déjà venu dans cette capitale en rêve.
+
+Il se tenait devant la porte tandis que les flocons tombaient, une pointe de mélancolie marquant son vieux visage. Il resserra son manteau et pénétra dans la ville.
 
 Marchant sur la neige, Wang Lin s'engagea dans une rue très calme. Des boutiques bordaient les deux côtés, mais elles étaient presque désertes. En contemplant cet endroit familier, les images de son rêve devinrent plus réelles encore, comme si le songe se superposait à la réalité. Wang Lin entra en transe tout en avançant lentement.
 
-*Dong, dong... dong...* Le bruit d'un marteau frappant le fer résonna au loin. Wang Lin tourna la tête et aperçut une forge. À l'intérieur, un homme d'âge moyen, au torse trapu mis à nu, maniait un marteau pour frapper le métal. Malgré la chute de neige, l'homme ne semblait pas ressentir le froid. Il continuait ses coups, produisant ce rythme cadencé.
+*Dong, dong... dong...* Le bruit d'un marteau frappant le fer résonna au loin. Wang Lin tourna la tête et aperçut une forge.
+
+À l'intérieur, un homme d'âge moyen, au torse trapu mis à nu, maniait un marteau pour frapper le métal. Malgré la chute de neige, l'homme ne semblait pas ressentir le froid. Il continuait ses coups, produisant ce rythme cadencé.
 
 Près de lui se trouvait une petite chaise où siégeait un garçon d'environ sept ou huit ans, vêtu d'un épais manteau de coton. Le visage rougi par l'effort ou l'émotion, il regardait l'homme avec excitation.
 
@@ -84,7 +88,9 @@ Après un long moment, alors que la chute de neige s'allégeait, Wang Lin se lev
 
 Quand Wang Lin sortit, l'obscurité était tombée, mais la blancheur de la neige rendait le sol lumineux, lui permettant de voir loin. Tandis qu'il marchait, la lumière de la forge disparut derrière lui ; il s'éloigna, sa silhouette étirée par la lueur lunaire.
 
-Après ce bref repos, Wang Lin sembla avoir compris quelque chose. Il continua son périple sur la planète Suzaku. C'était désormais la quinzième année depuis qu'il avait quitté Zhao ; il avait maintenant environ soixante-dix ans. Son dos était plus voûté et son corps trahissait le déclin de ses années, mais ses yeux brillaient comme le soleil. Nul n'osait croiser son regard. Ses yeux contenaient le karma, la vie et la mort, le vrai et le faux... Même son maître, Su Dao, n'avait pas un tel tempérament.
+Après ce bref repos, Wang Lin sembla avoir compris quelque chose. Il continua son périple sur la planète Suzaku. C'était désormais la quinzième année depuis qu'il avait quitté Zhao ; il avait maintenant environ soixante-dix ans.
+
+Son dos était plus voûté et son corps trahissait le déclin de ses années, mais ses yeux brillaient comme le soleil. Nul n'osait croiser son regard. Ses yeux contenaient le karma, la vie et la mort, le vrai et le faux... Même son maître, Su Dao, n'avait pas un tel tempérament.
 
 Durant l'été de la quinzième année, dans un pays étranger, la pluie tombait tandis que Wang Lin se tenait sous un pavillon en bord de route. Il observait les précipitations et discernait, à travers le rideau d'eau, la mer au loin. Cette mer était immense, séparant deux continents.
 
@@ -92,7 +98,9 @@ De l'autre côté de l'océan se trouvaient de nombreux pays. C'était la derni�
 
 La pluie devint si dense qu'elle formait des lignes verticales, rendant le monde flou et indistinct. Wang Lin observa la pluie et écouta son murmure en fermant lentement les yeux.
 
-Au moment où il ferma les paupières, la silhouette d'une femme s'approcha de la distance. Elle semblait enveloppée d'une aura glaciale. À mesure qu'elle avançait, des craquements résonnèrent et la pluie se changea en glace. Elle portait un bébé, enveloppé dans une épaisse couverture. Aucune goutte ne touchait l'enfant, qui dormait paisiblement.
+Au moment où il ferma les paupières, la silhouette d'une femme s'approcha de la distance. Elle semblait enveloppée d'une aura glaciale.
+
+À mesure qu'elle avançait, des craquements résonnèrent et la pluie se changea en glace. Elle portait un bébé, enveloppé dans une épaisse couverture. Aucune goutte ne touchait l'enfant, qui dormait paisiblement.
 
 La femme s'arrêta devant le pavillon. Bien qu'âgée, son visage restait beau et délicat, mais son aura glaciale dégageait une puissante intention de tuer.
 

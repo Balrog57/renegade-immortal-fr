@@ -80,7 +80,9 @@ Wang Lin cria : « Compagnon cultivateur Hu, n'êtes-vous toujours pas sobre ?! 
 
 Sa voix tonna comme le tonnerre, traversant le gaz pour atteindre les oreilles du vieil homme. Ce dernier cessa immédiatement ses assauts, mais à cet instant précis, les tatouages dans ses yeux brillèrent, rendant son regard de nouveau rouge sang, bien qu'une lueur mystérieuse s'y soit glissée.
 
-« Frère Wang, le chaman que j'ai tué a atteint le stade des six feuilles juste avant de mourir et m'a lancé une malédiction pour tenter de me transformer en marionnette ! Cette technique est extrêmement tyrannique. Si nous étions dans la Mer des Démons, il ne me faudrait que quelques années pour lever ce sort. Mais avec cette aura irritante ici, je ne parviens pas à retrouver mon calme. Cette malédiction ne se brisera qu'en cas de crise de vie ou de mort... Alors, frère Wang, attaque maintenant ! » Son corps tremblait violemment, témoignant de sa lutte pour garder le contrôle.
+« Frère Wang, le chaman que j'ai tué a atteint le stade des six feuilles juste avant de mourir et m'a lancé une malédiction pour tenter de me transformer en marionnette ! Cette technique est extrêmement tyrannique. Si nous étions dans la Mer des Démons, il ne me faudrait que quelques années pour lever ce sort.
+
+Mais avec cette aura irritante ici, je ne parviens pas à retrouver mon calme. Cette malédiction ne se brisera qu'en cas de crise de vie ou de mort... Alors, frère Wang, attaque maintenant ! » Son corps tremblait violemment, témoignant de sa lutte pour garder le contrôle.
 
 Le regard de Wang Lin se fit intense alors qu'il effleurait son sac de rangement. L'épée céleste noire apparut dans sa main. Après que les âmes errantes eurent pénétré la lame, même ceux qui l'avaient déjà vue auraient eu du mal à la reconnaître.
 

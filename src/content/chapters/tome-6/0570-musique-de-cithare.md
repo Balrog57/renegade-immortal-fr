@@ -6,17 +6,23 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 570 - Zither Music
 slug: musique-de-cithare
 ---
-Des scènes du passé défilèrent dans l'esprit de Wang Lin. Ce processus était extrêmement lent. Assis dans la cour, il triait ses souvenirs avec patience. Les images de sa maîtrise réussie de l'Art du Massacre Céleste se jouaient en boucle dans son esprit alors qu'il cherchait des points communs entre elles.
+Des scènes du passé défilèrent dans l'esprit de Wang Lin. Ce processus était extrêmement lent. Assis dans la cour, il triait ses souvenirs avec patience.
+
+Les images de sa maîtrise réussie de l'Art du Massacre Céleste se jouaient en boucle dans son esprit alors qu'il cherchait des points communs entre elles.
 
 Après un long moment, Wang Lin poussa un soupir. Après avoir examiné attentivement chaque fois où il avait réussi à générer une énergie de massacre, il semblait que tout cela n'était arrivé que par hasard ; rien ne semblait les lier.
 
-« Pourtant, s'il y a bien une chose... Le jour où j'ai tué Sima Yan, quelque chose d'étrange s'est produit... À ce moment-là, j'ai agi sous le coup de la colère et j'ai pu créer un fil d'énergie de massacre... » Les yeux de Wang Lin s'illuminèrent un instant avant de s'éteindre à nouveau.
+« Pourtant, s'il y a bien une chose... Le jour où j'ai tué Sima Yan, quelque chose d'étrange s'est produit...
+
+À ce moment-là, j'ai agi sous le coup de la colère et j'ai pu créer un fil d'énergie de massacre... » Les yeux de Wang Lin s'illuminèrent un instant avant de s'éteindre à nouveau.
 
 « Cependant, cela n'a aucun sens, car j'ai aussi créé des fils d'énergie de massacre alors que j'étais parfaitement calme. Il y en avait aussi qui provenaient de soldats démons, mais il est impossible de dire de quels soldats il s'agissait précisément. »
 
 Wang Lin réfléchit longuement, mais sans succès ; ses sourcils se froncèrent progressivement.
 
-« Cultiver l'Art du Massacre Céleste est l'une des raisons principales pour lesquelles je suis venu ici. J'ai appris ce sort pour l'utiliser contre Tuo Sen. Tuo Sen est très puissant, j'aurai donc besoin de beaucoup de ressources pour l'affronter... Maintenant que je possède les Pilules d'Âme Sanguine, mes chances de survie sont bien plus grandes si je combine ces deux éléments. Cependant, mes réserves de Pilules d'Âme Sanguine sont limitées, ma priorité reste donc cet Art du Massacre Céleste ! »
+« Cultiver l'Art du Massacre Céleste est l'une des raisons principales pour lesquelles je suis venu ici. J'ai appris ce sort pour l'utiliser contre Tuo Sen. Tuo Sen est très puissant, j'aurai donc besoin de beaucoup de ressources pour l'affronter...
+
+Maintenant que je possède les Pilules d'Âme Sanguine, mes chances de survie sont bien plus grandes si je combine ces deux éléments. Cependant, mes réserves de Pilules d'Âme Sanguine sont limitées, ma priorité reste donc cet Art du Massacre Céleste ! »
 
 Wang Lin songea. Il cultivait l'Art du Massacre Céleste depuis plusieurs années déjà, et la création de ce premier fil d'énergie de massacre signifiait qu'il avait atteint le premier stade. Toutefois, pour maîtriser pleinement ce sort, la difficulté demeurait immense.
 
@@ -24,7 +30,9 @@ Wang Lin songea. Il cultivait l'Art du Massacre Céleste depuis plusieurs année
 
 « Seulement cinq fils... Même en comptant celui qui scelle Yao Xixue, cela ne fait que six ! »
 
-Wang Lin soupira. Il n'était pas encore parvenu à percer les secrets de l'Art du Massacre Céleste. La méthode exacte de production de cette énergie de massacre restait un mystère pour lui. Il envisagea de nombreuses hypothèses, mais chacune ne s'appliquait qu'à une seule situation.
+Wang Lin soupira. Il n'était pas encore parvenu à percer les secrets de l'Art du Massacre Céleste.
+
+La méthode exacte de production de cette énergie de massacre restait un mystère pour lui. Il envisagea de nombreuses hypothèses, mais chacune ne s'appliquait qu'à une seule situation.
 
 « Il semble que je doive multiplier les tests et les déductions pour espérer comprendre les mystères de l'Art du Massacre Céleste ! » Les yeux de Wang Lin devinrent froids, une intention meurtrière émanant de son regard.
 
@@ -50,7 +58,9 @@ En chemin, il s'arrêtait parfois devant une boutique. Parfois il entrait, parfo
 
 Bien que Wang Lin ne fût pas un homme d'une beauté éclatante, sa nature de cultivateur lui conférait un tempérament raffiné. En conséquence, les femmes les plus hardies parmi la foule lançaient parfois des regards vers lui en passant. Vêtu de sa robe blanche, il ressemblait à un érudit sans défense ; quant aux deux sergents qui le suivaient, ils passaient pour de simples gardes aux yeux du public.
 
-Pourtant, une aura émanant de Wang Lin jurait avec cet endroit ; il n'avait pas sa place ici. De ce fait, une légère mélancolie semblait émaner de lui. Parmi les passants, des couples d'hommes et de femmes discutaient et riaient ensemble. Comparée à eux, la silhouette de Wang Lin paraissait infiniment solitaire...
+Pourtant, une aura émanant de Wang Lin jurait avec cet endroit ; il n'avait pas sa place ici. De ce fait, une légère mélancolie semblait émaner de lui.
+
+Parmi les passants, des couples d'hommes et de femmes discutaient et riaient ensemble. Comparée à eux, la silhouette de Wang Lin paraissait infiniment solitaire...
 
 Alors qu'il errait dans la foule, le tumulte environnant semblait appartenir à un autre monde. Ces couples semblaient issus d'une autre époque, d'un autre espace. Rien autour de lui ne lui semblait familier ou lié à son existence.
 
@@ -64,7 +74,9 @@ Wang Lin se tint silencieusement au bord de l'eau, écoutant les notes de la cit
 
 Son dos évoquait la même sensation de tristesse et de solitude que sa musique. Non loin d'elle, quelques jeunes gens riaient et buvaient. Leurs éclats de voix semblaient déplacés face à la mélodie de la cithare...
 
-Wang Lin observa le bateau en silence. Alors que la musique l'enveloppait, il savoura chaque note et ressentit un sentiment de familiarité. À cet instant, il se souvint de la vallée paisible sur la planète Suzaku, de son foyer avec Li Muwan... La musique de Wan Er, en ces jours de paix, accompagnait encore Wang Lin.
+Wang Lin observa le bateau en silence. Alors que la musique l'enveloppait, il savoura chaque note et ressentit un sentiment de familiarité.
+
+À cet instant, il se souvint de la vallée paisible sur la planète Suzaku, de son foyer avec Li Muwan... La musique de Wan Er, en ces jours de paix, accompagnait encore Wang Lin.
 
 La musique de Wan Er contenait elle aussi une pointe de tristesse, mais le Wang Lin de l'époque ne l'avait pas comprise ; cette mélancolie était alors trop ténue, trop éthérée. Après le départ de Wan Er, Wang Lin n'avait plus jamais entendu ce genre de musique. Aujourd'hui, grâce à ces notes, la tristesse enfouie dans son cœur refaisait surface.
 

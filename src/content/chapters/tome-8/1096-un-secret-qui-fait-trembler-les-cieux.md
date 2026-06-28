@@ -68,7 +68,9 @@ Wang Lin réfléchit silencieusement.
 
 « Malheureusement, mon temps est compté. Si j'avais eu davantage de temps, je serais certain d'avoir pu te transmettre l'héritage complet. Quel dommage... » L'homme secoua la tête dans un soupir. Il regarda Wang Lin et dit doucement : « Je crains de ne pas pouvoir revenir de ce voyage au siège de l'Alliance. Cependant, quel qu'en soit le prix, j'obtiendrai ce Cristal du Royaume Céleste de la Pluie ! »
 
-« Pour l'instant, 90 % de mon origine est ici. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Azure Dragon, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
+« Pour l'instant, 90 % de mon origine est ici. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps.
+
+Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Azure Dragon, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
 
 « Grâce à cette flamme blanche, mon corps ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta cultivation. Souviens-t'en bien ! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou au Secte Divine Vermillion Bird de surmonter une crise. »
 

@@ -14,11 +14,15 @@ Wu Yu hocha vivement la tête et dit sincèrement : « Je peux utiliser le reste
 
 Wang Lin fixa Wu Yu. Il esquissa un mince sourire et dit : « Si vous avez la capacité d'ouvrir une telle formation, pourquoi ne pas y retourner vous-même ? »
 
-Wu Yu soupira et répondit : « La marionnette cadavérique ne peut s'éloigner de moi de plus de cent kilomètres, et je ne peux pas m'éloigner d'elle de cent kilomètres non plus. Si la marionnette sortait de ce périmètre, elle mourrait instantanément. Si j'avais encore mon corps, mon âme en subirait de lourdes blessures, mais je ne suis plus qu'une Âme Naissante. Je n'ai vraiment pas envie de mourir avec cette marionnette. »
+Wu Yu soupira et répondit : « La marionnette cadavérique ne peut s'éloigner de moi de plus de cent kilomètres, et je ne peux pas m'éloigner d'elle de cent kilomètres non plus.
+
+Si la marionnette sortait de ce périmètre, elle mourrait instantanément. Si j'avais encore mon corps, mon âme en subirait de lourdes blessures, mais je ne suis plus qu'une Âme Naissante. Je n'ai vraiment pas envie de mourir avec cette marionnette. »
 
 La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara : « Moi, Wu Yu, je jure sur mon Âme Naissante que je ne vous veux aucun mal, alors je vous en prie, aidez-moi, jeune ami. Je peux même vous offrir Adai. Les neuf talismans étaient déjà sur lui lorsque je l'ai trouvé, et ils possèdent une puissance inimaginable. »
 
-« De plus, je sens que votre énergie spirituelle possède des propriétés Yin. J'utilise moi aussi une méthode de cultivation Yin. Je suppose que vous êtes venu ici pour utiliser l'énergie Yin afin de cultiver. L'énergie Yin de cet endroit est de type Infernal. Si vous allez à la Secte des Cadavres, il existe un lieu de cultivation qui possède une énergie Yin de type Terrestre. »
+« De plus, je sens que votre énergie spirituelle possède des propriétés Yin. J'utilise moi aussi une méthode de cultivation Yin. Je suppose que vous êtes venu ici pour utiliser l'énergie Yin afin de cultiver.
+
+L'énergie Yin de cet endroit est de type Infernal. Si vous allez à la Secte des Cadavres, il existe un lieu de cultivation qui possède une énergie Yin de type Terrestre. »
 
 Wang Lin plissa les yeux et demanda : « Si la Secte des Cadavres possède un lieu doté d'une énergie Yin de type Terrestre, pourquoi êtes-vous venu ici pour tenter votre percée ? »
 
@@ -26,7 +30,9 @@ Wu Yu lança à Wang Lin un regard profond. Ce jeune homme était extrêmement p
 
 Après avoir entendu la question de Wang Lin, il eut un sourire amer et dit : « Jeune ami, j'ai déjà juré sur mon Âme Naissante. Cette marionnette cadavérique n'est pas un être vivant. Chaque fois qu'elle est sur le point de réaliser une percée, elle doit absorber l'énergie Yin de type Infernal, c'est pourquoi je l'ai amenée ici. »
 
-À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer. L'expression de Wu Yu devint soudainement très anxieuse : « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte des Cadavres, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, réfléchissez-y bien. »
+À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer.
+
+L'expression de Wu Yu devint soudainement très anxieuse : « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte des Cadavres, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, réfléchissez-y bien. »
 
 À peine eut-il fini de parler que la statue secoua violemment une nouvelle fois. Les fissures couvraient désormais l'intégralité de la structure et certains fragments commencèrent à se détacher.
 
@@ -44,7 +50,9 @@ Simultanément, Wang Lin se précipita vers la formation de transfert. Celle-ci 
 
 À l'instant précis où ils disparurent, la statue s'effondra complètement. Le jeune homme apparut avec un sourire moqueur, mais au moment où il aperçut la formation de transfert, son expression changea radicalement.
 
-Quant à Wang Lin, après avoir pénétré dans la formation, il se retrouva dans un tunnel. Il sentait son corps s'étirer tandis qu'une multitude de points lumineux défilaient comme des étoiles dans le ciel. En regardant en arrière, il vit Adai, qui scrutait les environs avec inquiétude. Lorsqu'Adai remarqua que Wang Lin le regardait, il lui cria quelques mots étranges. Ses yeux n'étaient plus empreints de méfiance envers Wang Lin, mais de pure confusion.
+Quant à Wang Lin, après avoir pénétré dans la formation, il se retrouva dans un tunnel. Il sentait son corps s'étirer tandis qu'une multitude de points lumineux défilaient comme des étoiles dans le ciel.
+
+En regardant en arrière, il vit Adai, qui scrutait les environs avec inquiétude. Lorsqu'Adai remarqua que Wang Lin le regardait, il lui cria quelques mots étranges. Ses yeux n'étaient plus empreints de méfiance envers Wang Lin, mais de pure confusion.
 
 Après un temps indéterminé, une lumière apparut au bout du tunnel. Elle grandit de plus en plus jusqu'à envahir presque tout l'espace. Wang Lin et Adai ressentirent une force d'aspiration provenant de cette clarté et furent aspirés à leur tour.
 
@@ -60,7 +68,9 @@ Bien que ce disciple ait mystérieusement disparu, son exploit avait provoqué u
 
 Dans une région située à l'extrême ouest de Zhao se trouvait une zone enveloppée d'énergie Yin toute l'année. Même les cultivateurs n'y mettaient souvent les pieds. Car outre l'omniprésence du Yin, la zone était imprégnée d'une énergie des Neuf Terres que même les cultivateurs de l'Âme Naissante évitaient. Quiconque se trouvait en dessous de ce stade subissait de graves blessures au simple contact de cette essence.
 
-On supposait que des zones soumises à de telles restrictions devaient dissimuler de grands trésors. C'était la conviction de nombreux cultivateurs. Finalement, quelques sectes démoniaques s'étaient alliées pour envoyer leurs experts briser ces entraves et fouiller la zone. Mais à leur grande surprise, il n'y avait absolument rien. Certains avaient même étendu leurs recherches dans les profondeurs du sol, sans succès.
+On supposait que des zones soumises à de telles restrictions devaient dissimuler de grands trésors. C'était la conviction de nombreux cultivateurs.
+
+Finalement, quelques sectes démoniaques s'étaient alliées pour envoyer leurs experts briser ces entraves et fouiller la zone. Mais à leur grande surprise, il n'y avait absolument rien. Certains avaient même étendu leurs recherches dans les profondeurs du sol, sans succès.
 
 Cette chasse au trésor était devenue une plaisanterie, et ils furent moqués par les sectes orthodoxes. Peu à peu, en raison de ses dangers et de l'absence de butin, l'endroit fut oublié de tous.
 
@@ -68,7 +78,9 @@ Au centre de la plaine se trouvait une zone noyée dans le brouillard. Sous ce b
 
 C'était là que résidait la plus mystérieuse secte démoniaque de Zhao : la Secte des Cadavres.
 
-La plus grande grotte, située au centre, était aussi vaste que les salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. Des vagues infinies d'énergie pourpre émanaient de ces piliers. D'innombrables symboles et motifs étranges y étaient gravés, reliés par des filaments de lumière. Vu d'en haut, on pouvait voir que ces lueurs formaient un total de quarante-neuf anneaux de lumière.
+La plus grande grotte, située au centre, était aussi vaste que les salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. Des vagues infinies d'énergie pourpre émanaient de ces piliers.
+
+D'innombrables symboles et motifs étranges y étaient gravés, reliés par des filaments de lumière. Vu d'en haut, on pouvait voir que ces lueurs formaient un total de quarante-neuf anneaux de lumière.
 
 Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercueil flottant derrière lui.
 

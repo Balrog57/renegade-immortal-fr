@@ -34,7 +34,9 @@ Gu Dao ressemblait trait pour trait à la statue de l'Ancêtre Ancestral dans le
 
 Gu Dao afficha une expression mélancolique et déclara lentement : « Je suis Gu Dao... et aussi l'Ancêtre Ancestral. J'ai obtenu une partie de la mémoire et de la volonté de l'Ancêtre Ancestral... pour protéger le clan Ancestral et les descendants des familles impériales... Mon apparence a lentement changé après avoir absorbé cette mémoire et cette volonté... » La voix de Gu Dao était basse.
 
-« La distance maximale que vous pouvez parcourir est cet endroit ! Les rumeurs disent que vous avez tué un Grand Empyrée du clan Céleste, mais ce n'est qu'une erreur. Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
+« La distance maximale que vous pouvez parcourir est cet endroit ! Les rumeurs disent que vous avez tué un Grand Empyrée du clan Céleste, mais ce n'est qu'une erreur.
+
+Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
 
 Il était perplexe car, avec le niveau de cultivation de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul ; pourtant, après d'innombrables années, le clan Céleste existait toujours.
 
@@ -48,11 +50,17 @@ Gu Dao secoua la tête et, au lieu de répondre, murmura pour lui-même : « Apr
 
 « Peut-être est-ce réel, peut-être n'est-ce qu'une illusion... » Ses yeux brillaient de détermination.
 
-« Battons-nous. Si vous gagnez contre moi, je n'aurai plus la force de vous arrêter et vous pourrez partir ! Je sens que vous n'avez pas utilisé toute votre puissance, alors je ne me retiendrai plus non plus ! J'ai les deux sorts les plus puissants. L'un est le Monde Ancestral. Dans les souvenirs de l'Ancêtre Ancestral, il est né du vide. Il croyait fermement que ses yeux pourraient devenir le soleil et la lune, son sang les rivières et les mers, ses os les chaînes de montagnes, ses mains jointes le ciel, et son corps la terre. Par sa foi et ses pensées, il utilisa sa force vitale pour créer ce sort : le Monde Ancestral ! Je ne l'ai jamais utilisé depuis que j'ai reçu l'héritage... Aujourd'hui sera la première fois... » dit lentement Gu Dao en fixant Wang Lin.
+« Battons-nous. Si vous gagnez contre moi, je n'aurai plus la force de vous arrêter et vous pourrez partir ! Je sens que vous n'avez pas utilisé toute votre puissance, alors je ne me retiendrai plus non plus !
+
+J'ai les deux sorts les plus puissants. L'un est le Monde Ancestral. Dans les souvenirs de l'Ancêtre Ancestral, il est né du vide.
+
+Il croyait fermement que ses yeux pourraient devenir le soleil et la lune, son sang les rivières et les mers, ses os les chaînes de montagnes, ses mains jointes le ciel, et son corps la terre. Par sa foi et ses pensées, il utilisa sa force vitale pour créer ce sort : le Monde Ancestral ! Je ne l'ai jamais utilisé depuis que j'ai reçu l'héritage... Aujourd'hui sera la première fois... » dit lentement Gu Dao en fixant Wang Lin.
 
 Wang Lin réfléchit un instant en silence, son regard rencontrant celui de Gu Dao.
 
-« Dans le temple ancestral des Shi, j'ai vu une silhouette, et cette figure a fait un pas pour piétiner les cieux. Ce pas m'a profondément bouleversé. Sur le cinquième pont, j'étais immergé dans un monde semblable à une réincarnation. Je ne sais pas combien de temps s'est écoulé, mais au-delà de la compréhension des Huit Dao Extrêmes, ce que j'ai le plus assimilé fut ce pas... À l'origine, je ne pouvais franchir le cinquième pont, mais grâce à ce pas, j'ai pu le traverser. Ce pas, je l'appellerai : Le Pas pour Piétiner les Cieux ! » En murmurant cela, ses yeux se remplirent de résolution. Puisque cette bataille était inévitable, il se battrait jusqu'au bout.
+« Dans le temple ancestral des Shi, j'ai vu une silhouette, et cette figure a fait un pas pour piétiner les cieux. Ce pas m'a profondément bouleversé. Sur le cinquième pont, j'étais immergé dans un monde semblable à une réincarnation. Je ne sais pas combien de temps s'est écoulé, mais au-delà de la compréhension des Huit Dao Extrêmes, ce que j'ai le plus assimilé fut ce pas...
+
+À l'origine, je ne pouvais franchir le cinquième pont, mais grâce à ce pas, j'ai pu le traverser. Ce pas, je l'appellerai : Le Pas pour Piétiner les Cieux ! » En murmurant cela, ses yeux se remplirent de résolution. Puisque cette bataille était inévitable, il se battrait jusqu'au bout.
 
 Après avoir entendu Wang Lin dire qu'il avait franchi le cinquième pont, Gu Dao réfléchit un instant. Il leva ensuite sa main droite et l'agita. « Si vous pouvez résister à ce sort, alors vous serez digne de contempler celui que j'ai étudié durant d'innombrables années : Un Ciel de Dao ! »
 
@@ -66,9 +74,13 @@ Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu
 
 Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal ! Elle transperçait les cieux !
 
-« Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier... Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Astral Immortel soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
+« Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier...
 
-« Monde Ancestral... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent : l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains s'élevèrent vers la voûte céleste, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
+Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Astral Immortel soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
+
+« Monde Ancestral... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent : l'un devint le soleil éclatant, l'autre la lune.
+
+Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains s'élevèrent vers la voûte céleste, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
 
 Alors qu'il observait ce spectacle, Wang Lin ressentit soudain une douleur atroce dans les yeux. C'était comme si une puissance immense voulait lui arracher les globes oculaires pour en faire le soleil et la lune ! Ses mains tremblaient également, semblant vouloir s'élever pour devenir le ciel, tandis que son corps était attiré par une force étrange pour se fondre dans la terre.
 

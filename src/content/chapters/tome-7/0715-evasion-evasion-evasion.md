@@ -12,7 +12,9 @@ Même le corps de la garde céleste trembla, et la lumière dorée qui l'entoura
 
 Wang Lin serra les dents. Ignorant l'aura de la gueule géante, il chargea une fois de plus vers le brouillard dense.
 
-Cependant, la fissure au sol s'élargit follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder. De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète !
+Cependant, la fissure au sol s'élargit follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder.
+
+De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète !
 
 Toutefois, cette planète s'était effondrée de l'intérieur, provoquant une explosion d'une puissance extrême ; si des cultivateurs de bas niveau avaient été trop proches, ils n'auraient eu aucune chance de survivre.
 
@@ -20,7 +22,9 @@ La planète Yun Xia était légèrement différente. Bien qu'elle fût égalemen
 
 La terre qui se soulevait sans cesse n'était qu'une illusion, car ce que l'on prenait pour la « terre » n'était en réalité que le corps du serpent Moongazer. Ce soulèvement n'était que le serpent qui se retournait et redressait la tête.
 
-La fissure géante se referma instantanément avec une vitesse inimaginable. Le regard de Wang Lin devint glacial. Le pouvoir des Fruits d'Ascension Céleste était toujours là, sans quoi il n'aurait aucun moyen de s'échapper. Tant qu'il parviendrait à stopper le serpent Moongazer un court instant, il pourrait traverser le brouillard et atteindre l'espace.
+La fissure géante se referma instantanément avec une vitesse inimaginable. Le regard de Wang Lin devint glacial. Le pouvoir des Fruits d'Ascension Céleste était toujours là, sans quoi il n'aurait aucun moyen de s'échapper.
+
+Tant qu'il parviendrait à stopper le serpent Moongazer un court instant, il pourrait traverser le brouillard et atteindre l'espace.
 
 Wang Lin serra les dents et s'apprêta à saisir son sac de rangement quand ses yeux se rétrécirent soudainement. À cet instant précis, alors que la gueule géante approchait, il ressentit une fluctuation qu'il connaissait trop bien : c'était la fluctuation de la formation d'épées des sept étoiles !
 
@@ -56,7 +60,9 @@ Au moment où les mots des anciens dieux résonnèrent, le ciel changea. Wang Li
 
 La langue des anciens dieux, d'une antiquité profonde, résonna. Mais ce qu'elle apporta à Wang Lin fut la certitude qu'une crise de vie ou de mort était imminente ! Des fissures apparurent dans l'espace environnant comme si la réalité elle-même allait s'effondrer. Wang Lin en perdit presque son sang-froid.
 
-Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien dieu à huit étoiles pouvait utiliser ! Il pouvait pulvériser tout ce qui se trouvait sur son passage et réduire en poussière tout ce qui se trouvait dans sa portée. Le sentiment de péril n'avait jamais été aussi viscéral. Wang Lin se retourna et poussa un rugissement puissant et étrange !
+Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien dieu à huit étoiles pouvait utiliser ! Il pouvait pulvériser tout ce qui se trouvait sur son passage et réduire en poussière tout ce qui se trouvait dans sa portée.
+
+Le sentiment de péril n'avait jamais été aussi viscéral. Wang Lin se retourna et poussa un rugissement puissant et étrange !
 
 Ce qu'il prononça était lui aussi la langue des anciens dieux, héritée de Tu Si !
 
@@ -84,7 +90,9 @@ Voyant la fissure se rapprocher, l'excitation de Greed atteignit son apogée !
 
 « Je te rends la moitié ! »
 
-La moitié de l'os était semblable à une montagne titanesque, créant un sifflement strident en chutant à travers l'atmosphère. Cela fit une nouvelle fois hésiter la gueule géante. L'effondrement de l'espace environnant s'interrompit de nouveau. Le serpent Moongazer fixa la montagne qui tombait avec confusion. Cette chose lui était très familière, mais il ne parvenait pas à se souvenir de ce qu'elle était...
+La moitié de l'os était semblable à une montagne titanesque, créant un sifflement strident en chutant à travers l'atmosphère. Cela fit une nouvelle fois hésiter la gueule géante.
+
+L'effondrement de l'espace environnant s'interrompit de nouveau. Le serpent Moongazer fixa la montagne qui tombait avec confusion. Cette chose lui était très familière, mais il ne parvenait pas à se souvenir de ce qu'elle était...
 
 Cependant, inconsciemment, il ouvrit la gueule et engloutit la chaîne de montagnes !
 

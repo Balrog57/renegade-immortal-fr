@@ -6,7 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 321 - Swords gone mad
 slug: les-epees-en-furie
 ---
-« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant à ce qu'elle soit considérée comme une contrefaçon. »
+« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal.
+
+Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant à ce qu'elle soit considérée comme une contrefaçon. »
 
 « De plus, le coin manquant nécessiterait un autre type de matériau, mais son utilisation actuelle devrait convenir pour l'instant. » Wang Lin soupira intérieurement.
 
@@ -26,7 +28,9 @@ La boussole stellaire passa comme une lueur fantomatique, survolant rapidement d
 
 Au début, le contrôle de la boussole semblait singulier à Wang Lin, mais après un certain temps de vol, il l'avait totalement maîtrisée. Diriger l'artefact ne différait plus guère du contrôle de son propre corps. Cette vitesse était une prouesse que Wang Lin n'aurait jamais pu atteindre en volant par ses propres moyens ; seule une téléportation constante lui permettrait de rivaliser avec cette boussole stellaire.
 
-Wang Lin pensa secrètement : « C'est véritablement un trésor rare. À cette vitesse, même des cultivateurs de la Transformation de l'Âme auraient du mal à le rattraper. » Ce voyage dans le Royaume Céleste n'était pas vain ; sa récolte dépassait son imagination. La boussole stellaire, le jade céleste et les chars du dieu de la guerre... si l'on ajoutait cette pagode, son butin était tout simplement prodigieux. Sans oublier cet esclave de la Transformation de l'Âme rebelle.
+Wang Lin pensa secrètement : « C'est véritablement un trésor rare. À cette vitesse, même des cultivateurs de la Transformation de l'Âme auraient du mal à le rattraper. » Ce voyage dans le Royaume Céleste n'était pas vain ; sa récolte dépassait son imagination.
+
+La boussole stellaire, le jade céleste et les chars du dieu de la guerre... si l'on ajoutait cette pagode, son butin était tout simplement prodigieux. Sans oublier cet esclave de la Transformation de l'Âme rebelle.
 
 Sur l'un des divers fragments célestes, l'endroit n'était pas aussi dévasté. On pouvait y deviner l'aspect qu'avait le Royaume Céleste autrefois. L'herbe verte recouvrant le sol et les nuages flottant au sommet des montagnes laissaient entrevoir la splendeur originelle de ce lieu.
 
@@ -58,13 +62,17 @@ Le sol éclata alors qu'un dragon doré surgissait des profondeurs. Dans son él
 
 À cet instant, loin dans le vide, le vieil homme de la Secte Da Lou, assis sur un Qilin, ouvrit soudainement les yeux. Dès qu'il les ouvrit, une puissante créature du vide poussa un gémissement misérable et s'enfuit en panique.
 
-« Une autre épée céleste de pluie ! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre ! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra ! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui : « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma cultivation actuelle... »
+« Une autre épée céleste de pluie ! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre ! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée.
+
+Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra ! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui : « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma cultivation actuelle... »
 
 Ses yeux pétillèrent tandis que le Qilin sous ses pieds s'animait avec plus de célérité. Après un instant, une expression de joie illumina son visage.
 
 « Ils ont réagi ! »
 
-Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. La main de la femme prit la forme d'une fiole de jade lorsqu'elle déclara : « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi ! »
+Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. La main de la femme prit la forme d'une fiole de jade lorsqu'elle déclara : « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments.
+
+Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi ! »
 
 À l'instant où elle eut fini de parler, chaque fragment du royaume céleste, qu'il fût habité ou non, se mit à trembler. Ce tremblement de terre n'était pas dû à un effondrement, et celui du ciel n'était pas causé par des failles spatiales.
 
@@ -88,7 +96,9 @@ L'épée se brise pour les dévots de l'épée !!!
 
 L'épée céleste de pluie possédait une nouvelle âme, et cette âme était Zhou Yi. L'esprit de l'épée céleste de pluie était revenu. Dix mille épées brisées, dix mille épées revenues, dix mille épées fusionnées en une seule !
 
-Toutes les épées célestes du Royaume Céleste volèrent dans une seule direction. Quiconque osait leur barrer la route était tué ! Si un homme se dressait devant elles, elles le tuaient. Si la terre faisait obstacle, elles la dévastaient. Si le ciel s'interposait, elles le déchiraient. Et si une bête les empêchait de passer, elles l'abattaient.
+Toutes les épées célestes du Royaume Céleste volèrent dans une seule direction. Quiconque osait leur barrer la route était tué ! Si un homme se dressait devant elles, elles le tuaient.
+
+Si la terre faisait obstacle, elles la dévastaient. Si le ciel s'interposait, elles le déchiraient. Et si une bête les empêchait de passer, elles l'abattaient.
 
 Dans le vide, un érudit d'âge moyen marchait tranquillement. Chaque fois qu'une créature étrange l'apercevait, elle l'évitait ; aucune n'osait s'approcher de lui. Alors qu'il traversait le vide, il entendit l'hymne d'épée, ce qui fit changer son expression.
 

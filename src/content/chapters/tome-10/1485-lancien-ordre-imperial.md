@@ -26,7 +26,9 @@ Dans la partie est de la planète, la famille Liu avait également été témoin
 
 Dans la partie ouest de la planète Dong Ling, les membres de la famille Xiang encerclaient la zone où se trouvait leur ancêtre. Ils fixaient le ciel tandis que la pluie tombait sur eux, le cœur serré par l'effroi.
 
-Xiang Yundong était plongé dans l'amertume ; il contemplait ce spectacle, hébété, incapable de prononcer le moindre mot. La scène qui venait de se produire était trop terrifiante, elle dépassait toute imagination. Face à une telle puissance, comment pouvaient-ils lutter ? Comment pouvaient-ils résister ?
+Xiang Yundong était plongé dans l'amertume ; il contemplait ce spectacle, hébété, incapable de prononcer le moindre mot.
+
+La scène qui venait de se produire était trop terrifiante, elle dépassait toute imagination. Face à une telle puissance, comment pouvaient-ils lutter ? Comment pouvaient-ils résister ?
 
 Le chef de la famille Liu, les Anciens et près de dix mille cultivateurs tournaient tous leurs regards vers l'ouest. La famille Xu dans le sud en faisait autant, leurs yeux fixés sur l'ouest... Et même à l'ouest, les membres de la famille Xiang étaient identiques. On ignorait qui avait le premier détourné les yeux de l'ancêtre en retraite pour regarder vers l'horizon, mais bientôt, toute la famille Xiang fut tournée vers l'ouest !
 
@@ -62,7 +64,9 @@ Mais Wang Lin n'avait nullement l'intention de l'esquiver. Ses yeux brillèrent 
 
 Des grondements tonitruants déchirèrent la planète Dong Ling et se propagèrent dans toutes les directions comme un rugissement assourdissant. Le pilier de lumière percuta la paume droite de Wang Lin. L'ombre sans tête, à l'intérieur du faisceau, projeta sa lance contre la main de Wang Lin !
 
-Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par un vent violent. Ses vêtements claquaient avec force, comme s'ils allaient être arrachés de son corps ! Cependant, le corps de Wang Lin ne bougea pas d'un pouce. Son expression resta imperturbable. Il venait de contenir une attaque proche de celle d'un cultivateur du Nirvana Void d'une seule main !
+Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par un vent violent. Ses vêtements claquaient avec force, comme s'ils allaient être arrachés de son corps !
+
+Cependant, le corps de Wang Lin ne bougea pas d'un pouce. Son expression resta imperturbable. Il venait de contenir une attaque proche de celle d'un cultivateur du Nirvana Void d'une seule main !
 
 Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Ling se détacha du reste du globe !
 
@@ -74,7 +78,9 @@ Le pilier de lumière disparut, emportant avec lui l'ombre sans tête... Wang Li
 
 Au moment où le pilier se dissipa et que la planète commença son effondrement, les cultivateurs restants devinrent fous, poussés par l'ordre de l'ancêtre Xiang de combattre jusqu'à la mort. Ils chargèrent tous Wang Lin ! Leurs yeux étaient rouges, comme s'ils ne connaîtraient le repos qu'en le tuant !
 
-« Moi, Wang Lin, j'ai tué beaucoup de gens. Cela ne me dérange guère... Je ne sais pas pourquoi vous les envoyez à la mort, mais... je peux exaucer votre souhait ! » Wang Lin resta calme face aux dizaines de milliers de cultivateurs qui fonçaient sur lui. Il leva sa main droite et l'agita doucement !
+« Moi, Wang Lin, j'ai tué beaucoup de gens. Cela ne me dérange guère... Je ne sais pas pourquoi vous les envoyez à la mort, mais... je peux exaucer votre souhait ! »
+
+Wang Lin resta calme face aux dizaines de milliers de cultivateurs qui fonçaient sur lui. Il leva sa main droite et l'agita doucement !
 
 Au moment du geste, un feu aux neuf couleurs jaillit de l'œil gauche de Wang Lin. Tandis que sa main droite oscillait, le brasier se répandit à travers le monde ! Les cultivateurs du Feu Éthéré excellaient dans les batailles de groupe !
 
@@ -82,9 +88,13 @@ D'un seul mouvement, le Feu Éthéré commença à consumer l'intérieur des cor
 
 Alors que la mer de feu s'étendait, le ciel entier fut recouvert d'une brume blanche. Wang Lin marcha lentement vers la partie occidentale de la planète, là où l'ancêtre de la famille Xiang lui avait dérobé sa vitalité !
 
-Au fil de son avancée, les hurlements de douleur continua ne cessaient de résonner. Tous les cultivateurs qui s'approchaient de lui étaient réduits en cendres. Personne ne pouvait entraver sa marche. Bientôt, Wang Lin atteignit la partie ouest, où la terre était d'un rouge sombre. Devant lui s'étendait le gouffre profond menant à la grotte de l'ancêtre Xiang !
+Au fil de son avancée, les hurlements de douleur continua ne cessaient de résonner. Tous les cultivateurs qui s'approchaient de lui étaient réduits en cendres. Personne ne pouvait entraver sa marche.
 
-Wang Lin fit un pas en avant et pénétra dans la faille. À peine eut-il franchi le seuil qu'un rugissement jaillit du cercueil jaune. Une masse de liquide visqueux et jaunâtre fut projetée, formant une vague qui s'élança vers lui ! L'odeur de chair putréfiée et l'aura de mort se mêlèrent à ce liquide pour former une tempête grondante. Wang Lin resta serein ; au moment où la tempête allait l'atteindre, il fit un geste de la main. La tempête s'effondra instantanément, et le liquide jaune émit des crépitements en frappant les rochers environnants.
+Bientôt, Wang Lin atteignit la partie ouest, où la terre était d'un rouge sombre. Devant lui s'étendait le gouffre profond menant à la grotte de l'ancêtre Xiang !
+
+Wang Lin fit un pas en avant et pénétra dans la faille. À peine eut-il franchi le seuil qu'un rugissement jaillit du cercueil jaune. Une masse de liquide visqueux et jaunâtre fut projetée, formant une vague qui s'élança vers lui !
+
+L'odeur de chair putréfiée et l'aura de mort se mêlèrent à ce liquide pour former une tempête grondante. Wang Lin resta serein ; au moment où la tempête allait l'atteindre, il fit un geste de la main. La tempête s'effondra instantanément, et le liquide jaune émit des crépitements en frappant les rochers environnants.
 
 Simultanément, une main desséchée qui agrippait le bord du cercueil se crispa violemment. Une voix haletante et rauque s'échappa de la boîte :
 

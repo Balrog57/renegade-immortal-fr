@@ -14,7 +14,11 @@ Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléch
 
 « Qu'est-ce que cet endroit, par tous les diables ? » demanda Chen Tianjun, du Secte des Bêtes de Bataille.
 
-Le Maître Ashen Pine leva la tête et répondit lentement : « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région centrale. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux ; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
+Le Maître Ashen Pine leva la tête et répondit lentement : « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume.
+
+C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région centrale. Il y subsiste des vestiges d'êtres anciens.
+
+D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux ; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
 
 Tous suivirent de près le Maître Ashen Pine, progressant avec prudence. Ce dernier restait d'une grande gravité tout au long du trajet, suivant un itinéraire précis depuis l'autel vers la plaine. Ils finirent par pénétrer dans une zone montagneuse noyée dans la brume.
 
@@ -38,7 +42,9 @@ Le Maître Ashen Pine ralentit progressivement jusqu'à s'arrêter net. Il se fr
 
 Devant lui se trouvait un passage étroit, bordé par des parois montagneuses lugubres. Par intermittence, quelques pierres roulaient dans le vide, brisant le silence pesant qui régnait partout ailleurs.
 
-Une légère brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un squelette. Ses vêtements avaient presque totalement disparu, n'en laissant que quelques lambeaux autour des ossements. La chair s'était entièrement décomposée, laissant apparaître l'os iliaque. À l'intérieur se trouvait une pilule aux sept couleurs. Elle était incomplète et présentait de subtiles fissures ; une partie avait même fondu, lui donnant une forme de croissant plutôt que celle d'une sphère. C'était une pilule qu'un être avait tenté d'ingérer, mais qui était morte avant d'avoir pu l'absorber totalement ! Bien que des éons se soient écoulés, la pilule exhalait encore un parfum ténu, bien qu'extrêmement léger.
+Une légère brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un squelette. Ses vêtements avaient presque totalement disparu, n'en laissant que quelques lambeaux autour des ossements. La chair s'était entièrement décomposée, laissant apparaître l'os iliaque. À l'intérieur se trouvait une pilule aux sept couleurs.
+
+Elle était incomplète et présentait de subtiles fissures ; une partie avait même fondu, lui donnant une forme de croissant plutôt que celle d'une sphère. C'était une pilule qu'un être avait tenté d'ingérer, mais qui était morte avant d'avoir pu l'absorber totalement ! Bien que des éons se soient écoulés, la pilule exhalait encore un parfum ténu, bien qu'extrêmement léger.
 
 En humant cette fragrance, les yeux de Wang Lin se plissèrent. Ce parfum était singulier ; dès qu'il atteignit ses narines, il fit trembler son âme originelle. Son esprit commença à dériver, et des scènes du passé apparurent de manière incontrôlée devant ses yeux.
 
@@ -48,7 +54,9 @@ Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue p
 
 « C'est bel et bien la pilule de réincarnation ! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.
 
-« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la cultivation, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seuls quelques fragments subsistent. Il est impossible de raffiner une véritable pilule ; nous ne pouvons que condenser une certaine énergie de réincarnation ! » expliqua lentement le Maître Ashen Pine.
+« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue.
+
+La rumeur veut qu'autrefois, dans le monde ancien de la cultivation, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seuls quelques fragments subsistent. Il est impossible de raffiner une véritable pilule ; nous ne pouvons que condenser une certaine énergie de réincarnation ! » expliqua lentement le Maître Ashen Pine.
 
 Les yeux de Duanmu s'illuminèrent et il fixa le Maître Ashen Pine d'un regard tranchant : « Le compagnon Ashen Pine est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
 

@@ -54,7 +54,9 @@ Elle regarda Wang Lin, les yeux empreints de fierté, et murmura : « Ceng Niu, 
 
 Les souvenirs de Red Butterfly défilèrent dans l'esprit de Wang Lin tandis qu'elle parlait.
 
-« Une fille bénie des cieux finissant dans un tel état. Quelle tristesse ! » Wang Lin soupira. Ce qu'il percevait dans cette image de Red Butterfly n'était pas de la fierté, mais une douleur profonde et très bien dissimulée au fond de son cœur. Cette affliction contenait une souffrance si intense que nul ne pourrait la voir sans en avoir le cœur ébranlé.
+« Une fille bénie des cieux finissant dans un tel état. Quelle tristesse ! » Wang Lin soupira. Ce qu'il percevait dans cette image de Red Butterfly n'était pas de la fierté, mais une douleur profonde et très bien dissimulée au fond de son cœur.
+
+Cette affliction contenait une souffrance si intense que nul ne pourrait la voir sans en avoir le cœur ébranlé.
 
 « Red Butterfly, je vais exaucer ton souhait... » Les yeux de Wang Lin devinrent graves, puis il brandit sa hache. Il bondit soudainement dans les airs, poussa un rugissement et lança l'arme. La hache fonça vers Red Butterfly telle une météorite entourée d'éclairs.
 
@@ -72,7 +74,9 @@ La hache déchira le ciel, provoquant une bourrasque de vent titanesque et une s
 
 Bien que son orgueil eût déplu à beaucoup, bien que son impitoyabilité eût rendu tout rapprochement difficile, elle était Red Butterfly ! L'orgueilleuse Red Butterfly !
 
-La hache convergeait vers elle. Lorsqu'elle fut à moins de trente mètres, elle libéra une force destructrice. À cet instant, si Red Butterfly avait voulu résister ou esquiver, elle en avait le pouvoir. Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
+La hache convergeait vers elle. Lorsqu'elle fut à moins de trente mètres, elle libéra une force destructrice. À cet instant, si Red Butterfly avait voulu résister ou esquiver, elle en avait le pouvoir.
+
+Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
 
 Cependant, mêlée à cet orgueil, une pointe de regret subsistait. Bien qu'elle fût soigneusement dissimulée, Wang Lin la perçut malgré tout.
 

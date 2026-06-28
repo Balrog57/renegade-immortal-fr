@@ -16,7 +16,9 @@ Dans ce système, les plus communes étaient les familles établies sur les plan
 
 Au-dessus de ces familles se trouvaient les quatre grandes familles détenant des héritages du Royaume Céleste. Elles constituaient la force la plus puissante en surface dans le Système Stellaire d'Allheaven. En remontant à leurs racines, les ancêtres de ces quatre grandes familles étaient tous des êtres célestes au sein du Royaume Céleste du Tonnerre avant son effondrement ; leur statut était donc tout sauf ordinaire.
 
-De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances d'Allheaven. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la cultivation, et six familles de ce type subsistaient dans le Système Stellaire d'Allheaven.
+De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances d'Allheaven. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles.
+
+Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la cultivation, et six familles de ce type subsistaient dans le Système Stellaire d'Allheaven.
 
 La mystérieuse famille Ziang de la planète Dong Lin et la famille de Li Yuan faisaient partie de ces six. Cependant, au fil des millénaires, nombre de ces lignées antiques avaient décliné. La famille Li en était un exemple, tout comme trois autres ; aujourd'hui, il n'en restait plus que deux !
 
@@ -46,7 +48,9 @@ Ce qui suivit fut simple : les trois hommes coopérèrent pour ouvrir le pavillo
 
 « Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections des centaines de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. »
 
-Wang Lin hocha légèrement la tête. D'après les souvenirs du membre de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
+Wang Lin hocha légèrement la tête. D'après les souvenirs du membre de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon.
+
+De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 
 Une fois Wang Lin entré, le vieillard sans corps soupira : « Si nous avions su qu'il était aussi puissant, nous ne l'aurions pas attaqué et l'aurions laissé entrer sans cérémonie. Avec sa cultivation, il ne pourra monter au plus haut que jusqu'au quatrième étage, comme nous. »
 
@@ -58,11 +62,15 @@ L'Ancien de la famille Chen déclara d'un ton lent : « Peu importe. À quoi bon
 
 Le vieillard sans corps demanda : « Ancien Chen, comptez-vous vraiment inviter cet homme à devenir un Ancien non familial au sein de votre famille ? »
 
-L'Ancien Chen acquiesça : « Cet homme est formidable. La famille Chen a besoin d'un tel talent ; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi ! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Compagnon Cultivateur Yao ! Quant au corps du Compagnon Cultivateur Lu, ma famille le compensera ! Compagnon Song, la famille Chen vous offrira également un présent ! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan ! »
+L'Ancien Chen acquiesça : « Cet homme est formidable. La famille Chen a besoin d'un tel talent ; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi ! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Compagnon Cultivateur Yao !
+
+Quant au corps du Compagnon Cultivateur Lu, ma famille le compensera ! Compagnon Song, la famille Chen vous offrira également un présent ! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan ! »
 
 Tandis qu'ils discutaient, Wang Lin atteignit un espace mystérieux. Les environs étaient noyés dans une brume grise et son Sens Divin ne pouvait s'y étendre. Un murmure indistinct émanait de toutes les directions, atteignant ses oreilles sans qu'il puisse en saisir le sens.
 
-Soudain, la brume environnante se mit à s'agiter. Le mouvement fut fulgurant ; les ondes de brouillard se rassemblèrent devant Wang Lin et, en un clin d'œil, formèrent une silhouette humaine. Cet être était fait de brume. Ses vêtements étaient indistincts, mais son visage était clairement visible. Son apparence était ordinaire, mais il dégageait une aura radicalement différente de celle d'un cultivateur. Une fois apparu, il regarda calmement Wang Lin, puis leva sa main droite, paume vers l'extérieur, et resta immobile.
+Soudain, la brume environnante se mit à s'agiter. Le mouvement fut fulgurant ; les ondes de brouillard se rassemblèrent devant Wang Lin et, en un clin d'œil, formèrent une silhouette humaine. Cet être était fait de brume. Ses vêtements étaient indistincts, mais son visage était clairement visible.
+
+Son apparence était ordinaire, mais il dégageait une aura radicalement différente de celle d'un cultivateur. Une fois apparu, il regarda calmement Wang Lin, puis leva sa main droite, paume vers l'extérieur, et resta immobile.
 
 Les yeux de Wang Lin se plissèrent. Il savait, grâce aux souvenirs de Yao, que bien que le processus diffère pour chacun, il y avait une constante au début : le test du niveau de cultivation. Après une courte réflexion, Wang Lin fit un pas en avant et s'approcha de l'entité. Il leva sa main droite et la pressa contre la paume de l'autre.
 
@@ -72,7 +80,9 @@ Instantanément, une force mystérieuse pénétra son corps. Elle le parcourut u
 
 En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura : « Grand Céleste de rang 8... Je me demande comment la cultivation est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Yang Corporel ; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
 
-À cet instant, l'être de brume commença à se dissiper lentement. Wang Lin savait qu'une fois la dissipation totale achevée, il serait téléporté au quatrième étage et que tout le reste dépendrait de sa chance. Cependant, quelle que soit sa fortune, il ne pourrait obtenir qu'un sort céleste de ce niveau. Bien qu'il ignorât le nombre d'étages du pavillon, il était évident que plus l'étage était élevé, meilleure serait la qualité des sorts ! Au plus haut étage, même le sort le plus commun surpasserait les trésors des étages inférieurs.
+À cet instant, l'être de brume commença à se dissiper lentement. Wang Lin savait qu'une fois la dissipation totale achevée, il serait téléporté au quatrième étage et que tout le reste dépendrait de sa chance. Cependant, quelle que soit sa fortune, il ne pourrait obtenir qu'un sort céleste de ce niveau.
+
+Bien qu'il ignorât le nombre d'étages du pavillon, il était évident que plus l'étage était élevé, meilleure serait la qualité des sorts ! Au plus haut étage, même le sort le plus commun surpasserait les trésors des étages inférieurs.
 
 Néanmoins, le test de cultivation ne pouvait être falsifié. Tout reposait sur la force propre de l'individu, ce qui constituait en soi une forme de destin. Seuls ceux dotés d'une cultivation puissante pouvaient espérer des sorts célestes précieux ; pour les autres, il était inutile d'espérer davantage.
 

@@ -82,7 +82,7 @@ Les deux hommes se déplacèrent à une vitesse inimaginable pour converger vers
 
 Au moment où leur sort et l'épée-dragon arrivèrent, Wang Lin pointa l'avant de son index droit. Une aura noire et blanche apparut, se transformant en deux petits cerfs. Simultanément, cent mille, un million, cinq millions, dix millions de rayons d'énergie d'épée éclatèrent !
 
-Les dix millions de rayons éblouissants couvrirent le ciel entier ! Même Daoist Water avait été blessé par une telle puissance, alors cette attaque était phénoménale ! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
+Les dix millions de rayons éblouissants couvrirent le ciel entier ! Même le Daoïste de l'Eau avait été blessé par une telle puissance, alors cette attaque était phénoménale ! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
 
 Des grondements tonitruants résonnèrent à travers la planète de cultivation ; même le brouillard entourant la planète fut repoussé comme s'il craignait l'approche de ce pouvoir ! Lorsque l'homme en robe noire percuta les rayons d'énergie, la foudre autour de lui s'effondra. Il cracha du sang et recula immédiatement, révélant une expression de terreur qu'il n'avait jamais montrée auparavant !
 

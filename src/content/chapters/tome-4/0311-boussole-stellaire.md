@@ -60,7 +60,9 @@ Le temps passa lentement et ils atteignirent enfin l'autre côté de la brume bl
 
 Chi Hu laissa échapper un rire et joignit les mains avec sincérité. « Red Butterfly, vous pouvez compter sur nous. Ces derniers jours, vous avez épuisé beaucoup d'énergie spirituelle, vous devriez vous reposer. » Sur ces mots, il se positionna, intentionnellement ou non, entre Wang Lin et Red Butterfly.
 
-Wang Lin esquissa un léger sourire. Si Chi Hu n'avait pas été là, il aurait tenté d'attaquer Red Butterfly. Cependant, l'attitude de Chi Hu signifiait que si Wang Lin passait à l'acte, ce dernier s'y opposerait. De plus, Wang Lin ne croyait pas qu'elle fût réellement affaiblie à ce point. Il était évident qu'elle feignait la faiblesse pour tenter d'inciter Wang Lin à l'attaquer. En outre, si son énergie spirituelle était véritablement épuisée, elle disposerait certainement de pilules pour la restaurer instantanément. Avec l'expérience de Wang Lin, comment pourrait-il tomber dans un piège aussi puéril ?
+Wang Lin esquissa un léger sourire. Si Chi Hu n'avait pas été là, il aurait tenté d'attaquer Red Butterfly. Cependant, l'attitude de Chi Hu signifiait que si Wang Lin passait à l'acte, ce dernier s'y opposerait. De plus, Wang Lin ne croyait pas qu'elle fût réellement affaiblie à ce point.
+
+Il était évident qu'elle feignait la faiblesse pour tenter d'inciter Wang Lin à l'attaquer. En outre, si son énergie spirituelle était véritablement épuisée, elle disposerait certainement de pilules pour la restaurer instantanément. Avec l'expérience de Wang Lin, comment pourrait-il tomber dans un piège aussi puéril ?
 
 Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide devant eux.
 
@@ -80,7 +82,9 @@ Sans dire un mot, Red Butterfly sauta sur la boussole et s'assit à l'extrémit�
 
 Wang Lin réfléchit un instant avant de voler vers l'extrémité est pour s'y asseoir. Il observa les extrémités nord et sud avant de déclarer : « Frère Chi Hu, cette boussole nécessite cinq personnes pour fonctionner de manière optimale. »
 
-« C'est exact. Si nous avions pu trouver deux personnes supplémentaires, ce voyage se déroulerait sans encombre, mais il n'y a pas assez de trésors à partager entre cinq personnes. » Chi Hu rit avant de prendre une profonde inspiration. Ses mains formèrent des sceaux qu'il plaça sur la boussole. Puis il cria : « Frère Ceng, si cette boussole se brise dans le vide, nous n'aurons aucune chance de survivre ! J'espère que vous ne vous retiendrez pas ! Je dois concentrer toute mon attention sur le contrôle de l'instrument et je ne pourrai donc pas vous aider. Tout reposera sur vous, frère Ceng ! »
+« C'est exact. Si nous avions pu trouver deux personnes supplémentaires, ce voyage se déroulerait sans encombre, mais il n'y a pas assez de trésors à partager entre cinq personnes. » Chi Hu rit avant de prendre une profonde inspiration. Ses mains formèrent des sceaux qu'il plaça sur la boussole.
+
+Puis il cria : « Frère Ceng, si cette boussole se brise dans le vide, nous n'aurons aucune chance de survivre ! J'espère que vous ne vous retiendrez pas ! Je dois concentrer toute mon attention sur le contrôle de l'instrument et je ne pourrai donc pas vous aider. Tout reposera sur vous, frère Ceng ! »
 
 Wang Lin acquiesça. Un drapeau de restriction apparut soudainement, l'enveloppant d'une brume noire. Si Chi Hu ou Red Butterfly tentaient de l'attaquer pendant qu'il était occupé, le drapeau pourrait le protéger un instant, lui laissant le temps de riposter. Une telle précaution était indispensable en toute circonstance.
 

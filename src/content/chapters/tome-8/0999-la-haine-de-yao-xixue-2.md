@@ -26,7 +26,9 @@ Il ne pouvait oublier comment il s'était jeté dans une armée de plus de 100 0
 
 Il ne pouvait oublier ses paroles de ce jour-là, alors qu'il contemplait le ciel comme pour témoigner de son propre Dao !
 
-« Dans ce monde, certaines choses doivent être et d'autres non. Les cultivateurs cherchent l'immortalité et tentent d'échapper au destin. En règle générale, ils cherchent à éviter les catastrophes et à accueillir la volonté des cieux ! Mais Treize et Hu Pao n'ont aucun lien avec moi. J'ai défié la volonté du général démon, ce qui signifie que j'ai défié le pays démon !
+« Dans ce monde, certaines choses doivent être et d'autres non. Les cultivateurs cherchent l'immortalité et tentent d'échapper au destin.
+
+En règle générale, ils cherchent à éviter les catastrophes et à accueillir la volonté des cieux ! Mais Treize et Hu Pao n'ont aucun lien avec moi. J'ai défié la volonté du général démon, ce qui signifie que j'ai défié le pays démon !
 
 Ce n'était pas une question digne d'intérêt pour ceux qui ne ne se soucient que des bénéfices ! Je ne suis ni un gentleman, ni un scélérat. Je ne suis ni sincère, ni hypocrite. C'est simplement qu'il y a certaines choses dans ce monde que je me dois de faire !
 
@@ -64,7 +66,9 @@ Les yeux d'Ouyang Hua trahissaient l'incrédulité tandis qu'il fixait Treize. �
 
 Ouyang Hua prit une profonde inspiration, l'extase illuminant son regard. Il respectait Wang Lin du plus profond de son âme, mais au-delà du respect, il y avait la crainte. C’est précisément cette peur qui, malgré la croissance constante du Clan des Âmes Raffinées, l'avait empêché de se rebeller.
 
-Les yeux de Wang Lin brillèrent d'une lumière étrange. Grâce à son sens divin, il constata que le Clan des Âmes Raffinées s'était considérablement étendu. Cela n'importait guère. Ce qui le frappait, c'était ce pouvoir mystérieux venant de fusionner avec sa conscience. Wang Lin cultivait depuis plus de mille ans et avait rencontré d'innombrables forces, mais il n'en avait jamais connu une semblable.
+Les yeux de Wang Lin brillèrent d'une lumière étrange. Grâce à son sens divin, il constata que le Clan des Âmes Raffinées s'était considérablement étendu. Cela n'importait guère.
+
+Ce qui le frappait, c'était ce pouvoir mystérieux venant de fusionner avec sa conscience. Wang Lin cultivait depuis plus de mille ans et avait rencontré d'innombrables forces, mais il n'en avait jamais connu une semblable.
 
 Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'innombrables images défilèrent dans son esprit. Sans exception, toutes montraient le Clan des Âmes Raffinées vénérant la statue avec un fanatisme inimaginable. C'était comme si, dès que la statue donnait un ordre, ils l'exécuteraient quel qu'en soit le prix ; même au péril de leur vie, sans le moindre regret.
 

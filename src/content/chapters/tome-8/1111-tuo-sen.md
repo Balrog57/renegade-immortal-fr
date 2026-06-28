@@ -18,7 +18,9 @@ Un homme d'âge moyen, qui venait de s'acheter une cruche de vin, la secoua avan
 
 Les yeux du vieux Ceng s'écarquillèrent alors qu'il tirait sur sa pipe et renifla : « Balivernes ! Le vin de ma famille Ceng... »
 
-Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis des millénaires. On raconte même qu'il avait captivé un immortel. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
+Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis des millénaires. On raconte même qu'il avait captivé un immortel.
+
+Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
 
 Le vieux Ceng tira une grande bouffée de sa pipe et grommela : « Que sait un petit morveux ? Le vin de ma famille Ceng a bel et bien été bu par un céleste pendant plus de soixante ans, il y a mille ans ! »
 
@@ -48,7 +50,9 @@ L'expression de Zhou Wutai était sombre. Très peu des cultivateurs survolant l
 
 Heureusement, bien que ces cultivateurs appartenaient à de nombreuses factions différentes, aucune n'importuna les locaux. Tous fonçaient vers la Mer des Démons.
 
-Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense ; à cet instant, la planète entière fut plongée dans l'obscurité. Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
+Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense ; à cet instant, la planète entière fut plongée dans l'obscurité.
+
+Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 

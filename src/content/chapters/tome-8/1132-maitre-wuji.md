@@ -14,7 +14,9 @@ Par le passé, sur la planète Suzaku, Wang Lin avait rencontré une personne po
 
 Alors que les grondements du dragon de sang résonnaient, la puissance temporelle émanant de son corps décupla. Elle était bien plus puissante qu'un simple domaine ; elle était devenue une loi ! Cette loi avait été instaurée par le dragon de sang qui utilisait ce sortilège !
 
-La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Allheaven s'y trouvait ; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon. Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
+La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Allheaven s'y trouvait ; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon.
+
+Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
 
 Son corps se mit à trembler de manière incontrôlable, comme si une énergie glaciale s'était infiltrée en lui. Des rides apparurent sur sa peau, se superposant rapidement les unes aux autres. Il ressentit une fatigue extrême et sa cultivation sembla stagner.
 
@@ -28,7 +30,9 @@ Ce qu'il vit en dernier fut sa main droite, celle qu'il avait utilisée pour se 
 
 « Ceci... » Le corps du jeune homme trembla davantage lorsqu'il porta la main à son visage. Il ouvrit la bouche pour laisser échapper un cri de terreur, mais... ce son fut étouffé en lui, sans jamais pouvoir voir le jour.
 
-Ses yeux perdirent toute vitalité. Son corps vieillit à une vitesse fulgurante sous les yeux de ses compagnons. Ses cheveux tombèrent, ses dents pourrirent et ses os se désintégrèrent, jusqu'à ce que son enveloppe charnelle ne puisse plus soutenir sa peau. Son corps s'effondra en un tas de poussière alors qu'il mourait... il mourut de vieillesse...
+Ses yeux perdirent toute vitalité. Son corps vieillit à une vitesse fulgurante sous les yeux de ses compagnons.
+
+Ses cheveux tombèrent, ses dents pourrirent et ses os se désintégrèrent, jusqu'à ce que son enveloppe charnelle ne puisse plus soutenir sa peau. Son corps s'effondra en un tas de poussière alors qu'il mourait... il mourut de vieillesse...
 
 Cette scène étrange plongea les cultivateurs environnants dans un silence total, tant cela dépassait leur imagination. Cependant, le temps était impitoyable ; ils n'eurent pas le temps de réfléchir avant qu'une femme parmi eux ne montre elle aussi des signes de vieillissement. Bientôt, ce vieillissement sembla devenir contagieux, et tous les cultivateurs commencèrent à présenter les mêmes symptômes.
 

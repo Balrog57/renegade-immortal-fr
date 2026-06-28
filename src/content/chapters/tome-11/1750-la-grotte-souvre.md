@@ -14,11 +14,15 @@ Chaque recoin du Royaume Extérieur était enveloppé par le brouillard. Une pre
 
 Sous cette pression, tous les cultivateurs de l'Ancien Système Stellaire tremblèrent violemment, désemparés face à ce qui se produisait. Le rugissement provenant du ciel ressemblait à la fin du monde, exerçant une force écrasante qui provoquait une sensation d'étouffement chez les mortels.
 
-Les innombrables bêtes féroces ressentaient la même chose. Quelle que soit leur puissance, elles tremblaient toutes. Bien que leurs héritages se soient dissipés, les souvenirs enfouis au plus profond de leurs âmes refaisaient lentement surface. Ces souvenirs étaient une peur des cieux laissée par leurs ancêtres. Cela n'aurait normalement jamais dû arriver, mais ils n'avaient désormais plus le choix !
+Les innombrables bêtes féroces ressentaient la même chose. Quelle que soit leur puissance, elles tremblaient toutes. Bien que leurs héritages se soient dissipés, les souvenirs enfouis au plus profond de leurs âmes refaisaient lentement surface.
+
+Ces souvenirs étaient une peur des cieux laissée par leurs ancêtres. Cela n'aurait normalement jamais dû arriver, mais ils n'avaient désormais plus le choix !
 
 Alors que l'Ancien Système Stellaire changeait radicalement, le brouillard devenait de plus en plus dense. Bientôt, il obstrua tout et occupa l'intégralité du système stellaire. Cette brume était apparue si soudainement qu'elle ne laissait aucun temps pour réagir.
 
-À ce moment précis, quelque part dans l'Ancien Système Stellaire, le système trembla et une grande quantité de roches apparut de nulle part. Elles ressemblaient à de la pierre et se condensèrent rapidement en une plaque de schiste. La forme de cette plaque était irrégulière, comme si elle faisait partie d'une structure effondrée. Elle surgit du vide, formée par la poussière, dégageant une aura antique. Une fois formée, la plaque s'élança vers le Royaume Intérieur !
+À ce moment précis, quelque part dans l'Ancien Système Stellaire, le système trembla et une grande quantité de roches apparut de nulle part. Elles ressemblaient à de la pierre et se condensèrent rapidement en une plaque de schiste.
+
+La forme de cette plaque était irrégulière, comme si elle faisait partie d'une structure effondrée. Elle surgit du vide, formée par la poussière, dégageant une aura antique. Une fois formée, la plaque s'élança vers le Royaume Intérieur !
 
 À cet instant, dans le Royaume Extérieur, le Souverain ouvrit soudainement les yeux. Son expression était empreinte de terreur. Il se leva précipitamment et fit un pas en avant pour apparaître dans le système stellaire embrumé. En regardant au loin, sa peur fut lentement remplacée par la stupéfaction !
 
@@ -44,11 +48,17 @@ Les expressions des quatre généraux changèrent brusquement. Ils peinaient à 
 
 « Qui a trouvé la troisième âme ? Serait-ce le Daoïste aux Sept Couleurs ? ! » Sans hésiter, les quatre se précipitèrent vers l'origine de l'aura !
 
-Une autre silhouette était pourtant plus rapide qu'eux. Tandis qu'ils avançaient, cette forme passa devant eux comme un éclair. Il s'agissait du Vieux Fantôme Zhan. En cet instant, son expression était sombre et trahissait une peur latente. S'il ne trouvait pas la troisième âme le premier et que le Daoïste aux Sept Couleurs l'emportait, ce qui l'attendait n'était qu'une dévoraison douloureuse suivie de la mort.
+Une autre silhouette était pourtant plus rapide qu'eux. Tandis qu'ils avançaient, cette forme passa devant eux comme un éclair. Il s'agissait du Vieux Fantôme Zhan. En cet instant, son expression était sombre et trahissait une peur latente.
 
-Malheureusement, le monde de la grotte était plongé dans le chaos ; même en déployant son Sens Divin, il ne pouvait voir loin. Il ignorait s'il s'agissait de Wang Lin ou du Daoïste aux Sept Couleurs ! Cependant, cette incertitude ne fit qu'accentuer sa terreur. Poussé par cette peur, il fonça comme un fou. À ce moment précis, la fuite n'était plus une option. Même si le Daoïste aux Sept Couleurs avait trouvé la troisième âme, il comptait riposter pendant que ce dernier la dévorerait !
+S'il ne trouvait pas la troisième âme le premier et que le Daoïste aux Sept Couleurs l'emportait, ce qui l'attendait n'était qu'une dévoraison douloureuse suivie de la mort.
 
-Alors que le Vieux Fantôme Zhan progressait, une ombre gigantesque apparut devant lui. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres. Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure encercla le Vieux Fantôme Zhan. C'était l'une des trois âmes, celle qui détenait toute la compréhension du Dao !
+Malheureusement, le monde de la grotte était plongé dans le chaos ; même en déployant son Sens Divin, il ne pouvait voir loin. Il ignorait s'il s'agissait de Wang Lin ou du Daoïste aux Sept Couleurs ! Cependant, cette incertitude ne fit qu'accentuer sa terreur.
+
+Poussé par cette peur, il fonça comme un fou. À ce moment précis, la fuite n'était plus une option. Même si le Daoïste aux Sept Couleurs avait trouvé la troisième âme, il comptait riposter pendant que ce dernier la dévorerait !
+
+Alors que le Vieux Fantôme Zhan progressait, une ombre gigantesque apparut devant lui. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres.
+
+Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure encercla le Vieux Fantôme Zhan. C'était l'une des trois âmes, celle qui détenait toute la compréhension du Dao !
 
 C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer ! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Allheaven sans hésiter !
 

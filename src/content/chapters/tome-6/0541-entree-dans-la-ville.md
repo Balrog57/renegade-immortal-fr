@@ -38,7 +38,9 @@ Wang Lin esquissa un léger sourire et caressa la bête avant de bondir sur son 
 
 Puis Wang Lin dit calmement : « Vous deux, montez aussi ! »
 
-Treize serra les dents. Il se dit secrètement qu'il ne pouvait pas se dédire devant l'ancêtre et sauta à son tour. Lorsqu'il atterrit, une aura glaciale pénétra directement par ses pieds. Sa technique de raffinement du corps n'eut aucun effet sur cette froideur, et il sentit tout son corps se crisper de douleur. S'il n'avait pas été aussi déterminé, il se serait déjà effondré.
+Treize serra les dents. Il se dit secrètement qu'il ne pouvait pas se dédire devant l'ancêtre et sauta à son tour. Lorsqu'il atterrit, une aura glaciale pénétra directement par ses pieds.
+
+Sa technique de raffinement du corps n'eut aucun effet sur cette froideur, et il sentit tout son corps se crisper de douleur. S'il n'avait pas été aussi déterminé, il se serait déjà effondré.
 
 Voyant Treize, Hu Pao ne voulut naturellement pas être en reste et sauta également. À son atterrissage, l'aura glaciale envahit lui aussi son corps.
 
@@ -62,7 +64,9 @@ Il y avait des tribus fortes et faibles, grandes et petites, et leur population 
 
 Après sept jours, la Cité du Démon Ancien apparut au loin. Lorsqu'ils furent à 50 kilomètres de la cité, Wang Lin rangea la bête moustique et lui, Treize et Hu Pao atterrirent sur le sol.
 
-Treize possédait un tempérament stable. Le plus loin qu'il ait jamais voyagé par le passé n'était qu'à quelques dizaines de milliers de kilomètres de sa tribu ; il se trouvait désormais à 15 millions de kilomètres. Jamais, même dans ses rêves les plus fous, il n'aurait imaginé venir un jour en un tel lieu. Pourtant, il ne s'autorisa qu'une légère pointe d'excitation avant de la réprimer promptement. Son visage resta impassible et ses yeux froids, ne laissant transparaître aucune émotion.
+Treize possédait un tempérament stable. Le plus loin qu'il ait jamais voyagé par le passé n'était qu'à quelques dizaines de milliers de kilomètres de sa tribu ; il se trouvait désormais à 15 millions de kilomètres.
+
+Jamais, même dans ses rêves les plus fous, il n'aurait imaginé venir un jour en un tel lieu. Pourtant, il ne s'autorisa qu'une légère pointe d'excitation avant de la réprimer promptement. Son visage resta impassible et ses yeux froids, ne laissant transparaître aucune émotion.
 
 Son expression était similaire à celle de Wang Lin. Il y a quatre ans, il n'en était pas ainsi. Son respect pour Wang Lin l'avait amené, sans qu'il s'en rende compte, à l'imiter.
 
@@ -70,7 +74,9 @@ C'était l'une des cités du Pays du Démon Céleste : la Cité du Démon Ancien
 
 Aux yeux de toutes ces tribus, la Cité du Démon Ancien détenait la puissance des cieux. C'était un lieu sacré, le rêve de chacun. Tout cela aurait pu affecter Treize autrefois, mais pour lui, Wang Lin était la puissance des cieux, la tribu était sa terre sacrée, et son seul rêve était d'obtenir la reconnaissance de Wang Lin !
 
-Quant à Hu Pao, il ne pouvait toujours pas égaler Treize. En voyant la Cité du Démon Ancien, il ne put s'empêcher de s'agenouiller pour l'adorer en silence. Après un instant, il reprit ses esprits et se redressa, affichant une expression de honte. En voyant le visage froid de Treize, exempt de toute l'excitation qu'il venait de ressentir, il eut l'impression d'avoir perdu la face. Il prit une grande inspiration, cracha vers la Cité du Démon Ancien, marmonna quelques mots et afficha un regard de mépris manifeste.
+Quant à Hu Pao, il ne pouvait toujours pas égaler Treize. En voyant la Cité du Démon Ancien, il ne put s'empêcher de s'agenouiller pour l'adorer en silence. Après un instant, il reprit ses esprits et se redressa, affichant une expression de honte.
+
+En voyant le visage froid de Treize, exempt de toute l'excitation qu'il venait de ressentir, il eut l'impression d'avoir perdu la face. Il prit une grande inspiration, cracha vers la Cité du Démon Ancien, marmonna quelques mots et afficha un regard de mépris manifeste.
 
 Wang Lin sourit devant les réactions de Treize et de Hu Pao, puis il fit un pas en avant et glissa comme une nuée de fumée. Treize et Hu Pao le suivirent rapidement. Les trois parcoururent les 50 kilomètres restants et arrivèrent devant la Cité du Démon Ancien !
 
@@ -86,7 +92,9 @@ En revanche, Treize et Hu Pao qui le suivaient étaient imprégnés d'énergie s
 
 Alors que Wang Lin se rapprochait, l'un des soldats en armure noire s'avança. Il pointa sa lance vers Wang Lin et dit froidement : « Reculez ! »
 
-« Impudence ! » Sans attendre que Wang Lin ne parle, Treize fit un pas en avant et envoya un coup de poing. Dans son esprit, quiconque osait manquer de respect à Wang Lin était son ennemi. Il ne se retint absolument pas sur ce coup ; la technique de raffinement du corps du Clan du Démon Géant rendait sa chair aussi dure que le métal. Ce poing fut comme une épée volante brisant le mur du son. Même l'espace autour de son poing sembla se courber en fonçant vers le soldat démon.
+« Impudence ! » Sans attendre que Wang Lin ne parle, Treize fit un pas en avant et envoya un coup de poing. Dans son esprit, quiconque osait manquer de respect à Wang Lin était son ennemi.
+
+Il ne se retint absolument pas sur ce coup ; la technique de raffinement du corps du Clan du Démon Géant rendait sa chair aussi dure que le métal. Ce poing fut comme une épée volante brisant le mur du son. Même l'espace autour de son poing sembla se courber en fonçant vers le soldat démon.
 
 L'expression du soldat changea radicalement. À ses yeux, le coup de Treize arrivait comme une météorite et contenait une puissance mystérieuse. Il voulut esquiver, mais sentit quelque chose l'immobiliser. Il eut l'impression d'être sous l'eau, ses mouvements devenant d'une lenteur exaspérante.
 

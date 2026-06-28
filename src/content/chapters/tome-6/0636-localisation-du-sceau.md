@@ -42,7 +42,9 @@ Trente minutes passèrent avant que tous les fragments d'âmes ne reviennent ver
 
 « J'ai scrupuleusement vérifié toutes les fissures environnantes, et pourtant la présence de Zhou Yi m'échappe ! Cet Ancien Démon Bei Lou m'a-t-il vraiment trompé ? » Wang Lin agita ses manches, le regard froid, avant que ses yeux ne se plissent soudainement.
 
-« Erreur ! Si j'avais été Ling Tianhou, je ne scellerais pas quelqu'un dans un endroit aussi évident. Si j'étais Ling Tianhou... » Wang Lin se mit à réfléchir. Le brin d'énergie de l'épée de Ling Tianhou qu'il avait conservé parcourut son corps, lui permettant d'emprunter un fragment du domaine de Ling Tianhou.
+« Erreur ! Si j'avais été Ling Tianhou, je ne scellerais pas quelqu'un dans un endroit aussi évident. Si j'étais Ling Tianhou... » Wang Lin se mit à réfléchir.
+
+Le brin d'énergie de l'épée de Ling Tianhou qu'il avait conservé parcourut son corps, lui permettant d'emprunter un fragment du domaine de Ling Tianhou.
 
 L'expression pensive de Wang Lin s'effaça pour laisser place à un regard tyrannique.
 
@@ -50,7 +52,9 @@ Le domaine de Ling Tianhou était celui de la tyrannie : utiliser sa propre natu
 
 « Si je voulais sceller un esprit d'épée qui me hante... je ne me contenterais pas de le sceller, je le forcerais à céder à ma tyrannie. S'il refusait, je le scellerais pour mille ans. S'il résistait encore, je le scellerais pour dix mille ans. Et s'il persistait, je détruirais son esprit pour le raffiner en un trésor afin de lui faire entendre raison ! »
 
-« Je ne choisirais pas ces fissures manifestes. Si j'avais choisi cet endroit, c'est qu'il y avait une raison... Si je devais sceller quelque chose, je choisirais... » Son regard tyrannique était si puissant qu'il semblait dominer le monde. Il balaya chaque fissure du regard.
+« Je ne choisirais pas ces fissures manifestes. Si j'avais choisi cet endroit, c'est qu'il y avait une raison...
+
+Si je devais sceller quelque chose, je choisirais... » Son regard tyrannique était si puissant qu'il semblait dominer le monde. Il balaya chaque fissure du regard.
 
 Progressivement, cette aura impérieuse disparut de ses yeux et de grosses gouttes de sueur s'écoulèrent sur son front. Le regard tyrannique s'évanouit totalement du corps de Wang Lin, laissant son visage livide.
 

@@ -28,7 +28,9 @@ Le ciel changea de couleur et les nuages se dispersèrent. L'essence de la foudr
 
 C'était la deuxième essence de Wang Lin !
 
-« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre ! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris ! Cette essence de foudre est complète, elle aussi ! Elle est à un stade où elle peut défier la Porte du Vide ! Comment a-t-il pu la cultiver ? Aurait-il vraiment dévoré un ancien dragon de la foudre ? » Le vieil homme prit une profonde inspiration.
+« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre ! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris !
+
+Cette essence de foudre est complète, elle aussi ! Elle est à un stade où elle peut défier la Porte du Vide ! Comment a-t-il pu la cultiver ? Aurait-il vraiment dévoré un ancien dragon de la foudre ? » Le vieil homme prit une profonde inspiration.
 
 Cependant, à cet instant précis, une autre lueur jaillit du front de Wang Lin. Les yeux du vieil homme s'écarquillèrent, révélant une pointe d'excitation.
 
@@ -84,7 +86,9 @@ Le vieil homme sourit : « Pour les détails, tu les connaîtras une fois que tu
 
 « Pourquoi n'as-tu pas accepté le défi du Maître Simo ? Les membres de mon clan ne craignent pas les combats ! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire ! La sélection des Anciens Déchus n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchus !
 
-« Tu es un membre de mon clan, peu importe que tu viennes du Royaume Intérieur ou non ! Si tu quittes cet endroit, je ne pourrai pas te protéger, mais tant que tu seras ici, je veux voir qui oserait t'approcher ! Rappelle-toi, mon clan doit être tyrannique et partial. Nous devons l'être pour avoir une place dans ce vieux monde chaotique. C'est ainsi que l'on impose le respect et la crainte ! Au lieu de te cacher, montre ta puissance ! Ce Maître Simo est ta cible. Qu'importe qu'il soit un cultivateur de la troisième étape ? Utilise-le pour démontrer ta force ! »
+« Tu es un membre de mon clan, peu importe que tu viennes du Royaume Intérieur ou non ! Si tu quittes cet endroit, je ne pourrai pas te protéger, mais tant que tu seras ici, je veux voir qui oserait t'approcher ! Rappelle-toi, mon clan doit être tyrannique et partial.
+
+Nous devons l'être pour avoir une place dans ce vieux monde chaotique. C'est ainsi que l'on impose le respect et la crainte ! Au lieu de te cacher, montre ta puissance ! Ce Maître Simo est ta cible. Qu'importe qu'il soit un cultivateur de la troisième étape ? Utilise-le pour démontrer ta force ! »
 
 Les paroles du vieil homme étaient d'une tyrannie absolue. Wang Lin réfléchit un instant avant de hocher la tête, une lueur froide dans le regard.
 

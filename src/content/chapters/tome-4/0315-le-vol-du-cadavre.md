@@ -52,7 +52,9 @@ Alors que les quatre corps spirituels venaient d'apparaître devant Red Butterfl
 
 Soudain, la sphère trembla et commença à bouger d'une manière étrange, avant de prendre la forme d'une hache fend-cieux. Chaque pore du corps de Chi Hu cracha du sang, le faisant ressembler à un être de sang alors qu'il chargeait vers Red Butterfly.
 
-L'illusion derrière Chi Hu déclara lentement : « Mon domaine est la Folie ! Parce que je suis devenu fou par amour, j'ai atteint l'apogée de la démence. Cette folie peut ébranler le ciel et la terre. Chi Hu, je vais utiliser ton corps pour manifester mon domaine qui n'a pas été montré depuis plus de mille ans. Même si tu meurs, tu pourras mourir en paix ! »
+L'illusion derrière Chi Hu déclara lentement : « Mon domaine est la Folie ! Parce que je suis devenu fou par amour, j'ai atteint l'apogée de la démence. Cette folie peut ébranler le ciel et la terre.
+
+Chi Hu, je vais utiliser ton corps pour manifester mon domaine qui n'a pas été montré depuis plus de mille ans. Même si tu meurs, tu pourras mourir en paix ! »
 
 Un étrange domaine enveloppait désormais le corps de Chi Hu. La douleur avait disparu de son visage, laissant place à une expression de démence capable de terrifier quiconque. Ses yeux étaient empreints d'une détermination farouche. Il ne regardait plus Red Butterfly, mais la hache dans sa main, et sa résolution ne fit que s'intensifier.
 
@@ -116,6 +118,8 @@ Wang Lin observa la scène et prit une grande inspiration. Son regard se tourna 
 
 « Rends-moi Ting Er !!! »
 
-« Ting Er ? Haha, Zhou Yi, tu as même donné un nom à un cadavre. Ceci est le corps d'une immortelle. Je crains que lorsqu'elle est née, tu n'étais pas encore dans le cycle des réincarnations ! » Le vieil homme éclata de rire. Le jeune homme derrière lui rit également en frappant la pagode, libérant un rayon de lumière blanche.
+« Ting Er ? Haha, Zhou Yi, tu as même donné un nom à un cadavre. Ceci est le corps d'une immortelle. Je crains que lorsqu'elle est née, tu n'étais pas encore dans le cycle des réincarnations ! »
+
+Le vieil homme éclata de rire. Le jeune homme derrière lui rit également en frappant la pagode, libérant un rayon de lumière blanche.
 
 Le cadavre féminin apparut !

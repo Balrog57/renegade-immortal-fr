@@ -10,7 +10,9 @@ Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant l
 
 L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Très bien, votre attitude est tout aussi étrange. Si vous avez quelque chose à dire, dites-le. »
 
-L'All-Seer sourit. « Au cours des innombrables années où l'Alliance de Cultivation a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
+L'All-Seer sourit. « Au cours des innombrables années où l'Alliance de Cultivation a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur.
+
+Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
 
 L'All-Seer poursuivit son enseignement du Dao, mais presque tous les auditeurs restaient hantés par ce « lui » dont il avait parlé. Cependant, l'All-Seer reprit sa leçon sans jamais évoquer l'homme à nouveau. L'enseignement dura trois jours.
 
@@ -34,7 +36,9 @@ Wang Lin n'avait vu cela qu'une seule fois auparavant, dans le Royaume Céleste,
 
 L'expression de l'All-Seer resta sereine tandis qu'il scrutait le lointain.
 
-À cet instant, d'innombrables épées volantes surgirent. Elles dégageaient toutes l'aura glaciale d'une lame tranchante en chargeant vers ce lieu. De nombreux cultivateurs, trop faibles pour faire face, s'écartèrent sans oser entraver leur passage. Un large passage se creusa soudainement au milieu de la foule.
+À cet instant, d'innombrables épées volantes surgirent. Elles dégageaient toutes l'aura glaciale d'une lame tranchante en chargeant vers ce lieu.
+
+De nombreux cultivateurs, trop faibles pour faire face, s'écartèrent sans oser entraver leur passage. Un large passage se creusa soudainement au milieu de la foule.
 
 « Vieux All-Seer, comment aurais-je pu manquer ta célébration d'anniversaire ?! » Une voix arrogante résonna entre ciel et terre. Simultanément, les épées volantes s'écartèrent pour révéler un vieil homme vêtu d'une robe verte.
 
@@ -50,7 +54,9 @@ Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de cell
 
 Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte : « Disciples ! Sortez et saluez le senior All-Seer ! »
 
-À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en gaz. À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
+À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en gaz.
+
+À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
 
 Simultanément, d'innombrables paires d'yeux glacials apparurent une à une au sein de cette brume. Lorsque celle-ci se dissipa, d'innombrables disciples se tenaient soudainement sur des épées volantes derrière le Saint de l'Épée Ling Tianhou. Ces disciples étaient vêtus de noir et portaient chacun une épée antique dans le dos. Leurs regards étaient aussi perçants que la foudre alors qu'ils fixaient l'All-Seer.
 
@@ -66,13 +72,17 @@ L'All-Seer sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utilise
 
 Les yeux de Ling Tianhou devinrent froids et il sourit : « C'est précisément mon intention ! »
 
-L'All-Seer sourit à nouveau, leva sa main droite pour former un sceau et déclara : « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidage Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, un puissant sort descendra des cieux ; je vous prie donc d'être extrêmement attentifs ! »
+L'All-Seer sourit à nouveau, leva sa main droite pour former un sceau et déclara : « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidage Céleste.
+
+Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, un puissant sort descendra des cieux ; je vous prie donc d'être extrêmement attentifs ! »
 
 Le Saint de l'Épée Ling Tianhou laissa échapper un renâclement froid, le regard glacial fixé sur l'All-Seer.
 
 L'All-Seer sourit doucement tandis que sa main droite traçait un autre sceau, créant une lueur rouge. Il leva ensuite sa main gauche pour former un second sceau, et la lumière rouge devint soudainement plus éclatante encore. L'expression de l'All-Seer était sereine lorsqu'il pointa le vide. La lueur rouge s'en échappa brusquement pour foncer vers l'horizon.
 
-« Sort de Guidage Céleste de qualité moyenne ! » La voix de l'All-Seer semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge. Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
+« Sort de Guidage Céleste de qualité moyenne ! » La voix de l'All-Seer semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge.
+
+Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
 
 Le ciel ressemblait désormais à une mer déchaînée, et une pression céleste descendit silencieusement d'en haut. Sous la force de cette pression, les visages de nombreux cultivateurs environnants pâlirent. Ils se précipitèrent au sol pour s'asseoir en position du lotus afin de cultiver.
 

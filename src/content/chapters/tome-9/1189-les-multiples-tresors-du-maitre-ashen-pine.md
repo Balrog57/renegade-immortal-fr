@@ -24,7 +24,9 @@ Ils ignoraient quelle distance ils avaient parcourue. Au quatrième jour, une pe
 
 Une couche de lumière noire entourait la montagne, obstruant tout passage. Le Maître Ashen Pine regarda la vieille femme en vert et dit avec sincérité : « Confrère Cultivateur Zhao, mes connaissances en matière de restrictions ne sauraient égaler les vôtres. Je vous prie de m'aider à briser cette barrière ! Cette montagne est le lieu où sont scellées d'innombrables âmes de bêtes. Dès que vous l'aurez ouverte, vous pourrez obtenir ces âmes. »
 
-La vieille femme en vert observa la barrière de lumière noire. Elle s'en approcha et posa sa main droite sur l'obstacle. Après un long moment, son expression se crispa : « C'est une restriction temporelle. Plus elle subsiste, plus elle gagne en puissance. Je ne parviens pas à déterminer son ancienneté, alors ne parlons même pas de la briser ! Si j'avais su qu'une telle restriction se trouvait ici, je ne serais jamais venue ! »
+La vieille femme en vert observa la barrière de lumière noire. Elle s'en approcha et posa sa main droite sur l'obstacle. Après un long moment, son expression se crispa : « C'est une restriction temporelle.
+
+Plus elle subsiste, plus elle gagne en puissance. Je ne parviens pas à déterminer son ancienneté, alors ne parlons même pas de la briser ! Si j'avais su qu'une telle restriction se trouvait ici, je ne serais jamais venue ! »
 
 Le Maître Ashen Pine sourit et tendit la main. Un espace de stockage s'ouvrit et un objet en sortit : une aiguille noire gravée d'une marque spiralée. Dès qu'il l'eut extraite, une pression écrasante commença à se propager.
 
@@ -80,7 +82,9 @@ Le fracas secoua le monde et repoussa la brume dans toutes les directions. Alors
 
 Le tumulte fit trembler la terre et les fluctuations de la barrière devinrent plus intenses encore. De nouvelles ondulations surgirent, mais la protection ne fut pas endommagée ; au contraire, une force de rebond se manifesta, faisant s'effondrer la première aiguille !
 
-L'expression de la femme changea. Sans qu'un ordre ne soit donné, le Maître Ashen Pine lança le cristal. À proximité de la barrière, l'objet explosa ! Ce cristal recelait une puissance inouïe et se mua instantanément en une tempête titanesque. La belle femme serra les dents et, d'un nouveau sceau appliqué entre ses sourcils, libéra plus de gaz noir. Son apparence changea encore : elle devint une magnifique jeune femme d'environ vingt ans !
+L'expression de la femme changea. Sans qu'un ordre ne soit donné, le Maître Ashen Pine lança le cristal. À proximité de la barrière, l'objet explosa ! Ce cristal recelait une puissance inouïe et se mua instantanément en une tempête titanesque.
+
+La belle femme serra les dents et, d'un nouveau sceau appliqué entre ses sourcils, libéra plus de gaz noir. Son apparence changea encore : elle devint une magnifique jeune femme d'environ vingt ans !
 
 Le gaz noir sous son contrôle se mua en une multitude de restrictions qui fusionnèrent avec la force destructrice du cristal. Elle dirigea cette puissance dévastatrice contre la restriction de lumière noire ! Un nouveau fracas retentit, accompagné de craquements : une fissure apparut sur la barrière. Cependant, elle se referma rapidement, semblant vouloir restaurer son intégrité.
 

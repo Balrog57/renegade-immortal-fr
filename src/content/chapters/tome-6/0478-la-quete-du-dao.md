@@ -24,7 +24,9 @@ Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une
 
 L'expression de Wang Lin devint très sérieuse. Il ne répondit pas immédiatement, mais demanda : « Quelles sont ces trois épreuves ? »
 
-« La première est l'épreuve Humaine ; elle teste ton cœur de Dao. La deuxième est l'épreuve Terrestre ; elle teste ta cultivation. La troisième est l'épreuve Céleste ; elle teste ton domaine. Ce n'est qu'en surmontant ces trois épreuves que tu pourras entrer dans le Sect de la Destinée Céleste. Oses-tu ? » La voix demeurait aussi neutre que devant, sans la moindre trace d'agacement.
+« La première est l'épreuve Humaine ; elle teste ton cœur de Dao. La deuxième est l'épreuve Terrestre ; elle teste ta cultivation. La troisième est l'épreuve Céleste ; elle teste ton domaine.
+
+Ce n'est qu'en surmontant ces trois épreuves que tu pourras entrer dans le Sect de la Destinée Céleste. Oses-tu ? » La voix demeurait aussi neutre que devant, sans la moindre trace d'agacement.
 
 Une fois la parole achevée, des dizaines de milliers de rayons de lumière convergèrent pour former un anneau ovale devant Wang Lin.
 
@@ -34,7 +36,9 @@ Au sommet d'une haute montagne du Sect de la Destinée Céleste trônait un arbr
 
 Sous cet arbre se trouvaient trois individus.
 
-À la tête du groupe se tenait un vieil homme à l'expression sereine, dont les cheveux blancs flottaient au gré du vent. Pourtant, il ne dégageait aucune sensation de vieillesse ; il exsudait plutôt une aura transcendantale. Ses yeux brillaient d'un éclat supérieur à celui des jeunes hommes dans la force de l'âge. En particulier, ses sourcils ressemblaient à deux dragons blancs sur son visage, s'animant doucement au souffle du vent. Son regard porté vers le lointain trahissait une pointe de sagesse séculaire.
+À la tête du groupe se tenait un vieil homme à l'expression sereine, dont les cheveux blancs flottaient au gré du vent. Pourtant, il ne dégageait aucune sensation de vieillesse ; il exsudait plutôt une aura transcendantale.
+
+Ses yeux brillaient d'un éclat supérieur à celui des jeunes hommes dans la force de l'âge. En particulier, ses sourcils ressemblaient à deux dragons blancs sur son visage, s'animant doucement au souffle du vent. Son regard porté vers le lointain trahissait une pointe de sagesse séculaire.
 
 Deux personnes se tenaient respectueusement derrière lui, semblant avoir environ trente ans. L'une d'elles souriait avec une bienveillance manifeste, tandis que l'autre affichait un visage sérieux, les yeux froids et l'allure impénétrable.
 

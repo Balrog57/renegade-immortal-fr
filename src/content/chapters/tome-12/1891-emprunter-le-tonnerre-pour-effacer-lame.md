@@ -36,11 +36,15 @@ Le Maître de la Secte du Dao Démoniaque reprit lentement : « Pour le capturer
 
 « *Tousse*... À l'avenir, le Continent du Démon Vert n'aura plus qu'une seule secte : la Secte du Dao Démoniaque ! » Le vieillard à la robe verte fut pris d'une violente quinte de toux qui dura un long moment avant qu'il ne puisse reprendre la parole.
 
-« Soit. Puisque Ji Si en a donné sa parole, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit ! » Le Maître de la Secte du Dao Démoniaque rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
+« Soit. Puisque Ji Si en a donné sa parole, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit ! »
+
+Le Maître de la Secte du Dao Démoniaque rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
 
 Wang Lin fut soudainement projeté vers le scorpion, fendant l'air dans un hurlement. À son arrivée, un vortex gigantesque apparut sur le dos de la créature et l'aspira.
 
-« Il possède de nombreuses essences en lui. Au total huit, et l'une d'entre elles a déjà formé un véritable corps d'essence ! Parmi ces huit, l'une est identique à la mienne : l'essence du tonnerre ! J'utiliserai cette essence comme lien pour anéantir son esprit et ses souvenirs ! » Le Maître de la Secte du Dao Démoniaque s'assit, ferma les yeux et resta parfaitement immobile.
+« Il possède de nombreuses essences en lui. Au total huit, et l'une d'entre elles a déjà formé un véritable corps d'essence ! Parmi ces huit, l'une est identique à la mienne : l'essence du tonnerre !
+
+J'utiliserai cette essence comme lien pour anéantir son esprit et ses souvenirs ! » Le Maître de la Secte du Dao Démoniaque s'assit, ferma les yeux et resta parfaitement immobile.
 
 Le vieillard en robe verte se détourna et pénétra dans l'édifice. Ses quintes de toux s'estompèrent tandis que les deux gardes, semblables à des Messagers du Démon Vert, disparurent dans le Scorpion sans dire un mot.
 
@@ -64,7 +68,9 @@ Un jour, au cours du quatrième mois, le Maître de la Secte ne put plus conteni
 
 Il se sentait impuissant : malgré l'afflux massif de son essence dans le corps de Wang Lin, celle-ci ne parvenait pas à remplacer l'essence originelle pour imposer sa volonté. C'était un phénomène aberrant, comme si un vortex au cœur du corps de Wang Lin dévorait sa volonté. La vérité confirmait ses soupçons : chaque fois que la Perle Défiant le Ciel tournait, en plus de protéger Wang Lin, elle absorbait une partie des entités étrangères présentes dans son corps.
 
-« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, issues du Continent de l'Empereur du Tonnerre. J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
+« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, issues du Continent de l'Empereur du Tonnerre.
+
+J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
 
 Tandis que la voix résonnait, un éclair gris jaillit. Le scorpion brilla intensément et un rayon de lumière fila vers le Maître de la Secte du Dao Démoniaque. La lueur se condensa instantanément pour devenir une perle de la taille d'un poing, grouillante d'innombrables éclairs. À l'intérieur de la perle, on pouvait distinguer l'ombre d'un char et la silhouette vague d'un être qui ressemblait à l'Empereur du Tonnerre !
 

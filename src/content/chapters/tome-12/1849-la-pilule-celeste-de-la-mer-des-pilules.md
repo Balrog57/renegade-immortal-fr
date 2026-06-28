@@ -46,15 +46,21 @@ Soudain, Wang Lin leva sa main droite et les pointa du doigt !
 
 D'un seul mot, d'innombrables filaments remplirent le monde et enveloppèrent la femme et le jeune homme. Leurs corps tremblèrent, totalement immobilisés par Wang Lin. La peur se figea sur le visage du jeune homme, tandis que la main gauche de la femme, à moins d'un pouce de la boussole, resta pétrifiée en plein air !
 
-Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Nul n'était digne de pitié dans son cœur lorsqu'il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle. Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
+Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Nul n'était digne de pitié dans son cœur lorsqu'il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle.
+
+Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
 
 C'est à ce moment qu'un grondement de tonnerre résonna : les deuxième et troisième drapeaux venaient d'être brisés par le bras gauche de Yi Si !
 
 Tout l'encre noire située dans un rayon de 10 000 pieds se rétracta frénétiquement pour redevenir une simple goutte devant Wang Lin, qu'il avala aussitôt.
 
-Le carnage prit fin ; des centaines de cultivateurs étaient morts. La femme et le jeune homme nommé Zhao avaient également péri. Même les trois grands drapeaux étaient détruits ! Le visage de Wang Lin était légèrement pâle. Désirant clore l'affaire rapidement, il rangea Yi Si et disparut dans la mer.
+Le carnage prit fin ; des centaines de cultivateurs étaient morts. La femme et le jeune homme nommé Zhao avaient également péri.
 
-Sous la surface, Wang Lin chargea prestement. Tenant la boussole, il y projeta son sens divin. Ses yeux étaient injectés de sang alors que son essence de restriction s'y engouffrait. Il balaya l'empreinte du sens divin sur la boussole pour en prendre le contrôle total. Si n'importe qui d'autre avait tenté cela, il aurait échoué, mais Wang Lin possédait l'essence de restriction nécessaire pour y parvenir.
+Même les trois grands drapeaux étaient détruits ! Le visage de Wang Lin était légèrement pâle. Désirant clore l'affaire rapidement, il rangea Yi Si et disparut dans la mer.
+
+Sous la surface, Wang Lin chargea prestement. Tenant la boussole, il y projeta son sens divin. Ses yeux étaient injectés de sang alors que son essence de restriction s'y engouffrait.
+
+Il balaya l'empreinte du sens divin sur la boussole pour en prendre le contrôle total. Si n'importe qui d'autre avait tenté cela, il aurait échoué, mais Wang Lin possédait l'essence de restriction nécessaire pour y parvenir.
 
 La boussole en main, il prit le contrôle des restrictions surplombant la Mer des Pilules. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer des Pilules ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant ! Les autres points se trouvaient au-dessus de la surface ; il était évident qu'il était peu pratique de rester sous l'eau pendant que Void Cloud effectuait sa cultivation.
 

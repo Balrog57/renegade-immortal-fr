@@ -22,13 +22,17 @@ Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigean
 
 « Je crains que Suzaku n'ait atteint sa fin... » Wang Lin leva la tête et regarda au loin, vers la direction où se trouvait le pays Suzaku.
 
-Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre des centaines d'arènes. Sur chaque arène, des dizaines de combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but : rejoindre la secte intérieure.
+Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre des centaines d'arènes. Sur chaque arène, des dizaines de combats se déroulaient par jour.
+
+Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but : rejoindre la secte intérieure.
 
 Il n'y avait qu'une seule règle : gagner. Ils se souciaient peu de la vie ou de la mort des autres disciples. Si vous en aviez la capacité, vous pouviez tous les tuer sans que cela ne les dérange.
 
 Une rumeur circulait même selon laquelle plus l'on tuait, plus les chances d'intégrer la secte intérieure étaient grandes. Si quelqu'un éliminait tous ses adversaires, ses chances de réussite seraient incommensurables.
 
-Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un démon s'était frayé un chemin à travers le tournoi en tuant tout sur son passage. Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
+Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un démon s'était frayé un chemin à travers le tournoi en tuant tout sur son passage.
+
+Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
 
 À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves. Les perdants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition.
 
@@ -36,7 +40,9 @@ Nul ne savait combien de disciples de la secte extérieure étaient morts au fil
 
 Chaque jour, un grand nombre de disciples mouraient. Les cent arènes de combat étaient inondées de sang. Wang Lin observa attentivement ces derniers jours : chaque fois que quelqu'un mourait, son âme était absorbée par l'arène avant de disparaître.
 
-Le jour du combat de Wang Lin, il plana doucement vers l'arène. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène. Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de cultivation était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria : « Numéro 8972, combat ! »
+Le jour du combat de Wang Lin, il plana doucement vers l'arène. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène.
+
+Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de cultivation était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria : « Numéro 8972, combat ! »
 
 Un cri monta des disciples environnants, puis un disciple court et gras bondit de la foule telle une boule de viande pour atterrir sur l'arène. Sans dire un mot, il forma un sceau de la main ; des boules de feu apparurent et s'abattirent sur Wang Lin comme une pluie incandescente.
 
@@ -52,9 +58,13 @@ Parmi elles se trouvait un vieil homme aux cheveux gris au stade avancé de la F
 
 En voyant cette technique, Wang Lin pensa immédiatement au Royaume du Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume du Ji.
 
-« Un sort de la mort ? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume du Ji avait été confondu avec un tel sort ; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de cultivation, c'était la première fois qu'il en voyait un.
+« Un sort de la mort ? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume du Ji avait été confondu avec un tel sort ; c'est ainsi qu'il l'avait appris.
 
-La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût qu'au stade initial de la Formation du Noyau, il se comportait comme une bête sauvage. Il était capable de détecter le flux d'énergie spirituelle avant même que l'adversaire n'utilise une technique, lui permettant d'anticiper ses mouvements. Contre un adversaire plus fort, cela ne servirait pas à grand-chose, mais contre des gens de même niveau, c'était un avantage céleste. Wang Lin ne put s'empêcher d'apprécier ce talent ; il eut même l'envie de le prendre comme disciple, avant de chasser rapidement cette idée.
+Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de cultivation, c'était la première fois qu'il en voyait un.
+
+La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût qu'au stade initial de la Formation du Noyau, il se comportait comme une bête sauvage. Il était capable de détecter le flux d'énergie spirituelle avant même que l'adversaire n'utilise une technique, lui permettant d'anticiper ses mouvements.
+
+Contre un adversaire plus fort, cela ne servirait pas à grand-chose, mais contre des gens de même niveau, c'était un avantage céleste. Wang Lin ne put s'empêcher d'apprécier ce talent ; il eut même l'envie de le prendre comme disciple, avant de chasser rapidement cette idée.
 
 La troisième personne était familière à Wang Lin : c'était le cultivateur au visage de boucher de la grotte 743. Il possédait un trésor talisman qui avait tué d'innombrables personnes ; tous ses adversaires succombaient sous l'effet du talisman.
 
@@ -80,7 +90,9 @@ L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune h
 
 À ce stade, il ne restait plus que deux prétendants pour cette compétition de la secte extérieure : Wang Lin et le vieil homme nommé Sima. Le combat entre les deux débuta le lendemain.
 
-Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte du Raffinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume du Ji.
+Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante.
+
+De plus, le drapeau de l'âme de la Secte du Raffinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume du Ji.
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot : « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 

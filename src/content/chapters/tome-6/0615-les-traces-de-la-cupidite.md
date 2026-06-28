@@ -34,9 +34,15 @@ S'il pouvait totalement séparer la perle défiant le ciel de son corps, Wang Li
 
 Les sourcils de Wang Lin se contractèrent violemment.
 
-« D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Cultivation s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps ralentit à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Quoi qu'on en dise, cette perle n'est qu'un objet ordinaire. Bien qu'elle puisse ralentir le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
+« D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Cultivation s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps ralentit à l'intérieur, elle n'a presque aucune autre capacité.
 
-Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même : « À l'origine, il y avait cinq disciples du Secte de l'Épée Da Lou, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel du Secte de l'Épée Da Lou, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul survivant dans le Pays des Démons Célestes. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
+Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Quoi qu'on en dise, cette perle n'est qu'un objet ordinaire. Bien qu'elle puisse ralentir le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
+
+Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même : « À l'origine, il y avait cinq disciples du Secte de l'Épée Da Lou, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel du Secte de l'Épée Da Lou, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait.
+
+Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul survivant dans le Pays des Démons Célestes.
+
+Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
 
 « Qu'a donc découvert ce Cupidité... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -80,7 +86,9 @@ Cette cultivation incessante permit au stade initial Ascendant de Wang Lin de de
 
 « Utiliser le massacre pour nourrir l'énergie de la boucherie... J'aimerais voir combien de parcelles seront créées une fois cette guerre achevée ! » À l'intérieur de la tour, Wang Lin ouvrit les yeux. Son regard brilla comme un éclair alors qu'une force puissante se propageait depuis la tour.
 
-Une zone vide d'un rayon de cinq kilomètres entourait la tour. Au-delà, s'étendait une multitude de bâtiments. De loin, ces constructions semblaient s'étirer sur des centaines de kilomètres ! C'était le nouveau Clan de l'Affinement de l'Âme. Chaque mois, les membres revenaient avec des prisonniers issus du Pays des Démons de Feu. Chaque mois, le clan grandissait !
+Une zone vide d'un rayon de cinq kilomètres entourait la tour. Au-delà, s'étendait une multitude de bâtiments. De loin, ces constructions semblaient s'étirer sur des centaines de kilomètres !
+
+C'était le nouveau Clan de l'Affinement de l'Âme. Chaque mois, les membres revenaient avec des prisonniers issus du Pays des Démons de Feu. Chaque mois, le clan grandissait !
 
 Wang Lin détourna son regard. Il frappa son sac de rangement et la sphère de restriction scellant Yao Xixue s'envola. Il serra le poing droit et la sphère vola en éclats. La silhouette de Yao Xixue apparut alors dans la tour. L'expression de Wang Lin était indifférente lorsqu'il demanda lentement : « Avez-vous pris votre décision ? »
 

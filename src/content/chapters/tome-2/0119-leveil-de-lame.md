@@ -58,7 +58,9 @@ Situ Nan n'était pas mort, mais était entré dans un état de sommeil permanen
 
 Une fois tous ses souvenirs retrouvés, il réalisa que son Sens Divin était devenu immense. Le corps du géant semblait incapable de supporter une telle puissance et commença à se désintégrer.
 
-Impuissant, Wang Lin quitta le corps du géant. Le froid revint une fois de plus. Il flotta dans l'espace, cherchant un nouveau corps à posséder. Ce processus de voyage à travers le vide pour trouver un cadavre dura très longtemps. De même, les créatures mystérieuses continuaient d'affluer pour être dévorées.
+Impuissant, Wang Lin quitta le corps du géant. Le froid revint une fois de plus. Il flotta dans l'espace, cherchant un nouveau corps à posséder.
+
+Ce processus de voyage à travers le vide pour trouver un cadavre dura très longtemps. De même, les créatures mystérieuses continuaient d'affluer pour être dévorées.
 
 Son âme devint encore plus puissante. Dévorer ces entités était progressivement devenu une habitude pour Wang Lin. Il cessait de les dévorer lorsqu'il devait se défendre, mais il les traquait activement le reste du temps.
 
@@ -72,7 +74,9 @@ Une ou deux collisions ne suffisaient pas à provoquer l'effondrement de la fail
 
 Cette existence perdura longtemps. Chaque fois qu'il voyait une déchirure spatiale, il s'y fracassait, certain qu'un jour, il parviendrait à la faire s'effondrer en un ou deux coups.
 
-Mais avec le temps, Wang Lin constata que les créatures mystérieuses du vide semblaient avoir disparu. Malgré tous ses efforts, il ne parvenait plus à en trouver une seule. Il élargit alors son champ de recherche. Un jour, Wang Lin ressentit un Sens Divin de taille similaire à la sienne. C'était la première fois qu'il trouvait une âme divine aussi puissante que lui.
+Mais avec le temps, Wang Lin constata que les créatures mystérieuses du vide semblaient avoir disparu. Malgré tous ses efforts, il ne parvenait plus à en trouver une seule.
+
+Il élargit alors son champ de recherche. Un jour, Wang Lin ressentit un Sens Divin de taille similaire à la sienne. C'était la première fois qu'il trouvait une âme divine aussi puissante que lui.
 
 Une voix indistincte pénétra son âme : « Tu as réussi l'épreuve ! » dit-elle.
 

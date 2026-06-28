@@ -38,7 +38,9 @@ Le sentier de droite continuait de s'étendre, bordé lui aussi d'une clôture. 
 
 Alors qu'il progressait prudemment, Wang Lin s'arrêta brusquement. Le pied droit qu'il avait levé redescendit lentement à sa position initiale. Il resta immobile, mais des éclairs de compréhension des restrictions brillaient dans son regard.
 
-Un pavillon se dressait à une centaine de pieds devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets. Un pichet accompagné de quelques coupes reposait sur la table. Les yeux de Wang Lin se plissèrent ; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
+Un pavillon se dressait à une centaine de pieds devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets. Un pichet accompagné de quelques coupes reposait sur la table.
+
+Les yeux de Wang Lin se plissèrent ; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
 
 « Il doit y avoir quelque chose de spécial avec ce pichet ! J'ai suivi la trace du dernier qui a forcé le passage jusqu'ici, mais il semble avoir été stoppé par les restrictions de ce lieu ! »
 

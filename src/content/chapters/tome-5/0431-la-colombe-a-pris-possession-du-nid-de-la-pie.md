@@ -12,7 +12,9 @@ Zhou Wutai partit avec la boute de vin à moitié vide et laissa le jade derriè
 
 Wang Lin réfléchit un instant, puis scruta le jade de son Sens Divin. Au fil des instants, son expression devint de plus en plus sombre.
 
-« Le dao de Liu Mei… Le Domaine de la Cruauté aux Mille Changements… Caché sous des milliers d'émotions changeantes se trouve un cœur impitoyable. Je l'avais déjà remarqué à l'époque, mais si Liu Mei continue de s'immiscer dans mes affaires, j'ai bien un moyen de m'occuper d'elle ! » Wang Lin broya le jade entre ses doigts.
+« Le dao de Liu Mei… Le Domaine de la Cruauté aux Mille Changements… Caché sous des milliers d'émotions changeantes se trouve un cœur impitoyable.
+
+Je l'avais déjà remarqué à l'époque, mais si Liu Mei continue de s'immiscer dans mes affaires, j'ai bien un moyen de m'occuper d'elle ! » Wang Lin broya le jade entre ses doigts.
 
 Il se leva, entra dans l'ancien réseau de transfert, l'activa et disparut.
 
@@ -28,15 +30,21 @@ Le ciel au-dessus du pays était sombre. Bien qu'il fût en plein jour, la lumi�
 
 Ce qui frappait véritablement le regard, c'était cette plante surgissant de la Nécropole Immortelle et perçant les cieux. En l'observant de si près, elle était terrifiante et donnait un sentiment d'insignifiance absolue.
 
-On pouvait voir des membres du Clan des Immortels Délaissés planer dans le ciel, suivis par des cultivateurs. Tous ces derniers arboraient des tatouages sur leur corps et leurs yeux étaient ternes. En plus de cela, d'innombrables plantes mystérieuses poussaient à travers le pays. Ces végétaux se déplaçaient d'une manière sinistre et croissaient à une vitesse fulgurante.
+On pouvait voir des membres du Clan des Immortels Délaissés planer dans le ciel, suivis par des cultivateurs. Tous ces derniers arboraient des tatouages sur leur corps et leurs yeux étaient ternes.
+
+En plus de cela, d'innombrables plantes mystérieuses poussaient à travers le pays. Ces végétaux se déplaçaient d'une manière sinistre et croissaient à une vitesse fulgurante.
 
 Le Chu avait bien changé depuis le départ de Wang Lin.
 
-L'activation du réseau de transfert attira l'attention du Clan des Immortels Délaissés. À l'instant même où Wang Lin apparut, une masse de nuages noirs convergea du ciel. Sept ou huit chamans se trouvaient à l'intérieur de cette obscurité. Dès qu'ils aperçurent Wang Lin, ils commencèrent à activer la puissance de leurs tatouages pour l'attaquer.
+L'activation du réseau de transfert attira l'attention du Clan des Immortels Délaissés. À l'instant même où Wang Lin apparut, une masse de nuages noirs convergea du ciel.
+
+Sept ou huit chamans se trouvaient à l'intérieur de cette obscurité. Dès qu'ils aperçurent Wang Lin, ils commencèrent à activer la puissance de leurs tatouages pour l'attaquer.
 
 Wang Lin resta calme. Il daigna même pas regarder les chamans avant de mouvoir son corps et de disparaître.
 
-Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. L'endroit était totalement désolé et l'une de ces plantes étranges y poussait. Il n'y avait plus aucune trace de vie. Wang Lin laissa échapper un soupir avant de repartir.
+Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. L'endroit était totalement désolé et l'une de ces plantes étranges y poussait.
+
+Il n'y avait plus aucune trace de vie. Wang Lin laissa échapper un soupir avant de repartir.
 
 Wang Lin ne se rendit pas à la Secte du Ciel Nuageux, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une bonne chose ; cela provoquerait très probablement la colère du Clan des Immortels Délaissés.
 

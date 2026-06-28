@@ -24,7 +24,9 @@ L'intention de combat dans les yeux de Chen Tao s'intensifia tandis qu'il riait 
 
 Sur ce, il déchira la partie supérieure de ses vêtements pour exposer son torse. Il frappa son sac de rangement et une longue corde noire apparut dans sa main. Cette corde semblait être une créature vivante ; dès son apparition, une odeur fétide s'en dégagea, émettant une aura désolée.
 
-« Bête, mon Tendon de Dragon Terrestre a survécu seul sur une planète démoniaque pendant cinq cents ans. Il a été extrait d'un dragon démoniaque mort. Je veux voir si tu peux échapper à ce tendon ! » Sur ces mots, il fit un pas en avant et projeta directement le tendon vers la bête spirituelle, ignorant royalement Wang Lin.
+« Bête, mon Tendon de Dragon Terrestre a survécu seul sur une planète démoniaque pendant cinq cents ans. Il a été extrait d'un dragon démoniaque mort.
+
+Je veux voir si tu peux échapper à ce tendon ! » Sur ces mots, il fit un pas en avant et projeta directement le tendon vers la bête spirituelle, ignorant royalement Wang Lin.
 
 La bête poussa un rugissement et chargea. Elle esquiva le tendon, apparut instantanément aux côtés de Chen Tao et tenta de le dévorer.
 
@@ -84,7 +86,9 @@ Cette scène terrifia la majorité des cultivateurs environnants. Même l'Omnisc
 
 Parmi les spectateurs, un vieil homme au visage rubicond, portant une immense gourde rouge dans le dos, laissa échapper un rot d'ivrogne en murmurant : « Pourquoi ce sort ressemble-t-il exactement à celui utilisé par ce fou que j'ai croisé en chemin ? »
 
-Lorsque Chen Tao fut à cinq pieds de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'avait pas ressenti depuis une éternité. La dernière fois, c'était face à de grands maîtres anciens. À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao !
+Lorsque Chen Tao fut à cinq pieds de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'avait pas ressenti depuis une éternité. La dernière fois, c'était face à de grands maîtres anciens.
+
+À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao !
 
 « Quel genre de regard est-ce là ?! Même ceux qui cultivent le Dao impitoyable ne peuvent posséder une telle expression ! »
 

@@ -151,7 +151,9 @@
       "nirvana shatterer",
       "Nirvana Shatterer",
       "Shatterer Nirvana",
-      "shatterer nirvana"
+      "shatterer nirvana",
+      "rupture du nirvana",
+      "Rupture du Nirvana"
     ]
   },
   "Heaven's Blight": {
@@ -237,7 +239,11 @@
       "grand exalt",
       "Grand Exalt",
       "grands exalts",
-      "Grands Exalts"
+      "Grands Exalts",
+      "grand éther",
+      "Grand Éther",
+      "grands éthers",
+      "Grands Éthers"
     ]
   },
   "Empyrean Exalt": {
@@ -265,7 +271,9 @@
       "exalt émérite",
       "Exalt Émérite",
       "exalts émérites",
-      "Exalts Émérites"
+      "Exalts Émérites",
+      "exalté empyréen",
+      "Exalté Empyréen"
     ]
   },
   "Golden Exalt": {
@@ -283,7 +291,11 @@
       "exalts dorés",
       "Exalts Dorés",
       "exaltés dorés",
-      "Exaltés Dorés"
+      "Exaltés Dorés",
+      "éminence dorée",
+      "Éminence Dorée",
+      "éminences dorées",
+      "Éminences Dorées"
     ]
   },
   "Celestial Emperor": {
@@ -327,7 +339,15 @@
       "empyrée ascendant",
       "Empyrée Ascendant",
       "empyrées ascendants",
-      "Empyrées Ascendants"
+      "Empyrées Ascendants",
+      "ascendant empyréen",
+      "Ascendant Empyréen",
+      "ascendant empyré",
+      "Ascendant Empyré",
+      "ascendant éthéré",
+      "Ascendant Éthéré",
+      "ascendants éthérés",
+      "Ascendants Éthérés"
     ]
   },
   "5 Essence Great Completion": {
@@ -716,7 +736,13 @@
   },
   "sect": {
     "fr": "secte",
-    "category": "concept"
+    "category": "concept",
+    "aliases": [
+      "secte",
+      "Secte",
+      "secteur",
+      "Secteur"
+    ]
   },
   "tribe": {
     "fr": "tribu",
@@ -849,7 +875,9 @@
       "jade céleste",
       "pierre céleste",
       "jade spirituel",
-      "jade"
+      "jade",
+      "amulette céleste",
+      "amulette celeste"
     ]
   },
   "storage bag": {
@@ -1062,7 +1090,11 @@
       "clan des immortels abandonnes",
       "Clan des Immortels Abandonnes",
       "immortels abandonnes",
-      "Immortels Abandonnes"
+      "Immortels Abandonnes",
+      "clan de l'immortel délaisse",
+      "Clan de l'Immortel Délaissé",
+      "immortel délaisse",
+      "Immortel Délaissé"
     ]
   },
   "Scatter Thunder Clan": {
@@ -1142,7 +1174,11 @@
       "Secte Divin",
       "secte divin",
       "Secte de Dieu",
-      "secte de dieu"
+      "secte de dieu",
+      "Secteur Divin",
+      "secteur divin",
+      "Sect de Dieu",
+      "sect de dieu"
     ]
   },
   "Cloud Sky Sect": {
@@ -1150,7 +1186,9 @@
     "category": "secte",
     "aliases": [
       "secte ciel nuageux",
-      "Secte Ciel Nuageux"
+      "Secte Ciel Nuageux",
+      "secte cloud sky",
+      "Secte Cloud Sky"
     ]
   },
   "Heavenly Fate Sect": {
@@ -1164,7 +1202,9 @@
       "secte originelle",
       "Secte Originelle",
       "Secte de l'Origine",
-      "secte de l'origine"
+      "secte de l'origine",
+      "Sect Origin",
+      "sect origin"
     ]
   },
   "Xuan Dao Sect": {

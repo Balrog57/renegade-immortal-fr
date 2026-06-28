@@ -50,7 +50,9 @@ L'apparition de la Bête du Nether effraya non seulement les dizaines de bêtes 
 
 Même l'expression des cinq cultivateurs du troisième stade changea radicalement alors qu'ils battaient en retraite. Bien qu'ils ignorassent quels types de sorts cette bête possédait, la simple confrontation avec un tel colosse exerçait sur eux une pression écrasante.
 
-Seul Wang Lin savait que la Bête du Nether était totalement terrifiée et que ce choc avait dépassé ses limites. Il sourit amèrement en voyant les yeux de la créature devenir blancs. Cette timide bête montrait des signes d'évanouissement. En vérité, cela n'avait rien d'étonnant : l'apparence de ces bêtes féroces était tout simplement trop terrifiante.
+Seul Wang Lin savait que la Bête du Nether était totalement terrifiée et que ce choc avait dépassé ses limites. Il sourit amèrement en voyant les yeux de la créature devenir blancs.
+
+Cette timide bête montrait des signes d'évanouissement. En vérité, cela n'avait rien d'étonnant : l'apparence de ces bêtes féroces était tout simplement trop terrifiante.
 
 Wang Lin s'avança et atterrit sur la Bête du Nether. Le corps de celle-ci était différent de celui de jadis ; il n'était plus aussi dur, mais très mou. Wang Lin n'eut pas le temps de s'interroger sur ce point ; il leva sa main droite et tapota doucement la bête, projetant une volonté pour l'apaiser et lui donner un ordre.
 
@@ -78,7 +80,9 @@ Alors que les cultivateurs du Royaume Extérieur étaient encore sous le choc de
 
 Dès que les couvercles brisèrent, de longs cheveux noirs se déployèrent hors des cercueils comme des mauvaises herbes. En un clin d'œil, cette chevelure noire envahit l'espace interstellaire.
 
-« Dieu Empereur Ancien qui as gardé mon Système Stellaire Ancien pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme ! » Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
+« Dieu Empereur Ancien qui as gardé mon Système Stellaire Ancien pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme ! »
+
+Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
 
 Les dizaines de milliers d'autres cultivateurs du Royaume Extérieur firent de même, offrant leur propre sang essentiel aux cercueils. Une fois le sang absorbé, un grondement tonitruant secoua le système stellaire et les neuf cercueils explosèrent l'un après l'autre.
 

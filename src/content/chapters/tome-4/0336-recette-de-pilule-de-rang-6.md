@@ -68,7 +68,9 @@ Wang Lin sourit. « Attends-moi ici. Je dois obtenir cette recette ! »
 
 Li Muwan hésita un instant avant d'acquiescer doucement. Wang Lin posa son regard sur Lu Fei et Tie Yan et ordonna : « Restez ici et surveillez-la. » Les deux acquiescèrent immédiatement.
 
-Le corps de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Cité des Rebelles Démoniaques. Il déploya son Sens Divin, puis son corps s'évanouit à nouveau. Cette fois, il apparut sur une montagne située à 3 000 kilomètres de là. Il y vit une jeune fille vêtue d'une robe verte. Son visage était dissimulé par un voile blanc. À ses côtés se tenait un vieil homme.
+Le corps de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Cité des Rebelles Démoniaques. Il déploya son Sens Divin, puis son corps s'évanouit à nouveau.
+
+Cette fois, il apparut sur une montagne située à 3 000 kilomètres de là. Il y vit une jeune fille vêtue d'une robe verte. Son visage était dissimulé par un voile blanc. À ses côtés se tenait un vieil homme.
 
 Le regard du vieil homme restait calme ; il ne semblait dégager aucune énergie spirituelle. Lorsque Wang Lin apparut, les yeux de l'homme s'illuminèrent.
 
@@ -78,13 +80,17 @@ Le regard du vieil homme restait calme ; il ne semblait dégager aucune énergie
 
 Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua : « Le Senior est très rusé. Cette petite junior vous admire. »
 
-Cette jeune fille était présente au troisième étage ; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires. Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon de Raffinage des Trésors, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
+Cette jeune fille était présente au troisième étage ; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires.
+
+Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon de Raffinage des Trésors, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
 
 « Ne perdez pas de temps en futilités », trancha la voix froide de Wang Lin.
 
 Le vieil homme derrière la jeune fille renifla et fit un pas en avant. Les yeux de Wang Lin s'éclairèrent. Il fixa l'homme et dit : « Vous venez à peine d'atteindre le stade de la Formation de l'Âme ; votre cultivation est instable et vous avez dû comprendre le domaine de quelqu'un d'autre. Reculez ! »
 
-Le visage du vieil homme s'assombrit, mais son cœur fut secoué. Il serra les dents et resta ferme. Wang Lin le regarda et fit un mouvement du doigt. Un rayon d'énergie spirituelle jaillit. L'expression de l'homme changea instantanément alors qu'il sortait précipitamment un trésor en forme de parasol. Lorsqu'il l'ouvrit, celui-ci libéra une lumière arc-en-ciel.
+Le visage du vieil homme s'assombrit, mais son cœur fut secoué. Il serra les dents et resta ferme. Wang Lin le regarda et fit un mouvement du doigt. Un rayon d'énergie spirituelle jaillit.
+
+L'expression de l'homme changea instantanément alors qu'il sortait précipitamment un trésor en forme de parasol. Lorsqu'il l'ouvrit, celui-ci libéra une lumière arc-en-ciel.
 
 Wang Lin eut un ricanement méprisant : « Vous vous surestimez ! »
 
@@ -98,7 +104,9 @@ Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en fai
 
 La jeune fille rattrapa le jade, prit une profonde inspiration et dit : « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
-L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents : « Cette junior est issue du Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma cultivation n'est pas assez élevée ; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
+L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents : « Cette junior est issue du Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu.
+
+Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma cultivation n'est pas assez élevée ; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
 
 Sur ces mots, elle afficha un air de tristesse, se mordit la lèvre et attendit la réponse de Wang Lin.
 
@@ -106,7 +114,9 @@ Wang Lin répondit calmement : « Je n'ai pas le temps ! » Il sortit le jade vi
 
 Sur ces mots, il disparut dans un rayon de lumière arc-en-ciel.
 
-La jeune fille regarda l'endroit où Wang Lin avait disparu avec un air de désespoir. Elle avait initialement perdu espoir, mais lorsqu'elle avait aperçu Wang Lin au troisième étage, le vieil homme à ses côtés lui avait assuré qu'il était un cultivateur de la Formation de l'Âme. Cela avait ravivé l'espoir dans son cœur. Puis, en voyant le vieil homme du Pavillon de Raffinage des Trésors, elle s'était sentie encore plus confiante. C'était pour cela qu'elle avait acheté la recette : son but était d'attirer Wang Lin.
+La jeune fille regarda l'endroit où Wang Lin avait disparu avec un air de désespoir. Elle avait initialement perdu espoir, mais lorsqu'elle avait aperçu Wang Lin au troisième étage, le vieil homme à ses côtés lui avait assuré qu'il était un cultivateur de la Formation de l'Âme.
+
+Cela avait ravivé l'espoir dans son cœur. Puis, en voyant le vieil homme du Pavillon de Raffinage des Trésors, elle s'était sentie encore plus confiante. C'était pour cela qu'elle avait acheté la recette : son but était d'attirer Wang Lin.
 
 Wang Lin n'avait effectivement pas le temps. La recette concernait la pilule de rang 6 "Retour à l'Origine", une substance que même les cultivateurs des pays de rang 1 ou 2 pouvaient raffiner. Cependant, ceux qu'ils produisaient n'étaient que des pilules de rang 1 ou 2.
 

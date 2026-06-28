@@ -20,7 +20,9 @@ Quant au jeune homme maléfique, ses yeux s'illuminèrent : « Affiner un Royaum
 
 Dans le ciel, le Maître Flamespark rit : « Qui a dit qu'il n'y aurait pas d'âme de trésor ? Âme de trésor, apparais ! » En parlant, il cracha un rayon de lumière grise.
 
-À l'intérieur de cette lumière se trouvait un miroir ancien de la taille d'une paume. Il grandit instantanément pour atteindre la taille d'un homme. La surface du miroir se tordit et une âme originelle s'en échappa. Dès son apparition, une énergie originelle dense se propagea.
+À l'intérieur de cette lumière se trouvait un miroir ancien de la taille d'une paume. Il grandit instantanément pour atteindre la taille d'un homme.
+
+La surface du miroir se tordit et une âme originelle s'en échappa. Dès son apparition, une énergie originelle dense se propagea.
 
 « L'âme originelle d'un cultivateur de l'Illusoire Yin ! » Les yeux de Wang Lin se rétrécirent.
 
@@ -32,7 +34,9 @@ L'âme originelle du cultivateur de l'Illusoire Yin semblait confuse. Dès qu'el
 
 Le quarantième-neuvième fragment sembla soudainement prendre vie, animé d'un esprit.
 
-Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien. Tandis que le Maître Flamespark lançait ses appels, ces âmes originelles de cultivateurs de l'Illusoire Yin disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
+Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien.
+
+Tandis que le Maître Flamespark lançait ses appels, ces âmes originelles de cultivateurs de l'Illusoire Yin disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
 
 « Âme de trésor, apparais encore une fois ! » Les yeux du Maître Flamespark étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin eut un haut-le-cœur en reconnaissant l'âme originelle d'un cultivateur du Corporel Yang.
 
@@ -88,7 +92,9 @@ Le visage de Wang Lin devint livide. Il pouvait ressentir une aura aussi puissan
 
 Les deux âmes jetèrent un regard glacial au Maître Flamespark avant de fusionner avec leurs fragments respectifs. À l'instant de leur disparition, le miroir ancien trembla violemment sous une série de craquements avant de s'effondrer en d'innombrables morceaux. Tandis que le miroir se brisait, l'âme originelle d'un homme d'âge moyen s'en échappa.
 
-Cet homme semblait très ordinaire, ne dégageant aucune fluctuation d'énergie originelle. Pourtant, dès son apparition, une intention meurtrière capable de déchirer les cieux jaillit de lui. Cette intention fusionna avec le monde, comme si elle en devenait une composante essentielle. Wang Lin cracha immédiatement une large quantité de sang et activa toute son énergie pour reculer rapidement, mais l'aura meurtrière persistait. Ses yeux étaient remplis d'effroi et son visage était pâle.
+Cet homme semblait très ordinaire, ne dégageant aucune fluctuation d'énergie originelle. Pourtant, dès son apparition, une intention meurtrière capable de déchirer les cieux jaillit de lui. Cette intention fusionna avec le monde, comme si elle en devenait une composante essentielle.
+
+Wang Lin cracha immédiatement une large quantité de sang et activa toute son énergie pour reculer rapidement, mais l'aura meurtrière persistait. Ses yeux étaient remplis d'effroi et son visage était pâle.
 
 « Le Seigneur Céleste de Rang 6 du Royaume Céleste de la Pluie... le Seigneur Céleste de la Destruction ! » Le jeune homme maléfique changea de ton en fixant l'homme, ses yeux devenant froids. L'homme d'âge moyen, quant à lui, restait extrêmement calme et tourna son regard vers le Maître Flamespark.
 
@@ -108,11 +114,15 @@ Le Maître Flamespark le fixa et déclara : « Seigneur Céleste Qing Shui, je v
 
 Le jeune homme fronça les sourcils et répondit simplement : « Je ne suis pas Qing Shui. »
 
-« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa cultivation était prodigieuse et il possédait le légendaire Domaine Ji ! Il était également l'héritier du pays de Clear Water. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même ; il était devenu un démon qui massacrait tout sur son passage ! »
+« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa cultivation était prodigieuse et il possédait le légendaire Domaine Ji ! Il était également l'héritier du pays de Clear Water.
+
+Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même ; il était devenu un démon qui massacrait tout sur son passage ! »
 
 « Un groupe de célestes l'attaqua, mais grâce à son Domaine Ji, il provoqua un massacre sans précédent. Finalement, l'Empereur Céleste Bai Fan intervint et remporta la victoire, bien qu'il ne puisse se résoudre à le tuer. Dans ce dilemme, Qing Shui sembla soudain retrouver la raison, comme si tout ce qui s'était passé n'avait été qu'un rêve. Lorsqu'il reprit ses esprits, il réalisa l'ampleur de son crime : il avait massacré d'innombrables célestes, dont ses amis, ses disciples, ses descendants et, par-dessus tout, son partenaire de Dao qui l'avait accompagné pendant des dizaines de milliers d'années ! »
 
-« Cette douleur et cette indignation furent immenses. Le fait d'avoir personnellement tué ses proches lui fit retrouver sa lucidité. Au moment où il allait perdre la raison, il lutta pour lever son épée afin de détruire son âme originelle et son corps. Pour empêcher le Domaine Ji de le ressusciter, il utilisa son trésor magique, le Vortex de Scellement, pour diviser son âme et son corps en neuf parties. L'Empereur Céleste Bai Fan, accablé de tristesse, plaça une formation de guérison sur ces sceaux, espérant qu'il retrouverait un jour la raison ! La raison pour laquelle il fit cela est que ce Qing Shui était son seul disciple et l'homme le plus apte à devenir le prochain Empereur Céleste du Royaume Céleste du Tonnerre ! »
+« Cette douleur et cette indignation furent immenses. Le fait d'avoir personnellement tué ses proches lui fit retrouver sa lucidité. Au moment où il allait perdre la raison, il lutta pour lever son épée afin de détruire son âme originelle et son corps. Pour empêcher le Domaine Ji de le ressusciter, il utilisa son trésor magique, le Vortex de Scellement, pour diviser son âme et son corps en neuf parties.
+
+L'Empereur Céleste Bai Fan, accablé de tristesse, plaça une formation de guérison sur ces sceaux, espérant qu'il retrouverait un jour la raison ! La raison pour laquelle il fit cela est que ce Qing Shui était son seul disciple et l'homme le plus apte à devenir le prochain Empereur Céleste du Royaume Céleste du Tonnerre ! »
 
 Après avoir fini son récit, le Maître Flamespark frappa sa sacoche et une pierre de jade céleste apparut. Ce jade était extrêmement ancien.
 

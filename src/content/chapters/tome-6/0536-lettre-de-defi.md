@@ -90,9 +90,13 @@ L'Ancien en robe grise hocha la tête et dit : « Vous avez blessé le disciple 
 
 Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse : « Que voulez-vous dire par "que devrez-vous faire" ? Utilisez simplement la formation pour tuer cet individu ! »
 
-L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux : « Ces gens n'étaient pas simples. Presque tous possédaient une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
+L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux : « Ces gens n'étaient pas simples. Presque tous possédaient une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer.
 
-L'homme en robe blanche rit : « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif ? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu ? S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux ; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler ! »
+Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
+
+L'homme en robe blanche rit : « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif ? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu ?
+
+S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux ; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler ! »
 
 L'Ancien en robe grise demanda : « L'incantation dans l'esprit du jeune homme est-elle un leurre ? »
 

@@ -24,11 +24,17 @@ La lumière aux sept couleurs se concentra sur le Daoïste aux Sept Couleurs. So
 
 Le Souverain trembla et ferma les yeux. Après un long moment, il les rouvrit et hocha la tête.
 
-« Je ne pense pas... » Le Daoïste aux Sept Couleurs sourit en regardant au loin, ses yeux brillant d'une lueur étrange. « Je vais vous aider à ouvrir la Tombe Antique pour laisser ces gens sortir. Quant à la suite, vous pourrez vous en charger vous-même... Ce jeu touche à sa fin... Le troisième a été caché pendant des éternités et s'est réincarné d'innombrables fois. Cette fois, il devrait enfin émerger... » Ses yeux étaient emplis d'anticipation.
+« Je ne pense pas... » Le Daoïste aux Sept Couleurs sourit en regardant au loin, ses yeux brillant d'une lueur étrange. « Je vais vous aider à ouvrir la Tombe Antique pour laisser ces gens sortir.
+
+Quant à la suite, vous pourrez vous en charger vous-même... Ce jeu touche à sa fin...
+
+Le troisième a été caché pendant des éternités et s'est réincarné d'innombrables fois. Cette fois, il devrait enfin émerger... » Ses yeux étaient emplis d'anticipation.
 
 Le Souverain hésita un instant et demanda : « Wang Lin est-il le troisième ? »
 
-« Hormis vous, moi, le Vieux Fantôme Zhan et quelques autres, nous pourrions tous être le troisième... Il est trop bien caché... Ou peut-être ne connaît-il même pas encore sa propre identité... Quant à ce Wang Lin, il ne semble pas l'être... Mais ce n'est pas impossible », répondit lentement le Daoïste aux Sept Couleurs.
+« Hormis vous, moi, le Vieux Fantôme Zhan et quelques autres, nous pourrions tous être le troisième... Il est trop bien caché...
+
+Ou peut-être ne connaît-il même pas encore sa propre identité... Quant à ce Wang Lin, il ne semble pas l'être... Mais ce n'est pas impossible », répondit lentement le Daoïste aux Sept Couleurs.
 
 Le Souverain laissa échapper un soupir intérieur. Il joignit les mains en signe de respect devant le Daoïste aux Sept Couleurs et se tourna pour partir. Cependant, après seulement quelques pas, il s'arrêta. Sans se retourner, il reprit d'un ton grave : « Lorsque vous m'avez demandé de vous prendre pour maître, j'ai accepté. La chose que vous m'avez promise... »
 
@@ -48,11 +54,15 @@ Cette silhouette était austère et dégageait une immense solitude. Pourtant, e
 
 La première à s'avancer fut Xi Zifeng. Sa silhouette était frêle alors qu'elle marchait lentement vers lui. Elle regarda Wang Lin, les yeux clos, et son regard se fit tendre. Un beau sourire fleurit sur son visage.
 
-« J'ai mûrement réfléchi. Je ne veux pas être votre disciple... Je ne le veux jamais ! Les cultivateurs comme nous vivent très longtemps. Je ne sais pas quand nos vies prendront fin. Je veux seulement une année de votre vie ! Une seule année suffit... Vous allez garder le Monde Intérieur pendant trois ans. Laissez-moi vous accompagner durant une seule année », dit doucement Xi Zifeng.
+« J'ai mûrement réfléchi. Je ne veux pas être votre disciple... Je ne le veux jamais ! Les cultivateurs comme nous vivent très longtemps. Je ne sais pas quand nos vies prendront fin.
+
+Je veux seulement une année de votre vie ! Une seule année suffit... Vous allez garder le Monde Intérieur pendant trois ans. Laissez-moi vous accompagner durant une seule année », dit doucement Xi Zifeng.
 
 Wang Lin méditait en silence. Ses yeux restaient clos et il ne prononça pas un mot.
 
-« Après un an, je partirai. Si je meurs, je disparaîtrai. Si je vis, je cultiverai en paix ! Vous n'avez pas besoin de parler, ni même de me regarder, mais je serai là. Vous ne pourrez pas me chasser ! » Xi Zifeng ne se souciait guère de l'attitude de Wang Lin. Elle s'assit à ses côtés et le regarda en silence.
+« Après un an, je partirai. Si je meurs, je disparaîtrai. Si je vis, je cultiverai en paix ! Vous n'avez pas besoin de parler, ni même de me regarder, mais je serai là.
+
+Vous ne pourrez pas me chasser ! » Xi Zifeng ne se souciait guère de l'attitude de Wang Lin. Elle s'assit à ses côtés et le regarda en silence.
 
 Elle était déjà une femme magnifique, et les années lui avaient donné une certaine maturité. Pourtant, à cet instant, aux côtés de Wang Lin, elle avait l'impression d'être revenue mille ans en arrière. Wang Lin était la première personne qu'elle aimait, et la dernière. Entre les deux s'écoulait un temps infini.
 
@@ -70,7 +80,9 @@ Ces mots semblèrent drainer toute la force de Xi Zifeng, et son visage pâlit i
 
 « Une relation malheureuse... » Les paroles de ses maîtres résonnaient encore dans ses oreilles.
 
-« Une année ! Est-ce qu'une seule année n'est vraiment pas assez ? Wang Lin, je sais que vous ne pouvez pas m'accepter, mais je veux juste une année. Est-ce trop demander ? » Wang Lin resta silencieux, les yeux clos. Xi Zifeng ressentit un coup de poignard au cœur. Elle se leva avec un sourire amer et recula de quelques pas.
+« Une année ! Est-ce qu'une seule année n'est vraiment pas assez ? Wang Lin, je sais que vous ne pouvez pas m'accepter, mais je veux juste une année. Est-ce trop demander ? »
+
+Wang Lin resta silencieux, les yeux clos. Xi Zifeng ressentit un coup de poignard au cœur. Elle se leva avec un sourire amer et recula de quelques pas.
 
 Elle se sentait comme une actrice ridicule s'adressant à elle-même. Finalement, ses paroles ne devinrent que des épines lui transperçant le cœur. La douleur était atroce.
 

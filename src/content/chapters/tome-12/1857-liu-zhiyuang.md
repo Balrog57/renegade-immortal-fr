@@ -24,13 +24,17 @@ Wang Lin, doté de sept essences, pouvait combattre des cultivateurs au stade in
 
 Cependant, à l'intérieur de la formation du Méridien du Taureau Céleste, alors que le brouillard pénétrait leurs corps, la donne changea. Les trois affrontaient de justesse le vieillard nommé Zhao ! Bien qu'ils ne puissent vaincre, ils parvenaient à le contenir !
 
-Avec quatre personnes pour freiner les deux vieillards, ces derniers ne pouvaient pleinement déployer leur terrifiant pouvoir dans cette bataille. Mais il restait encore quatre cultivateurs au stade initial de la Tribulation du Vide du Continent du Démon Vert. Ces quatre individus — deux hommes et deux femmes — portaient des vêtements luxueux et affichaient un statut extraordinaire. Ils faisaient face au même problème : trois cultivateurs de la Tribulation du Vide du Continent du Taureau Céleste, tels des ancêtres, leur barraient la route. Ces trois derniers semblaient posséder une énergie quasi illimitée dans le brouillard et commencèrent à affronter les quatre du Continent du Démon Vert. Les cultivateurs de la Tribulation du Vide venaient de lancer le premier assaut de cette guerre !
+Avec quatre personnes pour freiner les deux vieillards, ces derniers ne pouvaient pleinement déployer leur terrifiant pouvoir dans cette bataille. Mais il restait encore quatre cultivateurs au stade initial de la Tribulation du Vide du Continent du Démon Vert. Ces quatre individus — deux hommes et deux femmes — portaient des vêtements luxueux et affichaient un statut extraordinaire.
+
+Ils faisaient face au même problème : trois cultivateurs de la Tribulation du Vide du Continent du Taureau Céleste, tels des ancêtres, leur barraient la route. Ces trois derniers semblaient posséder une énergie quasi illimitée dans le brouillard et commencèrent à affronter les quatre du Continent du Démon Vert. Les cultivateurs de la Tribulation du Vide venaient de lancer le premier assaut de cette guerre !
 
 S'ensuivit alors un massacre entre les deux armées. Le carnage était chaotique, vingt mille âmes s'entredéchirant dans la confusion. La vue était obstruée par le brouillard et des cris déchirants résonnaient partout.
 
 Wang Lin se déplaçait tel un fantôme dans la brume, la tête baissée, scrutant une boussole qu'il tenait en main. Celle-ci était couverte de points blancs et verts denses qui changeaient constamment de position.
 
-Les hurlements continuaient de résonner dans le brouillard. Les éclats des sorts étaient dissimulés par la brume, mais celle-ci ne pouvait masquer l'intention meurtrière qui en émanait. Soudain, Wang Lin leva la main droite et pointa vers sa droite. Dans un éclair de lumière sanglante, l'épée de sang jaillit. Un cultivateur du Continent du Démon Vert surgit brusquement du brouillard ; il n'eut même pas le temps de réagir que l'épée de sang lui transperçait le crâne.
+Les hurlements continuaient de résonner dans le brouillard. Les éclats des sorts étaient dissimulés par la brume, mais celle-ci ne pouvait masquer l'intention meurtrière qui en émanait. Soudain, Wang Lin leva la main droite et pointa vers sa droite.
+
+Dans un éclair de lumière sanglante, l'épée de sang jaillit. Un cultivateur du Continent du Démon Vert surgit brusquement du brouillard ; il n'eut même pas le temps de réagir que l'épée de sang lui transperçait le crâne.
 
 L'expression de Wang Lin resta imperturbable alors qu'il poursuivait sa progression. Ses cibles n'étaient pas ces cultivateurs du Continent du Démon Vert, mais bien les cultivateurs de la Tribulation du Vide !
 

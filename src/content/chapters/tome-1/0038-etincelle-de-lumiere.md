@@ -16,7 +16,9 @@ De plus, au cours de ces vingt dernières années, il s'était constamment exerc
 
 Soudain, une lumière blanche apparut silencieusement du ciel et enveloppa tout le monde. Cette sensation de chaleur revint, mais cette fois, Wang Lin remarqua une différence. De faibles éclairs de symboles étranges dansaient dans la lumière. Ces symboles s'assemblèrent pour former un tourbillon qui aspira rapidement l'assistance, les faisant disparaître de la vallée.
 
-Lorsqu'ils réapparurent, ils se trouvaient dans la salle principale. Le chef de la secte était assis là, vêtu de sa robe bleue habituelle, entouré de plusieurs anciens. À cet instant, plusieurs Sens Divins puissants les scannèrent. Le chef de la secte sourit, hocha la tête et déclara : « Des années ont passé, et je suis très satisfait de voir que vous avez tous fait des progrès considérables. Très bien. Maintenant, que tous les disciples ayant atteint le cinquième niveau ou plus restent. Les autres, retournez auprès de vos maîtres pour leur faire part de vos récoltes de ces quatre dernières années. Dans trois jours, la secte Xuan Dao Zong sera ici. Cette fois, nous devons gagner. Quant au changement de tenues, cela se fera après la compétition. »
+Lorsqu'ils réapparurent, ils se trouvaient dans la salle principale. Le chef de la secte était assis là, vêtu de sa robe bleue habituelle, entouré de plusieurs anciens. À cet instant, plusieurs Sens Divins puissants les scannèrent. Le chef de la secte sourit, hocha la tête et déclara : « Des années ont passé, et je suis très satisfait de voir que vous avez tous fait des progrès considérables.
+
+Très bien. Maintenant, que tous les disciples ayant atteint le cinquième niveau ou plus restent. Les autres, retournez auprès de vos maîtres pour leur faire part de vos récoltes de ces quatre dernières années. Dans trois jours, la secte Xuan Dao Zong sera ici. Cette fois, nous devons gagner. Quant au changement de tenues, cela se fera après la compétition. »
 
 L'assemblée répondit à l'unisson. Tous les disciples n'ayant pas atteint le cinquième niveau quittèrent la salle. Wang Lin regarda autour de lui, mais ne vit pas Sun Dazhu.
 
@@ -38,7 +40,9 @@ L'expression de Wang Lin resta impassible alors qu'il répondait : « Le discipl
 
 Sun Dazhu acquiesça : « C'est naturel. Pour être franc, ces techniques basiques ne sont qu'une question de pratique. Plus on s'exerce, plus on devient expert. Ton maître l'a pratiquée pendant une année entière, ce qui est considéré comme le record de la secte, vois-tu. » Tout en parlant, il fit un mouvement de la main : une petite épée colorée apparut, tourbillonna dans la pièce avant de revenir se poser dans la main de Sun Dazhu.
 
-« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte. Ta cultivation est faible, tes chances de monter en grade sont donc minces, mais tu ne dois pas faire perdre la face à la secte. Une épée volante peut toujours être contrôlée par la technique d'attraction. Je vais te donner un jeton ; va au sanctuaire des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
+« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte.
+
+Ta cultivation est faible, tes chances de monter en grade sont donc minces, mais tu ne dois pas faire perdre la face à la secte. Une épée volante peut toujours être contrôlée par la technique d'attraction. Je vais te donner un jeton ; va au sanctuaire des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
 
 L'expression de Wang Lin devint étrange. Il resta la bouche ouverte un long moment, sans savoir quoi répondre.
 

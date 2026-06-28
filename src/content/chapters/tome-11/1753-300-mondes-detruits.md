@@ -30,7 +30,9 @@ Wang Lin s'inquiétait de ces changements potentiels, mais lorsqu'il vit la fleu
 
 « Il semble que la première fleur soit identique aux souvenirs de la troisième âme ; rien n'a changé ici. »
 
-Wang Lin avait appris l'existence des 300 mondes détruits grâce à la troisième âme. Lorsque le Souverain Céleste aux Sept Couleurs tenta pour la première fois de créer le monde de la grotte, il échoua 300 fois ! Bien que ces tentatives fussent infructueuses, des mondes avaient tout de même été créés. Certes incomplets et dépourvus de nombreux éléments essentiels, ils n'en existaient pas moins. Le Souverain Céleste aux Sept Couleurs ne les utilisa pas ; il finit par créer le 301e monde, qui était le monde de la grotte actuel.
+Wang Lin avait appris l'existence des 300 mondes détruits grâce à la troisième âme. Lorsque le Souverain Céleste aux Sept Couleurs tenta pour la première fois de créer le monde de la grotte, il échoua 300 fois ! Bien que ces tentatives fussent infructueuses, des mondes avaient tout de même été créés.
+
+Certes incomplets et dépourvus de nombreux éléments essentiels, ils n'en existaient pas moins. Le Souverain Céleste aux Sept Couleurs ne les utilisa pas ; il finit par créer le 301e monde, qui était le monde de la grotte actuel.
 
 Refusant de dédaigner ces 300 échecs, le Souverain Céleste aux Sept Couleurs les avait raffinés pour protéger ce lieu, les transformant en 300 gouttes de rosée ! Si le Souverain Céleste aux Sept Couleurs avait été encore en vie, son sens divin aurait pu se propager dans ces 300 mondes détruits et en modifier les lois !
 

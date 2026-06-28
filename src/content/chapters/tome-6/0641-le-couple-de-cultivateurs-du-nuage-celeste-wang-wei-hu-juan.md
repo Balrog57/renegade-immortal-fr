@@ -6,7 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 641 - Celestial Cloud Cultivation Couple Wang Wei, Hu Juan
 slug: le-couple-de-cultivateurs-du-nuage-celeste-wang-wei-hu-juan
 ---
-Les pupilles de Wang Lin se rétractèrent instantanément et il baissa les yeux vers son sac de rangement. Il projeta une parcelle de son sens divin à l'intérieur du sac et découvrit que le parchemin mystérieux qu'il avait trouvé sur Suzaku s'était automatiquement ouvert. Une lumière violette émanait du parchemin, projetant la silhouette d'une femme. Cette figure était d'une beauté extrême. Le dos tourné vers Wang Lin, elle semblait murmurer doucement :
+Les pupilles de Wang Lin se rétractèrent instantanément et il baissa les yeux vers son sac de rangement. Il projeta une parcelle de son sens divin à l'intérieur du sac et découvrit que le parchemin mystérieux qu'il avait trouvé sur Suzaku s'était automatiquement ouvert.
+
+Une lumière violette émanait du parchemin, projetant la silhouette d'une femme. Cette figure était d'une beauté extrême. Le dos tourné vers Wang Lin, elle semblait murmurer doucement :
 
 « Descends... »
 
@@ -36,7 +38,9 @@ Après un temps indéterminé, l'épée céleste transportant Zhou Yi s'arrêta 
 
 La voix de Zhou Yi devint quelque peu éthérée au sein de la brume.
 
-Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de trente pieds. Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à trente pieds, ce que son sens divin percevait restait flou.
+Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de trente pieds.
+
+Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à trente pieds, ce que son sens divin percevait restait flou.
 
 Simultanément, l'aspiration du gouffre sembla s'intensifier avec l'apparition de la brume. Pourtant, cette force n'avait aucun effet sur la brume elle-même, ce qui était extrêmement singulier.
 
@@ -72,13 +76,17 @@ La force de succion devint de plus en plus intense, entraînant avec elle des gr
 
 Au même moment, l'épée de Zhou Yi passa à proximité. Wang Lin reconnut immédiatement la grande épée dorée familière qui fonçait vers le précipice. Sans hésiter, Zhou Yi fit volte-face pour plonger vers l'épée. Les forces d'aspiration à l'intérieur et à l'extérieur du gouffre étaient radicalement différentes ; en plongeant ainsi, la vitesse de Zhou Yi devint plus rapide que l'éclair.
 
-En un clin d'œil, ils rattrapèrent la grande épée dorée. Wang Lin afficha une détermination sans faille et saisit immédiatement l'arme. Cependant, la force d'aspiration du gouffre enveloppait déjà l'épée. En s'en saisissant, Wang Lin avait l'impression de voler un trésor au fond d'un abîme tout en luttant contre une attraction colossale. Au moment de la prise, une traction brutale fit vaciller le corps de Wang Lin, manquant de le faire basculer de l'épée céleste.
+En un clin d'œil, ils rattrapèrent la grande épée dorée. Wang Lin afficha une détermination sans faille et saisit immédiatement l'arme. Cependant, la force d'aspiration du gouffre enveloppait déjà l'épée.
+
+En s'en saisissant, Wang Lin avait l'impression de voler un trésor au fond d'un abîme tout en luttant contre une attraction colossale. Au moment de la prise, une traction brutale fit vaciller le corps de Wang Lin, manquant de le faire basculer de l'épée céleste.
 
 Dans ce moment critique, Wang Lin prit une profonde inspiration et le Fleuve des Enfers apparut soudainement autour de lui. Sous son contrôle, le fleuve se mit à tournoyer violemment, formant un vortex avec lui en son centre. L'aspiration sur Wang Lin s'affaiblit, lui permettant de tirer de toutes ses forces sur l'épée. La grande épée cessa de tomber et commença à être ramenée vers le haut.
 
 Un rugissement jaillit de Zhou Yi, semblant contenir un sort d'esprit d'épée. L'épée émit un éclat de lumière et Zhou Yi tira soudainement Wang Lin vers l'ouverture du puits.
 
-Wang Lin eut l'impression que son corps allait être déchiré. La grande épée dans sa main droite pesait une tonne. Debout sur l'épée céleste, les veines de son visage saillirent sous l'effort. Tandis que Zhou Yi s'élançait vers le haut, la grande épée fut également remontée lentement. Les yeux de Wang Lin brillaient de détermination ; il ne pouvait pas lâcher prise, de peur que cette épée ne disparaisse à jamais dans les profondeurs.
+Wang Lin eut l'impression que son corps allait être déchiré. La grande épée dans sa main droite pesait une tonne. Debout sur l'épée céleste, les veines de son visage saillirent sous l'effort.
+
+Tandis que Zhou Yi s'élançait vers le haut, la grande épée fut également remontée lentement. Les yeux de Wang Lin brillaient de détermination ; il ne pouvait pas lâcher prise, de peur que cette épée ne disparaisse à jamais dans les profondeurs.
 
 Au fur et à mesure de leur ascension, l'or recouvrant l'épée s'effrita, révélant une lame totalement noire. Les joyaux restants sur la garde se brisèrent et furent aspirés dans le gouffre.
 
@@ -94,7 +102,9 @@ Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de ran
 
 « Le voyage au Gouffre des Marées est terminé. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
 
-Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur. Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
+Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur.
+
+Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
 
 Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des Démons de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Greed et son groupe...
 
@@ -102,7 +112,9 @@ Dans les Terres des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nu
 
 Deux personnes se tenaient sur ce nuage providentiel : un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage handsome. Il faisait face au vent, une flûte en jade vert à la main ; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
 
-Derrière lui, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande. Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée !
+Derrière lui, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande.
+
+Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée !
 
 Les yeux de la femme se posaient occasionnellement sur l'homme avec tendresse. Il était évident qu'ils formaient un couple de cultivateurs.
 

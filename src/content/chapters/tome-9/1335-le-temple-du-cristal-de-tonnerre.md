@@ -36,7 +36,9 @@ C'était là un point où Xu Liguo manquait par rapport à Big Red. Wang Lin n'a
 
 En conséquence, Big Red était devenu encore plus hardi. Sans même attendre les ordres de Wang Lin, dès qu'ils croisaient une cible propice au pillage, il chargeait violemment pour revenir avec une montagne d'objets à échanger, remettant tout à Wang Lin sans rien garder pour lui-même.
 
-« Maître, le domaine du Temple du Cristal de Tonnerre est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la cultivation de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours ; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Big Red. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
+« Maître, le domaine du Temple du Cristal de Tonnerre est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants.
+
+Je sais que la cultivation de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours ; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Big Red. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
 
 Ces deux termes portaient des significations bien distinctes. Big Red estimait qu'« Aîné » le faisait toujours passer pour un étranger. En appelant Wang Lin « Maître », comme le faisait Xu Liguo, il avait l'impression de faire partie de la famille. Wang Lin n'avait pas refusé ce changement.
 
@@ -62,15 +64,21 @@ Les cultivateurs environnants joignirent respectueusement les mains et commencè
 
 Bien que Wang Lin ait exploré les souvenirs de Big Red, il n'avait consulté que les informations cruciales, parcourant ses pensées sans s'y attarder. Son regard se posa sur le Roi Démon Noir ; il hocha légèrement la tête sans un mot.
 
-Le Roi Démon Noir, habitué aux rumeurs, les ignorait superbement. Pourtant, au moment où le regard de Wang Lin l'effleura, son esprit vacilla. Il se sentit mis à nu et fut envahi d'une sueur froide. Heureusement, cette sensation disparut aussitôt. N'osant pas se retourner, il s'envola prestement.
+Le Roi Démon Noir, habitué aux rumeurs, les ignorait superbement. Pourtant, au moment où le regard de Wang Lin l'effleura, son esprit vacilla.
+
+Il se sentit mis à nu et fut envahi d'une sueur froide. Heureusement, cette sensation disparut aussitôt. N'osant pas se retourner, il s'envola prestement.
 
 Wang Lin resta serein tandis qu'ils approchaient du Temple. Le temple devenait de plus en plus visible, et le brouillard vert entourant la montagne se précisait. Une brèche dans la brume, comme si elle avait été fendue par une lame invisible, formait un passage de cent pieds de large.
 
-Deux cultivateurs impassibles, vêtus de rouge, montaient la garde. Ils paraissaient avoir la quarantaine, mais c'étaient des vieux monstres ayant cultivé durant des millénaires. Ils avaient dépassé la première étape pour atteindre le stade du Yin Illusoire ! Leur regard froid balayait les arrivants, et quiconque croisait leurs yeux tremblait de peur et de respect. Même le Roi Démon Noir s'était montré extrêmement déférent face à eux.
+Deux cultivateurs impassibles, vêtus de rouge, montaient la garde. Ils paraissaient avoir la quarantaine, mais c'étaient des vieux monstres ayant cultivé durant des millénaires.
+
+Ils avaient dépassé la première étape pour atteindre le stade du Yin Illusoire ! Leur regard froid balayait les arrivants, et quiconque croisait leurs yeux tremblait de peur et de respect. Même le Roi Démon Noir s'était montré extrêmement déférent face à eux.
 
 Sans qu'on ait besoin de lui expliquer, Wang Lin comprit que ces deux-là gardaient l'entrée. À cet instant, une foule de cultivateurs traversait le passage pour s'enfoncer dans les profondeurs. Il y avait là au moins mille personnes, mais pas un bruit, aucune agitation ; tous entraient silencieusement.
 
-Soudain, l'expression de Wang Lin changea légèrement et il tourna la tête. Un instant plus tard, les nuages se mirent à bouillonner et des grondements de tonnerre déchirèrent le ciel. Le fracas semblait relier le ciel et la terre. Les secousses furent si brutales qu'elles ébranlèrent l'esprit des cultivateurs alentour. Même les deux gardiens en rouge affichèrent des visages solennels.
+Soudain, l'expression de Wang Lin changea légèrement et il tourna la tête. Un instant plus tard, les nuages se mirent à bouillonner et des grondements de tonnerre déchirèrent le ciel.
+
+Le fracas semblait relier le ciel et la terre. Les secousses furent si brutales qu'elles ébranlèrent l'esprit des cultivateurs alentour. Même les deux gardiens en rouge affichèrent des visages solennels.
 
 Un rire résonna dans le vide, et les nuages se rétractèrent pour ne former qu'un manteau autour d'un vieil homme qui émergeait. Ce dernier avait les cheveux blancs, mais ses yeux brillaient d'une force colossale. À chacun de ses pas, l'espace et le temps semblaient se distordre.
 
