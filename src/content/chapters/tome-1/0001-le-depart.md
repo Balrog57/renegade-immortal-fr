@@ -142,7 +142,7 @@ Le père de Tie Zhu fronça les sourcils et répliqua : « Tie Zhu n'a peut-êtr
 
 Le jeune homme était d'une grande beauté, avec des sourcils comme des lames de cimeterre, un visage rappelant le général Guan Yu et un regard chargé de dédain. Le père de Tie Zhu le foudroya du regard, tandis que Wang Lin lui lança une observation silencieuse mais profonde.
 
-Le visage du vieil homme changea de couleur et il s'écria : « Wang Zhuo, comment peux-tu être aussi impoli ?! C'est ton deuxième oncle et ton petit frère Wang Lin ! Pourquoi ne les salues-tu pas ? » Il se tourna vers le père de Tie Zhu : « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre : « Mais deuxièmme frère, l'admission dans une secte immortelle n'est pas une mince affaire, c'est une question de destin. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que la Secte Heng Yue s'est montrée très intéressée par mon fils. »
+Le visage du vieil homme changea de couleur et il s'écria : « Wang Zhuo, comment peux-tu être aussi impoli ?! C'est ton deuxième oncle et ton petit frère Wang Lin ! Pourquoi ne les salues-tu pas ? » Il se tourna vers le père de Tie Zhu : « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre : « Mais deuxième frère, l'admission dans une secte immortelle n'est pas une mince affaire, c'est une question de destin. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que la Secte Heng Yue s'est montrée très intéressée par mon fils. »
 
 Le père de Tie Zhu renifla : « Si ton fils peut réussir, alors le mien sera également sélectionné ! »
 

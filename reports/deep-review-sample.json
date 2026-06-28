@@ -1,0 +1,1216 @@
+{
+  "total_reviewed": 200,
+  "chapters_affected": 198,
+  "total_issues": 200,
+  "by_severity": {
+    "medium": 199,
+    "low": 1
+  },
+  "by_type": {
+    "names_missing_in_both_fr": 198,
+    "merged_paragraphs": 1,
+    "missing_numbers": 1
+  },
+  "issues": [
+    {
+      "chapter": 1471,
+      "severity": "low",
+      "type": "missing_numbers",
+      "detail": "6 nombres EN absents du FR (sur 11)"
+    },
+    {
+      "chapter": 14,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Even, However"
+    },
+    {
+      "chapter": 27,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Sect, There, This"
+    },
+    {
+      "chapter": 48,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Elder, Sect, They"
+    },
+    {
+      "chapter": 61,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Building, Core, Foundation, Method"
+    },
+    {
+      "chapter": 80,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Core, Nascent, Soul, This"
+    },
+    {
+      "chapter": 87,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Core, Method, They, This"
+    },
+    {
+      "chapter": 103,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Sect, They, This"
+    },
+    {
+      "chapter": 109,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, There, Valley, Wind, With"
+    },
+    {
+      "chapter": 123,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Even, With"
+    },
+    {
+      "chapter": 129,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Burning, Core, Decay"
+    },
+    {
+      "chapter": 131,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Core, Could, Establishment"
+    },
+    {
+      "chapter": 132,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Around, Just, Soon, Soul, They"
+    },
+    {
+      "chapter": 178,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Return, There, This"
+    },
+    {
+      "chapter": 188,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Even, From, Gods"
+    },
+    {
+      "chapter": 193,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Blood, Even, Realm, Since"
+    },
+    {
+      "chapter": 208,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Brother, Confusing, Core"
+    },
+    {
+      "chapter": 222,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Cloud, Core, During"
+    },
+    {
+      "chapter": 230,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Devils, Even, However"
+    },
+    {
+      "chapter": 238,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, City, Core, Family"
+    },
+    {
+      "chapter": 242,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Black, Realm, Severing, Spirit"
+    },
+    {
+      "chapter": 249,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, From, Little, Nascent, Severing"
+    },
+    {
+      "chapter": 261,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Then, This, When"
+    },
+    {
+      "chapter": 263,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Even, Fellow, Soul"
+    },
+    {
+      "chapter": 272,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Even, Four, Sect, They"
+    },
+    {
+      "chapter": 277,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Butterfly, Elemental, Explode, Five"
+    },
+    {
+      "chapter": 284,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Core, However, Nascent, Realm"
+    },
+    {
+      "chapter": 285,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Finally, Gradually, However, Nascent"
+    },
+    {
+      "chapter": 291,
+      "severity": "medium",
+      "type": "merged_paragraphs",
+      "detail": "Paragraphes très fusionnés: 45 vs 89 EN"
+    },
+    {
+      "chapter": 291,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Broken, Celestial, Chaotic, However"
+    },
+    {
+      "chapter": 293,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cauldron, Celestial, Demon, Gate"
+    },
+    {
+      "chapter": 309,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Even, Fellow, Soul, This, When"
+    },
+    {
+      "chapter": 323,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Just, Sword, That, There"
+    },
+    {
+      "chapter": 327,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Celestial, However, Realm, Sect, Sword"
+    },
+    {
+      "chapter": 351,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Chariot, However, Slaying, Soul"
+    },
+    {
+      "chapter": 357,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Little, This, Uncle"
+    },
+    {
+      "chapter": 373,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Mosquito, There, This"
+    },
+    {
+      "chapter": 380,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Core, Nascent, Refining"
+    },
+    {
+      "chapter": 383,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Core, From, However"
+    },
+    {
+      "chapter": 384,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Core, Flag, Once, Refining"
+    },
+    {
+      "chapter": 387,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, Mountain, Refining, This, With"
+    },
+    {
+      "chapter": 397,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Demon, Even, Giant, Kill"
+    },
+    {
+      "chapter": 398,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Boom, Demon, Even, Giant"
+    },
+    {
+      "chapter": 402,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Back, Demon, Giant"
+    },
+    {
+      "chapter": 404,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Demon, Giant, Little"
+    },
+    {
+      "chapter": 414,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Before, Sect, Soul"
+    },
+    {
+      "chapter": 419,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Demon, Forsaken, Giant"
+    },
+    {
+      "chapter": 420,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Boom, Butterfly, However, Refining"
+    },
+    {
+      "chapter": 436,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Corpse, Even, However, Nascent, Sect"
+    },
+    {
+      "chapter": 448,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Ruthless, Soul, This, Thousand"
+    },
+    {
+      "chapter": 450,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Crystal, However, Illusion, Lust"
+    },
+    {
+      "chapter": 457,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Crystal, However, Planet, There"
+    },
+    {
+      "chapter": 459,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Could, Crystal, However"
+    },
+    {
+      "chapter": 470,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cloud, However, Husband, Sect"
+    },
+    {
+      "chapter": 496,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Elder, Purple, Realm"
+    },
+    {
+      "chapter": 512,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brilliant, Golden, However, Soul"
+    },
+    {
+      "chapter": 516,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Demon, East, Greed"
+    },
+    {
+      "chapter": 526,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Inside, This"
+    },
+    {
+      "chapter": 542,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Battle, Demon, Soul, This"
+    },
+    {
+      "chapter": 567,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Ancient, Blood, Brother"
+    },
+    {
+      "chapter": 572,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, Come, Demon"
+    },
+    {
+      "chapter": 575,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Demon, Emperor, Inside"
+    },
+    {
+      "chapter": 586,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Didn, Master, This"
+    },
+    {
+      "chapter": 627,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Chief, Commander, Country"
+    },
+    {
+      "chapter": 637,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Abyss, Death, Demon, However, Sect"
+    },
+    {
+      "chapter": 648,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Abyss, After, Even, Finger, However"
+    },
+    {
+      "chapter": 654,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, Even, However"
+    },
+    {
+      "chapter": 656,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Demon, Even, Land, Spirit"
+    },
+    {
+      "chapter": 662,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Core, However, Star, System"
+    },
+    {
+      "chapter": 667,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Just, Star, System"
+    },
+    {
+      "chapter": 670,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Corpse, Even, Four, However"
+    },
+    {
+      "chapter": 677,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Brother, Celestial, Even, Forget"
+    },
+    {
+      "chapter": 682,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Celestial, However, Illusion"
+    },
+    {
+      "chapter": 701,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, Daoist, However"
+    },
+    {
+      "chapter": 732,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Beast, During, Finger, However"
+    },
+    {
+      "chapter": 752,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Even, However, Mountain, River, Screen"
+    },
+    {
+      "chapter": 780,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Celestial, Corporeal, However"
+    },
+    {
+      "chapter": 785,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Celestial, Realm, Some"
+    },
+    {
+      "chapter": 788,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Blood, Brother, Even"
+    },
+    {
+      "chapter": 815,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Beast, Chosen, Forsaken, Furnace"
+    },
+    {
+      "chapter": 824,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, Chop, Heavenly"
+    },
+    {
+      "chapter": 859,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Alas, Although, Aside, Celestial, Corporeal"
+    },
+    {
+      "chapter": 865,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Domain, However, Lord"
+    },
+    {
+      "chapter": 868,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, However, Qualified"
+    },
+    {
+      "chapter": 871,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, However, Then, This"
+    },
+    {
+      "chapter": 876,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, However, Master, Sealing"
+    },
+    {
+      "chapter": 878,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, However, Master, Sealing"
+    },
+    {
+      "chapter": 882,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Blood, Celestial, However, Master"
+    },
+    {
+      "chapter": 896,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Corpse, Dynasty, From, Great"
+    },
+    {
+      "chapter": 899,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bending, Corpse, Cultivator, Fellow"
+    },
+    {
+      "chapter": 900,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bird, Holy, Master, Planet"
+    },
+    {
+      "chapter": 903,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Devils, However, Planet, Star"
+    },
+    {
+      "chapter": 915,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Even, Hell, However"
+    },
+    {
+      "chapter": 921,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Even, However, There"
+    },
+    {
+      "chapter": 934,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Countless, Esteemed, However"
+    },
+    {
+      "chapter": 938,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Ancient, Even, However, Puppet"
+    },
+    {
+      "chapter": 939,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, Stop, Then, There, This"
+    },
+    {
+      "chapter": 943,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Heaven, Heavens, Realm, Sealed"
+    },
+    {
+      "chapter": 953,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Celestial, Crumble, Devil, Empty, Fantasy"
+    },
+    {
+      "chapter": 954,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Crumble, Emperor, However"
+    },
+    {
+      "chapter": 969,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Even, However, Rain, Sect, Summon"
+    },
+    {
+      "chapter": 975,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Dipper, Fate, Heavenly, However"
+    },
+    {
+      "chapter": 981,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, However, Master, There"
+    },
+    {
+      "chapter": 987,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Hollow, However, Master, Night"
+    },
+    {
+      "chapter": 996,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cleanser, Demon, East, Giant"
+    },
+    {
+      "chapter": 1003,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Demon, Emperor, However"
+    },
+    {
+      "chapter": 1004,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Celestial, However, Master"
+    },
+    {
+      "chapter": 1011,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Celestial, Demon, Even, Heaven, However"
+    },
+    {
+      "chapter": 1016,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Celestial, Demon, Desert"
+    },
+    {
+      "chapter": 1019,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Stop, Then, There"
+    },
+    {
+      "chapter": 1024,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Emperor, Even, However"
+    },
+    {
+      "chapter": 1030,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Celestial, Emperor, However, Realm, Spirit"
+    },
+    {
+      "chapter": 1077,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Bird, Celestial, Even, However, Master"
+    },
+    {
+      "chapter": 1079,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Demon, Even, However, Land"
+    },
+    {
+      "chapter": 1084,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Bird, Brilliant, Devil"
+    },
+    {
+      "chapter": 1085,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bird, Cave, Celestial, Corpse"
+    },
+    {
+      "chapter": 1086,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Demon, Emperor, Four"
+    },
+    {
+      "chapter": 1093,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bird, Celestial, Corpse, Emperor"
+    },
+    {
+      "chapter": 1094,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Battle, Celestial, Corpse"
+    },
+    {
+      "chapter": 1097,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Also, Although, Blight, Brilliant"
+    },
+    {
+      "chapter": 1106,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Crumbles, Even, However, Mountain, They"
+    },
+    {
+      "chapter": 1127,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, There, This"
+    },
+    {
+      "chapter": 1139,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Cloud, However, North"
+    },
+    {
+      "chapter": 1140,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Corporeal, Divine, However"
+    },
+    {
+      "chapter": 1141,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cloud, However, Origin, Pill"
+    },
+    {
+      "chapter": 1186,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cultivator, Fellow, However, Just"
+    },
+    {
+      "chapter": 1201,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, Master, Ones, Realm, Seven"
+    },
+    {
+      "chapter": 1203,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cleanser, Colored, Enlightened, However"
+    },
+    {
+      "chapter": 1223,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, Colored, Master, Realm"
+    },
+    {
+      "chapter": 1260,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cultivator, Even, Everlasting, Fellow"
+    },
+    {
+      "chapter": 1277,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, Colored, However, Nails, Rebirth"
+    },
+    {
+      "chapter": 1289,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, This, What, When"
+    },
+    {
+      "chapter": 1293,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Abyss, Become, Could, Demon, Even"
+    },
+    {
+      "chapter": 1328,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Even, Every, However, Scatter"
+    },
+    {
+      "chapter": 1329,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Core, However, Nascent"
+    },
+    {
+      "chapter": 1354,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Celestial, Cloud, Daoist, Heaven"
+    },
+    {
+      "chapter": 1379,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Armored, Break, Breaking, Emperor, Fire"
+    },
+    {
+      "chapter": 1385,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Blight, Cloud, Dark, Escape, Heaven"
+    },
+    {
+      "chapter": 1390,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cloud, Dark, Escape, Even"
+    },
+    {
+      "chapter": 1394,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Ancient, Bottle, Devil, Emperor"
+    },
+    {
+      "chapter": 1409,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Emperor, Grandmaster, However, Human, Just"
+    },
+    {
+      "chapter": 1452,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Desolation, Great, However"
+    },
+    {
+      "chapter": 1456,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Ancient, However, Master"
+    },
+    {
+      "chapter": 1471,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Even, However, Just, Open"
+    },
+    {
+      "chapter": 1482,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Blood, Celestial, Even, However"
+    },
+    {
+      "chapter": 1483,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, There, They, This"
+    },
+    {
+      "chapter": 1487,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Blood, Celestial, Even"
+    },
+    {
+      "chapter": 1495,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Ancestor, Celestial, Esteemed, Flames"
+    },
+    {
+      "chapter": 1517,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, Council, Flames, Heaven, Just"
+    },
+    {
+      "chapter": 1530,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, However, Order, Realm, Sealing"
+    },
+    {
+      "chapter": 1532,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, Cloud, Ghost, However, Inner"
+    },
+    {
+      "chapter": 1551,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Brilliant, Celestial, From, However, Mountain"
+    },
+    {
+      "chapter": 1555,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Black, Brother, Divine, Emperor, Even"
+    },
+    {
+      "chapter": 1557,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Black, Break, Colored, Divine"
+    },
+    {
+      "chapter": 1564,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Brilliant, Cloud, Cultivator"
+    },
+    {
+      "chapter": 1577,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Blood, Earth, Emperor, Foreign"
+    },
+    {
+      "chapter": 1621,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Bone, Flame, Gate, Gates, However"
+    },
+    {
+      "chapter": 1635,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Even, Fate, However, There"
+    },
+    {
+      "chapter": 1636,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Colored, Seven, There, They, This"
+    },
+    {
+      "chapter": 1644,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Azure, Black, Celestial"
+    },
+    {
+      "chapter": 1650,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, Inner, Just, Realm, There"
+    },
+    {
+      "chapter": 1665,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Brilliant, Cloud, However"
+    },
+    {
+      "chapter": 1668,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Colored, Daoist, Emperor, Furnace"
+    },
+    {
+      "chapter": 1684,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, Celestial, Colored, Daoist, Ghost"
+    },
+    {
+      "chapter": 1719,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Bird, Birds, Celestial, Master, Realm"
+    },
+    {
+      "chapter": 1729,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Beast, Brilliant, Element, Elements"
+    },
+    {
+      "chapter": 1730,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Earth, Elder, Element, Even"
+    },
+    {
+      "chapter": 1732,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Elements, Five, General, However, Just"
+    },
+    {
+      "chapter": 1734,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: General, Just, Sect, Such, They"
+    },
+    {
+      "chapter": 1735,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, General, However, There"
+    },
+    {
+      "chapter": 1755,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Celestial, Colored, Daoist, Ghost, However"
+    },
+    {
+      "chapter": 1766,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Colored, Daoist, Doors"
+    },
+    {
+      "chapter": 1781,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cloud, Heavenly, However, Seven"
+    },
+    {
+      "chapter": 1795,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Ancient, Aside, Emperor"
+    },
+    {
+      "chapter": 1816,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Cultivator, Fellow, Sect, This"
+    },
+    {
+      "chapter": 1838,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Arcane, Great, Heavenly, However"
+    },
+    {
+      "chapter": 1840,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Bull, Elder, Extreme, Heavenly, However"
+    },
+    {
+      "chapter": 1850,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Although, Bull, Celestial, Devil, Green"
+    },
+    {
+      "chapter": 1858,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancient, Devil, However, Soul, They"
+    },
+    {
+      "chapter": 1859,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bull, Devil, Elder, Even"
+    },
+    {
+      "chapter": 1880,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bull, Devil, During, Extreme"
+    },
+    {
+      "chapter": 1882,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Brother, Bull, Devil, Green"
+    },
+    {
+      "chapter": 1894,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Bead, Defying, Devil, During"
+    },
+    {
+      "chapter": 1895,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Devil, Green, However, This"
+    },
+    {
+      "chapter": 1913,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancestor, Celestial, Devil, Emperor, Great"
+    },
+    {
+      "chapter": 1918,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Although, Bull, Celestial, Devil"
+    },
+    {
+      "chapter": 1937,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, Mountain, There, This, Tree"
+    },
+    {
+      "chapter": 1938,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Celestial, Empyrean, However"
+    },
+    {
+      "chapter": 1947,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Bead, Celestial, Colored, Defying, Empyrean"
+    },
+    {
+      "chapter": 1972,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Mansion, There, They, This"
+    },
+    {
+      "chapter": 1989,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancestor, Bull, Celestial, Heavenly, Imperial"
+    },
+    {
+      "chapter": 1990,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Ancient, Celestial, However"
+    },
+    {
+      "chapter": 1991,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Celestial, Emperor, Imperial"
+    },
+    {
+      "chapter": 2002,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancestor, Ancient, Celestial, Empyrean"
+    },
+    {
+      "chapter": 2022,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Emperor, Empress, However, This"
+    },
+    {
+      "chapter": 2045,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, However, Teacher, There, This"
+    },
+    {
+      "chapter": 2051,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: Ancestor, Celestial, Empyrean, Empyreans, However"
+    },
+    {
+      "chapter": 2070,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: However, King, They, This, Time"
+    },
+    {
+      "chapter": 2080,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Celestial, However, Only, Realm"
+    },
+    {
+      "chapter": 2088,
+      "severity": "medium",
+      "type": "names_missing_in_both_fr",
+      "detail": "Noms EN absents des deux FR: After, Ancient, Bead, Boundary, Compass"
+    }
+  ]
+}

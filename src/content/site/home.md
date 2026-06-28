@@ -13,11 +13,11 @@ Sorti de son village avec rien d'autre qu'un héritage brisé et une volonté de
 
 Parmi les sectes qui s'effondrent, les clans ancestraux et les guerres entre Immortels, sa route n'est jamais droite. Il tue pour protéger ce qu'il aime. Il trahit pour survivre. Il attend, pendant des siècles, ce que d'autres ont oublié.
 
-*Renegade Immortal* (仙逆) est l'un des monuments du xianxia moderne : une fresque de 2084 chapitres où chaque transgression a un prix, et où la vraie immortalité n'est jamais celle qu'on croit.
+*Renegade Immortal* (仙逆) est l'un des monuments du xianxia moderne : une fresque de 2088 chapitres où chaque transgression a un prix, et où la vraie immortalité n'est jamais celle qu'on croit.
 
 ## Chiffres clés
 
-- **2084** chapitres
+- **2088** chapitres
 - **13** tomes
 - **2005** personnages
 - **87** lieux
