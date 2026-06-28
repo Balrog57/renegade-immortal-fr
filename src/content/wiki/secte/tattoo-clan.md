@@ -1,35 +1,36 @@
----
+﻿---
 name: Clan du Tatouage
 title: Clan du Tatouage
 type: secte
-categories: ["Organisations", "Clans", "Clans Anciens", "Planète Suzaku", "Système Stellaire Alliance", "Western Domain", "Système Stellaire Allheaven", "Royaume Scellé"]
+image: /renegade-immortal-fr/wiki/images/Tattoo_Clan.png
+categories: ["Organisations", "Clans", "Clans Anciens", "PlanÃ¨te Suzaku", "SystÃ¨me Stellaire Alliance", "Western Domain", "SystÃ¨me Stellaire Allheaven", "Royaume ScellÃ©"]
 url: "https://xian-ni.fandom.com/wiki/Tattoo_Clan"
-sections: ["{\"heading\":\"Planète Suzaku\",\"body\":\"Sur Suzaku, il existe une tribu appelée le **Clan de l'Immortel Banni** (Forsaken Immortal Clan). Cette branche fut créée par **Tuo Sen**. Lorsque les sauvages de Suzaku le virent pour la première fois, ils le prirent pour un dieu et commencèrent à l'adorer. Tuo Sen leur donna la méthode de cultivation du **Clan du Tatouage** (Tattoo Clan).\"}", "{\"heading\":\"Système Stellaire d'Allheaven\",\"body\":\"Dans le **Domaine Ouest** (Western Domain), aussi connu sous le nom de **Domaine Étrange** (Strange Domain), se trouve une tribu appelée le **Clan de l'Immortel Élu** (Chosen Immortal Clan) qui pratique la même méthode de cultivation que le Clan de l'Immortel Banni de la Planète Suzaku. Les membres de cette tribu étaient sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree) et avaient pour rôle de garder le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast).\"}"]
+sections: ["{\"heading\":\"PlanÃ¨te Suzaku\",\"body\":\"Sur Suzaku, il existe une tribu appelÃ©e le **Clan de l'Immortel Banni** (Forsaken Immortal Clan). Cette branche fut crÃ©Ã©e par **Tuo Sen**. Lorsque les sauvages de Suzaku le virent pour la premiÃ¨re fois, ils le prirent pour un dieu et commencÃ¨rent Ã  l'adorer. Tuo Sen leur donna la mÃ©thode de cultivation du **Clan du Tatouage** (Tattoo Clan).\"}", "{\"heading\":\"SystÃ¨me Stellaire d'Allheaven\",\"body\":\"Dans le **Domaine Ouest** (Western Domain), aussi connu sous le nom de **Domaine Ã‰trange** (Strange Domain), se trouve une tribu appelÃ©e le **Clan de l'Immortel Ã‰lu** (Chosen Immortal Clan) qui pratique la mÃªme mÃ©thode de cultivation que le Clan de l'Immortel Banni de la PlanÃ¨te Suzaku. Les membres de cette tribu Ã©taient sous l'autoritÃ© du **Roi CÃ©leste Insouciant** (Celestial King Carefree) et avaient pour rÃ´le de garder le **Four Yin MystÃ©rieux** (Mysterious Yin Furnace) Ã  l'intÃ©rieur de la **BÃªte des Enfers** (Nether Beast).\"}"]
 ---
 
 ## Description
 
-Le **Clan du Tatouage** (Tattoo Clan) est un clan antique dont la méthode de cultivation repose sur le pouvoir des tatouages. Il est étroitement lié au **Clan de l'Immortel Banni** (Forsaken Immortal Clan) de la Planète Suzaku et au **Clan de l'Immortel Élu** (Chosen Immortal Clan) du Domaine Ouest du Système Stellaire d'Allheaven.
+Le **Clan du Tatouage** (Tattoo Clan) est un clan antique dont la mÃ©thode de cultivation repose sur le pouvoir des tatouages. Il est Ã©troitement liÃ© au **Clan de l'Immortel Banni** (Forsaken Immortal Clan) de la PlanÃ¨te Suzaku et au **Clan de l'Immortel Ã‰lu** (Chosen Immortal Clan) du Domaine Ouest du SystÃ¨me Stellaire d'Allheaven.
 
-Sur la Planète Suzaku, la branche du Clan du Tatouage fut créée par **Tuo Sen** : les sauvages le prirent pour un dieu et reçurent de lui la méthode de cultivation par tatouages. Dans le Système Stellaire d'Allheaven, une tribu apparentée — le Clan de l'Immortel Élu — pratique la même méthode et garde le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast), sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree).
+Sur la PlanÃ¨te Suzaku, la branche du Clan du Tatouage fut crÃ©Ã©e par **Tuo Sen** : les sauvages le prirent pour un dieu et reÃ§urent de lui la mÃ©thode de cultivation par tatouages. Dans le SystÃ¨me Stellaire d'Allheaven, une tribu apparentÃ©e â€” le Clan de l'Immortel Ã‰lu â€” pratique la mÃªme mÃ©thode et garde le **Four Yin MystÃ©rieux** (Mysterious Yin Furnace) Ã  l'intÃ©rieur de la **BÃªte des Enfers** (Nether Beast), sous l'autoritÃ© du **Roi CÃ©leste Insouciant** (Celestial King Carefree).
 
-### Fiche signalétique
+### Fiche signalÃ©tique
 
 - **Nom :** Clan du Tatouage (Tattoo Clan)
-- **Méthode de cultivation :** Tatouages (power of tattoos)
-- **Branches :** Clan de l'Immortel Banni (Planète Suzaku), Clan de l'Immortel Élu (Domaine Ouest, Allheaven)
-- **Créateur de la branche de Suzaku :** Tuo Sen
-- **Autorité (branche d'Allheaven) :** Roi Céleste Insouciant (Celestial King Carefree)
-- **Mission (branche d'Allheaven) :** Garder le Four Yin Mystérieux dans la Bête des Enfers
-- **Systèmes stellaires :** Système Stellaire de l'Alliance, Système Stellaire d'Allheaven
+- **MÃ©thode de cultivation :** Tatouages (power of tattoos)
+- **Branches :** Clan de l'Immortel Banni (PlanÃ¨te Suzaku), Clan de l'Immortel Ã‰lu (Domaine Ouest, Allheaven)
+- **CrÃ©ateur de la branche de Suzaku :** Tuo Sen
+- **AutoritÃ© (branche d'Allheaven) :** Roi CÃ©leste Insouciant (Celestial King Carefree)
+- **Mission (branche d'Allheaven) :** Garder le Four Yin MystÃ©rieux dans la BÃªte des Enfers
+- **SystÃ¨mes stellaires :** SystÃ¨me Stellaire de l'Alliance, SystÃ¨me Stellaire d'Allheaven
 - **Domaine :** Domaine Ouest (Western Domain / Strange Domain)
 - **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
+- **Royaume :** Royaume ScellÃ©
 
-## Planète Suzaku
+## PlanÃ¨te Suzaku
 
-Sur Suzaku, il existe une tribu appelée le **Clan de l'Immortel Banni** (Forsaken Immortal Clan). Cette branche fut créée par **Tuo Sen**. Lorsque les sauvages de Suzaku le virent pour la première fois, ils le prirent pour un dieu et commencèrent à l'adorer. Tuo Sen leur donna la méthode de cultivation du **Clan du Tatouage** (Tattoo Clan).
+Sur Suzaku, il existe une tribu appelÃ©e le **Clan de l'Immortel Banni** (Forsaken Immortal Clan). Cette branche fut crÃ©Ã©e par **Tuo Sen**. Lorsque les sauvages de Suzaku le virent pour la premiÃ¨re fois, ils le prirent pour un dieu et commencÃ¨rent Ã  l'adorer. Tuo Sen leur donna la mÃ©thode de cultivation du **Clan du Tatouage** (Tattoo Clan).
 
-## Système Stellaire d'Allheaven
+## SystÃ¨me Stellaire d'Allheaven
 
-Dans le **Domaine Ouest** (Western Domain), aussi connu sous le nom de **Domaine Étrange** (Strange Domain), se trouve une tribu appelée le **Clan de l'Immortel Élu** (Chosen Immortal Clan) qui pratique la même méthode de cultivation que le Clan de l'Immortel Banni de la Planète Suzaku. Les membres de cette tribu étaient sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree) et avaient pour rôle de garder le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast).
+Dans le **Domaine Ouest** (Western Domain), aussi connu sous le nom de **Domaine Ã‰trange** (Strange Domain), se trouve une tribu appelÃ©e le **Clan de l'Immortel Ã‰lu** (Chosen Immortal Clan) qui pratique la mÃªme mÃ©thode de cultivation que le Clan de l'Immortel Banni de la PlanÃ¨te Suzaku. Les membres de cette tribu Ã©taient sous l'autoritÃ© du **Roi CÃ©leste Insouciant** (Celestial King Carefree) et avaient pour rÃ´le de garder le **Four Yin MystÃ©rieux** (Mysterious Yin Furnace) Ã  l'intÃ©rieur de la **BÃªte des Enfers** (Nether Beast).

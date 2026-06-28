@@ -1,41 +1,42 @@
----
+﻿---
 name: Secte Xuan Dao
 title: Secte Xuan Dao
 type: secte
-categories: ["Sectes", "Organisations", "Pays de Zhao", "Royaume Scellé", "Monde de la Grotte de Wang Lin", "Planète Suzaku", "Système Stellaire Alliance"]
+image: /renegade-immortal-fr/wiki/images/Xuan_Dao_Sect.png
+categories: ["Sectes", "Organisations", "Pays de Zhao", "Royaume ScellÃ©", "Monde de la Grotte de Wang Lin", "PlanÃ¨te Suzaku", "SystÃ¨me Stellaire Alliance"]
 url: "https://xian-ni.fandom.com/wiki/Xuan_Dao_Sect"
-sections: ["{\"heading\":\"Histoire\",\"body\":\"La **Secte Xuan Dao** (玄道宗, *Xuán Dào Zōng*) est l'une des principales sectes du **Pays de Zhao**, un pays de cultivation de rang 3 situé sur la **Planète Suzaku**. Son chef de secte, **Punan Zi** (aussi orthographié Punnan Zi), est un cultivateur au stade de l'**Âme Naissante** (Nascent Soul).\\n\\nAprès la mort des ancêtres au stade de l'Âme Naissante de la **Secte Heng Yue**, la Secte Xuan Dao prit de force le contrôle de la **Montagne Heng Yue** et du territoire de la Secte Heng Yue.\\n\\nLa secte est affiliée à la Secte Heng Yue et possède un ancêtre nommé **Punan Zi**, un chef de secte nommé **Ouyang**, un ancien nommé **Qin Gu Lei**, ainsi qu'un disciple de la jeune génération nommé **Xu Mu**. Parmi ses membres notables figurent **Chang Hao** et **Xu Fei**, tandis que **Zhou Peng** en est un ancien membre.\"}"]
+sections: ["{\"heading\":\"Histoire\",\"body\":\"La **Secte Xuan Dao** (çŽ„é“å®—, *XuÃ¡n DÃ o ZÅng*) est l'une des principales sectes du **Pays de Zhao**, un pays de cultivation de rang 3 situÃ© sur la **PlanÃ¨te Suzaku**. Son chef de secte, **Punan Zi** (aussi orthographiÃ© Punnan Zi), est un cultivateur au stade de l'**Ã‚me Naissante** (Nascent Soul).\\n\\nAprÃ¨s la mort des ancÃªtres au stade de l'Ã‚me Naissante de la **Secte Heng Yue**, la Secte Xuan Dao prit de force le contrÃ´le de la **Montagne Heng Yue** et du territoire de la Secte Heng Yue.\\n\\nLa secte est affiliÃ©e Ã  la Secte Heng Yue et possÃ¨de un ancÃªtre nommÃ© **Punan Zi**, un chef de secte nommÃ© **Ouyang**, un ancien nommÃ© **Qin Gu Lei**, ainsi qu'un disciple de la jeune gÃ©nÃ©ration nommÃ© **Xu Mu**. Parmi ses membres notables figurent **Chang Hao** et **Xu Fei**, tandis que **Zhou Peng** en est un ancien membre.\"}"]
 ---
 
 ## Description
 
-La **Secte Xuan Dao** (玄道宗, *Xuán Dào Zōng*) est l'une des plus puissantes sectes du **Pays de Zhao**, un pays de cultivation de rang 3 de la **Planète Suzaku**. Elle est dirigée par **Punan Zi**, un cultivateur ayant atteint le stade de l'**Âme Naissante** (Nascent Soul).
+La **Secte Xuan Dao** (çŽ„é“å®—, *XuÃ¡n DÃ o ZÅng*) est l'une des plus puissantes sectes du **Pays de Zhao**, un pays de cultivation de rang 3 de la **PlanÃ¨te Suzaku**. Elle est dirigÃ©e par **Punan Zi**, un cultivateur ayant atteint le stade de l'**Ã‚me Naissante** (Nascent Soul).
 
-La secte tire son importance de sa position dominante dans la région : après la disparition des ancêtres de l'Âme Naissante de la **Secte Heng Yue**, elle s'empara de la Montagne Heng Yue et de son territoire, consolidant ainsi son emprise sur le Pays de Zhao.
+La secte tire son importance de sa position dominante dans la rÃ©gion : aprÃ¨s la disparition des ancÃªtres de l'Ã‚me Naissante de la **Secte Heng Yue**, elle s'empara de la Montagne Heng Yue et de son territoire, consolidant ainsi son emprise sur le Pays de Zhao.
 
-### Fiche signalétique
+### Fiche signalÃ©tique
 
-- **Nom chinois :** 玄道宗
-- **Pinyin :** Xuán Dào Zōng
+- **Nom chinois :** çŽ„é“å®—
+- **Pinyin :** XuÃ¡n DÃ o ZÅng
 - **Statut :** Existe
 - **Type :** Secte
 - **Affiliation :** Secte Heng Yue
-- **Ancêtre :** Punan Zi
+- **AncÃªtre :** Punan Zi
 - **Chef de secte :** Ouyang
 - **Anciens :** Qin Gu Lei
-- **Jeune génération :** Xu Mu
+- **Jeune gÃ©nÃ©ration :** Xu Mu
 - **Membres notables :** Chang Hao, Xu Fei
 - **Anciens membres :** Zhou Peng
-- **Système stellaire :** Système Stellaire de l'Alliance
+- **SystÃ¨me stellaire :** SystÃ¨me Stellaire de l'Alliance
 - **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
-- **Planète :** Planète Suzaku
+- **Royaume :** Royaume ScellÃ©
+- **PlanÃ¨te :** PlanÃ¨te Suzaku
 - **Pays :** Pays de Zhao
 
 ## Histoire
 
-La **Secte Xuan Dao** (玄道宗, *Xuán Dào Zōng*) est l'une des principales sectes du **Pays de Zhao**, un pays de cultivation de rang 3 situé sur la **Planète Suzaku**. Son chef de secte, **Punan Zi** (aussi orthographié Punnan Zi), est un cultivateur au stade de l'**Âme Naissante** (Nascent Soul).
+La **Secte Xuan Dao** (çŽ„é“å®—, *XuÃ¡n DÃ o ZÅng*) est l'une des principales sectes du **Pays de Zhao**, un pays de cultivation de rang 3 situÃ© sur la **PlanÃ¨te Suzaku**. Son chef de secte, **Punan Zi** (aussi orthographiÃ© Punnan Zi), est un cultivateur au stade de l'**Ã‚me Naissante** (Nascent Soul).
 
-Après la mort des ancêtres au stade de l'Âme Naissante de la **Secte Heng Yue**, la Secte Xuan Dao prit de force le contrôle de la **Montagne Heng Yue** et du territoire de la Secte Heng Yue.
+AprÃ¨s la mort des ancÃªtres au stade de l'Ã‚me Naissante de la **Secte Heng Yue**, la Secte Xuan Dao prit de force le contrÃ´le de la **Montagne Heng Yue** et du territoire de la Secte Heng Yue.
 
-La secte est affiliée à la Secte Heng Yue et possède un ancêtre nommé **Punan Zi**, un chef de secte nommé **Ouyang**, un ancien nommé **Qin Gu Lei**, ainsi qu'un disciple de la jeune génération nommé **Xu Mu**. Parmi ses membres notables figurent **Chang Hao** et **Xu Fei**, tandis que **Zhou Peng** en est un ancien membre.
+La secte est affiliÃ©e Ã  la Secte Heng Yue et possÃ¨de un ancÃªtre nommÃ© **Punan Zi**, un chef de secte nommÃ© **Ouyang**, un ancien nommÃ© **Qin Gu Lei**, ainsi qu'un disciple de la jeune gÃ©nÃ©ration nommÃ© **Xu Mu**. Parmi ses membres notables figurent **Chang Hao** et **Xu Fei**, tandis que **Zhou Peng** en est un ancien membre.
