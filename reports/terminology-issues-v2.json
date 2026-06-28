@@ -1,0 +1,1922 @@
+{
+  "total_chapters_audited": 50,
+  "chapters_with_issues": 39,
+  "total_issues": 233,
+  "issues_by_term": {
+    "soul": 110,
+    "demon": 44,
+    "devil": 39,
+    "ancient": 20,
+    "divine retribution": 14,
+    "bloodline": 3,
+    "divine sense": 1,
+    "spiritual jade": 1,
+    "cultivator": 1
+  },
+  "details": [
+    {
+      "chapter": 1517,
+      "file": "src\\content\\chapters\\tome-10\\1517-briser-la-formation.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6705,
+          "context": " Dream, de sa cultivation et liée à son esprit, contenait de puissantes Flammes Joss. "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6931,
+          "context": "ressentait un froid glacial envahir son esprit. Même en activant leur cultivation, ils"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 2948,
+          "context": "nu superviser la bataille... » Une voix antique émana du palais noir. Cette voix libéra"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 7990,
+          "context": "ontinent y flottait, dégageant une aura antique dont nul ne connaissait l'origine.  Une"
+        }
+      ]
+    },
+    {
+      "chapter": 305,
+      "file": "src\\content\\chapters\\tome-4\\0305-les-ames-errantes-revelent-leur-puissance.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1355,
+          "context": "ce brillait dans son regard. C'était le démon Xu Liguo.  Il se sentait extrêmement fi"
+        },
+        {
+          "term_en": "divine sense",
+          "canonical": "sens divin",
+          "found": "perception divine",
+          "position": 9312,
+          "context": "ade contenait une image enregistrée par perception divine : la scène d'un lieu d'une beauté subli"
+        }
+      ]
+    },
+    {
+      "chapter": 1986,
+      "file": "src\\content\\chapters\\tome-12\\1986-croyez-moi-une-fois.md",
+      "issue_count": 5,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5321,
+          "context": "s.  « A-t-il perdu la raison ? »  « Son esprit a déjà été effacé par l'Empereur Célest"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 7958,
+          "context": " Impérial sonnait comme celle d'un être antique.  Wang Lin réfléchit un instant, puis a"
+        },
+        {
+          "term_en": "bloodline",
+          "canonical": "lignée",
+          "found": "lignage",
+          "position": 984,
+          "context": "ant Empyrean Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà dev"
+        },
+        {
+          "term_en": "bloodline",
+          "canonical": "lignée",
+          "found": "lignage",
+          "position": 1096,
+          "context": " Ascendants après vous. S'il obtient ce lignage, son niveau de cultivation augmentera d"
+        },
+        {
+          "term_en": "bloodline",
+          "canonical": "lignée",
+          "found": "lignage",
+          "position": 1425,
+          "context": " d'extraire avec succès tout son propre lignage pour être transformé en celui de l'Ancê"
+        }
+      ]
+    },
+    {
+      "chapter": 1834,
+      "file": "src\\content\\chapters\\tome-12\\1834-le-desir-de-fouler-le-ciel-limpide.md",
+      "issue_count": 6,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1013,
+          "context": "el au-dessus d'elle et fixa Wang Lin, l'esprit troublé par la nervosité.  Elle ressent"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4913,
+          "context": "« C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Grand Secte de l'"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6385,
+          "context": "ffrait dans son corps et bombardait son esprit.  « Recule ! »  « Recule !! »  « Recule"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6521,
+          "context": "x mots, ils résonnaient sans fin dans l'esprit de Wang Lin. C'était comme si des centa"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9748,
+          "context": "sence, mais désormais, la voix dans son esprit s'était intensifiée de plusieurs crans "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9846,
+          "context": "!! »  Le rugissement résonnait dans son esprit et continuait de marteler son âme origi"
+        }
+      ]
+    },
+    {
+      "chapter": 1771,
+      "file": "src\\content\\chapters\\tome-11\\1771-osez-vous-me-combattre-de-front.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2143,
+          "context": "ments tonitruants résonnèrent dans leur esprit, comme s'ils s'étaient mutuellement att"
+        }
+      ]
+    },
+    {
+      "chapter": 1119,
+      "file": "src\\content\\chapters\\tome-8\\1119-silencieusement.md",
+      "issue_count": 18,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4057,
+          "context": " votre propre force. C'est simplement l'esprit de Qing Lin qui coopère avec vous et lu"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7223,
+          "context": "s de mille ans... Pourtant, tu étais un esprit malfaisant, et marcher sur le chemin du"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8524,
+          "context": "eur était un poison qui envahissait son esprit et détruisait tout sur son passage !  «"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9756,
+          "context": "ui.  « Moi, Wang Lin, j'ai vécu avec un esprit indomptable. Bien que j'aie commis des "
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 6931,
+          "context": " !  « Ton nom est Wang Lin ! » Une voix antique résonna à travers le monde. À l'instant"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 50,
+          "context": "es cinq étoiles se brisèrent, l'énergie démoniaque à l'intérieur de l'Ancien Démon Ta Jia "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 172,
+          "context": "iles précédentes, la quantité d'énergie démoniaque que possédait Ta Jia s'approcha infinim"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 1396,
+          "context": "re ! » rugit Ta Jia, et toute l'énergie démoniaque derrière lui changea soudainement de co"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 1862,
+          "context": " surgissait entre ses sourcils. Son âme démoniaque s'élança dans l'objet de diamant, le fa"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 4860,
+          "context": " désirait, mais en raison de l'invasion démoniaque, aucune de ces altérations ne pouvait a"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6234,
+          "context": "s airs. Il ouvrit les bras et l'énergie démoniaque enveloppa son corps avant que celui-ci "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6447,
+          "context": " puis son corps s'effondra. Une énergie démoniaque dense recouvrit la voûte céleste et, en"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 255,
+          "context": "infiniment de celle qu'aurait un ancien démon à neuf étoiles !  À cet instant, Ta Jia"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3917,
+          "context": "lentement de la brume. Il fixa l'ancien démon, dont le regard était empreint de déses"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 4270,
+          "context": "et non dans cette mer de conscience, ce démon pourrait vous tuer aussi facilement qu'"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 4733,
+          "context": "e Qing Lin ait été occupée par l'ancien démon, elle lui appartenait toujours. Il pouv"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 5945,
+          "context": "une expression féroce.  « Cependant, ce démon possède un dernier sort. J'utiliserai l"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 6030,
+          "context": "es derniers instants de ma vie d'ancien démon pour déployer le plus puissant des sort"
+        }
+      ]
+    },
+    {
+      "chapter": 1545,
+      "file": "src\\content\\chapters\\tome-10\\1545-les-trois-tresors.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6426,
+          "context": "ait inquiet. Après tout, le fou avait l'esprit d'un enfant. Bien qu'il possédât un cor"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8112,
+          "context": "lus besoin de moi ! Bien que je sois un esprit d'épée, j'ai accompli de grands mérites"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9800,
+          "context": " haha ! Petit Rouge, viens voir ça. Cet esprit d'épée croit ne pas être une petite fil"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 8167,
+          "context": "j'ai accompli de grands mérites pour un démon comme toi. Tu ne peux pas me traiter ai"
+        }
+      ]
+    },
+    {
+      "chapter": 1537,
+      "file": "src\\content\\chapters\\tome-10\\1537-le-corps-du-clan-celeste-immortel.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1521,
+          "context": "ortune n'était pas encore terminée !  L'esprit de Wang Lin était clair, mais il restai"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6645,
+          "context": "it de le contempler pouvait perdre tout esprit.  Ce glyphe exhalait l'aura de l'origin"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10485,
+          "context": "s furent agités de spasmes rapides. Son esprit rugissait ; il sentait distinctement le"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 6558,
+          "context": "pparut sur la plaie, dégageant une aura antique d'une complexité telle que le simple fa"
+        }
+      ]
+    },
+    {
+      "chapter": 1798,
+      "file": "src\\content\\chapters\\tome-12\\1798-lavatar-le-plus-puissant-du-futur.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2478,
+          "context": "ous la forme d'un cadavre.  Le simple d'esprit Roi-Moustique ne pouvait l'accepter. Il"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9993,
+          "context": "-ce que c'est... » Pendant un moment, l'esprit de Wang Lin fut plongé dans la confusio"
+        }
+      ]
+    },
+    {
+      "chapter": 343,
+      "file": "src\\content\\chapters\\tome-4\\0343-pays-de-suzaku.md",
+      "issue_count": 7,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 868,
+          "context": "cipline Red Butterfly, je t'ai offert l'esprit de la mer orientale pour que ton bras r"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7035,
+          "context": "ourdissant jaillit du char tandis que l'esprit de la bête apparaissait.  C'était l'esp"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7078,
+          "context": "rit de la bête apparaissait.  C'était l'esprit le plus faible des trois chars. Bien qu"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7471,
+          "context": "sur le piège à bêtes. Puis, il pointa l'esprit du char. Les symboles du piège tremblèr"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7629,
+          "context": "a à tournoyer autour de la créature.  L'esprit poussa de nombreux rugissements en tent"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8454,
+          "context": " apparut sur le bracelet, identique à l'esprit du char. Simultanément, le char de guer"
+        },
+        {
+          "term_en": "spiritual jade",
+          "canonical": "jade spirituel",
+          "found": "pierre spirituelle",
+          "position": 9664,
+          "context": " était assez puissante pour épuiser une pierre spirituelle de qualité supérieure... Char de guerre"
+        }
+      ]
+    },
+    {
+      "chapter": 1460,
+      "file": "src\\content\\chapters\\tome-9\\1460-quatre-joies.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3512,
+          "context": "Maître Dao Miao Yin se projeta dans son esprit.  Cette jeune fille étant proche du Maî"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6342,
+          "context": "et il commença une recherche d'âme. Son esprit s'effondra sans opposer la moindre rési"
+        }
+      ]
+    },
+    {
+      "chapter": 205,
+      "file": "src\\content\\chapters\\tome-4\\0205-lame-naissante-au-sein-de-gui-xi.md",
+      "issue_count": 15,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3101,
+          "context": "té à lever la restriction, car dans son esprit, le niveau de cultivation de Wang Lin a"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 4706,
+          "context": "a : « C'est bel et bien une restriction antique ! », mais son expression resta impassib"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 6225,
+          "context": "onna : « C'est vraiment une restriction antique ! Je n'aurais jamais cru que quelqu'un "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 872,
+          "context": "rvait la scène de loin, grâce au second démon. Il ricana de nouveau et son corps se m"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1015,
+          "context": "dans leur sillage.  À travers le second démon, Wang Lin put constater que l'homme en "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 2206,
+          "context": "l pointa son doigt vers son front et le démon Xu Liguo apparut.  Une fois présent, Xu"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 8334,
+          "context": "ues, qui chargèrent la bête.  Le second démon fut bloqué par le brouillard noir devan"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 8534,
+          "context": "es soldats et tombèrent en pluie sur le démon.  Mais cette bête était le second démon"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 8574,
+          "context": "démon.  Mais cette bête était le second démon de Wang Lin. Bien qu'elle ne fût pas ex"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 8782,
+          "context": "lle avait failli s'échapper.  Le second démon n'hésita pas et engloutit le noyau de Y"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 10243,
+          "context": "e passerai à l'offensive ! »  Le second démon laissa échapper un rire. Les corps qu'i"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 11112,
+          "context": "elle allait percuter l'objet, le second démon poussa un rugissement et l'attaque se d"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 12071,
+          "context": " de brume.  Pendant ce temps, le second démon poussa un rire et s'élança, fusionnant "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 13661,
+          "context": "ang Lin agita sa main droite. Le second démon sortit du tourbillon et resta immobile "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 14300,
+          "context": "este calme pour faire revenir le second démon vers lui. Soudain, des éclairs rouges j"
+        }
+      ]
+    },
+    {
+      "chapter": 1109,
+      "file": "src\\content\\chapters\\tome-8\\1109-la-mort-du-divin-empereur.md",
+      "issue_count": 3,
+      "issues": [
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 6826,
+          "context": " famille possédant un héritage du monde antique de la cultivation vint d'Allheaven pour"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 9559,
+          "context": "t forcé à comprendre l'intention d'épée antique. Son niveau de cultivation avait progre"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 9335,
+          "context": "ace à une colère contenue.  « Espèce de démon assassin, tu te souviens enfin de ton G"
+        }
+      ]
+    },
+    {
+      "chapter": 530,
+      "file": "src\\content\\chapters\\tome-6\\0530-sort-de-recherche-dame.md",
+      "issue_count": 5,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9229,
+          "context": "ste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 3176,
+          "context": " d'où s'échappait lentement une énergie démoniaque. Sa haine envers Wang Lin grandissait j"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 7235,
+          "context": "sormais et l'onde d'énergie spirituelle démoniaque qui avait duré toute la nuit se dissipa"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 8641,
+          "context": "irectement : « Qu'est-ce que le cristal démoniaque ? »  L'âme originelle ricana : « Homme "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 11619,
+          "context": "éressantes, et les sorts de restriction démoniaque dans les souvenirs de Lou Yun pourraien"
+        }
+      ]
+    },
+    {
+      "chapter": 27,
+      "file": "src\\content\\chapters\\tome-1\\0027-visite.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3606,
+          "context": "ondensation de Qi se déployait dans son esprit.  Outre les lois régissant chacune des "
+        }
+      ]
+    },
+    {
+      "chapter": 2068,
+      "file": "src\\content\\chapters\\tome-13\\2068-bonheur-et-responsabilite.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6989,
+          "context": "les résonnaient encore longtemps dans l'esprit du chien.  Le Continent Central du clan"
+        }
+      ]
+    },
+    {
+      "chapter": 1122,
+      "file": "src\\content\\chapters\\tome-8\\1122-zhou-ru.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 6804,
+          "context": "u'il parût jeune, il dégageait une aura antique. Il était évident que son apparence juv"
+        },
+        {
+          "term_en": "cultivator",
+          "canonical": "cultivateur",
+          "found": "cultivant",
+          "position": 9241,
+          "context": " était assise au sommet d'une montagne, cultivant dans le Royaume du Vide Brillant. Littl"
+        }
+      ]
+    },
+    {
+      "chapter": 784,
+      "file": "src\\content\\chapters\\tome-7\\0784-le-pavillon-des-collections.md",
+      "issue_count": 3,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1403,
+          "context": "Lin était encore en état de transe, son esprit captivé par la scène prodigieuse qu'il "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2718,
+          "context": " cuir chevelu en fut engourdi. Dans son esprit, il comprit que ce vent noir allait lui"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6595,
+          "context": "le moins à un sort céleste qu'à un sort démoniaque ! De plus, ce sort exige trop d'énergie"
+        }
+      ]
+    },
+    {
+      "chapter": 529,
+      "file": "src\\content\\chapters\\tome-6\\0529-efface.md",
+      "issue_count": 13,
+      "issues": [
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 1356,
+          "context": " vague incessante d'énergie spirituelle démoniaque jaillit de son corps. À cet instant, l'"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 1426,
+          "context": "s. À cet instant, l'énergie spirituelle démoniaque se propagea avec frénésie.  Privée du c"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 3236,
+          "context": "ssant, chargé d'une énergie spirituelle démoniaque infinie !  Doigt Démoniaque !  L'expres"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 3741,
+          "context": "es centimètres !  L'énergie spirituelle démoniaque de Wang Lin jaillit du bout de son doig"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 4026,
+          "context": "ement composée de l'énergie spirituelle démoniaque de Wang Lin, tandis que l'énergie noire"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 4996,
+          "context": "se convertissant en énergie spirituelle démoniaque pour être injectée dans la sphère.  Qua"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 5152,
+          "context": "t insuffler toute l'énergie spirituelle démoniaque accumulée jusqu'ici dans la sphère, car"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6883,
+          "context": " à travers l'onde d'énergie spirituelle démoniaque et disparut à l'horizon.  Les âmes prim"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 7532,
+          "context": "isa toute l'énergie spirituelle céleste démoniaque qu'il avait cultivée selon la méthode d"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 7733,
+          "context": "90 % de son énergie spirituelle céleste démoniaque dans la sphère. À cet instant, le rugis"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 8020,
+          "context": "Alors que l'énergie spirituelle céleste démoniaque de l'homme pénétrait dans la sphère, il"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 10797,
+          "context": "isé toute l'énergie spirituelle céleste démoniaque de son corps, le rendant incapable d'es"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 7959,
+          "context": "inaire, mais la légendaire foudre de la rétribution divine.  Alors que l'énergie spirituelle céles"
+        }
+      ]
+    },
+    {
+      "chapter": 2051,
+      "file": "src\\content\\chapters\\tome-13\\2051-le-dixieme-soleil.md",
+      "issue_count": 10,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1104,
+          "context": "aille, il fut totalement stupéfait. Son esprit devint un vide absolu, et il ne put pen"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 726,
+          "context": "e similaire.  « C'est impossible ! » Le démon ancestral, qui contenait une parcelle d"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1034,
+          "context": "traite de cultivation.  Au moment où le démon ancestral sortit de la faille, il fut t"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1316,
+          "context": "ne se souciait guère de l'apparition du démon ancestral et ne lui jeta même pas un re"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 2424,
+          "context": "le Grand Empereur Gu Dao !  Au loin, le démon ancestral imprégné du Sens Divin de Son"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3072,
+          "context": "sant.  Cependant, juste au moment où le démon ancestral atteignait la faille et s'app"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3238,
+          "context": " ainsi ? »  Cette voix fit sursauter le démon ancestral contenant le Sens Divin de So"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3433,
+          "context": "gard glacial de Wang Lin se posa sur le démon ancestral. De fines lignes apparurent a"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3514,
+          "context": "nt autour de lui et l'enveloppèrent. Le démon ancestral trembla puis resta immobile, "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 3865,
+          "context": "rd de Wang Lin n'était pas seulement le démon ancestral, mais aussi le Sens Divin de "
+        }
+      ]
+    },
+    {
+      "chapter": 272,
+      "file": "src\\content\\chapters\\tome-4\\0272-zhang-daniu.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 453,
+          "context": "il s'inquiétait pour Wang Lin. Dans son esprit, l'oncle Wang était déjà vieux. Son cor"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7505,
+          "context": "ssion de sombrer dans un rêve. Dans son esprit, l'image qu'il associait à Wang Lin osc"
+        }
+      ]
+    },
+    {
+      "chapter": 769,
+      "file": "src\\content\\chapters\\tome-7\\0769-confiance.md",
+      "issue_count": 15,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3297,
+          "context": "aiblesse !  « Wang Lin !! » Alors que l'esprit de l'Ancêtre Sanguin tremblait, la lumi"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10372,
+          "context": "nt. Ce doute persistait encore dans son esprit.  À cet instant, sur un fragment devant"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 108,
+          "context": "t actuellement au sein des nuages de la rétribution divine. Ses pensées résonnaient dans les envir"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 367,
+          "context": "nuages sifflèrent et la puissance de la rétribution divine se propagea.  Peu après, l'âme originel"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 1614,
+          "context": "s il était trop tard. Les éclairs de la rétribution divine qui poursuivaient Wang Lin s'abattirent"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 1924,
+          "context": " durant ce processus, les éclairs de la rétribution divine continuèrent de tomber. Ils traversèren"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 2121,
+          "context": "itamment, voulant quitter ces nuages de rétribution divine.  « Ancêtre Sanguin, votre planète de s"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 3059,
+          "context": "es paroles de Wang Lin furent comme une rétribution divine invisible frappant le cœur de l'Ancêtre"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 3748,
+          "context": "e l'Ancêtre Sanguin.  À cet instant, la rétribution divine s'abattit avec acharnement, mêlant même"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 5149,
+          "context": "liminer en utilisant la puissance de la rétribution divine !  Cependant, la rétribution divine éta"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 5185,
+          "context": " la rétribution divine !  Cependant, la rétribution divine était sur le point de se dissiper et n'"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 5401,
+          "context": " La moitié de la force tyrannique de la rétribution divine le blessait, tandis que l'autre moitié "
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 6513,
+          "context": "happer avec le sceau, alors supporte la rétribution divine toi-même ! » Empli d'une haine inimagin"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 7288,
+          "context": "vint extrêmement active au moment où la rétribution divine frappa.  Le grondement tonnerreux se pr"
+        },
+        {
+          "term_en": "divine retribution",
+          "canonical": "châtiment divin",
+          "found": "rétribution divine",
+          "position": 7631,
+          "context": "uages se dissipèrent complètement et la rétribution divine disparut.  L'âme originelle de Wang Lin"
+        }
+      ]
+    },
+    {
+      "chapter": 1833,
+      "file": "src\\content\\chapters\\tome-12\\1833-pari.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1510,
+          "context": "t son pied gauche entama la montée. Son esprit grondait, mais son expression demeura i"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1698,
+          "context": "aque pas provoquait un tumulte dans son esprit, et une pression écrasante s'abattait s"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4316,
+          "context": " !  Dès que son pied toucha le sol, son esprit fut secoué, puis tout se calma.  À ce m"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 8309,
+          "context": "nant une direction proche.  Un escalier antique menait au septième étage. Le Pavillon d"
+        }
+      ]
+    },
+    {
+      "chapter": 1794,
+      "file": "src\\content\\chapters\\tome-12\\1794-une-promesse-a-lenseignant-proteger-la-race-ancienne.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3020,
+          "context": "lassitude séculaire, résonnèrent dans l'esprit de Wang Lin tandis que sa silhouette ap"
+        }
+      ]
+    },
+    {
+      "chapter": 947,
+      "file": "src\\content\\chapters\\tome-8\\0947-qualification.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5972,
+          "context": "u Ting ressentit une explosion dans son esprit et son expression changea radicalement."
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6961,
+          "context": "r. Il recula tout en fixant Wang Lin, l'esprit embrumé. Il ne comprenait pas comment c"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10041,
+          "context": "e parchemin vers Xu Ting.  Bien que son esprit soit encore chancelant, Xu Ting le sais"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 10344,
+          "context": "t monstrueux. C'était comme si une bête antique avait été scellée à l'intérieur et que,"
+        }
+      ]
+    },
+    {
+      "chapter": 1811,
+      "file": "src\\content\\chapters\\tome-12\\1811-effrayer-du-qing.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 10481,
+          "context": "de teinte alors qu'un immense parapluie antique apparut soudainement sous les yeux de D"
+        }
+      ]
+    },
+    {
+      "chapter": 474,
+      "file": "src\\content\\chapters\\tome-6\\0474-pierre-de-bois-du-vide.md",
+      "issue_count": 9,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 921,
+          "context": " Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »  Wang Lin regarda"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1040,
+          "context": "tant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreu"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1283,
+          "context": "in avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il éta"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2922,
+          "context": " connaissait l'objet, les dix pierres d'esprit de haute qualité n'étaient pas gaspillé"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5828,
+          "context": "peut être vendu que pour cinq pierres d'esprit de qualité supérieure ! »  Li Dannan eu"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5911,
+          "context": " eut un sourire amer : « Cinq pierres d'esprit de qualité supérieure... c'est un prix "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6032,
+          "context": "de cultivation de rang 7, les pierres d'esprit de qualité supérieure sont trop rares, "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7794,
+          "context": "uisse achever sa phrase, cinq pierres d'esprit blanc laiteux apparurent devant lui.  L"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8332,
+          "context": "ville. Il savait qu'avec cinq pierres d'esprit de qualité supérieure, des cultivateurs"
+        }
+      ]
+    },
+    {
+      "chapter": 1592,
+      "file": "src\\content\\chapters\\tome-10\\1592-la-vie-est-comme-une-piece-de-theatre-qui-suis-je.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3360,
+          "context": " deux jeunes filles persistaient dans l'esprit de Wang Lin.  « Était-ce une illusion… "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3562,
+          "context": " à peu ses esprits.  Pourtant, dans son esprit, outre les silhouettes des deux jeunes "
+        }
+      ]
+    },
+    {
+      "chapter": 1272,
+      "file": "src\\content\\chapters\\tome-9\\1272-lapparition-du-char-de-destruction-des-dieux.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4289,
+          "context": "cinations, incapables de contrôler leur esprit.  Alors que les bêtes s'effondraient, c"
+        }
+      ]
+    },
+    {
+      "chapter": 941,
+      "file": "src\\content\\chapters\\tome-8\\0941-le-tresor-du-clan-royal.md",
+      "issue_count": 2,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3503,
+          "context": "rpent pendant bien trop longtemps.  Son esprit était envahi par la créature. À ses yeu"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 1606,
+          "context": "ncien à 5 étoiles brillaient d'une aura antique alors qu'il faisait un pas en avant. Il"
+        }
+      ]
+    },
+    {
+      "chapter": 1737,
+      "file": "src\\content\\chapters\\tome-11\\1737-mon-cur-semeut.md",
+      "issue_count": 8,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 728,
+          "context": "es situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6910,
+          "context": "e qu'à laisser sa formation épuiser son esprit et gaspiller toute sa force vitale ! » "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8308,
+          "context": "ng. Cela était dû à l'épuisement de son esprit. Son corps commença à tourner lentement"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8497,
+          "context": "ation ainsi que la folie envahirent son esprit. Il fixa le vortex qui s'apprêtait à at"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8799,
+          "context": "son corps tournait avec la planète, son esprit serait aspiré à l'intérieur. Une fois s"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8848,
+          "context": "rait aspiré à l'intérieur. Une fois son esprit totalement épuisé, seule la mort l'atte"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9050,
+          "context": "rtige et la douleur tout en forçant son esprit à se calmer pour réfléchir.  « Neuf res"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 777,
+          "context": "été affiné pour ressembler à celui d'un démon ! »  « Plus une personne est intelligen"
+        }
+      ]
+    },
+    {
+      "chapter": 591,
+      "file": "src\\content\\chapters\\tome-6\\0591-le-commandant-en-chef-du-ciel-est-emu.md",
+      "issue_count": 14,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2428,
+          "context": "ue je frappe ce tambour démoniaque, mon esprit est troublé. Je ressens la même sensati"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5753,
+          "context": " cœur de cette force. Elle contenait un esprit indomptable et ce sentiment de dominati"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 1975,
+          "context": "dorée pour se concentrer sur le tambour démoniaque. Il l'avait déjà fait sonner huit fois,"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 2412,
+          "context": " Pourtant, lorsque je frappe ce tambour démoniaque, mon esprit est troublé. Je ressens la "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 2973,
+          "context": "igmatique alors qu'il fixait le tambour démoniaque. À cet instant, il n'hésita plus ; il p"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 4622,
+          "context": "tat surpassait celui du premier général démoniaque, Mo Fei, et tous savaient qu'à partir d"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6430,
+          "context": "nité et fixa silencieusement le tambour démoniaque.  À cet instant, le Commandant en Chef "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6667,
+          "context": "-neuf pas, il se tint devant le tambour démoniaque. Il ne frappa pas immédiatement, mais u"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 6971,
+          "context": "nt, il sembla fusionner avec le tambour démoniaque, et son aura commença à s'estomper.  L'"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 7530,
+          "context": "eur peut-il communiquer avec le tambour démoniaque ? »  La seule femme parmi les commandan"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 8354,
+          "context": "nce, il s'intégra pleinement au tambour démoniaque.  « Je ne dois pas résister à l'aura de"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 9484,
+          "context": "moelle !! Cet enfant utilise le tambour démoniaque pour purifier sa moelle ! » Les différe"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 10027,
+          "context": "it purifier sa moelle au son du tambour démoniaque. Cependant, cela n'est possible que si "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 11535,
+          "context": "roite et toucha délicatement le tambour démoniaque !  *Dong !* La onzième résonance jailli"
+        }
+      ]
+    },
+    {
+      "chapter": 872,
+      "file": "src\\content\\chapters\\tome-7\\0872-qui-devore-qui.md",
+      "issue_count": 34,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3,
+          "context": " L'esprit du tonnerre était empreint d'une grande"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 558,
+          "context": "x et ne prêta plus aucune attention à l'esprit du tonnerre. Il pouvait vaguement senti"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 614,
+          "context": "re. Il pouvait vaguement sentir que cet esprit n'était qu'une infime parcelle de son â"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 677,
+          "context": "nfime parcelle de son âme. Le véritable esprit du tonnerre du Royaume Céleste du Tonne"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 763,
+          "context": "rre ne saurait être une telle chose.  L'esprit du tonnerre recula, les yeux écarquillé"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1765,
+          "context": "de foudre !  Il avait existé, jadis, un esprit de tonnerre semblable à celui-ci dans l"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 1993,
+          "context": "enne du Royaume Céleste du Tonnerre.  L'esprit du tonnerre présent dans le Temple Céle"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2091,
+          "context": "rre n'était qu'un fragment détaché de l'esprit gardien du Royaume Céleste du Tonnerre."
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2397,
+          "context": "sorption du tonnerre, ce qui permit à l'esprit de se détendre. Empli de rage, il charg"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2592,
+          "context": "uillard noir en observant la scène. Son esprit trembla violemment ; il n'en croyait pa"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2785,
+          "context": "ui a suffi d'un regard pour terrifier l'esprit du tonnerre ! Et à en juger par sa réac"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4239,
+          "context": " Xu Mu aurait presque pu se cultiver en esprit de tonnerre. Non seulement cette épreuv"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4633,
+          "context": " n'interrompit pas Wang Lin.  Quant à l'esprit du tonnerre, après avoir été effrayé pa"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5062,
+          "context": "i fut absorbé par ces trois pierres.  L'esprit du tonnerre poussa un cri et chargea di"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5301,
+          "context": "es dents.  En un instant, le corps de l'esprit du tonnerre percuta violemment l'homme "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5644,
+          "context": " et recula précipitamment. Cependant, l'esprit du tonnerre, furieux, ne le laissa pas "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5913,
+          "context": "sombre, il lança un regard venimeux à l'esprit du tonnerre alors que celui-ci chargeai"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6108,
+          "context": " et lorsque la dix-huitième retentit, l'esprit du tonnerre devint fou. Il expulsa pres"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6207,
+          "context": "cultivateurs présents sur la place !  L'esprit du tonnerre s'élança en rugissant. Cett"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6560,
+          "context": "coup. Ils ne voulaient pas provoquer un esprit du tonnerre manifestement hors de contr"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7542,
+          "context": "apeur noire jaillit de ses sourcils.  L'esprit du tonnerre se retourna soudainement. N"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7761,
+          "context": "cela violemment pour être absorbé par l'esprit, l'emplissant d'une pression de tonnerr"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8122,
+          "context": "incu ! Ce Xu Mu triche forcément ! »  L'esprit du tonnerre jeta un regard sur Xu Ting "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 8878,
+          "context": "ltivation utilise-t-il donc ?! »  « Cet esprit du tonnerre semble craindre Xu Mu. C'es"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9301,
+          "context": "nuaient, Wang Lin demeurait immobile. L'esprit du tonnerre tournait autour de lui, le "
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9530,
+          "context": "À la fin, cette pulsion occupa tout son esprit.  « Dévorre-le et tu pourras te transfo"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9667,
+          "context": " voix hurlait follement dans l'âme de l'esprit. Cette voix était empreinte d'une avidi"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 9749,
+          "context": "vidité pure. Cette convoitise stimula l'esprit au point de faire trembler tout son cor"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10067,
+          "context": "lors que l'énergie se concentrait sur l'esprit, des fissures apparurent à la surface d"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10137,
+          "context": "t à la surface de la place.  *Roar !* L'esprit du tonnerre, prenant une forme serpenti"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 10907,
+          "context": "agon du tonnerre antique, le corps de l'esprit vacilla violemment. Une aura irrésistib"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 7809,
+          "context": "l'emplissant d'une pression de tonnerre antique. Il chargea la gueule ouverte, tentant "
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 10536,
+          "context": "on âme originelle de dragon du tonnerre antique surgit !  Les dragons du tonnerre antiq"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 10884,
+          "context": " Dès l'apparition du dragon du tonnerre antique, le corps de l'esprit vacilla violemmen"
+        }
+      ]
+    },
+    {
+      "chapter": 178,
+      "file": "src\\content\\chapters\\tome-3\\0178-la-montagne-des-restrictions.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1445,
+          "context": "es derrière lui disparurent.  Le second démon disparut également avec les tornades ; "
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 5982,
+          "context": "il retrouva sa connexion avec le second démon.  Wang Lin ne se retourna toujours pas."
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 9036,
+          "context": "t de cette pensée, il utilisa le second démon pour fusionner les innombrables Sens Di"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 9762,
+          "context": "main. Les tornades, ainsi que le second démon, furent aspirés dans le sac. Ce sac lui"
+        }
+      ]
+    },
+    {
+      "chapter": 1699,
+      "file": "src\\content\\chapters\\tome-11\\1699-illusion-dans-lillusion.md",
+      "issue_count": 3,
+      "issues": [
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 2473,
+          "context": "ier pont, entouré par l'ombre de l'être antique. Non loin de lui, la femme qui siégeait"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 2977,
+          "context": "sement et agita la main droite. L'ombre antique se dissipa. Il scruta les alentours ava"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 453,
+          "context": " couleurs qui s'épanouissait de manière démoniaque, exhalant un parfum enivrant.  L'expres"
+        }
+      ]
+    },
+    {
+      "chapter": 1602,
+      "file": "src\\content\\chapters\\tome-10\\1602-vous-osez.md",
+      "issue_count": 1,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 7997,
+          "context": "avec leur cœur, agrandissant ainsi leur esprit à l'infini, au point de ne voir les mor"
+        }
+      ]
+    },
+    {
+      "chapter": 324,
+      "file": "src\\content\\chapters\\tome-4\\0324-le-sort-celeste-ne-peut-masquer-tes-milliers-dannees-dobsession.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 4995,
+          "context": "i tu veux cette épée, prends-la, mais l'esprit de l'épée m'appartient ! »  Au moment o"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6167,
+          "context": "s ! »  Lorsqu'une épée céleste perd son esprit, bien qu'elle demeure une arme imparabl"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 6264,
+          "context": "d tous ses sorts et nécessite un nouvel esprit pour renaître.  La tristesse dans les y"
+        },
+        {
+          "term_en": "ancient",
+          "canonical": "ancien",
+          "found": "antique",
+          "position": 5609,
+          "context": "ntanément.  Dès sa disparition, la voix antique de Tian Yunzi résonna de nouveau :  « L"
+        }
+      ]
+    },
+    {
+      "chapter": 576,
+      "file": "src\\content\\chapters\\tome-6\\0576-wang-lin-attaque-moi-de-toutes-tes-forces.md",
+      "issue_count": 12,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 3385,
+          "context": "nce. Il paraissait d'un calme absolu, l'esprit en paix.  Durant cette période, Wang Li"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5730,
+          "context": " si la musique s'était infusée dans son esprit, refusant de s'évanouir.  L'un sur le b"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 4809,
+          "context": "a de pureté. Aucune énergie spirituelle démoniaque ne émanait de lui alors qu'il sirotait "
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 10903,
+          "context": " million de rangs d'énergie spirituelle démoniaque, ce qui équivalait à un cultivateur Asc"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 13201,
+          "context": "sans hésiter et une énergie spirituelle démoniaque jaillit de son corps pour prendre la fo"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 13266,
+          "context": " corps pour prendre la forme d'un tigre démoniaque. Mais dès que le tigre prit forme, il f"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 14118,
+          "context": "an de lumière bleue, issu de son armure démoniaque, apparut à sept pouces de son corps, ma"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 14512,
+          "context": "rs autrefois précieuses.  Mais l'armure démoniaque ne put absolument résister aux deux mil"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 1895,
+          "context": "durant cette compétition. Si le général démon perdait, son assistant pouvait combattr"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 2112,
+          "context": "sément pour cette raison que le général démon avait choisi Wang Lin.  La voix de Wang"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 2594,
+          "context": "ez sans aucun doute le poste de général démon ! »  Wang Lin sourit mais ne répondit r"
+        },
+        {
+          "term_en": "devil",
+          "canonical": "diable",
+          "found": "démon",
+          "position": 9425,
+          "context": "te qui envahissait l'espace. Le général démon Mo Lihai resta impassible et imperturba"
+        }
+      ]
+    },
+    {
+      "chapter": 344,
+      "file": "src\\content\\chapters\\tome-4\\0344-te-souviens-tu-encore-de-richesse.md",
+      "issue_count": 4,
+      "issues": [
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2296,
+          "context": "!  Wang Lin redescendit de la pagode, l'esprit confus. Il se tint à l'extérieur, fixan"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 2429,
+          "context": "de quatre cents ans défilèrent dans son esprit. En repensant au moment où il avait déc"
+        },
+        {
+          "term_en": "soul",
+          "canonical": "âme",
+          "found": "esprit",
+          "position": 5528,
+          "context": "ra : « Utiliser des âmes errantes comme esprit d'épée ne permet d'activer qu'une fract"
+        },
+        {
+          "term_en": "demon",
+          "canonical": "démon",
+          "found": "démoniaque",
+          "position": 10081,
+          "context": "Antique.  Ils dégageaient tous une aura démoniaque imprégnée d'une odeur de sang. Tandis q"
+        }
+      ]
+    }
+  ]
+}

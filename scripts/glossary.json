@@ -1,0 +1,896 @@
+{
+  "Qi Condensation": {
+    "fr": "Condensation du Qi",
+    "category": "cultivation",
+    "aliases": [
+      "condensation du qi",
+      "Condensation du Qi",
+      "condensation du Qi"
+    ]
+  },
+  "Foundation Establishment": {
+    "fr": "Établissement des Fondations",
+    "category": "cultivation",
+    "aliases": [
+      "établissement des fondations",
+      "Etablissement des Fondations"
+    ]
+  },
+  "Core Formation": {
+    "fr": "Formation du Noyau",
+    "category": "cultivation",
+    "aliases": [
+      "formation du noyau",
+      "Formation du Noyau"
+    ]
+  },
+  "Gold Core": {
+    "fr": "Noyau d'Or",
+    "category": "cultivation",
+    "aliases": [
+      "noyau d'or",
+      "Noyau doré",
+      "noyau doré"
+    ]
+  },
+  "Nascent Soul": {
+    "fr": "Âme Naissante",
+    "category": "cultivation",
+    "aliases": [
+      "âme naissante",
+      "Ame Naissante",
+      "ame naissante",
+      "Âme naissante"
+    ]
+  },
+  "Soul Formation": {
+    "fr": "Formation de l'Âme",
+    "category": "cultivation",
+    "aliases": [
+      "formation de l'âme",
+      "Formation de l'Âme",
+      "Formation de l'ame"
+    ]
+  },
+  "Soul Transformation": {
+    "fr": "Transformation de l'Âme",
+    "category": "cultivation",
+    "aliases": [
+      "transformation de l'âme",
+      "Transformation de l'Âme"
+    ]
+  },
+  "Ascendant": {
+    "fr": "Ascendant",
+    "category": "cultivation",
+    "aliases": [
+      "ascendant",
+      "Ascendant"
+    ]
+  },
+  "Illusory Yin": {
+    "fr": "Yin Illusoire",
+    "category": "cultivation",
+    "aliases": [
+      "yin illusoire",
+      "Yin Illusoire"
+    ]
+  },
+  "Corporeal Yang": {
+    "fr": "Yang Corporel",
+    "category": "cultivation",
+    "aliases": [
+      "yang corporel",
+      "Yang Corporel"
+    ]
+  },
+  "Nirvana Scryer": {
+    "fr": "Scruteur du Nirvana",
+    "category": "cultivation",
+    "aliases": [
+      "scruteur du nirvana",
+      "Scruteur du Nirvana"
+    ]
+  },
+  "Nirvana Cleanser": {
+    "fr": "Purificateur du Nirvana",
+    "category": "cultivation",
+    "aliases": [
+      "purificateur du nirvana",
+      "Purificateur du Nirvana"
+    ]
+  },
+  "Nirvana Shatterer": {
+    "fr": "Briseur du Nirvana",
+    "category": "cultivation",
+    "aliases": [
+      "briseur du nirvana",
+      "Briseur du Nirvana"
+    ]
+  },
+  "Heaven's Blight": {
+    "fr": "Fléau Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "fléau céleste",
+      "Fléau du Ciel",
+      "fléau du ciel"
+    ]
+  },
+  "Spirit Severing": {
+    "fr": "Séparation de l'Âme",
+    "category": "cultivation",
+    "aliases": [
+      "séparation de l'âme",
+      "Sectionnement de l'Âme",
+      "sectionnement de l'âme"
+    ]
+  },
+  "Void Tribulant": {
+    "fr": "Tribulation du Vide",
+    "category": "cultivation",
+    "aliases": [
+      "tribulation du vide",
+      "Tribulation du Vide"
+    ]
+  },
+  "Arcane Void": {
+    "fr": "Vide Arcanique",
+    "category": "cultivation",
+    "aliases": [
+      "vide arcanique",
+      "Vide Arcanique"
+    ]
+  },
+  "Arcane Tribulant": {
+    "fr": "Tribulation Arcanique",
+    "category": "cultivation",
+    "aliases": [
+      "tribulation arcanique",
+      "Tribulation Arcanique"
+    ]
+  },
+  "Half Heaven Trampling": {
+    "fr": "Demi-Foulée Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "demi-foulée céleste",
+      "Demi-Foulée Céleste"
+    ]
+  },
+  "Heaven Trampling": {
+    "fr": "Foulée Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "foulée céleste",
+      "Foulée Céleste"
+    ]
+  },
+  "Grand Empyrean": {
+    "fr": "Grand Empyrée",
+    "category": "cultivation",
+    "aliases": [
+      "grand empyrée",
+      "Grand Empyrée"
+    ]
+  },
+  "Empyrean Exalt": {
+    "fr": "Exaltation Empyréenne",
+    "category": "cultivation",
+    "aliases": [
+      "exaltation empyréenne",
+      "Exaltation Empyréenne"
+    ]
+  },
+  "Golden Exalt": {
+    "fr": "Exaltation Dorée",
+    "category": "cultivation",
+    "aliases": [
+      "exaltation dorée",
+      "Exaltation Dorée"
+    ]
+  },
+  "Celestial Emperor": {
+    "fr": "Empereur Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "empereur céleste",
+      "Empereur Céleste"
+    ]
+  },
+  "Celestial King": {
+    "fr": "Roi Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "roi céleste",
+      "Roi Céleste"
+    ]
+  },
+  "Celestial Lord": {
+    "fr": "Seigneur Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "seigneur céleste",
+      "Seigneur Céleste"
+    ]
+  },
+  "Celestial Body": {
+    "fr": "Corps Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "corps céleste",
+      "Corps Céleste"
+    ]
+  },
+  "Ascendant Empyrean": {
+    "fr": "Empyrée Ascendant",
+    "category": "cultivation"
+  },
+  "5 Essence Great Completion": {
+    "fr": "Grand Accomplissement des 5 Essences",
+    "category": "cultivation",
+    "aliases": [
+      "grand accomplissement des 5 essences",
+      "Grand Accomplissement des 5 Essences"
+    ]
+  },
+  "Great Void Gate": {
+    "fr": "Grande Porte du Vide",
+    "category": "cultivation",
+    "aliases": [
+      "grande porte du vide",
+      "Grande Porte du Vide"
+    ]
+  },
+  "Heavenly Waning": {
+    "fr": "Déclin Céleste",
+    "category": "cultivation",
+    "aliases": [
+      "déclin céleste",
+      "Déclin Céleste"
+    ]
+  },
+  "Ji Realm": {
+    "fr": "Royaume Ji",
+    "category": "cultivation",
+    "aliases": [
+      "royaume ji",
+      "Royaume Ji"
+    ]
+  },
+  "cultivation": {
+    "fr": "cultivation",
+    "category": "concept"
+  },
+  "cultivator": {
+    "fr": "cultivateur",
+    "category": "concept",
+    "aliases": [
+      "cultivateur",
+      "pratiquant",
+      "cultivant"
+    ]
+  },
+  "immortal": {
+    "fr": "immortel",
+    "category": "concept",
+    "aliases": [
+      "immortel",
+      "Immortel",
+      "immortelle",
+      "Immortelle"
+    ]
+  },
+  "celestial": {
+    "fr": "céleste",
+    "category": "concept",
+    "aliases": [
+      "céleste",
+      "Céleste",
+      "Célestiel",
+      "célestiel"
+    ]
+  },
+  "spiritual energy": {
+    "fr": "énergie spirituelle",
+    "category": "concept",
+    "aliases": [
+      "énergie spirituelle",
+      "force spirituelle",
+      "qi spirituel",
+      "Qi spirituel"
+    ]
+  },
+  "divine sense": {
+    "fr": "sens divin",
+    "category": "concept",
+    "aliases": [
+      "sens divin",
+      "conscience divine",
+      "perception divine"
+    ]
+  },
+  "dao": {
+    "fr": "Dao",
+    "category": "concept",
+    "aliases": [
+      "dao",
+      "DAO",
+      "Dao",
+      "Voie"
+    ]
+  },
+  "soul": {
+    "fr": "âme",
+    "category": "concept",
+    "aliases": [
+      "âme",
+      "esprit"
+    ]
+  },
+  "origin soul": {
+    "fr": "âme originelle",
+    "category": "concept",
+    "aliases": [
+      "âme originelle",
+      "âme d'origine",
+      "âme primordiale"
+    ]
+  },
+  "joss flame": {
+    "fr": "flamme joss",
+    "category": "concept",
+    "aliases": [
+      "flamme joss",
+      "Flamme Joss",
+      "flamme de joss"
+    ]
+  },
+  "karma": {
+    "fr": "karma",
+    "category": "concept",
+    "aliases": [
+      "karma",
+      "Karma"
+    ]
+  },
+  "reincarnation": {
+    "fr": "réincarnation",
+    "category": "concept",
+    "aliases": [
+      "réincarnation",
+      "Réincarnation",
+      "réincarnation"
+    ]
+  },
+  "samsara": {
+    "fr": "samsara",
+    "category": "concept",
+    "aliases": [
+      "samsara",
+      "Samsara",
+      "Samsâra"
+    ]
+  },
+  "ancient": {
+    "fr": "ancien",
+    "category": "concept",
+    "aliases": [
+      "ancien",
+      "Ancien",
+      "Antique",
+      "antique"
+    ]
+  },
+  "ancient god": {
+    "fr": "dieu ancien",
+    "category": "concept",
+    "aliases": [
+      "dieu ancien",
+      "Dieu Ancien",
+      "ancien dieu"
+    ]
+  },
+  "ancient demon": {
+    "fr": "démon ancien",
+    "category": "concept",
+    "aliases": [
+      "démon ancien",
+      "Démon Ancien",
+      "ancien démon"
+    ]
+  },
+  "ancient devil": {
+    "fr": "diable ancien",
+    "category": "concept",
+    "aliases": [
+      "diable ancien",
+      "Diable Ancien",
+      "ancien diable"
+    ]
+  },
+  "demon": {
+    "fr": "démon",
+    "category": "concept",
+    "aliases": [
+      "démon",
+      "Démon",
+      "Démoniaque",
+      "démoniaque"
+    ]
+  },
+  "devil": {
+    "fr": "diable",
+    "category": "concept",
+    "aliases": [
+      "diable",
+      "Diable"
+    ]
+  },
+  "beast": {
+    "fr": "bête",
+    "category": "concept"
+  },
+  "spirit beast": {
+    "fr": "bête spirituelle",
+    "category": "concept",
+    "aliases": [
+      "bête spirituelle",
+      "animal spirituel",
+      "créature spirituelle"
+    ]
+  },
+  "magic treasure": {
+    "fr": "trésor magique",
+    "category": "concept",
+    "aliases": [
+      "trésor magique",
+      "objet magique",
+      "artefact magique"
+    ]
+  },
+  "magic weapon": {
+    "fr": "arme magique",
+    "category": "concept"
+  },
+  "formation": {
+    "fr": "formation",
+    "category": "concept"
+  },
+  "restriction": {
+    "fr": "restriction",
+    "category": "concept",
+    "aliases": [
+      "restriction",
+      "Restriction"
+    ]
+  },
+  "pill": {
+    "fr": "pilule",
+    "category": "concept",
+    "aliases": [
+      "pilule",
+      "pillule"
+    ]
+  },
+  "alchemy": {
+    "fr": "alchimie",
+    "category": "concept",
+    "aliases": [
+      "alchimie",
+      "Alchimie"
+    ]
+  },
+  "alchemist": {
+    "fr": "alchimiste",
+    "category": "concept",
+    "aliases": [
+      "alchimiste",
+      "Alchimiste"
+    ]
+  },
+  "divine ability": {
+    "fr": "aptitude divine",
+    "category": "concept",
+    "aliases": [
+      "aptitude divine",
+      "capacité divine",
+      "pouvoir divin",
+      "technique divine"
+    ]
+  },
+  "divine retribution": {
+    "fr": "châtiment divin",
+    "category": "concept",
+    "aliases": [
+      "châtiment divin",
+      "punition divine",
+      "rétribution divine"
+    ]
+  },
+  "heavenly dao": {
+    "fr": "Dao Céleste",
+    "category": "concept"
+  },
+  "essence": {
+    "fr": "essence",
+    "category": "concept"
+  },
+  "origin energy": {
+    "fr": "énergie originelle",
+    "category": "concept"
+  },
+  "bloodline": {
+    "fr": "lignée",
+    "category": "concept",
+    "aliases": [
+      "lignée",
+      "lignage",
+      "sang"
+    ]
+  },
+  "clan": {
+    "fr": "clan",
+    "category": "concept"
+  },
+  "sect": {
+    "fr": "secte",
+    "category": "concept"
+  },
+  "tribe": {
+    "fr": "tribu",
+    "category": "concept"
+  },
+  "domain": {
+    "fr": "domaine",
+    "category": "concept"
+  },
+  "realm": {
+    "fr": "royaume",
+    "category": "concept",
+    "aliases": [
+      "royaume",
+      "Royaume",
+      "domaine",
+      "Domaine"
+    ]
+  },
+  "star system": {
+    "fr": "système stellaire",
+    "category": "concept",
+    "aliases": [
+      "système stellaire",
+      "système d'étoiles"
+    ]
+  },
+  "planet": {
+    "fr": "planète",
+    "category": "concept"
+  },
+  "continent": {
+    "fr": "continent",
+    "category": "concept"
+  },
+  "void": {
+    "fr": "vide",
+    "category": "concept"
+  },
+  "law": {
+    "fr": "loi",
+    "category": "concept",
+    "aliases": [
+      "loi",
+      "Loi",
+      "principe"
+    ]
+  },
+  "fate": {
+    "fr": "destin",
+    "category": "concept",
+    "aliases": [
+      "destin",
+      "Destin",
+      "destinée",
+      "Destinée"
+    ]
+  },
+  "destiny": {
+    "fr": "destinée",
+    "category": "concept"
+  },
+  "mortal": {
+    "fr": "mortel",
+    "category": "concept",
+    "aliases": [
+      "mortel",
+      "Mortel"
+    ]
+  },
+  "mortal world": {
+    "fr": "monde mortel",
+    "category": "concept",
+    "aliases": [
+      "monde mortel",
+      "monde des mortels"
+    ]
+  },
+  "immortal world": {
+    "fr": "monde immortel",
+    "category": "concept",
+    "aliases": [
+      "monde immortel",
+      "monde des immortels"
+    ]
+  },
+  "celestial realm": {
+    "fr": "royaume céleste",
+    "category": "concept",
+    "aliases": [
+      "royaume céleste",
+      "domaine céleste"
+    ]
+  },
+  "celestial domain": {
+    "fr": "domaine céleste",
+    "category": "concept"
+  },
+  "jade": {
+    "fr": "jade",
+    "category": "concept",
+    "aliases": [
+      "jade",
+      "Jade"
+    ]
+  },
+  "spiritual jade": {
+    "fr": "jade spirituel",
+    "category": "concept",
+    "aliases": [
+      "jade spirituel",
+      "pierre spirituelle",
+      "pierre d'esprit"
+    ]
+  },
+  "celestial jade": {
+    "fr": "jade céleste",
+    "category": "concept",
+    "aliases": [
+      "jade céleste",
+      "pierre céleste"
+    ]
+  },
+  "storage bag": {
+    "fr": "sac de stockage",
+    "category": "concept",
+    "aliases": [
+      "sac de stockage",
+      "sacoche de stockage",
+      "bourse de stockage"
+    ]
+  },
+  "spatial rift": {
+    "fr": "faille spatiale",
+    "category": "concept",
+    "aliases": [
+      "faille spatiale",
+      "déchirure spatiale",
+      "fissure spatiale"
+    ]
+  },
+  "teleportation": {
+    "fr": "téléportation",
+    "category": "concept",
+    "aliases": [
+      "téléportation",
+      "téléportation",
+      "téléport"
+    ]
+  },
+  "array": {
+    "fr": "matrice",
+    "category": "concept",
+    "aliases": [
+      "matrice",
+      "formation",
+      "array"
+    ]
+  },
+  "seal": {
+    "fr": "sceau",
+    "category": "concept",
+    "aliases": [
+      "sceau",
+      "Sceau",
+      "scellement"
+    ]
+  },
+  "body cultivator": {
+    "fr": "cultivateur corporel",
+    "category": "concept",
+    "aliases": [
+      "cultivateur corporel",
+      "cultivateur de corps"
+    ]
+  },
+  "heavenly tribulation": {
+    "fr": "tribulation céleste",
+    "category": "concept",
+    "aliases": [
+      "tribulation céleste",
+      "tribulation du ciel",
+      "épreuve céleste"
+    ]
+  },
+  "lightning tribulation": {
+    "fr": "tribulation de la foudre",
+    "category": "concept"
+  },
+  "All-Seer": {
+    "fr": "All-Seer (Tian Yun Zi)",
+    "category": "personnage"
+  },
+  "Wang Lin": {
+    "fr": "Wang Lin",
+    "category": "personnage"
+  },
+  "Situ Nan": {
+    "fr": "Situ Nan",
+    "category": "personnage"
+  },
+  "Li Muwan": {
+    "fr": "Li Muwan",
+    "category": "personnage"
+  },
+  "Liu Mei": {
+    "fr": "Liu Mei",
+    "category": "personnage"
+  },
+  "Qing Shui": {
+    "fr": "Qing Shui",
+    "category": "personnage"
+  },
+  "Qing Yi": {
+    "fr": "Qing Yi",
+    "category": "personnage"
+  },
+  "Sun Dazhu": {
+    "fr": "Sun Dazhu",
+    "category": "personnage"
+  },
+  "Teng Huayuan": {
+    "fr": "Teng Huayuan",
+    "category": "personnage"
+  },
+  "Tuo Sen": {
+    "fr": "Tuo Sen",
+    "category": "personnage"
+  },
+  "Wang Hao": {
+    "fr": "Wang Hao",
+    "category": "personnage"
+  },
+  "Wang Ping": {
+    "fr": "Wang Ping",
+    "category": "personnage"
+  },
+  "Wang Zhuo": {
+    "fr": "Wang Zhuo",
+    "category": "personnage"
+  },
+  "Zhang Hu": {
+    "fr": "Zhang Hu",
+    "category": "personnage"
+  },
+  "Zhou Ru": {
+    "fr": "Zhou Ru",
+    "category": "personnage"
+  },
+  "Zhou Rui": {
+    "fr": "Zhou Rui",
+    "category": "personnage"
+  },
+  "Li Qian Mei": {
+    "fr": "Li Qian Mei",
+    "category": "personnage"
+  },
+  "Lian Daozhen": {
+    "fr": "Lian Daozhen",
+    "category": "personnage"
+  },
+  "Su Dao": {
+    "fr": "Su Dao",
+    "category": "personnage"
+  },
+  "Daoist Water": {
+    "fr": "Daoist Water",
+    "category": "personnage"
+  },
+  "Hongdie": {
+    "fr": "Red Butterfly",
+    "category": "personnage"
+  },
+  "Immortal Astral Continent": {
+    "fr": "Continent Astral Immortel",
+    "category": "lieu"
+  },
+  "Hou Fen": {
+    "fr": "Hou Fen",
+    "category": "lieu"
+  },
+  "Sea of Devils": {
+    "fr": "Mer des Démons",
+    "category": "lieu"
+  },
+  "Blue Pine Peaks": {
+    "fr": "Pics du Pin Bleu",
+    "category": "lieu"
+  },
+  "Planet Qing Lin": {
+    "fr": "Planète Qing Lin",
+    "category": "lieu"
+  },
+  "Planet Tian Yun": {
+    "fr": "Planète Tian Yun",
+    "category": "lieu"
+  },
+  "Heng Yue Sect": {
+    "fr": "Secte Heng Yue",
+    "category": "lieu"
+  },
+  "Forsaken Immortal Clan": {
+    "fr": "Clan de l'Immortel Banni",
+    "category": "secte"
+  },
+  "Scatter Thunder Clan": {
+    "fr": "Clan de la Foudre Dispersée",
+    "category": "secte"
+  },
+  "Fire Sparrow Clan": {
+    "fr": "Clan du Moineau de Feu",
+    "category": "secte"
+  },
+  "Tattoo Clan": {
+    "fr": "Clan du Tatouage",
+    "category": "secte"
+  },
+  "Moon Devourer Clan": {
+    "fr": "Clan Dévoreur de Lune",
+    "category": "secte"
+  },
+  "Teng Clan": {
+    "fr": "Clan Teng",
+    "category": "secte"
+  },
+  "Wang Clan": {
+    "fr": "Clan Wang",
+    "category": "secte"
+  },
+  "Fighting Evil Sect": {
+    "fr": "Secte de la Lutte contre le Mal",
+    "category": "secte"
+  },
+  "Soul Refining Sect": {
+    "fr": "Secte de Raffinage des Âmes",
+    "category": "secte"
+  },
+  "God Sect": {
+    "fr": "Secte Divine",
+    "category": "secte"
+  },
+  "Cloud Sky Sect": {
+    "fr": "Secte du Ciel des Nuages",
+    "category": "secte"
+  },
+  "Heavenly Fate Sect": {
+    "fr": "Secte du Destin Céleste",
+    "category": "secte"
+  },
+  "Origin Sect": {
+    "fr": "Secte Originelle",
+    "category": "secte"
+  },
+  "Xuan Dao Sect": {
+    "fr": "Secte Xuan Dao",
+    "category": "secte"
+  }
+}
