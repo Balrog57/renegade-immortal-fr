@@ -40,15 +40,15 @@ Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillar
 
 « Allons-y ! » Wang Lin fit un pas en avant et se précipita vers le bout de la longue rue.
 
-L'Exalt Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalt Empyréen !
+L'Exalt Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de cultivation d'Exalt Empyréen !
 
 L'Exalt Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalt Empyreens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus !
 
-« Ils ne sont pas des cultivateurs de niveau Exalt Empyréen, leur culture a été augmentée de force ! Cela ne durera pas ! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
+« Ils ne sont pas des cultivateurs de niveau Exalt Empyréen, leur cultivation a été augmentée de force ! Cela ne durera pas ! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
 
 Cependant, même après les avoir toutes rassemblées, cela ne suffirait qu'à former une seule Veine Magique. En absorbant leurs âmes originelles, Wang Lin put déterminer qu'il ne leur restait qu'une heure à vivre !
 
-Ils payaient un prix exorbitant, leur propre vie, en échange d'un surcroît de culture d'une heure seulement !
+Ils payaient un prix exorbitant, leur propre vie, en échange d'un surcroît de cultivation d'une heure seulement !
 
 Wang Lin possédait désormais cinq Veines Magiques et pouvait créer 98 images spectrales. S'il pouvait en ajouter une de plus, sa puissance de combat augmenterait considérablement.
 
@@ -66,11 +66,11 @@ Mais à cet instant précis, trois silhouettes apparurent dans le blizzard. Ces 
 
 Bien qu'ils ne soient pas encore proches, une puissance proche de celle d'un Ascendant Empyréen émanait de leurs corps.
 
-Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces deux individus possédaient également une culture d'Ascendant Empyréen. Ils observaient la scène froidement avant de lever les mains ; un vent noir hurla alors, formant deux pythons gigantesques qui s'enroulaient dans le ciel.
+Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces deux individus possédaient également une cultivation d'Ascendant Empyréen. Ils observaient la scène froidement avant de lever les mains ; un vent noir hurla alors, formant deux pythons gigantesques qui s'enroulaient dans le ciel.
 
 « Messagers de l'armure spirituelle ! » Wang Lin les reconnut d'un coup d'œil !
 
-« Ces deux-là m'sont inconnus. J'ai vu les 48 autres Ascendants Empyreens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure spirituelle... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures !
+« Ces deux-là m'sont inconnus. J'ai vu les 48 autres Ascendants Empyreens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure spirituelle... Ils ont dû voir leur niveau de cultivation élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures !
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste ! »
 
@@ -112,7 +112,7 @@ Cette lueur provenait de son avatar le plus puissant, tapi dans le vide. Il n'av
 
 C'était également le propriétaire de ce doigt qui avait placé le motif carré affaiblissant la puissance de combat de Wang Lin !
 
-Dès que la lumière dorée jaillit, la restriction à l'intérieur du corps de Wang Lin s'affaiblit et vola en éclats. Toute sa culture fut restaurée et la lumière dorée se reflétant sur les fragments de la Lame Yin forma une formation !
+Dès que la lumière dorée jaillit, la restriction à l'intérieur du corps de Wang Lin s'affaiblit et vola en éclats. Toute sa cultivation fut restaurée et la lumière dorée se reflétant sur les fragments de la Lame Yin forma une formation !
 
 L'essence de la restriction de Wang Lin étant désormais complète, il pouvait déployer des formations à sa guise !
 

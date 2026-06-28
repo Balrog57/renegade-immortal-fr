@@ -12,9 +12,9 @@ Lu Yanfei aimait le rouge, et presque tout le monde au Sect d'Origine le savait.
 
 À cet instant, Lu Yanfei portait une robe rouge, ses cheveux longs et libres dans son dos. Elle restait assise en silence, le visage encore pâle, empreint d'une tristesse qui ne s'était pas encore dissipée. Cela la rendait plus belle encore, soulignée par cette touche de pourpre.
 
-Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de culture étaient inférieurs à ceux de Lu Yanfei.
+Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de cultivation étaient inférieurs à ceux de Lu Yanfei.
 
-Lu Yanfei, au sommet du stade Nirvana Scryer, était la beauté numéro un du Sect d'Origine et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la culture de son maître, un expert au sommet du stade Nirvana Cleanser, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, le Sect d'Origine se trouvait dans son état le plus vulnérable.
+Lu Yanfei, au sommet du stade Nirvana Scryer, était la beauté numéro un du Sect d'Origine et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la cultivation de son maître, un expert au sommet du stade Nirvana Cleanser, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, le Sect d'Origine se trouvait dans son état le plus vulnérable.
 
 En ce moment, Lu Yanfei tenait un jade. C'était une pierre de jade violette qu'elle serrait impitoyablement, au point que sa main, aussi délicate que du jade, en devint légèrement blanche.
 
@@ -22,7 +22,7 @@ L'humiliation se lisait dans ses yeux, mais elle ne pouvait que la subir. Elle a
 
 Après avoir laissé échapper un profond soupir, elle parvint tout juste à reprendre ses esprits et regarda les trois disciples féminines devant elle avant de dire doucement : « Faites-les entrer. »
 
-Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yun, possédait le niveau de culture le plus élevé ; elle se trouvait à une demi-étape du stade Illusory Yin. Bien qu'elle ne fût pas aussi belle que son maître, elle était extrêmement délicate et dotée d'une personnalité douce.
+Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yun, possédait le niveau de cultivation le plus élevé ; elle se trouvait à une demi-étape du stade Illusory Yin. Bien qu'elle ne fût pas aussi belle que son maître, elle était extrêmement délicate et dotée d'une personnalité douce.
 
 Peu de temps après, quatre jeunes aux visages pâles et tremblants firent leur entrée. En pénétrant dans la pièce, ils n'osèrent même pas respirer. La tête basse, ils semblaient ne plus savoir comment agir.
 
@@ -38,7 +38,7 @@ Xu Yun hésita un moment en observant le jade violet dans la main de Lu Yanfei. 
 
 Ce n'est qu'une fois Xu Yun partie que l'intention de tuer envahit le regard de Lu Yanfei. Telle une Asura de jade, elle serra le jade violet ; l'humiliation dans ses yeux fut totalement supplantée par une soif de sang.
 
-« Rudy, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de culture ! »
+« Rudy, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de cultivation ! »
 
 À l'extérieur du pavillon rouge se trouvaient trois personnes. Outre Wang Lin, il y avait deux autres jeunes. L'un d'eux paraissait simple, vêtu de vêtements modestes. L'autre affichait un air légèrement malicieux et portait une chemise bleue avec une certaine élégance.
 
@@ -64,7 +64,7 @@ Ce sort provoqua l'excitation du jeune homme simple, et même celui en bleu lais
 
 « Salutations, Maître », dirent les deux cultivateurs avec grand respect devant Xu Yun.
 
-« Préparez une place pour qu'ils puissent loger et donnez-leur les chants de culture des trois premières couches. » Après avoir donné ses ordres, Xu Yun entra dans la cour. Elle se retourna ensuite, pointa Wang Lin du doigt et dit : « Toi, entre. »
+« Préparez une place pour qu'ils puissent loger et donnez-leur les chants de cultivation des trois premières couches. » Après avoir donné ses ordres, Xu Yun entra dans la cour. Elle se retourna ensuite, pointa Wang Lin du doigt et dit : « Toi, entre. »
 
 Si cette jeune fille avait délaissé son attitude froide, ce geste aurait été empreint de charme.
 
@@ -72,7 +72,7 @@ Wang Lin entra dans la cour d'un pas calme. Le parfum des herbes l'assaillit, et
 
 « Vous vivrez là », dit Xu Yun en désignant la petite maison en bois devant elle. Elle avait observé Wang Lin attentivement, troublée par son calme excessif. S'il avait été un cultivateur, cela n'aurait rien eu de spécial, mais peu importait ses vérifications, ce Ceng Niu ne dégageait aucune trace d'énergie spirituelle. Cela la surprenait au plus haut point.
 
-Cependant, elle n'y réfléchit pas plus longtemps. Après lui avoir expliqué comment entretenir les herbes et lui avoir transmis les chants de culture, elle ignora Wang Lin pour entrer dans la maison centrale et se mettre en méditation. Elle s'efforçait désespérément d'atteindre le stade du Yang Corporel afin de pouvoir être utile à son maître.
+Cependant, elle n'y réfléchit pas plus longtemps. Après lui avoir expliqué comment entretenir les herbes et lui avoir transmis les chants de cultivation, elle ignora Wang Lin pour entrer dans la maison centrale et se mettre en méditation. Elle s'efforçait désespérément d'atteindre le stade du Yang Corporel afin de pouvoir être utile à son maître.
 
 En pensant au jade violet entre les mains de son maître, Xu Yan ressentit une amertume profonde. Elle savait que la beauté de son maître avait attiré l'attention de nombreux cultivateurs puissants. Maintenant que l'Ancêtre était mort, les cœurs de beaucoup s'étaient emballés. En pensant au fait que ses trois Oncles-Maîtres avaient refusé d'aider, Xu Yun se mordit fermement la lèvre inférieure.
 
@@ -82,7 +82,7 @@ Une fois Xu Yun partie, Wang Lin eut un léger sourire en observant les herbes a
 
 S'étirant, il s'allongea sur le lit et regarda le plafond de bois, affichant une expression détendue. Cela faisait très longtemps qu'il n'avait pas connu une telle facilité. Que ce soit au village de North Water ou dans son lieu actuel, les deux endroits lui avaient offert une rare tranquillité d'esprit.
 
-À son niveau de culture, outre la pratique elle-même, les facteurs les plus cruciaux étaient la compréhension du Dao et des lois. Allongé là, Wang Lin se sentait serein et saisissait vaguement certaines idées.
+À son niveau de cultivation, outre la pratique elle-même, les facteurs les plus cruciaux étaient la compréhension du Dao et des lois. Allongé là, Wang Lin se sentait serein et saisissait vaguement certaines idées.
 
 « Vérité et fausseté... Peut-être suis-je entre le vrai et le faux en ce moment... » murmura Wang Lin avec un sourire avant de fermer lentement les yeux.
 

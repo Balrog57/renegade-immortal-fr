@@ -32,7 +32,7 @@ Un Dragon Azure affaibli se dessina vaguement au-dessus de lui. Ce dragon était
 
 Après un temps indéterminé, les rugissements de l'Empereur Divin du Dragon Azure s'apaisèrent progressivement. La tumeur de sept pouces se rétracta jusqu'à disparaître. Les chaînes cessèrent de s'entrechoquer et l'Empereur Divin retrouva son calme. Il se rassit, la respiration lourde, et après un long moment, il afficha une expression amère.
 
-« J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa culture, sa tête se redressa brusquement. Un éclat de joie passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
+« J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa cultivation, sa tête se redressa brusquement. Un éclat de joie passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
 
 « Excellent ! Excellent ! Vraiment un Empereur Divin digne, choisi par le vieil Oiseau Vermillon. Il a été capable de renaître par le feu et a accompli le troisième éveil de l'Oiseau Vermillon. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens ! Bien ! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible ! »
 
@@ -56,7 +56,7 @@ Toute la Secte Divine des Quatre se mit en mouvement !
 
 Dans le Royaume aux Sept Couleurs, alors que l'Oiseau Vermillon Bleu s'élançait dans les airs, la silhouette de Wang Lin émergea lentement des flammes bleues. Il observa le monde azuré devant lui avec un regard perçant.
 
-« Si mon feu, mon tonnerre et mon intention de combat fusionnent avec mes domaines vrai et faux, mon niveau de culture augmentera une fois de plus. Personne n'atteignant le niveau de culture du Fléau Céleste ne pourra me faire face ! » Wang Lin scruta les profondeurs du Royaume aux Sept Couleurs. Il aperçut une montagne imposante au loin, ainsi que la grotte nichée dans cette paroi, et la scène étrange qui s'y déroulait.
+« Si mon feu, mon tonnerre et mon intention de combat fusionnent avec mes domaines vrai et faux, mon niveau de cultivation augmentera une fois de plus. Personne n'atteignant le niveau de cultivation du Fléau Céleste ne pourra me faire face ! » Wang Lin scruta les profondeurs du Royaume aux Sept Couleurs. Il aperçut une montagne imposante au loin, ainsi que la grotte nichée dans cette paroi, et la scène étrange qui s'y déroulait.
 
 « Planter le Dao pour le nourrir... Une fois le fruit mûr, qui viendra le cueillir... ? » Les yeux de Wang Lin s'illuminèrent alors qu'il leva sa main droite pour pointer l'horizon !
 
@@ -64,7 +64,7 @@ Sur ce geste, l'Oiseau Vermillon Bleu poussa un cri et s'élança soudainement. 
 
 Ce dernier était entouré de neuf fragments d'os de bête qui repoussaient les flammes environnantes, lui permettant de progresser. Cependant, alors qu'il s'approchait, il s'arrêta net et regarda devant lui. Un océan de flammes bleues couvrait le monde et une chaleur intense s'en dégageait. Des craquements sinistres provenaient des neuf fragments d'os entourant le vieillard. Ils semblaient incapables de résister à l'onde de chaleur et étaient sur le point de céder.
 
-« Un feu aussi prodigieux... Il est extrêmement rare de voir une telle chose. Le niveau de culture de cet enfant n'est pas élevé, mais avec ce seul feu, il pourrait combattre des cultivateurs du stade Nirvana Shatterer sans être à la traîne ! Hélas... » Les mains du vieil homme formèrent un sceau et son énergie originelle se mit en mouvement. Sa puissance de cultivateur au stade avancé du Nirvana Shatterer se propagea, faisant apparaître une sphère géante entre ses paumes.
+« Un feu aussi prodigieux... Il est extrêmement rare de voir une telle chose. Le niveau de cultivation de cet enfant n'est pas élevé, mais avec ce seul feu, il pourrait combattre des cultivateurs du stade Nirvana Shatterer sans être à la traîne ! Hélas... » Les mains du vieil homme formèrent un sceau et son énergie originelle se mit en mouvement. Sa puissance de cultivateur au stade avancé du Nirvana Shatterer se propagea, faisant apparaître une sphère géante entre ses paumes.
 
 Cette sphère contenait une quantité colossale d'énergie originelle. En tournant, elle dégageait une aura destructrice effrénée.
 

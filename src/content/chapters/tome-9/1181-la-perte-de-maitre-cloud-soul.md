@@ -40,7 +40,7 @@ Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la fai
 
 L'énergie d'origine céleste qui bouillonnait en lui jaillit avec frénésie pour se transformer en un Sort de Stase qui enveloppa Maître Cloud Soul. En un clin d'œil, le corps de ce dernier se figea !
 
-Avec son niveau de culture, il ne lui faudrait qu'un instant pour briser les fils invisibles du sort de stase, mais ce délai était suffisant. Au moment où Wang Lin pénétra dans la faille, un rayon d'énergie d'épée fendit l'air vers la tête de Maître Cloud Soul. Simultanément, un coup de poing chargé de la puissance d'un Dieu Ancien fut projeté contre lui.
+Avec son niveau de cultivation, il ne lui faudrait qu'un instant pour briser les fils invisibles du sort de stase, mais ce délai était suffisant. Au moment où Wang Lin pénétra dans la faille, un rayon d'énergie d'épée fendit l'air vers la tête de Maître Cloud Soul. Simultanément, un coup de poing chargé de la puissance d'un Dieu Ancien fut projeté contre lui.
 
 L'énergie d'épée fondit sur lui. Maître Cloud Soul parvint à se libérer du Sort de Stase juste à temps pour esquiver, mais il poussa un gémissement de douleur alors que le sang jaillissait de son bras droit. L'énergie d'épée lui avait tranché le membre !
 
@@ -96,7 +96,7 @@ Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il r
 
 Le garçon nommé Duanmu observa Wang Lin avant de s'adresser à Maître Ashen Pine d'un ton vif : « Intéressant. Cependant, Maître Ashen Pine, les paroles du camarade Lu sont très logiques. Maître Cloud Soul a des jambes et un cerveau ; peut-être ne souhaitait-il pas entrer, ou préférait-il ne pas nous accompagner et a choisi une autre voie. »
 
-Maître Ashen Pine fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de culture de Maître Cloud Soul, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Maître Cloud Soul en si peu de temps !
+Maître Ashen Pine fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de cultivation de Maître Cloud Soul, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Maître Cloud Soul en si peu de temps !
 
 Son regard balaya Wang Lin. Il refusait de croire que Maître Cloud Soul avait péri, d'autant plus que ce dernier, tout comme lui, connaissait parfaitement cet endroit. Ils étaient tous deux déjà venus deux fois...
 

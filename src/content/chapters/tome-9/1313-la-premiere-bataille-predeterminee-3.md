@@ -32,13 +32,13 @@ Ils étaient d'un nombre prodigieux, pas moins de 100 000, occupant désormais t
 
 La Formation de Scellement Divin servait à sceller les dieux ! Les anciens dieux !
 
-Outre les nombreux cultivateurs, toutes les planètes de culture étaient disposées selon cette gigantesque formation. Lorsque le vieil homme rugit, le monde entier changea soudainement !
+Outre les nombreux cultivateurs, toutes les planètes de cultivation étaient disposées selon cette gigantesque formation. Lorsque le vieil homme rugit, le monde entier changea soudainement !
 
 Le vide n'existait plus ! Il fut remplacé par la lumière lunaire. Le monde avait disparu pour laisser place à un clair de lune infini !
 
 Un croissant de lune gigantesque apparut dans le ciel. Une lueur lunaire sans fin s'en dégagea et enveloppa toute chose !
 
-Un vieil homme du Clan Lunaire siégeait sur chacune des centaines de planètes de culture du domaine stellaire. Chacun d'eux déployait sa pleine puissance pour permettre à la lumière lunaire d'atteindre son apogée !
+Un vieil homme du Clan Lunaire siégeait sur chacune des centaines de planètes de cultivation du domaine stellaire. Chacun d'eux déployait sa pleine puissance pour permettre à la lumière lunaire d'atteindre son apogée !
 
 Pour le Clan Lunaire, les anciens dieux morts ne valaient pas un ancien dieu vivant, et encore moins un ancien dieu royal. Cela représentait une tentation fulgurante !
 

@@ -12,7 +12,7 @@ Ses pupilles se rétractèrent jusqu'à devenir de simples points noirs alors qu
 
 « Ji Qiong ! » Les souvenirs de l'Ancien Dieu Tu Si traversèrent l'esprit de Wang Lin avant de se fixer sur le souvenir de cette bête féroce.
 
-Après avoir reconnu cette créature, une sueur froide perla sur le front de Wang Lin. À mesure que son niveau de culture, sa compréhension des lois et son expérience augmentaient, Wang Lin comprit que les cultivateurs n'étaient pas les plus puissants. Il existait des bêtes féroces d'une puissance inimaginable.
+Après avoir reconnu cette créature, une sueur froide perla sur le front de Wang Lin. À mesure que son niveau de cultivation, sa compréhension des lois et son expérience augmentaient, Wang Lin comprit que les cultivateurs n'étaient pas les plus puissants. Il existait des bêtes féroces d'une puissance inimaginable.
 
 Il y avait même des bêtes si redoutables que même un Ancien Dieu à 8 étoiles ne voudrait pas les provoquer ! Comme l'essaim de bêtes moustiques ou l'autre souvenir dont Wang Lin venait de se remémorer.
 
@@ -32,7 +32,7 @@ La vision s'interrompit ici. Wang Lin regarda le Ji Qiong qui le fixait et recul
 
 L'une des têtes du Ji Qiong manifesta une hésitation. Elle regarda Wang Lin, puis le cadavre restant, comme si elle pesait le pour et le contre.
 
-Wang Lin fit un autre pas de recul tout en restant sur ses gardes. D'après les souvenirs de Tu Si, cette bête était extrêmement puissante. Wang Lin devait admettre qu'avec son niveau de culture actuel, il lui serait difficile de tuer ou de capturer une telle créature ; il ne pouvait donc que battre en retraite.
+Wang Lin fit un autre pas de recul tout en restant sur ses gardes. D'après les souvenirs de Tu Si, cette bête était extrêmement puissante. Wang Lin devait admettre qu'avec son niveau de cultivation actuel, il lui serait difficile de tuer ou de capturer une telle créature ; il ne pouvait donc que battre en retraite.
 
 Cependant, il devait reculer avec prudence et lenteur. S'il allait trop vite, la bête féroce se lancerait immédiatement à sa poursuite.
 

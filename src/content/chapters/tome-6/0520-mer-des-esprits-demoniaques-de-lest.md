@@ -42,7 +42,7 @@ Alors que les quatre épées disparaissaient, une immense quantité de lumière 
 
 La plupart des cultivateurs environnants s'étaient déjà dispersés, et même ceux qui n'étaient pas encore partis commencèrent à s'éloigner lentement. Bientôt, il ne restait qu'une poignée de cultivateurs aux abords de la Mer des Esprits Démoniaques de l'Est.
 
-Tous ces individus étaient des vieux monstres célèbres dotés de hauts niveaux de culture. Ils se connaissaient tous, et la seule raison pour laquelle ils n'étaient pas partis était l'objet aperçu dans ce dernier rayon de lumière rouge.
+Tous ces individus étaient des vieux monstres célèbres dotés de hauts niveaux de cultivation. Ils se connaissaient tous, et la seule raison pour laquelle ils n'étaient pas partis était l'objet aperçu dans ce dernier rayon de lumière rouge.
 
 Cette affaire touchait à un grand secret de la planète Tian Yun. Un silence pesant régnait ; personne n'osait parler.
 
@@ -64,7 +64,7 @@ Bien que cette planète ne puisse rivaliser avec Tian Yun, elle était bien plus
 
 C'est lui qui y avait établi la Secte de la Grande Épée ! Et il l'avait nommée Da Lou !
 
-Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de culture solitaire situé dans sa partie orientale.
+Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de cultivation solitaire situé dans sa partie orientale.
 
 « Je dois utiliser ces 200 ans pour perfectionner l'Épée Céleste. Je vais fusionner neuf esprits de bêtes démoniaques en un seul afin d'affiner cette épée céleste et d'en faire une épée démoniaque. À ce moment-là, mes chances d'obtenir le jeton seront décuplées. » Les yeux du Saint de l'Épée s'illuminèrent alors qu'il disparaissait dans son pavillon personnel.
 
@@ -78,7 +78,7 @@ Ses yeux brillèrent. Il examina attentivement les ossements et un léger sourir
 
 Peut-être que certains savaient à quel point ce lieu était vaste, mais Wang Lin n'en faisait manifestement pas partie. Après avoir franchi la porte, il eut l'impression de traverser une masse aqueuse pour plonger dans les profondeurs d'un océan. Devant lui s'étendait un désert immense.
 
-Cet endroit possédait un ciel, une terre et même une mer, mais ce n'était pas une planète de culture.
+Cet endroit possédait un ciel, une terre et même une mer, mais ce n'était pas une planète de cultivation.
 
 Il n'y avait personne autour de la position actuelle de Wang Lin ; seule l'étendue infinie du désert l'entourait. Les neuf autres membres de la Secte du Destin Céleste avaient été dispersés lors de l'entrée dans le portail. À cet instant, il ignorait tout de leur sort.
 
@@ -92,13 +92,13 @@ Il n'y avait personne autour de la position actuelle de Wang Lin ; seule l'éten
 
 Plus tôt, en écoutant Sun Yunshan, il avait appris qu'une fois entré dans la Mer des Esprits Démoniaques de l'Est, on devait y rester 500 ans. Cette information l'avait convaincu de sa décision.
 
-Il fallait admettre que l'homme que Wang Lin redoutait le plus était Tuo Sen, de la Terre de l'Ancien Dieu. Une fois libéré, la première chose que Tuo Sen ferait serait de traquer Wang Lin. Avec son niveau de culture actuel, il lui serait absolument impossible de l'affronter !
+Il fallait admettre que l'homme que Wang Lin redoutait le plus était Tuo Sen, de la Terre de l'Ancien Dieu. Une fois libéré, la première chose que Tuo Sen ferait serait de traquer Wang Lin. Avec son niveau de cultivation actuel, il lui serait absolument impossible de l'affronter !
 
 C'était précisément pour cela qu'il cultivait l'Art du Massacre Céleste avec une telle acharnement : transformer sa force vitale en sceaux de vie. Sachant qu'il ne pourrait vaincre Tuo Sen, il devait acquérir un sortilège capable de lui sauver la vie !
 
 Ce n'est qu'une fois l'Art du Massacre Céleste parvenu à sa pleine maîtrise et qu'il aurait formé une multitude de sceaux de vie qu'il pourrait espérer résister à Tuo Sen. C'était son objectif primordial !
 
-« Je me demande quel niveau de culture je pourrai atteindre en 500 ans... » Une lueur étrange passa dans les yeux de Wang Lin alors qu'il poursuivait ses réflexions secrètes.
+« Je me demande quel niveau de cultivation je pourrai atteindre en 500 ans... » Une lueur étrange passa dans les yeux de Wang Lin alors qu'il poursuivait ses réflexions secrètes.
 
 « Il y a aussi la question du senior Zhou Yi. C'est une autre raison de ma présence ici. Avec le domaine du senior Zhou Yi dans la pagode, il ne devrait pas être difficile de localiser l'endroit où le Saint de l'Épée l'a scellé. Si je parviens à le sauver, son aide alliée aux épées célestes me conférera une puissance d'attaque redoutable en très peu de temps ! »
 

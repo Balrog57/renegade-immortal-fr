@@ -18,7 +18,7 @@ Le sens divin de Wang Lin continua de fouiller l'esprit de Sima Yan. Les souveni
 
 Six mois après son départ, Treize et Hu Pao eurent une dispute. Hu Pao décida de ne plus attendre et retourna à la tribu, tandis que Treize était déterminé à rester ici pour attendre Wang Lin.
 
-Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, gaspilla sa culture avant de le jeter dans la Prison Obscure. Trois mois plus tard, Hu Pao disparut mystérieusement !
+Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, gaspilla sa cultivation avant de le jeter dans la Prison Obscure. Trois mois plus tard, Hu Pao disparut mystérieusement !
 
 La Prison Obscure était si bien gardée que même Sima Yan ignorait comment Hu Pao avait pu disparaître.
 
@@ -46,7 +46,7 @@ L'homme en armure noire fixa Wang Lin, réfléchit un instant, puis dit : « Par
 
 L'homme costaud avait lancé ces paroles dans un moment de désespoir. Ayant été vaincu par Wang Lin, il ne s'attendait pas à survivre, mais il fut soudainement stupéfait.
 
-Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit : « Il y a six mois, le général démon est entré en culture de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage ! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
+Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit : « Il y a six mois, le général démon est entré en cultivation de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage ! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
 
 Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité Démoniaque menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'autre côté et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
 
@@ -90,7 +90,7 @@ Au moment où la sixième porte s'effondra, Wang Lin pénétra à l'intérieur.
 
 « Je veux rencontrer le général démon ! » Bien que sa voix fût calme, une aura de majesté commença à se propager.
 
-« Tuez ! » Des rugissements empreints d'une intention meurtrière jaillirent de la bouche de milliers de soldats démons. Leur ordre était d'éliminer quiconque oserait s'introduire dans les lieux alors que le général démon était en culture de méditation.
+« Tuez ! » Des rugissements empreints d'une intention meurtrière jaillirent de la bouche de milliers de soldats démons. Leur ordre était d'éliminer quiconque oserait s'introduire dans les lieux alors que le général démon était en cultivation de méditation.
 
 Wang Lin resta calme face à cette multitude, son regard devenant glacial. Il sauta de l'épée céleste, forma un sceau de la main et l'agita. Un vent étrange surgit soudainement, formant une tornade sur la place. Elle balaya rapidement la zone, creusant de force un passage à travers les milliers de soldats démons.
 
@@ -104,7 +104,7 @@ Derrière la cinquième porte, des dizaines de milliers de soldats démons, ayan
 
 À l'instant où la cinquième porte vola en éclats, cette énergie spirituelle démoniaque jaillit avec fureur.
 
-Même avec la culture de Wang Lin, il dut reculer de quelques pas pour l'éviter. Simultanément, il toucha sa sacoche de rangement et les trois fourreaux d'épée sans nom de la planète Suzaku s'envolèrent.
+Même avec la cultivation de Wang Lin, il dut reculer de quelques pas pour l'éviter. Simultanément, il toucha sa sacoche de rangement et les trois fourreaux d'épée sans nom de la planète Suzaku s'envolèrent.
 
 Peu après, trois rayons d'énergie d'épée jaillirent des fourreaux tels trois dragons en colère et entrèrent en collision avec l'énergie spirituelle démoniaque.
 
@@ -118,7 +118,7 @@ S'appuyant sur l'énergie d'épée des fourreaux, l'énergie spirituelle célest
 
 À ce moment, les milliers de soldats démons de la cinquième porte surgirent par derrière et encerclèrent Wang Lin.
 
-« Seigneur général démon, Wang Lin demande une audience ! » La voix de Wang Lin se propagea lentement. Il était convaincu que même en pleine culture de méditation, le général démon serait capable de l'entendre.
+« Seigneur général démon, Wang Lin demande une audience ! » La voix de Wang Lin se propagea lentement. Il était convaincu que même en pleine cultivation de méditation, le général démon serait capable de l'entendre.
 
 Mais le temps passa, et le général démon ne montra aucune réaction.
 
@@ -140,7 +140,7 @@ Wang Lin fit un pas et franchit directement la quatrième porte. Outre les innom
 
 Wang Lin n'était pas étranger à cet homme. C'était celui qui était venu au camp militaire avec le majordome il y a plus d'un an !
 
-Le visage du vieil homme était livide et empreint d'incrédulité. Il avait vu Wang Lin il y a plus d'un an, et à l'époque, leurs niveaux de culture étaient approximativement les mêmes. Pourtant, en se revoyant aujourd'hui, le niveau de culture de Wang Lin avait augmenté de façon prodigieuse. S'il n'avait pas puisé dans la puissance des soldats démons, ouvert tous ses sceaux internes et lancé une attaque surprise, Wang Lin n'aurait même pas reculé d'un seul pas !
+Le visage du vieil homme était livide et empreint d'incrédulité. Il avait vu Wang Lin il y a plus d'un an, et à l'époque, leurs niveaux de cultivation étaient approximativement les mêmes. Pourtant, en se revoyant aujourd'hui, le niveau de cultivation de Wang Lin avait augmenté de façon prodigieuse. S'il n'avait pas puisé dans la puissance des soldats démons, ouvert tous ses sceaux internes et lancé une attaque surprise, Wang Lin n'aurait même pas reculé d'un seul pas !
 
 Wang Lin pénétra dans la zone et utilisa à nouveau le pouvoir du Doigt de la Mort. Le vieil homme poussa un rugissement alors que toute l'énergie spirituelle démoniaque de son corps affluait pour invoquer un autre python géant. Son corps fusionna avec la créature, qui tenta une nouvelle fois d'engloutir Wang Lin.
 
@@ -156,7 +156,7 @@ Une fois ces formations complétées, elles se condensaient instantanément en b
 
 Face à cette marée de soldats, Wang Lin comprit qu'un homme seul n'avait pas assez de puissance pour défier le ciel !
 
-À moins d'une culture de niveau céleste, il serait extrêmement difficile de s'extraire de ces formations composées par des dizaines de milliers de soldats démons.
+À moins d'une cultivation de niveau céleste, il serait extrêmement difficile de s'extraire de ces formations composées par des dizaines de milliers de soldats démons.
 
 Il pouvait tuer un homme, dix, cent, mille ou dix mille individus. Mais une fois ce massacre achevé, toute son énergie spirituelle céleste serait épuisée !
 
@@ -164,11 +164,11 @@ Ses trésors magiques — l'épée céleste, la lame en croissant, le drapeau de
 
 Les yeux de Wang Lin étaient injectés d'une intention meurtrière alors qu'il lançait divers sorts.
 
-Toutefois, les soldats démons étaient trop nombreux et, en fusionnant leur énergie spirituelle, ils pouvaient déclencher des attaques d'une puissance inouïe. Ainsi, malgré sa culture au sommet de la Transformation de l'Âme, l'énergie spirituelle céleste de Wang Lin s'épuisait à une vitesse alarmante !
+Toutefois, les soldats démons étaient trop nombreux et, en fusionnant leur énergie spirituelle, ils pouvaient déclencher des attaques d'une puissance inouïe. Ainsi, malgré sa cultivation au sommet de la Transformation de l'Âme, l'énergie spirituelle céleste de Wang Lin s'épuisait à une vitesse alarmante !
 
 Wang Lin frappa sa sacoche de rangement et une grande quantité de jades célestes s'en échappa pour graviter autour de lui. Il aspira rapidement toute l'énergie des jades pour restaurer sa propre énergie spirituelle céleste ; ce cycle se répéta, consommant une quantité massive de ressources.
 
-« Doigt démoniaque ! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier ! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le doigt de la mort, et l'énergie perça les soldats démons, faisant exploser leurs corps.
+« Doigt démoniaque ! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa cultivation au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier ! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le doigt de la mort, et l'énergie perça les soldats démons, faisant exploser leurs corps.
 
 Des éclats de lumière rouge sang couvrent le ciel et la terre. Wang Lin s'élança, ouvrant une voie à travers des dizaines de milliers de soldats pour charger directement vers la troisième porte.
 
@@ -180,7 +180,7 @@ Le dragon de sang créé par le doigt frappa la troisième porte. Après une sé
 
 À travers les décombres, des dizaines de milliers de soldats démons surgirent de la troisième porte. Ils étaient accompagnés de six vieillards aux cheveux blancs qui, dès leur apparition, verrouillèrent Wang Lin du regard.
 
-Wang Lin poussa un soupir. C'était là sa limite face à sa culture actuelle. Aucun des cinq anciens sortant de la porte n'était inférieur à un cultivateur au stade avancé de la Transformation de l'Âme.
+Wang Lin poussa un soupir. C'était là sa limite face à sa cultivation actuelle. Aucun des cinq anciens sortant de la porte n'était inférieur à un cultivateur au stade avancé de la Transformation de l'Âme.
 
 Ajoutant les dizaines de milliers de soldats qui l'entouraient, Wang Lin savait qu'il devait utiliser son ultime atout pour franchir la deuxième porte !
 
@@ -188,7 +188,7 @@ Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus pui
 
 « Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant s'inclinerait !
 
-« Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade !
+« Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de cultivation du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade !
 
 « Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des dizendes de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang ! »
 
@@ -212,11 +212,11 @@ Simultanément, Wang Lin s'éleva dans les airs et fusionna avec ce doigt. À ce
 
 Après sa fusion avec le Doigt du Monde Souterrain, Wang Lin se rua soudainement vers la deuxième porte.
 
-Les cinq anciens, dont la culture égalait celle de la Transformation de l'Âme au stade avancé, furent terrifiés par la puissance du sort, mais ils serrèrent les dents et activèrent leur énergie spirituelle démoniaque pour bloquer sa progression.
+Les cinq anciens, dont la cultivation égalait celle de la Transformation de l'Âme au stade avancé, furent terrifiés par la puissance du sort, mais ils serrèrent les dents et activèrent leur énergie spirituelle démoniaque pour bloquer sa progression.
 
 Cependant, ils avaient sous-estimé la force du Doigt du Monde Souterrain. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Sun Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier !
 
-À présent, la culture de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt du Monde Souterrain était suffisant pour menacer des cultivateurs Ascendants !
+À présent, la cultivation de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt du Monde Souterrain était suffisant pour menacer des cultivateurs Ascendants !
 
 C'était le véritable atout de Wang Lin !
 

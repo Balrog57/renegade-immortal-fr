@@ -16,7 +16,7 @@ Bien que la femme accompagnant le vieil homme Hu gardât la tête baissée, ses 
 
 « Où allez-vous ? » La voix du jeune homme était calme, mais elle n'occultait en rien son aura condescendante.
 
-Le vieil homme comprit immédiatement que la culture de ce jeune homme se situait au sommet du stade initial de la Formation de l'Âme. Il ricana intérieurement, mais ne laissa rien paraître et répondit : « Nous nous rendons au Cimetière des Immortels. »
+Le vieil homme comprit immédiatement que la cultivation de ce jeune homme se situait au sommet du stade initial de la Formation de l'Âme. Il ricana intérieurement, mais ne laissa rien paraître et répondit : « Nous nous rendons au Cimetière des Immortels. »
 
 Le regard du jeune homme se posa sur la femme au voile blanc et il ordonna : « Retirez votre voile. »
 
@@ -52,7 +52,7 @@ Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il 
 
 Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Red Butterfly. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Ceng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
 
-De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu n'avait même pas pratiqué la culture pendant soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Red Butterfly elle-même.
+De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu n'avait même pas pratiqué la cultivation pendant soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Red Butterfly elle-même.
 
 Les histoires et les légendes de ce genre étaient légion.
 
@@ -74,7 +74,7 @@ Le jeune homme attendit un moment. Ne recevant aucune réponse, il fronça les s
 
 À ces mots, les six individus affichèrent des expressions diverses. Les yeux du vieil homme Hu s'illuminèrent tandis qu'il fixait la vallée.
 
-Malgré l'attente, aucun signe ne vint de la vallée. Feng Yushan était hors de lui. En tant que disciple de Suzaku, il recevait les honneurs partout où il allait. Même les pays de culture de rang 5 n'osaient l'ignorer ainsi.
+Malgré l'attente, aucun signe ne vint de la vallée. Feng Yushan était hors de lui. En tant que disciple de Suzaku, il recevait les honneurs partout où il allait. Même les pays de cultivation de rang 5 n'osaient l'ignorer ainsi.
 
 Le regard de Feng Yushan devint sombre et il déclara d'une voix lente : « Cher cultivateur Ceng, ne refusez pas notre bienveillance pour ne pas le regretter plus tard. Nul n'ose ignorer les ordres de Suzaku ! »
 
@@ -116,7 +116,7 @@ Au cœur de la vallée, le corps momifié s'anima à l'arrivée des six individu
 
 Wang Lin prit une profonde inspiration, se leva et esquissa un sourire. D'un geste de la main, il s'enveloppa d'une épaisse brume blanche. Une fois la brume dissipée, Wang Lin apparut devant eux, vêtu d'une robe blanche.
 
-Tout ce qui avait pu marquer son corps durant sa culture avait disparu.
+Tout ce qui avait pu marquer son corps durant sa cultivation avait disparu.
 
 Wang Lin pointa le sol et, soudain, une table de pierre surgit de la terre, accompagnée de plusieurs chaises de pierre.
 

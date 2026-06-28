@@ -38,7 +38,7 @@ Il leva le second jade. Son expression devint féroce et il projeta un message p
 
 Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le Daoïste Shui ne s'arrêta pas là. Il saisit le troisième jade.
 
-« Mu Bingmei, ce vieil homme t'a aidée à guérir, a restauré ta culture et a permis l'augmentation de ton niveau de cultivation. Je demande que tu me rendes cette faveur. Je veux que tu dévores cette pilule et que tu sortes pour m'aider ! »
+« Mu Bingmei, ce vieil homme t'a aidée à guérir, a restauré ta cultivation et a permis l'augmentation de ton niveau de cultivation. Je demande que tu me rendes cette faveur. Je veux que tu dévores cette pilule et que tu sortes pour m'aider ! »
 
 Il agita la main droite et le troisième jade disparut.
 
@@ -106,7 +106,7 @@ La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal.
 
 Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste de la Foudre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant était aspiré et piégé en son sein.
 
-Au plus profond du vortex se nichait une planète de culture. Cette dernière, de petite taille, était entièrement noire.
+Au plus profond du vortex se nichait une planète de cultivation. Cette dernière, de petite taille, était entièrement noire.
 
 La planète n'était qu'un amas de marécages saturés de gaz toxiques. Au cœur de cette boue et de ce venin siégeait un vieil homme vêtu de noir.
 

@@ -28,7 +28,7 @@ Le regard de Wang Lin se fit sérieux lorsqu'il demanda : « Aux côtés de la d
 
 Du Tian hocha la tête. « Après avoir vaincu le Clan Immortel Abandonné, la première génération de Suzaku s'est sacrifiée avec plusieurs cultivateurs Ascendants du stade avancé pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
 
-« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Elle n'avait soumis aucun pays de culture de rang 5 et, bien qu'elle n'ait régné que durant mille ans, elle possédait un niveau de culture supérieur à celui de tous les Suzakus suivants. On dit qu'elle avait déjà franchi un pas dans le royaume après l'Ascension et qu'elle n'était qu'à une demi-étape du stade suivant. »
+« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Elle n'avait soumis aucun pays de cultivation de rang 5 et, bien qu'elle n'ait régné que durant mille ans, elle possédait un niveau de cultivation supérieur à celui de tous les Suzakus suivants. On dit qu'elle avait déjà franchi un pas dans le royaume après l'Ascension et qu'elle n'était qu'à une demi-étape du stade suivant. »
 
 « Cette personne était sans aucun doute l'expert numéro un de l'histoire de la planète Suzaku ! »
 
@@ -54,7 +54,7 @@ Du Tian observa Wang Lin et demanda : « À quoi penses-tu ? »
 
 Après réflexion, Wang Lin demanda : « Avec la guerre actuelle entre le Clan Immortel Abandonné et le pays de Suzaku, si la deuxième génération de Suzaku était encore en vie, aiderait-elle l'actuel Suzaku ? »
 
-Du Tian rit en secouant la tête. « Ne comptons pas sur la possibilité que la deuxième génération de Suzaku soit encore en vie, mais si elle l'était, elle n'aiderait pas le Suzaku de la génération actuelle, car il n'y a aucun lien entre eux. On raconte que la deuxième génération de Suzaku était très arrogante ; s'il n'avait pas eu de dette envers la première génération de Suzaku, il aurait déjà quitté la planète pour perfectionner sa culture ailleurs. »
+Du Tian rit en secouant la tête. « Ne comptons pas sur la possibilité que la deuxième génération de Suzaku soit encore en vie, mais si elle l'était, elle n'aiderait pas le Suzaku de la génération actuelle, car il n'y a aucun lien entre eux. On raconte que la deuxième génération de Suzaku était très arrogante ; s'il n'avait pas eu de dette envers la première génération de Suzaku, il aurait déjà quitté la planète pour perfectionner sa cultivation ailleurs. »
 
 Wang Lin acquiesça. Ses yeux s'animèrent et il demanda : « Combien de générations de Suzakus y a-t-il eu ? »
 
@@ -120,12 +120,12 @@ Wang Lin le suivit de près. Cependant, à cet instant précis, les yeux du jeun
 
 « Cadet, tu cherches la mort ! » Les yeux de Du Tian devinrent meurtriers en fixant le jeune homme.
 
-Ce dernier ne montra aucune crainte et, avec un sourire gracieux, déclara : « Aîné, je vous en prie, ne soyez pas en colère ; je souhaite simplement combattre le compagnon de culture Ceng Niu qui a ébranlé la planète entière. Ceng Niu, oseras-tu te mesurer à moi ? »
+Ce dernier ne montra aucune crainte et, avec un sourire gracieux, déclara : « Aîné, je vous en prie, ne soyez pas en colère ; je souhaite simplement combattre le compagnon de cultivation Ceng Niu qui a ébranlé la planète entière. Ceng Niu, oseras-tu te mesurer à moi ? »
 
 Le jeune homme tourna son regard vers Wang Lin, resté hors de l'écran protecteur.
 
 « Qui es-tu ? » Wang Lin fronça les sourcils.
 
-« Compagnon de culture Ceng Niu, bien que ce soit notre première rencontre, je sais beaucoup de choses sur vous. Ma concubine, Red Butterfly, ne cesse de penser à vous. » Le jeune homme afficha un sourire sardonique.
+« Compagnon de cultivation Ceng Niu, bien que ce soit notre première rencontre, je sais beaucoup de choses sur vous. Ma concubine, Red Butterfly, ne cesse de penser à vous. » Le jeune homme afficha un sourire sardonique.
 
 « Qian Feng ! » Les yeux de Wang Lin s'illuminèrent.

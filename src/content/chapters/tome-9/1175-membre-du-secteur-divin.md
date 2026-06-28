@@ -48,7 +48,7 @@ Cette paume gigantesque était frappante. Dans la Mer des Nuages, presque tout l
 
 Parmi les cultivateurs des secteurs de rang 6, leurs Anciens sortirent tous pour saluer Wang Lin. Maître Ashen Pine le regarda de loin avec un sourire pour masquer son choc. Il semblait vouloir engager la conversation.
 
-L'expression de Wang Lin était sereine, mais il ricana intérieurement. Il joignit les mains en guise de politesse alors qu'il traversait la foule pour regagner son auberge. Dans le monde de la culture, la force commande le respect. Wang Lin avait prouvé qu'il pouvait aisément terrasser un expert au stade précoce de la Rupture du Nirvana et qu'il maîtrisait l'Empreinte de l'Esprit Martial. Désormais, personne dans la région de rang 5 n'oserait le provoquer. Même le Secteur de Jade Précieux n'osait le blâmer pour la destruction de la moitié de la ville.
+L'expression de Wang Lin était sereine, mais il ricana intérieurement. Il joignit les mains en guise de politesse alors qu'il traversait la foule pour regagner son auberge. Dans le monde de la cultivation, la force commande le respect. Wang Lin avait prouvé qu'il pouvait aisément terrasser un expert au stade précoce de la Rupture du Nirvana et qu'il maîtrisait l'Empreinte de l'Esprit Martial. Désormais, personne dans la région de rang 5 n'oserait le provoquer. Même le Secteur de Jade Précieux n'osait le blâmer pour la destruction de la moitié de la ville.
 
 Une fois de retour à l'auberge, Wang Lin compta son butin. En plus de ce que l'homme d'âge moyen lui avait remis, il y avait les innombrables objets provenant de l'espace de stockage de Wu Qing. Après avoir tout inspecté, Wang Lin sortit la plume rouge. En la tenant dans sa main, une flamme apparut dans son œil gauche. La flamme vacilla et sembla entrer en résonance avec l'énergie originelle du feu contenue dans la plume.
 
@@ -72,7 +72,7 @@ Wang Lin sourit et dit lentement : « Le camarade cultivateur Du est aussi libre
 
 Le vieil homme en noir eut un sourire amer et secoua la tête. « Ce vieux cherche la paix et le calme, c'est pourquoi je n'ai rejoint aucun secteur. Je ne suis venu à Peng Lai que sur l'invitation d'un vieil ami. Après la grande vente aux enchères dans deux jours, je repartirai. Si vous venez dans la région de rang 6 à l'avenir, n'hésitez pas à visiter ma grotte. »
 
-Wang Lin hocha la tête. Il observa le vieil homme et réfléchit un instant. La culture de cet homme ayant atteint un tel niveau, il était naturellement très perspicace. « Si le camarade cultivateur Lu a quelque chose à dire, autant le dire franchement. »
+Wang Lin hocha la tête. Il observa le vieil homme et réfléchit un instant. La cultivation de cet homme ayant atteint un tel niveau, il était naturellement très perspicace. « Si le camarade cultivateur Lu a quelque chose à dire, autant le dire franchement. »
 
 Wang Lin regarda l'homme en noir et demanda lentement : « Je me demande où le camarade cultivateur Du a obtenu cette plume d'Oiseau Vermillon ? »
 
@@ -106,4 +106,4 @@ Maître Ashen Pine hésita un instant avant de hocher la tête avec un sourire. 
 
 Maître Ashen Pine joignit les mains et quitta la chambre. Une fois dehors, son sourire disparut et il laissa échapper un ricanement intérieur.
 
-« Comment les membres du Secteur Divin pourraient-ils manquer de pierres d'origine ? L'identité de cet homme est extrêmement suspecte. Que son identité soit réelle ou non, peu importe, tant qu'il se comporte comme prévu. Dès que j'aurai pénétré dans ce lieu, mon niveau de culture progressera, et alors... » Maître Ashen Pine prit une profonde inspiration pour réprimer l'excitation qui le brûlait. Il préparait ce coup depuis près de 1 000 ans !
+« Comment les membres du Secteur Divin pourraient-ils manquer de pierres d'origine ? L'identité de cet homme est extrêmement suspecte. Que son identité soit réelle ou non, peu importe, tant qu'il se comporte comme prévu. Dès que j'aurai pénétré dans ce lieu, mon niveau de cultivation progressera, et alors... » Maître Ashen Pine prit une profonde inspiration pour réprimer l'excitation qui le brûlait. Il préparait ce coup depuis près de 1 000 ans !

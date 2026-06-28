@@ -28,7 +28,7 @@ Dans le palais impérial, un grondement tonitruant retentit. Le trône du dragon
 
 À ses côtés, l'Ascendant Empyrean Ming Dao ouvrit les yeux. Son regard était vide de toute étincelle et il baissa silencieusement la tête.
 
-« Ming Dao, je te donnerai l'opportunité de te rendre dans la zone de culture isolée de l'Ancêtre Céleste. Que tu puisses laver cette humiliation ou non dépendra de toi ! Ce Wang Lin finira par venir dans la ville impériale. Si tu parviens à le tuer, tu resteras le numéro un parmi les Ascendants Empyreans ! »
+« Ming Dao, je te donnerai l'opportunité de te rendre dans la zone de cultivation isolée de l'Ancêtre Céleste. Que tu puisses laver cette humiliation ou non dépendra de toi ! Ce Wang Lin finira par venir dans la ville impériale. Si tu parviens à le tuer, tu resteras le numéro un parmi les Ascendants Empyreans ! »
 
 Cette fois, Ming Dao n'hésita pas comme auparavant et hocha sobrement la tête.
 
@@ -68,9 +68,9 @@ Le dragon marin regarda Liu Jinbiao avec hésitation, tordant son corps comme s'
 
 Le dragon marin hésita un instant, partagé entre l'hésitation et la colère. Pendant ce temps, Liu Jinbiao avait réussi à lui inculquer l'idée que Xu Liguo était un être terrible qui aimait particulièrement tourmenter les dragons marins. La simple pensée de ce dénommé Xu Liguo, qu'il n'avait jamais rencontré, le rendait profondément malheureux.
 
-Après un long moment, le dragon ouvrit la bouche et relâcha une bouffée d'essence originelle. Liu Jinbiao commença immédiatement à l'absorber, les yeux brillants d'une fierté cachée alors qu'il entamait sa culture.
+Après un long moment, le dragon ouvrit la bouche et relâcha une bouffée d'essence originelle. Liu Jinbiao commença immédiatement à l'absorber, les yeux brillants d'une fierté cachée alors qu'il entamait sa cultivation.
 
-« Hmph, c'est toujours moi, Jin Biaozi, le plus fort. Ce dragon marin est si stupide et facile à duper. Avec son aide, je peux facilement augmenter mon niveau de culture, puis je l'entraînerai lentement à fixer Petit Xu du regard. Bientôt, même sans moi, le dragon marin le dominera. Haha, attends un peu, Petit Xu ! »
+« Hmph, c'est toujours moi, Jin Biaozi, le plus fort. Ce dragon marin est si stupide et facile à duper. Avec son aide, je peux facilement augmenter mon niveau de cultivation, puis je l'entraînerai lentement à fixer Petit Xu du regard. Bientôt, même sans moi, le dragon marin le dominera. Haha, attends un peu, Petit Xu ! »
 
 Tandis que Liu Jinbiao se délectait de sa propre prouesse, Wang Lin ouvrit les yeux, et ceux-ci s'illuminèrent. Cependant, en voyant Liu Jinbiao et le dragon marin, il fut un instant surpris.
 
@@ -78,7 +78,7 @@ Wang Lin fronça les sourcils. Voyant que le dragon marin était consentant, il 
 
 Après un long moment, le dragon finit d'expirer son souffle et se laissa aller paresseusement.
 
-Une fois que Liu Jinbiao eut terminé sa culture et absorbé totalement l'essence originelle du dragon, Wang Lin se leva et lui lança un regard.
+Une fois que Liu Jinbiao eut terminé sa cultivation et absorbé totalement l'essence originelle du dragon, Wang Lin se leva et lui lança un regard.
 
 « Ne fais pas de bruit, il est temps de partir. »
 

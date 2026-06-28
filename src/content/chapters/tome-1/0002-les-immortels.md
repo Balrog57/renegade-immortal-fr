@@ -68,7 +68,7 @@ Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé
 
 Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont argenté en forme de croissant de lune reliait ce sommet à une autre crête.
 
-Avec de telles beautés naturelles, cet endroit était véritablement digne d'abriter la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle était la puissance dominante du royaume et comptait plusieurs vieux monstres au stade de l'Âme Naissante. Cependant, avec le passage du temps, elle s'était rétrécie pour atteindre sa taille actuelle, ne parvenant plus qu'à maintenir une présence fragile dans le monde de la culture.
+Avec de telles beautés naturelles, cet endroit était véritablement digne d'abriter la Secte Heng Yue. Cette dernière était l'une des rares sectes de cultivation du pays de Zhao. Il y a cinq cents ans, elle était la puissance dominante du royaume et comptait plusieurs vieux monstres au stade de l'Âme Naissante. Cependant, avec le passage du temps, elle s'était rétrécie pour atteindre sa taille actuelle, ne parvenant plus qu'à maintenir une présence fragile dans le monde de la cultivation.
 
 Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité légendaire et insaisissable.
 
@@ -76,7 +76,7 @@ Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeu
 
 Le jeune homme afficha un visage empreint de respect : « Troisième frère, ce sont bien les trois jeunes recommandés par la famille Wang. »
 
-Le regard de l'homme d'âge moyen balaya le groupe, s'attardant plusieurs fois sur Wang Zhuo. Souriant, il dit : « Je sais que tu es sur le point de réaliser une percée. Je m'occuperai des tests, va te consacrer à ta culture. »
+Le regard de l'homme d'âge moyen balaya le groupe, s'attardant plusieurs fois sur Wang Zhuo. Souriant, il dit : « Je sais que tu es sur le point de réaliser une percée. Je m'occuperai des tests, va te consacrer à ta cultivation. »
 
 Le jeune homme acquiesça, puis son corps s'élança vers la montagne et disparut sans laisser de trace en un clin d'œil.
 

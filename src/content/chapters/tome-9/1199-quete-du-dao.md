@@ -58,7 +58,7 @@ Son environnement sembla se distordre puis se métamorphoser. Ce changement s'ac
 
 Après un long moment, Wang Lin tendit la main droite pour saisir la petite bouteille et en prendre une autre gorgée. Il restait immergé dans sa quête du Dao et son illumination. De plus en plus d'intentions du Dao apparurent autour de lui.
 
-S'il l'avait voulu, il aurait pu choisir arbitrairement l'une des compréhensions de la bête pour améliorer sa culture. Cependant, cela aurait eu pour conséquence de troubler son cœur du Dao. Après tout, il s'agirait d'emprunter le Dao d'autrui et non sa propre compréhension. Wang Lin ne voulait pas d'une telle culture !
+S'il l'avait voulu, il aurait pu choisir arbitrairement l'une des compréhensions de la bête pour améliorer sa cultivation. Cependant, cela aurait eu pour conséquence de troubler son cœur du Dao. Après tout, il s'agirait d'emprunter le Dao d'autrui et non sa propre compréhension. Wang Lin ne voulait pas d'une telle cultivation !
 
 Ce qu'il recherchait, c'était de continuer à confirmer son propre domaine de la vérité et du faux tout en vivant la vie de la bête, afin de comprendre les cieux par le prisme du vrai et du faux.
 
@@ -80,7 +80,7 @@ Wang Lin avait déjà consommé la troisième bouteille au sein de la vallée. I
 
 Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et devint progressivement plus claire :
 
-« Illuminé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+« Illuminé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la cultivation... »
 
 « Aucune vie ne connaît le vrai Dao. L'abîme amer déforme éternellement le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
 
@@ -88,7 +88,7 @@ Maître Ashen Pine se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visa
 
 Ces intentions étaient comme un vortex gigantesque capable d'absorber tous les domaines pour les soumettre à la confirmation de Wang Lin par une méthode spéciale.
 
-Le domaine de la vérité et du faux était la seconde évolution de son Dao. Ce qu'il recherchait avait déjà surpassé ceux de son niveau de culture, et même ceux de rangs supérieurs.
+Le domaine de la vérité et du faux était la seconde évolution de son Dao. Ce qu'il recherchait avait déjà surpassé ceux de son niveau de cultivation, et même ceux de rangs supérieurs.
 
 Le visage de Maître Ashen Pine, livide, s'affaissa alors qu'il s'asseyait par terre pour stabiliser son esprit. Il luttait sans relâche contre les intentions du Dao chaotiques et la succion du vortex invisible. Il ne remarqua pas les Perdus chauves qui s'approchaient lentement de lui.
 

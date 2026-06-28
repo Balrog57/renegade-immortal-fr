@@ -24,7 +24,7 @@ Il regarda autour de lui. Un parcours de seulement trois cents pieds lui avait p
 
 Il leva les yeux vers la montagne qui semblait infinie. Il se demanda combien d'années il lui faudrait pour atteindre le sommet s'il continuait à ce rythme.
 
-Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple culture de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, ce serait encore plus périlleux.
+Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple cultivation de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, ce serait encore plus périlleux.
 
 S'il voulait vivre, il devait forcer le passage vers l'avant. Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent. Il ne continua pas sa progression, mais fit volte-face et franchit avec précaution l'interstice entre les deux restrictions. Il recula ainsi jusqu'à atteindre de nouveau le pied de la montagne.
 
@@ -72,7 +72,7 @@ Alors qu'il retirait sa main, Wang Lin commença soudainement à la mouvoir de n
 
 Lorsqu'il retira complètement sa main droite, celle-ci était totalement engourdie. Wang Lin regarda l'herbe : elle était déjà revenue à son état normal, sans aucune anomalie.
 
-La restriction ici consistait à tuer quiconque tentait d'entrer. Si un individu possédait un niveau de culture assez élevé pour forcer le passage, la lumière rouge apparaîtrait et le traquerait jusqu'à sa mort.
+La restriction ici consistait à tuer quiconque tentait d'entrer. Si un individu possédait un niveau de cultivation assez élevé pour forcer le passage, la lumière rouge apparaîtrait et le traquerait jusqu'à sa mort.
 
 Après avoir étudié la restriction pendant quelques jours, Wang Lin en eut une compréhension rudimentaire. Cette fois-ci, il ne s'agissait que d'une expérimentation. Il avait mené des tests similaires plus de dix fois au cours des derniers jours.
 
@@ -138,9 +138,9 @@ Le Seigneur Démoniaque des Six Désirs regarda le jeune homme, puis jeta un cou
 
 En réalité, il y a cinq cents ans, il avait obtenu un trésor lui permettant d'utiliser une technique d'évasion aquatique, dont l'effet était similaire au bateau terrestre de Wang Qingyue.
 
-Par conséquent, grâce à sa culture et à sa connaissance de l'épreuve de la glace, il l'avait traversée aisément avec le jeune homme.
+Par conséquent, grâce à sa cultivation et à sa connaissance de l'épreuve de la glace, il l'avait traversée aisément avec le jeune homme.
 
-Quant au Chemin du Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Culture Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
+Quant au Chemin du Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Cultivation Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
 
 Le Chemin du Retour n'était pour lui qu'un jeu d'enfant. S'il n'avait pas eu à protéger le jeune homme, cela ne lui aurait pris aucun temps.
 

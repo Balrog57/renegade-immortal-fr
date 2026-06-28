@@ -88,7 +88,7 @@ Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Ve
 
 L'apparence de cette femme était terrifiante. Son visage était marqué par de nombreuses cicatrices hideuses ; il était impossible d'en dénombrer le nombre d'un simple coup d'œil.
 
-Bien que ces plaies se soient refermées, le sang y affluait lors de sa culture, les rendant d'un rouge vif. On aurait dit que d'innombrables mille-pattes rampaient sur son visage.
+Bien que ces plaies se soient refermées, le sang y affluait lors de sa cultivation, les rendant d'un rouge vif. On aurait dit que d'innombrables mille-pattes rampaient sur son visage.
 
 Non seulement son visage, mais ses bras étaient également couverts de ces cicatrices atroces.
 
@@ -100,7 +100,7 @@ Sous le pilier où siégeait la femme, s'étendait une mer d'aura de mort. Une p
 
 Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle s'était éveillée dans les Terres de l'Esprit Démon. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
 
-Pour obtenir sa vengeance, elle avait tout sacrifié. Elle savait que pour élever son niveau de culture, elle devait solliciter l'aide du démon ancien de ce lieu. Elle avait travaillé sans relâche, endurant des épreuves et des humiliations dignes des pires cauchemars.
+Pour obtenir sa vengeance, elle avait tout sacrifié. Elle savait que pour élever son niveau de cultivation, elle devait solliciter l'aide du démon ancien de ce lieu. Elle avait travaillé sans relâche, endurant des épreuves et des humiliations dignes des pires cauchemars.
 
 Finalement, elle obtint la reconnaissance du démon ancien du Pays du Démon du Vent. Elle entra ici pour entamer une transmission d'héritage.
 

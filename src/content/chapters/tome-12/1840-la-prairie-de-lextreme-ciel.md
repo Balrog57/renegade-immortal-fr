@@ -62,7 +62,7 @@ Sur le Continent Astral Immortel, même avec la puissance de son avatar dans le 
 
 Alors qu'il volait, il leva la main droite et un rugissement s'échappa du tatouage du Roi Moustique sur son bras. Le Roi Moustique apparut sous la forme d'une encre noire et transporta Wang Lin. Il poussa un cri de joie et s'envola vers l'horizon.
 
-Wang Lin s'assit sur le dos de la créature et ferma les yeux. Bien que sa culture actuelle fût à son apogée, son Sens Divin puissant et son âme originelle complète, son corps représentait un danger caché. Il devait absorber une immense quantité d'essence d'eau pour achever le neuvième cycle.
+Wang Lin s'assit sur le dos de la créature et ferma les yeux. Bien que sa cultivation actuelle fût à son apogée, son Sens Divin puissant et son âme originelle complète, son corps représentait un danger caché. Il devait absorber une immense quantité d'essence d'eau pour achever le neuvième cycle.
 
 Tandis que la bête moustique fonçait vers l'avant, ses rugissements attirèrent de nombreux Sens Divins curieux. Mais lorsqu'ils aperçurent Wang Lin et le Roi Moustique, ils retirèrent aussitôt leurs sens et les ignorèrent.
 

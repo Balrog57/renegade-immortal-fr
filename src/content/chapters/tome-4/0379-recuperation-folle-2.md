@@ -8,13 +8,13 @@ slug: recuperation-folle-2
 ---
 Il était resté bloqué au stade initial de la Formation du Noyau pendant très longtemps, ce qui l'avait conduit à être éconduit de la secte intérieure pour devenir intendant des disciples de la secte extérieure.
 
-La vitesse de culture de Wang Lin lui offrait une lueur d'espoir.
+La vitesse de cultivation de Wang Lin lui offrait une lueur d'espoir.
 
 « La secte ne se soucie absolument pas de la vie ou de la mort des disciples de la secte extérieure, alors ce ne sera pas un problème si je le tue. Cet homme est également un cultivateur indépendant ; après sa mort, personne ne viendra le chercher. Qian Mu, ne me blâme pas ; blâme plutôt ta propre progression trop rapide. Si j'attendais que tu atteignes le stade de la Formation du Noyau, il serait difficile de s'occuper de toi, mais pour l'instant, cela sera aussi simple qu'un revers de main ! »
 
 L'homme d'âge moyen vola vers la grotte de Wang Lin et y arriva en un clin d'œil.
 
-Les environs étaient plongés dans un silence de mort, ce qui stupéfia l'homme d'âge moyen. Normalement, lorsqu'une personne est en culture méditative, la porte est hermétiquement scellée, mais celle de Wang Lin n'était que entrouverte.
+Les environs étaient plongés dans un silence de mort, ce qui stupéfia l'homme d'âge moyen. Normalement, lorsqu'une personne est en cultivation méditative, la porte est hermétiquement scellée, mais celle de Wang Lin n'était que entrouverte.
 
 N'ayant plus besoin de s'embêter avec le jade pour ouvrir la porte, l'homme d'âge moyen s'aventura courageusement à l'intérieur de la grotte. Bien qu'il trouvât la situation étrange, il ne pensait pas qu'un cultivateur au stade avancé de l'Établissement des Fondations puisse lui faire le poids, et il pénétra ainsi dans la demeure.
 
@@ -118,7 +118,7 @@ Sous cette force titanesque, les fragments de son âme originelle se condensaien
 
 Simultanément, une quantité inimaginable d'énergie spirituelle s'engouffra dans son corps. Même son domaine et son sceau ne pouvaient rien y faire.
 
-La culture de Wang Lin commença à remonter à une vitesse fulgurante.
+La cultivation de Wang Lin commença à remonter à une vitesse fulgurante.
 
 Percée au sommet du stade avancé de l'Établissement des Fondations !
 
@@ -156,7 +156,7 @@ Cependant, sous le regard glacial de Wang Lin, il retrouva instantanément une a
 
 Wang Lin fronça les sourcils. Il n'avait pas de temps à perdre avec elle. Il lui lança un regard froid avant de détourner les yeux.
 
-« Au sommet du stade intermédiaire de l'Âme Naissante ! Je ne m'attendais pas à ce que cette action me permette de retrouver un tel niveau de culture. Et en même temps, mon âme originelle a commencé sa restauration. Bien qu'elle ne soit pas totalement guérie, je peux à nouveau utiliser mon domaine ! » Wang Lin prit une profonde inspiration, le regard serein.
+« Au sommet du stade intermédiaire de l'Âme Naissante ! Je ne m'attendais pas à ce que cette action me permette de retrouver un tel niveau de cultivation. Et en même temps, mon âme originelle a commencé sa restauration. Bien qu'elle ne soit pas totalement guérie, je peux à nouveau utiliser mon domaine ! » Wang Lin prit une profonde inspiration, le regard serein.
 
 Pourtant, comparé à cela, l'expérience de vie et de mort qu'il venait d'acquérir était bien plus précieuse.
 

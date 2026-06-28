@@ -18,7 +18,7 @@ L'arc Li Guang ne pouvait être utilisé que si Wang Lin possédait ce sang dor�
 
 Pourtant, ce sang appartenait toujours à Wang Lin. Tant qu'il détenait ce sang, il pouvait invoquer l'arc Li Guang et décocher cette flèche capable de briser les cieux !
 
-Avec cet arc et son niveau de culture actuel, Wang Lin ne craignait ni le monde, ni aucun autre cultivateur ! Cet arc représentait l'attaque la plus puissante de Wang Lin !
+Avec cet arc et son niveau de cultivation actuel, Wang Lin ne craignait ni le monde, ni aucun autre cultivateur ! Cet arc représentait l'attaque la plus puissante de Wang Lin !
 
 Les yeux clos, la main gauche de Wang Lin tenait l'arc tandis que sa main droite tendait la corde. Il visa le Maître Céleste Void God en fuite et tira sur la corde.
 
@@ -64,11 +64,11 @@ Dans la partie sud du Vide Brillant, deux cultivateurs du Royaume Extérieur aya
 
 Soudain, l'onde résonna. Les deux cultivateurs extérieurs, qui souriaient encore, tremblèrent et s'effondrèrent, laissant le jeune homme dans la stupeur.
 
-À l'ouest du Vide Brillant se trouvait une planète de culture. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités.
+À l'ouest du Vide Brillant se trouvait une planète de cultivation. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités.
 
-Certains envahisseurs avaient capturé de magnifiques cultivatrices de diverses sectes pour les transformer en fourneaux de culture et les revendre dans le Royaume Extérieur.
+Certains envahisseurs avaient capturé de magnifiques cultivatrices de diverses sectes pour les transformer en fourneaux de cultivation et les revendre dans le Royaume Extérieur.
 
-Cependant, l'onde balaya la planète de culture. Après son passage, tous les cultivateurs du Royaume Extérieur présents sur la planète tremblèrent et s'effondrèrent en amas de chair et de sang.
+Cependant, l'onde balaya la planète de cultivation. Après son passage, tous les cultivateurs du Royaume Extérieur présents sur la planète tremblèrent et s'effondrèrent en amas de chair et de sang.
 
 Dans la partie nord du Vide Brillant, mille rayons de lumière représentant mille cultivateurs du Royaume Extérieur convergeaient pour secourir d'autres systèmes stellaires. Ils furent percutés par l'onde, et pas une seule âme ne survécut.
 
@@ -92,7 +92,7 @@ Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda
 
 Dans le Vide Brillant, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
 
-Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Il avait encore besoin d'un peu de temps pour solidifier sa culture de la troisième étape.
+Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Il avait encore besoin d'un peu de temps pour solidifier sa cultivation de la troisième étape.
 
 Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte du Vide avec une intensité folle.
 

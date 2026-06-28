@@ -62,7 +62,7 @@ Wang Lin ne leva pas la tête ; il continua de fixer la tombe. Un instant plus t
 
 Zhou Wutai était vieux et son corps portait le poids des années. D'un pas, il rejoignit Wang Lin et s'inclina devant la sépulture.
 
-— Que vous tous, vous partiez pour nous laisser un peu de calme, ordonna Zhou Wutai en levant les yeux vers la foule. Bien que nombre de cultivateurs possédassent des niveaux de culture plus élevés, Zhou Wutai était le seigneur de la planète Suzaku. Son statut lui conférait une autorité dont l'impact surpassait largement son niveau de culture.
+— Que vous tous, vous partiez pour nous laisser un peu de calme, ordonna Zhou Wutai en levant les yeux vers la foule. Bien que nombre de cultivateurs possédassent des niveaux de cultivation plus élevés, Zhou Wutai était le seigneur de la planète Suzaku. Son statut lui conférait une autorité dont l'impact surpassait largement son niveau de cultivation.
 
 La douzaine de cultivateurs refoula silencieusement son excitation. Ils s'inclinèrent devant Wang Lin, puis devant la tombe, avant de se retirer respectueusement. Beaucoup ne venaient pas de la planète Suzaku ; ils étaient venus d'ailleurs, se portant volontaires pour garder la planète afin de rendre hommage au Seigneur du Royaume Scellé.
 

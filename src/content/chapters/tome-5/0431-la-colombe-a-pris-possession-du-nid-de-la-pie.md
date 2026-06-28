@@ -100,7 +100,7 @@ Peu après, il vit un visage gigantesque s'approcher de l'entrée de la quatriè
 
 Le shaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent rapidement. Les yeux de Wang Lin s'illuminèrent ; il les suivit silencieusement pour entrer dans la quatrième couche.
 
-Cette strate était plus lumineuse que les précédentes. Le shaman à six feuilles reprit sa forme de visage géant, saisit tous les cultivateurs et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le shaman ne remarqua rien.
+Cette strate était plus lumineuse que les précédentes. Le shaman à six feuilles reprit sa forme de visage géant, saisit tous les cultivateurs et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de cultivation, le shaman ne remarqua rien.
 
 Le shaman se déplaçait très vite ; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
 

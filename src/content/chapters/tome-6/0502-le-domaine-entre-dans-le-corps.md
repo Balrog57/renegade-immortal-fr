@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 502 - Domain Enters the Body
 slug: le-domaine-entre-dans-le-corps
 ---
-S'il était capable de faire cela à l'heure actuelle, ce n'était pas parce que sa culture était assez puissante pour supprimer la froideur ambiante, mais en raison de la froideur qui régnait dans son cœur.
+S'il était capable de faire cela à l'heure actuelle, ce n'était pas parce que sa cultivation était assez puissante pour supprimer la froideur ambiante, mais en raison de la froideur qui régnait dans son cœur.
 
 Cette froideur intérieure ne pouvait être dissipée, lui conférant ainsi une volonté inébranlable. C'était l'état de pureté de l'esprit.
 
@@ -22,7 +22,7 @@ Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la l
 
 Même avec la force mentale de l'Omniscient, il ne put s'empêcher de ressentir un choc profond.
 
-« Pureté de l'esprit... cet enfant purifie son esprit ici même ! Culture céleste, culture de la vérité et culture du Dao ; il semble que cet enfant ait acquis une certaine illumination... Son cœur est froid, si bien que peu importe la rigueur du gel, cela ne peut affecter son âme. En utilisant cet état, il a pu faire 21 pas. Wang Lin, Maître t'a sous-estimé. Si tu cultives pendant plus de 10 000 ans, je me demande si tu pourras atteindre les trois royaumes du Nirvana... »
+« Pureté de l'esprit... cet enfant purifie son esprit ici même ! Cultivation céleste, cultivation de la vérité et cultivation du Dao ; il semble que cet enfant ait acquis une certaine illumination... Son cœur est froid, si bien que peu importe la rigueur du gel, cela ne peut affecter son âme. En utilisant cet état, il a pu faire 21 pas. Wang Lin, Maître t'a sous-estimé. Si tu cultives pendant plus de 10 000 ans, je me demande si tu pourras atteindre les trois royaumes du Nirvana... »
 
 Wang Lin s'arrêta après son 21e pas. Son corps entier était désormais glacial.
 
@@ -36,7 +36,7 @@ Wang Lin prit une profonde inspiration, leva le pied et fit le 22e pas.
 
 Les yeux de l'Omniscient projetèrent un éclat doré alors qu'il se tenait dans la tour.
 
-« À l'époque, Sun Yun avait pu faire 26 pas avec une culture au stade avancé de la Transformation de l'Âme. Wang Lin, combien de pas pourras-tu faire ?! »
+« À l'époque, Sun Yun avait pu faire 26 pas avec une cultivation au stade avancé de la Transformation de l'Âme. Wang Lin, combien de pas pourras-tu faire ?! »
 
 Wang Lin leva soudainement la tête et regarda la tour au sommet de la montagne. Après avoir médité un instant, il leva le pied et fit un autre pas.
 
@@ -58,7 +58,7 @@ Le parchemin de la vie et de la mort flottant au-dessus de Wang Lin passa d'une 
 
 Le Domaine !
 
-C'est une entité que l'on commence à comprendre au stade de la Formation de l'Âme, puis dont on approfondit la maîtrise à travers les trois étapes de ce même stade avant qu'elle ne puisse prendre une forme physique. À ce moment-là, il ne suffit que d'avoir assez de culture et de jades célestes pour raffiner son corps, passant d'un corps mortel à un corps céleste. Ensuite, une fois que l'âme originelle fusionne totalement avec le corps, on peut atteindre le stade de la Transformation de l'Âme.
+C'est une entité que l'on commence à comprendre au stade de la Formation de l'Âme, puis dont on approfondit la maîtrise à travers les trois étapes de ce même stade avant qu'elle ne puisse prendre une forme physique. À ce moment-là, il ne suffit que d'avoir assez de cultivation et de jades célestes pour raffiner son corps, passant d'un corps mortel à un corps céleste. Ensuite, une fois que l'âme originelle fusionne totalement avec le corps, on peut atteindre le stade de la Transformation de l'Âme.
 
 Le domaine devient une existence totalement corporelle lorsque l'on atteint la compréhension du stade de la Transformation de l'Âme. Cependant, ce processus n'est pas instantané mais s'opère progressivement au fil du temps.
 
@@ -70,7 +70,7 @@ Mais aujourd'hui, dans la Terre Brisée des Célestes, son domaine et sa pureté
 
 Ces cinq pas étaient des avancées sur le chemin du Dao, empreintes d'une détermination sans retour. S'il ne faisait pas un pas, cela aurait suffi, mais puisqu'il s'élançait, il devait surpasser ceux qui l'avaient précédé !
 
-Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la matérialisation de son domaine ! Bien que ce progrès n'ait pas décuplé sa compréhension ou sa culture, il avait tracé une voie fondamentale pour atteindre le stade Ascendant.
+Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la matérialisation de son domaine ! Bien que ce progrès n'ait pas décuplé sa compréhension ou sa cultivation, il avait tracé une voie fondamentale pour atteindre le stade Ascendant.
 
 « Le domaine entre dans le corps ! » Dans la tour, l'Omniscient prit une profonde inspiration et déclara : « Cet enfant a l'espoir d'atteindre le stade Ascendant d'ici cent ans ! »
 
@@ -78,7 +78,7 @@ Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la m
 
 En réalité, au 25e pas, son Dao et son domaine avaient atteint leur limite actuelle, mais grâce à l'entrée de son domaine dans son corps et à l'illumination obtenue, il avait pu forcer quelques pas supplémentaires pour atteindre ce total de vingt-sept.
 
-Wang Lin savait qu'il ne pourrait pas franchir le 28e pas. S'il tentait de le faire, toute sa culture s'évanouirait et même son âme originelle se briserait.
+Wang Lin savait qu'il ne pourrait pas franchir le 28e pas. S'il tentait de le faire, toute sa cultivation s'évanouirait et même son âme originelle se briserait.
 
 À cet instant précis, la lumière aux sept couleurs au sommet de la tour commença à briller intensément et se transforma en sept halos lumineux qui enveloppèrent la montagne entière. Instantanément, toute la froideur entourant la montagne disparut.
 
@@ -86,7 +86,7 @@ La glace devant Wang Lin commença à luire d'une lumière aux sept couleurs, et
 
 « Viens me voir ! » La voix de l'Omniscient retentit depuis la tour au sommet, empreinte de majesté.
 
-L'expression de Wang Lin resta calme ; il prit une profonde inspiration, ajusta légèrement sa culture et monta sur l'arc-en-ciel.
+L'expression de Wang Lin resta calme ; il prit une profonde inspiration, ajusta légèrement sa cultivation et monta sur l'arc-en-ciel.
 
 D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit les soixante-dix marches restantes pour arriver au pied de la tour.
 
@@ -116,7 +116,7 @@ Soudain, l'expression de l'Omniscient devint grave. Toute sa douceur précédent
 
 Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler l'Omniscient.
 
-La main droite de l'Omniscient pointa vers Wang Lin et il cria : « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Violette sous les neuf couleurs ! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao ?! Réponds-moi ! »
+La main droite de l'Omniscient pointa vers Wang Lin et il cria : « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Violette sous les neuf couleurs ! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta cultivation, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao ?! Réponds-moi ! »
 
 Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit : « Tant que Maître ne me trahira pas, je ne trahirai pas Maître ! Tant que la Secte du Destin Céleste ne me trahira pas, je ne trahirai pas la Secte du Destin Céleste ! C'est ma promesse, celle de Wang Lin ! »
 

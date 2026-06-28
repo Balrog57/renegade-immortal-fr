@@ -106,7 +106,7 @@ Ce mouvement fut vu par tous, et les cultivateurs s'écrièrent soudainement :
 
 « Encore neuf respirations pour franchir un palais. Ce Wang Lin n'est définitivement pas celui que nous pensions ! »
 
-« Cet homme possède une culture puissante et est hors de notre portée. Il cachait clairement sa force pour ne pas trop se mettre en avant. S'il n'avait pas été poussé par l'Empereur Céleste, il n'aurait jamais tenté d'aller plus loin ! »
+« Cet homme possède une cultivation puissante et est hors de notre portée. Il cachait clairement sa force pour ne pas trop se mettre en avant. S'il n'avait pas été poussé par l'Empereur Céleste, il n'aurait jamais tenté d'aller plus loin ! »
 
 « Oui, il doit y avoir un secret impensable entre lui et l'Empereur Céleste, ce qui explique pourquoi ce dernier l'a ainsi attaqué ! »
 

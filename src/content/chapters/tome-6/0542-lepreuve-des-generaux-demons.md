@@ -26,7 +26,7 @@ Treize fut stupéfait, mais il hocha rapidement la tête et commença à médite
 
 À ce moment, plus d'une douzaine de soldats démons s'étaient rassemblés autour de Wang Lin. On ne savait pas qui avait donné le signal, mais l'un d'eux poussa un rugissement et chargea avec son arme.
 
-Devant la porte, l'énergie spirituelle démoniaque fut libérée, le sable vola en éclats et une puissante intention meurtrière surgit alors que les soldats démons se précipitaient. Ces soldats étaient tous des vétérans de guerre ; ainsi, tant que la différence de niveau de culture n'était pas trop abyssale, même ceux plus puissants qu'eux subissaient la pression de leur aura féroce.
+Devant la porte, l'énergie spirituelle démoniaque fut libérée, le sable vola en éclats et une puissante intention meurtrière surgit alors que les soldats démons se précipitaient. Ces soldats étaient tous des vétérans de guerre ; ainsi, tant que la différence de niveau de cultivation n'était pas trop abyssale, même ceux plus puissants qu'eux subissaient la pression de leur aura féroce.
 
 « Observez attentivement. Bien que le raffinement du corps diffère des sorts, il existe des similitudes. Même si je ne raffine pas mon corps, mon coup de poing produira un effet analogue. » Sur ces mots, Wang Lin ferma le poing droit et lança un coup décontracté dans le vide.
 
@@ -84,7 +84,7 @@ Cette silhouette était d'une rapidité extrême et se rapprocha en un clin d'œ
 
 Ses yeux brillaient comme des torches alors qu'il regardait Wang Lin avec un sourire : « Ainsi, c'est toi l'étranger qui attaquait mes soldats démons devant les murs ? »
 
-Les pupilles de Wang Lin se rétractèrent imperceptiblement. Cet homme avait complètement dissimulé son énergie spirituelle démoniaque dans son corps, ce qu'une personne normale n'aurait pu remarquer. Mais avec le niveau de culture de Wang Lin, il pouvait sentir que cet individu était redoutable. La quantité d'énergie spirituelle démoniaque en lui atteignait plusieurs centaines de milliers de rangs. Si cet homme n'était pas aussi puissant qu'un cultivateur Ascendant, il s'en rapprochait dangereusement !
+Les pupilles de Wang Lin se rétractèrent imperceptiblement. Cet homme avait complètement dissimulé son énergie spirituelle démoniaque dans son corps, ce qu'une personne normale n'aurait pu remarquer. Mais avec le niveau de cultivation de Wang Lin, il pouvait sentir que cet individu était redoutable. La quantité d'énergie spirituelle démoniaque en lui atteignait plusieurs centaines de milliers de rangs. Si cet homme n'était pas aussi puissant qu'un cultivateur Ascendant, il s'en rapprochait dangereusement !
 
 Il convient de préciser que trois étoiles équivalent à un rang. Trois rangs équivalent à l'Établissement des Fondations, 30 rangs à la Formation du Noyau, 300 rangs à l'Âme Naissante, 3 000 rangs à la Formation de l'Âme, 30 000 rangs à la Transformation de l'Âme, et 300 000 rangs à l'Ascendant.
 
@@ -122,7 +122,7 @@ Sa vitesse était fulgurante ; en un instant presque imperceptible, il porta dix
 
 Cette Intention de Bataille aux Dix Effondrements n'était pas matérielle, elle faisait partie du vide même. Elle concentrait toute l'aura démoniaque des dix coups du général et était saturée de son intense intention meurtrière.
 
-Les dix coups provoquaient un effondrement spatial successif, un à chaque impact. Au dixième effondrement, le sort devenait d'une puissance inimaginable. Une telle technique était extrêmement rare, même dans l'ensemble du monde de la culture. C'était la première fois que Wang Lin affrontait une telle chose.
+Les dix coups provoquaient un effondrement spatial successif, un à chaque impact. Au dixième effondrement, le sort devenait d'une puissance inimaginable. Une telle technique était extrêmement rare, même dans l'ensemble du monde de la cultivation. C'était la première fois que Wang Lin affrontait une telle chose.
 
 Dès l'instant où l'Intention de Bataille aux Dix Effondrements vola vers lui, il parvint à en percer le secret. Ses yeux s'illuminèrent brusquement et, d'un pas assuré, il se tint droit comme un pin millénaire. Il n'utilisa aucun trésor magique, mais une vapeur grise commença à circuler sur son bras droit : l'Art Céleste de la Massacre était activé.
 

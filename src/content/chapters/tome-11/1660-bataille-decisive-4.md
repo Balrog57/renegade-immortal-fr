@@ -48,7 +48,7 @@ Les cultivateurs restants du Royaume Extérieur furent saisis d'une terreur extr
 
 Face à une puissance qu'ils ne comprenaient pas, ils n'osaient ni résister et en étaient incapables !
 
-Même les deux cultivateurs du Vide Arcanique qui combattaient Qing Lin et ses compagnons furent terrifiés au plus haut point. La vieille femme et la dernière concubine impériale céleste battirent en retraite désespérément, parvenant enfin à se libérer de l'étau de Qing Lin. Leurs méthodes de culture étant hors du commun, elles s'échappèrent instantanément loin de là.
+Même les deux cultivateurs du Vide Arcanique qui combattaient Qing Lin et ses compagnons furent terrifiés au plus haut point. La vieille femme et la dernière concubine impériale céleste battirent en retraite désespérément, parvenant enfin à se libérer de l'étau de Qing Lin. Leurs méthodes de cultivation étant hors du commun, elles s'échappèrent instantanément loin de là.
 
 Face à ces cultivateurs du Royaume Extérieur qui s'éparpillaient, même les dizaines de milliers d'âmes originelles du Royaume Intérieur n'avaient pas la puissance nécessaire pour faire tourner cette roue gigantesque une troisième fois !
 

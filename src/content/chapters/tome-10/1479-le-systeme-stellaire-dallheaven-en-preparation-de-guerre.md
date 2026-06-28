@@ -8,7 +8,7 @@ slug: le-systeme-stellaire-dallheaven-en-preparation-de-guerre
 ---
 L'atmosphère était tendue dans le système stellaire d'Allheaven. Dans la partie nord-ouest d'Allheaven, une formation magnifique composée de 439 planètes se dressait avec majesté. De nombreux cultivateurs se tenaient à l'extérieur de la formation, déposant des sceaux pour en renforcer la structure.
 
-Plus loin encore, des rayons de lumière rouge rugissaient tandis qu'innombrables cultivateurs, agissant sous les ordres, sélectionnaient de vastes quantités de planètes propices à la culture, lesquelles étaient entraînées ici par la force.
+Plus loin encore, des rayons de lumière rouge rugissaient tandis qu'innombrables cultivateurs, agissant sous les ordres, sélectionnaient de vastes quantités de planètes propices à la cultivation, lesquelles étaient entraînées ici par la force.
 
 Au cœur de cette formation planétaire flottait un nuage de brume. Cette brume n'était pas dense, et l'on pouvait clairement distinguer un vieil homme assis en son sein.
 
@@ -94,13 +94,13 @@ Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasou
 
 « Wang Lin !! C'est lui !! » Le visage du Dieu Sanglant devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui aurait dû mourir si Qing Shui n'était pas intervenu — puisse dégager une pression capable de le faire trembler !
 
-Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la culture la plus faible ici. À cet instant, le tonnerre issu de l'âme originelle de Wang Lin avait laissé, comme prévu, une profonde fissure dans son cœur dao.
+Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la cultivation la plus faible ici. À cet instant, le tonnerre issu de l'âme originelle de Wang Lin avait laissé, comme prévu, une profonde fissure dans son cœur dao.
 
 « Wang Lin !! » Les yeux de Xiang Yundong étaient emplis de panique. Il repensa aussitôt à la façon dont son ancêtre avait drainé la majeure partie de la force vitale de Wang Lin sous prétexte de soigner sa femme. Par conséquent, une rancune profonde les liait !
 
 À l'origine, la famille Xiang ne s'en souciait guère. Peu importe la puissance de Wang Lin, face à la famille Xiang, c'était comme frapper un rocher avec un œuf. De plus, l'ancêtre de la famille Xiang était en méditation fermée depuis des dizaines de milliers d'années ; sa simple présence dissuadait quiconque de les provoquer.
 
-« Aîné, la culture de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
+« Aîné, la cultivation de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
 
 L'expression de Maître Lu Fu devint plus sombre encore alors qu'il contemplait les majestueux nuages de tonnerre s'étendant à travers le système stellaire. Après un long silence, il dit lentement : « Wang Lin... Ce vieil homme s'en souvient. Je l'ai rencontré autrefois, dans la Terre de l'Ancien Dieu au sein du système stellaire de l'Alliance... »
 

@@ -18,7 +18,7 @@ Le vieil homme joua avec le cercle de fer sur la corne argentée de la Bête de 
 
 L'Ancêtre de Sang réfléchit un instant, puis envoya un message : « Quoi qu'il en soit, je dois remercier Senior pour son aide... »
 
-Le vieil homme poursuivit : « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes ; tu es désormais au stade avancé du Nirvana Scryer. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
+Le vieil homme poursuivit : « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de cultivation ait chuté de plusieurs royaumes ; tu es désormais au stade avancé du Nirvana Scryer. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
 
 L'Ancêtre de Sang réfléchit en silence et réprima de force la rage qui bouillonnait dans son âme originelle. Son sens divin projeta un message empreint de sérénité : « Aucun mal n'en est issu. Puisque Senior l'ignorait, c'est mon destin. Si Senior n'a rien d'autre à faire, je vous prie de lever votre sort et de me laisser partir. »
 
@@ -76,7 +76,7 @@ Un gémissement misérable sembla résonner dans le vide, et les autres sphères
 
 Les yeux de Wang Lin devinrent injectés de sang. Il sentait que si ces sphères fusionnaient, il ne reverrait jamais l'occasion d'achever l'Ancêtre de Sang ! Sa main droite pointa vers le sang et il hurla : « Arrêtez ! »
 
-Le sort d'Arrêt apparut instantanément, mais l'âme originelle contenue dans le sang était trop puissante. En raison de son faible niveau de culture, Wang Lin ne parvint pas à stopper l'Ancêtre de Sang.
+Le sort d'Arrêt apparut instantanément, mais l'âme originelle contenue dans le sang était trop puissante. En raison de son faible niveau de cultivation, Wang Lin ne parvint pas à stopper l'Ancêtre de Sang.
 
 L'énergie spirituelle céleste de son corps déferla avec une telle violence qu'elle lui infligea une douleur aiguë dans les méridiens. Son âme originelle était également blessée, faute d'avoir pu se rétablir en chemin. Sous la pression, il cracha un flot de sang et cria férocement : « Arrêtez-vous ! »
 
@@ -110,12 +110,12 @@ Le corps de Wang Lin fut enseveli profondément dans la terre avant de s'immobil
 
 Même son âme originelle subit un changement stupéfiant. Entourée par une telle richesse d'énergie, elle commença à l'absorber...
 
-Sa culture progressait rapidement vers le stade Illusoire Yin.
+Sa cultivation progressait rapidement vers le stade Illusoire Yin.
 
 Il n'aurait pas dû y avoir de nuages sur ce petit fragment, mais soudain, des masses nuageuses commencèrent à apparaître. Ces nuages étaient identiques à ceux qui étaient apparus dans la Terre des Esprits Démoniaques lorsque Wang Lin avait décidé de défier les cieux.
 
 Quant à l'Ancêtre de Sang, son âme originelle s'était éveillée grâce à la fusion des sphères. Cependant, son corps ne s'étant pas encore reformé, il n'était qu'une masse rouge sombre.
 
-Depuis le début de sa culture, il n'avait jamais ressenti une telle faiblesse. Ce sentiment d'impuissance lui glaçait le sang.
+Depuis le début de sa cultivation, il n'avait jamais ressenti une telle faiblesse. Ce sentiment d'impuissance lui glaçait le sang.
 
 Sa haine envers Wang Lin atteignit son paroxysme. Il n'avait jamais autant détesté un être ; Wang Lin était le premier !

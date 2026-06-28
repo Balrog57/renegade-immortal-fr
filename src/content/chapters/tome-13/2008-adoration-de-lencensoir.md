@@ -36,7 +36,7 @@ Cette silhouette dégageait une aura pure du clan de l’Ancien !
 
 La cité impériale du Dao de l'Ancien n'était pas aussi vaste que la cité ancestrale, et ses palais ne pouvaient rivaliser avec elle. Cependant, la présence des gardes et la force de la suppression surpassaient de loin celles du palais de l'Empereur Céleste.
 
-D'innombrables gardes impériaux montaient la garde à l'intérieur comme à l'extérieur du palais. Même les serviteurs de la cour possédaient des niveaux de culture décents.
+D'innombrables gardes impériaux montaient la garde à l'intérieur comme à l'extérieur du palais. Même les serviteurs de la cour possédaient des niveaux de cultivation décents.
 
 Wang Lin resta immobile un long moment avant de détourner le regard. Il fit un pas d'un rythme mesuré, puis sa silhouette disparut. Il se transforma en une volute de fumée et flotta vers la cité céleste.
 
@@ -66,7 +66,7 @@ De nombreux membres du clan de l’Ancien montaient vers le temple situé au som
 
 C'était le Temple du Dao de l'Ancien ! C'était là que résidait l'unique Grand Empereur Céleste du clan, Xuan Luo !
 
-Le Temple du Dao de l'Ancien était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de culture, bien qu'ils aperçoives rarement le Grand Empereur Céleste Xuan Luo. Les neuf puissants disciples de Xuan Luo se chargeaient de les guider.
+Le Temple du Dao de l'Ancien était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de cultivation, bien qu'ils aperçoives rarement le Grand Empereur Céleste Xuan Luo. Les neuf puissants disciples de Xuan Luo se chargeaient de les guider.
 
 À tout instant, l'un des neuf se trouvait au temple pour éclairer ses compatriotes !
 

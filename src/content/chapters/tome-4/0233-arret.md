@@ -104,7 +104,7 @@ Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva e
 
 Quant au réseau où se trouvait Wang Lin, il y avait bien un homme en noir, mais celui-ci avait déjà été éliminé par lui.
 
-La Mer des Démons fut plongée dans un chaos total. La tension accumulée finit par exploser : quatre pays de culture s'étaient alliés pour attaquer la Mer des Démons, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer des Démons devinrent instantanément des champs de bataille sanglants.
+La Mer des Démons fut plongée dans un chaos total. La tension accumulée finit par exploser : quatre pays de cultivation s'étaient alliés pour attaquer la Mer des Démons, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer des Démons devinrent instantanément des champs de bataille sanglants.
 
 Wang Lin avait pressenti l'événement dès qu'il avait vu les réseaux intacts et les gardes en noir. La vue des silhouettes dans le réseau n'avait fait que confirmer ses soupçons. Il comprit qu'il devait quitter la Mer des Démons au plus vite. En s'élançant, il toucha les matériaux nécessaires et prit une profonde inspiration.
 

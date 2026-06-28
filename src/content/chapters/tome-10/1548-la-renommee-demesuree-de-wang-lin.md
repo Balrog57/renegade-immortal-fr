@@ -18,9 +18,9 @@ Un vortex gigantesque tournait silencieusement devant Wang Lin. À chaque rotati
 
 En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'époque, il n'avait pu pénétrer en ces lieux, ou du moins, il n'en était pas qualifié.
 
-C'était le sommet du Système Stellaire de l'Espace Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture !
+C'était le sommet du Système Stellaire de l'Espace Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Cultivation !
 
-L'Alliance de Culture d'autrefois régnait sur le Système Stellaire de l'Espace Brillant, et son pouvoir s'étendait à travers tout le système ! Cependant, suite à la bataille contre Allheaven et à l'intervention de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance de Cultivation d'autrefois régnait sur le Système Stellaire de l'Espace Brillant, et son pouvoir s'étendait à travers tout le système ! Cependant, suite à la bataille contre Allheaven et à l'intervention de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -30,9 +30,9 @@ D'un simple geste, une lumière dorée jaillit de son doigt. Un rayon de lumièr
 
 Le vortex trembla et cessa peu à peu de tourner ! Cette scène fit écarquiller les yeux de Maître Flamespark. Il avait pressenti la puissance de Wang Lin, mais cela le laissait profondément stupéfait !
 
-En tant qu'ancien de l'Alliance de Culture, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance !
+En tant qu'ancien de l'Alliance de Cultivation, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance !
 
-Ce vortex de scellement provenait du monde ancien de la culture. Il avait été acquis par l'Alliance lors de l'effondrement du Royaume Céleste de la Pluie. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême !
+Ce vortex de scellement provenait du monde ancien de la cultivation. Il avait été acquis par l'Alliance lors de l'effondrement du Royaume Céleste de la Pluie. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême !
 
 Une fois activé, il ne s'arrêtait jamais ; il puisait constamment dans l'énergie du monde pour accroître sa force !
 
@@ -40,7 +40,7 @@ Bien que les cultivateurs du Royaume Intérieur aient été dispersés dans les 
 
 Lorsque Maître Flamespark vit que le geste désinvolte de Wang Lin avait provoqué un grondement tel que le vortex semblait sur le point de céder, il fut terrifié.
 
-« Quel genre de culture est-ce là... » Maître Flamespark regarda le dos de Wang Lin avec effroi, l'esprit totalement embrumé.
+« Quel genre de cultivation est-ce là... » Maître Flamespark regarda le dos de Wang Lin avec effroi, l'esprit totalement embrumé.
 
 L'expression de Wang Lin resta impassible. Après avoir stoppé le vortex d'un geste, il fit un signe de la main vers le côté. Le vortex rugit violemment et libéra des hurlements fracassants. Des milliers de cultivateurs surgirent soudainement du tourbillon. Ils portaient tous une marque entre les sourcils ; c'étaient des cultivateurs du Royaume Extérieur !
 
@@ -98,11 +98,11 @@ L'espace commença à se désagréger, et alors qu'il s'écroulait, Wang Lin agi
 
 Les milliers de cultivateurs qui avaient chargé péri lamentablement sous cette tempête dorée. Ils furent incapables de riposter.
 
-Une fois le voile levé, l'espace devint clair et le siège de l'Alliance de Culture fut révélé !
+Une fois le voile levé, l'espace devint clair et le siège de l'Alliance de Cultivation fut révélé !
 
-C'était une planète de culture gigantesque, entourée d'innombrables planètes mineures. Une lumière rouge sang monstrueuse émanait des profondeurs de la planète. On pouvait voir une faille spatiale sous la planète, et cette lueur sanguine provenait de cette brèche !
+C'était une planète de cultivation gigantesque, entourée d'innombrables planètes mineures. Une lumière rouge sang monstrueuse émanait des profondeurs de la planète. On pouvait voir une faille spatiale sous la planète, et cette lueur sanguine provenait de cette brèche !
 
-Alors qu'il suivait Wang Lin, Maître Flamespark observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt : « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance de Culture. Maître Zhong Xuan est là-bas ! »
+Alors qu'il suivait Wang Lin, Maître Flamespark observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt : « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance de Cultivation. Maître Zhong Xuan est là-bas ! »
 
 Simultanément, des bruits de bruissement surgirent de toutes parts. Des dizaines de milliers de cultivateurs du Royaume Extérieur jaillirent de la planète. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement !
 

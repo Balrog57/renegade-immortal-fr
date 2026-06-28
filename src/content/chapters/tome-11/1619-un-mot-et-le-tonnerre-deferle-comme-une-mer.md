@@ -24,7 +24,7 @@ Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéra
 
 Les yeux du Maître Sud Nuage s'illuminèrent et il prit une profonde inspiration. Il avait déjà pris la décision de déployer toute sa puissance pour aider Wang Lin au moment critique.
 
-« C'est une porte formée par six essences ; nous devons l'aider à la briser à tout prix. Une fois qu'il l'aura ouverte, la culture de Wang Lin deviendra une force d'une puissance extrême pour notre Royaume Intérieur ! »
+« C'est une porte formée par six essences ; nous devons l'aider à la briser à tout prix. Une fois qu'il l'aura ouverte, la cultivation de Wang Lin deviendra une force d'une puissance extrême pour notre Royaume Intérieur ! »
 
 Le Maître Lu Fu, le Maître Long Pan, l'Empereur Divin Dragon Azure et les autres échangèrent des regards, tous tendus.
 
@@ -92,7 +92,7 @@ Un grondement émanait également des rares nuages de la Mer des Nuages. D'innom
 
 Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers le Vide Brillant et la Mer des Nuages, il se propagea également dans la Rivière Invoquée. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
 
-Un grondement tonitruant balaya la Rivière Invoquée. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
+Un grondement tonitruant balaya la Rivière Invoquée. Des masses de cultivateurs sortirent des planètes de cultivation pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
 
 « Que... s'est-il passé... »
 

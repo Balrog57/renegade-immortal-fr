@@ -8,7 +8,7 @@ slug: arnaque
 ---
 Chapitre 1327 - Arnaque…
 
-L'autre planète de culture du Clan des Scorpions Démoniaques remarqua l'agitation, et une multitude de cultivateurs s'élança dans les airs.
+L'autre planète de cultivation du Clan des Scorpions Démoniaques remarqua l'agitation, et une multitude de cultivateurs s'élança dans les airs.
 
 Cependant, la femme en blanc sentit qu'elle n'était plus accompagnée que par le géant d'ombre lumineuse. Le coup de poing titanesque se rapprochait, et nul ne pourrait l'intercepter pour elle !
 
@@ -82,7 +82,7 @@ Wang Lin plissa les yeux en observant la scène. Il s'était longtemps interrog�
 
 Cependant, à voir le choc et la peur de Daoist Water en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'avait rien de commun !
 
-« Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance de Culture… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
+« Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance de Cultivation… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
 
 Après un long moment, Wang Lin demanda calmement : « Vous souvenez-vous de qui vous êtes ? »
 
@@ -120,4 +120,4 @@ Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
 « Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité ? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 
-« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss ! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Scatter Thunder.
+« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma cultivation. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss ! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Scatter Thunder.

@@ -20,7 +20,7 @@ Les Anciens du Grand Secte des Âmes qui observaient la scène devinrent graves.
 
 « La plupart des sorts du Dao Antique ne déploient pas toute leur puissance d'un coup, mais suivent une série de combinaisons avant que leur plein potentiel n'éclate au dernier moment. L'identité de cet homme est trop sensible. Pourquoi l'Ancêtre l'a-t-il ramené... »
 
-« La culture de cette personne semble ordinaire, mais avec un tel sort, même moi je devrais battre en retraite... Si j'avais été le moins prudent, je serais déjà mort ! »
+« La cultivation de cette personne semble ordinaire, mais avec un tel sort, même moi je devrais battre en retraite... Si j'avais été le moins prudent, je serais déjà mort ! »
 
 « Les cultivateurs des pays antiques possèdent des corps physiques incroyables. Sa force physique doit être extraordinaire ! »
 
@@ -62,7 +62,7 @@ Lorsque Wang Lin utilisa le Dao Démoniaque, le monde fut enveloppé d'une puiss
 
 Cette aura mortelle était comme un océan ; en se rassemblant, elle forma une mer de mort à l'extérieur du Grand Secte des Âmes. Des rugissements retentirent et la zone fut obscurcie.
 
-Sous l'effet de ce sort, les Anciens du Grand Secte des Âmes reculèrent sans hésiter. Seuls ceux possédant un niveau de culture élevé restèrent, mais leurs visages étaient graves. Ils regardaient Wang Lin avec une profonde terreur.
+Sous l'effet de ce sort, les Anciens du Grand Secte des Âmes reculèrent sans hésiter. Seuls ceux possédant un niveau de cultivation élevé restèrent, mais leurs visages étaient graves. Ils regardaient Wang Lin avec une profonde terreur.
 
 L'aura mortelle se concentra instantanément, mais ce n'était pas fini. Tandis qu'elle s'accumulait rapidement, Wang Lin sembla entendre un rugissement sourd provenant des profondeurs de la terre.
 

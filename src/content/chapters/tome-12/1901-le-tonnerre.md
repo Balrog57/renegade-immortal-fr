@@ -30,7 +30,7 @@ L'essence de massacre était une essence spéciale. Sa puissance était invisibl
 
 L'essence de massacre contenait une intention meurtrière inimaginable et pouvait altérer le fonctionnement même du monde. Elle était bien plus puissante que les essences ordinaires.
 
-En son temps, l'essence de massacre de Qing Shui lui permettait de combattre des êtres aux niveaux de culture supérieurs, ce qui témoignait de sa puissance phénoménale.
+En son temps, l'essence de massacre de Qing Shui lui permettait de combattre des êtres aux niveaux de cultivation supérieurs, ce qui témoignait de sa puissance phénoménale.
 
 Wang Lin n'avait pas souvent utilisé l'essence de massacre ; il s'en servait principalement pour projeter une aura imposante. Cependant, lorsqu'elle fusionna avec l'essence de tonnerre, tout bascula !
 
@@ -74,7 +74,7 @@ On ne voyait aucune trace de tonnerre sur ce corps véritable. L'intérieur et l
 
 « Peut-être... que ce n'est pas destiné à détruire un continent... » Wang Lin fixa son corps véritable et médita en silence.
 
-Tandis qu'il réfléchissait, sa culture de milieu du Vide Arcanique explosa soudainement. Sa puissance se mua en une tempête qui tourbillonna rapidement pour devenir un vortex.
+Tandis qu'il réfléchissait, sa cultivation de milieu du Vide Arcanique explosa soudainement. Sa puissance se mua en une tempête qui tourbillonna rapidement pour devenir un vortex.
 
 Chaque rotation augmentait considérablement le niveau de Wang Lin. Non seulement il absorbait l'énergie du monde, mais aussi la puissance accumulée dans son corps destinée au Scorpion du Démon Vert.
 

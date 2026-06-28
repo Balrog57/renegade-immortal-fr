@@ -62,7 +62,7 @@ Le regard de l'homme restait impassible, comme si tout ce qui se déroulait deva
 
 Yao Xixue serra les dents et cracha : « Tu es méprisable ! »
 
-Wang Lin esquissa un léger sourire. Beaucoup l'avaient maudit, mais le vainqueur avait toujours raison et le perdant avait tort. C'était la loi du monde de la culture, une règle que Wang Lin n'avait jamais oubliée. Il sourit : « La cultivatrice Yao m'a donné une pilule factice et m'a caché les dangers d'une telle intrusion. Je ne fais que me venger ; nul besoin de me faire tant de compliments ! »
+Wang Lin esquissa un léger sourire. Beaucoup l'avaient maudit, mais le vainqueur avait toujours raison et le perdant avait tort. C'était la loi du monde de la cultivation, une règle que Wang Lin n'avait jamais oubliée. Il sourit : « La cultivatrice Yao m'a donné une pilule factice et m'a caché les dangers d'une telle intrusion. Je ne fais que me venger ; nul besoin de me faire tant de compliments ! »
 
 « Si mon père, l'Ancêtre Sanguin, l'apprend, tu seras mort, fût-tu un disciple du Tout-Voyant ! De plus, j'ai activé une Pilule d'Âme Sanguine avant de venir ici ! » Le visage de Yao Xixue était d'une pâleur cadavérique.
 
@@ -74,7 +74,7 @@ Sa destinée était suspendue à ce va-et-vient !
 
 « Je vais simplement te sceller dans un lieu où tu endureras des millénaires de solitude, coincée entre la vie et la mort, incapable de trépasser. Même si tu tentais de te mordre la langue pour te suicider, le sceau sur ton front t'en empêcherait ! Je veux voir comment tu te relèveras avec ta Pilule d'Âme Sanguine ! » La voix de Wang Lin était calme, mais ses paroles firent chanceler l'expression de Yao Xixue.
 
-En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsqu'il avait vu sa culture détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yue. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité !
+En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsqu'il avait vu sa cultivation détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yue. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité !
 
 Wang Lin pensa : « Il y a un cycle à toute chose en ce monde ! »
 
@@ -192,6 +192,6 @@ L'une d'elles utilisait des restrictions anciennes et extrêmement subtiles. Les
 
 La majorité des protections avaient été levées de cette façon, ce qui prouvait l'œuvre d'une même personne.
 
-Cette restriction était célèbre dans l'ancien monde de la culture, mais très peu pouvaient la maîtriser. Même les disciples ne pouvaient en apprendre que quelques-unes selon leur rang ; un disciple plafonnait généralement à 9 restrictions, tandis qu'un maître de secte pouvait atteindre les 18 !
+Cette restriction était célèbre dans l'ancien monde de la cultivation, mais très peu pouvaient la maîtriser. Même les disciples ne pouvaient en apprendre que quelques-unes selon leur rang ; un disciple plafonnait généralement à 9 restrictions, tandis qu'un maître de secte pouvait atteindre les 18 !
 
 Alors qu'il s'apprêtait à repartir, le regard de Wang Lin se fixa soudainement sur les marques au sol qui indiquaient que les tables et les chaises avaient été déplacées !

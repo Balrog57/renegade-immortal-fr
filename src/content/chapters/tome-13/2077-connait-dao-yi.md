@@ -10,7 +10,7 @@ Chapitre 2077 - Connaît Dao Yi !
 
 Maître Âme Écarlate venait du Continent Astral Immortel ; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde de caverne. Les Exaltés Dorés, les Exaltés Célestes, les Ascendants Célestes et les neuf existences au sommet du Continent Astral Immortel : les Grands Empereurs.
 
-Sur le Continent Astral Immortel, avec son niveau de culture, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
+Sur le Continent Astral Immortel, avec son niveau de cultivation, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
 
 Le rêve de Maître Âme Écarlate était de devenir un cultivateur de rang Exalté Doré. C’était pour cet objectif qu'il voulait briser la formation entourant le Royaume Céleste : il voulait dévorer le Royaume Céleste et absorber son sang pour réaliser sa percée.
 
@@ -32,13 +32,13 @@ Cela dépassait l'entendement ; tout lui semblait n'être qu'un songe.
 
 En reculant, une pensée lui traversa soudain l'esprit. L'apparition du dragon marin ne provenait pas de Wang Lin, mais de l'épaule d'un cultivateur à l'aura mystérieuse et étrangère.
 
-« Ce n'est pas que ce Wang Lin soit si fort — il ne dégage aucune pression ni fluctuation. Bien qu’il s’agisse d’un trésor dissimulant son aura, seuls les faibles utilisent cette méthode pour se protéger. Si Wang Lin agit ainsi, c'est que son niveau de culture ne doit pas être élevé !
+« Ce n'est pas que ce Wang Lin soit si fort — il ne dégage aucune pression ni fluctuation. Bien qu’il s’agisse d’un trésor dissimulant son aura, seuls les faibles utilisent cette méthode pour se protéger. Si Wang Lin agit ainsi, c'est que son niveau de cultivation ne doit pas être élevé !
 
 « Ce dragon marin ne lui appartient pas, mais au cultivateur à l'aura étrangère !
 
-« Le niveau de culture de Wang Lin est modeste, mais il doit être un ami proche de ce cultivateur. Il a dû craindre d'être trop vulnérable lors de son voyage de retour et a demandé à un ami de l'accompagner.
+« Le niveau de cultivation de Wang Lin est modeste, mais il doit être un ami proche de ce cultivateur. Il a dû craindre d'être trop vulnérable lors de son voyage de retour et a demandé à un ami de l'accompagner.
 
-« Et à en juger par l'apparence de ce cultivateur étranger, son propre niveau de culture n'est pas élevé non plus. Cela signifie qu'il doit avoir pour maître un Exalté Céleste sur le Continent Astral Immortel ! C'est la seule explication logique. » Les yeux de Maître Âme Écarlate s'illuminèrent.
+« Et à en juger par l'apparence de ce cultivateur étranger, son propre niveau de cultivation n'est pas élevé non plus. Cela signifie qu'il doit avoir pour maître un Exalté Céleste sur le Continent Astral Immortel ! C'est la seule explication logique. » Les yeux de Maître Âme Écarlate s'illuminèrent.
 
 Alors qu'il reculait, le dragon marin Exalté Doré ouvrit la gueule pour le dévorer, et Maître Âme Écarlate poussa soudain un cri.
 
@@ -68,7 +68,7 @@ En entendant cela, Liu Jinbiao tourna instinctivement le regard vers Wang Lin. C
 
 L'expression de Wang Lin devint étrange. Il observa Maître Âme Écarlate, qui utilisait tous les stratagèmes pour arracher un sursis à la mort, et sourit.
 
-Maître Âme Écarlate reprit précipitamment : « Et si vous laissez ce vieil homme partir, je peux supplier mon oncle-maître de vous accueillir dans sa secte. Vous seriez alors sous la protection du Grand Empereur Dao Yi. Une fois votre culture franchissant un nouveau palier, vous pourrez faire tout ce que vous voudrez sur le Continent Astral Immortel ! »
+Maître Âme Écarlate reprit précipitamment : « Et si vous laissez ce vieil homme partir, je peux supplier mon oncle-maître de vous accueillir dans sa secte. Vous seriez alors sous la protection du Grand Empereur Dao Yi. Une fois votre cultivation franchissant un nouveau palier, vous pourrez faire tout ce que vous voudrez sur le Continent Astral Immortel ! »
 
 « Dao Yi... Le Grand Empereur, hein... » Wang Lin se leva et fixa Maître Âme Écarlate. À ses yeux, cet homme n'était qu'une fourmi.
 

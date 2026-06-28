@@ -2,7 +2,7 @@
 n: 1040
 title: Liu Mei (2)
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1040 - Liu Mei (2)
 slug: liu-mei-2
 ---
@@ -24,7 +24,7 @@ L'esprit de Wang Lin balayait la scène. Il voyait tout, mais ne s'arrêta pas u
 
 Personne n'avait remarqué son arrivée et personne ne détecta son départ. L'esprit de Wang Lin quitta silencieusement ce bain de sang et cette boucherie sans fin.
 
-Rien de tout cela ne pouvait l'arrêter. Il poursuivait sa compréhension, et sa culture approchait du sommet. Il achevait ce qui demandait aux autres d'innombrables années.
+Rien de tout cela ne pouvait l'arrêter. Il poursuivait sa compréhension, et sa cultivation approchait du sommet. Il achevait ce qui demandait aux autres d'innombrables années.
 
 Son esprit continua de se propager jusqu'à atteindre une région extrêmement secrète au sein de l'Alliance. Il y avait là une planète jaune, imprégnée de mort et dépourvue de toute trace de vie. Même l'énergie spirituelle y était extrêmement rare.
 
@@ -34,11 +34,11 @@ Même lorsque l'esprit de Wang Lin y parvint, il sembla rencontrer certaines int
 
 Alors que son esprit survolait la planète jaune, il pénétra immédiatement dans sa partie interne, où se cachait autre chose.
 
-Un réseau de transfert se trouvait à l'intérieur de cette planète. Ce réseau était immense et, de l'autre côté, se situait l'unique pays de culture de rang 9 de l'Alliance !
+Un réseau de transfert se trouvait à l'intérieur de cette planète. Ce réseau était immense et, de l'autre côté, se situait l'unique pays de cultivation de rang 9 de l'Alliance !
 
 Le Royaume du Vide Brillant !
 
-C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume du Vide Brillant n'était pas une planète de culture, mais un vaste continent qui s'apparentait à un monde à part entière.
+C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume du Vide Brillant n'était pas une planète de cultivation, mais un vaste continent qui s'apparentait à un monde à part entière.
 
 C'était la terre sacrée de la majorité des cultivateurs de ce lieu !
 
@@ -60,7 +60,7 @@ Toutefois, le regard du tigre dérivait souvent vers la jungle dense en contreba
 
 « Quand pourrai-je partir d'ici... » murmura amèrement la femme en levant la tête, comme si elle s'adressait au tigre.
 
-« Lorsque ton niveau de culture sera assez élevé, je te laisserai partir. » Une voix froide s'éleva derrière la femme. À ces mots, celle-ci se leva immédiatement. Même le tigre trembla et détourna promptement le regard des tigresses de la jungle.
+« Lorsque ton niveau de cultivation sera assez élevé, je te laisserai partir. » Une voix froide s'éleva derrière la femme. À ces mots, celle-ci se leva immédiatement. Même le tigre trembla et détourna promptement le regard des tigresses de la jungle.
 
 Une femme apparut au son de cette voix. Elle portait une élégante robe bleue et sa beauté était indescriptible ; c'était comme si toutes les étoiles s'éteignaient par comparaison.
 
@@ -102,17 +102,17 @@ Les combats dans la région nord faisaient toujours rage. Au moment où l'esprit
 
 « Wang Lin !! » Maître Flamespark laissa échapper un cri d'incrédulité. C'était un spectacle rare de le voir ainsi. Non seulement lui, mais tous ceux qui connaissaient Wang Lin furent terrifiés par ce phénomène !
 
-Au siège de l'Alliance de Culture, sur la planète flottante au-dessus du vortex : dans la pièce secrète, l'homme d'âge moyen ouvrit soudainement les yeux, le regard chargé de choc !
+Au siège de l'Alliance de Cultivation, sur la planète flottante au-dessus du vortex : dans la pièce secrète, l'homme d'âge moyen ouvrit soudainement les yeux, le regard chargé de choc !
 
 « Qui est-il ?! »
 
 Dans la mer de flammes, l'Oiseau Vermillon poussa un autre cri et se mit en mouvement, encore plus rapidement.
 
-Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette personne affichait une expression indifférente. Elle marchait à travers le cosmos, sa cible étant le siège de l'Alliance de Culture.
+Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette personne affichait une expression indifférente. Elle marchait à travers le cosmos, sa cible étant le siège de l'Alliance de Cultivation.
 
 Derrière elle se trouvaient d'innombrables crânes sanglants, et une odeur de sang imprégnait la zone. En avançant, ses yeux s'illuminèrent et il regarda au loin. Son expression s'adoucit et un sourire d'admiration apparut sur son visage.
 
-« Wang Lin... La culture de cet enfant a franchi un nouveau cap. Cette aura doit être celle de la perle défiant le ciel... Il a réussi à utiliser la perle pour comprendre les lois. Grâce à cela, je peux partir pour le siège de l'Alliance sans regrets. J'irai là-bas pour découvrir le secret de l'effondrement du Royaume Céleste. Alors, je trouverai la véritable cause de ma folie ! »
+« Wang Lin... La cultivation de cet enfant a franchi un nouveau cap. Cette aura doit être celle de la perle défiant le ciel... Il a réussi à utiliser la perle pour comprendre les lois. Grâce à cela, je peux partir pour le siège de l'Alliance sans regrets. J'irai là-bas pour découvrir le secret de l'effondrement du Royaume Céleste. Alors, je trouverai la véritable cause de ma folie ! »
 
 L'esprit de Wang Lin se contracta frénétiquement. Il ne fallut qu'un instant pour que tout revienne à la normale, comme si tout ce qui s'était produit avait été inversé. Il retourna dans la Terre des Esprits Démoniaques, vers la Grotte de l'Empereur Céleste, et finit par réintégrer son propre corps.
 

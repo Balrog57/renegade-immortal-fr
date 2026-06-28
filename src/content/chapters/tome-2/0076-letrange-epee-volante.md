@@ -52,7 +52,7 @@ L'homme sourit et dit à Wang Lin : « Camarade cultivateur, connais-tu mon disc
 
 Le visage de Wang Lin ne trahit aucune émotion. Il répondit : « Et qu'est-ce que cela changerait que je le connaisse ou non ? »
 
-L'homme d'âge moyen fut déconcerté. Il observa Wang Lin un instant, puis sourit soudainement. « Peu importe. Bien que tu ne sois qu'au 8e niveau, si je bois ton sang, cela augmentera tout de même un peu ma culture. »
+L'homme d'âge moyen fut déconcerté. Il observa Wang Lin un instant, puis sourit soudainement. « Peu importe. Bien que tu ne sois qu'au 8e niveau, si je bois ton sang, cela augmentera tout de même un peu ma cultivation. »
 
 Le visage de Zhang Hu changea brusquement. Il se précipita devant son maître et s'écria : « Maître, cette personne est mon ami d'enfance. Je vous en prie... épargnez-le ! »
 

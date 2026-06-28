@@ -10,7 +10,7 @@ slug: wang-hao
 
 En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre : le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « frelon », cela se situait à un tout autre niveau.
 
-Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait décuplé. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
+Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait décuplé. Il avait atteint la limite du premier niveau. Peu importe ses efforts de cultivation, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
 
 Après tant d'échecs, ses efforts ne furent pas vains puisqu'il finit par percer et atteindre ce second stade.
 
@@ -28,7 +28,7 @@ Cette année marquait la compétition des disciples honoraires du Secte Heng Yue
 
 Par conséquent, les tâches liées à la maison des corvées subissaient des retards, car chacun était trop occupé.
 
-Wang Lin était très déçu de devoir encore s'occuper de la maison des corvées. Quant à la compétition des disciples internes, il n'avait nullement l'intention d'y participer. S'il avait du temps libre, pourquoi ne pas le consacrer plutôt à sa culture dans l'espace de rêve ?
+Wang Lin était très déçu de devoir encore s'occuper de la maison des corvées. Quant à la compétition des disciples internes, il n'avait nullement l'intention d'y participer. S'il avait du temps libre, pourquoi ne pas le consacrer plutôt à sa cultivation dans l'espace de rêve ?
 
 Ce jour-là, la neige commença à tomber sur la montagne Heng Yue. De loin, le paysage ressemblait à un royaume de givre.
 
@@ -40,7 +40,7 @@ Il s'asseyait près du foyer pour lire. Son père sculptait à ses côtés, tand
 
 Wang Lin se souvint également des toupies en bois sous son lit ; il les sortait parfois pour jouer sur la glace avec les enfants du voisinage.
 
-En pensant à tout cela, Wang Lin prit une profonde inspiration. Un cultivateur doit rompre tous ses liens mortels, et ces souvenirs n'étaient que des distractions susceptibles de perturber sa culture. Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son esprit était limpide. Il ne pouvait rompre tous ses liens avec le monde mortel ; il choisit donc de les enfouir profondément dans son cœur.
+En pensant à tout cela, Wang Lin prit une profonde inspiration. Un cultivateur doit rompre tous ses liens mortels, et ces souvenirs n'étaient que des distractions susceptibles de perturber sa cultivation. Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son esprit était limpide. Il ne pouvait rompre tous ses liens avec le monde mortel ; il choisit donc de les enfouir profondément dans son cœur.
 
 Alors qu'il était plongé dans ses souvenirs, son expression changea soudainement. Étant désormais au deuxième niveau de la Condensation de Qi, il avait éveillé sa capacité de Sens Divin. Tout cela était décrit dans l'ouvrage sur les Trois Niveaux de la Condensation de Qi.
 

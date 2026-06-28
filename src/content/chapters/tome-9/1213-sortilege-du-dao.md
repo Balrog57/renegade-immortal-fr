@@ -8,11 +8,11 @@ slug: sortilege-du-dao
 ---
 Le vieil homme aux cheveux blancs n'avait pas maîtrisé l'essence de l'Empreinte de l'Esprit Guerrier. Ayant caché son identité pour s'infiltrer dans le Secte Divine, il n'avait guère eu l'occasion de comprendre les sorts fondamentaux de ladite secte. Cependant, son talent était prodigieux ; après avoir étudié le sortilège et l'avoir observé à plusieurs reprises, il parvint à en assimiler une partie.
 
-Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa culture au stade avancé du Briseur de Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original !
+Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa cultivation au stade avancé du Briseur de Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original !
 
 L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura des millénaires plus tard, et n'aurait pas laissé de si fines fissures sur le sol.
 
-Par conséquent, bien que la culture de Wang Lin fût encore insuffisante, son Empreinte de l'Esprit Guerrier intégrait sa puissance du tonnerre ainsi que sa puissance de Dieu Ancien. Cela rendait son empreinte presque indiscernable de la véritable !
+Par conséquent, bien que la cultivation de Wang Lin fût encore insuffisante, son Empreinte de l'Esprit Guerrier intégrait sa puissance du tonnerre ainsi que sa puissance de Dieu Ancien. Cela rendait son empreinte presque indiscernable de la véritable !
 
 À cet instant, les deux paumes perçantes le ciel grondèrent, donnant l'impression que le Royaume aux Sept Couleurs allait s'effondrer. Alors que les vents s'engouffraient, les deux empreintes de paume entrèrent en collision !
 
@@ -24,7 +24,7 @@ Au loin, Chen Tianjun suivait ce combat depuis le début. Son cœur était plong
 
 Il y avait aussi la vieille femme en vert. Elle s'était également élevée dans les airs malgré son corps épuisé pour ressentir la bataille au loin. Son visage était pâle, mais à cet instant, toutes ses pensées malveillantes envers Wang Lin se dissipèrent. Elle ne ressentait plus qu'une profonde crainte mêlée d'admiration.
 
-« Quel est donc son niveau de culture ?! Comparé à lui, je ne fais pas le poids ! » haleta la vieille femme, tandis que le respect dans ses yeux s'intensifiait.
+« Quel est donc son niveau de cultivation ?! Comparé à lui, je ne fais pas le poids ! » haleta la vieille femme, tandis que le respect dans ses yeux s'intensifiait.
 
 Par ailleurs, en raison du feu et du tonnerre, le brouillard qui entourait Maître Cloud Soul dans la vallée s'était contracté. Les bêtes féroces à l'intérieur tremblaient et se terrèrent, lui permettant enfin de s'échapper. Dès qu'il fut hors de danger, il ressentit immédiatement les puissantes vibrations du Royaume aux Sept Couleurs. Il percevait clairement l'énergie originelle et le tonnerre, mais ce qui fit chuter son cœur fut de déceler distinctement l'aura de Wang Lin...
 
@@ -64,7 +64,7 @@ Ce sentiment fut si intense qu'avant même qu'il ne puisse réagir durant sa br�
 
 Le corps de Wang Lin dégageait une intention de combat effrénée, telle celle d'un céleste guerrier !
 
-Le vieil homme aux cheveux blancs recula. Bien que sa condition physique fût inférieure, sa culture étant plus élevée, il utilisa immédiatement des sorts. Les deux combattants s'engagèrent dans un corps-à-corps acharné. Le vieil homme dégainait une multitude de trésors, mais ceux-ci ne firent aucun effet sur Wang Lin. Alors que les grondements résonnaient, le poing de Wang Lin percuta sa cible, suivi d'un balayage du pied droit qui força l'homme à reculer.
+Le vieil homme aux cheveux blancs recula. Bien que sa condition physique fût inférieure, sa cultivation étant plus élevée, il utilisa immédiatement des sorts. Les deux combattants s'engagèrent dans un corps-à-corps acharné. Le vieil homme dégainait une multitude de trésors, mais ceux-ci ne firent aucun effet sur Wang Lin. Alors que les grondements résonnaient, le poing de Wang Lin percuta sa cible, suivi d'un balayage du pied droit qui força l'homme à reculer.
 
 Ce vieil homme n'avait que rarement affronté de telles attaques, les combats reposant habituellement sur les sorts et les trésors magiques. Pourtant, chaque coup de poing ou de pied porté par ce jeune homme contenait une puissance capable d'ébranler la terre. S'ils atteignaient son corps, celui-ci risquait de s'effondrer !
 

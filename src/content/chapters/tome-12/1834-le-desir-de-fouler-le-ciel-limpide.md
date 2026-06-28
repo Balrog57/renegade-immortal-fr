@@ -34,13 +34,13 @@ Wang Lin se retourna soudain et lança un regard plein de sens à Yan Lu.
 
 Un escalier gigantesque, large de plusieurs centaines de kilomètres, apparut dans le firmament surplombant le Grand Secte de l'Âme. Cet escalier de lumière illumina les ténèbres du ciel.
 
-Des grondements tonnantes résonnèrent dans la nuit noire, tirant d'innombrables cultivateurs du Grand Secte de l'Âme de leur culture. Leurs Sens Divins se déployèrent ou ils s'envolèrent simplement de leurs pics pour contempler l'escalier géant qui trônait dans le ciel !
+Des grondements tonnantes résonnèrent dans la nuit noire, tirant d'innombrables cultivateurs du Grand Secte de l'Âme de leur cultivation. Leurs Sens Divins se déployèrent ou ils s'envolèrent simplement de leurs pics pour contempler l'escalier géant qui trônait dans le ciel !
 
 « Quelqu'un tente d'entrer au septième étage du Pavillon des Écritures de l'Âme ! »
 
 « Ce chef aux cheveux blancs... À en juger par son apparence, n'est-ce pas le nouvel Ancien Wang ? »
 
-« Bien que sa culture ne soit pas médiocre, il sera très difficile d'atteindre le septième étage ! »
+« Bien que sa cultivation ne soit pas médiocre, il sera très difficile d'atteindre le septième étage ! »
 
 « Haha, voilà un spectacle divertissant. Cela fait presque cent ans que personne n'a tenté l'ascension du septième étage. À part ces vieux briscards, personne n'oserait s'y risquer ! »
 
@@ -60,11 +60,11 @@ Cependant, très peu pensaient que Wang Lin réussirait ; la plupart espéraient
 
 Même l'Estimé Taureau Vert fronça les sourcils. Il leva les yeux, son regard perçant la montagne pour observer l'illusion céleste.
 
-« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Grand Secte de l'Âme soit si facile à conquérir ! »
+« Il est un peu téméraire... Avec un tel niveau de cultivation, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Grand Secte de l'Âme soit si facile à conquérir ! »
 
-Simultanément, sur trois à cinq pics appartenant à de vieux monstres habituellement en culture isolée, les propriétaires ouvrirent les yeux et regardèrent vers le ciel.
+Simultanément, sur trois à cinq pics appartenant à de vieux monstres habituellement en cultivation isolée, les propriétaires ouvrirent les yeux et regardèrent vers le ciel.
 
-« Intéressant. Il est déjà difficile d'atteindre le sixième étage avec son niveau de culture, et pourtant il veut encore tenter le septième... »
+« Intéressant. Il est déjà difficile d'atteindre le sixième étage avec son niveau de cultivation, et pourtant il veut encore tenter le septième... »
 
 « Cet enfant se surestime... »
 
@@ -118,13 +118,13 @@ Simultanément, les expressions de tous ceux du Grand Secte de l'Âme qui virent
 
 Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous au Grand Secte de l'Âme. Le choc qu'il provoquait était indescriptible.
 
-Tout le Grand Secte de l'Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
+Tout le Grand Secte de l'Âme était en émoi. Même certains des vieux monstres en cultivation isolée furent tirés de leur méditation.
 
 « Treize marches... » Au Pic Céleste Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
 
 « Je l'avais sous-estimé... Son corps véritable d'essence est très proche de devenir un véritable Céleste... Corps véritable d'essence, véritable Céleste. Il n'y a qu'un mot de différence, mais l'écart est un gouffre ! »
 
-« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus ! » La culture de l'Estimé Taureau Vert était insondable. Son intuition était infaillible et il se trompait rarement.
+« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus ! » La cultivation de l'Estimé Taureau Vert était insondable. Son intuition était infaillible et il se trompait rarement.
 
 À l'intérieur du Pavillon des Écritures de l'Âme, Wang Lin se tenait sur la treizième marche. Il avait réussi cet exploit grâce à la puissance de son corps véritable d'essence, mais désormais, la voix dans son esprit s'était intensifiée de plusieurs crans !
 

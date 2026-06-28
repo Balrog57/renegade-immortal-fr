@@ -50,7 +50,7 @@ Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'e
 
 « J'ai longtemps entendu dire que la Sainte du Vide Brillant possédait un sort puissant au sein du Royaume du Vide Brillant. Le titre de Sainte du Vide Brillant est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique !
 
-« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume du Vide Brillant pour ma culture, j'ai entendu bien des rumeurs sur la Sainte du Vide Brillant. Aujourd'hui, je vois que ces rumeurs sont vraies. »
+« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume du Vide Brillant pour ma cultivation, j'ai entendu bien des rumeurs sur la Sainte du Vide Brillant. Aujourd'hui, je vois que ces rumeurs sont vraies. »
 
 Mu Bingmei ne répondit pas et pointa le pilier d'énergie originelle. Le pilier se rétracta rapidement jusqu'à devenir une courte épée scintillante de lumière.
 
@@ -60,7 +60,7 @@ Nul ne pouvait comprendre ses pensées, car elle-même était encore confuse… 
 
 Il y avait un sentiment plus complexe encore qui lui déchirait le cœur… À cause de cela, elle ne permettrait à personne de tuer Wang Lin.
 
-Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa culture par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume du Vide Brillant, contemplant le vide infini. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
+Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa cultivation par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume du Vide Brillant, contemplant le vide infini. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
 
 Elle avait traversé d'innombrables années avec ce sentiment… Aujourd'hui, en voyant Wang Lin, cette douleur et ces émotions complexes qui bouillonnaient en elle envahirent tout son esprit.
 

@@ -86,11 +86,11 @@ L'esprit du tonnerre jeta un regard sur Xu Ting avant de se tourner vers Wang Li
 
 Wang Lin ouvrit les yeux. Au moment même où il le fit, deux éclairs jaillirent de son regard. Il se leva, resta pensif un instant, puis commença à marcher vers le centre du lac de tonnerre sous les yeux de l'assistance.
 
-Auparavant, il avait eu l'impression de saisir quelque chose. Arrivé au centre, il s'assit immédiatement en position de lotus pour commencer sa culture.
+Auparavant, il avait eu l'impression de saisir quelque chose. Arrivé au centre, il s'assit immédiatement en position de lotus pour commencer sa cultivation.
 
 Cette scène stupéfia tous les cultivateurs environnants.
 
-« Ceci... ce Xu Mu n'est pas affecté par le tonnerre et reste d'un calme absolu. Quelle méthode de culture utilise-t-il donc ?! »
+« Ceci... ce Xu Mu n'est pas affecté par le tonnerre et reste d'un calme absolu. Quelle méthode de cultivation utilise-t-il donc ?! »
 
 « Cet esprit du tonnerre semble craindre Xu Mu. C'est très étrange. Ce Xu Mu n'est vraiment pas un homme ordinaire ! »
 

@@ -14,17 +14,17 @@ Seul le dernier sens divin balaya avec acharnement toute la planète. N'ayant ri
 
 Le renflement froid de cet individu se propagea sur toute la planète et atteignit les oreilles de Wang Lin.
 
-La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea : « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire d'Allheaven est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
+La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea : « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire d'Allheaven est intéressant. Une énergie spirituelle si riche, pourtant cette planète de cultivation n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
 
-« Si cette planète Ran Yun avait fait partie de l'Alliance de Culture, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
+« Si cette planète Ran Yun avait fait partie de l'Alliance de Cultivation, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de cultivation de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
 
 Tandis que Wang Lin réfléchissait, son aura commença à se rétracter. En un clin d'œil, sa présence Ascendante disparut pour ne laisser paraître que celle d'un cultivateur de la Formation du Noyau.
 
-La culture de Wang Lin atteignait déjà le stade initial de l'Ascendant et son âme originelle était extrêmement singulière. À moins qu'un être doté d'un niveau de culture supérieur ne se trouve à proximité, il serait impossible de le percer par un simple balayage du sens divin.
+La cultivation de Wang Lin atteignait déjà le stade initial de l'Ascendant et son âme originelle était extrêmement singulière. À moins qu'un être doté d'un niveau de cultivation supérieur ne se trouve à proximité, il serait impossible de le percer par un simple balayage du sens divin.
 
 Bien sûr, ce n'était pas le cas pour les vieux monstres qui se trouvaient au deuxième échelon.
 
-« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire d'Allheaven, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
+« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire d'Allheaven, ils ne penseront pas que je puisse me cacher sur une planète de cultivation comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
 
 « À en juger par l'expression de ces quatre petits gars, la planète Dong Lin est extrêmement puissante. Avant d'être assez fort, je ne peux pas m'y rendre ! »
 
@@ -42,7 +42,7 @@ Après un court voyage, une ville apparut devant lui. Cette cité était entour�
 
 Wang Lin rangea son épée volante à l'extérieur de la ville et atterrit. Il épousseta ses vêtements et marcha calmement vers les portes.
 
-Peut-être parce qu'ils avaient remarqué qu'il n'était qu'au stade avancé de la Formation du Noyau, les gardes de la ville ne furent pas trop stricts lors de l'inspection. Ils lui informèrent simplement que des grottes de culture étaient spécialement préparées pour les cultivateurs étrangers. Wang Lin paya les pierres spirituelles pour un séjour temporaire et reçut un jeton. Il pénétra ensuite dans la ville contrôlée par la famille Sun.
+Peut-être parce qu'ils avaient remarqué qu'il n'était qu'au stade avancé de la Formation du Noyau, les gardes de la ville ne furent pas trop stricts lors de l'inspection. Ils lui informèrent simplement que des grottes de cultivation étaient spécialement préparées pour les cultivateurs étrangers. Wang Lin paya les pierres spirituelles pour un séjour temporaire et reçut un jeton. Il pénétra ensuite dans la ville contrôlée par la famille Sun.
 
 De nombreux mortels circulaient en ville, mais il y avait aussi beaucoup de cultivateurs. Toutes sortes de boutiques, remplies d'articles indispensables aux pratiquants, bordaient les rues. Bien sûr, certaines enseignes étaient réservées aux mortels.
 
@@ -62,7 +62,7 @@ L'expression de Wang Lin resta imperturbable tandis qu'il demandait calmement : 
 
 Le jeune homme afficha un air impatient : « Les chambres supérieures coûtent mille pierres spirituelles de haute qualité, et les inférieures en coûtent cent. »
 
-Wang Lin réfléchit un instant avant de sortir cent pierres spirituelles et de les poser. Le jeune homme eut un regard méprisant ; d'un revers de manche, il ramassa les pierres, saisit un jeton sur le rocher, le lança vers Wang Lin et déclara : « La cinquième maison à partir de l'ouest, allez ! » Sur ce, le jeune homme referma les yeux pour se concentrer sur sa culture.
+Wang Lin réfléchit un instant avant de sortir cent pierres spirituelles et de les poser. Le jeune homme eut un regard méprisant ; d'un revers de manche, il ramassa les pierres, saisit un jeton sur le rocher, le lança vers Wang Lin et déclara : « La cinquième maison à partir de l'ouest, allez ! » Sur ce, le jeune homme referma les yeux pour se concentrer sur sa cultivation.
 
 Wang Lin attrapa le jeton et l'examina. Il comportait deux restrictions, dont l'une servait à franchir l'entrée. Wang Lin détourna le regard, rangea le jeton et entra.
 
@@ -72,13 +72,13 @@ Wang Lin entendit naturellement ces paroles. Il se retourna pour lui jeter un re
 
 La demeure semblait simple, mais elle était imprégnée d'énergie spirituelle. Après avoir inspecté la pièce, Wang Lin fut satisfait.
 
-Il n'y avait qu'un lit et un tapis de méditation, ainsi qu'un four à pilules et une salle de culture semi-fermée. Bien que petite, l'endroit était très élégant.
+Il n'y avait qu'un lit et un tapis de méditation, ainsi qu'un four à pilules et une salle de cultivation semi-fermée. Bien que petite, l'endroit était très élégant.
 
 À l'extérieur de la pièce, Wang Lin agita négligemment la main pour parfaire les restrictions de la demeure. Cela les rendit dix fois plus puissantes qu'auparavant. Il s'assit en position du lotus et inspira la dense énergie spirituelle.
 
 Son visage se détendit à mesure que l'énergie emplissait son corps. Peu après, Wang Lin expulsa une bouffée d'air vicié avec un soupçon de regret.
 
-« Cela fait longtemps que je n'ai pas pratiqué avec de l'énergie spirituelle. Malheureusement, peu importe sa densité, elle n'augmentera pas mon niveau de culture. » Presque tous les jades célestes dans le sac de Wang Lin avaient été épuisés lors de sa percée au stade Ascendant. Il n'en restait pas assez pour une pratique quotidienne.
+« Cela fait longtemps que je n'ai pas pratiqué avec de l'énergie spirituelle. Malheureusement, peu importe sa densité, elle n'augmentera pas mon niveau de cultivation. » Presque tous les jades célestes dans le sac de Wang Lin avaient été épuisés lors de sa percée au stade Ascendant. Il n'en restait pas assez pour une pratique quotidienne.
 
 « Il ne me reste que cinq gouttes de liquide céleste. Les quatre gouttes que j'ai consommées sous l'effet du Fruit d'Ascension Céleste ont permis à mon corps de disposer d'une énergie spirituelle céleste infinie, mais cela ne durera pas éternellement. Dans quelques années seulement, le liquide céleste en moi sera épuisé et je n'aurai plus cette réserve infinie. »
 
@@ -96,7 +96,7 @@ Une demi-heure plus tard, la perle projeta une lumière bleue intense. Celle-ci 
 
 Une légère odeur de santal émanait de la perle, une senteur qui apaisait l'esprit.
 
-« La troisième formation est cette odeur de santal. » Les yeux de Wang Lin s'illuminèrent. Non seulement cette odeur n'était pas toxique, mais elle pouvait en réalité accélérer la vitesse de culture d'un pratiquant. C'était un matériau alchimique rare.
+« La troisième formation est cette odeur de santal. » Les yeux de Wang Lin s'illuminèrent. Non seulement cette odeur n'était pas toxique, mais elle pouvait en réalité accélérer la vitesse de cultivation d'un pratiquant. C'était un matériau alchimique rare.
 
 Alors qu'il était assis dans le silence total de la nuit, une pensée traversa l'esprit de Wang Lin. Après un instant de réflexion, il l'effaça aussitôt.
 

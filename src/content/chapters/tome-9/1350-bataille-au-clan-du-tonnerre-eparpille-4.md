@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1350 - Battle at the Scatter Thunder Clan! (4)"
 slug: bataille-au-clan-du-tonnerre-eparpille-4
 ---
-« Empreinte de Tonnerre Géante ! » Après avoir révélé le sceau et déployé une culture culminant au quatrième niveau du Fléau Céleste, l'Ancien en chef sembla devenir une personne différente. Il dégageait une pression colossale !
+« Empreinte de Tonnerre Géante ! » Après avoir révélé le sceau et déployé une cultivation culminant au quatrième niveau du Fléau Céleste, l'Ancien en chef sembla devenir une personne différente. Il dégageait une pression colossale !
 
 L'espace environnant parut incapable de supporter cette pression ; il commença à se tordre et des fissures apparurent.
 
@@ -60,13 +60,13 @@ De la même manière, possédant tous deux une résistance naturelle à l'élect
 
 Un fracas assourdissant se propagea et l'espace environnant commença à s'effondrer violemment. Des fissures spatiales apparurent et le lac de tonnerre trembla. La collision des deux sphères généra une onde de choc inimaginable !
 
-Cette onde se répandit comme des vagues déchaînées ! L'impact fit jaillir le tonnerre dans toutes les directions, affectant immédiatement les seize planètes de culture du Clan du Tonnerre Éparpillé !
+Cette onde se répandit comme des vagues déchaînées ! L'impact fit jaillir le tonnerre dans toutes les directions, affectant immédiatement les seize planètes de cultivation du Clan du Tonnerre Éparpillé !
 
 D'innombrables morts et blessés furent causés par ce tumulte !
 
 L'onde de choc fit bouillonner le lac de tonnerre et l'étendit vers l'extérieur. Celui-ci s'élargit instantanément plus de cent fois, et un grondement tonitruant résonna à travers tout le Système Stellaire Antique !
 
-Plusieurs planètes de culture situées non loin du Clan furent touchées ; la pluie de tonnerre s'abattit sur elles !
+Plusieurs planètes de cultivation situées non loin du Clan furent touchées ; la pluie de tonnerre s'abattit sur elles !
 
 Ce fut comme un effondrement se propageant furieusement au sein du Clan du Tonnerre Éparpillé. Cette déflagration était si puissante qu'elle attira immédiatement l'attention de nombreux cultivateurs puissants dans le Système Stellaire Antique !
 

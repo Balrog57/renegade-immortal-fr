@@ -62,7 +62,7 @@ Big Red acquiesça rapidement.
 
 Wang Lin ne prêta plus attention à Big Red et détourna le regard du temple fastueux. Il comprit d'un coup d'œil que les lois de l'espace jouaient ici un rôle majeur. L'endroit semblait unique, mais en réalité, il comportait quatre strates spatiales.
 
-Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine culture.
+Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine cultivation.
 
 « Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Disséminé. Sur les neuf auras, cinq sont au stade de Scryer Nirvana, trois au stade de Cleanser Nirvana, et une est même au stade de Shatterer Nirvana ! » Wang Lin marcha silencieusement vers la porte est du temple.
 
@@ -72,13 +72,13 @@ En particulier, une foule de cultivateurs se pressait à la porte est. Ils dissi
 
 Cette force mentale était liée à la personnalité et à l'âge. Wang Lin cultivait depuis 2 000 ans et avait beaucoup vu. Il était très rusé, et sa capacité de manipulation n'était en rien inférieure à celle de ces vieux monstres ayant vécu des dizaines de milliers d'années.
 
-Après tout, au-delà du niveau de culture, la ruse est une clé essentielle à la survie.
+Après tout, au-delà du niveau de cultivation, la ruse est une clé essentielle à la survie.
 
 Wang Lin ne se précipita pas pour franchir la porte est et l'observa un moment. Il afficha ensuite une expression indifférente avant de s'avancer. Ne connaissant personne et n'étant connu de personne, et soutenu par son air détaché, nul ne vint l'aborder.
 
 Dès qu'il franchit la porte est, Wang Lin sentit qu'il entrait dans un espace créé artificiellement. Devant lui se trouvait une mare noire qui semblait remplie d'une substance boueuse et bouillonnante.
 
-Trois vieillards étaient assis sur le bord de la mare ; leurs niveaux de culture n'étaient pas négligeables. L'un était au stade du Yang Corporel, tandis que les deux autres étaient au stade du Yin Illusoire. Des éclairs circulaient dans leurs corps.
+Trois vieillards étaient assis sur le bord de la mare ; leurs niveaux de cultivation n'étaient pas négligeables. L'un était au stade du Yang Corporel, tandis que les deux autres étaient au stade du Yin Illusoire. Des éclairs circulaient dans leurs corps.
 
 Wang Lin ayant appris comment échanger des cristaux de tonnerre via la mémoire de Big Red, il ne perdit pas de temps. Il toucha la marque sur son front pour simuler l'ouverture de son espace de stockage. Une quantité massive d'objets destinés à l'échange fut projetée dans la mare et dévorée par la boue.
 
@@ -86,7 +86,7 @@ Après un long moment, alors que Wang Lin n'avait toujours pas terminé, les tro
 
 Ils étaient responsables de cet endroit depuis longtemps et voyaient rarement quelqu'un capable de déverser autant de biens d'un coup pour obtenir des cristaux de tonnerre. Cela avait attiré leur attention.
 
-Le niveau de culture de Wang Lin pouvait changer à sa guise ; à cet instant, il se présentait devant ces trois vieillards en tant que cultivateur Ascendant.
+Le niveau de cultivation de Wang Lin pouvait changer à sa guise ; à cet instant, il se présentait devant ces trois vieillards en tant que cultivateur Ascendant.
 
 Une fois les échanges terminés et le contenu englouti par la mare noire, Wang Lin sortit calmement un jade. Ce n'était pas un objet d'échange, mais le Classement du Tonnerre Disséminé.
 

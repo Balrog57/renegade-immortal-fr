@@ -50,11 +50,11 @@ Le feu vacillait, éclairant parfois le visage de Wang Lin, le plongeant parfois
 
 Il prit délicatement chaque figurine, tandis que la froideur en son cœur s'apaisait. Mais alors que ce froid diminuait, sa tristesse, elle, grandissait.
 
-Wang Lin murmura pour lui-même : « Je ne peux pas lâcher prise, je ne peux pas lâcher prise... » Durant ses premières années de culture, il n'arrivait pas à se détacher de sa famille. Aujourd'hui encore, il ne pouvait les oublier.
+Wang Lin murmura pour lui-même : « Je ne peux pas lâcher prise, je ne peux pas lâcher prise... » Durant ses premières années de cultivation, il n'arrivait pas à se détacher de sa famille. Aujourd'hui encore, il ne pouvait les oublier.
 
 Mais ce sentiment différait de celui d'autrefois. Pour devenir un immortel, il devait d'abord redevenir mortel. S'il avait renoncé à toutes ses émotions envers sa famille, il n'aurait plus aucun moyen de comprendre la mortalité.
 
-Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa culture, mais aussi parce que son cœur abritait une infime parcelle d'émotion au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
+Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa cultivation, mais aussi parce que son cœur abritait une infime parcelle d'émotion au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
 
 C'est grâce à cette émotion que Wang Lin ne rencontra aucune difficulté à devenir mortel et commença progressivement à ressentir la vie telle qu'elle est.
 

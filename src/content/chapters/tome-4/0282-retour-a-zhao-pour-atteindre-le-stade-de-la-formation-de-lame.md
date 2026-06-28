@@ -16,7 +16,7 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Neige et de la Glace. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa cultivation pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Neige et de la Glace. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
 Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme furent également tués.
 
@@ -52,7 +52,7 @@ On pourrait la décrire comme extrêmement mystérieuse et instable.
 
 C'est pourquoi les cultivateurs de Xue Yue sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
 
-Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste ; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la culture du Seigneur Démon des Six Désirs.
+Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste ; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la cultivation du Seigneur Démon des Six Désirs.
 
 Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de sang de neige par de pures veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
 

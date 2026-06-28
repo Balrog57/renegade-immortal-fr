@@ -120,7 +120,7 @@ Appeler le Vent !
 
 Un vent noir surgit, formant une tempête qui fonça sur Yao Bingyun. Simultanément, les Serpents Lunaires arrivèrent, piégeant la femme sous leurs rugissements.
 
-Yao Bingyun était d'une pâleur mortelle. En ses innées années de culture, elle n'avait jamais affronté une telle crise. Elle regarda le noyau dans sa main avec douleur, puis serra les dents et le broya sans hésiter !
+Yao Bingyun était d'une pâleur mortelle. En ses innées années de cultivation, elle n'avait jamais affronté une telle crise. Elle regarda le noyau dans sa main avec douleur, puis serra les dents et le broya sans hésiter !
 
 Au moment où le noyau bleu fut écrasé, une puissance folle explosa. Cette force, d'une rapidité inouïe, créa un vortex de glace. En se propageant, tout ce qu'elle touchait gelait. Cette énergie s'infiltra dans les fissures de la terre et, en un instant, des milliers de kilomètres furent recouverts de fines couches de glace émanant des crevasses.
 

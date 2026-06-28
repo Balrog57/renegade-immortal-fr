@@ -88,7 +88,7 @@ Le véritable corps d'essence de Wang Lin était dans un état relativement sûr
 
 Le nez du véritable corps d'essence de Wang Lin finit par se former lentement tandis qu'il continuait sa voracité !
 
-La veine principale du feu terrestre luttait désespérément, mais elle ne pouvait empêcher le véritable corps d'essence de Wang Lin de l'absorber. Cela n'avait rien à voir avec le niveau de culture ; c'était une lutte de dévoration entre deux types de feu.
+La veine principale du feu terrestre luttait désespérément, mais elle ne pouvait empêcher le véritable corps d'essence de Wang Lin de l'absorber. Cela n'avait rien à voir avec le niveau de cultivation ; c'était une lutte de dévoration entre deux types de feu.
 
 La veine principale du feu terrestre n'était manifestement pas de taille face à Wang Lin.
 

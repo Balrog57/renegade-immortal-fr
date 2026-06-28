@@ -50,7 +50,7 @@ Lorsque la silhouette de Wang Lin devint parfaitement nette, les cultivateurs vi
 
 « Nous saluons le Messager du Taureau Céleste ! Puis-je demander de quel méridien vous émanez, Messager ? Et de quelle secte ? » L'homme d'âge moyen, si froid quelques instants plus tôt, devint immédiatement poli. Les cultivateurs alentour joignirent également leurs mains avec empressement.
 
-Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, tout comme celui d'Ouyang Zhen, ils pensaient qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent du Démon Vert.
+Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de cultivation de Wang Lin n'était pas élevé, tout comme celui d'Ouyang Zhen, ils pensaient qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent du Démon Vert.
 
 « Grande Secte de l'Âme, Wang Lin. Troisième méridien du Taureau Céleste, Prairie de l'Extrême Ciel. » Wang Lin leur adressa un salut respectueux.
 

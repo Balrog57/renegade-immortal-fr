@@ -88,13 +88,13 @@ Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les m
 
 Bien que le regard de Murong Zhuo fût glacial, une étrange lueur y brillait. Sa réponse fut brève : « Aucun problème ! »
 
-Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte : « Jeune Frère Wang, bien que mon niveau de culture soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Violette ; votre Frère Aîné ne vous la volera pas et ne permettra à personne d'autre de le faire ! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
+Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte : « Jeune Frère Wang, bien que mon niveau de cultivation soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Violette ; votre Frère Aîné ne vous la volera pas et ne permettra à personne d'autre de le faire ! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
 
 Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rien d'anormal, affichant un sourire empreint de douceur.
 
 « Je vous en remercie alors », répondit Wang Lin avec un soudain sourire. Il observait Du Jian comme on observe un enfant tentant une farce ; cet homme le prenait donc réellement pour un bambin de trois ans.
 
-En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce rustre venu d'une planète à la culture déclinante ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par l'Omniscient ?
+En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce rustre venu d'une planète à la cultivation déclinante ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par l'Omniscient ?
 
 Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu personnellement. Il avait plutôt contrôlé une marionnette imprégnée d'une fraction de son Sens Divin. Cette marionnette avait été attaquée par cet arbre ancien, et la scène l'avait si terrifié qu'il n'avait plus osé revenir dans la Mer des Nuages pendant une très longue période.
 
@@ -112,11 +112,11 @@ Wang Lin fixa Du Jian, le regard toujours calme.
 
 Le visage de Du Jian se décomposa ; il recula de quelques pas en s'excusant maladroitement : « Jeune Frère Wang, j'ai mal jugé cette épée... »
 
-Un éclat de froideur traversa les yeux de Wang Lin. Il provoquait rarement autrui, mais si l'on le provoquait, il se montrait impitoyable ! Tel était le monde cruel de la culture : la faiblesse menait à la mort.
+Un éclat de froideur traversa les yeux de Wang Lin. Il provoquait rarement autrui, mais si l'on le provoquait, il se montrait impitoyable ! Tel était le monde cruel de la cultivation : la faiblesse menait à la mort.
 
 Faisant un pas en avant, Wang Lin tendit sa main droite et projeta une bourrasque de vent droit sur Du Jian. Le visage de ce dernier changea radicalement alors qu'il reculait précipitamment en criant : « Que signifie cela, Wang Lin ?! »
 
-Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver compte tenu de son niveau de culture. Même s'il avait tenté une téléportation, il n'aurait pu échapper au sort de Wang Lin, imprégné de son Dao. Bien que ce ne fût pas suffisant pour tuer Du Jian, qui possédait le trésor salvateur de l'Omniscient, cela le projeta droit vers l'arbre ancien.
+Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver compte tenu de son niveau de cultivation. Même s'il avait tenté une téléportation, il n'aurait pu échapper au sort de Wang Lin, imprégné de son Dao. Bien que ce ne fût pas suffisant pour tuer Du Jian, qui possédait le trésor salvateur de l'Omniscient, cela le projeta droit vers l'arbre ancien.
 
 À cet instant précis, un cri strident s'échappa de l'arbre. Puis, l'arbre ancien s'effondra en une multitude d'insectes de la taille d'un doigt qui se précipitèrent hors de là comme un nuage dense.
 

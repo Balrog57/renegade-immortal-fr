@@ -36,7 +36,7 @@ Le Grand Empereur Wu Feng laissa également échapper un soupir. Il prévoyait d
 
 L'Épreuve Empyréenne était plongée dans un silence total, et les Exaltés Célestes contemplaient le ciel en silence. Tout au long de la journée, ils avaient ressenti l'abîme qui les séparait de Wang Lin, lequel était passé du cinquième palais au 12e palais actuel.
 
-Ils se remémoraient leurs pensées lorsqu'il venait à peine de franchir le cinquième palais, et combien celles-ci semblaient dérisoires aujourd'hui. Avec leur niveau de culture, ils étaient dignes de commenter les prouesses d'un Ascendant, et encore moins de celui qui venait de surmonter le 12e palais !
+Ils se remémoraient leurs pensées lorsqu'il venait à peine de franchir le cinquième palais, et combien celles-ci semblaient dérisoires aujourd'hui. Avec leur niveau de cultivation, ils étaient dignes de commenter les prouesses d'un Ascendant, et encore moins de celui qui venait de surmonter le 12e palais !
 
 Désormais, ils ne pouvaient que lever les yeux vers cette silhouette céleste !
 
@@ -66,7 +66,7 @@ Wang Lin méditait silencieusement au cœur de cette brume.
 
 « Le Taureau Céleste est apparu parmi les neuf esprits du 12e palais... Je pouvais sentir que franchir le 12e palais marquait la limite de l'armure de l'âme... »
 
-« L'armure de l'âme n'est pas omnipotente. Elle peut élever mon niveau de culture et accroître ma puissance de combat, mais à mesure que ma culture progresse, son efficacité diminue progressivement. Après tout, elle ne peut que me rapprocher infiniment du Taureau Céleste... »
+« L'armure de l'âme n'est pas omnipotente. Elle peut élever mon niveau de cultivation et accroître ma puissance de combat, mais à mesure que ma cultivation progresse, son efficacité diminue progressivement. Après tout, elle ne peut que me rapprocher infiniment du Taureau Céleste... »
 
 « Cependant, en vérité, l'écart subsiste. »
 

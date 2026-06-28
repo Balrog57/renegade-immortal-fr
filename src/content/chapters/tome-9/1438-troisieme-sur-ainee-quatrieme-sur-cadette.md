@@ -38,13 +38,13 @@ Il sembla devenu sourd, ignorant totalement l'appel. Son corps se changea en un 
 
 Le monde autour de lui se distordit dès qu'il franchit le seuil. Il disparut sans laisser de trace devant l'érudit d'âge moyen, s'enfonçant dans les entrailles de la Tombe de l'Ordre Antique.
 
-Wang Lin n'était plus un enfant et ne se laissait pas guider par une simple curiosité. Il n'allait pas secourir un inconnu sans rien savoir de la situation. La femme qui ressemblait à cet érudit avait pu atteindre ce lieu par la force, ce qui signifiait que sa culture était terrifiante. Wang Lin ne souhaitait pas interagir avec une telle entité sans raison valable.
+Wang Lin n'était plus un enfant et ne se laissait pas guider par une simple curiosité. Il n'allait pas secourir un inconnu sans rien savoir de la situation. La femme qui ressemblait à cet érudit avait pu atteindre ce lieu par la force, ce qui signifiait que sa cultivation était terrifiante. Wang Lin ne souhaitait pas interagir avec une telle entité sans raison valable.
 
 Même si elle lui avait promis des bénéfices immenses en échange de son aide, il serait reparti sans hésiter. Son esprit était d'une clarté absolue à cet instant. Il ressentait une subtile différence entre l'homme qu'il était et celui qu'il était avant d'entrer dans la brume ; un décalage qui lui insufflait un sentiment de danger.
 
 Plus il songeait à ses actes passés dans le Système Stellaire Antique, plus il avait l'impression de ne plus être lui-même, comme si une force puissante s'était infiltrée en son corps pour contrôler silencieusement ses pensées... Choqué par ce pressentiment, il devint encore plus prudent et ignora totalement l'érudit.
 
-Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Antique ne fût qu'à mille pieds de là, même avec sa puissante culture et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
+Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Antique ne fût qu'à mille pieds de là, même avec sa puissante cultivation et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
 
 Observant le brouillard s'agiter avec une violence accrue, l'érudit soupira.
 
@@ -70,13 +70,13 @@ Un rire capable de déstabiliser les cœurs résonna au cœur du rugissement. Un
 
 « Je n'en parlerai plus, mais plus tu es folle, plus je t'apprécie... Être avec toi est bien plus divertissant qu'avec ce Souverain Céleste inutile... »
 
-L'instant d'après, une silhouette gigantesque émergea de la brume. Elle était si immense qu'elle semblait être une planète de culture en soi, mais son corps rétrécissait rapidement à mesure qu'elle avançait.
+L'instant d'après, une silhouette gigantesque émergea de la brume. Elle était si immense qu'elle semblait être une planète de cultivation en soi, mais son corps rétrécissait rapidement à mesure qu'elle avançait.
 
 C'était Tuo Sen !
 
 À cet instant, les yeux de Tuo Sen étaient injectés de sang, lui donnant un air de démence et une expression féroce. Il progressait avec une impétuosité tyrannique, sur le point de dépasser l'érudit.
 
-« Est-ce là la toujours froide Troisième Sœur Aînée ? Serait-il possible que même avec ta culture, tu ne puisses entrer dans la Tombe de l'Ordre Antique ? » Une voix séduisante émana lentement du front de Tuo Sen.
+« Est-ce là la toujours froide Troisième Sœur Aînée ? Serait-il possible que même avec ta cultivation, tu ne puisses entrer dans la Tombe de l'Ordre Antique ? » Une voix séduisante émana lentement du front de Tuo Sen.
 
 L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers lui :
 

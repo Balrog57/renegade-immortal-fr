@@ -22,7 +22,7 @@ Son intention meurtrière d'il y a cent ans s'était largement dissipée avec le
 
 Son visage devint livide et un grondement de tonnerre sembla résonner dans ses oreilles. Une faible flamme bleue apparut autour de lui comme si elle le consumait, tandis que la foudre se propageait à travers les flammes, engourdissant son corps.
 
-Ce qui le choqua encore plus fut l'intention de bataille frénétique qui bouillonnait en son cœur. S'il avait pu libérer cette intention, tout irait bien, mais elle était emprisonnée dans son corps. Cette intention de bataille brûlait son âme originelle, au point que la douleur le fit pousser un gémissement misérable, malgré son niveau de culture.
+Ce qui le choqua encore plus fut l'intention de bataille frénétique qui bouillonnait en son cœur. S'il avait pu libérer cette intention, tout irait bien, mais elle était emprisonnée dans son corps. Cette intention de bataille brûlait son âme originelle, au point que la douleur le fit pousser un gémissement misérable, malgré son niveau de cultivation.
 
 Ce qui le terrifia davantage fut l'intuition puissante que s'il ne sortait pas immédiatement, l'autre partie n'aurait besoin que d'une seule pensée pour le tuer !
 
@@ -46,7 +46,7 @@ Une étrange marque apparut de la main droite de Wang Lin et vola lentement vers
 
 Cependant, sous le regard glacial de Wang Lin, la sueur perla sur le front du Maître Nuage Âme et il n'osa pas bouger. Il avait la certitude que s'il osait faire un mouvement, ce qui l'attendrait serait un massacre.
 
-Il était convaincu que Wang Lin en était capable et pouvait même le tuer instantanément ! C'était une intuition qu'il avait acquise au fil d'innombrables années de culture. Il ne l'avait jamais ressentie aussi clairement qu'aujourd'hui !
+Il était convaincu que Wang Lin en était capable et pouvait même le tuer instantanément ! C'était une intuition qu'il avait acquise au fil d'innombrables années de cultivation. Il ne l'avait jamais ressentie aussi clairement qu'aujourd'hui !
 
 Il regarda impuissant la marque s'approcher et commença à lutter, avant de finalement abandonner toute résistance. Il laissa la marque s'enfoncer profondément entre ses sourcils.
 
@@ -54,7 +54,7 @@ Au moment où la marque se posa, la flamme bleue, la foudre et l'intention de ba
 
 Le Maître Nuage Âme poussa secrètement un soupir de soulagement, puis, devenant extrêmement respectueux, il murmura : « Ce vieil esclave salue le Maître. »
 
-Avec son niveau de culture, il pouvait naturellement comprendre que la marque n'avait pas pour but de tuer, mais de contrôler. Bien que l'autre partie ne l'ait pas explicitement formulé, les actions de Wang Lin révélaient son intention.
+Avec son niveau de cultivation, il pouvait naturellement comprendre que la marque n'avait pas pour but de tuer, mais de contrôler. Bien que l'autre partie ne l'ait pas explicitement formulé, les actions de Wang Lin révélaient son intention.
 
 Soit vivre comme l'esclave de Wang Lin, soit mourir !
 
@@ -72,7 +72,7 @@ Le Maître Nuage Âme n'osa pas interrompre ses pensées ; il se contenta de reg
 
 Un instant plus tard, le corps de Wang Lin trembla et il s'élança vers l'horizon. Le Maître Nuage Âme le suivit en soupirant intérieurement.
 
-Grâce au niveau de culture actuel de Wang Lin, il se déplaçait à une vitesse fulgurante et atteignit la vallée de Sima Mo. Sous la volonté de Wang Lin, cet endroit avait été épargné lorsque le feu et le tonnerre avaient ravagé le Royaume aux Sept Couleurs.
+Grâce au niveau de cultivation actuel de Wang Lin, il se déplaçait à une vitesse fulgurante et atteignit la vallée de Sima Mo. Sous la volonté de Wang Lin, cet endroit avait été épargné lorsque le feu et le tonnerre avaient ravagé le Royaume aux Sept Couleurs.
 
 D'un geste de la main droite, Wang Lin entra dans la vallée. Le Maître Nuage Âme se tint respectueusement à l'extérieur. Sans un ordre de Wang Lin, il n'oserait même pas faire un demi-pas de plus.
 

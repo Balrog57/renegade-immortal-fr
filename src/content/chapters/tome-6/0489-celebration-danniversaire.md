@@ -18,25 +18,25 @@ Dès qu'un jade se brisait, un autre s'en approchait. À cet instant, le doigt d
 
 Un morceau, deux morceaux, trois morceaux, quatre morceaux... un grand nombre de jades célestes s'étaient transformés en poussière après que toute leur énergie spirituelle céleste eut été extraite. Ce processus se poursuivit ainsi durant un certain temps.
 
-La posture de Wang Lin ne changea pas alors qu'il absorbait l'énergie spirituelle céleste, la condensait et la fusionnait avec son corps. Le temps passait lentement. Wang Lin en avait déjà oublié la progression, car il concentrait toute son attention sur sa culture et l'absorption de cette énergie.
+La posture de Wang Lin ne changea pas alors qu'il absorbait l'énergie spirituelle céleste, la condensait et la fusionnait avec son corps. Le temps passait lentement. Wang Lin en avait déjà oublié la progression, car il concentrait toute son attention sur sa cultivation et l'absorption de cette énergie.
 
 Un halo doré se forma progressivement derrière lui. Ce halo, chargé d'énergie spirituelle céleste, était empreint d'une aura tyrannique.
 
 Ce type de halo se forme lorsqu'un être remplit son corps d'énergie spirituelle céleste. Une fois fusionnée avec le corps, elle augmente la capacité de stockage de l'individu, lui permettant ainsi d'utiliser plus librement une quantité accrue d'énergie.
 
-Wang Lin ne cessa sa culture pour un seul instant. À présent, il ne restait que quelques jades célestes tournoyant autour de lui. Il projeta son sens divin et encore plus de jades jaillirent de son sac.
+Wang Lin ne cessa sa cultivation pour un seul instant. À présent, il ne restait que quelques jades célestes tournoyant autour de lui. Il projeta son sens divin et encore plus de jades jaillirent de son sac.
 
 À cet instant, les yeux de Wang Lin étaient parfaitement dissimulés ; c'était comme si des nuages tourbillonnants masquaient ses intentions. Il fixa les jades environnants et, après avoir médité un moment, commença l'absorption !
 
 Tous les jades célestes entourant Wang Lin commencèrent à se désagréger de l'intérieur vers l'extérieur. Cette décomposition s'étendit très rapidement, si bien qu'en quelques instants, les fissures atteignirent la surface. Une réserve infinie d'énergie spirituelle céleste jaillit des jades en plein effondrement et, sans exception, toute cette énergie afflua vers Wang Lin.
 
-Une fois l'énergie entrée dans son corps, les yeux de Wang Lin s'illuminèrent et il concentra toute sa volonté sur sa culture.
+Une fois l'énergie entrée dans son corps, les yeux de Wang Lin s'illuminèrent et il concentra toute sa volonté sur sa cultivation.
 
 Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébration qui ne se produisait que tous les 10 000 ans sur la planète Tian Yun : le jubilé des dix mille ans de l'Omniscient.
 
-L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités ; même l'Alliance de Culture envoyait un représentant pour assister à la cérémonie.
+L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités ; même l'Alliance de Cultivation envoyait un représentant pour assister à la cérémonie.
 
-Même pour une planète de culture de rang 7, il était très rare que quelqu'un de l'Alliance de Culture soit présent.
+Même pour une planète de cultivation de rang 7, il était très rare que quelqu'un de l'Alliance de Cultivation soit présent.
 
 Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples du Secte Céleste avaient été dépêchés pour accueillir les invités. Contrairement aux étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
 
@@ -46,11 +46,11 @@ Tous les disciples des sept divisions du Secte du Destin Céleste étaient extr�
 
 Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la division pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, son jeton pendait à son épaule et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
 
-Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même : « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître du Secte Yun Luo ; sa culture est plutôt impressionnante et sa personnalité me plaît. »
+Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même : « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître du Secte Yun Luo ; sa cultivation est plutôt impressionnante et sa personnalité me plaît. »
 
 « Malheureusement, mon septième frère ne pourra pas se faire d'amis. Septième frère, il n'y a jamais eu d'animosité entre nous, mais tu n'aurais jamais dû tenter de me disputer le titre de véritable disciple ! »
 
-« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma division pourpre ! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la division pourpre m'est acquis ! »
+« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma division pourpre ! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une cultivation en isolement en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la division pourpre m'est acquis ! »
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse et ses lèvres formèrent un léger sourire. La brume violette commença soudainement à s'agiter ; Zhao Xingsha retrouva alors son expression sereine et regarda au loin.
 
@@ -66,7 +66,7 @@ Lorsque le char s'arrêta à cent pieds de lui, une aura puissante se verrouilla
 
 Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie de son assurance car il connaissait l'identité du Démon Doré. Ce dernier était le souverain d'une des petites planètes du système. Il régnait seul et de manière très autoritaire ; si quelqu'un osait s'opposer à lui, il cherchait la vengeance quelles que soient les conséquences. C'était un excentrique qui favorisait excessivement ses propres partisans et pouvait tuer sans la moindre réflexion ; d'innombrables vies s'étaient éteintes sur un simple caprice de sa part.
 
-La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture du Démon Doré avait dépassé le stade de l'Illusion Yin et de la Forme Corporelle Yang pour atteindre le domaine légendaire.
+La cultivation de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la cultivation du Démon Doré avait dépassé le stade de l'Illusion Yin et de la Forme Corporelle Yang pour atteindre le domaine légendaire.
 
 La masse de chair assise sur le siège fronça les sourcils et s'exclama : « Pourquoi ce petit garçon reste-t-il là, figé ? Montrez-moi le chemin ! »
 

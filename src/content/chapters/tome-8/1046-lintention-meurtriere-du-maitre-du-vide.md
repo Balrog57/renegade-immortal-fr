@@ -38,7 +38,7 @@ Le Maître du Vide était lui aussi profondément stupéfait. Il s'était libér
 
 Il suivit rapidement la provenance du bruit et vit la belle femme en danger.
 
-Étant lié à la puissance à laquelle elle appartenait, il ne pouvait rester les bras croisés. Après avoir utilisé un sort pour repousser la silhouette humaine, il prit la belle femme par la main et chargea à travers les restrictions du pavillon grâce à sa puissante culture.
+Étant lié à la puissance à laquelle elle appartenait, il ne pouvait rester les bras croisés. Après avoir utilisé un sort pour repousser la silhouette humaine, il prit la belle femme par la main et chargea à travers les restrictions du pavillon grâce à sa puissante cultivation.
 
 Les restrictions jaillirent violemment au-dessus du pavillon, mais sous l'assaut du Maître du Vide, elles s'effondrèrent immédiatement. Ce dernier emporta la belle femme et fonça en avant.
 

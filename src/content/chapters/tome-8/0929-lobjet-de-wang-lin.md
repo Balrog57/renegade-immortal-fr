@@ -82,7 +82,7 @@ Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Allheaven
 
 « Je doute que charger en avant soit la seule chose que ce bois puisse faire. Après y avoir si longtemps posé le pied, j'ai senti qu'il y avait autre chose à l'intérieur... » Des centaines de pensées traversèrent son esprit. La bataille entre les deux systèmes stellaires avait infiniment élargi ses horizons.
 
-Tout cela était crucial pour lui. Après tout, sa durée de culture était bien trop courte comparée à celle de ces vieux maîtres ; il était donc moins instruit qu'eux.
+Tout cela était crucial pour lui. Après tout, sa durée de cultivation était bien trop courte comparée à celle de ces vieux maîtres ; il était donc moins instruit qu'eux.
 
 Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Nettoyage du Nirvana et du Brise-Nirvana.
 
@@ -92,7 +92,7 @@ Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir
 
 Cependant, même réunis, ils ne suffisaient pas à rivaliser avec le doigt du dieu ancien !
 
-Alors que le Serpent Moongazer chargeait, il poussa un nouveau rugissement si puissant qu'il secoua l'espace tout entier. Ceux dont la culture était insuffisante durent s'esquiver sous peine de subir de graves blessures.
+Alors que le Serpent Moongazer chargeait, il poussa un nouveau rugissement si puissant qu'il secoua l'espace tout entier. Ceux dont la cultivation était insuffisante durent s'esquiver sous peine de subir de graves blessures.
 
 Le rugissement du serpent n'était qu'un cri pour les autres, mais lorsqu'il parvint aux oreilles de Wang Lin, il prit une signification totalement différente. L'expression de Wang Lin changea et ses mains s'activèrent sans attendre pour poser d'innombrables restrictions devant lui. Le fourneau divin apparut autour de lui alors qu'il se retirait rapidement.
 
@@ -104,7 +104,7 @@ Il était impossible d'expliquer l'ampleur de l'explosion. Tout dans un rayon de
 
 D'innombrables cultivateurs paniquèrent et s'enfuirent dans la terreur, maudissant leur propre lenteur.
 
-Le Serpent Moongazer fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon au Visage Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de culture.
+Le Serpent Moongazer fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon au Visage Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de cultivation.
 
 Son corps était gravement endommagé et il était sur le point de s'effondrer.
 

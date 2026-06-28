@@ -8,7 +8,7 @@ slug: yun-fei
 ---
 Dans la Mer des Diables, parmi les étoiles brisées et chaotiques.
 
-C'était un anneau formé de nombreuses planètes dévastées et gigantesques. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter de nombreux avatars possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
+C'était un anneau formé de nombreuses planètes dévastées et gigantesques. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter de nombreux avatars possédant le même niveau de cultivation que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
 
 Deux épées de lumière fonçaient vers ce lieu, l'une suivant l'autre. L'épée de tête était nettement moins éclatante. À l'intérieur de la lumière se trouvait une jeune femme aux lèvres serrées et au visage pâle. Elle portait des vêtements rouge et vert ; sa taille était fine et elle était d'une grande beauté.
 
@@ -48,7 +48,7 @@ Qian Kun ne répondit rien, mais une lueur de joie apparut dans ses yeux. Il sav
 
 Par la suite, la femme qui détenait ce jade contenant les recettes de pilules les plus précieuses du Secte Qi Huang fut capturée par le Palais Enchanté et contrainte d'y servir comme concubine. Aujourd'hui, après de nombreuses années, elle avait enfin trouvé l'occasion de s'enfuir avec le jade.
 
-Qian Kun était au stade intermédiaire de la Formation du Noyau. Bien que la voie vers le stade avancé fût étroite, sa technique de culture était très limitée. Il craignait de ne jamais pouvoir franchir ce palier.
+Qian Kun était au stade intermédiaire de la Formation du Noyau. Bien que la voie vers le stade avancé fût étroite, sa technique de cultivation était très limitée. Il craignait de ne jamais pouvoir franchir ce palier.
 
 Mais s'il pouvait mettre la main sur ce jade et fabriquer des pilules grâce aux recettes qu'il contenait, il serait capable d'atteindre le stade avancé de la Formation du Noyau.
 
@@ -108,7 +108,7 @@ Il resta en lévitation dans les airs. Ses yeux exprimèrent un certain regret a
 
 Qian Kun fut saisi d'horreur dès l'instant où il vit le jeune homme sortir de la faille. Parce que l'anneau les séparait, il ne pouvait pas scanner le jeune homme avec son Sens Divin. Cependant, même si l'anneau n'avait pas existé, Qian Kun n'aurait jamais osé tenter cela.
 
-À ses yeux, si cet individu pouvait sortir d'une fissure aussi vaste, son niveau de culture devait atteindre des sommets inimaginables. Le jeune homme devait être au moins au stade de l'Âme Naissante, voire au stade mythique de la Formation de l'Esprit.
+À ses yeux, si cet individu pouvait sortir d'une fissure aussi vaste, son niveau de cultivation devait atteindre des sommets inimaginables. Le jeune homme devait être au moins au stade de l'Âme Naissante, voire au stade mythique de la Formation de l'Esprit.
 
 Dès lors, comment aurait-il osé l'offenser ?
 

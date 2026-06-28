@@ -56,7 +56,7 @@ Le ciel était un cercle. Même en s'en échappant, d'innombrables cercles invis
 
 Le Daoïste Esprit Dispersé finit par calmer l'agitation de son cœur. Il se tourna vers Wang Lin et joignit les mains avec une sincérité profonde.
 
-« Je n'oublierai jamais l'aide que vous m'avez apportée, cher compagnon de culture. Mon Clan Céleste tout entier s'en souviendra pour des générations. Quel que soit votre souhait, rien de ce que mon Clan Céleste n'oserait refuser ! » Après ses paroles, les quelques millions d'âmes sauvées fixèrent Wang Lin avec exaltation. Leurs yeux brillaient de gratitude et tous joignirent les mains en signe de respect.
+« Je n'oublierai jamais l'aide que vous m'avez apportée, cher compagnon de cultivation. Mon Clan Céleste tout entier s'en souviendra pour des générations. Quel que soit votre souhait, rien de ce que mon Clan Céleste n'oserait refuser ! » Après ses paroles, les quelques millions d'âmes sauvées fixèrent Wang Lin avec exaltation. Leurs yeux brillaient de gratitude et tous joignirent les mains en signe de respect.
 
 « Mon Clan Céleste ne craint aucune requête ! »
 
@@ -100,4 +100,4 @@ Cependant, il existait une rumeur encore plus rare, bien plus ancienne que les F
 
 Atteindre le troisième stade de cette manière ferait de quiconque une véritable légende !
 
-Et le niveau de culture de Wang Lin se rapprochait de plus en plus de cette légende !
+Et le niveau de cultivation de Wang Lin se rapprochait de plus en plus de cette légende !

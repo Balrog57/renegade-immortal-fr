@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 602 - Crazy Battle Intent
 slug: une-folle-intention-de-bataille
 ---
-Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit la main vers la terre, et grâce à sa culture au stade précoce de l'Ascendant, il fit trembler le sol ! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
+Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit la main vers la terre, et grâce à sa cultivation au stade précoce de l'Ascendant, il fit trembler le sol ! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
 
 Près de 100 000 Fruits d'Ascension Céleste furent ainsi stockés dans son sac de rangement. À cet instant, Wang Lin ne pouvait plus réprimer l'intention de bataille et de meurtre qui bouillonnait dans son cœur. Il laissa échapper un rugissement et s'apprêta à partir.
 
@@ -96,7 +96,7 @@ Le paysage ressemblait à l'enfer ! C'était une vision aussi étrange qu'extrê
 
 Leurs morts générèrent des filaments de gaz blanc qui rattrapèrent Wang Lin et pénétrèrent dans son corps. Ces essences aidèrent rapidement à réparer son corps meurtri et son âme originelle.
 
-Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées du Secte de la Grande Lou s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre ses frères d'armes !
+Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées du Secte de la Grande Lou s'étaient dispersées, et il en faisait partie. Sa cultivation atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre ses frères d'armes !
 
 Soudain, son expression changea lorsqu'il vit une météorite enflammée fendre le ciel. Ses yeux se plissèrent pour l'observer attentivement, puis son visage se décomposa.
 

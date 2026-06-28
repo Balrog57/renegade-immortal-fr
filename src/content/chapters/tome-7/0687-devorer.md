@@ -16,7 +16,7 @@ Tout dans ce monde, jusqu'au moindre brin d'herbe, possède la vie, et cela sign
 
 Par exemple, lorsqu'un mortel contemple une haute montagne, il ressent un sentiment de choc et de pression. Cette pression émane de l'âme de la montagne. Les yeux du mortel ne voient que la masse rocheuse, tandis que la pression de son âme ne peut être que perçue.
 
-Si les montagnes et les rivières possèdent des âmes, une planète de culture regorgeant d'énergie spirituelle en possède, bien évidemment, également.
+Si les montagnes et les rivières possèdent des âmes, une planète de cultivation regorgeant d'énergie spirituelle en possède, bien évidemment, également.
 
 Cela différait grandement de l'instant où l'énergie spirituelle avait été soustraite. Cette fois, la planète ne trembla pas le moins du monde ; au contraire, une aura très ancienne apparut et se propagea lentement, comme si la planète s'était éveillée.
 
@@ -60,13 +60,13 @@ Que ce soit la figure céleste ou le démon dispersé, les deux possédaient la 
 
 « Ceci... est la puissance du second pas... Comparé à Greed, à l'ancêtre de la famille Huan ou à Qian Kuizi, qui sont tous au second pas, il est clair qu'ils ne font que commencer à l'atteindre. »
 
-« Le second pas de la culture est trop terrifiant ! » L'esprit de Wang Lin fut ébranlé.
+« Le second pas de la cultivation est trop terrifiant ! » L'esprit de Wang Lin fut ébranlé.
 
 Durant ce combat, le démon dispersé lui avait apporté des bénéfices inimaginables en prenant le contrôle de son corps. Le démon n'avait utilisé qu'un seul sort, mais celui-ci avait été activé à travers l'organisme de Wang Lin. Tout ce qui était invisible de l'extérieur était clairement exposé devant ses yeux : la circulation de l'énergie spirituelle céleste dans ses veines et l'aura de commandement lors de l'extraction de l'âme.
 
 Tout cela avait élargi la brèche dans la porte qui bloquait son ascension vers le second pas. Wang Lin n'avait jamais désiré atteindre ce stade autant qu'à cet instant !
 
-« Même mon garde céleste ne pourrait supporter un seul coup de ces sorts. Le second pas est d'une puissance colossale ! Chaque bataille peut facilement anéantir une planète de culture. Cela ressemble étrangement à la scène que j'ai vue lors de la réception de l'héritage de l'Ancien Dieu. »
+« Même mon garde céleste ne pourrait supporter un seul coup de ces sorts. Le second pas est d'une puissance colossale ! Chaque bataille peut facilement anéantir une planète de cultivation. Cela ressemble étrangement à la scène que j'ai vue lors de la réception de l'héritage de l'Ancien Dieu. »
 
 Non seulement lui, mais tous les membres de la famille Huan semblaient avoir reçu une illumination après ce combat. C'était comme si un nouveau monde s'était ouvert devant eux. Cependant, comparés à Wang Lin, leurs gains étaient insignifiants.
 
@@ -78,7 +78,7 @@ Le démon dispersé, via le corps de Wang Lin, tourna son regard vers l'écran d
 
 Des fissures apparurent sur l'écran, mais celui-ci ne céda pas. Sous la protection de la lumière, le visage de l'ancêtre de la famille Huan était d'une pâleur mortelle.
 
-Huan Fengshen déclara d'un ton grave : « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
+Huan Fengshen déclara d'un ton grave : « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la cultivation de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
 
 L'ancêtre de la famille Huan jeta un regard vers le non loin absent Huan Fengshen, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement : « Liu Mei... »
 
@@ -100,7 +100,7 @@ Ces deux sorts étaient en réalité issus d'un seul domaine originel : le Dao D
 
 Après la perte de leur protection lors de l'effondrement du Royaume Céleste, la famille Huan n'avait pu maintenir sa position que grâce au Dao Démoniaque de l'Identité Absolue. Mais leur gloire passée s'était éteinte.
 
-C'est le domaine des Mille Illusions de Liu Mei qui avait tenté Huan Wuqing. Afin de la dévorer plus aisément par la suite, il avait délibérément altéré sa propre culture pour modifier sa lignée. Il avait également accéléré sa progression ; bien que cela ne l'empêchât pas d'augmenter son niveau, cela la condamnait à n'atteindre que le stade Yin et Yang. Ainsi, elle resterait sous son contrôle total, sans poser de problème lorsqu'il la dévorerait.
+C'est le domaine des Mille Illusions de Liu Mei qui avait tenté Huan Wuqing. Afin de la dévorer plus aisément par la suite, il avait délibérément altéré sa propre cultivation pour modifier sa lignée. Il avait également accéléré sa progression ; bien que cela ne l'empêchât pas d'augmenter son niveau, cela la condamnait à n'atteindre que le stade Yin et Yang. Ainsi, elle resterait sous son contrôle total, sans poser de problème lorsqu'il la dévorerait.
 
 Tout était calculé : il lui suffisait d'attendre que Liu Mei atteigne le stade Yin et Yang. Une fois que son domaine aurait subi sa transformation pour devenir le véritable Dao Démoniaque des Mille Illusions, il la dévorerait pour cultiver le vrai domaine de la famille Huan : le Dao Démoniaque de l'Identité Absolue.
 
@@ -110,8 +110,8 @@ Fort de cette pensée, Huan Wuqing fixait Liu Mei d'un regard étrange.
 
 Les yeux de Liu Mei restaient calmes. Forte de son intelligence, elle avait déjà perçu des indices lorsqu'ils se trouvaient dans le Système Stellaire de l'Alliance. Elle savait que personne ne faisait preuve de bonté sans une raison, à moins qu'il ne s'agisse de ses proches. S'il y avait de la bienveillance, elle cachait forcément un dessein caché.
 
-Toutefois, la puissance de Huan Wuqing était irrésistible. Elle n'avait pu que feindre l'ignorance, se laisser mener dans le Système Stellaire d'Allheaven et accepter le rituel de lignée. Dès l'instant où Huan Wuqing avait accepté de compromettre sa propre culture pour l'aider à atteindre le sommet du stade tardif de l'Ascendant, elle eut la certitude qu'il cachait un mobile profond derrière ses actes.
+Toutefois, la puissance de Huan Wuqing était irrésistible. Elle n'avait pu que feindre l'ignorance, se laisser mener dans le Système Stellaire d'Allheaven et accepter le rituel de lignée. Dès l'instant où Huan Wuqing avait accepté de compromettre sa propre cultivation pour l'aider à atteindre le sommet du stade tardif de l'Ascendant, elle eut la certitude qu'il cachait un mobile profond derrière ses actes.
 
-Elle était impuissante. Avec son statut passé de disciple du Suzaku, comment ne pas savoir les dommages causés par une augmentation forcée du niveau de culture ?
+Elle était impuissante. Avec son statut passé de disciple du Suzaku, comment ne pas savoir les dommages causés par une augmentation forcée du niveau de cultivation ?
 
 Liu Mei dit doucement : « Vous devez me promettre deux choses... »

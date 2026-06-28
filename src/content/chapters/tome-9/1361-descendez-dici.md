@@ -44,7 +44,7 @@ L'expression de Wang Lin restait indifférente et il ne leur prêtait plus aucun
 
 « L'esprit de ces gens est confus. Daoïste Esprit Dispersé, votre force devrait suffire à gérer la situation ! » Wang Lin se tenait au sommet du dragon de tonnerre alors que celui-ci volait vers la terre sainte du Clan du Tonnerre Éparpillé.
 
-La terre sainte se situait au centre des seize planètes de culture. C'était la deuxième fois que Wang Lin venait ici. À son arrivée, ses yeux s'illuminèrent et il contempla la terre sainte d'un regard solennel. Assis sur le dragon de tonnerre, ses mains formèrent un sceau. Son corps fusionna avec celui du dragon, ne laissant aucun moyen de les distinguer !
+La terre sainte se situait au centre des seize planètes de cultivation. C'était la deuxième fois que Wang Lin venait ici. À son arrivée, ses yeux s'illuminèrent et il contempla la terre sainte d'un regard solennel. Assis sur le dragon de tonnerre, ses mains formèrent un sceau. Son corps fusionna avec celui du dragon, ne laissant aucun moyen de les distinguer !
 
 Alors qu'une intention meurtrière brillait dans ses yeux, le dragon de tonnerre laissa échapper un rugissement qui déchira les cieux !
 

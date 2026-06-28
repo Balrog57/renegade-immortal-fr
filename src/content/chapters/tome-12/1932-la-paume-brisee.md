@@ -16,7 +16,7 @@ Du sang s'écoula de l'endroit où la Lame Yin était connectée au bras droit d
 
 Wang Lin avait déployé toute sa puissance avec cette lame. La Lame Yin, dans son bras droit, semblait sur le point de se briser sous la force du choc de recul.
 
-« Tu veux me sceller ? » Wang Lin respirait lourdement. Son niveau de culture était si élevé qu'il pouvait encore respirer normalement même sous l'eau. À chaque expiration, des bulles remontaient, mais aucune eau ne pénétrait en lui ; il inhalait plutôt l'air respirable piégé dans l'eau.
+« Tu veux me sceller ? » Wang Lin respirait lourdement. Son niveau de cultivation était si élevé qu'il pouvait encore respirer normalement même sous l'eau. À chaque expiration, des bulles remontaient, mais aucune eau ne pénétrait en lui ; il inhalait plutôt l'air respirable piégé dans l'eau.
 
 Wang Lin observa les couches de sceaux sur l'Arbre de la Mer des Montagnes. Le sceau de l'arbre n'avait pas été brisé par la lame. Des ondulations résonnèrent et il reprit son état normal.
 
@@ -56,7 +56,7 @@ Bien que l'Arbre de la Mer des Montagnes puisse condenser l'essence du bois, cel
 
 Cependant, que ce soit il y a trois ans ou aujourd'hui, Wang Lin était resté tout aussi indifférent. Cela agaçait la belle Exalt Céleste Hai Zi, qui avait donc délibérément décidé de lui rendre la tâche difficile.
 
-Dotée d'une culture puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer des Montagnes sans que personne n'ose troubler sa paix.
+Dotée d'une cultivation puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer des Montagnes sans que personne n'ose troubler sa paix.
 
 Pourtant, elle n'aurait jamais imaginé être ainsi retenue pendant plus de dix respirations !
 

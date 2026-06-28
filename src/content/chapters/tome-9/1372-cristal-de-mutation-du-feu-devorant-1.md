@@ -28,7 +28,7 @@ Même Zhong Big Red fut secoué. Bien qu'il eût déjà vu la puissance de Wang 
 
 L'expression de Wang Lin n'avait pas changé, malgré le fait qu'il soit traqué et caché dans les Terres Déchues. Si cela avait été n'importe qui d'autre, il aurait cherché à rester discret et à éviter toute confrontation inutile.
 
-Cependant, la culture de Wang Lin était capable de faire trembler les cieux, et il avait traversé trop de périls dans sa vie. Il avait marché trop souvent sur le fil du rasoir entre la vie et la mort. Qu'importait s'il était découvert par ses poursuivants ? Même si cela attirait des ennemis puissants, il ne resterait pas sans réagir face à la blessure de son serviteur !
+Cependant, la cultivation de Wang Lin était capable de faire trembler les cieux, et il avait traversé trop de périls dans sa vie. Il avait marché trop souvent sur le fil du rasoir entre la vie et la mort. Qu'importait s'il était découvert par ses poursuivants ? Même si cela attirait des ennemis puissants, il ne resterait pas sans réagir face à la blessure de son serviteur !
 
 Comme il l'avait affirmé plus tôt, même si Zhong Big Red pouvait endurer l'affront, lui ne le pouvait pas !
 

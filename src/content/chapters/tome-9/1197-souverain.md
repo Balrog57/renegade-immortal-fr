@@ -68,9 +68,9 @@ Ces deux individus étaient des résidents du monde extérieur ! Si la Perle de 
 
 « À l'époque où le vieil homme a vu la Perle de Défi Céleste, il m'a appelé le Souverain du Royaume Scellé… » Wang Lin ouvrit les yeux et poussa un long soupir. Son esprit était comme une mer déchaînée après avoir découvert ces révélations. Il mit longtemps à retrouver son calme.
 
-« Ce Monde aux Sept Couleurs est lié au Tout-Voyant ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Frère Ancien Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en culture fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie ! »
+« Ce Monde aux Sept Couleurs est lié au Tout-Voyant ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Frère Ancien Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en cultivation fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie ! »
 
-« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Frère Ancien Qing Shui se soit rendu à l'Alliance de Culture, il était redevenu fou… Quel secret se cache derrière tout cela ? Cela doit être lié à ce Souverain ! »
+« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Frère Ancien Qing Shui se soit rendu à l'Alliance de Cultivation, il était redevenu fou… Quel secret se cache derrière tout cela ? Cela doit être lié à ce Souverain ! »
 
 « Tout-Voyant, Qing Shui, Sima Mo, Souverain… » Wang Lin médita silencieusement.
 

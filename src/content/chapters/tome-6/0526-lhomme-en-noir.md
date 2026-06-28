@@ -14,7 +14,7 @@ La force démoniaque que le cristal avait laissée dans son corps lui procurait 
 
 Les yeux de Wang Lin se plissèrent et les flammes démoniaques qui les habitaient disparurent ; l'aura démoniaque qui l'entourait s'évanouit également, comme si rien d'anormal ne s'était produit.
 
-« Cette énergie spirituelle céleste imprégnée d'énergie démoniaque est trop étrange. Après avoir absorbé cette puissance, elle a formé son propre domaine. Je sens faiblement que cette aura pourrait être combinée à l'énergie spirituelle céleste pour accroître la culture de l'individu. Cependant, pour l'instant, cette énergie démoniaque est trop faible et impossible à tester. » Wang Lin réfléchit un instant avant de toucher son sac de rangement. Plus d'une douzaine de flacons s'envolèrent pour atterrir aux pieds d'Ouyang Hua.
+« Cette énergie spirituelle céleste imprégnée d'énergie démoniaque est trop étrange. Après avoir absorbé cette puissance, elle a formé son propre domaine. Je sens faiblement que cette aura pourrait être combinée à l'énergie spirituelle céleste pour accroître la cultivation de l'individu. Cependant, pour l'instant, cette énergie démoniaque est trop faible et impossible à tester. » Wang Lin réfléchit un instant avant de toucher son sac de rangement. Plus d'une douzaine de flacons s'envolèrent pour atterrir aux pieds d'Ouyang Hua.
 
 Ouyang Hua trembla, puis vérifia chaque flacon avant de les ranger. Il était transporté par l'excitation.
 
@@ -32,7 +32,7 @@ L'attention de Wang Lin était entièrement focalisée sur son dantian. Il resse
 
 « Cette énergie démoniaque doit avoir d'autres usages, sans quoi elle n'aurait pu provoquer autant de massacres au fil des âges.
 
-« Je crains que des secrets encore inconnus ne soient cachés en son sein. Ce n'est qu'une fois ces mystères résolus que je pourrai décider de ma voie future. Cinq cents ans, ce n'est ni long, ni court ; toutefois, si l'absorption de plus de cristaux d'esprit démoniaques peut aider à accroître ma culture, alors autant me laisser emporter et déclencher une véritable orgie meurtrière, comme je le faisais dans la Mer des Démons ! »
+« Je crains que des secrets encore inconnus ne soient cachés en son sein. Ce n'est qu'une fois ces mystères résolus que je pourrai décider de ma voie future. Cinq cents ans, ce n'est ni long, ni court ; toutefois, si l'absorption de plus de cristaux d'esprit démoniaques peut aider à accroître ma cultivation, alors autant me laisser emporter et déclencher une véritable orgie meurtrière, comme je le faisais dans la Mer des Démons ! »
 
 Un éclair de lumière froide traversa les yeux de Wang Lin, et il se lécha les lèvres.
 
@@ -78,7 +78,7 @@ Simultanément, cet homme absorbait frénétiquement une quantité colossale d'�
 
 Au moment où le sens divin de Wang Lin balaya la zone, l'homme leva lentement la tête vers lui et esquissa un sourire glacial.
 
-« Ta culture n'est pas médiocre pour avoir réussi à détecter ma présence. Je comptais pourtant te surprendre ! » L'homme en noir pointa son épée et déclara : « Me rencontrer est ton malheur. Même si tu me livres ton cristal d'esprit démoniaque, cela ne servira à rien. Tu es ma proie ! »
+« Ta cultivation n'est pas médiocre pour avoir réussi à détecter ma présence. Je comptais pourtant te surprendre ! » L'homme en noir pointa son épée et déclara : « Me rencontrer est ton malheur. Même si tu me livres ton cristal d'esprit démoniaque, cela ne servira à rien. Tu es ma proie ! »
 
 L'âme originelle de Wang Lin le regarda froidement, puis repartit sans un mot. L'homme en noir ne chercha pas à l'arrêter, affichant seulement un sourire de mépris.
 

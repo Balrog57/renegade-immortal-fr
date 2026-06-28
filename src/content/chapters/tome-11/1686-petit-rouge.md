@@ -128,7 +128,7 @@ Non seulement le dragon sentit ses écailles se hérisser sous le regard de Wang
 
 « C'est certain ! » Le cœur de Wang Lin continuait de trembler. Il cessa de poser des questions et rangea le dragon dans son espace de stockage. Il ne pouvait plus rien demander de plus.
 
-Le temps pressait ; il devait garder les idées claires pour pouvoir mobiliser toute sa culture. Il se devait de rester calme !
+Le temps pressait ; il devait garder les idées claires pour pouvoir mobiliser toute sa cultivation. Il se devait de rester calme !
 
 S'il obtenait davantage d'informations, il lui serait impossible de garder son sang-froid. Wang Lin s'assit donc, les yeux clos, tentant de calmer le tumulte qui agitait son cœur.
 

@@ -16,7 +16,7 @@ De plus, il possédait une autre identité qui captiva l'attention générale.
 
 Cet homme était le descendant du précédent Suzaku.
 
-Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Déchus. Finalement, il conclut un accord avec le jeune maître du clan ennemi : le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Déchus suspende son offensive.
+Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Déchus. Finalement, il conclut un accord avec le jeune maître du clan ennemi : le pays de Suzaku céda tous les pays de cultivation de rang 3 afin que le Clan des Immortels Déchus suspende son offensive.
 
 Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave : « Le Clan des Immortels Déchus a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sortez le sous-étendard et chargeons ! »
 
@@ -126,7 +126,7 @@ Cette force suffisait à combattre un Ascendant du stade précoce, mais ne pouva
 
 Du Tian fixa l'homme d'âge moyen et lâcha froidement : « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte de l'Affinement des Âmes ne prendra pas part à la guerre entre vous et le pays de Suzaku ! »
 
-Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de culture, si Du Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
+Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de cultivation, si Du Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
 
 Il fixa Du Tian, plongé dans ses pensées. Après un instant, il reprit : « Une telle puissance ne suffit pas à me menacer. L'Étendard des Mille Milliards d'Âmes n'est-il donc capable que de cela ? »
 

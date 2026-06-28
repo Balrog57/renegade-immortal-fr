@@ -18,9 +18,9 @@ Wang Lin bondit et resta en lévitation à quelques centimètres du pont, dériv
 
 « Ce n'est rien, il ne pourra pas forcer l'entrée du Navire Démon des Âmes avant plusieurs jours ! » Fan Shanmeng laissa échapper un ricanement glacial en détournant le regard. Elle se tourna de nouveau vers Wang Lin pour reprendre sa conversation.
 
-« L'autel dont vous parlez est un objet que ma petite sœur a obtenu par accident. Il contient le pouvoir de l'Ancien, mais sa culture est insuffisante pour le briser, et il n'a nul besoin de le faire. En revanche, c'est différent pour vous.
+« L'autel dont vous parlez est un objet que ma petite sœur a obtenu par accident. Il contient le pouvoir de l'Ancien, mais sa cultivation est insuffisante pour le briser, et il n'a nul besoin de le faire. En revanche, c'est différent pour vous.
 
-« Si vous parvenez à briser la protection de l'autel et à obtenir son héritage, votre niveau de culture augmentera considérablement. Cet autel se trouve dans la partie la plus profonde du Navire Démon des Âmes. Voulez-vous y aller maintenant ? Sachez toutefois que vous n'aurez que trois jours. Durant ce laps de temps, je pourrai contrôler le Navire Démon des Âmes pour échapper au Daoïste aux Sept Couleurs, mais cela ne durera pas plus longtemps. »
+« Si vous parvenez à briser la protection de l'autel et à obtenir son héritage, votre niveau de cultivation augmentera considérablement. Cet autel se trouve dans la partie la plus profonde du Navire Démon des Âmes. Voulez-vous y aller maintenant ? Sachez toutefois que vous n'aurez que trois jours. Durant ce laps de temps, je pourrai contrôler le Navire Démon des Âmes pour échapper au Daoïste aux Sept Couleurs, mais cela ne durera pas plus longtemps. »
 
 « Trois jours... Ce n'est pas suffisant. » Wang Lin fronça les sourcils. À cet instant, le navire trembla de nouveau. Il semblait que le Daoïste aux Sept Couleurs avait commencé à lancer des sorts encore plus puissants, et le vaisseau paraissait sur le point de se désintégrer.
 
@@ -30,7 +30,7 @@ Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent : « Il n
 
 « Ce Navire Démon des Âmes est un trésor de mon Grand Secte des Âmes. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
 
-« Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
+« Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de cultivation progressera sûrement. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
 
 « Ce n'est qu'un simple cultivateur insecte du monde des grottes, et il prétend vouloir étudier un trésor de mon Grand Secte des Âmes ? C'est ridicule ! Il se surestime totalement ! »
 

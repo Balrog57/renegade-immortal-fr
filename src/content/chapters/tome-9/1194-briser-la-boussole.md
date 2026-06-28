@@ -42,7 +42,7 @@ Une montagne faite de foudre !
 
 Wang Lin se trouvait au sommet de cette cime ! La montagne de tonnerre grandit jusqu'à se condenser autour du corps de Wang Lin, comme s'il l'avait totalement absorbée.
 
-Porté par la puissance du tonnerre et du feu, Wang Lin était tel un météore enflammé. Il brandissait son trident en chargeant, traçant son propre chemin de culture défiant les cieux !
+Porté par la puissance du tonnerre et du feu, Wang Lin était tel un météore enflammé. Il brandissait son trident en chargeant, traçant son propre chemin de cultivation défiant les cieux !
 
 Sa vitesse devint de plus en plus fulgurante. Dès que les innombrables runes apparurent autour de la boussole, il fut sur elle. Le bruit de sa percée dans le ciel s'intensifia jusqu'à devenir un rugissement capable d'ébranler la terre.
 

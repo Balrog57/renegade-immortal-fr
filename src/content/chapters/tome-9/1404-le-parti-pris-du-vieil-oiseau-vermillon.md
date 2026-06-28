@@ -30,7 +30,7 @@ Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Dao M
 
 Le visage de Maître Simo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Tombées. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui ; ce vieux fou n'était pas facile à gérer.
 
-L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement : « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
+L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement : « La cultivation du Senior est transcendante. Le junior... le junior n'est pas de taille. »
 
 « Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior ? Tu mérites une correction ! » Peu importe la façon dont l'Oiseau Vermillon regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
 
@@ -44,7 +44,7 @@ Après ces trois éclats, le corps de Maître Simo trembla violemment et il crac
 
 Maître Simo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Luo s'avança et posa sa main sur son dos. Elle utilisa un sort secret pour tenter d'améliorer l'aspect de Maître Simo, mais celui-ci restait d'une pâleur mortelle.
 
-« Le fort opprimant le faible ? Parbleu, tu sais même ce que cela signifie ? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles ? Et alors, si c'est le cas ?! » L'Oiseau Vermillon cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il possédait en réalité un tempérament explosif dès qu'il était célèbre. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
+« Le fort opprimant le faible ? Parbleu, tu sais même ce que cela signifie ? Après avoir utilisé ta cultivation de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles ? Et alors, si c'est le cas ?! » L'Oiseau Vermillon cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il possédait en réalité un tempérament explosif dès qu'il était célèbre. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
 
 Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Simo et lui asséna une gifle directe.
 
@@ -70,9 +70,9 @@ Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sa
 
 « Humph, tu oses insulter ce vieil homme ?! » Une lueur meurtrière traversa les yeux de l'Oiseau Vermillon. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles ; il lui aurait instantanément pris la vie !
 
-L'Oiseau Vermillon osait défier les dragons et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si n'avait été l'Oiseau Vermillon, quiconque aurait montré une certaine hésitation, car le Conseil Souverain soutenait Maître Simo.
+L'Oiseau Vermillon osait défier les dragons et possédait un niveau de cultivation terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si n'avait été l'Oiseau Vermillon, quiconque aurait montré une certaine hésitation, car le Conseil Souverain soutenait Maître Simo.
 
-Cependant, l'Oiseau Vermillon n'en avait cure. Il n'avait qu'une seule pensée : personne ne pouvait provoquer le Clan de l'Oiseau Vermillon ! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
+Cependant, l'Oiseau Vermillon n'en avait cure. Il n'avait qu'une seule pensée : personne ne pouvait provoquer le Clan de l'Oiseau Vermillon ! Même si ses adversaires possédaient une cultivation supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
 
 Le parti pris du Clan de l'Oiseau Vermillon se transmettait de génération en génération.
 
@@ -90,11 +90,11 @@ Après avoir giflé Maître Simo à plusieurs reprises, l'Oiseau Vermillon déto
 
 « Petit compagnon, tu connais Dao Maître Blue Dream, je ne te le présenterai donc pas. Tu vois ce jeune homme qui mange une pêche ? Ne le prends pas pour un enfant, c'est en réalité un vieux monstre. Tu as peut-être déjà entendu parler de lui : il est l'un des cinq maîtres, Dao Maître Miao Yin ! »
 
-L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait déjà entendu le nom de Dao Maître Miao Yin. Il observa le jeune homme, mais ne décela aucune trace de culture ; Wang Lin joignit alors les mains en signe de salut.
+L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait déjà entendu le nom de Dao Maître Miao Yin. Il observa le jeune homme, mais ne décela aucune trace de cultivation ; Wang Lin joignit alors les mains en signe de salut.
 
 Le bel homme rit et hocha la tête vers Wang Lin.
 
-« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Tai Huang. Sa culture du poison lui a valu une grande renommée ! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
+« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa cultivation n'est pas dérisoire. C'est le soi-disant Très Honorable Tai Huang. Sa cultivation du poison lui a valu une grande renommée ! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
 
 Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid. Ses lèvres ne bougèrent pas, mais une voix émana de son corps :
 

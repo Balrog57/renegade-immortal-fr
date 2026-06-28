@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1623 - Heaven Master Void God
 slug: le-maitre-celeste-dieu-du-vide
 ---
-« Mon essence est le karma. Ma paume est la cause karmique, et mon poing fermé est l'effet karmique... Puisqu'il n'a pas été facile pour vous d'atteindre votre niveau de culture, je ne vous tuerai pas aujourd'hui. Je vais saisir votre essence et la sceller pendant mille ans ; maintenant, quittez le champ de bataille ! » Les yeux de Wang Lin semblaient contenir les cieux et la terre. Une aura puissante jaillit de son corps et percuta le regard du jeune homme aux robes vertes.
+« Mon essence est le karma. Ma paume est la cause karmique, et mon poing fermé est l'effet karmique... Puisqu'il n'a pas été facile pour vous d'atteindre votre niveau de cultivation, je ne vous tuerai pas aujourd'hui. Je vais saisir votre essence et la sceller pendant mille ans ; maintenant, quittez le champ de bataille ! » Les yeux de Wang Lin semblaient contenir les cieux et la terre. Une aura puissante jaillit de son corps et percuta le regard du jeune homme aux robes vertes.
 
 Le jeune homme trembla et son esprit fut assailli de grondements. Il cracha de nouveau du sang, et d'un revers de manche, Wang Lin le força à reculer de plus de 10 000 pieds. Ses yeux étaient ternis, empreints d'une terreur monstrueuse.
 
@@ -18,9 +18,9 @@ Terrorisé, le jeune homme aux robes vertes s'enfuit frénétiquement, du sang c
 
 Il n'avait pas perdu toute son essence, mais Wang Lin en avait extrait la majeure partie, ce qui l'effrayait au plus haut point. Il n'avait jamais entendu parler d'un tel sort, mais il savait vaguement que le sort « Le Souverain pêchant la lune dans le puits » possédait un pouvoir similaire.
 
-Son cœur tremblait de réticence alors qu'il battait en retraite. Il songeait que s'il avait maintenu sa culture à son apogée, il n'aurait pas été si facile pour Wang Lin d'extraire ses essences.
+Son cœur tremblait de réticence alors qu'il battait en retraite. Il songeait que s'il avait maintenu sa cultivation à son apogée, il n'aurait pas été si facile pour Wang Lin d'extraire ses essences.
 
-« Ce vieillard possède la culture du Vide Arcane, ce vieillard n'acceptera pas cela !! » rugit-il intérieurement, sans toutefois rien laisser paraître tandis qu'il s'échappait rapidement.
+« Ce vieillard possède la cultivation du Vide Arcane, ce vieillard n'acceptera pas cela !! » rugit-il intérieurement, sans toutefois rien laisser paraître tandis qu'il s'échappait rapidement.
 
 Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, puis il se tourna vers le Maître Céleste Dieu du Vide, qui était ralenti par le sort d'Arrêt et débordant d'intentions meurtrières.
 
@@ -68,7 +68,7 @@ Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retro
 
 L'index droit de Wang Lin sembla se muer en un éclair éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième pas.
 
-Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser !
+Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une cultivation extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser !
 
 D'une seule pression, le corps du Maître Céleste Dieu du Vide trembla. Une lueur argentée jaillit entre ses sourcils et se propagea sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
 
@@ -88,7 +88,7 @@ Ces attaques incessantes ne laissèrent aucune chance de résistance au Maître 
 
 « Vie et Mort. » Wang Lin leva les deux mains. Sa main gauche, représentant la vie, pressa la poitrine du Maître Céleste Dieu du Vide. Le corps vieilli de ce dernier irradia soudainement de jeunesse et redevint jeune. Cependant, au moment où la main droite de Wang Lin retomba, cette jeunesse s'effondra. La vie et la mort entrèrent en collision brutale à l'intérieur du corps du Maître Céleste Dieu du Vide, comme pour le déchirer de l'intérieur.
 
-Le Maître Céleste Dieu du Vide saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Ancien, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de culture éclata.
+Le Maître Céleste Dieu du Vide saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Ancien, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de cultivation éclata.
 
 Pourtant, Wang Lin resta calme. À l'instant même où le Maître Céleste Dieu du Vide se libérait, Wang Lin pointa son index droit.
 
@@ -110,4 +110,4 @@ C'était un nuage d'énergie invisible. Cette énergie était extrêmement diffi
 
 Cette énergie invisible constituait le cœur même de l'avatar du Maître Céleste Dieu du Vide ! Cet avatar n'était, en réalité, qu'un souffle exhalé par lui. Le Maître Céleste était nommé « Dieu du Vide » car son corps était semblable au néant. On pouvait dire que sa forme n'était pas réelle, mais n'était qu'une masse d'énergie !
 
-À cet instant, le nuage d'énergie invisible que seul Wang Lin pouvait voir tenta de s'échapper furtivement. Le Maître Céleste Dieu du Vide n'avait peut-être pas le niveau de culture le plus élevé parmi les Cinq Maîtres, mais il était sans nul doute le plus difficile à tuer !
+À cet instant, le nuage d'énergie invisible que seul Wang Lin pouvait voir tenta de s'échapper furtivement. Le Maître Céleste Dieu du Vide n'avait peut-être pas le niveau de cultivation le plus élevé parmi les Cinq Maîtres, mais il était sans nul doute le plus difficile à tuer !

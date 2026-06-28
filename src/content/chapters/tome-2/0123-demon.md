@@ -16,7 +16,7 @@ Pensant à cela, il s'exclama précipitamment : « Senior, je n'ai aucun lien av
 
 Lin Tao s'exprima avec angoisse alors que l'âme errante se rapprochait de lui. Wang Lin esquissa un léger sourire. D'un geste de la main, il fit s'arrêter immédiatement l'âme errante.
 
-Le front de Lin Tao était couvert de sueur froide, mais il n'osa pas l'essuyer. Il dit respectueusement : « Senior, vous... vous devez être un expert issu d'un pays de culture supérieure. C'est un honneur pour moi de devenir votre esclave. Je n'ai aucune autre intention. » Sur ces mots, ses mains formèrent un sceau qu'il pressa contre son front. Une goutte de sang doré s'en échappa et flotta vers Wang Lin.
+Le front de Lin Tao était couvert de sueur froide, mais il n'osa pas l'essuyer. Il dit respectueusement : « Senior, vous... vous devez être un expert issu d'un pays de cultivation supérieure. C'est un honneur pour moi de devenir votre esclave. Je n'ai aucune autre intention. » Sur ces mots, ses mains formèrent un sceau qu'il pressa contre son front. Une goutte de sang doré s'en échappa et flotta vers Wang Lin.
 
 Une fois la goutte de sang dorée apparue, le corps de Lin Tao parut bien plus affaibli. Il regarda nerveusement Wang Lin.
 
@@ -34,7 +34,7 @@ Lin Tao se précipita aux côtés de Wang Lin, puis pointa son épée vers les d
 
 Le jeune homme nommé Yang eut un sourire amer. Sans un mot, il frappa son propre front et une goutte de sang d'essence de l'âme vola vers Wang Lin.
 
-Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les comportements étranges de Mai Liang étaient dus à une possession. Il était resté extrêmement nerveux durant tout ce temps. Puisque tout était désormais découvert, il évalua rapidement ses options et décida de devenir l'esclave de Wang Lin. Face à la vie ou à la mort, qu'importait la fierté ? De plus, cet homme était manifestement un cultivateur d'un pays de culture supérieure, assez puissant pour que ces créatures étranges le craignent. S'il le suivait, il aurait peut-être une meilleure chance de progresser à l'avenir.
+Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les comportements étranges de Mai Liang étaient dus à une possession. Il était resté extrêmement nerveux durant tout ce temps. Puisque tout était désormais découvert, il évalua rapidement ses options et décida de devenir l'esclave de Wang Lin. Face à la vie ou à la mort, qu'importait la fierté ? De plus, cet homme était manifestement un cultivateur d'un pays de cultivation supérieure, assez puissant pour que ces créatures étranges le craignent. S'il le suivait, il aurait peut-être une meilleure chance de progresser à l'avenir.
 
 Après avoir offert sa goutte de sang, il regarda sa sœur cadette Zhou Zihong d'un air complexe et dit : « Sœur cadette, tu... »
 
@@ -56,7 +56,7 @@ Wang Lin n'avait pas l'intention de les tuer, mais si ces trois-là manquaient d
 
 Une fois devenus les esclaves de Wang Lin, Zhou Zihong, Yang Xiong et Lin Tao se détendirent immédiatement et se postèrent derrière lui. Zhou Zihong le regarda avec une expression complexe. Elle savait qu'elle était très séduisante ; au sein de la secte, de nombreux disciples la courtisaient, mais elle les avait tous rejetés.
 
-Elle s'était juré qu'avant d'atteindre le stade de la Formation du Noyau, elle ne formerait aucun couple de culture. Mais voilà qu'elle était l'esclave de quelqu'un. Si son maître le lui demandait, elle ne pourrait pas refuser. Cette pensée troublait profondément son cœur.
+Elle s'était juré qu'avant d'atteindre le stade de la Formation du Noyau, elle ne formerait aucun couple de cultivation. Mais voilà qu'elle était l'esclave de quelqu'un. Si son maître le lui demandait, elle ne pourrait pas refuser. Cette pensée troublait profondément son cœur.
 
 Elle ignorait que Wang Lin n'avait absolument aucun intérêt pour elle.
 

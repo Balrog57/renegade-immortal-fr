@@ -2,7 +2,7 @@
 n: 1111
 title: Tuo Sen
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1111 - Tuo Sen
 slug: tuo-sen
 ---

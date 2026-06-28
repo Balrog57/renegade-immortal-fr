@@ -42,7 +42,7 @@ Le cœur de Xu Liguo trembla à ces mots. Il n'osait pas s'avancer sous le regar
 
 D'un seul geste, Xu Liguo cracha une grande quantité d'essence de corps spirituel et son corps devint presque transparent. Il fut alors projeté en arrière et s'écrasa contre la paroi rocheuse. Un éclair de lumière de restriction jaillit, lui arrachant un autre cri de douleur tandis qu'il rebondissait.
 
-Ce simple geste avait consommé près de 30 % de sa culture, faisant presque s'effondrer son corps spirituel. Cette douleur intense le fit hurler de détresse.
+Ce simple geste avait consommé près de 30 % de sa cultivation, faisant presque s'effondrer son corps spirituel. Cette douleur intense le fit hurler de détresse.
 
 Cette fois, il fut totalement terrifié. Il suivait Wang Lin depuis de nombreuses années et savait à quel point celui-ci pouvait être cruel. Il n'appelait pas Wang Lin « démon » sans raison !
 
@@ -50,7 +50,7 @@ Cette fois, il fut totalement terrifié. Il suivait Wang Lin depuis de nombreuse
 
 Il craignait que s'il tardait trop, il n'aurait plus jamais l'occasion de parler.
 
-« Si ce n'était pas pour tout cela, ce geste n'aurait pas seulement gaspillé 30 % de ta culture, il t'aurait tué ! » Les yeux de Wang Lin étaient froids. Il s'était juré d'être indulgent envers ce fou, et pourtant Xu Liguo avait osé désobéir ! Comme il l'avait dit, si ce n'était pas parce que Xu Liguo le suivait depuis si longtemps, Wang Lin l'aurait déjà exécuté.
+« Si ce n'était pas pour tout cela, ce geste n'aurait pas seulement gaspillé 30 % de ta cultivation, il t'aurait tué ! » Les yeux de Wang Lin étaient froids. Il s'était juré d'être indulgent envers ce fou, et pourtant Xu Liguo avait osé désobéir ! Comme il l'avait dit, si ce n'était pas parce que Xu Liguo le suivait depuis si longtemps, Wang Lin l'aurait déjà exécuté.
 
 Son regard balaya Liu Jinbiao, qui se prosternait sans relâche, et une intention meurtrière traversa ses yeux.
 

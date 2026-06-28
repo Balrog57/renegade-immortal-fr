@@ -10,7 +10,7 @@ Mais il était trop tard !
 
 Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme ; elle se situait très probablement au sommet du stade intermédiaire. Les techniques de cette femme devaient impérativement contenir son domaine ; si Wang Lin se faisait capturer, le danger serait absolu.
 
-L'écart entre leurs niveaux de culture était trop immense ; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
+L'écart entre leurs niveaux de cultivation était trop immense ; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
 
 Le regard de Wang Lin devint résolu alors qu'il tranchait. Il devait en finir rapidement, car si les autres cultivateurs de Xue Yu arrivaient, s'échapper deviendrait une tâche quasi impossible.
 

@@ -78,7 +78,7 @@ Les quatre autres crachèrent du sang et reculèrent comme des possédés. Leurs
 
 « Quel genre de trésor est-ce là ?! »
 
-« Quel est le niveau de culture de Lu Zihao ?! »
+« Quel est le niveau de cultivation de Lu Zihao ?! »
 
 Une seule entaille ! Sur les six cultivateurs du Premier Ciel de la Souffrance, deux avaient perdu leur corps et les autres étaient tous blessés. Tout cela n'était dû qu'au fait que Wang Lin ne souhaitait pas tuer. Autrement, ceux qui avaient perdu leur enveloppe physique n'auraient eu aucune chance de s'échapper !
 
@@ -86,6 +86,6 @@ Cette épée choqua tout le monde et provoqua un séisme dans leurs cœurs !
 
 Le corps de Wang Lin vacilla, puis il emporta directement la vieille femme abasourdie vers les cieux. Les six membres de la Secte Éternelle n'osèrent même pas tenter de l'arrêter !
 
-« Je reviendrai. Si le Secte d'Origine subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer des Nuages ! Vous tous les six, vous périrez ! » Wang Lin lança un regard glacial aux six individus suspendus dans les airs. Il avait tenté d'être poli et sincère ; il avait même prêté serment, mais tout cela était vain ! Dans le monde de la culture, seule la force est respectée !
+« Je reviendrai. Si le Secte d'Origine subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer des Nuages ! Vous tous les six, vous périrez ! » Wang Lin lança un regard glacial aux six individus suspendus dans les airs. Il avait tenté d'être poli et sincère ; il avait même prêté serment, mais tout cela était vain ! Dans le monde de la cultivation, seule la force est respectée !
 
 Une épée et une phrase valaient dix mille fois plus qu'un serment de sang !

@@ -10,9 +10,9 @@ D'un simple mot — « Arrête ! » — l'énergie originelle à l'intérieur du
 
 C'était comme si d'innombrables fils s'étaient propagés à travers l'espace pour s'enrouler instantanément autour de Ji Xiantian. C'était le moment où Ji Xiantian était le plus vulnérable de toute son existence. Les treize couches de lumière bleue s'étaient effondrées ; il devait donc quitter les lieux au plus vite pour trouver un endroit où se rétablir, sans quoi il mourrait sans aucun doute !
 
-Il avait fait preuve d'une grande détermination. Il avait fait exploser quatre couches de lumière bleue rien que pour créer une ouverture et s'échapper. Il devait impérativement rapporter à Zhong Xuanzi que la culture de Maître Flamespark avait franchi le stade avancé du Briseur de Nirvana !
+Il avait fait preuve d'une grande détermination. Il avait fait exploser quatre couches de lumière bleue rien que pour créer une ouverture et s'échapper. Il devait impérativement rapporter à Zhong Xuanzi que la cultivation de Maître Flamespark avait franchi le stade avancé du Briseur de Nirvana !
 
-« La culture de Maître Flamespark n'a pas encore atteint la troisième étape, mais il est bien plus puissant que les cultivateurs au stade avancé du Briseur de Nirvana ! Il a dû atteindre le sommet de la deuxième étape ! »
+« La cultivation de Maître Flamespark n'a pas encore atteint la troisième étape, mais il est bien plus puissant que les cultivateurs au stade avancé du Briseur de Nirvana ! Il a dû atteindre le sommet de la deuxième étape ! »
 
 Juste au moment où il s'apprêtait à franchir la fissure, Ji Xiantian sentit d'innombrables fils invisibles l'envelopper. Son pied droit, qui s'engageait dans la brèche, ne put s'empêcher de ralentir un instant !
 
@@ -26,7 +26,7 @@ Tout se passa avec une rapidité fulgurante. À peine Ji Xiantian fut-il précip
 
 Au moment où le sort « Arrête » frappa Ji Xiantian, le corps de Wang Lin trembla et il cracha une large traînée de sang. Comme s'il avait été percuté par une force colossale, il recula précipitamment.
 
-L'énergie originelle en lui faillit s'effondrer. L'écart entre sa culture et celle de Ji Xiantian était trop immense. Sous l'effet de la force, des craquements résonnèrent dans tout son corps et un épais brouillard de sang jaillit de lui.
+L'énergie originelle en lui faillit s'effondrer. L'écart entre sa cultivation et celle de Ji Xiantian était trop immense. Sous l'effet de la force, des craquements résonnèrent dans tout son corps et un épais brouillard de sang jaillit de lui.
 
 Wang Lin poussa un cri de douleur alors qu'il se retirait. « Senior Maître Flamespark, ce junior a fait de son mieux ! » S'il agissait ainsi, c'était pour magnifier sa propre prouesse devant l'assistance ! Cela créerait une dette immense envers Maître Flamespark !
 
@@ -36,7 +36,7 @@ C'était une preuve de sincérité absolue. Grâce à cet exploit, où que ce so
 
 Nul ne pourrait occulter ce fait ou l'oublier ! Si Wang Lin venait à se retrouver dans une situation périlleuse sans qu'Allheaven ne vienne à son aide, cela nuirait gravement à l'image de cette entité. Et si tel était le cas, qui risquerait de se donner corps et âme dans les batailles futures ?
 
-Wang Lin avait tout calculé. En combinant sa culture et son corps de Dieu Ancien, il s'était dit que si l'adversaire était à son apogée, il pourrait mourir des contrecoups du sort ; mais puisque Ji Xiantian était gravement blessé et en fuite, même en cas d'échec, il ne succomberait pas aux retombées de sa propre technique !
+Wang Lin avait tout calculé. En combinant sa cultivation et son corps de Dieu Ancien, il s'était dit que si l'adversaire était à son apogée, il pourrait mourir des contrecoups du sort ; mais puisque Ji Xiantian était gravement blessé et en fuite, même en cas d'échec, il ne succomberait pas aux retombées de sa propre technique !
 
 Parfois, quand toutes les voies sont closes, il faut parier pour tracer son propre chemin ! En cet instant, Wang Lin traçait la voie de son avenir !
 
@@ -48,7 +48,7 @@ Une impulsion d'énergie originelle d'une puissance inimaginable jaillit du corp
 
 De plus, Maître Flamespark bloqua la puissance de cette énergie afin qu'elle reste entièrement confinée dans le corps de Wang Lin.
 
-À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Briseur de Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Briseur de Nirvana !
+À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa cultivation atteignit le sommet du stade initial du Briseur de Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Briseur de Nirvana !
 
 Cette fois, Maître Flamespark n'avait pas retenu ses coups et avait offert à Wang Lin une fortune inestimable !
 
@@ -86,7 +86,7 @@ D'innombrables tours, hautes de dizaines de milliers de pieds, fonçaient sur eu
 
 Depuis le loin, les étoiles semblaient peuplées par ces structures. Pas moins de cent de ces tours coniques s'élançaient dans un sifflement aigu.
 
-Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre planètes de culture gigantesques apparaissaient également. Quatre géants de dizaines de milliers de pieds transportaient ces planètes.
+Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre planètes de cultivation gigantesques apparaissaient également. Quatre géants de dizaines de milliers de pieds transportaient ces planètes.
 
 Chacun de ces quatre géants portait une marque de hache sur le front : c'étaient des membres du Clan des Démons Géants !
 

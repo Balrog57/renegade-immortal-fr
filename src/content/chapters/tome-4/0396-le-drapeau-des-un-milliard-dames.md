@@ -38,7 +38,7 @@ Après un long silence, Wang Lin poussa un soupir et quitta la perle défiant le
 
 « Même s'il n'est pas mort, il devra posséder un nouveau corps. Le temps nécessaire pour s'adapter à une nouvelle enveloppe peut varier. Je me demande s'il a pleinement assimilé ce nouveau corps... » D'un seul pas, Wang Lin apparut devant un ancien réseau de transfert.
 
-« Le patriarche du Clan des Démons Géants diffère de Li Yuanfeng. Ce dernier a atteint le stade de la Transformation de l'Âme par la force, tandis que le patriarche l'a atteint par sa propre culture. De plus, le style de combat du Clan des Démons Géants s'apparente à celui d'un Dieu Ancien. Peut-être leur ancêtre avait-il un lien avec les Dieux Anciens. »
+« Le patriarche du Clan des Démons Géants diffère de Li Yuanfeng. Ce dernier a atteint le stade de la Transformation de l'Âme par la force, tandis que le patriarche l'a atteint par sa propre cultivation. De plus, le style de combat du Clan des Démons Géants s'apparente à celui d'un Dieu Ancien. Peut-être leur ancêtre avait-il un lien avec les Dieux Anciens. »
 
 « Par conséquent, je ne suis pas certain de pouvoir l'emporter ! »
 
@@ -68,7 +68,7 @@ Les neuf anneaux brillèrent, puis un homme d'âge moyen se matérialisa. En voy
 
 Wang Lin joignit les mains et dit : « Compagnon cultivateur Ouyang, je souhaite saluer l'Ancien. »
 
-Ouyang Tian secoua la tête : « L'Ancien est déjà entré en culture de méditation intensive ; à moins qu'il ne s'agisse d'une affaire extrêmement urgente, il ne doit pas être dérangé. Cependant, l'Ancien avait pressenti votre venue et a préparé deux objets pour vous. »
+Ouyang Tian secoua la tête : « L'Ancien est déjà entré en cultivation de méditation intensive ; à moins qu'il ne s'agisse d'une affaire extrêmement urgente, il ne doit pas être dérangé. Cependant, l'Ancien avait pressenti votre venue et a préparé deux objets pour vous. »
 
 Sur ces mots, son expression se fit plus tourmentée encore alors qu'il lançait un sac de rangement.
 
@@ -114,7 +114,7 @@ Le drapeau des un milliard d'âmes était le trésor suprême du Secte de l'Affi
 
 La méthode de contrôle de ce drapeau était la technique de scellement de l'âme. À ce jour, en comptant Wang Lin, seules deux personnes en connaissaient l'usage.
 
-Cela différait du char de guerre : bien qu'il possédât la technique pour le diriger, Wang Lin était trop faible pour l'utiliser pleinement, et sa puissance n'était donc pas à la hauteur de son potentiel. Cependant, ce drapeau était différent. Bien qu'un certain niveau de culture fût requis, l'exigence n'était pas aussi élevée que celle du char de guerre. Grâce à la fusion de son corps originel et de son avatar, le niveau actuel de Wang Lin était suffisant pour manier l'objet.
+Cela différait du char de guerre : bien qu'il possédât la technique pour le diriger, Wang Lin était trop faible pour l'utiliser pleinement, et sa puissance n'était donc pas à la hauteur de son potentiel. Cependant, ce drapeau était différent. Bien qu'un certain niveau de cultivation fût requis, l'exigence n'était pas aussi élevée que celle du char de guerre. Grâce à la fusion de son corps originel et de son avatar, le niveau actuel de Wang Lin était suffisant pour manier l'objet.
 
 La technique de scellement s'activa dans son corps et son âme originelle, au sein du drapeau, commença soudainement à rayonner. Tous les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants.
 

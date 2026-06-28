@@ -74,7 +74,7 @@ Cette scène étrange troubla l'esprit de Wang Lin, mais il ne laissa paraître 
 
 Chen Tianjun venait d'assister au massacre du Maître Ashen Pine par Wang Lin. Lorsque celui-ci tourna les yeux vers lui, son visage devint livide. Instinctivement, il recula de quelques pas et joignit les mains en signe de respect devant Wang Lin.
 
-« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire ! Le Maître Ashen Pine était un être malfaisant pour nous avoir entraînés ici. Il est heureux qu'il soit mort par la main du compagnon de culture Lu. Il le méritait ; le compagnon Lu a bien agi ! »
+« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire ! Le Maître Ashen Pine était un être malfaisant pour nous avoir entraînés ici. Il est heureux qu'il soit mort par la main du compagnon de cultivation Lu. Il le méritait ; le compagnon Lu a bien agi ! »
 
 Wang Lin s'approcha de Chen Tianjun et lui rendit un léger salut.
 
@@ -112,7 +112,7 @@ Alors qu'il voyait Wang Lin disparaître à l'horizon, Chen Tianjun poussa un so
 
 Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses restrictions autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur de Nirvana.
 
-« Bien que cet endroit soit périlleux, c'est le lieu idéal pour la culture. D'après les souvenirs du Maître Ashen Pine, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur ; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
+« Bien que cet endroit soit périlleux, c'est le lieu idéal pour la cultivation. D'après les souvenirs du Maître Ashen Pine, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur ; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
 
 « Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction du Temps de Sima Mo... »
 

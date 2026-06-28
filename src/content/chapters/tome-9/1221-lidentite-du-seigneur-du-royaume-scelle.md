@@ -42,11 +42,11 @@ Pourtant, à cet instant, des fissures apparurent sur les yeux de la statue. Tan
 
 « L'aura de ce vieux... » Les yeux de l'homme laissèrent passer une lueur étrange tandis qu'innombrables souvenirs s'éveillaient de leur sommeil pour envahir son esprit. Après un long moment, il referma les yeux et redevint une statue.
 
-Dans le système stellaire situé sous le Royaume Céleste de la Foudre, une femme se tenait au sommet d'une montagne sur une planète de culture. Elle contemplait le ciel, le regard empreint de souvenirs et de confusion.
+Dans le système stellaire situé sous le Royaume Céleste de la Foudre, une femme se tenait au sommet d'une montagne sur une planète de cultivation. Elle contemplait le ciel, le regard empreint de souvenirs et de confusion.
 
 « Je ne m'en souviens pas... De quelle aura s'agit-il... Elle est si familière, si familière... »
 
-Au même instant, sur une planète de culture du système stellaire sous le Royaume Céleste de la Foudre, un jeune homme dormait sur une montagne. Son corps trembla alors qu'il redressait la tête pour regarder au loin. Après un long moment, il se gratta la tête.
+Au même instant, sur une planète de cultivation du système stellaire sous le Royaume Céleste de la Foudre, un jeune homme dormait sur une montagne. Son corps trembla alors qu'il redressait la tête pour regarder au loin. Après un long moment, il se gratta la tête.
 
 « Ce vieux a failli mourir de peur. Je croyais que c'étaient ces vieux débris descendant du domaine céleste pour me capturer, mais pourquoi cette aura me semble-t-elle si familière... » Ce jeune homme était celui qui s'était échappé de la fissure lors de la rétribution divine de Wang Lin !
 
@@ -108,11 +108,11 @@ Wang Lin prit une profonde inspiration, les yeux brillants. Il leva sa main droi
 
 L'aura de Briseur de Nirvana émanant de son corps se dissipa progressivement jusqu'à être dissimulée sous les multiples sceaux.
 
-« Cette aura est suffisante pour porter ma culture au sommet du stade précoce de Briseur de Nirvana, mais elle provient d'une compréhension que je ne maîtrise pas encore totalement. Si je ne comprends pas pleinement tous les Dao que j'ai absorbés, utiliser cette puissance rendra ma progression presque impossible. Cela aurait un impact trop lourd sur ma culture future ! »
+« Cette aura est suffisante pour porter ma cultivation au sommet du stade précoce de Briseur de Nirvana, mais elle provient d'une compréhension que je ne maîtrise pas encore totalement. Si je ne comprends pas pleinement tous les Dao que j'ai absorbés, utiliser cette puissance rendra ma progression presque impossible. Cela aurait un impact trop lourd sur ma cultivation future ! »
 
-« Cependant, la gaspiller maintenant serait regrettable. Je vais d'abord la sceller ; une fois que j'aurai parfaitement assimilé toute l'intention Dao absorbée, je pourrai lever les sceaux un par un. À ce moment-là, il n'y aura aucun danger ! Cela rendra même ma culture encore plus puissante ! » Wang Lin prit une inspiration profonde, une lueur de froideur dans le regard.
+« Cependant, la gaspiller maintenant serait regrettable. Je vais d'abord la sceller ; une fois que j'aurai parfaitement assimilé toute l'intention Dao absorbée, je pourrai lever les sceaux un par un. À ce moment-là, il n'y aura aucun danger ! Cela rendra même ma cultivation encore plus puissante ! » Wang Lin prit une inspiration profonde, une lueur de froideur dans le regard.
 
-« Avec ma culture au sommet de la Purification du Nirvana, à mi-chemin du stade de Briseur de Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur de Nirvana ? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un ! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
+« Avec ma cultivation au sommet de la Purification du Nirvana, à mi-chemin du stade de Briseur de Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur de Nirvana ? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un ! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
 
 Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les sourcils. Il savait que cela résultait de son incompréhension partielle des Dao absorbés.
 
@@ -124,6 +124,6 @@ Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les s
 
 Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième niveau scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
 
-« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même ? Mais c'est impossible avec son niveau de culture ! » Il rugit vers les cieux, les yeux injectés de sang. Il percevut la présence de quelques anciens cultivateurs dans un champ stellaire au loin. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
+« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même ? Mais c'est impossible avec son niveau de cultivation ! » Il rugit vers les cieux, les yeux injectés de sang. Il percevut la présence de quelques anciens cultivateurs dans un champ stellaire au loin. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
 
 « Maudit Wang Lin, ce Dieu te retrouvera un jour ! Je te dévorerai pour apaiser la colère qui me consume ! »

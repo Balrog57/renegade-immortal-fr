@@ -8,7 +8,7 @@ slug: le-pic-du-taureau-celeste
 ---
 Ce silence semblait avoir été orchestré pour faciliter son départ. Les yeux de Wang Lin s'illuminèrent. Tout s'était produit si soudainement qu'il n'avait pas le temps d'en saisir toutes les nuances, mais il était déjà trop tard pour réfléchir. Il s'élança aussitôt.
 
-Il déploya sa vitesse maximale pour quitter la Secte Gui Yi. Derrière lui, le regard d'Edge Cloud brillait d'une lueur étrange tandis qu'il poursuivait Wang Lin, porté par sa culture de stade avancé du Tribulant du Vide.
+Il déploya sa vitesse maximale pour quitter la Secte Gui Yi. Derrière lui, le regard d'Edge Cloud brillait d'une lueur étrange tandis qu'il poursuivait Wang Lin, porté par sa cultivation de stade avancé du Tribulant du Vide.
 
 Les deux traversèrent rapidement les domaines de la Secte Gui Yi avant d'en sortir. Un instant plus tard, un rayon de lumière violette jaillit de la secte, suivie de l'activation de la formation qui retrouva son état normal.
 
@@ -28,7 +28,7 @@ Sept traînées noires semblables à des météores tombaient du ciel à une vit
 
 Sous les yeux de Wang Lin, l'astre de la taille d'un poing s'agrandit pour atteindre celle d'un bol, en pleine expansion. Il semblait prêt à s'étendre sur mille kilomètres, transformant tout ce qui se trouverait sur son passage en ruines !
 
-Edge Cloud ne pouvait projeter un tel sort que grâce à l'augmentation de sa culture conférée par l'armure de l'âme.
+Edge Cloud ne pouvait projeter un tel sort que grâce à l'augmentation de sa cultivation conférée par l'armure de l'âme.
 
 Les ondulations sous les pieds de Wang Lin se multipliaient tandis qu'il tentait d'utiliser la Distorsion Spatiale pour s'échapper. Edge Cloud ignorait manifestement les capacités de Wang Lin ; peu importait la puissance de son attaque, il ne pourrait jamais le retenir ainsi.
 

@@ -8,13 +8,13 @@ slug: echange
 ---
 Au cours des jours suivants, en plus de s'entraîner dans l'espace onirique, Wang Lin s'était occupé à collecter de la neige pour la faire fondre. S'il n'avait pas craint que l'énergie spirituelle ne s'échappe, il aurait utilisé des cuves, mais il se contenta de gourdes. Fort heureusement, il en possédait en quantité suffisante. En seulement quelques jours, il avait accumulé des centaines de gourdes remplies d'eau de fonte. Il estima que cette réserve lui permettrait de subsister longtemps dans l'espace onirique.
 
-Une fois l'eau stockée, Wang Lin retourna à sa culture. Bien que l'efficacité de l'eau de source eût diminué, elle demeurait utile.
+Une fois l'eau stockée, Wang Lin retourna à sa cultivation. Bien que l'efficacité de l'eau de source eût diminué, elle demeurait utile.
 
 En un clin d'œil, dix jours s'étaient écoulés. Durant cette période, Wang Lin avait bu plus d'eau de source qu'il n'en avait jamais consommé auparavant. Fort heureusement, l'eau se dissolvait en énergie spirituelle dans son corps ; sans cela, son estomac n'aurait jamais pu supporter une telle quantité.
 
 La quantité d'énergie spirituelle requise pour le second niveau était bien plus importante que pour le premier. En réalité, Wang Lin s'était déjà entraîné pendant plus de neuf mois dans son espace onirique.
 
-S'il s'agissait du premier niveau, neuf mois de culture avec une telle réserve d'énergie lui auraient apporté des résultats probants ; mais désormais, bien qu'il sentît que son corps regorgeait d'une énergie spirituelle bien plus dense, il ne parvenait toujours pas à atteindre les résultats escomptés.
+S'il s'agissait du premier niveau, neuf mois de cultivation avec une telle réserve d'énergie lui auraient apporté des résultats probants ; mais désormais, bien qu'il sentît que son corps regorgeait d'une énergie spirituelle bien plus dense, il ne parvenait toujours pas à atteindre les résultats escomptés.
 
 Le jour de la rencontre convenue avec Wang Hao était arrivé, et Wang Lin ne pénétra pas dans l'espace onirique. Vers minuit, la neige commença à tomber, et Wang Hao fit irruption dans le Sens Divin de Wang Lin.
 
@@ -44,15 +44,15 @@ Un homme non loin de Wang Lin s'exclama aussitôt : « Je l'échange ! » Mais a
 
 Bientôt, les participants se succédèrent un à un, exhibant leurs trésors. La scène devint animée, particulièrement lorsque des disputes éclataient pour un objet précis : celui qui offrait la plus haute enchère l'emportait.
 
-« Je possède ici une technique qui, tant que vous êtes au-dessus du second niveau de Condensation de Qi, peut masquer votre culture pendant une courte période, à moins que la personne ne soit déjà au stade de l'Établissement des Fondations. Je sais bien que cet objet est peu utile. Je n'en demande que 10... non, 5 pilules de Rassemblement de Qi. » L'homme qui parlait semblait très hésitant.
+« Je possède ici une technique qui, tant que vous êtes au-dessus du second niveau de Condensation de Qi, peut masquer votre cultivation pendant une courte période, à moins que la personne ne soit déjà au stade de l'Établissement des Fondations. Je sais bien que cet objet est peu utile. Je n'en demande que 10... non, 5 pilules de Rassemblement de Qi. » L'homme qui parlait semblait très hésitant.
 
-L'assistance éclata de rire. Cette technique était effectivement dérisoire. Tous les disciples voulaient étaler leur puissance, car plus la culture était élevée, meilleur était le traitement. Qui serait assez ennuyeux pour vouloir dissimuler sa force ? Si l'effet durait plus longtemps, cela aurait un intérêt, mais il ne s'agissait que d'une brève durée pour un coût de 5 pilules de Rassemblement de Qi.
+L'assistance éclata de rire. Cette technique était effectivement dérisoire. Tous les disciples voulaient étaler leur puissance, car plus la cultivation était élevée, meilleur était le traitement. Qui serait assez ennuyeux pour vouloir dissimuler sa force ? Si l'effet durait plus longtemps, cela aurait un intérêt, mais il ne s'agissait que d'une brève durée pour un coût de 5 pilules de Rassemblement de Qi.
 
 Voyant que personne n'était intéressé, l'homme soupira. Alors qu'il allait ranger son bien, Wang Lin interpella : « J'échange 5 pilules de Rassemblement de Qi contre cela. »
 
 L'homme au centre resta stupéfait. L'assistance, soudainement enthousiaste, se précipita pour l'échange.
 
-En tenant l'objet contenant la technique, Wang Lin resta interdit. Il n'avait jamais vu une chose pareille. Il l'examina rapidement avec son Sens Divin et la méthode de la technique s'imprima aussitôt dans son esprit. Cet objet pouvait être inutile pour les autres, mais il était précieux pour lui, même si sa capacité à masquer la culture était limitée dans le temps.
+En tenant l'objet contenant la technique, Wang Lin resta interdit. Il n'avait jamais vu une chose pareille. Il l'examina rapidement avec son Sens Divin et la méthode de la technique s'imprima aussitôt dans son esprit. Cet objet pouvait être inutile pour les autres, mais il était précieux pour lui, même si sa capacité à masquer la cultivation était limitée dans le temps.
 
 Soudain, une voix retentit. Bien que rauque, elle était empreinte d'une immense fierté : « Une pilule d'Établissement des Fondations ! Faites vos offres ! »
 

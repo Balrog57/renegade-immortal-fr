@@ -10,7 +10,7 @@ Le calèche transporta les deux femmes ainsi que quelques cruches de vin hors de
 
 Ce n'est qu'au crépuscule que les deux femmes du bateau débarquèrent et marchèrent dans les rues de Su. Leurs apparences changèrent progressivement pour devenir très ordinaires.
 
-« Sœur aînée, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants ? Nous avons pratiqué la culture en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
+« Sœur aînée, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants ? Nous avons pratiqué la cultivation en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
 
 « Toi, je vais rendre visite à mes parents, et tu dois me suivre. Il n'y a rien d'intéressant dans la ville de Su. Demain, j'irai voir le Grand Savant Su Dao. C'était un ami de la famille autrefois. Une fois sur place, tu ne devras pas manquer de respect. Bien qu'il soit mortel, même le Maître est très poli envers lui. »
 

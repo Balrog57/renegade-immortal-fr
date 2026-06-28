@@ -30,7 +30,7 @@ L'antre était d'un luxe extrême, éclairé par d'innombrables perles de nuit q
 
 Ce dernier ne paraissait pas vieux, mais son corps était aussi menu qu'un nain. Sa tête était disproportionnée ; comparée à celle-ci, son petit corps semblait hors de propos.
 
-Ce cultivateur à la grosse tête était d'un tempérament morose, et au fur et à mesure qu'il pratiquait sa culture, toute la grotte se glaçait.
+Ce cultivateur à la grosse tête était d'un tempérament morose, et au fur et à mesure qu'il pratiquait sa cultivation, toute la grotte se glaçait.
 
 « Grosse Tête... » Tandis que le cultivateur méditait, une voix surgit soudainement et résonna dans la froide caverne.
 
@@ -70,7 +70,7 @@ Depuis que l'édit des Grands Empereurs avait annoncé l'ouverture du Royaume Di
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 
-Shen Bao était le maître de cette secte, et sa culture était extraordinaire. Il était rongé par l'anxiété, ignorant ce que l'avenir lui réservait ou si sa secte existerait encore après la guerre dans quelques siècles.
+Shen Bao était le maître de cette secte, et sa cultivation était extraordinaire. Il était rongé par l'anxiété, ignorant ce que l'avenir lui réservait ou si sa secte existerait encore après la guerre dans quelques siècles.
 
 Il avait déployé des efforts colossaux pour atteindre son rang de maître de secte. Il ne voulait pas renoncer à tout cela, mais aujourd'hui, la seule issue consistait à se soumettre à une puissance supérieure.
 

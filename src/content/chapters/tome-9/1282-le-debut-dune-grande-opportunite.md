@@ -16,7 +16,7 @@ En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètem
 
 Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces supplémentaires. Cela rendit Daoist Water presque fou, car il ne parvint pas à contenir la force en lui.
 
-Mobilisant sa puissante culture du troisième niveau, Daoist Water parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
+Mobilisant sa puissante cultivation du troisième niveau, Daoist Water parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
 
 Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, la pierre de jade de son maître apparaîtrait !
 
@@ -38,7 +38,7 @@ La douleur était atroce et Daoist Water laissa échapper des hurlements de souf
 
 « Je ne vous obéirai pas ! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte de Dieu. Je prendrai votre place ! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi !! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs !! » Daoist Water poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte de Dieu.
 
-La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau s'effondrèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Daoist Water pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Daoist Water avant de disparaître avec lui.
+La planète de cultivation géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau s'effondrèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Daoist Water pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Daoist Water avant de disparaître avec lui.
 
 Daoist Water resta en proie à la démence tout au long de sa fuite. Il ne cessa de réprimer la destruction qui ravageait son corps jusqu'à ce qu'il disparaisse rapidement !
 

@@ -30,13 +30,13 @@ Les mouvements de Lei Ji attiraient l'attention de nombreux cultivateurs. Beauco
 
 Un jour plus tard, Lei Ji s'arrêta devant une planète abandonnée. L'énergie spirituelle y était devenue rare ; même les cultivateurs d'Allheaven qui l'occupaient ne s'en souciaient guère et n'y avaient laissé que quelques sentinelles.
 
-Wang Lin observa attentivement la planète délaissée. Cet endroit était en effet très reculé. Bien qu'occupé par Allheaven, il n'empêcherait pas Wang Lin d'y pratiquer sa culture en vase clos.
+Wang Lin observa attentivement la planète délaissée. Cet endroit était en effet très reculé. Bien qu'occupé par Allheaven, il n'empêcherait pas Wang Lin d'y pratiquer sa cultivation en vase clos.
 
 Après réflexion, Wang Lin descendit du dos de Lei Ji et se dirigea vers la planète. Le garçon à la grosse tête et Ta Shan le suivirent immédiatement. Quant à Lei Ji, son corps rétrécit pour reprendre la forme d'un homme de neuf mètres de haut et les suivit.
 
 En approchant de la planète, il entendit des rugissements s'en échapper. Bien qu'abandonnée, elle abritait encore une multitude de bêtes féroces. Ces créatures dépourvues d'intelligence ne survivaient que par instinct. On y trouvait des serpents de plusieurs dizaines de mètres de long ou des tigres ailés ; des espèces très communes ici.
 
-Dès que Wang Lin posa le pied sur la planète, les quelques cultivateurs en poste furent tirés de leur culture. Ils hésitèrent un instant avant de fondre sur lui sur des éclairs d'énergie d'épée.
+Dès que Wang Lin posa le pied sur la planète, les quelques cultivateurs en poste furent tirés de leur cultivation. Ils hésitèrent un instant avant de fondre sur lui sur des éclairs d'énergie d'épée.
 
 L'endroit choisi par Wang Lin était un sommet montagneux. Cette montagne était singulière ; elle ressemblait à un doigt pointé droit vers les cieux, comme pour vouloir les percer.
 

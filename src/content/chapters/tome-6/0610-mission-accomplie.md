@@ -20,7 +20,7 @@ Wang Lin était assis en position de lotus sur le sol. Ses yeux étaient rivés 
 
 Cette scène fit trembler le cœur de Wang Lin. Les attaques du Démon Ancestral et du démon brisé possédaient une puissance capable de fendre le monde en deux. Tous ces sorts firent resurgir les souvenirs de l'ancien dieu Tu Si, enfouis au plus profond de l'esprit de Wang Lin.
 
-Le regard de Wang Lin devint de plus en plus intense. À force d'observer, il abandonna complètement sa culture ; inconsciemment, ses mains se mirent à tracer, l'une après l'autre, les divers sceaux issus des souvenirs de l'ancien dieu Tu Si.
+Le regard de Wang Lin devint de plus en plus intense. À force d'observer, il abandonna complètement sa cultivation ; inconsciemment, ses mains se mirent à tracer, l'une après l'autre, les divers sceaux issus des souvenirs de l'ancien dieu Tu Si.
 
 Bien qu'il forme ces sceaux, ils n'étaient dépourvus de toute puissance d'attaque.
 

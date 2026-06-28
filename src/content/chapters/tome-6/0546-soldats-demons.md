@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 546 - Demon Soldiers
 slug: soldats-demons
 ---
-Ces décennies passées en tant que mortel furent les années les plus paisibles de sa vie, mais aussi une période où sa culture augmenta considérablement.
+Ces décennies passées en tant que mortel furent les années les plus paisibles de sa vie, mais aussi une période où sa cultivation augmenta considérablement.
 
 Bien que de nombreuses années se soient écoulées, il ne pouvait oublier ce qu'il avait vécu à l'époque. En pensant à Da Niu, il soupira et vida d'un trait tout le vin contenu dans son verre.
 
@@ -106,7 +106,7 @@ Un bruit sourd retentit ; le démon cracha du sang et fut projeté en arrière p
 
 Treize fut forcé de reculer de plusieurs pas, le coin de sa bouche saignant. Déjà blessé par l'interception du pot de vin, il venait de brusquer sa force, ce qui aggrava ses lésions. De plus, sa main droite était désormais totalement engourdie.
 
-Sa méthode de raffinement corporel n'étant pas achevée, sa puissance manquait naturellement de fondements lors de la culture.
+Sa méthode de raffinement corporel n'étant pas achevée, sa puissance manquait naturellement de fondements lors de la cultivation.
 
 Voyant Treize agir, Hu Pao plongea la main dans sa robe et en sortit une douzaine de petits drapeaux. En les agitant, un vent glacial et hurlant s'éleva instantanément.
 

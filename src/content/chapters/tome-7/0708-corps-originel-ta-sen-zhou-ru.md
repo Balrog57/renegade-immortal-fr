@@ -30,7 +30,7 @@ D'immenses quantités d'énergie spirituelle céleste remplirent soudain l'air, 
 
 Au bout d'un moment, tout le jade céleste au sol vola en éclats. Immédiatement, une grande quantité de jade s'échappa de la sacoche de Wang Lin pour alimenter le cycle, qui se poursuivit ainsi de nouveau.
 
-De plus en plus d'énergie spirituelle céleste imprégna le corps de Wang Lin, et son niveau de culture ne cessa de croître.
+De plus en plus d'énergie spirituelle céleste imprégna le corps de Wang Lin, et son niveau de cultivation ne cessa de croître.
 
 ***
 
@@ -44,7 +44,7 @@ Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'étai
 
 Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, l'Ancêtre Sanguin, et devint sa concubine.
 
-Deux vieillards dégageant une lueur sanglante la suivaient. Leurs yeux étaient ternes et leurs esprits manifestement sous contrôle ; c'étaient des esclaves sanguins raffinés par l'Ancêtre Sanguin. Chaque esclave sanguin possédait un niveau de culture Ascendant.
+Deux vieillards dégageant une lueur sanglante la suivaient. Leurs yeux étaient ternes et leurs esprits manifestement sous contrôle ; c'étaient des esclaves sanguins raffinés par l'Ancêtre Sanguin. Chaque esclave sanguin possédait un niveau de cultivation Ascendant.
 
 Zi Xin était très rapide et mena bientôt les deux esclaves vers cette minuscule planète lointaine. Sa voix, mélodieuse, demanda lentement : « Est-ce la planète dont vous avez parlé ? »
 
@@ -70,7 +70,7 @@ Une froideur empreinte d'une intention meurtrière retentit soudainement.
 
 Simultanément, cette voix percuta l'oreille de Zi Xin, lui faisant pâlir le visage. Les deux esclaves sanguins tremblèrent et crachèrent de larges bouffées de sang.
 
-Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit : « Cette junior ne savait pas que cet endroit était le lieu de culture en isolement de l'Aîné. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
+Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit : « Cette junior ne savait pas que cet endroit était le lieu de cultivation en isolement de l'Aîné. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
 
 Le cuir chevelu engourdi par la peur, elle se retira sans hésiter, suivie des deux esclaves. Une fois dans l'espace, la terreur quitta ses yeux. Après avoir jeté un regard empreint de sens sur la planète, elle s'éloigna rapidement.
 
@@ -92,7 +92,7 @@ L'expression de ce corps était aussi glaciale qu'une glace millénaire. Il dég
 
 « Cette planète n'a plus d'énergie spirituelle à m'offrir... » Wang Lin réfléchit un instant en contemplant les débris autour de lui, puis tendit la main droite pour saisir le vide. La poussière s'immobilisa soudainement et une aura ancienne commença à se condenser avant de se dissiper aussitôt.
 
-« Ce sort d'extraction d'âme exige un certain niveau de culture ! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
+« Ce sort d'extraction d'âme exige un certain niveau de cultivation ! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
 
 « Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles... Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Ta Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
 
@@ -108,7 +108,7 @@ Le brouillard de la Mer des Diables avait disparu depuis longtemps, transformant
 
 À l'intérieur du Pays de l'Ancien Dieu, au cœur des Étoiles Brisées du Chaos.
 
-D'innombrables cultivateurs étaient assis dans une mer de sang. Leur niveau de culture augmentait lentement à mesure que le sang les envahissait, les rendant de plus en plus puissants. Sur le plus grand pilier émergeant de cette mer de sang siégeait un homme aux cheveux rouges. Son aura était si puissante qu'elle faisait trembler tous les êtres !
+D'innombrables cultivateurs étaient assis dans une mer de sang. Leur niveau de cultivation augmentait lentement à mesure que le sang les envahissait, les rendant de plus en plus puissants. Sur le plus grand pilier émergeant de cette mer de sang siégeait un homme aux cheveux rouges. Son aura était si puissante qu'elle faisait trembler tous les êtres !
 
 Une épée rouillée, tachée de sang séché, était plantée dans le sol à ses côtés. À cet instant, un bruit de grattement se fit entendre. La tête basse, ses cheveux rouges recouvrant son corps, il gravait les deux mots « Wang Lin » avec l'ongle acéré. En regardant de près, on pouvait voir que l'intégralité du pilier était couverte par ces deux caractères !
 

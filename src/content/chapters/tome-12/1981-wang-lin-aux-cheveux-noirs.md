@@ -76,7 +76,7 @@ L'expression de Wang Lin était féroce et il poussa un rugissement vers le ciel
 
 Une fois l'armure rejetée, la folie dans les yeux de Wang Lin disparut pour laisser place à un calme mortel. Cependant, ce sourire cruel demeurait sur son visage.
 
-Après avoir perdu son armure d'âme, le niveau de culture du Wang Lin aux cheveux noirs diminua, mais son aura de massacre augmenta de plusieurs fois. En quelques respirations à peine, le gaz noir autour de lui devint plus dense encore, et il se précipita vers les milliers de personnes !
+Après avoir perdu son armure d'âme, le niveau de cultivation du Wang Lin aux cheveux noirs diminua, mais son aura de massacre augmenta de plusieurs fois. En quelques respirations à peine, le gaz noir autour de lui devint plus dense encore, et il se précipita vers les milliers de personnes !
 
 Le massacre se poursuivait tandis que le cœur de l'Exalt Céleste Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, une nouvelle parcelle de massacre apparaissait autour de lui.
 
@@ -100,7 +100,7 @@ Le Wang Lin aux cheveux noirs recula de quelques pas, désormais enveloppé d'un
 
 Le corps véritable des cinq éléments, à l'expression extrêmement sérieuse, apparut aux côtés de l'Exalt Céleste Hai Zi et scruta la scène.
 
-Après avoir perdu son corps véritable des cinq éléments, le niveau de culture de Wang Lin diminua, mais l'aura de massacre autour de lui devint plus pure encore !
+Après avoir perdu son corps véritable des cinq éléments, le niveau de cultivation de Wang Lin diminua, mais l'aura de massacre autour de lui devint plus pure encore !
 
 « Essence de restriction, sors de là !! »
 

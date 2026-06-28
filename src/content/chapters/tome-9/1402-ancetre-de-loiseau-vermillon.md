@@ -8,7 +8,7 @@ slug: ancetre-de-loiseau-vermillon
 ---
 Le vieil homme marmonna un instant, puis regarda Wang Lin avec haine tout en secouant la tête.
 
-« Puisque le Yang de son âme originelle est brisé, non seulement il ne pourra pas cultiver le sortilège de ce vieil homme, mais il lui sera bien plus difficile d'atteindre le royaume du Feu Éthéré que ceux dont le Yang est intact. Malheureux, malheureux ! » Le vieil homme soupira en observant Wang Lin qui était en pleine culture. Cependant, alors qu'il le regardait, ses yeux s'écarquillèrent soudainement et il s'exclama :
+« Puisque le Yang de son âme originelle est brisé, non seulement il ne pourra pas cultiver le sortilège de ce vieil homme, mais il lui sera bien plus difficile d'atteindre le royaume du Feu Éthéré que ceux dont le Yang est intact. Malheureux, malheureux ! » Le vieil homme soupira en observant Wang Lin qui était en pleine cultivation. Cependant, alors qu'il le regardait, ses yeux s'écarquillèrent soudainement et il s'exclama :
 
 « Quelque chose ne va pas... Le corps de ce petit gars... C'est... » Les yeux du vieil homme s'agrandirent et il s'approcha de Wang Lin. Une pointe d'excitation et d'incrédulité brillait dans son regard. Il décida simplement de poser son doigt sur le front de Wang Lin.
 
@@ -58,7 +58,7 @@ Le vieil homme fixa les cinq essences différentes flottant au-dessus de Wang Li
 
 Le clair de lune était intense et la brise légère continuait de souffler, faisant bruisser la végétation. La nuit passa lentement et l'aube finit par se lever, dissipant l'obscurité et le froid nocturnes.
 
-Après une nuit de culture, l'essence de feu dans le corps de Wang Lin était devenue bien plus forte. Cependant, il restait une barrière au quatrième éveil de l'Oiseau Vermillon que Wang Lin ne parvenait pas encore à franchir.
+Après une nuit de cultivation, l'essence de feu dans le corps de Wang Lin était devenue bien plus forte. Cependant, il restait une barrière au quatrième éveil de l'Oiseau Vermillon que Wang Lin ne parvenait pas encore à franchir.
 
 La Sélection des Anciens Déchus avait déjà commencé à l'aube.
 

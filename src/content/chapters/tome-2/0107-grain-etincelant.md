@@ -12,7 +12,7 @@ Après avoir rendu hommage à ses parents, l'esprit de Wang Lin n'était plus tr
 
 Sa première réflexion porta sur l'énergie spirituelle en son sein. Bien que celle-ci eût autrefois le pouvoir de geler, elle était loin de la puissance qu'elle affichait désormais. Ce point déconcertait profondément Wang Lin, et même Situ Nan ne parvenait pas à en saisir la raison.
 
-Cela prouvait que les Royaumes Ji, Dao et Shi avaient totalement disparu des pays de culture de rang 6.
+Cela prouvait que les Royaumes Ji, Dao et Shi avaient totalement disparu des pays de cultivation de rang 6.
 
 Cette augmentation soudaine de la puissance de son énergie spirituelle renforça quelque peu la confiance de Wang Lin. En explorant l'énergie qui circulait en lui, il ressentit soudain une étrange sensation : il semblait y avoir une substance supplémentaire dans son énergie spirituelle.
 
@@ -90,7 +90,7 @@ Le troisième et le quatrième grain fusionnèrent. Plus tard, Wang Lin rangea s
 
 Après avoir trié tous ses grains, plus d'un mois s'était écoulé. L'ouverture de la Vallée Jue Ming approchait.
 
-Wang Lin était assis en tailleur sur le sol. Après un moment de culture, il ouvrit les yeux et expulsa une lueur verte. La petite épée verte bourdonna en tournoyant autour de lui, comme si elle possédait sa propre intelligence. Wang Lin leva la main et l'épée se posa dans sa paume. En la touchant, il sentit son froid glacial.
+Wang Lin était assis en tailleur sur le sol. Après un moment de cultivation, il ouvrit les yeux et expulsa une lueur verte. La petite épée verte bourdonna en tournoyant autour de lui, comme si elle possédait sa propre intelligence. Wang Lin leva la main et l'épée se posa dans sa paume. En la touchant, il sentit son froid glacial.
 
 Cette petite épée verte avait été raffinée avec son sang ; ainsi, lorsque son énergie spirituelle avait changé, l'arme volante avait également acquis des attributs Ji.
 

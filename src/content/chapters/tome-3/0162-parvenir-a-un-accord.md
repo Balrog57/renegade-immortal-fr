@@ -18,11 +18,11 @@ Wang Lin réfléchit un instant, puis observa la cage d'éclairs qui l'entourait
 
 Le vieil homme marqua une pause avant de secouer la tête. « Ce n'est pas encore le moment d'en parler, mais ne vous inquiétez pas ; ce vieux monsieur ne vous demandera pas de venir pour rien. Si vous m'accompagnez, je vous offrirai une pilule de transformation terrestre ! »
 
-L'expression de Wang Lin resta calme, mais il fut très tenté. Il avait entendu parler de la pilule de transformation terrestre par Li Muwan et savait qu'elle était extrêmement rare. C'était une pilule utilisée pour aider à augmenter le niveau de culture d'un cran durant le stade de la Formation du Noyau. Elle offrait une forte chance d'élever un cultivateur du début de la Formation du Noyau au stade intermédiaire. Bien que les chances de passer du stade intermédiaire au stade tardif fussent moindres, elle augmenterait tout de même son énergie spirituelle et jetterait les bases de son avenir.
+L'expression de Wang Lin resta calme, mais il fut très tenté. Il avait entendu parler de la pilule de transformation terrestre par Li Muwan et savait qu'elle était extrêmement rare. C'était une pilule utilisée pour aider à augmenter le niveau de cultivation d'un cran durant le stade de la Formation du Noyau. Elle offrait une forte chance d'élever un cultivateur du début de la Formation du Noyau au stade intermédiaire. Bien que les chances de passer du stade intermédiaire au stade tardif fussent moindres, elle augmenterait tout de même son énergie spirituelle et jetterait les bases de son avenir.
 
-Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de culture du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Hou Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit se trouver au sommet du stade tardif de l'Âme Naissante, soit avoir déjà franchi le stade de la Formation de l'Âme.
+Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de cultivation du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Hou Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit se trouver au sommet du stade tardif de l'Âme Naissante, soit avoir déjà franchi le stade de la Formation de l'Âme.
 
-Avec un tel niveau de culture, le vieil homme aurait pu facilement imposer des restrictions à Wang Lin pour le menacer, ou même le transformer en une marionnette asservie à ses moindres ordres. Il ne semblait donc pas nécessaire qu'il cherche à marchander avec lui.
+Avec un tel niveau de cultivation, le vieil homme aurait pu facilement imposer des restrictions à Wang Lin pour le menacer, ou même le transformer en une marionnette asservie à ses moindres ordres. Il ne semblait donc pas nécessaire qu'il cherche à marchander avec lui.
 
 Wang Lin pensa secrètement : « Il doit y avoir un piège. » Cependant, il ne laissa paraître aucune anomalie. Après une courte réflexion, il fixa de nouveau le vieil homme et secoua la tête.
 
@@ -38,7 +38,7 @@ Le vieil homme fixa Wang Lin et jura intérieurement. S'il n'avait pas été imp
 
 Même s'il tentait d'utiliser des restrictions, toutes seraient annihilées dès l'entrée dans cet endroit. De plus, au moment où ils auraient besoin du sort de mort, si le gamin nourrissait la moindre rancœur, il pourrait facilement entraîner tout le monde vers la tombe.
 
-C'était précisément la raison pour laquelle il avait failli mourir lors de sa première incursion, mille ans auparavant. Il lui avait fallu un millénaire pour recouvrer sa culture et, bien qu'elle fût désormais légèrement supérieure à celle d'autrefois, il n'en pouvait éviter de frissonner chaque fois qu'il songeait à cet endroit.
+C'était précisément la raison pour laquelle il avait failli mourir lors de sa première incursion, mille ans auparavant. Il lui avait fallu un millénaire pour recouvrer sa cultivation et, bien qu'elle fût désormais légèrement supérieure à celle d'autrefois, il n'en pouvait éviter de frissonner chaque fois qu'il songeait à cet endroit.
 
 Par conséquent, il ne pouvait imposer aucune restriction à Wang Lin. En entendant les paroles de ce dernier, il se détendit un peu et, d'un geste de la main, relâcha la cage d'éclairs.
 
@@ -50,7 +50,7 @@ Le vieil homme déclara fermement : « Que voulez-vous ? Dites-le franchement. �
 
 Le vieil homme eut un rire bref. « Ce vieux monsieur ne vous mentira pas sur la dangerosité des lieux. Les cultivateurs du début de l'Âme Naissante ont 90 % de chances de mourir. Quant à ceux du stade intermédiaire, ils peuvent survivre avec un peu de chance. Seuls les cultivateurs du stade tardif ayant atteint le stade pseudo-Formation de l'Âme peuvent s'y déplacer en toute sécurité, mais même eux risquent la mort s'ils manquent de prudence. »
 
-« Cependant, bien que cet endroit soit périlleux, les richesses y sont immenses. Trésors magiques, pilules, méthodes de culture... on peut dire que tout ce que vous désirez s'y trouve. Il existe également la légendaire Pilule de Transformation de l'Âme. Avec une seule dose, vous pourriez devenir un cultivateur de la Transformation de l'Âme. »
+« Cependant, bien que cet endroit soit périlleux, les richesses y sont immenses. Trésors magiques, pilules, méthodes de cultivation... on peut dire que tout ce que vous désirez s'y trouve. Il existe également la légendaire Pilule de Transformation de l'Âme. Avec une seule dose, vous pourriez devenir un cultivateur de la Transformation de l'Âme. »
 
 « Quant aux dangers, ne vous inquiétez pas outre mesure. Votre sort de mort sera d'une utilité capitale lors de l'une des épreuves là-bas. Au moins jusqu'à ce moment-là, vous ne rencontrerez aucun péril. Après cela, tant que vous n'êtes pas trop gourmand et que vous savez patienter, vous serez naturellement téléporté à l'extérieur une fois le temps écoulé. »
 
@@ -58,9 +58,9 @@ Wang Lin écoutait, tout en pesant ses mots. Après ce discours, il n'en croyait
 
 « Je vois que vous venez d'atteindre le stade de la Formation du Noyau. Oubliez cela ; j'ai une Pilule de Formation de l'Âme Naissante que je vous offrirai si vous acceptez de m'accompagner. De plus, je promets de vous donner un trésor magique que je rapporterai de ce lieu. Qu'en dites-vous ? »
 
-Il avait déjà entendu parler de cette Pilule de Formation de l'Âme Naissante par Li Muwan. Elle pouvait légèrement augmenter les chances de réussir la formation d'une Âme Naissante. C'était une denrée extrêmement rare dans les pays de culture de rang 3, et toujours rare dans ceux de rang 4. Quant à sa recette, elle était le monopole des pays de rang 5.
+Il avait déjà entendu parler de cette Pilule de Formation de l'Âme Naissante par Li Muwan. Elle pouvait légèrement augmenter les chances de réussir la formation d'une Âme Naissante. C'était une denrée extrêmement rare dans les pays de cultivation de rang 3, et toujours rare dans ceux de rang 4. Quant à sa recette, elle était le monopole des pays de rang 5.
 
-Wang Lin réfléchit longuement. L'endroit mystérieux dont parlait le vieil homme l'intriguait. Il ne visait pas directement la pilule de Transformation de l'Âme, mais il espérait trouver des ressources pour atteindre le stade de l'Âme Naissante. Sans aide extérieure, il ignorait combien d'années de culture encore seraient nécessaires pour y parvenir.
+Wang Lin réfléchit longuement. L'endroit mystérieux dont parlait le vieil homme l'intriguait. Il ne visait pas directement la pilule de Transformation de l'Âme, mais il espérait trouver des ressources pour atteindre le stade de l'Âme Naissante. Sans aide extérieure, il ignorait combien d'années de cultivation encore seraient nécessaires pour y parvenir.
 
 Et s'il continuait à refuser, le vieil homme finirait par le tuer dans un accès de colère. Un seul chemin s'offrait à lui désormais.
 
@@ -80,7 +80,7 @@ Le vieil homme fronça les sourcils en fixant Wang Lin : « De quoi s'agit-il ? 
 
 Wang Lin eut une pensée soudaine et demanda : « Le senior a-t-il entendu parler du Sentier Divin du Sanctuaire du Dieu de la Guerre ? »
 
-Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, le petit voyou qui l'avait découverte avait provoqué un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
+Le vieil homme ricana. « La méthode de cultivation qui peut augmenter les chances de former son Âme Naissante... À l'époque, le petit voyou qui l'avait découverte avait provoqué un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de cultivation de rang 4 nommé Tian Gang. »
 
 L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Sentier Divin originel.
 
@@ -98,7 +98,7 @@ Feng Luan jeta un regard terrifié vers le vieil homme avant de dire calmement :
 
 Wang Lin articula lentement : « Le junior aimerait consulter le Sentier Divin. »
 
-Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois derniers jours, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
+Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois derniers jours, ils avaient commencé à entrevoir le niveau de cultivation de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
 
 À ce moment-là, un vieillard au visage rouge sortit de derrière Feng Luan. Il fixa Wang Lin d'un regard sérieux et déclara : « Puisque vous êtes un disciple de mon Sanctuaire du Dieu de la Guerre, il n'y a aucun problème à ce que vous le voyiez. Suivez-moi. » Sur ces mots, il jeta un coup d'œil furtif au vieil homme présent.
 

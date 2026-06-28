@@ -8,7 +8,7 @@ slug: leveil-en-plein-combat
 ---
 Parmi les trois sorts mortels, les deux premiers, le Doigt de la Mort et le Doigt Démoniaque, étaient fréquemment utilisés par Wang Lin. Leur puissance n'était pas suffisante pour menacer des cultivateurs Ascendants et ne pouvait servir qu'à subjuguer des cultivateurs de la Transformation de l'Âme.
 
-Cependant, lorsque Situ Nan utilisait le Doigt de la Mort ou le Doigt Démoniaque, leur puissance était terrifiante ; même des cultivateurs Ascendants auraient péri sous leurs assauts. Au-delà de la différence de niveau de culture entre Wang Lin et Situ Nan, résidait également l'essence même du Doigt de la Mort et du Doigt Démoniaque.
+Cependant, lorsque Situ Nan utilisait le Doigt de la Mort ou le Doigt Démoniaque, leur puissance était terrifiante ; même des cultivateurs Ascendants auraient péri sous leurs assauts. Au-delà de la différence de niveau de cultivation entre Wang Lin et Situ Nan, résidait également l'essence même du Doigt de la Mort et du Doigt Démoniaque.
 
 Ces trois sorts mortels ayant été créés par Situ Nan, ils étaient intrinsèquement de nature démoniaque. À moins de posséder un cœur démoniaque, il était impossible d'en maîtriser les essences.
 
@@ -74,7 +74,7 @@ Il ressemblait désormais à un démon de carnage. Tenant son épée de massacre
 
 Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux brillèrent : « Bien ! Tu es l'un des rares à avoir décidé d'attaquer durant mon Intention de Combat des Dix Effondrements ! Voyons si tu peux franchir les huit prochains effondrements et arriver jusqu'à moi ! »
 
-Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixu, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième !
+Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixu, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de cultivation, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième !
 
 Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche était un homme difficile à cerner, puisqu'il lui avait accordé le titre de commandante !
 

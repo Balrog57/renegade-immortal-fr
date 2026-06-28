@@ -12,7 +12,7 @@ Dès que Wang Lin aperçut Greed, même avec sa force mentale, il en fut stupéf
 
 Lorsqu'il regarda à nouveau, Greed s'était déjà échappé sans laisser de trace, laissant derrière lui mille cultivateurs abasourdis.
 
-Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Greed de briser la Formation du Royaume Scellé avec son niveau de culture, et pourtant il était là !
+Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Greed de briser la Formation du Royaume Scellé avec son niveau de cultivation, et pourtant il était là !
 
 La vitesse de Greed était également extrêmement rapide, ce qui surprit même Wang Lin. En un clin d'œil, il s'était déjà échappé de la planète, n'ayant même pas eu le temps de ranger ses trésors.
 
@@ -32,7 +32,7 @@ Une main gigantesque couvrit le ciel et descendit. Les 99 épées commencèrent 
 
 Après avoir saisi les 99 épées, Wang Lin ouvrit la bouche et cracha un flot d'énergie originelle. L'énergie balaya les épées comme le vent, et les empreintes du Sens Divin de Greed s'effondrèrent rapidement.
 
-Pendant que le Sens Divin de Greed était effacé des 99 épées, loin de la planète de culture, Greed s'échappait avec un regard paniqué, dans un état lamentable.
+Pendant que le Sens Divin de Greed était effacé des 99 épées, loin de la planète de cultivation, Greed s'échappait avec un regard paniqué, dans un état lamentable.
 
 Lorsqu'il vit Wang Lin, aucune pensée ne traversa son esprit ; il ne réfléchit même pas à fuir. Sa peur subconsciente de Wang Lin éclata et il s'enfuit immédiatement à pleine puissance.
 
@@ -46,15 +46,15 @@ Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva so
 
 Cependant, à cet instant précis, son expression changea radicalement. Son corps trembla et ses pupilles se rétractèrent.
 
-« Le Sens Divin sur les 99 épées a été effacé par la force !! Bon sang, quel est le niveau de culture de Wang Lin pour être capable d'effacer mon Sens Divin ainsi ?! » Greed marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
+« Le Sens Divin sur les 99 épées a été effacé par la force !! Bon sang, quel est le niveau de cultivation de Wang Lin pour être capable d'effacer mon Sens Divin ainsi ?! » Greed marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
 
 Des pensées fulgurèrent dans ses yeux et il chargea vers Wang Lin... Cependant, il ne fit que trois pas avant de s'arrêter, le visage livide, saisi par le choc.
 
 « Le Sens Divin des Neuf Tablettes de Protection Osseuse a... a été effacé par la force !! J'ai trouvé ces tablettes à l'extérieur de cette tombe mystérieuse, et elles n'avaient pas porté d'empreinte de Sens Divin depuis des dizaines de milliers d'années. Mon Sens Divin y était totalement intégré, personne ne devrait pouvoir l'effacer si facilement... Comment a-t-il pu effacer mon Sens Divin en un temps si court ?! »
 
-Greed commença à hésiter. Il pressentait que la culture de Wang Lin n'était pas simple !
+Greed commença à hésiter. Il pressentait que la cultivation de Wang Lin n'était pas simple !
 
-« Je me déteste d'être parti trop tôt. Je n'ai pas eu le temps de vérifier son niveau de culture... Cependant, même s'il a pris les tablettes et les épées volantes, j'ai encore le Fourneau Impérial, la Lance du Démon de Brume et l'Esprit de l'Arbre de Sépulture Céleste ! Il ne pourra pas les ravir en si peu de temps ! » Greed afficha une expression féroce tout en volant sur le chemin qu'il avait emprunté.
+« Je me déteste d'être parti trop tôt. Je n'ai pas eu le temps de vérifier son niveau de cultivation... Cependant, même s'il a pris les tablettes et les épées volantes, j'ai encore le Fourneau Impérial, la Lance du Démon de Brume et l'Esprit de l'Arbre de Sépulture Céleste ! Il ne pourra pas les ravir en si peu de temps ! » Greed afficha une expression féroce tout en volant sur le chemin qu'il avait emprunté.
 
 Pourtant... Après seulement trois respirations, un bruit de craquement résonna dans le corps de Greed. Il cracha du sang, son visage devint livide et son expression changea radicalement !
 

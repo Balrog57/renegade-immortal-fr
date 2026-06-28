@@ -110,7 +110,7 @@ Après un moment de réflexion silencieuse, Wang Lin regarda l'Omniscient et dem
 
 « Quel est ce pont ? » Wang Lin leva la main et désigna le pont reliant le ciel et la terre derrière la silhouette colossale de l'Omniscient.
 
-« Le Pont du Piétinement Céleste de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement Céleste que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez l'Omniscient, mais il ne parvenait pas à en saisir la cause.
+« Le Pont du Piétinement Céleste de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement Céleste que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de cultivation atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez l'Omniscient, mais il ne parvenait pas à en saisir la cause.
 
 Wang Lin sourit, regarda l'Omniscient et dit calmement : « Vous hésitez, vous vous demandez pourquoi aucune distorsion n'apparaît, contrairement à ce qui se produit lorsqu'un dormeur est sur le point de s'éveiller. »
 

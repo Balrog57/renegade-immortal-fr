@@ -40,7 +40,7 @@ Le jeune homme sauta du pilier de bois, suivi par son cercueil.
 
 Sans un mot, Wang Lin le suivit.
 
-En chemin, le jeune homme inspectait secrètement Wang Lin. Plus il l'observait, plus son respect grandissait. Après tout, la force est la seule loi dans le monde de la culture ; et face au niveau d'Établissement des Fondations de Wang Lin, il ne pouvait qu'être impressionné.
+En chemin, le jeune homme inspectait secrètement Wang Lin. Plus il l'observait, plus son respect grandissait. Après tout, la force est la seule loi dans le monde de la cultivation ; et face au niveau d'Établissement des Fondations de Wang Lin, il ne pouvait qu'être impressionné.
 
 Adai, qui marchait derrière Wang Lin, captivait pourtant l'essentiel de l'attention du jeune homme.
 
@@ -50,7 +50,7 @@ Un cadavre se trouvait dans le cercueil. Le corps, semblable à du bois sec, sem
 
 Le jeune homme sembla s'en apercevoir et frappa le cercueil. Le cadavre referma les yeux et le garçon sourit : « Senior, ce cadavre-poupée m'a été offert par mon maître. Il l'a obtenu sur le champ de bataille du monde extérieur. Il est extrêmement sensible au sens divin et déborde d'intention meurtrière. Il m'a fallu énormément de temps pour réussir à le raffiner. »
 
-Wang Lin hocha la tête et répondit : « Votre cadavre-poupée possède un niveau de culture de l'étape initiale de l'Établissement des Fondations. Pas mal. »
+Wang Lin hocha la tête et répondit : « Votre cadavre-poupée possède un niveau de cultivation de l'étape initiale de l'Établissement des Fondations. Pas mal. »
 
 En entendant ces mots, le jeune homme fut secrètement stupéfait et son respect pour Wang Lin s'en trouva décuplé. Il fallait admettre que, bien que le cercueil fût conçu pour occulter le sens divin, Wang Lin avait été capable de voir clair instantanément. Manifestement, ce n'était pas un cultivateur ordinaire de l'Établissement des Fondations ; peut-être même un expert du stade avancé.
 
@@ -118,7 +118,7 @@ Le jade émit quelques éclats lumineux avant de s'engouffrer rapidement dans l'
 
 Une fois l'acte accompli, Mu Rong reporta son attention sur Adai. Mais avant qu'il ne puisse parler, Wang Lin, contemplant les flammes bleues sur les piliers avec un air surpris, intervint : « Frère Mu, ces flammes Yin contiennent également de l'énergie Yan. Elles ne semblent pas ordinaires. »
 
-Mu Rong eut un rire léger : « Frère Wang, cette Flamme du Seigneur Bleu a été créée en fusionnant les noyaux de plusieurs cultivateurs de la Formation du Noyau issus des sectes orthodoxes, il y a des centaines d'années. Après avoir été affinées par l'ancêtre Ye, elles sont devenues des trésors pour la secte des cadavres. Elles soutiennent grandement notre culture et sont particulièrement bénéfiques pour nos cadavres-poupées. »
+Mu Rong eut un rire léger : « Frère Wang, cette Flamme du Seigneur Bleu a été créée en fusionnant les noyaux de plusieurs cultivateurs de la Formation du Noyau issus des sectes orthodoxes, il y a des centaines d'années. Après avoir été affinées par l'ancêtre Ye, elles sont devenues des trésors pour la secte des cadavres. Elles soutiennent grandement notre cultivation et sont particulièrement bénéfiques pour nos cadavres-poupées. »
 
 Wang Lin fixa la flamme bleue. D'un geste de la main, il attira un fragment de la flamme vers lui. Il l'observa, puis y injecta une partie de son énergie Yin. Dans un crépitement, la flamme se mua en une petite sphère bleue flottant au creux de sa paume.
 

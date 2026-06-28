@@ -28,7 +28,7 @@ La Secte Dong Lin comptait 321 lignées, et chaque lignée envoyait trois à cin
 
 Une compétition impliquant plus de mille personnes prendrait du temps. C'était aussi le rare moment où la secte s'animait. La Secte Dong Lin était trop vaste pour que tout le monde se connaisse ; la compétition était donc une excellente occasion de faire des rencontres.
 
-Ce jour-là, le maître de Su Dao sortit de sa retraite de culture. Il convoqua tous les disciples et en sélectionna trois pour participer à la compétition. Wang Lin et Zhou Li furent naturellement choisis. La troisième personne était une femme d'une grande beauté, bien qu'elle ne sourie pas.
+Ce jour-là, le maître de Su Dao sortit de sa retraite de cultivation. Il convoqua tous les disciples et en sélectionna trois pour participer à la compétition. Wang Lin et Zhou Li furent naturellement choisis. La troisième personne était une femme d'une grande beauté, bien qu'elle ne sourie pas.
 
 Cette femme s'appelait Qin Mei. Le Souverain Céleste aux Sept Couleurs gardait des souvenirs profonds de cette femme, teintés d'une certaine admiration. Cependant, après cette compétition, elle deviendrait la partenaire de Dao de Zhou Li, tranchant ainsi les pensées de Su Dao.
 

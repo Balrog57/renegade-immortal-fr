@@ -74,7 +74,7 @@ En entendant cela, la petite fille sourit immédiatement, l'air très fière.
 
 « Oui, oui, oui. Le Grand Empyrean Gemini contrôle le cours du destin. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
 
-Bien que sa culture fût limitée, lorsque le Grand Empyrean Gemini avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
+Bien que sa cultivation fût limitée, lorsque le Grand Empyrean Gemini avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
 
 À l'époque, il n'était qu'un Empyrean Exalt inconnu sous les ordres du Grand Empyrean Gemini, mais aujourd'hui, il était le seul fidèle restant.
 

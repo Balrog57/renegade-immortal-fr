@@ -14,7 +14,7 @@ Après que la Pilule de l'Âme Sanguine a absorbé une trace de sens divin et de
 
 Autrefois, Yao Xixue avait utilisé cette fonction !
 
-Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant. Bien que la culture du vieil homme de trente pieds de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
+Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant. Bien que la cultivation du vieil homme de trente pieds de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
 
 Il y avait aussi cette existence mystérieuse dans la tour noire ; ainsi, même s'il avait utilisé le trésor salvateur, il lui aurait été difficile de rester en vie. C’est pourquoi Wang Lin avait décidé de tenter le tout pour le tout avec la Pilule de l'Âme Sanguine après avoir envisagé d'innombrables possibilités !
 
@@ -32,7 +32,7 @@ Il sortit d'une téléportation et continua de voler vers la ville des Démons C
 
 Wang Lin pensa secrètement : « L'affaire d'il y a dix ans a été retardée par ma percée au stade Ascendant. Cependant, cet événement était extrêmement important, je crois donc que le Démon Ancestral ne reviendra pas sur sa parole. » Il vola encore plus vite. Il restait quelques vestiges du Fruit de l'Ascension Céleste dans son âme originelle et, maintenant qu'il était lucide, il pouvait s'en débarrasser facilement. Pourtant, Wang Lin ne le fit pas, car il devait le garder comme recours au cas où la tour noire ne serait pas essentielle et que l'existence à l'intérieur pourrait toujours l'attaquer par son sens divin !
 
-« Si c'est vraiment le cas, alors je dois être prêt à vivre la vie d'un fugitif. » Wang Lin poussa un soupir. Lui et l'existence dans la tour noire n'avaient aucun grief antérieur. C'était cette entité qui l'avait attaqué le premier, mais il n'y a ni bien ni mal dans le monde de la culture ; seule la force compte.
+« Si c'est vraiment le cas, alors je dois être prêt à vivre la vie d'un fugitif. » Wang Lin poussa un soupir. Lui et l'existence dans la tour noire n'avaient aucun grief antérieur. C'était cette entité qui l'avait attaqué le premier, mais il n'y a ni bien ni mal dans le monde de la cultivation ; seule la force compte.
 
 En sortant d'une téléportation, Wang Lin fut surpris de constater que l'énergie spirituelle céleste qu'il avait épuisée était immédiatement régénérée. Cela signifiait qu'il pouvait utiliser la grande téléportation à plusieurs reprises.
 

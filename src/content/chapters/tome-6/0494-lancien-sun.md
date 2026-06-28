@@ -32,25 +32,25 @@ Wang Lin restait là, le visage impassible, observant froidement chaque disciple
 
 Parmi les disciples des six autres divisions, il n'en connaissait que trois. L'un d'eux était Sima Rufeng, classé troisième de la Division Bleue. Il se trouvait au sommet du stade avancé de la Transformation de l'Âme et ne lui manquait qu'une étape pour atteindre le stade Ascendant !
 
-L'autre était un homme nommé Wang, de la Division Verte. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de culture était supérieur à celui de Wang Lin ; il se trouvait à une demi-étape du stade Ascendant.
+L'autre était un homme nommé Wang, de la Division Verte. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de cultivation était supérieur à celui de Wang Lin ; il se trouvait à une demi-étape du stade Ascendant.
 
 Outre ces deux-là, il y avait une autre personne qui semblait très familière à Wang Lin. C'était l'homme d'âge moyen qui s'était battu contre Chi Hu et qui avait utilisé le cristal d'intention meurtrière.
 
-À l'époque, la culture de cet homme n'avait pas encore atteint le stade de la Transformation de l'Âme, mais il était désormais au stade avancé de la Transformation de l'Âme. Cet homme occupait la quatrième position dans la Division Orange et regardait lui aussi Wang Lin.
+À l'époque, la cultivation de cet homme n'avait pas encore atteint le stade de la Transformation de l'Âme, mais il était désormais au stade avancé de la Transformation de l'Âme. Cet homme occupait la quatrième position dans la Division Orange et regardait lui aussi Wang Lin.
 
 Au moment où leurs regards se croisèrent, l'homme afficha une expression confuse, comme s'il reconnaissait Wang Lin, avant d'esquisser un sourire étrange.
 
-Wang Lin prit une profonde inspiration. À l'époque, il ne savait que peu de choses sur la Secte du Destin Céleste, mais il était désormais certain que, dans le Royaume Céleste, cet homme avait dissimulé son niveau de culture.
+Wang Lin prit une profonde inspiration. À l'époque, il ne savait que peu de choses sur la Secte du Destin Céleste, mais il était désormais certain que, dans le Royaume Céleste, cet homme avait dissimulé son niveau de cultivation.
 
-Même à présent, Wang Lin pensait qu'il cachait sa puissance, mais l'écart entre leurs niveaux de culture était si immense que Wang Lin ne parvenait pas à percer son mystère.
+Même à présent, Wang Lin pensait qu'il cachait sa puissance, mais l'écart entre leurs niveaux de cultivation était si immense que Wang Lin ne parvenait pas à percer son mystère.
 
-Il scruta un à un tous les disciples des six autres divisions. Il ne parvenait pas à percevoir le niveau de culture de plus de la moitié d'entre eux. Bien qu'il puisse déceler quelques indices, ses suppositions ne reposaient que sur les traces résiduelles laissées lorsqu'ils dissimulaient leur puissance.
+Il scruta un à un tous les disciples des six autres divisions. Il ne parvenait pas à percevoir le niveau de cultivation de plus de la moitié d'entre eux. Bien qu'il puisse déceler quelques indices, ses suppositions ne reposaient que sur les traces résiduelles laissées lorsqu'ils dissimulaient leur puissance.
 
 « La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Violette, pourrait facilement balayer la planète Suzaku. Même si Zhuque Zi possédait le sceau du titre, il ne ferait pas le poids ! »
 
 L'expression de Wang Lin était normale, mais son cœur était sombre.
 
-Une fois les disciples principaux des sept divisions arrivés, les disciples ordinaires s'envolèrent à leur suite. Tous n'avaient pas le droit de chercher le Dao ; seuls ceux dotés d'un talent particulier ou d'un niveau de culture élevé étaient autorisés à écouter l'enseignement de près.
+Une fois les disciples principaux des sept divisions arrivés, les disciples ordinaires s'envolèrent à leur suite. Tous n'avaient pas le droit de chercher le Dao ; seuls ceux dotés d'un talent particulier ou d'un niveau de cultivation élevé étaient autorisés à écouter l'enseignement de près.
 
 Un par un, les disciples ordinaires des sept divisions apparurent pour se tenir derrière les disciples principaux. Leur nombre était immense, formant un vaste éventail derrière les membres de l'élite.
 
@@ -68,7 +68,7 @@ La Quatrième Sœur soupira et demanda : « Sais-tu pourquoi ? »
 
 « Le problème principal est que la Division Violette est en proie à trop de luttes intestines, et la position de disciple véritable change trop souvent. Contrairement aux six autres divisions où des disciples véritables ont régné pendant plus de mille ans. En conséquence, la Division Violette a progressivement décliné et n'a plus la vigueur qu'elle possédait à l'époque du jeune frère Sun Yun. » La Quatrième Sœur laissa échapper un amer soupir et se tut.
 
-Une fois que tous les disciples ordinaires des sept divisions furent apparus, les invités venus pour la célébration se tenaient encore plus loin du centre. Pour ceux qui venaient chercher le Dao, leur niveau de culture ou leur rang n'avaient aucune importance ; tant qu'ils participaient à la célébration, ils étaient autorisés à être présents pour l'enseignement.
+Une fois que tous les disciples ordinaires des sept divisions furent apparus, les invités venus pour la célébration se tenaient encore plus loin du centre. Pour ceux qui venaient chercher le Dao, leur niveau de cultivation ou leur rang n'avaient aucune importance ; tant qu'ils participaient à la célébration, ils étaient autorisés à être présents pour l'enseignement.
 
 À mesure que les gens arrivaient, les dix mille kilomètres environnants se remplissaient progressivement de cultivateurs.
 
@@ -88,7 +88,7 @@ Après eux vinrent les invités. Parmi eux, certains criaient avec force tandis 
 
 Bien que le vieil homme parût lent, il ne lui fallut que trois respirations pour atteindre le ciel au-dessus d'eux. Observant la foule des cultivateurs, l'homme esquissa un léger sourire et dit calmement : « Moi, l'Omniscient, je suis capable de comprendre les cieux parce que j'ai cultivé pendant une très longue période. Aujourd'hui, je vais vous permettre de faire l'expérience de certaines des illuminations que j'ai reçues. Le Dao de ce vieux est celui de suivre le destin des cieux. Si mes propos contiennent des erreurs, j'espère que vous saurez me pardonner ! »
 
-Arrivé à ce point, il s'arrêta soudainement et leva la tête pour scruter le vide au-dessus de lui. Il eut un mince sourire et ajouta : « Cependant, avant cela, laissons mon vieil ami de l'Alliance de Culture s'exprimer en premier. »
+Arrivé à ce point, il s'arrêta soudainement et leva la tête pour scruter le vide au-dessus de lui. Il eut un mince sourire et ajouta : « Cependant, avant cela, laissons mon vieil ami de l'Alliance de Cultivation s'exprimer en premier. »
 
 Dès que l'Omniscient eut prononcé ces mots, un grand silence s'installa, et tous les regards se tournèrent vers le vide. Les puissants cultivateurs, en particulier, devinrent immédiatement vigilants et affichèrent des expressions de surprise.
 
@@ -128,7 +128,7 @@ L'Omniscient sourit sans rien répondre. Au lieu de cela, il parcourut les culti
 
 Sur ce, l'Omniscient agita ses manches et s'assit. Au moment où il prit place, un nuage apparut sous lui.
 
-L'homme d'âge moyen venu de l'Alliance de Culture s'assit également à ses côtés. Il prêta une attention soutenue à l'Omniscient, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule ; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
+L'homme d'âge moyen venu de l'Alliance de Cultivation s'assit également à ses côtés. Il prêta une attention soutenue à l'Omniscient, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule ; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
 
 Les pupilles de Wang Lin se rétractèrent. Une telle vitesse n'était comparable qu'à celle de la lame demi-lunaire à pleine puissance.
 

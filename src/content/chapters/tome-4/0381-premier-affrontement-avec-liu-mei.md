@@ -14,7 +14,7 @@ Les yeux de Wang Lin s'illuminèrent et il agita la main. Une série de restrict
 
 Ce jade céleste était incomplet, mais l'énergie céleste qu'il dégageait n'était guère différente de celle d'auparavant.
 
-« Maintenant que ma culture a retrouvé le stade intermédiaire de l'Âme Naissante, je peux avaler un autre morceau de jade céleste pour tenter de briser la marque du thé et le sceau en mon corps. » Wang Lin prit une profonde inspiration, rompit un petit fragment du jade et le mit dans sa bouche.
+« Maintenant que ma cultivation a retrouvé le stade intermédiaire de l'Âme Naissante, je peux avaler un autre morceau de jade céleste pour tenter de briser la marque du thé et le sceau en mon corps. » Wang Lin prit une profonde inspiration, rompit un petit fragment du jade et le mit dans sa bouche.
 
 Une douleur inimaginable se propagea soudainement dans tout son corps.
 
@@ -58,7 +58,7 @@ Juin n'avait peut-être aucune signification particulière pour la plupart des g
 
 La compétition entre les disciples de la secte extérieure allait avoir lieu ce mois-ci. À l'issue d'une série de duels, un disciple de la secte extérieure deviendrait un disciple de la secte intérieure.
 
-Wang Lin sortit de sa culture en méditation et ouvrit les yeux. Son regard était limpide, mais si l'on y regardait de plus près, on aurait dit qu'ils brillaient comme un ciel étoilé.
+Wang Lin sortit de sa cultivation en méditation et ouvrit les yeux. Son regard était limpide, mais si l'on y regardait de plus près, on aurait dit qu'ils brillaient comme un ciel étoilé.
 
 La marque du thé sur son visage s'était beaucoup estompée et il n'en restait que huit fragments. Ces huit morceaux constituaient également les points clés du sceau de Sun Tai.
 
@@ -86,7 +86,7 @@ Le regard de cette femme était complexe ; il était empreint de confusion, de d
 
 « Ascendant... Je me demande quand j'atteindrai ce stade ! Pour l'instant, le sceau n'est pas levé, je n'ai donc même aucun espoir d'atteindre la Transformation de l'Âme... » Wang Lin soupira doucement.
 
-« Tian Yunzi m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de culture actuelle ; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal planétaire qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés ; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de Tian Yunzi... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
+« Tian Yunzi m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de cultivation actuelle ; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal planétaire qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés ; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de Tian Yunzi... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
 
 « Qui est cette femme ? » Les yeux de Wang Lin s'illuminèrent et il plana vers la grotte de l'inconnue.
 

@@ -8,9 +8,9 @@ slug: maitre-long-pan
 ---
 Chapitre 1550 - Maître Long Pan !
 
-Wang Lin contemplait la gigantesque planète de culture tandis que les cultivateurs du Royaume Extérieur s'agenouillaient, tremblants. Il paraissait calme, mais les étoiles démoniaques anciennes dans son œil droit commençaient à scintiller. La force de rejet se manifesta, mais il continua de la réprimer, de sorte que personne ne remarqua rien.
+Wang Lin contemplait la gigantesque planète de cultivation tandis que les cultivateurs du Royaume Extérieur s'agenouillaient, tremblants. Il paraissait calme, mais les étoiles démoniaques anciennes dans son œil droit commençaient à scintiller. La force de rejet se manifesta, mais il continua de la réprimer, de sorte que personne ne remarqua rien.
 
-Tout en contenant cette force de rejet à l'intérieur de lui, Wang Lin observa la vaste planète de culture. Une restriction entourait l'astre. Ce devait être la seconde porte menant au Quartier Général de l'Alliance après le vortex !
+Tout en contenant cette force de rejet à l'intérieur de lui, Wang Lin observa la vaste planète de cultivation. Une restriction entourait l'astre. Ce devait être la seconde porte menant au Quartier Général de l'Alliance après le vortex !
 
 Cette restriction était extrêmement complexe ; elle utilisait la douzaine de planètes environnantes pour former une formation créant une boucle. Cela donnait à la planète des propriétés similaires à celles d'un cultivateur, lui permettant ainsi de cultiver !
 
@@ -18,7 +18,7 @@ Wang Lin n'avait jamais rien vu de tel, et ses yeux s'illuminèrent à cette dé
 
 « Cette planète est très intéressante... Maître Flamespark, lorsque vous étiez un Ancien de l'Alliance, aviez-vous entendu parler de cet astre ? »
 
-Maître Flamespark sortit de sa torpeur causée par le choc précédent. Il devint encore plus respectueux et répondit rapidement : « Le disciple a entendu dire certaines choses. Cette planète de culture n'est pas naturelle ; elle a été raffinée par l'Alliance en utilisant de nombreuses autres planètes. Cultiver sur son sol ne demande que la moitié des efforts ! »
+Maître Flamespark sortit de sa torpeur causée par le choc précédent. Il devint encore plus respectueux et répondit rapidement : « Le disciple a entendu dire certaines choses. Cette planète de cultivation n'est pas naturelle ; elle a été raffinée par l'Alliance en utilisant de nombreuses autres planètes. Cultiver sur son sol ne demande que la moitié des efforts ! »
 
 « Sous le sort inconnu du Maître Long Pan, elle est devenue la seconde formation de l'Alliance. On disait que cette formation était bien plus puissante que le vortex... Cependant, les étrangers étaient rarement autorisés à venir ici, le disciple n'a donc jamais pu constater sa véritable puissance. »
 
@@ -74,11 +74,11 @@ Tous les cultivateurs furent dévorés, leurs âmes intégrant désormais le roy
 
 Les épines acérées autour de son corps s'allongèrent, et la corne unique sur sa tête gagna un pouce de hauteur.
 
-Dans un rugissement, le dragon noir grandit également. Son corps, qui mesurait désormais des centaines de milliers de pieds, fonça vers la planète de culture.
+Dans un rugissement, le dragon noir grandit également. Son corps, qui mesurait désormais des centaines de milliers de pieds, fonça vers la planète de cultivation.
 
 Sa vitesse était telle que des images rémanentes se formaient derrière lui. Il atteignit la planète en un instant et percuta sa surface dans un fracas tonitruant.
 
-Des grondements de tonnerre éclatèrent. La gigantesque planète de culture trembla, puis les petites planètes environnantes semblèrent être projetées vers le dragon noir par une force invisible.
+Des grondements de tonnerre éclatèrent. La gigantesque planète de cultivation trembla, puis les petites planètes environnantes semblèrent être projetées vers le dragon noir par une force invisible.
 
 Un vacarme assourdissant retentit lorsque le dragon heurta la planète ; une onde de choc se propagea violemment. Le dragon noir fut ébranlé et repoussé à une distance considérable.
 
@@ -96,13 +96,13 @@ Le corps éthéré du vieillard était lié à la planète ; c'était comme si l
 
 En voyant le vieillard aux cheveux blancs, les yeux de Maître Flamespark s'écarquillèrent et il s'exclama : « Maître Long Pan !!! »
 
-De loin, le Quartier Général de l'Alliance de Culture offrait un spectacle terrifiant. La planète géante ressemblait à un corps sans jambes, et les deux lignes de planètes servaient de bras !
+De loin, le Quartier Général de l'Alliance de Cultivation offrait un spectacle terrifiant. La planète géante ressemblait à un corps sans jambes, et les deux lignes de planètes servaient de bras !
 
 Quant au vieil homme connecté à la planète, il en était la tête !
 
-Quel genre de planète de culture était-ce ? C'était manifestement une personne !
+Quel genre de planète de cultivation était-ce ? C'était manifestement une personne !
 
-« Quelle audace ! Il a fusionné son âme d'origine et son âme avec la planète de culture. D'une certaine manière, il a réussi à atteindre l'immortalité ! » Wang Lin avait depuis longtemps pressenti une anomalie sur cette planète. C'est pour cela qu'il avait permis au dragon noir de porter l'attaque ; et à cet instant précis, il comprenait enfin tout !
+« Quelle audace ! Il a fusionné son âme d'origine et son âme avec la planète de cultivation. D'une certaine manière, il a réussi à atteindre l'immortalité ! » Wang Lin avait depuis longtemps pressenti une anomalie sur cette planète. C'est pour cela qu'il avait permis au dragon noir de porter l'attaque ; et à cet instant précis, il comprenait enfin tout !
 
 Le maître de Maître Zhong Xuan, le Maître Long Pan, devait être arrivé au crépuscule de sa vie lorsqu'il eut conçu cette idée prodigieuse. Il avait également réussi à la perfectionner pour la concrétiser !
 
@@ -112,11 +112,11 @@ Maître Flamespark observait la scène, l'esprit vif, et après un instant de r�
 
 « Je n'ai rencontré le Maître Long Pan qu'une seule fois. Je pensais qu'il était déjà mort. Je ne m'attendais pas... je ne m'attendais pas à une telle chose ! »
 
-Les yeux de Wang Lin s'illuminèrent et il pointa l'avant du doigt. Le dragon noir, après avoir été repoussé, commença à lutter en poussant un rugissement. Il se précipita frénétiquement avec son corps colossal et rugit face à la planète de culture !
+Les yeux de Wang Lin s'illuminèrent et il pointa l'avant du doigt. Le dragon noir, après avoir été repoussé, commença à lutter en poussant un rugissement. Il se précipita frénétiquement avec son corps colossal et rugit face à la planète de cultivation !
 
 Son cri s'intensifia et, alors qu'il se rapprochait, il ouvrit la gueule. Son royaume des Flammes Joss se déploya, libérant une multitude d'Âmes de Flamme Joss vers la planète !
 
-Cependant, à cet instant précis, un changement stupéfiant se produisit ! Un rugissement lugubre et déchaîné s'éleva de la planète de culture. Ce cri était empreint de folie et d'une intention meurtrière indescriptible !
+Cependant, à cet instant précis, un changement stupéfiant se produisit ! Un rugissement lugubre et déchaîné s'éleva de la planète de cultivation. Ce cri était empreint de folie et d'une intention meurtrière indescriptible !
 
 Seuls ceux ayant massacré une multitude d'êtres au cours de leur existence pouvaient posséder une telle intention. Cette aura était clairement l'essence même du massacre !
 

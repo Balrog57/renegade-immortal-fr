@@ -2,7 +2,7 @@
 n: 922
 title: Ji Xiantian
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 922 - Ji Xiantian
 slug: ji-xiantian
 ---
@@ -40,7 +40,7 @@ Cependant, la contre-attaque de Maître Flammespark et l'intervention des 18 Lou
 
 Désormais, les cultivateurs d'Allheaven n'étaient plus isolés. Il leur suffisait de tenir jusqu'à l'arrivée des renforts pour que le camp d'Allheaven reprenne un avantage absolu !
 
-L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Flammespark agir à sa guise ? Pourtant, le Dieu de Sang était un être doté d'un niveau de culture extrêmement élevé. Tandis qu'ils se affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
+L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Flammespark agir à sa guise ? Pourtant, le Dieu de Sang était un être doté d'un niveau de cultivation extrêmement élevé. Tandis qu'ils se affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
 
 Ces affrontements généraient d'immenses ondes de choc. Tout cultivateur touché par ces remous mourait instantanément !
 
@@ -54,9 +54,9 @@ Un rire jaillit du pilier de lumière et une silhouette en émergea ! C'était u
 
 « Maître Flammespark, votre nom m'est connu depuis longtemps ! Ce vieil homme est l'un des nouveaux saints de l'Alliance : le Saint Démon du Dragon Céleste ! »
 
-Les yeux de Maître Flammespark s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon Céleste.
+Les yeux de Maître Flammespark s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de cultivation d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon Céleste.
 
-« Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire de la Rupture du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial de la Rupture du Nirvana ; ils doivent donc unir leurs forces pour espérer tenir ! Pourtant, ces individus ne sont pas les plus puissants de cette bataille ! » Les yeux de Maître Flammespark brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon Céleste à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement : « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore ? »
+« Les quatre saints de l'Alliance de la Cultivation sont tous au stade intermédiaire de la Rupture du Nirvana. La cultivation du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial de la Rupture du Nirvana ; ils doivent donc unir leurs forces pour espérer tenir ! Pourtant, ces individus ne sont pas les plus puissants de cette bataille ! » Les yeux de Maître Flammespark brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon Céleste à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement : « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore ? »
 
 Tandis que Maître Flammespark parlait, il avança pour se placer aux côtés des 18 Lou Fu. Puis, de ses deux doigts, il pointa impitoyablement vers l'avant.
 
@@ -86,7 +86,7 @@ Il devint alors difficile de prédire le vainqueur. Toutefois, à petite échell
 
 Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux camps subirent des pertes. Au loin, un cultivateur de l'Alliance cracha du sang et tenta de battre en retraite. Mais avant même d'avoir parcouru cent pieds, sa poitrine fut transpercée par une épée volante lancée au hasard. Son âme d'origine s'échappa alors, mais fut immédiatement frappée par les ondes d'un sort, provoquant son effondrement définitif.
 
-Les yeux de trois cultivateurs d'Allheaven devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
+Les yeux de trois cultivateurs d'Allheaven devinrent rouges alors qu'ils poussaient leur cultivation à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
 
 Le rayon de lumière se mua en une silhouette humaine au visage sombre. Alors qu'il s'apprêtait à poursuivre son action après s'être léché les lèvres, une lueur sanglante jaillit. Il poussa un cri et tout son corps se changea en sang. C'était le Dieu de Sang et le Saint Démon du Noir qui passaient par là au milieu de leur propre combat.
 
@@ -106,7 +106,7 @@ Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants,
 
 Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que, malgré sa petite taille, son pomme d'Adam était bien visible ! C'était manifestement un homme !
 
-Le regard de Maître Flammespark resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement : « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort ! »
+Le regard de Maître Flammespark resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement : « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Cultivation. Peu importe si le ciel se couvre de sang après ma mort ! »
 
 À ce moment précis, dans la région occidentale, avec le Serpent aux Yeux de Lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
 

@@ -92,7 +92,7 @@ L'homme d'âge moyen était le plus faible des trois, et le général qu'il avai
 
 Terrifié, l'homme d'âge moyen n'eut aucune chance de riposter. Alors que la main de Wang Lin descendait, le général doré poussa un cri déchirant et son armure dorée vola en éclats.
 
-Dès l'effondrement, Wang Lin ouvrit la bouche pour dévorer. L'âme de Wang Lin était une âme dévoreuse, et son avatar possédait naturellement cette capacité. Bien que sa culture fût supprimée, cette aptitude liée à l'âme demeurait. Il ne pouvait pas dévorer le général en armure blanche, mais il pouvait dévorer le plus faible des généraux dorés !
+Dès l'effondrement, Wang Lin ouvrit la bouche pour dévorer. L'âme de Wang Lin était une âme dévoreuse, et son avatar possédait naturellement cette capacité. Bien que sa cultivation fût supprimée, cette aptitude liée à l'âme demeurait. Il ne pouvait pas dévorer le général en armure blanche, mais il pouvait dévorer le plus faible des généraux dorés !
 
 Le général doré poussa un cri de désespoir, mais cela ne fit pas vaciller la guerre. Après avoir été dévoré par Wang Lin, son corps fut enveloppé d'un gaz noir. Son armure brisée se reforma, bien plus puissante qu'auparavant.
 

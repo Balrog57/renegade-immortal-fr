@@ -18,11 +18,11 @@ C'était comme se tenir au bord d'une rivière et regarder l'autre rive. Sous vo
 
 Les yeux de l'Ancien Démon Ta Jia brillèrent d'un rouge sinistre tandis qu'il fixait l'Impératrice Fleur avec avidité et soif de sang, puis il éclata de rire. « J'ai souvent entendu dire que la fortune inondait Qing Lin et que ses huit concubines impériales étaient toutes des femmes d'une beauté exceptionnelle. En particulier, l'Impératrice Fleur surpassait toutes les autres. On disait qu'elle venait du Royaume Céleste du Vent et qu'elle était la petite sœur de l'Empereur Céleste du Vent, Lan Yun. À l'époque, j'avais manqué l'occasion de la voir, mais en te contemplant aujourd'hui, il semble que les rumeurs étaient bien vraies ! »
 
-« Bien que ton mari, Qing Lin, soit mort, son corps est toujours là. Deviens simplement la Concubine Fleur de ce démon et transforme-toi en un four de culture. Ne serait-ce pas une joie ? » Ta Jia rit en faisant un pas en avant, tendant sa main droite.
+« Bien que ton mari, Qing Lin, soit mort, son corps est toujours là. Deviens simplement la Concubine Fleur de ce démon et transforme-toi en un four de cultivation. Ne serait-ce pas une joie ? » Ta Jia rit en faisant un pas en avant, tendant sa main droite.
 
 Malgré son rire, l'Ancien Démon Ta Jia était empreint de prudence. Il ne craignait pas l'Impératrice Fleur, mais sa peur de Qing Lin était trop profonde. Selon elle, Qing Lin s'était déjà préparé à l'échec et avait prévu d'autres plans. L'apparition de l'Impératrice Fleur était manifestement l'un des desseins de Qing Lin.
 
-« Qing Lin était l'Empereur Céleste le plus puissant ; il était si illustre que même les gens du royaume extérieur connaissaient son nom. En plus de sa culture prodigieuse, il était capable de calculer l'avenir comme s'il était lui-même les cieux, et il ne manquait jamais sa cible ! »
+« Qing Lin était l'Empereur Céleste le plus puissant ; il était si illustre que même les gens du royaume extérieur connaissaient son nom. En plus de sa cultivation prodigieuse, il était capable de calculer l'avenir comme s'il était lui-même les cieux, et il ne manquait jamais sa cible ! »
 
 Alors que l'Ancien Démon Ta Jia s'élançait, la Terre des Esprits Démoniaques trembla soudainement. Un brouillard noir apparut dans le ciel et se répandit. Tandis que la main droite de Ta Jia s'étendait, le brouillard noir se condensa en un bras gigantesque qui se projeta vers l'Impératrice Fleur.
 

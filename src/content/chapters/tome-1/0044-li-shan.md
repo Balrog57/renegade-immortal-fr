@@ -20,13 +20,13 @@ Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiq
 
 Voyant que Wang Lin restait silencieux, Wang Hao tapota amèrement ses vêtements et dit : « Frère Tie Zhu, tu possèdes bien plus de talent que moi. Repenser à l'époque où nous passions nos tests... on dirait un rêve. Le temps passe trop vite... » Wang Hao soupira et s'en alla, l'expression sombre. Il disparut lentement de la vue de Wang Lin.
 
-« Dans ce monde de culture, les forts dévorent les faibles... » pensa profondément Wang Lin en fixant le ciel.
+« Dans ce monde de cultivation, les forts dévorent les faibles... » pensa profondément Wang Lin en fixant le ciel.
 
 À cet instant, Wang Lin eut une épiphanie.
 
-Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa culture de manière fulgurante, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa culture, ni son âme, mais sa compréhension des lois du ciel et de la terre.
+Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa cultivation de manière fulgurante, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa cultivation, ni son âme, mais sa compréhension des lois du ciel et de la terre.
 
-Réaliser la nature cruelle du monde de la culture fut son épiphanie. Pour être un cultivateur, il fallait posséder l'état d'esprit d'un cultivateur.
+Réaliser la nature cruelle du monde de la cultivation fut son épiphanie. Pour être un cultivateur, il fallait posséder l'état d'esprit d'un cultivateur.
 
 Wang Lin murmura dans un soupir : « Est-ce vraiment là l'état d'esprit qu'un cultivateur doit avoir... que les forts dévorent les faibles ? »
 

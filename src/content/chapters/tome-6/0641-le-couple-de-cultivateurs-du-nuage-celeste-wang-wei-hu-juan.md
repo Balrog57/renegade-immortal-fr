@@ -62,7 +62,7 @@ La vitesse était telle qu'elle commença à créer des images rémanentes, comm
 
 S'il s'était agi d'une véritable téléportation, il n'aurait pas ressenti cela. Mais ici, ce n'était pas de la téléportation, bien qu'ils aient atteint une vitesse équivalente ! L'écran protecteur se déforma jusqu'à coller au corps de Wang Lin alors que l'épée atteignait une vélocité inimaginable.
 
-Wang Lin put même voir que la brume autour de lui s'était transformée en une mer de brouillard ; une illusion causée par leur vitesse fulgurante. Ce sentiment qu'il n'avait éprouvé qu'en entrant dans le monde de la culture il y a des centaines d'années réapparut, l'emplissant d'une certaine mélancolie.
+Wang Lin put même voir que la brume autour de lui s'était transformée en une mer de brouillard ; une illusion causée par leur vitesse fulgurante. Ce sentiment qu'il n'avait éprouvé qu'en entrant dans le monde de la cultivation il y a des centaines d'années réapparut, l'emplissant d'une certaine mélancolie.
 
 « C'est donc cela, la véritable épée céleste et son esprit ! Bien que mon épée possède une telle force, l'esprit n'est pas assez puissant pour libérer toute sa puissance. Bien que Xu Liguo ait un tempérament rebelle, ce démon aime intimider les faibles mais craint les forts. Il ne pourra pas m'échapper ! »
 
@@ -90,7 +90,7 @@ En tenant "Richesse", de nombreux souvenirs passés traversèrent l'esprit de Wa
 
 Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par sens divin pour guider Zhou Yi vers la seule issue du Gouffre des Marées : la sortie menant au Pays des Démons de Feu !
 
-Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa culture n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier ; il prévoyait de s'y consacrer pleinement après avoir quitté le Gouffre des Marées.
+Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa cultivation n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier ; il prévoyait de s'y consacrer pleinement après avoir quitté le Gouffre des Marées.
 
 « Le voyage au Gouffre des Marées est terminé. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
 
@@ -118,7 +118,7 @@ Ce couple qui était venu dans les Terres des Esprits Démoniaques aux côtés d
 
 Wang Wei, Hu Juan !
 
-Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. De plus, leur parfaite synergie obligeait même l'Omniscient à se montrer extrêmement prudent envers eux. Ce qui effrayait encore davantage l'Omniscient était l'origine de ces deux êtres. Leurs identités étaient si mystérieuses que même lui n'avait pu rien découvrir, si ce n'est qu'ils cultivaient probablement depuis plus longtemps que lui-même.
+Leur cultivation pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. De plus, leur parfaite synergie obligeait même l'Omniscient à se montrer extrêmement prudent envers eux. Ce qui effrayait encore davantage l'Omniscient était l'origine de ces deux êtres. Leurs identités étaient si mystérieuses que même lui n'avait pu rien découvrir, si ce n'est qu'ils cultivaient probablement depuis plus longtemps que lui-même.
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage : c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 

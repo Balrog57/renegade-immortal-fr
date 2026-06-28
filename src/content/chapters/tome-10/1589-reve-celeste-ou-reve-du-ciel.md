@@ -58,7 +58,7 @@ Quelques jours plus tard, un homme robuste éclata de rire devant la statue. Il 
 
 Une fois ivre, l'homme robuste se mit à pleurer.
 
-« Si je ne t'avais pas guidé sur le chemin de la culture... Si nous ne nous étions pas rencontrés autrefois... Si j'avais pris la Perle Défiant le Ciel à ce moment-là... Si tu n'avais pas été ce jeune adolescent naïf... »
+« Si je ne t'avais pas guidé sur le chemin de la cultivation... Si nous ne nous étions pas rencontrés autrefois... Si j'avais pris la Perle Défiant le Ciel à ce moment-là... Si tu n'avais pas été ce jeune adolescent naïf... »
 
 Quelques jours plus tard, une femme splendide se tint devant la statue. Elle resta là très, très longtemps. Elle observa la statue au lever et au coucher du soleil. Après plusieurs cycles, elle repartit en silence. Deux larmes tombèrent alors qu'elle se détournait, se brisant sur le sol.
 

@@ -46,7 +46,7 @@ Cette scène terrorisa tous les disciples de la Secte du Dragon Bleu ; aucun n'o
 
 Wang Lin traversait rapidement le ciel du Continent Astral Immortel. Son Sens Divin s'étendait tandis qu'il s'adaptait lentement à ce monde étranger.
 
-« Avec mon niveau de culture, je pourrais couvrir la majeure partie du monde des grottes avec mon Sens Divin, mais ici, celui-ci semble être supprimé par une loi invisible. Il n'est que la moitié de sa puissance habituelle...
+« Avec mon niveau de cultivation, je pourrais couvrir la majeure partie du monde des grottes avec mon Sens Divin, mais ici, celui-ci semble être supprimé par une loi invisible. Il n'est que la moitié de sa puissance habituelle...
 
 « Ce n'est manifestement pas un cas isolé ; tout le monde subit la même chose ! » Wang Lin en tira cette conclusion car aucune onde de Sens Divin provenant de la Secte du Dragon Bleu ne s'était propagée pour le localiser.
 
@@ -60,7 +60,7 @@ Le monde des grottes était illusoire, tandis que cet endroit était réel !
 
 Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent Astral Immortel. Par conséquent, il ne pouvait utiliser la Déformation Spatiale.
 
-« Il doit exister une méthode pour y parvenir, mais le niveau de culture requis doit être plus élevé », songea Wang Lin en silence.
+« Il doit exister une méthode pour y parvenir, mais le niveau de cultivation requis doit être plus élevé », songea Wang Lin en silence.
 
 Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé les souvenirs de Kang Ren. Bien qu'il ne sache pas encore tout, il en savait beaucoup sur le Continent du Taureau Céleste.
 
@@ -80,7 +80,7 @@ Wang Lin fronça les sourcils. Le Continent Astral Immortel était tout simpleme
 
 « Cependant, avant cela, je dois encore résoudre le problème de l'espace de stockage. Je me demande comment vont le fou et la femme en argent... » Wang Lin savait que ces deux individus possédaient des lignées du Continent Astral Immortel ; ainsi, même si l'espace de stockage se brisait, ils s'en sortiraient.
 
-Tout en méditant, il fendait les airs tel un rayon de lumière. Ce mode de vol reposant uniquement sur sa culture était une chose que Wang Lin trouvait pénible après un certain temps.
+Tout en méditant, il fendait les airs tel un rayon de lumière. Ce mode de vol reposant uniquement sur sa cultivation était une chose que Wang Lin trouvait pénible après un certain temps.
 
 Le Roi des Moustiques était trop singulier et ne serait pas prudent de l'invoquer ici.
 

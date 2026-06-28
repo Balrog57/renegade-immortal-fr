@@ -12,7 +12,7 @@ Wang Lin joignit ses mains devant Maître Lu Fu et sourit.
 
 L'attitude de Wang Lin restait constante ; il ne profita pas de la situation pour humilier Maître Lu Fu. Ce dernier réfléchit silencieusement un instant, puis poussa un soupir. Il força un sourire et joignit ses mains face à Wang Lin.
 
-« Le fait qu’un camarade cultivateur comme vous possède une culture aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
+« Le fait qu’un camarade cultivateur comme vous possède une cultivation aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
 
 Wang Lin sourit et hocha la tête.
 
@@ -36,7 +36,7 @@ Les membres de ce clan étaient liés au loup et, grâce à leur longue lignée,
 
 C'était bien plus que de tuer le général d'une armée de dizaines de milliers d'hommes ; c'était de transformer ce général en esclave !
 
-Grâce à son niveau de culture, Maître Lu Fu pouvait voir la même marque d'esclave sur Ling Dong et Zhou Jin. Il était évident qu'ils avaient été réduits en esclavage par la force par Wang Lin !
+Grâce à son niveau de cultivation, Maître Lu Fu pouvait voir la même marque d'esclave sur Ling Dong et Zhou Jin. Il était évident qu'ils avaient été réduits en esclavage par la force par Wang Lin !
 
 Après tout, Wang Lin n'était pas encore devenu un véritable cultivateur du troisième niveau, ce qui rendait l'exploit encore plus prodigieux !
 
@@ -118,7 +118,7 @@ Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Roya
 
 Wang Lin ne mentionna pas la Terre Déchue ni d'autres affaires cruciales. Pourtant, cela suffisait à stupéfier Maître Lu Fu, surtout lorsqu'il entendit parler de ce qui concernait le Souverain.
 
-Si de tels récits produisaient cet effet, il n'était même pas nécessaire de mentionner l'état de Maître Flamespark et Li Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de culture !
+Si de tels récits produisaient cet effet, il n'était même pas nécessaire de mentionner l'état de Maître Flamespark et Li Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de cultivation !
 
 Leurs regards vers Wang Lin étaient empreints d'une immense admiration. Li Yunzi le ressentit plus intensément encore en repensant au passé. Il éprouvait des sentiments complexes, mais il savait que Wang Lin n'avait pas obtenu tout cela par simple chance !
 

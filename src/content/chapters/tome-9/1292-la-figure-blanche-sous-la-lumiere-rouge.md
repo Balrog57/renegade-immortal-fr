@@ -38,7 +38,7 @@ Les six génies chargèrent pour affronter le Dragon du Neuf Abîme tapi dans la
 
 Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs ; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance foudroyante, qui chargea vers le Dragon du Neuf Abîme.
 
-Il y avait aussi ce vieil homme, possédant le niveau de culture le plus élevé. D'un geste de la main droite, il fit apparaître d'innombrables cœurs dorés autour de lui. Cela ressemblait aux cœurs dorés des cultivateurs, mais s'en distinguait grandement : c'était un sort qu'il avait créé lui-même grâce à sa grande sagesse. Ces cœurs dorés étaient formés d'énergie originelle, et leur effondrement pouvait libérer une puissance décuplée. En un éclair, près de 10 000 cœurs dorés apparurent autour de lui !
+Il y avait aussi ce vieil homme, possédant le niveau de cultivation le plus élevé. D'un geste de la main droite, il fit apparaître d'innombrables cœurs dorés autour de lui. Cela ressemblait aux cœurs dorés des cultivateurs, mais s'en distinguait grandement : c'était un sort qu'il avait créé lui-même grâce à sa grande sagesse. Ces cœurs dorés étaient formés d'énergie originelle, et leur effondrement pouvait libérer une puissance décuplée. En un éclair, près de 10 000 cœurs dorés apparurent autour de lui !
 
 Il y avait aussi cette femme froide. Elle se mordit la langue et cracha du sang sur l'épée fine qu'elle tenait. L'arme émit un éclat éblouissant et fondit pour former une rivière dorée. Ce fleuve l'enveloppa, dégageant une aura destructrice, avant de charger avec elle !
 
@@ -104,4 +104,4 @@ Ce changement soudain stupéfia les cultivateurs, qui tournèrent tous leurs reg
 
 Ils aperçurent alors une lumière rouge éblouissante au loin. Deux silhouettes se trouvaient dans cette lueur rouge et approchaient à une vitesse fulgurante !
 
-L'un des individus portait des vêtements blancs et avait les cheveux blancs. Son expression était sombre, mais sa puissante culture faisait distordre l'espace lui-même ! Derrière lui se trouvait une vieille femme vêtue de blanc !
+L'un des individus portait des vêtements blancs et avait les cheveux blancs. Son expression était sombre, mais sa puissante cultivation faisait distordre l'espace lui-même ! Derrière lui se trouvait une vieille femme vêtue de blanc !

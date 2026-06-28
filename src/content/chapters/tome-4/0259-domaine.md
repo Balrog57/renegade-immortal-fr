@@ -8,7 +8,7 @@ slug: domaine
 ---
 Wang Lin hésita un instant, puis demanda au vieil homme : « Aîné, allons-nous vraiment ainsi ? »
 
-Le vieil homme agita la main et fit apparaître deux chapeaux de paille. « Porte ceci. À moins que quelqu'un ne possède deux niveaux de culture au-dessus du tien, il ne pourra pas distinguer ton apparence. C'est un objet que j'ai conservé précieusement pendant longtemps. Une fois que tu en auras fini, tu devras me le rendre », dit-il.
+Le vieil homme agita la main et fit apparaître deux chapeaux de paille. « Porte ceci. À moins que quelqu'un ne possède deux niveaux de cultivation au-dessus du tien, il ne pourra pas distinguer ton apparence. C'est un objet que j'ai conservé précieusement pendant longtemps. Une fois que tu en auras fini, tu devras me le rendre », dit-il.
 
 Wang Lin saisit le chapeau, l'examina avec son sens divin et fut immédiatement stupéfait. Bien que ce chapeau de paille paraisse ordinaire, il recelait de profonds secrets. En utilisant son sens divin, il découvrit qu'il contenait d'innombrables restrictions qu'il n'avait jamais vues auparavant ; elles étaient comparables à des restrictions antiques.
 
@@ -40,7 +40,7 @@ Cette scène était bien plus majestueuse que ce que Wang Lin avait pu voir à C
 
 Wang Lin déploya son sens divin. Parmi ces présences, il compta plus de trente cultivateurs de l'Âme Naissante. Les cinq restants étaient au stade de la Formation de l'Âme.
 
-Il prit une profonde inspiration. Ce pays de culture de rang 4 était véritablement à la hauteur de son rang. Une secte, fût-elle petite, n'était pas de taille face aux puissances d'un tel pays. Il n'était pas exagéré de dire qu'une seule secte d'ici pouvait anéantir un pays de culture de rang 3.
+Il prit une profonde inspiration. Ce pays de cultivation de rang 4 était véritablement à la hauteur de son rang. Une secte, fût-elle petite, n'était pas de taille face aux puissances d'un tel pays. Il n'était pas exagéré de dire qu'une seule secte d'ici pouvait anéantir un pays de cultivation de rang 3.
 
 Une fois sortis, les cultivateurs se dispersèrent pour encercler Wang Lin et le vieil homme. Leurs visages étaient hostiles et ils projetèrent leurs sens divins pour les sonder.
 

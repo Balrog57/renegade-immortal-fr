@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1075 - Fusion of True Spirit
 slug: fusion-de-lesprit-veritable
 ---
-L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume du Ji scintillant dans son œil droit alors qu'il pénétrait à l'intérieur.
+L'Alliance de la Cultivation tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume du Ji scintillant dans son œil droit alors qu'il pénétrait à l'intérieur.
 
 À l'instant même où Sundered Night disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur !
 
@@ -60,7 +60,7 @@ Même l'épée de sang dans sa poitrine rétrécit progressivement pour rester �
 
 Ses longs cheveux blancs semblaient parfaire son armure rouge, et le regard de Wang Lin laissait poindre une intensité tranchante. Même maintenant, il restait incertain de ce qui venait de se produire.
 
-Cependant, la puissance indescriptible des flammes permit à Wang Lin de ressentir un fragment de la culture du Purificateur du Nirvana. C'était comme s'il pouvait commander toutes les flammes du monde par la seule force de sa pensée !
+Cependant, la puissance indescriptible des flammes permit à Wang Lin de ressentir un fragment de la cultivation du Purificateur du Nirvana. C'était comme s'il pouvait commander toutes les flammes du monde par la seule force de sa pensée !
 
 Tel l'ancien dragon de tonnerre, il possédait le pouvoir de commander tout le feu du monde !
 

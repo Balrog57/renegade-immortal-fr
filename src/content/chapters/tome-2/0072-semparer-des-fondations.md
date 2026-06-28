@@ -16,11 +16,11 @@ Le jeune homme soupira de déception : « Quel dommage. Si seulement un trésor 
 
 L'homme d'âge moyen laissa échapper un rire : « L'heure tourne. Je vais capturer une puissante bête spirituelle cristalline, et nous pourrons alors rentrer. » Sur ce, il déploya son Sens Divin, repéra sept ou huit bêtes spirituelles cristallines et commença à les observer.
 
-À cet instant précis, toutes les bêtes qui étaient en pleine culture se mirent soudainement à bouger, comme si quelque chose les avait effrayées. Certaines commencèrent même à grogner.
+À cet instant précis, toutes les bêtes qui étaient en pleine cultivation se mirent soudainement à bouger, comme si quelque chose les avait effrayées. Certaines commencèrent même à grogner.
 
 Peu à peu, le nombre de grognements augmenta jusqu'à ce que toutes les bêtes rugissent. Leurs hurlements étaient dirigés vers une falaise recouverte de végétation.
 
-L'homme d'âge moyen fut stupéfait. Avant qu'il ne puisse ordonner à ses disciples de quitter précipitamment la zone, un immense Sens Divin les balaya. Le visage de l'homme changea radicalement. Même avec son niveau de culture au douzième étage, il se sentit totalement impuissant face à une telle puissance sensorielle.
+L'homme d'âge moyen fut stupéfait. Avant qu'il ne puisse ordonner à ses disciples de quitter précipitamment la zone, un immense Sens Divin les balaya. Le visage de l'homme changea radicalement. Même avec son niveau de cultivation au douzième étage, il se sentit totalement impuissant face à une telle puissance sensorielle.
 
 Le visage de la jeune fille nommée Xu, qui se tenait aux côtés de l'homme, devint livide. L'épée volante sous ses pieds vacilla et tomba au sol ; elle et le jeune homme qui la serrait tombèrent également.
 
@@ -58,7 +58,7 @@ Un jeune homme aux cheveux descendant jusqu'à la taille en sortit lentement. So
 
 Le jeune homme aux longs cheveux avait environ vingt ans. Son regard était glacial alors qu'il contemplait les bêtes. Il resta silencieux, tournant ses yeux vers la Montagne Heng Yue avec un sentiment de regret au cœur.
 
-Il s'agissait de Wang Lin, qui était en culture isolée depuis quatre ans.
+Il s'agissait de Wang Lin, qui était en cultivation isolée depuis quatre ans.
 
 Les yeux de Wang Lin s'animèrent. Il marmonna pour lui-même : « J'ai atteint le sommet de la Condensation de Qi il y a bien longtemps, mais atteindre l'Établissement des Fondations est d'une difficulté extrême. J'ai déjà essayé maintes fois, sans parvenir à percer. Situ, la méthode que tu as mentionnée m'aidera-t-elle vraiment à atteindre l'Établissement des Fondations plus rapidement ? »
 
@@ -70,8 +70,8 @@ Situ Nan éclata de rire : « Sois sans crainte, car tu m'as moi ! Cette fois, p
 
 Wang Lin réfléchit un moment, puis soupira en esquissant un sourire amer : « Situ, ce vol de fondations est très perfide. Quiconque je dépouillerai mourra certainement. Attendons de voir. »
 
-Situ Nan répondit avec mécontentement : « Toi ! Je t'ai répété d'innombrables fois que, dans le monde de la culture, les forts se nourrissent des faibles. Tuer autrui pour son propre bénéfice est parfaitement normal. Avec ta nature miséricordieuse, combien de temps te faudra-t-il pour atteindre la Transformation de l'Âme ? Humph, si tu ne veux pas utiliser ma méthode, cherche plutôt un élément bois. Si tu parviens à remplir la Perle Défiant le Ciel avec de l'élément bois, sa mise à niveau devrait te donner assez d'énergie spirituelle pour atteindre l'Établissement des Fondations. Si tu ne fais ni l'un ni l'autre, et que tu n'as pas un cultivateur de l'Âme Naissante pour t'aider, n'espère même pas atteindre ce stade ! »
+Situ Nan répondit avec mécontentement : « Toi ! Je t'ai répété d'innombrables fois que, dans le monde de la cultivation, les forts se nourrissent des faibles. Tuer autrui pour son propre bénéfice est parfaitement normal. Avec ta nature miséricordieuse, combien de temps te faudra-t-il pour atteindre la Transformation de l'Âme ? Humph, si tu ne veux pas utiliser ma méthode, cherche plutôt un élément bois. Si tu parviens à remplir la Perle Défiant le Ciel avec de l'élément bois, sa mise à niveau devrait te donner assez d'énergie spirituelle pour atteindre l'Établissement des Fondations. Si tu ne fais ni l'un ni l'autre, et que tu n'as pas un cultivateur de l'Âme Naissante pour t'aider, n'espère même pas atteindre ce stade ! »
 
 Wang Lin réfléchit encore, puis demanda : « Je me demande comment les autres atteignent l'Établissement des Fondations. »
 
-Situ Nan grogna : « C'est simple. S'ils appartiennent à une secte, un cultivateur de l'Âme Naissante utilise sa propre culture pour aider le disciple à atteindre l'Établissement des Fondations. Si j'avais encore mon corps, je ferais la même chose pour t'aider. Dans mon pays d'origine, le statut d'un cultivateur de l'Âme Naissante est comparable à celui d'un cultivateur de la Formation du Noyau ici. Bien qu'ils ne soient pas si nombreux, il y en a assez pour aider les disciples à atteindre l'Établissement des Fondations. »
+Situ Nan grogna : « C'est simple. S'ils appartiennent à une secte, un cultivateur de l'Âme Naissante utilise sa propre cultivation pour aider le disciple à atteindre l'Établissement des Fondations. Si j'avais encore mon corps, je ferais la même chose pour t'aider. Dans mon pays d'origine, le statut d'un cultivateur de l'Âme Naissante est comparable à celui d'un cultivateur de la Formation du Noyau ici. Bien qu'ils ne soient pas si nombreux, il y en a assez pour aider les disciples à atteindre l'Établissement des Fondations. »

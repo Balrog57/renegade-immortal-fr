@@ -52,7 +52,7 @@ Il n'y avait plus personne. Il était évident que tous avaient été conduits v
 
 Wang Lin hocha la tête.
 
-« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'un poing. Elle hésita alors, le visage empourpré, et ajouta doucement : « Si le Senior a besoin d'un fourneau de culture pendant sa pratique, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
+« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'un poing. Elle hésita alors, le visage empourpré, et ajouta doucement : « Si le Senior a besoin d'un fourneau de cultivation pendant sa pratique, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
 
 Une fois sa phrase achevée, son visage devint encore plus rouge ; elle s'inclina et se retira. Sa silhouette était des plus séduisantes et, en partant, elle laissa entrevoir avec subtilité le charme qui émanait de ses formes sous sa robe.
 
@@ -60,9 +60,9 @@ Wang Lin prit le jeton et l'examina avec son sens divin. L'objet ressemblait à 
 
 Trois jours passèrent en un clin d'œil. Durant cette période, Wang Lin cultiva les yeux fermés afin de maintenir son état au sommet de sa forme.
 
-Le Temple Céleste du Tonnerre devint extrêmement animé à l'approche de midi le troisième jour. Les réseaux de transfert clignotaient sans interruption tandis que des groupes de cultivateurs arrivaient par vagues. Le public pour ce concours de titres célestes était immense. En premier lieu, il y avait les membres des familles de culture issues des planètes principales de chaque domaine ; ils n'avaient le droit d'observer la scène que depuis la périphérie extérieure.
+Le Temple Céleste du Tonnerre devint extrêmement animé à l'approche de midi le troisième jour. Les réseaux de transfert clignotaient sans interruption tandis que des groupes de cultivateurs arrivaient par vagues. Le public pour ce concours de titres célestes était immense. En premier lieu, il y avait les membres des familles de cultivation issues des planètes principales de chaque domaine ; ils n'avaient le droit d'observer la scène que depuis la périphérie extérieure.
 
-Venaient ensuite les familles de culture situées au-dessus de celles des planètes principales, mais en dessous de lignées comme la famille Yao — des clans tels que les Shengong ou les Zhan. Après eux arrivèrent les quatre grandes familles détentrices d'héritages du Royaume Céleste.
+Venaient ensuite les familles de cultivation situées au-dessus de celles des planètes principales, mais en dessous de lignées comme la famille Yao — des clans tels que les Shengong ou les Zhan. Après eux arrivèrent les quatre grandes familles détentrices d'héritages du Royaume Céleste.
 
 Enfin, apparurent les membres des deux familles ancestrales qui organisaient cette compétition aux côtés du Temple Céleste du Tonnerre. Bien que le nombre de spectateurs fût relativement restreint par rapport à l'importance de l'événement, ils s'élevaient tout de même à des dizaines de milliers. Le Temple Céleste du Tonnerre avait disposé de nombreuses plateformes flottantes pour permettre aux cultivateurs de s'installer.
 
@@ -76,7 +76,7 @@ Tandis qu'ils discutaient, un homme vêtu de noir nommé Gongsun fit son apparit
 
 Peu après, la famille Yao et les trois autres familles dotées d'héritages célestes arrivèrent. Le représentant de la famille Yao était le Dieu de Sang. Il arriva accompagné des vieux monstres des trois autres lignées et prit place sur les tapis de prière. Ils ne daignèrent même pas regarder Qing Shui.
 
-Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Li Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de culture arrivèrent et prirent place.
+Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Li Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de cultivation arrivèrent et prirent place.
 
 À midi pile, les yeux de Maître Flamespark s'illuminèrent. Il déclara d'une voix calme : « Que la bataille pour les 108 titres célestes du Système Stellaire Allheaven commence ! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel ; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
 
@@ -90,7 +90,7 @@ Depuis son retour du Royaume Céleste du Tonnerre, l'image de Wang Lin était re
 
 « Je crains qu'il n'ait déjà oublié mon nom... »
 
-Xi Zifeng était d'une beauté remarquable et en avait pleine conscience. De nombreux élites de diverses familles lui avaient déclaré leur flamme. Même au sein de son propre clan, son cousin exceptionnel, Xi Zimu, lui avait témoigné son admiration. Pourtant, elle restait totalement indifférente à tout cela et n'avait jamais envisagé la culture en couple. Son seul rêve était d'imiter son ancêtre et de devenir une cultivatrice dont la puissance pourrait percer les cieux !
+Xi Zifeng était d'une beauté remarquable et en avait pleine conscience. De nombreux élites de diverses familles lui avaient déclaré leur flamme. Même au sein de son propre clan, son cousin exceptionnel, Xi Zimu, lui avait témoigné son admiration. Pourtant, elle restait totalement indifférente à tout cela et n'avait jamais envisagé la cultivation en couple. Son seul rêve était d'imiter son ancêtre et de devenir une cultivatrice dont la puissance pourrait percer les cieux !
 
 Cependant, tout cela avait basculé lors de sa rencontre avec Wang Lin. Elle-même en était confuse. Le choc que son cœur avait ressenti lorsque Wang Lin avait mené des centaines de cultivateurs dans une charge fulgurante vers le réseau de transfert du Temple Céleste du Tonnerre était un souvenir indélébile.
 
@@ -100,9 +100,9 @@ Non loin de Xi Zifeng siégeait une vieille femme. Bien qu'elle ne fût manifest
 
 Elle fronça les sourcils en regardant Xi Zifeng et soupira : « Une relation maudite ! »
 
-Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Allheaven. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de l'Ancêtre de Sang, et beaucoup le surpassaient largement.
+Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Allheaven. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de cultivation non inférieur à celui de l'Ancêtre de Sang, et beaucoup le surpassaient largement.
 
-Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Flamespark, imperturbable, déclara lentement : « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel ! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun ! Les six voies mystérieuses représentent le cycle du Dao ! »
+Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Flamespark, imperturbable, déclara lentement : « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel ! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la cultivation de chacun ! Les six voies mystérieuses représentent le cycle du Dao ! »
 
 « Les trois épreuves et les six voies permettront de sélectionner les 108 titres célestes. Ensuite, ils s'affronteront dans une bataille à mort sur la ligne unique vers les cieux. Les 36 combattants ayant obtenu le plus de victimes recevront les titres célestes ! Leurs noms seront également gravés sur la Pierre Céleste ! »
 

@@ -72,9 +72,9 @@ Les trois montagnes créées par le trident étaient presque identiques aux troi
 
 Mais il écarta immédiatement l'idée qu'il s'agisse du trident, car c'était bien comme il l'avait dit plus tôt : deux des montagnes étaient de fausses images.
 
-« Cependant, la culture de l'Omniscient est céleste. S'il avait voulu me le cacher, il m'aurait été impossible de percer ce mystère à mon niveau actuel. » Wang Lin s'apaisa alors qu'ils atteignaient le pied de la montagne.
+« Cependant, la cultivation de l'Omniscient est céleste. S'il avait voulu me le cacher, il m'aurait été impossible de percer ce mystère à mon niveau actuel. » Wang Lin s'apaisa alors qu'ils atteignaient le pied de la montagne.
 
-« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense ! Avec ta culture, parcourir cent pas ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes ! » L'Omniscient se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
+« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense ! Avec ta cultivation, parcourir cent pas ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes ! » L'Omniscient se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
 
 Wang Lin leva les yeux vers le sommet blanc de la montagne. Une neige infinie y tombait ; si l'on regardait trop longtemps, on aurait l'illusion que d'innombrables épées blanches et tranchantes descendaient du ciel.
 

@@ -132,19 +132,19 @@ Sa confiance grandissait. Une pointe de surprise apparut sur son visage : il sen
 
 Le temps passa lentement. À cent mille pieds de là, le Magicien Démon Céleste afficha une expression excitée en regardant vers le Seigneur Démon des Six Désirs. Il marmonna pour lui-même : « Absorbe, mon bon disciple, continue d'absorber. Pour le plan de ton maître, tu dois livrer une performance magistrale ! »
 
-Il laissa échapper un sourire étrange. Ses mains se croisèrent, propageant une lumière bleue qui couvrit instantanément tout ce qui se trouvait dans un rayon d'un mille. Une pensée traversa son esprit et son sourire s'élargit : « Bon disciple. Autrefois, le calcul de ton maître était juste. Ta nature démente devait être un obstacle sur ton chemin de culture. Mais je vois maintenant que cette folie sera précisément ce qui permettra au plan de ce vieil homme d'aboutir. »
+Il laissa échapper un sourire étrange. Ses mains se croisèrent, propageant une lumière bleue qui couvrit instantanément tout ce qui se trouvait dans un rayon d'un mille. Une pensée traversa son esprit et son sourire s'élargit : « Bon disciple. Autrefois, le calcul de ton maître était juste. Ta nature démente devait être un obstacle sur ton chemin de cultivation. Mais je vois maintenant que cette folie sera précisément ce qui permettra au plan de ce vieil homme d'aboutir. »
 
 Le temps s'écoulait. La brume noire infinie couvrait désormais une zone d'un mille de rayon. Si le Magicien Démon Céleste ne l'en avait pas empêchée, elle aurait continué à se propager.
 
-Après un laps de temps indéterminé, la brume noire se dissipa. Le Seigneur Démon des Six Désirs affichait une lueur de démence ; sa culture avait atteint un niveau prodigieux.
+Après un laps de temps indéterminé, la brume noire se dissipa. Le Seigneur Démon des Six Désirs affichait une lueur de démence ; sa cultivation avait atteint un niveau prodigieux.
 
 « Désir d'Avarice, viens ! » hurla-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon d'un mille autour de lui.
 
-Par la suite, le Désir de Rapacité, le Désir de Plaisir, le Désir de Jalousie et le Désir d'Obsession furent tous dévorés par le Seigneur Démon des Six Désirs. Ce que son maître, le Magicien Démon Céleste, avait prédit était vrai : sa plus grande faiblesse était son désir de croître en culture. S'il en avait l'opportunité, il ne la laisserait absolument pas passer.
+Par la suite, le Désir de Rapacité, le Désir de Plaisir, le Désir de Jalousie et le Désir d'Obsession furent tous dévorés par le Seigneur Démon des Six Désirs. Ce que son maître, le Magicien Démon Céleste, avait prédit était vrai : sa plus grande faiblesse était son désir de croître en cultivation. S'il en avait l'opportunité, il ne la laisserait absolument pas passer.
 
 Même à ce stade, il n'envisageait pas de s'arrêter, continuant d'absorber sans fin tous les désirs. Lorsqu'il absorba le Désir d'Obsession, son corps dégagea une odeur fétide et horrible.
 
-Les six désirs dans le corps du Dieu Ancien avaient été dispersés suite à un changement dans l'âme du Dieu Ancien avant sa mort. Le Seigneur Démon des Six Désirs avait désormais absorbé une partie de ces désirs, atteignant dans la Méthode de Culture Démoniaque du Ciel Céleste un niveau qui dépassait les attentes du créateur lui-même, le Magicien Démon Céleste.
+Les six désirs dans le corps du Dieu Ancien avaient été dispersés suite à un changement dans l'âme du Dieu Ancien avant sa mort. Le Seigneur Démon des Six Désirs avait désormais absorbé une partie de ces désirs, atteignant dans la Méthode de Cultivation Démoniaque du Ciel Céleste un niveau qui dépassait les attentes du créateur lui-même, le Magicien Démon Céleste.
 
 À cet instant, le Magicien Démon Céleste afficha un sourire. Même son visage habituellement sombre ne put s'empêcher de rire. Il se précipita rapidement vers le Seigneur Démon des Six Désirs.
 

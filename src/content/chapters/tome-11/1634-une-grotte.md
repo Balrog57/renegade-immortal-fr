@@ -22,11 +22,11 @@ Neuf soleils se cachaient derrière la tempête ; seuls leurs contours étaient 
 
 En revoyant ces neuf soleils ici, des spéculations commencèrent à germer dans son cœur.
 
-« Cet endroit pourrait faire partie du Continent Astral Immortel que j'ai vu auparavant... Même si ce n'est pas le cas, il doit avoir un lien profond avec lui... » Wang Lin leva silencieusement les yeux vers la voûte céleste. Plus son niveau de culture augmentait, plus il percevait les mystères de ce monde. Il déchirait progressivement le voile et s'apprêtait à découvrir le secret ultime des Royaumes Intérieur et Extérieur.
+« Cet endroit pourrait faire partie du Continent Astral Immortel que j'ai vu auparavant... Même si ce n'est pas le cas, il doit avoir un lien profond avec lui... » Wang Lin leva silencieusement les yeux vers la voûte céleste. Plus son niveau de cultivation augmentait, plus il percevait les mystères de ce monde. Il déchirait progressivement le voile et s'apprêtait à découvrir le secret ultime des Royaumes Intérieur et Extérieur.
 
 Ce secret pourrait être d'une cruauté sans nom, pourrait marquer la fin de toute chose, ou bien ne serait qu'un nouveau commencement.
 
-Plus de 2 000 ans de culture et d'innombrables luttes entre la vie et la mort avaient permis à Wang Lin de pénétrer dans l'Ancien Royaume Céleste, la terre sainte de tant de cultivateurs !
+Plus de 2 000 ans de cultivation et d'innombrables luttes entre la vie et la mort avaient permis à Wang Lin de pénétrer dans l'Ancien Royaume Céleste, la terre sainte de tant de cultivateurs !
 
 La terre était plongée dans un silence absolu et d'innombrables statues jonchaient le sol. Ces statues semblaient être des êtres vivants pétrifiés, conservant les positions qu'ils occupaient avant d'être changés en pierre. Certains étaient debout, d'autres étaient tombés à genoux, certains poussaient un rugissement et d'autres affichaient une expression féroce. Ces statues semblaient reposer sur cette terre depuis des éternités.
 

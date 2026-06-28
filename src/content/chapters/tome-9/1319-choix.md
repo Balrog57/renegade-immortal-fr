@@ -10,7 +10,7 @@ Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il fixait le Maître D
 
 Le Maître Dao Bleu Rêve flottait dans les airs et, d'un seul pas, atteignit le sommet de la montagne. Les mains derrière le dos, il contemplait la lueur bleue qui émanait de lui tout en attendant la réponse de Wang Lin. Le vent de la montagne faisait flotter ses cheveux bleus, et son corps dégageait une pression subtile.
 
-Lorsqu'il se tenait au sommet de la montagne, celle-ci semblait disparaître. Lorsqu'il se tenait sur cette planète de culture, la planète elle-même semblait s'effacer. Lorsqu'il se tenait dans ce monde, le monde lui-même paraissait s'incliner. Tout baissait la tête devant le Maître Dao Bleu Rêve.
+Lorsqu'il se tenait au sommet de la montagne, celle-ci semblait disparaître. Lorsqu'il se tenait sur cette planète de cultivation, la planète elle-même semblait s'effacer. Lorsqu'il se tenait dans ce monde, le monde lui-même paraissait s'incliner. Tout baissait la tête devant le Maître Dao Bleu Rêve.
 
 Lorsqu'il se tenait parmi les étoiles, toute la lumière stellaire devait l'éviter. Partout où il se trouvait, il était la montagne, il était le ciel et il était les étoiles !
 
@@ -50,7 +50,7 @@ Votre corps, votre cœur, tout ce que vous êtes ne sera plus lié au Royaume In
 
 Les paroles du Maître Dao Bleu Rêve étaient comme des lames s'enfonçant dans le corps de Wang Lin, faisant trembler tout son être.
 
-« Deuxièmement, peu m'importent vos relations dans le Royaume Intérieur. Tout sera rompu ! Je n'ai qu'une seule fille. Vous et elle pourrez former un couple de culture, et elle sera votre unique compagne ! »
+« Deuxièmement, peu m'importent vos relations dans le Royaume Intérieur. Tout sera rompu ! Je n'ai qu'une seule fille. Vous et elle pourrez former un couple de cultivation, et elle sera votre unique compagne ! »
 
 Wang Lin ferma les yeux. La tentation du Maître Dao Bleu Rêve était la plus grande qu'il ait jamais affrontée dans sa vie. Si les conditions avaient été différentes, Wang Lin aurait très probablement accepté !
 
@@ -68,7 +68,7 @@ Une lueur de froideur passa dans les yeux du Maître Dao Bleu Rêve alors qu'il 
 
 Ce que Wang Lin ignorait, c'est que bien des années auparavant, Qing Lin avait également été confrontée à cette immense tentation. Sauf que Qing Lin avait été tentée par le Souverain, tandis que Wang Lin faisait face au Maître Dao Bleu Rêve !
 
-Wang Lin baissa la tête et dit doucement : « La culture de l'Aîné est en effet puissante, mais le Junior souhaite demander si l'Aîné a quelqu'un d'autre de plus important que lui-même ! »
+Wang Lin baissa la tête et dit doucement : « La cultivation de l'Aîné est en effet puissante, mais le Junior souhaite demander si l'Aîné a quelqu'un d'autre de plus important que lui-même ! »
 
 Le Maître Dao Bleu Rêve réfléchit un instant puis répondit lentement : « Il y en a une ! »
 
@@ -76,7 +76,7 @@ Le Maître Dao Bleu Rêve réfléchit un instant puis répondit lentement : « I
 
 Le Maître Dao Bleu Rêve ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara :
 
-« La troisième étape de la culture est appelée les quatre royaumes du vide ! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet ! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant réussi à atteindre cette quatrième étape légendaire : la Marche sur le Ciel !
+« La troisième étape de la cultivation est appelée les quatre royaumes du vide ! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet ! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant réussi à atteindre cette quatrième étape légendaire : la Marche sur le Ciel !
 
 Même les huit concubines impériales n'ont pas atteint ce stade ! » Le Maître Dao Bleu Rêve détourna son regard de Wang Lin et parla lentement en contemplant l'horizon lointain.
 

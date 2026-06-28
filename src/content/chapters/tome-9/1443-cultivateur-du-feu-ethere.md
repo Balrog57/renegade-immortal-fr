@@ -68,13 +68,13 @@ L'homme en pourpre, escorté d'un poisson féroce, rugit : « Bien que ce compag
 
 La voix lugubre d'une vieille femme en vert, le corps couvert de pus, résonna : « Ce compagnon est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même ce vieux corps ne te laissera aucun répit. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir ! »
 
-« Bien que vous soyez puissants, vous ne savez vraiment pas comment agir. Gaspiller votre culture de la sorte est d'une stupidité sans nom... Hélas, quel dommage ! Qu'un être aussi avide existe dans ce monde. Te crois-tu un cultivateur du troisième niveau ? » L'homme d'âge moyen tenant une cruche blanche à sa gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
+« Bien que vous soyez puissants, vous ne savez vraiment pas comment agir. Gaspiller votre cultivation de la sorte est d'une stupidité sans nom... Hélas, quel dommage ! Qu'un être aussi avide existe dans ce monde. Te crois-tu un cultivateur du troisième niveau ? » L'homme d'âge moyen tenant une cruche blanche à sa gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
 
 Ces paroles étaient chargées d'une intention meurtrière évidente. La majorité des cultivateurs étaient mécontents. Outre ceux qui s'exprimaient, tous les autres dégageaient une volonté de tuer ; ils étaient prêts au massacre.
 
 En voyant cela, la jeune fille du Clan de l'Extermination des Sceaux laissa poindre un éclair de joie dans ses yeux. Mais en repensant à la terreur que représentait Wang Lin, cette joie s'évanouit aussitôt.
 
-Wang Lin resta calme face aux provocations, mais une froideur glaciale traversa son regard. Une lueur de Feu Éthéré vacilla dans ses pupilles. Il laissa échapper un reniflement méprisant et, loin de reculer, il accéléra encore davantage. Utilisant sa puissante culture, il fendit la foule telle une météorite, dépassant tous les cultivateurs devant lui pour charger les bêtes meurtrières.
+Wang Lin resta calme face aux provocations, mais une froideur glaciale traversa son regard. Une lueur de Feu Éthéré vacilla dans ses pupilles. Il laissa échapper un reniflement méprisant et, loin de reculer, il accéléra encore davantage. Utilisant sa puissante cultivation, il fendit la foule telle une météorite, dépassant tous les cultivateurs devant lui pour charger les bêtes meurtrières.
 
 « Quel culot ! »
 
@@ -114,7 +114,7 @@ Si simple, si prodigieux !
 
 « Ce cultivateur légendaire dont on dit qu'il n'apparaît que tous les dizaines de milliers d'années... Il est réellement un cultivateur du Feu Éthéré !! »
 
-« D'un simple geste, il a massacré des dizaines de milliers de bêtes en un instant. Une telle culture... Je... j'allais vraiment tenter de le tuer... »
+« D'un simple geste, il a massacré des dizaines de milliers de bêtes en un instant. Une telle cultivation... Je... j'allais vraiment tenter de le tuer... »
 
 Un cultivateur légendaire du Feu Éthéré venait de faire son apparition dans ce lieu scellé avec son feu unique ! En voyant cela, une onde de choc immense déferla sur les cultivateurs environnants !
 

@@ -64,7 +64,7 @@ La lueur verte disparaissait lentement, supplantée par le rouge. Ce n'était pa
 
 Quant à la distance exacte parcourue par cette lumière rouge, seuls quelques individus privilégiés pouvaient l'estimer.
 
-Certaines planètes désertiques, pourtant éloignées de la planète Tian Yun, furent recouvertes par ce rayonnement. Même la lointaine planète Suzaku fut affectée. L'actuel Suzaku, Zhou Wutai, était en pleine culture lorsqu'il ouvrit les yeux pour découvrir que le ciel était devenu entièrement rouge.
+Certaines planètes désertiques, pourtant éloignées de la planète Tian Yun, furent recouvertes par ce rayonnement. Même la lointaine planète Suzaku fut affectée. L'actuel Suzaku, Zhou Wutai, était en pleine cultivation lorsqu'il ouvrit les yeux pour découvrir que le ciel était devenu entièrement rouge.
 
 Plus loin encore, d'autres planètes furent enveloppées par cette clarté.
 
@@ -72,4 +72,4 @@ Il était impossible de calculer avec précision jusqu'où cette lumière, qui n
 
 Soudain, la lumière rouge cessa sa progression, comme si elle avait atteint une limite. Cependant, un phénomène prodigieux se produisait partout où ses rayons avaient touché :
 
-Parmi les étoiles, les planètes et le vide spatial, tout — trésors, jades, pierres spirituelles, jades célestes, cadavres, épées antiques, vestiges de trésors, sorts célestes, trésors de culture anciens et autres objets divers — peu importe leur emplacement, dès lors qu'ils se trouvaient dans le champ de la lumière rouge et n'avaient point de propriétaire, commença à trembler frénétiquement !
+Parmi les étoiles, les planètes et le vide spatial, tout — trésors, jades, pierres spirituelles, jades célestes, cadavres, épées antiques, vestiges de trésors, sorts célestes, trésors de cultivation anciens et autres objets divers — peu importe leur emplacement, dès lors qu'ils se trouvaient dans le champ de la lumière rouge et n'avaient point de propriétaire, commença à trembler frénétiquement !

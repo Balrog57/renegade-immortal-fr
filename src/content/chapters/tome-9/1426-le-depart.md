@@ -8,7 +8,7 @@ slug: le-depart
 ---
 Maître Simo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux disparurent de la Planète de l'Empereur Suprême sous les yeux de Wang Lin.
 
-Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous les cultivateurs présents, y compris pour le Vieux Vermillon Oiseau. Cependant, grâce à sa puissante culture, il avait vaguement perçu certaines choses.
+Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous les cultivateurs présents, y compris pour le Vieux Vermillon Oiseau. Cependant, grâce à sa puissante cultivation, il avait vaguement perçu certaines choses.
 
 Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues ! Aux yeux des cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau !
 
@@ -18,7 +18,7 @@ Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao 
 
 Pour le Clan du Moineau de Feu, l'épreuve qui se déroulait sur la Planète de l'Empereur Suprême représentait une opportunité inespérée.
 
-En fouillant avec soin, le Clan du Moineau de Feu finit par trouver Liu Jinbiao, qui était en culture fermée dans la partie la plus profonde de la planète, ainsi que son protecteur, Xu Liguo.
+En fouillant avec soin, le Clan du Moineau de Feu finit par trouver Liu Jinbiao, qui était en cultivation fermée dans la partie la plus profonde de la planète, ainsi que son protecteur, Xu Liguo.
 
 Après un combat acharné, Liu Jinbiao fut capturé et secrètement extrait des Terres Déchues pour être présenté à l'ancêtre du Clan du Moineau de Feu, qui l'attendait à l'extérieur.
 
@@ -50,7 +50,7 @@ Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent e
 
 « Magnifique ! C'est bel et bien un Vermillon Oiseau !! » L'ancêtre du Clan du Moineau de Feu était transporté par l'extase. Il rit tandis que sa main droite se posait sur la tête de Liu Jinbiao.
 
-Le niveau de culture de l'ancêtre étant extrêmement élevé, il restait naturellement prudent et méfiant. Après plusieurs tests, bien qu'il en soit convaincu, il utilisa tout de même le sort de recherche d'âme.
+Le niveau de cultivation de l'ancêtre étant extrêmement élevé, il restait naturellement prudent et méfiant. Après plusieurs tests, bien qu'il en soit convaincu, il utilisa tout de même le sort de recherche d'âme.
 
 À ses yeux, tout dans ce monde pouvait être une illusion ; seule la recherche d'âme était vérité. Le feu jaillit de sa main droite posée sur la tête de Liu Jinbiao et il commença l'examen.
 
@@ -80,9 +80,9 @@ Wang Lin réfléchit en silence et regarda le vieil homme. Bien qu'il ne le conn
 
 Voyant Wang Lin plongé dans ses pensées, la bienveillance du vieil homme s'intensifia et il sourit. « Si le destin le veut, nous nous reverrons. Ne pars pas avec l'hésitation d'un enfant. J'espère que tu sauras me surprendre à nouveau lors de notre prochaine rencontre. »
 
-Wang Lin fixa le Vieux Vermillon Oiseau avant de prendre une profonde inspiration et de dire : « Ancêtre, le Junior souhaite obtenir la méthode de culture de la Restriction de l'Âme Ancienne de l'arène ! »
+Wang Lin fixa le Vieux Vermillon Oiseau avant de prendre une profonde inspiration et de dire : « Ancêtre, le Junior souhaite obtenir la méthode de cultivation de la Restriction de l'Âme Ancienne de l'arène ! »
 
-« Tu veux cette Restriction de l'Âme Ancienne ? » Le Vieux Vermillon Oiseau réfléchit un instant puis dit lentement : « La Restriction de l'Âme Ancienne est un trésor que le premier ancêtre a dérobé. Même moi, je ne possède pas la méthode de culture... Peu importe, je te la donnerai pour que tu puisses te protéger. Si tu en as le temps, étudie-la ; peut-être qu'avec ta compréhension, tu parviendras à en saisir l'essence. »
+« Tu veux cette Restriction de l'Âme Ancienne ? » Le Vieux Vermillon Oiseau réfléchit un instant puis dit lentement : « La Restriction de l'Âme Ancienne est un trésor que le premier ancêtre a dérobé. Même moi, je ne possède pas la méthode de cultivation... Peu importe, je te la donnerai pour que tu puisses te protéger. Si tu en as le temps, étudie-la ; peut-être qu'avec ta compréhension, tu parviendras à en saisir l'essence. »
 
 Tout en parlant, la main droite du vieil homme s'éleva vers le ciel. Au loin, la terre gronda et les couleurs du ciel changèrent. Les nuages se dispersèrent sous l'éclat d'une lumière fantomatique.
 
@@ -108,9 +108,9 @@ Wang Lin regarda l'Ancien, attendant la suite.
 
 Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête : « Ancêtre, soyez sans crainte. Lorsque le Junior choisira le septième Vermillon Oiseau, je veillerai scrupuleusement à ce que l'incident avec le troisième ne se reproduise pas ! »
 
-« Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien ? Ta compréhension n'est-elle pas censée être élevée ? Dois-je vraiment tout te dire explicitement... Très bien, choisis plutôt un enfant pour le septième Vermillon Oiseau, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de culture de ce vieil homme ! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici ! »
+« Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien ? Ta compréhension n'est-elle pas censée être élevée ? Dois-je vraiment tout te dire explicitement... Très bien, choisis plutôt un enfant pour le septième Vermillon Oiseau, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de cultivation de ce vieil homme ! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici ! »
 
-« Et n'oublie pas de vérifier que son Yang d'âme originelle est intact ! Ce n'est pas que je te réprimande, mais regarde-toi. Tu es si jeune, et pourtant tu n'atteins même pas mon niveau de culture. Sache qu'au fil des âges innombrables, pas un fragment du Yang de mon âme originelle ne s'est dissipé. Je ne comprends vraiment pas les juniors comme vous ; qu'y a-t-il de si enviable dans la double culture ? Ce vieil homme n'a jamais pratiqué la double culture avec personne, et pourtant je déborde d'énergie chaque jour, sans même parler du bonheur que cela procure ! »
+« Et n'oublie pas de vérifier que son Yang d'âme originelle est intact ! Ce n'est pas que je te réprimande, mais regarde-toi. Tu es si jeune, et pourtant tu n'atteins même pas mon niveau de cultivation. Sache qu'au fil des âges innombrables, pas un fragment du Yang de mon âme originelle ne s'est dissipé. Je ne comprends vraiment pas les juniors comme vous ; qu'y a-t-il de si enviable dans la double cultivation ? Ce vieil homme n'a jamais pratiqué la double cultivation avec personne, et pourtant je déborde d'énergie chaque jour, sans même parler du bonheur que cela procure ! »
 
 Wang Lin resta interdit un instant, fixant le Vieux Vermillon Oiseau. Laissant sans voix, il ne put que hocher la tête avec un sourire amer.
 

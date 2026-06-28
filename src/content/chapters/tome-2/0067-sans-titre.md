@@ -16,17 +16,17 @@ Wang Lin leva la tête et dit : « Le disciple souhaite sortir une fois. »
 
 La vieille femme refusa immédiatement. « Tu dois d'abord te concentrer sur l'Établissement des Fondations. Tu ne peux pas sortir. »
 
-Wang Lin haussa un sourcil et répliqua : « Le disciple doit sortir pour une affaire précise. Une fois cela accompli, je pourrai me consacrer pleinement à la culture. »
+Wang Lin haussa un sourcil et répliqua : « Le disciple doit sortir pour une affaire précise. Une fois cela accompli, je pourrai me consacrer pleinement à la cultivation. »
 
 La vieille femme lança à Wang Lin un regard sévère et s'apprêtait à répliquer quand Liu Wenju la retint avec bienveillance en disant : « Ton ancêtre Wang s'inquiète de ta sécurité à l'extérieur. Peux-tu nous dire ce que tu comptes faire ? »
 
-Wang Lin répondit honnêtement : « Le disciple n'a pas vu ses parents depuis de nombreuses années, et cette culture en isolement risque de durer très longtemps ; je voudrais donc d'abord rentrer chez moi pour les voir. »
+Wang Lin répondit honnêtement : « Le disciple n'a pas vu ses parents depuis de nombreuses années, et cette cultivation en isolement risque de durer très longtemps ; je voudrais donc d'abord rentrer chez moi pour les voir. »
 
 Liu Wenju réfléchit un instant. Lui et la vieille femme échangèrent un regard. Puis, il sortit un morceau de jade et dit : « D'accord, pars vite et reviens vite. Ce jade peut encaisser un coup d'un cultivateur au stade de la Formation du Noyau. Ne l'utilise que si ta vie est en danger. »
 
 Wang Lin fut surpris. Il s'en saisit rapidement pour le ranger dans son sac de rangement. Le nombre de trésors qu'il possédait était bien trop limité ; les deux seuls dont il disposait étaient le talisman de Zhang Hu et ce morceau de jade.
 
-« Voici la technique pour ouvrir la formation ici. Mémorise-la bien. » Liu Wenju sortit un autre morceau de jade, puis entra dans une pièce de culture en isolement avec la vieille femme.
+« Voici la technique pour ouvrir la formation ici. Mémorise-la bien. » Liu Wenju sortit un autre morceau de jade, puis entra dans une pièce de cultivation en isolement avec la vieille femme.
 
 Après avoir fait ses adieux à tout le monde, il utilisa la technique pour ouvrir la formation. Il prit une profonde inspiration et sauta hors de la grotte. Une fois dehors, il ne marqua pas de pause ; il s'élança dans les airs, activa la technique d'attraction autour de son corps et s'envola vers le ciel.
 
@@ -34,7 +34,7 @@ Situ Nan dit à Wang Lin : « Tu pars enfin. Comptes-tu revenir ? »
 
 Après une courte réflexion, Wang Lin répondit : « Je ne reviendrai pas de sitôt. Une fois mes affaires familiales réglées, j'ai mes propres projets. »
 
-Situ Nan ajouta : « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à ralentir le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de culture sera décuplée. »
+Situ Nan ajouta : « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à ralentir le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de cultivation sera décuplée. »
 
 Tout en discutant, Wang Lin volait à une vitesse fulgurante, laissant derrière lui une traînée rouge.
 

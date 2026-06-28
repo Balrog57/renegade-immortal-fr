@@ -20,7 +20,7 @@ Les yeux du Prince Ji Du brillèrent d'une lueur étrange tandis qu'il sentait u
 
 Bien que ces deux corps véritables fussent identiques en apparence, l'aura qu'ils dégageaient était radicalement différente.
 
-Le corps des cinq éléments représentait la vie de culture de Wang Lin ; il imposait une pression douce mais puissante, celle d'un être suprême.
+Le corps des cinq éléments représentait la vie de cultivation de Wang Lin ; il imposait une pression douce mais puissante, celle d'un être suprême.
 
 Le corps d'essence de massacre représentait sa vie de carnage ; il glaçait le cœur et interdisait à quiconque de s'en approcher.
 
@@ -30,29 +30,29 @@ Quant au corps d'essence de massacre, il n'hésita pas non plus. Ses cheveux et 
 
 Dans la chambre secrète, Wang Lin s'assit. Les deux corps véritables se tenaient devant lui. Il les observa avec une expression solennelle.
 
-« Cent ans de culture pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de culture franchira le pic du Tribulant du Vide après sa fusion avec mon corps originel ! »
+« Cent ans de cultivation pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de cultivation franchira le pic du Tribulant du Vide après sa fusion avec mon corps originel ! »
 
-« Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la malédiction ancestrale dans l'âme de l'Empereur Céleste et en prendre le contrôle ! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
+« Si ma cultivation peut encore augmenter, je pourrai peut-être expulser totalement la malédiction ancestrale dans l'âme de l'Empereur Céleste et en prendre le contrôle ! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
 
-« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Célestes et les Empyreans Ascendants. Mais ces titres n'ont été ajoutés que par autrui ; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
+« Mon chemin de cultivation est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Célestes et les Empyreans Ascendants. Mais ces titres n'ont été ajoutés que par autrui ; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
 
 Ses yeux pétillèrent d'excitation tandis qu'il murmurait : « Grand Empyrean... Ou serait-ce... »
 
 « Ou serait-ce... la quatrième étape ! Mais la quatrième étape existe-t-elle vraiment dans ce monde... L'Ancêtre Ancien et l'Ancêtre Céleste étaient-ils au quatrième stade ? » Les yeux de Wang Lin brillèrent, le cœur battant d'impatience. Il leva la main droite et le corps des cinq éléments s'avança. Il se superposa à Wang Lin et fusionna totalement avec lui.
 
-Une fois le corps des cinq éléments revenu, les cheveux blancs de Wang Lin ondulèrent sans qu'aucun vent ne souffle, et sa culture explosa. À cet instant précis, il atteignit le pic du Tribulant du Vide ; après cent ans de culture en isolement, il était débordant de puissance. Il était à son apogée.
+Une fois le corps des cinq éléments revenu, les cheveux blancs de Wang Lin ondulèrent sans qu'aucun vent ne souffle, et sa cultivation explosa. À cet instant précis, il atteignit le pic du Tribulant du Vide ; après cent ans de cultivation en isolement, il était débordant de puissance. Il était à son apogée.
 
 Regardant le corps d'essence de massacre aux cheveux noirs, Wang Lin serra les dents, le regard résolu. Il pointa le corps vers lui, et celui-ci leva ses yeux indifférents vers lui tout en s'avançant.
 
 En un clin d'œil, le corps d'essence de massacre atteignit Wang Lin. Il ne s'arrêta que lorsqu'il commença à se superposer à lui. Les deux formes fusionnèrent et entamèrent une lente symbiose.
 
-Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de culture grimpa à une vitesse indescriptible et le monde changea de couleur. Sa culture semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
+Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de cultivation grimpa à une vitesse indescriptible et le monde changea de couleur. Sa cultivation semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
 
 Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Céleste pour atteindre bientôt celui de l'Empyrean Ascendant.
 
 La progression ne montrait aucun signe d'arrêt. Les yeux de Wang Lin devinrent encore plus confus, comme s'il allait perdre la raison. Tout lui semblait n'être qu'une illusion.
 
-Alors que sa culture continuait de croître, elle dépassa l'Empyrean Ascendant pour franchir une autre frontière : celle d'un Grand Empyrean !
+Alors que sa cultivation continuait de croître, elle dépassa l'Empyrean Ascendant pour franchir une autre frontière : celle d'un Grand Empyrean !
 
 Après un temps indéterminé, le corps d'essence de massacre et Wang Lin étaient presque totalement fusionnés, malgré un léger chevauchement. On aurait dit qu'ils allaient devenir un seul être. Les yeux de Wang Lin libérèrent une lueur argentée, empreinte de confusion.
 

@@ -12,7 +12,7 @@ Wang Lin quitta le jardin sans dire un mot. Son uniforme rouge attira l'attentio
 
 « Est-ce seulement la peine de poser la question ? Je parie qu'il a dû commettre des actes ignobles pour gagner les faveurs de l'Ancien. C'est un être totalement sans vergogne. »
 
-« Ouais, regarde-moi ce visage stupide. Même s'il devient disciple interne, il restera au bas de l'échelle. Comment la culture pourrait-elle être aussi facile ? »
+« Ouais, regarde-moi ce visage stupide. Même s'il devient disciple interne, il restera au bas de l'échelle. Comment la cultivation pourrait-elle être aussi facile ? »
 
 « Ce déchet... Peu importe qu'il devienne disciple interne ou non, cela ne nous regarde pas. Un déchet reste un déchet ; peu importe où il va, il sera méprisé. »
 
@@ -48,7 +48,7 @@ Wang Lin acquiesça. En entrant dans sa chambre, il remarqua une table dressée 
 
 Le corps de Sun Dazhu apparut tel un spectre. Son visage s'assombrit alors qu'il pensait : « Ce vieux respecte les règles de la secte, je n'empoisonnerai donc pas ta nourriture ; mais je peux y mêler des substances qui entraveront ton absorption d'énergie spirituelle. Avec tes capacités médiocres et mes drogues, tu ne dépasseras jamais le troisième niveau de la Condensation de Qi. Tu resteras à jamais sous mon contrôle. »
 
-Une heure plus tard, Wang Lin se réveilla. Il ajusta ses vêtements et retourna vers la source pour reprendre sa culture. Il cultiva jusqu'à la tombée de la nuit avant de se lever et, sans dire un mot, de s'enfoncer dans la jungle de la montagne.
+Une heure plus tard, Wang Lin se réveilla. Il ajusta ses vêtements et retourna vers la source pour reprendre sa cultivation. Il cultiva jusqu'à la tombée de la nuit avant de se lever et, sans dire un mot, de s'enfoncer dans la jungle de la montagne.
 
 Sun Dazhu, posté sur un arbre voisin, suivit silencieusement Wang Lin.
 

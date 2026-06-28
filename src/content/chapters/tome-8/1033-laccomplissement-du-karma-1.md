@@ -6,27 +6,27 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1033 - The Completion of Karma (1)
 slug: laccomplissement-du-karma-1
 ---
-Ce sentiment complexe n'était pas seulement dû à Yao Xixue. En vérité, après plus de 1 300 ans de culture, non seulement son niveau de culture avait progressé, mais sa compréhension des cieux s'était approfondie. Et avec l'expérience de vie accumulée, il commença peu à peu à méditer sur tous les massacres qu'il avait commis.
+Ce sentiment complexe n'était pas seulement dû à Yao Xixue. En vérité, après plus de 1 300 ans de cultivation, non seulement son niveau de cultivation avait progressé, mais sa compréhension des cieux s'était approfondie. Et avec l'expérience de vie accumulée, il commença peu à peu à méditer sur tous les massacres qu'il avait commis.
 
 Yao Xixue n'était que le déclencheur de cette introspection.
 
-Tout comme lorsqu'il s'enivrait avec Situ Nan, il n'osait pas regarder en arrière pour se demander si la culture en valait vraiment la peine. Au cours de ses 1 300 ans de culture, trop de gens étaient morts par sa main.
+Tout comme lorsqu'il s'enivrait avec Situ Nan, il n'osait pas regarder en arrière pour se demander si la cultivation en valait vraiment la peine. Au cours de ses 1 300 ans de cultivation, trop de gens étaient morts par sa main.
 
 Même Wang Lin ne pouvait plus se souvenir précisément du nombre de victimes. Le meurtre n'était pas un acte dont tout le monde se réjouissait. Pour Wang Lin, ces mille années de sang ne faisaient que l'épuiser.
 
-Cependant, dans ce cruel monde de culture, si vous ne tuiez pas, vous offrez votre propre vie. Personne ne pouvait rien faire face au choix inévitable entre tuer ou être tué.
+Cependant, dans ce cruel monde de cultivation, si vous ne tuiez pas, vous offrez votre propre vie. Personne ne pouvait rien faire face au choix inévitable entre tuer ou être tué.
 
 On ne pouvait pas y échapper !
 
 Soit on vivait, soit on mourait, et l'on n'avait souvent qu'une seule chance.
 
-« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as dû être si cruelle envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi ? Dans ce monde de culture, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort ? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
+« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as dû être si cruelle envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi ? Dans ce monde de cultivation, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort ? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
 
 Wang Lin réfléchit en silence. Il regarda l'horizon et son regard s'assombrit.
 
 « Tu m'as scellée pendant des centaines d'années et tu as utilisé une méthode vile pour m'empêcher de garder mon calme. Tout cela, je peux le supporter car j'ai eu tort en premier. Cependant, tu n'aurais pas dû tuer mon père ! » En plus de la haine intense qui brûlait dans les yeux de Yao Xixue, des larmes brillaient.
 
-Wang Lin poussa un soupir. Plus de 1 000 ans de culture avaient endurci son cœur. Cependant, il était, après tout, un homme, et non un démon. Il avait sa propre logique et ses propres principes moraux.
+Wang Lin poussa un soupir. Plus de 1 000 ans de cultivation avaient endurci son cœur. Cependant, il était, après tout, un homme, et non un démon. Il avait sa propre logique et ses propres principes moraux.
 
 Si l'on ne m'offense pas, je n'offenserai personne !
 
@@ -80,7 +80,7 @@ Elle avait sacrifié sa chair et son âme pour devenir entièrement le réceptac
 
 L'ancien démon était très adaptable. Autrefois, il avait été divisé en neuf parties, chacune possédant son propre esprit indépendant. Certains souhaitaient fusionner de nouveau, tandis que d'autres préféraient rester séparés.
 
-Au cours de ces centaines d'années, Bei Lou avait dévoré sept anciens esprits démoniaques et avait recouvré 80 % de sa culture passée. Les 20 % restants résidaient en ce Démon du Vent.
+Au cours de ces centaines d'années, Bei Lou avait dévoré sept anciens esprits démoniaques et avait recouvré 80 % de sa cultivation passée. Les 20 % restants résidaient en ce Démon du Vent.
 
 Le Démon du Vent différait des autres esprits. Il refusait la fusion et, quel qu'en soit le prix, avait choisi une autre voie. Après avoir échoué à fusionner avec d'innombrables individus, il avait finalement choisi Yao Xixue. En exploitant son obsession née de sa haine envers Wang Lin, il avait réussi sa fusion.
 
@@ -118,6 +118,6 @@ Maintenant que tout était accompli, elle, le Démon du Vent, ne prendrait aucun
 
 Si la personne que Yao Xixue voulait tuer avait été faible, elle aurait pu aider ; mais l'individu face à elle lui inspirait une terreur profonde.
 
-De plus, son niveau de culture actuel était bien inférieur à celui de l'homme en face d'elle, elle ne pouvait se permettre aucun risque.
+De plus, son niveau de cultivation actuel était bien inférieur à celui de l'homme en face d'elle, elle ne pouvait se permettre aucun risque.
 
 « Ceci est l'une des restrictions de la Grotte de l'Empereur Céleste. Si toutes les restrictions sont déclenchées, cela ne sera bon ni pour toi, ni pour moi. Puisqu'il n'y a pas de querelle entre nous, je m'en vais. » Après avoir parlé, le Démon du Vent continua de reculer.

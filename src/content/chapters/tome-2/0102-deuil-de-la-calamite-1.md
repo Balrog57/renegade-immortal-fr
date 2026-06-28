@@ -48,7 +48,7 @@ Au même moment, les cercueils se brisèrent les uns après les autres, et les m
 
 Cependant, toutes ne réagirent pas ainsi. Environ un tiers des marionnettes sortirent simplement pour rester là, l'air confus.
 
-Wang Lin était stupéfait devant ce spectacle. Toutes les marionnettes qui avaient pris l'apparence de leurs maîtres possédaient une culture du dernier stade de l'Établissement des Fondations. Wang Lin fixa ces monstres, le cuir chevelu engourdi par la terreur, tout en reculant lentement.
+Wang Lin était stupéfait devant ce spectacle. Toutes les marionnettes qui avaient pris l'apparence de leurs maîtres possédaient une cultivation du dernier stade de l'Établissement des Fondations. Wang Lin fixa ces monstres, le cuir chevelu engourdi par la terreur, tout en reculant lentement.
 
 Des cris retentirent bientôt dans cette direction. Toutes les marionnettes ayant revêtu la forme de leurs maîtres se jetèrent sur les disciples restants du Secte des Cadavres.
 
@@ -56,9 +56,9 @@ Le sang et les membres volaient dans les airs. Wang Lin fit volte-face et s'enfu
 
 Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité du Secte des Cadavres. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
 
-Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles ; il souhaitait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une culture en porte close et devenir plus fort.
+Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles ; il souhaitait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une cultivation en porte close et devenir plus fort.
 
-Plus il côtoyait le monde de la culture, plus les dangers s'intensifiaient. Il avait l'impression qu'un seul faux pas pourrait lui être fatal. Mais puisqu'il était déjà entré dans ce monde, la seule façon d'assurer sa sécurité était de gagner en puissance.
+Plus il côtoyait le monde de la cultivation, plus les dangers s'intensifiaient. Il avait l'impression qu'un seul faux pas pourrait lui être fatal. Mais puisqu'il était déjà entré dans ce monde, la seule façon d'assurer sa sécurité était de gagner en puissance.
 
 Parallèlement, l'élément bois dont le joyau défiant le ciel avait besoin demeurait une priorité absolue pour lui.
 
@@ -82,7 +82,7 @@ Wang Lin haussa les sourcils et agita ses manches ; une technique d'attraction f
 
 Wang Lin lança un regard froid au jeune homme. Grâce à son Sens Divin, il nota que les trois individus cachés dans la jungle accéléraient pour converger vers eux. Ne voulant pas perdre de temps avec eux, il entreprit de s'éloigner rapidement.
 
-Le jeune homme entra dans une rage folle. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là ne faisaient pas partie des membres du Secte Tian Dao et avaient décidé d'en profiter pour dépouiller les passants.
+Le jeune homme entra dans une rage folle. Bien que leurs niveaux de cultivation fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là ne faisaient pas partie des membres du Secte Tian Dao et avaient décidé d'en profiter pour dépouiller les passants.
 
 Il faut dire que lors de cette compétition, toutes les sectes avaient distribué de nombreux trésors magiques afin d'accroître la puissance de leurs disciples au stade de l'Établissement des Fondations.
 

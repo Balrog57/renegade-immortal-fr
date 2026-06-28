@@ -94,11 +94,11 @@ Toutefois, seule la pluie au-dessus de la ville s'était arrêtée. Sous la pres
 
 Dans le ciel de Zhao, des cultivateurs volaient, parmi lesquels Wang Zhuo, Xu Fei, Zhou Rui et leurs compagnons. Ils survolaient la pluie, mais furent tous saisis d'effroi à cet instant. Devant eux, un vieil homme apparut. Ce dernier se retourna, et une stupeur infinie envahit ses yeux.
 
-« Cette aura... Par les dieux, quel est donc son niveau de culture ?! »
+« Cette aura... Par les dieux, quel est donc son niveau de cultivation ?! »
 
 À l'autre extrémité du pays de Zhao, deux rayons de lumière apparurent lorsque les nuages se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement ; il faillit pousser un cri d'incrédulité.
 
-Également dans le pays de Zhao, dans la ville de Teng, le monstre Nascent Soul de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
+Également dans le pays de Zhao, dans la ville de Teng, le monstre Nascent Soul de la famille Teng, Teng Huayuan, était en pleine cultivation. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
 
 Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel, le sourcil froncé. Il s'agissait de Huang Long, dont l'expression était devenue extrêmement grave. Sa main continuait de tracer des sceaux jusqu'à ce qu'elle se mette à trembler et que le sang ne perle de ses ongles. Ses yeux brillaient d'une lueur étrange, comme s'il n'osait croire à ce qu'il percevait.
 

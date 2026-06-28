@@ -22,7 +22,7 @@ Les flammes environnantes foncèrent vers l'homme d'âge mûr au centre. Durant 
 
 Le regard de l'homme d'âge mûr devint sérieux et glacial. Il lâcha la lance qu'il tenait, laquelle se brisa aussitôt, ses fragments orbitant autour de lui. Simultanément, il pressa son index droit contre sa main et la lumière rouge émanant de ses yeux commença à s'intensifier.
 
-« Je ne pensais pas que des individus ayant atteint un tel niveau de culture se cachent parmi les jeunes cultivateurs du Qi. Pas simple ! » Alors qu'il parlait, son œil droit brilla d'un éclat rouge et un éclair de foudre rouge jaillit instantanément. À l'apparition de cet éclair, une aura froide et monstrueuse se propagea et fonça vers Wang Lin.
+« Je ne pensais pas que des individus ayant atteint un tel niveau de cultivation se cachent parmi les jeunes cultivateurs du Qi. Pas simple ! » Alors qu'il parlait, son œil droit brilla d'un éclat rouge et un éclair de foudre rouge jaillit instantanément. À l'apparition de cet éclair, une aura froide et monstrueuse se propagea et fonça vers Wang Lin.
 
 Sous cette aura glaciale, tandis que l'éclair rouge progressait, les flammes sur son passage semblèrent s'éteindre, laissant derrière elles une longue traînée alors qu'il fonçait vers Wang Lin.
 
@@ -62,7 +62,7 @@ L'excitation dans les yeux de Shengong Hu atteignit son paroxysme. Il regarda la
 
 Zhan Konglie se tenait dans le vide. Bien que les flammes fussent loin, il pouvait encore en ressentir la chaleur. Il était tout aussi exalté en contemplant le brasier. L'envie de faire de même que Shengong Hu lui traversa à nouveau l'esprit.
 
-« La culture de mon Aîné est insondable. Il est évident qu'il réprimait sa culture au stade Corporel Yang auparavant, et qu'elle a maintenant augmenté de façon incalculable. De plus, sa force actuelle ne doit pas être sa limite ! »
+« La cultivation de mon Aîné est insondable. Il est évident qu'il réprimait sa cultivation au stade Corporel Yang auparavant, et qu'elle a maintenant augmenté de façon incalculable. De plus, sa force actuelle ne doit pas être sa limite ! »
 
 Quant à Tang Yanfeng, son expression n'était plus sombre, mais d'une pâleur mortelle. En voyant la bataille entre Wang Lin et l'homme aux cheveux blancs, il avait été extrêmement choqué. Il ne s'attendait pas à ce que Wang Lin puisse maîtriser autant de sorts, mais malgré son choc, il parvint tant bien que mal à accepter cette réalité.
 
@@ -70,7 +70,7 @@ Cependant, lorsqu'il vit les flammes, il eut le souffle coupé. Le choc qui l'ha
 
 Tang Yanfeng murmura pour lui-même : « Lui... Qui diable est-il ?! »
 
-Shengong Hu ricana en regardant Tang Yanfeng et dit calmement : « Cher compagnon de culture Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste ? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être puni par ma famille et isolé par les membres du Temple Céleste du Tonnerre ! »
+Shengong Hu ricana en regardant Tang Yanfeng et dit calmement : « Cher compagnon de cultivation Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste ? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être puni par ma famille et isolé par les membres du Temple Céleste du Tonnerre ! »
 
 Tang Yanfeng resta stupéfait, les yeux rivés sur la silhouette au sein des flammes, incapable de prononcer un mot pendant un long moment.
 

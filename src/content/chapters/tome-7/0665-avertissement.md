@@ -12,9 +12,9 @@ Un mince sourire, qui n'en était pas vraiment un, traversa les yeux de Wang Lin
 
 Il n'avait aucune intention de prendre l'initiative de voler des jades célestes. Cependant, si ce vieil homme cherchait à le dépouiller, alors Wang Lin n'agirait pas comme un voleur, mais en homme se défendant légitimement.
 
-Ainsi, même s'il devait tuer, il conserverait la supériorité morale. De plus, avec sa puissante culture, personne sur la planète Ran Yun n'oserait le contester.
+Ainsi, même s'il devait tuer, il conserverait la supériorité morale. De plus, avec sa puissante cultivation, personne sur la planète Ran Yun n'oserait le contester.
 
-Après huit cents ans de culture, Wang Lin avait non seulement acquis de la sagacité, mais il savait également déjouer les complots les plus sinistres. Cependant, il révélait rarement sa part d'ombre. Maintenant qu'il avait changé d'apparence, même un connaisseur ne pourrait l'identifier par ce seul trait.
+Après huit cents ans de cultivation, Wang Lin avait non seulement acquis de la sagacité, mais il savait également déjouer les complots les plus sinistres. Cependant, il révélait rarement sa part d'ombre. Maintenant qu'il avait changé d'apparence, même un connaisseur ne pourrait l'identifier par ce seul trait.
 
 Une pointe d'hésitation passa dans le regard du vieil homme. Peu de temps après, il laissa échapper un long soupir et, tout en tenant le miroir de bronze, demanda : « Combien de jades célestes voulez-vous pour ceci ? »
 
@@ -26,7 +26,7 @@ Tout en réfléchissant, il baissa la tête pour contempler le miroir de bronze 
 
 Bien qu'il ignorât le pouvoir réel du miroir de bronze, tant qu'il s'agissait d'un trésor d'héritage, il ne saurait être faible.
 
-Ce n'était pas qu'il n'avait pas envisagé de tuer pour s'emparer du trésor, mais en observant le jeune homme, il nota que ses yeux étaient d'un calme olympien. Ce point était secondaire ; le plus important était que si ce jeune homme pouvait sortir deux trésors magiques de cette trempe, il était manifestement un membre éminent d'une grande famille de culture.
+Ce n'était pas qu'il n'avait pas envisagé de tuer pour s'emparer du trésor, mais en observant le jeune homme, il nota que ses yeux étaient d'un calme olympien. Ce point était secondaire ; le plus important était que si ce jeune homme pouvait sortir deux trésors magiques de cette trempe, il était manifestement un membre éminent d'une grande famille de cultivation.
 
 Après réflexion, le vieil homme sortit un sac de rangement. Il en tira dix mille jades célestes et les lança vers Wang Lin.
 
@@ -100,9 +100,9 @@ Les yeux des trois vieillards, dont l'Ancien Sun, s'illuminèrent, mais une poin
 
 « Cher cultivateur, je vous prie de ne point vous mettre en colère ! » Une voix séculaire résonna depuis l'intérieur de la demeure. Puis, un vieil homme vêtu de noir sortit lentement. Sa simple présence fit légèrement se dissiper la pression.
 
-Bien que la culture de cet homme n'ait pas atteint le stade Ascendant, il se trouvait au sommet du stade avancé de la Transformation de l'Âme, à un seul pas de l'Ascension. Il semblait qu'il ne lui manquât qu'une infime étincelle de compréhension pour percer.
+Bien que la cultivation de cet homme n'ait pas atteint le stade Ascendant, il se trouvait au sommet du stade avancé de la Transformation de l'Âme, à un seul pas de l'Ascension. Il semblait qu'il ne lui manquât qu'une infime étincelle de compréhension pour percer.
 
-Cependant, Wang Lin remarqua que ce vieillard dégageait une aura d'Ascendant. Ce n'était pas parce qu'il cachait sa propre culture, mais parce qu'un sens divin d'un cultivateur Ascendant résidait en lui.
+Cependant, Wang Lin remarqua que ce vieillard dégageait une aura d'Ascendant. Ce n'était pas parce qu'il cachait sa propre cultivation, mais parce qu'un sens divin d'un cultivateur Ascendant résidait en lui.
 
 Le vieil homme en noir déclara : « Cette affaire est de la faute de ma famille Sun ; nous avons offensé un cher cultivateur. »
 
@@ -122,7 +122,7 @@ Le vieil homme en noir trancha froidement : « Plus tôt, le sens divin de notre
 
 À cet instant précis, dans l'immensité de l'océan à l'est de la planète Ran Yun, un homme aux longs cheveux, le torse nu, méditait en position de lotus dans les profondeurs marines. Soudain, il ouvrit les yeux, lesquels brillèrent comme deux lampes éclatantes dans l'abîme.
 
-Il leva la tête vers la surface et murmura pour lui-même : « Ce serait donc lui, le cultivateur Ascendant qui est apparu soudainement... Je ne parviens pas à sonder sa culture... Il y a quelque chose en lui qui me fait trembler. »
+Il leva la tête vers la surface et murmura pour lui-même : « Ce serait donc lui, le cultivateur Ascendant qui est apparu soudainement... Je ne parviens pas à sonder sa cultivation... Il y a quelque chose en lui qui me fait trembler. »
 
 « On ne peut point provoquer un tel homme. Puisqu'il séjourne dans une ville de ma famille Sun, c'est peut-être là une opportunité pour nous ! »
 

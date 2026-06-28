@@ -44,7 +44,7 @@ Le Sens Divin de Wang Lin balaya la zone. Bien que son visage fût impassible, s
 
 Son Sens Divin lui révéla qu'une restriction protégeait le sous-sol de la montagne et que deux âmes s'y trouvaient. L'une était seulement au stade de Formation du Noyau, mais l'autre était fort étrange : son niveau oscillait sans cesse entre la Formation du Noyau, l'Âme Naissante et même la Formation de l'Âme.
 
-Ce phénomène n'avait qu'une seule explication : l'Âme Naissante et la culture de cette personne étaient sur le point de se dissiper, signe d'une instabilité extrême.
+Ce phénomène n'avait qu'une seule explication : l'Âme Naissante et la cultivation de cette personne étaient sur le point de se dissiper, signe d'une instabilité extrême.
 
 Le corps de Wang Lin atterrit au sommet de la montagne enneigée et s'enfonça dans la roche. Il se rapprochait de la restriction.
 
@@ -92,9 +92,9 @@ Le vieillard leva la tête, regarda Wang Lin et dit lentement : « Jeune ami, me
 
 Wang Lin soupira et répondit : « La cachette du Senior a été découverte par les cultivateurs de Xue Yu, il est donc préférable que vous partiez immédiatement ! » Après une courte réflexion, il sortit un flacon de pilules et le poussa vers le lit.
 
-« Les blessures du Senior sont trop graves pour que ce flacon puisse les guérir, mais il pourra au moins atténuer la douleur liée à la perte de sa culture. Cela devrait permettre au Senior de quitter ces lieux. Le monde est vaste, d'autres occasions de restaurer votre culture pourraient se présenter. »
+« Les blessures du Senior sont trop graves pour que ce flacon puisse les guérir, mais il pourra au moins atténuer la douleur liée à la perte de sa cultivation. Cela devrait permettre au Senior de quitter ces lieux. Le monde est vaste, d'autres occasions de restaurer votre cultivation pourraient se présenter. »
 
-Le vieil homme esquissa un faible sourire. Sans même regarder les pilules, il dit : « Jeune ami, j'ignore de quel secteur tu viens, mais si j'avais voulu partir, je l'aurais fait depuis longtemps. Je pourrais partir dès maintenant, quitte à accélérer la perte de ma culture, mais sais-tu pourquoi je ne suis pas parti ? »
+Le vieil homme esquissa un faible sourire. Sans même regarder les pilules, il dit : « Jeune ami, j'ignore de quel secteur tu viens, mais si j'avais voulu partir, je l'aurais fait depuis longtemps. Je pourrais partir dès maintenant, quitte à accélérer la perte de ma cultivation, mais sais-tu pourquoi je ne suis pas parti ? »
 
 Wang Lin réfléchit et secoua doucement la tête.
 

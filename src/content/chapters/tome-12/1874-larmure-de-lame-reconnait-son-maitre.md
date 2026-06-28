@@ -16,13 +16,13 @@ Les deux Lances aux Sept Couleurs jaillirent vers Lu Wenran.
 
 Wang Lin ne cessa pas sa retraite. Tout en reculant, il leva les mains. Le vortex des veines magiques dans son corps tourna à une vitesse prodigieuse, permettant à ses mains d'exécuter des sorts avec une célérité terrifiante.
 
-Grâce à cette cadence, la culture de Wang Lin circulait à un rythme effréné. Il commença à enchaîner les sorts sans interruption, tout comme Xu Decai.
+Grâce à cette cadence, la cultivation de Wang Lin circulait à un rythme effréné. Il commença à enchaîner les sorts sans interruption, tout comme Xu Decai.
 
 La main droite de Wang Lin traça un sceau et l'Empreinte de l'Esprit Martial apparut. Deux empreintes de paumes volèrent l'une après l'autre vers Lu Wenran.
 
 Aussitôt, la main gauche de Wang Lin forma des sceaux et le monde se mua en une mer de feu. L'Ombrelle Brûlante du Royaume fit son apparition. Deux ombrelles antiques, superposées, libérèrent un incendie monstrueux.
 
-Les Lances aux Sept Couleurs atteignirent Lu Wenran les premières. D'un revers de manche, il déchaîna la puissance de sa culture de milieu de stade de la Tribulation du Vide, faisant éclater les deux lances. Cependant, peu après, les deux Empreintes de l'Esprit Martial entrèrent en collision avec lui.
+Les Lances aux Sept Couleurs atteignirent Lu Wenran les premières. D'un revers de manche, il déchaîna la puissance de sa cultivation de milieu de stade de la Tribulation du Vide, faisant éclater les deux lances. Cependant, peu après, les deux Empreintes de l'Esprit Martial entrèrent en collision avec lui.
 
 Des grondements tonitruants résonnèrent. Avant même que Lu Wenran ne puisse réagir, les deux Ombreslles Brûlantes du Royaume libérèrent un feu destructeur qui se referma sur lui.
 
@@ -70,7 +70,7 @@ Quant à lui, il fonça sur Wang Lin avec une soif de sang monstrueuse, faisant 
 
 Tout en rugissant, Lu Wenran leva le bras et saisit le vide. Un Engrenage aux Neuf Dents apparut dans sa main et il l'écrasa sans pitié vers Wang Lin.
 
-Un hurlement strident retentit alors que l'Engrenage aux Neuf Dents se rapprochait de sa cible. Les pupilles de Wang Lin se contractèrent. Il connaissait la puissance d'un cultivateur au milieu du stade de la Tribulation du Vide, mais il devait briser le plan de Lu Wenran dans ce palais souterrain. Sinon, une fois que Lu Wenran aurait obtenu l'armure de l'âme et renforcé sa culture, la situation deviendrait critique.
+Un hurlement strident retentit alors que l'Engrenage aux Neuf Dents se rapprochait de sa cible. Les pupilles de Wang Lin se contractèrent. Il connaissait la puissance d'un cultivateur au milieu du stade de la Tribulation du Vide, mais il devait briser le plan de Lu Wenran dans ce palais souterrain. Sinon, une fois que Lu Wenran aurait obtenu l'armure de l'âme et renforcé sa cultivation, la situation deviendrait critique.
 
 C'était sa seule chance de gagner en puissance ; il ne pouvait se permettre d'échouer !
 

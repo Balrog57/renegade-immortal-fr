@@ -30,7 +30,7 @@ Sa vision était floue et il ne percevait plus le monde clairement. À cet insta
 
 La femme en rose était pâle. Elle vit le rideau de lumière s'effondrer tandis que l'homme massif se précipitait vers elle avec la puissance du vent et du tonnerre. Derrière lui, des dizaines de milliers de cultivateurs chargeaient à sa suite.
 
-Elle sentit la planète de culture sous ses pieds trembler violemment. Comme si elle ne pouvait supporter la pression de l'homme massif et de la multitude qui le suivait, la planète commença à s'effondrer.
+Elle sentit la planète de cultivation sous ses pieds trembler violemment. Comme si elle ne pouvait supporter la pression de l'homme massif et de la multitude qui le suivait, la planète commença à s'effondrer.
 
 D'innombrables crevasses apparurent sur la terre et le sol se mit à onduler comme une mer déchaînée. Autour d'elle, les cultivateurs s'élançaient, les yeux injectés de sang. Ils étaient tels des papillons de nuit se précipitant vers les flammes en chargeant les envahisseurs !
 
@@ -38,7 +38,7 @@ Lorsque les papillons de nuit volent vers le feu, ignorent-ils réellement qu'il
 
 Alors que le vent violent faisait rage, le visage de la femme en rose était livide, teinté d'une pointe de rouge. Malgré l'hésitation qui la traversait, elle trancha net dans son émotion et s'avança.
 
-Son niveau de culture n'était pas élevé, mais elle était une membre du Royaume Intérieur. Elle craignait la mort, mais elle n'hésiterait pas à mourir en martyre alors que leur royaume était sur le point d'être anéanti !
+Son niveau de cultivation n'était pas élevé, mais elle était une membre du Royaume Intérieur. Elle craignait la mort, mais elle n'hésiterait pas à mourir en martyre alors que leur royaume était sur le point d'être anéanti !
 
 L'homme massif, porté par le vent et le tonnerre, esquissa un sourire méprisant et ignora les faibles cultivateurs du Royaume Intérieur. Au lieu de cela, sa main s'abattit impitoyablement vers le bas.
 

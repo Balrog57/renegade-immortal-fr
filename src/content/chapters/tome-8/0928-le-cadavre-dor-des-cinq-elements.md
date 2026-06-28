@@ -36,7 +36,7 @@ On aurait dit un vortex de trois cents mètres s'élançant vers les cieux pour 
 
 Alors que le vortex montait, les dix mille gouttes de pluie jaillirent. Elles sifflèrent dans l'air comme si la terre était devenue le ciel. La pluie naissait de la terre pour remonter vers les cieux, avant de mourir à l'horizon !
 
-Une pointe d'intention de tonnerre brillait dans les yeux de Wang Lin, mais il la réprima. Il n'était pas nécessaire de révéler sa véritable culture ici. Le vortex et les dix mille gouttes de pluie s'abattirent directement sur la feuille de lotus.
+Une pointe d'intention de tonnerre brillait dans les yeux de Wang Lin, mais il la réprima. Il n'était pas nécessaire de révéler sa véritable cultivation ici. Le vortex et les dix mille gouttes de pluie s'abattirent directement sur la feuille de lotus.
 
 Le vortex se referma d'abord sur la feuille de lotus, la faisant vaciller. Puis, les dix mille gouttes de pluie s'écrasèrent sur elle. Le bruit des gouttes frappant la surface résonna violemment et la feuille s'effondra soudainement !
 
@@ -72,7 +72,7 @@ Ce cadavre était entouré de multiples chaînes. Celles qui pendaient plus tôt
 
 Ce cadavre n'avait pas été formé naturellement, mais raffiné à partir d'innombrables restes par un sortilège. Au sein de l'Alliance, on l'appelait un « cadavre raffiné » !
 
-Cet objet était créé par le Royaume de la Prison des Cadavres, la Secte des Cadavres fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés ! Chaque cadavre possédait une culture équivalente à celle d'un cultivateur Nirvana Scryer au stade avancé !
+Cet objet était créé par le Royaume de la Prison des Cadavres, la Secte des Cadavres fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés ! Chaque cadavre possédait une cultivation équivalente à celle d'un cultivateur Nirvana Scryer au stade avancé !
 
 Le premier cadavre raffiné qui apparut secoua les chaînes de son corps et poussa un rugissement. Ce cri pouvait pénétrer le corps pour affecter directement l'âme originelle.
 
@@ -92,7 +92,7 @@ Il n'avait aucune chaîne autour de lui ; seules cinq talismans jaunes flottaien
 
 L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homme, il pensa immédiatement aux cinq éléments et à la première fois qu'il avait rencontré Red Butterfly !
 
-« Corps spirituel des cinq éléments ! » Wang Lin recula encore plus vite. Il savait qu'avec son niveau de culture, il ne pourrait jouer qu'un rôle mineur dans une bataille de cette ampleur entre deux systèmes stellaires. C'est pourquoi, dès le départ, sa priorité était la préservation de sa propre vie.
+« Corps spirituel des cinq éléments ! » Wang Lin recula encore plus vite. Il savait qu'avec son niveau de cultivation, il ne pourrait jouer qu'un rôle mineur dans une bataille de cette ampleur entre deux systèmes stellaires. C'est pourquoi, dès le départ, sa priorité était la préservation de sa propre vie.
 
 S'il pouvait obtenir un mérite, il le prendrait ; sinon, il se concentrerait uniquement sur sa survie !
 

@@ -82,7 +82,7 @@ Cependant, sous la puissance du vent déchaîné par le dragon noir, les nuages 
 
 Après avoir utilisé ce sort, le visage de Yao Changdong devint livide. Ce sort céleste de l'Âme Sanguine lui avait été transmis par l'Ancêtre, le Dieu Sanglant. On disait que c'était l'un des plus grands sorts de leur ancêtre céleste.
 
-À son apogée, il pouvait atteindre dix-neuf cycles, mais avec le niveau de culture actuel de Yao Changdong, il ne pouvait en gérer que six, et même ainsi, cela consommait la majeure partie de son énergie originelle.
+À son apogée, il pouvait atteindre dix-neuf cycles, mais avec le niveau de cultivation actuel de Yao Changdong, il ne pouvait en gérer que six, et même ainsi, cela consommait la majeure partie de son énergie originelle.
 
 Le sang commença à bouger rapidement, formant un vortex avant de s'élancer vers le ciel. Tel un tourbillon écarlate, il créa une force puissante qui entra en collision avec le vent. Les deux forces se neutralisèrent promptement.
 

@@ -32,7 +32,7 @@ Dans l'Ancien Ji, Wang Lin ne vit pas le Grand Empereur, mais il parcourut diver
 
 En un clin d'œil, un an et demi s'était écoulé depuis que Wang Lin et Xuan Luo avaient quitté la cité impériale de l'Ancien Dao.
 
-Durant cette période, Wang Lin ne fit face à aucun danger et n'eut pas à lutter pour sa survie. Il n'avait qu'à absorber les essences et accroître son niveau de culture.
+Durant cette période, Wang Lin ne fit face à aucun danger et n'eut pas à lutter pour sa survie. Il n'avait qu'à absorber les essences et accroître son niveau de cultivation.
 
 Il n'avait pas à se soucier du reste, car tout était pris en charge par son maître, Xuan Luo !
 
@@ -64,9 +64,9 @@ Au bas de la montagne, Xuan Luo marchait devant et jeta un regard bienveillant �
 
 « Le Grand Empereur Gu Dao appartient à la même ère que l'Ancêtre Ancien et il est le gardien du clan ancien. S'il n'existait pas, je crains que notre clan n'ait été dévoré par le clan céleste et n'ait cessé d'exister. » Xuan Luo leva les yeux vers le mont Gu Dao avec un respect profond.
 
-« Lorsque le Disciple était au sein du clan céleste, j'ai lu des descriptions du Grand Empereur Gu Dao dans certains ouvrages. On disait que son niveau de culture était supérieur à celui des autres Grands Empereurs et qu'il était le seul à avoir tué plusieurs Grands Empereurs. Le Disciple respecte un être d'une telle puissance. » Wang Lin gravit les marches en contemplant le sommet de la montagne.
+« Lorsque le Disciple était au sein du clan céleste, j'ai lu des descriptions du Grand Empereur Gu Dao dans certains ouvrages. On disait que son niveau de cultivation était supérieur à celui des autres Grands Empereurs et qu'il était le seul à avoir tué plusieurs Grands Empereurs. Le Disciple respecte un être d'une telle puissance. » Wang Lin gravit les marches en contemplant le sommet de la montagne.
 
-« Même ton Maître ignore quel est le véritable niveau de culture du Grand Empereur Gu Dao, mais face à lui, j'ai ressenti comme si j'étais un mortel... » Xuan Luo secoua la tête dans un soupir.
+« Même ton Maître ignore quel est le véritable niveau de cultivation du Grand Empereur Gu Dao, mais face à lui, j'ai ressenti comme si j'étais un mortel... » Xuan Luo secoua la tête dans un soupir.
 
 « Hormis les Grands Empereurs, le Senior Gu Dao ne convoque personne au hasard. Ce n'est que lorsqu'un nouvel empereur ancien est sélectionné qu'ils sont appelés ici. » Xuan Luo monta silencieusement les marches, une pointe d'inquiétude dans le cœur.
 
@@ -90,9 +90,9 @@ Cette tour possédait neuf étages et était reliée à quatre piliers massifs p
 
 Ces sons étaient très agréables ; lorsqu'ils pénétraient dans l'esprit, ils apportaient une clarté soudaine et semblaient même accélérer la circulation de la puissance ancienne dans le corps.
 
-Pourtant, en restant là, le visage de Wang Lin pâlit légèrement. Il sentait clairement que sa culture était réprimée. En revanche, sa puissance ancienne n'était pas seulement préservée, elle débordait de vitalité.
+Pourtant, en restant là, le visage de Wang Lin pâlit légèrement. Il sentait clairement que sa cultivation était réprimée. En revanche, sa puissance ancienne n'était pas seulement préservée, elle débordait de vitalité.
 
-Cette répression de sa culture et de ses essences lui donnait l'impression de porter plusieurs montagnes sur ses épaules. Bien qu'essoufflé, il serra les dents et resta derrière Xuan Luo.
+Cette répression de sa cultivation et de ses essences lui donnait l'impression de porter plusieurs montagnes sur ses épaules. Bien qu'essoufflé, il serra les dents et resta derrière Xuan Luo.
 
 Quatre personnes étaient assises sur les quatre piliers massifs. C'étaient des individus d'âge moyen, très minces, vêtus de robes grises. Leurs vêtements flottaient au vent, mais leurs yeux demeuraient clos.
 
@@ -104,7 +104,7 @@ Le visage pâle de Wang Lin balaya les quatre silhouettes. Il fut stupéfait : i
 
 Wang Lin fit de même, s'inclinant derrière son maître.
 
-L'environnement était plongé dans un silence absolu, seulement rompu par le vent et le tintement des cloches. Ces sons ne cessaient jamais et dégageaient une force étrange qui réprimait davantage les essences et la culture de Wang Lin, faisant perler la sueur froide sur son front.
+L'environnement était plongé dans un silence absolu, seulement rompu par le vent et le tintement des cloches. Ces sons ne cessaient jamais et dégageaient une force étrange qui réprimait davantage les essences et la cultivation de Wang Lin, faisant perler la sueur froide sur son front.
 
 Après un long moment, la porte du premier étage s'ouvrit silencieusement et une personne en sortit. C'était un jeune homme chauve portant la même robe grise. Il s'inclina devant Xuan Luo.
 
@@ -116,6 +116,6 @@ Le jeune homme jeta un regard vers Wang Lin avant de se détourner et de s'incli
 
 Le temps s'étira. En un éclair, trois jours passèrent. Durant ces trois jours, Xuan Luo resta immobile, sans aucune impatience, toujours aussi respectueux qu'au premier instant. Wang Lin restait derrière lui. Ces trois jours lui parurent durer trois ans, voire trois cents ans !
 
-Car le son des cloches résonnait continuellement dans l'esprit de Wang Lin, comme si elles cherchaient à dissoudre sa culture céleste et toutes ses essences.
+Car le son des cloches résonnait continuellement dans l'esprit de Wang Lin, comme si elles cherchaient à dissoudre sa cultivation céleste et toutes ses essences.
 
-Elles semblaient le contraindre à disperser ses essences et sa culture afin que seule la puissance du clan ancien subsiste en lui, permettant ainsi à la goutte de sang de l'âme de se propager dans tout son être.
+Elles semblaient le contraindre à disperser ses essences et sa cultivation afin que seule la puissance du clan ancien subsiste en lui, permettant ainsi à la goutte de sang de l'âme de se propager dans tout son être.

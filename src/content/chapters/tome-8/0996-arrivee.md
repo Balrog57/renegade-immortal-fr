@@ -36,7 +36,7 @@ Un géant de plus de mille pieds de haut fonçait vers eux !
 
 « Ce démon géant de mille pieds peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire ! »
 
-« Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan des Démons Géants... et sa propre culture n'est pas si élevée. »
+« Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan des Démons Géants... et sa propre cultivation n'est pas si élevée. »
 
 L'apparition de cette monture provoqua une immense agitation parmi les cultivateurs environnants, qui se mirent à palabrer. À mesure que la créature approchait, on put enfin distinguer qui la montait. Un seul coup d'œil suffit pour provoquer un nouveau choc général.
 
@@ -54,7 +54,7 @@ On pouvait voir quatre personnes sur le dos du démon géant ! Tous les quatre �
 
 Alors que de plus en plus de personnes identifiaient les cavaliers, les discussions s'éteignirent, remplacées par la stupeur. Même Ling Tianhou et sa compagnie furent surpris, leurs yeux brillant d'une lueur intense.
 
-À mesure que Lei Jia se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial de l'Épurateur Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
+À mesure que Lei Jia se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa cultivation au stade initial de l'Épurateur Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
 
 « Maître Vent Creux ! »
 
@@ -90,9 +90,9 @@ L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei J
 
 Ling Tianhou fixa Wang Lin, une trace de crainte dans les yeux. Il ne pourrait jamais oublier ce rayon de lumière. S'il n'avait pas fui rapidement en supposant que l'autre lueur avait absorbé suffisamment d'énergie originelle, il ne serait pas debout aujourd'hui.
 
-Sa façon de percevoir Wang Lin avait changé ; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête : « Le compagnon de culture Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
+Sa façon de percevoir Wang Lin avait changé ; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête : « Le compagnon de cultivation Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
 
-Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de l'All-Voyant. Très peu de personnes étaient dignes d'être appelées « compagnon de culture » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits !
+Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de l'All-Voyant. Très peu de personnes étaient dignes d'être appelées « compagnon de cultivation » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits !
 
 L'All-Voyant regarda Wang Lin. Du début à la fin, son expression ne changea pas, comme si l'incident d'il y a plusieurs mois n'avait jamais eu lieu. Il hocha légèrement la tête et dit lentement : « Ce n'est rien. »
 

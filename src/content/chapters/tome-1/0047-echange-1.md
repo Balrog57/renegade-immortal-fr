@@ -8,11 +8,11 @@ slug: echange-1
 ---
 Wang Lin sourit amèrement et dit : « La Transformation de l'Âme est un stade bien trop lointain pour un junior. »
 
-« Foutaises ! Avec moi, qui viens d'un pays de rang 6, pour t'aider, qu'est-ce que la phase de Transformation de l'Âme ? Bien que je ne puisse pas sortir, j'ai utilisé mon Essence d'Âme Naissante pour favoriser ta culture ces trente dernières années ; sans quoi, avec ton manque de talent, comment aurais-tu pu atteindre ce stade en seulement trente ans ? »
+« Foutaises ! Avec moi, qui viens d'un pays de rang 6, pour t'aider, qu'est-ce que la phase de Transformation de l'Âme ? Bien que je ne puisse pas sortir, j'ai utilisé mon Essence d'Âme Naissante pour favoriser ta cultivation ces trente dernières années ; sans quoi, avec ton manque de talent, comment aurais-tu pu atteindre ce stade en seulement trente ans ? »
 
-« Et parce que tu as absorbé mon Essence d'Âme Naissante, personne d'autre que ceux ayant le même niveau de culture que moi ne peut percer ton secret. »
+« Et parce que tu as absorbé mon Essence d'Âme Naissante, personne d'autre que ceux ayant le même niveau de cultivation que moi ne peut percer ton secret. »
 
-« De plus, avec la perle transcendante entre tes mains, de quoi as-tu à te faire peur ? Il m'a fallu un effort surhumain pour obtenir cette perle lors de son apparition dans l'alliance de culture, ce qui a coûté la perte de mon corps. Mon âme aurait été détruite si je n'avais pas fui dans cette perle. À l'origine, je voulais trouver un autre corps à utiliser, mais cette maudite perle transcendante... il semble que si quelqu'un sans corps y pénètre, il ne peut plus en sortir. »
+« De plus, avec la perle transcendante entre tes mains, de quoi as-tu à te faire peur ? Il m'a fallu un effort surhumain pour obtenir cette perle lors de son apparition dans l'alliance de cultivation, ce qui a coûté la perte de mon corps. Mon âme aurait été détruite si je n'avais pas fui dans cette perle. À l'origine, je voulais trouver un autre corps à utiliser, mais cette maudite perle transcendante... il semble que si quelqu'un sans corps y pénètre, il ne peut plus en sortir. »
 
 « Je ne te mentirai pas. La première fois que je t'ai vu, je voulais prendre possession de ton corps, mais cette perle est comme une cage qui m'empêche de partir. »
 
@@ -32,7 +32,7 @@ Il projeta son Sens Divin et découvrit deux disciples, un homme et une femme, m
 
 Wang Lin connaissait bien ces deux disciples ; ils appartenaient tous deux à la montagne arriére. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
 
-De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Bien qu'il ne les croît pas totalement, il avait énormément appris sur le fonctionnement du monde de la culture. Il ne pensait pas que l'homme mentirait sur de tels faits.
+De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Bien qu'il ne les croît pas totalement, il avait énormément appris sur le fonctionnement du monde de la cultivation. Il ne pensait pas que l'homme mentirait sur de tels faits.
 
 Trois jours plus tard, l'échange entre la Secte Heng Yue et la Secte Xuan Dao commença officiellement.
 
@@ -46,7 +46,7 @@ Au sommet du Pic des Pins se trouvait une vaste plateforme de pierre préparée 
 
 Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transforma instantanément en une intention meurtrière qui transperçait les os.
 
-« Ami Huang Long, chaque fois que je vois ces piliers de jade blanc, la sensation est différente. Il n'est pas étonnant que ce soit un trésor du pays de culture Zhao », soupira le vieil homme Ouyang en agitant la main pour dissiper l'intention meurtrière.
+« Ami Huang Long, chaque fois que je vois ces piliers de jade blanc, la sensation est différente. Il n'est pas étonnant que ce soit un trésor du pays de cultivation Zhao », soupira le vieil homme Ouyang en agitant la main pour dissiper l'intention meurtrière.
 
 Derrière lui, tous les disciples de la Secte Xuan Dao furent frappés de stupeur. À cet instant, l'intention meurtrière leur donna l'impression d'être sur un champ de bataille. Ils se sentirent presque écrasés par cette pression, jusqu'à ce que l'Ancien Ouyang la disperse.
 
@@ -66,7 +66,7 @@ Bien sûr, tout cela dépendait de la capacité de Wang Lin à franchir le trois
 
 Durant ces trois jours, Wang Lin n'avait presque pas quitté sa demeure. Il avait passé la majeure partie de son temps dans l'espace onirique, discutant avec Situ Nan.
 
-Après de nombreux échanges, il commença à cerner la personnalité de ce dernier. Situ Nan était l'expert numéro un du pays de rang 6, Suzaku. Sa culture atteignait des sommets inimaginables ; il tuerait quiconque l'ennuyait, volerait tout ce qu'il désirait et faisait preuve d'une arrogance extrême.
+Après de nombreux échanges, il commença à cerner la personnalité de ce dernier. Situ Nan était l'expert numéro un du pays de rang 6, Suzaku. Sa cultivation atteignait des sommets inimaginables ; il tuerait quiconque l'ennuyait, volerait tout ce qu'il désirait et faisait preuve d'une arrogance extrême.
 
 L'apparition de Liu Feng fit régner un grand silence. Le chef de la secte, Huang Long, regarda Liu Feng et dit : « Zhao Long, à toi ! »
 

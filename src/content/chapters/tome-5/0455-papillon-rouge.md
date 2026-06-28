@@ -32,7 +32,7 @@ Wang Lin, protégé par le drapeau des âmes, se déplaçait comme un nuage de f
 
 Seule l'énergie de la lame en forme de demi-lune imposait à Wang Lin de dégainer l'épée céleste pour la parer.
 
-Cette situation était exaltante pour Wang Lin ; elle lui rappelait l'époque où il était chassé par ses ennemis, alors que son niveau de culture était encore dérisoire.
+Cette situation était exaltante pour Wang Lin ; elle lui rappelait l'époque où il était chassé par ses ennemis, alors que son niveau de cultivation était encore dérisoire.
 
 À ce moment précis, deux rayons de lumière volèrent vers Wang Lin. Ils s'arrêtèrent à cinq mille kilomètres de là, mais lorsqu'ils aperçurent la scène, ils firent brusquement demi-tour pour fuir.
 

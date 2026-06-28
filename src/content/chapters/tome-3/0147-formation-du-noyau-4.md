@@ -8,7 +8,7 @@ slug: formation-du-noyau-4
 ---
 Une autre personne, enveloppée d'un brouillard noir, s'exclama : « Espèce de bâtard ! » Une main se tendit pour gifler Wei San.
 
-Le visage de Wei San pâlit instantanément et il s'agenouilla au sol. Il bégaya : « Disciple... tout ce que le disciple a dit est vrai. À part avoir mal estimé son niveau de culture, le disciple... » La terreur rendait ses paroles incohérentes.
+Le visage de Wei San pâlit instantanément et il s'agenouilla au sol. Il bégaya : « Disciple... tout ce que le disciple a dit est vrai. À part avoir mal estimé son niveau de cultivation, le disciple... » La terreur rendait ses paroles incohérentes.
 
 Aucun des autres disciples du Secte de la Lutte contre le Mal ne laissa paraître la moindre émotion. Certains éprouvaient même une certaine satisfaction à voir sa détresse. Ce spectacle glaça davantage le cœur de Wei San. Voyant la main approcher, il eut soudain une idée et hurla : « Je... je m'en souviens ! Il a demandé au travailleur du Pavillon de Raffinage des Trésors s'il existait un fourneau à pilules de rang 5 ou supérieur ! »
 
@@ -84,7 +84,7 @@ Il prit une grande inspiration pour calmer son sens divin, puis dit aux deux aut
 
 « J'ai déjà informé le chef de la secte. Je pense qu'il enverra des renforts sous peu. »
 
-Le sourcil de Wang Lin se fronça. Normalement, le Royaume du Ji n'aurait eu aucun effet sur des cultivateurs de la Formation du Noyau, mais il était influencé par son niveau de culture actuel. Grâce à l'achèvement de la Méthode de Culture de l'Ascension des Enfers et à la formation d'un noyau prototype, il pouvait blesser des cultivateurs de la Formation du Noyau, sans toutefois pouvoir les achever.
+Le sourcil de Wang Lin se fronça. Normalement, le Royaume du Ji n'aurait eu aucun effet sur des cultivateurs de la Formation du Noyau, mais il était influencé par son niveau de cultivation actuel. Grâce à l'achèvement de la Méthode de Cultivation de l'Ascension des Enfers et à la formation d'un noyau prototype, il pouvait blesser des cultivateurs de la Formation du Noyau, sans toutefois pouvoir les achever.
 
 Bien que les blessures semblassent graves, ces cultivateurs n'auraient besoin que de quelque repos pour récupérer.
 

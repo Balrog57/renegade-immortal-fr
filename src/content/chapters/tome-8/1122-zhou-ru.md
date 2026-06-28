@@ -2,7 +2,7 @@
 n: 1122
 title: Zhou Ru
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1122 - Zhou Ru
 slug: zhou-ru
 ---
@@ -70,7 +70,7 @@ Les montagnes perçaient les cieux et les rivières coulaient avec grâce. De pe
 
 Une immense formation se dressait dans la partie nord du Royaume du Vide Brillant. C'était l'entrée du domaine, et à cet instant précis, un garçon était assis devant le réseau de transfert.
 
-Bien qu'il parût jeune, il dégageait une aura antique. Il était évident que son apparence juvénile n'était que le fruit de sa méthode de culture.
+Bien qu'il parût jeune, il dégageait une aura antique. Il était évident que son apparence juvénile n'était que le fruit de sa méthode de cultivation.
 
 Alors qu'il était assis là, il ouvrit soudain les yeux. Il murmura quelques mots et observa la formation.
 
@@ -114,7 +114,7 @@ Sans hésiter, elle se changea en un rayon de lumière et vola vers la source du
 
 Après le départ de Zhou Ru, une femme d'une beauté exceptionnelle apparut du vide là où elle se trouvait. Elle regarda devant elle avec une expression complexe et amère, avant de faire un pas en avant.
 
-Wang Lin attendit simplement après avoir envoyé son sens divin. Peu de temps après, plusieurs rayons de lumière convergèrent vers lui et se transformèrent en cultivateurs. Leurs niveaux de culture variaient, le plus faible étant au début du stade Nirvana Cleanser. Ils dévisagèrent Wang Lin avec froideur, ne lui accordant aucune importance.
+Wang Lin attendit simplement après avoir envoyé son sens divin. Peu de temps après, plusieurs rayons de lumière convergèrent vers lui et se transformèrent en cultivateurs. Leurs niveaux de cultivation variaient, le plus faible étant au début du stade Nirvana Cleanser. Ils dévisagèrent Wang Lin avec froideur, ne lui accordant aucune importance.
 
 L'homme qui s'était rendu en Terre des Esprits Démoniaques avec Mu Bingmei n'apparut pas. C'est un homme d'âge moyen, vêtu de robes pourpres et dorées, qui surgit du vide devant Wang Lin.
 

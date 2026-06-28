@@ -18,7 +18,7 @@ Dans le sud, la famille Xu était sous le choc. La panique et le désespoir se l
 
 « C'est... Quel genre de puissance est-ce là... »
 
-« L'ancienne formation n'a absolument rien pu arrêter. Toutes les planètes de culture ont été anéanties, et même la planète Dong Ling, qui existe depuis des temps immémoriaux, a tremblé... »
+« L'ancienne formation n'a absolument rien pu arrêter. Toutes les planètes de cultivation ont été anéanties, et même la planète Dong Ling, qui existe depuis des temps immémoriaux, a tremblé... »
 
 Ce coup de poing dépassait l'entendement. C'était quelque chose qui ne devrait pas exister ; cela relevait déjà du domaine des cultivateurs du troisième pas.
 

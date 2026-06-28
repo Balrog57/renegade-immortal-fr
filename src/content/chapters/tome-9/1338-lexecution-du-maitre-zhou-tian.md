@@ -44,7 +44,7 @@ Les cultivateurs du Clan Scatter Thunder en charge des lieux froncèrent les sou
 
 « Cette affaire ne nous concerne pas. Que sa vie ou sa mort soit décidée par le destin ! »
 
-Les six hommes échangèrent quelques mots avant de clore le sujet et de fermer les yeux pour reprendre leur culture.
+Les six hommes échangèrent quelques mots avant de clore le sujet et de fermer les yeux pour reprendre leur cultivation.
 
 Quant à Wang Lin, sitôt disparu, sa vision se brouilla instantanément, mais son âme originelle était si puissante qu'il recouvra immédiatement ses sens. Une fois la vue rétablie, il put distinguer le passage étroit qui émettait une lumière cristalline. Lorsque cette lumière touchait le corps, elle vous rendait transparent, révélant jusqu'à vos entrailles.
 
@@ -62,7 +62,7 @@ Enveloppé d'un manteau de tonnerre qui lui donnait l'apparence d'un nuage orage
 
 En tant que cultivateur Nirvana Scryer, il possédait sa propre fierté. Les 7 Millions de Mondes étaient une terre sans loi, un lieu prisé des puissants. Qu'il s'agisse d'échanges secrets ou de règlements de comptes, les Anciens du clan ne s'en souciaient guère. C'était là que seule la force faisait foi !
 
-Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait : « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de culture est légèrement supérieur au mien ; si j'entame un combat, je ne pourrai pas l'égaler ! »
+Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait : « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de cultivation est légèrement supérieur au mien ; si j'entame un combat, je ne pourrai pas l'égaler ! »
 
 « Cependant, j'ai demandé à quelques proches de m'accompagner afin que le Maître Hao Kun soit plus prudent... » Tout en méditant, il accélérait sa marche. Ses pensées étaient accaparées par l'échange à venir, et quant à Wang Lin, il n'était pour lui qu'une fourmi insignifiante. Il lui suffirait d'attendre un instant sur la place des 7 Millions de Mondes pour exécuter ce Yu Fei dès son apparition.
 
@@ -80,7 +80,7 @@ La turbulence chaotique s'effondrait devant cet homme, laissant derrière lui de
 
 Conjuguée à cette voix glaciale, l'impression était pour le Maître Zhou Tian que cet être venait de déchirer le vide pour venir l'exterminer !
 
-« Tu... Tu... Tu cachais ta culture ! » Le visage du Maître Zhou Tian était livide, mais une lueur meurtrière brilla dans ses yeux. Ayant cultivé durant de longues années, il avait affronté maintes crises de vie ou de mort. Malgré le choc, il se reprit rapidement et, sans hésiter, frappa le point entre ses sourcils. Lorsque ce point fut libéré, un grondement tonnerreux secoua l'espace et d'innombrables éclairs surgirent du vide !
+« Tu... Tu... Tu cachais ta cultivation ! » Le visage du Maître Zhou Tian était livide, mais une lueur meurtrière brilla dans ses yeux. Ayant cultivé durant de longues années, il avait affronté maintes crises de vie ou de mort. Malgré le choc, il se reprit rapidement et, sans hésiter, frappa le point entre ses sourcils. Lorsque ce point fut libéré, un grondement tonnerreux secoua l'espace et d'innombrables éclairs surgirent du vide !
 
 Le tonnerre qu'il déchaîna était monstrueux dans ce tunnel étroit ; il semblait s'être métamorphosé en un dragon de tonnerre. La créature ouvrit sa gueule et chargea Wang Lin.
 

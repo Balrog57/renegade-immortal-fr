@@ -92,7 +92,7 @@ Quant à Chen Long, il apparut là où se tenait Wang Lin. Interloqué et terrif
 
 La peur l'habitait. Il n'avait jamais imaginé que Greed possédât des trésors aussi prodigieux. Ce jouet était d'une puissance inouïe : il pouvait renverser l'univers ! En échangeant sa position avec Wang Lin, il avait ressenti une puissance divine ; face à elle, il se sentait insignifiant.
 
-« Ce Greed est véritablement digne de la génération de Maître. Bien que son niveau de culture soit bien inférieur au sien, il doit y avoir quelque chose de spécial en lui pour avoir capté l'attention de Maître ! »
+« Ce Greed est véritablement digne de la génération de Maître. Bien que son niveau de cultivation soit bien inférieur au sien, il doit y avoir quelque chose de spécial en lui pour avoir capté l'attention de Maître ! »
 
 Il ignorait que Greed ne partait jamais sans trésors. Au fil des millénaires, il en avait accumulé suffisamment pour rivaliser avec n'importe quel palais céleste ! Cependant, beaucoup de ces objets étaient inutilisables pour lui-même, et sa prudence extrême le poussait à fuir dès qu'un danger se profilait, craignant le vol.
 
@@ -106,7 +106,7 @@ L'épée céleste de Zhou Yi brilla et un rayon d'énergie s'en échappa. Cette 
 
 Dans un fracas assourdissant, une ouverture se déchira dans la brume. L'épée céleste s'élança et Wang Lin, les yeux étincelants, s'élança à son tour !
 
-« La culture de cet homme est ordinaire, mais ses trésors sont mystérieux. Comment un tel individu a-t-il pu obtenir autant d'artefacts magiques ?! » Après avoir surgi, l'épée céleste de Zhou Yi plongea vers Greed.
+« La cultivation de cet homme est ordinaire, mais ses trésors sont mystérieux. Comment un tel individu a-t-il pu obtenir autant d'artefacts magiques ?! » Après avoir surgi, l'épée céleste de Zhou Yi plongea vers Greed.
 
 Les yeux de Greed s'illuminèrent. Il recula et frappa à nouveau son sac de rangement. Ce geste fit non seulement hésiter Zhou Yi, mais fit également bondir le cœur de Wang Lin.
 

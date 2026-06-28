@@ -104,7 +104,7 @@ Cette sphère gazeuse était l'essence même de l'homme robuste !
 
 Tenant cette sphère, Wang Lin s'approcha de Qing Shui. Il posa sa main libre sur celui-ci, qui avait les yeux clos et semblait à l'article de la mort.
 
-Le corps de Qing Shui trembla et il ouvrit soudainement les yeux. Sept filaments de gaz noir jaillirent de lui, ondulant comme des pythons. Ils semblaient hésiter à quitter son corps, mais la puissance de la culture de Wang Lin les en expulsa de force.
+Le corps de Qing Shui trembla et il ouvrit soudainement les yeux. Sept filaments de gaz noir jaillirent de lui, ondulant comme des pythons. Ils semblaient hésiter à quitter son corps, mais la puissance de la cultivation de Wang Lin les en expulsa de force.
 
 Alors que ces sept filaments se dissipaient, bien que le regard de Qing Shui fût encore terne, l'aura de mort qui l'habitait s'évapora. La vitalité commença alors à revenir en lui.
 

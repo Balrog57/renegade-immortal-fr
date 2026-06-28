@@ -18,7 +18,7 @@ Après avoir médité en silence un instant, Wang Lin se leva et quitta la plan�
 
 À l'extérieur de la planète Suzaku, la question du garçon à la grosse tête venait tout juste d'atteindre les oreilles des deux cultivateurs Allheaven.
 
-Les deux cultivateurs réprimèrent la panique dans leurs cœurs. L'un d'eux dit rapidement : « Messager Céleste, nous avons vu une statue sur cette planète de culture... »
+Les deux cultivateurs réprimèrent la panique dans leurs cœurs. L'un d'eux dit rapidement : « Messager Céleste, nous avons vu une statue sur cette planète de cultivation... »
 
 « Je vous ai dit de massacrer la planète, pas d'admirer une statue ! » Le garçon à la grosse tête les interrompit brutalement et son regard se fit glacial. Bien qu'il conservât ce sourire idiot, ses yeux étaient empreints d'une intention meurtrière.
 
@@ -28,7 +28,7 @@ Le garçon à la grosse tête les dévisagea d'un air sombre. Il fit un pas et s
 
 À ses yeux, il ne devait utiliser ses sorts que sur des planètes de rang 7 !
 
-« Malheureusement, je n'ai encore rencontré aucune planète de culture de rang 7. Je veux voir quel genre d'individu sur cette planète abandonnée peut faire fuir deux cultivateurs Ascendants au sommet de la phase tardive ! » Le garçon à la grosse tête laissa échapper un ricanement froid. Son corps ne s'approcha pas de la planète, mais son sens divin se déploya. Il se trouvait au début du stade Nirvana Scryer et avait choisi d'entrer dans le bassin céleste ; il avait perdu son domaine, mais possédait désormais une origine céleste !
+« Malheureusement, je n'ai encore rencontré aucune planète de cultivation de rang 7. Je veux voir quel genre d'individu sur cette planète abandonnée peut faire fuir deux cultivateurs Ascendants au sommet de la phase tardive ! » Le garçon à la grosse tête laissa échapper un ricanement froid. Son corps ne s'approcha pas de la planète, mais son sens divin se déploya. Il se trouvait au début du stade Nirvana Scryer et avait choisi d'entrer dans le bassin céleste ; il avait perdu son domaine, mais possédait désormais une origine céleste !
 
 Il avait secrètement utilisé plusieurs sorts célestes auparavant, et la puissance qu'il en avait retirée l'avait agréablement surpris.
 
@@ -50,7 +50,7 @@ En un instant, la planète Suzaku fut plongée dans le silence.
 
 Cela n'était dû qu'au fait que le garçon à la grosse tête ne souhaitait pas massacrer les mortels. Autrement, d'un simple balayage de son sens divin, tout aurait péri !
 
-Sous l'assaut de son sens divin, seules quelques âmes d'exception continuaient de lutter. Zhou Wutai, possédant la lignée d'un dragon et ayant hérité du Cristal de Culture Planétaire, laissa échapper un rugissement tandis qu'une lumière verte enveloppait son corps. Cette lueur se mua en écailles verdâtres et une aura puissante jaillit de lui. Dans le ciel, un dragon vert de mille pieds de long apparut et poussa un rugissement vers les cieux.
+Sous l'assaut de son sens divin, seules quelques âmes d'exception continuaient de lutter. Zhou Wutai, possédant la lignée d'un dragon et ayant hérité du Cristal de Cultivation Planétaire, laissa échapper un rugissement tandis qu'une lumière verte enveloppait son corps. Cette lueur se mua en écailles verdâtres et une aura puissante jaillit de lui. Dans le ciel, un dragon vert de mille pieds de long apparut et poussa un rugissement vers les cieux.
 
 Yun Quezi était couvert de tatouages dorés. Son visage était pâle et ses veines saillantes. À cet instant, il eut l'illusion de faire face aux forces mêmes du ciel et de la terre.
 
@@ -66,7 +66,7 @@ Le garçon à la grosse tête gardait une expression calme alors qu'il descendai
 
 Aux yeux des cultivateurs de la planète Suzaku, une énergie d'une puissance inconcevable se propageait lentement à mesure que le garçon descendait.
 
-« Une planète de culture gâchée. Tout le monde ici n'est qu'une bande de déchets ! À quoi bon vous garder ? Puisque vous m'avez rencontré, laissez-moi vous envoyer vers la mort ! » Le garçon à la grosse tête leva un doigt et pointa l'assemblée avec désinvolture.
+« Une planète de cultivation gâchée. Tout le monde ici n'est qu'une bande de déchets ! À quoi bon vous garder ? Puisque vous m'avez rencontré, laissez-moi vous envoyer vers la mort ! » Le garçon à la grosse tête leva un doigt et pointa l'assemblée avec désinvolture.
 
 Une énergie spirituelle céleste dense s'accumula sur son doigt jusqu'à produire une lueur dorée. Cette lumière contenait un sortilège céleste terrifiant.
 
@@ -106,7 +106,7 @@ Zhou Wutai éprouvait le même sentiment. Bien que blessé, il comptait tout don
 
 Quant au garçon à la grosse tête, son esprit vacillait tandis qu'il fixait la statue de Wang Lin. Il craignait terriblement ce dernier. En restant là, debout face à l'image de Wang Lin, chaque pore de sa peau semblait se hérisser. C'était comme s'il faisait face au véritable Wang Lin ! Il recula instinctivement de plusieurs dizaines de pieds, le visage sombre.
 
-« Je ne peux vraiment pas provoquer Xu Mu pour une simple planète de culture abandonnée. Cependant, cette statue de Xu Mu semble exister depuis des centaines d'années... »
+« Je ne peux vraiment pas provoquer Xu Mu pour une simple planète de cultivation abandonnée. Cependant, cette statue de Xu Mu semble exister depuis des centaines d'années... »
 
 « Ce Xu Mu n'appartient pas au Système Stellaire Allheaven !! Il est un cultivateur du Système Stellaire Alliance, c'est forcément ça ! » Le cœur du garçon battait la chamade. Il avait le sentiment de tenir un immense secret. Grâce à cela, il pourrait ruiner Xu Mu et peut-être même causer sa perte !
 
@@ -122,7 +122,7 @@ Il leva sa main droite pour frapper, mais à cet instant, une voix plus glaciale
 
 « Xu Mu ! » C'était comme si le garçon avait reçu un coup violent sur la tête. Son visage pâlit et il recula sans l'ombre d'une hésitation. Son esprit vacillait violemment, totalement désemparé.
 
-« Je ne peux pas combattre, je dois fuir ! » En battant en retraite, il cracha une grande bouchée de sang. Sans hésiter, il utilisa une technique d'évasion sanguine qui endommagerait sa propre culture. Après le royaume d'une ligne vers le ciel, il craignait Xu Mu du plus profond de son être.
+« Je ne peux pas combattre, je dois fuir ! » En battant en retraite, il cracha une grande bouchée de sang. Sans hésiter, il utilisa une technique d'évasion sanguine qui endommagerait sa propre cultivation. Après le royaume d'une ligne vers le ciel, il craignait Xu Mu du plus profond de son être.
 
 « Bienfaiteur ! » Les yeux de Tie Yan s'illuminèrent d'une émotion accumulée depuis des centaines d'années. Deux larmes coulèrent sur ses joues lorsqu'il vit la silhouette sortir des ondulations près de la statue.
 

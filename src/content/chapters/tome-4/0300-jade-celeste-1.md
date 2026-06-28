@@ -10,7 +10,7 @@ Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le co
 
 Lorsque Red Butterfly leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
 
-« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, son cœur Dao est puissant, il est extrêmement prudent, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être le disciple d'élite d'un pays de culture de rang 5... » Les yeux de Red Butterfly s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
+« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, son cœur Dao est puissant, il est extrêmement prudent, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être le disciple d'élite d'un pays de cultivation de rang 5... » Les yeux de Red Butterfly s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
 
 Wang Lin n'examina pas soigneusement le fragment vers lequel il se dirigeait cette fois ; il en choisit un au hasard. À son arrivée, il ne put s'empêcher d'être stupéfait. Ce fragment ressemblait à un monde de feu où la lave recouvrait le sol. Par intermittence, des bulles bouillonnantes éclataient, dégageant une odeur âcre.
 
@@ -22,7 +22,7 @@ Wang Lin fronça les sourcils. Il ignorait pourquoi les matrices de transfert du
 
 Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à cent pieds du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
 
-Wang Lin fut surpris, car son sens divin ne l'avait absolument pas détectée. Cependant, il n'était pas novice dans le monde de la culture et réagit promptement. Au moment même où la faille surgissait, il parvint à forcer son corps à s'écarter sur le côté.
+Wang Lin fut surpris, car son sens divin ne l'avait absolument pas détectée. Cependant, il n'était pas novice dans le monde de la cultivation et réagit promptement. Au moment même où la faille surgissait, il parvint à forcer son corps à s'écarter sur le côté.
 
 La faille apparut et disparut presque instantanément.
 
@@ -52,7 +52,7 @@ L'homme à ses côtés hocha rapidement la tête, puis tous deux volèrent prude
 
 En chemin, de nombreuses failles spatiales apparurent près d'eux, mais les deux semblaient capables de les détecter d'une manière ou d'une autre et s'écartaient systématiquement à temps. Leur vitesse de descente était plusieurs fois supérieure à celle de Wang Lin.
 
-Le niveau de culture des deux était celui du début de la Formation de l'Âme ; ils n'étaient donc pas en mesure de détecter Wang Lin, dont le sens divin avait déjà atteint le stade avancé de la Formation de l'Âme.
+Le niveau de cultivation des deux était celui du début de la Formation de l'Âme ; ils n'étaient donc pas en mesure de détecter Wang Lin, dont le sens divin avait déjà atteint le stade avancé de la Formation de l'Âme.
 
 Le sixième frère cadet regarda le gouffre et demanda : « Troisième frère aîné, est-ce bien le Temple des Bêtes Célestes ? »
 
@@ -98,7 +98,7 @@ Wang Lin observa la scène via son sens divin et son attention se porta instanta
 
 Il esquissa un sourire glacial. À en juger par leur allure, ces deux-là appartenaient au Secte Da Lou. Puisqu'il avait déjà offensé la secte, autant trouver un moyen de lui dérober ce trésor.
 
-Les deux étaient des cultivateurs au stade initial de la Formation de l'Âme, bien que le sixième frère cadet vienne tout juste d'atteindre ce stade et que sa culture ne fût pas encore stable. Cependant, ils devaient avoir des ressources pour se défendre ; Wang Lin n'agit pas avec imprudence et attendit le moment opportun.
+Les deux étaient des cultivateurs au stade initial de la Formation de l'Âme, bien que le sixième frère cadet vienne tout juste d'atteindre ce stade et que sa cultivation ne fût pas encore stable. Cependant, ils devaient avoir des ressources pour se défendre ; Wang Lin n'agit pas avec imprudence et attendit le moment opportun.
 
 Les deux hommes discutèrent encore un peu avant de s'envoler vers une entrée de grotte.
 

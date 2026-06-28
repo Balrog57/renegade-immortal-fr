@@ -60,7 +60,7 @@ Le singe né de la lumière jaune ne fut aucunement perturbé par les ondes sono
 
 Le visage de la jeune fille pâlit subitement et elle cracha une petite quantité de sang. Elle lança un regard assassin à Cheng Xian, tandis que toutes les filles derrière elle, les yeux brûlants de rage, sortaient leurs trésors, prêtes à l'attaque.
 
-Quant au son des cloches qui se dirigeait vers Wang Lin, il marqua un léger temps d'arrêt devant lui avant de disparaître mystérieusement sans laisser de trace. Bien que la culture de Wang Lin fût encore modeste, son instinct aiguisé et sa maîtrise des restrictions étaient indéniables. Cela suffisait amplement pour neutraliser l'attaque d'une simple junior au stade de la Formation du Noyau ; ses restrictions avaient frappé précisément tous les points faibles des ondes sonores.
+Quant au son des cloches qui se dirigeait vers Wang Lin, il marqua un léger temps d'arrêt devant lui avant de disparaître mystérieusement sans laisser de trace. Bien que la cultivation de Wang Lin fût encore modeste, son instinct aiguisé et sa maîtrise des restrictions étaient indéniables. Cela suffisait amplement pour neutraliser l'attaque d'une simple junior au stade de la Formation du Noyau ; ses restrictions avaient frappé précisément tous les points faibles des ondes sonores.
 
 Le singe de lumière jaune tourna soudainement la tête vers Wang Lin avec une expression étrange. Puis, son corps se dissipa pour redevenir une lueur jaune que Cheng Xian absorba.
 
@@ -120,7 +120,7 @@ Après avoir quitté le secteur ouest, Wang Lin retourna dans sa cour du patio n
 
 Une fois de retour chez lui, il sortit le fourneau à pilules que Li Muwan lui avait offert et se remit à la pratique de l'alchimie.
 
-Il savait qu'il manquait de temps et qu'il devait impérativement augmenter son niveau de culture. Il ne s'était pas montré à Li Muwan depuis une éternité ; Wang Lin ignorait si la passion d'autrefois était encore présente.
+Il savait qu'il manquait de temps et qu'il devait impérativement augmenter son niveau de cultivation. Il ne s'était pas montré à Li Muwan depuis une éternité ; Wang Lin ignorait si la passion d'autrefois était encore présente.
 
 Il n'avait pas l'intention de révéler son identité avant d'atteindre le stade de l'Âme Naissante. Tout changement soudain risquerait de gâcher son identité durement acquise de disciple de la Secte du Ciel Nuageux.
 
@@ -128,7 +128,7 @@ Par conséquent, Wang Lin préférait rester discret. Pour lui, deux cents ans �
 
 Quant à savoir comment Li Muwan connaissait le nom de son ancien corps, l'explication était simple : en deux siècles, beaucoup de choses peuvent changer, et un simple nom perd de son importance avec le temps. Bien sûr, si elle avait découvert qu'il s'agissait de Wang Lin, la situation aurait été bien plus étrange.
 
-Wang Lin éprouvait des sentiments complexes envers Li Muwan. Depuis ses débuts dans le monde de la culture, il avait rencontré de nombreuses femmes, mais elle était la seule avec qui il avait partagé sa vie pendant tant d'années. En réalité, Wang Lin avait des sentiments pour elle, mais dès qu'ils commençaient à poindre, il les étouffait de force.
+Wang Lin éprouvait des sentiments complexes envers Li Muwan. Depuis ses débuts dans le monde de la cultivation, il avait rencontré de nombreuses femmes, mais elle était la seule avec qui il avait partagé sa vie pendant tant d'années. En réalité, Wang Lin avait des sentiments pour elle, mais dès qu'ils commençaient à poindre, il les étouffait de force.
 
 À cet instant, le cœur de Wang Lin était troublé par cette rencontre avec une vieille amie. Mais après un moment, il mit cela de côté pour se reconcentrer sur ses objectifs.
 
@@ -142,7 +142,7 @@ S'il continuait ainsi, les ressources du jardin s'épuiseraient sans aucun résu
 
 Et ce ne fut pas un cas isolé. Tant qu'il utilisait ce liquide, le taux de réussite augmentait de façon prodigieuse, atteignant neuf réussites sur dix. Après de nombreux tests, Wang Lin confirma que l'un des effets du liquide spirituel était d'accroître considérablement l'efficacité de la fabrication des pilules.
 
-Grâce au liquide spirituel et à la Perle Défiant le Ciel, sa culture progressait à une vitesse fulgurante. Il avait désormais atteint le 15e niveau et approchait de l'Établissement des Fondations.
+Grâce au liquide spirituel et à la Perle Défiant le Ciel, sa cultivation progressait à une vitesse fulgurante. Il avait désormais atteint le 15e niveau et approchait de l'Établissement des Fondations.
 
 Wang Lin se souvenait parfaitement de sa tentative passée pour atteindre ce stade avec son corps principal. Peu importait ses efforts, il échouait systématiquement. Situ Nan lui avait alors expliqué qu'il n'existait que trois voies pour atteindre l'Établissement des Fondations : obtenir une pilule d'Établissement des Fondations, voler les fondations de quelqu'un d'autre, ou être aidé par un cultivateur de l'Âme Naissante.
 

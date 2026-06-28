@@ -14,7 +14,7 @@ Wang Lin se leva, joignit les mains et répondit : « J'ai vu certaines scènes.
 
 Le vieux cultivateur esquissa un léger sourire tout en levant la main droite vers la flamme. Celle-ci vacilla, puis fut capturée dans la paume du vieil homme.
 
-« Cette chose a été formée par l'essence originelle d'un membre de haut niveau du clan Fu de la Feuille Dorée. Comprendre cette origine originelle profitera grandement à ta culture. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne ! »
+« Cette chose a été formée par l'essence originelle d'un membre de haut niveau du clan Fu de la Feuille Dorée. Comprendre cette origine originelle profitera grandement à ta cultivation. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne ! »
 
 Sur ces mots, le vieux cultivateur sembla absorber une trace du pouvoir de cette flamme, et son visage devint légèrement rubescent. Après un long moment, il retrouva son aspect normal et agita ses manches. Wang Lin disparut sur-le-champ.
 
@@ -24,7 +24,7 @@ Après avoir renvoyé Wang Lin, les yeux du vieux cultivateur brillèrent d'une 
 
 Le corps de Wang Lin apparut au sommet d'une montagne sur la planète Suzaku, le visage pâle. Il regarda en direction du Clan des Immortels Délaissés et commença à réfléchir.
 
-« Le niveau de culture de ce vieux cultivateur est extrêmement élevé. Je crains qu'il ne soit un vieux monstre au même niveau que Maître Flamespark, voire plus puissant encore. Quel est donc le but de cet homme en restant si longtemps sur la planète Suzaku ? »
+« Le niveau de cultivation de ce vieux cultivateur est extrêmement élevé. Je crains qu'il ne soit un vieux monstre au même niveau que Maître Flamespark, voire plus puissant encore. Quel est donc le but de cet homme en restant si longtemps sur la planète Suzaku ? »
 
 « Tout d'abord, je peux confirmer que l'ouverture des deux dernières couches du Clan des Immortels Délaissés est l'un de ses objectifs. Je ne sais juste pas s'il a connaissance de la Terre des Dieux Anciens... » Les yeux de Wang Lin s'illuminèrent, puis il partit rapidement.
 
@@ -82,7 +82,7 @@ Cette aura était imprégnée d'une odeur de sang qui se propagea pour former un
 
 Dans ce rugissement, une voix froide et impitoyable s'éleva :
 
-« Domaine de Massacre de l'Alliance de Culture, Yu Fei, venu réclamer votre tête ! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
+« Domaine de Massacre de l'Alliance de Cultivation, Yu Fei, venu réclamer votre tête ! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
 
 L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Sa main traça un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 

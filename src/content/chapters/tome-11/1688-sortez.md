@@ -94,7 +94,7 @@ Même la troisième concubine fut secouée et se rua rapidement sur place.
 
 Des rires démente résonnaient dans la faille alors que les figures dorées s'en échappaient. Cependant, tous ceux qui sortirent virent immédiatement le cultivateur aux cheveux blancs, vêtu de blanc, qui semblait les attendre les yeux clos !
 
-Ils ne reconnurent pas Wang Lin. Bien qu'il possédât un certain niveau de culture, ils ne le considéraient pas comme une menace. Ils rirent sauvagement, l'excitation brillant dans leurs yeux.
+Ils ne reconnurent pas Wang Lin. Bien qu'il possédât un certain niveau de cultivation, ils ne le considéraient pas comme une menace. Ils rirent sauvagement, l'excitation brillant dans leurs yeux.
 
 « Nous pouvons enfin sortir ! »
 

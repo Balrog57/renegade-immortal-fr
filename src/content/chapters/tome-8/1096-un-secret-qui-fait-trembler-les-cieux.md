@@ -58,7 +58,7 @@ Après le départ de Mo Zhi, d'autres vinrent féliciter Wang Lin, mais il ne re
 
 Ce jour-là, tout le Secte Divin Vermillion Bird était en émoi. Les anciens et les membres des trois autres sectes étaient également présents pour assister au couronnement du nouvel Empereur Divin. Bien que cette cérémonie fût fastidieuse, elle relevait de la tradition et dura toute une journée. Une fois les trois autres sectes parties, le Secte Divin Vermillion Bird retrouva peu à peu son calme.
 
-De nombreux membres se concentrèrent sur leur culture. Quant aux anciens, tous étaient conscients du plan visant à sauver l'Empereur Divin Azure Dragon ; ils s'étaient tous retirés en méditation pour maintenir leur condition au sommet de sa puissance. Après tout, sauver l'Empereur Divin Azure Dragon était une affaire d'une importance capitale !
+De nombreux membres se concentrèrent sur leur cultivation. Quant aux anciens, tous étaient conscients du plan visant à sauver l'Empereur Divin Azure Dragon ; ils s'étaient tous retirés en méditation pour maintenir leur condition au sommet de sa puissance. Après tout, sauver l'Empereur Divin Azure Dragon était une affaire d'une importance capitale !
 
 À cet instant, la silhouette de Wang Lin apparut à la lisière du champ d'étoiles ardent du Secte Divin Vermillion Bird. Une âme originelle flottait devant lui. Cette âme avait l'apparence d'un homme d'âge mûr qui regardait Wang Lin avec des yeux empreints de bienveillance et de satisfaction.
 
@@ -70,7 +70,7 @@ Wang Lin réfléchit silencieusement.
 
 « Pour l'instant, 90 % de mon origine est ici. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Azure Dragon, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
 
-« Grâce à cette flamme blanche, mon corps ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien ! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou au Secte Divin Vermillion Bird de surmonter une crise. »
+« Grâce à cette flamme blanche, mon corps ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta cultivation. Souviens-t'en bien ! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou au Secte Divin Vermillion Bird de surmonter une crise. »
 
 L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointaines du Secte Divin Vermillion Bird. La mélancolie et la réticence marquaient son visage.
 
@@ -78,7 +78,7 @@ L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointain
 
 Il lança un dernier regard profond à Wang Lin avant de se détourner. Il marchait avec élégance, comme s'il venait d'être libéré de millénaires de pression.
 
-« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Je fus le disciple alchimiste de la quatrième génération de l'Empereur Divin Vermillion Bird. Je suis reconnaissant envers lui de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte...
+« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Je fus le disciple alchimiste de la quatrième génération de l'Empereur Divin Vermillion Bird. Je suis reconnaissant envers lui de ne pas m'avoir abandonné et de m'avoir enseigné la cultivation du Qi. À l'âge de 1 327 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte...
 
 À l'âge de 2 945 ans, je devins un ancien du Secte Divin Vermillion Bird.
 
@@ -92,7 +92,7 @@ Il lança un dernier regard profond à Wang Lin avant de se détourner. Il march
 
 C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Sectes Divins ! Les Quatre Sectes ne sont pas originaires de ce Royaume Scellé. Ils sont venus de l'extérieur il y a fort longtemps...
 
-En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de culture, à l'époque où le Royaume Céleste Antique existait encore. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
+En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de cultivation, à l'époque où le Royaume Céleste Antique existait encore. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
 
 Cette planète est toujours sous le contrôle de mon Secte Divin Vermillion Bird, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
 

@@ -102,7 +102,7 @@ Cette voix possédait une force pénétrante ; elle traversa son corps, pénétr
 
 Cet appel ne toucha pas seulement Wang Lin ; même son corps originel, situé dans le Système Stellaire de l'Alliance, en ressentit les échos !
 
-Bien que son corps originel fût caché à l'intérieur d'une planète de culture, ses yeux s'ouvrirent soudainement. Ils brillaient avec l'intensité du soleil !
+Bien que son corps originel fût caché à l'intérieur d'une planète de cultivation, ses yeux s'ouvrirent soudainement. Ils brillaient avec l'intensité du soleil !
 
 Wang Lin eut un souffle court, le regard étincelant.
 

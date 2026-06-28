@@ -10,7 +10,7 @@ Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un
 
 Huang Long eut un sourire amer et répondit : « L'Épée de la Lune Pourpre m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
 
-L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre : « Chef de secte, le Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la culture a toujours été ainsi. À l'époque où le Secte Heng Yue était puissant, nous faisions la même chose. »
+L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre : « Chef de secte, le Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la cultivation a toujours été ainsi. À l'époque où le Secte Heng Yue était puissant, nous faisions la même chose. »
 
 Huang Long soupira intérieurement et ne dit mot.
 
@@ -28,7 +28,7 @@ Situ Nan insista pour le pousser : « Qu'y a-t-il de si difficile ? Je vais t'en
 
 Wang Lin jeta un coup d'œil vers lui, mais avant qu'il ne puisse répondre, le disciple vêtu de noir nommé Zhang intervint : « Huang Dashan, si tu as du temps à perdre, tu devrais plutôt cultiver au lieu de demander à quelqu'un de prendre soin de toi. »
 
-Huang Dashan eut un sourire en coin et répliqua : « Le secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de culture, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
+Huang Dashan eut un sourire en coin et répliqua : « Le secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de cultivation, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
 
 Le frère Zhang se tourna vers Wang Lin. Il se remémora l'époque où il avait accompagné les trois disciples sur la montagne pour leurs tests d'entrée dans le secte. Il soupira secrètement : « Wang Lin, tes progrès sont véritablement inattendus. Je t'admire sincèrement. »
 

@@ -28,7 +28,7 @@ Il ne pourrait jamais oublier ce qui s'était passé autrefois. À l'origine, il
 
 Tous trois débattaient souvent du Dao, et il était si éclairé par la sagesse de Maître Zhong Xuan qu'il acceptait de lui obéir. Maître Zhong Xuan était également extrêmement courtois, et les deux étaient de grands amis. Au début, leur relation était limpide comme l'eau, mais avec le temps, elle s'était bonifiée comme un grand vin.
 
-Pourtant, tout cela avait basculé à cause d'un événement. Maître Flamespark se réveillait souvent de sa culture, le souvenir gravé dans son esprit tournant en boucle. Chaque fois, il serrait les poings et laissait échapper un rugissement de colère et d'humiliation.
+Pourtant, tout cela avait basculé à cause d'un événement. Maître Flamespark se réveillait souvent de sa cultivation, le souvenir gravé dans son esprit tournant en boucle. Chaque fois, il serrait les poings et laissait échapper un rugissement de colère et d'humiliation.
 
 Il ne voulait pas s'en remémorer le détail, mais ce souvenir était si profondément ancré qu'il était devenu une épine dans son cœur. Cette épine, enfouie au plus profond de lui, avait commencé à pourrir. Elle avait corrodé sa chair et son sang, devenant une douleur éternelle !
 
@@ -58,7 +58,7 @@ Ils ne cultivaient pas, ils hurlaient de douleur ! Leurs gémissements fusionnai
 
 Ce hurlement ne pouvait être entendu hors du Royaume aux Sept Couleurs, mais il s'engouffrait directement dans l'esprit de quiconque se trouvait à l'intérieur. C'étaient les cris de lutte de 100 000 fantômes. Le son était si puissant qu'il pourrait ébranler le monde lui-même.
 
-Chaque cultivateur avait d'innombrables épines acérées lui transperçant le corps. Ils ne semblaient nullement être en pleine culture, mais plutôt avoir été forcés de maintenir cette position, les épines les emprisonnant !
+Chaque cultivateur avait d'innombrables épines acérées lui transperçant le corps. Ils ne semblaient nullement être en pleine cultivation, mais plutôt avoir été forcés de maintenir cette position, les épines les emprisonnant !
 
 Chaque cultivateur gardait la tête levée, ses yeux évidés fixés vers le ciel tandis qu'il poussait des cris inconscients.
 

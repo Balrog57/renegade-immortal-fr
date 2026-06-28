@@ -12,7 +12,7 @@ La destruction de la formation ne signifiait pas que tout était terminé. Crée
 
 La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellaire Antique s'engouffra, enveloppant le Royaume Intérieur. Cette aura était inconnue, mais en même temps familière.
 
-À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques cultivateurs du troisième niveau avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, afin de rassembler ces flammes et faciliter leur culture !
+À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques cultivateurs du troisième niveau avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, afin de rassembler ces flammes et faciliter leur cultivation !
 
 Cependant, après la mise en place de la Formation de Scellement du Royaume, toutes les Flammes Joss furent extraites du Royaume Intérieur jusqu'à ce qu'il n'en reste plus aucune. Cela créa un cycle vicieux pendant des dizaines de milliers d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
 
@@ -58,11 +58,11 @@ Les maîtres de tous ces trésors étaient morts et les esprits auraient dû dis
 
 À mesure qu'ils s'intégraient, le disque en rotation rapide acquit une sagesse extrême !
 
-« Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels ! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
+« Toutes les planètes de cultivation innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels ! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
 
 Alors que ses paroles résonnaient, d'innombrables ombres illusoires de planètes apparurent à travers les quatre grands systèmes stellaires désormais vides.
 
-Il y avait eu de nombreuses planètes de culture ; elles étaient détruites depuis longtemps, mais leurs âmes refusaient de se dissiper. Lorsque Wang Lin prononça sa promesse de vie éternelle, elles se manifestèrent toutes.
+Il y avait eu de nombreuses planètes de cultivation ; elles étaient détruites depuis longtemps, mais leurs âmes refusaient de se dissiper. Lorsque Wang Lin prononça sa promesse de vie éternelle, elles se manifestèrent toutes.
 
 À l'apparition des âmes planétaires, chaque grain de poussière, chaque météore et chaque fragment de continent brisé trembla.
 
@@ -92,7 +92,7 @@ De même, à Allheaven, des centaines de milliers de fragments d'âmes furent sa
 
 Ces fragments d'âmes ne pouvaient entrer dans le cycle de la réincarnation ni renaître ; ils étaient déjà morts. Un fragment d'âme n'est que le ressentiment généré après la mort. Sans un moyen de les rassembler, ils resteraient invisibles. Habituellement, les créatures qui absorbaient cette aura devenaient extrêmement cruelles.
 
-Le ressentiment affectait grandement les cultivateurs, particulièrement ceux dont le niveau de culture était faible. Leurs soi-disant âmes provenaient précisément de ces fragments !
+Le ressentiment affectait grandement les cultivateurs, particulièrement ceux dont le niveau de cultivation était faible. Leurs soi-disant âmes provenaient précisément de ces fragments !
 
 Alors que tous les fragments d'âmes des cultivateurs morts du Royaume Extérieur, issus de toutes les guerres passées, se rassemblaient dans la formation circulaire, des âmes commencèrent à apparaître autour du disque. Leurs bras poussaient l'immense roue et, grâce aux millions de fragments d'âmes, le disque commença à tourner.
 

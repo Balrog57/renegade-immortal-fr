@@ -14,7 +14,7 @@ Ce fragment était le dernier vestige du pouvoir de sa lignée céleste.
 
 Craignant que d'autres ne le remarquent, Wang Lin ferma les yeux lorsqu'il décocha la seconde flèche. Il savait qu'il possédait encore la force pour un tir supplémentaire, mais ce serait le dernier !
 
-La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement ; les huit Poissons-Yeux qui avaient déjà ouvert leurs yeux l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de culture.
+La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement ; les huit Poissons-Yeux qui avaient déjà ouvert leurs yeux l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de cultivation.
 
 Une lumière aux sept couleurs se répandit, créant sept écrans lumineux de teintes différentes devant lui. À peine apparus, les huit Poissons-Yeux convergèrent.
 
@@ -48,7 +48,7 @@ La corde fut tendue et la flèche apparut une fois de plus, encore tachée de sa
 
 Dès que la troisième flèche fut décochée, Wang Lin ferma immédiatement les yeux afin de dissimuler la lumière dorée qui s'éteignait définitivement dans son regard.
 
-La poitrine du Daoïste aux Sept Couleurs était trempée de sang. Alors que la troisième flèche approchait, il forma un sceau et agita la main. La folie brillait dans ses yeux ; il n'avait jamais été aussi blessé de sa vie. Ce qui le rendait plus fou encore était que l'homme qui l'avait ainsi frappé était Wang Lin, dont le niveau de culture était bien inférieur au sien !
+La poitrine du Daoïste aux Sept Couleurs était trempée de sang. Alors que la troisième flèche approchait, il forma un sceau et agita la main. La folie brillait dans ses yeux ; il n'avait jamais été aussi blessé de sa vie. Ce qui le rendait plus fou encore était que l'homme qui l'avait ainsi frappé était Wang Lin, dont le niveau de cultivation était bien inférieur au sien !
 
 Ce qui l'étouffait davantage était que l'Arc de Li Guang qui l'avait blessé était un objet qu'il avait lui-même demandé au Souverain d'offrir. Il avait initialement l'intention de donner cet arc à Wang Lin pour attirer Lian Daofei, puis, une fois la querelle déclenchée entre Wang Lin et le Vieux Fantôme Zhan, Wang Lin utiliserait l'arc pour blesser ce dernier.
 
@@ -74,7 +74,7 @@ Au centre de la force destructrice, la poitrine du Daoïste aux Sept Couleurs tr
 
 Pourtant, ses yeux étaient toujours habités par la démence.
 
-« Tu es si près de cette force destructrice... Avec ton niveau de culture, je veux voir comment tu vas y survivre !!! »
+« Tu es si près de cette force destructrice... Avec ton niveau de cultivation, je veux voir comment tu vas y survivre !!! »
 
 Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Ancestral, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti !
 

@@ -16,7 +16,7 @@ Arrivé de l'autre côté, Wang Lin regarda en arrière. Tout au long de son che
 
 Pourtant, aucune sensation de chaleur ne l'atteignait. Il était comme ces empreintes enfouies sous la neige ; il n'avait pas sa place ici.
 
-C'était la première fois que Wang Lin éprouvait ce sentiment indescriptible. Il comprenait vaguement qu'à mesure que son niveau de culture augmentait, il perdait ses derniers liens avec les mortels.
+C'était la première fois que Wang Lin éprouvait ce sentiment indescriptible. Il comprenait vaguement qu'à mesure que son niveau de cultivation augmentait, il perdait ses derniers liens avec les mortels.
 
 Il savait au fond de lui que se transformer en mortel trois fois était la limite, et qu'après la troisième fois, il fallait rompre définitivement le lien ! C'était un changement de mentalité. Il souhaitait se reposer dans la ville et observer la vie des mortels, mais il ne parvenait plus à s'y intégrer pleinement.
 
@@ -106,6 +106,6 @@ L'ombre du Dao Ancien poussa un rugissement vers le ciel et protégea Wang Lin c
 
 Un fracas de tonnerre retentit lorsque la force destructrice de la première explosion percuta l'ombre du Dao Ancien. L'ombre trembla et montra des signes d'effondrement sous l'impact de la seconde explosion.
 
-Le grondement fut apocalyptique, et l'ombre du Dao Ancien, pourtant renforcée par la culture de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement !
+Le grondement fut apocalyptique, et l'ombre du Dao Ancien, pourtant renforcée par la cultivation de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement !
 
 Alors que l'ombre se brisait, une partie de la force destructrice des deux explosions subsista et s'abattit sur la première couche de protection de Wang Lin : son armure élémentaire de terre humanoïde.

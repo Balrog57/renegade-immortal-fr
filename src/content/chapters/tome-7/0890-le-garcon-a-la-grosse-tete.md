@@ -38,7 +38,7 @@ Quant au garçon à la grosse tête, il ressentit un impact violent et des craqu
 
 L'expression de Wang Lin resta froide, son regard glacial. Il ne cessa pas d'avancer. Alors que le filet se refermait sur lui, des ondulations apparurent sous ses pieds et il disparut.
 
-Le visage du garçon à la grosse tête devint livide, ses yeux emplis de choc. Il avait senti que quelque chose n'allait pas plus tôt. Sa technique de fuite de sang était un héritage familial pour lequel il avait sacrifié sa culture afin de s'échapper. Ce sort était bien plus rapide que la téléportation.
+Le visage du garçon à la grosse tête devint livide, ses yeux emplis de choc. Il avait senti que quelque chose n'allait pas plus tôt. Sa technique de fuite de sang était un héritage familial pour lequel il avait sacrifié sa cultivation afin de s'échapper. Ce sort était bien plus rapide que la téléportation.
 
 Il avait utilisé cette fuite de sang pour échapper à de nombreuses crises de vie ou de mort durant sa jeunesse.
 
@@ -92,7 +92,7 @@ Un rire strident retentit alors qu'il formait un sceau et pointait ses mains de 
 
 Alors qu'il rugissait, un craquement fracassant retentit comme un coup de tonnerre. Les nombreuses veines qui s'agitaient jaillirent de sa tête et se transformèrent en serpents verts. Ces derniers fusionnèrent pour s'étendre comme un pilier vers Wang Lin.
 
-L'expression de Wang Lin demeura neutre. S'il n'utilisait pas de sorts puissants, c'était parce qu'il avait d'autres projets pour ce garçon. En utilisant des techniques trop dévastatrices, il ne pourrait plus se retenir, car il ne maîtrisait pas encore assez bien le contrôle de ses pouvoirs avec sa culture actuelle.
+L'expression de Wang Lin demeura neutre. S'il n'utilisait pas de sorts puissants, c'était parce qu'il avait d'autres projets pour ce garçon. En utilisant des techniques trop dévastatrices, il ne pourrait plus se retenir, car il ne maîtrisait pas encore assez bien le contrôle de ses pouvoirs avec sa cultivation actuelle.
 
 De plus, cet individu était l'un des 36 Célestes du Paradis. Wang Lin n'était pas encore prêt à rompre définitivement ses liens avec le Système Stellaire d'Allheaven. Il pouvait tuer un cultivateur ordinaire, mais pas un Céleste du Paradis près de la planète Suzaku, surtout sous les yeux de centaines de cultivateurs. Ce ne serait pas une décision judicieuse !
 

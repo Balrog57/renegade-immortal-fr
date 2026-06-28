@@ -12,7 +12,7 @@ L'intention meurtrière disparut, remplacée par une sérénité absolue. Il fer
 
 Il existait une puissance qui ne nécessitait aucune énergie originelle pour être déployée. Ce n'était pas un trésor, mais le Dao d'un cultivateur. On pouvait aussi y voir une croyance, une compréhension profonde.
 
-La compréhension de Wang Lin, forgée par mille ans de culture, était son domaine !
+La compréhension de Wang Lin, forgée par mille ans de cultivation, était son domaine !
 
 En cet instant de vie ou de mort, Wang Lin utilisa son domaine qu'il n'avait pas manifesté depuis bien longtemps !
 
@@ -32,7 +32,7 @@ Ce cercle était le karma. Yao Changdong avait la forte intuition que s'il tenta
 
 La bataille du Dao ne peut être menée qu'avec le Dao. Cependant, il est rare que les êtres puissent pleinement exprimer leur Dao ; on pourrait dire que très peu en sont capables !
 
-Cela n'avait rien à voir avec la culture, mais avec la compréhension. Une compréhension du monde, une compréhension de la vie et une compréhension de son propre Dao !
+Cela n'avait rien à voir avec la cultivation, mais avec la compréhension. Une compréhension du monde, une compréhension de la vie et une compréhension de son propre Dao !
 
 Yao Changdong n'aurait jamais imaginé que ce Xu Mu puisse manifester son propre Dao. Son expression devint sombre, mais il ne recula pas. Au lieu de cela, il s'assit à moins de trente pieds de Wang Lin et ferma les yeux. Une ombre dorée apparut soudainement au-dessus de sa tête.
 
@@ -56,7 +56,7 @@ Le cercle karmique s'élança soudainement vers l'ombre du Céleste. Lorsqu'il a
 
 « Les Célestes ne cultivaient pas de domaines. Utiliser leur puissante énergie spirituelle céleste pour ouvrir les cieux fut une erreur fatale ! Autrement, pourquoi le Royaume Céleste se serait-il effondré ? Même l'Empereur Céleste, malgré sa puissance, est devenu fou en défiant les cieux et il en est mort. Quelle était la force de ton ancêtre comparée à celle de l'Empereur Céleste ? Le fait que l'Empereur Céleste n'ait pas cultivé de domaine fut la cause karmique, et sa folie causant sa mort fut l'effet karmique ! »
 
-« La statue et la culture célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma ! À mon sens, ta gloire est vide ! »
+« La statue et la cultivation célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma ! À mon sens, ta gloire est vide ! »
 
 « S'ils ont été détruits par les cieux, où réside donc leur gloire ? Yao Changdong, le domaine que tu as cultivé et le Dao en lequel tu crois sont tout deux nuls ! Ton ancêtre céleste est mort, mais plutôt que de chercher la raison de sa chute, tu as choisi de cultiver sa gloire. Non seulement ton Dao est vide, mais celui de l'ancêtre de ta famille Yao l'est aussi. En fin de compte, ta famille Yao périra ! »
 
@@ -94,7 +94,7 @@ Comparé à lui, les cultivateurs de même niveau dans le Système Stellaire de 
 
 Et les maîtres ? Ils ne pouvaient en rien vous protéger. La moindre négligence signifiait la mort. C'était la loi de la jungle, et le massacre était la loi des cieux ! Hormis quelques exceptions, les cultivateurs du Système Stellaire Allheaven ne pouvaient même pas imaginer l'obscurité qui régnait dans le Système Stellaire de l'Alliance.
 
-S'ils y étaient plongés, ils auraient du mal à survivre, à moins que leur culture ne soit assez puissante pour ignorer toutes les règles.
+S'ils y étaient plongés, ils auraient du mal à survivre, à moins que leur cultivation ne soit assez puissante pour ignorer toutes les règles.
 
 Après une profonde inspiration, Wang Lin rangea ses trésors et Ta Shan retourna dans son ombre. Il traîna son corps affaibli, mais l'intention meurtrière dans son regard était plus intense que jamais.
 

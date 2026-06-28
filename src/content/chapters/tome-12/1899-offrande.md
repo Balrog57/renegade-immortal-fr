@@ -102,8 +102,8 @@ Saisissant l'étoffe, il la soumit à son sens divin. Cet objet était singulier
 
 Ainsi, on pouvait dire que l'ancien à la robe verte avait tout donné à Wang Lin...
 
-Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes d'augmentation. Il prit une profonde inspiration, l'excitation brillant dans son regard !
+Les yeux de Wang Lin s'illuminèrent. Son niveau de cultivation montrait des signes d'augmentation. Il prit une profonde inspiration, l'excitation brillant dans son regard !
 
-« Cette fois, voyons jusqu'où ma culture peut s'élever !! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela !! »
+« Cette fois, voyons jusqu'où ma cultivation peut s'élever !! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela !! »
 
 « Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans !! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Extreme Sky. Ils étaient tous là, gravés dans sa mémoire.

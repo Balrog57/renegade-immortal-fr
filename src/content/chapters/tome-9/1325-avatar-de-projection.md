@@ -28,7 +28,7 @@ Un moment plus tard, tout disparut. Le monde qui venait d'apparaître s'évanoui
 
 Le visage de la femme était pâle et une intention meurtrière remplissait ses yeux. Le jade flottant autour d'elle lui permettait de ne pas être anéantie par le Sceau d'Inversion Céleste !
 
-« Tu n'envoies qu'un simple avatar de projection avec seulement une culture de la troisième calamité du ciel et tu oses tenter de me tuer ? Si ce n'était pas pour ton corps étrange qui rend difficile ta détection, je t'aurais déjà tuée ! »
+« Tu n'envoies qu'un simple avatar de projection avec seulement une cultivation de la troisième calamité du ciel et tu oses tenter de me tuer ? Si ce n'était pas pour ton corps étrange qui rend difficile ta détection, je t'aurais déjà tuée ! »
 
 « Depuis la première fois que je t'ai remarquée, je me posais une question. Si tu étais vraiment une cultivatrice du troisième pas, comment as-tu pu me laisser partir si facilement ? Si tu possédais un corps réel, pourquoi n'ai-je pu sentir ton odeur alors que tu étais si proche ? Et si tu avais un corps réel, pourquoi aurais-tu besoin d'un trésor pour résister au Sceau d'Inversion Céleste ? » Wang Lin sourit. Ses paroles étaient comme des lames tranchant la femme en blanc.
 

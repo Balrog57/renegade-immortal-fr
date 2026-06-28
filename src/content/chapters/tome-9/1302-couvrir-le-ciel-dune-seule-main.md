@@ -16,7 +16,7 @@ Les innombrables cultivateurs du Secte Démon tremblaient devant ce tonnerre et 
 
 « La rétribution divine est ainsi... La rétribution divine est ainsi... » À cet instant, la rétribution divine se grava dans le cœur des cultivateurs, y laissant une empreinte indélébile !
 
-S'ils ne parvenaient pas à briser cette empreinte, leur niveau de culture stagnerait pour le reste de leurs jours. En revanche, s'ils réussissaient à la rompre, leur niveau de culture progresserait considérablement !
+S'ils ne parvenaient pas à briser cette empreinte, leur niveau de cultivation stagnerait pour le reste de leurs jours. En revanche, s'ils réussissaient à la rompre, leur niveau de cultivation progresserait considérablement !
 
 Le tonnerre devint encore plus intense et l'espace trembla. Un bruit de déchirure encore plus assourdissant retentit un instant plus tard, et le tonnerre se propagea au-delà de la région de rang 9. Même la région de rang 8 pouvait clairement l'entendre !
 
@@ -72,7 +72,7 @@ Alors que les grondements tonitruants résonnaient, l'éclair devint fou. Il se 
 
 Tandis que les grondements tonitruants s'intensifiaient, les nuages et le tonnerre entrèrent en collision. Un son encore plus violent que les précédents surgit et se propagea dans toute la région de rang 9 !
 
-À l'intérieur du Secte Divin, Mu Bingmei fut tirée de ses dix années de culture. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer !
+À l'intérieur du Secte Divin, Mu Bingmei fut tirée de ses dix années de cultivation. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer !
 
 Wang Shanshan, à ses côtés, pâlit et leva les yeux vers le ciel.
 
@@ -90,7 +90,7 @@ Le Secte Céleste Brisant de rang 9 avait également entendu ce tonnerre et vu l
 
 Le Maître du Secte Céleste Brisant, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection du secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale du Secte Démon !
 
-Outre le Secte Démon, le Secte Divin et le Secte Céleste Brisant, il y avait encore le Secte Fantôme ! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon !
+Outre le Secte Démon, le Secte Divin et le Secte Céleste Brisant, il y avait encore le Secte Fantôme ! À cet instant, au plus profond des nuages, se trouvait une planète de cultivation dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon !
 
 Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans ses yeux et, à chaque rotation, une force mystérieuse pénétrait son corps.
 

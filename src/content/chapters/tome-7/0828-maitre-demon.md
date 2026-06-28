@@ -36,7 +36,7 @@ Le visage de Yao Bingyun s'assombrit alors qu'elle formait un sceau, faisant app
 
 L'expression de Yao Bingyun devint lugubre et elle saisit le noyau bleu. Elle fixa l'endroit où Wang Lin avait disparu et poursuivit sa traque.
 
-Depuis le début de sa culture, elle n'avait jamais rencontré quelqu'un d'aussi difficile à appréhender. Malgré sa poursuite incessante, elle n'avait pas réussi à empêcher l'autre partie de s'échapper. Yao Bingyun affichait un visage de marbre tandis que son Sens Divin se déployait, alors qu'elle était fusionnée avec le monde, pour rechercher la moindre fluctuation.
+Depuis le début de sa cultivation, elle n'avait jamais rencontré quelqu'un d'aussi difficile à appréhender. Malgré sa poursuite incessante, elle n'avait pas réussi à empêcher l'autre partie de s'échapper. Yao Bingyun affichait un visage de marbre tandis que son Sens Divin se déployait, alors qu'elle était fusionnée avec le monde, pour rechercher la moindre fluctuation.
 
 Après avoir fusionné avec le monde, Wang Lin chargea directement vers le Domaine Nord. Il avait un plan d'envergure !
 
@@ -70,7 +70,7 @@ Des cris jaillirent de toutes parts et des cultivateurs vêtus de tous styles de
 
 Les véritables membres de la famille Yao restaient à l'arrière, observant froidement la scène.
 
-Il était difficile de dire qui était le plus avisé. Du point de vue de la famille Yao, utiliser des récompenses pour obtenir l'aide de diverses familles de culture permettait d'économiser énormément d'énergie. Pour les autres familles, le raisonnement était identique : puisque tant de clans s'étaient joints à eux, Xu Mu mourrait sans aucun doute. En participant au combat, ils obtiendraient des bénéfices, et en tuant Xu Mu, ils en obtiendraient davantage encore.
+Il était difficile de dire qui était le plus avisé. Du point de vue de la famille Yao, utiliser des récompenses pour obtenir l'aide de diverses familles de cultivation permettait d'économiser énormément d'énergie. Pour les autres familles, le raisonnement était identique : puisque tant de clans s'étaient joints à eux, Xu Mu mourrait sans aucun doute. En participant au combat, ils obtiendraient des bénéfices, et en tuant Xu Mu, ils en obtiendraient davantage encore.
 
 Dès lors, pourquoi ne pas agir ?
 
@@ -78,11 +78,11 @@ Tandis que Wang Lin continuait de battre en retraite, de nombreuses ondulations 
 
 Alors que les divers sorts et trésors de ces cultivateurs se rapprochaient, Wang Lin disparut en fusionnant avec le monde. Bien que l'énergie originelle fût massivement perturbée devant lui, en reculant plutôt qu'en avançant, il subissait moins d'interférences.
 
-« Famille Yao, si je ne parviens pas à me venger, je ne peux pas me prétendre cultivateur défiant le ciel ! Il y a aussi ces familles de culture qui épaulent la famille Yao. Si elles n'avaient pas été attirées par la récompense, la famille Yao n'aurait jamais pu former un tel encerclement ! » Wang Lin ricana avant de disparaître.
+« Famille Yao, si je ne parviens pas à me venger, je ne peux pas me prétendre cultivateur défiant le ciel ! Il y a aussi ces familles de cultivation qui épaulent la famille Yao. Si elles n'avaient pas été attirées par la récompense, la famille Yao n'aurait jamais pu former un tel encerclement ! » Wang Lin ricana avant de disparaître.
 
 Lorsque les cultivateurs qui accouraient virent le ricanement de Wang Lin, un frisson leur parcourut l'échine. Cette intention meurtrière et ce regard ne signifiaient qu'une chose : Wang Lin s'apprêtait à déclencher un massacre !
 
-« Puisque vous voulez tous me sceller, alors venez ! » Wang Lin fusionna avec le monde et recula rapidement. À cet instant, l'aura de Yao Bingyun le verrouilla. Les yeux de Wang Lin étaient brûlants d'intention meurtrière tandis qu'il fuyait. Sa silhouette réapparut dans le Domaine Occidental, devant une planète de culture.
+« Puisque vous voulez tous me sceller, alors venez ! » Wang Lin fusionna avec le monde et recula rapidement. À cet instant, l'aura de Yao Bingyun le verrouilla. Les yeux de Wang Lin étaient brûlants d'intention meurtrière tandis qu'il fuyait. Sa silhouette réapparut dans le Domaine Occidental, devant une planète de cultivation.
 
 Wang Lin n'en connaissait pas le nom, mais dès son apparition, il fit un pas en avant et la scruta avec son Sens Divin. Aucun cultivateur n'atteignait le sommet du stade avancé de l'Ascendant sur cette planète.
 
@@ -102,11 +102,11 @@ Si la planète Dong Lin était si célèbre et si son nom faisait trembler les �
 
 Ce n'est qu'en leur faisant payer le prix du sang qu'ils s'en souviendraient tous !
 
-Wang Lin n'avait pas voulu en arriver là, mais il y était désormais contraint. Seule cette méthode pourrait inciter toutes les familles de culture, attirées par la récompense, à battre en retraite !
+Wang Lin n'avait pas voulu en arriver là, mais il y était désormais contraint. Seule cette méthode pourrait inciter toutes les familles de cultivation, attirées par la récompense, à battre en retraite !
 
 Aucun cri ne fut entendu. Wang Lin traversa la planète tel un tourbillon dévorant les vies. En moins du temps qu'il faut pour brûler la moitié d'un bâton d'encens, il fusionna avec le monde et disparut.
 
-Il quitta cette planète de culture, laissant derrière lui des fleuves de sang, sans qu'un seul cultivateur au stade de la Transformation de l'Âme ou supérieur ne subsiste ! Quant aux mortels, Wang Lin n'en toucha pas un seul. Il savait que ceux en dessous du stade de la Transformation de l'Âme ne pouvaient être impliqués, il n'agit donc pas contre eux.
+Il quitta cette planète de cultivation, laissant derrière lui des fleuves de sang, sans qu'un seul cultivateur au stade de la Transformation de l'Âme ou supérieur ne subsiste ! Quant aux mortels, Wang Lin n'en toucha pas un seul. Il savait que ceux en dessous du stade de la Transformation de l'Âme ne pouvaient être impliqués, il n'agit donc pas contre eux.
 
 Avant de partir, il leva la main et frappa le sol. Après un violent grondement, deux grands caractères apparurent sur la terre :
 
@@ -122,7 +122,7 @@ Cependant, s'il n'y avait aucun cultivateur Illuso Yin sur la planète, cela sig
 
 En l'espace de seulement trente jours, une tempête sanglante balaya le Domaine Occidental. Des nouvelles qui en colérirent les cultivateurs tout en les terrifiant se propagèrent.
 
-Des dizaines de planètes de culture avaient vu tous leurs cultivateurs du stade de la Transformation de l'Âme ou supérieur massacrés. La seule trace subsistante était les deux mots « Xu Mu » profondément gravés dans le sol.
+Des dizaines de planètes de cultivation avaient vu tous leurs cultivateurs du stade de la Transformation de l'Âme ou supérieur massacrés. La seule trace subsistante était les deux mots « Xu Mu » profondément gravés dans le sol.
 
 C'était une vengeance à ciel ouvert ! Une vengeance totale contre toutes les familles impliquées ! Un tel comportement relevait de la voie démoniaque. « Maître Démon. » Personne ne sait qui l'a dit le premier, mais ce titre fut collé à Wang Lin !
 

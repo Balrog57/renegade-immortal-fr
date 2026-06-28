@@ -20,7 +20,7 @@ Wang Lin esquissa un mince sourire. Il hocha légèrement la tête sans toutefoi
 
 « Je ne pensais pas que tu intégrerais le classement du Clan du Tonnerre Éparpillé avant nous. Selon la tradition, les responsables de la porte est doivent offrir un présent à celui qui entre pour la première fois dans le classement. Voici une excellente pilule de tonnerre. Elle a été personnellement fabriquée par moi et a subi une compression de 8 900 fois. Utilise-la pour te protéger ! » Le vieil homme agita sa main droite, et une sphère de tonnerre de la taille d'un pouce apparut, flottant devant Wang Lin.
 
-Les deux autres vieillards se sourirent mutuellement. L'un d'eux agita la main et un jade apparut. Il le lança à Wang Lin en disant : « Ce jade contient une méthode de culture du Clan du Tonnerre Éparpillé. Elle m'est inutile, mais si tu la pratiques, elle pourra davantage éveiller ta marque tribale. Considère cela comme un cadeau de bienvenue de la part de ce vieil homme. »
+Les deux autres vieillards se sourirent mutuellement. L'un d'eux agita la main et un jade apparut. Il le lança à Wang Lin en disant : « Ce jade contient une méthode de cultivation du Clan du Tonnerre Éparpillé. Elle m'est inutile, mais si tu la pratiques, elle pourra davantage éveiller ta marque tribale. Considère cela comme un cadeau de bienvenue de la part de ce vieil homme. »
 
 Le dernier vieil homme, qui était un cultivateur au stade Corporel Yang, observa attentivement Wang Lin et sourit. « Je ne t'offrirai pas de trésor, mais une simple sentence. Va à la porte ouest et choisis la tâche du Tonnerre Spirituel. Ce sera le moyen le plus rapide pour toi de rassembler des cristaux de tonnerre ! Tu pourras accepter cette mission sans encombre grâce à mon jade. » Tandis qu'il parlait, il agita sa main droite et un morceau de jade vola lentement vers Wang Lin.
 
@@ -66,7 +66,7 @@ Le jade contenait une quantité massive d'informations. Une fois la lecture term
 
 Dans ce monde, tout possédait un esprit : la végétation, les bêtes, les cultivateurs et bien plus encore. Une fois le sommet du stade de Formation de l'Âme atteint, ils ascendaient vers le Royaume Céleste !
 
-Wang Lin connaissait ce principe ; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste n'avait pas été détruit, un cultivateur atteignant le stade avancé de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser !
+Wang Lin connaissait ce principe ; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste n'avait pas été détruit, un cultivateur atteignant le stade avancé de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la cultivation céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser !
 
 Il existait un lieu créé par le premier ancêtre du Clan du Tonnerre Éparpillé. Il était considéré comme le membre le plus puissant du clan, ainsi que le troisième échelon de cultivateur ayant mené le clan à son apogée et placé un trésor ancestral dans la Formation du Royaume Scellé.
 

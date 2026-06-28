@@ -72,6 +72,6 @@ Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard comple
 
 Simultanément, dans une autre partie de cet étrange espace où naviguait le vaisseau, le Daoïste aux Sept Couleurs était assis au milieu des cadavres de nombreuses bêtes féroces. Son visage oscillait entre la douleur et l'excitation ; un mélange d'expressions aussi singulier qu'inhabituel pour lui.
 
-Lui aussi avait sombré dans l'illusion dès son entrée. Ou plutôt, il était plus juste de dire qu'il s'y était volontairement plongé. Autrement, bien que son niveau de culture fût inférieur à celui de Fan Shanmeng, il n'aurait pas eu de difficulté à s'en extirper.
+Lui aussi avait sombré dans l'illusion dès son entrée. Ou plutôt, il était plus juste de dire qu'il s'y était volontairement plongé. Autrement, bien que son niveau de cultivation fût inférieur à celui de Fan Shanmeng, il n'aurait pas eu de difficulté à s'en extirper.
 
 Cependant, lui seul savait pourquoi il avait choisi d'entrer dans cette illusion sans chercher à s'en réveiller.

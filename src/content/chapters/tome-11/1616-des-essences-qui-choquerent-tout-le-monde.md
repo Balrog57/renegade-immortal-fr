@@ -44,7 +44,7 @@ C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement é
 
 « Cela... ! C'est le Grand Dao du Karma ! Trois essences, ce sont réellement trois essences ! Déclencher la Porte du Vide avec trois essences... cela ne s'était jamais produit auparavant. Qui est-ce donc !? » L'expression du jeune homme en robe verte changea radicalement.
 
-Le Maître South Cloud était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
+Le Maître South Cloud était tout aussi sous le choc. Son niveau de cultivation était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
 
 « C'est vraiment une troisième essence ! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation du troisième pas, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade Nirvana Void, il sera capable d'assassiner des cultivateurs Spirit Void ! »
 

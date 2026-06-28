@@ -130,12 +130,12 @@ La sculpture représentait une femme, une femme douce, belle et féerique. Sa bo
 
 Ce jeune homme était Wang Lin !
 
-« Sans au moins 100 cycles, comment pourrait-on chercher le Dao ? Sans au moins 1 000 ans de culture, comment pourrait-on chercher le Dao auprès des Cieux... Cette épreuve humaine est fascinante ! » Les yeux de Wang Lin étaient paisibles à cet instant. Cette épreuve l'avait fait subir un changement mystérieux, mais il le dissimulait si bien qu'il était presque impossible de le remarquer.
+« Sans au moins 100 cycles, comment pourrait-on chercher le Dao ? Sans au moins 1 000 ans de cultivation, comment pourrait-on chercher le Dao auprès des Cieux... Cette épreuve humaine est fascinante ! » Les yeux de Wang Lin étaient paisibles à cet instant. Cette épreuve l'avait fait subir un changement mystérieux, mais il le dissimulait si bien qu'il était presque impossible de le remarquer.
 
 Son regard était plus limpide que jamais, semblable à la voûte étoilée.
 
 Wang Lin disparut du vide et sortit de l'épreuve Humaine.
 
-« L'épreuve Terrestre teste la culture. Es-tu prêt ? Oses-tu y entrer ?! »
+« L'épreuve Terrestre teste la cultivation. Es-tu prêt ? Oses-tu y entrer ?! »
 
 « Pourquoi hésiterais-je ? » Wang Lin esquissa un léger sourire et leva les yeux.

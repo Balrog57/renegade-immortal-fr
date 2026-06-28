@@ -18,9 +18,9 @@ Après avoir quitté le clan Fire Sparrow, l'effondrement de la terre sainte ava
 
 Des grondements tonitruants résonnèrent au loin, ébranlant le domaine stellaire, mais Wang Lin ne sortit pas de sa torpeur. Son cœur semblait déchiré et une douleur lancinante imprégnait son corps.
 
-Après un temps indéterminé, la confusion dans les yeux de Wang Lin se dissipa progressivement pour laisser place à une profonde mélancolie. Ses blessures internes avaient atteint un stade critique : il devait impérativement récupérer, sans quoi sa culture régredirait de manière irréversible.
+Après un temps indéterminé, la confusion dans les yeux de Wang Lin se dissipa progressivement pour laisser place à une profonde mélancolie. Ses blessures internes avaient atteint un stade critique : il devait impérativement récupérer, sans quoi sa cultivation régredirait de manière irréversible.
 
-À son niveau de culture, une blessure ordinaire ne poserait aucun problème, mais une blessure grave était une affaire sérieuse. Le moindre relâchement pourrait entraîner une chute de son niveau de culture.
+À son niveau de cultivation, une blessure ordinaire ne poserait aucun problème, mais une blessure grave était une affaire sérieuse. Le moindre relâchement pourrait entraîner une chute de son niveau de cultivation.
 
 Heureusement, en tant qu'Ancien Dieu, la régénération de son corps physique était extrêmement puissante. C'était là une différence flagrante avec les cultivateurs ordinaires. Certaines blessures qui auraient nécessité un siècle de convalescence pour d'autres ne demanderaient que bien moins de temps à Wang Lin.
 
@@ -34,7 +34,7 @@ Il ne connaissait que l'indifférence... Il souriait rarement... La seule chose 
 
 Accablé par l'amertume, les blessures de Wang Lin s'aggravèrent. Il tituba, fit un pas et fusionna avec le monde grâce à la Déformation Spatiale. Il franchit une distance incommensurable avant d'apparaître aux abords d'une planète abandonnée.
 
-Peut-être que cette planète de culture avait été autrefois splendide, ou qu'un puissant cultivateur y était né. Cependant, sa gloire passée s'était désormais envolée, ne laissant derrière elle que des gravats et des cités dépourvues de toute énergie spirituelle.
+Peut-être que cette planète de cultivation avait été autrefois splendide, ou qu'un puissant cultivateur y était né. Cependant, sa gloire passée s'était désormais envolée, ne laissant derrière elle que des gravats et des cités dépourvues de toute énergie spirituelle.
 
 Elle ressemblait à un vieillard en fin de vie, luttant, s'accrochant, refusant de rendre son dernier souffle. Le côté est de la planète était plongé dans l'automne, et un vent froid soufflait lentement. Les feuilles roulaient sur le sol, leur couleur jaune rappelant les taches sur le visage d'un vieil homme, dégageant un sentiment de désolation.
 
@@ -64,9 +64,9 @@ Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et 
 
 Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sept couleurs, celui-ci avait admis être le Souverain. Cependant, une fois calmé, Wang Lin ne pouvait s'empêcher de douter.
 
-La culture de cet homme était extrêmement puissante. Il avait pu repousser l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits », il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
+La cultivation de cet homme était extrêmement puissante. Il avait pu repousser l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits », il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
-« Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain... ? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Ancien. Personne ne savait à quel clan il appartenait !
+« Sa cultivation est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain... ? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Ancien. Personne ne savait à quel clan il appartenait !
 
 De plus, dans les Terres des Esprits Démoniaques, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain ! Cet homme utilisait des sorts de feu ! Ce sort n'était pas celui d'un cultivateur ordinaire ; il était manifeste que cet homme touchait aux limites de l'essence du feu.
 
@@ -76,7 +76,7 @@ Cependant, après avoir vu le Souverain en personne, Wang Lin était devenu susp
 
 « Qing Lin a dit que l'essence du Souverain était l'essence de l'origine ! Pourtant, cet homme n'a jamais utilisé la loi de l'origine... Plus important encore, le Souverain cultive depuis des dizaines de milliers d'années. Il est extrêmement rusé et a multiplié les complots contre le Royaume Intérieur. L'homme d'âge moyen qui prétendait être le Souverain ne semblait pas posséder une telle aura... C'était comme s'il n'était pas si puissant que cela... »
 
-Wang Lin fronça les sourcils. Après réflexion, il ne trouvait toujours pas de réponse. Il soupira et cessa d'y penser. Il sortit les quelques pilules restantes et les avala toutes, puis ferma les yeux pour se mettre en culture.
+Wang Lin fronça les sourcils. Après réflexion, il ne trouvait toujours pas de réponse. Il soupira et cessa d'y penser. Il sortit les quelques pilules restantes et les avala toutes, puis ferma les yeux pour se mettre en cultivation.
 
 Le vent d'automne soufflait et la silhouette de Wang Lin devint lentement floue, comme s'il fusionnait avec son environnement. Même si un cultivateur passait par là, il n'aurait pas remarqué qu'un être était assis au bord du lac.
 
@@ -84,9 +84,9 @@ Le temps s'écoula lentement. En un clin d'œil, trois jours passèrent. Les ble
 
 Sans même utiliser ses sorts, avec seulement son pouvoir d'Ancien Dieu à 6 étoiles, il se trouvait à environ 50 % de son apogée. Wang Lin savait qu'il était pressé par le temps. Il avait gravement blessé l'homme qu'il soupçonnait être le Souverain, ce qui devait provoquer une onde de choc massive dans le Système Stellaire Ancien. Des gens devaient sûrement être à sa poursuite, sans compter la prime sur sa tête.
 
-Quant aux Terres Déchues, elles avaient déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège ! C'était pour cela qu'il faisait tout son possible pour recouvrer sa culture.
+Quant aux Terres Déchues, elles avaient déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège ! C'était pour cela qu'il faisait tout son possible pour recouvrer sa cultivation.
 
-Pourtant, ce jour-là, alors qu'il cultivait, Wang Lin ouvrit soudainement les yeux, révélant une lueur de froideur. Son cœur fut frappé par un choc étrange. C'était un sens de l'avertissement précoce qu'il avait développé en atteignant son niveau de culture actuel !
+Pourtant, ce jour-là, alors qu'il cultivait, Wang Lin ouvrit soudainement les yeux, révélant une lueur de froideur. Son cœur fut frappé par un choc étrange. C'était un sens de l'avertissement précoce qu'il avait développé en atteignant son niveau de cultivation actuel !
 
 « Quelque chose ne va pas ! » Wang Lin se leva et scruta les environs. Son expression devint sombre. Le silence était devenu total ; même le vent d'automne s'était tu.
 

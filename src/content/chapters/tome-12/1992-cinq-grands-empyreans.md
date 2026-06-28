@@ -44,7 +44,7 @@ Ce à quoi ils venaient de faire face n'était pas l'Empereur Céleste, mais l'A
 
 Les yeux de Jiu Di s'illuminèrent et il déclara : « Ce n'est pas la puissance complète de l'Ancêtre Céleste, seulement environ 10 % ! » Des craquements résonnèrent dans son corps et son visage vieillissant changea rapidement. Il passa de l'apparence d'un vieillard à celle d'un homme d'âge moyen !
 
-Il était d'une grande beauté et dégageait l'aura impérieuse d'un empereur ! Jiu Di conservait habituellement l'aspect d'un vieil homme, et ce n'est que lorsque sa culture éclatait pleinement que son apparence se métamorphosait ainsi.
+Il était d'une grande beauté et dégageait l'aura impérieuse d'un empereur ! Jiu Di conservait habituellement l'aspect d'un vieil homme, et ce n'est que lorsque sa cultivation éclatait pleinement que son apparence se métamorphosait ainsi.
 
 « À vrai dire, c'est la première fois que je te vois sous cette forme, Jiu Di, mais même ainsi, tu ne fais pas le poids face à moi ! » L'Empereur Céleste sourit et s'assit simplement sur la tête de l'Ancêtre Céleste, pressant ses deux mains contre elle.
 
@@ -82,7 +82,7 @@ Wang Lin vit tout cela avec clarté depuis l'œil droit de l'Ancêtre Céleste. 
 
 L'épée dorée percuta Gemini, Dao Yi, Wu Feng et Jiu Di. Dans un fracas de tonnerre, Dao Yi fut repoussé. Wu Feng recula le visage pâle, tandis que des bruits de craquement résonnaient dans son corps.
 
-Gemini et Jiu Di possédaient des niveaux de culture supérieurs à ceux de Dao Yi et Wu Feng, mais même eux furent contraints de battre en retraite face à l'épée dorée.
+Gemini et Jiu Di possédaient des niveaux de cultivation supérieurs à ceux de Dao Yi et Wu Feng, mais même eux furent contraints de battre en retraite face à l'épée dorée.
 
 Bien qu'ils aient reculé, la puissance combinée de leurs attaques était phénoménale. Hormis cet individu du clan Ancien, personne ne pouvait résister simultanément à la force de quatre Grands Empyreans !
 

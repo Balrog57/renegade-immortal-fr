@@ -52,7 +52,7 @@ Une compréhension plus profonde du tonnerre inonda l'esprit de Wang Lin. Après
 
 « Mon origine du tonnerre est déjà apparue et se situe au même niveau d'existence que l'éclair éternel du Clan du Tonnerre Dispersé ; c'est aussi une essence de tonnerre ! Je peux renforcer mon essence en l'absorbant, et si je parviens à trouver les autres tonnerres compagnons, mon origine du tonnerre sera complète ! »
 
-« Je pourrais même franchir la deuxième étape de culture pour devenir un cultivateur de la troisième étape grâce à cette essence ! Pour l'instant, j'ai déjà absorbé le Tonnerre Spirituel... il en reste huit ! » Wang Lin n'avait jamais été aussi lucide quant à l'avenir de sa culture.
+« Je pourrais même franchir la deuxième étape de cultivation pour devenir un cultivateur de la troisième étape grâce à cette essence ! Pour l'instant, j'ai déjà absorbé le Tonnerre Spirituel... il en reste huit ! » Wang Lin n'avait jamais été aussi lucide quant à l'avenir de sa cultivation.
 
 Ce fragment de mémoire issu de son essence de tonnerre lui avait ouvert une voie ! On pourrait dire que sans le Clan du Tonnerre Dispersé, Wang Lin ne serait jamais venu dans les 7 millions de mondes et n'aurait probablement jamais découvert la vérité sur le tonnerre.
 

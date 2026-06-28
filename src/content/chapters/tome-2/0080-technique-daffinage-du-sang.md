@@ -12,7 +12,7 @@ Peu après, l'épée volante, qui n'avait pas effectué de téléportation depui
 
 Au fil du temps, la résistance de l'épée ne faiblit pas, elle devint au contraire plus violente. Alors que l'énergie spirituelle entourant l'épée commençait à s'estomper, Wang Lin serra les dents et cracha une autre bouffée d'énergie pour poursuivre son affinage.
 
-La nuit passa et la lutte de l'épée sembla enfin s'apaiser légèrement. Le visage de Wang Lin était livide ; il avait déjà rejeté des dizaines de bouffées d'énergie spirituelle. Même avec son niveau de culture au 15e étage, et grâce à l'aide du liquide spirituel, il tenait à peine bon.
+La nuit passa et la lutte de l'épée sembla enfin s'apaiser légèrement. Le visage de Wang Lin était livide ; il avait déjà rejeté des dizaines de bouffées d'énergie spirituelle. Même avec son niveau de cultivation au 15e étage, et grâce à l'aide du liquide spirituel, il tenait à peine bon.
 
 La lumière du matin inonda la pièce alors que Wang Lin continuait d'affiner l'arme. L'épée volante ne se débattait plus. Elle flottait dans les airs tandis que des filaments d'énergie spirituelle de Wang Lin s'y engouffraient.
 

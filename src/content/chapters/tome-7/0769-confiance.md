@@ -86,11 +86,11 @@ Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume
 
 La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Tout-Ciel disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
 
-« Éliminer la racine pour ne laisser aucun problème à l'avenir ! » Les yeux de Wang Lin s'illuminèrent. Sa culture du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois.
+« Éliminer la racine pour ne laisser aucun problème à l'avenir ! » Les yeux de Wang Lin s'illuminèrent. Sa cultivation du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois.
 
 Il était tel une météorite traversant le vide.
 
-Un puissant sentiment de confiance s'installa dans son cœur. Cette assurance n'avait que peu de rapport avec son niveau de culture ; c'était la confiance d'un cultivateur défiant les cieux.
+Un puissant sentiment de confiance s'installa dans son cœur. Cette assurance n'avait que peu de rapport avec son niveau de cultivation ; c'était la confiance d'un cultivateur défiant les cieux.
 
 « Il s'avère que même des cultivateurs puissants comme l'Ancêtre Sanguin, l'Omniscient ou Ling Tianhou ne sont pas... invincibles ! » Le regard de Wang Lin était ferme et il afficha un rictus méprisant.
 
@@ -110,6 +110,6 @@ Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et u
 
 Parmi les trois se trouvaient deux hommes et une femme. La femme était magnifique et ses yeux dégageaient un charme séduisant. Elle tenait actuellement l'une des épées célestes que Li Yuan avait récupérées dans l'espace de stockage céleste !
 
-Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement : « Cet homme en possède encore huit autres. Puisque la Sœur Junior Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La culture de cet homme se situait également au sommet du stade avancé tardif de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
+Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement : « Cet homme en possède encore huit autres. Puisque la Sœur Junior Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La cultivation de cet homme se situait également au sommet du stade avancé tardif de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
 
 Si Wang Lin avait été présent, il aurait immédiatement compris que ce vieil homme se trouvait au sommet du stade de l'Yin Illusoire.

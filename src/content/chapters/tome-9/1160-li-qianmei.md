@@ -44,7 +44,7 @@ Le temps passa lentement. Après trois jours, une lumière jaillit de la poitrin
 
 Le corps original ouvrit lentement les yeux, révélant une lueur éclatante. Une aura invisible se propagea ; sa peau était devenue plus rugueuse et ses os encore plus robustes !
 
-À cet instant, le corps original était devenu un véritable Dieu Ancien. Il n'était plus incomplet comme auparavant ! Après avoir dévoré une énergie originelle infinie et la brume mystérieuse, le niveau de culture du corps original avait considérablement augmenté.
+À cet instant, le corps original était devenu un véritable Dieu Ancien. Il n'était plus incomplet comme auparavant ! Après avoir dévoré une énergie originelle infinie et la brume mystérieuse, le niveau de cultivation du corps original avait considérablement augmenté.
 
 Une autre étoile apparut aux côtés des cinq autres sur son front. Bien que cette étoile fût encore floue et non totalement formée, elle plongea Wang Lin dans l'extase !
 
@@ -60,7 +60,7 @@ Il poussa un profond soupir, l'humeur sereine. La réussite de cette épreuve pa
 
 Dès que Wang Lin apparut, une brise légère effleura son visage, procurant un grand confort. La barrière ayant été réactivée, le ciel était d'un bleu pur parsemé de nuages blancs.
 
-En observant les herbes dans la cour, Wang Lin prit une décision : il consacrerait quelque temps à augmenter son niveau de culture en utilisant l'alchimie unique de la Mer des Nuages.
+En observant les herbes dans la cour, Wang Lin prit une décision : il consacrerait quelque temps à augmenter son niveau de cultivation en utilisant l'alchimie unique de la Mer des Nuages.
 
 Tout en réfléchissant, le regard de Wang Lin se posa sur les cinq personnes à l'extérieur, et il dit calmement : « Vous pouvez entrer. »
 
@@ -84,13 +84,13 @@ Le brouillard d'étoiles dans les profondeurs de la Mer des Nuages était extrê
 
 Les bêtes féroces les plus puissantes résidaient ici. Certaines utilisaient même des sorts pour fusionner leur corps avec la brume afin de comprendre les lois. Si aucun cultivateur ne les provoquait, elles n'attaquaient pas de leur propre initiative.
 
-Comparées à elles, les rares planètes de culture situées dans le brouillard d'étoiles n'étaient que des intrus insignifiants.
+Comparées à elles, les rares planètes de cultivation situées dans le brouillard d'étoiles n'étaient que des intrus insignifiants.
 
 Pourtant, la puissance contenue au sein de ces quelques planètes était capable de faire trembler les cieux. Même ces bêtes redoutables les craignaient et n'osaient s'en approcher.
 
 C'était la région de rang 9 de la Mer des Nuages !
 
-Sept planètes de culture étaient disposées selon la formation de la Grande Ourse à la lisière de la région de rang 9. Cela créait une couche de protection autour d'elles, les rendant indissociables.
+Sept planètes de cultivation étaient disposées selon la formation de la Grande Ourse à la lisière de la région de rang 9. Cela créait une couche de protection autour d'elles, les rendant indissociables.
 
 À cet instant, sur la première planète de la formation, sous des millions de couches de protection, s'étendait une prairie où se dressait un édifice imposant.
 
@@ -102,11 +102,11 @@ Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais 
 
 Il s'agissait de Li Qianmei, de la Secte Céleste Brisée de rang 9 !
 
-Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de culture, elle atteignit le sommet du stade Illusoire Yin.
+Elle commença sa cultivation à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de cultivation, elle atteignit le sommet du stade Illusoire Yin.
 
 Puis, toute la Secte Céleste Brisée consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scrutateur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Nirvana Cleanser.
 
-Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Nirvana Shatterer de la Secte Céleste Brisée ! À ce jour, après plus de 1 300 ans de culture, elle avait atteint le stade avancé du Nirvana Shatterer.
+Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Nirvana Shatterer de la Secte Céleste Brisée ! À ce jour, après plus de 1 300 ans de cultivation, elle avait atteint le stade avancé du Nirvana Shatterer.
 
 Dans la Mer des Nuages, le nom de « Li Qianmei » était une légende !
 

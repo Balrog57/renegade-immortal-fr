@@ -10,7 +10,7 @@ L'aura violette provenant de l'est couvrit rapidement l'horizon d'une teinte pou
 
 Tous les cultivateurs invités présents dans la division violette remarquèrent cette anomalie. Ils posèrent leurs coupes de vin et levèrent la tête vers l'est.
 
-« Non seulement il a réussi à se libérer, mais sa culture a atteint le stade intermédiaire de la Transformation de l'Âme ! » L'expression de Zhao Xingsha devint très laide. Il serra le poing et écrasa sa coupe de vin en poussière.
+« Non seulement il a réussi à se libérer, mais sa cultivation a atteint le stade intermédiaire de la Transformation de l'Âme ! » L'expression de Zhao Xingsha devint très laide. Il serra le poing et écrasa sa coupe de vin en poussière.
 
 Non seulement lui, mais le Deuxième Frère à ses côtés affichait également un air de choc. Ses yeux étaient sombres tandis qu'il se levait. Il fit un pas en avant et se transforma en un rayon de lumière violette qui s'élança vers l'horizon.
 

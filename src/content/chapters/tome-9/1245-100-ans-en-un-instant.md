@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1245 - 100 Years in An Instant
 slug: 100-ans-en-un-instant
 ---
-« La diminution soudaine des bêtes-moustiques doit être liée à lui. Il est manifestement en pleine culture, le mieux est donc de ne pas le déranger et de partir rapidement ! » En prononçant ces mots, Li Yuanlei recula lentement.
+« La diminution soudaine des bêtes-moustiques doit être liée à lui. Il est manifestement en pleine cultivation, le mieux est donc de ne pas le déranger et de partir rapidement ! » En prononçant ces mots, Li Yuanlei recula lentement.
 
 Cependant, à cet instant précis, un changement survint !
 
@@ -24,7 +24,7 @@ Pourtant, les moustiques bleus étaient trop rapides, et leur nombre produisait 
 
 À cet instant, ils n'avaient aucune chance de résister. Dès qu'ils furent encerclés par les bêtes-moustiques bleues, les nuages rouges les enveloppèrent aussitôt. Être pris au centre de l'essaim les empêchait de voir quoi que ce soit d'autre que la férocité des moustiques. Ce sentiment d'oppression les plongea dans le désespoir.
 
-Ils avaient pourtant été très prudents jusqu'ici. Lorsqu'ils étaient entrés dans cet endroit par le passé, ils n'avaient rencontré que de petits groupes d'une centaine de bêtes-moustiques. Avec leur niveau de culture et la distance qui les séparait de la sortie, il était facile de s'échapper.
+Ils avaient pourtant été très prudents jusqu'ici. Lorsqu'ils étaient entrés dans cet endroit par le passé, ils n'avaient rencontré que de petits groupes d'une centaine de bêtes-moustiques. Avec leur niveau de cultivation et la distance qui les séparait de la sortie, il était facile de s'échapper.
 
 C'était la première fois qu'ils se retrouvaient encerclés par des milliers de bêtes-moustiques. À supposer qu'ils ne soient pas seuls, même les Anciens de leurs sectes n'avaient probablement jamais affronté une telle situation.
 
@@ -72,11 +72,11 @@ Leurs souvenirs défilèrent avec rapidité. Cent ans passèrent en un seul souf
 
 Mille ans s'écoulèrent en dix souffles. Leurs souvenirs traversèrent leur esprit avant de s'arrêter sur ce qui s'était passé mille ans auparavant. Ils semblaient également être retournés mille ans dans le passé, à l'image de leurs souvenirs.
 
-Il y a mille ans, leur niveau de culture n'était pas aussi élevé qu'aujourd'hui. À mesure que leurs souvenirs défilaient, le niveau de Nirvana Cleanser au sommet du corps de Li Yuanlei sembla régresser, le ramenant au stade intermédiaire du Nirvana Cleanser !
+Il y a mille ans, leur niveau de cultivation n'était pas aussi élevé qu'aujourd'hui. À mesure que leurs souvenirs défilaient, le niveau de Nirvana Cleanser au sommet du corps de Li Yuanlei sembla régresser, le ramenant au stade intermédiaire du Nirvana Cleanser !
 
-Non seulement lui, mais tous ceux qui l'entouraient virent leur niveau de culture changer au bout des dix souffles, revenant à ce qu'il était mille ans plus tôt.
+Non seulement lui, mais tous ceux qui l'entouraient virent leur niveau de cultivation changer au bout des dix souffles, revenant à ce qu'il était mille ans plus tôt.
 
-L'un des cultivateurs, gravement blessé, avait dû entrer en culture fermée pendant cent ans pour se rétablir. À cet instant, alors que ses souvenirs s'inversaient, son corps trembla et son âme originelle faiblit. Ses blessures étaient exactement les mêmes qu'il y a mille ans !
+L'un des cultivateurs, gravement blessé, avait dû entrer en cultivation fermée pendant cent ans pour se rétablir. À cet instant, alors que ses souvenirs s'inversaient, son corps trembla et son âme originelle faiblit. Ses blessures étaient exactement les mêmes qu'il y a mille ans !
 
 Cependant, ils n'en avaient nullement conscience. Leurs regards demeuraient confus et ils ne réalisaient même pas leur propre transformation ; c'était comme s'ils étaient véritablement revenus mille ans en arrière.
 
@@ -86,7 +86,7 @@ Les souvenirs de Li Yuanlei et de ses compagnons commencèrent progressivement �
 
 Deux mille ans de souvenirs furent impitoyablement renvoyés vers le passé. Tel un lecteur ayant atteint la sixième page d'un livre, qu'une bourrasque de vent ramènerait doucement à la troisième page.
 
-Le corps de Li Yuanlei trembla tandis que la confusion envahissait son regard. Il ne pouvait s'en défaire, car son niveau de culture avait régressé au sommet du stade Nirvana Scryer. L'une des cultivatrices à ses côtés était une jeune femme dont la durée de culture était la plus courte du groupe, moins de trois mille ans. Sa transformation fut la plus radicale, puisqu'elle fut ramenée d'un second stade à celui de cultivatrice Ascendante.
+Le corps de Li Yuanlei trembla tandis que la confusion envahissait son regard. Il ne pouvait s'en défaire, car son niveau de cultivation avait régressé au sommet du stade Nirvana Scryer. L'une des cultivatrices à ses côtés était une jeune femme dont la durée de cultivation était la plus courte du groupe, moins de trois mille ans. Sa transformation fut la plus radicale, puisqu'elle fut ramenée d'un second stade à celui de cultivatrice Ascendante.
 
 Si le temps s'inversait encore et qu'un autre millénaire passait, cette jeune femme disparaîtrait du monde, comme si elle n'avait jamais existé.
 
@@ -98,7 +98,7 @@ Heureusement, il ne poursuivit pas. Au douzième souffle, Wang Lin ouvrit les ye
 
 Il fronça légèrement les sourcils et, d'un mouvement de ses manches, fit trembler le monde. Li Yuanlei et les autres furent secoués tandis que les deux mille ans qui s'étaient dissipés revenaient instantanément. Ils se réveillèrent, terrifiés et incrédules. Ils avaient l'impression d'avoir vécu un rêve, mais un rêve si réel qu'ils en étaient trempés de sueur froide.
 
-Le roi moustique poussa un cri, conscient de son erreur, et approcha sa gueule de Wang Lin. Dans son esprit, puisque son maître était en pleine culture, il avait pensé que Wang Lin souhaiterait avoir des sujets pour ses tests ; c'est pourquoi il avait contraint Li Yuanlei et ses compagnons à rester.
+Le roi moustique poussa un cri, conscient de son erreur, et approcha sa gueule de Wang Lin. Dans son esprit, puisque son maître était en pleine cultivation, il avait pensé que Wang Lin souhaiterait avoir des sujets pour ses tests ; c'est pourquoi il avait contraint Li Yuanlei et ses compagnons à rester.
 
 Au moment où Wang Lin ouvrit les yeux — provoquant le réveil de la troupe et le retour de plus de deux mille ans de temps — les yeux du vieil homme pétrifié, au plus profond du Royaume Céleste du Vent, brillèrent soudainement.
 

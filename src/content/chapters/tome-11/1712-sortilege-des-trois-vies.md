@@ -76,7 +76,7 @@ Une femme était autrefois entrée dans le Pavillon de Sang, une personne que Wa
 
 Les trois autels flottaient devant lui, et les lueurs rouges qu'ils émettaient commencèrent à s'entremêler. Il était évident qu'ils étaient attirés l'un par l'autre !
 
-Wang Lin avait appris la méthode de culture du Sortilège des Trois Vies auprès de cette femme du Clan de l'Extermination des Sceaux dans la Tombe Antique. Après une courte réflexion, il s'assit.
+Wang Lin avait appris la méthode de cultivation du Sortilège des Trois Vies auprès de cette femme du Clan de l'Extermination des Sceaux dans la Tombe Antique. Après une courte réflexion, il s'assit.
 
 « Le Sortilège des Trois Vies du Clan de l'Extermination des Sceaux est dangereux à apprendre... Cependant, comparés aux bénéfices, les risques en valent la peine ! » La main droite de Wang Lin plongea vers le vide. Un emblème de clan émettant une lueur spectrale apparut dans sa paume.
 

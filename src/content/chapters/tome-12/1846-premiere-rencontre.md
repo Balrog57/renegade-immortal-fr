@@ -88,7 +88,7 @@ Un seul coup d'épée pour briser quatre couches de restrictions. Même Wang Lin
 
 Wang Lin prit une profonde inspiration. Cette volonté n'était que l'onde de choc, mais il sentait clairement à quel point elle était tyrannique.
 
-« Peu importe le niveau de culture de cette personne, elle doit être une figure célèbre du Continent du Démon Vert ! » Les yeux de Wang Lin brillèrent alors qu'il emmenait le Tigre Blanc et ses compagnons, encore sous le choc du coup d'épée. Ses yeux étaient parcourus de veines sanguines tandis qu'il chargeait vers la sixième couche.
+« Peu importe le niveau de cultivation de cette personne, elle doit être une figure célèbre du Continent du Démon Vert ! » Les yeux de Wang Lin brillèrent alors qu'il emmenait le Tigre Blanc et ses compagnons, encore sous le choc du coup d'épée. Ses yeux étaient parcourus de veines sanguines tandis qu'il chargeait vers la sixième couche.
 
 Le brouillard de la sixième couche était très dense et ne présentait aucune faille. Cependant, alors que Wang Lin avançait, ses mains formèrent des sceaux et des restrictions composées de lignes de sang apparurent devant lui pour former un maillage. Rapidement, celui-ci entra en collision avec le brouillard de la sixième couche.
 

@@ -42,7 +42,7 @@ Parmi les innombrables fragments d'âmes, douze âmes primaires se distinguèren
 
 Du moment où Qian Feng sortit du rideau de lumière verte jusqu'à ce qu'il soit encerclé par les fragments d'âmes, tout s'était déroulé avec une rapidité fulgurante. Si vite, en fait, que Qian Feng en perdit ses moyens.
 
-Après tout, il ne comprenait pas Wang Lin et le méprisait secrètement. Autrement, avec son niveau de culture, il n'aurait jamais laissé à Wang Lin l'opportunité d'utiliser l'étendard des âmes.
+Après tout, il ne comprenait pas Wang Lin et le méprisait secrètement. Autrement, avec son niveau de cultivation, il n'aurait jamais laissé à Wang Lin l'opportunité d'utiliser l'étendard des âmes.
 
 De son point de vue, Wang Lin était simplement trop mesquin. Compte tenu de son statut, peu importe qui il affrontait, l'adversaire prendrait au moins le temps de discuter avant de commencer le combat. Pourtant, ce Wang Lin l'avait inopinément coupé dans son élan pour l'attaquer dès sa sortie. Un tel acte n'était rien de moins qu'une attaque sournoise.
 

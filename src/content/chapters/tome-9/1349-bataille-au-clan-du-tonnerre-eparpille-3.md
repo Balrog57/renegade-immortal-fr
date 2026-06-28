@@ -56,7 +56,7 @@ Il semblait désormais remplacer la voûte céleste elle-même alors qu'il fonç
 
 « Vieux bâtard, oses-tu m'affronter ?! » Wang Lin se rapprocha et lança son ultime coup de poing ! Avec ce coup, il activa toute la puissance de Dieu Antique résidant dans son corps. Les étoiles entre ses sourcils tournèrent frénétiquement, libérant des quantités massives d'énergie divine antique !
 
-En combinant la culture de Wang Lin et sa maîtrise du tonnerre, il parvint à former un coup de poing capable de briser les cieux ! Le poing de deux cent mille pieds s'abattit dans un fracas assourdissant. C'était comme si un coup de poing titanesque provenant d'un autre monde descendait sur l'Ancien avec une aura destructrice !
+En combinant la cultivation de Wang Lin et sa maîtrise du tonnerre, il parvint à former un coup de poing capable de briser les cieux ! Le poing de deux cent mille pieds s'abattit dans un fracas assourdissant. C'était comme si un coup de poing titanesque provenant d'un autre monde descendait sur l'Ancien avec une aura destructrice !
 
 L'Ancien en chef recula de quelques pas et agita la main pour parer la charge. Ses vêtements s'agitèrent sans qu'aucun vent ne soufflât et ses cheveux se défairent. Puis, ses yeux brillèrent d'un éclat intense et il rugit :
 
@@ -112,6 +112,6 @@ Cependant, l'Ancien en chef fut également projeté en arrière, ses vêtements 
 
 « Tu es digne de combattre ce vieil homme, mais devant moi, tu mourras sans aucun doute ! Cela faisait longtemps que je n'avais pas utilisé une puissance dépassant le quatrième Fléau Céleste. Je n'ai pas besoin de la puissance du cinquième Fléau Céleste pour t'anéantir. Aujourd'hui, je vais te faire expérimenter personnellement la force absolue du quatrième Fléau Céleste ! »
 
-L'Ancien en chef leva sa main droite et déchira une marque sur son corps. C'était comme s'il brisait un sceau, et une culture incroyablement puissante jaillit de lui !
+L'Ancien en chef leva sa main droite et déchira une marque sur son corps. C'était comme s'il brisait un sceau, et une cultivation incroyablement puissante jaillit de lui !
 
 Cette puissance était si immense qu'elle fit trembler l'espace environnant. Même le tonnerre n'osait plus approcher de lui !

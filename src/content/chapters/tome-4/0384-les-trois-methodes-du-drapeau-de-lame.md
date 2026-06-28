@@ -106,7 +106,7 @@ La femme en robe bleue répondit promptement : « Vous devez être Qing Mu, le v
 
 Les yeux de Wang Lin s'illuminèrent. Il rangea le jade et contempla la grotte. Cet endroit ne répondait pas à ses exigences. Il déploya son Sens Divin et s'envola vers le bas de la montagne.
 
-Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte du Raffinage des Âmes. À moins d'une puissance de culture exceptionnelle, il fallait compter sur autrui ; c'est pourquoi les cultivateurs formaient souvent des groupes.
+Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte du Raffinage des Âmes. À moins d'une puissance de cultivation exceptionnelle, il fallait compter sur autrui ; c'est pourquoi les cultivateurs formaient souvent des groupes.
 
 Une fois la défaite consommée, on devait tout céder. Une fois tout remis à l'adversaire, celui-ci n'avait plus le droit de tuer, sous peine d'intervention des Anciens.
 
@@ -118,7 +118,7 @@ En plein vol, Wang Lin fronça les sourcils. Il se retourna et cria : « Ne me s
 
 La femme aux côtés de Xu Yun demanda anxieusement : « Sœur aînée, que devons-nous faire ? »
 
-Xu Yun frappa le sol du pied en reniflant de mépris. « Que pourrions-nous faire d'autre ? S'il refuse notre présence, nous ne l'importunons pas. Dès qu'il trouvera une grotte, nous ouvrirons la nôtre juste à côté de la sienne. Peut-être que les autres lui feront l'honneur de ne pas perturber notre culture. »
+Xu Yun frappa le sol du pied en reniflant de mépris. « Que pourrions-nous faire d'autre ? S'il refuse notre présence, nous ne l'importunons pas. Dès qu'il trouvera une grotte, nous ouvrirons la nôtre juste à côté de la sienne. Peut-être que les autres lui feront l'honneur de ne pas perturber notre cultivation. »
 
 Près du pied de la montagne, le regard de Wang Lin se fixa sur une falaise. Il la désigna du doigt et une épée volante s'y précipita. En quelques instants seulement, une grotte fut sculptée dans la roche.
 

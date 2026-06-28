@@ -20,7 +20,7 @@ Tout en réfléchissant, Wang Lin se remémora tout ce qui s'était passé dans 
 
 Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de l'Omniscient, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Déviants.
 
-Il avait combattu Maître Ashen Pine et avait été frappé par le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de culture avait augmenté et la bête moustique avait subi une métamorphose !
+Il avait combattu Maître Ashen Pine et avait été frappé par le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de cultivation avait augmenté et la bête moustique avait subi une métamorphose !
 
 Il avait obtenu la Restriction Temporelle ainsi que les deux épées plantées dans les restes du cerf mystérieux. Tout cela exaltait Wang Lin. Cent ans s'étaient écoulés rapidement, et le changement produit par cette période était aussi vaste que le ciel et la terre !
 
@@ -70,7 +70,7 @@ Ses yeux étaient clos pour le moment et, bien que son âme fût floue, elle ne 
 
 La main droite de Wang Lin forma un sceau et pointa la vieille femme. Une fois le sceau relâché, elle ouvrit les yeux et scruta les environs avant de fixer silencieusement Wang Lin.
 
-Bien que son âme n'eût pas été gravement blessée, sa méthode de culture avait été brisée. Son niveau de culture avait considérablement chuté, la ramenant au stade initial de la Purification du Nirvana.
+Bien que son âme n'eût pas été gravement blessée, sa méthode de cultivation avait été brisée. Son niveau de cultivation avait considérablement chuté, la ramenant au stade initial de la Purification du Nirvana.
 
 Wang Lin resta silencieux, fixant froidement l'âme originelle de la vieille femme.
 

@@ -42,7 +42,7 @@ Un sifflement aigu, capable de percer l'âme originelle, résonna instantanémen
 
 Elle était si rapide que même Wang Lin ne put en suivre la trajectoire. Il n'entendait plus que les bruits d'impacts résonner autour de lui alors qu'il reculait.
 
-Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa culture, mais il sentait que son niveau de cultivation était bien plus terrifiant que celui de Maître Flamespark.
+Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa cultivation, mais il sentait que son niveau de cultivation était bien plus terrifiant que celui de Maître Flamespark.
 
 La femme leva à nouveau sa main droite, formant un sceau étrange, et murmura : « Fleur Funéraire ! »
 

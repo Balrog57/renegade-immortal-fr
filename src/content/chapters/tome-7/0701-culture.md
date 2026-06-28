@@ -54,7 +54,7 @@ En un instant, la propagation fut fulgurante et les ondes de foudre s'effondrèr
 
 Cela se produisit si soudainement que le Daoïste du Tonnerre en eut le souffle coupé. Il recula de deux pas et fixa Wang Lin avec une prudence manifeste.
 
-Il était incapable de percevoir le niveau de culture de cet homme !
+Il était incapable de percevoir le niveau de cultivation de cet homme !
 
 Ses yeux pouvaient voir l'individu, mais avec son Sens Divin, ce vieil homme semblait ne même pas exister.
 
@@ -128,11 +128,11 @@ Soudain, la barre métallique parut incapable de contenir la puissance de la fou
 
 Ce fut comme un coup de tonnerre apocalyptique ; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
 
-La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla : « Tu es l'homme qui prétend être Xu Mu, le messager du Temple Céleste du Tonnerre ! Quel est donc ton véritable niveau de culture ?! »
+La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla : « Tu es l'homme qui prétend être Xu Mu, le messager du Temple Céleste du Tonnerre ! Quel est donc ton véritable niveau de cultivation ?! »
 
 L'onde de choc de la barre fit disparaître les éclairs entourant la garde céleste, laquelle s'avança alors.
 
-Wang Lin regarda calmement le Daoïste du Tonnerre et dit lentement : « Mon niveau de culture... » Il marqua une pause tandis que l'énergie spirituelle céleste jaillissait soudainement de son corps. De l'Établissement des Fondations jusqu'à la Formation de l'Âme. Puis elle continua de grimper jusqu'au sommet du stade avancé de la Transformation de l'Âme.
+Wang Lin regarda calmement le Daoïste du Tonnerre et dit lentement : « Mon niveau de cultivation... » Il marqua une pause tandis que l'énergie spirituelle céleste jaillissait soudainement de son corps. De l'Établissement des Fondations jusqu'à la Formation de l'Âme. Puis elle continua de grimper jusqu'au sommet du stade avancé de la Transformation de l'Âme.
 
 Ce n'était pas fini. Alors que l'énergie spirituelle céleste déferlait de lui, son niveau atteignit le début du stade Ascendant !
 
@@ -164,14 +164,14 @@ Le domaine de Wang Lin s'arrêta là !
 
 Le Daoïste du Tonnerre poussa un soupir de soulagement. Il craignait réellement que le domaine de Wang Lin ne franchisse la barrière du second niveau. Si tel avait été le cas, il aurait dû affronter un combat de tous les instants face à l'assistance de la marionnette !
 
-Le Daoïste du Tonnerre ricana : « Avec une si infime culture, tu oses usurper l'identité d'un membre du Temple Céleste du Tonnerre ?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
+Le Daoïste du Tonnerre ricana : « Avec une si infime cultivation, tu oses usurper l'identité d'un membre du Temple Céleste du Tonnerre ?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
 
-Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire ; il ne l'avait vu que chez les messagers de rang terrestre du Temple Céleste du Tonnerre. Un autre élément le rendait suspicieux : plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de culture, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
+Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire ; il ne l'avait vu que chez les messagers de rang terrestre du Temple Céleste du Tonnerre. Un autre élément le rendait suspicieux : plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de cultivation, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
 
-Wang Lin leva la tête. Faute d'énergie spirituelle céleste suffisante, sa culture s'était stabilisée au milieu du stade Ascendant. Cependant, son domaine avait atteint un niveau tel qu'il en fut lui-même surpris.
+Wang Lin leva la tête. Faute d'énergie spirituelle céleste suffisante, sa cultivation s'était stabilisée au milieu du stade Ascendant. Cependant, son domaine avait atteint un niveau tel qu'il en fut lui-même surpris.
 
 De plus, il n'avait libéré que son domaine de Vie et de Mort. Il restait encore le domaine du pouvoir du tonnerre et celui du Karma qu'il n'avait pas encore manifestés.
 
 La raison pour laquelle le Daoïste du Tonnerre ne parvenait pas à percer le domaine de Wang Lin résidait précisément dans le domaine du Karma. Une fois que le domaine de Wang Lin aurait évolué, il serait impossible de le sonder, à moins d'être un véritable cultivateur du second niveau. Après tout, le stade Yin et Yang n'était qu'une transition entre le premier et le second niveau.
 
-Wang Ping fixait son père. Au moment où la culture de celui-ci avait augmenté, une légère fluctuation avait parcouru son corps. Il l'avait ressentie clairement jusque dans son âme, ce qui ne fit que renforcer ses soupçons.
+Wang Ping fixait son père. Au moment où la cultivation de celui-ci avait augmenté, une légère fluctuation avait parcouru son corps. Il l'avait ressentie clairement jusque dans son âme, ce qui ne fit que renforcer ses soupçons.

@@ -10,7 +10,7 @@ slug: zi-xia
 
 Le vortex commença à disparaître un instant plus tard, et la silhouette floue à l'intérieur devint claire. C'était une femme vêtue d'une longue robe violette aux cheveux bleus. Elle était d'une beauté saisissante ; si un mortel l'avait vue, il en aurait été instantanément charmé.
 
-Même les cultivateurs auraient été tentés de la prendre pour leur propre fourneau de culture.
+Même les cultivateurs auraient été tentés de la prendre pour leur propre fourneau de cultivation.
 
 Cette femme était Zi Xia, de la Rivière des Invocations, la septième concubine ! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même tenté de donner des ordres à Wang Lin. S'il n'avait pas eu à se soucier de son Arc Li Guang, elle aurait tenté de le tuer sur-le-champ.
 
@@ -32,7 +32,7 @@ Lorsque le phénix pourpre et l'épée de sang entrèrent en collision, un grond
 
 Le phénix pourpre se désintégra, mais l'épée de sang ne put progresser et fut repoussée. Le vortex qui se dissipait derrière Zi Xia recommença à tourbillonner. Elle savait que Wang Lin avait utilisé l'Arc Li Guang plusieurs fois, mais elle ignorait combien de fois il pourrait encore s'en servir. Après un moment d'hésitation, elle leva la main droite pour sortir un jade. Elle comptait partir et envoyer un message pour faire venir du renfort.
 
-Elle était consciente du sortilège d'Arrêt de Wang Lin. Par conséquent, elle décida de fuir dès qu'elle aurait saisi le jade. Avec l'aide du vortex pour bloquer le sortilège et grâce à sa propre culture, elle pourrait y résister !
+Elle était consciente du sortilège d'Arrêt de Wang Lin. Par conséquent, elle décida de fuir dès qu'elle aurait saisi le jade. Avec l'aide du vortex pour bloquer le sortilège et grâce à sa propre cultivation, elle pourrait y résister !
 
 Cette femme était très rusée et extrêmement prudente ; elle ne prendrait aucun risque inutile.
 
@@ -52,7 +52,7 @@ Zi Xia le savait aussi ; elle comprenait mieux que quiconque, même les autres c
 
 Cela rendrait cette épreuve bien plus complexe.
 
-« Cette Zi Xia est trop prudente. Si elle choisit de partir, je ne pourrai pas la retenir compte tenu de son niveau de culture... Cependant, j'ignore si le jade enverra un message au Daoïste aux Sept Couleurs ou à l'Ancien Fantôme Zhan. Mais d'après ce qu'elle a dit plus tôt, elle est très loyale envers le Souverain Céleste et peut communiquer avec les quatre généraux... Elle pourrait bien envoyer un signal aux quatre généraux ! »
+« Cette Zi Xia est trop prudente. Si elle choisit de partir, je ne pourrai pas la retenir compte tenu de son niveau de cultivation... Cependant, j'ignore si le jade enverra un message au Daoïste aux Sept Couleurs ou à l'Ancien Fantôme Zhan. Mais d'après ce qu'elle a dit plus tôt, elle est très loyale envers le Souverain Céleste et peut communiquer avec les quatre généraux... Elle pourrait bien envoyer un signal aux quatre généraux ! »
 
 « Quoi qu'il en soit, que ce soit le Daoïste aux Sept Couleurs ou l'Ancien Fantôme Zhan, peu importe. J'étais prêt à ce qu'ils viennent. Seule cette Zi Xia est trop méfiante ; si je ne la tue pas cette fois, elle sera encore plus sur ses gardes, et son assassinat deviendra bien plus difficile... Quant à l'Arc Li Guang, ce n'est pas encore le moment de l'utiliser. » Le mouvement de Wang Lin devint soudainement hâtif un court instant, mais il parvint vite à dissimuler cela.
 
@@ -72,7 +72,7 @@ Voyant que Wang Lin était sur le point de disparaître, Zi Xia, toujours à l'i
 
 « Je vais tenter le coup une dernière fois ! Si sa réaction est trop évidente, alors quelque chose ne va pas ! » Les yeux de Zi Xia s'illuminèrent tandis qu'elle fixait l'horizon.
 
-L'épée volante pourpre était extrêmement rapide et rattrapa presque instantanément Wang Lin. Elle arriva à moins de mille pieds de lui. Un éclair de froideur passa dans les yeux de Wang Lin et il leva son index droit. Lorsque l'épée, imprégnée de sa culture du Vide Arcane, atteignit sa cible, le doigt de Wang Lin toucha la pointe de la lame.
+L'épée volante pourpre était extrêmement rapide et rattrapa presque instantanément Wang Lin. Elle arriva à moins de mille pieds de lui. Un éclair de froideur passa dans les yeux de Wang Lin et il leva son index droit. Lorsque l'épée, imprégnée de sa cultivation du Vide Arcane, atteignit sa cible, le doigt de Wang Lin toucha la pointe de la lame.
 
 Au moment même où il pointait la pointe de l'épée, les pensées de Wang Lin s'emballèrent. Il renonça à feindre sa blessure et déploya plutôt toute sa puissance. Outre la septième essence, ses six premières essences jaillirent de son corps pour converger vers son index droit.
 
@@ -84,7 +84,7 @@ Ses six essences enveloppaient son corps et son aura était si puissante qu'il s
 
 « Il est blessé ! Et ce n'est pas une blessure mineure. S'il avait voulu me tromper, il aurait prétendu être encore plus faible pour m'inciter à le suivre ! »
 
-« Cependant, au lieu de simuler sa blessure, il a affiché toute sa culture pour tenter de la dissimuler et de me piéger. Seul quelqu'un de véritablement blessé, craignant d'être démasqué, agirait ainsi ! »
+« Cependant, au lieu de simuler sa blessure, il a affiché toute sa cultivation pour tenter de la dissimuler et de me piéger. Seul quelqu'un de véritablement blessé, craignant d'être démasqué, agirait ainsi ! »
 
 Elle vit notamment le vortex se former autour de la silhouette de Wang Lin, signe qu'il quittait ce monde. Cela la rendit plus certaine que jamais !
 

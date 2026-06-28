@@ -120,7 +120,7 @@ La planète-aiguille trembla soudainement et cessa sa rotation. Elle pointait ve
 
 Dès qu'elle s'immobilisa, un rayon de lumière spectrale jaillit de la Planète du Grand Empereur et fonça vers la direction sud-ouest du Système Stellaire Antique !
 
-Cette lumière fantomatique était une entité inconnue se déplaçant à une vitesse indescriptible. En un instant, elle fendit la distance. Tout ce qui croisait son chemin, qu'il s'agisse de cultivateurs ou de planètes de culture, se désintégrait silencieusement.
+Cette lumière fantomatique était une entité inconnue se déplaçant à une vitesse indescriptible. En un instant, elle fendit la distance. Tout ce qui croisait son chemin, qu'il s'agisse de cultivateurs ou de planètes de cultivation, se désintégrait silencieusement.
 
 En un éclair, la lumière spectrale atteignit l'extrémité du sud-ouest. C'était là que se trouvait la Formation du Royaume Scellé ! La formation était gardée en permanence par des cultivateurs. Tous ces derniers virent leur vision se troubler et, instantanément, les corps de ces près de 1 000 cultivateurs tombèrent en poussière.
 

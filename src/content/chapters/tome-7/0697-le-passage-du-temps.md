@@ -86,7 +86,7 @@ Après avoir congédié les serviteurs, Wang Lin s'assit dans la cour et leva le
 
 La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Céleste prit personnellement les rênes du pouvoir.
 
-Peu importe le niveau de culture des intervenants, tous reculaient devant lui. Peu à peu, tous les cultivateurs qui tentaient d'interférer se retirèrent du monde mortel.
+Peu importe le niveau de cultivation des intervenants, tous reculaient devant lui. Peu à peu, tous les cultivateurs qui tentaient d'interférer se retirèrent du monde mortel.
 
 Outre l'ascension de Wang Ping, une autre raison majeure fut que les familles Sun, Ran et Zhao avaient donné leurs ordres.
 

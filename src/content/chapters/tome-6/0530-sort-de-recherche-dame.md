@@ -68,7 +68,7 @@ Bien que l'absorption d'énergie spirituelle céleste fût un effet secondaire d
 
 Après un long moment, Wang Lin prit une profonde inspiration et la succion du piège s'estompa lentement. Il semblait que la bête n'ait pas pu aspirer davantage et qu'elle fût contrainte de renoncer à contrecœur.
 
-Une fois le piège rangé, Wang Lin afficha un sourire amer. Il ferma les yeux pour reprendre sa culture et ne les rouvrit qu'après avoir récupéré toute son énergie spirituelle céleste.
+Une fois le piège rangé, Wang Lin afficha un sourire amer. Il ferma les yeux pour reprendre sa cultivation et ne les rouvrit qu'après avoir récupéré toute son énergie spirituelle céleste.
 
 « Cette bête spirituelle... » Wang Lin secoua la tête. Le ciel s'éclaircissait désormais et l'onde d'énergie spirituelle démoniaque qui avait duré toute la nuit se dissipait progressivement.
 
@@ -76,7 +76,7 @@ Wang Lin se leva, frappa son sac de rangement de la main droite et en sortit l'�
 
 Simultanément, l'énergie spirituelle céleste à l'intérieur du corps de Wang Lin forma des filaments qui pénétrèrent l'âme originelle pour y instaurer une restriction. Si cet homme tentait de s'autodétruire, ces fils serviraient de tampon.
 
-Bien qu'il ne puisse sceller totalement l'âme originelle en raison de la différence de niveaux de culture, cela lui permettait de détecter toute tentative d'autodestruction et de verrouiller l'âme dans l'étendard.
+Bien qu'il ne puisse sceller totalement l'âme originelle en raison de la différence de niveaux de cultivation, cela lui permettait de détecter toute tentative d'autodestruction et de verrouiller l'âme dans l'étendard.
 
 « Je ne l'accepterai jamais ! Si ce n'était pas pour ce trésor magique et les fragments d'âmes qui ont attiré le fantôme céleste, tu ne serais absolument pas mon égal ! Tu serais déjà mort ! » Une fois libérée, l'âme originelle de l'homme rugit de rage, ses yeux brillant d'une malveillance extrême.
 
@@ -96,7 +96,7 @@ Wang Lin le regarda froidement. Perdant patience, il leva la main droite et frap
 
 Le regard de Wang Lin se glaça. Sa main gauche pressa le front de l'être et il murmura : « Recherche d'âme ! »
 
-Il existait de nombreuses restrictions à ce sort, mais avec le niveau de culture actuel de Wang Lin et l'usage de l'énergie spirituelle céleste, la tâche n'était guère difficile. De plus, l'âme originelle étant déjà affaiblie, elle ne put opposer aucune résistance.
+Il existait de nombreuses restrictions à ce sort, mais avec le niveau de cultivation actuel de Wang Lin et l'usage de l'énergie spirituelle céleste, la tâche n'était guère difficile. De plus, l'âme originelle étant déjà affaiblie, elle ne put opposer aucune résistance.
 
 Des hurlements de douleur s'échappèrent de la bouche de Lou Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée par mille.
 

@@ -84,7 +84,7 @@ Le Grand Maître Yun Luo observait la scène à distance. Elle leva sa main droi
 
 Wang Lin ayant perdu toute force, son corps ne pouvait plus flotter et commença à chuter. En un instant, dix mille cultivateurs se refermèrent sur lui avec une intention meurtrière monstrueuse. Ils projetèrent leurs trésors vers lui.
 
-Dans un fracas de tonnerre, Wang Lin fut frappé par d'innombrables objets précieux. Bien qu'il n'ait plus sa culture, son corps restait puissant. Sous l'impact de ces assauts, il cracha du sang !
+Dans un fracas de tonnerre, Wang Lin fut frappé par d'innombrables objets précieux. Bien qu'il n'ait plus sa cultivation, son corps restait puissant. Sous l'impact de ces assauts, il cracha du sang !
 
 « Clan de l'Extermination par le Sceau ! » rugit Wang Lin alors que son énergie originelle scellée, sa vitalité et son pouvoir de Dieu Ancien tentaient de jaillir des sceaux pour briser l'emprise !
 
@@ -114,7 +114,7 @@ Non seulement les cultivateurs du Royaume Extérieur étaient stupéfaits, mais 
 
 À cet instant, tous les cultivateurs de la Mer des Nuages furent pris d'une frénésie folle. Ils voulaient se précipiter pour protéger Wang Lin !
 
-La force physique de Wang Lin ne fit pas que choquer le Royaume Extérieur ; elle intensifia leur soif de sang. Chacun utilisa toute sa culture pour lancer ses sorts les plus puissants. Le domaine stellaire entier en fut ébranlé !
+La force physique de Wang Lin ne fit pas que choquer le Royaume Extérieur ; elle intensifia leur soif de sang. Chacun utilisa toute sa cultivation pour lancer ses sorts les plus puissants. Le domaine stellaire entier en fut ébranlé !
 
 Une tempête rugissante fonça sur Wang Lin !
 

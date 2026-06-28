@@ -108,7 +108,7 @@ Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Pr
 
 Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et une tempête s'étendait sur des dizaines de milliers de kilomètres.
 
-Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à nouveau la Déformation Spatiale. Il passa ce temps en culture isolée, et ses blessures se cicatrisèrent. Il finit par marcher dans la neige, affrontant le vent glacial pour avancer.
+Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à nouveau la Déformation Spatiale. Il passa ce temps en cultivation isolée, et ses blessures se cicatrisèrent. Il finit par marcher dans la neige, affrontant le vent glacial pour avancer.
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 

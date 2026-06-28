@@ -8,7 +8,7 @@ slug: manque
 ---
 L'homme d'âge mûr déclara respectueusement : « C'était une épée volante. Ce junior l'a examinée et l'a trouvée très ordinaire. Peut-être possède-t-elle réellement quelque chose de spécial, mais je ne crois pas qu'elle soit puissante. Ce genre de trésor ne répond pas aux exigences de notre pavillon. »
 
-Il n'osait faire preuve d'aucun manque de respect envers le vieil homme. Bien que ce dernier ne fût qu'au stade initial de la Formation de l'Âme, il occupait un rang très élevé au sein du pavillon. L'homme d'âge mûr savait vaguement que ce vieil homme avait autrefois atteint le stade intermédiaire de la Transformation de l'Âme, mais qu'en raison de ses blessures, sa culture était retombée au stade de la Formation de l'Âme.
+Il n'osait faire preuve d'aucun manque de respect envers le vieil homme. Bien que ce dernier ne fût qu'au stade initial de la Formation de l'Âme, il occupait un rang très élevé au sein du pavillon. L'homme d'âge mûr savait vaguement que ce vieil homme avait autrefois atteint le stade intermédiaire de la Transformation de l'Âme, mais qu'en raison de ses blessures, sa cultivation était retombée au stade de la Formation de l'Âme.
 
 Le vieil homme regarda la silhouette de Wang Lin disparaître progressivement. Une pointe de doute passa dans son regard, mais il secoua bientôt la tête et retourna à l'intérieur du Pavillon des Trésors.
 
@@ -18,9 +18,9 @@ Wang Lin quitta le Pavillon des Trésors et se dirigea vers l'élégant Pavillon
 
 Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre ancien et semblait le lire avec grand intérêt. Lorsque le jeune homme remarqua l'entrée de Wang Lin, il posa son ouvrage, se leva et sourit. « Bien que notre boutique ne soit pas vaste, nous possédons une collection assez riche. Je me demande ce que cherche l'ami. »
 
-La culture de cette personne n'était qu'au stade initial de l'Âme Naissante. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon des Trésors ; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
+La cultivation de cette personne n'était qu'au stade initial de l'Âme Naissante. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon des Trésors ; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
 
-Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda : « Cher compagnon de culture accepterait-il d'examiner son épée ? »
+Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda : « Cher compagnon de cultivation accepterait-il d'examiner son épée ? »
 
 En regardant l'épée, le jeune homme fronça légèrement les sourcils et afficha un sourire amer. « Cher compagnon, cette épée... Laissez tomber. Me permettez-vous de l'examiner ? »
 
@@ -48,7 +48,7 @@ Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, �
 
 Le corps du jeune homme trembla et il sortit immédiatement de la boutique. D'un geste de la main droite, il fit revenir l'épée volante par téléportation. Ses yeux n'étaient plus empreints d'extase, mais de choc. Il prit une inspiration saccadée et pointa à nouveau la pierre d'esprit. L'épée se téléporta et transperça la pierre.
 
-« Ceci... ceci est de la téléportation ! » Le jeune homme en resta bouche bée. Il rappela rapidement l'épée et la tint dans sa main, le cœur totalement bouleversé. En règle générale, il était impossible de loger un sort de téléportation dans une épée volante, car l'arme ne pouvait supporter les frictions liées à la téléportation. De plus, sans atteindre un niveau de culture céleste, il serait impossible de marquer une épée avec un tel sort.
+« Ceci... ceci est de la téléportation ! » Le jeune homme en resta bouche bée. Il rappela rapidement l'épée et la tint dans sa main, le cœur totalement bouleversé. En règle générale, il était impossible de loger un sort de téléportation dans une épée volante, car l'arme ne pouvait supporter les frictions liées à la téléportation. De plus, sans atteindre un niveau de cultivation céleste, il serait impossible de marquer une épée avec un tel sort.
 
 Plus important encore, même pour un cultivateur possédant le niveau requis, à moins de disposer de méthodes extrêmement puissantes et d'un domaine spécial, il serait impossible de faire durer éternellement un sort de téléportation.
 
@@ -56,21 +56,21 @@ C'était le domaine de la Vie et de la Mort de Wang Lin qui permettait au sort d
 
 Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama : « Cher compagnon, cette boutique veut cette épée ! Est-ce que dix mille pierres d'esprit de haute qualité suffisent ? »
 
-Wang Lin fronça légèrement les sourcils. Le niveau de culture du jeune homme devant lui était trop bas ; en utilisant son énergie spirituelle, il ne pouvait n'en exploiter qu'un dixième de la puissance.
+Wang Lin fronça légèrement les sourcils. Le niveau de cultivation du jeune homme devant lui était trop bas ; en utilisant son énergie spirituelle, il ne pouvait n'en exploiter qu'un dixième de la puissance.
 
 Voyant le froncement de sourcils de Wang Lin, le jeune homme réfléchit un instant. Il serra les dents et dit : « Cher compagnon, je peux ajouter cinquante mille pierres d'esprit de haute qualité supplémentaires. Bien que cette épée soit un trésor spirituel de premier ordre, j'ai déjà proposé un prix très élevé. »
 
 Wang Lin fronça les sourcils et demanda : « Avez-vous des cultivateurs au stade de la Transformation de l'Âme ? »
 
-Le jeune homme sursauta. Un air de mécontentement apparut sur son visage et il répliqua : « Que voulez-vous dire par là, cher compagnon ? Pensez-vous que mon niveau de culture est insuffisant pour discerner les capacités de cette épée ? Nous avons des aînés au stade de la Transformation de l'Âme, et puisque vous le demandez, je vais en appeler un ! » Il frappa son sac de rangement et une pierre de jade s'en échappa. Après y avoir laissé un message, il la lança hors de la boutique.
+Le jeune homme sursauta. Un air de mécontentement apparut sur son visage et il répliqua : « Que voulez-vous dire par là, cher compagnon ? Pensez-vous que mon niveau de cultivation est insuffisant pour discerner les capacités de cette épée ? Nous avons des aînés au stade de la Transformation de l'Âme, et puisque vous le demandez, je vais en appeler un ! » Il frappa son sac de rangement et une pierre de jade s'en échappa. Après y avoir laissé un message, il la lança hors de la boutique.
 
 Une fois la pierre envoyée, le jeune homme se rassit silencieusement et commença à manipuler l'épée volante qu'il tenait en main.
 
-Compte tenu de sa culture, Wang Lin ne se souciait naturellement pas d'un cultivateur de rang inférieur. Ayant déjà atteint le statut de maître, il sourit et se mit à contempler les trésors magiques de la boutique.
+Compte tenu de sa cultivation, Wang Lin ne se souciait naturellement pas d'un cultivateur de rang inférieur. Ayant déjà atteint le statut de maître, il sourit et se mit à contempler les trésors magiques de la boutique.
 
 À l'inverse, le jeune homme n'était guère plus calme. Après un moment, son regard retomba sur Wang Lin et une pointe de choc apparut dans ses yeux. À ses yeux, bien que ce cultivateur ne fût qu'au stade avancé de la Formation du Noyau, il eut l'impression, pendant un instant, de contempler le patriarche ou les aînés de sa propre lignée.
 
-L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cultivateur au stade avancé de la Formation du Noyau devrait afficher, pourtant cet homme était bel et bien à ce niveau. Il songea que Wang Lin pouvait dissimuler sa culture, mais le Pavillon du Bambou Vert était protégé par des formations posées par les aînés de la famille. À moins d'avoir atteint le stade de l'Ascendant, il serait impossible de se cacher.
+L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cultivateur au stade avancé de la Formation du Noyau devrait afficher, pourtant cet homme était bel et bien à ce niveau. Il songea que Wang Lin pouvait dissimuler sa cultivation, mais le Pavillon du Bambou Vert était protégé par des formations posées par les aînés de la famille. À moins d'avoir atteint le stade de l'Ascendant, il serait impossible de se cacher.
 
 Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
 

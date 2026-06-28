@@ -86,7 +86,7 @@ Wang Lin posa une cruche vide et en prit une nouvelle. Durant la nuit, ils avaie
 
 Confus, le vieux général lui répondit : « Pour être l'ami proche de Monsieur, ce nommé Situ doit lui aussi être un cultivateur. »
 
-Un sourire apparut sur les lèvres de Wang Lin lorsqu'il dit doucement : « C'est un cultivateur... un cultivateur qui veut devenir roi. Si vous voulez connaître son histoire, il faut commencer par un lieu appelé Suzaku et un pays de culture de rang trois nommé Zhao... »
+Un sourire apparut sur les lèvres de Wang Lin lorsqu'il dit doucement : « C'est un cultivateur... un cultivateur qui veut devenir roi. Si vous voulez connaître son histoire, il faut commencer par un lieu appelé Suzaku et un pays de cultivation de rang trois nommé Zhao... »
 
 La voix de Wang Lin résonna dans la tente. Le vieux général écoutait, la confusion grandissant dans ses yeux.
 

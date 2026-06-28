@@ -52,19 +52,19 @@ Wang Lin réfléchit silencieusement un instant et dit doucement : « J'ai mes p
 
 « Une grotte... » Situ Nan esquissa un sourire amer et baissa la tête. Il fixa la cruche de vin dans sa main et commença à murmurer.
 
-« Nous contemplons le ciel en voulant savoir ce qui se cache derrière lui... Lorsque nous atteignons un niveau de culture assez élevé pour dépasser les cieux et entrer dans l'espace, nous pensons que l'espace est la fin, sans imaginer que cet espace se trouve à l'intérieur d'une grotte... Wang Lin, si ce que tu dis est vrai, que comptes-tu faire... Je pense que tu as déjà ta réponse. »
+« Nous contemplons le ciel en voulant savoir ce qui se cache derrière lui... Lorsque nous atteignons un niveau de cultivation assez élevé pour dépasser les cieux et entrer dans l'espace, nous pensons que l'espace est la fin, sans imaginer que cet espace se trouve à l'intérieur d'une grotte... Wang Lin, si ce que tu dis est vrai, que comptes-tu faire... Je pense que tu as déjà ta réponse. »
 
 Wang Lin buvait du vin, mais il ne se sentait pas ivre. Le vin était comme la vie, laissant un goût âcre dans sa bouche. Plus de deux mille ans de son passé continuaient de défiler dans son esprit.
 
-« Ma culture a connu trois étapes. La première consistait à aider les autres... La deuxième fut celle de la confusion et de l'irritation ; j'aspirais à une vie mortelle...
+« Ma cultivation a connu trois étapes. La première consistait à aider les autres... La deuxième fut celle de la confusion et de l'irritation ; j'aspirais à une vie mortelle...
 
-Je pensais initialement passer le reste de mes jours dans cette deuxième étape, jusqu'à ce que mon niveau de culture soit assez élevé pour réveiller Wan Er. Nous aurions alors passé nos dernières années ensemble avant de fermer les yeux simultanément.
+Je pensais initialement passer le reste de mes jours dans cette deuxième étape, jusqu'à ce que mon niveau de cultivation soit assez élevé pour réveiller Wan Er. Nous aurions alors passé nos dernières années ensemble avant de fermer les yeux simultanément.
 
 Mais maintenant, la troisième étape est apparue... » Wang Lin posa la cruche et se leva, laissant le vent de la montagne fouetter ses cheveux blancs. Alors qu'il fixait le ciel, l'incertitude dans ses yeux fit place à un regard déterminé et inflexible.
 
-« J'ai cultivé toute ma vie, mais je ne l'ai jamais pleinement reconnu au fond de mon cœur. Mais aujourd'hui, moi, Wang Lin, j'entrerai dans la troisième étape de ma culture sur la planète Suzaku qui m'a vu naître. Je veux cultiver !
+« J'ai cultivé toute ma vie, mais je ne l'ai jamais pleinement reconnu au fond de mon cœur. Mais aujourd'hui, moi, Wang Lin, j'entrerai dans la troisième étape de ma cultivation sur la planète Suzaku qui m'a vu naître. Je veux cultiver !
 
-Situ, autrefois, j'étais lassé de la culture, mais après aujourd'hui, cette pensée ne germera plus jamais dans mon cœur. Je veux cultiver, je veux devenir plus fort, je veux quitter ce monde, je veux voir si les habitants du Continent Astral Immortel possèdent réellement trois têtes et six bras !
+Situ, autrefois, j'étais lassé de la cultivation, mais après aujourd'hui, cette pensée ne germera plus jamais dans mon cœur. Je veux cultiver, je veux devenir plus fort, je veux quitter ce monde, je veux voir si les habitants du Continent Astral Immortel possèdent réellement trois têtes et six bras !
 
 Même si je dois mourir et retourner à la poussière, qu'importe ! » Wang Lin agita la main droite, se pencha en arrière et vida la moitié d'une cruche de vin.
 
@@ -74,11 +74,11 @@ Il essuya le coin de sa bouche et éclata de rire.
 
 Le titre de Seigneur du Royaume Scellé m'appartient, mais il m'a été conféré par les autres parce que j'ai accompli certaines choses et parce que le Royaume Intérieur avait besoin d'un Seigneur ! Mais je ne suis pas véritablement qualifié pour ce titre !
 
-À l'origine, j'étais fatigué de la culture ; je cultivais pour les autres, alors comment pouvais-je porter l'honneur de Seigneur du Royaume Scellé ? L'homme que j'étais autrefois ne pouvait absolument pas assumer cette responsabilité.
+À l'origine, j'étais fatigué de la cultivation ; je cultivais pour les autres, alors comment pouvais-je porter l'honneur de Seigneur du Royaume Scellé ? L'homme que j'étais autrefois ne pouvait absolument pas assumer cette responsabilité.
 
 Avant, j'étais même assez naïf pour croire sincèrement que j'étais le Seigneur du Royaume Scellé. Je me suis battu corps et âme contre le Royaume Extérieur pour ma terre natale, pour le Royaume Intérieur... Je pensais que cela suffisait à justifier mon titre !
 
-Je n'avais jamais réalisé que tant d'autres faisaient la même chose. Presque tous les cultivateurs du Royaume Intérieur agissaient ainsi. J'avais simplement un niveau de culture plus élevé, ce qui m'a permis d'en arriver là...
+Je n'avais jamais réalisé que tant d'autres faisaient la même chose. Presque tous les cultivateurs du Royaume Intérieur agissaient ainsi. J'avais simplement un niveau de cultivation plus élevé, ce qui m'a permis d'en arriver là...
 
 Cependant, que vaut ma personne ? Pourquoi devrais-je recevoir le respect du Royaume Intérieur ? Ce que nous devons respecter, ce sont les cultivateurs tombés au combat. Ceux qui ont versé leur sang pour le Royaume Intérieur et qui sont morts !
 

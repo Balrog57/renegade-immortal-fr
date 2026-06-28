@@ -18,7 +18,7 @@ La sueur perlait sur son front et il hurla intérieurement : « Distorsion Spati
 
 La Distorsion Spatiale n'était pas un art connu de tous. Maîtriser la Distorsion Spatiale signifiait avoir la qualification pour être invincible parmi les cultivateurs de même niveau !
 
-« Le niveau de culture de cette personne est supérieur au mien et il connaît la Distorsion Spatiale. Cette bataille... » Le visage du vieil homme était pâle et la peur emplissait ses yeux.
+« Le niveau de cultivation de cette personne est supérieur au mien et il connaît la Distorsion Spatiale. Cette bataille... » Le visage du vieil homme était pâle et la peur emplissait ses yeux.
 
 Alors qu'il reculait, des ondulations apparurent à ses côtés et Wang Lin en sortit. La main droite de Wang Lin se serra en un poing et il lança un coup sans l'ombre d'une hésitation !
 
@@ -68,7 +68,7 @@ Cependant, il n'osait prendre ce risque, et il craignait encore plus Wang Lin po
 
 Le vieil homme sourit amèrement.
 
-C'était là le véritable dessein de Wang Lin. Après tout, son niveau de culture réel n'était que celui d'un stade intermédiaire avancé du Nirvana Scryer ; comment pouvait-il sceller un cultivateur Nirvana Cleanser ? Il ne pouvait compter que sur ses ruses !
+C'était là le véritable dessein de Wang Lin. Après tout, son niveau de cultivation réel n'était que celui d'un stade intermédiaire avancé du Nirvana Scryer ; comment pouvait-il sceller un cultivateur Nirvana Cleanser ? Il ne pouvait compter que sur ses ruses !
 
 Ce stratagème formait un sceau invisible qui, s'il était utilisé correctement, était plus puissant que n'importe quel sceau au monde !
 
@@ -76,7 +76,7 @@ Wang Lin dit calmement : « Si vous suivez mes ordres, je vous rendrai votre lib
 
 Chen Feng hocha la tête et ne perdit plus de temps en paroles avant de s'asseoir. À cet instant, son corps était extrêmement maigre, mais après avoir cultivé un moment, il reprit lentement du volume.
 
-« Sa méthode de culture est très étrange ! » Wang Lin détourna le regard. Il savait que Chen Feng cultivait pour lui montrer ses intentions. Chen Feng insinuait qu'il se préparerait pour la Terre des Esprits Démoniaques et qu'il travaillerait pour sa liberté.
+« Sa méthode de cultivation est très étrange ! » Wang Lin détourna le regard. Il savait que Chen Feng cultivait pour lui montrer ses intentions. Chen Feng insinuait qu'il se préparerait pour la Terre des Esprits Démoniaques et qu'il travaillerait pour sa liberté.
 
 « Avec l'aide de cet homme, mes chances dans la Terre des Esprits Démoniaques ont légèrement augmenté... Malheureusement, je n'ai toujours pas assez de monde... » Wang Lin soupira alors que Lei Ji fendait les étoiles.
 
@@ -84,9 +84,9 @@ Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue 
 
 « C'est la planète Esprit de l'Eau, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après un disciple du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
 
-Il avait été très troublé par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
+Il avait été très troublé par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de cultivation.
 
-« Les trois frères Chen ! » Wang Lin regarda la planète bleue, mais après réflexion, décida de passer son chemin. Bien que cette planète fût très propice à sa culture en isolation, il ne lui serait pas pratique de s'en emparer, car il connaissait les frères.
+« Les trois frères Chen ! » Wang Lin regarda la planète bleue, mais après réflexion, décida de passer son chemin. Bien que cette planète fût très propice à sa cultivation en isolation, il ne lui serait pas pratique de s'en emparer, car il connaissait les frères.
 
 Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la planète bleue. Ces trois faisceaux ressemblaient à trois dragons rugissants qui chargeaient vers l'extérieur.
 
@@ -122,7 +122,7 @@ L'esprit de Chen Feng trembla. Bien que la voix de Wang Lin fût calme, il y per
 
 Cette scène stupéfia une fois de plus les trois frères Chen.
 
-« Camarade cultivateur Maître Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma culture en isolation ! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
+« Camarade cultivateur Maître Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma cultivation en isolation ! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
 
 Le Maître Yi Chen rendit rapidement le geste, mais son cœur était sous le choc. Il ne s'attendait pas à ce que Chen Feng manifeste une telle peur par la simple parole de Wang Lin.
 

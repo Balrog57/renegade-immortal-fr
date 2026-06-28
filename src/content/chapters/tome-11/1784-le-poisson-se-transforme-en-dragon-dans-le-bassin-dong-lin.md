@@ -74,15 +74,15 @@ Cependant, il comprit que tout ceci n'était qu'une illusion. Le bassin Dong Lin
 
 Pourtant, cela donnait un espoir à Wang Lin ; cela lui faisait réaliser l'importance cruciale du bassin Dong Lin !
 
-« Si je peux atteindre le Continent Astral Immortel, je devrai me rendre au bassin Dong Lin ! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de culture avait décuplé !
+« Si je peux atteindre le Continent Astral Immortel, je devrai me rendre au bassin Dong Lin ! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de cultivation avait décuplé !
 
 Mais ce n'était pas terminé. Un changement encore plus stupéfiant survint alors qu'il ne restait que 20 % d'eau dans le bassin. Wang Lin n'avait pas seulement sept essences, il en possédait une huitième !
 
-Cette huitième essence était l'essence d'eau qu'il avait obtenue grâce à la formation sur la Planète des Cinq Éléments. Toutefois, elle n'était qu'à un stade de petite complétude et était loin d'être assez aboutie pour faire progresser sa culture.
+Cette huitième essence était l'essence d'eau qu'il avait obtenue grâce à la formation sur la Planète des Cinq Éléments. Toutefois, elle n'était qu'à un stade de petite complétude et était loin d'être assez aboutie pour faire progresser sa cultivation.
 
 Mais à cet instant précis, l'eau du bassin Dong Lin pénétra dans le corps de Wang Lin par ses pores et fusionna avec son essence d'eau. Le cœur de Wang Lin battait la chamade alors qu'il sentait cette huitième essence se renforcer rapidement. Lorsque le bassin fut totalement vidé, l'essence d'eau devint complète !
 
-Elle forma également un corps véritable d'essence. Ce dernier portait une tunique aux motifs d'ondes et son corps entier était cristallin comme de l'eau pure. Dès sa formation, le niveau de culture de Wang Lin, au stade avancé du Vide Spirituel, grimpa en flèche !
+Elle forma également un corps véritable d'essence. Ce dernier portait une tunique aux motifs d'ondes et son corps entier était cristallin comme de l'eau pure. Dès sa formation, le niveau de cultivation de Wang Lin, au stade avancé du Vide Spirituel, grimpa en flèche !
 
 En un instant, il atteignit le sommet du stade du Vide Spirituel, n'étant plus qu'à un pas du Vide Arcanique !
 
@@ -98,7 +98,7 @@ Au moment même où le monde s'écroulait, l'aura de l'une des huit portes augme
 
 C'était la vraie porte, celle qui menait au Continent Astral Immortel !
 
-Wang Lin leva soudainement les yeux. Alors que le Vieux Fantôme Zhan se rapprochait, Wang Lin bondit. Des craquements retentirent dans son corps. Bien que cette puissance et ce haut niveau de culture fussent illusoires, ils venaient d'ouvrir la voie à un avenir radieux pour lui !
+Wang Lin leva soudainement les yeux. Alors que le Vieux Fantôme Zhan se rapprochait, Wang Lin bondit. Des craquements retentirent dans son corps. Bien que cette puissance et ce haut niveau de cultivation fussent illusoires, ils venaient d'ouvrir la voie à un avenir radieux pour lui !
 
 Alors qu'il s'élançait, le monde se décomposait sous ses pas. Le monde des souvenirs de Seven-Colored s'effondrait, mais l'aura de la vraie porte devenait plus intense encore. Elle était juste devant lui !
 
@@ -108,7 +108,7 @@ En un seul pas, Wang Lin se retrouva devant la véritable porte !
 
 Cet endroit était autrefois une montagne depuis longtemps disparue. Ce qui occupait désormais sa place était une porte ! Cette porte dégageait une aura antique et était d'une dimension colossale. Wang Lin n'était qu'une fourmi face à elle !
 
-Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever la main droite. Toute sa puissance du Dao Antique et son niveau de culture se concentrèrent dans sa paume pour presser l'entrée.
+Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever la main droite. Toute sa puissance du Dao Antique et son niveau de cultivation se concentrèrent dans sa paume pour presser l'entrée.
 
 « Porte de la grotte, ouvre-toi ! » rugit Wang Lin, tandis que les huit corps véritables d'essence apparaissaient. Ils levèrent tous les mains et s'appuyèrent contre la porte.
 

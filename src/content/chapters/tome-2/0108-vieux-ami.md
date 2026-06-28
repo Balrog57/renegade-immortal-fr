@@ -62,6 +62,6 @@ Pourtant, il restait convaincu qu'un jour, il finirait par le dépasser, et apr�
 
 Mais à présent, il était stupéfait de constater que la différence entre eux était aussi vaste que celle entre le ciel et la terre. En seulement quelques années, Wang Lin avait déjà acquis la capacité de terrasser aisément des cultivateurs de l'Établissement des Fondations. Aux yeux de Li Shan, la progression de Wang Lin était tout simplement prodigieuse.
 
-En entendant les paroles de Wang Lin, les personnes alentour ne purent s'empêcher de songer à sa réputation dans la Vallée Jue Ming et à la facilité avec laquelle il venait d'éliminer ces cultivateurs de l'Établissement des Fondations. Leur sang ne fit qu'un tour. Après un long silence, un jeune homme vêtu de blanc soupira. Il regarda Wang Lin intensément et demanda : « Camarade cultivateur, pourriez-vous me dire quel est votre niveau de culture ? »
+En entendant les paroles de Wang Lin, les personnes alentour ne purent s'empêcher de songer à sa réputation dans la Vallée Jue Ming et à la facilité avec laquelle il venait d'éliminer ces cultivateurs de l'Établissement des Fondations. Leur sang ne fit qu'un tour. Après un long silence, un jeune homme vêtu de blanc soupira. Il regarda Wang Lin intensément et demanda : « Camarade cultivateur, pourriez-vous me dire quel est votre niveau de cultivation ? »
 
 Wang Lin répondit simplement : « Établissement des Fondations. »

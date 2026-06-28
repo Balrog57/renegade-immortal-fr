@@ -8,7 +8,7 @@ slug: lidentite-et-lorigine-de-la-statue-2
 ---
 « Outre la statue et l'esprit de bois ancestral, j'ai obtenu tous mes trésors auprès de ces têtes. Cependant, durant les cent années passées là-bas, je ne me suis aventuré que le long de la bordure extérieure. Je n'osais pas m'approcher des régions intérieures, je ne savais donc pas ce qui s'y trouvait.
 
-« Un jour, alors que je me déplaçais entre deux rochers, j'ai rencontré une multitude de fissures spatiales. Avec mon niveau de culture, j'en serais sans aucun doute mort ; je n'ai pu que battre en retraite et pénétrer dans les profondeurs de cet endroit.
+« Un jour, alors que je me déplaçais entre deux rochers, j'ai rencontré une multitude de fissures spatiales. Avec mon niveau de cultivation, j'en serais sans aucun doute mort ; je n'ai pu que battre en retraite et pénétrer dans les profondeurs de cet endroit.
 
 « Lorsque j'ai atteint la lisière du Royaume Intérieur, des rugissements lugubres ont retenti de toutes parts. Cela fit trembler mon corps, un tremblement qui émanait de mon âme même.
 
@@ -50,7 +50,7 @@ Les yeux de Greed étaient emplis d'une peur persistante, mêlée à un sentimen
 
 « C'est la deuxième fois qu'il me dépouille de tous mes trésors ! Je jure que je ne laisserai jamais cela arriver une troisième fois ! La plupart de mes richesses ont été prises, rester dans les Terres Déchues est trop dangereux. Je dois vite retourner dans ma grotte pour récupérer ce qui reste et fuir ! » Greed se sentait profondément lésé et, après s'être téléporté d'innombrables fois pour s'assurer que Wang Lin ne le suivait pas, il disparut.
 
-Lorsqu'il réapparut, il se trouvait sur une planète de culture. Dès son retour, il fonça vers une montagne et agita la main en atteignant la bordure extérieure. La montagne trembla et une fine fissure s'ouvrit.
+Lorsqu'il réapparut, il se trouvait sur une planète de cultivation. Dès son retour, il fonça vers une montagne et agita la main en atteignant la bordure extérieure. La montagne trembla et une fine fissure s'ouvrit.
 
 Greed n'hésita pas à entrer, mais dès qu'il le fit, son corps frémit. Une odeur fétide s'échappa de la fissure et lui frappa le visage. L'odeur était si pestilentielle qu'il faillit s'évanouir.
 
@@ -76,13 +76,13 @@ Les membres du Clan des Scorpions Noirs qui s'étaient dispersés furent respect
 
 Deux cultivatrices du Clan de l'Évasion Nuageuse massaient les épaules de Zhong Big Red. Se sentant très à son aise, il déclara avec arrogance : « Je vous l'avais bien dit ! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru ! À quoi servent vos yeux ?! »
 
-« Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de culture, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis ! » Zhong Big Red leva le menton et les réprimanda avec dédain.
+« Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de cultivation, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis ! » Zhong Big Red leva le menton et les réprimanda avec dédain.
 
 Les cultivateurs de l'Évasion Nuageuse acquiescèrent tous. Même les plus hautains n'osaient plus rien répliquer alors que tout leur clan risquait la destruction.
 
 Le patriarche et les anciens de l'Évasion Nuageuse se tenaient respectueusement aux côtés de Zhong Big Red, affichant des sourires flatteurs et hochant la tête sans cesse.
 
-« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur ; il aurait pu tuer Zhong Big Red d'un seul doigt, mais il devait désormais le servir avec les plus grands égards.
+« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de cultivation était nettement supérieur ; il aurait pu tuer Zhong Big Red d'un seul doigt, mais il devait désormais le servir avec les plus grands égards.
 
 Zhong Big Red savourait le massage des cultivatrices. Il laissa échapper un reniflement et dit fièrement : « Puisque vous reconnaissez votre erreur, je devrais vous donner une chance de vous repentir, mais... »
 
@@ -94,7 +94,7 @@ Zhong Big Red la saisit et l'examina. La joie illumina ses yeux lorsqu'il la ran
 
 À cet instant précis, des ondulations se propagèrent dans le ciel et Wang Lin en sortit. Dès qu'il apparut, l'expression de Zhong Big Red changea radicalement et il se redressa brusquement. Craignant d'être trop lent, il repoussa les cultivatrices qui l'entouraient, affichant un visage empreint de flatterie.
 
-« Bienvenue, Maître, pour votre retour triomphal ! Maître, Big Red ne vous a pas vu depuis si longtemps que je me sentais perdu. Même pendant ma culture, je ne parviens pas à trouver le calme sans réciter le nom du Maître cent fois. Et même ainsi, cela ne compare en rien au manque que ce petit éprouve en votre absence.
+« Bienvenue, Maître, pour votre retour triomphal ! Maître, Big Red ne vous a pas vu depuis si longtemps que je me sentais perdu. Même pendant ma cultivation, je ne parviens pas à trouver le calme sans réciter le nom du Maître cent fois. Et même ainsi, cela ne compare en rien au manque que ce petit éprouve en votre absence.
 
 « Ce n'est qu'en voyant le Maître et en étant à ses côtés que ce petit peut enfin trouver la paix. » Zhong Big Red s'avança rapidement en utilisant son art invincible. Simultanément, il veillait scrupuleusement à ne pas trop exagérer pour ne pas irriter Wang Lin.
 

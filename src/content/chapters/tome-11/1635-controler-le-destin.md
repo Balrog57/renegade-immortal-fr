@@ -50,7 +50,7 @@ Debout près du neuvième soleil, Wang Lin se calma et ferma les yeux. Il resta 
 
 « Ce neuvième soleil, la neuvième divine rétribution, l'origine même de la rétribution divine... Elle contient le destin de tous les êtres sensibles des Royaumes Intérieur et Extérieur. Cette neuvième divine rétribution était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
 
-En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette divine rétribution et, avec son niveau de culture actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel ; il avait été créé par l'homme aux sept couleurs.
+En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette divine rétribution et, avec son niveau de cultivation actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel ; il avait été créé par l'homme aux sept couleurs.
 
 Tout en méditant, Wang Lin leva la main droite et pressa le neuvième soleil. Son Sens Divin se propagea à travers sa main et s'engouffra dans le neuvième soleil telle une tempête.
 

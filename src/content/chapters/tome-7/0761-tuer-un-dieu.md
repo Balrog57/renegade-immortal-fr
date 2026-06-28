@@ -44,7 +44,7 @@ Il ne chercha plus à jouer au jeu de stratégie avec l'Ancêtre Sanguin. Ce der
 
 Après avoir lancé la matrice de transfert, Wang Lin recula rapidement vers le vide, près du fragment.
 
-Il se déplaçait avec une vitesse fulgurante, utilisant manifestement toute sa puissance de culture.
+Il se déplaçait avec une vitesse fulgurante, utilisant manifestement toute sa puissance de cultivation.
 
 « Ancêtre Sanguin, je vous ai donné une chance. La suite des événements ne dépend plus de moi, mais de vous... Si vous me croyez, entrez d'abord pour prouver votre sincérité et la véracité de votre promesse ! Alors, je serai sincère à mon tour. Puisque vous me croyez, je vous croirai ! »
 

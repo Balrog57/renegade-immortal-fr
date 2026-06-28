@@ -6,9 +6,9 @@ bookTitle: The Mediocre Youth
 en: The Path of Immortals
 slug: culture
 ---
-Après avoir attendu un moment dans le jardin, l'Ancien Sun revint, le visage sombre et empreint de colère. Plus tôt, lorsqu'il avait discuté de cette affaire avec le patriarche, certains de ses frères de discipline s'étaient moqués de lui. Il pensa : « Attendez que je récupère toutes les gourdes et que je crée une pilule immortelle qui augmentera considérablement ma culture. Nous verrons bien qui rira alors. »
+Après avoir attendu un moment dans le jardin, l'Ancien Sun revint, le visage sombre et empreint de colère. Plus tôt, lorsqu'il avait discuté de cette affaire avec le patriarche, certains de ses frères de discipline s'étaient moqués de lui. Il pensa : « Attendez que je récupère toutes les gourdes et que je crée une pilule immortelle qui augmentera considérablement ma cultivation. Nous verrons bien qui rira alors. »
 
-En entrant dans le jardin, l'Ancien Sun aperçut Wang Lin et lâcha d'un ton bourru : « Wang Lin, à partir d'aujourd'hui, tu es le disciple de Sun Dazhu. Tu devras cultiver avec assiduité pour ne pas déshonorer le nom de ton maître. » Il lança une petite bourse et ajouta : « Ceci est ton insigne de disciple interne. Elle sert également de sac de rangement et peut contenir de nombreux objets. Tes vêtements ainsi que les instructions relatives à ta méthode de culture y sont conservés. Vérifie par toi-même. »
+En entrant dans le jardin, l'Ancien Sun aperçut Wang Lin et lâcha d'un ton bourru : « Wang Lin, à partir d'aujourd'hui, tu es le disciple de Sun Dazhu. Tu devras cultiver avec assiduité pour ne pas déshonorer le nom de ton maître. » Il lança une petite bourse et ajouta : « Ceci est ton insigne de disciple interne. Elle sert également de sac de rangement et peut contenir de nombreux objets. Tes vêtements ainsi que les instructions relatives à ta méthode de cultivation y sont conservés. Vérifie par toi-même. »
 
 Wang Lin se précipita pour la ramasser, le cœur battant d'excitation, l'esprit habité par les attentes de ses parents. Cette fois, il appela Sun Dazhu « Maître » de tout son cœur.
 
@@ -24,11 +24,11 @@ La petite bourse grise ne semblait pas extraordinaire. Wang Lin la retourna au-d
 
 Le visage de Wang Lin s'illumina. Il saisit le livret et l'ouvrit avec enthousiasme. Sur la première page était inscrit : « Les trois étapes de la Condensation de Qi ».
 
-Il lut jusqu'à minuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis une meilleure compréhension de la culture. Ce livret détaillait les trois premières étapes de la concentration du Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
+Il lut jusqu'à minuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis une meilleure compréhension de la cultivation. Ce livret détaillait les trois premières étapes de la concentration du Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
 
 La prétendue Condensation de Qi consistait à absorber l'énergie spirituelle du ciel et de la terre pour transformer le corps et bâtir les fondations de l'avenir.
 
-C'était également un test de talent naturel. Plus l'individu était doué, plus il pouvait absorber rapidement l'énergie spirituelle en lui. Naturellement, sa vitesse de culture serait fulgurante ; cependant, si le talent d'un homme était médiocre, il se pourrait qu'il n'atteigne jamais la troisième étape de sa vie. Certains ne parviennent même pas à franchir la première.
+C'était également un test de talent naturel. Plus l'individu était doué, plus il pouvait absorber rapidement l'énergie spirituelle en lui. Naturellement, sa vitesse de cultivation serait fulgurante ; cependant, si le talent d'un homme était médiocre, il se pourrait qu'il n'atteigne jamais la troisième étape de sa vie. Certains ne parviennent même pas à franchir la première.
 
 Le livret des « Trois étapes de Condensation de Qi » devint le trésor de Wang Lin. Il mémorisa immédiatement la méthode des trois premières couches. Assis en tailleur, les yeux clos, il commença à respirer selon la technique de « une longue inspiration pour trois courtes » décrite dans l'ouvrage. Une longue inspiration consistait à prendre une grande bouffée d'air, tandis que les trois courtes étaient des inspirations ne représentant qu'un tiers de la durée d'une respiration normale. Cette méthode de respiration inhabituelle permettait d'absorber rapidement l'énergie spirituelle dans le corps.
 

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1424 - Dream Dao Plants Inner Demon
 slug: le-dao-des-reves-seme-un-demon-interieur
 ---
-Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Sundered Night était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait utiliser ce sort sans consumer sa propre énergie d'origine.
+Wang Lin n'avait créé que trois sorts en deux mille ans de cultivation. Sundered Night était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait utiliser ce sort sans consumer sa propre énergie d'origine.
 
-Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Sundered Night par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
+Même avec le niveau de cultivation actuel de Wang Lin, s'il voulait utiliser Sundered Night par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
 
 Quant à Flowing Time, bien qu'elle fût inférieure à Sundered Night en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible ; il est comparable aux cieux.
 

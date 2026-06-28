@@ -46,7 +46,7 @@ Debout devant l'édifice, la confusion de Wang Lin s'intensifia. Après un long 
 
 Il entendit vaguement le cri d'un nouveau-né, le soupir d'un vieillard mourant et une multitude de bruits chaotiques. Ces cris et ces murmures lointains lui donnèrent l'impression d'être au cœur d'une immense cité mortelle, percevant tous les sons de la ville simultanément !
 
-Finalement, ce tumulte infini se mua en un bourdonnement assourdissant qui résonna dans son cœur et ses oreilles. Le visage de Wang Lin pâlit instantanément. Même avec son niveau de culture actuel, il montrait des signes d'incapacité à supporter une telle charge. C'était comme si tout son corps allait s'effondrer s'il persistait.
+Finalement, ce tumulte infini se mua en un bourdonnement assourdissant qui résonna dans son cœur et ses oreilles. Le visage de Wang Lin pâlit instantanément. Même avec son niveau de cultivation actuel, il montrait des signes d'incapacité à supporter une telle charge. C'était comme si tout son corps allait s'effondrer s'il persistait.
 
 Alors qu'il était sur le point de succomber, un cri aigu de nourrisson résonna dans son cœur. Cela le tira de sa torpeur, le forçant à reculer de plus de dix pas. Son visage était livide. Son esprit trembla. Il jeta un dernier regard vers la tour avant de faire volte-face et de s'envoler au loin. Un instant plus tard, grâce à son lien spirituel, il retrouva l'âme de Wang Ping ainsi que celle de sa femme.
 

@@ -62,9 +62,9 @@ Toutefois, la condition était d'y parvenir avant que le Vieux Fantôme Zhan ne 
 
 Wang Lin prit une grande inspiration et n'hésita plus. Il chargea vers la montagne effondrée. À l'instant où il disparut, le ciel gronda et la silhouette du Vieux Fantôme Zhan apparut dans les airs !
 
-Une lumière aux sept couleurs enveloppait son corps ; il avait dévoré le Daoïste aux Sept Couleurs. Bien que les deux âmes n'eussent pas fusionné, les bénéfices étaient immenses, lui permettant d'exploiter encore davantage sa culture !
+Une lumière aux sept couleurs enveloppait son corps ; il avait dévoré le Daoïste aux Sept Couleurs. Bien que les deux âmes n'eussent pas fusionné, les bénéfices étaient immenses, lui permettant d'exploiter encore davantage sa cultivation !
 
-Il différait également du Daoïste aux Sept Couleurs : il était l'âme du Souverain Céleste aux Sept Couleurs alliée au Vieux Fantôme Zhan. Le Vieux Fantôme Zhan possédait déjà un haut niveau de culture, et en obtenant le Dao du Souverain Céleste, son niveau devint infiniment proche de celui du Souverain Céleste des temps anciens après avoir dévoré le Daoïste !
+Il différait également du Daoïste aux Sept Couleurs : il était l'âme du Souverain Céleste aux Sept Couleurs alliée au Vieux Fantôme Zhan. Le Vieux Fantôme Zhan possédait déjà un haut niveau de cultivation, et en obtenant le Dao du Souverain Céleste, son niveau devint infiniment proche de celui du Souverain Céleste des temps anciens après avoir dévoré le Daoïste !
 
 « Vous n'êtes que des fourmis, écartez-vous de mon chemin ! » La voix du Vieux Fantôme Zhan tonna, se propageant à travers toute la couche. La terre s'effondra et le ciel sembla se déchirer.
 

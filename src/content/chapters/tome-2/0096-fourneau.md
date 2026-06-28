@@ -24,7 +24,7 @@ Ye Zi écouta en silence, sans dire un mot. Une fois le récit terminé, il soup
 
 « Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zi déploya son sens divin et fut stupéfait. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte des Cadavres ; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zi comprit l'intention de Wu Yu.
 
-C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une courte réflexion, il saisit parfaitement les intentions de Wu Yu : le corps d'Adai était fait pour pratiquer les méthodes de culture de la Secte des Cadavres.
+C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une courte réflexion, il saisit parfaitement les intentions de Wu Yu : le corps d'Adai était fait pour pratiquer les méthodes de cultivation de la Secte des Cadavres.
 
 Une fois son regard détourné, Ye Zi demanda lentement à Wang Lin : « Est-ce lui, Adai, qui a accompagné mon frère cadet durant toutes ces années ? »
 
@@ -42,7 +42,7 @@ Sur ces mots, il agita la main droite et lança un jade bleu foncé. Puis, il sa
 
 Wang Lin récupéra le jade. Il l'examina avec son sens divin et son expression devint étrange.
 
-Il ne contenait que quelques techniques simples, sans trace de la méthode de culture de la Secte des Cadavres. C'était sans doute par prudence de la part de Ye Zi, Wang Lin n'en tint pas compte.
+Il ne contenait que quelques techniques simples, sans trace de la méthode de cultivation de la Secte des Cadavres. C'était sans doute par prudence de la part de Ye Zi, Wang Lin n'en tint pas compte.
 
 Alors qu'il étudiait le jade, Mu Rong surgit d'une des grottes. Constatant que Ye Zi était parti, il vola vers Wang Lin et s'apprêtait à parler lorsqu'il remarqua le jade dans la main du jeune homme. Choqué, il recula précipitamment en disant : « Le disciple Mu Rong salue l'Ancêtre. »
 
@@ -66,13 +66,13 @@ Mu Rong s'élança vers l'une des grottes. Wang Lin sauta à son tour pour le su
 
 Les deux progressèrent rapidement à travers les cavernes tandis que Mu Rong expliquait le fonctionnement de la secte à Wang Lin. Grâce aux explications du jeune homme, Wang Lin commença à comprendre la nature de cet ordre.
 
-La Secte des Cadavres était l'une des quatre sectes démoniaques de Zhao. Elle comptait plus d'un millier de disciples qui vivaient tous sous terre. Chacun disposait de sa propre salle de culture. À l'exception de quelques disciples chargés de faire les courses, tout le monde restait enfermé pour cultiver.
+La Secte des Cadavres était l'une des quatre sectes démoniaques de Zhao. Elle comptait plus d'un millier de disciples qui vivaient tous sous terre. Chacun disposait de sa propre salle de cultivation. À l'exception de quelques disciples chargés de faire les courses, tout le monde restait enfermé pour cultiver.
 
-Bien qu'on les qualifie de secte démoniaque, ce terme n'était pas aussi frappant que la flamme démoniaque de la Secte Tian Dao, l'énergie Yin maléfique de la Secte He Huan ou l'aura meurtrière de la Vallée Wu Feng. Malgré leurs marionnettes de cadavres, les membres de cette secte n'étaient en réalité que des maniaques de la culture.
+Bien qu'on les qualifie de secte démoniaque, ce terme n'était pas aussi frappant que la flamme démoniaque de la Secte Tian Dao, l'énergie Yin maléfique de la Secte He Huan ou l'aura meurtrière de la Vallée Wu Feng. Malgré leurs marionnettes de cadavres, les membres de cette secte n'étaient en réalité que des maniaques de la cultivation.
 
 Chaque disciple cultivait avec une ferveur obsessionnelle, contraint par les exigences cruelles de la secte. Si l'on n'atteignait pas le 10ème niveau de Condensation de Qi en 10 ans, l'Établissement des Fondations en 30 ans, ou la Formation du Noyau en 100 ans, on était transformé en marionnette de cadavre.
 
-Ce système impitoyable agissait comme un fouet, poussant les disciples à une culture frénétique. Chaque année, plusieurs d'entre eux étaient ainsi raffinés en marionnettes, sous le regard de tous leurs pairs. De même, chaque année, des disciples étaient envoyés pour trouver des mortels compatibles afin de remplacer ceux qui avaient péri.
+Ce système impitoyable agissait comme un fouet, poussant les disciples à une cultivation frénétique. Chaque année, plusieurs d'entre eux étaient ainsi raffinés en marionnettes, sous le regard de tous leurs pairs. De même, chaque année, des disciples étaient envoyés pour trouver des mortels compatibles afin de remplacer ceux qui avaient péri.
 
 Ce n'était pas que les disciples ne souhaitaient pas se rebeller, mais tous les membres acceptés voyaient une partie de leur âme extraite et scellée dans un jade. Ces jades étaient divisés en quatre rangs : le jade vert du Premier Ancêtre pouvait contrôler n'importe quel disciple ; le jade bleu foncé des Ancêtres avait un effet similaire, tout comme le jade bleu clair des Anciens.
 

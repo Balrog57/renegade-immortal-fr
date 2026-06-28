@@ -34,7 +34,7 @@ Les chevaux s'arrêtèrent devant la cour. L'homme en armure saisit le vieil hom
 
 Alors que tout le monde était sous tension, la porte de la maison s'ouvrit. Une vieille femme aux cheveux blancs sortit, soutenue par deux servantes.
 
-« Aujourd'hui, je vous ai tous réunis car ce vieux corps sait qu'il ne vivra pas plus de sept jours, et j'en suis inquiète. Cependant, en dehors de moi, il n'y a plus de cultivateurs dans la famille Sun, ce qui nous épargne la cruauté du monde de la culture. Rappelez-vous tous que les générations futures ne doivent pas cultiver. Profiter des richesses du monde mortel est le meilleur choix.
+« Aujourd'hui, je vous ai tous réunis car ce vieux corps sait qu'il ne vivra pas plus de sept jours, et j'en suis inquiète. Cependant, en dehors de moi, il n'y a plus de cultivateurs dans la famille Sun, ce qui nous épargne la cruauté du monde de la cultivation. Rappelez-vous tous que les générations futures ne doivent pas cultiver. Profiter des richesses du monde mortel est le meilleur choix.
 
 « Gravez mes paroles dans vos mémoires ! » Tandis que la vieille femme toussait, ses yeux s'illuminèrent alors qu'elle balayait ses descendants du regard.
 
@@ -58,7 +58,7 @@ Wang Lin observa la cour qui s'offrait à lui. Alors qu'il déployait son Sens D
 
 À l'époque, cette personne le réprimandait sévèrement chaque fois qu'il retournait dans sa grotte pour cultiver correctement afin qu'il puisse, un jour, atteindre le Dao.
 
-Wang Lin percevait que chacune de ses paroles était sincère. C'était un sentiment unique dans ce monde cruel de la culture. Cela fit naître une sensation de chaleur au fond du cœur de Wang Lin.
+Wang Lin percevait que chacune de ses paroles était sincère. C'était un sentiment unique dans ce monde cruel de la cultivation. Cela fit naître une sensation de chaleur au fond du cœur de Wang Lin.
 
 C'est pour cette raison qu'il se souvenait encore d'elle.
 
@@ -78,7 +78,7 @@ La vieille femme fut stupéfaite en entendant la voix de Wang Lin. Elle se retou
 
 « Xu Mu... » La vieille femme regarda Wang Lin et, après un long moment, elle sourit.
 
-« Quand es-tu revenu... ? » La vieille femme ne perdit pas la raison comme le Maître Étincelle ou ses semblables ; elle retrouva vite ses esprits. Bien que sa longévité fût bien inférieure à celle du Maître Étincelle et son niveau de culture bien plus bas, avec seulement sept jours à vivre, elle avait déjà tout compris. Désormais, elle ne ressentait que la joie de retrouver un vieil ami.
+« Quand es-tu revenu... ? » La vieille femme ne perdit pas la raison comme le Maître Étincelle ou ses semblables ; elle retrouva vite ses esprits. Bien que sa longévité fût bien inférieure à celle du Maître Étincelle et son niveau de cultivation bien plus bas, avec seulement sept jours à vivre, elle avait déjà tout compris. Désormais, elle ne ressentait que la joie de retrouver un vieil ami.
 
 « Je viens juste de revenir. Je passais par là et je voulais voir s'il restait encore des vieux amis. » Wang Lin s'assit en face de la vieille femme. Il la regarda comme on regarde un compagnon de longue date.
 
@@ -108,7 +108,7 @@ La lumière matinale se répandit sur la terre, chassant la froideur de la nuit.
 
 Des feuilles jaunes, rouges et fanées volaient dans le vent. Le spectacle était magnifique.
 
-Wang Lin gravit lentement la plus haute montagne de cette planète. Il n'utilisa aucune technique de culture et grimpa tel un mortel.
+Wang Lin gravit lentement la plus haute montagne de cette planète. Il n'utilisa aucune technique de cultivation et grimpa tel un mortel.
 
 Tout comme lorsqu'il avait emmené Wang Ping conquérir cette montagne !
 

@@ -48,7 +48,7 @@ Instantanément, les neuf montagnes se mirent à s'effondrer et à entrer en ér
 
 Tandis que les montagnes s'effondraient, Wang Lin sortit lentement de la brume. Il fixa l'ancien démon, dont le regard était empreint de désespoir et d'amertume.
 
-« Rien de tout ceci ne provient de votre propre force. C'est simplement l'esprit de Qing Lin qui coopère avec vous et lui qui vous transmet un héritage vous permettant d'atteindre ce niveau de culture temporaire ! Si nous étions à l'extérieur et non dans cette mer de conscience, ce démon pourrait vous tuer aussi facilement qu'il écrase une fourmi ! »
+« Rien de tout ceci ne provient de votre propre force. C'est simplement l'esprit de Qing Lin qui coopère avec vous et lui qui vous transmet un héritage vous permettant d'atteindre ce niveau de cultivation temporaire ! Si nous étions à l'extérieur et non dans cette mer de conscience, ce démon pourrait vous tuer aussi facilement qu'il écrase une fourmi ! »
 
 « Je refuse de céder ! Je ne veux pas abandonner ! Ah ! » Ta Jia poussa un rugissement, sentant un froid glacial envahir son cœur. Il n'aurait jamais imaginé que le plan de Qing Lin ne consistait pas à trouver un puissant protecteur, mais à absorber son sauveteur dans sa propre mer de conscience !
 
@@ -58,7 +58,7 @@ Pourtant, il avait utilisé l'âme d'autrui et n'avait pas hésité à transmett
 
 Toutefois, l'Ancien Démon Ta Jia savait que tout cela était éphémère. Après tout, les âmes sont distinctes, et on ne peut contraindre la mer de conscience d'autrui indéfiniment. Le déclin de Wang Lin ne tarderait pas.
 
-Une fois qu'ils quitteraient la mer de conscience de Qing Lin, Wang Lin serait ramené à son niveau de culture originel. Mais à quoi bon le savoir ? L'Ancien Démon Ta Jia n'avait plus beaucoup de temps à vivre.
+Une fois qu'ils quitteraient la mer de conscience de Qing Lin, Wang Lin serait ramené à son niveau de cultivation originel. Mais à quoi bon le savoir ? L'Ancien Démon Ta Jia n'avait plus beaucoup de temps à vivre.
 
 « Qing Lin, tu as gagné ! » Ta Jia esquissa un sourire amer, bientôt remplacé par une expression féroce.
 
@@ -74,7 +74,7 @@ Tous leurs regards convergeaient vers Wang Lin. Cette scène était si étrange 
 
 Les yeux de Wang Lin, eux, restaient d'une clarté cristalline.
 
-« Tu as commencé ta culture à l'âge de 15 ans et tu as cultivé pendant plus de mille ans... Pourtant, tu étais un esprit malfaisant, et marcher sur le chemin du Dao signifiait détruire tes proches. Ton père et ta mère sont morts et ta famille a failli être anéantie. Bien que quelques-uns aient survécu, ils sont la proie d'une calamité constante ! » Alors que ce son résonnait dans le ciel, les yeux ne furent plus confus, mais empreints d'une douleur déchirante.
+« Tu as commencé ta cultivation à l'âge de 15 ans et tu as cultivé pendant plus de mille ans... Pourtant, tu étais un esprit malfaisant, et marcher sur le chemin du Dao signifiait détruire tes proches. Ton père et ta mère sont morts et ta famille a failli être anéantie. Bien que quelques-uns aient survécu, ils sont la proie d'une calamité constante ! » Alors que ce son résonnait dans le ciel, les yeux ne furent plus confus, mais empreints d'une douleur déchirante.
 
 Le corps de Wang Lin trembla légèrement, mais son regard resta limpide.
 

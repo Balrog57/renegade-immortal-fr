@@ -28,7 +28,7 @@ Cependant, le vieux Hu commençait à regretter sa décision. Son expression s'a
 
 Le vieux Hu se tourna vers la femme au voile blanc à ses côtés : « Zi Xin, es-tu certaine que l'Arbre de Réincarnation se trouve au troisième étage ? »
 
-La femme au voile blanc hocha la tête et murmura : « Je me souviens clairement qu'en mon temps, lorsque mon père m'y avait emmenée, j'avais vu un Arbre de Réincarnation fané. Cependant, sa culture n'était pas assez puissante, alors nous étions repartis. »
+La femme au voile blanc hocha la tête et murmura : « Je me souviens clairement qu'en mon temps, lorsque mon père m'y avait emmenée, j'avais vu un Arbre de Réincarnation fané. Cependant, sa cultivation n'était pas assez puissante, alors nous étions repartis. »
 
 Le vieux Hu réfléchit. Le troisième étage n'était pas excessivement dangereux. Tout devrait bien se passer tant qu'ils ne tentaient pas d'atteindre le quatrième. De plus, l'Arbre de Réincarnation étant fané, il n'y aurait probablement aucun sauvage pour le garder.
 

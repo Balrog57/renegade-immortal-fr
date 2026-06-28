@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 757 - Beast Bones
 slug: os-de-betes
 ---
-Les yeux de Li Yuan brillaient d'admiration ; il était stupéfait par l'audace de Wang Lin. Après tout, la différence de niveaux de culture était absolument abyssale. Si cela avait été quelqu'un d'autre, même Li Yuan lui-même, sa première pensée aurait été de s'enfuir.
+Les yeux de Li Yuan brillaient d'admiration ; il était stupéfait par l'audace de Wang Lin. Après tout, la différence de niveaux de cultivation était absolument abyssale. Si cela avait été quelqu'un d'autre, même Li Yuan lui-même, sa première pensée aurait été de s'enfuir.
 
 Même si cela signifiait fuir jusqu'aux confins du monde ou se terrer dans des contrées reculées pendant des centaines, voire des milliers d'années. Tant qu'ils pouvaient échapper à ce puissant cultivateur, l'effort en vaudrait la peine.
 
@@ -114,7 +114,7 @@ Wang Lin n'avait pu atteindre cette distance qu'en empruntant la force du garde 
 
 Son corps flascha en rouge sang, sa célérité augmentant encore. Il brilla une seconde fois, devenant plus rapide encore. En un clin d'œil, son corps émit neuf éclats de lumière rouge, atteignant une vitesse comparable à la téléportation.
 
-Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait le sommet du stade tardif de l'Ascendant, sous peine de voir son corps exploser.
+Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa cultivation atteignait le sommet du stade tardif de l'Ascendant, sous peine de voir son corps exploser.
 
 En un instant, la silhouette de Wang Lin apparut à l'entrée de la seconde vallée. Le visage pâle, il faillit s'effondrer. D'un geste de la main droite, il fit revenir l'Écran des Montagnes et des Rivières.
 

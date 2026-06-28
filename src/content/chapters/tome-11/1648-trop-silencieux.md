@@ -72,13 +72,13 @@ Wang Lin ne ralentissait pas. Aucun cultivateur du Royaume Extérieur qu'il croi
 
 Beaucoup de gens ne réalisaient qu'ils étaient morts qu'une fois leur tête tranchée et entre les mains de Wang Lin. Dans ce monde, bien que Wang Lin ne soit pas forcément celui qui avait tué le plus grand nombre d'êtres, il en avait tout de même tué énormément.
 
-Lui-même ne pouvait plus compter précisément ses victimes. Pour survivre dans un monde aussi tourmenté, dans un monde de culture cruel régi par la loi de la jungle, s'il ne voulait pas être tué, il devait tuer !
+Lui-même ne pouvait plus compter précisément ses victimes. Pour survivre dans un monde aussi tourmenté, dans un monde de cultivation cruel régi par la loi de la jungle, s'il ne voulait pas être tué, il devait tuer !
 
-Au plus profond du Brilliant Void, deux cultivateurs du Royaume Extérieur fuyaient avec anxiété. Ils se ressemblaient étrangement ; c'étaient des jumeaux, une rareté dans le monde de la culture.
+Au plus profond du Brilliant Void, deux cultivateurs du Royaume Extérieur fuyaient avec anxiété. Ils se ressemblaient étrangement ; c'étaient des jumeaux, une rareté dans le monde de la cultivation.
 
 Ces deux-là jouissaient d'une certaine renommée dans le Système Stellaire Antique. Ils attaquaient toujours de concert et se connaissaient parfaitement. Bien qu'ils n'en fussent qu'au second Fléau Céleste, même des cultivateurs du troisième niveau auraient dû battre en retraite dans un état pitoyable face à eux.
 
-Ces deux frères étaient cruels et, après avoir pénétré le Royaume Intérieur, ils avaient massacré de nombreux cultivateurs locaux. Ils avaient un penchant particulier : celui d'abuser et de tuer ceux dont le niveau de culture était inférieur au leur.
+Ces deux frères étaient cruels et, après avoir pénétré le Royaume Intérieur, ils avaient massacré de nombreux cultivateurs locaux. Ils avaient un penchant particulier : celui d'abuser et de tuer ceux dont le niveau de cultivation était inférieur au leur.
 
 Pourtant, à cet instant, ils fuyaient comme des chiens errants. Ils sentaient une aura terrifiante les traquer à distance. Peu importait leurs efforts pour se cacher, ils ne pouvaient échapper à cette pression.
 

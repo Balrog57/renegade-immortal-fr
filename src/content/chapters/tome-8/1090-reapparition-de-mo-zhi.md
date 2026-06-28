@@ -10,7 +10,7 @@ Depuis la fondation des Quatre Sectes Divins, l'apparition d'un nouvel Empereur 
 
 Bien que le Royaume Céleste fût souverain, à l'apogée des Quatre Sectes Divins, alors que les quatre Empereurs Divins étaient présents, même le Royaume Céleste de la Pluie devait leur témoigner un grand respect. Chaque fois qu'un nouvel Empereur Divin émergeait, le Royaume Céleste envoyait des cadeaux de félicitations.
 
-À cette époque, l'Alliance de Culture n'existait pas encore ; il n'y avait que le Royaume du Vide Brillant. Pour être plus précis, le Royaume du Vide Brillant était un vassal du Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
+À cette époque, l'Alliance de Cultivation n'existait pas encore ; il n'y avait que le Royaume du Vide Brillant. Pour être plus précis, le Royaume du Vide Brillant était un vassal du Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
 
 Cependant, en raison de la puissance des Quatre Sectes Divins et d'autres raisons particulières, le Royaume Céleste avait permis aux Quatre Sectes Divins et au Royaume du Vide Brillant de coexister.
 
@@ -26,7 +26,7 @@ Au moins cent palais formaient ainsi une armée imposante, progressant vers les 
 
 Malgré leur nombre, aucun bruit ne se faisait entendre, si ce n'est le sifflement des épées volantes. Après des années de combat, les cultivateurs d'Allheaven avaient changé ; leur immaturité avait laissé place à une aura de meurtre féroce.
 
-À cet instant, les fluctuations de l'énergie originelle se propagèrent et passèrent près d'eux. Cependant, compte tenu de leur niveau de culture, il leur était très difficile de percevoir ces subtils changements énergétiques.
+À cet instant, les fluctuations de l'énergie originelle se propagèrent et passèrent près d'eux. Cependant, compte tenu de leur niveau de cultivation, il leur était très difficile de percevoir ces subtils changements énergétiques.
 
 Pourtant, à l'intérieur d'un palais situé à l'arrière, dont la taille avoisinait dix fois celle des autres, Maître Flamespark ouvrit soudainement les yeux alors qu'il était en méditation assidue.
 
@@ -38,7 +38,7 @@ L'un des anciens déclara d'une voix lente : « Cette fluctuation de l'énergie 
 
 Maître Flamespark réfléchit et secoua la tête. « Cette fluctuation n'est pas la naissance d'un trésor puissant... La région orientale appartient aux Quatre Sectes Divins... Serait-ce possible... qu'un nouvel Empereur Divin soit apparu ? » Les yeux de Maître Flamespark s'illuminèrent. Il n'en était pas tout à fait certain ; après tout, il avait quitté l'Alliance depuis longtemps.
 
-« Les Quatre Sectes Divins ? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée d'Allheaven ! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
+« Les Quatre Sectes Divins ? Si l'Alliance de Cultivation n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée d'Allheaven ! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
 
 Maître Flamesspark regarda le vieillard roux et dit : « Les Quatre Sectes Divins ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel ! »
 
@@ -52,7 +52,7 @@ Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable
 
 Dans la partie sud de l'Alliance, au plus profond du Secte des Cadavres, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
 
-Une multitude de cercueils remplissaient cette zone, formant une sorte de toile. Des planètes de culture avaient été déplacées ici par quelque sort inconnu et gravitaient autour de ces cercueils.
+Une multitude de cercueils remplissaient cette zone, formant une sorte de toile. Des planètes de cultivation avaient été déplacées ici par quelque sort inconnu et gravitaient autour de ces cercueils.
 
 À cet instant, l'onde d'énergie originelle passa. Un léger son de surprise émana du cercueil central.
 
@@ -60,7 +60,7 @@ Une multitude de cercueils remplissaient cette zone, formant une sorte de toile.
 
 Alors que sa voix résonnait, on entendit le bruit de griffes grattant les couvercles des cercueils. Ce son était tel qu'on aurait dit que quelqu'un vous déchirait le cœur ; des fissures apparurent même dans l'espace environnant.
 
-Les quatre grandes puissances des forces restantes de l'Alliance ressentirent également cette fluctuation. La plus puissante d'entre elles, le pays de culture de rang 8 de Chu Yu, contrôlait des dizaines de planètes disposées selon une formation.
+Les quatre grandes puissances des forces restantes de l'Alliance ressentirent également cette fluctuation. La plus puissante d'entre elles, le pays de cultivation de rang 8 de Chu Yu, contrôlait des dizaines de planètes disposées selon une formation.
 
 Le Secte Chu Yun occupait la planète principale et régnait en maître sur le pays de Chu Yun.
 
@@ -114,10 +114,10 @@ Il percevait une aura très diffuse émanant de cette pierre... une aura similai
 
 Cependant, l'excitation et le soulagement dans ses yeux lui permettaient d'oublier la douleur. Lorsqu'il parvint à se lever, il fit un signe de la main à Wang Lin, le visage empreint de bonté.
 
-Wang Lin marcha aux côtés du vieil Empereur Divin tout en réfléchissant. Le vieillard posa une main sur la tête de Wang Lin et dit doucement : « À partir d'aujourd'hui, tu es le nouvel Empereur Divin ! Va rencontrer les membres de ton clan... Je vais entreprendre ma dernière culture de ma vie. Reviens me voir dans sept jours. »
+Wang Lin marcha aux côtés du vieil Empereur Divin tout en réfléchissant. Le vieillard posa une main sur la tête de Wang Lin et dit doucement : « À partir d'aujourd'hui, tu es le nouvel Empereur Divin ! Va rencontrer les membres de ton clan... Je vais entreprendre ma dernière cultivation de ma vie. Reviens me voir dans sept jours. »
 
 Wang Lin regarda le vieil Empereur Divin. Il ouvrit la bouche pour dire quelque chose, mais finit par se taire et hocha la tête. Il lança un regard chargé de sens au vieillard avant de se retourner et de s'éloigner.
 
 L'armure rouge, la cape blanche, les cheveux blancs et le tatouage blanc du Vermillion Bird conféraient à Wang Lin un tempérament unique. Il disparut lentement à l'horizon.
 
-Le vieil homme ferma les yeux et commença sa culture.
+Le vieil homme ferma les yeux et commença sa cultivation.

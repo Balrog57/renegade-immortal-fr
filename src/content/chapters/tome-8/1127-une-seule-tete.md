@@ -68,7 +68,7 @@ Ces lames tombèrent sur le Ji Qiong telle une pluie d'acier, portées par la pu
 
 Une lueur froide apparut dans les yeux de Wang Lin. Le Ji Qiong nourrissait l'intention de le tuer ; de son côté, Wang Lin éprouvait également une intention meurtrière envers ce Ji Qiong qui refusait de céder !
 
-Cependant, avec son niveau de culture actuel, il serait trop difficile d'éliminer le Ji Qiong ! Sans sa vitesse, la créature l'aurait déjà rattrapé pour le dévorer.
+Cependant, avec son niveau de cultivation actuel, il serait trop difficile d'éliminer le Ji Qiong ! Sans sa vitesse, la créature l'aurait déjà rattrapé pour le dévorer.
 
 Bien qu'il ne fût ici que par son avatar et que sa mort n'affecterait guère son corps original, il était venu tester la force de Tuo Sen ; il n'était donc pas disposé à accepter la mort ici.
 

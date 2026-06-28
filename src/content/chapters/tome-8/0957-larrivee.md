@@ -14,7 +14,7 @@ Au-dessus de la place du Secte du Destin Céleste, Bai Wei contemplait le ciel a
 
 « Wang Lin… Même si tu n'es pas mort durant toutes ces années, tu n'as sûrement pas beaucoup progressé. Je me demande seulement à quel point tu seras plus faible que moi, Zhao Xingsha ! »
 
-Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Illusoire Yin !
+Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La cultivation de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Illusoire Yin !
 
 « Zhao Xingsha est devenu l'un des sept véritables disciples du Tout-Voyant il y a trente ans. Il entretient une querelle avec Wang Lin ; lorsqu'ils se rencontreront, il lui sera difficile de contenir son intention meurtrière. »
 
@@ -50,7 +50,7 @@ Quant au vieil homme en robe noire et blanche assis sur une gourde, il laissa é
 
 « La marque de l'Oiseau Vermillon ! » La femme d'âge moyen fut surprise et scruta attentivement Wang Lin.
 
-Si ces vieux monstres étaient ainsi affectés, il n'était pas nécessaire de mentionner les cultivateurs environnants. Beaucoup d'entre eux ne pouvaient percevoir le niveau de culture de Wang Lin, mais ils ressentaient tous une pression émanant de son corps. La femme en rose observa Wang Lin avec ses beaux yeux, laissant transparaître une pointe d'intérêt.
+Si ces vieux monstres étaient ainsi affectés, il n'était pas nécessaire de mentionner les cultivateurs environnants. Beaucoup d'entre eux ne pouvaient percevoir le niveau de cultivation de Wang Lin, mais ils ressentaient tous une pression émanant de son corps. La femme en rose observa Wang Lin avec ses beaux yeux, laissant transparaître une pointe d'intérêt.
 
 Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang Lin apparut, et les réactions de chacun furent captées par son regard. Il tapota ses vêtements, regarda calmement le Tout-Voyant, puis joignit les mains et dit respectueusement : « Le disciple Wang Lin salue Maître ! »
 

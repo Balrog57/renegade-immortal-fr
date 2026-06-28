@@ -16,7 +16,7 @@ Finalement, après un fracas retentissant, le filament se brisa et une puissante
 
 Une fois l'odeur dissipée, Wang Lin pénétra rapidement dans le trou qu'il avait creusé. À cet instant, le corps du serpent plus petit situé à l'intérieur de la grande créature commença à rétrécir. Wang Lin pressentait que cette créature ne serait pas vaincue si facilement. Si le grand serpent contenait un serpent plus petit, ce dernier pourrait-il en contenir un autre à son tour ?
 
-Plus important encore, Hunchback Meng avait affirmé que ce serpent était une bête désolée, ce qui équivalait à un cultivateur au stade avancé de la Formation de l'Âme. Il faut dire que les cultivateurs au sommet du stade avancé de la Formation de l'Âme étaient les êtres les plus puissants des pays de culture de rang 4.
+Plus important encore, Hunchback Meng avait affirmé que ce serpent était une bête désolée, ce qui équivalait à un cultivateur au stade avancé de la Formation de l'Âme. Il faut dire que les cultivateurs au sommet du stade avancé de la Formation de l'Âme étaient les êtres les plus puissants des pays de cultivation de rang 4.
 
 À moins que l'Empereur Céleste et les autres ne soient également au sommet de ce stade, ils ne pourraient pas l'abattre. D'après les paroles précédentes de Hunchback Meng, Wang Lin pensait qu'aucun d'entre eux n'atteignait ce niveau ; au mieux, ils étaient au milieu du stade.
 

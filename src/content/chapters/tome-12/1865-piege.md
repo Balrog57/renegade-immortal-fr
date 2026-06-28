@@ -68,7 +68,7 @@ Ce rocher abritait d'innombrables espaces. À cet instant, dans l'un d'eux, une 
 
 Xu Decai était tombé dans l'espace intérieur de la Pierre Spatiale préparée par Wang Lin. Lorsqu'il apparut, son cœur trembla : il comprit qu'il venait de tomber dans le piège de Wang Lin.
 
-Cependant, sa culture étant élevée, il ne laissa paraître aucune panique. Il leva les yeux et vit un ciel bleu et un soleil doré, mais la terre était imprégnée d'une aura de mort. Au loin se dressait un volcan, tandis que dans une autre direction s'étendait une mer de tonnerre.
+Cependant, sa cultivation étant élevée, il ne laissa paraître aucune panique. Il leva les yeux et vit un ciel bleu et un soleil doré, mais la terre était imprégnée d'une aura de mort. Au loin se dressait un volcan, tandis que dans une autre direction s'étendait une mer de tonnerre.
 
 Des nuages sombres parsemaient l'azur et une neige noire tombait. Cette neige tombait depuis un temps indéterminé, recouvrant le sol de multiples couches.
 

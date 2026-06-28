@@ -10,7 +10,7 @@ La vieille femme en vert n'offrit aucune explication ; elle fit simplement un pa
 
 Cependant, son expression retrouva aussitôt son calme. Il eut un ricanement méprisant et serra plus fermement le flacon de jade. S'il avait pu le placer dans son espace de stockage, il l'aurait déjà mis en sécurité.
 
-Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture pour tenter de quitter les lieux. Bien que le sortilège ancestral Ying Yang l'ait surpris, il était confiant quant à sa fuite.
+Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante cultivation pour tenter de quitter les lieux. Bien que le sortilège ancestral Ying Yang l'ait surpris, il était confiant quant à sa fuite.
 
 À cet instant, sa main gauche s'élança vers le vide et une lumière dorée apparut. Cette clarté se mua en des dizaines de milliers d'épées volantes qui, d'un geste de son doigt, foncèrent sur la vieille femme en vert.
 
@@ -38,7 +38,7 @@ Une femme encore plus âgée émergea des ondulations. Elle semblait sortir tout
 
 Ses yeux brillaient d'une lueur spectrale tandis que du sang s'écoulait du coin de sa bouche. D'un revers de main, elle brisa la pluie d'épées dorées et saisit la petite silhouette. Après l'avoir scellée, elle poursuivit Maître Ashen Pine à travers les ondulations.
 
-Le visage de Maître Ashen Pine était blême. Il n'avait pas imaginé que la vieille femme en vert aurait si parfaitement dissimulé son niveau de culture pour lui lancer une attaque surprise. Le sort de cette dernière contenait également un poison étrange qui tentait de se propager dans tout son corps, mais il parvint à le supprimer par la force.
+Le visage de Maître Ashen Pine était blême. Il n'avait pas imaginé que la vieille femme en vert aurait si parfaitement dissimulé son niveau de cultivation pour lui lancer une attaque surprise. Le sort de cette dernière contenait également un poison étrange qui tentait de se propager dans tout son corps, mais il parvint à le supprimer par la force.
 
 « Tant que je parviens à sortir de cette fissure, le temps ne sera plus un obstacle. Avec mes nombreux trésors magiques, cette vieille femme ne fera pas le poids ! »
 

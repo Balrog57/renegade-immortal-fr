@@ -58,7 +58,7 @@ Wang Lin sourit sans rien ajouter. « Si le Senior Maître Flamespark est intér
 
 Li Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'impression de ne plus pouvoir percer l'âme de l'homme devant lui. Il poussa un soupir et partit précipitamment.
 
-« Les biens de ma famille Zhan ne doivent pas tomber entre les mains d'étrangers... Wang Lin, un jour, je les reprendrai. Si je ne te tue pas, alors je ne suis pas Li Yunzi ! » Li Yunzi quitta la planète de culture et s'élança dans les airs à toute allure.
+« Les biens de ma famille Zhan ne doivent pas tomber entre les mains d'étrangers... Wang Lin, un jour, je les reprendrai. Si je ne te tue pas, alors je ne suis pas Li Yunzi ! » Li Yunzi quitta la planète de cultivation et s'élança dans les airs à toute allure.
 
 « Cependant, ce jade laissé par Wang Lin est une affaire qui pourrait ébranler le ciel. Je dois l'apporter au Maître Flamespark au plus vite ! Si cela est vrai, c'est absolument terrifiant ! » Li Yunzi était déterminé. Chaque instant passé sur place lui était une humiliation suprême.
 
@@ -70,7 +70,7 @@ Quelques jours plus tard, après avoir quitté la région Est contrôlée par le
 
 Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
 
-L'expression de Li Yunzi changea radicalement ; il voulut esquiver, mais son niveau de culture ne lui permit pas d'échapper à l'attaque imminente. Le rayon perça sa poitrine.
+L'expression de Li Yunzi changea radicalement ; il voulut esquiver, mais son niveau de cultivation ne lui permit pas d'échapper à l'attaque imminente. Le rayon perça sa poitrine.
 
 Li Yunzi n'eut même pas le temps de déployer un sort ou un trésor.
 

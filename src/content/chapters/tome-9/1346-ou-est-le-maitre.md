@@ -12,7 +12,7 @@ Chapitre 1346 - Où est le Maître ?
 
 Xu Liguo s'était métamorphosé en une brume noire et fuyait à toute allure. Il tenait une femme magnifique dont le visage affichait un rictus méprisant. Son propre visage était empreint de panique et de malice tandis qu'il poussait des rugissements continus.
 
-Les yeux de la superbe femme étaient emplis de dédain lorsqu'elle lança froidement : « Tu ne peux pas t'échapper. Dès que tu m'as capturée, tu as déclenché une immense calamité ! Ce n'est qu'un simple Ancien et tu prends déjà la fuite ? Il ne faudra pas longtemps avant que mon père ne sorte de sa culture en isolement pour te raffiner en une âme de tonnerre, afin que tu sois tourmenté pendant des milliers d'années pour apaiser la haine dans mon cœur ! »
+Les yeux de la superbe femme étaient emplis de dédain lorsqu'elle lança froidement : « Tu ne peux pas t'échapper. Dès que tu m'as capturée, tu as déclenché une immense calamité ! Ce n'est qu'un simple Ancien et tu prends déjà la fuite ? Il ne faudra pas longtemps avant que mon père ne sorte de sa cultivation en isolement pour te raffiner en une âme de tonnerre, afin que tu sois tourmenté pendant des milliers d'années pour apaiser la haine dans mon cœur ! »
 
 Xu Liguo émergea de la brume, lui asséna une gifle et hurla avec colère : « Ferme-la ! Qu'est-ce que ton Grand-père Xu n'a pas vu ou vécu ? Qu'est-ce que cela représente ?! »
 

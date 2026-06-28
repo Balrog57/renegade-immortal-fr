@@ -22,7 +22,7 @@ Wang Lin savait que son domaine de karma avait atteint le stade de la petite per
 
 S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine et, une fois celle-ci passée, atteindre le stade initial de Nirvana Scryer !
 
-« La seconde étape de la culture comprend les stades Nirvana Scryer, Nirvana Cleanser et Nirvana Shatterer... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
+« La seconde étape de la cultivation comprend les stades Nirvana Scryer, Nirvana Cleanser et Nirvana Shatterer... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
 
 « Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes... ? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et sa main droite contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrange beauté !
 
@@ -52,7 +52,7 @@ Il grimpa étape par étape. Même lorsque ses genoux se brisèrent et que le sa
 
 Le visage du vieil homme Xie était marqué par l'amertume, mais ses yeux brillaient d'un éclat nouveau.
 
-« Les humains sont les poissons, les cieux sont l'eau, le dao est le filet, et le filet est le Créateur ! » Ce jour-là, il atteignit enfin le sommet. Là, il vit un homme en pleine culture, dont le regard semblait contenir l'univers entier.
+« Les humains sont les poissons, les cieux sont l'eau, le dao est le filet, et le filet est le Créateur ! » Ce jour-là, il atteignit enfin le sommet. Là, il vit un homme en pleine cultivation, dont le regard semblait contenir l'univers entier.
 
 Bien que le vieil homme Xie fût épuisé et que le sang sur ses genoux ait coagulé, cet instant fut pour lui comme un coup de tonnerre. Un rugissement retentit dans son corps, lui donnant l'impression que son âme quittait son enveloppe charnelle. Pendant un instant, il crut voir une image yin et yang en noir et blanc. Il s'agenouilla immédiatement, tel un adorateur.
 
@@ -60,7 +60,7 @@ Bien que le vieil homme Xie fût épuisé et que le sang sur ses genoux ait coag
 
 Wang Lin observa calmement le vieil homme Xie et réfléchit un instant. Cet homme était un mortel honoré sur la planète Qing Ling. Ils différaient des autres mortels par leur possession d'un cœur dao. Bien que ce fût une chose évanescente, elle existait bel et bien.
 
-Cela ne signifiait pas pour autant que ces personnes étaient aptes à cultiver le dao. En réalité, les enfants à l'esprit pur étaient bien mieux dotés. Il se trouvait qu'une fois leur dao accompli, même si leur niveau de culture restait modeste, leur compréhension du dao était d'une profondeur telle qu'ils pouvaient progresser bien plus loin sur la voie future.
+Cela ne signifiait pas pour autant que ces personnes étaient aptes à cultiver le dao. En réalité, les enfants à l'esprit pur étaient bien mieux dotés. Il se trouvait qu'une fois leur dao accompli, même si leur niveau de cultivation restait modeste, leur compréhension du dao était d'une profondeur telle qu'ils pouvaient progresser bien plus loin sur la voie future.
 
 Cependant, son corps était déjà vieux et ne pouvait supporter la force de l'énergie spirituelle. Il lui serait difficile de cultiver le dao !
 
@@ -88,7 +88,7 @@ Wang Lin ne quitta pas immédiatement la planète Qing Ling, mais partit à la r
 
 Wang Lin reprit sa route, plongé dans ses pensées.
 
-Tout en survolant l'espace, Wang Lin ne se fondait pas dans le monde. Il déployait son sens divin, cherchant un lieu idéal pour sa culture.
+Tout en survolant l'espace, Wang Lin ne se fondait pas dans le monde. Il déployait son sens divin, cherchant un lieu idéal pour sa cultivation.
 
 Quelques jours plus tard, les yeux de Wang Lin se plissèrent et il fonça vers une planète jaune. C'était une planète désolée, presque dépourvue d'énergie spirituelle. Wang Lin traversa l'atmosphère et atterrit à la surface.
 

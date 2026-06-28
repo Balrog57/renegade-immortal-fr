@@ -12,9 +12,9 @@ Les Cinq Esprits Élémentaires n'étaient pas au stade avancé de la Formation 
 
 Plus le Papillon Rouge était puissante, plus les Cinq Esprits Élémentaires étaient forts.
 
-Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître du Papillon Rouge avait sacrifié sa propre culture pour obtenir un indice : le Papillon Rouge possédait le Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
+Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître du Papillon Rouge avait sacrifié sa propre cultivation pour obtenir un indice : le Papillon Rouge possédait le Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
 
-Cependant, bien que son maître ait payé le prix de sa culture, elle n'avait tout de même pas pu prédire la nature de cette épreuve.
+Cependant, bien que son maître ait payé le prix de sa cultivation, elle n'avait tout de même pas pu prédire la nature de cette épreuve.
 
 Après un certain temps, cette question fut mise de côté, mais une petite partie du cœur de chacun restait dans l'attente de cette épreuve.
 

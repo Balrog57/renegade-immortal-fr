@@ -8,7 +8,7 @@ slug: le-choix-de-chi-hu
 ---
 La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instantanément après avoir entendu ces mots. Il regarda les membres de son clan qui portaient chacun une marque claire et sombre sur le front.
 
-Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spirituelle. Il était évident que leur culture avait déjà été scellée.
+Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spirituelle. Il était évident que leur cultivation avait déjà été scellée.
 
 Ces plus de cent membres du clan affichaient tous des expressions amères, mêlées de choc. Bien qu'ils en aient déjà été informés, le subir eux-mêmes leur laissait un goût de défaite bien amer.
 

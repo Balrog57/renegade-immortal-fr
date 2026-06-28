@@ -10,7 +10,7 @@ Wang Lin saisit l'or sur la table et le jeta négligemment dans un petit panier 
 
 Quant aux sculptures du magasin, hormis celles de ses parents et de ses proches, il ne s'en souciait absolument pas. À ses yeux, ces objets n'étaient que des outils. Des outils destinés à l'aider à apaiser son cœur et à comprendre les lois célestes.
 
-Il était convaincu que le jour où il parviendrait à sculpter la statue d'un cultivateur du niveau de Formation de l'Âme ou d'une bête spirituelle, sa culture connaîtra une percée.
+Il était convaincu que le jour où il parviendrait à sculpter la statue d'un cultivateur du niveau de Formation de l'Âme ou d'une bête spirituelle, sa cultivation connaîtra une percée.
 
 Da Niu quitta la boutique, l'esprit ailleurs. En marchant, il ne cessait de marmonner pour lui-même, mais nul ne savait ce qui occupait ses pensées.
 
@@ -30,7 +30,7 @@ Il ferma les yeux pour méditer. Soudain, une substance rouge d'environ une paum
 
 Cette substance était l'aura maléfique que Wang Lin avait condensée durant l'année écoulée. Il était très satisfait du résultat. En réalité, il n'avait pas forcé cette condensation ; elle s'était produite naturellement au gré de ses activités.
 
-Wang Lin pensait qu'en seulement un an supplémentaire, il serait capable de comprimer cette aura maléfique jusqu'à son paroxysme. Bien que se débarrasser de cette aura n'augmenterait pas son niveau de culture.
+Wang Lin pensait qu'en seulement un an supplémentaire, il serait capable de comprimer cette aura maléfique jusqu'à son paroxysme. Bien que se débarrasser de cette aura n'augmenterait pas son niveau de cultivation.
 
 Cependant, Wang Lin était convaincu que s'il laissait cette aura disparaître simplement, il le regretterait plus tard. C'était l'instinct d'un cultivateur qui pressent qu'il pourrait avoir besoin de ressources à l'avenir qui avait poussé Wang Lin à condenser cette essence maléfique.
 
@@ -72,7 +72,7 @@ Sur ce, il frappa un sac d'apparence usée accroché à sa taille. Soudain, une 
 
 Les yeux de Xu Tao furent irrésistiblement attirés. Il déglutit difficilement et détourna le regard, n'osant pas insister.
 
-Le jeune homme n'était pas un mortel, mais un cultivateur ; cependant, son niveau de culture n'était guère élevé. Il n'était qu'au 8ème étage de la Condensation de Qi.
+Le jeune homme n'était pas un mortel, mais un cultivateur ; cependant, son niveau de cultivation n'était guère élevé. Il n'était qu'au 8ème étage de la Condensation de Qi.
 
 Il remarqua le regard de Xu Tao et rit : « Mei Ji, sors. Aujourd'hui, tu appartiens à Xu Tao. »
 
@@ -108,17 +108,17 @@ Le cultivateur en vert eut un sourire désabusé. Il était habitué aux excentr
 
 L'homme d'âge moyen fixa la sculpture et sourit : « Deux anciens immortels, y a-t-il quelque chose de spécial dans cette œuvre ? »
 
-Le cultivateur en vert s'approcha pour saisir l'objet. Soudain, une aura ancestrale le percuta. Cette aura était si puissante qu'elle le glaça d'effroi. Avec sa culture au stade intermédiaire de l'Établissement des Fondations, il eut l'impression que ses fondations allaient s'effondrer. Horrifié, il lâcha brusquement la sculpture.
+Le cultivateur en vert s'approcha pour saisir l'objet. Soudain, une aura ancestrale le percuta. Cette aura était si puissante qu'elle le glaça d'effroi. Avec sa cultivation au stade intermédiaire de l'Établissement des Fondations, il eut l'impression que ses fondations allaient s'effondrer. Horrifié, il lâcha brusquement la sculpture.
 
 Son frère aîné fit un mouvement de manche et la sculpture vola vers sa main. Le visage du cultivateur en vert pâlit instantanément alors que son noyau devenait instable. Il lui fallut un long moment avant de parvenir à maîtriser les fluctuations de son noyau.
 
-Plus le niveau de culture est élevé, plus l'effet de la sculpture de Wang Lin est violent ; pour un mortel, l'impact reste minime.
+Plus le niveau de cultivation est élevé, plus l'effet de la sculpture de Wang Lin est violent ; pour un mortel, l'impact reste minime.
 
 L'homme en noir dit d'une voix calme : « Cet objet n'est pas une sculpture ordinaire. La créature représentée est presque identique au dragon mentionné dans les anciens registres de notre secte. »
 
 Le cultivateur en vert demanda, avec une expression étrange : « Frère aîné, ne veniez-vous pas de dire que vous ne l'aviez jamais vue ? Comment pouvez-vous affirmer qu'il s'agit d'un dragon maintenant ? »
 
-Le cultivateur en noir regarda son cadet avec étonnement. Ses yeux brillaient de surprise lorsqu'il répondit : « Jeune frère, je comprends enfin pourquoi ta culture ne progresse pas... »
+Le cultivateur en noir regarda son cadet avec étonnement. Ses yeux brillaient de surprise lorsqu'il répondit : « Jeune frère, je comprends enfin pourquoi ta cultivation ne progresse pas... »
 
 Le visage du cultivateur en vert se crispa, mais il garda le silence.
 

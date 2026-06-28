@@ -8,7 +8,7 @@ slug: la-mort-de-lancetre
 ---
 Chapitre 402 - La mort de l'ancêtre !
 
-L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'étendard des milliards d'âmes que même les cultivateurs Ascendants redoutaient ? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
+L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'étendard des milliards d'âmes que même les cultivateurs Ascendants redoutaient ? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de cultivation actuel ne lui permettait pas d'en déchaîner toute la puissance.
 
 Ses yeux s'illuminèrent ; dans un rugissement, il projeta la hache vers Wang Lin.
 
@@ -94,7 +94,7 @@ La boussole perdant son effet dans le ciel, Wang Lin en descendit et la rangea.
 
 Il se déplaça ensuite avec la rapidité de l'éclair. Il disparut dès qu'il fit un mouvement, et lorsqu'il réapparut, il se trouvait déjà à cinq mille kilomètres de là.
 
-L'énergie spirituelle ici était bien plus faible que sur la planète Suzaku, et très impure, la rendant inapte à la culture.
+L'énergie spirituelle ici était bien plus faible que sur la planète Suzaku, et très impure, la rendant inapte à la cultivation.
 
 Wang Lin se déplaçait comme s'il connaissait parfaitement les lieux. Après une journée, il atteignit une haute montagne. Un scan de son sens divin lui permit de détecter un réseau de transfert au sommet.
 
@@ -106,7 +106,7 @@ Lorsqu'il avait été téléporté depuis le Royaume Céleste, il était apparu 
 
 Le corps originel s'enfonça dans le sol.
 
-Cette planète ne faisant qu'un dixième de la taille de Suzaku, le corps d'un ancien dieu à trois étoiles permettait à Wang Lin de supporter la pression du noyau. Il s'assit au milieu du magma et commença sa culture.
+Cette planète ne faisant qu'un dixième de la taille de Suzaku, le corps d'un ancien dieu à trois étoiles permettait à Wang Lin de supporter la pression du noyau. Il s'assit au milieu du magma et commença sa cultivation.
 
 Wang Lin frappa son sac de rangement et un rayon de lumière rouge en jaillit, se transformant en une hache géante devant lui.
 
@@ -136,6 +136,6 @@ En tenant la bouteille, il se souvint soudainement : lors de l'extermination de 
 
 « Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu ! » Les yeux de Wang Lin s'illuminèrent.
 
-« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre culture. À l'époque, je n'avais obtenu que l'héritage des connaissances et non celui du pouvoir ; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine ! »
+« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre cultivation. À l'époque, je n'avais obtenu que l'héritage des connaissances et non celui du pouvoir ; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine ! »
 
 Wang Lin prit une profonde inspiration et rangea soigneusement la petite bouteille dans son sac de rangement.

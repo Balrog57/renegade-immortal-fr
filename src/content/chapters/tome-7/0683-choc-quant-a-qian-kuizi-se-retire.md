@@ -28,7 +28,7 @@ Wang Lin vit également Qian Kuizi. Ses pupilles se rétractèrent légèrement 
 
 « Voyageur, arrête-toi ! » La voix de Qian Kuizi était faible au début, mais elle résonna comme un sortilège qui se propagea rapidement tel un coup de tonnerre. Le regard de Wang Lin devint glacial alors qu'il fixait Qian Kuizi.
 
-« Des paroles chargées de lois ! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de culture de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du gardien céleste, il pouvait aisément déduire que cet homme se trouvait au stade Illusoire Yin de l'étape Yin et Yang.
+« Des paroles chargées de lois ! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de cultivation de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du gardien céleste, il pouvait aisément déduire que cet homme se trouvait au stade Illusoire Yin de l'étape Yin et Yang.
 
 « Bien que la marionnette du gardien céleste soit également au stade Illusoire Yin, elle ne peut rivaliser avec un véritable cultivateur à ce niveau. » Wang Lin connaissait la faiblesse du gardien céleste. Toutefois, en raison des sorts qui lui étaient propres, il n'en demeurait pas moins puissant.
 
@@ -38,7 +38,7 @@ Debout sur sa boussole stellaire, Wang Lin fixa l'homme et répondit froidement 
 
 « À un si jeune âge, tu parles déjà d'anéantir une famille. Tes aînés ne t'ont donc rien enseigné ? Dis-moi le nom de ton aîné, il est peut-être une connaissance de la mienne et tu pourras ainsi éviter d'être tué ! » Qian Kuizi observa attentivement Wang Lin.
 
-À ses yeux, cet enfant n'avait rien d'extraordinaire. Son niveau de culture était également très bas, ne dépassant même pas le stade intermédiaire de l'Ascendant. Mais lorsque le regard de Qian Kuizi tomba sur l'ombre sous les pieds de Wang Lin, ses yeux se plissèrent.
+À ses yeux, cet enfant n'avait rien d'extraordinaire. Son niveau de cultivation était également très bas, ne dépassant même pas le stade intermédiaire de l'Ascendant. Mais lorsque le regard de Qian Kuizi tomba sur l'ombre sous les pieds de Wang Lin, ses yeux se plissèrent.
 
 « Une marionnette Illusoire Yin !!! » Bien que son expression fût calme, Qian Kuizi eut un haut-le-cœur intérieur.
 
@@ -86,7 +86,7 @@ Le visage de Qian Kuizi était pâle lorsqu'il dit rapidement : « Jeune ami, pa
 
 Il pouvait provoquer n'importe quelle famille du Système Stellaire d'Allheaven, mais il n'oserait jamais provoquer le Temple Céleste du Tonnerre. Il n'osait même pas leur témoigner la moindre marque d'irrespect. Pour lui, les trois mots « Temple Céleste du Tonnerre » désignaient une existence intouchable.
 
-À l'origine, compte tenu de son niveau de culture et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Céleste du Tonnerre. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre !
+À l'origine, compte tenu de son niveau de cultivation et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Céleste du Tonnerre. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre !
 
 Seul le Temple Céleste du Tonnerre possédait des Bêtes du Tonnerre ; c'était une loi quasi immuable ! De même, une Bête du Tonnerre était le symbole d'un messager du Temple Céleste du Tonnerre !
 
@@ -94,7 +94,7 @@ Qian Kuizi cultivait depuis dix mille ans, mais il n'avait jamais entendu parler
 
 L'expression de Wang Lin ne changea pas. Il fixa Qian Kuizi et demanda calmement : « Un malentendu ? »
 
-Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Normalement, il ne tenait ce langage que face à quelqu'un de son propre rang.
+Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa cultivation, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Normalement, il ne tenait ce langage que face à quelqu'un de son propre rang.
 
 Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un membre du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Illusoire Yin pour le protéger.
 

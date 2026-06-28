@@ -24,7 +24,7 @@ Li Qianmei ne partit pas et s'assit suite à l'invitation de Wang Shanshan. Dès
 
 Les deux femmes se croisèrent un instant, Wang Shanshan faisant office d'intermédiaire. Alors que Wang Shanshan tentait de les présenter, elle fut soudain prise d'un frisson. Elle recula légèrement pour qu'aucun obstacle ne vienne entraver leurs regards.
 
-Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale : « Dame Li est bel et bien un génie ; votre culture est extraordinaire. »
+Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale : « Dame Li est bel et bien un génie ; votre cultivation est extraordinaire. »
 
 Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Lorsqu'elle soutint son regard, Li Qianmei répondit doucement : « En termes de beauté, je ne peux vraiment pas rivaliser avec la Compagnonne Cultivatrice Mu. »
 
@@ -32,7 +32,7 @@ Les membres du Sect Everlasting étaient de plus en plus exaltés par la compét
 
 La lutte entre les deux sectes de rang 6 n'avait plus d'intérêt, mais une personne se leva, tout comme Lu Yuncong l'avait fait autrefois !
 
-Il s'agissait de Yuan Fei, le disciple principal du Sect Giant Spirit. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Nirvana Shatterer. Il était extrêmement féroce ; ceux qui l'affrontaient finissaient souvent gravement blessés.
+Il s'agissait de Yuan Fei, le disciple principal du Sect Giant Spirit. Toujours plongé dans une cultivation en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Nirvana Shatterer. Il était extrêmement féroce ; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
 Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, le Sect Celestial Music n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
 

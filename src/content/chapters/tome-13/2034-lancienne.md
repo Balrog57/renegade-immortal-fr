@@ -58,7 +58,7 @@ En voyant la vieille femme, Song Zhi parut terrifiée. Wang Lin resserra sa pris
 
 La vieille femme regarda Wang Lin et dit d'une voix rauque : « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent ! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais de l'Ancient Dao est un endroit où l'on vient et part comme bon nous semble ?! » L'aura de mort émanant de son corps sembla s'intensifier.
 
-Elle poursuivit d'une voix sombre : « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Ancient Dao, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation ; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance ! »
+Elle poursuivit d'une voix sombre : « Ma cultivation n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Ancient Dao, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation ; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance ! »
 
 L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentua.
 
@@ -76,7 +76,7 @@ Ce soupir atteignit les oreilles de la vieille femme, faisant trembler ses mains
 
 La vieille femme resta silencieuse un instant avant de regarder Xuan Luo. Ses yeux ternes reflétaient une émotion trouble lorsqu'elle dit d'une voix rauque : « Il a été autrefois ton disciple. »
 
-« Je sais que tu aimais Ye Dao. Lorsqu'il était enfant, il s'était introduit par inadvertance dans ton lieu de culture en isolement, et tu as cru qu'un destin vous liait...
+« Je sais que tu aimais Ye Dao. Lorsqu'il était enfant, il s'était introduit par inadvertance dans ton lieu de cultivation en isolement, et tu as cru qu'un destin vous liait...
 
 « J'avais clairement estimé que cet enfant n'était pas bon. Son caractère était trop arrogant et il ne supportait personne. À l'origine, je ne voulais pas le choisir comme empereur, mais il possédait ton aura, alors je l'ai choisi.
 

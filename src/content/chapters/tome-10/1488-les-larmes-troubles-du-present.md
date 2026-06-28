@@ -10,7 +10,7 @@ Xi Zifeng mordit sa lèvre inférieure et s'élança vers la planète imprégné
 
 Ses larmes s'étaient depuis longtemps asséchées au cours des 800 dernières années.
 
-Sa culture s'activa lentement et une douce lumière se propagea de son corps. Son âme originelle créa un fil de sens divin qui se dirigea vers la planète de culture, déjà évacuée.
+Sa cultivation s'activa lentement et une douce lumière se propagea de son corps. Son âme originelle créa un fil de sens divin qui se dirigea vers la planète de cultivation, déjà évacuée.
 
 En un instant, son sens divin sembla entrer en contact avec la planète. Le visage livide, elle serra les dents et tira de toutes ses forces avec son sens divin !
 
@@ -40,7 +40,7 @@ Xi Zifeng prit silencieusement les pilules, empreinte de gratitude. La fiole con
 
 « Pourquoi restes-tu là plantée ? Viens ici et déplace cette planète. Un déchet reste un déchet ; tu avais une belle réputation, mais tu as dû la détruire. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui ! » ricana l'homme d'âge moyen du Temple Céleste du Tonnerre.
 
-Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua : « Seigneur Messager, la compagne cultivatrice Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer ? Laissez-la se remettre un peu ! »
+Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua : « Seigneur Messager, la compagne cultivatrice Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa cultivation soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer ? Laissez-la se remettre un peu ! »
 
 Les yeux de l'homme d'âge moyen s'illuminèrent et il fixa le vieil homme.
 
@@ -96,7 +96,7 @@ C'était comme si ce regard était devenu solide, lui enserrant le cou et l'âme
 
 C'était une existence qui dépassait toute compréhension !
 
-« Sei... Senior... » L'homme d'âge moyen, possédant le niveau de culture le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
+« Sei... Senior... » L'homme d'âge moyen, possédant le niveau de cultivation le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
 
 Cette silhouette blanche était Wang Lin !
 

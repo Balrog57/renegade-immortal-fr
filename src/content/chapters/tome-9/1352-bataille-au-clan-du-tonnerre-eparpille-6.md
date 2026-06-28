@@ -12,7 +12,7 @@ slug: bataille-au-clan-du-tonnerre-eparpille-6
 
 Le Fouet de l'Âme s'étira sur cent mille pieds, et des bruits de craquements résonnèrent alors que les huit anciens dragons de tonnerre étaient tous frappés par le fouet. Ils poussèrent des rugissements de douleur et s'apprêtaient à charger de nouveau quand Wang Lin saisit le fouet et commença à frapper avec frénésie !
 
-Le Fouet de l'Âme provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle ! Quel que soit votre niveau de culture, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet !
+Le Fouet de l'Âme provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle ! Quel que soit votre niveau de cultivation, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet !
 
 Il était impossible d'y échapper !
 
@@ -22,7 +22,7 @@ Même le fantôme céleste ne pouvait s'en défaire ; il se retrouvait figé, tr
 
 Au fur et à mesure qu'ils reculaient, les zones touchées par le fouet semblaient brûler et montraient des signes de fusion !
 
-Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une lumière dorée jaillissait de la partie brisée de l'arme !
+Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa cultivation dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une lumière dorée jaillissait de la partie brisée de l'arme !
 
 En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur even apparut dans ses yeux !
 
@@ -52,7 +52,7 @@ Cependant, à cet instant précis, un changement stupéfiant se produisit !
 
 Wang Lin luttait au cœur de l'orage formé par les huit anciens dragons de tonnerre. Son corps d'Ancien Dieu était sur le point de s'effondrer et son âme originelle était gravement blessée !
 
-Ses yeux étaient injectés de sang et il laissa échapper un soupir. À ce niveau de culture, il n'était pas assez fort pour affronter un cultivateur du Cinquième Fléau Céleste. Il s'apprêtait à activer le talisman pour rejoindre les 7 Millions de Mondes quand une onde de choc envahit son regard !
+Ses yeux étaient injectés de sang et il laissa échapper un soupir. À ce niveau de cultivation, il n'était pas assez fort pour affronter un cultivateur du Cinquième Fléau Céleste. Il s'apprêtait à activer le talisman pour rejoindre les 7 Millions de Mondes quand une onde de choc envahit son regard !
 
 Un rayon aveuglant de lumière dorée jaillit du Fouet de l'Âme brisé et, en un instant, une lumière dorée encore plus vaste se propagea. Cette clarté contenait une aura indescriptible, et même les anciens dragons de tonnerre au sein de l'orage semblèrent s'immobiliser !
 

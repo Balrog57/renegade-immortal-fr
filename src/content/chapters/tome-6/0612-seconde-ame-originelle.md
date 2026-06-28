@@ -24,7 +24,7 @@ Des filaments de lumière démoniaque s'échappaient de la statue pour pénétre
 
 Le démon tapi au fond de son âme originelle avait déjà été supprimé grâce à l'aide de l'Ancien Démon. Ce dernier était actuellement dans un état de coma, mais le but de Wang Lin n'était pas seulement de le supprimer, il voulait le dévorer !
 
-Il comptait dévorer ce démon dispersé pour accroître sa propre culture !
+Il comptait dévorer ce démon dispersé pour accroître sa propre cultivation !
 
 Toutefois, ce démon était bien trop vaste pour être ainsi assimilé. Cela faisait plusieurs mois que Wang Lin siégeait dans cet étang pour le dévorer lentement, mais il n'avait pas encore réussi à l'absorber totalement.
 
@@ -34,7 +34,7 @@ De plus, avec l'aide de l'Ancien Démon, Wang Lin avait réussi à laisser une e
 
 Ce jour-là, Wang Lin ouvrit les yeux. Une lueur maléfique brilla dans son regard.
 
-« Avec ma culture actuelle, je suis incapable de dévorer ce démon. Je ne peux que continuer à graver cette empreinte dans son âme jusqu'à pouvoir un jour le contrôler. Le moment venu, plutôt que de le dévorer, j'aurai une autre option : le raffiner pour en faire ma seconde âme originelle ! »
+« Avec ma cultivation actuelle, je suis incapable de dévorer ce démon. Je ne peux que continuer à graver cette empreinte dans son âme jusqu'à pouvoir un jour le contrôler. Le moment venu, plutôt que de le dévorer, j'aurai une autre option : le raffiner pour en faire ma seconde âme originelle ! »
 
 La seconde âme originelle est un sort unique que les cultivateurs ne peuvent utiliser qu'une fois le stade Ascendant atteint. Cependant, ce n'est pas une technique que tout le monde peut maîtriser avec succès. La raison principale réside dans l'embryon utilisé pour sa création !
 
@@ -44,13 +44,13 @@ De plus, la création d'une seconde âme originelle inflige des pertes considér
 
 Wang Lin songea : « C'est l'un des fragments démons d'un démon ancien. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui ! »
 
-« À présent, mon âme originelle et mon corps ont fusionné, consolidant ma culture Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder ! Je dois récupérer les fragments restants de l'énergie d'épée que Ling Tianhou a forgés. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples médiocres ! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
+« À présent, mon âme originelle et mon corps ont fusionné, consolidant ma cultivation Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder ! Je dois récupérer les fragments restants de l'énergie d'épée que Ling Tianhou a forgés. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples médiocres ! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
 
 Son armure lui donnait l'allure d'un général démon, et ses longs cheveux noirs flottants accentuaient son aura sinistre.
 
 En effleurant l'armure, une pointe d'excitation passa dans le regard de Wang Lin. Cette panoplie était incroyablement puissante ! Une épaisse couche d'énergie démoniaque s'en dégageait, mais il était regrettable que Wang Lin ne puisse pas encore l'absorber.
 
-« Même si c'est ainsi, si j'utilise le Doigt Démon avec cette armure, je crains qu'elle ne soit encore plus redoutable que mon Fleuve des Enfers ! Mon niveau de culture n'est pas assez élevé pour que l'armure me reconnaisse comme son maître, je ne peux donc utiliser qu'une partie de ses capacités. Cependant, une fois que j'aurai raffiné le démon dispersé en ma seconde âme originelle, je pourrai libérer toute sa puissance ! » Wang Lin toucha l'armure avant de sortir un bracelet de son sac de rangement.
+« Même si c'est ainsi, si j'utilise le Doigt Démon avec cette armure, je crains qu'elle ne soit encore plus redoutable que mon Fleuve des Enfers ! Mon niveau de cultivation n'est pas assez élevé pour que l'armure me reconnaisse comme son maître, je ne peux donc utiliser qu'une partie de ses capacités. Cependant, une fois que j'aurai raffiné le démon dispersé en ma seconde âme originelle, je pourrai libérer toute sa puissance ! » Wang Lin toucha l'armure avant de sortir un bracelet de son sac de rangement.
 
 Dès l'instant où le bracelet apparut, il se mua en un rayon de lumière noire qui enroula le bras de Wang Lin avant de prendre forme.
 
@@ -102,7 +102,7 @@ Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âg
 
 « C'est bien ici. Comme je m'y attendais, cet homme doit porter un trésor sur lui, sans quoi une telle énergie d'épée ne pourrait s'en échapper ! » Les yeux de l'homme brillaient de joie en contemplant le corps de Zi Shu.
 
-Zi Shu était mort dans un lieu très reculé ; à moins de chercher avec une attention extrême, il aurait été difficile de trouver ce corps. La méthode de culture de cet homme lui permettait de contrôler les oiseaux et les bêtes. Bien que son sens divin ne fût pas puissant, l'oiseau qu'il possédait avait trouvé le corps lors de ses explorations.
+Zi Shu était mort dans un lieu très reculé ; à moins de chercher avec une attention extrême, il aurait été difficile de trouver ce corps. La méthode de cultivation de cet homme lui permettait de contrôler les oiseaux et les bêtes. Bien que son sens divin ne fût pas puissant, l'oiseau qu'il possédait avait trouvé le corps lors de ses explorations.
 
 L'homme fut surpris et sentit immédiatement que quelque chose clochait, ce qui le poussa à venir inspecter la scène.
 

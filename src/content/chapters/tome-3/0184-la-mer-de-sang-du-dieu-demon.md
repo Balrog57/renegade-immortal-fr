@@ -90,7 +90,7 @@ Cette fois, il ne chercha pas les autres, mais retourna là où son corps était
 
 Dans l'espace vide, le corps de l'Empereur Antique rétrécissait, son visage livide. Son Âme Naissante crachait sans cesse du Feu Originel pour empêcher les âmes errantes de le dévorer, mais il ne faisait que gagner du temps sans pouvoir les repousser.
 
-Même si son trésor magique salvateur n'avait pas été brisé, ou si sa culture était encore au stade intermédiaire de la Formation de l'Âme, il n'aurait tout de même pas pu faire face à tant d'âmes errantes tentant de le dévorer.
+Même si son trésor magique salvateur n'avait pas été brisé, ou si sa cultivation était encore au stade intermédiaire de la Formation de l'Âme, il n'aurait tout de même pas pu faire face à tant d'âmes errantes tentant de le dévorer.
 
 Peu après le départ de Wang Lin, Bossu Meng arriva. Son corps se déplaçait telle une étoile filante. Il jeta un regard sur l'Empereur Antique et fronça les sourcils ; l'odeur répugnante avait disparu. Alors qu'il s'apprêtait à la suivre, il s'arrêta brusquement et fixa l'Empereur Antique. Une pensée traversa son esprit.
 
@@ -134,7 +134,7 @@ Il déplaça son corps et sortit de la roche. Sans aucune hésitation, il se dir
 
 Le visage de Wang Lin était sombre. L'apparition de Bossu Meng perturbait ses plans et lui inspirait l'horreur. Plus important encore, Bossu Meng était immunisé contre les attaques des âmes errantes.
 
-C'était la raison principale pour laquelle Wang Lin avait décidé de quitter la troisième épreuve le plus vite possible. Il savait qu'en termes de culture, il était bien trop faible face à ces anciens briscards. Sans la présence massive d'âmes errantes, il ne pourrait absolument pas rivaliser avec eux ; il n'aurait même pas les qualifications pour discuter avec eux.
+C'était la raison principale pour laquelle Wang Lin avait décidé de quitter la troisième épreuve le plus vite possible. Il savait qu'en termes de cultivation, il était bien trop faible face à ces anciens briscards. Sans la présence massive d'âmes errantes, il ne pourrait absolument pas rivaliser avec eux ; il n'aurait même pas les qualifications pour discuter avec eux.
 
 Maintenant que les âmes errantes étaient inutiles contre Bossu Meng, Wang Lin avait perdu son seul avantage. S'ils se rencontraient, sa seule issue serait la mort. Un simple geste de la main de Bossu Meng suffirait à le faire disparaître comme de la fumée.
 
@@ -196,7 +196,7 @@ Le Seigneur Démon des Six Désirs fronça les sourcils. Alors qu'il analysait l
 
 « Toi... Tu es le Bossu Meng ? Tu... tu as consommé une pilule de Transformation de l'Âme ? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Formation de l'Âme, n'étant qu'à un pas de la Transformation de l'Âme.
 
-La seule façon d'atteindre ce niveau de culture était de consommer une pilule de Transformation de l'Âme !
+La seule façon d'atteindre ce niveau de cultivation était de consommer une pilule de Transformation de l'Âme !
 
 Cependant, le Seigneur Démon des Six Désirs déplaça immédiatement le corps du jeune homme devant lui et le mit à l'horizontale. En fixant Bossu Meng, il demanda : « Ce n'est pas dû à une pilule de Transformation de l'Âme. Qu'as-tu donc mangé pour te transformer ainsi ?! »
 

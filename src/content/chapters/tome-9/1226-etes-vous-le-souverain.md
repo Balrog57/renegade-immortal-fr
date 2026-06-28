@@ -28,7 +28,7 @@ Cependant, en ce moment de vie ou de mort, Wang Lin allait donner tout ce qu'il 
 
 « Si je meurs, à quoi bon posséder un trésor ? Je ne crois pas être incapable de briser cet index ! » Alors que Wang Lin rugissait, le Fourneau du Dieu Antique sembla se solidifier autour de lui et percuta l'index.
 
-Un fracas tonitruant retentit et Wang Lin eut l'impression d'être frappé par une planète de culture. Il cracha du sang, le visage livide, gravement blessé. Le Fourneau du Dieu Antique trembla violemment alors qu'il était enfoncé dans le sol avec le corps de Wang Lin !
+Un fracas tonitruant retentit et Wang Lin eut l'impression d'être frappé par une planète de cultivation. Il cracha du sang, le visage livide, gravement blessé. Le Fourneau du Dieu Antique trembla violemment alors qu'il était enfoncé dans le sol avec le corps de Wang Lin !
 
 « Effondre-toi ! » Le corps de Wang Lin s'immobilisa soudainement pour empêcher son propre enfoncement. Les trois autres doigts remplacèrent également le ciel et descendirent avec une fureur dévastatrice.
 
@@ -78,7 +78,7 @@ Il n'y avait pas de retraite ; il devait tout donner !
 
 Les flammes bleues chargèrent le majeur avec une fureur démentielle. Le visage de Wang Lin était pâle et du sang coulait de sa bouche. En affrontant personnellement le majeur, il en ressentit la puissance colossale, suffisante pour faire trembler son corps et l'enfoncer violemment.
 
-« Je ne me résignerai pas ! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur de Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
+« Je ne me résignerai pas ! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de cultivation et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur de Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
 
 Il ne se résignerait pas !
 
@@ -102,7 +102,7 @@ Bien que gravement blessé, dès qu'il toucha terre, Wang Lin repartit aussitôt
 
 Le trident était planté dans l'annulaire, offrant une opportunité à Wang Lin, mais s'il abandonnait maintenant, tout cela aurait été vain !
 
-Il n'y avait eu qu'une seule autre fois où Wang Lin avait été aussi désespéré. La première fut son combat contre l'Omniscient dans la Terre des Esprits Démoniaques. C'était la deuxième fois en près de 2 000 ans de culture !
+Il n'y avait eu qu'une seule autre fois où Wang Lin avait été aussi désespéré. La première fut son combat contre l'Omniscient dans la Terre des Esprits Démoniaques. C'était la deuxième fois en près de 2 000 ans de cultivation !
 
 Une aura tragique émanait du corps de Wang Lin. Son visage était livide et, malgré ses blessures graves, son intention de combat ne faiblissait pas. Au contraire, elle semblait... encore plus féroce !
 

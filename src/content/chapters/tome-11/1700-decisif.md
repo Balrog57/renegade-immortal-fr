@@ -66,13 +66,13 @@ Un instant plus tard, les yeux de Wang Lin s'illuminèrent et il cessa de penser
 
 « Maintenant, je dois trouver cet autel, peut-être y trouverai-je une part de chance... Bien que je sois au stade du Vide Spirituel, je reste en retrait par rapport aux cultivateurs du Vide Arcane... »
 
-« Maintenant que le Royaume Céleste Antique est ouvert et que les quatre généraux sont apparus, leur but doit être de traquer la troisième âme... Cela m'épargnera bien des ennuis, et c'est le moment idéal pour élever mon niveau de culture ! » Wang Lin réfléchissait tout en accélérant sa marche. Son Sens Divin se déployait pour observer attentivement les environs.
+« Maintenant que le Royaume Céleste Antique est ouvert et que les quatre généraux sont apparus, leur but doit être de traquer la troisième âme... Cela m'épargnera bien des ennuis, et c'est le moment idéal pour élever mon niveau de cultivation ! » Wang Lin réfléchissait tout en accélérant sa marche. Son Sens Divin se déployait pour observer attentivement les environs.
 
 Le ciel était d'une obscurité totale et les auras de bêtes féroces imprégnaient l'atmosphère. Ces créatures ne représentaient pas une menace pour lui ; elles reculaient avec crainte dès que son Sens Divin balayait la zone.
 
 Dans cet espace étranger, Wang Lin restait extrêmement vigilant. Bien que les bêtes environnantes fussent sans danger, une incertitude le taraudait : le Daoïste aux Sept Couleurs était-il venu ici ?
 
-Bien que son Sens Divin soit étendu, il restait pleinement concentré. Au moindre signe anormal, il s'échapperait. C'était périlleux, mais il devait atteindre l'autel. S'il avait laissé la peur de l'inconnu le paralyser, il n'aurait jamais atteint le niveau de culture qu'il possédait aujourd'hui.
+Bien que son Sens Divin soit étendu, il restait pleinement concentré. Au moindre signe anormal, il s'échapperait. C'était périlleux, mais il devait atteindre l'autel. S'il avait laissé la peur de l'inconnu le paralyser, il n'aurait jamais atteint le niveau de cultivation qu'il possédait aujourd'hui.
 
 Après plusieurs heures, Wang Lin s'arrêta brusquement et son expression changea. Sans hésiter, il recula rapidement, prêt à disparaître.
 
@@ -84,7 +84,7 @@ C'était le Daoïste aux Sept Couleurs !
 
 Après une brève réflexion, les yeux de Wang Lin s'illuminèrent. La présence du Daoïste paraissait extrêmement étrange ; après analyse, il comprit que celui-ci semblait piégé dans une illusion.
 
-« C'est probablement l'illusion de Fan Shanmeng. Même le Daoïste aux Sept Couleurs est pris au piège. Avec son niveau de culture, une telle illusion... Il y a quelque chose qui cloche ! » Wang Lin était d'une intelligence fulgurante et comprit immédiatement l'anomalie.
+« C'est probablement l'illusion de Fan Shanmeng. Même le Daoïste aux Sept Couleurs est pris au piège. Avec son niveau de cultivation, une telle illusion... Il y a quelque chose qui cloche ! » Wang Lin était d'une intelligence fulgurante et comprit immédiatement l'anomalie.
 
 Son cœur se mit à battre la chamade, tiraillé par un conflit intérieur rare. D'un côté, il devait fuir immédiatement. Dans son état actuel, le Daoïste aux Sept Couleurs ne pourrait pas le poursuivre. Son voyage vers l'autel serait alors sans danger.
 
@@ -114,6 +114,6 @@ Après un moment de réflexion, Wang Lin serra les dents et s'assit. Sa main dro
 
 Le doigt de Wang Lin trembla tandis qu'il pointait sa cible. Du sang coula du coin de sa bouche. Le flou dans sa vision se dissipa, mais il resta assis, immobile ; rien n'avait changé.
 
-Le sort du Dao du Rêve ne nécessitait pas de contact physique direct, mais le niveau de culture élevé du Daoïste aux Sept Couleurs et la barrière qui l'entourait empêchaient Wang Lin de pénétrer son illusion par ce moyen.
+Le sort du Dao du Rêve ne nécessitait pas de contact physique direct, mais le niveau de cultivation élevé du Daoïste aux Sept Couleurs et la barrière qui l'entourait empêchaient Wang Lin de pénétrer son illusion par ce moyen.
 
 Wang Lin fronça les sourcils, affichant une expression de regret.

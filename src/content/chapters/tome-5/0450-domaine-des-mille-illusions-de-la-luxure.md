@@ -104,6 +104,6 @@ Le cœur de Wang Lin trembla. Toutes ces présences étaient des formes de vie c
 
 Ses yeux s'illuminèrent ; il choisit une direction et s'élança avec célérité. Son premier objectif était de trouver la montagne censée être le centre de ce lieu.
 
-Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Culture se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Culture accordait aux pays de culture de rang 6.
+Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Cultivation se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Cultivation accordait aux pays de cultivation de rang 6.
 
-Une fois que les cultivateurs atteignent le stade Ascendant et ont tenté de trouver leur propre Tao, ils peuvent espérer récupérer leurs fragments d'âme du Cristal de la Planète de Culture. Cependant, aucun des Suzaku n'avait pu récupérer ses fragments. S'ils l'avaient fait, ils auraient perdu leur capacité à utiliser le sceau Suzaku et, par extension, leur titre de Suzaku.
+Une fois que les cultivateurs atteignent le stade Ascendant et ont tenté de trouver leur propre Tao, ils peuvent espérer récupérer leurs fragments d'âme du Cristal de la Planète de Cultivation. Cependant, aucun des Suzaku n'avait pu récupérer ses fragments. S'ils l'avaient fait, ils auraient perdu leur capacité à utiliser le sceau Suzaku et, par extension, leur titre de Suzaku.

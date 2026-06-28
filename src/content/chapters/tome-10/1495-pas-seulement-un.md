@@ -24,7 +24,7 @@ Cependant, cette révélation brutale eut un impact violent sur Li Yunzi. Son co
 
 « Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet au sein du Royaume Intérieur !! »
 
-Blood God était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
+Blood God était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de cultivation, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
 
 « Une hallucination... Ce doit être une hallucination... Un cultivateur du troisième pas si rare que tous les cultivateurs admirent, comment un tel être pourrait-il accepter de devenir l'esclave de quelqu'un d'autre... C'est impossible !! »
 
@@ -46,7 +46,7 @@ Sous cette pression, ils ne parvenaient plus à tenir debout. La peur les submer
 
 « Un cultivateur du troisième pas ! Trois cultivateurs du troisième pas sont apparus simultanément à Allheaven !! Absurde, c'est absolument absurde !!! Pendant des dizaines de milliers d'années, il n'y avait que l'Ancêtre, et maintenant... »
 
-« Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il est parti. Pourtant, après 800 ans, sa culture a atteint un niveau aussi terrifiant... Un cultivateur du troisième pas comme esclave... Incroyable !! »
+« Le niveau de cultivation de Wang Lin n'était pas élevé lorsqu'il est parti. Pourtant, après 800 ans, sa cultivation a atteint un niveau aussi terrifiant... Un cultivateur du troisième pas comme esclave... Incroyable !! »
 
 Le tumulte se propagea à travers le domaine stellaire jusqu'à devenir un grondement de tonnerre violent.
 
@@ -56,13 +56,13 @@ Le visage de Maître Lu Fu était pâle et son humeur aussi sombre que l'eau. Un
 
 Ce cri résonna et étouffa la peur des dizaines de milliers de cultivateurs. Désormais, seule sa voix dominait !
 
-« Ce vieil homme vous a sous-estimé. Vous avez bel et bien pris un cultivateur du troisième pas pour esclave. Le niveau de culture de cet individu est égal au mien et il possède bien plus de Flammes Joss que moi. Je ne suis même pas son égal ! »
+« Ce vieil homme vous a sous-estimé. Vous avez bel et bien pris un cultivateur du troisième pas pour esclave. Le niveau de cultivation de cet individu est égal au mien et il possède bien plus de Flammes Joss que moi. Je ne suis même pas son égal ! »
 
 La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs d'Allheaven présents.
 
-« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille ! Ce vieil homme est très talentueux ; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Nirvana Void ! »
+« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille ! Ce vieil homme est très talentueux ; sans ce manque de Flammes Joss, ma cultivation aurait depuis longtemps atteint le milieu ou la fin du Nirvana Void ! »
 
-« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné de nombreux trésors au cours des dizaines de milliers d'années passées ! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre ! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura plusieurs fois plus puissante que précédemment, balayant les étoiles.
+« Bien que ma cultivation soit limitée par l'absence de Flammes Joss, j'ai raffiné de nombreux trésors au cours des dizaines de milliers d'années passées ! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre ! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura plusieurs fois plus puissante que précédemment, balayant les étoiles.
 
 Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui avaient été choqués par l'apparition de Ling Dong poussèrent à nouveau des rugissements fervents.
 

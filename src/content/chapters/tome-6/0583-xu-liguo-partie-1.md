@@ -24,7 +24,7 @@ En entendant le reniflement du Vice-Commandant Xuan, l'homme tourna la tête et 
 
 Le visage du Vice-Commandant Xuan s'assombrit alors qu'il secouait la tête : « Je ne le connais pas. » Après une courte pause, il reprit : « Mais cet homme peut certainement se classer parmi les trois premiers ; voire même décrocher la première place ne serait pas difficile ! »
 
-L'homme d'âge moyen fut surpris. Il tourna la tête pour observer attentivement Wang Lin avant de rétorquer : « Le niveau de culture de cet homme n'est que celui du sommet du stade avancé de la Transformation de l'Âme. Je crains qu'il ne lui soit pas si facile de prendre la première place ! »
+L'homme d'âge moyen fut surpris. Il tourna la tête pour observer attentivement Wang Lin avant de rétorquer : « Le niveau de cultivation de cet homme n'est que celui du sommet du stade avancé de la Transformation de l'Âme. Je crains qu'il ne lui soit pas si facile de prendre la première place ! »
 
 Le Vice-Commandant Xuan renifla froidement : « Vice-Commandant Jaune, et si nous faisions un pari ? Si cet homme ne finit pas premier, je vous donnerai mon Pavillon Céleste des Présages ; mais s'il décroche la première place, vous me donnerez votre pilule Xuan-Xuan ! »
 

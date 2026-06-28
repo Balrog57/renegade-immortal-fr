@@ -12,11 +12,11 @@ Le regard de Wang Lin devint glacial après avoir écrasé le brin de cheveux co
 
 Wang Lin se mit à réfléchir. S'il avait pu identifier Xu Fei, c'était grâce à Sun Tai, l'esclave que Zhou Yi lui avait imposé autrefois.
 
-Sun Tai possédait une marionnette cadavre qui n'était qu'un enfant, mais elle était extrêmement intelligente et dotée d'un haut niveau de culture. Leur relation était également unique : ce n'était pas une simple marionnette, mais plutôt comme s'ils étaient deux individus distincts.
+Sun Tai possédait une marionnette cadavre qui n'était qu'un enfant, mais elle était extrêmement intelligente et dotée d'un haut niveau de cultivation. Leur relation était également unique : ce n'était pas une simple marionnette, mais plutôt comme s'ils étaient deux individus distincts.
 
 En songeant à la marionnette cadavre de Sun Tai, Wang Lin ne put s'empêcher de penser à Situ Nan, qui avait fini par prendre possession de la chair de cet enfant.
 
-« Je ne sais pas où se trouve Situ actuellement, mais il doit être sur une planète de culture, vivant sa vie comme un roi parmi les mortels... » Une pointe de nostalgie passa dans ses yeux. À cet instant, il n'était plus le démon, mais un simple mortel se remémorant un ami.
+« Je ne sais pas où se trouve Situ actuellement, mais il doit être sur une planète de cultivation, vivant sa vie comme un roi parmi les mortels... » Une pointe de nostalgie passa dans ses yeux. À cet instant, il n'était plus le démon, mais un simple mortel se remémorant un ami.
 
 « Il y avait aussi Sun Tai. Il était l'Ancien en chef du Secte des Cadavres sur la planète Suzaku. Il fut projeté dans l'espace par la puissance du lignage de l'Ancêtre du Clan des Démons Géants. Sa localisation actuelle est inconnue. »
 
@@ -78,7 +78,7 @@ Wang Lin prit une profonde inspiration, le regard froid. Il se redressa et s'ext
 
 « Les Trois Royaumes du Nirvana sont le Clairvoyant du Nirvana, le Purificateur du Nirvana et le Briseur du Nirvana. Chaque royaume se divise en stades de début, milieu, fin et sommet. L'Omniscient avait prétendu être à la fin de la deuxième étape ; je suppose qu'il est au stade initial du Briseur du Nirvana. Ling Tianhou et l'Omniscient étant rivaux depuis des dizaines de milliers d'années, leurs niveaux ne peuvent être trop éloignés. Il doit donc se situer au sommet du Purificateur du Nirvana... »
 
-Une pointe de détermination brilla dans les yeux de Wang Lin. Comparée à celle de l'Omniscient ou de Ling Tianhou, sa propre culture était dérisoire. Il n'avait même pas atteint le sommet de la première étape, mais Wang Lin faisait preuve d'une persévérance sans faille. Depuis qu'il était un enfant dans le monde de la culture, il n'avait compté que sur lui-même pour devenir aujourd'hui une puissance Ascendant !
+Une pointe de détermination brilla dans les yeux de Wang Lin. Comparée à celle de l'Omniscient ou de Ling Tianhou, sa propre cultivation était dérisoire. Il n'avait même pas atteint le sommet de la première étape, mais Wang Lin faisait preuve d'une persévérance sans faille. Depuis qu'il était un enfant dans le monde de la cultivation, il n'avait compté que sur lui-même pour devenir aujourd'hui une puissance Ascendant !
 
 Bien qu'un Ascendant ne soit qu'une fourmi aux yeux des experts de la deuxième étape, parmi les cultivateurs de la première étape, il restait une force redoutable !
 

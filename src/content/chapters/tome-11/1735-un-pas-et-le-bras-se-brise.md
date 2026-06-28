@@ -86,9 +86,9 @@ Des ondulations résonnèrent derrière l'armure et un vortex apparut. Un bras d
 
 Wang Lin ne fut pas totalement pris au dépourvu par ce changement soudain. Le pas qu'il avait amorcé avant l'effondrement de la formation lui permit d'atteindre sa vitesse maximale instantanément !
 
-Ses sept essences fusionnèrent soudainement avec sa puissante culture du stade avancé de l'Espace de l'Esprit, et explosèrent hors de son corps !
+Ses sept essences fusionnèrent soudainement avec sa puissante cultivation du stade avancé de l'Espace de l'Esprit, et explosèrent hors de son corps !
 
-Au moment où son pied toucha le sol, le pouvoir de la Voie Antique de Wang Lin pénétra chaque parcelle de ses chairs et de ses os. Cela permit à son corps d'acquérir une force capable d'écraser une planète de culture !
+Au moment où son pied toucha le sol, le pouvoir de la Voie Antique de Wang Lin pénétra chaque parcelle de ses chairs et de ses os. Cela permit à son corps d'acquérir une force capable d'écraser une planète de cultivation !
 
 La puissance totale de Wang Lin éclata. C'était comme si une tempête destructrice venait de surgir. L'élan de Wang Lin était à son apogée !
 

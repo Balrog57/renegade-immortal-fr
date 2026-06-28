@@ -16,7 +16,7 @@ Toutes les divinations pointaient vers le pays de Zhao. Elles désignaient un pa
 
 En conséquence, il s'y rendit avec des attentes élevées mêlées à un sentiment d'absurdité. Après être arrivé dans ce pays, il passa quelques jours à interroger presque tous les érudits, mais il n'obtint aucune réponse satisfaisante.
 
-Ces érudits n'étaient que des mortels ; comment pourraient-ils répondre à une telle question ? Avec le niveau de culture de cet homme d'âge moyen, oubliez le pays de Zhao, il était considéré comme extrêmement puissant sur toute la planète. Transformation de l'Âme, Transformation de l'Âme, il n'était qu'à un pas de l'Ascendant !
+Ces érudits n'étaient que des mortels ; comment pourraient-ils répondre à une telle question ? Avec le niveau de cultivation de cet homme d'âge moyen, oubliez le pays de Zhao, il était considéré comme extrêmement puissant sur toute la planète. Transformation de l'Âme, Transformation de l'Âme, il n'était qu'à un pas de l'Ascendant !
 
 L'homme d'âge moyen retroussa ses manches et le vent noir rugit. D'innombrables fantômes hurlaient à l'intérieur, entourant Wang Lin et Big Fortune. Cela fit que la zone se sépara du monde, devenant floue et indistincte.
 
@@ -40,11 +40,11 @@ Wang Lin était la première personne qu'il rencontrait qui fût aussi calme.
 
 On ne pouvait même pas qualifier cela de simple calme. D'après ce que l'homme d'âge moyen percevait, Wang Lin semblait ne se soucier absolument pas de sa présence. C'était comme si Wang Lin ne le considérait pas comme un immortel, mais simplement comme un mortel.
 
-Il faut dire qu'avec son niveau de culture, même des empereurs mortels auraient dû trembler de peur et le traiter comme un ancêtre. La pression invisible qui l'entourait n'était pas quelque chose qu'un mortel pouvait supporter ; même les cultivateurs auraient été oppressés par la crainte.
+Il faut dire qu'avec son niveau de cultivation, même des empereurs mortels auraient dû trembler de peur et le traiter comme un ancêtre. La pression invisible qui l'entourait n'était pas quelque chose qu'un mortel pouvait supporter ; même les cultivateurs auraient été oppressés par la crainte.
 
 Cet homme d'âge moyen n'avait rencontré une telle présence que deux fois dans sa vie. Les deux mortels qu'il avait croisés et qui faisaient preuve d'une telle sérénité étaient les plus grands érudits de la planète Suzaku.
 
-Ces grands érudits avaient compris les lois du ciel et pouvaient voir à travers le monde. Ils possédaient des auras puissantes et ne craignaient ni les fantômes ni le surnaturel. Bien qu'un cultivateur de Condensation de Qi puisse les tuer, plus le niveau de culture de ce dernier était élevé, plus il ressentirait une aura similaire à celle d'un cultivateur chez ces érudits.
+Ces grands érudits avaient compris les lois du ciel et pouvaient voir à travers le monde. Ils possédaient des auras puissantes et ne craignaient ni les fantômes ni le surnaturel. Bien qu'un cultivateur de Condensation de Qi puisse les tuer, plus le niveau de cultivation de ce dernier était élevé, plus il ressentirait une aura similaire à celle d'un cultivateur chez ces érudits.
 
 Si l'un d'eux se mettait à cultiver, il serait un prodige naturel.
 
@@ -106,7 +106,7 @@ Un rugissement retentit depuis la montagne principale et une silhouette apparut 
 
 « Frère aîné, qui est cette personne ? » Alors qu'une voix ancienne résonnait, l'ombre noire se rapprocha. C'était également un homme d'âge moyen, dont le regard balaya Wang Lin.
 
-« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en méditation fermée. » Une émotion complexe traversa les yeux de Nian Tian lorsqu'il parla.
+« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta cultivation en méditation fermée. » Une émotion complexe traversa les yeux de Nian Tian lorsqu'il parla.
 
 Dun Tian sourit. Aux yeux de celui-ci, Wang Lin n'était qu'un simple mortel. Bien qu'il l'ait jeté un regard, il ne prit pas la peine de s'en souvenir. Il se retourna et disparut.
 

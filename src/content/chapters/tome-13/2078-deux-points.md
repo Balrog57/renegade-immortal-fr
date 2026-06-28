@@ -22,7 +22,7 @@ Au même instant, le visage de l'Empereur Céleste Lian Daozhen apparut au sein 
 
 « Faux... Tout est faux... Tout est faux... Vous êtes aussi un Grand Empereur ? Haha, tout est faux. N'essayez pas de me tromper », murmura le Maître Scarlet Soul, le regard vitreux.
 
-Après avoir libéré la pression d'un Grand Empereur, le niveau de culture de Wang Lin continua de croître jusqu'à atteindre une demi-étape vers le Piétinement du Ciel. Sa pression était suffisante pour effondrer un système stellaire et anéantir toute vie.
+Après avoir libéré la pression d'un Grand Empereur, le niveau de cultivation de Wang Lin continua de croître jusqu'à atteindre une demi-étape vers le Piétinement du Ciel. Sa pression était suffisante pour effondrer un système stellaire et anéantir toute vie.
 
 Toute cette puissance se concentra autour du Maître Scarlet Soul sans en laisser s'échapper la moindre parcelle. Il commença à rire comme un fou, et à l'instant même où il sombra dans la démence, son corps s'effondra.
 
@@ -46,7 +46,7 @@ En partant, Wang Lin laissa une partie de son Dao et de ses sorts dans le Royaum
 
 Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Scarlet Soul ne se reproduisent plus jamais.
 
-Avant de s'en aller, Wang Lin et le Maître du Dao Blue Dream discutèrent longuement. Personne n'ignorait le sujet de leur conversation, et après avoir raccompagné Wang Lin, le Maître du Dao Blue Dream se mit en culture isolée.
+Avant de s'en aller, Wang Lin et le Maître du Dao Blue Dream discutèrent longuement. Personne n'ignorait le sujet de leur conversation, et après avoir raccompagné Wang Lin, le Maître du Dao Blue Dream se mit en cultivation isolée.
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 
@@ -64,7 +64,7 @@ Quelques jours plus tard, Wang Lin leva le sceau de la Terre Déchue pour permet
 
 Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Estimé Scattered Soul, cet ami qu'il admirait tant autrefois.
 
-De même, Wang Lin aperçut un bébé sur une planète de culture dans le Royaume Extérieur.
+De même, Wang Lin aperçut un bébé sur une planète de cultivation dans le Royaume Extérieur.
 
 Le corps du nouveau-né se trouvait au cœur de la planète et semblait dormir. Le bébé ressemblait à Tuo Sen. Bien que Wang Lin ignorât ce qui s'était passé, Tuo Sen semblait être devenu Tu Si, et il pratiquait une sorte de sortilège.
 
@@ -118,7 +118,7 @@ Xu Liguo avait accepté. Après en avoir discuté, ils avaient porté leur atten
 
 Treize, fidèle à lui-même, restait sur la planète Suzaku. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
 
-Son niveau de culture avait progressé au cours des dix dernières années. Plus important encore, il avait hérité du Dao de Wang Lin et de la quasi-totalité de ses sorts.
+Son niveau de cultivation avait progressé au cours des dix dernières années. Plus important encore, il avait hérité du Dao de Wang Lin et de la quasi-totalité de ses sorts.
 
 Hormis les essences éthérées, dont la compréhension lui faisait encore défaut, Treize avait déjà formé les cinq essences élémentaires. En particulier, il semblait doté d'un talent prodigieux pour le Dao des Huit Extrêmes, rendant sa compréhension profonde.
 

@@ -94,7 +94,7 @@ Pourtant, une personne qui sombre dans la folie par pur divertissement est absol
 
 « Ce roi doit écouter les paroles de mon grand frère. L'image peut être donnée aux autres, c'est vrai, elle peut être donnée ainsi ! » Le fou hocha solennellement la tête.
 
-« C'est exact, même Petit Rouge a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
+« C'est exact, même Petit Rouge a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de cultivation entière trembla, tout comme le corps du fou qui s'agitait violemment.
 
 Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manifesta progressivement entre ses sourcils !
 

@@ -24,7 +24,7 @@ Dao Feishan, qui se trouvait à moins de cent pieds de Mu Bingmei, fut saisi d'e
 
 Il se retourna brusquement !
 
-Il y avait aussi cette autre planète de culture où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Conglie, Shengong Hu, Maître Flamespark, et bien d'autres encore ! Tous regardaient au loin et virent la puissante flèche percer le vide !
+Il y avait aussi cette autre planète de cultivation où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Conglie, Shengong Hu, Maître Flamespark, et bien d'autres encore ! Tous regardaient au loin et virent la puissante flèche percer le vide !
 
 C'était une flèche longue de plusieurs centaines de milliers de pieds, dotée du pouvoir de détruire les cieux eux-mêmes. La pointe de la flèche était circulaire ; elle hurlait à travers l'espace, provoquant l'effondrement du vide sur son passage. Rien ne pouvait l'arrêter !
 
@@ -34,7 +34,7 @@ Une silhouette se tenait à la pointe de la flèche. Un homme vêtu de blanc aux
 
 Les yeux de Qing Lin étaient remplis d'incrédulité. Il avait l'impression que cette flèche lui était familière et qu'il reconnaissait quelque chose, mais il n'osait s'en faire la conviction !
 
-Maître Hong Shan était totalement stupéfait. Non seulement Wang Lin n'était pas mort, mais son niveau de culture avait atteint un tel degré... Et il surgissait ainsi, par une méthode aussi fracassante qu'inimaginable !
+Maître Hong Shan était totalement stupéfait. Non seulement Wang Lin n'était pas mort, mais son niveau de cultivation avait atteint un tel degré... Et il surgissait ainsi, par une méthode aussi fracassante qu'inimaginable !
 
 Le choc des cultivateurs du Royaume Intérieur ne pouvait être comparé à celui des cultivateurs du Royaume Extérieur. À cet instant, l'esprit des centaines de milliers de cultivateurs du Royaume Extérieur trembla à l'unisson. Leurs yeux étaient écarquillés par l'horreur. Certains reconnurent Wang Lin et furent terrifiés.
 
@@ -74,7 +74,7 @@ En un instant, le corps du Souverain apparut devant la pointe de la flèche. Il 
 
 Des fracas de tonnerre résonnèrent à travers le domaine stellaire. Dès que l'écran de lumière toucha la flèche, les teintes jaune, orange, rouge et verte s'effondrèrent instantanément. Puis les nuances bleu, indigo et violet se déformèrent et disparurent.
 
-Le rideau de lumière ne put stopper cette flèche ! Le niveau de culture de Wang Lin n'était pas encore assez élevé pour affronter le Souverain seul, mais seuls quelques êtres dans ce monde pouvaient arrêter un tel tir ! Et le Souverain n'en faisait pas partie !
+Le rideau de lumière ne put stopper cette flèche ! Le niveau de cultivation de Wang Lin n'était pas encore assez élevé pour affronter le Souverain seul, mais seuls quelques êtres dans ce monde pouvaient arrêter un tel tir ! Et le Souverain n'en faisait pas partie !
 
 Le Souverain fut contraint de reculer, les manches de sa robe noire se déchirant pour révéler ses deux bras décharnés. L'expression sombre, il mordit le bout de sa langue pour recracher du sang.
 

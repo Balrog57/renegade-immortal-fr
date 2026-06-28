@@ -12,7 +12,7 @@ En observant Wang Lin et le roi moustique qui s'éloignaient au loin, Du Qing af
 
 « Maudit soit, pourquoi suis-je si démuni... Je ne peux vraiment pas... rivaliser ! » Du Qing se sentait de plus en plus misérable. Il vola pendant une demi-journée sans parvenir à rattraper Wang Lin.
 
-« Cet homme est un génie des cieux, semblable aux véritables disciples de ces grandes sectes ; je ne peux l'égaler... Mais moi, Du Qing, j'ai acquis mon niveau de culture et mes trésors par mes propres efforts. Bien qu'il soit supérieur à moi, je parie que tout ce qu'il possède lui a été offert par ce Grand Empyrean... Humph, il n'a que de la chance. » Ce n'est qu'en pensant cela que Du Qing se sentit un peu mieux.
+« Cet homme est un génie des cieux, semblable aux véritables disciples de ces grandes sectes ; je ne peux l'égaler... Mais moi, Du Qing, j'ai acquis mon niveau de cultivation et mes trésors par mes propres efforts. Bien qu'il soit supérieur à moi, je parie que tout ce qu'il possède lui a été offert par ce Grand Empyrean... Humph, il n'a que de la chance. » Ce n'est qu'en pensant cela que Du Qing se sentit un peu mieux.
 
 S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris les deux mille ans de tribulations que celui-ci avait endurés, son cœur ne serait pas aussi apaisé. Même s'il était né dans le Monde des Grottes avec la chance de Greed, il n'aurait jamais pu en sortir comme Wang Lin après deux mille ans !
 
@@ -46,7 +46,7 @@ L'homme d'âge moyen qui avait perdu ses bras s'était désormais rétabli, et s
 
 Du Qing conduisit Wang Lin vers la montagne arrière. Bien que l'endroit ait également été détruit, la montagne subsistait et la grotte intérieure était restée intacte.
 
-L'intérieur de la grotte était très luxueux. D'innombrables perles nocturnes de la taille d'une tête illuminaient la cavité comme un ciel étoilé. On y trouvait de nombreuses pièces dédiées à la forge, à l'alchimie et à la culture en isolement. Tout ce dont un cultivateur avait besoin s'y trouvait.
+L'intérieur de la grotte était très luxueux. D'innombrables perles nocturnes de la taille d'une tête illuminaient la cavité comme un ciel étoilé. On y trouvait de nombreuses pièces dédiées à la forge, à l'alchimie et à la cultivation en isolement. Tout ce dont un cultivateur avait besoin s'y trouvait.
 
 « Camarade cultivateur Wang, cet endroit est modeste, mais j'espère que vous pourrez vous en contenter en attendant que la secte soit reconstruite. Vous pourrez alors trouver un lieu de repos plus convenable. » Du Qing força un sourire. Pour lui, cet endroit était déjà excellent. Le sol était fait de Pierre de la Mer Orientale, ce qui augmentait la concentration d'aura ambiante. Les perles nocturnes n'étaient pas ordinaires ; elles simulaient le firmament, permettant de ressentir l'immensité du monde.
 
@@ -72,7 +72,7 @@ Du Qing murmura : « Le Grand Secte des Âmes fait partie des neuf sectes et tre
 
 « Selon mon analyse, c'est là que se situe la principale veine de terre-feu du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein du Grand Secte des Âmes. »
 
-« Je connais également l'Ancien du Grand Secte des Âmes, le Très Respecté Taureau Vert ; son niveau de culture est très élevé. Il est votre égal et possède lui aussi un corps véritable d'essence ! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
+« Je connais également l'Ancien du Grand Secte des Âmes, le Très Respecté Taureau Vert ; son niveau de cultivation est très élevé. Il est votre égal et possède lui aussi un corps véritable d'essence ! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
 
 Les yeux de Wang Lin se rétrécirent ; il se souvenait de ce nom.
 
@@ -90,13 +90,13 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 « Son nom m'est familier. » Wang Lin réfléchit un instant, puis changea de sujet.
 
-« Qu'en est-il du Secte Gui Yi ? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle au Grand Secte des Âmes ? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
+« Qu'en est-il du Secte Gui Yi ? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle au Grand Secte des Âmes ? » Le niveau de cultivation de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
 
-« Le Secte Gui Yi est très puissant et semble actuellement surpasser légèrement le Grand Secte des Âmes. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein du Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un ! »
+« Le Secte Gui Yi est très puissant et semble actuellement surpasser légèrement le Grand Secte des Âmes. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein du Secte Gui Yi. Sa cultivation est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un ! »
 
 « J'ai eu des contacts avec cet homme. Il est extraordinaire ! » Du Qing se remémora comment Yun Yifeng, d'un simple revers de sabre, avait contraint plusieurs membres du Grand Secte des Âmes à battre en retraite.
 
-« En parlant de Yun Yifeng, je viens de penser à une chose. Il a affirmé qu'il existait quelqu'un qui, après seulement un peu plus de deux mille ans de culture, possédait une puissance insondable. Même lui n'osait dégainer son arme devant cette personne ! Même les quatre génies du Continent de l'Est ne seraient pas dignes d'être appelés "génies" face à cet individu ! »
+« En parlant de Yun Yifeng, je viens de penser à une chose. Il a affirmé qu'il existait quelqu'un qui, après seulement un peu plus de deux mille ans de cultivation, possédait une puissance insondable. Même lui n'osait dégainer son arme devant cette personne ! Même les quatre génies du Continent de l'Est ne seraient pas dignes d'être appelés "génies" face à cet individu ! »
 
 « À l'époque, cela avait provoqué une immense onde de choc. Les doutes étaient nombreux, mais le Grand Secte des Âmes est resté silencieux et même le Secte Gui Yi n'a fourni aucune explication. »
 

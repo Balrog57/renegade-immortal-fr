@@ -12,7 +12,7 @@ Ces cultivateurs d'élite étaient souvent choisis par le Sect Everlasting pour 
 
 Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sauta de la plateforme ; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
 
-Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du sect principal. Son niveau de culture était élevé ; il dégageait une aura de Nirvana Shatterer de stade avancé.
+Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en cultivation de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du sect principal. Son niveau de cultivation était élevé ; il dégageait une aura de Nirvana Shatterer de stade avancé.
 
 La rumeur disait qu'il était l'un des trois représentants du Sect Everlasting pour la compétition entre les sectes de rang 8. Le Sect Everlasting lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens du Sect Everlasting était allé l'instruire pendant 1 000 ans.
 
@@ -22,7 +22,7 @@ Alors qu'il avançait, les murmures s'élevèrent dans la foule.
 
 Bien que Yun Shan ne paraisse pas vieux, il cultivait depuis des millénaires. Il arriva devant Wang Lin avec calme et joignit les mains : « Cher compagnon cultivateur Lu, veuillez me donner vos conseils ! »
 
-Une fois ses mots prononcés, ses yeux brillèrent intensément et sa culture de Nirvana Shatterer de stade avancé éclata. Un vortex se forma autour de lui, prenant sa position comme centre pour balayer l'extérieur. De loin, on pouvait vaguement distinguer un immense tourbillon en rotation lente.
+Une fois ses mots prononcés, ses yeux brillèrent intensément et sa cultivation de Nirvana Shatterer de stade avancé éclata. Un vortex se forma autour de lui, prenant sa position comme centre pour balayer l'extérieur. De loin, on pouvait vaguement distinguer un immense tourbillon en rotation lente.
 
 Les ombres de neuf tigres rouges apparurent soudainement dans le vortex, et leurs rugissements firent trembler les cieux.
 
@@ -32,7 +32,7 @@ Sur la tribune où siégeait le Sect Everlasting, Feng Hai affichait une express
 
 Les autres anciens du Sect Everlasting considéraient Yun Shan comme leur égal. Ils savaient que s'il n'avait pas été désigné pour être l'un des trois compétiteurs face aux autres sectes de rang 8, il serait déjà devenu un ancien du Sect Everlasting.
 
-Le Maître du Sect Everlasting plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule culture de Nirvana Shatterer de stade avancé suffisait à afficher la puissance du Sect Everlasting.
+Le Maître du Sect Everlasting plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule cultivation de Nirvana Shatterer de stade avancé suffisait à afficher la puissance du Sect Everlasting.
 
 Lors des précédentes grandes compétitions entre les sectes de rang 8, le Sect Everlasting s'était approché du bas du classement. Cette fois, le vieil homme était convaincu que même sans victoire, ils ne seraient pas les derniers.
 
@@ -96,7 +96,7 @@ Lorsqu'il avait tué les membres du Sect de la Musique Céleste et Zhao Long, on
 
 Mais ceci était totalement différent !
 
-Le niveau de culture de Yun Shan n'était guère inférieur au leur. Ils ressentirent une amertume cuisante en réalisant que s'ils avaient été à la place de Yun Shan... ils auraient tout de même perdu !
+Le niveau de cultivation de Yun Shan n'était guère inférieur au leur. Ils ressentirent une amertume cuisante en réalisant que s'ils avaient été à la place de Yun Shan... ils auraient tout de même perdu !
 
 Plus important encore, Lu Zihao restait d'un calme olympien, comme si rien de tout cela n'était un exploit. Cela fit vaciller leurs cœurs.
 
@@ -112,6 +112,6 @@ Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara len
 
 Une voix d'homme et une voix de femme s'élevèrent simultanément. L'une venait du sud et l'autre de l'est, convergeant vers l'arène. Cependant, en se voyant, elles ne purent s'empêcher de marquer un temps d'arrêt.
 
-Wang Lin détourna son regard du ciel et dit calmement : « Venez tous les deux ensemble ! » Sa main droite s'éleva dans les airs et pressa la plateforme. L'estrade qui occupait une petite portion de la planète trembla, et c'est toute la planète de culture qui sembla vaciller. Une aura antique sembla être extraite de la planète même par Wang Lin ! Le corps de ce dernier devint une silhouette floue au cœur de cette aura.
+Wang Lin détourna son regard du ciel et dit calmement : « Venez tous les deux ensemble ! » Sa main droite s'éleva dans les airs et pressa la plateforme. L'estrade qui occupait une petite portion de la planète trembla, et c'est toute la planète de cultivation qui sembla vaciller. Une aura antique sembla être extraite de la planète même par Wang Lin ! Le corps de ce dernier devint une silhouette floue au cœur de cette aura.
 
 « Le pouvoir d'extraire l'âme d'une planète ! » s'exclama immédiatement un cultivateur, la voix tremblante de terreur.

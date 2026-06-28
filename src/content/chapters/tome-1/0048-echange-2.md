@@ -20,7 +20,7 @@ Les visages des Anciens de la Secte Heng Yue s'assombrirent. Bien qu'ils restass
 
 Sun Dazhu eut un petit rire. Il sourit et chuchota à Wang Lin : « Disciple, observe bien. Cet échange sera plus intense que les précédents. C'est la première fois que la Secte Xuan Dao ose faire preuve d'une telle arrogance. »
 
-Wang Lin parcourut du regard les disciples internes en colère, puis posa les yeux sur Liu Feng. Une couche de brume noire enveloppait encore son corps, empêchant Wang Lin de discerner son niveau de culture.
+Wang Lin parcourut du regard les disciples internes en colère, puis posa les yeux sur Liu Feng. Une couche de brume noire enveloppait encore son corps, empêchant Wang Lin de discerner son niveau de cultivation.
 
 Liu Feng, debout sur l'estrade, déclara d'un ton calme : « Frère Zhao, puisque notre Ancien l'a décrété, je n'utiliserai que 50 % de ma puissance dans ce combat. »
 

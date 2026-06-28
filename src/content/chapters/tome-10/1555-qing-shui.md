@@ -106,7 +106,7 @@ Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrê
 
 « Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Frère Aîné Qing Shui sert de fourneau pour la produire !! »
 
-« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Culture avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux sous l'ancien Empereur Céleste. Elle porte l'aura du clan de la Tortue Noire, et en tant que descendant, l'Empereur Divin n'a eu d'autre choix que de trahir les Quatre Sectes ! Seule une telle tentation pouvait le pousser à la trahison ! »
+« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Cultivation avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux sous l'ancien Empereur Céleste. Elle porte l'aura du clan de la Tortue Noire, et en tant que descendant, l'Empereur Divin n'a eu d'autre choix que de trahir les Quatre Sectes ! Seule une telle tentation pouvait le pousser à la trahison ! »
 
 « Le Frère Aîné Qing Shui est venu ici pour comprendre l'origine de sa folie. Il a dû découvrir quelque chose qui l'a rendu fou à nouveau ! Ce doigt aux sept couleurs est la source de tout cela. Le gaz rouge qu'il absorbe, c'est l'Essence du Massacre ! » Wang Lin recula, l'esprit en plein tumulte. Il saisissait enfin la vérité !
 

@@ -74,7 +74,7 @@ Le Taoïste de l'Eau inspecta le corps de Wang Lin centimètre par centimètre. 
 
 « Rien ? Le Maître avait dit que la Perle Défiant le Ciel fusionnerait avec l'âme originelle, mais son âme originelle ne contient pas la Perle... Il n'est ni la réincarnation du Maître, ni il ne possède la Perle... Me suis-je trompé de personne ?! » Le Taoïste de l'Eau fronça les sourcils en s'approchant de Wang Lin. Il leva la main et frappa violemment.
 
-Un rugissement tonitruant retentit et une fissure spatiale s'ouvrit. C'était l'espace de stockage de Wang Lin ! Le Taoïste de l'Eau utilisa sa culture stupéfiante pour ouvrir aisément cet espace. Son sens divin y pénétra.
+Un rugissement tonitruant retentit et une fissure spatiale s'ouvrit. C'était l'espace de stockage de Wang Lin ! Le Taoïste de l'Eau utilisa sa cultivation stupéfiante pour ouvrir aisément cet espace. Son sens divin y pénétra.
 
 « Si cet espace ne contient pas la Perle Défiant le Ciel, je fouillerai son âme ! » Une lueur de froideur passa dans les yeux du Taoïste de l'Eau tandis qu'il explorait l'espace de stockage de Wang Lin.
 

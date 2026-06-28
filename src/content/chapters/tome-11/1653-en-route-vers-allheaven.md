@@ -20,7 +20,7 @@ Les grondements étaient assourdissants. En un instant, les crevasses sur le con
 
 Le tremblement du continent s'intensifia à mesure que la roue tournait. De nombreux cultivateurs pâlirent et crachèrent du sang sous l'effet de la suppression. Des bruits de craquements retentissaient dans leurs corps, et leurs visages trahissaient une douleur indicible.
 
-Certains, dont le niveau de culture était plus faible, virent leur corps exploser sous la pression. Leurs âmes originelles restèrent scellées dans leurs crânes avant que ceux-ci ne soient projetés dans les airs.
+Certains, dont le niveau de cultivation était plus faible, virent leur corps exploser sous la pression. Leurs âmes originelles restèrent scellées dans leurs crânes avant que ceux-ci ne soient projetés dans les airs.
 
 Le grand temple qui avait commencé à prendre forme vacilla et se couvrit de fissures au rythme de la rotation de la roue. Bientôt, l'édifice s'effondra en ruines.
 
@@ -88,13 +88,13 @@ Wang Lin était ainsi encadré par deux roues, l'une au-dessus, l'autre en desso
 
 À Allheaven, des centaines de milliers de cultivateurs du Royaume Extérieur encerclaient la formation planétaire des 999 planètes. Les cultivateurs du Royaume Intérieur restants sur ces mondes affichaient tous une expression de douleur. Ils savaient que le Royaume Intérieur avait perdu cette guerre !
 
-Ces 999 planètes de culture avaient été choisies dans les quatre grands systèmes stellaires et constituaient le fondement même du Royaume Intérieur. Pourtant, elles ne pouvaient contenir les signes d'effondrement face aux sorts des cultivateurs du Royaume Extérieur qui les bombardaient. On aurait dit qu'elles pouvaient être détruites à tout instant.
+Ces 999 planètes de cultivation avaient été choisies dans les quatre grands systèmes stellaires et constituaient le fondement même du Royaume Intérieur. Pourtant, elles ne pouvaient contenir les signes d'effondrement face aux sorts des cultivateurs du Royaume Extérieur qui les bombardaient. On aurait dit qu'elles pouvaient être détruites à tout instant.
 
 Un rugissement fracassant qui fit vibrer l'espace lui-même retentit. L'une des planètes ne put plus supporter le bombardement et finit par s'effondrer. Une tempête balaya la zone.
 
 La croûte de la planète vola en éclats et l'océan se changea en gaz. La planète entière se scinda en d'innombrables fragments et l'âme de la planète disparut.
 
-À l'instant où la planète de culture s'effondra, les cultivateurs du Royaume Extérieur poussèrent des cris de victoire. Des centaines de milliers d'entre eux se précipitèrent, déployant divers trésors pour lancer une nouvelle attaque frénétique contre la formation planétaire.
+À l'instant où la planète de cultivation s'effondra, les cultivateurs du Royaume Extérieur poussèrent des cris de victoire. Des centaines de milliers d'entre eux se précipitèrent, déployant divers trésors pour lancer une nouvelle attaque frénétique contre la formation planétaire.
 
 De tels événements s'étaient produits maintes fois au cours des derniers mois. Bien qu'ils n'eussent pas suffi à briser la formation entière, ils avaient pu détruire de nombreuses planètes.
 

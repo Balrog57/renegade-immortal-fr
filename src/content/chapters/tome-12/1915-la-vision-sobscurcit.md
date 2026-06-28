@@ -16,11 +16,11 @@ Alors qu'il parlait, les yeux du maître de la Secte du Dao Démoniaque se rempl
 
 Car Wang Lin ne regardait pas la lumière dorée dans le ciel et avait ignoré l'édit impérial. Sans marquer de pause, il se rapprocha instantanément du maître de la Secte du Dao Démoniaque. Il leva sa main droite et frappa !
 
-Un grondement tonitruant résonna lorsque son coup atterrit. La pleine puissance de la culture de Wang Lin éclata, formant une force capable de terrifier n'importe quel cultivateur d'Exalt Doré.
+Un grondement tonitruant résonna lorsque son coup atterrit. La pleine puissance de la cultivation de Wang Lin éclata, formant une force capable de terrifier n'importe quel cultivateur d'Exalt Doré.
 
 Tuer quelqu'un sous l'autorité d'un édit impérial !
 
-Le cœur du maître de la Secte du Dao Démoniaque trembla et il recula comme un fou. Il déploya toute sa culture, et des ombres du Dao et du Démon apparurent pour le défendre.
+Le cœur du maître de la Secte du Dao Démoniaque trembla et il recula comme un fou. Il déploya toute sa cultivation, et des ombres du Dao et du Démon apparurent pour le défendre.
 
 De nouveaux fracas tonitruants retentirent alors que le coup de Wang Lin brisait l'ombre du Dao et faisait s'effondrer l'ombre du Démon. Son poing s'écrasa contre la poitrine du maître de la Secte du Dao Démoniaque.
 
@@ -38,7 +38,7 @@ Un fracas assourdissant retentit et toutes les sphères de foudre se désintégr
 
 « L'édit impérial est là. Si tu me tues, tu mourras sans aucun doute ! » Le maître de la Secte du Dao Démoniaque était dans un état pitoyable, un brouillard de sang jaillissant de son corps. L'onde de choc du coup de Wang Lin se propageait encore en lui, l'épuisant presque totalement.
 
-Sa culture ne faisait pas le poids face à celle de Wang Lin !
+Sa cultivation ne faisait pas le poids face à celle de Wang Lin !
 
 « Tu oses commettre un meurtre avant même la proclamation de l'édit ? Quelle arrogance ! Je suis le messager impérial chargé d'annoncer cet édit. Ne pas reculer, c'est défier l'autorité impériale ! » La silhouette dorée vit Wang Lin et rugit immédiatement avant de se précipiter vers lui !
 
@@ -54,9 +54,9 @@ Dans un fracas de tonnerre, l'empreinte géante entra en collision avec le ridea
 
 Alors que les grondements assourdissants étouffaient tous les autres sons du monde, le messager impérial recracha du sang et fut repoussé de mille pieds. Il parvint à peine à s'arrêter, crachant à nouveau du sang, le regard chargé d'incrédulité face à Wang Lin.
 
-« Empyrean... Une culture d'Empyrean Exalt !! »
+« Empyrean... Une cultivation d'Empyrean Exalt !! »
 
-Wang Lin avait forcé le messager impérial à reculer d'un seul coup de paume. Sa culture explosa et un vent noir enveloppa son corps, entrant en collision avec les neuf couteaux noirs. Dans un fracas de tonnerre, les neuf lames furent pulvérisées.
+Wang Lin avait forcé le messager impérial à reculer d'un seul coup de paume. Sa cultivation explosa et un vent noir enveloppa son corps, entrant en collision avec les neuf couteaux noirs. Dans un fracas de tonnerre, les neuf lames furent pulvérisées.
 
 Wang Lin fit un pas en avant et se retrouva instantanément aux côtés du maître de la Secte du Dao Démoniaque. La terreur envahit le regard de ce dernier alors que la main droite de Wang Lin s'abattait sur sa poitrine !
 

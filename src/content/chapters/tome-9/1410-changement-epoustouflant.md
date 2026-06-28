@@ -78,7 +78,7 @@ Dans l'Essai Humain, le corps de Wang Lin émettait toujours une lueur rouge et 
 
 Un orgueil indicible, une attitude inexplicable face à la vie, une noblesse transcendante envers le ciel et le Dao céleste, et une quête insaisissable pour une simple pensée... Tout cela fusionnait dans le rire de Wang Lin pour former un son défiant les lois du destin !
 
-Alors que son rire résonnait, deux mille ans de culture défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, la nuit de pluie où on lui avait arraché sa famille... Toutes ces scènes traversèrent son esprit.
+Alors que son rire résonnait, deux mille ans de cultivation défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, la nuit de pluie où on lui avait arraché sa famille... Toutes ces scènes traversèrent son esprit.
 
 Tandis que ces souvenirs refaisaient surface, le feu orange se précipita dans le corps de Wang Lin, croisant la route de la lumière rouge.
 

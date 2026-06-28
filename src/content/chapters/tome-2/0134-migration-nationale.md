@@ -8,7 +8,7 @@ slug: migration-nationale
 ---
 Cependant, alors qu'il poursuivait Sun Youcai et qu'il rencontra les bêtes de feu, le démon réussit à s'échapper. Dès que Wang Lin sortit du volcan, il utilisa son sens divin pour traquer la créature.
 
-Après avoir dévoré tant de mortels, le démon avait recouvré un niveau de culture atteignant le sommet de l'Établissement des Fondations et était entré dans le stade pseudo-Formation du Noyau. Convaincu d'être désormais plus fort que Wang Lin, il lança l'attaque.
+Après avoir dévoré tant de mortels, le démon avait recouvré un niveau de cultivation atteignant le sommet de l'Établissement des Fondations et était entré dans le stade pseudo-Formation du Noyau. Convaincu d'être désormais plus fort que Wang Lin, il lança l'attaque.
 
 Le regard de Wang Lin devint glacial tandis que des éclairs rouges jaillissaient de ses yeux. Le démon poussa soudain un cri lorsque la foudre le frappa. Il interrompit brusquement son assaut et recula. Comment Wang Lin pouvait-il le laisser s'enfuir ? D'un pas en avant, il tendit la main pour saisir le vide. La technique d'attraction se déclencha et captura le démon.
 
@@ -24,7 +24,7 @@ Wang Lin frappa son sac de rangement et le morceau de métal apparut. Sans même
 
 Wang Lin contempla les corps des mortels dévorés par le démon et réfléchit un instant. Sa mentalité actuelle était radicalement différente de celle qu'il avait à Zhao. Autrefois, la nature candide d'un simple villageois était encore ancrée en lui, mais après la mort de sa famille, cette innocence s'était évanouie.
 
-Le monde de la culture est celui où les forts règnent. S'il ne pouvait même pas protéger lui-même et sa famille, quel droit avait-il à la compassion ?
+Le monde de la cultivation est celui où les forts règnent. S'il ne pouvait même pas protéger lui-même et sa famille, quel droit avait-il à la compassion ?
 
 Situ Nan avait toujours voulu qu'il emprunte la voie démoniaque, mais Wang Lin l'avait toujours refusée. Pourtant, après être mort une fois, il n'avait plus aucune raison de s'y opposer.
 
@@ -36,7 +36,7 @@ Une heure plus tard, la grotte était achevée. Wang Lin y pénétra, utilisa le
 
 Une fois tout cela terminé, il s'assit au sol, sortit les sacs de rangement obtenus auprès de l'homme d'âge moyen et de Sun Youcai, et les fouilla. Il en retira trois fragments de jade.
 
-Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de culture de la Secte Démoniaque nommée Méthode de Culture sans Restraint.
+Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de cultivation de la Secte Démoniaque nommée Méthode de Cultivation sans Restraint.
 
 La Secte Démoniaque était l'une des sectes maléfiques de Hou Fen, et leur pratique donnaitrait la chair de poule. Cette méthode possédait six niveaux et se concentrait sur la cruauté.
 
@@ -44,11 +44,11 @@ Les instructions du jade étaient les suivantes : Tuer quelqu'un, puis raffiner 
 
 La pratique exigeait une condition stricte au début : tuer une personne par jour. Il devina que l'homme d'âge moyen pratiquait cette méthode et que ce jade provenait de son sac.
 
-Wang Lin n'avait aucun intérêt pour cette culture, mais certaines techniques l'intriguèrent. Bien que ces arts démoniaques fussent cruels, ils étaient très pratiques.
+Wang Lin n'avait aucun intérêt pour cette cultivation, mais certaines techniques l'intriguèrent. Bien que ces arts démoniaques fussent cruels, ils étaient très pratiques.
 
 Il prit un deuxième jade. Son contenu le fit sourire. Une seule technique y était enregistrée : la Technique d'Évasion Terrestre.
 
-Cette technique faisait partie des Cinq Techniques d'Évasion Élémentaires. Ces dernières étaient extrêmement célèbres dès l'ère de l'ancien monde de la culture. Depuis l'apparition du Confluent de la Culture, elles étaient devenues rarissimes.
+Cette technique faisait partie des Cinq Techniques d'Évasion Élémentaires. Ces dernières étaient extrêmement célèbres dès l'ère de l'ancien monde de la cultivation. Depuis l'apparition du Confluent de la Cultivation, elles étaient devenues rarissimes.
 
 Cependant, les Cinq Techniques d'Évasion Élémentaires étaient si célèbres que d'innombrables branches en avaient dérivé. La plupart utilisaient le nom sans pour autant différer des autres types de techniques d'évasion.
 
@@ -64,11 +64,11 @@ Il saisit nonchalamment le troisième jade pour l'examiner. Celui-ci contenait l
 
 Il contenait également des détails sur ses relations complexes avec plusieurs femmes.
 
-Wang Lin balaya ces informations d'un revers. Ce qui l'intéressait, c'était le récapitulatif de toutes les pilules que Sun Youcai avait consommées au cours des dix dernières années. Le jade détaillait plus de dix types de pilules, précisant leurs effets sur le corps, la quantité d'énergie spirituelle fournie et la rapidité avec laquelle elles augmentaient le niveau de culture.
+Wang Lin balaya ces informations d'un revers. Ce qui l'intéressait, c'était le récapitulatif de toutes les pilules que Sun Youcai avait consommées au cours des dix dernières années. Le jade détaillait plus de dix types de pilules, précisant leurs effets sur le corps, la quantité d'énergie spirituelle fournie et la rapidité avec laquelle elles augmentaient le niveau de cultivation.
 
 En outre, il mentionnait sept ou huit pilules qu'il convoitait ardemment sans pouvoir les obtenir. Ensuite, il poursuivit l'inspection des sacs de rangement.
 
-Hormis quelques flacons de pilules, Sun Youcai ne possédait aucun trésor magique. Si c'était auparavant, Wang Lin aurait été méfiant, mais après avoir lu ses journaux, il comprit que Sun Youcai avait tout troqué contre des pilules pour accroître sa culture.
+Hormis quelques flacons de pilules, Sun Youcai ne possédait aucun trésor magique. Si c'était auparavant, Wang Lin aurait été méfiant, mais après avoir lu ses journaux, il comprit que Sun Youcai avait tout troqué contre des pilules pour accroître sa cultivation.
 
 L'homme d'âge moyen vêtu de noir possédait une chose qui attira l'attention de Wang Lin : un papier jaune marqué d'un symbole noir. Le symbole dégageait des vagues d'une aura puissante.
 
@@ -180,9 +180,9 @@ Dès cet instant, tout le pays de Hou Fen sombra dans le chaos. Les premiers tou
 
 Virent ensuite les petites et moyennes sectes ainsi que les familles, qui tournèrent leurs regards vers les quatre grandes sectes pour savoir si elles allaient combattre ou s'enfuir.
 
-Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuaire du Dieu de la Guerre. Après avoir rapporté la nouvelle au pays de culture supérieur, ils ordonnèrent la migration.
+Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuaire du Dieu de la Guerre. Après avoir rapporté la nouvelle au pays de cultivation supérieur, ils ordonnèrent la migration.
 
-Après tout, il y avait le risque qu'un pays de culture de rang 4 n'apparaisse à tout moment. Même en cas de victoire, leurs pertes seraient si lourdes qu'ils risqueraient de retomber au rang 2.
+Après tout, il y avait le risque qu'un pays de cultivation de rang 4 n'apparaisse à tout moment. Même en cas de victoire, leurs pertes seraient si lourdes qu'ils risqueraient de retomber au rang 2.
 
 À la frontière de Hou Fen se trouvait le pays de Xuan Wu. Comparé à Hou Fen, Xuan Wu était bien plus chaotique en raison de sa densité de sectes.
 

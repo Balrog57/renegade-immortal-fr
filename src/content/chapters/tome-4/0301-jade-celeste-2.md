@@ -80,7 +80,7 @@ La vitesse de leur retraite ne suffisait pas à distancer les éclats ; après s
 
 La tête de ce dernier se retourna soudainement avec une expression moqueuse. Sa main saisit rapidement celle du troisième frère aîné et il dit : « Troisième frère aîné, que comptiez-vous faire ? »
 
-À cet instant, son aura changea brusquement. Son niveau de culture passa de celui d'un cultivateur venant tout juste d'entrer au début du stade de la Formation de l'Âme à celui du milieu du stade de la Formation de l'Âme. Il s'empara prestement de la sacoche et de l'épée du troisième frère aîné avant de le projeter vers la nuée de nourritures pour bêtes célestes.
+À cet instant, son aura changea brusquement. Son niveau de cultivation passa de celui d'un cultivateur venant tout juste d'entrer au début du stade de la Formation de l'Âme à celui du milieu du stade de la Formation de l'Âme. Il s'empara prestement de la sacoche et de l'épée du troisième frère aîné avant de le projeter vers la nuée de nourritures pour bêtes célestes.
 
 « Tu... » L'expression du troisième frère aîné se décomposa, mais avant qu'il ne puisse achever sa phrase, l'essaim d'éclats s'engouffra dans son corps. En un instant, le corps d'un cultivateur au début de la Formation de l'Âme fut transformé en squelette.
 

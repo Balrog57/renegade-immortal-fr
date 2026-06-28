@@ -18,7 +18,7 @@ Cependant, Wang Lin avait compris le Tonnerre du Cœur dans l'Ancienne Tombe, et
 
 Désormais, ils étaient à égalité !
 
-Bien que Wang Lin fût issu du monde des grottes, avec son niveau de culture, il n'était pas faible, même sur le Continent Astral Immortel ! Il sortit de la grotte alors que les quatre Anciens se précipitaient à l'intérieur. Sa main s'abattit vers le sol.
+Bien que Wang Lin fût issu du monde des grottes, avec son niveau de cultivation, il n'était pas faible, même sur le Continent Astral Immortel ! Il sortit de la grotte alors que les quatre Anciens se précipitaient à l'intérieur. Sa main s'abattit vers le sol.
 
 La terre de toute la Secte du Dragon Bleu trembla et le feu souterrain jaillit avec fracas. Les flammes jaillirent de la grotte, plus intenses encore qu'auparavant.
 
@@ -26,7 +26,7 @@ Wang Lin utilisa le sort qui permettait d'extraire les âmes des montagnes et de
 
 L'ensemble du Continent du Taureau Céleste contenait un vaste réseau de veines de feu terrestre qui se ramifiaient dans de nombreuses directions. Cela ressemblait à une immense formation scellant une certaine existence.
 
-Avec le niveau de culture de Wang Lin, il ne pouvait extraire l'âme de la veine principale, mais la branche située sous la Secte du Dragon Bleu gronda bruyamment.
+Avec le niveau de cultivation de Wang Lin, il ne pouvait extraire l'âme de la veine principale, mais la branche située sous la Secte du Dragon Bleu gronda bruyamment.
 
 Alors que le grondement résonnait et que les flammes surgissaient, les expressions des dizaines de milliers de cultivateurs et des quatre Anciens changèrent radicalement. À l'instant même où les quatre Anciens pénétrèrent dans la grotte, ils virent Wang Lin entouré de feu. Sous la main de Wang Lin se dessinait une tête de dragon gigantesque, déjà trop immense pour que la montagne puisse la contenir !
 
@@ -52,7 +52,7 @@ Un tel individu, un tel élan, et un tel dragon de feu... c'était une force con
 
 Les quatre Anciens furent projetés en arrière. L'impact du feu terrestre et la puissance de l'âme de la veine étaient des forces que les quatre ne pouvaient contenir. Ils durent battre en retraite !
 
-Bien que leur niveau de culture ne fût pas bas, ils n'étaient que des fourmis face à Wang Lin et au dragon de feu !
+Bien que leur niveau de cultivation ne fût pas bas, ils n'étaient que des fourmis face à Wang Lin et au dragon de feu !
 
 C'était Wang Lin !
 
@@ -68,7 +68,7 @@ Le corps de 100 000 pieds du dragon de feu apparut et emporta Wang Lin vers les 
 
 « Nous ne pouvons pas le laisser partir ! Le Vieil Ancêtre est en route et sera bientôt ici. Nous devons juste le retenir un instant ! » L'homme d'âge moyen, le visage blême, poussa un rugissement rauque et chargea vers Wang Lin.
 
-Les trois autres serrèrent les dents et se précipitèrent désespérément. Bien qu'ils fussent terrifiés, ils craignaient encore plus la colère du Vieil Ancêtre. Si celui-ci s'emportait, même leur culture de Vide Nirvana ne suffirait pas à les protéger.
+Les trois autres serrèrent les dents et se précipitèrent désespérément. Bien qu'ils fussent terrifiés, ils craignaient encore plus la colère du Vieil Ancêtre. Si celui-ci s'emportait, même leur cultivation de Vide Nirvana ne suffirait pas à les protéger.
 
 La Secte du Dragon Bleu était presque détruite à ce stade. On pouvait imaginer la fureur du Vieil Ancêtre à son retour.
 
@@ -86,7 +86,7 @@ L'homme et la femme s'élancèrent également, se transformant tous deux en drag
 
 Le corps de l'homme fut enveloppé par une masse de vapeur, mais tout s'évapora instantanément. Ses cheveux commencèrent à brûler et des plaques de feu apparurent sur sa peau. Ce feu ne blessait pas seulement son corps, mais aussi son âme originelle et son esprit. Après tout, il ne s'agissait pas d'un feu terrestre ordinaire, mais de l'âme d'une veine de feu !
 
-L'âme d'une branche de la veine de feu terrestre était une force qu'il ne pouvait surmonter ! Sans parler de la culture terrifiante de Wang Lin qui rendait l'impact du dragon encore plus puissant !
+L'âme d'une branche de la veine de feu terrestre était une force qu'il ne pouvait surmonter ! Sans parler de la cultivation terrifiante de Wang Lin qui rendait l'impact du dragon encore plus puissant !
 
 L'homme d'âge moyen ne tint pas un souffle. Il eut l'impression d'être plongé dans le creuset des cieux et de la terre. S'il ne reculait pas, il serait réduit en cendres !
 

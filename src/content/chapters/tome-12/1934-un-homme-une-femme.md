@@ -16,7 +16,7 @@ Le membre brisé croît de façon fulgurante et, en un instant, il mesurait 100 
 
 Une fois que la paume brisée eut atteint une taille telle qu'elle engloutissait le rideau, ce dernier trembla violemment. Des ondulations se propagèrent et le rideau devint totalement obscur, sans la moindre trace de lumière.
 
-Malgré cela, tant que Wang Lin et l'Exalt Émérite Hai Zi concentraient leur culture dans leurs yeux, ils pouvaient tout voir distinctement. Wang Lin réfléchissait silencieusement et remarqua que ses cheveux flottaient légèrement sous l'effet du vent.
+Malgré cela, tant que Wang Lin et l'Exalt Émérite Hai Zi concentraient leur cultivation dans leurs yeux, ils pouvaient tout voir distinctement. Wang Lin réfléchissait silencieusement et remarqua que ses cheveux flottaient légèrement sous l'effet du vent.
 
 Les yeux de l'Exalt Émérite Hai Zi s'illuminèrent et elle déclara lentement : « Elle a dévoré mon rideau de lumière protecteur et se déplace rapidement ! »
 
@@ -42,7 +42,7 @@ Le silence s'installa, et le temps s'écoula rapidement. En un clin d'œil, troi
 
 Durant ces trois jours, les deux ne se parlèrent pas. L'Exalt Émérite Hai Zi levait les yeux vers le rideau de lumière, le regard empreint d'incertitude. Quant à Wang Lin, il avait fermé les yeux pour cultiver. Il sortit les Esprits de l'Arbre de la Mer et de la Montagne et commença à les absorber.
 
-Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalt Émérite Hai Zi ne put s'empêcher de demander : « Votre culture est très étrange. Vous êtes clairement au début du stade de Tribulation du Vide, et pourtant vous possédez la puissance d'un Exalt Émérite. Bien que l'Esprit de l'Arbre de la Mer et de la Montagne puisse aider un cultivateur à former une essence de bois, au stade de Tribulation du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de culture. À quoi bon ? »
+Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalt Émérite Hai Zi ne put s'empêcher de demander : « Votre cultivation est très étrange. Vous êtes clairement au début du stade de Tribulation du Vide, et pourtant vous possédez la puissance d'un Exalt Émérite. Bien que l'Esprit de l'Arbre de la Mer et de la Montagne puisse aider un cultivateur à former une essence de bois, au stade de Tribulation du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de cultivation. À quoi bon ? »
 
 Wang Lin n'entra pas dans de longues explications. Il ouvrit les yeux, jeta un regard à l'Exalt Émérite Hai Zi et dit calmement : « Je ne suis pas comme vous. »
 
@@ -58,7 +58,7 @@ Devant l'inertie de Wang Lin, les beaux yeux de l'Exalt Émérite Hai Zi se fix�
 
 Wang Lin ouvrit les yeux et regarda l'Exalt Émérite Hai Zi avec une certaine impuissance.
 
-« Je pense que cet environnement serait idéal pour la culture si vous cessiez de m'interrompre. »
+« Je pense que cet environnement serait idéal pour la cultivation si vous cessiez de m'interrompre. »
 
 « Vous !! » L'Exalt Émérite Hai Zi se leva brusquement dans un bruit de mépris. Son corps gracieux tourna le dos et elle s'éloigna à plus de 10 000 pieds, ignorant Wang Lin.
 
@@ -82,7 +82,7 @@ Wang Lin ouvrit les yeux. Il n'avait pas vu l'Exalt Émérite Hai Zi depuis quat
 
 Wang Lin répondit calmement : « Il y a trois possibilités. Premièrement : la paume brisée est allée dans un lieu indétectable, où même la divination ne peut l'atteindre. Deuxièmement : votre Maître n'est pas venu vous sauver immédiatement comme vous le pensiez. »
 
-« Impossible ! Si Maître savait que j'étais en danger, il serait venu à l'instant même ! Quant à votre première possibilité, elle est tout aussi invraisemblable. Avec le niveau de culture de Maître, il ne devrait exister aucun endroit au sein du clan céleste qu'il ne puisse diviner ! » s'exclama l'Exalt Émérite Hai Zi. Puis, elle regarda Wang Lin et hésita un instant avant de poursuivre : « Vous l'avez sans doute deviné... mon Maître est le Grand Exalt Émérite Jiu Di ! »
+« Impossible ! Si Maître savait que j'étais en danger, il serait venu à l'instant même ! Quant à votre première possibilité, elle est tout aussi invraisemblable. Avec le niveau de cultivation de Maître, il ne devrait exister aucun endroit au sein du clan céleste qu'il ne puisse diviner ! » s'exclama l'Exalt Émérite Hai Zi. Puis, elle regarda Wang Lin et hésita un instant avant de poursuivre : « Vous l'avez sans doute deviné... mon Maître est le Grand Exalt Émérite Jiu Di ! »
 
 L'expression de Wang Lin resta imperturbable ; il n'était pas surpris. Lorsqu'elle avait montré ce flacon marqué du nom « Di », il avait déjà eu ses soupçons. Prendre un Exalt Émérite pour disciple et en faire sa confidente signifiait que son Maître devait posséder une puissance phénoménale.
 
@@ -118,4 +118,4 @@ Wang Lin s'en sortait mieux, étant habitué à la solitude. Il profita de ce te
 
 Cependant, après huit mois de silence, l'Exalt Émérite Hai Zi ouvrit ses beaux yeux pour regarder Wang Lin. L'homme devant elle lui inspirait de la haine, mais éveillait aussi en elle un sentiment complexe.
 
-L'Exalt Émérite Hai Zi dit doucement : « Depuis que j'ai commencé ma culture, je n'ai jamais vécu un an entière avec un étranger. Vous... Je ne connais que votre nom, Wang Lin, car c'est ce que vous m'avez dit. De quelle secte venez-vous ? »
+L'Exalt Émérite Hai Zi dit doucement : « Depuis que j'ai commencé ma cultivation, je n'ai jamais vécu un an entière avec un étranger. Vous... Je ne connais que votre nom, Wang Lin, car c'est ce que vous m'avez dit. De quelle secte venez-vous ? »

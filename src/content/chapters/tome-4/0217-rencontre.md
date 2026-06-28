@@ -12,9 +12,9 @@ Une fois son corps principal apparu, son avatar prit une profonde inspiration et
 
 Peu après, les yeux de Wang Lin projetèrent une lueur glaciale et son corps dégagea une intention meurtrière d'une puissance redoutable. Après toutes ces années passées dans le pays de Chu, son instinct de tueur n'avait pas faibli d'un iota. Pour l'instant, il ne manifestait qu'une infime partie de cette intention meurtrière, et quant à sa nature maléfique, il la dissimulait totalement.
 
-Wang Lin réfléchit un instant. Il fit un mouvement et un masque apparut sur son visage tandis que ses vêtements se transformaient pour ressembler à ceux de son avatar. Puis, il quitta rapidement la pièce, sentant clairement que sa culture avait légèrement progressé.
+Wang Lin réfléchit un instant. Il fit un mouvement et un masque apparut sur son visage tandis que ses vêtements se transformaient pour ressembler à ceux de son avatar. Puis, il quitta rapidement la pièce, sentant clairement que sa cultivation avait légèrement progressé.
 
-Il faut dire qu'il avait déjà atteint le sommet de la Formation du Noyau. Sa culture, qui semblait autrefois impossible à accroître, avait tout de même progressé. Bien qu'il n'en fût pas encore au stade où son noyau se briserait pour former son Âme Naissante, une lueur d'énergie violette scintillait désormais au cœur de celui-ci.
+Il faut dire qu'il avait déjà atteint le sommet de la Formation du Noyau. Sa cultivation, qui semblait autrefois impossible à accroître, avait tout de même progressé. Bien qu'il n'en fût pas encore au stade où son noyau se briserait pour former son Âme Naissante, une lueur d'énergie violette scintillait désormais au cœur de celui-ci.
 
 Wang Lin savait que lors de la tentative de percée vers l'Âme Naissante, cette énergie violette apparaîtrait. On pouvait l'appeler l'Énergie Naissante, car elle était la clé indispensable pour atteindre ce stade.
 
@@ -26,7 +26,7 @@ Mais aujourd'hui, cette énergie violette était là et son Royaume Ji ne l'atta
 
 En ajoutant à cela ses diverses techniques, ses trésors et l'héritage de l'Ancien Dieu, il n'aurait plus à craindre de combattre un cultivateur de la Séparation de l'Esprit, tout comme il ne craignait pas de lutter contre un cultivateur de l'Âme Naissante en ce moment même.
 
-Wang Lin prit une profonde inspiration. Sans rester immobile, il se déplaça tel un fantôme jusqu'au corps du singe spirituel. Il s'apprêtait à s'occuper de la dépouille quand son regard se fixa soudainement sur l'animal. Il pensa : « Pas étonnant, c'est une bête spirituelle de rang supérieur. Avec le niveau de culture de mon avatar, je n'aurais pas pu percevoir que son âme était encore présente. »
+Wang Lin prit une profonde inspiration. Sans rester immobile, il se déplaça tel un fantôme jusqu'au corps du singe spirituel. Il s'apprêtait à s'occuper de la dépouille quand son regard se fixa soudainement sur l'animal. Il pensa : « Pas étonnant, c'est une bête spirituelle de rang supérieur. Avec le niveau de cultivation de mon avatar, je n'aurais pas pu percevoir que son âme était encore présente. »
 
 Wang Lin leva sa main droite, la pressa au-dessus de la tête du singe et déclara : « Puisque nos chemins se sont déjà croisés, je vais te sauver une fois. À partir d'aujourd'hui, tu seras mon troisième démon ! »
 
@@ -62,7 +62,7 @@ Une lueur froide passa dans ses yeux. Elle tenta d'avancer, mais une silhouette 
 
 Il regarda Li Muwan avec une légère surprise et dit : « Sœur cadette, tu ne m'as pas dit où tu comptais aller. Oh ? Il est rare de te voir si pressée. »
 
-Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en contenant la poussée du Sens Divin qui menaçait de déborder de son corps. Elle lâcha, d'un ton glacial et sans détour : « Sun Zhenwei, penses-tu vraiment qu'avec ta culture au stade avancé de la Formation du Noyau, tu puisses m'arrêter ? Si tu ne t'écartes pas immédiatement, ne me reproche pas mon impitoyabilité. »
+Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en contenant la poussée du Sens Divin qui menaçait de déborder de son corps. Elle lâcha, d'un ton glacial et sans détour : « Sun Zhenwei, penses-tu vraiment qu'avec ta cultivation au stade avancé de la Formation du Noyau, tu puisses m'arrêter ? Si tu ne t'écartes pas immédiatement, ne me reproche pas mon impitoyabilité. »
 
 L'homme afficha un sourire empreint de douceur : « Sœur cadette, nous sommes dans la Secte Ciel Nuage. Comment oserais-je te barrer le passage ? Dis-moi, où vas-tu ? Je serais ravi de t'accompagner. »
 

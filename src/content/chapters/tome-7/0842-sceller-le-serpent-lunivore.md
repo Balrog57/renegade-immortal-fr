@@ -70,7 +70,7 @@ Le son de la cloche portait une puissance phénoménale. En résonnant, elle int
 
 Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Antique devenu presque tangible. Le premier à affronter cette menace fut Li Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière ! Pourtant, après avoir parcouru une centaine de pieds, les yeux de Li Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau !
 
-Son niveau de culture était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Antique, mais son âme originelle fut endommagée !
+Son niveau de cultivation était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Antique, mais son âme originelle fut endommagée !
 
 Le doigt du Dieu Antique ne ralentit pas sa course. Le vieil homme en robe rouge poussa un cri et se transforma en un nuage de sang qui fusionna avec la formation. La formation octogonale rouge percuta alors le doigt du Dieu Antique !
 
@@ -92,7 +92,7 @@ Un rugissement de tonnerre, faisant écho dans tout le Domaine Nord, retentit. L
 
 L'aigle de l'homme en robe noire s'effondra et fut repoussé. Des craquements sinistres émanèrent de l'ancêtre de la famille Shengong. Son visage devint pâle et il cracha du sang tout en reculant précipitamment.
 
-La formation octogonale du vieil homme en robe rouge se brisa et il parut affaibli. Il tituba dans sa retraite, le visage étrangement dépourvu de trace de sang. Le plus durement touché fut le Daoïste aux Cinq Couleurs, dont la culture était la plus faible des cinq. Une fois son sort brisé, son corps émit des bruits de craquement et il cracha sans cesse du sang tout en battant en retraite.
+La formation octogonale du vieil homme en robe rouge se brisa et il parut affaibli. Il tituba dans sa retraite, le visage étrangement dépourvu de trace de sang. Le plus durement touché fut le Daoïste aux Cinq Couleurs, dont la cultivation était la plus faible des cinq. Une fois son sort brisé, son corps émit des bruits de craquement et il cracha sans cesse du sang tout en battant en retraite.
 
 Les cinq étaient gravement blessés !
 

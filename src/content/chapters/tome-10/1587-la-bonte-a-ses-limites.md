@@ -46,7 +46,7 @@ Parallèlement, le sang doré condensé de son corps céleste n'avait pas été 
 
 Wang Lin choisirait plutôt de le raffiner en un trésor, un Trésor Céleste ! Il intégrerait ensuite ce trésor à son corps pour profiter de sa puissance tout en évitant le problème de la force de rejet.
 
-Lorsque le fou lui avait imposé cette fortune, il n'avait eu d'autre choix que de l'absorber. S'il avait pu choisir, il n'aurait jamais tenté de fusionner les pouvoirs anciens et célestes avec son niveau de culture actuel. Même dans le monde du fou, personne n'avait jamais essayé une telle prouesse.
+Lorsque le fou lui avait imposé cette fortune, il n'avait eu d'autre choix que de l'absorber. S'il avait pu choisir, il n'aurait jamais tenté de fusionner les pouvoirs anciens et célestes avec son niveau de cultivation actuel. Même dans le monde du fou, personne n'avait jamais essayé une telle prouesse.
 
 Tenter de le faire de force ne menait qu'à la mort !
 
@@ -64,7 +64,7 @@ Dans la Mer des Nuages, Maître Hong Shan était en train de raffiner le cultiva
 
 Au moment de sa disparition, le maître de Zhong Xuan s'éveilla également. Ses pupilles se contractèrent et il fusionna rapidement avec le monde.
 
-Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing Lin était en culture fermée pour guérir. Il se trouvait dans une pièce secrète entourée d'une brume aux lueurs tamisées. Soudain, il ouvrit les yeux, sous le choc.
+Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing Lin était en cultivation fermée pour guérir. Il se trouvait dans une pièce secrète entourée d'une brume aux lueurs tamisées. Soudain, il ouvrit les yeux, sous le choc.
 
 « Le Souverain ! » Son visage s'assombrit et sa main droite déchira l'espace devant lui. Il disparut en un instant.
 

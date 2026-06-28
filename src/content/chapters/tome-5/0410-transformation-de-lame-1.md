@@ -8,9 +8,9 @@ slug: transformation-de-lame-1
 ---
 Le voyage de Zhou Ru pour retrouver son oncle se poursuivait. Ignorant les raisons du départ de ce dernier, elle souhaitait trouver Wang Lin pour lui demander des explications.
 
-À cet instant, Wang Lin se trouvait au sommet d'une montagne, entouré de toutes les pierres célestes qu'il possédait. Assis au centre du cercle formé par ces gemmes, il fit taire ses pensées pour se concentrer pleinement sur sa culture.
+À cet instant, Wang Lin se trouvait au sommet d'une montagne, entouré de toutes les pierres célestes qu'il possédait. Assis au centre du cercle formé par ces gemmes, il fit taire ses pensées pour se concentrer pleinement sur sa cultivation.
 
-Le niveau de culture actuel de Wang Lin avait atteint le sommet du stade de la Formation de l'Âme et son domaine était parvenu à sa perfection ; il devait désormais franchir l'étape de la Transformation de l'Âme.
+Le niveau de cultivation actuel de Wang Lin avait atteint le sommet du stade de la Formation de l'Âme et son domaine était parvenu à sa perfection ; il devait désormais franchir l'étape de la Transformation de l'Âme.
 
 La Transformation de l'Âme est un objectif que tous les cultivateurs poursuivent. Une fois ce stade atteint, leurs domaines peuvent se matérialiser, portant leur puissance à un degré inimaginable. De plus, ils deviennent capables d'absorber l'énergie spirituelle céleste. Cela signifie que toutes leurs techniques et leurs sorts seront imprégnés de cette énergie, les rendant infiniment plus redoutables.
 
@@ -34,7 +34,7 @@ Comparé aux précédentes absorptions, le processus était bien moins douloureu
 
 Le corps de Wang Lin regorgeait d'énergie spirituelle ; au début, face à une faible quantité d'énergie céleste, celle-ci fut immédiatement repoussée. Cependant, au fil du temps, l'afflux croissant de l'énergie céleste finit par briser la résistance de l'énergie ordinaire. Bien que la quantité d'énergie spirituelle fût encore supérieure, la différence de qualité était abyssale : un seul brin d'énergie spirituelle céleste équivalait à toute l'énergie d'un cultivateur au stade de la Formation du Noyau. Par conséquent, l'énergie spirituelle fut naturellement refoulée.
 
-Lorsqu'un cultivateur passe de la Formation de l'Âme à la Transformation de l'Âme, son énergie subit l'un des deux changements suivants. La première méthode consiste à expulser toute l'énergie spirituelle du corps pour ne conserver que l'énergie céleste, déclenchant ainsi la transformation et la percée. C'est la voie la plus simple, choisie par la majorité. Cependant, toute l'énergie spirituelle est alors gaspillée et devra être recultivée de zéro, ce qui rend la culture instable durant les premiers stades de la Transformation de l'Âme. Cette méthode exige également cent ans de méditation en vase clos pour stabiliser le corps.
+Lorsqu'un cultivateur passe de la Formation de l'Âme à la Transformation de l'Âme, son énergie subit l'un des deux changements suivants. La première méthode consiste à expulser toute l'énergie spirituelle du corps pour ne conserver que l'énergie céleste, déclenchant ainsi la transformation et la percée. C'est la voie la plus simple, choisie par la majorité. Cependant, toute l'énergie spirituelle est alors gaspillée et devra être recultivée de zéro, ce qui rend la cultivation instable durant les premiers stades de la Transformation de l'Âme. Cette méthode exige également cent ans de méditation en vase clos pour stabiliser le corps.
 
 La seconde méthode consiste à raffiner l'énergie spirituelle interne jusqu'à ce qu'elle atteigne la même qualité que l'énergie céleste. C'est une voie extrêmement ardue qui nécessite un raffinage constant. Mais en cas de succès, elle offre un avantage immense : le cultivateur n'aura pas besoin de cent ans de méditation pour stabiliser son corps et pourra progresser avec une vitesse fulgurante dès les premiers stades de la Transformation de l'Âme.
 

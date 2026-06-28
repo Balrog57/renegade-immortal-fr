@@ -26,17 +26,17 @@ Le mouvement ébranlait les cieux et la terre ; le calme scellait l'étoile pour
 
 Non seulement lui, mais tous les vieux monstres et cultivateurs qui connaissaient cette technique furent frappés de stupeur. Ils n'osaient croire que ce qu'ils voyaient était réel !
 
-« La rumeur dit que les planètes de culture possèdent une âme. Si la culture d'un être atteint un certain niveau et que sa compréhension des cieux est profonde, il peut extraire l'âme de la planète pour s'en servir comme un sort ! »
+« La rumeur dit que les planètes de cultivation possèdent une âme. Si la cultivation d'un être atteint un certain niveau et que sa compréhension des cieux est profonde, il peut extraire l'âme de la planète pour s'en servir comme un sort ! »
 
 « Des rumeurs circulaient à ce sujet avant l'effondrement du Royaume Céleste du Vent, mais rien ne permettait de prouver l'existence d'un tel sort. Ce Lu Zihao... il peut vraiment le faire. Cette énergie originelle et cette aura antique correspondent parfaitement aux registres anciens. Il n'y a aucun doute, c’est bien l'extraction de l'âme planétaire ! »
 
-L'expression de Wang Lin demeurait sereine. Alors que deux personnes s'élançaient, sa main droite semblait avoir saisi la planète de culture tout entière pour la soulever soudainement !
+L'expression de Wang Lin demeurait sereine. Alors que deux personnes s'élançaient, sa main droite semblait avoir saisi la planète de cultivation tout entière pour la soulever soudainement !
 
-En un instant, la terre émit un grondement sourd. S’il était silencieux, c’est qu’il n’était pas audible par l'oreille, mais parfaitement perceptible par les sens. La terre, cette planète de culture, tremblait !
+En un instant, la terre émit un grondement sourd. S’il était silencieux, c’est qu’il n’était pas audible par l'oreille, mais parfaitement perceptible par les sens. La terre, cette planète de cultivation, tremblait !
 
 L'aura antique devint follement dense, comme si la planète s'éveillait pour la première fois de son sommeil millénaire. Ce n'était pas un réveil paisible, mais une éveil brutal. C’était comme si l'aura ancienne, condensée durant des éons, allait être arrachée avec l'âme elle-même.
 
-Tout dans ce monde possède une âme, même les arbres et l'herbe ; une planète de culture en possède donc naturellement une. Cependant, l'âme d'une telle planète met des années infinies à se former et s'avère extrêmement puissante. Elle contient l'antiquité du monde ainsi qu'un fragment des lois célestes.
+Tout dans ce monde possède une âme, même les arbres et l'herbe ; une planète de cultivation en possède donc naturellement une. Cependant, l'âme d'une telle planète met des années infinies à se former et s'avère extrêmement puissante. Elle contient l'antiquité du monde ainsi qu'un fragment des lois célestes.
 
 Bien que l'extraction de l'âme planétaire paraisse simple, très peu de gens peuvent réellement la réaliser !
 
@@ -74,19 +74,19 @@ C’était la première fois que Wang Lin extrayait l'âme d'une planète ! Mais
 
 La première fois, c'était lorsque le démon dispersé avait pris possession de son corps lors du combat à Allheaven ! La seconde fut lorsque Wang Lin avait extrait l'âme planétaire pour aider à la transformation de la planète Suzaku ; mais à l'époque, il ne maîtrisait pas encore cette technique, n'en ayant qu'une compréhension superficielle.
 
-Cependant, aujourd'hui, cette troisième fois pouvait être considérée comme la véritable seconde. Car le domaine de Wang Lin s'était étendu, son niveau de culture avait augmenté et son étoile de loi s'était formée, lui permettant d'extraire presque parfaitement l'âme planétaire pour le combat !
+Cependant, aujourd'hui, cette troisième fois pouvait être considérée comme la véritable seconde. Car le domaine de Wang Lin s'était étendu, son niveau de cultivation avait augmenté et son étoile de loi s'était formée, lui permettant d'extraire presque parfaitement l'âme planétaire pour le combat !
 
 Il était regrettable d'utiliser un sort issu de l'âme d'une planète pour n'affronter qu'une seule personne. C'est précisément pour cela que Wang Lin avait ordonné à Du Lin et Yin Yue d'attaquer ensemble !
 
 Sa main droite portait l'âme de la planète comme s'il tenait l'astre lui-même. L'expression de Wang Lin était sereine tandis qu'il agitait sa main. La sphère de lumière fonça vers Du Lin et Yin Yue.
 
-La sphère n'était pas grande, seulement de la taille d'un poing, et elle ne semblait pas rapide. Avec leurs niveaux de culture respectifs, Du Lin et Yin Yue auraient pu l'esquiver une infinité de fois. Pourtant, à cet instant, ils eurent l'impression de n'avoir aucun refuge !
+La sphère n'était pas grande, seulement de la taille d'un poing, et elle ne semblait pas rapide. Avec leurs niveaux de cultivation respectifs, Du Lin et Yin Yue auraient pu l'esquiver une infinité de fois. Pourtant, à cet instant, ils eurent l'impression de n'avoir aucun refuge !
 
-Ce sentiment était absolu. Bien que la sphère fût petite, elle était constituée de l'âme d'une planète et représentait l'astre tout entier. Ils avaient l'illusion que la planète de culture sous leurs pieds s'était éveillée pour les attaquer !
+Ce sentiment était absolu. Bien que la sphère fût petite, elle était constituée de l'âme d'une planète et représentait l'astre tout entier. Ils avaient l'illusion que la planète de cultivation sous leurs pieds s'était éveillée pour les attaquer !
 
 Bien que cela puisse paraître long à décrire, tout fut fulgurant. Lorsque la sphère se rapprocha, elle explosa à quelques centaines de pieds de Du Lin et Yin Yue. Cette fois, la terre trembla véritablement et une force colossale frappa le duo.
 
-À cet instant, la mer à l'ouest commença à bouillir et se transforma rapidement en vapeur d'eau. La vapeur s'évapora frénétiquement comme si elle était aspirée. D'épais nuages sombres envahirent le ciel et la pluie se mit à tomber. Ce ne fut pas une simple averse, mais toute la planète de culture qui fut enveloppée par les eaux du ciel.
+À cet instant, la mer à l'ouest commença à bouillir et se transforma rapidement en vapeur d'eau. La vapeur s'évapora frénétiquement comme si elle était aspirée. D'épais nuages sombres envahirent le ciel et la pluie se mit à tomber. Ce ne fut pas une simple averse, mais toute la planète de cultivation qui fut enveloppée par les eaux du ciel.
 
 Le tonnerre et les éclairs déchiraient l'air dans un fracas assourdissant. Le corps de Du Lin fut projeté en arrière et il cracha du sang. Après avoir subi l'assaut de la planète entière, son corps était au bord de l'effondrement. S'il n'y avait pas eu l'absence d'intention meurtrière chez Wang Lin, il serait sans aucun doute mort !
 

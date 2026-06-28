@@ -118,4 +118,4 @@ Lorsque le cinquième souffle arriva, un brouillard d'âme se répandit du templ
 
 L'âme du scorpion avait été divisée en six morceaux par Wang Lin. Il en avait déjà absorbé quatre pour atteindre le stade du Vide Arcanique, tandis que les deux derniers restaient cachés dans le temple du scorpion.
 
-Normalement, il aurait été très difficile pour Wang Lin de les débusquer, mais grâce à l'augmentation de son niveau de culture et au fait d'avoir déjà absorbé les quatre premiers morceaux, il entretenait un lien avec le scorpion. Grâce à cette connexion, il trouva aisément les deux fragments restants de l'âme du scorpion et les extirpa.
+Normalement, il aurait été très difficile pour Wang Lin de les débusquer, mais grâce à l'augmentation de son niveau de cultivation et au fait d'avoir déjà absorbé les quatre premiers morceaux, il entretenait un lien avec le scorpion. Grâce à cette connexion, il trouva aisément les deux fragments restants de l'âme du scorpion et les extirpa.

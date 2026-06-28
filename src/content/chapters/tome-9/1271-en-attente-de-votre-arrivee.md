@@ -16,7 +16,7 @@ La silhouette de Wang Lin devint floue au milieu des innombrables ombres d'épé
 
 Son regard sembla fusionner avec les ombres d'épées environnantes pour en devenir une partie intégrante. À l'instant même où ses yeux s'ouvrirent, toutes les ombres d'épées tremblèrent, comme si elles ne pouvaient supporter une telle pression. C'était comme un animal primordial sur le point de charger !
 
-« Quatre sceaux suffisent déjà à produire une telle puissance. Il semble que j'aie sous-estimé ces deux courtes épées. Dans ce cas, je vais forcer l'ouverture des autres par ma culture. Je veux que celui qui cherche ma mort sache que moi, Wang Lin, ne suis pas si facile à tuer ! » Les yeux de Wang Lin devinrent froids alors qu'il forma un sceau et pointa les deux courtes épées.
+« Quatre sceaux suffisent déjà à produire une telle puissance. Il semble que j'aie sous-estimé ces deux courtes épées. Dans ce cas, je vais forcer l'ouverture des autres par ma cultivation. Je veux que celui qui cherche ma mort sache que moi, Wang Lin, ne suis pas si facile à tuer ! » Les yeux de Wang Lin devinrent froids alors qu'il forma un sceau et pointa les deux courtes épées.
 
 Ces deux lames, l'une noire et l'autre blanche, lâchèrent un hurlement assourdissant qui rappelait le rugissement des dragons. C'était comme si deux divinités tonnaient vers le ciel. Les deux épées bougèrent soudainement et pointèrent vers Wang Lin, comme si elles s'apprêtaient à se rebeller !
 
@@ -46,7 +46,7 @@ Alors qu'il crachait ce sang, l'ombre d'un Dieu Ancien apparut au sein du liquid
 
 Finalement, il y avait exactement 9 999 999 ombres d'épées autour de Wang Lin. Il n'en manquait plus qu'une seule pour faire s'effondrer le monde.
 
-Wang Lin resta assis et commença à réfléchir. « Sept sceaux ont été ouverts. Malheureusement, avec mon niveau de culture, je ne peux pas les briser en peu de temps. Sinon, d'après l'apparence de ces deux poignards, une fois le huitième sceau brisé, ils atteindraient dix millions. Bien que ce ne soit qu'une épée de plus, l'écart est immense ! »
+Wang Lin resta assis et commença à réfléchir. « Sept sceaux ont été ouverts. Malheureusement, avec mon niveau de cultivation, je ne peux pas les briser en peu de temps. Sinon, d'après l'apparence de ces deux poignards, une fois le huitième sceau brisé, ils atteindraient dix millions. Bien que ce ne soit qu'une épée de plus, l'écart est immense ! »
 
 « Peu importe. Même si je ne peux pas ouvrir le huitième sceau, je peux toujours en obtenir l'effet. Je suis un Dieu Ancien, et le corps d'un Dieu Ancien est puissant. Je serai la dernière épée ! » Les yeux de Wang Lin brillèrent et il inspira profondément. Les presque dix millions d'épées hurlèrent immédiatement et convergèrent vers lui.
 
@@ -84,7 +84,7 @@ Il s'agissait d'avatars et d'âmes ! C'était un sortilège de Dieu Ancien que W
 
 D'un mouvement de la main, les cent avatars se dispersèrent dans toutes les directions et traversèrent le brouillard stellaire.
 
-Wang Lin ferma les yeux comme s'il était en pleine culture.
+Wang Lin ferma les yeux comme s'il était en pleine cultivation.
 
 Le temps passa progressivement et, en un clin d'œil, deux jours s'écoulèrent. Ses cent avatars contenaient tous la puissance d'un Dieu Ancien et étaient extrêmement puissants. Durant ces deux jours, grâce à sa compréhension de la région de rang 5, ses cent avatars rapportèrent cent continents sauvages !
 

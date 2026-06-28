@@ -110,7 +110,7 @@ Le Maître Dao Bleu Rêve restait impassible, ignorant superbement les regards d
 
 Les derniers à apparaître furent les membres de la planète des Cinq Éléments, menés par le vieil homme nommé Ma. Leur arrivée stupéfia l'assistance. Au moment même où ils se manifestèrent, Wang Lin ouvrit les yeux.
 
-Son regard était serein. Dès qu'il les ouvrit, toute l'attention se détourna des gens de la planète des Cinq Éléments pour se concentrer à nouveau sur lui. Chaque personne présente possédait un niveau de culture élevé ; un mortel ordinaire aurait été terrassé par une telle concentration de puissance.
+Son regard était serein. Dès qu'il les ouvrit, toute l'attention se détourna des gens de la planète des Cinq Éléments pour se concentrer à nouveau sur lui. Chaque personne présente possédait un niveau de cultivation élevé ; un mortel ordinaire aurait été terrassé par une telle concentration de puissance.
 
 Toutefois, le visage de Wang Lin resta neutre tandis que son regard balayait l'assemblée.
 

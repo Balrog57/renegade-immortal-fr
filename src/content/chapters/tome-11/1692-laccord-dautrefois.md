@@ -72,7 +72,7 @@ Au moment où il émergea, le trou noir se résorba en une pluie d'étincelles l
 
 L'extrême beauté ouvrit les yeux, laissant paraître une pointe d'épuisement. Elle observa Wang Lin et, après un long silence, secoua la tête avec un soupir.
 
-« Lors de notre séparation, votre niveau de culture était bien bas. Je n'aurais jamais pensé que vous atteindriez un tel niveau aujourd'hui... Je craignais que vous n'ayez oublié notre accord, mais quand j'ai reçu votre message via le jade, j'ai su que ce n'était pas le cas. »
+« Lors de notre séparation, votre niveau de cultivation était bien bas. Je n'aurais jamais pensé que vous atteindriez un tel niveau aujourd'hui... Je craignais que vous n'ayez oublié notre accord, mais quand j'ai reçu votre message via le jade, j'ai su que ce n'était pas le cas. »
 
 « Vous m'avez aidé à m'échapper autrefois, il serait naturel que je ne l'oublie pas. Cependant, en raison de certains événements, je suis arrivé tard. » Wang Lin sourit et regarda le lion géant qui galopait. Il décida de s'asseoir.
 
@@ -88,13 +88,13 @@ La belle femme dit doucement : « J'étais autrefois la première concubine du S
 
 « Puisque vous savez déjà qu'il ne s'agit que d'un monde caverneux, il n'est pas nécessaire de vous cacher quoi que ce soit. Le Souverain Céleste aux Sept Couleurs a tenté de s'emparer d'un trésor alors que deux des neuf soleils étaient en plein combat. Il a utilisé des méthodes ignobles en utilisant ma sœur comme appât pour saisir sa chance. Puis, il est revenu et a scellé la Secte des Sept Dao. »
 
-« Dès notre arrivée ici, je n'ai pu croire aucun habitant du Continent Astral Immortel, et j'ai été blessée par le Souverain Céleste aux Sept Couleurs. Ma culture ne s'est toujours pas rétablie et je n'avais personne avec qui coopérer jusqu'à votre apparition. Il n'y a aucun conflit d'intérêts entre nous, nous pouvons agir ensemble ! »
+« Dès notre arrivée ici, je n'ai pu croire aucun habitant du Continent Astral Immortel, et j'ai été blessée par le Souverain Céleste aux Sept Couleurs. Ma cultivation ne s'est toujours pas rétablie et je n'avais personne avec qui coopérer jusqu'à votre apparition. Il n'y a aucun conflit d'intérêts entre nous, nous pouvons agir ensemble ! »
 
 La femme poursuivit d'une voix douce :
 
 « Vous voulez emmener les cultivateurs natifs vers le Continent Astral Immortel, et je vous aiderai dans cette entreprise ! Le Continent Astral Immortel est un lieu mystérieux. Il est trop vaste et les guerres y sont constantes ; la paix y est rare entre les diverses sectes. Si vous voulez y établir une assise, il vous faut une secte ! »
 
-« Chaque zone prospère a déjà été revendiquée. Pour être honnête, avec votre niveau de culture actuel, vous ne pourrez conquérir aucune secte existante ! Quant au monde caverneux, tout ici n'est qu'une illusion. Il serait juste de dire que toutes les vies ici sont en réalité factices... Au fil des âges, j'ai rarement entendu parler de personnes sortant des divers mondes caverneux des sectes à travers le Continent Astral Immortel. Je préfère vous prévenir dès maintenant. »
+« Chaque zone prospère a déjà été revendiquée. Pour être honnête, avec votre niveau de cultivation actuel, vous ne pourrez conquérir aucune secte existante ! Quant au monde caverneux, tout ici n'est qu'une illusion. Il serait juste de dire que toutes les vies ici sont en réalité factices... Au fil des âges, j'ai rarement entendu parler de personnes sortant des divers mondes caverneux des sectes à travers le Continent Astral Immortel. Je préfère vous prévenir dès maintenant. »
 
 Wang Lin réfléchit silencieusement, écoutant ses paroles.
 
@@ -108,7 +108,7 @@ Les yeux de Wang Lin se plissèrent, mais il garda le silence.
 
 « Elle n'est pas ici, elle est dans le Continent Astral Immortel ! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte des Sept Dao sera à vous ! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte des Sept Dao, mais des disciples de cœur de la Grande Secte de l'Âme. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
 
-« Même après avoir pris possession de la Secte des Sept Dao, si vous souhaitez poursuivre votre culture, nous pourrons vous introduire dans la Grande Secte de l'Âme ! Quant à la sentence liée à votre entrée sur le Continent Astral Immortel, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Astral Immortel, la sentence sera atténuée. »
+« Même après avoir pris possession de la Secte des Sept Dao, si vous souhaitez poursuivre votre cultivation, nous pourrons vous introduire dans la Grande Secte de l'Âme ! Quant à la sentence liée à votre entrée sur le Continent Astral Immortel, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Astral Immortel, la sentence sera atténuée. »
 
 Wang Lin pesait chaque mot. Un instant plus tard, il demanda lentement :
 

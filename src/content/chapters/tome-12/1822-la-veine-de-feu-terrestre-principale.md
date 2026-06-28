@@ -16,7 +16,7 @@ La porte de cette chambre était rouge et dégageait une chaleur infinie. Un cul
 
 Pour être plus précis, cette chambre de pierre était située au cœur même de la veine de feu terrestre principale. Cultiver à l'intérieur revenait à cultiver directement au sein de la veine elle-même.
 
-Cet endroit n'était pas destiné uniquement à la culture de l'essence du feu. Sous la volonté de la veine de feu, en plus de l'essence de l'eau, toutes les autres essences éthérées pouvaient être cultivées ici.
+Cet endroit n'était pas destiné uniquement à la cultivation de l'essence du feu. Sous la volonté de la veine de feu, en plus de l'essence de l'eau, toutes les autres essences éthérées pouvaient être cultivées ici.
 
 La clé résidait dans la pression générée par le feu local, laquelle produisait un effet similaire à une distorsion temporelle. En raison de cette pression, une journée passée ici équivalait à plusieurs jours à l'extérieur.
 
@@ -42,7 +42,7 @@ Elle sembla porter un regard distrait vers l'avant, et son Sens Divin s'élança
 
 Face à elle se tenait une femme ressemblant à Fan Shanlu, mais dont l'expression était visiblement plus froide. Wang Lin connaissait également cette femme : c'était Fan Shanmeng !
 
-Ses cils tremblèrent et elle ouvrit lentement les yeux. Après une courte réflexion, elle poussa un soupir et referma les paupières pour poursuivre sa culture.
+Ses cils tremblèrent et elle ouvrit lentement les yeux. Après une courte réflexion, elle poussa un soupir et referma les paupières pour poursuivre sa cultivation.
 
 À l'intérieur de la chambre de pierre au fond de la montagne, Fan Shanlu ressentit la vague de chaleur émanant de la grotte et la sueur perla sur son front. Ce n'était là qu'un détail secondaire ; une volonté de feu émanait de tous les côtés de la cavité, créant une pression écrasante. Quiconque entrait serait enveloppé par cette force. Il faudrait d'abord s'asseoir et s'adapter à cette pression avant toute chose.
 
@@ -66,7 +66,7 @@ D'un autre pas, Wang Lin atteignit les trois cent soixante-dix pieds de profonde
 
 À cet instant, il se trouvait au cœur de la veine de feu principale pour dévorer son essence et sa volonté ! Et accomplir cela parmi les puissances du Grand Secte de l'Âme revenait à tenter d'arracher une dent à un tigre !
 
-Fan Shanlu observa la silhouette de Wang Lin s'enfoncer dans les profondeurs. La chaleur intense émanant des parois rendait sa vision floue. Après un long moment, elle soupira et ferma les yeux pour commencer sa culture.
+Fan Shanlu observa la silhouette de Wang Lin s'enfoncer dans les profondeurs. La chaleur intense émanant des parois rendait sa vision floue. Après un long moment, elle soupira et ferma les yeux pour commencer sa cultivation.
 
 Quant à Wang Lin, ses yeux étincelèrent tandis qu'il posait ses mains sur la terre. Des vagues d'essence de feu se précipitèrent vers ses paumes pour pénétrer son corps.
 

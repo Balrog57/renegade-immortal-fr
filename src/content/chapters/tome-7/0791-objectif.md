@@ -38,7 +38,7 @@ Presque instantanément, une zone de cinq kilomètres se libéra, ne laissant qu
 
 Le jeune homme se lécha les lèvres, un éclat rouge apparaissant sur son visage. Bien que son temps fût compté, il avait déjà dévoré plus de vingt cultivateurs. Ses yeux s'illuminèrent. Au lieu de poursuivre son combat contre Wang Lin, il chargea vers les autres cultivateurs en fuite.
 
-Wang Lin entendit clairement le vieil homme en lui maudire. Son corps s'élança et cria : « Le grand Seigneur Céleste Qing Shui est donc prêt à dévorer des juniors pour simplement recouvrer sa culture ? Si tu es vraiment capable, viens combattre ce vieil homme au lieu de te déshonorer ainsi ! »
+Wang Lin entendit clairement le vieil homme en lui maudire. Son corps s'élança et cria : « Le grand Seigneur Céleste Qing Shui est donc prêt à dévorer des juniors pour simplement recouvrer sa cultivation ? Si tu es vraiment capable, viens combattre ce vieil homme au lieu de te déshonorer ainsi ! »
 
 Le jeune homme fut surpris et se retourna. Ses yeux étaient emplis d'une intention meurtrière lorsqu'il dit lentement : « Je ne suis pas Qing Shui ! »
 
@@ -64,7 +64,7 @@ Le visage de Shengong Hu se crispa de férocité. Homme arrogant, il forma rapid
 
 Cet éclair était rouge sombre. Dès son apparition, des ondulations parcoururent le vide, comme si d'innombrables filaments de tonnerre convergeaient de toutes les directions.
 
-Shengong Hu ne possédait qu'un seul filament de ce tonnerre, et il représentait le sommet de sa culture. Il n'avait pu l'obtenir qu'après avoir reçu l'illumination de Wang Lin. Il avait passé des années à chercher l'origine du tonnerre et l'avait raffiné sans relâche au sein de son corps.
+Shengong Hu ne possédait qu'un seul filament de ce tonnerre, et il représentait le sommet de sa cultivation. Il n'avait pu l'obtenir qu'après avoir reçu l'illumination de Wang Lin. Il avait passé des années à chercher l'origine du tonnerre et l'avait raffiné sans relâche au sein de son corps.
 
 Après tant d'années, il n'était capable de former qu'un seul éclair. Ce dernier n'était pas encore parfait, raison pour laquelle il ne l'avait pas utilisé lors du combat précédent.
 

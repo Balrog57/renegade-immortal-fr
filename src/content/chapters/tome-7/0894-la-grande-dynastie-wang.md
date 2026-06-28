@@ -14,7 +14,7 @@ Zhou Wutai était un homme de parole ; il n'oubliait jamais ce que Wang Lin avai
 
 Par conséquent, qu'il s'agisse des descendants de Wang Lin, de la secte qu'il avait laissée derrière lui ou même du pays de Zhao, tous avaient progressivement prospéré sous la protection de Zhou Wutai.
 
-Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'élever la famille Wang au rang de noblesse royale. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de culture de rang 5.
+Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'élever la famille Wang au rang de noblesse royale. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de cultivation de rang 5.
 
 Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans la Tombe de Suzaku s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
 
@@ -22,7 +22,7 @@ Zhou Wutai avait une autre raison d'agir ainsi. Lorsqu'il était devenu Suzaku, 
 
 Tandis que Wang Lin réfléchissait, bien qu'il n'eût pas pu tout deviner, il en saisit l'essentiel. Il laissa échapper un soupir. Peu importait les motivations de Zhou Wutai, Wang Lin se devait de lui rendre la pareille.
 
-Pendant qu'il volait, Ta Shan et le garçon à la grosse tête le suivaient ; l'expression de Ta Shan demeurait glaciale tout au long du trajet. Quant au garçon à la grosse tête, après avoir vu Wang Lin rentrer chez lui, ses sentiments envers sa propre famille étaient devenus plus complexes encore. Il voyait bien que tous ceux qui étaient ici respectaient Xu Mu avec une sincérité profonde. Le garçon savait que s'il retournait dans sa famille avec son niveau de culture actuel, il recevrait lui aussi des marques de respect ; pourtant, il savait que ce respect serait hypocrite.
+Pendant qu'il volait, Ta Shan et le garçon à la grosse tête le suivaient ; l'expression de Ta Shan demeurait glaciale tout au long du trajet. Quant au garçon à la grosse tête, après avoir vu Wang Lin rentrer chez lui, ses sentiments envers sa propre famille étaient devenus plus complexes encore. Il voyait bien que tous ceux qui étaient ici respectaient Xu Mu avec une sincérité profonde. Le garçon savait que s'il retournait dans sa famille avec son niveau de cultivation actuel, il recevrait lui aussi des marques de respect ; pourtant, il savait que ce respect serait hypocrite.
 
 Une vaste cité apparut au loin. Cette ville, semblable à un dragon enroulé, exhalait une aura de richesse opulente. Ses murs étaient faits de pierre noire d'où émanaient des fluctuations magiques.
 
@@ -46,7 +46,7 @@ Cette capitale était d'un luxe excessif. Les routes étaient pavées de pierres
 
 Si cela s'était arrêté là, cela n'aurait pas été problématique, mais les arbres environnants étaient tous drapés de soie. Bien que ce spectacle fût luxueux, il n'était que le reflet d'une corruption profonde.
 
-Grâce à son niveau de culture actuel, Wang Lin pouvait percevoir des réalités invisibles aux autres : la tristesse, la colère, la peur et diverses autres auras capables de troubler l'esprit humain.
+Grâce à son niveau de cultivation actuel, Wang Lin pouvait percevoir des réalités invisibles aux autres : la tristesse, la colère, la peur et diverses autres auras capables de troubler l'esprit humain.
 
 Si l'on vivait ici trop longtemps, sa personnalité s'altérait et ses émotions devenaient instables, ce qui finissait par raccourcir sa durée de vie.
 
@@ -58,7 +58,7 @@ Ce ressentiment émanait des foyers de chaque village et s'accumulait là où vi
 
 C'était particulièrement frappant dans le nord-ouest, une région au sol rouge jonché de cadavres. Une masse colossale de ressentiment s'en échappait pour se propager à travers la zone. Si les autres cités éprouvaient un fort ressentiment, celui de la capitale était une flamme démoniaque monstrueuse qui s'élançait vers le ciel.
 
-Seul un être ayant le niveau de culture de Wang Lin pouvait remarquer cela, et seulement après une recherche minutieuse. Pour quiconque manquait de puissance, il était impossible de le détecter.
+Seul un être ayant le niveau de cultivation de Wang Lin pouvait remarquer cela, et seulement après une recherche minutieuse. Pour quiconque manquait de puissance, il était impossible de le détecter.
 
 — Absurde ! grogna Wang Lin d'un ton sombre en marchant dans la rue. Il s'était réjoui de voir la prospérité des descendants de sa lignée, mais cette richesse était bâtie sur le ressentiment, et les membres de la famille Wang en étaient les premières victimes. Si tel était le prix, cette richesse n'avait aucune valeur !
 
@@ -102,7 +102,7 @@ Le jeune homme aux vêtements élégants afficha un visage féroce en se relevan
 
 Le regard de Wang Lin était glacial alors qu'il fixait le jeune homme. Il percevait un gaz noir dense émanant de sa tête. Ce gaz formait un serpent qui ouvrait la gueule et rugissait silencieusement vers Ta Shan.
 
-Ceux dont la culture n'avait pas atteint la deuxième étape ne pourraient détecter cela ; ils ressentiraient seulement une aura glaciale jaillir du jeune homme, faisant trembler leur cœur.
+Ceux dont la cultivation n'avait pas atteint la deuxième étape ne pourraient détecter cela ; ils ressentiraient seulement une aura glaciale jaillir du jeune homme, faisant trembler leur cœur.
 
 C'est à ce moment précis que des cris retentirent dans la rue au loin. Le groupe qui s'était éloigné revenait en force, massacrant tout sur son passage. Deux traînées d'énergie d'épée menaient la charge, suivies par les serviteurs. Les artistes martiaux étaient imprégnés d'une intention meurtrière.
 

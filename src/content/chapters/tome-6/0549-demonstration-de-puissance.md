@@ -18,7 +18,7 @@ Le chef de régiment Sun laissa échapper un froid renâclement et dit : « Vous
 
 Chacun avait ses propres opinions sur Wang Lin, mais aucune décision commune ne fut finalement prise. Sima Yan se frotta les tempes et déclara : « Très bien, souvenez-vous de ne pas provoquer activement cet homme. Je ne crois pas qu'il puisse rester silencieux très longtemps. Tant qu'il est celui qui déclenche le conflit, nous aurons les moyens de le gérer. »
 
-Le temps passa lentement et, en un clin d'œil, Wang Lin avait cultivé pendant une demi-lune au sein du camp militaire. Durant cette période, il n'avait rien fait ; il s'était contenté de rester assis, poursuivant sa culture en silence. Le camp militaire semblait être devenu son propre terrain de culture.
+Le temps passa lentement et, en un clin d'œil, Wang Lin avait cultivé pendant une demi-lune au sein du camp militaire. Durant cette période, il n'avait rien fait ; il s'était contenté de rester assis, poursuivant sa cultivation en silence. Le camp militaire semblait être devenu son propre terrain de cultivation.
 
 Le cœur de Treize s'était également apaisé alors qu'il cultivait aux côtés de Wang Lin.
 
@@ -46,7 +46,7 @@ Son corps vola immédiatement vers Wang Lin et son cou fut saisi par la main de 
 
 « Tu... » Le sang afflua rapidement à sa tête et son visage devint pourpre. La main serrée sur sa gorge était comme la porte de la mort qui l'emprisonnait.
 
-Même dans sa situation désespérée, il écarquilla les yeux pour fixer Wang Lin. Il ne croyait pas que cet homme oserait le tuer, mais il redoutait désormais la culture de Wang Lin. D'un seul mouvement, Wang Lin l'avait neutralisé sans qu'il puisse opposer la moindre résistance. Même le commandant Sima n'aurait pu accomplir un tel exploit.
+Même dans sa situation désespérée, il écarquilla les yeux pour fixer Wang Lin. Il ne croyait pas que cet homme oserait le tuer, mais il redoutait désormais la cultivation de Wang Lin. D'un seul mouvement, Wang Lin l'avait neutralisé sans qu'il puisse opposer la moindre résistance. Même le commandant Sima n'aurait pu accomplir un tel exploit.
 
 Voyant leur chef de régiment capturé, les mille soldats démons s'élancèrent soudainement vers Wang Lin.
 
@@ -56,7 +56,7 @@ Treize avait mémorisé le contenu du jade. Puisque Wang Lin posait la question,
 
 Le corps du chef de régiment Sun trembla et un sombre pressentiment l'envahit. Il voulut parler, mais avec la main de Wang Lin sur sa gorge, il fut incapable de prononcer une phrase complète.
 
-Les yeux de Wang Lin étaient d'une froideur extrême alors qu'il affichait un sourire sinistre. Il appliqua soudainement une force immense à sa main droite et, dans un craquement sinistre, le cou du chef de régiment Sun fut broyé avant même qu'il ne puisse dire un mot. Simultanément, Wang Lin projeta frénétiquement son énergie spirituelle céleste dans le corps de cet homme, détruisant ainsi sa culture.
+Les yeux de Wang Lin étaient d'une froideur extrême alors qu'il affichait un sourire sinistre. Il appliqua soudainement une force immense à sa main droite et, dans un craquement sinistre, le cou du chef de régiment Sun fut broyé avant même qu'il ne puisse dire un mot. Simultanément, Wang Lin projeta frénétiquement son énergie spirituelle céleste dans le corps de cet homme, détruisant ainsi sa cultivation.
 
 Jusque dans l'instant de sa mort, le chef de régiment Sun fut envahi par l'incrédulité. Il n'aurait jamais pu imaginer que le nouveau commandant oserait l'assassiner !
 

@@ -40,7 +40,7 @@ Le trésor pour lequel la Secte Gui Yi était célèbre résidait dans ses fouet
 
 Wang Lin ne pouvait distinguer clairement la forme du fouet, il n'y voyait qu'une lueur verdoyante. Cette lumière qui convergeait vers lui était saturée d'élément bois !
 
-Les yeux de Wang Lin s'illuminèrent. Aucun mouvement n'était encore perceptible des deux autres étages. Le vieil homme du troisième étage possédait déjà une culture choquante ; il ignorait de quelle puissance jouissaient les deux occupants des étages restants...
+Les yeux de Wang Lin s'illuminèrent. Aucun mouvement n'était encore perceptible des deux autres étages. Le vieil homme du troisième étage possédait déjà une cultivation choquante ; il ignorait de quelle puissance jouissaient les deux occupants des étages restants...
 
 Wang Lin recula de plusieurs pas. Alors que le fouet vert approchait, une lueur de froideur traversa son regard et il projeta sa paume en avant.
 
@@ -60,7 +60,7 @@ Wang Lin recula de plusieurs pas en réprimant le sang qui montait à sa gorge. 
 
 Les yeux de Wang Lin brillèrent tandis qu'il entamait ses déductions. Il n'était pas venu ici pour tuer ; son but était de sonder la profondeur de l'enracinement et d'évaluer la force de ces cultivateurs étrangers !
 
-Wang Lin n'était pas surpris par le niveau de culture du vieil homme, mais être ainsi engagé dans un combat signifiait qu'il ne pourrait pas forcer les deux derniers occupants à sortir de leur cachette.
+Wang Lin n'était pas surpris par le niveau de cultivation du vieil homme, mais être ainsi engagé dans un combat signifiait qu'il ne pourrait pas forcer les deux derniers occupants à sortir de leur cachette.
 
 « Un fouet ? J'en ai un aussi ! » Soudain, l'esprit de Wang Lin s'illumina. Son esprit étant aussi rusé que celui d'un démon, il trouva immédiatement le meilleur moyen d'obtenir les réponses qu'il cherchait.
 
@@ -74,7 +74,7 @@ De loin, ils ressemblaient à deux pythons géants. Leur choc provoqua un gronde
 
 La lumière dorée et la lueur verte se mêlèrent dans un fracas assourdissant. Wang Lin tenait son arme d'une main et le vieil homme agrippait le fouet vert de l'autre. Les deux instruments ressemblaient désormais à de simples bâtons entre leurs mains !
 
-À ce moment, ils tirèrent tous deux de toutes leurs forces. Les veines du visage du vieil homme saillirent alors qu'il concentrait toute sa culture dans sa main droite pour donner un coup sec.
+À ce moment, ils tirèrent tous deux de toutes leurs forces. Les veines du visage du vieil homme saillirent alors qu'il concentrait toute sa cultivation dans sa main droite pour donner un coup sec.
 
 Cependant, il n'était qu'un simple cultivateur !
 
@@ -92,7 +92,7 @@ Simultanément, la tempête de sable derrière le vieil homme avança pour l'env
 
 L'armure était d'un jaune terreux, parsemée de motifs floraux verts. De loin, ces motifs dessinaient la silhouette d'un arbre géant.
 
-À l'apparition de cette armure, la culture du vieil homme explosa, passant du stade intermédiaire au sommet du stade avancé du Vide Arcanique. Il n'était plus qu'à un pas du sommet du Vide Arcanique !
+À l'apparition de cette armure, la cultivation du vieil homme explosa, passant du stade intermédiaire au sommet du stade avancé du Vide Arcanique. Il n'était plus qu'à un pas du sommet du Vide Arcanique !
 
 C'était l'armure de la Secte Gui Yi !
 
@@ -116,7 +116,7 @@ Au cœur de la tempête, Wang Lin restait calme. Tout cela était prévu. Tandis
 
 « C'est un sortilège similaire au Corps Céleste Immortel... Que va-t-il bien faire... »
 
-Au cœur de la tempête de sable, tout n'était que flou alors que le corps de Wang Lin se recroquevillait sous l'impact du poing de l'homme-arbre. Ce coup ne contenait pas une force brute colossale, mais portait un sortilège imprégné de toute la culture de l'ancien, canalisé par son armure.
+Au cœur de la tempête de sable, tout n'était que flou alors que le corps de Wang Lin se recroquevillait sous l'impact du poing de l'homme-arbre. Ce coup ne contenait pas une force brute colossale, mais portait un sortilège imprégné de toute la cultivation de l'ancien, canalisé par son armure.
 
 Ce n'était pas un coup de puissance, mais un coup de sort !
 
@@ -128,7 +128,7 @@ Le corps de Wang Lin fut percuté par les forces des éléments bois et terre. L
 
 Dès que les deux essences atteignirent leur cible, Wang Lin s'en servit pour s'élancer tel une flèche. Il perça la tempête de sable et jaillit au loin !
 
-Sa vitesse était prodigieuse. En plus de son propre Dao Ancestral et de sa culture, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Ancestral actuel, il aurait péri !
+Sa vitesse était prodigieuse. En plus de son propre Dao Ancestral et de sa cultivation, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Ancestral actuel, il aurait péri !
 
 Cependant, grâce à la protection du Sort de l'Ancien Immortel, tant que la durée ne se prolongeait pas trop, son corps ne serait pas détruit !
 
@@ -160,7 +160,7 @@ Tous ceux qui étaient éveillés tremblèrent ; ils craignaient manifestement l
 
 Lorsque ce rugissement pénétra le corps de Wang Lin, son Corps d'Ancien Immortel montra des signes d'effondrement. Son esprit bourdonna et il cracha du sang tout en reculant frénétiquement. Il semblait sur le point d'être expulsé du deuxième étage par la seule puissance de ce cri !
 
-L'écart entre leurs niveaux de culture était trop immense !
+L'écart entre leurs niveaux de cultivation était trop immense !
 
 Pourtant, Wang Lin refusait de se laisser repousser ainsi. Il n'avait pas encore vu l'occupant du premier étage. À cet instant, ses yeux brillèrent de détermination et de férocité.
 
@@ -204,7 +204,7 @@ Il prit sa décision. Bien que ses blessures fussent graves, il ne paniqua pas. 
 
 Au moment où il fit ce geste, une lueur glaciale émana du vieil homme nommé Ma, qui venait de sortir du deuxième étage. Fixant Wang Lin, il s'élança en avant.
 
-« Tu as perturbé la culture de ce vieil homme, tu mérites la mort ! »
+« Tu as perturbé la cultivation de ce vieil homme, tu mérites la mort ! »
 
 « Faites un pas de plus, et vous mériterez la mort ! » Alors que le vieillard avançait, les paroles froides de Wang Lin résonnèrent. Malgré le sang qui coulait au coin de sa bouche, son ton était empreint d'une détermination inébranlable !
 

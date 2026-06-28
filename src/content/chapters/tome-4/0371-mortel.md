@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 371 - Mortal
 slug: mortel
 ---
-Après l'affrontement entre Wang Lin et Red Butterfly, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
+Après l'affrontement entre Wang Lin et Red Butterfly, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus par tous les émissaires des différents pays de cultivation. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
 
 Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre de l'Extermination des Dieux, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
 L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de tout le continent Suzaku en dessous du stade de la Transformation de l'Âme.
 
-Simultanément, le Mont Suzaku diffusa un message indiquant que Red Butterfly entrait en culture de méditation pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute ; après tout, si Red Butterfly avait connu une percée lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
+Simultanément, le Mont Suzaku diffusa un message indiquant que Red Butterfly entrait en cultivation de méditation pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute ; après tout, si Red Butterfly avait connu une percée lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
 Cependant, au fil du temps, les gens découvrirent que Ceng Niu avait disparu.
 
@@ -24,7 +24,7 @@ Trois jours auparavant, des ondes contenant de l'énergie spirituelle céleste �
 
 En outre, il avait également ressenti la puissance de la lignée du Clan des Démons Géants.
 
-Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe ; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yue et que le Clan des Démons Géants y avait pris part.
+Bien que la cultivation sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe ; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yue et que le Clan des Démons Géants y avait pris part.
 
 Toutefois, il ne parvint pas à identifier l'autre cultivateur du stade de la Transformation de l'Âme.
 
@@ -32,7 +32,7 @@ De plus, lorsqu'il déploya son sens divin, il ne put percevoir que vaguement la
 
 Il jugea que l'âme originelle de Wang Lin devait s'être effondrée en raison de blessures graves. C'était pour cette raison qu'il ne parvenait pas à le situer précisément.
 
-Cependant, à ses yeux, Wang Lin n'était qu'un des fours de culture de Liu Mei. Il était important, certes, mais pas à ce point.
+Cependant, à ses yeux, Wang Lin n'était qu'un des fours de cultivation de Liu Mei. Il était important, certes, mais pas à ce point.
 
 « Liu Mei, rends-toi à l'extrémité nord du continent Suzaku. Wang Lin s'y trouve... » Après avoir laissé ce message à Liu Mei, le vieil homme retourna en méditation.
 
@@ -102,7 +102,7 @@ La petite fit la moue : « Maman, je ne veux pas manger avec le muet. Il est tel
 
 La petite bouda. Elle s'apprêtait à répliquer quand le jeune homme saisit son bol de ses mains tremblantes. Il se leva, sortit de la cour, s'assit sur un rocher et fixa le riz dans son bol, plongé dans ses pensées.
 
-Nul dans le monde de la culture ne savait où il se trouvait. C'était Wang Lin.
+Nul dans le monde de la cultivation ne savait où il se trouvait. C'était Wang Lin.
 
 Celui qui avait autrefois brillé était désormais réduit à cet état. Tout cela était dû à Xue Yue et au Clan des Démons Géants.
 
@@ -128,7 +128,7 @@ Dépourvu de toute puissance spirituelle, il était incapable d'ouvrir son sac d
 
 « Dans neuf ans, Wan Er devra à nouveau affronter le cycle de la réincarnation céleste. Neuf ans... » Wang Lin avala la dernière bouchée et afficha un regard déterminé.
 
-Durant tout ce mois, il avait tenté de trouver un moyen de retrouver sa culture.
+Durant tout ce mois, il avait tenté de trouver un moyen de retrouver sa cultivation.
 
 Dès que le domaine et le sceau seraient brisés, il retrouverait naturellement ses capacités. Cependant, il ne savait par quel moyen s'y prendre.
 
@@ -136,7 +136,7 @@ Tard dans la nuit, Wang Lin s'allongea dans l'abri en bois de la cour et s'endor
 
 Au petit matin du lendemain, l'homme d'âge moyen mit un panier sur son dos et partit en montagne avec quelques chasseurs pour cueillir des herbes.
 
-Wang Lin ouvrit les yeux, s'assit en position de lotus et tenta silencieusement de cultiver dans l'abri. Après un moment, il soupira. Il n'y avait aucune énergie spirituelle dans son corps, la culture était donc impossible. Seul un lieu doté d'une forte densité d'énergie spirituelle lui permettrait de pratiquer une culture forcée pour en faire apparaître à nouveau dans son organisme.
+Wang Lin ouvrit les yeux, s'assit en position de lotus et tenta silencieusement de cultiver dans l'abri. Après un moment, il soupira. Il n'y avait aucune énergie spirituelle dans son corps, la cultivation était donc impossible. Seul un lieu doté d'une forte densité d'énergie spirituelle lui permettrait de pratiquer une cultivation forcée pour en faire apparaître à nouveau dans son organisme.
 
 Il secoua amèrement la tête et sortit de l'abri. Son corps était toujours chétif.
 

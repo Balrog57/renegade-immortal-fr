@@ -36,7 +36,7 @@ La figure fière et droite qui avait émergé lors de la bataille pour le titre 
 
 « Une telle fin est peut-être... préférable... » murmura Xi Zifeng en baissant la tête.
 
-Un éclair de froideur traversa les yeux de Wang Lin alors qu'il dérivait à travers les étoiles. Grâce à sa puissante culture, il avait balayé ses souvenirs.
+Un éclair de froideur traversa les yeux de Wang Lin alors qu'il dérivait à travers les étoiles. Grâce à sa puissante cultivation, il avait balayé ses souvenirs.
 
 Il ne s'attarda pas sur l'intimité de Xi Zifeng, mais se souvint avec précision de tous ceux qui l'avaient humiliée au cours des huit cents dernières années. L'apparence et l'aura de chacun de ces individus étaient gravées dans l'esprit de Wang Lin !
 
@@ -44,9 +44,9 @@ Il ne s'attarda pas sur l'intimité de Xi Zifeng, mais se souvint avec précisio
 
 Planète Yun Dong, domaine de la famille Zhao. La famille Zhao était la deuxième plus puissante de la planète. Bien qu'elle ne pût rivaliser avec les lignées possédant des héritages, elle demeurait extrêmement influente dans ce domaine stellaire.
 
-Le chef actuel de la famille Zhao possédait un haut niveau de culture. Il avait apporté d'immenses contributions lors de la guerre contre l'Alliance et avait reçu une pilule précieuse ; il se trouvait désormais au stade intermédiaire du Nettoyage de Nirvana.
+Le chef actuel de la famille Zhao possédait un haut niveau de cultivation. Il avait apporté d'immenses contributions lors de la guerre contre l'Alliance et avait reçu une pilule précieuse ; il se trouvait désormais au stade intermédiaire du Nettoyage de Nirvana.
 
-Son statut sur la planète Yun Dong était immense et il jouissait du respect de tous. Cependant, peu savaient qu'il y a huit cents ans, il faisait partie de ceux qui avaient harcelé Xi Zifeng. Lorsque la famille Xi s'effondra, il avait secrètement tenté, par divers moyens, de capturer Xi Zifeng pour en faire son fourneau de culture.
+Son statut sur la planète Yun Dong était immense et il jouissait du respect de tous. Cependant, peu savaient qu'il y a huit cents ans, il faisait partie de ceux qui avaient harcelé Xi Zifeng. Lorsque la famille Xi s'effondra, il avait secrètement tenté, par divers moyens, de capturer Xi Zifeng pour en faire son fourneau de cultivation.
 
 Bien qu'un tiers fût intervenu, cet acte avait profondément blessé Xi Zifeng, dont la famille venait de périr.
 
@@ -62,7 +62,7 @@ Peu de gens savaient qu'il y a huit cents ans, alors qu'il était un ami de la f
 
 À cet instant, il portait des haillons et tenait un arrosoir. Il s'occupait de ses fleurs comme un simple mortel. Derrière lui se tenaient trois hommes d'âge mûr, empreints de respect.
 
-« La culture est semblable à l'élevage des fleurs. Il faut comprendre la nature et ressentir les changements du monde. Bien que ce vieil homme n'ait pas pratiqué de culture en porte close depuis trois cents ans et qu'il ait même oublié de surveiller ses propres progrès, c'est ainsi seul que je peux véritablement appréhender le Dao céleste. »
+« La cultivation est semblable à l'élevage des fleurs. Il faut comprendre la nature et ressentir les changements du monde. Bien que ce vieil homme n'ait pas pratiqué de cultivation en porte close depuis trois cents ans et qu'il ait même oublié de surveiller ses propres progrès, c'est ainsi seul que je peux véritablement appréhender le Dao céleste. »
 
 « Le Grand Ancien est plein de sagesse », répondirent respectueusement les trois hommes en inclinant la tête.
 
@@ -72,7 +72,7 @@ L'attaque fut trop rapide. L'homme eut à peine le temps de lever les yeux que l
 
 Seul l'arrosoir tomba au sol, intact.
 
-Planète Zi Miao, famille Lou. En tant qu'une des quatre grandes familles du domaine sud d'Allheaven, le jeune maître possédait une culture élevée. Soutenu par son clan, peu osaient le provoquer.
+Planète Zi Miao, famille Lou. En tant qu'une des quatre grandes familles du domaine sud d'Allheaven, le jeune maître possédait une cultivation élevée. Soutenu par son clan, peu osaient le provoquer.
 
 À ce moment précis, le jeune maître était en méditation profonde. Nu, il dominait une cultivatrice, poussant des rugissements bestiaux.
 
@@ -82,7 +82,7 @@ En un instant, la cultivatrice poussa un cri déchirant, saignant de tous ses or
 
 « La suivante ! » commanda l'homme en se relevant sans même un regard pour le cadavre. Des disciples entrèrent, emportèrent le corps et ramenèrent une autre cultivatrice, confuse et désorientée.
 
-L'homme s'empara d'elle, prêt à l'utiliser pour sa culture avec une expression sinistre. Mais soudain, un rugissement assourdissant fit trembler les cieux. D'abord lointain, le son devint vite tonitruant. Le lieu de méditation vola en éclats et l'homme fut saisi par la terreur. Il saisit la cultivatrice pour s'en servir de bouclier, mais le rayon d'énergie d'épée traversa son corps sans lui faire de mal, pour venir frapper directement l'homme entre ses sourcils.
+L'homme s'empara d'elle, prêt à l'utiliser pour sa cultivation avec une expression sinistre. Mais soudain, un rugissement assourdissant fit trembler les cieux. D'abord lointain, le son devint vite tonitruant. Le lieu de méditation vola en éclats et l'homme fut saisi par la terreur. Il saisit la cultivatrice pour s'en servir de bouclier, mais le rayon d'énergie d'épée traversa son corps sans lui faire de mal, pour venir frapper directement l'homme entre ses sourcils.
 
 Après un fracas de tonnerre, ses yeux s'écarquillèrent et son corps s'effondra. Son sang macula la femme qui, soudainement, retrouva toute sa lucidité.
 
@@ -94,7 +94,7 @@ Planète Xu Ling, famille Li.
 
 Des éclairs d'énergie d'épée frappèrent tous ces lieux, exécutant ceux qui avaient autrefois humilié Xi Zifeng !
 
-Une escouade de près de cent cultivateurs transportait deux planètes de culture, menée par un vieil homme qui dégageait une majesté naturelle sans paraître colérique. Tous les subordonnés le regardaient avec déférence.
+Une escouade de près de cent cultivateurs transportait deux planètes de cultivation, menée par un vieil homme qui dégageait une majesté naturelle sans paraître colérique. Tous les subordonnés le regardaient avec déférence.
 
 Cependant, alors qu'ils progressaient, un rayon d'énergie d'épée surgit. Avant que quiconque ne puisse réagir, l'attaque perça le corps du vieil homme, qui rendit l'âme sur-le-champ !
 

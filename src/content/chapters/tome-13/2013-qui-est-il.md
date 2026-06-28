@@ -34,7 +34,7 @@ Cette phrase sembla percer le firmament et scella ainsi le destin de ces deux am
 
 Toujours sous ce ciel bleu, se dressait une secte aussi familière qu'inconnue. La femme était assise en silence devant un pavillon, tenant une cithare. Les mélodies mélanciques de l'instrument résonnaient. Elle allait se marier.
 
-Cependant, lorsqu'elle sortit du pavillon pour affronter la réalité, un homme à la culture suprême apparut et se tint devant elle.
+Cependant, lorsqu'elle sortit du pavillon pour affronter la réalité, un homme à la cultivation suprême apparut et se tint devant elle.
 
 Son sourire empreint de douceur la déconcerta.
 

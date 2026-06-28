@@ -26,9 +26,9 @@ Cette vallée devint le symbole du pouvoir suprême de la tribu. Wang Lin, l'uni
 
 Les règles de Wang Lin demeuraient inchangées. Il n'existait toujours que trois méthodes pour obtenir les chants après le troisième stade.
 
-Tous les membres de la Tribu du Raffinement de l'Âme consacraient tout leur temps à la culture. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
+Tous les membres de la Tribu du Raffinement de l'Âme consacraient tout leur temps à la cultivation. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
 
-La Tribu du Raffinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques ; elle ressemblait davantage à une secte de culture nouvellement née.
+La Tribu du Raffinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques ; elle ressemblait davantage à une secte de cultivation nouvellement née.
 
 La vie de Wang Lin devint très paisible, car il était le seul habitant de la vallée. Toutes les anciennes habitations avaient été supprimées par lui, et l'endroit ressemblait désormais presque au Royaume Céleste.
 
@@ -40,7 +40,7 @@ Ce qu'il absorbait n'était pas l'énergie spirituelle céleste, mais l'énergie
 
 Le temps passa lentement et, en un clin d'œil, l'hiver arriva. L'hiver ici n'était pas différent de celui du monde extérieur. Des flocons blancs tombaient du ciel et le monde entier se parait de nacre.
 
-Wang Lin ouvrit les yeux, sortant de sa culture. En quittant sa demeure en bois, il vit la neige tomber. Il contempla silencieusement la chute des flocons, totalement immergé dans cette vision.
+Wang Lin ouvrit les yeux, sortant de sa cultivation. En quittant sa demeure en bois, il vit la neige tomber. Il contempla silencieusement la chute des flocons, totalement immergé dans cette vision.
 
 Peu après, Wang Lin leva la tête et murmura : « Deux ans déjà... »
 
@@ -60,11 +60,11 @@ La raison pour laquelle Wang Lin avait choisi d'absorber l'énergie spirituelle 
 
 Bien qu'il possédât cent ans de jades célestes, ceux-ci suffiraient à peine à l'amener au stade avancé de la Transformation de l'Âme, et la quantité nécessaire pour atteindre le stade Ascendant dépassait l'entendement.
 
-Par conséquent, s'il voulait élever son niveau de culture, il devait trouver d'autres raccourcis. Transformer l'énergie spirituelle démoniaque en énergie spirituelle céleste était l'une des méthodes qu'il avait conçues.
+Par conséquent, s'il voulait élever son niveau de cultivation, il devait trouver d'autres raccourcis. Transformer l'énergie spirituelle démoniaque en énergie spirituelle céleste était l'une des méthodes qu'il avait conçues.
 
 Si Wang Lin y avait pensé, d'autres le pourraient aussi. Désormais, tout dépendait de qui serait capable d'absorber le plus d'énergie spirituelle démoniaque.
 
-Aux yeux de Wang Lin, l'énergie spirituelle démoniaque était une alternative aux jades célestes, car elle pouvait accélérer sa culture !
+Aux yeux de Wang Lin, l'énergie spirituelle démoniaque était une alternative aux jades célestes, car elle pouvait accélérer sa cultivation !
 
 Au cours de ces deux années, la Tribu du Raffinement de l'Âme continua de croître. À mesure que le besoin pour le chant suivant s'intensifiait, les membres quittaient la vallée pour s'entraîner. En complément, chaque mois, des équipes revenaient de raids contre des tribus plus petites, rapportant des captifs et diverses quantités de cristaux démoniaques.
 
@@ -92,9 +92,9 @@ Au sein de la tribu, tout le monde ne pratiquait pas le sort de raffinement de l
 
 Treize était l'un de ces chasseurs.
 
-Depuis que sa culture avait été anéantie, il n'avait plus prononcé un mot ; il était comme muet. Il n'y avait plus d'étincelle dans son corps ; il n'était plus qu'une carcasse errante.
+Depuis que sa cultivation avait été anéantie, il n'avait plus prononcé un mot ; il était comme muet. Il n'y avait plus d'étincelle dans son corps ; il n'était plus qu'une carcasse errante.
 
-Seul tard dans la nuit, lors de ses innombrables tentatives de culture, une émotion perçait sur son visage. Cependant, cette émotion n'était que douleur infinie et ressentiment.
+Seul tard dans la nuit, lors de ses innombrables tentatives de cultivation, une émotion perçait sur son visage. Cependant, cette émotion n'était que douleur infinie et ressentiment.
 
 Il refusait d'accepter sa condition. De nombreux membres de la tribu atteignaient désormais le quatrième stade, et beaucoup possédaient plus de dix drapeaux d'âme. De nouveaux génies avaient émergé, remplaçant Treize comme les figures les plus puissantes sous l'autorité d'Ouyang Hua.
 

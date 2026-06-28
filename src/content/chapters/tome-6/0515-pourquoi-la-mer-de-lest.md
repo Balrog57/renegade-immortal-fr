@@ -54,7 +54,7 @@ C'est durant cette phase que la puissance mystérieuse émanant de la Mer se pro
 
 Chaque fois que la porte s'ouvre, une foule immense s'y engouffre. Si le nombre minimal est de quelques centaines, il peut dépasser les mille participants. Les plus faibles atteignent le stade de la Transformation de l'Âme, tandis que les plus puissants ont effleuré le stade du Yin et du Yang.
 
-C'est là le niveau de culture le plus élevé autorisé, car la planète Tian Yun impose des restrictions strictes : quiconque a atteint le stade de l'Ascendant est formellement interdit d'entrée.
+C'est là le niveau de cultivation le plus élevé autorisé, car la planète Tian Yun impose des restrictions strictes : quiconque a atteint le stade de l'Ascendant est formellement interdit d'entrée.
 
 Après tout, ce lieu sert à l'entraînement des disciples ; même lors de son ouverture, elle n'est que partiellement accessible afin d'éviter un massacre généralisé.
 
@@ -80,9 +80,9 @@ Tout au long du voyage, la femme ne prononça pas un mot. Une fois le jade de sa
 
 « La fille de l'Ancêtre du Sang, Yao Xixue ! » Certains la reconnurent aussitôt.
 
-L'Ancêtre du Sang, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
+L'Ancêtre du Sang, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de cultivation était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
 
-Cet homme possédait sa propre planète de culture autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
+Cet homme possédait sa propre planète de cultivation autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
 
 Yao Xinghai n'avait jamais pris de disciple, à l'exception d'une seule personne : sa fille bien-aimée. Il lui avait transmis toutes ses techniques et avait même défié les lois célestes pour aider son lignage à éveiller ses pouvoirs.
 
@@ -94,7 +94,7 @@ Trois silhouettes le suivaient !
 
 Il s'agissait de trois vieillards aux cheveux blancs. Bien que vêtus simplement, ils dégageaient une aura terrifiante qui semblait raréfier l'air environnant.
 
-À la périphérie du réseau de transfert, plusieurs centaines de disciples de la Secte Xuan Yuan étaient assis en divers points, pratiquant leur culture en silence. Ils attendaient l'ordre d'utiliser leur énergie spirituelle pour stimuler l'Énergie Céleste du réseau et l'activer.
+À la périphérie du réseau de transfert, plusieurs centaines de disciples de la Secte Xuan Yuan étaient assis en divers points, pratiquant leur cultivation en silence. Ils attendaient l'ordre d'utiliser leur énergie spirituelle pour stimuler l'Énergie Céleste du réseau et l'activer.
 
 Tandis que Xu Yunshan tapotait doucement son éventail de jade, son visage demeurait serein, sans trace d'impatience.
 
@@ -106,7 +106,7 @@ Vêtue d'une robe rose, sa peau était aussi limpide que du cristal ; elle sembl
 
 La jeune femme gonfla ses joues et lança d'un ton vif : « Grand frère, tu m'avais promis que si je réussissais à venir, tu me laisserais partir ! »
 
-Xu Yunshan la regarda et s'exclama : « Quelles idioties ! La Mer des Esprits Démoniaques de l'Est n'est pas un lieu accessible avec ton niveau de culture ! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes ! Xuan Yi, ramène-la à la secte ! »
+Xu Yunshan la regarda et s'exclama : « Quelles idioties ! La Mer des Esprits Démoniaques de l'Est n'est pas un lieu accessible avec ton niveau de cultivation ! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes ! Xuan Yi, ramène-la à la secte ! »
 
 L'un des vieillards derrière Xu Yunshan fit un pas en avant pour se placer aux côtés de la jeune femme. Il joignit les mains et dit : « Ma dame, je vous en prie, ne compliquez pas la tâche de Xuan Yi. »
 

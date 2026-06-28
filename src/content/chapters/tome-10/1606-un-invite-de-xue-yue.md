@@ -34,15 +34,15 @@ Au fil de son errance, le nom de « Grand Érudit Wang Lin » déclencha une tem
 
 Tout au long de son périple, Wang Lin contempla d'innombrables montagnes. Perché sur les sommets, il observait le monde et ressentait sa puissance. Il rencontra également des immortels, des figures aussi étranges que familières.
 
-Sur la planète Suzaku, de nombreuses sectes s'épanouissaient dans ces pays de culture. Beaucoup avaient établi leurs demeures au cœur de montagnes magnifiques, tandis que d'autres se trouvaient dans des zones périlleuses.
+Sur la planète Suzaku, de nombreuses sectes s'épanouissaient dans ces pays de cultivation. Beaucoup avaient établi leurs demeures au cœur de montagnes magnifiques, tandis que d'autres se trouvaient dans des zones périlleuses.
 
 Chaque montagne qu'il croisait, si Wang Lin le souhaitait, lui permettait de pénétrer une secte en suivant simplement son intuition, sans même avoir à la chercher délibérément. Bien que la puissance des formations de protection variât, aucune ne pouvait l'arrêter. Il était alors immédiatement détecté par tous les cultivateurs stupéfaits à l'intérieur de la secte.
 
-Même les Anciens, en culture isolée depuis d'innombrables années, étaient tirés de leur méditation par l'aura puissante émanant du corps de Wang Lin.
+Même les Anciens, en cultivation isolée depuis d'innombrables années, étaient tirés de leur méditation par l'aura puissante émanant du corps de Wang Lin.
 
 Wang Lin entrait et sortait avec calme. Il se contentait d'observer la montagne, de savourer le paysage et de comprendre le monde. Quant aux autres, ils lui étaient indifférents.
 
-Même au sein du monde de la culture, le nom du mortel Grand Érudit Wang Lin se répandit lentement. Les cultivateurs savaient qu'il existait sur la planète Suzaku un érudit qui inspirait l'effroi et le respect jusqu'à leurs âmes. Ils n'étaient pas impressionnés par sa puissance, mais par ses pensées !
+Même au sein du monde de la cultivation, le nom du mortel Grand Érudit Wang Lin se répandit lentement. Les cultivateurs savaient qu'il existait sur la planète Suzaku un érudit qui inspirait l'effroi et le respect jusqu'à leurs âmes. Ils n'étaient pas impressionnés par sa puissance, mais par ses pensées !
 
 « Qu'ils soient immortels ou mortels, tous sont des êtres de loisir... » Wang Lin laissait derrière lui des paroles de sagesse partout où il allait.
 

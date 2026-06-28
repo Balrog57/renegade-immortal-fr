@@ -16,7 +16,7 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 « Vicieux ! Simplement trop vicieux ! » Du Qing était profondément déprimé et recula de cent pieds. Il s'arrêta soudainement et regarda Wang Lin, toujours entouré par la boule de feu.
 
-« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empereur. Rencontrer quelqu'un de cette trempe est une chance inouïe ! Comment pourrais-je perdre mes moyens et partir ainsi ? Si je peux obtenir les conseils d'un Grand Empereur, mon niveau de culture augmentera sans aucun doute ! »
+« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empereur. Rencontrer quelqu'un de cette trempe est une chance inouïe ! Comment pourrais-je perdre mes moyens et partir ainsi ? Si je peux obtenir les conseils d'un Grand Empereur, mon niveau de cultivation augmentera sans aucun doute ! »
 
 « Si je le suis et que j'accède à ce passé, je n'aurai plus à me soucier du Grand Secte de l'Âme. Je n'aurai plus besoin de lui envoyer les précieux trésors que je trouverai ! » En y pensant, l'expression déprimée de Du Qing s'effaça pour laisser place à l'excitation.
 
@@ -104,6 +104,6 @@ Cet autel dégageait une aura ancestrale, et un jeune homme vêtu de noir y éta
 
 Il s'agissait de Xuan Luo.
 
-Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent Taureau Céleste, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
+Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent Taureau Céleste, Xuan Luo, qui était en cultivation fermée, ouvrit soudainement les yeux.
 
 « Il arrive... » Un sourire se dessina sur les lèvres de Xuan Luo. Il savait que le disciple qu'il avait choisi ne mourrait pas dans le vide et qu'il atteindrait enfin le Continent Astral Immortel !

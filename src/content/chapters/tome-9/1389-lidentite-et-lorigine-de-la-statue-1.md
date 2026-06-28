@@ -60,7 +60,7 @@ Tout en parlant, il agita la main, relâchant le sort d'arrêt sur Greed pour lu
 
 Greed réfléchit un instant en silence avant de laisser échapper un soupir : « Dans une tombe antique. »
 
-« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation de Scellement du Royaume, ce qui est impossible avec votre niveau de culture. Comment êtes-vous arrivé ici ? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Greed, faisant frissonner son corps.
+« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation de Scellement du Royaume, ce qui est impossible avec votre niveau de cultivation. Comment êtes-vous arrivé ici ? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Greed, faisant frissonner son corps.
 
 « C'était aussi dans cette tombe antique... Tous mes trésors ont été obtenus là-bas. » Greed renonça à résister. Il comprit que s'il disait la vérité, il aurait peut-être une chance de survie. Il savait que l'homme devant lui était un monstre qui ne ferait preuve d'aucune pitié.
 

@@ -96,7 +96,7 @@ Il savait parfaitement que Wang Lin n'aurait pu obtenir une aura aussi puissante
 
 Le pouvoir était emprunté à ce siège étrange !
 
-Cet élan, cette pression, pouvaient se dissiper à tout moment. Cependant, s'il cédait avant la fin, cela laisserait une faille dans son cœur de Dao et il ne pourrait jamais échapper à l'ombre d'avoir été agenouillé devant quelqu'un en tant que cultivateur du troisième pas ! Non seulement sa culture stagnerait, mais il risquait fort de devenir un esclave comme Ling Dong !!
+Cet élan, cette pression, pouvaient se dissiper à tout moment. Cependant, s'il cédait avant la fin, cela laisserait une faille dans son cœur de Dao et il ne pourrait jamais échapper à l'ombre d'avoir été agenouillé devant quelqu'un en tant que cultivateur du troisième pas ! Non seulement sa cultivation stagnerait, mais il risquait fort de devenir un esclave comme Ling Dong !!
 
 Tout en luttant, le rugissement de Zhou Jin résonna dans le palais silencieux. Son front était couvert de sueur et des craquements provenaient de son corps. Ses jambes tremblaient, mais il serrait les dents. Du sang jaillit du coin de sa bouche et tacha ses vêtements d'un rouge vif !
 

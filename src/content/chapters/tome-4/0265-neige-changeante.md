@@ -16,7 +16,7 @@ Mais cette routine ne dura pas. Il y a trois ans, le fils de Da Niu, nommé Xiao
 
 Da Niu était extrêmement fier que son propre fils allait devenir un immortel. Il l'annonçait à quiconque croisait son chemin, et bientôt, tout le monde dans la rue était au courant.
 
-Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte des Nuages Blancs. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
+Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte des Nuages Blancs. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la cultivation et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
 
 Si Wang Lin l'avait aidé, c'était parce que la seule connexion qu'il entretenait dans toute la capitale était avec la famille de Da Niu. Par conséquent, il avait offert à Xiao Niu de nombreuses pilules pour transformer son corps, et le résultat était là.
 

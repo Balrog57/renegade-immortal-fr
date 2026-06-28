@@ -18,7 +18,7 @@ Les deux silhouettes du manoir Mo se révélèrent devant la Prison Hong. Il s'a
 
 Dès leur apparition, l'énorme porte de fer noir qui se dressait devant eux s'entrouvrit brusquement. Un homme voûté au visage sombre sortit de cette fente. Il les dévisagea et, sans un mot, fit un geste de la main avant de rentrer à l'intérieur.
 
-Les yeux de Wang Lin se plissèrent imperceptiblement. Le niveau de culture de cet homme au visage sombre était le même que celui de Mo Lihai. Tous deux possédaient une culture équivalente à celle de cultivateurs du stade avancé de la Transformation de l'Âme !
+Les yeux de Wang Lin se plissèrent imperceptiblement. Le niveau de cultivation de cet homme au visage sombre était le même que celui de Mo Lihai. Tous deux possédaient une cultivation équivalente à celle de cultivateurs du stade avancé de la Transformation de l'Âme !
 
 Mo Lihai fit un pas en avant et se faufila comme un éclair à travers l'ouverture. Wang Lin le suivit avec calme.
 
@@ -28,7 +28,7 @@ Mo Lihai hocha la tête et répondit : « C'est lui. Le reste dépendra du frèr
 
 L'homme nommé Xu acquiesça : « Vous pouvez partir, je vais l'emmener à l'intérieur ! »
 
-Mo Lihai s'approcha de Wang Lin et murmura : « Frère Wang, prenez soin de vous ! J'espère que votre culture sera couronnée de succès ! » Sur ce, il fit un pas et disparut.
+Mo Lihai s'approcha de Wang Lin et murmura : « Frère Wang, prenez soin de vous ! J'espère que votre cultivation sera couronnée de succès ! » Sur ce, il fit un pas et disparut.
 
 L'homme nommé Xu regarda Wang Lin et demanda : « Quel est ton nom ? »
 
@@ -46,11 +46,11 @@ Des flammes fantomatiques éclairaient les parois. Le vacillement du feu rendait
 
 Au début de la descente, le silence régnait, mais à mesure qu'ils s'enfonçaient, des cris et des rugissements commençaient à émaner des profondeurs. Ces voix étaient saturées d'intention meurtrière et de ressentiment. Comparé à ce que l'on voyait en surface, l'aura était plus de dix fois plus puissante !
 
-L'homme nommé Xu ralentit délibérément pour observer Wang Lin en secret. Il savait que l'aura de cette prison était presque assez dense pour se condenser sous forme solide. Même des généraux démoniaques ayant un niveau de culture similaire au sien ressentiraient un malaise, à moins d'être comme lui, ayant vécu ici pendant des centaines d'années. Il s'était déjà habitué à cette aura à force d'y cultiver.
+L'homme nommé Xu ralentit délibérément pour observer Wang Lin en secret. Il savait que l'aura de cette prison était presque assez dense pour se condenser sous forme solide. Même des généraux démoniaques ayant un niveau de cultivation similaire au sien ressentiraient un malaise, à moins d'être comme lui, ayant vécu ici pendant des centaines d'années. Il s'était déjà habitué à cette aura à force d'y cultiver.
 
 Plus il observait, plus il était stupéfait. L'expression de Wang Lin restait normale et, d'après ses observations, il ne semblait pas forcer son calme. Au contraire, c'était comme si Wang Lin était sur le point de s'intégrer parfaitement à cet environnement.
 
-Après avoir examiné Wang Lin, l'homme nommé Xu renonça à toute idée de le tester. Il comprit que si cette personne avait choisi de venir ici pour sa culture, elle devait posséder une nature spéciale. Continuer à l'espionner serait inapproprié.
+Après avoir examiné Wang Lin, l'homme nommé Xu renonça à toute idée de le tester. Il comprit que si cette personne avait choisi de venir ici pour sa cultivation, elle devait posséder une nature spéciale. Continuer à l'espionner serait inapproprié.
 
 L'escalier était très long. Après un certain temps, ils atteignirent le bout du passage. L'endroit était terrifiant ; c'était comme une cage gigantesque divisée en des milliers de cellules séparées.
 
@@ -118,7 +118,7 @@ La momie avait la bouche grande ouverte et exhalait un gaz gris. Ce gaz retourna
 
 Il continuait d'observer. Dès que l'énergie de massacre avait pénétré cet homme, elle avait commencé à absorber sa force vitale : son âme, son sang, sa chair et toute son essence.
 
-« Utiliser l'énergie de massacre pour tuer ne fait que la nourrir. Si je veux qu'elle se divise en plusieurs filaments, il me manque encore quelque chose... une certaine illumination... », médita Wang Lin avant de regarder la momie. Le niveau de culture de cet homme n'était pas élevé et, avec les restrictions imposées à son corps, il ne pouvait pas déployer sa pleine puissance. Ce n'était pas un cas isolé ; presque tous les prisonniers étaient dans le même état.
+« Utiliser l'énergie de massacre pour tuer ne fait que la nourrir. Si je veux qu'elle se divise en plusieurs filaments, il me manque encore quelque chose... une certaine illumination... », médita Wang Lin avant de regarder la momie. Le niveau de cultivation de cet homme n'était pas élevé et, avec les restrictions imposées à son corps, il ne pouvait pas déployer sa pleine puissance. Ce n'était pas un cas isolé ; presque tous les prisonniers étaient dans le même état.
 
 Le cri misérable s'éteignit avec la mort de l'homme, et la prison retomba dans un silence extrême. Cependant, ce calme fut de courte durée avant que les hurlements ne reprennent, plus explosifs encore !
 
@@ -160,7 +160,7 @@ Wang Lin répondit simplement : « Ma condition ? »
 
 L'homme nommé Xu laissa paraître une pointe d'admiration : « Aidez-moi à tuer le général démon nommé Shi Xiao ! Ne me demandez pas pourquoi. Avec mon cœur de tueur, je suis son égal, mais j'ai une confiance absolue en ma capacité à l'éliminer en secret. Cependant, je suis lié à cette prison et il ne mettra jamais les pieds ici. C'est pourquoi, si vous m'aidez, je vous aiderai à cultiver votre sort de massacre ! Mais j'ai une condition supplémentaire : vous devez le tuer en utilisant votre art du massacre ! Laissez-le mourir sur la voie du massacre ! » Une lueur de haine brilla dans ses yeux.
 
-« Si je parviens réellement à achever ma culture du massacre, alors j'accepterai votre condition ! », répondit Wang Lin d'une voix sereine, sans tout dévoiler.
+« Si je parviens réellement à achever ma cultivation du massacre, alors j'accepterai votre condition ! », répondit Wang Lin d'une voix sereine, sans tout dévoiler.
 
 « Suivez-moi ! » L'homme nommé Xu afficha un sourire sinistre et se détourna. « Les prisons de la Prison Hong ne sont qu'une façade. Le véritable rôle des quatre prisons de la Cité du Démon Céleste est de fournir l'intention meurtrière nécessaire à l'épée de l'Empereur Démon ! C'est pourquoi vous devez descendre au fond de la prison. C'est là seulement que vous pourrez véritablement comprendre le cœur du tueur ! »
 

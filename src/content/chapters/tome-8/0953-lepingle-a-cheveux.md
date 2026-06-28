@@ -52,7 +52,7 @@ Des vagues de magma jaillirent du sommet de la montagne. Le Royaume de la Bouche
 
 Ce magma portait en lui le pouvoir de dévorer tout ce qui existe !
 
-Les cultivateurs du Royaume de la Boucherie dont la culture était insuffisante furent frappés par la poussière toxique. Ils poussèrent des cris alors que leurs corps se flétrissaient et se dissipaient dans le vide.
+Les cultivateurs du Royaume de la Boucherie dont la cultivation était insuffisante furent frappés par la poussière toxique. Ils poussèrent des cris alors que leurs corps se flétrissaient et se dissipaient dans le vide.
 
 Certains luttèrent au sein du magma, mais la température était trop élevée. Même en utilisant des sorts ou des trésors, il leur était presque impossible de s'échapper !
 

@@ -114,7 +114,7 @@ Le regard de l'étranger trahissait une lutte désespérée. Soudain, il arracha
 
 Le visage de Wang Lin s'assombrit. Sans hésiter, il rengaina l'épée et la poussa sur les deux tiers de sa longueur. La lame passa alors rapidement du noir au rouge.
 
-Les deux tiers représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa culture au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
+Les deux tiers représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa cultivation au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
 
 À cet instant précis, le gaz vert entourant l'étranger fut rapidement absorbé par son corps. Lorsqu'il réapparut devant Wang Lin, son corps était parfaitement intact, sans la moindre trace de blessure.
 

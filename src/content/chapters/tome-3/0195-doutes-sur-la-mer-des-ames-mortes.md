@@ -92,7 +92,7 @@ Ta Sen fronça les sourcils face à la bête et hurla : « Créature maléfique,
 
 La créature, longue de millions de pieds, bougea lentement, faisant déferler les vagues avec violence. Elle fixa Ta Sen et s'exprima soudain en langage humain :
 
-« Ta Sen, tu n'es qu'une conscience maléfique née lorsque le Maître pratiquait la Technique Divine de Transformation d'Encre Fluide. Comment pourrais-je t'oublier ? Si tu n'avais pas provoqué cette rébellion au moment le plus critique de sa culture, le Maître ne serait pas mort. »
+« Ta Sen, tu n'es qu'une conscience maléfique née lorsque le Maître pratiquait la Technique Divine de Transformation d'Encre Fluide. Comment pourrais-je t'oublier ? Si tu n'avais pas provoqué cette rébellion au moment le plus critique de sa cultivation, le Maître ne serait pas mort. »
 
 Ta Sen eut un reniflement méprisant et répondit d'un ton lugubre : « Qu'est-ce que cela peut bien avoir à voir avec moi ? L'ambition de Tu Si était trop vaste ; il tentait de maîtriser une technique divine que nul ne pouvait dompter. Sans cela, comment aurait-il pu me créer ? Au moment où il m'a séparé de son âme, il m'a abandonné. Mais je dois le remercier : sans cela, sa mort aurait été la mienne ! »
 

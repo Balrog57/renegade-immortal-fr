@@ -132,11 +132,11 @@ Au sein du Secte des Quatre Divinités, les éveils de la Tortue Noire n'étaien
 
 Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure !
 
-Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à sa troisième Affliction Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement !
+Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à sa troisième Affliction Céleste — ce qui l'empêchait d'utiliser pleinement sa cultivation —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement !
 
 L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités ; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux !
 
-Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de l'Oiseau Vermillon ! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus !
+Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur cultivation pour activer l'éveil de l'Oiseau Vermillon ! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus !
 
 Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire du Secte Divin de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode !
 
@@ -230,7 +230,7 @@ Pourtant, cet effondrement ne faisait que commencer ! À mesure que les flammes 
 
 À ce moment-là, un autre royaume s'effondra, et le rugissement de colère de Situ Nan retentit de l'intérieur !
 
-« Quel maudit bâtard ose interrompre la culture de ce vieillard ?! » À peine eut-il crié qu'il laissa échapper un hurlement et s'enfuit de la mer de flammes.
+« Quel maudit bâtard ose interrompre la cultivation de ce vieillard ?! » À peine eut-il crié qu'il laissa échapper un hurlement et s'enfuit de la mer de flammes.
 
 « Bon sang, quel genre de feu est-ce là !?! »
 

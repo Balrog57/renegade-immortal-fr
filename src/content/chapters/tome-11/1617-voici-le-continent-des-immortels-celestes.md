@@ -66,7 +66,7 @@ Il y avait de nombreux sommets hauts et imposants, des mers infinies aux vagues 
 
 Ce continent était comparable à d'innombrables Royaumes Intérieurs et Extérieurs !
 
-La quantité d'énergie céleste y était au-delà de l'imagination. Il ne reconnut aucune des plantes qui y poussaient, et de nombreuses petites bêtes imprégnées d'énergie céleste couraient partout. Elles possédaient toutes une culture puissante.
+La quantité d'énergie céleste y était au-delà de l'imagination. Il ne reconnut aucune des plantes qui y poussaient, et de nombreuses petites bêtes imprégnées d'énergie céleste couraient partout. Elles possédaient toutes une cultivation puissante.
 
 Il ressentit diverses auras puissantes. Ces présences étaient extrêmement fortes et lui rappelaient le Daoïste aux Sept Couleurs qu'il avait vu dans le Royaume aux Sept Couleurs !
 

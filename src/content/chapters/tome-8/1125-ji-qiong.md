@@ -2,7 +2,7 @@
 n: 1125
 title: Ji Qiong
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1125 - Ji Qiong
 slug: ji-qiong
 ---
@@ -40,7 +40,7 @@ L'espace autour de la planète Suzaku se tordit et Wang Lin en émergea. En obse
 
 Lorsqu'il apparut, il se trouvait sur la lune de la planète Suzaku.
 
-Il y avait naturellement des cultivateurs ici, mais grâce au niveau de culture de Wang Lin, personne ne le remarqua. Il trouva une montagne et s'y cacha. Il ouvrit ensuite son propre espace intérieur et grava une formation sur le sol.
+Il y avait naturellement des cultivateurs ici, mais grâce au niveau de cultivation de Wang Lin, personne ne le remarqua. Il trouva une montagne et s'y cacha. Il ouvrit ensuite son propre espace intérieur et grava une formation sur le sol.
 
 C'était la Formation Céleste Qing Lin qu'il avait apprise lors de sa fusion avec Qing Lin. Elle pouvait masquer toutes ses traces et empêcher quiconque de le trouver. Une fois la formation établie, il sortit quelques jades célestes et les disposa sur les tracés.
 
@@ -54,7 +54,7 @@ L'âme originelle brilla instantanément d'un éclat rouge, et les rochers au so
 
 C'était comme si un vortex s'était formé dans la grotte ; d'innombrables fragments de roche convergeaient vers l'âme originelle qui se solidifiait progressivement. Après environ sept minutes, une copie de Wang Lin apparut.
 
-« Le sort de formation du corps de l'Empereur Céleste Qing Lin est très réaliste ! » Wang Lin ferma les yeux. Même avec son niveau de culture, il ne pouvait distinguer si l'âme originelle devant lui était réelle ou une illusion.
+« Le sort de formation du corps de l'Empereur Céleste Qing Lin est très réaliste ! » Wang Lin ferma les yeux. Même avec son niveau de cultivation, il ne pouvait distinguer si l'âme originelle devant lui était réelle ou une illusion.
 
 Si ce n'était que de la ressemblance, cela ne serait pas le sort céleste de Qing Lin. Outre l'impossibilité de le différencier du corps réel, il possédait la capacité d'utiliser une puissance presque identique à celle de l'original. Toutefois, avec l'âme originelle de Wang Lin, il ne pourrait durer que dix jours !
 

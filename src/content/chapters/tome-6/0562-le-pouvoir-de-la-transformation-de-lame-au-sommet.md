@@ -26,19 +26,19 @@ Parmi les quatre commandants, trois étaient au niveau du stade initial de la Tr
 
 C'était principalement parce que les quatre d'entre eux possédaient une immense énergie spirituelle démoniaque. En chargeant, cette énergie prit la forme de quatre bêtes démoniaques, décuplant leur férocité !
 
-Mais à présent, la culture de Wang Lin avait atteint le sommet du stade avancé de la Transformation de l'Âme ; il se tenait donc au faîte des cultivateurs de ce rang. En voyant les quatre foncer sur lui, son visage resta d'un calme absolu.
+Mais à présent, la cultivation de Wang Lin avait atteint le sommet du stade avancé de la Transformation de l'Âme ; il se tenait donc au faîte des cultivateurs de ce rang. En voyant les quatre foncer sur lui, son visage resta d'un calme absolu.
 
 « Reculez ! » Wang Lin resta immobile et ne prononça que ces deux mots.
 
 Bien que sa voix fût basse, elle était chargée de l'énergie spirituelle céleste d'un cultivateur au sommet du stade avancé de la Transformation de l'Âme. Le son résonna comme un coup de tonnerre dans les oreilles des quatre commandants.
 
-Seul le commandant égalant le stade intermédiaire put contenir l'impact, bien que son expression en fût altérée. Les trois autres, n'étant qu'au stade initial, ne purent faire face à un tel écart de culture. Leurs visages pâlirent et leurs corps, secoués par des tremblements involontaires, s'arrêtèrent net.
+Seul le commandant égalant le stade intermédiaire put contenir l'impact, bien que son expression en fût altérée. Les trois autres, n'étant qu'au stade initial, ne purent faire face à un tel écart de cultivation. Leurs visages pâlirent et leurs corps, secoués par des tremblements involontaires, s'arrêtèrent net.
 
-Bien que leur culture puisse être comparée à celle de cultivateurs de la Transformation de l'Âme, ils étaient encore bien trop loin du niveau de Wang Lin. Ce dernier atteignait désormais le sommet du stade de la Transformation de l'Âme !
+Bien que leur cultivation puisse être comparée à celle de cultivateurs de la Transformation de l'Âme, ils étaient encore bien trop loin du niveau de Wang Lin. Ce dernier atteignait désormais le sommet du stade de la Transformation de l'Âme !
 
-Wang Lin avança d'un pas neutre. Bien que ses pas fussent lents, ils étaient empreints d'une fermeté inébranlable. Le commandant dont la culture égalait le stade intermédiaire s'écarta immédiatement sur le côté, n'osant entraver la marche de Wang Lin.
+Wang Lin avança d'un pas neutre. Bien que ses pas fussent lents, ils étaient empreints d'une fermeté inébranlable. Le commandant dont la cultivation égalait le stade intermédiaire s'écarta immédiatement sur le côté, n'osant entraver la marche de Wang Lin.
 
-Quant aux trois autres, ils étaient plongés dans la stupéfaction, particulièrement Sima Yan qui fut le plus ébranlé ; il n'osait même plus lever les yeux vers lui. Il sentit qu'il avait été incroyablement chanceux autrefois. S'il avait su que Wang Lin possédait une telle culture, il n'aurait jamais osé le provoquer.
+Quant aux trois autres, ils étaient plongés dans la stupéfaction, particulièrement Sima Yan qui fut le plus ébranlé ; il n'osait même plus lever les yeux vers lui. Il sentit qu'il avait été incroyablement chanceux autrefois. S'il avait su que Wang Lin possédait une telle cultivation, il n'aurait jamais osé le provoquer.
 
 Mais son cœur tressaillit soudain en pensant à ce qui était arrivé à Treize et Hu Pao. Il jura intérieurement, rongé par le regret.
 
@@ -58,7 +58,7 @@ Ce mouvement projeta instantanément son aura. Bien qu'invisible, tous les solda
 
 L'expression de Wang Lin demeura impassible. Sans marquer la moindre pause, il continua d'avancer, pas après pas.
 
-L'aura du colosse se dissipa dès qu'elle toucha le corps de Wang Lin, incapable de l'affecter le moindre instant. En un coup d'œil, Wang Lin perçut la culture de son adversaire : l'énergie spirituelle démoniaque de l'homme égalait celle d'un cultivateur du stade avancé de la Transformation de l'Âme qui n'avait pas encore atteint son apogée.
+L'aura du colosse se dissipa dès qu'elle toucha le corps de Wang Lin, incapable de l'affecter le moindre instant. En un coup d'œil, Wang Lin perçut la cultivation de son adversaire : l'énergie spirituelle démoniaque de l'homme égalait celle d'un cultivateur du stade avancé de la Transformation de l'Âme qui n'avait pas encore atteint son apogée.
 
 L'aura de Wang Lin croissait de façon vertigineuse à chaque foulée. Tandis qu'il marchait, le givre commença à recouvrir le sol et à se propager.
 
@@ -78,7 +78,7 @@ Le colosse ressentit alors une pression titanesque, comme si d'innombrables mont
 
 À cet instant, il ne restait que dix pas entre lui et l'homme en armure noire.
 
-Des vagues d'aura puissantes s'abattirent sur le colosse comme des bêtes sauvages. Il refusa de reculer car, en tant que commandant en chef, il ne pouvait tolérer qu'un subordonné l'intimide par sa seule présence, sous peine de voir sa position compromise ! Et ce, même si la culture de ce commandant était supérieure à la sienne !
+Des vagues d'aura puissantes s'abattirent sur le colosse comme des bêtes sauvages. Il refusa de reculer car, en tant que commandant en chef, il ne pouvait tolérer qu'un subordonné l'intimide par sa seule présence, sous peine de voir sa position compromise ! Et ce, même si la cultivation de ce commandant était supérieure à la sienne !
 
 Wang Lin remarqua immédiatement que l'homme atteignait ses limites ; il accéléra brusquement et fit sept pas d'un coup !
 
@@ -88,13 +88,13 @@ En reculant, sa propre pression faiblit. En réaction, celle de Wang Lin monta e
 
 « C'est mauvais ! » Le visage du colosse se décomposa tandis que le regard de Wang Lin devenait glacial. Il s'élança comme l'éclair, chargeant directement l'homme en armure noire.
 
-À cet instant précis, sa culture au sommet du stade avancé de la Transformation de l'Âme se révéla avec fracas !
+À cet instant précis, sa cultivation au sommet du stade avancé de la Transformation de l'Âme se révéla avec fracas !
 
 Alors qu'il reculait, le colosse serra les poings et lança un coup de poing qui provoqua un grondement assourdissant, propageant des ondes de choc vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ mille pieds de large !
 
 Cette tortue noire était couverte d'innombrables pointes sur son dos et sa queue. Lorsque celle-ci balaya l'air, elle sembla pouvoir briser l'espace lui-même, laissant apparaître des lignes noires dans le vide.
 
-Wang Lin fendit l'air à une vitesse fulgurante pour atteindre sa cible. Il leva son pouce vers le ciel pour utiliser le Doigt de la Mort. Maintenant que sa culture avait atteint le sommet du stade avancé de la Transformation de l'Âme, la puissance de ce sort était décuplée !
+Wang Lin fendit l'air à une vitesse fulgurante pour atteindre sa cible. Il leva son pouce vers le ciel pour utiliser le Doigt de la Mort. Maintenant que sa cultivation avait atteint le sommet du stade avancé de la Transformation de l'Âme, la puissance de ce sort était décuplée !
 
 Si les soldats démons ne s'étaient pas déjà écartés, leur chair et leur énergie spirituelle auraient été instantanément absorbées par le Doigt de la Mort. Même en ayant reculé, une partie de leur essence fut tout de même aspirée par la technique.
 
@@ -118,7 +118,7 @@ L'écart entre un cultivateur au sommet du stade avancé de la Transformation de
 
 Le corps de la tortue noire vola en éclats et l'armure du colosse se brisa. Il cracha une bouchée de sang avant d'être projeté en arrière, finissant à genoux sur un pied.
 
-« Les sorts démoniaques possèdent bel et bien des pouvoirs extraordinaires ! » lança froidement Wang Lin. S'il s'était agi d'un cultivateur classique, son niveau de culture aurait chuté, mais ce ne fut pas le cas pour l'homme. Bien que ses blessures fussent graves, sa fondation était restée intacte !
+« Les sorts démoniaques possèdent bel et bien des pouvoirs extraordinaires ! » lança froidement Wang Lin. S'il s'était agi d'un cultivateur classique, son niveau de cultivation aurait chuté, mais ce ne fut pas le cas pour l'homme. Bien que ses blessures fussent graves, sa fondation était restée intacte !
 
 La main droite de Wang Lin glissa derrière lui ; le corps de Sima Yan fut aussitôt projeté et rattrapé par lui.
 

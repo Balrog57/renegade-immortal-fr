@@ -10,11 +10,11 @@ Le bracelet libéra une immense quantité de lumière blanche qui se concentra p
 
 Ce vortex révéla un lieu semblable à un autel, situé à Suzaku.
 
-« Ceng Niu, je me souviendrai de toi ! Oui, c'est bien toi !! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas ! » La haine dans la voix de Red Butterfly était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
+« Ceng Niu, je me souviendrai de toi ! Oui, c'est bien toi !! C'est toi qui m'as forcée à sacrifier un niveau de cultivation pour utiliser ce bracelet. Je ne l'oublierai pas ! » La haine dans la voix de Red Butterfly était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
 
 Le Bracelet de Paix Ouverte, outre ses capacités ordinaires, possédait une fonction supplémentaire : ouvrir un portail depuis le Royaume Céleste vers Suzaku afin de permettre à l'utilisateur de rentrer en toute sécurité.
 
-Ce bracelet avait été initialement obtenu par Suzaku dans le royaume céleste ; il n'était donc pas surprenant qu'il possède une telle faculté. C'était aussi pour cette raison que Red Butterfly ne craignait véritablement rien. Cependant, le prix à payer était exorbitant : une fois de retour à Suzaku, son niveau de culture ne serait plus celui du stade avancé de la Formation de l'Âme, mais celui du stade intermédiaire !
+Ce bracelet avait été initialement obtenu par Suzaku dans le royaume céleste ; il n'était donc pas surprenant qu'il possède une telle faculté. C'était aussi pour cette raison que Red Butterfly ne craignait véritablement rien. Cependant, le prix à payer était exorbitant : une fois de retour à Suzaku, son niveau de cultivation ne serait plus celui du stade avancé de la Formation de l'Âme, mais celui du stade intermédiaire !
 
 Wang Lin commençait à perdre le contrôle du domaine impitoyable qui bouillonnait en lui.
 
@@ -62,7 +62,7 @@ Il avait utilisé toutes ses ressources. Il avait même choisi l'instant où son
 
 « Bien que je ne l'aie pas tuée, avec ce bras, je peux lancer d'innombrables malédictions pour m'assurer qu'elle restera à jamais au stade de la Formation de l'Âme ! » Les yeux de Wang Lin brillèrent d'une lueur maléfique.
 
-« Ma culture est encore insuffisante. Si j'avais été au stade intermédiaire de la Formation de l'Âme, l'issue de ce combat aurait été différente », soupira-t-il une nouvelle fois.
+« Ma cultivation est encore insuffisante. Si j'avais été au stade intermédiaire de la Formation de l'Âme, l'issue de ce combat aurait été différente », soupira-t-il une nouvelle fois.
 
 Le combat contre Red Butterfly n'avait pas duré longtemps ; il n'avait duré que quelques respirations.
 
@@ -92,7 +92,7 @@ Il continua sa descente pendant un long moment avant de percevoir une lueur au b
 
 Quelques respirations plus tard, une silhouette traversa les tunnels à toute vitesse. Au moment où cette personne passa devant Wang Lin, elle marqua un temps d'arrêt et poussa un grognement avant de foncer vers la lumière.
 
-Peu après, Chi Hu descendit également et fut surpris par la présence de Wang Lin. Ce dernier s'élança immédiatement pour lui envoyer une transmission vocale : « Chi Hu, nos niveaux de culture sont les plus bas ici. Nous devons nous méfier de cet ancien du Secte des Cadavres ! »
+Peu après, Chi Hu descendit également et fut surpris par la présence de Wang Lin. Ce dernier s'élança immédiatement pour lui envoyer une transmission vocale : « Chi Hu, nos niveaux de cultivation sont les plus bas ici. Nous devons nous méfier de cet ancien du Secte des Cadavres ! »
 
 Chi Hu acquiesça. Les deux hommes émergèrent du tunnel simultanément.
 

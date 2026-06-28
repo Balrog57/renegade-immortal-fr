@@ -22,7 +22,7 @@ Simultanément, Wang Lin prit une profonde inspiration et manipula ses mains ave
 
 À l'instant même où il achevait ses gestes, l'Esprit de la Terre arriva.
 
-L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa culture au stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
+L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa cultivation au stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
 
 À ses yeux, Wang Lin n'était pas digne de l'inciter à la prudence.
 
@@ -34,7 +34,7 @@ L'Esprit de la Terre fronça les sourcils, mais ne marqua aucun temps d'arrêt. 
 
 Au même moment, une épaisse fumée noire apparut. Des bras de restriction jaillirent et encerclèrent l'Esprit de la Terre. Peu après, huit anneaux de restriction noirs apparurent, formant avec le drapeau de restriction une cage destinée à piéger l'Esprit de la Terre.
 
-Wang Lin recula immédiatement. Il savait qu'avec son niveau de culture, il ne pourrait en aucun cas résister à l'Esprit de la Terre. Cependant, il n'avait pas l'intention de l'affronter lui-même ; il devait simplement le contenir jusqu'à ce que le jeune homme au pinceau arrive. La bataille serait alors terminée.
+Wang Lin recula immédiatement. Il savait qu'avec son niveau de cultivation, il ne pourrait en aucun cas résister à l'Esprit de la Terre. Cependant, il n'avait pas l'intention de l'affronter lui-même ; il devait simplement le contenir jusqu'à ce que le jeune homme au pinceau arrive. La bataille serait alors terminée.
 
 L'Esprit de la Terre perçut l'intention de Wang Lin. Il poussa un rugissement et percuta les anneaux de restriction, ignorant totalement la fumée de restriction.
 

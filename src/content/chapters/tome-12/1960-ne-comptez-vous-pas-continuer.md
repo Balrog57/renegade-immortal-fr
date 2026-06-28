@@ -40,7 +40,7 @@ Ceux qui se trouvaient loin de l'Épreuve Céleste étaient également très int
 
 Dans le palais impérial, l'Empereur Céleste siégeait sur le trône du dragon ; il observait l'illusion et un sourire apparut au coin de ses lèvres.
 
-« Il n'a franchi que le 13e palais — ce n'est rien d'inquiétant ! Ming Dao est un peu trop arrogant et ne tolère que personne ne le surpasse, même s'il ne s'agit que de la prouesse d'un simple Ascendant Céleste. Normalement, une telle personnalité est un défaut, mais il canalise ce trait dans sa culture, alors cela convient.
+« Il n'a franchi que le 13e palais — ce n'est rien d'inquiétant ! Ming Dao est un peu trop arrogant et ne tolère que personne ne le surpasse, même s'il ne s'agit que de la prouesse d'un simple Ascendant Céleste. Normalement, une telle personnalité est un défaut, mais il canalise ce trait dans sa cultivation, alors cela convient.
 
 Quoi qu'il en soit, laissons Ming Dao donner une leçon à ce Wang Lin. Même s'il a passé le 13e palais, il devra s'incliner lorsqu'il viendra dans ma cité impériale ! »
 

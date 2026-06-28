@@ -8,7 +8,7 @@ slug: changement-soudain
 ---
 Le temps passa. Une brise printanière soufflait sur la terre. Tout reprenait vie : l'herbe verdissait et les parfums embaumaient l'air, tandis que le ciel demeurait d'un bleu éternel.
 
-Wang Lin sortit de sa culture plusieurs mois après avoir appréhendé la fusion.
+Wang Lin sortit de sa cultivation plusieurs mois après avoir appréhendé la fusion.
 
 Grâce au sort de fusion du Dao, l'Espace Courbé de Wang Lin s'était fusionné avec le monde et avec lui-même. Il avait également utilisé la téléportation et le chevauchement spatial pour faire évoluer l'Espace Courbé d'une variation à la suivante.
 

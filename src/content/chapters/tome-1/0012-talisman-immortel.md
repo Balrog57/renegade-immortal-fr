@@ -46,7 +46,7 @@ Un jeune homme vêtu de blanc s'avança d'un pas nonchalant. Il jeta un regard �
 
 En voyant ce jeune homme en blanc, le cœur de Wang Lin se serra tandis qu'il hochait la tête.
 
-Il savait déjà que les disciples de la Secte Heng Yue étaient classés selon la couleur de leurs vêtements. Les disciples honoraires étaient répartis entre le gris et le jaune. Les jaunes recevaient le droit de commencer la culture des techniques immortelles. Les disciples intérieurs, quant à eux, étaient classés selon leur force : du violet au noir, puis au blanc et enfin au rouge.
+Il savait déjà que les disciples de la Secte Heng Yue étaient classés selon la couleur de leurs vêtements. Les disciples honoraires étaient répartis entre le gris et le jaune. Les jaunes recevaient le droit de commencer la cultivation des techniques immortelles. Les disciples intérieurs, quant à eux, étaient classés selon leur force : du violet au noir, puis au blanc et enfin au rouge.
 
 La bouche du jeune homme en blanc se crispa et il lança un regard glacial à Wang Lin avant de faire demi-tour pour regagner la cour. Wang Lin le suivit, le visage impassible.
 

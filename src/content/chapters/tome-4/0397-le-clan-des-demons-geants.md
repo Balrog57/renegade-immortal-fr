@@ -24,7 +24,7 @@ Au sommet de la Montagne du Raffinement de l'Âme, Wang Lin ouvrit les yeux. Rie
 
 « Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper ! » Les yeux de Wang Lin s'illuminèrent et il disparut du Secte du Raffinement de l'Âme.
 
-Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
+Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa cultivation en méditation fermée.
 
 Wang Lin apparut rapidement près de l'ancien réseau de transfert, l'ouvrit et disparut de Pilu.
 
@@ -36,7 +36,7 @@ Au sein du Clan des Démons Géants se trouvaient douze Palais de Démons Géant
 
 Depuis deux ans, lorsque l'ancêtre avait perdu son corps pour en posséder un autre, sa trace s'était perdue.
 
-Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pourquoi l'ancêtre avait changé son lieu de culture secrète à trois reprises.
+Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pourquoi l'ancêtre avait changé son lieu de cultivation secrète à trois reprises.
 
 Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade à la main. Son visage était pâle et empreint de confusion.
 
@@ -68,7 +68,7 @@ Il déploya son sens divin, qui couvrit immédiatement la majeure partie du pays
 
 « Ancêtre du Clan des Démons Géants, sortez maintenant ! » Le message de Wang Lin, porté par son sens divin, fut instantanément entendu par d'innombrables membres du clan.
 
-Certains étaient en pleine culture ou s'entraînaient, mais dès qu'ils entendirent l'appel, ils cessèrent toute activité et tournèrent leurs regards vers Wang Lin.
+Certains étaient en pleine cultivation ou s'entraînaient, mais dès qu'ils entendirent l'appel, ils cessèrent toute activité et tournèrent leurs regards vers Wang Lin.
 
 Chi Hu soupira et disparut du palais.
 
@@ -88,7 +88,7 @@ Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha
 
 « Ceng Niu... c'est lui qui a vaincu Red Butterfly ! »
 
-« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a transformé Xue Yue en un pays de culture de rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yue ! »
+« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a transformé Xue Yue en un pays de cultivation de rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yue ! »
 
 « Le numéro un des cultivateurs sous le stade de la Transformation de l'Âme ! »
 

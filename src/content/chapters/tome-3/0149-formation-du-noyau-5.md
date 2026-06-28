@@ -70,13 +70,13 @@ Qian Kun esquissa un sourire. Kun Song, qui avait été le premier à poursuivre
 
 Kun Song et l'autre ancien qui traquait Wang Lin joignirent les mains en signe de respect : « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous ? »
 
-Le regard de Qian Kun glissa sur le fourneau, puis il hocha silencieusement la tête. Le cultivateur au grand crâne esquissa un sourire perfide en tendant la main vers Li Muwan : « Petite fille, une fois que tu auras servi mes compagnons de secte, tu deviendras mon propre fourneau de culture personnel. »
+Le regard de Qian Kun glissa sur le fourneau, puis il hocha silencieusement la tête. Le cultivateur au grand crâne esquissa un sourire perfide en tendant la main vers Li Muwan : « Petite fille, une fois que tu auras servi mes compagnons de secte, tu deviendras mon propre fourneau de cultivation personnel. »
 
 Le visage de Li Muwan devint livide. Alors qu'elle s'apprêtait à mettre fin à ses jours, le cultivateur s'interrompit brusquement dans un cri de douleur.
 
 Il cracha une quantité massive de sang, puis d'autres fluides jaillirent de tous ses orifices. Son corps fut projeté en arrière par une force colossale. Mais avant qu'il ne puisse toucher le sol, une autre puissance le saisit et le tira violemment. Sa tête explosa et son noyau doré fila devant Li Muwan pour s'engouffrer dans la grotte.
 
-« À partir de cet instant, je serai l'être le plus puissant sous le stade de l'Âme Naissante. S'il n'existe aucun cultivateur de l'Âme Naissante dissimulant son niveau de culture, alors vous pouvez tous... mourir ! »
+« À partir de cet instant, je serai l'être le plus puissant sous le stade de l'Âme Naissante. S'il n'existe aucun cultivateur de l'Âme Naissante dissimulant son niveau de cultivation, alors vous pouvez tous... mourir ! »
 
 Une voix glaciale émana des profondeurs de la grotte. Puis, une silhouette sombre s'avança et apparut devant l'assemblée.
 

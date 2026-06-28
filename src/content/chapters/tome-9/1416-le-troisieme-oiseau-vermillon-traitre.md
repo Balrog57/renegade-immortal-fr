@@ -30,7 +30,7 @@ De plus en plus de poussière s'accumula jusqu'à former une tempête autour de 
 
 Une force terrifiante jaillit de la tempête, détruisant tout sur son passage. De nombreuses planètes abandonnées à proximité furent aspirées par la force de succion ; elles furent rapidement déchiquetées au cœur de l'orage pour n'en devenir que des fragments.
 
-Dans la partie nord du Système Stellaire Antique, dix-neuf planètes de culture étaient alignées. La dixième planète, située au centre, ressemblait à un monde entièrement recouvert d'océans, une véritable planète d'eau.
+Dans la partie nord du Système Stellaire Antique, dix-neuf planètes de cultivation étaient alignées. La dixième planète, située au centre, ressemblait à un monde entièrement recouvert d'océans, une véritable planète d'eau.
 
 Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il paraissait très vieux et ses cheveux étaient blancs. À chaque inspiration, l'océan rugissait et des vagues se propageaient dans toutes les directions.
 
@@ -40,7 +40,7 @@ Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il para
 
 Ce vieil homme était l'un des cinq maîtres, le corps original du Maître Dao Miao Yin. Le jeune homme sur la Planète de l'Empereur Suprême n'était que l'un de ses trois avatars principaux !
 
-Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture, s'approchait lentement. Le vieil homme assis sur son dos, marqué du tatouage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement pour scruter l'horizon avec une lueur étrange.
+Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de cultivation, s'approchait lentement. Le vieil homme assis sur son dos, marqué du tatouage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement pour scruter l'horizon avec une lueur étrange.
 
 « C'est... » Avant qu'il ne puisse finir sa réflexion, la Moongazer sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'elle ouvrait la gueule pour pousser un rugissement fracassant.
 

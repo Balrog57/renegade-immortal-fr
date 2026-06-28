@@ -8,9 +8,9 @@ slug: larrivee
 ---
 En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulement Carefree Sanren, mais aussi Sun Xi perdirent toute intention de combattre et commencèrent à lutter contre eux-mêmes.
 
-Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
+Seul l'ancêtre de la famille Ran, dont la cultivation avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
 
-« Domaine impitoyable des Dix Mille Illusions ! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
+« Domaine impitoyable des Dix Mille Illusions ! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa cultivation par bonds prodigieux.
 
 Il laissa alors échapper un rugissement. Ce cri fut comme un tonnerre grondant à travers les cieux, ébranlant la terre et le firmament.
 
@@ -36,15 +36,15 @@ L'ancêtre de la famille Ran esquissa un sourire pitoyable : « Zhao Chuanwen, S
 
 Cependant, Carefree Sanren et Sun Xi semblaient ne rien entendre ; ils libérèrent leurs sorts sans tarder et entamèrent leur combat à mort contre l'ancêtre de la famille Ran. Les grondements tonitruants et les éclats de sorts firent trembler la terre et obscurcirent le ciel.
 
-Les corps de Carefree Sanren et Sun Xi se dissipèrent rapidement. Pourtant, chaque fragment de chair qui disparaissait renforçait leur culture. Ils combattirent avec une fureur de démons contre l'ancêtre de la famille Ran.
+Les corps de Carefree Sanren et Sun Xi se dissipèrent rapidement. Pourtant, chaque fragment de chair qui disparaissait renforçait leur cultivation. Ils combattirent avec une fureur de démons contre l'ancêtre de la famille Ran.
 
 Liu Mei esquissa un léger sourire. Elle n'avait vraiment pas besoin d'escorter personne : tant qu'elle serait présente, d'innombrables cultivateurs seraient prêts à se sacrifier pour elle.
 
 C'était cela, le Dao du Démon Céleste des Dix Mille Illusions : tout dans ce monde pouvait être utilisé par lui. L'ancêtre de la famille Huan était prêt à payer le prix et à accomplir le rituel de lignée pour Liu Mei précisément pour cette raison ; il voulait découvrir la puissance que ce pouvoir atteindrait une fois la seconde étape franchie.
 
-La planète entière semblait subir un séisme, des grondements sourds émanant sans cesse du sol. Le cœur de l'ancêtre de la famille Ran était rempli de désespoir, et il commença lui aussi à consumer son corps, cherchant par tous les moyens à obtenir le maximum de puissance. Tandis que son âme originelle et son corps brûlaient, son niveau de culture grimpa follement. Il parvint à atteindre la puissance d'un cultivateur Ascendant tardif, bien qu'il fût dépourvu de domaine.
+La planète entière semblait subir un séisme, des grondements sourds émanant sans cesse du sol. Le cœur de l'ancêtre de la famille Ran était rempli de désespoir, et il commença lui aussi à consumer son corps, cherchant par tous les moyens à obtenir le maximum de puissance. Tandis que son âme originelle et son corps brûlaient, son niveau de cultivation grimpa follement. Il parvint à atteindre la puissance d'un cultivateur Ascendant tardif, bien qu'il fût dépourvu de domaine.
 
-Sa culture progressant trop vite, son domaine ne put suivre, ce qui le cantonnait au rang de pseudo-Ascendant de stade tardif. Malgré cela, sa puissance était phénoménale.
+Sa cultivation progressant trop vite, son domaine ne put suivre, ce qui le cantonnait au rang de pseudo-Ascendant de stade tardif. Malgré cela, sa puissance était phénoménale.
 
 Dans un rugissement, son corps se dissipa rapidement tandis que ses mains traçaient des sceaux à une vitesse fulgurante. Il referma brusquement les paumes, et une lumière éblouissante les enveloppa. Ce n'était pas un sortilège, mais la méthode la plus directe pour utiliser l'énergie originelle de son corps. Cette énergie se mua en une lumière dorée qui, lorsqu'il ouvrit les mains, jaillit dans toutes les directions telle une pluie d'épées acérées.
 
@@ -60,13 +60,13 @@ Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yu
 
 Les âmes originelles et les corps de Sun Xi et Carefree Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
 
-L'ancêtre de la famille Ran se trouvait au centre du chaos. Bien qu'il ait pu résister grâce à sa puissante culture, il finit couvert de sang. Ses yeux injectés de sang fixèrent Liu Mei qui demeurait impassible, et il s'écria : « Quelle salope dégoûtante ! Cette bataille ne concernait que toi et moi ; pourquoi l'avoir étendue aux mortels et à cette planète ?! »
+L'ancêtre de la famille Ran se trouvait au centre du chaos. Bien qu'il ait pu résister grâce à sa puissante cultivation, il finit couvert de sang. Ses yeux injectés de sang fixèrent Liu Mei qui demeurait impassible, et il s'écria : « Quelle salope dégoûtante ! Cette bataille ne concernait que toi et moi ; pourquoi l'avoir étendue aux mortels et à cette planète ?! »
 
 Liu Mei sourit faiblement et répondit doucement : « Je n'ai pas attaqué du tout... Vous trois vous battiez entre vous ; quel rapport cela a-t-il avec moi ? »
 
-L'ancêtre de la famille Ran leva la tête et éclata d'un rire chargé de désespoir et de tristesse. Tandis qu'il riait, des larmes coulèrent de ses yeux alors qu'il contemplait la terre. La planète, autrefois magnifique, était désormais en ruines. Il savait que s'il s'autodétruisait pour la blesser, Ran Yun ne serait plus qu'une planète de culture dévastée et inutile.
+L'ancêtre de la famille Ran leva la tête et éclata d'un rire chargé de désespoir et de tristesse. Tandis qu'il riait, des larmes coulèrent de ses yeux alors qu'il contemplait la terre. La planète, autrefois magnifique, était désormais en ruines. Il savait que s'il s'autodétruisait pour la blesser, Ran Yun ne serait plus qu'une planète de cultivation dévastée et inutile.
 
-« C'est ma maison... » Son visage était empreint d'amertume lorsqu'il regarda Liu Mei et lança, mot pour mot : « Moi, Ran Xuefeng, j'utiliserai ma culture actuelle pour te maudire à mourir sans sépulture ! De plus, la personne qui a tué Huan Dong n'était pas nous trois. Il existe un autre homme nommé Xu Mu ! »
+« C'est ma maison... » Son visage était empreint d'amertume lorsqu'il regarda Liu Mei et lança, mot pour mot : « Moi, Ran Xuefeng, j'utiliserai ma cultivation actuelle pour te maudire à mourir sans sépulture ! De plus, la personne qui a tué Huan Dong n'était pas nous trois. Il existe un autre homme nommé Xu Mu ! »
 
 Tandis qu'il parlait, il leva sa main droite et frappa son front. Un craquement retentit alors que son âme originelle ardente s'effondrait instantanément, se propageant à son corps. Son être entier se dissipa lentement sous le regard calme de Liu Mei, avant de finir en poussière sur le sol.
 
@@ -84,7 +84,7 @@ Depuis quatre ans, après avoir réalisé qu'ils avaient commis une erreur fatal
 
 L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Carefree Sanren, ses capacités étaient plus limitées ; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne n'ignorait la nature exacte.
 
-Bien que ce Sun Xi ait réussi à raffiner un clone, sa culture n'était qu'au stade de la Formation du Noyau, ce qui l'empêchait tout simplement de quitter la planète. Auparavant, lorsqu'il avait cherché Wang Lin, il comptait lui demander de l'aide à ce sujet. Cependant, avant même de pouvoir poser la question, Wang Lin l'avait repoussé.
+Bien que ce Sun Xi ait réussi à raffiner un clone, sa cultivation n'était qu'au stade de la Formation du Noyau, ce qui l'empêchait tout simplement de quitter la planète. Auparavant, lorsqu'il avait cherché Wang Lin, il comptait lui demander de l'aide à ce sujet. Cependant, avant même de pouvoir poser la question, Wang Lin l'avait repoussé.
 
 De plus, cette affaire était d'une importance capitale ; après avoir hésité, il n'avait pas insisté. Autrement, si Xu Mu avait découvert que les trois avaient chacun leur moyen de subsister et qu'ils ne l'utilisaient que comme bouc émissaire, il craignait que, peu importe la quantité de jades célestes offerte, Xu Mu n'accepterait jamais. En réalité, Xu Mu aurait pu les attaquer sous le coup de la colère.
 

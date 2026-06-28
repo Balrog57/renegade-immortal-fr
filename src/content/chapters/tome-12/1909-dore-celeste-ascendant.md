@@ -44,15 +44,15 @@ La secte avait également hérité d'une célèbre armure antique. Un Exalté au
 
 C'est l'existence même de cette armure qui plaçait la secte dans une position délicate. Comme elle exigeait le sacrifice de la force vitale, l'armure ne pouvait être portée plus de trois fois ; après cela, le porteur mourait. Cependant, le Sect Gui Yi disposait de cinq personnes capables de la revêtir, ce qui leur avait permis de se qualifier pour intégrer les neuf sectes et treize factions.
 
-Pour ce qui est du Sect du Dao Démoniaque, leur maître de secte était un Exalté Doré au sommet du stade avancé de la Tribulation du Vide. Sa puissante culture lui valait une renommée sur tout le Continent de l'Est ! Toutefois, comparé à l'estimé Taureau Vert, bien que tous deux fussent des Exaltés Dorés, ce dernier possédait un corps véritable d'essence ; ainsi, le maître du Sect du Dao Démoniaque n'était pas son égal !
+Pour ce qui est du Sect du Dao Démoniaque, leur maître de secte était un Exalté Doré au sommet du stade avancé de la Tribulation du Vide. Sa puissante cultivation lui valait une renommée sur tout le Continent de l'Est ! Toutefois, comparé à l'estimé Taureau Vert, bien que tous deux fussent des Exaltés Dorés, ce dernier possédait un corps véritable d'essence ; ainsi, le maître du Sect du Dao Démoniaque n'était pas son égal !
 
 Cependant, le Sect du Dao Démoniaque n'était pas une force négligeable parmi les neuf sectes et treize factions. Outre leur maître de secte Exalté Doré, ils comptaient quatre Exaltés de la Tribulation du Vide, mais surtout, ils possédaient un ancêtre vivant en dehors de la secte !
 
-L'ancêtre du Sect du Dao Démoniaque était un Exalté Céleste ! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Vert Démoniaque. Il ne se préoccupait que de sa propre culture et, il y a 13 000 ans, il avait été recruté par le Grand Empereur Dao Yi !
+L'ancêtre du Sect du Dao Démoniaque était un Exalté Céleste ! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Vert Démoniaque. Il ne se préoccupait que de sa propre cultivation et, il y a 13 000 ans, il avait été recruté par le Grand Empereur Dao Yi !
 
 Grâce à un tel ancêtre, le Sect du Dao Démoniaque était devenu célèbre dans tout le Continent de l'Est et occupait une position dominante sur le Continent du Démon Vert !
 
-Toutefois, la loyauté de cet ancêtre envers le Sect du Dao Démoniaque s'était considérablement affaiblie à mesure que son niveau de culture augmentait. Il ne se souciait pas des escarmouches mineures et peu importait le nombre de morts, tant que leur racine dao demeurait intacte.
+Toutefois, la loyauté de cet ancêtre envers le Sect du Dao Démoniaque s'était considérablement affaiblie à mesure que son niveau de cultivation augmentait. Il ne se souciait pas des escarmouches mineures et peu importait le nombre de morts, tant que leur racine dao demeurait intacte.
 
 Mais si quelqu'un cherchait à détruire la racine dao du Sect du Dao Démoniaque, il poursuivrait alors l'affaire pour sauver son propre honneur !
 
@@ -68,7 +68,7 @@ Le Sect du Dao Démoniaque était enveloppé d'une masse de brouillard rendant t
 
 Cependant, après plus de cent ans de guerre, il n'en restait que 30 000, sans que leur puissance ne soit pour autant amoindrie. Les quatre cultivateurs au stade avancé de la Tribulation du Vide étaient toujours en vie. Deux se trouvaient sur le Continent du Taureau Céleste pour gérer le champ de bataille, tandis que deux autres gardaient la secte.
 
-Le maître du Sect du Dao Démoniaque était entré en culture recluse depuis plus de cent ans. Il semblait tenter d'atteindre le rang d'Exalté Céleste et n'en était toujours pas ressorti.
+Le maître du Sect du Dao Démoniaque était entré en cultivation recluse depuis plus de cent ans. Il semblait tenter d'atteindre le rang d'Exalté Céleste et n'en était toujours pas ressorti.
 
 En raison des pertes massives de cultivateurs, la formation de la secte demeurait active afin de protéger le lieu et prévenir tout incident.
 
@@ -80,13 +80,13 @@ Le Sect du Dao Démoniaque était immense. De loin, on ne pouvait en percevoir l
 
 Le centre n'était pas un marais, mais un lac à l'eau cristalline, si limpide que l'on pouvait en voir le fond. Des ondulations y parcouraient la surface, comme si une créature céleste y résidait.
 
-Une petite île trônait au centre du lac. C'était là que le maître de la secte se retirait pour sa culture recluse et que les sorts de la secte étaient entreposés !
+Une petite île trônait au centre du lac. C'était là que le maître de la secte se retirait pour sa cultivation recluse et que les sorts de la secte étaient entreposés !
 
 À l'extérieur du Sect du Dao Démoniaque, Wang Lin se tenait calmement dans le ciel, par-delà le brouillard. La robe blanche qui l'enveloppait cachait son visage, mais ne pouvait masquer la froideur de ses yeux. Il fixait le Sect du Dao Démoniaque, et ce froid se mua en une intention meurtrière.
 
 « Cela faisait longtemps que je n'avais pas détruit la racine dao d'une secte et anéanti un clan tout entier... » murmura Wang Lin.
 
-Bien qu'il eût passé sa vie dans le massacre, Wang Lin n'aimait pas tuer. En réalité, à mesure que sa culture progressait, il ne tuait que rarement, sauf s'il y était contraint ou placé face à une situation de vie ou de mort.
+Bien qu'il eût passé sa vie dans le massacre, Wang Lin n'aimait pas tuer. En réalité, à mesure que sa cultivation progressait, il ne tuait que rarement, sauf s'il y était contraint ou placé face à une situation de vie ou de mort.
 
 Pourtant, il était en proie à une soif de sang intense en cet instant. D'abord, à la frontière du Continent de la Terre Meng, tout le Sect du Dao Démoniaque s'était dressé pour empêcher Wang Lin de partir paisiblement. Ils s'étaient tous précipités sur lui avec une fureur de fous.
 
@@ -102,7 +102,7 @@ Et il entendit cette voix venimeuse résonner à nouveau :
 
 Le fait d'avoir été capturé par le maître de la secte et les souffrances endurées dans le temple des scorpions ne pourraient être compensés par la mort d'un seul homme. Puisque tout le Sect du Dao Démoniaque s'était opposé à lui autrefois, il détruirait aujourd'hui la secte tout entière !
 
-« Peu importe votre niveau de culture, personne ne pourra échapper à votre sort ! Si vous devez trouver un coupable, blâmez le fait que vous apparteniez au Sect du Dao Démoniaque ! » Wang Lin possédait une intention meurtrière terrifiante, mais il ne la laissait pas s'échapper n'importe comment. Cependant, lorsqu'il la déchaîna enfin, elle fut capable de briser les cieux !
+« Peu importe votre niveau de cultivation, personne ne pourra échapper à votre sort ! Si vous devez trouver un coupable, blâmez le fait que vous apparteniez au Sect du Dao Démoniaque ! » Wang Lin possédait une intention meurtrière terrifiante, mais il ne la laissait pas s'échapper n'importe comment. Cependant, lorsqu'il la déchaîna enfin, elle fut capable de briser les cieux !
 
 Il leva sa main droite et fit un geste vers le Sect du Dao Démoniaque au loin. Une mer de feu surgit et se mua en quatre-vingt-dix-neuf dragons de flammes qui encerclèrent la secte, l'enfermant totalement.
 

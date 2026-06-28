@@ -10,7 +10,7 @@ La nuit était tombée et la lune était absente.
 
 Wang Lin était allongé sur son lit, à l'arrière de la boutique. Une cruche de vin reposait à ses côtés ; il s'en saisit et prit une gorgée. Wang Lin sentait qu'au cours de cette année écoulée, il avait réussi à se défaire de sa mentalité de cultivateur pour devenir semblable à un mortel.
 
-Prenons cet exemple : il ne pratiquait presque plus la culture désormais, ce qui aurait été impensable autrefois. Durant ces quatre cents ans de fuite et de combats, son énergie spirituelle bouillonnait presque constamment dans son corps, et il saisissait chaque instant de répit pour élever son niveau de culture. Sa vie n'était qu'un enchaînement de complots mortels et de périls extrêmes. Le moindre manque de prudence l'aurait conduit à la tombe.
+Prenons cet exemple : il ne pratiquait presque plus la cultivation désormais, ce qui aurait été impensable autrefois. Durant ces quatre cents ans de fuite et de combats, son énergie spirituelle bouillonnait presque constamment dans son corps, et il saisissait chaque instant de répit pour élever son niveau de cultivation. Sa vie n'était qu'un enchaînement de complots mortels et de périls extrêmes. Le moindre manque de prudence l'aurait conduit à la tombe.
 
 Il ne s'était jamais allongé ainsi pour dormir auparavant. Il passait la majeure partie de ses nuits à cultiver.
 
@@ -36,7 +36,7 @@ L'autre cultivateur s'accroupit pour fouiller une boîte dans un coin. Il poussa
 
 Il jeta précipitement l'objet et recula, comme s'il faisait face à une créature antique.
 
-En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
+En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de cultivation de Formation du Noyau, il était incapable de résister.
 
 Heureusement, il l'avait lâchée à temps et la pression spirituelle de la sculpture ne s'était pas véritablement éveillée. Autrement, il n'aurait pas seulement perdu une simple bouchée de sang.
 
@@ -76,7 +76,7 @@ Sur ces mots, Wang Lin renvoya le sac de rangement vers le cultivateur d'un gest
 
 Au moment où ils allaient heurter la porte, celle-ci s'ouvrit et ils furent expulsés de la boutique.
 
-Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
+Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la cultivation de ce jeune homme était bien trop puissante pour être mesurée.
 
 Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
 
@@ -106,7 +106,7 @@ En réalité, au cours de ces deux années, à chaque passage à la nouvelle ann
 
 L'automne passa et l'hiver arriva. Le soleil se leva et se coucha. Durant ces deux dernières années, Wang Lin avait vu naître les jeunes et mourir les vieillards. Il ressentait une profonde mélancolie.
 
-En deux ans, il n'avait pratiqué la culture que deux fois. Il ne se souciait plus de son niveau de culture et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
+En deux ans, il n'avait pratiqué la cultivation que deux fois. Il ne se souciait plus de son niveau de cultivation et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
 
 Selon ses analyses, lorsque la quatrième perle serait créée, la substance rouge aurait totalement disparu.
 

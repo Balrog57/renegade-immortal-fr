@@ -56,7 +56,7 @@ Un parfum délicat flotta vers Wang Lin à mesure qu'elle approchait. Elle posa 
 
 Cette jeune fille était celle qui siégeait auprès de la jeune maîtresse dans le carrosse plus tôt. Il saisit la cruche de vin, l'examina de son Sens Divin, puis en prit une gorgée.
 
-Un goût chaud et épicé envahit soudainement son corps. En quatre cents ans, c'était l'une des rares fois où Wang Lin avait bu du vin. Avant d'entrer sur la voie de la culture, son père ne sortait le vin que lors des visites de son quatrième oncle.
+Un goût chaud et épicé envahit soudainement son corps. En quatre cents ans, c'était l'une des rares fois où Wang Lin avait bu du vin. Avant d'entrer sur la voie de la cultivation, son père ne sortait le vin que lors des visites de son quatrième oncle.
 
 À chaque occasion, Wang Lin en buvait secrètement un peu, puis riait face à son père et à son oncle, le visage rougi par l'alcool.
 
@@ -100,6 +100,6 @@ Hormis quelques sentinelles postées au loin, tout le monde dormait. Le camp ét
 
 Wang Lin se leva et marcha vers un grand arbre avant de s'y asseoir. Adossé au tronc, il ressentit une vague de sérénité. Pendant un court instant, il avait oublié qu'il était un cultivateur pour se croire un mortel, comme tous les autres.
 
-Il ferma les yeux et inspecta son corps. À sa grande surprise, son niveau de culture avait franchi le stade initial de l'Âme Naissante pour atteindre le stade intermédiaire. Bien qu'il fût déjà au sommet du stade initial et capable de percer à tout moment, il ne s'attendait pas à une progression aussi rapide.
+Il ferma les yeux et inspecta son corps. À sa grande surprise, son niveau de cultivation avait franchi le stade initial de l'Âme Naissante pour atteindre le stade intermédiaire. Bien qu'il fût déjà au sommet du stade initial et capable de percer à tout moment, il ne s'attendait pas à une progression aussi rapide.
 
 Cependant, la substance rouge autour de lui s'était un peu dissipée. Il avait le pressentiment que s'il laissait cette brume disparaître, il le regretterait plus tard. Son Sens Divin pénétra de nouveau dans la substance rouge pour tenter de la condenser.

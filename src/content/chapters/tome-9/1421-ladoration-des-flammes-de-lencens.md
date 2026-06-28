@@ -12,7 +12,7 @@ Le Feu Éthéré n'appartenait pas aux cinq éléments du monde. Au sommet du fe
 
 Toutes les émotions servaient de combustible au Feu Éthéré ; par conséquent, nul ne pouvait laisser ses sentiments fluctuer face à un adversaire maîtrisant ce feu !
 
-En tant que cultivateur du troisième niveau, Maître Simo possédait non seulement une culture puissante, mais aussi un contrôle absolu sur ses émotions. S'il refusait de ressentir la colère, il n'était pas en colère ! S'il ne voulait laisser paraître aucune émotion, il pouvait rendre son esprit aussi calme qu'une eau dormante !
+En tant que cultivateur du troisième niveau, Maître Simo possédait non seulement une cultivation puissante, mais aussi un contrôle absolu sur ses émotions. S'il refusait de ressentir la colère, il n'était pas en colère ! S'il ne voulait laisser paraître aucune émotion, il pouvait rendre son esprit aussi calme qu'une eau dormante !
 
 Pourtant, une trace de choc traversa l'esprit de Maître Simo ! Une légère fluctuation émotionnelle se manifesta ! C’était normalement impossible, et pourtant, c'était arrivé !
 
@@ -34,7 +34,7 @@ En un éclair, ces dragons de feu jaillirent des corps des cultivateurs. Un tota
 
 De loin, la scène était absolument saisissante. À cet instant, il semblait que Wang Lin ne combattait pas Maître Simo seul ; il avait rassemblé les émotions de tous les présents pour l'affronter !
 
-Dans le monde de la culture, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni le Vermillion Bird de quatrième génération, ni même celui de deuxième génération !
+Dans le monde de la cultivation, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni le Vermillion Bird de quatrième génération, ni même celui de deuxième génération !
 
 Bien que leur Feu Éthéré fût puissant, il avait ses limites : ils pouvaient l'émettre, mais pas l'absorber. En revanche, le Feu Éthéré de Wang Lin possédait la force magnétique de la Perle Défiant le Ciel. Après avoir absorbé le feu environnant, le monde trembla. Wang Lin agita ses manches et les innombrables dragons de Feu Éthéré chargèrent Maître Simo.
 
@@ -68,7 +68,7 @@ Une lueur de folie apparut dans les yeux de Maître Simo. Il cessa de reculer et
 
 Le monde s'obscurcit et une gigantesque faille spatiale se déchira sous l'effet de Maître Simo. Cette déchirure était immense, et tous les cultivateurs alentour purent voir qu'un autre monde semblait s'y cacher !
 
-D'innombrables planètes de culture se trouvaient dans la faille, peuplées d'une multitude de gens agenouillés. Des quantités colossales de Flammes de l'Encens s'en échappaient alors qu'ils pratiquaient leur adoration.
+D'innombrables planètes de cultivation se trouvaient dans la faille, peuplées d'une multitude de gens agenouillés. Des quantités colossales de Flammes de l'Encens s'en échappaient alors qu'ils pratiquaient leur adoration.
 
 « Ouvrez le Domaine des Flammes de l'Encens de ce vieil homme ! Âmes des disciples, apparaissez ! » Maître Simo agita ses manches et les êtres innombrables sur les planètes entonnèrent un chant. Les voix fusionnèrent en une sorte de sortilège qui jaillit soudainement de la faille.
 

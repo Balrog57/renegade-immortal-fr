@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent. Après un court instant de réflexion, il 
 
 Les yeux de Wu Yu exprimèrent une profonde impuissance. Il répondit : « C'est ma marionnette cadavreuse. Hélas, j'étais l'un des ancêtres de la Secte du Cadavre. Cette secte avait pour règle que chaque disciple qui la rejoignait devait trouver un cadavre afin de créer sa propre marionnette. »
 
-« À mesure que notre niveau de culture augmentait, la marionnette cadavreuse progressait également. »
+« À mesure que notre niveau de cultivation augmentait, la marionnette cadavreuse progressait également. »
 
 Wang Lin plissa les yeux et demanda : « Votre marionnette cadavreuse s'est rebellée ? »
 

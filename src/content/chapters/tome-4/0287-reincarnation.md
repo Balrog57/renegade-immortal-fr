@@ -60,7 +60,7 @@ Mais il secoua aussitôt la tête, jugeant cette pensée insensée. Il prit une 
 
 L'apparence actuelle de Wang Lin n'était pas si différente de celle qu'il avait autrefois, mais son aura était devenue radicalement différente ; il n'était donc pas étonnant que personne ne le reconnaît. Et même s'ils l'avaient fait, ils n'auraient pas osé le dire à voix haute.
 
-Pour qu'un pays de culture de rang 3 devienne un pays de rang 4, il nécessite un cultivateur de la Formation de l'Âme né sur son sol. Les pays de rang 4 possèdent une technique pour vérifier cela, issue de Suzaku ; à moins d'avoir un niveau de culture supérieur aux experts de Suzaku, la fraude est quasi impossible. De plus, le cultivateur de la Formation de l'Âme doit résider dans le pays pendant cent ans avant que celui-ci ne puisse revendiquer son nouveau rang.
+Pour qu'un pays de cultivation de rang 3 devienne un pays de rang 4, il nécessite un cultivateur de la Formation de l'Âme né sur son sol. Les pays de rang 4 possèdent une technique pour vérifier cela, issue de Suzaku ; à moins d'avoir un niveau de cultivation supérieur aux experts de Suzaku, la fraude est quasi impossible. De plus, le cultivateur de la Formation de l'Âme doit résider dans le pays pendant cent ans avant que celui-ci ne puisse revendiquer son nouveau rang.
 
 Évidemment, Wang Lin ne pouvait accepter cette condition. Après avoir entendu les paroles du vieil homme, il réfléchit longuement et dit : « Je suis originaire de ce pays, mais je ne peux rester cent ans. Je vous demande pardon. »
 
@@ -68,7 +68,7 @@ Le corps du vieillard frissonna et son visage se décomposa de déception. Tous 
 
 Wang Lin soupira. Il tendit sa main droite vers l'air, et dix sphères de lumière apparurent. Il les projeta, et chacune atterrit sur un cultivateur différent. Les corps des dix récipiendaires tremblèrent sous l'effet d'une douleur fulgurante, mais celle-ci ne fut que passagère. Une fois leur souffle retrouvé, leurs visages s'illuminèrent de joie. L'homme en robe blanche était l'un d'entre eux.
 
-Wang Lin déclara calmement : « Je ne peux rester, mais j'ai laissé dix graines spirituelles. Bien qu'elles ne facilitent pas votre culture, dès que vous aurez atteint le stade avancé de l'Âme Naissante, je le saurai et je viendrai vous enseigner ! » Après avoir parlé, il regarda une dernière fois l'homme en robe blanche avec un sourire discret.
+Wang Lin déclara calmement : « Je ne peux rester, mais j'ai laissé dix graines spirituelles. Bien qu'elles ne facilitent pas votre cultivation, dès que vous aurez atteint le stade avancé de l'Âme Naissante, je le saurai et je viendrai vous enseigner ! » Après avoir parlé, il regarda une dernière fois l'homme en robe blanche avec un sourire discret.
 
 La graine spirituelle qu'il avait offerte à cet homme était unique : elle contenait le pouvoir de lui sauver la vie à trois reprises. Ces graines étaient façonnées par un cultivateur de la Formation de l'Âme à partir du pouvoir des cieux ; leur valeur était inestimable.
 
@@ -84,7 +84,7 @@ Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait deva
 
 À cet instant précis, un objet tomba du ciel. Les regards se tournèrent vers lui : c'était une sculpture en bois. Elle atterrit au sommet de la montagne et s'y fusionna. Soudain, la montagne sembla se gorger d'énergie spirituelle.
 
-Une voix lointaine murmura : « Cet objet pourra sauver Zhao des invasions des pays de culture de rang 3 à trois reprises. Soyez prudents... »
+Une voix lointaine murmura : « Cet objet pourra sauver Zhao des invasions des pays de cultivation de rang 3 à trois reprises. Soyez prudents... »
 
 Envisageant la fin tragique de l'Alliance des Quatre Sectes, il avait accompli un dernier geste pour Zhao.
 

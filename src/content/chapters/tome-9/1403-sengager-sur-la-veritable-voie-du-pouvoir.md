@@ -22,9 +22,9 @@ Voyant Wang Lin ainsi, le vieil homme fut d'autant plus ravi et ne le disturba p
 
 « À l'époque où je l'ai apprise de l'Ancêtre, je n'avais pas pu en saisir la signification par moi-même. Même l'incroyable descendant de la quatrième génération de l'Oiseau Vermillon n'avait pu qu'en comprendre les contours, sans jamais en saisir le cœur. Ce n'est que lorsque l'Ancêtre nous l'eut expliqué que nous avons soudainement réalisé sa véritable essence. Voyons ce que fera la sixième génération. »
 
-« Cependant, le talent de cet enfant ne peut être comparé à celui de la quatrième génération. Son niveau de culture actuel doit être le fruit de rencontres fortuites, ou peut-être est-ce dû à ce disciple dont la quatrième génération de l'Oiseau Vermillon avait parlé. »
+« Cependant, le talent de cet enfant ne peut être comparé à celui de la quatrième génération. Son niveau de cultivation actuel doit être le fruit de rencontres fortuites, ou peut-être est-ce dû à ce disciple dont la quatrième génération de l'Oiseau Vermillon avait parlé. »
 
-« Autrement, il n'aurait aucun moyen d'atteindre ce niveau de culture terrifiant, frôlant les limites du Feu Éthéré, en seulement un peu plus de 2 000 ans de culture. Même l'Ancêtre n'aurait pu accomplir cela à son âge. » Soudain, le vieil homme songea aux cinq essences de Wang Lin et marqua une pause.
+« Autrement, il n'aurait aucun moyen d'atteindre ce niveau de cultivation terrifiant, frôlant les limites du Feu Éthéré, en seulement un peu plus de 2 000 ans de cultivation. Même l'Ancêtre n'aurait pu accomplir cela à son âge. » Soudain, le vieil homme songea aux cinq essences de Wang Lin et marqua une pause.
 
 « Peut-être... Peut-être que ce type parviendra à percer le mystère ? » Le vieil homme afficha un air sombre en observant Wang Lin.
 
@@ -92,7 +92,7 @@ Wang Lin observa attentivement cette Flamme Éthérée et fut secrètement stup�
 
 « Cette Flamme Éthérée... Elle ne dégage aucune chaleur, et pourtant, elle donne l'illusion que mon âme est en train de brûler ! »
 
-Grâce à la puissance de culture du vieux Vermillion Bird, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
+Grâce à la puissance de cultivation du vieux Vermillion Bird, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
 
 Dix mille cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 

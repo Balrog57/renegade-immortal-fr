@@ -10,7 +10,7 @@ Chapitre 2048 - Le Suppliant des 108 âmes !
 
 Le premier et le second pont semblaient très proches, mais Wang Lin vola pendant plusieurs jours avant d'atteindre le second pont.
 
-Ce pont était plusieurs fois plus vaste que le premier. Wang Lin n'hésita pas à poser le pied sur le second pont. À l'instant même où il toucha le sol, son corps spirituel trembla comme s'il allait s'effondrer. C'était comme si sa culture n'était pas digne de fouler ce pont.
+Ce pont était plusieurs fois plus vaste que le premier. Wang Lin n'hésita pas à poser le pied sur le second pont. À l'instant même où il toucha le sol, son corps spirituel trembla comme s'il allait s'effondrer. C'était comme si sa cultivation n'était pas digne de fouler ce pont.
 
 Un grondement retentit et Wang Lin sentit son esprit exploser tandis que le monde semblait basculer. Son Sens Divin et son âme parurent se séparer. Il entrevit vaguement un continent sous la brume, et celui-ci lui était très familier. Sur le côté gauche se trouvaient 72 continents, et sur le côté droit, 36 pays. Au centre s'étendait un vaste bassin où la mer tournait avec frénésie.
 
@@ -36,7 +36,7 @@ Il implorait l'existence étrange qu'il sentait dans les cieux de lui accorder l
 
 Presque tous les cultivateurs du clan céleste furent témoins de cette scène qui déchirait le firmament. Ils étaient plongés dans la panique et le désarroi. La terre tremblait de plus belle tandis que les âmes apparues continuaient de rugir ; on aurait dit qu'une calamité était sur le point de s'abattre !
 
-« Que se passe-t-il ?! » Au sein du Secte Dao Yi, le Grand Empereur Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de culture, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
+« Que se passe-t-il ?! » Au sein du Secte Dao Yi, le Grand Empereur Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de cultivation, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
 
 Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbre s'agita en poussant des rugissements stridents.
 
@@ -64,7 +64,7 @@ Cette fois, le corps de Hai Zi trembla et elle chancela, le visage livide. Ses y
 
 « Quoi ?! » L'expression de Jiu Di changea radicalement et il ne put plus masquer ses émotions. Il leva brusquement les yeux vers le ciel, sentant ses cheveux se hérisser. Hormis l'immensité céleste, il ne voyait rien, mais il pouvait imaginer un regard scrutant le Continent Astral Immortel à cet instant précis, peut-être même en le fixant lui.
 
-« Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa culture sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
+« Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa cultivation sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
 
 Wang Lin observait le clan céleste, les 72 âmes pétrifiées par la peur mais criant leurs suppliques ; il vit aussi le choc de Dao Yi, l'horreur de Wu Feng, la confusion de Gemini et le regard de Jiu Di.
 
@@ -88,7 +88,7 @@ Tout en méditant silencieusement, il tourna son attention vers le clan Ancien. 
 
 La terre tremblait alors que les 36 âmes des 36 pays apparaissaient toutes. Cela incluait le Luo Huo, dont une partie de l'âme avait été dévorée par Wang Lin.
 
-Le Luo Huo se manifesta dans sa totalité. Sa tête était une immense masse de chair semblable à une planète de culture. Sa queue ressemblait à celle d'un dragon, et il n'en possédait pas une, mais neuf. Il hurla vers le ciel en implorant de l'aide.
+Le Luo Huo se manifesta dans sa totalité. Sa tête était une immense masse de chair semblable à une planète de cultivation. Sa queue ressemblait à celle d'un dragon, et il n'en possédait pas une, mais neuf. Il hurla vers le ciel en implorant de l'aide.
 
 Xuan Luo sortit de sa méditation en porte close. Il observa la scène et eut un haut-le-cœur.
 
@@ -106,7 +106,7 @@ Au moment où leurs regards se croisèrent, Wang Lin sentit que l'être le plus 
 
 La silhouette dans la brume dit lentement : « Tu as enfin atteint ce niveau... Sur quel pont te trouves-tu désormais ? »
 
-Wang Lin médita un instant puis projeta son Sens Divin : « Le second pont. Et vous ? » Avec son niveau de culture actuel, il ne pouvait toujours pas distinguer l'apparence du Grand Empereur Gu Dao.
+Wang Lin médita un instant puis projeta son Sens Divin : « Le second pont. Et vous ? » Avec son niveau de cultivation actuel, il ne pouvait toujours pas distinguer l'apparence du Grand Empereur Gu Dao.
 
 « Il y a fort longtemps, j'ai franchi le cinquième pont et j'ai été stoppé au sixième... »
 

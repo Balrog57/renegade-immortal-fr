@@ -18,7 +18,7 @@ En entendant ces mots, le cœur de Situ Nan s'anima d'une pointe d'envie ; il ne
 
 « C'est bien dommage que le petit Lin soit un morceau de bois. Quel gaspillage pour mes centaines d'années d'enseignement ! »
 
-Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Water Spirit, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de manche, il regagna aussitôt sa culture en méditation solitaire.
+Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Water Spirit, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de manche, il regagna aussitôt sa cultivation en méditation solitaire.
 
 Les passants se dispersèrent et le calme revint sur la planète Water Spirit.
 
@@ -122,7 +122,7 @@ Peu après, une voix féminine et hésitante parvint de l'extérieur du palais.
 
 « Wang... Senior Wang, c'est Ling Er. »
 
-L'aube pointait, mais le vent nocturne soufflait encore. Sur la planète Water Spirit, le vent était glacial ; bien que sa culture devrait normalement la protéger, elle ressentait un froid intense.
+L'aube pointait, mais le vent nocturne soufflait encore. Sur la planète Water Spirit, le vent était glacial ; bien que sa cultivation devrait normalement la protéger, elle ressentait un froid intense.
 
 Elle regarda timidement le grand colosse assis au sol devant elle. Elle se souvenait que ce grand homme suivait Wang Lin depuis quelques jours. Désormais, il la fixait de ses yeux froids, et elle en avait peur.
 

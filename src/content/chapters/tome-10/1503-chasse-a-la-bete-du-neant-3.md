@@ -8,7 +8,7 @@ slug: chasse-a-la-bete-du-neant-3
 ---
 Il n'y avait aucune trace de peur ; tout ce qui s'était passé auparavant ne servait qu'à confondre son ennemi, à leur faire croire qu'il fuyait afin de les inciter à le poursuivre et qu'ils tombent ainsi dans son piège !
 
-Quelle sorte de Bête du Néant était-ce ? C'était manifestement une bête spirituelle ayant atteint un certain degré de culture !
+Quelle sorte de Bête du Néant était-ce ? C'était manifestement une bête spirituelle ayant atteint un certain degré de cultivation !
 
 Au moment où il se retourna, un rugissement étouffé jaillit de la gueule de la Bête du Néant, ouvrant une béance !
 

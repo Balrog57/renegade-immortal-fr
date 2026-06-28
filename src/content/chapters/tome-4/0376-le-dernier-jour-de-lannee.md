@@ -20,13 +20,13 @@ Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finaleme
 
 Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan des Démons Géants. Quant à savoir si Chi Hu et les autres membres du clan avaient survécu, il les avait déjà oubliés.
 
-Une fois de retour parmi les siens, il prit immédiatement possession d'un membre du clan pour entamer une culture en méditation profonde.
+Une fois de retour parmi les siens, il prit immédiatement possession d'un membre du clan pour entamer une cultivation en méditation profonde.
 
 Quant à Wang Lin, l'ancêtre n'osait pas le chercher pour le moment. Suzaku avait déjà commencé à enquêter sur cette affaire ; il ne pouvait que serrer les dents et renoncer impuissant, pour l'instant.
 
 Bien qu'il n'ait pas capturé Wang Lin, il lui avait dérobé cette mystérieuse épée volante. À cet instant, l'ancêtre ouvrit les yeux. Il s'agita dans le corps qu'il possédait et son regard s'assombrit.
 
-Il faudrait du temps pour que ce corps possédé devienne totalement le sien. Ce délai variait selon les niveaux de culture de la victime et de celui qui pratiquait la possession.
+Il faudrait du temps pour que ce corps possédé devienne totalement le sien. Ce délai variait selon les niveaux de cultivation de la victime et de celui qui pratiquait la possession.
 
 Les yeux de l'ancêtre s'illuminèrent. Il frappa son sac de rangement, et l'épée céleste en sortit pour flotter devant lui.
 
@@ -80,7 +80,7 @@ Toutefois, l'énergie spirituelle y était extrêmement dense, plusieurs fois pl
 
 Bien que l'énergie libérée par des pierres de qualité supérieure soit facile à absorber, elle manquait de vigueur. C'était d'autant plus vrai pour les pierres sur le point de s'épuiser, qui n'avaient plus aucune vitalité. L'énergie spirituelle émanant de la veine spirituelle locale était bien meilleure.
 
-Wang Lin s'assit en position du lotus sur le lit de pierre et commença sa culture.
+Wang Lin s'assit en position du lotus sur le lit de pierre et commença sa cultivation.
 
 Trois jours plus tard, Wang Lin ouvrit les yeux et secoua la tête. Il sentait que la progression était encore trop lente. Il frappa son sac de rangement pour en sortir trois pierres spirituelles de qualité supérieure. Il plaça ensuite plusieurs restrictions sur les murs et l'entrée avant de refermer les yeux pour cultiver à nouveau.
 
@@ -90,7 +90,7 @@ La grotte était devenue semblable à une cuve de vapeur. L'énergie spirituelle
 
 À chaque inspiration, d'immenses quantités d'énergie spirituelle affluaient dans son corps. Le visage de Wang Lin devint légèrement rouge tandis qu'il cultivait en silence.
 
-La quantité d'énergie spirituelle en lui augmentait progressivement, mais elle était encore loin de ce qui était nécessaire pour briser le domaine du thé et le sceau. Ces deux obstacles dévoraient l'énergie ; ainsi, à mesure que le niveau de culture de Wang Lin progressait, il devenait de plus en plus difficile de les rompre.
+La quantité d'énergie spirituelle en lui augmentait progressivement, mais elle était encore loin de ce qui était nécessaire pour briser le domaine du thé et le sceau. Ces deux obstacles dévoraient l'énergie ; ainsi, à mesure que le niveau de cultivation de Wang Lin progressait, il devenait de plus en plus difficile de les rompre.
 
 Le temps passa lentement. Un mois s'était écoulé depuis que Wang Lin était devenu disciple extérieur de la Secte du Raffinement de l'Âme.
 
@@ -120,7 +120,7 @@ En y pensant, un léger sourire apparut sur les lèvres de Wang Lin. Face au sol
 
 Il murmura pour lui-même : « La vie renaît des cendres ! » Jadis élevé dans les cieux, il avait été brutalement précipité vers la condition mortelle, mais sa détermination lui avait permis de surmonter l'épreuve.
 
-Ce n'est qu'aujourd'hui qu'il pouvait s'en lamenter et prononcer ces mots. En repensant à son parcours depuis la perte de sa culture, un sentiment complexe l'envahit.
+Ce n'est qu'aujourd'hui qu'il pouvait s'en lamenter et prononcer ces mots. En repensant à son parcours depuis la perte de sa cultivation, un sentiment complexe l'envahit.
 
 Ce dernier jour de l'année représentait la chute de Wang Lin, mais demain, le premier jour de la nouvelle année, symbolisait d'infinies possibilités.
 

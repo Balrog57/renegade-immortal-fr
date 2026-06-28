@@ -32,11 +32,11 @@ L'air froid frappait puissamment son corps. Il resta silencieux, plongé dans se
 
 Le firmament était toujours voilé par des nuages sombres et la pluie obstruait la vue. Naturellement, cela n'affectait en rien Wang Lin ; il aperçut deux épées volant dans l'espace clair au-dessus de la couche nuageuse.
 
-Un homme et une femme chevauchaient ces épées volantes. L'homme, vêtu de bleu, était très beau. Son niveau de culture n'était pas négligeable, se situant autour du stade de Nirvana Scryer. La femme était gracieuse, vêtue de robes aux couleurs du phénix ; elle était d'une grande beauté et dégageait une aura de noblesse.
+Un homme et une femme chevauchaient ces épées volantes. L'homme, vêtu de bleu, était très beau. Son niveau de cultivation n'était pas négligeable, se situant autour du stade de Nirvana Scryer. La femme était gracieuse, vêtue de robes aux couleurs du phénix ; elle était d'une grande beauté et dégageait une aura de noblesse.
 
 Sous leurs pieds s'étendaient les nuages noirs. Depuis leur position, ils pouvaient clairement voir la foudre zigzaguer dans les masses nuageuses et entendre le grondement du tonnerre.
 
-« Yue Xuan, le clan a convoqué une réunion urgente. Ton niveau de culture n'est pas assez élevé, ne fais pas preuve de témérité ! »
+« Yue Xuan, le clan a convoqué une réunion urgente. Ton niveau de cultivation n'est pas assez élevé, ne fais pas preuve de témérité ! »
 
 La femme regarda l'homme avec douceur et murmura : « Je t'écouterai. Je me demande ce qui a pu pousser les Anciens à lancer un tel appel. C’est extrêmement rare. »
 
@@ -54,7 +54,7 @@ Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna l
 
 « Le Grand Maître Yun Luo du Conseil Souverain a utilisé un grand sort de divination pour identifier l'apparence et l'empreinte d'âme originelle de celui qui a détruit le Clan du Tonnerre Dispersé. L'Ordre de Mort de l'Ancien Système Stellaire a été diffusé ! »
 
-« Cette affaire est d'une telle importance que je crains que même des gens comme nous ne devions participer aux recherches. Même cette planète de culture doit être fouillée minutieusement. Prenez garde à vous ! »
+« Cette affaire est d'une telle importance que je crains que même des gens comme nous ne devions participer aux recherches. Même cette planète de cultivation doit être fouillée minutieusement. Prenez garde à vous ! »
 
 « Quoi ?! » L'expression de l'homme nommé Yu changea radicalement, ses yeux se remplissant d'incrédulité. La femme à ses côtés était tout aussi sous le choc.
 
@@ -84,7 +84,7 @@ Un éclair de foudre reliant les cieux et la terre. La tête de Wang Lin était 
 
 Dès que cet éclair prit sa forme définitive, les nuages grondèrent et une pluie encore plus dense s'abattit. Le tonnerre semblait avoir perdu toute raison, rugissant avec une violence inouïe.
 
-L'ensemble de la planète de culture pouvait entendre le fracas assourdissant émanant des nuages !
+L'ensemble de la planète de cultivation pouvait entendre le fracas assourdissant émanant des nuages !
 
 Dans la cité impériale, plusieurs vieillards se trouvaient dans un pavillon imposant. Presque tous étaient au stade de Nirvana Cleanser, et l'un d'eux atteignait le stade de Nirvana Shatterer !
 
@@ -98,7 +98,7 @@ L'un des vieillards répondit : « Peut-être sommes-nous simplement trop inquie
 
 « Peu importe qui est cette personne. Puisque l'Ordre de Mort de l'Ancien Système Stellaire a été émis, dès que ses traces seront trouvées, il sera sans aucun doute condamné ! »
 
-Dans la partie orientale de la planète se dressait une immense chaîne de montagnes. C'était là que se trouvait le Clan Zhen Yan. Contrairement au Clan du Tonnerre Dispersé, le Clan Zhen Yan n'était qu'une petite secte occupant une seule planète de culture, à l'instar des sectes du Royaume Intérieur.
+Dans la partie orientale de la planète se dressait une immense chaîne de montagnes. C'était là que se trouvait le Clan Zhen Yan. Contrairement au Clan du Tonnerre Dispersé, le Clan Zhen Yan n'était qu'une petite secte occupant une seule planète de cultivation, à l'instar des sectes du Royaume Intérieur.
 
 À cet instant, au sein du Clan Zhen Yan, un homme aux cheveux blancs se tenait au sommet d'une montagne. Il paraissait très vieux et fixait l'horizon. Après un long moment, il murmura : « Pourquoi ai-je l'impression qu'une calamité est sur le point de frapper... »
 
@@ -108,6 +108,6 @@ Cependant, juste au moment où il allait bouger, l'âme originelle de Wang Lin, 
 
 L'Éternel Éclair se débattit avec acharnement. Une volonté résidait en lui, semblable à celle d'un cultivateur, et elle engagea une lutte mortelle contre Wang Lin !
 
-« Fusionne avec moi et deviens une partie de mon essence du tonnerre. Permets à mon essence d'atteindre la perfection et, avec les formes de tonnerre qui l'accompagnent, augmente mon niveau de culture ! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'Éternel Éclair.
+« Fusionne avec moi et deviens une partie de mon essence du tonnerre. Permets à mon essence d'atteindre la perfection et, avec les formes de tonnerre qui l'accompagnent, augmente mon niveau de cultivation ! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'Éternel Éclair.
 
 « Sortilège du Dao... Fusionne ! » L'œil droit de Wang Lin s'illumina et les deux essences de tonnerre distinctes dans ses yeux commencèrent à pivoter. Son regard dégageait alors une aura démoniaque !

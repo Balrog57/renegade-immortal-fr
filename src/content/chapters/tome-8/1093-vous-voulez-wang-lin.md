@@ -50,7 +50,7 @@ Il pensait que le Secte Divin de l'Oiseau Vermillon avait ses raisons d'avoir pr
 
 La belle femme regarda Li Yunzi et demanda : « Oh ? La rumeur dit que ses sorts étaient capables de tuer Maître Void. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi le Senior Li Yunzi pense-t-il qu'il n'est pas qualifié ? À l'époque, le Secte Divin de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
-Li Yunzi répondit calmement : « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture ! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
+Li Yunzi répondit calmement : « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de cultivation ! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 
 La belle femme fronça les sourcils. Leur Secte des Cadavres avait recueilli divers indices concluant que le célèbre Wang Lin de la grotte de Qing Lin devait être le nouvel Empereur Divin de l'Oiseau Vermillon. Cependant, les paroles de Li Yunzi venaient semer le doute dans son esprit.
 
@@ -80,11 +80,11 @@ L'homme en armure s'avança devant tout le monde et releva sa cape avant de s'as
 
 Il dégageait une majesté absolue. De plus, l'énergie d'origine qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, très peu de gens seraient capables d'identifier Wang Lin.
 
-Un silence de mort s'installa dans la salle. L'apparition de cet homme était trop saisissante et avait provoqué une agitation inattendue de l'énergie du feu. Le front de la belle femme était perlé de sueur, comme si elle était assise dans un four. Normalement, avec son niveau de culture, la chaleur ne l'aurait pas affectée, mais depuis l'apparition de l'homme, l'accumulation d'énergie était devenue presque insupportable.
+Un silence de mort s'installa dans la salle. L'apparition de cet homme était trop saisissante et avait provoqué une agitation inattendue de l'énergie du feu. Le front de la belle femme était perlé de sueur, comme si elle était assise dans un four. Normalement, avec son niveau de cultivation, la chaleur ne l'aurait pas affectée, mais depuis l'apparition de l'homme, l'accumulation d'énergie était devenue presque insupportable.
 
 « Li Yingzhi, disciple du Secte des Cadavres, salue l'Empereur Divin de l'Oiseau Vermillon. » La femme bannit tout mépris de son cœur. Elle lutta contre la pression, se redressa et salua respectueusement cet homme comme s'il était un Grand Ancien de sa propre secte.
 
-« À quel niveau de culture peut bien se trouver cet Empereur Divin pour produire une telle pression ?! » s'étonna-t-elle intérieurement.
+« À quel niveau de cultivation peut bien se trouver cet Empereur Divin pour produire une telle pression ?! » s'étonna-t-elle intérieurement.
 
 Mo Zhi observa l'homme en armure, ses yeux brillant d'une lueur étrange, sans toutefois être certain de ce qu'il percevait. Lui aussi résista à la pression pour se lever et dit respectueusement : « Mo Zi du pays de Chu Yun salue l'Empereur Divin de l'Oiseau Vermillon. »
 

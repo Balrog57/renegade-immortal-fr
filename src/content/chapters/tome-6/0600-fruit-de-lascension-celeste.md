@@ -64,7 +64,7 @@ Wang Lin fronça légèrement les sourcils, leva sa main droite et utilisa, pour
 
 La lueur noire jaillit comme un coup de tonnerre et percuta le bras d'os. À cet instant, une quantité stupéfiante d'énergie spirituelle démoniaque jaillit de l'armure. Cette énergie était si dense qu'elle devint solide, bloquant immédiatement le Doigt de la Mort.
 
-Cependant, l'énergie démoniaque avait sous-estimé la technique de Wang Lin. Si celui-ci n'avait pas été au stade d'Ascendant, son Doigt de la Mort se serait brisé net face à une telle puissance ; mais il activait désormais sa technique avec une culture de niveau Ascendant. Bien que la lumière noire fût arrêtée, l'énergie de mort qu'elle contenait ne pouvait être entravée. Lors de la collision entre l'énergie démoniaque et l'énergie de mort, la première se dissipa comme si elle avait été absorbée par la seconde.
+Cependant, l'énergie démoniaque avait sous-estimé la technique de Wang Lin. Si celui-ci n'avait pas été au stade d'Ascendant, son Doigt de la Mort se serait brisé net face à une telle puissance ; mais il activait désormais sa technique avec une cultivation de niveau Ascendant. Bien que la lumière noire fût arrêtée, l'énergie de mort qu'elle contenait ne pouvait être entravée. Lors de la collision entre l'énergie démoniaque et l'énergie de mort, la première se dissipa comme si elle avait été absorbée par la seconde.
 
 Tout cela se produisit en un instant.
 
@@ -102,7 +102,7 @@ Les restrictions protégeant ce site n'étaient pas complexes, mais leur qualit�
 
 Bien que rudimentaires, elles étaient redoutables. Même un général démon aurait eu du mal à forcer le passage, et cela lui aurait coûté un temps précieux.
 
-Wang Lin déploya son Sens Divin. Avec sa culture et sa maîtrise des formations, ces restrictions ne l'intéressaient guère. Il n'avait aucune intention de fouiller ce qui s'y cachait et s'apprêtait à repartir quand le vortex noir apparut soudainement, faisant rétrécir ses pupilles.
+Wang Lin déploya son Sens Divin. Avec sa cultivation et sa maîtrise des formations, ces restrictions ne l'intéressaient guère. Il n'avait aucune intention de fouiller ce qui s'y cachait et s'apprêtait à repartir quand le vortex noir apparut soudainement, faisant rétrécir ses pupilles.
 
 « C'est comme un fantôme qui me hante ! » Les sourcils de Wang Lin se froncèrent durement et son regard se glaça. Ce vortex noir ne cessait de surgir devant lui, éveillant une pointe d'intention meurtrière dans son cœur. Il laissa échapper un reniflement méprisant et plongea tête baissée dans les innombrables restrictions.
 

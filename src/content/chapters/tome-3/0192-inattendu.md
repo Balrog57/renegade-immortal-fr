@@ -16,7 +16,7 @@ Alors que la faille se repliait, ce qui apparut devant Wang Lin n'était pas la 
 
 Cet espace n'était pas vaste, il ne faisait qu'une centaine de pieds de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
 
-À côté de chaque instrument siégeait un cultivateur, chacun s'adonnant à sa culture auprès de son outil. Leurs silhouettes ressemblaient à celles de Dou Mu ; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta un total de neuf personnes, toutes en pleine méditation dans la pièce.
+À côté de chaque instrument siégeait un cultivateur, chacun s'adonnant à sa cultivation auprès de son outil. Leurs silhouettes ressemblaient à celles de Dou Mu ; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta un total de neuf personnes, toutes en pleine méditation dans la pièce.
 
 Dès l'entrée des deux intrus, tous les cultivateurs ouvrirent les yeux. Un à un, ils activèrent plusieurs techniques sur chacun des instruments, faisant jaillir une lumière pourpre.
 
@@ -38,11 +38,11 @@ Le cœur de Wang Lin sombra. Il fixa Dou Mu et articula lentement : « Pour quit
 
 Un grand cultivateur au visage rouge dit en fronçant les sourcils : « Dou Mu, tu es toujours aussi lent à parler. Petit gars, laisse-moi te dire les choses : dès que le sceau sur Ta Sen sera levé, tout le monde ici mourra. Lui sera le seul à partir. »
 
-« À l'époque, onze d'entre nous sommes arrivés sur cette planète sauvage. Nous avions initialement prévu d'y établir une résidence. Mais nous ne nous attendions pas à découvrir que ce lieu regorgeait de l'énergie spirituelle de l'Ancien Dieu. Après quelques investigations, j'ai rencontré un cultivateur nommé Ta Sen à l'extérieur du corps de l'Ancien Dieu. Sa culture était extrêmement puissante. Même en unissant nos forces, nous n'étions pas de taille face à lui. » La voix du vieil homme aux cheveux roux s'intensifia ; il parlait avec précipitation. Dès qu'il eut fini, un autre cultivateur leva la tête et dit d'un ton lugubre :
+« À l'époque, onze d'entre nous sommes arrivés sur cette planète sauvage. Nous avions initialement prévu d'y établir une résidence. Mais nous ne nous attendions pas à découvrir que ce lieu regorgeait de l'énergie spirituelle de l'Ancien Dieu. Après quelques investigations, j'ai rencontré un cultivateur nommé Ta Sen à l'extérieur du corps de l'Ancien Dieu. Sa cultivation était extrêmement puissante. Même en unissant nos forces, nous n'étions pas de taille face à lui. » La voix du vieil homme aux cheveux roux s'intensifia ; il parlait avec précipitation. Dès qu'il eut fini, un autre cultivateur leva la tête et dit d'un ton lugubre :
 
 « Ce Ta Sen ne nous a pas tués, mais nous a invités à entrer dans cette Terre de l'Ancien Dieu. Cet homme comprenait parfaitement ce lieu ; il avait une maîtrise absolue des trois royaumes. Selon lui, il séjournait dans la terre de l'Ancien Dieu depuis fort longtemps, mais, hélas, il était bloqué par la porte du dernier niveau. »
 
-« Il nous a invités à l'aider à franchir cette ultime étape. Bien que les chances d'obtenir une transmission fussent faibles, la tentation était trop grande. Certes, nous ne pouvions le vaincre, mais nous connaissions une formation capable de terrasser même un tel être une fois activée. Cependant, l'usage de cette formation nous ferait perdre une immense partie de notre culture. »
+« Il nous a invités à l'aider à franchir cette ultime étape. Bien que les chances d'obtenir une transmission fussent faibles, la tentation était trop grande. Certes, nous ne pouvions le vaincre, mais nous connaissions une formation capable de terrasser même un tel être une fois activée. Cependant, l'usage de cette formation nous ferait perdre une immense partie de notre cultivation. »
 
 « Le voyage dans le corps de l'Ancien Dieu qu'il avait orchestré était périlleux, mais nous n'étions pas des gens que l'on pouvait manipuler aisément. Nous étions préparés. Finalement, nous avons réussi à franchir le dernier niveau, mais tout cela semblait bien étrange. Ce dernier niveau était manifestement un sceau d'une puissance colossale. Il nous avait fallu un temps infini pour le passer. On aurait dit que l'Ancien Dieu s'en servait pour emprisonner quelque chose. Si cet homme n'avait pas si bien compris la nature du sceau, même avec la méthode pour le briser, nous n'aurions sans doute pas été capables de l'ouvrir. Une fois le sceau rompu, nous avons senti que Ta Sen avait changé, sans pouvoir déterminer en quoi. »
 
@@ -58,7 +58,7 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils : « Dou Mu, 
 
 « Au fil des éons, tous les quelques millénaires, des cultivateurs arrivaient ici. Ils étaient tous capturés par lui et se voyaient implanter une partie du sceau. Même si beaucoup d'entre eux se rassemblaient, il laissait toujours s'échapper une personne chanceuse. C'était pour s'assurer que d'autres reviennent à l'avenir. »
 
-« À mesure que le nombre de cultivateurs augmentait, les sceaux sur Ta Sen diminuaient. L'avantage était que les nouveaux arrivants différaient de nous : leur culture était si faible qu'ils ne pouvaient fusionner avec les fragments de l'âme de l'Ancien Dieu. Beaucoup ne pouvaient supporter qu'un seul sceau dans leur corps, ce qui rendait le processus de libération de Ta Sen de plus en plus lent. »
+« À mesure que le nombre de cultivateurs augmentait, les sceaux sur Ta Sen diminuaient. L'avantage était que les nouveaux arrivants différaient de nous : leur cultivation était si faible qu'ils ne pouvaient fusionner avec les fragments de l'âme de l'Ancien Dieu. Beaucoup ne pouvaient supporter qu'un seul sceau dans leur corps, ce qui rendait le processus de libération de Ta Sen de plus en plus lent. »
 
 « Mais c'était un véritable génie. Voyant que sa méthode s'essoufflait, il eut une autre idée : le dévoreur d'âmes ! »
 
@@ -104,7 +104,7 @@ Le vieillard ridé eut un tressaillement au cœur en entendant la question. Cet 
 
 Le vieil homme reprit lentement : « Entre dans la Mer Sanguine. Une fois que Ta Sen aura levé le sceau, il s'engouffrera directement dans la Mer des Âmes Mortes. Dès qu'il l'aura ouverte, tu devras y pénétrer et utiliser une technique. C'est aussi simple que cela. Quant à la technique en question, il s'agit de celle utilisée par le géant issu de l'âme de l'Ancien Dieu pour sceller. Je l'ai étudiée durant d'innombrables années et mon taux de réussite est de 30 %. Si tu l'utilises, tes chances de succès passeront à 70 % car tu es un dévoreur d'âmes. Tous les fragments d'âme que tu absorberas ne feront qu'un avec ta volonté. »
 
-Wang Lin ricana et dit d'un ton sombre : « Avec une culture de seulement Formation du Noyau, sceller Ta Sen n'est qu'une chimère. »
+Wang Lin ricana et dit d'un ton sombre : « Avec une cultivation de seulement Formation du Noyau, sceller Ta Sen n'est qu'une chimère. »
 
 Le vieil homme laissa échapper un rire : « Bien sûr, nous ne te demandons pas de réaliser le sceau toi-même, mais de contrôler les fragments d'âme pour déclencher à nouveau la Mer des Âmes Mortes. Selon mes prédictions, la Mer des Âmes Mortes se refermera et emprisonnera définitivement Ta Sen en son sein. »
 

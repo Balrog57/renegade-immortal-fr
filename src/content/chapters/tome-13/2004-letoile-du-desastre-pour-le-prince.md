@@ -38,7 +38,7 @@ Seul le jeune homme en noir fixa Wang Lin en gardant le silence.
 
 Wang Lin sourit et rendit leur salut. « Je m'appelle Wang Lin. Par hasard, j'ai entendu dire que le prince et les ambassadeurs de l'Ancien Dao passaient par ici. J'aimerais les rencontrer si cela est possible, mais si c'est inconvenant, je m'en irai. »
 
-Il ne faisait preuve d'aucune arrogance malgré son niveau de culture et son rang élevé. La personnalité de Wang Lin avait toujours été ainsi : si les autres lui témoignaient du respect, il leur en rendait naturellement.
+Il ne faisait preuve d'aucune arrogance malgré son niveau de cultivation et son rang élevé. La personnalité de Wang Lin avait toujours été ainsi : si les autres lui témoignaient du respect, il leur en rendait naturellement.
 
 « Puisque vous êtes venu ici, vous êtes notre invité. Le frère Wang peut rester et patienter avec nous », sourit l'homme en armure dorée.
 

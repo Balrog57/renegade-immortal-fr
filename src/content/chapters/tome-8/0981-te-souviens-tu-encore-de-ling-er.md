@@ -10,7 +10,7 @@ Chapitre 981 - Te souviens-tu encore de Ling Er ?
 
 Wang Lin hésita un instant, puis tourna son regard vers la planète située derrière les frères Chen. L'énergie spirituelle qui en émanait était si dense qu'un simple coup d'œil lui permit de deviner la splendeur de ce monde.
 
-Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire : « Frère Wang, hormis notre planète Water Spirit, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la culture. De plus, cette planète est vaste ; nous ne perturberons nullement votre cultivation. »
+Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire : « Frère Wang, hormis notre planète Water Spirit, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la cultivation. De plus, cette planète est vaste ; nous ne perturberons nullement votre cultivation. »
 
 Les maîtres Yi Xing et Yi Long perçurent également les intentions de Maître Yi Chen et s'empressèrent de persuader Wang Lin.
 
@@ -26,7 +26,7 @@ En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restai
 
 Bientôt, ils eurent traversé la couche atmosphérique. Wang Lin descendit sur la planète Water Spirit, traité avec les égards dus à une étoile par les frères Chen.
 
-Dès qu'ils sortirent de l'atmosphère, ils ressentirent une énergie spirituelle d'une densité exceptionnelle. Wang Lin prit une profonde inspiration, les yeux empreints d'admiration. En voyant cela, les trois frères Chen éprouvèrent un sentiment de fierté secrète. C'était la planète de culture la plus riche dans un rayon de dizaines de milliers de kilomètres. Sans leur Maître, ils n'auraient jamais pu s'approprier un tel monde.
+Dès qu'ils sortirent de l'atmosphère, ils ressentirent une énergie spirituelle d'une densité exceptionnelle. Wang Lin prit une profonde inspiration, les yeux empreints d'admiration. En voyant cela, les trois frères Chen éprouvèrent un sentiment de fierté secrète. C'était la planète de cultivation la plus riche dans un rayon de dizaines de milliers de kilomètres. Sans leur Maître, ils n'auraient jamais pu s'approprier un tel monde.
 
 Wang Lin rit : « Cette planète est magnifique ! »
 
@@ -76,7 +76,7 @@ Une fois les frères Chen partis, Wang Lin contempla les palais montagneux qui s
 
 De grands arbres s'élançaient vers le ciel au sein de ces montagnes. L'endroit inspirait une profonde sérénité.
 
-« Je dois me consacrer à la culture en isolement pendant plusieurs jours. Ta Shan me gardera, et les autres peuvent choisir leur propre demeure. Cependant, vous ne devez pas vous éloigner de plus de 50 kilomètres de moi ! » Wang Lin, d'un ton calme, laissa cette instruction avant de se diriger vers un palais.
+« Je dois me consacrer à la cultivation en isolement pendant plusieurs jours. Ta Shan me gardera, et les autres peuvent choisir leur propre demeure. Cependant, vous ne devez pas vous éloigner de plus de 50 kilomètres de moi ! » Wang Lin, d'un ton calme, laissa cette instruction avant de se diriger vers un palais.
 
 Ta Shan s'avança pour suivre Wang Lin.
 
@@ -90,15 +90,15 @@ Une fois entré dans le palais, Ta Shan s'assit à l'extérieur. Il resta immobi
 
 Le palais était luxueux et richement décoré. Un immense motif ornait le sol, mais il ne dégageait aucune fluctuation ; ce n'était donc pas une formation, mais une simple décoration. Au centre trônait un brûle-parfum de la taille de trois hommes. Un bâton d'encens aussi épais qu'un bras y brûlait, et sa fumée s'élevait pour se disperser dans l'immensité de la salle.
 
-On y trouvait également un tapis de jade violet, indiquant sans équivoque que le lieu était destiné à la culture.
+On y trouvait également un tapis de jade violet, indiquant sans équivoque que le lieu était destiné à la cultivation.
 
 De plus, des fresques reliées entre elles couvraient les murs environnants. Elles dépeignaient une multitude d'êtres célestes entourés de nuages, semblant accueillir le visiteur.
 
-Après avoir inspecté les lieux, Wang Lin fut pleinement satisfait. L'espace était vaste et propice au raffinage de trésors. Le calme y régnait, idéal pour la culture en isolement.
+Après avoir inspecté les lieux, Wang Lin fut pleinement satisfait. L'espace était vaste et propice au raffinage de trésors. Le calme y régnait, idéal pour la cultivation en isolement.
 
 Son Sens Divin se déploya pour inspecter soigneusement la zone. Puis, Wang Lin s'assit sur le tapis de jade violet et ferma lentement les yeux.
 
-Son énergie originelle emplit son corps tandis que sa culture de Nirvana Scryer, au stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
+Son énergie originelle emplit son corps tandis que sa cultivation de Nirvana Scryer, au stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
 
 Durant ce laps de temps, les trois frères Chen passèrent, mais ils ne le dérangèrent pas. Après avoir attendu un moment, ils prirent congé et partirent.
 
@@ -108,7 +108,7 @@ Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absol
 
 À l'instant où ses yeux s'ouvrirent, ce fut comme si un éclair avait transpercé l'obscurité du palais, le baignant de lumière.
 
-« Trois jours de repos ajoutés à la culture effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Nirvana Scryer... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Nirvana Cleanser au stade intermédiaire ! Cependant, cela ne suffira pas pour le voyage vers la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
+« Trois jours de repos ajoutés à la cultivation effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Nirvana Scryer... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Nirvana Cleanser au stade intermédiaire ! Cependant, cela ne suffira pas pour le voyage vers la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
 
 Cette lueur azur rendit immédiatement le palais brumeux. À l'intérieur de cette lumière se trouvait un petit bouclier entièrement bleu azur. Il avait été raffiné avec une matière inconnue et des volutes de nuages semblaient flotter en son sein. Il était d'une beauté remarquable.
 

@@ -66,7 +66,7 @@ La hache ne résista plus et finit par s'apaiser lentement.
 
 Wang Lin saisit l'arme, mordit le bout de sa langue et cracha son sang. Une marque écarlate se déposa sur la hache et fusionna avec elle.
 
-La Hache de la Fente Céleste s'était soumise. Cette fois, il avait soumis l'arme par sa propre force. Autrefois, faute de puissance de culture suffisante, il avait dû solliciter l'aide de l'ancien Seigneur du Royaume Scellé pour la contrôler.
+La Hache de la Fente Céleste s'était soumise. Cette fois, il avait soumis l'arme par sa propre force. Autrefois, faute de puissance de cultivation suffisante, il avait dû solliciter l'aide de l'ancien Seigneur du Royaume Scellé pour la contrôler.
 
 Armé de cette hache gigantesque, ses cheveux blancs flottaient au vent. À cet instant, Wang Lin ne différait en rien de sa statue sur la planète Suzaku !
 
@@ -116,4 +116,4 @@ Wang Lin avait détruit la Formation de Scellement du Royaume !
 
 À travers les âges, il était le premier à accomplir un tel exploit. Le premier à avoir l'audace de briser la Formation de Scellement du Royaume après avoir massacré les envahisseurs du Royaume Extérieur !
 
-Son nom était destiné à être transmis pendant des dizaines de milliers d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte des Sept Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel !
+Son nom était destiné à être transmis pendant des dizaines de milliers d'années dans ce monde de cultivation, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte des Sept Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel !

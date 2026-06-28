@@ -38,7 +38,7 @@ La puissance du corps originel de Wang Lin pénétra dans le corps des cinq él�
 
 Une fois le fragment extrait, une force dévastatrice percuta les deux corps véritables de Wang Lin. Ces derniers furent projetés violemment contre lui, le repoussant brutalement.
 
-Pourtant, la puissance ne se dissipa pas ; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa culture d'Exalt Empyréen et son corps de l'Ancien Dao, il était blessé. Cela témoignait de la puissance phénoménale de cette mer !
+Pourtant, la puissance ne se dissipa pas ; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa cultivation d'Exalt Empyréen et son corps de l'Ancien Dao, il était blessé. Cela témoignait de la puissance phénoménale de cette mer !
 
 Mais ce n'était pas encore fini. Tandis que Wang Lin était blessé et repoussé par le choc, la paume de tonnerre qui retenait le visage s'effondra soudainement, dispersant l'éclair.
 

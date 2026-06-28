@@ -84,7 +84,7 @@ Ces connaissances étaient précieuses pour le Wang Lin actuel ; il n'aurait plu
 
 De plus, Hunchback Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui augmenta ses connaissances d'un facteur cent.
 
-Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot : *Underworld* (Sous-monde).
+Un jade vert foncé attira particulièrement son attention. C'était une méthode de cultivation dont le nom ne tenait qu'en un mot : *Underworld* (Sous-monde).
 
 Cette méthode était décrite comme provenant du dieu démon Qi, qui utilisait le poison comme fondement de son Dao. Elle comptait neuf étapes, et dès la sixième, même des cultivateurs de la Formation de l'Âme ne pourraient résister au venin.
 
@@ -92,7 +92,7 @@ Cependant, cette voie était extrêmement cruelle. Le pratiquant devait endurer 
 
 Cet effet secondaire persistait jusqu'à l'atteinte du neuvième niveau. C'est alors que tout le poison serait expulsé du corps pour former le véritable Poison du Sous-monde, permettant au pratiquant de retrouver une apparence normale. Avant cela, le corps subirait des déformations ; la première manifestation étant l'apparition de pustules sur la peau.
 
-Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Hunchback Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en une coquille vide dont l'unique savoir est de tuer.
+Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Hunchback Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la cultivation de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en une coquille vide dont l'unique savoir est de tuer.
 
 C'était la raison principale de son renoncement. Bien qu'il ne puisse pas pratiquer cette méthode, les jades contenaient de nombreuses techniques qu'il pourrait utiliser s'il disposait du poison nécessaire.
 
@@ -114,7 +114,7 @@ En consultant les jades, il trouva une explication : lorsqu'on atteint le deuxi�
 
 Ce chaudron était une imitation du légendaire Chaudron Médicinal Royal. Bien qu'il s'agînt d'une copie, les matériaux dont il était constitué n'étaient pas inférieurs à ceux de l'original. Sa seule faiblesse résidait dans son incapacité à absorber l'énergie spirituelle de dizaines de milliers de plantes comme le faisait le véritable Chaudron Médicinal Royal.
 
-Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Hunchback Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer des Démons, utilisant le chaudron comme trésor vital.
+Ce chaudron représentait le trésor le plus important d'une secte dans un pays de cultivation de rang 3. Hunchback Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer des Démons, utilisant le chaudron comme trésor vital.
 
 Il avait pris un Chaudron Médicinal Royal pour le transformer en Chaudron du Roi Poison. S'il avait atteint le neuvième niveau, bien qu'il n'aurait pas égalé l'original, il s'en serait approché. Mais au lieu d'un chaudron de médecine, ce serait devenu un chaudron de poison.
 

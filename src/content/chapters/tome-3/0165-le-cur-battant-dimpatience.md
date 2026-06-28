@@ -6,13 +6,13 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 165 - Palpitating with Eagerness
 slug: le-cur-battant-dimpatience
 ---
-Le vieil homme grommela : « C’est vraiment ennuyeux ! » Il leva froidement les yeux vers Zhao Chuanliang et lança : « Je n’ai pas envie de tuer pour le moment, alors dégage ! » Le vieil homme ne mentait pas ; le mystérieux Sect des Cadavres était bien plus effrayant pour lui que les pays de culture de rang 4 ou 5.
+Le vieil homme grommela : « C’est vraiment ennuyeux ! » Il leva froidement les yeux vers Zhao Chuanliang et lança : « Je n’ai pas envie de tuer pour le moment, alors dégage ! » Le vieil homme ne mentait pas ; le mystérieux Sect des Cadavres était bien plus effrayant pour lui que les pays de cultivation de rang 4 ou 5.
 
 À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un junior avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
 
 Les pupilles de Zhao Chuanliang se rétractèrent alors qu'il fixait le vieil homme. Ce simple revers de main du vieillard avait suffi à détruire son attaque. Cela le choqua secrètement. Il avait déjà entendu parler de cet homme par Hou Fen. La raison pour laquelle il avait amené tous les cultivateurs de l'Âme Naissante de la secte était précisément d'empêcher cette personne d'agir.
 
-Mais il semblait désormais que le niveau de culture de cet individu était bien plus élevé qu'il ne l'avait anticipé. Zhao Chuanliang réfléchit un instant, puis dit : « Senior, cet individu est lié à une affaire cruciale de mon Sect des Cadavres. Je me dois de l'emmener avec moi aujourd'hui. »
+Mais il semblait désormais que le niveau de cultivation de cet individu était bien plus élevé qu'il ne l'avait anticipé. Zhao Chuanliang réfléchit un instant, puis dit : « Senior, cet individu est lié à une affaire cruciale de mon Sect des Cadavres. Je me dois de l'emmener avec moi aujourd'hui. »
 
 Le vieil homme soupira intérieurement. Il se demandait pourquoi ce gamin était si problématique. De toutes les personnes qu'il aurait pu offenser, pourquoi fallait-il qu'il s'en prenne au Sect des Cadavres ? S'il en avait le choix, il partirait simplement et ne s'impliquerait plus dans cette affaire.
 
@@ -34,7 +34,7 @@ Zhao Chuanliang ricana. Il se tourna vers le vieil homme et dit : « Senior, non
 
 Le visage du vieil homme s'assombrit alors qu'il marmonnait : « Le vieil homme Tian Di... »
 
-« La culture du vieil homme Tian Di est extrêmement puissante. Il a pu découvrir ce qui s'était passé à l'époque en utilisant la lampe d'âme de Xu Liguo. C'est cet individu nommé Ma Liang qui a tué les disciples de mon Sect des Cadavres et piégé l'âme de Xu Liguo ! » Sur ces mots, Zhao Chuanliang agita la main et son corps disparut.
+« La cultivation du vieil homme Tian Di est extrêmement puissante. Il a pu découvrir ce qui s'était passé à l'époque en utilisant la lampe d'âme de Xu Liguo. C'est cet individu nommé Ma Liang qui a tué les disciples de mon Sect des Cadavres et piégé l'âme de Xu Liguo ! » Sur ces mots, Zhao Chuanliang agita la main et son corps disparut.
 
 Les quatre cultivateurs de l'Âme Naissante derrière lui disparurent également pour réapparaître devant le Huitième Seigneur Démon Extrême. Quant à Zhao Chuanliang, il surgit au-dessus de Wang Lin et projeta précipitamment une masse de fumée noire de sa main. Simultanément, les cultivateurs de la Formation du Noyau à l'intérieur du cercle entamèrent un chant mystérieux. La formation s'étendit instantanément à une vitesse fulgurante, couvrant les mille kilomètres environnants.
 
@@ -50,19 +50,19 @@ Sur ces mots, il leva la main et forma une main gigantesque. Telle un jouet d'en
 
 Hormis cinq cultivateurs de l'Âme Naissante au visage livide qui réussirent à l'esquiver, tous les cultivateurs de la Formation du Noyau furent réduits en poussière par cette onde de choc, ainsi que les cercueils qui les accompagnaient.
 
-Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement : « La culture de ce senior est très élevée, mais se faire l'ennemi du Sect des Cadavres n'est pas une sage décision ! Avec votre niveau, vous devriez connaître notre Sect, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau au senior de ne pas s'allier au Sect des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort ! »
+Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement : « La cultivation de ce senior est très élevée, mais se faire l'ennemi du Sect des Cadavres n'est pas une sage décision ! Avec votre niveau, vous devriez connaître notre Sect, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau au senior de ne pas s'allier au Sect des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort ! »
 
 Le Huitième Seigneur Démon Extrême ne souhaitant pas offenser le Sect des Cadavres, il épargna ces cinq hommes. Quant aux cultivateurs de la Formation du Noyau, il les scruta de son Sens Divin pour s'assurer qu'aucun d'entre eux n'était possédé ; il ne les acheva qu'après en avoir eu la certitude.
 
 Le vieil homme fronça les sourcils et dit lentement : « Cet individu est d'une grande utilité pour moi. Je ne me donnerais pas la peine de le protéger autrement. Vous feriez mieux de partir. Si ce n'était pas pour aujourd'hui, je ne me serais même pas encombré de cela. »
 
-Wang Lin observait froidement la scène. Bien que son expression soit restée impassible lorsque le vieil homme brisa la formation de transfert, son cœur était bouleversé. Ce Huitième Seigneur Démon Extrême avait été capable de briser la formation de protection de la secte Hou Fen d'un seul revers de paume et d'écraser sans effort la formation de transfert du Sect des Cadavres. Wang Lin s'était interrogé sur le niveau exact de culture de ce vieillard, et il en tira une conclusion qui lui coupa le souffle.
+Wang Lin observait froidement la scène. Bien que son expression soit restée impassible lorsque le vieil homme brisa la formation de transfert, son cœur était bouleversé. Ce Huitième Seigneur Démon Extrême avait été capable de briser la formation de protection de la secte Hou Fen d'un seul revers de paume et d'écraser sans effort la formation de transfert du Sect des Cadavres. Wang Lin s'était interrogé sur le niveau exact de cultivation de ce vieillard, et il en tira une conclusion qui lui coupa le souffle.
 
-En vérité, il l'avait pressenti depuis longtemps. Dès que le vieil homme avait commencé à le traquer dans la Mer des Démons, chaque action accomplie témoignait de la puissance phénoménale de sa culture.
+En vérité, il l'avait pressenti depuis longtemps. Dès que le vieil homme avait commencé à le traquer dans la Mer des Démons, chaque action accomplie témoignait de la puissance phénoménale de sa cultivation.
 
 La Formation de l'Âme !
 
-Le niveau de culture de ce Huitième Seigneur Démon Extrême était très probablement celui de la Formation de l'Âme, sans quoi il n'aurait jamais pu accomplir de tels exploits avec une telle aisance.
+Le niveau de cultivation de ce Huitième Seigneur Démon Extrême était très probablement celui de la Formation de l'Âme, sans quoi il n'aurait jamais pu accomplir de tels exploits avec une telle aisance.
 
 En entendant Zhao Chuanliang mentionner les Sept Cités de la Fleur de Prunier de la Mer des Démons intérieure, Wang Lin se souvint de ce nom. Ses yeux se tournèrent vers le vieil homme et se fixèrent sur les sept fleurs de prunier brodées sur ses vêtements.
 
@@ -72,15 +72,15 @@ Les quatre cultivateurs de l'Âme Naissante jetèrent également un regard glaci
 
 Wang Lin resta pensif. S'il n'avait pas été attaqué en premier par les disciples du Sect des Cadavres avec l'intention de le tuer, il ne les aurait pas éliminés. S'il avait laissé Xu Liguo s'échapper, cela aurait engendré une série de problèmes.
 
-Cependant, le monde de la culture est régi par la loi de la jungle. Le Sect des Cadavres était comme une créature immense et surpuissante. S'ils décrétaient que c'était votre faute, alors c'était votre faute. Même si vous étiez innocent, cela restait votre faute.
+Cependant, le monde de la cultivation est régi par la loi de la jungle. Le Sect des Cadavres était comme une créature immense et surpuissante. S'ils décrétaient que c'était votre faute, alors c'était votre faute. Même si vous étiez innocent, cela restait votre faute.
 
-Wang Lin prit une profonde inspiration. Bien qu'il eût été extrêmement prudent, il s'était tout de même attiré autant d'ennuis. En fin de compte, c'était parce que son niveau de culture n'était pas assez élevé. S'il avait eu le même niveau que le Huitième Seigneur Démon Extrême, même le meurtre d'un individu n'aurait été qu'une bagatelle.
+Wang Lin prit une profonde inspiration. Bien qu'il eût été extrêmement prudent, il s'était tout de même attiré autant d'ennuis. En fin de compte, c'était parce que son niveau de cultivation n'était pas assez élevé. S'il avait eu le même niveau que le Huitième Seigneur Démon Extrême, même le meurtre d'un individu n'aurait été qu'une bagatelle.
 
 Wang Lin fut plus déterminé que jamais à atteindre le stade de l'Âme Naissante. Que ce soit pour lui-même ou pour retourner à Zhao et se venger de Teng Huayuan, il devait impérativement réussir à atteindre l'Âme Naissante, faute de quoi ses ambitions ne resteraient que des rêves.
 
 Le Huitième Seigneur Démon Extrême se tourna vers Wang Lin et dit d'un ton sombre : « Petit, c'est la deuxième fois que je t'aide. Quel que soit le malentendu entre nous, cela devrait suffire à compenser. J'espère que lorsque nous entrerons, tu n'essaieras pas de comploter inutilement ! »
 
-Le Huitième Seigneur Démon Extrême avait désormais une certaine compréhension des stratagèmes de Wang Lin après ces derniers jours passés à le traquer. Ce Ma Liang était une excellente graine pour la culture démoniaque. Il avait aisément deviné ce qui s'était passé en entendant les explications de Zhao Chuanliang. Ce gamin était d'une impitoyabilité et d'une audace rares.
+Le Huitième Seigneur Démon Extrême avait désormais une certaine compréhension des stratagèmes de Wang Lin après ces derniers jours passés à le traquer. Ce Ma Liang était une excellente graine pour la cultivation démoniaque. Il avait aisément deviné ce qui s'était passé en entendant les explications de Zhao Chuanliang. Ce gamin était d'une impitoyabilité et d'une audace rares.
 
 Dans la Mer des Démons, le garçon osait circuler ouvertement malgré l'ordre de mise à mort. Il utilisait cet ordre pour attirer ses proies afin de les éliminer jusqu'à ce qu'elles s'enfuient de terreur. On pouvait dire qu'il était d'une détermination sans faille et d'une grande froideur.
 

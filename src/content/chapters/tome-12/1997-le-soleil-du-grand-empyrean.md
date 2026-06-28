@@ -116,7 +116,7 @@ Voyant Dao Yi sur le point de s'échapper, les yeux du Wang Lin aux cheveux noir
 
 « Comment oses-tu combattre à ta guise et partir quand bon te semble ? » C'étaient les paroles du corps véritable des cinq éléments.
 
-Les yeux de Dao Yi étaient injectés de folie. Il n'hésita pas à consumer son corps pour s'enfuir et se consacrer à une culture en isolement. Quelle secte, quel clan céleste ? Rien de tout cela n'avait d'importance désormais. Il s'élança, son corps devenant un simple flou.
+Les yeux de Dao Yi étaient injectés de folie. Il n'hésita pas à consumer son corps pour s'enfuir et se consacrer à une cultivation en isolement. Quelle secte, quel clan céleste ? Rien de tout cela n'avait d'importance désormais. Il s'élança, son corps devenant un simple flou.
 
 Au même moment, Jiu Di chargea tandis que Gemini hésitait. On aurait dit qu'il allait stopper la poursuite de Wang Lin, mais il était en réalité animé d'une intention meurtrière !
 

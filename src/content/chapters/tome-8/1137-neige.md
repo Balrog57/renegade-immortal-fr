@@ -64,7 +64,7 @@ Le vortex avait quitté les plaines de cette planète abandonnée, mais son rire
 
 La zone dévastée de 10 000 pieds sur la plaine fut peu à peu comblée par la neige. Tout comme les empreintes de Wang Lin, tout disparut...
 
-Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de culture de rang 9. Le Royaume Céleste du Tonnerre possédait Allheaven, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
+Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de cultivation de rang 9. Le Royaume Céleste du Tonnerre possédait Allheaven, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de cultivation et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
 
 Contrairement aux règles strictes de l'Alliance, Allheaven offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille !
 
@@ -90,7 +90,7 @@ Ces neuf rangs formaient en réalité neuf anneaux de formes irrégulières. L'a
 
 Le continent de Mo Luo se situait dans le cinquième rang du brouillard. De loin, le continent semblait apparaître et disparaître par intermittence. En son centre s'élevait une tour noire imposante qui dégageait une douce lueur enveloppant la terre. Cette lumière empêchait le brouillard de pénétrer sur le continent et le repoussait constamment, maintenant ainsi la zone environnante limpide.
 
-Il n'était pas vrai que le Système Stellaire de la Mer Nuageuse manquait de véritables planètes de culture ; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
+Il n'était pas vrai que le Système Stellaire de la Mer Nuageuse manquait de véritables planètes de cultivation ; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
 
 En dessous du rang 7, on trouvait principalement ces continents flottants. Chaque continent représentait une secte différente.
 

@@ -22,7 +22,7 @@ En un éclair, le rideau de lumière s'intensifia pour atteindre mille couches, 
 
 La lueur du rideau perça l'espace et se propagea dans toutes les directions. Elle inonda la partie orientale d'Allheaven. Même les trois autres domaines purent apercevoir cette lumière puissante à l'est !
 
-Tout Allheaven fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, toutes les planètes de culture et l'armée de cultivateurs en mouvement virent tous cette lumière jaillir de l'est !
+Tout Allheaven fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, toutes les planètes de cultivation et l'armée de cultivateurs en mouvement virent tous cette lumière jaillir de l'est !
 
 Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les préparatifs principaux d'Allheaven, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
@@ -30,7 +30,7 @@ Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les p
 
 « La planète Dong Ling existe depuis des temps immémoriaux. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 
-« J'ignore comment sa culture a pu atteindre un niveau aussi effrayant. Cependant, il faudra du temps pour percer la formation de la planète Dong Ling... »
+« J'ignore comment sa cultivation a pu atteindre un niveau aussi effrayant. Cependant, il faudra du temps pour percer la formation de la planète Dong Ling... »
 
 « Combien de temps me faudrait-il pour briser cette formation... » Le Maître Lu Fu fixa l'horizon, et une réponse s'imposa déjà dans son cœur.
 
@@ -86,7 +86,7 @@ Tandis que les grondements tonnaient, le poing illusoire entra en collision avec
 
 Il explosa !
 
-Les dizaines de planètes de culture formant le vortex tremblèrent. Sur plus de dix d'entre elles, de profondes ravines apparurent à leur surface et elles commencèrent à se rompre. Un instant plus tard, elles furent toutes pulvérisées !
+Les dizaines de planètes de cultivation formant le vortex tremblèrent. Sur plus de dix d'entre elles, de profondes ravines apparurent à leur surface et elles commencèrent à se rompre. Un instant plus tard, elles furent toutes pulvérisées !
 
 De nombreux cultivateurs furent déchiquetés lors de l'effondrement des planètes. Tous ces puissants Anciens qui maintenaient la formation ne purent s'échapper ; ils furent effacés de l'existence en même temps que leur planète !
 

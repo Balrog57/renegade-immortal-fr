@@ -56,7 +56,7 @@ Sous cette énergie diabolique, l'armure démoniaque de Wang Lin vola en éclats
 
 Des motifs diaboliques apparurent sur le visage de Wang Lin. Tandis que l'énergie diabolique déferlait, il passa du statut de cultivateur démoniaque à celui de Diable !
 
-Un Diable : une entité coexistant avec les célestes, les dieux et les démons. À travers les âges, tous les soi-disant diables n'étaient que des imposteurs ; même les anciens diables n'étaient pas de véritables Diables. Un vrai Diable n'a ni corps, ni âme, ni culture. C'est une volonté !
+Un Diable : une entité coexistant avec les célestes, les dieux et les démons. À travers les âges, tous les soi-disant diables n'étaient que des imposteurs ; même les anciens diables n'étaient pas de véritables Diables. Un vrai Diable n'a ni corps, ni âme, ni cultivation. C'est une volonté !
 
 Une volonté d'être l'unique souverain !
 
@@ -90,7 +90,7 @@ Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un é
 
 Alors que Wang Lin restait assis sur l'autel, son corps fut enveloppé par une aura d'Être Ancien encore plus puissante pour affronter la première calamité de la troisième épreuve. Une fois cette étape franchie, il deviendrait un véritable ancien dieu de huit étoiles !
 
-Avec le pouvoir de huit étoiles issu des trois clans anciens, même sans sa culture, Wang Lin serait confiant dans sa capacité à surpasser les cultivateurs du stade initial du Vide Arcanique. Si son niveau de culture augmentait encore avec la formation de la septième essence, même les cultivateurs du milieu du stade du Vide Arcanique ne feraient pas le poids une fois sa culture et son pouvoir d'Ancien fusionnés. Il pourrait directement combattre des cultivateurs du stade avancé du Vide Arcanique !
+Avec le pouvoir de huit étoiles issu des trois clans anciens, même sans sa cultivation, Wang Lin serait confiant dans sa capacité à surpasser les cultivateurs du stade initial du Vide Arcanique. Si son niveau de cultivation augmentait encore avec la formation de la septième essence, même les cultivateurs du milieu du stade du Vide Arcanique ne feraient pas le poids une fois sa cultivation et son pouvoir d'Ancien fusionnés. Il pourrait directement combattre des cultivateurs du stade avancé du Vide Arcanique !
 
 Le Sang Céleste de la Race Ancienne, la calamité est arrivée !
 

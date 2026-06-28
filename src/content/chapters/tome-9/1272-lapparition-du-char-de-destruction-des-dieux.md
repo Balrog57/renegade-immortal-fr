@@ -36,7 +36,7 @@ Une multitude de bêtes féroces peuisaient ces continents. Lorsque Wang Lin ava
 
 Les bêtes féroces des continents sauvages tremblèrent toutes et poussèrent des cris de détresse alors que leurs corps et leur sang se flétrissaient rapidement. Leurs os eux-mêmes fondirent tandis que l'essence de leurs corps se condensait sur une parcelle de peau entre leurs sourcils, formant un tatouage couleur sang.
 
-Les innombrables bêtes féroces poussèrent des rugissements fracassants qui résonnèrent à travers toute la région de rang 5. Tous les cultivateurs de cette région ressentirent ce choc ; ceux dont le niveau de culture était faible commencèrent même à avoir des hallucinations, incapables de contrôler leur esprit.
+Les innombrables bêtes féroces poussèrent des rugissements fracassants qui résonnèrent à travers toute la région de rang 5. Tous les cultivateurs de cette région ressentirent ce choc ; ceux dont le niveau de cultivation était faible commencèrent même à avoir des hallucinations, incapables de contrôler leur esprit.
 
 Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des continents, créant une pression stupéfiante. Cette pression suffisait à détruire un cultivateur du stade tardif de la Destruction du Nirvana. Son corps s'effondrerait instantanément et il serait difficile pour son âme originelle d'échapper à la mort !
 
@@ -44,7 +44,7 @@ Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des con
 
 « Les innombrables tatouages du Clan des Tatouages, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque ! » Les innombrables cristaux originels qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
 
-« Même des êtres au stade du Fléau Céleste mourraient sans aucun doute s'ils étaient frappés par ces trois mouvements mortels ! Mais ceci n'est pas la limite de mes 2 000 ans de culture ! » Wang Lin avait tout donné pour cette bataille. Il prit une profonde inspiration, tendit la main et ouvrit son espace de stockage. Un éclair de tonnerre s'en échappa.
+« Même des êtres au stade du Fléau Céleste mourraient sans aucun doute s'ils étaient frappés par ces trois mouvements mortels ! Mais ceci n'est pas la limite de mes 2 000 ans de cultivation ! » Wang Lin avait tout donné pour cette bataille. Il prit une profonde inspiration, tendit la main et ouvrit son espace de stockage. Un éclair de tonnerre s'en échappa.
 
 Au moment où le tonnerre apparut, un rugissement retentit. La bête de tonnerre formée par le Char de Guerre des Dieux était apparue ! Dès son apparition, Wang Lin agita la main droite et toutes les fioritures que Maître Flamespark avait ajoutées s'effondrèrent, lui rendant sa forme puissante d'autrefois.
 

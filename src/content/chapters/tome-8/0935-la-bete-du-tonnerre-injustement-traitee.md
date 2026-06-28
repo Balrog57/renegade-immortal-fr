@@ -24,9 +24,9 @@ Huanglong flottait calmement dans le vide, contemplant le vortex en contrebas. L
 
 « L'Alliance de Cultivation a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Flamespark. Intéressant ! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Flamespark autrefois, je donne une telle opportunité à mes Quatre Sectes Divines ! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
 
-« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps ! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance de Cultivation interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
+« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps ! Je me demande seulement... si la planète de cultivation de rang 9 qui soutient l'Alliance de Cultivation interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
 
-« Je présume que le Secte des Cadavres médite également sur cette question. L'arrivée d'Allheaven a rompu l'équilibre de l'Alliance ! Et il y a aussi ce Wang Lin. Cet enfant est remarquable ; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Flamespark, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Allheaven. » Huanglong sourit avant de s'évanouir parmi les étoiles.
+« Je présume que le Secte des Cadavres médite également sur cette question. L'arrivée d'Allheaven a rompu l'équilibre de l'Alliance ! Et il y a aussi ce Wang Lin. Cet enfant est remarquable ; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la cultivation de Maître Flamespark, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Allheaven. » Huanglong sourit avant de s'évanouir parmi les étoiles.
 
 « Cette bataille n'est pas assez vaste. Qu'elle gagne en intensité et consume davantage de forces de l'Alliance de Cultivation ! Mes Quatre Sectes Divines ont trop longtemps patienté, il est temps que la puissance que nous avons accumulée éclate enfin ! »
 
@@ -46,7 +46,7 @@ Sous l'effet conjugué de l'affaiblissement et du scellement, la quantité d'én
 
 C'était comme si cet endroit était une zone interdite aux cultivateurs !
 
-Au sein de l'Alliance, seuls ceux dont le statut et la culture atteignaient un certain niveau savaient qu'il y a bien longtemps, avant l'effondrement des Royaumes Célestes, un événement cataclysmique s'était produit ici, manquant de peu de briser les Royaumes Célestes eux-mêmes !
+Au sein de l'Alliance, seuls ceux dont le statut et la cultivation atteignaient un certain niveau savaient qu'il y a bien longtemps, avant l'effondrement des Royaumes Célestes, un événement cataclysmique s'était produit ici, manquant de peu de briser les Royaumes Célestes eux-mêmes !
 
 Nul ne savait si ce vide avait une fin. Même les cultivateurs au sommet du stade de Briseur de Nirvana ne pouvaient y progresser très longtemps. Après tout, quelle que soit la quantité d'énergie originelle dont ils disposaient, elle finirait par s'épuiser.
 

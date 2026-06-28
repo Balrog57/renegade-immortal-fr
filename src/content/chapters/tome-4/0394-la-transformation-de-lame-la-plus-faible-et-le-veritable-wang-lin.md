@@ -62,7 +62,7 @@ Li Yuanfeng recula une fois de plus. Les fissures sur le géant de glace s'accen
 
 « Brise-toi ! » rugit Wang Lin, avant de charger soudainement pour percuter la poitrine du géant.
 
-Une série de craquements retentit au sein du colosse de glace. Des fragments tombèrent jusqu'à ce que son corps entier s'effondre. Li Yuanfeng recracha une bouchée de sang en étant projeté en arrière. Ses yeux étaient injectés de sang lorsqu'il hurla : « Ceng Niu, si ce n'était pas parce que mes blessures ne sont pas encore guéries, comment pourrais-je te laisser m'humilier ainsi !? Peu importe. Je vais risquer une chute de mon niveau de culture pour te tuer aujourd'hui ! »
+Une série de craquements retentit au sein du colosse de glace. Des fragments tombèrent jusqu'à ce que son corps entier s'effondre. Li Yuanfeng recracha une bouchée de sang en étant projeté en arrière. Ses yeux étaient injectés de sang lorsqu'il hurla : « Ceng Niu, si ce n'était pas parce que mes blessures ne sont pas encore guéries, comment pourrais-je te laisser m'humilier ainsi !? Peu importe. Je vais risquer une chute de mon niveau de cultivation pour te tuer aujourd'hui ! »
 
 Outre leurs domaines, les cultivateurs de la Transformation de l'Âme pouvaient également utiliser l'énergie spirituelle céleste.
 
@@ -76,7 +76,7 @@ Ces feuilles semblaient toutes être de la plus haute qualité, et un arôme exo
 
 En réalité, au-delà de sa vengeance, ce combat contre Li Yuanfeng permettait à Wang Lin de se préparer à l'étape de la Transformation de l'Âme.
 
-Après avoir atteint son niveau de culture actuel, la compréhension des cieux était une voie pour progresser, mais combattre un cultivateur de la Transformation de l'Âme en était une autre pour appréhender son propre domaine.
+Après avoir atteint son niveau de cultivation actuel, la compréhension des cieux était une voie pour progresser, mais combattre un cultivateur de la Transformation de l'Âme en était une autre pour appréhender son propre domaine.
 
 Il y avait aussi une autre raison : chercher ce bras brisé qui se faisait appeler Situ Nan.
 

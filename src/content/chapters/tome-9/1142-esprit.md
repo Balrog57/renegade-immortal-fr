@@ -18,7 +18,7 @@ Assise là, Xu Yun était d'une grande séduction, son corps gracieux dissimulé
 
 Wang Lin prit la pilule noire des mains de Xu Yun et l'examina avec attention. La couleur de cette pilule évoquait la source même des ténèbres du monde ; un seul regard suffisait à aspirer l'esprit.
 
-« Quelle étrange pilule ! » murmura Wang Lin, tandis que son sens divin se propageait sur l'objet pour en analyser la structure. Ses connaissances en alchimie étaient bien moindres que ses compétences en restrictions, mais son niveau de culture était aussi haut que les cieux, ce qui permettait à son sens divin d'en déchiffrer la composition.
+« Quelle étrange pilule ! » murmura Wang Lin, tandis que son sens divin se propageait sur l'objet pour en analyser la structure. Ses connaissances en alchimie étaient bien moindres que ses compétences en restrictions, mais son niveau de cultivation était aussi haut que les cieux, ce qui permettait à son sens divin d'en déchiffrer la composition.
 
 Cependant, la majorité des éléments restaient incompréhensibles pour lui et, plus important encore, il percevait des fluctuations d'âme à l'intérieur de la pilule.
 
@@ -30,7 +30,7 @@ Lorsqu'il rouvrit les yeux, l'illusion disparut. Wang Lin replaça la pilule ent
 
 Les fils invisibles qui entouraient Xu Yun disparurent promptement ; son corps trembla avant de retrouver son état normal. Pour elle, seule une fraction de seconde s'était écoulée.
 
-Le niveau de culture de Wang Lin étant bien supérieur au sien, elle ne put détecter l'anomalie causée par le sort d'arrêt. Conservant sa détermination initiale, elle avala la pilule d'un regard résolu.
+Le niveau de cultivation de Wang Lin étant bien supérieur au sien, elle ne put détecter l'anomalie causée par le sort d'arrêt. Conservant sa détermination initiale, elle avala la pilule d'un regard résolu.
 
 Wang Lin se tenait derrière elle et observait calmement la scène.
 
@@ -100,7 +100,7 @@ Deux personnes se tenaient sur sa tête. L'une était un jeune homme vêtu d'une
 
 Derrière le jeune homme se tenait un vieil homme. Il restait calme avec une expression respectueuse, mais lorsqu'il regardait le jeune homme, on pouvait lire une trace d'affection protectrice dans ses yeux.
 
-« Non seulement je veux que Lu Yanfei devienne ma concubine de culture, mais je vais faire du Secte Origin mon palais intérieur ! Oncle Song, quel est votre degré de confiance ? »
+« Non seulement je veux que Lu Yanfei devienne ma concubine de cultivation, mais je vais faire du Secte Origin mon palais intérieur ! Oncle Song, quel est votre degré de confiance ? »
 
 « Si ce vieux taoïste n'était pas mort, je n'en aurais aucune certitude, mais à présent, j'en suis sûr à cent pour cent ! » Une lueur de froideur passa dans les yeux du vieil homme.
 

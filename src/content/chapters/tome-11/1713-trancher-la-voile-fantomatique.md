@@ -60,7 +60,7 @@ Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lign�
 
 « Mon corps a obtenu la lignée du Dao Antique et mes corps de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantomatique. Avec cela, je pourrais peut-être former ma septième essence !
 
-« Une fois que l'essence de restriction apparaîtra, mon niveau de culture passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel ! Avec ma lignée du Dao Antique, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique !
+« Une fois que l'essence de restriction apparaîtra, mon niveau de cultivation passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel ! Avec ma lignée du Dao Antique, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique !
 
 « Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Arcanique ! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantomatique apparut.
 

@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 361 - Country of Suzaku
 slug: pays-de-suzaku
 ---
-Ce fut un tournant majeur dans l'histoire du Clan des Démons Géants. À partir de cet instant, ils ne furent plus un pays de culture de rang 4, mais de rang 5.
+Ce fut un tournant majeur dans l'histoire du Clan des Démons Géants. À partir de cet instant, ils ne furent plus un pays de cultivation de rang 4, mais de rang 5.
 
 Suzaku accordait une importance capitale à cet événement ; ainsi, l'un des Ascendants de Suzaku vint personnellement rencontrer l'ancêtre de la Transformation de l'Âme du Clan des Démons Géants.
 
 En vérité, des rumeurs circulaient selon lesquelles le Clan des Démons Géants comptait un cultivateur au stade de la Transformation de l'Âme, mais personne ne pouvait le confirmer. Toutefois, la probabilité était élevée, car le jeune maître du clan, Chi Hu, était revenu avec une quantité prodigieuse de jade céleste.
 
-Lorsque l'ancêtre utilisa sa culture de la Transformation de l'Âme pour revendiquer le statut de pays de culture de rang 5, la rumeur fut confirmée.
+Lorsque l'ancêtre utilisa sa cultivation de la Transformation de l'Âme pour revendiquer le statut de pays de cultivation de rang 5, la rumeur fut confirmée.
 
 Le Clan des Démons Géants n'était pas originaire de Suzaku ; ils s'y étaient installés. Chi Hu était capable de lutter contre un expert du stade tardif de la Formation de l'Âme alors qu'il n'était qu'au stade intermédiaire de ce même niveau, ce qui témoignait de leur immense puissance.
 
@@ -26,7 +26,7 @@ Cependant, tout cela ne concernait aucunement Wang Lin. Il sortit de la vallée 
 
 Le pays de Suzaku se situait sur le plus vaste continent de la planète Suzaku, nommé le continent de Suzaku.
 
-Il n'existait que quatre pays de culture sur ce continent. Les trois autres étaient tous des puissances de rang 5, constituant les trois nations les plus influentes.
+Il n'existait que quatre pays de cultivation sur ce continent. Les trois autres étaient tous des puissances de rang 5, constituant les trois nations les plus influentes.
 
 Ces trois pays étaient le Dragon Vert, les Mille Fantaisies et Pilu.
 
@@ -38,7 +38,7 @@ Le pays de Suzaku comptait au total trois sectes : la Secte du Jade Céleste, la
 
 Chaque secte possédait un cultivateur Ascendant. Conjoints à l'Ascendant du stade tardif résidant au Mont Suzaku, qui portait le titre de Suzaku, ils constituaient la force maîtresse de la planète.
 
-D'innombrables familles de culture dépendaient de ces trois sectes ; elles s'appuyaient sur leur protection et formaient un réseau qui leur fournissait une multitude de disciples.
+D'innombrables familles de cultivation dépendaient de ces trois sectes ; elles s'appuyaient sur leur protection et formaient un réseau qui leur fournissait une multitude de disciples.
 
 Soudain, un rayon de lumière tomba du ciel sur un autel à Suzaku, provoquant l'émanation d'ondes d'énergie spirituelle.
 
@@ -66,7 +66,7 @@ Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mai
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda : « La Secte du Chemin de l'Immortel ? »
 
-White Snow acquiesça : « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Red Butterfly. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
+White Snow acquiesça : « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Red Butterfly. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de cultivation viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
@@ -124,7 +124,7 @@ Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, White Snow murmura : « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de ma maîtresse. Elle est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Ma maîtresse vous recevra lorsqu'elle sera prête. »
+Une fois au sol, White Snow murmura : « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de ma maîtresse. Elle est actuellement en pleine cultivation. Choisissez une chambre parmi les trois rangées du nord. Ma maîtresse vous recevra lorsqu'elle sera prête. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 
@@ -140,7 +140,7 @@ Depuis son entrée à Suzaku, il ressentait un sentiment de danger. Bien que té
 
 L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que la maîtresse de White Snow allait bientôt le recevoir.
 
-Après avoir médité un moment, Wang Lin ferma les yeux et commença sa culture.
+Après avoir médité un moment, Wang Lin ferma les yeux et commença sa cultivation.
 
 Au crépuscule, la pièce devint très sombre, faute de source lumineuse. Au fil des heures, l'obscurité s'intensifia.
 

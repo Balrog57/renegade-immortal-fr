@@ -86,7 +86,7 @@ Le jeune homme devint livide. À ses yeux, ce doigt avait remplacé le monde et 
 
 Son corps fut projeté dans les airs en une trajectoire arquée. Des craquements continuaient de déchirer sa carcasse tandis qu'il crachait des bouffées de sang qui se transformaient en brume rouge.
 
-L'énergie originelle dans son organisme déferlait comme une tempête. Elle détruisit d'abord son énergie spirituelle céleste, puis sa base de culture, pour finalement forcer tout le sang de son corps à s'échapper par ses pores.
+L'énergie originelle dans son organisme déferlait comme une tempête. Elle détruisit d'abord son énergie spirituelle céleste, puis sa base de cultivation, pour finalement forcer tout le sang de son corps à s'échapper par ses pores.
 
 Il ressemblait désormais à un être de sang flottant dans les airs, son corps émettant une épaisse brume écarlate !
 

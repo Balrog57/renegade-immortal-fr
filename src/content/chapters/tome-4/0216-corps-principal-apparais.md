@@ -36,17 +36,17 @@ Après une longue attente, Wang Lin ouvrit soudainement les yeux. Son regard bri
 
 Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, et une pilule d'Établissement des Fondations n'était qu'une version bien plus puissante d'une pilule Pei Yuan.
 
-Une déferlante d'énergie spirituelle pour laver tout le corps afin de le rendre plus apte à la culture : tel était le véritable sens de l'Établissement des Fondations.
+Une déferlante d'énergie spirituelle pour laver tout le corps afin de le rendre plus apte à la cultivation : tel était le véritable sens de l'Établissement des Fondations.
 
 Cependant, ce type de changement se produisait à l'intérieur, tandis que la reconstruction du corps de l'Ancien Dieu était un changement extérieur. En réalité, les deux étaient très similaires ; seul l'Ancien Dieu utilisait l'énergie spirituelle pour transformer le corps physique afin de mieux absorber l'énergie et gagner en puissance.
 
 Le changement intérieur du cultivateur visait à mieux ressentir l'énergie spirituelle du ciel et de la terre, mais, en fin de compte, le but ultime était également de devenir plus fort.
 
-L'un relevait de la culture intérieure, l'autre du raffinement corporel extérieur. Les voies différaient, mais la destination était la même.
+L'un relevait de la cultivation intérieure, l'autre du raffinement corporel extérieur. Les voies différaient, mais la destination était la même.
 
 Le corps principal de Wang Lin empêchait délibérément son avatar d'absorber l'énergie spirituelle pour la pousser vers son noyau ; mais après que son propre corps eut subi une reconstruction et que l'étoile violette fut apparue sur son front, son corps principal s'était déjà engagé sur la voie du raffinement corporel.
 
-Il avait été très prudent lors de la création de son avatar pour éviter qu'il ne subisse une reconstruction corporelle. Ayant prêté attention à cela dès le début, son avatar suivait donc la voie de la culture intérieure.
+Il avait été très prudent lors de la création de son avatar pour éviter qu'il ne subisse une reconstruction corporelle. Ayant prêté attention à cela dès le début, son avatar suivait donc la voie de la cultivation intérieure.
 
 Wang Lin ramassa la fiole de jade. Il restait encore cinq pilules d'Établissement des Fondations. Après réflexion, il les intégra en son sein et recommença à cultiver.
 
@@ -54,7 +54,7 @@ Le temps s'écoula. L'énergie spirituelle contenue dans les cinq pilules explos
 
 Mais Wang Lin possédait la technique de l'Ancien Dieu, l'une des méthodes les plus écrasantes qui soient. La seule chose dont cette technique n'avait pas peur était l'énergie spirituelle, quelle qu'en soit la quantité. Toute l'énergie générée par les cinq pilules fut absorbée avant même de pouvoir causer le moindre dommage au corps.
 
-La culture de Wang Lin passa du stade de l'Établissement des Fondations à l'apogée du premier stade de ce niveau.
+La cultivation de Wang Lin passa du stade de l'Établissement des Fondations à l'apogée du premier stade de ce niveau.
 
 Pourtant, Wang Lin n'était pas satisfait. Il réfléchit un moment et sortit un fourneau à pilules. Ce dernier semblait tout à fait ordinaire, si ce n'est qu'un sceau en papier jaune le recouvrait.
 

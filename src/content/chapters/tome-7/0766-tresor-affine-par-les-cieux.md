@@ -12,7 +12,7 @@ Le corps original de Wang Lin était parti avec le pavillon de sang. Tandis qu'i
 
 Ce pavillon de sang était particulièrement étrange, Wang Lin décida donc de l'étudier avec soin.
 
-Après avoir décelé une planète de culture de rang 6, Wang Lin s'y infiltra. Il trouva un lieu situé dans les profondeurs de la planète et s'y dissimula.
+Après avoir décelé une planète de cultivation de rang 6, Wang Lin s'y infiltra. Il trouva un lieu situé dans les profondeurs de la planète et s'y dissimula.
 
 Le lien entre son âme et son avatar devenait plus stable.
 
@@ -32,7 +32,7 @@ Ce sentiment le poussait à la folie. C'était la première fois qu'il voulait t
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 
-« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé le Domaine de l'Esprit Démon à l'époque était également causée par lui. » Le regard de l'Ancêtre Sanguin devint glacial.
+« C’est une rétribution divine… Je ne pensais pas que la cultivation de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé le Domaine de l'Esprit Démon à l'époque était également causée par lui. » Le regard de l'Ancêtre Sanguin devint glacial.
 
 « Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » L'Ancêtre Sanguin ricana en fixant le fragment, ses yeux empreints de haine.
 
@@ -62,7 +62,7 @@ Cependant, il restait inconscient. S'il avait été éveillé, les bienfaits aur
 
 Les éclairs tombaient sans fin sur le fragment, comme si celui-ci se trouvait dans une forge façonnée par les cieux et qu'il était affiné par le tonnerre céleste.
 
-Un tel affinement était extrêmement rare dans le monde de la culture actuel, car peu de matériaux pouvaient survivre à un bombardement aussi puissant du tonnerre céleste.
+Un tel affinement était extrêmement rare dans le monde de la cultivation actuel, car peu de matériaux pouvaient survivre à un bombardement aussi puissant du tonnerre céleste.
 
 S’il en existait, il s'agissait forcément de fragments du Royaume Céleste du Tonnerre. Cette terre faisait autrefois partie du Royaume Céleste du Tonnerre et avait passé d'innombrables années entourée de son tonnerre. Bien qu'elle se soit effondrée, elle conservait l'essence de ce royaume.
 
@@ -70,7 +70,7 @@ Alors que les bords du fragment se détachaient sous les assauts incessants, le 
 
 La puissance contenue dans ce fragment était inconcevable, car sa matière n'était pas ordinaire : c’était un fragment du Royaume Céleste ! Si cela seul suffisait, ce ne serait pas si exceptionnel, mais ce n'était pas un objet raffiné par des cultivateurs, c'était un objet raffiné par les Cieux eux-mêmes !
 
-L'Ancêtre Sanguin comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de culture. Mais en réalisant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
+L'Ancêtre Sanguin comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de cultivation. Mais en réalisant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
 
 « Les gains et les pertes sont dictés par le destin. Ce vieil homme a trop perdu cette fois-ci. Si ce fragment est affiné par les cieux, sa puissance sera d'une tout autre dimension. Il pourrait manifester la véritable puissance du Royaume Céleste. Ce trésor m'est destiné ! » L'excitation transparaissait dans le regard de l'Ancêtre Sanguin.
 

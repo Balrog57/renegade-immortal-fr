@@ -12,7 +12,7 @@ Du Qing leva les yeux vers le ciel au loin. Il avait vaguement l'impression que 
 
 Après un long moment, Du Qing serra les dents, le regard empreint de froideur.
 
-« Je ne suis pas prêt à abandonner maintenant. Quoi qu'il en soit, je dois le rattraper pour voir ce qu'il en est. Si tout ceci n'est qu'une illusion de puissance, alors je le tuerai... Si... si son niveau de culture est comparable au mien, alors je devrai changer de perspective. La Secte du Dragon Bleu est détruite, c'est un fait accompli. S'il venait à rejoindre la Secte du Dragon Bleu... l'influence de la secte augmenterait considérablement ! » Du Qing était un ancêtre ; même s'il était lunatique, son esprit n'était pas ordinaire.
+« Je ne suis pas prêt à abandonner maintenant. Quoi qu'il en soit, je dois le rattraper pour voir ce qu'il en est. Si tout ceci n'est qu'une illusion de puissance, alors je le tuerai... Si... si son niveau de cultivation est comparable au mien, alors je devrai changer de perspective. La Secte du Dragon Bleu est détruite, c'est un fait accompli. S'il venait à rejoindre la Secte du Dragon Bleu... l'influence de la secte augmenterait considérablement ! » Du Qing était un ancêtre ; même s'il était lunatique, son esprit n'était pas ordinaire.
 
 Après avoir pris sa décision, Du Qing tendit la main vers le vide devant lui et une grue en papier apparut. Il la lança, et celle-ci se métamorphosa en une grue de fumée qui poussa un cri avant de s'élancer vers l'avant.
 
@@ -36,7 +36,7 @@ Cette personne devait être l'ancêtre de la Secte du Dragon Bleu, Du Qing, l'ex
 
 L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Astral Immortel, seul l'ancêtre de la Secte du Dragon Bleu possédait une telle force.
 
-« D'après les souvenirs de Kang Ran, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ran de le savoir ! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane ! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ran pour juger du niveau de culture de Du Qing.
+« D'après les souvenirs de Kang Ran, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ran de le savoir ! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane ! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ran pour juger du niveau de cultivation de Du Qing.
 
 Les yeux de Wang Lin s'illuminèrent et l'Oiseau Vermillon sous lui poussa un rugissement assourdissant. Plus il dévorait de veines de feu terrestre, plus l'Oiseau Vermillon devenait rapide. Bien qu'il ne pût égaler le Roi des Moustiques, sa vitesse approchait celle de Wang Lin.
 
@@ -48,9 +48,9 @@ Durant cette quinzaine, il avait vu neuf veines de feu terrestre totalement dess
 
 « Au moment où je le rattraperai, non seulement je ne serai pas de taille, mais il finira par me blesser. Ma poursuite ne sera plus qu'une vaste plaisanterie... » Cette pensée revenait sans cesse à l'esprit de Du Qing.
 
-Il hésita un instant avant de pousser un rugissement vers le ciel. Il allait prendre le risque. Tant qu'il n'aurait pas constaté le niveau de culture exact de l'autre partie, il refusait de battre en retraite !
+Il hésita un instant avant de pousser un rugissement vers le ciel. Il allait prendre le risque. Tant qu'il n'aurait pas constaté le niveau de cultivation exact de l'autre partie, il refusait de battre en retraite !
 
-« J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter ! Même si son niveau de culture est comparable au mien, son corps ne pourra pas être aussi puissant ! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
+« J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter ! Même si son niveau de cultivation est comparable au mien, son corps ne pourra pas être aussi puissant ! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
 
 Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des sept derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires !
 
@@ -58,7 +58,7 @@ Les 14 âmes de feu terrestre avaient considérablement accru la puissance du fe
 
 Derrière lui, Du Qing atteignit la veine de feu terrestre que Wang Lin avait occupée précédemment, le visage pâle. Ces jours de poursuite étaient une forme de torture qu'il n'avait jamais connue auparavant.
 
-Ce supplice n'affectait pas son corps, mais son esprit ! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre culture en l'affrontant, plutôt que de continuer à subir cette torture mentale.
+Ce supplice n'affectait pas son corps, mais son esprit ! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre cultivation en l'affrontant, plutôt que de continuer à subir cette torture mentale.
 
 Quatre jours plus tard, dans une autre région du Continent du Taureau Céleste, le rugissement d'un dragon s'estompa lentement. Un gigantesque Oiseau Vermillon jaillit des profondeurs de la terre.
 

@@ -114,4 +114,4 @@ Tandis que tout cela se déroulait, Wang Lin approchait rapidement du Taoïste W
 
 « Disciples du Yin et du Yang ! » Derrière lui, d'innombrables disciples du Yin et du Yang surgirent. Ils se condensèrent pour former une lance et frappèrent vers Wang Lin !
 
-Cette lance contenait toute la culture du Taoïste Water ainsi que toutes ses flammes Joss. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser !
+Cette lance contenait toute la cultivation du Taoïste Water ainsi que toutes ses flammes Joss. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser !

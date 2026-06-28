@@ -44,7 +44,7 @@ Cependant, dès que son Sens Divin pénétra en elle, il ressentit soudain une p
 
 Cette aura était si puissante qu'une simple parcelle suffit à faire haleter Wang Lin et le poussa presque instinctivement à reculer. Il se força pourtant à tenir bon pour poursuivre son observation.
 
-Plus il observait, plus il fronçait les sourcils. Même après plus de 1 000 ans de culture, il n'avait jamais rencontré une énergie aussi étrange. Ce n'était ni de l'énergie spirituelle céleste, ni de l'énergie spirituelle ordinaire. Cela n'avait même pas la moindre connexion avec l'énergie originelle.
+Plus il observait, plus il fronçait les sourcils. Même après plus de 1 000 ans de cultivation, il n'avait jamais rencontré une énergie aussi étrange. Ce n'était ni de l'énergie spirituelle céleste, ni de l'énergie spirituelle ordinaire. Cela n'avait même pas la moindre connexion avec l'énergie originelle.
 
 Pourtant, en l'examinant de près, il pouvait voir qu'elle contenait de l'énergie spirituelle céleste, de l'énergie spirituelle et de l'énergie originelle, ainsi qu'une autre forme d'énergie qu'il ne parvenait pas à comprendre. C'était un amalgame d'éléments disparates, pourtant parfaitement combinés, ce qui plongea Wang Lin dans la confusion.
 
@@ -54,7 +54,7 @@ Wang Lin retira prudemment son Sens Divin. Son visage était blême alors qu'il 
 
 C'était cette puissance qui avait tranché la tête de l'ancien dieu, et ce n'était pas Qing Lin qui en était l'auteur ! Wang Lin fixa le cristal dans sa main et repensa à la planète Suzaku, lorsqu'il avait défié les cieux pour sauver Li Muwan.
 
-Le messager des cieux était, contre toute attente, un ancien dieu dont les étoiles avaient été scellées. À l'époque, bien que Wang Lin fût sous le choc, son niveau de culture était trop bas pour comprendre la situation. Avec le recul, ce n'était pas seulement surprenant, il y avait derrière cela un secret capable de faire trembler l'univers !
+Le messager des cieux était, contre toute attente, un ancien dieu dont les étoiles avaient été scellées. À l'époque, bien que Wang Lin fût sous le choc, son niveau de cultivation était trop bas pour comprendre la situation. Avec le recul, ce n'était pas seulement surprenant, il y avait derrière cela un secret capable de faire trembler l'univers !
 
 Quelle puissance pouvait sceller un ancien dieu et le contraindre à devenir un messager des cieux ? La réponse jaillit presque instantanément !
 

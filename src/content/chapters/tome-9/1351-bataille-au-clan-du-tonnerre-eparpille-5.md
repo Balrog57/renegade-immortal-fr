@@ -10,7 +10,7 @@ L'Ancien en chef du Clan du Tonnerre Éparpillé affichait une expression venime
 
 À l'origine, il ne considérait pas Wang Lin comme une menace ; il pensait pouvoir l'éliminer aisément avec le seul pouvoir de la quatrième étape de la Calamité Céleste. Cependant, à cet instant précis, lorsqu'il ressentit cette crise de vie ou de mort — un sentiment auquel il n'avait pas été confronté depuis des dizaines de milliers d'années — son esprit s'éclaircit.
 
-S'il n'avait pas été disposé à subir des blessures et à briser le dernier sceau pour déployer la pleine puissance de sa culture de la cinquième étape de la Calamité Céleste, l'impact qu'il venait de subir l'aurait gravement blessé, voire tué !
+S'il n'avait pas été disposé à subir des blessures et à briser le dernier sceau pour déployer la pleine puissance de sa cultivation de la cinquième étape de la Calamité Céleste, l'impact qu'il venait de subir l'aurait gravement blessé, voire tué !
 
 L'onde de choc du tonnerre était comme une vague colérique qui avait brisé toutes ses protections. À cet instant, un éclair rouge fonça droit sur lui. Cet éclair contenait une trace de rétribution divine et fit trembler la marque de son clan jusqu'à ce qu'une fissure n'y apparaisse.
 
@@ -50,7 +50,7 @@ L'intention de combat illuminait ses yeux !
 
 « Si je ne peux surmonter un cultivateur de la cinquième étape de la Calamité Céleste, comment pourrais-je être qualifié pour défier un cultivateur de la troisième étape et tuer le Daoïste Eau ? » Wang Lin rit bruyamment et ses mains formèrent un sceau. Des grondements résonnèrent dans son corps alors que ses étoiles de Dieu Antique tournaient rapidement, et l'étoile de la Loi apparut également.
 
-Toute sa culture monta en flèche, et l'épée de sang était revenue depuis longtemps à ses côtés, dégageant une énergie tranchante infinie ! Les yeux de Wang Lin brillaient comme des torches, et il ne laissa pas à l'Ancien le temps de poursuivre son sort. Il leva la main droite et chargea en avant !
+Toute sa cultivation monta en flèche, et l'épée de sang était revenue depuis longtemps à ses côtés, dégageant une énergie tranchante infinie ! Les yeux de Wang Lin brillaient comme des torches, et il ne laissa pas à l'Ancien le temps de poursuivre son sort. Il leva la main droite et chargea en avant !
 
 L'épée de sang ouvrait la voie tandis qu'un tonnerre incessant l'entourait. En un instant, Wang Lin devint tel une météorite de tonnerre, fonçant à travers ce fracas éternel !
 

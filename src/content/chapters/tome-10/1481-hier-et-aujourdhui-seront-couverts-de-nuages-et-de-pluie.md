@@ -26,9 +26,9 @@ Xie Qing n'avait été qu'un bref passage dans la vie de Wang Lin, mais c'était
 
 Même Wang Lin n'aurait jamais imaginé que ce disciple, lié à lui par le destin, resterait sur la planète Qing Ling pendant 800 ans.
 
-Pendant ces huit siècles, Xie Qing avait médité sur le domaine que Wang Lin lui avait laissé. Grâce à sa sagesse d'érudit, son niveau de culture avait progressé à pas de géant !
+Pendant ces huit siècles, Xie Qing avait médité sur le domaine que Wang Lin lui avait laissé. Grâce à sa sagesse d'érudit, son niveau de cultivation avait progressé à pas de géant !
 
-Cependant, Xie Qing n'avait jamais pratiqué de sorts ni de méthodes de culture conventionnelles. Son chemin de culture était radicalement différent de celui de tous les autres cultivateurs, et même de celui de Wang Lin !
+Cependant, Xie Qing n'avait jamais pratiqué de sorts ni de méthodes de cultivation conventionnelles. Son chemin de cultivation était radicalement différent de celui de tous les autres cultivateurs, et même de celui de Wang Lin !
 
 Wang Lin avait cultivé une fusion entre le Dao et les sorts, utilisant ces derniers pour appréhender lentement le Grand Dao et le domaine. Xie Qing, lui, avait totalement abandonné les sorts pour ne cultiver que le domaine !
 
@@ -36,11 +36,11 @@ Wang Lin avait cultivé une fusion entre le Dao et les sorts, utilisant ces dern
 
 Bien que son enveloppe charnelle fût fragile, ces 800 ans de méditation avaient permis à Xie Qing d'atteindre une compréhension du domaine dépassant de loin celle de n'importe quel cultivateur ordinaire ! Dans un affrontement de domaines, même les cultivateurs du Nirvana Scryer ne pourraient rivaliser avec lui ! Son domaine avait atteint le niveau du Nirvana Cleanser et il avait entrevu les lois !
 
-C'était une voie de culture inexistante dans ce monde. À l'instar des Dieux Anciens qui ne cultivaient que leur corps, Xie Qing ne cultivait que son domaine ! Il n'y avait ni âme originelle ni Âme Naissante dans son corps ; il ne possédait pas les âmes qu'un cultivateur est censé avoir. Il ne possédait qu'une âme vibrante de vitalité !
+C'était une voie de cultivation inexistante dans ce monde. À l'instar des Dieux Anciens qui ne cultivaient que leur corps, Xie Qing ne cultivait que son domaine ! Il n'y avait ni âme originelle ni Âme Naissante dans son corps ; il ne possédait pas les âmes qu'un cultivateur est censé avoir. Il ne possédait qu'une âme vibrante de vitalité !
 
-Même Xie Qing ignorait la raison de ce phénomène. Ne connaissant aucune méthode de culture, il s'était contenté de méditer silencieusement sur l'héritage laissé par Wang Lin durant 800 ans.
+Même Xie Qing ignorait la raison de ce phénomène. Ne connaissant aucune méthode de cultivation, il s'était contenté de méditer silencieusement sur l'héritage laissé par Wang Lin durant 800 ans.
 
-« La culture de l'âme... » Wang Lin observa Xie Qing et réfléchit.
+« La cultivation de l'âme... » Wang Lin observa Xie Qing et réfléchit.
 
 Il détourna le regard vers la pluie qui tombait du ciel. L'eau était glaciale lorsqu'elle frappait son visage, et il murmura lentement : « Les cultivateurs immortels cherchent à devenir immortels et à vivre éternellement... Les cultivateurs de la Vérité cultivent pour rechercher la vérité... Les cultivateurs du Dao cherchent à trouver leur propre Dao... Et les cultivateurs de l'âme affinent leur âme afin que le monde devienne leur maître ! »
 
@@ -72,7 +72,7 @@ Au moment où l'épée prit forme, Wang Lin porta ses doigts entre ses sourcils.
 
 Cette simple épée de pluie contenait désormais deux essences complètes ainsi que l'aura de combat ancestrale de Wang Lin. Bien que cette aura ne se soit pas propagée trop loin, elle fut suffisante pour ébranler tout le système stellaire d'Allheaven !
 
-« Avec une telle épée ici, peu de gens oseront offenser cette planète ! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Spirit Void hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Ancestral était assez terrifiante pour n'importe qui !
+« Avec une telle épée ici, peu de gens oseront offenser cette planète ! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Spirit Void hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de cultivation... De plus, la pression de l'Ordre Ancestral était assez terrifiante pour n'importe qui !
 
 « Cette épée, une fois que tu l'auras pleinement comprise, sera le cadeau que ton Maître te fera ! »
 

@@ -32,7 +32,7 @@ Les trois frères Chen étaient les plus proches. Incapables de résister à la 
 
 Big Head lutta un instant, mais fut lui aussi emporté.
 
-Quant aux quatre disciples de la belle femme d'âge moyen, elles possédaient les niveaux de culture les plus bas. Wang Lin s'était demandé pourquoi cette femme les avait traînées ici.
+Quant aux quatre disciples de la belle femme d'âge moyen, elles possédaient les niveaux de cultivation les plus bas. Wang Lin s'était demandé pourquoi cette femme les avait traînées ici.
 
 Hormis la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant, l'expression des trois autres changea radicalement. Elles ne purent offrir aucune résistance en étant aspirées.
 
@@ -64,7 +64,7 @@ Une silhouette vague émergea lentement des profondeurs du vortex, portée par l
 
 Cette aura était si puissante que le corps de Ling Tianhou en trembla. Cette silhouette floue lui fit frissonner le cuir chevelu ! Même le Tout-Voyant ne l'avait jamais fait ressentir ainsi ; même le Maître du Vide n'en était pas capable !
 
-Ce n'était pas une question de niveau de culture, mais un tremblement de l'âme, comme s'il faisait face à son ennemi naturel !
+Ce n'était pas une question de niveau de cultivation, mais un tremblement de l'âme, comme s'il faisait face à son ennemi naturel !
 
 On ne pouvait deviner que la silhouette vague était celle d'une femme qu'en voyant sa forme s'élever lentement. Son visage révélait progressivement deux orbites vides et sanglantes, d'où coulaient deux filets de sang.
 
@@ -74,13 +74,13 @@ Même le Tout-Voyant laissa paraître un signe de choc en apercevant la silhouet
 
 « C'est... Pourrait-il s'agir... d'elle !!! »
 
-Les pupilles du Maître du Vide se rétractèrent lorsqu'il vit la femme dans le vortex. Il déchaîna toute sa culture sans hésiter, luttant pour tirer la belle femme d'âge moyen et la jeune fille en rose vers le haut.
+Les pupilles du Maître du Vide se rétractèrent lorsqu'il vit la femme dans le vortex. Il déchaîna toute sa cultivation sans hésiter, luttant pour tirer la belle femme d'âge moyen et la jeune fille en rose vers le haut.
 
 « C'est elle !!! Ça doit être elle ! Elle a donc été scellée ici par l'Empereur Céleste Qing Lin !! Maudit soit-il, la rumeur disait qu'elle était morte, mais l'Empereur Céleste Qing Lin ne l'a pas tuée ! »
 
 Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il en perdit presque la raison. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre n'ignorait.
 
-Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
+Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de cultivation, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 
 Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Sable Taché d'Étoiles jaillit de ses vêtements. Ses yeux étaient froids lorsqu'il bondit hors de lui. Ce sable était mystérieux, capable de fouler l'air pour s'appuyer sur la force ambiante. Il lutta pour remonter et fixa Wang Lin d'un regard vif.
 

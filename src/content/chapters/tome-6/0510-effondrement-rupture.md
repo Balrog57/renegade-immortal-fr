@@ -98,7 +98,7 @@ Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec l
 
 Shi Fang hurla : « Tranche ! »
 
-Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, Lu Songyi, se déplaça comme un éclair pour charger vers les Fruits Dorés Brillants. Fort de sa longue culture, il savait saisir chaque opportunité ; étant déjà proche des fruits, il y parvint en un instant.
+Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, Lu Songyi, se déplaça comme un éclair pour charger vers les Fruits Dorés Brillants. Fort de sa longue cultivation, il savait saisir chaque opportunité ; étant déjà proche des fruits, il y parvint en un instant.
 
 La lumière du miroir de bronze agissait comme une restriction enserrant le gaz gris. Simultanément, l'épée de Shi Fang fondit sur la cible comme si elle tombait du sommet du neuvième ciel. Avant même l'impact, des détonations soniques retentirent, signe qu'elle brisait la barrière du son.
 

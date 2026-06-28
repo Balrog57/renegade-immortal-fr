@@ -14,9 +14,9 @@ Peu après, il tendit la main et attrapa Xu Liguo, qui n'osa pas résister. Puis
 
 Wang Lin retourna à la grotte et déposa la vigne du Fruit d'Or Brûlant sur le sol. Il projeta également Xu Liguo en avant, ce qui fit paniquer ce dernier qui s'écria : « Camarade cultivateur, s'il y a un problème, nous pouvons en discuter ! Nous pouvons en discuter ! Tant que vous ne me tuez pas, j'accepterai n'importe quelle requête. J'ai eu tort auparavant. Je vous en prie, ne soyez pas en colère. »
 
-Xu Liguo se sentait profondément lésé. Il était un expert de l'Âme Naissante, mais il avait perdu son corps et son Âme Naissante était si blessée qu'elle risquait de s'effondrer, ce qui avait fait chuter son niveau de culture. De plus, il ne pouvait pas s'offrir le prix exorbitant d'un corps de cultivateur de l'Âme Naissante ; il avait donc envisagé de posséder le corps d'un disciple de secte, mais s'il était découvert, cela entraînerait des ennuis sans fin. Finalement, il avait décidé de payer le Secte des Cadavres afin de pouvoir posséder un corps sans crainte.
+Xu Liguo se sentait profondément lésé. Il était un expert de l'Âme Naissante, mais il avait perdu son corps et son Âme Naissante était si blessée qu'elle risquait de s'effondrer, ce qui avait fait chuter son niveau de cultivation. De plus, il ne pouvait pas s'offrir le prix exorbitant d'un corps de cultivateur de l'Âme Naissante ; il avait donc envisagé de posséder le corps d'un disciple de secte, mais s'il était découvert, cela entraînerait des ennuis sans fin. Finalement, il avait décidé de payer le Secte des Cadavres afin de pouvoir posséder un corps sans crainte.
 
-Cependant, posséder le corps d'un cultivateur de l'Établissement des Fondations signifiait qu'il lui faudrait énormément de temps pour retrouver sa culture, presque autant que s'il devait tout recommencer à zéro. Pour l'instant, il n'avait que la culture d'un cultivateur du stade avancé de l'Établissement des Fondations. Son Âme Naissante n'était qu'une apparence ; elle n'avait aucune puissance réelle.
+Cependant, posséder le corps d'un cultivateur de l'Établissement des Fondations signifiait qu'il lui faudrait énormément de temps pour retrouver sa cultivation, presque autant que s'il devait tout recommencer à zéro. Pour l'instant, il n'avait que la cultivation d'un cultivateur du stade avancé de l'Établissement des Fondations. Son Âme Naissante n'était qu'une apparence ; elle n'avait aucune puissance réelle.
 
 De plus, face au domaine dominant du Royaume Ji de Wang Lin, Xu Liguo n'était pour l'instant qu'un tigre de papier. Cependant, s'il parvenait à recouvrer sa force jusqu'au stade de la Formation du Noyau, le résultat serait bien différent.
 
@@ -32,7 +32,7 @@ En regardant l'Âme Naissante d'Xu Liguo cette fois-ci, il s'en souvint soudaine
 
 Wang Lin se frotta le menton et une idée germa dans son esprit.
 
-S'il pouvait dévorer des âmes comme autrefois dans le Monde de la Décrépitude, alors son Sens Divin du Royaume Ji deviendrait bien plus puissant. De plus, les âmes errantes étaient extrêmement redoutables ; elles étaient capables de dévorer la vie des gens, quel que soit leur niveau de culture. Une fois qu'il aurait rassemblé suffisamment d'âmes errantes dans le monde vivant, se venger de Teng Huayuan ne serait plus un problème.
+S'il pouvait dévorer des âmes comme autrefois dans le Monde de la Décrépitude, alors son Sens Divin du Royaume Ji deviendrait bien plus puissant. De plus, les âmes errantes étaient extrêmement redoutables ; elles étaient capables de dévorer la vie des gens, quel que soit leur niveau de cultivation. Une fois qu'il aurait rassemblé suffisamment d'âmes errantes dans le monde vivant, se venger de Teng Huayuan ne serait plus un problème.
 
 Plus important encore, Wang Lin savait que s'il rencontrait un cultivateur de la Formation du Noyau, il n'aurait d'autre choix que de fuir ; mais s'il possédait une âme errante, il aurait le pouvoir de se protéger.
 
@@ -46,7 +46,7 @@ L'Âme Naissante d'Xu Liguo fit bondir le cœur de Wang Lin alors qu'une idée s
 
 « Puisque je ne peux pas sortir les âmes errantes du Monde de la Décrépitude, puis-je en créer ici ? » Les yeux de Wang Lin brillèrent. Il frappa son sac de rangement et un morceau de métal apparut. Il pointa le mur, et le morceau de métal creusa une grotte.
 
-Tout en faisant cela, Wang Lin profita de l'instant pour utiliser son Royaume Ji afin d'effacer les souvenirs d'Xu Liguo. Après tout, Xu Liguo était un cultivateur de l'Âme Naissante et, même avec son niveau de culture réduit, Wang Lin dut mobiliser toute la puissance de son Royaume Ji pour y parvenir de justesse.
+Tout en faisant cela, Wang Lin profita de l'instant pour utiliser son Royaume Ji afin d'effacer les souvenirs d'Xu Liguo. Après tout, Xu Liguo était un cultivateur de l'Âme Naissante et, même avec son niveau de cultivation réduit, Wang Lin dut mobiliser toute la puissance de son Royaume Ji pour y parvenir de justesse.
 
 L'Âme Naissante d'Xu Liguo devint un objet semi-transparent, dépourvu de conscience.
 
@@ -98,7 +98,7 @@ Après avoir été forcée par le Royaume Ji à dévorer cette nouvelle proie, l
 
 Wang Lin observa la scène depuis l'extérieur pendant longtemps. Il ignorait si, en continuant ainsi, l'Âme Naissante se transformerait en une âme errante, un prétendu démon.
 
-En vérité, le meilleur moyen de tester cela aurait été de capturer des cultivateurs pour les utiliser comme cobayes, mais il craignait que le niveau de culture de l'Âme Naissante n'augmente trop après avoir dévoré un tel être. Si la puissance de l'âme dépassait celle de son Royaume Ji, Wang Lin se retrouverait en danger. Ainsi, à moins d'une nécessité absolue, il ne voulait pas risquer d'utiliser des cultivateurs.
+En vérité, le meilleur moyen de tester cela aurait été de capturer des cultivateurs pour les utiliser comme cobayes, mais il craignait que le niveau de cultivation de l'Âme Naissante n'augmente trop après avoir dévoré un tel être. Si la puissance de l'âme dépassait celle de son Royaume Ji, Wang Lin se retrouverait en danger. Ainsi, à moins d'une nécessité absolue, il ne voulait pas risquer d'utiliser des cultivateurs.
 
 Quatre jours plus tard, hormis l'animal à l'aura étrange, toutes les autres bêtes qu'il avait capturées avaient été dévorées. Aujourd'hui, Wang Lin saisit cette dernière créature et la jeta dans la pièce de pierre.
 
@@ -118,7 +118,7 @@ Une expression de cruauté apparut sur le visage du démon alors qu'il chargeait
 
 « Tu cherches la mort ! » La voix de Wang Lin était glaciale et ses yeux brillaient d'un rouge sinistre. À chaque éclat de ses yeux, le démon tremblait. Peu après, l'expression cruelle fut remplacée par une terreur pure.
 
-Finalement, le démon afficha une mine pitoyable. Wang Lin le maintint et sortit de la pièce de pierre. Arrivé dans sa salle de culture, il lança le démon en l'air.
+Finalement, le démon afficha une mine pitoyable. Wang Lin le maintint et sortit de la pièce de pierre. Arrivé dans sa salle de cultivation, il lança le démon en l'air.
 
 La férocité revint sur le visage du démon alors qu'il tentait de s'échapper vers le plafond. Wang Lin eut un sourire méprisant ; son Sens Divin du Royaume Ji le rattrapa instantanément pour le punir. Le démon poussa un cri misérable alors qu'une fine traînée de fumée apparaissait sur son corps, signe d'un affaiblissement visible.
 
@@ -138,11 +138,11 @@ Il devait donc apprendre à raffiner des trésors. C'était une autre raison pou
 
 De plus, il devait trouver un lieu doté d'un Ying extrême, sans quoi il resterait bloqué au stade intermédiaire de l'Établissement des Fondations. Seul un Ying extrême lui permettrait de former le troisième noyau froid, d'atteindre le stade avancé de l'Établissement des Fondations, puis de former son noyau.
 
-Wang Lin décida de ne pas abandonner la culture de la Méthode d'Ascension des Enfers. Après tout, Situ Nan lui avait dit qu'une fois les trois noyaux froids formés et fusionnés, il aurait de fortes chances d'entrer dans le stade de la Formation du Noyau.
+Wang Lin décida de ne pas abandonner la cultivation de la Méthode d'Ascension des Enfers. Après tout, Situ Nan lui avait dit qu'une fois les trois noyaux froids formés et fusionnés, il aurait de fortes chances d'entrer dans le stade de la Formation du Noyau.
 
-Pendant qu'il récupérait sa culture, faute de liquide spirituel Ying, il n'avait pu pratiquer que la technique du Sanctuaire du Dieu de la Guerre issue des souvenirs de Mai Lang. Mais ce qui l'intriguait, c'était le Chemin Divin. Bien que l'énergie spirituelle provenant de la culture du Chemin Divin n'ait aucun attribut, d'un point de vue objectif, elle était moins efficace que son ancienne énergie spirituelle Ying.
+Pendant qu'il récupérait sa cultivation, faute de liquide spirituel Ying, il n'avait pu pratiquer que la technique du Sanctuaire du Dieu de la Guerre issue des souvenirs de Mai Lang. Mais ce qui l'intriguait, c'était le Chemin Divin. Bien que l'énergie spirituelle provenant de la cultivation du Chemin Divin n'ait aucun attribut, d'un point de vue objectif, elle était moins efficace que son ancienne énergie spirituelle Ying.
 
-Toutefois, le Chemin Divin du Sanctuaire du Dieu de la Guerre n'était pas sans avantages. Si l'énergie spirituelle Ying était comme une épée invincible, cette culture était aussi flexible que la soie.
+Toutefois, le Chemin Divin du Sanctuaire du Dieu de la Guerre n'était pas sans avantages. Si l'énergie spirituelle Ying était comme une épée invincible, cette cultivation était aussi flexible que la soie.
 
 Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Hou Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Quatre sous-montagnes abritaient les quatre sous-sectes du Sanctuaire.
 
@@ -194,7 +194,7 @@ Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il
 
 Après avoir reçu le jade, Wang Lin l'examina avec son Sens Divin. Sans changer d'expression, il hocha la tête, puis son regard se posa sur Lin Tao.
 
-Le cœur de Lin Tao s'emballa et il murmura : « Maître, cette carte est placée au sommet du pavillon des trésors. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
+Le cœur de Lin Tao s'emballa et il murmura : « Maître, cette carte est placée au sommet du pavillon des trésors. Je... je ne peux pas y accéder car mon niveau de cultivation n'est pas assez élevé. »
 
 Voyant le visage impassible de Wang Lin, Lin Tao serra les dents : « Dix jours ! Maître, donnez-moi juste dix jours. D'ici là, ce sera au tour de mon cousin d'assurer la patrouille. Je pourrai au moins lui demander de m'en faire une copie ! »
 

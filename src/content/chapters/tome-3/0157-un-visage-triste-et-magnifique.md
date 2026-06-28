@@ -12,11 +12,11 @@ Wang Lin agita la main et toutes les 43 âmes volèrent vers son front. Elles p�
 
 La foudre rouge du Royaume Ji traversa chacune des âmes. À mesure qu'elles disparaissaient, Wang Lin sentit sa propre âme s'en trouver fortifiée.
 
-Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit intérieurement : « C'est trop ! Ce sont toutes des âmes que j'ai réussi à arracher à cette maudite épée ! Tôt ou tard, je me vengerai ! Attendez simplement que ma culture revienne au stade de l'Âme Naissante ! »
+Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit intérieurement : « C'est trop ! Ce sont toutes des âmes que j'ai réussi à arracher à cette maudite épée ! Tôt ou tard, je me vengerai ! Attendez simplement que ma cultivation revienne au stade de l'Âme Naissante ! »
 
 Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il réalisa qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
 
-Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Songeant à la puissance de la méthode de culture à l'épée de Jie Donglei, il sortit plusieurs centaines de pierres spirituelles. Il allait les utiliser pour déployer sur lui des centaines de couches de la formation défensive de la carapace de tortue.
+Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Songeant à la puissance de la méthode de cultivation à l'épée de Jie Donglei, il sortit plusieurs centaines de pierres spirituelles. Il allait les utiliser pour déployer sur lui des centaines de couches de la formation défensive de la carapace de tortue.
 
 Une fois cela terminé, il prit une profonde inspiration et frappa le flanc de la paroi. La gueule du dragon s'ouvrit lentement. Il se leva et sortit.
 
@@ -24,7 +24,7 @@ En émergeant de la gueule du dragon, il aperçut une silhouette charmante et d�
 
 Shang Guanmo se tenait à ses côtés avec une perle incandescente pour lui fournir de la lumière.
 
-Wang Lin resta silencieux. Cette fois, sa culture en porte close n'avait pas duré longtemps, mais à en juger par l'apparence de Li Muwan, elle ne s'était pas absentée un instant. Il soupira intérieurement avant de descendre. Son corps glissa le long du dragon et atterrit derrière elle.
+Wang Lin resta silencieux. Cette fois, sa cultivation en porte close n'avait pas duré longtemps, mais à en juger par l'apparence de Li Muwan, elle ne s'était pas absentée un instant. Il soupira intérieurement avant de descendre. Son corps glissa le long du dragon et atterrit derrière elle.
 
 En voyant Wang Lin, Shang Guanmo augmenta immédiatement l'énergie spirituelle de la perle pour qu'elle brille plus intensément. Il força également des perles de sueur à apparaître sur son front pour simuler une profonde concentration.
 
@@ -44,7 +44,7 @@ Li Muwan sortit un morceau de jade de son sac de rangement et le plaça sur son 
 
 Shang Guanmo accepta promptement. Il sentait qu'il s'était trompé en l'observant auparavant ; la relation entre ce démon et cette jeune fille n'était pas celle qu'il avait imaginée.
 
-Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans et le retour du fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
+Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa cultivation... jusqu'à son départ de trois ans et le retour du fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
 
 Alors que Wang Lin atteignait le stade de la Formation du Noyau, une jeune fille aussi faible qu'elle s'était risquée seule à affronter ces cultivateurs démoniaques. Au moment même où elle allait se donner la mort, Wang Lin était apparu pour la sauver. Elle n'avait pu comprendre ce revirement soudain du destin. Le choc l'avait affaiblie au point de chanceler, mais il l'avait rattrapée.
 

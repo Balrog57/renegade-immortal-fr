@@ -78,7 +78,7 @@ Zhou Ru caressa la fourrure de Petit Blanc, le cœur serré par la mélancolie. 
 
 Les yeux de Zhou Ru s'embuèrent de larmes alors qu'elle regardait le grand et idiot Petit Violet et murmura : « Petit Violet, une fois que je serai partie, tu seras libre... »
 
-Wang Lin était assis au sommet de la montagne. Bien qu'il semblât être en pleine culture, il se contentait de fixer le ciel.
+Wang Lin était assis au sommet de la montagne. Bien qu'il semblât être en pleine cultivation, il se contentait de fixer le ciel.
 
 Il songea : « La volonté des cieux... Moi, Wang Lin, j'ai toujours résisté à la volonté des cieux, mais cette fois encore, je me suis laissé manipuler par elle... »
 

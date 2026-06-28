@@ -30,7 +30,7 @@ La femme était d'une grande beauté. Sans aucun maquillage, son visage arborait
 
 À mesure que la femme avançait, Wang Lin recula pour maintenir une distance constante entre eux. Il posa la main sur son sac de rangement et la fixa froidement.
 
-L'expression de Wang Lin était restée impassible, mais dans son cœur, il était en alerte maximale. Il ne parvenait pas à percevoir le niveau de culture de cette femme. C'était clairement une cultivatrice de l'Âme Naissante.
+L'expression de Wang Lin était restée impassible, mais dans son cœur, il était en alerte maximale. Il ne parvenait pas à percevoir le niveau de cultivation de cette femme. C'était clairement une cultivatrice de l'Âme Naissante.
 
 Wang Lin la regarda calmement et dit : « Quel est le nom du disciple de l'Aînée ? »
 
@@ -58,7 +58,7 @@ Pendant deux jours, hormis quelques pauses nécessaires, il avait volé sans int
 
 À cet instant précis, plusieurs éclats d'épées jaillirent du lointain en direction de sa position. Après avoir aperçu Wang Lin, ils changèrent brusquement de trajectoire pour foncer sur lui. À leur arrivée, sept ou huit jeunes atterrirent près de lui, le fixant avec des regards hostiles.
 
-Parmi eux, le plus remarquable était un jeune homme en tête. Son visage était aussi blanc que le jade et son allure très raffinée. Sa culture se situait au stade avancé de l'Établissement des Fondations, frôlant déjà la pseudo-Formation du Noyau. Vêtu d'une robe pourpre, il se tenait debout sur une épée volante verte, dégageant une aura très noble.
+Parmi eux, le plus remarquable était un jeune homme en tête. Son visage était aussi blanc que le jade et son allure très raffinée. Sa cultivation se situait au stade avancé de l'Établissement des Fondations, frôlant déjà la pseudo-Formation du Noyau. Vêtu d'une robe pourpre, il se tenait debout sur une épée volante verte, dégageant une aura très noble.
 
 À ses côtés suivait une jeune fille vêtue de rouge. Une légère teinte rosée sur son visage pâle lui donnait un air empreint de grâce qui incitait à l'affection.
 
@@ -88,7 +88,7 @@ Sun Youcai le suivit rapidement et demanda d'un ton sournois : « Camarade culti
 
 Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il donna un coup de pied dans le vide pour s'élancer du sol et, en un clin d'œil, retrouva la hauteur de Wang Lin. Il poursuivit : « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas ? Et si nous faisions route ensemble ? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes en Condensation de Qi pour servir de fourneaux. »
 
-« Quelle vitesse ! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations ; avec sa propre culture au stade avancé, il ne pouvait se tromper. Il esquissa un sourire lent et demanda : « Qu'en dites-vous, camarade ? »
+« Quelle vitesse ! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations ; avec sa propre cultivation au stade avancé, il ne pouvait se tromper. Il esquissa un sourire lent et demanda : « Qu'en dites-vous, camarade ? »
 
 Wang Lin ricana intérieurement et déclara avec détermination : « Très bien, alors je vais devoir vous importuner, frère Sun. »
 

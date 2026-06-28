@@ -72,4 +72,4 @@ Il laissa libre le Qilin qui poussa soudainement un rugissement faisant trembler
 
 Tout cela s'était produit avec une rapidité inouïe. Les yeux de Wang Lin s'illuminèrent tandis qu'il reculait de quelques pas, puis il joignit les mains en signe de respect envers Ling Tianhou : « Salutations, Senior Saint de l'Épée. »
 
-Ling Tianhou regarda Wang Lin d'un air significatif. Une pointe d'admiration brilla dans ses yeux lorsqu'il déclara : « Votre culture doit être extrêmement élevée pour avoir pu bloquer le doigt de l'Omniscient, celui-là même qui peut changer le destin céleste ! »
+Ling Tianhou regarda Wang Lin d'un air significatif. Une pointe d'admiration brilla dans ses yeux lorsqu'il déclara : « Votre cultivation doit être extrêmement élevée pour avoir pu bloquer le doigt de l'Omniscient, celui-là même qui peut changer le destin céleste ! »

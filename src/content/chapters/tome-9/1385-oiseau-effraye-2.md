@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1385 - Frightened Bird (2)
 slug: oiseau-effraye-2
 ---
-Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan des Scorpions Noirs. La culture de Zhong Big Red étant insuffisante et ignorant l'identité de Greed, il vomit directement.
+Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan des Scorpions Noirs. La cultivation de Zhong Big Red étant insuffisante et ignorant l'identité de Greed, il vomit directement.
 
 Ce vomissement rendit l'expression de Greed extrêmement sombre. D'un revers de manche, il fit apparaître un grand éventail qui se mit à briller avant de s'élancer violemment vers l'avant.
 
@@ -22,13 +22,13 @@ Greed fixa Zhong Big Red et demanda lentement : « Puant ? »
 
 « Pas puant, pas puant... » L'esprit de Zhong Big Red tremblait, mais il s'efforça d'endurer l'odeur. Craignant que cet homme ne le croie, il prit une profonde inspiration et fit semblant d'être en extase devant le sortilège. Cependant, ce geste fut comme « dessiner des pieds sur un serpent » — une maladresse inutile qui le fit vomir une fois de plus.
 
-Voyant l'intention meurtrière dans les yeux de Greed, Zhong Big Red s'efforça de hurler : « La culture de mon maître défie le ciel ! Si vous me tuez, vous mourrez sans aucun doute ! Même le Patriarche du Clan des Scorpions ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal ! »
+Voyant l'intention meurtrière dans les yeux de Greed, Zhong Big Red s'efforça de hurler : « La cultivation de mon maître défie le ciel ! Si vous me tuez, vous mourrez sans aucun doute ! Même le Patriarche du Clan des Scorpions ne peut résister à un seul coup de mon maître. Bien que votre niveau de cultivation soit élevé, vous n'êtes pas son égal ! »
 
 Greed ricana.
 
 À ce moment crucial entre la vie et la mort, Zhong Big Red joua le tout pour le tout et rugit : « Mon maître est en route et peut revenir à tout instant ! Si vous osez me toucher, vous mourrez sans aucun doute ! Le Clan des Scorpions Noirs est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous ! »
 
-« Sa culture défie le ciel ? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque provoque mes limites doit mourir ! »
+« Sa cultivation défie le ciel ? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque provoque mes limites doit mourir ! »
 
 Greed agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Big Red. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 

@@ -34,7 +34,7 @@ Alors que son sens divin balayait la masse nuageuse, le tonnerre éclata à l'in
 
 Les cultivateurs au stade du Scryer Nirvana devaient prêter attention aux lois ; c'est ce qui rendait véritablement puissants les cultivateurs de la deuxième étape ! Cependant, les lois sont éthérées et extrêmement difficiles à saisir !
 
-C'est aussi pour cette raison qu'il y avait si peu de cultivateurs de la deuxième étape. Certains avaient réussi à saisir certaines lois, ce qui permettait d'augmenter leur niveau de culture. Pourtant, en fin de compte, ils ne parvenaient toujours pas à progresser et leurs sorts manquaient de puissance. La raison principale était que leur façon de saisir les lois était passive plutôt qu'active !
+C'est aussi pour cette raison qu'il y avait si peu de cultivateurs de la deuxième étape. Certains avaient réussi à saisir certaines lois, ce qui permettait d'augmenter leur niveau de cultivation. Pourtant, en fin de compte, ils ne parvenaient toujours pas à progresser et leurs sorts manquaient de puissance. La raison principale était que leur façon de saisir les lois était passive plutôt qu'active !
 
 Wang Lin effleura vaguement l'essence même de la loi. Un sourire apparut sur ses lèvres tandis qu'il agitait la main. Les nuages devinrent progressivement transparents et finirent par disparaître.
 
@@ -58,7 +58,7 @@ Ce n'était pas une prouesse qu'un simple sort céleste pouvait offrir. Très pe
 
 À ce moment-là, des années auparavant, il n'avait ressenti qu'un impact indicible émanant du corps de Situ Nan, faisant trembler le firmament. C'était comme si toutes les créatures vivantes devaient reculer et lui céder la place.
 
-Ce n'était alors qu'une sensation vague. Après tout, le niveau de culture de Wang Lin était trop bas à l'époque ; il n'en avait pas la qualification !
+Ce n'était alors qu'une sensation vague. Après tout, le niveau de cultivation de Wang Lin était trop bas à l'époque ; il n'en avait pas la qualification !
 
 Mais avec le recul, Situ Nan maîtrisait manifestement la loi. En y réfléchissant, Wang Lin parvenait désormais à voir clair dans ses souvenirs.
 
@@ -100,7 +100,7 @@ Lei Ji s'éveilla de sa contemplation, les yeux étincelants. Une vague d'émoti
 
 En réfléchissant, sa détermination à suivre Wang Lin ne fit que croître.
 
-Quant à Ta Shan, il semblait aveugle à tout cela, continuant sa culture, les yeux fermés.
+Quant à Ta Shan, il semblait aveugle à tout cela, continuant sa cultivation, les yeux fermés.
 
 Wang Lin s'assit au sol, le regard serein. Il avait compris *Invoquer la Pluie*, la prochaine étape concernait le sort qui l'intéressait le plus : l'*Arsenal Magique* !
 

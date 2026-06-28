@@ -24,7 +24,7 @@ En hiver, aucun mortel ne venait ici, il n'y avait donc aucune trace de pas... P
 
 C'était un bel homme d'âge moyen, à l'allure droite et imposante. Il contemplait calmement le ciel, une pointe de complexité dans le regard.
 
-« Ma culture... je ne peux plus la réprimer... » L'homme soupira et jeta un regard nostalgique sur la neige environnante, tout en attendant silencieusement l'arrivée de la tribulation divine.
+« Ma cultivation... je ne peux plus la réprimer... » L'homme soupira et jeta un regard nostalgique sur la neige environnante, tout en attendant silencieusement l'arrivée de la tribulation divine.
 
 Peu après, le monde entra en émoi et les flocons semblèrent soudainement s'effondrer. Un vent violent surgit dans le ciel et balaya la neige. Ce souffle emporta également l'épaisse couche accumulée sur la plaine autour de l'homme.
 
@@ -70,9 +70,9 @@ La main gauche de Wang Lin tenait la perle contenant les cinq Éclairs de Tonner
 
 Tout s'était produit trop vite ; cela ne prit qu'un instant. L'homme d'âge moyen était encore sous le choc et n'avait pas repris ses esprits.
 
-L'œil droit de Wang Lin ayant absorbé les cinq éclairs, il flotta dans les airs et dit lentement : « Toi, déploie toute ta culture et poursuis ta tribulation divine ! »
+L'œil droit de Wang Lin ayant absorbé les cinq éclairs, il flotta dans les airs et dit lentement : « Toi, déploie toute ta cultivation et poursuis ta tribulation divine ! »
 
-L'homme d'âge moyen prit une profonde inspiration pour réprimer l'inquiétude qui lui nouait le cœur et observa Wang Lin avec intensité. Il libéra toute sa puissance, et sa culture de pointe de la Formation de l'Âme emplira le monde.
+L'homme d'âge moyen prit une profonde inspiration pour réprimer l'inquiétude qui lui nouait le cœur et observa Wang Lin avec intensité. Il libéra toute sa puissance, et sa cultivation de pointe de la Formation de l'Âme emplira le monde.
 
 Après dix respirations, un nouveau tonnerre jaillit des nuages de tribulation. Une autre brèche s'ouvrit dans le ciel, et une personne en sortit !
 
@@ -104,7 +104,7 @@ L'expression du vieil homme devint grave et il révéla une intention meurtrièr
 
 L'expression de Wang Lin resta calme. Ce cultivateur Briseur de Nirvana du Clan du Tonnerre Dispersé était un homme décidé. Il avait envisagé de sacrifier un avatar pour garantir sa fuite en si peu de temps !
 
-Wang Lin n'était, après tout, pas dans son corps originel. Sans son Royaume Ji, il aurait été difficile d'empêcher ce vieillard de s'enfuir avec une simple culture de Briseur de Nirvana. Ses yeux brillèrent d'un éclat rouge et son Royaume Ji s'élança. Il se mua en un éclair écarlate qui pénétra immédiatement l'avatar du vieil homme qui lui barrait la route.
+Wang Lin n'était, après tout, pas dans son corps originel. Sans son Royaume Ji, il aurait été difficile d'empêcher ce vieillard de s'enfuir avec une simple cultivation de Briseur de Nirvana. Ses yeux brillèrent d'un éclat rouge et son Royaume Ji s'élança. Il se mua en un éclair écarlate qui pénétra immédiatement l'avatar du vieil homme qui lui barrait la route.
 
 L'avatar trembla, ses yeux s'obscurcirent avant de s'effondrer. L'éclair rouge jaillit de l'avatar pour frapper le corps du vieillard juste avant qu'il ne puisse se téléporter !
 

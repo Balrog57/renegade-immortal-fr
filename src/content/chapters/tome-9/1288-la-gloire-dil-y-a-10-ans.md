@@ -50,7 +50,7 @@ La Secte de la Musique Céleste était une secte de rang 6 s'étendant sur trois
 
 De plus, si les cultivateurs Briseurs de Nirvana de la Secte de la Musique Céleste sortaient pour la renforcer, la formation deviendrait encore plus imprenable !
 
-Wang Lin fendait les étoiles. Sa vitesse était telle qu'elle provoquait des grondements assourdissants. Une aura frénétique fonçait vers l'avant, alertant tous les membres de la Secte de la Musique Céleste. Le nouveau Maître de secte et les Anciens sortirent tous de leur culture en isolement. Ils flottèrent dans les airs, regardant devant eux d'un air sombre.
+Wang Lin fendait les étoiles. Sa vitesse était telle qu'elle provoquait des grondements assourdissants. Une aura frénétique fonçait vers l'avant, alertant tous les membres de la Secte de la Musique Céleste. Le nouveau Maître de secte et les Anciens sortirent tous de leur cultivation en isolement. Ils flottèrent dans les airs, regardant devant eux d'un air sombre.
 
 Ce qu'ils virent provoqua un choc immense !
 

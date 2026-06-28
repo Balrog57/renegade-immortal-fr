@@ -72,7 +72,7 @@ Les murmures de la foule parvinrent aux oreilles du Maître Flamespark. Il regar
 
 Qing Shui ferma les yeux et ne répondit pas.
 
-Le Maître Flamespark soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la culture de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Domaine Ji, mais elle lui inspirait tout de même une crainte profonde ; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
+Le Maître Flamespark soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la cultivation de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Domaine Ji, mais elle lui inspirait tout de même une crainte profonde ; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
 
 Plus important encore, l'éminent aîné qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour rallier Qing Shui à sa cause, plutôt que d'utiliser la force pour le soumettre.
 
@@ -96,10 +96,10 @@ Tous les regards des cultivateurs environnants convergèrent vers Wang Lin. Il a
 
 Même certains vieux monstres de grande renommée commencèrent à prêter attention.
 
-« La pression des autres esprits dans ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Céleste du Tonnerre qui pratiquent la culture du tonnerre, peu peuvent tenir plus de 20 respirations ! »
+« La pression des autres esprits dans ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Céleste du Tonnerre qui pratiquent la cultivation du tonnerre, peu peuvent tenir plus de 20 respirations ! »
 
 « Pour autant que je sache, ce lac est l'une des épreuves pour devenir messager du Temple Céleste du Tonnerre. Les messagers sont divisés en quatre rangs : si vous tenez 20 respirations, vous êtes de rang 4 ; 80 respirations vous placent au rang 1. Si vous dépassez les 100 respirations, vous pouvez devenir un messager du temple intérieur ! J'ignore combien de temps ce Xu Mu pourra tenir, mais j'ai hâte de le voir ! »
 
-« Ce lac teste la véritable culture, il n'y aura probablement aucun miracle pour lui ! Je suis plus optimiste envers Xu Ting de la planète Dong Lin ! »
+« Ce lac teste la véritable cultivation, il n'y aura probablement aucun miracle pour lui ! Je suis plus optimiste envers Xu Ting de la planète Dong Lin ! »
 
 Les cultivateurs environnants chuchotaient entre eux.

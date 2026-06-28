@@ -24,7 +24,7 @@ Au moment où le Démon Dispersé apparut pour la première fois, l'expression d
 
 Huan Fengshen haleta, se réjouissant intérieurement de sa décision prise plus tôt. Tous les disciples de la famille Huan derrière lui ressentirent la même chose.
 
-Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dispersé était trop puissant. Malgré son niveau de culture, il en frissonna réellement à sa vue.
+Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dispersé était trop puissant. Malgré son niveau de cultivation, il en frissonna réellement à sa vue.
 
 « Trop terrifiant. Qu'est-ce que c'est donc que ce... démon ! Pas étonnant qu'il vienne du Temple Céleste du Tonnerre, il possède une telle panoplie de capacités. Bête du Tonnerre, marionnettes, arts de l'épée, et maintenant ceci... un démon ! Cet homme doit être une figure extrêmement importante du Temple Céleste du Tonnerre ; autrement, comment pourrait-il posséder tout cela ?! »
 
@@ -54,7 +54,7 @@ Même avec sa puissance, le Démon Dispersé ne pouvait briser cette empreinte e
 
 En raison de son tempérament démoniaque, le Démon Dispersé ne communiquait normalement pas avec Wang Lin. Cependant, l'empreinte dans son corps était si puissante que, même après son éveil complet, il ne pouvait quitter l'âme originelle de Wang Lin. Et s'il tentait de le faire, ses racines resteraient liées à l'âme originelle de ce dernier.
 
-C'est ainsi qu'un accord fut conclu pour obtenir sa liberté. Ce n'était pas qu'il refusait d'occuper le corps de Wang Lin après son réveil, mais avec une telle empreinte, cela aurait été inutile. Maintenant que Wang Lin lui offrait cette chance, il lui suffirait de combattre pour obtenir sa délivrance. Toutefois, à cause de l'Ancien Démon Bei Lou, il serait impossible de lever le sceau à moins que la culture de Wang Lin n'atteigne un certain niveau.
+C'est ainsi qu'un accord fut conclu pour obtenir sa liberté. Ce n'était pas qu'il refusait d'occuper le corps de Wang Lin après son réveil, mais avec une telle empreinte, cela aurait été inutile. Maintenant que Wang Lin lui offrait cette chance, il lui suffirait de combattre pour obtenir sa délivrance. Toutefois, à cause de l'Ancien Démon Bei Lou, il serait impossible de lever le sceau à moins que la cultivation de Wang Lin n'atteigne un certain niveau.
 
 Pourtant, le Démon Dispersé avait d'autres projets. Tant que Wang Lin lui rendrait sa liberté, il était certain de pouvoir détruire le sceau de l'Ancien Démon Bei Lou en quelques centaines d'années. À ce moment-là, il serait véritablement libre !
 

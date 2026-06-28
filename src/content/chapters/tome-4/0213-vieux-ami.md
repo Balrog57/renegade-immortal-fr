@@ -18,7 +18,7 @@ Quant à la jeune fille qui accompagnait Wang Lin, elle se retourna et son regar
 
 Une fois ces femmes parties, l'homme d'âge moyen toussa légèrement. Son regard balaya les jeunes gens, puis il se tourna vers la jeune fille avec un sourire : « Heureuse chance, petite. Tu n'as pas non plus besoin de passer le second examen. Plus tard, tu me suivras pour rencontrer le Chef de Secte. »
 
-Sur ces mots, il reprit son vol. À mesure qu'ils s'enfonçaient dans la Secte Ciel Nuageux, des bêtes spirituelles apparurent progressivement sur le sol. On y voyait d'innombrables tigres, singes et ours. Ce n'étaient que des animaux ordinaires, mais au sein de la Secte Ciel Nuageux, chacun d'eux était bien plus imposant et leur corps dégageait de vastes quantités d'énergie spirituelle, signe qu'ils possédaient tous une culture considérable.
+Sur ces mots, il reprit son vol. À mesure qu'ils s'enfonçaient dans la Secte Ciel Nuageux, des bêtes spirituelles apparurent progressivement sur le sol. On y voyait d'innombrables tigres, singes et ours. Ce n'étaient que des animaux ordinaires, mais au sein de la Secte Ciel Nuageux, chacun d'eux était bien plus imposant et leur corps dégageait de vastes quantités d'énergie spirituelle, signe qu'ils possédaient tous une cultivation considérable.
 
 Ces bêtes spirituelles étaient soit allongées tranquillement sur le sol, soit grimpaient avec agilité.
 
@@ -40,7 +40,7 @@ L'homme d'âge moyen voulut prendre la parole, mais il hésita un instant avant 
 
 Le regard de l'Ancien balaya Wang Lin. À cet instant, son regard fut aussi tranchant que des lames, et il perçut clairement tout ce que Wang Lin était, de l'intérieur comme de l'extérieur.
 
-Wang Lin ricana intérieurement. Bien que la culture de cet Ancien fût au stade de l'Âme Naissante, celle de son corps actuel n'était encore qu'au stade de la Condensation de Qi ; il n'avait donc aucune crainte, bien que son corps tremblât et que ses yeux trahissent une expression de peur.
+Wang Lin ricana intérieurement. Bien que la cultivation de cet Ancien fût au stade de l'Âme Naissante, celle de son corps actuel n'était encore qu'au stade de la Condensation de Qi ; il n'avait donc aucune crainte, bien que son corps tremblât et que ses yeux trahissent une expression de peur.
 
 Après un instant, l'Ancien détourna le regard. Il esquissa un léger sourire : « Pour obtenir cette pilule, cet individu doit posséder une technique spéciale. Très bien, tu peux le prendre comme disciple. » Il ne craignait pas qu'un disciple d'une autre secte s'immisce dans son école, car les objets contenus dans la brume choisissaient leurs propriétaires d'eux-mêmes, et l'une des conditions pour être choisi était de ne nourrir aucune intention malveillante envers la secte. Cependant, il ignorait que Wang Lin avait utilisé une ancienne restriction pour forcer l'objet à sortir.
 
@@ -94,7 +94,7 @@ Il fallait dire qu'il y avait de nombreuses cours comme celle-ci dans la Secte C
 
 Pour confirmer sa supposition, il alla vérifier les autres pièces et constata que chacune d'elles contenait un fourneau similaire. Tout ce qu'il avait vu depuis son entrée dans la secte confirmait sa puissance. Wang Lin prit une profonde inspiration, à nouveau impressionné par cette richesse et cette force.
 
-Depuis sa chambre, Wang Lin réfléchit un moment. Il posa une restriction sur la porte, puis s'assit en tailleur pour commencer sa culture.
+Depuis sa chambre, Wang Lin réfléchit un moment. Il posa une restriction sur la porte, puis s'assit en tailleur pour commencer sa cultivation.
 
 Le temps passa lentement. À la tombée de la nuit, Wang Lin ressentit une fluctuation particulière d'énergie spirituelle provenant de la restriction qu'il avait placée.
 
@@ -130,7 +130,7 @@ D'un geste du doigt, Wang Lin fit entrer la pilule dans la bouche de la créatur
 
 Wang Lin l'observa encore un instant, puis d'un revers de main, il renvoya la petite bête dans son sac. Il comptait l'observer pendant quelques jours ; si aucun signe négatif n'apparaissait, il consommerait les pilules.
 
-Wang Lin cultiva silencieusement toute la nuit. Le lendemain matin, à son réveil, il constata que l'énergie spirituelle en lui avait considérablement augmenté. La densité de l'énergie spirituelle de la Secte Ciel Nuageux rendait chaque nuit de culture extrêmement efficace.
+Wang Lin cultiva silencieusement toute la nuit. Le lendemain matin, à son réveil, il constata que l'énergie spirituelle en lui avait considérablement augmenté. La densité de l'énergie spirituelle de la Secte Ciel Nuageux rendait chaque nuit de cultivation extrêmement efficace.
 
 Il se leva et enfila l'uniforme de disciple : une chemise blanche à manches longues ornée de motifs de fourneaux à pilules sur les poignets. Il rangea son jeton d'identité et la fiole blanche. Puis, il frappa son sac de rangement, et un autre objet apparut dans sa main. C'était aussi une fiole blanche, mais son contenu était bien plus précieux que les précédentes.
 
@@ -138,7 +138,7 @@ Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver
 
 Subitement, tous les cercles d'illusion formés par ses mains fusionnèrent pour créer un cercle de restriction qui se posa au sol. Un halo circulaire apparut en scintillant.
 
-Wang Lin essuya la sueur de son front. Avec la culture de son avatar, il pouvait créer une simple restriction, mais pour un cercle de restriction, l'aide du liquide spirituel était indispensable, et l'effort pesait lourdement sur son corps. Une fois le cercle posé, des courants d'air froid s'en échappèrent. Après un moment, le corps principal de Wang Lin apparut lentement à travers le cercle.
+Wang Lin essuya la sueur de son front. Avec la cultivation de son avatar, il pouvait créer une simple restriction, mais pour un cercle de restriction, l'aide du liquide spirituel était indispensable, et l'effort pesait lourdement sur son corps. Une fois le cercle posé, des courants d'air froid s'en échappèrent. Après un moment, le corps principal de Wang Lin apparut lentement à travers le cercle.
 
 Une fois le test effectué, le corps principal se rétracta dans le cercle. C'était là l'atout majeur de Wang Lin. Lorsqu'il créait son avatar, il avait anticipé les dangers potentiels de ce dernier en solitaire. En utilisant la mémoire de l'Ancien Dieu et deux pierres d'encre, une restriction pouvait téléporter le corps principal vers l'avatar tant que les deux possédaient une pierre d'encre. Mais avant d'atteindre un certain niveau, la création de tels cercles lui demanderait encore du temps.
 
@@ -146,11 +146,11 @@ Deux mois passèrent rapidement sans que Zhou Lin ne revienne. La cour de Wang L
 
 Cependant, cela troublait Wang Lin. Il avait la certitude que Zhou Lin le considérait réellement comme son disciple. Mais cette relation était établie sous prétexte d'une absence de conflit d'intérêts. Wang Lin ignorait ce qui se passerait si un tel conflit survenait, mais ce sentiment était totalement nouveau pour lui.
 
-Durant ces deux mois, sa culture passa du 3ème au 8ème niveau. Outre le liquide spirituel, son assiduité en alchimie avait grandement accéléré ses progrès. Bien qu'il soit venu chercher des pilules, il préférait désormais les fabriquer lui-même grâce aux méthodes et matériaux à sa disposition.
+Durant ces deux mois, sa cultivation passa du 3ème au 8ème niveau. Outre le liquide spirituel, son assiduité en alchimie avait grandement accéléré ses progrès. Bien qu'il soit venu chercher des pilules, il préférait désormais les fabriquer lui-même grâce aux méthodes et matériaux à sa disposition.
 
-Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la culture elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'à quelques reprises.
+Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la cultivation elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'à quelques reprises.
 
-Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept Pilules d'Aide à la Culture. Grâce aux pilules, au liquide spirituel et à sa perle transcendante, il avait pu bondir du 3ème au 8ème niveau en deux mois.
+Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept Pilules d'Aide à la Cultivation. Grâce aux pilules, au liquide spirituel et à sa perle transcendante, il avait pu bondir du 3ème au 8ème niveau en deux mois.
 
 Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer : cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et le gaspillage des matériaux.
 
@@ -200,7 +200,7 @@ Le jeune homme sourit malicieusement : « Moi, je m'appelle Cheng Xian. Alors, v
 
 Wang Lin acquiesça.
 
-« Les quatre cours de la Secte Ciel Nuageux sont très distinctement divisés. Jeune frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une culture duelle, la cultivation ne me dérangerait plus ! » Cheng Xian marqua une pause de regret avant de reprendre : « Alors, pourquoi vas-tu au sud ? Je pourrais peut-être t'aider. »
+« Les quatre cours de la Secte Ciel Nuageux sont très distinctement divisés. Jeune frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une cultivation duelle, la cultivation ne me dérangerait plus ! » Cheng Xian marqua une pause de regret avant de reprendre : « Alors, pourquoi vas-tu au sud ? Je pourrais peut-être t'aider. »
 
 Wang Lin rit devant le rêve de Cheng Xian : « Ce n'est pas nécessaire. Je ne pense pas que mon voyage soit entravé. »
 

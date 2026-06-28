@@ -44,7 +44,7 @@ Wang Lin expliqua : « Ce Xu est considéré comme une bête destructrice mineur
 
 Une description de cette créature figurait dans la mémoire du Dieu Ancien Tu Si. Cette bête possédait trois trésors : ses tentacules étaient des matériaux de raffinage de première qualité ; son cerveau pouvait prolonger la longévité ; et son noyau pouvait conférer la force de soulever dix mille kilogrammes.
 
-Les membres du clan des Dieux Anciens appréciaient par-dessus tout le noyau, car leur culture était entièrement axée sur le corps.
+Les membres du clan des Dieux Anciens appréciaient par-dessus tout le noyau, car leur cultivation était entièrement axée sur le corps.
 
 Wang Lin ne partagea pas ces informations.
 
@@ -144,7 +144,7 @@ Dans la mémoire de Tu Si, la Pierre Pourpre Dorée était le matériau indispen
 
 Sans attendre la réponse de Chi Hu, il s'élança vers la pierre.
 
-Wang Lin pensa secrètement : « Lorsque je cherchais à comprendre les cieux pour atteindre le stade de la Formation de l'Âme, j'ai rencontré un senior nommé Tian Yunzi. Il m'a dit que si je quittais Suzaku, je pourrais le retrouver sur la planète Tian Yun et qu'il ferait de moi son disciple honorifique pour cent ans. Sa culture est divine ; je dois saisir cette chance. Je dois mettre la main sur une boussole stellaire. »
+Wang Lin pensa secrètement : « Lorsque je cherchais à comprendre les cieux pour atteindre le stade de la Formation de l'Âme, j'ai rencontré un senior nommé Tian Yunzi. Il m'a dit que si je quittais Suzaku, je pourrais le retrouver sur la planète Tian Yun et qu'il ferait de moi son disciple honorifique pour cent ans. Sa cultivation est divine ; je dois saisir cette chance. Je dois mettre la main sur une boussole stellaire. »
 
 Sa vitesse était telle qu'il atteignit la Pierre Pourpre Dorée en peu de temps. Il observa le grand rocher, prit une profonde inspiration et l'inséra dans son sac de rangement avant de revenir.
 

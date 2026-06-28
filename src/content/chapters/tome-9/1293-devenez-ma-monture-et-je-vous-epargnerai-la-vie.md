@@ -8,11 +8,11 @@ slug: devenez-ma-monture-et-je-vous-epargnerai-la-vie
 ---
 Chapitre 1293 - Devenez ma monture et je vous épargnerai la vie !
 
-Le Secte Démon possédait six planètes de culture. Ces six planètes formaient un cercle parfait ; une configuration simple, mais qui dégageait une aura terrifiante.
+Le Secte Démon possédait six planètes de cultivation. Ces six planètes formaient un cercle parfait ; une configuration simple, mais qui dégageait une aura terrifiante.
 
 C'était une formation !
 
-Une immense formation composée de six planètes de culture. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître du Secte Démon comme ultime ligne de défense contre les bêtes féroces !
+Une immense formation composée de six planètes de cultivation. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître du Secte Démon comme ultime ligne de défense contre les bêtes féroces !
 
 Le Secte Démon était divisé en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux ; ils travaillaient souvent de manière isolée !
 
@@ -50,7 +50,7 @@ En chemin, Wang Lin avait déployé une vitesse presque insensée, traversant la
 
 « La Vieille Dame Blanche est partie il y a une demi-lune sur ordre du Secte Démon pour accomplir une mission pour Li Qianmei. Qui est cette personne devant elle ? »
 
-« Je ne parviens pas à percevoir le niveau de culture de cet individu, mais je tremble devant lui. Il est trop puissant ! J'ignore de quel secteur il est l'Ancien, mais pourquoi est-il ici ? »
+« Je ne parviens pas à percevoir le niveau de cultivation de cet individu, mais je tremble devant lui. Il est trop puissant ! J'ignore de quel secteur il est l'Ancien, mais pourquoi est-il ici ? »
 
 « Cet homme est trop puissant et trop étrange ; même les bêtes féroces se sont retirées de terreur. Même ces crânes noirs ont commencé à paniquer en le sentant approcher ! » L'homme parmi les six génies regardait Wang Lin avec effroi.
 

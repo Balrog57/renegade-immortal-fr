@@ -10,11 +10,11 @@ Chapitre 1496 - Ces Gens !
 
 Leur force écrasante fit s'effondrer la volonté de combat de Maître Lu Fu ! Il ne pouvait plus lutter et n'était plus que le siège d'un choc indescriptible !
 
-Malgré son niveau de culture, Maître Lu Fu ne pouvait qu'éprouver une immense amertume en contemplant stupéfait ce qui se déroulait sous ses yeux.
+Malgré son niveau de cultivation, Maître Lu Fu ne pouvait qu'éprouver une immense amertume en contemplant stupéfait ce qui se déroulait sous ses yeux.
 
-Il savait qu'il avait commis une erreur monumentale ! Une erreur fatale : il avait eu le tort de sous-estimer la culture de Wang Lin ! Lorsque Wang Lin était retourné à Allheaven, Maître Lu Fu pensait qu'il avait le pouvoir de l'affronter et qu'il ne devait pas le provoquer imprudemment.
+Il savait qu'il avait commis une erreur monumentale ! Une erreur fatale : il avait eu le tort de sous-estimer la cultivation de Wang Lin ! Lorsque Wang Lin était retourné à Allheaven, Maître Lu Fu pensait qu'il avait le pouvoir de l'affronter et qu'il ne devait pas le provoquer imprudemment.
 
-Ce jugement avait changé lorsqu'il vit l'épée de pluie sur la planète Qing Ling. Maître Lu Fu crut alors avoir percé le niveau de culture de Wang Lin et se détendit un peu.
+Ce jugement avait changé lorsqu'il vit l'épée de pluie sur la planète Qing Ling. Maître Lu Fu crut alors avoir percé le niveau de cultivation de Wang Lin et se détendit un peu.
 
 Cependant, quand Wang Lin brisa la formation en huit respirations sur la planète Dong Ling, il réalisa l'erreur de son jugement. Il avait élevé le statut de Wang Lin au rang de son égal, mais il restait convaincu qu'avec ses divers trésors, Wang Lin aurait du mal à l'affronter !
 
@@ -72,7 +72,7 @@ Son expression changea instantanément, empreinte d'incrédulité !
 
 Également au sein du Secte de Dieu, une femme magnifique était assise à l'intérieur d'une immense formation de scellement. Ses longs cheveux étaient éparpillés autour d'elle, dégageant une beauté capable de faire battre le cœur de n'importe qui.
 
-Elle ne sembla pas remarquer l'aura qui terrifiait Daoist Water et continua sa culture en silence.
+Elle ne sembla pas remarquer l'aura qui terrifiait Daoist Water et continua sa cultivation en silence.
 
 Dans la région de rang un du système stellaire de Cloud Sea, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains ; c'était un lieu totalement désolé.
 

@@ -8,9 +8,9 @@ slug: extraordinaire
 ---
 Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaient l'air. Maître Ashen Pine semblait très familier avec ce chemin ; il ne prit même pas de jade pour vérifier sa direction, se contentant de foncer vers la destination !
 
-Avec sa culture au niveau du Briseur de Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
+Avec sa cultivation au niveau du Briseur de Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de cultivation pour accélérer.
 
-Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur de Nirvana. Il demeura calme, sortit un talisman et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
+Wang Lin restait à la traîne. Après tout, son véritable niveau de cultivation n'était pas celui d'un Briseur de Nirvana. Il demeura calme, sortit un talisman et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
 
 Ils volèrent à toute allure, et quelques jours plus tard, la brume devint encore plus dense. Ils atteignirent les profondeurs de la région de rang 5, où l'on pouvait vaguement distinguer l'ombre d'un continent sauvage.
 
@@ -20,7 +20,7 @@ Ils volèrent à toute allure, et quelques jours plus tard, la brume devint enco
 
 « Cher cultivateur Pang, je vous confie une tâche : trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous ! » lança Maître Ashen Pine à l'adresse du vieil homme au visage balafré.
 
-L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de culture ou leur secte.
+L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de cultivation ou leur secte.
 
 Wang Lin observa le continent sauvage sous ses pieds. Il avait le pressentiment que quelque chose clochait, sans pouvoir en identifier la cause. À cet instant, il s'accroupit et saisit une poignée de terre pour l'examiner.
 
@@ -52,7 +52,7 @@ Cette rune avait été imprimée sur la terre par un sortilège et occupait la m
 
 En voyant ce gravier s'envoler et disparaître, Wang Lin eut l'impression d'être frappé par la foudre. Il fixa l'endroit où les débris s'éparpillaient et fut saisi de stupeur ! La raison de son intuition étrange venait de lui apparaître !
 
-Ce continent sauvage était parfaitement immobile ! Les continents de la Mer des Nuages n'étaient pas stationnaires, mais dérivaient lentement à travers l'espace. Ce mouvement était si lent qu'il était difficile à détecter, mais il était bien réel. Les mortels ne le percevraient jamais, mais une fois un certain niveau de culture atteint, on pouvait vaguement le ressentir en s'apaisant.
+Ce continent sauvage était parfaitement immobile ! Les continents de la Mer des Nuages n'étaient pas stationnaires, mais dérivaient lentement à travers l'espace. Ce mouvement était si lent qu'il était difficile à détecter, mais il était bien réel. Les mortels ne le percevraient jamais, mais une fois un certain niveau de cultivation atteint, on pouvait vaguement le ressentir en s'apaisant.
 
 Wang Lin n'était pas un cultivateur natif de la Mer des Nuages. Son ancien système stellaire était composé de planètes et non de continents flottants. Par conséquent, cette différence lui apparut avec une clarté absolue. Un cultivateur local aurait pu facilement passer à côté de ce détail.
 

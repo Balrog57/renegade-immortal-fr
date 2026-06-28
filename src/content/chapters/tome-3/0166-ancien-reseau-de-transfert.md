@@ -14,7 +14,7 @@ Il vit un érudit, vêtu d'une robe grise et portant un bandeau carré sur la t�
 
 Son corps oscillait comme un saule sous le vent alors qu'il descendait du ciel. D'un geste de la main, il dit calmement : « Duanmu Ji, mon bateau terrestre a-t-il été utile ? »
 
-Les pupilles de Wang Lin se contractèrent. Il n'était pas capable de percer le niveau de culture de cet homme, tout comme il ne pouvait sonder celui du Seigneur Démon des Huit Extrêmes. À voir comment il s'adressait au Seigneur Démon des Huit Extrêmes sur un pied d'égalité, leurs niveaux de culture devaient être similaires.
+Les pupilles de Wang Lin se contractèrent. Il n'était pas capable de percer le niveau de cultivation de cet homme, tout comme il ne pouvait sonder celui du Seigneur Démon des Huit Extrêmes. À voir comment il s'adressait au Seigneur Démon des Huit Extrêmes sur un pied d'égalité, leurs niveaux de cultivation devaient être similaires.
 
 Le Seigneur Démon des Huit Extrêmes, Duanmu Ji, renifla et lança le bateau terrestre vers lui. Il répliqua : « Aussi utile qu'un pet ! Tu considères cet objet brisé comme un trésor ? Je ne le voudrais même pas si tu me l'offrais gratuitement. »
 
@@ -24,7 +24,7 @@ Duanmu Ji leva les yeux au ciel et dit : « Il m'est évidemment utile. Allons-y
 
 Wang Lin observa l'érudit avant de faire un pas et de grimper à son tour sur la calebasse. Il restait extrêmement prudent car, depuis l'arrivée de l'homme en robe grise, le sens divin de ce dernier n'avait cessé de scanner Wang Lin.
 
-À ce moment précis, il entendit soudain une transmission vocale de Duanmu Ji : « Cet homme est Wang Qingyue. C'est un messager envoyé par le Secte Yin et Yang d'un pays de culture de rang 4. Sa culture est terrifiante, alors ne l'exaspère pas. »
+À ce moment précis, il entendit soudain une transmission vocale de Duanmu Ji : « Cet homme est Wang Qingyue. C'est un messager envoyé par le Secte Yin et Yang d'un pays de cultivation de rang 4. Sa cultivation est terrifiante, alors ne l'exaspère pas. »
 
 L'expression de Wang Lin resta impassible, mais sa vigilance redoubla en son for intérieur. Les trois hommes s'élancèrent rapidement dans la Mer des Démons. Wang Lin observait froidement Wang Qingyue tout au long du trajet. Ce dernier ne possédait aucun trésor sous ses pieds, et pourtant il se déplaçait aussi vite que la calebasse. Le brouillard situé à trois pieds devant lui s'écartait automatiquement sur les côtés.
 
@@ -72,7 +72,7 @@ Tout en manipulant la formation, Duanmu Ji répondit d'un ton grincheux : « C'e
 
 Wang Qingyue fixa la pierre de qualité supérieure et dit : « Des pierres de qualité supérieure... ces pierres sont extrêmement rares sur cette planète. La rumeur prétend qu'elles constituent la principale monnaie d'échange entre les planètes. Si cet endroit recèle vraiment des pierres de qualité supérieure, alors même en l'absence de pilule de Transformation de l'Âme, l'exploration en vaut la peine. »
 
-Duanmu Ji fixa Wang Lin et grommela : « Ce réseau de transfert n'est pas ce que tu imagines. Il ne nous emmène pas directement là-bas, mais aux Étoiles Brisées du Chaos dans la Mer des Démons. Une fois sur place, nous rejoindrons quelques amis pour entrer ensemble. Autrement, le voyage par les airs serait trop long. Sans cent ans de vol, il serait impossible d'arriver à temps. Sans parler des dangers extérieurs aux Étoiles Brisées ; le simple brouillard rouge entre les mers extérieure et intérieure est déjà bien assez périlleux. Avec nos niveaux de culture, la prudence suffit, mais ce gamin mourra à coup sûr. Sinon, pourquoi serais-je aussi gaspilleur d'utiliser une pierre de qualité supérieure pour s'y rendre ? »
+Duanmu Ji fixa Wang Lin et grommela : « Ce réseau de transfert n'est pas ce que tu imagines. Il ne nous emmène pas directement là-bas, mais aux Étoiles Brisées du Chaos dans la Mer des Démons. Une fois sur place, nous rejoindrons quelques amis pour entrer ensemble. Autrement, le voyage par les airs serait trop long. Sans cent ans de vol, il serait impossible d'arriver à temps. Sans parler des dangers extérieurs aux Étoiles Brisées ; le simple brouillard rouge entre les mers extérieure et intérieure est déjà bien assez périlleux. Avec nos niveaux de cultivation, la prudence suffit, mais ce gamin mourra à coup sûr. Sinon, pourquoi serais-je aussi gaspilleur d'utiliser une pierre de qualité supérieure pour s'y rendre ? »
 
 Duanmu Ji traça plusieurs sceaux et les projeta vers le réseau de transfert. La pierre de qualité supérieure au centre de la formation commença à luire. Peu après, les innombrables symboles s'illuminèrent tour à tour. Une fois que tous les symboles furent activés, la pierre de qualité supérieure vola en éclats.
 
@@ -92,7 +92,7 @@ Peu après, le vortex marqua un arrêt soudain. Puis, tout s'effondra dans un fr
 
 Il fallut longtemps pour que le lieu retrouve son calme. Le brouillard qui avait été repoussé finit par envelopper à nouveau la zone.
 
-La Mer des Démons était vaste. Entre les mers intérieure et extérieure s'étendait une zone de brouillard rouge. Si un cultivateur ne possédait pas un niveau de culture assez élevé, son corps se décomposerait dès le premier contact avec ce brouillard. Son âme ne pourrait non plus s'en échapper et resterait à jamais piégée dans cette brume écarlate.
+La Mer des Démons était vaste. Entre les mers intérieure et extérieure s'étendait une zone de brouillard rouge. Si un cultivateur ne possédait pas un niveau de cultivation assez élevé, son corps se décomposerait dès le premier contact avec ce brouillard. Son âme ne pourrait non plus s'en échapper et resterait à jamais piégée dans cette brume écarlate.
 
 Ce brouillard rouge constituait une barrière naturelle entre les deux mers. Cette frontière n'était franchissable qu'un seul jour, lorsque le brouillard se transformait en mer.
 

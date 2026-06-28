@@ -1,6 +1,6 @@
 ---
 n: 294
-title: Intimation
+title: Insinuation
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 294 - Intimation
@@ -26,7 +26,7 @@ En voyant l'empreinte de main sur la porte, il ne put s'empêcher de se demander
 
 L'once de fierté que Wang Lin venait d'acquérir s'évapora face à cet édifice. Comparé à ces présences mystérieuses, il n'était encore qu'un éternel lutteur au bas de l'échelle.
 
-Après un moment, plusieurs autres personnes apparurent et se posèrent sur diverses plateformes. Les niveaux de culture parmi les cultivateurs étaient extrêmement variés ; même des experts de la Formation de l'Âme firent leur apparition. Cela déconcerta profondément Wang Lin.
+Après un moment, plusieurs autres personnes apparurent et se posèrent sur diverses plateformes. Les niveaux de cultivation parmi les cultivateurs étaient extrêmement variés ; même des experts de la Formation de l'Âme firent leur apparition. Cela déconcerta profondément Wang Lin.
 
 Peu à peu, à mesure que les arrivées se multipliaient, les plateformes manquèrent.
 
@@ -64,7 +64,7 @@ Quant à Wang Lin, il ressemblait à un érudit fragile, une proie facile. Les y
 
 Red Butterfly avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi ; après tout, Wang Lin venait du Suzaku, tout comme eux.
 
-L'individu se tint sur la plateforme de Wang Lin et dit froidement : « Cher compagnon de culture, veuillez quitter cette plateforme pour en trouver une autre. » Bien que sa voix fût glaciale, ses échecs successifs avaient considérablement entamé son arrogance.
+L'individu se tint sur la plateforme de Wang Lin et dit froidement : « Cher compagnon de cultivation, veuillez quitter cette plateforme pour en trouver une autre. » Bien que sa voix fût glaciale, ses échecs successifs avaient considérablement entamé son arrogance.
 
 Le regard de Wang Lin resta calme ; il ne dit mot. Il fit un geste de la main et un bracelet se détacha de son poignet pour se transformer en un immense crapaud.
 
@@ -88,7 +88,7 @@ Wang Lin fut surpris par la facilité avec laquelle l'homme abandonnait, mais il
 
 Le génie de Xue Ye fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan du Démon Géant, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
 
-Seul le jeune homme aux yeux assoiffés de sang observa le crapaud avec une pointe d'appréhension. Sa méthode de culture reposant entièrement sur les insectes, il se méfiait grandement d'une créature capable de cracher la foudre, d'autant plus qu'il s'agissait d'un crapaud.
+Seul le jeune homme aux yeux assoiffés de sang observa le crapaud avec une pointe d'appréhension. Sa méthode de cultivation reposant entièrement sur les insectes, il se méfiait grandement d'une créature capable de cracher la foudre, d'autant plus qu'il s'agissait d'un crapaud.
 
 L'homme d'âge moyen soupira et dit : « Un Crapaud du Tonnerre... Wan Er, j'ai revu un crapaud du tonnerre. Hélas, ce n'est pas la même personne qu'autrefois. »
 
@@ -110,4 +110,4 @@ Dès qu'il franchit le seuil, il ressentit une aura puissante émanant du royaum
 
 Au même instant, un petit chaudron de jade apparut devant Wang Lin. Il prit une profonde inspiration, saisit l'objet et le rangea dans sa sacoche. Avant de venir ici, il avait fait quelques recherches sur le royaume céleste.
 
-Il savait qu'il s'agissait d'un chaudron de retour. En certains lieux, il lui suffisait de l'activer pendant une heure pour pouvoir retourner sur la planète de culture dont il était originaire.
+Il savait qu'il s'agissait d'un chaudron de retour. En certains lieux, il lui suffisait de l'activer pendant une heure pour pouvoir retourner sur la planète de cultivation dont il était originaire.

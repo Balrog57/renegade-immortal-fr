@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1311 - The First Predestined Battle (1)
 slug: la-premiere-bataille-predestinee-1
 ---
-Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de culture s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au stade du Nirvana Vide. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
+Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de cultivation s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au stade du Nirvana Vide. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
 
 En un instant, une force puissante émana de leurs corps et se mua en trois rayons de lumière démoniaque qui s'élancèrent pour intercepter le coup de poing de Tuo Sen.
 
@@ -32,7 +32,7 @@ Rumble, rumble, rumble, rumble !
 
 Ce grondement assourdissant donnait l'impression que le monde allait s'effondrer et que l'espace lui-même se déchirait. De vastes fissures spatiales apparurent, couvrant des zones de 5 000, 50 000, puis 500 000 kilomètres.
 
-D'innombrables planètes de culture, d'innombrables cultivateurs et d'innombrables créatures furent réduits en cendres !
+D'innombrables planètes de cultivation, d'innombrables cultivateurs et d'innombrables créatures furent réduits en cendres !
 
 Une petite partie du Système Stellaire Antique trembla sous la force destructrice de cette explosion folle. Les retombées se transformèrent en une onde de choc qui continua de se propager.
 
@@ -46,7 +46,7 @@ Cependant, l'homme et la femme crachèrent du sang et reculèrent frénétiqueme
 
 L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement : « Maître Simo, reculez ! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Maître Simo, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
 
-Maître Simo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer : « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+Maître Simo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer : « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la cultivation... »
 
 Sa voix était étrange, et dès qu'il commença ses incantations, celle de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen laissa passer ce dernier pour s'élancer vers l'autre cultivateur du troisième niveau.
 

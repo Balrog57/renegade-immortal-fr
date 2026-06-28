@@ -12,7 +12,7 @@ Une intention meurtrière envahit le visage de la femme qui répondit froidement
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait le Pavillon des Nuages Pourpres. Après une courte réflexion, il recula de quelques pas, s'assit et commença à cultiver.
 
-Wang Lin n'était pas d'humeur à chercher querelle. Il était venu sur la planète Tian Yun pour trouver un endroit paisible où pratiquer sa culture ; il n'avait donc aucune envie de créer une animosité avec quelqu'un pour une simple demeure.
+Wang Lin n'était pas d'humeur à chercher querelle. Il était venu sur la planète Tian Yun pour trouver un endroit paisible où pratiquer sa cultivation ; il n'avait donc aucune envie de créer une animosité avec quelqu'un pour une simple demeure.
 
 La situation ici était quelque peu complexe. Après avoir réfléchi un instant, il comprit que tout cela devait être lié à ce Pavillon des Nuages Pourpres.
 
@@ -38,7 +38,7 @@ Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrict
 
 « Tout cela est enveloppé d'un brouillard que je ne parviens pas à percer. Je dois trouver un moyen de voir clair dans tout cela, et surtout comprendre l'histoire qui se cache derrière le Pavillon des Nuages Pourpres ! »
 
-Le Secte du Destin Céleste était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine culture.
+Le Secte du Destin Céleste était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine cultivation.
 
 Wang Lin ouvrit les yeux au milieu de la nuit, se leva et sortit de la grotte qu'il avait lui-même créée. Ses yeux s'illuminèrent tandis qu'il inspectait les environs, puis, d'un pas, il se transforma en une fumée noire et disparut.
 
@@ -48,7 +48,7 @@ Le Pavillon des Nuages Pourpres comptait trois étages. Wang Lin apparut au prem
 
 Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques chaises. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle pendait une épée antique. Tout cela semblait tout à fait banal.
 
-La troisième pièce était une chambre secrète dédiée à la culture. Le plafond était fait d'un matériau que Wang Lin n'avait jamais vu auparavant. On aurait dit qu'il n'y avait rien du tout ; on pouvait voir le ciel extérieur à travers lui.
+La troisième pièce était une chambre secrète dédiée à la cultivation. Le plafond était fait d'un matériau que Wang Lin n'avait jamais vu auparavant. On aurait dit qu'il n'y avait rien du tout ; on pouvait voir le ciel extérieur à travers lui.
 
 Wang Lin ne trouva rien d'anormal dans ce lieu.
 

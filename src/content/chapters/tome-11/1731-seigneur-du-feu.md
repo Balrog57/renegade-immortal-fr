@@ -22,7 +22,7 @@ L'autre lui avait été donnée par le Tout-Voyant !
 
 Wang Lin était désormais profondément intrigué par cette formation.
 
-« Je possède l'essence du feu parmi les cinq éléments. Si je parviens à obtenir les quatre autres, mon niveau de culture augmentera considérablement. Et si les cinq éléments fusionnent en un seul, je me demande quelle nouvelle essence cela pourrait engendrer ! » Wang Lin sourit en observant la Formation des Cinq Éléments, son sourire devenant de plus en plus radieux.
+« Je possède l'essence du feu parmi les cinq éléments. Si je parviens à obtenir les quatre autres, mon niveau de cultivation augmentera considérablement. Et si les cinq éléments fusionnent en un seul, je me demande quelle nouvelle essence cela pourrait engendrer ! » Wang Lin sourit en observant la Formation des Cinq Éléments, son sourire devenant de plus en plus radieux.
 
 Wang Lin ne prônerait pas la morale face à ses ennemis, surtout avec ceux qui ne venaient pas du monde des grottes. La force était l'unique loi ! Si l'adversaire avait le pouvoir de le maintenir prisonnier, il se soumettrait. Sinon, ces gens n'étaient pour lui que de simples voleurs, et Wang Lin se montrait toujours plus impitoyable envers les brigands !
 
@@ -38,7 +38,7 @@ Sur la planète des Cinq Éléments, dans les étages intermédiaires, l'homme e
 
 « Bien que la puissance de l'esprit du feu soit comparable à celle de l'esprit de la terre, le feu possède en lui-même le pouvoir de consumer le corps et l'âme. Bien que ce Wang Lin ait emporté l'esprit de la terre, il ne passera absolument pas sans encombre dans la formation de feu ! » L'Ancien en robe noire ignorait naturellement que Wang Lin possédait l'essence du feu. Il semblait s'adresser aux trois personnes qui l'entouraient ou murmurer pour lui-même.
 
-En vérité, leur ignorance n'était pas fautive. La planète des Cinq Éléments était isolée du monde extérieur depuis fort longtemps. L'identité et le niveau de culture de Wang Lin n'avaient été découverts que grâce aux cultivateurs du Royaume Extérieur qui s'étaient introduits là par accident.
+En vérité, leur ignorance n'était pas fautive. La planète des Cinq Éléments était isolée du monde extérieur depuis fort longtemps. L'identité et le niveau de cultivation de Wang Lin n'avaient été découverts que grâce aux cultivateurs du Royaume Extérieur qui s'étaient introduits là par accident.
 
 Leurs connaissances étaient lacunaires ; ils n'avaient envoyé que quelques individus après coup pour enquêter. Bien qu'ils en sachent davantage, les essences de Wang Lin leur restaient inconnues.
 

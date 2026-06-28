@@ -32,15 +32,15 @@ Des éclairs de déduction traversèrent son regard alors qu'il poursuivait ses 
 
 Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Allheaven, il avait hérité de la restriction d'Annihilation !
 
-Bien que les restrictions fussent puissantes, Wang Lin n'était plus celui qu'il était autrefois. Si sa progression dans l'étude des restrictions n'avait pas été aussi fulgurante que sa culture, elle n'en demeurait pas moins extrêmement rapide. Wang Lin savait que son talent pour la culture était limité, mais il possédait une compréhension prodigieuse lorsqu'il s'agissait des restrictions.
+Bien que les restrictions fussent puissantes, Wang Lin n'était plus celui qu'il était autrefois. Si sa progression dans l'étude des restrictions n'avait pas été aussi fulgurante que sa cultivation, elle n'en demeurait pas moins extrêmement rapide. Wang Lin savait que son talent pour la cultivation était limité, mais il possédait une compréhension prodigieuse lorsqu'il s'agissait des restrictions.
 
 C'était une vérité qu'il avait perçue dès la Terre de l'Ancien Dieu.
 
-Ayant cultivé jusqu'à présent, Wang Lin avait tout compris. Le talent d'un individu en culture résidait dans sa sensibilité à l'énergie spirituelle. Plus on était sensible, plus le talent était grand !
+Ayant cultivé jusqu'à présent, Wang Lin avait tout compris. Le talent d'un individu en cultivation résidait dans sa sensibilité à l'énergie spirituelle. Plus on était sensible, plus le talent était grand !
 
 Cependant, les restrictions n'avaient rien à voir avec cette sensibilité. Elles reposaient entièrement sur la capacité de calcul et de déduction d'un individu. Tout dépendait de l'esprit !
 
-Wang Lin ne manquait pas d'esprit, et sa progression en la matière était presque surhumaine. Autrement, il n'aurait pu progresser autant au cours de ses mille ans de culture.
+Wang Lin ne manquait pas d'esprit, et sa progression en la matière était presque surhumaine. Autrement, il n'aurait pu progresser autant au cours de ses mille ans de cultivation.
 
 Il se tint au dixième pas et regarda devant lui. La lumière des restrictions dans ses yeux déferla comme une tempête et, en un éclair, tout ce qui l'entourait changea !
 
@@ -72,7 +72,7 @@ Cette simple restriction était le fruit de calculs innombrables. Le temps, le l
 
 Bien que cela paraisse simple, ce n'était pas chose aisée pour un mortel ordinaire.
 
-Les yeux de Maître Hollow Wind brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, dont la culture n'était pas si ancienne, possède une telle maîtrise des restrictions.
+Les yeux de Maître Hollow Wind brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, dont la cultivation n'était pas si ancienne, possède une telle maîtrise des restrictions.
 
 « Son calme n'est pas une façade, il est véritablement serein. Je crains qu'il n'ait déjà tout déduit. Il ne va pas forcer le passage, il va utiliser les restrictions pour briser les restrictions ! »
 

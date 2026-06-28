@@ -20,15 +20,15 @@ Il avait même la sensation que ce monde changerait selon la volonté de cet hom
 
 C'est à ce moment que les paroles de Li Qianmei retentirent. Sa voix était douce et mélodieuse ; elle possédait une élégance qui apaisait instantanément les esprits. Lorsque le regard de Wang Lin passa de Lu Yuncong à Li Qianmei, Lu Yuncong poussa un soupir de soulagement. Il recula de plusieurs pas, l'expression sombre.
 
-Wang Lin observa calmement Li Qianmei. La culture de cette femme était insondable. Bien qu'elle dissimulât son niveau, Wang Lin pouvait percevoir qu'elle se situait au stade du Briseur de Nirvana.
+Wang Lin observa calmement Li Qianmei. La cultivation de cette femme était insondable. Bien qu'elle dissimulât son niveau, Wang Lin pouvait percevoir qu'elle se situait au stade du Briseur de Nirvana.
 
-« Qui est ce compagnon de culture ? » Les yeux de Wang Lin restaient calmes, mais son esprit s'activait.
+« Qui est ce compagnon de cultivation ? » Les yeux de Wang Lin restaient calmes, mais son esprit s'activait.
 
 Une brise légère souffla, faisant flotter quelques mèches de cheveux devant le visage de Li Qianmei. Elle les écarta derrière son oreille, regarda Wang Lin et dit doucement :
 
 « Secte Briseur de Ciel, Li Qianmei ! »
 
-L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement : « Pourquoi la Compagne de Culture Li est-elle venue ici ? »
+L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement : « Pourquoi la Compagne de Cultivation Li est-elle venue ici ? »
 
 Li Qianmei eut un petit rire et cligna des yeux avec un sourire. « Je suis venue poser trois questions à l'Aîné Frère afin d'apaiser les doutes de Qianmei. »
 
@@ -72,7 +72,7 @@ Wang Lin tourna son regard vers Lu Yuncong et demanda avec désinvolture : « Oh
 
 « Le ciel est une cage ! L'ouverture du puits est le ciel ! La surface de l'eau est le ciel ! » Les paroles de Lu Yuncong étaient posées, mais chargées d'assurance.
 
-Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement : « Qianmei a posé cette question à de nombreux compagnons de culture, mais l'Aîné Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il ? Ma question est-elle erronée ? »
+Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement : « Qianmei a posé cette question à de nombreux compagnons de cultivation, mais l'Aîné Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il ? Ma question est-elle erronée ? »
 
 Wang Lin regarda Li Qianmei et, après un long silence, demanda calmement : « Existe-t-il un ciel ? »
 

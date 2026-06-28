@@ -84,7 +84,7 @@ Wang Lin contemplait les montagnes et les rivières familières qui s'étendaien
 
 Au moment même où il s'évanouit, le vieil homme le rattrapa. Son expression était sombre et ses pupilles se contractèrent.
 
-« Déformation spatiale ! Je ne parvenais déjà plus à son niveau de culture, je ne m'attendais pas à ce qu'il maîtrise la Déformation Spatiale ! Cependant, c'est le domaine du Seigneur du Royaume Scellé, et de nombreux cultivateurs puissants y sont postés. Même avec une culture élevée, il ne pourra échapper à sa punition ! » Les yeux du vieil homme s'illuminèrent et son Sens Divin se déploya. Des ondulations apparurent sous ses pieds tandis qu'il utilisait lui aussi la Déformation Spatiale.
+« Déformation spatiale ! Je ne parvenais déjà plus à son niveau de cultivation, je ne m'attendais pas à ce qu'il maîtrise la Déformation Spatiale ! Cependant, c'est le domaine du Seigneur du Royaume Scellé, et de nombreux cultivateurs puissants y sont postés. Même avec une cultivation élevée, il ne pourra échapper à sa punition ! » Les yeux du vieil homme s'illuminèrent et son Sens Divin se déploya. Des ondulations apparurent sous ses pieds tandis qu'il utilisait lui aussi la Déformation Spatiale.
 
 Au pied du mont Heng Yue, à la lisière de la jungle, se trouvait un village de montagne.
 

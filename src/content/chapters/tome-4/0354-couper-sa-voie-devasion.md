@@ -92,7 +92,7 @@ Finalement, Wang Lin créa quatre fentes sur la boussole stellaire et y inséra 
 
 La lance de l'étendard de restriction, ses gravures du domaine temporel, le sceau noir et divers trésors anciens furent tous utilisés par Wang Lin. Bien qu'ils fussent inefficaces contre le vieil homme, la maîtrise que Wang Lin en acquérait devenait de plus en plus prodigieuse.
 
-Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
+Après tout, depuis le début de sa cultivation, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
 
 L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante via Xu Liguo, tant qu'elle se trouvait à moins de neuf mètres de lui.
 
@@ -102,7 +102,7 @@ La colère du vieil homme avait atteint ses limites. Une simple fourmi qu'il pou
 
 Il avait même abandonné l'idée de transformer Wang Lin en marionnette tatouée. S'il en avait l'occasion, il n'hésiterait pas une seconde à le mettre en pièces.
 
-Wang Lin sortit même les trois gaines d'épée et les utilisa l'une après l'autre. Bien que son niveau de culture n'ait pas progressé, sa maîtrise de ses trésors était désormais comparable au ciel et à la terre par rapport à auparavant.
+Wang Lin sortit même les trois gaines d'épée et les utilisa l'une après l'autre. Bien que son niveau de cultivation n'ait pas progressé, sa maîtrise de ses trésors était désormais comparable au ciel et à la terre par rapport à auparavant.
 
 Désormais, lorsqu'il utilisait un trésor magique, celui-ci se révélait encore plus puissant.
 

@@ -40,7 +40,7 @@ Le garçon marmonna : « Malheureusement, je ne peux pas ouvrir mon sac de range
 
 En ce moment critique, les yeux de Shegong Hu s'illuminèrent ; il se retourna pour cracher une boule de tonnerre de la taille d'un poing vers la fourmi qui le traquait. La boule de tonnerre rugit en fonçant sur l'insecte.
 
-Cependant, la différence entre leurs niveaux de culture était trop vaste. Juste au moment où le tonnerre atteignit la créature, celle-ci l'écrasa entre ses mandibules et la boule de tonnerre s'effondra.
+Cependant, la différence entre leurs niveaux de cultivation était trop vaste. Juste au moment où le tonnerre atteignit la créature, celle-ci l'écrasa entre ses mandibules et la boule de tonnerre s'effondra.
 
 Un rugissement tonitruant retentit, mais la fourmi ignora totalement l'impact et continua sa charge. Ses mandibules dégageaient une aura glaciale alors qu'elles se refermaient impitoyablement sur Shegong Hu.
 
@@ -62,9 +62,9 @@ Wang Lin émergea de la jungle derrière Shegong Hu. Le Sceau Céleste flottait 
 
 Wang Lin hocha la tête et son regard balaya le garçon à la grosse tête qui fuyait. Il dit froidement : « Tu veux encore t'enfuir ?! » D'un pas, il parcourut immédiatement des centaines de pieds. Le Sceau Céleste chargea directement.
 
-Le niveau de culture du garçon à la grosse tête était identique à celui de Wang Lin : le stade initial du Nirvana Scryer. Ayant été témoin de l'ascension de Wang Lin lors des trois épreuves, il éprouvait une peur immense envers lui et ne voulait pas le provoquer inutilement.
+Le niveau de cultivation du garçon à la grosse tête était identique à celui de Wang Lin : le stade initial du Nirvana Scryer. Ayant été témoin de l'ascension de Wang Lin lors des trois épreuves, il éprouvait une peur immense envers lui et ne voulait pas le provoquer inutilement.
 
-Son sourire idiot avait disparu et il cria rapidement : « Camarade cultivateur Xu Mu, je quitte simplement cette zone ! Pourquoi chercher la mort ? Nos niveaux de culture sont identiques ; si nous combattons, tu seras blessé. Ne donne pas d'opportunité à ce Xu Ting ! »
+Son sourire idiot avait disparu et il cria rapidement : « Camarade cultivateur Xu Mu, je quitte simplement cette zone ! Pourquoi chercher la mort ? Nos niveaux de cultivation sont identiques ; si nous combattons, tu seras blessé. Ne donne pas d'opportunité à ce Xu Ting ! »
 
 Le regard de Wang Lin restait glacial. En avançant, il leva la main. Un Coup Céleste se fusionna avec sa paume et il abattit son geste impitoyablement. L'expression du garçon changea radicalement. Alors qu'il reculait, la Fourmi Céleste Profonde poussa un rugissement et se posta devant lui pour faire écran. Au moment où le Coup Céleste toucha l'insecte, celui-ci s'effondra !
 

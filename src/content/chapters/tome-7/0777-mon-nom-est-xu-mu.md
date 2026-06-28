@@ -8,11 +8,11 @@ slug: mon-nom-est-xu-mu
 ---
 Les yeux de Li Yuan s'illuminèrent et il recula de quelques pas pour se replier dans l'obscurité de la cavité. Sa main gauche traça un sceau qu'il pointa ensuite entre ses sourcils. Des lignes noires jaillirent instantanément, se muant en restrictions qui se déployèrent autour de lui.
 
-Son niveau de culture n'était pas assez élevé pour apporter une aide directe, mais s'il disposait de suffisamment de temps pour poser ces restrictions, il pourrait garantir que personne ne puisse pénétrer dans la zone pendant un court laps de temps.
+Son niveau de cultivation n'était pas assez élevé pour apporter une aide directe, mais s'il disposait de suffisamment de temps pour poser ces restrictions, il pourrait garantir que personne ne puisse pénétrer dans la zone pendant un court laps de temps.
 
 Ainsi, il parvint à ouvrir une voie de retraite pour Wang Lin.
 
-Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé à Shengong Hu lorsqu'il avait perçu une infime trace du troisième niveau. Cependant, son regard débordait d'une confiance absolue, nourrie par son niveau de culture, le scellement de l'Ancêtre de Sang et l'exécution de deux cultivateurs de l'Illusoire Yin. C'était un regard qui semblait contenir l'univers tout entier.
+Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé à Shengong Hu lorsqu'il avait perçu une infime trace du troisième niveau. Cependant, son regard débordait d'une confiance absolue, nourrie par son niveau de cultivation, le scellement de l'Ancêtre de Sang et l'exécution de deux cultivateurs de l'Illusoire Yin. C'était un regard qui semblait contenir l'univers tout entier.
 
 L'homme d'âge moyen ricana. Lorsque Wang Lin tourna les yeux vers lui, ce dernier ne s'arrêta pas ; au contraire, il fit un pas de plus. Ce pas franchit des dizaines de pieds et il se dirigea droit sur Wang Lin.
 
@@ -56,7 +56,7 @@ Il ne réalisa même pas qu'il avait déjà franchi la limite des 10 000 pieds d
 
 Son cœur explosa. L'énergie originelle à l'intérieur de son corps devint incontrôlable et déchira brutalement son âme originelle.
 
-Le silence retomba totalement sur les lieux. Les yeux de Tang Yanfeng devinrent extrêmement prudents. Depuis le début de sa culture, très peu de personnes de son rang avaient réussi à inspirer une telle vigilance.
+Le silence retomba totalement sur les lieux. Les yeux de Tang Yanfeng devinrent extrêmement prudents. Depuis le début de sa cultivation, très peu de personnes de son rang avaient réussi à inspirer une telle vigilance.
 
 Au-delà de la prudence, il était profondément choqué. Bien qu'il eût pu tuer l'homme d'âge moyen sans difficulté, accomplir un tel acte par un simple regard et dix pas était prodigieux. Ce sortilège lui fit pousser un soupir de stupeur.
 
@@ -68,7 +68,7 @@ C'était comme si cette zone était un véritable territoire de la mort !
 
 Le regard de Wang Lin se détourna de l'homme mort pour se poser sur le jeune homme qui avait pénétré dans la zone interdite juste après lui.
 
-Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen ; il venait à peine d'atteindre le stade de l'Illusoire Yin et sa culture n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors des 10 000 pieds et s'exclama : « Aîné, je vous en prie, ne me blâmez pas ! Ce junior reconnaît ses torts. Désormais, ce junior ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, punissez-moi comme l'homme précédent ! »
+Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen ; il venait à peine d'atteindre le stade de l'Illusoire Yin et sa cultivation n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors des 10 000 pieds et s'exclama : « Aîné, je vous en prie, ne me blâmez pas ! Ce junior reconnaît ses torts. Désormais, ce junior ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, punissez-moi comme l'homme précédent ! »
 
 Tout en parlant, il leva la main gauche et activa son énergie originelle. Son petit doigt explosa instantanément en une brume de sang.
 
@@ -78,7 +78,7 @@ Le jeune homme poussa un soupir de soulagement, le cœur battant à tout rompre.
 
 Wang Lin ne da aucune attention aux autres personnes situées hors de la zone interdite. Il se détourna et marcha vers la cavité sombre où se trouvait Li Yuan.
 
-À ce moment précis, Tang Yanfeng lança soudainement : « Cher compagnon de culture, veuillez révéler votre nom ! »
+À ce moment précis, Tang Yanfeng lança soudainement : « Cher compagnon de cultivation, veuillez révéler votre nom ! »
 
 « Xu Mu ! » La voix de Wang Lin provint de l'intérieur de l'obscurité. Puis, une lumière jaillit de la formation, scellant définitivement l'entrée.
 

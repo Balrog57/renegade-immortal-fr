@@ -70,7 +70,7 @@ Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son cal
 
 « Quelle femme intelligente ! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Rudy.
 
-Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Origin signifiait soit chercher quelque chose ici, soit fuir des ennemis.
+Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de cultivation, se cacher dans la Secte Origin signifiait soit chercher quelque chose ici, soit fuir des ennemis.
 
 Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte Origin, il lui fallait une identité pour ne éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
 
@@ -80,7 +80,7 @@ Après réflexion, Wang Lin esquissa un sourire et murmura : « Lu Zihao… Cett
 
 La raison pour laquelle Wang Lin accordait tant d'importance à son identité résidait dans son expérience à Allheaven. Il ne l'avait pas remarqué alors, mais finalement, son identité était devenue transparente pour tous les puissants cultivateurs, ce qui lui avait causé de nombreux désagréments. Après tout, ils tendaient tous à rejeter ceux qui n'appartenaient pas à leur propre système.
 
-Avec son niveau de culture, gérer la question de son identité était complexe. Bien que cela ne résolve pas tout parfaitement, cela lui offrait une voie pour y parvenir.
+Avec son niveau de cultivation, gérer la question de son identité était complexe. Bien que cela ne résolve pas tout parfaitement, cela lui offrait une voie pour y parvenir.
 
 Ne pensant plus à cela, Wang Lin posa sa main droite sur le lotus noir ; son Sens Divin se déploya alors pour l'étudier. Si ce lotus n'était qu'un simple trésor, il ne lui accorderait pas tant d'attention. Cependant, en l'examinant avec son Sens Divin, il fut surpris de découvrir que ce lotus était une véritable plante. Quelques simples formations de lois servaient de sceau.
 
@@ -96,4 +96,4 @@ Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à 
 
 « Une aura d'extrême Yin !!! » Wang Lin se redressa brusquement, son calme rompu. Une vague monstrueuse d'émotion le frappa et il prit plusieurs inspirations profondes.
 
-« Malheureusement, ce n'est pas complet ; il n'y a qu'une trace d'extrême Yin. De plus, la méthode de culture est totalement erronée. Cela ne peut être comparé à l'extrême Yang créé par l'Omniscient en utilisant Bai Wei. Cet extrême Yin est bien trop médiocre en comparaison… Cependant, c'est tout de même une parcelle d'extrême Yin ! » Wang Lin toucha le point entre ses sourcils. Après que la Perle Défiant le Ciel eut été complétée par les cinq éléments, elle avait besoin du Yin et du Yang. Il avait obtenu la forme d'extrême Yang via Bai Wei, et il ne lui manquait plus que l'extrême Yin pour achever la Perle Défiant le Ciel une seconde fois !
+« Malheureusement, ce n'est pas complet ; il n'y a qu'une trace d'extrême Yin. De plus, la méthode de cultivation est totalement erronée. Cela ne peut être comparé à l'extrême Yang créé par l'Omniscient en utilisant Bai Wei. Cet extrême Yin est bien trop médiocre en comparaison… Cependant, c'est tout de même une parcelle d'extrême Yin ! » Wang Lin toucha le point entre ses sourcils. Après que la Perle Défiant le Ciel eut été complétée par les cinq éléments, elle avait besoin du Yin et du Yang. Il avait obtenu la forme d'extrême Yang via Bai Wei, et il ne lui manquait plus que l'extrême Yin pour achever la Perle Défiant le Ciel une seconde fois !

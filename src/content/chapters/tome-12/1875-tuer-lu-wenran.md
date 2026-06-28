@@ -20,19 +20,19 @@ Le corps de Wang Lin sembla s'animer. Tandis que les innombrables fils s'agitaie
 
 Une ombre gigantesque de Taureau Céleste apparut derrière Wang Lin. Ce taureau dégageait une aura défiant les cieux. Les yeux du taureau étaient également clos.
 
-Le niveau de culture de Wang Lin augmentait à une vitesse folle. Il empruntait la puissance de l'armure d'âme et, bien que ce ne fût que temporaire, cela lui procurait des avantages inimaginables.
+Le niveau de cultivation de Wang Lin augmentait à une vitesse folle. Il empruntait la puissance de l'armure d'âme et, bien que ce ne fût que temporaire, cela lui procurait des avantages inimaginables.
 
 Il atteignit directement le stade initial du Vide Arcane, faisant fi du fait qu'il lui manquait encore une essence !
 
-En moins d'un souffle après avoir atteint le stade initial du Vide Arcane, sa culture grimpa au stade médian du Vide Arcane !
+En moins d'un souffle après avoir atteint le stade initial du Vide Arcane, sa cultivation grimpa au stade médian du Vide Arcane !
 
 Immédiatement après, à une vitesse encore plus fulgurante, son aura atteignit le stade avancé du Vide Arcane, faisant fouetter ses cheveux sans qu'aucun vent ne souffle !
 
-Son niveau de culture continuait de croître, et tout cela se produisit en un éclair. Non seulement Lu Wenran était stupéfait, mais Yan Lu, Xu Dongde ainsi que les trois cultivateurs du stade initial de la Tribulation du Vide qui ne prenaient pas parti étaient tous sous le choc.
+Son niveau de cultivation continuait de croître, et tout cela se produisit en un éclair. Non seulement Lu Wenran était stupéfait, mais Yan Lu, Xu Dongde ainsi que les trois cultivateurs du stade initial de la Tribulation du Vide qui ne prenaient pas parti étaient tous sous le choc.
 
 Il ne fallait même pas mentionner les plus de 1 000 cultivateurs en contrebas. Tous fixaient Wang Lin avec incrédulité, témoins du miracle de celui qui avait obtenu l'armure d'âme !
 
-« Je ne peux pas le laisser continuer ! » La peur envahit Lu Wenran. Ses yeux devinrent rouges et il rugit comme un fou. Il se précipita et apparut devant Wang Lin. Son unique bras forma des sceaux alors qu'il déchaînait toute sa culture pour bombarder Wang Lin.
+« Je ne peux pas le laisser continuer ! » La peur envahit Lu Wenran. Ses yeux devinrent rouges et il rugit comme un fou. Il se précipita et apparut devant Wang Lin. Son unique bras forma des sceaux alors qu'il déchaînait toute sa cultivation pour bombarder Wang Lin.
 
 Des grondements de tonnerre résonnèrent et la lumière des sorts était aveuglante. Cependant, aucun d'eux ne put affecter Wang Lin. Ce dernier gardait toujours les yeux clos, laissant Lu Wenran déchaîner ses divers sorts.
 
@@ -44,7 +44,7 @@ Plus cela durait, plus la jalousie de Lu Wenran grandissait. Il continua de rugi
 
 « Wang Lin, cette armure d'âme est mienne ! Tu as volé mon armure, tu vas mourir d'une mort terrible ! »
 
-« Je vais te tuer, je vais te tuer ! » Lu Wenran ne réalisa même pas qu'il était possédé par ses démons intérieurs. Une telle chose ne devrait pas arriver compte tenu de son niveau de culture, mais tout cela était dû à ses attentes démesurées et au fait d'avoir vu ses espoirs s'effondrer sous ses yeux.
+« Je vais te tuer, je vais te tuer ! » Lu Wenran ne réalisa même pas qu'il était possédé par ses démons intérieurs. Une telle chose ne devrait pas arriver compte tenu de son niveau de cultivation, mais tout cela était dû à ses attentes démesurées et au fait d'avoir vu ses espoirs s'effondrer sous ses yeux.
 
 Tout ce qu'il avait accompli pour se préparer n'avait servi qu'à quelqu'un d'autre ! Un tel choc était insupportable, et face à la soudaineté de l'événement, il refusait de l'accepter.
 
@@ -58,7 +58,7 @@ Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu We
 
 « J'étais au Pill Sea et tu y étais aussi ! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser le Pill Sea afin d'obtenir de grands mérites ?! Si c'était moi, j'aurais pu le faire aussi ! »
 
-« Je suis au troisième méridien et tu y es également. Mon niveau de culture est supérieur au tien et je suis mon aîné. Cette armure d'âme m'appartient, de quel droit me la voles-tu ?! »
+« Je suis au troisième méridien et tu y es également. Mon niveau de cultivation est supérieur au tien et je suis mon aîné. Cette armure d'âme m'appartient, de quel droit me la voles-tu ?! »
 
 Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribulation du Vide, augmenta encore une fois.
 

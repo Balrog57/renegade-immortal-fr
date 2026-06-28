@@ -18,7 +18,7 @@ L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévou
 
 Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié.
 
-« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divin de l'Oiseau Vermillon...
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la cultivation du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divin de l'Oiseau Vermillon...
 
 À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Mon Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou ! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon ! »
 
@@ -72,7 +72,7 @@ L'automate arborait une expression figée ; ses yeux étaient vides, sans aucun 
 
 Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan des Scorpions Noirs qui fixèrent tous l'entrée avec effroi.
 
-L'activation du tatouage de tonnerre avait considérablement augmenté le niveau de culture de Wang Lin. Même son Sens Divin était devenu un véritable orage, chargé contre la couche de protection à l'intérieur de la marionnette.
+L'activation du tatouage de tonnerre avait considérablement augmenté le niveau de cultivation de Wang Lin. Même son Sens Divin était devenu un véritable orage, chargé contre la couche de protection à l'intérieur de la marionnette.
 
 Lorsque son Sens Divin percuta la barrière, un fracas de tonnerre retentit et la lumière commença à s'effondrer, incapable de résister à une telle puissance. Cependant, simultanément, le contenu interne commença également à se désintégrer, empêchant quiconque de voir le secret enfoui !
 
@@ -100,7 +100,7 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Grand Empereur des Terres Déchues... qui est donc cet individu ? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
 
-« Ancien du Clan des Scorpions, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu ! » Le vieil homme du Clan des Scorpions Noirs hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+« Ancien du Clan des Scorpions, guidez-moi vers la planète de cultivation la plus proche abritant un Ancien Déchu ! » Le vieil homme du Clan des Scorpions Noirs hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
 À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin : Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 

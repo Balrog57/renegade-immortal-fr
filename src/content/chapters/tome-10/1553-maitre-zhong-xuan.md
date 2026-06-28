@@ -102,7 +102,7 @@ La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira der
 
 « Tu as commis un péché monstrueux et engendré la catastrophe. Tu n'as plus non plus le cœur d'un cultivateur du Royaume Intérieur... Cependant, tu es mon disciple... J'ai une responsabilité envers les fautes de mon disciple... Ton Maître t'emmènera expier tes crimes... » Maître Long Pan regarda l'étonné Maître Zhong Xuan, puis s'inclina vers Wang Lin.
 
-« Seigneur du Royaume Scellé, j'assumerai la responsabilité de tous ses péchés ! » Il leva sa main droite et frappa sa poitrine. Maître Long Pan cracha une gorgée d'énergie d'origine essentielle et son teint devint terne. La planète de culture sous ses pieds vira instantanément au gris. La végétation se fana, les montagnes s'effondrèrent, les rivières s'évaporèrent et les ravins s'élargirent. La planète entière fut déchirée !
+« Seigneur du Royaume Scellé, j'assumerai la responsabilité de tous ses péchés ! » Il leva sa main droite et frappa sa poitrine. Maître Long Pan cracha une gorgée d'énergie d'origine essentielle et son teint devint terne. La planète de cultivation sous ses pieds vira instantanément au gris. La végétation se fana, les montagnes s'effondrèrent, les rivières s'évaporèrent et les ravins s'élargirent. La planète entière fut déchirée !
 
 Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour pénétrer dans le corps de Maître Long Pan. Simultanément, un Feu Éthéré commença à brûler en son sein.
 

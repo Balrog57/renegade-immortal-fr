@@ -84,7 +84,7 @@ Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzak
 
 Wang Lin s'assit au sommet d'une montagne sur la planète Suzaku. Il faisait face au vent hurlant qui fouettait ses cheveux et ses vêtements, le regard tourmenté.
 
-« À mesure que mon niveau de culture augmentait, j'ai progressivement percé les secrets de la planète Suzaku... Ainsi, c'est donc ainsi que les choses se passent. » Wang Lin leva les yeux vers le ciel sombre où s'amoncelaient des nuages noirs. Le tonnerre grondait au loin et la pluie commença à tomber.
+« À mesure que mon niveau de cultivation augmentait, j'ai progressivement percé les secrets de la planète Suzaku... Ainsi, c'est donc ainsi que les choses se passent. » Wang Lin leva les yeux vers le ciel sombre où s'amoncelaient des nuages noirs. Le tonnerre grondait au loin et la pluie commença à tomber.
 
 Un oiseau blanc battit précipitamment des ailes pour tenter d'échapper aux nuages sombres qui menaçaient sa vie. Cependant, un coup de tonnerre retentit et le corps de l'oiseau trembla tandis qu'il était englouti par les masses noires tourbillonnantes.
 

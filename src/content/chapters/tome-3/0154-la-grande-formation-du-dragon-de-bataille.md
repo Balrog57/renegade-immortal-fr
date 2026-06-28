@@ -20,9 +20,9 @@ Shang Guanmo observa attentivement avant de s'exclamer : « La Grande Formation 
 
 Mu Bei expliqua rapidement : « Cette Grande Formation du Dragon de Bataille est la formation de protection du Secte du Combat contre le Mal. La rumeur prétend que seuls des cultivateurs au niveau de l'Âme Naissante peuvent la briser, mais peu de membres du secte y croient. Après tout, personne dans cette région ne possède une formation aussi puissante. »
 
-Wang Lin possédait une certaine expertise en matière de formations et, après l'avoir examinée un instant, Li Muwan déclara soudain : « Ce n'est pas une formation, mais un sortilège incroyable qui canalise les âmes de tous ceux présents sur le dragon vers la personne située au sommet de sa tête, lui conférant ainsi un certain niveau de culture. »
+Wang Lin possédait une certaine expertise en matière de formations et, après l'avoir examinée un instant, Li Muwan déclara soudain : « Ce n'est pas une formation, mais un sortilège incroyable qui canalise les âmes de tous ceux présents sur le dragon vers la personne située au sommet de sa tête, lui conférant ainsi un certain niveau de cultivation. »
 
-À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit : « Cultivateur portant la marque de punition, je suis Jie Donglei, chef du Secte du Combat contre le Mal, entouré de mes 13 562 disciples. Puisque le Grand Ancien Qian Kun t'a provoqué, sa mort n'est pas un problème majeur, mais tu as eu l'audace de venir jusqu'ici. Si tu gagnes cette bataille, tout le Secte du Combat contre le Mal se soumettra à toi ; mais si tu perds, ne blâme pas ce vieil homme d'avoir pris la pilule de culture. Oses-tu relever le défi ? »
+À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit : « Cultivateur portant la marque de punition, je suis Jie Donglei, chef du Secte du Combat contre le Mal, entouré de mes 13 562 disciples. Puisque le Grand Ancien Qian Kun t'a provoqué, sa mort n'est pas un problème majeur, mais tu as eu l'audace de venir jusqu'ici. Si tu gagnes cette bataille, tout le Secte du Combat contre le Mal se soumettra à toi ; mais si tu perds, ne blâme pas ce vieil homme d'avoir pris la pilule de cultivation. Oses-tu relever le défi ? »
 
 Sa voix tonna comme le tonnerre et se propagea dans toute la zone. Les 13 562 disciples hurlèrent à l'unisson, créant une onde sonore qui fendit les nuages du ciel. Partant de la base du dragon pour remonter rapidement vers le sommet, plus de dix mille épées volantes brillèrent, formant des anneaux d'énergie spirituelle. Plus on s'élevait, plus ces anneaux étaient denses, et ceux du sommet dégageaient une pression écrasante.
 
@@ -38,7 +38,7 @@ Tous les anneaux convergèrent vers le vieil homme au sommet du dragon. Une aura
 
 Une énergie spirituelle colossale jaillit de l'homme comme des vagues océaniques, le propulsant directement du milieu du stade de Formation du Noyau au stade tardif de celui-ci. Puis, la progression continua, atteignant un niveau comparable à celui du début du stade de l'Âme Naissante, bien qu'il n'ait pas d'Âme Naissante.
 
-Ce stade de "pseudo-Âme Naissante" n'apparaissait normalement que chez les marionnettes créées par les nations de culture supérieure.
+Ce stade de "pseudo-Âme Naissante" n'apparaissait normalement que chez les marionnettes créées par les nations de cultivation supérieure.
 
 Jie Donglei poussa un rugissement et s'élança dans les airs. Il regarda froidement les cultivateurs de la Formation du Noyau et cria : « À moins d'être des déchets, dégagez ! »
 
@@ -96,6 +96,6 @@ Si c'était là son seul défaut, la technique restait extrêmement puissante. C
 
 Fort de cette réflexion, Wang Lin avait chargé jusqu'à trois cents pieds, puis reculé à cinq cents, sept cents, et enfin mille pieds, avant de découvrir le véritable défaut fatal de cette technique.
 
-Plus il s'éloignait de la tête du dragon, plus le niveau de culture du chef de secte chutait.
+Plus il s'éloignait de la tête du dragon, plus le niveau de cultivation du chef de secte chutait.
 
-L'expression de Jie Donglei était très troublante. Bien qu'il possède un tel niveau de culture, il ne pouvait pas réellement l'exploiter. Bien que la supposition de Wang Lin fût légèrement imprécise, elle n'était pas loin de la vérité. Son niveau de culture s'affaiblissait considérablement à neuf cents pieds, et à cette distance, ses chances de victoire étaient faibles. Et si Wang Lin reculait encore plus, au-delà de mille pieds, son niveau de culture chuterait immédiatement du stade de l'Âme Naissante pour retomber au stade de la Formation du Noyau.
+L'expression de Jie Donglei était très troublante. Bien qu'il possède un tel niveau de cultivation, il ne pouvait pas réellement l'exploiter. Bien que la supposition de Wang Lin fût légèrement imprécise, elle n'était pas loin de la vérité. Son niveau de cultivation s'affaiblissait considérablement à neuf cents pieds, et à cette distance, ses chances de victoire étaient faibles. Et si Wang Lin reculait encore plus, au-delà de mille pieds, son niveau de cultivation chuterait immédiatement du stade de l'Âme Naissante pour retomber au stade de la Formation du Noyau.

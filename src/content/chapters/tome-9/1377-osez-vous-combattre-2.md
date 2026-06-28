@@ -62,7 +62,7 @@ Lorsqu'il réapparut, Wang Lin se tenait déjà au sommet d'une montagne. D'un g
 
 Le regard de Wang Lin devint glacial et il eut un ricanement méprisant : « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Nirvana Scryer ! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas ma cruauté ! »
 
-Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de feu dans son œil gauche s'élança et une mer de flammes enveloppa immédiatement les 10 000 pilules.
+Il sourit et agita sa main droite, libérant son aura de cultivation. Le tatouage de feu dans son œil gauche s'élança et une mer de flammes enveloppa immédiatement les 10 000 pilules.
 
 « Raffine ! » ordonna Wang Lin, tandis que le feu virait au bleu. Sous cette chaleur intense, les Pilules d'Effondrement du Dragon commencèrent à éclater et à fondre.
 
@@ -94,7 +94,7 @@ Wang Lin agita la main droite et les Cristaux de Mutation de la Flamme Ardente q
 
 Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif d'Oiseau Vermillon apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes !
 
-« Cinquième niveau de Flétrissement Céleste, et alors ? Si vous venez avec votre avatar, je vous ferai périr ici même ! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue ! Même si personne ne m'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan de l'Hirondelle de Feu, ils viendront naturellement à ma rencontre ! »
+« Cinquième niveau de Flétrissement Céleste, et alors ? Si vous venez avec votre avatar, je vous ferai périr ici même ! Si vous venez avec votre corps originel en utilisant votre cultivation de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue ! Même si personne ne m'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan de l'Hirondelle de Feu, ils viendront naturellement à ma rencontre ! »
 
 Wang Lin laissa échapper un reniflement froid et le feu devant lui se rétracta. Tous les Cristaux de Mutation avaient été raffinés en un unique cristal bleu foncé. Il contenait non seulement l'essence du feu, mais portait aussi l'ombre d'un Oiseau Vermillon !
 

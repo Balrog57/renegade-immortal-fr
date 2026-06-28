@@ -16,7 +16,7 @@ Une fois le cristal brisé, une grande partie de son contenu serait perdue. De p
 
 Après avoir saisi le cristal, sans perdre un instant, il le porta vers son visage pour l'écraser contre son front. Cependant, avant qu'il ne puisse atteindre sa cible, une voix glaciale l'interrompit : « Si tu oses bouger, je te dévorerai pour accroître mes propres connaissances ! »
 
-Le bras droit du Magicien Démon Céleste trembla. Il connaissait trop bien cette voix. Il n'était pas étonnant que la restriction ait été si facilement brisée. Cet individu était l'un des dix généraux du maître de la Mer Sanguine. En termes de culture, il représentait déjà une puissance dépassant l'entendement des habitants du Système Stellaire Suzaku.
+Le bras droit du Magicien Démon Céleste trembla. Il connaissait trop bien cette voix. Il n'était pas étonnant que la restriction ait été si facilement brisée. Cet individu était l'un des dix généraux du maître de la Mer Sanguine. En termes de cultivation, il représentait déjà une puissance dépassant l'entendement des habitants du Système Stellaire Suzaku.
 
 On pouvait affirmer avec justesse que cet homme était un cultivateur antique qui n'était encore en vie aujourd'hui que grâce à des circonstances exceptionnelles.
 
@@ -44,7 +44,7 @@ Bien que le Magicien Démon Céleste eût le cœur déchiré, aucune trace de m�
 
 « Qu'est-ce que c'est ? » La voix de l'homme d'âge moyen était neutre, mais empreinte d'une dignité indescriptible. Il jeta un coup d'œil au cristal, sans parvenir à y déceler quoi que ce soit de spécial.
 
-Le Magicien Démon Céleste s'exécuta rapidement et respectueusement : « Seigneur Dou Mu, ce cristal de glace est issu de la culture de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris sous mon aile était d'utiliser sa culture pour accroître la mienne. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
+Le Magicien Démon Céleste s'exécuta rapidement et respectueusement : « Seigneur Dou Mu, ce cristal de glace est issu de la cultivation de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris sous mon aile était d'utiliser sa cultivation pour accroître la mienne. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
 
 L'homme d'âge moyen lança un regard au Magicien Démon Céleste, puis saisit le cristal entre deux doigts et dit froidement : « Vraiment ? » Tout en parlant, il exerça une légère pression. Le cristal de glace vola en éclats et se dissipa dans l'air environnant.
 

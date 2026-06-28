@@ -22,7 +22,7 @@ Après seulement dix respirations, la main géante devint presque solide, mais e
 
 Cette fois, l'Omniscient n'osa pas la poursuivre. Son visage était livide et son regard égaré. Son corps trembla et il cracha violemment une bouchée de sang.
 
-« J'ai eu tort... D'abord, je me suis trompé au sujet de Wang Lin, ce qui a provoqué l'apparition de cette chose... Puis, j'ai commis une seconde erreur, lui permettant d'engloutir encore plus... » L'Omniscient réfléchit en silence tout en retirant son trident pour retourner sur la planète Tian Yun. Sans aucune hésitation, il choisit de se retirer en culture fermée.
+« J'ai eu tort... D'abord, je me suis trompé au sujet de Wang Lin, ce qui a provoqué l'apparition de cette chose... Puis, j'ai commis une seconde erreur, lui permettant d'engloutir encore plus... » L'Omniscient réfléchit en silence tout en retirant son trident pour retourner sur la planète Tian Yun. Sans aucune hésitation, il choisit de se retirer en cultivation fermée.
 
 « Cette main illusoire n'avait aucune intention de tuer ; elle ne cherchait qu'à absorber. Une fois sa faim assouvie, elle est partie... Malheureusement, j'ai diviné la première moitié, mais pas la seconde. Cette main n'est pas une entité inanimée, c'est quelque chose contrôlé par un esprit... »
 
@@ -72,7 +72,7 @@ Simultanément, la main géante qui retenait Ling Tianhou se relâcha inopinéme
 
 Il ignorait que si l'Omniscient n'avait pas déjà trop perdu, il aurait été totalement dévoré.
 
-Pourtant, ces six respirations suffirent à la main pour absorber la majeure partie de la puissance de Ling Tianhou. Il laissa échapper un sourire amer et poussa un soupir. Il ignorait ce qui était arrivé à l'Omniscient, mais il prit la ferme résolution de ne plus sortir. Il devait se consacrer à une culture en isolement pour récupérer autant que possible.
+Pourtant, ces six respirations suffirent à la main pour absorber la majeure partie de la puissance de Ling Tianhou. Il laissa échapper un sourire amer et poussa un soupir. Il ignorait ce qui était arrivé à l'Omniscient, mais il prit la ferme résolution de ne plus sortir. Il devait se consacrer à une cultivation en isolement pour récupérer autant que possible.
 
 Quant à retrouver Wang Lin pour se venger, Ling Tianhou en avait trop peur. À peine l'idée lui traversa-t-elle l'esprit qu'il la chassa aussitôt.
 

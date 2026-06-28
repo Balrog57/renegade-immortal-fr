@@ -56,7 +56,7 @@ Au cours des centaines d'années passées à y ajouter des runes, le drapeau de 
 
 Ces 999 ensembles de restrictions étaient tous de type offensif et se révélaient extrêmement puissants lors de leur usage.
 
-Toutefois, à mesure que le niveau de culture de Wang Lin progressait, la puissance du drapeau commençait à montrer ses limites. Il cherchait déjà des moyens d'en accroître la force afin d'atteindre les 9 999 ensembles.
+Toutefois, à mesure que le niveau de cultivation de Wang Lin progressait, la puissance du drapeau commençait à montrer ses limites. Il cherchait déjà des moyens d'en accroître la force afin d'atteindre les 9 999 ensembles.
 
 Pourtant, augmenter la capacité du drapeau par un facteur de dix exigeait une quantité phénoménale de restrictions purement offensives. Même avec son savoir, Wang Lin n'en connaissait pas autant.
 
@@ -76,7 +76,7 @@ Pour lui, ce n'était plus une simple statue de pierre, mais un être entièreme
 
 Au moment même où Wang Lin perçut l'essence de la statue, toutes les pointes de la plateforme furent arrachées à leur racine par un nouveau martellement de la statue. Elles s'élancèrent dans les airs pour fondre sur lui telle une pluie de dagues.
 
-Avec le niveau de culture de Wang Lin, s'il avait utilisé des trésors magiques ou l'un de ses trois sorts mortels, il aurait brisé la statue bien plus vite. Mais son but n'était pas de vaincre par la force brute, mais de parvenir à une compréhension totale.
+Avec le niveau de cultivation de Wang Lin, s'il avait utilisé des trésors magiques ou l'un de ses trois sorts mortels, il aurait brisé la statue bien plus vite. Mais son but n'était pas de vaincre par la force brute, mais de parvenir à une compréhension totale.
 
 Aux yeux de Wang Lin, ces pointes qui volaient vers lui étaient elles aussi façonnées par des restrictions. Et tant qu'il s'agissait de restrictions, il n'avait aucune crainte. Il étudiait cet art depuis son stade de Formation du Noyau. Hormis les vieux monstres ayant vécu des dizaines de milliers d'années, personne ne pouvait égaler Wang Lin en matière de compréhension des restrictions !
 

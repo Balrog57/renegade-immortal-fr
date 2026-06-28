@@ -26,13 +26,13 @@ Nul ne pourrait dire laquelle serait la plus puissante avant la fin !
 
 Dans les temps anciens, les anciens cultivateurs aspiraient à devenir immortels. Pour eux, entrer dans le bassin céleste était un immense honneur. Leur énergie d'origine se transformerait en énergie d'origine céleste ! C'était l'objectif ultime des cultivateurs depuis l'Antiquité !
 
-Sans la culture du domaine, il n'y avait rien à comprendre. Toutes les augmentations de niveau de culture dépendraient alors des trésors célestes, de la culture céleste et des pilules célestes.
+Sans la cultivation du domaine, il n'y avait rien à comprendre. Toutes les augmentations de niveau de cultivation dépendraient alors des trésors célestes, de la cultivation céleste et des pilules célestes.
 
 Après l'effondrement du Royaume Céleste, les cultivateurs ne cherchèrent plus à devenir des êtres célestes, car le Royaume Céleste n'existait plus. À la place, leur voie était celle du Dao ! Car cultiver le Dao leur permettait d'atteindre l'illumination.
 
-La clé de la culture du Dao résidait dans la compréhension !
+La clé de la cultivation du Dao résidait dans la compréhension !
 
-Comprendre les cieux, soit pour s'y soumettre, soit pour les défier. Sans cette compréhension, il serait extrêmement difficile d'augmenter son niveau de culture.
+Comprendre les cieux, soit pour s'y soumettre, soit pour les défier. Sans cette compréhension, il serait extrêmement difficile d'augmenter son niveau de cultivation.
 
 À cet instant, ce qui se présentait devant Wang Lin et ces cultivateurs, c'étaient deux chemins. L'un consistait à choisir la voie ancienne, l'autre la voie actuelle.
 
@@ -60,7 +60,7 @@ Les yeux de Xu Ting brillaient comme des éclairs et une sensation de bien-être
 
 « Xu Mu, un jour nous nous battrons à nouveau ! » Xu Ting sortit du bassin céleste. Ses yeux étincelèrent alors qu'il lançait un regard à Wang Lin avant de détourner les siens.
 
-La performance de Xu Ting influença immédiatement l'esprit des cultivateurs indécis. Après lui, les cultivateurs entrèrent dans le bassin un par un. Ils poussèrent des cris de douleur avant que leur niveau de culture n'augmente de manière explosive. Une énergie spirituelle céleste dense émanait de leurs corps alors qu'ils sortaient lentement du bassin.
+La performance de Xu Ting influença immédiatement l'esprit des cultivateurs indécis. Après lui, les cultivateurs entrèrent dans le bassin un par un. Ils poussèrent des cris de douleur avant que leur niveau de cultivation n'augmente de manière explosive. Une énergie spirituelle céleste dense émanait de leurs corps alors qu'ils sortaient lentement du bassin.
 
 Tous ceux qui en sortirent étaient empreints de joie. Le sentiment de puissance et le contrôle absolu sur leurs sorts célestes leur firent oublier tout regret d'avoir choisi cette voie.
 
@@ -96,7 +96,7 @@ Il parvint tout juste à graver son nom. Une fois terminé, il eut l'impression 
 
 Wang Lin observa Xu Ting. Si ce dernier était si épuisé, c'était parce qu'une partie de son âme d'origine s'était détachée pour être absorbée par la pierre. Wang Lin devint immédiatement vigilant.
 
-Maître Flamespark hocha la tête. Quiconque pouvait graver son nom sur la pierre devait posséder une culture impressionnante. Il était très satisfait de Xu Ting ; cet homme brillerait certainement lors de la bataille contre le Système Stellaire de l'Alliance.
+Maître Flamespark hocha la tête. Quiconque pouvait graver son nom sur la pierre devait posséder une cultivation impressionnante. Il était très satisfait de Xu Ting ; cet homme brillerait certainement lors de la bataille contre le Système Stellaire de l'Alliance.
 
 Après Xu Ting, les 36 Célestes du Ciel s'avancèrent tous à leur tour. Cependant, hormis Nangong Han, le cultivateur aux six doigts et le garçon à la grosse tête, personne d'autre ne réussit à graver son nom.
 

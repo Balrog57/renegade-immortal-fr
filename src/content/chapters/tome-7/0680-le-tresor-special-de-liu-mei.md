@@ -12,7 +12,7 @@ Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brum
 
 Observant la brume, Wang Lin réfléchit un instant, puis l'écrasa.
 
-« Bien que ta culture ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton : gâcher les choses par un enthousiasme excessif. C'est là ta faiblesse fatale ! »
+« Bien que ta cultivation ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton : gâcher les choses par un enthousiasme excessif. C'est là ta faiblesse fatale ! »
 
 Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt, la silhouette de Liu Mei apparut au loin. Son visage était livide tandis qu'elle fixait Wang Lin. Ses yeux emplis de haine, elle siffla : « Tu es bel et bien Wang Lin, un être au cœur impitoyable. »
 
@@ -46,7 +46,7 @@ Pourtant, au moment où Wang Lin vit cette paire d'yeux, son esprit vacilla et u
 
 Le visage de Wang Lin était empreint de férocité lorsqu'il hurla à Liu Mei : « Qu'est-ce qui se cache là-dedans ?! »
 
-Liu Mei esquissa un sourire, bien que ses yeux fussent emplis de douleur. Elle regarda ensuite Wang Lin avec un sourire encore plus large : « Tu ne le reconnais pas ? Non, avec ta culture, tu devrais pourtant être capable de le reconnaître. »
+Liu Mei esquissa un sourire, bien que ses yeux fussent emplis de douleur. Elle regarda ensuite Wang Lin avec un sourire encore plus large : « Tu ne le reconnais pas ? Non, avec ta cultivation, tu devrais pourtant être capable de le reconnaître. »
 
 « Il existe une légende parmi les mortels. Si une personne perd plusieurs enfants, les âmes de ces derniers ne se dissipent pas ; elles te suivront et t'observeront toujours. Elles sembleront vouloir dire quelque chose, mais tu n'entendras rien. Ce n'est qu'au moment de ta mort que tu les entendras enfin te demander : "Papa, pourquoi ne veux-tu pas de moi..." »
 
@@ -100,7 +100,7 @@ Dès son apparition, l'aiguille encercla Liu Mei et bloqua la Formation d'Épée
 
 L'aiguille noire s'immobilisa soudainement. Alors qu'elle luttait pour bouger, Wang Lin fit un pas de plus et apparut devant Liu Mei. Sa main droite pressa impitoyablement entre ses sourcils.
 
-Liu Mei laissa échapper un gémissement misérable tandis qu'une masse de gaz noir s'échappait de son front. Elle recula aussitôt, les yeux remplis d'horreur. Bien que la culture de Wang Lin ne fût qu'au début du stade Ascendant, ses divers sorts et trésors étaient d'une puissance effrayante.
+Liu Mei laissa échapper un gémissement misérable tandis qu'une masse de gaz noir s'échappait de son front. Elle recula aussitôt, les yeux remplis d'horreur. Bien que la cultivation de Wang Lin ne fût qu'au début du stade Ascendant, ses divers sorts et trésors étaient d'une puissance effrayante.
 
 « Tu comptes fuir ? » Wang Lin fit un autre pas en avant, ses deux doigts formant une épée. Une partie du tonnerre contenu dans son âme originelle se condensa à l'extrémité de son doigt, prêt à arracher la vie de cette femme vile.
 

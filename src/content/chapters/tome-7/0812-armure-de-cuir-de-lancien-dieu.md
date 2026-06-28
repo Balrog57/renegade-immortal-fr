@@ -44,7 +44,7 @@ Sans même examiner les sillons au sol, Wang Lin s'avança et s'assit au centre 
 
 Depuis qu'il avait relâché la grenouille tonnerre et le moustique, il ne les avait pas rappelés, les laissant errer librement. Quant à Xu Liguo, Wang Lin n'avait guère de souci à se faire.
 
-C'était un lieu qu'il avait choisi pour sa culture. Après avoir nettoyé le terrain, il y avait disposé une formation de restriction. Avec la bête moustique et la grenouille tonnerre pour assurer la garde, il pouvait cultiver en relative sécurité.
+C'était un lieu qu'il avait choisi pour sa cultivation. Après avoir nettoyé le terrain, il y avait disposé une formation de restriction. Avec la bête moustique et la grenouille tonnerre pour assurer la garde, il pouvait cultiver en relative sécurité.
 
 Assis là, Wang Lin forma un sceau de sa main et l'écrasa sur la formation. Une lueur jaillit, puis tout disparut, remplacé par un tapis d'herbe uniforme. Peu importe la distance ou la proximité, personne ne pourrait deviner que cet endroit était une illusion ; même en y pénétrant, tout semblerait parfaitement normal.
 
@@ -60,9 +60,9 @@ Tout en réfléchissant, il toucha son sac de rangement et une armure de cuir ap
 
 Une flamme blanche surgit soudainement et enveloppa l'armure. Celle-ci ne montra aucun changement sous les flammes, mais Wang Lin ne s'arrêta pas pour autant et expulsa davantage d'énergie originelle.
 
-Le précédent propriétaire était très probablement Maître Sans Souci. Bien qu'il fût mort, sa culture était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
+Le précédent propriétaire était très probablement Maître Sans Souci. Bien qu'il fût mort, sa cultivation était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
 
-« Si dix mille ans de plus s'étaient écoulés, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu ! » Grâce à son niveau de culture, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
+« Si dix mille ans de plus s'étaient écoulés, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu ! » Grâce à son niveau de cultivation, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
 
 L'énergie originelle enveloppa l'armure tandis que le temps s'écoulait lentement. C'était un processus laborieux ; après tout, l'ancien propriétaire était extrêmement puissant, bien plus que l'actuel Wang Lin. Bien que le sens divin fût fragmenté, il ne pouvait être sous-estimé. Surtout qu'il avait évolué au fil des éons pour commencer à se transformer en un véritable esprit de trésor.
 

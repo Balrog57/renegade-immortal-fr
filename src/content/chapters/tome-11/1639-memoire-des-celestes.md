@@ -36,7 +36,7 @@ L'Ancien Doigt Immortel condensait la puissance des trois clans ancestraux en un
 
 Cette force de récupération était telle que Wang Lin pouvait la qualifier d'« immortelle ». Cela suffisait à montrer sa puissance ! « Immortelle » signifiait que la force de régénération pouvait compenser toute destruction provenant des cieux et de la terre. Ce n'est qu'à ce prix qu'elle pouvait être considérée comme immortelle !
 
-Avec son niveau de culture, Wang Lin ne pouvait rendre l'intégralité de son corps immortel ; il ne pouvait rendre immortel qu'un seul doigt !
+Avec son niveau de cultivation, Wang Lin ne pouvait rendre l'intégralité de son corps immortel ; il ne pouvait rendre immortel qu'un seul doigt !
 
 Cet Ancien Doigt Immortel était un sort puissant qu'il avait conçu en s'appuyant sur son expérience du Corps Céleste Immortel !
 

@@ -70,7 +70,7 @@ La planète Suzaku trembla violemment, comme si d'innombrables âmes maléfiques
 
 Le Maître Céleste Vide Dieu manipulait le corps de Wang Lin pour s'envoler. Bien qu'il ait pris le contrôle, il ne pouvait empêcher le corps de Wang Lin de continuer à s'effondrer et à se reformer.
 
-Toutefois, son niveau de culture étant bien supérieur à celui de Wang Lin, il parvint à supprimer de force ces effondrements pour les limiter à une échelle réduite.
+Toutefois, son niveau de cultivation étant bien supérieur à celui de Wang Lin, il parvint à supprimer de force ces effondrements pour les limiter à une échelle réduite.
 
 « Ce massacre touche à sa fin... » La voix antique du Maître Céleste Vide Dieu s'échappa de la bouche de Wang Lin. Il tourna son regard vers les deux concubines impériales célestes et l'homme en blanc qui sortaient de la glace.
 

@@ -8,7 +8,7 @@ slug: voyant-supreme-en-es-tu-capable
 ---
 Chapitre 1720 - Voyant Suprême, en es-tu capable ?
 
-Sur la planète de culture, le vent soufflait sur Wang Lin, mais il ne parvenait pas à dissiper le frisson qui lui glaçait le cœur. Il leva la tête et scruta l'horizon.
+Sur la planète de cultivation, le vent soufflait sur Wang Lin, mais il ne parvenait pas à dissiper le frisson qui lui glaçait le cœur. Il leva la tête et scruta l'horizon.
 
 Au loin, l'aura du Voyant Suprême devenait de plus en plus puissante, exhalant une arrogance manifeste. Aux yeux de Wang Lin, une ombre gigantesque semblait se dessiner dans la distance. Cette silhouette drapée dans une robe blanche dissimulait son corps, ne laissant apparaître qu'un regard dont les yeux fixaient intensément Wang Lin.
 
@@ -84,7 +84,7 @@ Wang Lin sourit calmement et dit d'une voix posée : « Voyant Suprême, je te l
 
 Le Voyant Suprême fixa Wang Lin longuement sans mot dire. Il ne montra aucun pouvoir du Dao Antique, car il ne le pouvait pas ! Le lignage du Dao Antique était une chose qu'il ne pouvait copier, et il utilisait ces morts mystérieuses pour masquer cette lacune. Il cherchait à perturber les pensées de Wang Lin !
 
-« Tu ne peux pas, tu n'en as pas la capacité. Toute ta mystique est un simulacre ! Penses-tu que je suis encore le même homme qu'à l'époque de la planète Tian Yun ? Crois-tu encore que je suis celui de la Terre des Esprits Démoniaques... Voyant Suprême, ton niveau de culture ne peut surpasser le mien, et ton lignage n'est pas aussi noble que le mien. Ton statut face au mien n'est que celui d'une fourmi. J'ai mené le Royaume Intérieur à la lutte contre le Royaume Extérieur tandis que tu te cachais dans l'ombre. Ma statue a été érigée dans le Royaume Céleste et sera vénérée durant des éons ; la tienne ne le sera jamais ! »
+« Tu ne peux pas, tu n'en as pas la capacité. Toute ta mystique est un simulacre ! Penses-tu que je suis encore le même homme qu'à l'époque de la planète Tian Yun ? Crois-tu encore que je suis celui de la Terre des Esprits Démoniaques... Voyant Suprême, ton niveau de cultivation ne peut surpasser le mien, et ton lignage n'est pas aussi noble que le mien. Ton statut face au mien n'est que celui d'une fourmi. J'ai mené le Royaume Intérieur à la lutte contre le Royaume Extérieur tandis que tu te cachais dans l'ombre. Ma statue a été érigée dans le Royaume Céleste et sera vénérée durant des éons ; la tienne ne le sera jamais ! »
 
 « J'ai créé le Royaume Céleste et je suis vénéré par d'innombrables cultivateurs. Toi, tu n'y parviendras jamais ! Même si tu es un maître de la manipulation, tu ne sais que jouer des tours dans l'obscurité. De quel droit joues-tu à ce jeu avec moi ? »
 

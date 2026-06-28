@@ -54,7 +54,7 @@ Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi
 
 Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'altitude, entourées d'une lueur émanant de leur surface. Simultanément, le sol continua de vibrer et plus de quarante tablettes plus petites s'envolèrent à huit cents pieds de hauteur. Le spectacle ne s'arrêta pas là : une centaine d'autres tablettes apparurent pour se stabiliser à cinq cents pieds, formant ainsi une gigantesque formation !
 
-Comme la plupart de ces cultivateurs avaient déjà participé à ces enchères, ils n'en furent pas surpris. Ils se dispersèrent et s'installèrent sur les différentes tablettes selon leur niveau de culture et leur statut.
+Comme la plupart de ces cultivateurs avaient déjà participé à ces enchères, ils n'en furent pas surpris. Ils se dispersèrent et s'installèrent sur les différentes tablettes selon leur niveau de cultivation et leur statut.
 
 Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position ; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Nirvana Shatterer, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
 

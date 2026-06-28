@@ -50,11 +50,11 @@ Mais il baissa rapidement la tête, faisant mine que de rien n'était.
 
 Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet instant, en le regardant, il ressentit l'esprit rebelle du jeune homme. Il afficha l'expression d'un Ancien admirant le talent d'un junior. Il eut l'impression de revoir son propre passé, une autre vie s'il n'avait pas renoncé à l'époque !
 
-Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois !
+Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la cultivation de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois !
 
 Quinze fois ! Cela surpassait tout le monde, faisant de Wang Lin celui qui avait frappé le plus de coups dans toute l'histoire du Pays Démon Céleste !
 
-Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration d'air glacial. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
+Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration d'air glacial. Sa cultivation, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
 
 Les spectateurs lucides ne regardaient plus Wang Lin avec choc, mais avec respect !
 
@@ -66,7 +66,7 @@ Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une ode
 
 À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité Démon Céleste !
 
-Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de culture défiant les cieux !
+Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de cultivation défiant les cieux !
 
 Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse des cieux elle-même ! Tous les habitants de la Cité Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
 

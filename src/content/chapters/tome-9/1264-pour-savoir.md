@@ -42,9 +42,9 @@ Pourtant, Mu Bingmei n'en avait pas fini ; elle n'avait pas encore livré toutes
 
 « Le domaine de la Secte des Cadavres a été découvert par Tuo Sen. Le roi de la Secte des Cadavres est tombé, laissant d'innombrables morts et blessés. La Secte des Cadavres a failli s'effondrer ! »
 
-« Les Quatre Sectes Divines ont subi d'innombrables pertes lors de l'avancée de Tuo Sen. Bien que la culture de l'Empereur Divin du Dragon Azure soit céleste, il n'a pas pu faire le poids... On ignore s'il est mort ou vivant ! »
+« Les Quatre Sectes Divines ont subi d'innombrables pertes lors de l'avancée de Tuo Sen. Bien que la cultivation de l'Empereur Divin du Dragon Azure soit céleste, il n'a pas pu faire le poids... On ignore s'il est mort ou vivant ! »
 
-« Tous les vestiges de l'Alliance de Culture ont été détruits et dispersés par Tuo Sen... Seul le Quartier Général de l'Alliance, pour une raison quelconque, n'a pas attiré son attention et est resté épargné ! »
+« Tous les vestiges de l'Alliance de Cultivation ont été détruits et dispersés par Tuo Sen... Seul le Quartier Général de l'Alliance, pour une raison quelconque, n'a pas attiré son attention et est resté épargné ! »
 
 Les pupilles de Wang Lin se rétractèrent. Le choc provoqué par ces nouvelles était immense, comme si un chariot de plusieurs tonnes fonçait droit sur lui.
 
@@ -52,9 +52,9 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 « Le Royaume Céleste de la Pluie, celui qui vous tenait le plus à cœur, n'a pas été endommagé. Tuo Sen s'y est rendu, mais il a été intercepté à l'extérieur par Qin Lin. Ils semblent avoir conclu un accord, et ensuite Tuo Sen est reparti. » Mu Bingmei se mordit la lèvre en parlant.
 
-« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de culture, il lui aurait été difficile d'échapper vivante... Le Royaume du Vide Brillant n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même le gardien est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
+« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de cultivation, il lui aurait été difficile d'échapper vivante... Le Royaume du Vide Brillant n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même le gardien est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
 
-« Mon niveau de culture a considérablement chuté. S'il me faut revenir à mon apogée, cela prendra du temps. »
+« Mon niveau de cultivation a considérablement chuté. S'il me faut revenir à mon apogée, cela prendra du temps. »
 
 Les vagues dans l'esprit de Wang Lin finirent par se calmer. Il s'était déjà préparé mentalement à l'apparition de Tuo Sen, mais les paroles de Mu Bingmei le laissèrent tout de même stupéfait.
 
@@ -98,7 +98,7 @@ C'était une dévoration et une absorption simultanées. Bien que Tuo Sen fût p
 
 L'expression de Wang Lin changea brusquement. Il fixa Mu Bingmei et demanda : « Savez-vous quand il est venu dans la Mer des Nuages ? »
 
-Mu Bingmei réfléchit un instant et répondit doucement : « Je ne connais pas l'heure exacte. J'étais en culture fermée pour restaurer mon corps, mais cela n'a probablement pas duré plus de cent ans. »
+Mu Bingmei réfléchit un instant et répondit doucement : « Je ne connais pas l'heure exacte. J'étais en cultivation fermée pour restaurer mon corps, mais cela n'a probablement pas duré plus de cent ans. »
 
 « Cent ans ! » Les yeux de Wang Lin brillèrent et il commença à méditer.
 

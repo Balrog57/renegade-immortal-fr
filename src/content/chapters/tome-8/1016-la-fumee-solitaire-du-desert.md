@@ -20,7 +20,7 @@ Il n'avait pas réussi à échapper aux sorts de la tour dans les Terres des Esp
 
 Son visage devint légèrement rouge. C'était le contrecoup de l'utilisation de l'Évasion Sanguine. L'énergie démoniaque résiduelle dans l'air se dissipa également.
 
-« Il y a une tour de démon dispersé ici... Et l'Ancien Démon Bei Lou était impatient d'arriver... La Céleste Fleur avait dit qu'après l'effondrement du Royaume Céleste, l'Empereur Céleste Qing Lin avait été gravement blessé. Puis, il fut pris au piège par deux étrangers et contraint à une culture en isolement ici ! »
+« Il y a une tour de démon dispersé ici... Et l'Ancien Démon Bei Lou était impatient d'arriver... La Céleste Fleur avait dit qu'après l'effondrement du Royaume Céleste, l'Empereur Céleste Qing Lin avait été gravement blessé. Puis, il fut pris au piège par deux étrangers et contraint à une cultivation en isolement ici ! »
 
 « Ces deux étrangers étaient probablement l'Ancien Démon Bei Lou et un ancien démon ! » Au moment où Wang Lin vit la tour noire, ce fut comme si un éclair traversait son esprit ; il fut soudainement illuminé.
 
@@ -32,7 +32,7 @@ Diverses pensées lui traversèrent l'esprit. Les yeux de Wang Lin brillèrent a
 
 Wang Lin fut soudainement éclairé ! Il le soupçonnait depuis longtemps, et la vue de la tour du démon dispersé n'avait fait que confirmer ses spéculations !
 
-« Un démon dispersé... Je ne sais pas si je peux combattre un démon dispersé avec mon niveau de culture actuel ! » L'énergie d'origine à l'intérieur de son corps s'agita pour apaiser les blessures causées par l'Évasion Sanguine.
+« Un démon dispersé... Je ne sais pas si je peux combattre un démon dispersé avec mon niveau de cultivation actuel ! » L'énergie d'origine à l'intérieur de son corps s'agita pour apaiser les blessures causées par l'Évasion Sanguine.
 
 Une hostilité profonde apparut sur son visage. Six mois d'attente et l'influence de l'énergie démoniaque avaient fait naître en lui une intention meurtrière implacable. Son apparence, en cet instant, était particulièrement féroce.
 
@@ -94,7 +94,7 @@ Les quatre dragons démoniaques le poursuivirent de près. Leurs têtes massives
 
 Une intention meurtrière embrasa les yeux de Wang Lin alors qu'il volait vers la tour noire, derrière les dragons. Cependant, il veillait à ne jamais dépasser les deux cents pieds d'altitude, tout comme ses poursuivants.
 
-La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa culture n'était qu'au stade initial de l'Observateur de Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément : « Seigneur Démon Déchu, sauvez-moi ! »
+La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa cultivation n'était qu'au stade initial de l'Observateur de Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément : « Seigneur Démon Déchu, sauvez-moi ! »
 
 À peine eut-il crié que sa vision s'obscurcit et qu'une douleur intense lui traversa le corps, lui faisant perdre connaissance.
 

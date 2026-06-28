@@ -32,7 +32,7 @@ Pourtant, à cet instant, des paroles incroyables qui stupéfièrent tous les sp
 
 « Cet homme vient de traverser des épreuves, il doit être blessé, et pourtant il ose se vanter de défier un expert de la troisième étape ? C’est tout simplement ridicule ! »
 
-« Je ne suis pas si sûr. Bien que sa culture ne puisse rivaliser avec celle d'un maître de la troisième étape, le choc des épreuves a porté son élan à son apogée. S'il ne se bat pas maintenant, il gaspillerait cette opportunité ! »
+« Je ne suis pas si sûr. Bien que sa cultivation ne puisse rivaliser avec celle d'un maître de la troisième étape, le choc des épreuves a porté son élan à son apogée. S'il ne se bat pas maintenant, il gaspillerait cette opportunité ! »
 
 « Hmph, un cultivateur de la troisième étape n'est pas de notre trempe. Je parie que Maître Simo n'aura besoin que d'un seul sort pour enseigner à ce troisième Jeune Empereur les conséquences de son arrogance ! »
 
@@ -110,7 +110,7 @@ Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent ; sa main droite prit 
 
 De loin, le spectacle était époustouflant !
 
-La paume de Maître Simo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa culture de la troisième étape, cette attaque pouvait annihiler toute forme de vie !
+La paume de Maître Simo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa cultivation de la troisième étape, cette attaque pouvait annihiler toute forme de vie !
 
 Le doigt de Wang Lin semblait porter neuf têtes de dragons entrelacées ; on aurait dit que ses propres membres étaient devenus le corps du dragon. Les neuf créatures rugissaient, enveloppées de flammes !
 

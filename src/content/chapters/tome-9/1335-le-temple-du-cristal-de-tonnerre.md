@@ -8,7 +8,7 @@ slug: le-temple-du-cristal-de-tonnerre
 ---
 On ne pouvait pas échanger des cristaux de tonnerre à tout moment au sein du Clan du Tonnerre Dispersé. Le Temple du Cristal de Tonnerre n'était ouvert que trois jours sur chacun des treize planètes du clan. L'échange de ces cristaux n'était possible que durant cette période.
 
-Pendant ces trois jours, la plupart des cultivateurs de la planète de culture se précipitaient pour échanger leurs ressources auprès de l'Ancien responsable. De même, ils pouvaient utiliser les cristaux de tonnerre pour acquérir divers trésors appartenant au Clan du Tonnerre Dispersé.
+Pendant ces trois jours, la plupart des cultivateurs de la planète de cultivation se précipitaient pour échanger leurs ressources auprès de l'Ancien responsable. De même, ils pouvaient utiliser les cristaux de tonnerre pour acquérir divers trésors appartenant au Clan du Tonnerre Dispersé.
 
 Cependant, au sein du clan, les cristaux de tonnerre ne pouvaient faire l'objet d'aucun commerce privé ni d'aucun transfert. Ils ne pouvaient être échangés qu'auprès du Temple du Cristal de Tonnerre. Malgré cette restriction, le Clan du Tonnerre Dispersé comptant une population immense, ils avaient naturellement trouvé un moyen de contourner la règle : ils échangeaient simplement des objets de valeur équivalente pour simuler l'usage des cristaux.
 
@@ -18,25 +18,25 @@ L'impossibilité de transférer ou d'échanger les cristaux de tonnerre en priv�
 
 Wang Lin se dirigea vers le Temple du Cristal de Tonnerre, accompagné de Big Red. Les deux se transformèrent en deux éclairs de lumière et fendirent rapidement le ciel.
 
-Le Temple du Cristal de Tonnerre était situé au centre de la planète, au sommet d'une montagne. Ce pic était le point culminant de la planète de culture et restait enveloppé d'un brouillard vert toute l'année. On ne pouvait s'y aventurer sans prudence ; quiconque pénétrait dans ce brouillard risquait d'être frappé par la foudre qui y résidait. Les conséquences allaient de graves blessures à une mort certaine.
+Le Temple du Cristal de Tonnerre était situé au centre de la planète, au sommet d'une montagne. Ce pic était le point culminant de la planète de cultivation et restait enveloppé d'un brouillard vert toute l'année. On ne pouvait s'y aventurer sans prudence ; quiconque pénétrait dans ce brouillard risquait d'être frappé par la foudre qui y résidait. Les conséquences allaient de graves blessures à une mort certaine.
 
 C'était un lieu interdit !
 
 Ce n'était que durant les trois jours d'ouverture que le brouillard vert se dissipait légèrement, révélant un passage pour les membres du Clan du Tonnerre Dispersé.
 
-Le Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de culture.
+Le Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de cultivation.
 
 Par exemple, Yu Fei n'avait jamais voyagé au-delà de 50 000 kilomètres. Bien que les habitants de ce rayon le connaissent, dès qu'il quittait la zone, il redevenait un inconnu. Il en allait de même pour Big Red.
 
-C'est pourquoi Wang Lin ne se souciait guère de son soudain changement de niveau de culture. Il leur fallut près d'un mois pour atteindre le centre, Wang Lin n'utilisant aucun sortilège.
+C'est pourquoi Wang Lin ne se souciait guère de son soudain changement de niveau de cultivation. Il leur fallut près d'un mois pour atteindre le centre, Wang Lin n'utilisant aucun sortilège.
 
 En volant, Big Red déployait toute sa force et utilisait sans cesse son art invincible pour flatter Wang Lin. Cependant, il ne se contentait pas de paroles ; il se montrait aussi très efficace. Souvent, un simple regard de Wang Lin suffisait pour qu'il sache exactement quoi faire. Tout au long du voyage, Big Red s'était montré d'une loyauté exemplaire.
 
-C'était là un point où Xu Liguo manquait par rapport à Big Red. Wang Lin n'avait d'ailleurs pu s'empêcher de lui donner quelques pilules supplémentaires et de lui signaler certains défauts dans sa culture.
+C'était là un point où Xu Liguo manquait par rapport à Big Red. Wang Lin n'avait d'ailleurs pu s'empêcher de lui donner quelques pilules supplémentaires et de lui signaler certains défauts dans sa cultivation.
 
 En conséquence, Big Red était devenu encore plus hardi. Sans même attendre les ordres de Wang Lin, dès qu'ils croisaient une cible propice au pillage, il chargeait violemment pour revenir avec une montagne d'objets à échanger, remettant tout à Wang Lin sans rien garder pour lui-même.
 
-« Maître, le domaine du Temple du Cristal de Tonnerre est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la culture de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours ; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Big Red. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
+« Maître, le domaine du Temple du Cristal de Tonnerre est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la cultivation de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours ; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Big Red. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
 
 Ces deux termes portaient des significations bien distinctes. Big Red estimait qu'« Aîné » le faisait toujours passer pour un étranger. En appelant Wang Lin « Maître », comme le faisait Xu Liguo, il avait l'impression de faire partie de la famille. Wang Lin n'avait pas refusé ce changement.
 

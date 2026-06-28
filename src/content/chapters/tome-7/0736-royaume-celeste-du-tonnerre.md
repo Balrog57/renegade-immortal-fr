@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 736 - Thunder Celestial Realm
 slug: royaume-celeste-du-tonnerre
 ---
-Chaque cultivateur possédant un fourneau de tonnerre était entraîné par son propre instrument. À moins qu'ils ne proviennent de la même planète de culture, la distance qui les séparait était bien trop grande pour qu'ils puissent se voir.
+Chaque cultivateur possédant un fourneau de tonnerre était entraîné par son propre instrument. À moins qu'ils ne proviennent de la même planète de cultivation, la distance qui les séparait était bien trop grande pour qu'ils puissent se voir.
 
 Lorsqu'ils regardaient autour d'eux, outre la lumière émanant de leurs propres corps, il n'y avait que l'obscurité.
 
@@ -14,7 +14,7 @@ Cependant, à cet instant précis, un puissant éclair traversa le vide tel une 
 
 Il passa instantanément devant plusieurs cultivateurs. L'impact de son passage fit vaciller la lumière autour d'eux, comme si leurs flammes étaient sur le point de s'éteindre.
 
-Tous ces cultivateurs provenaient de la même planète de culture, et leurs expressions changèrent radicalement. Lorsqu'ils focalisèrent leur regard dans cette direction, ils ne virent qu'un flash au loin avant qu'il ne disparaisse sans laisser de trace.
+Tous ces cultivateurs provenaient de la même planète de cultivation, et leurs expressions changèrent radicalement. Lorsqu'ils focalisèrent leur regard dans cette direction, ils ne virent qu'un flash au loin avant qu'il ne disparaisse sans laisser de trace.
 
 Il ne resta que la confusion et la terreur dans les yeux des cultivateurs.
 
@@ -44,7 +44,7 @@ Quant à cet éclair rouge sombre, il aurait été formé par les âmes de tous 
 
 À ce moment-là, plusieurs personnes étaient déjà assises en position du lotus sous cet éclair rouge sombre. Shengong Hu comptait parmi elles.
 
-Outre les messagers du Temple Céleste du Tonnerre, on trouvait quelques rares cultivateurs solitaires du Système Stellaire d'Allheaven. Dans un système régi par des familles de culture, les solitaires étaient peu nombreux. Sans un niveau de culture terrifiant pour se protéger, la survie était bien difficile.
+Outre les messagers du Temple Céleste du Tonnerre, on trouvait quelques rares cultivateurs solitaires du Système Stellaire d'Allheaven. Dans un système régi par des familles de cultivation, les solitaires étaient peu nombreux. Sans un niveau de cultivation terrifiant pour se protéger, la survie était bien difficile.
 
 Presque chaque cultivateur solitaire était une existence puissante.
 
@@ -106,7 +106,7 @@ Un silence de mort s'installa parmi les cultivateurs environnants.
 
 Personne ne remarqua qu'à cet instant, Shengong Hu avait baissé la tête, mais ses yeux étaient emplis de choc et d'une excitation indescriptible. En voyant passer cette météorite de tonnerre, il avait ressenti une trace de l'aura de son seigneur grâce à son âme dao.
 
-« Moi, Shengong Hu, je ne me suis pas trompé. Mon Senior est vraiment un être incroyable. Le tonnerre qu'il a attiré a atteint ce degré et a pu pénétrer le Royaume Céleste du Tonnerre avant même son ouverture. Une telle culture est vraiment... incroyable ! »
+« Moi, Shengong Hu, je ne me suis pas trompé. Mon Senior est vraiment un être incroyable. Le tonnerre qu'il a attiré a atteint ce degré et a pu pénétrer le Royaume Céleste du Tonnerre avant même son ouverture. Une telle cultivation est vraiment... incroyable ! »
 
 Un homme se tenait sur un pic couvert d'innombrables éclairs, sur un fragment du Royaume Céleste du Tonnerre encore fermé.
 

@@ -54,11 +54,11 @@ Il ne se dirigea pas vers la Terre Déchue.
 
 « Le Continent Astral Immortel n'est pas ma demeure, ma maison est ici... Ce départ est comme celui d'un enfant quittant son foyer. Un jour, je reviendrai ! » Wang Lin ouvrit les yeux, et son regard brilla d'une lueur intense.
 
-« Si je ne suis pas mort à mon retour, je résoudrai tous ces mystères ! » Avec son niveau de culture actuel, Wang Lin aurait pu explorer tout cela, mais il choisit de ne pas le faire. Il laissa ces mystères comme autant de souvenirs de sa patrie.
+« Si je ne suis pas mort à mon retour, je résoudrai tous ces mystères ! » Avec son niveau de cultivation actuel, Wang Lin aurait pu explorer tout cela, mais il choisit de ne pas le faire. Il laissa ces mystères comme autant de souvenirs de sa patrie.
 
 On pourrait dire qu'il s'agissait d'une forme d'obsession. Grâce à ces questions sans réponse, même si le passage du temps devait lui faire oublier tout le reste, il n'oublierait jamais sa maison.
 
-Plus d'une douzaine de rayons de lumière, menés par Wang Lin, traversèrent les étoiles. La culture de chacun étant élevée, ils se déplaçaient tels des météores. La vitesse de Li Qianmei était un peu plus lente, mais grâce à l'attention de Wang Lin, cela ne posait aucun problème.
+Plus d'une douzaine de rayons de lumière, menés par Wang Lin, traversèrent les étoiles. La cultivation de chacun étant élevée, ils se déplaçaient tels des météores. La vitesse de Li Qianmei était un peu plus lente, mais grâce à l'attention de Wang Lin, cela ne posait aucun problème.
 
 À quelques jours de l'échéance d'un mois, Wang Lin mena le groupe devant la porte, à Allheaven. La porte dorée dégageait des éclats de lumière divine et paraissait spectaculaire de loin.
 
@@ -104,7 +104,7 @@ La tête seule mesurait près de dix mille pieds. À ce stade, seul le haut du c
 
 « Ce dragon est l'une de mes neuf armes : l'Empereur Dragon ! Il provient des terres sauvages de la périphérie orientale du Continent Astral Immortel ! On y trouve d'innombrables bêtes féroces, et ce dragon était l'une des existences les plus souveraines !
 
-« Il possédait une culture au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme ! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner ! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
+« Il possédait une cultivation au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme ! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner ! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
 
 Le dragon poussa un rugissement et son corps jaillit du vide. 20 000 pieds, 30 000 pieds, 50 000 pieds... jusqu'à atteindre des centaines de milliers de pieds de long. Il apparut devant Xuan Luo avant de se rétracter rapidement pour devenir un fouet draconique couleur sang d'environ 1 000 pieds de long !
 

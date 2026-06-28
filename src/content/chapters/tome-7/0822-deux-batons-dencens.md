@@ -10,7 +10,7 @@ Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement le
 
 Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps céleste de Garde Corporelle Yang de Ta Shan.
 
-« Aîné, ayez pitié ; la culture de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
+« Aîné, ayez pitié ; la cultivation de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
 
 L'expression de Wang Lin resta glaciale tandis qu'il pressait sa main gauche sur l'âme originelle de l'homme. L'énergie originelle afflua dans sa paume et il commença à fouiller les souvenirs de l'âme.
 
@@ -20,7 +20,7 @@ Il sentait clairement que son âme était violemment sondée par une main gigant
 
 Sous le joug de cette souffrance, un regret infini l'envahit. Ce regret se propagea lentement à travers son âme originelle, provoquant sa dissipation progressive.
 
-Parfois, des milliers d'années de culture pouvaient s'évanouir en poussière à cause d'un seul mauvais choix...
+Parfois, des milliers d'années de cultivation pouvaient s'évanouir en poussière à cause d'un seul mauvais choix...
 
 Lorsque Wang Lin eut extrait les souvenirs de l'homme, son regard devint plus glacial encore. À cet instant, il était comme une épée à moitié dégainée, une intention meurtrière monstrueuse s'accumulant en lui.
 
@@ -76,13 +76,13 @@ Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura : « E
 
 Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux se plissèrent.
 
-« Je me trompe ; ils ne peuvent pas tous être de la famille Yao, sinon elle serait bien trop nombreuse. Il est probable que la famille Yao ait envoyé ses membres à travers le Système Stellaire, puis qu'ils aient contacté les planètes de culture voisines pour me débusquer rapidement ! »
+« Je me trompe ; ils ne peuvent pas tous être de la famille Yao, sinon elle serait bien trop nombreuse. Il est probable que la famille Yao ait envoyé ses membres à travers le Système Stellaire, puis qu'ils aient contacté les planètes de cultivation voisines pour me débusquer rapidement ! »
 
 Après avoir confirmé ses soupçons, l'intention meurtrière envahit Wang Lin qui grommela : « Cela faisait longtemps que je n'avais pas massacré personne... Je ne peux peut-être pas tuer les anciens, mais je tuerai les jeunes dès qu'ils se présenteront ! »
 
 L'intention meurtrière satura le corps de Wang Lin. Il n'avait jamais été un homme de bien. À cet instant, il était entouré de vingt-huit cultivateurs également portés par une soif de sang. Il était clair qu'ils étaient venus pour l'exécuter.
 
-D'un simple balayage de son Sens Divin, Wang Lin perçut clairement le niveau de culture des vingt-huit adversaires. Les sept sur la gauche étaient les plus faibles !
+D'un simple balayage de son Sens Divin, Wang Lin perçut clairement le niveau de cultivation des vingt-huit adversaires. Les sept sur la gauche étaient les plus faibles !
 
 Parmi ces sept rayons de lumière, quatre étaient des cultivateurs du Yin Illusoire et les trois restants étaient des cultivateurs au sommet de l'Ascendant, tous fonçant vers lui avec une intention meurtrière. Les ondulations autour de Wang Lin se propagèrent sur son corps alors qu'il fit un pas à gauche, le visage impassible.
 
@@ -104,7 +104,7 @@ Tout cela se produisit en un éclair : Wang Lin avait déjà tué quatre personn
 
 L'odeur du sang imprégna l'air. À cet instant, les trois autres groupes s'approchèrent rapidement de lui. Des cris et des rugissements emplirent le ciel étoilé tandis que divers trésors magiques et sorts étaient déchaînés contre lui.
 
-Les attaques les plus puissantes provenaient de trois individus. C'étaient des hommes âgés dont la culture n'était pas inférieure à celle de Wang Lin. L'un d'eux était même légèrement au-dessus de lui, ayant atteint le sommet du stade du Yang Corporel.
+Les attaques les plus puissantes provenaient de trois individus. C'étaient des hommes âgés dont la cultivation n'était pas inférieure à celle de Wang Lin. L'un d'eux était même légèrement au-dessus de lui, ayant atteint le sommet du stade du Yang Corporel.
 
 Quelle que soit la force de Wang Lin, si les assauts de plus de vingt cultivateurs l'atteignaient, il serait gravement blessé, sinon mort. Pourtant, son regard restait calme. Ses yeux étaient glacials et l'intention meurtrière en lui ne cessait de croître.
 

@@ -52,13 +52,13 @@ Dans un craquement sinistre, les yeux de Teng Nine faillirent sortir de leurs or
 
 Un rayon de lumière rouge jaillit du front de Teng Nine. Il tenta de s'échapper, mais fut promptement capturé par Wang Lin et jeté dans le drapeau des âmes.
 
-Wang Lin laissa tomber le corps de Teng Nine sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il aurait la puissance de fonder sa propre secte et ne craindrait personne, même des êtres ayant un niveau de culture supérieur au sien.
+Wang Lin laissa tomber le corps de Teng Nine sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il aurait la puissance de fonder sa propre secte et ne craindrait personne, même des êtres ayant un niveau de cultivation supérieur au sien.
 
 Le problème était que les âmes capables d'être transformées en démons étaient bien trop rares. En quatre cents ans, outre Teng Nine, il n'en avait trouvé que trois.
 
 Xu Liguo était un être artificiel, il présentait donc de nombreux défauts. S'il n'avait pas acquis une intelligence qui le distinguait des autres démons, Wang Lin l'aurait déjà tué pour nourrir ses créations.
 
-Wang Lin s'était montré très satisfait du deuxième démon dès le début, car il était féroce et puissant. Mais à mesure que sa propre culture progressait, le second démon ne parvint pas à suivre et perdit de sa superbe.
+Wang Lin s'était montré très satisfait du deuxième démon dès le début, car il était féroce et puissant. Mais à mesure que sa propre cultivation progressait, le second démon ne parvint pas à suivre et perdit de sa superbe.
 
 Le troisième démon avait été créé à partir de l'esprit du singe ; bien que puissant, il manquait de férocité.
 
@@ -80,7 +80,7 @@ C'était la raison pour laquelle Teng Huit retournait à la Cité de la Famille 
 
 En volant, il déployait son sens divin afin de pouvoir réagir au moindre mouvement d'un brin d'herbe. Pourtant, Teng Huit ne croyait pas que le tueur des membres de sa famille oserait l'affronter. Après tout, les membres les plus puissants exécutés n'étaient qu'au stade de la Formation du Noyau.
 
-Teng Huit était convaincu qu'il aurait pu tous les éliminer lui aussi. Après tout, il se trouvait au stade intermédiaire de l'Âme Naissante. Avec son niveau de culture, il pouvait parcourir le pays de Zhao à sa guise.
+Teng Huit était convaincu qu'il aurait pu tous les éliminer lui aussi. Après tout, il se trouvait au stade intermédiaire de l'Âme Naissante. Avec son niveau de cultivation, il pouvait parcourir le pays de Zhao à sa guise.
 
 Bien qu'il ne fût pas de taille face aux vieux monstres du stade tardif de l'Âme Naissante, il ne les craignait pas. Dans tout le royaume de Zhao, il n'avait peur que de deux personnes.
 
@@ -94,7 +94,7 @@ Alors qu'il volait, le regard de Teng Huit devint plus grave tandis que le ciel 
 
 Le cœur de Teng Huit manqua un battement. Il faut dire que son sens divin était déployé en permanence, et pourtant il n'avait absolument pas remarqué ce jeune homme. Cela ne pouvait signifier qu'une chose : le sens divin de cet inconnu surpassait largement le sien.
 
-Mais un sens divin puissant ne garantissait pas nécessairement une culture ou des techniques supérieures. Ainsi, sans hésiter, Teng Huit frappa son sac de rangement et des épées volantes en jaillirent. Elles se succédaient avec une telle abondance que son sac semblait sans fond.
+Mais un sens divin puissant ne garantissait pas nécessairement une cultivation ou des techniques supérieures. Ainsi, sans hésiter, Teng Huit frappa son sac de rangement et des épées volantes en jaillirent. Elles se succédaient avec une telle abondance que son sac semblait sans fond.
 
 Alors que les épées s'élançaient l'une après l'autre, le jeune homme ne fit rien. Son regard provoqua chez Teng Huit un sentiment de dégoût extrême.
 
@@ -114,11 +114,11 @@ Au moment où il tombait, l'âme dévoreuse de Wang Lin s'empara de l'Âme Naiss
 
 Depuis l'apparition de Wang Lin, peu de temps s'était écoulé. La majeure partie de ce laps de temps avait été occupée par les cris de Teng Huit. Une fois son âme récupérée, Wang Lin n'hésita pas et chargea vers sa prochaine cible.
 
-Teng Six n'était plus un jeune homme. Il y a deux cents ans, il était déjà un membre important de la famille Teng, mais avait perdu son titre lors d'un défi. Par chance, il ne mourut pas et se retira pour des années de culture en vase clos. À sa sortie, il s'était rendu là où le Teng Six de l'époque pratiquait sa culture pour tuer le challenger qui l'avait autrefois vaincu. Tout cela avait été fait sans l'autorisation de Teng Huayuan.
+Teng Six n'était plus un jeune homme. Il y a deux cents ans, il était déjà un membre important de la famille Teng, mais avait perdu son titre lors d'un défi. Par chance, il ne mourut pas et se retira pour des années de cultivation en vase clos. À sa sortie, il s'était rendu là où le Teng Six de l'époque pratiquait sa cultivation pour tuer le challenger qui l'avait autrefois vaincu. Tout cela avait été fait sans l'autorisation de Teng Huayuan.
 
 Par la suite, bien qu'il eût subi une punition de la part de Teng Huayuan, il conserva son nom de Teng Six.
 
-Bien que son niveau de culture ne fût que celui de l'Âme Naissante, sa méthode lui permettait de transformer l'aura meurtrière. C'était grâce à cette capacité que Teng Huayuan lui avait permis de garder sa position.
+Bien que son niveau de cultivation ne fût que celui de l'Âme Naissante, sa méthode lui permettait de transformer l'aura meurtrière. C'était grâce à cette capacité que Teng Huayuan lui avait permis de garder sa position.
 
 Mais aujourd'hui, la lignée des Teng Six allait s'éteindre. À partir de ce jour, il n'y aurait plus jamais d'autre Teng Six.
 
@@ -158,7 +158,7 @@ Alors que Teng Huayuan arrivait, le nuage noir dans le ciel bougea pour former u
 
 Il regarda froidement Teng Huayuan, esquissa un sourire cruel et disparut.
 
-Le niveau de culture de Teng Four n'était pas élevé ; il n'était qu'au stade initial de l'Âme Naissante, ayant reçu sa position de membre central de la famille il y a seulement vingt ans.
+Le niveau de cultivation de Teng Four n'était pas élevé ; il n'était qu'au stade initial de l'Âme Naissante, ayant reçu sa position de membre central de la famille il y a seulement vingt ans.
 
 Actuellement, il planait sur une épée volante à toute allure. Il était accablé par le chagrin face aux membres de sa famille tombés au combat ; l'un d'eux était son propre frère cadet.
 

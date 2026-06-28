@@ -10,7 +10,7 @@ Lorsque Wang Lin ouvrit les yeux, une ombre en forme d'épée traversa sa vision
 
 Mo Lihai était assis devant la chambre de Wang Lin ; il y était installé depuis trois jours. Son visage était extrêmement pâle, dénué de toute trace de sang. Durant ces trois jours, il avait voulu entrer dans la pièce de Wang Lin à maintes reprises, mais chaque fois qu'il apercevait le brouillard noir et les innombrables restrictions qui l'entouraient, il ne pouvait s'empêcher de reculer.
 
-Alors que la date du concours des généraux démoniaques approchait, son anxiété grandissait, mais il savait que Wang Lin avait posé ces restrictions car il traversait un moment crucial de sa culture et ne souhaitait nullement être dérangé.
+Alors que la date du concours des généraux démoniaques approchait, son anxiété grandissait, mais il savait que Wang Lin avait posé ces restrictions car il traversait un moment crucial de sa cultivation et ne souhaitait nullement être dérangé.
 
 Pesant le pour et le contre, Mo Lihai resta assis devant la porte et attendit en silence. Demain serait le jour du concours des généraux démoniaques, et ce serait une lutte acharnée !
 
@@ -38,7 +38,7 @@ Le sentiment de Mo Lihai changea à nouveau. Si Wang Lin ressemblait auparavant 
 
 Mo Lihai prit une profonde inspiration et dit : « J'ai perdu le combat contre Mo Fei ! »
 
-Wang Lin hocha la tête et sortit de la pièce. Il leva les yeux vers le ciel et, après une courte réflexion, demanda : « Combien de temps suis-je resté en culture de retraite ? »
+Wang Lin hocha la tête et sortit de la pièce. Il leva les yeux vers le ciel et, après une courte réflexion, demanda : « Combien de temps suis-je resté en cultivation de retraite ? »
 
 « Demain a lieu le concours des généraux démoniaques ! » répondit Mo Lihai. Après un instant de réflexion, il ajouta : « Mo Fei est extrêmement puissant. Il a pu résister à mon Intention du Poing de l'Effondrement des Dix, et ma Mer Démoniaque aux Cent Vagues a été renvoyée contre moi par un sort de disque rotatif. C'est ce sort qui m'a fait perdre ! »
 
@@ -102,9 +102,9 @@ Bientôt, tous les sièges furent occupés, à l'exception de ceux de l'Empereur
 
 « Cette fois, le Général Démon Mo Fei sera sans aucun doute classé premier ; il n'y aura aucun suspense ! »
 
-« Pas si sûr ; le Général Démon Shi Xiao possède une culture céleste. Il a aussi trouvé un assistant incroyable, alors Shi Xiao a toutes les chances de lutter pour la première place ! »
+« Pas si sûr ; le Général Démon Shi Xiao possède une cultivation céleste. Il a aussi trouvé un assistant incroyable, alors Shi Xiao a toutes les chances de lutter pour la première place ! »
 
-« Ne sous-estimez pas le Général Démon Mo Lihai. Sa culture est stupéfiante et il possède des sorts puissants. N'oublions pas le sort qu'on lui a personnellement enseigné par l'Empereur Démon. Il a toutes les chances de figurer dans le top trois ! »
+« Ne sous-estimez pas le Général Démon Mo Lihai. Sa cultivation est stupéfiante et il possède des sorts puissants. N'oublions pas le sort qu'on lui a personnellement enseigné par l'Empereur Démon. Il a toutes les chances de figurer dans le top trois ! »
 
 « Mo Lihai ? Vous ne le savez peut-être pas, mais il a affronté Mo Fei et a perdu. Les deux parties ont convenu que le perdant ne pourrait pas participer à la compétition aujourd'hui ! »
 

@@ -14,7 +14,7 @@ Hélas, Tu Si échoua et ce trident se perdit dans le flux du temps.
 
 Après que l'All-Seer l'eut obtenu, il put en utiliser la puissance, mais ne parvint pas à activer ses capacités. Seul un ancien dieu pouvait libérer son véritable pouvoir !
 
-Bien que le niveau de culture de Wang Lin fût inférieur à celui de l'All-Seer, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoraison de sorts !
+Bien que le niveau de cultivation de Wang Lin fût inférieur à celui de l'All-Seer, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoraison de sorts !
 
 Les trois dragons étaient des dragons dévoreurs. La Restriction de la Vie et de la Mort fut dévorée et devint un sort du trident. La restriction s'élança et fusionna avec les dragons noirs alors qu'ils se précipitaient vers l'épée cristalline Pseudo-Nirvana Void.
 

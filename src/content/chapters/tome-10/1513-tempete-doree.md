@@ -48,7 +48,7 @@ La tempête dorée grondait. Elle était sur le point de se propager et d'effond
 
 Le brouillard stellaire s'était déjà dispersé et d'innombrables bêtes féroces poussaient des cris plaintifs. Ayant acquis une certaine intelligence, elles comprirent qu'une force irrésistible était sur le point de déferler. Peu importait la robustesse de leurs corps, elles seraient balayées !
 
-De nombreuses planètes de culture tremblèrent. Les innombrables mortels de la Mer Nuageuse mourraient en un instant !
+De nombreuses planètes de cultivation tremblèrent. Les innombrables mortels de la Mer Nuageuse mourraient en un instant !
 
 Le visage des cultivateurs pâlit. C'était l'apocalypse, et leurs esprits restaient totalement vides de pensée !
 

@@ -58,7 +58,7 @@ Les yeux du Daoïste Water étaient déjà vitreux et il fut projeté au loin. L
 
 Dans son ultime moment de lucidité, le Daoïste Water hurla son dernier atout !!
 
-« Je suis lié à Mu Bingmei, me tuer revient à la tuer !! Elle est ta femme ! Tue-moi !! Tue-moi !! Si tu me tues, Mu Bingmei mourra !! Ce vieil homme s'est préparé depuis longtemps. Cette stupide Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa culture et lui a donné des pilules pour que nos âmes soient liées ! »
+« Je suis lié à Mu Bingmei, me tuer revient à la tuer !! Elle est ta femme ! Tue-moi !! Tue-moi !! Si tu me tues, Mu Bingmei mourra !! Ce vieil homme s'est préparé depuis longtemps. Cette stupide Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa cultivation et lui a donné des pilules pour que nos âmes soient liées ! »
 
 « À quoi bon cette cloche dorée ? Elle est mon véritable talisman !! » rit le Daoïste Water en agitant son bras droit restant. Le monde se distordit et une scène apparut.
 
@@ -76,7 +76,7 @@ Elle sourit, mais ce sourire était empreint de mort... « Je sais que tu m'as t
 
 « Je sais qu'il n'y aura rien entre nous. À cause de l'existence de Ping Er, nous ne pourrons être que les plus familiers des étrangers... Je sais... Je sais... »
 
-« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction du Vide Brillant, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma culture se rétablit, et alors ? Et alors si je suis la Sainte de la Lumière... Je veux juste voir mon enfant, mais je ne peux pas... »
+« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction du Vide Brillant, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma cultivation se rétablit, et alors ? Et alors si je suis la Sainte de la Lumière... Je veux juste voir mon enfant, mais je ne peux pas... »
 
 « Notre relation est un destin funeste, une épine dans ton cœur... Tu ne le diras pas, mais je le sais... »
 

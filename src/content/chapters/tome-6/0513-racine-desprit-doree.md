@@ -8,7 +8,7 @@ slug: racine-desprit-doree
 ---
 Wang Lin pressa le Fruit Doré contre son front, et celui-ci s'enfonça en lui. Après un moment, il afficha une expression de déception et relâcha sa main.
 
-« J'ai été trop impatient. Comment l'achèvement de la perle défiant le ciel pourrait-il être aussi simple ? Sept cents ans de culture, et malgré ma chance, je n'ai pu compléter que quatre des éléments. Chaque accomplissement était semé d'embûches, je suppose que l'achèvement de ce dernier élément métallique ne sera pas non plus une mince affaire... Je me demande seulement si cette Racine d'Esprit Dorée aura un quelconque effet. »
+« J'ai été trop impatient. Comment l'achèvement de la perle défiant le ciel pourrait-il être aussi simple ? Sept cents ans de cultivation, et malgré ma chance, je n'ai pu compléter que quatre des éléments. Chaque accomplissement était semé d'embûches, je suppose que l'achèvement de ce dernier élément métallique ne sera pas non plus une mince affaire... Je me demande seulement si cette Racine d'Esprit Dorée aura un quelconque effet. »
 
 Wang Lin soupira intérieurement, puis il tendit la main et environ une douzaine de Fruits Dorés s'envolèrent dans les airs.
 

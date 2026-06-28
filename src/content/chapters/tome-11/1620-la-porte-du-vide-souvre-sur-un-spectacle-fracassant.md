@@ -42,11 +42,11 @@ La Porte du Vide s'était effondrée. Lors de sa chute, un vortex géant apparut
 
 Cependant, les yeux de Wang Lin s'illuminèrent et il agita ses manches. Une force puissante repoussa l'énergie de la Porte du Vide à l'intérieur du vortex.
 
-Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de culture augmenta considérablement. Il dépassa les sommets de Nirvana Shatterer et de Heaven's Blight pour atteindre directement le troisième stade. Il atteignit le stade initial du Nirvana Void !
+Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de cultivation augmenta considérablement. Il dépassa les sommets de Nirvana Shatterer et de Heaven's Blight pour atteindre directement le troisième stade. Il atteignit le stade initial du Nirvana Void !
 
-Pourtant, ce n'était pas là le véritable niveau de culture de Wang Lin, mais une aura. L'aura d'un véritable cultivateur du troisième stade !
+Pourtant, ce n'était pas là le véritable niveau de cultivation de Wang Lin, mais une aura. L'aura d'un véritable cultivateur du troisième stade !
 
-Si Wang Lin l'avait voulu, il lui suffisait d'absorber la puissance de la Porte du Vide pour que son niveau de culture corresponde à son aura ! Il serait immédiatement devenu un cultivateur du stade initial du Nirvana Void !
+Si Wang Lin l'avait voulu, il lui suffisait d'absorber la puissance de la Porte du Vide pour que son niveau de cultivation corresponde à son aura ! Il serait immédiatement devenu un cultivateur du stade initial du Nirvana Void !
 
 Toutefois, en faisant cela, il n'atteindrait que le stade initial du Nirvana Void grâce à l'essence du tonnerre. Wang Lin ne voulait pas d'un tel niveau. Il avait enduré tant de choses pour compléter six essences ; s'il ne parvenait qu'au stade initial du Nirvana Void, il ne serait pas satisfait !
 

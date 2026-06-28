@@ -80,7 +80,7 @@ Wang Lin ouvrit les yeux, et la folie qui y brillait s'intensifia. Une intention
 
 Au sein du Clan Ancien, le pouvoir impérial était absolu et la parole de l'Empereur du Dao Ancien faisait loi. À leurs yeux, Wang Lin trahissait le clan et devait périr !
 
-Face à la fureur de la foule qui se ruait sur lui, Wang Lin avança, provoquant des grondements tonitruants. Quiconque tentait de barrer sa route, quels que soient son rang ou son niveau de culture, s'effondrait en un amas de chair et de sang.
+Face à la fureur de la foule qui se ruait sur lui, Wang Lin avança, provoquant des grondements tonitruants. Quiconque tentait de barrer sa route, quels que soient son rang ou son niveau de cultivation, s'effondrait en un amas de chair et de sang.
 
 En un instant, d'innombrables vies furent fauchées, mais la foule ne faiblissait pas. Même certains membres des deux autres clans décidèrent de charger Wang Lin.
 

@@ -100,7 +100,7 @@ Une voix majestueuse résonna à l'intérieur du Fourneau Impérial. L'Estimé L
 
 Il s'arrêta à cent pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave ! »
 
-Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement : « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape ! »
+Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement : « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de cultivation, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape ! »
 
 L'Estimé Ling Dong leva brusquement la tête, les yeux brillants d'ardeur. Il avait cultivé toute sa vie pour devenir un cultivateur de la troisième étape, mais le manque de Flammes Joss l'en avait empêché. Sans compter qu'il était sous l'influence du Dao des Rêves de Wang Lin et du Fourneau Impérial, si Wang Lin lui offrait une telle fortune, il serait prêt à le suivre même sans aucune influence !
 

@@ -8,7 +8,7 @@ slug: inclinez-vous-devant-moi
 ---
 Chapitre 619 - Inclinez-vous devant moi !
 
-Les cultivateurs de l'Union de Culture s'envolèrent vers la Tribu du Raffinement des Âmes.
+Les cultivateurs de l'Union de Cultivation s'envolèrent vers la Tribu du Raffinement des Âmes.
 
 Devant eux s'étendait un nuage noir et infini. Cette masse était si épaisse qu'il était impossible d'y voir clair ; sans même parler de la vue, leurs sens divins étaient instantanément repoussés par elle. En réalité, s'ils avaient été le moins peu vigilants, leurs sens divins auraient été dévorés par les fragments d'âmes qui s'y trouvaient !
 
@@ -48,7 +48,7 @@ En un clin d'œil, il pénétra dans la zone des dix mille pieds du nuage noir, 
 
 La masse sombre se souleva comme des vagues déchaînées et prit des formes de champignons en s'étendant vers l'extérieur. Les hurlements stridents redoublèrent d'intensité, résonnant à travers le ciel. Alors que les nuages tourbillonnaient, une série de rugissements capables de faire trembler les cieux jaillit de l'intérieur. Simultanément, le nuage noir se transforma rapidement en une gueule béante capable d'engloutir le monde. Il dévora le cultivateur sans la moindre hésitation, ne laissant aucune trace de lui.
 
-Presque tous les membres de l'Union de Culture furent frappés de stupeur. Bien qu'ils fussent encore loin, ils eurent l'impression d'être juste à côté du nuage noir. Leurs vêtements se retrouvèrent instantanément trempés de sueur. C'était comme si le numéro 10 n'était pas le seul à avoir été dévoré par cette obscurité.
+Presque tous les membres de l'Union de Cultivation furent frappés de stupeur. Bien qu'ils fussent encore loin, ils eurent l'impression d'être juste à côté du nuage noir. Leurs vêtements se retrouvèrent instantanément trempés de sueur. C'était comme si le numéro 10 n'était pas le seul à avoir été dévoré par cette obscurité.
 
 Les yeux calmes du gardien céleste s'illuminèrent soudainement alors qu'il observait attentivement le nuage, affichant une expression perplexe.
 
@@ -62,7 +62,7 @@ Sun Yunshan serra les poings. En regardant l'Oncle Martial Feng partir, son cœu
 
 En quelques enjambées seulement, le vieil homme atteignit la limite des dix mille pieds du nuage noir. Juste au moment où il allait poursuivre sa course, le nuage accéléra et tourbillonna brusquement. En un instant, il se fendit, laissant apparaître un passage dégagé au milieu.
 
-Un jeune homme au visage froid sortit pas à pas. Il jeta un regard au vieil homme avant de scruter les membres de l'Union de Culture. Puis, d'un ton calme, il déclara : « Mon Ancêtre vous souhaite la bienvenue ! »
+Un jeune homme au visage froid sortit pas à pas. Il jeta un regard au vieil homme avant de scruter les membres de l'Union de Cultivation. Puis, d'un ton calme, il déclara : « Mon Ancêtre vous souhaite la bienvenue ! »
 
 L'expression de l'homme en or changea radicalement et il hurla : « Numéro 3, tue-le ! Nous pouvons entrer par ce passage ! »
 
@@ -70,7 +70,7 @@ Le jeune homme au visage froid n'était autre que Treize. Son expression restait
 
 Cependant, alors qu'il allait le rattraper, une volute de nuage noir jaillit soudainement. Elle enveloppa le vieil homme et le tira violemment dans l'obscurité. Le vieillard disparut sans laisser de trace.
 
-Cette scène frappa les membres de l'Union de Culture comme un coup de massue au cœur. Pour Sun Yunshan, ce fut d'autant plus douloureux que ses yeux devinrent rouges de rage et de chagrin.
+Cette scène frappa les membres de l'Union de Cultivation comme un coup de massue au cœur. Pour Sun Yunshan, ce fut d'autant plus douloureux que ses yeux devinrent rouges de rage et de chagrin.
 
 Treize tendit sa main droite et dit : « Par ici ! »
 
@@ -84,17 +84,17 @@ Après un court vol, l'homme en or s'arrêta brusquement. Ses yeux étaient éca
 
 Ce qui apparaissait à leurs yeux était une immense tribu peuplée d'une multitude de gens. À cet instant précis, tous levèrent la tête et les fixèrent avec des regards glacials.
 
-Les yeux de ces innombrables individus convergèrent vers les membres de l'Union de Culture. Bien que leur niveau de culture fût élevé, ils n'en furent pas moins stupéfaits.
+Les yeux de ces innombrables individus convergèrent vers les membres de l'Union de Cultivation. Bien que leur niveau de cultivation fût élevé, ils n'en furent pas moins stupéfaits.
 
 Au centre de la tribu se trouvait un espace ouvert d'un rayon de cinq kilomètres. Au milieu trônait une haute tour. Une puissance majestueuse émanait de cette structure et enveloppait toute la zone. Sous cette pression, les cultivateurs avaient l'impression de ne plus pouvoir respirer.
 
 Treize se tint à la lisière de l'espace vide et dit respectueusement : « Ancêtre, j'ai amené les invités ! »
 
-« Des compagnons de culture sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous ? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu du Raffinement des Âmes.
+« Des compagnons de cultivation sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous ? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu du Raffinement des Âmes.
 
-Wang Lin perfectionnait progressivement le sortilège du Son du Démon Céleste tout en renforçant l'empreinte sur le démon dispersé. À cet instant, le sortilège fut propagé par le son. Chaque membre de l'Union de Culture, à l'exception de l'homme en noir, sentit la magie envahir son esprit.
+Wang Lin perfectionnait progressivement le sortilège du Son du Démon Céleste tout en renforçant l'empreinte sur le démon dispersé. À cet instant, le sortilège fut propagé par le son. Chaque membre de l'Union de Cultivation, à l'exception de l'homme en noir, sentit la magie envahir son esprit.
 
-Le niveau de culture de l'homme en noir étant plutôt élevé, il ne se perdit pas dans ce tumulte sonore. Ses yeux brillèrent intensément alors qu'il fixait la tour, son visage révélant une nouvelle fois perplexité et incertitude.
+Le niveau de cultivation de l'homme en noir étant plutôt élevé, il ne se perdit pas dans ce tumulte sonore. Ses yeux brillèrent intensément alors qu'il fixait la tour, son visage révélant une nouvelle fois perplexité et incertitude.
 
 L'âme originelle de l'homme en or trembla. Ses yeux trahirent involontairement une pointe de confusion et il murmura malgré lui : « Vous n'avez pas offensé... »
 
@@ -104,7 +104,7 @@ L'âme originelle de l'homme en or trembla. Ses yeux trahirent involontairement 
 
 Ce cri collectif se fondit avec les lamentations du nuage noir. Lorsqu'il atteignit les oreilles des cultivateurs, il fut plus assourdissant qu'un coup de tonnerre, comme si d'innombrables lames acérées s'étaient plantées dans leurs cœurs. Leurs oreilles bourdonnèrent et leurs âmes originelles furent secouées !
 
-Du sang jaillit de la bouche de certains ayant un faible niveau de culture ; il était évident que leurs entrailles avaient été ébranlées et leurs âmes originelles blessées. Ce cri parvint néanmoins à éclaircir l'esprit de tous.
+Du sang jaillit de la bouche de certains ayant un faible niveau de cultivation ; il était évident que leurs entrailles avaient été ébranlées et leurs âmes originelles blessées. Ce cri parvint néanmoins à éclaircir l'esprit de tous.
 
 L'expression de l'homme en or changea radicalement. Il recula instinctivement, le visage déformé par la terreur. Si lui était dans cet état, les cultivateurs environnants étaient dans un état bien pire. Chacun d'eux eut un souffle court, le cœur battant la chamade, réalisant que la situation était critique.
 

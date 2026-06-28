@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 670 - Above Life and Death, There is Karma
 slug: au-dela-de-la-vie-et-de-la-mort-il-y-a-le-karma
 ---
-Sun Tai afficha une expression complexe en regardant Wang Lin. Il resta silencieux un long moment. Bien que sa culture soit tombée au stade de la Formation de l'Âme, ses capacités d'observation étaient restées intactes. Cependant, quels que soient ses efforts, il ne parvenait pas à percer le niveau de culture de Wang Lin.
+Sun Tai afficha une expression complexe en regardant Wang Lin. Il resta silencieux un long moment. Bien que sa cultivation soit tombée au stade de la Formation de l'Âme, ses capacités d'observation étaient restées intactes. Cependant, quels que soient ses efforts, il ne parvenait pas à percer le niveau de cultivation de Wang Lin.
 
 Il était sous le choc. Il repensa au faible cultivateur du stade de la Formation de l'Âme, autrefois dans le Royaume Céleste, qui avait été contraint de lui céder le contrôle. Ce faible cultivateur qui n'avait pu que contempler, impuissant, le combat entre lui et Zhou Yi. Il lui était impossible de concevoir que ce faible cultivateur fût l'homme qui se tenait devant lui.
 
-Bien que le Wang Lin de l'époque fût féroce, il manquait encore de finesse, et son niveau de culture était tout simplement trop bas. S'il n'avait pas été marqué par Zhou Yi, ce dernier l'aurait tué d'une seule paume.
+Bien que le Wang Lin de l'époque fût féroce, il manquait encore de finesse, et son niveau de cultivation était tout simplement trop bas. S'il n'avait pas été marqué par Zhou Yi, ce dernier l'aurait tué d'une seule paume.
 
 Le Wang Lin devant lui était calme, mais un seul de ses regards suffisait à faire trembler son âme originelle. Cette immense divergence était une réalité que Sun Tai ne pouvait accepter.
 
@@ -20,7 +20,7 @@ Pourtant, dès l'apparition de Wang Lin, il avait immédiatement attiré l'atten
 
 À l'époque, lorsque Wang Lin était confronté à une situation de vie ou de mort, ce dernier avait eu besoin de son aide. Sans lui, Wang Lin aurait été tué par l'ancêtre du Clan des Démons Géants.
 
-Cependant, l'homme devant lui possédait un niveau de culture extrêmement élevé. De plus, l'aura que dégageait Wang Lin murmurait à l'oreille de Sun Tai qu'il avait tué des cultivateurs de son propre rang !
+Cependant, l'homme devant lui possédait un niveau de cultivation extrêmement élevé. De plus, l'aura que dégageait Wang Lin murmurait à l'oreille de Sun Tai qu'il avait tué des cultivateurs de son propre rang !
 
 Avoir tué un cultivateur Ascendant était un concept terrifiant !
 
@@ -30,7 +30,7 @@ Dans son choc, l'image mentale du faible cultivateur qui ne pouvait que lever le
 
 Wang Lin ne dit rien, mais il pouvait plus ou moins deviner l'état d'esprit de Sun Tai à travers son expression. Il resta silencieux et observa calmement Sun Tai.
 
-Sun Tai fixa Wang Lin et murmura : « Vous... à quel niveau de culture êtes-vous désormais ? »
+Sun Tai fixa Wang Lin et murmura : « Vous... à quel niveau de cultivation êtes-vous désormais ? »
 
 Wang Lin répondit avec calme : « Ascendant ! »
 
@@ -56,7 +56,7 @@ Wang Lin réfléchit et dit lentement : « Quelle est la puissance de ces trois 
 
 Quant à la particularité de la planète Dong Lin, je peux seulement dire que c'est un monde chaotique et sanglant. » En se remémorant le passé, les yeux de Sun Tai se remplirent de terreur.
 
-En remarquant cette trace de peur, Wang Lin soupira intérieurement. L'ancien Grand Ancien du Secte des Cadavres sur la planète Suzaku n'existait plus. Même s'il retrouvait sa culture, il ne pourrait jamais plus s'élever davantage.
+En remarquant cette trace de peur, Wang Lin soupira intérieurement. L'ancien Grand Ancien du Secte des Cadavres sur la planète Suzaku n'existait plus. Même s'il retrouvait sa cultivation, il ne pourrait jamais plus s'élever davantage.
 
 C'était parce qu'il avait perdu le cœur Dao que tout cultivateur devrait posséder. Ce cœur Dao avait été broyé par le siècle passé sur la planète Dong Lin.
 
@@ -68,7 +68,7 @@ Wang Lin marqua une pause avant de regarder Sun Tai : « Vous étiez le Grand An
 
 Sun Tai laissa échapper un soupir et dit amèrement : « Bien que j'aie été le Grand Ancien du Secte des Cadavres sur la planète Suzaku, il y a encore beaucoup de choses que j'ignore. Je sais seulement que le Secte des Cadavres était l'une des deux grandes sectes du Système Stellaire de l'Alliance.
 
-Je parle de véritables sectes ; non pas celles qui ne s'étendent que sur une seule planète. Ces sectes rayonnent à travers toute l'Alliance. Elles comptent d'innombrables cultivateurs puissants, et leur influence s'étend même dans les zones intérieures de l'Alliance de Culture.
+Je parle de véritables sectes ; non pas celles qui ne s'étendent que sur une seule planète. Ces sectes rayonnent à travers toute l'Alliance. Elles comptent d'innombrables cultivateurs puissants, et leur influence s'étend même dans les zones intérieures de l'Alliance de Cultivation.
 
 La rumeur prétend que l'ancêtre du Secte des Cadavres jouit d'un statut extrêmement élevé au sein de l'Alliance. C'est ce qui permet au Secte des Cadavres de perdurer depuis si longtemps.
 
@@ -104,7 +104,7 @@ Wang Lin soupira, puis ouvrit les yeux et adressa un signe de tête à Sun Tai.
 
 Sun Tai afficha un sourire de gratitude. À cet instant, il ressemblait à un vieil homme mortel souhaitant retourner à ses racines après sa mort plutôt que de devenir un fantôme errant en terre étrangère.
 
-Il sortit une sacoche de rangement, la posa lentement et dit : « Voici quelques jades célestes. Je les avais économisés pour le jour où je retrouverais ma culture, mais après vous avoir vu, je sens que je n'en ai plus besoin. Il y a aussi des enregistrements de mes expériences en alchimie et en raffinage de trésors. Prenez-les en guise de remerciement pour avoir permis à ce vieillard de rentrer chez lui. »
+Il sortit une sacoche de rangement, la posa lentement et dit : « Voici quelques jades célestes. Je les avais économisés pour le jour où je retrouverais ma cultivation, mais après vous avoir vu, je sens que je n'en ai plus besoin. Il y a aussi des enregistrements de mes expériences en alchimie et en raffinage de trésors. Prenez-les en guise de remerciement pour avoir permis à ce vieillard de rentrer chez lui. »
 
 Sun Tai sortit tout en contemplant le coucher du soleil. La lueur orangée l'accompagna alors qu'il s'éloignait peu à peu.
 

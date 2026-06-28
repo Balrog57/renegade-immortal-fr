@@ -22,7 +22,7 @@ C'était l'homme portant le masque. Ses yeux brillaient d'une lumière mystérie
 
 Qian Feng avait été contraint d'utiliser cette épée. Elle était le plus grand secret de sa famille. Elle appartenait à l'ancien Suzaku, qui l'avait mystérieusement découverte et cachée secrètement au sein de la famille Qian.
 
-Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré : « Avec ma culture actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser ! »
+Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré : « Avec ma cultivation actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser ! »
 
 Après que Qian Feng fut devenu le disciple de Zhuque Zi et juste avant la guerre contre le Clan des Immortels Délaissés, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
 
@@ -52,11 +52,11 @@ Le visage de Qian Feng devint subitement livide. La destruction de la Formation 
 
 Après avoir projeté Qian Feng, la silhouette saisit l'épée de fer.
 
-Après un examen attentif, il se mit à rire follement : « C'est donc cela ! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait ! Avec ceci et le Cristal de Planète de Culture, je suis certain à cent pour cent de pouvoir m'échapper ! »
+Après un examen attentif, il se mit à rire follement : « C'est donc cela ! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait ! Avec ceci et le Cristal de Planète de Cultivation, je suis certain à cent pour cent de pouvoir m'échapper ! »
 
 Wang Lin prit une profonde inspiration et tendit la main droite. Le Drapeau des Âmes d'un Milliard apparut dans sa paume et, d'un seul mouvement, tous les fragments d'âme environnants furent aspirés vers lui. La hache et les fourreaux volèrent également vers lui sous son commandement.
 
-La silhouette regarda Wang Lin avec un sourire de prédateur et dit : « Petit morveux, attends que j'obtienne le Cristal de Planète de Culture, et je reviendrai régler tes comptes ! »
+La silhouette regarda Wang Lin avec un sourire de prédateur et dit : « Petit morveux, attends que j'obtienne le Cristal de Planète de Cultivation, et je reviendrai régler tes comptes ! »
 
 Sur ces mots, il passa sa main sur l'épée. La rouille commença à s'agiter comme si elle était vivante pour finir par former une goutte de sang rouge sombre.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent et il murmura : « Fragment d'âme ! »
 
 Le symbole violet gravé dans son esprit se mit immédiatement à briller, apparaissant entre lui et Qian Feng.
 
-*Pour extraire votre fragment d'âme du Cristal de Planète de Culture, vous devez sacrifier une vie en échange.*
+*Pour extraire votre fragment d'âme du Cristal de Planète de Cultivation, vous devez sacrifier une vie en échange.*
 
 À cet instant précis, alors que Qian Feng était sur le point d'exploser, il poussa un cri déchirant et ses yeux s'éteignirent. Le symbole violet émit une lueur démoniaque et deux fragments d'âme apparurent à sa surface.
 
@@ -104,7 +104,7 @@ La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng
 
 « Qian Feng ! » Les yeux de Zi Xin devinrent froids ; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs marion apparurent pour assurer sa protection.
 
-« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin ! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhuo Wutai afficha une expression complexe en observant Zi Xin.
+« Un fourneau de cultivation... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin ! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhuo Wutai afficha une expression complexe en observant Zi Xin.
 
 Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissait son corps. Cette aura était très similaire à celle de Qian Feng.
 

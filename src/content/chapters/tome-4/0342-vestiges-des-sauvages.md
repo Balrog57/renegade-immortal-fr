@@ -12,7 +12,7 @@ Qiu Siping eut un sourire amer. Il savait qu'il ne pourrait pas cacher à Wang L
 
 Le vieil homme Hu prit sa tasse et en but une gorgée. La saveur le surprit : « Cher cultivateur Wang, ce thé... ? »
 
-Wang Lin sourit. « Ce thé ne provient pas de Suzaku, mais d'une autre planète de culture. Je l'ai obtenu par accident lors de mon voyage dans le Royaume Céleste il y a de nombreuses années. »
+Wang Lin sourit. « Ce thé ne provient pas de Suzaku, mais d'une autre planète de cultivation. Je l'ai obtenu par accident lors de mon voyage dans le Royaume Céleste il y a de nombreuses années. »
 
 Le vieil homme Hu prit une profonde inspiration. Il fixa Wang Lin avec une pointe d'hésitation dans les yeux avant de dire : « La rumeur prétend que lorsque frère Wang s'est rendu au Royaume Céleste, vous avez pris un bras à Papillon Rouge. Frère Wang a-t-il pu obtenir de l'énergie spirituelle céleste ? »
 
@@ -42,7 +42,7 @@ Le vieil homme Hu regarda Wang Lin et vit que son expression demeurait de marbre
 
 Hélas, elle ne percevait toujours aucun changement sur le visage de Wang Lin.
 
-Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit : « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la culture n'est pas encore stabilisée. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
+Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit : « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la cultivation n'est pas encore stabilisée. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
 
 La femme au voile blanc fut stupéfaite. Elle regarda l'homme en manteau noir et vit qu'il fronçait également les sourcils.
 
@@ -60,7 +60,7 @@ Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin av
 
 Wang Lin réfléchit. D'après ses souvenirs d'Ancien Dieu, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
 
-Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de culture, si l'on étalait l'un de ces fruits sur tout son corps, cela renforcerait la fondation.
+Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de cultivation, si l'on étalait l'un de ces fruits sur tout son corps, cela renforcerait la fondation.
 
 C'était ce que les Anciens Dieux appelaient la purification corporelle.
 
@@ -80,7 +80,7 @@ Wang Lin ne savait pas grand-chose sur le Cimetière des Immortels. Il savait se
 
 Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière des Immortels.
 
-« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance de la Culture. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, fut ravagée par le conflit et n'est plus aujourd'hui qu'une planète à moitié dévastée. Tout cela est de la faute des sauvages. »
+« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de cultivation de rang 6, cette planète leur fut offerte par l'Alliance de la Cultivation. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, fut ravagée par le conflit et n'est plus aujourd'hui qu'une planète à moitié dévastée. Tout cela est de la faute des sauvages. »
 
 « Durant cette guerre, 90 % des sauvages furent massacrés. Les survivants s'enfuirent alors dans le Cimetière des Immortels. Tous les cent ans, Suzaku envoie d'innombrables cultivateurs pour les éliminer, mais ils ne parviennent toujours pas à les anéantir totalement. »
 

@@ -12,7 +12,7 @@ Les cultivateurs de l'Âme Naissante des autres sectes reconnurent immédiatemen
 
 Non seulement les Insectes d'Encre Violette contenaient un poison extrêmement mortel, mais leur carapace était également très épaisse. Les trésors ordinaires ne pourraient pas les blesser. Une fois entourés par eux, il ne leur faudrait que quelques respirations pour être complètement dévorés. Il ne resterait même pas vos os.
 
-De plus, même si un cultivateur parvenait à les éviter, dès qu'un seul insecte réussissait à le piquer, la mort devenait inévitable. Le poison de ces insectes était classé au 184ème rang parmi tous les poisons connus dans le monde de la culture.
+De plus, même si un cultivateur parvenait à les éviter, dès qu'un seul insecte réussissait à le piquer, la mort devenait inévitable. Le poison de ces insectes était classé au 184ème rang parmi tous les poisons connus dans le monde de la cultivation.
 
 Il faut dire que les cent premiers poisons sont presque tous éteints ; le simple fait de mentionner les Insectes d'Encre Violette suffisait à faire pâlir les gens.
 
@@ -60,7 +60,7 @@ Avant qu'il n'ait pu finir, Wang Lin leva la main et une ligne rouge apparut sur
 
 Cheng Bailiang s'interrompit immédiatement. Il fixa la ligne rouge en inspirant une bouffée d'air froid. À cet instant, les quatre cultivateurs de l'Âme Naissante derrière lui se redressèrent et fixèrent la lumière rouge. L'un des ancêtres, un vieil homme aux allures féeriques, s'exclama soudain : « Ceci... ceci est cela... » Puis, il leva les yeux vers les nuages rouges dans le ciel, le visage horrifié.
 
-L'expression de Wang Lin restait calme alors qu'il disait lentement : « C'est exact. Même avec mon niveau de culture, si vous cinq m'attaquez de front, même si je parvenais à en tuer quelques-uns, je serais gravement blessé. Mais si j'utilise ce trésor, le résultat sera différent. Il s'agit de la foudre de la rétribution divine. Je suis curieux de savoir si vous cinq réunis pouvez repousser cette foudre. »
+L'expression de Wang Lin restait calme alors qu'il disait lentement : « C'est exact. Même avec mon niveau de cultivation, si vous cinq m'attaquez de front, même si je parvenais à en tuer quelques-uns, je serais gravement blessé. Mais si j'utilise ce trésor, le résultat sera différent. Il s'agit de la foudre de la rétribution divine. Je suis curieux de savoir si vous cinq réunis pouvez repousser cette foudre. »
 
 Wang Lin avait enfin pu expulser ce fragment de foudre de rétribution divine de son corps lorsqu'il atteignit le stade de l'Âme Naissante. Bien qu'il ne puisse pas la raffiner en un trésor, il pouvait l'utiliser comme un atout ultime pour invoquer la foudre divine.
 
@@ -76,7 +76,7 @@ Alors qu'il lançait le fil rouge, le corps de Wang Lin s'élança, son Domaine 
 
 L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Domaine Ji s'abattit sur Cheng Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
 
-Le visage de Cheng Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il put utiliser sa culture pour rediriger la destruction du Domaine Ji vers sa propre conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre ; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
+Le visage de Cheng Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il put utiliser sa cultivation pour rediriger la destruction du Domaine Ji vers sa propre conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre ; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
 
 Song Qing et les autres anciens accoururent pour protéger Cheng Bailiang.
 
@@ -90,7 +90,7 @@ En conséquence, il ne restait plus que trois personnes.
 
 Wang Lin fit un geste vers la ligne rouge qui s'était élevée au ciel, et celle-ci revint dans sa main. Il fixa les trois cultivateurs de l'Âme Naissante au stade avancé et dit lentement : « Maintenant qu'il n'en reste que trois, même si vous faites équipe, je suis certain de pouvoir vous tuer un par un. »
 
-Les visages des trois ancêtres devinrent lugubres. L'un d'eux regarda Cheng Bailiang, immobile en pleine culture, et l'autre, piégé dans le drapeau de restriction. Son cœur ne put s'empêcher de sombrer.
+Les visages des trois ancêtres devinrent lugubres. L'un d'eux regarda Cheng Bailiang, immobile en pleine cultivation, et l'autre, piégé dans le drapeau de restriction. Son cœur ne put s'empêcher de sombrer.
 
 Le regard de Wang Lin se glaça alors qu'il disait froidement : « Donnez-moi votre sang d'âme, ou sinon ! »
 
@@ -132,7 +132,7 @@ Un soupir de soulagement collectif parcourut l'assemblée. Ils prirent congé pr
 
 L'expression de Wang Lin était redevenue normale. Il prit Li Muwan dans ses bras et se dirigea rapidement vers la cour sud. En quelques respirations, ils entrèrent dans la demeure de Li Muwan. Alors que celle-ci s'apprêtait à parler, le visage de Wang Lin devint soudainement livide ; il cracha une large bouchée de sang tandis que son corps tremblait de manière incontrôlable.
 
-Li Muwan fut terrifiée. Wang Lin prit de profondes inspirations et dit rapidement : « Je dois entrer en culture de méditation pour quelques jours. Wan Er, s'il te plaît, veille sur moi. »
+Li Muwan fut terrifiée. Wang Lin prit de profondes inspirations et dit rapidement : « Je dois entrer en cultivation de méditation pour quelques jours. Wan Er, s'il te plaît, veille sur moi. »
 
 Sur ces mots, le corps de Wang Lin disparut pour réapparaître à l'intérieur de la chambre de Li Muwan. Une fois dedans, il pointa son doigt vers son front et entra dans la Perle Défiant le Ciel.
 
@@ -154,13 +154,13 @@ On pourrait dire qu'un dépassement au sein du Domaine Ji est une tâche impossi
 
 Lors des dernières étapes du processus de fusion, Wang Lin ne parvint pas à faire atteindre le stade de l'Âme Naissante à son corps principal. Dans un geste de désespoir, il força son avatar à se contracter jusqu'à ce qu'il s'installe dans le dantian de son corps principal en tant que substitut à l'Âme Naissante.
 
-Bien que cette méthode lui ait permis d'élever temporairement le niveau de culture de son corps principal au stade de l'Âme Naissante et de donner à son Domaine Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Domaine Ji, il épuisait une quantité massive de l'énergie originelle de son avatar et de sa propre perception divine.
+Bien que cette méthode lui ait permis d'élever temporairement le niveau de cultivation de son corps principal au stade de l'Âme Naissante et de donner à son Domaine Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Domaine Ji, il épuisait une quantité massive de l'énergie originelle de son avatar et de sa propre perception divine.
 
 Le Domaine Ji n'était plus sa propre puissance mais agissait désormais comme un trésor. Pour utiliser un trésor, il fallait de la puissance spirituelle. Mais pour utiliser le Domaine Ji, il devait non seulement dépenser énormément de puissance spirituelle, mais aussi son sens divin et l'énergie de son Âme Naissante.
 
 Bien que la situation fût frustrante, elle n'était pas sans avantages. Lors de la fusion, la durée de vie de trente ans de l'avatar avait naturellement disparu. Désormais, il n'y avait plus de distinction réelle entre le corps principal et l'avatar. S'il devait y avoir une nuance, c'est que son Âme Naissante était l'avatar et son corps physique était le corps principal.
 
-Pour être précis, son niveau de culture se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Domaine Ji constituait son dernier recours.
+Pour être précis, son niveau de cultivation se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Domaine Ji constituait son dernier recours.
 
 Sans cela, la Secte Cloud Sky n'aurait pas d'avenir.
 
@@ -178,7 +178,7 @@ Wang Lin regarda Li Muwan d'un regard tendre. Sa main caressa les cheveux de la 
 
 « Est-ce que... est-ce que quelque chose s'est mal passé lors de votre passage au stade de l'Âme Naissante ? » Li Muwan le regarda avec inquiétude et poursuivit : « Wang Lin, je veux la vérité. Je veux tout savoir sur vous. J'espère que vous pourrez me le dire. Est-ce possible ? »
 
-Wang Lin réfléchit un instant. Voyant le sérieux dans les yeux de Li Muwan, il dit lentement : « D'accord, tu l'aurais appris tôt ou tard. Je ne viens pas du pays de Huo Fen. En fait, je suis né loin d'ici, dans un pays de culture de rang 3 nommé Zhao... »
+Wang Lin réfléchit un instant. Voyant le sérieux dans les yeux de Li Muwan, il dit lentement : « D'accord, tu l'aurais appris tôt ou tard. Je ne viens pas du pays de Huo Fen. En fait, je suis né loin d'ici, dans un pays de cultivation de rang 3 nommé Zhao... »
 
 D'une voix calme, Wang Lin expliqua tout ce qui s'était passé dans le pays de Zhao et l'état actuel de son propre corps. Il raconta tout avec une telle sérénité qu'on aurait dit le récit d'une histoire concernant quelqu'un d'autre.
 
@@ -194,7 +194,7 @@ Wang Lin se tut. Il la regarda et demanda : « En êtes-vous sûre ? »
 
 Li Muwan hocha la tête avec sérieux. Elle esquissa un sourire : « Donnez-moi simplement le sang d'âme de ces cultivateurs de l'Âme Naissante, et vous n'aurez plus à vous soucier de ma sécurité. Ne vous inquiétez pas. Wan Er est à la Secte Cloud Sky depuis longtemps, je peux gérer cela moi-même. Je veux transformer la Secte Cloud Sky en une secte qui ne fabrique des pilules que pour vous ! »
 
-Wang Lin la regarda, fronça les sourcils et demanda : « Si des pays de culture de rang 4 viennent, que ferez-vous ? »
+Wang Lin la regarda, fronça les sourcils et demanda : « Si des pays de cultivation de rang 4 viennent, que ferez-vous ? »
 
 Li Muwan eut un sourire méprisant : « Ces pays de rang 4 se moquent de savoir à qui appartient la Secte Cloud Sky. Tant que nous leur fournissons les pilules, il n'y aura aucun problème. Wang Lin, je vous assure que je peux gérer cela seule. »
 
@@ -256,7 +256,7 @@ Une fois seul, Wang Lin prit une profonde inspiration : « Assieds-toi et cultiv
 
 Li Muwan mordilla sa lèvre inférieure et s'assit en tailleur devant lui. La main droite de Wang Lin frappa son sac de rangement, faisant jaillir les six bouteilles de liquide spirituel restantes. Les flacons se brisèrent et le liquide se rassembla.
 
-Wang Lin saisit la substance de sa main droite et le liquide spirituel pénétra lentement le corps de Li Muwan par son front. Ses yeux brillèrent alors qu'il utilisait sa propre culture de l'Âme Naissante pour aider le corps de Li Muwan à guérir ses anciennes blessures.
+Wang Lin saisit la substance de sa main droite et le liquide spirituel pénétra lentement le corps de Li Muwan par son front. Ses yeux brillèrent alors qu'il utilisait sa propre cultivation de l'Âme Naissante pour aider le corps de Li Muwan à guérir ses anciennes blessures.
 
 Seul Wang Lin pouvait faire cela. Personne d'autre n'aurait disposé d'une telle quantité de liquide spirituel, et personne d'autre que lui n'aurait utilisé une ressource aussi précieuse pour soigner quelqu'un.
 

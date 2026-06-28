@@ -6,9 +6,9 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mysterieux
 ---
-Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Hou Fen après que le pays de culture de rang 4 soit intervenu pour éliminer les bêtes de feu.
+Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Hou Fen après que le pays de cultivation de rang 4 soit intervenu pour éliminer les bêtes de feu.
 
-Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
+Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la cultivation. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 
 La Secte des Cadavres n'offrit aucune explication et disparut simplement une nuit.
 
@@ -28,7 +28,7 @@ Zhao Chuanliang se montrait très respectueux. Des lueurs de peur apparaissaient
 
 Zhao Chuanliang maudit intérieurement. Son visage trahissait une panique évidente et il s'empressa de dire : « Shang Zong, j'ai déjà trouvé quelques indices et j'ai découvert où l'âme numéro 4876 a disparu. D'après l'analyse des preuves, il semble qu'un disciple du Sanctuaire du Dieu de la Guerre nommé Ma Liang soit impliqué. J'ai reçu des nouvelles indiquant qu'il est apparu récemment à Xuan Wu, j'ai donc envoyé des hommes là-bas. Si vous me donnez dix jours, je serai certainement capable de découvrir la vérité. »
 
-Le visage de l'être à l'intérieur du cristal se détendit légèrement alors qu'il regardait Zhao Chuanliang en soupirant. « Chuanliang, je t'accorde dix jours car c'est "ce" corps. Cependant, si tu n'as toujours aucun résultat dans dix jours, ne me reproche pas de signaler cela à la division du pays de culture de rang 5. Avec leur façon de fonctionner, ils te retireront certainement le droit de choisir un corps après ta possession. »
+Le visage de l'être à l'intérieur du cristal se détendit légèrement alors qu'il regardait Zhao Chuanliang en soupirant. « Chuanliang, je t'accorde dix jours car c'est "ce" corps. Cependant, si tu n'as toujours aucun résultat dans dix jours, ne me reproche pas de signaler cela à la division du pays de cultivation de rang 5. Avec leur façon de fonctionner, ils te retireront certainement le droit de choisir un corps après ta possession. »
 
 Sur ces mots, le visage dans le cristal disparut lentement.
 
@@ -44,13 +44,13 @@ Zhao Chuanliang soupira et demanda : « Ye Zizai, que dois-je faire ? »
 
 Zhao Chuanliang répondit calmement : « C'était mon frère cadet. Nous sommes tous deux entrés dans la Secte des Cadavres il y a 400 ans. Son talent était supérieur au mien, c'est pourquoi il a été choisi par Shang Zong. »
 
-Ye Zizai ricana, sa voix empreinte de mécontentement. « Si ce n'était pas parce que le corps parfait que j'avais préparé pour moi-même a été trouvé et emporté par le pays de culture de rang 5, j'aurais déjà récupéré ma culture et terminé ma possession. »
+Ye Zizai ricana, sa voix empreinte de mécontentement. « Si ce n'était pas parce que le corps parfait que j'avais préparé pour moi-même a été trouvé et emporté par le pays de cultivation de rang 5, j'aurais déjà récupéré ma cultivation et terminé ma possession. »
 
 Zhao Chuanliang prit une profonde inspiration et plaça un morceau de jade sur son front. Après quelques instants, il lança le jade.
 
 « Tous les cultivateurs du stade de la Formation du Noyau et au-delà, suivez-moi pour un voyage vers l'Union de Hou Fen ! » À cet ordre, tous les disciples de la Secte des Cadavres ouvrirent les yeux, une lueur spectrale brillant dans leur regard.
 
-Quant à Wang Lin, bien que le Chemin Divin fût extraordinaire, il n'était pas opportun pour lui de s'y consacrer à la culture pour le moment. Après avoir réfléchi un instant, il laissa échapper un soupir et commença à partir. Ce qui surprit Wang Lin, c'est que le Chemin Divin restait gravé dans son esprit au lieu de disparaître comme d'ordinaire.
+Quant à Wang Lin, bien que le Chemin Divin fût extraordinaire, il n'était pas opportun pour lui de s'y consacrer à la cultivation pour le moment. Après avoir réfléchi un instant, il laissa échapper un soupir et commença à partir. Ce qui surprit Wang Lin, c'est que le Chemin Divin restait gravé dans son esprit au lieu de disparaître comme d'ordinaire.
 
 Cependant, lorsqu'il tenta d'en faire une copie, il en fut incapable. C'était comme si une force invisible empêchait l'enregistrement du Chemin Divin.
 
@@ -92,7 +92,7 @@ Wang Lin regarda la sphère avec un sourire. Il avait réussi la deuxième étap
 
 Il prit une profonde inspiration et regarda vers l'entrée. Il ignorait depuis combien de temps il était ici, mais ces portes de miroir d'eau coupaient le Sens Divin et l'énergie spirituelle ; peu importait le tumulte qu'il créait, personne à l'extérieur ne s'en apercevrait.
 
-De plus, l'Ancien au visage rouge ne croyait pas que Wang Lin puisse briser une telle porte avec seulement sa culture de la Formation du Noyau, il n'était donc pas resté sur place. Cela offrait une opportunité, mais Wang Lin savait qu'il devait agir vite pour éviter que le vieil homme ne revienne soudainement et ne réduise tous ses efforts à néant.
+De plus, l'Ancien au visage rouge ne croyait pas que Wang Lin puisse briser une telle porte avec seulement sa cultivation de la Formation du Noyau, il n'était donc pas resté sur place. Cela offrait une opportunité, mais Wang Lin savait qu'il devait agir vite pour éviter que le vieil homme ne revienne soudainement et ne réduise tous ses efforts à néant.
 
 Pensant cela, il sortit rapidement le fourneau de réaction qu'il avait fabriqué dans la 14e vallée. Il plaça soigneusement le noyau spirituel à l'intérieur et y apposa un sceau. Le fourneau se mit immédiatement à tourner ; d'abord lentement, puis de plus en plus vite.
 
@@ -122,7 +122,7 @@ Une fois hors de la pièce, il observa le fourneau de réaction. La rotation ava
 
 Il affichait alors une expression indécise. Ce sac de stockage semblait bien différent de ceux qu'il connaissait. Cependant, il se trouvait dans le temple du Sanctuaire du Dieu de la Guerre. Ils lui avaient permis d'étudier le Chemin Divin ; il serait difficile de justifier le vol d'un objet ici.
 
-Si les salles contenaient des matériaux de raffinage, il n'aurait pas hésité, mais seule cette salle était singulière. Soudain, une intuition le frappa : et si tous les cadavres de ces pièces servaient en fait de ressources de culture pour la personne dans la salle anormale ?
+Si les salles contenaient des matériaux de raffinage, il n'aurait pas hésité, mais seule cette salle était singulière. Soudain, une intuition le frappa : et si tous les cadavres de ces pièces servaient en fait de ressources de cultivation pour la personne dans la salle anormale ?
 
 Une pensée supplémentaire le traversa : le gaz noir entrant dans le corps de cet individu était identique à celui émis par les autres cadavres.
 
@@ -140,7 +140,7 @@ Ses yeux se fixèrent cependant sur le sac de stockage. Il cracha une bouffée d
 
 Il ne le regarda pas, le pressant contre sa poitrine tout en reculant immédiatement. Ses mains s'activèrent pour remettre le noyau spirituel en place. En un clin d'œil, la porte semblait normale, malgré un minuscule trou discret dans le coin inférieur droit.
 
-Sans perdre une seconde, Wang Lin quitta le temple. À peine dehors, il vit l'Ancien au visage rouge pratiquer sa culture.
+Sans perdre une seconde, Wang Lin quitta le temple. À peine dehors, il vit l'Ancien au visage rouge pratiquer sa cultivation.
 
 L'Ancien le regarda et dit d'une voix profonde : « Tu es resté sept jours à l'intérieur. As-tu compris quelque chose ? »
 

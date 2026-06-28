@@ -14,7 +14,7 @@ Cette puissance surpassait même celle des cieux ; aucune créature n'osait s'en
 
 La raison pour laquelle tant de cadavres de bêtes féroces jonchaient le sol autour du Daoïste aux Sept Couleurs était probablement qu'elles avaient été massacrées avant même qu'il ne pénètre dans l'illusion.
 
-Wang Lin était un homme audacieux. À cet instant, ses yeux se plissèrent. Après une courte réflexion, il mordit le bout de sa langue et cracha une bouffée de sang. Ce sang se divisa en 99 gouttes distinctes, chacune imprégnée de l'aura de sa culture.
+Wang Lin était un homme audacieux. À cet instant, ses yeux se plissèrent. Après une courte réflexion, il mordit le bout de sa langue et cracha une bouffée de sang. Ce sang se divisa en 99 gouttes distinctes, chacune imprégnée de l'aura de sa cultivation.
 
 Le regard sérieux, il agita ses manches et une goutte s'envola pour flotter devant son front.
 
@@ -54,7 +54,7 @@ Il aperçut une silhouette assise sur la cime d'une montagne. C'était le Daoïs
 
 Il restait là, les yeux ouverts, contemplant le ciel avec une expression de torpeur.
 
-Autour de son corps flottaient neuf sphères de lumière de la taille d'un poing, semblables à des flammes. C'étaient les neuf oiseaux de feu, ou soleils ; ils représentaient la culture et le trésor du Daoïste aux Sept Couleurs.
+Autour de son corps flottaient neuf sphères de lumière de la taille d'un poing, semblables à des flammes. C'étaient les neuf oiseaux de feu, ou soleils ; ils représentaient la cultivation et le trésor du Daoïste aux Sept Couleurs.
 
 « Shan Meng... Je me souviens, ton nom est Fan Shanmeng... » murmura le Daoïste aux Sept Couleurs.
 

@@ -60,7 +60,7 @@ L'expression de Wang Lin demeura sereine. Voyant qu'elle se rapprochait, il lais
 
 « Tu ne connais pas ta place ! » s'exclama la femme dans un reniflement méprisant. Elle agita la main et un panier de fleurs apparut dans sa paume. D'un geste, elle en libéra une multitude de pétales colorés qui, portés par une force destructrice, volèrent vers les restrictions.
 
-Le niveau de culture de cette femme était celui du début du stade de l'Âme Naissante. Bien que Wang Lin paraisse calme, il ricana intérieurement. Dès que les cercles de restriction approchèrent des pétales, ils se fragmentèrent instantanément en une multitude de petites restrictions. Bien que certaines furent détruites par les fleurs, beaucoup se reformèrent en cercles de restriction après avoir traversé l'assaut.
+Le niveau de cultivation de cette femme était celui du début du stade de l'Âme Naissante. Bien que Wang Lin paraisse calme, il ricana intérieurement. Dès que les cercles de restriction approchèrent des pétales, ils se fragmentèrent instantanément en une multitude de petites restrictions. Bien que certaines furent détruites par les fleurs, beaucoup se reformèrent en cercles de restriction après avoir traversé l'assaut.
 
 Leur vitesse était fulgurante. Une fois reformés, les cercles de restriction s'abattirent sur la cour ouest.
 
@@ -98,7 +98,7 @@ Quant à Li Muwan, elle ne fut impliquée dans rien. Tout cela était l'œuvre d
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 
-Ce sentiment atteignit son paroxysme lorsque la Secte Cloud Sky annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhanwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
+Ce sentiment atteignit son paroxysme lorsque la Secte Cloud Sky annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de cultivation avec Sun Zhanwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
 
 Wang Lin restait assis tranquillement dans sa chambre. Après une journée et une nuit de réflexion, il poussa un soupir et son regard se fit déterminé. Une lueur froide traversa ses yeux alors qu'il se levait pour marcher vers la cour sud.
 
@@ -106,7 +106,7 @@ Le chemin ne fut pas aisé, entravé par la brume blanche. Cependant, après avo
 
 Arrivé devant la demeure de Li Muwan, la voix de celle-ci résonna : « L'entraînement en méditation de votre maître touche à sa fin. Si vous avez des questions, vous pourrez les lui poser à sa sortie. Désormais, à moins que je ne vous appelle, ne revenez plus ici. »
 
-Wang Lin réfléchit un instant, puis dit d'une voix lente : « Je veux une pilule. Une pilule capable de porter mon niveau de culture au stade de l'Âme Naissante en deux mois. »
+Wang Lin réfléchit un instant, puis dit d'une voix lente : « Je veux une pilule. Une pilule capable de porter mon niveau de cultivation au stade de l'Âme Naissante en deux mois. »
 
 Li Muwan fut stupéfaite. Elle se leva, ouvrit la porte et fixa Wang Lin, demandant d'une voix tremblante : « Qui... qui êtes-vous ? »
 
@@ -120,4 +120,4 @@ Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement e
 
 À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le mur tandis que des larmes de joie inondaient son visage.
 
-« Tuer Sun Zhanwei est une tâche facile, mais cela devra attendre que mon niveau de culture soit assez élevé pour garantir que personne dans la Secte Cloud Sky n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.
+« Tuer Sun Zhanwei est une tâche facile, mais cela devra attendre que mon niveau de cultivation soit assez élevé pour garantir que personne dans la Secte Cloud Sky n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.

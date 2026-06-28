@@ -18,13 +18,13 @@ Mais à cet instant, il pouvait tout de même utiliser le feng shui pour interpr
 
 L'avatar de Wang Lin se trouvait au lieu de naissance des Ancêtres Célestes et Anciens. Bien qu'il ne s'agisse pas de la même plateforme, celle-ci faisait partie de la plateforme originelle !
 
-Par conséquent, c'était comme si Wang Lin partageait le même destin que les Ancêtres Célestes et Anciens ! Ce destin n'était pas une question de culture, mais quelque chose dépassant de loin ce que la culture pouvait accomplir !
+Par conséquent, c'était comme si Wang Lin partageait le même destin que les Ancêtres Célestes et Anciens ! Ce destin n'était pas une question de cultivation, mais quelque chose dépassant de loin ce que la cultivation pouvait accomplir !
 
 Ce destin ne se révélerait pas trop ouvertement, mais avec le temps et la croissance de son avatar, l'avenir de Wang Lin serait inimaginable !
 
 Wang Lin n'était pas certain de tout cela. Il ne comprenait que quelques éléments et restait sur de nombreuses spéculations. Cependant, il ne croyait pas aveuglément en ces théories ; il était davantage convaincu par ses propres efforts et sa persévérance. Ce qu'il anticipait par-dessus tout, c'était le jour où l'avatar sortirait enfin pour porter son coup de poing le plus puissant !
 
-Sur le Continent Astral Immortel, au moment où le troisième vortex apparut, chacun ressentit un choc, quel que soit son niveau de culture ou son statut. Même les neuf soleils affichaient des expressions graves lorsqu'ils perçurent ce troisième vortex.
+Sur le Continent Astral Immortel, au moment où le troisième vortex apparut, chacun ressentit un choc, quel que soit son niveau de cultivation ou son statut. Même les neuf soleils affichaient des expressions graves lorsqu'ils perçurent ce troisième vortex.
 
 Le troisième vortex semblait tout juste être né et demeurait instable. Il était parcouru d'innombrables distorsions, mais il subsistait à l'extérieur des vortex des Ancêtres Célestes et Anciens sans s'effondrer, et son expansion était rapide.
 
@@ -42,7 +42,7 @@ Si l'un d'eux possédait un talent suffisant, il serait admis dans la secte en t
 
 Ailleurs sur ce continent, quelque part au loin, un jeune garçon portait une robe de Dao trouvée par hasard, ressemblant à un enfant céleste. Il se trouvait dans la demeure d'une grande famille. Un sourire flottait sur son visage tandis que plusieurs personnes s'inclinaient respectueusement devant lui.
 
-« Ce vieil homme a cultivé pendant trois mille ans et est aujourd'hui revenu à l'état d'enfant. Je dois traverser neuf réincarnations pour recouvrer ma culture. Puisque vous m'avez invité depuis la campagne, je vais rester un moment pour tisser un lien avec le Dao. » L'aura antique de l'enfant était perceptible même par les mortels. On aurait dit que la personne assise devant eux n'était pas un enfant, mais un vieillard ayant vécu des millénaires.
+« Ce vieil homme a cultivé pendant trois mille ans et est aujourd'hui revenu à l'état d'enfant. Je dois traverser neuf réincarnations pour recouvrer ma cultivation. Puisque vous m'avez invité depuis la campagne, je vais rester un moment pour tisser un lien avec le Dao. » L'aura antique de l'enfant était perceptible même par les mortels. On aurait dit que la personne assise devant eux n'était pas un enfant, mais un vieillard ayant vécu des millénaires.
 
 En particulier, l'esprit qui brillait dans ses yeux semblait percer les mystères de la vie, au point qu'on se sentait obligé de le croire.
 
@@ -76,7 +76,7 @@ Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il
 
 « Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Allheaven, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système Stellaire Ancestral par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité ! »
 
-« D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin !
+« D'un autre côté, je dois rapidement augmenter mon niveau de cultivation sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin !
 
 Il aspirait à faire de l'illusion du cinquième lotus une réalité. Il désirait posséder des corps véritables pour pouvoir combattre les cultivateurs de la Tribulation Arcane !
 
@@ -90,7 +90,7 @@ Trois années passèrent lentement tandis que Wang Lin se remémorait le passé.
 
 Cette issue n'était peut-être pas l'endroit où Xuan Luo attendait, mais un lieu que le roi des moustique avait suivi en se basant sur ses vagues souvenirs. Cet endroit pourrait mener au Continent du Taureau Céleste ou à un autre lieu encore. Il pourrait même se situer dans les trente-six États de l'ancien pays.
 
-Durant ces trois années, Wang Lin concentra toute sa culture sur Li Muwan. Sous sa protection, elle était en parfaite sécurité.
+Durant ces trois années, Wang Lin concentra toute sa cultivation sur Li Muwan. Sous sa protection, elle était en parfaite sécurité.
 
 Ce jour-là, il aperçut une lumière dans le vide devant lui. Cette lumière n'était pas éblouissante et provenait d'une fine fissure spatiale. Il pouvait distinguer des montagnes au-delà de la faille.
 
@@ -106,7 +106,7 @@ Wang Lin devrait prendre le temps de résoudre ces incertitudes.
 
 Outre quelques pilules et trésors, il y avait le fou et la femme en argent à l'intérieur. Ces deux êtres possédaient la lignée du Continent Astral Immortel ; ainsi, même dans le vide, ils ne rencontreraient aucun problème, contrairement à Wang Lin qui tentait de protéger quelqu'un tout en franchissant les limites du continent.
 
-Après avoir assimilé la bête moustique, Wang Lin prit Li Muwan et se prépara. Il ouvrit les yeux et fixa la fissure. À cet instant, il retrouva la sensation du Champ de Bataille Étranger, lorsqu'il tentait de s'échapper après être devenu un dévoreur d'âmes. Il déploya toute sa culture et se précipita vers la brèche !
+Après avoir assimilé la bête moustique, Wang Lin prit Li Muwan et se prépara. Il ouvrit les yeux et fixa la fissure. À cet instant, il retrouva la sensation du Champ de Bataille Étranger, lorsqu'il tentait de s'échapper après être devenu un dévoreur d'âmes. Il déploya toute sa cultivation et se précipita vers la brèche !
 
 Il était extrêmement rapide et combla l'espace en un instant. Il consacrait toute son énergie à la vitesse, le reste servant uniquement à maintenir la sécurité de Li Muwan. Il utilisait la seule force de son corps pour charger en avant !
 

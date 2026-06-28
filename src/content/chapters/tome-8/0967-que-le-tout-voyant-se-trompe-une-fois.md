@@ -12,7 +12,7 @@ Bai Wei regarda la restriction surplombant la vallée et dit : « Je m'appelle B
 
 Wang Lin fronça les sourcils. Non seulement l'énergie Yin était toujours présente dans le corps de Bai Wei, mais elle était d'une puissance extrême. En réalité, elle avait atteint un degré inimaginable.
 
-Une énergie Yin aussi dense ne devrait pas se trouver dans le corps d'un cultivateur. Elle était si forte qu'elle en devenait presque solide. Avec le niveau de culture de Bai Wei, son corps n'aurait pas dû pouvoir supporter une telle énergie Yin ; il aurait déjà dû perdre toute fonction vitale et devenir un cadavre.
+Une énergie Yin aussi dense ne devrait pas se trouver dans le corps d'un cultivateur. Elle était si forte qu'elle en devenait presque solide. Avec le niveau de cultivation de Bai Wei, son corps n'aurait pas dû pouvoir supporter une telle énergie Yin ; il aurait déjà dû perdre toute fonction vitale et devenir un cadavre.
 
 Wang Lin dit calmement et lentement : « L'arbre blanc fleurit, le noir et le blanc s'inversent. J'ai effectivement compris une partie de ce que le frère Bai a exprimé. »
 
@@ -20,13 +20,13 @@ Bai Wei laissa échapper un soupir et afficha un sourire amer. Après un moment 
 
 Wang Lin fronça les sourcils mais resta silencieux.
 
-« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. En ce moment même, Maître est en culture de porte close. Dès qu'il en sortira, il remarquera l'anomalie et viendra ici. »
+« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. En ce moment même, Maître est en cultivation de porte close. Dès qu'il en sortira, il remarquera l'anomalie et viendra ici. »
 
 « Avant que Maître n'arrive, le frère Wang serait-il prêt à écouter une histoire... » Bai Wei esquissa un sourire amer, tandis que la confusion et la nostalgie emplissaient ses yeux.
 
 « Je suis né dans une riche famille mortelle sur la planète Tian Yun. Juste avant ma naissance, le ciel était baigné d'une lueur rouge, puis cette lueur a disparu après ma venue au monde.
 
-« Ce n'est qu'après être entré dans le monde de la culture que j'ai appris que cette lumière rouge était le véritable Yang ; et si l'on calcule mon heure de naissance, c'était lors d'un moment d'extrême Yang.
+« Ce n'est qu'après être entré dans le monde de la cultivation que j'ai appris que cette lumière rouge était le véritable Yang ; et si l'on calcule mon heure de naissance, c'était lors d'un moment d'extrême Yang.
 
 « C'était un jour extrêmement rare qui ne se produit qu'une fois tous les milliers d'années. Je suis retourné faire des recherches. Tous les enfants nés ce jour-là étaient morts dans le ventre de leur mère, excepté moi.
 
@@ -40,13 +40,13 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « En un clin d'œil, des centaines d'années passèrent et j'atteignis le stade de la Transformation de l'Âme. J'ai également eu la chance de m'élever parmi les disciples intérieurs et suis devenu l'un des disciples directs de Maître au sein de la Division Pourpre.
 
-« Au fur et à mesure que mon niveau de culture augmentait, je remarquai progressivement ma singularité. J'ai aussi découvert que la moitié de mon âme appartenait à ma petite sœur et que son âme montrait des signes de réveil. Mon plan initial était de demander à Maître de m'aider à séparer son âme afin de la laisser entrer dans le cycle de la réincarnation après son éveil... » Bai Wei poussa un soupir amer, mais bientôt son expression devint féroce et il serra les dents.
+« Au fur et à mesure que mon niveau de cultivation augmentait, je remarquai progressivement ma singularité. J'ai aussi découvert que la moitié de mon âme appartenait à ma petite sœur et que son âme montrait des signes de réveil. Mon plan initial était de demander à Maître de m'aider à séparer son âme afin de la laisser entrer dans le cycle de la réincarnation après son éveil... » Bai Wei poussa un soupir amer, mais bientôt son expression devint féroce et il serra les dents.
 
-« Je n'oublierai jamais ce jour. Je cultivais et l'âme de ma petite sœur était sur le point de s'éveiller. Soudain, Zhao Xingsha apparut devant moi, avec un niveau de culture bien supérieur au mien, et me blessa. Cela provoqua une fusion plus profonde de l'âme de ma petite sœur avec la mienne alors qu'elle s'apprêtait à s'éveiller. Cela me condamna à cette situation misérable où je n'étais ni homme ni femme. » Une haine monstrueuse brûlait dans les yeux de Bai Wei.
+« Je n'oublierai jamais ce jour. Je cultivais et l'âme de ma petite sœur était sur le point de s'éveiller. Soudain, Zhao Xingsha apparut devant moi, avec un niveau de cultivation bien supérieur au mien, et me blessa. Cela provoqua une fusion plus profonde de l'âme de ma petite sœur avec la mienne alors qu'elle s'apprêtait à s'éveiller. Cela me condamna à cette situation misérable où je n'étais ni homme ni femme. » Une haine monstrueuse brûlait dans les yeux de Bai Wei.
 
 « Désespéré, j'ai sollicité l'aide de Maître, et celui-ci me remit la méthode du Double Désir Céleste. Il dit qu'une fois que j'aurais atteint le neuvième niveau, ma sœur et moi serions séparés.
 
-« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Céleste, ma culture a progressé de manière fulgurante comme prévu. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais ; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
+« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Céleste, ma cultivation a progressé de manière fulgurante comme prévu. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais ; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
 
 « En un éclair, des centaines d'années s'écoulèrent. C'est aussi l'époque où vous avez quitté la planète Tian Yun. Lorsque j'ai réalisé que quelque chose n'allait pas, il était trop tard... » Les yeux de Bai Wei se remplirent de tristesse et il déchira sa chemise, exposant son torse. Une ligne verte et une ligne rouge s'étendaient de chacun de ses bras, et les deux lignes se croisaient au milieu comme des branches d'arbre.
 
@@ -56,7 +56,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Je sais aussi que le changement d'extrême Yang a été orchestré par Maître. Il a utilisé son sort pour provoquer ce jour d'extrême Yang si rare... Tout cela faisait partie de son plan...
 
-« En restant à la Secte du Destin Céleste, j'ai progressivement compris. La culture de Maître a atteint un goulot d'étranglement. Il est incapable de s'en sortir et a été possédé par ce démon intérieur... Je ne suis qu'une de ses expériences...
+« En restant à la Secte du Destin Céleste, j'ai progressivement compris. La cultivation de Maître a atteint un goulot d'étranglement. Il est incapable de s'en sortir et a été possédé par ce démon intérieur... Je ne suis qu'une de ses expériences...
 
 « Je sais que Maître attend que l'extrême Yin atteigne son apogée. Tout comme le jour de l'extrême Yang possédait cet instant d'extrême Yin, il attend ce moment de Yang extrême provenant de l'extrême Yin qui réside en moi !
 
@@ -94,7 +94,7 @@ Les yeux de Wang Lin étaient tourmentés par l'hésitation. Il avait toujours a
 
 S'il refusait, sa confiance face au Tout-Voyant s'effondrerait lors de leur futur affrontement. Peu importe ses actes, il se demanderait sans cesse si tout n'était pas également prévu par les calculs du Tout-Voyant !
 
-S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao ? Sa culture stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente du Tout-Voyant !
+S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao ? Sa cultivation stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente du Tout-Voyant !
 
 « Je suis un cultivateur qui défie les cieux ! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux dans la Terre des Esprits Démoniaques. Comment un simple Tout-Voyant pouvait-il être comparé aux cieux ?!
 
@@ -104,4 +104,4 @@ Le regard de Wang Lin devint glacial, puis il dit lentement : « Pourquoi n'oser
 
 Un rayon de lumière traversait l'espace à l'extérieur de la planète Tian Yun. À l'intérieur de ce rayon, un homme vêtu d'une robe pourpre affichait un visage empreint d'arrogance.
 
-« Je me demande quel est le niveau de culture de ce petit Lin désormais. Malédiction, je n'aurais pas cru que ces femmes sur la planète Feng Luan seraient si puissantes. Elles m'ont intimidé parce que je n'avais pas de frère pour me soutenir. Je vais trouver ce petit Lin et régler mon compte avec ces petites filles. »
+« Je me demande quel est le niveau de cultivation de ce petit Lin désormais. Malédiction, je n'aurais pas cru que ces femmes sur la planète Feng Luan seraient si puissantes. Elles m'ont intimidé parce que je n'avais pas de frère pour me soutenir. Je vais trouver ce petit Lin et régler mon compte avec ces petites filles. »

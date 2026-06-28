@@ -48,7 +48,7 @@ Parmi ces 10 000 bêtes, il y avait près de 300 moustiques blancs. S'il pouvait
 
 « Ce Royaume Céleste du Vent est un lieu de vie ou de mort, mais pour moi, c'est le plus grand trésor que j'aie jamais vu ! » Wang Lin prit une profonde inspiration pour réprimer son excitation.
 
-« Je me demande à quel niveau de culture correspondent les moustiques violets dont Tu Si se souvenait... » Wang Lin réfléchit, mais un mystère subsistait.
+« Je me demande à quel niveau de cultivation correspondent les moustiques violets dont Tu Si se souvenait... » Wang Lin réfléchit, mais un mystère subsistait.
 
 Il regarda le roi des moustiques à ses côtés. Il avait trouvé cette créature sur la planète Suzaku, sans jamais comprendre pourquoi elle était apparue là. Un autre point le troublait grandement.
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin s'illuminèrent ; il sauta du dos du roi des moustiques pou
 
 Cependant, alors que la bouche du moustique bleu fondait sur lui, Wang Lin ne s'arrêta pas et laissa échapper un froid reniflement. Il leva sa main droite et pointa le doigt. Le moustique bleu trembla soudainement et resta immobile, comme figé sur place.
 
-Puis Wang Lin posa sa main droite sur la tête de la bête-moustique bleue. Son Sens Divin s'engouffra dans l'esprit du moustique. Grâce à sa compréhension des bêtes-moustiques et à sa puissante culture, il parcourut facilement ses souvenirs.
+Puis Wang Lin posa sa main droite sur la tête de la bête-moustique bleue. Son Sens Divin s'engouffra dans l'esprit du moustique. Grâce à sa compréhension des bêtes-moustiques et à sa puissante cultivation, il parcourut facilement ses souvenirs.
 
 Après un long moment, Wang Lin retira sa main et se mit à réfléchir.
 

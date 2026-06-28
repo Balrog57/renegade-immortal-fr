@@ -20,7 +20,7 @@ Wang Lin esquissa un sourire et hocha la tête aux deux compagnons.
 
 Alors qu'il continuait sa route, un rire joyeux retentit et Situ Nan apparut. Il prit Wang Lin dans ses bras en souriant : « Bien joué, gamin, tu es enfin sorti ! »
 
-Le sourire de Wang Lin s'élargit. Les blessures de Situ Nan avaient guéri et sa culture était devenue encore plus puissante ; même son poison était désormais maîtrisé.
+Le sourire de Wang Lin s'élargit. Les blessures de Situ Nan avaient guéri et sa cultivation était devenue encore plus puissante ; même son poison était désormais maîtrisé.
 
 La femme en argent et Maître Hollow Wind suivirent Situ Nan. La femme en argent restait silencieusement dans l'ombre de Wang Lin. Quant à Maître Hollow Wind, bien que son expression fût empreinte de respect, la joie qui brillait dans ses yeux venait du plus profond de son cœur.
 

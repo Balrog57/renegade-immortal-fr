@@ -72,7 +72,7 @@ Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de s
 
 Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courdes sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
 
-Il les ouvrit et vit que l'eau était toujours à l'intérieur. Il en but une gorgée et s'aperçut qu'elle était encore chargée d'énergie spirituelle. Sans dire un mot, Wang Lin prit plusieurs grandes gorgées et commença sa culture.
+Il les ouvrit et vit que l'eau était toujours à l'intérieur. Il en but une gorgée et s'aperçut qu'elle était encore chargée d'énergie spirituelle. Sans dire un mot, Wang Lin prit plusieurs grandes gorgées et commença sa cultivation.
 
 Chaque fois que l'énergie spirituelle se dissipait de son corps, il buvait davantage d'eau de source. Bientôt, des filaments d'énergie commencèrent à s'accumuler en lui, le rapprochant du premier niveau de Condensation de Qi.
 

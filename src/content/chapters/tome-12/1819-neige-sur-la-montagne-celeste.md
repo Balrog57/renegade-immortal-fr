@@ -58,7 +58,7 @@ Dans tout le continent du Taureau Céleste, la neige verte n'existait que sur la
 
 « La neige de la Montagne Céleste... Cet homme... est un génie céleste ! » Du Qing resta silencieux un long moment avant de marmonner cette phrase. À cet instant, le dédain et le mépris qu'il avait éprouvés envers Wang Lin ces sept derniers mois disparurent, remplacés par un sentiment de mystère et d'incertitude.
 
-Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir avec la culture, mais plutôt avec les mystères qui entouraient l'homme.
+Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir avec la cultivation, mais plutôt avec les mystères qui entouraient l'homme.
 
 Dans la grotte, Wang Lin tapota ses vêtements pour en chasser le froid, puis s'assit. Après sept mois, il avait enfin éveillé son avatar dans le vide.
 

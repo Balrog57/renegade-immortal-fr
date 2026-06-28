@@ -10,9 +10,9 @@ Dès l'apparition de la lame, une tempête éclata au sein de l'espace vert ; de
 
 Mais les deux Messagers du Démon Vert qui se tenaient derrière lui ne possédaient pas un trésor aussi mystérieux. Lorsque l'énergie glaciale les atteignit, leurs expressions changèrent radicalement et ils reculèrent. Leurs corps furent instantanément recouverts de givre, et même leurs sourcils se transformèrent en glace.
 
-Le visage livide, ils poussèrent des rugissements tout en battant en retraite, activant la totalité de leur culture pour espérer résister à ce froid mortel.
+Le visage livide, ils poussèrent des rugissements tout en battant en retraite, activant la totalité de leur cultivation pour espérer résister à ce froid mortel.
 
-Cela s'expliquait par le fait que la Lame Yin n'avait point de maître. Si l'âme originelle de Wang Lin avait marqué l'arme et qu'il avait puisé dans le regain de culture de cette armure d'âme, la Lame Yin aurait été assez puissante pour ébranler le monde et faire pleurer les dieux et les fantômes !
+Cela s'expliquait par le fait que la Lame Yin n'avait point de maître. Si l'âme originelle de Wang Lin avait marqué l'arme et qu'il avait puisé dans le regain de cultivation de cette armure d'âme, la Lame Yin aurait été assez puissante pour ébranler le monde et faire pleurer les dieux et les fantômes !
 
 Elle pourrait même invoquer les âmes des vingt-neuf continents pour former une suppression terrifiante ; c’était pourquoi il était si difficile pour les deux Messagers du Démon Vert de braver ce froid !
 
@@ -76,7 +76,7 @@ L'espace vert se mit à trembler et les innombrables scorpions s'effondrèrent, 
 
 Ce fourneau de dix mille pieds de haut ressemblait à une vasque céleste. Entièrement vert, il était imprégné de l'aura des scorpions. Il contenait les derniers objets rares du vieil homme et s'apprêtait à métamorphoser le corps de Wang Lin !
 
-« Messagers du Démon Vert, transformez votre culture en feu pour alimenter le fourneau ! » Toussa l'homme, sa voix rauque trahissant son exaltation.
+« Messagers du Démon Vert, transformez votre cultivation en feu pour alimenter le fourneau ! » Toussa l'homme, sa voix rauque trahissant son exaltation.
 
 Les deux Messagers n'hésitèrent pas et s'assirent aux côtés du fourneau. Leurs mains formèrent des sceaux tandis que leurs âmes originelles s'échappaient pour expulser de vastes quantités d'essence originelle, la transformant en flammes nourricières.
 
@@ -88,7 +88,7 @@ Ces flux de puissance infinie s'engouffrèrent dans le corps de Wang Lin comme u
 
 Son âme originelle observait ce pouvoir du monde sous la protection de la Perle Défiant le Ciel. Une excitation croissante envahit ses yeux, mais il s'imposa une discipline de fer pour ne pas l'absorber prématurément.
 
-Il lui suffisait d'une seule pensée pour reprendre le contrôle de son corps et absorber cette puissance afin de faire bondir sa culture. Cependant, il attendait que la puissance se concentre davantage en lui.
+Il lui suffisait d'une seule pensée pour reprendre le contrôle de son corps et absorber cette puissance afin de faire bondir sa cultivation. Cependant, il attendait que la puissance se concentre davantage en lui.
 
 Il avait attendu plus de cent ans pour cette chance. Si son âme originelle se manifestait trop tôt et était détectée par l'extérieur, sa fortune s'en trouverait grandement amoindrie.
 

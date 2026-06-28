@@ -92,9 +92,9 @@ En entendant cela, le moral de Du Qing remonta instantanément et il sourit. Il 
 
 L'expression de Wang Lin resta impassible tandis qu'il hochait lentement la tête. Il se transforma en un rayon de lumière aux côtés de Du Qing et partit. La ramification sous la montagne s'étiola lentement.
 
-Dans le Secte du Taureau Céleste, deux rayons de lumière traversèrent rapidement le ciel. Le niveau de culture de Du Qing étant plus élevé, il était naturellement plus rapide que Wang Lin. En avançant, Du Qing jeta un coup d'œil à Wang Lin et commença à réfléchir.
+Dans le Secte du Taureau Céleste, deux rayons de lumière traversèrent rapidement le ciel. Le niveau de cultivation de Du Qing étant plus élevé, il était naturellement plus rapide que Wang Lin. En avançant, Du Qing jeta un coup d'œil à Wang Lin et commença à réfléchir.
 
-« Quel est le niveau de culture de cet homme... Il semble être au sommet du Vide Spirituel, mais il a pu encaisser deux de mes attaques sans que cela ne semble être son plein potentiel... Bien que le niveau de culture puisse être dissimulé, la vitesse est aussi un bon indicateur... Voyons à quelle vitesse il est capable d'aller ! » Du Qing réfléchit silencieusement et augmenta lentement sa cadence. Il dépassa Wang Lin, creusant la distance entre eux.
+« Quel est le niveau de cultivation de cet homme... Il semble être au sommet du Vide Spirituel, mais il a pu encaisser deux de mes attaques sans que cela ne semble être son plein potentiel... Bien que le niveau de cultivation puisse être dissimulé, la vitesse est aussi un bon indicateur... Voyons à quelle vitesse il est capable d'aller ! » Du Qing réfléchit silencieusement et augmenta lentement sa cadence. Il dépassa Wang Lin, creusant la distance entre eux.
 
 « Je ne dois pas être trop évident, j'ai juste besoin d'en voir un peu. Après tout, j'ai besoin de lui pour entrer en contact avec ce Grand Empereur... » Du Qing n'osait pas aller trop loin. Lorsqu'il vit que Wang Lin peinait à suivre, il s'apprêtait à ralentir quand ses pupilles se contractèrent.
 

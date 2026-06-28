@@ -104,7 +104,7 @@ Cette âme bleue s'élança rapidement, mais une fois de plus, Wang Lin ressenti
 
 Au moment où l'âme bleue allait sombrer dans le cycle de la réincarnation, Wang Lin aperçut une silhouette floue à l'intérieur du fragment. Cette figure était... Situ Nan !!
 
-« Pas étonnant que les progrès de Situ Nan soient si stupéfiants et que son niveau de culture change sans cesse. Il est donc le fragment de talent du Souverain Céleste aux Sept Couleurs ! »
+« Pas étonnant que les progrès de Situ Nan soient si stupéfiants et que son niveau de cultivation change sans cesse. Il est donc le fragment de talent du Souverain Céleste aux Sept Couleurs ! »
 
 Le troisième fragment était orange. Cette lumière était douce, mais imprégnée d'une aura de droiture. En volant, tous les malfaiteurs tremblaient devant cette clarté orangée. Ce fragment représentait la conscience du Souverain Céleste aux Sept Couleurs !
 

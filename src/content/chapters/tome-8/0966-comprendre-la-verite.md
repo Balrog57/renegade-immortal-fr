@@ -8,7 +8,7 @@ slug: comprendre-la-verite
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 
-« Le frère Wang fait-il référence au Système Stellaire Tout-Ciel lorsqu'il évoque les familles cultivatrices ? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit : « En parlant du Système Stellaire Tout-Ciel, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
+« Le frère Wang fait-il référence au Système Stellaire Tout-Ciel lorsqu'il évoque les familles cultivatrices ? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit : « En parlant du Système Stellaire Tout-Ciel, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Cultivation ne me l'avait pas dit, je ne l'aurais pas cru. »
 
 « La bataille d'Allheaven contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
 
@@ -40,7 +40,7 @@ Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans s
 
 « Le fait que la fleur ne vive que trois respirations signifie qu'il ne lui restait plus beaucoup de temps. Il m'a dit tout cela pour que je puisse le sauver ! »
 
-« C'est pourquoi sa réaction fut si exagérée lorsque j'ai interrogé sa méthode de culture ; c'était pour accentuer mon doute et me pousser à méditer ses paroles. C'est aussi pour cette raison qu'il m'a dit qu'il s'agissait de la méthode du Double Désir Céleste ! »
+« C'est pourquoi sa réaction fut si exagérée lorsque j'ai interrogé sa méthode de cultivation ; c'était pour accentuer mon doute et me pousser à méditer ses paroles. C'est aussi pour cette raison qu'il m'a dit qu'il s'agissait de la méthode du Double Désir Céleste ! »
 
 « La marque étrange formée par le flux d'énergie Yin ne se révèle normalement pas. Cependant, lorsque Bai Wei a prononcé "méthode du Double Désir Céleste", elle est apparue. Bai Wei voulait me rappeler quelque chose ! »
 
@@ -54,7 +54,7 @@ En un seul pas, Wang Lin était déjà apparu devant la chambre de Bai Wei. Il n
 
 Par conséquent, Wang Lin voulait savoir exactement ce qui arrivait à Bai Wei !
 
-Dès son apparition, il s'exclama en ressentant une faible fluctuation de restriction provenant de la chambre de Bai Wei. Elle était extrêmement ténue ; même avec le niveau de culture de Wang Lin, il ne l'aurait pas remarquée sans être présent sur les lieux.
+Dès son apparition, il s'exclama en ressentant une faible fluctuation de restriction provenant de la chambre de Bai Wei. Elle était extrêmement ténue ; même avec le niveau de cultivation de Wang Lin, il ne l'aurait pas remarquée sans être présent sur les lieux.
 
 « Quelque chose ne va pas ! » Les yeux de Wang Lin s'illuminèrent et son Sens Divin se précipita dans la pièce. Dès que son Sens Divin toucha la faible fluctuation de la restriction, une puissante force de répulsion surgit et percuta son Sens Divin.
 
@@ -64,9 +64,9 @@ Après ce vacarme, les yeux de Wang Lin brillèrent d'une lueur vive. La pièce 
 
 Bai Wei avait disparu !
 
-« Avec la culture de Bai Wei, il lui serait impossible de partir sans que moi ou les frères Chen ne le remarquions. Il est également impossible pour lui de poser de telles restrictions. Bai Wei a dû être enlevé de force ! »
+« Avec la cultivation de Bai Wei, il lui serait impossible de partir sans que moi ou les frères Chen ne le remarquions. Il est également impossible pour lui de poser de telles restrictions. Bai Wei a dû être enlevé de force ! »
 
-« La personne qui a pris Bai Wei doit posséder un niveau de culture bien supérieur au mien et à celui des frères Chen ! » L'expression de Wang Lin était sombre, mais ses yeux se rétrécirent rapidement.
+« La personne qui a pris Bai Wei doit posséder un niveau de cultivation bien supérieur au mien et à celui des frères Chen ! » L'expression de Wang Lin était sombre, mais ses yeux se rétrécirent rapidement.
 
 « Faux ! Si quelqu'un avait enlevé Bai Wei, pourquoi aurait-il placé une restriction pour garder la chambre... » Wang Lin réfléchit silencieusement, puis un sourire narquois apparut sur son visage.
 

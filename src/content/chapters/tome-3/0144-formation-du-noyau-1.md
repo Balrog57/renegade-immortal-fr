@@ -96,11 +96,11 @@ Ces derniers jours, l'état d'esprit de Li Muwan avait évolué. Au début, elle
 
 Mais elle réalisa vite que ce Wang Lin passait presque tout son temps en entraînement à huis clos. Elle qui pensait autrefois que son frère était un cultivateur assidu, elle trouvait désormais que Wang Lin l'était véritablement.
 
-À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement ? Dans ses souvenirs, la personne la plus jeune à avoir atteint l'Établissement des Fondations avait eu 17 ans, mais il lui avait fallu 30 années supplémentaires pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Hou Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Hou Fen d'un pays de culture de rang 2 à un rang 3.
+À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement ? Dans ses souvenirs, la personne la plus jeune à avoir atteint l'Établissement des Fondations avait eu 17 ans, mais il lui avait fallu 30 années supplémentaires pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Hou Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Hou Fen d'un pays de cultivation de rang 2 à un rang 3.
 
 En regardant Wang Lin, elle pensait qu'il n'avait qu'une vingtaine d'années. Il lui semblait impossible qu'il puisse former son noyau en si peu de temps. Lorsque Wang Lin lui avait promis de la renvoyer chez elle une fois la Formation du Noyau atteinte, elle avait soupiré intérieurement. Elle pensait qu'il lui faudrait des décennies pour y parvenir et ressentit un certain mépris envers lui. S'il voulait la garder, il aurait dû le dire simplement plutôt que d'utiliser ce prétexte.
 
-Après une courte réflexion, elle demanda : « Votre... votre culture a-t-elle atteint un goulot d'étranglement ? » L'essence de son sang spirituel était entre ses mains ; si jamais il avait des exigences déraisonnables, elle ne saurait comment réagir. Cette question l'obsédait depuis longtemps. Aujourd'hui, en voyant son froncement de sourcils, elle se souvint que le Sortilège de la Mort exigeait d'absorber l'énergie Yin des femmes. Selon ses calculs, cela faisait des mois qu'il n'avait tué personne ni touché aucune femme.
+Après une courte réflexion, elle demanda : « Votre... votre cultivation a-t-elle atteint un goulot d'étranglement ? » L'essence de son sang spirituel était entre ses mains ; si jamais il avait des exigences déraisonnables, elle ne saurait comment réagir. Cette question l'obsédait depuis longtemps. Aujourd'hui, en voyant son froncement de sourcils, elle se souvint que le Sortilège de la Mort exigeait d'absorber l'énergie Yin des femmes. Selon ses calculs, cela faisait des mois qu'il n'avait tué personne ni touché aucune femme.
 
 Wang Lin ignora ses pensées et se contenta de hocher la tête.
 
@@ -142,7 +142,7 @@ Peu importait la profondeur de cette quatorzième vallée ou les secrets qu'elle
 
 Le temps s'écoula, et en un clin d'œil, trois années passèrent.
 
-La catastrophe à Hou Fen fut finalement résolue. Le pays de culture de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé dix-neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
+La catastrophe à Hou Fen fut finalement résolue. Le pays de cultivation de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé dix-neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
 
 La qualité des bêtes spirituelles varie grandement. Elles sont classées en catégories : anormales, spirituelles, désolées et célestes. Chaque catégorie possède des niveaux élevé, moyen et faible.
 
@@ -152,7 +152,7 @@ Il faut noter qu'une bête spirituelle de haute qualité équivaut à un cultiva
 
 Le dragon qui était mort était une bête spirituelle de qualité moyenne.
 
-Bien que les bêtes de feu aient disparu, l'énergie spirituelle résiduelle rendait toute culture impossible dans le pays. Ils ne pouvaient qu'attendre que cette énergie se dissipe avec le temps.
+Bien que les bêtes de feu aient disparu, l'énergie spirituelle résiduelle rendait toute cultivation impossible dans le pays. Ils ne pouvaient qu'attendre que cette énergie se dissipe avec le temps.
 
 La lutte contre Xuan Wu se poursuivait, mais les affrontements impliquant des centaines de personnes étaient devenus rares ; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris une partie de Xuan Wu, les cultivateurs de Hou Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
 
@@ -168,7 +168,7 @@ Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bra
 
 Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à 3 672 mètres.
 
-Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état d'Underworld requis par la Méthode de culture de l'Ascension des Enfers.
+Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état d'Underworld requis par la Méthode de cultivation de l'Ascension des Enfers.
 
 Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
 
@@ -186,7 +186,7 @@ Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une
 
 Cependant, sa couleur n'était pas dorée, mais d'un gris très profond.
 
-Wang Lin ignorait que la Méthode de culture de l'Ascension des Enfers avait subi des modifications dues à la perle défiant le ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
+Wang Lin ignorait que la Méthode de cultivation de l'Ascension des Enfers avait subi des modifications dues à la perle défiant le ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
 
 La raison pour laquelle la Méthode de l'Ascension des Enfers était considérée comme le chemin le plus rapide vers la Formation du Noyau résidait dans sa capacité à former d'abord un noyau froid prototype, qui utiliserait ensuite l'énergie spirituelle pour se transformer en un noyau doré.
 

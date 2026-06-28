@@ -58,7 +58,7 @@ Ils ressentaient encore l'extase de sortir du Royaume Céleste Antique, mais cet
 
 La flèche tua instantanément tous les Célestes qui étaient sortis, puis elle pénétra à l'intérieur. Cela provoqua un fracas tonitruant dans la brèche et déclencha un effondrement violent.
 
-L'impact de l'effondrement se propagea dans toutes les directions sous forme d'une onde de choc. Cette onde était assez puissante pour dévier la trajectoire de planètes de culture, mais elle ne suffit pas à ébranler le corps divin ancien de Wang Lin !
+L'impact de l'effondrement se propagea dans toutes les directions sous forme d'une onde de choc. Cette onde était assez puissante pour dévier la trajectoire de planètes de cultivation, mais elle ne suffit pas à ébranler le corps divin ancien de Wang Lin !
 
 Les cheveux de Wang Lin fouettaient l'air et les ondes de choc faisaient claquer ses vêtements bruyamment. Pourtant, son regard restait ferme, tout comme son corps !
 
@@ -72,7 +72,7 @@ Après le premier tir, le corps du Souverain s'arrêta soudainement à des milli
 
 Après quelques pas, il se mit à rire de nouveau comme un fou, libérant le ressentiment accumulé depuis trois ans !
 
-« Le second tir... il a bel et bien tiré une seconde fois. Wang Lin, tu es mort ! Je vais d'abord sceller le Système Stellaire Antique pour que tu ne puisses pas fuir, puis je te tuerai lentement ! » Sans hésiter, le Souverain agita la main et sa puissante culture se déploya. Ce sceau n'empêcherait pas les gens d'entrer, mais il leur interdirait de sortir !
+« Le second tir... il a bel et bien tiré une seconde fois. Wang Lin, tu es mort ! Je vais d'abord sceller le Système Stellaire Antique pour que tu ne puisses pas fuir, puis je te tuerai lentement ! » Sans hésiter, le Souverain agita la main et sa puissante cultivation se déploya. Ce sceau n'empêcherait pas les gens d'entrer, mais il leur interdirait de sortir !
 
 Une fois cela fait, le Souverain disparut en se précipitant vers lui.
 

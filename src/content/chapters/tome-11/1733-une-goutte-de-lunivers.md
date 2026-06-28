@@ -10,7 +10,7 @@ Chapitre 1733 - Une goutte de l'univers !
 
 La terreur du Général des Eaux était aussi vaste que les vagues de l'océan. Cette armure lui avait été léguée par ses ancêtres ; il l'utilisait depuis si longtemps qu'il avait lentement fusionné sa propre lignée avec elle pour qu'elle ne fasse plus qu'un avec lui.
 
-Sans cette armure, il n'était qu'un cultivateur du quatrième niveau de la Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la culture. Cependant, l'armure était extrêmement étrange : une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.
+Sans cette armure, il n'était qu'un cultivateur du quatrième niveau de la Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la cultivation. Cependant, l'armure était extrêmement étrange : une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.
 
 Il se souvenait que lorsque son ancêtre la lui avait remise, celui-ci avait précisé que même au sein de la secte ancestrale, une telle armure était rare. Elle était extrêmement difficile à raffiner et ne serait confiée qu'à celui ayant accompli de grands mérites ou s'apprêtant à se rendre dans un lieu périlleux.
 
@@ -86,7 +86,7 @@ Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant
 
 L'essence au sein de cette sphère devint encore plus puissante à mesure que l'eau de mer et la pluie se condensaient !
 
-« Même si ta culture défie le ciel, avec cette Goutte de l'Univers, la puissance de mon sort a décuplé. Je vais te comprimer en une seule goutte et te raffiner jusqu'à la mort ! » Le Général des Eaux traçait des sceaux avec frénésie et frappait la sphère. Chaque impact faisait onduler le pouvoir de l'armure à travers l'eau, accélérant sa réduction.
+« Même si ta cultivation défie le ciel, avec cette Goutte de l'Univers, la puissance de mon sort a décuplé. Je vais te comprimer en une seule goutte et te raffiner jusqu'à la mort ! » Le Général des Eaux traçait des sceaux avec frénésie et frappait la sphère. Chaque impact faisait onduler le pouvoir de l'armure à travers l'eau, accélérant sa réduction.
 
 Wang Lin ressentit presque de la gratitude envers le Général des Eaux. Les actions de ce dernier lui permettaient d'observer encore plus de changements dans l'essence et de mieux la comprendre !
 
@@ -108,4 +108,4 @@ C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau aut
 
 « Comment peut-il l'affiner ? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage ancien mais aussi les sorts des Célestes. C'est extrêmement rare ! »
 
-« Et il porte réellement sept essences dans son corps, c'est extraordinaire !! Utiliser les lignes de sang dans les yeux pour contenir l'essence de la restriction... je n'ai jamais vu personne faire cela auparavant ! Une double culture, ancienne et céleste... »
+« Et il porte réellement sept essences dans son corps, c'est extraordinaire !! Utiliser les lignes de sang dans les yeux pour contenir l'essence de la restriction... je n'ai jamais vu personne faire cela auparavant ! Une double cultivation, ancienne et céleste... »

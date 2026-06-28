@@ -46,7 +46,7 @@ En tombant, la pluie créa un Monde de Vent et de Pluie. Bien que beaucoup d'âm
 
 Alors que les hurlements résonnaient, Wang Lin ne prêta aucune attention au résultat mais continua de reculer. Une lueur de froideur traversa son regard et il pointa à nouveau le ciel.
 
-« Montagne S'Écroule, Terres S'Effondrent ! » Wang Lin n'avait pas atteint l'illumination du sort *Terres S'Effondrent*, mais avec son niveau de culture, il pouvait l'imiter. Tandis qu'il pointait le doigt, de vastes volcans apparurent et des grondements de tonnerre résonnèrent à travers le monde. Grâce à l'énergie céleste de Wang Lin, le sort de Bai Fan devint un véritable sort céleste !
+« Montagne S'Écroule, Terres S'Effondrent ! » Wang Lin n'avait pas atteint l'illumination du sort *Terres S'Effondrent*, mais avec son niveau de cultivation, il pouvait l'imiter. Tandis qu'il pointait le doigt, de vastes volcans apparurent et des grondements de tonnerre résonnèrent à travers le monde. Grâce à l'énergie céleste de Wang Lin, le sort de Bai Fan devint un véritable sort céleste !
 
 Tout cela ne suffisait pas à résister à la Concubine Impériale Céleste. Wang Lin n'avait d'ailleurs nullement l'intention d'utiliser ces sorts pour la repousser ; il prévoyait d'employer les derniers sorts de Bai Fan !
 
@@ -56,7 +56,7 @@ Wang Lin n'avait vu que ce sort une seule fois, utilisé par le Seigneur Célest
 
 Wang Lin n'était pas aussi habile que Qing Shui pour utiliser *Lune Sombre, Ciel Clair* à sa guise. Cependant, il pouvait forcer l'activation du sort en utilisant tous les sorts qui le précédaient.
 
-Il l'avait vu une fois ; ainsi, avec son niveau de culture actuel et plus de 2 000 ans d'illumination, ce n'était pas difficile d'accomplir au moins cela !
+Il l'avait vu une fois ; ainsi, avec son niveau de cultivation actuel et plus de 2 000 ans d'illumination, ce n'était pas difficile d'accomplir au moins cela !
 
 Tandis que les grondements tonnerraient, la femme traversa calmement tous ces sorts. Ils étaient inutiles contre elle.
 

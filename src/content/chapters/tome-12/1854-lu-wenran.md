@@ -42,7 +42,7 @@ Sans hésiter, Wang Lin s'élança vers le Pic Fantôme.
 
 À l'extrémité nord de la Grande Secte de l'Âme se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
 
-Seuls les disciples principaux possédant un haut niveau de culture pouvaient s'y rendre seuls.
+Seuls les disciples principaux possédant un haut niveau de cultivation pouvaient s'y rendre seuls.
 
 La Grande Secte de l'Âme y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Grande Secte de l'Âme était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
 
@@ -54,7 +54,7 @@ La grande majorité d'entre elles étaient directement scellées ici, en attenda
 
 Le soir du cinquième jour, le ciel était brumeux et l'atmosphère oppressante lorsque Wang Lin atteignit les abords du Pic Fantôme. La montagne, drapée de brouillard, était extrêmement lugubre. Des rafales de vent glacial soufflaient, donnant au lieu des airs d'outre-tombe.
 
-Pourtant, Wang Lin ne ressentit aucun inconfort. C'était peut-être dû à sa culture, ou au fait qu'il avait déjà transformé son domaine en une rivière des enfers par le passé.
+Pourtant, Wang Lin ne ressentit aucun inconfort. C'était peut-être dû à sa cultivation, ou au fait qu'il avait déjà transformé son domaine en une rivière des enfers par le passé.
 
 Le cycle de la vie et de la mort, les flux de la rivière des enfers... Wang Lin n'était pas étranger à ces phénomènes. Il ne marqua aucune pause et s'avança vers le Pic Fantôme.
 

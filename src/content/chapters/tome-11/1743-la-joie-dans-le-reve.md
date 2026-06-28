@@ -28,7 +28,7 @@ Au cours de sa vie, Wang Lin avait parcouru de nombreux lieux étrangers, et la 
 
 « Aujourd'hui est un jour spécial... Wan Er, te souviens-tu... » Wang Lin ne se souvenait ni de son âge, ni de sa date de naissance, mais il se souvenait parfaitement de ce jour, des milliers d'années auparavant !
 
-C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en culture de porte close où il laissait passer les années en silence.
+C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en cultivation de porte close où il laissait passer les années en silence.
 
 Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la mélancolie, la solitude et la perte emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer !
 

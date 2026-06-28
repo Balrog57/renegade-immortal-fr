@@ -76,9 +76,9 @@ Le temps passa lentement. Plusieurs jours plus tard, Wang Lin ouvrit les yeux. L
 
 La capacité de récupération passive des Dieux Anciens était immense : en quelques jours seulement, toutes ses blessures avaient disparu. Même ses vertiges s'étaient dissipés. Pourtant, le problème majeur restait la récupération de son énergie originelle.
 
-S'il avait été à l'extérieur, cela n'aurait pas été un souci. Avec sa culture, il pourrait facilement absorber l'énergie originelle du monde lors de sa méditation.
+S'il avait été à l'extérieur, cela n'aurait pas été un souci. Avec sa cultivation, il pourrait facilement absorber l'énergie originelle du monde lors de sa méditation.
 
-Cependant, après plusieurs jours de culture, la régénération de son énergie était extrêmement lente. Il percevait vaguement qu'il n'y avait que peu d'énergie originelle dans le désert de sable noir. Le reste s'était totalement fusionné avec les flammes infinies à l'extérieur.
+Cependant, après plusieurs jours de cultivation, la régénération de son énergie était extrêmement lente. Il percevait vaguement qu'il n'y avait que peu d'énergie originelle dans le désert de sable noir. Le reste s'était totalement fusionné avec les flammes infinies à l'extérieur.
 
 Par conséquent, il lui serait difficile de l'absorber ; ce serait comme tenter de saisir un charbon ardent sans se brûler.
 
@@ -86,7 +86,7 @@ Après avoir réfléchi un moment, Wang Lin se leva et regarda le cristal jaune 
 
 Les flammes obscurcissaient toujours sa vue, et des crépitements résonnaient dans le ciel. La surface blanche comme un miroir était recouverte par la fumée noire des incendies. De loin, tout le ciel semblait tapissé d'un nuage sombre et dense.
 
-« Je ne peux pas récupérer mon énergie originelle, donc ma culture ne peut atteindre son apogée ; cela signifie que je ne peux ni explorer ce cristal jaune imprudemment, ni quitter la tour noire. » Tandis qu'il cultivait, son Sens Divin s'était propagé dans toute la tour noire, mais il n'avait rien détecté d'anormal.
+« Je ne peux pas récupérer mon énergie originelle, donc ma cultivation ne peut atteindre son apogée ; cela signifie que je ne peux ni explorer ce cristal jaune imprudemment, ni quitter la tour noire. » Tandis qu'il cultivait, son Sens Divin s'était propagé dans toute la tour noire, mais il n'avait rien détecté d'anormal.
 
 Tout en réfléchissant, il observa les flammes denses à l'extérieur et commença à faire ses calculs. Puis, serrant les dents, il fit un pas hors de la tour noire !
 

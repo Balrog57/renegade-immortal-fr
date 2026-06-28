@@ -104,7 +104,7 @@ Les fils de soie lunaire environnants se brisèrent soudainement. Tout fut repou
 
 « Invoquer le premier trésor du Clan Lunaire : l'Os Fragmentaire d'Ancien Dieu ! » rugit follement le vieil homme en blanc, tandis qu'une gigantesque faille spatiale apparaissait soudainement. Cette déchirure spatiale s'ouvrit largement, libérant une pression indescriptible.
 
-Un doigt de la taille d'une demi-planète de culture émergea lentement de la faille. Il n'y avait ni chair ni sang sur ce doigt, seulement des os !
+Un doigt de la taille d'une demi-planète de cultivation émergea lentement de la faille. Il n'y avait ni chair ni sang sur ce doigt, seulement des os !
 
 C'était un os de majeur !
 

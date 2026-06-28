@@ -8,7 +8,7 @@ slug: chance-3
 ---
 L'effondrement de l'espace de stockage l'avait contraint à utiliser le sort de fusion du sang originel. Il se considérait désormais comme malchanceux d'avoir rencontré ce vieil homme qui lui avait dérobé la moitié de son âme originelle, ainsi que la moitié de l'énergie originelle qu'il avait mis d'innombrables années à cultiver.
 
-Cela avait considérablement réduit son niveau de culture, mais cela n'aurait pas été un problème si ce n'était pour la dernière attaque du vieil homme qui l'avait replongé dans un état de léthargie, l'obligeant à attendre que les gouttes de sang se rassemblent à nouveau. De plus, l'assaut du vieil homme contenait une force puissante qui agissait comme une prison.
+Cela avait considérablement réduit son niveau de cultivation, mais cela n'aurait pas été un problème si ce n'était pour la dernière attaque du vieil homme qui l'avait replongé dans un état de léthargie, l'obligeant à attendre que les gouttes de sang se rassemblent à nouveau. De plus, l'assaut du vieil homme contenait une force puissante qui agissait comme une prison.
 
 Juste au moment où sa fusion atteignait le point critique et qu'il était sur le point de s'éveiller, Wang Lin apparut. L'Ancêtre Sanguin avait essuyé d'innombrables revers ; en fin de compte, il n'avait pu que s'enfuir.
 
@@ -90,7 +90,7 @@ Après son passage, deux cultivateurs sortirent d'un fragment rocheux légèreme
 
 « Ceci... Qu'est-ce que c'est que ça... » Les deux hommes se regardèrent. Leurs crânes picotaient alors qu'ils s'enfuyaient précipitamment.
 
-Tout au long de son chemin, chaque fois que Wang Lin croisait ces rochers, il choisissait ceux qui mesuraient environ trente mètres. Il les saisissait et utilisait son énergie spirituelle pour les traîner derrière lui. C'étaient ses armes. Dans ses souvenirs, les Anciens Dieux aux premiers stades de leur culture ne possédaient pas beaucoup de sorts et aimaient utiliser ces pierres comme armes. Cela semblait facile à manier, et plus il en aurait, mieux ce serait !
+Tout au long de son chemin, chaque fois que Wang Lin croisait ces rochers, il choisissait ceux qui mesuraient environ trente mètres. Il les saisissait et utilisait son énergie spirituelle pour les traîner derrière lui. C'étaient ses armes. Dans ses souvenirs, les Anciens Dieux aux premiers stades de leur cultivation ne possédaient pas beaucoup de sorts et aimaient utiliser ces pierres comme armes. Cela semblait facile à manier, et plus il en aurait, mieux ce serait !
 
 Wang Lin se dirigea vers la Planète Sanguine, laissant derrière lui une traînée de rochers qui ressemblait à une rivière le suivant. Il portait en lui une intention meurtrière implacable à mesure qu'il approchait !
 

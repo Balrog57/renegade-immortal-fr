@@ -22,13 +22,13 @@ Son regard était serein, sans la moindre perturbation. En ouvrant les paupière
 
 Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il se trouvait à une demi-étape de l'étape Scryer du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
 
-Atteindre l'étape Scryer du Nirvana avec seulement un peu plus de 1 000 ans de culture était suffisant pour terrasser l'esprit de n'importe qui. Wang Lin, un homme doté d'un talent ordinaire mais animé par ses propres idéaux et une nature inflexible, avait pu atteindre une telle hauteur après n'avoir persévéré que mille ans !
+Atteindre l'étape Scryer du Nirvana avec seulement un peu plus de 1 000 ans de cultivation était suffisant pour terrasser l'esprit de n'importe qui. Wang Lin, un homme doté d'un talent ordinaire mais animé par ses propres idéaux et une nature inflexible, avait pu atteindre une telle hauteur après n'avoir persévéré que mille ans !
 
 Lorsqu'il était encore sur la planète Suzaku, nul n'aurait pu prévoir qu'il irait aussi loin !
 
-L'expression de Wang Lin était calme. À son réveil, il n'avait libéré qu'une fraction de sa culture et cela avait déjà provoqué un tel bouleversement. Il pouvait imaginer qu'au moment où il franchirait l'étape, la rétribution divine arriverait instantanément.
+L'expression de Wang Lin était calme. À son réveil, il n'avait libéré qu'une fraction de sa cultivation et cela avait déjà provoqué un tel bouleversement. Il pouvait imaginer qu'au moment où il franchirait l'étape, la rétribution divine arriverait instantanément.
 
-« La rétribution divine est quelque peu étrange. Compte tenu de ce qui s'est passé lorsque j'ai traversé tout ce karma, je dois rester prudent et ne pas faire preuve de négligence ! » Le regard de Wang Lin devint glacial. Puisqu'il refusait de céder aux cieux lorsqu'il avait atteint le stade d'Ascendant, chaque fois que son niveau de culture augmentait, il était réprimé par la rétribution divine.
+« La rétribution divine est quelque peu étrange. Compte tenu de ce qui s'est passé lorsque j'ai traversé tout ce karma, je dois rester prudent et ne pas faire preuve de négligence ! » Le regard de Wang Lin devint glacial. Puisqu'il refusait de céder aux cieux lorsqu'il avait atteint le stade d'Ascendant, chaque fois que son niveau de cultivation augmentait, il était réprimé par la rétribution divine.
 
 La puissance de cette rétribution était plus redoutable et étrange qu'auparavant !
 

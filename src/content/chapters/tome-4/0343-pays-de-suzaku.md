@@ -28,13 +28,13 @@ Red Butterfly s'apprêtait à parler quand son expression changea soudainement. 
 
 La main gauche de Red Butterfly forma de multiples sceaux qu'elle envoya vers son front. Après un long combat, elle parvint péniblement à se redresser avant de se rasseoir, le visage sombre.
 
-« Je vais tuer Ceng Niu, même si cela va à l'encontre des ordres du Mont Suzaku. Au pire, ils me puniront en m'imposant une culture en ermitage pendant cent ans. » Le cœur de l'homme d'âge moyen se serra alors qu'il se détournait pour partir.
+« Je vais tuer Ceng Niu, même si cela va à l'encontre des ordres du Mont Suzaku. Au pire, ils me puniront en m'imposant une cultivation en ermitage pendant cent ans. » Le cœur de l'homme d'âge moyen se serra alors qu'il se détournait pour partir.
 
-Red Butterfly murmura : « Grand frère de discipline, si quelqu'un doit tuer Ceng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de culture en ermitage. »
+Red Butterfly murmura : « Grand frère de discipline, si quelqu'un doit tuer Ceng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de cultivation en ermitage. »
 
 L'expression de l'homme devint maussade et il se rassea. Cependant, il sortit un morceau de jade, y enregistra quelques informations, puis le lança.
 
-« Je n'irai pas moi-même. J'enverrai des cultivateurs issus de pays de culture de rang inférieur. De cette façon, le Mont Suzaku ne pourra rien me reprocher non plus. »
+« Je n'irai pas moi-même. J'enverrai des cultivateurs issus de pays de cultivation de rang inférieur. De cette façon, le Mont Suzaku ne pourra rien me reprocher non plus. »
 
 Red Butterfly ne répondit pas. Elle ferma les yeux pour concentrer son attention sur le scellement de la ligne noire qui l'avait envahie.
 

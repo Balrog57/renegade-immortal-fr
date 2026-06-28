@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 457 - Like a butterfly
 slug: comme-un-papillon
 ---
-À cet instant, à 5 000 kilomètres de la bataille entre Wang Lin et Red Butterfly, Zhou Wutai continuait de voler. Son niveau de culture étant inférieur à celui de Wang Lin, il s'efforçait de rattraper son retard.
+À cet instant, à 5 000 kilomètres de la bataille entre Wang Lin et Red Butterfly, Zhou Wutai continuait de voler. Son niveau de cultivation étant inférieur à celui de Wang Lin, il s'efforçait de rattraper son retard.
 
 Lorsque la lame en forme de demi-lune fila devant lui, il fut profondément stupéfait ; il n'avait jamais rien vu d'aussi rapide de toute sa vie.
 
@@ -32,7 +32,7 @@ Le vieil homme soupira : « Peu importe. Laissons-la. Suis-moi jusqu'à la monta
 
 Ce vieil homme était Yunque Zi.
 
-Le Clan des Immortels Abandonnés utilisait le crâne de l'Ancêtre. Grâce au pouvoir de tatouage d'un shaman à douze feuilles, ils avaient réussi à briser le sceau du Cristal de la Planète de Culture pour y envoyer Yunque Zi.
+Le Clan des Immortels Abandonnés utilisait le crâne de l'Ancêtre. Grâce au pouvoir de tatouage d'un shaman à douze feuilles, ils avaient réussi à briser le sceau du Cristal de la Planète de Cultivation pour y envoyer Yunque Zi.
 
 Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que du pouvoir issu de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yunque Zi, il y avait une limite de temps ; une fois ce délai expiré, Yunque Zi serait tué par la puissance mystérieuse du Cristal.
 

@@ -34,7 +34,7 @@ Ses yeux étaient emplis de désespoir. Alors que la troisième empreinte de pau
 
 En un éclair, il s'élança vers le ciel, en direction de la troisième empreinte. Son âme commença à brûler et son âme d'origine dégagea une aura destructrice. En cet instant de vie ou de mort, il décida de consumer sa propre existence pour obtenir un sursaut de puissance !
 
-Son niveau de culture grimpa follement depuis celui de l'Exalt de Tribulation du Vide à mesure qu'il brûlait sa force vitale. Alors que la troisième empreinte se refermait, son niveau de culture bondit jusqu'à celui d'un Exalt Doré !!
+Son niveau de cultivation grimpa follement depuis celui de l'Exalt de Tribulation du Vide à mesure qu'il brûlait sa force vitale. Alors que la troisième empreinte se refermait, son niveau de cultivation bondit jusqu'à celui d'un Exalt Doré !!
 
 Au moment précis où il devint un Exalt Doré, la troisième empreinte de paume le frappa dans un fracas de tonnerre. L'empreinte de foudre s'effondra, mais ce n'était que du tonnerre ordinaire, et non le tonnerre de destruction.
 
@@ -50,7 +50,7 @@ Wang Lin n'esquiva pas ; il se contenta de fixer froidement l'homme à la robe r
 
 « Tu es digne que j'utilise 70 % de ma puissance ! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta. Ses yeux s'illuminèrent tandis que son vrai corps des cinq éléments et son vrai corps d'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge !
 
-Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa culture de Tribulation du Vide, avec la veine céleste libérant 70 % de son pouvoir !
+Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa cultivation de Tribulation du Vide, avec la veine céleste libérant 70 % de son pouvoir !
 
 Le coup semblait sans force, mais il fit changer les couleurs du monde et le fit trembler. Le vide entre eux se distordit et des ondulations résonnèrent. Le poing de Wang Lin sembla transcender le temps et l'espace pour s'abattre sur la poitrine de l'homme à la robe rouge.
 

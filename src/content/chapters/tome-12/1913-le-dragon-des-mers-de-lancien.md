@@ -24,7 +24,7 @@ Grâce à leur lignage, au fil des éons, ils n'étaient pas seulement l'empereu
 
 Plus important encore, cet empereur était l'un des neuf soleils. Une telle puissance alliée à son statut permettait au pouvoir de la famille impériale de cette génération d'atteindre des sommets vertigineux !
 
-« Salutations, Empereur Céleste ! » Tous les cultivateurs joignirent les mains et s'inclinèrent. Peu importe leur origine ou leur niveau de culture, ils s'inclinaient avec un respect profond, venu du plus fort de leur cœur.
+« Salutations, Empereur Céleste ! » Tous les cultivateurs joignirent les mains et s'inclinèrent. Peu importe leur origine ou leur niveau de cultivation, ils s'inclinaient avec un respect profond, venu du plus fort de leur cœur.
 
 La silhouette dorée dans le ciel n'était pas l'Empereur Céleste lui-même, mais le fait de détenir l'édit impérial signifiait qu'il était son incarnation !
 
@@ -68,7 +68,7 @@ L'Ancien Green Bull regarda le ciel après la dissipation de la lumière dorée,
 
 C'était l'opportunité unique d'entrer dans le temple ancestral !
 
-« Bien que la divination de l'Ancien ait légèrement changé, elle est restée globalement la même... Mais je n'ai jamais dit à Wang Lin la raison... » Le vieil homme secoua la tête dans un soupir et se dirigea vers son lieu de culture retiré.
+« Bien que la divination de l'Ancien ait légèrement changé, elle est restée globalement la même... Mais je n'ai jamais dit à Wang Lin la raison... » Le vieil homme secoua la tête dans un soupir et se dirigea vers son lieu de cultivation retiré.
 
 Cette guerre qui avait duré plus de cent ans prit fin grâce à ces deux édits impériaux. Les cultivateurs du Continent du Démon Vert entamèrent leur retraite progressive vers leurs terres d'origine.
 

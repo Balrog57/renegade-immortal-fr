@@ -14,7 +14,7 @@ Cependant, elle n'aurait jamais imaginé qu'un tel homme puisse exister. Non seu
 
 « Quel est ce domaine qui émane de ton corps ? » Wang Lin n'avait pas été affecté par son charme grâce à sa vaste expérience de vie et à sa maîtrise de la technique de scellement de l'âme.
 
-Au cours de ses 500 ans de culture, Wang Lin n'avait jamais été avec une femme ; son cœur était donc bien plus déterminé que celui de l'ancêtre du Clan des Démons Géants.
+Au cours de ses 500 ans de cultivation, Wang Lin n'avait jamais été avec une femme ; son cœur était donc bien plus déterminé que celui de l'ancêtre du Clan des Démons Géants.
 
 Parallèlement, la technique de scellement de l'âme était la technique la plus vénérée de la Secte de la Raffinement de l'Âme. Outre le contrôle du drapeau des mille millions d'âmes, son autre usage consistait à rendre son âme imperméable à toute influence extérieure.
 
@@ -22,7 +22,7 @@ C'est grâce à cela qu'il pouvait contrôler les mille millions de fragments d'
 
 La femme regarda Wang Lin avec effroi. N'osant plus déployer son domaine, elle dit : « Je ne sais pas comment cela est arrivé. Quand je me suis réveillée, le domaine était déjà là. »
 
-Wang Lin réfléchit un instant. Le niveau de culture de cette femme n'était que celui de la Formation du Noyau, et pourtant son domaine était assez puissant pour affecter quelqu'un comme Li Yuanfeng. Cela était très étrange.
+Wang Lin réfléchit un instant. Le niveau de cultivation de cette femme n'était que celui de la Formation du Noyau, et pourtant son domaine était assez puissant pour affecter quelqu'un comme Li Yuanfeng. Cela était très étrange.
 
 « Cette femme a dû naître lorsqu'une partie de l'âme originelle d'un puissant aîné s'est détachée. Le résultat est ce fragment d'âme. Cela expliquerait pourquoi elle possède un domaine aussi puissant. Ce domaine doit être lié au charme ou à la luxure. » Les yeux de Wang Lin brillèrent. Il forma un sceau pour poser une restriction sur la femme, puis l'enferma dans le drapeau des âmes.
 

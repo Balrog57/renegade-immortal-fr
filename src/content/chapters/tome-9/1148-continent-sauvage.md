@@ -16,7 +16,7 @@ En jetant un regard sur la demeure qu'elle détestait tant, toute trace de bienv
 
 Ce qui exaspéra Xu Yun au plus haut point, c'est que Ceng Niu souriait en contemplant la pilule. Ce sourire fit bouillir le sang de la jeune femme.
 
-« Ceng Niu ! » Xu Yun grinça des dents et prit une profonde inspiration. Se remémorant ses propres spéculations sur son niveau de culture, elle réprima sa rage et s'efforça de rester calme...
+« Ceng Niu ! » Xu Yun grinça des dents et prit une profonde inspiration. Se remémorant ses propres spéculations sur son niveau de cultivation, elle réprima sa rage et s'efforça de rester calme...
 
 Après avoir ramené une mèche de cheveux derrière son oreille, Xu Yun dit d'une voix douce : « Ceng Niu, félicitations pour ce raffinage. Puis-je la voir ? »
 
@@ -24,7 +24,7 @@ Après quinze échecs, presque toutes les herbes du jardin avaient été consum�
 
 Wang Lin regarda la pilule dans sa main avec un certain regret. La fusion d'une âme de bête avec une pilule exigeait une attention méticuleuse à de nombreux détails. Ces subtilités n'étaient pas expliquées dans le jade ; il devait les découvrir par l'expérience.
 
-À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré ses mille ans de culture, il ressentit une pointe d'embarras.
+À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré ses mille ans de cultivation, il ressentit une pointe d'embarras.
 
 D'un revers de la main droite, Wang Lin lança la pilule vers Xu Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
 

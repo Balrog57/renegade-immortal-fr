@@ -22,7 +22,7 @@ Ces lumières fusionnèrent pour former une carapace de tortue qui entoura le pa
 
 Au même moment, quatre volutes de fumée verte s'échappèrent de la carapace et se transformèrent en quatre anciens vêtus de robes vertes !
 
-Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de culture oscillait entre le début et le milieu du stade Nirvana Scryer.
+Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de cultivation oscillait entre le début et le milieu du stade Nirvana Scryer.
 
 Les quatre anciens dégageaient tous une aura céleste et une énergie spirituelle céleste dense. L'un d'eux, dont les yeux brillaient comme la foudre, fixa Wang Lin et hurla : « Saleté des bas-mondes, tu oses envahir la grotte céleste ? Ta punition est la mort ! »
 
@@ -108,7 +108,7 @@ Ces pas possédaient une force étrange ; dès qu'ils atteignirent les oreilles 
 
 L'expression de Maître Hollow Wind changea ; il fit circuler l'énergie d'origine dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
 
-Cependant, les trois frères Chen, Big Head et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
+Cependant, les trois frères Chen, Big Head et Lei Ji n'avaient pas une cultivation suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
 
 Seul le cadavre argenté resta de marbre. Étant un cadavre doté d'intelligence, l'absence de battements cardiaques la rendait insensible.
 
@@ -116,7 +116,7 @@ Le visage de Wang Lin s'assombrit progressivement. Possédant le corps d'un Dieu
 
 Les pas se firent de plus en plus nets, comme si quelqu'un émergeait des profondeurs du palais. Les visages des trois frères Chen pâlirent encore davantage et les veines sur le front de Big Head se gonflèrent.
 
-Lei Ji, qui avait le niveau de culture le plus bas, tremblait de tout son corps. Il recula de quelques pas, incapable de supporter la pression. Il poussa un rugissement et son corps s'étendit jusqu'à atteindre plusieurs centaines de pieds de haut pour enfin pouvoir tenir bon.
+Lei Ji, qui avait le niveau de cultivation le plus bas, tremblait de tout son corps. Il recula de quelques pas, incapable de supporter la pression. Il poussa un rugissement et son corps s'étendit jusqu'à atteindre plusieurs centaines de pieds de haut pour enfin pouvoir tenir bon.
 
 Les pas semblaient avoir atteint l'entrée du palais. À cet instant, une silhouette blanche apparut de l'intérieur.
 

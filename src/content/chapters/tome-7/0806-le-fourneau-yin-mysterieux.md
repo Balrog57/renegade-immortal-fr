@@ -98,7 +98,7 @@ Cet autel n'était pas grand et présentait de nombreuses fissures. Sous l'autel
 
 Le vieil homme atterrit devant la porte. Il mordit le bout de son doigt et traça dans les airs, avec son sang, la même rune que celle gravée sur la porte. Une lueur rouge jaillit et le bruit de l'ouverture de la porte résonna dans toute la zone, révélant l'entrée sombre à l'intérieur.
 
-Des courants d'aura froide s'en échappèrent. Lorsque ce froid touchait le corps, il semblait pouvoir s'y infiltrer profondément. Si la culture de quelqu'un était insuffisante, cette aura laisserait des blessures internes cachées.
+Des courants d'aura froide s'en échappèrent. Lorsque ce froid touchait le corps, il semblait pouvoir s'y infiltrer profondément. Si la cultivation de quelqu'un était insuffisante, cette aura laisserait des blessures internes cachées.
 
 Le vieil homme se tint sur le côté. « Grand Céleste, c'est ici que se trouve le Fourneau Yin Mystérieux. »
 

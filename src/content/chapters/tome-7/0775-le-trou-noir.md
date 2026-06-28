@@ -100,7 +100,7 @@ C'est parce que la décharge de l'esprit de la formation fut si intense que tous
 
 Presque tous les cultivateurs se précipitèrent vers le faisceau, portés par cette même conviction. Les deux membres de la famille Zhao étant déjà proches, ils furent les premiers sur place.
 
-Peu après, plusieurs rayons de lumière accoururent de toutes les directions. Leurs niveaux de culture variaient, mais aucun n'atteignait le stade de l'Yin Illusoire. La plupart se situaient au sommet du dernier stade de l'Ascendant.
+Peu après, plusieurs rayons de lumière accoururent de toutes les directions. Leurs niveaux de cultivation variaient, mais aucun n'atteignait le stade de l'Yin Illusoire. La plupart se situaient au sommet du dernier stade de l'Ascendant.
 
 En arrivant, ils virent immédiatement l'anneau de poussière. Ils s'arrêtèrent, n'osant approcher davantage, mais leurs regards restèrent rivés sur le faisceau déclinant, trahissant une immense cupidité.
 

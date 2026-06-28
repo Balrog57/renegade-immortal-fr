@@ -36,11 +36,11 @@ Le Pic Feng Yun était le point culminant de la planète Qing Ling. Bien que l'�
 
 Il était également drapé de brume, lui donnant l'apparence d'une montagne céleste.
 
-De nombreuses familles de culture existaient sur la planète Qing Ling. Leur nombre était comparable à celui des nations mortelles sur cette planète densément peuplée. Presque chaque pays mortel possédait au moins une ou deux familles de culture.
+De nombreuses familles de cultivation existaient sur la planète Qing Ling. Leur nombre était comparable à celui des nations mortelles sur cette planète densément peuplée. Presque chaque pays mortel possédait au moins une ou deux familles de cultivation.
 
 Ce phénomène étrange était lié au fait que la planète manquait d'énergie spirituelle et ne comptait aucun cultivateur de la Formation de l'Âme.
 
-Le Pic Heng Yun appartenait à la famille Zhang, qui possédait le plus grand nombre de cultivateurs de l'Âme Naissante. Normalement, les membres de la famille Zhang dont la longévité touchait à sa fin venaient ici pour entamer une culture en isolement afin de tenter de comprendre les cieux. Au fil du temps, ce pic autrefois magnifique était devenu aride pour une raison inconnue. Même le vent qui soufflait sur la montagne était devenu glacial.
+Le Pic Heng Yun appartenait à la famille Zhang, qui possédait le plus grand nombre de cultivateurs de l'Âme Naissante. Normalement, les membres de la famille Zhang dont la longévité touchait à sa fin venaient ici pour entamer une cultivation en isolement afin de tenter de comprendre les cieux. Au fil du temps, ce pic autrefois magnifique était devenu aride pour une raison inconnue. Même le vent qui soufflait sur la montagne était devenu glacial.
 
 Ce jour-là, Zhang Xinhai, le chef de la famille Zhang et celui qui était resté bloqué au stade de l'Âme Naissante le plus longtemps, sortit de la montagne, le corps imprégné d'une aura de mort.
 
@@ -76,7 +76,7 @@ En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une t
 
 Lorsque le sort atteignit le front de Zhang Xinhai, son corps trembla et il ressentit instantanément une vitalité jaillissant de l'énergie spirituelle injectée en lui. Son visage devint rouge alors qu'il prenait une profonde inspiration. Il regarda Wang Lin et dit avec respect : « Merci, Aîné. Si l'Aîné a la moindre commande, le cadet fera tout son possible pour s'y conformer ! » Quelqu'un ayant dirigé la famille Zhang n'était pas stupide. Personne dans ce monde n'agissait ainsi gratuitement.
 
-Lorsqu'il avait entendu Wang Lin dire que cette montagne était agréable, il l'avait offerte sans hésiter. Pour un cultivateur du rang de Wang Lin, une telle remarque était déjà une immense clémence. Ceux qui avaient un tempérament de feu se seraient contentés de la prendre par la force ; s'ils avaient été mécontents, il leur aurait suffi de massacrer quelques petites familles de culture comme la leur.
+Lorsqu'il avait entendu Wang Lin dire que cette montagne était agréable, il l'avait offerte sans hésiter. Pour un cultivateur du rang de Wang Lin, une telle remarque était déjà une immense clémence. Ceux qui avaient un tempérament de feu se seraient contentés de la prendre par la force ; s'ils avaient été mécontents, il leur aurait suffi de massacrer quelques petites familles de cultivation comme la leur.
 
 Zhang Xinhai devina que cet homme n'était pas originaire de la planète Qing Ling et devait venir d'ailleurs. Pouvoir marcher dans l'espace signifiait qu'il était au moins au stade de la Transformation de l'Âme ou au-delà !
 
@@ -100,7 +100,7 @@ Le doigt droit de Wang Lin pointa vers l'avant et un sort céleste fut projeté,
 
 Une fois cela fait, Wang Lin s'assit et son Sens Divin se déploya à nouveau sur toute la planète Qing Ling. Cette fois, il ne cherchait pas ; il transmettait un message.
 
-« À partir d'aujourd'hui, ceci est ma planète de culture ! La zone située dans un rayon de 5 000 kilomètres autour du Pic Heng Yun est une zone interdite. Tout intrus se verra refuser toute clémence ! »
+« À partir d'aujourd'hui, ceci est ma planète de cultivation ! La zone située dans un rayon de 5 000 kilomètres autour du Pic Heng Yun est une zone interdite. Tout intrus se verra refuser toute clémence ! »
 
 Le Sens Divin de Wang Lin tonna comme le tonnerre à travers la planète. Sa voix s'engouffra dans les oreilles de chaque cultivateur, faisant pâlir leurs visages.
 

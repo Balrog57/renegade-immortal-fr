@@ -22,13 +22,13 @@ Les membres de la secte qui écoutaient ces trois hommes suivirent l'exemple. Il
 
 « Bienvenue, Empereur Divin ! » À cet instant, les voix de tous les membres de la secte présents résonnèrent. Le cri de dizaines de milliers de personnes provoqua un rugissement capable de faire trembler la terre.
 
-L'expression de Wang Lin demeura impassible. Bien qu'il fût entouré d'acclamations, il savait que beaucoup parmi cette foule n'étaient pas sincères. Après tout, son niveau de culture n'était pas assez élevé pour subjuguer l'assemblée, mais cela lui importait peu. Le cœur de Wang Lin n'appartenait pas à la Secte Divine de l'Oiseau Vermillon.
+L'expression de Wang Lin demeura impassible. Bien qu'il fût entouré d'acclamations, il savait que beaucoup parmi cette foule n'étaient pas sincères. Après tout, son niveau de cultivation n'était pas assez élevé pour subjuguer l'assemblée, mais cela lui importait peu. Le cœur de Wang Lin n'appartenait pas à la Secte Divine de l'Oiseau Vermillon.
 
 Tandis que Wang Lin était au centre des célébrations, quelques individus éprouvaient des émotions complexes, l'esprit ailleurs.
 
 Le premier était Ta Shan. Il ne s'était pas avancé pour saluer Wang Lin, préférant rester là où il était, contemplant silencieusement le ciel. Bien qu'il ne puisse percevoir Wang Lin depuis la planète sur laquelle il se trouvait, il pouvait vaguement ressentir sa présence au loin et entendre les échos des acclamations l'entourant.
 
-Son expression était empreinte d'une grande amertume ; après un long moment, il laissa échapper un soupir avant de fermer les yeux pour poursuivre sa culture. Cependant, son esprit ne parvint nullement à s'apaiser.
+Son expression était empreinte d'une grande amertume ; après un long moment, il laissa échapper un soupir avant de fermer les yeux pour poursuivre sa cultivation. Cependant, son esprit ne parvint nullement à s'apaiser.
 
 À ses côtés, un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et entouré de cruches de vin, il en saisit une et prit une grande gorgée, le visage marqué par la tristesse.
 
@@ -52,11 +52,11 @@ Cependant, Wang Lin ne s'attarda pas sur ces formalités. Lorsqu'il accepta de d
 
 Durant les trois années suivantes, le vieil Empereur Divin l'avait beaucoup aidé. Bien que cela fît partie du marché, Wang Lin se sentait tenu de lui rendre cette faveur.
 
-Pourtant, Wang Lin savait qu'en raison de sa situation actuelle, il ne pourrait pas rester en un lieu trop longtemps. Durant ces trois années, il s'était souvent réveillé de sa culture avec une sensation de malaise, comme si sa peau le démangeait.
+Pourtant, Wang Lin savait qu'en raison de sa situation actuelle, il ne pourrait pas rester en un lieu trop longtemps. Durant ces trois années, il s'était souvent réveillé de sa cultivation avec une sensation de malaise, comme si sa peau le démangeait.
 
 Si cela ne s'était produit qu'une ou deux fois, ce n'aurait pas été grave, mais au cours de ces trois dernières années, Wang Lin avait ressenti cela plus de dix fois. Cette sensation devenait de plus en plus nette et il pressentait vaguement qu'elle émanait de la planète Suzaku.
 
-Wang Lin savait pertinemment qu'à mesure que son niveau de culture augmentait, sa capacité à pressentir le danger s'aiguisait également. Il était évident que ce sentiment de péril provenait de Tuo Sen !
+Wang Lin savait pertinemment qu'à mesure que son niveau de cultivation augmentait, sa capacité à pressentir le danger s'aiguisait également. Il était évident que ce sentiment de péril provenait de Tuo Sen !
 
 Le rugissement de Tuo Sen, lorsqu'il avait quitté le Domaine de l'Ancien Dieu il y a mille ans, semblait encore résonner dans l'esprit de Wang Lin.
 
@@ -108,7 +108,7 @@ La salle arrière de la Secte Divine de l'Oiseau Vermillon était entièrement b
 
 La femme était d'une grande beauté. Elle portait une robe de soie bleue qui dévoilait partiellement sa poitrine. Ses yeux étaient magnifiques, empreints d'une pointe de coquetterie. Elle observait attentivement ses deux compagnons : l'un était un vieillard et l'autre un jeune homme chauve.
 
-Le vieil homme portait une robe rouge et dégageait une aura de majesté. Bien que ses yeux fussent clos, des distorsions de l'espace dansaient autour de lui, comme s'il n'appartenait pas à ce monde. Cela témoignait d'un niveau de culture terrifiant.
+Le vieil homme portait une robe rouge et dégageait une aura de majesté. Bien que ses yeux fussent clos, des distorsions de l'espace dansaient autour de lui, comme s'il n'appartenait pas à ce monde. Cela témoignait d'un niveau de cultivation terrifiant.
 
 Quant au jeune homme chauve, il paraissait très ordinaire sous sa robe verte. Il semblait calme, bien qu'une lueur de confusion traverse parfois son regard avant de s'effacer rapidement.
 

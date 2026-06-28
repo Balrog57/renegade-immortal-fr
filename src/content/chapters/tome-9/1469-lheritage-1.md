@@ -42,7 +42,7 @@ Des bruits de craquements résonnèrent et ces milliers de cultivateurs crachèr
 
 Ce phénomène ne se produisit pas qu'à cet endroit. Dans les huit directions entourant la plateforme, les dix mille cultivateurs de front crachèrent du sang et s'alignèrent selon cette étrange formation !
 
-Une aura de mort emplit la zone. Tous les cultivateurs ainsi alignés virent leur culture, leur âme originelle et toute trace de vie volater en éclats !
+Une aura de mort emplit la zone. Tous les cultivateurs ainsi alignés virent leur cultivation, leur âme originelle et toute trace de vie volater en éclats !
 
 Le poing de Wang Lin s'arrêta dans les airs et se détendit lentement pour devenir une paume tandis qu'il retirait son bras. Puis, il fit un geste désinvolte de la main.
 

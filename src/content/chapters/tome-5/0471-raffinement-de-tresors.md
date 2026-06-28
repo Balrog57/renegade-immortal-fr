@@ -72,7 +72,7 @@ Le temps passa lentement. Trois jours plus tard, les yeux de Wang Lin s'illumin�
 
 Cette fois, Wang Lin sortit le Fouet de l'Âme.
 
-Une trace de Sens Divin imprégnait ce fouet, une empreinte que Wang Lin ne pouvait briser avec sa culture actuelle, mais il possédait un moyen d'y faire face.
+Une trace de Sens Divin imprégnait ce fouet, une empreinte que Wang Lin ne pouvait briser avec sa cultivation actuelle, mais il possédait un moyen d'y faire face.
 
 D'une simple pensée, la pagode contenant le domaine de Zhou Yi vola et se posa au sol, déployant instantanément un domaine de niveau Ascendant.
 
@@ -148,7 +148,7 @@ Wang Lin ouvrit les yeux, toucha le piège à bêtes sur son poignet et afficha 
 
 « Hélas, la perle défiant le ciel manque toujours de l'élément métal. Lorsque j'ai tué Qian Feng, j'ai réussi à capturer le corps élémentaire métallique de Red Butterfly, mais cela n'a apporté qu'une fraction de l'élément nécessaire... » Wang Lin soupira et s'envola vers l'horizon, se dirigeant vers le lieu où Situ Nan menait sa vie de roi.
 
-Dans le pays de culture de rang 4 de Zhou, au sein du palais de la capitale mortelle, on pouvait entendre la voix de Situ Nan :
+Dans le pays de cultivation de rang 4 de Zhou, au sein du palais de la capitale mortelle, on pouvait entendre la voix de Situ Nan :
 
 « Haha, servez bien ce seigneur ! Si je suis satisfait, je donnerai à vous, mes chéries, ces pilules qui maintiendront votre peau aussi lisse et blanche qu'elle l'est aujourd'hui pendant vingt ou trente ans... »
 

@@ -84,7 +84,7 @@ Feng Luan se tourna vers Wang Lin et demanda : « Wang Lin, es-tu prêt à deven
 
 Wang Lin remercia aussitôt et hocha la tête.
 
-Les yeux de Zhou Jin se rétrécirent, devenant glacials. Le niveau de culture de Feng Luan était égal au sien, au stade initial de l'Âme Naissante, mais son partenaire de culture, Yang Sen, se trouvait au stade intermédiaire de l'Âme Naissante. Il n'était pas raisonnable d'offenser deux cultivateurs de l'Âme Naissante pour une affaire aussi dérisoire. Zhou Jin grogna : « Puisque la sœur apprentie Feng Luan est disposée à prendre cet homme comme disciple, je ne poursuivrai pas cette affaire. Mais au-delà de son identité, compte tenu des batailles à venir, avec son simple niveau d'Établissement des Fondations au stade intermédiaire, il lui sera difficile de garantir sa propre sécurité. »
+Les yeux de Zhou Jin se rétrécirent, devenant glacials. Le niveau de cultivation de Feng Luan était égal au sien, au stade initial de l'Âme Naissante, mais son partenaire de cultivation, Yang Sen, se trouvait au stade intermédiaire de l'Âme Naissante. Il n'était pas raisonnable d'offenser deux cultivateurs de l'Âme Naissante pour une affaire aussi dérisoire. Zhou Jin grogna : « Puisque la sœur apprentie Feng Luan est disposée à prendre cet homme comme disciple, je ne poursuivrai pas cette affaire. Mais au-delà de son identité, compte tenu des batailles à venir, avec son simple niveau d'Établissement des Fondations au stade intermédiaire, il lui sera difficile de garantir sa propre sécurité. »
 
 Sur ces mots, il agita ses manches et partit.
 

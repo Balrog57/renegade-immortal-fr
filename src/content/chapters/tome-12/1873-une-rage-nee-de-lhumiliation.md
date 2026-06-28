@@ -16,7 +16,7 @@ En effet, la dernière étape de la fusion avec l'armure de l'âme dépendait de
 
 Une fois la fusion accomplie, il n'aurait plus à tenir compte de l'opinion de quiconque.
 
-« Ancien Wang Lin, je ne m'attendais pas à ce que vous agissiez ainsi... Avec votre niveau de culture, comment auriez-vous pu tuer un cultivateur de la Tribulation du Vide ? Il aurait été préférable d'admettre votre incapacité à l'affronter et d'éviter le combat. Personne n'en aurait fait cas, même si de nombreux membres du troisième méridien ont péri ! »
+« Ancien Wang Lin, je ne m'attendais pas à ce que vous agissiez ainsi... Avec votre niveau de cultivation, comment auriez-vous pu tuer un cultivateur de la Tribulation du Vide ? Il aurait été préférable d'admettre votre incapacité à l'affronter et d'éviter le combat. Personne n'en aurait fait cas, même si de nombreux membres du troisième méridien ont péri ! »
 
 « Mais bien qu'ils soient morts, ils sont morts avec bravoure. Je ne les oublierai pas, personne ici ne les oubliera, et le Continent du Taureau Céleste ne les oubliera jamais !! »
 
@@ -30,7 +30,7 @@ Ses paroles firent immédiatement retomber l'agitation provoquée par la présen
 
 Beaucoup regardaient Wang Lin avec mépris et indignation.
 
-« Les propos de l'Ancien Lu sont tout à fait justes. Avec son niveau de culture, il n'aurait jamais pu réussir ; il a dû s'emparer de cette tête pour simuler un exploit ! »
+« Les propos de l'Ancien Lu sont tout à fait justes. Avec son niveau de cultivation, il n'aurait jamais pu réussir ; il a dû s'emparer de cette tête pour simuler un exploit ! »
 
 « Quel individu sans vergogne ! »
 
@@ -74,7 +74,7 @@ Quant au vieil homme nommé Zhou, son visage devint livide. Il se souvenait parf
 
 Les mille et plus de cultivateurs en contrebas réfléchirent un instant, avant qu'un tumulte encore plus violent qu'auparavant n'éclate. Pour eux, les cultivateurs de la Tribulation du Vide étaient des êtres divins bien au-dessus de leur portée. Voir Wang Lin brandir les têtes de deux tels êtres était un choc trop immense.
 
-« Vous pouvez dire qu'un vieil homme au niveau de culture insondable a tué le premier cultivateur du Continent du Démon Vert. Et que je ne faisais que passer pour lui trancher la tête sur le cadavre. »
+« Vous pouvez dire qu'un vieil homme au niveau de cultivation insondable a tué le premier cultivateur du Continent du Démon Vert. Et que je ne faisais que passer pour lui trancher la tête sur le cadavre. »
 
 « Puis, ce même vieil homme est apparu lors de ma patrouille pour tuer le second cultivateur du Continent du Démon Vert. J'ai également été témoin de la scène et j'ai coupé la tête du cadavre », déclara Wang Lin d'un ton lugubre en fixant Lu Wenran, dont l'expression se décomposait rapidement.
 
@@ -98,7 +98,7 @@ En voyant l'âme spectrale, le visage de Lu Wenran pâlit et il recula de plusie
 
 Le cœur du vieil homme tressaillit et il hocha précipitamment la tête. Même Lu Wenran était désormais sans voix. À moins qu'il ne décide de tuer Wang Lin sur-le-champ, tout était déjà joué !
 
-« Compagnons cultivateurs, voici la dernière étape de la fusion des âmes. Puisque l'armure a été invoquée par votre sang et votre culture, celui qui sera choisi par la majorité d'entre vous pourra fusionner avec elle ! » Le vieil homme nommé Zhou, rusé, resta évasif pour ne pas trop offenser Lu Wenran.
+« Compagnons cultivateurs, voici la dernière étape de la fusion des âmes. Puisque l'armure a été invoquée par votre sang et votre cultivation, celui qui sera choisi par la majorité d'entre vous pourra fusionner avec elle ! » Le vieil homme nommé Zhou, rusé, resta évasif pour ne pas trop offenser Lu Wenran.
 
 Une fois qu'il eut parlé, le silence retomba. Lu Wenran leva la tête, une intention meurtrière émanant de lui alors qu'il fixait Wang Lin. Il pesait le pour et le contre, mais il refusait de capituler ainsi !
 

@@ -40,9 +40,9 @@ Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente : « Ancien s
 
 L'Ancien affichait une expression extrêmement grave ; grâce à son intelligence, il comprit instantanément la situation. Wang Lin avait voulu l'attirer ici, mais craignant ses soupçons, il avait provoqué un combat pour ensuite s'échapper au moment crucial, espérant qu'il le poursuive dans les 7 Millions de Mondes afin d'en finir avec lui.
 
-En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre ! Cependant, sa culture était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
+En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre ! Cependant, sa cultivation était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
 
-« C'est toi ! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la divine tribulation ! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan de la Foudre Dispersée ne s'en était aperçu auparavant !
+« C'est toi ! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la divine tribulation ! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de cultivation. Pourtant, personne dans le Clan de la Foudre Dispersée ne s'en était aperçu auparavant !
 
 Une telle chose dépassait l'entendement, et il ne comprenait pas comment cela avait été possible. Mais désormais qu'il l'avait découvert, il devait impérativement tuer cet homme !
 
@@ -82,7 +82,7 @@ Bien que Wang Lin n'eût pas encore attaqué, son regard était semblable à une
 
 L'Ancien ne pouvait se permettre la moindre distraction. Ses yeux brillaient de détermination alors qu'il s'apprêtait à utiliser son cinquième sortilège du Flétrissement Céleste pour les éliminer tous deux instantanément. Il ressentit un léger sentiment de crise, le convainquant que s'il continuait à ménager sa vitalité, il serait trop tard !
 
-Une fois sa décision prise, ses mains formèrent rapidement un sceau et ses vêtements se gonflèrent. Ses longs cheveux ondulaient sans qu'aucun vent ne souffle, et une culture extrêmement puissante jaillit de son corps !
+Une fois sa décision prise, ses mains formèrent rapidement un sceau et ses vêtements se gonflèrent. Ses longs cheveux ondulaient sans qu'aucun vent ne souffle, et une cultivation extrêmement puissante jaillit de son corps !
 
 « Je vais vous montrer la véritable puissance du cinquième Flétrissement Céleste ! Je sacrifie mille ans de ma vie en échange des nuages de tonnerre célestes. Formation des Nuages de Tonnerre ! » Le marquage de l'Ancien brilla intensément et, dans un fracas, le compas géant réapparut dans les 7 Millions de Mondes !
 

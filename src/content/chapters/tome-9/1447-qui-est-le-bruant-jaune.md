@@ -48,9 +48,9 @@ Il avait réussi à éliminer la plupart des présents et à chasser les autres.
 
 « De cette façon, même si tu triches, tu n'as aucune chance de ressusciter ! » Il avait depuis longtemps percé à jour les intentions de l'érudit, c'est pourquoi il avait laissé une restriction pour pouvoir téléporter un retour ici.
 
-Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de culture. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Originelle et de la Restriction du Temps, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
+Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de cultivation. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Originelle et de la Restriction du Temps, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
 
-Wang Lin s'approcha de la brume rouge. Cette simple restriction avait coûté tant de vies. Il ressentit une fois de plus la cruauté du monde de la culture.
+Wang Lin s'approcha de la brume rouge. Cette simple restriction avait coûté tant de vies. Il ressentit une fois de plus la cruauté du monde de la cultivation.
 
 Observant les trois jades qui maintenaient la brume, Wang Lin s'avança lentement à l'intérieur. Il se tint là où l'homme s'était trouvé et des lueurs de déduction brillèrent dans ses yeux.
 

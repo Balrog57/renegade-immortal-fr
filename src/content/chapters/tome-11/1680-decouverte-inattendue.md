@@ -82,7 +82,7 @@ Que se cachait-il exactement derrière cette faille ?
 
 C'était la première fois que Wang Lin l'observait de si près. En scrutant les environs, il remarqua une anomalie : les bords de la faille étaient déchiquetés, mais des marques indiquaient qu'ils avaient autrefois été connectés par endroits.
 
-Réfléchissant à voix haute, Wang Lin agita la main droite et un morceau de jade apparut dans sa paume. Il le serra, provoquant un craquement ; le jade se fendit en deux, révélant des arêtes irrégulières le long de la fissure. Lorsqu'il réunit les deux morceaux, l'objet parut de nouveau complet. Wang Lin y injecta alors une partie de sa culture pour recoller les parties. Désormais, seules quelques fines fissures étaient visibles.
+Réfléchissant à voix haute, Wang Lin agita la main droite et un morceau de jade apparut dans sa paume. Il le serra, provoquant un craquement ; le jade se fendit en deux, révélant des arêtes irrégulières le long de la fissure. Lorsqu'il réunit les deux morceaux, l'objet parut de nouveau complet. Wang Lin y injecta alors une partie de sa cultivation pour recoller les parties. Désormais, seules quelques fines fissures étaient visibles.
 
 Fixant le jade, ses yeux brillèrent et il le serra à nouveau. Le jade se brisa une seconde fois. Les parties recollées se détachèrent, mais de nouvelles arêtes se formèrent également.
 
@@ -94,9 +94,9 @@ Un sifflement interrompit ses pensées. Sa bête moustique rôdait à l'extérie
 
 « Peu importe, allons voir ce qu'il y a dedans. » Wang Lin hocha la tête. La bête poussa un sifflement joyeux et s'engouffra dans la faille. À en juger par son mouvement, ce n'était pas sa première fois ; elle semblait y être entrée à plusieurs reprises au cours des cent dernières années.
 
-Wang Lin s'apprêta à la suivre, mais resta extrêmement prudent. Cette prudence l'avait accompagné toute sa vie et ne faiblissait pas malgré l'augmentation de son niveau de culture. Plus il progressait, plus il comprenait la complexité et le mystère du monde.
+Wang Lin s'apprêta à la suivre, mais resta extrêmement prudent. Cette prudence l'avait accompagné toute sa vie et ne faiblissait pas malgré l'augmentation de son niveau de cultivation. Plus il progressait, plus il comprenait la complexité et le mystère du monde.
 
-Dès qu'il franchit la limite, une aura glaciale l'enveloppa. Les yeux de Wang Lin se plissèrent et il activa sa culture. Il ne déploya pas son Sens Divin, mais balaya les environs du regard.
+Dès qu'il franchit la limite, une aura glaciale l'enveloppa. Les yeux de Wang Lin se plissèrent et il activa sa cultivation. Il ne déploya pas son Sens Divin, mais balaya les environs du regard.
 
 En un seul coup d'œil, il fut pétrifié. Ses yeux brillèrent d'une intensité soudaine.
 

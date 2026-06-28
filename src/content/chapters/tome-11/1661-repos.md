@@ -74,7 +74,7 @@ Les Flammes de l'Encens manquaient cruellement, rendant leur récupération trè
 
 Après cette guerre, seules 19 planètes subsistaient dans la formation planétaire. Les 50 000 cultivateurs restèrent sur ces mondes pour se soigner.
 
-Ce devint le nouveau monde de culture du Royaume Intérieur !
+Ce devint le nouveau monde de cultivation du Royaume Intérieur !
 
 Sous la garde de Situ Nan et de ses compagnons, chacun choisit l'une des 19 planètes pour se reposer et guérir. Ceux qui excellaient en alchimie s'occupèrent de leurs blessures. Des équipes de cultivateurs du groupe de Situ Nan les protégeaient pendant qu'ils parcouraient les trois autres systèmes stellaires vides à la recherche d'herbes médicinales, afin de raffiner des pilules pour accélérer la convalescence de tous.
 

@@ -24,7 +24,7 @@ Les quelques individus qui venaient d'entrer furent instantanément scellés par
 
 Le continent sur lequel Wang Lin et la femme se trouvaient était l'un des rares endroits de ce monde encore exempt de glace.
 
-« La glace ne pourra pas durer longtemps ; quelqu'un possédant un haut niveau de culture et une aura de maître approche », dit doucement la femme ancienne dieu en regardant Wang Lin. Elle pointa l'espace entre ses sourcils de sa main droite. Un vortex apparut entre ses arcades et une goutte de sang se condensa au bout de son doigt.
+« La glace ne pourra pas durer longtemps ; quelqu'un possédant un haut niveau de cultivation et une aura de maître approche », dit doucement la femme ancienne dieu en regardant Wang Lin. Elle pointa l'espace entre ses sourcils de sa main droite. Un vortex apparut entre ses arcades et une goutte de sang se condensa au bout de son doigt.
 
 Une fois cette goutte formée, la femme ressentit immédiatement une grande faiblesse.
 
@@ -80,7 +80,7 @@ Tandis que Wang Lin cultivait, l'ombre de Ye Mo apparut lentement derrière lui.
 
 L'ombre de combat provenait de son héritage incomplet ; incapable de dissimuler pleinement cet héritage, une trace s'en échappait pour créer cette silhouette.
 
-Cependant, l'ombre qui l'entourait à présent n'était pas issue de sa culture, mais de son esprit. Pour être plus précis, il s'agissait de l'âme originelle de Ye Mo !
+Cependant, l'ombre qui l'entourait à présent n'était pas issue de sa cultivation, mais de son esprit. Pour être plus précis, il s'agissait de l'âme originelle de Ye Mo !
 
 L'âme originelle de Ye Mo était devenue complète grâce au rassemblement de tout le sang du cœur. Son ombre se solidifia progressivement pour prendre la forme d'une personne réelle flottant derrière Wang Lin. C'était un phénomène très étrange.
 

@@ -48,7 +48,7 @@ Wang Lin déclara froidement : « Ce qui doit disparaître disparaîtra naturell
 
 À cet instant, un point rose apparut sur le parchemin et se mua en une silhouette charmante. Cette figure n'était pas Li Muwan, mais celle que Xu Liguo appelait sans cesse la « petite sœur fée ».
 
-La troisième ancêtre du Clan des Immortels Abandonnés s'était réincarnée en cultivatrice et avait obtenu son propre domaine ; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à sa culture et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
+La troisième ancêtre du Clan des Immortels Abandonnés s'était réincarnée en cultivatrice et avait obtenu son propre domaine ; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à sa cultivation et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
 
 Après l'avoir capturée, Wang Lin l'avait conservée dans son sac de rangement. C'était là le véritable atout de Wang Lin contre Liu Mei.
 

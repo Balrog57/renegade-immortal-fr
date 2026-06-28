@@ -24,11 +24,11 @@ Le sourire sur le visage du messager disparut. Son expression redevint froide et
 
 Les yeux du Patriarche du Dragon Blindé se remplirent de désespoir alors qu'il regardait son fils, toujours abasourdi. Il fixa Wang Lin avec un mélange de respect et d'amertume, puis murmura : « Jeune... Jeune Empereur, c'est ma faute si je vous ai offensé, alors je vous en prie, laissez mon fils partir. J'en assume l'entière responsabilité. Jeune Empereur, ayez pitié... »
 
-Tout en parlant, il leva soudainement la tête et tendit la main vers son fils. Le jeune maître fut surpris et poussa immédiatement un cri déchirant. Son père saisit son corps et y injecta de l'énergie originelle. Un grondement tonitruant résonna alors que tous ses méridiens étaient détruits, ainsi que son âme originelle. Sa culture était anéantie et il était redevenu un simple mortel !
+Tout en parlant, il leva soudainement la tête et tendit la main vers son fils. Le jeune maître fut surpris et poussa immédiatement un cri déchirant. Son père saisit son corps et y injecta de l'énergie originelle. Un grondement tonitruant résonna alors que tous ses méridiens étaient détruits, ainsi que son âme originelle. Sa cultivation était anéantie et il était redevenu un simple mortel !
 
 Une douleur intense déchira le corps du jeune maître du Clan du Dragon Blindé. Il cracha du sang, le visage livide. Le monde autour de lui se déforma alors que toute sa puissance s'échappait de son corps, et il perdit connaissance sous la violence de la souffrance.
 
-Le Patriarche du Dragon Blindé s'agenouilla et supplia amèrement : « Seigneur Jeune Empereur, mon fils a perdu sa culture et ne pourra plus jamais cultiver. Il ne sera plus une menace pour vous. Je vous en conjure, Jeune Empereur, ayez pitié et laissez-le vivre ! »
+Le Patriarche du Dragon Blindé s'agenouilla et supplia amèrement : « Seigneur Jeune Empereur, mon fils a perdu sa cultivation et ne pourra plus jamais cultiver. Il ne sera plus une menace pour vous. Je vous en conjure, Jeune Empereur, ayez pitié et laissez-le vivre ! »
 
 Wang Lin réfléchit silencieusement un instant, puis hocha la tête.
 
@@ -38,7 +38,7 @@ La pilule fondit instantanément dans sa bouche, se transformant en un feu noir 
 
 « C'est... Quel genre de feu est-ce là ? » Les pupilles de Wang Lin se rétractèrent soudainement.
 
-La planète de culture entière sombra dans le silence. De nombreux témoins assistaient à la scène, tremblant d'effroi. Le Grand Empereur était ici comme un dieu, et personne n'osait défier ses ordres !
+La planète de cultivation entière sombra dans le silence. De nombreux témoins assistaient à la scène, tremblant d'effroi. Le Grand Empereur était ici comme un dieu, et personne n'osait défier ses ordres !
 
 Les membres du Clan du Dragon Blindé, pétris de peur, baissèrent la tête.
 
@@ -76,7 +76,7 @@ Une aura violente jaillit de son corps, formant une tempête qui se propagea rap
 
 Les vêtements de Maître Simo voltèrent et ses longs cheveux ondulaient. Ses yeux étaient sombres, et la lueur qu'ils dégageaient s'estompa lentement pour ne laisser place qu'à une froideur glaciale et à une intention meurtrière.
 
-La mort de son avatar n'avait pas grand impact sur sa culture ; il l'avait raffiné pour l'aider à progresser en cas de stagnation. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
+La mort de son avatar n'avait pas grand impact sur sa cultivation ; il l'avait raffiné pour l'aider à progresser en cas de stagnation. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
 
 « Le Grand Empereur du Pays Déchu !!! » Maître Simo grinça des dents, l'expression féroce.
 
@@ -90,7 +90,7 @@ Des clous aux sept couleurs s'échappèrent de la brèche et flottèrent autour 
 
 « Les Clous Divins du Vide aux Sept Couleurs du Souverain, capables d'éliminer des cultivateurs de la troisième étape... Je ne suis pas de taille face au Grand Empereur, mais si le Conseil Souverain rassemble tous les cultivateurs de la troisième étape, nous devrions pouvoir l'abattre. Tout dépendra de la décision du Conseil ! » Maître Simo agita la main droite et les clous disparurent. Il fit un pas en avant et s'évanouit sans laisser de trace.
 
-Un groupe de cultivateurs traversait le Pays Déchu. Ils étaient près de mille, aux niveaux de culture variés. Au centre se trouvaient une dizaine de cultivateurs de la deuxième étape entourant une personne.
+Un groupe de cultivateurs traversait le Pays Déchu. Ils étaient près de mille, aux niveaux de cultivation variés. Au centre se trouvaient une dizaine de cultivateurs de la deuxième étape entourant une personne.
 
 Cet homme portait des vêtements somptueux ; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 

@@ -8,7 +8,7 @@ slug: la-deuxieme-bataille-destinee-1
 ---
 Passif et proactif sont similaires, mais ils sont à des mondes de différence. Ce n'est pas seulement une divergence de comportement, c'est aussi une divergence de mentalité !
 
-Après plus de 2 000 ans de culture, Wang Lin avait enfin permis à son corps de dieu ancestral d'atteindre sept étoiles !
+Après plus de 2 000 ans de cultivation, Wang Lin avait enfin permis à son corps de dieu ancestral d'atteindre sept étoiles !
 
 Un corps de dieu ancestral à 7 étoiles n'était pas une chose qu'un cultivateur du second pas pouvait facilement endommager, à moins que le dieu ancestral ne soit en train de subir une épreuve. Autrement, il faudrait une armée de puissances célestes pour assiéger un dieu ancestral durant plusieurs jours avant de pouvoir l'abattre.
 
@@ -62,7 +62,7 @@ Afin de franchir le seuil des neuf étoiles, Tu Si avait utilisé le sort interd
 
 La capacité de récupération de Tuo Sen était bien plus grande que celle de Wang Lin. S'il n'avait pas été si gravement blessé par le rugissement, il ne se serait pas laissé attendre aussi longtemps pour guérir.
 
-Atteindre 80 % de récupération était déjà sa limite. Les 20 % de dommages restants ne concernaient pas son corps physique, mais les blessures infligées à son âme par le rugissement. Il lui faudrait entrer en culture fermée pour se rétablir complètement.
+Atteindre 80 % de récupération était déjà sa limite. Les 20 % de dommages restants ne concernaient pas son corps physique, mais les blessures infligées à son âme par le rugissement. Il lui faudrait entrer en cultivation fermée pour se rétablir complètement.
 
 Tuo Sen leva soudain la tête alors que ses huit étoiles tournaient rapidement. Il fixa Wang Lin, assis sur le trône, et afficha une expression complexe.
 

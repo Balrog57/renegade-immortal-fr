@@ -108,4 +108,4 @@ Une multitude sans fin de créatures l'encerclait !
 
 « Qian Mei, je vais te sortir de là ! » Wang Lin ferma les yeux et plaça sa main droite entre ses sourcils. Une restriction complexe brilla sur son front.
 
-Sa main gauche s'élança vers ses sourcils pour les déchirer sans ménagement ! Il brisa le sceau qu'il avait placé sur sa culture après avoir quitté le Royaume aux Sept Couleurs. À cet instant, Wang Lin atteignit la puissance la plus haute de ses deux mille ans de culture !
+Sa main gauche s'élança vers ses sourcils pour les déchirer sans ménagement ! Il brisa le sceau qu'il avait placé sur sa cultivation après avoir quitté le Royaume aux Sept Couleurs. À cet instant, Wang Lin atteignit la puissance la plus haute de ses deux mille ans de cultivation !

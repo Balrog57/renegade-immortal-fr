@@ -14,7 +14,7 @@ Se remémorant les trois phrases que Wang Lin avait prononcées avant de se reti
 
 De plus, il ne restait plus un seul cultivateur du Continent du Démon Vert sur la Prairie de l'Extrême Ciel. Les mots de Wang Lin résonnaient dans le cœur de chacun.
 
-Yan Lu arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de culture étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas : du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie de l'Extrême Ciel ! Cependant, un détail à l'intérieur de cette empreinte était facile à manquer.
+Yan Lu arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de cultivation étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas : du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie de l'Extrême Ciel ! Cependant, un détail à l'intérieur de cette empreinte était facile à manquer.
 
 « Un massacre d’une violence inouïe a eu lieu ici il y a sept jours... », songea silencieusement Yan Lu.
 
@@ -50,7 +50,7 @@ Alors que le rugissement balayait les lieux, il enveloppa toute la Prairie de l'
 
 Les expressions de Yan Lu et de ses compagnons changèrent également lorsqu'ils émergèrent du palais. Ils jetèrent un regard vers la grotte de Wang Lin avant de courir vers la surface.
 
-Par conséquent, Wang Lin resta seul dans le palais souterrain. Durant ces trois mois, il n'avait pas bougé. Il avait réprimé ses blessures internes bataille après bataille et, profitant de ce calme, il avait commencé sa convalescence. Au cours de cette période, il continuait à se familiariser avec l'armure de l'âme tout en digérant les enseignements tirés de son augmentation de niveau. Cette compréhension était précieuse ; il comptait la mémoriser jusqu'à ce qu'elle devienne une partie intégrante de lui-même, ce qui lui serait d'un immense bénéfice lors de ses futures étapes de culture.
+Par conséquent, Wang Lin resta seul dans le palais souterrain. Durant ces trois mois, il n'avait pas bougé. Il avait réprimé ses blessures internes bataille après bataille et, profitant de ce calme, il avait commencé sa convalescence. Au cours de cette période, il continuait à se familiariser avec l'armure de l'âme tout en digérant les enseignements tirés de son augmentation de niveau. Cette compréhension était précieuse ; il comptait la mémoriser jusqu'à ce qu'elle devienne une partie intégrante de lui-même, ce qui lui serait d'un immense bénéfice lors de ses futures étapes de cultivation.
 
 Wang Lin avait également étudié sa technique de Nuit Brisée. Malheureusement, sans l'armure de l'âme, la Nuit Brisée n'était plus un sort de foi.
 
@@ -64,7 +64,7 @@ Il était évident que cette personne, tout comme Wang Lin, avait été reconnue
 
 Wang Lin observa cet homme traverser un massacre après l'autre. Finalement, celui-ci fut frappé neuf fois de suite par une main rouge descendue du ciel. L'armure de l'individu s'effondra et il rendit l'âme. La main rouge trembla puis se métamorphosa en un vieil homme aux cheveux roux. Ce dernier arborait une expression sombre et se tenait dans les airs tel le souverain des cieux et de la terre, vénéré par tous les cultivateurs du Continent du Démon Vert en contrebas !
 
-Wang Lin ne pouvait ressentir son aura à travers ces visions, mais le fait que ce vieil homme ait tué un porteur d'armure de l'âme signifiait que sa culture était monstrueuse !
+Wang Lin ne pouvait ressentir son aura à travers ces visions, mais le fait que ce vieil homme ait tué un porteur d'armure de l'âme signifiait que sa cultivation était monstrueuse !
 
 Après la mort du gardien, toute la chaîne de montagnes s'effondra et se désagrégea, transformant ce relief infini en un gouffre de mort. Dans cet effondrement, une partie de la barrière invisible formée par les sept méridiens se brisa. Elle n'était plus complète !
 
@@ -82,6 +82,6 @@ Le septième jour suivant ces deux mois, un rayon de lumière fonça vers la Pra
 
 Alors qu'il joignait les mains, Wang Lin ouvrit soudainement les yeux dans le palais souterrain. Il disparut et, lorsqu'il réapparut, il se tenait à l'extérieur, face au vieil homme.
 
-En voyant Wang Lin, le vieil homme fut stupéfait. Il ne s'attendait manifestement pas à ce que le détenteur de l'armure ait un niveau de culture aussi bas, mais il n'osa point le mépriser. Après tout, avoir été capable de protéger cet endroit prouvait que Wang Lin possédait quelque chose d'exceptionnel.
+En voyant Wang Lin, le vieil homme fut stupéfait. Il ne s'attendait manifestement pas à ce que le détenteur de l'armure ait un niveau de cultivation aussi bas, mais il n'osa point le mépriser. Après tout, avoir été capable de protéger cet endroit prouvait que Wang Lin possédait quelque chose d'exceptionnel.
 
 « Les premier, deuxième et septième méridiens du Taureau Céleste ont été détruits par le Continent du Démon Vert. Trois propriétaires d'armures de l'âme sont tombés... Ouyang est venu sur ordre pour informer le propriétaire de l'armure du troisième méridien qu'il doit utiliser une formation de téléportation pour retourner immédiatement à la Secte Gui Yi en vue d'un plan top secret ! »

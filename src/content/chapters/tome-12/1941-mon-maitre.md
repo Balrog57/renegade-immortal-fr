@@ -22,7 +22,7 @@ Il sentait toutefois que ces deux herbes ne causeraient aucun mal aux enfants et
 
 L'herbe la plus foncée forma un filet à l'intérieur du corps du garçon, dissimulant totalement son véritable talent. L'herbe se mua alors en un talent supérieur qui masquait celui de l'enfant.
 
-Avec le niveau de culture de Wang Lin, il pouvait naturellement voir clair dans ce jeu, mais si un cultivateur du second étape l'avait observé, il aurait eu bien du mal à s'en rendre compte. Seuls les cultivateurs du troisième étape percevraient quelques indices, car le filet formé par l'herbe avait fusionné avec l'enfant. Conjuguée à l'énergie céleste, elle pouvait véritablement se cacher des cieux et traverser les mers.
+Avec le niveau de cultivation de Wang Lin, il pouvait naturellement voir clair dans ce jeu, mais si un cultivateur du second étape l'avait observé, il aurait eu bien du mal à s'en rendre compte. Seuls les cultivateurs du troisième étape percevraient quelques indices, car le filet formé par l'herbe avait fusionné avec l'enfant. Conjuguée à l'énergie céleste, elle pouvait véritablement se cacher des cieux et traverser les mers.
 
 Cela surprit grandement Wang Lin. Il regarda la fille, et il en fut de même pour elle : elle obtint un talent ordinaire qui était bien supérieur à son talent initial.
 
@@ -66,7 +66,7 @@ Le temps passa vite. Une demi-heure plus tard, alors que Liu Jinbiao volait, qua
 
 Les quatre avaient effectué un téléportation sur des centaines de milliers de kilomètres et avaient traqué Liu Jinbiao grâce au jade. Ils se resserrèrent sur lui.
 
-En voyant cela, l'expression de Liu Jinbiao changea radicalement. Il comprit que quelque chose clochait, mais il ne s'enfuit pas immédiatement. Sentant leur puissance de culture, il savait qu'il ne pourrait pas s'échapper.
+En voyant cela, l'expression de Liu Jinbiao changea radicalement. Il comprit que quelque chose clochait, mais il ne s'enfuit pas immédiatement. Sentant leur puissance de cultivation, il savait qu'il ne pourrait pas s'échapper.
 
 Il tourna le regard et se décala comme pour leur céder le passage. Cependant, quatre rayons de lumière l'encerclèrent et les quatre cultivateurs le fixèrent froidement.
 
@@ -114,7 +114,7 @@ Son calme et ses paroles assurées stupéfièrent le vieil homme.
 
 « Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Empereur Exalté Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau ! » Le vieil homme ne le croyait absolument pas.
 
-Liu Jinbiao agita sa manche et dit froidement : « La voie de la tromperie est mon domaine. Quant à mon niveau de culture, ouvre tes vieux yeux et regarde attentivement. Mon niveau est-il vraiment limité à la Formation du Noyau ?! »
+Liu Jinbiao agita sa manche et dit froidement : « La voie de la tromperie est mon domaine. Quant à mon niveau de cultivation, ouvre tes vieux yeux et regarde attentivement. Mon niveau est-il vraiment limité à la Formation du Noyau ?! »
 
 Pourtant, à cet instant précis, il était terrifié au fond de lui. Mais il avait trompé tant de gens pendant tant d'années qu'il en était venu à la seconde étape de la tromperie : se tromper lui-même. Il s'était ainsi persuadé de ses propres mensonges, et s'il parvenait à duper sa propre conscience, alors il n'avait plus peur que les autres ne le croient !
 

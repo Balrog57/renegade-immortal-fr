@@ -16,7 +16,7 @@ La vaste mer séparant le clan Ancien du clan Céleste était devenue un gouffre
 
 Dans les eaux tourbillonnantes, la porte formée par les neuf piliers perçant les cieux se profilait. Cela attira l'attention de nombreux êtres puissants, mais après l'avoir observée, tous repartirent.
 
-Jiu Di s'était également rendu sur place personnellement, mais malgré son niveau de culture, il ne pouvait progresser loin dans la tempête, sans parler du fait que la porte n'était pas encore ouverte. Selon sa puissance et les estimations de Hai Zi, il faudrait cinq cents ans pour qu'elle s'ouvre.
+Jiu Di s'était également rendu sur place personnellement, mais malgré son niveau de cultivation, il ne pouvait progresser loin dans la tempête, sans parler du fait que la porte n'était pas encore ouverte. Selon sa puissance et les estimations de Hai Zi, il faudrait cinq cents ans pour qu'elle s'ouvre.
 
 Et cette fois, ce serait une ouverture complète, telle qu'on n'en avait jamais vu auparavant !
 

@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 461 - Killing Intent
 slug: intention-de-tuer
 ---
-Les yeux de Wang Lin s'illuminèrent. Il savait qu'avec son niveau de culture actuel, il ne pourrait pas résister à l'homme en armure dorée à moins d'invoquer son âme Ascendante.
+Les yeux de Wang Lin s'illuminèrent. Il savait qu'avec son niveau de cultivation actuel, il ne pourrait pas résister à l'homme en armure dorée à moins d'invoquer son âme Ascendante.
 
 À cet instant, Qian Feng et Liu Mei froncèrent également les sourcils. De toute évidence, ils avaient eux aussi percé la situation.
 
@@ -20,7 +20,7 @@ Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désor
 
 Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau d'âme aux un milliard d'âmes que possédait Wang Lin pouvait l'anéantir instantanément, et il le redoutait profondément.
 
-C'est pour cette raison qu'il avait utilisé Red Butterfly pour retarder Wang Lin : afin de pouvoir s'emparer du Cristal de Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
+C'est pour cette raison qu'il avait utilisé Red Butterfly pour retarder Wang Lin : afin de pouvoir s'emparer du Cristal de Planète de Cultivation sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
 
 Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre ; désormais, il le considérait comme son égal, même si, au fond de son cœur, une puissante fierté subsistait.
 

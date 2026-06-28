@@ -72,7 +72,7 @@ Cette planète n'était pas très éloignée de Suzaku. La nuit étant tombée, 
 
 « Cette lune est en réalité une planète, bien que beaucoup plus petite », pensa Wang de volant dans le ciel, laissant derrière lui une traînée de lumière.
 
-Les yeux de Wang Lin s'illuminèrent : « Quel dommage de n'avoir fait que passer sur cette lune avant que le transfert ne reprenne. Bien qu'elle soit dépourvue d'énergie spirituelle, j'ai ressenti une force mystérieuse profondément enfouie sous terre. Lorsque ma culture sera assez élevée, je devrai aller y jeter un œil. »
+Les yeux de Wang Lin s'illuminèrent : « Quel dommage de n'avoir fait que passer sur cette lune avant que le transfert ne reprenne. Bien qu'elle soit dépourvue d'énergie spirituelle, j'ai ressenti une force mystérieuse profondément enfouie sous terre. Lorsque ma cultivation sera assez élevée, je devrai aller y jeter un œil. »
 
 Wang Lin ne fit aucune escale en chemin. Cependant, Chu était si éloigné qu'il fut contraint d'utiliser plusieurs anciens tableaux de transfert pour réduire la distance.
 
@@ -86,15 +86,15 @@ Quant à la boussole stellaire, Wang Lin constata qu'elle ne pouvait être utili
 
 Wang Lin avait obtenu l'une de ces épées en tuant un disciple du Secte de la Grande Épée Lou. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
 
-Il laissa échapper un sourire amer : « Entrer en culture isolée pour atteindre le milieu de la Transformation de l'Âme, trouver les matériaux manquants pour la boussole stellaire, étudier le chapeau de paille et renforcer mon drapeau de restriction... Il y a tant de choses à accomplir... »
+Il laissa échapper un sourire amer : « Entrer en cultivation isolée pour atteindre le milieu de la Transformation de l'Âme, trouver les matériaux manquants pour la boussole stellaire, étudier le chapeau de paille et renforcer mon drapeau de restriction... Il y a tant de choses à accomplir... »
 
-Il ajouta dans ses pensées : « Il y a aussi Ta Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa culture l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
+Il ajouta dans ses pensées : « Il y a aussi Ta Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa cultivation l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
 
 En pensant à Ta Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
 « Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi du Secte de la Grande Épée Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi ; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
 
-« Le vieillard du Secte de la Grande Épée Lou est trop puissant. Pourrait-il être un cultivateur Ascendant ? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans ? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
+« Le vieillard du Secte de la Grande Épée Lou est trop puissant. Pourrait-il être un cultivateur Ascendant ? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de cultivation de ce senior qui veut faire de moi son disciple honorifique pour cent ans ? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
 
 « Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 

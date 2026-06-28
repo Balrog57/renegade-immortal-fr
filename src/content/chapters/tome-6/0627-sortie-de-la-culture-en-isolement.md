@@ -20,7 +20,7 @@ Pour être plus précis, les principes régis par ce sort céleste dépassaient 
 
 Wang Lin avait passé de nombreuses années à comprendre progressivement l'Art du Massacre Céleste, atteignant finalement un stade de petite maîtrise complète. Ce sort « Arrêt » suivait la même logique.
 
-Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en culture en isolement, la Tribu des Raffineurs d'Âmes avait envoyé de nombreux membres sur le front du Pays du Démon de Feu pour collecter des âmes et renforcer leur propre puissance.
+Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en cultivation en isolement, la Tribu des Raffineurs d'Âmes avait envoyé de nombreux membres sur le front du Pays du Démon de Feu pour collecter des âmes et renforcer leur propre puissance.
 
 Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays du Démon du Ciel. Au lieu de sortir, les membres de la tribu se mirent à défendre le Pays du Démon du Ciel.
 
@@ -84,7 +84,7 @@ En voyant la tour, les yeux de l'homme se plissèrent. Fort de son expérience, 
 
 L'homme ricana : « Une fois cette tour détruite, je veux voir si vous aurez encore ce genre de regard ! » Il chargea droit vers la structure. Aucun des membres assis ne prononça un mot ; ils se contentèrent de fixer froidement l'assaillant.
 
-Ce silence pesait comme une pression invisible, donnant à l'homme la sensation diffuse que quelque chose n'allait pas. Cependant, confiant en sa culture, il laissa échapper un reniflement méprisant alors qu'il approchait de la tour et levait son poing droit pour frapper.
+Ce silence pesait comme une pression invisible, donnant à l'homme la sensation diffuse que quelque chose n'allait pas. Cependant, confiant en sa cultivation, il laissa échapper un reniflement méprisant alors qu'il approchait de la tour et levait son poing droit pour frapper.
 
 « Arrête. » Une voix monocorde et à peine audible émana de l'intérieur de la tour.
 

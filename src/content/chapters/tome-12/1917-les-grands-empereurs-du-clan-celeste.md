@@ -62,7 +62,7 @@ S'il ne s'agissait que de tuer un Exalt d'Empereur, cela resterait gérable. Cep
 
 Car les Empereurs Ascendants étaient encore plus rares. Sur l'ensemble du Continent Astral Immortel, il n'en existait que 48 !!!
 
-La plupart d'entre eux étaient en culture recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empereur.
+La plupart d'entre eux étaient en cultivation recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empereur.
 
 De telles figures étaient respectées même par les Grands Empereurs. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empereurs ! S'ils ne souhaitaient pas suivre un Grand Empereur, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai du Secte de la Grande Âme, qui avait défié un Grand Empereur.
 
@@ -80,7 +80,7 @@ Le clan céleste n'autoriserait absolument jamais un cultivateur comme lui à ap
 
 « Même le fou ignore la vérité concernant le Maître ; seul le Secte Gui Yi le sait. Puisque le Maître a osé permettre au Secte Gui Yi de connaître ce secret sans les tuer dans le monde des grottes, cela signifie qu'il est convaincu qu'ils ne parleront pas... Quant aux raisons précises, bien que je les ignore, j'ai foi en mon Maître ! »
 
-« Même les Grands Empereurs ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une culture céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo ! »
+« Même les Grands Empereurs ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une cultivation céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo ! »
 
 Wang Lin était sur le Continent Astral Immortel depuis un certain temps désormais, et il comprenait vaguement qu'au fil des millénaires, les lignées anciennes et célestes s'étaient mélangées. Il existait des cultivateurs célestes dotés de corps du Clan Ancien, mais ils n'étaient pas reconnus par le Temple Ancien.
 
@@ -88,9 +88,9 @@ Par conséquent, le corps du Clan Ancien de Wang Lin pourrait paraître stupéfi
 
 Wang Lin savait également qu'il y avait des choses qui n'avaient pas besoin d'être cachées. Par exemple, le fait qu'il provienne du monde des grottes devait rester secret pour les autres, mais pas pour les Grands Empereurs. Ils auraient leurs propres moyens de découvrir la vérité, et ce serait même une bonne chose car cela confirmerait l'origine de Wang Lin !
 
-Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fût extrêmement choquant, comparé au niveau de culture de Wang Lin, cela n'avait aucune importance. L'essentiel résidait dans la décision de Wang Lin.
+Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fût extrêmement choquant, comparé au niveau de cultivation de Wang Lin, cela n'avait aucune importance. L'essentiel résidait dans la décision de Wang Lin.
 
-« Pour attirer l'attention des Grands Empereurs, je dois manifester ma puissance, une culture capable d'éliminer un Exalt d'Empereur ! Alors, je pourrai faire ce que je veux au sein du clan céleste ! »
+« Pour attirer l'attention des Grands Empereurs, je dois manifester ma puissance, une cultivation capable d'éliminer un Exalt d'Empereur ! Alors, je pourrai faire ce que je veux au sein du clan céleste ! »
 
 « Avec assez de renommée, les Grands Empereurs viendront d'eux-mêmes me chercher ! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 

@@ -12,7 +12,7 @@ Le sceau s'effondra soudainement après que Wang Lin l'eut déchiré. Une fois b
 
 Cette aura était si intense qu'elle forma un vortex. Ce vortex devint de plus en plus puissant, au point de semer la terreur dans les yeux des bêtes environnantes !
 
-Ce sceau avait réprimé la culture de Wang Lin après qu'il eut absorbé le fruit du Dao dans le Royaume aux Sept Couleurs [1]. Il l'avait séparé du stade Briseur de Nirvana !
+Ce sceau avait réprimé la cultivation de Wang Lin après qu'il eut absorbé le fruit du Dao dans le Royaume aux Sept Couleurs [1]. Il l'avait séparé du stade Briseur de Nirvana !
 
 À présent, pour Li Qianmei, afin de compenser ses dix années d'efforts et par devoir d'homme, il brisa le sceau sans la moindre hésitation !
 
@@ -58,7 +58,7 @@ Si cette faille spatiale n'avait pas été si étrange qu'elle empêchait la des
 
 Ce serait là la plus terrible rétribution divine qu'il ait jamais eu à affronter !
 
-Au moment où sa culture atteignit le stade intermédiaire du Briseur de Nirvana, une lueur de froideur passa dans les yeux de Wang Lin. Il fit un pas en avant et, à cet instant, le vortex d'énergie originelle autour de lui balaya ses environs avec un impact indescriptible.
+Au moment où sa cultivation atteignit le stade intermédiaire du Briseur de Nirvana, une lueur de froideur passa dans les yeux de Wang Lin. Il fit un pas en avant et, à cet instant, le vortex d'énergie originelle autour de lui balaya ses environs avec un impact indescriptible.
 
 *Rumble, rumble, rumble, rumble !*
 
@@ -82,7 +82,7 @@ Au fil du massacre, l'aura de l'épée de sang augmenta considérablement. Elle 
 
 Il y avait aussi ces dix mille bêtes moustiques qui furent stimulées par l'odeur du sang. Elles poussèrent des sifflements capables de briser la terre et, faisant fi de la mort, entamèrent un massacre aux côtés des bêtes féroces environnantes.
 
-Au cœur de la faille, Wang Lin était encerclé par d'innombrables bêtes féroces. Cependant, avec l'appui des bêtes moustiques, de son épée de sang et de sa culture de stade intermédiaire du Briseur de Nirvana, il se fraya un chemin sanglant !
+Au cœur de la faille, Wang Lin était encerclé par d'innombrables bêtes féroces. Cependant, avec l'appui des bêtes moustiques, de son épée de sang et de sa cultivation de stade intermédiaire du Briseur de Nirvana, il se fraya un chemin sanglant !
 
 Ses vêtements étaient devenus rouge sang ! Mais il ne s'arrêta jamais. Tandis que ce massacre intense se poursuivait, le temps continuait de filer !
 

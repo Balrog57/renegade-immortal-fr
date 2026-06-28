@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 41 - Centipede
 slug: centipede
 ---
-Les disciples de la Secte Xuan Dao évaluaient également, en secret, les disciples de la Secte Heng Yue, en particulier ceux ayant atteint le 6ème niveau ou plus. L'allure de Wang Zhuo et sa culture au sommet du 5ème niveau avaient également marqué l'esprit des disciples de la Secte Xuan Dao.
+Les disciples de la Secte Xuan Dao évaluaient également, en secret, les disciples de la Secte Heng Yue, en particulier ceux ayant atteint le 6ème niveau ou plus. L'allure de Wang Zhuo et sa cultivation au sommet du 5ème niveau avaient également marqué l'esprit des disciples de la Secte Xuan Dao.
 
 Quant à Wang Lin, n'étant qu'au 3ème niveau, ils l'ignoraient totalement.
 
@@ -32,7 +32,7 @@ Les anciens de la Secte Heng Yue emboîtèrent leur pas. L'Ancien Xu fut le dern
 
 Wang Zhuo semblait s'y attendre. Il répondit respectueusement : « Maître n'a aucune inquiétude à avoir. Je prendrai grand soin de nos frères et sœurs de la Secte Xuan Dao. »
 
-L'Ancien Xu sourit aux disciples de la Secte Xuan Dao et ajouta : « Disciples de la Secte Xuan Dao, si vous avez le moindre besoin, adressez-vous à Wang Zhuo. Ce vieillard est trop âgé pour vous importuner. Profitez-en pour faire connaissance ; l'avenir du monde de la culture repose entre vos mains. » Sur ces mots, il entra dans la salle principale avec un léger sourire.
+L'Ancien Xu sourit aux disciples de la Secte Xuan Dao et ajouta : « Disciples de la Secte Xuan Dao, si vous avez le moindre besoin, adressez-vous à Wang Zhuo. Ce vieillard est trop âgé pour vous importuner. Profitez-en pour faire connaissance ; l'avenir du monde de la cultivation repose entre vos mains. » Sur ces mots, il entra dans la salle principale avec un léger sourire.
 
 Dès que les anciens furent partis, les disciples se détendirent immédiatement. Certaines disciples femmes de la Secte Heng Yue s'approchèrent du jeune homme aux racines spirituelles d'eau pour engager la conversation, leurs yeux brillant d'admiration.
 
@@ -46,7 +46,7 @@ Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée
 
 Wang Lin eut un petit rire. Il secoua la tête et répondit : « Ce n'est pas tout à fait vrai. Je vois bien que la plupart d'entre eux cultivent également avec acharnement. »
 
-La jeune femme Zhou regarda les nuages et soupira : « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années d'entraînement intensif, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance ! »
+La jeune femme Zhou regarda les nuages et soupira : « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années d'entraînement intensif, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La cultivation est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance ! »
 
 Wang Lin se frotta le nez en souriant : « Aînée Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau ? »
 
@@ -62,11 +62,11 @@ La jeune femme Zhou resta stupéfaite. Elle hésita, puis demanda : « Jeune fr�
 
 Wang Lin secoua la tête sans répondre. Son esprit était envahi de pensées pour ses parents.
 
-Voyant sa réticence, Zhou soupira : « Moi, je ne peux pas rompre mes liens avec ma famille. La culture est trop impitoyable. Peut-être ne suis-je pas faite pour cela. »
+Voyant sa réticence, Zhou soupira : « Moi, je ne peux pas rompre mes liens avec ma famille. La cultivation est trop impitoyable. Peut-être ne suis-je pas faite pour cela. »
 
 Wang Lin s'apprêtait à répliquer, quand soudain il tourna la tête et vit Wang Zhuo les fixer, lui et Zhou, d'un regard malveillant.
 
-À cet instant, la voix de Wang Zhuo retentit : « Frères et sœurs de la Secte Xuan Dao, vous avez dit que cette centipède aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La culture est une perte de temps pour lui ; le charger d'attraper des animaux vivants pour nourrir cette centipède est une tâche bien plus appropriée à sa condition. »
+À cet instant, la voix de Wang Zhuo retentit : « Frères et sœurs de la Secte Xuan Dao, vous avez dit que cette centipède aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La cultivation est une perte de temps pour lui ; le charger d'attraper des animaux vivants pour nourrir cette centipède est une tâche bien plus appropriée à sa condition. »
 
 Le disciple aux racines spirituelles d'eau hésita et dit : « Frère Wang Zhuo, c'est un peu déplacé. La nature de cette centipède est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 531 - Shi Realm
 slug: le-domaine-shi
 ---
-« La Terre des Esprits Démoniaques est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare ; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
+« La Terre des Esprits Démoniaques est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa cultivation augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare ; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
 
 « Ce qu'on appelle le Début de l'Âme est un état très mystérieux. Une fois qu'un cultivateur entre dans cet état, la vitesse à laquelle il peut comprendre les lois célestes atteint un degré inimaginable. Si ce n'était que là, cela ne serait pas si exceptionnel. Ce qui rend tous les cultivateurs si fous, c'est qu'une fois dans cet état, il y a une chance de pouvoir créer son propre sort céleste en se fondant sur son domaine ! »
 

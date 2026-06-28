@@ -24,13 +24,13 @@ Conscient de cet enjeu, alors que Xu Decai fixait l'étrange lampe, Wang Lin lev
 
 « Arrête ! »
 
-D'un seul mot, une vague colossale déferla dans le corps de Wang Lin. L'écart entre leurs niveaux de culture étant considérable, il dut payer un prix lourd pour immobiliser Xu Decai. À cet instant, il cracha du sang, mais son expression devint plus féroce encore.
+D'un seul mot, une vague colossale déferla dans le corps de Wang Lin. L'écart entre leurs niveaux de cultivation étant considérable, il dut payer un prix lourd pour immobiliser Xu Decai. À cet instant, il cracha du sang, mais son expression devint plus féroce encore.
 
 Sous l'effet du sort « Arrêt », au moment même où Xu Decai levait la main droite, tout son corps trembla. Il sentit vaguement d'innombrables fils l'envelopper de toutes parts et pénétrer son corps pour entraver ses mouvements.
 
 Même la lanterne au-dessus de lui s'obscurcit. Jusque la connexion entre la lanterne et Xu Decai fut rompue par le sort !
 
-Cependant, la culture de Xu Decai étant bien supérieure à celle de Wang Lin, le sort ne put l'immobiliser que quelques instants. Mais ce laps de temps permit à Wang Lin d'interrompre l'incantation et la résistance de son adversaire, lui offrant ainsi la chance de lancer une seconde vague d'attaques !
+Cependant, la cultivation de Xu Decai étant bien supérieure à celle de Wang Lin, le sort ne put l'immobiliser que quelques instants. Mais ce laps de temps permit à Wang Lin d'interrompre l'incantation et la résistance de son adversaire, lui offrant ainsi la chance de lancer une seconde vague d'attaques !
 
 Dès qu'il eut parlé, Wang Lin agita sa manche, et d'innombrables flocons de neige noire semblèrent être balayés par une violente bourrasque vers Xu Decai.
 
@@ -46,7 +46,7 @@ Tout cela se produisit en un éclair. Xu Decai retrouva soudainement ses esprits
 
 Cette fois, Wang Lin cracha une bouchée de sang ; son visage était pâle mais d'une férocité extrême. Xu Decai, qui venait tout juste de recouvrer sa liberté, se figea de nouveau. Pour la première fois, la peur apparut dans ses yeux.
 
-La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantomatique de Wang Lin. Si la Voile Fantomatique était le trésor le plus puissant du Grand Secte de l'Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
+La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantomatique de Wang Lin. Si la Voile Fantomatique était le trésor le plus puissant du Grand Secte de l'Âme, c'était grâce à sa capacité à ignorer le niveau de cultivation et à perturber l'esprit.
 
 À cet instant, les nuages sombres dans le ciel grondèrent et descendirent rapidement pour former la silhouette d'une femme en blanc.
 
@@ -104,7 +104,7 @@ Immédiatement après, la bête moustique apparut et fonça sur lui à pleine vi
 
 C'était le troisième assaut de Wang Lin, et c'était là qu'il devait achever Xu Decai !
 
-Trois directions, trois sources d'attaque convergeaient vers Xu Decai, qui en était le centre. Yi Si fut la première à le rejoindre, affichant un sourire cruel. Elle leva son bras restant et griffa Xu Decai. Grâce à sa culture de début de Tribulation du Vide, elle infligea de lourds dégâts à l'adversaire déjà exsangue.
+Trois directions, trois sources d'attaque convergeaient vers Xu Decai, qui en était le centre. Yi Si fut la première à le rejoindre, affichant un sourire cruel. Elle leva son bras restant et griffa Xu Decai. Grâce à sa cultivation de début de Tribulation du Vide, elle infligea de lourds dégâts à l'adversaire déjà exsangue.
 
 Xu Decai poussa un cri déchirant. Son corps semblait s'être brièvement rétabli avant d'exploser ; il paraissait incapable de supporter le coup d'Yi Si.
 

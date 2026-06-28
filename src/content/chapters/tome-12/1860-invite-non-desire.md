@@ -54,7 +54,7 @@ Après une ultime hésitation, Yan Lu serra les dents. Le doute pesait sur son c
 
 Dès qu'elle fut entrée, la porte de la grotte se referma, ne laissant plus passer la moindre parcelle de lumière.
 
-Une fois à l'intérieur, Yan Lu s'immobilisa immédiatement. Elle regarda devant elle. À moins d'avoir utilisé sa culture pour aiguiser sa vue, l'obscurité y était totale.
+Une fois à l'intérieur, Yan Lu s'immobilisa immédiatement. Elle regarda devant elle. À moins d'avoir utilisé sa cultivation pour aiguiser sa vue, l'obscurité y était totale.
 
 Elle distinguait vaguement la silhouette de Wang Lin assis au loin, ce qui lui imposait une immense pression. L'origine de cette sensation venait des deux paris qu'elle avait conclus au Pavillon des Écritures de l'Âme.
 
@@ -94,7 +94,7 @@ Des cultivateurs du palais souterrain furent également dépêchés pour patroui
 
 Ces patrouilles étaient assurées par les trois vieillards. L'homme nommé Zhou était chargé de cette mission. Hormis les cultivateurs de la Tribulation du Vide, tous les autres furent envoyés aux patrouilles.
 
-Ceux qui ne partaient pas restaient plongés dans leur culture pour maintenir leur apogée en vue du prochain affrontement. Tous les cultivateurs du Continent du Taureau Céleste comprenaient que le Continent du Démon Vert n'abandonnerait pas si facilement.
+Ceux qui ne partaient pas restaient plongés dans leur cultivation pour maintenir leur apogée en vue du prochain affrontement. Tous les cultivateurs du Continent du Taureau Céleste comprenaient que le Continent du Démon Vert n'abandonnerait pas si facilement.
 
 Si les cultivateurs ordinaires pouvaient ignorer la situation, Lu Wenran, étant le plus puissant de l'endroit, leva les yeux avec une pointe d'inquiétude.
 
@@ -106,6 +106,6 @@ Bien qu'il doutât que Wang Lin possède une telle capacité, c'était une quest
 
 Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Lu. Un nouvel invité non désiré !
 
-« Camarade cultivateur Wang Lin de la Grande Secte de l'Âme. Je vous demande de cesser votre culture pour patrouiller durant la nuit ! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
+« Camarade cultivateur Wang Lin de la Grande Secte de l'Âme. Je vous demande de cesser votre cultivation pour patrouiller durant la nuit ! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
 
 Il se tenait devant la grotte de Wang Lin, l'air calme, s'exprimant d'un ton froid et impérieux, comme si aucune contestation n'était possible.

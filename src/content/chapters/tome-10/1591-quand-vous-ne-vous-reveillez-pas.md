@@ -122,4 +122,4 @@ Un instant plus tard, la jeune femme en violet secoua la tête et soupira. « La
 
 « Une vie antérieure ? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
 
-« Sœur aînée, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »
+« Sœur aînée, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de cultivation ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »

@@ -10,7 +10,7 @@ Le vieil homme en armure noire fronça les sourcils et ses yeux s'illuminèrent.
 
 Ses yeux brillaient intensément alors qu'il fixait cette énergie d'épée et il prit une profonde inspiration.
 
-« Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte ! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le stade du Briseur de Nirvana ! »
+« Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte ! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de cultivation de cette personne n'ait déjà atteint le stade du Briseur de Nirvana ! »
 
 Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais de terrasser l'ennemi par la surprise !
 
@@ -36,7 +36,7 @@ Wang Lin commença à battre en retraite. Il n'était plus sous l'influence du F
 
 « Capturez-le vivant ! » Après avoir transmis ce message, le sens divin disparut à nouveau dans la tour.
 
-Le vieil homme en armure noire n'hésita pas et bondit soudainement dans les airs. Il se déplaça comme un éclair vers Wang Lin. Avec sa culture au stade avancé de l'Ascendant, il forma un sceau de la main et hurla : « Vent ! »
+Le vieil homme en armure noire n'hésita pas et bondit soudainement dans les airs. Il se déplaça comme un éclair vers Wang Lin. Avec sa cultivation au stade avancé de l'Ascendant, il forma un sceau de la main et hurla : « Vent ! »
 
 D'un seul mot, un tornade géante apparut soudainement. Alors qu'elle balayait le sol, la terre commença à se briser et d'innombrables débris rocheux furent entraînés dans la tornade qui chargea vers Wang Lin.
 
@@ -94,7 +94,7 @@ Le vieil homme cria à nouveau : « Pluie ! » Des gouttes de pluie noire apparu
 
 Wang Lin leva la tête. Il atteignait un nouveau sommet ; c'était un combat tel qu'il n'en avait jamais connu auparavant !
 
-À moins d'un événement défiant les lois de la nature, il perdrait sans aucun doute face à un cultivateur du stade avancé de l'Ascendant avec seulement sa culture au stade initial de l'Ascendant ! Wang Lin le savait bien, car il possédait cet objet capable de défier le ciel !
+À moins d'un événement défiant les lois de la nature, il perdrait sans aucun doute face à un cultivateur du stade avancé de l'Ascendant avec seulement sa cultivation au stade initial de l'Ascendant ! Wang Lin le savait bien, car il possédait cet objet capable de défier le ciel !
 
 L'énergie d'épée de Ling Tianhou était cet objet providentiel !
 

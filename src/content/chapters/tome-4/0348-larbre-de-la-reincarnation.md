@@ -24,7 +24,7 @@ Ses cils tremblèrent lorsqu'elle ouvrit les yeux. Elle vit une douce lumière b
 
 Elle leva discrètement la tête pour observer Wang Lin. Bien qu'il ne fût pas d'une beauté éclatante, une aura mystérieuse émanait de lui. C'était un changement singulier qui frappait tous les cultivateurs au stade de la Formation de l'Âme ; une transformation dont la nature dépendait du domaine qu'ils avaient acquis.
 
-En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les yeux. Son attention restait fixée sur Qiu Siping. La distance entre lui et le vieil homme Hu ne cessait de s'accroître. Avec le niveau de culture de Qiu Siping, il était impossible pour lui de suivre un cultivateur de la Formation de l'Âme.
+En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les yeux. Son attention restait fixée sur Qiu Siping. La distance entre lui et le vieil homme Hu ne cessait de s'accroître. Avec le niveau de cultivation de Qiu Siping, il était impossible pour lui de suivre un cultivateur de la Formation de l'Âme.
 
 Une pointe d'anxiété perçait dans les yeux de Qiu Siping. En voyant Wang Lin le rattraper, il s'écria précipitamment : « Frère Wang, aidez-moi, je vous en prie ! Je suis prêt à vous offrir des trésors en échange ! »
 
@@ -32,7 +32,7 @@ Une pointe d'anxiété perçait dans les yeux de Qiu Siping. En voyant Wang Lin 
 
 Il frappa son sac de rangement et la bête-moustique en sortit. Sur l'ordre de Wang Lin, elle prit Qiu Siping sur son dos, bien que ses yeux trahissent une certaine insatisfaction ; elle estimait clairement que ce dernier n'était pas digne de chevaucher sa monture.
 
-Qiu Siping poussa un soupir de soulagement. Bien que la bête-moustique fût plus lente qu'un cultivateur de la Formation de l'Âme, elle parvenait tout juste à maintenir la cadence. Il sortit rapidement une paire de cloches de son sac et dit : « Frère Wang, j'ai obtenu ceci par accident, à l'intérieur d'une bête. Ce doit être un trésor des temps anciens, mais mon niveau de culture est trop faible pour en saisir toute la puissance. Je jure cependant que ce trésor n'est pas ordinaire. J'espère que le frère Wang me permettra de cultiver sous l'arbre de la réincarnation plus tard. »
+Qiu Siping poussa un soupir de soulagement. Bien que la bête-moustique fût plus lente qu'un cultivateur de la Formation de l'Âme, elle parvenait tout juste à maintenir la cadence. Il sortit rapidement une paire de cloches de son sac et dit : « Frère Wang, j'ai obtenu ceci par accident, à l'intérieur d'une bête. Ce doit être un trésor des temps anciens, mais mon niveau de cultivation est trop faible pour en saisir toute la puissance. Je jure cependant que ce trésor n'est pas ordinaire. J'espère que le frère Wang me permettra de cultiver sous l'arbre de la réincarnation plus tard. »
 
 Il lança les cloches vers Wang Lin. Ce dernier les attrapa et constata qu'elles étaient protégées par une restriction. Tant qu'il ne l'aurait pas brisée, il ne pourrait pas en découvrir le véritable potentiel. N'ayant pas le temps pour cela, il les rangea.
 
@@ -80,11 +80,11 @@ Qiu Siping n'en tint pas compte. Il se téléporta près de l'arbre, exalté, et
 
 Le cœur de Qiu Siping trembla ; il jeta un regard inquiet vers Wang Lin.
 
-Wang Lin dit d'un ton calme : « Laissez-le cultiver. La culture est, par nature, un acte qui défie le ciel ; puisque son destin l'a mené ici, nous ne devons pas interférer. »
+Wang Lin dit d'un ton calme : « Laissez-le cultiver. La cultivation est, par nature, un acte qui défie le ciel ; puisque son destin l'a mené ici, nous ne devons pas interférer. »
 
 Le vieil homme Hu garda le silence et tourna son regard vers Xu Luo et Yun Meng. Les deux s'empressèrent de s'installer sous l'arbre, de part et d'autre du tronc.
 
-Qiu Siping lança un regard plein de gratitude à Wang Lin avant de se concentrer intensément sur sa culture. Il savait que le temps pressait : sa capacité à atteindre le stade de la Formation de l'Âme dépendait entièrement des résultats de cet instant.
+Qiu Siping lança un regard plein de gratitude à Wang Lin avant de se concentrer intensément sur sa cultivation. Il savait que le temps pressait : sa capacité à atteindre le stade de la Formation de l'Âme dépendait entièrement des résultats de cet instant.
 
 Le vieil homme Hu reprit : « Frère Wang, Xu Luo et Yun Meng auront besoin de trois heures pour forcer l'arbre de la réincarnation à produire ses fruits. Nous devrons les protéger durant ce laps de temps. »
 

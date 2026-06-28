@@ -26,7 +26,7 @@ Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors qu
 
 « Le Tableau des Montagnes et des Rivières ! » Les yeux du jeune homme maléfique se plissèrent, mais un instant plus tard, il ricana : « Une simple copie sans valeur ! » Il leva sa main droite et l'abattit impitoyablement. Un craquement sec retentit, puis les cieux et la terre furent immédiatement tordus. Le corps de Wang Lin fut expulsé du Tableau des Montagnes et des Rivières ; son visage devint extrêmement pâle et il recula aussitôt après être réapparu.
 
-« Autrefois, j'ai étudié le Tableau des Montagnes et des Rivières pendant mille ans. Même si tu possédais l'original, avec ta simple culture de Céleste Supérieur, je pourrais encore le briser ! »
+« Autrefois, j'ai étudié le Tableau des Montagnes et des Rivières pendant mille ans. Même si tu possédais l'original, avec ta simple cultivation de Céleste Supérieur, je pourrais encore le briser ! »
 
 Alors que le jeune homme maléfique ricanait, il fit un pas en avant pour poursuivre sa proie. Cependant, il s'arrêta net et fixa froidement le sol sous ses pieds.
 
@@ -74,4 +74,4 @@ Wang Lin était sidéré. Il n'entendait plus que le craquement de l'espace qui 
 
 Un rire arrogant résonna à travers le Royaume Céleste. Au même moment, le vieil homme mystérieux apparut et s'exclama avec exaltation : « J'ai pénétré dans ce Royaume Céleste des centaines de fois et j'ai planifié cela depuis des dizaines de milliers d'années ! Dans ce monde, qui d'autre possède le courage de ce vieil homme ? Raffiner le Royaume Céleste et comploter contre l'illustre Seigneur Céleste Qing Shui... Haha, qui d'autre oserait ?! »
 
-« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Allheaven ?! Grâce à cela, je pourrai briser la barrière spatiale et, dès lors, mon Système Stellaire Allheaven n'aura plus besoin de la Pierre Allheaven pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Shen, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Allheaven pour écraser l'Alliance de Culture ! »
+« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Allheaven ?! Grâce à cela, je pourrai briser la barrière spatiale et, dès lors, mon Système Stellaire Allheaven n'aura plus besoin de la Pierre Allheaven pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Shen, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Allheaven pour écraser l'Alliance de Cultivation ! »

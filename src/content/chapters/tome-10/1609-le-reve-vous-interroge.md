@@ -60,7 +60,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Wang Lin, vas-tu vraiment faire cela... Es-tu vraiment prêt à la laisser t'oublier ? Veux-tu vraiment que l'autre "toi" rompe ce karma qui t'accompagne depuis plus de deux mille ans ? » La voix de Wang Lin était lugubre.
 
-« J'ai traversé tant d'épreuves, et tout gravitait autour du karma. Karma... karma... Wang Lin, tu ne peux pas le voir clair ! Même si tu cultives pour le restant de tes jours, même si ta culture est phénoménale, même si tu es le maître du monde, tu ne comprendras toujours pas ce qu'est le karma ! »
+« J'ai traversé tant d'épreuves, et tout gravitait autour du karma. Karma... karma... Wang Lin, tu ne peux pas le voir clair ! Même si tu cultives pour le restant de tes jours, même si ta cultivation est phénoménale, même si tu es le maître du monde, tu ne comprendras toujours pas ce qu'est le karma ! »
 
 « Tu as dévoré trois Fruits Dao et es revenu deux mille ans en arrière grâce à ton Sort du Dao du Rêve. Tu as utilisé tes propres pensées, l'intention complexe du Dao et la puissance de ton sort pour créer ce monde à partir de ta mémoire ! » Wang Lin tituba et s'assit sur un rocher. Ses cheveux étaient ébouriffés, comme s'il avait perdu la raison.
 
@@ -68,7 +68,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Tu as rendu tout cela si réel, tu as tout créé avec une perfection absolue. Tu as même appris l'art de la tromperie de Liu Jinbiao pour te convaincre toi-même que tout ceci n'était qu'un rêve, qu'il ne s'agissait que du Sort du Dao du Rêve... Mais tu m'as sous-estimé, tu t'es sous-estimé ! »
 
-« Tu es Wang Lin, le Seigneur du Royaume Scellé. Ta culture défie les cieux et tu pouvais terrasser des cultivateurs de la troisième étape avant même d'atteindre ce stade. Tu as survécu à la calamité de la vie et de la mort et tu t'apprêtes à entrer dans le royaume du Vide des cultivateurs de la troisième étape ! »
+« Tu es Wang Lin, le Seigneur du Royaume Scellé. Ta cultivation défie les cieux et tu pouvais terrasser des cultivateurs de la troisième étape avant même d'atteindre ce stade. Tu as survécu à la calamité de la vie et de la mort et tu t'apprêtes à entrer dans le royaume du Vide des cultivateurs de la troisième étape ! »
 
 « Mais je suis aussi Wang Lin. Bien que je n'aie pas cultivé, j'ai compris le monde et sa vérité. Je ne crains ni les dieux ni les démons. Même si tu es devant moi, et alors ? »
 

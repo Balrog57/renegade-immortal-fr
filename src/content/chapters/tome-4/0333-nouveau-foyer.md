@@ -48,9 +48,9 @@ Tie Yan prit une profonde inspiration et ajouta respectueusement : « Ce junior 
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il les scrutait. Il secoua la tête et déclara : « Vous avez emprunté le mauvais chemin. »
 
-Lu Fei et Tie Yan réfléchirent en silence. Après un long moment, Tie Yan esquissa un sourire amer : « Maître de secte, Chu n'a jamais connu de cultivateur de la Formation de l'Âme auparavant. Nous avons interrogé le messager par le passé, mais il ne nous a donné aucune réponse. En réalité, il y a de nombreuses années, j'ai pressenti que ce genre de culture en isolement ne nous aiderait pas à percer le stade de la Formation de l'Âme, mais j'ignore quels en sont les points clés. Lu et moi avons étudié cela longtemps et nous en sommes venus à la conclusion que tout dépend de notre propre compréhension... »
+Lu Fei et Tie Yan réfléchirent en silence. Après un long moment, Tie Yan esquissa un sourire amer : « Maître de secte, Chu n'a jamais connu de cultivateur de la Formation de l'Âme auparavant. Nous avons interrogé le messager par le passé, mais il ne nous a donné aucune réponse. En réalité, il y a de nombreuses années, j'ai pressenti que ce genre de cultivation en isolement ne nous aiderait pas à percer le stade de la Formation de l'Âme, mais j'ignore quels en sont les points clés. Lu et moi avons étudié cela longtemps et nous en sommes venus à la conclusion que tout dépend de notre propre compréhension... »
 
-Wang Lin soupira. Il regarda la chambre de pierre derrière lui et dit : « Chaque cultivateur de la Formation de l'Âme doit posséder sa propre compréhension. Les cieux sont impitoyables, et nous tentons d'en comprendre les lois. Cependant, il vous faut une étincelle d'émotion pour vous porter, du moins assez pour vous émouvoir vous-mêmes. L'énergie spirituelle en vous est trop désordonnée. La zone située à 50 kilomètres de cette pagode est le meilleur endroit pour votre entraînement. Éloignez-vous de 50 kilomètres. Lorsque vous pourrez vous approcher à moins de 1500 mètres de la pagode par votre propre culture, alors revenez ici. »
+Wang Lin soupira. Il regarda la chambre de pierre derrière lui et dit : « Chaque cultivateur de la Formation de l'Âme doit posséder sa propre compréhension. Les cieux sont impitoyables, et nous tentons d'en comprendre les lois. Cependant, il vous faut une étincelle d'émotion pour vous porter, du moins assez pour vous émouvoir vous-mêmes. L'énergie spirituelle en vous est trop désordonnée. La zone située à 50 kilomètres de cette pagode est le meilleur endroit pour votre entraînement. Éloignez-vous de 50 kilomètres. Lorsque vous pourrez vous approcher à moins de 1500 mètres de la pagode par votre propre cultivation, alors revenez ici. »
 
 Ils furent stupéfaits, mais semblèrent comprendre quelque chose. L'un partit vers l'est et l'autre vers le sud. Tous deux s'assirent à 50 kilomètres de là et commencèrent à méditer sur les paroles de Wang Lin.
 
@@ -76,7 +76,7 @@ Wang Lin raconta en détail à Li Muwan ce qui lui était arrivé au cours des c
 
 Elle dit avec inquiétude : « Si cette Red Butterfly découvre que tu es Ceng Niu, elle viendra certainement te chercher. »
 
-Le regard de Wang Lin se fit intense. Il répondit calmement : « Avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la vaincre à nouveau le moment venu ! »
+Le regard de Wang Lin se fit intense. Il répondit calmement : « Avec ma cultivation actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la vaincre à nouveau le moment venu ! »
 
 Li Muwan le regarda et dit soudainement : « Te souviens-tu encore de la grotte dans la Mer des Démons ? Wang Lin, je veux y retourner... Je veux aussi voir Hou Fen. »
 
@@ -94,7 +94,7 @@ La nuit venue, après que Li Muwan s'est endormie, Wang Lin sortit et leva les y
 
 « Ce n'est qu'en atteignant le stade de l'Âme Naissante que sa durée de vie pourra être prolongée. Cependant, avec la faiblesse de son corps, il lui est impossible de former une Âme Naissante... Wan Er a déjà atteint la fin de sa vie ; même si j'extrait son âme, elle ne pourra pas posséder de nouveau corps. Contrairement à Wang Zhuo, qui avait déjà atteint le stade de l'Âme Naissante et était assez fort pour échapper aux lois célestes. »
 
-Il devait obtenir la recette de cette pilule de culture de rang 6. Une pilule de ce rang pourrait aider le corps de Wan Er à se stabiliser un peu. « Tant que son corps se rétablit, je pourrai l'aider à atteindre le stade de l'Âme Naissante. Je lui dois tellement après toutes ces années d'absence. »
+Il devait obtenir la recette de cette pilule de cultivation de rang 6. Une pilule de ce rang pourrait aider le corps de Wan Er à se stabiliser un peu. « Tant que son corps se rétablit, je pourrai l'aider à atteindre le stade de l'Âme Naissante. Je lui dois tellement après toutes ces années d'absence. »
 
 Wang Lin fixa le ciel. Sa silhouette semblait s'étirer tandis qu'un sentiment de solitude l'envahissait. Il poussa un soupir, puis afficha une expression déterminée avant de s'asseoir.
 

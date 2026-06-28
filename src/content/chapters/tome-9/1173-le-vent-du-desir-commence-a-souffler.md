@@ -60,7 +60,7 @@ Ce dernier regarda la jeune femme et dit : « Nous sommes dans une vente aux enc
 
 Wang Lin demeurait calme. Il réfléchit un instant, puis déclara : « Trente mille. »
 
-À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur de Nirvana. De plus, sa présence à l'enchère privée de Maître Ashen Pine prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de culture d'un individu.
+À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur de Nirvana. De plus, sa présence à l'enchère privée de Maître Ashen Pine prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de cultivation d'un individu.
 
 Après une courte réflexion, la belle femme secoua la tête et cessa toute enchère.
 
@@ -142,7 +142,7 @@ Après avoir parcouru quelques pas dans cette rue devenue calme, Wang Lin s'arr�
 
 Wang Lin saisit le jade, l'examina avec son Sens Divin, puis le rangea. Lorsqu'il se retourna, son visage s'était durci.
 
-« Le monde de la culture respecte la force. Se cacher sans cesse n'est pas une solution. Je devrais faire exactement le contraire de mon habitude et me montrer arrogant pour une fois. Cela dissipera les soupçons. Wu Qing... Si tu cherches la mort, je t'exaucerai ! » Wang Lin s'envola de la ville avec un rictus méprisant. Il quitta le rocher flottant pour fondre vers une plaine située à l'ouest.
+« Le monde de la cultivation respecte la force. Se cacher sans cesse n'est pas une solution. Je devrais faire exactement le contraire de mon habitude et me montrer arrogant pour une fois. Cela dissipera les soupçons. Wu Qing... Si tu cherches la mort, je t'exaucerai ! » Wang Lin s'envola de la ville avec un rictus méprisant. Il quitta le rocher flottant pour fondre vers une plaine située à l'ouest.
 
 Peu après son départ, un autre rayon de lumière jaillit : c'était Wu Qing qui poursuivait Wang Lin !
 

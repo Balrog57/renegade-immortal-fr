@@ -48,7 +48,7 @@ Après avoir calmé sa respiration, Zhang Hu s'assit. Il sortit deux patates dou
 
 Wang Lin prit la patate douce. Il eut l'impression de remonter dix ans en arrière, au moment de leur première rencontre.
 
-« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi ; j'ai erré, cherchant à rejoindre une autre secte de culture. Par chance, en consommant certaines herbes, j'ai réussi à atteindre le premier niveau de Condensation de Qi. Je dois cela au livret du blaireau. Après avoir rencontré Bai Zhan, celui-ci a décidé de m'épargner en voyant mon niveau. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Il avait laissé un poison en moi afin de contrôler ma vie et ma mort. »
+« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi ; j'ai erré, cherchant à rejoindre une autre secte de cultivation. Par chance, en consommant certaines herbes, j'ai réussi à atteindre le premier niveau de Condensation de Qi. Je dois cela au livret du blaireau. Après avoir rencontré Bai Zhan, celui-ci a décidé de m'épargner en voyant mon niveau. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Il avait laissé un poison en moi afin de contrôler ma vie et ma mort. »
 
 « Avant, je ne voulais pas dire que je te connaissais parce qu'il rôdait dans les parages, mais heureusement, tu l'as tué. Cela a dissipé le poison dans mon corps et je suis enfin libre. » Zhang Hu prit une bouchée de patate douce tout en expliquant rapidement ce qui s'était passé durant ces dix dernières années.
 

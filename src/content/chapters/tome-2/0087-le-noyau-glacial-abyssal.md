@@ -30,7 +30,7 @@ C'était une technique spécialement conçue pour tester la qualité du Yin. Sel
 
 Situ Nan avait également précisé que, même parmi un même type de Yin extrême, il existait quatre qualités distinctes : ordinaire, bonne, dense et extrême. Chaque niveau était lui-même divisé en dix rangs.
 
-En règle générale, atteindre le rang 3 de qualité ordinaire suffisait pour cultiver la Méthode d'Ascension Souterraine. Atteindre le rang 8 ordinaire permettait d'accélérer la culture.
+En règle générale, atteindre le rang 3 de qualité ordinaire suffisait pour cultiver la Méthode d'Ascension Souterraine. Atteindre le rang 8 ordinaire permettait d'accélérer la cultivation.
 
 Après l'apparition de la sphère rouge, celle-ci devint de plus en plus éclatante. Finalement, elle brilla cinq fois.
 
@@ -48,15 +48,15 @@ D'après les informations recueillies lors de son exploration diurne des ruines,
 
 Et plus il s'enfonçait, plus l'énergie Yin devenait puissante.
 
-« C'est absolument le lieu idéal pour la culture ! » Wang Lin recula lentement jusqu'à rejoindre la zone de rang 5 ordinaire.
+« C'est absolument le lieu idéal pour la cultivation ! » Wang Lin recula lentement jusqu'à rejoindre la zone de rang 5 ordinaire.
 
 C'était l'endroit que Wang Lin avait jugé le plus adapté à son corps actuel. La densité de l'énergie Yin nécessaire à la Méthode d'Ascension Souterraine devait augmenter progressivement ; c'était un point sur lequel Situ Nan avait insisté avant qu'il ne s'endorme.
 
-Wang Lin réfléchit un moment. Il s'assit en tailleur, ferma les yeux et commença sa culture. Dans son esprit, les instructions de Situ Nan pour la Méthode d'Ascension Souterraine résonnaient.
+Wang Lin réfléchit un moment. Il s'assit en tailleur, ferma les yeux et commença sa cultivation. Dans son esprit, les instructions de Situ Nan pour la Méthode d'Ascension Souterraine résonnaient.
 
 Cette Méthode d'Ascension Souterraine peut être divisée en neuf couches. Tous les trois niveaux, on peut former un noyau glacial. Une fois les neuf niveaux atteints et les trois noyaux fusionnés, il existe une certaine chance de passer instantanément au stade de la Formation du Noyau.
 
-C'était la raison principale pour laquelle Wang Lin était déterminé à pratiquer cette méthode. Situ Nan l'avait choisie car elle était la plus adaptée à Wang Lin et permettrait d'augmenter sa culture le plus rapidement possible.
+C'était la raison principale pour laquelle Wang Lin était déterminé à pratiquer cette méthode. Situ Nan l'avait choisie car elle était la plus adaptée à Wang Lin et permettrait d'augmenter sa cultivation le plus rapidement possible.
 
 Bien sûr, il existait des méthodes plus rapides, comme le vol de noyau, mais avec son niveau actuel, tenter de capturer un cultivateur au stade de la Formation du Noyau revenait à se suicider.
 
@@ -90,7 +90,7 @@ Cette formation était trop grossière et simpliste ; elle ne possédait même p
 
 Wang Lin prit une profonde inspiration. Sa main forma les sceaux prescrits. Soudain, une brume apparut et enveloppa les environs.
 
-Wang Lin fixa la brume avec un sourire amer. Cette formation pourrait peut-être tromper des mortels, mais elle ne ferait rien contre des cultivateurs ; elle ne pourrait donc pas le protéger durant sa culture.
+Wang Lin fixa la brume avec un sourire amer. Cette formation pourrait peut-être tromper des mortels, mais elle ne ferait rien contre des cultivateurs ; elle ne pourrait donc pas le protéger durant sa cultivation.
 
 Après réflexion, il murmura : « Si une seule ne suffit pas, j'en placerai deux. À la limite, je poserai toutes les formations du livre. Cela devrait, plus ou moins, produire un effet. »
 
@@ -98,7 +98,7 @@ Sur ce, Wang Lin utilisa sa technique d'attraction pour déplacer les rochers de
 
 Wang Lin s'assit en tailleur sur le sol. Dès que l'énergie Yin apparut, il prit une grande inspiration, posa ses mains sur ses genoux et commença à cultiver. Sa méthode de respiration consistait en une expiration longue suivie de cinq courtes. Une respiration longue pour inspirer profondément, et cinq courtes pour expirer en un temps ne représentant qu'un cinquième de l'inspiration. C'était la façon la plus rapide d'absorber le Yin.
 
-À proprement parler, c'était la première fois qu'il utilisait une énergie extérieure pour sa culture. Durant les deux dernières années, il n'avait utilisé que du liquide spirituel à l'intérieur de la Perle Défiant le Ciel ; tout avait donc été une absorption interne.
+À proprement parler, c'était la première fois qu'il utilisait une énergie extérieure pour sa cultivation. Durant les deux dernières années, il n'avait utilisé que du liquide spirituel à l'intérieur de la Perle Défiant le Ciel ; tout avait donc été une absorption interne.
 
 Cette énergie Yin était fondamentalement semblable à l'énergie spirituelle. Wang Lin cultivait depuis de nombreuses années et y était habitué, mais il remarqua immédiatement une différence. Lorsqu'il absorbait l'énergie spirituelle, il y avait toujours une sorte de couche qui l'empêchait d'entrer pleinement dans son corps. Même lorsqu'elle pénétrait, une grande partie se dissipait avant qu'il ne puisse l'assimiler.
 
@@ -106,7 +106,7 @@ Ici, ce n'était pas le cas. Cette fine barrière n'existait plus et l'énergie 
 
 Wang Lin réfléchit à cela et envisagea trois explications possibles. La première : l'énergie Yin était différente de l'énergie spirituelle et lui était plus favorable. La deuxième : les cultivateurs au stade de l'Établissement des Fondations absorbaient l'énergie spirituelle plus vite que ceux en Condensation de Qi. La troisième : après avoir absorbé une partie de la racine spirituelle de Teng Li, son propre talent avait considérablement augmenté.
 
-Quant à savoir laquelle était la bonne, Wang Lin ne chercha pas davantage et se concentra sur sa culture.
+Quant à savoir laquelle était la bonne, Wang Lin ne chercha pas davantage et se concentra sur sa cultivation.
 
 Au début, il ressentit un grand inconfort dû à la nature glaciale du Yin. Dès qu'il l'absorbait, l'énergie s'engouffrait dans son corps pour atteindre ses organes. Le froid émanant de l'intérieur le faisait frissonner. C'était l'exact opposé de l'absorption d'énergie spirituelle : l'une procurait une sensation de chaleur et de confort, tandis que l'autre donnait l'impression d'être gelé de l'intérieur.
 
@@ -114,6 +114,6 @@ Au début, il ressentit un grand inconfort dû à la nature glaciale du Yin. Dè
 
 Du givre commença à apparaître sur ses sourcils, ses cheveux et sur chaque pore de sa peau. Une vague de froid jaillit de son corps pour se fondre parfaitement avec l'environnement.
 
-Le temps s'écoula. Lorsque le soleil se leva et que l'énergie Yin se dissipa, les paupières de Wang Lin tremblèrent alors qu'il ouvrait les yeux. Il expira une bouffée de vapeur blanche. Après une nuit de culture, une petite masse d'énergie Yin était apparue dans son dantian. Cette masse tournait lentement, libérant continuellement du Yin.
+Le temps s'écoula. Lorsque le soleil se leva et que l'énergie Yin se dissipa, les paupières de Wang Lin tremblèrent alors qu'il ouvrait les yeux. Il expira une bouffée de vapeur blanche. Après une nuit de cultivation, une petite masse d'énergie Yin était apparue dans son dantian. Cette masse tournait lentement, libérant continuellement du Yin.
 
 L'énergie spirituelle présente dans son corps ne rejetait pas cette masse. Elles coexistaient sans interagir.

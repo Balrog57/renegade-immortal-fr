@@ -56,7 +56,7 @@ Le carnage prit fin ; des centaines de cultivateurs étaient morts. La femme et 
 
 Sous la surface, Wang Lin chargea prestement. Tenant la boussole, il y projeta son sens divin. Ses yeux étaient injectés de sang alors que son essence de restriction s'y engouffrait. Il balaya l'empreinte du sens divin sur la boussole pour en prendre le contrôle total. Si n'importe qui d'autre avait tenté cela, il aurait échoué, mais Wang Lin possédait l'essence de restriction nécessaire pour y parvenir.
 
-La boussole en main, il prit le contrôle des restrictions surplombant la Mer des Pilules. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer des Pilules ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant ! Les autres points se trouvaient au-dessus de la surface ; il était évident qu'il était peu pratique de rester sous l'eau pendant que Void Cloud effectuait sa culture.
+La boussole en main, il prit le contrôle des restrictions surplombant la Mer des Pilules. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer des Pilules ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant ! Les autres points se trouvaient au-dessus de la surface ; il était évident qu'il était peu pratique de rester sous l'eau pendant que Void Cloud effectuait sa cultivation.
 
 Fixant ce point vert éclatant, une intention meurtrière traversa le regard de Wang Lin.
 
@@ -86,7 +86,7 @@ Même Void Cloud ne s'attendait pas au retour de Wang Lin après son départ !
 
 Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à moins de 1 000 000 de pieds ! L'eau de la gigantesque Mer des Pilules fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent du Démon Vert.
 
-Un sourire apparut sur les lèvres de Void Cloud. Il prit une profonde inspiration et poussa un rugissement vers le ciel alors que sa culture explosait. Son niveau était si singulier qu'il restait impossible d'en percevoir l'exactitude ; on ne pouvait que ressentir une puissante déferlante d'énergie d'épée. Une intention d'épée enveloppa toute la zone.
+Un sourire apparut sur les lèvres de Void Cloud. Il prit une profonde inspiration et poussa un rugissement vers le ciel alors que sa cultivation explosait. Son niveau était si singulier qu'il restait impossible d'en percevoir l'exactitude ; on ne pouvait que ressentir une puissante déferlante d'énergie d'épée. Une intention d'épée enveloppa toute la zone.
 
 « Mon Maître m'a permis de venir ici pour former la Pilule Céleste à partir de la Mer des Pilules, afin de porter ma réputation au-delà des trois autres. Ensuite, en tant que premier génie du Continent de l'Est, je me rendrai à la Capitale Impériale du Continent Central pour obtenir le droit d'entrer dans le temple ancestral ! » Les yeux de Void Cloud pétillèrent. L'eau de mer commença à se condenser à nouveau, passant de 1 000 000 de pieds à 500 000, puis à 300 000 pieds !
 

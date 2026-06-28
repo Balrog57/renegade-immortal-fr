@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant l
 
 L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Très bien, votre attitude est tout aussi étrange. Si vous avez quelque chose à dire, dites-le. »
 
-L'All-Seer sourit. « Au cours des innombrables années où l'Alliance de Culture a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
+L'All-Seer sourit. « Au cours des innombrables années où l'Alliance de Cultivation a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
 
 L'All-Seer poursuivit son enseignement du Dao, mais presque tous les auditeurs restaient hantés par ce « lui » dont il avait parlé. Cependant, l'All-Seer reprit sa leçon sans jamais évoquer l'homme à nouveau. L'enseignement dura trois jours.
 
@@ -82,7 +82,7 @@ Wang Lin envoya une commande pour libérer cette énergie métallique dans son c
 
 Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Pourpre, à l'exception de Wang Lin, seule la Quatrième Sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Pourpre ne pouvait supporter la pression et ils s'étaient tous posés.
 
-Ce n'était pas seulement la Division Pourpre ; presque tous les disciples ordinaires des autres divisions avaient également dû atterrir. Seuls ceux possédant une culture puissante parvenaient à peine à rester en l'air. Cependant, aucun des disciples principaux des six autres divisions ne tomba. Certains affichaient un visage aussi pâle que celui de Wang Lin, mais ils parvenaient à résister.
+Ce n'était pas seulement la Division Pourpre ; presque tous les disciples ordinaires des autres divisions avaient également dû atterrir. Seuls ceux possédant une cultivation puissante parvenaient à peine à rester en l'air. Cependant, aucun des disciples principaux des six autres divisions ne tomba. Certains affichaient un visage aussi pâle que celui de Wang Lin, mais ils parvenaient à résister.
 
 L'expression de Wang Lin revint à la normale une fois que l'énergie spirituelle céleste métallique eut achevé son troisième cycle. La Quatrième Sœur se retourna et lui lança un regard significatif, sans dire un mot.
 

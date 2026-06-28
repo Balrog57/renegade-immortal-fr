@@ -10,7 +10,7 @@ Parmi les quatre, l'une des femmes portait ses cheveux en chignon, laissant reto
 
 Elle portait une robe blanche qui, bien que peu ajustée, soulignait ses courbes avec une grande séduction.
 
-Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique, et plus le niveau de culture était élevé, plus leur longévité s'étendait. À vue d'œil, il était donc très difficile de deviner l'âge réel d'une personne.
+Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique, et plus le niveau de cultivation était élevé, plus leur longévité s'étendait. À vue d'œil, il était donc très difficile de deviner l'âge réel d'une personne.
 
 Comparée à cette femme, l'autre semblait un peu ordinaire. Ses longs cheveux drapés sur son épaule lui donnaient un air de fragilité. Sa silhouette gracile laissait croire qu'elle pourrait être emportée par une simple brise. Elle portait du rose, ce qui contrastait avec son visage extrêmement pâle. Face à la femme éclatante, elle paraissait moins éblouissante, mais semblait plus délicate.
 
@@ -32,11 +32,11 @@ Le regard de l'homme en noir s'illumina : « Très puissant ! »
 
 Un rayon de lumière apparut à l'horizon et se mua en un jeune homme vêtu de blanc. Son apparence était ordinaire, sans rien de particulier. Il flottait dans les airs sans même accorder un regard aux quatre personnes en dessous de lui. Il observa froidement les nuages, puis fit un pas.
 
-« C'est lui ! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la culture de cet individu avait déjà atteint le stade Ascendant ! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire : « Jeune frère Wang, veuillez patienter ! »
+« C'est lui ! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la cultivation de cet individu avait déjà atteint le stade Ascendant ! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire : « Jeune frère Wang, veuillez patienter ! »
 
 Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observer les quatre individus. Il ne regarda pas d'abord les deux femmes ni le jeune homme en robe rouge, mais fixa l'homme en noir.
 
-« Le fait qu'il puisse me localiser à moins de 500 kilomètres signifie que sa culture n'est pas faible. À en juger par l'énergie spirituelle céleste qui circule dans son corps, il doit être au début du stade Ascendant ! » Les yeux de Wang Lin restèrent calmes tandis qu'il les inspectait un à un, avant de se poser sur l'homme en robe rouge. Il connaissait assez bien cet individu ; c'était un disciple de la Division Rouge de la Secte du Destin Céleste.
+« Le fait qu'il puisse me localiser à moins de 500 kilomètres signifie que sa cultivation n'est pas faible. À en juger par l'énergie spirituelle céleste qui circule dans son corps, il doit être au début du stade Ascendant ! » Les yeux de Wang Lin restèrent calmes tandis qu'il les inspectait un à un, avant de se poser sur l'homme en robe rouge. Il connaissait assez bien cet individu ; c'était un disciple de la Division Rouge de la Secte du Destin Céleste.
 
 Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge était manifestement déjà à mi-chemin du stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas !
 
@@ -44,9 +44,9 @@ L'homme en robe rouge dit : « Jeune frère, mon nom est Du Jian. » Après une 
 
 Wang Lin joignit les mains : « Salutations, frère aîné Du. »
 
-Du Jian sourit et désigna l'homme en noir : « Frère Wang, voici Murong Zhuo de la Secte de l'Encre. Quant à ces deux-là, ce sont des compagnons de culture de la Secte du Nuage Flottant. »
+Du Jian sourit et désigna l'homme en noir : « Frère Wang, voici Murong Zhuo de la Secte de l'Encre. Quant à ces deux-là, ce sont des compagnons de cultivation de la Secte du Nuage Flottant. »
 
-L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains : « Compagnon de culture Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte de l'Encre ! »
+L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains : « Compagnon de cultivation Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte de l'Encre ! »
 
 Lorsque Murong Zhuo eut fini de parler, Du Jian et les deux femmes furent stupéfaits. Ils n'avaient jamais vu Murong Zhuo prononcer plus de cinq mots d'un trait ; son identité de solitaire était profondément ancrée dans leurs esprits.
 
@@ -72,7 +72,7 @@ L'expression de Wang Lin resta neutre lorsqu'il acquiesça : « Exactement ! »
 
 Les yeux de Du Jian se plissèrent : « Jeune frère Wang, l'Abîme des Marées est extrêmement dangereux. Même au stade Ascendant, la tâche sera ardue. Nous quatre nous rendons également dans l'Abîme des Marées. Pourquoi ne pas nous accompagner ? Au moins, nous pourrons nous entraider. »
 
-Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme des Marées. Avant de venir, il avait utilisé le cristal que Bei lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa culture actuelle.
+Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme des Marées. Avant de venir, il avait utilisé le cristal que Bei lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa cultivation actuelle.
 
 Si Murong Zhuo n'avait pas été parmi eux, Wang Lin aurait refusé sur-le-champ. Cependant, la présence de Murong Zhuo changeait la donne. Bien qu'il ne fût qu'au début du stade Ascendant, le fait d'avoir détecté Wang Lin à 500 kilomètres prouvait ses capacités.
 
@@ -82,7 +82,7 @@ Le visage de Du Jian rayonnait de sourires, mais il ricana intérieurement. Il �
 
 Il se souvenait parfaitement que lors de leur dernière rencontre, Wang Lin n'était qu'un cultivateur au milieu du stade de la Transformation de l'Âme. Pourtant, en seulement un siècle, il avait atteint le début du stade Ascendant. De plus, Wang Lin ne ressemblait pas à quelqu'un qui venait tout juste de franchir ce seuil ; il semblait être dans ce stade depuis un certain temps déjà !
 
-« Il doit y avoir une raison pour laquelle ce ploutre venu d'une planète de culture médiocre a pu progresser si vite. S'il a aussi réussi l'épreuve de vie ou de mort du stade Ascendant, je crains que cette affaire ne soit pas simple ! De plus, s'il continue sur cette lancée, sa position sera encore plus élevée lorsqu'il partira dans 400 ans. Cela signifie que le rang de sa Division Pourpre augmentera instantanément. »
+« Il doit y avoir une raison pour laquelle ce ploutre venu d'une planète de cultivation médiocre a pu progresser si vite. S'il a aussi réussi l'épreuve de vie ou de mort du stade Ascendant, je crains que cette affaire ne soit pas simple ! De plus, s'il continue sur cette lancée, sa position sera encore plus élevée lorsqu'il partira dans 400 ans. Cela signifie que le rang de sa Division Pourpre augmentera instantanément. »
 
 La malveillance bouillonnait dans son cœur, mais il n'en laissa rien paraître. Il affichait un sourire empreint de douceur, comme s'il agissait véritablement en frère aîné bienveillant.
 

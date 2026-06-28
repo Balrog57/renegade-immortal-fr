@@ -64,15 +64,15 @@ Lorsqu'il leva les yeux, Greed avait déjà disparu sans laisser de trace. L'exp
 
 « Intéressant. Greed possède effectivement de nombreux trésors. Chaque fois que je le croise, j'en retire des richesses considérables. La dernière fois, il avait perdu presque tout son butin et je le pensais mort. Je ne m'attendais pas à le revoir, et il possède encore plus de trésors qu'auparavant ! »
 
-« Je commence à comprendre sa personnalité. À moins d'être poussé dans ses derniers retranchements, il sort rarement tous ses trésors d'un coup, contrairement à ce qu'il fit sur la planète de culture. Il ne les utilise généralement qu'un par un ! »
+« Je commence à comprendre sa personnalité. À moins d'être poussé dans ses derniers retranchements, il sort rarement tous ses trésors d'un coup, contrairement à ce qu'il fit sur la planète de cultivation. Il ne les utilise généralement qu'un par un ! »
 
 « Il cache aussi bien des secrets. Peu importe la manière dont il a obtenu ces trésors, la méthode qu'il a utilisée pour pénétrer dans le Système d'Étoiles Anciennes est une information que je dois absolument obtenir ! » Wang Lin se pencha en avant et disparut soudainement.
 
 Deux êtres volaient à travers l'espace, l'un fuyant et l'autre poursuivant, provoquant un grondement tonitruant à travers la Terre Déchue. Cela attira l'attention des habitants de la Terre Déchue, mais après avoir constaté la vitesse prodigieuse des deux individus, ils décidèrent de les ignorer.
 
-Se déplacer à une telle vitesse signifiait que leurs niveaux de culture étaient extrêmement élevés !
+Se déplacer à une telle vitesse signifiait que leurs niveaux de cultivation étaient extrêmement élevés !
 
-Tout en s'enfuyant, Greed jurait amèrement. Wang Lin le talonnait sans effort et il ne trouvait aucun moyen de s'en défaire. Greed avait deviné la culture de Wang Lin et savait qu'un combat frontal était perdu d'avance.
+Tout en s'enfuyant, Greed jurait amèrement. Wang Lin le talonnait sans effort et il ne trouvait aucun moyen de s'en défaire. Greed avait deviné la cultivation de Wang Lin et savait qu'un combat frontal était perdu d'avance.
 
 Pourtant, il refusait de se laisser capturer. En pleine fuite, son expression changea lorsqu'il sentit une fluctuation sur sa droite. Il changea brusquement de direction en serrant les dents. Sa main droite s'étira et une bouteille de jade noir apparut.
 

@@ -104,6 +104,6 @@ Après ces manipulations, Maître Lu Fu laissa échapper un rugissement. Les vor
 
 L'arbre de centaines de milliers de pieds trembla et se rétracta brutalement. Il fut compressé jusqu'à n'atteindre que cent pieds. Son aura choquante se déploya, faisant trembler l'espace lui-même !
 
-« Ce trésor sera nommé l'Arbre d'Allheaven. Qu'en pense le Compagnon Cultivateur ? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Allheaven comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa culture pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait !
+« Ce trésor sera nommé l'Arbre d'Allheaven. Qu'en pense le Compagnon Cultivateur ? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Allheaven comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa cultivation pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait !
 
 En particulier, l'effort requis pour sacrifier cette part de sang et d'énergie essentielle lui avait coûté cher, mais pour remporter cette Bataille Littéraire, il avait tout donné.

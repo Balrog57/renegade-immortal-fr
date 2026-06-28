@@ -68,7 +68,7 @@ Les milliers de cultivateurs du Royaume Intérieur, y compris Maître South Clou
 
 Les grondements tonitruants se succédaient. Tandis que les nuages grondaient, il semblait même que la planète Suzaku soit délogée de son orbite et dérivait.
 
-De loin, la scène était extrêmement terrifiante. Les nuages s'étendirent jusqu'à couvrir tout ce qui se trouvait dans un rayon d'un million de kilomètres autour de Wang Lin. Il n'y avait plus aucun cultivateur ni aucune planète de culture dans cette zone.
+De loin, la scène était extrêmement terrifiante. Les nuages s'étendirent jusqu'à couvrir tout ce qui se trouvait dans un rayon d'un million de kilomètres autour de Wang Lin. Il n'y avait plus aucun cultivateur ni aucune planète de cultivation dans cette zone.
 
 Wang Lin était seul à l'intérieur !
 
@@ -76,7 +76,7 @@ Devant cet événement inimaginable, tous les cultivateurs devinrent anxieux, pa
 
 Wang Lin devait affronter cela seul.
 
-« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il se dressera au-dessus de nous tous ! » murmura Maître South Cloud, comme s'il se parlait à lui-même autant qu'aux autres.
+« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa cultivation sera fortifiée et il se dressera au-dessus de nous tous ! » murmura Maître South Cloud, comme s'il se parlait à lui-même autant qu'aux autres.
 
 Chacun resta plongé dans une réflexion silencieuse.
 
@@ -84,9 +84,9 @@ Plus loin encore, de l'autre côté des nuages, un vieil homme vêtu de pourpre 
 
 « Quelle puissante énergie de flèche ! Il a réellement trouvé cette flèche ! Quand je l'ai rencontré autrefois, il n'avait même pas atteint le troisième niveau. Je ne m'attendais pas à ce qu'il possède six essences... »
 
-« Six essences... Une seule essence suffit pour devenir un cultivateur du troisième niveau. Avec six essences, la culture de cet enfant a sauté les étapes du Vide Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
+« Six essences... Une seule essence suffit pour devenir un cultivateur du troisième niveau. Avec six essences, la cultivation de cet enfant a sauté les étapes du Vide Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
 
-« Avec une telle culture et cette flèche... » Ce vieil homme était le Vieux Fantôme Zhan. Il réfléchit un instant et observa les nuages d'un regard étrange et inexplicable.
+« Avec une telle cultivation et cette flèche... » Ce vieil homme était le Vieux Fantôme Zhan. Il réfléchit un instant et observa les nuages d'un regard étrange et inexplicable.
 
 « La Porte des Dix Mille Os du Vide... » Le Vieux Fantôme Zhan baissa les yeux sur sa main droite. Dans sa paume, un tatouage apparut. Ce tatouage était lui aussi une porte.
 

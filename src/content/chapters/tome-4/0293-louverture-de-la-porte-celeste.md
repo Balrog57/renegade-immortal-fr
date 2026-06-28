@@ -42,7 +42,7 @@ Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le ba
 
 Dans la partie nord-ouest de Suzaku, au siège du Secte des Cadavres, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit : « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste ? Mon corps va encore devoir se mettre au travail... »
 
-Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel au cœur du pays, une femme semblable à une fée des neiges était assise. Elle leva les yeux vers le ciel.
+Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de cultivation de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel au cœur du pays, une femme semblable à une fée des neiges était assise. Elle leva les yeux vers le ciel.
 
 Sept vieillards l'accompagnaient.
 
@@ -60,7 +60,7 @@ Les royaumes célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair couvrai
 
 Cependant, les royaumes célestes étant divisés en de nombreux fragments, il y avait peu de chances que tous se rejoignent sur la même parcelle.
 
-En ce moment, dans un pays de culture de rang 2, un vieil homme à l'allure négligée dévorait une cuisse de poulet en ricanant : « C'est ouvert. Si tu utilises correctement le chapeau de paille que ce vieux te donne, tu pourras préserver ta vie. Sinon, tu risques d'y mourir. »
+En ce moment, dans un pays de cultivation de rang 2, un vieil homme à l'allure négligée dévorait une cuisse de poulet en ricanant : « C'est ouvert. Si tu utilises correctement le chapeau de paille que ce vieux te donne, tu pourras préserver ta vie. Sinon, tu risques d'y mourir. »
 
 Entouré par le filet d'énergie spirituelle céleste, Wang Lin s'élevait de plus en plus haut. Le pays sous ses pieds devenait de plus en plus minuscule, et il ressentit la même sensation que lorsqu'il avait cherché son domaine pour la première fois.
 

@@ -18,11 +18,11 @@ L'homme à ses côtés éclata de rire : « Tu exagères, mon frère. Le jeune f
 
 Le visage de Sun Dazhu oscilla entre le rouge et le blanc pendant un instant. Il lança un regard sévère à Wang Lin, poussa un grognement mécontent et, ignorant le garçon, retourna s'asseoir.
 
-L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose : « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne de l'arrière-plan. Chacun recevra son propre lieu de culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. »
+L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose : « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne de l'arrière-plan. Chacun recevra son propre lieu de cultivation. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. »
 
 Tous les disciples internes répondirent d'une seule voix.
 
-L'homme en robe bleue acquiesça et poursuivit : « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. À présent, partez tous vers la montagne de l'arrière-plan ; quelqu'un vous conduira à votre terrain de culture. »
+L'homme en robe bleue acquiesça et poursuivit : « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. À présent, partez tous vers la montagne de l'arrière-plan ; quelqu'un vous conduira à votre terrain de cultivation. »
 
 Une fois son discours achevé, il agita ses manches et une lumière blanche en jaillit. Après avoir parcouru la salle d'un tour complet, il rugit : « Ouvrez ! »
 
@@ -36,7 +36,7 @@ Cette vallée était dépourvue de végétation. C'était une falaise percée de
 
 Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial.
 
-À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara : « Chers frères et sœurs apprentis, voici la montagne de l'arrière-plan de la Secte Heng Yue. Pour être précis, ce n'est pas simplement l'arrière de la secte, mais un terrain de culture pour les disciples internes, édifié il y a 500 ans par plusieurs experts au stade de la Transformation de l'Âme. L'énergie spirituelle ici est bien plus dense qu'en temps normal. Puisque vous êtes ici, concentrez-vous sur votre culture ; sinon, ne nous reprochez pas de vous expulser de la montagne. »
+À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara : « Chers frères et sœurs apprentis, voici la montagne de l'arrière-plan de la Secte Heng Yue. Pour être précis, ce n'est pas simplement l'arrière de la secte, mais un terrain de cultivation pour les disciples internes, édifié il y a 500 ans par plusieurs experts au stade de la Transformation de l'Âme. L'énergie spirituelle ici est bien plus dense qu'en temps normal. Puisque vous êtes ici, concentrez-vous sur votre cultivation ; sinon, ne nous reprochez pas de vous expulser de la montagne. »
 
 Wang Lin reconnut ce disciple aux vêtements violets. C'était celui qui avait acheté son liquide d'énergie spirituelle. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était particulièrement imprévisible.
 
@@ -44,7 +44,7 @@ Wang Lin baissa la tête. Il connaissait bien ce genre de manœuvres pour les av
 
 « Je possède les incantations pour le septième niveau et les niveaux inférieurs. Si vous atteignez ce stade sans posséder l'incantation, venez me voir. Après vérification, je vous la remettrai. Quant à votre lieu de pratique, choisissez n'importe quelle grotte qui n'est pas scellée. Voici des flacons de pilules de rassemblement de Qi. Chaque flacon contient 50 pilules et sera réapprovisionné une fois par an. » Sur ces mots, il agita la main et cinquante flacons blancs apparurent au sol.
 
-Certains disciples s'avancèrent pour prendre un flacon avant de commencer à chercher leur lieu de culture.
+Certains disciples s'avancèrent pour prendre un flacon avant de commencer à chercher leur lieu de cultivation.
 
 Wang Lin prit une profonde inspiration. Comme il avait utilisé une pilule de déguisement auparavant, cet homme ignorait son identité ; il s'approcha donc pour prendre un flacon. Zhang Kuang se tenait sur le côté, observant les disciples récupérer les flacons un à un, lorsqu'il aperçut soudainement Wang Lin. Un regard étrange traversa son visage et il demanda : « Quel est ton nom ? Comment se fait-il que tu n'aies même pas atteint le premier niveau de la Condensation de Qi ? Qui est ton maître ? »
 
@@ -62,6 +62,6 @@ La grotte n'était pas vaste. On n'y trouvait qu'un lit de pierre et un levier s
 
 Après avoir soigneusement inspecté la grotte une nouvelle fois et n'ayant rien trouvé d'anormal, Wang Lin se montra très satisfait de l'endroit. Lorsqu'il cherchait Sun Dazhu, il souhaitait trouver un lieu pour cultiver en dehors de la secte. Bien qu'il eût été rejeté, la situation actuelle le menait vers un endroit qui se rapprochait fort de ses plans initiaux.
 
-Le seul inconvénient était l'absence de source d'eau à l'intérieur de la grotte. La culture de Wang Lin reposait principalement sur le liquide d'énergie spirituelle. Cependant, dans son sac de rangement, il avait collecté une grande quantité d'eau de fonte des neiges, ce qui devrait lui suffire pour un certain temps.
+Le seul inconvénient était l'absence de source d'eau à l'intérieur de la grotte. La cultivation de Wang Lin reposait principalement sur le liquide d'énergie spirituelle. Cependant, dans son sac de rangement, il avait collecté une grande quantité d'eau de fonte des neiges, ce qui devrait lui suffire pour un certain temps.
 
 Il entendait également le bruit de l'eau dans la vallée. Tant qu'il resterait prudent, l'approvisionnement en eau ne devrait pas poser de problème.

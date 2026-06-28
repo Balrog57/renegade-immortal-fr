@@ -96,7 +96,7 @@ Les quatre disciples restèrent pétrifiés alors que leur maître s'éteignait.
 
 Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les cris. Au son de la cloche, il n'y eut que tristesse, regret, confusion et panique...
 
-« Tous les disciples de la Secte de l'Origine, rendez-vous dans la partie nord du continent de Mo Luo ! Cherchez toute personne ayant des capacités de culture, quel que soit son âge, en particulier si elle a... les cheveux blancs ! »
+« Tous les disciples de la Secte de l'Origine, rendez-vous dans la partie nord du continent de Mo Luo ! Cherchez toute personne ayant des capacités de cultivation, quel que soit son âge, en particulier si elle a... les cheveux blancs ! »
 
 Dans la partie nord du continent de Mo Luo, Wang Lin détourna son regard du ciel. La pluie tombait sur lui, faisant fondre la neige qui l'avait recouvert lors de son passage par l'Alliance, et l'eau s'écoulait lentement de ses vêtements. Puis, Wang Lin avança lentement sur cette terre étrangère...
 

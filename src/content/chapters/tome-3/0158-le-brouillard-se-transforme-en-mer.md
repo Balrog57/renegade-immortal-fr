@@ -16,7 +16,7 @@ Le vieil homme détourna son regard et relâcha sa prise. Le cou du jeune homme 
 
 L'homme se versa une coupe, en but une gorgée, puis dit d'une voix lente : « Parle. Comment tout cela est-il arrivé ? »
 
-Le jeune homme n'osait même pas respirer trop fort. Avec sa culture au stade avancé de l'Établissement des Fondations, il était incapable de percer les mystères de ce vieil homme. Cependant, fort de ses nombreuses années d'expérience, il savait que cet homme était au moins un cultivateur au stade intermédiaire de la Formation du Noyau, voire avancé.
+Le jeune homme n'osait même pas respirer trop fort. Avec sa cultivation au stade avancé de l'Établissement des Fondations, il était incapable de percer les mystères de ce vieil homme. Cependant, fort de ses nombreuses années d'expérience, il savait que cet homme était au moins un cultivateur au stade intermédiaire de la Formation du Noyau, voire avancé.
 
 « Cette personne est apparue soudainement il y a une demi-lune ; elle a tué dix anciens du Secte de l'Éradication du Mal et, pour une raison inconnue, elle s'est vu attribuer un ordre d'exécution... » Le jeune homme expliqua tout ce qu'il savait avec précision.
 
@@ -32,7 +32,7 @@ Le vieil homme se versa une coupe de vin. Après avoir bu, il déclara : « Depu
 
 Xu Mu prit une profonde inspiration. La peur persistait dans ses yeux lorsqu'il murmura : « Le junior a effectivement vu ce démon en personne. »
 
-« Quel est son niveau de culture ? » Une lueur mystérieuse brilla dans les yeux du vieil homme. C'était la question qui l'importait le plus, et c'est aussi pour cela qu'il avait tué le jeune homme : celui-ci avait débité beaucoup de futilités sans jamais préciser le niveau de culture de l'individu en question.
+« Quel est son niveau de cultivation ? » Une lueur mystérieuse brilla dans les yeux du vieil homme. C'était la question qui l'importait le plus, et c'est aussi pour cela qu'il avait tué le jeune homme : celui-ci avait débité beaucoup de futilités sans jamais préciser le niveau de cultivation de l'individu en question.
 
 « Stade initial de la Formation du Noyau ! » Xu Mu, se sentant mal à l'aise, ajouta précipitamment : « Senior, cette personne semble n'être qu'au stade initial de la Formation du Noyau, mais elle possède deux trésors... »
 
@@ -54,7 +54,7 @@ Sous la conduite de Xu Mu, le vieil homme atteignit le Secte de l'Éradication d
 
 Quant à Wang Lin, il se déplaçait très rapidement tout en portant Li Muwan. L'épée volante fendait la brume épaisse de la Mer des Démons.
 
-La Mer des Démons est enveloppée de brouillard toute l'année, mais une seule fois par an, pendant un mois, ce brouillard se transforme en eau. Durant toutes les années passées dans la Mer des Démons, Wang Lin n'avait jamais été témoin de ce phénomène en raison de sa culture en isolement.
+La Mer des Démons est enveloppée de brouillard toute l'année, mais une seule fois par an, pendant un mois, ce brouillard se transforme en eau. Durant toutes les années passées dans la Mer des Démons, Wang Lin n'avait jamais été témoin de ce phénomène en raison de sa cultivation en isolement.
 
 Un mois après son entrée dans la 14e vallée, le brouillard s'était transformé en mer. Cela se produisait chaque année pendant les trois années qu'il y avait passé, et l'événement allait se reproduire.
 

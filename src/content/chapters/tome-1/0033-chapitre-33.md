@@ -64,7 +64,7 @@ Wang Hao, qui était perspicace, comprit immédiatement la raison de ce départ 
 
 Les quelques disciples qui nourrissaient des intentions malveillantes envers Wang Lin après avoir vu le liquide mystérieux furent pris de court. Ils voulurent le poursuivre, mais ne virent qu'une ombre. Après quelques jurons, ils repartirent.
 
-Certains disciples possédant un niveau de culture plus élevé ne s'étaient pas déplacés pour tenter des vols flagrants. Après tout, il s'agissait d'un échange entre membres d'une même secte ; si un meurtre ou un vol était commis et découvert par le maître de la victime, les conséquences seraient désastreuses.
+Certains disciples possédant un niveau de cultivation plus élevé ne s'étaient pas déplacés pour tenter des vols flagrants. Après tout, il s'agissait d'un échange entre membres d'une même secte ; si un meurtre ou un vol était commis et découvert par le maître de la victime, les conséquences seraient désastreuses.
 
 En courant, Wang Lin continuait d'ajouter des talismans sur ses jambes. La vitesse conférée par ces talismans s'accumulait ; ainsi, avec quelques dizaines d'entre eux, il regagna rapidement la cour de la secte.
 

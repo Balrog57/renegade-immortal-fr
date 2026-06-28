@@ -38,7 +38,7 @@ Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lie
 
 À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Flamespark.
 
-Pourtant, à l'intérieur de la glace, les yeux de Maître Flamespark laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Brise-Nirvana à un niveau phénoménal.
+Pourtant, à l'intérieur de la glace, les yeux de Maître Flamespark laissèrent transparaître un éclat froid et il esquissa un sourire. La cultivation qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Brise-Nirvana à un niveau phénoménal.
 
 « Tu... Tu as percé le niveau !!! » L'expression de Ji Xiantian changea radicalement et il s'apprêta à reculer sans délai.
 
@@ -72,13 +72,13 @@ Une fois apparus, ces vortex s'agrandirent immédiatement pour pénétrer dans l
 
 Lorsque les treize vortex furent intégrés, son corps émit une lumière bleue aveuglante composée de treize couches superposées. C'était la puissance de la Loi de Ji Xiantian !
 
-La couleur de la limite absolue de la glace était le bleu et, durant toute sa vie, Ji Xiantian n'avait pu condenser que treize couches de cette lumière. Il avait toujours pensé que s'il parvenait à fusionner ces treize couches en une seule, sa culture pourrait connaître une percée décisive.
+La couleur de la limite absolue de la glace était le bleu et, durant toute sa vie, Ji Xiantian n'avait pu condenser que treize couches de cette lumière. Il avait toujours pensé que s'il parvenait à fusionner ces treize couches en une seule, sa cultivation pourrait connaître une percée décisive.
 
 Au moment même où les treize couches de lumière bleue de Ji Xiantian se manifestèrent, le bois géant atteignit sa cible !
 
 Les ondes provoquées par l'arrivée du bois géant étaient indescriptibles. À cet instant, tout disparut, ne laissant place qu'à la puissance d'inertie du bois géant, capable d'anéantir tout ce qui se trouvait sur son passage !
 
-Aucun être, aucun trésor magique, aucun objet, pas même une planète de culture ne pouvait stopper son impact ou lui infliger le moindre dommage. Ce bois géant était capable de soutenir l'arrivée du Royaume Céleste Antique ; désormais, tout ce qui constellait les étoiles devait s'effondrer devant lui !
+Aucun être, aucun trésor magique, aucun objet, pas même une planète de cultivation ne pouvait stopper son impact ou lui infliger le moindre dommage. Ce bois géant était capable de soutenir l'arrivée du Royaume Céleste Antique ; désormais, tout ce qui constellait les étoiles devait s'effondrer devant lui !
 
 Le bois géant frappa avec un impact inimaginable, comme s'il voulait percer l'espace même ! Il se referma instantanément sur la tempête que Maître Flamespark avait utilisée pour piéger Ji Xiantian.
 
@@ -88,7 +88,7 @@ Bang !
 
 L'un des fragments s'effondra et ses débris se dispersèrent rapidement. En un instant, les autres fragments situés à proximité du point d'impact furent également pulvérisés.
 
-L'effondrement de ces fragments n'était pas moins violent que celui d'une planète de culture. La force combinée de tous ces effondrements s'abattit sur Ji Xiantian, toujours prisonnier.
+L'effondrement de ces fragments n'était pas moins violent que celui d'une planète de cultivation. La force combinée de tous ces effondrements s'abattit sur Ji Xiantian, toujours prisonnier.
 
 L'impact incessant se mua en une tempête violente qui poussait dans toutes les directions.
 
@@ -114,7 +114,7 @@ L'effroi envahit le regard de Ji Xiantian ; tout s'était passé trop vite. Neuf
 
 Leurs sorts se transformèrent en forces incessantes qui frappèrent le corps de Ji Xiantian !
 
-Ji Xiantian fut assailli par le bois géant, Maître Flamespark, Li Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Flamespark, dont le niveau de culture surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit perdre la raison !
+Ji Xiantian fut assailli par le bois géant, Maître Flamespark, Li Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Flamespark, dont le niveau de cultivation surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit perdre la raison !
 
 Cependant, il était, après tout, un vieux monstre célèbre depuis des dizaines de milliers d'années pour sa vie de massacres. Bien qu'il fût en pleine crise, il n'allait pas mourir si facilement !
 

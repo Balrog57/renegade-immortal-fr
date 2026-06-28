@@ -14,7 +14,7 @@ Hors de la formation, le système stellaire tremblait. Blue Dream combattait seu
 
 Après avoir observé un instant, Wang Lin ferma les yeux et cessa de prêter attention à tout cela.
 
-Les grondements tonitruants n'atteignaient plus ses oreilles ; il se concentra sur sa culture. Il avait laissé une parcelle d'âme originelle autour de lui afin d'être alerté si quoi que ce soit arrivait.
+Les grondements tonitruants n'atteignaient plus ses oreilles ; il se concentra sur sa cultivation. Il avait laissé une parcelle d'âme originelle autour de lui afin d'être alerté si quoi que ce soit arrivait.
 
 Durant les deux années de guérison, Wang Lin avait recouvré la majeure partie de ses blessures. Il avait passé l'essentiel de ce temps à comprendre le sort « Déchirer les Cieux » issu des huit gouttes de sang.
 
@@ -30,7 +30,7 @@ Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataill
 
 Le Maître Dao Blue Dream paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
 
-« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Spirit Void ; la prochaine fois que vous le croiserez, vous pourrez le tuer ! »
+« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de cultivation maximal avant cent ans. Son niveau a chuté au stade Spirit Void ; la prochaine fois que vous le croiserez, vous pourrez le tuer ! »
 
 « Les blessures de Nine Heaven sont légèrement moins graves que celles de Miao Yin, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous ! »
 
@@ -68,7 +68,7 @@ Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe 
 
 « Ne dis rien de plus, tu... » Le Maître Dao Blue Dream vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 
-« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur ; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille ! C'est ma limite. Wang Lin, choisis sagement ! » L'expression du Maître Dao Blue Dream était glaciale.
+« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur ; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de cultivation de ma fille ! C'est ma limite. Wang Lin, choisis sagement ! » L'expression du Maître Dao Blue Dream était glaciale.
 
 Wang Lin songea en silence. Il se leva et regarda au loin. Après un long moment, ses yeux étaient empreints de confusion alors que son regard dérivait vers Li Qianmei. Il vit ses larmes et la façon dont elle baissait la tête pour fuir son regard.
 

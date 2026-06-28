@@ -54,7 +54,7 @@ Cette sphère semblait imprégnée de chaos et de lumière. Son intérieur tourb
 
 À cet instant précis, les yeux de la femme en noir s'illuminèrent derrière son voile de soie. La sphère d'eau explosa en un rideau de pluie.
 
-Ce rideau révéla un domaine stellaire, et dans ce dernier ne figurait qu'une seule planète de culture !
+Ce rideau révéla un domaine stellaire, et dans ce dernier ne figurait qu'une seule planète de cultivation !
 
 La femme en noir déclara doucement : « Informe les anciens du Conseil Souverain que Yun Luo a trouvé celui qui a détruit le Clan du Tonnerre Dispersé. Il est ici ! »
 
@@ -84,7 +84,7 @@ Maître Simo !
 
 Les yeux de Maître Simo s'illuminèrent et sa main droite se tendit vers le parchemin. Il broya le papier, puis une vapeur rouge pénétra dans son bras.
 
-« Cette affaire est simple, mon avatar suffira. » Une fois ses paroles prononcées, il ferma les yeux et une illusion sortit de son corps. Cet avatar était son portrait craché, mais sa culture n'était pas au troisième stade, mais au cinquième : le Fléau Céleste !
+« Cette affaire est simple, mon avatar suffira. » Une fois ses paroles prononcées, il ferma les yeux et une illusion sortit de son corps. Cet avatar était son portrait craché, mais sa cultivation n'était pas au troisième stade, mais au cinquième : le Fléau Céleste !
 
 L'avatar fit un pas en avant et disparut de la faille spatiale.
 
@@ -92,11 +92,11 @@ Quant à Wang Lin, il restait caché dans la chaîne de montagnes, ignorant les 
 
 Le premier qu'il raffina fut le Tonnerre Spirituel. Il en possédait déjà une grande quantité, et il ne lui fallut pas longtemps pour absorber tout le Tonnerre Spirituel collecté par le Clan du Tonnerre Dispersé.
 
-En conséquence, son Tonnerre Spirituel devint extrêmement puissant ! Il gravitait lentement autour de l'âme originelle de Wang Lin. À chaque rotation, son âme originelle grandissait et son niveau de culture augmentait légèrement.
+En conséquence, son Tonnerre Spirituel devint extrêmement puissant ! Il gravitait lentement autour de l'âme originelle de Wang Lin. À chaque rotation, son âme originelle grandissait et son niveau de cultivation augmentait légèrement.
 
-Sa culture du tonnerre progressait vers le sommet du stade Briseur de Nirvana ! Atteindre ce stade en 10 000 ans était déjà une prouesse, alors de s'en surpasser était encore plus complexe. Le temps de culture de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur de Nirvana, puis sur le tonnerre.
+Sa cultivation du tonnerre progressait vers le sommet du stade Briseur de Nirvana ! Atteindre ce stade en 10 000 ans était déjà une prouesse, alors de s'en surpasser était encore plus complexe. Le temps de cultivation de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur de Nirvana, puis sur le tonnerre.
 
-Toutefois, malgré cela, son niveau de culture ne pouvait progresser que très peu... à moins de compléter les neuf types de tonnerre !
+Toutefois, malgré cela, son niveau de cultivation ne pouvait progresser que très peu... à moins de compléter les neuf types de tonnerre !
 
 Cependant, Wang Lin ignorait s'il pourrait accéder au troisième stade une fois les neuf types complétés. Il pressentait que ce ne serait pas aussi simple. Après tout, il avait choisi de ne pas cultiver les Flammes Joss...
 
@@ -106,6 +106,6 @@ Le temps s'écoulait lentement. En un clin d'œil, une journée entière passa !
 
 Durant cette journée, toujours plus de cultivateurs du Système des Anciennes Étoiles s'étaient rassemblés : pas moins de 100 000 individus ! De nombreux experts puissants étaient présents, tandis que très peu de faibles avaient été envoyés.
 
-La planète de culture entière avait été fouillée avec acharnement par ces cultivateurs. La recherche avait retourné la planète de fond en comble !
+La planète de cultivation entière avait été fouillée avec acharnement par ces cultivateurs. La recherche avait retourné la planète de fond en comble !
 
 Même la chaîne de montagnes avait été inspectée centimètre par centimètre, mais malgré leurs efforts acharnés, ils ne trouvèrent rien !

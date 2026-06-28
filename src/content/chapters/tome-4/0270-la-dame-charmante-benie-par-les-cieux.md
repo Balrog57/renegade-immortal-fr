@@ -10,17 +10,17 @@ Wang Lin réfléchit un instant aux inquiétudes de Zhou Wutai. Bien que l'Allia
 
 Il se tenait actuellement devant la boutique et contemplait la neige en laissant échapper un soupir.
 
-La dernière information mentionnée par Zhou Wutai sur le jade était que, afin de vérifier si Xue Yu allait réellement déclencher une guerre capable de ravager un pays, l'Alliance des Quatre Sectes avait dépêché des cultivateurs pour recueillir des renseignements. Ils avaient envoyé trois groupes au total : le premier vers les pays alliés de rang 4 situés à proximité ; le second vers le pays de culture de rang 5 auquel ils appartenaient pour solliciter des renforts ; et enfin, le dernier groupe s'était rendu à Suzaku pour découvrir la vérité.
+La dernière information mentionnée par Zhou Wutai sur le jade était que, afin de vérifier si Xue Yu allait réellement déclencher une guerre capable de ravager un pays, l'Alliance des Quatre Sectes avait dépêché des cultivateurs pour recueillir des renseignements. Ils avaient envoyé trois groupes au total : le premier vers les pays alliés de rang 4 situés à proximité ; le second vers le pays de cultivation de rang 5 auquel ils appartenaient pour solliciter des renforts ; et enfin, le dernier groupe s'était rendu à Suzaku pour découvrir la vérité.
 
 Au jour où le jade fut transmis, seul le groupe en route vers Suzaku n'était pas encore revenu.
 
 Cependant, leur absence plongea tout le monde au sein de l'Alliance des Quatre Sectes dans un silence pesant.
 
-Tous les pays alliés de culture de rang 4 accueillirent l'Alliance des Quatre Sectes avec respect, mais aucun d'eux ne voulut parler de la guerre ; ils se contentaient d'éluder le sujet. Certains allaient même jusqu'à éviter tout contact. Finalement, un autre pays, qui entretenait de très bonnes relations avec eux, leur annonça que les pays de culture de rang 5 avaient ordonné de ne pas s'impliquer dans cette affaire.
+Tous les pays alliés de cultivation de rang 4 accueillirent l'Alliance des Quatre Sectes avec respect, mais aucun d'eux ne voulut parler de la guerre ; ils se contentaient d'éluder le sujet. Certains allaient même jusqu'à éviter tout contact. Finalement, un autre pays, qui entretenait de très bonnes relations avec eux, leur annonça que les pays de cultivation de rang 5 avaient ordonné de ne pas s'impliquer dans cette affaire.
 
-Quant au groupe qui s'était rendu dans le pays de culture de rang 5, leurs visages étaient encore plus sombres à leur retour. Le pays de culture de rang 5 leur avait signifié qu'il était inutile de leur remettre le Chaudron de Pluie, car ils n'apporteraient aucun soutien.
+Quant au groupe qui s'était rendu dans le pays de cultivation de rang 5, leurs visages étaient encore plus sombres à leur retour. Le pays de cultivation de rang 5 leur avait signifié qu'il était inutile de leur remettre le Chaudron de Pluie, car ils n'apporteraient aucun soutien.
 
-Finalement, ce groupe de cultivateurs déploya des efforts considérables pour obtenir une information auprès d'un cultivateur de la Transformation de l'Âme dans le pays de culture de rang 5, une information qui les choqua tous.
+Finalement, ce groupe de cultivateurs déploya des efforts considérables pour obtenir une information auprès d'un cultivateur de la Transformation de l'Âme dans le pays de cultivation de rang 5, une information qui les choqua tous.
 
 Il existait à Xue Yu une femme dont le talent était si stupéfiant qu'il avait même attiré l'attention de Suzaku. Elle n'avait cultivé que depuis cent ans et avait déjà atteint le stade avancé de la Formation de l'Âme. Elle avait été nommée le génie numéro un de la planète Suzaku pour les dix mille dernières années.
 
@@ -32,13 +32,13 @@ Ce genre de chose n'était pas rare. De nombreux jeunes extrêmement talentueux 
 
 Mais lorsque ces personnes rejoignaient Suzaku, leur statut restait très bas ; pour elle, en revanche, Suzaku était déterminée et lui avait offert une position très élevée.
 
-La raison pour laquelle Suzaku agissait ainsi était de tenter de franchir cet écart qu'elle essayait de combler depuis d'innombrables années : devenir un pays de culture de rang 7. Cependant, pour atteindre ce rang, il ne suffisait pas qu'un cultivateur atteigne le niveau requis ; il fallait également remplir une série d'exigences complexes. C'était une tâche extrêmement difficile.
+La raison pour laquelle Suzaku agissait ainsi était de tenter de franchir cet écart qu'elle essayait de combler depuis d'innombrables années : devenir un pays de cultivation de rang 7. Cependant, pour atteindre ce rang, il ne suffisait pas qu'un cultivateur atteigne le niveau requis ; il fallait également remplir une série d'exigences complexes. C'était une tâche extrêmement difficile.
 
 À l'heure actuelle, Suzaku n'avait même pas satisfait la première exigence, elle accordait donc une attention toute particulière à la jeune génération talentueuse.
 
 Et le talent de cette femme de Xue Yu était déjà prodigieux. En conséquence, Suzaku avait pris de nombreuses mesures préparatoires.
 
-Sa seule requête était que Xue Yu devienne un pays de culture de rang 5 et qu'ils puissent quitter cette terre désolée pour s'installer ailleurs sur la planète Suzaku.
+Sa seule requête était que Xue Yu devienne un pays de cultivation de rang 5 et qu'ils puissent quitter cette terre désolée pour s'installer ailleurs sur la planète Suzaku.
 
 Par coïncidence, un Chaudron de Pluie était apparu au sein de l'Alliance des Quatre Sectes, provenant précisément d'un cultivateur de Xue Yu ; c'est ainsi que cette guerre fut déclenchée.
 
@@ -52,7 +52,7 @@ Une fois ces informations rapportées par les cultivateurs, tout le monde fut so
 
 Après avoir lu l'intégralité du jade transmis par Zhou Wutai, le cœur de Wang Lin s'alourdit. Il n'aurait jamais pensé qu'une simple bataille pour un Chaudron de Pluie puisse cacher des enjeux aussi profonds.
 
-Il ressentit un grand regret en contemplant la rue et les boutiques désertes. Il y a quelques mois, la rue grouillait de monde et toutes les boutiques ouvraient tôt dans une effervescence constante. Mais à cause de la guerre entre les deux pays de culture, les mortels avaient été durement touchés.
+Il ressentit un grand regret en contemplant la rue et les boutiques désertes. Il y a quelques mois, la rue grouillait de monde et toutes les boutiques ouvraient tôt dans une effervescence constante. Mais à cause de la guerre entre les deux pays de cultivation, les mortels avaient été durement touchés.
 
 Wang Lin soupira. À cet instant, il éprouvait un profond regret. Les mortels étaient inférieurs aux fourmis aux yeux des cultivateurs, mais beaucoup oubliaient qu'ils avaient eux aussi été, autrefois, des êtres vivants.
 
@@ -100,7 +100,7 @@ Peu à peu, à mesure que des tourbillons de cent mètres apparaissaient dans la
 
 Durant ces sept jours, toute cette zone fut défrichée. Une fois qu'il eut obtenu suffisamment de bois, Wang Lin jeta un dernier regard sur les lieux, puis partit.
 
-Au cours de ces sept jours, ses actions avaient été remarquées par les cultivateurs de passage et la nouvelle s'était propagée dans toute l'Alliance des Quatre Sectes. Des hommes furent envoyés pour enquêter, mais dès qu'ils reconnurent le niveau de culture de Wang Lin, ils se montrèrent extrêmement respectueux.
+Au cours de ces sept jours, ses actions avaient été remarquées par les cultivateurs de passage et la nouvelle s'était propagée dans toute l'Alliance des Quatre Sectes. Des hommes furent envoyés pour enquêter, mais dès qu'ils reconnurent le niveau de cultivation de Wang Lin, ils se montrèrent extrêmement respectueux.
 
 Finalement, Zhou Wutai apprit la nouvelle et étouffa immédiatement la rumeur. Il se rendit personnellement sur place avec quelques hommes. Ils ne dirent mot, se contentant d'aider en silence.
 
@@ -122,6 +122,6 @@ Avant son départ, son chemin vers la mortalité touchait à sa fin. Il espérai
 
 Même s'il échouait finalement, au moins sa mentalité progresserait d'un pas, le rapprochant encore davantage du stade de la Formation de l'Âme, ou le plaçant à un point où il n'aurait plus qu'à choisir un domaine pour franchir ce seuil.
 
-Ce qu'il avait décidé de sculpter, c'était chaque personne qu'il avait tuée, depuis ses débuts dans la culture jusqu'à son passage vers la mortalité...
+Ce qu'il avait décidé de sculpter, c'était chaque personne qu'il avait tuée, depuis ses débuts dans la cultivation jusqu'à son passage vers la mortalité...
 
 Chaque personne !

@@ -132,11 +132,11 @@ Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Hunchback Me
 
 À l'époque, le Seigneur Démon des Six Désirs et les autres n'étaient que des juniors à ses yeux. Sans sa blessure grave après sa fuite, comment ces trois pourraient-ils encore être en vie aujourd'hui ?
 
-Pendant 1000 ans, il s'était rétabli dans la Mer des Démons et avait commencé à approfondir ses connaissances sur les restrictions afin de tenter de nouveau l'essai. Durant ce millénaire, il avait pu recouvrer toute sa culture, mais sans pouvoir la faire progresser. Après une analyse minutieuse, il estimait que ses blessures d'autrefois avaient endommagé ses fondations. À moins de trouver un trésor céleste, sa culture resterait à jamais bloquée.
+Pendant 1000 ans, il s'était rétabli dans la Mer des Démons et avait commencé à approfondir ses connaissances sur les restrictions afin de tenter de nouveau l'essai. Durant ce millénaire, il avait pu recouvrer toute sa cultivation, mais sans pouvoir la faire progresser. Après une analyse minutieuse, il estimait que ses blessures d'autrefois avaient endommagé ses fondations. À moins de trouver un trésor céleste, sa cultivation resterait à jamais bloquée.
 
 Par conséquent, l'idée de retourner dans la Terre de l'Ancien Dieu l'excitait d'autant plus. Seul ici il trouverait le trésor capable non seulement de le guérir, mais aussi de l'aider à atteindre le stade de la Transformation de l'Âme. Cela rendrait tous ses sacrifices pleinement mérités.
 
-À cette fin, il avait délaissé la culture pour se consacrer uniquement à l'étude des restrictions, visitant même de nombreuses sectes célèbres pour leur maîtrise en la matière.
+À cette fin, il avait délaissé la cultivation pour se consacrer uniquement à l'étude des restrictions, visitant même de nombreuses sectes célèbres pour leur maîtrise en la matière.
 
 Après 1000 ans d'études, il était très confiant dans ses capacités. Il avait même apporté avec lui quelques surprises étonnantes. Il toucha son sac de rangement et élargit son sourire.
 

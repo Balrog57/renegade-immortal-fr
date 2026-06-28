@@ -32,7 +32,7 @@ Presque au moment où Wang Lin se téléporta, la main de l'homme en robe noire 
 
 Simultanément, la lumière noire envahit le bras de l'homme en robe noire, qui poussa un gémissement de douleur. Un sifflement de crépitement émana de son bras, tandis que des volutes de gaz blanc s'en échappaient.
 
-L'homme en robe noire retira brusquement sa main, les yeux écarquillés par le choc. Il savait au fond de lui que son Sceau des Cinq Sangs était considéré comme un sceau de qualité supérieure, conçu spécifiquement pour sceller les trésors ennemis. Durant toutes ses années de culture, il l'avait utilisé contre d'innombrables cultivateurs sans jamais échouer. C'était la première fois qu'il subissait un tel échec.
+L'homme en robe noire retira brusquement sa main, les yeux écarquillés par le choc. Il savait au fond de lui que son Sceau des Cinq Sangs était considéré comme un sceau de qualité supérieure, conçu spécifiquement pour sceller les trésors ennemis. Durant toutes ses années de cultivation, il l'avait utilisé contre d'innombrables cultivateurs sans jamais échouer. C'était la première fois qu'il subissait un tel échec.
 
 Au moment où il lâcha prise, toute sa volonté de combat s'évapora. Alors qu'il s'apprêtait à fuir, le Fouet de l'Âme vola vers lui selon un angle étrange. Dans un claquement retentissant, le fouet frappa son dos alors qu'il tentait de reculer.
 

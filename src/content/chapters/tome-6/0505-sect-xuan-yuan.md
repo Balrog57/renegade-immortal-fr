@@ -6,19 +6,19 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 505 - Xuan Yuan Sect
 slug: sect-xuan-yuan
 ---
-Planète Tian Yun, une planète de culture de rang 7 sous l'autorité de l'Alliance de la Culture.
+Planète Tian Yun, une planète de cultivation de rang 7 sous l'autorité de l'Alliance de la Cultivation.
 
-On peut dire que, même parmi les planètes de culture de rang 7, elle représente une existence de premier ordre, et cela s'explique par la présence d'un homme nommé All-Seer sur la planète Tian Yun.
+On peut dire que, même parmi les planètes de cultivation de rang 7, elle représente une existence de premier ordre, et cela s'explique par la présence d'un homme nommé All-Seer sur la planète Tian Yun.
 
-All-Seer est considéré comme un sage extrêmement respecté de sa génération ; il siège même au sein de l'Alliance de la Culture ! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres !
+All-Seer est considéré comme un sage extrêmement respecté de sa génération ; il siège même au sein de l'Alliance de la Cultivation ! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres !
 
-Une planète de culture de rang 7 contrôlerait normalement de nombreuses planètes de rang 6 pour renforcer sa propre puissance, mais ce n'est pas le cas de Tian Yun.
+Une planète de cultivation de rang 7 contrôlerait normalement de nombreuses planètes de rang 6 pour renforcer sa propre puissance, mais ce n'est pas le cas de Tian Yun.
 
 Il n'existe que cinq planètes gravitant autour de la planète Tian Yun, et elles sont toutes de rang 6. Elles se nomment Ciel, Terre, Humain, Vie et Destin.
 
 Un gigantesque réseau de transfert relie ces cinq planètes à la planète Tian Yun. Cependant, le coût nécessaire pour l'activer est colossal, ce qui explique pourquoi il n'est pas utilisé à tout propos.
 
-Outre ces cinq planètes, de nombreux autres astres plus modestes orbitent autour de Tian Yun. Il s'agit là de grottes de culture personnelles appartenant à de vieux monstres. Bien que des réseaux de transfert les relient, ils sont généralement scellés et ne s'ouvrent pas aisément.
+Outre ces cinq planètes, de nombreux autres astres plus modestes orbitent autour de Tian Yun. Il s'agit là de grottes de cultivation personnelles appartenant à de vieux monstres. Bien que des réseaux de transfert les relient, ils sont généralement scellés et ne s'ouvrent pas aisément.
 
 À l'extrême est de la planète Tian Yun se trouve un immense réseau de transfert. Ce dernier est contrôlé par la Secte du Destin Céleste et une sentinelle y est postée en permanence.
 
@@ -28,19 +28,19 @@ Zhao Zi était un disciple de la cinquième génération de la Division Verte. I
 
 Zhao Zi ouvrit les yeux et laissa échapper un long soupir.
 
-« Encore trois mois, et quelqu'un viendra me remplacer. Une fois de retour à la secte, je devrai entrer en culture fermée pendant plusieurs années pour tenter d'atteindre le stade avancé de la Formation de l'Âme. Dès que j'y serai parvenu, je demanderai à quitter la secte pour m'entraîner à l'extérieur. Si je peux me procurer quelques jades célestes, alors moi, Zhao Si, j'aurai peut-être une réelle chance d'atteindre le stade de la Transformation de l'Âme ! »
+« Encore trois mois, et quelqu'un viendra me remplacer. Une fois de retour à la secte, je devrai entrer en cultivation fermée pendant plusieurs années pour tenter d'atteindre le stade avancé de la Formation de l'Âme. Dès que j'y serai parvenu, je demanderai à quitter la secte pour m'entraîner à l'extérieur. Si je peux me procurer quelques jades célestes, alors moi, Zhao Si, j'aurai peut-être une réelle chance d'atteindre le stade de la Transformation de l'Âme ! »
 
 En y songeant, les yeux de Zhao Si se teintèrent de désir.
 
-« Hélas, ma chance n'est pas bonne. Si j'avais été aussi chanceux que les ancêtres qui furent acceptés directement comme disciples du Fondateur, rien de tout cela ne serait un problème. Malheureusement, depuis que je suis enfant, moi, Zhao Si, je rêve d'atteindre le stade Ascendant. Je pourrais alors avoir une planète entière comme propre grotte de culture. N'est-ce pas là la chose la plus joyeuse au monde... »
+« Hélas, ma chance n'est pas bonne. Si j'avais été aussi chanceux que les ancêtres qui furent acceptés directement comme disciples du Fondateur, rien de tout cela ne serait un problème. Malheureusement, depuis que je suis enfant, moi, Zhao Si, je rêve d'atteindre le stade Ascendant. Je pourrais alors avoir une planète entière comme propre grotte de cultivation. N'est-ce pas là la chose la plus joyeuse au monde... »
 
-Zhao Si esquissa un sourire amer, prit une profonde inspiration et s'apprêta à reprendre sa culture.
+Zhao Si esquissa un sourire amer, prit une profonde inspiration et s'apprêta à reprendre sa cultivation.
 
 Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel tel un météore en brisant le mur du son. Rapidement, la lueur pourpre se rapprocha, n'étant plus qu'à 10 000 pieds.
 
 L'expression de Zhao Zi devint grave. Sans se lever, il fixa froidement le rayon de lumière qui fonçait sur lui.
 
-D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis quelques cultivateurs extrêmement puissants, même si leur niveau de culture surpassait le sien, Zhao Si les méprisait car il était, lui, un disciple de la Secte du Destin Céleste !
+D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis quelques cultivateurs extrêmement puissants, même si leur niveau de cultivation surpassait le sien, Zhao Si les méprisait car il était, lui, un disciple de la Secte du Destin Céleste !
 
 Au moment où le soleil commençait à poindre à l'horizon, le rayon de lumière violette ralentit, permettant à Zhao Si d'apercevoir l'individu qu'il transportait.
 
@@ -56,7 +56,7 @@ Parmi elles, la plus persistante affirmait que le Fondateur avait accepté un no
 
 Dès son entrée dans la Division Pourpre, ce Wang Lin l'avait totalement bouleversée. Après avoir brutalement tué le deuxième frère de la Division Pourpre, il s'était même lancé dans la lutte pour le titre de véritable disciple.
 
-Cet homme avait utilisé sa culture au stade intermédiaire de la Transformation de l'Âme pour combattre la quatrième sœur de la Division Pourpre, qui se trouvait au stade avancé de la Transformation de l'Âme, et il l'avait vaincue.
+Cet homme avait utilisé sa cultivation au stade intermédiaire de la Transformation de l'Âme pour combattre la quatrième sœur de la Division Pourpre, qui se trouvait au stade avancé de la Transformation de l'Âme, et il l'avait vaincue.
 
 Mais ce n'était pas là le point crucial du récit. Le plus important était que le sixième frère de la Division Pourpre, un cultivateur Ascendant, était soudainement revenu, déclenchant une bataille titanesque.
 
@@ -88,15 +88,15 @@ Habitué à ce spectacle, Zhao Si ferma les yeux dès que le réseau s'anima. Ap
 
 Le réseau était vide ; tout semblait être revenu à son état initial. Seule subsistait la lueur spectrale qui, telle un nuage de lucioles, dérivait lentement pour retourner dans les ravins.
 
-Zhao Si observa le réseau de transfert désormais désert avec envie, puis soupira en murmurant : « Je me demande bien ce que ce septième ancêtre de la Division Pourpre va chercher sur la planète Terre. Enfin, cela ne me regarde pas ; je dois me concentrer sur ma culture pour atteindre le stade avancé de la Formation de l'Âme au plus vite ! »
+Zhao Si observa le réseau de transfert désormais désert avec envie, puis soupira en murmurant : « Je me demande bien ce que ce septième ancêtre de la Division Pourpre va chercher sur la planète Terre. Enfin, cela ne me regarde pas ; je dois me concentrer sur ma cultivation pour atteindre le stade avancé de la Formation de l'Âme au plus vite ! »
 
 Zhao Si secoua la tête, se rassit et reprit sa méditation.
 
 La planète Terre était l'une des cinq planètes orbitant autour de Tian Yun. Vue de loin, elle présentait une teinte jaune terreuse et d'innombrables halos mouvaient à sa surface. Sa taille était comparable à celle de la planète Suzaku.
 
-Le Secte Xuan Yuan était le seul pays de culture de rang 6 sur cette planète. Le secteur du Secte Xuan Yuan constituait un État entier peuplé d'innombrables cultivateurs. Leur ancêtre, nommé Xuan Ming, avait déjà dépassé le stade Ascendant.
+Le Secte Xuan Yuan était le seul pays de cultivation de rang 6 sur cette planète. Le secteur du Secte Xuan Yuan constituait un État entier peuplé d'innombrables cultivateurs. Leur ancêtre, nommé Xuan Ming, avait déjà dépassé le stade Ascendant.
 
-Les mers étaient rares sur cette planète, la majeure partie de la surface étant terrestre. À des millions de lieues à l'ouest de Xuan Yuan se trouvait le pays de culture de rang 5, Ling Yue.
+Les mers étaient rares sur cette planète, la majeure partie de la surface étant terrestre. À des millions de lieues à l'ouest de Xuan Yuan se trouvait le pays de cultivation de rang 5, Ling Yue.
 
 Ce jour-là, les environs du réseau de transfert adjacent au Secte Xuan Yuan avaient été dégagés. Personne, hormis les disciples de la secte, ne se trouvait dans un rayon de plusieurs dizaines de mètres autour du dispositif.
 
@@ -106,7 +106,7 @@ Trois jours plus tôt, il avait appris par un ami proche de la Secte du Destin C
 
 En temps normal, Xu Yunshan n'aurait accordé aucune importance à une telle affaire, mais lorsqu'il apprit que l'arrivant était le septième frère de la Division Pourpre — le nouveau disciple que l'All-Seer venait d'accepter, Wang Lin — son attitude changea radicalement.
 
-En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de l'All-Seer afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était pour le fait que l'All-Seer semblait lui avoir accordé une attention particulière lors de la célébration d'anniversaire.
+En tant qu'habitant d'un pays de cultivation de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de l'All-Seer afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était pour le fait que l'All-Seer semblait lui avoir accordé une attention particulière lors de la célébration d'anniversaire.
 
 Ce Wang Lin était apparu de nulle part, le Secte Xuan Yuan ne savait donc presque rien de lui. De plus, du point de vue du Secte Xuan Yuan, Wang Lin possédait un potentiel immense. Il valait mieux se lier d'amitié avec lui dès maintenant plutôt que tardivement ; c'est ce qui motivait sa présence ici.
 

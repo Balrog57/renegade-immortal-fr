@@ -12,7 +12,7 @@ En voyant l'empreinte noire sur le dos du garçon, une lueur glaciale traversa l
 
 Il tendit sa main droite et saisit l'enfant. Sa paume frappa ensuite le garçon, libérant d'immenses quantités d'énergie originelle dans son corps. Le visage du garçon devint rouge et il cracha une bouffée de sang noir qui dégageait une odeur fétide et puissante.
 
-À cet instant, le jeune homme en robe bleue, toujours penché en arrière en train de manger des cerises, pointa Wang Lin du doigt après avoir avalé un fruit : « Sun Gouzi, tu possèdes ce corps du Clan des Démons Géants depuis assez longtemps pour utiliser ta culture. Va tuer cet individu qui m'a insulté ! »
+À cet instant, le jeune homme en robe bleue, toujours penché en arrière en train de manger des cerises, pointa Wang Lin du doigt après avoir avalé un fruit : « Sun Gouzi, tu possèdes ce corps du Clan des Démons Géants depuis assez longtemps pour utiliser ta cultivation. Va tuer cet individu qui m'a insulté ! »
 
 Le membre du Clan des Démons Géants à ses côtés afficha une expression respectueuse et répondit : « À vos ordres ! »
 
@@ -20,7 +20,7 @@ Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention 
 
 « Junior, accepte la mort ! » Alors qu'il projetait sa main droite, l'océan parut bouillir pour se concentrer sur son geste. Il se transforma en un dragon de mer qui chargea Wang Lin dans un rugissement.
 
-Au moment où le dragon de mer s'élança, l'odeur saline de l'océan imprégna l'air. Wang Lin garda sa main droite sur le dos du garçon et ne daigna même pas regarder le dragon ou le colosse qui le suivait. Ce dernier n'était qu'au stade initial du Nirvana Scryer. Si l'on faisait abstraction du corps de Dieu Ancien Royal à 5 étoiles de Wang Lin, il lui serait facile de terrasser ce géant avec sa seule culture d'énergie originelle !
+Au moment où le dragon de mer s'élança, l'odeur saline de l'océan imprégna l'air. Wang Lin garda sa main droite sur le dos du garçon et ne daigna même pas regarder le dragon ou le colosse qui le suivait. Ce dernier n'était qu'au stade initial du Nirvana Scryer. Si l'on faisait abstraction du corps de Dieu Ancien Royal à 5 étoiles de Wang Lin, il lui serait facile de terrasser ce géant avec sa seule cultivation d'énergie originelle !
 
 Bien que les membres du Clan des Démons Géants possèdent des corps robustes, ils demeuraient bien trop faibles comparés aux corps des Dieux Anciens. Wang Lin agita la main gauche et une force colossale jaillit. Cette puissance était invisible, mais dès le mouvement de sa main, des craquements déchirèrent l'espace entre lui et le géant, comme si la réalité elle-même allait se briser.
 

@@ -2,7 +2,7 @@
 n: 1017
 title: Nirvana (1)
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1017 - Nirvana (1)
 slug: nirvana-1
 ---
@@ -12,7 +12,7 @@ Il était impossible de distinguer son visage sous l'armure grise ; on ne pouvai
 
 Sa voix était monocorde, dépourvue de toute émotion. Tandis qu'il parlait, son regard restait verrouillé sur Wang Lin.
 
-L'expression de Wang Lin était sombre. D'un geste de la main, il rangea toutes les têtes dans son sac. Il fixa ensuite cet homme qui se présentait sous le nom de Ming Hai, sentant que son niveau de culture n'était pas inférieur à celui d'un Purificateur du Nirvana.
+L'expression de Wang Lin était sombre. D'un geste de la main, il rangea toutes les têtes dans son sac. Il fixa ensuite cet homme qui se présentait sous le nom de Ming Hai, sentant que son niveau de cultivation n'était pas inférieur à celui d'un Purificateur du Nirvana.
 
 Ce qui le troublait davantage était qu'en plus des filaments d'énergie démoniaque, il percevait également une énergie spirituelle céleste.
 

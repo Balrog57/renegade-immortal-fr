@@ -44,7 +44,7 @@ Il se souvenait distinctement d'avoir violé une loi céleste. Bien que son maî
 
 Sous la puissance d'« Invoque le Vent », son corps entier s'était effondré et ses os s'étaient dissipés. Si son maître, Maître Sans Souci, n'était pas intervenu, même son crâne n'aurait pas survécu.
 
-Après cela, Maître Sans Souci l'avait envoyé ici pour garder ce cercueil. Ce n'est que grâce à cette immense formation et à d'innombrables années de culture qu'il avait enfin pu expulser les traces du sort pour reconstituer son squelette.
+Après cela, Maître Sans Souci l'avait envoyé ici pour garder ce cercueil. Ce n'est que grâce à cette immense formation et à d'innombrables années de cultivation qu'il avait enfin pu expulser les traces du sort pour reconstituer son squelette.
 
 En revoyant ce sort à cet instant, il en perdit la raison. Il recula précipitamment, ouvrit la bouche sans hésiter et cracha un objet. C'était un noyau bleu qui, dès son apparition, teinta l'environnement de sa lueur azurée.
 
@@ -92,7 +92,7 @@ Il ne restait plus que sa tête suspendue dans les airs. La terreur dans ses yeu
 
 « Briser la loi ! C'est un trésor capable de briser la loi ! » L'homme avait perdu tout sens de la raison et tentait désespérément de fuir. Mais le vent noir était déjà là pour le dévorer.
 
-Le regard de l'homme était empreint de désespoir. S'il avait été au sommet de sa culture, il aurait pu résister, même face à un trésor capable de briser les lois. S'il avait eu son corps, il aurait pu tuer Wang Lin avant que ce dernier n'utilise ledit trésor.
+Le regard de l'homme était empreint de désespoir. S'il avait été au sommet de sa cultivation, il aurait pu résister, même face à un trésor capable de briser les lois. S'il avait eu son corps, il aurait pu tuer Wang Lin avant que ce dernier n'utilise ledit trésor.
 
 « Si je n'avais pas été blessé par le "Invoque le Vent" de Bai Fan, je n'aurais pas si peur de cet "Invoque le Vent" incomplet ! Je refuse de finir ainsi ! » Les yeux de l'homme brûlaient de haine. Au moment où le vent noir l'engloutissait, il expulsa une immense bouffée d'air.
 
@@ -106,9 +106,9 @@ En parlant, sa tête percuta le cercueil et le couvercle s'ouvrit. Dès l'ouvert
 
 Ce cercueil est un trésor de l'ancien Royaume Céleste, obtenu par ton maître au péril de sa vie. Il s'appelle le Cercueil Évitant les Cieux.
 
-Sache qu'avant que ton maître ne devienne un être céleste, j'avais un fils. Ton maître lui devait tant qu'il n'a pu préserver qu'une trace de son âme. Lorsque je suis devenu un être céleste, j'ai sacrifié tout mon temps et mes opportunités de culture pour trouver ce Cercueil Évitant les Cieux. J'y ai placé son fragment d'âme afin qu'un jour, il puisse reconstituer son corps et s'éveiller.
+Sache qu'avant que ton maître ne devienne un être céleste, j'avais un fils. Ton maître lui devait tant qu'il n'a pu préserver qu'une trace de son âme. Lorsque je suis devenu un être céleste, j'ai sacrifié tout mon temps et mes opportunités de cultivation pour trouver ce Cercueil Évitant les Cieux. J'y ai placé son fragment d'âme afin qu'un jour, il puisse reconstituer son corps et s'éveiller.
 
-Lorsqu'il s'éveillera, tu le reconnaîtras comme ton maître et tu ne le trahiras jamais. En même temps, tu pourras utiliser ce cercueil pour reformer ton corps et recouvrer ta culture ! »
+Lorsqu'il s'éveillera, tu le reconnaîtras comme ton maître et tu ne le trahiras jamais. En même temps, tu pourras utiliser ce cercueil pour reformer ton corps et recouvrer ta cultivation ! »
 
 La voix de son maître d'autrefois résonna dans le crâne de l'homme à la robe noire alors qu'il pénétrait dans le cercueil.
 

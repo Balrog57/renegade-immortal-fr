@@ -8,7 +8,7 @@ slug: de-qui-est-cette-paume-brisee
 ---
 Chapitre 1935 - De qui est cette paume brisée !
 
-« Une secte… » Wang Lin sortit de sa culture, le regard empli de souvenirs.
+« Une secte… » Wang Lin sortit de sa cultivation, le regard empli de souvenirs.
 
 Après un long moment, il dit calmement : « Je viens de la Secte des Sept Dao. »
 
@@ -36,7 +36,7 @@ En entendant cela, l'Exalt Émérite Hai Zi sourit et cligna des yeux en murmura
 
 À ces mots, l'Exalt Émérite Hai Zi se couvrit la bouche et éclata de rire. C’était la première fois qu’elle agissait ainsi.
 
-« Tu possèdes la puissance d'un Exalt Émérite pour ton niveau de culture, mais tu ne sembles pas pressé de partir. Cela signifie que tu n'as pas de partenaire de Dao. Autrement, il serait impossible que tu ne sois aucunement inquiet », dit l'Exalt Émérite en riant.
+« Tu possèdes la puissance d'un Exalt Émérite pour ton niveau de cultivation, mais tu ne sembles pas pressé de partir. Cela signifie que tu n'as pas de partenaire de Dao. Autrement, il serait impossible que tu ne sois aucunement inquiet », dit l'Exalt Émérite en riant.
 
 Wang Lin fronça à nouveau les sourcils en observant la femme magnifique devant lui. Il sentait vaguement qu'elle avait quelque chose d'étrange, une différence par rapport à ce qu'il avait ressenti auparavant.
 
@@ -44,7 +44,7 @@ Wang Lin fronça à nouveau les sourcils en observant la femme magnifique devant
 
 « Apparence normale, mais tempérament unique — pas mal.
 
-Niveau de culture ordinaire, mais puissance de combat d'Exalt Émérite — très bien.
+Niveau de cultivation ordinaire, mais puissance de combat d'Exalt Émérite — très bien.
 
 Dans l'ensemble, c'est plutôt bon. Voici ce que je propose : une fois sortis d'ici, Grande Sœur t'aidera à trouver un partenaire de Dao. » Les yeux de l'Exalt Émérite Hai Zi brillèrent intensément. Elle regarda Wang Lin et remua doucement ses lèvres séduisantes.
 
@@ -54,7 +54,7 @@ L'Exalt Émérite Hai Zi fronça les sourcils, mais alors qu'elle allait répliq
 
 « Si tu as besoin de parler à quelqu'un après être restée piégée ici trop longtemps, alors je vais t'aider à trouver quelqu'un avec qui discuter ! » Tandis que Wang Lin parlait, une ombre se manifesta autour de lui. Son véritable corps d'essence de tonnerre de meurtre sortit et s'assit entre lui et l'Exalt Émérite Hai Zi.
 
-« Parle à mon avatar, ne perturbe pas ma culture ! » Un éclair de froideur traversa les yeux de Wang Lin alors qu'il se levait pour rejoindre le coin le plus éloigné de l'Exalt Émérite. Il se rassit et ferma les yeux pour affiner le troisième Esprit de l'Arbre de la Mer de Montagne.
+« Parle à mon avatar, ne perturbe pas ma cultivation ! » Un éclair de froideur traversa les yeux de Wang Lin alors qu'il se levait pour rejoindre le coin le plus éloigné de l'Exalt Émérite. Il se rassit et ferma les yeux pour affiner le troisième Esprit de l'Arbre de la Mer de Montagne.
 
 L'Exalt Émérite Hai Zi fut stupéfaite. Elle n'aurait jamais imaginé que Wang Lin utiliserait une telle méthode. Elle fronça les sourcils en observant le véritable corps d'essence de tonnerre de meurtre, dont l'aura glaciale la fixait intensément. Elle poussa un soupir de mécontentement et commença elle aussi à cultiver.
 
@@ -72,13 +72,13 @@ Durant ces trois années, Wang Lin ignora l'Exalt Émérite Hai Zi. Il continua 
 
 Des motifs verdâtres apparurent à la surface de la peau de Wang Lin, semblables aux nervures d'une plante, lui donnant une apparence singulière.
 
-Pendant ces trois années, l'Exalt Émérite Hai Zi ne prononça pas un mot, totalement absorbée par sa culture, tout comme Wang Lin. Son expression changeait parfois, mais nul ne savait quel sortilège elle pratiquait.
+Pendant ces trois années, l'Exalt Émérite Hai Zi ne prononça pas un mot, totalement absorbée par sa cultivation, tout comme Wang Lin. Son expression changeait parfois, mais nul ne savait quel sortilège elle pratiquait.
 
 Au cours de cette période, un grondement tonitruant résonnait périodiquement à l'extérieur, comme si une force puissante frappait le rideau de lumière. Avec le temps, ces fracas devinrent de plus en plus fréquents.
 
 Le rideau de lumière de mille pieds avait montré des signes de rétrécissement au cours de ces trois dernières années.
 
-Au quatrième mois suivant la troisième année, le grondement fut bien plus assourdissant qu'auparavant. Il interrompit la culture de Wang Lin qui leva les yeux.
+Au quatrième mois suivant la troisième année, le grondement fut bien plus assourdissant qu'auparavant. Il interrompit la cultivation de Wang Lin qui leva les yeux.
 
 En levant la tête, son expression changea et il fit un pas en avant. À l'instant même où il bougea, le rideau de lumière de mille pieds se contracta soudainement !
 

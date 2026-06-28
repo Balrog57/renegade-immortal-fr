@@ -1,10 +1,10 @@
 ---
 n: 538
-title: Chapitre 538
+title: Raffinement Pourpre
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 538
-slug: chapitre-538
+slug: raffinement-pourpre
 ---
 À l'extérieur de la vallée, Wang Lin leva la main droite et la masse terrestre gigantesque s'envola vers le ciel.
 
@@ -48,7 +48,7 @@ Après une réflexion approfondie, ses yeux s'illuminèrent. Il existait une mé
 
 « La peau et la chair d'un Dieu Ancien constituent le ciel, et ses os sont la terre. Son âme dévore l'énergie spirituelle des cieux et de la terre pour raffiner son corps. Il utilise la force de son être pour briser tous les cœurs du Dao et emploie son âme pour tracer son propre Dao dans les cieux ! »
 
-Wang Lin pesait le pour et le contre. S'il enseignait à Treize la méthode de culture des Dieux Anciens, cela pourrait transformer radicalement ce dernier, passant d'un être inutile à une puissance redoutable.
+Wang Lin pesait le pour et le contre. S'il enseignait à Treize la méthode de cultivation des Dieux Anciens, cela pourrait transformer radicalement ce dernier, passant d'un être inutile à une puissance redoutable.
 
 Toutefois, rien n'était garanti. Le corps de Treize n'étant pas aussi parfait que le corps originel de Wang Lin, il se pourrait qu'il échoue. S'il ne parvenait pas à maîtriser la méthode des Dieux Anciens, il mourrait, son corps s'effondrant sous la quantité phénoménale d'énergie spirituelle démoniaque qui y pénétrerait.
 
@@ -64,7 +64,7 @@ Une demi-baguette d'encens plus tard, Treize ouvrit lentement les yeux. Il conte
 
 Cette douleur ne venait pas de son corps, mais de son cœur.
 
-Dès son réveil, il comprit immédiatement qu'il n'y avait plus une trace d'énergie spirituelle démoniaque en lui ; il se sentait même plus faible qu'avant d'avoir commencé sa culture.
+Dès son réveil, il comprit immédiatement qu'il n'y avait plus une trace d'énergie spirituelle démoniaque en lui ; il se sentait même plus faible qu'avant d'avoir commencé sa cultivation.
 
 Wang Lin n'avait toujours pas ouvert les yeux. Treize resta agenouillé un long moment avant de s'incliner trois fois. Puis, il partit sans même un regard en arrière.
 
@@ -122,7 +122,7 @@ Wang Lin tendit la main et déplaça la masse terrestre de cinq kilomètres vers
 
 « Ouvrez la formation ! » Le regard de Wang Lin était impitoyable alors qu'il contemplait le terrain qui avait été raffiné jusqu'au bord de l'effondrement.
 
-Le vieillard en robe grise tremblait de tout son corps. Il n'avait jamais imaginé que Wang Lin tuerait si facilement l'homme en blanc. Sa puissance de culture était bien supérieure à ce qu'il avait supposé. Il abandonna instantanément toute idée de vengeance, n'osant offenser un être d'une telle force.
+Le vieillard en robe grise tremblait de tout son corps. Il n'avait jamais imaginé que Wang Lin tuerait si facilement l'homme en blanc. Sa puissance de cultivation était bien supérieure à ce qu'il avait supposé. Il abandonna instantanément toute idée de vengeance, n'osant offenser un être d'une telle force.
 
 À cet instant, que la formation soit ouverte ou non n'avait plus d'importance. Il poussa un soupir et traça un symbole de la main. Par ce geste, la formation protégeant la zone disparut.
 

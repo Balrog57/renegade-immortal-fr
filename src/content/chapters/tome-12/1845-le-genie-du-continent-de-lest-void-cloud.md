@@ -16,7 +16,7 @@ Wang Lin sortit lentement des flots. Il était d'un calme olympien et sa robe bl
 
 Wang Lin leur adressa un signe de tête avant que son regard ne balaie les deux cultivateurs du Continent du Démon Vert.
 
-Le cultivateur nommé Qian était animé d'une soif de sang intense. Il ne considérait pas Wang Lin comme une menace, car son niveau de culture n'était que celui du sommet du Vide Spirituel. Cela ne suffisait pas pour constituer un danger, il n'avait qu'à se méfier de la capacité de Wang Lin à dissimuler sa présence.
+Le cultivateur nommé Qian était animé d'une soif de sang intense. Il ne considérait pas Wang Lin comme une menace, car son niveau de cultivation n'était que celui du sommet du Vide Spirituel. Cela ne suffisait pas pour constituer un danger, il n'avait qu'à se méfier de la capacité de Wang Lin à dissimuler sa présence.
 
 « Cet homme doit être doué pour se cacher ; autrement, il ne pourrait pas apparaître ici sans que je m'en aperçoive ! » ricana Qian. Loin de ralentir, il fonça encore plus rapidement vers Wang Lin.
 
@@ -34,7 +34,7 @@ Un contraste frappant s'opéra entre lui et le cultivateur Qian : l'un fuyait ta
 
 « Tu cherches la mort ! » ricana Wang Lin. Alors que Qian se rapprochait, Wang Lin agita la main et une brume noire se propagea. Un rugissement retentit et la Poupée Yi Si apparut. Sa langue écarlate jaillit de la brume et, arborant un sourire cruel, elle bondit sur le cultivateur Qian.
 
-La culture de ce dernier était extraordinaire, mais comparée à celle de la Poupée Yi Si, elle n'était rien, comme la différence entre le ciel et la terre !
+La cultivation de ce dernier était extraordinaire, mais comparée à celle de la Poupée Yi Si, elle n'était rien, comme la différence entre le ciel et la terre !
 
 À l'instant où Yi Si surgit, les yeux de Qian s'écarquillèrent. Trempé de sueur, il fut saisi par une crise de vie ou de mort imminente. Son corps se déforma alors qu'il changeait brusquement de direction pour tenter de s'échapper.
 
@@ -64,7 +64,7 @@ Après un long moment, une lueur d'intention meurtrière traversa le regard de l
 
 Void Cloud, l'un des quatre génies du Continent de l'Est ! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait fréquenter n'importe quelle secte pour y apprendre leurs sorts. Il était le Frère Aîné de tous les disciples du Continent du Démon Vert !
 
-« On dit que le Frère Aîné Void Cloud est allé dans le Continent Nord pour rejoindre la secte du Grand Empereur Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra ! » Le jeune homme au visage de jade était transporté par l'excitation.
+« On dit que le Frère Aîné Void Cloud est allé dans le Continent Nord pour rejoindre la secte du Grand Empereur Wu Feng afin d'étudier le Dao. Sa cultivation est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra ! » Le jeune homme au visage de jade était transporté par l'excitation.
 
 Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si dévora la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
 
@@ -74,7 +74,7 @@ Yi Si, surpris, fixa Wang Lin d'un regard farouche.
 
 « J'aurai encore usage de cette personne ! » Wang Lin regarda la poupée d'un air calme, mais empreint d'une intention meurtrière monstrueuse. Les rugissements d'Yi Si s'atténuèrent sous son regard. Elle baissa la tête et cessa de grogner.
 
-À mesure que le niveau de culture de Wang Lin augmentait, son empreinte sur Yi Si devenait plus profonde. À moins d'être poussée dans ses derniers retranchements, elle ne pourrait plus désobéir à ses ordres.
+À mesure que le niveau de cultivation de Wang Lin augmentait, son empreinte sur Yi Si devenait plus profonde. À moins d'être poussée dans ses derniers retranchements, elle ne pourrait plus désobéir à ses ordres.
 
 « Trois vieux amis, cela faisait des années que nous ne nous étions pas vus. Je ne m'attendais pas à vous retrouver ici... » Wang Lin se tourna vers le Tigre Blanc et les autres qui affichaient des expressions complexes. Il joignit les mains et sourit.
 

@@ -16,7 +16,7 @@ Que ce soit le Patriarche du Dragon Armuré, le vieil homme du Clan de l'Hironde
 
 Après tout, l'ennemi auquel Wang Lin faisait face était Maître Simo !
 
-Cependant, à ces mots, les yeux de Wang Lin brillèrent d'un éclat vif. Avant même que l'écho du « un » ne se dissipe, Wang Lin agita la main et libéra toute sa culture !
+Cependant, à ces mots, les yeux de Wang Lin brillèrent d'un éclat vif. Avant même que l'écho du « un » ne se dissipe, Wang Lin agita la main et libéra toute sa cultivation !
 
 L'End of Time était un sort que Maître Simo avait lui-même compris à partir de la Restriction Temporelle, tout comme le Temps Fluide de Wang Lin ! Dès qu'il utilisa ce sort, une tempête éclata au cœur des Restrictions Temporelles.
 
@@ -26,7 +26,7 @@ D'innombrables fissures apparurent sur la terre et s'étendirent comme si le sol
 
 Au moment où le monde bascula, le vortex formé par la Restriction Temporelle emporta tout sur son passage et chargea vers Wang Lin avec une aura destructrice inimaginable !
 
-À cet instant, l'écho du mot « un » résonnait encore puissamment. Toute la culture de Wang Lin explosa et une lumière intense jaillit de son corps. À ses yeux, tout dans le monde rayonnait et convergeait vers lui pour former une immense silhouette lumineuse.
+À cet instant, l'écho du mot « un » résonnait encore puissamment. Toute la cultivation de Wang Lin explosa et une lumière intense jaillit de son corps. À ses yeux, tout dans le monde rayonnait et convergeait vers lui pour former une immense silhouette lumineuse.
 
 Bouclier d'Ombre et de Lumière !
 
@@ -106,13 +106,13 @@ Une pilule dorée de la taille d'un ongle surgit du vide et fonça vers Maître 
 
 Sans attendre que la pilule ne soit plus proche, Wang Lin rugit sans hésiter : « Explose ! »
 
-Dans son rugissement, un fracas assourdissant retentit, semblable à l'explosion d'une planète de culture. L'onde de choc se propagea au loin avec une force destructrice ! Maître Simo était trop près et cracha de nouveau du sang. La terreur se lut dans ses yeux !
+Dans son rugissement, un fracas assourdissant retentit, semblable à l'explosion d'une planète de cultivation. L'onde de choc se propagea au loin avec une force destructrice ! Maître Simo était trop près et cracha de nouveau du sang. La terreur se lut dans ses yeux !
 
 Il ne s'attendait pas à ce que Wang Lin possède un tel trésor. Lorsqu'il fut frappé par l'explosion de la pilule, il eut l'impression que sa chair allait être arrachée et que même ses os allaient voler en éclats.
 
 Si ce n'était le fait que son corps original était au troisième pas, lui permettant d'avoir accumulé suffisamment de ressources pour affiner un corps quasi invincible, un cultivateur ordinaire serait mort depuis longtemps.
 
-Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas et aide à accroître sa culture.
+Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas et aide à accroître sa cultivation.
 
 Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fit un pas en avant et agita la main droite. Les Cristaux de Mutation du Feu Ardant qu'il avait raffinés furent projetés.
 

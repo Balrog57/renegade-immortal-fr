@@ -38,7 +38,7 @@ L'intendant fixa Wang Lin d'un regard profond. Sa sous-estimation initiale du je
 
 Il esquissa un léger sourire et déclara : « Je vous prie de m'excuser pour ce dérangement, Commandant Wang. Je vais rapporter ces faits au Seigneur Général. Ceux qui ont osé se révolter méritaient ce sort ! »
 
-Tout en parlant, il joignit les mains en signe de respect avant de s'éloigner. Le vieil homme fit de même et ajouta : « La culture du Commandant Wang est prodigieuse, je suis impressionné ! »
+Tout en parlant, il joignit les mains en signe de respect avant de s'éloigner. Le vieil homme fit de même et ajouta : « La cultivation du Commandant Wang est prodigieuse, je suis impressionné ! »
 
 Une fois les deux hommes partis, Sima Yan resta pensif un long moment avant de dire respectueusement à Wang Lin : « J'ai fait preuve d'imprudence dans cette affaire. J'espère que le Commandant ne m'en tiendra pas rigueur ! »
 
@@ -50,7 +50,7 @@ L'issue de ce conflit était décidée d'avance. Les personnes présentes n'éta
 
 Tout aurait été simple si ce nouveau commandant s'était contenté de ne rien faire, mais lorsqu'il agissait, il frappait avec la rapidité de l'éclair. Si ces luttes intestines persistaient, le sort du chef de régiment Sun risquait de se répéter !
 
-De plus, à en juger par le niveau de culture du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
+De plus, à en juger par le niveau de cultivation du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
 
 Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa d'un pouce !
 
@@ -90,7 +90,7 @@ Elle prit une profonde inspiration et se leva. Après avoir scruté ses environs
 
 En contemplant la boussole, elle afficha une expression d'hésitation.
 
-« J'ai tenté d'atteindre ce lieu trois fois, et à chaque fois, j'ai été stoppée au même endroit. Père a dit que pour y pénétrer, ma culture doit d'abord atteindre le stade Ascendant... Selon son plan, je resterai ici jusqu'à ce que j'absorbe suffisamment d'énergie spirituelle démoniaque pour franchir le stade Ascendant ; avec l'aide des Pilules de l'Âme Sanguine, j'ai 80 % de chances de réussir. Cependant, ce jeton est apparu de manière inattendue lors de la marée... »
+« J'ai tenté d'atteindre ce lieu trois fois, et à chaque fois, j'ai été stoppée au même endroit. Père a dit que pour y pénétrer, ma cultivation doit d'abord atteindre le stade Ascendant... Selon son plan, je resterai ici jusqu'à ce que j'absorbe suffisamment d'énergie spirituelle démoniaque pour franchir le stade Ascendant ; avec l'aide des Pilules de l'Âme Sanguine, j'ai 80 % de chances de réussir. Cependant, ce jeton est apparu de manière inattendue lors de la marée... »
 
 Les sourcils délicats de Yao Xixue se froncèrent tandis qu'elle méditait, boussole en main.
 

@@ -18,13 +18,13 @@ Il se transforma en un rayon de lumière, quitta la Montagne de l'Affinement des
 
 Sur son chemin, une femme d'une grande élégance l'observait calmement depuis le flanc de la Montagne de l'Affinement des Âmes. Elle poussa un soupir et murmura : « Sa récupération est tout simplement trop rapide... Si je veux laisser mon ombre dans son Dao cœur, je dois découvrir ce qu'est son Dao cœur... Cependant, malgré nos interactions, je n'ai pas réussi à percer son mystère. Grand frère aîné Wang, quel est donc ton véritable Dao cœur... »
 
-Wang Lin atterrit sur la Montagne d'Extraction des Âmes et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de culture était le plus élevé après le Grand Ancien, Su Jinshi !
+Wang Lin atterrit sur la Montagne d'Extraction des Âmes et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de cultivation était le plus élevé après le Grand Ancien, Su Jinshi !
 
 Dès que la silhouette de Wang Lin apparut, Su Jinshi, qui était en pleine méditation, ouvrit les yeux et afficha une expression disgracieuse.
 
 Wang Lin se tint à l'intérieur de la demeure de Su Jinshi, observa les lieux et demanda calmement : « Possédez-vous le jade d'extraction des âmes ? »
 
-Su Jinshi réfléchit un instant et hocha la tête. Il ne parvenait pas à sonder le niveau de culture de cet homme, qu'il n'avait jamais vu auparavant, mais il pouvait déduire par ses vêtements que celui-ci appartenait à la Montagne de l'Affinement des Âmes.
+Su Jinshi réfléchit un instant et hocha la tête. Il ne parvenait pas à sonder le niveau de cultivation de cet homme, qu'il n'avait jamais vu auparavant, mais il pouvait déduire par ses vêtements que celui-ci appartenait à la Montagne de l'Affinement des Âmes.
 
 Au sein de la Secte de l'Affinement des Âmes, les disciples des trois montagnes étaient autorisés à interagir entre eux. Si l'on possédait les capacités nécessaires, on pouvait apprendre les trois techniques à sa guise.
 
@@ -32,7 +32,7 @@ Su Jinshi s'était rendu à la Montagne de l'Affinement des Âmes il y a de nomb
 
 Su Jinshi serra les dents et déclara : « Je peux te donner le jade d'extraction des âmes, mais il me manque 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
 
-Wang Lin regarda Su Jinshi. Vu son niveau de culture, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de dix mille âmes qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
+Wang Lin regarda Su Jinshi. Vu son niveau de cultivation, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de dix mille âmes qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
 
 Wang Lin tendit la main gauche et les 300 fragments se transformèrent en une perle noire, qu'il dirigea vers Su Jinshi.
 
@@ -48,7 +48,7 @@ Quant à la dernière, le poison de l'âme, c'était la plus vicieuse et la plus
 
 Le poison de l'âme utilisait une méthode mystérieuse pour transformer une âme vivante en un venin capable de tuer silencieusement. Une fois suffisamment raffinée, elle se transformait en une âme empoisonnée dotée de la puissance d'un cultivateur au stade de la Formation du Noyau.
 
-Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Secte de l'Affinement des Âmes avait trahi son ordre pour s'enfuir. Grâce à cette méthode, il devint invincible dans un pays de culture de rang 4 et fonda sa propre secte : la Secte des Pilules Démoniaques.
+Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Secte de l'Affinement des Âmes avait trahi son ordre pour s'enfuir. Grâce à cette méthode, il devint invincible dans un pays de cultivation de rang 4 et fonda sa propre secte : la Secte des Pilules Démoniaques.
 
 Cet homme utilisait une méthode occulte pour raffiner l'âme empoisonnée en une pilule, puis y injectait une aura mortelle pour la transformer en un noyau vert. Il nomma cela la Méthode du Noyau Vert, ce qui lui permit d'atteindre le stade de la Formation de l'Âme. Il était considéré comme un génie de son temps.
 
@@ -96,7 +96,7 @@ Alors que Wang Lin se tenait au sommet du Qilin, celui-ci hésita un instant mai
 
 Wang Lin lui jeta un regard et hurla : « Dégagez !!! »
 
-Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa culture au stade de la Formation de l'Âme ; il ne lui manquait que son domaine. Ayant combattu Red Butterfly, sa force de culture surpassait celle de la plupart des gens. Cette femme n'était qu'au début du stade de la Formation de l'Âme ; bien qu'il ne puisse prétendre la tuer sans difficulté, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
+Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa cultivation au stade de la Formation de l'Âme ; il ne lui manquait que son domaine. Ayant combattu Red Butterfly, sa force de cultivation surpassait celle de la plupart des gens. Cette femme n'était qu'au début du stade de la Formation de l'Âme ; bien qu'il ne puisse prétendre la tuer sans difficulté, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
 
 Il y avait un abîme entre celui qui avait déjà tué des adversaires de même niveau et celui qui ne l'avait jamais fait.
 

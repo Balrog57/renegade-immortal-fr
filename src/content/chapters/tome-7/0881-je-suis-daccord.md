@@ -52,7 +52,7 @@ Qing Shui regarda Wang Lin, puis l'Âme Naissante au creux de sa paume, une poin
 
 Lorsque le vieil homme Xiang aperçut l'Âme Naissante de Li Muwan, son sourire se figea. Il fronça lentement les sourcils et demanda : « Depuis combien de temps cette Âme Naissante dort-elle ? »
 
-Wang Lin prit une profonde inspiration. À cet instant, la détermination acquise au cours de ses mille ans de culture était d'une fragilité extrême. Réprimant le tremblement de son esprit, il répondit doucement : « Près de sept cents ans. »
+Wang Lin prit une profonde inspiration. À cet instant, la détermination acquise au cours de ses mille ans de cultivation était d'une fragilité extrême. Réprimant le tremblement de son esprit, il répondit doucement : « Près de sept cents ans. »
 
 Le vieil homme Xiang hocha légèrement la tête et dit : « Il semble que tu aies déployé des efforts colossaux pour préserver cette Âme Naissante pendant sept cents ans. Cependant... sept cents ans, c'est trop long. Comment un cultivateur d'Âme Naissante peut-il survivre ainsi ? Sans parler du fait qu'elle a perdu son enveloppe charnelle et qu'il ne reste que son âme ! »
 
@@ -80,7 +80,7 @@ Le vieil homme Xiang réfléchit en silence. Après un long moment, il finit par
 
 Le corps de Wang Lin trembla comme si des dizaines de milliers d'éclairs avaient explosé en lui. À cet instant, toute son énergie se concentra dans son regard alors qu'il fixait le vieil homme Xiang.
 
-« Cependant, le prix de cette méthode est exorbitant. La raison pour laquelle cette femme ne peut survivre est que sa longévité est épuisée. Si tu peux substituer sa propre longévité, il y aurait une chance. Ce sort se nomme le Sort Qixi. Toutefois, je suis incapable de l'utiliser ; seul l'Ancêtre, qui est en culture de porte close, peut le pratiquer. »
+« Cependant, le prix de cette méthode est exorbitant. La raison pour laquelle cette femme ne peut survivre est que sa longévité est épuisée. Si tu peux substituer sa propre longévité, il y aurait une chance. Ce sort se nomme le Sort Qixi. Toutefois, je suis incapable de l'utiliser ; seul l'Ancêtre, qui est en cultivation de porte close, peut le pratiquer. »
 
 « Xu Mu, je dois t'avertir : utiliser le Sort Qixi requiert la force vitale de quelqu'un de très proche de cette femme. C'est la seule façon d'éviter tout rejet. Cependant, celui qui offre sa vie verra sa propre longévité diminuée. Et cette réduction n'est pas équitable. Tu devras renoncer à 90 % de ta vie pour une infime chance qu'elle se rétablisse. »
 
@@ -98,7 +98,7 @@ Wang Lin regarda la sphère de restriction dans sa main. Son regard semblait vou
 
 Sa voix était légèrement rauque. Son regard semblait traverser la sphère pour se poser sur Li Muwan. Une vague de tristesse envahit l'espace. Li Muwan parut entendre sa voix ; son corps trembla doucement et elle tenta d'ouvrir les yeux, mais elle n'en avait pas la force, ne ressentant qu'une fatigue et une mélancolie infinies.
 
-Wang Lin savait que la longévité découlait de la vitalité. Plus la vitalité est puissante, plus la vie est longue. Lorsque le niveau de culture d'un être augmente, sa vitalité croît également. C'était la raison pour laquelle les puissants cultivateurs possédaient une existence séculaire.
+Wang Lin savait que la longévité découlait de la vitalité. Plus la vitalité est puissante, plus la vie est longue. Lorsque le niveau de cultivation d'un être augmente, sa vitalité croît également. C'était la raison pour laquelle les puissants cultivateurs possédaient une existence séculaire.
 
 Le vieil homme Xiang hocha la tête et dit : « Puisque tu acceptes, une fois le don céleste achevé, suis-moi vers la planète Dong Lin ! »
 

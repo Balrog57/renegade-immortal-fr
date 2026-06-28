@@ -14,7 +14,7 @@ Huit étoiles ternes ornaient son front ; mais alors que ses yeux s'ouvraient et
 
 Un grondement tonnerreux résonna à travers toute la faille spatiale. Ce son était bien plus puissant que le tonnerre, mais si l'on tendait l'oreille, on percevrait qu'il s'agissait du bruit d'os se frottant les uns contre les autres.
 
-Son corps avait la taille de plusieurs planètes de culture, et une telle planète n'était qu'un jouet face à lui. L'Ancien Dieu se redressa lentement. La distance que ce géant parcourut simplement pour se lever aurait nécessité plusieurs heures à un cultivateur ignorant la Manipulation Spatiale pour être franchie...
+Son corps avait la taille de plusieurs planètes de cultivation, et une telle planète n'était qu'un jouet face à lui. L'Ancien Dieu se redressa lentement. La distance que ce géant parcourut simplement pour se lever aurait nécessité plusieurs heures à un cultivateur ignorant la Manipulation Spatiale pour être franchie...
 
 Wang Lin fixait le gigantesque Ancien Dieu devant lui. À l'instant où celui-ci se redressa, une bourrasque de vent s'abattit sur lui, projetant Wang Lin et tous ceux qui l'entouraient en arrière. Seul le vieil homme en noir restait immobile, fixant l'horizon d'un regard empreint de mystère.
 
@@ -22,21 +22,21 @@ Comparés à l'Ancien Dieu, ces cultivateurs n'étaient que des fourmis.
 
 « Je suis l'Ancien Dieu Tuo Sen ! » Une voix impérieuse résonna, faisant craquer l'espace environnant. Les huit rois de la Secte des Cadavres pâlirent et tentèrent de battre en retraite, mais toute tentative de fuite était dérisoire face à l'immensité de l'Ancien Dieu.
 
-« Ceci... ceci est un dieu... » L'expression de Maître Flamespark devint livide alors qu'il contemplait le corps inimaginablement colossal de la divinité. Même avec son niveau de culture, il ne ressentait qu'un profond sentiment d'impuissance.
+« Ceci... ceci est un dieu... » L'expression de Maître Flamespark devint livide alors qu'il contemplait le corps inimaginablement colossal de la divinité. Même avec son niveau de cultivation, il ne ressentait qu'un profond sentiment d'impuissance.
 
-Wang Lin possédait le niveau de culture le plus bas. Bien qu'il n'ait pas craché de sang, des craquements sinistres résonnaient dans son corps. De nouvelles fissures apparurent, et celle sur sa poitrine perça son buste. Son regard devint vacant, son âme originelle était blessée, et son corps montrait des signes de pétrification.
+Wang Lin possédait le niveau de cultivation le plus bas. Bien qu'il n'ait pas craché de sang, des craquements sinistres résonnaient dans son corps. De nouvelles fissures apparurent, et celle sur sa poitrine perça son buste. Son regard devint vacant, son âme originelle était blessée, et son corps montrait des signes de pétrification.
 
-Les cultivateurs au stade du Briseur de Nirvana avaient également pénétré le vortex. Grâce à leur niveau de culture, ils n'étaient pas affectés par la loi du temps, mais leurs esprits étaient sur le point de s'effondrer. La voix provoquait l'instabilité de leurs âmes originelles tandis que le grondement tonnerreux résonnait dans leurs oreilles.
+Les cultivateurs au stade du Briseur de Nirvana avaient également pénétré le vortex. Grâce à leur niveau de cultivation, ils n'étaient pas affectés par la loi du temps, mais leurs esprits étaient sur le point de s'effondrer. La voix provoquait l'instabilité de leurs âmes originelles tandis que le grondement tonnerreux résonnait dans leurs oreilles.
 
 Le regard de l'Ancien Dieu qui se redressait devint glacial, et la deuxième étoile s'illumina. Si l'on avait regardé de plus près, on aurait pu percevoir quelque chose d'unique au cœur de cette étoile...
 
-Il observa les cultivateurs flottant devant lui et leva la main pour les chasser, comme un mortel tenterait de chasser des mouches. Sa main avait la taille de planètes de culture, et lorsqu'il la déplaça, le vent généré transportait une puissance invincible.
+Il observa les cultivateurs flottant devant lui et leva la main pour les chasser, comme un mortel tenterait de chasser des mouches. Sa main avait la taille de planètes de cultivation, et lorsqu'il la déplaça, le vent généré transportait une puissance invincible.
 
 C'était comme si la distance n'avait aucune existence pour l'Ancien Dieu. Il ne lui fallut qu'un instant pour lever son bras droit et l'agiter. Pourtant, pour tous les cultivateurs, cette main occupa soudainement tout leur champ de vision.
 
 Rumble, rumble, rumble, rumble !
 
-Avant même que le rugissement assourdissant ne parvienne à leurs oreilles, la main était déjà là. La vitesse du mouvement était indescriptible. Le cultivateur au stade du Briseur de Nirvana situé devant lui ne pouvait s'échapper ; il activa donc toute sa puissance et déploya des couches de protection. Au moment même où des dizaines de milliers de couches de protection apparurent, il recula, tentant d'encaisser un dommage sérieux pour espérer résister à cette main de la taille d'une planète de culture.
+Avant même que le rugissement assourdissant ne parvienne à leurs oreilles, la main était déjà là. La vitesse du mouvement était indescriptible. Le cultivateur au stade du Briseur de Nirvana situé devant lui ne pouvait s'échapper ; il activa donc toute sa puissance et déploya des couches de protection. Au moment même où des dizaines de milliers de couches de protection apparurent, il recula, tentant d'encaisser un dommage sérieux pour espérer résister à cette main de la taille d'une planète de cultivation.
 
 Le bras s'approcha et percuta la couche protectrice du cultivateur. Ces dizaines de milliers de protections furent aussi fragiles qu'une fine feuille de papier face au bras de l'Ancien Dieu !
 
@@ -82,7 +82,7 @@ Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur so
 
 « Enterrer le vide pour affiner les étoiles ! »
 
-« Inutile ! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Manipulation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
+« Inutile ! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Manipulation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de cultivation s'écrasant sur lui.
 
 Le visage du vieil homme devint à nouveau pourpre et ses vêtements gonflèrent. Il écarta ses bras gauche et droit dans un rugissement, faisant condenser une énergie originelle infinie devant lui. Des glaciers apparurent soudainement, suivis d'une mer de flammes. Puis, par-delà cela, d'innombrables montagnes surgirent, suivies d'un tonnerre infini...
 

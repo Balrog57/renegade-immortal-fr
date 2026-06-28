@@ -70,7 +70,7 @@ Pourtant, les deux épées ne se touchèrent pas réellement ; elles restèrent 
 
 De vastes éclairs se dispersèrent dans toutes les directions.
 
-Une puissance colossale était concentrée dans cet espace de sept pouces. Le Clairvoyant hocha la tête et dit lentement : « Pas mal, votre culture a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
+Une puissance colossale était concentrée dans cet espace de sept pouces. Le Clairvoyant hocha la tête et dit lentement : « Pas mal, votre cultivation a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
 
 Ling Tianhou ricana en agitant sa manche, les bras grands ouverts. Il cria : « Moi, Ling Tianhou, je ne cultive que le Dao des épées ! Ces dernières années, j'ai atteint l'éveil dans la loi des lames. Robe Grise, j'ignore pourquoi tu acceptes d'être manipulé par lui, mais ton apparition ici signifie que tu as renoncé à notre amitié passée ! »
 

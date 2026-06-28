@@ -2,7 +2,7 @@
 n: 1044
 title: Confusion
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1044 - Confusion
 slug: confusion
 ---
@@ -34,7 +34,7 @@ Le tumulte atteignit son paroxysme lorsque « Invoquer la Pluie » s'abattit dan
 
 La plupart des débris rocheux tombant du gouffre furent transpercés par les gouttes de pluie, provoquant des sifflements stridents et d'importantes émanations gazeuses.
 
-Cela pouvait paraître impressionnant, mais ce n'était pas encore suffisant pour illustrer le niveau actuel de la culture de Wang Lin, au sommet du stade Nirvana Scryer. Lorsqu'il était au stade intermédiaire du Nirvana Scryer, ses sorts possédaient déjà une certaine puissance ; désormais qu'il avait atteint l'apogée de ce stade, il pouvait révéler la véritable force des sortilèges que Bai Fan affectionnait tant.
+Cela pouvait paraître impressionnant, mais ce n'était pas encore suffisant pour illustrer le niveau actuel de la cultivation de Wang Lin, au sommet du stade Nirvana Scryer. Lorsqu'il était au stade intermédiaire du Nirvana Scryer, ses sorts possédaient déjà une certaine puissance ; désormais qu'il avait atteint l'apogée de ce stade, il pouvait révéler la véritable force des sortilèges que Bai Fan affectionnait tant.
 
 Après l'usage d'« Invoquer la Pluie », la chute des innombrables gouttes poussa l'effondrement du gouffre à son point de rupture. Les grondements incessants continuèrent alors que d'innombrables roches s'engouffraient pour tenter de combler le vide !
 

@@ -26,7 +26,7 @@ Ce fut la première véritable confrontation entre Wang Lin et Tuo Sen !
 
 Tuo Sen fut stoppé, mais une partie de son coup de poing parvint tout de même à passer. Il se transforma en tempête et fondit sur le corps de dix mille pieds de Wang Lin.
 
-Dès l'impact, le bras de Wang Lin se dressa pour bloquer l'attaque. Toute sa puissance d'Ancien Dieu afflua pour repousser le coup. Wang Lin eut la sensation d'être frappé par une planète entière de culture et cracha du sang. Il recula jusqu'à heurter une statue d'Ancien Dieu.
+Dès l'impact, le bras de Wang Lin se dressa pour bloquer l'attaque. Toute sa puissance d'Ancien Dieu afflua pour repousser le coup. Wang Lin eut la sensation d'être frappé par une planète entière de cultivation et cracha du sang. Il recula jusqu'à heurter une statue d'Ancien Dieu.
 
 Des fissures commencèrent à se propager là où Wang Lin avait percuté la statue. Une immense quantité d'aura d'Ancien Dieu s'en échappa pour pénétrer le corps de Wang Lin, guérissant instantanément ses blessures physiques.
 
@@ -36,7 +36,7 @@ Une aura antique emplissait le monde. C'étaient les sept âmes planétaires que
 
 « Tuo Sen ! » rugit Wang Lin en lançant son coup de poing. Les sept âmes planétaires volèrent avec une force prodigieuse vers Tuo Sen, qui marqua un temps d'arrêt !
 
-En leur vol, sept phantoms géants de planètes de culture apparurent. C'était comme si Wang Lin contrôlait sept planètes massives pour les projeter sur Tuo Sen !
+En leur vol, sept phantoms géants de planètes de cultivation apparurent. C'était comme si Wang Lin contrôlait sept planètes massives pour les projeter sur Tuo Sen !
 
 L'expression de Tuo Sen devint sombre. Lors de la Formation du Royaume Scellé, il avait fait exploser une étoile, et dans la bataille qui venait de se dérouler, il en avait fait exploser une autre. Il ne lui restait plus que six étoiles !
 
@@ -52,7 +52,7 @@ Après tout, Wang Lin n'avait obtenu que l'héritage de la mémoire, tandis que 
 
 « Une fois que nous fusionnerons, ce dieu atteindra le sommet que j'ai touché par le passé. Tu... ne peux pas résister à cela ! » rugit Tuo Sen avant de s'élancer. Il agita la main et lança un coup de poing vers les sept phantoms planétaires.
 
-« Fusionne avec moi pour que nous atteignions l'apogée de ma puissance royale d'Ancien Dieu. Pourquoi... ne m'obéis-tu pas ?! » hurla Tuo Sen alors que son poing percutait les sept planètes de culture.
+« Fusionne avec moi pour que nous atteignions l'apogée de ma puissance royale d'Ancien Dieu. Pourquoi... ne m'obéis-tu pas ?! » hurla Tuo Sen alors que son poing percutait les sept planètes de cultivation.
 
 Des grondements tonitruants résonnèrent. À chaque collision, le rugissement de Tuo Sen devenait plus fracassant encore, comme si rien au monde ne pouvait entraver sa progression. Les sept âmes planétaires tremblaient violemment, sur le point de s'effondrer.
 

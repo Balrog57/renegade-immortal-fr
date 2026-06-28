@@ -12,9 +12,9 @@ Chapitre 1763 - Embuscade !
 
 Au même instant, le parapluie se referma brusquement. Des cris déchirants résonnèrent ; on ignorait combien de personnes venaient de périr.
 
-L'esprit des trois généraux trembla et du sang jaillit du coin de leurs lèvres. Ils mobilisèrent toute leur culture pour résister à la puissance des flammes, se déplaçant à pleine vitesse pour tenter d'échapper à cette mer de feu.
+L'esprit des trois généraux trembla et du sang jaillit du coin de leurs lèvres. Ils mobilisèrent toute leur cultivation pour résister à la puissance des flammes, se déplaçant à pleine vitesse pour tenter d'échapper à cette mer de feu.
 
-Le Taoïste aux Sept Couleurs et le Vieux Fantôme Zhan affichaient tous deux un visage sombre. Même eux devaient déployer des efforts considérables pour contrer ce brasier. Après tout, bien que leur niveau de culture fût élevé, leurs corps n'étaient pas comparables à ceux des Êtres Anciens.
+Le Taoïste aux Sept Couleurs et le Vieux Fantôme Zhan affichaient tous deux un visage sombre. Même eux devaient déployer des efforts considérables pour contrer ce brasier. Après tout, bien que leur niveau de cultivation fût élevé, leurs corps n'étaient pas comparables à ceux des Êtres Anciens.
 
 Le Taoïste aux Sept Couleurs avait hérité des sorts du Souverain Céleste aux Sept Couleurs, ce qui incluait le Parapluie Brûlant le Royaume. Bien qu'il fût différent de celui utilisé par Wang Lin, personne ici ne le maîtrisait mieux que lui. À cet instant, il laissa échapper un rugissement et s'élança hors de la mer de flammes, chargeant Wang Lin avec une intention meurtrière !
 
@@ -44,7 +44,7 @@ Dans un mouvement violent, la Hache Divisant le Ciel vola vers le Taoïste aux S
 
 Les yeux du Vieux Fantôme Zhan s'illuminèrent d'avidité. Tandis que le corps originel de Wang Lin maniait la hache, il chargea vers la troisième âme avant même que Wang Lin ne puisse réagir !
 
-Cependant, Wang Lin avait préparé sept embuscades ; comment aurait-il pu laisser le Vieux Fantôme Zhan agir à sa guise ? Bien qu'il ne pût égaler la culture du Vieux Fantôme Zhan, il avait ses pièges. Dès que ce dernier fut à moins de 1 000 pieds, la main gauche de Wang Lin traça un sceau et pointa en avant.
+Cependant, Wang Lin avait préparé sept embuscades ; comment aurait-il pu laisser le Vieux Fantôme Zhan agir à sa guise ? Bien qu'il ne pût égaler la cultivation du Vieux Fantôme Zhan, il avait ses pièges. Dès que ce dernier fut à moins de 1 000 pieds, la main gauche de Wang Lin traça un sceau et pointa en avant.
 
 « La quatrième embuscade : Voile de Sang Fantomatique ! »
 

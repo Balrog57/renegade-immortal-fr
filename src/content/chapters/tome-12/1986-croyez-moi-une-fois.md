@@ -12,9 +12,9 @@ Chapitre 1986 - Croyez-moi une fois !
 
 Il observa l'Enseignant Impérial au-dessus de l'autel. Ses propos étaient un mélange de vérité et de mensonge. Cependant, Wang Lin était certain que ce prétendu héritage ne serait pas si simple !
 
-Wang Lin fixa l'Enseignant Impérial et dit lentement : « Je me demande comment vous souhaitez que je coopère afin d'obtenir la culture de l'Ancêtre Céleste ? De plus, la rumeur veut que l'Ancêtre Céleste ait disparu ; on ignore s'il est mort ou vivant. Dans quelle mesure cet héritage peut-il être réalisé ? »
+Wang Lin fixa l'Enseignant Impérial et dit lentement : « Je me demande comment vous souhaitez que je coopère afin d'obtenir la cultivation de l'Ancêtre Céleste ? De plus, la rumeur veut que l'Ancêtre Céleste ait disparu ; on ignore s'il est mort ou vivant. Dans quelle mesure cet héritage peut-il être réalisé ? »
 
-« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyrean Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable !
+« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyrean Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de cultivation augmentera de façon incalculable !
 
 « Sa haine envers vous se transformera en une obsession pour vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et augmenter ses chances de survivre à la douleur de 40 %, lui permettant ainsi d'extraire avec succès tout son propre lignage pour être transformé en celui de l'Ancêtre Céleste !
 
@@ -34,7 +34,7 @@ Wang Lin demanda calmement : « Quelles sont vos exigences ? »
 
 « Si vous ne me croyez pas, je peux prêter serment. Si je viole ce contrat, que je sois détruit ! » Alors que l'Enseignant Impérial parlait, sa dernière phrase apparut dans les airs et la lumière se condensa pour former un sceau complexe. Le sceau flotta un instant avant de disparaître.
 
-L'Enseignant Impérial ajouta rapidement : « Ceci est un serment, et la loi du Continent Astral Immortel en est le témoin. Avec votre niveau de culture, vous pouvez naturellement ressentir si ce serment est authentique ! »
+L'Enseignant Impérial ajouta rapidement : « Ceci est un serment, et la loi du Continent Astral Immortel en est le témoin. Avec votre niveau de cultivation, vous pouvez naturellement ressentir si ce serment est authentique ! »
 
 Wang Lin médita en silence.
 
@@ -62,7 +62,7 @@ Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un lo
 
 « Si le Compagnon Cultivateur Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Astral Immortel. Si le Compagnon Cultivateur Wang les absorbe toutes, les bénéfices seront immenses !
 
-« Peu importe votre niveau de culture, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction ! Un tel niveau suffira à vous placer au sommet ! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme Joss s'en dégageait.
+« Peu importe votre niveau de cultivation, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction ! Un tel niveau suffira à vous placer au sommet ! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme Joss s'en dégageait.
 
 « Cet objet est le cœur de toutes les Flammes Joss fournies par les mondes caverneux du Continent Astral Immortel. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes Joss !
 

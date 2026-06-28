@@ -24,7 +24,7 @@ Qing Lin esquissa un léger sourire tout en observant attentivement ce couple, s
 
 « Maître ! » Le corps de Wang Wei trembla violemment et deux larmes coulèrent de ses yeux. Il avait attendu d'innombrables années le réveil de Qing Lin. Pour que ce moment advienne, il avait vécu pendant des éons dans la Terre des Esprits Démoniaques. Tout cela n'avait qu'un seul but : témoigner sa gratitude à Qing Lin pour l'avoir accepté comme disciple !
 
-Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre raffineur de Qi. C'était son maître qui lui avait offert une nouvelle vie, la chance d'atteindre les sommets de la culture, et une existence empreinte de bonheur.
+Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre raffineur de Qi. C'était son maître qui lui avait offert une nouvelle vie, la chance d'atteindre les sommets de la cultivation, et une existence empreinte de bonheur.
 
 À cet instant, Zhou Yi ouvrit les yeux et fixa Qing Shuang. Son regard mêlait amertume et tristesse, mais surtout, il était empreint de calme.
 
@@ -66,7 +66,7 @@ Les vortex engendrés par l'effondrement semblèrent interrompre leur rotation �
 
 « Reformez-vous, Royaume Céleste ! » La voix de Qing Lin était d'un calme absolu, mais elle résonna avec clarté dans les oreilles de ceux qui l'avaient suivi hors du temple. Wang Wei et Hu Juan tremblèrent, le regardant avec une révérence infinie.
 
-Qing Shuang observait le dos de son père sans aucune émotion apparente. Depuis ses premiers souvenirs, ce père avait été l'épine dorsale du Royaume Céleste de la Pluie. Il n'avait jamais eu de temps pour elle, toujours absorbé par les affaires du royaume ou sa propre culture.
+Qing Shuang observait le dos de son père sans aucune émotion apparente. Depuis ses premiers souvenirs, ce père avait été l'épine dorsale du Royaume Céleste de la Pluie. Il n'avait jamais eu de temps pour elle, toujours absorbé par les affaires du royaume ou sa propre cultivation.
 
 Qing Shuang se souvenait encore très bien de l'effondrement. Le Royaume Céleste de la Pluie avait été bâti par le sang et la sueur de son père. Pourtant, en le voyant s'écrouler, elle n'avait pas ressenti de tristesse, mais plutôt un certain soulagement.
 
@@ -104,7 +104,7 @@ La femme cadavre argentée était assise silencieusement derrière lui. Son rega
 
 Wang Lin restait assis là depuis trois jours. Outre le souvenir de la lumière dorée de Qing Lin, il passait son temps à graver en lui la compréhension qu'il avait acquise au sein de la mer de conscience du maître.
 
-Son niveau de culture n'avait pas progressé après avoir quitté la mer de conscience de Qing Lin ; il était toujours au stade initial du Purificateur de Nirvana. Cependant, une graine s'était formée en son corps. C'était une graine pour la troisième étape, pour la Loi et la poursuite du Dao.
+Son niveau de cultivation n'avait pas progressé après avoir quitté la mer de conscience de Qing Lin ; il était toujours au stade initial du Purificateur de Nirvana. Cependant, une graine s'était formée en son corps. C'était une graine pour la troisième étape, pour la Loi et la poursuite du Dao.
 
 C'était le présent de Qing Lin.
 

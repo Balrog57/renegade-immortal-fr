@@ -16,7 +16,7 @@ Au bas de l'escalier se révélait un monde écarlate ! L'endroit était vaste, 
 
 En regardant autour de lui, il ne pouvait en percevoir les limites. Il s'agissait probablement d'un espace indépendant, situé juste en dessous de la Cité du Démon Céleste.
 
-Dans ce monde, de nombreux bassins de sang jonchaient le sol. De nombreuses personnes se trouvaient dans chacun de ces bassins, les yeux clos, pratiquant leur culture à l'intérieur des eaux sanglantes.
+Dans ce monde, de nombreux bassins de sang jonchaient le sol. De nombreuses personnes se trouvaient dans chacun de ces bassins, les yeux clos, pratiquant leur cultivation à l'intérieur des eaux sanglantes.
 
 Les blessures hideuses sur leurs corps s'agitaient d'une manière étrange.
 
@@ -26,7 +26,7 @@ Wang Lin prit une profonde inspiration ; l'odeur de sang envahit sa bouche, fais
 
 Dès que la moitié de son corps fut immergée dans le sang, une puissante intention meurtrière jaillit du bassin et se propagea à travers lui.
 
-À chaque inspiration, l'intention meurtrière en lui s'intensifiait. À chaque cycle de culture, davantage d'intention meurtrière pénétrait dans son corps depuis le bassin de sang.
+À chaque inspiration, l'intention meurtrière en lui s'intensifiait. À chaque cycle de cultivation, davantage d'intention meurtrière pénétrait dans son corps depuis le bassin de sang.
 
 Peu à peu, les yeux de Wang Lin devinrent rouges, et les cinq filaments d'énergie du massacre sifflèrent comme jamais auparavant.
 

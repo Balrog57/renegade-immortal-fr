@@ -40,7 +40,7 @@ Le corps gigantesque de Lei Ji se mua en une montagne et vola à travers les ét
 
 Ils se rapprochaient de plus en plus de la planète Tian Yun.
 
-Dix jours passèrent. Wang Lin contemplait l'espace familier qui s'étendait devant lui. Il savait que non loin de là se trouvait la zone appartenant au pays de culture de rang 7, Tian Yun. Durant ces dix jours, il avait réfléchi à ce qu'il entreprendrait lors de ce voyage sur la planète Tian Yun. Cependant, il méditait encore davantage sur les sceaux manuels qu'l'Estimé Xuan Bao avait utilisés avec les papillons aux quatre couleurs.
+Dix jours passèrent. Wang Lin contemplait l'espace familier qui s'étendait devant lui. Il savait que non loin de là se trouvait la zone appartenant au pays de cultivation de rang 7, Tian Yun. Durant ces dix jours, il avait réfléchi à ce qu'il entreprendrait lors de ce voyage sur la planète Tian Yun. Cependant, il méditait encore davantage sur les sceaux manuels qu'l'Estimé Xuan Bao avait utilisés avec les papillons aux quatre couleurs.
 
 À l'époque, il les avait mémorisés avec soin, mais peu importe le nombre de fois où il les avait tentés durant ces dix jours, il n'avait rien ressenti.
 
@@ -54,7 +54,7 @@ En marchant, Wang Lin pénétra à nouveau dans la sphère d'influence de la pla
 
 Wang Lin progressait lentement, plongé dans ses pensées.
 
-« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire avec le Dieu du Sang, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister ; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer ! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils !
+« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire avec le Dieu du Sang, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma cultivation était trop faible et je n'avais aucun pouvoir pour résister ; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer ! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils !
 
 « Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage ! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois et pressa la zone entre ses sourcils.
 

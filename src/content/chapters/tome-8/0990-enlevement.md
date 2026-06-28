@@ -24,7 +24,7 @@ Voyant qu'elle était sur le point de franchir les limites du palais, l'expressi
 
 En un instant, Wang Lin apparut là où se trouvait la femme morte, tandis que celle-ci se retrouvait figée au centre de la boussole. La boussole tourna frénétiquement et d'innombrables restrictions enveloppèrent la femme morte. Les restrictions environnantes convergèrent également vers elle.
 
-La femme n'eut pas le réflexe de réagir assez vite, et son niveau de culture ayant considérablement chuté à cause de ses blessures, elle se laissa capturer par les restrictions. Celles-ci la verrouillèrent rapidement, en particulier ses pieds qui semblaient soudés à la boussole ; elle était incapable de faire le moindre mouvement.
+La femme n'eut pas le réflexe de réagir assez vite, et son niveau de cultivation ayant considérablement chuté à cause de ses blessures, elle se laissa capturer par les restrictions. Celles-ci la verrouillèrent rapidement, en particulier ses pieds qui semblaient soudés à la boussole ; elle était incapable de faire le moindre mouvement.
 
 En luttant désespérément, la femme morte se mit à hurler, et son cri strident se propagea lentement.
 
@@ -58,7 +58,7 @@ Pendant que Wang Lin séjournait sur la planète Esprit d'Eau, un événement d'
 
 Cependant, sa réputation n'était guère exemplaire.
 
-En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Nettoyeur de Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
+En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa cultivation de Nettoyeur de Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de cultivation. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
 
 Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, mille cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
 
@@ -72,7 +72,7 @@ Ce groupe imposant était presque exclusivement composé de femmes vêtues de ro
 
 Près de cent femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
 
-Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître : « Senior Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de culture ! »
+Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître : « Senior Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de cultivation ! »
 
 Situ Nan, qui aimait être servi par des femmes, rit et hocha la tête. « Très bien, si tes paroles sont vraies, je ne serai pas avare de ta récompense... Pilule ou sort céleste, à toi de choisir ! »
 
@@ -98,7 +98,7 @@ En creusant davantage, il apprit que Wang Lin était revenu sur la planète Tian
 
 Situ Nan réfléchit et en conclut que si Wang Lin osait revenir, c'est qu'il n'avait rien à craindre ; sa sécurité n'était donc pas un problème. Il trouvait toutefois étrange que le garçon soit si intrépide.
 
-« Le niveau de culture de ce gamin a-t-il augmenté si rapidement ? » Situ Nan chercha longtemps une explication, mais d'après les informations recueillies, le but du retour de Wang Lin devait être la Terre des Esprits Démoniaques !
+« Le niveau de cultivation de ce gamin a-t-il augmenté si rapidement ? » Situ Nan chercha longtemps une explication, mais d'après les informations recueillies, le but du retour de Wang Lin devait être la Terre des Esprits Démoniaques !
 
 Par conséquent, Wang Lin ne s'éloignerait pas et réapparaîtrait sous peu.
 

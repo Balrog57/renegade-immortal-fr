@@ -64,7 +64,7 @@ Le violent contre-coup lui fit pâlir le visage, mais il ne recula pas. Au lieu 
 
 Le tambour résonna encore une fois. Après la troisième résonance, le visage du cultivateur devint extrêmement livide sous l'effet de la puissance qui se retournait contre lui. À chaque coup, il subissait un contre-coup plusieurs fois plus violent que le précédent. Il esquissa un sourire amer avant de reculer sans hésiter, renonçant à frapper davantage.
 
-« Avec ma culture, trois coups sont aisés. Si je m'y mettais vraiment, quatre seraient possibles. Mais si je tentais un cinquième, je serais gravement blessé. La victoire de Mo Fei est déjà acquise, cela ne vaut pas la peine de risquer des blessures sérieuses pour lui ! » Après une courte réflexion, le cultivateur en vert retourna dans la foule.
+« Avec ma cultivation, trois coups sont aisés. Si je m'y mettais vraiment, quatre seraient possibles. Mais si je tentais un cinquième, je serais gravement blessé. La victoire de Mo Fei est déjà acquise, cela ne vaut pas la peine de risquer des blessures sérieuses pour lui ! » Après une courte réflexion, le cultivateur en vert retourna dans la foule.
 
 Onze fois !
 
@@ -76,7 +76,7 @@ Même le visage de Mo Lihai était d'une pâleur extrême. Il regarda amèrement
 
 Parmi les généraux démons se trouvait également Shi Xiao. Le visage sombre, il fixa le tambour et demanda : « Chen Tao, combien de fois peux-tu le faire résonner ? »
 
-Chen Tao réfléchit un instant et répondit : « Si j'étais à pleine puissance, je pourrais dépasser les 10 fois. Je n'en connais pas le nombre exact. Cependant, en ce moment... même avec la pilule, je ne peux que le faire résonner sept fois, ce qui n'est pas supérieur à Mo Fei ! Ce Mo Fei est incroyablement puissant. Dans le monde de la culture, il peut être considéré comme le numéro un juste sous le stade Ascendant ! Même des cultivateurs Ascendants devraient être au stade intermédiaire pour rivaliser avec lui ! »
+Chen Tao réfléchit un instant et répondit : « Si j'étais à pleine puissance, je pourrais dépasser les 10 fois. Je n'en connais pas le nombre exact. Cependant, en ce moment... même avec la pilule, je ne peux que le faire résonner sept fois, ce qui n'est pas supérieur à Mo Fei ! Ce Mo Fei est incroyablement puissant. Dans le monde de la cultivation, il peut être considéré comme le numéro un juste sous le stade Ascendant ! Même des cultivateurs Ascendants devraient être au stade intermédiaire pour rivaliser avec lui ! »
 
 Shi Xiao laissa poindre une intention meurtrière en regardant Mo Fei qui, s'étant retourné, avait fermé les yeux pour cultiver en laissant échapper un renflement de mépris.
 

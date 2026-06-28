@@ -1,8 +1,8 @@
 ---
 n: 931
-title: Pseudo Nirvana Void
+title: Pseudo Nirvana Vide
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 931 - Pseudo Nirvana Void
 slug: pseudo-nirvana-void
 ---
@@ -64,7 +64,7 @@ Un fracas retentit ; les ondulations violentes du coup, combinées à la bourras
 
 Cependant, ces deux forces venaient à peine de commencer leur fusion et n'avaient pas encore révélé leur véritable potentiel. En balayant les cultivateurs de l'Alliance, leurs corps et leurs âmes primitives tremblèrent face à une force mystérieuse et inimaginable. Ils ne purent que reculer, sentant que s'ils ne le faisaient pas, ils mourraient instantanément !
 
-Ils n'avaient jamais rencontré un tel sort en toutes leurs années de culture !
+Ils n'avaient jamais rencontré un tel sort en toutes leurs années de cultivation !
 
 Les yeux de Wang Lin s'illuminèrent et le fourneau de l'Ancien Dieu apparut autour de lui. En un clin d'œil, il échangea sa place avec l'un d'eux.
 

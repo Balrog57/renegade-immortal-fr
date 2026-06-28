@@ -36,7 +36,7 @@ Le sang de l'âme de l'Ancien Ancêtre étant du même niveau que l'héritage du
 
 « Une fois que la lumière dorée aura supprimé son corps, je pourrai utiliser cette formation pour écraser son âme et provoquer son effondrement. Alors, ce vieil homme pourra enfin prendre le contrôle de son corps ! » Les pensées de l'Enseignant Impérial résonnaient dans l'esprit de Wang Lin.
 
-Son propre corps étant mort depuis longtemps, il n'était plus qu'une parcelle de Sens Divin dans celui de Wang Lin. Conscient que la prise de contrôle ne serait pas aisée, il avait utilisé la culture du Céleste Ancêtre comme appât. Son but était d'emprunter le pouvoir de l'héritage pour briser toute résistance de Wang Lin. Cela permettrait au corps de ce dernier d'absorber la culture du Céleste Ancêtre, lui permettant ensuite de l'occuper sans le moindre danger.
+Son propre corps étant mort depuis longtemps, il n'était plus qu'une parcelle de Sens Divin dans celui de Wang Lin. Conscient que la prise de contrôle ne serait pas aisée, il avait utilisé la cultivation du Céleste Ancêtre comme appât. Son but était d'emprunter le pouvoir de l'héritage pour briser toute résistance de Wang Lin. Cela permettrait au corps de ce dernier d'absorber la cultivation du Céleste Ancêtre, lui permettant ensuite de l'occuper sans le moindre danger.
 
 Cette lumière dorée avait envahi chaque parcelle du corps de Wang Lin, à l'exception de la tête et de l'endroit où résidait le sang de l'âme. La radiance émanant de Wang Lin était si vive qu'on pouvait la percevoir de l'extérieur ; on distinguait nettement une faible lueur dorée provenant de l'œil droit du Céleste Ancêtre.
 
@@ -76,7 +76,7 @@ Cependant, la conscience de ce Wang Lin n'était plus la sienne, mais celle de l
 
 « Wang Lin... ne me blâme pas... » L'Enseignant Impérial laissa échapper un soupir, mais une détermination tranchante illumina son regard. Il ne quitta pas l'œil droit du Céleste Ancêtre. Toujours à l'intérieur, il leva les deux mains pour former un sceau. La lumière dorée émanant de son corps changea radicalement !
 
-La radiance autour de lui décupla, cent, mille, puis dix mille fois ! Elle se propagea comme un feu de brousse, et toute la culture du Céleste Ancêtre contenue dans le corps de Wang Lin entra en éruption !
+La radiance autour de lui décupla, cent, mille, puis dix mille fois ! Elle se propagea comme un feu de brousse, et toute la cultivation du Céleste Ancêtre contenue dans le corps de Wang Lin entra en éruption !
 
 Sous cette lumière décuplée, le corps de Wang Lin devint tel un soleil illuminant le monde au sein de l'œil droit obscur. Cet œil était désormais totalement éclairé !
 

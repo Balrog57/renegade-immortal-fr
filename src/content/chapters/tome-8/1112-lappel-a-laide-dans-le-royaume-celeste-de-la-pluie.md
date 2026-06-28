@@ -52,7 +52,7 @@ Les forces de l'Alliance furent lourdement touchées. La Lance de l’Exterminat
 
 Parmi eux se trouvait une vieille femme au stade Nirvana Shatterer du côté de l'Alliance !
 
-Celle-ci pensait pouvoir stopper la lance un instant grâce à sa culture de début de stade Nirvana Shatterer en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
+Celle-ci pensait pouvoir stopper la lance un instant grâce à sa cultivation de début de stade Nirvana Shatterer en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
 
 Les pupilles de Master Flamespark se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Corps envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine !
 
@@ -92,7 +92,7 @@ Cette bête naissait avec une seule tête, et chaque fois qu'elle dévorait un m
 
 À cet instant, au sein du Royaume Céleste de la Pluie, tout était paisible comparé au Pays de l'Ancien Dieu, si l'on excepte les fissures qui déchiraient le ciel et les tremblements constants de la terre.
 
-Le niveau de culture du groupe de Wang Lin avait totalement dépassé ce que le Royaume Céleste de la Pluie pouvait supporter. Dès leur entrée, l'un des fragments s'effondra, créant une immense aspiration qui attira les autres fragments vers lui.
+Le niveau de cultivation du groupe de Wang Lin avait totalement dépassé ce que le Royaume Céleste de la Pluie pouvait supporter. Dès leur entrée, l'un des fragments s'effondra, créant une immense aspiration qui attira les autres fragments vers lui.
 
 Wang Lin se tenait sur une hauteur et contemplait les fragments familiers du Royaume Céleste de la Pluie. Ses yeux brillèrent en se remémorant le passé, tandis qu'il cherchait progressivement le fragment où il avait autrefois entendu cet appel à l'aide !
 

@@ -10,7 +10,7 @@ Chapitre 1773 - La lutte de la bête acculée !
 
 Wang Lin devina vaguement les pensées de Yun Yifeng. Cet homme était très rusé et n'agirait jamais sans raison. Cependant, Wang Lin n'avait pas le temps d'y prêter attention. Il leva la main droite et l'empreinte dorée vint se loger dans sa paume. Une sensation de froid parcourut Wang Lin alors qu'il ressentait un lien avec l'empreinte.
 
-Cet objet venait tout juste d'être manifesté à partir du néant et n'avait aucun propriétaire. La culture de Wang Lin s'y était imprimée, faisant de lui le premier maître de ce trésor.
+Cet objet venait tout juste d'être manifesté à partir du néant et n'avait aucun propriétaire. La cultivation de Wang Lin s'y était imprimée, faisant de lui le premier maître de ce trésor.
 
 Cette empreinte dorée dégageait une aura puissante et scellait le sort de destruction du Dao du Souverain. Ce sort avait été utilisé par le Souverain à pleine puissance ; sa force était donc identique à celle du Souverain lui-même utilisant la technique.
 
@@ -68,7 +68,7 @@ Le Souverain frémit. Les attaques de Wang Lin et Tuo Sen avaient déjà fait bo
 
 Le Souverain se retourna et frappa le dragon d'or de sa main droite. Tandis que le dragon s'effondrait, le Souverain cracha une bouffée de sang pour la première fois. Son expression s'assombrit et la terreur dans ses yeux s'intensifia.
 
-La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de culture était trop vaste. Bien qu'ils fussent difficiles à affronter, ils avaient dû payer un prix lourd pour le blesser gravement !
+La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de cultivation était trop vaste. Bien qu'ils fussent difficiles à affronter, ils avaient dû payer un prix lourd pour le blesser gravement !
 
 Ce qui l'effrayait par-dessus tout restait ce qui était arrivé à l'empreinte dorée. Il avait la sensation qu'une cinquième paire d'yeux l'observait, imperturbable.
 

@@ -20,11 +20,11 @@ Bien que cette bataille ne durât que cent ans, son intensité était sans préc
 
 Cependant, au cours de cette guerre entre les deux continents, certains individus anonymes brillèrent comme des étoiles, devenant célèbres sur les deux terres, tandis que ceux qui l'étaient déjà gagnaient encore en puissance.
 
-Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes ! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à sa Hache d’Âme Tranchante des Huit Lames, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion pour revenir sur le Continent du Taureau Céleste afin de participer à cette bataille finale !
+Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes ! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de cultivation grâce à sa Hache d’Âme Tranchante des Huit Lames, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion pour revenir sur le Continent du Taureau Céleste afin de participer à cette bataille finale !
 
 Outre lui, Tang Jia et Edge Cloud s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste ! Plusieurs membres du Grand Secte de l'Âme s'étaient aussi distingués, devenant les lumières les plus éclatantes aux côtés de l'Ancien Ancêtre.
 
-Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Void Cloud, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Void Cloud était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Void Cloud se trouvaient plusieurs autres individus ; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre !
+Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Void Cloud, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La cultivation à l'épée de Void Cloud était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Void Cloud se trouvaient plusieurs autres individus ; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre !
 
 C'était comme si le but de ce combat était de magnifier la gloire de ces vingt guerriers ! La guerre se poursuivait entre le Grand Secte de l'Âme et le Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances !
 
@@ -42,7 +42,7 @@ La Lame Yin fendit l'air et fondit sur l'homme en robe dorée. Des grondements t
 
 « Grand Démon de Puissance ! » Un second cri jaillit de la lumière dorée. Une brume noire apparut et enveloppa l'éclat doré pour façonner un dieu démon encore plus gigantesque ! Ce dieu démon paraissait féroce, revêtu d'une armure de brouillard noir exhalant une aura destructrice capable de dévaster le monde. Il ferma son poing dans un craquement assourdissant et entra en collision avec la Lame Yin de Wang Lin.
 
-Des tonnerres résonnèrent à travers le monde. La Lame Yin de Wang Lin heurta le dieu démon. Puisque cette lame contenait toute sa culture, elle trancha la main du dieu démon comme s'il s'agissait de simple papier ! Sans aucune résistance, la lame traversa tous les trésors, l'arm membre et le corps du dieu démon pour venir frapper le corps doré du vieil homme en robe dorée !
+Des tonnerres résonnèrent à travers le monde. La Lame Yin de Wang Lin heurta le dieu démon. Puisque cette lame contenait toute sa cultivation, elle trancha la main du dieu démon comme s'il s'agissait de simple papier ! Sans aucune résistance, la lame traversa tous les trésors, l'arm membre et le corps du dieu démon pour venir frapper le corps doré du vieil homme en robe dorée !
 
 La lumière dorée vacilla et le vieillard recracha une gorgée de sang. Son visage pâlit et ses yeux se remplirent d'effroi. Le dieu démon qui l'entourait fut tranché en deux par la lame de Wang Lin, sans pouvoir opposer la moindre résistance !
 

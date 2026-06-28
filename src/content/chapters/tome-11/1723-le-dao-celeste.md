@@ -42,7 +42,7 @@ Une partie de la porte fut projetée loin, dans une région de l'espace qui devi
 
 La masse de fragments fusionna avec le vide, rendant l'espace instable et créant une faille spatiale. Les morceaux de la porte restèrent là, immuables pendant d'innombrables années.
 
-Après bien des années, un groupe issu des Quatre Sectes Divines, utilisant une méthode inconnue, vint à la recherche d'une planète de culture. Ils masquèrent l'instabilité et dissimulèrent cette faille spatiale en la reliant à la planète.
+Après bien des années, un groupe issu des Quatre Sectes Divines, utilisant une méthode inconnue, vint à la recherche d'une planète de cultivation. Ils masquèrent l'instabilité et dissimulèrent cette faille spatiale en la reliant à la planète.
 
 Ce groupe de cultivateurs finit par repartir. Avec le temps, la faille spatiale réapparaissait occasionnellement. Certains cultivateurs talentueux de la planète la découvrirent et s'en servirent. Elle devint finalement le Champ de Bataille Étranger.
 
@@ -62,7 +62,7 @@ Il continua sa course, rétrécissant à mesure qu'il s'éloignait. Wang Lin pou
 
 Ce fragment était flou, mais il était évident qu'il constituait le cœur de ce petit amas de brume.
 
-En volant, le nuage de brume devint de plus en plus petit jusqu'à disparaître complètement. Il s'était entièrement condensé en ce fragment semi-circulaire et vola jusqu'à atterrir sur une planète de culture.
+En volant, le nuage de brume devint de plus en plus petit jusqu'à disparaître complètement. Il s'était entièrement condensé en ce fragment semi-circulaire et vola jusqu'à atterrir sur une planète de cultivation.
 
 Il n'y avait aucune vie sur cette planète, seulement une montagne isolée. Le fragment s'écrasa comme une météorite sur la montagne. Celle-ci s'effondra et le fragment pénétra profondément dans le cœur de la planète avant de s'immobiliser.
 

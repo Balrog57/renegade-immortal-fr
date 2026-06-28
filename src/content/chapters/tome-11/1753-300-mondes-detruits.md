@@ -24,7 +24,7 @@ Wang Lin se tenait là, face à la fleur. Il l'observa calmement. Il possédait 
 
 « Ce doivent être les 300 mondes détruits... » murmura Wang Lin.
 
-Selon les souvenirs de la troisième âme, il s'agissait du cœur de la grotte, l'endroit où le Souverain Céleste aux Sept Couleurs se retirait pour sa culture en isolation. Une fois pénétré, ce lieu activait des mesures de protection pour empêcher toute intrusion. Cependant, en raison de la mort du Souverain Céleste aux Sept Couleurs, de l'invasion de Lian Daofei et de la trahison de certains disciples du Secte des Sept Dao ainsi que des concubines, nombre de ces protections avaient été détruites ou modifiées.
+Selon les souvenirs de la troisième âme, il s'agissait du cœur de la grotte, l'endroit où le Souverain Céleste aux Sept Couleurs se retirait pour sa cultivation en isolation. Une fois pénétré, ce lieu activait des mesures de protection pour empêcher toute intrusion. Cependant, en raison de la mort du Souverain Céleste aux Sept Couleurs, de l'invasion de Lian Daofei et de la trahison de certains disciples du Secte des Sept Dao ainsi que des concubines, nombre de ces protections avaient été détruites ou modifiées.
 
 Wang Lin s'inquiétait de ces changements potentiels, mais lorsqu'il vit la fleur jaune et les 300 gouttes de rosée, il se détendit.
 

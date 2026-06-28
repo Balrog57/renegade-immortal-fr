@@ -106,7 +106,7 @@ C'était sous un iceberg. Yao Bingyun avait grandi. Elle était assise là, le r
 
 « Petite sœur, même si je n'ai plus d'émotions à l'avenir et que je deviens une personne de glace, je ne t'oublierai pas. Sois forte et attends-moi ! » Des larmes coulèrent sur les joues de Yao Bingyun, mais elle ne les essuya pas. Au lieu de cela, elle ferma les yeux et commença à pratiquer la technique céleste interdite de la famille Yao : la Tactique du Sceau de l'Âme !
 
-Cette méthode de culture coupait court à toutes les émotions et à tout lien. Une fois maîtrisée, on devenait d'une froideur extrême. Cette culture était le Dao de l'impitoyabilité !
+Cette méthode de cultivation coupait court à toutes les émotions et à tout lien. Une fois maîtrisée, on devenait d'une froideur extrême. Cette cultivation était le Dao de l'impitoyabilité !
 
 « Utiliser un cœur rempli d'amour pour cultiver un Dao impitoyable… » Wang Lin soupira. Il avait parfaitement percé à jour le cœur du Dao de Yao Bingyun.
 

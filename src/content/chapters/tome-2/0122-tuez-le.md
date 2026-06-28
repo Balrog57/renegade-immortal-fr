@@ -42,7 +42,7 @@ Les trois individus volaient avec une prudence extrême, faisant preuve d'une vi
 
 Hélas, la sacoche de rangement contenant ses gourdes et tous ses trésors avait été broyée par Teng Huayuan.
 
-Wang Lin soupira intérieurement. Il pouvait sentir la perle défiant le ciel au plus profond de son âme, tout comme l'épée qu'il avait affinée par le sang. Cependant, ce n'était pas le moment opportun pour vérifier s'ils étaient toujours là. Après réflexion, Wang Lin fut d'autant plus déterminé à trouver un lieu propice à une culture en méditation fermée dès son départ.
+Wang Lin soupira intérieurement. Il pouvait sentir la perle défiant le ciel au plus profond de son âme, tout comme l'épée qu'il avait affinée par le sang. Cependant, ce n'était pas le moment opportun pour vérifier s'ils étaient toujours là. Après réflexion, Wang Lin fut d'autant plus déterminé à trouver un lieu propice à une cultivation en méditation fermée dès son départ.
 
 Les cultivateurs présents dans le champ de bataille étranger remarquèrent que, ces derniers jours, la vitesse à laquelle l'espace s'effondrait semblait avoir ralenti. Mais cela n'avait aucune importance pour eux : comparé à l'effondrement du champ de bataille, les créatures étranges étaient bien plus terrifiantes.
 

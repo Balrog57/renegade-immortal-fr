@@ -58,7 +58,7 @@ Ce monde appartenait au Souverain aux Sept Couleurs ; il était façonné par se
 
 « Je ne parviens pas non plus à fusionner avec elle. » Wang Lin effleura l'eau d'un geste nonchalant pour en disperser quelques gouttes. Mais, à cet instant, il fronça de nouveau les sourcils.
 
-« Su Dao ! Tu as du cran. La cloche a sonné deux fois et tu n'es pas encore allé rendre hommage au Maître qui vient de sortir de sa culture isolée ! » Une voix perçante résonna derrière Wang Lin. Un jeune homme d'environ vingt ans descendait la montagne, vêtu de la même robe bleue que lui. Il fixait Wang Lin d'un regard glacial.
+« Su Dao ! Tu as du cran. La cloche a sonné deux fois et tu n'es pas encore allé rendre hommage au Maître qui vient de sortir de sa cultivation isolée ! » Une voix perçante résonna derrière Wang Lin. Un jeune homme d'environ vingt ans descendait la montagne, vêtu de la même robe bleue que lui. Il fixait Wang Lin d'un regard glacial.
 
 « Je suis venu te chercher pour te ramener, sur ordre du Frère Aîné, afin que tu sois puni selon les règles de la secte ! » Le jeune homme ricana en s'approchant. Il tendit la main vers les cheveux de Wang Lin, semblant vouloir le traîner de force jusqu'à la salle.
 
@@ -70,7 +70,7 @@ L'expression du jeune homme changea soudainement et il resta figé, tel une proi
 
 Dans le monde de la cinquième fleur, Wang Lin avait pris l'apparence du jeune Souverain Céleste aux Sept Couleurs et avait acquis ses souvenirs de jeunesse. Il savait que le jeune Souverain était alors un être faible de caractère, bien loin de l'ambition et de la cruauté qu'il acquerra plus tard.
 
-À cet âge, le Souverain Céleste aux Sept Couleurs était très talentueux et aurait dû être protégé par la secte. Cependant, son maître était constamment en culture isolée, et son talent suscitait bien des jalousies. Sa vie au sein de la secte était loin d'être paisible.
+À cet âge, le Souverain Céleste aux Sept Couleurs était très talentueux et aurait dû être protégé par la secte. Cependant, son maître était constamment en cultivation isolée, et son talent suscitait bien des jalousies. Sa vie au sein de la secte était loin d'être paisible.
 
 Le jeune homme devant lui faisait partie de ceux qui le harcelaient régulièrement. Ils ne l'attaquaient jamais ouvertement, agissant toujours dans l'ombre, utilisant souvent les règles de la secte comme prétexte pour le punir.
 

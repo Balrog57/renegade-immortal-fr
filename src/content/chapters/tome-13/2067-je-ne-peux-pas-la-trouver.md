@@ -10,19 +10,19 @@ Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bata
 
 « Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
 
-À mesure que son Sens Divin s'étendait, un sourire apparut progressivement sur son visage. Avec son niveau de culture précédent, il n'aurait pu utiliser cette méthode pour retrouver ses anciens amis.
+À mesure que son Sens Divin s'étendait, un sourire apparut progressivement sur son visage. Avec son niveau de cultivation précédent, il n'aurait pu utiliser cette méthode pour retrouver ses anciens amis.
 
 Cependant, aujourd'hui, en tant qu'être le plus puissant du continent astral immortel, il en était capable.
 
-« Les niveaux de culture de Zhou Yi et Qing Shuang ont augmenté... Je me demande s'ils ont conservé cette pilule ou non... » Le Sens Divin de Wang Lin balayait la zone sans s'interrompre.
+« Les niveaux de cultivation de Zhou Yi et Qing Shuang ont augmenté... Je me demande s'ils ont conservé cette pilule ou non... » Le Sens Divin de Wang Lin balayait la zone sans s'interrompre.
 
 Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose. « C'est... Situ... »
 
 « Il devrait être Maître Hong Shan... Après sa réincarnation, il est resté le même. »
 
-« Zhou Ru... Cet enfant n'a pas suivi le chemin de la culture. J'ignore combien de fois elle a été réincarnée au cours de ces centaines d'années... » Wang Lin regardait au loin d'un regard empreint de tendresse.
+« Zhou Ru... Cet enfant n'a pas suivi le chemin de la cultivation. J'ignore combien de fois elle a été réincarnée au cours de ces centaines d'années... » Wang Lin regardait au loin d'un regard empreint de tendresse.
 
-« Treize... Il a toujours été excellent, et voilà que sa culture est désormais extraordinaire. À en juger, il progresse très rapidement... »
+« Treize... Il a toujours été excellent, et voilà que sa cultivation est désormais extraordinaire. À en juger, il progresse très rapidement... »
 
 « Gros Tête, la pauvre âme du monde des grottes qui utilisait sa cruauté pour masquer un cœur fragile. Ici, il est resté le même... »
 
@@ -32,7 +32,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « Qing Lin... Lui aussi a choisi de ne pas cultiver et s'est réincarné plusieurs fois comme un simple mortel... »
 
-« Frère Aîné Qing Shui... Hein ? » Le regard de Wang Lin devint tranchant et il scruta attentivement l'ouest. Il sentait que c'était là que se trouvait Qing Shui, mais la marque sur son corps était extrêmement ténue. Si le niveau de culture de Wang Lin n'avait pas été bien supérieur à celui d'autrefois, il ne l'aurait jamais détectée.
+« Frère Aîné Qing Shui... Hein ? » Le regard de Wang Lin devint tranchant et il scruta attentivement l'ouest. Il sentait que c'était là que se trouvait Qing Shui, mais la marque sur son corps était extrêmement ténue. Si le niveau de cultivation de Wang Lin n'avait pas été bien supérieur à celui d'autrefois, il ne l'aurait jamais détectée.
 
 « Si la marque du Frère Aîné Qing Shui avait totalement disparu, même en balayant tout le monde avec mon Sens Divin, je ne pourrais pas le trouver... Heureusement, une trace de sa marque subsiste encore. »
 
@@ -46,7 +46,7 @@ Dans son cœur, une ombre persistante lui causait un sentiment complexe. Cette o
 
 Tout comme lorsqu'il avait cherché dans le clan ancien, il ne parvenait pas à la trouver...
 
-« Comment est-ce possible qu'il n'y ait aucune trace ? » Wang Lin ne pouvait rester calme ; son Sens Divin explosa. Non seulement il couvrit le clan céleste, mais avec son niveau de culture actuel, il engloba également le vaste bassin et le clan ancien.
+« Comment est-ce possible qu'il n'y ait aucune trace ? » Wang Lin ne pouvait rester calme ; son Sens Divin explosa. Non seulement il couvrit le clan céleste, mais avec son niveau de cultivation actuel, il engloba également le vaste bassin et le clan ancien.
 
 Il chercha sans relâche, son Sens Divin s'étendant à nouveau et encore, mais Li Qianmei restait introuvable.
 
@@ -78,11 +78,11 @@ Clan céleste, Continent Yun Tao du Continent Occidental.
 
 Dans la partie septentrionale de ce continent se trouvait une secte. Ce n'était pas une organisation de grande envergure ; elle ne pouvait être considérée que comme une petite secte sur le continent Yun Tao. En ce matin, de nombreux disciples cultivaient au sein de l'institution. Dans une chambre secrète située dans la montagne reculée de la secte, un homme d'âge mûr était assis.
 
-Cet homme dégageait une détermination farouche et une aura de froideur. Vêtu de noir, les yeux clos, il était en pleine culture. Des ondulations émanaient de son corps, enveloppant son environnement immédiat. Cela révélait que son niveau de culture se situait au sommet de la deuxième étape, n'étant qu'à un pas de la troisième.
+Cet homme dégageait une détermination farouche et une aura de froideur. Vêtu de noir, les yeux clos, il était en pleine cultivation. Des ondulations émanaient de son corps, enveloppant son environnement immédiat. Cela révélait que son niveau de cultivation se situait au sommet de la deuxième étape, n'étant qu'à un pas de la troisième.
 
 En tant que cultivateur ayant progressé le plus rapidement au cours des mille dernières années au sein de la Secte du Fourneau d'Or, il était très célèbre. Il jouissait d'un statut élevé et recevait l'enseignement personnel du Grand Ancien.
 
-Non seulement son niveau de culture était élevé, mais il se montrait extrêmement décisif et impitoyable. Sa réputation dépassait les frontières du continent Yun Tao ; il avait même tué un individu venant d'entrer dans la troisième étape, ce qui avait fait connaître son nom à de nombreuses autres sectes.
+Non seulement son niveau de cultivation était élevé, mais il se montrait extrêmement décisif et impitoyable. Sa réputation dépassait les frontières du continent Yun Tao ; il avait même tué un individu venant d'entrer dans la troisième étape, ce qui avait fait connaître son nom à de nombreuses autres sectes.
 
 Cette bataille fut d'ailleurs plus tranchante que celles de certains cultivateurs de la troisième étape. Quiconque l'affrontait mourait neuf fois sur dix sous ses coups.
 
@@ -92,11 +92,11 @@ Son nom était Wang Shi, « Shi » signifiant « pierre ».
 
 Orphelin, il ignorait tout de ses parents. Il avait été recueilli par un vieux taoïste et avait grandi au sein de la secte. La seule chose qu'il sache, c'est qu'en cultivant, il voyait souvent la silhouette d'un dos. Ce dos était imposant et lui procurait une sensation de chaleur, mais peu importait ses efforts, il ne parvenait jamais à en percevoir le visage.
 
-Au début, même ce dos était flou ; mais à mesure que sa culture progressait, la silhouette devenait plus nette. Il sentait que s'il atteignait la troisième étape, il verrait enfin clairement cette personne.
+Au début, même ce dos était flou ; mais à mesure que sa cultivation progressait, la silhouette devenait plus nette. Il sentait que s'il atteignait la troisième étape, il verrait enfin clairement cette personne.
 
 C'était la raison pour laquelle il cultivait avec une telle acharnement !
 
-« Wang Shi ! » Alors qu'il était absorbé par sa culture, une voix retentit à l'extérieur de la chambre secrète. Un rayon de lumière vola alors devant lui et prit la forme illusoire d'un vieil homme.
+« Wang Shi ! » Alors qu'il était absorbé par sa cultivation, une voix retentit à l'extérieur de la chambre secrète. Un rayon de lumière vola alors devant lui et prit la forme illusoire d'un vieil homme.
 
 L'homme ouvrit les yeux. Il regarda le vieillard avec respect, puis se leva pour s'incliner.
 
@@ -110,9 +110,9 @@ Wang Shi n'en connaissait pas la raison, mais il avait toujours le sentiment que
 
 « Peu importe. Prépare-toi et descends la montagne dans trois jours. Rends-toi à la Secte Dao Yun pour que je puisse y envoyer les cadeaux de félicitations. » La figure illusoire secoua la tête et disparut.
 
-Wang Shi acquiesça respectueusement. Une fois la silhouette disparue, ses yeux se remplirent de confusion et, après un long moment, il poussa un soupir. Alors qu'il s'asseyait pour reprendre sa culture, un autre soupir retentit derrière lui.
+Wang Shi acquiesça respectueusement. Une fois la silhouette disparue, ses yeux se remplirent de confusion et, après un long moment, il poussa un soupir. Alors qu'il s'asseyait pour reprendre sa cultivation, un autre soupir retentit derrière lui.
 
-Ce souffle fut si soudain qu'il fit tressaillir Wang Shi, mais il ne se retourna pas de manière imprudente. Il savait que pour que quelqu'un puisse pénétrer ici sans que lui ou son maître ne s'en aperçoivent, le niveau de culture de cet intrus devait être extrêmement élevé.
+Ce souffle fut si soudain qu'il fit tressaillir Wang Shi, mais il ne se retourna pas de manière imprudente. Il savait que pour que quelqu'un puisse pénétrer ici sans que lui ou son maître ne s'en aperçoivent, le niveau de cultivation de cet intrus devait être extrêmement élevé.
 
 Wang Shi demanda d'un ton grave : « Qui êtes-vous, Monsieur ? »
 

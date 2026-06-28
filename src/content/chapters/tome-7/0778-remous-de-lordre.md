@@ -84,7 +84,7 @@ Li Yuan observa le symbole, de plus en plus sérieux. Finalement, il fut frappé
 
 Wang Lin dit lentement : « Frère Xu, ce symbole est formé par le tunnel même dans lequel nous nous trouvons. J'ai déployé mon sens divin tout au long du chemin et j'ai pu le reconstituer. »
 
-« Le frère Xu veut dire que quelqu'un a conçu ce tunnel en suivant la forme de ce symbole ! » Li Yuan se redressa. Son niveau de culture n'était pas assez élevé pour couvrir l'intégralité du tunnel avec son sens divin, mais il ne doutait aucunement des paroles de Wang Lin.
+« Le frère Xu veut dire que quelqu'un a conçu ce tunnel en suivant la forme de ce symbole ! » Li Yuan se redressa. Son niveau de cultivation n'était pas assez élevé pour couvrir l'intégralité du tunnel avec son sens divin, mais il ne doutait aucunement des paroles de Wang Lin.
 
 « Frère Xu, c'est une rune de restriction parmi les restrictions célestes. Mais c'est une rune extrêmement rare qui ne peut être utilisée seule ; elle n'a d'effet que lorsqu'elle est combinée à d'autres restrictions. »
 

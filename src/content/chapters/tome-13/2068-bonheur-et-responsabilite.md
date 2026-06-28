@@ -50,7 +50,7 @@ L'animal semblait adorer cela ; il se coucha sur le dos, exposant son ventre. La
 
 Toute la famille riait, ignorant la silhouette blanche qui flottait dans le ciel. Wang Lin contemplait cette famille heureuse et, en voyant le visage souriant de la jeune fille, il sourit à son tour.
 
-« Little White... J'avais presque oublié qu'il avait été emmené ici et qu'il avait aussi réincarné. Je ne m'attendais pas à ce qu'il se réincarne en un grand chien... Et à en juger par son allure, il a acquis de l'intelligence et une culture assez avancée. » Wang Lin sourit en voyant le grand chien s'étaler sur le sol pour savourer l'instant. Cependant, lorsque l'animal leva les yeux vers le ciel, il aperçut la silhouette de Wang Lin et fut saisi d'effroi.
+« Little White... J'avais presque oublié qu'il avait été emmené ici et qu'il avait aussi réincarné. Je ne m'attendais pas à ce qu'il se réincarne en un grand chien... Et à en juger par son allure, il a acquis de l'intelligence et une cultivation assez avancée. » Wang Lin sourit en voyant le grand chien s'étaler sur le sol pour savourer l'instant. Cependant, lorsque l'animal leva les yeux vers le ciel, il aperçut la silhouette de Wang Lin et fut saisi d'effroi.
 
 Son expression se remplit instantanément de peur. Le grand chien cligna des yeux et cessa net de grogner.
 
@@ -104,7 +104,7 @@ D'innombrables restrictions et sceaux protégeaient l'intérieur et l'extérieur
 
 Wang Lin leva la main droite et fit un geste vers la montagne. Celle-ci gronda et s'effondra à une vitesse fulgurante. Des masses rocheuses gigantesques s'écroulèrent, et en un clin d'œil, toutes les restrictions et tous les sceaux disparurent sous le simple mouvement de sa main.
 
-Alors que la montagne s'effondrait, le corps du fou apparut. Il reposait paisiblement, les yeux clos. Il dormait. Des fluctuations de culture de niveau Grand Empereur émanaient de son corps.
+Alors que la montagne s'effondrait, le corps du fou apparut. Il reposait paisiblement, les yeux clos. Il dormait. Des fluctuations de cultivation de niveau Grand Empereur émanaient de son corps.
 
 Wang Lin s'avança jusqu'à lui et pointa le front du dormeur du doigt. Soudain, le corps du fou fut secoué par un tremblement.
 

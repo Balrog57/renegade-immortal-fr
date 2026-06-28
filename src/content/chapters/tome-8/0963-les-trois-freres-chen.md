@@ -10,7 +10,7 @@ slug: les-trois-freres-chen
 
 Pendant qu'ils volaient, la lumière de Wang Lin brillait faiblement alors qu'il observait Bai Wei. Il avait toujours eu le sentiment que quelque chose ne tournait pas rond avec lui, sans pour autant parvenir à identifier le problème exact.
 
-Cependant, mille ans de culture lui avaient conféré une certaine intuition particulière. Bien qu'il ne fût pas aussi omniscient que l'Omniscient, il pouvait percevoir les prémices d'événements à venir.
+Cependant, mille ans de cultivation lui avaient conféré une certaine intuition particulière. Bien qu'il ne fût pas aussi omniscient que l'Omniscient, il pouvait percevoir les prémices d'événements à venir.
 
 Bai Wei ne sembla pas remarquer que le sens divin de Wang Lin l'avait balayé, et continua de sourire en discutant avec lui.
 
@@ -20,7 +20,7 @@ Pendant ces centaines d'années, le Sect du Destin Céleste est resté calme ; i
 
 « Rien de suspect... » Wang Lin fronça les sourcils, mais ce léger pressentiment le tourmentait. Son expression resta toutefois neutre tandis qu'il suivait la conversation de Bai Wei.
 
-« Après votre départ, Maître a passé la majeure partie de son temps en culture en porte fermée et est rarement sorti... »
+« Après votre départ, Maître a passé la majeure partie de son temps en cultivation en porte fermée et est rarement sorti... »
 
 Souriant, Bai Wei racontait à Wang Lin chaque incident survenu au Sect du Destin Céleste. Au début, Wang Lin écoutait avec attention, mais il finit par froncer les sourcils. Rien de ce que Bai Wei narrait n'était important ; il ne s'agissait que de banalités insignifiantes.
 
@@ -28,15 +28,15 @@ Bai Wei reprit avec un sourire : « Il y a aussi la Cité aux Yeux Fantômes. Ce
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après quinze minutes, Wang Lin demanda soudain : « Junior Sister Bai, quelle méthode de culture pratiquez-vous ? »
+Après quinze minutes, Wang Lin demanda soudain : « Junior Sister Bai, quelle méthode de cultivation pratiquez-vous ? »
 
 Bai Wei sursauta et son expression changea brusquement. Il s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré : « Le frère Wang me méprise-t-il ? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais ! »
 
-Wang Lin fut stupéfait. Il n'avait posé qu'une simple question sur sa méthode de culture, il ne s'attendait pas à ce que Bai Wei réagisse avec une telle intensité.
+Wang Lin fut stupéfait. Il n'avait posé qu'une simple question sur sa méthode de cultivation, il ne s'attendait pas à ce que Bai Wei réagisse avec une telle intensité.
 
 Wang Lin répondit d'un ton calme : « Le frère Bai se méprend ; je demandais cela par simple curiosité. »
 
-Bai Wei mordilla sa lèvre inférieure, songea un instant, puis fixa Wang Lin d'un regard complexe et déclara : « La méthode de culture que je pratique s'appelle l'Art du Double Désir Céleste ! » Après avoir parlé, Bai Wei se tut et reprit sa course vers le nord.
+Bai Wei mordilla sa lèvre inférieure, songea un instant, puis fixa Wang Lin d'un regard complexe et déclara : « La méthode de cultivation que je pratique s'appelle l'Art du Double Désir Céleste ! » Après avoir parlé, Bai Wei se tut et reprit sa course vers le nord.
 
 « L'Art du Double Désir Céleste... » Les yeux de Wang Lin brillèrent alors qu'il observait la silhouette de Bai Wei. Ses pupilles se rétractèrent ; il pouvait clairement voir l'importante énergie Yin à l'intérieur de Bai Wei s'accélérer soudainement. Elle circulait avec une rapidité fulgurante dans ses méridiens, traçant une marque.
 
@@ -48,13 +48,13 @@ Cette ville ressemblait à un cercle tombé du ciel sur la terre et était gard�
 
 Des rayons d'énergie d'épée descendaient occasionnellement de l'horizon. Parfois unique, parfois multiples, ils se posaient aux abords de la ville et montraient leurs invitations avant d'entrer.
 
-Wang Lin savait qu'il était préférable de ne pas déployer son sens divin dans un lieu inconnu afin d'éviter tout malentendu. Il était naturellement prudent ; bien que son niveau de culture ait augmenté, sa vigilance restait intacte. Après tout, la prudence est indispensable pour survivre dans le monde de la culture.
+Wang Lin savait qu'il était préférable de ne pas déployer son sens divin dans un lieu inconnu afin d'éviter tout malentendu. Il était naturellement prudent ; bien que son niveau de cultivation ait augmenté, sa vigilance restait intacte. Après tout, la prudence est indispensable pour survivre dans le monde de la cultivation.
 
 Après une courte réflexion, le sens divin de Wang Lin s'étira vers la ville. Il ne le déploya pas avec brusquerie, mais comme une respiration douce. Il ne cherchait pas à percer les secrets de la cité, se concentrant uniquement sur les fluctuations des restrictions.
 
 Il agissait comme un homme arrivant devant une porte inconnue : au lieu de tenter de l'enfoncer violemment, il l'entrouvrait pour jeter un coup d'œil rapide. Bien que cela fût impoli, c'était un comportement courant dans le monde des cultivateurs. À moins d'être d'une tyrannie absolue, cela ne causait généralement aucun grief.
 
-La restriction de la ville n'opposa aucune résistance au sens divin de Wang Lin. Grâce à sa culture et à son illumination en matière de restrictions, celle-ci ne détecta absolument pas son intrusion.
+La restriction de la ville n'opposa aucune résistance au sens divin de Wang Lin. Grâce à sa cultivation et à son illumination en matière de restrictions, celle-ci ne détecta absolument pas son intrusion.
 
 Cependant, alors que le sens divin de Wang Lin traversait la restriction et s'apprêtait à se retirer après avoir balayé la cité, trois sens divins, parfaitement dissimulés, jaillirent. Ils s'élancèrent comme trois dragons vers celui de Wang Lin.
 
@@ -70,7 +70,7 @@ Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n
 
 « Votre sens divin a fait preuve d'imprudence et s'est fait piéger par moi, et pourtant vous demandez pardon ? Quelle étrange logique ! Aujourd'hui, nous trois ne serons pas cruels envers vous. Venez personnellement présenter vos excuses et partez immédiatement. Si vous osez remettre les pieds dans la Cité aux Yeux Fantômes, ne nous reprochez pas de manquer de clémence ! » À côté de Maître Yi Chen, un sens divin lugubre apparut.
 
-Wang Lin et Bai Wei se tenaient à l'extérieur de la ville, attendant leur tour pour entrer. Quant à l'échange entre Wang Lin et les trois autres, à moins d'une culture extrêmement élevée, personne ne pouvait rien remarquer.
+Wang Lin et Bai Wei se tenaient à l'extérieur de la ville, attendant leur tour pour entrer. Quant à l'échange entre Wang Lin et les trois autres, à moins d'une cultivation extrêmement élevée, personne ne pouvait rien remarquer.
 
 Bai Wei n'était manifestement pas au courant, mais Wang Lin fronça les sourcils.
 

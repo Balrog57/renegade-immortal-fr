@@ -10,7 +10,7 @@ Cent coups de poing !
 
 Il semblait qu'aucune force en ce monde ne puisse résister aux cent coups de poing que Wang Lin avait mis toute une vie à forger !
 
-Ces cent coups contenaient la vitalité infinie de Wang Lin, ses deux mille ans de culture, toute son énergie originelle et toute la puissance issue du sang mystérieux de l'épée de fer !
+Ces cent coups contenaient la vitalité infinie de Wang Lin, ses deux mille ans de cultivation, toute son énergie originelle et toute la puissance issue du sang mystérieux de l'épée de fer !
 
 C'était l'apogée de la vie de Wang Lin. C'était l'attaque la plus puissante qu'il ait jamais lancée, avec l'intention même de mourir. Ces cent coups étaient Wang Lin lui-même. Tel un papillon de nuit se jetant dans les flammes, ces coups chargeaient vers le Daoïste Eau !
 
@@ -80,27 +80,27 @@ Les pupilles du Daoïste Eau se rétractèrent violemment tandis qu'il s'exclama
 
 « Tu as fait preuve de perspicacité ! » La voix antique laissa échapper un ricanement froid alors que la main de vent tendait vers le Daoïste Eau.
 
-Le Daoïste Eau poussa un cri et, ses mains formant un sceau, il pointa sa poitrine. Sa culture explosa soudainement et une planète de culture gigantesque apparut derrière lui !
+Le Daoïste Eau poussa un cri et, ses mains formant un sceau, il pointa sa poitrine. Sa cultivation explosa soudainement et une planète de cultivation gigantesque apparut derrière lui !
 
-Cette planète de culture regorgeait d'une énergie originelle dense et dégageait une vitalité puissante. Une vitalité suffisante pour égaler celle d'un Dieu Ancien de rang 5 !
+Cette planète de cultivation regorgeait d'une énergie originelle dense et dégageait une vitalité puissante. Une vitalité suffisante pour égaler celle d'un Dieu Ancien de rang 5 !
 
-D'innombrables murmures émanèrent de la planète de culture. Ces murmures se transformèrent en une énergie étrange qui pénétra le corps du Daoïste Eau. Ses yeux s'illuminèrent et il rugit : « Deux milliards de disciples du Yin et du Yang, rugissez ! Rugissez ! Rugissez ! »
+D'innombrables murmures émanèrent de la planète de cultivation. Ces murmures se transformèrent en une énergie étrange qui pénétra le corps du Daoïste Eau. Ses yeux s'illuminèrent et il rugit : « Deux milliards de disciples du Yin et du Yang, rugissez ! Rugissez ! Rugissez ! »
 
-Le Daoïste Eau pointa le ciel, puis pointa rapidement trois fois le bras de vent qui s'avançait vers lui ! À chaque mouvement, la planète de culture derrière lui tremblait. L'ombre d'une planète de culture apparaissait et fonçait vers le bras pour charger le Daoïste Eau.
+Le Daoïste Eau pointa le ciel, puis pointa rapidement trois fois le bras de vent qui s'avançait vers lui ! À chaque mouvement, la planète de cultivation derrière lui tremblait. L'ombre d'une planète de cultivation apparaissait et fonçait vers le bras pour charger le Daoïste Eau.
 
-Après ces trois pointages, trois grandes ombres de planètes de culture se précipitèrent sur la main de vent. Une pression terrifiante s'abattit sur le vide !
+Après ces trois pointages, trois grandes ombres de planètes de cultivation se précipitèrent sur la main de vent. Une pression terrifiante s'abattit sur le vide !
 
 « Tout comme ton corps originel, ces deux milliards de disciples du Yin et du Yang ne sont que des déchets, ni mâles ni femelles ! » ricana la voix antique. Le bras de vent ne ralentit pas et continua sa course.
 
 *Rumble, rumble, rumble !* Trois impacts sourds résonnèrent.
 
-Les trois ombres de planètes de culture explosèrent en une aura destructrice qui percuta la main de vent. La main forma un sceau, également constitué de vent, et entra en collision avec la force dévastatrice des trois ombres.
+Les trois ombres de planètes de cultivation explosèrent en une aura destructrice qui percuta la main de vent. La main forma un sceau, également constitué de vent, et entra en collision avec la force dévastatrice des trois ombres.
 
 Un grondement tonitruant retentit. La main ne disparut pas, mais elle fut gravement endommagée. Elle fonça vers le Daoïste Eau et pressa entre ses sourcils !
 
-« Vieux fou, tu t'immisces là où tu ne devrais pas. Ton corps originel ne peut pas venir, ceci n'est qu'un simple avatar. Meurs ! Meurs ! Meurs ! » Comme si quelque chose avait touché le point faible du Daoïste Eau, il afficha une expression hideuse et tendit la main droite. Il saisit la planète de culture gigantesque et la projeta avec acharnement !
+« Vieux fou, tu t'immisces là où tu ne devrais pas. Ton corps originel ne peut pas venir, ceci n'est qu'un simple avatar. Meurs ! Meurs ! Meurs ! » Comme si quelque chose avait touché le point faible du Daoïste Eau, il afficha une expression hideuse et tendit la main droite. Il saisit la planète de cultivation gigantesque et la projeta avec acharnement !
 
-« Ce vieil homme a rassemblé deux milliards de disciples du Dao de l'Eau pour les faire vénérer pendant des dizaines de milliers d'années afin de créer des Flammes Joss en son honneur. Aujourd'hui, je vais sacrifier cinq cents millions de disciples du Dao de l'Eau pour former des Flammes Joss et détruire ton avatar. Ensuite, j'irai dans le Royaume Céleste du Vent pour massacrer ton corps véritable ! » rugit le Daoïste Eau alors que la planète de culture géante, projetée par lui, percutait la main endommagée.
+« Ce vieil homme a rassemblé deux milliards de disciples du Dao de l'Eau pour les faire vénérer pendant des dizaines de milliers d'années afin de créer des Flammes Joss en son honneur. Aujourd'hui, je vais sacrifier cinq cents millions de disciples du Dao de l'Eau pour former des Flammes Joss et détruire ton avatar. Ensuite, j'irai dans le Royaume Céleste du Vent pour massacrer ton corps véritable ! » rugit le Daoïste Eau alors que la planète de cultivation géante, projetée par lui, percutait la main endommagée.
 
 Un fracas retentit. Au moment où la planète s'écrasa, une force colossale apparut. C'était une énergie propre aux cultivateurs du troisième niveau, générée par l'effondrement de cinq cents millions de disciples du Dao de l'Eau. Le bras endommagé s'effondra instantanément.
 

@@ -76,7 +76,7 @@ Le sang qui perla de ses orifices était doré, mais avec le temps passé, il pr
 
 Wang Lin avait eu de nombreuses hypothèses concernant l'Ancêtre Céleste, et au sein du clan céleste, il existait une multitude de versions sur sa disparition !!
 
-Il avait pensé que l'Ancêtre Céleste avait quitté le Continent Astral Immortel. Il avait pensé qu'il était en culture fermée dans un lieu reculé, et même qu'il pouvait être mort !
+Il avait pensé que l'Ancêtre Céleste avait quitté le Continent Astral Immortel. Il avait pensé qu'il était en cultivation fermée dans un lieu reculé, et même qu'il pouvait être mort !
 
 Mais en voyant personnellement la tête de l'Ancêtre Céleste, le choc et l'horreur qu'il ressentit furent tels qu'aucune conjecture ne pouvait les atténuer !
 
@@ -108,4 +108,4 @@ Au moment où il fut aspiré, l'Enseignant Impérial, entouré de neuf lumières
 
 « Ce vieil homme a attendu trop d'années sans pouvoir quitter cet endroit. Je n'ai pas non plus trouvé la personne idéale à posséder, mais ton apparition m'a offert l'opportunité. Ton corps est bien trop adapté pour ce vieil homme !! »
 
-« Ce vieil homme te permettra de compléter l'héritage. Une fois que tu auras la culture de l'Ancêtre Céleste, ce sera comme si c'était moi qui l'obtenais ! »
+« Ce vieil homme te permettra de compléter l'héritage. Une fois que tu auras la cultivation de l'Ancêtre Céleste, ce sera comme si c'était moi qui l'obtenais ! »

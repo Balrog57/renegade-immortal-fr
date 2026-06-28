@@ -38,9 +38,9 @@ Plus tôt, bien que Wang Lin ait pris possession du corps de Yu Fei, son âme or
 
 L'Ancien principal n'était pas revenu après avoir poursuivi cet intrus, mais Wang Lin, lui, était de retour. Cela provoqua un choc immense au sein du Clan, et d'innombrables spéculations traversèrent leurs esprits, chacune alimentant leur panique.
 
-« La culture de l'Ancien principal est capable de faire trembler le ciel, il ne devrait pas avoir de problèmes. Je pense plutôt qu'il a utilisé une méthode inconnue ou qu'un allié l'a piégé pour qu'il puisse venir briser la formation. Ne paniquons pas, tenons bon et l'Ancien principal reviendra bientôt ! »
+« La cultivation de l'Ancien principal est capable de faire trembler le ciel, il ne devrait pas avoir de problèmes. Je pense plutôt qu'il a utilisé une méthode inconnue ou qu'un allié l'a piégé pour qu'il puisse venir briser la formation. Ne paniquons pas, tenons bon et l'Ancien principal reviendra bientôt ! »
 
-« C'est vrai, avec son niveau de culture, à part les cultivateurs du troisième pas, personne n'est de taille. L'Ancien possède aussi de nombreux sorts et trésors, il ne rencontrera aucune difficulté ! »
+« C'est vrai, avec son niveau de cultivation, à part les cultivateurs du troisième pas, personne n'est de taille. L'Ancien possède aussi de nombreux sorts et trésors, il ne rencontrera aucune difficulté ! »
 
 « Mais... mais l'Éclair Éternel est soudainement parti, et lorsqu'il est revenu, il était bien plus faible. La formation défensive s'est également activée de manière incontrôlée. C'est... »
 
@@ -76,7 +76,7 @@ Un tumulte éclata à l'intérieur de la formation. Les membres du Clan étaient
 
 À ces mots, leurs corps tremblèrent de choc !
 
-« Impossible ! Cette personne cherche à nous manipuler. Avec la culture céleste de notre Ancien, comment pourrait-il perdre ?! »
+« Impossible ! Cette personne cherche à nous manipuler. Avec la cultivation céleste de notre Ancien, comment pourrait-il perdre ?! »
 
 « Quelle absurdité ! Tes paroles sont trop arrogantes, elles ne valent rien ! À moins qu'un cultivateur du troisième pas n'intervienne, personne ne peut vaincre un tel homme ! »
 

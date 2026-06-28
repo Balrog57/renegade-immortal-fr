@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1078 - Ta Shan Appears
 slug: lapparition-de-ta-shan
 ---
-Il existait un domaine extrêmement étrange au sein de ce système stellaire. C'était une étendue sans limites, l'une des terres interdites de l'Alliance de la Culture.
+Il existait un domaine extrêmement étrange au sein de ce système stellaire. C'était une étendue sans limites, l'une des terres interdites de l'Alliance de la Cultivation.
 
 Sa singularité résidait dans le fait que, de loin, il ressemblait à un pays des merveilles illusoire. Des arbres perçaient le ciel et l'herbe s'étendait à perte de vue ; au premier regard, l'ensemble semblait d'un artifice absolu.
 
@@ -14,7 +14,7 @@ Cette magnifique jungle, qui aurait dû exister sur une planète, flottait simpl
 
 Une énergie d'origine boisienne et dense emplissait le domaine stellaire, formant une brume verdâtre qui enveloppait le lieu et y persistait depuis des éternités...
 
-Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et certains la verraient même disparaître sans laisser de trace. Même l'Alliance de la Culture craignait cet endroit, ce qui en avait fait une zone interdite.
+Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et certains la verraient même disparaître sans laisser de trace. Même l'Alliance de la Cultivation craignait cet endroit, ce qui en avait fait une zone interdite.
 
 Seuls quelques vieux monstres ayant vécu depuis des éons conservaient des souvenirs vagues de ce lieu imprégné de brume verte. Bien que ces souvenirs fussent flous, ils ne les avaient pas oubliés.
 
@@ -42,7 +42,7 @@ L'expression de l'Omniscient demeurait sereine. Après avoir arraché la marque 
 
 « Mourir par ma main alors que je suis au stade du Fléau Céleste... tu pourras en rire en enfer. » L'Omniscient fit un pas et une tempête éclata. Avant même qu'il ne soit à portée, l'ouragan balaya Wang Lin. C'était comme si des lames lacéraient son corps dans un crépitement de déchirures, projetant Wang Lin en arrière.
 
-Wang Lin cracha une gorgée de sang, le visage empreint d'une férocité sauvage. Durant toute sa vie de culture, si ce n'était sa lutte acharnée et sa résilience, il serait déjà mort bien des fois.
+Wang Lin cracha une gorgée de sang, le visage empreint d'une férocité sauvage. Durant toute sa vie de cultivation, si ce n'était sa lutte acharnée et sa résilience, il serait déjà mort bien des fois.
 
 Le sang perlant encore au coin de ses lèvres, il frappa son sac de rangement, faisant surgir des dizaines d'épées volantes. Dans un rugissement, il les pointa vers l'Omniscient pour qu'elles s'élancent toutes d'un coup. Simultanément, Wang Lin sortit le troisième Charriot de Guerre Divin !
 

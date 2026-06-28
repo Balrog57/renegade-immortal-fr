@@ -72,7 +72,7 @@ Le visage de Maître Ashen Pine s'assombrit et il resta silencieux un long momen
 
 Chen Tianjun laissa échapper un froid renâcllement : « Venir ici était une erreur. Je renonce ! » Sur ces mots, il fit demi-tour et repartit d'où ils venaient, disparaissant sans laisser de trace.
 
-Maître Ashen Pine ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement : « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Compagnons cultivateurs Lu et Zhao, je connais une grotte de culture située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
+Maître Ashen Pine ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement : « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Compagnons cultivateurs Lu et Zhao, je connais une grotte de cultivation située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
 
 « Vous connaissez tous le propriétaire de cette grotte. C'était le disciple principal de la Secte Brisant le Ciel il y a 18 000 ans : Sima Mo ! »
 
@@ -132,4 +132,4 @@ En utilisant la même méthode, ils trompèrent davantage de bêtes féroces et 
 
 « Sur le chemin du retour, je récolterai plus de cristaux d'origine pour le compagnon Lu en empruntant un autre sentier. D'après mes expériences passées, nous devrions atteindre un total de 60 000 à 70 000 cristaux. »
 
-« Éclairez, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le monde aux sept couleurs et hocha silencieusement la tête.
+« Éclairez, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Cultivation... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le monde aux sept couleurs et hocha silencieusement la tête.

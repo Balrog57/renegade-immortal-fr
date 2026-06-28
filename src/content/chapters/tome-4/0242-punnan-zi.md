@@ -38,7 +38,7 @@ Il réfléchit un instant, puis se leva, agita ses manches et disparut.
 
 Lorsqu'il réapparut, il se trouvait déjà au sommet de la chaîne de montagnes Heng Yue. Punnan Zi s'agenouilla sur un genou, fixa le ciel et exécuta une série de sceaux complexes. À mesure que les signes se formaient, les nuages se densifièrent et une pression invisible commença à s'accumuler dans l'éther.
 
-Punnan Zi agita alors la main et déclara : « Moi, Punnan Zi, issu d'un pays de culture inférieur, souhaite emprunter un trésor magique. »
+Punnan Zi agita alors la main et déclara : « Moi, Punnan Zi, issu d'un pays de cultivation inférieur, souhaite emprunter un trésor magique. »
 
 À l'instant même où il prononça ces mots, deux faisceaux de lumière, l'un rouge et l'autre vert, jaillirent de la chaîne de montagnes Heng Yue. Les lueurs s'intensifièrent jusqu'à ce que toute l'énergie spirituelle du pays de Zhao converge vers les montagnes de Heng Yue. Les deux lumières se posèrent près de Punnan Zi, s'estompèrent et révélèrent leur véritable forme.
 
@@ -68,7 +68,7 @@ Dans les profondeurs de cette fosse se trouvait un cercueil de cristal noir. Ce 
 
 Parmi ces ossements jonchaient les restes d'humains et de bêtes, appartenant à tous ceux qui avaient été aspirés au cours des quatre derniers siècles.
 
-C'était là que cultivait l'individu que Teng Huit craignait le plus. C'était la zone de culture de Teng Un.
+C'était là que cultivait l'individu que Teng Huit craignait le plus. C'était la zone de cultivation de Teng Un.
 
 Teng Un était une légende au sein de la famille Teng.
 
@@ -96,7 +96,7 @@ Il ne semblait nullement affecté. Son corps dégageait une volonté de combat f
 
 Le visage de Wang Lin était livide. Il sentait clairement que, d'un instant à l'autre, les éclairs rouges du Royaume Ji avaient été bloqués au prix de la perte d'un bras.
 
-Une telle chose ne s'était jamais produite auparavant. Wang Lin pouvait confirmer que le niveau de culture de cet individu n'atteignait pas encore la Séparation Spirituelle, et pourtant, il pouvait parer une attaque du Royaume Ji.
+Une telle chose ne s'était jamais produite auparavant. Wang Lin pouvait confirmer que le niveau de cultivation de cet individu n'atteignait pas encore la Séparation Spirituelle, et pourtant, il pouvait parer une attaque du Royaume Ji.
 
 Dès que l'homme commença sa remontée fulgurante, Wang Lin entoura la zone avec son drapeau de restriction sans hésiter. Sa main forma un sceau et quatre-vingt-dix restrictions prirent la forme de dragons pour charger vers la fosse.
 

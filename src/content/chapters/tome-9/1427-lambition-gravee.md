@@ -56,7 +56,7 @@ La respiration du vieux Vermillion Bird devint rauque. Il était évident que l'
 
 « Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan du Vermillion Bird : le Parapluie du Royaume Brûlant !
 
-« Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma culture au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement !
+« Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma cultivation au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement !
 
 « Ce sort provient de l'Ancien Souverain Céleste. Ce vieil homme a appris par l'ancêtre que, dans sa ville natale, l'Ancien Souverain Céleste utilisa ce sort et détruisit un royaume entier peuplé de 10 milliards d'êtres. C'est pour cela qu'on l'appelle le "Royaume Brûlant" !
 
@@ -74,7 +74,7 @@ Il pensait initialement que le vieux Vermillion Bird lui transmettrait un sort d
 
 La respiration du vieux Vermillion Bird s'accéléra encore. Il agita la main et la tempête, qui s'était immobilisée, trembla puis commença à se dissiper.
 
-« Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici ! » Le vieux Vermillion Bird mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
+« Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici ! » Le vieux Vermillion Bird mordit le bout de sa langue et cracha un jet de sang chargé de sa cultivation du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
 
 Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
@@ -100,7 +100,7 @@ Si ces paroles étaient vraies, leur portée était terrifiante.
 
 « Ce sort... Qui diable l'a créé... Où l'Ancien Empereur Céleste l'a-t-il appris en secret... Si ce sort volé et incomplet suffit à détruire un royaume, qu'en serait-il s'il était complet... » Wang Lin leva la tête et regarda silencieusement le ciel. Il se sentit soudain aussi minuscule qu'un mortel contemplant l'immensité céleste.
 
-« Que vaut mon niveau de culture actuel... Quelle est la taille de ce monde ? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin prit une profonde inspiration et une détermination farouche remplit son regard.
+« Que vaut mon niveau de cultivation actuel... Quelle est la taille de ce monde ? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin prit une profonde inspiration et une détermination farouche remplit son regard.
 
 Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur !
 
@@ -112,7 +112,7 @@ Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. A
 
 Dans ce monde, certains choisissaient d'être mortels, d'autres devenaient des êtres célestes, et d'autres restaient subalternes. Tout était inégal. Il y avait de grandes injustices dans ce monde, mais il était aussi extrêmement juste !
 
-« Puisque quelqu'un a pu créer un tel sort et atteindre un niveau de culture inimaginable, alors moi, Wang Lin, je peux faire de même ! Bien que mon talent soit limité, cela ne sera pas la pierre qui me fera trébucher ! »
+« Puisque quelqu'un a pu créer un tel sort et atteindre un niveau de cultivation inimaginable, alors moi, Wang Lin, je peux faire de même ! Bien que mon talent soit limité, cela ne sera pas la pierre qui me fera trébucher ! »
 
 « Aujourd'hui, j'ai appris le sort du Royaume Brûlant, créé par un autre et volé plus tard par l'Ancien Empereur Céleste. À l'avenir... je veux que ce soient les autres qui apprennent mes sorts ! » L'expression de Wang Lin était empreinte d'une volonté de fer. Il ne rugit pas, il ne pleura pas ; seules ses paroles silencieuses résonnèrent dans son cœur !
 

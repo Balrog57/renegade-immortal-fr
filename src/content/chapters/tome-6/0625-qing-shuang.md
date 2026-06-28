@@ -64,7 +64,7 @@ Wang Lin prit une profonde inspiration et pointa le symbole du doigt. Celui-ci s
 
 Wang Lin avait utilisé le Son Démoniaque Céleste. Sa voix, chargée d'une puissance démoniaque, pénétra les oreilles de l'homme et s'entremêla à son âme originelle.
 
-Si Wang Lin n'avait pas utilisé le sort de recherche d'âme, c'était parce que, bien que la culture au stade intermédiaire de l'Ascendant du vieil homme ne soit qu'une apparence, son âme originelle possédait une puissance très différente de celle des gardiens célestes. Fidèle à sa prudence, Wang Lin n'aurait utilisé le sort de recherche d'âme qu'en dernier recours ou s'il avait la maîtrise totale de la situation.
+Si Wang Lin n'avait pas utilisé le sort de recherche d'âme, c'était parce que, bien que la cultivation au stade intermédiaire de l'Ascendant du vieil homme ne soit qu'une apparence, son âme originelle possédait une puissance très différente de celle des gardiens célestes. Fidèle à sa prudence, Wang Lin n'aurait utilisé le sort de recherche d'âme qu'en dernier recours ou s'il avait la maîtrise totale de la situation.
 
 Le regard vide du vieillard murmura : « Je viens de la Secte du Raffinement des Plumes, et mon nom est Huang Yu. Je suis entré dans cette Terre des Esprits Démoniaques car j'étais pourchassé par mes ennemis. Par la suite, je n'ai pas osé partir et j'ai décidé de m'installer ici. C'est plus sûr ainsi ; tant que je reste prudent, il n'y a aucun danger. »
 

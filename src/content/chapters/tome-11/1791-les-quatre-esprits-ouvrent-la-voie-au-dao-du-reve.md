@@ -54,7 +54,7 @@ Cette figure était floue, imprégnée d'une énergie démoniaque. Cette essence
 
 La brume mouvait d'un air terrifiant, mais elle sembla soudain s'apaiser pour devenir semblable à un miroir.
 
-Après avoir déployé quatre de ses trésors les plus puissants, l'expression de Xuan Luo resta imperturbable. Sa culture était transcendante et, ayant anticipé ce moment, il récupéra instantanément de sa dépense d'énergie. Il leva la main droite et forma un sceau. Un soleil couleur sang apparut soudainement au-dessus de sa paume.
+Après avoir déployé quatre de ses trésors les plus puissants, l'expression de Xuan Luo resta imperturbable. Sa cultivation était transcendante et, ayant anticipé ce moment, il récupéra instantanément de sa dépense d'énergie. Il leva la main droite et forma un sceau. Un soleil couleur sang apparut soudainement au-dessus de sa paume.
 
 Ce soleil était initialement invisible, mais sous le regard de Xuan Luo, des craquements retentirent. L'astre autrefois illusoire devint immédiatement corporel !
 

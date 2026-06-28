@@ -40,7 +40,7 @@ Plus le lignage d'un Céleste est pur, plus il est difficile pour autrui de le d
 
 À cause de cela, le jeune homme de la Rivière des Invocations s'était mépris, croyant qu'un Céleste était descendu. Il ne pouvait voir ce qui se passait au Quartier Général de l'Alliance ; il ne ressentait que l'énergie spirituelle céleste fulgurante provenant du Royaume Intérieur.
 
-« Le Céleste qui est descendu possède un lignage très pur et doit jouir d'un statut noble. Cependant, son niveau de culture n'est pas élevé, ce n'est qu'un Céleste de rang 7... J'ai autrefois connu une grande fortune en obtenant un héritage céleste. Mon niveau actuel est au début du stade de la Tribulation du Vide, ce qui équivaut à un Céleste Terrestre. Si je pouvais obtenir son lignage... » Songeait silencieusement le Vieux Fantôme Zhan.
+« Le Céleste qui est descendu possède un lignage très pur et doit jouir d'un statut noble. Cependant, son niveau de cultivation n'est pas élevé, ce n'est qu'un Céleste de rang 7... J'ai autrefois connu une grande fortune en obtenant un héritage céleste. Mon niveau actuel est au début du stade de la Tribulation du Vide, ce qui équivaut à un Céleste Terrestre. Si je pouvais obtenir son lignage... » Songeait silencieusement le Vieux Fantôme Zhan.
 
 Il existait un autre lieu dans le Royaume Intérieur. Une vaste étendue sous un ciel sombre. Cet endroit existait au sein du Royaume Intérieur, tout en n'existant pas vraiment.
 

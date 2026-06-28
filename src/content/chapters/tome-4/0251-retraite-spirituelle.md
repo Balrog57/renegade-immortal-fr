@@ -46,7 +46,7 @@ Toutefois, Wang Lin savait qu'il était peut-être trop vieux pour être son anc
 
 Ce jour-là, la capitale apparut devant eux.
 
-La cité principale de ce pays de culture de rang 4 était véritablement magnifique, mais aux yeux de Wang Lin, elle paraissait bien fade et dépourvue de relief. Sans le tourbillon d'énergie spirituelle, il ne daignerait même pas la regarder.
+La cité principale de ce pays de cultivation de rang 4 était véritablement magnifique, mais aux yeux de Wang Lin, elle paraissait bien fade et dépourvue de relief. Sans le tourbillon d'énergie spirituelle, il ne daignerait même pas la regarder.
 
 Wang Lin déploya son Sens Divin et la ville entière apparut dans son esprit. Dans la capitale, on comptait au total neuf tourbillons d'énergie spirituelle. Ce n'étaient pas des cultivateurs qui propageaient cette énergie, mais de gigantesques piliers noirs. La quantité d'énergie libérée dépendait de la taille de chaque pilier. Un pilier immense trônait au centre, entouré par les huit autres.
 
@@ -96,7 +96,7 @@ Peu après, les yeux de Wang Lin s'illuminèrent légèrement. Dans cette capita
 
 Bien que le niveau le plus élevé ne soit que d'environ la 12e ou la 14e couche de Condensation de Qi, c'était une rareté dans les autres pays.
 
-Après réflexion, il repensa aux piliers noirs. Il devina qu'il s'agissait là d'une particularité des pays de culture de rang 4.
+Après réflexion, il repensa aux piliers noirs. Il devina qu'il s'agissait là d'une particularité des pays de cultivation de rang 4.
 
 Wang Lin déambula tranquillement dans les rues jusqu'en après-midi. Il était évident que certaines boutiques n'étaient pas destinées aux mortels, puisqu'elles vendaient des trésors magiques pour les cultivateurs. Des restrictions à l'entrée de ces magasins empêchaient les mortels d'y pénétrer. Les habitants de la capitale semblaient en avoir conscience, car aucun ne tentait d'entrer.
 
@@ -116,7 +116,7 @@ Wang Lin s'écarta sur le côté, le regard devenu glacial.
 
 Le vieil homme passa devant lui sans s'arrêter, avant de faire volte-face soudainement. Son visage était empreint de surprise alors qu'il examinait attentivement Wang Lin : « Petit frère, je vois que tu es plein de talent et d'énergie. Tu ne sembles pas être un mortel ! »
 
-Wang Lin fronça les sourcils. Avec son Sens Divin, il voyait aisément que cet homme n'était qu'un simple mortel sans aucune culture. Le corps du vieillard était également couvert de blessures, signes de mauvais traitements constants.
+Wang Lin fronça les sourcils. Avec son Sens Divin, il voyait aisément que cet homme n'était qu'un simple mortel sans aucune cultivation. Le corps du vieillard était également couvert de blessures, signes de mauvais traitements constants.
 
 N'ayant aucun intérêt pour cet individu, Wang Lin se détourna et s'en alla. Si ce vieil homme continuait à l'importuner, il n'hésiterait pas à l'envoyer en enfer.
 
@@ -126,7 +126,7 @@ Wang Lin s'arrêta net. Toute la pression contenue dans son corps fut brusquemen
 
 Le vieillard ne ressentit aucun inconfort face à l'aura de Wang Lin. Il plaça ses mains derrière son dos, leva les yeux vers le ciel et, d'une voix empreinte de sagesse séculaire, répondit : « Tu n'as pas besoin de savoir qui je suis. Tu as juste besoin de savoir que je peux t'aider à atteindre la Formation de l'Âme. »
 
-Les yeux de Wang Lin s'illuminèrent. Quel que soit son aspect, cet homme n'était qu'un mortel, et pourtant il avait été capable d'identifier instantanément son niveau de culture. La seule possibilité était que le niveau de ce vieillard fût bien au-delà de la Formation de l'Âme ; ainsi, en dissimulant sa puissance, il était devenu indétectable pour Wang Lin.
+Les yeux de Wang Lin s'illuminèrent. Quel que soit son aspect, cet homme n'était qu'un mortel, et pourtant il avait été capable d'identifier instantanément son niveau de cultivation. La seule possibilité était que le niveau de ce vieillard fût bien au-delà de la Formation de l'Âme ; ainsi, en dissimulant sa puissance, il était devenu indétectable pour Wang Lin.
 
 Wang Lin fronça les sourcils et demanda : « Comment puis-je atteindre la Formation de l'Âme ? »
 
@@ -178,7 +178,7 @@ Le visage de Wang Lin s'assombrit. Cet homme d'âge moyen était également un c
 
 Pourtant, le vieil homme était toujours en vie, ce qui signifiait que l'affaire n'était pas si simple. À moins que Wang Lin ne fût sa toute première victime, il serait déjà mort. Si un cultivateur se faisait duper par un mortel, peu importe qui il soit, il ne laisserait jamais le vieillard s'en tirer ainsi.
 
-Le plus intrigant restait cette capacité de l'homme à percer instantanément la culture d'autrui. Si la personne était au stade de l'Établissement des Fondations, il disait Formation du Noyau. S'il s'agissait d'un stade de Formation du Noyau, il parlait d'Âme Naissante ; et si la personne était comme Wang Lin, au stade de l'Âme Naissante, il évoquait la Formation de l'Âme.
+Le plus intrigant restait cette capacité de l'homme à percer instantanément la cultivation d'autrui. Si la personne était au stade de l'Établissement des Fondations, il disait Formation du Noyau. S'il s'agissait d'un stade de Formation du Noyau, il parlait d'Âme Naissante ; et si la personne était comme Wang Lin, au stade de l'Âme Naissante, il évoquait la Formation de l'Âme.
 
 Wang Lin suivit le vieillard tout l'après-midi, voulant découvrir son secret.
 
@@ -186,7 +186,7 @@ En une après-midi, le vieillard avait escroqué quatre personnes, dont Wang Lin
 
 Mais les trois autres, y compris l'homme en robe violette, n'avaient aucune intention de se venger. Il semblait que les paroles du vieillard possédaient une sorte de pouvoir magique sur eux.
 
-Plus Wang Lin observait, plus il était choqué. Le vieillard semblait posséder une compréhension profonde de la manière de franchir le prochain royaume de culture. Il lui suffisait de lancer quelques phrases pour leur donner une forme d'illumination.
+Plus Wang Lin observait, plus il était choqué. Le vieillard semblait posséder une compréhension profonde de la manière de franchir le prochain royaume de cultivation. Il lui suffisait de lancer quelques phrases pour leur donner une forme d'illumination.
 
 Par conséquent, aucun d'eux ne le soupçonnait d'être un escroc. Au contraire, ils avaient l'impression d'avoir rencontré un Senior et se montraient extrêmement respectueux.
 

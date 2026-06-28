@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1007 - Warning
 slug: avertissement
 ---
-Le niveau de culture actuel de Wang Lin n'était plus celui d'autrefois ; peu de situations pouvaient désormais lui inspirer un sentiment de danger, surtout après être devenu un Dieu Ancien Royal à 5 étoiles.
+Le niveau de cultivation actuel de Wang Lin n'était plus celui d'autrefois ; peu de situations pouvaient désormais lui inspirer un sentiment de danger, surtout après être devenu un Dieu Ancien Royal à 5 étoiles.
 
-À moins que le niveau de culture de l'ennemi ne soit au stade avancé du Nettoyage du Nirvana ou supérieur, il était impossible pour Wang Lin de ressentir une menace réelle.
+À moins que le niveau de cultivation de l'ennemi ne soit au stade avancé du Nettoyage du Nirvana ou supérieur, il était impossible pour Wang Lin de ressentir une menace réelle.
 
 Pourtant, dès l'instant où la silhouette blanche apparut, le sentiment de crise de Wang Lin atteignit son paroxysme.
 
@@ -48,7 +48,7 @@ En d'autres circonstances, face à une telle mise en garde et une attaque aussi 
 
 Cependant, c'était un voyage que Wang Lin devait accomplir. Tout cela était pour Zhou Yi. Son vœu le plus cher était de ressusciter Qing Shuang, et celui qui avait les meilleures chances de le faire était son père, Qing Lin !
 
-Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme il l'était envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la culture, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la culture.
+Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme il l'était envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la cultivation, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la cultivation.
 
 De plus, bien que le poison en Situ Nan soit actuellement réprimé, ils savaient tous deux que si ce n'était pas traité, les conséquences seraient catastrophiques.
 

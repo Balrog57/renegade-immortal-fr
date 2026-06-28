@@ -34,7 +34,7 @@ Il détourna son regard de l'épée qu'il affinait, prit une profonde inspiratio
 
 « Flammes, rassemblez-vous ! » ordonna Wang Lin d'une voix basse. Dès qu'il parla, toute l'énergie originelle du feu de la planète trembla et convergea vers lui.
 
-Ce n'était pas seulement la planète de culture qui réagissait, mais tout le champ d'étoiles en feu. Une fois la masse d'énergie originelle du feu rassemblée, Wang Lin pointa l'épée brisée. L'énergie projetée se rua sur l'arme, multipliant par plusieurs la vitesse à laquelle l'épée fondait.
+Ce n'était pas seulement la planète de cultivation qui réagissait, mais tout le champ d'étoiles en feu. Une fois la masse d'énergie originelle du feu rassemblée, Wang Lin pointa l'épée brisée. L'énergie projetée se rua sur l'arme, multipliant par plusieurs la vitesse à laquelle l'épée fondait.
 
 Pourtant, de la même manière, l'énergie de massacre émanant de l'épée s'intensifia pour contrer les flammes.
 

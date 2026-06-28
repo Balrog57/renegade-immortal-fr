@@ -42,7 +42,7 @@ Dès son apparition, il regarda immédiatement en arrière et commença à réfl
 
 Les yeux de Wang Lin s'illuminèrent ; il se transforma en un rayon de lumière et s'élança. Des ondulations apparurent sous ses pas et, peu de temps après, Wang Lin fusionna avec le monde pour disparaître.
 
-Dans le Domaine Nord, à l'opposé du Serpent Moongazer, presque à l'autre extrémité du domaine, se trouvait la planète Qing Ling ! Ce jour-là, une ondulation se produisit à l'extérieur de la planète et Wang Lin en émergea. Il contempla la planète de culture familière qui s'offrait à lui, laissant poindre une pointe de mélancolie.
+Dans le Domaine Nord, à l'opposé du Serpent Moongazer, presque à l'autre extrémité du domaine, se trouvait la planète Qing Ling ! Ce jour-là, une ondulation se produisit à l'extérieur de la planète et Wang Lin en émergea. Il contempla la planète de cultivation familière qui s'offrait à lui, laissant poindre une pointe de mélancolie.
 
 « Je suis enfin de retour ! » Wang Lin fit un pas, se changea en un rayon de lumière et fonça vers la planète Qing Ling. Cependant, alors qu'il approchait, plusieurs auras puissantes furent projetées vers lui avec une intention hostile.
 
@@ -54,19 +54,19 @@ Wang Lin regarda le vieil homme et les membres du Clan des Immortels Choisis et 
 
 Le vieil homme prit une profonde inspiration et répondit : « Bénéficiaire, la route fut sûre. Cependant, en chemin, nous avons appris qu'une famille Yao du Système Stellaire d'Allheaven avait lancé une chasse contre vous... »
 
-Wang Lin secoua la tête. « Cette affaire est déjà derrière nous, n'en parlez plus. Puisque vous êtes ici, installez-vous. Je dois entrer en culture fermée pendant plusieurs mois ; protégez bien cet endroit. »
+Wang Lin secoua la tête. « Cette affaire est déjà derrière nous, n'en parlez plus. Puisque vous êtes ici, installez-vous. Je dois entrer en cultivation fermée pendant plusieurs mois ; protégez bien cet endroit. »
 
 Le vieil homme hocha rapidement la tête.
 
 Le corps de Wang Lin vacilla et il ne prêta plus attention au Clan des Immortels Choisis. Il se téléporta au sommet du pic Heng Yun ! Tout était tel qu'il l'avait laissé, la grotte était toujours là.
 
-Après être entré dans la grotte, Wang Lin activa immédiatement les formations. La zone entourant le pic Heng Yun fut aussitôt scellée. Puis il s'assit, ferma les yeux et commença sa culture.
+Après être entré dans la grotte, Wang Lin activa immédiatement les formations. La zone entourant le pic Heng Yun fut aussitôt scellée. Puis il s'assit, ferma les yeux et commença sa cultivation.
 
 Quelques heures plus tard, la nuit était déjà tombée. La lumière des étoiles se déversait sur la terre et tout était plongé dans le calme.
 
 Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol dans un spectacle magnifique. Wang Lin ouvrit la bouche pour expulser une bouffée d'air vicié. Depuis son départ pour le Royaume Céleste, il avait été épuisé. Même à l'intérieur du Serpent Moongazer, il avait peine à trouver un moment de répit.
 
-Pourtant, en cet instant, sur sa propre planète de culture, Wang Lin pouvait enfin se détendre pleinement. Il leva les yeux vers le ciel à l'extérieur de la grotte et se mit à méditer. Après un long moment, il détourna son regard et murmura : « La chasse de la famille Yao ne s'arrêtera pas ; je ne dispose pas de beaucoup de temps ! »
+Pourtant, en cet instant, sur sa propre planète de cultivation, Wang Lin pouvait enfin se détendre pleinement. Il leva les yeux vers le ciel à l'extérieur de la grotte et se mit à méditer. Après un long moment, il détourna son regard et murmura : « La chasse de la famille Yao ne s'arrêtera pas ; je ne dispose pas de beaucoup de temps ! »
 
 Tout en réfléchissant, Wang Lin frappa son sac de rangement et le grand fourneau apparut, dégageant une aura antique. Les yeux de Wang Lin brillèrent alors qu'il cracha une bouffée d'énergie originelle qui enveloppa l'objet pour commencer à le raffiner.
 
@@ -110,4 +110,4 @@ Après avoir expulsé une bouffée de gaz gris hors de la grotte, Wang Lin ouvri
 
 L'énergie originelle pénétra le corps de la jeune femme et forma un vortex qui continua d'absorber l'énergie séparée de son être.
 
-« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de culture augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade de Scryer du Nirvana ! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.
+« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de cultivation augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade de Scryer du Nirvana ! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.

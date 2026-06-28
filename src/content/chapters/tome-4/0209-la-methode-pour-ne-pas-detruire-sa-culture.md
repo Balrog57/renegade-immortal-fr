@@ -12,7 +12,7 @@ Quelques jours plus tard, Wang Lin retourna à la grotte souterraine qu'il avait
 
 Wang Lin prit une profonde inspiration et ferma lentement les yeux. Il guida l'énergie spirituelle chaotique dans son corps pour qu'elle circule le long de ses méridiens. Le temps s'écoula. Il fit lentement circuler son énergie spirituelle à travers son corps et son noyau afin d'en réparer les dommages.
 
-Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau.
+Peu à peu, son noyau se rétablit et sa cultivation retrouva le sommet du stade avancé de la Formation du Noyau.
 
 Simultanément, Wang Lin coupa brusquement la circulation de son pouvoir spirituel dans ses canaux. Ensuite, il rassembla l'énergie spirituelle de son corps et la projeta violemment contre la restriction du lotus.
 
@@ -50,7 +50,7 @@ Le seul problème résidait dans la percée vers le stade de l'Âme Naissante, c
 
 Après avoir quitté la grotte, Wang Lin atteignit sa vitesse maximale, son corps fendant l'espace telle une météorite.
 
-Le lendemain matin, Wang Lin arriva à l'ancienne grotte de culture où il avait atteint le stade de l'Âme Naissante avec Qiu Siping. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
+Le lendemain matin, Wang Lin arriva à l'ancienne grotte de cultivation où il avait atteint le stade de l'Âme Naissante avec Qiu Siping. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
 
 Bientôt, un tunnel fut creusé par la lame. En contemplant le passage ainsi formé, Wang Lin pensa : « Adieu, Mer des Démons ! »
 
@@ -100,6 +100,6 @@ Une fois cela fait, si les conditions le permettaient, Wang Lin entamerait son p
 
 C'était un projet qui exigerait énormément de temps. Il devait préparer de nombreux éléments pour s'assurer que son plan aboutisse sans encombre.
 
-Détruire sa culture signifiait devoir tout recommencer, ce qu'il refusait catégoriquement. À l'inverse, ne pas détruire sa culture signifierait rester bloqué au stade avancé de la Formation du Noyau, incapable de mener sa vengeance.
+Détruire sa cultivation signifiait devoir tout recommencer, ce qu'il refusait catégoriquement. À l'inverse, ne pas détruire sa cultivation signifierait rester bloqué au stade avancé de la Formation du Noyau, incapable de mener sa vengeance.
 
-Son objectif était de franchir le stade de l'Âme Naissante sans sacrifier sa culture. Avec ces deux impératifs en tête, il ne restait qu'une seule méthode qui pourrait, tout au plus, fonctionner.
+Son objectif était de franchir le stade de l'Âme Naissante sans sacrifier sa cultivation. Avec ces deux impératifs en tête, il ne restait qu'une seule méthode qui pourrait, tout au plus, fonctionner.

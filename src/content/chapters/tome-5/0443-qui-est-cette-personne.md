@@ -22,13 +22,13 @@ Parmi les seize cultivateurs de la Transformation de l'Âme, un seul se trouvait
 
 Ces seize personnes étaient dispersées autour de l'entrée de la Tombe de Suzaku, leurs regards fixés sur l'ouverture. Si une lueur verte apparaissait et qu'une ondulation se propageait, cela signifiait que quelqu'un était mort à l'intérieur et qu'une nouvelle place s'était libérée.
 
-Avec ces seize experts en attente, personne dans les environs n'osait s'approcher. Tous attendaient que ces seize individus entrent pour ensuite se disputer le droit de passer à leur tour. Après tout, pénétrer dans ce lieu offrait la chance de récupérer son fragment d'âme. Pour une chance de sauver leur propre vie, tous les habitants de la planète Suzaku étaient prêts à tout donner. Plus leur niveau de culture était élevé, plus cette détermination était absolue.
+Avec ces seize experts en attente, personne dans les environs n'osait s'approcher. Tous attendaient que ces seize individus entrent pour ensuite se disputer le droit de passer à leur tour. Après tout, pénétrer dans ce lieu offrait la chance de récupérer son fragment d'âme. Pour une chance de sauver leur propre vie, tous les habitants de la planète Suzaku étaient prêts à tout donner. Plus leur niveau de cultivation était élevé, plus cette détermination était absolue.
 
 La silhouette de Wang Lin approchait au loin. Il portait une robe blanche qui lui conférait un air de grand calme.
 
 Tout au long du trajet, Situ Nan lui avait exposé en détail les enjeux de la Tombe de Suzaku. Cependant, Wang Lin n'était pas très confiant pour ce voyage. La Tombe de Suzaku semblait bien plus dangereuse qu'il ne l'avait initialement prévu.
 
-« Situ Nan m'a offert un jade qui me permettra de quitter la Tombe de Suzaku ; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de Culture Planétaire pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'épreuve est non seulement extrêmement difficile, mais mon âme en sera mutilée. Cela affectera ma future culture. »
+« Situ Nan m'a offert un jade qui me permettra de quitter la Tombe de Suzaku ; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de Cultivation Planétaire pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'épreuve est non seulement extrêmement difficile, mais mon âme en sera mutilée. Cela affectera ma future cultivation. »
 
 La silhouette de Wang Lin se rapprochait lentement. Autour du mont Suzaku, les cultivateurs discutaient entre eux, cultivaient en silence ou étaient plongés dans leurs pensées. Dès l'arrivée de Wang Lin, certains levèrent la tête pour le regarder. Leurs yeux s'illuminèrent un instant avant qu'ils ne baissent précipitamment le regard pour lui laisser le passage.
 
@@ -56,7 +56,7 @@ Les yeux du vieil homme s'illuminèrent et il tonna : « Silence ! » Tandis que
 
 Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à mille pieds du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
 
-« Maître, quel est le niveau de culture de cet homme ? Pourrait-il s'agir d'un vieux monstre de la Transformation de l'Âme ? Pourtant, je n'ai détecté aucune trace d'énergie spirituelle céleste dans son corps », envoya le jeune homme arrogant par transmission vocale après le départ de Wang Lin.
+« Maître, quel est le niveau de cultivation de cet homme ? Pourrait-il s'agir d'un vieux monstre de la Transformation de l'Âme ? Pourtant, je n'ai détecté aucune trace d'énergie spirituelle céleste dans son corps », envoya le jeune homme arrogant par transmission vocale après le départ de Wang Lin.
 
 « Bien sûr que tu n'as rien remarqué ; même moi, je ne l'ai perçu qu'en sa proximité immédiate. Cet homme n'est pas seulement au stade avancé de la Transformation de l'Âme, c'est le genre d'expert qui se situe juste en dessous des cultivateurs Ascendants. Il ne faut jamais s'attirer ses foudres. Seuls les experts du stade avancé de la Transformation de l'Âme peuvent atteindre cet état où l'énergie céleste circule naturellement dans leur corps sans laisser transparaître le moindre signe », répondit le vieil homme par transmission.
 

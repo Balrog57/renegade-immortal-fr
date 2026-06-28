@@ -18,11 +18,11 @@ Ainsi continua Wang Lin, lançant des pilules tandis que la bête moustique s'en
 
 La bête moustique poussa un rugissement et fendit le ciel comme l'éclair.
 
-Tout au long du trajet, Wang Lin se sentait plutôt satisfait. Sa vengeance était accomplie et son niveau de culture avait atteint de nouveaux sommets. Cette réussite lui procurait une immense joie. Wang Lin laissa échapper un rire qui emplissait les cieux ; la bête moustique, en dessous de lui, sembla le percevoir et rugit de concert avec lui.
+Tout au long du trajet, Wang Lin se sentait plutôt satisfait. Sa vengeance était accomplie et son niveau de cultivation avait atteint de nouveaux sommets. Cette réussite lui procurait une immense joie. Wang Lin laissa échapper un rire qui emplissait les cieux ; la bête moustique, en dessous de lui, sembla le percevoir et rugit de concert avec lui.
 
-À mesure que leurs voix résonnaient, elles alertèrent le pays de culture situé en dessous d'eux. Plusieurs sens divins vinrent vérifier l'origine du bruit, mais dès qu'ils remarquèrent le niveau de culture de Wang Lin ainsi que la bête qui l'accompagnait, ils se retirèrent immédiatement, n'osant pas les déranger.
+À mesure que leurs voix résonnaient, elles alertèrent le pays de cultivation situé en dessous d'eux. Plusieurs sens divins vinrent vérifier l'origine du bruit, mais dès qu'ils remarquèrent le niveau de cultivation de Wang Lin ainsi que la bête qui l'accompagnait, ils se retirèrent immédiatement, n'osant pas les déranger.
 
-À ce moment-là, dans une ville humaine du pays de culture situé sous Wang Lin, un vieil homme aux allures négligées, un sourire aux lèvres, dit à un jeune cultivateur au stade de l'Établissement des Fondations : « Petit frère, je vois que tu es très talentueux et plein d'énergie. Tu n'es certainement pas une personne ordinaire. Cependant, sans guide, j'ai bien peur que tu n'aies aucune chance d'atteindre le stade de la Formation du Noyau. »
+À ce moment-là, dans une ville humaine du pays de cultivation situé sous Wang Lin, un vieil homme aux allures négligées, un sourire aux lèvres, dit à un jeune cultivateur au stade de l'Établissement des Fondations : « Petit frère, je vois que tu es très talentueux et plein d'énergie. Tu n'es certainement pas une personne ordinaire. Cependant, sans guide, j'ai bien peur que tu n'aies aucune chance d'atteindre le stade de la Formation du Noyau. »
 
 Le jeune cultivateur fixa le vieil homme et cria : « Dégage ! Si tu continues à me barrer la route, ne me reproche pas d'être impitoyable ! »
 
@@ -42,7 +42,7 @@ C'était le fruit du travail acharné de Wang Lin ces derniers jours.
 
 Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assis sur le dos de la bête moustique, Wang Lin traversa un réseau de transfert après l'autre avant de rejoindre enfin la Mer des Démons.
 
-Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques de plusieurs pays de culture et les représailles des cultivateurs démoniaques, le conflit était arrivé à une impasse.
+Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques de plusieurs pays de cultivation et les représailles des cultivateurs démoniaques, le conflit était arrivé à une impasse.
 
 L'objectif de Wang Lin était la terre de l'Ancien Dieu. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
@@ -50,7 +50,7 @@ Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait acheve
 
 Il voulait tout mettre en œuvre pour se préparer à l'ouverture du royaume céleste de la Pluie. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes.
 
-Wang Lin prédisait que tant qu'il n'entrerait pas dans le premier essai, Ta Sen ne pourrait pas le détecter. Et même si Ta Sen y parvenait, avec son niveau de culture, il serait capable de s'éclipser avant d'être capturé.
+Wang Lin prédisait que tant qu'il n'entrerait pas dans le premier essai, Ta Sen ne pourrait pas le détecter. Et même si Ta Sen y parvenait, avec son niveau de cultivation, il serait capable de s'éclipser avant d'être capturé.
 
 Fort de cette résolution, il enfila le chapeau de paille obtenu auprès du vieil homme négligé et fonça droit vers la terre de l'Ancien Dieu. Sous l'effet protecteur du chapeau, les cultivateurs les plus faibles n'osaient même pas l'entraver et le laissaient passer.
 
@@ -82,11 +82,11 @@ Bientôt, Wang Lin aperçut les anneaux singuliers des Anneaux Brisés du Chaos.
 
 Le vieil homme n'était plus sur le dos de la tortue-dragon ; il contemplait désormais les Anneaux Brisés du Chaos. Il sembla remarquer l'arrivée de Wang Lin, mais ne lui jeta qu'un bref regard avant de détourner les yeux. Compte tenu de la vitesse de Wang Lin, le vieil homme était convaincu qu'il s'agissait d'un cultivateur de la Formation de l'Âme.
 
-Le regard de Wang Lin restait serein. Après avoir réfléchi un moment, il trouva un endroit pour s'asseoir. Bien qu'il ait fermé les yeux pour feindre la culture, son sens divin demeurait en alerte. Il voulait découvrir le véritable objectif du vieil homme. Si celui-ci comptait aussi entrer dans la terre de l'Ancien Dieu, Wang Lin n'y pénétrerait pas en premier, mais attendrait que le vieil homme soit entré.
+Le regard de Wang Lin restait serein. Après avoir réfléchi un moment, il trouva un endroit pour s'asseoir. Bien qu'il ait fermé les yeux pour feindre la cultivation, son sens divin demeurait en alerte. Il voulait découvrir le véritable objectif du vieil homme. Si celui-ci comptait aussi entrer dans la terre de l'Ancien Dieu, Wang Lin n'y pénétrerait pas en premier, mais attendrait que le vieil homme soit entré.
 
 Le vieil homme regarda à nouveau Wang Lin et dit soudainement : « Puisque ce compagnon cultivateur est également présent, je suppose que vous êtes ici pour collecter du Feu d'Aurora. Que diriez-vous de pénétrer ensemble ? »
 
-L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurora. Rien dans les souvenirs de Tu Si ni dans son propre parcours de culture ne mentionnait une telle chose ; il n'en avait jamais entendu parler.
+L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurora. Rien dans les souvenirs de Tu Si ni dans son propre parcours de cultivation ne mentionnait une telle chose ; il n'en avait jamais entendu parler.
 
 Il fit paraître sa voix plus rauque et rit : « Je ne suis pas intéressé par une collaboration. »
 

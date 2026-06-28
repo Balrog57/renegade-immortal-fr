@@ -42,9 +42,9 @@ Au sol, une cité mortelle s'étendait sous la nuit pluvieuse. Peu de gens circu
 
 Cependant, au sommet d'une montagne lointaine se tenait un homme !
 
-Cet homme avait les cheveux blancs et des yeux semblables à des éclairs. Il était comme un soleil dans cette nuit venteuse et pluvieuse. Il se tenait droit, son corps dégageant une culture de pointe au stade de la Formation de l'Âme. Ses cheveux blancs flottaient au vent tandis que ses vêtements claquaient bruyamment.
+Cet homme avait les cheveux blancs et des yeux semblables à des éclairs. Il était comme un soleil dans cette nuit venteuse et pluvieuse. Il se tenait droit, son corps dégageant une cultivation de pointe au stade de la Formation de l'Âme. Ses cheveux blancs flottaient au vent tandis que ses vêtements claquaient bruyamment.
 
-« Moi, Liu Bei, j'ai commencé la culture à l'âge de sept ans. J'ai été éclairé par les changements du monde et j'ai observé le mouvement des vents et des nuages. J'ai atteint le stade de la Formation de l'Âme à 372 ans, et maintenant, après plus de 500 ans, j'ai atteint le sommet de ce stade. Aujourd'hui, je vais briser ce monde pour accueillir la rétribution divine et entrer dans le Royaume Céleste ! » La voix du vieil homme était douce, comme s'il se parlait à lui-même, mais sa tête était levée vers les cieux comme s'il rugissait face au firmament !
+« Moi, Liu Bei, j'ai commencé la cultivation à l'âge de sept ans. J'ai été éclairé par les changements du monde et j'ai observé le mouvement des vents et des nuages. J'ai atteint le stade de la Formation de l'Âme à 372 ans, et maintenant, après plus de 500 ans, j'ai atteint le sommet de ce stade. Aujourd'hui, je vais briser ce monde pour accueillir la rétribution divine et entrer dans le Royaume Céleste ! » La voix du vieil homme était douce, comme s'il se parlait à lui-même, mais sa tête était levée vers les cieux comme s'il rugissait face au firmament !
 
 « Si j'échoue à cette rétribution divine, je me réincarnerai pour cultiver à nouveau. Si je réussis, je vous attendrai au Royaume Céleste ! » Les yeux du vieil homme s'illuminèrent alors qu'il agitait sa manche, déclenchant un grondement tonitruant !
 
@@ -84,7 +84,7 @@ Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une
 
 Le vieil homme nommé Liu Bei regarda avec stupeur les plus de dix silhouettes dans les nuages de rétribution et sentit son cuir chevelu s'engourdir. Il ne s'attendait pas à ce que sa rétribution attire autant d'êtres célestes !
 
-Cependant, un sentiment de fierté envahit également son cœur. Il poussa un rugissement, déploya toute sa culture et chargea vers la rétribution divine !
+Cependant, un sentiment de fierté envahit également son cœur. Il poussa un rugissement, déploya toute sa cultivation et chargea vers la rétribution divine !
 
 Le grondement assourdissant secoua les cieux, faisant trembler le monde et dispersant la pluie ! Une fois l'éclair passé, le vieil homme avait le visage livide. Plusieurs de ses trésors s'étaient brisés devant lui.
 
@@ -102,7 +102,7 @@ Avant d'entrer dans ces 7 Millions de Mondes, cette question ne s'était jamais 
 
 Ces paroles résonnèrent différemment aux oreilles de Wang Lin. Il ferma les yeux, et une immense vague secoua son esprit. Il commençait à comprendre...
 
-Des grondements tonitruants éclatèrent alors que la deuxième, la troisième, la quatrième et la cinquième rétribution divine s'abattaient sous le contrôle de Zhang Jingyun. À ce moment, l'expression de ce dernier était déformée par une excitation sans fin. Le sentiment qu'il éprouvait était mille, dix mille fois plus exaltant que la culture duale !
+Des grondements tonitruants éclatèrent alors que la deuxième, la troisième, la quatrième et la cinquième rétribution divine s'abattaient sous le contrôle de Zhang Jingyun. À ce moment, l'expression de ce dernier était déformée par une excitation sans fin. Le sentiment qu'il éprouvait était mille, dix mille fois plus exaltant que la cultivation duale !
 
 « Je suis le Dao Céleste, et je commande au tonnerre ! »
 

@@ -66,19 +66,19 @@ Seule la marionnette de Zhou Gang ne subit aucun dommage. Elle s'interrompit bru
 
 Wang Lin ricana intérieurement : « Fais un pas de plus et tu mourras ! »
 
-Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia : « Cher compagnon de culture, je vous en prie, ayez pitié ! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas irréparable ! »
+Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia : « Cher compagnon de cultivation, je vous en prie, ayez pitié ! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de cultivation de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas irréparable ! »
 
 Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice pénétrer son corps. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 
 Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'une guerre. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Ses proches avaient rassemblé une fortune colossale pour lui acheter un corps auprès de la Secte des Cadavres.
 
-Les corps fournis par la Secte des Cadavres étaient célèbres dans les pays de culture de rang 4 et 5. Ils possédaient tous un talent exceptionnel et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte des Cadavres offrait une solution satisfaisante.
+Les corps fournis par la Secte des Cadavres étaient célèbres dans les pays de cultivation de rang 4 et 5. Ils possédaient tous un talent exceptionnel et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte des Cadavres offrait une solution satisfaisante.
 
 Plus important encore, ces corps ne présentaient aucun défaut et, moyennant un supplément, une protection totale était garantie durant le processus de possession.
 
 De plus, les recherches de la Secte des Cadavres sur l'art de la possession avaient atteint un niveau prodigieux ; ils fournissaient des instructions extrêmement détaillées pour guider le possesseur lors de la transition.
 
-Si l'on pouvait payer le prix, on pouvait choisir n'importe quel corps, quel que soit son niveau de culture. Comme chacun le sait, pour un cultivateur de l'Âme Naissante, le corps idéal est celui d'un autre cultivateur de l'Âme Naissante. Utiliser le corps d'un expert de la Formation du Noyau affaiblirait considérablement sa culture et prendrait une éternité à récupérer.
+Si l'on pouvait payer le prix, on pouvait choisir n'importe quel corps, quel que soit son niveau de cultivation. Comme chacun le sait, pour un cultivateur de l'Âme Naissante, le corps idéal est celui d'un autre cultivateur de l'Âme Naissante. Utiliser le corps d'un expert de la Formation du Noyau affaiblirait considérablement sa cultivation et prendrait une éternité à récupérer.
 
 Pour ceux qui n'avaient pas les moyens d'acquérir un corps de la Formation du Noyau, il ne restait que les modèles d'Établissement des Fondations à bas prix. Même pour un cultivateur de l'Âme Naissante, le temps nécessaire pour retrouver son niveau initial serait alors interminable.
 
@@ -92,7 +92,7 @@ Cependant, la Secte des Cadavres peut résoudre ce problème si le prix est pay�
 
 C'est le plus grand secret de la Secte des Cadavres, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6 des corps parfaitement adaptés.
 
-C'est une organisation puissante et mystérieuse. Les chefs de chaque sous-secte savent seulement que la secte principale réside dans un pays de culture de rang 5.
+C'est une organisation puissante et mystérieuse. Les chefs de chaque sous-secte savent seulement que la secte principale réside dans un pays de cultivation de rang 5.
 
 Mais le véritable quartier général se trouve-t-il réellement dans un pays de rang 5 ? Personne n'a la réponse.
 

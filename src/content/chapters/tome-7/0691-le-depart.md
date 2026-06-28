@@ -54,9 +54,9 @@ La statue représentait Sun Tai. Il affichait une expression arrogante en regard
 
 Wang Ping baissa la tête et murmura : « Papa, pourquoi ne me laisses-tu pas étudier les sorts immortels que grand-père Sun a laissés derrière lui... »
 
-Wang Lin soupira. En fin de compte, Sun Tai n'avait pas respecté sa décision sur ce point. Il avait profité du fait d'avoir adopté Wang Ping pour lui transmettre secrètement des techniques de culture.
+Wang Lin soupira. En fin de compte, Sun Tai n'avait pas respecté sa décision sur ce point. Il avait profité du fait d'avoir adopté Wang Ping pour lui transmettre secrètement des techniques de cultivation.
 
-Rien de tout cela n'avait échappé à Wang Lin. Si Sun Tai n'avait pas tenté d'impartir sa méthode de culture à Wang Ping, il ne serait pas mort quatre ans plus tôt que prévu.
+Rien de tout cela n'avait échappé à Wang Lin. Si Sun Tai n'avait pas tenté d'impartir sa méthode de cultivation à Wang Ping, il ne serait pas mort quatre ans plus tôt que prévu.
 
 En tant que père, Wang Lin n'était pas du genre à agir sans consulter les autres. Il regarda Wang Ping. Cet enfant avait hérité des traits de sa mère, mais au cours de ces seize années, il avait acquis son calme.
 
@@ -64,7 +64,7 @@ Lorsque les yeux de Wang Ping brillaient de sagesse, Wang Lin avait l'impression
 
 Wang Lin détourna le regard et dit doucement : « Parce que la vie d'un cultivateur ne te convient pas. »
 
-Un léger sourire apparut sur les lèvres de Wang Ping qui leva les yeux vers son père : « Papa, je n'ai jamais pratiqué les méthodes de culture que grand-père Sun m'a données, pas une seule fois. »
+Un léger sourire apparut sur les lèvres de Wang Ping qui leva les yeux vers son père : « Papa, je n'ai jamais pratiqué les méthodes de cultivation que grand-père Sun m'a données, pas une seule fois. »
 
 Wang Lin hocha la tête. Il le savait parfaitement. Bien que Sun Tai lui ait transmis ses connaissances, Wang Ping ne les avait jamais cultivées.
 
@@ -72,7 +72,7 @@ Wang Ping baissa la tête et demanda : « Papa, tu... tu es aussi un immortel, n
 
 Les yeux de Wang Lin trahirent les vicissitudes du temps et il répondit lentement : « Pas un immortel, juste un cultivateur. »
 
-Wang Ping réfléchit un instant avant de demander : « Papa, veux-tu que je vive une vie ordinaire et que je ne suive pas tes traces dans la voie de la culture ? »
+Wang Ping réfléchit un instant avant de demander : « Papa, veux-tu que je vive une vie ordinaire et que je ne suive pas tes traces dans la voie de la cultivation ? »
 
 La lune s'éleva progressivement dans le ciel. Lorsque sa lumière tomba sur la terre, elle portait une pointe de froideur sous sa douceur. Une brise légère fit osciller la lampe ; la flamme vacilla et se mêla à la clarté lunaire qui enveloppait la cour.
 
@@ -94,7 +94,7 @@ Wang Ping resta plongé dans ses pensées. Après un long moment, il poussa un s
 
 Son père n'avait pas manifesté sa majesté, mais dans le cœur de Wang Ping, elle était d'une puissance insurmontable. Il ne pouvait que se soumettre à la volonté de son père et mener une vie ordinaire.
 
-« Hormis la culture, je peux te donner tout le reste du monde ! » Après que Wang Ping eut pris ses médicaments et s'était couché, la voix de Wang Lin flotta doucement vers lui.
+« Hormis la cultivation, je peux te donner tout le reste du monde ! » Après que Wang Ping eut pris ses médicaments et s'était couché, la voix de Wang Lin flotta doucement vers lui.
 
 Wang Ping ferma les yeux et garda le silence.
 

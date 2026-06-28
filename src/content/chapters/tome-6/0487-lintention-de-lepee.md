@@ -18,13 +18,13 @@ De loin, cette formation évoquait la fusion du Yin et du Yang, créant un senti
 
 Actuellement, un homme était assis en position du lotus devant le pavillon des trésors. C'était un homme d'âge moyen vêtu d'une robe noire ; ses sourcils étaient comme des épées, sa peau aussi blanche que le jade et sa barbe, divisée en trois mèches, flottait au vent, lui conférant l'allure d'un être céleste.
 
-La culture de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux !
+La cultivation de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux !
 
 Sur les genoux de cet homme reposait une épée de sept pieds de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
 
 Wang Lin se tenait à plusieurs dizaines de mètres du pavillon des trésors, fixant l'homme assis devant lui.
 
-« La culture de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui ! »
+« La cultivation de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui ! »
 
 L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Surpris, il se leva prestement, joignit ses mains et dit respectueusement : « Le disciple Zhang Xiangfan salue le Septième Ancêtre ! » L'épée verte se transforma alors en un rayon de lumière pour disparaître dans son corps.
 
@@ -56,7 +56,7 @@ Quant à l'épée volante verte, Wang Lin la lui rendit également. Bien que Zha
 
 Peu après, il leva brusquement la tête et dit respectueusement : « Merci, Septième Ancêtre ! »
 
-Zhang Xiangfan, fort de sa longue expérience de culture, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en culture fermée dès à présent pour imprimer ces 18 restrictions sur une épée ; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme !
+Zhang Xiangfan, fort de sa longue expérience de cultivation, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en cultivation fermée dès à présent pour imprimer ces 18 restrictions sur une épée ; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme !
 
 Ces 18 restrictions n'étaient que deux groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yunque Zi. Cela était loin d'être suffisant pour permettre au drapeau de restrictions d'atteindre le stade suivant.
 

@@ -30,7 +30,7 @@ Pourtant, durant cette année, Treize avait passé le test de Wang Lin avec brio
 
 Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Antique, il s'y trouvait quelques jades.
 
-Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
+Parmi ces jades figurait l'enregistrement d'une méthode de cultivation corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
 
 Wang Lin le scruta avec son Sens Divin et pensa : « C'est bien ça ! » Les Neuf Cultivations du Titan comprenaient un total de neuf niveaux et constituaient une technique de raffinement corporel. Après avoir mémorisé les neuf incantations, il effaça les trois derniers niveaux et les remit à Treize !
 
@@ -40,7 +40,7 @@ Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déj�
 
 Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Drapeau d'un Milliard d'Âmes, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
-« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici ! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
+« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici ! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa cultivation.
 
 À ce moment-là, loin à l'ouest de la Secte du Raffinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
 
@@ -106,7 +106,7 @@ Après un long moment, la lueur se posa sur les yeux du vieil homme, comme pour 
 
 Le corps du vieillard était trempé de sueur lorsqu'il dit simplement : « Oui ! » Il se leva ensuite et quitta respectueusement le sommet de la tour. Il redescendit au premier étage et s'assit en position du lotus, paraissant nettement plus détendu cette fois-ci.
 
-« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de raffinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en une seule heure de puissance, pour qu'il devienne l'un des Gardiens Démoniaques ! »
+« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de raffinement de l'âme et mes compétences en alchimie, sa cultivation pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en une seule heure de puissance, pour qu'il devienne l'un des Gardiens Démoniaques ! »
 
 « Ce sort de raffinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne peut pas rester éveillé trop longtemps, je ne peux donc pas gaspiller son temps avec une si petite affaire... »
 

@@ -20,7 +20,7 @@ Le feu terrestre qui avait été extrait était insignifiant. Puisqu'il posséda
 
 Ce phénomène ne s'était jamais produit auparavant sur le Continent Astral Immortel. C'était une véritable bataille entre une essence de feu étrangère et l'essence même du Continent Astral Immortel !
 
-Si l'essence du Continent Astral Immortel l'emportait, l'essence de Wang Lin serait dévorée et intégrée au continent. Dans ce cas, le niveau de culture de Wang Lin ne changerait pas et il conserverait son essence, mais il ne serait plus le seigneur de tous les feux du monde, car le feu appartiendrait désormais au Continent Astral Immortel !
+Si l'essence du Continent Astral Immortel l'emportait, l'essence de Wang Lin serait dévorée et intégrée au continent. Dans ce cas, le niveau de cultivation de Wang Lin ne changerait pas et il conserverait son essence, mais il ne serait plus le seigneur de tous les feux du monde, car le feu appartiendrait désormais au Continent Astral Immortel !
 
 Mais si Wang Lin triomphait, son essence de feu surpasserait celle du Continent Astral Immortel. Il deviendrait le véritable Empereur du Feu !
 
@@ -80,7 +80,7 @@ Simultanément, trois auras puissantes jaillirent de la Secte du Dragon Bleu. El
 
 Parmi eux se trouvaient deux hommes et une femme. L'un des hommes et la femme étaient aux cheveux blancs, tandis que l'autre homme était d'âge moyen. Tous possédaient l'aura de cultivateurs du troisième pas.
 
-Leurs niveaux de culture étaient élevés. L'homme d'âge moyen se trouvait au stade intermédiaire du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
+Leurs niveaux de cultivation étaient élevés. L'homme d'âge moyen se trouvait au stade intermédiaire du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
 
 « Disciples de la Secte du Dragon Bleu, écoutez mes ordres ! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas ! Vite, déployez la Formation de l'Eau Céleste ! » Ses paroles résonnèrent comme le tonnerre.
 

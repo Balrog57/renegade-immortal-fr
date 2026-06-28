@@ -112,7 +112,7 @@ Wang Lin entra dans la tour et s'assit près du lit de Li Muwan. Il observa son 
 
 En un clin d'œil, un mois passa.
 
-Durant ce mois, les souvenirs de tous les disciples de la Secte Cloud Sky furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
+Durant ce mois, les souvenirs de tous les disciples de la Secte Cloud Sky furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en cultivation fermée.
 
 Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Cloud Sky étendit son influence de manière considérable.
 

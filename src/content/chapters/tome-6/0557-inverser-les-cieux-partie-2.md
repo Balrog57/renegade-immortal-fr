@@ -60,9 +60,9 @@ Wang Lin médita longuement avant de faire un pas en avant et de dire d'un ton g
 
 Aux yeux de Yao Xixue, cette brume noire était de l'énergie spirituelle démoniaque !
 
-« Sa première réaction est d'utiliser le sort qu'il a employé contre le général démon, ce qui signifie qu'il déploie toute sa force. Exactement comme je l'avais prévu ! » Yao Xixue avait déjà tout calculé. À ses yeux, la culture de Wang Lin n'était qu'au stade intermédiaire de la Transformation de l'Âme. Même si elle lui avait fourni suffisamment de jades célestes, il n'aurait pas eu le temps d'augmenter son niveau au stade avancé de la Transformation de l'Âme en seulement trois jours.
+« Sa première réaction est d'utiliser le sort qu'il a employé contre le général démon, ce qui signifie qu'il déploie toute sa force. Exactement comme je l'avais prévu ! » Yao Xixue avait déjà tout calculé. À ses yeux, la cultivation de Wang Lin n'était qu'au stade intermédiaire de la Transformation de l'Âme. Même si elle lui avait fourni suffisamment de jades célestes, il n'aurait pas eu le temps d'augmenter son niveau au stade avancé de la Transformation de l'Âme en seulement trois jours.
 
-Par conséquent, même s'il résistait à l'énergie de l'épée avec sa culture actuelle, il serait gravement blessé et ne représenterait plus une menace.
+Par conséquent, même s'il résistait à l'énergie de l'épée avec sa cultivation actuelle, il serait gravement blessé et ne représenterait plus une menace.
 
 De son côté, elle était confiante de pouvoir encaisser deux assauts grâce à la méthode transmise par son père, ce qui lui permettrait de satisfaire les exigences de l'esprit de la grotte !
 
@@ -86,7 +86,7 @@ L'homme d'âge moyen baissa la tête pour observer l'endroit où Wang Lin avait 
 
 La blessure grave de Wang Lin n'était pas une surprise pour Yao Xixue. Elle ne se souciait guère de la vie de cet homme ; seule l'entrée dans la grotte comptait. L'avertissement de son père concernant les relations avec Wang Lin était totalement oublié.
 
-En vérité, elle estimait que le statut et la culture de Wang Lin n'étaient pas dignes d'une amitié, malgré ses capacités anormales !
+En vérité, elle estimait que le statut et la cultivation de Wang Lin n'étaient pas dignes d'une amitié, malgré ses capacités anormales !
 
 Elle déploya son Sens Divin et, ne trouvant aucune trace de lui, son dernier soupçon s'évanouit complètement.
 

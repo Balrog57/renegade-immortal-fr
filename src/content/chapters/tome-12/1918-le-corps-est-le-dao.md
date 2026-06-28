@@ -8,11 +8,11 @@ slug: le-corps-est-le-dao
 ---
 Chapitre 1918 - Le Corps est le Dao !
 
-Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalt Doré, même si son âme originelle avait perdu toute volonté, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
+Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalt Doré, même si son âme originelle avait perdu toute volonté, sa puissante cultivation formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
 
-Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalt Doré, une extraction parfaite des souvenirs serait alors possible.
+Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de cultivation était bien supérieur à celui d'un Exalt Doré, une extraction parfaite des souvenirs serait alors possible.
 
-Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
+Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa cultivation, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de cultivation n'était qu'au début du stade Tribulation du Vide.
 
 Pendant que l'âme originelle du Maître du Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret derrière la guerre avec le Continent du Taureau Céleste. Il ne trouva que quelques pensées concernant l'ancêtre Exalt du Dao Démoniaque.
 
@@ -54,7 +54,7 @@ Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais 
 
 « Enfin, le plus difficile sera les essences éthérées. Si je peux comprendre deux autres essences éthérées et combiner les cinq, je devrais atteindre le sommet de la Tribulation du Vide, au rang d'Exalt Émérite ! »
 
-« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de culture dépassera celui d'Exalt Émérite pour atteindre un point où je ne serai second que devant les Grands Exalt ! »
+« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de cultivation dépassera celui d'Exalt Émérite pour atteindre un point où je ne serai second que devant les Grands Exalt ! »
 
 « Bien que j'ignore la méthode pour devenir un Grand Exalt, le Maître a dit que cela exigeait une chance immense et l'ouverture du Royaume Divin Immemorial... »
 
@@ -96,7 +96,7 @@ Wang Lin resta immobile, ses pupilles se rétractant légèrement, et répondit 
 
 Wang Lin fixa l'homme et dit simplement : « Oui ! »
 
-« Bien ! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalt Émérite subordonné au Grand Exalt Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Émérites, il se situait toujours au sommet du Clan Céleste.
+« Bien ! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de cultivation, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalt Émérite subordonné au Grand Exalt Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Émérites, il se situait toujours au sommet du Clan Céleste.
 
 « Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de mon Secte ! » L'ancêtre agita sa manche et lança un coup de poing vers Wang Lin.
 

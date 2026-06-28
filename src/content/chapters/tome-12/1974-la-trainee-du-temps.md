@@ -16,7 +16,7 @@ Au fil des ans, quiconque en était digne avait entendu parler de l'Ascendant Em
 
 Toutes les familles de cultivateurs s'étaient rendues sur la vaste place après avoir reçu l'autorisation de l'Empereur Céleste d'assister à cette cérémonie.
 
-En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de 10 000 individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Ascendants Empyrés.
+En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de 10 000 individus. Tous possédaient des niveaux de cultivation extraordinaires, et certains étaient même des Ascendants Empyrés.
 
 Même au sein du palais impérial, ces êtres recevaient le respect de tous ceux qui les entouraient.
 
@@ -30,7 +30,7 @@ Les cultivateurs occupant ces trois emplacements étaient trois des quatre rois 
 
 Sur la place devant le Temple du Dao Céleste, outre les dizaines de milliers d'invités, deux longues rangées de soldats en armure noire se tenaient prêtes.
 
-Ces soldats à l'armure noire appartenaient à la famille impériale et n'étaient loyaux qu'à l'Empereur. Bien que leurs niveaux de culture ne fussent pas tous très élevés et qu'ils ne fussent que 100 000, ils maîtrisaient tous la capacité de sacrifier leur force vitale en échange d'une puissance mortelle terrifiante.
+Ces soldats à l'armure noire appartenaient à la famille impériale et n'étaient loyaux qu'à l'Empereur. Bien que leurs niveaux de cultivation ne fussent pas tous très élevés et qu'ils ne fussent que 100 000, ils maîtrisaient tous la capacité de sacrifier leur force vitale en échange d'une puissance mortelle terrifiante.
 
 Peu de gens en connaissaient les détails précis, mais à cet instant, les deux rangées de soldats dégageaient une intention meurtrière monstrueuse et un froid glacial.
 
@@ -88,7 +88,7 @@ Cette intention de tuer émanait des massacres auxquels ces 100 000 hommes avaie
 
 Wang Lin fronça les sourcils !
 
-« Ce que testent ces neuf portes n'est pas la culture, mais l'intention meurtrière... Puisque c'est ainsi, je ne serai pas poli. » Les yeux de Wang Lin s'illuminèrent et il ferma lentement les paupières. Lorsqu'il les rouvrit, son véritable corps d'essence du tonnerre libéra la puissance du tonnerre du massacre !
+« Ce que testent ces neuf portes n'est pas la cultivation, mais l'intention meurtrière... Puisque c'est ainsi, je ne serai pas poli. » Les yeux de Wang Lin s'illuminèrent et il ferma lentement les paupières. Lorsqu'il les rouvrit, son véritable corps d'essence du tonnerre libéra la puissance du tonnerre du massacre !
 
 Cette force ne se propageait que dans un rayon de 100 pieds autour de lui, mais cet espace suffit à faire trembler violemment le passage formé par les neuf portes.
 

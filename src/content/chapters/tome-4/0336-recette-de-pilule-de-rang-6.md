@@ -38,7 +38,7 @@ Wang Lin hocha la tête. À cet instant précis, les évaluateurs relevèrent la
 
 Wang Lin fronça les sourcils. La valeur de cet objet était certainement bien supérieure à 5 000 pierres spirituelles de haute qualité.
 
-Le vieil homme fronça également les sourcils. Il émit un grognement, comme s'il transmettait un message par la voix. Ces évaluateurs n'y comprenaient rien. Avec sa culture, il pouvait affirmer que les seules veines sanguines à l'intérieur de l'objet valaient plusieurs fois ce prix, sans même tenir compte de la fraction de domaine qu'elle contenait.
+Le vieil homme fronça également les sourcils. Il émit un grognement, comme s'il transmettait un message par la voix. Ces évaluateurs n'y comprenaient rien. Avec sa cultivation, il pouvait affirmer que les seules veines sanguines à l'intérieur de l'objet valaient plusieurs fois ce prix, sans même tenir compte de la fraction de domaine qu'elle contenait.
 
 Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilule, dont le prix était déjà fixé à 10 000 pierres spirituelles.
 
@@ -82,7 +82,7 @@ Cette jeune fille était présente au troisième étage ; elle savait donc tout 
 
 « Ne perdez pas de temps en futilités », trancha la voix froide de Wang Lin.
 
-Le vieil homme derrière la jeune fille renifla et fit un pas en avant. Les yeux de Wang Lin s'éclairèrent. Il fixa l'homme et dit : « Vous venez à peine d'atteindre le stade de la Formation de l'Âme ; votre culture est instable et vous avez dû comprendre le domaine de quelqu'un d'autre. Reculez ! »
+Le vieil homme derrière la jeune fille renifla et fit un pas en avant. Les yeux de Wang Lin s'éclairèrent. Il fixa l'homme et dit : « Vous venez à peine d'atteindre le stade de la Formation de l'Âme ; votre cultivation est instable et vous avez dû comprendre le domaine de quelqu'un d'autre. Reculez ! »
 
 Le visage du vieil homme s'assombrit, mais son cœur fut secoué. Il serra les dents et resta ferme. Wang Lin le regarda et fit un mouvement du doigt. Un rayon d'énergie spirituelle jaillit. L'expression de l'homme changea instantanément alors qu'il sortait précipitamment un trésor en forme de parasol. Lorsqu'il l'ouvrit, celui-ci libéra une lumière arc-en-ciel.
 
@@ -98,7 +98,7 @@ Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en fai
 
 La jeune fille rattrapa le jade, prit une profonde inspiration et dit : « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
-L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents : « Cette junior est issue du Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma culture n'est pas assez élevée ; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
+L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents : « Cette junior est issue du Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma cultivation n'est pas assez élevée ; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
 
 Sur ces mots, elle afficha un air de tristesse, se mordit la lèvre et attendit la réponse de Wang Lin.
 

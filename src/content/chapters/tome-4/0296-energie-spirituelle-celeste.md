@@ -26,11 +26,11 @@ Un sourire de satisfaction apparut sur le visage de Wang Lin alors qu'il piégea
 
 Wang Lin le remarqua immédiatement et fronça les sourcils. Cependant, il ignora la vitesse de l'inconnu pour se concentrer sur le raffinage de l'énergie spirituelle céleste. Après un moment, ce mince filet d'énergie devint une goutte de liquide sous l'action du raffinage.
 
-Wang Lin savait que l'énergie céleste devait être raffinée par un cultivateur jusqu'à l'état de pierre spirituelle pour pouvoir être conservée. Toutefois, le temps nécessaire à ce processus dépendait du niveau de culture de chacun.
+Wang Lin savait que l'énergie céleste devait être raffinée par un cultivateur jusqu'à l'état de pierre spirituelle pour pouvoir être conservée. Toutefois, le temps nécessaire à ce processus dépendait du niveau de cultivation de chacun.
 
 La vitesse du cultivateur aux robes vertes était fulgurante. Lorsqu'il réalisa que quelque chose ne tournait pas rond, son visage changea brusquement et il cria : « Arrête ! » En utilisant une technique inconnue, sa vitesse devint encore plus prodigieuse.
 
-Wang Lin l'ignora. Ce cultivateur de robes vertes possédait le même niveau de culture que lui, au début du stade de la Formation de l'Âme. Il ne le considérait nullement comme une menace et se contenta d'estimer le temps qu'il lui restait avant l'arrivée de l'individu tout en poursuivant son raffinage.
+Wang Lin l'ignora. Ce cultivateur de robes vertes possédait le même niveau de cultivation que lui, au début du stade de la Formation de l'Âme. Il ne le considérait nullement comme une menace et se contenta d'estimer le temps qu'il lui restait avant l'arrivée de l'individu tout en poursuivant son raffinage.
 
 Voyant que Wang Lin non seulement ne s'arrêtait pas, mais accélérait même le processus de raffinage, le cultivateur aux robes vertes hurla avec rage : « Cette zone a été découverte par ma Secte de l'Épée Da Lou il y a 3 000 ans ! Si tu ne t'arrêtes pas immédiatement, la Secte de l'Épée Da Lou viendra te réclamer des comptes ! »
 

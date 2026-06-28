@@ -50,7 +50,7 @@ Près de cette demeure gisaient les débris d'une construction ; il y avait mani
 
 Hu Pao observa les lieux et, après avoir entendu les rires derrière lui, s'exclama avec colère : « Ancêtre, ces soldats démons vont trop loin ! »
 
-L'expression de Wang Lin demeura imperturbable : « Ne te préoccupe pas d'eux. Puisqu'il n'y a pas de place pour nous, nous cultiverons simplement à l'extérieur ! » Sur ce, il trouva une zone dégagée et s'assit pour entrer en culture.
+L'expression de Wang Lin demeura imperturbable : « Ne te préoccupe pas d'eux. Puisqu'il n'y a pas de place pour nous, nous cultiverons simplement à l'extérieur ! » Sur ce, il trouva une zone dégagée et s'assit pour entrer en cultivation.
 
 Hu Pao réprima de force sa rage et lança un regard froid aux soldats démons qui se dispersaient. Il laissa échapper un grognement glacial avant de s'installer à la gauche de Wang Lin pour le protéger.
 
@@ -68,11 +68,11 @@ Hu Pao était le seul à ne pouvoir rester calme ; il foudroyait du regard chaqu
 
 Non seulement l'expression de Wang Lin était sereine, mais son esprit l'était tout autant. Il n'avait aucune hâte de prendre le contrôle de ce lieu et préférait observer. Bien que ses yeux fussent clos, il avait déployé son Sens Divin pour scruter attentivement chacun des dix mille soldats présents.
 
-Chaque régiment de mille hommes possédait un chef, tous étant les fidèles lieutenants de Sima Yan. Quant aux six soldats du restaurant, bien que leur niveau de culture fût modeste, ils occupaient des fonctions importantes ici.
+Chaque régiment de mille hommes possédait un chef, tous étant les fidèles lieutenants de Sima Yan. Quant aux six soldats du restaurant, bien que leur niveau de cultivation fût modeste, ils occupaient des fonctions importantes ici.
 
-S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance !
+S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la cultivation. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance !
 
-Tout étranger arrivant en Terre des Esprits Démons devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
+Tout étranger arrivant en Terre des Esprits Démons devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la cultivation de ces soldats ne fût pas élevée, leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 
 De plus, si l'on massacrait trop de soldats démons, le commandant en chef — un être presque aussi puissant que le Général Démon — finirait par apparaître. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays ! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démons. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien !
 

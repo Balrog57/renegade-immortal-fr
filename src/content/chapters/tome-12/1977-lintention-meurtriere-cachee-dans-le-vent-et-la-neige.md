@@ -66,19 +66,19 @@ Wang Lin réfléchit en silence. Il était venu dans la cité ancestrale pour vo
 
 « Puisque tu possèdes des cheveux blancs et que tu as obtenu la mèche blanche de la Bête Lion Céleste, je te décerne le titre d'Ascendant Empyrée aux Cheveux Blancs ! »
 
-« Tous les Ascendants Empyrées du clan céleste ont la possibilité d'entrer dans le lieu de culture clos de l'Ancêtre Céleste. Là-bas, tu recevras une immense fortune et jetteras des bases solides pour devenir un Grand Empyre ! »
+« Tous les Ascendants Empyrées du clan céleste ont la possibilité d'entrer dans le lieu de cultivation clos de l'Ancêtre Céleste. Là-bas, tu recevras une immense fortune et jetteras des bases solides pour devenir un Grand Empyre ! »
 
-« Même ton niveau de culture y augmentera considérablement. Une personne possédant la lignée impériale n'a que trois chances d'y accéder au cours de sa vie. Quant à ceux qui ne possèdent pas cette lignée, ils ne pourront prétendre à cette chance qu'après avoir atteint le stade d'Ascendant Empyrée ! »
+« Même ton niveau de cultivation y augmentera considérablement. Une personne possédant la lignée impériale n'a que trois chances d'y accéder au cours de sa vie. Quant à ceux qui ne possèdent pas cette lignée, ils ne pourront prétendre à cette chance qu'après avoir atteint le stade d'Ascendant Empyrée ! »
 
-« Cette opportunité est extrêmement rare. Wang Lin, il y a eu des malentendus entre nous, et j'espère qu'ils seront résolus. Cultive avec ardeur dans le lieu de culture clos de l'Ancêtre Céleste afin de pouvoir aspirer à devenir le sixième soleil du clan céleste ! »
+« Cette opportunité est extrêmement rare. Wang Lin, il y a eu des malentendus entre nous, et j'espère qu'ils seront résolus. Cultive avec ardeur dans le lieu de cultivation clos de l'Ancêtre Céleste afin de pouvoir aspirer à devenir le sixième soleil du clan céleste ! »
 
 « Deviens un pilier du clan céleste et déploie sa puissance ! » L'expression de l'Empereur Céleste était empreinte d'une grande sincérité alors qu'il regardait Wang Lin au loin, dans le réseau de transfert.
 
 « Je n'ai que ce seul frère cadet », soupira l'Empereur Céleste.
 
-« Rends-toi au lieu de culture clos de l'Ancêtre Céleste. J'y enverrai également Dao Fei ; peut-être pourras-tu l'aider à recouvrer ses souvenirs passés. Quand je l'ai trouvé, une femme l'accompagnait. Cette femme s'est également réveillée et se trouve au lieu de culture clos de l'Ancêtre Céleste, en pleine méditation. » L'Empereur Céleste regarda Wang Lin avec douceur.
+« Rends-toi au lieu de cultivation clos de l'Ancêtre Céleste. J'y enverrai également Dao Fei ; peut-être pourras-tu l'aider à recouvrer ses souvenirs passés. Quand je l'ai trouvé, une femme l'accompagnait. Cette femme s'est également réveillée et se trouve au lieu de cultivation clos de l'Ancêtre Céleste, en pleine méditation. » L'Empereur Céleste regarda Wang Lin avec douceur.
 
-« Je vous remercie infiniment, Empereur Céleste. Je ne suis venu ici que pour la cérémonie des titres, et maintenant qu'elle est achevée, je dois partir. Si je reviens dans la cité ancestrale, je me rendrai au lieu de culture clos de l'Ancêtre Céleste. » Wang Lin joignit les mains et déclina l'invitation à se rendre au sanctuaire de l'Ancêtre.
+« Je vous remercie infiniment, Empereur Céleste. Je ne suis venu ici que pour la cérémonie des titres, et maintenant qu'elle est achevée, je dois partir. Si je reviens dans la cité ancestrale, je me rendrai au lieu de cultivation clos de l'Ancêtre Céleste. » Wang Lin joignit les mains et déclina l'invitation à se rendre au sanctuaire de l'Ancêtre.
 
 L'Empereur Céleste resta pensif un instant. Il hocha la tête et cessa de tenter de convaincre Wang Lin.
 
@@ -88,11 +88,11 @@ Il fit un détour par le Manoir Li, puis prit le dragon marin ainsi que Liu Jinb
 
 « Je l'ai vu... Même s'il a perdu la mémoire, il semble très heureux pour l'instant, et cela me suffit... » Wang Lin se tenait près de la fenêtre, contemplant le ciel qui s'obscurcissait. Il était resté là tout l'après-midi.
 
-« Il est temps de partir... Peu importe, je vais emmener Xu Liguo et quitter la cité ancestrale... Puis je me rendrai vers... l'Ancien Clan ! » Wang Lin poussa un soupir. Il était épuisé. Il avait tant vécu au sein du clan céleste, et bien qu'il ait désormais son statut et son niveau de culture, rien de tout cela ne valait les souvenirs perdus de ses amis.
+« Il est temps de partir... Peu importe, je vais emmener Xu Liguo et quitter la cité ancestrale... Puis je me rendrai vers... l'Ancien Clan ! » Wang Lin poussa un soupir. Il était épuisé. Il avait tant vécu au sein du clan céleste, et bien qu'il ait désormais son statut et son niveau de cultivation, rien de tout cela ne valait les souvenirs perdus de ses amis.
 
 « Peut-être ai-je réellement mal compris l'Empereur Céleste... » Wang Lin se remémora silencieusement la cérémonie des titres. En vérité, il n'avait aucune raison d'être aussi hostile envers l'empereur, ce n'était qu'une intuition.
 
-« Mais quoi qu'il en soit, je ne peux pas me rendre au lieu de culture clos de l'Ancêtre Céleste. Malentendu ou non, je ne peux pas baisser ma garde sur la simple base de quelques paroles. » Wang Lin réfléchissait tandis que la neige commençait à tomber par la fenêtre. Les flocons dérivaient dans la lumière avant de disparaître dans l'obscurité.
+« Mais quoi qu'il en soit, je ne peux pas me rendre au lieu de cultivation clos de l'Ancêtre Céleste. Malentendu ou non, je ne peux pas baisser ma garde sur la simple base de quelques paroles. » Wang Lin réfléchissait tandis que la neige commençait à tomber par la fenêtre. Les flocons dérivaient dans la lumière avant de disparaître dans l'obscurité.
 
 Le vent et la neige arrivèrent en silence. Alors que les éléments s'intensifiaient, on frappa doucement à sa porte.
 

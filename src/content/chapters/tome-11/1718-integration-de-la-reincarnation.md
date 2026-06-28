@@ -104,13 +104,13 @@ Le Maître Dao Bleu Rêve atterrit sur la montagne et sourit à Qing Lin avant d
 
 « Cependant, je sais que si l'avatar créé par ce sort est récupéré par quelqu'un d'autre, cet avatar fusionnera avec cette personne après une courte période ! »
 
-« Une fois qu'ils ne font plus qu'un, celui qui a dévoré le plus obtient tout ce que vous possédez, y compris votre aura et votre culture... Quelles que soient vos essences, l'autre partie les possédera également... »
+« Une fois qu'ils ne font plus qu'un, celui qui a dévoré le plus obtient tout ce que vous possédez, y compris votre aura et votre cultivation... Quelles que soient vos essences, l'autre partie les possédera également... »
 
 « Ce sort est trop maléfique, mais une fois réussi, il est d'une puissance redoutable... D'après votre état actuel, les propos de Qing Lin et l'âme que vous tenez, j'ai 40 % de certitude que quelqu'un a utilisé le Sort d'Intégration de la Réincarnation sur vous ! »
 
 Wang Lin réfléchit en silence.
 
-« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de culture augmentera », déclara lentement le Maître Dao Bleu Rêve, le regard brillant.
+« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de cultivation augmentera », déclara lentement le Maître Dao Bleu Rêve, le regard brillant.
 
 « Je vais vous aider à trouver la personne qui a utilisé ce sort sur vous. Je veux voir quel talent il faut posséder pour cultiver un sort que même le Souverain Céleste aux Sept Couleurs n'a pu maîtriser ! »
 

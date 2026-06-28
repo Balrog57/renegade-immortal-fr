@@ -10,7 +10,7 @@ Wang Lin sembla réaliser quelque chose. Lorsque l'âme originelle du vieil homm
 
 Ce genre de sort ressemblait fort à celui capable d'extraire les âmes de toute chose. C'était une technique similaire, mais bien plus profonde.
 
-Cependant, ce sort dépassait largement le niveau de culture de Wang Lin. Bien qu'il en eût saisi certains principes, il restait une fine barrière qu'il ne parvenait pas à franchir.
+Cependant, ce sort dépassait largement le niveau de cultivation de Wang Lin. Bien qu'il en eût saisi certains principes, il restait une fine barrière qu'il ne parvenait pas à franchir.
 
 Alors que le vieil homme dirigeait son corps dans un mouvement fulgurant, Wang Lin n'eut plus le temps de réfléchir aux sorts. Il était parfaitement conscient que l'âme originelle du vieil homme mystérieux, nichée en lui, se dissipait rapidement.
 

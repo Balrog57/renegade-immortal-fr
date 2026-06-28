@@ -76,7 +76,7 @@ Son corps montra immédiatement des signes de dissipation et rétrécit considé
 
 Pour la toute première fois, une goutte de sang qui n'avait pas été formée par les lois du Continent Astral Immortel touchait cette plateforme ! Plus important encore, cela se produisait après l'apparition de la lumière blanche sur le corps de Wang Lin suite à sa mort ou son sommeil.
 
-C'est précisément parce que tout cela advint qu'il obtint la plus grande fortune de ses plus de 2 000 ans de culture. Cette fortune était suffisante pour ébranler les cieux !
+C'est précisément parce que tout cela advint qu'il obtint la plus grande fortune de ses plus de 2 000 ans de cultivation. Cette fortune était suffisante pour ébranler les cieux !
 
 Cette plateforme se situait dans le vide du Continent Astral Immortel. Peu de gens pouvaient atteindre ce vide, et la plupart de ceux qui tentaient l'aventure mouraient ou s'égaraient. La position de la plateforme n'était pas fixe ; elle était en mouvement perpétuel. Si le Roi-Moustique n'avait pas eu ces souvenirs vagues après ses métamorphoses, il aurait été presque impossible de la trouver, même en cherchant pendant des éternités.
 

@@ -18,7 +18,7 @@ Cependant, cette formation était d'une facilité déconcertante à briser pour 
 
 Il se trouvait sur l'un des « yeux » de la formation au moment de sa disparition. Lorsque Wang Lin réapparut, il était sous terre. Il observa les environs et vit les innombrables tunnels et grottes qui composaient le labyrinthe du Secte des Cadavres.
 
-Des cultivateurs pratiquaient dans chacune de ces grottes. Leurs niveaux de culture variaient : la plupart étaient au stade de l'Établissement des Fondations, quelques-uns atteignaient la Formation du Noyau, et les cultivateurs de l'Âme Naissante étaient encore plus rares.
+Des cultivateurs pratiquaient dans chacune de ces grottes. Leurs niveaux de cultivation variaient : la plupart étaient au stade de l'Établissement des Fondations, quelques-uns atteignaient la Formation du Noyau, et les cultivateurs de l'Âme Naissante étaient encore plus rares.
 
 Le Sens Divin de Wang Lin se propagea, et l'intégralité du Secte des Cadavres apparut dans son esprit. Il porta une attention particulière à la grotte située au centre du secte.
 
@@ -30,9 +30,9 @@ Son apparence physique lui donnait l'air d'un homme d'environ quarante ans. Bien
 
 Il dirigeait le Secte des Cadavres à Zhao depuis deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant le secte en terre de Zhao.
 
-Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général du Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
+Il passait tout son temps en cultivation méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général du Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
 
-Li Qingping, plongé dans sa culture, ne détecta absolument pas le Sens Divin de Wang Lin, mais le brouillard noir derrière lui trembla tandis que deux yeux fantomatiques apparaissaient en son sein.
+Li Qingping, plongé dans sa cultivation, ne détecta absolument pas le Sens Divin de Wang Lin, mais le brouillard noir derrière lui trembla tandis que deux yeux fantomatiques apparaissaient en son sein.
 
 Cependant, ce que ces yeux révélaient n'était point le calme ou la froideur habituels ; ils étaient empreints d'effroi et de terreur.
 
@@ -42,9 +42,9 @@ Cependant, ce que ces yeux révélaient n'était point le calme ou la froideur h
 
 Le brouillard noir se mit à trembler davantage. Lorsque le Sens Divin de Wang Lin l'effleura, il ressentit un vent glacial, au point que son origine spirituelle devint instable, menaçant de s'effondrer. Ce genre de sensation ne lui arrivait que lorsqu'il affrontait les Anciens de son propre secte.
 
-La silhouette noire dit rapidement d'une voix tremblante : « Veuillez avoir pitié, Aîné. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de culture est liée au Sens Divin ; il n'a donc fait qu'effleurer votre arrivée. »
+La silhouette noire dit rapidement d'une voix tremblante : « Veuillez avoir pitié, Aîné. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de cultivation est liée au Sens Divin ; il n'a donc fait qu'effleurer votre arrivée. »
 
-Il savait qu'avec le niveau de culture de cet aîné, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
+Il savait qu'avec le niveau de cultivation de cet aîné, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
 
 « Oh ? De quel secte viens-tu ? » lança Wang Lin par message de Sens Divin.
 
@@ -84,7 +84,7 @@ Réprimant sa peur, Cao Yidou demanda avec prudence : « Aîné, vous... voudrie
 
 La voix de Wang Lin ne trahissait aucune arrogance lorsqu'il dit calmement : « Deviens mon esclave pendant cent ans. Après ces cent ans, je t'offrirai un corps de la Transformation de l'Âme. Acceptes-tu ? »
 
-Cao Yidou fut stupéfait. Un corps de la Transformation de l'Âme était une chose qu'il n'avait jamais espéré obtenir de sa vie. Avec un tel corps, augmenter son niveau de culture jusqu'au stade de la Transformation de l'Âme serait bien plus aisé. Et même s'il n'atteignait pas ce stade, tous ses sorts deviendraient infiniment plus puissants. Il fallait dire qu'un tel corps était comparable à celui d'un être céleste.
+Cao Yidou fut stupéfait. Un corps de la Transformation de l'Âme était une chose qu'il n'avait jamais espéré obtenir de sa vie. Avec un tel corps, augmenter son niveau de cultivation jusqu'au stade de la Transformation de l'Âme serait bien plus aisé. Et même s'il n'atteignait pas ce stade, tous ses sorts deviendraient infiniment plus puissants. Il fallait dire qu'un tel corps était comparable à celui d'un être céleste.
 
 Au sein du Secte des Cadavres, le coût d'un cadavre de la Transformation de l'Âme était inimaginable. Même en utilisant toute sa longévité, il lui aurait fallu plus de mille ans pour acheter ne serait-ce que la moitié d'un tel corps.
 
@@ -104,7 +104,7 @@ Cao Yidou répondit promptement : « La planète Tian Yun ? Maître, j'ai grandi
 
 D'un simple mouvement, avant que Cao Yidou ne puisse réagir, Wang Lin l'enferma dans l'étendard. Sur ce, Wang Lin disparut de la grotte.
 
-Ce n'était pas sa première visite ici, il connaissait donc parfaitement les lieux. Il traversa le labyrinthe du Secte des Cadavres en direction de l'endroit où il avait autrefois pratiqué sa culture.
+Ce n'était pas sa première visite ici, il connaissait donc parfaitement les lieux. Il traversa le labyrinthe du Secte des Cadavres en direction de l'endroit où il avait autrefois pratiqué sa cultivation.
 
 En chemin, aucun disciple du Secte des Cadavres ne parvint à détecter la présence de Wang Lin. Même ceux qui n'étaient pas en pleine méditation ne remarquèrent pas son passage.
 

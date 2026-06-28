@@ -24,7 +24,7 @@ Dans le ciel, le Maître Flamespark rit : « Qui a dit qu'il n'y aurait pas d'â
 
 « L'âme originelle d'un cultivateur de l'Illusoire Yin ! » Les yeux de Wang Lin se rétrécirent.
 
-Le jeune homme maléfique observa l'âme originelle et dit lentement : « Rang 4 Céleste Supérieur. » Il ne se pressait pas, voulant voir comment ce soi-disant Maître Flamespark allait affiner le Royaume Céleste du Tonnerre. De plus, grâce à sa culture, il pouvait déceler que l'être dans le ciel n'était pas le corps originel du Maître Flamespark, mais un avatar.
+Le jeune homme maléfique observa l'âme originelle et dit lentement : « Rang 4 Céleste Supérieur. » Il ne se pressait pas, voulant voir comment ce soi-disant Maître Flamespark allait affiner le Royaume Céleste du Tonnerre. De plus, grâce à sa cultivation, il pouvait déceler que l'être dans le ciel n'était pas le corps originel du Maître Flamespark, mais un avatar.
 
 L'âme originelle du cultivateur de l'Illusoire Yin semblait confuse. Dès qu'elle apparut, le Maître Flamespark cria : « Quarantième-neuvième âme, va ! »
 
@@ -108,7 +108,7 @@ Le Maître Flamespark le fixa et déclara : « Seigneur Céleste Qing Shui, je v
 
 Le jeune homme fronça les sourcils et répondit simplement : « Je ne suis pas Qing Shui. »
 
-« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa culture était prodigieuse et il possédait le légendaire Domaine Ji ! Il était également l'héritier du pays de Clear Water. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même ; il était devenu un démon qui massacrait tout sur son passage ! »
+« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa cultivation était prodigieuse et il possédait le légendaire Domaine Ji ! Il était également l'héritier du pays de Clear Water. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même ; il était devenu un démon qui massacrait tout sur son passage ! »
 
 « Un groupe de célestes l'attaqua, mais grâce à son Domaine Ji, il provoqua un massacre sans précédent. Finalement, l'Empereur Céleste Bai Fan intervint et remporta la victoire, bien qu'il ne puisse se résoudre à le tuer. Dans ce dilemme, Qing Shui sembla soudain retrouver la raison, comme si tout ce qui s'était passé n'avait été qu'un rêve. Lorsqu'il reprit ses esprits, il réalisa l'ampleur de son crime : il avait massacré d'innombrables célestes, dont ses amis, ses disciples, ses descendants et, par-dessus tout, son partenaire de Dao qui l'avait accompagné pendant des dizaines de milliers d'années ! »
 

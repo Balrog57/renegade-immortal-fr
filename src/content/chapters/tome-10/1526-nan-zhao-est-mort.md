@@ -40,7 +40,7 @@ Le visage du Grand Maître Yun Luo était extrêmement pâle alors qu'elle recul
 
 « Arrêtez-le !! » hurla le Grand Maître Yun Luo pour la première fois lors de cette bataille. Sa voix, empreinte d'une peur infinie, semblait déformée.
 
-De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Le garçon au regard froid possédait un niveau de culture similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta l'Estimé Nan Zhao et le libéra de la suppression de Maître Hong Shan.
+De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Le garçon au regard froid possédait un niveau de cultivation similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta l'Estimé Nan Zhao et le libéra de la suppression de Maître Hong Shan.
 
 « Tuez le Seigneur du Royaume Scellé ! » rugit le garçon au regard froid ! Il vit que le moral des cultivateurs du Royaume Extérieur vacillait. Ce qui venait de se passer n'avait pas seulement brisé leur intention de combat, cela avait également propagé une peur intense.
 

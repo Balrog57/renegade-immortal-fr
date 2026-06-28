@@ -34,7 +34,7 @@ Teng Huayuan eut un sourire carnassier et le suivit.
 
 Une fois les deux hommes entrés, le miroir rétrécit jusqu'à disparaître sans laisser de trace.
 
-À cent kilomètres de là se trouvait une petite ville. La famille Wang pouvait être considérée comme une lignée prestigieuse dans la région. On disait que certains membres des générations plus jeunes de la famille avaient rejoint des sectes de culture. Ce genre de nouvelles se propageait rapidement dans ces contrées isolées.
+À cent kilomètres de là se trouvait une petite ville. La famille Wang pouvait être considérée comme une lignée prestigieuse dans la région. On disait que certains membres des générations plus jeunes de la famille avaient rejoint des sectes de cultivation. Ce genre de nouvelles se propageait rapidement dans ces contrées isolées.
 
 À l'origine, les Wang étaient une famille de charpentiers possédant divers commerces en ville. Du point de vue d'un étranger, ils formaient la plus puissante lignée du secteur.
 
@@ -84,7 +84,7 @@ Wang Hao murmura : « As-tu eu des nouvelles de Wang Lin ? »
 
 Une expression complexe traversa le visage de Wang Zhuo : « Depuis qu'il a quitté la Secte Heng Yue, aucune nouvelle n'est parvenue. »
 
-Wang Hao soupira et demanda : « À quel niveau de culture es-tu arrivé ? Avec ton talent, tu devrais déjà avoir attiré l'attention de nombreux Anciens au Secte Xuan Dao. »
+Wang Hao soupira et demanda : « À quel niveau de cultivation es-tu arrivé ? Avec ton talent, tu devrais déjà avoir attiré l'attention de nombreux Anciens au Secte Xuan Dao. »
 
 Wang Zhuo répondit amèrement : « Progresser est une lutte constante. Je suis au 11ème niveau de Condensation de Qi, et ce n'est que grâce à ma chance lors du concours de l'année dernière que j'ai pu accéder à la montagne arrière. Je me demande où il en est aujourd'hui... Il doit être au moins au 15ème niveau déjà. »
 

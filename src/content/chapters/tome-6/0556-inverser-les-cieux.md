@@ -54,7 +54,7 @@ Yao Xixue n'utilisa pas de sceau. Cette fois, elle n'hésita pas à déployer se
 
 Wang Lin observa froidement Yao Xixue. Ses sorts étaient tous basés sur le sang ; la plupart du temps, un éclat écarlate précédait l'apparition de sa magie.
 
-Cette bataille contre la statue ne laissait place à aucun suspense. Avec la culture de Yao Xixue, le combat prit fin en la durée d'un demi-encens. Cependant, bien que la statue de pierre se soit effondrée, aucun symbole doré n'en était sorti. Son visage s'assombrit et elle frappa le sol avec mépris, réduisant les débris de la statue en poussière.
+Cette bataille contre la statue ne laissait place à aucun suspense. Avec la cultivation de Yao Xixue, le combat prit fin en la durée d'un demi-encens. Cependant, bien que la statue de pierre se soit effondrée, aucun symbole doré n'en était sorti. Son visage s'assombrit et elle frappa le sol avec mépris, réduisant les débris de la statue en poussière.
 
 Les yeux de Wang Lin se plissèrent tandis qu'il songeait : « Se pourrait-il que le symbole ne fusionne avec le corps qu'une fois la restriction de la statue brisée ? »
 

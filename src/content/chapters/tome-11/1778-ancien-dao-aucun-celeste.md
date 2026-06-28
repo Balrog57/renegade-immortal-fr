@@ -8,7 +8,7 @@ slug: ancien-dao-aucun-celeste
 ---
 Chapitre 1778 - Ancien Dao, Aucun Céleste !
 
-« Ce fut une bataille entre dieux et êtres célestes... » La culture de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense de l'Ancien Dao.
+« Ce fut une bataille entre dieux et êtres célestes... » La cultivation de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense de l'Ancien Dao.
 
 « Autrefois, le Souverain Céleste aux Sept Couleurs combattit Ye Mo, et à la fin, Ye Mo mourut... Quel dommage. Aujourd'hui, je poursuivrai ce combat contre toi ! »
 

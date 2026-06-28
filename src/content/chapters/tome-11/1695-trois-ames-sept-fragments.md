@@ -102,13 +102,13 @@ Wang Lin resta plongé dans ses pensées un long moment, levant les yeux vers la
 
 « À partir de là, vous deviendrez la troisième âme. Je vous aiderai à dévorer le Daoïste des Sept Couleurs ainsi que la deuxième âme. Vous absorberez les sept fragments restants et, dès cet instant, vous serez Sept Couleurs !
 
-« Ma petite sœur et moi pourrons rester avec vous. Elle pourra être votre concubine et je pourrai être votre partenaire de culture. Ainsi, tout reviendra à son cours naturel.
+« Ma petite sœur et moi pourrons rester avec vous. Elle pourra être votre concubine et je pourrai être votre partenaire de cultivation. Ainsi, tout reviendra à son cours naturel.
 
 « Si vous avez d'autres femmes, elles pourront également devenir vos concubines. Même sur le Continent Astral Immortel, si une cultivatrice vous plaît, je pourrai la capturer pour vous afin que nous puissions cultiver ensemble.
 
 « Sept Couleurs était ainsi autrefois ; je l'ai aidé à capturer de nombreuses cultivatrices. Outre ma petite sœur, je l'ai aidé à trouver la plupart de ses huit concubines...
 
-« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous obtiendrez de ce fragment du Domaine d'Or Immemorial, nous pourrons régner sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux ! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
+« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de cultivation augmenteront. Grâce au trésor que vous obtiendrez de ce fragment du Domaine d'Or Immemorial, nous pourrons régner sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux ! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
 
 Wang Lin calma son cœur et regarda la femme. Pour une raison quelconque, il songea à une expérience passée.
 

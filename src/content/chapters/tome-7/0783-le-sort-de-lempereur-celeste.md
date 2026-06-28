@@ -14,7 +14,7 @@ Wang Lin prit une profonde inspiration, le regard résolu. À mesure qu'il gravi
 
 L'ancien de la famille Chen fixa la lueur et déclara calmement : « La chance du compagnon cultivateur Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage ! »
 
-La cultivatrice nommée Lu, dont le corps avait disparu, hocha la tête : « La culture est liée à la fortune. Bien que ce ne soit pas une science exacte, cela produit parfois des effets miraculeux. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
+La cultivatrice nommée Lu, dont le corps avait disparu, hocha la tête : « La cultivation est liée à la fortune. Bien que ce ne soit pas une science exacte, cela produit parfois des effets miraculeux. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
 
 Le dernier cultivateur, nommé Song, resta silencieux. Il fixait le pavillon, les yeux brillants d'une lueur soudaine, et murmura d'une voix basse : « Quelque chose ne va pas ! »
 
@@ -36,13 +36,13 @@ L'ancien Song fixa le firmament et murmura, le regard ahuri : « Impossible... S
 
 Tandis que Lu contemplait ces sept lueurs, son esprit s'était vidé de toute pensée.
 
-Quant au cultivateur Chen, sa réaction fut plus violente encore. Ses yeux trahissaient un choc immense lorsqu'il marmonna : « Quel niveau de culture faut-il pour atteindre le septième étage... Ce Xu Mu ne peut pas posséder une telle puissance. Serait-ce possible... A-t-il vraiment la chance d'accéder au septième étage sans même avoir à passer les tests requis... »
+Quant au cultivateur Chen, sa réaction fut plus violente encore. Ses yeux trahissaient un choc immense lorsqu'il marmonna : « Quel niveau de cultivation faut-il pour atteindre le septième étage... Ce Xu Mu ne peut pas posséder une telle puissance. Serait-ce possible... A-t-il vraiment la chance d'accéder au septième étage sans même avoir à passer les tests requis... »
 
 Alors qu'ils étaient encore sous le choc, deux autres rayons de lumière jaillirent. Il y avait désormais neuf faisceaux perçant le ciel. Pour les trois hommes, ce fut comme si un tonnerre grondait dans leurs oreilles.
 
 Ils restèrent muets, les yeux fixés sur l'azur.
 
-Si cinq rayons étaient apparus, ils auraient pu comprendre, supposant que Xu Mu cachait son véritable niveau de culture. Bien que surpris, cela aurait été acceptable. Mais après l'apparition des sept rayons, tout en étant choqués, ils refusaient de croire à une telle dissimulation.
+Si cinq rayons étaient apparus, ils auraient pu comprendre, supposant que Xu Mu cachait son véritable niveau de cultivation. Bien que surpris, cela aurait été acceptable. Mais après l'apparition des sept rayons, tout en étant choqués, ils refusaient de croire à une telle dissimulation.
 
 Le neuvième rayon ne pouvait s'expliquer que par une chance prodigieuse ; il n'y avait aucune autre issue.
 
@@ -54,7 +54,7 @@ Après avoir marché un certain temps, Wang Lin atteignit enfin le sommet des ma
 
 Ce pavillon n'était pas vaste ; il présentait plus de dix cadres en bois sur chaque côté. Chaque cadre abritait un jade céleste qui diffusait une lueur douce.
 
-Sur le mur, juste devant lui, était suspendue une peinture. Elle représentait un arbre dont la moitié des feuilles étaient jaunies. Sous l'arbre, un jeune garçon semblait être en pleine culture.
+Sur le mur, juste devant lui, était suspendue une peinture. Elle représentait un arbre dont la moitié des feuilles étaient jaunies. Sous l'arbre, un jeune garçon semblait être en pleine cultivation.
 
 Dans le coin supérieur gauche de la toile, une ligne était tracée à l'encre :
 
@@ -64,7 +64,7 @@ Wang Lin médita silencieusement en contemplant l'œuvre. Il ne vit rien de part
 
 « "Invoquer le Vent" et "Appeler la Pluie" doivent être deux sorts distincts. "Arsenal Magique" doit également être un sort. Quant à la seconde partie, "Effondrement des Terres" et "Ruine des Montagnes" semblent suivre la même logique, mais que signifie "Lune Noire, Cieux Clairs"... »
 
-Ne parvenant pas à en percer le mystère, il détourna le regard pour inspecter la pièce. Elle était très simple, dépourvue même de table. Cependant, sur le sol, un tapis de pierre semblait s'être enfoncé sous le poids de quelque chose ; il était évident que quelqu'un avait pratiqué la culture ici pendant une période prolongée.
+Ne parvenant pas à en percer le mystère, il détourna le regard pour inspecter la pièce. Elle était très simple, dépourvue même de table. Cependant, sur le sol, un tapis de pierre semblait s'être enfoncé sous le poids de quelque chose ; il était évident que quelqu'un avait pratiqué la cultivation ici pendant une période prolongée.
 
 Wang Lin avança prudemment pour examiner le tapis. Il paraissait ordinaire, mais lorsqu'il tenta de le toucher, sa main passa inexplicablement au travers.
 

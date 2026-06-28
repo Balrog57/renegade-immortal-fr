@@ -24,13 +24,13 @@ Inconsciemment, Wang Lin déploya son Sens Divin pour scanner la montagne. Bien 
 
 Au Pic du Ciel Vert, l'Estimé Vert Taureau était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
 
-Une fois installé, Wang Lin prit la parole lentement : « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Grande Secte de l'Âme. »
+Une fois installé, Wang Lin prit la parole lentement : « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de cultivation, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Grande Secte de l'Âme. »
 
 En entendant cela, l'Estimé Vert Taureau rit. Il ne semblait nullement embarrassé, mais plutôt serein.
 
-« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Grande Secte de l'Âme et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial ! »
+« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Grande Secte de l'Âme et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en cultivation pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial ! »
 
-« 178 000 ans à cultiver un seul sort alors que le niveau de culture n'augmente pas du tout... Le corps ne disposerait pas d'assez de force vitale ; comment une telle personne pourrait-elle exister ? » Les paroles de Wang Lin étaient brusques. Cette exigence de 178 000 ans lui inspirait un sentiment d'impuissance.
+« 178 000 ans à cultiver un seul sort alors que le niveau de cultivation n'augmente pas du tout... Le corps ne disposerait pas d'assez de force vitale ; comment une telle personne pourrait-elle exister ? » Les paroles de Wang Lin étaient brusques. Cette exigence de 178 000 ans lui inspirait un sentiment d'impuissance.
 
 « Haha ! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Grande Secte de l'Âme ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
 
@@ -86,11 +86,11 @@ Une fois la statue redevenue immobile, une ouverture se forma dans le pavillon �
 
 L'expression de Wang Lin resta imperturbable alors qu'il franchissait l'ouverture. En pénétrant au premier étage du Pavillon des Écritures de l'Âme, il en découvrit le secret.
 
-C'était une salle d'environ 10 000 pieds de large où flottaient d'innombrables petits êtres de sept pouces. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
+C'était une salle d'environ 10 000 pieds de large où flottaient d'innombrables petits êtres de sept pouces. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de cultivation impressionnante.
 
 Le regard de Wang Lin balaya ces milliers de silhouettes. Il y avait des hommes et des femmes, jeunes et vieux, mais sans exception, il ne s'agissait que de corps d'âme. Chaque âme contenait un type de sort spécifique.
 
-« Pavillon des Écritures de l'Âme... » murmura Wang Lin après avoir inspecté cet étage et aperçu les escaliers menant au second. Une lueur spectrale émanait des marches ; sans un niveau de culture suffisant, il était impossible de monter.
+« Pavillon des Écritures de l'Âme... » murmura Wang Lin après avoir inspecté cet étage et aperçu les escaliers menant au second. Une lueur spectrale émanait des marches ; sans un niveau de cultivation suffisant, il était impossible de monter.
 
 Il était évident que plus on montait, plus les sorts étaient prodigieux. Wang Lin agita sa manche et survola des centaines de corps d'âme pour atteindre l'escalier. Dès qu'il posa le pied sur la première marche, une force de rejet apparut pour entraver son ascension.
 
@@ -112,4 +112,4 @@ Au sixième étage, Yan Lu était assise, un corps d'âme flottant au-dessus de 
 
 Au moment précis où le pied de Wang Lin toucha les marches du sixième étage, Yan Lu ouvrit soudainement les yeux, révélant une lueur étrange.
 
-« La personne qui entre dans le Pavillon des Écritures de l'Âme à ce moment précis est probablement ce Wang Lin ! Sa culture est singulière ; il ne peut pas être simplement au stade avancé du Vide Spirituel. Voyons s'il parvient à monter ici, alors je pourrai juger de son véritable niveau ! »
+« La personne qui entre dans le Pavillon des Écritures de l'Âme à ce moment précis est probablement ce Wang Lin ! Sa cultivation est singulière ; il ne peut pas être simplement au stade avancé du Vide Spirituel. Voyons s'il parvient à monter ici, alors je pourrai juger de son véritable niveau ! »

@@ -16,7 +16,7 @@ Wang Lin traversa rapidement la région de rang 6 en perçant le brouillard. Au 
 
 Sa vitesse était telle qu'il provoqua d'énormes remous dans la brume. Cela attira l'attention de tous les vieux monstres de la région de rang 6, mais après avoir constaté la vélocité de Wang Lin, ils furent tous stupéfaits. Ils reculèrent immédiatement et n'osèrent pas l'intercepter, le laissant passer.
 
-Dans le monde de la culture, le niveau de puissance était souverain, et les forts étaient respectés. À cet instant, la vitesse de Wang Lin était une preuve suffisante de sa force. Elle était trop rapide pour que quiconque puisse le verrouiller du regard, rendant difficile l'estimation de son niveau de culture. Les gens préféraient éviter les ennuis plutôt que d'en chercher, ils choisirent donc de l'ignorer.
+Dans le monde de la cultivation, le niveau de puissance était souverain, et les forts étaient respectés. À cet instant, la vitesse de Wang Lin était une preuve suffisante de sa force. Elle était trop rapide pour que quiconque puisse le verrouiller du regard, rendant difficile l'estimation de son niveau de cultivation. Les gens préféraient éviter les ennuis plutôt que d'en chercher, ils choisirent donc de l'ignorer.
 
 Si quelqu'un d'autre avait osé traverser la région de rang 6 de la sorte, sans contourner les continents, il aurait été inévitablement bloqué et aurait même dû craindre pour sa vie.
 

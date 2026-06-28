@@ -54,7 +54,7 @@ C'est alors que le ciel s'obscurcit soudainement et qu'un cercle de lumière app
 
 Cet homme était le messager laissé à Zhao, Lin Yi.
 
-Li Yin laissa échapper un rire et déclara : « Tout le monde, je suis ici pour aider les messagers des pays de culture supérieure à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
+Li Yin laissa échapper un rire et déclara : « Tout le monde, je suis ici pour aider les messagers des pays de cultivation supérieure à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
 
 Derrière Li Yin se trouvaient Punnan Zi, le cultivateur aux cheveux blancs du Secte Piao Miao, et un homme svelte appartenant au Secte Tian Dao.
 
@@ -74,9 +74,9 @@ Xue Mei, qui se tenait aux côtés de Li Yin, laissa échapper un rire : « Seig
 
 Lin Yi acquiesça : « Ces cinq sont bel et bien des marionnettes humaines. »
 
-L'homme svelte du Secte Tian Dao observa les environs en fronçant les sourcils : « Pourquoi le compagnon de culture Ye n'est-il pas ici... ? »
+L'homme svelte du Secte Tian Dao observa les environs en fronçant les sourcils : « Pourquoi le compagnon de cultivation Ye n'est-il pas ici... ? »
 
-Lin Yi secoua la tête et répondit : « Le Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming ; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement : « Le Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
+Lin Yi secoua la tête et répondit : « Le Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming ; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement : « Le Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur cultivation... »
 
 Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara : « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte ; celle-ci est donc autorisée à détenir deux jetons, puisqu'il n'y a aucune limite quant au nombre de jetons que l'on peut posséder. »
 

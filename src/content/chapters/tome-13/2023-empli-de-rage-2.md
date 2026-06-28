@@ -46,13 +46,13 @@ Sa tristesse avait toujours été enfouie au plus profond de son cœur, dissimul
 
 Tandis qu'il s'éloignait en silence, ses larmes tombaient sur les toits des maisons qu'il dépassait. Les bruits joyeux du palais résonnaient encore, mais Wang Lin ne voulait pas les entendre. Il cherchait un endroit où il pourrait être seul pour se remémorer ses souvenirs.
 
-Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la culture ou pour contempler le Grand Soleil Éthéré dans le monde de la grotte. Il resta là, contemplant le monde coloré pendant un long moment.
+Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la cultivation ou pour contempler le Grand Soleil Éthéré dans le monde de la grotte. Il resta là, contemplant le monde coloré pendant un long moment.
 
-« J'ai une culture qui perce les cieux... Mais à quoi bon... »
+« J'ai une cultivation qui perce les cieux... Mais à quoi bon... »
 
 « J'ai la volonté de défier les cieux... Et alors ? »
 
-« Même si je suis le gardien du Dao Antique, je ne peux pas retrouver l'âme de Wan Er... » Le visage de Wang Lin était marqué par la douleur. Il refusait de songer à ce problème ; il utilisait sa culture comme un prétexte pour s'anesthésier et se mentir à lui-même. Il s'était convaincu que c'était son seul espoir de retrouver l'âme de Wan Er.
+« Même si je suis le gardien du Dao Antique, je ne peux pas retrouver l'âme de Wan Er... » Le visage de Wang Lin était marqué par la douleur. Il refusait de songer à ce problème ; il utilisait sa cultivation comme un prétexte pour s'anesthésier et se mentir à lui-même. Il s'était convaincu que c'était son seul espoir de retrouver l'âme de Wan Er.
 
 Pourtant, il s'était trompé pendant des milliers d'années, car maintenant qu'il avait vu Song Zhi, qui ressemblait tant à Wan Er, il ne pouvait plus contrôler ses sentiments.
 
@@ -66,7 +66,7 @@ Dans un profond soupir, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, une cert
 
 « Song Zhi... » murmura Wang Lin. Il leva la main droite et une ombre superposée en émergea. Son corps véritable des cinq éléments apparut, avec au centre une masse de lumière dorée. Une silhouette se dessinait dans cette clarté — c'était le corps véritable d'essence métallique sur le point de se former.
 
-Wang Lin s'efforça de rester calme et de ne plus penser à cela. Il se répéta que Song Zhi n'était pas Wan Er. Il ferma les yeux, comptant sur sa culture pour apaiser son esprit et cesser de revivre le passé.
+Wang Lin s'efforça de rester calme et de ne plus penser à cela. Il se répéta que Song Zhi n'était pas Wan Er. Il ferma les yeux, comptant sur sa cultivation pour apaiser son esprit et cesser de revivre le passé.
 
 Mais au moment même où il fermait les yeux, il les rouvrit brusquement. Ses yeux brillaient d'une lumière dorée monstrueuse et d'un choc profond !
 

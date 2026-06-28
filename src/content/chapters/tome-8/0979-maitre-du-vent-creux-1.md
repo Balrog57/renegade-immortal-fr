@@ -10,7 +10,7 @@ Wang Lin connaissait cet homme. C'était le cultivateur au corps massif qui avai
 
 Face aux sept rayons de lumière formés par les sept hommes en noir et à leur rugissement, Wang Lin eut un ricanement méprisant.
 
-« Voyons si ma culture actuelle peut vaincre des cultivateurs du stade initial de Nirvana Cleanser ! »
+« Voyons si ma cultivation actuelle peut vaincre des cultivateurs du stade initial de Nirvana Cleanser ! »
 
 Big Head se lécha les lèvres, une soif de sang brillant dans ses yeux. Cela faisait bien longtemps qu'il n'avait pas tué personne. En voyant ces sept hommes en noir, une intention meurtrière ne put s'empêcher d'envahir son cœur.
 
@@ -44,7 +44,7 @@ Cette illusion était une tablette de pierre qui émettait une lueur dorée illu
 
 « Destruction de l'Âme par la Tablette Céleste ! » cria le vieil homme alors que l'illusion s'élançait. Sa main droite forma un sceau et, d'un point de son doigt, la tablette de pierre s'apprêtait à écraser impitoyablement Wang Lin.
 
-L'expression de Wang Lin resta sereine. Il serra le poing et lança un coup avant de faire un pas en avant. Ce coup concentrait sa culture du stade intermédiaire de Nirvana Scryer ainsi que son pouvoir de Dieu Ancien. Sa culture de Nirvana Scryer intermédiaire lui permettait d'atteindre son apogée, comme il l'avait démontré dans le vide, sans pour autant se transformer en un Dieu Ancien de mille pieds !
+L'expression de Wang Lin resta sereine. Il serra le poing et lança un coup avant de faire un pas en avant. Ce coup concentrait sa cultivation du stade intermédiaire de Nirvana Scryer ainsi que son pouvoir de Dieu Ancien. Sa cultivation de Nirvana Scryer intermédiaire lui permettait d'atteindre son apogée, comme il l'avait démontré dans le vide, sans pour autant se transformer en un Dieu Ancien de mille pieds !
 
 S'il adoptait la forme d'un Dieu Ancien, Wang Lin était certain de pouvoir affronter des cultivateurs du stade intermédiaire de Nirvana Cleanser !
 

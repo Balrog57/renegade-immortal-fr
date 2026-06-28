@@ -10,13 +10,13 @@ slug: au-dessus-de-lascendant
 
 Situ Nan répondit d'un ton grave : « Le royaume au-delà du stade d'Ascendant n'est pas une chose que la plupart des cultivateurs connaissent, car il y a tout simplement trop peu de personnes à ces niveaux. »
 
-« Le stade d'Ascendant est un sommet et, en même temps, une porte. La plupart des cultivateurs restent bloqués devant cette porte, incapables de poursuivre leur culture avant que leur espérance de vie n'atteigne son terme.
+« Le stade d'Ascendant est un sommet et, en même temps, une porte. La plupart des cultivateurs restent bloqués devant cette porte, incapables de poursuivre leur cultivation avant que leur espérance de vie n'atteigne son terme.
 
 Cependant, une fois que vous franchissez ce seuil et touchez le royaume suivant, votre longévité augmentera de façon exponentielle. Bien qu'elle ne puisse égaler celle des cieux et de la terre, elle s'en trouvera considérablement accrue. J'ai acquis une certaine compréhension du royaume suivant avant de m'échapper dans la Perle Défiant le Ciel, ce qui explique pourquoi j'ai pu survivre pendant des dizaines de milliers d'années à l'intérieur.
 
 Mais cela ne signifie pas que ma vie est infinie. Si mon heure vient et que je n'ai toujours pas réalisé de percée, je mourrai malgré tout.
 
-Il ne s'agit pas de dire que personne n'a réussi à échapper au cycle de la réincarnation des cieux, mais le plus souvent, il s'agit de cultivateurs de bas niveau. Il est tout simplement trop difficile pour ceux qui ont atteint le stade d'Ascendant d'échapper au cycle de la réincarnation. Le cycle de la réincarnation des cieux produit une puissance proportionnelle au niveau de culture du cultivateur. C'est pourquoi j'ai dit que les cultivateurs de bas niveau ont beaucoup plus de facilité à échapper au cycle de la réincarnation, à condition qu'un cultivateur de haut niveau les aide. »
+Il ne s'agit pas de dire que personne n'a réussi à échapper au cycle de la réincarnation des cieux, mais le plus souvent, il s'agit de cultivateurs de bas niveau. Il est tout simplement trop difficile pour ceux qui ont atteint le stade d'Ascendant d'échapper au cycle de la réincarnation. Le cycle de la réincarnation des cieux produit une puissance proportionnelle au niveau de cultivation du cultivateur. C'est pourquoi j'ai dit que les cultivateurs de bas niveau ont beaucoup plus de facilité à échapper au cycle de la réincarnation, à condition qu'un cultivateur de haut niveau les aide. »
 
 Wang Lin hocha la tête. Il se remémora le moment où il avait aidé Li Muwan à repousser l'Émissaire des Cieux.
 
@@ -24,13 +24,13 @@ Situ Nan prit une profonde inspiration, laissant transparaître une pointe de re
 
 Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur de Nirvana ? »
 
-« C'est exact. La première génération de Suzaku, Yu Wuyou, m'a parlé des trois royaumes du Briseur de Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
+« C'est exact. La première génération de Suzaku, Yu Wuyou, m'a parlé des trois royaumes du Briseur de Nirvana après avoir reçu les récompenses de l'Alliance de la Cultivation. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
 
 « Les trois royaumes du Briseur de Nirvana : le premier est le royaume du Devin de Nirvana, le deuxième est celui du Purificateur de Nirvana, et le troisième est celui du Briseur de Nirvana. »
 
 Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda : « Et après les trois royaumes du Briseur de Nirvana ? Est-ce là le sommet ? »
 
-Situ Nan secoua la tête et répondit : « Comment pourrait-ce être aussi simple ? Les trois royaumes du Briseur de Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur de Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Culture ont réussi à franchir le stade du Briseur de Nirvana. »
+Situ Nan secoua la tête et répondit : « Comment pourrait-ce être aussi simple ? Les trois royaumes du Briseur de Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur de Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Cultivation. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Cultivation ont réussi à franchir le stade du Briseur de Nirvana. »
 
 Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda : « Êtes-vous un Devin de Nirvana ? »
 
@@ -38,23 +38,23 @@ Situ Nan eut un sourire amer et dit : « Comment cela pourrait-il être aussi fa
 
 Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Devin de Nirvana.
 
-Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Devin de Nirvana. »
+Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en cultivation de porte close afin de devenir un Devin de Nirvana. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda : « Quel est le niveau de culture de Zhuque Zi ? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Devin de Nirvana ? »
+Les yeux de Wang Lin s'illuminèrent et il demanda : « Quel est le niveau de cultivation de Zhuque Zi ? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Devin de Nirvana ? »
 
 Une pointe de dédain apparut dans les yeux de Situ Nan, puis il déclara : « Lui ? Stade d'Ascendant avancé. Je crains qu'il ne soit même pas qualifié pour atteindre les étapes du Nettoyage Yin-Yang, alors ne parlons même pas de devenir un Devin de Nirvana. Cependant, il est considéré comme une sorte de cultivateur d'Ascendant très spéciale. Bien qu'il soit toujours plus faible que les cultivateurs aux étapes du Nettoyage Yin-Yang, il n'est pas de taille face à un cultivateur d'Ascendant avancé ordinaire. »
 
-Les yeux de Wang Lin brillèrent et il s'exclama : « Le Sceau de Suzaku de l'Alliance de la Culture ! »
+Les yeux de Wang Lin brillèrent et il s'exclama : « Le Sceau de Suzaku de l'Alliance de la Cultivation ! »
 
-Situ Nan laissa paraître une pointe d'appréciation dans son regard et dit lentement : « Oui, c'est un cultivateur d'Ascendant Titulaire. Il peut être considéré comme un haut niveau d'Ascendant car il maîtrise une technique spéciale de l'Alliance de la Culture.
+Situ Nan laissa paraître une pointe d'appréciation dans son regard et dit lentement : « Oui, c'est un cultivateur d'Ascendant Titulaire. Il peut être considéré comme un haut niveau d'Ascendant car il maîtrise une technique spéciale de l'Alliance de la Cultivation.
 
 Ye Wuyou a obtenu une technique puissante après son retour de l'Alliance, appelée le Sceau de Suzaku. Elle est extrêmement redoutable, et elle aurait été incroyable si elle ne coûtait pas une partie de la longévité à chaque utilisation. À moins qu'un cultivateur d'Ascendant n'ait compris les étapes du Nettoyage Yin-Yang, il lui sera difficile de rivaliser avec l'actuel Suzaku.
 
-Cependant, les techniques offertes par l'Alliance de la Culture sont classées au même titre que les trésors célestes. Le Sceau de Suzaku n'est qu'une technique de qualité inférieure, mais elle augmente considérablement la puissance de celui qui porte le titre.
+Cependant, les techniques offertes par l'Alliance de la Cultivation sont classées au même titre que les trésors célestes. Le Sceau de Suzaku n'est qu'une technique de qualité inférieure, mais elle augmente considérablement la puissance de celui qui porte le titre.
 
-Malheureusement, le Sceau de Suzaku ne peut être utilisé que si l'on contrôle le Cristal Planétaire de Culture. Une fois que vous maîtrisez les deux, votre force augmentera de façon prodigieuse.
+Malheureusement, le Sceau de Suzaku ne peut être utilisé que si l'on contrôle le Cristal Planétaire de Cultivation. Une fois que vous maîtrisez les deux, votre force augmentera de façon prodigieuse.
 
-La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement le sceau augmente la vitesse de culture, mais une fois que vous possédez le Cristal Planétaire de Culture, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
+La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement le sceau augmente la vitesse de cultivation, mais une fois que vous possédez le Cristal Planétaire de Cultivation, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
 
 Wang Lin réfléchit un moment. Ses yeux s'animèrent et il demanda : « Vous avez dit plus tôt que les trésors célestes étaient également classés par rang ? »
 
@@ -92,9 +92,9 @@ Les yeux de Situ Nan s'écarquillèrent et il dit avec dépit : « Quoi ? Un tr�
 
 La grande majorité des trésors célestes dont disposent les cultivateurs sont de qualité inférieure ; il y en a très peu de qualité moyenne. Une fois que vous aurez quitté cet endroit, vous verrez à quel point ils sont rares. Un seul suffit pour déclencher une guerre ! »
 
-L'expression de Wang Lin changea légèrement. Il repensa au Royaume Céleste lorsqu'il avait vu le saint épéiste Ling Tianhou et quelques vieux détraqués se battre comme des fous pour des épées célestes. Les niveaux de culture de ces individus étaient certainement au-delà du stade d'Ascendant, les paroles de Situ Nan étaient donc tout à fait logiques.
+L'expression de Wang Lin changea légèrement. Il repensa au Royaume Céleste lorsqu'il avait vu le saint épéiste Ling Tianhou et quelques vieux détraqués se battre comme des fous pour des épées célestes. Les niveaux de cultivation de ces individus étaient certainement au-delà du stade d'Ascendant, les paroles de Situ Nan étaient donc tout à fait logiques.
 
-« Les trésors de qualité moyenne sont déjà rares, mais ceux de qualité supérieure le sont encore plus. Ce vieil homme a cultivé pendant très longtemps et a même voyagé sur plusieurs planètes de culture, mais je n'ai jamais vu un seul trésor céleste de qualité supérieure. Vous avez vraiment de la chance, gamin. » renifla Situ Nan.
+« Les trésors de qualité moyenne sont déjà rares, mais ceux de qualité supérieure le sont encore plus. Ce vieil homme a cultivé pendant très longtemps et a même voyagé sur plusieurs planètes de cultivation, mais je n'ai jamais vu un seul trésor céleste de qualité supérieure. Vous avez vraiment de la chance, gamin. » renifla Situ Nan.
 
 Situ Nan leva la tête et demanda : « Possédez-vous la technique pour cette épée ? »
 

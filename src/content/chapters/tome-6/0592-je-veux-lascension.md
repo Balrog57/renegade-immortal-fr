@@ -16,7 +16,7 @@ La main de Wang Lin était toujours posée sur le tambour. À cet instant, chaqu
 
 Les scènes de ses moments passés avec Li Muwan...
 
-La solitude de sept cents ans de culture...
+La solitude de sept cents ans de cultivation...
 
 Ces cent années passées lors de l'épreuve à la Secte du Destin Céleste...
 
@@ -44,7 +44,7 @@ Lorsqu'ils revinrent à la réalité, hormis les commandants en chef et quelques
 
 Le vice-commandant Xuan laissa échapper un soupir en regardant Wang Lin, qui se tenait près du tambour démoniaque. L'expression complexe dans ses yeux disparut progressivement pour laisser place à l'admiration !
 
-« Diffuser son intention par le son du tambour... Peut-être est-il l'être que l'Empereur Démon attend depuis d'innombrables années... Ma culture, bloquée depuis si longtemps, montre des signes de progression après avoir entendu ce son... »
+« Diffuser son intention par le son du tambour... Peut-être est-il l'être que l'Empereur Démon attend depuis d'innombrables années... Ma cultivation, bloquée depuis si longtemps, montre des signes de progression après avoir entendu ce son... »
 
 Hormis le Commandant Céleste, chaque commandant regardait Wang Lin avec une expression différente. Cependant, ils partageaient tous la même chose : l'étonnement sur leurs visages !
 
@@ -70,7 +70,7 @@ Le onzième coup retentit alors qu'il était encore sous le choc.
 
 Si ce son avait été identique aux précédents, il n'aurait pas été aussi alarmé, mais ce onzième coup portait une intention. L'homme à l'armure dorée se questionna et comprit que même lui ne pouvait atteindre un tel niveau !
 
-Cela n'avait rien à voir avec la culture, mais avec le royaume ! Un degré supérieur de domaine et d'affinement de l'âme.
+Cela n'avait rien à voir avec la cultivation, mais avec le royaume ! Un degré supérieur de domaine et d'affinement de l'âme.
 
 L'homme à l'armure dorée n'oublierait jamais ce qui s'était passé aujourd'hui. À cet instant, il ressentait une irrésistible réticence à s'opposer à Wang Lin.
 
@@ -132,7 +132,7 @@ Ce tambour démoniaque, quant à lui, était fabriqué à partir de la peau de l
 
 Se purifier la moelle avec ce tambour était un honneur originellement réservé aux natifs du Pays du Démon Céleste. Les étrangers devaient accomplir de vastes exploits pour y être autorisés.
 
-Chaque commandant recevait l'opportunité de frapper le tambour lors de sa nomination, et la récompense promise était la purification de la moelle. Cependant, la réussite de ce processus dépendait entièrement de leur culture.
+Chaque commandant recevait l'opportunité de frapper le tambour lors de sa nomination, et la récompense promise était la purification de la moelle. Cependant, la réussite de ce processus dépendait entièrement de leur cultivation.
 
 Les trois coups fusionnèrent en une force colossale qui déferla dans le corps de Wang Lin. Ses impuretés étant déjà quasi inexistantes, il fut purifié une fois de plus par cette puissance.
 
@@ -146,7 +146,7 @@ Lorsqu'une personne subit ce processus, les vibrations émanant de son corps sec
 
 Quand Wang Lin ouvrit les yeux, toutes les impuretés de son organisme avaient été expulsées par le tambour. Il eut la sensation que son corps allait être aspiré vers le ciel. Puis il regarda le tambour démoniaque, ses yeux empreints d'une clarté absolue.
 
-« Moi, Wang Lin, j'ai cultivé pendant sept cents ans. Ma culture a atteint le sommet de la phase tardive de la Transformation de l'Âme et mon Dao est fusionné avec mon corps. Je comprends enfin pourquoi je n'ai pas encore atteint le stade d'Ascendant. L'Ascension... Bien que mon domaine soit fusionné avec mon être, mon cœur Dao n'est pas complet. En fin de compte... au plus profond de moi, il subsiste une trace de tristesse, une blessure, une cicatrice scellée... »
+« Moi, Wang Lin, j'ai cultivé pendant sept cents ans. Ma cultivation a atteint le sommet de la phase tardive de la Transformation de l'Âme et mon Dao est fusionné avec mon corps. Je comprends enfin pourquoi je n'ai pas encore atteint le stade d'Ascendant. L'Ascension... Bien que mon domaine soit fusionné avec mon être, mon cœur Dao n'est pas complet. En fin de compte... au plus profond de moi, il subsiste une trace de tristesse, une blessure, une cicatrice scellée... »
 
 « Quand Li Muwan est morte, mon domaine a atteint un nouveau niveau et a pénétré dans mon corps... Mais Wan Er est devenue une pensée scellée dans mon cœur... »
 

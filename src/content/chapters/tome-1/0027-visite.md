@@ -24,7 +24,7 @@ De plus, les caractères gravés sur le talisman dégageaient une pointe de dang
 
 Une fois cela fait, il sortit la perle mystérieuse et pénétra dans l'espace du rêve.
 
-Cette fois, il ne consacra pas tout son temps à la culture, mais s'appliqua à apprendre la Technique d'Attraction. Il avait senti que cette technique était très utile après l'avoir testée sur le frère Liu, c'est pourquoi il était si déterminé à la pratiquer.
+Cette fois, il ne consacra pas tout son temps à la cultivation, mais s'appliqua à apprendre la Technique d'Attraction. Il avait senti que cette technique était très utile après l'avoir testée sur le frère Liu, c'est pourquoi il était si déterminé à la pratiquer.
 
 Il prit d'abord la gourde comme cible. Il tenta d'utiliser la Force d'Attraction pour l'attirer vers lui. Après de nombreuses tentatives, il finit par réussir. Il cessa immédiatement l'exercice pour recommencer depuis le début.
 
@@ -36,9 +36,9 @@ Le temps s'écoulait rapidement dans le rêve. Sans que Wang Lin ne s'en aperço
 
 Outre les lois régissant chacune des trois étapes de la Condensation de Qi, il y avait également deux incantations cruciales.
 
-Ces chants étaient le véritable cœur de la Condensation de Qi. La culture comprenait quinze couches de Condensation de Qi. À l'exception de la première couche, que l'on pouvait atteindre par ses propres moyens, les quatorze suivantes nécessitaient l'incantation pour passer au niveau supérieur.
+Ces chants étaient le véritable cœur de la Condensation de Qi. La cultivation comprenait quinze couches de Condensation de Qi. À l'exception de la première couche, que l'on pouvait atteindre par ses propres moyens, les quatorze suivantes nécessitaient l'incantation pour passer au niveau supérieur.
 
-Par exemple, même s'il avait terminé la première couche et maîtrisé la méthode de culture de la deuxième, il resterait bloqué à la première s'il échouait à prononcer correctement le chant de la deuxième étape.
+Par exemple, même s'il avait terminé la première couche et maîtrisé la méthode de cultivation de la deuxième, il resterait bloqué à la première s'il échouait à prononcer correctement le chant de la deuxième étape.
 
 Wang Lin murmura l'incantation mentalement. L'énergie spirituelle dans son corps commença à muter. Au début, le changement fut minime, mais bientôt, il eut l'impression que de l'eau bouillante circulait dans ses veines.
 
@@ -68,4 +68,4 @@ La voix lui était familière. Wang Lin se leva et ouvrit la porte pour découvr
 
 « Les vêtements noirs ! » Le cœur de Wang Lin se serra. Il reconnut l'homme qui l'avait amené, lui, Wang Zhuo et Wang Hao à la Secte Heng Yue, et celui qui avait conduit son père pour le retrouver près du précipice.
 
-Pourtant, Wang Lin se souvenait qu'il portait des vêtements blancs à l'époque. Désormais, après seulement quelques mois, il était passé au noir ! Il se remémora soudainement le jour des tests au pied de la montagne. L'homme qui avait pris Wang Hao comme assistant avait alors déclaré que cet individu avait atteint un point critique dans sa culture et qu'il reprenait le rôle d'examinateur pour ne pas le distraire.
+Pourtant, Wang Lin se souvenait qu'il portait des vêtements blancs à l'époque. Désormais, après seulement quelques mois, il était passé au noir ! Il se remémora soudainement le jour des tests au pied de la montagne. L'homme qui avait pris Wang Hao comme assistant avait alors déclaré que cet individu avait atteint un point critique dans sa cultivation et qu'il reprenait le rôle d'examinateur pour ne pas le distraire.

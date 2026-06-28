@@ -90,7 +90,7 @@ Le Vieux Fantôme Zhan était encore plus stupéfait, ses pupilles se contractan
 
 En balayant l'assemblée du regard, il remarqua la gourde géante qui flottait au-dessus des quatre généraux. Elle exhalait des volutes d'énergie céleste ; elle était extraordinaire.
 
-Le général du Dragon Azure réprima le choc dans son cœur. Ses yeux brillèrent et il dit lentement : « Nous n'avons pas revu le Compagnon de Culture Wang depuis notre séparation. Maintenant que nous nous croisons, je me demande bien où le Compagnon de Culture compte se rendre. »
+Le général du Dragon Azure réprima le choc dans son cœur. Ses yeux brillèrent et il dit lentement : « Nous n'avons pas revu le Compagnon de Cultivation Wang depuis notre séparation. Maintenant que nous nous croisons, je me demande bien où le Compagnon de Cultivation compte se rendre. »
 
 « Le Vide Brillant ! » Wang Lin ne perdit pas de temps. À peine eut-il prononcé ces mots que la Bête des Profondeurs glissa silencieusement vers l'avant.
 
@@ -98,25 +98,25 @@ Il n'avait pas le temps de perdre son temps avec eux. Ni les quatre généraux, 
 
 Les quatre généraux se regardèrent et fixèrent tous la Bête des Profondeurs sous Wang Lin. Leurs yeux brillaient d'une lueur étrange.
 
-Le général du Dragon Azure s'interposa devant Wang Lin et déclara avec lenteur : « Pourquoi le Compagnon de Culture Wang Lin part-il si précipitamment ? Nous avions un accord, et depuis notre arrivée, nous n'avons causé aucun trouble à votre Royaume Céleste et n'avons tué personne dans le monde caverneux. Si le Compagnon de Culture est si pressé de partir, y aurait-il une affaire urgente ? »
+Le général du Dragon Azure s'interposa devant Wang Lin et déclara avec lenteur : « Pourquoi le Compagnon de Cultivation Wang Lin part-il si précipitamment ? Nous avions un accord, et depuis notre arrivée, nous n'avons causé aucun trouble à votre Royaume Céleste et n'avons tué personne dans le monde caverneux. Si le Compagnon de Cultivation est si pressé de partir, y aurait-il une affaire urgente ? »
 
 Wang Lin fronça les sourcils, fixa froidement l'autre et, après un long silence, prononça deux mots :
 
 « Faites place ! »
 
-« Compagnon de Culture Wang, ne soyez pas en colère. Nous n'avons aucune malveillance, nous trouvons simplement cette bête extrêmement étrange. Elle semble capable d'échapper à tout Sens Divin. Je me demande bien où vous avez trouvé une telle créature ? » Le général du Tigre Blanc sourit et fit un pas en avant pour se placer à la droite de Wang Lin.
+« Compagnon de Cultivation Wang, ne soyez pas en colère. Nous n'avons aucune malveillance, nous trouvons simplement cette bête extrêmement étrange. Elle semble capable d'échapper à tout Sens Divin. Je me demande bien où vous avez trouvé une telle créature ? » Le général du Tigre Blanc sourit et fit un pas en avant pour se placer à la droite de Wang Lin.
 
 Simultanément, la Tortue Noire s'avança également pour se positionner à sa gauche. Le général de l'Oiseau Vermillon hésita un instant, mais décida tout de même de bloquer la voie de retraite de Wang Lin.
 
 Peu après, les cent et un anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Profondeurs.
 
-« Compagnon de Culture Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire d'un ton sombre.
+« Compagnon de Cultivation Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire d'un ton sombre.
 
 Wang Lin observa les êtres célestes qui l'encerclaient, mais son regard resta impassible.
 
-« Compagnon de Culture Wang, vous possédez l'Arc Li Guang, nous ne souhaitons donc pas être vos ennemis. Il vous suffit de nous dire où vous avez obtenu cette bête. » Le général du Dragon Azure fixait la Bête des Profondeurs, la cupidité transparaissant dans ses yeux.
+« Compagnon de Cultivation Wang, vous possédez l'Arc Li Guang, nous ne souhaitons donc pas être vos ennemis. Il vous suffit de nous dire où vous avez obtenu cette bête. » Le général du Dragon Azure fixait la Bête des Profondeurs, la cupidité transparaissant dans ses yeux.
 
-« Je crois que le Compagnon de Culture Zhan est également intéressé par l'origine de cette créature. » Le général de la Tortue Noire était le plus rusé. À cet instant, il jeta un coup d'œil au Vieux Fantôme Zhan, qui flottait seul au loin.
+« Je crois que le Compagnon de Cultivation Zhan est également intéressé par l'origine de cette créature. » Le général de la Tortue Noire était le plus rusé. À cet instant, il jeta un coup d'œil au Vieux Fantôme Zhan, qui flottait seul au loin.
 
 Le Vieux Fantôme Zhan esquissa lentement un sourire. Vu son âge, il était certainement bien plus astucieux que les autres. Si les quatre généraux osaient barrer la route à Wang Lin, c'était parce qu'il les suivait toujours.
 
@@ -124,7 +124,7 @@ Dans sa jeunesse, il avait souvent emprunté le pouvoir d'autrui pour faire pres
 
 « Je suis en effet intéressé par cette bête. Si vous êtes prêt à vous en séparer, je peux vous promettre une chose. »
 
-« Compagnon de Culture, pour une simple bête féroce, vous allez gaspiller plusieurs flèches de l'Arc Li Guang ; cela n'en vaut pas la peine... De plus, combien de flèches vous reste-t-il ? Pouvez-vous maintenant nous dire où vous avez trouvé cette bête ? Et si c'est possible, prêtez-la à ce vieil homme. Si vous me la prêtez, je vous laisserai repartir immédiatement. »
+« Compagnon de Cultivation, pour une simple bête féroce, vous allez gaspiller plusieurs flèches de l'Arc Li Guang ; cela n'en vaut pas la peine... De plus, combien de flèches vous reste-t-il ? Pouvez-vous maintenant nous dire où vous avez trouvé cette bête ? Et si c'est possible, prêtez-la à ce vieil homme. Si vous me la prêtez, je vous laisserai repartir immédiatement. »
 
 « Même si vous refusez de nous la prêter, puisque nous sommes tous amis, je ne vous bloquerai pas naturellement. Cependant, il pourrait y avoir un problème avec notre coopération passée. Il ne reste plus beaucoup de cultivateurs dans le monde caverneux », ajouta lentement le général du Dragon Azure avec un sourire.
 

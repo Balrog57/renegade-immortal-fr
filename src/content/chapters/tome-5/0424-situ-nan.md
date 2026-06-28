@@ -28,7 +28,7 @@ L'homme d'âge moyen hocha la tête et déclara : « L'arbre ancestral a été l
 
 L'homme d'âge moyen fronça les sourcils et l'interrompit : « Ne te soucie pas de lui. Il est resté trop longtemps dans le pays de Suzaku et ses pensées divergent des nôtres. Humph, si ce n'était pour son refus de combattre, nous aurions pu rayer le pays de Suzaku de la carte lors de cette bataille il y a quelques années ! »
 
-« Je ne crois toujours pas que le Cristal de Planète de Culture que détient le pays de Suzaku possède la puissance dont il prétend ! »
+« Je ne crois toujours pas que le Cristal de Planète de Cultivation que détient le pays de Suzaku possède la puissance dont il prétend ! »
 
 Le vieil homme hocha la tête et se tut.
 

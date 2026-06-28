@@ -22,7 +22,7 @@ Peu après, des nuages de poussière apparurent et furent absorbés par la lumi�
 
 Une partie de cette poussière forgea des rivières et des océans...
 
-Wang Lin eut un haut-le-cœur. C'était une planète ! L'énergie spirituelle qui s'en dégageait était extrêmement riche. Hormis l'absence de mortels, elle ne différait en rien d'une autre planète de culture du monde extérieur !
+Wang Lin eut un haut-le-cœur. C'était une planète ! L'énergie spirituelle qui s'en dégageait était extrêmement riche. Hormis l'absence de mortels, elle ne différait en rien d'une autre planète de cultivation du monde extérieur !
 
 Tandis qu'il était sous le choc, la planète commença immédiatement à se dégrader, comme si le temps remontait son cours. En un instant, elle redevint une sphère de lumière qui rétrécissait sans cesse, jusqu'à n'être plus qu'une lueur vacillante.
 

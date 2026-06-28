@@ -8,15 +8,15 @@ slug: frere-apprenti-superieur
 ---
 Chapitre 796 - Frère Apprenti Supérieur ?
 
-L'expression du Maître Flamespark était grave lorsqu'il déclara : « Si le Seigneur Céleste souhaite restaurer votre culture, il vous faudra une immense quantité d'énergie originelle. Plutôt que de dévorer des cultivateurs ici, dans le Système Stellaire d'Allheaven, venez avec moi vers le Système Stellaire de l'Alliance, où résident de nombreux cultivateurs puissants. Je suis convaincu qu'il ne faudra pas longtemps pour que la culture du Seigneur Céleste retrouve son apogée ! »
+L'expression du Maître Flamespark était grave lorsqu'il déclara : « Si le Seigneur Céleste souhaite restaurer votre cultivation, il vous faudra une immense quantité d'énergie originelle. Plutôt que de dévorer des cultivateurs ici, dans le Système Stellaire d'Allheaven, venez avec moi vers le Système Stellaire de l'Alliance, où résident de nombreux cultivateurs puissants. Je suis convaincu qu'il ne faudra pas longtemps pour que la cultivation du Seigneur Céleste retrouve son apogée ! »
 
 Qing Shui répondit calmement : « Cette raison ne suffit pas ! »
 
-« Après votre scellement, le Royaume Céleste a subi une catastrophe qui a provoqué son effondrement. Ne voulez-vous pas savoir ce qui s'est passé ? La rumeur prétend que l'Alliance de Culture possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
+« Après votre scellement, le Royaume Céleste a subi une catastrophe qui a provoqué son effondrement. Ne voulez-vous pas savoir ce qui s'est passé ? La rumeur prétend que l'Alliance de Cultivation possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
 
 Qing Shui réfléchit en silence. Après un long moment, il finit par dire lentement : « Ce n'est toujours pas suffisant. »
 
-« Quand j'étais jeune, j'étais un Ancien au sein de l'Alliance de Culture. On raconte qu'un parchemin existe dans l'Alliance ; un parchemin qui serait tombé du ciel après l'effondrement du Royaume Céleste et qui contiendrait une trace de l'ancien Royaume Céleste. À mon départ, personne n'avait réussi à l'ouvrir.
+« Quand j'étais jeune, j'étais un Ancien au sein de l'Alliance de Cultivation. On raconte qu'un parchemin existe dans l'Alliance ; un parchemin qui serait tombé du ciel après l'effondrement du Royaume Céleste et qui contiendrait une trace de l'ancien Royaume Céleste. À mon départ, personne n'avait réussi à l'ouvrir.
 
 Cependant, la rumeur veut que ce parchemin détienne la véritable raison de l'effondrement du Royaume Céleste ! Tout cela doit avoir un lien avec votre changement soudain. Après tout, quelle coïncidence cela serait-il ! Moins de cent ans après votre massacre, le Royaume Céleste s'est effondré ! Si vous prétendez qu'il n'y a aucun rapport, je ne vous croirai jamais !
 

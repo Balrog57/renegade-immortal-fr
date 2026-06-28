@@ -66,7 +66,7 @@ Au moment où il pénétra dans la vallée, une légère ondulation apparut. Tou
 
 Alors que l'homme entrait dans la vallée, le corps de Wang Lin surgit du vide. Ses yeux s'illuminèrent d'une lueur mystérieuse alors qu'il inspectait les environs.
 
-« Quelqu'un a déployé d'immenses efforts pour placer une formation géante ici. Elle peut dissimuler la présence de tout être vivant ; à moins d'être au plus près, il est presque impossible de remarquer l'existence de ce lieu... En observant les marques de la formation, je vois qu'elle est là depuis des éons. La méthode utilisée pour la poser diffère de celle de l'Alliance de Culture, elle a donc dû être établie par d'anciens cultivateurs. »
+« Quelqu'un a déployé d'immenses efforts pour placer une formation géante ici. Elle peut dissimuler la présence de tout être vivant ; à moins d'être au plus près, il est presque impossible de remarquer l'existence de ce lieu... En observant les marques de la formation, je vois qu'elle est là depuis des éons. La méthode utilisée pour la poser diffère de celle de l'Alliance de Cultivation, elle a donc dû être établie par d'anciens cultivateurs. »
 
 Les yeux de Wang Lin brillaient comme des torches. Il ne se pressa pas d'entrer dans la vallée et préféra l'examiner de l'extérieur avant de tirer cette conclusion.
 

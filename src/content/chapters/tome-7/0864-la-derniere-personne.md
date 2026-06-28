@@ -18,7 +18,7 @@ Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maî
 
 Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Earth Flame. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire d'Allheaven !
 
-Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa culture, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
+Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa cultivation, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
 
 Après le départ de Shengong Hu, d'autres vinrent lui rendre visite. Ce ne fut qu'au quatrième jour que le calme revint. Wang Lin souhaitait cultiver sereinement, mais quelqu'un le perturbait sans relâche : Nangong Han.
 
@@ -68,7 +68,7 @@ Au même moment, les tableaux de transfert du Sud et de l'Ouest s'illuminèrent 
 
 Le Temple Céleste du Tonnerre ressemblait au palais impérial d'un royaume mortel : majestueux et saturé de restrictions. Lorsque Wang Lin ressentit les fluctuations des barrières, ses yeux se rétrécirent.
 
-Grâce à sa compréhension des restrictions, il percevait clairement qu'elles avaient atteint un degré terrifiant. Même avec son niveau de culture, s'il tentait de forcer le passage à travers ces restrictions, il mourrait sans aucun doute !
+Grâce à sa compréhension des restrictions, il percevait clairement qu'elles avaient atteint un degré terrifiant. Même avec son niveau de cultivation, s'il tentait de forcer le passage à travers ces restrictions, il mourrait sans aucun doute !
 
 Et ce n'était pas seulement le Temple Céleste du Tonnerre. En observant les alentours, Wang Lin fronça encore plus les sourcils. Chaque brin d'herbe, chaque plante et même les nuages étaient imprégnés de puissantes restrictions !
 

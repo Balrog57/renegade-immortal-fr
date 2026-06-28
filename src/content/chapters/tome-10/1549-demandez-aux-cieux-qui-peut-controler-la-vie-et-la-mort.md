@@ -12,7 +12,7 @@ Bien que l'Estimé Maître Tian Zhao parût arrogant et affiche un regard de mé
 
 En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan de l'Hirondelle de Feu n'était qu'au stade initial du Nirvana Vide et ne méritait pas son attention.
 
-Ce qui l'avait véritablement stupéfié était l'Estimé Nan Zhao. Le niveau de culture de l'Estimé Nan Zhao était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
+Ce qui l'avait véritablement stupéfié était l'Estimé Nan Zhao. Le niveau de cultivation de l'Estimé Nan Zhao était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
 
 Il découvrait Wang Lin pour la première fois, et il venait de le voir s'arrêter pour déchirer ce vortex qui tournait depuis des éons devant le Quartier Général de l'Alliance.
 
@@ -20,7 +20,7 @@ Cela lui donnait la chair de poule.
 
 Toutefois, il devait maintenir cette contenance ; sinon, s'il révélait la moindre intention de battre en retraite, l'esprit de ces dizaines de milliers de cultivateurs pourrait s'effondrer instantanément.
 
-« Cette personne a emprunté l'esprit de formation autrefois ; il est impossible que quelqu'un à son niveau de culture puisse tuer Nan Zhao ! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel ! » L'Estimé Maître Tian Zhao retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
+« Cette personne a emprunté l'esprit de formation autrefois ; il est impossible que quelqu'un à son niveau de cultivation puisse tuer Nan Zhao ! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel ! » L'Estimé Maître Tian Zhao retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
 
 Les dizaines de milliers de cultivateurs du Royaume Extérieur étaient tous nerveux. L'apparition soudaine de Wang Lin les avait plongés dans une terreur indescriptible avant même qu'ils ne puissent reprendre leurs esprits. Ils n'osaient même pas opposer la moindre résistance.
 

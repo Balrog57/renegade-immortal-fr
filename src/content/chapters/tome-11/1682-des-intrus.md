@@ -76,13 +76,13 @@ L'effondrement du Royaume Céleste du Vent n'était pas irréversible et, grâce
 
 Quant au Royaume Céleste de la Foudre, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
 
-« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de la Foudre est aussi bien préservé, je pourrai l'intégrer également ! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel jaillit dans son Sens Divin qui enveloppait tout le royaume.
+« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de la Foudre est aussi bien préservé, je pourrai l'intégrer également ! » Wang Lin prit une profonde inspiration et leva les mains. Sa cultivation de Vide Spirituel jaillit dans son Sens Divin qui enveloppait tout le royaume.
 
 Les fragments du Royaume Céleste du Vent convergèrent de toutes parts, comme poussés par une force invisible vers le centre !
 
 Tandis que d'innombrables débris grondaient, même le vent infini commença à se replier sur lui-même. Les bêtes moustiques qui habitaient ici depuis longtemps s'envolèrent dans les airs, terrifiées, regardant autour d'elles avec stupeur.
 
-« Rassemblement ! » La chevelure blanche de Wang Lin flottait au vent alors qu'il poussait un rugissement, et ses mains levées se rejoignirent brusquement ! Avec son niveau de culture actuel, il était capable de faire converger à nouveau les innombrables fragments du Royaume Céleste du Vent !
+« Rassemblement ! » La chevelure blanche de Wang Lin flottait au vent alors qu'il poussait un rugissement, et ses mains levées se rejoignirent brusquement ! Avec son niveau de cultivation actuel, il était capable de faire converger à nouveau les innombrables fragments du Royaume Céleste du Vent !
 
 Le stade intermédiaire du Vide Spirituel était puissant, même parmi les cultivateurs de la troisième étape. Il y en avait très peu dans les Domaines Intérieurs et Extérieurs !
 

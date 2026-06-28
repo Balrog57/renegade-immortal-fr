@@ -94,7 +94,7 @@ Il s'agissait d'un combat à mort. Une fois qu'une personne mourait, selon la lo
 
 Refuser le combat après avoir vu la marque signifiait ne pas être digne d'être un Ancien ! Cela différait totalement des Célestes ; une fois cette marque apparue, le combat était inévitable !
 
-Bien sûr, si l'écart de niveau de culture entre les deux était trop vaste, il était permis d'éviter la lutte. Cependant, si la différence n'était pas significative, celui qui refusait de combattre était considéré comme faible, et dans le clan ancien, les faibles ne survivaient pas !
+Bien sûr, si l'écart de niveau de cultivation entre les deux était trop vaste, il était permis d'éviter la lutte. Cependant, si la différence n'était pas significative, celui qui refusait de combattre était considéré comme faible, et dans le clan ancien, les faibles ne survivaient pas !
 
 Après avoir manifesté la marque de bataille, l'homme d'âge moyen fixa Wang Lin, attendant sa décision.
 
@@ -116,7 +116,7 @@ L'aura ancienne exerçait une attraction mortelle sur lui, car elle pouvait l'ai
 
 Dès que Wang Lin sortit de la formation, l'homme d'âge moyen se jeta sur lui. Sa main droite se serra en un poing et un grondement tonitruant retentit alors que son coup de poing volait vers Wang Lin.
 
-Les membres des clans anciens se battaient principalement avec leur corps. Les sorts n'étaient que des soutiens ; au final, ils comptaient sur la force terrifiante de leur constitution physique. Une fois qu'ils atteignaient un certain niveau de culture, le monde pouvait se désintégrer, mais pas leurs corps. Le monde pouvait s'effacer, mais pas eux !
+Les membres des clans anciens se battaient principalement avec leur corps. Les sorts n'étaient que des soutiens ; au final, ils comptaient sur la force terrifiante de leur constitution physique. Une fois qu'ils atteignaient un certain niveau de cultivation, le monde pouvait se désintégrer, mais pas leurs corps. Le monde pouvait s'effacer, mais pas eux !
 
 À cet instant, ce coup de poing se trouvait à moins de 1 000 pieds de Wang Lin.
 

@@ -62,7 +62,7 @@ Wang Lin fronça légèrement les sourcils et fixa le point de disparition de la
 
 Tie Yan attendait toujours Wang Lin sur la place du Secte du Ciel Nuageux. Il savait que ce dernier viendrait inévitablement.
 
-Il ne lui restait plus beaucoup de temps. Sa culture avait régressé jusqu'au sommet du dernier stade de la Formation de l'Âme et il ne pouvait plus franchir le seuil de la Transformation de l'Âme. Il consommait lentement le reste de sa vie.
+Il ne lui restait plus beaucoup de temps. Sa cultivation avait régressé jusqu'au sommet du dernier stade de la Formation de l'Âme et il ne pouvait plus franchir le seuil de la Transformation de l'Âme. Il consommait lentement le reste de sa vie.
 
 À l'origine, avec ses aptitudes et l'illumination reçue de Wang Lin, il n'aurait pas dû en arriver là. Cependant, un incident s'était produit il y a cent ans ; un incident qu'il avait provoqué de sa propre volonté.
 
@@ -74,11 +74,11 @@ Wang Lin demanda calmement : « Où est Zhou Ru ? »
 
 L'expression de Tie Yan devint complexe. Après un silence méditatif, il esquissa un sourire amer. « Cette enfant, Zhou Ru, a quitté la planète Suzaku il y a cent ans... »
 
-Wang Lin leva les yeux vers le ciel et sa mélancolie s'accentua. Il soupira en regardant Tie Yan : « Est-ce pour cela que votre espérance de vie décline et que votre culture régressent ? »
+Wang Lin leva les yeux vers le ciel et sa mélancolie s'accentua. Il soupira en regardant Tie Yan : « Est-ce pour cela que votre espérance de vie décline et que votre cultivation régressent ? »
 
 Tie Yan resta silencieux un instant, puis hocha la tête.
 
-Il aurait été impossible pour Zhou Ru de quitter la planète Suzaku avec son niveau de culture. Afin de l'aider à réaliser son souhait, il avait sacrifié sa propre vie, avec l'aide de Zhou Wutai et une immense quantité de jades célestes, pour permettre à Zhou Ru d'atteindre tout juste le stade de la Transformation de l'Âme.
+Il aurait été impossible pour Zhou Ru de quitter la planète Suzaku avec son niveau de cultivation. Afin de l'aider à réaliser son souhait, il avait sacrifié sa propre vie, avec l'aide de Zhou Wutai et une immense quantité de jades célestes, pour permettre à Zhou Ru d'atteindre tout juste le stade de la Transformation de l'Âme.
 
 « C'est absurde ! » Wang Lin fronça les sourcils en regardant Tie Yan, mais ne rajouta rien. Il frappa son sac de rangement, libérant une quantité massive de jades célestes qui se mirent à flotter dans les airs. Puis, la main droite de Wang Lin s'élança vers le vide.
 
@@ -88,9 +88,9 @@ Tenant cette sphère d'énergie spirituelle céleste, Wang Lin l'enfonça dans l
 
 Wang Lin sortit encore davantage de jades et les lança jusqu'à ce qu'ils forment une petite colline sur la place. Puis, il se détourna et s'éleva dans les airs.
 
-« Votre culture a régressé à cause de Zhou Ru. C'est la cause karmique. Maintenant, je vous aide à la retrouver. C'est l'effet karmique. Quant à ces jades célestes, considérez-les comme mes remerciements pour avoir pris soin des descendants de ma famille Wang. Désormais, ne vous souciez plus de mon clan et cultivez en paix ! »
+« Votre cultivation a régressé à cause de Zhou Ru. C'est la cause karmique. Maintenant, je vous aide à la retrouver. C'est l'effet karmique. Quant à ces jades célestes, considérez-les comme mes remerciements pour avoir pris soin des descendants de ma famille Wang. Désormais, ne vous souciez plus de mon clan et cultivez en paix ! »
 
-Le corps de Tie Yan fut secoué par une violente convulsion. Tandis que l'énergie spirituelle céleste affluait en lui, sa culture se rétablit rapidement. Il adressa un signe de tête vers la silhouette qui s'éloignait de Wang Lin.
+Le corps de Tie Yan fut secoué par une violente convulsion. Tandis que l'énergie spirituelle céleste affluait en lui, sa cultivation se rétablit rapidement. Il adressa un signe de tête vers la silhouette qui s'éloignait de Wang Lin.
 
 Neuf rayons de lumière déchirèrent le ciel et chutèrent brusquement devant Tie Yan. Les neuf épées dégagèrent une puissante onde d'énergie qui balaya toute la zone.
 
@@ -102,15 +102,15 @@ Après avoir réglé le karma au Secte du Ciel Nuageux, Wang Lin s'élança dans
 
 « Domaine du karma... Je dois rembourser tous ceux qui m'ont aidé. Je dois clore tout karma avec ceux que j'ai lésés... » Tandis qu'il méditait, le sens divin de Wang Lin se propagea comme une tempête à travers la planète Suzaku. Peu de temps après, son sens divin était présent en chaque recoin de l'astre.
 
-Planète Suzaku, pays de culture de rang 5 de Zhao, Secte He Huan. Une belle femme était assise dans une grotte, cultivant dans les montagnes arrières du Secte He Huan.
+Planète Suzaku, pays de cultivation de rang 5 de Zhao, Secte He Huan. Une belle femme était assise dans une grotte, cultivant dans les montagnes arrières du Secte He Huan.
 
-L'endroit où elle pratiquait était réservé aux membres internes du secteur ; l'énergie spirituelle y était bien plus dense qu'à l'extérieur. Alors qu'elle était absorbée par sa culture, un rire parvint de l'entrée de la grotte.
+L'endroit où elle pratiquait était réservé aux membres internes du secteur ; l'énergie spirituelle y était bien plus dense qu'à l'extérieur. Alors qu'elle était absorbée par sa cultivation, un rire parvint de l'entrée de la grotte.
 
-« Jeune sœur Zhang, n'oublie pas ta promesse ! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de culture pendant trois jours ! Plus que quatre jours avant la fin du mois ! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
+« Jeune sœur Zhang, n'oublie pas ta promesse ! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de cultivation pendant trois jours ! Plus que quatre jours avant la fin du mois ! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
 
 La femme ouvrit les yeux et soupira. Elle n'était qu'une disciple extérieure du Secte He Huan. L'énergie spirituelle à l'extérieur était trop ténue pour lui permettre d'atteindre le neuvième niveau de Condensation de Qi ; elle ne pouvait espérer sa percée qu'ici.
 
-« Dans l'arbre généalogique, l'ancêtre de la famille, Zhang Hu, était lui aussi un cultivateur. Il y a mille ans, il est entré au Secte Heng Yue. Malheureusement, mille ans ont passé et tout cela s'est évanoui ; je ne suis plus qu'une simple disciple extérieure du Secte He Huan. » La femme venait de refermer les yeux pour reprendre sa culture avec une pointe d'amertume lorsqu'elle leva les yeux. Son regard se remplit de stupeur.
+« Dans l'arbre généalogique, l'ancêtre de la famille, Zhang Hu, était lui aussi un cultivateur. Il y a mille ans, il est entré au Secte Heng Yue. Malheureusement, mille ans ont passé et tout cela s'est évanoui ; je ne suis plus qu'une simple disciple extérieure du Secte He Huan. » La femme venait de refermer les yeux pour reprendre sa cultivation avec une pointe d'amertume lorsqu'elle leva les yeux. Son regard se remplit de stupeur.
 
 Elle vit un jeune homme vêtu de blanc apparaître silencieusement. Il avait l'apparence d'un homme ordinaire, mais une aura indicible émanait de lui.
 
@@ -118,4 +118,4 @@ Wang Lin observa calmement la femme devant lui. Il frappa son sac de rangement, 
 
 « J'ai connu votre ancêtre. La cause karmique du passé forme l'effet karmique d'aujourd'hui. »
 
-Sous le regard abasourdi de la femme, Wang Lin poussa un soupir mélancolique et s'en alla. Zhang Hu était déjà mort. Grâce à sa culture, Wang Lin avait pu déceler une trace de la lignée de Zhang Hu dans cette femme.
+Sous le regard abasourdi de la femme, Wang Lin poussa un soupir mélancolique et s'en alla. Zhang Hu était déjà mort. Grâce à sa cultivation, Wang Lin avait pu déceler une trace de la lignée de Zhang Hu dans cette femme.

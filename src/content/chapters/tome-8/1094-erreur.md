@@ -72,7 +72,7 @@ Il se remémora leur première rencontre sur la planète Suzaku, dans un temple,
 
 La belle femme du Secte des Cadavres garda également le silence. Elle observait Li Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
 
-La sueur perla lentement sur le front de Li Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divins. En impliquant le Temple du Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle ; c'était tout le Temple du Céleste du Tonnerre qui insultait l'Empereur Divin Vermillion Bird !
+La sueur perla lentement sur le front de Li Yunzi. Il était évident qu'avec son niveau de cultivation, il ne pourrait s'échapper des Quatre Sectes Divins. En impliquant le Temple du Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle ; c'était tout le Temple du Céleste du Tonnerre qui insultait l'Empereur Divin Vermillion Bird !
 
 C'était exactement le contraire de l'intention initiale d'Allheaven.
 
@@ -102,7 +102,7 @@ Cependant, l'autre partie avait pris l'ascendant. Avec les témoins présents, m
 
 Le regard de Wang Lin était d'une noirceur extrême. Li Yunzi savait que s'il ne maîtrisait pas sa colère, il serait tué instantanément.
 
-« Seigneur Empereur Divin, cette affaire... j'ai eu tort ! » Li Yunzi serra les poings, le corps tremblant. Depuis le début de sa culture, il n'avait jamais été aussi humilié !
+« Seigneur Empereur Divin, cette affaire... j'ai eu tort ! » Li Yunzi serra les poings, le corps tremblant. Depuis le début de sa cultivation, il n'avait jamais été aussi humilié !
 
 Wang Lin abaissa sa main droite, fixa Li Yunzi et asséna, mot pour mot : « Je veux tous les Parchemins de Bataille de votre famille Zhan ! Donnez-les-moi et je passerai outre ! Je vous accorde quinze minutes pour y réfléchir. »
 

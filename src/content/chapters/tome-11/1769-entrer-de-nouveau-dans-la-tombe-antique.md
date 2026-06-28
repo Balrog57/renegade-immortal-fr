@@ -98,7 +98,7 @@ Xuan Luo se trouvait de l'autre côté de la plateforme de pierre. Il regarda la
 
 « C'est ici que cet enfant, Ye Mo, a péri... »
 
-Un instant plus tard, Wang Lin ouvrit brusquement les yeux, habités par une détermination farouche. La richesse se trouve dans le danger. Wang Lin avait passé sa vie à affronter des situations périlleuses pour atteindre son niveau de culture actuel. La majeure partie de sa puissance lui avait été acquise au prix de sa vie.
+Un instant plus tard, Wang Lin ouvrit brusquement les yeux, habités par une détermination farouche. La richesse se trouve dans le danger. Wang Lin avait passé sa vie à affronter des situations périlleuses pour atteindre son niveau de cultivation actuel. La majeure partie de sa puissance lui avait été acquise au prix de sa vie.
 
 Alors, qu'importait de risquer sa vie une fois de plus ? De surcroît, grâce aux souvenirs obtenus de la troisième âme, Wang Lin avait une idée de ce que représentait cette aura terrifiante dans l'avant-dernière couche.
 

@@ -88,7 +88,7 @@ Ce tonnerre antique provenait de l'ancien dragon de tonnerre. Ce dernier avait a
 
 On pouvait affirmer que le tonnerre issu de l'âme originelle de Wang Lin surpassait tout autre tonnerre au monde. Si le Daoïste du Tonnerre utilisait d'autres sorts, il s'en sortirait, mais face aux sorts de foudre de Wang Lin, il n'avait aucune chance !
 
-Bien que son niveau de culture fût plus élevé, cela ne suffisait pas. Il aurait fallu qu'il soit véritablement au second stade pour espérer vaincre !
+Bien que son niveau de cultivation fût plus élevé, cela ne suffisait pas. Il aurait fallu qu'il soit véritablement au second stade pour espérer vaincre !
 
 Wang Lin possédait une suprématie absolue en matière de tonnerre ; aucun sort de foudre au monde ne pouvait l'atteindre. En d'autres termes, Wang Lin était un dragon de tonnerre vivant !
 
@@ -112,7 +112,7 @@ Wang Lin soupira intérieurement. Ce Daoïste du Tonnerre était bel et bien un 
 
 L'énergie spirituelle céleste de l'adversaire était trop puissante, imprégnée de traces d'énergie originelle. Lorsque le tonnerre pénétrait dans le corps du Daoïste du Tonnerre, il était constamment dissous par cette force.
 
-« Tu es très fort ! Je suppose que tu étais en retraite sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de culture était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade ! » Le Daoïste du Tonnerre prit une profonde inspiration et ses blessures se rétablirent instantanément.
+« Tu es très fort ! Je suppose que tu étais en retraite sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de cultivation était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade ! » Le Daoïste du Tonnerre prit une profonde inspiration et ses blessures se rétablirent instantanément.
 
 Cependant, Wang Lin sentait clairement qu'il y avait un peu moins d'énergie originelle du monde dans le corps de l'autre.
 

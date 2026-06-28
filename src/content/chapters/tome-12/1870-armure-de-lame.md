@@ -108,11 +108,11 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 « Voici la situation : bien que six vieux monstres de la Tribulation du Vide soient à l'extérieur, le troisième méridien possède encore un atout ultime. Une fois activé, nous pourrons nous frayer un chemin et garantir la sécurité de tous pour l'évacuation. »
 
-« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa culture pour invoquer l'âme du Taureau Céleste et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Taureau Céleste fusionnera avec votre corps, et votre puissance atteindra un niveau terrifiant en un temps record ! » lança précipitamment le vieil homme Zhou.
+« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa cultivation pour invoquer l'âme du Taureau Céleste et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Taureau Céleste fusionnera avec votre corps, et votre puissance atteindra un niveau terrifiant en un temps record ! » lança précipitamment le vieil homme Zhou.
 
 À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Taureau Céleste, mais il semblait que cette créature existait bel et bien, et que son armure pouvait décupler la puissance de celui qui la portait.
 
-« Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Aîné Lu, qui possède le niveau de culture et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
+« Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Aîné Lu, qui possède le niveau de cultivation et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
 
 Il ne croyait pas un instant que Lu Wenran accepterait de porter cette armure uniquement par nécessité. Il devait y avoir d'autres avantages cachés, sans quoi Lu Wenran n'aurait jamais consenti.
 

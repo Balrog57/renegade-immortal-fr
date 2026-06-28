@@ -12,7 +12,7 @@ Wang Lin laissa échapper un soupir tandis qu'il s'éloignait de plus en plus de
 
 Il avait amené Li Qianmei ici, et désormais, il partait seul. Wang Lin savait qu'il était très familier avec ce sentiment de solitude, mais il ne pouvait s'empêcher de ressentir une certaine mélancolie.
 
-Après près de 2 000 ans de culture, il avait vu bien des choses en ce monde. Il avait appris à vivre dans la solitude et à dévorer cette errance ainsi que cette mélancolie bleutée.
+Après près de 2 000 ans de cultivation, il avait vu bien des choses en ce monde. Il avait appris à vivre dans la solitude et à dévorer cette errance ainsi que cette mélancolie bleutée.
 
 « Peu importe… » Wang Lin se retourna et contempla la montagne bleue embrumée. Il aperçut vaguement une silhouette au sommet avant de faire volte-face et de s'enfoncer lentement dans la distance.
 
@@ -26,7 +26,7 @@ Son corps réapparut après une téléportation, sur le point de franchir les li
 
 Le ciel étoilé devant lui était lumineux et paisible. C'était magnifique, mais dégageait une sensation étrange.
 
-Wang Lin ressentit un choc en arrivant ici. Cette sensation ne lui était pas inconnue. Au cours de ses 2 000 ans de culture, il l'avait rencontrée à maintes reprises, et chaque fois, elle annonçait une crise de vie ou de mort !
+Wang Lin ressentit un choc en arrivant ici. Cette sensation ne lui était pas inconnue. Au cours de ses 2 000 ans de cultivation, il l'avait rencontrée à maintes reprises, et chaque fois, elle annonçait une crise de vie ou de mort !
 
 La dernière fois qu'il l'avait ressentie, c'était juste avant l'arrivée du Daoïste Eau !
 
@@ -84,9 +84,9 @@ Durant ces sept jours, Wang Lin ne bougea pas d'un iota, et la femme en blanc n'
 
 Après sept jours, Wang Lin ouvrit les yeux, le regard brillant. Son esprit était calme, mais la silhouette de cette femme occupait ses pensées, nourrissant son inquiétude.
 
-« Cette personne ne pensait pas que je la verrais avant de quitter le Clan de la Soie Bleue. Elle se tenait juste à l'extérieur du domaine stellaire du Clan… Le Clan possède le Daoïste Blue Dream, dont la culture est incalculable. C'est peut-être pour cela qu'elle n'est pas entrée dans leur territoire ! »
+« Cette personne ne pensait pas que je la verrais avant de quitter le Clan de la Soie Bleue. Elle se tenait juste à l'extérieur du domaine stellaire du Clan… Le Clan possède le Daoïste Blue Dream, dont la cultivation est incalculable. C'est peut-être pour cela qu'elle n'est pas entrée dans leur territoire ! »
 
-Les yeux de Wang Lin s'illuminèrent. Durant ces sept jours de culture, il se remémora soigneusement tout ce qui s'était produit depuis son entrée dans le Système Stellaire Antique. Il réalisa progressivement que cette sensation de choc était déjà faiblement présente lorsqu'il avait rencontré Tuo Sen.
+Les yeux de Wang Lin s'illuminèrent. Durant ces sept jours de cultivation, il se remémora soigneusement tout ce qui s'était produit depuis son entrée dans le Système Stellaire Antique. Il réalisa progressivement que cette sensation de choc était déjà faiblement présente lorsqu'il avait rencontré Tuo Sen.
 
 À l'époque, il avait pensé que cela n'était dû qu'à la rencontre avec Tuo Sen. Cependant, après une analyse calme, il nota une anomalie : ce sentiment ne provenait pas de Tuo Sen !
 
@@ -106,7 +106,7 @@ Les yeux de Wang Lin se plissèrent. Tout en méditant, son énergie originelle 
 
 Il devina vaguement la réponse, affichant une expression complexe.
 
-Sous la force de résistance infinie qu'il avait dû braver pour gravir la montagne, son corps avait subi un changement radical. Bien que son niveau de culture n'ait pas progressé, l'ascension avait aiguisé ses sens. Cela lui avait permis de ressentir clairement ce choc !
+Sous la force de résistance infinie qu'il avait dû braver pour gravir la montagne, son corps avait subi un changement radical. Bien que son niveau de cultivation n'ait pas progressé, l'ascension avait aiguisé ses sens. Cela lui avait permis de ressentir clairement ce choc !
 
 « Daoïste Blue Dream… Si tout cela était intentionnel, alors ma supposition précédente est correcte. La femme en blanc s'inquiétait pour le Daoïste Blue Dream, et c'est pourquoi elle n'est pas entrée dans le Clan ! »
 
@@ -118,7 +118,7 @@ Il renonça simplement à l'idée de partir immédiatement. Il s'assit sur la mo
 
 Le temps passa. En un clin d'œil, Wang Lin avait cultivé pendant un mois sur cette planète. L'énergie originelle continuait de s'accumuler dans son corps.
 
-Les blessures subies lors de l'ascension de la montagne bleue avaient guéri. Sa culture était revenue à son apogée grâce à cette méditation calme sur les cimes.
+Les blessures subies lors de l'ascension de la montagne bleue avaient guéri. Sa cultivation était revenue à son apogée grâce à cette méditation calme sur les cimes.
 
 Ce jour-là, une lumière bleue infinie apparut dans le ciel au-dessus de sa montagne. Cette lumière était douce et enveloppait le monde entier. Une silhouette vague s'en extirpa et se condensa progressivement.
 

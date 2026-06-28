@@ -12,9 +12,9 @@ Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première
 
 « Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte du Vide d'un seul coup ! »
 
-« Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Vermillion Bird devienne un Dieu Ancien ! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
+« Votre cultivation est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Vermillion Bird devienne un Dieu Ancien ! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
 
-« Ce vieil homme ne sait pas grand-chose sur la culture des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne fût pas aussi puissant que le Souverain Céleste Antique, ce dernier le craignait pourtant toujours... »
+« Ce vieil homme ne sait pas grand-chose sur la cultivation des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne fût pas aussi puissant que le Souverain Céleste Antique, ce dernier le craignait pourtant toujours... »
 
 « L'Ordre Antique ? » Wang Lin fut stupéfait en regardant l'Oiseau Vermillon de la première génération.
 
@@ -52,7 +52,7 @@ Le Maître Dao Blue Dream n'appartenait pas au clan Vermillion Bird. Dans son c�
 
 Wang Lin hésita et demanda : « Si j'abandonne mon corps de Dieu Ancien et mes autres essences, une fois la troisième étape atteinte, pourrai-je recultiver mes essences ? »
 
-« Bien sûr. Les cultivateurs de la troisième étape cultivent également les essences ; plus ils en possèdent, plus leur compréhension est profonde, et leur niveau de culture augmente de la même manière. Cependant, la nouvelle essence ne pourra jamais atteindre une véritable perfection et stagnera à la troisième étape. Ce chemin ne vous présente aucun danger ; c'est une voie paisible qui vous permettra de préserver votre obsession. Ce vieil homme a lui aussi affronté la flamme de l'obsession et sait à quel point elle est cruciale pour des gens comme nous... » L'Oiseau Vermillon de la première génération regarda Wang Lin comme s'il contemplait son propre reflet, avant de soupirer.
+« Bien sûr. Les cultivateurs de la troisième étape cultivent également les essences ; plus ils en possèdent, plus leur compréhension est profonde, et leur niveau de cultivation augmente de la même manière. Cependant, la nouvelle essence ne pourra jamais atteindre une véritable perfection et stagnera à la troisième étape. Ce chemin ne vous présente aucun danger ; c'est une voie paisible qui vous permettra de préserver votre obsession. Ce vieil homme a lui aussi affronté la flamme de l'obsession et sait à quel point elle est cruciale pour des gens comme nous... » L'Oiseau Vermillon de la première génération regarda Wang Lin comme s'il contemplait son propre reflet, avant de soupirer.
 
 L'esprit de Wang Lin vacilla et sa respiration se fit plus lourde. Devant lui, la balance du choix commença à pencher. Une voix empreinte de deux mille ans d'épuisement résonnait dans son cœur. Portée par la perspective d'une vie tranquille, une pointe d'excitation continuait de lui murmurer :
 
@@ -62,7 +62,7 @@ L'esprit de Wang Lin vacilla et sa respiration se fit plus lourde. Devant lui, l
 
 « Reste ici... Atteins la troisième étape en cent ans... Même si cela signifie renoncer aux autres essences et au corps de Dieu Ancien. Une fois la troisième étape franchie, ils pourront être recultivés... Même s'ils ne peuvent devenir complets, atteindre la troisième étape en vaut la peine, même si cela signifie ne plus pouvoir progresser davantage ! »
 
-« Reste ici... Es-tu fatigué de deux mille ans de culture ? À force de marcher sans cesse sur le fil du rasoir entre la vie et la mort, n'as-tu pas peur... Reste ici, reste ici... »
+« Reste ici... Es-tu fatigué de deux mille ans de cultivation ? À force de marcher sans cesse sur le fil du rasoir entre la vie et la mort, n'as-tu pas peur... Reste ici, reste ici... »
 
 Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse. Ce court laps de temps lui semblait durer des millénaires. Après un long moment, Wang Lin leva soudain les yeux vers l'Oiseau Vermillon de la première génération. D'une voix légèrement rauque, il dit : « L'Ancêtre ne peut emmener que nous trois ? Puis-je en prendre d'autres ? Ce junior a des amis qu'il ne peut abandonner... »
 
@@ -70,7 +70,7 @@ L'Oiseau Vermillon de la première génération réfléchit, et un instant plus 
 
 « Vous emmener tous les trois est ma limite... Peu importe, le jour du départ viendra, ce vieil homme pourra t'accorder une place supplémentaire ! Si d'autres viennent, je crains de ne pas pouvoir revenir. »
 
-« Une place... » Li Muwan apparut dans l'esprit de Wang Lin... Puis Situ Nan, Qing Shui et Zhou Ru... Li Qianmei apparut également... Toutes les figures rencontrées au cours de ses deux mille ans de culture, celles qui rendaient cette décision si déchirante, se manifestèrent à lui.
+« Une place... » Li Muwan apparut dans l'esprit de Wang Lin... Puis Situ Nan, Qing Shui et Zhou Ru... Li Qianmei apparut également... Toutes les figures rencontrées au cours de ses deux mille ans de cultivation, celles qui rendaient cette décision si déchirante, se manifestèrent à lui.
 
 « Maintenant, dis-moi, quel est ton choix ? » Les mots de l'Oiseau Vermillon de la première génération percutèrent l'esprit de Wang Lin.
 
@@ -92,9 +92,9 @@ L'Oiseau Vermillon de la première génération réfléchit un instant et dit le
 
 Wang Lin ne leva pas les yeux et retira lentement son regard du cercueil. Sa main droite effleura le bois avant de le replacer dans son espace de stockage.
 
-« Les trois personnes dont l'Ancêtre parle sont trop loin de ce junior. S'ils le peuvent, c'est sans doute en raison de leur culture insondable... » Wang Lin leva la main et regarda la statue de l'Oiseau Vermillon de la première génération. Bien que ses yeux fussent toujours injectés de sang, ils ne contenaient plus de lutte. Ils étaient désormais empreints de clarté et de détermination.
+« Les trois personnes dont l'Ancêtre parle sont trop loin de ce junior. S'ils le peuvent, c'est sans doute en raison de leur cultivation insondable... » Wang Lin leva la main et regarda la statue de l'Oiseau Vermillon de la première génération. Bien que ses yeux fussent toujours injectés de sang, ils ne contenaient plus de lutte. Ils étaient désormais empreints de clarté et de détermination.
 
-« Ce junior veut aussi vivre en paix. Je suis lassé des luttes incessantes entre la vie et la mort et des complots du monde de la culture. J'aimerais beaucoup rester ici jusqu'à mon vieil âge. Même si cela signifie que ma culture stagne à la troisième étape, qu'importe ? »
+« Ce junior veut aussi vivre en paix. Je suis lassé des luttes incessantes entre la vie et la mort et des complots du monde de la cultivation. J'aimerais beaucoup rester ici jusqu'à mon vieil âge. Même si cela signifie que ma cultivation stagne à la troisième étape, qu'importe ? »
 
 Les yeux de Wang Lin brillèrent alors qu'il poursuivait : « Le problème est que ce junior ne peut pas se contenter de cela... Demander l'aide des autres est trop incertain, et je n'aime pas qu'autrui contrôle mon destin... Je ferais mieux de ne rien demander. Puisque ces êtres peuvent cultiver à un tel degré, moi aussi, Wang Lin, je peux le faire ! »
 
@@ -102,7 +102,7 @@ Les yeux de Wang Lin brillèrent alors qu'il poursuivait : « Le problème est q
 
 Ces mots parurent résonner aux quatre coins de ce monde. Même l'Oiseau Vermillon de la première génération plissa les yeux.
 
-« Je ne peux pas abandonner mon corps de Dieu Ancien ! Je ne peux pas renoncer à mes quatre autres essences. Même si ce chemin est ardu, je dois le poursuivre ! Je ne peux laisser ma culture s'arrêter... » Wang Lin s'inclina devant l'Oiseau Vermillon de la première génération avant de s'élancer dans les airs.
+« Je ne peux pas abandonner mon corps de Dieu Ancien ! Je ne peux pas renoncer à mes quatre autres essences. Même si ce chemin est ardu, je dois le poursuivre ! Je ne peux laisser ma cultivation s'arrêter... » Wang Lin s'inclina devant l'Oiseau Vermillon de la première génération avant de s'élancer dans les airs.
 
 « Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Plaies Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des étapes reconnues par les cultivateurs pour franchir la Porte du Vide... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique ! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Plaies Célestes ! »
 

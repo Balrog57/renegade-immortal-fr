@@ -14,25 +14,25 @@ Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retou
 
 « All-Seer, Ling Tianhou… Moi, Wang Lin, suis de retour ! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque ; il s'était assuré de la garder en lieu sûr.
 
-Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Nirvana Scryer et, même dans le système stellaire d'Allheaven, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
+Le niveau de cultivation de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de cultivation de rang 7. Cependant, il était désormais un cultivateur du Nirvana Scryer et, même dans le système stellaire d'Allheaven, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
 
 Toutefois, Wang Lin savait parfaitement que l'Alliance ne pouvait être comparée à Allheaven. Les eaux de l'Alliance étaient bien trop profondes.
 
 « Je dois rester prudent face au conflit entre le système stellaire d'Allheaven et celui de l'Alliance. Je ne dois pas m'y mêler imprudemment. » Les yeux de Wang Lin s'illuminèrent tandis qu'il décidait d'adopter une stratégie de « l'attente ».
 
-Dès son retour dans le système stellaire de l'Alliance, la prudence de Wang Lin avait décuplé. Il savait que les cultivateurs de l'Alliance, et particulièrement ces vieux briscards, étaient tous extrêmement rusés. Sans parler de ceux qui atteignaient son propre niveau de culture.
+Dès son retour dans le système stellaire de l'Alliance, la prudence de Wang Lin avait décuplé. Il savait que les cultivateurs de l'Alliance, et particulièrement ces vieux briscards, étaient tous extrêmement rusés. Sans parler de ceux qui atteignaient son propre niveau de cultivation.
 
 Si l'on commettait la moindre imprudence, ne serait-ce qu'un instant, on pouvait être dévoré sans même s'en rendre compte !
 
-Ici, le modèle des familles de culture d'Allheaven n'existait pas. C'était la loi de la jungle, un monde de culture impitoyable.
+Ici, le modèle des familles de cultivation d'Allheaven n'existait pas. C'était la loi de la jungle, un monde de cultivation impitoyable.
 
-« Cependant, avec mon niveau de culture après avoir fusionné avec mon corps original, je n'aurai plus aucune raison de trembler dans le système stellaire de l'Alliance ! » Le regard de Wang Lin devint glacial. Dès son arrivée, il prit immédiatement contact avec son corps original pour déterminer leurs positions respectives.
+« Cependant, avec mon niveau de cultivation après avoir fusionné avec mon corps original, je n'aurai plus aucune raison de trembler dans le système stellaire de l'Alliance ! » Le regard de Wang Lin devint glacial. Dès son arrivée, il prit immédiatement contact avec son corps original pour déterminer leurs positions respectives.
 
 Tandis qu'il marchait, son sens divin se déploya pour envelopper les environs. Après un moment, son expression changea. En chemin, il avait cherché une planète abandonnée, et il venait d'en trouver une.
 
 Des ondulations apparurent sous ses pieds alors que Wang Lin fusionnait avec le monde pour disparaître.
 
-Lorsqu'il réapparut, il se trouvait sur une planète de culture désolée. Elle ne possédait que peu d'énergie spirituelle, mais la terre était débordante de vitalité. En regardant autour de lui, il constata que la planète abandonnée était recouverte d'une végétation dense.
+Lorsqu'il réapparut, il se trouvait sur une planète de cultivation désolée. Elle ne possédait que peu d'énergie spirituelle, mais la terre était débordante de vitalité. En regardant autour de lui, il constata que la planète abandonnée était recouverte d'une végétation dense.
 
 Lorsqu'il comprit qu'il avait besoin de force vitale pour sauver Li Muwan, il n'hésita pas et choisit d'échanger sa propre force vitale contre le sort du Qi Xi. Toutes ces centaines d'années d'attente n'avaient servi que pour cette unique opportunité ; il ne pouvait la laisser passer. Cette fois-ci, ce serait à la fois un succès et un échec.
 
@@ -94,9 +94,9 @@ Il arracha brusquement la rune de sa poitrine. Au moment où elle fut retirée, 
 
 Cependant, tout cela s'inversa immédiatement. La force vitale environnante fut aussitôt absorbée par Wang Lin. Son corps desséché retrouva soudainement son éclat et changea rapidement.
 
-À ce même moment, dans la partie occidentale du système stellaire de l'Alliance, loin de la planète de culture abandonnée où se trouvait Wang Lin, se situait une autre planète de culture. Elle était nichée au cœur de la région occidentale, proche de l'intersection avec la région sud.
+À ce même moment, dans la partie occidentale du système stellaire de l'Alliance, loin de la planète de cultivation abandonnée où se trouvait Wang Lin, se situait une autre planète de cultivation. Elle était nichée au cœur de la région occidentale, proche de l'intersection avec la région sud.
 
-De loin, elle ressemblait à une planète de culture semi-déclinée, dépourvue d'une grande quantité d'énergie spirituelle.
+De loin, elle ressemblait à une planète de cultivation semi-déclinée, dépourvue d'une grande quantité d'énergie spirituelle.
 
 Plusieurs rayons d'énergie d'épée encerclaient la planète. Des cultivateurs chevauchaient ces trajectoires, arborant des expressions sombres. Leurs yeux étaient froids tandis qu'ils patrouillaient autour de la planète pour observer les environs.
 
@@ -104,7 +104,7 @@ Une aura oppressante continuait de se propager.
 
 Les cultivateurs sur ces rayons d'énergie n'étaient pas de haut niveau ; il ne s'agissait que de cultivateurs de l'Âme Naissante. Pourtant, une intention meurtrière puissante émanait de leurs corps alors qu'ils encerclaient la planète. Bien que leurs sens divins fussent dispersés, une trace d'inquiétude perçait dans leur regard.
 
-Peu de temps après, un rayon d'énergie d'épée s'échappa de la planète de culture. La personne à bord était une vieille femme. Bien que son visage fût marqué par les rides, on devinait qu'elle avait été très belle dans sa jeunesse. Si Wang Lin avait été présent, il l'aurait trouvée familière.
+Peu de temps après, un rayon d'énergie d'épée s'échappa de la planète de cultivation. La personne à bord était une vieille femme. Bien que son visage fût marqué par les rides, on devinait qu'elle avait été très belle dans sa jeunesse. Si Wang Lin avait été présent, il l'aurait trouvée familière.
 
 Les yeux de la vieille femme étaient empreints d'inquiétude. Lorsqu'elle s'approcha, un cultivateur se rapprocha et dit respectueusement : « Salutations, Maître Bai Xue ! »
 

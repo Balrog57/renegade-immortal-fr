@@ -28,9 +28,9 @@ Wang Lin demanda calmement : « Comment sais-tu qu'une âme se trouve dans cette
 
 « L'ancêtre du Clan des Démons Géants l'a appelée... Maître, libérez-la vite ! » L'expression de Xu Liguo devint extrêmement anxieuse.
 
-Wang Lin regarda Xu Liguo et demanda : « Quel est le niveau de culture de cette âme ? »
+Wang Lin regarda Xu Liguo et demanda : « Quel est le niveau de cultivation de cette âme ? »
 
-L'anxiété de Xu Liguo s'intensifia ; c'était comme s'il entendait une petite fée l'appeler au secours. Il devint impatient et lança : « Elle n'a pas de niveau de culture, ce n'est qu'un fragment d'âme ! Si vous ne voulez pas la sauver, je le ferai moi-même ! »
+L'anxiété de Xu Liguo s'intensifia ; c'était comme s'il entendait une petite fée l'appeler au secours. Il devint impatient et lança : « Elle n'a pas de niveau de cultivation, ce n'est qu'un fragment d'âme ! Si vous ne voulez pas la sauver, je le ferai moi-même ! »
 
 Xu Liguo ne réalisa même pas qu'en voyant la roue, sa peur de Wang Lin s'était dissipée et que son ton avait inconsciemment changé.
 

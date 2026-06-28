@@ -22,7 +22,7 @@ Ce jour-là, alors que Wang Lin cultivait, il ouvrit soudainement les yeux et so
 
 La voix de Yao Xixue résonna dans l'âme originelle de Wang Lin comme un nuage de fumée brumeuse.
 
-Wang Lin réfléchit un instant avant de refermer les yeux et de poursuivre sa culture.
+Wang Lin réfléchit un instant avant de refermer les yeux et de poursuivre sa cultivation.
 
 À minuit, sur l'ancienne montagne située à 1 000 kilomètres du camp militaire, Yao Xixue se tenait au sommet, vêtue de blanc, et attendait silencieusement. Le temps passa lentement, et même après que le soleil commença à poindre à l'horizon, Wang Lin n'était toujours pas apparu.
 
@@ -64,7 +64,7 @@ Wang Lin était assis en position du lotus dans l'obscurité, son expression dis
 
 La voix de Wang Lin était très froide : « Puisque vous êtes entrée ici, si vous n'avez rien qui puisse m'intéresser, ne me blâmez pas de vous ignorer. »
 
-Il avait atteint un moment critique dans sa culture et prévoyait de s'enfermer en méditation pendant plusieurs mois afin d'affiner l'énergie spirituelle démoniaque dans son corps pour atteindre le stade avancé de la Transformation de l'Âme. Ayant été interrompu, il ne lui accorderait naturellement aucune considération.
+Il avait atteint un moment critique dans sa cultivation et prévoyait de s'enfermer en méditation pendant plusieurs mois afin d'affiner l'énergie spirituelle démoniaque dans son corps pour atteindre le stade avancé de la Transformation de l'Âme. Ayant été interrompu, il ne lui accorderait naturellement aucune considération.
 
 Yao Xixue dit froidement : « Pourquoi n'êtes-vous pas venu lorsque je vous ai demandé de me rejoindre sur l'ancienne montagne ? »
 
@@ -86,11 +86,11 @@ Yao Xixue réfléchit un instant et dit : « Il existe une restriction que je ne
 
 Wang Lin marqua une pause et dit lentement : « J'ai des affaires importantes à régler en ce moment, je ne peux donc pas vous aider à lever cette restriction. J'espère que le camarade Yao me pardonnera ! »
 
-Au-delà du fait qu'il manquait réellement de temps, même s'il en avait eu, il n'aurait pas accepté si facilement. Après tout, il n'avait aucun lien avec elle, et si elle ne pouvait la briser avec sa propre culture, Wang Lin ne croyait pas pouvoir apporter une aide significative.
+Au-delà du fait qu'il manquait réellement de temps, même s'il en avait eu, il n'aurait pas accepté si facilement. Après tout, il n'avait aucun lien avec elle, et si elle ne pouvait la briser avec sa propre cultivation, Wang Lin ne croyait pas pouvoir apporter une aide significative.
 
 De plus, le plus important était que ses paroles étaient très vagues et omettaient manifestement l'essentiel. Par conséquent, Wang Lin n'avait aucune raison de l'aider.
 
-Lorsque Yao Xixue décida de solliciter l'aide de Wang Lin, elle savait qu'il ne céderait pas aisément ; elle ne renonça pas et déclara : « La culture du camarade Wang est au stade intermédiaire de la Transformation de l'Âme. Pour atteindre le stade avancé, la quantité de jade céleste nécessaire est immense, et si vous souhaitez atteindre le stade Ascendant, les quantités dont vous aurez besoin dépasseront votre imagination. Cela ne concerne que l'augmentation de votre niveau de culture ; pour passer 500 ans ici, il faut avoir préparé une quantité considérable de jade céleste pour une consommation régulière. Par conséquent, je pense que le jade céleste est la chose la plus importante pour vous en ce moment. Je me demande si vous en avez assez ? Si ce n'est pas le cas, je peux vous en fournir ! »
+Lorsque Yao Xixue décida de solliciter l'aide de Wang Lin, elle savait qu'il ne céderait pas aisément ; elle ne renonça pas et déclara : « La cultivation du camarade Wang est au stade intermédiaire de la Transformation de l'Âme. Pour atteindre le stade avancé, la quantité de jade céleste nécessaire est immense, et si vous souhaitez atteindre le stade Ascendant, les quantités dont vous aurez besoin dépasseront votre imagination. Cela ne concerne que l'augmentation de votre niveau de cultivation ; pour passer 500 ans ici, il faut avoir préparé une quantité considérable de jade céleste pour une consommation régulière. Par conséquent, je pense que le jade céleste est la chose la plus importante pour vous en ce moment. Je me demande si vous en avez assez ? Si ce n'est pas le cas, je peux vous en fournir ! »
 
 Wang Lin ouvrit les yeux et vit, dans l'obscurité de la pièce, deux yeux aussi brillants que la lune qui le fixaient. Il regarda Yao Xixue et demanda : « Combien pouvez-vous en fournir ? »
 

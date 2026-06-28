@@ -58,7 +58,7 @@ Tandis que le tonnerre grondait, la branche absorba l'intégralité du phénomè
 
 Wang Lin en eut le visage assombri.
 
-« Avec ta culture de stade précoce du Nirvana Scryer, à moins d'un miracle, tu n'es rien face à moi. Il est temps de tout mettre fin ! » Les yeux de Yu Fei brillèrent d'une intention meurtrière alors qu'il chargeait à travers le tonnerre. Les cinq épées volantes l'accompagnèrent pour fondre sur Wang Lin.
+« Avec ta cultivation de stade précoce du Nirvana Scryer, à moins d'un miracle, tu n'es rien face à moi. Il est temps de tout mettre fin ! » Les yeux de Yu Fei brillèrent d'une intention meurtrière alors qu'il chargeait à travers le tonnerre. Les cinq épées volantes l'accompagnèrent pour fondre sur Wang Lin.
 
 Wang Lin recula tout en fixant Yu Fei qui approchait, et dit calmement : « Je vais t'offrir un miracle ! » Sur ces mots, des ondulations apparurent sous ses pieds et il disparut soudainement.
 
@@ -66,9 +66,9 @@ Yu Fei fut surpris et ses pupilles se rétractèrent. Son énergie originelle ja
 
 ***
 
-Il existait une planète de culture dans le Système Stellaire de l'Alliance, située loin de la planète Suzaku. L'énergie spirituelle y était dense ; c'était un pays de culture de rang 6.
+Il existait une planète de cultivation dans le Système Stellaire de l'Alliance, située loin de la planète Suzaku. L'énergie spirituelle y était dense ; c'était un pays de cultivation de rang 6.
 
-On y trouvait cinq pays de culture de rang 5. Dans l'un d'eux, nommé Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
+On y trouvait cinq pays de cultivation de rang 5. Dans l'un d'eux, nommé Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
 
 Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très âgée et était d'une grande beauté. Quelques éclats métalliques sur son sourcil droit lui donnaient un air très mignon.
 
@@ -78,23 +78,23 @@ Sa peau de jade et ses cheveux comme des nuages la rendaient irrésistible.
 
 Un homme était assis dans la salle d'alchimie. Il avait une chevelure rousse et une expression très froide. Il semblait avoir une trentaine d'années, et l'aura glaciale qu'il dégageait donnait l'impression que l'hiver l'accompagnait partout où il allait !
 
-À la voix de la femme, l'homme fronça les sourcils et répondit froidement : « Je ne suis pas là ! » Puis, il ferma les yeux pour se concentrer sur sa culture.
+À la voix de la femme, l'homme fronça les sourcils et répondit froidement : « Je ne suis pas là ! » Puis, il ferma les yeux pour se concentrer sur sa cultivation.
 
 En entendant cette voix glaciale, la femme fut immédiatement ravie. Elle fit quelques pas et entra directement dans la salle d'alchimie. Elle sourit et dit : « Frère Wang Lin, je ne vous dérangerai pas longtemps. Je vais juste m'asseoir un moment et je repartirai. »
 
 Tout en parlant, elle s'approcha de l'entrée mais n'entra pas. Elle s'assit à l'extérieur. Elle pouvait ressentir l'aura glaciale émanant de la pièce. Cette aura pénétra son corps et fit rougir ses joues, mais elle se sentit très apaisée.
 
-Sa culture était liée à l'énergie froide et stagnait. Il n'y avait que peu d'endroits dans la secte possédant une telle énergie, et son rang ne lui permettait pas d'y accéder. Une fois, venue chercher des pilules, elle avait découvert par accident que l'énergie froide en elle avait considérablement augmenté.
+Sa cultivation était liée à l'énergie froide et stagnait. Il n'y avait que peu d'endroits dans la secte possédant une telle énergie, et son rang ne lui permettait pas d'y accéder. Une fois, venue chercher des pilules, elle avait découvert par accident que l'énergie froide en elle avait considérablement augmenté.
 
 Cette découverte l'avait exaltée et elle n'avait cessé de revenir. Finalement, elle avait découvert qu'un disciple de la secte extérieure nommé Wang Lin se trouvait ici !
 
 Cet homme était un simple travailleur de la salle d'alchimie, mais elle le trouvait très étrange. Bien qu'il soit un ouvrier, elle ne l'avait jamais vu travailler. Elle avait même vu l'oncle-maître de la salle d'alchimie se montrer extrêmement respectueux envers lui.
 
-Elle avait le sentiment que Wang Lin cachait de nombreux secrets et qu'il était très mystérieux. Pour une raison inconnue, elle ressentait le besoin de percer tous ses mystères. De plus, cet endroit aidait énormément sa culture, alors elle venait presque chaque jour.
+Elle avait le sentiment que Wang Lin cachait de nombreux secrets et qu'il était très mystérieux. Pour une raison inconnue, elle ressentait le besoin de percer tous ses mystères. De plus, cet endroit aidait énormément sa cultivation, alors elle venait presque chaque jour.
 
 Quant à la froideur de Wang Lin, loin de l'effrayer, elle ne faisait qu'accroître son désir de découvrir qui il était vraiment. Elle pensait sans cesse à sa silhouette austère.
 
-Le visage de Song Ying rougit pendant sa culture, mais cette fois, son rythme cardiaque s'accéléra et elle ne parvint pas à se concentrer. Touchant un objet dans ses vêtements, elle hésita, mordit sa lèvre et murmura vers la pièce : « Senior Frère Wang, je... »
+Le visage de Song Ying rougit pendant sa cultivation, mais cette fois, son rythme cardiaque s'accéléra et elle ne parvint pas à se concentrer. Touchant un objet dans ses vêtements, elle hésita, mordit sa lèvre et murmura vers la pièce : « Senior Frère Wang, je... »
 
 Cependant, avant qu'elle n'ait fini, la porte s'ouvrit brusquement et Wang Lin sortit. Au moment où il apparut, une immense quantité d'énergie froide se propagea.
 
@@ -106,7 +106,7 @@ L'apparition du corps originel de Wang Lin coupa l'élan de Song Ying. Alors qu'
 
 Le visage de Song Ying s'assombrit alors qu'elle sortait une bourse brodée remplie d'herbes spirituelles qu'elle avait elle-même cueillies. Cet objet servait à apaiser l'esprit.
 
-D'un bond, le corps originel de Wang Lin quitta la planète de culture pour s'élancer dans l'espace. Dès son entrée dans le vide spatial, des ondulations apparurent et Wang Lin en sortit.
+D'un bond, le corps originel de Wang Lin quitta la planète de cultivation pour s'élancer dans l'espace. Dès son entrée dans le vide spatial, des ondulations apparurent et Wang Lin en sortit.
 
 L'avatar et le corps originel marchèrent l'un vers l'autre jusqu'à leur collision. Un éclair vert jaillit, et les deux ne firent plus qu'un !
 

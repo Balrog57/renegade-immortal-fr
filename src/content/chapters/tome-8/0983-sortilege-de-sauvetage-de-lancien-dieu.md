@@ -72,7 +72,7 @@ Il n'était pas seul ; une femme l'accompagnait. Elle était d'une beauté saisi
 
 D'un regard enjôleur, elle demanda : « Pourquoi l'Aîné Situ vient-il sur la planète Tian Yun ? »
 
-« Haha, je suis venu chercher un frère. Cela fait de nombreuses années que nous ne nous sommes pas vus ; je me demande où en est sa culture. » Situ Nan laissa paraître une trace de nostalgie et poussa un soupir intérieur.
+« Haha, je suis venu chercher un frère. Cela fait de nombreuses années que nous ne nous sommes pas vus ; je me demande où en est sa cultivation. » Situ Nan laissa paraître une trace de nostalgie et poussa un soupir intérieur.
 
 « Cela fait des centaines d'années que je n'ai pas vu Wang Lin. Je me demande ce qu'est devenu ce garçon. »
 

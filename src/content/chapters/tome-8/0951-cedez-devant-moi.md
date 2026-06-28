@@ -18,7 +18,7 @@ Une explosion assourdissante fit trembler le monde et la lumière violette fut c
 
 « Le Royaume Ji ! Ainsi, les biens de mon épouse sont entre tes mains ! » Qing Shui fut repoussé de plusieurs pas en fixant l'homme aux cheveux violets, ses yeux brûlant d'une intention meurtrière terrifiante.
 
-« Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa culture ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Nirvana Void. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable ! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
+« Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa cultivation ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Nirvana Void. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable ! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
 
 Le Royaume de la Boucherie possédait un trésor Pseudo-Nirvana Void. Bien que gravement endommagé, il demeurait extrêmement puissant. Il avait été offert par le Grand Ancien de l'Alliance au premier Maître du Royaume de la Boucherie pour servir de trésor de protection du royaume !
 
@@ -44,9 +44,9 @@ La Lance Tueuse de Dieux ne fut nullement endommagée ; elle avait seulement lé
 
 « L'arme des Dieux Anciens royaux peut donc résister à ce niveau du Royaume Ji ! » Les yeux de Wang Lin brillèrent tandis que la lance disparaissait lentement de sa main.
 
-« Hélas, avec ma culture actuelle, je ne peux créer qu'une illusion. La véritable Lance Tueuse de Dieux est entre les mains de Tuo Sen ! » Alors qu'il reculait, Wang Lin disparut en un éclair. Lorsqu'il réapparut, il se trouvait derrière un cultivateur du Royaume de la Boucherie et tendit le doigt.
+« Hélas, avec ma cultivation actuelle, je ne peux créer qu'une illusion. La véritable Lance Tueuse de Dieux est entre les mains de Tuo Sen ! » Alors qu'il reculait, Wang Lin disparut en un éclair. Lorsqu'il réapparut, il se trouvait derrière un cultivateur du Royaume de la Boucherie et tendit le doigt.
 
-Il restait moins de cent cultivateurs du Royaume de la Boucherie. Aucun d'entre eux n'avait une culture faible. Ils se regroupèrent et formèrent tous des sceaux manuels. Leurs incantations s'élevèrent à l'unisson, faisant trembler le Royaume de la Boucherie tout entier. Parmi les immenses édifices en forme d'épées, onze s'effondrèrent instantanément.
+Il restait moins de cent cultivateurs du Royaume de la Boucherie. Aucun d'entre eux n'avait une cultivation faible. Ils se regroupèrent et formèrent tous des sceaux manuels. Leurs incantations s'élevèrent à l'unisson, faisant trembler le Royaume de la Boucherie tout entier. Parmi les immenses édifices en forme d'épées, onze s'effondrèrent instantanément.
 
 Onze rayons de lumière jaillirent et fusionnèrent dans le vide en chantant. Un instant plus tard, la silhouette de Wang Lin surgit du néant, poursuivie par ces onze lueurs. Trop rapides pour lui, elles le rattrapèrent en un instant.
 
@@ -56,13 +56,13 @@ Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres 
 
 « De bonnes épées ! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Chacune commençait à manifester des signes de formation d'un esprit de trésor propre. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées créées par Ling Tianhou !
 
-« Si je peux m'emparer de ces 99 épées volantes, même si ma culture n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor ! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
+« Si je peux m'emparer de ces 99 épées volantes, même si ma cultivation n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor ! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
 
 « Ce Royaume de la Boucherie regorge véritablement de trésors ! » Des centaines de pensées traversèrent l'esprit de Wang Lin. Qing Shui n'avait pas réellement besoin de son aide ; il l'avait invité pour lui offrir l'opportunité de s'emparer d'une fortune en pillant le Royaume de la Boucherie. C'était ainsi que Qing Shui remerciait Wang Lin pour ses actes dans le vide.
 
 À cet instant précis, trois individus s'élancèrent parmi les cent cultivateurs environnants !
 
-Parmi eux, deux étaient au stade intermédiaire du Nirvana Scryer. Le troisième était un vieil homme doté d'un niveau de culture très élevé, au stade avancé du Nirvana Scryer !
+Parmi eux, deux étaient au stade intermédiaire du Nirvana Scryer. Le troisième était un vieil homme doté d'un niveau de cultivation très élevé, au stade avancé du Nirvana Scryer !
 
 Ce vieil homme ne s'était pas manifesté lorsque Wang Lin et Qing Shui étaient apparus ; il s'était caché avec prudence pour ne se révéler qu'à présent.
 

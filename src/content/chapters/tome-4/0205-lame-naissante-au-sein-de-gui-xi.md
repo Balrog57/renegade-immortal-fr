@@ -36,7 +36,7 @@ Yun Fei restait debout devant la brume noire, nerveuse et hésitante. Tout ce qu
 
 Durant les jours où Wang Lin était resté enfermé dans sa chambre, Yun Fei avait sollicité de nombreux cultivateurs pour l'aider à lever la restriction, mais tous avaient échoué. Elle avait fini par perdre espoir, quand soudain, l'un des gardes de la ville intermédiaire l'avait abordée pour lui dire qu'une personne pouvait briser cette entrave, moyennant un prix.
 
-Yun Fei avait alors pesé le pour et le contre. Si cet homme avait un cultivateur au stade intermédiaire de la Formation du Noyau à ses ordres, il ne pouvait être faible. Cependant, cela ne garantissait pas sa capacité à lever la restriction, car dans son esprit, le niveau de culture de Wang Lin avait déjà atteint des sommets inimaginables.
+Yun Fei avait alors pesé le pour et le contre. Si cet homme avait un cultivateur au stade intermédiaire de la Formation du Noyau à ses ordres, il ne pouvait être faible. Cependant, cela ne garantissait pas sa capacité à lever la restriction, car dans son esprit, le niveau de cultivation de Wang Lin avait déjà atteint des sommets inimaginables.
 
 C'est ce matin-là qu'un cultivateur au stade intermédiaire de la Formation du Noyau lui avait remis un morceau de jade contenant l'enregistrement détaillé de tous les effets de cette restriction. Elle en était restée stupéfaite.
 
@@ -140,7 +140,7 @@ Qiu Siping fronça les sourcils. Il percevait que Wang Lin était également au 
 
 Wang Lin fit un geste calme pour faire revenir le second démon vers lui. Soudain, des éclairs rouges jaillirent de ses yeux tandis que son âme du Royaume Ji se manifestait. Une force de suppression colossale envahit l'espace.
 
-Qiu Siping allait répliquer quand il vit l'éclat rouge dans les yeux de Wang Lin. Son cœur sombra. Il n'aurait jamais cru que Wang Lin s'empêcherait de parler pour passer directement à l'assassinat. La colère l'envahit : Wang Lin avait le même niveau de culture que lui ; même s'il possédait un trésor magique, il en possédait lui aussi.
+Qiu Siping allait répliquer quand il vit l'éclat rouge dans les yeux de Wang Lin. Son cœur sombra. Il n'aurait jamais cru que Wang Lin s'empêcherait de parler pour passer directement à l'assassinat. La colère l'envahit : Wang Lin avait le même niveau de cultivation que lui ; même s'il possédait un trésor magique, il en possédait lui aussi.
 
 Il poussa un grognement, recula prestement et agita la main pour que les huit sphères de brouillard se déploient en une épaisse couche protectrice. Le regard de Qiu Siping devint froid : puisque Wang Lin refusait le dialogue, il allait combattre d'abord et discuter ensuite.
 

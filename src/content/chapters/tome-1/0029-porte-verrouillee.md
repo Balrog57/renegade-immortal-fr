@@ -68,6 +68,6 @@ Une fois qu'ils furent partis, Wang Lin sortit de sa chambre et explora l'ensemb
 
 La pièce n'était pas grande. Après que Wang Lin eut fait le ménage, bien qu'il fût déçu, il réalisa que c'était l'endroit le plus isolé du lieu. Il rangea tout pour gagner de l'espace, verrouilla la porte et pénétra dans l'espace du rêve.
 
-Le temps s'écoula. Wang Lin était déjà responsable des corvées depuis deux mois. Durant cette période, hormis les premiers jours consacrés à la répartition des tâches, il se concentra exclusivement sur sa culture. Quant aux corvées des disciples honoraires, il n'en avait cure. S'ils ne faisaient pas leur travail, il lui suffisait de lâcher un reniflement méprisant pour qu'ils finissent par lui offrir des cadeaux.
+Le temps s'écoula. Wang Lin était déjà responsable des corvées depuis deux mois. Durant cette période, hormis les premiers jours consacrés à la répartition des tâches, il se concentra exclusivement sur sa cultivation. Quant aux corvées des disciples honoraires, il n'en avait cure. S'ils ne faisaient pas leur travail, il lui suffisait de lâcher un reniflement méprisant pour qu'ils finissent par lui offrir des cadeaux.
 
-Wang Lin était extrêmement agacé durant ces deux mois. Sa culture était constamment interrompue par les disciples honoraires. Il ignorait ce que pensaient les autres disciples internes et les Anciens : malgré le chaos qu'il semait, ils n'avaient toujours pas envoyé de remplaçant.
+Wang Lin était extrêmement agacé durant ces deux mois. Sa cultivation était constamment interrompue par les disciples honoraires. Il ignorait ce que pensaient les autres disciples internes et les Anciens : malgré le chaos qu'il semait, ils n'avaient toujours pas envoyé de remplaçant.

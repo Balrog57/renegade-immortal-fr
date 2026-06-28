@@ -22,7 +22,7 @@ Ainsi, l'homme et la bête progressèrent rapidement à travers le système stel
 
 De plus, Wang Lin sentait progressivement la rétribution divine approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
 
-Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de l'Oiseau Vermillon, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa culture fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
+Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de l'Oiseau Vermillon, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa cultivation fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
 
 Les cultivateurs du Nettoyage du Nirvana voyaient leur corps transmué par l'énergie originelle afin de mieux appréhender les lois.
 
@@ -44,7 +44,7 @@ Un groupe de cultivateurs de l'Alliance, ayant reçu l'ordre de se retirer du ch
 
 Ce n'est qu'à ce moment qu'ils entendirent le cri de la bête-moustique, un son dont la portée semblait bien en retard sur la vitesse du monstre. Les visages des cultivateurs se décomposèrent ; terrifiés, ils échangèrent un regard avant de fuir les lieux précipitamment.
 
-Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé. Les planètes de culture y étaient rares et, pour la plupart, abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
+Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé. Les planètes de cultivation y étaient rares et, pour la plupart, abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
 
 En voyant cette étendue de ruines, la bête-moustique poussa un cri strident, ses yeux brillant d'une colère infinie. Elle chargea à travers le champ de débris dans une série de fracas successifs, pulvérisant tout ce qui se dressait sur son passage. La bête fonçait tête baissée dans les profondeurs du chaos, comme possédée par la folie.
 
@@ -70,15 +70,15 @@ Wang Lin, resté en retrait, observait l'écran vert avec un calme imperturbable
 
 « Tu te surestimes ! » Un ricanement s'éleva de l'intérieur de la protection. Les deux anciens en pourpre étaient arrivés. Ils dédaignaient Wang Lin depuis leur abri.
 
-Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs de la Rupture du Nirvana, ni même au sommet du Nettoyage du Nirvana ; ils n'étaient qu'au stade avancé du Nettoyage du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Nuageuse, mais étaient arrivés là par une méthode secrète.
+Leur tension s'était évaporée en percevant le niveau de cultivation du jeune homme. Ces deux anciens n'étaient ni des cultivateurs de la Rupture du Nirvana, ni même au sommet du Nettoyage du Nirvana ; ils n'étaient qu'au stade avancé du Nettoyage du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Nuageuse, mais étaient arrivés là par une méthode secrète.
 
 Wang Lin agita la main droite et la mer de flammes se retira. Son regard sombre perça l'écran pour se poser sur les deux anciens. D'une voix lugubre, il déclara lentement : « Livrez les bêtes-moustiques et ces trois jeunes téméraires, et je pourrai épargner le reste d'entre vous ! »
 
-Les deux anciens éclatèrent de rire. L'un d'eux afficha un sourire moqueur : « Je ne pensais pas que l'Alliance pouvait receler un être aussi arrogant. Nous menacer, nous deux, avec ton niveau de culture est une pure absurdité. »
+Les deux anciens éclatèrent de rire. L'un d'eux afficha un sourire moqueur : « Je ne pensais pas que l'Alliance pouvait receler un être aussi arrogant. Nous menacer, nous deux, avec ton niveau de cultivation est une pure absurdité. »
 
 Bien qu'ils méprisassent Wang Lin, ils restaient extrêmement prudents et ne quittèrent pas la protection de l'écran. À leurs yeux, cet homme n'était pas le maître des bêtes, mais un disciple envoyé pour les attirer. Le véritable cultivateur puissant devait se cacher à l'extérieur. Bien que leur sens divin ne détectât rien, cela ne faisait qu'accroître leurs soupçons.
 
-Wang Lin ne perdit plus de temps. Il leva la main droite vers le ciel, prit une profonde inspiration et relâcha le sceau des Neuf Transformations Mystérieuses, laissant sa culture éclater. À cet instant, l'aura d'un cultivateur du Nettoyage du Nirvana émana de son corps tandis qu'une masse colossale d'énergie originelle affluait en lui.
+Wang Lin ne perdit plus de temps. Il leva la main droite vers le ciel, prit une profonde inspiration et relâcha le sceau des Neuf Transformations Mystérieuses, laissant sa cultivation éclater. À cet instant, l'aura d'un cultivateur du Nettoyage du Nirvana émana de son corps tandis qu'une masse colossale d'énergie originelle affluait en lui.
 
 Alors que cette énergie dense pénétrait son être, des bruits de craquements résonnèrent en lui. Simultanément, une force titanesque commença à s'accumuler parmi les étoiles.
 

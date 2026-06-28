@@ -42,7 +42,7 @@ En voyant cela, Wang Lin s'arrêta brusquement.
 
 Tout ce qui se dressait devant lui était trop différent de ce qu'il avait perçu auparavant. Bien qu'il ne se souciait ni du bien ni du mal et qu'il agît selon les désirs de son cœur, il ne put s'empêcher de laisser échapper un soupir de honte.
 
-Avec sa culture de Transformation de l'Âme, il avait déployé tant d'efforts pour briser cette formation... Il n'aurait jamais pu imaginer que cet endroit ne fût qu'un simple village !
+Avec sa cultivation de Transformation de l'Âme, il avait déployé tant d'efforts pour briser cette formation... Il n'aurait jamais pu imaginer que cet endroit ne fût qu'un simple village !
 
 Tous ceux qui accompagnaient le vieil homme nommé Ouyang Hua étaient des mortels...
 

@@ -120,4 +120,4 @@ Après avoir erré un moment dans la maison, il s'arrêta devant un bâtiment. �
 
 Le jeune homme l'observa un instant, puis sortit une sphère de lumière blanche. Dans un soupir, il la projeta. La lumière pénétra dans le ventre de la femme. L'enfant, encore incomplet et n'ayant pas encore formé sa propre âme, fusionna progressivement avec cette lueur blanche.
 
-« Cet être entrera un jour dans le monde de la culture. Peut-être aurons-nous l'occasion de nous revoir, » murmura le jeune homme en s'éloignant.
+« Cet être entrera un jour dans le monde de la cultivation. Peut-être aurons-nous l'occasion de nous revoir, » murmura le jeune homme en s'éloignant.

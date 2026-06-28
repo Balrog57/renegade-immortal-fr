@@ -20,7 +20,7 @@ C'est ainsi que certains cultivateurs de la Formation de l'Âme sont tués tandi
 
 Toutefois, rien n'est absolu ; certains cultivateurs ayant choisi la première méthode parviennent à franchir le stade de la Transformation de l'Âme, mais ils sont bien trop peu nombreux et demeurent très faibles parmi les experts de la Transformation de l'Âme.
 
-Ainsi, ceux qui suivent la première voie se concentrent sur l'obtention de pilules pour élever leur niveau de culture, mais comment des pilules contenant de l'énergie spirituelle céleste pourraient-elles être si faciles à obtenir ?
+Ainsi, ceux qui suivent la première voie se concentrent sur l'obtention de pilules pour élever leur niveau de cultivation, mais comment des pilules contenant de l'énergie spirituelle céleste pourraient-elles être si faciles à obtenir ?
 
 Wang Lin vola sous la pluie jusqu'à ce qu'il atteigne l'ancien réseau de transfert. Celui-ci s'illumina et son corps disparut.
 
@@ -40,27 +40,27 @@ Quant à la Tour Céleste située au centre de Zhao, elle était toujours vide.
 
 Après avoir médité un instant, Wang Lin s'envola vers l'endroit où se trouvait autrefois la Secte Heng Yue, désormais devenue le foyer de la Secte Xuan Dao.
 
-Il était entré dans le monde de la culture ici, il atteindrait donc également le stade de la Formation de l'Âme en ces lieux.
+Il était entré dans le monde de la cultivation ici, il atteindrait donc également le stade de la Formation de l'Âme en ces lieux.
 
 Lorsqu'il apparut devant la Secte Xuan Dao, il vit une brume blanche recouvrir l'intégralité du domaine. Même le petit sentier montant à la montagne était obstrué. La Secte Xuan Dao avait fermé ses portes depuis longtemps et ne communiquait plus avec l'extérieur.
 
 Wang Lin laissa échapper un soupir. Plutôt que de provoquer un tumulte pour forcer les gens à sortir, il disparut. Lorsqu'il réapparut, il se trouvait déjà dans la montagne arrière de la Secte Xuan Dao.
 
-La montagne arrière où il avait passé quatre ans en culture fermée était toujours là. Quelques cultivateurs rôdaient aux alentours, mais leurs expressions étaient empreintes de léthargie et de déprime.
+La montagne arrière où il avait passé quatre ans en cultivation fermée était toujours là. Quelques cultivateurs rôdaient aux alentours, mais leurs expressions étaient empreintes de léthargie et de déprime.
 
 Comment auraient-ils pu remarquer la présence de Wang Lin ? Ce dernier trouva la grotte dans laquelle il s'était cultivé autrefois et s'y engagea.
 
 La grotte était déserte. Dès que Wang Lin fut à l'intérieur, le rocher de l'entrée redescendit lentement.
 
-Assis en tailleur, Wang Lin examina les lieux. Des souvenirs familiers envahirent son esprit. Il soupira et commença sa culture.
+Assis en tailleur, Wang Lin examina les lieux. Des souvenirs familiers envahirent son esprit. Il soupira et commença sa cultivation.
 
 Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Sa main traça un sceau qu'il pressa contre son abdomen. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
 
 Son corps original émergea de son avatar ; il arborait une chevelure blanche retombant sur ses épaules, un sourire sardonique et une étoile violette dégageant une lueur maléfique.
 
-Le niveau de culture de ce corps original était toujours au stade avancé de la Formation du Noyau.
+Le niveau de cultivation de ce corps original était toujours au stade avancé de la Formation du Noyau.
 
-Son Royaume Ji n'ayant pas évolué, le niveau de culture de son corps original ne pouvait progresser davantage.
+Son Royaume Ji n'ayant pas évolué, le niveau de cultivation de son corps original ne pouvait progresser davantage.
 
 Bien qu'il puisse porter son Royaume Ji au niveau de l'Âme Naissante lorsqu'il fusionnait avec son avatar, cela présentait des limitations et des inconvénients ; ce n'était donc pas une solution viable à long terme.
 
@@ -68,7 +68,7 @@ Quant à son avatar, il était sur le point d'atteindre le stade de la Formation
 
 À cet instant précis, il s'apprêtait à atteindre la Formation de l'Âme, et si la fusion avec son corps original persistait, cela entraverait le processus de percée.
 
-Wang Lin commença à réfléchir. Si le niveau de culture de son corps original stagnait, les inconvénients seraient trop nombreux. Il avait commencé à envisager cette question il y a plusieurs années sans toutefois pouvoir trancher. Cependant, sa compréhension du domaine de la vie et de la mort s'était considérablement accrue, surtout après l'incident au sanctuaire.
+Wang Lin commença à réfléchir. Si le niveau de cultivation de son corps original stagnait, les inconvénients seraient trop nombreux. Il avait commencé à envisager cette question il y a plusieurs années sans toutefois pouvoir trancher. Cependant, sa compréhension du domaine de la vie et de la mort s'était considérablement accrue, surtout après l'incident au sanctuaire.
 
 Son cœur hésitant prit enfin une décision.
 
@@ -76,15 +76,15 @@ Le corps original ne pouvait suivre le même chemin que l'avatar ; le Royaume Ji
 
 La voie de l'Ancien Dieu était celle que le corps original devait emprunter. Wang Lin médita un instant avant que les deux corps ne s'assoient. Tous deux formèrent des sceaux manuels, faisant apparaître une fumée verte qui les enveloppa lentement.
 
-La première étape consistait à briser la culture de son corps original.
+La première étape consistait à briser la cultivation de son corps original.
 
 Des éclats d'énergie spirituelle se dispersèrent depuis le corps original. Des traces de douleur marquèrent son visage, mais il restait déterminé. Finalement, des gouttes de sang suintèrent de ses pores.
 
 Ce liquide rouge ne collait pas à la peau ; il formait des perles de sang gravitant autour de lui. Peu à peu, le nombre de ces perles augmenta.
 
-Le visage du corps original devint d'une pâleur extrême et son niveau de culture commença à chuter depuis le stade avancé de la Formation du Noyau.
+Le visage du corps original devint d'une pâleur extrême et son niveau de cultivation commença à chuter depuis le stade avancé de la Formation du Noyau.
 
-Dix jours plus tard, le corps original paraissait plus âgé et sa culture était descendue au stade initial de la Formation du Noyau. Les perles de sang avaient déjà formé un anneau rouge autour de lui.
+Dix jours plus tard, le corps original paraissait plus âgé et sa cultivation était descendue au stade initial de la Formation du Noyau. Les perles de sang avaient déjà formé un anneau rouge autour de lui.
 
 Soudain, dans un craquement sec, le noyau du corps original se brisa, libérant une énergie spirituelle encore plus puissante qui déferla à travers son corps telle une troupe de chevaux sauvages. À ce moment précis, les yeux de l'avatar s'illuminèrent et celui-ci pointa un doigt vers le front du corps original. L'énergie spirituelle interne sembla trouver un point de sortie et jaillit par le front.
 
@@ -98,7 +98,7 @@ C'était là la fondation d'un cultivateur, symbole même du stade de l'Établis
 
 Cet anneau devint progressivement plus solide, brillant de plus en plus intensément. Cette fois, l'avatar pointa le dantian du corps original. Ce dernier trembla tandis que l'anneau se brisait en énergie spirituelle pour être aspiré par le bout du doigt de l'avatar.
 
-Le niveau de culture du corps original chuta alors brutalement. 14e couche de Condensation de Qi... 13e couche... 12e couche... 8e couche... 6e couche... jusqu'à la 1ère couche !
+Le niveau de cultivation du corps original chuta alors brutalement. 14e couche de Condensation de Qi... 13e couche... 12e couche... 8e couche... 6e couche... jusqu'à la 1ère couche !
 
 À cet instant, toute l'énergie spirituelle du corps original disparut. Son corps s'effondra soudainement contre le mur et sa respiration devint erratique. Pourtant, durant tout ce processus, ses yeux étaient restés calmes.
 
@@ -110,11 +110,11 @@ L'avatar saisit l'éclair rouge, le métamorphosa en une goutte de sang, puis la
 
 Cette goutte de sang était le Royaume Ji !
 
-Le corps original avait sacrifié sa culture pour forcer l'expulsion du Royaume Ji, le transformant ainsi en un objet semblable à un trésor magique.
+Le corps original avait sacrifié sa cultivation pour forcer l'expulsion du Royaume Ji, le transformant ainsi en un objet semblable à un trésor magique.
 
 Peu après, le corps original parvint péniblement à se redresser et ferma les yeux. À cet instant, l'avatar projeta l'énergie spirituelle de l'anneau de fondation dans le corps original. Le liquide issu du noyau fut également renvoyé vers lui.
 
-Une énergie spirituelle infinie afflua dans le corps original, mais celui-ci n'avait aucune intention de reprendre la culture conventionnelle. Au lieu de cela, il commença à appliquer la technique de l'Ancien Dieu. Sous cette puissance, toute l'énergie spirituelle fut absorbée par la chair et les os.
+Une énergie spirituelle infinie afflua dans le corps original, mais celui-ci n'avait aucune intention de reprendre la cultivation conventionnelle. Au lieu de cela, il commença à appliquer la technique de l'Ancien Dieu. Sous cette puissance, toute l'énergie spirituelle fut absorbée par la chair et les os.
 
 Au cours du processus d'absorption, des fragments d'une substance rouge passèrent de l'anneau vers le corps original.
 

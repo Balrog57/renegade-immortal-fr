@@ -66,13 +66,13 @@ Wang Lin fixa l'objet. Il avait la sensation que si le clou disparaissait compl�
 
 Après avoir observé silencieusement la cicatrisation, Wang Lin ferma les yeux et son âme originelle commença à lutter. Puisqu'il ne pouvait l'extraire par une force extérieure, il allait tenter d'utiliser son énergie originelle et son pouvoir d'Ancien Dieu pour le forcer à sortir.
 
-Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de culture, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
+Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de cultivation, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
 
 « Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou ! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Ashen Pine en venant dans le Royaume aux Sept Couleurs.
 
 Tenant la fiole, le sens divin de Wang Lin se déploya. Elle était à moitié remplie d'un liquide noir. Cela ressemblait à du sang, mais n'en dégageait pas l'odeur.
 
-« Une fois que j'aurai obtenu l'âme originelle de Maître Ashen Pine, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de culture. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
+« Une fois que j'aurai obtenu l'âme originelle de Maître Ashen Pine, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de cultivation. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
 
 « Vous connaissez la Restriction de la Vie et de la Mort ? »
 

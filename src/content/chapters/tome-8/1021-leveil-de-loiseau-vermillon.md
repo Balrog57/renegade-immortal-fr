@@ -98,7 +98,7 @@ En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être é
 
 Ce cri ne fit pas que secouer le royaume où se trouvait Wang Lin ! À cet instant précis, tous les autres royaumes du monde en bouteille entendirent ce cri fracassant !
 
-Ling Tianhou était assis dans la tour noire de son propre royaume, en pleine culture. Soudain, un cri d'Oiseau Vermillon inimaginable résonna à travers tout le domaine, faisant trembler le monde lui-même.
+Ling Tianhou était assis dans la tour noire de son propre royaume, en pleine cultivation. Soudain, un cri d'Oiseau Vermillon inimaginable résonna à travers tout le domaine, faisant trembler le monde lui-même.
 
 Ling Tianhou ouvrit brusquement les yeux, révélant une stupeur totale !
 

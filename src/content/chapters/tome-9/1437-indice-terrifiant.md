@@ -10,7 +10,7 @@ Chapitre 1437 - Indice terrifiant !
 
 Le cri déchirant fut étouffé par les grondements. La jeune fille qui s'était cachée sur l'épaule droite du colosse et qui s'apprêtait à attaquer Wang Lin par surprise fut forcée de se dévoiler !
 
-Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant du Tombeau de l'Ordre Antique. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette petite fille du Clan de l'Extermination des Sceaux !
+Peu importe le niveau de cultivation de chacun, tous devaient subir l'épreuve du brouillard provenant du Tombeau de l'Ordre Antique. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette petite fille du Clan de l'Extermination des Sceaux !
 
 Dès qu'elle apparut, son corps trembla violemment. Sa chair se flétrit rapidement et fut instantanément corrodée par le brouillard jusqu'à ce qu'il ne reste plus qu'un squelette !
 

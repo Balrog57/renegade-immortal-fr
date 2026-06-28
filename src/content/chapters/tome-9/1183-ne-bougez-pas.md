@@ -72,7 +72,7 @@ Bien que ce dragon possédât un corps de 10 000 pieds de long, qu'il fût un cu
 
 Même s'il muait pour devenir un véritable dragon, il ne pourrait jamais s'élever vers le ciel devant un Dieu Ancien !
 
-Alors que Wang Lin l'écrasait vers le sol, le dragon fut incapable de lutter et poussa un ultime cri. Son corps s'effondra brutalement. L'homme nommé Pang sentit le ciel s'obscurcir ; terrifié, il battit en retraite frénétiquement. Il craignait que s'il était trop lent, l'impact du dragon ne réduise son propre corps en poussière, compte tenu de son niveau de culture.
+Alors que Wang Lin l'écrasait vers le sol, le dragon fut incapable de lutter et poussa un ultime cri. Son corps s'effondra brutalement. L'homme nommé Pang sentit le ciel s'obscurcir ; terrifié, il battit en retraite frénétiquement. Il craignait que s'il était trop lent, l'impact du dragon ne réduise son propre corps en poussière, compte tenu de son niveau de cultivation.
 
 Un fracas de tonnerre résonna dans le ciel lorsque le gigantesque dragon s'écrasa au sol. Des pans entiers de montagnes s'effondrèrent de chaque côté, et il fallut un long moment pour que le calme revienne.
 

@@ -36,7 +36,7 @@ Son regard se posa une nouvelle fois sur la boussole. Les quatre points verts co
 
 « Malheureusement, cette boussole... Cependant, j'en comprends déjà la structure interne et les restrictions. Tant que j'ai les matériaux, je peux en fabriquer une », murmura Wang Lin tout en levant la main gauche, faisant apparaître une âme originelle à l'aspect terne.
 
-Il s'agissait d'une âme originelle extraite des trois groupes qui le poursuivaient. Elle avait atteint un certain niveau de culture et était très complète ; elle n'était pas non plus endommagée.
+Il s'agissait d'une âme originelle extraite des trois groupes qui le poursuivaient. Elle avait atteint un certain niveau de cultivation et était très complète ; elle n'était pas non plus endommagée.
 
 Wang Lin avait déjà effacé la volonté de cette âme originelle. Il ne restait qu'un corps d'âme originelle confus. La main gauche de Wang Lin écrasa soudainement l'âme, mais avant qu'elle ne se dissipe, il y injecta un fragment de son Sens Divin avant de l'insérer dans la boussole.
 

@@ -24,7 +24,7 @@ Le massacre incessant et l'absorption continue de l'intention meurtrière permir
 
 Lorsqu'il était arrivé ici, il restait plus d'une centaine de personnes après chaque massacre ; désormais, Wang Lin pouvait facilement tuer un individu d'un simple doigt. Son regard injecté de sang balaya les environs : il ne restait plus que moins de 50 personnes.
 
-Ces 50 survivants cessèrent de s'entretuer et se séparèrent pour trouver leurs propres bassins de sang afin d'y pratiquer leur culture. Après une journée de massacre, la brume de sang entourant Wang Lin s'était étendue sur cinquante pieds !
+Ces 50 survivants cessèrent de s'entretuer et se séparèrent pour trouver leurs propres bassins de sang afin d'y pratiquer leur cultivation. Après une journée de massacre, la brume de sang entourant Wang Lin s'était étendue sur cinquante pieds !
 
 Une durée indéterminée s'écoula encore.
 

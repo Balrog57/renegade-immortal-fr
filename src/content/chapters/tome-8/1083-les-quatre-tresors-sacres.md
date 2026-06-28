@@ -74,7 +74,7 @@ Au moment où l'Ancien Démon Ta Jia utilisa ce sort, la lumière provenant du v
 
 À mesure que la lumière s'accumulait, le point lumineux grandissait sans cesse. Cette clarté éblouissante envahit le ciel et illumina tout sur son passage.
 
-Une fois qu'il eut absorbé toute cette énergie, le point de lumière s'étendit jusqu'à atteindre près de 10 000 pieds de large. Sa puissance était telle que, si un mortel la regardait, ses yeux exploseraient ; et pour un cultivateur dont le niveau de culture était trop faible, ses yeux seraient également transpercés.
+Une fois qu'il eut absorbé toute cette énergie, le point de lumière s'étendit jusqu'à atteindre près de 10 000 pieds de large. Sa puissance était telle que, si un mortel la regardait, ses yeux exploseraient ; et pour un cultivateur dont le niveau de cultivation était trop faible, ses yeux seraient également transpercés.
 
 À cet instant, cette sphère de lumière était semblable à un soleil. Elle siffla directement vers la particule de poussière dans laquelle se trouvait la Terre des Esprits Démoniaques !
 

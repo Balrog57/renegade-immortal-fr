@@ -78,7 +78,7 @@ Dans le coin nord-est du premier étage, l'homme en noir portant la marque du dr
 
 Face à lui, de l'autre côté du pavillon, se tenait une autre personne : une belle femme d'âge moyen. Elle fixait l'homme en noir à travers la structure, son expression extrêmement sombre.
 
-« Cher compagnon de culture, ce n'est qu'une simple restriction ; pourquoi devez-vous me la voler ? » La voix de la femme était un peu rauque mais très mélodieuse.
+« Cher compagnon de cultivation, ce n'est qu'une simple restriction ; pourquoi devez-vous me la voler ? » La voix de la femme était un peu rauque mais très mélodieuse.
 
 Elle avait été projetée dans une restriction lors de l'effondrement du Lac Funéraire Céleste. Heureusement, celle-ci n'était pas très puissante et elle en était sortie rapidement. Elle avait ensuite aperçu le brouillard noir et, après réflexion, s'était avancée prudemment.
 
@@ -120,7 +120,7 @@ Wang Lin aperçut immédiatement les deux individus à l'intérieur. Ses yeux se
 
 En voyant Wang Lin, l'homme en noir esquissa un sourire étrange. C'est la belle femme qui eut une expression troublée. Lorsque son regard balaya Wang Lin, elle fut frappée de stupeur.
 
-« Sa culture est encore plus étrange ! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Nettoyage du Nirvana, sa culture ne semblait être qu'au début du stade de l'Observateur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet de l'Observateur du Nirvana ! Cache-t-il son véritable niveau ou vient-il de réaliser une percée ? »
+« Sa cultivation est encore plus étrange ! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Nettoyage du Nirvana, sa cultivation ne semblait être qu'au début du stade de l'Observateur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet de l'Observateur du Nirvana ! Cache-t-il son véritable niveau ou vient-il de réaliser une percée ? »
 
 Wang Lin les observa attentivement. Il avait manifestement percé le secret du pavillon. En réalité, la carte indiquait bien la présence d'un réseau de transfert vers un espace de stockage à l'intérieur de ce pavillon. Même sans la carte, Wang Lin pouvait en voir l'existence.
 

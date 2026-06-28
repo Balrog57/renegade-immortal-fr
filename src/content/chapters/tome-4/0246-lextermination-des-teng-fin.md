@@ -28,7 +28,7 @@ Ceux qui atteignirent la limite de la restriction la regardèrent avec désespoi
 
 De plus en plus de membres de la famille Teng se ruèrent vers Wang Lin. Cependant, dès qu'ils s'approchaient à moins de mille pieds de lui, ils étaient frappés par la restriction. Leurs corps explosaient, provoquant une pluie de sang qui s'abattait sur le sol.
 
-Les cris misérables de sa famille parvinrent aux oreilles de Teng Huayuan. Son corps tremblait violemment et son cœur était rongé par le chagrin. Il voulait résister, mais même le trésor magique offert par un pays de culture de rang supérieur ne lui fut d'aucun secours.
+Les cris misérables de sa famille parvinrent aux oreilles de Teng Huayuan. Son corps tremblait violemment et son cœur était rongé par le chagrin. Il voulait résister, mais même le trésor magique offert par un pays de cultivation de rang supérieur ne lui fut d'aucun secours.
 
 L'apparence de Teng Huayuan devint encore plus décrépite. Il n'avait plus la prestance majestueuse qu'il arborait autrefois ; il n'était plus qu'un vieillard impuissant, contraint de regarder sa lignée s'éteindre.
 
@@ -96,9 +96,9 @@ Bien que Punnan Zi fût rassuré, il en eut le cuir chevelu qui picotait. Il ign
 
 Il n'avait aucun doute : si le noble messager n'était pas intervenu, il serait déjà un cadavre. Il regarda Wang Lin avec un mélange de peur profonde et de regret.
 
-L'homme d'âge moyen fixa Wang Lin et déclara lentement : « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de culture. Très bien ! Remets-moi la perle défiant le ciel et je t'épargnerai la vie ! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu ? »
+L'homme d'âge moyen fixa Wang Lin et déclara lentement : « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de cultivation. Très bien ! Remets-moi la perle défiant le ciel et je t'épargnerai la vie ! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu ? »
 
-L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à dix mille kilomètres. Cet individu était le messager de la Tour Céleste, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de culture était celui de la Rupture Spirituelle.
+L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à dix mille kilomètres. Cet individu était le messager de la Tour Céleste, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de cultivation était celui de la Rupture Spirituelle.
 
 S'il n'était pas au stade de la Rupture Spirituelle, comment aurait-il pu détruire si aisément l'éclair du Royaume Ji ?
 
@@ -108,11 +108,11 @@ Et personne ne pouvait le verrouiller par leur propre Sens Divin. C'est ce qui e
 
 En réalité, l'homme d'âge moyen avait souffert de maux de tête ces derniers jours : peu importe la fréquence à laquelle il balayait Zhao avec son Sens Divin, il ne parvenait pas à débusquer celui qui exterminait les membres de la famille Teng.
 
-À moins que le Sens Divin de cette personne ne soit plus puissant que le sien, il était impossible de le détecter. Il faut dire que bien que son niveau de culture n'ait pas progressé en quatre cents ans, restant au début du stade de la Rupture Spirituelle, nul à Zhao ne pouvait l'égaler.
+À moins que le Sens Divin de cette personne ne soit plus puissant que le sien, il était impossible de le détecter. Il faut dire que bien que son niveau de cultivation n'ait pas progressé en quatre cents ans, restant au début du stade de la Rupture Spirituelle, nul à Zhao ne pouvait l'égaler.
 
-Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant qu'au début de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Rupture Spirituelle. Même si ce messager de la secte du Grand Démon était venu en personne, il n'aurait pas pu trouver Wang Lin.
+Il n'aurait jamais pu imaginer que, malgré un niveau de cultivation n'étant qu'au début de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Rupture Spirituelle. Même si ce messager de la secte du Grand Démon était venu en personne, il n'aurait pas pu trouver Wang Lin.
 
-Une telle chose était extrêmement rare dans le monde de la culture. Après tout, Wang Lin était l'unique dévoreur d'âmes errant sous forme humaine.
+Une telle chose était extrêmement rare dans le monde de la cultivation. Après tout, Wang Lin était l'unique dévoreur d'âmes errant sous forme humaine.
 
 De plus, il y avait cet étrange éclair rouge. Bien que l'homme d'âge moyen ait fait mine de résister avec aisance, en vérité, l'éclair rouge avait pénétré son corps et endommagé son âme. Le dommage n'était pas immense, mais il l'avait tout de même rendu craintif.
 

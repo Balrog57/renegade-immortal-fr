@@ -14,7 +14,7 @@ Une faible lueur dorée émanait de son corps. À mesure qu'il avançait, l'espa
 
 Privé de la présence du fou qui le suivait habituellement, la vitesse de Wang Lin avait atteint son apogée. Bien qu'il fût loin du quartier général de l'Alliance, il ne lui fallut que trois pas pour traverser tout le système stellaire.
 
-Au premier pas, il apparut dans une zone peuplée de planètes de culture et de cultivateurs. Personne ne remarqua sa présence ! La plupart ne ressentirent qu'une légère ondulation qui apparut puis disparut instantanément.
+Au premier pas, il apparut dans une zone peuplée de planètes de cultivation et de cultivateurs. Personne ne remarqua sa présence ! La plupart ne ressentirent qu'une légère ondulation qui apparut puis disparut instantanément.
 
 Maître Lu Fu comptait parmi ces cultivateurs. Le Vide Brillant abritait très peu de cultivateurs du troisième niveau, et ceux qui maîtrisaient les formations anciennes étaient encore plus rares. Maître Hong Shan l'avait invité ici pour y disposer des formations.
 
@@ -56,7 +56,7 @@ Alors que le loup vert se rapprochait, Maître Flammespark fit soudainement volt
 
 Des grondements tonitruants se firent entendre alors que les fragments explosaient, libérant une force destructrice colossale. Le loup vert poussa un cri déchirant et s'effondra. Cependant, le corps de Maître Flammespark trembla de la même manière. Son visage pâlit et il tituba.
 
-« Cultivateurs résiduels du Royaume Extérieur, si Maître Hong Shan n'était pas piégé, si Maître South Cloud ne sortait pas de sa culture recluse, si le Seigneur du Royaume Scellé n'était pas porté disparu, comment oseriez-vous être aussi arrogants ? »
+« Cultivateurs résiduels du Royaume Extérieur, si Maître Hong Shan n'était pas piégé, si Maître South Cloud ne sortait pas de sa cultivation recluse, si le Seigneur du Royaume Scellé n'était pas porté disparu, comment oseriez-vous être aussi arrogants ? »
 
 La voix de Maître Flammespark était empreinte de tristesse et ses yeux brillaient de folie. Il savait que tant qu'il parviendrait à s'échapper, ces deux-là ne le poursuivraient plus. Après tout, une fois hors de cette zone, il n'y aurait plus de failles spatiales pour entraver ses mouvements et il pourrait utiliser la courbure spatiale. S'ils continuaient la poursuite, ils auraient des ennuis.
 

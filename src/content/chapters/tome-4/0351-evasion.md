@@ -94,7 +94,7 @@ D'un seul regard, Wang Lin eut l'impression d'être totalement mis à nu. Un fro
 
 Il n'osa pas reculer. Il sentait que s'il faisait le moindre pas en arrière, le vieil homme le tuerait sur-le-champ. Il fixa froidement le vieillard, sa main gauche agrippant le piège à bêtes.
 
-Le vieil homme toussa et dit lentement : « Tu as tué Momo, Dia Ya, Ca Gu et Chi Mu. Je perçois des esprits vengeurs sur toi. Tuer les juniors de mon clan avec ton simple niveau de culture, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un guerrier aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la culture. Quel est ton nom ? »
+Le vieil homme toussa et dit lentement : « Tu as tué Momo, Dia Ya, Ca Gu et Chi Mu. Je perçois des esprits vengeurs sur toi. Tuer les juniors de mon clan avec ton simple niveau de cultivation, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un guerrier aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la cultivation. Quel est ton nom ? »
 
 Wang Lin répondit calmement : « Wang Lin ! » Sa main gauche pressait fermement le piège à bêtes. Le char de guerre présentait un défaut fatal : son activation était trop lente. Wang Lin n'était pas certain de pouvoir gagner assez de temps pour l'ouvrir.
 
@@ -104,7 +104,7 @@ Le visage de Wang Lin se fit sombre. Il fixa le vieillard tout en tentant de rec
 
 Les yeux du vieil homme se tournèrent de nouveau vers lui. Wang Lin marqua un temps d'arrêt et cessa de reculer.
 
-Le vieil homme toussa. « Je ne serai pas trop dur avec toi. Dis-moi quelle méthode tu as utilisée pour dissimuler ta présence, et je préserverai ton corps intact avant de t'apposer moi-même un tatouage. À partir de là, tu deviendras ma marionnette tatouée. Quelqu'un de ton niveau de culture ne pourra pas s'échapper. » Le vieillard tendit la main et Wang Lin sentit immédiatement l'espace autour de lui commencer à se refermer.
+Le vieil homme toussa. « Je ne serai pas trop dur avec toi. Dis-moi quelle méthode tu as utilisée pour dissimuler ta présence, et je préserverai ton corps intact avant de t'apposer moi-même un tatouage. À partir de là, tu deviendras ma marionnette tatouée. Quelqu'un de ton niveau de cultivation ne pourra pas s'échapper. » Le vieillard tendit la main et Wang Lin sentit immédiatement l'espace autour de lui commencer à se refermer.
 
 Le regard de Wang Lin devint glacial. Sa main droite toucha son sac de rangement, et le drapeau de restriction apparut. Il libéra une multitude de dragons faits de gaz de restriction qui chargèrent vers le vieil homme.
 

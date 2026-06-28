@@ -42,7 +42,7 @@ Après un soupir, Wang Lin rangea le Cercueil Évitant le Ciel dans son sac et s
 
 « Zhou Wutai, puisque tu es le Suzaku, j'utiliserai la planète Suzaku pour clore mon karma avec toi ! » Le regard de Wang Lin était calme ; tandis que des ondulations apparaissaient sous ses pieds, il disparut.
 
-La silhouette de Wang Lin apparut aux côtés d'une planète inhabitée dans le Système Stellaire de l'Alliance. Tout en observant l'astre devant lui, il leva la main droite. Sa culture au stade initial du Nirvana Scryer se manifesta sans retenue et ses yeux s'illuminèrent. Puis, sa main tendue tira impitoyablement !
+La silhouette de Wang Lin apparut aux côtés d'une planète inhabitée dans le Système Stellaire de l'Alliance. Tout en observant l'astre devant lui, il leva la main droite. Sa cultivation au stade initial du Nirvana Scryer se manifesta sans retenue et ses yeux s'illuminèrent. Puis, sa main tendue tira impitoyablement !
 
 La planète trembla violemment. Un instant plus tard, une aura antique émana de l'astre, comme si une main géante et invisible tentait de l'arracher.
 
@@ -50,7 +50,7 @@ Extraction de l'Âme Planétaire !
 
 Wang Lin ne l'exécuta pas totalement et s'arrêta après en avoir extrait une partie. Bien que la perte d'une fraction de l'âme planétaire affecterait l'astre, cela ne serait pas trop radical.
 
-En chemin, Wang Lin extirpa les âmes de plusieurs planètes. Malgré sa culture, il ressentit de la fatigue. Malheureusement, le garçon à la grosse tête ne pouvait pas fusionner avec le monde ; seul lui pouvait accomplir un tel exploit.
+En chemin, Wang Lin extirpa les âmes de plusieurs planètes. Malgré sa cultivation, il ressentit de la fatigue. Malheureusement, le garçon à la grosse tête ne pouvait pas fusionner avec le monde ; seul lui pouvait accomplir un tel exploit.
 
 Un jour plus tard, Wang Lin, fusionné avec le monde et tenant entre ses mains les âmes planétaires extraites, retourna sur la planète Suzaku.
 
@@ -74,11 +74,11 @@ Non seulement cela, mais tous les cultivateurs sentirent l'énergie de la planè
 
 Sentant l'effervescence de l'énergie environnante, Wang Lin lança la sixième sphère vers Suzaku. À cet instant, les montagnes verdirent, les eaux s'éclaircirent et un parfum semble émaner de la planète. Des ondes de vitalité résonnèrent à travers tout le monde.
 
-Lorsque Wang Lin lança la dernière sphère, le tremblement de l'âme de Suzaku atteignit son apogée. Même le talent des mortels qui n'avaient aucune aptitude manifeste pour la culture s'en trouva considérablement accru.
+Lorsque Wang Lin lança la dernière sphère, le tremblement de l'âme de Suzaku atteignit son apogée. Même le talent des mortels qui n'avaient aucune aptitude manifeste pour la cultivation s'en trouva considérablement accru.
 
 De plus, d'innombrables cultivateurs de bas niveau furent capables de briser immédiatement un goulot d'étranglement grâce à cette augmentation massive de l'énergie spirituelle !
 
-Une multitude de cultivateurs issus de diverses sectes abandonnèrent leurs activités pour s'immerger dans la culture, absorbant l'énergie planétaire avec une avidité folle.
+Une multitude de cultivateurs issus de diverses sectes abandonnèrent leurs activités pour s'immerger dans la cultivation, absorbant l'énergie planétaire avec une avidité folle.
 
 Bien que la planète Suzaku n'ait pas atteint la qualité d'une planète de rang supérieur, elle n'était plus à moitié abandonnée. Son énergie spirituelle avait retrouvé l'apogée de sa splendeur.
 

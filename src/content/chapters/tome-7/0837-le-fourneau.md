@@ -8,7 +8,7 @@ slug: le-fourneau
 ---
 Les yeux de Wang Lin s'illuminèrent alors qu'il pénétrait dans le fourneau. L'espace à l'intérieur était restreint et Wang Lin commença immédiatement à faire circuler l'énergie originelle dans son corps. Les tentacules qui se tendaient vers lui enveloppèrent le fourneau, mais ils n'osèrent pas y pénétrer et restèrent à l'extérieur.
 
-Wang Lin poussa un soupir de soulagement. Cet endroit ne pouvait être considéré que comme un refuge temporaire. Il se mit à réfléchir, ignorant tout ce qui se passait au dehors, puis s'assit pour commencer sa culture, les yeux fermés.
+Wang Lin poussa un soupir de soulagement. Cet endroit ne pouvait être considéré que comme un refuge temporaire. Il se mit à réfléchir, ignorant tout ce qui se passait au dehors, puis s'assit pour commencer sa cultivation, les yeux fermés.
 
 Dès qu'il ferma les yeux, une lueur vacilla dans son ombre et Ta Shan en sortit. Ce dernier s'assit, prêt à agir instantanément si le moindre signe de trouble apparaissait.
 
@@ -22,11 +22,11 @@ La poursuite par la famille Yao et l'intervention d'autres familles de cultivate
 
 À mesure que l'énergie originelle cyclait en lui, des vagues de douleur jaillissaient de son âme originelle. Il avait affronté de nombreuses crises durant cette période. Sans l'Armure de Cuir du Dieu Antique, il serait déjà mort à bien des reprises.
 
-La cruauté du monde de la culture, où la vie peut basculer à tout instant, ne pouvait ébranler le Dao de Wang Lin. Il était déjà accoutumé à de telles expériences depuis son passage dans le Système Stellaire de l'Alliance. On pourrait dire que ce genre d'épreuves l'avait accompagné durant la majeure partie de sa vie.
+La cruauté du monde de la cultivation, où la vie peut basculer à tout instant, ne pouvait ébranler le Dao de Wang Lin. Il était déjà accoutumé à de telles expériences depuis son passage dans le Système Stellaire de l'Alliance. On pourrait dire que ce genre d'épreuves l'avait accompagné durant la majeure partie de sa vie.
 
 « Le sort de Yao Bingyun endommage trop l'âme originelle. S'il n'y avait pas eu l'Armure de Cuir du Dieu Antique... » Wang Lin ouvrit les yeux, et un éclat de froideur transperça son regard.
 
-Son corps n'était pas gravement atteint, c'était principalement son âme originelle qui en souffrait. Toutefois, grâce à l'Armure de Cuir du Dieu Antique, la situation n'était pas critique. Maintenant qu'il s'était apaisé, il se plongea pleinement dans sa culture.
+Son corps n'était pas gravement atteint, c'était principalement son âme originelle qui en souffrait. Toutefois, grâce à l'Armure de Cuir du Dieu Antique, la situation n'était pas critique. Maintenant qu'il s'était apaisé, il se plongea pleinement dans sa cultivation.
 
 D'innombrables tentacules ondulaient à l'extérieur du fourneau. Près du vortex, Yao Bingyun ne paniquait pas ; elle restait d'un calme olympien.
 
@@ -54,7 +54,7 @@ Après un long moment, elle prit une profonde inspiration pour se forcer à retr
 
 « Existence scellée ! » Tout ce qui est vivant possède une existence. À cet instant, Yao Bingyun scella résolument sa propre existence. Toute vitalité disparut de son corps ; elle flottait là, telle un cadavre.
 
-Yao Bingyun avait déjà atteint le stade du sceau d'existence du sort céleste du Scellement de l'Âme. Le talent joue peu de rôle dans la culture de ce sort ; il exige plutôt une discipline absolue du Dao de l'esprit afin de ne pas se perdre dans ses propres pouvoirs.
+Yao Bingyun avait déjà atteint le stade du sceau d'existence du sort céleste du Scellement de l'Âme. Le talent joue peu de rôle dans la cultivation de ce sort ; il exige plutôt une discipline absolue du Dao de l'esprit afin de ne pas se perdre dans ses propres pouvoirs.
 
 Après s'être complètement scellée, des craquements résonnèrent dans son corps. Une fine couche de glace apparut en elle et se propagea rapidement.
 
@@ -64,13 +64,13 @@ Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie g
 
 Le temps passa lentement. On ne percevait aucun signe du passage des jours à l'intérieur du Serpent Moongazer. Le corps colossal de la créature errait lentement à travers le Domaine Nord.
 
-Un jour, le Serpent Moongazer s'arrêta. Il se trouvait alors dans les profondeurs du Domaine Nord, une zone pauvre en étoiles et dépourvue de planètes de culture à proximité.
+Un jour, le Serpent Moongazer s'arrêta. Il se trouvait alors dans les profondeurs du Domaine Nord, une zone pauvre en étoiles et dépourvue de planètes de cultivation à proximité.
 
-Une fois immobile, son corps se replia lentement pour redevenir une planète de culture. Les innombrables tentacules qui l'entouraient se rétractèrent et une vaste quantité de brume noire s'en échappa, enveloppant la planète.
+Une fois immobile, son corps se replia lentement pour redevenir une planète de cultivation. Les innombrables tentacules qui l'entouraient se rétractèrent et une vaste quantité de brume noire s'en échappa, enveloppant la planète.
 
 Les tentacules raccourcirent jusqu'à ne mesurer plus que mille pieds. Ils ondulaient à la surface de la planète et les environs retrouvèrent leur tranquillité...
 
-Dans l'espace mystérieux et étroit situé au sein du corps du Serpent Moongazer, Wang Lin ouvrit les yeux. Les blessures infligées à l'âme originelle n'étaient pas faciles à guérir ; après tout ce temps de culture, il n'avait récupéré que 80 % de ses capacités.
+Dans l'espace mystérieux et étroit situé au sein du corps du Serpent Moongazer, Wang Lin ouvrit les yeux. Les blessures infligées à l'âme originelle n'étaient pas faciles à guérir ; après tout ce temps de cultivation, il n'avait récupéré que 80 % de ses capacités.
 
 Le regard de Wang Lin fut aussi vif qu'un éclair lorsqu'il observa le fourneau qui l'entourait. Celui-ci dégageait une puissante aura de Dieu Antique. Bien qu'elle fût constamment absorbée par le Serpent Moongazer, cette aura demeurait extrêmement forte.
 
@@ -88,7 +88,7 @@ Tout en résistant à la succion, le sens divin de Wang Lin se répandit progres
 
 Wang Lin fronça les sourcils mais ne renonça pas. Son sens divin s'étendit à nouveau sur toute la surface du fourneau, laissant ses traces centimètre par centimètre.
 
-Le processus était extrêmement lent. Il devait lutter contre la force de succion tout en effectuant cette tâche, ce qui était une épreuve ardue compte tenu de son niveau de culture. Le temps s'écoulait, mais Wang Lin ne s'arrêta pas. En continuant d'imprimer sa marque sur le fourneau, il sembla découvrir des indices.
+Le processus était extrêmement lent. Il devait lutter contre la force de succion tout en effectuant cette tâche, ce qui était une épreuve ardue compte tenu de son niveau de cultivation. Le temps s'écoulait, mais Wang Lin ne s'arrêta pas. En continuant d'imprimer sa marque sur le fourneau, il sembla découvrir des indices.
 
 Une rune était gravée dans un coin à l'extérieur du fourneau. Cette rune était très complexe et, bien qu'elle fût sculptée sur le métal, la gravure n'était pas profonde. À l'œil nu, elle était presque indétectable.
 

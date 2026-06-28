@@ -8,11 +8,11 @@ slug: lancetre-apparait
 ---
 La voix de Wang Lin résonna à l'intérieur du Clan Démon Géant. Dans la partie nord du territoire, à 500 kilomètres sous la surface, une grotte dorée abritait un homme solitaire.
 
-Ce dernier était assis en position de lotus, absorbé par sa culture. Il possédait une beauté saisissante.
+Ce dernier était assis en position de lotus, absorbé par sa cultivation. Il possédait une beauté saisissante.
 
 À cet instant, il ouvrit soudainement les yeux. Son regard semblait capable de percer les parois de la grotte pour sonder l'extérieur. Rapidement, ses yeux se glacèrent et il marmonna : « Jeune Wang Lin, je vais te laisser jouir de ton arrogance encore un peu. Une fois ma possession achevée, je te tuerai. Même si tu scelles les membres du Clan Démon Géant, je n'aurai qu'à les désceller. »
 
-Sur ces mots, il referma les yeux et reprit sa culture.
+Sur ces mots, il referma les yeux et reprit sa cultivation.
 
 C’est alors que son sac de rangement se mit à briller d'une lueur noire. Fronçant les sourcils, il frappa le sac, et l'épée céleste qu'il avait dérobée à Wang Lin s'en échappa.
 
@@ -28,13 +28,13 @@ L'ancêtre du Clan Démon Géant laissa échapper un rire : « Comment Wang Lin 
 
 Xu Liguo serra les dents et répondit : « Maître, vous ne savez pas à quel point je déteste ce Wang Lin ; non seulement il me forçait à travailler, mais il m'appelait aussi uniquement pour me frapper et m'insulter. Tout cela n'est rien, mais le plus grave est qu'il ne m'a jamais accordé le moindre avantage, contrairement à vous qui me donnez des pierres spirituelles à absorber. Maître, quand nous aurons tué Wang Lin, pourriez-vous m'offrir quelques femmes en récompense ? Et pourquoi ne pas appeler la petite sœur fée ? Je ne l'ai pas vue depuis longtemps et elle me manque terriblement. »
 
-L'ancêtre du Clan Démon Géant esquissa un léger sourire : « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en culture fermée, alors retourne à l'intérieur ! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
+L'ancêtre du Clan Démon Géant esquissa un léger sourire : « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en cultivation fermée, alors retourne à l'intérieur ! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
 
-« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne doute pas qu'il me trahira. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper ! » ricana l'ancêtre du Clan Démon Géant avant de refermer les yeux pour reprendre sa culture.
+« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne doute pas qu'il me trahira. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper ! » ricana l'ancêtre du Clan Démon Géant avant de refermer les yeux pour reprendre sa cultivation.
 
 L'âme de Feng Luan était celle d'un trésor qu'il avait acquis par accident un jour.
 
-Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, son faible niveau de culture de l'époque l'avait presque hypnotisé. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre ; pourtant, encore aujourd'hui, il en éprouvait une certaine crainte.
+Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, son faible niveau de cultivation de l'époque l'avait presque hypnotisé. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre ; pourtant, encore aujourd'hui, il en éprouvait une certaine crainte.
 
 Après avoir obtenu l'épée céleste, il avait découvert le caractère mystérieux de Xu Liguo. Pour contrôler totalement l'esprit de l'épée, il avait invoqué l'âme de Feng Luan. Comme il s'y attendait, Xu Liguo s'était jeté sur elle tel un loup affamé, totalement captivé.
 
@@ -86,7 +86,7 @@ L'ancêtre maudit intérieurement. Sa possession n'étant pas achevée, il ne po
 
 Mais à l'instant, en échangeant ce coup avec Wang Lin, les os les plus solides de son corps s'étaient fissurés. Comment ne pas être stupéfait ?
 
-« Quelle est ta méthode de culture ?! » demanda l'ancêtre d'un ton sombre en reculant rapidement. Mais Wang Lin était trop rapide ; il était déjà devant lui, lançant un autre coup de poing. Cette attaque créa une pression qui le cloua sur place. De fines lignes apparurent soudainement, tentant de l'envelopper.
+« Quelle est ta méthode de cultivation ?! » demanda l'ancêtre d'un ton sombre en reculant rapidement. Mais Wang Lin était trop rapide ; il était déjà devant lui, lançant un autre coup de poing. Cette attaque créa une pression qui le cloua sur place. De fines lignes apparurent soudainement, tentant de l'envelopper.
 
 Les yeux de l'ancêtre s'illuminèrent. En tentant de bouger, son corps craqua sous la pression et les filaments. Il bondit dans les airs et utilisa un coup de pied pour contrer le poing de Wang Lin.
 
@@ -114,7 +114,7 @@ Si les cultivateurs ordinaires infusent l'énergie spirituelle céleste dans leu
 
 La puissance de ce seul coup fit voler en éclats toute la plaine au nord du clan, la réduisant en une poussière infinie projetée au loin par la pression.
 
-« Wang Lin, accepte ton trépas ! » L'ancêtre se sentait lui aussi impuissant. En utilisant l'énergie spirituelle céleste, ce corps était désormais condamné et il devrait trouver un nouveau réceptacle. Une fois le corps endommagé par l'énergie céleste, la fusion ne pourrait plus se faire correctement ; cela ne serait possible que si son niveau de culture atteignait le stade médian de la Transformation de l'Âme.
+« Wang Lin, accepte ton trépas ! » L'ancêtre se sentait lui aussi impuissant. En utilisant l'énergie spirituelle céleste, ce corps était désormais condamné et il devrait trouver un nouveau réceptacle. Une fois le corps endommagé par l'énergie céleste, la fusion ne pourrait plus se faire correctement ; cela ne serait possible que si son niveau de cultivation atteignait le stade médian de la Transformation de l'Âme.
 
 Les yeux de Wang Lin brillèrent d'une lueur étrange. La puissance de cette attaque lui avait infligé un sentiment de danger. Hormis son combat contre l'Émissaire des Cieux, c'était la deuxième fois que Wang Lin ressentait une telle menace alors qu'il était fusionné avec son corps originel.
 

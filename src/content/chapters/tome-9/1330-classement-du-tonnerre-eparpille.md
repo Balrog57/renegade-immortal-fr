@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1330 - Scatter Thunder Ranking
 slug: classement-du-tonnerre-eparpille
 ---
-Le vieil homme fixa Wang Lin du regard. Il ne pouvait masquer la terreur et l'incrédulité qui perçaient ses yeux. Il était en pleine culture lorsque la porte de la grotte s'était ouverte sans qu'il n'ait remarqué quoi que ce soit.
+Le vieil homme fixa Wang Lin du regard. Il ne pouvait masquer la terreur et l'incrédulité qui perçaient ses yeux. Il était en pleine cultivation lorsque la porte de la grotte s'était ouverte sans qu'il n'ait remarqué quoi que ce soit.
 
-En des centaines d'années de culture, il n'avait jamais été confronté à une chose aussi bizarre. Ce qui lui glaça le sang fut la silhouette extrêmement familière qui venait de pénétrer dans la cavité.
+En des centaines d'années de cultivation, il n'avait jamais été confronté à une chose aussi bizarre. Ce qui lui glaça le sang fut la silhouette extrêmement familière qui venait de pénétrer dans la cavité.
 
 La grotte était saturée de restrictions ; certaines étaient anciennes, tandis que beaucoup avaient été placées par ce vieil homme au fil des ans. Une fois toutes activées, un cultivateur de la Formation du Noyau mourrait à coup sûr. Quant aux vieux monstres de l'Âme Naissante, le moindre manque de prudence leur coûterait la vie ou les laisserait gravement blessés !
 
@@ -58,9 +58,9 @@ Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Éparpillé, mais gr
 
 « Outre les trois planètes mères où vit la majorité des membres du clan, les 13 autres planètes sur les 16 que compte le système servent de terrains d'essai ! Tous les cent ans, un seul accès à la Terre Sainte est ouvert, et tous ceux résidant sur ces 13 planètes doivent se battre pour l'obtenir ! »
 
-« Une fois qu'ils pénètrent dans cette Terre Sainte et entrent en contact direct avec l'éclair éternel, leur marque sera renforcée. Cela augmentera considérablement le niveau de culture de celui qui y parvient ! »
+« Une fois qu'ils pénètrent dans cette Terre Sainte et entrent en contact direct avec l'éclair éternel, leur marque sera renforcée. Cela augmentera considérablement le niveau de cultivation de celui qui y parvient ! »
 
-« Il reste sept ans avant la prochaine compétition... Cependant, la méthode choisie par le Clan du Tonnerre Éparpillé pour départager ses membres est intéressante... Elle ne dépend ni du niveau de culture, ni des compétences de combat, mais des cristaux de tonnerre ! »
+« Il reste sept ans avant la prochaine compétition... Cependant, la méthode choisie par le Clan du Tonnerre Éparpillé pour départager ses membres est intéressante... Elle ne dépend ni du niveau de cultivation, ni des compétences de combat, mais des cristaux de tonnerre ! »
 
 « Dans sept ans, celui qui possédera le plus de cristaux de tonnerre pourra entrer dans la Terre Sainte ! C'est une opportunité que je ne peux laisser passer. Je pourrai ainsi entrer dans la Terre Sainte uniquement pour absorber l'éclair éternel ! » Les yeux de Wang Lin brillèrent et sa main droite s'élança vers le vide. La marque de tonnerre entre les sourcils du vieil homme vacilla, et un morceau de jade en jaillit.
 
@@ -80,7 +80,7 @@ Après un examen rapide, il nota que même le 800e nom possédait plus de 400 00
 
 Les cristaux de tonnerre n'étaient pas de simples objets ou des noms symboliques ; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan du Tonnerre Éparpillé. Qu'il s'agisse de sorts, de pilules, de matériaux d'alchimie ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
 
-Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre des Esprits Démons fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan du Tonnerre Éparpillé mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la culture de chacun, permettait de constituer un trésor collectif.
+Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre des Esprits Démons fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan du Tonnerre Éparpillé mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la cultivation de chacun, permettait de constituer un trésor collectif.
 
 « C'est intéressant ! » Les yeux de Wang Lin pétillèrent et il agita sa main droite. La marque entre les sourcils du vieil homme fut totalement activée, et Wang Lin s'empara de tout son contenu.
 

@@ -8,11 +8,11 @@ slug: arrivee-a-allheaven
 ---
 Le système stellaire d'Allheaven.
 
-La lueur des étoiles se répandait infiniment dans toutes les directions. Le système stellaire d'Allheaven était vaste et comptait de nombreuses planètes de culture. Hormis quelques individus au sein du système stellaire de l'Alliance, la plupart des cultivateurs ignoraient l'existence d'autres systèmes.
+La lueur des étoiles se répandait infiniment dans toutes les directions. Le système stellaire d'Allheaven était vaste et comptait de nombreuses planètes de cultivation. Hormis quelques individus au sein du système stellaire de l'Alliance, la plupart des cultivateurs ignoraient l'existence d'autres systèmes.
 
 Cependant, le système stellaire d'Allheaven était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre.
 
-Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. À l'exception de Wang Lin, presque chaque cultivateur pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
+Cela tenait au fait que l'Alliance de Cultivation était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. À l'exception de Wang Lin, presque chaque cultivateur pensait que l'Alliance de Cultivation était l'unique puissance sous les étoiles.
 
 Le système stellaire d'Allheaven jouissait de beaucoup plus de liberté. Toutefois, certains secrets restaient étroitement gardés.
 
@@ -20,7 +20,7 @@ Une différence majeure entre les deux systèmes stellaires résidait dans le fa
 
 C'est uniquement par le sang que les gens se rassemblaient pour fonder leur propre force.
 
-Plusieurs traînées de lumière passèrent rapidement. Ils étaient quatre, trois hommes et une femme. Bien qu'il fût difficile de déterminer leur âge exact, ils paraissaient relativement jeunes. Leurs niveaux de culture étaient proches : à l'exception de la femme, qui était une cultivatrice au stade intermédiaire de la Transformation de l'Âme, les trois autres étaient tous au début du stade de la Transformation de l'Âme.
+Plusieurs traînées de lumière passèrent rapidement. Ils étaient quatre, trois hommes et une femme. Bien qu'il fût difficile de déterminer leur âge exact, ils paraissaient relativement jeunes. Leurs niveaux de cultivation étaient proches : à l'exception de la femme, qui était une cultivatrice au stade intermédiaire de la Transformation de l'Âme, les trois autres étaient tous au début du stade de la Transformation de l'Âme.
 
 La femme semblait avoir une vingtaine d'années. Bien qu'elle fût belle, une certaine froideur émanait d'elle ; pourtant, loin de toute arrogance, elle dégageait une aura de grande dame.
 

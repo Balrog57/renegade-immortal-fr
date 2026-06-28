@@ -20,7 +20,7 @@ Cette bête se nourrissait principalement d'énergie spirituelle. Son attaque co
 
 L'homme âgé, qui s'était montré si loquace en maudissant, sortit une grande gourde sale. Après avoir bu une longue gorgée, il recommença à jurer. Il ne daigna même pas regarder le bateau sur lequel se trouvaient Wang Lin et Qiu Siping.
 
-La sueur perlait sur le front de Qiu Siping. Il contrôlait avec précaution l'embarcation pour contourner lentement l'homme âgé. Ce n'est qu'après s'être éloigné de lui qu'il laissa enfin échapper un soupir et se tourna vers Wang Lin. Il dit : « Puisque cet individu peut utiliser un Xuanwu comme monture, sa culture doit être à un niveau inimaginable. Il semble que les bouleversements de la Mer des Démons aient favorisé l'émergence de nombreux anciens puissants. Heureusement qu'il ne s'est pas soucié de nous, sinon nous serions perdus. »
+La sueur perlait sur le front de Qiu Siping. Il contrôlait avec précaution l'embarcation pour contourner lentement l'homme âgé. Ce n'est qu'après s'être éloigné de lui qu'il laissa enfin échapper un soupir et se tourna vers Wang Lin. Il dit : « Puisque cet individu peut utiliser un Xuanwu comme monture, sa cultivation doit être à un niveau inimaginable. Il semble que les bouleversements de la Mer des Démons aient favorisé l'émergence de nombreux anciens puissants. Heureusement qu'il ne s'est pas soucié de nous, sinon nous serions perdus. »
 
 Wang Lin regarda Qiu Siping et dit, l'expression sombre : « Ce n'est peut-être pas si simple. »
 
@@ -34,7 +34,7 @@ Wang Lin ne s'attarda pas sur sa remarque. Il marcha vers la proue du bateau et 
 
 Après avoir médité un instant, Wang Lin déclara : « Ce n'est pas une formation, mais une sorte de restriction ! »
 
-Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement : « Avec notre niveau de culture, il est peu probable que ce senior ait placé cette restriction uniquement pour nous, n'est-ce pas ? »
+Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement : « Avec notre niveau de cultivation, il est peu probable que ce senior ait placé cette restriction uniquement pour nous, n'est-ce pas ? »
 
 Wang Lin garda le silence, continuant de balayer la zone avec son Sens Divin. Cet homme âgé ne les arrêterait pas sans raison ; il semblait qu'un problème les attendait.
 
@@ -56,7 +56,7 @@ Le visage de Qiu Siping se crispa. Il sortit précipitamment du vin de son sac d
 
 Le visage de l'homme âgé s'illumina et, d'un geste de la main, le vin dans les mains de Qiu Siping disparut instantanément.
 
-Wang Lin était resté silencieux durant tout ce temps. Il ne parvenait absolument pas à discerner le niveau de culture de cet homme et, n'étant pas porté sur la conversation, il jugea préférable de laisser Qiu Siping gérer l'échange.
+Wang Lin était resté silencieux durant tout ce temps. Il ne parvenait absolument pas à discerner le niveau de cultivation de cet homme et, n'étant pas porté sur la conversation, il jugea préférable de laisser Qiu Siping gérer l'échange.
 
 De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la tribulation divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais au fil de ses paroles, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
 
@@ -100,7 +100,7 @@ Wang Lin acquiesça. Il s'assit rapidement à l'arrière du bateau et pointa son
 
 Simultanément, il frappa son sac de rangement d'où sortit la bannière de restriction. Cette fois, sous son contrôle, elle enveloppa son corps.
 
-Peu après, une voix froide émana du brouillard noir : « Cher compagnon Qiu, je vais entrer en culture isolée pendant deux jours, ne me dérangez pas. »
+Peu après, une voix froide émana du brouillard noir : « Cher compagnon Qiu, je vais entrer en cultivation isolée pendant deux jours, ne me dérangez pas. »
 
 Qiu Siping accepta immédiatement. Après un regard vers le brouillard noir, il se détourna pour se concentrer sur la conduite du bateau afin d'accélérer la course.
 
@@ -270,7 +270,7 @@ Le cœur lourd, il continua. Soudain, son regard fut attiré par un fragment de 
 
 En le ramassant et en l'ouvrant, son corps trembla. Il s'installa à une table pour l'étudier avec précaution. La majeure partie du texte concernait les restrictions, mais au verso, une série de petits caractères était gravée :
 
-« Dans le monde de la culture, un changement de puissance spirituelle peut engendrer ce que l'on nomme le Royaume Ji. J'ai étudié ce phénomène durant de nombreuses années et j'ai laissé mes recherches pour les générations futures. »
+« Dans le monde de la cultivation, un changement de puissance spirituelle peut engendrer ce que l'on nomme le Royaume Ji. J'ai étudié ce phénomène durant de nombreuses années et j'ai laissé mes recherches pour les générations futures. »
 
 « Cette force mystérieuse, le Royaume Ji, est selon moi une technique divine ! Seule une telle technique pourrait tuer instantanément un cultivateur de même niveau ! »
 
@@ -278,7 +278,7 @@ En le ramassant et en l'ouvrant, son corps trembla. Il s'installa à une table p
 
 « Premièrement, les textes ne précisent pas qui possède le Royaume Ji, mais le contexte m'a permis de retracer plusieurs cultivateurs dotés de ce pouvoir. Parmi eux, certains se sont arrêtés à la Formation du Noyau, d'autres à l'Âme Naissante, et d'autres encore à la Séparation de l'Esprit. Il n'y a aucun modèle récurrent ; tout dépend de l'individu. »
 
-« En réalité, tous mes progrès dans cette recherche sont dus à une seule personne. Je ne citerai pas son nom, mais c'est le premier cultivateur du Royaume Ji que j'ai rencontré ! Son niveau de culture est celui de l'Âme Naissante. »
+« En réalité, tous mes progrès dans cette recherche sont dus à une seule personne. Je ne citerai pas son nom, mais c'est le premier cultivateur du Royaume Ji que j'ai rencontré ! Son niveau de cultivation est celui de l'Âme Naissante. »
 
 « Cette personne voulait franchir le stade de l'Âme Naissante pour atteindre la Séparation de l'Esprit et m'a demandé de l'aide, mais malgré tout, j'ai échoué... »
 
@@ -286,9 +286,9 @@ Wang Lin était absorbé par chaque mot. Après un long moment, une expression d
 
 Selon ces écrits, il réalisa immédiatement que sa propre limite liée au Royaume Ji était la Formation du Noyau. C'est pour cela que son royaume avait perdu le contrôle lors de sa tentative de formation d'Âme Naissante.
 
-Conséquence : sa culture resterait bloquée au stade avancé de la Formation du Noyau, sans espoir de progression future. Pour Wang Lin, c'était inacceptable !
+Conséquence : sa cultivation resterait bloquée au stade avancé de la Formation du Noyau, sans espoir de progression future. Pour Wang Lin, c'était inacceptable !
 
-Si sa culture ne progressait pas, ses 400 années de souffrance seraient vaines, Situ Nan ne se réveillerait jamais et tout son combat s'arrêterait là. Teng Hauyaun continuerait de vivre, il n'obtiendrait jamais sa vengeance et ne pourrait jamais retourner au pays de Zhao.
+Si sa cultivation ne progressait pas, ses 400 années de souffrance seraient vaines, Situ Nan ne se réveillerait jamais et tout son combat s'arrêterait là. Teng Hauyaun continuerait de vivre, il n'obtiendrait jamais sa vengeance et ne pourrait jamais retourner au pays de Zhao.
 
 Tous ses rêves volaient en éclats.
 
@@ -296,11 +296,11 @@ Son succès venait de son Royaume Ji... sa chute lui était aussi due. Wang Lin 
 
 Pour atteindre l'Âme Naissante, il devait abandonner son Royaume Ji. La seule issue consistait à renoncer à tout le pouvoir qu'il lui conférait afin de pouvoir progresser.
 
-C'était un choix déchirant. L'auteur du message avait suggéré une idée pour le cultivateur qu'il aidait : gaspiller sa culture actuelle. En dispersant sa culture, le Royaume Ji se dissiperait également, permettant de recommencer l'apprentissage à zéro pour enfin percer.
+C'était un choix déchirant. L'auteur du message avait suggéré une idée pour le cultivateur qu'il aidait : gaspiller sa cultivation actuelle. En dispersant sa cultivation, le Royaume Ji se dissiperait également, permettant de recommencer l'apprentissage à zéro pour enfin percer.
 
 Ce cultivateur n'avait finalement pas choisi cette voie.
 
-Désormais, Wang Lin faisait face à ce dilemme. S'il ne renonçait pas, il resterait bloqué, entravé par son propre pouvoir. Mais s'il acceptait, les 400 années de labeur acharné seraient perdues. De plus, dans la Mer des Démons, il risquait de mourir avant même que sa culture ne retrouve son niveau initial.
+Désormais, Wang Lin faisait face à ce dilemme. S'il ne renonçait pas, il resterait bloqué, entravé par son propre pouvoir. Mais s'il acceptait, les 400 années de labeur acharné seraient perdues. De plus, dans la Mer des Démons, il risquait de mourir avant même que sa cultivation ne retrouve son niveau initial.
 
 Après un long silence, une lueur de détermination jaillit de ses yeux. Il prit une profonde inspiration, rangea le bambou et sortit lentement de la grotte.
 

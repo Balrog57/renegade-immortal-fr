@@ -24,13 +24,13 @@ Ces cinq anneaux s'intersectaient, évoquant une fleur en pleine éclosion. De l
 
 Les mortels étaient nombreux sur cette planète ; on comptait probablement un milliard d'âmes. Ils menaient une vie paisible, épargnée par les guerres, ce qui était une rareté dans le Vide Brillant.
 
-Il semblait que la richesse de l'énergie spirituelle protégeait les mortels de la maladie. La plupart possédaient des corps sains et une grande beauté. De plus, au fil des générations, de plus en plus de mortels dotés d'un talent pour la culture apparaissaient.
+Il semblait que la richesse de l'énergie spirituelle protégeait les mortels de la maladie. La plupart possédaient des corps sains et une grande beauté. De plus, au fil des générations, de plus en plus de mortels dotés d'un talent pour la cultivation apparaissaient.
 
 Cette planète était la Planète des Cinq Éléments !
 
 Il n'existait qu'une seule secte sur la Planète des Cinq Éléments : la Secte Gui Yi ! Le nom de la secte suggérait l'idée de fusionner les cinq éléments en un seul.
 
-Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Culture, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête du Néant.
+Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Cultivation, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête du Néant.
 
 C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
 
@@ -44,7 +44,7 @@ En route vers la Planète des Cinq Éléments, Wang Lin songeait au passé. Il a
 
 « Na Duo possède un Royaume Ji aux cinq couleurs... » murmura Wang Lin alors que la Bête du Néant pénétrait dans un domaine stellaire totalement inconnu.
 
-Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de votre culture. C'était comme si cet endroit était détaché du Vide Brillant.
+Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de votre cultivation. C'était comme si cet endroit était détaché du Vide Brillant.
 
 Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie, surgir devant lui.
 
@@ -72,7 +72,7 @@ Wang Lin restait immobile devant les anneaux, attendant une réponse.
 
 Après un long moment, une voix rauque s'éleva de la planète, empreinte de choc, d'horreur et d'une terreur contenue.
 
-« L'Ancien Na Duo est en culture de méditation fermée et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous ? »
+« L'Ancien Na Duo est en cultivation de méditation fermée et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous ? »
 
 Wang Lin réfléchit un instant puis secoua la tête. Il demanda doucement : « Qui êtes-vous ? »
 
@@ -98,7 +98,7 @@ Les neuf sommets perçaient les nuages comme neuf épées transperçant le firma
 
 Au centre de ces neuf montagnes s'élevait une tour gigantesque. Plus haute encore que les sommets, elle comptait 99 étages. C'était là l'antre de la Secte Gui Yi ! Toute la secte résidait dans cette tour monumentale, une structure radicalement différente de toutes les autres sectes du Monde des Grottes.
 
-À cet instant, des faisceaux de lumière jaillirent des trente premiers étages pour se rassembler. Chaque rayon représentait un cultivateur aux niveaux variés ; la plupart étaient au premier stade de culture, et rares étaient ceux ayant atteint le second. Tous regardaient le ciel avec dédain.
+À cet instant, des faisceaux de lumière jaillirent des trente premiers étages pour se rassembler. Chaque rayon représentait un cultivateur aux niveaux variés ; la plupart étaient au premier stade de cultivation, et rares étaient ceux ayant atteint le second. Tous regardaient le ciel avec dédain.
 
 Peu après, près de cent autres cultivateurs émergèrent des étages suivants. Il s'agissait principalement de vieillards, pour la plupart au second stade. Ils occupaient calmement quatre des neuf pics et levaient les yeux vers le ciel, l'expression tout aussi méprisante.
 
@@ -106,6 +106,6 @@ Ils ne croyaient pas qu'un être puisse franchir si aisément la formation de pr
 
 Au sommet des dix derniers étages siégeaient quatre individus. L'un d'eux, vêtu d'une robe noire et marqué d'un grain de beauté sous l'œil droit, affichait une arrogance extrême et lâcha un reniflement méprisant.
 
-« Qu'importe s'il s'agit de Wang Lin ? Hormis l'âme de Seven-Colored, personne dans le Monde des Grottes ne nous fait peur ! Même si j'entrais dans la Formation des Cinq Éléments, je ne tiendrais qu'un bâton d'encens avant d'être stoppé par l'épreuve du feu. Bien que sa culture soit supérieure à la mienne, il lui sera impossible de franchir les cinq épreuves ! »
+« Qu'importe s'il s'agit de Wang Lin ? Hormis l'âme de Seven-Colored, personne dans le Monde des Grottes ne nous fait peur ! Même si j'entrais dans la Formation des Cinq Éléments, je ne tiendrais qu'un bâton d'encens avant d'être stoppé par l'épreuve du feu. Bien que sa cultivation soit supérieure à la mienne, il lui sera impossible de franchir les cinq épreuves ! »
 
 À ses côtés, une femme d'âge moyen esquissa un rire strident et malicieux. « J'espère qu'il réussira les cinq épreuves pour activer la formation complète et déclencher le Cycle des Neuf Cycles des Cinq Éléments. Je veux voir combien de cycles il pourra endurer... »

@@ -10,7 +10,7 @@ La terre trembla. Wang Lin pouvait clairement sentir une onde sourdre des profon
 
 Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surface, elle fit vibrer la planète tout entière dans un violent ébranlement.
 
-« Qu'est-ce que c'est... » Une voix calme résonna entre le ciel et la terre. Soudain, une aura antique envahit les environs. C'était comme si cette voix ne provenait pas d'en bas, mais du vide et à travers les âges. Elle semblait émaner du monde de culture ancestral d'il y a d'innombrables années.
+« Qu'est-ce que c'est... » Une voix calme résonna entre le ciel et la terre. Soudain, une aura antique envahit les environs. C'était comme si cette voix ne provenait pas d'en bas, mais du vide et à travers les âges. Elle semblait émaner du monde de cultivation ancestral d'il y a d'innombrables années.
 
 Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
 
@@ -44,7 +44,7 @@ Il était comme une petite flamme entourée par un vent glacial, prêt à être 
 
 L'aura de mort devint progressivement violente lors de sa descente, s'infiltrant jusque dans son corps. Si n'importe qui d'autre avait été à sa place, son corps se serait raidi et sa vie aurait été en péril immédiat.
 
-Cependant, Wang Lin avait cultivé le domaine de la Vie et de la Mort dès sa première étape de culture. Durant ses débuts, il avait pratiqué la Méthode de l'Ascension des Enfers ; il était donc très familier avec les énergies funèbres.
+Cependant, Wang Lin avait cultivé le domaine de la Vie et de la Mort dès sa première étape de cultivation. Durant ses débuts, il avait pratiqué la Méthode de l'Ascension des Enfers ; il était donc très familier avec les énergies funèbres.
 
 À cet instant, son énergie d'origine circula et les poissons Yin et Yang commencèrent à pivoter autour de lui. L'aura de mort fut repoussée, l'empêchant d'être gravement blessé.
 
@@ -52,7 +52,7 @@ Le ravin semblait sans fin. Wang Lin descendait très vite, mais même après se
 
 Après un long moment, alors que l'aura de mort devenait si dense que même les poissons Yin et Yang furent ralentis par son influence, son corps tressaillit lorsqu'il toucha enfin le sol.
 
-Ce qui se dressait devant lui était un tunnel. Ce passage était plongé dans une obscurité totale. Même avec la culture de Wang Lin, il ne pouvait voir clairement ; seuls des contours informes se dessinaient.
+Ce qui se dressait devant lui était un tunnel. Ce passage était plongé dans une obscurité totale. Même avec la cultivation de Wang Lin, il ne pouvait voir clairement ; seuls des contours informes se dessinaient.
 
 « Viens ici ! » La voix antique résonna dans ce tunnel silencieux, dégageant une sensation troublante. Wang Lin réfléchit un instant, puis ses yeux s'animèrent d'une détermination farouche et il s'engagea dans le passage.
 
@@ -94,13 +94,13 @@ Au moment où ces regards incommensurables se posèrent sur lui, la force vitale
 
 L'apparence de Wang Lin vieillit instantanément sous ses yeux, passant d'un jeune homme à un homme d'âge mûr.
 
-Un sentiment de faiblesse qu'il n'avait jamais connu jusqu'alors envahit son cœur. Bien que sa culture ne fût pas endommagée, cette sensation de défaillance ne s'estompait pas.
+Un sentiment de faiblesse qu'il n'avait jamais connu jusqu'alors envahit son cœur. Bien que sa cultivation ne fût pas endommagée, cette sensation de défaillance ne s'estompait pas.
 
 La voix de l'Ancêtre de la famille Xiang flotta doucement : « Sorts la personne que tu souhaites sauver ! »
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement ; la sphère de restriction contenant l'Âme Naissante de Li Muwan apparut. Cependant, avant qu'elle ne puisse atteindre les mains de Wang Lin, une aura de mort tyrannique s'y précipita et la ramena au centre de la tempête funèbre.
 
-À cet instant, Wang Lin oublia tout. Il en oublia même l'écart de culture insurmontable qui le séparait de l'entité. Ses yeux devinrent instantanément rouges et une lumière écarlate jaillit de son troisième œil.
+À cet instant, Wang Lin oublia tout. Il en oublia même l'écart de cultivation insurmontable qui le séparait de l'entité. Ses yeux devinrent instantanément rouges et une lumière écarlate jaillit de son troisième œil.
 
 « Que comptes-tu faire ?! » rugit Wang Lin en chargeant pour poursuivre l'aura de mort qui enveloppait Li Muwan.
 
@@ -128,4 +128,4 @@ Les yeux de Wang Lin devinrent ternes, et sa faiblesse s'intensifia décuplement
 
 C'était comme si une puissance lui faisait signe, voulant l'emporter avec elle.
 
-Après avoir pratiqué la culture pendant plus de 1 000 ans, comment Wang Lin aurait-il pu ignorer cette force... C'était le cycle de réincarnation des cieux. Il ne lui restait plus beaucoup de temps, et le cycle de réincarnation céleste commençait à l'appeler. Tout comme ce fut le cas pour Li Muwan. Lorsque sa durée de vie s'éteindrait, il mourrait !
+Après avoir pratiqué la cultivation pendant plus de 1 000 ans, comment Wang Lin aurait-il pu ignorer cette force... C'était le cycle de réincarnation des cieux. Il ne lui restait plus beaucoup de temps, et le cycle de réincarnation céleste commençait à l'appeler. Tout comme ce fut le cas pour Li Muwan. Lorsque sa durée de vie s'éteindrait, il mourrait !

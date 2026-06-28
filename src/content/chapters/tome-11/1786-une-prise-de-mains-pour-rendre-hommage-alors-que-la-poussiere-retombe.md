@@ -88,7 +88,7 @@ Qu'il s'agisse de Tang Shan, de la Tortue Noire, de l'Oiseau Vermillon ou des cu
 
 Le vieil homme nommé Ma, de la Planète des Cinq Éléments, fut le premier à s'avancer après avoir médité. Il regarda Wang Lin d'un air complexe et, après un long silence, prit la parole.
 
-« Cher compagnon de culture Wang, ce vieil homme partira le premier. Si vous venez dans les terres des immortels, n'hésitez pas à visiter la Secte des Cinq Éléments ! »
+« Cher compagnon de cultivation Wang, ce vieil homme partira le premier. Si vous venez dans les terres des immortels, n'hésitez pas à visiter la Secte des Cinq Éléments ! »
 
 Wang Lin hocha la tête et répondit calmement : « Merci, Ancien, pour votre aide passée. Si le destin le permet, je visiterai certainement la Secte des Cinq Éléments. »
 

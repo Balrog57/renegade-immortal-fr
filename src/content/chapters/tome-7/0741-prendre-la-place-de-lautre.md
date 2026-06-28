@@ -84,7 +84,7 @@ Wang Lin se dirigea droit vers la montagne. Il utilisa l'épée céleste pour cr
 
 Lors de son combat contre Xu Fenghan, Wang Lin avait utilisé la Coupe Céleste et le Troisième Œil, ce qui avait épuisé son énergie d'origine. Cependant, il avait absorbé deux éclairs célestes et demi qu'il n'avait pas encore raffinés et qu'il gardait en lui. Il les raffina rapidement pour récupérer l'énergie consommée durant la bataille.
 
-De plus, cet endroit était le Royaume Céleste du Tonnerre ; tout ici, des plantes aux montagnes, contenait du tonnerre. C'était une terre sainte pour Wang Lin, et la culture y serait bien plus rapide qu'ailleurs.
+De plus, cet endroit était le Royaume Céleste du Tonnerre ; tout ici, des plantes aux montagnes, contenait du tonnerre. C'était une terre sainte pour Wang Lin, et la cultivation y serait bien plus rapide qu'ailleurs.
 
 Il était comme un poisson dans l'eau.
 

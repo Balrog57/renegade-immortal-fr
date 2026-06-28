@@ -38,9 +38,9 @@ Jie Donglei afficha un regard de regret alors que son corps se changeait en cend
 
 De nombreux guerriers avaient été des cultivateurs d'épée dans l'Antiquité, mais de nos jours, peu se consacraient exclusivement à la voie de l'épée ; ils s'en servaient plutôt comme trésors.
 
-La vitesse et la puissance d'un cultivateur d'épée surpassent celles des cultivateurs ordinaires. Bien qu'il existe de multiples méthodes de culture de l'épée, il faut une technique de rang supérieur et une épée d'une qualité exceptionnelle pour véritablement libérer la puissance terrifiante d'un tel combattant.
+La vitesse et la puissance d'un cultivateur d'épée surpassent celles des cultivateurs ordinaires. Bien qu'il existe de multiples méthodes de cultivation de l'épée, il faut une technique de rang supérieur et une épée d'une qualité exceptionnelle pour véritablement libérer la puissance terrifiante d'un tel combattant.
 
-La culture de l'épée de Jie Donglei n'était pas exemplaire, tout comme son épée volante. Autrement, avec sa puissance de cultivateur d'épée, il aurait facilement balayé les experts de la ville de Nan Dou au lieu d'être contraint de rester ici.
+La cultivation de l'épée de Jie Donglei n'était pas exemplaire, tout comme son épée volante. Autrement, avec sa puissance de cultivateur d'épée, il aurait facilement balayé les experts de la ville de Nan Dou au lieu d'être contraint de rester ici.
 
 S'il luttait en duel, son épée était redoutable, mais il ne pouvait pas diviser son attention lors d'un combat de groupe ; il n'avait donc eu qu'une seule chance de frapper.
 
@@ -54,7 +54,7 @@ Les dix anciens de la Secte de la Lutte contre le Mal qui formaient la formation
 
 Quant aux dizaines de milliers de disciples de la formation du dragon, plus de 80 % de leur énergie spirituelle avait été consumée par Jie Donglei. Ils luttaient pour se tenir debout tout en regardant le mot « Punir » d'un rouge sanglant et accueillaient Wang Lin à grands cris.
 
-Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la culture, il n'y a ni bien ni mal ; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte de la Lutte contre le Mal.
+Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la cultivation, il n'y a ni bien ni mal ; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte de la Lutte contre le Mal.
 
 Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer des Démons s'achevait ainsi.
 
@@ -66,9 +66,9 @@ Il esquissa un sourire glacial en fixant Shang Guanmo. « À partir d'aujourd'hu
 
 Shang Guanmo fut stupéfait. Il s'apprêtait à répliquer, mais face à la froideur du regard de Wang Lin, il se tut et hocha la tête.
 
-« Préparez-moi une chambre. Je vais entrer en culture de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte de la Lutte contre le Mal.
+« Préparez-moi une chambre. Je vais entrer en cultivation de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte de la Lutte contre le Mal.
 
-La chambre fut rapidement préparée. Il s'agissait de l'alcôve personnelle de Jie Donglei, située dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit : « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
+La chambre fut rapidement préparée. Il s'agissait de l'alcôve personnelle de Jie Donglei, située dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit : « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa cultivation.
 
 Li Muwan fixa Wang Lin. Après un long silence, elle murmura : « Merci... » Le cœur serré par l'émotion, elle se détourna et partit.
 

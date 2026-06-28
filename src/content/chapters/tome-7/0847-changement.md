@@ -52,7 +52,7 @@ Parmi les mortels, le vieil homme nommé Xie fixait le ciel d'un regard vide. Le
 
 « Il... n'est pas un fantôme... » Une forme d'illumination apparut dans le cœur du vieil homme nommé Xie. Il resta silencieux, mais s'avança avec détermination.
 
-L'énergie spirituelle sur la planète Qing Ling commença à croître de manière effrénée. Tous les cultivateurs au stade de l'Âme Naissante en culture fermée, tentant de percer le stade de la Formation de l'Âme, sentirent l'énergie spirituelle à l'intérieur de leurs corps se mettre à tourbillonner rapidement.
+L'énergie spirituelle sur la planète Qing Ling commença à croître de manière effrénée. Tous les cultivateurs au stade de l'Âme Naissante en cultivation fermée, tentant de percer le stade de la Formation de l'Âme, sentirent l'énergie spirituelle à l'intérieur de leurs corps se mettre à tourbillonner rapidement.
 
 L'illumination de Wang Lin provoqua un changement radical sur la planète Qing Ling. Ceux qui étaient bloqués au stade de l'Âme Naissante depuis longtemps bénéficièrent immensément de son illumination. Ceux qui étaient à un demi-pas de la Formation de l'Âme eurent une révélation dans leurs propres domaines et atteignirent le stade de la Formation de l'Âme !
 

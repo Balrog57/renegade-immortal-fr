@@ -92,7 +92,7 @@ Dès son apparition, Cao Yidou se prostra au sol et dit respectueusement : « Sa
 
 Wang Lin ne perdit pas de temps : « Connais-tu l'Ancêtre de Sang ? »
 
-À la mention du nom d'« Ancêtre de Sang », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre : « Je sais que la renommée de l'Ancêtre de Sang est connue de chaque cultivateur sur la planète Tian Yun ! La rumeur dit qu'il a défié l'Omniscient sept fois et que, bien qu'il ait perdu à chaque fois, sa culture était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après l'Omniscient et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance ! »
+À la mention du nom d'« Ancêtre de Sang », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre : « Je sais que la renommée de l'Ancêtre de Sang est connue de chaque cultivateur sur la planète Tian Yun ! La rumeur dit qu'il a défié l'Omniscient sept fois et que, bien qu'il ait perdu à chaque fois, sa cultivation était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après l'Omniscient et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance ! »
 
 Wang Lin réfléchit un instant : « As-tu entendu parler de la Pilule de l'Âme Sanguine ? »
 
@@ -112,7 +112,7 @@ Wang Lin hésita un instant, puis mordit le bout de son doigt pour en presser un
 
 « Des symboles brillant sur la cire et une lueur bleue au contact du sang ! Oui, c'est une Pilule de l'Âme Sanguine ! » Les yeux de Cao Yidou brillaient d'avidité en contemplant l'objet.
 
-Le visage de Wang Lin se fit sombre. Il regarda Cao Yidou et demanda lentement : « Cao Yidou, avec ta culture, occupais-tu une position élevée dans ta secte ? »
+Le visage de Wang Lin se fit sombre. Il regarda Cao Yidou et demanda lentement : « Cao Yidou, avec ta cultivation, occupais-tu une position élevée dans ta secte ? »
 
 Cao Yidou semblait ne pas l'avoir entendu. Pour lui seul, la pilule comptait. Il se souvenait vaguement que si son âme pouvait absorber cette pilule, il pourrait condenser un nouveau corps !
 

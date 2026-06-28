@@ -66,15 +66,15 @@ Situ Nan s'écria : « Pourquoi possèdes-tu le Royaume Ji !?!?! »
 
 Wang Lin répondit d'une voix lente : « Dans la Vallée Jue Ming, un fragment du Royaume Ji est apparu en moi. Tu dormais alors, tu ne l'as pas vu. Ensuite, mon corps fut détruit et tu as sauvé mon âme avant de sombrer à nouveau dans ton sommeil. Sur le champ de bataille étranger, mon Royaume Ji a atteint sa plénitude. »
 
-« Le Royaume Ji est une substance extrêmement tyrannique. Je n'ai que peu d'informations à son sujet, mais je sais que l'Alliance de Culture recherche sans cesse les cultivateurs possédant le Royaume Ji. Dès qu'ils en trouvent un, ils l'exterminent. Tu dois te souvenir de ne jamais le montrer à quiconque, surtout au Suzaku actuel ! » L'expression de Situ Nan était d'une gravité absolue.
+« Le Royaume Ji est une substance extrêmement tyrannique. Je n'ai que peu d'informations à son sujet, mais je sais que l'Alliance de Cultivation recherche sans cesse les cultivateurs possédant le Royaume Ji. Dès qu'ils en trouvent un, ils l'exterminent. Tu dois te souvenir de ne jamais le montrer à quiconque, surtout au Suzaku actuel ! » L'expression de Situ Nan était d'une gravité absolue.
 
-Wang Lin hocha la tête. Après une courte réflexion, il ajouta : « Je soupçonne que ce Royaume Ji a un lien avec ta Méthode de Culture de l'Ascension des Enfers. »
+Wang Lin hocha la tête. Après une courte réflexion, il ajouta : « Je soupçonne que ce Royaume Ji a un lien avec ta Méthode de Cultivation de l'Ascension des Enfers. »
 
 Situ Nan fut stupéfait. Il se frotta le menton et dit : « Tu pourrais avoir raison, mais il y a des variables inconnues en jeu ; sinon, je posséderais moi aussi le Royaume Ji. Pour autant que je sache, les chances qu'il apparaisse sont infimes. De plus, il est bien trop difficile à cultiver ; le fait que tu aies pu l'extraire de ton corps sans en être affecté est déjà une rareté absolue. » Situ Nan regarda Wang Lin avec une pointe d'admiration.
 
-« Situ, j'ai entendu dire que le Cristal de la Planète de Culture pouvait aider le Royaume Ji à briser ses limitations. Est-ce vrai ? Qu'est-ce que ce Cristal exactement ? » Les yeux de Wang Lin s'illuminèrent en posant enfin la question qu'il retenait depuis des centaines d'années.
+« Situ, j'ai entendu dire que le Cristal de la Planète de Cultivation pouvait aider le Royaume Ji à briser ses limitations. Est-ce vrai ? Qu'est-ce que ce Cristal exactement ? » Les yeux de Wang Lin s'illuminèrent en posant enfin la question qu'il retenait depuis des centaines d'années.
 
-« Tu connais même l'existence du Cristal de la Planète de Culture... » Situ Nan afficha une expression complexe avant de soupirer : « Le Cristal de la Planète de Culture... cet objet n'est pas une bonne chose, mais si tu veux quitter cette planète, tu devras impérativement l'obtenir, sans quoi cela pourrait causer des problèmes futurs... Ah ! Le Cristal de la Planète de Culture est l'outil le plus perfide que l'Alliance de Culture utilise pour asservir une planète de culture... »
+« Tu connais même l'existence du Cristal de la Planète de Cultivation... » Situ Nan afficha une expression complexe avant de soupirer : « Le Cristal de la Planète de Cultivation... cet objet n'est pas une bonne chose, mais si tu veux quitter cette planète, tu devras impérativement l'obtenir, sans quoi cela pourrait causer des problèmes futurs... Ah ! Le Cristal de la Planète de Cultivation est l'outil le plus perfide que l'Alliance de Cultivation utilise pour asservir une planète de cultivation... »
 
 Situ Nan s'apprêtait à poursuivre quand il scruta soudain l'horizon : « Nous en reparlerons plus tard. Pour l'instant, des membres du Clan des Immortels Délaissés sont devant nous et procèdent à des offrandes pour leur esprit ancestral. Laisse-moi réfléchir... Je me souviens que le premier Suzaku étudiait un sort capable d'utiliser l'esprit ancestral pour absorber une part de ce pouvoir mystérieux... Je vieillis, ma mémoire me fait défaut. Je crois que c'est la bonne méthode. Wang Lin, donne-moi un jade céleste. »
 
@@ -92,13 +92,13 @@ Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. 
 
 Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
 
-Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plus de cent individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer : « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
+Dans le ciel au sud du continent de Suzaku, une armée de cultivation composée de plus de cent individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer : « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
 
 Après que Zhuque Zi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
 
 Dans les nuages noirs bordant l'est du continent de Suzaku, le cinquième ancêtre détourna son regard avec mélancolie.
 
-L'Ancien Sima de la Secte des Cadavres, dont la culture était au stade de la Transformation de l'Âme, ne put détecter le changement survenu lors de l'apparition de Situ Nan, mais en voyant l'expression du cinquième ancêtre se crisper, il fut frappé de surprise.
+L'Ancien Sima de la Secte des Cadavres, dont la cultivation était au stade de la Transformation de l'Âme, ne put détecter le changement survenu lors de l'apparition de Situ Nan, mais en voyant l'expression du cinquième ancêtre se crisper, il fut frappé de surprise.
 
 Il s'apprêtait à sonder les informations quand le cinquième ancêtre agita ses manches et ordonna : « Ancien Sima, commençons. »
 

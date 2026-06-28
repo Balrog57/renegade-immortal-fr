@@ -18,7 +18,7 @@ L'expression de Wang Lin resta calme alors qu'il ouvrait les yeux et avançait d
 
 « Le sort céleste "Effondrement de la Montagne" était extrêmement puissant. Bien que je m'attendais à ce que les trois derniers sorts de l'Empereur Céleste Bai Fan soient plus puissants que les trois premiers, cet Effondrement de la Montagne dépassait mon imagination... Effondrement de la Montagne, Effondrement de la Montagne... quelle compréhension l'Empereur Céleste Bai Fan a-t-il dû avoir pour créer un sort aussi dévastateur... Je ne sais même pas quand je serai capable de créer mon propre sort... »
 
-Un rocher flottait lentement loin à l'est de Wang Lin. Ce rocher provenait manifestement d'une planète de culture effondrée. En dérivant, de petits fragments s'en détachaient.
+Un rocher flottait lentement loin à l'est de Wang Lin. Ce rocher provenait manifestement d'une planète de cultivation effondrée. En dérivant, de petits fragments s'en détachaient.
 
 Une faible fluctuation de sorts émanait de lui, se dissipant comme de la fumée. Ce rocher semblait très ordinaire ; il y avait tout simplement trop de pierres de ce genre parmi les étoiles pour que quiconque y prête attention.
 
@@ -60,7 +60,7 @@ Ces êtres apparurent devant lui un à un, le fixant froidement du regard.
 
 Le corps du garçon trembla sous l'effet d'un froid glacial. Ce froid n'était pas seulement physique, c'était aussi la solitude de son cœur. Les souvenirs de son enfance continuaient de ressurgir.
 
-« Est-ce ainsi que je vais partir... Après des milliers d'années de culture, je vais finalement m'éteindre... » L'odeur émanant de l'empreinte noire sur son dos devint plus forte, et presque toute sa colonne vira au noir.
+« Est-ce ainsi que je vais partir... Après des milliers d'années de cultivation, je vais finalement m'éteindre... » L'odeur émanant de l'empreinte noire sur son dos devint plus forte, et presque toute sa colonne vira au noir.
 
 Ses yeux se fermèrent lentement comme s'il était enveloppé par les ténèbres, perdant progressivement conscience.
 

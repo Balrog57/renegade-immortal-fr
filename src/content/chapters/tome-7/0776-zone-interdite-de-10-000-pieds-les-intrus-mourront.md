@@ -8,7 +8,7 @@ slug: zone-interdite-de-10-000-pieds-les-intrus-mourront
 ---
 Chapitre 776 - Zone interdite de 10 000 pieds : les intrus mourront !
 
-Une silhouette se tenait debout sur l'énergie de l'épée. Il portait une large robe jaune qui flottait au vent, lui conférant un air d'une grande élégance. À ce niveau de culture, l'apparence extérieure ne reflétait plus l'âge réel de l'individu. Il semblait avoir une trentaine d'années et possédait un visage ordinaire ; cependant, ses yeux étroits laissaient transparaître un éclair de froideur.
+Une silhouette se tenait debout sur l'énergie de l'épée. Il portait une large robe jaune qui flottait au vent, lui conférant un air d'une grande élégance. À ce niveau de cultivation, l'apparence extérieure ne reflétait plus l'âge réel de l'individu. Il semblait avoir une trentaine d'années et possédait un visage ordinaire ; cependant, ses yeux étroits laissaient transparaître un éclair de froideur.
 
 Une riche énergie originelle émanait de son corps. Il était évident qu'il avait atteint le sommet du stade Illusoire Yin. À mesure qu'il s'avançait, la foule devant lui se dispersa immédiatement, n'osant l'entraver.
 
@@ -34,7 +34,7 @@ Il laissa échapper un rire, sa main prenant la forme d'une griffe tandis que ci
 
 Alors que les cinq dragons noirs encerclaient l'individu, ils commencèrent aussitôt à croître. En un instant, ils atteignirent 500 pieds de long. Par conséquent, l'aura du jeune homme augmenta soudainement.
 
-Le jeune homme en robe jaune déclara d'un ton lent : « L'attaque de ce compagnon de culture est plutôt remarquable. Veuillez patienter un instant, car moi, Tang Yanyun, je souhaite explorer le trou laissé par le Céleste. Qu'en dites-vous ? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
+Le jeune homme en robe jaune déclara d'un ton lent : « L'attaque de ce compagnon de cultivation est plutôt remarquable. Veuillez patienter un instant, car moi, Tang Yanyun, je souhaite explorer le trou laissé par le Céleste. Qu'en dites-vous ? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de cultivation de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
 
 À l'instant où il prononça ces mots, les visages des cultivateurs proches changèrent radicalement. L'un d'eux s'exclama : « La famille Tang ! Serait-ce la famille Tang du Domaine Sud ?! »
 
@@ -44,7 +44,7 @@ Wang Lin le regarda froidement et dit calmement : « Tu n'en es pas digne ! »
 
 Tang Yanyun fut stupéfait. Il avait anticipé que l'autre partie refuserait, et il s'était imaginé comment son expression changerait en apprenant son appartenance à la famille Tang. Cependant, il n'aurait jamais pu concevoir qu'un tel homme puisse faire preuve d'une telle arrogance.
 
-Son visage se voila de noirceur et il rit amèrement : « Si tel est le cas, je ne vous dérangerai pas. » Sur ces mots, il commença à battre en retraite tout en pensant : « Le niveau de culture de cet homme est supérieur au mien. Je vais me retirer pour attendre mon frère. Il ne sera pas trop tard pour agir alors. »
+Son visage se voila de noirceur et il rit amèrement : « Si tel est le cas, je ne vous dérangerai pas. » Sur ces mots, il commença à battre en retraite tout en pensant : « Le niveau de cultivation de cet homme est supérieur au mien. Je vais me retirer pour attendre mon frère. Il ne sera pas trop tard pour agir alors. »
 
 Bien que la famille Tang n'ait pas reçu d'héritage direct du Royaume Céleste, elle n'en demeurait pas moins puissante. Nombreux étaient ceux de son clan à être venus dans le Royaume Céleste du Tonnerre cette fois-ci, et plutôt que de se disperser, ils restaient groupés. Il n'était ici qu'en éclaireur.
 

@@ -54,7 +54,7 @@ Les cultivateurs environnants avaient été projetés en arrière, mais aucun ne
 
 « Affiner un cultivateur du troisième niveau !!! »
 
-« Je n'ai jamais entendu parler d'un tel exploit ! Ce troisième Jeune Empereur possède une culture si puissante ! »
+« Je n'ai jamais entendu parler d'un tel exploit ! Ce troisième Jeune Empereur possède une cultivation si puissante ! »
 
 « Incroyable ! Inimaginable ! Ce troisième Jeune Empereur est fou ! Croit-il qu'il affine une simple pilule ? »
 
@@ -134,7 +134,7 @@ Contemplant l'os dans sa main, un regard complexe traversa ses yeux. Sa main dro
 
 La main droite de Maître Simo trembla et une lutte intérieure se lut dans ses yeux. La petite flamme entre ses sourcils vacilla violemment.
 
-« Nous pouvons lui rendre notre culture... Rentrons à la maison... D'accord... »
+« Nous pouvons lui rendre notre cultivation... Rentrons à la maison... D'accord... »
 
 À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie : la Nuit Brisée, le Temps Fluide... et enfin, le sortilège dao qu'il avait compris dans le Royaume Dao, au sein du Lit Défiant le Ciel !
 

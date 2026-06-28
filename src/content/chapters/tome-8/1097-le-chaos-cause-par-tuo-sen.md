@@ -12,19 +12,19 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Le nouveau Dieu Empereur Azure Dragon n'a pas écouté mes conseils et est allé inspecter le Royaume Céleste. Après cela, il n'est jamais revenu... »
 
-« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance de Culture a fait son apparition, avec l'ombre du Royaume du Vide Brillant derrière elle. »
+« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance de Cultivation a fait son apparition, avec l'ombre du Royaume du Vide Brillant derrière elle. »
 
-« Cette Alliance de Culture a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace du Dieu Empereur Azure Dragon, mais ma troisième Affliction Céleste était arrivée bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance de Culture a lancé son attaque contre les Quatre Sectes Divins... »
+« Cette Alliance de Cultivation a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace du Dieu Empereur Azure Dragon, mais ma troisième Affliction Céleste était arrivée bien avant l'heure. J'ai dû entrer en cultivation en vase clos, mais c'est précisément à ce moment-là que l'Alliance de Cultivation a lancé son attaque contre les Quatre Sectes Divins... »
 
 « Le Dieu Empereur Tortue Noire nous a trahis ; bien que je l'aie gravement blessé, je n'ai pu le tuer à cause de ma troisième Affliction Céleste... »
 
 « Le Dieu Empereur Tigre Blanc est mort au combat, et même son cadavre a été pillé... »
 
-« Ce qui était ridicule, c'est que bien que l'Alliance de Culture ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant ! »
+« Ce qui était ridicule, c'est que bien que l'Alliance de Cultivation ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant ! »
 
 « Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Ils avaient utilisé une méthode inconnue pour pousser le Dieu Empereur Tortue Noire à nous trahir, puis ils avaient découvert le secret de mes Quatre Sectes Divins ! »
 
-« Cependant, le Royaume du Vide Brillant ne connaissait que l'existence du secret ; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Dieu Empereurs, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
+« Cependant, le Royaume du Vide Brillant ne connaissait que l'existence du secret ; il ignorait l'emplacement de cette planète de cultivation. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de cultivation au hasard. De plus, la planète avait été transformée par les quatre premiers Dieu Empereurs, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 
 « Selon l'accord des quatre premiers Dieu Empereurs, seule chaque génération du Dieu Empereur Vermillion Bird peut connaître la position exacte de la planète ! »
 
@@ -40,7 +40,7 @@ La silhouette de l'homme d'âge moyen s'estompa progressivement, mais sa voix co
 
 « Wang Lin, retiens bien ce que je vais te dire. C'est le secret le plus profond de mes Quatre Sectes Divins. J'ignore pourquoi les premiers Dieu Empereurs y accordaient une telle importance, mais garde-le précieusement et transmets-le... »
 
-« L'ensemble des Quatre Sectes Divins provient d'une seule planète. Tu peux voir cela comme une porte... Cette porte a été divisée en quatre parties par les quatre premiers Dieu Empereurs, et elles furent cachées au sein de quatre planètes de culture. Elles étaient dispersées dans différentes régions. Lorsque l'Ancien Royaume Céleste disparut et que le monde fut divisé en quatre Royaumes Célestes, les quatre planètes finirent chacune dans un système stellaire différent... »
+« L'ensemble des Quatre Sectes Divins provient d'une seule planète. Tu peux voir cela comme une porte... Cette porte a été divisée en quatre parties par les quatre premiers Dieu Empereurs, et elles furent cachées au sein de quatre planètes de cultivation. Elles étaient dispersées dans différentes régions. Lorsque l'Ancien Royaume Céleste disparut et que le monde fut divisé en quatre Royaumes Célestes, les quatre planètes finirent chacune dans un système stellaire différent... »
 
 « Je n'ai révélé qu'une seule de ces planètes au Royaume du Vide Brillant, qui est ta planète natale, la planète Suzaku... Quant aux trois autres emplacements, j'ignore s'ils ont changé ou comment ils s'appellent désormais, mais retiens bien ces trois cartes stellaires... »
 
@@ -84,7 +84,7 @@ Le Maître Flemespark fronça les sourcils et pointa impitoyablement l'espace en
 
 Le Maître Flemespark tonna : « Li Yunzi, parle clairement ! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade ? »
 
-« L'Empereur Divin Vermillion Bird est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Li Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur de Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
+« L'Empereur Divin Vermillion Bird est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de cultivation de Li Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur de Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
 Pour diverses raisons, le poison en lui était devenu extrêmement virulent.
 

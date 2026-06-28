@@ -88,7 +88,7 @@ La puissance des étoiles, celle d'innombrables planètes et de multiples faille
 
 Ce système stellaire n'existait pas naturellement ; quelqu'un avait utilisé un sortilège puissant pour créer cet espace autour de la formation de scellement, l'intégrant ainsi à celle-ci. De cette façon, chaque fois qu'un être mourait à l'intérieur du Royaume Scellé, son Dao était absorbé pour nourrir les plantes.
 
-C'était une véritable culture du Dao !
+C'était une véritable cultivation du Dao !
 
 Ce processus durait depuis des éons, absorbant constamment l'intention daoïste de tous ceux qui périssaient dans le Royaume Scellé.
 
@@ -120,4 +120,4 @@ Au total, 98 ans passèrent...
 
 « Tu m'as autrefois demandé si le feu brûlerait mon doigt. Maintenant, je peux te répondre... Non... » Une voix antique résonna dans le système stellaire...
 
-« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume de la Tribulation du Vide et d'interrompre sa culture. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »
+« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume de la Tribulation du Vide et d'interrompre sa cultivation. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »

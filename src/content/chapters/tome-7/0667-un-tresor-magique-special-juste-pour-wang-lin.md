@@ -12,7 +12,7 @@ Un rayon de lumière rouge traversait le domaine nord du système stellaire d'Al
 
 Une femme se trouvait à l'intérieur du rayon de lumière rouge. En contemplant ce système stellaire inconnu, elle ne ressentait aucun sentiment d'appartenance.
 
-« La planète aux reflets de verre est la planète Thousand Illusion. C'est l'une des cinq étoiles principales du domaine nord du système stellaire d'Allheaven. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de culture de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.
+« La planète aux reflets de verre est la planète Thousand Illusion. C'est l'une des cinq étoiles principales du domaine nord du système stellaire d'Allheaven. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de cultivation de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.
 
 « Désormais, en plus d'être ma disciple, tu seras aussi ma fille adoptive. Une fois de retour sur la planète Thousand Illusion, je pratiquerai le rituel d'échange de sang pour transformer ta lignée. À partir de ce jour, tu ne porteras plus le nom de Liu Mei, mais celui de Huan Mei ! Es-tu d'accord ? »
 
@@ -20,7 +20,7 @@ Les yeux du vieil homme brillaient alors qu'il regardait la femme. Il était tr�
 
 La femme réfléchit. Son maître lui en avait déjà parlé durant le voyage. Après un moment de réflexion, elle hocha la tête. « Tout se fera selon la volonté du Maître. »
 
-Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te mènera certainement au stade de cultivatrice de deuxième étape. Tu dépasseras même mon propre niveau de culture de Nirvana Scryer ! »
+Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te mènera certainement au stade de cultivatrice de deuxième étape. Tu dépasseras même mon propre niveau de cultivation de Nirvana Scryer ! »
 
 Le rayon de lumière rouge s'élança rapidement, ne laissant derrière lui que l'écho de ses rires alors qu'il fonçait droit vers la brillante planète Thousand Illusion.
 
@@ -36,7 +36,7 @@ Sur la planète Ran Yun, une multitude de jades célestes flottaient autour de W
 
 Après une grande inspiration pour dévorer le reste de l'énergie spirituelle céleste, une grande quantité de jades célestes fut réduite en poussière. Wang Lin sembla remarquer quelque chose à l'extérieur ; il se leva et sortit.
 
-La jeune fille sous la pierre était toujours en pleine culture. Elle exhalait deux volutes de gaz blanc qui encerclèrent son corps avant de se dissiper progressivement.
+La jeune fille sous la pierre était toujours en pleine cultivation. Elle exhalait deux volutes de gaz blanc qui encerclèrent son corps avant de se dissiper progressivement.
 
 Elle ouvrit les yeux, fixa le ciel et murmura : « Mon talent est insuffisant, mais avec de l'assiduité, j'atteindrai un jour le stade intermédiaire de l'Âme Naissante. »
 
@@ -48,7 +48,7 @@ L'homme avait les mains derrière le dos. Il fixait l'entrée comme s'il attenda
 
 Remarquant le regard de la jeune fille sous le rocher, il lui jeta un coup d'œil distrait avant de ne plus lui prêter attention.
 
-La jeune fille fronça encore plus les sourcils. Elle ne parvenait pas à percer le niveau de culture de cet homme, mais elle sentait qu'il était quelqu'un qu'elle ne devait absolument pas provoquer. Une sensation de péril émanait jusque dans son âme.
+La jeune fille fronça encore plus les sourcils. Elle ne parvenait pas à percer le niveau de cultivation de cet homme, mais elle sentait qu'il était quelqu'un qu'elle ne devait absolument pas provoquer. Une sensation de péril émanait jusque dans son âme.
 
 Un éclat de lumière jaillit à l'entrée de l'une des pièces et une silhouette en sortit. C'était Wang Lin.
 
@@ -124,10 +124,10 @@ Wang Lin le regarda froidement et passa devant lui. L'homme en violet laissa éc
 
 Lorsque la brume bleue se dissipa, il ne restait aucune trace de l'affrontement. Sun Ling n'avait rien perçu à l'intérieur du brouillard. Elle poussa un soupir et reprit sa position de lotus sous le rocher.
 
-« Il lui sera très difficile de survivre après avoir été emmené par ce Senior... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa culture. Elle avait accompli son devoir.
+« Il lui sera très difficile de survivre après avoir été emmené par ce Senior... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa cultivation. Elle avait accompli son devoir.
 
-Après avoir atteint la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon des Trésors Entiers sur le côté est. L'homme en violet afficha un sourire amer et dit : « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
+Après avoir atteint la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon des Trésors Entiers sur le côté est. L'homme en violet afficha un sourire amer et dit : « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de cultivation. Cependant, lorsqu'il avait testé cet homme, la cultivation de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
 
 Mais ce n'était pas le point le plus important. Il ressentait une assurance et une intention meurtrière terrifiante émaner de Wang Lin. Une telle aura ne pouvait provenir que d'une personne ayant tué des adversaires de même niveau, et pas une seule fois ! C'était la seule façon d'acquérir une telle confiance en soi.
 
-Ce Sun Xi était l'un des trois cultivateurs Ascendants de la planète Ran Yun. Il était l'ancêtre de la famille Sun, un cultivateur Ascendant au stade initial. Après avoir terminé sa culture au fond des mers, il s'était précipité vers cette ville.
+Ce Sun Xi était l'un des trois cultivateurs Ascendants de la planète Ran Yun. Il était l'ancêtre de la famille Sun, un cultivateur Ascendant au stade initial. Après avoir terminé sa cultivation au fond des mers, il s'était précipité vers cette ville.

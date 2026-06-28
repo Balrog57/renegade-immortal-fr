@@ -64,7 +64,7 @@ C'est parce que Wang Lin connaissait extrêmement bien le Domaine Ji qu'il ne pa
 
 Après tout, il avait été autrefois le maître du Domaine Ji !
 
-En conséquence, cet éclair rouge ne détruisit pas immédiatement son âme originelle, lui laissant une chance de résister. Si cela avait été quelqu'un d'autre, même avec un niveau de culture supérieur à celui de Wang Lin, cette personne serait sans aucun doute morte !
+En conséquence, cet éclair rouge ne détruisit pas immédiatement son âme originelle, lui laissant une chance de résister. Si cela avait été quelqu'un d'autre, même avec un niveau de cultivation supérieur à celui de Wang Lin, cette personne serait sans aucun doute morte !
 
 Fort heureusement, Wang Lin possédait une vaste quantité d'énergie originelle non encore absorbée dans son corps. Avec une persévérance sans faille, il enveloppa sans cesse l'éclair rouge d'énergie pour compenser la vitesse à laquelle celle-ci se désintégrait.
 

@@ -64,7 +64,7 @@ Simultanément, les quelque cent disciples du Secte Divine de l'Oiseau Vermillon
 
 Dès que leurs âmes originelles apparurent, une chaleur intense se fit sentir. Ce qui stupéfia Big Head et les autres, fut qu'aussitôt manifestées, ces âmes commencèrent à fusionner.
 
-Il faut savoir que l'âme originelle est l'essence même de la culture d'un individu. En raison des différences de domaines, une telle fusion était normalement impossible ; toute tentative de fusion ne serait qu'une dévoration. À moins de posséder un trésor défiant les cieux, deux âmes originelles ne pouvaient coexister.
+Il faut savoir que l'âme originelle est l'essence même de la cultivation d'un individu. En raison des différences de domaines, une telle fusion était normalement impossible ; toute tentative de fusion ne serait qu'une dévoration. À moins de posséder un trésor défiant les cieux, deux âmes originelles ne pouvaient coexister.
 
 Pourtant, ces cent âmes fusionnèrent rapidement pour former un géant de flammes de plusieurs centaines de pieds de haut. Le géant poussa un rugissement et chargea l'Ancien Démon Ta Jia !
 

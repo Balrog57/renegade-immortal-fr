@@ -8,19 +8,19 @@ slug: changement-dexpression
 ---
 Un cultivateur du troisième niveau qui cherchait à tuer un simple cultivateur Briseur de Nirvana avait lui-même subi une légère blessure infligée par ce dernier. Wang Lin savait que si la nouvelle s'ébruitait, elle suffirait à stupéfier le Domaine Scellé et le Domaine Extérieur !
 
-Le troisième niveau était un stade de culture légendaire. Dans le Domaine Scellé, les cultivateurs du troisième niveau étaient d'une rareté extrême. Même dans le Domaine Extérieur, ils étaient exceptionnels. Un cultivateur du troisième niveau pouvait balayer le monde et oserait même défier le Ciel lui-même !
+Le troisième niveau était un stade de cultivation légendaire. Dans le Domaine Scellé, les cultivateurs du troisième niveau étaient d'une rareté extrême. Même dans le Domaine Extérieur, ils étaient exceptionnels. Un cultivateur du troisième niveau pouvait balayer le monde et oserait même défier le Ciel lui-même !
 
 Ils étaient comme des empereurs parmi les cultivateurs. Tous les autres n'étaient que des fourmis face à eux, prêtes à être anéanties d'un simple geste !
 
 Un cultivateur Briseur de Nirvana pouvait être un enseignant au sein d'une secte, et un cultivateur du Fléau Céleste pouvait être un Grand Ancien, mais devant un cultivateur du troisième niveau, ils n'étaient que des insectes que l'on pouvait écraser à sa guise !
 
-C'était cela la force, la cruelle vérité du monde de la culture. La loi de la jungle !
+C'était cela la force, la cruelle vérité du monde de la cultivation. La loi de la jungle !
 
 Si Wang Lin avait été un cultivateur du troisième niveau, Daoist Water aurait fait preuve d'une prudence extrême quant à son désir de le tuer. Il n'aurait probablement même pas choisi de combattre, préférant inviter Wang Lin en tant qu'hôte prestigieux. Les deux se seraient alors assis pour échanger ce qu'ils désiraient.
 
 Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer des Nuages et le Tout-Ciel. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect ; aucune des deux parties n'aurait provoqué l'autre.
 
-La force était tout, et elle était la clé de la survie dans ce monde impitoyable de la culture !
+La force était tout, et elle était la clé de la survie dans ce monde impitoyable de la cultivation !
 
 « Je t'ai sous-estimé, petite fourmi, mais plus tu lutteras, plus ce vieil homme aura envie de te tuer ! » La voix antique résonna à travers le monde comme un coup de tonnerre. La brume tourbillonna violemment alors qu'un jeune homme vêtu d'une robe taoïste en émergea !
 

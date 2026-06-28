@@ -108,7 +108,7 @@ Alors que la voix retentissait, les ondulations sur la rue s'estompèrent. Une f
 
 Cependant, au moment où les images de l'extérieur s'effacèrent, Wang Lin vit que cent personnes parmi les dix mille avaient avalé une pilule. Leurs corps s'effondrèrent et des âmes originelles semblables à de la fumée volèrent vers la rue scellée.
 
-Simultanément, cent ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de culture d'Exalt Émérite et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
+Simultanément, cent ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de cultivation d'Exalt Émérite et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
 
 Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il observait les cent figures se précipiter vers lui. Son attention se porta sur le doigt qui s'était reformé et flottait là, immobile.
 

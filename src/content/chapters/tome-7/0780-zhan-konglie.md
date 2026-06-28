@@ -26,7 +26,7 @@ Ils voyageaient seuls, en groupes de deux ou trois, ou accompagnés de leurs mem
 
 Bien que les expressions des cultivateurs fussent diverses, l'excitation subtile qui brillait dans leurs yeux était singulièrement similaire.
 
-Ces cultivateurs en mouvement remarquèrent également Wang Lin et Li Yuan. Lorsque certains d'entre eux comprirent que le niveau de culture de Wang Lin dépassait celui de l'Ascendant, leurs regards se firent vigilants et ils les contournèrent tous, refusant de provoquer le moindre problème.
+Ces cultivateurs en mouvement remarquèrent également Wang Lin et Li Yuan. Lorsque certains d'entre eux comprirent que le niveau de cultivation de Wang Lin dépassait celui de l'Ascendant, leurs regards se firent vigilants et ils les contournèrent tous, refusant de provoquer le moindre problème.
 
 « Frère Xu, quelque chose ne va pas. Se pourrait-il qu'un événement majeur soit en train de se produire ? » Li Yuan commença à s'inquiéter. Il avait croisé bien trop de cultivateurs en chemin.
 
@@ -52,7 +52,7 @@ Wang Lin garda un regard calme tandis qu'il observait silencieusement ces éclai
 
 Ces rayons d'énergie d'épée ne ralentirent pas et continuèrent leur course dans le vide. Cependant, juste au moment où ils étaient sur le point de disparaître, l'un d'eux tourna soudainement pour foncer vers Wang Lin.
 
-Simultanément, tous les rayons d'énergie d'épée s'arrêtèrent, se transformant en divers cultivateurs masculins et féminins. Tous possédaient un niveau de culture supérieur à celui de l'Ascendant. La plupart étaient au stade Illusoire Yin, et seuls quelques-uns atteignaient le stade Corporel Yang.
+Simultanément, tous les rayons d'énergie d'épée s'arrêtèrent, se transformant en divers cultivateurs masculins et féminins. Tous possédaient un niveau de cultivation supérieur à celui de l'Ascendant. La plupart étaient au stade Illusoire Yin, et seuls quelques-uns atteignaient le stade Corporel Yang.
 
 Une fois leurs silhouettes révélées, tous fixèrent le rayon d'énergie qui volait vers Wang Lin, les yeux emplis de perplexité.
 
@@ -72,7 +72,7 @@ Dès qu'il eut parlé, tous ceux qui l'entendirent furent stupéfaits et leurs r
 
 Zhan Konglie était très célèbre, et certains cultivants environnants le reconnurent naturellement, même ceux qui ne percevaient pas la puissante énergie originelle émanant de lui. Puis, en entendant ses paroles, ils l'identifièrent aussitôt comme étant Zhan Konglie, venu du domaine Sud.
 
-« Qui est cet homme ? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior" ?! »
+« Qui est cet homme ? Son niveau de cultivation semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior" ?! »
 
 « J'ai entendu dire que Zhan Konglie est déjà devenu un messager du Temple Céleste du Tonnerre. S'il appelle quelqu'un ainsi, cet homme pourrait-il être un Ancien du Temple Céleste du Tonnerre ? »
 
@@ -80,13 +80,13 @@ Diverses pensées traversèrent l'esprit des cultivateurs alentour.
 
 En particulier, les dix personnes accompagnant Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Senior », leur curiosité fut piquée au vif.
 
-Il faut dire que Zhan Konglie possédait l'un des niveaux de culture les plus élevés parmi eux. Ils savaient également qu'il était d'une arrogance extrême. Ce n'était pas une simple façade, mais un trait de caractère profondément ancré en lui.
+Il faut dire que Zhan Konglie possédait l'un des niveaux de cultivation les plus élevés parmi eux. Ils savaient également qu'il était d'une arrogance extrême. Ce n'était pas une simple façade, mais un trait de caractère profondément ancré en lui.
 
 Même les Anciens de sa propre lignée ne recevaient souvent pas son respect. Il était extrêmement rare qu'il se montre déférent envers qui que ce soit.
 
-Le respect de Zhan Konglie était sincère et venait du plus profond de son être. En voyant Wang Lin, il perçut naturellement sa culture au stade Corporel Yang et ressentit une pointe de mélancolie.
+Le respect de Zhan Konglie était sincère et venait du plus profond de son être. En voyant Wang Lin, il perçut naturellement sa cultivation au stade Corporel Yang et ressentit une pointe de mélancolie.
 
-« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
+« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa cultivation au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
 
 Lorsqu'il était reparti autrefois, il était resté mélancolique et éprouvait une immense envie envers Shengong Hu. Après son retour chez lui, il avait hésité, se demandant s'il n'aurait pas dû faire comme Shengong Hu et saisir cette chance inouïe.
 

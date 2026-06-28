@@ -12,7 +12,7 @@ Wang Lin évoluait dans le vide imprégné des lois du Continent Astral Immortel
 
 Au cours de cette année, de nombreux génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng !
 
-Cette année-là, l’Empereur Céleste qui régnait sur les 72 continents sortit de sa culture en isolement après des dizaines de milliers d'années. La moitié des continents fut enveloppée d'une énergie céleste infinie.
+Cette année-là, l’Empereur Céleste qui régnait sur les 72 continents sortit de sa cultivation en isolement après des dizaines de milliers d'années. La moitié des continents fut enveloppée d'une énergie céleste infinie.
 
 Cette même année, certains cultivateurs du monde des grottes s'étaient discrètement réincarnés, mais nul ne savait où ils étaient allés.
 
@@ -44,7 +44,7 @@ C'était également là que l'on apparaissait après avoir quitté le monde des 
 
 Yun Yifeng, Fan Shanlu, ou quiconque sortait du monde des grottes avec ses lignées du Continent Astral Immortel réapparaissait en ce lieu. Ils contemplaient leur patrie, à la fois familière et étrangère, avant de partir.
 
-Un jour de la sixième année, si le regard pouvait percer l'épaisse couche de brume, on entrevoyait les divers pavillons de la Secte des Sept Dao. Parmi eux se dressait un immense pavillon qui servait de salle principale à la secte. C'était aussi l'endroit où le Souverain Céleste aux Sept Couleurs pratiquait autrefois sa culture en isolement.
+Un jour de la sixième année, si le regard pouvait percer l'épaisse couche de brume, on entrevoyait les divers pavillons de la Secte des Sept Dao. Parmi eux se dressait un immense pavillon qui servait de salle principale à la secte. C'était aussi l'endroit où le Souverain Céleste aux Sept Couleurs pratiquait autrefois sa cultivation en isolement.
 
 Ce jour-là, devant le pavillon niché dans la montagne brumeuse, une silhouette apparut lentement. C'était un jeune homme vêtu de noir qui, malgré son apparence juvénile, portait dans ses yeux le poids d'innombrables années.
 

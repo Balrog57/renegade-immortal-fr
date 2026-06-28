@@ -84,7 +84,7 @@ Wang Lin éclata de rire en regardant Liu Jinbiao, son rire étant plus joyeux q
 
 « Peu importe, suis-moi. Bien sûr que je te protégerai ! » Wang Lin agita sa manche et une brise légère emporta lui et Liu Jinbiao vers le ciel.
 
-« Je me rends à la Secte Dong Lin, viens avec moi. Maintenant que tes souvenirs sont revenus, tu retrouveras rapidement ton niveau de culture précédent. »
+« Je me rends à la Secte Dong Lin, viens avec moi. Maintenant que tes souvenirs sont revenus, tu retrouveras rapidement ton niveau de cultivation précédent. »
 
 Liu Jinbiao hésita, puis murmura : « Maître, dans mes souvenirs de cette vie, il semble que j'aie rencontré… Xu Liguo. »
 

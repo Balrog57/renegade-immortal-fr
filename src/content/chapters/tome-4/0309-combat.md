@@ -86,7 +86,7 @@ Le sol se mit à craqueler sous l'effet des fissures spatiales, conférant au ja
 
 La puissance combinée de l'effondrement du ciel et de la déchirure de la terre aurait pu blesser gravement un cultivateur de la Formation de l'Âme au stade intermédiaire.
 
-« Tu es ingrate, injuste et infidèle ! Quel genre de Dao cultives-tu donc ?! Ton cœur Dao est instable ! Je veux voir comment ton niveau de culture évoluera à l'avenir ! »
+« Tu es ingrate, injuste et infidèle ! Quel genre de Dao cultives-tu donc ?! Ton cœur Dao est instable ! Je veux voir comment ton niveau de cultivation évoluera à l'avenir ! »
 
 Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Ceng Niu possède une technique aussi terrifiante.
 

@@ -36,7 +36,7 @@ Ce ressentiment était la source de son massacre. C'était sa haine envers le Ci
 
 La Rivière Invocatrice était tombée aux mains du Royaume Extérieur à deux reprises. De nombreux cultivateurs de ce royaume y étaient stationnés.
 
-Ces cultivateurs étaient d'une cruauté extrême. Ils avaient pillé d'immenses quantités de ressources, et de nombreuses cultivatrices étaient capturées pour servir de fours de culture. Le sang d'innombrables cultivateurs était répandu à travers ce système stellaire.
+Ces cultivateurs étaient d'une cruauté extrême. Ils avaient pillé d'immenses quantités de ressources, et de nombreuses cultivatrices étaient capturées pour servir de fours de cultivation. Le sang d'innombrables cultivateurs était répandu à travers ce système stellaire.
 
 Dès que Wang Lin pénétra dans la Rivière Invocatrice, une odeur de sang entêtante lui monta au nez. L'intention meurtrière dans ses yeux s'intensifia. Sa sixième essence, l'essence du massacre, jaillit de son corps. D'innombrables flocons de neige rouges, tantôt réels, tantôt illusoires, apparurent autour de lui.
 
@@ -50,7 +50,7 @@ Cette aura appartenait à un cultivateur du stade avancé du Vide Spirituel, mai
 
 D'un pas assuré, Wang Lin ignora l'aura du cultivateur du troisième niveau et arriva devant une planète. Cette dernière abritait des milliers de cultivateurs du Royaume Extérieur.
 
-La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abusaient de leurs fours de culture. D'autres riaient sauvagement en massacrant des mortels, tandis que d'autres encore dévoraient la culture de cultivateurs du Royaume Intérieur capturés.
+La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abusaient de leurs fours de cultivation. D'autres riaient sauvagement en massacrant des mortels, tandis que d'autres encore dévoraient la cultivation de cultivateurs du Royaume Intérieur capturés.
 
 Wang Lin percevait tout cela avec une clarté absolue grâce à l'extension de son Sens Divin.
 
@@ -60,7 +60,7 @@ Ses yeux brillaient d'une intensité féroce, mêlés à la lumière rouge qui l
 
 Soudain, un grondement fracassant ébranla l'astre. Des masses de poussière s'élevèrent dans les airs, enveloppant la planète entière.
 
-Simultanément, des cris terrifiants jaillirent de la surface. Les nombreux cultivateurs du Royaume Extérieur qui étaient en pleine culture ouvrirent les yeux. Terrifiés, ils s'élancèrent dans les airs pour comprendre ce qui se passait.
+Simultanément, des cris terrifiants jaillirent de la surface. Les nombreux cultivateurs du Royaume Extérieur qui étaient en pleine cultivation ouvrirent les yeux. Terrifiés, ils s'élancèrent dans les airs pour comprendre ce qui se passait.
 
 Dès qu'ils apparurent dans le ciel, ils virent d'innombrables tempêtes de poussière s'élever vers les cieux. Leur vision devint floue, donnant l'impression que la fin du monde était arrivée !
 
@@ -72,7 +72,7 @@ Une pression écrasante les enveloppa, formant une force de suppression absolue.
 
 « Serait-ce un cultivateur du troisième niveau du Royaume Intérieur ? Mais tous leurs experts de ce niveau sont à Allheaven ! Comment quelqu'un a-t-il pu franchir toutes les barrières pour arriver ici ?! »
 
-De nombreux cultivateurs, qu'ils soient en train d'utiliser des fours de culture ou d'exploiter des mortels et des captifs du Royaume Intérieur, furent frappés de stupeur. Tremblants de sueur froide, ils s'envolèrent vers les cieux.
+De nombreux cultivateurs, qu'ils soient en train d'utiliser des fours de cultivation ou d'exploiter des mortels et des captifs du Royaume Intérieur, furent frappés de stupeur. Tremblants de sueur froide, ils s'envolèrent vers les cieux.
 
 À peine arrivés en altitude, ils furent confrontés à une scène apocalyptique !
 
@@ -90,7 +90,7 @@ La Marque du Karma était terrifiante. Dès son apparition, le ciel changeait de
 
 La paume se referma en un poing devant les milliers de cultivateurs confus. Le poing ne s'abattit pas, mais se rétracta brusquement. Dans ce mouvement de retrait, les hurlements misérables de ces milliers d'individus retentirent simultanément.
 
-Ces cris déchirants se propagèrent sur toute la planète de culture jusqu'à former une puissante onde de choc. Les corps des milliers de cultivateurs en plein ciel s'effondrèrent tous. Leurs têtes furent tranchées de leurs corps et s'envolèrent vers les cieux.
+Ces cris déchirants se propagèrent sur toute la planète de cultivation jusqu'à former une puissante onde de choc. Les corps des milliers de cultivateurs en plein ciel s'effondrèrent tous. Leurs têtes furent tranchées de leurs corps et s'envolèrent vers les cieux.
 
 Les têtes volèrent vers Wang Lin tels des rayons de lumière, le suivant dans son sillage.
 

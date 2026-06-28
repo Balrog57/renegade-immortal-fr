@@ -38,7 +38,7 @@ Il ne s'agissait pas de la totalité de son âme originelle. Avec sa ruse, il n'
 
 Toute vie sur la planète, à l'exception de quelques rares élus, s'éteindrait !
 
-L'impact sur le Cristal de Planète de Culture serait inimaginable. C'était l'une des principales préoccupations de Wang Lin qui l'avait empêché d'attaquer immédiatement.
+L'impact sur le Cristal de Planète de Cultivation serait inimaginable. C'était l'une des principales préoccupations de Wang Lin qui l'avait empêché d'attaquer immédiatement.
 
 Voyant que Liu Qingyun choisissait l'explosion, Wang Lin resta serein et murmura doucement : « Sortilège Céleste, Arrête ! » Instantanément, le sortilège apparut. Sa puissance avait été décuplée après y avoir infusé l'énergie originelle céleste de Qing Shui. L'âme originelle de Liu Qingyun, en pleine explosion, fut figée sur place.
 
@@ -74,13 +74,13 @@ Ta Shan et le garçon à la grosse tête suivirent Wang Lin. Lei Ji tenait la pe
 
 Simultanément, le cœur lui serrait ; il pointa sa poitrine de la main droite. Le sang jaillit de son cœur pour remplir la petite fiole.
 
-Wang Lin avait sauvé cet ancêtre du Clan des Démons Géants pour la trace d'aura de l'Ancien Dieu présente dans son sang. Bien que le niveau de culture de Wang Lin fût plus élevé lors de son retour dans le Système Stellaire de l'Alliance, le danger qu'il ressentait augmentait également.
+Wang Lin avait sauvé cet ancêtre du Clan des Démons Géants pour la trace d'aura de l'Ancien Dieu présente dans son sang. Bien que le niveau de cultivation de Wang Lin fût plus élevé lors de son retour dans le Système Stellaire de l'Alliance, le danger qu'il ressentait augmentait également.
 
 Il devait affiner ses sorts sur la planète Suzaku, et les premiers seraient ses sorts de l'Ancien Dieu ! Grâce à ce sang, Wang Lin serait capable d'utiliser certains de ces pouvoirs anciens.
 
 Même son corps originel pourrait en bénéficier.
 
-À cet instant, une mer de flammes s'étendait dans la partie est lointaine du Système Stellaire de l'Alliance. Au cœur de cette mer brûlante se trouvait une planète entièrement rouge, recouverte de flammes comme s'il s'agissait d'une planète de culture en combustion constante.
+À cet instant, une mer de flammes s'étendait dans la partie est lointaine du Système Stellaire de l'Alliance. Au cœur de cette mer brûlante se trouvait une planète entièrement rouge, recouverte de flammes comme s'il s'agissait d'une planète de cultivation en combustion constante.
 
 Cette planète était nommée la Planète du Saint Vermillon !
 
@@ -100,4 +100,4 @@ Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pa
 
 Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs d'Allheaven sont redoutables. »
 
-Le dernier vieil homme dit calmement : « Voyons comment le plan de l'Alliance de Culture va se dérouler. Il devrait donner une leçon profonde aux cultivateurs d'Allheaven. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »
+Le dernier vieil homme dit calmement : « Voyons comment le plan de l'Alliance de Cultivation va se dérouler. Il devrait donner une leçon profonde aux cultivateurs d'Allheaven. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »

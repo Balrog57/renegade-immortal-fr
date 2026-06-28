@@ -36,7 +36,7 @@ Traquant les ondulations laissées par l'évasion de la femme, Wang Lin fusionna
 
 La situation était l'exact opposé de ce qui s'était produit auparavant : de proie, il était devenu chasseur. La femme en blanc fuyait dans la panique, tandis que Wang Lin était à ses trousses !
 
-« La culture de cette femme est étrange. Bien qu'elle ressemble à un avatar de projection, elle possède chair et sang. Si c'est le cas, elle doit absolument mourir ! Si je ne profite pas de sa blessure pour l'éliminer, cela me causera des ennuis dans le futur ! »
+« La cultivation de cette femme est étrange. Bien qu'elle ressemble à un avatar de projection, elle possède chair et sang. Si c'est le cas, elle doit absolument mourir ! Si je ne profite pas de sa blessure pour l'éliminer, cela me causera des ennuis dans le futur ! »
 
 « De plus, elle cache sûrement un secret. Le sort qu'elle vient d'utiliser invoquait manifestement la puissance de son corps original. Si mes sorts ne s'étaient pas renforcés lors de mon passage au Clan de la Soie Bleue, je serais mort ! Cette femme connaît aussi le Système Stellaire Antique mieux que moi ; je dois l'abattre au plus vite ! Si elle s'enfuit dans un lieu où je ne peux la trouver, tout cela n'aura servi à rien ! »
 
@@ -70,7 +70,7 @@ Alors que l'aura laiteuse enveloppait son corps, le sang cessa de couler de sa b
 
 « Si cette femme peut devenir une âme dans mon Monde du Vent et de la Pluie... » Le cœur de Wang Lin battait la chamade. Dès que la femme disparut, il s'évanouit presque simultanément pour reprendre la chasse !
 
-Dans le domaine nord-ouest du Système Stellaire Antique se trouvait une planète de culture. C'était là le fief du Clan des Scorpions Démoniaques. Bien qu'il ne fût pas un grand clan, ils étaient célèbres pour leur cruauté !
+Dans le domaine nord-ouest du Système Stellaire Antique se trouvait une planète de cultivation. C'était là le fief du Clan des Scorpions Démoniaques. Bien qu'il ne fût pas un grand clan, ils étaient célèbres pour leur cruauté !
 
 Des ondulations résonnèrent aux abords d'une planète dans le domaine stellaire du Clan des Scorpions Démoniaques. La femme en blanc apparut, une traînée de sang coulant au coin de sa bouche. Elle n'hésita pas un instant à fusionner avec le monde pour fuir.
 
@@ -84,7 +84,7 @@ Elle poussa un cri misérable et recula précipitamment tout en lançant un rega
 
 « Où comptes-tu fuir ?! »
 
-Voyant qu'elle allait être capturée, elle mordit le bout de sa langue et cracha un jet de sang vers l'aura laiteuse. Un rugissement fracassant retentit, suivi d'un impact puissant qui projeta son corps en arrière, lui permettant d'échapper à la poigne de Wang Lin. Elle chargea alors vers la planète de culture située en contrebas !
+Voyant qu'elle allait être capturée, elle mordit le bout de sa langue et cracha un jet de sang vers l'aura laiteuse. Un rugissement fracassant retentit, suivi d'un impact puissant qui projeta son corps en arrière, lui permettant d'échapper à la poigne de Wang Lin. Elle chargea alors vers la planète de cultivation située en contrebas !
 
 Simultanément, elle poussa un cri lugubre :
 

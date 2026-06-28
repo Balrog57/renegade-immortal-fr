@@ -10,7 +10,7 @@ Le vieil homme au visage rubicond fronça les sourcils de mécontentement et dé
 
 L'Ancien Li ouvrit les yeux et répondit d'une voix glaciale : « Ancien Ma, le patriarche m'a chargé de régler cette affaire. Si elle n'est pas traitée avec discernement, et que ce déchet tente de se suicider une seconde fois avant que ses parents ne répandent la rumeur que nous avons poussé leur enfant au suicide, cela ne serait-il pas plus embarrassant ? Si vous êtes prêt à en assumer la responsabilité, alors je vous laisserai faire. »
 
-L'homme d'âge moyen tenta rapidement d'apaiser les tensions : « Il n'est pas nécessaire de se disputer. Pourquoi ne pas le laisser devenir disciple d'abord ? Après huit ou dix ans, s'il échoue dans sa culture, nous pourrons le renvoyer sans que cela ne pose de problème. »
+L'homme d'âge moyen tenta rapidement d'apaiser les tensions : « Il n'est pas nécessaire de se disputer. Pourquoi ne pas le laisser devenir disciple d'abord ? Après huit ou dix ans, s'il échoue dans sa cultivation, nous pourrons le renvoyer sans que cela ne pose de problème. »
 
 Le vieillard en robe répliqua : « Et si les autres jeunes suivent son exemple, que ferons-nous ? »
 
@@ -24,7 +24,7 @@ Ce que l'homme d'âge moyen ignorait, c'est que le quatrième oncle de Wang Lin 
 
 Un simple morceau de métal changea le destin de Wang Lin. Lorsque la nouvelle lui parvint, il n'en crut pas ses oreilles. Il avait été accepté comme disciple pour une raison qui lui semblait totalement obscure.
 
-Deux jours plus tard, il fit ses adieux à ses parents devant la Secte Heng Yue. En voyant la joie sur leurs visages, il décida de se consacrer sérieusement à sa culture.
+Deux jours plus tard, il fit ses adieux à ses parents devant la Secte Heng Yue. En voyant la joie sur leurs visages, il décida de se consacrer sérieusement à sa cultivation.
 
 Cependant, sa perspective changea après le départ de ses parents. Il fut secrètement convoqué dans l'endroit où les disciples recevaient leurs affectations et y croisa un jeune homme au regard fuyant. Le visage de ce dernier était empreint de mépris. Il le dévisagea et ricana : « Alors, c'est toi Wang Lin, le gamin qui est devenu disciple en tentant de se suicider ? »
 

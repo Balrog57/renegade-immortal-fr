@@ -10,7 +10,7 @@ Chapitre 2063 - Dissipation du brouillard !
 
 Le Grand Empereur Gu Dao, l'être le plus puissant du Continent Astral Immortel !
 
-Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine fut repoussée, comme si elle ne pouvait supporter une telle force.
+Sa cultivation était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine fut repoussée, comme si elle ne pouvait supporter une telle force.
 
 La chevelure blanche de Wang Lin s'agita. Le doigt illusoire de Gu Dao contenait la puissance du vent, de la pluie et du tonnerre. Le tonnerre rugissait tandis que des éclairs parcouraient le doigt. Les nuages s'entrechoquaient, créant des grondements assourdissants et formant d'innombrables gouttes de pluie. Le doigt était imprégné de chaos.
 
@@ -54,7 +54,7 @@ Une chaleur extrême se propagea soudainement de la main droite de Wang Lin.
 
 « Dao de la Terre Extrême ! » Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre apparurent autour de la main droite de Wang Lin, se transformant en les Huit Dao Extrêmes de l'Ancêtre Céleste !
 
-Bien que Wang Lin n'ait pas maîtrisé l'intégralité des Huit Dao Extrêmes, le fait d'être à demi-pas du stade de Piétinement du Paradis rendait son niveau de culture proche de celui de l'Ancêtre Céleste. Par conséquent, lorsqu'il utilisait les Huit Dao Extrêmes, il pouvait atteindre une puissance similaire à celle de l'Ancêtre Céleste !
+Bien que Wang Lin n'ait pas maîtrisé l'intégralité des Huit Dao Extrêmes, le fait d'être à demi-pas du stade de Piétinement du Paradis rendait son niveau de cultivation proche de celui de l'Ancêtre Céleste. Par conséquent, lorsqu'il utilisait les Huit Dao Extrêmes, il pouvait atteindre une puissance similaire à celle de l'Ancêtre Céleste !
 
 D'innombrables anneaux de fumée apparurent devant Wang Lin. D'un revers de la main droite, il projeta cette masse d'anneaux vers la bête de brouillard à neuf têtes.
 

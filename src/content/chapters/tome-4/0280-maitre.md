@@ -20,33 +20,33 @@ Le troisième jour, Wang Lin se déguisa en cet homme et sortit de la tour de gl
 
 Wang Lin avait déjà utilisé son pouvoir de dévoreur d'âmes pour s'approprier tous les souvenirs de ce cultivateur au stade avancé de la Formation du Noyau. Au lieu de le tuer, il prit le contrôle de lui et l'enferma dans une formation, au cas où il deviendrait utile par la suite.
 
-À l'origine, avec son niveau de culture, ce cultivateur n'aurait pas eu le droit de posséder une tour de glace ; mais son oncle jouissant d'une certaine influence à Xue Yu, cette petite ville et la tour lui avaient été assignées.
+À l'origine, avec son niveau de cultivation, ce cultivateur n'aurait pas eu le droit de posséder une tour de glace ; mais son oncle jouissant d'une certaine influence à Xue Yu, cette petite ville et la tour lui avaient été assignées.
 
 À travers les souvenirs de cet homme, Wang Lin apprit que le génie de Xue Yu se nommait Red Butterfly et qu'elle était partie avec un cultivateur de Suzaku il y a quelques années.
 
 En même temps que les sept Grands Anciens partis, treize autres cultivateurs, plus âgés encore que ces derniers, s'étaient également éclipsés. Ils s'étaient rendus à Suzaku pour assister à la cérémonie d'investiture.
 
-La requête de Red Butterfly pour rejoindre Suzaku consistait à faire de Xue Yu un pays de culture de rang 5 et à leur offrir un nouveau foyer. La seconde demande avait été satisfaite ; il ne restait désormais que la première.
+La requête de Red Butterfly pour rejoindre Suzaku consistait à faire de Xue Yu un pays de cultivation de rang 5 et à leur offrir un nouveau foyer. La seconde demande avait été satisfaite ; il ne restait désormais que la première.
 
 Tous les cultivateurs de Xue Yu en étaient vaguement informés, mais grâce à l'oncle du cultivateur, cet homme en savait bien plus que la normale.
 
-Pour qu'un pays de culture de rang 4 s'élève au rang 5, un cultivateur de cette nation devait atteindre le stade de la Transformation de l'Âme.
+Pour qu'un pays de cultivation de rang 4 s'élève au rang 5, un cultivateur de cette nation devait atteindre le stade de la Transformation de l'Âme.
 
 La cérémonie d'investiture était une technique extrêmement puissante et défiant les cieux. Chaque personne n'avait droit qu'à une seule tentative, avec une très forte probabilité d'échec. Cependant, en cas de réussite, l'individu atteindrait le stade de la Transformation de l'Âme. Le seul inconvénient était que, peu importe sa longévité initiale, il ne lui resterait plus que cent ans à vivre.
 
-De plus, son niveau de culture resterait à jamais bloqué au stade initial de la Transformation de l'Âme.
+De plus, son niveau de cultivation resterait à jamais bloqué au stade initial de la Transformation de l'Âme.
 
 Il n'y avait aucun moyen d'en changer l'issue. Ils ne disposeraient que de cent ans, et une fois ce délai passé, ils mourraient.
 
 Par conséquent, c'était aussi une chance pour ceux qui étaient bloqués au stade avancé de la Formation de l'Âme. Après tout, comme il ne leur restait plus beaucoup de temps à vivre, cela valait le coup de tenter le tout pour le tout.
 
-Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'un pays de culture de rang 5 pendant un siècle. Durant ces cent ans, l'un des sept Grands Anciens ayant suivi Red Butterfly atteindrait la Transformation de l'Âme, consolidant ainsi leur statut de nation de rang 5.
+Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'un pays de cultivation de rang 5 pendant un siècle. Durant ces cent ans, l'un des sept Grands Anciens ayant suivi Red Butterfly atteindrait la Transformation de l'Âme, consolidant ainsi leur statut de nation de rang 5.
 
 C'était une promesse que Suzaku avait faite à Red Butterfly.
 
-Les quatre pays de culture de rang 4 environnants avaient tous accepté leur sort et se tenaient prêts à devenir les sujets de Xue Yu.
+Les quatre pays de cultivation de rang 4 environnants avaient tous accepté leur sort et se tenaient prêts à devenir les sujets de Xue Yu.
 
-Il s'agissait de règles imposées par l'Union de la Culture plutôt que par Suzaku. N'importe quel pays pouvait se rebeller, mais il ne pourrait rien changer, car le prix de la rébellion était l'anéantissement total.
+Il s'agissait de règles imposées par l'Union de la Cultivation plutôt que par Suzaku. N'importe quel pays pouvait se rebeller, mais il ne pourrait rien changer, car le prix de la rébellion était l'anéantissement total.
 
 Wang Lin sortit de la tour de glace et aperçut deux cultivateurs au stade de l'Établissement des Fondations à l'extérieur. L'un était un homme, l'autre une femme. Dès qu'ils virent Wang Lin, ils s'agenouillèrent pour rendre hommage à leur maître.
 
@@ -54,7 +54,7 @@ Wang Lin hocha silencieusement la tête.
 
 Il savait que cet homme avait trois disciples et que cette jeune beauté était la plus jeune. Elle était également la plus gâtée et entretenait une relation secrète avec le cultivateur dont Wang Lin usurpait l'identité.
 
-Ce genre de choses était très rare entre maîtres et disciples dans les autres pays de culture. Même si cela arrivait, ce serait un secret jalousement gardé.
+Ce genre de choses était très rare entre maîtres et disciples dans les autres pays de cultivation. Même si cela arrivait, ce serait un secret jalousement gardé.
 
 Mais dans cet étrange pays, c'était une pratique très courante. Selon les souvenirs du cultivateur, de nombreux autres membres de Xue Yu entretenaient des relations avec leurs disciples.
 
@@ -90,7 +90,7 @@ Le front du second disciple était couvert de sueur. Il prit une grande inspirat
 
 L'expression de Wang Lin restait calme, mais il parvenait secrètement à en apprendre davantage sur la technique. Selon les souvenirs du cultivateur, l'exigence pour achever la première étape consistait à insuffler neuf veines sanguines dans la fée des neiges.
 
-Alors qu'il y pensait, la disciple féminine s'approcha de lui. Elle le regarda de ses beaux yeux et murmura : « Maître, vous n'avez pas répondu à ma question d'il y a quelques jours ; ma culture rencontre ainsi des difficultés. Veuillez venir me guider ce soir. »
+Alors qu'il y pensait, la disciple féminine s'approcha de lui. Elle le regarda de ses beaux yeux et murmura : « Maître, vous n'avez pas répondu à ma question d'il y a quelques jours ; ma cultivation rencontre ainsi des difficultés. Veuillez venir me guider ce soir. »
 
 Wang Lin, encore absorbé par la question des veines sanguines, hocha simplement la tête et dit : « Parle, quel est le problème ? »
 
@@ -104,9 +104,9 @@ Wang Lin fronça les sourcils. D'un revers de manche, il recouvrit la femme de s
 
 La disciple ressentit une pression glaciale l'encercler. Son expression changea instantanément et elle s'agenouilla, terrifiée. Après un long moment, elle se redressa avec prudence, pétrifiée par la peur, ignorant ce qu'elle avait fait pour irriter ainsi son maître.
 
-À cet instant, le second disciple acheva sa culture. Il jeta un regard à la disciple mais ne dit mot. Sa main s'activa de nouveau pour former une autre sphère de sang et entamer une nouvelle fois la création des veines.
+À cet instant, le second disciple acheva sa cultivation. Il jeta un regard à la disciple mais ne dit mot. Sa main s'activa de nouveau pour former une autre sphère de sang et entamer une nouvelle fois la création des veines.
 
-Il avait fallu plusieurs heures au second disciple pour parvient à peine à placer neuf veines sanguines. La majeure partie de ce temps avait été consacrée à la culture pour stabiliser son corps.
+Il avait fallu plusieurs heures au second disciple pour parvient à peine à placer neuf veines sanguines. La majeure partie de ce temps avait été consacrée à la cultivation pour stabiliser son corps.
 
 Il était évident que la production de cette sculpture de glace l'épuisait.
 

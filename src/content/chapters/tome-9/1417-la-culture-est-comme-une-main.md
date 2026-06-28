@@ -70,7 +70,7 @@ Sur la Planète du Grand Empereur, l'expression du vieil Oiseau Vermillon était
 
 « Quatorze respirations est sa limite. Vous voyez bien que sa chair est presque détruite et que la quasi-totalité de son sang est sur le point de s'évaporer ! »
 
-Maître Simo plissa les yeux. Avec son niveau de culture, il percevait naturellement l'expression sombre du vieil Oiseau Vermillon. Il ricana intérieurement :
+Maître Simo plissa les yeux. Avec son niveau de cultivation, il percevait naturellement l'expression sombre du vieil Oiseau Vermillon. Il ricana intérieurement :
 
 « On dirait qu'un autre accident vient de se produire. Ce petit bâtard a traversé tant d'épreuves dans ce test... Il vaudrait mieux qu'il meure ici et m'épargne bien des ennuis. »
 
@@ -132,6 +132,6 @@ Wang Lin fut stupéfait mais resta silencieux.
 
 Le premier Oiseau Vermillon soupira et ferma lentement les yeux. Sa voix résonna dans le monde :
 
-« Sais-tu pourquoi les humains ont cinq doigts à chaque main ? À mon époque, il existait aussi les cinq Afflictions Célestes, mais on les appelait les Cinq Doigts Briseurs de Vide... La culture, la culture... en vérité, toi et moi ne cultivons qu'une main. La première étape est la paume, et la seconde est l'empreinte de la paume. L'empreinte est la Loi, et comme l'empreinte de chacun est unique, leurs Lois le sont aussi. »
+« Sais-tu pourquoi les humains ont cinq doigts à chaque main ? À mon époque, il existait aussi les cinq Afflictions Célestes, mais on les appelait les Cinq Doigts Briseurs de Vide... La cultivation, la cultivation... en vérité, toi et moi ne cultivons qu'une main. La première étape est la paume, et la seconde est l'empreinte de la paume. L'empreinte est la Loi, et comme l'empreinte de chacun est unique, leurs Lois le sont aussi. »
 
 « Les Cinq Doigts Briseurs de Vide ou les cinq Afflictions Célestes sont les doigts de ta paume. Si tu veux couvrir le ciel de ta main, tu dois posséder les cinq doigts. Si tu comprends cela, tu le comprendras. Sinon, tu n'auras aucune chance de briser le vide. »

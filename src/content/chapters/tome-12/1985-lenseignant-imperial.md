@@ -26,7 +26,7 @@ D'un seul pas, le palais entier sembla se superposer à une autre dimension. Cel
 
 Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyrean Gemini faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyrean Gemini maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin !
 
-Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la culture était étrange !
+Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la cultivation était étrange !
 
 Wang Lin réfléchit silencieusement, puis frappa le sol de son pied droit. Des grondements tonnantes résonnèrent et les cultivateurs environnants choisirent de battre en retraite. Ils n'étaient pas comme le clan Antique, où il n'existait pas de sectes mais seulement trois royaumes et le temple du clan Antique, où presque tous les membres vouaient une loyauté fanatique à la famille royale. Dans le clan céleste, la famille royale n'était qu'un symbole !
 
@@ -94,7 +94,7 @@ Le regard de Wang Lin se posa sur le fou comateux et, après une courte réflexi
 
 L'expression de Wang Lin resta de marbre ; il n'était nullement ému. Il se contenta de fixer froidement l'Enseignant Impérial.
 
-« L'Empereur Céleste se prépare depuis de nombreuses années pour accomplir le sortilège du Retour à l'Origine Ancestrale. Une fois réussi, il permettra à quelqu'un d'atteindre le niveau de culture de l'Ancêtre Céleste et de devenir le second Ancêtre Céleste !
+« L'Empereur Céleste se prépare depuis de nombreuses années pour accomplir le sortilège du Retour à l'Origine Ancestrale. Une fois réussi, il permettra à quelqu'un d'atteindre le niveau de cultivation de l'Ancêtre Céleste et de devenir le second Ancêtre Céleste !
 
 « Je peux vous aider à obtenir ce niveau sans que l'Empereur Céleste ne s'en aperçoive ! » L'Enseignant Impérial se lécha les lèvres en observant Wang Lin.
 

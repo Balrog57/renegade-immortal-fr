@@ -12,7 +12,7 @@ Il regarda Wang Lin et joignit les mains.
 
 « Merci, Seigneur du Royaume Scellé ! » Il leva la tête et se tourna vers le Seigneur du Palais de la Punition Céleste. Ses yeux brillaient de sagesse.
 
-« Qing Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas ; ce vieil homme te transformera en marionnette de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur ! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
+« Qing Jiuyan, même en brûlant ta cultivation, tu ne pourras pas t'échapper. Tu ne mourras pas ; ce vieil homme te transformera en marionnette de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur ! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
 
 Le vieil homme en noir était livide. Bien qu'il fût un cultivateur du troisième niveau, il restait un cultivateur, et il était impuissant face à quatre adversaires. Alors que le Maître Hong Shan se rapprochait, le vieil homme en noir recula rapidement.
 
@@ -70,7 +70,7 @@ Dans la partie est de cette ville qui couvrait la majeure partie de la planète,
 
 Bien que les cultivateurs n'aient pas besoin de manger, les fruits célestes, le vin ou certains aliments mortels simples ravivaient souvent des souvenirs du passé. L'auberge était donc fréquemment pleine.
 
-En raison de la guerre avec le Royaume Extérieur, cela offrait une occasion idéale de rencontrer toutes sortes de compagnons de culture. Ils apprenaient les uns des autres, et peut-être que de simples connaissances auraient la chance de se retrouver à nouveau sur le champ de bataille.
+En raison de la guerre avec le Royaume Extérieur, cela offrait une occasion idéale de rencontrer toutes sortes de compagnons de cultivation. Ils apprenaient les uns des autres, et peut-être que de simples connaissances auraient la chance de se retrouver à nouveau sur le champ de bataille.
 
 À cet instant, plusieurs cultivateurs étaient assis à une table au nord de l'auberge. L'un d'eux était un érudit d'âge moyen qui souriait en discutant avec ses amis.
 
@@ -84,7 +84,7 @@ La femme en violet à ses côtés était plus âgée, d'un âge mûr. Les marque
 
 À côté de l'érudit se trouvait un vieil homme. Il sourit et intervint : « Dame Xu, ne croyez pas les paroles du compagnon Zhou. Chaque fois qu'il rencontre des femmes de la Rivière Invoquée comme vous, il raconte la même chose. J'ai presque développé des callosités aux oreilles à force de l'écouter ! »
 
-« C'était sur la planète Suzaku. Le Seigneur du Royaume Scellé de l'époque ne pouvait rien comparer à sa culture actuelle. Je me souviens qu'à l'époque, il n'était encore qu'un simple cultivateur au stade de l'Établissement des Fondations. Je n'aurais jamais imaginé qu'il deviendrait un jour le Seigneur du Royaume Scellé ! » L'érudit sourit, ignorant les moqueries du vieil homme, le visage empreint d'émotion.
+« C'était sur la planète Suzaku. Le Seigneur du Royaume Scellé de l'époque ne pouvait rien comparer à sa cultivation actuelle. Je me souviens qu'à l'époque, il n'était encore qu'un simple cultivateur au stade de l'Établissement des Fondations. Je n'aurais jamais imaginé qu'il deviendrait un jour le Seigneur du Royaume Scellé ! » L'érudit sourit, ignorant les moqueries du vieil homme, le visage empreint d'émotion.
 
 La jeune femme cligna des yeux, montrant un signe d'intérêt. Elle regarda la femme en violet et sourit :
 

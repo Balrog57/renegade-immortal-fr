@@ -58,7 +58,7 @@ Le sol éclata alors qu'un dragon doré surgissait des profondeurs. Dans son él
 
 À cet instant, loin dans le vide, le vieil homme de la Secte Da Lou, assis sur un Qilin, ouvrit soudainement les yeux. Dès qu'il les ouvrit, une puissante créature du vide poussa un gémissement misérable et s'enfuit en panique.
 
-« Une autre épée céleste de pluie ! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre ! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra ! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui : « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma culture actuelle... »
+« Une autre épée céleste de pluie ! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre ! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra ! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui : « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma cultivation actuelle... »
 
 Ses yeux pétillèrent tandis que le Qilin sous ses pieds s'animait avec plus de célérité. Après un instant, une expression de joie illumina son visage.
 
@@ -78,7 +78,7 @@ Au moment où il portait son coup avec son épée précieuse, une série de craq
 
 Une femme qui venait d'entrer dans le vortex pour atterrir sur un fragment entendit soudain l'hymne d'épée. Pensant qu'un incident survenait, elle sortit instinctivement une épée volante arc-en-ciel de sa sacoche de rangement. Cette épée était le trésor majeur de sa secte, mais dès qu'elle apparut, des fissures la déchirèrent et elle vola en morceaux.
 
-À ce moment précis, peu importe l'endroit où ils se trouvaient dans le Royaume Céleste ou leur niveau de culture, si un cultivateur brandissait une épée, celle-ci se brisait.
+À ce moment précis, peu importe l'endroit où ils se trouvaient dans le Royaume Céleste ou leur niveau de cultivation, si un cultivateur brandissait une épée, celle-ci se brisait.
 
 L'épée se brise par honte !
 
@@ -94,7 +94,7 @@ Dans le vide, un érudit d'âge moyen marchait tranquillement. Chaque fois qu'un
 
 « Ils ont été attirés ! »
 
-Simultanément, de nombreuses épées convergèrent depuis le lointain. Même avec sa culture, l'homme n'osait pas leur faire face et décida de les esquiver. Son corps disparut soudainement. Une fois les épées passées, ses yeux s'illuminèrent et il se précipita à leur suite.
+Simultanément, de nombreuses épées convergèrent depuis le lointain. Même avec sa cultivation, l'homme n'osait pas leur faire face et décida de les esquiver. Son corps disparut soudainement. Une fois les épées passées, ses yeux s'illuminèrent et il se précipita à leur suite.
 
 « Tant que je suivrai les épées, je pourrai trouver l'épée céleste de pluie ! »
 

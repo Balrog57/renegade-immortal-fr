@@ -106,7 +106,7 @@ Après une courte réflexion, un regard froid traversa ses yeux. Il fixa à nouv
 
 Dans cet espace, Wang Lin observa Situ Nan et ses parents, puis s'assit près de quelques lumières flottantes. Depuis qu'il avait atteint le stade de la Formation du Noyau, il n'était plus limité par l'apport d'objets chargés d'énergie spirituelle dans la Perle. C'était un changement majeur.
 
-Wang Lin décida que, sauf en dernier recours, il ne chercherait pas l'homme aux cheveux roux pour ouvrir la Mer des Âmes Mortes. Désormais doté de la Tactique de l'Ancien Dieu et de nombreux trésors pour soutenir sa culture, il choisit de s'enfermer dans une méditation intensive afin de tenter d'atteindre le stade de l'Âme Naissante.
+Wang Lin décida que, sauf en dernier recours, il ne chercherait pas l'homme aux cheveux roux pour ouvrir la Mer des Âmes Mortes. Désormais doté de la Tactique de l'Ancien Dieu et de nombreux trésors pour soutenir sa cultivation, il choisit de s'enfermer dans une méditation intensive afin de tenter d'atteindre le stade de l'Âme Naissante.
 
 Il prit une profonde inspiration, ferma les yeux et concentra son Sens Divin sur les trois grands mots gravés dans son esprit. Graduellement, des techniques complexes se déployèrent dans son cœur.
 
@@ -118,11 +118,11 @@ Après avoir étudié cette technique pendant longtemps, Wang Lin expira et ouvr
 
 Les Anciens Dieux se concentraient sur l'entraînement de leur enveloppe physique et utilisaient rarement des armes ; on pouvait dire que leur propre corps était leur plus grand trésor. Leur robustesse égalait celle des artefacts les plus précieux du monde.
 
-L'objectif de la Tactique de l'Ancien Dieu était d'utiliser toute l'énergie spirituelle dérobée pour renforcer ce corps. Une fois les limites physiques atteintes, il fallait agrandir le corps, sous peine de voir sa culture stagner. Plus le corps s'étendait, plus il exigeait d'énergie. À une certaine taille, l'Ancien Dieu subissait une reconstruction corporelle, un processus visant à accroître la qualité de son essence physique.
+L'objectif de la Tactique de l'Ancien Dieu était d'utiliser toute l'énergie spirituelle dérobée pour renforcer ce corps. Une fois les limites physiques atteintes, il fallait agrandir le corps, sous peine de voir sa cultivation stagner. Plus le corps s'étendait, plus il exigeait d'énergie. À une certaine taille, l'Ancien Dieu subissait une reconstruction corporelle, un processus visant à accroître la qualité de son essence physique.
 
-Pour un Ancien Dieu, chaque reconstruction rendait son corps et sa culture plus puissants.
+Pour un Ancien Dieu, chaque reconstruction rendait son corps et sa cultivation plus puissants.
 
-De plus, à chaque cycle, leur âme s'agrandissait également. Parmi les Anciens Dieux, il n'existait pas de niveaux de culture tels qu'on les connaît dans le monde des cultivateurs ; leur puissance résidait essentiellement dans l'union de leur âme et de leur corps.
+De plus, à chaque cycle, leur âme s'agrandissait également. Parmi les Anciens Dieux, il n'existait pas de niveaux de cultivation tels qu'on les connaît dans le monde des cultivateurs ; leur puissance résidait essentiellement dans l'union de leur âme et de leur corps.
 
 Le corps était l'arme, et l'âme était la main qui la maniait, formant ainsi la lignée presque invincible des Anciens Dieux.
 
@@ -130,7 +130,7 @@ Autrefois glorieux, ils furent finalement enfouis par l'histoire. Aujourd'hui, i
 
 Wang Lin réalisa qu'en utilisant la Tactique de l'Ancien Dieu, il pouvait détourner l'énergie spirituelle volée pour accélérer sa propre progression.
 
-Il sortit son sac de rangement et en tira un objet : un dantian. Il l'avait obtenu lors d'un massacre ; ce dantian contenait toute la culture d'un cultivateur de rang intermédiaire.
+Il sortit son sac de rangement et en tira un objet : un dantian. Il l'avait obtenu lors d'un massacre ; ce dantian contenait toute la cultivation d'un cultivateur de rang intermédiaire.
 
 Sans hésiter, Wang Lin le porta à sa bouche. Dès qu'il fut ingéré, une quantité colossale d'énergie spirituelle inonda son corps.
 
@@ -148,7 +148,7 @@ Son noyau tourna selon un motif précis, projetant des vagues d'énergie vers so
 
 Sa main droite retourna vers son sac pour en sortir des flacons de pilules immortelles confectionnées par Li MuWan. Il les ingéra une à une. Le temps s'écoulait à toute allure. Dès qu'une pilule était consommée, la technique de Vol d'Énergie Spirituelle l'absorbait intégralement. Juste avant que l'énergie ne se diffuse dans son corps, Wang Lin la redirigeait vers son noyau.
 
-Sa culture progressa ainsi rapidement, le faisant franchir le stade intermédiaire pour atteindre le stade avancé de la Formation du Noyau.
+Sa cultivation progressa ainsi rapidement, le faisant franchir le stade intermédiaire pour atteindre le stade avancé de la Formation du Noyau.
 
 Ensuite, il sortit l'objet le plus précieux de son sac : le liquide spinal obtenu du dragon dans le tunnel.
 

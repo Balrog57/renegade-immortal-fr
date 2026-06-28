@@ -22,7 +22,7 @@ Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément
 
 L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
 
-« Si tu n'étais pas le cadet possédant le sang le plus pur du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat ! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel ! »
+« Si tu n'étais pas le cadet possédant le sang le plus pur du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat ! Une fois de retour au clan, tu seras puni par cent ans de cultivation à huis clos et tu subiras la douleur d'un raffinage corporel ! »
 
 Sur ces mots, il se remit à la poursuite de Wang Lin qui s'enfuyait.
 
@@ -114,7 +114,7 @@ L'ancêtre devint instantanément méfiant. Après quelques investigations, il d
 
 Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il ne pouvait pas agir sans risquer de voir ses espoirs s'effondrer.
 
-Cependant, il avait bien tué l'autre personne au courant de cette affaire : un messager d'un pays de culture de rang 4. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
+Cependant, il avait bien tué l'autre personne au courant de cette affaire : un messager d'un pays de cultivation de rang 4. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
 Un jour, Li Yuan de Xue Yue était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait utilisé l'excuse de la récupération de la boussole stellaire pour s'approcher du prisonnier.
 

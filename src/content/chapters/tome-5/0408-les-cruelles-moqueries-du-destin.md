@@ -72,7 +72,7 @@ L'Émissaire était continuellement repoussé. Seules quatre étoiles brillaient
 
 « Tu... n'appartiens pas à mon clan... » L'Émissaire des Cieux prit la parole pour la première fois. Un cultivateur ordinaire serait incapable de le comprendre, car il s'exprimait dans la langue des dieux ancestraux.
 
-C'était exact ; à cet instant, Wang Lin ne pouvait être considéré comme un dieu ancestral. Les dieux ancestraux n'avaient jamais pratiqué de culture interne et, de l'ère antique jusqu'à nos jours, aucun dieu ancestral n'avait jamais possédé de domaine !
+C'était exact ; à cet instant, Wang Lin ne pouvait être considéré comme un dieu ancestral. Les dieux ancestraux n'avaient jamais pratiqué de cultivation interne et, de l'ère antique jusqu'à nos jours, aucun dieu ancestral n'avait jamais possédé de domaine !
 
 « Que je le sois ou non, peu importe, je ne permettrai pas que tu emportes l'Âme Naissante de Li Muwan ! » cria Wang Lin en retour, s'exprimant dans la langue des dieux ancestraux tout en lançant un coup de poing.
 

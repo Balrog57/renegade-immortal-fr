@@ -6,27 +6,27 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1054 - Forcing Master Void
 slug: forcer-le-maitre-du-vide
 ---
-« L'Alliance de Culture... » Wang Wei regarda froidement le Maître du Vide en secouant la tête. « Quelle prétention. »
+« L'Alliance de Cultivation... » Wang Wei regarda froidement le Maître du Vide en secouant la tête. « Quelle prétention. »
 
-Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance de Culture. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance étaient faibles, mais ils tiraient une fierté légitime de leur statut. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
+Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance de Cultivation. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance étaient faibles, mais ils tiraient une fierté légitime de leur statut. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
 
 Cependant, après d'innombrables années de changements, la personnalité de Wang Wei s'était faite plus discrète et ne se révélait plus aussi facilement. Mais cette fierté ancrée dans ses os n'était pas une chose que le temps pouvait effacer.
 
-Wang Wei et Hu Juan étaient les disciples de l'être le plus puissant du Royaume Céleste, l'Empereur Céleste Qing Lin. Ils étaient déjà célèbres lorsque le Royaume Céleste existait encore et que l'Alliance de Culture n'était même pas née ; ils n'étaient alors qu'un groupe de cultivateurs de bas niveau du Bas Monde.
+Wang Wei et Hu Juan étaient les disciples de l'être le plus puissant du Royaume Céleste, l'Empereur Céleste Qing Lin. Ils étaient déjà célèbres lorsque le Royaume Céleste existait encore et que l'Alliance de Cultivation n'était même pas née ; ils n'étaient alors qu'un groupe de cultivateurs de bas niveau du Bas Monde.
 
-Même l'ancien démon Bei Lou esquissa un sourire, ses yeux empreints de dérision. En tant qu'ancien démon, il méprisait naturellement cette Alliance de Culture qui n'était qu'une organisation récente. Il était déjà célèbre dans le monde extérieur alors que le royaume scellé appartenait encore au Royaume Céleste.
+Même l'ancien démon Bei Lou esquissa un sourire, ses yeux empreints de dérision. En tant qu'ancien démon, il méprisait naturellement cette Alliance de Cultivation qui n'était qu'une organisation récente. Il était déjà célèbre dans le monde extérieur alors que le royaume scellé appartenait encore au Royaume Céleste.
 
-De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques durant toutes ces années, il avait beaucoup appris sur l'Alliance de Culture grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
+De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques durant toutes ces années, il avait beaucoup appris sur l'Alliance de Cultivation grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
 
 « Votre frère aîné, le Maître Zhong Xuan, était déjà une figure illustre avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin Azure Dragon des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
-« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste de la Pluie, et ce n'est qu'alors que l'Alliance de Culture fut établie ! Moi, Bei Lou, j'admire réellement un tel homme, mais vous... » Bei Lou secoua la tête, le regard moqueur.
+« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste de la Pluie, et ce n'est qu'alors que l'Alliance de Cultivation fut établie ! Moi, Bei Lou, j'admire réellement un tel homme, mais vous... » Bei Lou secoua la tête, le regard moqueur.
 
 L'expression du Maître du Vide devint sombre. Leurs regards l'irritaient profondément, mais il réprima sa colère. Il pointa Wang Lin du doigt et déclara : « J'ai un différend personnel avec ce cadet. Puisque vous, autres cultivateurs, êtes intervenus, je vais laisser cette affaire de côté pour l'instant. Je promets de ne pas causer de problèmes à ce junior tant que nous resterons dans cette grotte. Je présume que vous êtes ici pour collaborer afin d'atteindre l'étage suivant. Pourquoi gâcher l'ambiance ? Si cela compromet nos chances de progresser, cela n'en vaudra pas la peine. »
 
 Des centaines de pensées traversèrent l'esprit du Maître du Vide tandis qu'il parlait. Ses paroles étaient habiles : il feignait d'abord la retenue pour ne pas causer de troubles à Wang Lin, tout en soulignant qu'un affrontement immédiat nuirait à leur objectif commun.
 
-Forcer quelqu'un de son rang et de sa culture à tenir un tel discours était l'humiliation suprême. Toute sa rage se concentrait sur Wang Lin ; bien que son intention de tuer fût dissimulée, elle n'en était que plus intense.
+Forcer quelqu'un de son rang et de sa cultivation à tenir un tel discours était l'humiliation suprême. Toute sa rage se concentrait sur Wang Lin ; bien que son intention de tuer fût dissimulée, elle n'en était que plus intense.
 
 L'homme en noir aux côtés du Maître du Vide s'avança et s'assit, montrant clairement qu'il ne participerait pas au conflit. Seule la belle femme resta debout près du Maître du Vide, le visage blême.
 
@@ -70,7 +70,7 @@ Les yeux du démon brillaient d'avidité et il se lécha les lèvres. Il réappa
 
 À ce moment, l'Oiseau Vermillon de Wang Lin se rapprocha, transportant une chaleur intense. Le Maître du Vide poussa un rugissement, puis son âme originelle apparut autour de lui pour pointer l'oiseau de feu.
 
-Utilisant sa puissante culture, il fit éclater l'Oiseau Vermillon d'un simple geste du doigt. Mais le Maître du Vide ne s'arrêta pas là ; il se déplaça sur le côté pour tenter d'échapper à Bei Lou.
+Utilisant sa puissante cultivation, il fit éclater l'Oiseau Vermillon d'un simple geste du doigt. Mais le Maître du Vide ne s'arrêta pas là ; il se déplaça sur le côté pour tenter d'échapper à Bei Lou.
 
 Cependant, Bei Lou était plus rapide encore et poursuivait sans relâche le Maître du Vide. Des bruits de claquements résonnaient dans la salle, et à chaque impact, le visage du Maître du Vide pâlissait davantage.
 

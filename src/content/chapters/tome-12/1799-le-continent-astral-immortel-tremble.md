@@ -52,7 +52,7 @@ Cette fortune résidait dans l'avatar qui, sans qu'il le sache, s'était dévelo
 
 Ce pouvoir serait celui des lois du Continent Astral Immortel, car cet avatar était né au cœur même de ces lois, tout comme l'ancêtre du Roi Moustique !
 
-Il ne valait pas la peine de tenter de le briser par la force. Wang Lin comprit également que s'il avait pu s'éveiller et recouvrer sa culture, c'était grâce à cet avatar niché dans la coquille.
+Il ne valait pas la peine de tenter de le briser par la force. Wang Lin comprit également que s'il avait pu s'éveiller et recouvrer sa cultivation, c'était grâce à cet avatar niché dans la coquille.
 
 Grâce au lien qui les unissait, il semblait que la croissance de l'avatar renforcerait son corps original. Ce phénomène était extrêmement étrange et ne pouvait être expliqué clairement.
 
@@ -70,7 +70,7 @@ Portant le Cercueil de l'Évitement de la Mort contenant Li Muwan, Wang Lin, por
 
 À cet instant précis, au cœur du vide, il ignorait le bouleversement titanesque qui venait de frapper le Continent Astral Immortel au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
 
-Ce changement colossal ébranla l'intégralité du Continent Astral Immortel. D'innombrables cultivateurs puissants sortirent de leur culture de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
+Ce changement colossal ébranla l'intégralité du Continent Astral Immortel. D'innombrables cultivateurs puissants sortirent de leur cultivation de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
 
 Cette agitation attira même l'attention des neuf soleils, créant une occurrence rare où les neuf astres apparurent simultanément !
 
@@ -78,7 +78,7 @@ Personne ne pourrait oublier cette scène ; elle resterait gravée dans les mém
 
 Lors de la naissance de l'Ancêtre Céleste, trois signes apparurent. Le ciel doré et la terre noire furent le premier ! Lors de la naissance de l'Ancêtre Antique, neuf chants retentirent. Les yeux argentés en faisaient partie !
 
-Bien que les cultivateurs ordinaires l'ignorassent, quiconque avait atteint un certain niveau de culture ou appartenait à une secte puissante en connaissait les fondements.
+Bien que les cultivateurs ordinaires l'ignorassent, quiconque avait atteint un certain niveau de cultivation ou appartenait à une secte puissante en connaissait les fondements.
 
 Ce jour-là, une distorsion apparut dans le ciel au-dessus de la capitale des Célestes sur le Continent Céleste Ming, qui régnait sur tous les êtres célestes. Un vortex gigantesque se forma et commença à s'étendre dans toutes les directions.
 

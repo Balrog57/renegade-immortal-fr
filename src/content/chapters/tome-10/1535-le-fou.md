@@ -12,7 +12,7 @@ Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête Nether, 
 
 C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête Nether et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.
 
-Une planète de culture semi-effondrée se trouvait dans la Bête Nether. Cette planète n'était plus ronde, elle ne portait aucune végétation et régnait dans un silence absolu.
+Une planète de cultivation semi-effondrée se trouvait dans la Bête Nether. Cette planète n'était plus ronde, elle ne portait aucune végétation et régnait dans un silence absolu.
 
 Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était accroupi là, fixant un corps au sol.
 
@@ -22,7 +22,7 @@ Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était ac
 
 Il avait erré dans cet endroit durant d'innombrables années sans jamais croiser une seconde âme. Il se souvenait qu'il y a un nombre indéterminé d'années, il était également allongé ici, regardant le ciel avec vacuité.
 
-Il avait supplié les cieux de lui accorder un compagnon de culture pour rompre sa solitude.
+Il avait supplié les cieux de lui accorder un compagnon de cultivation pour rompre sa solitude.
 
 Il y pensait presque chaque jour, mais cette fois-ci était différente. À l'instant même où une telle pensée lui traversa l'esprit, ses yeux s'écarquillèrent : une lueur jaillit dans le ciel étoilé. Il vit quelque chose tomber des cieux et atterrir de l'autre côté de la planète.
 

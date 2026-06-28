@@ -62,7 +62,7 @@ Autrement, ils n'auraient pu créer un sort d'illusion multicouche.
 
 Par conséquent, tenter d'entrer dans le corps d'un disciple risquait de faire découvrir Wang Lin par la formation avant même qu'il ne s'aperçoive du moindre problème.
 
-Wang Lin ne pouvait tenter l'expérience qu'une seule fois et refusait de prendre un tel risque. Il préférait compter sur sa propre culture et sa compréhension des restrictions.
+Wang Lin ne pouvait tenter l'expérience qu'une seule fois et refusait de prendre un tel risque. Il préférait compter sur sa propre cultivation et sa compréhension des restrictions.
 
 Ce dont il avait besoin, c'était d'une fluctuation dans la formation.
 
@@ -100,7 +100,7 @@ Wang Lin ne prit même pas la peine de les regarder. Il avait déjà vu trop sou
 
 Cependant, à cet instant précis, un Sens Divin éclata soudainement depuis la montagne rouge et descendit. Il couvrit rapidement la majeure partie du massif. Ce Sens Divin était d'une puissance redoutable ; ce n'était pas l'apanage d'un cultivateur ordinaire. C'était quelqu'un qui avait traversé neuf Tribulations Arcanes et atteint le début du stade de la Tribulation du Vide.
 
-Ce Sens Divin contenait une nuance Yin, un trait qui ne pouvait être détecté qu'une fois un certain niveau de culture atteint. Dès que Wang Lin perçut ce Sens Divin, il comprit qu'il s'agissait d'une cultivatrice.
+Ce Sens Divin contenait une nuance Yin, un trait qui ne pouvait être détecté qu'une fois un certain niveau de cultivation atteint. Dès que Wang Lin perçut ce Sens Divin, il comprit qu'il s'agissait d'une cultivatrice.
 
 Cette projection s'était déployée trop soudainement. Si Wang Lin n'avait pas été sur ses gardes, il aurait été découvert dans un moment de panique. Tandis que le Sens Divin se propageait, la fumée de Wang Lin recula.
 
@@ -112,7 +112,7 @@ Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à trave
 
 « Me suis-je fait repérer ? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui s'éloignaient au loin.
 
-Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de culture de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de culture étaient arrogantes et méprisaient les disciples masculins ; elles ne pratiquaient donc pas de recherches trop minutieuses. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
+Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de cultivation de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de cultivation étaient arrogantes et méprisaient les disciples masculins ; elles ne pratiquaient donc pas de recherches trop minutieuses. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
 
 Au moment où Wang Lin pénétra dans l'homme, le Sens Divin passa.
 

@@ -32,7 +32,7 @@ Il se déplaçait à une vitesse fulgurante, fusionnant parfois avec le monde po
 
 Tout cela se produisit en un instant. Au plus profond du météore dans la Rivière des Invocations, l'expression de l'Omniscient changea. Il sentit le Sens Divin de quelqu'un l'observer et reconnut immédiatement qu'il appartenait à Wang Lin !
 
-« Avec son niveau de culture, il n'aurait pas dû trouver cet endroit si tôt... Quelqu'un l'a aidé ! Et cette personne n'est pas Qing Lin ! » Les yeux de l'Omniscient s'illuminèrent et il se redressa. Alors qu'il s'apprêtait à sortir du météore, il fit soudainement volte-face. Il regarda vers l'extérieur et son expression devint sombre.
+« Avec son niveau de cultivation, il n'aurait pas dû trouver cet endroit si tôt... Quelqu'un l'a aidé ! Et cette personne n'est pas Qing Lin ! » Les yeux de l'Omniscient s'illuminèrent et il se redressa. Alors qu'il s'apprêtait à sortir du météore, il fit soudainement volte-face. Il regarda vers l'extérieur et son expression devint sombre.
 
 « Si rapide... »
 
@@ -96,7 +96,7 @@ Wang Lin réfléchit en silence avant de s'élancer et de disparaître.
 
 Dans cette direction se trouvait une planète cultivée, sur laquelle trônait un bassin. La zone environnante était totalement aride. Un vieil homme était assis là, vêtu d'une robe blanche, la tête couverte de cheveux blancs. Il ouvrit les yeux avec ce même sourire. Ses yeux étaient parcourus de lignes de sang, complètes et chargées du pouvoir des restrictions !
 
-« J'ai dû sacrifier une âme pour obtenir l'essence de restriction, mais cela en valait la peine... C'est juste que son niveau de culture n'était pas assez élevé ; il aurait dû être bien plus fort... Si tel avait été le cas, je serais plus proche de l'aboutissement de mon plan... » L'Omniscient afficha un regard d'anticipation.
+« J'ai dû sacrifier une âme pour obtenir l'essence de restriction, mais cela en valait la peine... C'est juste que son niveau de cultivation n'était pas assez élevé ; il aurait dû être bien plus fort... Si tel avait été le cas, je serais plus proche de l'aboutissement de mon plan... » L'Omniscient afficha un regard d'anticipation.
 
 « Intégration de la Réincarnation... Ce sort est véritablement mystérieux. Avec cet éveil, je sais désormais que je n'étais pas le premier à m'éveiller après ces deux autres. Je me suis éveillé 97 fois... Ce sera ma 98e fois ! » L'Omniscient prit une profonde inspiration et les lignes de sang dans ses yeux disparurent. Il se leva et contempla le ciel.
 

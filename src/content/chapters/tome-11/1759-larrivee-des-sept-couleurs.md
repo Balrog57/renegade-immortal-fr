@@ -20,7 +20,7 @@ L'homme d'âge mûr de la Planète des Cinq Éléments était dans un état enco
 
 Wang Lin n'avait nul temps à accorder à ces deux êtres. Il concentrait toute son attention sur sa lame. Il ferma lentement les yeux et cessa de regarder le ciel ; il investit tout son être dans son arme.
 
-Dès qu'il ferma les yeux, plus aucun son ne parvint à ses oreilles. La seule chose qu'il percevait était cette lame. Elle remplaçait désormais ses yeux et son Sens Divin. Tandis que sa culture s'y concentrait, elle devint une lame d'une puissance phénoménale !
+Dès qu'il ferma les yeux, plus aucun son ne parvint à ses oreilles. La seule chose qu'il percevait était cette lame. Elle remplaçait désormais ses yeux et son Sens Divin. Tandis que sa cultivation s'y concentrait, elle devint une lame d'une puissance phénoménale !
 
 Dans la partie occidentale de ce système stellaire, un grondement retentit et un vortex gigantesque apparut. À peine formé, le vortex trembla violemment avant de s'effondrer sur lui-même. Sa destruction donnait l'impression que quelqu'un l'avait déchiré de l'intérieur.
 
@@ -42,11 +42,11 @@ L'énergie de la lame s'élança vers le ciel et disparut. Lorsqu'elle réapparu
 
 L'énergie de la lame perça le vide et s'étendit sur plus de 100 000 pieds. Elle n'avait plus rien de corporel, mais paraissait d'une densité absolue alors qu'elle fonçait sur le Taoïste aux Sept Couleurs !
 
-Cette énergie était façonnée par la Loi locale et fusionnée avec l'intégralité de la culture de Wang Lin. Manier une telle lame revenait à utiliser toute la puissance d'un monde dévasté pour assassiner un être !
+Cette énergie était façonnée par la Loi locale et fusionnée avec l'intégralité de la cultivation de Wang Lin. Manier une telle lame revenait à utiliser toute la puissance d'un monde dévasté pour assassiner un être !
 
 Il était impossible de décrire la force de cet assaut. L'énergie de la lame brillait d'un éclat aveuglant en fonçant vers le Taoïste aux Sept Couleurs !
 
-Les pupilles du Taoïste aux Sept Couleurs se contractèrent. Malgré son niveau de culture, il ressentit un sentiment de péril imminent. Une telle sensation était extrêmement rare ; il ne l'avait éprouvée que trois fois dans sa vie !
+Les pupilles du Taoïste aux Sept Couleurs se contractèrent. Malgré son niveau de cultivation, il ressentit un sentiment de péril imminent. Une telle sensation était extrêmement rare ; il ne l'avait éprouvée que trois fois dans sa vie !
 
 Cependant, sur ces trois occasions, deux s'étaient produites lors de la traque de Wang Lin. La première fois dans la fissure de la Mer des Nuages, et la seconde était celle-ci, au sein de ce monde en ruines !
 

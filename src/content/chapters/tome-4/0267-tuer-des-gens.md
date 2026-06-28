@@ -18,7 +18,7 @@ Wang Lin répondit calmement : « Frère Zhou, ne me prenez pas pour un enfant d
 
 Zhou Wutai réfléchit un instant, puis laissa échapper un rire sonore. Il regarda Wang Lin, sans l'ombre d'une gêne, et dit : « Ne me blâmez pas, frère Wang. Cette affaire est tout simplement trop cruciale. Naturellement, je ne suis pas disposé à la révéler si facilement. » Sur ces mots, il cessa de parler, attendant clairement une réponse de la part de Wang Lin. Si celui-ci acceptait, il lui dirait la vérité.
 
-Wang Lin commença à hésiter ; il n'avait aucune intention de s'impliquer dans l'invasion des cultivateurs de Xue Yu. Après tout, il s'agissait d'un conflit entre deux pays de culture de rang 4. De plus, n'ayant aucun lien profond avec l'Alliance des Quatre Sectes, il risquait fort de n'être qu'un pion sacrificiel si la situation dégénérait.
+Wang Lin commença à hésiter ; il n'avait aucune intention de s'impliquer dans l'invasion des cultivateurs de Xue Yu. Après tout, il s'agissait d'un conflit entre deux pays de cultivation de rang 4. De plus, n'ayant aucun lien profond avec l'Alliance des Quatre Sectes, il risquait fort de n'être qu'un pion sacrificiel si la situation dégénérait.
 
 Après un long moment, Wang Lin dit calmement : « Je dois prendre le temps d'y réfléchir. Je vous donnerai ma réponse avant que l'invasion ne commence. »
 
@@ -44,7 +44,7 @@ Après que Zhou Wutai eut parcouru une certaine distance, quatre ombres apparure
 
 L'un d'eux lança d'un ton glacial : « Confrère cultivateur Zhou, l'ordre donné par l'Alliance des Quatre Sectes est de tuer tout cultivateur suspect entré dans le pays au cours des deux cents dernières années. Pourquoi n'avez-vous pas agi ? »
 
-Zhou Wutai ne se retourna même pas et ricana : « Avec votre niveau de culture à tous les quatre, même si je vous aidais, pensez-vous que nous pourrions le tuer ? S'il décidait vraiment de nous nuire, qui pourrait l'arrêter ? »
+Zhou Wutai ne se retourna même pas et ricana : « Avec votre niveau de cultivation à tous les quatre, même si je vous aidais, pensez-vous que nous pourrions le tuer ? S'il décidait vraiment de nous nuire, qui pourrait l'arrêter ? »
 
 Un autre homme vêtu de noir dit calmement : « Pas nécessairement. Bien que nous ne soyons qu'au stade avancé de l'Âme Naissante, si nous utilisons une formation, à moins qu'il ne soit au stade de la Formation de l'Âme, il mourra. »
 

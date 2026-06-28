@@ -36,7 +36,7 @@ Alors que le démon dispersé s'avançait, il dégagea une quantité monstrueuse
 
 « Hein ? » Le démon dispersé fut surpris. À cet instant, l'ancêtre de la famille Huan ouvrit soudainement les yeux. Ses pupilles virent une teinte grise et, en un éclair, il s'élança dans les airs. Son corps semblait fait de fumée, lui conférant un aspect illusoire.
 
-Le démon dispersé l'observa attentivement, puis dit avec un sourire qui n'en était pas un : « Petit enfant, ta méthode de culture est plutôt remarquable. Elle contient même un peu de ma propre culture de démon ancestral ! »
+Le démon dispersé l'observa attentivement, puis dit avec un sourire qui n'en était pas un : « Petit enfant, ta méthode de cultivation est plutôt remarquable. Elle contient même un peu de ma propre cultivation de démon ancestral ! »
 
 Le regard de Wang Lin ne se posait pas sur l'ancêtre de la famille Huan, mais sur Liu Mei. Ses yeux étaient clos et son aura... avait totalement disparu...
 
@@ -46,7 +46,7 @@ L'ancêtre de la famille Huan, semblable à de la fumée, se condensa dans les a
 
 Le démon dispersé rit : « Montre-le moi ! »
 
-L'ancêtre de la famille Huan ferma les yeux. Il avait absorbé le domaine de Liu Mei et récupéré l'énergie spirituelle céleste qu'il lui avait offerte. Bien que sa culture n'ait pas totalement retrouvé son niveau initial, la différence était minime.
+L'ancêtre de la famille Huan ferma les yeux. Il avait absorbé le domaine de Liu Mei et récupéré l'énergie spirituelle céleste qu'il lui avait offerte. Bien que sa cultivation n'ait pas totalement retrouvé son niveau initial, la différence était minime.
 
 Toutefois, il n'avait aucune confiance pour affronter le démon dispersé fusionné avec Wang Lin. Même s'il tentait de fuir, il ne pourrait échapper aux sorts du démon. C'est pourquoi il avait mis tous ses espoirs sur la trace du Dao du Démon Céleste qu'il portait en lui.
 
@@ -76,7 +76,7 @@ Pourtant, à cet instant précis, une masse de fumée noire jaillit soudainement
 
 Privé du démon dispersé, Wang Lin reprit le contrôle de son corps. En un éclair, il atteignit le sol et, d'un seul pas, se tint devant Liu Mei.
 
-Les yeux de Liu Mei étaient déjà clos et plus aucune vitalité ne subsistait dans son corps. Sa culture avait atteint le stade Ascendant, ce qui signifiait que son âme originelle et son domaine avaient fusionné. Dévorer son domaine revenait donc à dévorer son âme originelle.
+Les yeux de Liu Mei étaient déjà clos et plus aucune vitalité ne subsistait dans son corps. Sa cultivation avait atteint le stade Ascendant, ce qui signifiait que son âme originelle et son domaine avaient fusionné. Dévorer son domaine revenait donc à dévorer son âme originelle.
 
 De l'autre côté, alors que le démon dispersé continuait sa voracité, toutes les illusions finirent par disparaître. Au milieu de l'air, l'ancêtre de la famille Huan, redevenu presque une illusion, se condensa une dernière fois, le visage empreint d'amertume.
 
@@ -92,7 +92,7 @@ L'environnement retomba dans un silence total ; les membres de la famille Huan �
 
 Wang Lin regarda calmement Liu Mei, les yeux clos. Il resta silencieux durant un long moment.
 
-Huan Fengshen hésita un instant avant de s'avancer : « Cher compagnon de culture, avant que Liu Mei ne parte, elle avait conclu un accord avec... Huan Wuqing. S'il ne pouvait pas vous tuer, il devait vous remettre ce sac de rangement. »
+Huan Fengshen hésita un instant avant de s'avancer : « Cher compagnon de cultivation, avant que Liu Mei ne parte, elle avait conclu un accord avec... Huan Wuqing. S'il ne pouvait pas vous tuer, il devait vous remettre ce sac de rangement. »
 
 Wang Lin leva les yeux et son regard se posa sur le sac qui était tombé lors de la disparition du corps de Huan Wuqing. D'un geste de la main, il fit atterrir l'objet dans sa paume.
 
@@ -120,7 +120,7 @@ Wang Lin n'avait pas anéanti la famille Huan. Il était très, très fatigué..
 
 Ce qui était épuisé, ce n'était pas son corps, mais son cœur.
 
-Il avait trop vécu au cours de ses huit cents ans de culture...
+Il avait trop vécu au cours de ses huit cents ans de cultivation...
 
 Sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange ; elle ne comptait que deux personnes : un jeune homme à l'aura antique et un bébé.
 

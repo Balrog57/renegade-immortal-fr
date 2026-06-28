@@ -44,7 +44,7 @@ Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils cherchaient le D
 
 Année après année, toujours plus de cultivateurs affluèrent de Hou Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
 
-Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de culture, ils n'existaient pas aux yeux de Wang Lin.
+Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de cultivation, ils n'existaient pas aux yeux de Wang Lin.
 
 Quel que soit leur rang, ils devaient simplement trouver une place sur la montagne. L'espace étant limité, il n'y avait point de lutte pour les places. Tous restaient assis en silence pour écouter Wang Lin, qui ne parlait peut-être qu'une fois par an.
 

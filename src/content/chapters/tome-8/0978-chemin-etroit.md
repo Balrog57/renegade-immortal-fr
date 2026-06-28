@@ -64,7 +64,7 @@ Lei Ji arriva bientôt et, lorsqu'il se posa, il regarda respectueusement Wang L
 
 Big Head hésita un instant avant de demander : « Le voyage du Maître s'est-il bien déroulé ? »
 
-Wang Lin leur adressa un signe de tête et répondit lentement : « Tout s'est bien passé, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la culture. »
+Wang Lin leur adressa un signe de tête et répondit lentement : « Tout s'est bien passé, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la cultivation. »
 
 Big Head acquiesça : « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux régulièrement. »
 
@@ -80,13 +80,13 @@ Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissemen
 
 « Ce cultivateur assis là me semble familier ; je crois l'avoir déjà vu quelque part... »
 
-« Oubliez la monture, regardez les deux gardes à côté de ce vieux monstre. Quel est leur niveau de culture ? Je suis incapable de les sonder. Je crains que même le Grand Ancien de notre secte n'ait une telle aura ! »
+« Oubliez la monture, regardez les deux gardes à côté de ce vieux monstre. Quel est leur niveau de cultivation ? Je suis incapable de les sonder. Je crains que même le Grand Ancien de notre secte n'ait une telle aura ! »
 
-Tout au long du trajet, quiconque croisait Wang Lin se mettait à chuchoter et à le regarder avec respect. Dans le monde de la culture, la force commandait le respect !
+Tout au long du trajet, quiconque croisait Wang Lin se mettait à chuchoter et à le regarder avec respect. Dans le monde de la cultivation, la force commandait le respect !
 
 Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Nirvana Scryer.
 
-Ses yeux s'illuminèrent et il pensa : « Autrefois, ma culture était au début du Nirvana Scryer et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Nirvana Cleanser... Maintenant que j'ai atteint le stade intermédiaire du Nirvana Scryer, les cultivateurs au début du Nirvana Cleanser ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire ! »
+Ses yeux s'illuminèrent et il pensa : « Autrefois, ma cultivation était au début du Nirvana Scryer et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Nirvana Cleanser... Maintenant que j'ai atteint le stade intermédiaire du Nirvana Scryer, les cultivateurs au début du Nirvana Cleanser ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire ! »
 
 « À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Nirvana Cleanser. Si je retournais dans le passé, je devrais pouvoir l'affronter ! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Nirvana Cleanser voulait me tuer, ce ne serait pas aussi facile ! »
 

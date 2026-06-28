@@ -56,7 +56,7 @@ Situ Nan, stupéfait, s'exclama d'un ton surpris : « Un Cœur Vert ? Je ne pens
 
 Wang Lin demanda : « Qu'est-ce qu'un Cœur Vert ? »
 
-« C'est la technique de culture spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Formation de l'Esprit de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
+« C'est la technique de cultivation spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Formation de l'Esprit de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta cultivation, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
 
 Les yeux de Wang Lin s'illuminèrent et il demanda soudain : « Combien de Cœurs Verts cet individu possède-t-il ? Peux-tu le dire ? »
 

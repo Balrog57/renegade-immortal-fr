@@ -34,7 +34,7 @@ Wang Lin prit une profonde inspiration et recula. Son index droit pointa soudain
 
 Au loin, tous les moustiques entourant Chen Long s'étaient écartés, et son regard était devenu glacial. Sans aucune hésitation, sa main droite forma un sceau et l'épée géante derrière lui s'envola. Un dragon noir aux yeux intelligents apparut en poussant un rugissement, projetant un rayon d'énergie d'épée directement vers Greed.
 
-Bien qu'ils n'eussent jamais coopéré auparavant, le fait d'avoir atteint un tel niveau de culture prouvait leur grande perspicacité. Leur synchronisation était parfaite : leurs deux attaques barraient la route de retraite de Greed !
+Bien qu'ils n'eussent jamais coopéré auparavant, le fait d'avoir atteint un tel niveau de cultivation prouvait leur grande perspicacité. Leur synchronisation était parfaite : leurs deux attaques barraient la route de retraite de Greed !
 
 Les pupilles de Greed se rétractèrent. Il savait qu'il ne devait pas se laisser encercler par les bêtes moustiques, sous peine d'une mort certaine ! Il poussa un grognement froid. Il cultivait depuis des dizaines de milliers d'années et avait affronté de telles situations maintes fois. Tout en reculant, il forma un sceau de la main droite et griffa le mur en criant : « Premier style du Dévoreur de Mort ! »
 
@@ -76,7 +76,7 @@ Une puissance incomparable se manifesta instantanément. Une fois l'âme de la m
 
 Cependant, l'âme illusoire de la montagne était toujours entre les mains de Greed !
 
-« La culture de ce vieil homme ne peut égaler celle du petit Ling Tian ou de ce vieux voleur d'All-Seer, mais les sorts du vieux Greed sont sans faille ! Vous, juniors, vous n'avez fait qu'apprendre les techniques d'autrui en croyant qu'elles étaient les vôtres ! » Les yeux de Greed débordaient de mépris alors que sa main droite s'abaissait.
+« La cultivation de ce vieil homme ne peut égaler celle du petit Ling Tian ou de ce vieux voleur d'All-Seer, mais les sorts du vieux Greed sont sans faille ! Vous, juniors, vous n'avez fait qu'apprendre les techniques d'autrui en croyant qu'elles étaient les vôtres ! » Les yeux de Greed débordaient de mépris alors que sa main droite s'abaissait.
 
 Dans un fracas assourdissant, l'âme de la montagne descendit.
 

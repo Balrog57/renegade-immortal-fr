@@ -36,7 +36,7 @@ L'expression de Maître South Cloud changea et il recula instinctivement de plus
 
 Certains furent trop lents et furent frappés par la pression. Ils crachèrent de larges bouffées de sang, le visage blême, l'esprit percuté par un choc violent.
 
-« Ceci... Quel genre de trésor est-ce là ?! » Les yeux de Maître South Cloud étaient empreints d'incrédulité. Avec son niveau de culture, il pouvait déceler que cette pression ne provenait pas d'un cultivateur, mais d'un trésor.
+« Ceci... Quel genre de trésor est-ce là ?! » Les yeux de Maître South Cloud étaient empreints d'incrédulité. Avec son niveau de cultivation, il pouvait déceler que cette pression ne provenait pas d'un cultivateur, mais d'un trésor.
 
 La seule personne à l'extérieur des nuages qui n'était pas écrasée par la pression était le Vieux Fantôme Zhan, de l'autre côté. Ses cheveux ondulaient sans vent et ses yeux brillaient d'une lueur étrange alors qu'il fixait les nuages. Pour la première fois, son regard quitta Wang Lin pour se porter sur l'anneau doré.
 
@@ -68,7 +68,7 @@ Il n'esquivait pas la rétribution divine ; il acceptait qu'elle le frappe afin 
 
 Déjà d'un naturel audacieux, et après avoir traversé d'innombrables situations de vie ou de mort, il avait trop vu. Désormais, les yeux clos, le monde extérieur n'était plus qu'une illusion, tandis que son esprit traitait l'information à une vitesse terrifiante.
 
-Il combina son corps de Dieu Ancien, son corps de cultivateur, ses cinq essences, ses plus de 2 000 ans de culture et sa sagesse d'érudit pour créer une puissance de calcul prodigieuse.
+Il combina son corps de Dieu Ancien, son corps de cultivateur, ses cinq essences, ses plus de 2 000 ans de cultivation et sa sagesse d'érudit pour créer une puissance de calcul prodigieuse.
 
 Dans son esprit, son corps avait disparu ; seule subsistait l'anneau doré, composé de milliards de runes. Ces runes tournaient à une vitesse telle qu'elles paraissaient solides.
 

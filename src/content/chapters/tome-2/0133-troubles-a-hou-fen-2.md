@@ -30,7 +30,7 @@ Les bêtes de feu, quant à elles, n'étaient nullement ralenties puisqu'elles �
 
 Bien que Wang Lin ignorât la nature exacte de cette boule de feu, le simple fait qu'elle ait pu compléter l'élément feu de la perle défiant le ciel était un choc immense. À en juger par le respect témoigné par les bêtes et leur fureur actuelle, cette sphère devait être d'une importance capitale pour elles. Il était fort probable qu'il s'agisse de leur roi.
 
-L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave ; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon l'Union de Culture, elles étaient universellement appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une intelligence. Elle avait cultivé dans la lave sous Hou Fen durant de longues années, et sa culture était extrêmement puissante.
+L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave ; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon l'Union de Cultivation, elles étaient universellement appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une intelligence. Elle avait cultivé dans la lave sous Hou Fen durant de longues années, et sa cultivation était extrêmement puissante.
 
 Au cours des innombrables années de son existence, elle s'était transformée cinq fois. Si elle atteignait neuf transformations, elle pourrait passer du rang de bête-esprit à celui de bête désolée. Cependant, après chaque transformation, elle entrait dans un état de faiblesse durant 500 ans, incapable d'utiliser la moindre énergie spirituelle.
 
@@ -74,7 +74,7 @@ Sur cette pensée, il cessa de progresser et déploya son Sens Divin. Après avo
 
 Bien qu'il ne regardât plus les volcans, il percevait encore distinctement ces regards glacials qui le suivaient.
 
-À cet instant, tous les ancêtres de l'Âme Naissante sortirent de leur culture en isolement. Eux, qui se trouvaient au sommet de la hiérarchie d'un pays de culture de rang 3, pouvaient ressentir clairement les ondes d'énergie destructrice qui bouillonnaient à l'intérieur de Hou Fen.
+À cet instant, tous les ancêtres de l'Âme Naissante sortirent de leur cultivation en isolement. Eux, qui se trouvaient au sommet de la hiérarchie d'un pays de cultivation de rang 3, pouvaient ressentir clairement les ondes d'énergie destructrice qui bouillonnaient à l'intérieur de Hou Fen.
 
 Cela s'était déjà produit par le passé. Cela signifiait que les volcans de Hou Fen étaient sur le point d'entrer en éruption. Chaque fois que cela arrivait, ils se rendaient aux volcans dont ils avaient la charge pour les sceller et prévenir la catastrophe.
 
@@ -82,9 +82,9 @@ Car si une éruption survenait, ce serait un désastre majeur pour Hou Fen. Les 
 
 Après tout, bien que les mortels ne soient que des fourmis face aux cultivateurs, les chances de trouver des disciples parmi eux étaient plus grandes s'ils étaient nombreux.
 
-Les mortels pouvaient partir, mais pas les cultivateurs ; si une masse importante de cultivateurs migrait vers un autre pays, cela déclencherait une guerre immense. Dans le monde de la culture, il est extrêmement tabou pour un pays de migrer, car cela équivaut à une perte massive d'énergie spirituelle, à des chaos entre les sectes et à un bouleversement majeur de la possession des pierres spirituelles et des trésors magiques.
+Les mortels pouvaient partir, mais pas les cultivateurs ; si une masse importante de cultivateurs migrait vers un autre pays, cela déclencherait une guerre immense. Dans le monde de la cultivation, il est extrêmement tabou pour un pays de migrer, car cela équivaut à une perte massive d'énergie spirituelle, à des chaos entre les sectes et à un bouleversement majeur de la possession des pierres spirituelles et des trésors magiques.
 
-Sur la planète Suzaku, le nombre de pays de culture est fixe. Si les volcans entraient en éruption, une quantité colossale d'énergie spirituelle de feu violente s'échapperait. Cette énergie étant impossible à cultiver, les cultivateurs ne pourraient plus survivre à Hou Fen pendant longtemps.
+Sur la planète Suzaku, le nombre de pays de cultivation est fixe. Si les volcans entraient en éruption, une quantité colossale d'énergie spirituelle de feu violente s'échapperait. Cette énergie étant impossible à cultiver, les cultivateurs ne pourraient plus survivre à Hou Fen pendant longtemps.
 
 Heureusement, ce genre de catastrophe ne s'était jamais produit. À chaque fois, les volcans avaient été scellés sans encombre. Même en cas d'éruptions mineures, elles n'affectaient que de petites zones et non l'intégralité du pays.
 

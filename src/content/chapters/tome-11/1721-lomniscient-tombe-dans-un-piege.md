@@ -60,7 +60,7 @@ Il scruta l'horizon, un éclat de froideur dans le regard.
 
 « Une fois terminé, je sombrerai dans le sommeil et j'attendrai le 99e éveil. À ce moment-là, j'atteindrai mon but ! »
 
-« Wang Lin, ton niveau de culture est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil ! » Les yeux de l'Omniscient brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines d'Omniscients apparurent partout dans la Rivière des Invocations !
+« Wang Lin, ton niveau de cultivation est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil ! » Les yeux de l'Omniscient brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines d'Omniscients apparurent partout dans la Rivière des Invocations !
 
 Dès leur apparition, tous tournèrent le regard vers une seule direction : celle où se trouvait Wang Lin en plein mouvement !
 

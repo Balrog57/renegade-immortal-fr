@@ -22,7 +22,7 @@ Wang Lin regarda la silhouette de Qing Shui s'éloigner et réfléchit longuemen
 
 « Cependant, j'ai pu percevoir la direction du troisième niveau grâce à la Perle Défiant le Ciel... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
 
-Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire d'Allheaven !
+Il existait une planète de cultivation dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire d'Allheaven !
 
 C'était la famille Li, détentrice de restrictions héritées des temps anciens ! Maîtrisant la Restriction d'Annihilation, la famille Li était extrêmement puissante et son nom avait autrefois ébranlé le Système Stellaire d'Allheaven. Cependant, avec le déclin de la lignée et la fuite de la Restriction d'Annihilation, la famille Li perdit son pouvoir.
 
@@ -32,7 +32,7 @@ La planète Annihilation était devenue inhabitée ; aucun cultivateur ne s'y re
 
 À l'intérieur du domaine familial des Li sur la planète Annihilation, Li Yuan se tenait là, le regard perdu dans le lointain.
 
-« Frère Xu... Ce n'est pas que je ne veuille pas vous aider face à la traque de la famille Yao, c'est que je ne peux rien faire ! » Le visage de Li Yuan était empreint d'amertume. Il aurait voulu aider, mais avec son niveau de culture, non seulement il ne serait d'aucun secours, mais il deviendrait un fardeau. Il éprouvait une immense gratitude envers Xu Mu pour ce qui s'était passé dans le Royaume Céleste du Tonnerre, particulièrement pour le fait que Xu Mu l'ait laissé partir tout en restant sur place.
+« Frère Xu... Ce n'est pas que je ne veuille pas vous aider face à la traque de la famille Yao, c'est que je ne peux rien faire ! » Le visage de Li Yuan était empreint d'amertume. Il aurait voulu aider, mais avec son niveau de cultivation, non seulement il ne serait d'aucun secours, mais il deviendrait un fardeau. Il éprouvait une immense gratitude envers Xu Mu pour ce qui s'était passé dans le Royaume Céleste du Tonnerre, particulièrement pour le fait que Xu Mu l'ait laissé partir tout en restant sur place.
 
 Après un soupir, Li Yuan se leva et sortit de la pièce. Il fixa le ciel et tous les événements du Royaume Céleste du Tonnerre défilèrent dans son esprit.
 
@@ -98,17 +98,17 @@ En pensant aux paroles de Li Yuan — selon lesquelles la bataille des 108 Céle
 
 Non seulement pour les deux grands sorts célestes mentionnés par Qing Shui, mais aussi pour la promesse faite par la famille Xiang de la planète Dong Lin !
 
-Les 36 Célestes du Ciel recevraient une promesse du Temple Céleste du Tonnerre et des deux grandes familles de culture possédant des héritages antiques !
+Les 36 Célestes du Ciel recevraient une promesse du Temple Céleste du Tonnerre et des deux grandes familles de cultivation possédant des héritages antiques !
 
 Les yeux de Wang Lin s'illuminèrent et il demanda : « Frère Li, seriez-vous intéressé par la conquête de l'un des 108 titres célestes ? »
 
-Li Yuan réfléchit. Après un long silence, il eut un sourire amer. « Ce serait vain avec mon niveau de culture actuel. Je me prépare à entrer en méditation de porte close pour atteindre le stade de l'Yin Illusoire ! » Les yeux de Li Yuan brillaient de détermination lorsqu'il parlait. Il devait impérativement réaliser une percée, quoi qu'il en coûte, pour rendre sa gloire à sa famille.
+Li Yuan réfléchit. Après un long silence, il eut un sourire amer. « Ce serait vain avec mon niveau de cultivation actuel. Je me prépare à entrer en méditation de porte close pour atteindre le stade de l'Yin Illusoire ! » Les yeux de Li Yuan brillaient de détermination lorsqu'il parlait. Il devait impérativement réaliser une percée, quoi qu'il en coûte, pour rendre sa gloire à sa famille.
 
 Wang Lin hocha la tête et dit calmement : « Avec votre talent, Frère Li, une percée n'est qu'une question de temps ! » Il réfléchit un instant avant de frapper son sac pour en sortir un morceau de jade. Il y grava ensuite le sort de l'Origine du Tonnerre.
 
-« Frère Li, il y a une méthode de culture à l'intérieur de ce jade. Si vous la cultivez avec soin, vos chances de réaliser une percée augmenteront considérablement ! »
+« Frère Li, il y a une méthode de cultivation à l'intérieur de ce jade. Si vous la cultivez avec soin, vos chances de réaliser une percée augmenteront considérablement ! »
 
-Li Yuan prit le jade. Après l'avoir examiné de près, il fut frappé de stupeur. Bien que sa famille Li possédât des héritages antiques, beaucoup avaient été perdus. La seule chose qui leur restait était la Restriction d'Annihilation. En réalité, ils étaient désormais inférieurs à une simple famille de culture.
+Li Yuan prit le jade. Après l'avoir examiné de près, il fut frappé de stupeur. Bien que sa famille Li possédât des héritages antiques, beaucoup avaient été perdus. La seule chose qui leur restait était la Restriction d'Annihilation. En réalité, ils étaient désormais inférieurs à une simple famille de cultivation.
 
 Bien que le sort de l'Origine du Tonnerre du Temple Céleste du Tonnerre ne fût pas un trésor inestimable, il n'en demeurait pas moins rare. Il hocha la tête et dit : « Frère Xu, je ne vous remercierai pas, puisque nous sommes seuls. Si un jour je réalise ma percée, je viendrai vous trouver. Nous pourrons alors errer parmi les étoiles comme deux célestes. Ce sera une occasion joyeuse ! »
 

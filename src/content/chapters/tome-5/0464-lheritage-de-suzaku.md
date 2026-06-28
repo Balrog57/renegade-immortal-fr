@@ -32,7 +32,7 @@ L'homme pénétra rapidement dans la pagode.
 
 « Arrêtez ! » Une voix s'éleva de l'intérieur de la structure. Cette voix, également empreinte de majesté, aurait fait trembler le cœur de n'importe qui.
 
-Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit : « Ce junior est Ye Wuyou, du pays de Suzaku, ayant tout juste atteint le rang 6. Je suis ici sur ordre de l'Alliance de Culture pour obtenir le Sceau de Suzaku. »
+Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit : « Ce junior est Ye Wuyou, du pays de Suzaku, ayant tout juste atteint le rang 6. Je suis ici sur ordre de l'Alliance de Cultivation pour obtenir le Sceau de Suzaku. »
 
 Le corps de Wang Lin trembla. Tout son esprit fut aspiré par un vortex dans ce souvenir. Pourtant, dans le monde réel, non seulement ses pas ne s'arrêtèrent pas, mais un phénomène encore plus étrange se produisit.
 
@@ -58,7 +58,7 @@ Mais après un examen attentif, il s'avéra totalement différent. Cette sensati
 
 Son corps s'accéléra encore, la lumière rouge devenant désormais aveuglante.
 
-L'incrédulité dans les yeux de Yunque Zi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même : « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible ? Sans avoir fusionné avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
+L'incrédulité dans les yeux de Yunque Zi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même : « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible ? Sans avoir fusionné avec le Cœur Planétaire de Cultivation, comment ce gamin peut-il subir l'Héritage de Suzaku... »
 
 Quant au petit singe, il fixait Wang Lin, les yeux rougeoyants et l'expression sombre.
 
@@ -90,13 +90,13 @@ Parallèlement à la lumière rouge, les symboles quittèrent l'esprit de Wang L
 
 En ressentant ce symbole, Wang Lin comprit.
 
-Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il fallait en échanger une vie. La seule autre option consistait à attendre que son fragment soit absorbé par l'une de ces formes de vie, puis à se battre pour le récupérer. Toutefois, trouver son propre fragment parmi l'océan infini de fragments dans la tombe de Suzaku était une chose qui ne pouvait être forcée ; cela dépendait uniquement de la chance.
+Pour extraire son fragment d'âme du Cristal de la Planète de Cultivation, il fallait en échanger une vie. La seule autre option consistait à attendre que son fragment soit absorbé par l'une de ces formes de vie, puis à se battre pour le récupérer. Toutefois, trouver son propre fragment parmi l'océan infini de fragments dans la tombe de Suzaku était une chose qui ne pouvait être forcée ; cela dépendait uniquement de la chance.
 
 À cet instant, le corps de Wang Lin émergea de la mer. Yunque Zi le suivait de près, tandis que le petit singe possédé par Tuo Sen avait disparu sans laisser de trace.
 
 En surgissant des eaux, Wang Lin avait déjà repris le contrôle. Il savait désormais que Na Duo avait menti : ce cristal n'avait rien à voir avec le Sens Divin, et encore moins avec une capacité d'évolution.
 
-Sans aucun regret, il projeta le cristal en criant : « C'est le Cristal de la Planète de Culture ! »
+Sans aucun regret, il projeta le cristal en criant : « C'est le Cristal de la Planète de Cultivation ! »
 
 Il ne le lança pas au hasard, mais précisément là où se trouvaient Liu Mei et Qian Feng.
 

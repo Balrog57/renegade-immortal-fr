@@ -114,6 +114,6 @@ Wang Lin leva soudainement les bras comme s'il soutenait la montagne elle-même,
 
 Le vide entier s'illumina soudainement, révélant l'étendue du filet. Ce filet était infini, rendant impossible toute perception de ses limites. Il entourait la totalité du Royaume Intérieur et, au fil des éons, malgré tous les efforts des cultivateurs du Royaume Intérieur, nul n'avait jamais réussi à briser la formation à une échelle suffisante pour permettre l'accès au Royaume Extérieur !
 
-Seuls quelques individus prodigieux avaient pu utiliser leur puissante culture pour s'en extraire par leurs propres moyens !
+Seuls quelques individus prodigieux avaient pu utiliser leur puissante cultivation pour s'en extraire par leurs propres moyens !
 
 Cependant, à travers les âges, personne n'avait jamais emprunté la puissance de la divine rétribution pour briser la Formation du Royaume Scellé. Wang Lin était le premier !

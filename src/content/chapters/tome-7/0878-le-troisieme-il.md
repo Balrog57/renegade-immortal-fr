@@ -32,7 +32,7 @@ Sur le champ de bataille, un éclat doré jaillit et une rune dorée apparut. Ce
 
 Wang Lin récupéra le Sceau Céleste. Il regarda Shengong Hu, pétrifié, puis frappa son sac de rangement. Après en avoir sorti quelques pilules, il les tendit à Shengong Hu.
 
-« Trouve un endroit caché et concentre-toi sur ta culture ! »
+« Trouve un endroit caché et concentre-toi sur ta cultivation ! »
 
 Shengong Hu prit les pilules. Alors qu'il s'apprêtait à les avaler, ses yeux se plissèrent soudainement. Il fixa le sac de rangement de Wang Lin et, après une hésitation, demanda : « Monseigneur... vous... pouvez ouvrir votre sac ? »
 

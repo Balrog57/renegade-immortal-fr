@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 668 - The Cause from Four Years Ago
 slug: la-cause-dil-y-a-quatre-ans
 ---
-Wang Lin dit calmement : « Je vous avais pourtant prévenu ! » Dans son cœur, bien que Sun Xi possédât le même niveau de culture que lui, il ne le considérait pas comme son égal. En réalité, Wang Lin ne percevait aucun cultivateur de la planète Ran Yun comme une menace. De plus, ce Sun Xi était venu malgré son avertissement, ce qui signifiait qu'il venait solliciter une faveur. Malgré cela, Sun Xi devait être sanctionné, sans quoi d'autres ennuis surgiraient à l'avenir.
+Wang Lin dit calmement : « Je vous avais pourtant prévenu ! » Dans son cœur, bien que Sun Xi possédât le même niveau de cultivation que lui, il ne le considérait pas comme son égal. En réalité, Wang Lin ne percevait aucun cultivateur de la planète Ran Yun comme une menace. De plus, ce Sun Xi était venu malgré son avertissement, ce qui signifiait qu'il venait solliciter une faveur. Malgré cela, Sun Xi devait être sanctionné, sans quoi d'autres ennuis surgiraient à l'avenir.
 
 C'est pour cette raison que le ton de Wang Lin n'avait rien de poli.
 
@@ -22,7 +22,7 @@ Sun Xi réfléchit longuement avant de sourire amèrement. « J'ai été imprude
 
 Wang Lin ne répondit pas et poursuivit sa marche.
 
-Sun Xi serra les dents et lança : « Frère Xu, si vous m'aidez cette fois, je pourrai engager toute la famille Sun pour soutenir votre culture ! »
+Sun Xi serra les dents et lança : « Frère Xu, si vous m'aidez cette fois, je pourrai engager toute la famille Sun pour soutenir votre cultivation ! »
 
 Wang Lin rétorqua calmement : « Votre famille ne peut se permettre de soutenir deux cultivateurs Ascendants ! »
 
@@ -38,9 +38,9 @@ Ses explications visaient également à tester les origines de Wang Lin.
 
 Wang Lin eut un léger sourire. « Votre famille a un cadet nommé Sun Xueshan. Se porte-t-il bien ? »
 
-Une lueur étrange passa dans les yeux de Sun Xi qui lui adressa un regard suggestif avant de sourire : « Xueshan possède une bonne culture, mais manque d'expérience. Je vous suis très reconnaissant, frère Xu, de l'avoir sauvé. »
+Une lueur étrange passa dans les yeux de Sun Xi qui lui adressa un regard suggestif avant de sourire : « Xueshan possède une bonne cultivation, mais manque d'expérience. Je vous suis très reconnaissant, frère Xu, de l'avoir sauvé. »
 
-Les deux hommes se sourirent mutuellement tout en détournant le regard. L'appréhension que Sun Xi éprouvait envers Wang Lin s'intensifiait. Il l'observa du coin de l'œil et soupira intérieurement : « Les origines de cet homme sont mystérieuses et sa pensée est d'une profondeur extrême. Il a immédiatement percé la manœuvre de reconnaissance de Sun Qiming. Il a pu dissiper le doute que j'avais semé sur son identité en mentionnant Xueshan. Comme il a déjà changé d'apparence, je ne peux au mieux que feindre l'ignorance et ne pas creuser davantage. Pourtant, il l'a admis de lui-même, ce qui est étrange ; il n'a manifestement pas peur que je sache. Sa culture est également très élevée, bien au-dessus de la mienne. Un tel homme est quelqu'un avec qui ma famille Sun doit se lier d'amitié plutôt que de se faire un ennemi. »
+Les deux hommes se sourirent mutuellement tout en détournant le regard. L'appréhension que Sun Xi éprouvait envers Wang Lin s'intensifiait. Il l'observa du coin de l'œil et soupira intérieurement : « Les origines de cet homme sont mystérieuses et sa pensée est d'une profondeur extrême. Il a immédiatement percé la manœuvre de reconnaissance de Sun Qiming. Il a pu dissiper le doute que j'avais semé sur son identité en mentionnant Xueshan. Comme il a déjà changé d'apparence, je ne peux au mieux que feindre l'ignorance et ne pas creuser davantage. Pourtant, il l'a admis de lui-même, ce qui est étrange ; il n'a manifestement pas peur que je sache. Sa cultivation est également très élevée, bien au-dessus de la mienne. Un tel homme est quelqu'un avec qui ma famille Sun doit se lier d'amitié plutôt que de se faire un ennemi. »
 
 « La planète Dong Lin... Cet homme pourrait-il vraiment être originaire de la planète Dong Lin... ? » songea Sun Xi en silence.
 

@@ -10,7 +10,7 @@ Wang Lin pouvait observer tout ce qui se passait à l'extérieur tout en étant 
 
 À l'origine, avant que la perle défiant le ciel ne le reconnaisse comme son maître, il n'en était pas capable ; mais après avoir atteint le stade intermédiaire de la Formation du Noyau, il avait remarqué un changement lorsqu'il pénétrait dans l'espace de la perle.
 
-Ce sentiment était également apparu lorsqu'il avait franchi pour la première fois le stade de la Formation du Noyau, mais il n'était pas aussi évident qu'aujourd'hui. Wang Lin sentait que sa culture n'était qu'une des raisons ; l'autre pouvait être due au renforcement de son âme.
+Ce sentiment était également apparu lorsqu'il avait franchi pour la première fois le stade de la Formation du Noyau, mais il n'était pas aussi évident qu'aujourd'hui. Wang Lin sentait que sa cultivation n'était qu'une des raisons ; l'autre pouvait être due au renforcement de son âme.
 
 L'âme errante du troisième royaume permettait à son âme de croître rapidement.
 
@@ -30,7 +30,7 @@ Après avoir ravivé ce souvenir, il prit une profonde inspiration. Pourtant, un
 
 Tout semblait avoir été préparé, attendant simplement l'arrivée du Seigneur Démon des Six Désirs pour être consommé. Il pouvait clairement sentir ce dernier devenir plus puissant.
 
-Le Seigneur Démon des Six Désirs ressentit une puissance qu'il n'avait jamais connue auparavant. La Culture du Démon du Ciel Mystérieux avait atteint son achèvement. Son cœur était rempli d'excitation. L'objectif qu'il poursuivait depuis des milliers d'années était enfin atteint. Il se sentait d'une assurance absolue.
+Le Seigneur Démon des Six Désirs ressentit une puissance qu'il n'avait jamais connue auparavant. La Cultivation du Démon du Ciel Mystérieux avait atteint son achèvement. Son cœur était rempli d'excitation. L'objectif qu'il poursuivait depuis des milliers d'années était enfin atteint. Il se sentait d'une assurance absolue.
 
 Cette confiance émanait du désir qu'il venait d'absorber du corps du Dieu Ancien. En combinant les six désirs, une puissance très spéciale s'était créée, lui permettant de contrôler la vie et la mort d'autrui.
 
@@ -58,7 +58,7 @@ Les yeux du Magicien Démon du Ciel brillèrent de cupidité. Loin de stopper le
 
 Soudain, derrière lui, les mêmes piliers de fumée apparurent, formant six esprits féroces qui chargèrent en avant.
 
-Le Seigneur Démon des Six Désirs esquissa un sourire perfide. Bien qu'il ait appris auprès du Magicien Démon du Ciel, il savait que ce dernier ne lui avait pas enseigné certains aspects de la Culture du Démon du Ciel Mystérieux. Depuis longtemps, il perfectionnait lui-même cette culture et était convaincu qu'elle n'était absolument pas inférieure à celle de son maître.
+Le Seigneur Démon des Six Désirs esquissa un sourire perfide. Bien qu'il ait appris auprès du Magicien Démon du Ciel, il savait que ce dernier ne lui avait pas enseigné certains aspects de la Cultivation du Démon du Ciel Mystérieux. Depuis longtemps, il perfectionnait lui-même cette cultivation et était convaincu qu'elle n'était absolument pas inférieure à celle de son maître.
 
 Alors que les deux techniques presque identiques se percutèrent, le Magicien Démon du Ciel laissa échapper un sourire étrange. Il ouvrit soudainement les bras et son corps commença à flotter vers le haut.
 
@@ -88,13 +88,13 @@ La voix du Magicien Démon du Ciel prit des airs démoniaques : « Utilise le sa
 
 D'un geste de la main droite du Magicien Démon du Ciel, tout le sang s'écoulant des blessures du Seigneur Démon des Six Désirs se rassembla pour former une sphère de sang flottant dans l'air. Tout au long du processus, son corps était maintenu par une force invisible ; il était incapable de lutter.
 
-« Utilise la culture de cette personne pour tracer la route... utilise les six désirs du Dieu Ancien Tu Si comme médium... ouvre le lieu où repose l'âme du Dieu Ancien... » Les yeux du Magicien Démon du Ciel brillaient d'une lueur de folie. Il avait attendu 4 000 ans pour ce moment.
+« Utilise la cultivation de cette personne pour tracer la route... utilise les six désirs du Dieu Ancien Tu Si comme médium... ouvre le lieu où repose l'âme du Dieu Ancien... » Les yeux du Magicien Démon du Ciel brillaient d'une lueur de folie. Il avait attendu 4 000 ans pour ce moment.
 
 En réalité, lorsqu'il était entré dans la Terre des Dieux Anciens il y a mille ans, ce n'était pas sa première fois, mais la troisième. Il y a 4 000 ans, lors de sa première incursion grâce à un trésor magique, il avait réussi à franchir le troisième royaume pour atteindre le quatrième. C’est là qu’il avait obtenu l'os du bras. Il avait alors réalisé que ce lieu contenait des fluctuations de désirs inimaginables. Là où d'autres ne ressentiraient qu'un malaise intérieur, lui était extrêmement sensible, car il utilisait déjà divers désirs comme vecteurs d'attaque.
 
 Le Magicien Démon du Ciel pouvait être considéré comme un génie sans égal. Lorsqu'il avait détecté ces étranges désirs, il n'avait pas cherché à les absorber immédiatement, préférant utiliser l'os du bras pour quitter la Terre des Dieux Anciens.
 
-Après sa sortie, il s'était consacré à l'étude des désirs jusqu'à créer la Méthode de Culture du Démon du Ciel Mystérieux. Lors de sa deuxième visite, il atteignit également le quatrième royaume, mais constata que les désirs du Dieu Ancien étaient devenus encore plus puissants. Il commença aussi à croiser ces cultivateurs démoniaques.
+Après sa sortie, il s'était consacré à l'étude des désirs jusqu'à créer la Méthode de Cultivation du Démon du Ciel Mystérieux. Lors de sa deuxième visite, il atteignit également le quatrième royaume, mais constata que les désirs du Dieu Ancien étaient devenus encore plus puissants. Il commença aussi à croiser ces cultivateurs démoniaques.
 
 Choqué, il avait décidé de fuir et, après un combat acharné, avait réussi à s'échapper de justesse. C’est à ce moment qu’il découvrit certains secrets concernant l'héritage du Dieu Ancien.
 

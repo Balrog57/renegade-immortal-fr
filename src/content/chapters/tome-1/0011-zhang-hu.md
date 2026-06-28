@@ -8,7 +8,7 @@ slug: zhang-hu
 ---
 « Le Blaireau ? » Wang Lin était stupéfait. La première personne à laquelle il avait pensé et qui pouvait correspondre à cette description était le disciple vêtu de jaune qui s'était moqué de lui, mais il n'en était pas certain.
 
-« Ah ? Tu ne l'as pas vu ? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honorifique, mais on lui a accordé le droit de commencer sa culture. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme. Nous l'appelons tous le Blaireau », expliqua Zhang Hu tout en buvant de l'eau.
+« Ah ? Tu ne l'as pas vu ? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honorifique, mais on lui a accordé le droit de commencer sa cultivation. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme. Nous l'appelons tous le Blaireau », expliqua Zhang Hu tout en buvant de l'eau.
 
 Wang Lin prit une bouchée de patate douce, puis dit : « Je sais de qui il s'agit, je l'ai vu aujourd'hui. Il m'a ordonné de rapporter dix jarres d'eau par jour dès demain, sans quoi je n'aurai aucune nourriture. »
 
@@ -50,9 +50,9 @@ Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé depui
 
 Wang Lin apprit que le travail de Zhang Hu consistait à ramasser du bois de chauffage. Il devait collecter une quantité suffisante avant de pouvoir manger. Cela faisait trois ans qu'il accomplissait cette tâche depuis qu'il était devenu disciple honorifique de la Secte Heng Yue. Il y a trois ans, il ne mangeait qu'une fois tous les trois ou quatre jours, mais désormais, il avait réussi à réduire ce délai à une fois tous les deux jours.
 
-D'après lui, les disciples honorifiques devaient accomplir des corvées pendant dix ans et être capables de prendre trois repas par jour avant même d'apprendre la technique de culture la plus rudimentaire.
+D'après lui, les disciples honorifiques devaient accomplir des corvées pendant dix ans et être capables de prendre trois repas par jour avant même d'apprendre la technique de cultivation la plus rudimentaire.
 
-Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur propre maître, ne faisaient aucune corvée et disposaient de leurs propres chambres. Leur seule occupation était la culture.
+Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur propre maître, ne faisaient aucune corvée et disposaient de leurs propres chambres. Leur seule occupation était la cultivation.
 
 De plus, il existait une classe intermédiaire entre les disciples intérieurs et les honorifiques, comme Wang Hao qui était devenu un assistant, bien qu'il ne fût en réalité qu'un serviteur. Ces personnes n'avaient pas de corvées à effectuer et pratiquaient également quelques techniques de bas niveau ; elles devaient simplement accomplir le travail assigné par leur maître. Cependant, ces individus possédaient très peu de talent et passaient toute leur vie à n'être que des assistants.
 

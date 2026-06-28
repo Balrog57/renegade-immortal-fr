@@ -12,7 +12,7 @@ La mort de ces créatures déclencha une série de réactions en chaîne. À cet
 
 Ces morts survinrent silencieusement ; elles étaient impossibles à éviter et ne pouvaient être considérées que comme une calamité.
 
-Heureusement, peu de personnes périrent, mais si le Cristal de Culture Planétaire s'effondrait, la planète entière serait condamnée...
+Heureusement, peu de personnes périrent, mais si le Cristal de Cultivation Planétaire s'effondrait, la planète entière serait condamnée...
 
 Le rire dément de Zhuque Zi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même : « Mon cher frère cadet, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
 

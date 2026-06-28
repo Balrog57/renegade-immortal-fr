@@ -86,7 +86,7 @@ Tout dépendrait de la rapidité avec laquelle le dragon ou l'humain activerait 
 
 Wang Lin serra les dents et, sans hésiter, ferma les yeux pour laisser sortir son âme originelle. Au moment précis où le dragon pénétrait dans la fissure et s'apprêtait à cracher sa boule de foudre, l'âme originelle de Wang Lin dévora le dragon de tonnerre !
 
-Autrefois, Wang Lin était un dévoreur d'âmes capable de consumer chaque esprit du monde. Cependant, à mesure que son niveau de culture augmentait, il avait progressivement cessé d'utiliser cette technique. À cet instant, son âme originelle s'étendit considérablement. Le dragon de tonnerre fut totalement stupéfait par ce dévorat.
+Autrefois, Wang Lin était un dévoreur d'âmes capable de consumer chaque esprit du monde. Cependant, à mesure que son niveau de cultivation augmentait, il avait progressivement cessé d'utiliser cette technique. À cet instant, son âme originelle s'étendit considérablement. Le dragon de tonnerre fut totalement stupéfait par ce dévorat.
 
 Après avoir absorbé l'âme du dragon de tonnerre antique, l'âme originelle de Wang Lin retourna instantanément dans son corps. À cet instant, une explosion puissante secoua son essence même.
 
@@ -108,7 +108,7 @@ Cependant, l'autre côté du péril était une opportunité infinie !
 
 L'âme originelle de Wang Lin, enveloppée par la foudre du dragon, vit une quantité massive de tonnerre se rassembler dans son corps. Alors que les grondements persistaient, une trace de tonnerre apparut au cœur même de son âme originelle !
 
-Son essence était dans un état prodigieux et subissait un changement bouleversant. Ce changement n'améliorerait peut-être pas sa culture immédiatement, mais il ouvrirait d'innombrables voies à Wang Lin pour l'avenir !
+Son essence était dans un état prodigieux et subissait un changement bouleversant. Ce changement n'améliorerait peut-être pas sa cultivation immédiatement, mais il ouvrirait d'innombrables voies à Wang Lin pour l'avenir !
 
 Une âme originelle contenant du tonnerre... Même le Tout-Voyant n'avait jamais vu de cultivateur parvenir à un tel exploit !
 

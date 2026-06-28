@@ -2,7 +2,7 @@
 n: 1018
 title: Nirvana (2)
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1018 - Nirvana (2)
 slug: nirvana-2
 ---
@@ -48,7 +48,7 @@ La petite épée blanche fut la plus rapide et percuta soudainement la rune. De 
 
 C'était comme si d'innombrables êtres utilisaient diverses techniques d'épée pour émettre une énergie qui fusionnait en une intention d'épée monstrueuse, projetée contre la rune de diamant !
 
-La rune de diamant trembla violemment ! Un grondement assourdissant retentit lors de ses secousses. Le corps de Wang Lin vacilla et il cracha du sang. Il subirait un contrecoup violent pour avoir utilisé ce sort à son niveau de culture actuel !
+La rune de diamant trembla violemment ! Un grondement assourdissant retentit lors de ses secousses. Le corps de Wang Lin vacilla et il cracha du sang. Il subirait un contrecoup violent pour avoir utilisé ce sort à son niveau de cultivation actuel !
 
 Une lueur froide apparut dans les yeux de Wang Lin alors qu'il fixait l'horizon. Ses étoiles de Dieu Ancien tournèrent rapidement et une immense quantité de pouvoir divin ancestral pénétra la rune de diamant, la forçant à continuer sa progression !
 

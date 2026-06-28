@@ -46,9 +46,9 @@ Il aperçut également certains des anciens cultivateurs issus de la mer de sang
 
 Le visage de Wang Lin demeurait serein, mais une pointe de dédain perçait dans son regard. À chaque fois qu'il se trouvait face à une telle situation, il choisissait de s'éloigner.
 
-« La tentation des anciens raffineurs de Qi suffit à engendrer la cupidité de certains. Il y a un prix lourd à payer pour obtenir les méthodes de culture et les sorts de ces anciens êtres ! »
+« La tentation des anciens raffineurs de Qi suffit à engendrer la cupidité de certains. Il y a un prix lourd à payer pour obtenir les méthodes de cultivation et les sorts de ces anciens êtres ! »
 
-Bien que leurs niveaux de culture variaient, tous ces anciens possédaient des sorts redoutables. Souvent, un seul d'entre eux suffisait à terrasser plusieurs cultivateurs qui tentaient de le combattre.
+Bien que leurs niveaux de cultivation variaient, tous ces anciens possédaient des sorts redoutables. Souvent, un seul d'entre eux suffisait à terrasser plusieurs cultivateurs qui tentaient de le combattre.
 
 Tous les anciens que Wang Lin avait croisés n'étaient que les plus faibles de la mer de sang. Il n'avait pas encore aperçu le moindre des puissants anciens cultivateurs.
 

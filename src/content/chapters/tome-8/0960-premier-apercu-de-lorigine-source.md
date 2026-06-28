@@ -20,7 +20,7 @@ Wang Lin fronça les sourcils en fixant la flamme. Sous sa lumière, son visage 
 
 À cet instant, bien que Wang Lin ne le sache pas, son état était très proche d'une confirmation du Dao ; mais au lieu de confirmer son propre Dao, il confirmait celui de l'All-Seer.
 
-Il connaissait l'All-Seer depuis des centaines d'années. À l'époque, avec son faible niveau de culture, il ne pouvait percevoir les changements sur le corps de l'All-Seer. Désormais, il était capable d'en discerner vaguement quelques indices.
+Il connaissait l'All-Seer depuis des centaines d'années. À l'époque, avec son faible niveau de cultivation, il ne pouvait percevoir les changements sur le corps de l'All-Seer. Désormais, il était capable d'en discerner vaguement quelques indices.
 
 Trop de secrets entouraient l'All-Seer. Ce qui terrifiait le plus Wang Lin, c'était son incapacité totale à deviner ce qui se tramait dans l'esprit de l'autre partie.
 
@@ -86,8 +86,8 @@ Alors que les éléments continuaient de croître, des traces de lignes illusoir
 
 Une sueur froide perla sur son front, trempant entièrement ses vêtements. Wang Lin était livide et prit une profonde inspiration. Il regarda la bougie et murmura : « Qu'était-ce que c'était... cela pourrait-il être l'Origine Source... ? »
 
-« J'ai pu saisir cette loi, mais je n'ai entrevu l'Origine Source qu'un instant ; mon corps ne peut le supporter. » Wang Lin réfléchit un long moment avant de fermer les yeux pour se mettre en culture.
+« J'ai pu saisir cette loi, mais je n'ai entrevu l'Origine Source qu'un instant ; mon corps ne peut le supporter. » Wang Lin réfléchit un long moment avant de fermer les yeux pour se mettre en cultivation.
 
-Le temps passa lentement. L'obscurité devant la fenêtre disparut pour laisser place à la lumière. À l'aube, Wang Lin ouvrit les yeux après sa culture. Un regard capable de percer n'importe quoi se posa alors sur la porte.
+Le temps passa lentement. L'obscurité devant la fenêtre disparut pour laisser place à la lumière. À l'aube, Wang Lin ouvrit les yeux après sa cultivation. Un regard capable de percer n'importe quoi se posa alors sur la porte.
 
 « Septième frère... Puis-je entrer ? » Une voix douce parvint de l'extérieur du pavillon.

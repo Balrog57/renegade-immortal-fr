@@ -18,7 +18,7 @@ Une aura glaciale émana de son corps dès qu'il se redressa. Le jeune homme s'�
 
 « Ce corps n'est pas mauvais... » Le jeune homme s'assit, fit bouger sa tête, puis se leva.
 
-Une puissante culture circula au sein de son corps et l'énergie originelle convergea de toutes parts. Cependant, le corps resta au stade de la Formation du Noyau ; il n'y eut aucune augmentation de niveau ni transformation de la physiologie corporelle.
+Une puissante cultivation circula au sein de son corps et l'énergie originelle convergea de toutes parts. Cependant, le corps resta au stade de la Formation du Noyau ; il n'y eut aucune augmentation de niveau ni transformation de la physiologie corporelle.
 
 C'était Wang Lin !
 
@@ -30,13 +30,13 @@ Par conséquent, Wang Lin avait déjà élaboré un plan. Il allait posséder le
 
 Plus précisément, il avait possédé le corps de quelqu'un qui n'était pas encore mort, ce qui rendait son plan infaillible ! Wang Lin avait même indirectement sauvé la vie de cette personne. Une fois que Wang Lin aurait absorbé le tonnerre éternel et serait parti, cet individu reprendrait le contrôle de son corps. Selon la durée de la possession, cette personne recevrait une immense fortune.
 
-Avec le niveau de culture de Wang Lin, il n'avait pas à se soucier de la période d'adaptation initiale après la possession, et il n'avait nullement l'intention de s'approprier définitivement ce corps.
+Avec le niveau de cultivation de Wang Lin, il n'avait pas à se soucier de la période d'adaptation initiale après la possession, et il n'avait nullement l'intention de s'approprier définitivement ce corps.
 
 Après avoir exploré les souvenirs de ce corps, Wang Lin apprit que cet homme s'appelait Yu Fei. C'était un membre très ordinaire du Clan du Tonnerre Dispersé. Ses parents étaient morts tôt et il s'était retrouvé seul. Après bien des épreuves, il avait atteint le stade de la Formation du Noyau et avait hérité d'une grotte laissée par ses parents.
 
-Cette grotte, située près d'une veine spirituelle, était considérée comme excellente. Cependant, avec son niveau de culture, il n'avait aucun moyen de la conserver longtemps. Trois jours après l'avoir héritée, elle lui fut volée et il fut expulsé.
+Cette grotte, située près d'une veine spirituelle, était considérée comme excellente. Cependant, avec son niveau de cultivation, il n'avait aucun moyen de la conserver longtemps. Trois jours après l'avoir héritée, elle lui fut volée et il fut expulsé.
 
-Au cours des 200 années qui suivirent cet incident, sa culture resta stagnante. S'il n'avait pas bénéficié de la physiologie du Clan du Tonnerre Dispersé, qui lui accordait une longévité accrue, il serait mort depuis longtemps. Pourtant, ces deux siècles furent pour lui un calvaire. Maltraité par son propre clan, sa vie était pire que la mort !
+Au cours des 200 années qui suivirent cet incident, sa cultivation resta stagnante. S'il n'avait pas bénéficié de la physiologie du Clan du Tonnerre Dispersé, qui lui accordait une longévité accrue, il serait mort depuis longtemps. Pourtant, ces deux siècles furent pour lui un calvaire. Maltraité par son propre clan, sa vie était pire que la mort !
 
 Il était récemment tombé sous la domination d'un cultivateur de l'Âme Naissante, le même niveau que celui qui lui avait volé sa grotte des années auparavant. À l'intérieur de cette grotte se trouvait un Arbre aux Fruits de Tonnerre, laissé par les parents de Yu Fei.
 
@@ -44,9 +44,9 @@ Le cultivateur de l'Âme Naissante avait permis à Yu Fei de faire pousser ces f
 
 Cependant, pour que le fruit mûrisse, un cultivateur au moins au stade de la Formation du Noyau devait le nourrir avec la puissance du tonnerre.
 
-Yu Fei, sachant que sa culture stagnait et que sa vie touchait à sa fin, avait hésité avant de dévorer l'un des neuf Fruits de Tonnerre, mais cet acte lui attira une calamité.
+Yu Fei, sachant que sa cultivation stagnait et que sa vie touchait à sa fin, avait hésité avant de dévorer l'un des neuf Fruits de Tonnerre, mais cet acte lui attira une calamité.
 
-Si la règle interdisant aux membres d'un même clan de s'entretuer n'avait existé, il serait déjà mort. Cependant, il fut profondément humilié ; en plus de ses blessures graves, sa culture fut aspirée. Il fut ensuite expulsé par le cultivateur de l'Âme Naissante.
+Si la règle interdisant aux membres d'un même clan de s'entretuer n'avait existé, il serait déjà mort. Cependant, il fut profondément humilié ; en plus de ses blessures graves, sa cultivation fut aspirée. Il fut ensuite expulsé par le cultivateur de l'Âme Naissante.
 
 Yu Fei n'avait que peu de souvenirs, et la plupart étaient extrêmement sombres. Il nourrissait une haine monstrueuse : il se détestait lui-même, détestait le Clan du Tonnerre Dispersé, détestait tous ses membres, et sa personnalité en était devenue tordue.
 
@@ -54,7 +54,7 @@ Le sens divin de Wang Lin quitta la mémoire de Yu Fei et ses yeux s'illuminère
 
 « Fruit de tonnerre... renforce la marque du clan... » Après être arrivé dans le Système Stellaire Antique, Wang Lin avait dévoré de nombreux cultivateurs et avait acquis une compréhension des méthodes locales.
 
-Le Système Stellaire Antique était totalement différent du Royaume Intérieur. Ils ne cultivaient pas de domaines ; au lieu de cela, la culture d'un individu se concentrait dans la marque située entre ses sourcils. Cette marque était un héritage. Plus elle devenait puissante, plus le niveau de culture augmentait !
+Le Système Stellaire Antique était totalement différent du Royaume Intérieur. Ils ne cultivaient pas de domaines ; au lieu de cela, la cultivation d'un individu se concentrait dans la marque située entre ses sourcils. Cette marque était un héritage. Plus elle devenait puissante, plus le niveau de cultivation augmentait !
 
 Wang Lin toucha la marque du tonnerre entre ses sourcils. Cette marque avait été créée par lui-même. Bien qu'elle ressemble à celle du Clan du Tonnerre Dispersé, sa nature était bien différente !
 
@@ -64,11 +64,11 @@ Cependant, la marque de Wang Lin avait été forgée par sa propre volonté et p
 
 « Je dois étudier le Fruit de Tonnerre... Quant au Clan du Tonnerre Dispersé, le niveau de Yu Fei est trop bas pour qu'il en sache beaucoup. Peut-être que ce cultivateur de l'Âme Naissante en saura davantage. » Wang Lin réfléchit tout en se dirigeant vers l'emplacement de la grotte mémorisée.
 
-Cette zone de culture était immense. Wang Lin ne se téléporta pas, mais survola le sol. Son sens divin se déploya discrètement pour observer les environs.
+Cette zone de cultivation était immense. Wang Lin ne se téléporta pas, mais survola le sol. Son sens divin se déploya discrètement pour observer les environs.
 
 Peu après, trois rayons de lumière apparurent devant lui. Il y avait un homme et deux femmes. L'homme, vêtu de blanc, était très beau, et les deux femmes qui l'accompagnaient étaient d'une grande beauté.
 
-Tandis qu'ils volaient sur des épées de vol, ils semblaient discuter. Le niveau de culture de l'homme était respectable, au stade avancé de la Formation du Noyau, tandis que les deux femmes étaient au début de la Formation du Noyau.
+Tandis qu'ils volaient sur des épées de vol, ils semblaient discuter. Le niveau de cultivation de l'homme était respectable, au stade avancé de la Formation du Noyau, tandis que les deux femmes étaient au début de la Formation du Noyau.
 
 Alors qu'il discutait, le regard de l'homme balaya Wang Lin. En voyant ce dernier passer sans même lui accorder un regard, il fronça les sourcils.
 
@@ -96,11 +96,11 @@ Les trois ressentirent un rugissement au fond de leur cœur, bien que le monde e
 
 Le jeune homme en blanc devint livide et son regard se voila de stupeur. Il afficha alors une horreur indescriptible.
 
-Wang Lin fronça les sourcils. Avec son niveau de culture, il n'avait aucune envie de s'en prendre à ces juniors du Royaume Extérieur. Il retira son regard et poursuivit sa route.
+Wang Lin fronça les sourcils. Avec son niveau de cultivation, il n'avait aucune envie de s'en prendre à ces juniors du Royaume Extérieur. Il retira son regard et poursuivit sa route.
 
 Ce n'est que bien après son départ que le jeune homme en blanc cracha une importante bouffée de sang. Les deux femmes derrière lui firent de même. D'innombrables fissures marquaient leurs noyaux qui commençaient à fondre.
 
-Le visage des deux femmes était d'une pâleur mortelle, et leur niveau de culture chuta instantanément du début de la Formation du Noyau à l'Établissement des Fondations.
+Le visage des deux femmes était d'une pâleur mortelle, et leur niveau de cultivation chuta instantanément du début de la Formation du Noyau à l'Établissement des Fondations.
 
 Quant au jeune homme en blanc, son noyau vola en éclats. Il regarda l'endroit où Wang Lin avait disparu avec terreur et choc.
 

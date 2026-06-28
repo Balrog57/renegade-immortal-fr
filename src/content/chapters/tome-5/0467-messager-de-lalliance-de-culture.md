@@ -102,7 +102,7 @@ Le cœur de Wang Lin trembla tandis qu'il fixait l'homme masqué.
 
 À cet instant, non seulement celui de Wang Lin, mais tous les regards présents étaient braqués sur cet individu.
 
-Les yeux d'Yunque Zi étaient emplis de terreur. Il reconnut immédiatement que cet homme était un cultivateur dont il ne pouvait percevoir le niveau de culture !
+Les yeux d'Yunque Zi étaient emplis de terreur. Il reconnut immédiatement que cet homme était un cultivateur dont il ne pouvait percevoir le niveau de cultivation !
 
 Il faut dire qu'il pouvait sonder les cultivateurs jusqu'au stade tardif de l'Ascendant. S'il ne parvenait pas à voir clair en quelqu'un, c'est que cet individu devait se situer au-delà du stade Ascendant !
 
@@ -116,9 +116,9 @@ Yunque Zi fixa l'inconnu et murmura pour lui-même : « Ye Wuyou ? »
 
 « Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard ! » Zhuque Zi coupa rapidement la parole à Yunque Zi. Il regarda l'homme masqué et dit respectueusement : « Ce junior salue le Messager de l'Alliance. Concernant cette affaire, ce junior reconnaît ses torts. »
 
-« Le Messager de l'Alliance... le Messager de l'Alliance de Culture ! » Yunque Zi prit une inspiration glacée.
+« Le Messager de l'Alliance... le Messager de l'Alliance de Cultivation ! » Yunque Zi prit une inspiration glacée.
 
-« Zhuque Zi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester ! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement ! »
+« Zhuque Zi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester ! Tenter de briser le Cristal de la Planète de Cultivation est considéré comme un crime majeur au sein de l'Alliance de Cultivation. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement ! »
 
 Le visage de Zhuque Zi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit : « Je peux partir, mais le Clan des Immortels Abandonnés... »
 
@@ -126,9 +126,9 @@ L'homme masqué l'interrompit : « Je m'en occuperai ! »
 
 Zhuque Zi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. Un sourire amer resta sur son visage alors qu'il rendait l'âme...
 
-Sa durée de vie touchait déjà à sa fin, mais il avait volé celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
+Sa durée de vie touchait déjà à sa fin, mais il avait volé celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Cultivation, il devait tout abandonner...
 
-Au moment de sa mort, il se souvint d'un fragment laissé par le premier Suzaku, Ye Wuyou. Celui-ci stipulait qu'il y avait toujours un Messager de l'Alliance de Culture sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
+Au moment de sa mort, il se souvint d'un fragment laissé par le premier Suzaku, Ye Wuyou. Celui-ci stipulait qu'il y avait toujours un Messager de l'Alliance de Cultivation sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
 
 Les yeux de Wang Lin s'illuminèrent et il recula lentement.
 

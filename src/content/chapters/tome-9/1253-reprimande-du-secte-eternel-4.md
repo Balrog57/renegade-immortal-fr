@@ -24,13 +24,13 @@ Non seulement lui, mais le vieil homme aux cheveux roux prit également une gran
 
 L'homme d'âge mûr nommé Zhou fixait Wang Lin au cœur du tonnerre, ses yeux brillant comme des éclairs. Son esprit tremblait de terreur. Ce qui l'effrayait par-dessus tout, c'était qu'il n'avait absolument pas perçu l'arrivée de Wang Lin ; ce n'est que lorsque le tonnerre avait fait résonner le ciel qu'il avait réalisé sa présence.
 
-Un tel sort capable de dissimuler son aura choqua profondément Zhou. Il ne s'agissait pas seulement d'un sortilège, mais du fait que le niveau de culture de cet homme surpassait de loin le sien !
+Un tel sort capable de dissimuler son aura choqua profondément Zhou. Il ne s'agissait pas seulement d'un sortilège, mais du fait que le niveau de cultivation de cet homme surpassait de loin le sien !
 
 Le vieil homme qui avait conduit ses disciples dans le Domaine de la Brume des Bêtes du Chaos était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir : « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Mu Jiangping. Salutations, Camarade Cultivateur ! »
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu : cet homme possédait le pouvoir de balayer les régions de rang 6 et 7 !
 
-Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant du Secte Éternel, il avait atteint le premier stade du Flétrissement Céleste !
+Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de cultivation était le plus élevé ici. Bien qu'il ne fût pas le plus puissant du Secte Éternel, il avait atteint le premier stade du Flétrissement Céleste !
 
 C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nul autre ne voyait. Il fixa l'espace entre les sourcils de Wang Lin et, bien qu'il n'y eût rien de visible, il sentit distinctement la puissance d'une loi résider en ce point !
 
@@ -84,7 +84,7 @@ Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adr
 
 Il détourna le regard après un moment de choc pour observer Lu Yuncong, dont l'expression était complexe et teintée d'un sourire amer.
 
-« La culture de Frère Lu… est très différente de celle d'il y a cent ans. Ma Secte du Dao Pourpre a perdu cette compétition des sectes de rang 5 ! » Lu Yuncong joignit les mains avec amertume. Si la culture de Wang Lin n'avait été que légèrement supérieure à la sienne, il aurait eu le cœur à combattre. Mais son esprit était déjà troublé par sa simple présence, et plus terrifiant encore, il sentait son cœur dao sur le point de s'effondrer. C'était comme si l'homme devant lui était un vortex aspirant toute intention de dao. S'il perdait ne serait-ce qu'un instant sa concentration, il sentait que tout son dao serait englouti.
+« La cultivation de Frère Lu… est très différente de celle d'il y a cent ans. Ma Secte du Dao Pourpre a perdu cette compétition des sectes de rang 5 ! » Lu Yuncong joignit les mains avec amertume. Si la cultivation de Wang Lin n'avait été que légèrement supérieure à la sienne, il aurait eu le cœur à combattre. Mais son esprit était déjà troublé par sa simple présence, et plus terrifiant encore, il sentait son cœur dao sur le point de s'effondrer. C'était comme si l'homme devant lui était un vortex aspirant toute intention de dao. S'il perdait ne serait-ce qu'un instant sa concentration, il sentait que tout son dao serait englouti.
 
 Wang Lin esquissa un mince sourire, mais son expression se glaça et il demanda doucement : « Frère Lu, j'ai une question à vous poser ! Lu Yanfei est blessée. Qui a fait cela ? »
 
@@ -116,7 +116,7 @@ Mais Wang Lin agita la main et l'interrompit brutalement !
 
 À cet instant, d'un simple mouvement de doigt, le monde trembla et le Doigt du Destin Céleste apparut. Des ondulations résonnèrent dans le ciel alors qu'un doigt gigantesque se matérialisait, dégageant une pression monstrueuse. Tous les spectateurs retinrent leur souffle, pétrifiés devant ce doigt colossal qui semblait occuper tout l'espace !
 
-Le doigt hurla en descendant, s'abattant instantanément sur Lu Yingjie et son maître dans un fracas assourdissant. La terre trembla comme si la planète de culture elle-même en était ébranlée !
+Le doigt hurla en descendant, s'abattant instantanément sur Lu Yingjie et son maître dans un fracas assourdissant. La terre trembla comme si la planète de cultivation elle-même en était ébranlée !
 
 Le sang éclaboussa partout. Les corps de Lu Yingjie et de son maître volèrent en éclats et leurs âmes d'origine s'effondrèrent. Le vent souffla, propageant une odeur de mort et de sang.
 

@@ -54,9 +54,9 @@ L'homme maléfique demanda : « Oh ? Vous vous connaissez ? »
 
 L'homme mince regarda Wang Lin et dit lentement : « C'est mon frère cadet ! »
 
-« Cela fait longtemps, Frère Sun Tao. Il semble que tu doives te retirer en culture de porte fermée pendant plusieurs années pour guérir de ta grave blessure ! » dit Wang Lin. Sa voix était si calme qu'il était impossible de deviner s'il éprouvait de la joie ou de la colère. En voyant Sun Tao, il réalisa immédiatement que sa blessure était profonde, affectant même son âme originelle. Bien que la blessure ait été artificiellement contenue, la culture de Sun Tao avait chuté du stade médian de l'Ascendant au sommet du stade tardif de la Transformation de l'Âme !
+« Cela fait longtemps, Frère Sun Tao. Il semble que tu doives te retirer en cultivation de porte fermée pendant plusieurs années pour guérir de ta grave blessure ! » dit Wang Lin. Sa voix était si calme qu'il était impossible de deviner s'il éprouvait de la joie ou de la colère. En voyant Sun Tao, il réalisa immédiatement que sa blessure était profonde, affectant même son âme originelle. Bien que la blessure ait été artificiellement contenue, la cultivation de Sun Tao avait chuté du stade médian de l'Ascendant au sommet du stade tardif de la Transformation de l'Âme !
 
-Sun Tao observa attentivement Wang Lin, puis le choc dans son cœur s'apaisa lentement. En voyant Wang Lin, il découvrit naturellement que sa culture avait progressé de deux étapes, passant du stade médian de la Transformation de l'Âme au sommet du stade tardif.
+Sun Tao observa attentivement Wang Lin, puis le choc dans son cœur s'apaisa lentement. En voyant Wang Lin, il découvrit naturellement que sa cultivation avait progressé de deux étapes, passant du stade médian de la Transformation de l'Âme au sommet du stade tardif.
 
 Sun Tao dit lentement : « Jeune frère Wang, il semble que tu aies fait une rencontre fortuite ! Mais sois prudent dans la Cité du Démon Céleste à cause des membres de la Secte de l'Épée Da Lou. Ce sont eux qui m'ont infligé ces blessures ! » Une pointe de rage perçait dans sa voix. Cette colère n'était pas dirigée contre Wang Lin, mais contre la Secte de l'Épée Da Lou.
 
@@ -70,11 +70,11 @@ Sun Tao rangea les pilules, réfléchit un instant et répondit : « Si je n'ét
 
 « Ne le sous-estime pas. Ce Mo Lihai possède trois sorts puissants ! Le premier est l'Intention du Poing des Dix Effondrements, le second est la Mer Démoniaque aux Cent Vagues, et le troisième est un art qu'l'Empereur Démon lui a personnellement enseigné ; il est donc extrêmement puissant ! » soupira l'homme maléfique. « Si tu n'étais pas blessé, j'aurais une confiance absolue en notre victoire ! »
 
-Sun Tao songea un instant. Peu après, il ajouta : « Si je parviens à obtenir les matériaux nécessaires, je pourrai raffiner une Pilule de Nuage Céleste, ce qui pourrait restaurer ma culture au stade initial de l'Ascendant pour une courte période ! »
+Sun Tao songea un instant. Peu après, il ajouta : « Si je parviens à obtenir les matériaux nécessaires, je pourrai raffiner une Pilule de Nuage Céleste, ce qui pourrait restaurer ma cultivation au stade initial de l'Ascendant pour une courte période ! »
 
 L'homme maléfique hocha la tête : « Ne t'inquiète pas pour les matériaux, j'ai déjà envoyé des hommes pour les rassembler ! » Puis il changea de sujet : « Comment va ton frère cadet ? »
 
-Sun Tao afficha un regard complexe avant de soupirer : « Puissant ! Très puissant ! Même lorsque sa culture n'était qu'au stade médian de la Transformation de l'Âme, il valait mieux ne pas le provoquer ! »
+Sun Tao afficha un regard complexe avant de soupirer : « Puissant ! Très puissant ! Même lorsque sa cultivation n'était qu'au stade médian de la Transformation de l'Âme, il valait mieux ne pas le provoquer ! »
 
 Les yeux de l'homme maléfique se plissèrent. Il connaissait Sun Tao depuis longtemps, et c'était la première fois que celui-ci évaluait quelqu'un de la sorte !
 
@@ -92,17 +92,17 @@ Mo Lihai affecta deux sergents sous les ordres de Wang Lin avant de partir rejoi
 
 Wang Lin s'assit en position du lotus dans sa chambre. Outre son aide envers Mo Lihai, son autre objectif lors de ce voyage à la capitale était d'obtenir le poste de général démon. Cet endroit étant la capitale du Pays du Démon Céleste, les experts y étaient aussi nombreux que les nuages. Il savait qu'en se distinguant des autres, il lui serait bien plus facile d'obtenir ce rang.
 
-« Même la culture de Sun Tao, qui était au stade médian de l'Ascendant, a été brisée par quelqu'un, le forçant à chuter au sommet du stade tardif de la Transformation de l'Âme. Il a mentionné la Secte de l'Épée Da Lou. Plus de dix membres de cette secte sont entrés ici ; à moins qu'ils ne se soient ligués contre lui, il est impossible qu'il soit si gravement atteint... »
+« Même la cultivation de Sun Tao, qui était au stade médian de l'Ascendant, a été brisée par quelqu'un, le forçant à chuter au sommet du stade tardif de la Transformation de l'Âme. Il a mentionné la Secte de l'Épée Da Lou. Plus de dix membres de cette secte sont entrés ici ; à moins qu'ils ne se soient ligués contre lui, il est impossible qu'il soit si gravement atteint... »
 
 Après une longue réflexion, Wang Lin prit une profonde inspiration. S'il avait donné ces pilules à Sun Tao, c'était pour envoyer un signe de bonne foi. Malgré leurs divergences, ils appartenaient au même secteur. Face à la menace de la Secte de l'Épée Da Lou, ils ne pouvaient se permettre de s'affronter.
 
-Après avoir médité longuement, Wang Lin ferma les yeux et commença sa culture.
+Après avoir médité longuement, Wang Lin ferma les yeux et commença sa cultivation.
 
 Mo Lihai revint au crépuscule, le regard empreint de joie. Il discuta avec Wang Lin autour du vin, échangeant sur divers sorts. Mo Lihai lui parla également des capacités de plusieurs autres généraux démons.
 
 Le temps s'écoula rapidement et, en un clin d'œil, Wang Lin avait passé quatre jours au Manoir Mo. Il consacrait la quasi-totalité de son temps à convertir l'énergie spirituelle démoniaque en énergie spirituelle céleste afin de stabiliser davantage ses fondations.
 
-Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité du Démon Antique, sa compréhension de cet art s'était considérablement approfondie.
+Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa cultivation, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité du Démon Antique, sa compréhension de cet art s'était considérablement approfondie.
 
 Wang Lin passa ainsi ses trois mois au sein de la Tribu de Raffinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
 
@@ -112,7 +112,7 @@ Mo Lihai était extrêmement occupé durant cette période. Il partait tôt chaq
 
 Il sentait que toute la Cité du Démon Céleste était comme un baril de poudre prêt à exploser dès que la compétition entre les généraux débuterait !
 
-Wang Lin resta tranquillement au Manoir Mo pendant quatre jours, puis cessa sa culture habituelle. Assis dans la cour, ses mains bougeaient avec rapidité pour tracer des sceaux. Chaque sceau concentrait la puissance de l'Art du Massacre Céleste.
+Wang Lin resta tranquillement au Manoir Mo pendant quatre jours, puis cessa sa cultivation habituelle. Assis dans la cour, ses mains bougeaient avec rapidité pour tracer des sceaux. Chaque sceau concentrait la puissance de l'Art du Massacre Céleste.
 
 Il resta ainsi assis durant sept jours !
 
@@ -120,6 +120,6 @@ Au début, les deux sergents observaient Wang Lin de loin, avec calme. Mais bien
 
 Juste au moment où cette soif de sang atteignait son paroxysme et que les deux hommes étaient sur le point d'exploser, Wang Lin ouvrit soudainement les yeux, dont la clarté était absolue.
 
-En croisant le regard de Wang Lin, c'est comme si de l'eau glacée avait été déversée sur leurs têtes ; ils retrouvèrent instantanément leur lucidité. Bien qu'ils fussent redevenus sains d'esprit, une grande partie de leur culture s'était dissipée. Terrifiés, les deux hommes n'osèrent plus jamais regarder Wang Lin cultiver.
+En croisant le regard de Wang Lin, c'est comme si de l'eau glacée avait été déversée sur leurs têtes ; ils retrouvèrent instantanément leur lucidité. Bien qu'ils fussent redevenus sains d'esprit, une grande partie de leur cultivation s'était dissipée. Terrifiés, les deux hommes n'osèrent plus jamais regarder Wang Lin cultiver.
 
 « L'Art du Massacre Céleste emprunte la voie de la destruction pour créer des sceaux de vie. La quantité de vies que j'ai fauchées n'est pas négligeable, et pourtant, je ne possède pas une telle abondance d'aura de massacre... Il doit y avoir une raison ! » songea Wang Lin, tout en se remémorant soigneusement chaque fois qu'il avait utilisé l'Art du Massacre Céleste avec succès.

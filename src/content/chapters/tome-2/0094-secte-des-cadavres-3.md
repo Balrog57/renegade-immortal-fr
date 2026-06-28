@@ -18,7 +18,7 @@ Wu Yu soupira et répondit : « La marionnette cadavérique ne peut s'éloigner 
 
 La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara : « Moi, Wu Yu, je jure sur mon Âme Naissante que je ne vous veux aucun mal, alors je vous en prie, aidez-moi, jeune ami. Je peux même vous offrir Adai. Les neuf talismans étaient déjà sur lui lorsque je l'ai trouvé, et ils possèdent une puissance inimaginable. »
 
-« De plus, je sens que votre énergie spirituelle possède des propriétés Yin. J'utilise moi aussi une méthode de culture Yin. Je suppose que vous êtes venu ici pour utiliser l'énergie Yin afin de cultiver. L'énergie Yin de cet endroit est de type Infernal. Si vous allez à la Secte des Cadavres, il existe un lieu de culture qui possède une énergie Yin de type Terrestre. »
+« De plus, je sens que votre énergie spirituelle possède des propriétés Yin. J'utilise moi aussi une méthode de cultivation Yin. Je suppose que vous êtes venu ici pour utiliser l'énergie Yin afin de cultiver. L'énergie Yin de cet endroit est de type Infernal. Si vous allez à la Secte des Cadavres, il existe un lieu de cultivation qui possède une énergie Yin de type Terrestre. »
 
 Wang Lin plissa les yeux et demanda : « Si la Secte des Cadavres possède un lieu doté d'une énergie Yin de type Terrestre, pourquoi êtes-vous venu ici pour tenter votre percée ? »
 
@@ -52,9 +52,9 @@ La Secte des Cadavres était une secte démoniaque de Zhao. Bien qu'elle fût mo
 
 Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte des Cadavres avait été totalement anéantie.
 
-En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance pour raffiner un cadavre ; une fois l'acte accompli, ils ne pourraient plus jamais en raffiner un autre.
+En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de cultivation. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance pour raffiner un cadavre ; une fois l'acte accompli, ils ne pourraient plus jamais en raffiner un autre.
 
-C'était une technique prodigieuse. Pour les disciples de cette secte, outre leur propre culture, le développement de leur marionnette cadavérique était tout aussi crucial. La raison pour laquelle cette technique était si miraculeuse résidait dans le fait que, cinq cents ans auparavant, un disciple au stade de l'Établissement des Fondations avait possédé une marionnette cadavérique de niveau Âme Naissante.
+C'était une technique prodigieuse. Pour les disciples de cette secte, outre leur propre cultivation, le développement de leur marionnette cadavérique était tout aussi crucial. La raison pour laquelle cette technique était si miraculeuse résidait dans le fait que, cinq cents ans auparavant, un disciple au stade de l'Établissement des Fondations avait possédé une marionnette cadavérique de niveau Âme Naissante.
 
 Bien que ce disciple ait mystérieusement disparu, son exploit avait provoqué une immense agitation à Zhao, particulièrement chez les cultivateurs de bas niveau qui rêvaient désormais de rejoindre la Secte des Cadavres. Mais peu importaient les recherches entreprises, la secte demeurait comme un nuage errant, insaisissable pour quiconque.
 
@@ -74,7 +74,7 @@ Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercue
 
 Soudain, cinq anneaux s'illuminèrent et un jeune homme vêtu de bleu apparut dans la grotte, accompagné de son cercueil. L'un des huit jeunes hommes sur les piliers ouvrit les yeux pour observer l'arrivant. Sa voix était dénuée de toute émotion : « D'où viens-tu ? »
 
-Le jeune homme en bleu s'inclina rapidement : « Branche de la Secte des Cadavres de Lu, dans un pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
+Le jeune homme en bleu s'inclina rapidement : « Branche de la Secte des Cadavres de Lu, dans un pays de cultivation de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
 
 Le jeune homme sur le pilier lui lança un regard glacial : « Dix-huitième grotte sur la droite. Va. »
 

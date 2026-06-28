@@ -12,9 +12,9 @@ Chapitre 1207 - Foudre ? Feu ?
 
 Plus il en apprenait sur le passé, plus cette soif de sang devenait ardente !
 
-Le jeune homme marqué par l'éclair fut le plus rapide et s'approcha. Il n'était à l'origine qu'un cultivateur au sommet du stade de la Purification du Nirvana, mais après cette étrange transformation, son niveau de culture avait augmenté pour atteindre inattendu le début du stade du Brise-Nirvana. Puis, il avait surpassé ce stade pour atteindre le milieu !
+Le jeune homme marqué par l'éclair fut le plus rapide et s'approcha. Il n'était à l'origine qu'un cultivateur au sommet du stade de la Purification du Nirvana, mais après cette étrange transformation, son niveau de cultivation avait augmenté pour atteindre inattendu le début du stade du Brise-Nirvana. Puis, il avait surpassé ce stade pour atteindre le milieu !
 
-Wang Lin n'avait jamais vu une telle capacité de sa vie. Ce n'était pas qu'ils dissimulaient leur niveau de culture ; ils avaient emprunté la puissance des cieux !
+Wang Lin n'avait jamais vu une telle capacité de sa vie. Ce n'était pas qu'ils dissimulaient leur niveau de cultivation ; ils avaient emprunté la puissance des cieux !
 
 Pour être plus précis, ce n'était pas la première fois que Wang Lin affrontait des gens du Royaume Extérieur. Dans le vide, face au Serpent Moongazer, il s'était déjà battu contre eux, mais à l'époque, Wang Lin était trop faible pour attirer leur attention et ne pouvait contrôler son propre destin. Cependant, désormais, Wang Lin était digne de contempler ces trois assaillants avec dédain et moquerie !
 

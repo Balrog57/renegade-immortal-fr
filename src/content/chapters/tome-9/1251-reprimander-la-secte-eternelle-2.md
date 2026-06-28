@@ -10,7 +10,7 @@ Lu Yuncong prit une profonde inspiration et hocha la tête à Lu Yanfei avant de
 
 Parmi les deux, le mâle était gracieux et magnifique ; la femelle était frêle, mais déterminée et belle. À cet instant, leur mouvement conjoint dégageait une certaine puissance visuelle.
 
-Même Mu Bingmei ne put s'empêcher de soupirer. Que ce soit par sa culture ou par ses paroles, Lu Yuncong pouvait être considéré comme une élite dans la Mer des Nuages ! À ses côtés, les yeux magnifiques de Wang Shanshan balayèrent la silhouette de Lu Yuncong.
+Même Mu Bingmei ne put s'empêcher de soupirer. Que ce soit par sa cultivation ou par ses paroles, Lu Yuncong pouvait être considéré comme une élite dans la Mer des Nuages ! À ses côtés, les yeux magnifiques de Wang Shanshan balayèrent la silhouette de Lu Yuncong.
 
 Lu Yuncong arriva rapidement sur l'estrade. Après une brève pause, il déclara : « Le disciple Lu Yuncong salue le Maître du Secte et les Anciens. » En parlant, son regard parcourut l'assemblée et s'arrêta sur Mu Bingmei, aux côtés de Wang Shanshan. Il tomba dans un état second pendant un instant, comme si tout le monde avait disparu, ne laissant derrière elle que cette femme froide mais sublime.
 
@@ -18,13 +18,13 @@ Lu Yanfei se tenait aux côtés de Lu Yuncong ; elle s'inclina respectueusement 
 
 La plupart des personnes sur les gradins ne prêtèrent pas attention à Lu Yanfei, mais regardèrent Lu Yuncong avec admiration. L'homme d'âge mûr nommé Zhou observa Lu Yuncong avec bienveillance.
 
-« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao du Sect Origin ? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa culture au sommet du stade Nirvana Shatterer se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
+« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao du Sect Origin ? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa cultivation au sommet du stade Nirvana Shatterer se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
 
 Lu Yuncong réfléchit un instant puis dit lentement : « Le disciple ne connaît pas le nom de cet homme, mais je suppose qu'il s'agit de Lu Zihao. »
 
-L'homme en blanc regarda calmement Lu Yuncong et demanda : « Quel est son niveau de culture ? »
+L'homme en blanc regarda calmement Lu Yuncong et demanda : « Quel est son niveau de cultivation ? »
 
-« Début du stade Nirvana Cleanser... Mais... » Lu Yuncong hésita un instant avant de poursuivre : « Le disciple a seulement ressenti une culture au début du stade Nirvana Cleanser, mais il n'a pas pu voir clair en lui, comme s'il cachait son véritable niveau. »
+« Début du stade Nirvana Cleanser... Mais... » Lu Yuncong hésita un instant avant de poursuivre : « Le disciple a seulement ressenti une cultivation au début du stade Nirvana Cleanser, mais il n'a pas pu voir clair en lui, comme s'il cachait son véritable niveau. »
 
 Après ses paroles, les membres de la Secte Éternelle échangèrent des regards. L'homme en blanc réfléchit un moment avant de dire : « Comment as-tu rencontré cet homme ? Raconte-nous tout en détail ! »
 

@@ -76,7 +76,7 @@ Cette planète était très célèbre dans le Système Stellaire Ancien et faisa
 
 Quiconque voyait personnellement la Planète du Grand Empereur n'oubliait jamais un spectacle aussi saisissant !
 
-Il faut dire que la plupart des planètes de culture du Système Stellaire Ancien étaient sphériques. Bien que certaines fussent de formes irrégulières, elles restaient majoritairement rondes. C'était un phénomène très étrange que de nombreux puissants cultivateurs avaient tenté d'élucider.
+Il faut dire que la plupart des planètes de cultivation du Système Stellaire Ancien étaient sphériques. Bien que certaines fussent de formes irrégulières, elles restaient majoritairement rondes. C'était un phénomène très étrange que de nombreux puissants cultivateurs avaient tenté d'élucider.
 
 Cependant, ils n'avaient trouvé que quelques indices sans jamais parvenir à la vérité. Ce n'est que lorsque le Conseil Souverain annonça les résultats de ses recherches qu'une explication fut donnée : une nouvelle loi nommée « la loi de rotation ».
 
@@ -86,7 +86,7 @@ Toutefois, cette loi changeait radicalement lorsqu'il s'agissait de la Planète 
 
 Nul ne savait pourquoi la Planète du Grand Empereur était ainsi. C'était la terre sainte de la Terre Déchue, là où se trouvait la grotte du Grand Empereur.
 
-Normalement, une force magnétique et de déchirement inimaginable régnait autour de la planète. Les cultivateurs y constataient que leurs trésors devenaient inutiles et que même leur culture était supprimée.
+Normalement, une force magnétique et de déchirement inimaginable régnait autour de la planète. Les cultivateurs y constataient que leurs trésors devenaient inutiles et que même leur cultivation était supprimée.
 
 Ce n'est que lors de la Sélection des Anciens Déchus que ces forces s'affaiblissaient considérablement, permettant l'apparition de plusieurs tunnels pour accéder à la planète.
 
@@ -114,7 +114,7 @@ Dans une autre partie du Système Stellaire Ancien, une douce lumière bleue sci
 
 Li Qianmei le suivait silencieusement.
 
-Plus loin encore, dans un domaine stellaire presque désert, une bête de la taille d'une planète de culture se déplaçait lentement. Cette créature avait la forme d'une ellipse et d'innombrables tentacules longs de dizaines de milliers de pieds ondulaient sur tout son corps.
+Plus loin encore, dans un domaine stellaire presque désert, une bête de la taille d'une planète de cultivation se déplaçait lentement. Cette créature avait la forme d'une ellipse et d'innombrables tentacules longs de dizaines de milliers de pieds ondulaient sur tout son corps.
 
 Le Serpent Regardant la Lune !
 

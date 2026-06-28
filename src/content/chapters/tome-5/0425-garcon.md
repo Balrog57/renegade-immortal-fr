@@ -50,7 +50,7 @@ Par la suite, Wang Lin lui avait demandé pourquoi il avait exigé que Zhuque Zi
 
 La réponse de Situ Nan fut : « Parce que je suis Situ Nan ! »
 
-« Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit oiseau voleur avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil ! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma culture, je me frayerai un chemin jusqu'au Mont Suzaku pour la te la voler ! » Situ Nan lança un regard noir à Du Tian.
+« Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit oiseau voleur avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil ! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma cultivation, je me frayerai un chemin jusqu'au Mont Suzaku pour la te la voler ! » Situ Nan lança un regard noir à Du Tian.
 
 Cela faisait des milliers d'années que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander : « Quel est votre nom, Aîné… ? »
 
@@ -76,7 +76,7 @@ L'arrivée de Zhuque Zi avait plongé Du Tian dans le désespoir ; pourtant, les
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Grand frère apprenti, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, toi, Maître, ainsi que tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers le Secte de Raffinement des Âmes. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, mon Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire du Secte de Raffinement des Âmes… »
+« Grand frère apprenti, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, toi, Maître, ainsi que tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers le Secte de Raffinement des Âmes. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, mon Secte deviendra une puissance dépassant les pays de cultivation de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire du Secte de Raffinement des Âmes… »
 
 « Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau de l'âme pour l'éternité ! »
 
@@ -88,7 +88,7 @@ Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les 
 
 *Le jeune homme grandit au sein du Secte de Raffinement des Âmes. Ce talentueux disciple se distingua immédiatement des autres. Il fit tout cela pour cette unique phrase.*
 
-*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom taoïste Du Tian, et le suivit partout.*
+*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère cultivation jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom taoïste Du Tian, et le suivit partout.*
 
 *Le temps est comme une chanson ; il vient un jour où elle s'achève et où les gens s'en vont. Avant que l'âme de son maître n'entre dans le drapeau de l'âme d'un milliard d'âmes, il avait fait la promesse de protéger le Secte de Raffinement des Âmes pour le restant de ses jours, simplement pour cette phrase entendue dans sa jeunesse.*
 
@@ -114,9 +114,9 @@ Dans une bourrasque de vent, le corps de Du Tian commença à se désintégrer l
 
 Wang Lin réfléchit un instant et tourna les yeux vers Situ Nan : « Quel est ton plan ? »
 
-Les yeux de Situ Nan s'illuminèrent et l'arrogance réapparut. Il déclara : « Trouver un corps doté d'un talent compatible avec le mien, récupérer ma culture et traquer ceux qui m'ont plongé dans cet état. S'ils sont déjà morts, je déchaînerai ma colère sur leurs descendants ! »
+Les yeux de Situ Nan s'illuminèrent et l'arrogance réapparut. Il déclara : « Trouver un corps doté d'un talent compatible avec le mien, récupérer ma cultivation et traquer ceux qui m'ont plongé dans cet état. S'ils sont déjà morts, je déchaînerai ma colère sur leurs descendants ! »
 
-La personnalité de Situ Nan avait toujours été ainsi. Autrefois, il n'avait cessé d'enseigner à Wang Lin ce chemin de culture presque démoniaque. Si Wang Lin avait tué autant de personnes, c'était en grande partie sous l'influence de Situ Nan.
+La personnalité de Situ Nan avait toujours été ainsi. Autrefois, il n'avait cessé d'enseigner à Wang Lin ce chemin de cultivation presque démoniaque. Si Wang Lin avait tué autant de personnes, c'était en grande partie sous l'influence de Situ Nan.
 
 Wang Lin hocha la tête et dit : « La perle défiant le ciel est déjà fusionnée avec mon âme et ne peut plus être retirée… »
 

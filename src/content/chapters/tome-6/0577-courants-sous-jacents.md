@@ -74,9 +74,9 @@ En conséquence, tous les stratagèmes visaient les subordonnés de chaque gén�
 
 Quant au combat secret, il consistait à assassiner les généraux eux-mêmes. S'ils ne pouvaient s'entretuer directement, leurs subordonnés le pouvaient. Ils pouvaient même engager des assassins, ce qui ne violait pas la règle.
 
-Cependant, bien que cela ne soit pas interdit, cela transgressait la ligne rouge de l'Empereur Démon. Ainsi, à moins que l'assassin ne possède une culture céleste, il lui serait presque impossible de s'échapper, même avec des ailes. Sa mort était inéluctable ! Après tout, la perte d'un général démon était un événement majeur pour le pays. On pourrait dire que quiconque comptait sur l'assassinat faisait preuve d'un désespoir absolu !
+Cependant, bien que cela ne soit pas interdit, cela transgressait la ligne rouge de l'Empereur Démon. Ainsi, à moins que l'assassin ne possède une cultivation céleste, il lui serait presque impossible de s'échapper, même avec des ailes. Sa mort était inéluctable ! Après tout, la perte d'un général démon était un événement majeur pour le pays. On pourrait dire que quiconque comptait sur l'assassinat faisait preuve d'un désespoir absolu !
 
-Ces luttes, publiques et secrètes, s'intensifièrent à mesure que l'échéance approchait. Mo Lihai sortait rarement, passant la majeure partie de ses journées en culture isolée. Cela lui permettait de rester à son apogée tout en évitant délibérément les tentatives d'assassinat. Il avait également mis en place une formation et placé nombre de ses anciens subordonnés, dotés de hauts niveaux de culture, pour assurer sa garde.
+Ces luttes, publiques et secrètes, s'intensifièrent à mesure que l'échéance approchait. Mo Lihai sortait rarement, passant la majeure partie de ses journées en cultivation isolée. Cela lui permettait de rester à son apogée tout en évitant délibérément les tentatives d'assassinat. Il avait également mis en place une formation et placé nombre de ses anciens subordonnés, dotés de hauts niveaux de cultivation, pour assurer sa garde.
 
 Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas ; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique du zither. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
 
@@ -106,6 +106,6 @@ Le corps fut projeté loin dans une trajectoire courbe, libérant une brume de s
 
 En tombant, un soupçon de regret passa dans ses yeux avant qu'ils ne s'éteignent définitivement. Simultanément, un filet de gaz gris s'échappa de son corps pour disparaître dans la main droite de Wang Lin.
 
-Cet homme n'était pas un étranger, mais un natif de la Terre des Esprits Démons. Son niveau de culture n'était pas élevé ; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
+Cet homme n'était pas un étranger, mais un natif de la Terre des Esprits Démons. Son niveau de cultivation n'était pas élevé ; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
 
 Wang Lin continua d'écouter la musique du zither...

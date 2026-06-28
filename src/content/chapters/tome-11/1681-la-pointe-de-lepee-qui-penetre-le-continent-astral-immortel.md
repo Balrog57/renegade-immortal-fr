@@ -54,7 +54,7 @@ L'épée fut repoussée contre les parois jusqu'à atteindre une distance de 500
 
 « Si mon corps original était ici, bien que parcourir ces 500 pieds soit difficile, je pourrais atteindre la porte en utilisant un sort immortel ! Cependant, si je partais maintenant pour fusionner avec mon corps original, cela me ferait perdre trop de temps... »
 
-Une lueur de froideur traversa le regard de Wang Lin. Durant toute sa vie de culture, il n'avait jamais plié le genou devant une quelconque force. À cet instant, il laissa échapper un reniflement glacial et ses yeux formèrent un sceau. Le tonnerre dans son œil gauche éclata, libérant son essence de tonnerre.
+Une lueur de froideur traversa le regard de Wang Lin. Durant toute sa vie de cultivation, il n'avait jamais plié le genou devant une quelconque force. À cet instant, il laissa échapper un reniflement glacial et ses yeux formèrent un sceau. Le tonnerre dans son œil gauche éclata, libérant son essence de tonnerre.
 
 Simultanément, le feu dans son œil droit rugit, révélant une flamme ardente.
 
@@ -64,7 +64,7 @@ Enfin, une aura de massacre terrifiante jaillit de son corps. Sa sixième essenc
 
 Les six essences se condensèrent entre ses sourcils et le vortex réapparut avant que son âme originelle ne s'en échappe. Son âme rejoignit l'épée de sang, portée par les six essences. Le tonnerre éclata, le feu brûla, les trois essences éthérées tournoyerent autour d'elle et l'essence du massacre ouvrit la voie. À cet instant précis, l'épée de sang chargea vers la porte de pierre située à 500 pieds !
 
-Lors de sa charge, la force de rejet devint encore plus violente, mais elle ne put rien contre la pleine puissance de la culture de Wang Lin. Son âme originelle était telle une épée invincible !
+Lors de sa charge, la force de rejet devint encore plus violente, mais elle ne put rien contre la pleine puissance de la cultivation de Wang Lin. Son âme originelle était telle une épée invincible !
 
 En un éclair, il se rapprocha à cent pieds, mais cette fois il ne s'arrêta pas et fonça droit devant lui. En un instant, l'épée de sang percuta directement la porte de pierre !
 
@@ -100,9 +100,9 @@ C'était comme si cette lumière avait quitté le Continent Astral Immortel depu
 
 Une pointe d'épée écarlate apparut au cœur de la lueur sanglante ! Elle avait transpercé l'horloge sur trois pouces, et c'était d'elle que provenait cette lumière choquante !
 
-« L'épée de Ye Mo !! » L'un des éclats de lumière arriva plus vite que les autres et se rapprocha instantanément. C'était un homme d'âge moyen vêtu d'une robe étrange. Ses yeux brillaient, dégageant la puissance de son apogée de culture Arcane Void.
+« L'épée de Ye Mo !! » L'un des éclats de lumière arriva plus vite que les autres et se rapprocha instantanément. C'était un homme d'âge moyen vêtu d'une robe étrange. Ses yeux brillaient, dégageant la puissance de son apogée de cultivation Arcane Void.
 
-Une trace de pouvoir Arcane Tribulant émanait de sa culture Arcane Void. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes !
+Une trace de pouvoir Arcane Tribulant émanait de sa cultivation Arcane Void. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes !
 
 Alors qu'il s'approchait, les autres rayons de lumière arrivèrent, révélant huit personnes. Tous se tenaient sous l'horloge, fixant la pointe de l'épée qui l'avait transpercée avec des regards perplexes !
 
@@ -116,11 +116,11 @@ L'un d'eux finit par dire lentement : « Frère aîné, devrions-nous ouvrir cet
 
 « L'épée de sang de Ye Mo ! Il semble que la rumeur disant que Ye Mo a été attiré dans la grotte de la Secte des Sept Dao soit vraie ! »
 
-« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte des Sept Dao. Il a dû obtenir un trésor inestimable... Le Frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de culture et les méthodes du Frère Ma, nous n'avons pas à nous inquiéter ! »
+« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte des Sept Dao. Il a dû obtenir un trésor inestimable... Le Frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de cultivation et les méthodes du Frère Ma, nous n'avons pas à nous inquiéter ! »
 
 À l'intérieur du passage étrange, l'épée de sang se retira de la porte de pierre, laissant l'âme originelle de Wang Lin sous le choc. La force de rejet avait repoussé l'arme sur 500 pieds. Son âme retourna dans son corps, puis il saisit l'épée et recula de 1 000 pieds. Wang Lin regarda la porte de pierre avec une expression grave, le rythme cardiaque accéléré.
 
-Toute sa culture était en éveil et il était extrêmement vigilant.
+Toute sa cultivation était en éveil et il était extrêmement vigilant.
 
 Il sentit sa gorge s'assécher. Après un long moment, constatant que la porte de pierre n'avait pas changé, il finit par laisser échapper un profond soupir de soulagement.
 

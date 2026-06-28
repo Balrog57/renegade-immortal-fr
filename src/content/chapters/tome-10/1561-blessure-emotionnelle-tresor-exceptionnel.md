@@ -28,7 +28,7 @@ Du point de vue de Wang Lin, les guerres répétées entre les Royaumes Intérie
 
 Un grondement de tonnerre interrompit ses pensées. Il leva les yeux et vit Qing Shui pointer la Porte du Vide. La porte vrombit, montrant des signes d'ouverture.
 
-Fixant la Porte du Vide, Wang Lin laissa paraître une aspiration ardente. Il voulait devenir un cultivateur de la troisième étape. Seul avec un niveau de culture suffisamment élevé serait-il qualifié pour percer le secret derrière le voile et ressusciter Li Muwan !
+Fixant la Porte du Vide, Wang Lin laissa paraître une aspiration ardente. Il voulait devenir un cultivateur de la troisième étape. Seul avec un niveau de cultivation suffisamment élevé serait-il qualifié pour percer le secret derrière le voile et ressusciter Li Muwan !
 
 « Vie et mort, karma, vrai et faux. Je dois compléter ces trois essences... Ce n'est plus loin ! » Les yeux de Wang Lin étaient comme des éclairs, empreints d'une confiance absolue.
 

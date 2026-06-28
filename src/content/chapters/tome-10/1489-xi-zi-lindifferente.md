@@ -38,7 +38,7 @@ Wang Lin fixa l'homme d'âge moyen qui reculait, terrorisé. Une lueur de froide
 
 « Tu ne peux pas me tuer ! Je suis un messager du Temple Céleste du Tonnerre ! J'agis sous les ordres du Temple pour préparer le combat ! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre d'Allheaven. Non seulement tu seras l'ennemi d'Allheaven, mais tu te feras aussi l'ennemi des quatre systèmes stellaires ! »
 
-« Mon niveau de culture n'est pas élevé, mais je reste une force capable de résister au Royaume Extérieur ! Je veux combattre le Royaume Extérieur, je veux consacrer toute ma force à lutter pour le Royaume Intérieur, tu ne peux pas me tuer ! Même si tu veux ma mort, donne-moi la chance de combattre le Royaume Extérieur et de mourir sur le champ de bataille ! » L'homme d'âge moyen reculait en hurlant toutes les excuses qui lui passaient par la tête.
+« Mon niveau de cultivation n'est pas élevé, mais je reste une force capable de résister au Royaume Extérieur ! Je veux combattre le Royaume Extérieur, je veux consacrer toute ma force à lutter pour le Royaume Intérieur, tu ne peux pas me tuer ! Même si tu veux ma mort, donne-moi la chance de combattre le Royaume Extérieur et de mourir sur le champ de bataille ! » L'homme d'âge moyen reculait en hurlant toutes les excuses qui lui passaient par la tête.
 
 Dans sa jeunesse, il avait été un homme de mots, vif et éloquent. Face à la mort, son talent s'exprimait avec une intensité totale !
 
@@ -62,7 +62,7 @@ Le regard froid de Wang Lin balaya l'assemblée. D'un pas, il s'élança parmi l
 
 Une lumière douce apparut au loin et se transforma en une pilule qui flotta devant le vieil homme.
 
-« Prends cette pilule et entre en culture de méditation isolée. Comprends l'âme de la bête qu'elle contient, et ton niveau de culture pourra progresser ! »
+« Prends cette pilule et entre en cultivation de méditation isolée. Comprends l'âme de la bête qu'elle contient, et ton niveau de cultivation pourra progresser ! »
 
 La pilule dégageait de puissantes fluctuations d'énergie originelle. Sa simple odeur apaisa l'esprit du vieil homme, lui donnant l'impression d'avoir cultivé pendant plusieurs mois.
 
@@ -114,6 +114,6 @@ Wang Lin réfléchit en silence. Après un long moment, il agita la main droite.
 
 Xi Zifeng franchit immédiatement l'étape du Corps Yang pour atteindre le stade Nirvana Scryer !
 
-Mais ce n'était pas fini. Le processus continua jusqu'à ce qu'elle atteigne le stade Nirvana Cleanser. Ensuite, l'énergie originelle se transforma en trois sceaux destinés à contenir sa culture. Cela lui permettrait de comprendre et d'assimiler progressivement son nouveau niveau.
+Mais ce n'était pas fini. Le processus continua jusqu'à ce qu'elle atteigne le stade Nirvana Cleanser. Ensuite, l'énergie originelle se transforma en trois sceaux destinés à contenir sa cultivation. Cela lui permettrait de comprendre et d'assimiler progressivement son nouveau niveau.
 
-Même avec la puissance de Wang Lin, transmettre une telle culture restait une tâche ardue.
+Même avec la puissance de Wang Lin, transmettre une telle cultivation restait une tâche ardue.

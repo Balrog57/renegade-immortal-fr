@@ -34,7 +34,7 @@ Wang Lin regarda la montagne approcher et murmura pour lui-même : « Digne d'un
 
 « Par exemple, la Montagne d'Origine de Song Tian peut rejeter les lois et créer son propre monde, tout comme le doigt de l'Ancêtre Antique. Bien que ce ne soit pas un sort de foi, c'est une prouesse dont il peut être fier. »
 
-Ses yeux s'illuminèrent. Avec son niveau de culture actuel, nul ne pouvait lui inspirer la crainte, à l'exception du Grand Empyrean Gu Dao. Aucun des autres Grands Empyreans ne représentait une menace pour lui. Bien que cette Montagne d'Origine fût extraordinaire, elle n'en demeurait pas moins limitée.
+Ses yeux s'illuminèrent. Avec son niveau de cultivation actuel, nul ne pouvait lui inspirer la crainte, à l'exception du Grand Empyrean Gu Dao. Aucun des autres Grands Empyreans ne représentait une menace pour lui. Bien que cette Montagne d'Origine fût extraordinaire, elle n'en demeurait pas moins limitée.
 
 L'expression de Wang Lin resta sereine alors qu'il leva la main et pointa la montagne qui fonçait sur lui.
 

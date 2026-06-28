@@ -18,7 +18,7 @@ Le réseau de transfert scintilla alors que l'homme en sortait. À cet instant, 
 
 La voix de l'homme était calme, mais lorsqu'il parla, ce fut comme si le tonnerre avait explosé. Tous les cultivateurs présents étaient les élites du Système Stellaire Allheaven. En entendant ces paroles, leurs regards se tournèrent vers lui avec hostilité.
 
-L'expression de Wang Lin resta sereine et il détourna les yeux. Cet homme possédait le même niveau de culture que lui, tous deux étant au stade initial du Nirvana Scryer. Cependant, Wang Lin éprouvait un étrange pressentiment à son égard.
+L'expression de Wang Lin resta sereine et il détourna les yeux. Cet homme possédait le même niveau de cultivation que lui, tous deux étant au stade initial du Nirvana Scryer. Cependant, Wang Lin éprouvait un étrange pressentiment à son égard.
 
 Il était certain de ne jamais avoir croisé cet individu auparavant. Tandis qu'il réfléchissait, les yeux de l'homme en robe blanche s'illuminèrent ; il scruta la foule et fixa Wang Lin.
 
@@ -32,7 +32,7 @@ Ce fut comme si deux épées acérées s'étaient croisées en un éclair. Les d
 
 Les yeux de l'homme en robe blanche pétillèrent et il observa attentivement Wang Lin. Lorsque leurs sens divins s'étaient affrontés, non seulement il n'avait pu subjuguer Wang Lin, mais il avait eu la sensation que son propre sens divin allait être percé.
 
-L'expression de Wang Lin demeura imperturbable. Bien que l'autre personne ait le même niveau de culture que lui, au stade initial du Nirvana Scryer, une force étrange résidait dans son sens divin.
+L'expression de Wang Lin demeura imperturbable. Bien que l'autre personne ait le même niveau de cultivation que lui, au stade initial du Nirvana Scryer, une force étrange résidait dans son sens divin.
 
 Peu de personnes avaient pu détecter ce contact ; ils n'étaient que quatre au total !
 
@@ -64,7 +64,7 @@ Si la famille Xiang était peut-être la plus puissante sur la planète Dong Lin
 
 La renommée de la famille Xu ne cessait de croître au travers de ces tempêtes sanglantes.
 
-« Pas étonnant que cet homme ait osé offenser plus de cent familles de culture... »
+« Pas étonnant que cet homme ait osé offenser plus de cent familles de cultivation... »
 
 « L'enfant de cette génération de la famille Xu de la planète Dong Lin envoyé pour l'entraînement... Il semble que quiconque croisera sa route durant la compétition sera sans aucun doute condamné à mort ! »
 
@@ -112,9 +112,9 @@ Une énergie spirituelle céleste dense emplissait la région, comme si on se tr
 
 « Le Temple Céleste du Tonnerre compte un total de 1 372 salles principales. Chacune d'elles a été personnellement extraite du Royaume Céleste du Tonnerre par le Seigneur du Temple ! » Les paroles du vieil homme étaient empreintes de fierté.
 
-Wang Lin acquiesça et fit l'éloge : « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire Allheaven ! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
+Wang Lin acquiesça et fit l'éloge : « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire Allheaven ! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de cultivation.
 
-Le vieil homme sourit et dit : « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher compagnon de culture ! »
+Le vieil homme sourit et dit : « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher compagnon de cultivation ! »
 
 Wang Lin sourit et discuta avec le vieil homme. En regardant devant lui, il vit que la majeure partie du Temple Céleste du Tonnerre était enveloppée d'une fine couche de brume.
 

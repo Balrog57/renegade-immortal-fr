@@ -106,7 +106,7 @@ La goutte de sang doré issue du Corps Céleste Immortel jaillit et fut pressée
 
 « Lignée céleste et lignée antique, je les fusionne dans le Fourneau de l'Empereur pour vous sceller durant cent millions d'années ! » Wang Lin agita sa manche et son sort personnel, le Flux du Temps, apparut. Il prit la forme d'une gigantesque porte de pierre qui vint se plaquer sur le Fourneau de l'Empereur !
 
-Dès que la porte de pierre fut en place, le temps s'écoula à une vitesse effrénée. Avec son niveau de culture actuel, Wang Lin pouvait faire défiler le temps sans fin !
+Dès que la porte de pierre fut en place, le temps s'écoula à une vitesse effrénée. Avec son niveau de cultivation actuel, Wang Lin pouvait faire défiler le temps sans fin !
 
 La sueur perla sur le front de Wang Lin alors qu'il siégeait au sommet du Fourneau de l'Empereur. Ses yeux étaient totalement rouges et il poussa un rugissement :
 

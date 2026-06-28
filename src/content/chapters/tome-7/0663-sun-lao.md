@@ -16,7 +16,7 @@ Wang Lin murmura : « Des trésors pseudo-célestes ! »
 
 C'étaient là les trésors magiques de la plus haute qualité qu'il pouvait fabriquer. Après tout, Wang Lin n'avait qu'une compréhension superficielle du raffinage des trésors ; l'essentiel de ses connaissances provenait du jade du pays de Hou Fen, sur Suzaku.
 
-En temps normal, il ne pourrait pas créer ce genre d'objets. Cependant, Wang Lin possédait sa propre voie et sa culture avait atteint le stade de l'Ascendant ; le plus important était encore son contrôle magistral des restrictions.
+En temps normal, il ne pourrait pas créer ce genre d'objets. Cependant, Wang Lin possédait sa propre voie et sa cultivation avait atteint le stade de l'Ascendant ; le plus important était encore son contrôle magistral des restrictions.
 
 Il détourna son regard des trois trésors. Il n'en était pas satisfait. Après une courte réflexion, il saisit le miroir en bronze et commença à déduire les restrictions.
 
@@ -40,17 +40,17 @@ Après avoir réfléchi un instant, Wang Lin balaya la pièce du regard jusqu'à
 
 Le symbole commença aussitôt à fondre, se transformant en un étrange filament de fumée avant de pénétrer dans le miroir en bronze. Puis, il toucha son sac de rangement, en sortit un jade et y inscrivit la méthode permettant de briser cette restriction.
 
-Une fois le miroir de bronze rangé, Wang Lin ne plaça pas cette pseudo-restriction d'héritage sur les deux autres trésors magiques. À l'extérieur, le ciel s'éclaircissait progressivement. Wang Lin ferma les yeux et commença sa culture.
+Une fois le miroir de bronze rangé, Wang Lin ne plaça pas cette pseudo-restriction d'héritage sur les deux autres trésors magiques. À l'extérieur, le ciel s'éclaircissait progressivement. Wang Lin ferma les yeux et commença sa cultivation.
 
 Le soleil dominait le ciel et dissipait lentement les ténèbres. Wang Lin ouvrit les yeux, se leva et poussa la porte. La lumière solaire frappa son corps et une sensation de chaleur envahit immédiatement son esprit. L'énergie spirituelle environnante était si riche à cet instant que son esprit en devint instantanément limpide.
 
-Un sentiment de sérénité emplissait son cœur. Le corps de Wang Lin vacilla tandis qu'il avançait. En passant la sortie, il vit le jeune homme sous le rocher qui continuait sa culture pour absorber toutes les essences du ciel et de la terre.
+Un sentiment de sérénité emplissait son cœur. Le corps de Wang Lin vacilla tandis qu'il avançait. En passant la sortie, il vit le jeune homme sous le rocher qui continuait sa cultivation pour absorber toutes les essences du ciel et de la terre.
 
 Ce n'est que lorsque la silhouette de Wang Lin fut loin que le jeune homme ouvrit les yeux, laissant paraître une lueur de mépris.
 
-« Quel cultivateur étranger ne passe-t-il pas ses journées à cultiver pour absorber autant d'énergie spirituelle que possible ? Bien que le talent de cet individu soit ordinaire et puisse être compensé par un travail acharné, il abandonne la culture au matin, alors que l'énergie spirituelle est à son apogée. Je suis certain qu'il ne sera jamais capable de former son Âme Naissante ! »
+« Quel cultivateur étranger ne passe-t-il pas ses journées à cultiver pour absorber autant d'énergie spirituelle que possible ? Bien que le talent de cet individu soit ordinaire et puisse être compensé par un travail acharné, il abandonne la cultivation au matin, alors que l'énergie spirituelle est à son apogée. Je suis certain qu'il ne sera jamais capable de former son Âme Naissante ! »
 
-Le jeune homme détourna le regard et reprit sa culture. Sa vitesse s'accéléra, comme si l'énergie spirituelle qu'il absorbait était dérobée à autrui.
+Le jeune homme détourna le regard et reprit sa cultivation. Sa vitesse s'accéléra, comme si l'énergie spirituelle qu'il absorbait était dérobée à autrui.
 
 Lors de son arrivée la veille, Wang Lin avait remarqué un marché libre sur le côté ouest de la ville, où de nombreux cultivateurs échangeaient des trésors magiques et des matériaux.
 

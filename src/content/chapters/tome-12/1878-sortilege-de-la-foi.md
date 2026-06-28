@@ -34,7 +34,7 @@ Déchirer les voiles d'obscurité qui masquaient ses yeux pour chercher la lumi�
 
 C'était Sundered Night !!
 
-Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant, grâce à l'Armure de l'Âme et à son niveau de culture actuel, il le comprit un peu mieux après avoir utilisé Sundered Night.
+Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant, grâce à l'Armure de l'Âme et à son niveau de cultivation actuel, il le comprit un peu mieux après avoir utilisé Sundered Night.
 
 C'était le premier sort qu'il avait créé, et le seul imprégné de sa propre foi. Il accompagnait son âme indomptable et fusionnait avec elle pour former un sortilège surpassant les sorts Dao !
 
@@ -118,7 +118,7 @@ Il refusait de mourir ainsi, en tant que cultivateur au milieu de la Tribulation
 
 Mais sous l'emprise du sortilège de la foi, sa lutte fut brève ; il finit par sourire, ferma les yeux et se dissipa.
 
-Quant à Zhang Daozong, son niveau de culture était légèrement supérieur à celui de Zhao. Son corps s'effondra et son âme originelle hurla en tentant de fuir. Il cracha un jade caché qui émit une douce lueur. L'objet le protégea un instant avant de voler en éclats.
+Quant à Zhang Daozong, son niveau de cultivation était légèrement supérieur à celui de Zhao. Son corps s'effondra et son âme originelle hurla en tentant de fuir. Il cracha un jade caché qui émit une douce lueur. L'objet le protégea un instant avant de voler en éclats.
 
 Les yeux de Zhang Daozong étaient emplis de désespoir. N'ayant jamais cultivé d'avatar, il ne tenait plus qu'à un fil. Son âme originelle commença à se dissiper sous l'effet du sort de la foi, mais elle ne fut pas anéantie. Elle se condensa en une sphère de lumière et s'échappa au loin. Perte de connaissance progressive, il parvint tant bien que mal à s'enfuir.
 

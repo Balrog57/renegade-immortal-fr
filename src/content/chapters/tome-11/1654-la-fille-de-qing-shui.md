@@ -28,13 +28,13 @@ Alors qu'il parlait, tous les cultivateurs du Secte Divin environnants tournère
 
 Le regard de Mu Bingmei demeura calme. Elle ne prêta pas attention au membre du Secte qui l'avait suivie à travers d'innombrables batailles. Elle leva les yeux vers le ciel, contemplant les dizaines de milliers de cultivateurs du Royaume Extérieur qui bombardaient la formation.
 
-Entre elle et les assaillants se dressait l'écran de lumière de la formation planétaire. Une fois que cet écran s'effondrerait, la planète de culture périrait elle aussi.
+Entre elle et les assaillants se dressait l'écran de lumière de la formation planétaire. Une fois que cet écran s'effondrerait, la planète de cultivation périrait elle aussi.
 
 Parmi les envahisseurs du Royaume Extérieur se trouvait un jeune homme vêtu de vert. Il était très beau, mais dégageait une aura maléfique. Il manipulait d'innombrables spectres de femmes magnifiques, créés par des sorts, qui poussaient des cris déchirants tout en attaquant l'écran lumineux.
 
 Le regard du jeune homme perça la lumière et se posa sur Mu Bingmei. Il sourit.
 
-« Belle enfant, ne t'inquiète pas, cet écran va bientôt se briser. J'ai entendu dire que tu étais la femme du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la culture de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
+« Belle enfant, ne t'inquiète pas, cet écran va bientôt se briser. J'ai entendu dire que tu étais la femme du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la cultivation de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
 
 Ce jeune homme était l'un des sept cultivateurs du troisième niveau, juste en dessous de ceux du Vide Arcanique !
 
@@ -42,7 +42,7 @@ Il leva sa main droite, pointa Mu Bingmei du doigt et sourit :
 
 « Tu es à moi ! »
 
-Le regard de Mu Bingmei resta serein, mais ses yeux se glacèrent. Ce jeune homme n'était autre que Dao Feishan, le chef du Clan Dao Fei, réputé pour ses techniques de culture de couple. Sa personnalité était cruelle et de nombreux disciples du Secte Divin avaient péri sous ses coups.
+Le regard de Mu Bingmei resta serein, mais ses yeux se glacèrent. Ce jeune homme n'était autre que Dao Feishan, le chef du Clan Dao Fei, réputé pour ses techniques de cultivation de couple. Sa personnalité était cruelle et de nombreux disciples du Secte Divin avaient péri sous ses coups.
 
 Ce Dao Feishan ne courtisait pas seulement les femmes, mais aussi les beaux hommes. Mu Bingmei avait déjà affronté deux crises mortelles, dont l'une consistait à être traquée par lui. Si Qing Shui n'était pas intervenu pour l'aider, elle aurait eu bien du mal à échapper à l'humiliation.
 
@@ -50,7 +50,7 @@ Ce Dao Feishan ne courtisait pas seulement les femmes, mais aussi les beaux homm
 
 « Je suis la maîtresse du Secte Divin ! » répondit doucement Mu Bingmei, la voix empreinte de détermination.
 
-Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de culture. Derrière elle se trouvaient les cultivateurs de l'Alliance de Culture du Vide Brillant. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
+Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de cultivation. Derrière elle se trouvaient les cultivateurs de l'Alliance de Cultivation du Vide Brillant. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
 
 Ces 3 000 cultivateurs venaient tous du Vide Brillant. Bien qu'épuisés, ils ne flanchaient pas. Ils se tenaient derrière la femme en rose, prêts à mourir !
 
@@ -80,7 +80,7 @@ Tous étaient des cultivateurs d'Allheaven, et ils se sentaient impuissants face
 
 « Quand l'écran brisera, nous déclencherons tous notre autodestruction. Êtes-vous prêts... ? » demanda le Maître Flamespark d'une voix basse.
 
-Ils n'étaient pas le premier groupe à choisir cette voie. Presque toutes les planètes de culture présentes avaient opté pour l'autodestruction dès que leur écran protecteur serait rompu.
+Ils n'étaient pas le premier groupe à choisir cette voie. Presque toutes les planètes de cultivation présentes avaient opté pour l'autodestruction dès que leur écran protecteur serait rompu.
 
 Au loin, un fracas assourdissant retentit. Une autre planète s'effondra après la destruction de son bouclier lumineux.
 
@@ -88,7 +88,7 @@ Soudain, un rire strident jaillit de la formation planétaire et un rayon de lum
 
 Dans un fracas de tonnerre, la lumière verte fut légèrement dispersée et recula de quelques pas. De l'autre côté, le vieil homme fut repoussé de mille pieds ; ses yeux brillèrent d'un éclat sinistre. Dans un sourire narquois, il traça un sceau et une brume noire envahit la zone.
 
-« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie ! Tu es digne d'être le dernier disciple du Seigneur du Royaume Scellé ! Ta culture n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes Joss ! »
+« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie ! Tu es digne d'être le dernier disciple du Seigneur du Royaume Scellé ! Ta cultivation n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes Joss ! »
 
 La lumière verte se dissipa, révélant le corps de Qing Lin. Son visage était pâle et il était gravement blessé. Il n'avait eu qu'un bref instant de repos avant de repartir au combat contre les cultivateurs du troisième niveau du Royaume Extérieur !
 

@@ -30,7 +30,7 @@ De temps à autre, Xuan Luo recrachait une bouffée de gaz vert qui enveloppait 
 
 « J'ai raffiné cette épée pendant très longtemps, et quatre lames sont désormais apparues. C'est un moment critique, mais une fois que la cinquième lame apparaîtra, ce sera un trésor surpuissant pour Wang Lin. » Xuan Luo ouvrit les yeux et sourit, une pointe de fierté brillant dans son regard.
 
-Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Antique, il s'était retiré en culture fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'arme puissante et se sentait redevable envers lui. En raison de sa culture intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
+Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Antique, il s'était retiré en cultivation fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'arme puissante et se sentait redevable envers lui. En raison de sa cultivation intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
 
 Cependant, à peine eut-il ouvert les yeux qu'un rugissement dément, semblant vouloir briser le monde, jaillit de la demeure en bois dans la vallée !
 
@@ -62,7 +62,7 @@ Ce corps était enveloppé d'une lumière multicolore. Ses yeux étaient clos, m
 
 Wang Lin bondit dans les airs, ses cheveux ondulant sans qu'aucun vent ne soit présent. Sa main droite s'élança vers son Corps Véritable des Cinq Éléments, qui fusionna avec lui dans un élan. À cet instant, Wang Lin poussa un nouveau rugissement.
 
-Alors qu'il hurlait, son niveau de culture commença à grimper, passant du stade avancé de la Tribulation du Vide au sommet de la Tribulation du Vide ! Cela confirmait que les spéculations de Wang Lin sur sa voie de culture future étaient exactes !
+Alors qu'il hurlait, son niveau de cultivation commença à grimper, passant du stade avancé de la Tribulation du Vide au sommet de la Tribulation du Vide ! Cela confirmait que les spéculations de Wang Lin sur sa voie de cultivation future étaient exactes !
 
 Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er !!
 
@@ -94,7 +94,7 @@ La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux
 
 « Vous osez m'arrêter ?! »
 
-Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit : « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres de Lord Xuan pour vous retenir. Une décision pourra être prise une fois que Lord Xuan sera arrivé. »
+Le vieil homme dont le niveau de cultivation était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit : « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres de Lord Xuan pour vous retenir. Une décision pourra être prise une fois que Lord Xuan sera arrivé. »
 
 « Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante à la tête. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 

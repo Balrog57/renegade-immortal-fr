@@ -18,7 +18,7 @@ L'homme ne s'arrêta pas, mais son visage était sombre. Il essuya le sang sur s
 
 Hou Fen
 
-Bien que le fléau des bêtes de feu ait été résolu par le pays de culture de rang 4, l'énergie spirituelle y était saturée d'un élément de feu, rendant toute culture impossible. S'ajoutant au fait que le sol était brûlant, le pays était largement recouvert de lave et de volcans en éruption constante, transformant les royaumes mortels en étendues de terres désolées.
+Bien que le fléau des bêtes de feu ait été résolu par le pays de cultivation de rang 4, l'énergie spirituelle y était saturée d'un élément de feu, rendant toute cultivation impossible. S'ajoutant au fait que le sol était brûlant, le pays était largement recouvert de lave et de volcans en éruption constante, transformant les royaumes mortels en étendues de terres désolées.
 
 L'ancienne cité impériale n'était plus qu'un amas de lave et tous les bâtiments avaient disparu. Plus aucune créature vivante ne subsistait à Hou Fen ; le pays tout entier ressemblait à une tombe silencieuse.
 
@@ -30,7 +30,7 @@ Les deux êtres traversaient le ciel comme une étoile filante. Bientôt, ils pa
 
 Quant à Wang Lin, il pensait à l'individu qui les poursuivait et n'avait nul temps pour autre chose. Soudain, il tendit le bras derrière lui et l'épée volante cristalline atterrit dans sa main.
 
-Wang Lin s'arrêta brusquement en fixant une trace de sang sur l'épée volante. Il étala le sang sur sa main et, après l'avoir observé un instant, son expression devint très troublée. Il pouvait ressentir une énergie spirituelle dense émanant de ce sang. Une telle concentration d'énergie dans une si infime quantité... Quel niveau de culture cet individu avait-il atteint ?
+Wang Lin s'arrêta brusquement en fixant une trace de sang sur l'épée volante. Il étala le sang sur sa main et, après l'avoir observé un instant, son expression devint très troublée. Il pouvait ressentir une énergie spirituelle dense émanant de ce sang. Une telle concentration d'énergie dans une si infime quantité... Quel niveau de cultivation cet individu avait-il atteint ?
 
 Il sortit une fiole de jade et y enferma le sang. En cet instant, il sentait comme si une montagne pesait sur son cœur. Il regarda l'immense inscription « Punir » qui surplombait sa tête, ricana, puis s'élança plus vite encore, emportant Li Muwan avec lui.
 
@@ -58,13 +58,13 @@ Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement : « Frèr
 
 Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé résonna dans ses oreilles :
 
-« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les innombrables fois où vous m'avez sauvée. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Formation du Dragon de Combat de la Secte Fighting Evil, avec des améliorations. »
+« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les innombrables fois où vous m'avez sauvée. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en cultivation fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Formation du Dragon de Combat de la Secte Fighting Evil, avec des améliorations. »
 
 « Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné un moment face au danger, alors Wan Er sera satisfaite... »
 
 Tenant le jade, écoutant les paroles de Li Muwan et regardant sa silhouette s'effacer au loin, Wang Lin commença à méditer. Il rangea le jade, puis son corps toucha soudainement le sol. Après un seul pas, il disparut. S'étant éloigné, il se toucha le front et son corps s'évanouit dans un éclat de lumière.
 
-Il était entré dans la perle défiant le ciel ; à cet instant, sa présence s'était volatilisée. Wang Lin avait déjà décidé d'entrer dans la perle après avoir ramené Li Muwan. L'ordre d'exécution allait durer cent jours. Pour lui, ce n'étaient que quelques jours de culture supplémentaires à l'intérieur de la perle.
+Il était entré dans la perle défiant le ciel ; à cet instant, sa présence s'était volatilisée. Wang Lin avait déjà décidé d'entrer dans la perle après avoir ramené Li Muwan. L'ordre d'exécution allait durer cent jours. Pour lui, ce n'étaient que quelques jours de cultivation supplémentaires à l'intérieur de la perle.
 
 C'était aussi pour cette raison que, bien qu'il connaisse les dangers liés à cet ordre d'exécution, il avait tout de même tué Qian Kun.
 
@@ -78,9 +78,9 @@ La femme portait une tenue formelle et dégageait une grande distinction. À sa 
 
 Le vieil homme regarda les trois individus et demanda calmement : « Pourquoi êtes-vous ici tous les trois ? »
 
-Cette femme était Feng Luan, et l'homme au visage érudit n'était autre que son partenaire de culture, Yang Sen. Quant au vieil homme, c'était l'un des ancêtres au stade de l'Âme Naissante du Sanctuaire du Dieu de la Guerre. Son niveau de culture était équivalent à celui de Yang Sen.
+Cette femme était Feng Luan, et l'homme au visage érudit n'était autre que son partenaire de cultivation, Yang Sen. Quant au vieil homme, c'était l'un des ancêtres au stade de l'Âme Naissante du Sanctuaire du Dieu de la Guerre. Son niveau de cultivation était équivalent à celui de Yang Sen.
 
-Yang Sen regarda le vieil homme avec effroi, car il ne parvenait pas à percer son niveau de culture. Il joignit les mains et demanda : « Êtes-vous un compagnon cultivateur de Xuan Wu ? »
+Yang Sen regarda le vieil homme avec effroi, car il ne parvenait pas à percer son niveau de cultivation. Il joignit les mains et demanda : « Êtes-vous un compagnon cultivateur de Xuan Wu ? »
 
 Le vieil homme roula des yeux et répliqua : « Quel compagnon ? Dégagez, ou je m'emparerai de votre Âme Naissante pour raffiner des trésors. »
 
@@ -90,7 +90,7 @@ Yang Sen et Feng Luan échangèrent un regard avant de fixer la fleur de prunier
 
 Le vieil homme fronça les sourcils, impatient. D'un revers de main, il repoussa les trois individus. Un vent puissant les projeta au loin ; même les Âmes Naissantes en leur sein semblèrent sur le point d'être expulsées de leurs corps.
 
-Une fois stabilisés, les visages des trois compères devinrent sombres et Yang Sen demanda : « Quel est votre niveau de culture ? »
+Une fois stabilisés, les visages des trois compères devinrent sombres et Yang Sen demanda : « Quel est votre niveau de cultivation ? »
 
 Le vieil homme au visage rouge répondit amèrement : « Au moins au stade avancé de l'Âme Naissante... »
 
@@ -100,7 +100,7 @@ Feng Luan fronça les sourcils et murmura : « Zou Bin, qu'était cette fleur de
 
 « Les Mers Démoniaques comptent au total 999 cités, et un peu plus de 300 d'entre elles se trouvent dans la mer intérieure. Parmi ces quelque trois cents cités, sept sont appelées le Pays des Sept Pruniers. »
 
-« Les sept cités reliées entre elles forment les pétales d'une fleur de prunier. Vu de loin, cela y ressemble fort. Il existe sept seigneurs de cité dont le niveau de culture est impénétrable. La rumeur prétend qu'ils ont déjà atteint le stade de la Formation de l'Âme, mais rien n'est confirmé. »
+« Les sept cités reliées entre elles forment les pétales d'une fleur de prunier. Vu de loin, cela y ressemble fort. Il existe sept seigneurs de cité dont le niveau de cultivation est impénétrable. La rumeur prétend qu'ils ont déjà atteint le stade de la Formation de l'Âme, mais rien n'est confirmé. »
 
 Le front de Feng Luan se plissa alors qu'elle demandait : « Cette personne, tout à l'heure... »
 

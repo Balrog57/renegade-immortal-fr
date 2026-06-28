@@ -12,7 +12,7 @@ L'ancien Empereur Céleste était-il réellement omnipotent, ou l'Omniscient ét
 
 Même en cas d'échec, cela resterait une fortune pour l'Omniscient. Il pourrait utiliser ce plan qu'il avait élaboré durant d'innombrables années pour comprendre tout ce dont il avait besoin !
 
-Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient le Démon Antique Ta Jia ou l'Alliance de Culture ! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao !
+Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient le Démon Antique Ta Jia ou l'Alliance de Cultivation ! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao !
 
 Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing Lin. Certains cherchaient même à percer le secret de la troisième étape. D'autres le croiraient fou, mais ce qu'il désirait, c'était livrer à Qing Lin une guerre de prédictions !
 
@@ -48,7 +48,7 @@ Quant à Wang Lin, dès l'arrivée de l'avatar de l'Omniscient, il se retrouva d
 
 Il y avait aussi l'avatar de l'Omniscient. Celui vêtu de gris était le plus rapide, se rapprochant de Wang Lin avec une expression indifférente. Deux autres avatars de l'Omniscient suivaient de près l'avatar gris.
 
-Ces quatre puissances possédaient des niveaux de culture redoutables. Alors qu'ils chargeaient tous vers lui, les pupilles de Wang Lin se rétractèrent et il prit rapidement de la distance.
+Ces quatre puissances possédaient des niveaux de cultivation redoutables. Alors qu'ils chargeaient tous vers lui, les pupilles de Wang Lin se rétractèrent et il prit rapidement de la distance.
 
 C'est à cet instant précis que le ciel s'effondra soudainement et que la loi d'origine du firmament pénétra dans la Terre des Esprits Démoniaques.
 
@@ -104,4 +104,4 @@ Même le fou de Maître du Vide fut surpris et s'éveilla brusquement de sa conf
 
 « La... Loi d'origine !!! »
 
-Lorsqu'il était au stade intermédiaire du Scryer Nirvana, il avait compris la loi du monde pour créer Nuit Brisée. Or, le niveau de culture de Wang Lin était désormais bien supérieur à celui qu'il avait alors, au sommet du Scryer Nirvana et à un seul pas du Nirvana Cleanser. À son niveau actuel, s'il lançait ce sort qu'il ne pouvait utiliser que lors des rares moments où la loi d'origine se manifestait... même Wang Lin ignorait quelle en serait la puissance dévastatrice.
+Lorsqu'il était au stade intermédiaire du Scryer Nirvana, il avait compris la loi du monde pour créer Nuit Brisée. Or, le niveau de cultivation de Wang Lin était désormais bien supérieur à celui qu'il avait alors, au sommet du Scryer Nirvana et à un seul pas du Nirvana Cleanser. À son niveau actuel, s'il lançait ce sort qu'il ne pouvait utiliser que lors des rares moments où la loi d'origine se manifestait... même Wang Lin ignorait quelle en serait la puissance dévastatrice.

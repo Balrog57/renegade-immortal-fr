@@ -26,7 +26,7 @@ Bien que le corps de Wang Ping fût celui d'un mortel, son cœur était façonn�
 
 Expérimenter la vie à travers les montagnes, apaiser son esprit en les traversant, et ressentir la puissance en surmontant chaque relief. Pourtant, il ne devait jamais s'arrêter ni céder devant cette force ; il continuait donc d'escalader chaque montagne qui se dressait devant lui. Il utilisait son corps de mortel pour hériter des idéaux défiant le ciel de Wang Lin.
 
-Wang Lin n'avait transmis aucune méthode de culture à Wang Ping, mais il utilisait sa propre manière de faire pour aider à affiner l'esprit du jeune homme.
+Wang Lin n'avait transmis aucune méthode de cultivation à Wang Ping, mais il utilisait sa propre manière de faire pour aider à affiner l'esprit du jeune homme.
 
 Soif ? Bois de l'eau de source. Faim ? Mange des fruits et de la viande sauvage. Fatigue ? Repose-toi sur le sol. Somnolence ? Allonge-toi sur la terre et laisse le ciel te servir de couverture.
 
@@ -126,7 +126,7 @@ Le chariot resta silencieux pendant un long moment. Wang Ping baissa la tête et
 
 La première fois, c’était il y a dix ans, alors qu'il avait dix-sept ans.
 
-Wang Lin ne détourna pas le regard de l'horizon et répondit calmement : « Tu n'es pas fait pour la culture ! »
+Wang Lin ne détourna pas le regard de l'horizon et répondit calmement : « Tu n'es pas fait pour la cultivation ! »
 
 Wang Ping regarda la silhouette de son père et demanda, malgré lui : « Père, pourquoi ? »
 

@@ -110,7 +110,7 @@ Dès qu'il perdit de la vitesse, Wang Lin chargea comme un éclair céleste. Il 
 
 Dans un fracas tonitruant, le corps du jeune homme aux cheveux blancs vola en éclats. La barrière d'eau qui bloquait Wang Lin se déforma puis se dissipa.
 
-Wang Lin ne se précipita pas ; il ferma les yeux. Sa culture déferla et son pouvoir de Dieu Ancien se concentra dans sa jambe droite. Il utilisa sa puissante culture du stade intermédiaire du Vide Spirituel et ses pouvoirs divins pour récupérer rapidement.
+Wang Lin ne se précipita pas ; il ferma les yeux. Sa cultivation déferla et son pouvoir de Dieu Ancien se concentra dans sa jambe droite. Il utilisa sa puissante cultivation du stade intermédiaire du Vide Spirituel et ses pouvoirs divins pour récupérer rapidement.
 
 Un instant plus tard, Wang Lin ouvrit soudainement les yeux et s'avança dans la barrière d'eau en train de se dissiper. Cependant, alors qu'il n'était qu'à demi-chemin, il s'arrêta brusquement.
 

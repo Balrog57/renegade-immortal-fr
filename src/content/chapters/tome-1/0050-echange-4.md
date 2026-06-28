@@ -38,7 +38,7 @@ L'Ancien Ouyang sourit et dit : « Notre Secte Xuan Dao n'a pas encore pris cett
 
 Les disciples internes de la Secte Heng Yue étaient tous confus, mais ils sentaient un poids immense peser sur leurs cœurs. Même le ciel semblait s'être assombri.
 
-Wang Lin fut alarmé. Il semblait que ce que Situ Nan avait dit soit vrai : le monde de la culture était véritablement divisé par les rangs.
+Wang Lin fut alarmé. Il semblait que ce que Situ Nan avait dit soit vrai : le monde de la cultivation était véritablement divisé par les rangs.
 
 Le visage de Sun Dazhu était livide et son regard éteint. Il murmura pour lui-même : « C'est fini... tout est fini... tous les ancêtres de la Secte Heng Yue sont morts. Auparavant, nous pouvions au moins compter sur eux pour intimider les autres sectes et tenir bon, mais maintenant qu'ils sont morts, c'est la fin. Maudit soit ce destin ! Si les pays de rang 4 n'avaient pas envahi la région il y a 500 ans pour voler l'Étoile du Dragon, entraînant le retrait de tous les cultivateurs de l'Âme Naissante du pays, la Secte Heng Yue n'en serait pas arrivée là. »
 

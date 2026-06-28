@@ -2,7 +2,7 @@
 n: 947
 title: Qualification
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 947 - Qualification
 slug: qualification
 ---
@@ -16,9 +16,9 @@ Il agita sa main droite et traça des sillons du bout des doigts. Des éclairs d
 
 « Tombe de Sun Tai »
 
-« Pour nous, les cultivateurs, cent ans ou mille ans ne sont que l'espace d'un clin d'œil. La plupart des proches auront déjà disparu, et ceux qui restent se sentent étrangers... Une fois que l'on s'engage sur la voie de la culture, on est condamné à une vie de privations.
+« Pour nous, les cultivateurs, cent ans ou mille ans ne sont que l'espace d'un clin d'œil. La plupart des proches auront déjà disparu, et ceux qui restent se sentent étrangers... Une fois que l'on s'engage sur la voie de la cultivation, on est condamné à une vie de privations.
 
-« Lorsque l'on parcourt le chemin de la culture, quand l'on tourne la tête, on ne voit plus d'où l'on vient ; et lorsque l'on regarde la route devant soi, elle est enveloppée de brume. »
+« Lorsque l'on parcourt le chemin de la cultivation, quand l'on tourne la tête, on ne voit plus d'où l'on vient ; et lorsque l'on regarde la route devant soi, elle est enveloppée de brume. »
 
 Wang Lin soupira en regardant la tombe de Sun Tai, les yeux emplis de regret.
 
@@ -28,7 +28,7 @@ Wang Lin soupira en regardant la tombe de Sun Tai, les yeux emplis de regret.
 
 « L'arbre à abricot fleurit de fleurs blanches...
 
-« La culture, la culture, les mortels aspirent à devenir immortels et à entrer dans le monde de la culture. Pourtant, ils ignorent combien de cultivateurs envient la vie paisible d'un mortel.
+« La cultivation, la cultivation, les mortels aspirent à devenir immortels et à entrer dans le monde de la cultivation. Pourtant, ils ignorent combien de cultivateurs envient la vie paisible d'un mortel.
 
 « Combien sont morts en terres étrangères comme Sun Tai, leurs cendres dispersées par le vent, incapables de rentrer chez eux... Cependant, beaucoup de parents et de proches n'ont pu revoir leurs enfants, même à l'instant de leur dernier souffle. Si l'on pouvait choisir à nouveau, prendrait-on encore ce chemin pour devenir un cultivateur... »
 
@@ -38,7 +38,7 @@ La silhouette de Wang Lin s'effaça alors qu'elle fusionnait avec ces mots. Pour
 
 Wang Lin traversa les étoiles. Un puissant sentiment de regret pesait sur lui. Bien que le voyage fût court, l'humeur persistait en lui.
 
-La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs d'Allheaven. Une planète de culture se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Li Yunzi s'en moquait peu.
+La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs d'Allheaven. Une planète de cultivation se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Li Yunzi s'en moquait peu.
 
 Li Yunzi était assis au sommet d'une montagne sur la planète. À ses côtés se tenait un jeune homme à l'expression sombre. Bien qu'assis là, il regardait au loin comme s'il attendait quelque chose.
 
@@ -50,13 +50,13 @@ Il n'y avait que peu de cultivateurs d'Allheaven ici, seulement quelques individ
 
 Son sens divin était projeté à travers les treize Lou Fu, ce qui lui permettait de couvrir une zone bien plus vaste qu'à la normale. Par conséquent, rien dans le secteur ne pouvait échapper à son sens divin.
 
-La silhouette de Wang Lin apparut au milieu des ondulations de l'espace. Il était venu sur cette planète de culture pour chercher Li Yunzi. C'était la seconde affaire qu'il devait traiter. Avant d'entrer dans le vide, Wang Lin avait reçu un message par sens divin, et l'expéditeur était Li Yunzi.
+La silhouette de Wang Lin apparut au milieu des ondulations de l'espace. Il était venu sur cette planète de cultivation pour chercher Li Yunzi. C'était la seconde affaire qu'il devait traiter. Avant d'entrer dans le vide, Wang Lin avait reçu un message par sens divin, et l'expéditeur était Li Yunzi.
 
 Li Yunzi, assis au sommet de la montagne, ouvrit lentement les yeux. À l'instant même où il le fit, les treize sphères de sang tremblèrent et treize yeux rouges apparurent sur elles.
 
 Toutes fixaient une seule direction, créant une pression colossale. Cette force formait un sort capable d'effondrer les étoiles.
 
-Li Yunzi esquissa un léger sourire et dit lentement : « Tu es venu. » Grâce à sa culture, il pouvait naturellement voir que Wang Lin avait subi des changements, mais il ne le mentionna pas et n'interrogea pas le jeune homme. Après tout, il était inférieur au Maître Flamespark et ne pouvait donc pas percer totalement ses secrets.
+Li Yunzi esquissa un léger sourire et dit lentement : « Tu es venu. » Grâce à sa cultivation, il pouvait naturellement voir que Wang Lin avait subi des changements, mais il ne le mentionna pas et n'interrogea pas le jeune homme. Après tout, il était inférieur au Maître Flamespark et ne pouvait donc pas percer totalement ses secrets.
 
 Une lueur de froideur passa dans les yeux de Xu Ting. Il laissa échapper un grognement méprisant et ne cacha pas son intention meurtrière en fixant Wang Lin.
 
@@ -112,6 +112,6 @@ Une intention de bataille colossale surgit du vide et s'abattit sur Xu Ting !
 
 Le corps de Xu Ting trembla sous l'effet d'un vent monstrueux. C'était comme si une bête antique avait été scellée à l'intérieur et que, le sceau rompu, elle libérait son aura terrifiante. Des millénaires de rage s'échappèrent en un instant, comme pour le dévorer.
 
-L'expression de Li Yunzi trahissait une pointe de tension. Il était rare qu'un homme de sa culture et de son âge manifeste une telle inquiétude. Il savait pertinemment que de nombreux talents de sa famille avaient pu contempler le premier parchemin, mais n'avaient pu résister à l'intention de bataille inimaginable du second avant même qu'il ne soit totalement déployé.
+L'expression de Li Yunzi trahissait une pointe de tension. Il était rare qu'un homme de sa cultivation et de son âge manifeste une telle inquiétude. Il savait pertinemment que de nombreux talents de sa famille avaient pu contempler le premier parchemin, mais n'avaient pu résister à l'intention de bataille inimaginable du second avant même qu'il ne soit totalement déployé.
 
 La conséquence la moins grave était une blessure ou une mutilation sévère ; la plus terrible... était la destruction totale de leur âme originelle !

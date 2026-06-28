@@ -72,13 +72,13 @@ L'expression du vieil homme changea radicalement. Il n'aurait jamais cru que son
 
 « Transformation de l'Âme... » marmonna-t-il amèrement avant de faire volte-face pour s'enfuir sans hésiter. Il savait qu'il n'avait aucune chance face à un tel cultivateur.
 
-« Quelle malchance. Je ne peux croire que l'ancêtre d'un pays de culture de rang 3 soit un vieux monstre de la Transformation de l'Âme. Comment ai-je pu avoir la déveine de tomber sur quelqu'un comme lui ?! » Le cœur du vieil homme était amer. Mais alors qu'il s'apprêtait à partir, le ciel s'obscurcit. Un bruit de déchirure retentit et une immense faille spatiale apparut pour bloquer sa fuite.
+« Quelle malchance. Je ne peux croire que l'ancêtre d'un pays de cultivation de rang 3 soit un vieux monstre de la Transformation de l'Âme. Comment ai-je pu avoir la déveine de tomber sur quelqu'un comme lui ?! » Le cœur du vieil homme était amer. Mais alors qu'il s'apprêtait à partir, le ciel s'obscurcit. Un bruit de déchirure retentit et une immense faille spatiale apparut pour bloquer sa fuite.
 
 Le vieil homme s'immobilisa, terrifié.
 
 « Pensais-tu que je te laisserais partir ? » Wang Lin le regarda froidement avant d'insuffler un nouveau Sens Divin dans la sculpture. Il la lança, et elle disparut de nouveau au cœur du Mont Heng Yue.
 
-Le visage du vieil homme était lugubre lorsqu'il dit lentement : « Monsieur, selon l'accord, le pays de Suzaku a renoncé à tous les pays de culture de rang 3 pour nous permettre de retarder notre attaque sur les pays de culture de rang 4. Voulez-vous rompre cet accord ? »
+Le visage du vieil homme était lugubre lorsqu'il dit lentement : « Monsieur, selon l'accord, le pays de Suzaku a renoncé à tous les pays de cultivation de rang 3 pour nous permettre de retarder notre attaque sur les pays de cultivation de rang 4. Voulez-vous rompre cet accord ? »
 
 Wang Lin fronça les sourcils et demanda : « Qui a conclu cet accord avec vous ? Zhuque Zi ? »
 
@@ -120,7 +120,7 @@ Wang Lin lança un regard calme au vieil homme avant de refermer sa main droite.
 
 L'anneau disparut et cette masse se transforma en un nuage de brume sanglante.
 
-Avec le niveau de culture de Wang Lin, tuer cet homme était aussi simple que de chasser la poussière. Il n'avait même pas eu besoin d'utiliser de trésors magiques. Après tout, son domaine différait de celui des autres cultivateurs de la Formation de l'Âme et contenait déjà une part d'énergie spirituelle céleste.
+Avec le niveau de cultivation de Wang Lin, tuer cet homme était aussi simple que de chasser la poussière. Il n'avait même pas eu besoin d'utiliser de trésors magiques. Après tout, son domaine différait de celui des autres cultivateurs de la Formation de l'Âme et contenait déjà une part d'énergie spirituelle céleste.
 
 Il se trouvait actuellement à un demi-pas du stade de la Transformation de l'Âme. Dès qu'il posséderait suffisamment de jades célestes, il atteindrait ce stade. Cependant, les jades célestes étaient bien trop rares.
 

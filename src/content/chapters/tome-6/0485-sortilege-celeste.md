@@ -34,7 +34,7 @@ Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simp
 
 Au cours du mois passé ensemble, Situ Nan lui avait expliqué les différents types de sorts utilisés par les cultivateurs, et ceux qui avaient le plus marqué Wang Lin étaient les sorts célestes.
 
-L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux que l'alliance de culture octroyait aux dirigeants des planètes de culture !
+L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux que l'alliance de cultivation octroyait aux dirigeants des planètes de cultivation !
 
 Cependant, les sceaux nécessitaient une transmission, tandis que les sorts célestes ne requéraient que le sceau et l'incantation.
 
@@ -66,11 +66,11 @@ Dans la chambre secrète située au troisième étage du pavillon, Wang Lin pous
 
 « L'All-Seer observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à l'All-Seer, et je ne possède rien pour me protéger de lui. Cependant, je crois que l'All-Seer n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique d'avatar interdite que le Deuxième Frère utilisait était excellente ! »
 
-« Désormais, ma culture a atteint le sommet du début de la phase de Transformation de l'Âme, et durant l'Essai Humain, j'ai traversé d'innombrables cycles qui ont solidifié mon cœur Dao. »
+« Désormais, ma cultivation a atteint le sommet du début de la phase de Transformation de l'Âme, et durant l'Essai Humain, j'ai traversé d'innombrables cycles qui ont solidifié mon cœur Dao. »
 
 « Lors de l'Essai Céleste, j'ai pu comprendre le Dao céleste et obtenir une illumination dans mon domaine. Cependant, pour atteindre le milieu de la Transformation de l'Âme, j'ai besoin de jades célestes. La quantité de jades dont je dispose est insuffisante. »
 
-Après avoir réfléchi un instant, Wang Lin déploya plusieurs restrictions pour protéger le pavillon et commença sa culture.
+Après avoir réfléchi un instant, Wang Lin déploya plusieurs restrictions pour protéger le pavillon et commença sa cultivation.
 
 Sur le côté est de la division pourpre, posé sur un lit de roches de jade, se trouvait un pavillon très luxueux portant trois grands caractères gravés : « Pavillon de l'Étoile Pourpre ».
 
@@ -80,13 +80,13 @@ Zhao Xingsha entra dans le pavillon avec une expression sombre. Dès qu'il fut �
 
 « Le Pavillon de la Forêt Pourpre m'importe peu, mais la place de disciple direct au sein de la division pourpre m'appartiendra sans aucun doute !!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
 
-« La Quatrième Sœur... son niveau de culture est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin !! »
+« La Quatrième Sœur... son niveau de cultivation est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin !! »
 
-« À l'origine, je ne le considérais pas comme une menace, mais aujourd'hui j'ai vu que ses sorts sont redoutables et ses trésors précieux. Bien que sa culture ne soit qu'au début de la Transformation de l'Âme, il peut menacer quelqu'un au stade avancé de cette même étape. Il est mon plus grand ennemi ! Hélas, après toutes ces années, mes blessures ne se sont pas encore guéries ; autrement, un simple cultivateur au début de la Transformation de l'Âme ne suffirait pas à attirer mon attention ! »
+« À l'origine, je ne le considérais pas comme une menace, mais aujourd'hui j'ai vu que ses sorts sont redoutables et ses trésors précieux. Bien que sa cultivation ne soit qu'au début de la Transformation de l'Âme, il peut menacer quelqu'un au stade avancé de cette même étape. Il est mon plus grand ennemi ! Hélas, après toutes ces années, mes blessures ne se sont pas encore guéries ; autrement, un simple cultivateur au début de la Transformation de l'Âme ne suffirait pas à attirer mon attention ! »
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait le Pavillon de la Forêt Pourpre avec une expression sinistre.
 
-« Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier ! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement ; tu ne vaudras plus alors mon attention ! »
+« Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier ! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma cultivation sera en voie de rétablissement ; tu ne vaudras plus alors mon attention ! »
 
 Sur le côté ouest de la division pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Palais Wei Pourpre ! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
 
@@ -94,7 +94,7 @@ C'était une branche fraîchement coupée, sur laquelle poussaient encore de jeu
 
 Bai Wei observa la branche avec un air pensif.
 
-« La culture de ce Wang Lin est étrange ! Lorsque je l'ai rencontré sur la planète commerciale, j'avais senti qu'il possédait la même force que celle qu'il vient de manifester, et à l'époque, il n'utilisait même pas tous ces trésors et ces sorts. Ce Septième Frère cache bien des secrets... mais plus ses secrets sont nombreux, plus il est fascinant... » marmonna Bai Wei, le regard indéchiffrable.
+« La cultivation de ce Wang Lin est étrange ! Lorsque je l'ai rencontré sur la planète commerciale, j'avais senti qu'il possédait la même force que celle qu'il vient de manifester, et à l'époque, il n'utilisait même pas tous ces trésors et ces sorts. Ce Septième Frère cache bien des secrets... mais plus ses secrets sont nombreux, plus il est fascinant... » marmonna Bai Wei, le regard indéchiffrable.
 
 Il posa délicatement son index droit sur le coin de sa bouche...
 

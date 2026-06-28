@@ -20,7 +20,7 @@ La seconde, l'aura yin, est l'énergie yin issue des âmes féminines. Cette aur
 
 Après avoir obtenu ces deux auras, le cultivateur doit les fusionner, puis combiner le résultat avec une troisième aura : l'aura du meurtre ! Une fois les trois auras fusionnées, l'individu devra subir une épreuve avec seulement 10 % de chances de survie. Quiconque survivra pourra commencer à utiliser le sortilège de la mort. Mais dès lors qu'un cultivateur entreprend cette voie, il devra endurer une douleur inimaginable chaque jour et affronter un nouveau défi tous les trois ans, avec, pour chacun d'eux, seulement 10 % de chances de survie.
 
-Après avoir traversé plusieurs cycles, le sortilège de la mort atteint son premier stade de perfectionnement. Si l'on souhaite continuer sa culture, le risque de mourir augmente. Ce sortilège tente de simuler le Royaume du Ji.
+Après avoir traversé plusieurs cycles, le sortilège de la mort atteint son premier stade de perfectionnement. Si l'on souhaite continuer sa cultivation, le risque de mourir augmente. Ce sortilège tente de simuler le Royaume du Ji.
 
 Cependant, il est bien plus faible que le Royaume du Ji et beaucoup plus dangereux à cultiver, ce qui le rend quelque peu pyrrhique. Bien que sa capacité offensive soit prodigieuse, le sortilège de la mort finit par devenir une technique perdue, car de moins en moins de personnes acceptent de la cultiver.
 
@@ -42,9 +42,9 @@ Bien que le sortilège de la mort fût puissant, il restait bien trop faible com
 
 Le Royaume du Ji était une mutation de la foudre de la divine rétribution ; elle pouvait tuer instantanément des cultivateurs de même niveau.
 
-Ce sortilège de la mort était une technique capable de tuer d'un seul coup n'importe quel individu ayant un niveau de culture inférieur, mais il n'avait que très peu d'effet sur ceux dont le niveau était plus élevé.
+Ce sortilège de la mort était une technique capable de tuer d'un seul coup n'importe quel individu ayant un niveau de cultivation inférieur, mais il n'avait que très peu d'effet sur ceux dont le niveau était plus élevé.
 
-Par exemple, si un cultivateur au stade intermédiaire de la Formation du Noyau l'utilisait, il tuerait instantanément quiconque avait une culture moindre. Même contre des adversaires de même niveau, il avait une chance de réussir ou, à défaut, de provoquer au moins la stupéfaction de l'ennemi.
+Par exemple, si un cultivateur au stade intermédiaire de la Formation du Noyau l'utilisait, il tuerait instantanément quiconque avait une cultivation moindre. Même contre des adversaires de même niveau, il avait une chance de réussir ou, à défaut, de provoquer au moins la stupéfaction de l'ennemi.
 
 Cependant, face à un cultivateur au stade avancé de la Formation du Noyau, cette technique s'avérait peu utile et, si l'utilisateur manquait de prudence, il risquait de subir un contrecoup violent.
 
@@ -108,7 +108,7 @@ Wang Lin afficha un air de soulagement et avança.
 
 Le hall s'illumina soudainement alors que des lueurs verdoyantes s'allumaient tout autour. Au centre, un vieil homme vêtu d'une robe verte était assis et observait Wang Lin.
 
-Le niveau de culture de cet homme avait atteint le sommet du stade avancé de l'Âme Naissante. Il ne lui manquait que la maîtrise de son propre domaine pour atteindre le stade de la Formation de l'Âme.
+Le niveau de cultivation de cet homme avait atteint le sommet du stade avancé de l'Âme Naissante. Il ne lui manquait que la maîtrise de son propre domaine pour atteindre le stade de la Formation de l'Âme.
 
 Le vieil homme détourna son regard de Wang Lin et demanda d'un ton neutre : « Quel est ton nom ? »
 
@@ -116,15 +116,15 @@ Wang Lin joignit les mains et répondit respectueusement : « Le nom du disciple
 
 Le regard de l'Ancien se fit sérieux et il demanda : « Comment as-tu brisé le sortilège de la mort de Sima ? »
 
-Wang Lin répondit calmement : « Le disciple a dissimulé son niveau de culture. Ma véritable puissance se situe au sommet du stade avancé de la Formation du Noyau ; le sortilège de la mort ne pouvait donc naturellement pas m'atteindre. »
+Wang Lin répondit calmement : « Le disciple a dissimulé son niveau de cultivation. Ma véritable puissance se situe au sommet du stade avancé de la Formation du Noyau ; le sortilège de la mort ne pouvait donc naturellement pas m'atteindre. »
 
-Le vieil homme acquiesça. De son point de vue, ce Qing Mu ne mentait pas et avait bel et bien caché sa force. Dès son entrée, l'Ancien avait remarqué que sa culture n'était pas au stade intermédiaire de la Formation du Noyau, mais bien au sommet du stade avancé.
+Le vieil homme acquiesça. De son point de vue, ce Qing Mu ne mentait pas et avait bel et bien caché sa force. Dès son entrée, l'Ancien avait remarqué que sa cultivation n'était pas au stade intermédiaire de la Formation du Noyau, mais bien au sommet du stade avancé.
 
 En un clin d'œil, le vieil homme apparut devant Wang Lin. Son doigt fut aussi rapide que l'éclair lorsqu'il vint presser le point entre les sourcils de Wang Lin.
 
 Wang Lin ne chercha pas à esquiver. Au moment où le doigt le toucha, une énergie glaciale pénétra son corps, mais avec son âme originelle, il n'était nullement inquiet.
 
-Peu après, l'homme retira son doigt. Ses yeux n'étaient plus aussi froids. Il déclara : « Je suis le Grand Ancien de la Montagne de l'Affinement de l'Âme. Tu peux te rendre à la montagne latérale pour récupérer ton jeton et tes vêtements. Tu peux également te rendre à la bibliothèque de la Montagne de l'Affinement de l'Âme pour choisir une technique. Enfin, tu es libre d'ouvrir une grotte sur n'importe quelle partie de la montagne pour ta culture. »
+Peu après, l'homme retira son doigt. Ses yeux n'étaient plus aussi froids. Il déclara : « Je suis le Grand Ancien de la Montagne de l'Affinement de l'Âme. Tu peux te rendre à la montagne latérale pour récupérer ton jeton et tes vêtements. Tu peux également te rendre à la bibliothèque de la Montagne de l'Affinement de l'Âme pour choisir une technique. Enfin, tu es libre d'ouvrir une grotte sur n'importe quelle partie de la montagne pour ta cultivation. »
 
 « Il n'y a pas de maîtres au sein de la Secte de l'Affinement de l'Âme ; chacun cultive par ses propres moyens. Si tu as des questions, tu pourras me les poser. Maintenant, va-t'en. »
 
@@ -136,18 +136,18 @@ Peu après son départ, deux puissants sens divins apparurent dans le hall.
 
 Le vieil homme eut un ricanement méprisant : « Rien de préoccupant ! »
 
-« Junior frère apprenti, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
+« Junior frère apprenti, ces dernières années, tous les patriarches sont en cultivation fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
 
 La voix du vieil homme se fit glaciale : « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte de l'Affinement de l'Âme. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
 « La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère aîné en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. L'aîné n'est-il toujours pas satisfait ? »
 
-L'expression du vieil homme se crispa : « Quelles absurdités ! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé ! Je ne compte pas sacrifier deux disciples aînés pour cela ! »
+L'expression du vieil homme se crispa : « Quelles absurdités ! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de cultivation légèrement plus élevé ! Je ne compte pas sacrifier deux disciples aînés pour cela ! »
 
 Les deux sens divins éclatèrent d'un rire sonore avant de se dissiper.
 
 Wang Lin rétracta son sens divin alors qu'il remontait le sentier de la montagne.
 
-« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en culture fermée, et la Secte de l'Affinement de l'Âme est gérée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
+« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en cultivation fermée, et la Secte de l'Affinement de l'Âme est gérée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
 
 Après avoir récupéré son jeton et ses vêtements, Wang Lin remarqua qu'il était encore tôt dans la journée ; il décida donc de se rendre à la bibliothèque.

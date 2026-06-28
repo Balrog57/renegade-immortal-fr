@@ -80,21 +80,21 @@ Trois jours plus tard, Wang Lin quitta cette planète abandonnée avec Li Muwan 
 
 La voix mélancolique de Wang Lin se propagea à travers les étoiles. Sa tristesse était si puissante qu'elle semblait s'attarder dans l'espace.
 
-Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dans le Système Stellaire de l'Alliance. Depuis la zone ouest du système, l'armée des cultivateurs Allheaven ravageait tout sur son passage. Sous les assauts des Allheaven, les planètes de culture tombaient une à une et les cultivateurs qui y résidaient battaient en retraite.
+Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dans le Système Stellaire de l'Alliance. Depuis la zone ouest du système, l'armée des cultivateurs Allheaven ravageait tout sur son passage. Sous les assauts des Allheaven, les planètes de cultivation tombaient une à une et les cultivateurs qui y résidaient battaient en retraite.
 
-C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Culture ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
+C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Cultivation ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
 
 Le camp Allheaven était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Flamespark et ses compagnons étaient rongés par le doute.
 
 Si la même chose s'était produite dans le Système Stellaire Allheaven, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir !
 
-Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Allheaven étaient de rang 6 ; ils n'avaient trouvé aucune planète de rang 7.
+Non seulement l'Alliance de Cultivation restait silencieuse, mais aucune planète de cultivation de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Allheaven étaient de rang 6 ; ils n'avaient trouvé aucune planète de rang 7.
 
 Cette situation singulière troublait davantage les cultivateurs Allheaven. En apparence, le camp Allheaven semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire Allheaven profondément mal à l'aise.
 
-Mais ce n'était pas là le point principal. Durant ces quinze jours de combats, l'efficacité martiale des pays de culture de rang 6 avait terriblement stupéfié les cultivateurs Allheaven !
+Mais ce n'était pas là le point principal. Durant ces quinze jours de combats, l'efficacité martiale des pays de cultivation de rang 6 avait terriblement stupéfié les cultivateurs Allheaven !
 
-Ces regards sanguinaires, ces plans rusés, ces trésors complexes et tant d'autres choses causèrent de lourdes pertes aux Allheaven. Ce contraste saisissant leur fit comprendre que si leurs niveaux de culture étaient identiques, ce sont les Allheaven qui perdraient !
+Ces regards sanguinaires, ces plans rusés, ces trésors complexes et tant d'autres choses causèrent de lourdes pertes aux Allheaven. Ce contraste saisissant leur fit comprendre que si leurs niveaux de cultivation étaient identiques, ce sont les Allheaven qui perdraient !
 
 Ce qui choqua encore plus les Allheaven, c'est que tous les cultivateurs de l'Alliance tuaient avec une détermination implacable et possédaient une expérience de combat phénoménale. Les Allheaven avaient le sentiment que chaque membre de l'Alliance était issu de la planète Dong Lin !
 
@@ -104,10 +104,10 @@ Heureusement, personne ne vivait sur cette planète. Autrement, nul n'aurait sur
 
 Un rire exalté jaillit de la planète, accompagné de bruits de déchirement encore plus violents.
 
-« Je suis enfin dehors ! Malédiction, petites filles de la planète Feng Luan, attendez-vous bien ! Vous m'avez forcé à une culture en isolation pendant si longtemps que je n'ai eu d'autre choix que de me cacher sur cette maudite planète. Nous n'en avons pas fini ! » Une voix extrêmement arrogante résonna à travers le monde. Au même instant, une silhouette jaillit des entrailles de la planète !
+« Je suis enfin dehors ! Malédiction, petites filles de la planète Feng Luan, attendez-vous bien ! Vous m'avez forcé à une cultivation en isolation pendant si longtemps que je n'ai eu d'autre choix que de me cacher sur cette maudite planète. Nous n'en avons pas fini ! » Une voix extrêmement arrogante résonna à travers le monde. Au même instant, une silhouette jaillit des entrailles de la planète !
 
 Ses vêtements étaient en lambeaux et sa peau était sombre et très sale. Il avait l'air extrêmement négligé, mais ses yeux brillaient d'une lumière étrange qui coupait le souffle.
 
 Alors qu'il chargeait, des détonations soniques se produisaient. De vastes pans de la planète commençaient à s'effondrer, comme si elle ne pouvait plus supporter sa propre structure.
 
-« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en culture en isolation. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux ! En une seule fois, j'ai cultivé jusqu'au stade initial du Nirvana Scryer. Je vais aller régner sur la planète Feng Luan ! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.
+« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en cultivation en isolation. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux ! En une seule fois, j'ai cultivé jusqu'au stade initial du Nirvana Scryer. Je vais aller régner sur la planète Feng Luan ! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.

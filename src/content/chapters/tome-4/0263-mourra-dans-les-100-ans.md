@@ -40,7 +40,7 @@ Wang Lin le regarda et lança le pichet de vin vers lui. Le cultivateur aux gran
 
 Wang Lin eut un léger rire : « Puisque cela vous plaît, je vous offre le reste du pichet. »
 
-Le cultivateur aux grandes oreilles éclata de rire et n'opposa aucune résistance au présent. Il se servit une autre coupe et la vida. Après un long silence, il poussa un soupir : « Le niveau de culture de mon compagnon est supérieur au mien. Utiliser le monde mortel pour devenir mortel... je vous admire. »
+Le cultivateur aux grandes oreilles éclata de rire et n'opposa aucune résistance au présent. Il se servit une autre coupe et la vida. Après un long silence, il poussa un soupir : « Le niveau de cultivation de mon compagnon est supérieur au mien. Utiliser le monde mortel pour devenir mortel... je vous admire. »
 
 Wang Lin agita sa main droite et un nouveau pichet de vin apparut dans sa paume. Il prit une gorgée et répliqua : « Vous utilisez votre disciple pour devenir mortel, en utilisant l'émotion d'un maître et d'un parent pour comprendre les cieux. Le résultat est le même que le mien ; il n'y a donc aucune raison de m'admirer. »
 
@@ -68,7 +68,7 @@ Même Xu Tao trouva les paroles de Wang Lin excessives. Il devint plus prudent e
 
 À sa grande surprise, après avoir fini de méditer, le cultivateur aux grandes oreilles ne se misalkan pas en colère ; il afficha au contraire un sourire amer.
 
-Avec son niveau de culture, le petit cultivateur était incapable de percevoir la lutte sous-jacente entre Zhou Wutai et Wang Lin. Quant à Xu Tao, n'étant qu'un mortel, il était impuissant à ressentir la dangerosité de cet échange.
+Avec son niveau de cultivation, le petit cultivateur était incapable de percevoir la lutte sous-jacente entre Zhou Wutai et Wang Lin. Quant à Xu Tao, n'étant qu'un mortel, il était impuissant à ressentir la dangerosité de cet échange.
 
 Bien que le cultivateur aux grandes oreilles ait paru empreint de douceur depuis son entrée, ses intentions étaient malveillantes en tout point. Chaque mot et chaque geste étaient imprégnés d'une intention occulte.
 
@@ -78,7 +78,7 @@ Même si Wang Lin parvenait un jour à briser cette entrave, ce ne serait que de
 
 Bien que son plan ait été contrecarré par Wang Lin, le cultivateur n'abandonna pas. Il continua de féliciter Wang Lin pour sa réussite future dans un délai de cent ans. C'était là un nouveau piège.
 
-Certes, un vieillard lui avait tenu des propos similaires auparavant, mais la nuance était capitale. Ce vieillard possédait un niveau de culture bien plus élevé et Wang Lin n'était pas alors confronté à un goulot d'étranglement crucial. Ses paroles avaient donc renforcé sa confiance au lieu de créer un blocage mental.
+Certes, un vieillard lui avait tenu des propos similaires auparavant, mais la nuance était capitale. Ce vieillard possédait un niveau de cultivation bien plus élevé et Wang Lin n'était pas alors confronté à un goulot d'étranglement crucial. Ses paroles avaient donc renforcé sa confiance au lieu de créer un blocage mental.
 
 Mais ces mots provenaient désormais de Zhou Wutai. Bien qu'identiques, leur sens était radicalement différent. Si Wang Lin les prenait à cœur, le passage des années sans atteindre la Formation de l'Âme deviendrait une malédiction intérieure dont il ne pourrait se libérer que par une illumination soudaine.
 

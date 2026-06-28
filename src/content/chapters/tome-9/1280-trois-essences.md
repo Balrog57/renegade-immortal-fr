@@ -30,13 +30,13 @@ Dès l'apparition du talisman, une lumière dorée illumina l'espace sombre et s
 
 « Seigneur du Royaume Scellé, à l'époque, vous aviez dit que cet esclave qui vous avait tant aidé méritait un talisman capable de protéger sa vie trois fois ! Lorsque cet esclave vous a trahi, vous aviez clairement deux occasions de le tuer, mais vous l'avez laissé partir, gaspillant ainsi deux utilisations du talisman. Finalement, vous êtes mort. Maintenant que des dizaines de milliers d'années ont passé, la troisième utilisation du talisman est consommée. Vous allez donc toujours protéger l'esclave taoïste qui vous a trahi ! »
 
-« J'admire votre culture, mais je méprise vos méthodes ! Vos idéaux sont trop inflexibles ! » La voix antique laissa échapper un soupir avant de se dissiper lentement.
+« J'admire votre cultivation, mais je méprise vos méthodes ! Vos idéaux sont trop inflexibles ! » La voix antique laissa échapper un soupir avant de se dissiper lentement.
 
 Le taoïste Shui était trempé de sueur. En cet instant, tout en endurant la douleur entre ses sourcils, il ressentait une terreur persistante. Il eut un rictus et poussa un rugissement vers le ciel.
 
-« Maître, merci. Vous tenez encore à me protéger après votre mort, ce qui me rend quelque peu désolé de ce qui s'est passé, mais vous devez mourir, vous devez mourir ! » Le taoïste Shui avait été enveloppé par la folie du clou aux sept couleurs, et il la réprimait de toutes ses forces grâce à sa puissante culture. Cependant, cette folie avait altéré sa personnalité ; sans cela, compte tenu de son niveau de culture et de son âge, il n'aurait pas tenu de tels propos.
+« Maître, merci. Vous tenez encore à me protéger après votre mort, ce qui me rend quelque peu désolé de ce qui s'est passé, mais vous devez mourir, vous devez mourir ! » Le taoïste Shui avait été enveloppé par la folie du clou aux sept couleurs, et il la réprimait de toutes ses forces grâce à sa puissante cultivation. Cependant, cette folie avait altéré sa personnalité ; sans cela, compte tenu de son niveau de cultivation et de son âge, il n'aurait pas tenu de tels propos.
 
-« Tant qu'il n'a pas transpercé complètement, une fois que j'aurai tué cette fourmi, je pourrai entrer en culture de porte close pour forcer l'expulsion de ce clou ! » Les yeux du taoïste Shui s'illuminèrent. Il n'hésita plus et chargea Wang Lin.
+« Tant qu'il n'a pas transpercé complètement, une fois que j'aurai tué cette fourmi, je pourrai entrer en cultivation de porte close pour forcer l'expulsion de ce clou ! » Les yeux du taoïste Shui s'illuminèrent. Il n'hésita plus et chargea Wang Lin.
 
 Les yeux de Wang Lin étaient toujours ouverts. Il se sentait lentement marcher vers la mort tout en observant tout ce qui se passait. Lorsqu'il vit le taoïste Shui charger, aucune panique ne brilla dans ses yeux. Au contraire, il y avait un calme absolu, comme si toute la folie précédente avait été libérée avec sa vitalité !
 
@@ -58,7 +58,7 @@ Ce fut comme un seau d'eau glacée versé sur le taoïste Shui. La folie dans se
 
 « Cet enfant possède le potentiel de devenir un cultivateur du troisième étape ! Il a réellement compris sa propre essence. Les cultivateurs sont innombrables dans ce monde, mais ceux du troisième étape sont extrêmement rares. Cet enfant... cet enfant pourrait vraiment atteindre ce stade ! S'il disposait de suffisamment de temps, je crains qu'il ne devienne un cultivateur du troisième étape en seulement mille ans ! » L'expression du taoïste Shui devint sombre, mais sa détermination à tuer Wang Lin s'en trouva renforcée.
 
-« Il doit mourir ! » Le taoïste Shui chargea Wang Lin. Il leva la main droite et une gigantesque planète de culture apparut devant lui. Il s'apprêtait à utiliser la puissance de cette planète pour écraser Wang Lin, qu'il considérait comme une fourmi devenue mortelle, puis comme quelqu'un ayant le potentiel de devenir un cultivateur du troisième étape !
+« Il doit mourir ! » Le taoïste Shui chargea Wang Lin. Il leva la main droite et une gigantesque planète de cultivation apparut devant lui. Il s'apprêtait à utiliser la puissance de cette planète pour écraser Wang Lin, qu'il considérait comme une fourmi devenue mortelle, puis comme quelqu'un ayant le potentiel de devenir un cultivateur du troisième étape !
 
 L'aura de mort autour de Wang Lin tournait frénétiquement. L'essence de vie et de mort à l'intérieur grandissait. Bien que lentement, elle était bien réelle. On aurait dit qu'elle allait se libérer du vortex de la mort pour apparaître dans ce monde !
 
@@ -82,7 +82,7 @@ Ces deux individus étaient si puissants que le taoïste Shui ne pouvait même p
 
 Cependant, sitôt cette pensée apparue, il l'écrasa !
 
-« Cet enfant me hait au plus profond de ses os, mais son talent est d'une rareté absolue. Même dans les Royaumes Intérieur et Extérieur, un tel talent n'apparaît qu'une fois tous les dix mille ans. Un tel être doit mourir par ma main. Cela m'apportera plus de joie que la destruction de n'importe quel nombre de trésors magiques !! Haha !! Un être aussi doué sera tué par moi ! » La folie dans les yeux du taoïste Shui s'intensifia alors que la planète de culture se refermait sur Wang Lin !
+« Cet enfant me hait au plus profond de ses os, mais son talent est d'une rareté absolue. Même dans les Royaumes Intérieur et Extérieur, un tel talent n'apparaît qu'une fois tous les dix mille ans. Un tel être doit mourir par ma main. Cela m'apportera plus de joie que la destruction de n'importe quel nombre de trésors magiques !! Haha !! Un être aussi doué sera tué par moi ! » La folie dans les yeux du taoïste Shui s'intensifia alors que la planète de cultivation se refermait sur Wang Lin !
 
 À cet instant précis, l'étoile de loi située entre les sourcils de Wang Lin s'effondra soudainement !
 
@@ -106,6 +106,6 @@ Cette scène interrompit l'attaque du taoïste Shui, ses yeux manquant presque d
 
 « À moins que... à moins qu'il ne soit la réincarnation d'un légendaire cultivateur du quatrième étape, celui qui piétine les cieux !! » Le taoïste Shui était un cultivateur du troisième étape, mais à cet instant, il fut terrifié par ce qu'il voyait !
 
-« Puisque j'ai provoqué une telle existence, je dois le tuer, sinon il ne restera aucune place pour moi !!! » Le visage du taoïste Shui était livide tandis qu'il serrait les dents. Sa puissance de cultivateur du troisième étape éclata alors qu'il fusionnait avec la planète de culture pour s'abattre sur Wang Lin !
+« Puisque j'ai provoqué une telle existence, je dois le tuer, sinon il ne restera aucune place pour moi !!! » Le visage du taoïste Shui était livide tandis qu'il serrait les dents. Sa puissance de cultivateur du troisième étape éclata alors qu'il fusionnait avec la planète de cultivation pour s'abattre sur Wang Lin !
 
 « Même si tu es la réincarnation d'un cultivateur du quatrième étape qui piétine les cieux, tu mourras par ma main. Pour ce vieillard, tuer un tel être en vaut la peine !! Meurs, meurs, meurs !! »

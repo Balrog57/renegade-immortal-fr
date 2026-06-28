@@ -10,7 +10,7 @@ Chapitre 1539 - Les Trois Clans de l'Ancienne Nation !
 
 Le fou continuait d'observer la réaction de Wang Lin. Il se gratta la tête et s'approcha prudemment. Il se frotta les mains et afficha un sourire malicieux : « Parlons ! Quel est ton nom ? Dis-le à ce roi, et ce roi te récompensera ! »
 
-Wang Lin répondit par le silence et poursuivit sa culture, les yeux fermés.
+Wang Lin répondit par le silence et poursuivit sa cultivation, les yeux fermés.
 
 « Tu ne veux pas parler ? Tu oses garder le silence ?! Quand j'ai attrapé Little Red, il ne parlait pas non plus, alors je lui ai arraché tous ses poils. Tu veux deviner ce qui s'est passé ? » bafouilla le fou, avant de s'approcher encore davantage. Il s'assit face à Wang Lin et se mit à bavarder sans relâche.
 

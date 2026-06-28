@@ -54,7 +54,7 @@ Wang Lin posa sa tasse et croisa le regard de Xuan Luo.
 
 « Le disciple a promis à Maître de venir ici et de protéger l'Ancient Dao... »
 
-« L'Ascendant Empereur aux cheveux blancs, le premier parmi les Grands Empereurs ! » rit Xuan Luo en se levant. « Wang Lin, repose-toi quelques jours. Dans trois jours, Maître t'emmènera dans certains lieux qui favoriseront grandement ta culture. Ce sera mon premier cadeau pour m'avoir pris comme maître ! »
+« L'Ascendant Empereur aux cheveux blancs, le premier parmi les Grands Empereurs ! » rit Xuan Luo en se levant. « Wang Lin, repose-toi quelques jours. Dans trois jours, Maître t'emmènera dans certains lieux qui favoriseront grandement ta cultivation. Ce sera mon premier cadeau pour m'avoir pris comme maître ! »
 
 Xuan Luo regarda Wang Lin avec un sourire, puis disparut.
 
@@ -70,9 +70,9 @@ Trois jours passèrent en un éclair. Wang Lin resta dans ce paradis, contemplan
 
 Lorsqu'il réapparut, il se trouvait devant le Temple de l'Ancient Dao. C'était le matin du quatrième jour, et la montagne était drapée d'un voile de brume verdâtre. Xuan Luo se tenait devant le temple, et derrière lui se trouvaient neuf personnes.
 
-Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur culture était extraordinaire ; tous les neuf avaient atteint l'étoile 27 pour obtenir le titre de l'Ancient Dao. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
+Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur cultivation était extraordinaire ; tous les neuf avaient atteint l'étoile 27 pour obtenir le titre de l'Ancient Dao. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
 
-L'expression de Wang Lin restait calme tandis que son regard balayait le groupe. Celui qui possédait le niveau de culture le plus élevé était un vieil homme. Ce dernier dégageait une pression comparable à celle d'un Ascendant Empereur du clan céleste. Quant aux huit autres, ils étaient comparables à des Empyrean Exalts.
+L'expression de Wang Lin restait calme tandis que son regard balayait le groupe. Celui qui possédait le niveau de cultivation le plus élevé était un vieil homme. Ce dernier dégageait une pression comparable à celle d'un Ascendant Empereur du clan céleste. Quant aux huit autres, ils étaient comparables à des Empyrean Exalts.
 
 Tandis que Wang Lin les observait, ils l'observaient également. Cependant, contrairement au calme imperturbable de Wang Lin, le cœur des neuf individus trembla dès qu'ils le virent. À leurs yeux, Wang Lin semblait être devenu un vortex géant capable de dévorer leurs regards. Même la puissance ancienne logée dans leurs corps paraissait aspirée par sa présence.
 
@@ -86,7 +86,7 @@ Xuan Luo sourit et s'apprêtait à poursuivre son discours, mais il fronça soud
 
 Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et deux mains gigantesques émergèrent de la brume. Un homme colossal, haut de plusieurs milliers de pieds, en sortit.
 
-Derrière lui suivirent quelques anciens démons de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une culture faible. Si peu possédaient la puissance d'un Empyrean Exalt, presque tous étaient comparables à des Golden Exalts. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
+Derrière lui suivirent quelques anciens démons de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une cultivation faible. Si peu possédaient la puissance d'un Empyrean Exalt, presque tous étaient comparables à des Golden Exalts. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
 
 Une fois apparus, ils se tinrent en rangs serrés dans le ciel et s'agenouillèrent face à la brume violette.
 
@@ -100,9 +100,9 @@ Le regard de Wang Lin balaya les deux vieillards, ses pupilles brillant d'une lu
 
 « Ye Mo salue le Seigneur Xuan. » L'homme en robe royale sourit, et son aura imposante se mua en une brise printanière. Quiconque le voyait ressentait un sentiment de familiarité.
 
-Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur de l'Ancient Dao ! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa culture ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
+Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur de l'Ancient Dao ! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa cultivation ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
 
-« Son niveau de culture n'est que celui d'un Empyrean Exalt », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout l'Ancient Dao, mais il ne pouvait atteindre Wang Lin.
+« Son niveau de cultivation n'est que celui d'un Empyrean Exalt », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout l'Ancient Dao, mais il ne pouvait atteindre Wang Lin.
 
 L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement : « Pourquoi es-tu venu ? »
 

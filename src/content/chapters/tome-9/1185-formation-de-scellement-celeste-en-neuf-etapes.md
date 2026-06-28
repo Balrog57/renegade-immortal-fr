@@ -8,7 +8,7 @@ slug: formation-de-scellement-celeste-en-neuf-etapes
 ---
 Il n'y avait qu'une seule ligne sur ce jade. Wang Lin réfléchit longuement, mais ne parvint toujours pas à en saisir pleinement le sens. À la lecture seule des mots, de nombreuses interprétations étaient possibles.
 
-Son regard balaya Maître Ashen Pine. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes dans les environs. Maître Ashen Pine devait impérativement avoir obtenu ici des trésors rares, des méthodes de culture ou des informations précieuses.
+Son regard balaya Maître Ashen Pine. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes dans les environs. Maître Ashen Pine devait impérativement avoir obtenu ici des trésors rares, des méthodes de cultivation ou des informations précieuses.
 
 Autrement, il ne serait pas aussi familier de cet endroit.
 
@@ -86,7 +86,7 @@ La vieille femme dit d'un ton amer : « Formation de Scellement Céleste en Neuf
 
 « La Formation de Scellement Céleste en Neuf Étapes... » Wang Lin regarda la roche. Après le retrait de la vieille femme, tout était redevenu normal ; il était impossible d'y déceler la moindre anomalie.
 
-« Cette formation a été endommagée par le passage du temps, elle n'a donc plus de capacités offensives, mais son pouvoir de scellement reste intact. Avec ma culture, je ne peux faire que cinq pas. Au-delà, mon corps ne pourra pas supporter la pression. »
+« Cette formation a été endommagée par le passage du temps, elle n'a donc plus de capacités offensives, mais son pouvoir de scellement reste intact. Avec ma cultivation, je ne peux faire que cinq pas. Au-delà, mon corps ne pourra pas supporter la pression. »
 
 Maître Ashen Pine fronça les sourcils en observant la formation et demanda : « Comment pouvons-nous briser cette formation ? »
 
@@ -94,7 +94,7 @@ La vieille femme en vert sortit quelques pilules qu'elle avala. Elle commença �
 
 Maître Ashen Pine réfléchit. Après un long moment, il serra les dents et fit un geste de la main. Une armure démoniaque noire apparut autour de lui. L'énergie démoniaque envahit l'espace, donnant à Maître Ashen Pine l'apparence d'un dieu démon.
 
-« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure ! Camarade cultivatrice Zhao, ouvrez-la pour moi ! » Maître Ashen Pine n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il fit deux pas et chargea vers la roche.
+« Je veux voir combien de pas je peux accomplir avec ma cultivation et cette armure ! Camarade cultivatrice Zhao, ouvrez-la pour moi ! » Maître Ashen Pine n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il fit deux pas et chargea vers la roche.
 
 La vieille femme en vert forma un sceau et pointa l'avant. Une restriction s'élança pour atterrir sur la roche devant Maître Ashen Pine. Les ondulations réapparurent et la pierre devint de nouveau transparente.
 

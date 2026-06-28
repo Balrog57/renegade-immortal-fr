@@ -76,7 +76,7 @@ Au début, la plupart des commerces proposaient des prix équitables, mais les d
 
 Dès lors, une rumeur s'était propagée : le cultivateur au chapeau de paille serait un expert de la Transformation de l'Âme. Cela servait les intérêts de Wang Lin, car il lui était désormais bien plus facile d'acquérir des recettes.
 
-Dix jours plus tard, grâce aux anciennes formations de transfert, Wang Lin atteignit la frontière entre Chu et la Mer des Diables. Durant ce laps de temps, il avait réussi à obtenir un total de huit recettes de pilules de culture de rang 5.
+Dix jours plus tard, grâce aux anciennes formations de transfert, Wang Lin atteignit la frontière entre Chu et la Mer des Diables. Durant ce laps de temps, il avait réussi à obtenir un total de huit recettes de pilules de cultivation de rang 5.
 
 « Wan Er sera certainement ravie en voyant ces recettes », pensa Wang Lin avec un sourire. Une fois entré dans le pays de Chu, il retira son chapeau et cessa de se dissimuler.
 
@@ -130,6 +130,6 @@ Sur ces mots, Zhang Bai s'élança vers la secte.
 
 Le hurlement de sa nuée d'insectes était terrifiant.
 
-« Il y a quelques jours, je me suis nourri d'un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Ce dernier prétendait que Wang Lin ne me pardonnerait pas une fois mort. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler ? De plus, Chu n'est qu'un pays de culture de rang 3 ; un expert de la Transformation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal de experts de la Transformation de l'Âme. »
+« Il y a quelques jours, je me suis nourri d'un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Ce dernier prétendait que Wang Lin ne me pardonnerait pas une fois mort. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler ? De plus, Chu n'est qu'un pays de cultivation de rang 3 ; un expert de la Transformation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal de experts de la Transformation de l'Âme. »
 
 Zhang Bai ricana : « Après avoir anéanti ce pays de Chu, je massacrerai mon chemin jusqu'à la Vallée Désolée des Neuf Fantômes. Cette fois, je ferai naître le Roi des Insectes. Une fois qu'il aura pénétré en moi, j'atteindrai le stade intermédiaire de la Transformation de l'Âme. Ceng Niu, je veux voir si tu pourras encore me battre à ce moment-là ! »

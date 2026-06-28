@@ -62,7 +62,7 @@ L'expression de Wang Lin resta sereine. Il émit un ordre, faisant pousser un cr
 
 ***
 
-À cet instant, dans la région de rang 8 où se trouvait le Sect Everlasting, trois planètes de culture étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
+À cet instant, dans la région de rang 8 où se trouvait le Sect Everlasting, trois planètes de cultivation étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
 
 L'ensemble du Sect Everlasting bouillonnait d'activité lors de cette compétition qui n'avait lieu que tous les mille ans. Une foule immense s'entassait, occupant la totalité de la planète.
 
@@ -78,7 +78,7 @@ Les autres membres du Sect de l'Origine étaient tous abattus. Leurs yeux étaie
 
 « Je ne me sens pas bien, je vais rentrer », dit Lu Yanfei en se levant pour rejoindre la demeure fournie par la secte principale, un endroit encore plus reculé et morne.
 
-Une voix frivole retentit non loin de là. « Serait-ce la beauté Lu, celle que l'on considère secrètement comme le meilleur four de culture de la région de rang 5 ? Elle est effectivement ravissante ! Cela vaudra bien les nombreux cristaux d'origine dépensés pour faire de toi une membre de mon Sect de la Musique Céleste une fois que ton Sect de l'Origine sera dissous ! »
+Une voix frivole retentit non loin de là. « Serait-ce la beauté Lu, celle que l'on considère secrètement comme le meilleur four de cultivation de la région de rang 5 ? Elle est effectivement ravissante ! Cela vaudra bien les nombreux cristaux d'origine dépensés pour faire de toi une membre de mon Sect de la Musique Céleste une fois que ton Sect de l'Origine sera dissous ! »
 
 Peu après, un homme d'âge moyen vêtu de bleu s'avança avec un sourire mielleux. Dès son apparition, certains le reconnurent et, leurs visages changeant instantanément, ils s'éclipsèrent rapidement. Cela rendit l'espace occupé par le Sect de l'Origine encore plus désolé et vulnérable aux regards.
 
@@ -90,7 +90,7 @@ Cet homme d'âge moyen n'était pas seul ; deux Anciens aux cheveux blancs le su
 
 « La Secte de la Musique Céleste a occupé la première place à plusieurs reprises parmi les sectes de rang 6 et jouit d'une grande attention de la part de la secte principale. La rumeur prétend que l'un des trois représentants choisis pour la compétition entre les sectes de rang 8 proviendra de leur rang. »
 
-« En particulier, ce Lu Yingjie pratique une méthode de culture extrêmement cruelle et nécessite souvent un grand nombre de fours de culture. Même les plus puissants ne semblent pouvoir échapper à son emprise. »
+« En particulier, ce Lu Yingjie pratique une méthode de cultivation extrêmement cruelle et nécessite souvent un grand nombre de fours de cultivation. Même les plus puissants ne semblent pouvoir échapper à son emprise. »
 
 « Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu du Sect Everlasting... L'Ancien Lu est au sommet du stade Nirvana Shatterer ; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
 
@@ -98,7 +98,7 @@ Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna
 
 « Le Sect de l'Origine n'est pas dissous et ne le sera pas », déclara calmement Lu Yanfei avant de faire volte-face pour partir.
 
-Lu Yingjie sourit et dit d'un ton suave : « Compagnon cultivateur Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de culture, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si le Sect de l'Origine devait disparaître, Lady Lu aurait au moins un endroit convenable où se réfugier. »
+Lu Yingjie sourit et dit d'un ton suave : « Compagnon cultivateur Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de cultivation, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si le Sect de l'Origine devait disparaître, Lady Lu aurait au moins un endroit convenable où se réfugier. »
 
 « Oublie la dissolution du Sect de l'Origine ! Même s'il venait à disparaître, mon Sect du Dao Pourpre les accueillerait tous ! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
 

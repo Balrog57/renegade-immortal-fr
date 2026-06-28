@@ -16,7 +16,7 @@ Du Tian dit d'une voix lente : « Jeun ami, nul besoin de regarder ; mon frère 
 
 Wang Lin réfléchit en silence.
 
-La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot : « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte du Raffinement des Âmes, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de culture de rang 6 ?! »
+La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot : « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte du Raffinement des Âmes, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de cultivation de rang 6 ?! »
 
 Wang Lin ne répondit pas immédiatement, mais demanda : « Pourquoi moi ? »
 
@@ -38,7 +38,7 @@ Wang Lin réfléchit un instant. Il leva la tête et dit : « Si j'accepte, vous
 
 Du Tian hocha la tête : « Je te remettrai le drapeau de l'âme lorsque ma vie atteindra son terme. »
 
-« Un pays de culture de rang 6... » Wang Lin secoua la tête avec un sourire amer. « Avec mon niveau de culture actuel, c'est bien trop difficile. »
+« Un pays de cultivation de rang 6... » Wang Lin secoua la tête avec un sourire amer. « Avec mon niveau de cultivation actuel, c'est bien trop difficile. »
 
 Du Tian soupira : « Ceng Niu, il ne me reste que dix ans à vivre. Durant ces dix années, je peux assurer ta sécurité, mais après cela, tu seras livré à toi-même. Que tu réussisses ou non importe peu, mais retiens mes paroles. Souviens-toi que la Secte du Raffinement des Âmes ne t'a fait aucun mal et t'a offert le drapeau de l'âme. Cela suffira. »
 
@@ -50,9 +50,9 @@ Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin et éclata de rire. Pui
 
 Wang Lin prit la pierre de jade, l'examina rapidement avant de la ranger dans son sac.
 
-« Maintenant que ceci est fait, je dois entrer en culture fermée pour préparer mon âme à être intégrée au drapeau. Il vaut mieux que tu ne quittes pas la Secte, car si un danger surgit, je ne pourrai pas t'aider. »
+« Maintenant que ceci est fait, je dois entrer en cultivation fermée pour préparer mon âme à être intégrée au drapeau. Il vaut mieux que tu ne quittes pas la Secte, car si un danger surgit, je ne pourrai pas t'aider. »
 
-Wang Lin esquissa un léger sourire : « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Senior. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre culture fermée. »
+Wang Lin esquissa un léger sourire : « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Senior. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre cultivation fermée. »
 
 Du Tian observa Wang Lin. Après une courte réflexion, il acquiesça : « Puisque tu en es si sûr, je n'en dirai pas plus. Tu peux partir. » Sur ce, il disparut dans l'anneau de sang.
 
@@ -60,11 +60,11 @@ Wang Lin joignit respectueusement les mains, puis s'éclipsa pour quitter la Sec
 
 La vitesse de Wang Lin était celle d'une météorite fendant la nuit. Ses cheveux flottaient au gré du vent et ses yeux brillaient comme des étoiles.
 
-Il ne croyait pas tout ce que Du Tian lui avait raconté ; après tout, Wang Lin n'était pas un novice dans le monde de la culture. Il en avait trop vécu et trop vu. Cependant, ce n'était pas le moment de s'interroger. Le jour où Du Tian lui remettrait le drapeau de l'âme, la vérité éclaterait.
+Il ne croyait pas tout ce que Du Tian lui avait raconté ; après tout, Wang Lin n'était pas un novice dans le monde de la cultivation. Il en avait trop vécu et trop vu. Cependant, ce n'était pas le moment de s'interroger. Le jour où Du Tian lui remettrait le drapeau de l'âme, la vérité éclaterait.
 
 « Li Yuanfeng ! » Une intention meurtrière embrasa son regard alors qu'il accélérait encore sa course.
 
-La tentative sur sa vie deux ans auparavant l'avait presque tué et lui avait fait perdre sa culture. Maintenant que ses pouvoirs étaient rétablis, la première chose qu'il ferait serait de massacrer ce Li Yuanfeng.
+La tentative sur sa vie deux ans auparavant l'avait presque tué et lui avait fait perdre sa cultivation. Maintenant que ses pouvoirs étaient rétablis, la première chose qu'il ferait serait de massacrer ce Li Yuanfeng.
 
 « Il a été poussé de force au stade de Transformation de l'Âme et peut être considéré comme le plus faible des cultivateurs de ce rang. Mon corps original est devenu un Dieu Ancien à trois étoiles ; si je fusionne avec lui, je pourrai l'affronter. » Les yeux de Wang Lin brillèrent tandis que sa silhouette se fondait dans les ténèbres.
 
@@ -120,12 +120,12 @@ Sur son front, trois étoiles violettes tourbillonnaient en dégageant une lueur
 
 Lorsque le corps original se manifesta devant lui, les deux s'avancèrent l'un vers l'autre avant de fusionner en un seul être.
 
-Voici le véritable Wang Lin : le corps original à l'extérieur et la culture de l'avatar à l'intérieur. Une aura oppressante émanait de son corps.
+Voici le véritable Wang Lin : le corps original à l'extérieur et la cultivation de l'avatar à l'intérieur. Une aura oppressante émanait de son corps.
 
 À cet instant, le ciel changea de couleur. Le tonnerre résonna dans les cieux et de lourdes gouttes de pluie commencèrent à tomber.
 
 Sous la pluie, Wang Lin ressemblait à un dieu démon alors qu'il fixait Xue Yue.
 
-« Li Yuanfeng de Xue Yue, l'ancêtre du Clan des Démons Géants et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma culture, je viens réclamer mes dettes auprès de chacun d'entre vous ! »
+« Li Yuanfeng de Xue Yue, l'ancêtre du Clan des Démons Géants et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma cultivation, je viens réclamer mes dettes auprès de chacun d'entre vous ! »
 
-« Le premier sur la liste est Li Yuanfeng. Voyons si la culture de Transformation de l'Âme que tu as obtenue par la force est plus puissante que mon corps original fusionné avec mon avatar ! »
+« Le premier sur la liste est Li Yuanfeng. Voyons si la cultivation de Transformation de l'Âme que tu as obtenue par la force est plus puissante que mon corps original fusionné avec mon avatar ! »

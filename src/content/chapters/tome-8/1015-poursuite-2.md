@@ -18,13 +18,13 @@ Une fois le sens divin retiré, Wang Lin leva la tête pour scruter l'horizon. S
 
 Lorsqu'on traverse ce désert, particulièrement en l'absence de soleil ou de lune, il est facile de perdre la notion du temps. Si Wang Lin n'avait pas été habitué depuis longtemps à la solitude, il serait devenu fou ici.
 
-Comparée à la solitude qui régnait en ces lieux, ses décennies de culture ou les centaines d'années passées dans la Terre de l'Ancien Dieu étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
+Comparée à la solitude qui régnait en ces lieux, ses décennies de cultivation ou les centaines d'années passées dans la Terre de l'Ancien Dieu étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
 
 Tandis qu'il marchait, sa silhouette disparut progressivement au loin, comme si sa silhouette pouvait révéler la solitude qui habitait son cœur.
 
 Un homme, un monde, existaient et avançaient silencieusement, sans fin.
 
-Un mois, un mois, un mois... Wang Lin traversa le désert de sable noir pendant six mois. Un cultivateur ordinaire serait devenu fou. Ce n'était pas de la culture, mais une progression constante dans ce monde désolé, tout en supportant le poids d'être seul au monde.
+Un mois, un mois, un mois... Wang Lin traversa le désert de sable noir pendant six mois. Un cultivateur ordinaire serait devenu fou. Ce n'était pas de la cultivation, mais une progression constante dans ce monde désolé, tout en supportant le poids d'être seul au monde.
 
 Cependant, tout cela n'était rien pour Wang Lin...
 
@@ -64,9 +64,9 @@ Plus particulièrement, ses yeux étaient enfoncés, parcourus de traces de vais
 
 En outre, une aura malveillante entourait Wang Lin, le rendant méconnaissable !
 
-Normalement, six mois de collecte d'énergie démoniaque n'auraient pas transformé Wang Lin à ce point, et il n'aurait pu accumuler une telle quantité. Il lui aurait fallu des décennies de culture pour obtenir un tel effet.
+Normalement, six mois de collecte d'énergie démoniaque n'auraient pas transformé Wang Lin à ce point, et il n'aurait pu accumuler une telle quantité. Il lui aurait fallu des décennies de cultivation pour obtenir un tel effet.
 
-Si Wang Lin y parvint, c'est parce qu'il n'était pas un cultivateur de la voie droite. Il avait navigué entre les deux camps au cours de ses mille ans de culture, particulièrement lorsqu'il utilisait le Doigt Démoniaque, ce qui lui permettait d'endosser l'identité d'un cultivateur démoniaque en un instant !
+Si Wang Lin y parvint, c'est parce qu'il n'était pas un cultivateur de la voie droite. Il avait navigué entre les deux camps au cours de ses mille ans de cultivation, particulièrement lorsqu'il utilisait le Doigt Démoniaque, ce qui lui permettait d'endosser l'identité d'un cultivateur démoniaque en un instant !
 
 Il était allé jusqu'à l'extrême pour utiliser certains sorts puissants.
 

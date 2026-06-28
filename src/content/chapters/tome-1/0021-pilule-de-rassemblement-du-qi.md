@@ -10,7 +10,7 @@ Le dernier homme était un jeune d'environ vingt ans au visage long et chevalin.
 
 En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Même une fois ici, tu n'atteindras probablement jamais le premier niveau de Condensation de Qi. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang ? »
 
-« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est davantage. La culture consiste déjà à défier les lois célestes ; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix qui semblait toucher les cœurs.
+« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est davantage. La cultivation consiste déjà à défier les lois célestes ; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix qui semblait toucher les cœurs.
 
 Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta : « Ce que le frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
 
@@ -58,9 +58,9 @@ Les yeux de Wang Hao pétillèrent. Profitant du fait que personne ne regardait,
 
 Wang Hao répondit et se précipita aussitôt à nouveau dans la maison des pilules.
 
-Wang Lin serra fermement l'objet dans sa main. En le regardant, il découvrit trois pilules transparentes. Il les dissimula prestement dans son sac de rangement. Sans craindre de se salir, il s'assit en tailleur et commença sa culture.
+Wang Lin serra fermement l'objet dans sa main. En le regardant, il découvrit trois pilules transparentes. Il les dissimula prestement dans son sac de rangement. Sans craindre de se salir, il s'assit en tailleur et commença sa cultivation.
 
-L'un des quatre autres disciples, voyant Wang Lin s'installer, fit de même et entama sa propre culture, tandis que les trois restants demeurèrent debout sur le côté.
+L'un des quatre autres disciples, voyant Wang Lin s'installer, fit de même et entama sa propre cultivation, tandis que les trois restants demeurèrent debout sur le côté.
 
 Wang Zhuo tentait de se faire bien voir de la jeune fille nommée Zhou, mais la jeune fille nommée Xu ne cessait de l'interrompre.
 

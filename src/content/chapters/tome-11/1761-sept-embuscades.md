@@ -36,7 +36,7 @@ L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant imposs
 
 C'était la première embuscade !
 
-La respiration de Wang Lin était légèrement haletante. Même avec sa culture avancée au stade du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
+La respiration de Wang Lin était légèrement haletante. Même avec sa cultivation avancée au stade du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
 
 « Je dois pouvoir en extraire davantage... » Wang Lin leva la main droite et pointa son œil gauche. L'essence de feu apparut dans son regard et les flammes rugirent. D'un geste du bras, une mer de feu jaillit de son œil gauche, se transformant en un Oiseau Vermillon de feu qui s'élança vers le ciel.
 

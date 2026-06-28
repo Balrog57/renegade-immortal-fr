@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1027 - Vermillion Bird Divine Planet
 slug: planete-divine-de-loiseau-vermillon
 ---
-Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance de Culture, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux !
+Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance de Cultivation, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux !
 
 Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Nettoyage du Nirvana n'oseraient même pas y poser le pied.
 
 Seuls ceux ayant atteint le stade de Briseur de Nirvana avaient le courage d'y entrer. Et encore, ils devaient faire preuve d'une prudence extrême, car la moindre erreur signifiait la mort.
 
-Ces zones étaient appelées les Zones Interdites au sein de l'Alliance ! Tous ceux qui avaient atteint la deuxième étape de la Culture connaissaient certains de ces endroits.
+Ces zones étaient appelées les Zones Interdites au sein de l'Alliance ! Tous ceux qui avaient atteint la deuxième étape de la Cultivation connaissaient certains de ces endroits.
 
 De nombreuses rumeurs circulaient à leur sujet, mais peu de gens en connaissaient la véritable raison.
 
@@ -24,7 +24,7 @@ Cette mer de feu était différente du sort « Brûler les Cieux » de Qing Lin.
 
 La rumeur prétendait que cette mer de feu existait déjà à l'époque du Royaume Céleste. En remontant le fil du temps, elle semblait même dater des temps primordiaux.
 
-Nul ne savait depuis combien de temps ce brasier brûlait. Des générations de cultivateurs s'étaient succédé, le Royaume Céleste s'était effondré et l'ancien monde de la Culture avait disparu, mais ces flammes éternelles continuaient de danser.
+Nul ne savait depuis combien de temps ce brasier brûlait. Des générations de cultivateurs s'étaient succédé, le Royaume Céleste s'était effondré et l'ancien monde de la Cultivation avait disparu, mais ces flammes éternelles continuaient de danser.
 
 Personne n'ignorait quel type de force ou de pouvoir permettait à cette mer de feu de brûler ainsi pour toujours, sans jamais s'éteindre malgré le passage des âges.
 
@@ -42,7 +42,7 @@ La première des neuf planètes ne possédait aucun océan. Même si elle en ava
 
 Les végétaux capables de survivre dans de telles conditions n'avaient rien de commun.
 
-Cet endroit possédait une énergie spirituelle semblable à celle des planètes de culture ordinaires, mais l'énergie ici était imprégnée d'un poison de feu. Si un mortel en inhalait ne serait-ce qu'une bouffée, son corps entier, jusqu'à la moelle de ses os, se transformerait instantanément en cendres noires.
+Cet endroit possédait une énergie spirituelle semblable à celle des planètes de cultivation ordinaires, mais l'énergie ici était imprégnée d'un poison de feu. Si un mortel en inhalait ne serait-ce qu'une bouffée, son corps entier, jusqu'à la moelle de ses os, se transformerait instantanément en cendres noires.
 
 Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre de l'Oiseau Vermillon, et ces neuf planètes étaient les Planètes Divines de l'Oiseau Vermillon !
 
@@ -60,13 +60,13 @@ Une douzaine de personnes vêtues de robes cramoisies étaient assises autour de
 
 La queue de l'Oiseau Vermillon était divisée en trois parties, et sur chacune d'elles siégeait un vieil homme. Leurs mains formaient des sceaux tandis qu'ils entonnaient une étrange incantation. Chaque plume de la statue émettait un feu qui était absorbé par les cultivateurs alentour.
 
-Il s'agissait d'une culture quotidienne obligatoire au sein de la Secte Divine de l'Oiseau Vermillon, où ils empruntaient le pouvoir de la statue sacrée pour absorber l'essence du feu. Outre ces quelques dizaines de cultivateurs près de la statue, des centaines d'autres se trouvaient plus loin.
+Il s'agissait d'une cultivation quotidienne obligatoire au sein de la Secte Divine de l'Oiseau Vermillon, où ils empruntaient le pouvoir de la statue sacrée pour absorber l'essence du feu. Outre ces quelques dizaines de cultivateurs près de la statue, des centaines d'autres se trouvaient plus loin.
 
 Et si l'on regardait encore plus loin, on découvrait une multitude de cultivateurs utilisant la statue comme centre de leur pratique. Des dizaines près de l'effigie, puis des centaines, des milliers, et même des dizaines de milliers de cultivateurs plus éloignés !
 
 D'innombrables pratiquants, revêtus de la même tenue, absorbaient silencieusement les flammes de la statue sacrée.
 
-Le temps passa lentement et, en un clin d'œil, les flammes de la statue commencèrent à se dissiper progressivement. Les cultivateurs se préparèrent pour leur ultime session. Habituellement, à ce moment précis, leur culture quotidienne touchait à sa fin.
+Le temps passa lentement et, en un clin d'œil, les flammes de la statue commencèrent à se dissiper progressivement. Les cultivateurs se préparèrent pour leur ultime session. Habituellement, à ce moment précis, leur cultivation quotidienne touchait à sa fin.
 
 À la périphérie, ceux qui n'avaient que peu absorbé de flammes avaient déjà ouvert les yeux. Bientôt, tout le monde retrouva la conscience.
 
@@ -88,7 +88,7 @@ Ce phénomène n'était pas isolé. La même scène se produisait sur les huit a
 
 « La Transformation de l'Oiseau Vermillon... La Transformation de l'Oiseau Vermillon !! Je ne pensais jamais assister à la Transformation de l'Oiseau Vermillon de mon vivant ! » Un vieillard aux cheveux blancs leva les yeux vers le ciel en riant. Son regard, empreint d'une sagesse ancestrale, était fixé sur la statue.
 
-Il n'était pas le seul. Tous ceux qui connaissaient ce phénomène contemplaient le ciel avec exaltation. Peu de personnes parmi les neuf planètes savaient ce que c'était, mais celles qui le savaient possédaient une culture puissante !
+Il n'était pas le seul. Tous ceux qui connaissaient ce phénomène contemplaient le ciel avec exaltation. Peu de personnes parmi les neuf planètes savaient ce que c'était, mais celles qui le savaient possédaient une cultivation puissante !
 
 Sur la première planète, une terre à l'est était recouverte de flammes rouge pourpre. Au moment où le changement survint, le sol s'effondra soudainement et une silhouette pourpre en jaillit.
 

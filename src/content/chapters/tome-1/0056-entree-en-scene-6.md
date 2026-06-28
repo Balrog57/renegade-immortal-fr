@@ -36,9 +36,9 @@ Le visage de l'Ancien Ouyang rougit légèrement. Il toussa et dit d'un ton raid
 
 Wang Lin était abasourdi. Il avait pratiqué cette technique d'attraction pendant plus de vingt ans dans le monde des rêves ; sa puissance ne pouvait donc être dérisoire.
 
-Ce n'était là qu'un détail. L'essentiel était que ces combats permettaient à Wang Lin de mesurer sa force réelle. Situ Nan avait affirmé précédemment que Wang Lin se situait au milieu du stade de la circulation spirituelle, ce qui correspondait au 14e niveau de Condensation de Qi dans le pays de culture de Zhao. Cela signifiait qu'il était sur le point d'atteindre le sommet de la Condensation de Qi.
+Ce n'était là qu'un détail. L'essentiel était que ces combats permettaient à Wang Lin de mesurer sa force réelle. Situ Nan avait affirmé précédemment que Wang Lin se situait au milieu du stade de la circulation spirituelle, ce qui correspondait au 14e niveau de Condensation de Qi dans le pays de cultivation de Zhao. Cela signifiait qu'il était sur le point d'atteindre le sommet de la Condensation de Qi.
 
-Quant à savoir pourquoi il avait l'impression d'être encore au 3e niveau, même Situ Nan ne parvenait pas à expliquer ce phénomène. Wang Lin avait un jour évoqué les propos du Frère Zhang sur la nécessité de couper ses liens mortels, mais Situ Nan, avec un dédain manifeste, lui avait répondu que cela n'existait pas. Ce n'était qu'une rumeur propagée par les jeunes de ces petits pays de culture. La culture était un acte défiant le ciel ; ces futilités n'avaient aucune importance.
+Quant à savoir pourquoi il avait l'impression d'être encore au 3e niveau, même Situ Nan ne parvenait pas à expliquer ce phénomène. Wang Lin avait un jour évoqué les propos du Frère Zhang sur la nécessité de couper ses liens mortels, mais Situ Nan, avec un dédain manifeste, lui avait répondu que cela n'existait pas. Ce n'était qu'une rumeur propagée par les jeunes de ces petits pays de cultivation. La cultivation était un acte défiant le ciel ; ces futilités n'avaient aucune importance.
 
 Il avait affirmé que dans son propre pays, un cultivateur au stade de la Formation de l'Âme n'avait pu se détacher de ses liens familiaux et était resté vivre parmi les siens ; pourtant, après plusieurs années, il avait tout de même atteint la Transformation de l'Âme.
 

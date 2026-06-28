@@ -84,7 +84,7 @@ Après être sorti de la faille et avoir senti la chaleur du soleil sur sa peau,
 
 Il baissa la tête pour observer le gouffre en contrebas avant de disparaître. Son corps originel s'évanouit avec lui.
 
-Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place à ses côtés pour entamer sa propre culture.
+Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place à ses côtés pour entamer sa propre cultivation.
 
 Un jour plus tard, Wang Lin et son corps originel ouvrirent les yeux simultanément.
 

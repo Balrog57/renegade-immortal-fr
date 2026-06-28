@@ -16,7 +16,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il levait la main et l'agi
 
 Les yeux de Li Dannan s'illuminèrent. Cela faisait longtemps qu'il séjournait dans la ville de Ming Mei et il était déjà venu deux fois dans le secteur nord. Bien que des patrouilles y circulent, un tel incident ne s'était jamais produit avant même qu'une personne n'ait pu pénétrer dans la zone.
 
-Le visage de Wang Lin demeura serein. Le niveau de culture de ce jeune homme n'était pas négligeable. Bien qu'il n'ait pas atteint le stade de la Transformation de l'Âme comme Wang Lin, il en était à mi-chemin et était en plein processus d'absorption de l'énergie spirituelle céleste.
+Le visage de Wang Lin demeura serein. Le niveau de cultivation de ce jeune homme n'était pas négligeable. Bien qu'il n'ait pas atteint le stade de la Transformation de l'Âme comme Wang Lin, il en était à mi-chemin et était en plein processus d'absorption de l'énergie spirituelle céleste.
 
 Cet individu possédait suffisamment d'énergie pour atteindre la Transformation de l'Âme, mais il avait choisi la seconde méthode de percée, tout comme Wang Lin. De la sorte, une fois qu'il aurait accumulé assez de jades célestes et franchi l'étape, sa progression au sein du stade de la Transformation de l'Âme serait bien plus aisée.
 
@@ -32,7 +32,7 @@ L'expression du jeune homme changea radicalement. Il ne pensait pas qu'un cultiv
 
 Il voulut battre en retraite, mais son corps semblait entravé par une force invisible ; il ne pouvait plus bouger d'un pouce. Il ne put que regarder le poing s'agrandir devant lui.
 
-Une goutte de sueur froide perla du bout de son nez, mais ses yeux restèrent calmes, sans l'ombre d'une panique. Il connaissait clairement le niveau de culture de Wang Lin et pourtant, cet homme osait agir avec une telle arrogance. Cela signifiait qu'il possédait soit une méthode de culture prodigieuse, soit un statut exceptionnel.
+Une goutte de sueur froide perla du bout de son nez, mais ses yeux restèrent calmes, sans l'ombre d'une panique. Il connaissait clairement le niveau de cultivation de Wang Lin et pourtant, cet homme osait agir avec une telle arrogance. Cela signifiait qu'il possédait soit une méthode de cultivation prodigieuse, soit un statut exceptionnel.
 
 « Arrête ! » Un son ténu provint de la troisième boutique, suivi d'une lueur verte. Au cœur de cette lumière ne se trouvait qu'une tasse à thé qui volait à une vitesse inimaginable, saturée d'énergie spirituelle céleste.
 
@@ -96,7 +96,7 @@ Wang Lin pénétra dans la boutique du clan Shang. L'endroit ressemblait à un p
 
 Une épaisse énergie spirituelle les enveloppa. Li Dannan fut totalement sidéré par cette sensation. Il n'avait jamais rien vu de tel, particulièrement une telle densité d'énergie spirituelle ; elle était plus concentrée ici que dans n'importe quel autre endroit qu'il avait visité.
 
-Après avoir hésité un instant, Li Dannan oublia Wang Lin pour s'asseoir et commencer sa culture.
+Après avoir hésité un instant, Li Dannan oublia Wang Lin pour s'asseoir et commencer sa cultivation.
 
 Wang Lin examina les sculptures de pierre spirituelle devant lui. Elles représentaient toutes des femmes, chacune unique, mais elles partageaient toutes une beauté exceptionnelle.
 
@@ -108,7 +108,7 @@ Elle portait une robe d'un blanc immaculé, ornée de neuf fleurs de mandara bro
 
 Ses cheveux noirs et soyeux retombaient négligemment derrière sa tête. Trois épingles en cristal violet clair maintenaient sa coiffure, ne laissant que deux mèches pour osciller doucement au gré de la brise. Sous son œil gauche, trois fins accessoires d'un violet pâle, aussi délicats que des ailes de cigale, attiraient le regard. La lumière qui jouait sur eux la rendait aussi sublime qu'une peinture.
 
-« Cher compagnon de culture, bienvenue dans la boutique du clan Shang ! » La voix de la femme était aussi mélodieuse que le chant d'un oiseau.
+« Cher compagnon de cultivation, bienvenue dans la boutique du clan Shang ! » La voix de la femme était aussi mélodieuse que le chant d'un oiseau.
 
 Sa beauté était absolue, mais ce qui captiva l'attention de Wang Lin fut le fin accessoire sous son œil gauche. Avec sa perspicacité, il comprit immédiatement qu'il s'agissait d'un trésor magique !
 

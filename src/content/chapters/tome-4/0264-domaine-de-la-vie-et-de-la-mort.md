@@ -18,7 +18,7 @@ Sept jours après le départ de Xu Tao, celui-ci revint accompagné d'un homme d
 
 Le regard de Wang Lin balaya l'individu, mais il ne dit mot. Il comprit aisément que cet homme était le supérieur de Xu Tao, ce qui signifiait qu'il s'agissait de la haute personnalité que le cultivateur aux grandes oreilles recherchait.
 
-Aux yeux d'un mortel ordinaire, cette personne était un être suprême, mais pour Wang Lin, cet homme n'était qu'une fourmi. Bien qu'il possédât une certaine culture, s'il ne pouvait atteindre le stade de l'Établissement des Fondations, il ne pourrait échapper au cycle de la vie et de la mort.
+Aux yeux d'un mortel ordinaire, cette personne était un être suprême, mais pour Wang Lin, cet homme n'était qu'une fourmi. Bien qu'il possédât une certaine cultivation, s'il ne pouvait atteindre le stade de l'Établissement des Fondations, il ne pourrait échapper au cycle de la vie et de la mort.
 
 L'homme d'âge moyen semblait déjà connaître le tempérament de Wang Lin. Après ses prosternations, il sortit un sac de rangement et le déposa respectueusement sur la table. Puis, lui et Xu Tao quittèrent les lieux avec déférence.
 
@@ -92,9 +92,9 @@ C'est précisément ce mélange d'obstination et de détermination qui le poussa
 
 Son corps volait toujours plus haut, mais juste avant de s'éloigner trop de la planète brune, un rocher gigantesque, semblable à une météorite, passa à toute allure. Un vieil homme aux cheveux blancs était assis au sommet de ce roc. En croisant Wang Lin, il s'exclama avec un regard empreint d'intérêt :
 
-« Je n'arrive pas à croire qu'un être puisse atteindre une compréhension si profonde sur cette planète de culture inutile ! Mais avec votre simple stade d'Âme Naissante, même si vous utilisez cette compréhension pour atteindre la Formation de l'Âme, ne soyez pas trop gourmand. Je crains que ce genre de Dao Céleste ne vous prenne des millions d'années à en trouver la source. Et quand cela arrivera, votre corps aura déjà pourri. Y avez-vous pensé ? »
+« Je n'arrive pas à croire qu'un être puisse atteindre une compréhension si profonde sur cette planète de cultivation inutile ! Mais avec votre simple stade d'Âme Naissante, même si vous utilisez cette compréhension pour atteindre la Formation de l'Âme, ne soyez pas trop gourmand. Je crains que ce genre de Dao Céleste ne vous prenne des millions d'années à en trouver la source. Et quand cela arrivera, votre corps aura déjà pourri. Y avez-vous pensé ? »
 
-Wang Lin fut stupéfait, le regard chargé de confusion. Le vieil homme rit et, après l'avoir observé attentivement, cria : « Je m'appelle Tian Yunzi. Puisque nous nous sommes rencontrés, je vous propose un marché. Si vous parvenez à quitter cette planète de culture inutile pour venir me trouver sur la Planète Tian Yun, je ferai de vous mon disciple honorifique pour cent ans ! »
+Wang Lin fut stupéfait, le regard chargé de confusion. Le vieil homme rit et, après l'avoir observé attentivement, cria : « Je m'appelle Tian Yunzi. Puisque nous nous sommes rencontrés, je vous propose un marché. Si vous parvenez à quitter cette planète de cultivation inutile pour venir me trouver sur la Planète Tian Yun, je ferai de vous mon disciple honorifique pour cent ans ! »
 
 Sur ces mots, il pointa sa main droite et le corps de Wang Lin trembla. Il eut l'impression d'être percuté par une force colossale qui le renvoya brusquement vers la planète brune, en direction de la zone des Quatre Alliances.
 
@@ -108,7 +108,7 @@ Enfin, lorsqu'il retira ses doigts, la sculpture d'un homme d'âge moyen vêtu d
 
 Une fois terminé, il se rendit à l'arrière pour se laver, changea ses vêtements et retourna dans la boutique.
 
-Grâce à cette compréhension des cieux, le niveau de culture de Wang Lin était passé du milieu au sommet de la phase de l'Âme Naissante. Il n'était plus qu'à un souffle de la Formation de l'Âme.
+Grâce à cette compréhension des cieux, le niveau de cultivation de Wang Lin était passé du milieu au sommet de la phase de l'Âme Naissante. Il n'était plus qu'à un souffle de la Formation de l'Âme.
 
 Pourtant, en repensant à ce qui venait de se passer, il ne put s'empêcher d'éprouver une crainte. Sans l'intervention de ce vieil homme nommé Tian Yunzi, il se serait véritablement perdu dans sa quête de la source. Si cela était arrivé, la seule issue aurait été la mort.
 

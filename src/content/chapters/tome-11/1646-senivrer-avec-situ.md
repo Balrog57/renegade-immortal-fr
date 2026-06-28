@@ -66,13 +66,13 @@ Wang Lin secoua la tête avec un sourire amer. Il saisit le vin et prit une long
 
 « Te souviens-tu de la fois où nous nous sommes enivrés il y a de nombreuses années ? » Wang Lin regarda Situ Nan, plongé dans ses souvenirs.
 
-« À l'époque, je m'étais enivré parce que j'étais perdu. Je ne voulais pas cultiver, je ne savais même plus pourquoi je le faisais. La culture n'apportait aucune joie... Il n'y avait que la lassitude et d'innombrables crises de vie ou de mort. J'ai tué beaucoup de gens, j'en ai tué tant... » Wang Lin commença à rire tout en buvant.
+« À l'époque, je m'étais enivré parce que j'étais perdu. Je ne voulais pas cultiver, je ne savais même plus pourquoi je le faisais. La cultivation n'apportait aucune joie... Il n'y avait que la lassitude et d'innombrables crises de vie ou de mort. J'ai tué beaucoup de gens, j'en ai tué tant... » Wang Lin commença à rire tout en buvant.
 
-« Ce jour-là, je t'ai dit que je ne comprenais pas le sens de la culture. Pour la longévité ? Mais quel est l'intérêt de vivre longtemps ? Tout ce que cela vous apporte, c'est de voir ceux qui vous entourent vieillir, de voir les amants mourir, les proches se disperser et les amis fermer les yeux pour toujours. Au final, la seule chose qui subsiste est un cœur de pierre ! »
+« Ce jour-là, je t'ai dit que je ne comprenais pas le sens de la cultivation. Pour la longévité ? Mais quel est l'intérêt de vivre longtemps ? Tout ce que cela vous apporte, c'est de voir ceux qui vous entourent vieillir, de voir les amants mourir, les proches se disperser et les amis fermer les yeux pour toujours. Au final, la seule chose qui subsiste est un cœur de pierre ! »
 
-« Avec un corps épuisé, même si une telle vie dure des millénaires, à quoi bon ? Est-ce cela, la longévité ? Situ, c'est toi qui m'as introduit dans le monde de la culture. Dis-moi, est-ce vraiment cela, vivre longtemps ? » Wang Lin vida sa coupe et projeta la cruche sur le côté.
+« Avec un corps épuisé, même si une telle vie dure des millénaires, à quoi bon ? Est-ce cela, la longévité ? Situ, c'est toi qui m'as introduit dans le monde de la cultivation. Dis-moi, est-ce vraiment cela, vivre longtemps ? » Wang Lin vida sa coupe et projeta la cruche sur le côté.
 
-« Les cultivateurs n'ont pas besoin de trancher leurs émotions... Quand nous étions sur la planète Suzaku et que tu débutais ta culture, tu hésitais à quitter tes parents, tu refusais de rompre tes attachements terrestres. Tu ne voulais pas les couper... C'est ainsi que je t'avais répondu. »
+« Les cultivateurs n'ont pas besoin de trancher leurs émotions... Quand nous étions sur la planète Suzaku et que tu débutais ta cultivation, tu hésitais à quitter tes parents, tu refusais de rompre tes attachements terrestres. Tu ne voulais pas les couper... C'est ainsi que je t'avais répondu. »
 
 « Puisque tu ne peux pas et ne veux pas les trancher, tu ressentiras naturellement la douleur. Si tu étais mort, cela n'aurait plus d'importance, mais tu n'es pas mort. Tu as cultivé pendant plus de 2 000 ans pour atteindre ce niveau. Voilà pourquoi tu es confus, voilà pourquoi tu me demandes ce qu'est la longévité ! »
 
@@ -118,7 +118,7 @@ Wang Lin resta silencieux, le regard complexe. Il vida la cruche et la jeta sur 
 
 « Si je te disais que toi et moi, ainsi que tous les cultivateurs que nous connaissons, ne vivons que dans une grotte... le croirais-tu ? »
 
-« Si je te disais que les voies de culture que nous pratiquons ont toutes été dictées par d'autres... le croirais-tu ? »
+« Si je te disais que les voies de cultivation que nous pratiquons ont toutes été dictées par d'autres... le croirais-tu ? »
 
 « Si je te disais que le monde dans lequel nous vivons n'est qu'une grotte, la grotte d'un ancien souverain céleste, ou un royaume qu'il a ouvert pour collecter les Flammes Joss... le croirais-tu ? »
 

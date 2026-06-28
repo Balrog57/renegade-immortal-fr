@@ -40,7 +40,7 @@ Sans un mot, Wang Lin sauta dans le trou. La terre fut alors ramenée pour combl
 
 Assis en tailleur sous terre, Wang Lin concentra son attention pour organiser l'énergie spirituelle dans son corps. Sa physiologie changeait constamment pour atteindre l'Établissement des Fondations.
 
-Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de culture en méditation.
+Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de cultivation en méditation.
 
 Le temps s'écoula et, en un clin d'œil, deux années passèrent.
 

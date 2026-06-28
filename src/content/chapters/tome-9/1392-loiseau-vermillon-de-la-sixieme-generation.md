@@ -36,7 +36,7 @@ Liu Jinbiao hésita et murmura : « Cela... En vérité, peu importe qui je trom
 
 « Aucun problème, tu as trois mois pour te préparer ! Tu as dit que le second royaume de la tromperie consistait à se tromper soi-même au point que même la mémoire change. Alors, je vais te donner un ensemble de souvenirs ! » Le feu bleu dans l'œil gauche de Wang Lin jaillit et enveloppa Liu Jinbiao, formant une boule de feu. Xu Liguo recula immédiatement, le visage empreint de terreur.
 
-« La culture de ce démon a encore augmenté !! »
+« La cultivation de ce démon a encore augmenté !! »
 
 Le temps passa lentement. En un clin d'œil, un mois s'écoula. Durant ce mois, Xu Liguo voulut quitter la grotte pour se divertir, mais chaque fois qu'il tentait de sortir, il était stoppé par les restrictions.
 
@@ -58,7 +58,7 @@ Alors qu'il se tenait là, une pression invisible émanait de lui, assez puissan
 
 Un feu entourait Liu Jinbiao, révélant l'apparence d'un Oiseau Vermillon. Son regard était indifférent et calme. Il manifestait sa puissance sans colère, et lorsqu'il balaya Xu Liguo du regard, ce dernier en eut le souffle coupé.
 
-La culture de Liu Jinbiao était erratique ; tantôt extrêmement puissante, tantôt ordinaire, mais c'était cette instabilité qui le rendait mystérieux. Bien que son regard fût indifférent, une profonde sensation d'ancienneté émanait de ses yeux.
+La cultivation de Liu Jinbiao était erratique ; tantôt extrêmement puissante, tantôt ordinaire, mais c'était cette instabilité qui le rendait mystérieux. Bien que son regard fût indifférent, une profonde sensation d'ancienneté émanait de ses yeux.
 
 Ce sentiment de sagesse millénaire n'était pas l'apanage d'un cultivateur ordinaire. C'était une lassitude qui n'apparaissait qu'après avoir vécu des dizaines de milliers d'années et avoir tout vu du monde !
 

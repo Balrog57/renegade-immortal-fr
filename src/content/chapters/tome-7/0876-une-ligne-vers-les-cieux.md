@@ -12,11 +12,11 @@ Li Yunzi rit et observa attentivement Wang Lin. D'un revers de manche, il fit si
 
 Wang Lin se détourna et quitta la place. Il trouva un espace dégagé et s'assit. Ignorant les regards des autres cultivateurs, il se mit tranquillement à cultiver.
 
-Pendant sa culture, il sentait distinctement des vagues de douleur émaner de l'espace entre ses sourcils. Un sentiment de perte de contrôle envahit son cœur. Wang Lin comprit vaguement que le troisième œil avait absorbé l'énergie d'origine et qu'une transformation majeure s'était produite. Quant à savoir si ce changement était une bénédiction ou une malédiction, il ne pouvait même pas le deviner.
+Pendant sa cultivation, il sentait distinctement des vagues de douleur émaner de l'espace entre ses sourcils. Un sentiment de perte de contrôle envahit son cœur. Wang Lin comprit vaguement que le troisième œil avait absorbé l'énergie d'origine et qu'une transformation majeure s'était produite. Quant à savoir si ce changement était une bénédiction ou une malédiction, il ne pouvait même pas le deviner.
 
 Cependant, une chose était certaine : s'il laissait cette douleur persister jusqu'à ce qu'elle échappe à son contrôle et se manifeste, il subirait inévitablement un contrecoup dévastateur.
 
-Il prit une profonde inspiration et, d'une simple pensée, condensa d'infinies restrictions cardiaques d'anéantissement. Au fur et à mesure de sa culture, trois sceaux se formèrent progressivement pour sceller le troisième œil.
+Il prit une profonde inspiration et, d'une simple pensée, condensa d'infinies restrictions cardiaques d'anéantissement. Au fur et à mesure de sa cultivation, trois sceaux se formèrent progressivement pour sceller le troisième œil.
 
 Toutefois, la puissance émanant de son troisième œil était trop grande ; ce sceau ne pouvait qu'atténuer temporairement le problème. Si cela perdurait, il devrait le renforcer périodiquement.
 

@@ -106,7 +106,7 @@ En voyant le pilier rouge via le second démon, une phrase surgit soudainement d
 
 Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recherche de toute mention de la rétribution divine. Durant sa vie, l'Ancien Dieu Tusi en avait affronté d'innombrables.
 
-Au début, Tusi s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la rétribution divine cessa d'être une menace pour devenir un véritable complément de culture.
+Au début, Tusi s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la rétribution divine cessa d'être une menace pour devenir un véritable complément de cultivation.
 
 De plus, chaque fois que l'Ancien Dieu était sur le point de gagner en puissance, il déclenchait une rétribution divine ; parfois, ils utilisaient même la force de cette rétribution lors de la création de trésors magiques pour en déterminer la qualité.
 
@@ -114,7 +114,7 @@ Plus la rétribution était forte, plus le trésor était puissant ; si elle ét
 
 Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une rétribution divine.
 
-La véritable cause de cette rétribution provenait du meule d'encre. Ce meule était resté trop longtemps dans le corps de l'Ancien Dieu et avait accumulé une partie de son énergie spirituelle. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
+La véritable cause de cette rétribution provenait du meule d'encre. Ce meule était resté trop longtemps dans le corps de l'Ancien Dieu et avait accumulé une partie de son énergie spirituelle. C'est pourquoi la rétribution divine, absente du monde de la cultivation depuis si longtemps, réapparaissait maintenant.
 
 De même, comme la rétribution divine ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
@@ -164,15 +164,15 @@ Cette rétribution divine avait apporté un changement majeur à la Mer des Dém
 
 Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer des Démons gagnerait à être renommée le Bassin des Démons.
 
-L'apparition de ces créatures inhabituelles déclencha une série de combats. Des bêtes tuaient des cultivateurs, et des cultivateurs tuaient des bêtes. Tous savaient que ces créatures possédaient un noyau pouvant servir à fabriquer des pilules ou être consommé directement pour augmenter leur culture.
+L'apparition de ces créatures inhabituelles déclencha une série de combats. Des bêtes tuaient des cultivateurs, et des cultivateurs tuaient des bêtes. Tous savaient que ces créatures possédaient un noyau pouvant servir à fabriquer des pilules ou être consommé directement pour augmenter leur cultivation.
 
-De plus, la disparition de la brume priva la Mer des Démons de sa barrière naturelle, attirant ainsi le regard des nations de culture environnantes. Heureusement, quelques grandes sectes ancestrales sortirent de leurs retranchements pour stabiliser la situation.
+De plus, la disparition de la brume priva la Mer des Démons de sa barrière naturelle, attirant ainsi le regard des nations de cultivation environnantes. Heureusement, quelques grandes sectes ancestrales sortirent de leurs retranchements pour stabiliser la situation.
 
 Cependant, en secret, de nombreux cultivateurs profitèrent du chaos pour commettre des meurtres et voler des trésors, plongeant la Mer des Démons dans une confusion encore plus grande.
 
 Mais tout cela ne concernait pas Wang Lin. Pour l'instant, il sentait son noyau rétrécir sans cesse. Un fil rouge reposait sur lui, absorbant rapidement toute son énergie. Si le noyau venait à se fissurer ou à se briser, la mort serait son seul destin.
 
-Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans trois heures, puis, trente minutes après cela, son noyau se briserait.
+Sa cultivation avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans trois heures, puis, trente minutes après cela, son noyau se briserait.
 
 Wang Lin ne pouvait pas se soucier de son rendez-vous avec Qiu Siping le septième jour. Sa priorité était de trouver un moyen d'extraire ce fil rouge.
 
@@ -186,7 +186,7 @@ L'homme en noir esquissa un sourire moqueur. Mais alors qu'il s'apprêtait à ag
 
 Il n'eut même pas le temps de ramasser le sac de rangement de l'homme avant de repartir précipitamment. Il déploya son Sens Divin comme un loup affamé, traquant sa prochaine proie.
 
-Sun Fan fuyait actuellement deux bêtes dotées de la puissance du stade avancé de la Formation du Noyau. S'il ralentissait ne serait-ce qu'un instant, il serait dévoré. Avec sa minuscule culture d'Établissement des Fondations, il était incapable de lutter.
+Sun Fan fuyait actuellement deux bêtes dotées de la puissance du stade avancé de la Formation du Noyau. S'il ralentissait ne serait-ce qu'un instant, il serait dévoré. Avec sa minuscule cultivation d'Établissement des Fondations, il était incapable de lutter.
 
 Les deux bêtes se rapprochaient, et il pouvait entendre leurs grognements juste derrière lui. Il laissa échapper un sourire amer, sachant qu'il ne pourrait s'échapper.
 
@@ -212,7 +212,7 @@ En l'espace de dix respirations, tous les combattants furent morts, et le noyau 
 
 Que ce soient des bêtes ou des cultivateurs, hommes ou femmes, tant qu'ils n'étaient pas au stade de l'Âme Naissante, ils étaient condamnés par Wang Lin.
 
-À mesure qu'il avalait les noyaux, sa propre culture cessa progressivement de chuter, jusqu'à ce que son noyau se stabilise enfin. Cependant, le problème restait entier : cet état de stabilité ne durerait que quelques heures avant que son noyau ne recommence à rétrécir jusqu'à l'effondrement.
+À mesure qu'il avalait les noyaux, sa propre cultivation cessa progressivement de chuter, jusqu'à ce que son noyau se stabilise enfin. Cependant, le problème restait entier : cet état de stabilité ne durerait que quelques heures avant que son noyau ne recommence à rétrécir jusqu'à l'effondrement.
 
 La seule solution était de continuer à tuer pour leurs noyaux, jusqu'à accumuler assez d'énergie spirituelle pour expulser ce fil rouge.
 
@@ -334,7 +334,7 @@ Quant à ses fragments d'âme, dès qu'ils croisaient un cultivateur de niveau i
 
 Le temps s'écoula lentement. Chaque fois qu'un fragment obtenait un noyau, il revenait le déposer avant de repartir en chasse. La Mer des Démons, déjà chaotique, devint un véritable enfer ; même certaines sectes de taille moyenne commencèrent à s'agiter.
 
-Deux jours plus tard, Wang Lin, assis au centre de la zone protégée par le drapeau, était livide. Son noyau avait rétréci jusqu'à la taille d'un ongle et sa culture était tombée au stade initial de la Formation du Noyau.
+Deux jours plus tard, Wang Lin, assis au centre de la zone protégée par le drapeau, était livide. Son noyau avait rétréci jusqu'à la taille d'un ongle et sa cultivation était tombée au stade initial de la Formation du Noyau.
 
 Toute l'énergie des noyaux rapportés par ses fragments était stockée en un lieu sûr. Il se préparait pour le moment critique : porter le coup fatal au fil rouge.
 
@@ -348,7 +348,7 @@ Trois jours plus tard, dans la zone protégée, le drapeau se rétracta jusqu'à
 
 Wang Lin rangea le drapeau d'un geste. Son visage n'était plus livide. En trois jours, il n'avait pas totalement éliminé le fil rouge, mais il l'avait encerclé de puissance spirituelle, évitant ainsi la destruction de son noyau.
 
-En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. Sa culture n'avait pas seulement été préservée, elle avait atteint le sommet absolu du stade avancé de la Formation du Noyau.
+En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. Sa cultivation n'avait pas seulement été préservée, elle avait atteint le sommet absolu du stade avancé de la Formation du Noyau.
 
 Wang Lin était convaincu que pour se débarrasser définitivement de ce fil, il devait atteindre le stade de l'Âme Naissante afin d'utiliser la technique du "Transfert de Poison" de Hunchback Meng et le projeter sur un autre corps.
 

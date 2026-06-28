@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1900 - A Surge in Cultivation!!"
 slug: une-progression-fulgurante-dans-la-culture
 ---
-Chapitre 1900 - Une progression fulgurante dans la culture !
+Chapitre 1900 - Une progression fulgurante dans la cultivation !
 
-Il s'assit et les quatre corps véritables d'essence montèrent la garde autour de lui. Grâce à ces quatre corps véritables, Wang Lin pouvait augmenter calmement son niveau de culture à l'intérieur du silencieux temple du scorpion !
+Il s'assit et les quatre corps véritables d'essence montèrent la garde autour de lui. Grâce à ces quatre corps véritables, Wang Lin pouvait augmenter calmement son niveau de cultivation à l'intérieur du silencieux temple du scorpion !
 
 Il avait atteint le sommet du Vide Spirituel avec huit essences, et l'une d'entre elles avait même formé un corps véritable d'essence ! Aujourd'hui, tout était différent. Wang Lin possédait trois corps véritables d'essence et venait également d'obtenir sa neuvième essence !
 
-Cette neuvième essence était cruciale ; elle était la clé de la progression de la culture de Wang Lin !
+Cette neuvième essence était cruciale ; elle était la clé de la progression de la cultivation de Wang Lin !
 
 Il possédait désormais neuf essences : vie et mort, karma, vrai et faux, restriction, massacre, tonnerre, feu, eau et terre !
 
@@ -20,9 +20,9 @@ Il possédait désormais neuf essences : vie et mort, karma, vrai et faux, restr
 
 Le Vide Spirituel et le Vide Arcanique ne différaient que d'un seul mot, mais l'écart entre les deux était aussi vaste que le ciel et la terre ! Atteindre le stade du Vide Arcanique exigeait de comprendre les cieux et de posséder au moins une essence éthérée.
 
-Une fois qu'il aurait atteint le stade du Vide Arcanique, il entrerait dans le rang des puissants. Hormis des entités comme les neuf sectes et les treize factions, un cultivateur du Vide Arcanique était toujours considéré comme très puissant sur le Continent Astral Immortel. Plus important encore, après avoir atteint ce stade, on pouvait lancer certains sorts mystérieux. Bien qu'ils ne fussent pas d'une grande utilité pour Wang Lin, atteindre le Vide Arcanique constituerait une étape majeure de sa culture !
+Une fois qu'il aurait atteint le stade du Vide Arcanique, il entrerait dans le rang des puissants. Hormis des entités comme les neuf sectes et les treize factions, un cultivateur du Vide Arcanique était toujours considéré comme très puissant sur le Continent Astral Immortel. Plus important encore, après avoir atteint ce stade, on pouvait lancer certains sorts mystérieux. Bien qu'ils ne fussent pas d'une grande utilité pour Wang Lin, atteindre le Vide Arcanique constituerait une étape majeure de sa cultivation !
 
-Les neuf essences dans son corps continuèrent de pivoter et son niveau de culture au stade avancé du Vide Spirituel augmenta soudainement. La vitesse de cette progression était terrifiante et, en un clin d'œil, une illusion apparut au-dessus de Wang Lin.
+Les neuf essences dans son corps continuèrent de pivoter et son niveau de cultivation au stade avancé du Vide Spirituel augmenta soudainement. La vitesse de cette progression était terrifiante et, en un clin d'œil, une illusion apparut au-dessus de Wang Lin.
 
 C'était une masse de nuages qui tournait en un vortex. Elle semblait maintenir la même vitesse que les essences de Wang Lin, ce qui était extrêmement rapide. L'âme originelle de Wang Lin sembla subir une métamorphose et libéra une lumière aveuglante. Bien que cette lumière émane de l'intérieur de son corps, elle semblait transpercer sa peau.
 
@@ -32,7 +32,7 @@ Dès qu'il entra dans ce stade, beaucoup de choses changèrent pour lui. De nomb
 
 Il ouvrit les yeux et scruta les environs. Son regard rayonnait de sagesse.
 
-« Le Vide Arcanique n'est pour moi qu'une transition ; mon but est d'atteindre la Tribulation du Vide ! » murmura Wang Lin. Comme il l'avait dit, le Vide Arcanique n'était qu'une étape transitoire. Il avait obtenu une chance immense, notamment grâce à la puissance du monde qui s'était accumulée en lui via le fourneau vert. Une fois que son âme originelle l'aurait absorbée, son niveau de culture augmenterait encore considérablement.
+« Le Vide Arcanique n'est pour moi qu'une transition ; mon but est d'atteindre la Tribulation du Vide ! » murmura Wang Lin. Comme il l'avait dit, le Vide Arcanique n'était qu'une étape transitoire. Il avait obtenu une chance immense, notamment grâce à la puissance du monde qui s'était accumulée en lui via le fourneau vert. Une fois que son âme originelle l'aurait absorbée, son niveau de cultivation augmenterait encore considérablement.
 
 Plus important encore, Wang Lin possédait neuf essences et il devait les fusionner en une seule ! S'il y parvenait, il pourrait affronter les neuf Tribulations Arcaniques !
 
@@ -62,15 +62,15 @@ Cette image présentait la terre au centre, avec une mer de feu rugissant au-des
 
 C'était la fusion de trois corps véritables d'essence. Ce nouveau corps contenait l'eau, le feu et la terre. Cette entité était désormais une existence indépendante qu'on ne pouvait plus simplement appeler un corps véritable d'essence ; elle ressemblait davantage à un avatar des cinq éléments !
 
-Dès que ce corps issu de la fusion apparut, l'âme originelle de Wang Lin commença à absorber la puissance accumulée dans son organisme. Sa culture du stade initial du Vide Arcanique grimpa soudainement en flèche !
+Dès que ce corps issu de la fusion apparut, l'âme originelle de Wang Lin commença à absorber la puissance accumulée dans son organisme. Sa cultivation du stade initial du Vide Arcanique grimpa soudainement en flèche !
 
-Elle progressait frénétiquement vers le stade intermédiaire du Vide Arcanique. Ce processus dura un mois, après quoi Wang Lin laissa échapper un long rire. Son niveau de culture n'était plus au stade initial, mais au stade intermédiaire du Vide Arcanique !
+Elle progressait frénétiquement vers le stade intermédiaire du Vide Arcanique. Ce processus dura un mois, après quoi Wang Lin laissa échapper un long rire. Son niveau de cultivation n'était plus au stade initial, mais au stade intermédiaire du Vide Arcanique !
 
 Depuis les temps anciens, personne n'avait réussi à franchir le stade initial pour atteindre le stade intermédiaire en seulement quelques mois. Si cela venait à s'ébruiter, Wang Lin attirerait l'attention de tous !
 
 Mais ce n'était que le début, la fin était encore loin !
 
-« L'essence du massacre et l'essence de la restriction sont des essences spéciales, très difficiles à intégrer. Cependant, je peux utiliser l'essence du tonnerre comme fil conducteur pour fusionner temporairement ces deux essences spéciales et permettre à ma culture d'atteindre le stade avancé du Vide Arcanique ! »
+« L'essence du massacre et l'essence de la restriction sont des essences spéciales, très difficiles à intégrer. Cependant, je peux utiliser l'essence du tonnerre comme fil conducteur pour fusionner temporairement ces deux essences spéciales et permettre à ma cultivation d'atteindre le stade avancé du Vide Arcanique ! »
 
 « C'est possible parce que l'essence du tonnerre possède un corps véritable d'essence, ce qui la rend bien plus puissante que les deux autres ! » Tandis qu'il murmurait, ses yeux s'illuminèrent et d'innombrables lignes de sang apparurent, formant l'essence de la restriction devant lui. Simultanément, une intention meurtrière monstrueuse se rassembla pour former son essence du massacre.
 

@@ -10,7 +10,7 @@ Les formes de vie composées de fragments d'âme étaient extrêmement difficile
 
 Si Wang Lin avait utilisé l'énergie spirituelle céleste sans la moindre retenue, il aurait pu anéantir cette chose. Cependant, de nouveaux fragments d'âme seraient alors venus la reformer. D'une certaine manière, ces formes de vie étaient immortelles.
 
-Toutefois, lorsque le Cristal de la Planète de Culture se briserait, ces fragments d'âme s'effondreraient également.
+Toutefois, lorsque le Cristal de la Planète de Cultivation se briserait, ces fragments d'âme s'effondreraient également.
 
 Nul ne savait si la prochaine forme de vie qu'ils rencontreraient contiendrait les fragments d'âme de leurs êtres chers. À cet instant, comment agiraient-ils ? S'il s'agissait de votre propre fragment d'âme, la tâche serait plus simple, car vous entretenez un lien mystérieux avec lui.
 
@@ -36,7 +36,7 @@ Qian Feng comprit alors que l'âme originelle de cet homme s'était brisée et q
 
 Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir ; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
 
-Cela faisait plus d'un demi-mois que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
+Cela faisait plus d'un demi-mois que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Cultivation. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
 
 « Zhuque Zi, espèce de vieux sac d'os ! Si tu dois mourir, meurs, et basta ! Pourquoi faut-il que tout le monde soit entraîné dans ta chute ?! » Qian Feng serra les dents et frappa violemment le sol.
 
@@ -82,7 +82,7 @@ D'une voix calme, il déclara : « Je ne te tuerai pas, mais je peux te sceller,
 
 Durant ces derniers jours dans le tombeau, il avait cherché un moyen de neutraliser ces formes de vie. Après de longues réflexions, il était arrivé à cette conclusion.
 
-En utilisant une multitude de restrictions pour sceller chaque fragment d'âme, il créerait un effet de confinement. En y ajoutant ensuite un fragment d'âme de même niveau de culture, il empêcherait la forme de vie de se reformer.
+En utilisant une multitude de restrictions pour sceller chaque fragment d'âme, il créerait un effet de confinement. En y ajoutant ensuite un fragment d'âme de même niveau de cultivation, il empêcherait la forme de vie de se reformer.
 
 Il lui suffirait d'attendre que les propriétaires originaux des fragments meurent naturellement pour que l'entité disparaisse à son tour.
 
@@ -102,7 +102,7 @@ Murong Yun réfléchit quelques instants avant de hurler : « Toi ! Que veux-tu 
 
 Les yeux de Wang Lin s'illuminèrent et il répondit calmement : « Je veux mon fragment d'âme ! »
 
-Murong Yun répliqua promptement : « C'est impossible. Nous avons été créés par le Cristal de la Planète de Culture et sommes faits de fragments d'âme, mais nous ne choisissons pas ceux que nous recevons. De plus, je suis bien trop faible pour collecter le fragment d'âme d'un cultivateur de ton rang. Seules les formes de vie puissantes de la section intérieure peuvent s'approprier les fragments d'âme des grands cultivateurs du Cristal de la Planète de Culture. »
+Murong Yun répliqua promptement : « C'est impossible. Nous avons été créés par le Cristal de la Planète de Cultivation et sommes faits de fragments d'âme, mais nous ne choisissons pas ceux que nous recevons. De plus, je suis bien trop faible pour collecter le fragment d'âme d'un cultivateur de ton rang. Seules les formes de vie puissantes de la section intérieure peuvent s'approprier les fragments d'âme des grands cultivateurs du Cristal de la Planète de Cultivation. »
 
 Le regard de Wang Lin se fit glacial. Il secoua la tête, posa la dernière restriction et s'éleva au-dessus du gouffre.
 
@@ -112,7 +112,7 @@ Au fond de la fosse, il ne restait que la sphère, prisonnière d'un réseau de 
 
 Wang Lin regarda la chaîne de montagnes au loin et dit : « Moi aussi ! » Il pointa alors le sol, et la fosse commença à se refermer. Juste avant que le scellement ne soit total, le cri de Murong Yun retentit une dernière fois.
 
-« Un roi règne dans la section intérieure du tombeau ! Lui seul peut extraire les fragments d'âme du Cristal de la Planète de Culture. C'est la vérité ! »
+« Un roi règne dans la section intérieure du tombeau ! Lui seul peut extraire les fragments d'âme du Cristal de la Planète de Cultivation. C'est la vérité ! »
 
 « Comment puis-je le trouver ? » Wang Lin pointa le sol pour stopper la fermeture.
 

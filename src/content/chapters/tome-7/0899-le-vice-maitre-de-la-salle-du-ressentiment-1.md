@@ -46,7 +46,7 @@ Cependant, il n'aurait jamais imaginé attirer un tel expert au moment crucial. 
 
 Plus il les observait, plus ils lui semblaient étrangers. En tant que Vice-Maître de la Secte des Cadavres, il n'avait peut-être pas croisé tous les cultivateurs Yin et Yang du Système Stellaire de l'Alliance, mais il connaissait presque tous ceux ayant atteint le stade Nirvana Scryer. Après tout, peu d'individus atteignaient ce niveau dans cette région.
 
-En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa culture était bien au stade Nirvana Scryer, pourtant aucun domaine n'émanait de lui. À la place, il ressentait une source puissante d'énergie spirituelle céleste.
+En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa cultivation était bien au stade Nirvana Scryer, pourtant aucun domaine n'émanait de lui. À la place, il ressentait une source puissante d'énergie spirituelle céleste.
 
 « Ceci est... un Céleste ! » Les yeux de Liu Qingyun s'écarquillèrent et il recula avec une célérité accrue.
 
@@ -106,7 +106,7 @@ La flamme était si puissante que Ta Shan dut reculer. Même le garçon à la gr
 
 Il n'aurait jamais imaginé que Liu Qingyun oserait combattre dans une position aussi désavantageuse ! C'était la première fois que le garçon à la grosse tête se forgeait une impression aussi profonde des cultivateurs de l'Alliance.
 
-Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne pouvait que céder à l'instinct de survie ; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de culture ne pourrait y résister.
+Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne pouvait que céder à l'instinct de survie ; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de cultivation ne pourrait y résister.
 
 « Bien que cela me déchire le cœur de perdre ce cadavre, l'utiliser pour anéantir un cultivateur capable de manipuler l'espace en vaut la peine ! Une fois cet homme mort, les deux autres ne pourront plus jamais m'atteindre ! » En riant, Liu Qingyun s'élança vers les cieux. Il comptait retourner à la Secte des Cadavres au plus vite pour trouver un nouveau corps et, par la suite, se venger des autres Vice-Maîtres.
 

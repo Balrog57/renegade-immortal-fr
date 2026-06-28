@@ -14,7 +14,7 @@ Wang Lin avait depuis longtemps perçu les ombres qui venaient soudainement d'ap
 
 Ce liquide était la Corruption Liquide Raffinée Dix Mille Fois !
 
-Les ombres apparurent une à une, portées par les auras de leur puissante culture. Alors qu'elles chargeaient toutes vers Wang Lin, celui-ci pressa impitoyablement la goutte de liquide noir.
+Les ombres apparurent une à une, portées par les auras de leur puissante cultivation. Alors qu'elles chargeaient toutes vers Wang Lin, celui-ci pressa impitoyablement la goutte de liquide noir.
 
 « L'eau peut isoler toutes les auras. Elle peut empêcher le feu de brûler, elle peut étouffer la vie, elle peut rendre le monde sans couleur... » murmura Wang Lin tout en comprimant la goutte dans sa main jusqu'à ce qu'elle s'effondre. Une immense quantité d'eau semblable à de l'encre se répandit, prenant Wang Lin comme épicentre.
 
@@ -42,7 +42,7 @@ Une fois le sang dissipé, tous les cultivateurs en robes vertes aux côtés de 
 
 Au même moment, tous les cultivateurs du Continent Démoniaque Vert tremblèrent alors que la voix de la femme résonnait dans leurs esprits.
 
-Si sa voix pouvait se propager si loin, ce n'était pas grâce à son niveau de culture élevé, mais par le biais de la boussole qu'elle tenait. Cette boussole n'était pas un objet ordinaire ; elle était le centre de la restriction qui entourait la Mer des Pillules !
+Si sa voix pouvait se propager si loin, ce n'était pas grâce à son niveau de cultivation élevé, mais par le biais de la boussole qu'elle tenait. Cette boussole n'était pas un objet ordinaire ; elle était le centre de la restriction qui entourait la Mer des Pillules !
 
 Wang Lin resta calme et progressa dans la Mer des Pillules. Son allure n'était pas rapide, mais à chaque pas, il couvrait une distance considérable ; il gagnait en vitesse.
 
@@ -82,7 +82,7 @@ Des grondements tonitruants résonnèrent dans les profondeurs de la mer. Le Tig
 
 « Ton corps est assez robuste ; il serait peut-être judicieux de te transformer en marionnette. »
 
-« Vous trois avez une culture très intéressante. Selon les enquêtes de notre secte, vous n'êtes arrivés ici qu'il y a quelques décennies et vous n'appartenez à aucune secte. Pourquoi ne pas rejoindre ma Secte Wu Ji pour éviter la mort ? » sourit le jeune homme au visage de jade blanc.
+« Vous trois avez une cultivation très intéressante. Selon les enquêtes de notre secte, vous n'êtes arrivés ici qu'il y a quelques décennies et vous n'appartenez à aucune secte. Pourquoi ne pas rejoindre ma Secte Wu Ji pour éviter la mort ? » sourit le jeune homme au visage de jade blanc.
 
 Le visage du Tigre Blanc était livide. Il ne dit mot, fuyant comme un fou avec la Tortue Noire et l'Oiseau Vermillon qui étaient à l'agonie. Cependant, peu importait sa vitesse, il ne parvenait pas à prendre de distance face aux deux cultivateurs qui le traquaient.
 
@@ -106,7 +106,7 @@ Puisqu'il allait mourir, il allait partir avec éclat !
 
 « La Secte des Sept Voies ! » Le cultivateur nommé Qian observa attentivement les trois hommes après avoir entendu ce nom.
 
-« J'ai déjà vu ce nom dans l'enquête de notre secte sur le Continent du Taureau Céleste. C'était une secte d'une époque reculée, et leur chef s'appelait le Souverain Céleste aux Sept Couleurs ou quelque chose de similaire. Sa culture était extraordinaire, mais c'était il y a fort longtemps. Il est probablement mort. »
+« J'ai déjà vu ce nom dans l'enquête de notre secte sur le Continent du Taureau Céleste. C'était une secte d'une époque reculée, et leur chef s'appelait le Souverain Céleste aux Sept Couleurs ou quelque chose de similaire. Sa cultivation était extraordinaire, mais c'était il y a fort longtemps. Il est probablement mort. »
 
 En entendant le nom de « Souverain Céleste aux Sept Couleurs », le Tigre Blanc et ses compagnons se turent. Des expressions complexes se dessinèrent sur leurs visages.
 

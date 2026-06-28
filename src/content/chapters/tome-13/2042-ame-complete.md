@@ -18,7 +18,7 @@ Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une ét
 
 Wang Lin aurait pu ignorer sa faiblesse et faire fi de sa vie pour séparer l'âme de Li Muwan. Cependant, le résultat aurait été l'extinction de sa force vitale.
 
-Wang Lin avait cultivé pendant des milliers d'années. Les gens pensaient qu'il était impitoyable et sans cœur, mais il restait humain. Il ne voulait pas agir ainsi ; il avait donc passé près de deux ans à se frayer un chemin jusqu'ici. En chemin, il avait lentement infusé sa culture dans le corps de la femme afin que l'âme de Li Muwan puisse être séparée sans lui nuire.
+Wang Lin avait cultivé pendant des milliers d'années. Les gens pensaient qu'il était impitoyable et sans cœur, mais il restait humain. Il ne voulait pas agir ainsi ; il avait donc passé près de deux ans à se frayer un chemin jusqu'ici. En chemin, il avait lentement infusé sa cultivation dans le corps de la femme afin que l'âme de Li Muwan puisse être séparée sans lui nuire.
 
 « Elle est innocente... Mais c'est aussi elle qui m'a permis de trouver l'âme de Wan Er, elle ne doit donc pas être punie pour cela... Le jade que je lui ai laissé contient mon Sens Divin et devrait la protéger. »
 
@@ -36,7 +36,7 @@ Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au cont
 
 Ji Du réprima l'excitation dans son cœur et suivit Wang Lin.
 
-Marchant en tête, Wang Lin dit calmement : « Prépare-moi un endroit, je vais entrer en culture isolée ! »
+Marchant en tête, Wang Lin dit calmement : « Prépare-moi un endroit, je vais entrer en cultivation isolée ! »
 
 « Le fils dispose d'une chambre secrète dans mon palais. Si cela ne convient pas au Parrain, je peux faire en sorte qu'on en crée une autre immédiatement, » répondit rapidement le Prince Ji Du.
 
@@ -80,7 +80,7 @@ En entendant cela, le Prince Ji Du fut extatique, mais son expression ne changea
 
 En observant Ji Du devant lui, Wang Lin voyait une personne redoutable. Quelqu'un capable de masquer ses émotions et de connaître ses limites.
 
-« Nous discuterons de cette affaire après ma sortie de culture isolée. S'il n'y a rien d'important, ne me dérange pas. » Wang Lin détourna le regard et retourna dans la chambre. Une fois la porte close, le silence retomba sur les lieux.
+« Nous discuterons de cette affaire après ma sortie de cultivation isolée. S'il n'y a rien d'important, ne me dérange pas. » Wang Lin détourna le regard et retourna dans la chambre. Une fois la porte close, le silence retomba sur les lieux.
 
 Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectueusement, une joie manifeste brillant dans ses yeux.
 
@@ -88,7 +88,7 @@ Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectue
 
 Excité, le Prince Ji Du prit plusieurs inspirations profondes avant de réprimer son enthousiasme. Il envoya immédiatement un ordre pour faire de cet endroit une zone interdite : quiconque oserait y pénétrer serait instantanément tué. Il fit même déployer plusieurs gardes pour protéger les lieux jour et nuit.
 
-Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de culture actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empereurs ne pourraient entrer sans qu'il ne le sache.
+Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de cultivation actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empereurs ne pourraient entrer sans qu'il ne le sache.
 
 Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans l'Ancient Shi et à son aide pour que le Prince Ji Du devienne empereur.
 

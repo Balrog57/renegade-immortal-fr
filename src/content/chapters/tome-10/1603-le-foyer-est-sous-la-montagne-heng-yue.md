@@ -16,7 +16,7 @@ Cette aura puissante formait une barrière invisible qui fit pâlir le visage du
 
 À travers les âges, une telle chose n'avait jamais été vue. Un mortel avait osé réprimander un cultivateur immortel. Ce rugissement tonitruant semblait résonner éternellement à leurs oreilles.
 
-Alors que le premier jeune homme reculait, un second s'avança. Son niveau de culture était bien supérieur ; il se trouvait au stade intermédiaire de l'Établissement des Fondations.
+Alors que le premier jeune homme reculait, un second s'avança. Son niveau de cultivation était bien supérieur ; il se trouvait au stade intermédiaire de l'Établissement des Fondations.
 
 Il fit un pas en avant et posa ses mains sur le dos de son compagnon de secte. Il leva les yeux vers Wang Lin et Big Fortune, les seuls à être encore debout !
 

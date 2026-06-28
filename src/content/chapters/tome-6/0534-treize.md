@@ -40,7 +40,7 @@ Presque tout le monde savait que Wang Lin était le véritable maître des lieux
 
 Wang Lin, assis en position de lotus, hocha la tête. Bien que le sort d'affinement des âmes fût facile à apprendre, il ne convenait pas à tous. Le fait qu'une grande majorité des 27 personnes ici aient déjà atteint le premier stade aurait été une nouvelle stupéfiante sur Suzaku.
 
-En jetant un regard sur Treize, Wang Lin se montra très satisfait de la rapidité avec laquelle l'enfant progressait dans sa culture.
+En jetant un regard sur Treize, Wang Lin se montra très satisfait de la rapidité avec laquelle l'enfant progressait dans sa cultivation.
 
 Remarquant le regard de Wang Lin, Treize se redressa et son excitation s'intensifia : « Suprême Céleste, Treize a déjà atteint le troisième stade. Si je parviens à créer le drapeau d'âmes, je pourrai sortir pour trouver des fragments d'âmes afin de les sceller à l'intérieur ! »
 

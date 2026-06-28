@@ -50,11 +50,11 @@ Wang Lin réapparut dans une veine spirituelle située à plus de mille pieds de
 
 « Il semble que la méthode de fabrication des drapeaux d'âmes du Secte du Raffinement de l'Âme soit étroitement liée aux anciennes restrictions d'âmes. Seulement, j'ignore quelles sont les méthodes exactes. » Les yeux de Wang Lin brillèrent tandis qu'il réfléchissait.
 
-« La puissance de cette bête est comparable à celle d'un cultivateur au stade initial de la Formation de l'Âme. Ma culture n'est pas encore rétablie, je ne suis donc pas pressé de la capturer. » Wang Lin médita encore un peu avant de retourner à sa culture.
+« La puissance de cette bête est comparable à celle d'un cultivateur au stade initial de la Formation de l'Âme. Ma cultivation n'est pas encore rétablie, je ne suis donc pas pressé de la capturer. » Wang Lin médita encore un peu avant de retourner à sa cultivation.
 
 Après avoir vu Liu Mei, le sentiment de danger que Wang Lin ressentait envers Suzaku réapparut. Il était très mauvais que Liu Mei ait pu le retrouver.
 
-Il y réfléchit secrètement pendant longtemps, mais ne parvint toujours pas à cerner ses motivations. Il ne pouvait pas non plus percer sa culture, raison pour laquelle il ne l'avait pas tuée plus tôt.
+Il y réfléchit secrètement pendant longtemps, mais ne parvint toujours pas à cerner ses motivations. Il ne pouvait pas non plus percer sa cultivation, raison pour laquelle il ne l'avait pas tuée plus tôt.
 
 « Tout ceci est très étrange, et les décisions de Suzaku n'ont aucun sens... Si nécessaire, je quitterai Suzaku, j'irai trouver Tian Yunzi et je laisserai ce chaos derrière moi. » Wang Lin se mit à songer.
 
@@ -86,7 +86,7 @@ Liu Wei murmura : « Sœur apprentie, je suis toujours un peu inquiète car nous
 
 « Frère apprenti Qing Mu, je suis Guodong Jian. J'espère que nous pouvons discuter. »
 
-Xu Yun se leva et dit : « Frère aîné Guodong, je vous prie de repartir ; le frère apprenti Qing Mu est toujours en culture de méditation fermée. »
+Xu Yun se leva et dit : « Frère aîné Guodong, je vous prie de repartir ; le frère apprenti Qing Mu est toujours en cultivation de méditation fermée. »
 
 Guodong Jian fronça les sourcils. Il se tourna vers Xu Yun et demanda : « Vous deux êtes les concubines de Qing Mu ? »
 
@@ -104,7 +104,7 @@ Wang Lin sortit lentement de l'antre. Lorsque la lumière du soleil frappa Wang 
 
 « L'illusion du drapeau aux mille âmes ! » L'expression de Guodong Jian changea à nouveau et il recula davantage.
 
-Les yeux de Wang Lin balayèrent calmement Guodong Jian. Le niveau de culture de cet homme se situait au stade initial de l'Âme Naissante.
+Les yeux de Wang Lin balayèrent calmement Guodong Jian. Le niveau de cultivation de cet homme se situait au stade initial de l'Âme Naissante.
 
 « Remets-moi ton drapeau d'âmes et je te laisserai partir. » La voix de Wang Lin était empreinte de calme.
 

@@ -58,7 +58,7 @@ L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il
 
 À ce cri, le monde dans lequel se trouvait Wang Lin trembla et la peinture céleste commença à se déchirer. La silhouette de Wang Lin à l'intérieur du tableau se déforma davantage encore.
 
-À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan Feu-Goupillon et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
+À cet instant précis, tous les cultivateurs sur la planète de cultivation furent ébranlés. Le vieil homme du Clan Feu-Goupillon et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
 
 « Cet homme va mourir sans aucun doute ! Le Sort Briseur de Ciel est véritablement digne de son nom ! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a échangé les pilules est donc évidente ! »
 

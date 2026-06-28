@@ -28,7 +28,7 @@ Tel un démon impitoyable et sans égal, scellé par le ciel dans les profondeur
 
 À cet instant, l'Empereur Divin Vermillon comprit que le Dao de Wang Lin était le Dao de la Rébellion !
 
-« Défier la culture pour former un Dao, défier le Dao pour forger mon propre ciel, défier le ciel... pour changer le destin... »
+« Défier la cultivation pour former un Dao, défier le Dao pour forger mon propre ciel, défier le ciel... pour changer le destin... »
 
 La combustion de son corps ne l'empêcha pas de lutter. Il pointa l'espace entre ses sourcils et son âme originelle s'élança vers son front. Un vortex apparut entre ses sourcils, puis son ancienne âme originelle du Dragon de Tonnerre jaillit.
 

@@ -46,7 +46,7 @@ Dans un éclat de lumière dorée, une énergie spirituelle céleste emplit l'ai
 
 « Combien de sorts célestes se cachent là-dedans... » Les yeux de Wang Lin étaient remplis d'excitation, mais il parvint à la réprimer un instant plus tard.
 
-« Avec mon niveau de culture actuel, je ne peux accéder qu'au quatrième étage. Même en utilisant la femme en blanc pour atteindre le neuvième étage, je ne pourrais pas briser la restriction intérieure pour obtenir les sorts célestes. De plus, cet objet est trop précieux et il pourrait y avoir des restrictions sur le nombre d'entrées autorisées. Cet endroit n'est pas absolument sûr, je ne peux donc pas l'étudier ici de manière imprudente. »
+« Avec mon niveau de cultivation actuel, je ne peux accéder qu'au quatrième étage. Même en utilisant la femme en blanc pour atteindre le neuvième étage, je ne pourrais pas briser la restriction intérieure pour obtenir les sorts célestes. De plus, cet objet est trop précieux et il pourrait y avoir des restrictions sur le nombre d'entrées autorisées. Cet endroit n'est pas absolument sûr, je ne peux donc pas l'étudier ici de manière imprudente. »
 
 Wang Lin réprima son désir avant de prendre une profonde inspiration et de ranger l'objet dans son sac. Cependant, après avoir hésité un instant, il le ressortit. Il utilisa le sceau appris autrefois pour faire rétrécir le pavillon jusqu'à ce qu'il ne soit plus que de la taille d'un ongle.
 

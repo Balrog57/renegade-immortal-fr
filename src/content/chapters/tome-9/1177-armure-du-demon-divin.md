@@ -16,11 +16,11 @@ Qu'il s'agisse de Red Butterfly, Xi Zifeng, Liu Mei, Mu Bingmei, Lu Yanfei, ou d
 
 Toutes ces femmes étaient passées, mais au final, seules Li Muwan et Liu Mei avaient pénétré dans son cœur. Wang Lin n'était pas un être doué pour les sentiments. Les bouleversements survenus tôt dans sa vie l'avaient transformé en un démon meurtrier, et ses deux mains étaient maculées de sang. Même ceux qui se proclamaient démons ne pouvaient être comparés à lui.
 
-Il ne comprenait pas l'amour. S'il en avait eu une idée, ce n'était qu'une compréhension ignorante de sa jeunesse, avant d'avoir commencé la culture. Il imaginait qu'un jour il réussirait les épreuves et deviendrait un fonctionnaire. Il retournerait alors chez lui avec une épouse à ses côtés. Ensemble, ils accompagneraient ses parents jusqu'à leur vieillesse.
+Il ne comprenait pas l'amour. S'il en avait eu une idée, ce n'était qu'une compréhension ignorante de sa jeunesse, avant d'avoir commencé la cultivation. Il imaginait qu'un jour il réussirait les épreuves et deviendrait un fonctionnaire. Il retournerait alors chez lui avec une épouse à ses côtés. Ensemble, ils accompagneraient ses parents jusqu'à leur vieillesse.
 
-Cependant, après l'incident avec la famille Teng, Wang Lin avait même connu la mort, ce qui changea radicalement sa personnalité. Le chagrin fut son éveil. La culture, la culture... le monde de la culture ne se souciait que des forts !
+Cependant, après l'incident avec la famille Teng, Wang Lin avait même connu la mort, ce qui changea radicalement sa personnalité. Le chagrin fut son éveil. La cultivation, la cultivation... le monde de la cultivation ne se souciait que des forts !
 
-Wang Lin ignorait tout de ses sentiments pour Li Muwan. Après la mort de celle-ci, il passa plus de mille ans dans la solitude. Il errait seul dans le vide, hébété, et tandis qu'il suivait son chemin vers la culture, une sensation revenait sans cesse à sa mémoire... Peu à peu, en vieillissant, il finit par comprendre.
+Wang Lin ignorait tout de ses sentiments pour Li Muwan. Après la mort de celle-ci, il passa plus de mille ans dans la solitude. Il errait seul dans le vide, hébété, et tandis qu'il suivait son chemin vers la cultivation, une sensation revenait sans cesse à sa mémoire... Peu à peu, en vieillissant, il finit par comprendre.
 
 Li Muwan était entrée dans son cœur alors qu'il se remémorait ces mille dernières années. Elle s'y était ancrée profondément, très profondément.
 

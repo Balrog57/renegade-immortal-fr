@@ -58,7 +58,7 @@ Wang Lin ne répondit plus et entama la descente. Lorsqu'il rejoignit Xuan Luo, 
 
 « Allons-y. » Xuan Luo regarda Wang Lin d'un air profond, dissimulant le choc provoqué par les huit chants et les deux signes. D'un revers de manche, il s'envola vers l'horizon, emportant Wang Lin avec lui.
 
-Ce n'est que lorsqu'ils disparurent à l'horizon que les deux hommes en robes grises blessés retournèrent au pilier. Ils contemplèrent le lointain d'un regard complexe avant de fermer les yeux pour se mettre en culture.
+Ce n'est que lorsqu'ils disparurent à l'horizon que les deux hommes en robes grises blessés retournèrent au pilier. Ils contemplèrent le lointain d'un regard complexe avant de fermer les yeux pour se mettre en cultivation.
 
 Bien longtemps après, un soupir s'échappa de la tour.
 
@@ -68,7 +68,7 @@ Quelques jours plus tard, Xuan Luo ramena Wang Lin à la cité impériale du cla
 
 Xuan Luo ne questionna pas ce qui s'était passé au Mont Gu Dao, et Wang Lin n'offrit aucune explication ; c'était comme si de rien n'était. Un mois passa, et tout semblait s'être évaporé comme une fumée.
 
-Durant ce mois, Wang Lin s'était enfermé en culture dans la maison en bois. Avant son périple au Mont Gu Dao, il avait parcouru de nombreux lieux et absorbé de multiples essences. La puissance de ses essences s'était considérablement accrue, et sa culture s'était encore améliorée.
+Durant ce mois, Wang Lin s'était enfermé en cultivation dans la maison en bois. Avant son périple au Mont Gu Dao, il avait parcouru de nombreux lieux et absorbé de multiples essences. La puissance de ses essences s'était considérablement accrue, et sa cultivation s'était encore améliorée.
 
 Les essences et la puissance ancienne semblèrent retrouver leur état naturel durant ce mois. Les essences retrouvèrent leurs formes de corps d'essence véritable, et la puissance ancienne redevint les 27 étoiles.
 
@@ -98,9 +98,9 @@ Wang Lin ouvrit les yeux et contempla la sphère dorée avec une expression pré
 
 Il s'agissait du fragment d'épée que Jiu Di lui avait confié dans la longue rue. Il l'avait raffiné, mais ne l'avait pas encore totalement intégré. Il allait utiliser l'essence métallique absorbée lors de son séjour avec Xuan Luo, combinée à ce fragment, pour parachever son corps d'essence des cinq éléments !
 
-Une fois que son essence métallique formerait un corps d'essence, la puissance de son corps des cinq éléments augmenterait drastiquement. Cela permettrait également de confirmer si ses déductions concernant sa future voie de culture étaient exactes.
+Une fois que son essence métallique formerait un corps d'essence, la puissance de son corps des cinq éléments augmenterait drastiquement. Cela permettrait également de confirmer si ses déductions concernant sa future voie de cultivation étaient exactes.
 
-« Le corps d'essence des cinq éléments sera complet. Si mon niveau de culture augmente, alors mes spéculations seront confirmées ! » Sans plus hésiter, Wang Lin cracha une bouffée de gaz doré qui enveloppa le fragment d'épée.
+« Le corps d'essence des cinq éléments sera complet. Si mon niveau de cultivation augmente, alors mes spéculations seront confirmées ! » Sans plus hésiter, Wang Lin cracha une bouffée de gaz doré qui enveloppa le fragment d'épée.
 
 Le temps s'écoula. En un éclair, un autre mois passa...
 

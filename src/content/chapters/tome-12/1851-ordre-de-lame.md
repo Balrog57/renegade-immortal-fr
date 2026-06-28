@@ -64,7 +64,7 @@ Ce jade paraissait très commun, mais il contenait l'enregistrement de la second
 
 L'enregistrement se poursuivait jusqu'au départ de Wang Lin de la Mer des Pilules.
 
-Wang Lin n'était pas un jeune cultivateur ignorant les rouages du monde. Depuis qu'il avait rejoint le Grand Secte de l'Âme, il savait que les mérites étaient le principal moyen d'obtenir des trésors, des pilules et des techniques de culture auprès d'une secte !
+Wang Lin n'était pas un jeune cultivateur ignorant les rouages du monde. Depuis qu'il avait rejoint le Grand Secte de l'Âme, il savait que les mérites étaient le principal moyen d'obtenir des trésors, des pilules et des techniques de cultivation auprès d'une secte !
 
 S'il se contentait de parler, on le soupçonnerait ou ne le croirait pas. La meilleure façon de se prouver était, bien sûr, de tout consigner dans un jade. Quant à la véracité des faits, il suffirait de visionner l'enregistrement !
 
@@ -102,7 +102,7 @@ Environ un mois après eux, l'armée du Continent du Démon Vert, composée de 7
 
 Derrière cette armée, une terrifiante ombre d'épée suivait avec une intention tranchante et redoutable. Il s'agissait d'une épée ancienne dorée, sur laquelle siégeait un jeune homme vêtu de bleu. Ses longs cheveux retombaient sur son épaule ; il possédait une beauté presque démoniaque. Calme, le visage légèrement pâle, il fixait l'horizon du Continent du Taureau Céleste avec une lueur de froideur dans les yeux.
 
-« Il a détruit mon avatar et forcé mon niveau de culture à chuter au début de la Tribulation du Vide. Nous réglerons ce compte avec lui, lentement mais sûrement ! »
+« Il a détruit mon avatar et forcé mon niveau de cultivation à chuter au début de la Tribulation du Vide. Nous réglerons ce compte avec lui, lentement mais sûrement ! »
 
 L'épée ancienne dorée sous lui dégageait une aura d'une noblesse extrême, et l'ombre d'un géant en armure d'or et portant des robes impériales apparut derrière la lame. Cette silhouette était d'une taille incomparable et exhalait un souffle antique.
 

@@ -88,7 +88,7 @@ Le battement violent de son cœur résonnait dans tout son corps, comme s'il ét
 
 Tout son être allait sombrer sous la force de ce simple regard !
 
-Un filet de sang mêlé d'une trace d'or s'échappa du coin de sa bouche. Une fissure venait d'apparaître dans son noyau, et son énergie de culture s'infiltrait dans ses veines.
+Un filet de sang mêlé d'une trace d'or s'échappa du coin de sa bouche. Une fissure venait d'apparaître dans son noyau, et son énergie de cultivation s'infiltrait dans ses veines.
 
 Le vieil homme était un cultivateur de la Formation du Noyau ! Quant au jeune homme en pourpre, il n'était qu'au stade de la Condensation de Qi, et la femme n'avait pas encore atteint l'Établissement des Fondations.
 

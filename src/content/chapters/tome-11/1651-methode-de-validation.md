@@ -22,17 +22,17 @@ Si l'on possédait déjà une essence éthérée lors du franchissement de la Po
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 
-Cette méthode était très singulière, mais elle prouvait que tous les cultivateurs pensent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de culture de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
+Cette méthode était très singulière, mais elle prouvait que tous les cultivateurs pensent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de cultivation de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
 
 Cela permettait aux âmes de la Flamme Joss d'acquérir un pouvoir illusoire et, au fil des éons, une âme dotée d'une essence éthérée finissait par naître.
 
 Une fois l'essence éthérée née, elle était dévorée par le cultivateur de la troisième étape. Comme tout cela n'était qu'une illusion et que l'essence faisait originellement partie du corps du cultivateur, la dévoration était parfaite.
 
-De la même manière, puisque la culture de ces âmes de Flamme Joss n'était qu'une illusion, elles redevenaient des mortels ordinaires une fois leur royaume quitté.
+De la même manière, puisque la cultivation de ces âmes de Flamme Joss n'était qu'une illusion, elles redevenaient des mortels ordinaires une fois leur royaume quitté.
 
 Au fil des millénaires, quiconque tentait de découvrir si le monde dans lequel il vivait n'était que le royaume de Flamme Joss d'une existence puissante ne trouvait aucune réponse.
 
-Le seul moyen de le prouver était le suivant : si, en partant, toute votre culture disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre culture restait inchangée après votre départ, alors tout était réel !
+Le seul moyen de le prouver était le suivant : si, en partant, toute votre cultivation disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre cultivation restait inchangée après votre départ, alors tout était réel !
 
 Tandis que Wang Lin traversait la Rivière des Invocations, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
@@ -98,7 +98,7 @@ Ils encerclaient une formation magnifique composée de 999 planètes. Des cultiv
 
 Au centre de la formation se trouvait un autel circulaire, enveloppé d'une brume qui le rendait à peine visible. Une personne était assise sur l'autel.
 
-Sur une planète de culture, une femme au regard indifférent mordit sa lèvre inférieure, tandis qu'un désespoir progressif envahissait ses yeux.
+Sur une planète de cultivation, une femme au regard indifférent mordit sa lèvre inférieure, tandis qu'un désespoir progressif envahissait ses yeux.
 
 Sur une autre planète, les longs et magnifiques cheveux de Mu Bingmei étaient attachés. Vêtue de blanc, son beau visage était empreint de confusion.
 

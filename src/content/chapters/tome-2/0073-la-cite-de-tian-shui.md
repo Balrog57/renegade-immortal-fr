@@ -8,7 +8,7 @@ slug: la-cite-de-tian-shui
 ---
 Wang Lin prit une profonde inspiration. En l'espace de quatre ans, il avait atteint le sommet de la Condensation de Qi en seulement deux ans. Il avait passé les années suivantes à tenter d'atteindre l'Établissement des Fondations, sans toutefois y parvenir.
 
-Cependant, à force de chercher à percer dans l'Établissement des Fondations, l'écart entre son corps physique et son niveau de culture s'était considérablement réduit. Au lieu de ressembler à un cultivateur du troisième étage, il paraissait désormais être au huitième.
+Cependant, à force de chercher à percer dans l'Établissement des Fondations, l'écart entre son corps physique et son niveau de cultivation s'était considérablement réduit. Au lieu de ressembler à un cultivateur du troisième étage, il paraissait désormais être au huitième.
 
 Wang Lin murmura : « L'Établissement des Fondations... » Ses yeux brillèrent alors qu'il prenait une décision. Il frappa son sac de rangement et une épée volante d'une apparence extrêmement extravagante en sortit. Elle effectua un tour autour de lui avant de s'immobiliser devant lui.
 
@@ -24,7 +24,7 @@ Le mont Heng Yue était situé à la frontière nord du pays de Zhao. C'était u
 
 Wang Lin n'en avait entendu parler que par ouï-dire. Son maître lui avait dit qu'une armée de cent mille hommes y était stationnée. Depuis son enfance, Wang Lin avait toujours rêvé d'y aller.
 
-Avant d'entrer dans le monde de la culture, son plus grand rêve était de se faire un nom aux examens impériaux, de devenir un haut fonctionnaire dans la capitale et d'y installer ses parents.
+Avant d'entrer dans le monde de la cultivation, son plus grand rêve était de se faire un nom aux examens impériaux, de devenir un haut fonctionnaire dans la capitale et d'y installer ses parents.
 
 Les aspirations de sa jeunesse résonnèrent dans son esprit. Il esquissa un sourire en volant vers la cité.
 

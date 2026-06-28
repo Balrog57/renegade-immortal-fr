@@ -52,7 +52,7 @@ Wang Lin leva la tête vers les nuages de la rétribution divine et hurla : « E
 
 À cet instant, il ignorait le choc qu'avait provoqué son absorption de la foudre divine chez les spectateurs en contrebas. Les trois jeunes étaient pétrifiés de terreur. Ils n'auraient jamais pu rêver qu'ils avaient provoqué un adversaire aussi terrifiant.
 
-« Absorber... Il absorbe l'éclair de la rétribution divine... » Les visages des deux anciens en pourpre devinrent livides. Toute trace de fierté avait disparu, laissant place à une stupeur totale. Ils étaient désormais convaincus que ce jeune homme aux cheveux blancs dissimulait son véritable niveau de culture.
+« Absorber... Il absorbe l'éclair de la rétribution divine... » Les visages des deux anciens en pourpre devinrent livides. Toute trace de fierté avait disparu, laissant place à une stupeur totale. Ils étaient désormais convaincus que ce jeune homme aux cheveux blancs dissimulait son véritable niveau de cultivation.
 
 En voyant Wang Lin dévorer les neuf éclairs, une sueur froide perla sur leurs fronts. L'un d'eux se retourna et rugit : « Vite ! Terminez la formation, dépêchez-vous ! »
 

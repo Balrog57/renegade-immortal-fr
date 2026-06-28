@@ -50,9 +50,9 @@ Dès que la pluie de flammes noires atteignit sa cible, une lueur fantomatique j
 
 La lame demi-lune apparut à côté de l'épée céleste en un éclair, encore maculée de sang.
 
-Les yeux de Wang Lin se plissèrent ; la culture de l'adversaire était véritablement puissante. Il fallait admettre que la lame demi-lune était extrêmement rapide et que, même pour Wang Lin, il aurait été difficile d'éviter le désastre sans préparation préalable. Pourtant, cet homme avait réussi à forcer son corps à reculer de trois pouces au moment critique pour éviter une blessure fatale. Cela signifiait que son Sens Divin était bien plus puissant que celui de Wang Lin et qu'il avait pu détecter la trajectoire de la lame.
+Les yeux de Wang Lin se plissèrent ; la cultivation de l'adversaire était véritablement puissante. Il fallait admettre que la lame demi-lune était extrêmement rapide et que, même pour Wang Lin, il aurait été difficile d'éviter le désastre sans préparation préalable. Pourtant, cet homme avait réussi à forcer son corps à reculer de trois pouces au moment critique pour éviter une blessure fatale. Cela signifiait que son Sens Divin était bien plus puissant que celui de Wang Lin et qu'il avait pu détecter la trajectoire de la lame.
 
-Une lueur meurtrière passa dans le regard de Wang Lin. Puisque la culture de cet homme était supérieure, il devait être éliminé sur-le-champ. S'il parvenait à s'échapper pour se rétablir et apprendre les techniques de Wang Lin, ce dernier ne pourrait plus rien faire face à son retour.
+Une lueur meurtrière passa dans le regard de Wang Lin. Puisque la cultivation de cet homme était supérieure, il devait être éliminé sur-le-champ. S'il parvenait à s'échapper pour se rétablir et apprendre les techniques de Wang Lin, ce dernier ne pourrait plus rien faire face à son retour.
 
 Profitant du moment où son ennemi était affaibli par l'attaque surprise de la lame demi-lune, il chargea. Ignorant totalement les flammes qui tombaient du ciel, Wang Lin s'élança comme l'éclair et pressa son pouce contre le vide.
 
@@ -106,7 +106,7 @@ La silhouette suivit immédiatement la pression du pouce. Il leva la tête et re
 
 L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de l'Omniscient étaient des personnalités suivies par tous sur la planète Tian Yun.
 
-Surtout Wang Lin, dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de véritable disciple lui serait sans doute revenu !
+Surtout Wang Lin, dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa cultivation de niveau Ascendant, le titre de véritable disciple lui serait sans doute revenu !
 
 Comment ne pas prêter attention à un tel individu ? De plus, le sort interdit qu'il utilisait était singulier ; il était spécialisé dans l'attaque de cultivateurs plus puissants. Dès lors, comment ne pas le surveiller de près ?
 
@@ -114,4 +114,4 @@ L'homme en robe noire soupira intérieurement. S'il avait connu l'identité de W
 
 Bien que ce Wang Lin ait perdu face à un cultivateur Ascendant, il avait prouvé qu'il possédait des capacités d'attaque redoutables. De plus, ses divers trésors attiraient les regards. Même si l'homme en robe noire parvenait à l'emporter, il lui serait extrêmement difficile de tuer Wang Lin !
 
-Après tout, sur la planète Tian Yun, chacun savait que chaque disciple de l'Omniscient possédait un trésor salvateur. Tant que l'écart de culture n'était pas trop abyssal, cela représentait une vie supplémentaire !
+Après tout, sur la planète Tian Yun, chacun savait que chaque disciple de l'Omniscient possédait un trésor salvateur. Tant que l'écart de cultivation n'était pas trop abyssal, cela représentait une vie supplémentaire !

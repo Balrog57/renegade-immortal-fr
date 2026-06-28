@@ -32,11 +32,11 @@ La terre autrefois verdoyante de l'Alliance des Quatre Sectes était maintenant 
 
 Le soleil se reflétait sur la neige, créant un éblouissement puissant. Si l'on regardait trop longtemps, les yeux se rempliraient de larmes de douleur ou l'on risquait même de perdre la vue.
 
-Les mortels vivant à Xue Yue avaient leurs propres moyens de protéger leurs yeux. Après que Xue Yue fut devenu un pays de culture de rang 5, le monde mortel était naturellement devenu plus prospère.
+Les mortels vivant à Xue Yue avaient leurs propres moyens de protéger leurs yeux. Après que Xue Yue fut devenu un pays de cultivation de rang 5, le monde mortel était naturellement devenu plus prospère.
 
 Au centre de Xue Yue se dressait un palais de glace.
 
-C'était l'endroit le plus sacré de Xue Yue ; c'est là que le seul cultivateur de Transformation de l'Âme du pays, Li Yuanfeng, pratiquait sa culture toute l'année.
+C'était l'endroit le plus sacré de Xue Yue ; c'est là que le seul cultivateur de Transformation de l'Âme du pays, Li Yuanfeng, pratiquait sa cultivation toute l'année.
 
 Après avoir été blessé par la foudre de Sun Tai, il se remettait lentement. Il avait en effet atteint le stade de la Transformation de l'Âme par la force ; c'était déjà une grande chance qu'il n'y ait pas laissé la vie.
 
@@ -62,7 +62,7 @@ En ce jour, sur cette même rue, Wang Lin apparut. En contemplant ce passage fam
 
 Après un long moment, ses yeux emplis de mélancolie, il repartit.
 
-À l'intérieur du Palais de la Neige et de la Glace, Li Yuanfeng était en pleine culture lorsqu'il ouvrit soudainement les yeux. Son regard s'illumina alors qu'il levait la tête vers l'extérieur du palais.
+À l'intérieur du Palais de la Neige et de la Glace, Li Yuanfeng était en pleine cultivation lorsqu'il ouvrit soudainement les yeux. Son regard s'illumina alors qu'il levait la tête vers l'extérieur du palais.
 
 « Li Yuanfeng ! » Dans la cour devant le palais, le vent hurlant faisait voler la neige.
 
@@ -70,7 +70,7 @@ Une silhouette illusoire avançait lentement à travers la tempête de neige. El
 
 Le Wang Lin actuel affichait une expression glaciale en contemplant le Li Yuanfeng stupéfait.
 
-Les pupilles de Li Yuanfeng se rétractèrent alors qu'il fixait Wang Lin. Après un instant, il dit d'une voix sombre : « Ceng Niu ! » Bien que son visage restât calme, son cœur était bouleversé. Il n'aurait jamais imaginé que Ceng Niu puisse non seulement guérir des blessures causées par son domaine en seulement deux ans, mais qu'il ait également augmenté son niveau de culture, passant du milieu au stade tardif de la Formation de l'Âme.
+Les pupilles de Li Yuanfeng se rétractèrent alors qu'il fixait Wang Lin. Après un instant, il dit d'une voix sombre : « Ceng Niu ! » Bien que son visage restât calme, son cœur était bouleversé. Il n'aurait jamais imaginé que Ceng Niu puisse non seulement guérir des blessures causées par son domaine en seulement deux ans, mais qu'il ait également augmenté son niveau de cultivation, passant du milieu au stade tardif de la Formation de l'Âme.
 
 Deux années ne sont rien pour les cultivateurs. Réussir une telle progression en si peu de temps, il n'était pas étonnant que Li Yuanfeng fût sous le choc.
 
@@ -134,7 +134,7 @@ Wang Lin recula de trois pas. Chaque pas provoquait d'innombrables fissures dans
 
 Le combat entre les deux avait attiré l'attention de tout Xue Yue. Hormis le vieillard mort et les deux autres, les dix-sept survivants de la Formation de l'Âme se téléportaient frénétiquement vers le palais.
 
-Pour eux, Li Yuanfeng était le maître de secte de tout le pays. Tant qu'il vivait, ils étaient un pays de culture de rang 5. S'il mourait, ils ne pourraient pas produire d'autre cultivateur de Transformation de l'Âme de sitôt, ce qui signifierait inévitablement la chute du rang de leur nation.
+Pour eux, Li Yuanfeng était le maître de secte de tout le pays. Tant qu'il vivait, ils étaient un pays de cultivation de rang 5. S'il mourait, ils ne pourraient pas produire d'autre cultivateur de Transformation de l'Âme de sitôt, ce qui signifierait inévitablement la chute du rang de leur nation.
 
 En un clin d'œil, les cultivateurs de la Formation de l'Âme arrivèrent. Sans aucune hésitation, ils sortirent leurs trésors, prêts à attaquer.
 
@@ -158,6 +158,6 @@ Le pouvoir d'un seul mot !
 
 Wang Lin prit une profonde inspiration. La fusion de son corps original et de son avatar avait provoqué une mutation étrange, sans précédent.
 
-Lui, à cet instant, pouvait être considéré comme un dieu ancien à trois étoiles possédant une culture au stade intermédiaire de la Formation de l'Âme et contrôlant le domaine de la vie et de la mort. Ou bien, il pouvait être vu comme un cultivateur du stade intermédiaire de la Formation de l'Âme maîtrisant le domaine de la vie et de la mort tout en arborant le corps d'un dieu ancien à trois étoiles.
+Lui, à cet instant, pouvait être considéré comme un dieu ancien à trois étoiles possédant une cultivation au stade intermédiaire de la Formation de l'Âme et contrôlant le domaine de la vie et de la mort. Ou bien, il pouvait être vu comme un cultivateur du stade intermédiaire de la Formation de l'Âme maîtrisant le domaine de la vie et de la mort tout en arborant le corps d'un dieu ancien à trois étoiles.
 
 L'expression de Li Yuanfeng était extrêmement disgracieuse. Il fixa Wang Lin et, pour la première fois, le considéra véritablement comme son ennemi. Le pouvoir du mot que Wang Lin venait de prononcer n'était pas moins redoutable que celui d'un cultivateur de Transformation de l'Âme.

@@ -68,7 +68,7 @@ Pourtant, si l'on regardait de plus près, cet homme ressemblait trait pour trai
 
 Dans le manoir Mo, le visage de Mo Lihai était empreint de choc face à la lumière argentée. Il voyait clairement qu'elle se dirigeait vers la Prison de Hong ; son cœur rata un battement, envahi par un mauvais pressentiment.
 
-« L'épée de l'Empereur ! Ne serait-elle pas en route pour Wang Lin... » Puis Mo Lihai secoua la tête et se dit : « Comment Wang Lin pourrait-il faire bouger l'épée de l'Empereur avec son niveau de culture ? Je m'imagine des choses. »
+« L'épée de l'Empereur ! Ne serait-elle pas en route pour Wang Lin... » Puis Mo Lihai secoua la tête et se dit : « Comment Wang Lin pourrait-il faire bouger l'épée de l'Empereur avec son niveau de cultivation ? Je m'imagine des choses. »
 
 Malgré ses paroles, le mauvais pressentiment dans son cœur ne faisait que croître.
 
@@ -102,7 +102,7 @@ Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après le te
 
 Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et, d'un revers de la main, y creusa une cavité.
 
-« C'est ici que je pratique ma culture en isolation. Cache-toi là pour un moment ! »
+« C'est ici que je pratique ma cultivation en isolation. Cache-toi là pour un moment ! »
 
 Le sens divin de Wang Lin s'étendit avant qu'il ne s'engouffre sans dire un mot. Mo Lihai prit une profonde inspiration, s'assit et referma l'ouverture. Il commença à cultiver comme si de rien n'était.
 

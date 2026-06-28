@@ -6,17 +6,17 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 621 - Respect Scholar of a Generation
 slug: un-erudit-respecte-dune-generation
 ---
-Sun Yunshan répondit rapidement : « L'union de culture se situe à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda : « Frère Wang, avez-vous l'intention de... ? »
+Sun Yunshan répondit rapidement : « L'union de cultivation se situe à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda : « Frère Wang, avez-vous l'intention de... ? »
 
 Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser votre restriction. Cependant, je présume que cela ne devrait pas poser de problème à cet Ancêtre ! »
 
 Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un profond salut à Wang Lin. Il leva la tête, les yeux brillants d'excitation, et déclara : « Frère Wang, les mots ne sauraient exprimer ma gratitude pour ce que vous avez fait pour moi. Si un jour je peux retourner sur la planète Tian Yun, je vous rendrai assurément ce bienfait ! »
 
-« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta : « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette union de culture de toute façon. Cet Ancêtre a déjà été provoqué deux fois ; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais ! »
+« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta : « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette union de cultivation de toute façon. Cet Ancêtre a déjà été provoqué deux fois ; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais ! »
 
 « Frère Wang, quoi qu'il en soit, je m'en souviendrai ! » La voix de Sun Yunshan était empreinte d'une sincérité profonde.
 
-Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu des Affineurs d'Âmes, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'union de culture furent saisis par lui et disparurent.
+Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu des Affineurs d'Âmes, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'union de cultivation furent saisis par lui et disparurent.
 
 La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
@@ -60,7 +60,7 @@ C'était le disciple de la Division Bleue du Secte du Destin Céleste qui était
 
 Cette simple phrase suffit à provoquer la dispersion instinctive de la foule. Aucun d'eux n'avait atteint le stade de l'Ascendant. Le cultivateur le plus puissant ici n'était qu'au sommet du stade tardif de la Transformation de l'Âme. Face à un Ascendant capable de purifier tout le miasme environnant, ils choisirent tous sagement de reculer.
 
-Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe taoïste s'écria : « Quel culot ! Qui es-tu ? Donne ton nom ! Mon union de culture... »
+Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe taoïste s'écria : « Quel culot ! Qui es-tu ? Donne ton nom ! Mon union de cultivation... »
 
 Il n'eut pas le temps de finir sa phrase ; le regard glacial de Wang Lin perça ses yeux comme une lame acérée. Le sang qu'il cracha força ses mots à retourner dans sa gorge.
 
@@ -78,19 +78,19 @@ L'un des spectateurs s'exclama : « Un Gardien Céleste ! » On ne savait s'il l
 
 Wang Lin resta impassible et daigna même pas regarder l'assaillant. Il fit un pas en avant et commença à marcher vers le château. Bien que sa vitesse fût modérée, elle força tout le monde à plisser les yeux. À cet instant, pour ces cultivateurs, contempler Wang Lin revenait à contempler les Grands Anciens de leurs propres sectes. Cette aura et cette sérénité n'étaient pas l'apanage d'un cultivateur ordinaire !
 
-Seuls ceux possédant une confiance absolue en leur propre culture pouvaient émaner une telle présence.
+Seuls ceux possédant une confiance absolue en leur propre cultivation pouvaient émaner une telle présence.
 
-Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de véritable disciple. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère ; après tout, son niveau de culture était alors jugé insuffisant.
+Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de véritable disciple. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère ; après tout, son niveau de cultivation était alors jugé insuffisant.
 
 Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Lin avait réussi à atteindre le stade de l'Ascendant en si peu de temps, mais surtout, sa présence lui rappelait vaguement celle de l'Omniscient.
 
 Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte du Destin Céleste et de l'Omniscient, ses connaissances étaient vastes ; il savait naturellement qu'il s'agissait là d'une manifestation du Dao !
 
-Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la culture, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont la capacité de bâtir les fondations de ce monde !
+Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la cultivation, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont la capacité de bâtir les fondations de ce monde !
 
 En vérité, tous les cultivateurs possèdent un Dao, mais le condenser sous une forme corporelle est une tâche extrêmement ardue.
 
-« Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de culture déclinante comme Suzaka, moqué par tous — et l'homme qu'il était devenu : un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
+« Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de cultivation déclinante comme Suzaka, moqué par tous — et l'homme qu'il était devenu : un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
 
 Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à moins de trente mètres, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
 

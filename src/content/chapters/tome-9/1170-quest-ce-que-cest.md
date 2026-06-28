@@ -108,14 +108,14 @@ L'expression de Wang Lin resta imperturbable. Après une courte réflexion, il h
 
 Il avait même percé à jour le stratagème : lorsque Yang Yu prétendait rejoindre Qianmei, les deux autres ne purent cacher leur nervosité.
 
-Si cela s'était arrêté là, ce n'aurait été rien, mais le fait que Yang Yu ait si rapidement ciblé Wang Lin était suspect. Compte tenu de son niveau de culture, cet acte semblait trop artificiel.
+Si cela s'était arrêté là, ce n'aurait été rien, mais le fait que Yang Yu ait si rapidement ciblé Wang Lin était suspect. Compte tenu de son niveau de cultivation, cet acte semblait trop artificiel.
 
 En analysant ces indices et grâce à l'avertissement d'Ouyang Long, Wang Lin comprit que Yang Yu l'avait pris pour cible. Il n'avait affronté la Secte de la Collection Démoniaque qu'une seule fois, contre Zhao Yu sur le continent de Mo Luo. Mais ce n'était que par son regard. Wang Lin ignorait si l'autre partie testait sa force à cause de l'affaire Zhao Yu ou... en raison de la faille laissée sur le continent sauvage.
 
-Quoi qu'il en soit, dans le monde de la culture, les forts sont respectés. Manifester son niveau de culture ne servait pas seulement de moyen de dissuasion, cela lui permettait aussi d'obtenir le respect dû. Fort de cette conviction, Wang Lin avait choisi d'attaquer instantanément.
+Quoi qu'il en soit, dans le monde de la cultivation, les forts sont respectés. Manifester son niveau de cultivation ne servait pas seulement de moyen de dissuasion, cela lui permettait aussi d'obtenir le respect dû. Fort de cette conviction, Wang Lin avait choisi d'attaquer instantanément.
 
 En entendant le vieil homme l'appeler « Compagnon cultivateur Lu », Wang Lin fut encore plus certain de sa direction.
 
 Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait pas l'expérience de combat de Wang Lin, qui avait affronté de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise : « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
 
-« La ruse de cette personne... est encore plus effrayante que sa culture !!! » Li Qianmei regarda Wang Lin avec stupeur.
+« La ruse de cette personne... est encore plus effrayante que sa cultivation !!! » Li Qianmei regarda Wang Lin avec stupeur.

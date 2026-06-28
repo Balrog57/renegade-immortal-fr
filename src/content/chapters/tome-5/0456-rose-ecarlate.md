@@ -26,7 +26,7 @@ Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certa
 
 En voyant son ancienne rivale réduite à cet état, Wang Lin ne put s'empêcher de soupirer. L'adage « si les choses restent les mêmes, les hommes, eux, changent » n'était pas dénué de vérité.
 
-Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Red Butterfly orgueilleuse d'autrefois. Ce n'est qu'en combattant des êtres tels qu'elle qu'il pourrait progresser vers les sommets de la culture.
+Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Red Butterfly orgueilleuse d'autrefois. Ce n'est qu'en combattant des êtres tels qu'elle qu'il pourrait progresser vers les sommets de la cultivation.
 
 Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Red Butterfly et cria : « Qian Feng, sors de ta cachette ! »
 
@@ -44,11 +44,11 @@ Le regard de Wang Lin se glaça. Il laissa échapper un froid renâclant et s'ap
 
 Le vide dans les yeux de Red Butterfly s'évanouit, remplacé par une soif de combat. Elle se précipita devant Wang Lin pour lui barrer la route et dégaina une longue épée rouge.
 
-Simultanément, une aura puissante émana d'elle. Cette puissance n'était pas inférieure à celle de Wang Lin et était imprégnée d'énergie spirituelle céleste. Bien que son niveau de culture ne soit pas encore celui de la Transformation de l'Âme, elle s'en approchait dangereusement.
+Simultanément, une aura puissante émana d'elle. Cette puissance n'était pas inférieure à celle de Wang Lin et était imprégnée d'énergie spirituelle céleste. Bien que son niveau de cultivation ne soit pas encore celui de la Transformation de l'Âme, elle s'en approchait dangereusement.
 
 « Ceng Niu ! » lança Red Butterfly d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
 
-Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de Planète de Culture, la montagne spirituelle ne devrait pas exister.
+Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de Planète de Cultivation, la montagne spirituelle ne devrait pas exister.
 
 Cependant, maintenant qu'elle était sous ses yeux, la situation était étrange ; mais puisque Qian Feng voulait aller l'explorer, il n'avait qu'à le laisser faire.
 

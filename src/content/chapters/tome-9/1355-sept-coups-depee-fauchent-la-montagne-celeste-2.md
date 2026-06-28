@@ -20,7 +20,7 @@ Le Grand Ancien fut projeté en arrière par ce fracas assourdissant et cracha d
 
 « Le tonnerre se divise en six types : le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel ! Que tous les types apparaissent ! » rugit-il, et six éclairs jaillirent de sa marque de clan !
 
-Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de culture ! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé !
+Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de cultivation ! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé !
 
 Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés pour se transformer en tonnerre !
 
@@ -78,7 +78,7 @@ S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien av
 
 Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes de Joss jaillirent des têtes des innombrables âmes au sein du Monde du Vent et de la Pluie ! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
-Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes de Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient la moitié du total !
+Ceux possédant un haut niveau de cultivation produisaient une grande quantité de Flammes de Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient la moitié du total !
 
 Wang Lin rassembla ces Flammes de Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère !
 

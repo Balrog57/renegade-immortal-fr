@@ -18,7 +18,7 @@ Ling Er observait l'expression de Wang Lin et, lorsqu'elle vit ce froncement de 
 
 Une fois ses paroles prononcées, il ne regarda plus Ling Er et retourna vers le palais.
 
-Il eut un sourire amer intérieurement. Comment pouvait-il ne pas comprendre les intentions de Ling Er ? Bien qu'il soit peut-être exagéré de le traiter de « vieux monstre », puisqu'il n'avait cultivé que depuis un peu plus de mille ans, ce terme restait approprié compte tenu de son niveau de culture.
+Il eut un sourire amer intérieurement. Comment pouvait-il ne pas comprendre les intentions de Ling Er ? Bien qu'il soit peut-être exagéré de le traiter de « vieux monstre », puisqu'il n'avait cultivé que depuis un peu plus de mille ans, ce terme restait approprié compte tenu de son niveau de cultivation.
 
 De plus, son âge réel dépassait les mille ans, ce qui le rendait bien plus âgé que Ling Er. La seule raison pour laquelle il se montrait aimable envers elle, outre sa racine d'esprit d'eau, était qu'un Senior se montre bienveillant envers une junior. Il n'y avait aucune autre intention.
 
@@ -30,7 +30,7 @@ Wang Lin lui tournait le dos et continuait d'avancer. D'un revers de manches, il
 
 Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant de plusieurs dizaines de pieds.
 
-Le niveau de culture de Ling Er n'était pas élevé ; alors, tandis qu'elle reculait, son visage pâlit. L'énergie spirituelle dans son corps devint instable et, combinée à son anxiété extrême et à sa nuit agitée, l'énergie à l'intérieur de son corps sombra dans un chaos total. Le sang monta à sa gorge et elle cracha une bouchée de sang.
+Le niveau de cultivation de Ling Er n'était pas élevé ; alors, tandis qu'elle reculait, son visage pâlit. L'énergie spirituelle dans son corps devint instable et, combinée à son anxiété extrême et à sa nuit agitée, l'énergie à l'intérieur de son corps sombra dans un chaos total. Le sang monta à sa gorge et elle cracha une bouchée de sang.
 
 Wang Lin poussa un soupir. Il fronça les sourcils alors que son corps disparaissait de l'intérieur du palais pour réapparaître instantanément auprès d'elle. Il lui tapota doucement le dos et injecta de l'énergie originelle dans son corps. Un seul cycle suffit pour stabiliser son énergie spirituelle et dissiper sa légère blessure.
 

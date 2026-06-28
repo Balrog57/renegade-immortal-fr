@@ -1,6 +1,6 @@
 ---
 n: 1397
-title: Thump
+title: Cognement
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1397 - Thump
@@ -46,7 +46,7 @@ Le Patriarche du Clan de l'Évasion Nuageuse se tenait naturellement aux côtés
 
 L'Ancien en chef du Clan du Serpent de l'Âme sourit et dit lentement : « La rumeur prétend que le Clan de l'Évasion Nuageuse a invité Greed en tant qu'Ancien honorifique. Avec Greed, je présume que le Clan de l'Évasion Nuageuse est assuré d'obtenir un siège d'Ancien Déchu ! Cependant, comment se fait-il que je ne voie pas le Senior Greed ? »
 
-Sa voix n'était pas forte, mais elle était imprégnée de sa puissance de culture, ce qui la fit résonner.
+Sa voix n'était pas forte, mais elle était imprégnée de sa puissance de cultivation, ce qui la fit résonner.
 
 Les dix mille cultivateurs présents étaient tous issus des clans de la Terre Déchue. Ils étaient venus ici pour tenter d'arracher une place au Conseil Déchu, et on pouvait dire qu'ils étaient tous les ennemis les uns des autres.
 

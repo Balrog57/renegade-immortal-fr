@@ -10,7 +10,7 @@ Chapitre 2064 - Faire un pas pour piétiner les cieux !
 
 Tous les Grands Empereurs du Continent Astral Immortel furent stupéfaits. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancestral étaient d'une rapidité extrême.
 
-Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
+Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de cultivation de Wang Lin ou de Gu Dao.
 
 Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancestral. Les innombrables sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des milliers de pieds tandis que la lumière qui l'enveloppait s'effondrait.
 
@@ -36,7 +36,7 @@ Gu Dao afficha une expression mélancolique et déclara lentement : « Je suis G
 
 « La distance maximale que vous pouvez parcourir est cet endroit ! Les rumeurs disent que vous avez tué un Grand Empereur du clan Céleste, mais ce n'est qu'une erreur. Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
 
-Il était perplexe car, avec le niveau de culture de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul ; pourtant, après d'innombrables années, le clan Céleste existait toujours.
+Il était perplexe car, avec le niveau de cultivation de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul ; pourtant, après d'innombrables années, le clan Céleste existait toujours.
 
 « Vous avez obtenu la mémoire et la volonté de l'Ancêtre Ancestral. Vous avez dû également recevoir certaines restrictions avec cet héritage. » Wang Lin regarda Gu Dao en poussant un soupir.
 

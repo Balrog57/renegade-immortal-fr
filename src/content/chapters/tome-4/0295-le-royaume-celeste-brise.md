@@ -60,7 +60,7 @@ Wang Lin fut stupéfait. À la vue de cette trace, il pensa immédiatement à ce
 
 La puissance d'une seule empreinte de main avait suffi à dévaster une zone aussi vaste. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais nous parlions ici du Royaume Céleste.
 
-Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la culture de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
+Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la cultivation de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
 
 Wang Lin s'accroupit près de l'empreinte et la toucha du doigt. Soudain, une puissante aura de mort s'en échappa pour pénétrer son corps par son bras.
 
@@ -74,7 +74,7 @@ Après plusieurs jours de marche, il tomba sur une stèle de pierre brisée sur 
 
 « Offert par le cinquième Empereur Céleste Rain à l'Érudit Céleste Tian Hua... »
 
-La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 100 000 kilomètres, rendant la culture plusieurs fois plus efficace.
+La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 100 000 kilomètres, rendant la cultivation plusieurs fois plus efficace.
 
 Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ignorât le rang exact d'un Érudit Céleste, celui-ci était certainement inférieur à celui d'un Empereur Céleste. Si un simple Érudit pouvait posséder un tel palais, à quoi ressemblait celui de l'Empereur ?
 

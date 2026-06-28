@@ -30,7 +30,7 @@ Il n'avait jamais ressenti une crise de mort aussi imminente ; il était totalem
 
 À cet instant, les étoiles, les cieux et les cultivatrices alentour disparurent. La seule chose subsistant dans les yeux du vieil homme était l'éclair rouge qui approchait à une vitesse fulgurante.
 
-Sa main droite concentrait toute sa culture de Briseur de Nirvana ; alors qu'il frappait, de puissantes vagues d'énergie originelle furent projetées. Elles se transformèrent en divers sorts pour intercepter la foudre, mais les éclairs rouges étaient bien plus puissants que tout ce que l'on aurait pu imaginer !
+Sa main droite concentrait toute sa cultivation de Briseur de Nirvana ; alors qu'il frappait, de puissantes vagues d'énergie originelle furent projetées. Elles se transformèrent en divers sorts pour intercepter la foudre, mais les éclairs rouges étaient bien plus puissants que tout ce que l'on aurait pu imaginer !
 
 Un grondement tonitruant retentit en un instant. Les sorts du vieil homme n'étaient même pas de taille pour arrêter les éclairs rouges et s'effondrèrent instantanément. La foudre les percuta tous et fondit sur le bouclier au visage étrange !
 
@@ -92,7 +92,7 @@ Le sang ne formait pas une rivière, mais le spectacle était encore plus terrif
 
 À mesure que la dévoration progressait, Wang Lin récupérait rapidement. Son âme originelle s'était rétablie et son esprit s'était solidifié. Seule la blessure sur sa poitrine guérissait lentement.
 
-La majorité des centaines de cultivateurs avaient été dévorée dans cette frénésie. Les cent restants, possédant les niveaux de culture les plus élevés, s'étaient enfuis au loin, les yeux écarquillés par l'effroi.
+La majorité des centaines de cultivateurs avaient été dévorée dans cette frénésie. Les cent restants, possédant les niveaux de cultivation les plus élevés, s'étaient enfuis au loin, les yeux écarquillés par l'effroi.
 
 Après s'être léché les lèvres, Wang Lin se retourna soudainement vers les fuyards. Le brouillard noir se déploya pour couvrir toute la zone !
 

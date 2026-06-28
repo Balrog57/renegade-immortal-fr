@@ -12,7 +12,7 @@ Ils étaient trois : l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sort
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence ; ils étaient simplement las et aspiraient au repos.
 
-Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer des Pillules, mais tous trois avaient choisi de mener une vie paisible.
+Avec leurs niveaux de cultivation, ils auraient pu accomplir de grandes choses dans la Mer des Pillules, mais tous trois avaient choisi de mener une vie paisible.
 
 Pourtant, bien que le trio souhaitât la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer des Pillules.
 
@@ -106,7 +106,7 @@ Au moment où ce cycle fut complété, Wang Lin ouvrit les yeux. Son corps n'ét
 
 Dès sa guérison, la huitième essence apparut en lui : l'essence d'eau !
 
-L'apparition de cette essence provoqua une ascension soudaine du niveau de culture de Wang Lin. Une aura puissante se dégagea de lui. C'était l'aura de son véritable niveau de culture : le stade avancé du Vide Spirituel.
+L'apparition de cette essence provoqua une ascension soudaine du niveau de cultivation de Wang Lin. Une aura puissante se dégagea de lui. C'était l'aura de son véritable niveau de cultivation : le stade avancé du Vide Spirituel.
 
 À cet instant, son aura augmenta de manière effrénée et franchit un nouveau seuil !
 

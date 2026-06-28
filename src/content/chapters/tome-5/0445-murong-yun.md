@@ -26,7 +26,7 @@ L'expression de Wang Lin devint plus sombre encore. Il regarda la flamme une der
 
 D'un geste de la main droite, il laissa le grain s'envoler vers la terre brûlée sans l'interrompre.
 
-« Situ Nan a dit que les fragments d'âme se trouvaient dans le Cristal de Planète de Culture, alors pourquoi en ai-je trouvé juste à l'entrée... Se pourrait-il que mon propre fragment d'âme soit également contenu dans ce genre de forme de vie... »
+« Situ Nan a dit que les fragments d'âme se trouvaient dans le Cristal de Planète de Cultivation, alors pourquoi en ai-je trouvé juste à l'entrée... Se pourrait-il que mon propre fragment d'âme soit également contenu dans ce genre de forme de vie... »
 
 Wang Lin fronça les sourcils et s'élança vers l'avant.
 
@@ -42,7 +42,7 @@ Au cours de ces trois derniers jours, il n'avait croisé aucun cultivateur !
 
 Alors qu'il volait, son expression changea et il fit volte-face. Au loin, il vit deux cultivateurs traverser le ciel comme des éclairs. L'un était un homme, l'autre une femme. En apercevant Wang Lin, les deux furent surpris.
 
-Les yeux de Wang Lin s'illuminèrent et il dissimula son niveau de culture. Il ressemblait désormais à quelqu'un ayant tout juste atteint le stade de la Formation de l'Âme.
+Les yeux de Wang Lin s'illuminèrent et il dissimula son niveau de cultivation. Il ressemblait désormais à quelqu'un ayant tout juste atteint le stade de la Formation de l'Âme.
 
 Deux sens divins le balayèrent comme pour l'évaluer. Ensuite, les deux semblèrent se détendre un peu et volèrent lentement vers lui.
 
@@ -56,7 +56,7 @@ Alors qu'ils se trouvaient à plusieurs centaines de pieds de Wang Lin, l'homme 
 
 Wang Lin resta calme et esquissa un sourire. « Je suis Qing Mu ! » Qing Mu était le nom que Wang Lin utilisait lorsqu'il était entré dans la Secte du Raffinement de l'Âme.
 
-Wang Lin parvint à percevoir leurs niveaux de culture d'un seul coup d'œil. Le jeune homme était au milieu du stade de la Formation de l'Âme, tandis que la femme était au début de ce stade. À l'extérieur de la Tombe Suzaku, ils auraient pu être considérés comme puissants, mais ici, où tant de gens avaient péri, ils semblaient un peu faibles.
+Wang Lin parvint à percevoir leurs niveaux de cultivation d'un seul coup d'œil. Le jeune homme était au milieu du stade de la Formation de l'Âme, tandis que la femme était au début de ce stade. À l'extérieur de la Tombe Suzaku, ils auraient pu être considérés comme puissants, mais ici, où tant de gens avaient péri, ils semblaient un peu faibles.
 
 Ils n'avaient pu entrer que parce qu'ils se trouvaient déjà dans le pays de Suzaku au moment de l'ouverture de la tombe. S'ils étaient arrivés quelques jours plus tard, ils n'auraient jamais eu la chance d'entrer.
 
@@ -70,7 +70,7 @@ Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement
 
 Wang Lin réfléchit un instant et répondit : « À vous entendre, vous semblez très confiant quant à la récupération de votre fragment d'âme. » Tandis qu'il parlait, ses yeux s'illuminèrent sans que personne ne s'en aperçoive.
 
-Murong Yun rit et dit : « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans la Tombe Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan de l'Immortalité Délaissée sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
+Murong Yun rit et dit : « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans la Tombe Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan de l'Immortalité Délaissée sont entrés dans la section intérieure. Si mon niveau de cultivation n'était pas plus élevé, j'y serais déjà. »
 
 « Oh ? » Wang Lin eut un léger sourire. « Comment Qian Feng et les autres sont-ils entrés ? »
 
@@ -108,7 +108,7 @@ Les yeux de Wang Lin s'illuminèrent. Il comprit instantanément la situation. U
 
 En pleine fuite, le sens divin du vieil homme balaya les trois personnes, et il s'exclama lorsqu'il posa les yeux sur Wang Lin.
 
-Wang Lin avait déjà vu ce vieil homme. Il faisait partie des seize cultivateurs de la Transformation de l'Âme présents à l'extérieur de la Tombe Suzaku. Son niveau de culture se situait au début du stade de la Transformation de l'Âme.
+Wang Lin avait déjà vu ce vieil homme. Il faisait partie des seize cultivateurs de la Transformation de l'Âme présents à l'extérieur de la Tombe Suzaku. Son niveau de cultivation se situait au début du stade de la Transformation de l'Âme.
 
 Il ne s'arrêta pas et lança précipitamment : « Compagnons cultivateurs, retirez-vous vite ! Cette chose est très étrange ! »
 

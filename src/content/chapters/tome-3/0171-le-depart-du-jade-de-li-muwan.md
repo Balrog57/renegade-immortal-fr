@@ -58,7 +58,7 @@ Voyant qu'il restait moins de dix kilomètres, Wang Lin prit une grande inspirat
 
 Des arcs de lumière apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur un morceau de jade blanc d'apparence très ordinaire.
 
-C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa culture en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise : si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
+C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa cultivation en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise : si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
 
 Au moment où il lança le jade, les gueules environnantes s'ouvrirent totalement pour l'engloutir. Mais à cet instant précis, un anneau de lumière verte apparut aux côtés de Wang Lin. La lumière se propagea soudainement et un dragon vert jaillit du jade. À l'apparition du dragon, les gueules commencèrent à dévorer l'anneau lumineux qui s'était étendu.
 
@@ -82,7 +82,7 @@ Ce vide était d'une immensité sans nom. Wang Lin ne croyait pas pouvoir locali
 
 Un jour, alors qu'il se tenait au sommet d'un pilier en forme de cône, ses yeux s'illuminèrent. Il avait volé horizontalement parmi des piliers de cette dimension pendant très longtemps, et il venait enfin de repérer l'anneau de lumière ovale.
 
-Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il les avait accomplies, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé des trésors précieux, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
+Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il les avait accomplies, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé des trésors précieux, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de cultivation actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
 
 Il poussa un soupir de regret et s'élança vers l'anneau de lumière. Cependant, au moment où il allait le toucher, des éclairs violets apparurent. Les décharges s'entrecroisèrent pour former un motif concave et rhombique.
 

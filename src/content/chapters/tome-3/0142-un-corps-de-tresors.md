@@ -58,7 +58,7 @@ Après avoir réfléchi un moment, il collecta nonchalamment quelques ossements 
 
 Les yeux de Wang Lin brillèrent. Il comprit que cela signifiait que la qualité de l'énergie Yin avait dépassé le rang 10 ordinaire pour entrer dans le rang 1 de grande qualité. Des ondes Yin émanaient de la quatorzième vallée. Wang Lin sentit son corps se raidir.
 
-Il regarda autour de lui et soupira. En vérité, c'était l'endroit idéal pour une culture en isolement. Cependant, bien que le lieu parût calme, s'il était considéré comme l'une des trois zones dangereuses, il devait receler des périls. Wang Lin n'osait pas s'immerger dans une culture de longue durée, quelles que soient les conditions. Tant qu'il ne comprendrait pas pleinement cet endroit, il n'y resterait pas plus longtemps que nécessaire.
+Il regarda autour de lui et soupira. En vérité, c'était l'endroit idéal pour une cultivation en isolement. Cependant, bien que le lieu parût calme, s'il était considéré comme l'une des trois zones dangereuses, il devait receler des périls. Wang Lin n'osait pas s'immerger dans une cultivation de longue durée, quelles que soient les conditions. Tant qu'il ne comprendrait pas pleinement cet endroit, il n'y resterait pas plus longtemps que nécessaire.
 
 Il hésita. Il avait déjà collecté quelques os ; bien que leur qualité fût médiocre, ils pourraient au moins renforcer légèrement la formation des neuf squelettes.
 
@@ -96,7 +96,7 @@ Après avoir volé péniblement hors de la Vallée des Cadavres, Wang Lin aperç
 
 Ces cultivateurs étaient habitués à ce genre d'événements ; dès l'apparition du dragon, ils s'étaient dispersés pour se réfugier derrière leurs protections. Malgré cela, certains avaient été fauchés par la puissance du rugissement.
 
-Pour survivre ici, il fallait non seulement un certain niveau de culture, mais aussi de la vivacité d'esprit. Ces gens passaient leurs années ici, dépendant de la vente des ossements de la Vallée des Cadavres pour subsister.
+Pour survivre ici, il fallait non seulement un certain niveau de cultivation, mais aussi de la vivacité d'esprit. Ces gens passaient leurs années ici, dépendant de la vente des ossements de la Vallée des Cadavres pour subsister.
 
 Habitués aux lieux, ils voyaient parfois des bêtes spirituelles mourir dans la vallée, mais c'était la première fois qu'ils voyaient quelqu'un transporter le corps d'une créature venant de s'éteindre.
 

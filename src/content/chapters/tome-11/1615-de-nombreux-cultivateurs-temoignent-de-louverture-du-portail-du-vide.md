@@ -50,7 +50,7 @@ Situ Nan était également présent. Il aurait dû partir pour Allheaven avec Qi
 
 « Et alors si je meurs ? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert le Portail du Vide avec l'aide de ce dernier et était devenu un cultivateur du troisième pas il y a 30 ans !
 
-Aux côtés de Situ Nan, Thirteen, Big Head et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
+Aux côtés de Situ Nan, Thirteen, Big Head et les autres étaient restés également. Bien que leurs niveaux de cultivation ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
 
 Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
@@ -68,7 +68,7 @@ Aujourd'hui, il avait amené de nombreux Anciens de la Secte des Quatre Divinit�
 
 L'Empereur Divin du Dragon Azure avait disparu avec la Secte des Quatre Divinités. Puis, quelques décennies plus tard, il était soudainement réapparu avec elle pour engager une lutte de vie ou de mort contre le Royaume Extérieur.
 
-Son niveau de culture était déjà très élevé par le passé. Au fil des ans, bien qu'il n'ait pas atteint le troisième pas, il avait atteint le sommet du cinquième Ciel Fléau.
+Son niveau de cultivation était déjà très élevé par le passé. Au fil des ans, bien qu'il n'ait pas atteint le troisième pas, il avait atteint le sommet du cinquième Ciel Fléau.
 
 En comptant ces individus, moins de 8 000 cultivateurs protégeaient la planète Suzaku contre des dizaines de milliers de combattants du Royaume Extérieur. Pourtant, ces 8 000 hommes avaient tenu tête pendant plusieurs mois !
 
@@ -78,9 +78,9 @@ L'un d'eux était un jeune homme en vert à l'expression glaciale. À chaque att
 
 Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wang Lin, il était retourné dans le Royaume Extérieur. Il avait ensuite ramené son clan dans le Royaume Intérieur et avait déclenché un bain de sang, comme s'il tentait d'effacer l'infamie d'avoir été l'esclave de Wang Lin.
 
-Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
+Parmi les deux, Zhou Jin possédait le niveau de cultivation le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
 
-Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade intermédiaire du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
+Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de cultivation extrêmement élevé. Il combattait avec son corps original, qui se situait au stade intermédiaire du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
 
 C'était la bataille ultime du Brillant Void. Tout le Brillant Void était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait !
 

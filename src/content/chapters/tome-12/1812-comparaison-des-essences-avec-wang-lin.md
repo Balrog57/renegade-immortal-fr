@@ -18,7 +18,7 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Ou alors il possède un passé très profond... Pour obtenir de tels sorts auprès de ces sectes... » Le visage de Du Qing se crispa tandis qu'il reculait de cent pas, d'innombrables spéculations traversant son esprit.
 
-« Si c'est le premier cas, cet homme est très rusé et sait parfaitement se dissimuler. Son niveau de culture ne doit pas être ce qu'il semble, et il sera très difficile à affronter... Un tel homme, bien que redoutable, ne poserait aucun problème si je l'assassinnais... »
+« Si c'est le premier cas, cet homme est très rusé et sait parfaitement se dissimuler. Son niveau de cultivation ne doit pas être ce qu'il semble, et il sera très difficile à affronter... Un tel homme, bien que redoutable, ne poserait aucun problème si je l'assassinnais... »
 
 « Mais si c'est le second cas... » Les pupilles de Du Qing se rétractèrent.
 
@@ -68,11 +68,11 @@ Du Qing leva soudain la tête, les yeux injectés de sang. Il avait été ébran
 
 Même à présent, il n'avait lancé qu'une seule attaque !
 
-« Et alors, si vous possédez de nombreux sorts des autres sectes ?! Votre niveau de culture doit être inférieur au mien, sinon vous n'utiliseriez pas de telles ruses pour m'arrêter ! »
+« Et alors, si vous possédez de nombreux sorts des autres sectes ?! Votre niveau de cultivation doit être inférieur au mien, sinon vous n'utiliseriez pas de telles ruses pour m'arrêter ! »
 
 « Tout cela prouve seulement que vous n'osez pas m'attaquer ! » rugit Du Qing. Il n'avait jamais affronté une situation où il était si difficile de faire marche arrière. Décidé à tout donner, il réprima le choc dans son cœur et chargea. D'un geste de la main droite, il condensa une immense quantité de feu issue de son corps. Un épais gaz pourpre s'échappa également de sa forme ligneuse pour foncer vers Wang Lin.
 
-« La culture de ce vieil homme a été acquise par ses propres efforts ! Bien que je ne possède pas autant de sorts sophistiqués que vous, j'ai trois essences ! Ce vieil homme a surmonté les Tribulations Arcanes avec trois essences ; comment pourrais-je craindre quelqu'un comme vous qui n'a que l'essence du feu ?! »
+« La cultivation de ce vieil homme a été acquise par ses propres efforts ! Bien que je ne possède pas autant de sorts sophistiqués que vous, j'ai trois essences ! Ce vieil homme a surmonté les Tribulations Arcanes avec trois essences ; comment pourrais-je craindre quelqu'un comme vous qui n'a que l'essence du feu ?! »
 
 « Ce vieil homme veut voir combien d'essences vous possédez pour être aussi arrogant ! » Du Qing poussa un rugissement vers le ciel, et le feu de sa main droite se fusionna avec le gaz pourpre pour devenir une mer de flammes violacées. Le feu pourpre teinta le monde tandis qu'une vague de chaleur enveloppait Du Qing alors qu'il marchait vers Wang Lin.
 
@@ -114,7 +114,7 @@ Il avait même scellé le Souverain et osé défier le Vieux Fantôme Zhan ainsi
 
 Si ce n'était pour l'impossibilité d'ouvrir son espace de stockage, Du Qing aurait certainement perdu dès la sortie de la Poupée Yi Si !
 
-Des fracas tonitruants résonnèrent, mais la culture de Du Qing était trop puissante. Même sans utiliser de sorts spécifiques, ses trois essences constituaient ses attaques les plus dévastatrices.
+Des fracas tonitruants résonnèrent, mais la cultivation de Du Qing était trop puissante. Même sans utiliser de sorts spécifiques, ses trois essences constituaient ses attaques les plus dévastatrices.
 
 Dans un vacarme de tonnerre, les quatre sorts de Wang Lin s'effondrèrent, mais la puissance des essences de Du Qing généra une onde de choc qui atteignit Wang Lin. L'âme du dragon de feu sous les pieds de Wang Lin ne put plus supporter la pression et poussa un cri avant de se désintégrer brusquement.
 

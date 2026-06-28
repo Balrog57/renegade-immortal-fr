@@ -14,7 +14,7 @@ Chapitre 1262 - Le Retour...
 
 « Cependant... Êtes-vous vraiment mort ?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
-« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et du Daoïste Miao Yin, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre culture était capable de faire trembler les cieux, vous auriez dû mourir ! »
+« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et du Daoïste Miao Yin, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre cultivation était capable de faire trembler les cieux, vous auriez dû mourir ! »
 
 « Pourtant, pourquoi ai-je ressenti une trace de votre aura il y a quelques mois ? Serait-il possible que vous ne soyez pas mort, mais que vous vous soyez réincarné pour cultiver à nouveau ?! »
 
@@ -94,7 +94,7 @@ Le maître du Secte réfléchit un instant avant d'agiter ses manches, transmett
 
 Wang Lin fendait l'atmosphère, suivant le disciple du Secte Éternel alors qu'il quittait cette planète pour retourner vers celle où la formation avait été activée. En chemin, le disciple se montrait extrêmement respectueux. Bien qu'il ouvrait la voie, il restait en réalité à demi-pas derrière Wang Lin, n'osant absolument pas le dépasser.
 
-En pénétrant sur la planète de culture scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte d'Origine, il reprit la direction.
+En pénétrant sur la planète de cultivation scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte d'Origine, il reprit la direction.
 
 Il ne fallut pas longtemps pour que les deux arrivent à la cour de la Secte d'Origine. Le disciple dit respectueusement à Wang Lin : « Aîné, voici l'endroit où séjourne la Secte d'Origine. Si vous n'avez pas d'autres instructions, ce junior prend congé. »
 

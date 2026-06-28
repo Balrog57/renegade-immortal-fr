@@ -58,15 +58,15 @@ Durant ce temps, il avait épuisé toutes les bêtes spirituelles de son sac de 
 
 Il était impossible de toutes les éliminer !
 
-Et s'il commettait la moindre erreur, il serait frappé par les sens divins combinés de toutes ces petites créatures. Même en tant que cultivateur de la Formation de l'Âme, cela le blesserait sérieusement. Ce ne serait pas une simple égratignure, mais une blessure majeure capable de faire chuter considérablement sa culture.
+Et s'il commettait la moindre erreur, il serait frappé par les sens divins combinés de toutes ces petites créatures. Même en tant que cultivateur de la Formation de l'Âme, cela le blesserait sérieusement. Ce ne serait pas une simple égratignure, mais une blessure majeure capable de faire chuter considérablement sa cultivation.
 
 Quant aux trésors, il en avait également consommé plusieurs. Malgré leur efficacité relative, le résultat restait le même.
 
 À cet instant, il était au bout du rouleau. Ce n'était pas qu'il n'avait pas envisagé de charger ; il l'avait déjà tenté. Il avait alors utilisé plus de dix bêtes spirituelles comme substituts, mais juste au moment où il allait briser le siège, le plus grand tourbillon l'avait frappé. Non seulement cela l'avait empêché de s'échapper, mais cela l'avait aussi blessé.
 
-Hunchback Meng pensa amèrement : « Les cieux veulent-ils ma mort ? J'ai déjà défié les lois célestes par ma culture pour atteindre le stade intermédiaire de la Formation de l'Âme. Je pensais pouvoir utiliser ce niveau pour obtenir une pilule de Transformation de l'Âme et atteindre ce stade d'un seul coup, mais... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
+Hunchback Meng pensa amèrement : « Les cieux veulent-ils ma mort ? J'ai déjà défié les lois célestes par ma cultivation pour atteindre le stade intermédiaire de la Formation de l'Âme. Je pensais pouvoir utiliser ce niveau pour obtenir une pilule de Transformation de l'Âme et atteindre ce stade d'un seul coup, mais... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
 
-Parmi eux, beaucoup possédaient un niveau de culture supérieur au leur, et pourtant, tous avaient péri. Les quatre survivants n'avaient tenu que par une chance insolente.
+Parmi eux, beaucoup possédaient un niveau de cultivation supérieur au leur, et pourtant, tous avaient péri. Les quatre survivants n'avaient tenu que par une chance insolente.
 
 Après mille ans de préparation, il avait réussi à passer du stade avancé de l'Âme Naissante au stade intermédiaire de la Formation de l'Âme. S'il avait progressé si vite, c'était grâce à la consommation d'un des grands trésors du Clan des Démons Géants : le Cœur du Démon Ancestral !
 
@@ -100,7 +100,7 @@ La bosse dans le dos de Hunchback Meng gonfla soudainement et de nombreuses pust
 
 Hunchback Meng ferma les yeux. Une vapeur noire s'accumula sur son front pour former un vortex. Puis, il ouvrit brusquement les paupières. Ses pupilles étaient désormais triangulaires et reflétaient un regard impitoyable.
 
-Alors qu'il serrait les poings, des éclairs noirs crépitèrent dans ses mains. Il prit une profonde inspiration et murmura d'une voix rauque : « Cette ancienne technique démoniaque est vraiment incroyable. En utilisant le noyau d'origine de ce crapaud de haute qualité, j'ai pu porter ma culture au sommet du stade avancé de la Formation de l'Âme. Cette fois, je pourrai percer ! Cependant, le prix est bien trop lourd. Si seulement je n'avais pas été acculé dans cette situation désespérée... hélas ! »
+Alors qu'il serrait les poings, des éclairs noirs crépitèrent dans ses mains. Il prit une profonde inspiration et murmura d'une voix rauque : « Cette ancienne technique démoniaque est vraiment incroyable. En utilisant le noyau d'origine de ce crapaud de haute qualité, j'ai pu porter ma cultivation au sommet du stade avancé de la Formation de l'Âme. Cette fois, je pourrai percer ! Cependant, le prix est bien trop lourd. Si seulement je n'avais pas été acculé dans cette situation désespérée... hélas ! »
 
 Sur ces mots, il sortit lentement de la tour noire. Dès qu'il fut dehors, des éclairs formés par la fusion des sens divins descendirent sur lui. Hunchback Meng, le regard féroce, cracha un gaz vert. Au moment où l'éclair divin entra en contact avec ce gaz, sa progression ralentit légèrement. Saisissant cette opportunité, Hunchback Meng bondit dans l'un des tourbillons.
 
@@ -122,7 +122,7 @@ Le petit chaudron volent se brisa en deux et tomba du ciel. Mais la lance qui l'
 
 C'est alors qu'un phénomène étrange se produisit. Presque chaque sens divin issu de la lance portait une trace de vert. Cette teinte commença à se propager rapidement et, en quelques secondes, tous les sens divins composant la lance devinrent totalement verts.
 
-Au moment où le chaudron verdoyant se brisa, le corps de Hunchback Meng faiblit soudainement. Il cracha plusieurs bouffées de sang essentiel. Ce chaudron vert était son trésor de vie. Grâce à sa culture au stade avancé de la Formation de l'Âme, il avait pu s'en servir pour résister à l'attaque de plus d'un milliard de sens divins fusionnés, mais il finit par être scindé en deux.
+Au moment où le chaudron verdoyant se brisa, le corps de Hunchback Meng faiblit soudainement. Il cracha plusieurs bouffées de sang essentiel. Ce chaudron vert était son trésor de vie. Grâce à sa cultivation au stade avancé de la Formation de l'Âme, il avait pu s'en servir pour résister à l'attaque de plus d'un milliard de sens divins fusionnés, mais il finit par être scindé en deux.
 
 Hunchback Meng n'eut pas le temps de déplorer cette perte. Ses yeux injectés de sang fixaient les sens divins verts qui couvraient le ciel. Tous ces sens explosèrent en se transformant en énergie spirituelle. Une fois leurs sens divins brisés, leurs corps moururent également.
 
@@ -136,7 +136,7 @@ Alors que la bête rugissait, elle bondit en avant. Des ondes sonores jaillirent
 
 Simultanément, tous les tourbillons restants chargèrent Hunchback Meng, en particulier ceux qui interceptaient sa trajectoire. Ils foncèrent sans souci de leur propre vie pour tenter de l'arrêter. Sens divins, ondes sonores et divers assauts pleuvaient sur lui. Pourtant, aucun ne parvint à le stopper ; chaque tourbillon était pulvérisé lorsque Hunchback Meng le percutait.
 
-Cependant, à chaque collision, le vortex noir sur son front s'estompait un peu. Il se plaignit intérieurement : il savait que l'effet de sa hausse de culture touchait à sa fin. S'il ralentissait ne serait-ce qu'un instant, l'onde sonore du tourbillon roi l'atteindrait. Pensant cela, il accéléra encore davantage.
+Cependant, à chaque collision, le vortex noir sur son front s'estompait un peu. Il se plaignit intérieurement : il savait que l'effet de sa hausse de cultivation touchait à sa fin. S'il ralentissait ne serait-ce qu'un instant, l'onde sonore du tourbillon roi l'atteindrait. Pensant cela, il accéléra encore davantage.
 
 Wang Lin remarqua que lorsque la créature libéra son onde sonore, une lumière jaillit de son front : un doigt doré y était émerge.
 
@@ -172,4 +172,4 @@ Frappé par l'onde sonore, Hunchback Meng sentit ses os et sa chair se briser. L
 
 En voyant que son attaque de sang avait été bloquée et que Wang Lin s'était échappé, il ne ressentit même pas de chagrin pour son sac volé. Au lieu de cela, une soif de vengeance absolue l'envahit. Si ce n'était pas pour Wang Lin, il aurait déjà franchi le barrage pour atteindre la seconde épreuve.
 
-Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Hunchback Meng réalisa immédiatement qu'il avait involontairement ouvert la voie à Wang Lin, attirant sur lui l'attention de tous les tourbillons. Sinon, avec une culture de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité ?
+Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Hunchback Meng réalisa immédiatement qu'il avait involontairement ouvert la voie à Wang Lin, attirant sur lui l'attention de tous les tourbillons. Sinon, avec une cultivation de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité ?

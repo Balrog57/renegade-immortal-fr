@@ -64,9 +64,9 @@ Face à cette puissance, les expressions des trois anciens changèrent radicalem
 
 Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
-« Zhu Yunming, né sur le continent de la Mer Céleste. Tu as commencé ta culture à l'âge de sept ans en entrant dans la Secte de la Grande Ourse. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de culture, tu as atteint le début du stade de l'Observateur du Nirvana et tu es le maître de la Secte de la Grande Ourse. »
+« Zhu Yunming, né sur le continent de la Mer Céleste. Tu as commencé ta cultivation à l'âge de sept ans en entrant dans la Secte de la Grande Ourse. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de cultivation, tu as atteint le début du stade de l'Observateur du Nirvana et tu es le maître de la Secte de la Grande Ourse. »
 
-« Luo Conggang, né sur le continent de la Mer Céleste. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta culture par la force, t'arrêtant au début du stade de l'Observateur du Nirvana. »
+« Luo Conggang, né sur le continent de la Mer Céleste. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta cultivation par la force, t'arrêtant au début du stade de l'Observateur du Nirvana. »
 
 « Zhou Chen, tu n'es pas né sur le continent de la Mer Céleste, mais sur celui de Zhou Wu. Tu as rejoint la Secte de la Grande Ourse à mi-parcours... et voilà que tu es bloqué au stade du Yang Corporel depuis 735 ans ! »
 

@@ -14,7 +14,7 @@ Il s'agissait d'un vieil homme. À l'origine, aucune vitalité ne résidait dans
 
 Cette vitalité était si intense qu'elle fit gonfler le corps du vieillard comme un ballon. Cependant, la chose étrange était que les yeux de l'homme restaient clos, sans le moindre signe d'ouverture.
 
-Lorsque le sens divin de Wang Lin perçut cela, son esprit fut secoué. Grâce à son niveau de culture et à son domaine de la Vie et de la Mort, il pouvait clairement déceler une pointe d'aura mortelle au sein de cette vitalité ; toutefois, l'aura de mort était totalement suppressed par la force vitale.
+Lorsque le sens divin de Wang Lin perçut cela, son esprit fut secoué. Grâce à son niveau de cultivation et à son domaine de la Vie et de la Mort, il pouvait clairement déceler une pointe d'aura mortelle au sein de cette vitalité ; toutefois, l'aura de mort était totalement suppressed par la force vitale.
 
 À mesure que la vitalité augmentait, le corps du vieil homme se dilatait de plus en plus. Une série de craquements retentit alors que les os de son corps se brisaient, incapables de résister à une telle force.
 
@@ -54,7 +54,7 @@ Wang Lin ouvrit les yeux et poussa un soupir de stupéfaction.
 
 Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Greed.
 
-Même à son apogée, le niveau de culture de Greed était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
+Même à son apogée, le niveau de cultivation de Greed était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
 
 Après l'assaut du sens divin de Wang Lin, elle s'effondra rapidement.
 
@@ -92,7 +92,7 @@ Maintenant qu'il possédait le fourneau, il avait le temps de l'observer.
 
 Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi calme qu'une eau dormante.
 
-« La méthode de culture de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent Moongazer ne puisse rien absorber. »
+« La méthode de cultivation de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent Moongazer ne puisse rien absorber. »
 
 « Pourtant, elle a sous-estimé le serpent ! Bien que cette méthode soit efficace, je peux parier que cette glace finira par s'effondrer d'ici peu. » Les yeux de Wang Lin étaient froids tandis qu'il méditait, puis il leva la main droite et pressa la glace.
 

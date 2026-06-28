@@ -14,7 +14,7 @@ Sun Yunshan rit et dit : « Ce n'est rien. Je comptais me rendre dans la Mer des
 
 Wang Lin lui adressa un sourire chaleureux : « Merci de votre considération. » Sur ce, il reporta son regard sur les personnes entourant Sun Yunshan.
 
-Sun Yunshan rit. « Ces trois sont les Anciens du Secte Xuan Yuan chargés de ma sécurité, car ma culture ne peut rivaliser avec celle de frère Wang. Ah, si ce n'était pas l'ordre de mon père, je ne me rendrais pas dans la Mer des Esprits Démoniaques de l'Est. »
+Sun Yunshan rit. « Ces trois sont les Anciens du Secte Xuan Yuan chargés de ma sécurité, car ma cultivation ne peut rivaliser avec celle de frère Wang. Ah, si ce n'était pas l'ordre de mon père, je ne me rendrais pas dans la Mer des Esprits Démoniaques de l'Est. »
 
 Wang Lin sourit. « Frère Sun est plein d'humour ! »
 
@@ -132,7 +132,7 @@ L'homme d'âge moyen, assis sur le crâne géant et entouré par cette aura fun�
 
 Le Saint de l'Épée Ling Tianhou esquissa un sourire ténu et répondit : « Avarice ! »
 
-Cet Avarice était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa culture. Il cherchait également l'origine de cette divine rétribution et, sans le savoir, traquait Wang Lin.
+Cet Avarice était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa cultivation. Il cherchait également l'origine de cette divine rétribution et, sans le savoir, traquait Wang Lin.
 
 Cet homme était l'un des principaux responsables de la tentative de vol de la Perle Défiant le Ciel appartenant à Situ Nan.
 

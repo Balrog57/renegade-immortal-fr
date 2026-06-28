@@ -80,7 +80,7 @@ Le jeune homme sur le bateau observa l'éclair avant de pousser un soupir de sou
 
 Wang Lin fixait le ciel. À cet instant, il ignorait tout le reste pour ne se concentrer que sur l'éclair rouge céleste.
 
-« J'ai eu quelques rencontres avec la rétribution divine au cours de mes 700 ans de culture... J'ai attiré la rétribution en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma culture, ce qui a également attiré la rétribution divine... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
+« J'ai eu quelques rencontres avec la rétribution divine au cours de mes 700 ans de cultivation... J'ai attiré la rétribution en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma cultivation, ce qui a également attiré la rétribution divine... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
 
 Les nuages rouges dans le ciel commencèrent soudainement à bouger et à se condenser frénétiquement. Le ciel ressemblait désormais à une mer rouge dont toutes les vagues convergeaient vers le centre. En un clin d'œil, l'éclair rouge au centre commença à briller intensément, illuminant le ciel et la terre !
 
@@ -130,6 +130,6 @@ Wang Lin se tenait au sommet de cette colline, le tambour démoniaque dans le do
 
 Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire de plus de trente mètres de long, et chargèrent directement l'éclair rouge !
 
-« J'ose défier les cieux pour continuer ma culture ; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Rétribution divine, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao ! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
+« J'ose défier les cieux pour continuer ma cultivation ; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Rétribution divine, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao ! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
 
 Un tonnerre encore plus assourdissant retentit dans le ciel, comme s'il répondait au cœur Dao de Wang Lin !

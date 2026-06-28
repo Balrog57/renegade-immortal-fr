@@ -18,7 +18,7 @@ Des grondements tonitruants résonnèrent et l'expression de Wang Lin devint fé
 
 Toutefois, cela ne suffisait pas à le faire plier ! Les yeux de Wang Lin étaient empreints de folie. Alors que l'annulaire descendait, Wang Lin se lança et l'attaqua avec acharnement.
 
-La puissance du Dieu Ancien était contenue dans chacun de ses coups. Même une planète de culture s'effondrerait sous un tel bombardement, mais l'annulaire continuait sa course. Il semblait vouloir écraser Wang Lin jusqu'à la mort !
+La puissance du Dieu Ancien était contenue dans chacun de ses coups. Même une planète de cultivation s'effondrerait sous un tel bombardement, mais l'annulaire continuait sa course. Il semblait vouloir écraser Wang Lin jusqu'à la mort !
 
 Les roulements de tonnerre résonnaient sans interruption et Wang Lin poussa un cri de guerre. Il était un Dieu Ancien, mais face à ce doigt, il ressentait un recul sans précédent. Peu importait ses assauts, il ne parvenait pas à stopper la descente de l'annulaire. Même le doigt le plus puissant, le pouce, descendait lentement !
 
@@ -36,7 +36,7 @@ En puisant dans l'étoile brisée, le corps de Dieu Ancien de Wang Lin atteignit
 
 Il était déjà prêt à briser cinq étoiles consécutives. La bataille d'aujourd'hui serait l'épreuve la plus difficile de sa vie !
 
-Dans ce combat, son corps s'effondrerait, son âme originelle se dissiperait et son Dao se disperserait totalement. Ses près de 2 000 ans de culture disparaîtraient. Il y aurait des milliers de personnes dans le monde de la culture nommées « Wang Lin », mais aucune ne serait lui !
+Dans ce combat, son corps s'effondrerait, son âme originelle se dissiperait et son Dao se disperserait totalement. Ses près de 2 000 ans de cultivation disparaîtraient. Il y aurait des milliers de personnes dans le monde de la cultivation nommées « Wang Lin », mais aucune ne serait lui !
 
 Soit il briserait les cinq doigts et survivrait avec succès à la puissance de leur attaque. Alors, il pourrait sortir du Royaume aux Sept Couleurs qui avait failli devenir son tombeau !
 
@@ -46,7 +46,7 @@ Habité par cette folie et une vie entière d'obstination, Wang Lin semblait se 
 
 « Je ne peux pas mourir, je refuse de mourir ; je n'ai pas encore ramené Wan Er ! Je n'ai pas encore permis à Ping Er de renaître, je n'ai pas encore honoré mes parents défunts, je n'ai pas encore achevé ma lutte contre le destin !! Il reste tant de promesses que je n'ai pas accomplies, alors je ne peux pas mourir ! » Wang Lin se rapprocha de l'annulaire et lança un coup de poing chargé de toute sa détermination désespérée !
 
-C'était le coup d'un Dieu Ancien Royal à sept étoiles, un coup obtenu en brisant sa sixième étoile, et un coup empreint de la volonté de Wang Lin forgée par près de 2 000 ans de culture !
+C'était le coup d'un Dieu Ancien Royal à sept étoiles, un coup obtenu en brisant sa sixième étoile, et un coup empreint de la volonté de Wang Lin forgée par près de 2 000 ans de cultivation !
 
 Lorsque ce poing fendit l'air, le monde changea de couleur et un grondement tonnerre retentit. Les trois doigts effondrés qui se reformaient tremblèrent, et même la paume marqua une pause.
 
@@ -120,9 +120,9 @@ Après un long moment, des ondulations apparurent et se déformèrent. Un vieil 
 
 L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Ancien, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
 
-« Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un qui apportera le bonheur à notre fille... Et qu'importe s'il possède la Perle Défiant le Ciel ? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle ? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Domaine Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Domaine Scellé en est la preuve ! Quant au sceau... c'est difficile, difficile, difficile !
+« Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un qui apportera le bonheur à notre fille... Et qu'importe s'il possède la Perle Défiant le Ciel ? J'ai obtenu ma cultivation par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle ? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Domaine Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Domaine Scellé en est la preuve ! Quant au sceau... c'est difficile, difficile, difficile !
 
-« C'est le Seigneur du Domaine Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein !
+« C'est le Seigneur du Domaine Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en cultivation de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein !
 
 « Lorsque le Souverain entra dans le Domaine Scellé autrefois, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Ancien inspire encore la crainte chaque fois qu'on y pense.
 

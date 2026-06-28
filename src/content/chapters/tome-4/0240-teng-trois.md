@@ -26,13 +26,13 @@ Une vague d'émotions déferla en lui tandis qu'il caressait les cheveux de Teng
 
 Il savait que depuis l'époque où l'Ancêtre l'avait contraint à se séparer de sa femme, il vivrait éternellement sous l'ombre de ce dernier. Tout cela parce que son épouse était une mortelle et parce qu'il était l'arrière-arrière-petit-fils de l'Ancêtre. Un membre aussi important de la famille Teng ne pouvait prendre une mortelle pour épouse.
 
-Car ses descendants devaient posséder les aptitudes nécessaires à la culture.
+Car ses descendants devaient posséder les aptitudes nécessaires à la cultivation.
 
-S'il voulait changer le cours des choses, il lui fallait du pouvoir. Il devait atteindre un niveau de culture surpassant celui de l'Ancêtre.
+S'il voulait changer le cours des choses, il lui fallait du pouvoir. Il devait atteindre un niveau de cultivation surpassant celui de l'Ancêtre.
 
-De nombreuses années plus tard, il avait réussi sa culture et avait pu guider ses deux filles sur la voie de la cultivation, mais l'espérance de vie de sa femme était déjà épuisée. La douleur dans son cœur ne s'était jamais estompée au fil des ans.
+De nombreuses années plus tard, il avait réussi sa cultivation et avait pu guider ses deux filles sur la voie de la cultivation, mais l'espérance de vie de sa femme était déjà épuisée. La douleur dans son cœur ne s'était jamais estompée au fil des ans.
 
-Durant toutes ces années, il s'était consacré exclusivement à la culture. Seule celle-ci lui permettait de réprimer le souvenir de son épouse.
+Durant toutes ces années, il s'était consacré exclusivement à la cultivation. Seule celle-ci lui permettait de réprimer le souvenir de son épouse.
 
 D'une certaine manière, Teng Xiu Xiu, qui ressemblait tant à sa défunte femme, n'était pas seulement sa fille ; elle était aussi le réceptacle de tout l'amour qu'il portait à son épouse. C'est pourquoi il ne permettrait jamais que Teng Xiu Xiu subisse le moindre préjudice ou qu'on lui cause la moindre injustice.
 
@@ -68,7 +68,7 @@ En entendant son cri, Teng Trois sentit qu'il ne pouvait être cruel ; il tendit
 
 Les deux disparurent dans l'éclat ovale.
 
-Tout s'était passé avec une rapidité fulgurante. Dès l'apparition du nuage noir, Teng Trois n'avait pas hésité à entamer sa propre culture pour utiliser une quantité massive de sang essentiel afin de transporter Teng Xiu Xiu et Wang Zhuo loin de là.
+Tout s'était passé avec une rapidité fulgurante. Dès l'apparition du nuage noir, Teng Trois n'avait pas hésité à entamer sa propre cultivation pour utiliser une quantité massive de sang essentiel afin de transporter Teng Xiu Xiu et Wang Zhuo loin de là.
 
 Une fois son geste accompli, il n'éprouvait plus aucun regret. Il redressa le buste et, dans un silence absolu, une épée volante de couleur orange apparut à ses côtés.
 
@@ -126,7 +126,7 @@ L'enfance amère de Teng Neuf avait forgé une personnalité tordue, l'amenant �
 
 Teng Huit, Teng Six et Teng Quatre occupaient tous une place dans le cœur de Teng Huayuan, mais Teng Trois demeurait le plus important.
 
-Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que né disciple éminent, au lieu de se consacrer sérieusement à sa culture, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
+Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que né disciple éminent, au lieu de se consacrer sérieusement à sa cultivation, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
 
 Teng Huayuan savait que Teng Trois le détestait.
 

@@ -8,7 +8,7 @@ slug: le-seigneur-ne-me-connait-pas
 ---
 Les yeux de Wang Lin s'illuminèrent et il ricana intérieurement, mais il chargea d'abord vers la femme vêtue d'une robe bleue. Xu Ting, le visage sombre, l'imita. Tous deux foncèrent vers l'horizon.
 
-De nombreux cultivateurs s'entretuaient tandis que toutes sortes de trésors magiques volaient dans les airs. Xu Ting était assoiffé de sang ; dès qu'il croisait quelqu'un d'un niveau de culture inférieur, il attaquait immédiatement. En conséquence, sa progression était quelque peu ralentie.
+De nombreux cultivateurs s'entretuaient tandis que toutes sortes de trésors magiques volaient dans les airs. Xu Ting était assoiffé de sang ; dès qu'il croisait quelqu'un d'un niveau de cultivation inférieur, il attaquait immédiatement. En conséquence, sa progression était quelque peu ralentie.
 
 Wang Lin possédait plus de mille ans d'expérience, il avait donc aisément percé les intentions de Xu Ting. Il ne les dénonça pas et n'utilisa pas la même méthode que lui. Au lieu de cela, sa vitesse ne faiblit pas alors qu'il se rapprochait de la femme en robe bleue.
 
@@ -22,7 +22,7 @@ La silhouette de Wang Lin ne s'arrêta pas ; il chargea dans la foulée de l'ond
 
 Non loin de là, les yeux de Xu Ting s'illuminèrent et il ricana. Loin de se rapprocher, il recula sur le côté, une pointe de moquerie dans le regard.
 
-« Xu Mu, tu as cultivé pendant tant d'années, et pourtant tes complots sont si superficiels. Cette femme occupe manifestement un statut spécial au sein de l'Alliance, sans quoi elle n'organiserait pas cette bataille. Bien que son niveau de culture ne soit pas élevé, elle doit posséder un puissant gardien. Tu veux me pousser à la tuer ? Te crois-tu face à un enfant de trois ans ? Je veux voir comment tu vas conclure cela ! »
+« Xu Mu, tu as cultivé pendant tant d'années, et pourtant tes complots sont si superficiels. Cette femme occupe manifestement un statut spécial au sein de l'Alliance, sans quoi elle n'organiserait pas cette bataille. Bien que son niveau de cultivation ne soit pas élevé, elle doit posséder un puissant gardien. Tu veux me pousser à la tuer ? Te crois-tu face à un enfant de trois ans ? Je veux voir comment tu vas conclure cela ! »
 
 Il fixa Wang Lin qui se rapprochait de la femme en robe bleue, et le ricanement sur son visage s'accentua.
 
@@ -30,9 +30,9 @@ Wang Lin ne ralentit pas et suivit l'onde de choc. Celle-ci était dévastatrice
 
 Une lueur de froideur passa dans ses yeux. Elle savait que le membre du Clan des Démons Géants placé sous ses ordres ne pourrait pas arrêter cet homme. Cependant, sans trace de panique, elle leva calmement sa main gauche et pressa le vide sous ses pieds.
 
-À cet instant précis, la planète de culture portée par le membre du Clan des Démons Géants commença à tourner à une vitesse incroyable. Des vagues d'ondulations rouge écarlate se propagèrent rapidement.
+À cet instant précis, la planète de cultivation portée par le membre du Clan des Démons Géants commença à tourner à une vitesse incroyable. Des vagues d'ondulations rouge écarlate se propagèrent rapidement.
 
-Ces ondulations contenaient une aura destructrice. À mesure qu'elles s'étendaient, la planète de culture rétrécissait à un rythme visible à l'œil nu.
+Ces ondulations contenaient une aura destructrice. À mesure qu'elles s'étendaient, la planète de cultivation rétrécissait à un rythme visible à l'œil nu.
 
 L'onde de choc créée par le coup de poing de Wang Lin entra en collision avec les ondulations rouge écarlate. Un fracas retentit et l'onde de choc s'effondra.
 

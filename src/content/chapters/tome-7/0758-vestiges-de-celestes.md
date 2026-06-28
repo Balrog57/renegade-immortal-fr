@@ -44,7 +44,7 @@ Sort de l'Arrêt !
 
 Ce sort n'arrêtait pas seulement les êtres vivants !
 
-Ces épées n'étaient pas des objets ordinaires, mais le sort de l'Arrêt ne l'était pas non plus. Bien que la culture de Wang Lin ne lui permette pas de les immobiliser longtemps, il parvint à les stopper un instant.
+Ces épées n'étaient pas des objets ordinaires, mais le sort de l'Arrêt ne l'était pas non plus. Bien que la cultivation de Wang Lin ne lui permette pas de les immobiliser longtemps, il parvint à les stopper un instant.
 
 Dès qu'il eut stoppé les lames, Wang Lin chargea directement vers l'os de la bête. L'ombre démoniaque invisible le poursuivit immédiatement. Bien qu'il ne puisse la voir, il sentait une aura glaciale l'envelopper.
 
@@ -76,7 +76,7 @@ D'énormes pans de la montagne s'effondrèrent, soulevant des nuages de poussiè
 
 Le garde céleste aux côtés de Li Yuan était lié à Wang Lin. Il fit un pas de côté et frappa la montagne sans hésiter. Un autre grondement retentit.
 
-Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin et son cœur se mit à battre la chamade. Il esquissa un sourire amer, pensant que les idées de ce compagnon de culture étaient parfois bien trop audacieuses.
+Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin et son cœur se mit à battre la chamade. Il esquissa un sourire amer, pensant que les idées de ce compagnon de cultivation étaient parfois bien trop audacieuses.
 
 Si Wang Lin avait été seul, il aurait pu secouer la montagne, mais pas la briser. Cependant, le garde céleste était différent. Son corps était d'une robustesse extrême et, après ce coup, les tremblements de la montagne s'intensifièrent.
 

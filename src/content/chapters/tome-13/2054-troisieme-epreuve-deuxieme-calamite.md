@@ -10,7 +10,7 @@ Il n'existait que trois temples ancestraux dans tout le clan Ancient. Ils se tro
 
 Chaque membre adulte du clan Ancient se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément ; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
 
-Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une culture en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empereurs, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
+Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une cultivation en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empereurs, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
 Wang Lin se tenait au centre de la cité impériale de l'Ancient Shi. Il se trouvait sous l'antique statue, le regard fixé silencieusement vers l'horizon.
 

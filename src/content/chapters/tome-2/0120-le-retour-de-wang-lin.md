@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 120 - Return of Wang Lin
 slug: le-retour-de-wang-lin
 ---
-Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un rocher gigantesque, il triait les gains de ses années de pratique lorsque son jade de transmission se mit soudainement à vibrer.
+Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de cultivation de rang 3 de Julu. Assis au sommet d'un rocher gigantesque, il triait les gains de ses années de pratique lorsque son jade de transmission se mit soudainement à vibrer.
 
 Xu Hao fronça les sourcils et pressa le jade contre son front. Une voix extrêmement pressée pénétra son esprit.
 
@@ -18,7 +18,7 @@ Dès que Xu Hao entendit ces mots, son expression changea instantanément, envah
 
 Seuls les puissants cultivateurs dont l'Âme Naissante s'était échappée du corps avant de mourir avaient une infime chance de laisser derrière eux un fragment de sens divin.
 
-Xu Hao n'en comprenait pas tous les usages précis, mais il savait qu'à son arrivée sur le champ de bataille étranger, le messager avait énuméré les objets convoités par les pays de culture supérieurs, et le sens divin figurait parmi les dix premiers.
+Xu Hao n'en comprenait pas tous les usages précis, mais il savait qu'à son arrivée sur le champ de bataille étranger, le messager avait énuméré les objets convoités par les pays de cultivation supérieurs, et le sens divin figurait parmi les dix premiers.
 
 Ces objets devaient être livrés dès leur obtention en échange d'une récompense spécifique. Fort de cette pensée, Xu Hao s'élança rapidement vers le nord-ouest.
 
@@ -34,15 +34,15 @@ Ce processus se poursuivit tandis que le sens divin de Wang Lin devenait de plus
 
 Au cours de ces trois années, le champ de bataille étranger était tombé dans un état de frénésie. Depuis que Xu Hao et Ge Yang avaient récupéré ce premier fragment, des morceaux de sens divin apparaissaient quotidiennement, plongeant tous les occupants du champ de bataille dans une folie meurtrière.
 
-Il était inconcevable qu'une telle quantité de sens divin puisse apparaître ainsi. Si les pays de culture supérieurs l'avaient appris, cet événement aurait immédiatement attiré leur attention. Pourtant, durant ces trois ans, personne n'avait été envoyé pour inspecter le champ de bataille étranger.
+Il était inconcevable qu'une telle quantité de sens divin puisse apparaître ainsi. Si les pays de cultivation supérieurs l'avaient appris, cet événement aurait immédiatement attiré leur attention. Pourtant, durant ces trois ans, personne n'avait été envoyé pour inspecter le champ de bataille étranger.
 
 Le lieu était entré dans une phase d'instabilité. Pour une raison inconnue, ceux qui étaient à l'intérieur ne pouvaient plus sortir, et ceux de l'extérieur ne pouvaient plus entrer.
 
 La cause de ce phénomène résidait dans les failles spatiales. Au cours de la dernière décennie, leur nombre était devenu excessif ; certaines entrées étaient littéralement obstruées par d'innombrables déchirures de l'espace.
 
-Les experts des pays de culture de rang 4 et 5 en étaient venus à la conclusion que le champ de bataille étranger était sur le point de s'effondrer. Si ne serait-ce qu'une seule Âme Naissante y pénétrait en ce moment, cela pourrait précipiter sa destruction totale.
+Les experts des pays de cultivation de rang 4 et 5 en étaient venus à la conclusion que le champ de bataille étranger était sur le point de s'effondrer. Si ne serait-ce qu'une seule Âme Naissante y pénétrait en ce moment, cela pourrait précipiter sa destruction totale.
 
-Quant à demander aux pays de culture de rang 6 d'intervenir pour le réparer, le prix était exorbitant. Même en sachant que d'immenses quantités de sens divin apparaissaient à l'intérieur, ils n'auraient pas accepté, d'autant plus que les frais auraient été partagés entre les pays de rang 5.
+Quant à demander aux pays de cultivation de rang 6 d'intervenir pour le réparer, le prix était exorbitant. Même en sachant que d'immenses quantités de sens divin apparaissaient à l'intérieur, ils n'auraient pas accepté, d'autant plus que les frais auraient été partagés entre les pays de rang 5.
 
 Et surtout, il existait plusieurs champs de bataille étrangers ; il n'était donc pas nécessaire de sauver celui-ci. La règle était simple : lorsqu'un champ de bataille ne pouvait plus être maintenu, on l'abandonnait tout simplement.
 
@@ -74,7 +74,7 @@ Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 
 Mai Liang marmonna pour lui-même : « Le tunnel de transfert pour sortir d'ici ne s'ouvrira ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans sera atteinte. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi ! Tu ne peux pas refuser ton frère aîné. Je suis un brute, mais je suis le seul à t'aimer vraiment. »
 
-« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant ? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle ne doit pas paraître de plus de trente ans. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Sanctuaire du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, les Anciens concentreront leurs ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Après mon départ, je ne ressemblerai qu'à un jeune homme de vingt ans. Grâce à cela, je pourrai séduire toutes les femmes que je veux ! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré.
+« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant ? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle ne doit pas paraître de plus de trente ans. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Sanctuaire du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, les Anciens concentreront leurs ressources sur moi pour favoriser ma cultivation. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Après mon départ, je ne ressemblerai qu'à un jeune homme de vingt ans. Grâce à cela, je pourrai séduire toutes les femmes que je veux ! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré.
 
 Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Mai Liang.
 

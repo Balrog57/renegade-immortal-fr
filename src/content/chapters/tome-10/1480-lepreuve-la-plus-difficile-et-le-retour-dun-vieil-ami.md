@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1480 - The most difficult trial and old friend return
 slug: lepreuve-la-plus-difficile-et-le-retour-dun-vieil-ami
 ---
-L'expression de Wang Lin resta calme tandis qu'il détournait les yeux. Avec son niveau de culture, il avait clairement ressenti les fluctuations : quelqu'un avait utilisé un sort du Dao pour le verrouiller du regard.
+L'expression de Wang Lin resta calme tandis qu'il détournait les yeux. Avec son niveau de cultivation, il avait clairement ressenti les fluctuations : quelqu'un avait utilisé un sort du Dao pour le verrouiller du regard.
 
 « On dirait que mon retour a attiré l'attention de beaucoup de monde... C'est une bonne chose aussi ! » Wang Lin esquissa un sourire. Désormais, il possédait la force nécessaire pour faire face à tout.
 
@@ -14,17 +14,17 @@ Même si les autres apprenaient son retour, cela n'avait aucune importance pour 
 
 Wang Lin avança avec assurance. Sa marche n'était ni rapide ni lente, mais chaque pas qu'il faisait lui permettait de franchir des distances incommensurables alors qu'il traversait ce système stellaire familier.
 
-Au loin, devant lui, un groupe d'une centaine de cultivateurs survolait le système stellaire. Ils tenaient des fils semblables à de la soie qui étaient enroulés autour d'une planète de culture.
+Au loin, devant lui, un groupe d'une centaine de cultivateurs survolait le système stellaire. Ils tenaient des fils semblables à de la soie qui étaient enroulés autour d'une planète de cultivation.
 
-Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une culture au sommet du Nirvana Cleanser. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
+Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une cultivation au sommet du Nirvana Cleanser. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
 
-« Soyez tous attentifs et appliquez votre force simultanément pour ne pas endommager la planète de culture. Sinon, les reproches du Temple Céleste du Tonnerre seront le cadet de nos soucis. Si les préparatifs de bataille sont compromis, nous pourrons tous rentrer chez nous en culture isolée ! »
+« Soyez tous attentifs et appliquez votre force simultanément pour ne pas endommager la planète de cultivation. Sinon, les reproches du Temple Céleste du Tonnerre seront le cadet de nos soucis. Si les préparatifs de bataille sont compromis, nous pourrons tous rentrer chez nous en cultivation isolée ! »
 
 La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'esprit des cultivateurs. À ces mots, ils sourirent tous.
 
-« Zhan Konglie, ce n'est pas grave si nous devons entrer en culture isolée, mais tu es le chef de cette génération de la famille Zhan. Comment ton ancêtre pourrait-il te permettre cela ? »
+« Zhan Konglie, ce n'est pas grave si nous devons entrer en cultivation isolée, mais tu es le chef de cette génération de la famille Zhan. Comment ton ancêtre pourrait-il te permettre cela ? »
 
-« Normalement, être envoyé en culture isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater ! »
+« Normalement, être envoyé en cultivation isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater ! »
 
 « Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer de Nuages mène la marche. Beaucoup d'entre nous sont perplexes quant à cette direction, as-tu appris quoi que ce soit ? »
 
@@ -48,7 +48,7 @@ Les cent cultivateurs continuèrent leur progression, volant de plus en plus vit
 
 Un instant plus tard, une silhouette blanche apparut lentement au loin devant eux. Après les avoir aperçus, la silhouette s'arrêta et les observa en silence.
 
-L'apparition de cet homme en blanc attira l'attention des cultivateurs, et particulièrement celle de Zhan Konglie. Ses yeux se plissèrent, mais malgré son niveau de culture, il ne parvenait pas à distinguer clairement les traits de cet inconnu.
+L'apparition de cet homme en blanc attira l'attention des cultivateurs, et particulièrement celle de Zhan Konglie. Ses yeux se plissèrent, mais malgré son niveau de cultivation, il ne parvenait pas à distinguer clairement les traits de cet inconnu.
 
 « C'est étrange. Tout le monde, soyez sur vos gardes ! » Zhan Konglie se posta en tête et déploya son Sens Divin.
 
@@ -58,7 +58,7 @@ Nul ne pouvait percevoir clairement son apparence. C'était comme si tout regard
 
 Ce n'est que lorsque les cent cultivateurs eurent entraîné la planète devant l'homme en blanc qu'ils purent enfin se détendre.
 
-« La culture de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir d'Allheaven... »
+« La cultivation de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir d'Allheaven... »
 
 « Actuellement, la barrière entre les quatre systèmes stellaires est ouverte. Tant qu'ils connaissent le chemin, ils peuvent voyager à leur guise. Cet homme doit être issu d'un autre système stellaire. »
 
@@ -66,7 +66,7 @@ Alors qu'ils s'éloignaient peu à peu, Zhan Konglie se retourna pour contempler
 
 « Cet homme... me semble vaguement familier... »
 
-Wang Lin observa le groupe de cultivateurs puis fixa Zhan Konglie. Il se remémora le passé. Zhan Konglie paraissait plus âgé qu'autrefois. À l'époque, dans la piscine de tonnerre, Zhan Konglie possédait clairement un niveau de culture plus élevé. Pourtant, après avoir été ébranlé par la compréhension d'une parcelle de l'origine du tonnerre, il avait voulu devenir son serviteur. Wang Lin sourit en y repensant.
+Wang Lin observa le groupe de cultivateurs puis fixa Zhan Konglie. Il se remémora le passé. Zhan Konglie paraissait plus âgé qu'autrefois. À l'époque, dans la piscine de tonnerre, Zhan Konglie possédait clairement un niveau de cultivation plus élevé. Pourtant, après avoir été ébranlé par la compréhension d'une parcelle de l'origine du tonnerre, il avait voulu devenir son serviteur. Wang Lin sourit en y repensant.
 
 « Pouvoir revoir un vieil ami est une immense bénédiction... » Wang Lin sourit et s'enfonça dans la distance.
 
@@ -94,13 +94,13 @@ Zhan Konglie ne s'arrêta qu'après un long moment. Une expression amère marqua
 
 « Pourquoi ne m'as-tu pas appelé... » Il resta là, immobile, longtemps... Zhan Konglie s'inclina légèrement, puis repartit.
 
-Système stellaire d'Allheaven. Dans ses profondeurs se trouvait un domaine stellaire presque vide. L'endroit était très désolé et les planètes de culture y étaient pauvres en énergie spirituelle. Pourtant, une petite planète de culture émettait une lueur douce.
+Système stellaire d'Allheaven. Dans ses profondeurs se trouvait un domaine stellaire presque vide. L'endroit était très désolé et les planètes de cultivation y étaient pauvres en énergie spirituelle. Pourtant, une petite planète de cultivation émettait une lueur douce.
 
 Les océans couvraient 70 % de cette planète et les terres émergées étaient parsemées. De loin, elle ressemblait à une sphère bleue.
 
 La Planète Qing Ling !
 
-Des cultivateurs résidaient sur cette planète, mais leur niveau de culture n'était guère élevé. On n'y trouvait que trois cultivateurs de la Transformation de l'Âme. En ce moment même, au sommet de la plus haute montagne de Qing Ling, ces derniers se tenaient respectueusement devant un vieil homme.
+Des cultivateurs résidaient sur cette planète, mais leur niveau de cultivation n'était guère élevé. On n'y trouvait que trois cultivateurs de la Transformation de l'Âme. En ce moment même, au sommet de la plus haute montagne de Qing Ling, ces derniers se tenaient respectueusement devant un vieil homme.
 
 Ce dernier portait une robe de lettré. Il ne ressemblait pas à un cultivateur, mais plutôt à un érudit mortel. Il était assis calmement au sommet du pic.
 

@@ -32,7 +32,7 @@ Les yeux de Wang Lin s'embrasèrent d'une intention de combat en voyant le petit
 
 Un vent noir envahit soudainement le ciel. Cette tempête obscure était si dense qu'elle recouvrit entièrement la voûte céleste. À l'intérieur, six dragons rugissaient et chargèrent immédiatement le petit doigt !
 
-À l'instant même où les six dragons noirs apparurent, un septième surgit de la noirceur ! En temps normal, avec le niveau de culture de Wang Lin, six dragons auraient été sa limite, mais grâce à l'étoile faite de lois, il parvint à briser ce plafond pour invoquer le septième dragon !
+À l'instant même où les six dragons noirs apparurent, un septième surgit de la noirceur ! En temps normal, avec le niveau de cultivation de Wang Lin, six dragons auraient été sa limite, mais grâce à l'étoile faite de lois, il parvint à briser ce plafond pour invoquer le septième dragon !
 
 Les sept dragons noirs dégageaient une énergie glaciale capable d'éteindre toute vie en direction du petit doigt. Si le doigt était une montagne imposante, les sept dragons noirs étaient des créatures célestes venues la fracasser. Ils ne céderaient pas avant que la montagne ne s'effondre !
 
@@ -46,7 +46,7 @@ D'un geste de la main gauche, Wang Lin projeta ces gouttes qui jaillirent tels d
 
 Le petit doigt fut particulièrement touché par cette pluie. Le givre le balaya et l'enveloppa de glace ! Mais la glace ne s'arrêta pas là ; elle explosa immédiatement. Ce n'était pas dû à la puissance de la paume, mais au pouvoir de « l'Invocation de la Pluie » !
 
-Avant que le niveau de culture de Wang Lin n'augmente, un tel changement n'aurait pu se produire. Cependant, avec sa progression et la stimulation du domaine de combat, une mutation radicale de l'Invocation de la Pluie s'était opérée !
+Avant que le niveau de cultivation de Wang Lin n'augmente, un tel changement n'aurait pu se produire. Cependant, avec sa progression et la stimulation du domaine de combat, une mutation radicale de l'Invocation de la Pluie s'était opérée !
 
 Après la pluie vint la glace, et après la glace vint l'effondrement. La puissance de la glace entraînait désormais la désintégration de la cible, créant une attaque bien plus dévastatrice qu'un simple gel.
 

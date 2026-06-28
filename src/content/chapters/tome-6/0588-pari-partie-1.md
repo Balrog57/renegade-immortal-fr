@@ -16,7 +16,7 @@ En contemplant l'instrument, ses yeux s'illuminèrent soudainement, et une puiss
 
 Il n'acta pas immédiatement ; il resta immobile en silence pour ajuster l'énergie spirituelle démoniaque de son corps afin de s'assurer d'être au sommet de sa forme. Après tout, il n'avait aucune certitude de pouvoir faire retentir ce tambour, car à ses yeux, celui-ci était une relique sacrée.
 
-L'homme en armure dorée observa Yu Sen et pensa : « Avec la culture de Yu Sen, il devrait pouvoir le faire résonner quatre fois. S'il force un cinquième coup, il sera broyé ! » Il ne jeta qu'un bref regard avant de fermer les yeux.
+L'homme en armure dorée observa Yu Sen et pensa : « Avec la cultivation de Yu Sen, il devrait pouvoir le faire résonner quatre fois. S'il force un cinquième coup, il sera broyé ! » Il ne jeta qu'un bref regard avant de fermer les yeux.
 
 Tous les regards convertaient vers Yu Sen, mais celui-ci leur était totalement indifférent. Pour éviter d'être perturbé par autrui, il ferma les yeux et fit abstraction du monde extérieur.
 
@@ -30,7 +30,7 @@ Des murmures parcoururent les gradins environnants.
 
 Les huit commandants en chef observaient également Yu Sen avec intérêt. Cependant, ils n'avaient nul besoin de discourir comme la foule ; un simple regard leur suffisait pour discerner la situation avec précision.
 
-Bien que les six vice-commandants en chef ne possèdent pas la même clairvoyance que les commandants en chef, leur niveau de culture élevé leur permettait de percevoir certains indices. Seul le Vice-Commandant Xuan ne regardait pas Yu Sen, mais fixait Wang Lin.
+Bien que les six vice-commandants en chef ne possèdent pas la même clairvoyance que les commandants en chef, leur niveau de cultivation élevé leur permettait de percevoir certains indices. Seul le Vice-Commandant Xuan ne regardait pas Yu Sen, mais fixait Wang Lin.
 
 « Wang Lin, je me demande combien de fois tu réussiras à le faire retentir ! »
 
@@ -92,7 +92,7 @@ Cet homme portait une armure et un masque hideux dissimulait son visage. Ses lon
 
 « Cet homme a passé la majeure partie de sa vie à la frontière. On dit que la tête de Mo Fei vaut une fortune aux yeux du Pays des Démons de Feu ! »
 
-« La culture de ce Mo Fei est très mystérieuse. Jusqu'à présent, on ne l'a jamais vu utiliser que le sort du Grand Disque Rotatif. Je suis convaincu qu'il peut faire sonner le tambour au moins cinq fois ! »
+« La cultivation de ce Mo Fei est très mystérieuse. Jusqu'à présent, on ne l'a jamais vu utiliser que le sort du Grand Disque Rotatif. Je suis convaincu qu'il peut faire sonner le tambour au moins cinq fois ! »
 
 « Mo Fei ! » Le Commandant en chef de la Terre regarda l'homme avec un sourire et ajouta : « Si cet enfant parvient à expérimenter une nouvelle fois le lac du dragon, il pourra être considéré comme l'un des trois meilleurs parmi les vice-commandants en chef ! »
 

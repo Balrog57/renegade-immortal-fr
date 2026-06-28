@@ -42,7 +42,7 @@ L'effondrement de la marque du clan équivalait à l'autodestruction d'un cultiv
 
 À cet instant, la marque du Grand Ancien explosa et son pouvoir décupla. Il forgea un nouveau corps de pur tonnerre et balaya les âmes tourmentées. Cependant, ses yeux étaient injectés de sang et égarés par la folie alors qu'il chargeait Wang Lin.
 
-« Meurs ! Meurs ! Meurs !! Vous allez tous crever !! Je sacrifie ma vie entière, toute ma culture ! Ce vieil homme va utiliser le Sort des Trois Souffles !! Vous mourrez tous !!! »
+« Meurs ! Meurs ! Meurs !! Vous allez tous crever !! Je sacrifie ma vie entière, toute ma cultivation ! Ce vieil homme va utiliser le Sort des Trois Souffles !! Vous mourrez tous !!! »
 
 Le Sort des Trois Souffles n'était pas une technique du Clan du Tonnerre Dispersé, mais un héritage laissé par ces mystérieux cultivateurs avant leur départ. On pouvait le considérer comme un sort Dao !
 

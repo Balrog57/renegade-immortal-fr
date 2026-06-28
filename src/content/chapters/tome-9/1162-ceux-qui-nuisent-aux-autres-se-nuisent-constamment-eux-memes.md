@@ -8,9 +8,9 @@ slug: ceux-qui-nuisent-aux-autres-se-nuisent-constamment-eux-memes
 ---
 Le Secte des Cinq Pois de rang 6 était considéré comme une force relativement puissante parmi les sectes de ce niveau ; il était l'égal du Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
 
-Zhou Hai était un disciple central du Secte des Cinq Pois. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent du Secte des Cinq Pois, et la secte lui accordait une importance considérable.
+Zhou Hai était un disciple central du Secte des Cinq Pois. Son niveau de cultivation n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent du Secte des Cinq Pois, et la secte lui accordait une importance considérable.
 
-À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la culture d'une technique de poison propre au Secte des Cinq Pois.
+À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la cultivation d'une technique de poison propre au Secte des Cinq Pois.
 
 « Le compagnon cultivateur Zhou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
 
@@ -32,11 +32,11 @@ Des disciples de chaque secte suivaient leur sillage. Tous se transformèrent en
 
 Les disciples environnants hochèrent rapidement la tête et se dispersèrent pour entamer leurs recherches. Ils avaient l'habitude de procéder ainsi chaque fois qu'ils atteignaient un nouveau continent.
 
-Quant aux trois autres, ils libérèrent toute leur puissance de culture et foncèrent vers le Secte de l'Origine. Leurs trois trajectoires de lumière produisirent un grondement tonitruant.
+Quant aux trois autres, ils libérèrent toute leur puissance de cultivation et foncèrent vers le Secte de l'Origine. Leurs trois trajectoires de lumière produisirent un grondement tonitruant.
 
 Peu de temps après, ils arrivèrent au-dessus du Secte de l'Origine avec cette arrogance manifeste. Les cultivateurs du Secte de l'Origine les remarquèrent naturellement. Lu Yanfei, Li Xiangdong et les deux autres anciens s'élancèrent dans les airs pour les accueillir.
 
-Les quatre avaient entendu la nouvelle selon laquelle les sectes de rang 6 avaient envahi la région de rang 5 à la recherche de quelque chose. Cependant, compte tenu de leur niveau de culture et de leur statut, les anciens ignoraient ce que ces puissantes sectes cherchaient précisément.
+Les quatre avaient entendu la nouvelle selon laquelle les sectes de rang 6 avaient envahi la région de rang 5 à la recherche de quelque chose. Cependant, compte tenu de leur niveau de cultivation et de leur statut, les anciens ignoraient ce que ces puissantes sectes cherchaient précisément.
 
 Li Xiangdong prit une profonde inspiration. En approchant, il joignit les mains et déclara : « Le Secte de l'Origine salue les sectes du domaine supérieur. » Les deux anciens derrière lui firent de même.
 
@@ -68,7 +68,7 @@ Cependant, le petit serpent était affaibli, au bord de la mort. Même l'Âme Na
 
 L'expression de Zhou Hai resta sombre. Après avoir jeté un regard sur l'Âme Naissante, il passa outre. Ses yeux brillèrent de nouveau d'un bleu intense alors qu'il balayait les disciples restants du Secte de l'Origine. Un instant plus tard, il fit un pas et se dirigea droit sur Xu Yun, qui soutenait le disciple !
 
-Le visage de Xu Yun changea. Il serait impossible pour quelqu'un de son niveau de culture de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement : une rafale de vent s'élança vers Zhou Hai.
+Le visage de Xu Yun changea. Il serait impossible pour quelqu'un de son niveau de cultivation de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement : une rafale de vent s'élança vers Zhou Hai.
 
 Zhou Hai ricana et son œil droit brilla d'un bleu éclatant. Sept marques bleues apparurent autour de lui. Il ignora totalement le vent et avança sans la moindre hésitation.
 

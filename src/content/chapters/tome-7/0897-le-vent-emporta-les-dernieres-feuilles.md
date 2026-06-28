@@ -34,17 +34,17 @@ Bien que cette femme de la planète Feng Luan fût une Grande Ancienne, une pers
 
 Wang Lin ne se souciait guère de cela. Ce qu'il trouvait étrange, c'était un ordre secret qu'elle avait reçu du quartier général après son arrivée sur la planète Suzaku !
 
-Aussi intensément que Wang Lin fouillait les souvenirs de la femme, il ne trouvait aucune trace de cet ordre secret. Cela signifiait que l'ordre avait été donné par quelqu'un possédant une culture plus élevée, ce qui l'empêchait d'en découvrir le contenu.
+Aussi intensément que Wang Lin fouillait les souvenirs de la femme, il ne trouvait aucune trace de cet ordre secret. Cela signifiait que l'ordre avait été donné par quelqu'un possédant une cultivation plus élevée, ce qui l'empêchait d'en découvrir le contenu.
 
 Toutefois, Wang Lin parvint à émettre quelques hypothèses grâce à certains indices. D'abord, avec un tel passé, cette femme ne serait jamais devenue la concubine d'un mortel.
 
-Si tel était le cas, pourquoi se trouvait-elle au palais impérial ? Avec sa culture, aucun contrôle direct n'était nécessaire ; elle n'avait même pas besoin d'être présente.
+Si tel était le cas, pourquoi se trouvait-elle au palais impérial ? Avec sa cultivation, aucun contrôle direct n'était nécessaire ; elle n'avait même pas besoin d'être présente.
 
 De plus, cette femme n'était sur la planète Suzaku que depuis moins de cent ans, et elle n'était entrée au palais impérial que depuis dix ans !
 
 Ses souvenirs étaient un vide absolu dès l'instant où elle s'était présentée devant le palais, comme si quelqu'un les lui avait arrachés. Elle ignorait pourquoi elle était là. Cependant, en utilisant ses autres souvenirs, Wang Lin put découvrir ce qu'elle tentait de fuir au sein du palais impérial.
 
-Durant ces dix années, la femme s'était soigneusement dissimulée dans le palais, cachant sa culture.
+Durant ces dix années, la femme s'était soigneusement dissimulée dans le palais, cachant sa cultivation.
 
 « Que s'est-il passé exactement il y a dix ans pour qu'elle cherche refuge dans le palais impérial, l'endroit le plus peuplé... Et pourquoi pensait-elle ne pas y être découverte ? »
 

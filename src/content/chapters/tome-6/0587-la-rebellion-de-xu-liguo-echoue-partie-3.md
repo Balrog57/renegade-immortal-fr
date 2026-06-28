@@ -22,7 +22,7 @@ Wang Lin fixa Xu Liguo et demanda : « Sais-tu pourquoi je ne te laisse pas alle
 
 Xu Liguo hocha précipitamment la tête en disant : « Je sais, je comprends ! » Bien qu'il ait dit cela, il pensa intérieurement : « C'est clair, tu veux juste me séparer de la petite beauté. Je parie qu'il y a 80 % de chances que tu convoites toi-même la petite beauté. Hélas, moi, Xu Liguo, je suis si malchanceux d'avoir ma femme volée à un âge aussi précoce ! »
 
-« Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera ? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit de lame pour leur trésor. Xu Liguo, ne comprends-tu toujours pas ? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
+« Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera ? Une fois découvert avec ta faible cultivation, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit de lame pour leur trésor. Xu Liguo, ne comprends-tu toujours pas ? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
 
 Il fut stupéfait et resta hébété, puis murmura faiblement : « Cela... je ne peux pas me faire trouver... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan des Démons Géants.
 
@@ -54,7 +54,7 @@ Xu Liguo, à l'intérieur de l'épée céleste, regarda la lame noire avec un se
 
 En y pensant, il se sentit très satisfait : « Peu importe la force de ce démon, il ne pourra jamais m'égaler sur ce point. De plus, je suis bien plus flexible que lui ! Et j'ai plus de chance avec les beautés. La grande beauté et la petite beauté sont à moi ; il ne peut rien faire contre ça. »
 
-« À part le fait que son niveau de culture est un peu plus élevé que le mien, je suis meilleur que lui en tout le reste. Hélas, un démon aussi exceptionnel que moi est rare en ce monde. Quelle solitude... » Xu Liguo se sentait si bien qu'il en éprouvait un sentiment de supériorité. Il regarda maintenant Wang Lin depuis l'épée céleste avec une pointe de sympathie et de fierté.
+« À part le fait que son niveau de cultivation est un peu plus élevé que le mien, je suis meilleur que lui en tout le reste. Hélas, un démon aussi exceptionnel que moi est rare en ce monde. Quelle solitude... » Xu Liguo se sentait si bien qu'il en éprouvait un sentiment de supériorité. Il regarda maintenant Wang Lin depuis l'épée céleste avec une pointe de sympathie et de fierté.
 
 Wang Lin frappa son sac de stockage et Xu Liguo s'y engouffra rapidement, suivi par la lame en forme de demi-lune. Au moment où il entra dans le sac, Xu Liguo s'arrêta soudainement. Il regarda la cité impériale au loin et pensa : « Petite beauté, ton frère Xu est de retour. Je ne partirai pas. Si je ne peux pas t'emmener avec moi, je ne quitterai jamais cette Cité du Démon Céleste ! »
 
@@ -92,7 +92,7 @@ Une véritable rébellion consiste à ne pas fuir le monde, à ne pas fuir le de
 
 « Un cultivateur qui n'a pas son propre Dao n'est plus un cultivateur... » Wang Lin ne vola pas, il marcha sur la route. Son ombre, étirée par la lune, était très longue.
 
-« Culture... Se rebeller contre le ciel... Posséder son propre Dao... » Wang Lin avançait lentement sur ce chemin qui semblait sans fin.
+« Cultivation... Se rebeller contre le ciel... Posséder son propre Dao... » Wang Lin avançait lentement sur ce chemin qui semblait sans fin.
 
 Après un temps indéterminé, le Manoir Mo apparut devant lui. La lumière de la lanterne à l'extérieur du manoir était très douce ; elle ressemblait à un phare dans les ténèbres. Wang Lin s'arrêta et la contempla en silence.
 

@@ -18,7 +18,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrest
 
 Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent : la Secte Terrestre de Meng, une secte d'égale envergure à la Secte Terrestre.
 
-Grâce au niveau de culture d'Empyrean Exalt de Wang Lin et à la puissance du dragon de mer d'Exalt Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
+Grâce au niveau de cultivation d'Empyrean Exalt de Wang Lin et à la puissance du dragon de mer d'Exalt Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
 Wang Lin déploya également son Sens Divin sur tout le Continent Terrestre de Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
@@ -28,7 +28,7 @@ Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Li
 
 L'ensemble du Continent Oriental ne comptait que quelques Empyrean Exalts. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
 
-Cependant, sa culture s'était arrêtée au stade d'Empyrean Exalt. Il avait autrefois suivi le Grand Empyrean Gemini ; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
+Cependant, sa cultivation s'était arrêtée au stade d'Empyrean Exalt. Il avait autrefois suivi le Grand Empyrean Gemini ; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 
 La Secte Céleste était l'organisation la plus puissante du Continent Céleste. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure : loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
 
@@ -38,7 +38,7 @@ Si ce continent portait le nom de Continent Céleste, c'était parce que les nua
 
 Par conséquent, tout le Continent Céleste ressemblait à un monde merveilleux perpétuellement enveloppé de brume. Le continent était parsemé d'innombrables montagnes, dont le plus haut sommet se nommait le Pic Céleste. De loin, on ne pouvait en percevoir la totalité, car les nuages en masquaient une partie, lui conférant un aspect extraordinaire.
 
-Ce jour-là, l'apparition du dragon de mer provoqua des ondulations dans l'air. La créature flottait dans le ciel, fixant la montagne en contrebas. Sa culture d'Exalt Doré se déploya entièrement, enveloppant toute la zone.
+Ce jour-là, l'apparition du dragon de mer provoqua des ondulations dans l'air. La créature flottait dans le ciel, fixant la montagne en contrebas. Sa cultivation d'Exalt Doré se déploya entièrement, enveloppant toute la zone.
 
 Vêtu de blanc immaculé, Wang Lin se tenait sur la tête du dragon, paraissant éthéré parmi les nuages. Il s'avança à travers l'immensité blanche vers le sommet de la montagne.
 
@@ -76,7 +76,7 @@ Des grondements tonitruants secouèrent le monde environnant. La tempête de nei
 
 Quelques heures plus tard, la silhouette de Wang Lin émergea de la neige infinie pour se stabiliser à des dizaines de milliers de kilomètres de là.
 
-« La culture de ce camarade est extraordinaire. Cette bataille m'a beaucoup apporté, je vous en remercie ! »
+« La cultivation de ce camarade est extraordinaire. Cette bataille m'a beaucoup apporté, je vous en remercie ! »
 
 Au même moment, le vieil homme aux cheveux blancs avait également reculé de plusieurs dizaines de milliers de pieds avant de se stabiliser.
 
@@ -90,7 +90,7 @@ Séparés par des dizaines de milliers de pieds, les deux hommes joignirent les 
 
 Les deux lancèrent une offensive rapide depuis deux directions opposées. Les fracas furent tels que le cœur du dragon de mer en trembla ; la créature recula, observant ces deux figures terrifiantes avant de s'éloigner encore davantage.
 
-La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois ! À chaque escarmouche, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Empyrean Exalts ne comportait aucune haine ; c'était une source d'enseignement précieuse pour chacun.
+La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois ! À chaque escarmouche, ils se séparaient pour restaurer leur cultivation et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Empyrean Exalts ne comportait aucune haine ; c'était une source d'enseignement précieuse pour chacun.
 
 « Camarade Wang, je vois que tu te retiens encore un peu. Nos forces de combat sont comparables, alors pourquoi ne pas tout donner ? » À l'issue du vingt-troisième affrontement, le vieil homme rit à distance.
 
@@ -108,6 +108,6 @@ Les grondements tonitruants persistèrent durant trois jours. Enfin, Wang Lin so
 
 Tandis que la neige tombait, le vieil homme sortit et regarda dans la direction de Wang Lin avec un visage grave.
 
-« Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyrean. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
+« Il n'a pas utilisé toute sa force... Avec une telle cultivation, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyrean. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
 
 « Un nouvel Empyrean Exalt est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyrean. » Ces dix jours de combat lui avaient également apporté de profondes révélations.

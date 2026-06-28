@@ -24,7 +24,7 @@ Au plus profond de l'Ancien Royaume Céleste, au centre de ces statues monumenta
 
 Les environs étaient plongés dans un silence absolu, comme si tel était l'état des lieux depuis l'aube des temps. À cet instant, une voix rauque résonna depuis l'une des statues.
 
-« Vermillion Bird, la culture de ton descendant n'est pas faible, mais il fait preuve d'une arrogance déplacée en voulant fouiller la mémoire d'un Soldat Céleste. Bien qu'ils ne soient pas aussi puissants que nous, ils possèdent toujours le lignage céleste. Comment une simple fourmi pourrait-elle espérer sonder leurs souvenirs ? » Une voix empreinte de moquerie résonna.
+« Vermillion Bird, la cultivation de ton descendant n'est pas faible, mais il fait preuve d'une arrogance déplacée en voulant fouiller la mémoire d'un Soldat Céleste. Bien qu'ils ne soient pas aussi puissants que nous, ils possèdent toujours le lignage céleste. Comment une simple fourmi pourrait-elle espérer sonder leurs souvenirs ? » Une voix empreinte de moquerie résonna.
 
 « Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même brisé le neuvième soleil et repris possession de son propre destin. Cet exploit est incroyable, et il l'a accompli. White Tiger, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose... ? » Une voix froide et antique émana d'une autre statue.
 
@@ -52,7 +52,7 @@ Il se tenait là, observant le brouillard tourbillonnant devant lui. Cette brume
 
 « La femme en argent possède un tel sceau, et ce vieil homme aussi. Intéressant... il semble que chaque être céleste sous les ordres du Seigneur Souverain porte ce sceau. »
 
-Les yeux de Wang Lin s'illuminèrent d'un éclat vif. Autrefois, sa culture était insuffisante et il avait dû renoncer face à ce brouillard. Au-delà de son niveau de culture, une autre raison l'avait retenu : peu importait qu'il réussisse ou non à percer la brume, cela aurait causé un préjudice immense à la femme en argent.
+Les yeux de Wang Lin s'illuminèrent d'un éclat vif. Autrefois, sa cultivation était insuffisante et il avait dû renoncer face à ce brouillard. Au-delà de son niveau de cultivation, une autre raison l'avait retenu : peu importait qu'il réussisse ou non à percer la brume, cela aurait causé un préjudice immense à la femme en argent.
 
 Cependant, Wang Lin n'éprouvait aucune trace de culpabilité envers le vieil homme. Il n'y avait aucune haine entre eux, et les péchés du vieil homme ne justifiaient pas la mort. Si Wang Lin n'avait pas découvert que les Royaumes Intérieur et Extérieur n'étaient qu'une vaste grotte, il ne l'aurait pas tué !
 

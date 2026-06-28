@@ -8,29 +8,29 @@ slug: le-secret-du-cristal-de-la-planete-de-culture
 ---
 Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
-« Le Cristal de la Planète de Culture... c'est une belle foutaise ! C'est un objet créé par l'Alliance de Culture, et ils en offrent un à chaque pays de culture qui atteint le rang 6.
+« Le Cristal de la Planète de Cultivation... c'est une belle foutaise ! C'est un objet créé par l'Alliance de Cultivation, et ils en offrent un à chaque pays de cultivation qui atteint le rang 6.
 
-« En l'implantant au cœur de la planète de culture et en l'activant, toute la planète se retrouve entourée d'un pouvoir mystérieux. Dès son activation, toute créature vivante née sur cette planète naît avec une parcelle d'âme manquante.
+« En l'implantant au cœur de la planète de cultivation et en l'activant, toute la planète se retrouve entourée d'un pouvoir mystérieux. Dès son activation, toute créature vivante née sur cette planète naît avec une parcelle d'âme manquante.
 
-« Cette parcelle est absorbée par le Cristal de la Planète de Culture, et l'Alliance de Culture accorde au pays un contrôle absolu sur le cristal. Héhé, un pays de culture de rang 6 devient ainsi comme un roi grâce à l'existence du Cristal de la Planète de Culture !
+« Cette parcelle est absorbée par le Cristal de la Planète de Cultivation, et l'Alliance de Cultivation accorde au pays un contrôle absolu sur le cristal. Héhé, un pays de cultivation de rang 6 devient ainsi comme un roi grâce à l'existence du Cristal de la Planète de Cultivation !
 
 « Grâce à cet objet, n'importe quelle génération de Suzaku peut tuer n'importe quel être vivant sur la planète, à moins que cette personne ou cette créature n'ait dépassé le stade Ascendant et ne récupère de force sa parcelle d'âme. Sinon, il n'y a aucun autre moyen.
 
-« Cependant, je suppose que le Cristal de la Planète de Culture n'est pas un secret sur beaucoup d'autres planètes ; les gens ont dû trouver des moyens de le contrer, sans quoi il y aurait bien plus de pays de rang 6 renversés par leurs propres habitants.
+« Cependant, je suppose que le Cristal de la Planète de Cultivation n'est pas un secret sur beaucoup d'autres planètes ; les gens ont dû trouver des moyens de le contrer, sans quoi il y aurait bien plus de pays de rang 6 renversés par leurs propres habitants.
 
-« Mais de manière générale, ce Cristal de la Planète de Culture confère aux pays de culture de rang 6 un contrôle ultime sur leur planète.
+« Mais de manière générale, ce Cristal de la Planète de Cultivation confère aux pays de cultivation de rang 6 un contrôle ultime sur leur planète.
 
-« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Culture. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos ; sinon, elle serait aussi solide qu'un tambour de fer.
+« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Cultivation. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos ; sinon, elle serait aussi solide qu'un tambour de fer.
 
 « Haha, tous les Suzakus qui m'ont succédé ont dû me haïr pour cela, mais je ne supportais tout simplement pas ce fichu cristal ! »
 
 Même avec la force mentale de Wang Lin, l'entendre lui infligea un choc : son expression devint sombre et son cœur trembla.
 
-Wang Lin demanda d'un ton grave : « Ainsi, si Zhuque Zi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer ? »
+Wang Lin demanda d'un ton grave : « Ainsi, si Zhuque Zi prend le contrôle du Cristal de la Planète de Cultivation, il lui suffira d'une seule pensée pour me tuer ? »
 
-Situ Nan répondit : « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en possède possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal ; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
+Situ Nan répondit : « Il existe un objet appelé le Cœur de la Planète de Cultivation qui est lié au Cristal de la Planète de Cultivation. Seul l'actuel Suzaku en possède possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal ; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Cultivation. »
 
-« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Domaine Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
+« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Cultivation à aider le Domaine Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
 
 « C'est une question délicate car je n'ai pas le Domaine Ji sous la main pour l'étudier. Bien, nous en reparlerons quand j'aurai récupéré mes forces. Wang Lin, ne t'inquiète pas trop ; je suis toujours là. » Situ Nan se tut et commença son processus de possession.
 
@@ -38,15 +38,15 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Comment ma vie pourrait-elle être entre les mains d'un autre ?! »
 
-« Pas étonnant que tant de pays de culture aient trahi Suzaku dès l'apparition du Clan des Immortels Déchus. Pas étonnant que Zhuque Zi ait voulu anéantir les pays de culture de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
+« Pas étonnant que tant de pays de cultivation aient trahi Suzaku dès l'apparition du Clan des Immortels Déchus. Pas étonnant que Zhuque Zi ait voulu anéantir les pays de cultivation de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
 
-« Si Zhuque Zi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Déchus risquerait d'être anéanti. »
+« Si Zhuque Zi pouvait encore contrôler le Cristal de la Planète de Cultivation, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Déchus risquerait d'être anéanti. »
 
 « S'il en avait eu le contrôle, Zhuque Zi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
-« Le Cristal de la Planète de Culture ! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre du Nord Ardente.
+« Le Cristal de la Planète de Cultivation ! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre du Nord Ardente.
 
-« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient [1]. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
+« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Cultivation et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient [1]. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la cultivation.
 
 « Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli ; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
 
@@ -56,7 +56,7 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Dans le clan des Dieux Anciens, passer de trois à quatre étoiles est un rite de passage. Une fois que le corps originel aura réalisé cette percée, selon les souvenirs que j'ai hérités, il égalera la puissance d'un cultivateur Ascendant. »
 
-« Le cas de Tuo Sen dans la terre des Dieux Anciens est aussi un problème majeur. S'il quitte ce territoire, sa première action sera de me traquer. Avec ma culture actuelle, même avec mon corps originel, je ne suis pas de taille face à lui. Même si Situ Nan intervenait, le résultat serait le même. »
+« Le cas de Tuo Sen dans la terre des Dieux Anciens est aussi un problème majeur. S'il quitte ce territoire, sa première action sera de me traquer. Avec ma cultivation actuelle, même avec mon corps originel, je ne suis pas de taille face à lui. Même si Situ Nan intervenait, le résultat serait le même. »
 
 « Après tout, Tuo Sen a hérité de la force de Tu Si ; à son apogée, Tu Si était un Dieu Ancien à huit étoiles capable de détruire une planète d'un revers de la main. » Wang Lin fronça les sourcils. Tuo Sen avait toujours été une épine dans son cœur. L'une des raisons pour lesquelles il voulait quitter précipitamment la planète Suzaku était justement lui.
 
@@ -66,11 +66,11 @@ En chemin, le ciel était presque entièrement occulté par des nuages noirs. Ce
 
 Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhuque Zi, il restait un cultivateur ; en chemin, il abattit d'innombrables membres du Clan des Immortels Déchus. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
 
-Presque tous les pays de culture de rang 3 avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Déchus.
+Presque tous les pays de cultivation de rang 3 avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Déchus.
 
 Tous les membres du clan s'étaient rassemblés sur le continent Suzaku lorsque la seconde bataille avec le pays de Suzaku éclata !
 
-Durant leur progression vers le continent, le Clan des Immortels Déchus avait attaqué tous ceux qui croisaient sa route. Un grand nombre de pays de culture de rang 4 avaient péri dans leur sillage.
+Durant leur progression vers le continent, le Clan des Immortels Déchus avait attaqué tous ceux qui croisaient sa route. Un grand nombre de pays de cultivation de rang 4 avaient péri dans leur sillage.
 
 La planète entière était baignée de sang.
 
@@ -82,7 +82,7 @@ Le pays de Suzaku entama immédiatement une contre-attaque acharnée dès le dé
 
 De vastes contingents de cultivateurs furent déployés en divers points pour combattre le Clan des Immortels Déchus.
 
-Chaque pays de culture de rang 5 devint un champ de bataille. La planète entière tremblait, sur le point de s'effondrer sous le poids de cette guerre.
+Chaque pays de cultivation de rang 5 devint un champ de bataille. La planète entière tremblait, sur le point de s'effondrer sous le poids de cette guerre.
 
 Cependant, le pays de Suzaku n'était pas assez puissant pour résister et subissait des reculs constants.
 
@@ -90,11 +90,11 @@ Presque chaque jour, une multitude de cultivateurs mouraient au combat.
 
 Simultanément, une suite de nouvelles fracassantes se propageait parmi les survivants qui parvenaient à s'échapper.
 
-Toutes les sectes du pays de culture de rang 5 d'Eau encre avaient changé de camp !
+Toutes les sectes du pays de cultivation de rang 5 d'Eau encre avaient changé de camp !
 
-Le pays de culture de rang 5 de la Pivoine avait changé de camp !
+Le pays de cultivation de rang 5 de la Pivoine avait changé de camp !
 
-Le pays de culture de rang 5 de Qin avait changé de camp !
+Le pays de cultivation de rang 5 de Qin avait changé de camp !
 
 La trahison de ces trois pays de rang 5 fut comme trois coups de poing au plexus du pays de Suzaku, déjà en pleine retraite.
 
@@ -120,7 +120,7 @@ Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Se
 
 Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte de Jade Céleste, ayant décidé qu'il n'aiderait pas Zhuque Zi tant que ses blessures ne seraient pas guéries.
 
-« Si cela devait arriver, je quitterais simplement cette planète. Avec mon niveau de culture, je serais une puissance sur n'importe quel monde. »
+« Si cela devait arriver, je quitterais simplement cette planète. Avec mon niveau de cultivation, je serais une puissance sur n'importe quel monde. »
 
 Voyant la Secte de Jade Céleste approcher, Chu Yunfei s'arrêta brusquement et scruta l'horizon.
 

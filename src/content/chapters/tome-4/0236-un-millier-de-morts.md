@@ -18,7 +18,7 @@ Il faut préciser que Teng Huayuan était un Ancien de la Vallée de Wu Feng. De
 
 À ce jour, la famille Teng comptait un total de 93 membres au sein de la vallée, dont la majorité occupait des postes élevés. Trois d'entre eux avaient déjà atteint des rangs prestigieux. Le plus éminent était un membre de la cinquième génération, Teng Gao, qui était déjà devenu un candidat pour le titre de chef de secte.
 
-Les deux autres cultivateurs de l'Âme Naissante étaient totalement impuissants face aux manœuvres de Teng Huayuan. Ils ne pouvaient que feindre l'indifférence tout en restant perpétuellement en culture fermée, tentant désespérément de passer du stade initial au stade médian de l'Âme Naissante pour prolonger leur espérance de vie.
+Les deux autres cultivateurs de l'Âme Naissante étaient totalement impuissants face aux manœuvres de Teng Huayuan. Ils ne pouvaient que feindre l'indifférence tout en restant perpétuellement en cultivation fermée, tentant désespérément de passer du stade initial au stade médian de l'Âme Naissante pour prolonger leur espérance de vie.
 
 De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des herbes spirituelles et des pilules. Par conséquent, ils avaient encore plus de raisons de fermer les yeux ; après tout, ils ne pouvaient espérer l'emporter contre Teng Huayuan.
 
@@ -46,7 +46,7 @@ D'immenses vagues d'énergie spirituelle s'écoulèrent des montagnes pour alime
 
 Wang Lin laissa échapper un ricanement méprisant. Ces cinq individus étaient tous membres de la famille Teng. Ils étaient manifestement préparés. Ils avaient dû être avertis par ce vieil homme de la famille Teng de l'ancienne secte, d'où ces précautions.
 
-C'était inévitable, et Wang Lin n'avait nullement l'intention de rester discret. Avec le niveau de culture de ce vieillard, Wang Lin aurait pu l'éliminer facilement avant qu'il ne puisse envoyer son avertissement.
+C'était inévitable, et Wang Lin n'avait nullement l'intention de rester discret. Avec le niveau de cultivation de ce vieillard, Wang Lin aurait pu l'éliminer facilement avant qu'il ne puisse envoyer son avertissement.
 
 C'était précisément ce que Wang Lin désirait. Il voulait que tout le pays de Zhao sache qu'il allait anéantir la famille Teng. Sa vengeance n'était pas un acte qui devait rester secret ; au contraire, il allait embraser tout le pays, car désormais, il en avait le pouvoir.
 
@@ -78,7 +78,7 @@ Ces corps et ces têtes se déployaient comme un éventail tandis que Wang Lin s
 
 Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait : « La famille Teng est finie ! »
 
-L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Punnan Zi, en intervenant, serait capable de l'arrêter ? Même s'il échoue, cela ne nous affectera pas. »
+L'autre hocha la tête en riant. « C'est vrai. Le niveau de cultivation de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de cultivation de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Punnan Zi, en intervenant, serait capable de l'arrêter ? Même s'il échoue, cela ne nous affectera pas. »
 
 « Jeune frère apprenti, j'ai l'impression que ce visage m'est très familier, mais malgré mes efforts, je n'arrive pas à me souvenir où je l'ai déjà vu. »
 
@@ -164,13 +164,13 @@ Une pointe d'anxiété, qu'il n'avait pas ressentie depuis longtemps, envahit le
 
 Il y avait un second objectif à cet écran : tous ces meurtres allaient pousser les survivants à fuir vers la Ville de la Famille Teng. Une fois tout le monde rassemblé, Wang Lin lancerait son assaut.
 
-Teng Huayuan ne croyait pas que Wang Lin ait eu la capacité de poser lui-même une telle restriction. Même s'il n'était pas mort autrefois, au pire, sa culture n'aurait atteint que le stade avancé de la Formation du Noyau ou le début de l'Âme Naissante.
+Teng Huayuan ne croyait pas que Wang Lin ait eu la capacité de poser lui-même une telle restriction. Même s'il n'était pas mort autrefois, au pire, sa cultivation n'aurait atteint que le stade avancé de la Formation du Noyau ou le début de l'Âme Naissante.
 
-Face à la culture de Teng Huayuan, au stade avancé de l'Âme Naissante, Wang Lin ne lui semblait pas une menace de premier plan. Ce qu'il craignait, c'était la personne qui avait mis en place cette barrière. Il supposait que le niveau de culture de cet individu pouvait atteindre celui du Déchirement de l'Esprit.
+Face à la cultivation de Teng Huayuan, au stade avancé de l'Âme Naissante, Wang Lin ne lui semblait pas une menace de premier plan. Ce qu'il craignait, c'était la personne qui avait mis en place cette barrière. Il supposait que le niveau de cultivation de cet individu pouvait atteindre celui du Déchirement de l'Esprit.
 
 C'était là sa véritable préoccupation. Après réflexion, il se demanda quel genre de lien ce senior entretenait avec Wang Lin. Si leur relation n'était pas trop étroite, alors la famille pourrait y survivre. Teng Huayuan ne concevait même pas que cette restriction ait pu être l'œuvre de Wang Lin lui-même.
 
-Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en culture fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
+Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en cultivation fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
 
 Pour Wang Lin, ces quatre jours de carnage et ce millier de morts n'étaient que le début. Comparé aux dizaines de milliers de membres de la famille Teng, ce n'était qu'une goutte d'eau.
 

@@ -30,7 +30,7 @@ Dans la conscience nouvellement née de Wang Lin, il murmura, comme s'il transme
 
 Le fruit perdit sa beauté tandis que le liquide était dévoré par Wang Lin. Des rides apparurent à sa surface.
 
-Sous cette absorption frénétique, Wang Lin sembla sombrer dans d'innombrables réincarnations. Soudain, il devint un vieil homme debout parmi les étoiles, contrôlant le feu du monde d'un simple geste de la main. Puis, il se mua en un homme d'âge moyen qui, d'un revers de main, transforma une planète de culture en un océan de flammes. Il devint également un jeune homme émergeant d'un monde embrasé ; à chacun de ses pas, les flammes étaient absorbées...
+Sous cette absorption frénétique, Wang Lin sembla sombrer dans d'innombrables réincarnations. Soudain, il devint un vieil homme debout parmi les étoiles, contrôlant le feu du monde d'un simple geste de la main. Puis, il se mua en un homme d'âge moyen qui, d'un revers de main, transforma une planète de cultivation en un océan de flammes. Il devint également un jeune homme émergeant d'un monde embrasé ; à chacun de ses pas, les flammes étaient absorbées...
 
 Des réincarnations similaires se succédèrent dans l'esprit de Wang Lin. Chacune représentait l'illumination du feu par un être. Ce cycle continua, et ces compréhensions du Dao du feu fusionnèrent avec la conscience de Wang Lin, s'inscrivant profondément en lui pour ne faire qu'un avec lui !
 
@@ -68,15 +68,15 @@ Cette douleur intense semblait capable de déchirer son esprit. Son domaine se p
 
 Tous ces éléments fusionnèrent pour devenir sa propre compréhension, créant un nouveau type de loi qui n'avait jamais existé auparavant !
 
-À l'instant où cette loi apparut, la culture de Wang Lin trembla comme si d'innombrables éclairs avaient explosé en lui. Il franchit le stade intermédiaire du Nettoyeur de Nirvana pour atteindre le stade avancé !
+À l'instant où cette loi apparut, la cultivation de Wang Lin trembla comme si d'innombrables éclairs avaient explosé en lui. Il franchit le stade intermédiaire du Nettoyeur de Nirvana pour atteindre le stade avancé !
 
 Cette loi englobait le vrai et le faux, le tonnerre, le feu et la bataille, devenant ainsi son propre Dao unique ! Elle contenait le tonnerre, le feu, la bataille, la vie et la mort, le karma, ainsi que le vrai et le faux !
 
 Ce n'est qu'en fusionnant toutes ces innombrables intentions du Dao avec son domaine du vrai et du faux que Wang Lin avait pu progresser du stade intermédiaire au stade avancé du Nettoyeur de Nirvana en si peu de temps !
 
-Cependant, ce n'était pas fini ! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Nettoyeur de Nirvana ! Il semblait que même le sommet du Nettoyeur de Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao !
+Cependant, ce n'était pas fini ! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de cultivation commença à tendre vers le sommet du stade Nettoyeur de Nirvana ! Il semblait que même le sommet du Nettoyeur de Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao !
 
-Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Nettoyeur de Nirvana et, par extension, du Briseur de Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent des dizaines de milliers d'années de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
+Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Nettoyeur de Nirvana et, par extension, du Briseur de Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent des dizaines de milliers d'années de cultivation pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
 
 Sans cette opportunité sans pareille, même avec d'innombrables pilules, il lui aurait fallu une éternité pour passer du Nettoyeur au Briseur de Nirvana !
 

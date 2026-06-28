@@ -72,11 +72,11 @@ Le temps s'écoula rapidement et, sans qu'il ne s'en aperçoive, le soleil se co
 
 Dans cet état, il était en paix totale, libéré de toute inquiétude. Les seules choses qui occupaient son esprit étaient le lever et le coucher du soleil. Quelque chose résonnait sans cesse devant lui, mais Wang Lin ne pouvait l'atteindre. Il ignorait dans quel état il se trouvait ou ce qu'il cherchait.
 
-Cependant, après plus de mille ans de culture, son Sens Divin était extrêmement puissant. Il avait le sentiment diffus que cet état actuel représentait une opportunité très rare. S'il parvenait à le saisir et à le comprendre, cela lui apporterait des bénéfices immenses.
+Cependant, après plus de mille ans de cultivation, son Sens Divin était extrêmement puissant. Il avait le sentiment diffus que cet état actuel représentait une opportunité très rare. S'il parvenait à le saisir et à le comprendre, cela lui apporterait des bénéfices immenses.
 
 Wang Lin ignorait qu'il se trouvait actuellement aux frontières de l'un des trois grands royaumes de l'Antiquité : le Royaume Shi !
 
-Le Royaume Shi n'était pas aussi puissant que le Royaume Ji, ni aussi mystérieux que le Royaume Dao, mais depuis ses origines, il occupait la première place dans le monde de la culture ! Personne ne savait d'où venait le Royaume Shi ni comment y pénétrer. Tout au long de l'histoire, même à l'époque ancienne, le nombre de personnes ayant réussi à y entrer était dérisoire. Bien que ce ne fût pas aussi rare que pour le Royaume Ji, cela restait exceptionnel.
+Le Royaume Shi n'était pas aussi puissant que le Royaume Ji, ni aussi mystérieux que le Royaume Dao, mais depuis ses origines, il occupait la première place dans le monde de la cultivation ! Personne ne savait d'où venait le Royaume Shi ni comment y pénétrer. Tout au long de l'histoire, même à l'époque ancienne, le nombre de personnes ayant réussi à y entrer était dérisoire. Bien que ce ne fût pas aussi rare que pour le Royaume Ji, cela restait exceptionnel.
 
 Le plus étrange était que même ceux qui pénétraient dans le Royaume Shi ignoraient comment ils y étaient arrivés. De plus, ils n'y restaient qu'une très courte période avant que le royaume ne disparaisse.
 

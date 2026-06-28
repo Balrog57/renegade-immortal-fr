@@ -16,7 +16,7 @@ Grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un frère cadet d
 
 « Tu es mon frère cadet, je ne laisserai personne te faire du mal ! » Cette simple phrase suffisait à réchauffer le cœur de Wang Lin pendant des millénaires.
 
-À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision : tant qu'il y aurait une chance, il se rendrait à l'Alliance de Culture pour secourir son frère aîné !
+À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision : tant qu'il y aurait une chance, il se rendrait à l'Alliance de Cultivation pour secourir son frère aîné !
 
 Bai Fan était un étranger pour Wang Lin et celui-ci ne le reconnaissait pas comme son maître. Cependant, dans son cœur, Wang Lin considérait Qing Shui comme son frère aîné... son frère pour la vie !
 
@@ -38,7 +38,7 @@ Il avait tué sa propre femme de ses mains, et le sang de celle qui l'aimait tan
 
 Dès lors, le bonheur n'exista plus jamais dans sa vie...
 
-Le rugissement provenant de la planète de culture fit trembler Wang Lin. Le calme habituel de son regard vola en éclats ; il ne pouvait plus rester impassible. Une lueur d'excitation brilla dans ses yeux. Qing Shui n'était pas mort !
+Le rugissement provenant de la planète de cultivation fit trembler Wang Lin. Le calme habituel de son regard vola en éclats ; il ne pouvait plus rester impassible. Une lueur d'excitation brilla dans ses yeux. Qing Shui n'était pas mort !
 
 Bien que ce cri fût empreint de folie et de massacre, Wang Lin se mit à rire. Son rire était débordant de joie car il savait que Qing Shui vivait encore ! Tant que Qing Shui n'était pas mort, Wang Lin avait la certitude qu'il pourrait l'aider à recouvrer la raison !
 
@@ -54,7 +54,7 @@ La silhouette de Wang Lin dégagea une lumière dorée monstrueuse et, d'un seul
 
 Ayant appris que Qing Shui était encore en vie, Wang Lin n'avait plus de patience. Il cessa de réprimer la force de rejet dans son corps. Lorsque le bras arriva à sa hauteur, la lumière dorée de son être disparut et sept étoiles d'or apparurent entre ses sourcils. La main droite de Wang Lin se crispa en un poing et il frappa violemment l'astre approchant.
 
-Des grondements tonitruants éclatèrent, puis le bras droit massif de la planète de culture s'effondra, projetant d'innombrables fragments dans toutes les directions.
+Des grondements tonitruants éclatèrent, puis le bras droit massif de la planète de cultivation s'effondra, projetant d'innombrables fragments dans toutes les directions.
 
 Wang Lin marqua une pause pour reprendre son souffle. À cet instant, le bras gauche de la planète fondit sur lui.
 
@@ -80,7 +80,7 @@ L'œuvre se déploya, devenant de plus en plus nette, révélant des montagnes e
 
 Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Greed possédait un paravent qui en contenait une copie. Mais aujourd'hui, Wang Lin contemplait l'œuvre authentique, un trésor du Royaume Céleste de la Pluie !
 
-« À l'époque, l'Alliance de Culture fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai ! » Wang Lin ressentit une pression écrasante en observant la peinture !
+« À l'époque, l'Alliance de Cultivation fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai ! » Wang Lin ressentit une pression écrasante en observant la peinture !
 
 Il percevait même des Flammes Joss à l'intérieur. Il semblait que des disciples des Flammes Joss y résidaient ! La Peinture de Montagnes et de Rivières constituait son propre royaume, dont l'origine demeurait inconnue pour beaucoup.
 

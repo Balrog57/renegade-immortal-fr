@@ -12,7 +12,7 @@ Chapitre 1494 - Ling Dong apparaît !
 
 « J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur le Dieu de Sang au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement le Dieu de Sang !
 
-Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et sa pleine puissance de culture éclata. Il se tenait là comme s'il trônait au-dessus des étoiles !
+Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et sa pleine puissance de cultivation éclata. Il se tenait là comme s'il trônait au-dessus des étoiles !
 
 Cet élan était semblable à une tempête et secoua le domaine stellaire grâce à son essence du vent. À cet instant, neuf dragons de vent de cent mille pieds apparurent et rugirent !
 
@@ -46,7 +46,7 @@ On percevait même des traces de Flammes Joss au sein du Royaume Céleste, lesqu
 
 Les Flammes Joss dont il avait besoin pour atteindre ce stade provenaient de ce royaume fantôme !
 
-« Le Royaume Céleste du Vent est la racine de ma culture et la source de mes Flammes Joss. Bien que ton corps soit puissant, tu n'as pas encore atteint la troisième étape. Sans les Flammes Joss, je veux voir comment tu comptes me combattre ! »
+« Le Royaume Céleste du Vent est la racine de ma cultivation et la source de mes Flammes Joss. Bien que ton corps soit puissant, tu n'as pas encore atteint la troisième étape. Sans les Flammes Joss, je veux voir comment tu comptes me combattre ! »
 
 « Laisse-moi maintenant te dire pourquoi les cultivateurs de la troisième étape sont les plus puissants de ce monde. C'est grâce aux Flammes Joss, et seuls les cultivateurs de la troisième étape peuvent les utiliser ! » Le Maître Lu Fu était résolu à combattre. À cet instant, le royaume fantôme lui insufflait une confiance infinie. Il dégageait cette pression écrasante que seul un cultivateur de la troisième étape pouvait posséder !
 
@@ -56,7 +56,7 @@ Les yeux de Wang Lin restaient aussi calmes qu'une eau dormante alors qu'il obse
 
 Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Ses yeux s'illuminèrent ; il ne parvenait pas à comprendre comment Wang Lin pouvait rester aussi serein !
 
-« Peu importe sa force, il est impossible qu'il ait supprimé sa culture pour que je ne puisse pas le percer à jour. Ce calme est étrange !! Je veux voir jusqu'où il peut rester ainsi ! »
+« Peu importe sa force, il est impossible qu'il ait supprimé sa cultivation pour que je ne puisse pas le percer à jour. Ce calme est étrange !! Je veux voir jusqu'où il peut rester ainsi ! »
 
 Tout cela se produisit en un instant. L'épée brisée chargea tandis que le royaume fantôme libérait une énergie spirituelle céleste monstrueuse. Des volutes de Flammes Joss enveloppèrent son corps.
 
@@ -106,7 +106,7 @@ Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui �
 
 « Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape ?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Si un tel être existait, il n'y avait même plus besoin de parler des autres.
 
-Le Maître Flamespark fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave !
+Le Maître Flamespark fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de cultivation ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave !
 
 Esclave Antique, Esclave Antique !
 

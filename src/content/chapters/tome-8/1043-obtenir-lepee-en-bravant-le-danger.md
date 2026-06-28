@@ -30,7 +30,7 @@ Une fois sa décision prise, Wang Lin leva les yeux vers le puits. De là, il po
 
 Après avoir calculé la distance, il descendit et marqua une pause pour réfléchir. Soudain, il redressa la tête et fixa l'épée de fer enfouie profondément dans la glace.
 
-Il serra les dents, ses mains tracèrent un sceau et des flammes jaillirent de ses yeux. À cet instant, sa culture au sommet du stade Nirvana Scryer explosa. Les cinq étoiles entre ses sourcils apparurent et tournèrent avec frénésie, tandis que des craquements résonnaient dans tout son corps.
+Il serra les dents, ses mains tracèrent un sceau et des flammes jaillirent de ses yeux. À cet instant, sa cultivation au sommet du stade Nirvana Scryer explosa. Les cinq étoiles entre ses sourcils apparurent et tournèrent avec frénésie, tandis que des craquements résonnaient dans tout son corps.
 
 La puissance de l'Ancien Dieu irrigua ses membres et il serra le poing avec une force implacable. Se sentant capable de dompter les cieux, Wang Lin ne l'hésita plus. Il projeta son bras droit en avant.
 
@@ -88,9 +88,9 @@ Sa vitesse était telle qu'il atteignit Wang Lin en un éclair.
 
 Entre les innombrables cadavres aux yeux rouges qui fondaient sur lui par le haut et ce fantôme étrange qui le talonnait par le bas, la situation était critique. Les yeux de Wang Lin brillèrent d'une lueur déterminée alors qu'il chargeait sans hésiter.
 
-Les cadavres manquaient d'agilité. Bien que féroces, ils n'étaient pas doués d'intelligence et leur niveau de culture restait limité, se situant autour du stade Yin et Yang.
+Les cadavres manquaient d'agilité. Bien que féroces, ils n'étaient pas doués d'intelligence et leur niveau de cultivation restait limité, se situant autour du stade Yin et Yang.
 
-Grâce à sa culture au sommet du stade Nirvana Scryer, Wang Lin pouvait percevoir les lignes rouges qui scintillaient entre les sourcils de ces créatures.
+Grâce à sa cultivation au sommet du stade Nirvana Scryer, Wang Lin pouvait percevoir les lignes rouges qui scintillaient entre les sourcils de ces créatures.
 
 Face à cette crise, Wang Lin n'avait pas le luxe de la réflexion. Volant à pleine vitesse, il se déplaçait comme une ombre et croisa instantanément la trajectoire de plusieurs cadavres.
 
@@ -118,7 +118,7 @@ Portés par cette chaleur, les cinq dragons de flammes noires percèrent les obs
 
 Les cadavres qui tentaient de bondir pour entraver sa course s'effondrèrent sous l'assaut des cinq dragons noirs flamboyants. Ces derniers chargeaient avec une fureur dévastatrice, permettant à la vitesse de Wang Lin d'atteindre son paroxysme au cœur du brasier.
 
-Wang Lin déployait toute la puissance de sa culture Nirvana Scryer et de son corps d'Ancien Dieu sans aucune retenue. Sur son épaule, le Renard Sable Marquée s'agrippait désespérément à ses vêtements, tenant les cheveux de Wang Lin entre ses dents ; une lueur de terreur brillait dans ses yeux intelligents.
+Wang Lin déployait toute la puissance de sa cultivation Nirvana Scryer et de son corps d'Ancien Dieu sans aucune retenue. Sur son épaule, le Renard Sable Marquée s'agrippait désespérément à ses vêtements, tenant les cheveux de Wang Lin entre ses dents ; une lueur de terreur brillait dans ses yeux intelligents.
 
 Les flammes continuaient de monter, devenant de plus en plus rapides et féroces au fur et à mesure de leur ascension. Bientôt, elles formèrent un pilier de feu qui perça le sommet du puits.
 

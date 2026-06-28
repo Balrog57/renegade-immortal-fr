@@ -20,9 +20,9 @@ En s'appuyant sur la force centrifuge et la mer de flammes, Wang Lin parvint à 
 
 Le corps de Situ Nan fut lancé au-delà de Wang Lin. Simultanément, ce dernier injecta une parcelle d'énergie originelle dans le corps de son compagnon.
 
-L'énergie originelle de Wang Lin, imprégnée de la Flamme Divine de l'Oiseau Vermillon, était d'une chaleur terrifiante. La culture de Situ Nan avait été affectée par l'aura maléfique, une force glaciale puissante qui avait gelé le mouvement de son énergie originelle.
+L'énergie originelle de Wang Lin, imprégnée de la Flamme Divine de l'Oiseau Vermillon, était d'une chaleur terrifiante. La cultivation de Situ Nan avait été affectée par l'aura maléfique, une force glaciale puissante qui avait gelé le mouvement de son énergie originelle.
 
-Lorsque l'énergie de Wang Lin pénétra en lui, la chaleur extrême relâcha le blocage qui entravait sa propre énergie. La culture de Situ Nan n'était pas faible et, grâce à l'aide de Wang Lin, des craquements résonnèrent dans son corps tandis qu'il se forçait à s'élancer plus haut dans les airs.
+Lorsque l'énergie de Wang Lin pénétra en lui, la chaleur extrême relâcha le blocage qui entravait sa propre énergie. La cultivation de Situ Nan n'était pas faible et, grâce à l'aide de Wang Lin, des craquements résonnèrent dans son corps tandis qu'il se forçait à s'élancer plus haut dans les airs.
 
 Si la silhouette vague avait été à son apogée, une seule parcelle d'aura maléfique aurait privé Situ Nan et Wang Lin de toute chance de fuite. Cependant, cette figure était scellée ici depuis des éons, et la Flamme Divine de l'Oiseau Vermillon de Wang Lin était si pure qu'ils avaient une chance de s'en sortir.
 
@@ -48,7 +48,7 @@ Si Situ Nan était en danger, Wang Lin ferait tout pour l'aider. Si Wang Lin ét
 
 Tandis que Wang Lin et Situ Nan s'entraidaient, le corps de Ling Tianhou chuta lourdement, victime de l'invasion de l'aura maléfique.
 
-Cependant, la culture de Ling Tianhou étant supérieure à celle de Situ Nan, elle se rétablit légèrement durant sa chute. Mais il était trop proche de la mer de sang. S'il avait retrouvé sa pleine puissance, il aurait pu s'échapper, mais ses chances étaient désormais infimes !
+Cependant, la cultivation de Ling Tianhou étant supérieure à celle de Situ Nan, elle se rétablit légèrement durant sa chute. Mais il était trop proche de la mer de sang. S'il avait retrouvé sa pleine puissance, il aurait pu s'échapper, mais ses chances étaient désormais infimes !
 
 À ce moment précis, l'Omniscient, posté au-dessus du vortex, fronça les sourcils avant de laisser échapper un soupir. D'un revers de manche, il fit exactement ce que Wang Lin avait fait : il plongea tel un météore.
 

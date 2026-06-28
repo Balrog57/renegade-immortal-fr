@@ -10,7 +10,7 @@ Chapitre 1585 - La Puissance d'une Flèche !
 
 Le regard de Wang Lin était aussi froid que la glace alors qu'il observait les quatre individus battre en retraite rapidement, parmi lesquels se trouvait l'homme en blanc, cet être extrêmement arrogant qui avait gelé l'ombrelle antique. Leurs expressions changèrent radicalement tandis qu'ils tentaient désespérément de s'échapper.
 
-Tous étaient des cultivateurs puissants dont les niveaux de culture surpassaient largement ceux de Wang Lin. Cependant, seules leurs projections étaient présentes ici, ce qui limitait leur niveau de culture au stade intermédiaire du Vide Spirituel, un niveau qui ne serait pas détecté par les cultivateurs du Royaume Intérieur.
+Tous étaient des cultivateurs puissants dont les niveaux de cultivation surpassaient largement ceux de Wang Lin. Cependant, seules leurs projections étaient présentes ici, ce qui limitait leur niveau de cultivation au stade intermédiaire du Vide Spirituel, un niveau qui ne serait pas détecté par les cultivateurs du Royaume Intérieur.
 
 Pourtant, ces quatre personnes avaient forcé Wang Lin à affronter plusieurs crises de vie ou de mort. S'il n'avait pas appris la technique de l'Ombrelle Brûlant le Domaine dans la Terre Déchue, il serait mort lors de leur première attaque combinée !
 
@@ -56,7 +56,7 @@ Une immense fissure apparut même dans le ciel. Elle continua de se propager, se
 
 Les quatre individus fuyaient avec terreur. Le Maître Céleste Void God était le plus rapide et s'était déjà éloigné. Les deux concubines impériales célestes suivaient de près, leurs visages marqués par la douleur et le désespoir.
 
-L'homme en blanc possédait le niveau de culture et le statut les plus bas. Incapable de suivre la cadence, il prit du retard, se retrouvant ainsi comme la cible la plus proche de la flèche.
+L'homme en blanc possédait le niveau de cultivation et le statut les plus bas. Incapable de suivre la cadence, il prit du retard, se retrouvant ainsi comme la cible la plus proche de la flèche.
 
 La flèche fendit les cieux et la terre en s'approchant, créant des ondulations qui se propageaient dans toutes les directions. Une intention meurtrière monstrueuse émanait d'elle, tandis que les runes gravées sur son corps scintillaient faiblement.
 
@@ -110,7 +110,7 @@ Les seuls mots capables de décrire la puissance de cette flèche étaient « c�
 
 Après avoir tué trois personnes, il ne restait plus beaucoup de force au projectile, mais il continuait de hurler vers le ciel. Il allait tenter de briser la voûte céleste pour libérer Wang Lin de sa calamité !
 
-Cependant, alors que la flèche s'approchait du firmament et que la lumière bleue commençait à vaciller, une silhouette sortit silencieusement de l'ombre. Cette personne portait une robe noire qui lui couvrait le visage. Une pression écrasante émanait de son corps, une puissance bien supérieure aux limites de culture de l'Arcane Vide autorisées dans cet espace scellé !
+Cependant, alors que la flèche s'approchait du firmament et que la lumière bleue commençait à vaciller, une silhouette sortit silencieusement de l'ombre. Cette personne portait une robe noire qui lui couvrait le visage. Une pression écrasante émanait de son corps, une puissance bien supérieure aux limites de cultivation de l'Arcane Vide autorisées dans cet espace scellé !
 
 Il tendit sa main droite desséchée et saisit la flèche !
 

@@ -18,11 +18,11 @@ Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit : « Dans ce
 
 Wang Lin approuva intérieurement. C'était la seule explication pour laquelle Yun Fei ne l'avait pas ouverte elle-même, tentant plutôt de l'échanger contre la levée de sa restriction.
 
-Li Muwan reprit d'un ton déterminé : « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte Cloud Sky pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la culture, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
+Li Muwan reprit d'un ton déterminé : « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte Cloud Sky pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la cultivation, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
 
 Li Muwan sortit plusieurs flacons de pilules et les tendit à Wang Lin. Après lui avoir expliqué les vertus de chaque préparation, Wang Lin prit congé.
 
-Il quitta la cour sud sous le regard réticent de Li Muwan. Après tout, la culture de Wang Lin était encore trop faible ; s'il restait trop longtemps auprès d'elle, cela finirait par attirer l'attention.
+Il quitta la cour sud sous le regard réticent de Li Muwan. Après tout, la cultivation de Wang Lin était encore trop faible ; s'il restait trop longtemps auprès d'elle, cela finirait par attirer l'attention.
 
 Wang Lin décida donc de regagner sa chambre pour s'isoler en entraînement intensif. Lui et Li Muwan avaient déjà pris des dispositions en se laissant un jade de transmission : dès qu'elle briserait le sceau, elle lui enverrait la pilule.
 
@@ -44,7 +44,7 @@ Zhenwei afficha un sourire amical et gloussa : « Venez-vous saluer l'ancêtre d
 
 Wang Lin ricana intérieurement, mais se contenta d'un hochement de tête serein.
 
-Sun Zhenwei regarda Wang Lin en souriant : « Dans deux mois, je serai moi aussi quelqu'un que l'on pourra considérer comme l'ancêtre de votre maître. Vous êtes très diligent, et c'est une bonne chose. Si vous avez des questions sur l'alchimie, vous pourrez les poser à l'ancêtre de votre maître, et si vous avez des questions sur la culture, vous pourrez me les poser à moi. »
+Sun Zhenwei regarda Wang Lin en souriant : « Dans deux mois, je serai moi aussi quelqu'un que l'on pourra considérer comme l'ancêtre de votre maître. Vous êtes très diligent, et c'est une bonne chose. Si vous avez des questions sur l'alchimie, vous pourrez les poser à l'ancêtre de votre maître, et si vous avez des questions sur la cultivation, vous pourrez me les poser à moi. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il répondait froidement : « S'il n'y a rien d'autre, ce disciple doit encore s'occuper d'un lot de pilules. »
 
@@ -52,7 +52,7 @@ Le visage de Sun Zhenwei s'assombrit sous l'effet de la colère, mais il retrouv
 
 Une fois l'objet reçu, Wang Lin joignit les mains en signe de gratitude, puis se détourna pour partir.
 
-Sun Zhenwei continua de sourire jusqu'à ce que Wang Lin disparaisse. Une lueur froide traversa alors son regard tandis qu'il pensait : « Ce gamin n'est qu'au stade de l'Établissement des Fondations ; il sera le pion parfait pour surveiller Li Muwan. Humph, même s'il soupçonne une anomalie dans sa culture, il ne pourra rien découvrir. »
+Sun Zhenwei continua de sourire jusqu'à ce que Wang Lin disparaisse. Une lueur froide traversa alors son regard tandis qu'il pensait : « Ce gamin n'est qu'au stade de l'Établissement des Fondations ; il sera le pion parfait pour surveiller Li Muwan. Humph, même s'il soupçonne une anomalie dans sa cultivation, il ne pourra rien découvrir. »
 
 Wang Lin regagna sa demeure. Une fois dans sa chambre, il posa une restriction sur l'épée volante. L'arme émit un éclat froid. Le fait que Sun Zhenwei lui offre cette épée était parfaitement prévisible ; au pire, ce n'était qu'un outil d'espionnage.
 
@@ -66,19 +66,19 @@ Suivant les instructions de Li Muwan, il disposa les flacons par ordre de consom
 
 Cette préparation s'appelait la Pilule Qi-Zuo, une pilule spirituelle de rang 2. Grâce à ses nombreux ingrédients rares, elle ne fournissait pas seulement une immense quantité d'énergie spirituelle, mais aidait également à élargir les canaux du corps.
 
-La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la culture, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux ; même au sein de la Secte Cloud Sky, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
+La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la cultivation, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux ; même au sein de la Secte Cloud Sky, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
 
 Au sein de la Secte Cloud Sky, on n'en comptait qu'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
 
-Wang Lin prit une pilule et l'avala, entamant immédiatement sa culture. L'énergie spirituelle inonda son corps, et il nota instantanément la différence avec la Pilule d'Établissement des Fondations : la Pilule Qi-Zuo contenait plus du double de cette dernière.
+Wang Lin prit une pilule et l'avala, entamant immédiatement sa cultivation. L'énergie spirituelle inonda son corps, et il nota instantanément la différence avec la Pilule d'Établissement des Fondations : la Pilule Qi-Zuo contenait plus du double de cette dernière.
 
 Cette énergie spirituelle sans limite se calma lentement, absorbée par la technique de l'Ancien Dieu. Après un moment, Wang Lin en avala une autre.
 
-Le temps s'écoula et, après avoir consommé toutes les Pilules Qi-Zuo, la culture de Wang Lin avait atteint le stade avancé de l'Établissement des Fondations. Cette méthode de consommation massive, faisant fi de toute conséquence future, n'était envisageable que pour quelqu'un comme lui.
+Le temps s'écoula et, après avoir consommé toutes les Pilules Qi-Zuo, la cultivation de Wang Lin avait atteint le stade avancé de l'Établissement des Fondations. Cette méthode de consommation massive, faisant fi de toute conséquence future, n'était envisageable que pour quelqu'un comme lui.
 
-Il faut dire que même parmi les pilules spécialisées dans la culture, nul n'oserait en ingérer une telle quantité si peu de temps. D'abord, l'absorption est un processus complexe ; selon la pilule, il faut plusieurs jours, voire plus, pour assimiler totalement l'énergie spirituelle et éviter tout gaspillage.
+Il faut dire que même parmi les pilules spécialisées dans la cultivation, nul n'oserait en ingérer une telle quantité si peu de temps. D'abord, l'absorption est un processus complexe ; selon la pilule, il faut plusieurs jours, voire plus, pour assimiler totalement l'énergie spirituelle et éviter tout gaspillage.
 
-En plus de la rareté des composants, les cultivateurs cherchent à ne rien perdre. Mais les pilules contiennent une telle densité d'énergie que si trop est absorbé d'un coup, cela n'aide pas ; au contraire, cela augmente le risque qu'un démon s'insinue dans l'esprit du cultivateur. De plus, une progression trop fulgurante peut avoir des effets mortels sur la culture future, même si le corps physique semble intact.
+En plus de la rareté des composants, les cultivateurs cherchent à ne rien perdre. Mais les pilules contiennent une telle densité d'énergie que si trop est absorbé d'un coup, cela n'aide pas ; au contraire, cela augmente le risque qu'un démon s'insinue dans l'esprit du cultivateur. De plus, une progression trop fulgurante peut avoir des effets mortels sur la cultivation future, même si le corps physique semble intact.
 
 Mais ces problèmes n'existaient pas pour Wang Lin. D'abord, grâce à la technique de l'Ancien Dieu, l'énergie était absorbée avec une rapidité prodigieuse. Quant aux conséquences futures, il ne s'agissait que d'un avatar et non de son corps principal. En réalité, cet avatar était en quelque sorte une « super pilule » humaine conçue pour aider son corps principal à franchir le stade de l'Âme Naissante.
 
@@ -90,4 +90,4 @@ Le flacon contenait cinq pilules violettes. Wang Lin les identifia immédiatemen
 
 Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas : la Pilule Tian Li était un remède de rang 3 dont les ingrédients s'étaient éteints avec le pays de Hou Fen. Ce n'est qu'en rejoignant la Secte Cloud Sky et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
 
-Cependant, même la Secte Cloud Sky ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Cloud Sky ; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.
+Cependant, même la Secte Cloud Sky ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Cloud Sky ; on pouvait donc dire que le coût de cette avancée de cultivation était entièrement supporté par la secte.

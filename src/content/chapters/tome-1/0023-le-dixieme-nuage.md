@@ -72,6 +72,6 @@ La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les ye
 
 « Dix fois plus de temps. Dix fois le temps passé dans le rêve ! » Wang Lin se leva, fou de joie, serrant la perle contre lui.
 
-Pour la première fois, il éprouva une véritable confiance en sa culture.
+Pour la première fois, il éprouva une véritable confiance en sa cultivation.
 
 L'heure était déjà très avancée. Wang Lin calma son cœur exalté et ne commença pas immédiatement à utiliser la perle pour cultiver. Il craignait que si quelqu'un le surprenait à l'utiliser au matin, il ne puisse plus la conserver. Il remit donc la perle dans sa sacoche de rangement et quitta la pièce.

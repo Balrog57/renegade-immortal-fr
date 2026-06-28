@@ -12,7 +12,7 @@ Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa tech
 
 Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu ! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
 
-À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour son Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa culture.
+À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour son Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa cultivation.
 
 Le visage de Huang Long s'assombrit. Réalisant les intentions d'Ouyang, il sortit immédiatement son épée. Wang Lin laissa échapper un rire ; sa technique d'attraction atteignit son paroxysme et la main invisible qu'il avait créée devint tangible.
 
@@ -44,7 +44,7 @@ Huang Long soupira intérieurement. Il rengaina son épée et prit du recul, sui
 
 Le visage de Wang Lin trahissait un certain regret. Le poison de ce mille-pattes pouvait être le remède à la maladie de son père ; il était donc déterminé à l'obtenir coûte que coûte. Il joignit les mains et dit : « Ancien Ouyang, le poison de ce mille-pattes est vital pour moi. J'ai quelque chose qui pourrait constituer un échange équitable. » Sur ces mots, il lança une fiole de jade d'apparence tout à fait ordinaire, remplie de l'eau de rivière qu'il avait accumulée dans la montagne arrière.
 
-L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda : « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de culture dont l'énergie spirituelle était bien supérieure à la normale. Ce liquide provient-il de là ? »
+L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda : « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de cultivation dont l'énergie spirituelle était bien supérieure à la normale. Ce liquide provient-il de là ? »
 
 Lorsque le bouchon fut retiré, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en disant : « Quel gamin... Il ose proposer une simple bouteille d'eau de rivière. »
 

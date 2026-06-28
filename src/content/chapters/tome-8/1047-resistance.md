@@ -44,7 +44,7 @@ Une lueur de froideur traversa les yeux de Wang Lin. Au moment où la tempête d
 
 À l'instant où le troisième œil de Wang Lin s'ouvrit, l'expression calme de Maître Vide changea pour la première fois ! Ce ne fut pas un simple changement ; ce fut comme si son monde entier venait d'être bouleversé !
 
-« Origine Source !!! » Les yeux de Maître Vide furent remplis d'incrédulité, avant d'être envahis par l'extase. À cet instant, il en oublia la Secte Divine de l'Oiseau Vermillon et l'Alliance de Culture. La seule chose qui importait devant lui était l'Origine Source qui jaillissait du troisième œil de Wang Lin.
+« Origine Source !!! » Les yeux de Maître Vide furent remplis d'incrédulité, avant d'être envahis par l'extase. À cet instant, il en oublia la Secte Divine de l'Oiseau Vermillon et l'Alliance de Cultivation. La seule chose qui importait devant lui était l'Origine Source qui jaillissait du troisième œil de Wang Lin.
 
 Non seulement le sien, mais même l'expression de l'homme en noir changea radicalement. Il fixait Wang Lin, les yeux brillants d'incrédulité.
 

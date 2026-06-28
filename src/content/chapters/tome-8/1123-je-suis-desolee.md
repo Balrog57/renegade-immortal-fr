@@ -8,7 +8,7 @@ slug: je-suis-desolee
 ---
 Lorsque Wang Lin regarda l'homme d'âge moyen, il ne put constater qu'une seule chose : cet homme était un cultivateur du niveau Briseur de Nirvana. Sans mot dire, la main droite de Wang Lin plongea dans le vide, saisit une pierre de jade et la lança.
 
-L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. En raison de son niveau de culture, il ne parvint pas à percevoir le contenu de cette pierre de jade.
+L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. En raison de son niveau de cultivation, il ne parvint pas à percevoir le contenu de cette pierre de jade.
 
 Il put néanmoins constater que le matériau dont elle était faite n'était pas ordinaire. Elle contenait une trace de feu originel. Compte tenu de l'identité de Wang Lin, cette pierre de jade n'avait rien de banal !
 
@@ -56,7 +56,7 @@ Mu Bingmei évita le regard de Wang Lin et se tourna vers Zhou Ru. Elle dit douc
 
 Zhou Ru regarda Wang Lin, puis Mu Bingmei. Au fil des ans, elle avait senti que sa maîtresse avait été très bonne envers elle, surtout lorsqu'elle l'avait sauvée. Sans elle, elle n'aurait jamais pu revoir Wang Lin.
 
-À la pensée de la séparation, le moral de Zhou Ru chuta ; elle hocha la tête et répondit d'une voix douce : « Maîtresse, Ru Er s'en souviendra. Je ne délaisserai pas ma culture. De plus, Ru Er pourra revenir à tout moment. »
+À la pensée de la séparation, le moral de Zhou Ru chuta ; elle hocha la tête et répondit d'une voix douce : « Maîtresse, Ru Er s'en souviendra. Je ne délaisserai pas ma cultivation. De plus, Ru Er pourra revenir à tout moment. »
 
 Mu Bingmei esquissa un sourire amer. Zhou Ru ne comprenait pas qu'une fois partie, elle n'aurait aucune chance de revenir, car Wang Lin ne le permettrait pas.
 
@@ -86,7 +86,7 @@ Le corps de Wang Lin tressaillit. Il se tenait dans la formation, mais ne l'acti
 
 « Je suis désolée... Je suis vraiment... désolée... » Le corps de Mu Bingmei tremblait et deux traînées de larmes s'écoulèrent de ses yeux tandis qu'elle murmurait sans fin.
 
-Durant ces années, la douleur dans son cœur l'avait torturée jusqu'au bord de l'effondrement. Chaque nuit, elle s'éveillait de sa culture, envahie par un sentiment de confusion inexplicable.
+Durant ces années, la douleur dans son cœur l'avait torturée jusqu'au bord de l'effondrement. Chaque nuit, elle s'éveillait de sa cultivation, envahie par un sentiment de confusion inexplicable.
 
 « Liu Mei est déjà morte. Tu n'es pas elle. Il n'y a pas lieu de s'excuser. » Wang Lin ne se retourna pas, la main posée sur sa poitrine. Son cœur lui faisait mal en repensant à sa première rencontre avec Wang Ping. Ce bébé empli de ressentiment qui fixait violemment son père... C'était un cauchemar que Wang Lin ne pourrait jamais oublier.
 

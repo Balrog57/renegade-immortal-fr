@@ -102,13 +102,13 @@ Assis sur sa montagne, Wang Lin déployait son sens divin sur l'ensemble du Roya
 
 Red Butterfly se trouvait également là avec lui. Le père et la fille vivaient en paix.
 
-À cet instant, Qing Shui souriait à Red Butterfly, lui prodiguant des conseils pour surmonter certaines difficultés dans sa culture. Elle était déjà très douée et apprenait rapidement.
+À cet instant, Qing Shui souriait à Red Butterfly, lui prodiguant des conseils pour surmonter certaines difficultés dans sa cultivation. Elle était déjà très douée et apprenait rapidement.
 
-« La culture met l'accent sur les émotions et les idéaux. Les idéaux sont tout... Et... » Les yeux de Qing Shui s'illuminèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
+« La cultivation met l'accent sur les émotions et les idéaux. Les idéaux sont tout... Et... » Les yeux de Qing Shui s'illuminèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
 
 « Butterfly, continue ton entraînement seule. Ton père a une affaire urgente à régler. » Sur ces mots, Qing Shui fit un pas et se changea en une ombre qui disparut de la pièce.
 
-Red Butterfly fixa l'endroit où son père s'était volatilisé, laissant paraître une trace d'inquiétude. Après avoir réfléchi un instant, elle soupira, ferma les yeux et reprit calmement sa culture.
+Red Butterfly fixa l'endroit où son père s'était volatilisé, laissant paraître une trace d'inquiétude. Après avoir réfléchi un instant, elle soupira, ferma les yeux et reprit calmement sa cultivation.
 
 Des ondulations résonnèrent sur la montagne où se trouvait Wang Lin, tandis que Qing Shui en sortait.
 

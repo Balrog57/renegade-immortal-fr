@@ -50,7 +50,7 @@ Car cette quête du Dao permettrait d'entrevoir cette mystérieuse troisième é
 
 Wang Lin ne connaissait pas encore la valeur réelle de la Perle Défiant le Ciel, mais le simple aperçu qu'il en avait eu le bouleversait profondément. C'était une expérience qu'il n'oublierait jamais.
 
-Cette quête du Dao n'avait pas augmenté son niveau de culture, mais elle avait affiné son Dao. Auparavant, lorsque Wang Lin s'était tenu devant la porte, il avait ressenti un profond sentiment d'effroi au plus profond de son âme.
+Cette quête du Dao n'avait pas augmenté son niveau de cultivation, mais elle avait affiné son Dao. Auparavant, lorsque Wang Lin s'était tenu devant la porte, il avait ressenti un profond sentiment d'effroi au plus profond de son âme.
 
 C'était dû à la différence de niveau, comme l'apparence des humains aux yeux d'une fourmi.
 
@@ -70,7 +70,7 @@ Il progressa lentement à travers les astéroïdes. Il connaissait bien cet endr
 
 Il se déplaçait rapidement et, après un temps indéterminé, il se rapprocha du centre. Plus il s'approchait, plus son sentiment de choc grandissait.
 
-« Que s'est-il passé là-bas ? » L'expression de l'homme aux cheveux noirs était sombre. Son niveau de culture était au stade Corporel Yang ; il ne lui manquait que peu de chose pour atteindre la plénitude et entrer dans le stade du Nirvana Scryer. Avec son niveau, très peu de choses pouvaient provoquer un tel trouble chez lui !
+« Que s'est-il passé là-bas ? » L'expression de l'homme aux cheveux noirs était sombre. Son niveau de cultivation était au stade Corporel Yang ; il ne lui manquait que peu de chose pour atteindre la plénitude et entrer dans le stade du Nirvana Scryer. Avec son niveau, très peu de choses pouvaient provoquer un tel trouble chez lui !
 
 Pourtant, à cet instant, ce sentiment s'intensifiait encore.
 
@@ -106,7 +106,7 @@ Tout le sang de son corps circulait frénétiquement, au même rythme que son é
 
 « Quelle puissance est-ce là ?! » L'homme aux cheveux noirs était incapable de bouger d'un pouce. L'énergie d'origine dans ses méridiens circulait follement. Même si cette énergie se dissipait ou était gaspillée, il ne pouvait plus s'en soucier. Sa bouche était sèche et son corps était trempé de sueur depuis longtemps. Pourtant, il ne pouvait tout simplement pas détacher ses yeux de ce regard démoniaque.
 
-Avec sa culture, c'était la première fois de sa vie qu'il ressentait une chose aussi terrifiante. Il n'avait pas été aussi effrayé, même lorsqu'il avait rencontré le Seigneur du Temple Céleste du Tonnerre.
+Avec sa cultivation, c'était la première fois de sa vie qu'il ressentait une chose aussi terrifiante. Il n'avait pas été aussi effrayé, même lorsqu'il avait rencontré le Seigneur du Temple Céleste du Tonnerre.
 
 Wang Lin regarda calmement l'homme aux cheveux noirs. Une trace de sa quête du Dao brillait dans ses yeux. Il ne voyait qu'une personne, mais à cet instant, peu importait qu'il s'agisse d'un cultivateur ou d'un mortel. Avec cette part de compréhension dans le regard de Wang Lin, l'autre n'était plus qu'une simple fourmi.
 
@@ -126,7 +126,7 @@ Tout cela ne dura qu'un instant. La trouble dans les yeux de Wang Lin disparut ;
 
 Le corps de l'homme aux cheveux noirs faillit s'effondrer lorsqu'il fut libéré de ce pouvoir terrifiant. Il était trempé de sueur et plus de la moitié de son énergie d'origine avait disparu. Son âme originelle avait rétréci d'une taille et il était extrêmement affaibli. En fixant Wang Lin, la terreur l'envahit totalement.
 
-« Trop terrifiant !!! Ceci... Quel genre de regard était-ce ? À quel niveau de culture se trouve-t-il ?! » L'homme aux cheveux noirs haletait, le corps tremblant et le visage livide. Il regrettait d'être venu ici. S'il n'était pas venu, il n'aurait pas eu à subir ce regard atroce.
+« Trop terrifiant !!! Ceci... Quel genre de regard était-ce ? À quel niveau de cultivation se trouve-t-il ?! » L'homme aux cheveux noirs haletait, le corps tremblant et le visage livide. Il regrettait d'être venu ici. S'il n'était pas venu, il n'aurait pas eu à subir ce regard atroce.
 
 Il ne doutait pas que si cet être mystérieux l'avait regardé quelques respirations de plus, il se serait effondré. Ensuite, il se serait désintégré, et toute trace de son existence aurait été anéantie.
 

@@ -86,7 +86,7 @@ Wang Lin portait la troisième âme en lui. Elle était scellée par Xia Qing, c
 
 « Cet endroit est le cœur de la grotte... C'est aussi là que se trouve la porte vers le Continent Astral Immortel... » Les yeux de Wang Lin s'illuminèrent et il s'élança, rapide comme un rayon de lumière.
 
-Sous ses pieds, parmi les débris, il devinait qu'il s'était agi autrefois d'un royaume magnifique. Cet endroit était la véritable grotte, le lieu même où il avait pratiqué sa culture en isolement. On pourrait dire que c'était le centre névralgique de tout le monde de la grotte !
+Sous ses pieds, parmi les débris, il devinait qu'il s'était agi autrefois d'un royaume magnifique. Cet endroit était la véritable grotte, le lieu même où il avait pratiqué sa cultivation en isolement. On pourrait dire que c'était le centre névralgique de tout le monde de la grotte !
 
 Pourtant, tout n'était plus que désolation, et un sentiment de vide envahit le cœur de Wang Lin. Il ressentit une vague nostalgie en contemplant ces ruines, sachant que ce sentiment ne venait pas de lui, mais de la troisième âme.
 

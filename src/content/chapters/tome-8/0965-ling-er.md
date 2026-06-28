@@ -2,7 +2,7 @@
 n: 965
 title: Ling Er
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 965 - Ling Er
 slug: ling-er
 ---
@@ -10,7 +10,7 @@ Wang Lin ouvrit la porte et vit Maître Yi Chen qui se tenait à l'extérieur av
 
 « Cher cultivateur est trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
 
-Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la culture.
+Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la cultivation.
 
 À l'extérieur du pavillon, un ruisseau s'écoulait, dont le murmure apaisant pouvait améliorer l'humeur. De petits poissons nageaient dans le courant et sautaient parfois hors de l'eau, créant des ondulations et des éclaboussures.
 
@@ -20,13 +20,13 @@ Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il �
 
 À l'approche des deux hommes, l'homme d'âge moyen et le vieil homme se levèrent et sourirent à Wang Lin. L'homme en robe violette désigna un siège d'un geste courtois : « Frère Wang, je vous en prie. »
 
-Wang Lin observa le pavillon, puis la superbe jeune femme qui les regardait. Elle était elle aussi une cultivatrice, bien que son niveau de culture ne fût pas très élevé, seulement au stade de l'Âme Naissante. Elle était d'une beauté saisissante mais conservait une innocence rare dans le monde de la culture. Seule une personne protégée par un être puissant pouvait préserver une telle pureté ; cet être devait la garder sous sa garde pour éviter qu'elle ne soit trop exposée aux turpitudes du monde des cultivateurs.
+Wang Lin observa le pavillon, puis la superbe jeune femme qui les regardait. Elle était elle aussi une cultivatrice, bien que son niveau de cultivation ne fût pas très élevé, seulement au stade de l'Âme Naissante. Elle était d'une beauté saisissante mais conservait une innocence rare dans le monde de la cultivation. Seule une personne protégée par un être puissant pouvait préserver une telle pureté ; cet être devait la garder sous sa garde pour éviter qu'elle ne soit trop exposée aux turpitudes du monde des cultivateurs.
 
 Cette femme ressemblait fort à Maître Yi Chen.
 
 Lorsqu'elle remarqua le regard de Wang Lin, ses joues s'empourprèrent et elle baissa la tête. Pourtant, elle continuait de l'observer du coin de l'œil, animée par une curiosité manifeste.
 
-Wang Lin esquissa un léger sourire. Avec sa ruse naturelle, il avait immédiatement perçu leurs intentions. Bien que le malentendu entre eux ne fût pas profond, tout pouvait arriver dans le monde de la culture. Ils craignaient que Wang Lin ne se méfie si les trois d'entre eux l'avaient invité seuls ; ils auraient alors craint de ne pouvoir discuter librement. Ils avaient donc décidé de faire venir cette jeune femme, une parente, comme un moyen indirect de prouver qu'ils n'avaient aucune malveillance.
+Wang Lin esquissa un léger sourire. Avec sa ruse naturelle, il avait immédiatement perçu leurs intentions. Bien que le malentendu entre eux ne fût pas profond, tout pouvait arriver dans le monde de la cultivation. Ils craignaient que Wang Lin ne se méfie si les trois d'entre eux l'avaient invité seuls ; ils auraient alors craint de ne pouvoir discuter librement. Ils avaient donc décidé de faire venir cette jeune femme, une parente, comme un moyen indirect de prouver qu'ils n'avaient aucune malveillance.
 
 Autrement, ils n'auraient pas amené une junior de niveau Âme Naissante ici.
 
@@ -54,7 +54,7 @@ Effleurant doucement sa sacoche de rangement, Wang Lin en sortit un chapeau de p
 
 La jeune fille fronça le nez ; il était évident qu'elle trouvait ce chapeau un peu laid.
 
-Maître Yi Chen examina attentivement l'objet et fut surpris : « Frère Wang, bien que cet objet ne soit pas un trésor céleste, il est extrêmement exquis. Le nombre de formations à l'intérieur est si grand que même moi, je ne peux en percevoir toute la complexité instantanément. Ces restrictions travaillant de concert peuvent masquer toute aura. Un expert en restrictions pourrait apprendre d'innombrables techniques en étudiant ce chapeau et ainsi accroître son niveau de culture. Frère Wang, ce cadeau est bien trop précieux... »
+Maître Yi Chen examina attentivement l'objet et fut surpris : « Frère Wang, bien que cet objet ne soit pas un trésor céleste, il est extrêmement exquis. Le nombre de formations à l'intérieur est si grand que même moi, je ne peux en percevoir toute la complexité instantanément. Ces restrictions travaillant de concert peuvent masquer toute aura. Un expert en restrictions pourrait apprendre d'innombrables techniques en étudiant ce chapeau et ainsi accroître son niveau de cultivation. Frère Wang, ce cadeau est bien trop précieux... »
 
 En entendant cela, les yeux de la jeune fille s'illuminèrent de curiosité.
 
@@ -82,11 +82,11 @@ Ce dernier se leva, joignit les mains devant Wang Lin et rit : « Le nom de Maî
 
 « Et voici mon troisième frère, Zhen Xinghan, surnommé Maître Yi Xing. »
 
-L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bien qu'il fût au stade initial du Nirvana Scryer, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement : « Le Frère Wang peut simplement m'appeler par mon nom. »
+L'homme d'âge moyen en robe violette avait le niveau de cultivation le plus bas. Bien qu'il fût au stade initial du Nirvana Scryer, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement : « Le Frère Wang peut simplement m'appeler par mon nom. »
 
 « Je me demande quel est le surnom du Frère Wang ? » demanda Maître Yi Chen après les présentations.
 
-Dans le monde de la culture, bien que les cultivateurs de rang inférieur possèdent parfois des surnoms, ceux-ci ne devenaient guère célèbres. Ils n'avaient rien de la portée des noms portés par les véritables puissances. Pour un cultivateur du second échelon, un surnom était souvent une reconnaissance mutuelle et la synthèse condensée de toute une existence.
+Dans le monde de la cultivation, bien que les cultivateurs de rang inférieur possèdent parfois des surnoms, ceux-ci ne devenaient guère célèbres. Ils n'avaient rien de la portée des noms portés par les véritables puissances. Pour un cultivateur du second échelon, un surnom était souvent une reconnaissance mutuelle et la synthèse condensée de toute une existence.
 
 Jusqu'à ce jour, Wang Lin n'avait pas véritablement de surnom. S'il en avait un, ce serait celui qu'il avait acquis à Allheaven par ses massacres : Maître Démon !
 
@@ -106,4 +106,4 @@ Le temps s'écoula lentement. Tandis qu'ils discutaient, la lune monta haut dans
 
 « La voie du Dao nous sépare des mortels. Le cultivateur doit apprendre à s'isoler de toute chose pour accomplir le Grand Dao des Cieux. Hélas, bien que ce vieil homme puisse trancher tous les liens, le mot "famille" est une chose que je ne peux couper. »
 
-« Pourquoi devriez-vous la trancher ? Les cultivateurs osent défier les cieux eux-mêmes, pourquoi céder à une pensée aussi fugitive ? J'ai entendu dire qu'il existe des régions centrées sur la culture familiale ; cela signifie donc que ces cultivateurs ont des lignées. Même parmi eux, de puissants êtres ont émergé. Tout n'est qu'une question d'état d'esprit. »
+« Pourquoi devriez-vous la trancher ? Les cultivateurs osent défier les cieux eux-mêmes, pourquoi céder à une pensée aussi fugitive ? J'ai entendu dire qu'il existe des régions centrées sur la cultivation familiale ; cela signifie donc que ces cultivateurs ont des lignées. Même parmi eux, de puissants êtres ont émergé. Tout n'est qu'une question d'état d'esprit. »

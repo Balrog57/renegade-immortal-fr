@@ -58,7 +58,7 @@ Lors de la première bataille, le Grand Maître Yun Luo avait stupéfié Maître
 
 La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons ! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts du Fleuve Invoqué et d'Allheaven, ils auraient subi de lourdes pertes !
 
-Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable !
+Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de cultivation élevé, une armée sans chef n'était qu'un tas de sable !
 
 La femme à la robe bleu aquatique avait été amenée ici par Maître South Cloud du Système Stellaire de Brilliant Void. Elle était non seulement la meneuse des cultivateurs de Brilliant Void, mais aussi le commandant en chef de tous les cultivateurs du Royaume Intérieur présents sur place !
 
@@ -96,7 +96,7 @@ Les marques d'esclavage de l'estimée Ling Dong et de Zhou Jin ne s'étaient pas
 
 Mu Bingmei, qui était devenue la maîtresse de la Secte Divine grâce à une simple parole de Wang Lin, avait les larmes aux yeux, mais elle croyait fermement en sa survie !
 
-Accablé par le chagrin, Situ Nan abandonna sa culture dans le Royaume Céleste de la Pluie pour se livrer silencieusement à la boisson. Il buvait avec excès et riait en levant les yeux vers le ciel. Pourtant, tout en riant, ses larmes coulaient inexorablement. Il but pendant trois jours, rit pendant trois jours et pleura pendant trois jours. Par la suite, il prit la décision de quitter le Royaume Céleste de la Pluie. Il allait retrouver son frère !
+Accablé par le chagrin, Situ Nan abandonna sa cultivation dans le Royaume Céleste de la Pluie pour se livrer silencieusement à la boisson. Il buvait avec excès et riait en levant les yeux vers le ciel. Pourtant, tout en riant, ses larmes coulaient inexorablement. Il but pendant trois jours, rit pendant trois jours et pleura pendant trois jours. Par la suite, il prit la décision de quitter le Royaume Céleste de la Pluie. Il allait retrouver son frère !
 
 Lorsqu'il partit, Zhou Ru était en larmes. À sa demande déterminée, elle partit avec Situ Nan… Big Head et Lei Ji partirent deux jours après lui. Ils allaient chercher leur maître… Le premier à quitter le Royaume Céleste de la Pluie ne fut pas Situ Nan, mais Treize. Lorsqu'il apprit la situation, il partit sans hésiter, emportant la statue de Wang Lin !
 

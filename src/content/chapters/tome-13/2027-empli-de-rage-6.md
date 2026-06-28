@@ -108,7 +108,7 @@ Une folie sauvage brilla dans les yeux de Wang Lin. Il n'attaqua pas immédiatem
 
 Sous ce cri, l'ombre ancienne derrière lui ouvrit également la gueule pour hurler à son tour !
 
-Ce rugissement contenait toute la culture de Wang Lin, sa culture ancienne ainsi que la puissance de son sang d'âme. L'onde sonore percuta de plein fouet les 72 Saints.
+Ce rugissement contenait toute la cultivation de Wang Lin, sa cultivation ancienne ainsi que la puissance de son sang d'âme. L'onde sonore percuta de plein fouet les 72 Saints.
 
 Bien que les 72 Saints ne fussent pas faibles et aient attaqué de concert, ils s'effondrèrent tous devant le rugissement de Wang Lin.
 

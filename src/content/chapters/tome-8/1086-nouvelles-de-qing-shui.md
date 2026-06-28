@@ -22,7 +22,7 @@ Cette percée ne pouvait être forcée ; plus on se montrait impatient, plus ell
 
 Une vague d'énergie d'origine entra immédiatement dans le corps de Wang Lin en provenance du vieil homme.
 
-« Avec ton niveau de culture actuel, tes deux éveils, l'apparition du Vermillion Bird blanc et l'armure de flamme du Vermillion Bird, tu devrais être capable de maîtriser la première transformation ! »
+« Avec ton niveau de cultivation actuel, tes deux éveils, l'apparition du Vermillion Bird blanc et l'armure de flamme du Vermillion Bird, tu devrais être capable de maîtriser la première transformation ! »
 
 Soudain, toutes les flammes entourant Wang Lin se propagèrent vers l'extérieur. Des vagues de craquements retentirent alors dans les environs, tel un tonnerre rugissant qui résonnait à travers le champ d'étoiles.
 
@@ -30,9 +30,9 @@ Sur l'une des Planètes Divines du Vermillion Bird, s'élevait une montagne per�
 
 Une brise légère, chargée d'une vague de chaleur, souffla en faisant bruisser les feuilles. Combiné au tonnerre rugissant, l'ensemble possédait un certain charme.
 
-Une personne était assise au sommet de la montagne. Cette personne avait une tête très large et un corps plutôt petit. Ses yeux étaient clos pendant sa culture. Lorsque le tonnerre rugissant passa, elle ouvrit les yeux pour regarder le ciel. Son regard était d'un calme absolu.
+Une personne était assise au sommet de la montagne. Cette personne avait une tête très large et un corps plutôt petit. Ses yeux étaient clos pendant sa cultivation. Lorsque le tonnerre rugissant passa, elle ouvrit les yeux pour regarder le ciel. Son regard était d'un calme absolu.
 
-« Le niveau de culture du Maître continue d'augmenter... Je dois m'adapter à ce nouveau corps le plus rapidement possible. »
+« Le niveau de cultivation du Maître continue d'augmenter... Je dois m'adapter à ce nouveau corps le plus rapidement possible. »
 
 C'était Big Head !
 
@@ -82,7 +82,7 @@ Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esp
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait avoir le cœur de pierre et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
-« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Nirvana Shatterer ? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur ! » Situ Nan se redressa et reprit sa culture à contrecœur.
+« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Nirvana Shatterer ? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur ! » Situ Nan se redressa et reprit sa cultivation à contrecœur.
 
 Le vieil homme sourit. Durant ces deux années, il avait développé une très bonne opinion de ce « Petit Situ ». Empêcher Situ d'absorber la glace était pour son propre bien. Il avait toujours utilisé la force juste pour ne jamais le blesser réellement. Il sourit et dit : « Très bien, ce vieil homme attendra que ce jour arrive. »
 
@@ -104,13 +104,13 @@ Il était impossible de décrire la nature de ce regard ; on ne pouvait que le c
 
 Wang Lin dit calmement : « L'Empereur Divin peut être serein. Je ferai de mon mieux. »
 
-« Vous avez dit que vous soupçonniez l'Empereur Divin Azure Dragon d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
+« Vous avez dit que vous soupçonniez l'Empereur Divin Azure Dragon d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Cultivation. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
 
-« Avec la puissance actuelle de nos quatre Sectes Divins, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Azure Dragon. »
+« Avec la puissance actuelle de nos quatre Sectes Divins, nous ne pouvons pas encore rivaliser avec l'Alliance de Cultivation. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Azure Dragon. »
 
 La voix du vieil homme était empreinte de fatigue. Survivre aussi longtemps l'avait épuisé tant physiquement que mentalement. Mais il ne pouvait pas simplement abandonner les quatre Sectes Divins, alors il tenait bon pour la cause. Il devait endurer chaque jour la douleur incessante de son troisième Fléau Céleste.
 
-Wang Lin réfléchit un instant et, avant de reprendre sa culture, demanda doucement : « Y a-t-il des nouvelles de mon frère aîné, Qing Shui ? »
+Wang Lin réfléchit un instant et, avant de reprendre sa cultivation, demanda doucement : « Y a-t-il des nouvelles de mon frère aîné, Qing Shui ? »
 
 « Ce vieil homme a entendu le nom du Seigneur Céleste Qing Shui depuis longtemps. Nos quatre Sectes Divins ont déployé toute notre puissance pour le rechercher, et nous avons seulement trouvé que sa dernière apparition remonte à la partie centrale du Système d'Étoiles de l'Alliance. Il se trouvait donc dans la zone du quartier général de l'Alliance. »
 

@@ -24,7 +24,7 @@ Sun Lei reprit d'un ton solennel : « Compagnon cultivateur, dans un instant, je
 
 Wang Lin acquiesça. D'un geste de la main droite, il transforma le piège à bêtes en crapaud de tonnerre.
 
-« Un crapaud de tonnerre ! » Les pupilles de Sun Lei se rétractèrent en fixant Wang Lin. Il était désormais intimement convaincu que ce dernier dissimulait son niveau de culture. Comment aurait-il pu capturer une bête spirituelle aussi rare et de si haute qualité autrement ?
+« Un crapaud de tonnerre ! » Les pupilles de Sun Lei se rétractèrent en fixant Wang Lin. Il était désormais intimement convaincu que ce dernier dissimulait son niveau de cultivation. Comment aurait-il pu capturer une bête spirituelle aussi rare et de si haute qualité autrement ?
 
 Wang Lin dit calmement : « Commençons. »
 
@@ -86,7 +86,7 @@ Dix mille pieds n'étaient pas une distance insurmontable pour un cultivateur de
 
 Le visage de Sun Lei s'assombrit immédiatement. Il agita sa main droite en fixant Wang Lin du regard.
 
-Wang Lin dit calmement : « Frère Sun, continuez votre culture, je vais vous protéger. »
+Wang Lin dit calmement : « Frère Sun, continuez votre cultivation, je vais vous protéger. »
 
 Wang Lin soupira intérieurement. Il ignorait quelle pilule Sun Lei avait ingérée, mais elle lui avait permis de retrouver 80 % de ses forces malgré son état d'épuisement. Ce geste poussa Wang Lin à abandonner son plan initial.
 
@@ -96,7 +96,7 @@ Wang Lin ne répondit rien et s'assit en tailleur.
 
 Sun Lei resta sur ses gardes tout en absorbant rapidement les effets de la pilule. Trois heures plus tard, il était totalement rétabli et son regard envers Wang Lin n'était plus aussi hostile.
 
-Sun Lei se leva et dit : « Compagnon cultivateur, ma culture est restaurée. Et si nous rentrions ? »
+Sun Lei se leva et dit : « Compagnon cultivateur, ma cultivation est restaurée. Et si nous rentrions ? »
 
 Wang Lin acquiesça, se leva et s'élança vers l'une des sorties, avec Sun Lei en couverture immédiate.
 

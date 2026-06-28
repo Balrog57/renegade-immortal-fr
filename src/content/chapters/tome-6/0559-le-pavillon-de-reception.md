@@ -44,7 +44,7 @@ Un pavillon se dressait à une centaine de pieds devant lui. À l'intérieur se 
 
 Wang Lin réfléchit un instant, puis recula de quelques pas. Tandis qu'il observait attentivement, des lueurs de compréhension traversèrent son esprit, et son expression se fit de plus en plus grave.
 
-« Je vois... La restriction à l'intérieur du pavillon possède des dizaines de milliers de variations différentes. Si je ne parviens pas à les déchiffrer, dès que je m'approcherai à moins de cent pieds, elle s'activera. Si quelqu'un tentait de la briser par la force, face à ces dizaines de milliers de changements, il lui serait presque impossible de battre en retraite, à moins d'avoir une culture défiant les cieux. »
+« Je vois... La restriction à l'intérieur du pavillon possède des dizaines de milliers de variations différentes. Si je ne parviens pas à les déchiffrer, dès que je m'approcherai à moins de cent pieds, elle s'activera. Si quelqu'un tentait de la briser par la force, face à ces dizaines de milliers de changements, il lui serait presque impossible de battre en retraite, à moins d'avoir une cultivation défiant les cieux. »
 
 « De plus, le point crucial est que la restriction du pavillon est le centre de toutes les autres et peut activer tout ce qui l'entoure. C'est précisément pour cela que celui qui est passé avant a renoncé ! »
 

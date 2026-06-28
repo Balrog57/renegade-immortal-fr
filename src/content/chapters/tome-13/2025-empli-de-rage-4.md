@@ -40,7 +40,7 @@ Le festin sanglant venait de commencer ; ce premier massacre n'était que le pr�
 
 C'est à cet instant précis que neuf rayons de lumière atteignirent l'arrière de Wang Lin. Il s'agissait des neuf subordonnés de Xuan Luo. En voyant Wang Lin massacrer la garde, leurs visages pâlirent.
 
-« Vite, prévenez l'Empereur ! Wang Lin... il veut tuer l'Empereur ! » Bien que le vieillard possédant le niveau de culture le plus élevé fût un fidèle de Xuan Luo, sa ferveur envers le pouvoir impérial le poussa à désobéir aux ordres de son maître.
+« Vite, prévenez l'Empereur ! Wang Lin... il veut tuer l'Empereur ! » Bien que le vieillard possédant le niveau de cultivation le plus élevé fût un fidèle de Xuan Luo, sa ferveur envers le pouvoir impérial le poussa à désobéir aux ordres de son maître.
 
 À l'annonce de ces mots, les expressions des dix mille gardes changèrent radicalement. Ils furent d'abord stupéfaits par la puissance du coup de poing de Wang Lin, puis tirés de leur stupeur par cette révélation.
 
@@ -76,7 +76,7 @@ Chaque fois qu'il y pensait, il éclatait de rire et buvait une coupe de vin. Il
 
 « De quel droit as-tu obtenu le sang de l'Âme ? Je suis le descendant de l'Ancêtre Ancien ! De quel droit es-tu devenu le disciple de Xuan Luo alors que j'ai imploré amèrement sans être exaucé ? »
 
-« Quel droit as-tu ?! Tu n'es qu'une fourmi issue d'un monde caverneux, un simple barbare. Comment oses-tu te comparer à un génie comme moi ! Maintenant que tu entres dans mon Ancien Dao, tu n'oses même pas te mettre à genoux devant moi ? Wang Lin, tu as du cran. Tu ne me considères absolument pas. Peu importe ton niveau de culture ; au sein du clan Ancien, tu dois fléchir quand tu me vois ! »
+« Quel droit as-tu ?! Tu n'es qu'une fourmi issue d'un monde caverneux, un simple barbare. Comment oses-tu te comparer à un génie comme moi ! Maintenant que tu entres dans mon Ancien Dao, tu n'oses même pas te mettre à genoux devant moi ? Wang Lin, tu as du cran. Tu ne me considères absolument pas. Peu importe ton niveau de cultivation ; au sein du clan Ancien, tu dois fléchir quand tu me vois ! »
 
 « Si tu ne t'agenouilles pas, ce n'est pas grave. Après la cérémonie de demain, j'irai m'amuser avec mon impératrice, et je verrai quel goût a ta femme ! »
 

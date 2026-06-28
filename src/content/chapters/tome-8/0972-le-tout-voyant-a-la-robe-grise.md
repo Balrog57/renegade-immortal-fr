@@ -80,7 +80,7 @@ Puis, le Diable Dispersé est apparu et a une fois de plus perturbé ses dessein
 
 C'était la première fois que le Tout-Voyant se trompait en complotant contre moi ! » Les yeux de Wang Lin s'illuminèrent d'une compréhension soudaine alors qu'il fixait l'homme à la robe grise. Bien que cela semblât complexe, tout défila dans son esprit en un éclair.
 
-« Le Tout-Voyant s'est déjà trompé une fois en complotant contre moi ; c'est pourquoi, bien qu'il ait prévu la date de mon retour, il n'a pu calculer mon véritable niveau de culture ! » Les yeux de Wang Lin devinrent glacials. Il prit une profonde inspiration, l'esprit clair !
+« Le Tout-Voyant s'est déjà trompé une fois en complotant contre moi ; c'est pourquoi, bien qu'il ait prévu la date de mon retour, il n'a pu calculer mon véritable niveau de cultivation ! » Les yeux de Wang Lin devinrent glacials. Il prit une profonde inspiration, l'esprit clair !
 
 « Bien que cette erreur ne fût pas immense, elle constitue une faille pour le Tout-Voyant ! L'actuel Tout-Voyant n'est plus cet être parfait et infaillible ! Cette impasse n'est pas impossible à briser. Puisqu'il s'est trompé une fois, il pourrait se tromper une seconde ! »
 

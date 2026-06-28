@@ -12,7 +12,7 @@ Wang Lin se frotta les tempes, pris d'une migraine.
 
 Tandis qu'il hésitait, la nouvelle se répandit : un individu nommé Wang avait déclenché le feu terrestre, brûlé le Sect du Dragon Bleu, massacré des milliers de ses disciples, et vaincu quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
 
-Le Sect du Dragon Bleu était enragé. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour le Sect du Dragon Bleu. Cependant, face au niveau de culture de Du Qing et à ses liens avec le Grand Sect des Âmes, elles préférèrent s'en tenir à distance.
+Le Sect du Dragon Bleu était enragé. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour le Sect du Dragon Bleu. Cependant, face au niveau de cultivation de Du Qing et à ses liens avec le Grand Sect des Âmes, elles préférèrent s'en tenir à distance.
 
 Constater l'immense perte subie par le Sect du Dragon Bleu — la mort de milliers de disciples et les blessures graves de quatre Anciens — leur procurait à tous une joie secrète. Quant à leur coopération pour la traque de l'individu mystérieux, elle n'était que de façade.
 
@@ -40,9 +40,9 @@ Il n'était pas un homme indécis. Si l'enjeu de cet espace de stockage n'avait 
 
 « Même s'il est détruit, je dois récupérer certains objets. La plupart ne sont pas indispensables puisque j'ai la capacité d'en accumuler énormément ; je pourrai obtenir de nouveaux trésors sur le Continent Astral Immortel ! Et si je suis rapide, l'espace de stockage pourrait ne pas s'effondrer totalement ! »
 
-Une fois sa décision prise, Wang Lin ne doutait plus. Sa pleine culture se déploya et se concentra à l'intérieur de la grotte sans aucune fuite. À mesure que sa culture se condensait dans la cavité, l'espace environnant commença à se distordre.
+Une fois sa décision prise, Wang Lin ne doutait plus. Sa pleine cultivation se déploya et se concentra à l'intérieur de la grotte sans aucune fuite. À mesure que sa cultivation se condensait dans la cavité, l'espace environnant commença à se distordre.
 
-Cette distorsion ressemblait à une ondulation qui résonnait lentement dans la grotte, comme si tout ce qui s'y trouvait devenait solide. Ce n'était pas une solidification complète, mais cela suffisait à ralentir tout mouvement alentour. Il propagea sa pleine culture pour que l'atmosphère devienne semblable à un marécage, afin de retarder l'effondrement de l'espace de stockage.
+Cette distorsion ressemblait à une ondulation qui résonnait lentement dans la grotte, comme si tout ce qui s'y trouvait devenait solide. Ce n'était pas une solidification complète, mais cela suffisait à ralentir tout mouvement alentour. Il propagea sa pleine cultivation pour que l'atmosphère devienne semblable à un marécage, afin de retarder l'effondrement de l'espace de stockage.
 
 Et ce dont Wang Lin avait besoin, c'était de temps !
 

@@ -44,7 +44,7 @@ Du Tian paraissait encore plus vieux qu'auparavant et tout son corps dégageait 
 
 « Tu as percé le secret... Ce n'est pas grave ; il me reste encore quelques années. Je ne mourrai pas si tôt. » Du Tian laissa échapper un rire et, tandis qu'il riait, l'aura de mort autour de lui sembla s'atténuer.
 
-« Pas mal. En ces courtes années, ton niveau de culture a beaucoup progressé. Tu as déjà atteint le stade où tu dois absorber l'énergie spirituelle céleste pour raffiner ton corps. Si tu possèdes une grande quantité de jades célestes, alors ce ne sera qu'une question de temps avant que tu n'atteignes le stade de la Transformation de l'Âme ! » Du Tian observa Wang Lin de plus près. Ce qu'il vit le choqua et fit briller ses yeux d'un éclat intense.
+« Pas mal. En ces courtes années, ton niveau de cultivation a beaucoup progressé. Tu as déjà atteint le stade où tu dois absorber l'énergie spirituelle céleste pour raffiner ton corps. Si tu possèdes une grande quantité de jades célestes, alors ce ne sera qu'une question de temps avant que tu n'atteignes le stade de la Transformation de l'Âme ! » Du Tian observa Wang Lin de plus près. Ce qu'il vit le choqua et fit briller ses yeux d'un éclat intense.
 
 Wang Lin réfléchit un instant avant de demander : « L'aîné possède-t-il des jades célestes ? »
 
@@ -54,7 +54,7 @@ Wang Lin esquissa un léger sourire et secoua la tête. « Je reviendrais tout d
 
 Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin avec une expression approbatrice et sourit. « Bien, le drapeau d'âmes d'un milliard est à toi. Mon fragment d'âme sera aussi le tien dans quelques années ; par la même occasion, tout le Secte du Raffinement de l'Âme t'appartiendra ! Si cet endroit ne te plaît pas, tu pourras abandonner le secte ici présent, mais tu devras te souvenir de ma bonté à ton égard et tenir ta promesse.
 
-« Ce vieil homme n'exige qu'une seule chose : que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, mon Secte du Raffinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de mon Secte du Raffinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de mon secte : devenir un pays de culture de rang 6.
+« Ce vieil homme n'exige qu'une seule chose : que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, mon Secte du Raffinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de mon Secte du Raffinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de mon secte : devenir un pays de cultivation de rang 6.
 
 « Écoute bien, Ceng Niu ! »
 
@@ -88,7 +88,7 @@ Une lueur de joie passa dans les yeux de Du Tian et il hocha discrètement la t�
 
 « Mon Secte du Raffinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en visiterons deux ; si deux ne suffisent pas, nous irons vers une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
 
-« Lorsque j'ai atteint le stade de la Transformation de l'Âme, mon maître a pris le drapeau d'âmes d'un milliard et a pillé toutes les sectes des trois pays de culture de rang 5. » Tandis que Du Tian parlait, une fierté manifeste brillait dans son regard.
+« Lorsque j'ai atteint le stade de la Transformation de l'Âme, mon maître a pris le drapeau d'âmes d'un milliard et a pillé toutes les sectes des trois pays de cultivation de rang 5. » Tandis que Du Tian parlait, une fierté manifeste brillait dans son regard.
 
 Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que le Secte du Raffinement de l'Âme était véritablement tyrannique. Le drapeau d'âmes d'un milliard était un objet que même Suzaku redoutait. Avec un tel trésor, le Secte du Raffinement de l'Âme pouvait balayer la planète entière sans que personne n'ose s'y opposer. Il comprenait mieux comment ils avaient pu engendrer autant de cultivateurs de la Transformation de l'Âme ; tout le jade céleste qu'ils utilisaient avait été dérobé à autrui.
 

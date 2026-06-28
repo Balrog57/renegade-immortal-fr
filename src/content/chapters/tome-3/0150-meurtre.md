@@ -50,9 +50,9 @@ Une heure plus tard, le nombre de corps derrière Wang Lin était passé de quat
 
 Le dernier survivant était l'Ancien principal, Qian Kun, qui avait été le premier à s'enfuir. Plus il courait, plus sa terreur grandissait. Cette peur atteignit son paroxysme lorsque son sens divin détecta Wang Lin et les neuf corps qui volaient derrière lui. Il en eut le vertige.
 
-En si peu de temps, Wang Lin avait réussi à éliminer tous les autres cultivateurs au stade de la Formation du Noyau. Quel niveau de culture fallait-il pour accomplir un tel exploit ?
+En si peu de temps, Wang Lin avait réussi à éliminer tous les autres cultivateurs au stade de la Formation du Noyau. Quel niveau de cultivation fallait-il pour accomplir un tel exploit ?
 
-« Serait-il un cultivateur de l'Âme Naissante ? » Le cœur de Qian Kun trembla à cette idée, mais il la rejeta aussitôt. Lorsqu'ils avaient poursuivi Wang Lin auparavant, ils avaient clairement percé son niveau de culture : il n'était qu'au sommet du stade de l'Établissement des Fondations, un pseudo-cultivateur de la Formation du Noyau.
+« Serait-il un cultivateur de l'Âme Naissante ? » Le cœur de Qian Kun trembla à cette idée, mais il la rejeta aussitôt. Lorsqu'ils avaient poursuivi Wang Lin auparavant, ils avaient clairement percé son niveau de cultivation : il n'était qu'au sommet du stade de l'Établissement des Fondations, un pseudo-cultivateur de la Formation du Noyau.
 
 Si cela n'avait pas été le cas, ils ne l'auraient pas poursuivi avec autant de désinvolture. Pourtant, tout s'était déroulé si vite que Qian Kun crut un instant être en plein rêve — un cauchemar, en réalité.
 
@@ -64,7 +64,7 @@ Il mobilisa 120 % de son énergie spirituelle pour charger vers cette branche.
 
 La montagne Wu Ding était un massif imposant sur lequel étaient bâtis de nombreux pavillons. Elle avait appartenu à une immense secte il y a des millénaires, mais après sa chute, elle fut anéantie par le Secte de la Lutte contre le Mal et devint une de ses branches.
 
-Ce jour-là, alors que les disciples de la branche étaient en pleine culture, les deux anciens de la Formation du Noyau qui en avaient la charge, les frères Mu Nan et Mu Bei, sortirent de leurs quartiers.
+Ce jour-là, alors que les disciples de la branche étaient en pleine cultivation, les deux anciens de la Formation du Noyau qui en avaient la charge, les frères Mu Nan et Mu Bei, sortirent de leurs quartiers.
 
 Dans les airs, Qian Kun était exténué et meurtri. Il n'attendit même pas d'être à portée pour hurler : « Mu Nan, Mu Bei ! Je vous ordonne de rassembler tous les disciples de Wu Ding et d'arrêter l'individu qui me poursuit ! Ne laissez personne quitter la montagne Wu Ding ! Si vous réussissez, je vous récompenserai chacun de 10 000 pierres spirituelles de haute qualité ! » Sur ces mots, il s'enfuit dans un élan de panique.
 
@@ -86,9 +86,9 @@ Voyant l'inévitable, il laissa échapper un sourire pitoyable avant de se retou
 
 Ce jeton était le célèbre Jeton de l'Ordre de Meurtre des Cent Jours des Dix Mille Démons, une relique légendaire de la Mer des Démons. Issu d'une époque antique, sa méthode de fabrication était perdue depuis longtemps. Même dans toute la Mer des Démons, il n'en restait qu'une dizaine. Qian Kun l'avait obtenu par accident et l'avait immédiatement raffiné. Craignant que d'autres ne s'en emparent, il l'avait toujours gardé comme son ultime atout, espérant un jour augmenter la puissance de ses techniques grâce à lui.
 
-Les conditions d'activation de ce jeton étaient extrêmement strictes : il exigeait qu'un cultivateur au stade de la Formation du Noyau ou supérieur sacrifie sa propre vie pour l'activer. L'utilisateur verrait alors toute sa culture raffinée en une pilule, qui serait offerte à celui qui parviendrait à tuer la cible.
+Les conditions d'activation de ce jeton étaient extrêmement strictes : il exigeait qu'un cultivateur au stade de la Formation du Noyau ou supérieur sacrifie sa propre vie pour l'activer. L'utilisateur verrait alors toute sa cultivation raffinée en une pilule, qui serait offerte à celui qui parviendrait à tuer la cible.
 
-En raison de cette propriété unique, dès qu'un cultivateur démoniaque croisait une personne marquée, il l'attaquait sans relâche. C'est précisément à cause de ce prix exorbitant que les propriétaires de ces jetons les utilisaient rarement eux-mêmes ; ils préféraient trouver un cultivateur de la Formation du Noyau pour le forcer à l'activer, puis choisissaient une cible au hasard pour s'emparer facilement d'une pilule de culture.
+En raison de cette propriété unique, dès qu'un cultivateur démoniaque croisait une personne marquée, il l'attaquait sans relâche. C'est précisément à cause de ce prix exorbitant que les propriétaires de ces jetons les utilisaient rarement eux-mêmes ; ils préféraient trouver un cultivateur de la Formation du Noyau pour le forcer à l'activer, puis choisissaient une cible au hasard pour s'emparer facilement d'une pilule de cultivation.
 
 Par conséquent, le nombre de jetons avait drastiquement diminué ; affirmer qu'il en restait dix était peut-être encore un peu exagéré. Qian Kun avait initialement prévu de contraindre quelqu'un d'autre à l'utiliser, mais face à la mort imminente, il devint impitoyable et attendit que Wang Lin le rattrape.
 

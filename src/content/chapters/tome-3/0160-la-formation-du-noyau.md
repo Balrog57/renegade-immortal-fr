@@ -8,9 +8,9 @@ slug: la-formation-du-noyau
 ---
 Le doute qui l'habitait s'intensifiait. Après une courte réflexion, il disparut pour traverser Hou Fen à une vitesse effrayante, pénétrant dans l'un de ses pays limitrophes : Tian Mo.
 
-Son objectif était la Tour Céleste située au centre de Tian Mo. L'individu qui s'y trouvait était un messager provenant d'un pays de culture de rang supérieur.
+Son objectif était la Tour Céleste située au centre de Tian Mo. L'individu qui s'y trouvait était un messager provenant d'un pays de cultivation de rang supérieur.
 
-Tous les pays de culture de rang 3 ne possèdent pas de Tour Céleste ; Hou Fen et Xuan Wu n'en ont pas. C’est d'ailleurs la raison pour laquelle Hou Fen avait choisi d'envahir Xuan Wu plutôt que Tian Mo.
+Tous les pays de cultivation de rang 3 ne possèdent pas de Tour Céleste ; Hou Fen et Xuan Wu n'en ont pas. C’est d'ailleurs la raison pour laquelle Hou Fen avait choisi d'envahir Xuan Wu plutôt que Tian Mo.
 
 Le temps s'écoula lentement tandis que Wang Lin cultivait à l'intérieur de la Perle Défiant le Ciel. Bientôt, cent jours s'étaient écoulés.
 
@@ -24,15 +24,15 @@ Peu après que le mot « Punition » au-dessus de sa tête eut rétréci, Wang L
 
 Une flamme flottait au-dessus de la pilule. Wang Lin tendit la main et l'objet descendit vers lui pour s'immobiliser à un centimètre de sa paume.
 
-Il l'examina avec son Sens Divin et découvrit que l'énergie spirituelle contenue dans cette pilule correspondait exactement à la culture complète d'un expert au stade intermédiaire de la Formation du Noyau. Wang Lin se remémora les informations que Li Muwan lui avait transmises concernant l'ordre d'exécution. Après réflexion, il décida de la ranger plutôt que de l'utiliser immédiatement.
+Il l'examina avec son Sens Divin et découvrit que l'énergie spirituelle contenue dans cette pilule correspondait exactement à la cultivation complète d'un expert au stade intermédiaire de la Formation du Noyau. Wang Lin se remémora les informations que Li Muwan lui avait transmises concernant l'ordre d'exécution. Après réflexion, il décida de la ranger plutôt que de l'utiliser immédiatement.
 
-Wang Lin résolut de garder cette pilule pour lorsqu'il tenterait de former son Âme Naissante ; cela augmenterait ses chances de réussite. Les probabilités de former une Âme Naissante étaient bien moindres que celles de former son noyau doré. La raison principale de sa réussite lors de la Formation du Noyau résidait dans la méthode de culture de l'Ascension Souterraine et la pilule de Li Muwan.
+Wang Lin résolut de garder cette pilule pour lorsqu'il tenterait de former son Âme Naissante ; cela augmenterait ses chances de réussite. Les probabilités de former une Âme Naissante étaient bien moindres que celles de former son noyau doré. La raison principale de sa réussite lors de la Formation du Noyau résidait dans la méthode de cultivation de l'Ascension Souterraine et la pilule de Li Muwan.
 
 Sans l'un de ces éléments, il n'aurait peut-être pas réussi à former son noyau et serait peut-être resté bloqué éternellement au stade de l'Établissement des Fondations. Cependant, un obstacle encore plus redoutable l'attendait dans le futur : le stade de l'Âme Naissante.
 
-Former une Âme Naissante était d'une difficulté incommensurable. Wang Lin pensait que même avec le talent du corps de Ma Liang, il n'y avait presque aucun espoir, à moins de trouver ces légendaires pilules dont Li Muwan parlait, capables d'accroître les chances de réussite. Toutefois, la plupart de ces pilules se trouvaient dans des pays de culture de rang 5 ou supérieur, et elles ne s'échappaient que rarement.
+Former une Âme Naissante était d'une difficulté incommensurable. Wang Lin pensait que même avec le talent du corps de Ma Liang, il n'y avait presque aucun espoir, à moins de trouver ces légendaires pilules dont Li Muwan parlait, capables d'accroître les chances de réussite. Toutefois, la plupart de ces pilules se trouvaient dans des pays de cultivation de rang 5 ou supérieur, et elles ne s'échappaient que rarement.
 
-Wang Lin murmura pour lui-même : « Âme Naissante... Âme Naissante... même avec la Perle Défiant le Ciel, je crains qu'il ne me faille des centaines d'années pour réussir... Le plus important maintenant est de trouver une nouvelle méthode de culture. La méthode de l'Ascension Souterraine a atteint son apogée et Situ Nan dort toujours ; je dois donc compter sur moi-même. » La priorité absolue était de dénicher une méthode de culture adaptée au stade de la Formation du Noyau.
+Wang Lin murmura pour lui-même : « Âme Naissante... Âme Naissante... même avec la Perle Défiant le Ciel, je crains qu'il ne me faille des centaines d'années pour réussir... Le plus important maintenant est de trouver une nouvelle méthode de cultivation. La méthode de l'Ascension Souterraine a atteint son apogée et Situ Nan dort toujours ; je dois donc compter sur moi-même. » La priorité absolue était de dénicher une méthode de cultivation adaptée au stade de la Formation du Noyau.
 
 Mais choisir cette méthode s'avérait périlleux. Pour l'instant, toutes les techniques dont il disposait provenaient d'ennemis qu'il avait éliminés. Bien que certaines fussent compatibles avec un cultivateur de la Formation du Noyau, elles étaient toutes trop disparates, rendant tout choix complexe.
 
@@ -40,15 +40,15 @@ Cependant, ce n'était pas là l'enjeu principal. Son véritable but était de s
 
 Pourtant, ce qui déconcertait Wang Lin était la suivante : si le Sanctuaire du Dieu de la Guerre possédait réellement une telle méthode, entre l'avidité des habitants de leur propre pays et celle des nations de rang 4 ou 5, personne ne l'aurait laissé sans surveillance.
 
-Or, selon les souvenirs de Ma Liang, le Chemin Divin du Sanctuaire n'avait jamais suscité l'intérêt des puissances de culture supérieures. Cela troublait Wang Lin.
+Or, selon les souvenirs de Ma Liang, le Chemin Divin du Sanctuaire n'avait jamais suscité l'intérêt des puissances de cultivation supérieures. Cela troublait Wang Lin.
 
 Néanmoins, ce Chemin Divin était son unique piste. Il décida qu'il devait s'en emparer, quel qu'en soit le prix. Le Chemin Divin que Ma Liang connaissait n'était qu'une dérivation apprise d'un aîné ayant eu un aperçu du véritable chemin ; c'était donc une contrefaçon. Ce que Wang Lin convoitait, c'était l'original.
 
 Tout ce que Wang Lin entreprenait visait à garantir la formation future de son Âme Naissante. Seule une préparation minutieuse permettrait d'augmenter ses chances de succès au maximum.
 
-Mais une simple méthode de culture ne suffisait pas à lui donner pleine confiance. La formation d'une Âme Naissante était un exploit colossal. On disait d'ailleurs que la condition pour qu'un pays de culture de rang 2 accède au rang 3 était qu'un de ses membres atteigne le stade de l'Âme Naissante. Cela illustrait à lui seul l'ampleur de la tâche.
+Mais une simple méthode de cultivation ne suffisait pas à lui donner pleine confiance. La formation d'une Âme Naissante était un exploit colossal. On disait d'ailleurs que la condition pour qu'un pays de cultivation de rang 2 accède au rang 3 était qu'un de ses membres atteigne le stade de l'Âme Naissante. Cela illustrait à lui seul l'ampleur de la tâche.
 
-Wang Lin soupira intérieurement et retourna à sa culture. Après quelques jours supplémentaires dans la Perle Défiant le Ciel, il se prépara à sortir.
+Wang Lin soupira intérieurement et retourna à sa cultivation. Après quelques jours supplémentaires dans la Perle Défiant le Ciel, il se prépara à sortir.
 
 Avant de partir, il alla rendre visite à Situ Nan ainsi qu'aux âmes de ses parents. Après s'être tenu silencieusement à leurs côtés un instant, il quitta la perle.
 

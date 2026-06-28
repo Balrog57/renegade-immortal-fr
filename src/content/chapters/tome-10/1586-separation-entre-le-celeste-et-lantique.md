@@ -104,7 +104,7 @@ Mais au moment où il allait la saisir, un regard d'une froideur monstrueuse s'i
 
 Dès l'apparition du palais, le monde s'obscurcit ; le sang antique de Wang Lin atterrit sur l'une des fenêtres, la teintant de pourpre.
 
-« En mon nom, Ancient Wang Lin, je romps votre sceau pour vous accorder la liberté et m'aider à terrasser mon ennemi ! » Avec son niveau de culture actuel, Wang Lin ne pouvait ouvrir qu'une seule fenêtre et libérer une seule des puissantes âmes scellées par Ye Mo !
+« En mon nom, Ancient Wang Lin, je romps votre sceau pour vous accorder la liberté et m'aider à terrasser mon ennemi ! » Avec son niveau de cultivation actuel, Wang Lin ne pouvait ouvrir qu'une seule fenêtre et libérer une seule des puissantes âmes scellées par Ye Mo !
 
 Alors que sa voix résonnait et que le sang coulait, la fenêtre du palais noir trembla. Des craquements sinistres retentirent et elle s'effondra soudainement. Un rugissement puissant et exalté jaillit de l'ouverture brisée.
 

@@ -60,7 +60,7 @@ Une fois le quatrième symbole imprimé, la bête tonnerre ne lança plus de reg
 
 Wang Lin tendit sa main droite et le Char de Guerre Divin fut rangé dans son sac de rangement. Ses yeux brillèrent de réflexion : « Cette lueur dorée ne peut pas être une illusion de ma vue, alors pourquoi est-elle apparue... Même avec une corne argentée, elle reste assez puissante pour affronter des cultivateurs Ascendants du stade intermédiaire ! Bien que les indigènes ici soient faciles à traiter, comment un cultivateur ayant atteint le milieu de l'Ascendance pourrait-il être insignifiant ? Ils possèdent soit des sorts redoutables, soit des trésors incroyables, ou bien les deux ! »
 
-« Par conséquent, bien que je n'ose prétendre pouvoir vaincre n'importe quel cultivateur Ascendant du stade intermédiaire avec ma propre culture au stade initial... il est impossible qu'ils me tuent ! Et si je rencontre un cultivateur de ce niveau dont les sorts et les trésors sont plus faibles que les miens, je serai capable de l'éliminer ! »
+« Par conséquent, bien que je n'ose prétendre pouvoir vaincre n'importe quel cultivateur Ascendant du stade intermédiaire avec ma propre cultivation au stade initial... il est impossible qu'ils me tuent ! Et si je rencontre un cultivateur de ce niveau dont les sorts et les trésors sont plus faibles que les miens, je serai capable de l'éliminer ! »
 
 « Quant aux cultivateurs Ascendants du stade avancé... c'est tout simplement trop difficile ! » Wang Lin laissa échapper un soupir.
 
@@ -98,7 +98,7 @@ Lorsqu'il était entré dans les Terres de l'Esprit Démoniaque, il était prot�
 
 Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement : « Seigneur, ce subordonné... »
 
-Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre union de culture, tu dois obéir à tous les ordres. Si je n'avais pas fait honneur à ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin ?! »
+Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre union de cultivation, tu dois obéir à tous les ordres. Si je n'avais pas fait honneur à ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin ?! »
 
 Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même : « Je ne sais pas si le Wang Lin de ce Clan de l'Affinement des Âmes... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop ; il est impossible qu'ils soient le même homme. »
 
@@ -108,7 +108,7 @@ Cet homme était ordinaire et son expression était restée imperturbable tout c
 
 Une série de fines ondulations se propagea lentement depuis son corps, semblant fusionner avec l'environnement. Son aura avait presque totalement disparu. Un cultivateur ordinaire ne pourrait absolument pas détecter sa présence.
 
-Pouvoir se fondre dans les cieux et la terre et fusionner avec le vide signifiait que la culture de cet homme avait atteint le stade initial de l'Ascendance. Cependant, sa culture était étrange : il n'y avait aucune énergie originelle au sein de son âme originelle.
+Pouvoir se fondre dans les cieux et la terre et fusionner avec le vide signifiait que la cultivation de cet homme avait atteint le stade initial de l'Ascendance. Cependant, sa cultivation était étrange : il n'y avait aucune énergie originelle au sein de son âme originelle.
 
 Wang Lin, assis en position du lotus à l'intérieur de la tour, ouvrit soudainement les yeux. Un éclat de lumière jaillit de ses pupilles.
 

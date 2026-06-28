@@ -40,7 +40,7 @@ Cependant, à cet instant précis, une salve de symboles dorés jaillit comme l'
 
 La jeune fille en violet regarda les cultivateurs de la Formation du Noyau, le visage blême. Elle agita les mains et le brouillard dissimula sa silhouette.
 
-Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte de l'Éradication du Mal arrivèrent devant la brume. L'un des vieillards, dont la tête était nettement plus massive que celle de ses compagnons, se frotta le crâne et ricana : « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, l'image d'un dragon de mille pieds de long apparut.
+Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte de l'Éradication du Mal arrivèrent devant la brume. L'un des vieillards, dont la tête était nettement plus massive que celle de ses compagnons, se frotta le crâne et ricana : « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de cultivation. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, l'image d'un dragon de mille pieds de long apparut.
 
 Le cultivateur à la tête imposante poussa un cri et recula brusquement, les yeux écarquillés par la surprise. Les autres cultivateurs de la Formation du Noyau manifestèrent également leur étonnement en fixant le brouillard.
 
@@ -80,7 +80,7 @@ L'épée se posa lentement sur son épaule, émettant une lueur froide. Bien qu'
 
 Li Muwan fixa la boîte en bois dans sa main. D'un seul regard, elle comprit la valeur inestimable de ce fourneau et demanda : « Est-ce pour cela qu'ils vous poursuivent ? »
 
-Wang Lin ferma les yeux et se concentra sur sa culture tout en répondant nonchalamment : « Non. »
+Wang Lin ferma les yeux et se concentra sur sa cultivation tout en répondant nonchalamment : « Non. »
 
 Li Muwan le regarda avec une expression complexe. Avec son intelligence, elle avait déjà deviné que les dix cultivateurs traquaient ce fourneau. Wang Lin ignorait peut-être la valeur de l'objet, mais comment pourrait-elle l'ignorer ? Le prix d'un fourneau de rang 5 était astronomique.
 

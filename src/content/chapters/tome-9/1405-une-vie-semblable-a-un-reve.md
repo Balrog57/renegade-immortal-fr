@@ -34,7 +34,7 @@ Le regard du Maître Simo cachait une malveillance venimeuse. Son visage était 
 
 À présent, le Maître Simo n'osait plus faire preuve d'autant d'arrogance qu'auparavant, mais son intention meurtrière envers Wang Lin était devenue plus ardente encore.
 
-Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a étudié l'épreuve des Terres Déchues en profondeur. Ce petit bâtard ne pourra jamais réussir avec son niveau de culture ! »
+Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a étudié l'épreuve des Terres Déchues en profondeur. Ce petit bâtard ne pourra jamais réussir avec son niveau de cultivation ! »
 
 À ses côtés, la Grand Maître Yun Luo affichait également une expression sombre. Sa main, dissimulée dans sa manche droite, traçait furtivement quelques sceaux comme pour pratiquer la divination, tandis que son regard dérivait vers le Dao Maître Miao Yin.
 
@@ -46,7 +46,7 @@ Le Dao Maître Blue Dream observa calmement Wang Lin et soupira intérieurement.
 
 « En si peu de temps, cet enfant a réussi à détruire le Clan du Tonnerre Dispersé et s'est également lié profondément aux Terres Déchues. Je l'ai vraiment sous-estimé... En tant que l'un des cinq maîtres, j'ai la responsabilité de garder le Système Stellaire Antique, mais l'affaire entre lui et Yue Er... » Le Dao Maître Blue Dream regarda sa fille d'un regard complexe.
 
-« Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa culture méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient ? Que devrai-je faire... » En pensant à son épouse, le Dao Maître Blue Dream ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
+« Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa cultivation méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient ? Que devrai-je faire... » En pensant à son épouse, le Dao Maître Blue Dream ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
 
 L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était comme si rien au monde n'avait d'importance, hormis le combat contre l'ancien Oiseau Vermillon.
 

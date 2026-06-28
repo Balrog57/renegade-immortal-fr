@@ -70,7 +70,7 @@ Les cultivateurs étaient aussi des humains. Même s'ils atteignaient le troisi�
 
 L'avatar du Maître Céleste Dieu du Vide s'arrêta net, les yeux écarquillés par l'incrédulité. Il ressentait clairement une aura provenant de Wang Lin qui lui donnait l'impression que ce dernier était le monde lui-même. Cette présence le terrifiait. Elle s'engouffra dans son âme, lui infligeant le même choc qu'il avait ressenti lorsqu'il contemplait le ciel alors qu'il n'était qu'un simple mortel.
 
-Cette aura envahit son âme sans égard pour son niveau de culture ou son statut. Ces mots étaient comme la loi du monde, voire au-dessus de celle-ci. C'était le décret d'un empereur. Il était aussi impuissant qu'un mortel frappé par la foudre.
+Cette aura envahit son âme sans égard pour son niveau de cultivation ou son statut. Ces mots étaient comme la loi du monde, voire au-dessus de celle-ci. C'était le décret d'un empereur. Il était aussi impuissant qu'un mortel frappé par la foudre.
 
 Le Maître Céleste Dieu du Vide était terrifié. Il n'osait croire ses yeux et ne pouvait même plus contrôler son propre corps tremblant. À cet instant, il n'était pas différent de ce cultivateur de l'Établissement des Fondations issu du rêve de Wang Lin.
 
@@ -78,7 +78,7 @@ Le Maître Céleste Dieu du Vide était terrifié. Il n'osait croire ses yeux et
 
 Cette scène rendit le visage de Zhou Jin livide, ses yeux emplis de désespoir.
 
-Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement voulu s'avancer pour tuer Wang Lin, mais il se figea, son cœur dao devenant instable. Le sentiment que dégageait Wang Lin était identique à celui qu'il avait ressenti en rencontrant le grand érudit lorsqu'il n'était qu'un enfant, avant même de commencer sa culture.
+Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement voulu s'avancer pour tuer Wang Lin, mais il se figea, son cœur dao devenant instable. Le sentiment que dégageait Wang Lin était identique à celui qu'il avait ressenti en rencontrant le grand érudit lorsqu'il n'était qu'un enfant, avant même de commencer sa cultivation.
 
 Si ces trois-là étaient ainsi affectés, il ne fallait même pas parler des dizaines de milliers de cultivateurs du Royaume Extérieur. Ils reculèrent tous devant les paroles de Wang Lin, le fixant avec une peur infinie.
 
@@ -90,7 +90,7 @@ Briser la Porte du Vide !
 
 Wang Lin leva la tête vers la Porte qui surplombait la scène. Il avait attendu ce jour pendant plus de 2 000 ans. Il avait trop longtemps attendu !
 
-Lorsqu'il avait commencé sa culture, il n'avait jamais pensé qu'il deviendrait un cultivateur du troisième échelon, mais ce jour était enfin là !
+Lorsqu'il avait commencé sa cultivation, il n'avait jamais pensé qu'il deviendrait un cultivateur du troisième échelon, mais ce jour était enfin là !
 
 C'était la deuxième fois que Wang Lin faisait face à la Porte du Vide. La première fois, lorsque son essence de tonnerre avait atteint sa perfection, il n'avait pas été capable de l'ouvrir. Cependant, aujourd'hui, Wang Lin était certain de pouvoir briser la porte et atteindre le troisième échelon !
 
@@ -104,7 +104,7 @@ Une fois la porte brisée, il pourrait agir selon ses désirs !
 
 Une fois la porte brisée, il serait qualifié pour connaître le secret ultime séparant les Royaumes Intérieur et Extérieur !
 
-Dans sa jeunesse, il manquait de talent et sa culture était laborieuse. Il avait surmonté le premier et le deuxième échelon. Aujourd'hui, il briserait la Porte du Vide sous les yeux de dizaines de milliers de cultivateurs pour atteindre le troisième échelon !
+Dans sa jeunesse, il manquait de talent et sa cultivation était laborieuse. Il avait surmonté le premier et le deuxième échelon. Aujourd'hui, il briserait la Porte du Vide sous les yeux de dizaines de milliers de cultivateurs pour atteindre le troisième échelon !
 
 Wang Lin se souvenait clairement de l'attaque que Qing Shui avait utilisée avec l'essence de massacre contre la Porte du Vide ; cette attaque qui avait fait s'effondrer un pan de la structure.
 

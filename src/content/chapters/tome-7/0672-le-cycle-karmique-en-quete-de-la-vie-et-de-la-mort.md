@@ -38,9 +38,9 @@ Les deux s'élancèrent vers le nord et le sud sous forme de rayons de lumière 
 
 La voix du vieil homme était glaciale : « S'il a disparu il y a quatre ans, pourquoi ne traitons-nous la question que maintenant ? »
 
-Huan Fenshen répondit : « Ancêtre, cet homme n'était qu'un membre d'une branche familiale, mais son talent était remarquable, et sa culture avait atteint le milieu du stade Ascendant. C'est ainsi qu'il a obtenu une mission à l'étranger. Ancêtre, vous savez que notre famille Huan est trop vaste. En dehors des disciples directs, il est impossible de tous les suivre, même en cas de disparition. »
+Huan Fenshen répondit : « Ancêtre, cet homme n'était qu'un membre d'une branche familiale, mais son talent était remarquable, et sa cultivation avait atteint le milieu du stade Ascendant. C'est ainsi qu'il a obtenu une mission à l'étranger. Ancêtre, vous savez que notre famille Huan est trop vaste. En dehors des disciples directs, il est impossible de tous les suivre, même en cas de disparition. »
 
-Le vieil homme fronça les sourcils et demanda : « N'y a-t-il personne avec un niveau de culture plus élevé ? »
+Le vieil homme fronça les sourcils et demanda : « N'y a-t-il personne avec un niveau de cultivation plus élevé ? »
 
 Huan Fenshen murmura : « Ancêtre, le temps que vous nous avez accordé est trop court. Si vous me donniez trois mois de plus, je pourrais trouver une personne plus qualifiée. Mais pour l'instant, je suis dans l'incapacité de le faire. »
 
@@ -60,11 +60,11 @@ Liu Mei était chez elle. Elle regarda le ciel et dit doucement : « Planète Ra
 
 « Oui ! » Une silhouette surgit soudainement de l'ombre de Liu Mei. C'était un homme d'environ trente ans, très beau. Il apparut à genoux, levant les yeux vers le dos de Liu Mei avec une ferveur fanatique.
 
-Liu Mei se retourna et dit doucement à l'homme : « Ta culture a atteint le pic du milieu du stade Ascendant, il ne devrait donc y avoir aucun problème. Bien que cette affaire soit mineure, ce sera la première fois que j'agirai pour la famille Huan. Tu dois accomplir cela le plus vite possible. Comprends-tu, Huan Dong ? »
+Liu Mei se retourna et dit doucement à l'homme : « Ta cultivation a atteint le pic du milieu du stade Ascendant, il ne devrait donc y avoir aucun problème. Bien que cette affaire soit mineure, ce sera la première fois que j'agirai pour la famille Huan. Tu dois accomplir cela le plus vite possible. Comprends-tu, Huan Dong ? »
 
 « Madame, soyez sereine ; Huan Dong ne décevra pas votre confiance ! » Huan Dong prit une profonde inspiration, son regard fanatique s'intensifiant. Lorsqu'il avait vu Liu Mei pour la première fois, il avait été bouleversé ; il l'avait crue descendue des cieux.
 
-« Le cultivateur le plus puissant de la planète Ran Yun est l'ancêtre de la famille Ran. Son niveau de culture est identique au mien, au milieu du stade Ascendant. Même en multipliant son audace par cent, il n'osera pas résister. Ma mission ne fera certainement pas perdre la face à Mademoiselle. »
+« Le cultivateur le plus puissant de la planète Ran Yun est l'ancêtre de la famille Ran. Son niveau de cultivation est identique au mien, au milieu du stade Ascendant. Même en multipliant son audace par cent, il n'osera pas résister. Ma mission ne fera certainement pas perdre la face à Mademoiselle. »
 
 Liu Mei esquissa un sourire d'une beauté extrême. Huan Dong fut saisi de stupeur et resta figé un instant. La ferveur dans ses yeux devint encore plus intense, frôlant l'obsession.
 
@@ -78,7 +78,7 @@ Regardant la ville animée qui l'entourait, Wang Lin fronça légèrement les so
 
 Tout en réfléchissant, Wang Lin poussa un soupir. Il atteignit bientôt la partie nord de la ville. En voyant la jeune femme assise sous le rocher, il afficha un sourire.
 
-« Le cœur de cette femme est très pur. On ne trouve pas souvent des cultivateurs de ce genre dans le monde de la culture. »
+« Le cœur de cette femme est très pur. On ne trouve pas souvent des cultivateurs de ce genre dans le monde de la cultivation. »
 
 La jeune femme sembla percevoir une présence et ouvrit les yeux. En voyant Wang Lin, elle fut stupéfaite : « Toi... N'avais-tu pas été capturé ? »
 
@@ -86,7 +86,7 @@ Wang Lin sourit faiblement. « Il m'a laissé partir après m'avoir posé quelqu
 
 La jeune femme lui lança un regard perplexe mais n'insista pas. Chacun possède ses secrets ; si l'autre refusait de parler, questionner serait inutile.
 
-« Tu ferais mieux de prendre le temps de cultiver. Je vois que ta culture n'a pas progressé depuis ta dernière visite. Souviens-toi de ce que je t'ai dit la dernière fois. » La jeune femme le regarda avec sérieux et ajouta : « La diligence peut compenser le manque de talent ! »
+« Tu ferais mieux de prendre le temps de cultiver. Je vois que ta cultivation n'a pas progressé depuis ta dernière visite. Souviens-toi de ce que je t'ai dit la dernière fois. » La jeune femme le regarda avec sérieux et ajouta : « La diligence peut compenser le manque de talent ! »
 
 Wang Lin hocha la tête en souriant. « Travaille dur toi aussi, et efforce-toi d'atteindre le stade de la Formation de l'Âme. »
 

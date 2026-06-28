@@ -88,11 +88,11 @@ Il leva sa main droite et pressa le fragment céleste. Une lueur jaune jaillit t
 
 Il tapota ses vêtements comme pour balayer toute la morosité des derniers jours. Puis son corps se transforma en un rayon de lumière et il s'envola au loin.
 
-« Je deviendrai aussi fort que possible dans le Royaume Céleste du Tonnerre. Mes sorts sont encore bien insuffisants. Auparavant, mon niveau de culture n'était pas assez élevé pour prétendre aux sorts célestes. Cependant, avec ma culture actuelle, je suis assez fort pour participer aux batailles pour les grottes célestes.
+« Je deviendrai aussi fort que possible dans le Royaume Céleste du Tonnerre. Mes sorts sont encore bien insuffisants. Auparavant, mon niveau de cultivation n'était pas assez élevé pour prétendre aux sorts célestes. Cependant, avec ma cultivation actuelle, je suis assez fort pour participer aux batailles pour les grottes célestes.
 
 Mon objectif est un sort céleste ! Wan Er, ne t'inquiète pas, j'irai certainement sur la planète Dong Lin ! Dès qu'il y aura la moindre lueur d'espoir pour ton réveil, moi, Wang Lin, je ferai tout ce qui est en mon pouvoir pour me battre ! »
 
-Wang Lin plaça sa main droite entre ses sourcils. Sa progression en culture le rendait encore plus confiant quant à la résurrection de Li Muwan ! Outre l'évasion face à ces vieux monstres, la raison principale de sa venue dans le Système Stellaire d'Allheaven était de ressusciter Li Muwan !
+Wang Lin plaça sa main droite entre ses sourcils. Sa progression en cultivation le rendait encore plus confiant quant à la résurrection de Li Muwan ! Outre l'évasion face à ces vieux monstres, la raison principale de sa venue dans le Système Stellaire d'Allheaven était de ressusciter Li Muwan !
 
 Wang Lin ne cessait de penser à Li Muwan tout en traversant le vide. Son objectif était le fragment qui se trouvait devant lui.
 

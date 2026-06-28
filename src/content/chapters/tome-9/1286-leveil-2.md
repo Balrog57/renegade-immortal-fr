@@ -16,7 +16,7 @@ L'air de la vieille femme était sombre et elle tenait un jade à la main. Elle 
 
 Après une journée de marche, le continent sauvage où se trouvait Wang Lin apparut dans la brume devant elle.
 
-La vieille femme laissa échapper un froid reniflement et fit un pas en avant. Elle disparut pour réapparaître instantanément sur le continent sauvage. Son sens divin se déploya, révélant une culture au sommet du stade Briseur de Nirvana, et balaya l'étendue sauvage.
+La vieille femme laissa échapper un froid reniflement et fit un pas en avant. Elle disparut pour réapparaître instantanément sur le continent sauvage. Son sens divin se déploya, révélant une cultivation au sommet du stade Briseur de Nirvana, et balaya l'étendue sauvage.
 
 Elle trouva immédiatement la vallée qu'elle cherchait !
 
@@ -112,7 +112,7 @@ Wang Lin réfléchit un instant et demanda d'une voix feutrée : « Où est-elle
 
 « S'il existe vraiment un tel passage, comment pourrait-elle en revenir saine et sauve ? Et même s'il n'y en a pas, les bêtes qui hantent ces profondeurs sont terrifiantes. Elle va mourir !
 
-« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de culture a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre ? Le Secte Démon veut qu'elle meure sur le champ de bataille pour servir d'exemple !
+« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de cultivation a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre ? Le Secte Démon veut qu'elle meure sur le champ de bataille pour servir d'exemple !
 
 « Pour récupérer son sang d'âme, elle s'est déjà enfoncée dans les profondeurs du champ de bataille au sein de la fissure spatiale. Les gens du Secte Démon ne la laisseront pas revenir, alors elle n'a eu d'autre choix que de me demander d'apporter ce sang d'âme. Maintenant, tu sais ! Elle refusait que je te le dise, mais puisque tu as demandé, quel droit ai-je de te cacher la vérité ? Je veux que tu saches tout cela ! » La voix de la vieille femme était glaciale, et chaque mot frappait le cœur de Wang Lin comme une lame acérée.
 
@@ -124,7 +124,7 @@ La statue de pierre dans laquelle il s'était transformé était intrinsèquemen
 
 Des grondements titanesques résonnèrent alors que le continent entier commençait à se décomposer. Une faille gigantesque s'ouvrit, déchirant la terre en deux !
 
-Au moment où le continent sauvage s'effondrait, Wang Lin jaillit de sa prison ! Une aura de culture surpuissante émana de son corps, une puissance capable de faire trembler les cieux !
+Au moment où le continent sauvage s'effondrait, Wang Lin jaillit de sa prison ! Une aura de cultivation surpuissante émana de son corps, une puissance capable de faire trembler les cieux !
 
 Une fois libéré, il leva les yeux vers les étoiles et fit un pas en avant. Sa main se tendit et saisit la vieille femme.
 

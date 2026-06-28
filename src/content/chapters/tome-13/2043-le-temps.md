@@ -32,7 +32,7 @@ Wang Lin observa l'âme de l'Empereur Céleste entourée par son feu d'âme. Apr
 
 Le temps passa, et en un clin d'œil, trois années s'écoulèrent.
 
-Durant ces trois ans, nul ne vint perturber Wang Lin. Il n'avait pas bougé d'un pouce dans la chambre secrète. En son corps, le pouvoir ancestral et la culture céleste circulaient harmonieusement. Cependant, la fusion du pouvoir ancestral et céleste qu'il avait obtenue au Mont Gu Dao n'avait pas encore achevé un cycle complet ; elle n'avait progressé que d'une courte distance.
+Durant ces trois ans, nul ne vint perturber Wang Lin. Il n'avait pas bougé d'un pouce dans la chambre secrète. En son corps, le pouvoir ancestral et la cultivation céleste circulaient harmonieusement. Cependant, la fusion du pouvoir ancestral et céleste qu'il avait obtenue au Mont Gu Dao n'avait pas encore achevé un cycle complet ; elle n'avait progressé que d'une courte distance.
 
 L'âme de l'Empereur Céleste, en cours de raffinage par le feu d'âme, n'avait guère changé. Toutefois, la décomposition interne avait considérablement ralenti.
 
@@ -54,7 +54,7 @@ Une fois assis, le véritable corps des cinq éléments ferma les yeux. Il culti
 
 C'était la sixième année depuis le début de la méditation de Wang Lin. Une autre ombre se superposa à son corps et une intention meurtrière se propagea. Le véritable corps d'essence de tonnerre de massacre de Wang Lin apparut. Ses cheveux noirs flottaient alors qu'il marchait froidement vers un autre coin pour s'y asseoir.
 
-À cet instant, la scène dans la chambre secrète était proprement étrange : trois silhouettes identiques à Wang Lin étaient assises en triangle, plongées dans la culture.
+À cet instant, la scène dans la chambre secrète était proprement étrange : trois silhouettes identiques à Wang Lin étaient assises en triangle, plongées dans la cultivation.
 
 Quant à l'âme de l'Empereur Céleste, après six ans de combustion, la décomposition interne avait ralenti. Peut-être qu'un jour, une fois la corruption totalement éliminée, Wang Lin parviendrait à la raffiner lentement.
 
@@ -72,11 +72,11 @@ Désormais, il était confiant de pouvoir affronter un Grand Empereur Dao Yi au 
 
 « Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Lors de mon retour dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet du Vide Tribulant. Cela confirme que mes spéculations étaient justes !
 
-« Si je veux élever mon niveau de culture, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
+« Si je veux élever mon niveau de cultivation, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
 
 « Quant aux éléments nécessaires pour parachever ce corps... Le Maître... Il m'a emmené dans de nombreux lieux à travers le clan Ancien et a réuni suffisamment d'objets... » Wang Lin soupira et détourna le regard. Son regard semblait transpercer les murs, s'étendre vers la montagne arrièrer du Temple de l'Ancien Dao, pour atteindre le vieil homme qui n'était plus jeune.
 
-Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne pas sortir de sa méditation tant que son niveau de culture n'aurait pas augmenté. Il devait s'élever non seulement pour surmonter le Grand Empereur Song Tian, mais aussi pour ne plus craindre le Grand Empereur Gu Dao.
+Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne pas sortir de sa méditation tant que son niveau de cultivation n'aurait pas augmenté. Il devait s'élever non seulement pour surmonter le Grand Empereur Song Tian, mais aussi pour ne plus craindre le Grand Empereur Gu Dao.
 
 Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empereur Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
 
@@ -84,7 +84,7 @@ Plus important encore, il lui fallait la puissance nécessaire pour pénétrer d
 
 « L'attitude du Grand Empereur Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
 
-Son chemin de culture était radicalement différent de celui des autres. C'était une voie qu'il avait tracée lui-même, et lui seul pouvait décider de la direction à prendre. Seule l'expérimentation lui révélerait l'issue.
+Son chemin de cultivation était radicalement différent de celui des autres. C'était une voie qu'il avait tracée lui-même, et lui seul pouvait décider de la direction à prendre. Seule l'expérimentation lui révélerait l'issue.
 
 « Ce véritable corps d'essence de tonnerre de massacre est constitué d'essences spéciales. L'essence du tonnerre a déjà formé un véritable corps, mais les autres n'en sont qu'à leur stade d'achèvement.
 
@@ -98,7 +98,7 @@ Un autre nuage de brume scintillait d'innombrables symboles étranges. À mesure
 
 Quant aux deux derniers nuages, l'un émettait une lumière éclatante tandis que l'autre était plongé dans l'obscurité totale. Ils représentaient respectivement le début absolu et la fin absolue.
 
-« Ce n'est que lorsque les quatre essences auront formé leurs propres véritables corps et fusionneront en un véritable corps d'essence de tonnerre de massacre complet que mon niveau de culture pourra franchir le sommet du Vide Tribulant !
+« Ce n'est que lorsque les quatre essences auront formé leurs propres véritables corps et fusionneront en un véritable corps d'essence de tonnerre de massacre complet que mon niveau de cultivation pourra franchir le sommet du Vide Tribulant !
 
 « Cela correspondra peut-être à un Empereur Exalté ou un Empereur Ascendant, mais il est possible que ce soit autre chose, un royaume inconnu... Peut-être même un Grand Empereur ! » Les yeux de Wang Lin étaient empreints d'attente. D'après ses connaissances, les Empereurs Exaltés et les Empereurs Ascendants n'étaient que des êtres au sommet du Vide Tribulant. Cependant, l'ascension vers le rang de Grand Empereur était si ardue qu'elle avait été subdivisée en plusieurs échelons.
 

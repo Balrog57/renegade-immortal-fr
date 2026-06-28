@@ -30,13 +30,13 @@ Ses yeux étaient calmes tandis que son doigt pointait l'âme originelle à plus
 
 Un moment plus tard, Wang Lin posa sa main droite sur le sommet de l'âme originelle et déploya son Sens Divin. Il utilisa directement la Recherche d'Âme sur elle.
 
-Des souvenirs affluèrent dans l'esprit de Wang Lin, incluant la méthode de culture des Cinq Poisons et les expériences de cette femme. Enfin, Wang Lin trouva le souvenir concernant la recette de la pilule et la pierre de jade.
+Des souvenirs affluèrent dans l'esprit de Wang Lin, incluant la méthode de cultivation des Cinq Poisons et les expériences de cette femme. Enfin, Wang Lin trouva le souvenir concernant la recette de la pilule et la pierre de jade.
 
 Le temps passa lentement. À la tombée de la nuit, Wang Lin retira sa main droite. Il rangea l'âme originelle affaiblie, mais pas encore morte, puis il regarda la pierre de jade en commençant à réfléchir.
 
 Wang Lin découvrit ce qui s'était passé avec le Secte de la Brisure Céleste il y a 18 000 ans et comprit également le rôle de cette pierre de jade.
 
-Elle ne contenait ni sorts ni méthodes de culture. Ce n'était qu'un jeton d'identification : la marque du disciple principal du Secte de la Brisure Céleste d'il y a 18 000 ans !
+Elle ne contenait ni sorts ni méthodes de cultivation. Ce n'était qu'un jeton d'identification : la marque du disciple principal du Secte de la Brisure Céleste d'il y a 18 000 ans !
 
 Cette personne s'appelait Sima Mo. Sans cet accident, il serait devenu le prochain maître du Secte de la Brisure Céleste. C'est lui qui avait pris l'os de bête et un groupe de cultivateurs pour se séparer du secteur et disparaître dans le Système Stellaire de la Mer Nuageuse.
 
@@ -54,7 +54,7 @@ Wang Lin regarda silencieusement la pierre de jade et, après un long moment, la
 
 « Je pourrais m'en servir grandement à l'avenir ! » Il ne s'inquiéta plus de la pierre ni de la recette. Une fois apaisé, il s'immergea dans l'alchimie.
 
-Non seulement il avait récolté une grande quantité d'herbes sur le continent sauvage, mais il avait également rassemblé de nombreuses âmes de bêtes. Il s'agissait principalement de bêtes de rang 5, parfaitement adaptées au niveau de culture actuel de Wang Lin.
+Non seulement il avait récolté une grande quantité d'herbes sur le continent sauvage, mais il avait également rassemblé de nombreuses âmes de bêtes. Il s'agissait principalement de bêtes de rang 5, parfaitement adaptées au niveau de cultivation actuel de Wang Lin.
 
 Il restait d'autres âmes dans son sac : celles des bêtes spirituelles des membres du Secte de la Fleur Claire, tuées par le cadavre femelle argenté puis collectées.
 
@@ -82,7 +82,7 @@ Après avoir étudié cette méthode, Wang Lin en calcula secrètement le coût,
 
 Wang Lin ne choisit pas le Secte de l'Origine pour ses tests, mais trouva une grotte dans une montagne quelque part sur le continent. Il installa un grand nombre de restrictions avant d'y placer des âmes de bêtes de rang 5 et d'y verser du poison. Après avoir observé pendant quelques jours qu'elles se dévoraient bien entre elles, il ajouta d'autres restrictions et retourna au Secte de l'Origine.
 
-Après plusieurs jours de culture, Wang Lin sortit les pilules qu'il avait raffinées, y compris celle de rang 8, et commença à les avaler. La première fut une pilule de rang 5.
+Après plusieurs jours de cultivation, Wang Lin sortit les pilules qu'il avait raffinées, y compris celle de rang 8, et commença à les avaler. La première fut une pilule de rang 5.
 
 L'âme de bête à l'intérieur ne put opposer aucune résistance à l'âme originelle de Wang Lin et se dissipa immédiatement. Elle fusionna avec son âme originelle, plongeant Wang Lin dans un état mystérieux.
 

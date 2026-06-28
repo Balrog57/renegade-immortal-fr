@@ -24,7 +24,7 @@ Du Jian expira longuement. Ce qu'il craignait par-dessus tout, c'était que Wang
 
 Il observa les sept épées précieuses qui flottaient dans les airs. L'énergie originelle de Wang Lin entourait les lames, et des éclairs les reliaient entre elles.
 
-« C'est sans doute la grotte secrète de Wang Lin. Cet homme est impitoyable, je ne peux donc pas rester ici, mais malheureusement ma culture n'est pas assez élevée. Si... si seulement je pouvais atteindre le stade Ascendant ! » Du Jian était déjà à un demi-pas du stade Ascendant ; cependant, il n'était pas prêt à faire ce dernier pas et à affronter l'épreuve de la vie ou de la mort.
+« C'est sans doute la grotte secrète de Wang Lin. Cet homme est impitoyable, je ne peux donc pas rester ici, mais malheureusement ma cultivation n'est pas assez élevée. Si... si seulement je pouvais atteindre le stade Ascendant ! » Du Jian était déjà à un demi-pas du stade Ascendant ; cependant, il n'était pas prêt à faire ce dernier pas et à affronter l'épreuve de la vie ou de la mort.
 
 Pourtant, face au danger, il serra les dents. Bien que son âme originelle fût scellée, il était confiant de pouvoir se libérer en empruntant l'énergie de sa percée vers le stade Ascendant.
 
@@ -42,7 +42,7 @@ Du Jian réfléchit. Il ne demanda pas de quelle sorte de fortune il s'agissait.
 
 Wang Lin hocha silencieusement la tête.
 
-Du Jian ferma soudainement les yeux. Le niveau de culture de Wang Lin était bien supérieur au sien et celui-ci pouvait le tuer sans effort ; il n'y avait donc pas besoin de complications inutiles. Bien qu'il fût toujours perplexe, il se trouvait à un moment de vie ou de mort et n'avait vraiment pas le temps de réfléchir.
+Du Jian ferma soudainement les yeux. Le niveau de cultivation de Wang Lin était bien supérieur au sien et celui-ci pouvait le tuer sans effort ; il n'y avait donc pas besoin de complications inutiles. Bien qu'il fût toujours perplexe, il se trouvait à un moment de vie ou de mort et n'avait vraiment pas le temps de réfléchir.
 
 « Je vais tenter ma chance ! »
 
@@ -60,7 +60,7 @@ Si Du Jian ne l'avait pas provoqué, tout aurait été différent ; Wang Lin ne 
 
 « Si vous échouez et mourez sur la voie du Dao, cela pourra être considéré comme une mort digne pour un cultivateur. Si vous réussissez, je vous offrirai une grande fortune. Quant au succès ou à l'échec, tout dépendra de votre chance ! »
 
-La culture de Du Jian suivait la volonté des cieux, contrairement à celle de Wang Lin qui se révoltait contre eux. Le temps passa et l'énergie originelle céleste à l'intérieur de son corps devint de plus en plus intense. Bientôt, son âme originelle s'échappa et commença à fusionner avec cette énergie.
+La cultivation de Du Jian suivait la volonté des cieux, contrairement à celle de Wang Lin qui se révoltait contre eux. Le temps passa et l'énergie originelle céleste à l'intérieur de son corps devint de plus en plus intense. Bientôt, son âme originelle s'échappa et commença à fusionner avec cette énergie.
 
 Le temps s'écoula. Plus d'une heure passa sans qu'aucune anomalie ne survienne dans l'âme originelle de Du Jian. Cela fit briller les yeux de Wang Lin.
 
@@ -92,7 +92,7 @@ Le cœur de Du Jian bondit et il demanda amèrement : « Si ce rituel est si dé
 
 Les yeux de Wang Lin se firent mystérieux : « Si vous êtes encore en vie après mille ans, je vous accorderai la liberté ! » Il y avait une condition cruciale pour raffiner un Gardien Céleste. La moindre résistance de la part du sujet entraînerait l'échec immédiat du processus.
 
-L'Empereur Céleste Qin Lin possédait de nombreux gardiens célestes. Cependant, tous ceux qu'il choisissait étaient des êtres d'une loyauté absolue envers lui. C'était le prix à payer pour une culture puissante, il n'avait donc jamais à s'en inquiéter.
+L'Empereur Céleste Qin Lin possédait de nombreux gardiens célestes. Cependant, tous ceux qu'il choisissait étaient des êtres d'une loyauté absolue envers lui. C'était le prix à payer pour une cultivation puissante, il n'avait donc jamais à s'en inquiéter.
 
 À cet instant, Wang Lin utilisait la méthode même de l'empereur céleste.
 

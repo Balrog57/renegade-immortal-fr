@@ -36,7 +36,7 @@ L'expression de Wang Lin resta calme alors que son regard balayait l'empereur. L
 
 Wang Lin dit lentement : « Qu'as-tu dit ? Répète encore une fois. »
 
-Ce vieil homme possédait la culture d'un Ascendant Empereur, mais malgré cela, sous le regard de Wang Lin, son visage se décomposa.
+Ce vieil homme possédait la cultivation d'un Ascendant Empereur, mais malgré cela, sous le regard de Wang Lin, son visage se décomposa.
 
 Il pâlit instantanément et son pouvoir ancien gronda dans son corps. Il ressentit une pression émanant du corps de Wang Lin qu'il fut incapable de supporter.
 
@@ -72,7 +72,7 @@ Xuan Luo restait immobile sur le côté. Il savait que si Wang Lin souhaitait re
 
 En réalité, au début, Xuan Luo ne s'en inquiétait pas car Wang Lin était alors très faible. Juste après avoir quitté le monde des grottes, il aurait été plus facile pour lui d'accepter cette autorité.
 
-Cependant, la progression de Wang Lin avait dépassé toutes les attentes de Xuan Luo. Bien qu'il fût fier de son évolution, il éprouvait un regret : au niveau de culture actuel de Wang Lin, il lui faudrait bien plus de temps pour accepter le joug de la famille impériale.
+Cependant, la progression de Wang Lin avait dépassé toutes les attentes de Xuan Luo. Bien qu'il fût fier de son évolution, il éprouvait un regret : au niveau de cultivation actuel de Wang Lin, il lui faudrait bien plus de temps pour accepter le joug de la famille impériale.
 
 « C'est mon engagement... Je peux endurer cela ! » Wang Lin soupira. Il avait parfaitement perçu les intentions de l'Empereur, mais ne souhaitait pas en discuter davantage. Dans un soupir, il fit quelques pas en avant et accepta le jade. Puis, il joignit les mains devant l'Empereur.
 

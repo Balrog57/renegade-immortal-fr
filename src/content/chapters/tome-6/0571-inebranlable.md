@@ -24,7 +24,7 @@ Le sergent expliqua : « La Prison Hong regorge de criminels dangereux et est lo
 
 Wang Lin observa attentivement la Prison Hong. Il avait déjà remarqué cet endroit auparavant, car il recelait plusieurs énergies spirituelles démoniaques dont la puissance n'était pas inférieure à celle de Mo Lihai. Après une courte réflexion, Wang Lin se dirigea vers le Manoir Mo.
 
-De retour au domaine, Wang Lin se rendit directement à la résidence de Mo Lihai. Ce dernier était en pleine culture ; lorsqu'il entendit Wang Lin ouvrir la porte, il ouvrit les yeux.
+De retour au domaine, Wang Lin se rendit directement à la résidence de Mo Lihai. Ce dernier était en pleine cultivation ; lorsqu'il entendit Wang Lin ouvrir la porte, il ouvrit les yeux.
 
 « Je souhaite me rendre à la Prison Hong. Le frère Mo aurait-il un moyen ? »
 
@@ -56,7 +56,7 @@ Pourtant, même ainsi, le voile d'énergie spirituelle démoniaque protégeant M
 
 Wang Lin dit d'une voix lente : « Si j'en avais eu plus de mille, pourriez-vous toujours les bloquer si aisément... ? »
 
-Le regard de Mo Lihai s'anima. Ce n'était pas la première fois qu'il faisait face à cette énergie de massacre, mais elle était bien plus puissante que lors des deux précédentes rencontres. Il déclara avec détermination : « Un mois est trop long pour moi, mais sept jours ne posent aucun problème. La Prison Hong compte des dizaines de milliers de criminels ; sept jours devraient vous suffire pour votre culture ! Attendez-moi, je vous obtiendrai une lettre d'entrée dans trois jours ! »
+Le regard de Mo Lihai s'anima. Ce n'était pas la première fois qu'il faisait face à cette énergie de massacre, mais elle était bien plus puissante que lors des deux précédentes rencontres. Il déclara avec détermination : « Un mois est trop long pour moi, mais sept jours ne posent aucun problème. La Prison Hong compte des dizaines de milliers de criminels ; sept jours devraient vous suffire pour votre cultivation ! Attendez-moi, je vous obtiendrai une lettre d'entrée dans trois jours ! »
 
 Wang Lin hocha la tête et quitta la pièce.
 

@@ -58,13 +58,13 @@ Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une 
 
 Teng One était également perplexe face aux techniques de Wang Lin, mais au milieu de cette confusion, une lueur de compréhension semblait poindre. Cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
 
-Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng One pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
+Il existait trop de méthodes dans le monde de la cultivation pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng One pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
 
 Cette méthode n'appartenait pas à Zhao, mais au messager de la Tour Céleste.
 
 En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qui expliquait pourquoi le Domaine de Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
 
-Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de culture de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
+Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de cultivation de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
 
 Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes : deux marionnettes de l'Âme Naissante obtenues auprès du vieil homme Ji Mo.
 
@@ -108,7 +108,7 @@ Simultanément, l'immense figure s'inclina devant Wang Lin, s'avança vers le so
 
 Punnan Zi, qui était en plein vol, s'arrêta net, son expression changeant radicalement. Il déploya précipitamment son sens divin pour vérifier.
 
-Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine culture et fixa la direction de Wang Lin avec incrédulité.
+Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine cultivation et fixa la direction de Wang Lin avec incrédulité.
 
 « Ceci... ceci est la Technique d'Ouverture du Ciel du Clan des Démons Géants ! »
 

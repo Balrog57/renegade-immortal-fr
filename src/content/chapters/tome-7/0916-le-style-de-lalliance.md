@@ -24,13 +24,13 @@ Les premières victimes furent les bêtes féroces qui, prises de panique, se di
 
 Les quelques cultivateurs stationnés dans les environs pâlirent, l'esprit secoué par ces sons, et s'enfuirent précipitamment de leurs quartiers. Ils ne voulaient plus rester une seconde de plus.
 
-Le garçon à la grosse tête haletait, fixant avec stupéfaction le Tampon de Scellement Céleste des Dix-huit Enfers. Grâce à son niveau de culture, il comprit immédiatement que ce trésor était hors du commun.
+Le garçon à la grosse tête haletait, fixant avec stupéfaction le Tampon de Scellement Céleste des Dix-huit Enfers. Grâce à son niveau de cultivation, il comprit immédiatement que ce trésor était hors du commun.
 
 Les pupilles de Lei Ji se rétractèrent. Face aux dix-huit couches de l'enfer, il ressentit une peur viscérale, venant du plus profond de son cœur.
 
 Wang Lin frappa son sac de rangement et deux sphères de lumière apparurent dans sa main. Il s'agissait de deux âmes originelles. L'une appartenait au Vice-Maître de la Salle de Rancœur du Secte des Cadavres, et l'autre était ce que ce dernier avait offert à Wang Lin pour lui sauver la vie.
 
-Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce de l'Éveil du Nirvana étaient cruciales pour restaurer sa culture. Il les garda au cas où il en aurait besoin plus tard.
+Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce de l'Éveil du Nirvana étaient cruciales pour restaurer sa cultivation. Il les garda au cas où il en aurait besoin plus tard.
 
 À cet instant, il se redressa, fixa le ciel, forma un sceau de la main et pointa le Tampon de Scellement Céleste. Celui-ci rétrécit et fut englouti par Wang Lin.
 
@@ -38,7 +38,7 @@ Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans 
 
 À ce moment précis, toute la région occidentale était sous l'emprise des cultivateurs d'Allheaven. Tandis que des masses imposantes de ces derniers traversaient le tunnel entre les deux systèmes, ils prenaient possession des planètes une à une. Il était évident qu'ils considéraient désormais cet endroit comme faisant partie d'Allheaven !
 
-Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs d'Allheaven s'épaississait. Il n'y avait pas une seule planète de culture de rang 7 dans cette région, seulement des planètes de rang 6. Tout cela était fort étrange.
+Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs d'Allheaven s'épaississait. Il n'y avait pas une seule planète de cultivation de rang 7 dans cette région, seulement des planètes de rang 6. Tout cela était fort étrange.
 
 Cependant, rien ne changea pendant très longtemps. Malgré leurs doutes persistants, ils lancèrent une seconde vague d'attaques sur ordre du Temple Céleste du Tonnerre. Leur cible, cette fois, était la région nord.
 
@@ -48,7 +48,7 @@ En passant, ils générèrent un fracas tel que l'espace lui-même semblait sur 
 
 Les épées volantes défiaient la hauteur du ciel et menaçaient de faire basculer le monde. Inconsciemment, elles dégageaient une sensation de pouvoir inverser le temps et fendre les cieux.
 
-Les cultivateurs d'Allheaven étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de culture pour poursuivre leur progression.
+Les cultivateurs d'Allheaven étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de cultivation pour poursuivre leur progression.
 
 Le Maître Flamespark, porté par une sphère de flammes avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
 
@@ -58,7 +58,7 @@ Ils furent contraints de poursuivre leur offensive dans la région nord car ils 
 
 De vastes cohortes de cultivateurs d'Allheaven chevauchant des rayons d'énergie d'épée traversèrent la région occidentale pour atteindre la région nord.
 
-Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Allheaven. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de culture.
+Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Allheaven. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de cultivation.
 
 Des centaines de cultivateurs vivaient sur cette planète ; ils tentèrent de fuir dans une panique totale. Mais ce qu'ils aperçurent fut la dernière chose qu'ils virent de leur vie.
 
@@ -80,9 +80,9 @@ Tous les cultivateurs d'Allheaven situés dans un rayon de dizaines de milliers 
 
 À cet instant, ce ne fut pas la seule planète à exploser. Cela arriva partout.
 
-Toutes les planètes de culture de la région occidentale s'effondrèrent avec frénésie, formant une onde de choc titanesque qui envahit toute la région !
+Toutes les planètes de cultivation de la région occidentale s'effondrèrent avec frénésie, formant une onde de choc titanesque qui envahit toute la région !
 
-Un tel mouvement n'était l'apanage que de l'Alliance de Culture. « Puisque tous les cultivateurs d'Allheaven sont venus, alors je vous laisserai tous mourir dans la région occidentale ! »
+Un tel mouvement n'était l'apanage que de l'Alliance de Cultivation. « Puisque tous les cultivateurs d'Allheaven sont venus, alors je vous laisserai tous mourir dans la région occidentale ! »
 
 Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant pour massacrer les forces d'Allheaven !
 
@@ -94,7 +94,7 @@ Ce fut un véritable massacre. La plupart des cultivateurs d'Allheaven ne purent
 
 À mesure que les failles spatiales s'élargissaient, des vents glacials en jaillirent pour se fondre dans la tempête, formant un vortex gigantesque. Ce vortex était si vaste qu'il couvrit la majeure partie de la région occidentale, coupant ainsi la route aux cultivateurs d'Allheaven qui tentaient de rejoindre le Système Stellaire d'Allheaven par le tunnel depuis la région nord.
 
-Alors que la tempête allait se dissiper, d'innombrables silhouettes apparurent et des matrices de transfert se matérialisèrent les unes après les autres. Les cultivateurs de l'Alliance de Culture sortirent des matrices.
+Alors que la tempête allait se dissiper, d'innombrables silhouettes apparurent et des matrices de transfert se matérialisèrent les unes après les autres. Les cultivateurs de l'Alliance de Cultivation sortirent des matrices.
 
 « Tuez ! » Des rugissements capables de fendre les étoiles retentirent !
 

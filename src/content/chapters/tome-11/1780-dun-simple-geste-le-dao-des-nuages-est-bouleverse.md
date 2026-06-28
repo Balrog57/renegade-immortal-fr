@@ -66,7 +66,7 @@ Mais rien ne garantissait que cela arriverait. De plus, Wang Lin ne voulait pas 
 
 Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi !
 
-« ...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme le Dao Céleste des Nuages. Vos niveaux de culture ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction : seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
+« ...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme le Dao Céleste des Nuages. Vos niveaux de cultivation ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction : seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
 
 Zhou Li baissa la tête, ses yeux trahissant un désir qu'il peinait à dissimuler.
 

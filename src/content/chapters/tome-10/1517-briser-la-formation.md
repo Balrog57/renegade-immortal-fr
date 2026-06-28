@@ -18,7 +18,7 @@ Alors qu'il songeait à cela, Maître Enlighten East tourna soudainement son reg
 
 Une pression écrasante se propagea depuis un grondement sourd, étouffant instantanément les rugissements furieux des 90 000 cultivateurs. Ce son assourdissant attira rapidement tous les regards vers la source du fracas.
 
-Un palais noir gigantesque apparut soudainement. Il était d'une démesure absolue, de la taille d'une planète de culture, et entouré d'un brouillard infini qui le rendait indistinct !
+Un palais noir gigantesque apparut soudainement. Il était d'une démesure absolue, de la taille d'une planète de cultivation, et entouré d'un brouillard infini qui le rendait indistinct !
 
 On ne pouvait distinguer que vaguement des milliers de cultivateurs vêtus de noir flottant autour du palais. Tous portaient la même marque entre les sourcils : une épée noire !
 
@@ -78,11 +78,11 @@ Après un long moment, il laissa échapper un soupir et agita sa main droite. La
 
 À l'extérieur de la Formation de Scellement du Domaine, le monde adjacent au palais noir trembla. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse !
 
-Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Dao Maître Blue Dream, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
+Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Dao Maître Blue Dream, de sa cultivation et liée à son esprit, contenait de puissantes Flammes Joss.
 
-Dans la partie extrême occidentale de l'Ancien Système Stellaire, le monde revêtait une teinte blanchâtre. Tout cultivateur s'y aventurant ressentait un froid glacial envahir son esprit. Même en activant leur culture, ils risquaient d'être gelés !
+Dans la partie extrême occidentale de l'Ancien Système Stellaire, le monde revêtait une teinte blanchâtre. Tout cultivateur s'y aventurant ressentait un froid glacial envahir son esprit. Même en activant leur cultivation, ils risquaient d'être gelés !
 
-Au loin se trouvaient neuf planètes de culture. De loin, elles ressemblaient à neuf blocs de glace massifs ou, pour être plus précis, à une seule et unique entité !
+Au loin se trouvaient neuf planètes de cultivation. De loin, elles ressemblaient à neuf blocs de glace massifs ou, pour être plus précis, à une seule et unique entité !
 
 Un bloc de glace gigantesque abritant neuf planètes gelées !
 

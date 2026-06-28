@@ -18,9 +18,9 @@ En vérité, non seulement lui, mais n'importe quel cultivateur de l'Yin Illusoi
 
 Si des cultivateurs du premier niveau avaient vu Wang Lin, ils n'auraient pas eu le cœur serré ; ils auraient ressenti un choc, un immense choc ! Il faut dire que si ce genre de trésor était apparu sur la planète Suzaku il y a huit cents ans, cela aurait déclenché une tempête, et même Zhuque Zi s'en serait emparée.
 
-Inconsciemment, après mille ans de culture, Wang Lin avait atteint un tel état d'esprit qu'il était prêt à briser un trésor de cette trempe simplement pour percer le sortilège qui y était scellé.
+Inconsciemment, après mille ans de cultivation, Wang Lin avait atteint un tel état d'esprit qu'il était prêt à briser un trésor de cette trempe simplement pour percer le sortilège qui y était scellé.
 
-Après mille ans de culture, non seulement sa puissance avait progressé, mais ses horizons s'étaient également élargis. Peu de trésors pouvaient désormais attirer son attention. Même les objets faibles qu'il conservait dans son sac ne l'étaient que par affection particulière ou parce qu'ils l'avaient accompagné durant ses mille ans de culture.
+Après mille ans de cultivation, non seulement sa puissance avait progressé, mais ses horizons s'étaient également élargis. Peu de trésors pouvaient désormais attirer son attention. Même les objets faibles qu'il conservait dans son sac ne l'étaient que par affection particulière ou parce qu'ils l'avaient accompagné durant ses mille ans de cultivation.
 
 Peu importe la faiblesse d'un objet, il devait au moins être un trésor céleste pour captiver l'attention d'un messager du Temple Céleste du Tonnerre ; et pourtant, Wang Lin l'avait broyé avec désinvolture. Même détruit, cela ne lui aurait causé aucun regret.
 
@@ -76,7 +76,7 @@ Wang Lin ne ressentit aucune fatigue et ne marqua aucune pause. Le fragment éta
 
 Il avait placé une quantité indéterminée de Runes de Scellement lorsque le fragment émit une lueur dorée pâle. Pourtant, Wang Lin ne cessa pas. Il continua d'en ajouter, une par une.
 
-Trois jours plus tard, Wang Lin se posa au sol et commença immédiatement à cultiver. Son visage était légèrement pâle. Durant ces trois jours, il avait utilisé son énergie d'origine sans relâche. Même avec sa culture, il avait atteint ses limites.
+Trois jours plus tard, Wang Lin se posa au sol et commença immédiatement à cultiver. Son visage était légèrement pâle. Durant ces trois jours, il avait utilisé son énergie d'origine sans relâche. Même avec sa cultivation, il avait atteint ses limites.
 
 Le fragment de mille pieds s'était réduit à environ huit cents pieds. Il émettait toujours une lueur dorée, bien que plus sombre désormais.
 
@@ -92,7 +92,7 @@ Cinq jours plus tard, Wang Lin atterrit au sol. Son visage était livide et ses 
 
 « À partir d'aujourd'hui, ceci est un trésor que j'ai moi-même raffiné. Je l'appellerai le Sceau Céleste ! » La voix de Wang Lin résonna dans les cieux. Devant lui se trouvait un sceau de trois pouces qui émettait une lumière aveuglante. Si un mortel l'avait vu, la lueur dorée aurait percé ses yeux et détruit son esprit.
 
-Même un cultivateur de bas niveau sentirait son esprit vaciller et une douleur fulgurante envahir son corps, comme s'il était transpercé par d'innombrables épées. Même un cultivateur de culture avancée aurait l'impression que son âme originelle était en train d'être scellée rien qu'en le regardant.
+Même un cultivateur de bas niveau sentirait son esprit vaciller et une douleur fulgurante envahir son corps, comme s'il était transpercé par d'innombrables épées. Même un cultivateur de cultivation avancée aurait l'impression que son âme originelle était en train d'être scellée rien qu'en le regardant.
 
 Le petit sceau de trois pouces brillait intensément, chargé d'une riche énergie spirituelle céleste et entouré d'une puissante aura de scellement.
 
@@ -102,6 +102,6 @@ Plus de 600 000 runes avaient été fusionnées dans ce fragment de mille pieds,
 
 En contemplant le Sceau Céleste, ses yeux s'illuminèrent et sa main se remit à bouger pour y placer des restrictions. L'énergie spirituelle céleste du sceau fut progressivement dissimulée, et même la majeure partie de son aura de scellement fut cachée.
 
-Un instant plus tard, sa puissance était totalement occultée. Le trésor qui allait bouleverser le monde de la culture, le Sceau Céleste, était né !
+Un instant plus tard, sa puissance était totalement occultée. Le trésor qui allait bouleverser le monde de la cultivation, le Sceau Céleste, était né !
 
 « Cette apparence correspond parfaitement à l'image idéale du trésor que je portais en moi ! » Wang Lin regarda le sceau, lequel ne différait en rien d'un objet ordinaire, et ses yeux brillèrent d'une satisfaction profonde.

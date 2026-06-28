@@ -62,7 +62,7 @@ Les anciens de ces familles étaient des êtres rusés et comprirent naturelleme
 
 Cependant, ce faisant, ils avaient propagé le nom de « Xu Mu » partout.
 
-En particulier, ceux qui avaient été secourus par Xu Mu ne cessaient d'exagérer ses exploits. En fin de compte, personne ne pouvait deviner le niveau de culture de Xu Mu !
+En particulier, ceux qui avaient été secourus par Xu Mu ne cessaient d'exagérer ses exploits. En fin de compte, personne ne pouvait deviner le niveau de cultivation de Xu Mu !
 
 Les anciens interrogèrent les témoins. Lorsqu'ils entendirent parler des divers sorts utilisés lors du combat contre l'étrange homme aux cheveux blancs, ils furent terrifiés.
 
@@ -130,7 +130,7 @@ Au moment où il émergea, son expression changea.
 
 C'était effectivement la fin du brouillard, mais à trois cents pieds devant lui se dressait un mur de chair rouge sombre. Il était colossal et semblait s'étendre à l'infini. Même en levant les yeux, le mur recouvrait encore tout le ciel.
 
-Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de culture. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
+Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de cultivation. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
 
 En voyant ce mur de chair, Wang Lin comprit que l'obstacle qu'il avait percuté était cet immense rempart organique !
 

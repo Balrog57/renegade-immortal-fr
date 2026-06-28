@@ -22,9 +22,9 @@ Il avait gardé Wang Lin pendant trois ans. Bien qu'il ne fût pas le seul ici, 
 
 Maintenant que la première scission était achevée, il sentait qu'il n'y avait plus de raison de rester. Il ne se retourna pas en regagnant sa Montagne d'Origine. Il cessa de prêter attention au temple ancestral et se remit à cultiver.
 
-Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à l'intérieur du temple ancestral, l'ombre surplombant sa tête était bien plus vaste qu'auparavant. Bien que son niveau de culture n'ait pas augmenté, il sentait qu'il était devenu plus puissant !
+Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à l'intérieur du temple ancestral, l'ombre surplombant sa tête était bien plus vaste qu'auparavant. Bien que son niveau de cultivation n'ait pas augmenté, il sentait qu'il était devenu plus puissant !
 
-Avec son niveau de culture actuel, même une infime augmentation de force était prodigieuse !
+Avec son niveau de cultivation actuel, même une infime augmentation de force était prodigieuse !
 
 « Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang de l'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement du Ciel ? » murmura Wang Lin pour lui-même.
 

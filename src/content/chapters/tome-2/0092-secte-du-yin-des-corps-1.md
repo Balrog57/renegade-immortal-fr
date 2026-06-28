@@ -48,7 +48,7 @@ Faisant abstraction du coup de poing reçu, Wang Lin était très satisfait de l
 
 Wang Lin murmura pour lui-même : « Il est temps de partir. Une fois que j'aurai atteint le cinquième niveau de la Méthode d'Ascension des Enfers, je devrai m'en aller. »
 
-« Je dois trouver des lieux au Yin extrême, absolument ! », se dit-il. Wang Lin savait qu'il devait débusquer un Yin extrême car, pour franchir les niveaux supérieurs de sa méthode de culture, il lui faudrait une énergie Yin de qualité bien plus élevée.
+« Je dois trouver des lieux au Yin extrême, absolument ! », se dit-il. Wang Lin savait qu'il devait débusquer un Yin extrême car, pour franchir les niveaux supérieurs de sa méthode de cultivation, il lui faudrait une énergie Yin de qualité bien plus élevée.
 
 Bien que les ruines regorgent d'une énergie Yan dense, Wang Lin savait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1.
 

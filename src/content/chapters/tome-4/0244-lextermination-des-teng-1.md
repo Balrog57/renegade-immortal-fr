@@ -76,7 +76,7 @@ Mais dès que son énergie spirituelle toucha l'objet, son corps trembla et il s
 
 Le jeune homme s'arrêta brusquement. Il leva la tête et, le regard glacial, il déclara : « Tu ne pourras pas t'échapper ! »
 
-Les pensées de Wang Lin devinrent chaotiques. Il hésita un instant, les yeux durcis par la froideur. Bien qu'il ne puisse percevoir le niveau de culture du jeune homme, une telle vitesse indiquait que celui-ci était bien au-dessus de lui.
+Les pensées de Wang Lin devinrent chaotiques. Il hésita un instant, les yeux durcis par la froideur. Bien qu'il ne puisse percevoir le niveau de cultivation du jeune homme, une telle vitesse indiquait que celui-ci était bien au-dessus de lui.
 
 Wang Lin remarqua surtout que la terre sur laquelle ce jeune homme planait était la Mer des Démons. Il était évident que cet être maléfique était la momie de Hou Fen. Puisque Wang Lin avait pris son sac, il était venu le réclamer.
 

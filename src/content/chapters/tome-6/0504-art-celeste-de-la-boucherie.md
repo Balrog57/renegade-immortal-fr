@@ -110,7 +110,7 @@ Le Voyant hocha la tête, agita ses manches et déclara : « Je t'ai enseigné u
 
 Wang Lin fit quelques pas en arrière avant de lever soudainement la tête : « Maître, ce disciple souhaite quitter la secte pour s'entraîner ! »
 
-Le Voyant ne se retourna pas, mais sa voix résonna : « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang inférieur à 6 pour y servir d'émissaire. Cependant, ne sois pas en retard pour la Mer Démoniaque Orientale dans trois mois ! »
+Le Voyant ne se retourna pas, mais sa voix résonna : « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de cultivation de rang inférieur à 6 pour y servir d'émissaire. Cependant, ne sois pas en retard pour la Mer Démoniaque Orientale dans trois mois ! »
 
 Sur ces mots, la silhouette du Voyant pénétra dans la tour et disparut. Un jeton blanc vola hors de la tour pour atterrir dans la main de Wang Lin. Simultanément, une force douce émana de la tour, propulsant Wang Lin loin de la montagne.
 
@@ -130,4 +130,4 @@ Une fois Wang Lin entré, l'espace ondula et un homme d'âge moyen vêtu de roug
 
 Peu après, Wang Lin quitta la Division Rouge et regarda vers l'ouest.
 
-« Pays de culture de rang 5, Lin Yue ! »
+« Pays de cultivation de rang 5, Lin Yue ! »

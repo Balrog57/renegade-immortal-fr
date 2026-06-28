@@ -12,21 +12,21 @@ Wang Lin observa attentivement la jeune fille alors qu'elle s'élevait vers les 
 
 Il descendit de la montagne et rejoignit les bâtiments situés près du centre de la chaîne de montagnes.
 
-L'homme d'âge moyen était alors en pleine culture, les yeux clos. Lorsque Wang Lin atterrit, l'homme lui jeta un regard distrait, mais ses yeux se remplirent instantanément de stupeur et il fixa le jeune homme, les yeux écarquillés.
+L'homme d'âge moyen était alors en pleine cultivation, les yeux clos. Lorsque Wang Lin atterrit, l'homme lui jeta un regard distrait, mais ses yeux se remplirent instantanément de stupeur et il fixa le jeune homme, les yeux écarquillés.
 
 « Quoi ?! Tu as atteint le stade intermédiaire de l'Établissement des Fondations ! » Le visage de l'homme était empreint de choc.
 
-Wang Lin soupira intérieurement. Puisque son âme originelle s'était effondrée, il ne pouvait plus dissimuler son niveau de culture ; ce cultivateur du stade de la Formation du Noyau avait donc pu voir clair en lui.
+Wang Lin soupira intérieurement. Puisque son âme originelle s'était effondrée, il ne pouvait plus dissimuler son niveau de cultivation ; ce cultivateur du stade de la Formation du Noyau avait donc pu voir clair en lui.
 
 Wang Lin pensa : « Je dois rapidement récupérer mon âme originelle, sinon cela deviendra problématique à l'avenir. » Il dit respectueusement : « Le disciple était déjà au bord de la percée et, comme cet endroit regorge d'énergie spirituelle, j'ai eu la chance de franchir le stade intermédiaire de l'Établissement des Fondations. »
 
-L'expression de l'homme d'âge moyen ne changea pas, mais il se mit à réfléchir. Les paroles de Wang Lin n'avaient rien d'anormal, mais sa vitesse de culture était un peu trop rapide.
+L'expression de l'homme d'âge moyen ne changea pas, mais il se mit à réfléchir. Les paroles de Wang Lin n'avaient rien d'anormal, mais sa vitesse de cultivation était un peu trop rapide.
 
 Il observa attentivement Wang Lin et, après avoir mémorisé son identité, demanda : « Pourquoi es-tu venu ici ? »
 
 Wang Lin joignit les mains et répondit : « Le disciple souhaite changer de grotte pour une autre disposant de plus d'énergie spirituelle. »
 
-L'homme d'âge moyen fronça les sourcils. « Les cultivateurs ne devraient pas être trop gourmands. Ta vitesse de culture est trop élevée, ta fondation en sera instable. Si tu continues ainsi, tu n'atteindras jamais le stade de la Formation du Noyau ! »
+L'homme d'âge moyen fronça les sourcils. « Les cultivateurs ne devraient pas être trop gourmands. Ta vitesse de cultivation est trop élevée, ta fondation en sera instable. Si tu continues ainsi, tu n'atteindras jamais le stade de la Formation du Noyau ! »
 
 Wang Lin réfléchit un instant et dit : « Le disciple comprend, mais j'espère que ce senior acceptera ma demande. »
 
@@ -44,7 +44,7 @@ Ce n'est qu'une fois celui-ci parti que les yeux de l'homme d'âge moyen s'illum
 
 En un clin d'œil, il pénétra à l'intérieur de la grotte. Il l'inspecta un moment sans rien trouver d'anormal, puis se mit à réfléchir.
 
-« Étais-je trop paranoïaque ? Était-il vraiment sur le point de faire une percée, ce qui expliquerait sa vitesse de culture si rapide ? » L'homme d'âge moyen réfléchit encore un peu avant de sortir de la grotte. Il décida de porter une attention particulière à cet individu nommé Qian Mu.
+« Étais-je trop paranoïaque ? Était-il vraiment sur le point de faire une percée, ce qui expliquerait sa vitesse de cultivation si rapide ? » L'homme d'âge moyen réfléchit encore un peu avant de sortir de la grotte. Il décida de porter une attention particulière à cet individu nommé Qian Mu.
 
 Wang Lin vola le long de la montagne avec son jeton jusqu'à trouver la grotte 803. La taille de la grotte était identique à celle de la 1090, mais au centre se trouvait une petite formation.
 
@@ -60,7 +60,7 @@ Les yeux des veines spirituelles étaient comme les points d'acupuncture sur le 
 
 « Cet endroit ne peut pas être un véritable œil de veine spirituelle ; il doit s'agir d'un faux œil ! » Après l'avoir observée, Wang Lin en perçut le secret.
 
-Bien que sa culture fût scellée par le domaine du thé et le sceau, il était un cultivateur au stade de la Formation de l'Âme. Fort de ses 500 ans d'expérience, il fut instantanément capable de déchiffrer la formation.
+Bien que sa cultivation fût scellée par le domaine du thé et le sceau, il était un cultivateur au stade de la Formation de l'Âme. Fort de ses 500 ans d'expérience, il fut instantanément capable de déchiffrer la formation.
 
 Il faut dire que même des cultivateurs de la Formation du Noyau auraient eu du mal à la comprendre. Seuls ceux du stade de l'Âme Naissante pourraient la déceler, mais ils peineraient encore énormément à en saisir le mécanisme.
 
@@ -82,7 +82,7 @@ En y ajoutant trois pierres spirituelles de qualité supérieure, la concentrati
 
 Cultiver ici permettrait une progression fulgurante.
 
-Wang Lin s'immergea dans sa culture et oublia le temps qui passait. Son corps entier fut recouvert d'une couche de givre spirituel.
+Wang Lin s'immergea dans sa cultivation et oublia le temps qui passait. Son corps entier fut recouvert d'une couche de givre spirituel.
 
 Lorsque l'énergie spirituelle atteint une certaine densité et ne peut plus circuler, elle se condense en un givre bleu. À présent, tout le sol de la grotte était tapissé de ce givre azuré, créant un spectacle magnifique.
 
@@ -90,13 +90,13 @@ Une quantité encore plus importante de givre s'était accumulée sur le corps d
 
 L'énergie spirituelle s'accumulait lentement dans le corps de Wang Lin. Simultanément, le domaine et le sceau du thé absorbaient également cette énergie, devenant plus robustes. Ils étaient désormais plusieurs fois plus résistants qu'auparavant.
 
-Le temps s'écoula et Wang Lin resta en culture fermée pendant deux mois.
+Le temps s'écoula et Wang Lin resta en cultivation fermée pendant deux mois.
 
-Durant ces deux mois, son corps n'avait pas bougé d'un pouce. Il avait utilisé tout ce temps pour élever sans cesse son niveau de culture.
+Durant ces deux mois, son corps n'avait pas bougé d'un pouce. Il avait utilisé tout ce temps pour élever sans cesse son niveau de cultivation.
 
 Toutefois, plus son niveau augmentait, plus les besoins en énergie spirituelle croissaient, ralentissant ainsi sa progression. En deux mois, il n'avait pu atteindre que le stade avancé de l'Établissement des Fondations. Il restait encore une certaine distance avant d'atteindre le sommet de ce stade.
 
-Les trois pierres spirituelles de qualité supérieure s'étaient totalement transformées en poussière, ce qui fit mal au cœur de Wang Lin. Il avait décidé de ne plus utiliser de pierres de qualité supérieure pour sa culture.
+Les trois pierres spirituelles de qualité supérieure s'étaient totalement transformées en poussière, ce qui fit mal au cœur de Wang Lin. Il avait décidé de ne plus utiliser de pierres de qualité supérieure pour sa cultivation.
 
 Ce jour-là, le regard de Wang Lin se posa sur la formation de la pièce. Sa paume frappa le sol et la formation vola en éclats, révélant celle qui se trouvait en dessous.
 
@@ -112,7 +112,7 @@ Sa main traça un sceau et l'énergie spirituelle de son corps se mit en mouveme
 
 Cette restriction illusoire était une création propre à Wang Lin et différait grandement des restrictions ordinaires. Avec son niveau actuel, créer des restrictions classiques était aisé, mais les restrictions illusoires étaient extrêmement ardues.
 
-À l'époque où il se trouvait dans la Terre de l'Ancien Dieu, avec sa culture de la Formation du Noyau, il ne pouvait en créer que quelques-unes. Aujourd'hui, alors qu'il n'était qu'au stade avancé de l'Établissement des Fondations, il parvenait à peine à en réaliser une seule.
+À l'époque où il se trouvait dans la Terre de l'Ancien Dieu, avec sa cultivation de la Formation du Noyau, il ne pouvait en créer que quelques-unes. Aujourd'hui, alors qu'il n'était qu'au stade avancé de l'Établissement des Fondations, il parvenait à peine à en réaliser une seule.
 
 Les mouvements de la main de Wang Lin s'accélérèrent jusqu'à ce que toutes les images se fondent en une seule. Il pointa alors la formation et poussa un cri ; la restriction illusoire frappa soudainement le mécanisme.
 
@@ -122,7 +122,7 @@ Une fois la force dissipée, la formation cessa de fonctionner et l'énergie spi
 
 La pierre était rouge et semblait contenir des nuages en mouvement à l'intérieur. Wang Lin l'identifia immédiatement : il s'agissait d'une Pierre Kun Cristalline. Elle possédait la capacité d'absorber l'énergie spirituelle, mais non celle de la stocker.
 
-Sans un mot, Wang Lin pressa sa main droite sur la pierre rouge et commença sa culture.
+Sans un mot, Wang Lin pressa sa main droite sur la pierre rouge et commença sa cultivation.
 
 Bang !
 
@@ -132,4 +132,4 @@ Sous l'assaut de cette puissante vague d'énergie, il sentit ses pores s'ouvrir 
 
 Wang Lin ressentit une grande satisfaction. Il ne pensait pas que l'absorption directe depuis l'œil de la veine spirituelle produirait un tel effet, mais il savait que cela ne serait efficace qu'une seule fois. Une fois cette poussée d'énergie stabilisée, il devrait trouver un œil de veine spirituelle encore plus puissant pour obtenir un résultat similaire.
 
-Wang Lin prit une profonde inspiration et chassa toute distraction de son esprit. L'énergie spirituelle émanant de la Pierre Kun Cristalline se régularisa progressivement jusqu'à ne plus être aussi féroce qu'auparavant. Wang Lin se replongea alors lentement dans sa culture.
+Wang Lin prit une profonde inspiration et chassa toute distraction de son esprit. L'énergie spirituelle émanant de la Pierre Kun Cristalline se régularisa progressivement jusqu'à ne plus être aussi féroce qu'auparavant. Wang Lin se replongea alors lentement dans sa cultivation.

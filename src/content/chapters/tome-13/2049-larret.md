@@ -8,7 +8,7 @@ slug: larret
 ---
 Wang Lin détourna son regard de la scène où l'on piétinait le ciel. La dernière chose qu'il avait contemplée était la vaste mer séparant le clan céleste du clan ancestral, et plus particulièrement les neuf piliers qui formaient la porte du Royaume Divin Immémorial.
 
-Cependant, même avec son niveau de culture, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
+Cependant, même avec son niveau de cultivation, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
 
 Wang Lin fixa la mer déchaînée et, après un long moment, ferma les yeux. À l'instant même où il les ferma, son regard disparut du Continent Astral Immortel.
 
@@ -82,7 +82,7 @@ Son père et sa mère n'étaient pas des cultivateurs, et les mortels ne peuvent
 
 « La famille, l'amour et l'amitié sont les piliers de ma vie. Pourquoi devrais-je fermer les yeux ? Je veux garder les yeux ouverts et tout embrasser. J'ouvrirai mon cœur de Dao pour accueillir la totalité de mon existence ! » Wang Lin prit une profonde inspiration et reprit sa marche.
 
-Après neuf pas, il revit ses parents ; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit l'enfant pauvre tirer sur ses vêtements et lui demander avec sérieux de se mettre à la culture. L'enfant voulait accompagner son père toute sa vie, refusant de quitter ce monde et de le laisser seul. Si son père devait rester seul, il souhaitait que sa présence puisse subsister à ses côtés.
+Après neuf pas, il revit ses parents ; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit l'enfant pauvre tirer sur ses vêtements et lui demander avec sérieux de se mettre à la cultivation. L'enfant voulait accompagner son père toute sa vie, refusant de quitter ce monde et de le laisser seul. Si son père devait rester seul, il souhaitait que sa présence puisse subsister à ses côtés.
 
 Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieil Oiseau Vermillon et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
 

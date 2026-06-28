@@ -40,7 +40,7 @@ Cependant, les deux autres dragons noirs ne s'arrêtèrent pas et chargèrent di
 
 Un rire s'éleva de la brume rouge, qui se dissipa pour révéler l'homme d'âge moyen. Ses yeux étaient brillants et il se déplaçait comme une illusion. Il passa inopinément entre les deux dragons et chargea Wang Lin.
 
-« Xu Mu, ne cherche plus à cacher ton niveau de culture ! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scrutateur du Nirvana, tu dois être un cultivateur du Nettoyant du Nirvana ! »
+« Xu Mu, ne cherche plus à cacher ton niveau de cultivation ! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scrutateur du Nirvana, tu dois être un cultivateur du Nettoyant du Nirvana ! »
 
 Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Nettoyant du Nirvana ne se trouvait dans le Royaume de la Massacre. Cependant, son Sens Divin n'étant qu'au stade de Scrutateur du Nirvana, il ne pouvait les détecter.
 
@@ -58,7 +58,7 @@ Bien que l'expression de l'homme d'âge moyen fût calme, son cœur était troub
 
 Pourtant, il ignorait pourquoi il ressentait une telle peur dès qu'il apercevait Xu Mu. C'était comme si une aura puissante émanait de lui, une force qui le rendait lui-même méfiant.
 
-« Cet homme cache impérativement sa culture ! » L'homme d'âge moyen ne sous-estima pas Wang Lin, mais le traitait comme un égal en termes de niveau. Sa main droite forma un sceau et il pointa l'adversaire. D'innombrables éclats de lumière se rassemblèrent dans sa paume.
+« Cet homme cache impérativement sa cultivation ! » L'homme d'âge moyen ne sous-estima pas Wang Lin, mais le traitait comme un égal en termes de niveau. Sa main droite forma un sceau et il pointa l'adversaire. D'innombrables éclats de lumière se rassemblèrent dans sa paume.
 
 « Extraction de l'énergie originelle du monde ! » Les pupilles de Wang Lin se rétractèrent. Outre le contrôle des lois, l'autre capacité des cultivateurs du Nettoyant du Nirvana était d'extraire l'énergie originelle du monde.
 
@@ -90,7 +90,7 @@ Le corps de Wang Lin trembla également ; un engourdissement se propagea dans so
 
 « C'est donc cela, un cultivateur du Nettoyant du Nirvana ! » Les yeux de Wang Lin devinrent glacials.
 
-L'homme d'âge moyen était désormais certain que ce Xu Mu cachait sa culture. Si ce dernier n'était réellement qu'un Scrutateur du Nirvana, il n'aurait jamais pu résister à cette illusion de vérité.
+L'homme d'âge moyen était désormais certain que ce Xu Mu cachait sa cultivation. Si ce dernier n'était réellement qu'un Scrutateur du Nirvana, il n'aurait jamais pu résister à cette illusion de vérité.
 
 Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie originelle de son corps déferlait. Le sable repoussé se rassembla instantanément pour former une grue de sable gigantesque. Elle poussa un cri capable de secouer les cieux et chargea vers Wang Lin en pleine retraite.
 
@@ -102,7 +102,7 @@ La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçai
 
 Ce vieil homme avait toujours été extrêmement prudent, n'agissant jamais sans une certitude absolue. Il en était de même dans le Royaume de la Massacre.
 
-Sur sa planète de culture d'origine, il avait passé des milliers d'années à massacrer d'innombrables cultivateurs pour leur dérober pilules et trésors. Même après son départ, nul ne savait qu'il était l'auteur de ces actes.
+Sur sa planète de cultivation d'origine, il avait passé des milliers d'années à massacrer d'innombrables cultivateurs pour leur dérober pilules et trésors. Même après son départ, nul ne savait qu'il était l'auteur de ces actes.
 
 Dans le Royaume de la Massacre, sa prudence atteignait son paroxysme, et son timing était cette fois impeccable ! En un instant, le vieil homme fut sur Wang Lin.
 

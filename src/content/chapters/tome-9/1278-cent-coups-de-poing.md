@@ -52,7 +52,7 @@ Il utilisa cette brume pour contrer les coups restants de Wang Lin !
 
 « Même avec un corps de dieu antique, tu ne peux supporter un sort qui consume la vie. Combattre ce vieillard avec une telle technique est risible ! » ricana le Daoïste Water. Il avait réussi à contenir le clou aux sept couleurs entre ses sourcils ; peu importe la force avec laquelle il tentait de percer, il ne pouvait atteindre son crâne, bien que la douleur déchirante fût atroce.
 
-« Le Clou Divin du Vide aux Sept Couleurs du Souverain est bien trop étrange. Heureusement, cet enfant ne sait pas s'en servir correctement. Cependant, mieux vaut prévenir tout changement imprévu ! » Le Daoïste Water rugit et déversa toute sa culture pour tenter d'expulser de force le clou aux sept couleurs !
+« Le Clou Divin du Vide aux Sept Couleurs du Souverain est bien trop étrange. Heureusement, cet enfant ne sait pas s'en servir correctement. Cependant, mieux vaut prévenir tout changement imprévu ! » Le Daoïste Water rugit et déversa toute sa cultivation pour tenter d'expulser de force le clou aux sept couleurs !
 
 La majeure partie de la vitalité de Wang Lin s'était évaporée. Il ressemblait à un vieillard au crépuscule de sa vie, exhalant des vagues d'aura mortifère. Les étoiles entre ses sourcils étaient ternes et son corps était marqué par les rides. Il semblait vieillir à une vitesse fulgurante.
 
@@ -60,7 +60,7 @@ Pourtant, le feu dans ses yeux ne fit que croître. Il poussa un rugissement dé
 
 En s'élançant, la main droite de Wang Lin forma un poing et fendit l'air. Des tonnerres remplacèrent tous les sons du monde alors qu'il portait le 11e coup, le 12e, le 13e... Jusqu'à ce que le 19e coup éclate soudainement.
 
-Chaque coup représentait l'apogée de la culture de Wang Lin, un assaut surpuissant de dieu antique, tout cela au prix de sa vitalité !
+Chaque coup représentait l'apogée de la cultivation de Wang Lin, un assaut surpuissant de dieu antique, tout cela au prix de sa vitalité !
 
 Les grondements résonnèrent à travers le monde. Du sang jaillit des orifices de Wang Lin ; il était au bord de la mort. Mais ces coups ne s'arrêtaient pas, et même le Daoïste Water en fut ému !
 
@@ -70,7 +70,7 @@ Tandis que les fracas continuaient, la brume du Daoïste Water résistait à tou
 
 La voix indifférente du Daoïste Water se propageait, mais Wang Lin ne pouvait plus l'entendre. Ses oreilles étaient gorgées de sang et son audition s'éteignait.
 
-Il était épuisé et une aura de mort imprégnait chaque fibre de son être. Un sentiment de fin submergea son cœur, comme si le néant voulait l'emporter loin d'ici. Loin de ce monde de culture cruel, loin de toute cette douleur.
+Il était épuisé et une aura de mort imprégnait chaque fibre de son être. Un sentiment de fin submergea son cœur, comme si le néant voulait l'emporter loin d'ici. Loin de ce monde de cultivation cruel, loin de toute cette douleur.
 
 Même la lueur rouge dans ses yeux vacilla, les laissant sans éclat.
 
@@ -82,7 +82,7 @@ Cependant, au moment même où la brume s'apprêtait à l'écraser, il leva soud
 
 Après cet assaut, du sang noir s'échappa du coin de sa bouche et il se mit à rire. Un rire empreint de la fierté d'un esprit indomptable régnant au-dessus de toutes les créatures vivantes !
 
-« Moi, Wang Lin, j'ai commencé ma culture à l'âge de 16 ans ! » Le 21e coup s'envola ! La brume ne faiblit pas et chargea contre lui.
+« Moi, Wang Lin, j'ai commencé ma cultivation à l'âge de 16 ans ! » Le 21e coup s'envola ! La brume ne faiblit pas et chargea contre lui.
 
 « J'ai rejoint la Secte Heng Yue... J'ai tué Teng Li ! » Le 22e coup partit, et la brume s'arrêta brusquement.
 
@@ -92,7 +92,7 @@ Après cet assaut, du sang noir s'échappa du coin de sa bouche et il se mit à 
 
 « Stades Yin et Yang, trois royaumes du Nirvana ! J'ai affronté une vie entière de crises sans jamais céder, tuant d'innombrables ennemis ! » Les 27e, 28e, 29e et 30e coups ! La brume recula en rugissant plus violemment encore. Elle était terrifiée et se retirait dans la panique.
 
-« J'ai tué d'innombrables personnes depuis lors. Il m'a fallu plus de 2 000 ans de culture pour atteindre ce niveau ! » Le 31e coup... le 39e coup !
+« J'ai tué d'innombrables personnes depuis lors. Il m'a fallu plus de 2 000 ans de cultivation pour atteindre ce niveau ! » Le 31e coup... le 39e coup !
 
 « J'ai combattu les cieux, j'ai combattu la terre et aujourd'hui, je combats un cultivateur du troisième pas ! Et alors si je meurs ?! » Les 40e, 41e, 42e... jusqu'au 53e coup !
 

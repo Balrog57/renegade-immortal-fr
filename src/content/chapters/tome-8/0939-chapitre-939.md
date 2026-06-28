@@ -1,10 +1,10 @@
 ---
 n: 939
-title: Chapitre 939
+title: Vitesse foudroyante
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 939
-slug: chapitre-939
+slug: vitesse-foudroyante
 ---
 Ji Xiantian laissa échapper un rugissement et disparut dans un éclair, créant une onde de choc sonore. Sa vitesse était inimaginable ; même la téléportation ne pouvait atteindre une telle célérité.
 
@@ -24,7 +24,7 @@ Un instant plus tard, les ondulations s'intensifièrent soudainement et, dans un
 
 Tout cela se produisit en un clin d'œil. C'était si rapide que ni l'œil ni le sens divin ne pouvaient saisir la vitesse inimaginable de Ji Xiantian.
 
-En raison du pouvoir de scellement du vide, l'énergie originelle dans leurs corps était supprimée. Sous la pression des assauts de Ji Xiantian, leur culture diminua immédiatement.
+En raison du pouvoir de scellement du vide, l'énergie originelle dans leurs corps était supprimée. Sous la pression des assauts de Ji Xiantian, leur cultivation diminua immédiatement.
 
 Wang Lin ne parvint pas à apercevoir l'ombre de Ji Xiantian ; il sentit seulement une bourrasque le frapper, puis une force extrêmement puissante chargea droit sur lui.
 
@@ -50,7 +50,7 @@ Au loin, Ji Xiantian afficha un sourire étrange et disparut soudainement. L'exp
 
 Ce qui oppressait encore plus Yi Muzi était que, lorsqu'il utilisait un sort, la majeure partie de sa puissance était affaiblie par le vide. Il lui était impossible de déployer la pleine force de ses techniques, sans quoi il ne serait pas dans un état aussi lamentable.
 
-L'énergie originelle dans son corps continuait de se dissiper, et de plus en plus vite. Sa culture avait déjà chuté du sommet au stade tardif du Nettoyage du Nirvana.
+L'énergie originelle dans son corps continuait de se dissiper, et de plus en plus vite. Sa cultivation avait déjà chuté du sommet au stade tardif du Nettoyage du Nirvana.
 
 Un instant plus tard, Yi Muzi ne se soucia plus de la perte d'énergie originelle. Il ouvrit les bras et cria : « Un Bois, Un Royaume ! »
 
@@ -58,7 +58,7 @@ L'une des trois bûches violettes s'effondra immédiatement en une multitude de 
 
 Cependant, Ji Xiantian était encore plus rapide. Alors que le périmètre de 50 kilomètres était en train d'être scellé, il fit un pas en arrière et disparut.
 
-« Assez ! Tuanons d'abord ce pantin de Ji Xiantian avant de nous occuper du reste ! » L'expression de Wudo Chan était sombre, son niveau de culture ayant lui aussi considérablement chuté. Tout en poussant un rugissement, il fit un pas et une multitude de bulles apparurent. Sous son contrôle, une bulle fonça droit sur Yi Muzi.
+« Assez ! Tuanons d'abord ce pantin de Ji Xiantian avant de nous occuper du reste ! » L'expression de Wudo Chan était sombre, son niveau de cultivation ayant lui aussi considérablement chuté. Tout en poussant un rugissement, il fit un pas et une multitude de bulles apparurent. Sous son contrôle, une bulle fonça droit sur Yi Muzi.
 
 « Annihilation du Vide ! » Les mains de Wudo Chan formèrent un sceau et pointèrent vers l'avant. La bulle passa de une à deux, puis de deux à quatre, jusqu'à ce qu'elles encerclent la zone.
 
@@ -114,7 +114,7 @@ Cette couronne fondit instantanément sur Ji Xiantian et écrasa impitoyablement
 
 Les trois vieux monstres attaquèrent tous de concert. Ji Xiantian rugit, tentant de lutter, mais il était trop tard. Un fracas assourdissant retentit lorsque l'épée de bois, les bulles et la couronne frappèrent simultanément. Le corps de Ji Xiantian s'effondra soudainement !
 
-Une quantité massive de chair et de sang se dispersa. Les yeux de Wang Lin révélèrent une trace d'avidité qui n'était apparue que rarement au cours de ses mille ans de culture. Le fourneau de l'ancien dieu apparut autour de lui et il s'approcha instantanément du corps déchiqueté de Ji Xiantian.
+Une quantité massive de chair et de sang se dispersa. Les yeux de Wang Lin révélèrent une trace d'avidité qui n'était apparue que rarement au cours de ses mille ans de cultivation. Le fourneau de l'ancien dieu apparut autour de lui et il s'approcha instantanément du corps déchiqueté de Ji Xiantian.
 
 En un éclair, il se mordit la langue et cracha une bouchée de sang d'ancien dieu. Puis il ouvrit la bouche et aspira frénétiquement !
 

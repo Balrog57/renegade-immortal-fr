@@ -94,7 +94,7 @@ Wang Lin laissa échapper un soupir. Il leva les yeux vers Xuan Luo avec une exp
 
 Ces corps étaient tous ceux que Wang Lin avait tués.
 
-Autrefois, avec la culture de Ye Mo, il pouvait utiliser quelques gorgées de sang pour créer les anciens dieux, les anciens démons et les anciens diables du monde des grottes. Désormais, Wang Lin possédait le sang de l'âme. Grâce à l'héritage obtenu après avoir fusionné avec ce sang, il pouvait également accomplir cela, et il était infiniment plus puissant que Ye Mo.
+Autrefois, avec la cultivation de Ye Mo, il pouvait utiliser quelques gorgées de sang pour créer les anciens dieux, les anciens démons et les anciens diables du monde des grottes. Désormais, Wang Lin possédait le sang de l'âme. Grâce à l'héritage obtenu après avoir fusionné avec ce sang, il pouvait également accomplir cela, et il était infiniment plus puissant que Ye Mo.
 
 Ces corps apparurent un à un. Des dizaines de milliers de personnes, sans qu'une seule ne manque. Leurs formes se matérialisèrent tandis que tout le sang au sol disparaissait. Le visage de Wang Lin était pâle alors qu'il ouvrait les bras. Les dizaines de milliers d'âmes s'envolèrent pour fusionner avec leurs corps respectifs.
 

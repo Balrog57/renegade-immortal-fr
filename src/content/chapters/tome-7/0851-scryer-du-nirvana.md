@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 851 - Nirvana Scryer
 slug: scryer-du-nirvana
 ---
-Wang Lin ouvrit soudainement les yeux après sa culture. Son regard brillait d'une lueur intense et une fine couche de gaz noir, invisible à l'œil nu, l'entourait. À l'intérieur de son corps, son énergie originelle se transformait en gaz blanc et circulait à des vitesses plusieurs fois supérieures à la normale.
+Wang Lin ouvrit soudainement les yeux après sa cultivation. Son regard brillait d'une lueur intense et une fine couche de gaz noir, invisible à l'œil nu, l'entourait. À l'intérieur de son corps, son énergie originelle se transformait en gaz blanc et circulait à des vitesses plusieurs fois supérieures à la normale.
 
 Wang Lin murmura : « Le Dao entre dans le Dao ! » Après avoir atteint l'illumination, il n'était plus confus quant à son état actuel, mais pleinement conscient.
 
@@ -20,7 +20,7 @@ D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut
 
 À cet instant, il fusionna avec le monde et fonça vers le Domaine du Sud. La famille Li se trouvait dans le Domaine du Sud, sur la Planète de l'Annihilation.
 
-Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de culture, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
+Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de cultivation, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
 
 Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de fusionner avec le monde. Ce jour-là, lorsqu'il réapparut dans le Domaine du Sud et s'élança en avant, son expression changea soudainement alors qu'il s'apprêtait à nouveau à fusionner avec le monde.
 
@@ -46,7 +46,7 @@ Tout cela se produisit en un éclair. Durant toute l'action, l'expression de l'h
 
 Une aura brumeuse envahit les lieux lors de la réapparition de Wang Lin. Toute la zone était saturée de brouillard et une énergie brûlante émanait de toutes parts, comme s'il se trouvait dans un creuset céleste.
 
-Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la culture de Wang Lin franchit un nouveau palier !
+Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la cultivation de Wang Lin franchit un nouveau palier !
 
 Le stade Scryer du Nirvana !
 
@@ -60,23 +60,23 @@ Un éclair de froideur traversa son regard alors qu'il levait la tête vers le c
 
 Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds ; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de tribulation divine ! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Nettoyage du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scryer du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de tribulation divine ! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Nettoyage du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa cultivation avait régressé au milieu du stade Scryer du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
 
 Aussi s'efforçait-il, il ne parvenait à rien se remémorer.
 
 Il se souvenait vaguement qu'il avait commis un acte qui avait profondément irrité l'Ancêtre. Pourtant, finalement, ce dernier lui avait pardonné sans le punir.
 
-Depuis lors, sa conscience était souvent trouble et sa culture avait considérablement régressé au fil des millénaires. Si cela n'était que cela, ce ne serait pas si étrange, mais de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
+Depuis lors, sa conscience était souvent trouble et sa cultivation avait considérablement régressé au fil des millénaires. Si cela n'était que cela, ce ne serait pas si étrange, mais de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
 
 C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui martelait la tête !
 
-Au début, il parvenait à réprimer cet instinct grâce à sa culture. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde !
+Au début, il parvenait à réprimer cet instinct grâce à sa cultivation. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde !
 
 Il pressentait que cela était lié à une rencontre sur la Planète de Sang, mais malgré tous ses efforts, le souvenir lui échappait.
 
 Il avait un jour interrogé le Dieu de Sang, sans jamais obtenir de réponse.
 
-Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à une culture en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir pour éliminer un certain Xu Mu.
+Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à une cultivation en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir pour éliminer un certain Xu Mu.
 
 Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de maîtriser la situation.
 

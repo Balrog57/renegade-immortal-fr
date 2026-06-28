@@ -8,13 +8,13 @@ slug: une-chance-de-survie
 ---
 Un courant sous-jacent agitait la Mer des Nuages, provoqué par le Secte Divin. Il interférait avec une série d'individus !
 
-Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement prolongé pour empêcher leur disciple la plus importante de s'échapper.
+Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa cultivation en isolement prolongé pour empêcher leur disciple la plus importante de s'échapper.
 
 Il traversait ses propres difficultés ; il devait agir ainsi pour la sécurité de Li Qianmei !
 
 Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue au Secte Divin avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante du Secte Divin : le Grand Ancien, le Daoïste Eau !
 
-Dès son entrée au Secte Divin, elle avait été placée dans une salle de culture isolée. Le Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir !
+Dès son entrée au Secte Divin, elle avait été placée dans une salle de cultivation isolée. Le Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir !
 
 Si elle avait su que la compétition entre sectes de rang 8 avait été annulée, son intelligence l'aurait poussée à la suspicion. Même sans trouver la véritable cause, elle aurait perçu des indices.
 
@@ -58,7 +58,7 @@ Dans l'image, il y avait une paire d'yeux qui dégageaient un regard glacial et 
 
 Wang Lin ouvrit soudainement les yeux, le visage instantanément livide.
 
-« Ce monde était le continent de Mo Luo ! Le cultivateur qui levait les yeux vers le ciel... c'était moi ! Le propriétaire de ces yeux possède une culture capable de faire trembler les cieux. Devant lui, je mourrai sans aucun doute ! »
+« Ce monde était le continent de Mo Luo ! Le cultivateur qui levait les yeux vers le ciel... c'était moi ! Le propriétaire de ces yeux possède une cultivation capable de faire trembler les cieux. Devant lui, je mourrai sans aucun doute ! »
 
 Wang Lin leva les yeux vers le ciel. Son regard semblait pouvoir percer la chambre pour atteindre l'immensité au-dessus de Mo Luo. En ce moment, le ciel était clair et ensoleillé.
 

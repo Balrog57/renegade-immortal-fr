@@ -74,7 +74,7 @@ Des craquements stridents retentirent alors que toutes les gouttelettes se trans
 
 Alors que Maître Flamespark hurlait, les 49 fragments tournèrent autour de lui pour créer un vortex gigantesque. Les fragments grossirent de plusieurs fois leur taille en un instant et continuaient de croître.
 
-« D'après mes recherches, au moment même où vous avez sombré dans la folie, d'autres personnes ont subi le même sort dans les trois autres Royaumes Célestes ! La réponse se trouve peut-être au sein de l'Alliance de Culture du Royaume Céleste de la Pluie. Et si la réponse ne peut être trouvée, je promets de faire tout mon possible pour vous aider à rejoindre le Royaume Céleste du Vent et de la Foudre afin d'en découvrir la cause ! »
+« D'après mes recherches, au moment même où vous avez sombré dans la folie, d'autres personnes ont subi le même sort dans les trois autres Royaumes Célestes ! La réponse se trouve peut-être au sein de l'Alliance de Cultivation du Royaume Céleste de la Pluie. Et si la réponse ne peut être trouvée, je promets de faire tout mon possible pour vous aider à rejoindre le Royaume Céleste du Vent et de la Foudre afin d'en découvrir la cause ! »
 
 Les 49 fragments autour de Maître Flamespark tournaient frénétiquement, formant un immense vortex qui s'étendait pour résister à la glace convergeant de toutes les directions.
 

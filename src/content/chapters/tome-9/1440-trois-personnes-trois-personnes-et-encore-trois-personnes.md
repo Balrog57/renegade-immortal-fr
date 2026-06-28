@@ -20,7 +20,7 @@ Dans le chaos, Wang Lin n'eut pas le temps de vérifier quels cultivateurs occup
 
 Le plus puissant de ces dix cultivateurs était un vieil homme au quatrième stade du Fléau Céleste. Les autres étaient plus faibles, mais même le moins fort se trouvait au stade avancé du Purificateur de Nirvana.
 
-Bien que leurs niveaux de culture ne soient pas les plus élevés, ils déployèrent tout leur potentiel en ce moment crucial de vie ou de mort. Ils étaient nombreux et chargeaient la plateforme de Wang Lin de toutes parts.
+Bien que leurs niveaux de cultivation ne soient pas les plus élevés, ils déployèrent tout leur potentiel en ce moment crucial de vie ou de mort. Ils étaient nombreux et chargeaient la plateforme de Wang Lin de toutes parts.
 
 Un fracas tonitruant retentit lorsque les sorts de ces cultivateurs frappèrent le rideau d'air créé par Wang Lin. La barrière commença à trembler et à se distordre. Ces cultivateurs attaquaient avec acharnement, allant jusqu'à sortir des trésors !
 
@@ -66,7 +66,7 @@ Un écran de lumière violette apparut devant l'homme pour bloquer l'assaut d'é
 
 Des grondements tonitruants résonnèrent ; l'homme cracha du sang tout en étant repoussé. Les rayons d'énergie d'épée pénétrèrent rapidement son corps, faisant trembler sa stature avant qu'il ne s'effondre.
 
-Il y avait aussi la femme d'âge moyen qui tenta d'esquiver, le visage pâle. Bien que son niveau de culture ne fût pas élevé, elle était extrêmement rapide, sinon elle n'aurait pas été arrivée avant les autres.
+Il y avait aussi la femme d'âge moyen qui tenta d'esquiver, le visage pâle. Bien que son niveau de cultivation ne fût pas élevé, elle était extrêmement rapide, sinon elle n'aurait pas été arrivée avant les autres.
 
 Elle esquiva promptement en décalant son corps sur le côté. Un fracas retentit et son épaule droite explosa, mais elle avait échappé à la mort.
 
@@ -82,7 +82,7 @@ La cultivatrice qui avait perdu son bras droit était d'une pâleur mortelle. Bi
 
 Elle ne voulait pas mourir ; elle devait battre en retraite et tenter de voler une autre plateforme !
 
-Le vieil homme du quatrième stade du Fléau Céleste était également livide et recula sans hésiter. Quant au dernier, il possédait le niveau de culture le plus bas et était le plus lent, ce qui lui permit d'éviter l'attaque de Wang Lin. Terrifié, il prit la fuite rapidement.
+Le vieil homme du quatrième stade du Fléau Céleste était également livide et recula sans hésiter. Quant au dernier, il possédait le niveau de cultivation le plus bas et était le plus lent, ce qui lui permit d'éviter l'attaque de Wang Lin. Terrifié, il prit la fuite rapidement.
 
 Des grondements tonitruants résonnèrent alors qu'une colonne de brouillard jaillissait dans les airs, faisant périr instantanément les six cultivateurs qui avaient foulé la plateforme.
 

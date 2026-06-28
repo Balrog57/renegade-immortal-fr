@@ -30,7 +30,7 @@ Le visage de Sun Tai était dévoré par la fureur alors qu'il chargeait en avan
 
 L'ancêtre était extrêmement maussade. Il n'était qu'au début du stade de la Transformation de l'Âme. S'il n'avait pas bénéficié d'un corps puissant et de la force de sa lignée, il n'aurait jamais osé tenter de dérober quoi que ce soit à un cultivateur de stade intermédiaire de la Transformation de l'Âme. Cependant, Wang Lin était trop précieux pour son clan ; il n'avait d'autre choix que de combattre.
 
-La paume gigantesque contenait une puissance dépassant de loin l'énergie spirituelle ordinaire. Les cultivateurs de la Transformation de l'Âme n'utilisaient pas l'énergie spirituelle du ciel et de la terre ; ils avaient besoin d'énergie spirituelle céleste pour accroître leur niveau de culture.
+La paume gigantesque contenait une puissance dépassant de loin l'énergie spirituelle ordinaire. Les cultivateurs de la Transformation de l'Âme n'utilisaient pas l'énergie spirituelle du ciel et de la terre ; ils avaient besoin d'énergie spirituelle céleste pour accroître leur niveau de cultivation.
 
 Par conséquent, leurs attaques contenaient naturellement une part d'énergie spirituelle céleste dissimulée en leur sein.
 
@@ -104,7 +104,7 @@ Sentant la puissance du vortex l'aspirer, Sun Tai serra les dents et utilisa tou
 
 La paume de Sun Tai percuta le cercueil, le faisant éclater. Le corps d'un jeune garçon s'en échappa.
 
-« Tourne ! » hurla de nouveau l'ancêtre, les veines de son corps gonflant davantage. Cette capacité de lignée exigeait un tribut trop lourd pour son corps ; comme sa culture n'était pas assez élevée, il ne pouvait la maintenir que quelques respirations.
+« Tourne ! » hurla de nouveau l'ancêtre, les veines de son corps gonflant davantage. Cette capacité de lignée exigeait un tribut trop lourd pour son corps ; comme sa cultivation n'était pas assez élevée, il ne pouvait la maintenir que quelques respirations.
 
 Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'intérieur. Avec un regard de résignation, il cria : « Enfant démon, tue-le ! »
 
@@ -114,7 +114,7 @@ L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice 
 
 Cependant, Sun Tai avait déjà été happé par le vortex. Il poussa un cri de frustration et disparut lentement.
 
-Le pouvoir de lignée du Clan des Démons Géants n'avait pas de capacité d'attaque réelle en raison du faible niveau de culture de l'ancêtre, mais il pouvait téléporter quelqu'un loin du continent Suzaku, jusque dans les étoiles lointaines.
+Le pouvoir de lignée du Clan des Démons Géants n'avait pas de capacité d'attaque réelle en raison du faible niveau de cultivation de l'ancêtre, mais il pouvait téléporter quelqu'un loin du continent Suzaku, jusque dans les étoiles lointaines.
 
 Alors que le vortex se refermait, Sun Tai disparut à son tour.
 

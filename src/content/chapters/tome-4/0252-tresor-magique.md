@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 252 - Magic Treasure
 slug: tresor-magique
 ---
-La boutique que Wang Lin avait louée n'était pas située sur la rue principale, mais en retrait. Si l'on ne la cherchait pas, il était très difficile de la trouver, mais cela importait peu à Wang Lin. Après une nuit de culture, la substance rouge qui l'entourait s'était encore davantage condensée.
+La boutique que Wang Lin avait louée n'était pas située sur la rue principale, mais en retrait. Si l'on ne la cherchait pas, il était très difficile de la trouver, mais cela importait peu à Wang Lin. Après une nuit de cultivation, la substance rouge qui l'entourait s'était encore davantage condensée.
 
 Au matin, Wang Lin ouvrit la porte de la boutique. Tel un mortel, il nettoya son échoppe. Puis, d'un mouvement fluide, son corps disparut.
 
@@ -42,7 +42,7 @@ En un clin d'œil, un mois s'était écoulé. Les objets dans la boutique de Wan
 
 Ces sculptures étaient les habitants du village qui fut la terre natale de Wang Lin. D'une certaine manière, il les avait ramenés à la vie.
 
-Durant ce mois, Wang Lin n'avait reçu aucun client, mais cela ne le dérangeait pas, tant il était absorbé par son art. Il en était venu à délaisser sa culture.
+Durant ce mois, Wang Lin n'avait reçu aucun client, mais cela ne le dérangeait pas, tant il était absorbé par son art. Il en était venu à délaisser sa cultivation.
 
 Un jour, Wang Lin tenait une sculpture inachevée entre ses mains. Pour une raison inconnue, celle-ci dégageait une aura primordiale. Si un cultivateur de la Mer des Démons l'avait vue, il l'aurait immédiatement reconnue comme étant celle d'un dragon.
 

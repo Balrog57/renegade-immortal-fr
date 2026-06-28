@@ -60,7 +60,7 @@ Lorsque Wang Wei avait crié « Maître ! », cela confirmait les soupçons de W
 
 « En reliant tous les indices, le karma de cette situation est sur le point d'être révélé ! »
 
-« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et fut contraint à une culture en vase clos. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa culture et de ses souvenirs. »
+« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et fut contraint à une cultivation en vase clos. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa cultivation et de ses souvenirs. »
 
 « Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent l'vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste de l'Esprit Divin, là où leur combat atteignit son apogée. »
 

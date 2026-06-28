@@ -36,7 +36,7 @@ Wang Lin raccompagna Zhou Ru vers le nouveau Royaume Céleste de la Pluie. Les y
 
 Après avoir quitté Zhou Ru, Wang Lin pensa à Wang Ping et Li Muwan.
 
-« Sois sage ici et ne gaspille pas ta culture. Tu... as bien grandi. » Wang Lin regarda cette jeune fille pleine de vie, et la tendresse dans son regard s'intensifia.
+« Sois sage ici et ne gaspille pas ta cultivation. Tu... as bien grandi. » Wang Lin regarda cette jeune fille pleine de vie, et la tendresse dans son regard s'intensifia.
 
 « Oncle... » Zhou Ru semblait faite d'eau tant les larmes coulaient sans cesse sur ses joues. Elle agrippa fermement le vêtement de Wang Lin, comme lorsqu'elle était enfant. Elle craignait que si elle lâchait prise, Wang Lin ne revienne jamais.
 
@@ -68,7 +68,7 @@ De retour dans la région orientale, Wang Lin réalisa que l'atmosphère était 
 
 Peu de temps après, un champ d'étoiles rouge apparut devant lui : c'était là le domaine du Secte Divin de l'Oiseau Vermillon. Pourtant, alors qu'il s'apprêtait à y entrer, il s'arrêta et fit volte-face.
 
-Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres du Secte de l'Oiseau Vermillon, un du Secte du Tigre Blanc et quatre du Secte du Dragon Azure. Tous étaient des anciens dont le niveau de culture n'était guère négligeable.
+Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres du Secte de l'Oiseau Vermillon, un du Secte du Tigre Blanc et quatre du Secte du Dragon Azure. Tous étaient des anciens dont le niveau de cultivation n'était guère négligeable.
 
 Le regard de Wang Lin restait serein. Il connaissait bien ces sept personnes, car ils avaient tous participé au sauvetage de l'Empereur Divin du Dragon Azure. Lorsque les deux anciens de l'Oiseau Vermillon aperçurent Wang Lin, ils furent saisis de honte et détournèrent les yeux.
 

@@ -94,9 +94,9 @@ Wang Lin avait absorbé bien trop d'énergie Yin cette nuit-là. Toute l'énergi
 
 En termes de quantité, Wang Lin sentait clairement que son énergie spirituelle Yin était deux fois plus importante qu'auparavant, ce qui signifiait qu'il atteignait désormais le sommet du stade initial de l'Établissement des Fondations.
 
-Il ouvrit les yeux et se remémora les événements de la nuit passée. Bien qu'alarmé, il pesait surtout les avantages et les inconvénients d'un tel mode de culture.
+Il ouvrit les yeux et se remémora les événements de la nuit passée. Bien qu'alarmé, il pesait surtout les avantages et les inconvénients d'un tel mode de cultivation.
 
-L'imprévu survenu durant sa culture nocturne lui avait ouvert de nouvelles perspectives.
+L'imprévu survenu durant sa cultivation nocturne lui avait ouvert de nouvelles perspectives.
 
 L'avantage de cette méthode était évident, mais son danger l'était tout autant. Un seul faux pas et il aurait explosé ; toutefois, grâce à cette expérience, il disposerait d'un meilleur contrôle la prochaine fois, réduisant ainsi les risques.
 

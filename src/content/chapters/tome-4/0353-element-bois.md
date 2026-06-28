@@ -56,7 +56,7 @@ Wang Lin ressentait une profonde amertume. Il savait que si cette poursuite se p
 
 Il effleura son sac de rangement. À l'intérieur se trouvait un sac de rangement que le Grand Ancien de la Secte des Cadavres lui avait offert. Cependant, il ignorait où il se trouvait actuellement ; comment pourrait-il appeler le Grand Ancien à sa rescousse ?
 
-Après une réflexion, son regard devint glacial. Au cours de ses 500 ans de culture, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
+Après une réflexion, son regard devint glacial. Au cours de ses 500 ans de cultivation, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
 
 « Le plus important maintenant est d'éliminer ce tatouage ! » Wang Lin se calma et commença à étudier le phénomène.
 

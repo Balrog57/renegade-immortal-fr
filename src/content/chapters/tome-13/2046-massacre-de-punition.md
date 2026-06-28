@@ -32,7 +32,7 @@ Le Luo Huo, qui rugissait et s'était précipité, s'arrêta net, son cri s'éte
 
 Sort de l'immobilisation !
 
-Utilisé avec le niveau de culture actuel de Wang Lin, ce sort exerçait une puissance phénoménale. Une fois le Luo Huo stoppé, l'alternance du jour et de la nuit reprit son cours, le véritable corps d'essence des restrictions et celui des cinq éléments retrouvèrent leur activité.
+Utilisé avec le niveau de cultivation actuel de Wang Lin, ce sort exerçait une puissance phénoménale. Une fois le Luo Huo stoppé, l'alternance du jour et de la nuit reprit son cours, le véritable corps d'essence des restrictions et celui des cinq éléments retrouvèrent leur activité.
 
 Immédiatement après, les innombrables restrictions se précipitèrent vers le Luo Huo immobile pour pénétrer dans son corps illusoire. Une lumière infinie jaillit et, après avoir absorbé toutes les restrictions, la créature rétrécit légèrement.
 

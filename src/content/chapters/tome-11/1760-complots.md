@@ -56,7 +56,7 @@ Ce changement attira immédiatement l'attention du Daoïste aux Sept Couleurs. S
 
 « C'est une idée ingénieuse, certes, mais puisque je l'ai démasqué, il n'a aucune chance de réussir. » Les yeux du Daoïste aux Sept Couleurs brillèrent d'une lueur émeraude et sept couleurs. Il commença à renforcer la barrière entre les mondes.
 
-Grâce à sa culture pour stabiliser la barrière, l'effet fut notable. Cependant, son visage resta sombre et il ne renforça la structure que secrètement, de sorte qu'on n'aperçut qu'un bref éclat de lumière multicolore.
+Grâce à sa cultivation pour stabiliser la barrière, l'effet fut notable. Cependant, son visage resta sombre et il ne renforça la structure que secrètement, de sorte qu'on n'aperçut qu'un bref éclat de lumière multicolore.
 
 « Cet enfant est rusé. S'il découvre que j'ai déjà percé son plan, il pourrait changer de tactique et causer des ennuis inutiles. Je vais le laisser croire que sa méthode fonctionne, puis je le capturerai une fois qu'il se croira victorieux ! » Le Daoïste aux Sept Couleurs sourit et poursuivit sa traque avec désinvolture.
 

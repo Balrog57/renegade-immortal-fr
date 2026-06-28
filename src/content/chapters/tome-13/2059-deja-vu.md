@@ -22,7 +22,7 @@ Dans la cité impériale d'Ancient Shi, alors que les 27 halos brillaient intens
 
 Alors que tous les regards convergeaient vers le temple ancestral, Wang Lin prit une profonde inspiration. Il chassa toutes les pensées concernant cette silhouette et s'immergea pleinement dans la troisième séparation de son âme !
 
-Il sentait qu'après l'achèvement de cette seconde séparation, son âme originelle était devenue innombrablement plus puissante et sa culture s'était également renforcée. Si la troisième séparation réussissait et que son âme originelle réintégrait son corps, il sentait qu'il atteindrait un nouveau sommet !
+Il sentait qu'après l'achèvement de cette seconde séparation, son âme originelle était devenue innombrablement plus puissante et sa cultivation s'était également renforcée. Si la troisième séparation réussissait et que son âme originelle réintégrait son corps, il sentait qu'il atteindrait un nouveau sommet !
 
 Un sommet tel qu'il pourrait peut-être... surpasser le Gu Dao !
 

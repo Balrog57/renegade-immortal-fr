@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 283 - Insight
 slug: revelation
 ---
-L'expression de Wang Lin était calme, mais il était extrêmement vigilant. Cet homme était très étrange. Il ne dégageait pas la moindre trace d'énergie spirituelle et ressemblait à un mortel au premier abord ; pourtant, comment un simple mortel aurait-il pu percer à jour son niveau de culture ? Wang Lin joignit calmement les mains et répondit : « Je ne suis qu'un homme des montagnes. Inutile de me donner un nom ; appelez-moi simplement Da Niu. »
+L'expression de Wang Lin était calme, mais il était extrêmement vigilant. Cet homme était très étrange. Il ne dégageait pas la moindre trace d'énergie spirituelle et ressemblait à un mortel au premier abord ; pourtant, comment un simple mortel aurait-il pu percer à jour son niveau de cultivation ? Wang Lin joignit calmement les mains et répondit : « Je ne suis qu'un homme des montagnes. Inutile de me donner un nom ; appelez-moi simplement Da Niu. »
 
 Le colosse regarda Wang Lin d'un air curieux et éclata de rire : « Frère Da Niu, pourquoi ne pas nous asseoir pour discuter en cette nuit pluvieuse ? »
 
@@ -14,7 +14,7 @@ Wang Lin esquissa un léger sourire et hocha la tête avant de s'asseoir en tail
 
 Depuis la destruction de l'Alliance des Quatre Sectes, les réserves de ce vin de fruits de Wang Lin avaient diminué ; il en buvait donc beaucoup moins souvent désormais.
 
-Le colosse laissa échapper un rire, s'assit et déclara : « La culture du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous êtes sur le point d'obtenir votre domaine. »
+Le colosse laissa échapper un rire, s'assit et déclara : « La cultivation du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous êtes sur le point d'obtenir votre domaine. »
 
 Le cœur de Wang Lin rata un battement. Il devint encore plus méfiant envers cet individu, mais en apparence, il se contenta de rire discrètement pour esquiver la question.
 
@@ -122,7 +122,7 @@ Le feu est la vie parce qu'il possède une étincelle de vie, c'est ce qu'ils en
 
 La mort, c'est mourir. Si une personne meurt, c'est la mort. Si le cœur meurt, alors il oublie...
 
-Wang Lin marchait entre le ciel et la terre quand il ressentit soudainement un éveil dans son cœur. Il parvint à saisir une part de la vérité cachée derrière la vie et la mort. Initialement, il lui aurait fallu une année supplémentaire de culture de son domaine pour atteindre le stade de la Formation de l'Âme. Cependant, sa compréhension venait de croître brusquement et, en un court instant, il se trouvait déjà en mesure d'atteindre ce stade.
+Wang Lin marchait entre le ciel et la terre quand il ressentit soudainement un éveil dans son cœur. Il parvint à saisir une part de la vérité cachée derrière la vie et la mort. Initialement, il lui aurait fallu une année supplémentaire de cultivation de son domaine pour atteindre le stade de la Formation de l'Âme. Cependant, sa compréhension venait de croître brusquement et, en un court instant, il se trouvait déjà en mesure d'atteindre ce stade.
 
 On pourrait dire qu'à cet instant précis, si Wang Lin le souhaitait, il pourrait immédiatement atteindre le stade de la Formation de l'Âme.
 
@@ -134,13 +134,13 @@ L'illumination qu'il avait acquise dans le sanctuaire par cette nuit pluvieuse p
 
 Le stade de la Formation de l'Âme est celui où la force des cultivateurs commence à varier considérablement.
 
-C'est parce qu'une fois ce stade atteint, l'objet de la culture passe du corps à l'esprit. Leur fondement réside dans leur compréhension des cieux et leur puissance dépend de leur capacité à contrôler cette force.
+C'est parce qu'une fois ce stade atteint, l'objet de la cultivation passe du corps à l'esprit. Leur fondement réside dans leur compréhension des cieux et leur puissance dépend de leur capacité à contrôler cette force.
 
 Le domaine est l'élément le plus crucial pour les cultivateurs au-delà de la Formation de l'Âme.
 
 Selon la profondeur de la compréhension des cieux, les domaines obtenus diffèrent également. En d'autres termes, il existe d'innombrables domaines, mais cela ne signifie pas que leur puissance soit identique.
 
-Bien que les domaines soient très proches en force lorsqu'ils atteignent leur paroxysme, leurs points de départ sont extrêmement divergents et peuvent grandement affecter la culture future.
+Bien que les domaines soient très proches en force lorsqu'ils atteignent leur paroxysme, leurs points de départ sont extrêmement divergents et peuvent grandement affecter la cultivation future.
 
 Par conséquent, au stade de la Formation de l'Âme, la puissance des cultivateurs varie énormément. Si l'un d'eux n'obtient qu'un domaine ordinaire, bien qu'il soit un dieu comparé aux cultivateurs de l'Âme Naissante, il restera à la traîne parmi ses pairs de la Formation de l'Âme.
 

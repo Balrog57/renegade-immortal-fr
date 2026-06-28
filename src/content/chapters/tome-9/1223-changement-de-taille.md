@@ -44,7 +44,7 @@ Wang Lin entra dans la grotte, ramassa le jade à l'intérieur et le scruta de s
 
 Utilisant la même technique, Wang Lin ouvrit la septième grotte et s'empara également du jade qu'elle renfermait. Après l'avoir scanné avec son Sens Divin et mémorisé la Restriction Temporelle, il broya le jade.
 
-La Restriction Temporelle était l'une des quatre grandes restrictions, et même Sima Mo avait eu besoin de cent ans pour l'apprendre. Sa profondeur exigeait une étude minutieuse. Elle était d'une puissance telle que, sans une augmentation considérable de la culture de Wang Lin, sa vaste connaissance des restrictions ou l'héritage de la restriction d'Annihilation, il n'aurait pu la briser si aisément.
+La Restriction Temporelle était l'une des quatre grandes restrictions, et même Sima Mo avait eu besoin de cent ans pour l'apprendre. Sa profondeur exigeait une étude minutieuse. Elle était d'une puissance telle que, sans une augmentation considérable de la cultivation de Wang Lin, sa vaste connaissance des restrictions ou l'héritage de la restriction d'Annihilation, il n'aurait pu la briser si aisément.
 
 De plus, l'élément crucial était que Sima Mo n'avait jamais saisi la véritable essence de la Restriction Temporelle ; faute de temps, il ne l'avait qu'effleurée.
 
@@ -86,7 +86,7 @@ En ressentant l'âme de l'All-Seer, Wang Lin perçut clairement son désir pour 
 
 La brume pénétra l'énergie d'origine de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de l'All-Seer commença à l'absorber avec frénésie ; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable All-Seer plutôt qu'une simple fusion d'âmes issues de ses avatars !
 
-Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de l'All-Seer, qui s'assit alors pour digérer cette essence, comme en pleine culture. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
+Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de l'All-Seer, qui s'assit alors pour digérer cette essence, comme en pleine cultivation. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
 
 « Très intéressant... » Après une observation prolongée, Wang Lin retira son Sens Divin. Son regard se posa sur la courte épée logée dans les os.
 

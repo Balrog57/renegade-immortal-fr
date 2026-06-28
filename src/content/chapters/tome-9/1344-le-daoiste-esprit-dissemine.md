@@ -10,11 +10,11 @@ Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux bril
 
 Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur de Nirvana n'avait même pas pu encaisser un seul coup !
 
-« Quel est son niveau de culture ? »
+« Quel est son niveau de cultivation ? »
 
 Le choc provoqua une onde de choc immense dans l'esprit du jeune homme chauve, mais comparé à cela, le fait que Wang Lin l'ait démasqué était encore plus stupéfiant. D'après les paroles de Wang Lin, celui-ci savait depuis longtemps qu'il était suivi. Cela dépassait toutes ses espérances !
 
-Bien que son niveau de culture ne fût pas au sommet, sa technique de dissimulation, héritée d'une époque immémoriale, l'était. Aucun des anciens Célestes n'avait pu le détecter lors de ses déplacements à travers les 7 Millions de Mondes, même ceux possédant un niveau de culture bien supérieur.
+Bien que son niveau de cultivation ne fût pas au sommet, sa technique de dissimulation, héritée d'une époque immémoriale, l'était. Aucun des anciens Célestes n'avait pu le détecter lors de ses déplacements à travers les 7 Millions de Mondes, même ceux possédant un niveau de cultivation bien supérieur.
 
 Même lorsqu'un cultivateur du quatrième Fléau Céleste était apparu, le jeune homme chauve avait pu le suivre avec aisance sans jamais être détecté.
 
@@ -30,7 +30,7 @@ Avant qu'il ne puisse achever sa phrase, Wang Lin agita la main droite et l'écl
 
 Le jeune homme chauve ne vit qu'une lumière rouge aveuglante, puis l'éclair perça la zone située entre ses sourcils !
 
-Son corps trembla et il cracha un flot de sang, mais il ne mourut pas ! Une aura puissante jaillit soudainement de son front, formant une protection autour de lui. Sa culture se déploya brusquement, dégageant une aura ancienne capable de faire trembler la terre !
+Son corps trembla et il cracha un flot de sang, mais il ne mourut pas ! Une aura puissante jaillit soudainement de son front, formant une protection autour de lui. Sa cultivation se déploya brusquement, dégageant une aura ancienne capable de faire trembler la terre !
 
 C'était comme si une âme capable de secouer les cieux sommeillait en cet homme. Il était si extrêmement puissant que même le Royaume Ji ne pourrait l'éliminer instantanément !
 
@@ -56,39 +56,39 @@ Le jeune homme afficha une expression complexe et hocha la tête.
 
 Sans laisser paraître d'émotion, Wang Lin demanda : « Quel endroit ? »
 
-« À la fin du monde... » Le jeune homme soupira et agita la main droite. Les nuages de la rétribution divine se dissipèrent instantanément tandis qu'une rune scintillait dans sa paume. Elle s'envola vers l'homme en contrebas et vint se loger entre ses sourcils, dissimulant immédiatement sa culture pour empêcher toute nouvelle rétribution divine.
+« À la fin du monde... » Le jeune homme soupira et agita la main droite. Les nuages de la rétribution divine se dissipèrent instantanément tandis qu'une rune scintillait dans sa paume. Elle s'envola vers l'homme en contrebas et vint se loger entre ses sourcils, dissimulant immédiatement sa cultivation pour empêcher toute nouvelle rétribution divine.
 
 Une fois cela fait, l'aura entourant le jeune homme se rétracta en son corps et il joignit les mains devant Wang Lin. Puis, il se retourna et s'élança dans le vide, franchissant l'espace pour quitter ce monde.
 
 Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traversant le vide aux côtés du jeune homme chauve.
 
-« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs rétributions divines, j'ai réalisé que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma culture pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
+« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs rétributions divines, j'ai réalisé que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma cultivation pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 
-« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
+« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma cultivation. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
 
-« Son niveau de culture à l'époque n'était que celui d'un Clairvoyant du Nirvana. J'étais gravement blessé et au bord de la mort ; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
+« Son niveau de cultivation à l'époque n'était que celui d'un Clairvoyant du Nirvana. J'étais gravement blessé et au bord de la mort ; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma cultivation à néant avant de partir...
 
-« J'ai d'abord cru que les cieux étaient cléments, et ce n'est que bien des années plus tard que j'ai compris qu'il m'avait laissé la vie sauve pour me donner une chance de continuer ma culture. Ainsi, il y aurait une autre possibilité de faire naître le Tonnerre Spirituel. » La voix du jeune homme était empreinte d'amertume.
+« J'ai d'abord cru que les cieux étaient cléments, et ce n'est que bien des années plus tard que j'ai compris qu'il m'avait laissé la vie sauve pour me donner une chance de continuer ma cultivation. Ainsi, il y aurait une autre possibilité de faire naître le Tonnerre Spirituel. » La voix du jeune homme était empreinte d'amertume.
 
-« Pourtant, il ne s'attendait pas à ce que non seulement je reconstruise ma culture, mais qu'au cours de cette rétribution divine, j'aie compris les mutations du monde. J'ai utilisé l'existence même des 7 Millions de Mondes pour comprimer ma culture et j'ai trouvé un moyen de la renforcer sans provoquer de rétribution divine ! » Tandis qu'il parlait, ses yeux étaient noyés dans la nostalgie.
+« Pourtant, il ne s'attendait pas à ce que non seulement je reconstruise ma cultivation, mais qu'au cours de cette rétribution divine, j'aie compris les mutations du monde. J'ai utilisé l'existence même des 7 Millions de Mondes pour comprimer ma cultivation et j'ai trouvé un moyen de la renforcer sans provoquer de rétribution divine ! » Tandis qu'il parlait, ses yeux étaient noyés dans la nostalgie.
 
 Wang Lin le regarda et dit calmement : « Vous vous dispersez parmi tous vos avatars. »
 
 Le jeune homme hocha la tête.
 
-« J'ai utilisé la technique de l'Esprit Disséminé pour transmettre ma culture au-delà du stade de la Formation de l'Âme, et après mille ans, j'ai atteint le stade de l'Ascendant. Je possédais 971 avatars !
+« J'ai utilisé la technique de l'Esprit Disséminé pour transmettre ma cultivation au-delà du stade de la Formation de l'Âme, et après mille ans, j'ai atteint le stade de l'Ascendant. Je possédais 971 avatars !
 
 « 971 était la limite de la technique de l'Esprit Disséminé ; on ne pouvait pas la dépasser. J'ai donc trouvé un moyen de contourner cette règle. Chaque avatar agit comme un corps principal et utilise à son tour la technique de l'Esprit Disséminé. Chacun de mes 971 avatars possède ses propres 971 avatars !
 
-« Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Clairvoyant du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
+« Grâce à ce cycle perpétuel, mon niveau de cultivation a lentement progressé jusqu'à atteindre le stade du Clairvoyant du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
 
 Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient les mondes, s'éloignant de plus en plus.
 
 « Après avoir atteint le stade du Nettoyeur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste !
 
-« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste ! Cependant, bien que j'eusse atteint le stade du Nettoyeur du Nirvana et possédae une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein ; il existait une barrière invisible que ma culture ne parvenait pas à briser !
+« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste ! Cependant, bien que j'eusse atteint le stade du Nettoyeur du Nirvana et possédae une cultivation puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein ; il existait une barrière invisible que ma cultivation ne parvenait pas à briser !
 
 « J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la rétribution divine ! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution !
 

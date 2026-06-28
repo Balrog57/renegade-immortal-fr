@@ -108,6 +108,6 @@ Le temps sembla s'arrêter. Après un laps de temps indéterminé, les yeux de W
 
 Des étoiles dorées !
 
-Dès qu'il ouvrit les yeux, son corps trembla et il cracha une bouchée de sang. Il fixa férocement le fou qui était hébété avant de faire un pas et de s'effondrer au sol. Puis, il ferma les yeux et commença sa culture.
+Dès qu'il ouvrit les yeux, son corps trembla et il cracha une bouchée de sang. Il fixa férocement le fou qui était hébété avant de faire un pas et de s'effondrer au sol. Puis, il ferma les yeux et commença sa cultivation.
 
 Le fou frissonna et fit mine de n'avoir rien vu. Il continua de siffler en regardant ailleurs, tout en observant la réaction de Wang Lin du coin de l'œil.

@@ -38,7 +38,7 @@ C'était un événement majeur pour le clan Ancien. L'un des trois anciens emper
 
 Ces derniers jours, face à l'affluence, l'Ancien Dao avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
 
-Wang Lin, plongé dans sa culture, ignorait tout de ce tumulte. La nuit précédant les trois derniers jours de cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
+Wang Lin, plongé dans sa cultivation, ignorait tout de ce tumulte. La nuit précédant les trois derniers jours de cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
 
 Une atmosphère de liesse emplissait le palais de l'Ancien Dao. Sur le pavillon le plus élevé, l'Empereur, les mains derrière le dos, contemplait la ville illuminée avec un sourire aux lèvres.
 
@@ -84,7 +84,7 @@ Des larmes coulèrent de ses paupières closes. Deux sillons de tristesse tracè
 
 « Pourquoi pleurer ? Qui est-il... Qui suis-je... Suis-je Song Zhi... Suis-je Song Zhi... » Lorsqu'elle ouvrit les yeux, la confusion n'en était que plus grande.
 
-Wang Lin ignorait tout de cette scène et ne pouvait la percevoir. Bien que sa culture ait transpercé les cieux, il ne pouvait ni voir ses larmes ni ressentir son aura. Même s'il l'avait vue en personne, il ne l'aurait peut-être pas reconnue ; un brouillard enveloppait le fragment d'âme et, depuis la fusion de sa femme et de Song Zhi, ce voile était devenu encore plus dense.
+Wang Lin ignorait tout de cette scène et ne pouvait la percevoir. Bien que sa cultivation ait transpercé les cieux, il ne pouvait ni voir ses larmes ni ressentir son aura. Même s'il l'avait vue en personne, il ne l'aurait peut-être pas reconnue ; un brouillard enveloppait le fragment d'âme et, depuis la fusion de sa femme et de Song Zhi, ce voile était devenu encore plus dense.
 
 Il ignorait que le fragment d'âme de Wan Er qu'il cherchait tant était si près de lui... Si proche... La femme, elle aussi, ignorait que l'être qui la tourmentait respirait la même énergie spirituelle qu'elle.
 
@@ -96,7 +96,7 @@ Après une méditation silencieuse, Wang Lin se leva et sortit de la grotte pour
 
 Dans la lumière crépusculaire, Xuan Luo se tenait là, souriant à Wang Lin.
 
-« Tu as été en culture fermée pendant trois mois. Tu n'es pas obligé de participer à la cérémonie demain, mais va au banquet ce soir en mon nom. Je sais que tu n'aimes pas les lieux animés. Contente-toi d'y rester un moment, puis reviens. »
+« Tu as été en cultivation fermée pendant trois mois. Tu n'es pas obligé de participer à la cérémonie demain, mais va au banquet ce soir en mon nom. Je sais que tu n'aimes pas les lieux animés. Contente-toi d'y rester un moment, puis reviens. »
 
 Wang Lin hésita. Il n'avait aucune envie de se rendre à ce banquet, mais puisque son maître le lui demandait, il acquiesça.
 
@@ -104,6 +104,6 @@ Wang Lin hésita. Il n'avait aucune envie de se rendre à ce banquet, mais puisq
 
 Après l'avoir acceptée sans la regarder, Wang Lin joignit les mains en signe de respect envers Xuan Luo. Il s'élança dans les airs vers le palais impérial de l'Ancien Dao.
 
-« Une fois ce cadeau remis, je repartirai pour poursuivre ma culture. Mon essence métallique est sur le point d'atteindre sa forme véritable, et rien n'est plus important que cela. » Wang Lin prit cette décision, mais à cet instant précis, ce sentiment d'inquiétude le frappa de nouveau.
+« Une fois ce cadeau remis, je repartirai pour poursuivre ma cultivation. Mon essence métallique est sur le point d'atteindre sa forme véritable, et rien n'est plus important que cela. » Wang Lin prit cette décision, mais à cet instant précis, ce sentiment d'inquiétude le frappa de nouveau.
 
 Wang Lin fronça les sourcils et fixa le palais impérial au loin.

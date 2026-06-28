@@ -12,7 +12,7 @@ Et c’était la vérité. Alors que Wang Lin se trouvait à moins de 1 000 pied
 
 Tout cela était dû à Wang Lin !
 
-Wang Lin avait déjà acquis une certaine compréhension de l'obscurité auparavant. Cette compréhension n'avait rien à voir avec son niveau de culture ; elle provenait de son sortilège « Nuit Brisée » !
+Wang Lin avait déjà acquis une certaine compréhension de l'obscurité auparavant. Cette compréhension n'avait rien à voir avec son niveau de cultivation ; elle provenait de son sortilège « Nuit Brisée » !
 
 La Nuit Brisée contenait un soupçon de loi originelle, laquelle était aussi la source de la loi de la lumière. Toute obscurité devait se dissiper devant cette lumière !
 
@@ -124,4 +124,4 @@ Simultanément, le vide trembla de nouveau et des fissures apparurent, comme si 
 
 « Venez tous. Voici la véritable puissance de ce dieu sombre ! » La voix de l'homme résonna. Wang Lin n'hésita pas à pénétrer dans le vortex. Il affichait une expression complexe ; il pressentait que ce vortex les mènerait vers l'espace physique où se trouvait le corps de Tu Si.
 
-Dans la faille spatiale, reposait le corps d'un Dieu Ancien gigantesque, de la taille de plusieurs planètes de culture. Son doigt bougea légèrement pour former lentement un poing. Sur son visage, les yeux clos depuis d'innombrables années s'ouvrirent pour la première fois !
+Dans la faille spatiale, reposait le corps d'un Dieu Ancien gigantesque, de la taille de plusieurs planètes de cultivation. Son doigt bougea légèrement pour former lentement un poing. Sur son visage, les yeux clos depuis d'innombrables années s'ouvrirent pour la première fois !

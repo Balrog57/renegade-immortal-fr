@@ -42,7 +42,7 @@ Wang Lin marchait lentement dans les airs, le regard porté vers la terre en con
 
 « Trop de choses ont changé... Je ne ressens plus aucun foyer... » Wang Lin méditait en silence, cherchant désespérément une trace de familiarité. Mais en contemplant la terre, il ne trouvait rien.
 
-De nombreux pays de culture sur la planète Suzaku avaient disparu ; désormais, la planète ne formait plus qu'un seul et unique pays. Même les innombrables sectes s'étaient effacées pour laisser place aux neuf grandes sectes de la planète Suzaku.
+De nombreux pays de cultivation sur la planète Suzaku avaient disparu ; désormais, la planète ne formait plus qu'un seul et unique pays. Même les innombrables sectes s'étaient effacées pour laisser place aux neuf grandes sectes de la planète Suzaku.
 
 Ces neuf grandes sectes occupaient la majeure partie du territoire.
 
@@ -92,7 +92,7 @@ Les autres ne voyaient en elle que la patrie du Seigneur du Royaume Scellé et c
 
 Tout cela n'était qu'une façade. Wang Lin ne se souciait ni de son prestige ni de sa renommée. Il n'était qu'un homme ordinaire, et même en tant que cultivateur, il n'était qu'un simple cultivateur.
 
-Il ne voulait qu'un foyer, un pays natal où il pourrait se remémorer le passé en toute sérénité. Une trace de familiarité pour ressentir un peu de chaleur après plus de 2 000 ans d'une culture cruelle. Juste une once de chaleur...
+Il ne voulait qu'un foyer, un pays natal où il pourrait se remémorer le passé en toute sérénité. Une trace de familiarité pour ressentir un peu de chaleur après plus de 2 000 ans d'une cultivation cruelle. Juste une once de chaleur...
 
 Mais cette chaleur était devenue un luxe inaccessible. Il la cherchait, mais ne trouvait que du vide.
 

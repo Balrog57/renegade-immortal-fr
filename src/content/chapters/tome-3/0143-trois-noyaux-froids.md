@@ -14,11 +14,11 @@ Wang Lin traîna le dragon jusque dans la formation et demanda à Li Muwan : « 
 
 Li Muwan hocha la tête, l'esprit totalement embrumé. Elle avait lu des récits sur ce type de créature. Ils étaient assez puissants pour terrasser des cultivateurs au stade avancé de l'Âme Naissante, et leur corps entier pouvait être considéré comme un trésor suprême.
 
-Dans la tête du dragon se trouvait une pilule de dragon. C'était une essence naturelle qui n'avait besoin que d'un léger raffinement pour devenir une véritable pilule capable d'augmenter la culture. La peau du dragon était un matériau de première qualité pour la fabrication d'armures, tandis que ses os et ses tendons constituaient également des ressources rares. Le plus précieux de tous les trésors demeurait toutefois la moelle.
+Dans la tête du dragon se trouvait une pilule de dragon. C'était une essence naturelle qui n'avait besoin que d'un léger raffinement pour devenir une véritable pilule capable d'augmenter la cultivation. La peau du dragon était un matériau de première qualité pour la fabrication d'armures, tandis que ses os et ses tendons constituaient également des ressources rares. Le plus précieux de tous les trésors demeurait toutefois la moelle.
 
 La qualité de la moelle dépendait de l'âge du dragon. Plus le dragon était vieux, moins il restait de moelle ; une fois qu'il atteignait un certain âge, celle-ci se transformait en pilule de dragon.
 
-La pilule de dragon était un prodige dont même les anciens cultivateurs ne pouvaient que rêver. Elle permettait d'acquérir le corps d'un dragon et de pouvoir alterner entre les deux formes. De plus, à partir de cet instant, le cultivateur ne rencontrerait plus jamais de goulot d'étranglement lors de sa culture.
+La pilule de dragon était un prodige dont même les anciens cultivateurs ne pouvaient que rêver. Elle permettait d'acquérir le corps d'un dragon et de pouvoir alterner entre les deux formes. De plus, à partir de cet instant, le cultivateur ne rencontrerait plus jamais de goulot d'étranglement lors de sa cultivation.
 
 Cependant, pour qu'un dragon puisse former une pilule de dragon, il devait vivre 9 990 000 ans. C'est pourquoi aucun registre précis n'existait sur la pilule de dragon ; ses effets ne demeuraient que rumeurs et légendes.
 
@@ -26,7 +26,7 @@ Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et reprit
 
 Le Secte du Raffinage des Trésors possédait de nombreux magasins à travers la Mer des Démons. Le plus proche se trouvait dans la ville de North Dipper, à 40 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune ; après avoir entendu Sang Muya raconter que le chef du Secte de la Lutte contre le Mal avait dépensé presque toutes les pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
 
-Il décida de mettre la question du fourneau de côté. Puisqu'ils possédaient les os du dragon, la formation des neuf squelettes serait suffisamment puissante pour leur offrir une protection décente. Wang Lin allait désormais se consacrer à une culture en méditation intensive, visant le stade de la Formation du Noyau.
+Il décida de mettre la question du fourneau de côté. Puisqu'ils possédaient les os du dragon, la formation des neuf squelettes serait suffisamment puissante pour leur offrir une protection décente. Wang Lin allait désormais se consacrer à une cultivation en méditation intensive, visant le stade de la Formation du Noyau.
 
 Wang Lin s'assit dans l'une des salles de pierre et la scella avec un immense rocher. Il sortit ensuite trente épées volantes et les pointa vers le sol. Les armes plongèrent immédiatement dans la terre et commencèrent à creuser un tunnel jusqu'au fond de la montagne.
 
@@ -38,13 +38,13 @@ Wang Lin ayant déjà pratiqué la Méthode d'Ascension des Enfers, il put rapid
 
 Le temps s'écoula lentement et, trois jours plus tard, Wang Lin ouvrit les yeux. Son regard était empreint de contemplation avant qu'il ne sorte la perle défiant le ciel pour en collecter le liquide spirituel.
 
-Les jours passèrent. Hormis sa culture, Wang Lin se contentait chaque jour de recueillir le liquide spirituel de la perle défiant le ciel. Une fois la rosée accumulée, il passait une partie de la journée à cultiver à l'intérieur de la perle grâce à ce liquide.
+Les jours passèrent. Hormis sa cultivation, Wang Lin se contentait chaque jour de recueillir le liquide spirituel de la perle défiant le ciel. Une fois la rosée accumulée, il passait une partie de la journée à cultiver à l'intérieur de la perle grâce à ce liquide.
 
 En conséquence, ses progrès furent fulgurants. Il ne lui fallut qu'un mois pour former deux noyaux froids. Il n'avait plus qu'à former le dernier pour tenter d'atteindre le stade de la Formation du Noyau.
 
-Ce dernier noyau froid prendrait plus de temps à confectionner. Après tout, il n'en avait formé que deux lors de sa précédente tentative. Cependant, comme il se trouvait au sommet du stade avancé de l'Établissement des Fondations, cela ne lui prendrait pas des années de culture pour s'achever.
+Ce dernier noyau froid prendrait plus de temps à confectionner. Après tout, il n'en avait formé que deux lors de sa précédente tentative. Cependant, comme il se trouvait au sommet du stade avancé de l'Établissement des Fondations, cela ne lui prendrait pas des années de cultivation pour s'achever.
 
-Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois mois. Par conséquent, il n'était nullement pressé. En plus de sa culture et de la collecte du liquide spirituel, il trouvait chaque jour le temps de nourrir quelques démons.
+Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois mois. Par conséquent, il n'était nullement pressé. En plus de sa cultivation et de la collecte du liquide spirituel, il trouvait chaque jour le temps de nourrir quelques démons.
 
 Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas à imprimer son sens divin sur le démon ; il devait donc contourner le problème en les nourrissant progressivement.
 
@@ -52,11 +52,11 @@ Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas
 
 Le temps passa et, au moment où le démon finit par dévorer la plupart des âmes du drapeau, un fragment du sens divin de Wang Lin se développa en son sein. Le démon lui-même ne réalisa pas que ce fragment s'était développé en lui, car il était trop occupé à réfléchir à des moyens de s'échapper.
 
-Trois mois s'étaient écoulés depuis le début de sa culture intensive. Le prototype de son troisième noyau froid avait déjà pris forme. Durant cette période, Wang Lin était sorti plusieurs fois. La pièce où résidait Li Muwan était désormais remplie de divers matériaux. Elle avait même réussi à obtenir de la terre pour y planter des herbes spirituelles, entourées d'une formation de pierres spirituelles de basse et moyenne qualité afin de garantir leur croissance.
+Trois mois s'étaient écoulés depuis le début de sa cultivation intensive. Le prototype de son troisième noyau froid avait déjà pris forme. Durant cette période, Wang Lin était sorti plusieurs fois. La pièce où résidait Li Muwan était désormais remplie de divers matériaux. Elle avait même réussi à obtenir de la terre pour y planter des herbes spirituelles, entourées d'une formation de pierres spirituelles de basse et moyenne qualité afin de garantir leur croissance.
 
 Un petit fourneau à pilules trônait au centre de la pièce, flanqué d'un tas de pilules ratées. Li Muwan avait commencé l'alchimie dès le départ de Wang Lin. Outre les échecs jonchant le sol, des tablettes de jade étaient dispersées partout ; chaque fois que Li Muwan se sentait bloquée ou cherchait une inspiration, elle consultait immédiatement ces jades.
 
-Sur les quatre pièces de la grotte, l'une était dédiée à la culture de Wang Lin, une autre à l'alchimie, une troisième à la botanique, et la dernière avait été aménagée par Li Muwan en salle de bain. La Mer des Démons étant perpétuellement embrumée, l'air était extrêmement humide, et l'intérieur de la grotte n'y faisait pas exception. Les vêtements devenaient vite moites et collaient à la peau. Li Muwan, étant une jeune fille, ne supportait plus cette sensation désagréable et s'était donc appliquée à créer cet espace.
+Sur les quatre pièces de la grotte, l'une était dédiée à la cultivation de Wang Lin, une autre à l'alchimie, une troisième à la botanique, et la dernière avait été aménagée par Li Muwan en salle de bain. La Mer des Démons étant perpétuellement embrumée, l'air était extrêmement humide, et l'intérieur de la grotte n'y faisait pas exception. Les vêtements devenaient vite moites et collaient à la peau. Li Muwan, étant une jeune fille, ne supportait plus cette sensation désagréable et s'était donc appliquée à créer cet espace.
 
 Wang Lin, quant à lui, se moquait de cette salle de bain, car il lui suffisait de faire circuler son énergie spirituelle pour que toute l'énergie Yin soit aspirée dans son noyau froid.
 

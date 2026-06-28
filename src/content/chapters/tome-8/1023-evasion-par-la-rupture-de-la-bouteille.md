@@ -20,7 +20,7 @@ La lueur rouge sur le corps de Wang Lin s'estompa peu à peu, mais le tatouage d
 
 Les plumes caudales de l'Oiseau Vermillon s'enroulaient autour de son cou et s'arrêtaient entre ses sourcils, comme si elles fusionnaient avec ses cheveux noirs. De loin, on aurait dit qu'une flamme pourpre entourait sa chevelure sombre.
 
-L'éveil de l'Oiseau Vermillon n'avait pas augmenté le niveau de culture de Wang Lin, mais il avait transformé l'énergie originelle à l'intérieur de son corps. La chaleur extrême contenue dans son énergie originelle rendait tous ses sorts terrifiants !
+L'éveil de l'Oiseau Vermillon n'avait pas augmenté le niveau de cultivation de Wang Lin, mais il avait transformé l'énergie originelle à l'intérieur de son corps. La chaleur extrême contenue dans son énergie originelle rendait tous ses sorts terrifiants !
 
 Son corps de Dieu Ancien s'était adapté aux flammes ; désormais, il pouvait invoquer le feu d'un simple geste de la main !
 
@@ -36,7 +36,7 @@ L'Ancêtre de Sang était resté au stade intermédiaire du Nirvana Cleanser pen
 
 En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre l'élargissement de son propre domaine, il fallait apprendre à contrôler les lois du monde.
 
-Le stade avancé du Nirvana Cleanser exige la fusion de la loi et du domaine. Cette maîtrise atteint son apogée au sommet du stade avancé, jusqu'à ce que l'on entre dans le rêve de la plupart des cultivateurs : le Nirvana Shatterer... le plus haut niveau de culture connu !
+Le stade avancé du Nirvana Cleanser exige la fusion de la loi et du domaine. Cette maîtrise atteint son apogée au sommet du stade avancé, jusqu'à ce que l'on entre dans le rêve de la plupart des cultivateurs : le Nirvana Shatterer... le plus haut niveau de cultivation connu !
 
 À cet instant, la mer de flammes s'engouffrait dans le monde de la bouteille et percutait sans relâche le dernier royaume. À chaque impact, la bouteille tremblait.
 
@@ -102,7 +102,7 @@ L'All-Seer, Ling Tianhou, Master Void, Situ Nan et la belle femme d'âge moyen a
 
 Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Big Head sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Sable Marqué d'Étoiles.
 
-Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Culture du Nuage Céleste, étaient apparus !
+Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Cultivation du Nuage Céleste, étaient apparus !
 
 À cet instant, toutes les flammes s'étaient échappées de la bouteille de jade blanc. Puis, une autre vague de chaleur jaillit et Wang Lin bondit hors de l'objet ! Ses yeux brillaient comme des flammes alors qu'il inspectait les environs.
 

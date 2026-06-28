@@ -20,7 +20,7 @@ La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant
 
 « Cependant, sa vie sera semée d'embûches. Je suis douée en divination et j'ai prédit que cet enfant ferait face à une grande calamité. Puisque je l'ai rencontrée, je me suis impliquée et je deviendrai celle qui l'aidera à surmonter cette épreuve. »
 
-« Plus elle grandit, plus la calamité de vie ou de mort devient manifeste. Ma culture est limitée, je ne peux donc utiliser mes sorts que pour freiner sa croissance, la maintenant dans l'état d'un nourrisson. »
+« Plus elle grandit, plus la calamité de vie ou de mort devient manifeste. Ma cultivation est limitée, je ne peux donc utiliser mes sorts que pour freiner sa croissance, la maintenant dans l'état d'un nourrisson. »
 
 « J'ai entendu dire que Monsieur était un homme de talent, alors je suis venue solliciter votre aide... » La voix de la femme resta froide tout en s'adoucissant.
 

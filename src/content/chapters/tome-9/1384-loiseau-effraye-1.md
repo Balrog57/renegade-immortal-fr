@@ -22,7 +22,7 @@ Il est évident que le Grand Empereur a changé d'avis. Son plan initial était 
 
 Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui vint à l'esprit !
 
-« Je possède cinq essences dans mon corps et le Grand Empereur jouit d'une immense culture ; il a peut-être percé mon secret... Ou alors, il a vu l'essence du feu dans le cristal de feu. Si le Grand Empereur est réellement lié aux Quatre Sectes Divines, il devrait pouvoir deviner d'un seul coup d'œil que je possède l'Oiseau Vermillon !
+« Je possède cinq essences dans mon corps et le Grand Empereur jouit d'une immense cultivation ; il a peut-être percé mon secret... Ou alors, il a vu l'essence du feu dans le cristal de feu. Si le Grand Empereur est réellement lié aux Quatre Sectes Divines, il devrait pouvoir deviner d'un seul coup d'œil que je possède l'Oiseau Vermillon !
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement ! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 
@@ -42,7 +42,7 @@ Des grondements tonitruants déchirèrent le ciel et la terre trembla, comme si 
 
 Le nouveau territoire du Clan du Scorpion Noir se situait près de la grotte où Wang Lin cultivait auparavant. À cet instant, Zhong Big Red marchait les mains derrière le dos, l'air grave, tout en réprimandant certains membres du clan.
 
-Le vieil homme nommé Zhang suivait Zhong Big Red avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan du Scorpion Noir, pourtant dotés de niveaux de culture plus élevés, trembler sous les remontrances de Zhong Big Red.
+Le vieil homme nommé Zhang suivait Zhong Big Red avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan du Scorpion Noir, pourtant dotés de niveaux de cultivation plus élevés, trembler sous les remontrances de Zhong Big Red.
 
 « Ce n'est pas que je souhaite vous réprimander, mais regardez ce que vous avez fait ces derniers jours ! Cela fait déjà plusieurs jours et vous n'avez absolument rien trouvé ! Lorsque Maître reviendra, vous devrez tous en assumer la responsabilité ! Humph ! » Zhong Big Red agita sa manche et laissa échapper un reniflement méprisant.
 
@@ -66,4 +66,4 @@ Cependant, avant qu'il n'ait pu achever sa phrase, un reniflement glacial descen
 
 « Bruyant ! » Ce mot, d'une froideur absolue, étouffa instantanément tous les autres sons. Au même moment, une silhouette s'avança parmi le groupe des mille cultivateurs !
 
-Dès l'apparition de cet individu, sa culture s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Scorpion Noir qui s'écria : « Greed ! »
+Dès l'apparition de cet individu, sa cultivation s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Scorpion Noir qui s'écria : « Greed ! »

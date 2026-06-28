@@ -14,7 +14,7 @@ L'essence du tonnerre brillait intensément dans son œil droit sous la forme d'
 
 À l'instant même où il prononça ces mots, une lumière éclatante jaillit de son œil et se projeta hors de son corps. Un gigantesque tatouage de tonnerre de 10 000 pieds de haut se manifesta !
 
-Le tatouage de tonnerre gronda avec fracas, déclenchant le tonnerre du monde entier. Il était le seigneur du tonnerre ! C'était le tatouage de tonnerre que Wang Lin avait créé en condensant sa culture du tonnerre !
+Le tatouage de tonnerre gronda avec fracas, déclenchant le tonnerre du monde entier. Il était le seigneur du tonnerre ! C'était le tatouage de tonnerre que Wang Lin avait créé en condensant sa cultivation du tonnerre !
 
 « Brise cette porte pour moi ! » rugit Wang Lin en levant la main comme s'il soutenait le tatouage de tonnerre, puis il chargea la gigantesque porte !
 
@@ -36,7 +36,7 @@ La Grande Porte du Vide n'avait pas bougé d'un iota !
 
 Wang Lin se redressa brusquement et chargea de nouveau avec un rugissement. Ses mains formèrent des sceaux et le tatouage de tonnerre réapparut. Le tonnerre de son corps afflua vers le tatouage, le faisant grandir jusqu'à atteindre des dizaines de milliers de pieds de hauteur. Il poussa un rugissement en chargeant à nouveau la Grande Porte du Vide !
 
-« Ouvrez-vous pour moi ! Ouvrez ! » La voix de Wang Lin se propagea sur toute la planète de culture et fit trembler le cœur des 100 000 cultivateurs présents. Ils étaient stupéfaits de voir Wang Lin charger une nouvelle fois la Grande Porte du Vide. Ils étaient terrifiés ; s'ils avaient été à sa place, ils n'auraient pas eu le courage de se donner ainsi à fond.
+« Ouvrez-vous pour moi ! Ouvrez ! » La voix de Wang Lin se propagea sur toute la planète de cultivation et fit trembler le cœur des 100 000 cultivateurs présents. Ils étaient stupéfaits de voir Wang Lin charger une nouvelle fois la Grande Porte du Vide. Ils étaient terrifiés ; s'ils avaient été à sa place, ils n'auraient pas eu le courage de se donner ainsi à fond.
 
 Des grondements tonitruants résonnèrent à travers le monde et une onde de choc se propagea. Le tatouage de tonnerre de Wang Lin s'effondra de nouveau, et des bruits de craquements retentirent dans son corps. Il cracha du sang, son corps était un véritable carnage, et il retomba au sol.
 
@@ -88,7 +88,7 @@ Les trésors et les sorts entrèrent en collision avec ces innombrables montagne
 
 Pour certains, l'âme originelle se désintégra complètement !
 
-Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte du Vide ; sa culture du tonnerre devait atteindre le sommet du Briseur de Nirvana pour pouvoir invoquer une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux !
+Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte du Vide ; sa cultivation du tonnerre devait atteindre le sommet du Briseur de Nirvana pour pouvoir invoquer une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux !
 
 « Montagnes de tonnerre, contenez mon tonnerre et transformez-vous en tonnerre de scellement pour emprisonner tous ces individus. Bien que cela ne suffise pas à les enfermer à vie, c'est assez pour me permettre de partir ! » Wang Lin sourit et d'un geste de la main, un tonnerre infini fusionna avec les innombrables montagnes.
 
@@ -98,7 +98,7 @@ Les 100 000 cultivateurs, terrifiés, tentèrent de se disperser. Mais le tonner
 
 Les montagnes tombèrent du ciel et s'écrasèrent au sol, scellant totalement les 100 000 cultivateurs en dessous !
 
-Ces personnes appartenaient à divers niveaux de culture ; Wang Lin ne pouvait évidemment pas tous les combattre, alors il avait emprunté ces montagnes pour les emprisonner. À présent, des grondements tonitruants résonnaient tandis que les cultivateurs tentaient désespérément de briser le sceau qui les retenait.
+Ces personnes appartenaient à divers niveaux de cultivation ; Wang Lin ne pouvait évidemment pas tous les combattre, alors il avait emprunté ces montagnes pour les emprisonner. À présent, des grondements tonitruants résonnaient tandis que les cultivateurs tentaient désespérément de briser le sceau qui les retenait.
 
 Les montagnes de tonnerre tremblaient violemment et d'énormes pans de roche se détachaient. Il semblait qu'elles puissent s'effondrer à tout moment, libérant ainsi les 100 000 prisonniers !
 

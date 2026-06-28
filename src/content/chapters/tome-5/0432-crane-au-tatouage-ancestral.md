@@ -8,7 +8,7 @@ slug: crane-au-tatouage-ancestral
 ---
 Après l'arrivée du shaman à six feuilles que Wang Lin suivait en secret, celui-ci reprit sa forme humaine ; à cet instant précis, Wang Lin se dissimula.
 
-Avec son niveau de culture, personne ici ne pouvait le détecter. Seul le shaman à huit feuilles situé sur l'arbre était assez puissant pour percevoir sa présence.
+Avec son niveau de cultivation, personne ici ne pouvait le détecter. Seul le shaman à huit feuilles situé sur l'arbre était assez puissant pour percevoir sa présence.
 
 Wang Lin comprit d'un seul regard que le shaman à huit feuilles était gravement blessé et extrêmement affaibli.
 
@@ -16,7 +16,7 @@ Wang Lin comprit d'un seul regard que le shaman à huit feuilles était gravemen
 
 Simultanément, les cultivateurs qui se trouvaient derrière les shamans s'avancèrent au pied de l'Arbre de la Réincarnation pour s'asseoir. Près de cent cultivateurs remplissaient l'espace.
 
-Wang Lin savait que tous ces individus possédaient des niveaux de culture similaires ; ils étaient tous au stade de la Formation du Noyau.
+Wang Lin savait que tous ces individus possédaient des niveaux de cultivation similaires ; ils étaient tous au stade de la Formation du Noyau.
 
 Dès que ces cent cultivateurs furent assis, tous les shamans à six feuilles poussèrent un rugissement. Ces cris, puissants et étranges, projetèrent tous les tatouages vers l'Arbre de la Réincarnation.
 
@@ -56,7 +56,7 @@ Si Wang Lin n'avait pas encore atteint le stade de la Transformation de l'Âme, 
 
 C'était parce que cette paume contenait de l'énergie spirituelle céleste !
 
-La raison pour laquelle les cultivateurs de la Transformation de l'Âme sont si puissants et respectés sur n'importe quelle planète de culture réside dans l'existence même de l'énergie spirituelle céleste.
+La raison pour laquelle les cultivateurs de la Transformation de l'Âme sont si puissants et respectés sur n'importe quelle planète de cultivation réside dans l'existence même de l'énergie spirituelle céleste.
 
 La lumière entourant le shaman à huit feuilles vola en éclats, faisant trembler le vieil homme qui cracha du sang. Aussitôt, l'ancien tatouage au-dessus de sa tête descendit rapidement pour intercepter l'énergie spirituelle céleste.
 

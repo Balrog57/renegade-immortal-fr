@@ -14,7 +14,7 @@ Bien que l'apparence de cette femme ne fût pas aussi éblouissante que celle de
 
 Une fois entrée dans la pièce, elle s'assit silencieusement sur une chaise. Elle ne regarda pas Wang Lin ; ses yeux vides fixaient l'espace vide devant elle.
 
-Un silence absolu régnait dans la pièce alors que Wang Lin fermait les yeux pour poursuivre sa culture. Cependant, il sentit bientôt un faible sens divin s'étendre depuis le milieu des sourcils de la femme.
+Un silence absolu régnait dans la pièce alors que Wang Lin fermait les yeux pour poursuivre sa cultivation. Cependant, il sentit bientôt un faible sens divin s'étendre depuis le milieu des sourcils de la femme.
 
 Ce sens divin se propagea vers Wang Lin. Sa progression n'était pas rapide ; il avançait avec une grande hésitation, comme s'il craignait d'agir.
 
@@ -22,7 +22,7 @@ Ce sens divin se propagea vers Wang Lin. Sa progression n'était pas rapide ; il
 
 Le visage de la femme en violet devint d'une pâleur mortelle. Elle sentait que si son sens divin bougeait le moins que craie, Wang Lin le dévorerait sur-le-champ.
 
-Wang Lin fixa la femme en violet et relâcha sa prise sur son sens divin, lui permettant de retourner dans son corps. Rien ne pouvait être caché devant lui. Six sceaux marquaient son corps, scellant sa culture ; ce qu'elle révélait au monde extérieur n'était que le stade avancé de la Transformation de l'Âme.
+Wang Lin fixa la femme en violet et relâcha sa prise sur son sens divin, lui permettant de retourner dans son corps. Rien ne pouvait être caché devant lui. Six sceaux marquaient son corps, scellant sa cultivation ; ce qu'elle révélait au monde extérieur n'était que le stade avancé de la Transformation de l'Âme.
 
 Si c'était le Wang Lin d'autrefois, il n'aurait pas pu percer ce mystère. Mais désormais, un seul regard lui suffisait pour voir clair en elle.
 
@@ -42,7 +42,7 @@ La femme en violet serra les dents, leva les yeux vers lui et dit doucement : «
 
 L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement la femme.
 
-« Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Illusoire Yin, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein du Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
+« Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Illusoire Yin, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein du Secte du Destin Céleste. À l'époque, ton niveau de cultivation n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
 
 Le visage de Wang Lin ne trahcit aucune émotion.
 
@@ -50,35 +50,35 @@ La femme en violet le regarda. Constatant qu'aucune réaction ne venait de lui, 
 
 Sans attendre la suite, Wang Lin secoua la tête et dit : « N'as-tu pas peur que Maître découvre que tu parles de cela ici ? »
 
-« Chaque jour à cinq heures du matin, Maître se retire en culture fermée. À moins qu'un événement majeur ne survienne, il n'en sort pas. Maître a cette habitude depuis des millénaires. » Zhao Xinmeng semblait pressée. « Wang Lin, tout ce que je dis est vrai ! »
+« Chaque jour à cinq heures du matin, Maître se retire en cultivation fermée. À moins qu'un événement majeur ne survienne, il n'en sort pas. Maître a cette habitude depuis des millénaires. » Zhao Xinmeng semblait pressée. « Wang Lin, tout ce que je dis est vrai ! »
 
 Wang Lin réfléchit un instant, puis regarda Zhao Xinmeng : « Est-ce pour cela que tu portes six sceaux dans ton corps ? »
 
 Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa poindre une trace d'amertume : « Que puis-je faire d'autre ? Une partie de mon âme est entre les mains de Maître, je ne peux tout simplement pas partir. Même si je tentais de m'enfuir, il lui suffirait d'une pensée pour me détruire totalement. »
 
-« Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade avancé de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Nirvana Scryer. »
+« Beaucoup de gens scellent leur cultivation comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade avancé de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de cultivation. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Nirvana Scryer. »
 
-« Il y a aussi Lu Hai, de la Division Rouge. S'il levait son sceau, son niveau de culture deviendrait immédiatement celui du sommet du Corporel Yang. »
+« Il y a aussi Lu Hai, de la Division Rouge. S'il levait son sceau, son niveau de cultivation deviendrait immédiatement celui du sommet du Corporel Yang. »
 
-« Ce ne sont là que des personnes que je connais, mais je suis convaincue qu'il existe d'autres individus qui se sont très bien dissimulés parmi les sept divisions ! Cependant, peu importe l'avancement de notre culture, nous n'osons pas ouvrir les sceaux. Même si nous refermons notre culture après l'avoir libérée, nous disparaîtrons mystérieusement dans l'année. Si nous étions gravement blessés et que notre niveau chutait, ceux qui n'ont pas caché leur culture s'en sortiraient, mais ceux d'entre nous qui dissimulent leur puissance disparaîtraient tout de même. »
+« Ce ne sont là que des personnes que je connais, mais je suis convaincue qu'il existe d'autres individus qui se sont très bien dissimulés parmi les sept divisions ! Cependant, peu importe l'avancement de notre cultivation, nous n'osons pas ouvrir les sceaux. Même si nous refermons notre cultivation après l'avoir libérée, nous disparaîtrons mystérieusement dans l'année. Si nous étions gravement blessés et que notre niveau chutait, ceux qui n'ont pas caché leur cultivation s'en sortiraient, mais ceux d'entre nous qui dissimulent leur puissance disparaîtraient tout de même. »
 
 « D'après ce que je comprends, Maître cultive depuis des dizaines de milliers d'années et a eu d'innombrables disciples. Pourtant, aucun d'eux n'est jamais réapparu ou même n'a fait entendre sa voix... »
 
 L'expression de Wang Lin demeura neutre. Les six sceaux de cette femme étaient très singuliers ; sans cette confrontation directe, ils auraient été faciles à ignorer. Cependant, Wang Lin était convaincu que face à l'Omniscient, une telle méthode était dérisoire !
 
-« Maître ne nous interdit pas de sceller notre culture, il se contente de nous ignorer... » La peur envahissait le visage de Zhao Xinmeng. C'était un mystère qu'elle ne comprenait pas, tout comme les autres disciples qui dissimulaient leur niveau.
+« Maître ne nous interdit pas de sceller notre cultivation, il se contente de nous ignorer... » La peur envahissait le visage de Zhao Xinmeng. C'était un mystère qu'elle ne comprenait pas, tout comme les autres disciples qui dissimulaient leur niveau.
 
 « Peu importe à quel point nous nous cachons, Maître ne semble pas s'en soucier, comme s'il ignorait tout... Pourtant, si les sceaux s'ouvrent, nous sommes condamnés. Il y a cinq cents ans, un disciple de la Division Orange a vu ses sceaux atteindre leur limite. Ils ont été forcés de s'ouvrir et il a disparu le lendemain... »
 
-« On ne peut pas échapper à cela. Même en cachant sa culture, il y a une limite. Je ne peux plus continuer à vivre ainsi... Et ces cent dernières années, mon sceau a commencé à se relâcher et je perds peu à peu le contrôle. Récemment, la situation s'est encore aggravée... »
+« On ne peut pas échapper à cela. Même en cachant sa cultivation, il y a une limite. Je ne peux plus continuer à vivre ainsi... Et ces cent dernières années, mon sceau a commencé à se relâcher et je perds peu à peu le contrôle. Récemment, la situation s'est encore aggravée... »
 
 « Sauve-moi ! Wang Lin, sauve-moi ! Je ferai tout ce que tu voudras, pourvu que tu me sauves ! » Des larmes coulèrent sur les joues de Zhao Xinmeng tandis qu'elle fixait Wang Lin d'une voix rauque.
 
-« Sais-tu que, bien que tu ne sois revenu qu'hier, tu as déjà attiré l'attention de tous ceux au sein du Secte du Destin Céleste qui dissimulent leur culture ? Ils se demandent tous quand tu disparaîtras... » Zhao Xinmeng se mordit la lèvre. Elle ne pouvait en parler à personne, car c'était un tabou absolu !
+« Sais-tu que, bien que tu ne sois revenu qu'hier, tu as déjà attiré l'attention de tous ceux au sein du Secte du Destin Céleste qui dissimulent leur cultivation ? Ils se demandent tous quand tu disparaîtras... » Zhao Xinmeng se mordit la lèvre. Elle ne pouvait en parler à personne, car c'était un tabou absolu !
 
-Elle était déjà plongée dans le désespoir. Le sceau sur son corps se relâchait chaque jour davantage et, bientôt, il allait s'effondrer. La terreur que sa culture soit révélée la paralysait.
+Elle était déjà plongée dans le désespoir. Le sceau sur son corps se relâchait chaque jour davantage et, bientôt, il allait s'effondrer. La terreur que sa cultivation soit révélée la paralysait.
 
-« La rumeur prétend que tous les cultivateurs dont le niveau a dépassé l'Ascendant ont été... dévorés par Maître... Wang Lin, je ne te demande pas de récupérer mon âme, demande seulement à m'aider à renforcer le sceau pour que ma culture reste éternellement au stade de la Transformation de l'Âme. »
+« La rumeur prétend que tous les cultivateurs dont le niveau a dépassé l'Ascendant ont été... dévorés par Maître... Wang Lin, je ne te demande pas de récupérer mon âme, demande seulement à m'aider à renforcer le sceau pour que ma cultivation reste éternellement au stade de la Transformation de l'Âme. »
 
 Zhao Xinmeng se leva, prête à s'incliner devant lui.
 
@@ -104,16 +104,16 @@ L'expression de Wang Lin devint étrange et il ne put s'empêcher d'esquisser un
 
 Voyant sa réaction, Bai Wei sourit. Ses yeux brillèrent d'un éclat incomparable, révélant une beauté sans pareille : « Pourquoi est-il si difficile de m'appeler Junior Sœur Bai ? J'ai toujours été une femme. »
 
-Wang Lin se sentit très embarrassé. Malgré mille ans de culture et d'expérience de vie, il ne savait toujours pas comment réagir. Il ne put que tousser sèchement : « Je me demande quel est l'objet de votre visite, Senior Frère Bai. »
+Wang Lin se sentit très embarrassé. Malgré mille ans de cultivation et d'expérience de vie, il ne savait toujours pas comment réagir. Il ne put que tousser sèchement : « Je me demande quel est l'objet de votre visite, Senior Frère Bai. »
 
 Bai Wei haussa les sourcils et le fixa de son regard aquatique.
 
-Malgré sa culture au stade initial du Nirvana Scryer et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement : « Bai... Junior Sœur Bai, que me voulez-vous ? »
+Malgré sa cultivation au stade initial du Nirvana Scryer et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement : « Bai... Junior Sœur Bai, que me voulez-vous ? »
 
 L'expression de Bai Wei se détendit et elle murmura : « Wang Lin, tu n'aurais pas dû revenir ! C'est difficile à dire ici, mais es-tu libre ? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
 
 Wang Lin réfléchit. Cela faisait longtemps qu'il n'était pas revenu ; ce serait donc une excellente occasion d'apprendre de la bouche de Bai Wei ce qui s'était passé durant ces siècles. De plus, sa relation avec elle était bonne, il n'y avait aucune raison de refuser.
 
-Après avoir observé Bai Wei, il ne trouva aucun sceau. Sa culture se situait véritablement au stade intermédiaire de la Transformation de l'Âme.
+Après avoir observé Bai Wei, il ne trouva aucun sceau. Sa cultivation se situait véritablement au stade intermédiaire de la Transformation de l'Âme.
 
 « D'accord, nous nous retrouverons au pied du Mont Violet aujourd'hui à midi. »

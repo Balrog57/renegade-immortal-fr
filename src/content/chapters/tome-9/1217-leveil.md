@@ -8,7 +8,7 @@ slug: leveil
 ---
 Depuis que Wang Lin était entré dans le Royaume aux Sept Couleurs, le temps s'était écoulé avec rapidité ; quatre-vingt-dix-neuf années s'étaient déjà passées...
 
-Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Culture. Elles avaient également contraint le Secte des Cadavres à coopérer pour repousser l'armée d'Allheaven.
+Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Cultivation. Elles avaient également contraint le Secte des Cadavres à coopérer pour repousser l'armée d'Allheaven.
 
 À l'origine, le Secte des Cadavres n'avait aucune intention de s'impliquer ; il préférait rester en retrait pour profiter de la situation, car il semblait que qu'il s'agisse d'Allheaven ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide du Secte des Cadavres.
 
@@ -66,7 +66,7 @@ Des paroles au sens similaire furent également prononcées par Lu Yanfei sur le
 
 Dans le Système Stellaire de la Mer Nuageuse, le Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces centaines d'années, le maître du Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures :
 
-« Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma culture s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
+« Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma cultivation s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
 
 De même, dans la région de niveau 9, au plus profond du brouillard où se trouvait le Secte Démon, Li Qianmei, la femme aux cheveux bleus, restait calme alors qu'elle massacrait les bêtes féroces au sein de la faille spatiale. Les cultivateurs des diverses sectes qui l'accompagnaient étaient tous en admiration devant elle. Parallèlement, beaucoup d'entre eux nourrissaient pour elle une affection cachée. Parmi eux figuraient de nombreux cultivateurs célèbres. Sous les assauts constants des vagues de bêtes, le nombre de personnes tentant de faire étalage de leurs capacités augmentait.
 
@@ -78,7 +78,7 @@ Presque tous les cultivateurs savaient que Li Qianmei possédait un trésor : un
 
 À une occasion, Li Qianmei fut encerclée par de nombreuses bêtes féroces de niveau 12. Elle finit par être gravement blessée et tomba dans le coma. Secourue par les membres du Secte Démon, elle se réveilla peu après. Ignorant tous les avertissements, elle chargea à nouveau sur le champ de bataille, les cheveux en désordre, avec pour seul but de récupérer son stylo doré... Depuis lors, tous savaient que ce stylo était la possession la plus précieuse de Li Qianmei.
 
-« Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de culture, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes ; elle leva la tête et regarda au loin...
+« Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de cultivation, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes ; elle leva la tête et regarda au loin...
 
 Quelque part dans la Mer Nuageuse se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume du Vide Brillant pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
 

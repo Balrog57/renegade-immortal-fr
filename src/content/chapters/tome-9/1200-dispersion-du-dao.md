@@ -14,7 +14,7 @@ Le cycle de la vie et de la mort, le cycle du karma, ainsi que le vrai et le fau
 
 Diviser les étoiles, trancher la lune et dominer les cieux : tel était le chemin d'un cultivateur défiant les cieux. Puisqu'il avait percé le mystère de la vie et de la mort, il n'avait plus rien à craindre ! Telles étaient les réflexions que le domaine de la vie et de la mort avait insufflées à Wang Lin.
 
-Il était devenu puissant parce qu'il possédait cette intention ! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance ! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les cieux et à cultiver sur une voie harmonieuse !
+Il était devenu puissant parce qu'il possédait cette intention ! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance ! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur cultivation. Cela revenait à suivre les cieux et à cultiver sur une voie harmonieuse !
 
 Mais Wang Lin ne suivrait pas ce chemin !
 
@@ -30,7 +30,7 @@ Cependant, l'apparition de Qing Lin et la possession de la Perle Défiant les Ci
 
 Le domaine du vrai et du faux exigeait une compréhension si profonde que les gens ordinaires n'étaient tout simplement pas qualifiés pour le saisir. Cela se situait déjà à la frontière du Dao céleste, à un seul pas de l'essence même !
 
-Au fil des éons, ce n'était pas que des cultivateurs n'avaient jamais atteint cette étape, c'est qu'ils étaient bien trop rares... Le domaine détermine le niveau de culture d'un individu, et la profondeur du domaine engendre des différences drastiques dans sa puissance.
+Au fil des éons, ce n'était pas que des cultivateurs n'avaient jamais atteint cette étape, c'est qu'ils étaient bien trop rares... Le domaine détermine le niveau de cultivation d'un individu, et la profondeur du domaine engendre des différences drastiques dans sa puissance.
 
 Ce que Wang Lin recherchait était le Grand Dao. Bien que cela puisse sembler identique pour tous, en raison de sa compréhension unique, le chemin qu'il percevait surpassait largement les objectifs d'autrui.
 
@@ -82,7 +82,7 @@ Wang Lin vit également qu'un espace caché existait au sommet, et à l'intérie
 
 Ce fut comme si un coup de tonnerre explosait dans l'esprit de Wang Lin. Son esprit, d'ordinaire calme, fut soudainement bouleversé par un changement radical. Sa conscience se concentra sur le squelette et les mots furent gravés dans son cœur. Ces mots étaient exactement ceux qui résonnaient en lui :
 
-« ... Attendre le chemin de la culture... »
+« ... Attendre le chemin de la cultivation... »
 
 L'esprit de Wang Lin fluctua pendant une durée indéterminée avant de quitter les lieux, confus. Il s'enfonça plus profondément dans cette terre brumeuse et pénétra pour la première fois dans les profondeurs du Royaume aux Sept Couleurs.
 

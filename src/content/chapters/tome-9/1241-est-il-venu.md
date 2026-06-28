@@ -16,7 +16,7 @@ Toutes sortes de spéculations commencèrent à circuler, et certains, impatient
 
 À cet instant, la compétition commença à sombrer dans le chaos. Les deux combattants des sectes de rang 4, qui se livraient une lutte acharnée, esquissèrent un sourire amer et tournèrent leurs regards vers le nord.
 
-Plus loin, une douzaine de rayons de lumière fonçant à toute allure s'approchèrent également. En tête se trouvait un ancien aux cheveux roux qui dégageait une aura de Brisueur du Nirvana, suivi d'une douzaine d'autres anciens possédant tous de hauts niveaux de culture.
+Plus loin, une douzaine de rayons de lumière fonçant à toute allure s'approchèrent également. En tête se trouvait un ancien aux cheveux roux qui dégageait une aura de Brisueur du Nirvana, suivi d'une douzaine d'autres anciens possédant tous de hauts niveaux de cultivation.
 
 En arrivant sur les lieux, le vieillard aux cheveux roux vit immédiatement le chaos provoqué par les dizaines de milliers de cultivateurs et fronça les sourcils. Il rugit : « Interdiction de voler ! »
 
@@ -78,15 +78,15 @@ Lu Yanfei réfléchit en silence, puis après un moment, elle secoua la tête. B
 
 Li Qianmei mordilla sa lèvre inférieure, secoua la tête et murmura doucement : « Oublie cela. » Puis, avec un éclair de froideur, elle tourna son regard vers Lu Yanfei et demanda calmement : « Tu es blessée ? La blessure est récente. Qui a fait ça ? »
 
-Lu Yanfei garda un visage impassible et répondit avec indifférence : « Tout à l'heure, Liu Yingjie a prétendu que, lorsque la Secte de l'Origine serait dissoute, je deviendrais son réceptacle de culture, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte Montagneuse. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a punie. »
+Lu Yanfei garda un visage impassible et répondit avec indifférence : « Tout à l'heure, Liu Yingjie a prétendu que, lorsque la Secte de l'Origine serait dissoute, je deviendrais son réceptacle de cultivation, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte Montagneuse. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a punie. »
 
-En entendant cela, le visage de Liu Yingjie se décomposa. Il lança un regard à Lu Yanfei avant de s'exclamer : « Elle raconte n'importe quoi ! » En réalité, ce qu'il avait dit était vrai. Il n'avait pas explicitement déclaré vouloir faire de Lu Yanfei son réceptacle de culture, mais il en avait l'intention.
+En entendant cela, le visage de Liu Yingjie se décomposa. Il lança un regard à Lu Yanfei avant de s'exclamer : « Elle raconte n'importe quoi ! » En réalité, ce qu'il avait dit était vrai. Il n'avait pas explicitement déclaré vouloir faire de Lu Yanfei son réceptacle de cultivation, mais il en avait l'intention.
 
 L'expression de Zhao Long changea et une lueur glaciale passa dans ses yeux.
 
 Li Qianmei retrouva son calme et se tourna vers Zhao Long et Liu Yingjie. Liu Yingjie s'apprêta à parler, mais Zhao Long recula rapidement. Ses mains formèrent des sceaux tandis qu'un sort commençait à se manifester.
 
-Cependant, au moment même où Zhao Long battait en retraite, Li Qianmei bougea brusquement. Sa vitesse était telle qu'elle créa des images rémanentes en s'élançant. Elle traversa la foule en un instant grâce à sa culture de stade avancé du Brisueur du Nirvana et apparut derrière Zhao Long avant d'agiter doucement la main.
+Cependant, au moment même où Zhao Long battait en retraite, Li Qianmei bougea brusquement. Sa vitesse était telle qu'elle créa des images rémanentes en s'élançant. Elle traversa la foule en un instant grâce à sa cultivation de stade avancé du Brisueur du Nirvana et apparut derrière Zhao Long avant d'agiter doucement la main.
 
 Une aura meurtrière monstrueuse surgit soudainement. Cette intention de mort était terrifiante, parsemée de rugissements tonitruants. Elle dégageait une essence démoniaque qui enveloppa immédiatement le corps de Zhao Long.
 

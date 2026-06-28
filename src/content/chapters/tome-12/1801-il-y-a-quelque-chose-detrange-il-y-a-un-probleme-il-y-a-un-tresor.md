@@ -22,7 +22,7 @@ Sur le continent du Taureau Céleste existaient deux sectes célèbres : la Sect
 
 Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent Oriental ! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
 
-La Grande Secte de l'Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion !
+La Grande Secte de l'Âme était très singulière. Elle pratiquait une multitude de méthodes de cultivation, mais ses spécialités majeures étaient l'âme et l'illusion !
 
 Fan Shanmeng était une disciple de la Grande Secte de l'Âme, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Grande Secte de l'Âme composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
 
@@ -32,7 +32,7 @@ Sous la Secte Gui Yi et la Grande Secte de l'Âme se trouvaient de nombreuses pe
 
 La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Grande Secte de l'Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Grande Secte de l'Âme.
 
-Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Grande Secte de l'Âme et les avait tous vaincus. Même les anciens ordinaires de la Grande Secte de l'Âme n'étaient pas de taille contre lui.
+Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en cultivation fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Grande Secte de l'Âme et les avait tous vaincus. Même les anciens ordinaires de la Grande Secte de l'Âme n'étaient pas de taille contre lui.
 
 Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste !
 
@@ -76,9 +76,9 @@ Pourtant, la question restait sans réponse. Et ceux qui détenaient la vérité
 
 Le temps passa, et l'agitation finit par s'estomper, laissant la rumeur s'enraciner dans les cœurs. Peut-être qu'un jour, ils découvriraient enfin l'identité de cet homme...
 
-La Secte du Dragon Bleu était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance de Culture, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
+La Secte du Dragon Bleu était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance de Cultivation, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
 
-On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte du Dragon Bleu » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
+On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte du Dragon Bleu » laissait supposer un lien avec les dragons, mais les méthodes de cultivation de ses disciples n'en avaient rien à voir.
 
 Les disciples de la Secte du Dragon Bleu excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
 

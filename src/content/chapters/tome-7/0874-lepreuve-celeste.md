@@ -118,7 +118,7 @@ Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à
 
 L'apparition de Wang Lin attira immédiatement l'attention générale. Après tout, lors de cette compétition pour le titre céleste, son nom avait ébranlé les esprits. Il avait combattu Russell à l'épreuve humaine et dévoré l'esprit du tonnerre à l'épreuve terrestre. Tous les cultivateurs attendaient avec impatience la performance de Xu Mu lors de la troisième épreuve !
 
-Cette anticipation était palpable ; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Allheaven, tous les autres regardaient avec un sourire.
+Cette anticipation était palpable ; même certains ancêtres de grandes familles de cultivation observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Allheaven, tous les autres regardaient avec un sourire.
 
 Seul Blood God laissa échapper un renflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 

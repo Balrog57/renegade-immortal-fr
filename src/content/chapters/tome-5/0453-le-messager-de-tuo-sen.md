@@ -14,7 +14,7 @@ Ce tremblement ne dura que dix respirations, mais après ces dix instants, la To
 
 À cet instant, la Tombe de Suzaku était devenue bien plus périlleuse qu'auparavant.
 
-L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhuque Zi ; c'était un jeu né de sa folie.
+L'effondrement du Cristal de Planète de Cultivation ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhuque Zi ; c'était un jeu né de sa folie.
 
 Une fois que le sol eut cessé de trembler, la chaîne de montagnes où se trouvait Wang Lin n'était plus qu'une plaine. C'était comme si tout ce qui s'était produit avant le séisme n'avait été qu'un rêve.
 
@@ -76,15 +76,15 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « J'ai passé tant d'années et déployé tant d'efforts pour enfin trouver ce cristal si bien caché. Après l'avoir fusionné avec moi, j'ai retrouvé bien des souvenirs. »
 
-« Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien ; c'est ce que vos cultivateurs appellent le Cristal de Planète de Culture. Je peux utiliser cet objet pour briser mon sceau, puis employer une technique d'échange d'âme pour quitter ce lieu. »
+« Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien ; c'est ce que vos cultivateurs appellent le Cristal de Planète de Cultivation. Je peux utiliser cet objet pour briser mon sceau, puis employer une technique d'échange d'âme pour quitter ce lieu. »
 
 « Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu en leur offrant les anciens lieux sacrificiels du Dieu Ancien. »
 
 « Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Déchus est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
-« Un descendant du Clan des Immortels Déchus dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour le faire passer de l'étape des onze feuilles à celle des douze feuilles. Cela lui a permis de briser le sceau du Clan et de s'ouvrir un chemin dans le monde de la culture. »
+« Un descendant du Clan des Immortels Déchus dormait là-bas, et afin d'obtenir le Cristal de Planète de Cultivation, j'ai sacrifié énormément pour le faire passer de l'étape des onze feuilles à celle des douze feuilles. Cela lui a permis de briser le sceau du Clan et de s'ouvrir un chemin dans le monde de la cultivation. »
 
-« Tout cela s'est déroulé selon mes plans, et l'emplacement du Cristal de Planète de Culture est enfin révélé. Wang Lin, mon messager t'a enfin retrouvé. Bien que tu aies beaucoup changé, comment pourrais-je, moi Tuo Sen, t'oublier ? Ton sens divin est gravé dans mon cœur. Peu importe où tu te cacheras, je te trouverai ! »
+« Tout cela s'est déroulé selon mes plans, et l'emplacement du Cristal de Planète de Cultivation est enfin révélé. Wang Lin, mon messager t'a enfin retrouvé. Bien que tu aies beaucoup changé, comment pourrais-je, moi Tuo Sen, t'oublier ? Ton sens divin est gravé dans mon cœur. Peu importe où tu te cacheras, je te trouverai ! »
 
 Tuo Sen leva la tête et éclata de rire. Son rire emplissait toute la mer de sang, provoquant d'immenses vagues qui déferlaient sur l'océan.
 

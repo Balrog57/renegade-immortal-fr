@@ -54,7 +54,7 @@ Après quelques jours, la brume bleue finit par s'estomper. Durant ce laps de te
 
 Son énergie spirituelle était épuisée et son visage était pâle. Ses yeux se tournèrent vers Wang Lin avec un regard méfiant.
 
-Wang Lin fut stupéfait. Il pensa que s'il avait été seul, il n'aurait jamais pu progresser aussi loin, surtout face à cette brume violette. Le simple contact des résidus de la brume suffisait à lui glacer la moitié du corps jusqu'aux os. Même un cultivateur ordinaire au stade de la Formation de l'Âme aurait eu de grandes difficultés à franchir cet obstacle. Seule une personne comme Red Butterfly, dotée d'une méthode de culture basée sur la glace, pouvait passer en toute sécurité. Chi Hu avait dû en tenir compte avant de lui demander de les accompagner.
+Wang Lin fut stupéfait. Il pensa que s'il avait été seul, il n'aurait jamais pu progresser aussi loin, surtout face à cette brume violette. Le simple contact des résidus de la brume suffisait à lui glacer la moitié du corps jusqu'aux os. Même un cultivateur ordinaire au stade de la Formation de l'Âme aurait eu de grandes difficultés à franchir cet obstacle. Seule une personne comme Red Butterfly, dotée d'une méthode de cultivation basée sur la glace, pouvait passer en toute sécurité. Chi Hu avait dû en tenir compte avant de lui demander de les accompagner.
 
 Le temps passa lentement et ils atteignirent enfin l'autre côté de la brume bleue. Arrivés à la lisière du glacier, Red Butterfly déclara froidement : « J'ai rempli ma part du travail. À partir de maintenant, je n'interviendrai plus. »
 

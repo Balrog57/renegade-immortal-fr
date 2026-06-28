@@ -24,7 +24,7 @@ Au moment de sa délivrance, il fut envahi par une joie indicible. Il sentait qu
 
 C'est pourquoi il voulait prendre possession de Wang Lin !
 
-De son point de vue, toute vie sur le Continent Astral Immortel était une illusion et seul Wang Lin était réel. Selon ses analyses, une fois qu'il aurait réussi à s'emparer de Wang Lin, il atteindrait la culture du « Piétinement des Cieux » et obtiendrait une véritable liberté.
+De son point de vue, toute vie sur le Continent Astral Immortel était une illusion et seul Wang Lin était réel. Selon ses analyses, une fois qu'il aurait réussi à s'emparer de Wang Lin, il atteindrait la cultivation du « Piétinement des Cieux » et obtiendrait une véritable liberté.
 
 Il ne pourrait plus être piégé dans la boussole en tant qu'esprit précieux, même s'il sentait que, outre son rôle d'esprit, il était aussi le gardien de cet artefact.
 
@@ -96,7 +96,7 @@ Cette silhouette délicate qui avait utilisé son sang pour graver la formation 
 
 La scène au Sect de Sky Cloud, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 
-*Ma main gauche est un court karma dans la Mer des Diables, et ma main droite représente des centaines d'années de culture...*
+*Ma main gauche est un court karma dans la Mer des Diables, et ma main droite représente des centaines d'années de cultivation...*
 
 « Wan Er, ouvre les yeux, réveille-toi... Et il y a aussi Ping Er. Il s'éveillera lui aussi, tu aimeras cet enfant... » Les larmes de Wang Lin coulaient tandis qu'il murmurait.
 

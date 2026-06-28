@@ -90,7 +90,7 @@ Toutes ces raisons avaient tenté Wang Lin. Il s'étonnait également de n'avoir
 
 Il n'en avait pas la réponse, mais il supposait vaguement que le Royaume Céleste de la Pluie était bien modeste comparé au Royaume Céleste du Tonnerre. Cela pouvait être dû à des effondrements plus graves ayant fait disparaître de vastes zones, ou alors certaines régions étaient devenues inaccessibles ou n'étaient tout simplement pas ouvertes au public !
 
-« Ma culture n'est toujours pas suffisante ! » Wang Lin soupira, puis son corps se changea en un rayon de lumière pour s'apprêter à partir. À cet instant, les lignes d'énergie originelle s'effondrèrent soudainement et disparurent sans laisser de trace.
+« Ma cultivation n'est toujours pas suffisante ! » Wang Lin soupira, puis son corps se changea en un rayon de lumière pour s'apprêter à partir. À cet instant, les lignes d'énergie originelle s'effondrèrent soudainement et disparurent sans laisser de trace.
 
 Wang Lin s'arrêta, fixant la scène.
 

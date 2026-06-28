@@ -54,7 +54,7 @@ Une pointe de tristesse l'habitait, mais plus encore, il ressentait un certain s
 
 C'était la dernière chose qu'il pouvait faire pour sa terre natale avant de mourir en tant que cultivateur du Continent du Taureau Céleste !
 
-« Ce vieil homme est né sur le Continent du Taureau Céleste. Toute ma culture provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret ! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
+« Ce vieil homme est né sur le Continent du Taureau Céleste. Toute ma cultivation provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret ! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
 
 C'était une silhouette aux cheveux blancs, vêtue de blanc !
 
@@ -80,7 +80,7 @@ Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateur
 
 Wang Lin comprenait vaguement le principe de l'Art du Sort Rapide. Il devait constamment sceller les âmes originelles des cultivateurs pour qu'elles forment un vortex. La rotation de ce vortex atteindrait alors une vitesse extrême !
 
-Plus il y aurait de cultivateurs et plus leur niveau de culture serait élevé, plus le vortex serait rapide. Par conséquent, lorsque Wang Lin l'utiliserait, la vitesse de ses sorts augmenterait proportionnellement.
+Plus il y aurait de cultivateurs et plus leur niveau de cultivation serait élevé, plus le vortex serait rapide. Par conséquent, lorsque Wang Lin l'utiliserait, la vitesse de ses sorts augmenterait proportionnellement.
 
 Cependant, il y avait une limite. En chemin, Wang Lin avait scellé un total de neuf âmes originelles lorsqu'il approcha du cœur des combats de la Tribulation du Vide. Il ne pouvait plus en sceller davantage et ne parvenait pas à former une seconde veine de sorts.
 
@@ -106,7 +106,7 @@ Des ondulations résonnèrent sous ses pieds alors qu'il s'apprêtait à fusionn
 
 « Sceller ! » Cependant, à cet instant, une voix glaciale retentit et le monde sembla se figer. Wang Lin fut incapable de fusionner avec lui.
 
-« Un vieux monstre de la Tribulation du Vide au stade intermédiaire ! » Wang Lin évalua le niveau de culture de celui qui l'avait ciblé. Il serra les dents et cessa d'essayer de fusionner avec le monde. Il invoqua le Roi Moustique pour s'enfuir.
+« Un vieux monstre de la Tribulation du Vide au stade intermédiaire ! » Wang Lin évalua le niveau de cultivation de celui qui l'avait ciblé. Il serra les dents et cessa d'essayer de fusionner avec le monde. Il invoqua le Roi Moustique pour s'enfuir.
 
 Derrière Wang Lin, le vieil homme nommé Zhang, qui combattait Lu Wenran et ses compagnons, fixa l'endroit où Wang Lin s'était échappé. Une intention meurtrière brilla dans ses yeux et il abandonna le combat pour poursuivre Wang Lin, faisant fi de la bataille en cours.
 

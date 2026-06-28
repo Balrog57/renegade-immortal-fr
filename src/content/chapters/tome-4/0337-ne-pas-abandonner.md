@@ -72,7 +72,7 @@ Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disa
 
 Wang Lin accepta le jade, le parcourut de son sens divin et en mémorisa instantanément le contenu.
 
-Ouyang Zi ajouta : « Ces ingrédients sont très rares. Le Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
+Ouyang Zi ajouta : « Ces ingrédients sont très rares. Le Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de cultivation de rang 4 pour obtenir le reste. »
 
 Wang Lin se leva. Le jade à la main, il disparut.
 
@@ -84,11 +84,11 @@ Deux larmes roulèrent sur ses joues. De fines rides commençaient à marquer so
 
 Wang Lin ne perdit pas de temps. Sept mois plus tard, il revint, le visage marqué par la fatigue.
 
-Durant ces sept mois, Wang Lin n'avait pas marqué de repos. Il avait parcouru la plupart des pays de culture de rang 4 et même certains de rang 5.
+Durant ces sept mois, Wang Lin n'avait pas marqué de repos. Il avait parcouru la plupart des pays de cultivation de rang 4 et même certains de rang 5.
 
 Il finit par obtenir tous les ingrédients, que ce soit par l'achat, l'échange ou le vol.
 
-Ces sept mois furent semés d'embûches. Le moment le plus périlleux fut dans un pays de culture de rang 5, face à un cultivateur de la Formation de l'Âme au stade intermédiaire doté d'un domaine très particulier : le domaine de « l'oubli ». Wang Lin finit par l'emporter, mais de justesse.
+Ces sept mois furent semés d'embûches. Le moment le plus périlleux fut dans un pays de cultivation de rang 5, face à un cultivateur de la Formation de l'Âme au stade intermédiaire doté d'un domaine très particulier : le domaine de « l'oubli ». Wang Lin finit par l'emporter, mais de justesse.
 
 Le domaine de l'oubli l'avait véritablement terrifié.
 
@@ -102,7 +102,7 @@ Surtout ceux possédant des domaines spéciaux ; ils manifestaient une force ano
 
 Après son retour à Chu, Wang Lin se dirigea rapidement vers la vallée.
 
-À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux 500 mètres plus proches de la pagode qu'auparavant. Leur niveau de culture avait légèrement progressé.
+À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux 500 mètres plus proches de la pagode qu'auparavant. Leur niveau de cultivation avait légèrement progressé.
 
 Wang Lin apparut devant la maison en pierre. Il ouvrit la porte et son corps fut parcouru d'un tremblement. Ce qu'il vit n'était que le dos de quelqu'un.
 
@@ -134,7 +134,7 @@ Wang Lin ne s'offusquait pas de l'humeur d'Ouyang Zi. En fait, il pensait que pa
 
 Son obsession pour l'alchimie ferait qu'il serait sans doute capable de comprendre les lois célestes et d'acquérir un domaine.
 
-Cependant, sa culture stagnait toujours au stade intermédiaire de l'Âme Naissante. S'il parvenait à atteindre le sommet du stade avancé, alors la Formation de l'Âme ne serait plus qu'une question de temps.
+Cependant, sa cultivation stagnait toujours au stade intermédiaire de l'Âme Naissante. S'il parvenait à atteindre le sommet du stade avancé, alors la Formation de l'Âme ne serait plus qu'une question de temps.
 
 Les jours passèrent lentement. En un clin d'œil, trois ans s'écoulèrent. Le raffinage d'Ouyang Zi se poursuivait. Il semblait buter sur une sorte de barrière, car son tempérament empirait ; on l'entendait parfois hurler de rage.
 

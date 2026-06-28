@@ -20,7 +20,7 @@ Au quatrième étage d'un restaurant de la ville principale, un homme et une fem
 
 Tous deux tournèrent les yeux vers l'horizon au même moment. La jeune femme soupira en secouant la tête. « Ce petit gars n'a pas assez cultivé. Il a trop facilement révélé son trésor, s'attirant ainsi une calamité fatale. Quel dommage. »
 
-Le lettré en blanc réfléchit un instant, affichant une expression étrange avant de sourire. « Je ne le pense pas. Bien que son niveau de culture soit inférieur à celui de Wu Qing et qu'il sache parfaitement que ce dernier le traque, il a tout de même osé quitter la ville principale. Il doit avoir un plan en tête. »
+Le lettré en blanc réfléchit un instant, affichant une expression étrange avant de sourire. « Je ne le pense pas. Bien que son niveau de cultivation soit inférieur à celui de Wu Qing et qu'il sache parfaitement que ce dernier le traque, il a tout de même osé quitter la ville principale. Il doit avoir un plan en tête. »
 
 « Oh ? La petite dame n'est pas d'accord. On dirait que le jeune homme a eu peur et a voulu s'enfuir prématurément. Je ne pensais pas que Wu Qing ferait fi de son propre statut pour le poursuivre », gloussa la belle femme en regardant le lettré.
 
@@ -40,7 +40,7 @@ Tous les vieux monstres ayant participé aux enchères de Maître Ashen Pine pen
 
 Non seulement eux, mais d'autres Briseurs de Nirvana présents dans la ville furent alertés par le départ de Wu Qing, et leurs sens divins se déployèrent. L'un d'eux était Tang Lihai !
 
-Tang Lihai, assis dans sa chambre, ouvrit soudainement les yeux, interrompant sa culture. Il fronça les sourcils et hésita un instant avant de soupirer, mais il ne tenta pas d'arrêter Wu Qing.
+Tang Lihai, assis dans sa chambre, ouvrit soudainement les yeux, interrompant sa cultivation. Il fronça les sourcils et hésita un instant avant de soupirer, mais il ne tenta pas d'arrêter Wu Qing.
 
 « Maître avait dit de ne pas provoquer cet homme. Wu Qing, ah, Wu Qing, pourquoi dois-tu agir ainsi... »
 
@@ -66,7 +66,7 @@ S'il se contentait de cela, son intention ne serait pas pleinement exprimée. No
 
 Soudain, Wang Lin s'arrêta et se retourna lentement. Il fit face à la silhouette de Wu Qing qui chargeait vers lui comme une rafale violente ! Les yeux de Wu Qing étaient empreints d'une intention meurtrière qu'il ne cherchait même pas à dissimuler. Voyant que Wang Lin ne fuyait plus, il abattit sa main droite et attaqua immédiatement de toutes ses forces, sans retenue.
 
-Il activa sa culture de Briseur de Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin !
+Il activa sa cultivation de Briseur de Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin !
 
 « Cadet, ne me reproche pas ma cruauté. Tu as blessé un junior de ma Secte de la Collection des Démons, tu dois donc être prêt à mourir ! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule ! »
 
@@ -102,7 +102,7 @@ Sans son corps original, Wang Lin pouvait tuer un Briseur de Nirvana au stade in
 
 Après l'impact des trois doigts, la main droite de Wang Lin s'abattit, projetant son énergie originelle sur Wu Qing. Les pupilles de ce dernier se contractèrent. En cet instant de vie ou de mort, il n'eut même pas le temps de regretter. Des trésors jaillirent précipitamment de son espace de stockage pour tenter d'endiguer cette force.
 
-Cependant, Wang Lin avait appris ce sort auprès de Maître Lufu. Bien qu'il n'en maîtrisât pas encore l'essence, la puissance de ce sort, compte tenu du niveau de culture de Maître Lufu, était une chose que même les anciens empereurs célestes devaient redouter. Comment les trésors de Wu Qing pouvaient-ils arrêter un tel pouvoir ?
+Cependant, Wang Lin avait appris ce sort auprès de Maître Lufu. Bien qu'il n'en maîtrisât pas encore l'essence, la puissance de ce sort, compte tenu du niveau de cultivation de Maître Lufu, était une chose que même les anciens empereurs célestes devaient redouter. Comment les trésors de Wu Qing pouvaient-ils arrêter un tel pouvoir ?
 
 Wu Qing n'était pas digne de posséder un trésor capable de contrer ce sort ! Il ne méritait pas une telle qualification !
 

@@ -104,13 +104,13 @@ Mais sous l'assaut extérieur, l'âme de Wang Lin se contracta et le Royaume Ji 
 
 Le Royaume Ji est un domaine pur. S'il se manifeste dans la puissance spirituelle, son développement s'effectue uniquement au sein de l'énergie spirituelle.
 
-De même, puisque le Royaume Ji de Wang Lin résidait désormais dans son âme, son énergie spirituelle n'en serait plus dépourvue, mais son Sens Divin serait capable d'éliminer aisément n'importe qui au même niveau de culture, que ce soit au stade initial, intermédiaire ou avancé. Toutefois, la limite du Royaume Ji se situait au stade tardif de l'Âme Naissante.
+De même, puisque le Royaume Ji de Wang Lin résidait désormais dans son âme, son énergie spirituelle n'en serait plus dépourvue, mais son Sens Divin serait capable d'éliminer aisément n'importe qui au même niveau de cultivation, que ce soit au stade initial, intermédiaire ou avancé. Toutefois, la limite du Royaume Ji se situait au stade tardif de l'Âme Naissante.
 
 Un seul cultivateur des temps anciens avait réussi à franchir ce seuil. Aucun autre n'y était parvenu.
 
 Et cet homme n'avait triomphé que grâce à une chance inouïe, liée à une forme de rétribution divine. Quant au déroulement réel des faits, seuls les témoins oculaires le savaient.
 
-Le Royaume Ji est terrifiant. Un pouvoir capable d'ignorer la hiérarchie entre les stades de culture est une chose que les Cieux ne sauraient tolérer. Si le Royaume Ji pouvait croître sans entraves, il deviendrait invincible.
+Le Royaume Ji est terrifiant. Un pouvoir capable d'ignorer la hiérarchie entre les stades de cultivation est une chose que les Cieux ne sauraient tolérer. Si le Royaume Ji pouvait croître sans entraves, il deviendrait invincible.
 
 Les érudits ayant étudié ce domaine ont déduit que si les cultivateurs du Royaume Ji ne pouvaient franchir le stade de l'Âme Naissante, c'est parce que les Cieux les frappaient de mort impitoyable dès qu'ils tentaient de le faire.
 

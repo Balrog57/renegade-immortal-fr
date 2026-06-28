@@ -12,7 +12,7 @@ Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée
 
 En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit : « Ceng Niu, remets-moi l'éventail à plumes. »
 
-Wang Lin jeta un coup d'œil au jeune homme. Son niveau de culture était celui du milieu du stade de la Formation de l'Âme. Wang Lin sortit les deux plumes et les lança sur le côté. Les extrémités des plumes s'enfoncèrent dans une montagne voisine, tandis que leurs pointes dépassantes oscillaient doucement sous l'effet du vent.
+Wang Lin jeta un coup d'œil au jeune homme. Son niveau de cultivation était celui du milieu du stade de la Formation de l'Âme. Wang Lin sortit les deux plumes et les lança sur le côté. Les extrémités des plumes s'enfoncèrent dans une montagne voisine, tandis que leurs pointes dépassantes oscillaient doucement sous l'effet du vent.
 
 Le jeune homme chargea immédiatement vers la montagne.
 
@@ -26,7 +26,7 @@ Des fissures apparurent immédiatement sur les lames de glace qui finirent par t
 
 L'expression de Liao Fan resta calme. Il avait déjà entendu parler de la puissance de ce Ceng Niu. Sa mission ici n'était pas de récupérer un trésor, mais d'effectuer une reconnaissance.
 
-Une fois au sol, ses mains formèrent un sceau, son regard se fit glacial et il projeta le sceau en avant. Une lumière blanche émana soudainement de son corps pour former une illusion devant lui. Cette illusion n'était pas l'image de culture habituelle de Xue Yu, mais celle d'un vieil homme assis en position de lotus.
+Une fois au sol, ses mains formèrent un sceau, son regard se fit glacial et il projeta le sceau en avant. Une lumière blanche émana soudainement de son corps pour former une illusion devant lui. Cette illusion n'était pas l'image de cultivation habituelle de Xue Yu, mais celle d'un vieil homme assis en position de lotus.
 
 Une fois l'image du vieil homme créée, celui-ci ouvrit les yeux.
 
@@ -96,7 +96,7 @@ Ce froid était plusieurs fois plus puissant que la glace ou la neige ordinaires
 
 Cette aura se propagea avec frénésie et enveloppa Wang Lin. L'énergie glaciale pénétra son corps, manquant de peu de geler son sang.
 
-En percevant cette aura, le cœur de Wang Lin trembla et ses yeux s'illuminèrent. Il connaissait trop bien cette sensation. C'était exactement la même aura que celle issue de la culture de la Méthode d'Ascension des Enfers !
+En percevant cette aura, le cœur de Wang Lin trembla et ses yeux s'illuminèrent. Il connaissait trop bien cette sensation. C'était exactement la même aura que celle issue de la cultivation de la Méthode d'Ascension des Enfers !
 
 Cependant, l'énergie froide émise par cette silhouette était des milliers de fois plus puissante que celle qu'il avait cultivée. Seule l'aura de Situ Nan, lorsqu'il avait utilisé son propre corps, égalait celle de cette créature.
 
@@ -110,7 +110,7 @@ La silhouette noire s'arrêta net. Ses yeux fantomatiques étincelèrent. Il fix
 
 Wang Lin recula rapidement. En quelques enjambées, il put se replier dans le périmètre de protection de la pagode et s'arrêta.
 
-« Qui êtes-vous ?! » Après avoir entendu cette voix, même avec ses 500 ans de culture, Wang Lin fut profondément bouleversé. C'était un choc d'une nature qu'il n'avait jamais éprouvé auparavant.
+« Qui êtes-vous ?! » Après avoir entendu cette voix, même avec ses 500 ans de cultivation, Wang Lin fut profondément bouleversé. C'était un choc d'une nature qu'il n'avait jamais éprouvé auparavant.
 
 Wang Lin sentit son cuir chevelu s'engourdir. Cette voix lui était trop familière.
 

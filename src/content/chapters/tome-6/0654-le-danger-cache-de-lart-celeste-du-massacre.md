@@ -14,7 +14,7 @@ Wang Lin était assis en position de lotus au sein de la fissure, contemplant le
 
 Être piégé ici faisait naître en lui une solitude croissante. C'était comme s'il était isolé du monde, oublié de tous...
 
-Seuls les souvenirs de ses huit cents ans de culture l'accompagnaient.
+Seuls les souvenirs de ses huit cents ans de cultivation l'accompagnaient.
 
 Les êtres solitaires se remémorent toujours chaque personne ayant croisé leur chemin. La solitude de Wang Lin s'intensifiait à mesure qu'il évoquait le passé.
 
@@ -48,7 +48,7 @@ Le sort du gardien céleste lui offrait initialement soixante pour cent de chanc
 
 Wang Lin ne perdit pas espoir et attendit calmement les deux années suivantes.
 
-Après que sa culture eut atteint le stade Ascendant, sa progression avait ralenti. Après tout, le stade Ascendant représentait le sommet de la première étape. Malgré l'immensité du cosmos, combien d'individus avaient réussi à atteindre ce sommet... ?
+Après que sa cultivation eut atteint le stade Ascendant, sa progression avait ralenti. Après tout, le stade Ascendant représentait le sommet de la première étape. Malgré l'immensité du cosmos, combien d'individus avaient réussi à atteindre ce sommet... ?
 
 Hormis ceux favorisés par les cieux, qui n'avaient pas passé d'innombrables années pour atteindre cet apogée ? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
 

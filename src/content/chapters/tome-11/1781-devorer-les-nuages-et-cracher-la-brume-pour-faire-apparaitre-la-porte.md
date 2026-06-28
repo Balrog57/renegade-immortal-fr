@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1781 - Devouring the Clouds and Spitting Out the Fog to Make the Door Appear
 slug: devorer-les-nuages-et-cracher-la-brume-pour-faire-apparaitre-la-porte
 ---
-Le troisième esprit gardait un souvenir profond de la compétition qui s'était déroulée cinq mois auparavant. Lors de ce concours, après avoir obtenu le droit de cultiver l'Art Céleste du Dao des Nuages, et grâce à une culture déjà puissante pour sa génération, Zhou Li s'était hissé parmi les dix meilleurs. Il avait terminé à la neuvième place, remportant ainsi le privilège de cultiver dans le Bassin de Dong Lin.
+Le troisième esprit gardait un souvenir profond de la compétition qui s'était déroulée cinq mois auparavant. Lors de ce concours, après avoir obtenu le droit de cultiver l'Art Céleste du Dao des Nuages, et grâce à une cultivation déjà puissante pour sa génération, Zhou Li s'était hissé parmi les dix meilleurs. Il avait terminé à la neuvième place, remportant ainsi le privilège de cultiver dans le Bassin de Dong Lin.
 
 Quant à Su Dao, après avoir perdu l'accès à l'Art Céleste du Dao des Nuages, il devint encore plus timide. Sa personnalité se tordit et s'assombrit.
 
 Il avait échoué à la compétition. On pouvait dire que cet événement fut un tournant majeur dans la vie de Su Dao, une raison fondamentale de son changement de caractère.
 
-Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
+Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une cultivation en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
 
 Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao du Sect Dong Lin. Après cela, au fil des éternités, le Su Dao du Sect Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui lutta et, malgré lui, devint cruel et impitoyable jusqu'à ce qu'il fonde finalement le Sect des Sept Daos !
 
@@ -20,7 +20,7 @@ Quant à Zhou Li, le jour où le Souverain Céleste aux Sept Couleurs acheva son
 
 Tous ces événements défilaient dans l'esprit de Wang Lin comme des tableaux vivants. Assis près de la rivière qui coulait, il contemplait le courant comme s'il observait le temps s'écouler.
 
-C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il était également entré en culture close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
+C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il était également entré en cultivation close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
 
 La rivière continuait son cours, tandis que les souvenirs du troisième esprit s'effaçaient dans l'esprit de Wang Lin, remplacés par l'Art Céleste du Dao des Nuages.
 
@@ -32,9 +32,9 @@ Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. 
 
 Former sa propre bête de nuage, capable de dévorer les nuages et de recracher la brume, constituait le premier sort de cet art ! Cette technique était dissimulée au sein de l'art introductif. Si l'on cultivait l'introduction jusqu'à son paroxysme, on pouvait en comprendre ce sort.
 
-Pour autrui, l'Art Céleste du Dao des Nuages exigerait énormément de temps et une compréhension hors du commun. Cependant, Wang Lin possédait déjà un niveau de culture élevé, ce que les anciens Zhou Li ou Su Dao ne pouvaient égaler.
+Pour autrui, l'Art Céleste du Dao des Nuages exigerait énormément de temps et une compréhension hors du commun. Cependant, Wang Lin possédait déjà un niveau de cultivation élevé, ce que les anciens Zhou Li ou Su Dao ne pouvaient égaler.
 
-De plus, le fait que Wang Lin ait lui-même compris sept essences rendait la culture de l'art introductif d'une simplicité absolue.
+De plus, le fait que Wang Lin ait lui-même compris sept essences rendait la cultivation de l'art introductif d'une simplicité absolue.
 
 Des volutes de fumée s'échappèrent de la rivière devant lui et volèrent vers lui. Après avoir tournoyé autour de lui à plusieurs reprises, elles pénétrèrent dans son corps.
 

@@ -78,7 +78,7 @@ Le vieil homme hurla : « Explosez ! » À cet instant, son énergie déferla et
 
 C'est alors que Xu Liguo sortit de l'épée céleste pour insulter le vieillard : « Explose-toi donc ! » Il dirigea l'épée céleste pour attaquer directement l'homme. Ce dernier, agacé, tendit la main pour tenter de saisir l'arme.
 
-À ses yeux, avec son niveau de culture, il n'était pas difficile de capturer une épée à mains nues !
+À ses yeux, avec son niveau de cultivation, il n'était pas difficile de capturer une épée à mains nues !
 
 Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Non seulement l'homme ne l'esquivait pas, mais il ralentissait même sa course pour l'attendre.
 

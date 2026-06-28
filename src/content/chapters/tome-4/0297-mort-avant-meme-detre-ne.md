@@ -8,7 +8,7 @@ slug: mort-avant-meme-detre-ne
 ---
 Les yeux de Wang Lin s'illuminèrent et son corps disparut soudainement à l'intérieur du drapeau de restriction. Cependant, il fut très difficile pour le cultivateur aux robes vertes de s'en apercevoir. Après tout, ce dernier n'était qu'au stade initial de la Formation de l'Âme, tandis que le Sens Divin de Wang Lin se situait au niveau de celui d'un expert de la phase tardive de la Formation de l'Âme.
 
-Bien que les deux possédaient le même niveau de culture, la différence entre leurs Sens Divins était trop vaste. C’est ainsi que Wang Lin put détecter le cultivateur aux robes vertes dès son apparition, alors que celui-ci ne put percevoir Wang Lin qu'une fois approché.
+Bien que les deux possédaient le même niveau de cultivation, la différence entre leurs Sens Divins était trop vaste. C’est ainsi que Wang Lin put détecter le cultivateur aux robes vertes dès son apparition, alors que celui-ci ne put percevoir Wang Lin qu'une fois approché.
 
 Il fit un pas dans la formation avant de se retourner pour faire face au brouillard noir qui s'avançait vers lui. Le regard froid qui régnait sur son visage devint plus glacial encore.
 
@@ -28,7 +28,7 @@ Peu de temps après, le vacarme provenant de la cloche redoubla d'intensité. Ou
 
 Wang Lin savait que l'épée était tranchante et ignorait si la cloche pourrait y résister. Il laissa échapper un froid reniflement et ses mains s'activèrent avec encore plus de rapidité. À mesure que les sceaux se multipliaient sur la cloche, le tintement devenait de plus en plus strident, tandis que les sons émanant de l'intérieur s'étiolaient peu à peu.
 
-Cette cloche était un trésor magique issu de l'ancien monde de la culture. Sa fonction principale consistait à emprisonner autrui pour ensuite utiliser une série de sceaux afin de le raffiner. Elle pouvait même raffiner des âmes originelles, à condition que l'utilisateur possède un niveau de culture supérieur à celui de la proie, sous peine de subir un contrecoup.
+Cette cloche était un trésor magique issu de l'ancien monde de la cultivation. Sa fonction principale consistait à emprisonner autrui pour ensuite utiliser une série de sceaux afin de le raffiner. Elle pouvait même raffiner des âmes originelles, à condition que l'utilisateur possède un niveau de cultivation supérieur à celui de la proie, sous peine de subir un contrecoup.
 
 Une fois qu'un cultivateur de la Formation de l'Âme a formé son âme originelle, il est difficile pour lui de mourir lors d'un duel singulier, à moins d'être attaqué simultanément par plusieurs adversaires. Cependant, si un expert au stade tardif de la Formation de l'Âme passe à l'action, tout change.
 

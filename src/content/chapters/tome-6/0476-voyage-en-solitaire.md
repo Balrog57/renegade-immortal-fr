@@ -10,7 +10,7 @@ Après avoir quitté la boutique, Wang Lin remit dix pierres spirituelles de hau
 
 La boutique du clan Shang possédait effectivement de l'encre de neige, mais son prix était tout simplement exorbitant. Wang Lin calcula qu'avec toutes les pierres spirituelles dont il disposait, il ne pourrait en obtenir que deux ou trois gouttes.
 
-Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige soit une matière d'une telle qualité dans le monde de la culture.
+Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige soit une matière d'une telle qualité dans le monde de la cultivation.
 
 Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de cette possession augmenterait de façon exponentielle.
 
@@ -30,7 +30,7 @@ Même le manoir du seigneur de la ville avait été pillé !
 
 Si cela n'était arrivé que dans une seule cité, l'affaire aurait été gérable, mais au cours des trois jours suivants, les neuf villes, y compris Ming Mei, furent toutes victimes de ce mystérieux individu.
 
-La culture de cet homme était extrêmement puissante ; même lorsqu'il était attaqué par de multiples cultivateurs, il n'y voyait aucun inconvénient. Finalement, cinq cultivateurs Ascendants des neuf villes se réunirent pour tenter de l'éliminer. Ce combat choqua tout le monde. Cependant, les cinq Ascendants furent contraints de battre en retraite.
+La cultivation de cet homme était extrêmement puissante ; même lorsqu'il était attaqué par de multiples cultivateurs, il n'y voyait aucun inconvénient. Finalement, cinq cultivateurs Ascendants des neuf villes se réunirent pour tenter de l'éliminer. Ce combat choqua tout le monde. Cependant, les cinq Ascendants furent contraints de battre en retraite.
 
 Et l'homme mystérieux repartit, imperturbable.
 
@@ -52,7 +52,7 @@ Situ Nan toucha son sac de rangement et rit : « La récolte de ce vieux fou est
 
 « Les boutiques de cette planète commerciale ont des antécédents très profonds. S'ils envoient des experts, même ce vieux fou aura du mal à s'en sortir. J'ai donc pillé rapidement pour qu'ils n'aient pas le temps de demander de l'aide. Ye Wuyou et moi faisions souvent ce genre de choses autrefois ! » Situ Nan se sentait très fier. Une fois entrés dans l'espace, Wang Lin sortit la boussole stellaire et les deux s'éloignèrent prestement.
 
-Les cultivateurs de la planète commerciale poursuivirent un moment avant d'abandonner. Après tout, peu de gens possédaient une boussole stellaire, et la culture de Situ Nan était tout simplement trop puissante. Même s'ils parvenaient à le rattraper, ils n'y gagneraient que leur vie.
+Les cultivateurs de la planète commerciale poursuivirent un moment avant d'abandonner. Après tout, peu de gens possédaient une boussole stellaire, et la cultivation de Situ Nan était tout simplement trop puissante. Même s'ils parvenaient à le rattraper, ils n'y gagneraient que leur vie.
 
 « Avez-vous obtenu mon encre de neige ? » Wang Lin se lécha les lèvres. Bien qu'il n'ait pas participé activement, l'encre de neige était ce qu'il avait demandé, il était donc lié à cette affaire.
 
@@ -82,7 +82,7 @@ Sur ces mots, Situ Nan prit une profonde inspiration et jeta un dernier regard �
 
 « Situ, prends soin de toi ! » Wang Lin tourna la tête vers le point de disparition de Situ Nan. Dans l'immensité de l'espace, il restait seul, observant silencieusement le vide.
 
-Après un long moment, Wang Lin laissa échapper un soupir teinté de mélancolie. Depuis qu'il était entré dans le monde de la culture, Situ Nan avait été à ses côtés, et il lui devait énormément. Bien que Situ Nan dormît pendant de longues périodes, Wang Lin pouvait clairement ressentir son existence grâce à la perle défiant le ciel. À ses yeux, Situ Nan n'était rien de moins qu'un maître.
+Après un long moment, Wang Lin laissa échapper un soupir teinté de mélancolie. Depuis qu'il était entré dans le monde de la cultivation, Situ Nan avait été à ses côtés, et il lui devait énormément. Bien que Situ Nan dormît pendant de longues périodes, Wang Lin pouvait clairement ressentir son existence grâce à la perle défiant le ciel. À ses yeux, Situ Nan n'était rien de moins qu'un maître.
 
 Cette fois, c'était un véritable adieu ; la tristesse dans son cœur était immense.
 

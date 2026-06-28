@@ -60,7 +60,7 @@ Le regard de Wang Lin devint glacial alors qu'il demandait calmement : « Que se
 
 Li Yuan réfléchit en silence avant de lever les yeux vers la cime qui s'évanouissait dans les nuages. Une lueur de mélancolie passa dans son regard et il murmura : « Mon maître est là... »
 
-Wang Lin fronça les sourcils. À cet instant, Li Yuan se retourna pour faire face à lui. L'homme qu'il était maintenant différait totalement de celui qui avait franchi le pied de la montagne ; c'était comme s'il était devenu une personne différente. Il dit doucement : « Frère Xu, avec votre niveau de culture, vous ne pourrez pas quitter cette montagne sans ma permission ! »
+Wang Lin fronça les sourcils. À cet instant, Li Yuan se retourna pour faire face à lui. L'homme qu'il était maintenant différait totalement de celui qui avait franchi le pied de la montagne ; c'était comme s'il était devenu une personne différente. Il dit doucement : « Frère Xu, avec votre niveau de cultivation, vous ne pourrez pas quitter cette montagne sans ma permission ! »
 
 Wang Lin répondit d'un ton calme : « La Restriction des 18 Prunelles... je connais un mot ou deux à son sujet. »
 
@@ -76,7 +76,7 @@ Wang Lin ne bougea pas. Il fixa calmement Li Yuan et dit lentement : « Cet endr
 
 L'expression de Li Yuan devint immédiatement sombre. Il fixa longuement Wang Lin avant de dire avec lenteur : « Il semble que je vous aie sous-estimé. Cependant, même avec cette marionnette... »
 
-Wang Lin eut un ricanement et pointa sa main droite vers l'avant. La dernière parcelle de l'énergie d'épée de Ling Tianhou fut libérée. Depuis que son niveau de culture avait augmenté, sa maîtrise de cette énergie était devenue d'une précision extrême.
+Wang Lin eut un ricanement et pointa sa main droite vers l'avant. La dernière parcelle de l'énergie d'épée de Ling Tianhou fut libérée. Depuis que son niveau de cultivation avait augmenté, sa maîtrise de cette énergie était devenue d'une précision extrême.
 
 Dès que l'énergie d'épée apparut, un sifflement retentit à travers les cieux et la terre, faisant trembler tout le sommet. L'énergie était si rapide qu'en un clin d'œil, elle s'immobilisa devant le front de Li Yuan. C'était comme si une véritable lame était pointée entre les sourcils de l'homme.
 

@@ -10,7 +10,7 @@ La fusion du domaine et de l'énergie spirituelle céleste est un processus de c
 
 Au moment où le Cristal d'Ascension se forme, on peut avoir l'impression de ne plus rien être, comme si notre âme errait entre ciel et terre. Ce sentiment est extrêmement rare ; on l'appelle l'Éveil de l'Ascendant.
 
-Normalement, la première chose que font les cultivateurs sur une planète de culture est d'utiliser ce moment de compréhension pour tenter de ramener leur fragment d'âme depuis le cristal de la planète de culture. Bien que la chance ne soit que de 50 %, ils doivent impérativement essayer !
+Normalement, la première chose que font les cultivateurs sur une planète de cultivation est d'utiliser ce moment de compréhension pour tenter de ramener leur fragment d'âme depuis le cristal de la planète de cultivation. Bien que la chance ne soit que de 50 %, ils doivent impérativement essayer !
 
 Wang Lin avait déjà récupéré son fragment d'âme, il n'avait donc évidemment pas besoin de procéder ainsi. À cet instant, tous les jades célestes de sa sacoche avaient été disposés autour de lui. La dernière parcelle d'énergie spirituelle céleste venait d'être extraite des jades avant que ceux-ci ne tombent en poussière.
 
@@ -42,7 +42,7 @@ Le domaine à l'intérieur du cocon finit par fondre totalement pour devenir une
 
 À l'époque antique, les cultivateurs n'existaient pas encore sous leur forme actuelle. Ils s'appelaient alors des « affineurs d'énergie » !
 
-Les puissants affineurs d'énergie de Kunlu étaient l'exemple type de ces anciens êtres. Ils se nommaient ainsi en raison de la nature même de l'énergie originelle et parce que leur culture se concentrait exclusivement sur elle !
+Les puissants affineurs d'énergie de Kunlu étaient l'exemple type de ces anciens êtres. Ils se nommaient ainsi en raison de la nature même de l'énergie originelle et parce que leur cultivation se concentrait exclusivement sur elle !
 
 Ce flux d'énergie originelle fut formé à partir du domaine de Wang Lin. L'énergie était nourrie par le cocon et, telle une créature dans le ventre de sa mère, elle continuait de croître en puissance.
 
@@ -134,7 +134,7 @@ Pour un cultivateur Ascendant, son âme originelle est son domaine ! C'est l'ét
 
 Une fois l'âme originelle sortie, le cocon brisé se mua immédiatement en nutriments pour elle et fut absorbé. Une fois totalement nourrie, l'âme originelle s'assit en position de lotus. Au moment où elle prit cette assise, le corps de Wang Lin trembla et, pour la première fois en dix ans, il ouvrit les yeux.
 
-Wang Lin murmura pour lui-même : « Ascendant ! » Puis ses yeux brillèrent plus intensément que jamais ! Après 700 ans de culture, il avait enfin atteint le stade d'Ascendant. Les cultivateurs Ascendants étaient des existences de premier rang dans n'importe quel pays de culture de grade 6 !
+Wang Lin murmura pour lui-même : « Ascendant ! » Puis ses yeux brillèrent plus intensément que jamais ! Après 700 ans de cultivation, il avait enfin atteint le stade d'Ascendant. Les cultivateurs Ascendants étaient des existences de premier rang dans n'importe quel pays de cultivation de grade 6 !
 
 Même dans les pays de grade 7, les cultivateurs Ascendants étaient considérés comme de véritables puissances !
 

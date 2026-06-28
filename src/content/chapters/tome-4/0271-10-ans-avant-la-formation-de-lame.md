@@ -48,7 +48,7 @@ Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le débu
 
 La mort de ses parents. Le sourire de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
 
-Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
+Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de cultivation pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
 
 Hou Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
 
@@ -74,7 +74,7 @@ Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarn
 
 Mais l'intuition ne signifie pas la compréhension.
 
-On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture :
+On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa cultivation. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la cultivation :
 
 « Ce que tu vois comme une montagne est une montagne, et ce que tu vois comme de l'eau est de l'eau. »
 
@@ -106,7 +106,7 @@ Bien qu'il n'ait pas encore atteint le stade de la Formation de l'Âme, il s'en 
 
 C'était comme si une force mystérieuse dans les cieux l'attirait vers elle.
 
-Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes ; il lui suffisait de trouver un endroit pour s'isoler en culture fermée pendant dix ans pour atteindre ce stade.
+Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes ; il lui suffisait de trouver un endroit pour s'isoler en cultivation fermée pendant dix ans pour atteindre ce stade.
 
 Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte. Il avait vécu dans cette vieille rue pendant plus de trente ans. Il en avait gravé chaque détail, jusqu'au moindre brin d'herbe, dans son esprit. Une pointe de tristesse lui serra le cœur.
 

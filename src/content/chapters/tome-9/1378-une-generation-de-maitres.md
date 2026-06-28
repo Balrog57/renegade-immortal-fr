@@ -12,13 +12,13 @@ L'expression du Maître Simo changea et il se leva soudainement. Ses yeux, tels 
 
 Seul resta le duo père et fils du Clan du Dragon Blindé, les traits sombres.
 
-« Père, la culture de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan du Dragon Blindé.
+« Père, la cultivation de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan du Dragon Blindé.
 
 Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre : « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis, il fut traqué par le Conseil Souverain et a scellé 100 000 cultivateurs ! »
 
 « Quoi ?! » Le jeune maître du Clan du Dragon Blindé fut stupéfait, son expression changeant radicalement.
 
-« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici ? Si sa culture n'était pas si puissante, comment ton père pourrait-il l'aider ? Après tout, celui qui a détruit le Clan du Tonnerre Dispersé n'est pas un cultivateur du troisième pas, sinon pourquoi aiderais-je le Maître Simo ? »
+« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici ? Si sa cultivation n'était pas si puissante, comment ton père pourrait-il l'aider ? Après tout, celui qui a détruit le Clan du Tonnerre Dispersé n'est pas un cultivateur du troisième pas, sinon pourquoi aiderais-je le Maître Simo ? »
 
 Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement : « Si le Senior Simo réussit, tout ira bien, mais si... »
 
@@ -30,7 +30,7 @@ L'expression de Wang Lin était calme, ne laissant paraître aucune émotion alo
 
 Il se tenait là, semblant fusionner avec le monde lui-même. Il était le Ciel ! Il était la Terre !
 
-L'enfant d'il y a deux mille ans était devenu un homme et se dressait désormais au sommet de la culture. Il osait même défier des cultivateurs du troisième pas ! Même si ce dernier n'était présent que par son avatar et ne possédait que la culture de la Cinquième Affliction Céleste !
+L'enfant d'il y a deux mille ans était devenu un homme et se dressait désormais au sommet de la cultivation. Il osait même défier des cultivateurs du troisième pas ! Même si ce dernier n'était présent que par son avatar et ne possédait que la cultivation de la Cinquième Affliction Céleste !
 
 Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Extérieur, à part Wang Lin, combien osaient défier des cultivateurs du troisième pas ?
 
@@ -40,7 +40,7 @@ Il osait affronter les cieux, lutter contre le destin et combattre le Dao !
 
 C'était Wang Lin ! Le Dao Céleste voulait lui voler la vie de Li Muwan, mais il avait tout risqué pour une chance de survie. Il avait condensé les Flammes Joss avant de les abandonner, ne comptant que sur ses cinq essences pour déclencher la Grande Porte du Vide. Il avait emprunté un sentier antique dont presque plus personne ne se souvenait !
 
-Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel pour sortir de leur prison ! Il avait tué le Grand Ancien du Clan du Tonnerre Dispersé malgré un niveau de culture inférieur ! Il avait utilisé sa propre puissance pour traverser l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle !
+Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel pour sortir de leur prison ! Il avait tué le Grand Ancien du Clan du Tonnerre Dispersé malgré un niveau de cultivation inférieur ! Il avait utilisé sa propre puissance pour traverser l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle !
 
 Il avait semé le chaos dans l'Ancien Système Stellaire et était traqué par l'ensemble de ce dernier. Avec tout ce qu'il avait accompli, même Qing Shuang[1] ne pouvait que soupirer, sachant qu'elle n'était pas son égale.
 
@@ -62,7 +62,7 @@ Il semblait que le Maître Simo avait puisé la puissance des cieux pour former 
 
 « Tu parles beaucoup pour rien ! » L'expression de Wang Lin resta impassible et, à l'approche du Maître Simo, ses mains formèrent un sceau.
 
-« Effondrement des Montagnes ! » À cet instant, des volcans illusoires apparurent autour de Wang Lin ! Avec son niveau de culture actuel, il était bien plus puissant qu'au temps où Qing Shui était encore blessé.
+« Effondrement des Montagnes ! » À cet instant, des volcans illusoires apparurent autour de Wang Lin ! Avec son niveau de cultivation actuel, il était bien plus puissant qu'au temps où Qing Shui était encore blessé.
 
 Les volcans surgissaient un à un. Leurs grondements créaient une onde de choc terrifiante qui se propageait à perte de vue.
 
@@ -76,7 +76,7 @@ Simultanément, le doigt de Wang Lin, pointé vers le ciel, fondit impitoyableme
 
 Des fracas tonitruants déchirèrent l'éther, créant une onde de choc puissante qui se propagea dans toutes les directions. Le ciel trembla et la terre se fendit.
 
-À cet instant précis, la planète de culture commença à vaciller.
+À cet instant précis, la planète de cultivation commença à vaciller.
 
 « Montagne, deuxième effondrement, troisième effondrement ! » Les volcans entrèrent en éruption, projetant de la lave rouge vers le vortex.
 
@@ -88,7 +88,7 @@ Cependant, bien que ce volcan parût extrêmement réel, il n'avait pas d'âme ;
 
 À cet instant, Wang Lin bondit dans les airs et tendit sa main droite vers la terre. Il hurla : « Puisque ce volcan est dépourvu d'âme, je vais lui en donner une ! Extrayez les âmes de toutes les montagnes de cette planète !! »
 
-Sous l'ordre de Wang Lin, la planète de culture trembla et la terre gronda comme si un dragon s'agitait dans les profondeurs. Une montagne s'effondra instantanément en un amas de roche, comme si ses fondations mêmes avaient cédé d'un coup !
+Sous l'ordre de Wang Lin, la planète de cultivation trembla et la terre gronda comme si un dragon s'agitait dans les profondeurs. Une montagne s'effondra instantanément en un amas de roche, comme si ses fondations mêmes avaient cédé d'un coup !
 
 Leurs âmes, leurs piliers, tout fut extrait par Wang Lin !
 

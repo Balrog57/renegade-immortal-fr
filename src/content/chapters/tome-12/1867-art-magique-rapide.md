@@ -8,7 +8,7 @@ slug: art-magique-rapide
 ---
 Chapitre 1867 - Art Magique Rapide !
 
-Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Ancestral sans aucune retenue.
+Une lueur sanglante jaillit. Cette entaille contenait toute la cultivation de Wang Lin et il utilisa son pouvoir du Dao Ancestral sans aucune retenue.
 
 Dans les terres célestes du Continent Astral Immortel, Wang Lin était extrêmement prudent avec son pouvoir du Dao Ancestral. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
 
@@ -54,7 +54,7 @@ Les yeux de Wang Lin s'illuminèrent et il agita la main droite. L'âme originel
 
 Ses yeux étaient clos, comme s'il était dans le coma. Elle avait rétréci pour ne mesurer que trois pouces ; elle reposait silencieusement au creux de la main de Wang Lin.
 
-Fixant cette âme, la main droite de Wang Lin se referma impitoyablement ! Tout en pressant, il utilisa le sort de recherche d'âme. En vérité, il était très difficile d'utiliser ce sort lorsque l'écart de culture entre les deux était si immense. Seul en laissant Xu Decai dans cet état de blessure critique Wang Lin pouvait utiliser le sort librement.
+Fixant cette âme, la main droite de Wang Lin se referma impitoyablement ! Tout en pressant, il utilisa le sort de recherche d'âme. En vérité, il était très difficile d'utiliser ce sort lorsque l'écart de cultivation entre les deux était si immense. Seul en laissant Xu Decai dans cet état de blessure critique Wang Lin pouvait utiliser le sort librement.
 
 Tous les souvenirs de Xu Decai furent extraits par Wang Lin sans la moindre résistance.
 
@@ -72,7 +72,7 @@ Cependant, ce qui fit plisser les yeux de Wang Lin fut que cette rancœur atteig
 
 Mais Wang Lin se rétablit vite, ses yeux brillant d'une lueur étrange mêlée d'incrédulité.
 
-« Une âme fantôme est apparue ! » Ayant cultivé le sort d'illusion multicouche, Wang Lin comprenait parfaitement la nature des âmes fantômes et leur création. Cela n'avait rien à voir avec la culture et c'était extrêmement rare !
+« Une âme fantôme est apparue ! » Ayant cultivé le sort d'illusion multicouche, Wang Lin comprenait parfaitement la nature des âmes fantômes et leur création. Cela n'avait rien à voir avec la cultivation et c'était extrêmement rare !
 
 La seule façon d'en créer une était via la méthode du Grand Secte des Âmes, mais la qualité restait médiocre. Au mieux, on ne pouvait produire que des Voiles Fantômes de qualité moyenne.
 
@@ -104,7 +104,7 @@ Après tout cela, un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Il est temps de repartir... » Son corps vacilla et disparut de cet espace brisé.
 
-Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense régnait toujours sur la Prairie du Ciel Extrême. Les cultivateurs survivants possédaient tous des niveaux de culture élevés, ce qui rendait leur élimination ardue et prolongeait le massacre.
+Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense régnait toujours sur la Prairie du Ciel Extrême. Les cultivateurs survivants possédaient tous des niveaux de cultivation élevés, ce qui rendait leur élimination ardue et prolongeait le massacre.
 
 Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Deux cultivateurs du stade intermédiaire de la Tribulation du Vide se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
 

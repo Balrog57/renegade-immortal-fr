@@ -40,13 +40,13 @@ Contemplant le démon ancien devant lui, les yeux de Song Tian brillèrent d'éc
 
 Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révélait une lueur monstrueuse. L'être afficha une expression lugubre avant de se retirer dans la faille et de disparaître.
 
-À l'instant même où le démon ancien disparut, Wang Lin prit une profonde inspiration dans le pays de Luo Huo. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de culture, il fronça les sourcils.
+À l'instant même où le démon ancien disparut, Wang Lin prit une profonde inspiration dans le pays de Luo Huo. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de cultivation, il fronça les sourcils.
 
 Il ne parvenait pas à déterminer son rang actuel. Il avait dépassé le pic du stade de la Tribulation du Vide, mais n'était pas encore un Grand Empereur. Il avait l'impression que ce qu'on appelait un Grand Empereur se trouvait à seulement une demi-étape de son état actuel.
 
 Cette demi-étape semblait infime, mais constituait en réalité un gouffre immense et extrêmement difficile à franchir.
 
-« À mi-chemin du Piétinement des Cieux... » Wang Lin se frotta les tempes et observa l'âme de l'Empereur Céleste qu'il affinait dans son feu d'âme depuis 100 ans. La malédiction ancestrale persistait, et il avait trouvé difficile de la purifier avec son niveau de culture précédent.
+« À mi-chemin du Piétinement des Cieux... » Wang Lin se frotta les tempes et observa l'âme de l'Empereur Céleste qu'il affinait dans son feu d'âme depuis 100 ans. La malédiction ancestrale persistait, et il avait trouvé difficile de la purifier avec son niveau de cultivation précédent.
 
 À cet instant, ses yeux s'illuminèrent et sa main droite se tendit vers l'âme de l'Empereur Céleste. Lorsqu'il la saisit, le feu d'âme environnant se dissipa, ne laissant que l'âme nue.
 
@@ -82,7 +82,7 @@ Wang Lin se leva soudainement et sortit de la chambre secrète pour la première
 
 Un soleil géant apparut derrière la tête de l'Ancêtre Céleste. Ce soleil était noir et blanc, n'étant qu'une silhouette plutôt qu'un corps matériel comme un véritable soleil de Grand Empereur.
 
-« Avec mon niveau de culture précédent, je ne pouvais pas le faire, mais désormais, j'en suis capable. En utilisant l'âme de Lian Daozhen comme guide, je peux fusionner la tête de l'Ancêtre Céleste avec mon soleil de Grand Empereur. Ainsi, mon soleil de Grand Empereur sera pleinement formé ! » Les yeux de Wang Lin s'illuminèrent et ses mains formèrent des sceaux. Des lueurs vertes suivirent les sept filaments dans les orifices de l'Ancêtre Céleste, faisant trembler la tête.
+« Avec mon niveau de cultivation précédent, je ne pouvais pas le faire, mais désormais, j'en suis capable. En utilisant l'âme de Lian Daozhen comme guide, je peux fusionner la tête de l'Ancêtre Céleste avec mon soleil de Grand Empereur. Ainsi, mon soleil de Grand Empereur sera pleinement formé ! » Les yeux de Wang Lin s'illuminèrent et ses mains formèrent des sceaux. Des lueurs vertes suivirent les sept filaments dans les orifices de l'Ancêtre Céleste, faisant trembler la tête.
 
 À cet instant, le ciel s'obscurcit et une pression écrasante descendit, enveloppant toute la zone. Même à une distance immense, on pouvait la ressentir distinctement.
 

@@ -40,7 +40,7 @@ En examinant l'arbre desséché, Wang Lin avait compris qu'un crâne immense ét
 
 Wang Lin avait ressenti une force vitale violente sous le sol et l'avait provoquée pour forcer la créature à attaquer. C'est pourquoi il s'était envolé pour frapper le premier, sans la moindre hésitation.
 
-Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent Moongazer d'Allheaven, et encore moins cette bête qui, bien que similaire, était bien plus faible !
+Avec son niveau de cultivation actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent Moongazer d'Allheaven, et encore moins cette bête qui, bien que similaire, était bien plus faible !
 
 Même Ling Dong, qui approchait du troisième stade, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin !
 
@@ -92,4 +92,4 @@ Le premier Oiseau Vermillon avait cité un nom : l'Ordre Antique Ye Mo.
 
 « Traître du Dao de l'Extinction du Vide... le Dao Céleste est mort. Le messager des cieux m'a désigné comme celui du clan ayant tué le Dao du Vide, mais qui est donc ce "Vide" ? Serait-ce le cultivateur aux sept couleurs, l'Empereur Céleste Antique, qui fut également le maître de la première génération de l'Oiseau Vermillon ? »
 
-« Cependant, si c'était vrai, bien des choses resteraient incohérentes. Pourquoi un Ancien Dieu serait-il le messager des cieux ? Le Dao Céleste est mort, mais qu'est-ce que c'est réellement ? Non pas son corps physique, mais quelle est sa nature et quel est son lien avec ce monde ? La culture, la culture... Et si nous ne faisions que cultiver ce Dao Céleste qui, peut-être, est déjà mort ? » Une profonde confusion embrasa le regard de Wang Lin.
+« Cependant, si c'était vrai, bien des choses resteraient incohérentes. Pourquoi un Ancien Dieu serait-il le messager des cieux ? Le Dao Céleste est mort, mais qu'est-ce que c'est réellement ? Non pas son corps physique, mais quelle est sa nature et quel est son lien avec ce monde ? La cultivation, la cultivation... Et si nous ne faisions que cultiver ce Dao Céleste qui, peut-être, est déjà mort ? » Une profonde confusion embrasa le regard de Wang Lin.

@@ -10,11 +10,11 @@ La tempête marine continuait de gronder, s'intensifiant de manière exponentiel
 
 Les centaines de membres du clan Antique venaient d'arriver et contemplaient la tempête devant eux. Ils ressentaient clairement l'aura destructrice qui émanait de celle-ci, capable de les anéantir sans effort.
 
-Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empereurs Célestes. À leurs niveaux de culture, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
+Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empereurs Célestes. À leurs niveaux de cultivation, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
 
 Wang Lin ignorait les rugissements. Lorsque ce son atteignait ses oreilles, il ne faisait pas trembler son cœur le moins du monde. C'était comme si ce bruit n'était pas digne de faire vibrer son âme, fût-il des milliers de fois plus puissant.
 
-Ayant atteint un tel niveau de culture, oubliez le Continent Astral Immortel ; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
+Ayant atteint un tel niveau de cultivation, oubliez le Continent Astral Immortel ; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
 
 Cependant, les six Grands Empereurs Célestes n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
 

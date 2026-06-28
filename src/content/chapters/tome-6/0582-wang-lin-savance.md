@@ -48,7 +48,7 @@ L'homme désigné sortit et s'avança sur la place. Il portait une armure et ét
 
 Il se tenait là, immobile, tel un pin séculaire.
 
-« Mu Yun ! Ce personnage fait partie des trente meilleurs généraux démons. La rumeur prétend qu'il cultive la méthode de culture des Neuf Morts et Neuf Vies et que, il y a trois cents ans, il avait déjà atteint le stade des cinq morts et cinq vies ! »
+« Mu Yun ! Ce personnage fait partie des trente meilleurs généraux démons. La rumeur prétend qu'il cultive la méthode de cultivation des Neuf Morts et Neuf Vies et que, il y a trois cents ans, il avait déjà atteint le stade des cinq morts et cinq vies ! »
 
 « Le premier est déjà si puissant ; cette compétition entre généraux démons s'annonce passionnante ! »
 
@@ -64,7 +64,7 @@ Sa présence provoqua l'exclamation de la foule !
 
 « Shi Xiao ! »
 
-« Le général démon Shi Xiao ! Sa culture figure parmi les trois premiers. Je me demande si ce n'est pas une forme d'intimidation qu'il se présente ainsi. »
+« Le général démon Shi Xiao ! Sa cultivation figure parmi les trois premiers. Je me demande si ce n'est pas une forme d'intimidation qu'il se présente ainsi. »
 
 « Je pensais que l'adversaire de Shi Xiao serait Mo Lihai. Il y a trois cents ans, Mo Lihai lui avait infligé sa première cicatrice. C'était l'insulte la plus profonde que Shi Xiao ait jamais subie ! »
 

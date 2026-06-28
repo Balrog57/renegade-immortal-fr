@@ -118,6 +118,6 @@ Même après cela, il fronçait toujours les sourcils en observant le gaz vert d
 
 Un éclat de froideur passa dans les yeux de Wang Lin alors qu'il fixait la femme inconsciente. Après un long moment, il leva la main et l'appuya sur son front pour utiliser le sort de recherche d'âme qu'il n'avait pas encore employé sur elle !
 
-« Il n'y a aucune haine entre nous et je n'ai pas l'intention de vous nuire. Cependant, vos secrets sont cruciaux pour moi. Avec mon niveau de culture, si je reste prudent, je ne briserai pas votre esprit en pratiquant cette recherche d'âme ! »
+« Il n'y a aucune haine entre nous et je n'ai pas l'intention de vous nuire. Cependant, vos secrets sont cruciaux pour moi. Avec mon niveau de cultivation, si je reste prudent, je ne briserai pas votre esprit en pratiquant cette recherche d'âme ! »
 
 Wang Lin ferma les yeux alors que son sens divin pénétrait le front de la femme par sa main droite.

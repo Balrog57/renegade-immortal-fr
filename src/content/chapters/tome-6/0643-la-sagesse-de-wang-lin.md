@@ -66,7 +66,7 @@ Wang Lin progressait lentement dans la brume, extrêmement vigilant. Son sens di
 
 Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin :
 
-« Wang Lin, il y a une zone dégagée à cinq kilomètres devant toi, et six personnes s'y trouvent ! L'une d'elles possède une culture puissante, et les vêtements des cinq autres me semblent familiers ! »
+« Wang Lin, il y a une zone dégagée à cinq kilomètres devant toi, et six personnes s'y trouvent ! L'une d'elles possède une cultivation puissante, et les vêtements des cinq autres me semblent familiers ! »
 
 « Six personnes ! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -82,11 +82,11 @@ Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression
 
 Le sens divin de l'inconnu était extrêmement étrange, ce qui le rendait incertain. Ce sens ressemblait à celui d'un cultivateur au début du stade Ascendant, mais un second sens s'y cachait. Ce second sens était d'une puissance phénoménale et portait une intention d'épée extrêmement tranchante !
 
-Avant de comprendre les capacités de son adversaire, Greed ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Illusoire Yin, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
+Avant de comprendre les capacités de son adversaire, Greed ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa cultivation originale était au stade Illusoire Yin, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
 
-Cela ne signifiait pas que Situ Nan était infiniment puissant, mais plutôt que si un cultivateur du stade Illusoire Yin perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre ! Après tout, les stades Illusoire Yin et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
+Cela ne signifiait pas que Situ Nan était infiniment puissant, mais plutôt que si un cultivateur du stade Illusoire Yin perdait sa cultivation, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre ! Après tout, les stades Illusoire Yin et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
 
-Même pour Situ Nan, sans la force mystérieuse qui le nourrissait à l'intérieur de la Perle Défiant le Ciel et sans son talent prodigieux, il n'aurait jamais pu retrouver sa culture.
+Même pour Situ Nan, sans la force mystérieuse qui le nourrissait à l'intérieur de la Perle Défiant le Ciel et sans son talent prodigieux, il n'aurait jamais pu retrouver sa cultivation.
 
 Cependant, bien que celle de Greed soit limitée au sommet du stade Ascendant tardif, elle ne correspondait pas à celle d'un simple Ascendant. Avec les trésors accumulés au fil des âges, même un cultivateur Illusoire Yin devrait redoubler d'efforts pour le tuer. Un seul instant de négligence et Greed pourrait s'échapper.
 
@@ -96,16 +96,16 @@ Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respec
 
 « La Secte de l'Épée Da Lou ! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Lou !! Wang Lin, que comptes-tu faire ? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
 
-Wang Lin réfléchit un instant et répondit : « Aîné, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Greed est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester !
+Wang Lin réfléchit un instant et répondit : « Aîné, ne trouvez-vous pas cela étrange... Le niveau de cultivation de ce Greed est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester !
 
-« De plus, Aîné, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples ? J'ai vérifié sa culture : il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé ? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal ! »
+« De plus, Aîné, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples ? J'ai vérifié sa cultivation : il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé ? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal ! »
 
 Wang Lin esquissa un léger sourire, une lueur de sagesse brillant dans ses yeux. Il analysa : « Ce disciple est intéressant. Il utilise cette joie pour nous signifier qu'ils ne sont pas alliés à Greed. C'est un appel à l'aide. »
 
-La silhouette de Zhou Yi apparut au-dessus de l'épée céleste. Il regarda Wang Lin avec une stupeur manifeste. Pour la première fois, il ressentit la terreur que pouvait inspirer Wang Lin ! Le niveau de culture de ce dernier n'était qu'au début du stade Ascendant. S'il ne lui avait pas donné le Cristal Ascendant, Wang Lin n'aurait probablement jamais survécu à l'épreuve de vie ou de mort.
+La silhouette de Zhou Yi apparut au-dessus de l'épée céleste. Il regarda Wang Lin avec une stupeur manifeste. Pour la première fois, il ressentit la terreur que pouvait inspirer Wang Lin ! Le niveau de cultivation de ce dernier n'était qu'au début du stade Ascendant. S'il ne lui avait pas donné le Cristal Ascendant, Wang Lin n'aurait probablement jamais survécu à l'épreuve de vie ou de mort.
 
 Dans l'esprit de Zhou Yi, Wang Lin était un junior intègre et sentimental. Bien qu'il lui soit reconnaissant, il ne le considérait pas comme son égal.
 
 Cependant, l'image qu'il avait de lui changea radicalement après ces paroles.
 
-« Les desseins de cet enfant sont profonds et ses observations sont d'une finesse rare ; c'est un spectacle que je vois peu ! Sa sagesse est terrifiante, surtout par la détermination avec laquelle il agit. Atteindre ce niveau de culture en seulement mille ans n'était certainement pas dû au hasard ! Je l'avais vraiment sous-estimé ! »
+« Les desseins de cet enfant sont profonds et ses observations sont d'une finesse rare ; c'est un spectacle que je vois peu ! Sa sagesse est terrifiante, surtout par la détermination avec laquelle il agit. Atteindre ce niveau de cultivation en seulement mille ans n'était certainement pas dû au hasard ! Je l'avais vraiment sous-estimé ! »

@@ -34,7 +34,7 @@ Simultanément, un deuxième poil blanc se sépara du pinceau pour devenir un se
 
 Le troisième suivit rapidement, se muant en une aura de massacre. Il devint l'aura meurtrière d'une épée de carnage.
 
-Le quatrième, le cinquième, le sixième... En un éclair, des centaines de poils blancs s'envolèrent, se transformant en le Doigt de la Mort, le Doigt de l'Autre Monde, le Doigt Démoniaque et bien d'autres sorts que Wang Lin avait vus lors de sa première étape de culture.
+Le quatrième, le cinquième, le sixième... En un éclair, des centaines de poils blancs s'envolèrent, se transformant en le Doigt de la Mort, le Doigt de l'Autre Monde, le Doigt Démoniaque et bien d'autres sorts que Wang Lin avait vus lors de sa première étape de cultivation.
 
 Certains de ces sorts étaient ceux qu'il maîtrisait, d'autres étaient des techniques qu'il n'avait vues que chez autrui.
 
@@ -68,11 +68,11 @@ Les 3 000 poils du pinceau étaient la rétribution divine !
 
 La suppression par la pagode était une autre forme de rétribution divine !
 
-La troisième étape de la rétribution divine visant Wang Lin était extrêmement puissante ! Si la culture de Wang Lin n'avait été qu'au stade initial du Nirvana Void, il serait sans aucun doute mort ici !
+La troisième étape de la rétribution divine visant Wang Lin était extrêmement puissante ! Si la cultivation de Wang Lin n'avait été qu'au stade initial du Nirvana Void, il serait sans aucun doute mort ici !
 
 Même au sommet du Nirvana Void, il aurait péri face à cette rétribution divine !
 
-Et même avec sa culture de milieu de stade Spirit Void, s'il l'avait atteinte normalement avec une seule essence, il n'aurait eu aucune chance de survie contre un tel assaut !
+Et même avec sa cultivation de milieu de stade Spirit Void, s'il l'avait atteinte normalement avec une seule essence, il n'aurait eu aucune chance de survie contre un tel assaut !
 
 La pagode dorée à neuf étages percuta immédiatement la zone où se trouvaient les 3 000 sorts. Après un fracas violent, le silence retomba.
 

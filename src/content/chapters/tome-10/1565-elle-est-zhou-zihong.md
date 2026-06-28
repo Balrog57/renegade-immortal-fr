@@ -14,7 +14,7 @@ Alors qu'elle parlait, presque tous les cultivateurs de l'auberge commencèrent 
 
 « Je suis une cultivatrice du pays de Hou Feng, et notre pays a subi une catastrophe qui nous a forcés à migrer vers le pays voisin de Xuan Wu. Xuan Wu n'était pas disposé à nous accueillir, alors une guerre éclata entre les deux nations... » Les combats du passé semblèrent défiler devant la femme en violet.
 
-« Ma Liang... Peut-être était-il vraiment le Seigneur du Royaume Scellé. À l'époque, il avait déjà laissé sa marque. Bien qu'il ne fût qu'un cultivateur de l'Établissement des Fondations, des centaines de personnes de même niveau de culture étaient tombées sous ses coups. » La voix douce de la femme en violet résonna dans l'auberge.
+« Ma Liang... Peut-être était-il vraiment le Seigneur du Royaume Scellé. À l'époque, il avait déjà laissé sa marque. Bien qu'il ne fût qu'un cultivateur de l'Établissement des Fondations, des centaines de personnes de même niveau de cultivation étaient tombées sous ses coups. » La voix douce de la femme en violet résonna dans l'auberge.
 
 Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
 
@@ -22,7 +22,7 @@ Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
 
 « Rien n'est impossible. Comment le Seigneur du Royaume Scellé pourrait-il être quelqu'un que notre imagination puisse concevoir ? »
 
-« Plus le niveau de culture est bas, plus l'écart entre les échelons est réduit. Bien que la différence ne soit pas négligeable, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque ; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer des Nuages ! »
+« Plus le niveau de cultivation est bas, plus l'écart entre les échelons est réduit. Bien que la différence ne soit pas négligeable, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque ; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer des Nuages ! »
 
 Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur excité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
 
@@ -54,7 +54,7 @@ En écoutant le récit, Wang Lin saisit une coupe et but une gorgée. Ses yeux �
 
 Thirteen prit la cruche de vin et servit son maître.
 
-« Un cultivateur de la Formation du Noyau ? Humph, ce type est-il encore en vie ? Il a osé s'en prendre au Seigneur du Royaume Scellé ! S'il survit, c'est que son niveau de culture ne peut pas être très élevé. Même si le Seigneur du Royaume Scellé s'en moque, ce vieil homme, lui, lui arrachera l'âme ! »
+« Un cultivateur de la Formation du Noyau ? Humph, ce type est-il encore en vie ? Il a osé s'en prendre au Seigneur du Royaume Scellé ! S'il survit, c'est que son niveau de cultivation ne peut pas être très élevé. Même si le Seigneur du Royaume Scellé s'en moque, ce vieil homme, lui, lui arrachera l'âme ! »
 
 « C'est vrai, il a provoqué le Seigneur du Royaume Scellé, ce qui revient à provoquer tous les cultivateurs des quatre grands systèmes stellaires ! »
 

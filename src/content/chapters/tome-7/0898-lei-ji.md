@@ -34,9 +34,9 @@ Cependant, dès que la voix s'était manifestée, elle s'était brusquement inte
 
 L'expression de Wang Lin resta sereine tandis qu'il approchait du gigantesque cercueil. Bien que l'objet paraisse ordinaire, il était recouvert d'innombrables restrictions. Cette cascade de barrières n'avait rien de simple et dégageait une pression colossale.
 
-Avec le niveau de culture de Wang Lin à l'époque, il n'aurait ressenti qu'un tremblement de l'esprit sans en comprendre la cause en s'approchant. Mais aujourd'hui, il pouvait observer clairement les restrictions qui pesaient sur le cercueil.
+Avec le niveau de cultivation de Wang Lin à l'époque, il n'aurait ressenti qu'un tremblement de l'esprit sans en comprendre la cause en s'approchant. Mais aujourd'hui, il pouvait observer clairement les restrictions qui pesaient sur le cercueil.
 
-« Impossible. Comment avez-vous atteint un tel niveau de culture en seulement quelques centaines d'années ? Ceci... ceci est... » La voix affaiblie était extrêmement choquée. Il était évident qu'il reconnut Wang Lin, et c'est ce qui causait son effroi.
+« Impossible. Comment avez-vous atteint un tel niveau de cultivation en seulement quelques centaines d'années ? Ceci... ceci est... » La voix affaiblie était extrêmement choquée. Il était évident qu'il reconnut Wang Lin, et c'est ce qui causait son effroi.
 
 Il se souvenait clairement que le cultivateur devant lui était venu deux fois auparavant. La première fois, ce dernier n'était qu'au stade de l'Établissement des Fondations. Il ne s'en était pas soucié, car un tel cultivateur ne pouvait rien pour lui.
 
@@ -44,7 +44,7 @@ Des centaines d'années plus tard, ce cultivateur revint une seconde fois. Cette
 
 Il en avait toujours éprouvé de la rancœur, mais il n'avait eu d'autre choix. Cependant, maintenant que ce cultivateur revenait pour la troisième fois, il était terrifié.
 
-Il ne parvenait pas à percer le niveau de culture de ce jeune homme.
+Il ne parvenait pas à percer le niveau de cultivation de ce jeune homme.
 
 Et encore, cet individu mis à part, il ne pouvait même pas évaluer la puissance des deux autres qui semblaient être ses serviteurs. Il ne ressentait d'eux qu'une aura terrifiante.
 
@@ -70,7 +70,7 @@ Wang Lin demanda calmement : « Combien de membres de votre Clan des Démons Gé
 
 « La vigne pourpre dans mon corps est une plante étrange que la Secte des Cadavres utilise pour s'approprier ma force vitale sans affecter ma capacité de lignée. Ainsi, ils pourront posséder mon corps sans aucun obstacle. » Si Wang Lin n'avait pas atteint son niveau actuel, Lei Ji n'aurait pas dit la vérité, mais là, il parlait sans aucune hésitation.
 
-La force était la seule loi dans le monde de la culture !
+La force était la seule loi dans le monde de la cultivation !
 
 Les yeux de Wang Lin s'illuminèrent. Il tendit sa main droite vers Lei Ji, dont le corps se mit à trembler violemment. La vigne pourpre sur son corps commença à s'agiter.
 

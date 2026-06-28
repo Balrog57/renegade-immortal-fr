@@ -10,15 +10,15 @@ Chapitre 1996 - Impudent !
 
 L’apparence de Wang Lin, la précision de ses gestes et ses paroles plongèrent tout le monde dans un silence pesant.
 
-L'expression du Grand Empereur Jiu Di était sombre. Il ressentait une douleur déchirante et brûlante au plus profond de son corps, mais il la réprimait grâce à sa puissante culture. Il fixa Wang Lin, et une intention meurtrière jaillit de ses yeux !
+L'expression du Grand Empereur Jiu Di était sombre. Il ressentait une douleur déchirante et brûlante au plus profond de son corps, mais il la réprimait grâce à sa puissante cultivation. Il fixa Wang Lin, et une intention meurtrière jaillit de ses yeux !
 
 Il avait tout calculé, mais il ne s'était pas attendu à ce que l'Empereur Céleste abandonne son corps de Grand Empereur pour choisir l'autodestruction. Cela ne correspondait pas à sa compréhension de l'Empereur Céleste.
 
-Quoi qu'il en soit, cela n'avait pas de conséquence majeure. Bien que l'Empereur Céleste ait explosé, la tête avait été ouverte. La malédiction ancestrale s'était dispersée entre eux, ce qui ne la rendait pas fatale. Ils n'avaient aucune raison de s'entretuer, ils ne feraient donc pas empirer la malédiction. Ils prendraient ce dont ils avaient besoin, puis retourneraient dans leurs grottes pour une culture en isolement afin d'éliminer lentement la malédiction.
+Quoi qu'il en soit, cela n'avait pas de conséquence majeure. Bien que l'Empereur Céleste ait explosé, la tête avait été ouverte. La malédiction ancestrale s'était dispersée entre eux, ce qui ne la rendait pas fatale. Ils n'avaient aucune raison de s'entretuer, ils ne feraient donc pas empirer la malédiction. Ils prendraient ce dont ils avaient besoin, puis retourneraient dans leurs grottes pour une cultivation en isolement afin d'éliminer lentement la malédiction.
 
 Cependant, ce qui avait fait échouer les calculs de Jiu Di, c'était que Wang Lin était toujours en vie !
 
-Non seulement il n'était pas mort, mais il semblait que son niveau de culture avait augmenté, et désormais, c'était lui qui prenait l'initiative ! Puisqu'ils étaient affectés par la malédiction ancestrale, ils se trouvaient en position de faiblesse !
+Non seulement il n'était pas mort, mais il semblait que son niveau de cultivation avait augmenté, et désormais, c'était lui qui prenait l'initiative ! Puisqu'ils étaient affectés par la malédiction ancestrale, ils se trouvaient en position de faiblesse !
 
 Non loin de là, le visage du Grand Empereur Wu Feng vieillissait à vue d'œil et ses yeux s'obscurcissaient. Son corps tremblait tandis qu'il lançait à Wang Lin un regard complexe.
 
@@ -26,7 +26,7 @@ Quant au Grand Empereur Dao Yi, il était enveloppé d'un gaz noir et la douleur
 
 Cette colère venait de la vue d'une fourmi osant montrer les crocs face à un lion !
 
-« Arrogant, tu cherches la mort ! » hurla Dao Yi. Il possédait la culture la plus faible des Grands Empereurs et, frappé par la malédiction ancestrale, il n'avait guère de temps pour réfléchir. Même si Wang Lin était le premier parmi les Empereurs Ascendants, il n'était toujours qu'une fourmi !
+« Arrogant, tu cherches la mort ! » hurla Dao Yi. Il possédait la cultivation la plus faible des Grands Empereurs et, frappé par la malédiction ancestrale, il n'avait guère de temps pour réfléchir. Même si Wang Lin était le premier parmi les Empereurs Ascendants, il n'était toujours qu'une fourmi !
 
 Tout en criant, Dao Yi transforma sa douleur en intention meurtrière et se précipita vers Wang Lin. En s'approchant, il leva la main droite, autour de laquelle s'accumula un gaz noir. C'était une vision terrifiante.
 

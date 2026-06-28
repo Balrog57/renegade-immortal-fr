@@ -50,7 +50,7 @@ L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita
 
 Ses yeux s'illuminèrent et sa main droite s'avança. Une fissure dans son espace de stockage apparut et un immense fragment d'os de doigt en jaillit. En flottant dans les airs, il ressemblait à un continent !
 
-L'os de doigt du dieu ancien était comparable à une planète de culture. Bien qu'il ne s'agisse que de la moitié de l'os original, son aura était extrêmement dense. Wang Lin ressentait clairement cette puissance émaner de la structure.
+L'os de doigt du dieu ancien était comparable à une planète de cultivation. Bien qu'il ne s'agisse que de la moitié de l'os original, son aura était extrêmement dense. Wang Lin ressentait clairement cette puissance émaner de la structure.
 
 L'aura antique au sein du doigt était si puissante qu'elle en devenait presque tangible, mais elle restait impossible à absorber. Une parcelle de volonté résidait à l'intérieur, interdisant à quiconque de la dévorer.
 
@@ -64,7 +64,7 @@ Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sou
 
 « Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
-Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré plus tôt, il n'aurait pas été son égal.
+Le niveau de cultivation de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré plus tôt, il n'aurait pas été son égal.
 
 Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra sous la force de l'onde de choc de l'aura du dieu ancien.
 
@@ -108,6 +108,6 @@ Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir ! »
 
-« Conjugué aux paroles du Maître Dao Blue Dream, l'idée que le Souverain ait été blessé par le rugissement de quelque chose dans le Royaume Intérieur avant de fuir en panique est crédible ! Le Souverain est en culture fermée à cause de ses blessures... Je ne sais simplement pas à quel point il s'est rétabli... » Les yeux de Wang Lin devinrent froids alors qu'il levait les yeux vers le ciel.
+« Conjugué aux paroles du Maître Dao Blue Dream, l'idée que le Souverain ait été blessé par le rugissement de quelque chose dans le Royaume Intérieur avant de fuir en panique est crédible ! Le Souverain est en cultivation fermée à cause de ses blessures... Je ne sais simplement pas à quel point il s'est rétabli... » Les yeux de Wang Lin devinrent froids alors qu'il levait les yeux vers le ciel.
 
 « Il est temps de partir... Cette femme en blanc doit encore m'attendre là-bas... »

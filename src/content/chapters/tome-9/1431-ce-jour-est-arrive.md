@@ -44,7 +44,7 @@ Tout cela se produisit en un éclair. Alors que la paume se désintégrait, elle
 
 « Ancienne Ombrelle Brûlant les Royaumes, brise-toi devant ce Souverain !! »
 
-L'ombrelle antique trembla et Wang Lin cracha du sang. La vitalité dans son corps était en plein chaos. Après tout, son niveau de culture n'était pas assez élevé pour déployer sa véritable puissance. Le simple fait de l'ouvrir à 20 % pour bloquer la paume du Souverain représentait sa limite !
+L'ombrelle antique trembla et Wang Lin cracha du sang. La vitalité dans son corps était en plein chaos. Après tout, son niveau de cultivation n'était pas assez élevé pour déployer sa véritable puissance. Le simple fait de l'ouvrir à 20 % pour bloquer la paume du Souverain représentait sa limite !
 
 Après avoir recraché du sang, Wang Lin fut repoussé. Faute d'injection de vitalité, l'ombrelle antique commença lentement à se dissiper. Cela n'était pas dû à la paume !
 
@@ -54,7 +54,7 @@ L'ombrelle antique, sur le point de se dissiper, trembla et, sous l'écho du cri
 
 La terre sacrée entière du Clan des Oiseaux de Feu s'effondra totalement ! L'empreinte grise générée par l'armure se désintégra complètement.
 
-À l'extérieur de la porte de la terre sacrée du Clan des Oiseaux de Feu, l'Ancêtre était assis en pleine culture. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
+À l'extérieur de la porte de la terre sacrée du Clan des Oiseaux de Feu, l'Ancêtre était assis en pleine cultivation. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
 
 Ce fut si soudain que l'Ancêtre du Clan des Oiseaux de Feu n'eut pas le temps de réagir avant que les débris ne le percutent. Il cracha du sang et recula rapidement, le regard empreint de choc, de terreur et d'incrédulité !
 
@@ -68,7 +68,7 @@ Face au danger imminent, du sang coula du coin de la bouche de Wang Lin tandis q
 
 Le Domaine du Vent et de la Pluie se brisa dans un fracas assourdissant !
 
-Wang Lin cracha du sang et une lumière blanche émana de son corps. Une lueur blanche infinie jaillit de la planète de culture et se condensa autour de Wang Lin pour former une immense silhouette lumineuse !
+Wang Lin cracha du sang et une lumière blanche émana de son corps. Une lueur blanche infinie jaillit de la planète de cultivation et se condensa autour de Wang Lin pour former une immense silhouette lumineuse !
 
 Le sort du Maître du Dao Blue Dream, le Bouclier d'Ombre et de Lumière !
 
@@ -88,7 +88,7 @@ Au moment le plus critique, Wang Lin leva la main droite devant lui. Une vague d
 
 Le trésor d'Ancien Dieu raffiné à partir de l'os d'un Ancien Dieu !
 
-Dès que le gantelet apparut, la paume s'abattit dessus dans un fracas de tonnerre ! Wang Lin cracha du sang à sept reprises. La planète de culture ne put supporter la force et s'effondra directement !
+Dès que le gantelet apparut, la paume s'abattit dessus dans un fracas de tonnerre ! Wang Lin cracha du sang à sept reprises. La planète de cultivation ne put supporter la force et s'effondra directement !
 
 La planète entière fut déchirée ! D'immenses fissures parcoururent sa surface. Elle ressemblait à une bulle d'eau éclatée, se désintégrant instantanément !
 
@@ -104,7 +104,7 @@ L'expression de Wang Lin devint féroce alors qu'il levait la main gauche pour p
 
 La puissance d'Ancien Dieu à l'intérieur de Wang Lin se précipita dans le gantelet à une vitesse fulgurante. Tandis que ses paroles résonnaient, une puissante aura d'Ancien Dieu apparut parmi les étoiles !
 
-Au loin, un Ancien Dieu de la taille d'une planète de culture surgit soudainement devant Wang Lin !
+Au loin, un Ancien Dieu de la taille d'une planète de cultivation surgit soudainement devant Wang Lin !
 
 Cet Ancien Dieu était illusoire et dégageait une aura antique. Son corps était couvert de blessures, témoignant de multiples batailles passées ! Son visage faisait face à la paume et ses bras enveloppaient Wang Lin. Il protégeait Wang Lin avec son propre corps, tel un parent protégeant son enfant !
 

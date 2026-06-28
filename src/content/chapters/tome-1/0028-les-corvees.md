@@ -6,15 +6,15 @@ bookTitle: The Mediocre Youth
 en: Chapter 28 - Chores
 slug: les-corvees
 ---
-Parmi les teintes pourpre, noire, blanche et rouge, le noir représentait un niveau de culture extrêmement élevé. Wang Lin ne parvenait pas à percer les secrets de sa cultivation, alors il salua respectueusement : « Wang Lin salue le frère Zhang. Félicitations, Senior, pour avoir atteint le rang des vêtements noirs. »
+Parmi les teintes pourpre, noire, blanche et rouge, le noir représentait un niveau de cultivation extrêmement élevé. Wang Lin ne parvenait pas à percer les secrets de sa cultivation, alors il salua respectueusement : « Wang Lin salue le frère Zhang. Félicitations, Senior, pour avoir atteint le rang des vêtements noirs. »
 
 Le jeune homme vêtu de noir regarda Wang Lin et dit lentement : « Mon succès dans l'accès à la cinquième couche de Condensation de Qi est en partie dû à vous. Si je n'avais pas trouvé cette grotte en vous cherchant, je ne me serais pas élevé aussi rapidement. »
 
-Wang Lin fut stupéfait et demanda : « Frère Zhang, ce trou doté d'une force de succion dans la grotte pourrait-il aider la culture ? »
+Wang Lin fut stupéfait et demanda : « Frère Zhang, ce trou doté d'une force de succion dans la grotte pourrait-il aider la cultivation ? »
 
 Le jeune homme vêtu de noir hocha la tête et répondit : « Lorsque vous atteindrez le sommet de la quatrième couche et que vous devrez utiliser l'incantation pour entrer dans la cinquième, allez-y par vous-même et vous constaterez l'effet. » Il jeta un regard à Wang Lin et ajouta : « Frère Wang, votre talent est médiocre, on ne peut rien y faire, mais puisque vous êtes désormais un disciple, vous devez cultiver avec diligence. Je vois qu'il n'y a aucune énergie spirituelle en vous. Vous n'avez même pas atteint la première couche de Condensation de Qi. J'ai bien peur que, parmi tous les disciples intérieurs, vous soyez le seul. »
 
-Wang Lin fut interdit, mais esquissa un sourire amer : « Je prendrai conseil de mon frère cadet. Je redoublerai d'efforts dans ma culture. » Il changea brusquement de sujet et demanda : « Frère Zhang, quelle est la raison de votre venue aujourd'hui ? »
+Wang Lin fut interdit, mais esquissa un sourire amer : « Je prendrai conseil de mon frère cadet. Je redoublerai d'efforts dans ma cultivation. » Il changea brusquement de sujet et demanda : « Frère Zhang, quelle est la raison de votre venue aujourd'hui ? »
 
 Le jeune homme vêtu de noir gloussa : « Ce n'est rien de grave. Le disciple honorifique responsable de la maison des corvées a disparu. Quelqu'un vous a vu vous y rendre ce jour-là, alors je suis venu vous interroger à ce sujet. »
 
@@ -28,7 +28,7 @@ Le frère Zhang eut un léger sourire : « Préparez vos affaires et rendez-vous
 
 Il joignit les mains en signe de salut vers Wang Lin, fit un pas, et une épée apparut sous ses pieds. L'épée émit des reflets arc-en-ciel alors qu'il s'éloignait en la chevauchant.
 
-Wang Lin afficha une expression de frustration. Il ne voulait pas aller à la maison des corvées. Les gens là-bas étaient trop indiscrets ; il serait trop facile pour son secret d'être découvert. De plus, la charge de travail risquait de perturber sa culture. Mais désormais, il n'avait pas le choix. Le cœur lourd d'amertume, il fit ses bagages et se rendit à la maison des corvées.
+Wang Lin afficha une expression de frustration. Il ne voulait pas aller à la maison des corvées. Les gens là-bas étaient trop indiscrets ; il serait trop facile pour son secret d'être découvert. De plus, la charge de travail risquait de perturber sa cultivation. Mais désormais, il n'avait pas le choix. Le cœur lourd d'amertume, il fit ses bagages et se rendit à la maison des corvées.
 
 Une fois arrivé, il prit une décision : il ne pourrait pas rester longtemps à la maison des corvées. Il devait tout mettre le bazar afin que tous les disciples honorifiques se précipitent auprès des Anciens pour réclamer un remplaçant.
 
@@ -58,7 +58,7 @@ Quelques disciples honorifiques dans la foule crièrent avec mécontentement : �
 
 Le tumulte des voix mécontentes s'intensifia. Bientôt, tout le monde quitta la cour en lançant des insultes. Ils affichaient tous un air de victime en se dirigeant vers la cour principale, hurlant des choses comme : « Wang Lin veut notre perte ! »
 
-Wang Lin se sentait serein. Il ne les arrêta pas et espérait qu'ils réussiraient. De cette façon, les Anciens seraient furieux et nommeraient quelqu'un d'autre, ce qui lui permettrait de se concentrer sur sa culture.
+Wang Lin se sentait serein. Il ne les arrêta pas et espérait qu'ils réussiraient. De cette façon, les Anciens seraient furieux et nommeraient quelqu'un d'autre, ce qui lui permettrait de se concentrer sur sa cultivation.
 
 Les dix personnes restantes hésitaient. Elles voulaient partir, mais si la démarche échouait, ne cela signifierait-il pas qu'elles avaient totalement manqué de respect à Wang Lin ?
 

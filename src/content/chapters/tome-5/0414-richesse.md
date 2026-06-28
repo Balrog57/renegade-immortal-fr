@@ -40,13 +40,13 @@ Il fit de même pour les rares cultivateurs de l'Âme Naissante. Il ne retint ri
 
 Trois jours plus tard, Wang Lin et Wang Zhuo quittèrent la Secte Tian Dao. Avant son départ, Wang Lin y installa une formation protectrice. Elle interdirait l'accès à tout cultivateur de la Formation de l'Âme ; seuls les experts de la Transformation de l'Âme pourraient la briser.
 
-Pour un pays de culture de rang 3, posséder une telle formation était sans précédent. Normalement, seul un pays de rang 5 disposerait d'une formation de protection de secte aussi puissante.
+Pour un pays de cultivation de rang 3, posséder une telle formation était sans précédent. Normalement, seul un pays de rang 5 disposerait d'une formation de protection de secte aussi puissante.
 
 Après avoir accompli ce dernier acte pour Zhao, Wang Lin n'avait plus aucune inquiétude concernant le pays qui l'avait élevé. Il suivit ensuite Wang Zhuo pour observer silencieusement les descendants de la famille Wang.
 
 Puis, dans la demeure ancestrale, Wang Lin vit Yu Er et ses parents. En voyant la fillette, Wang Lin se remémora Da Niu et Zhou Ru lorsqu'ils étaient enfants. Une pointe de mélancolie l'envahit en cet instant.
 
-Wang Zhuo prit Yu Er comme disciple et lui transmit des méthodes de culture.
+Wang Zhuo prit Yu Er comme disciple et lui transmit des méthodes de cultivation.
 
 Avant de partir, Wang Lin récupéra le Domaine de Ji contenu dans la pierre de jade de la demeure ancestrale et le remplaça par son propre Sens Divin.
 
@@ -56,7 +56,7 @@ Il avait l'intention de consacrer sa vie à protéger les descendants de la fami
 
 L'affaire du pays de Zhao était close.
 
-Cependant, une pensée persistait dans l'esprit de Wang Lin : la Secte Heng Yue. C'était la secte qui l'avait guidé sur le chemin de la culture. Avant de quitter Zhao, il décida d'aller à leur recherche.
+Cependant, une pensée persistait dans l'esprit de Wang Lin : la Secte Heng Yue. C'était la secte qui l'avait guidé sur le chemin de la cultivation. Avant de quitter Zhao, il décida d'aller à leur recherche.
 
 Il déploya son Sens Divin et toutes les montagnes et grottes environnantes apparurent dans son esprit. D'un simple mouvement, son corps disparut.
 
@@ -84,7 +84,7 @@ Wang Lin réfléchit. Il recula d'un pas, s'inclina respectueusement et dit : «
 
 Après un soupir, il ramassa les pierres de jade une à une pour les examiner avec son Sens Divin. En saisissant l'une d'elles, il s'interrompit brusquement.
 
-« Ce vieil homme manque de talent, ma culture n'atteindra donc jamais de haut niveau, mais j'ai une étrange compréhension des épées. C'est comme si ma vie appartenait à l'épée. Pourtant, je ne sais pourquoi, mais chaque fois que mon Sens Divin pénètre dans une épée, celle-ci se brise en un instant. Sans exception... »
+« Ce vieil homme manque de talent, ma cultivation n'atteindra donc jamais de haut niveau, mais j'ai une étrange compréhension des épées. C'est comme si ma vie appartenait à l'épée. Pourtant, je ne sais pourquoi, mais chaque fois que mon Sens Divin pénètre dans une épée, celle-ci se brise en un instant. Sans exception... »
 
 « Le mot "inutile" décrit bien ce vieil homme. Puisque je ne peux pas utiliser mon Sens Divin pour contrôler les épées, je suis incapable de les manier au combat. Je suis une honte pour mon maître. »
 
@@ -118,7 +118,7 @@ Lorsqu'il réapparut, il se trouvait à l'extérieur de la Vallée Jue Ming. C'�
 
 Créant une nouvelle faille spatiale, Wang Lin y pénétra. Cette fois, sa seule cible était Richesse.
 
-« Cette épée ayant été forgée avec des métaux ordinaires, j'ignore si elle a pu survivre dans la faille spatiale pendant cinq cents ans. J'ignore aussi si elle a été détruite avec le sac. Malheureusement, mon niveau de culture n'était pas assez élevé pour percevoir la technique d'épée qu'elle contenait, sinon... » Wang Lin soupira en déployant son Sens Divin.
+« Cette épée ayant été forgée avec des métaux ordinaires, j'ignore si elle a pu survivre dans la faille spatiale pendant cinq cents ans. J'ignore aussi si elle a été détruite avec le sac. Malheureusement, mon niveau de cultivation n'était pas assez élevé pour percevoir la technique d'épée qu'elle contenait, sinon... » Wang Lin soupira en déployant son Sens Divin.
 
 Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé. Il n'avait rien trouvé.
 
@@ -126,7 +126,7 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 « Je dois vite retourner à la Secte du Raffinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme ! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation avant de quitter définitivement Zhao.
 
-Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs serviteurs — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
+Dans un pays de cultivation de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs serviteurs — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
 « Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 

@@ -62,7 +62,7 @@ Wang Lin serra les dents et s'élança. Il savait que l'évasion serait pérille
 
 « N'aie pas peur, je ne te tuerai pas. Tu me seras d'une grande utilité ! » Les yeux du Maître de la Secte du Dao Démoniaque brillèrent d'une lueur étrange, teintée de mépris, comme s'il contemplait une fourmi. Il agita sa manche vers Wang Lin.
 
-Il était tout simplement trop puissant. À cet instant, l'armure spirituelle de Wang Lin s'était dissipée et son niveau de culture était revenu au stade tardif de la Tribulation Spirituelle. Après avoir utilisé tant de sorts, Wang Lin était comme une lampe à huile vide. L'écart entre leurs niveaux de culture était trop abyssal. Face à ce geste, Wang Lin afficha un regard résolu et ferma les yeux pour tenter de se connecter à son avatar dans le vide.
+Il était tout simplement trop puissant. À cet instant, l'armure spirituelle de Wang Lin s'était dissipée et son niveau de cultivation était revenu au stade tardif de la Tribulation Spirituelle. Après avoir utilisé tant de sorts, Wang Lin était comme une lampe à huile vide. L'écart entre leurs niveaux de cultivation était trop abyssal. Face à ce geste, Wang Lin afficha un regard résolu et ferma les yeux pour tenter de se connecter à son avatar dans le vide.
 
 Au moment où le Maître de la Secte du Dao Démoniaque agita sa manche, une aura supplémentaire enveloppa le corps de Wang Lin. Ses yeux devinrent dorés et il leva la main en retour.
 

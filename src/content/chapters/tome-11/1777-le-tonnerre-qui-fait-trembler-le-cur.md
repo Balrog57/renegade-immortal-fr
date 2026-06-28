@@ -12,7 +12,7 @@ L'Âme aux Sept Couleurs du Vieux Fantôme Zhan s'élança. La cape l'enveloppa 
 
 Des grondements tonitruants résonnèrent. Le Vieux Fantôme Zhan était extrêmement puissant ; même sans l'Âme aux Sept Couleurs, il était un cultivateur proche du sommet de la Tribulation Arcane, ayant déjà atteint le seuil de la Tribulation du Vide.
 
-De plus, son âme avait été choisie pour fusionner avec l'Âme aux Sept Couleurs. Par conséquent, son niveau de culture était infiniment proche de celui du Souverain Céleste aux Sept Couleurs !
+De plus, son âme avait été choisie pour fusionner avec l'Âme aux Sept Couleurs. Par conséquent, son niveau de cultivation était infiniment proche de celui du Souverain Céleste aux Sept Couleurs !
 
 À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita le bras, et le membre doré tombant du ciel s'effondra ! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
 

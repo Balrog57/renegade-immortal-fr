@@ -14,7 +14,7 @@ L'expression de Wang Lin resta sereine tandis qu'il joignait les mains en signe 
 
 Xu Yunshan sourit et répondit : « Je suis le jeune maître de la Secte Xuan Yuan de la planète Terre. Je suis ici pour remplir mon devoir d'hôte. Frère Wang, je t'en prie, ne refuse pas. »
 
-« Alors je vais devoir importuner le frère Xu ! » Wang Lin esquissa un léger sourire. Le niveau de culture de ce Xu Yunshan était identique au sien : le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte du Destin Céleste pour trouver un lieu propice à une culture paisible ; la compétition et les luttes incessantes au sein de la Secte du Destin Céleste n'étaient guère adaptées à la cultivation.
+« Alors je vais devoir importuner le frère Xu ! » Wang Lin esquissa un léger sourire. Le niveau de cultivation de ce Xu Yunshan était identique au sien : le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte du Destin Céleste pour trouver un lieu propice à une cultivation paisible ; la compétition et les luttes incessantes au sein de la Secte du Destin Céleste n'étaient guère adaptées à la cultivation.
 
 Venant d'arriver sur cette planète, il ne pouvait simplement décliner l'hospitalité de son hôte.
 
@@ -26,23 +26,23 @@ L'environnement était empreint d'une grâce et d'un calme absolus. Wang Lin pé
 
 Wang Lin franchit le seuil et marcha lentement à travers ce jardin fleuri.
 
-« L'essentiel pour moi en ce moment est d'augmenter mon niveau de culture. Bien que je sois éloigné de la planète Suzaku depuis quelques années, Tuo Sen reste comme une épée suspendue au-dessus de ma tête. Il peut quitter le Pays du Dieu Ancien à tout instant et, lorsqu'il le fera, il viendra sans aucun doute me chercher. » Wang Lin fronça les sourcils. La présence de Tuo Sen était comme une arête coincée dans sa gorge : un fouet invisible le contraignant à cultiver sans relâche pour assurer sa survie.
+« L'essentiel pour moi en ce moment est d'augmenter mon niveau de cultivation. Bien que je sois éloigné de la planète Suzaku depuis quelques années, Tuo Sen reste comme une épée suspendue au-dessus de ma tête. Il peut quitter le Pays du Dieu Ancien à tout instant et, lorsqu'il le fera, il viendra sans aucun doute me chercher. » Wang Lin fronça les sourcils. La présence de Tuo Sen était comme une arête coincée dans sa gorge : un fouet invisible le contraignant à cultiver sans relâche pour assurer sa survie.
 
 Tout en contemplant la beauté du jardin, Wang Lin se mit à réfléchir.
 
 « L'Art du Massacre Céleste... J'ai pu l'étudier un peu durant le voyage. C'est une technique véritablement exquise. Utiliser des sceaux de force vitale pour protéger son corps peut effectivement créer une défense redoutable. »
 
-« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance ? Cependant, il ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se dispute son appartenance. »
+« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance ? Cependant, il ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Cultivation se dispute son appartenance. »
 
 « Je me demande comment vont les choses sur la planète Suzaku... » Wang Lin leva la tête vers le vide. Son regard sembla parcourir une distance incommensurable pour se poser, au loin, sur la planète Suzaku.
 
-Après un séjour de deux jours à la Secte Xuan Yuan, Xu Yunshan guida Wang Lin vers le pays de culture de rang 5, Ling Yue.
+Après un séjour de deux jours à la Secte Xuan Yuan, Xu Yunshan guida Wang Lin vers le pays de cultivation de rang 5, Ling Yue.
 
 Durant ces deux jours, Xu Yunshan s'était montré fort aimable. À force d'efforts pour apprendre à connaître Wang Lin, ils avaient fini par bien s'entendre.
 
 Le pays de Ling Yue savait déjà qu'un disciple central de la Division Pourpre serait envoyé en tant que messager. Le pays entier avait fait de cet événement une priorité absolue et avait tout préparé pour accueillir le messager.
 
-À la frontière de Ling Yue, Xu Yunshan sourit discrètement et dit : « Frère Wang, voici le pays de culture de rang 5, Ling Yue. Ce pays n'est pas très vaste et ne compte que quatre sectes, mais il produit de nombreux objets spirituels et jouit d'une grande renommée sur cette planète. »
+À la frontière de Ling Yue, Xu Yunshan sourit discrètement et dit : « Frère Wang, voici le pays de cultivation de rang 5, Ling Yue. Ce pays n'est pas très vaste et ne compte que quatre sectes, mais il produit de nombreux objets spirituels et jouit d'une grande renommée sur cette planète. »
 
 Wang Lin acquiesça. Les deux hommes se déplacèrent avec une rapidité fulgurante, franchirent la frontière et pénétrèrent dans le pays de Ling Yue.
 
@@ -58,11 +58,11 @@ Xu Yunshan rit et déclara : « Je prends congé. Si l'occasion se présente à 
 
 Après son départ, Wang Lin fut le seul à flotter dans le ciel.
 
-Il restait en suspension, observant calmement la foule en contrebas. Parmi les cent cultivateurs présents, dix atteignaient le niveau de culture le plus élevé : le stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de culture bien moindres.
+Il restait en suspension, observant calmement la foule en contrebas. Parmi les cent cultivateurs présents, dix atteignaient le niveau de cultivation le plus élevé : le stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de cultivation bien moindres.
 
 Parmi eux, un homme attira l'attention de Wang Lin. Il avait les cheveux blancs et paraissait très âgé. C'était le plus puissant du groupe ; il se trouvait pratiquement à un demi-pas du stade de l'Ascendant.
 
-Wang Lin descendit lentement pour atterrir au pied de la tour. Avant que les cultivateurs ne puissent prononcer la moindre parole, il déclara calmement : « Bien que je sois le messager, je ne vous importunerai pas ; continuez vos activités habituelles. Je vais entrer en culture isolée, personne n'est donc autorisé dans un rayon de 5 000 kilomètres autour d'ici ! »
+Wang Lin descendit lentement pour atterrir au pied de la tour. Avant que les cultivateurs ne puissent prononcer la moindre parole, il déclara calmement : « Bien que je sois le messager, je ne vous importunerai pas ; continuez vos activités habituelles. Je vais entrer en cultivation isolée, personne n'est donc autorisé dans un rayon de 5 000 kilomètres autour d'ici ! »
 
 Les cultivateurs environnants furent stupéfaits, mais ayant tous vécu longtemps, ils étaient aussi rusés que des renards. Après l'étonnement initial, ils réagirent promptement et se dispersèrent.
 

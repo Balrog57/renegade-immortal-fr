@@ -8,7 +8,7 @@ slug: le-retour-des-trois-ames
 ---
 Chapitre 1746 - Le retour des trois âmes !
 
-Le cinquième fragment était vert. Cette lueur verte représentait un arbre dont l'intention était de déployer ses branches. Ce fragment avait été formé par les instincts du Souverain Céleste aux Sept Couleurs. Si cette âme avait été mortelle, il aurait eu de nombreux enfants. Si cette âme avait été celle d'un cultivateur, son niveau de culture n'aurait pas été élevé, mais il aurait excellé dans la création d'avatars, à l'instar des branches d'un arbre !
+Le cinquième fragment était vert. Cette lueur verte représentait un arbre dont l'intention était de déployer ses branches. Ce fragment avait été formé par les instincts du Souverain Céleste aux Sept Couleurs. Si cette âme avait été mortelle, il aurait eu de nombreux enfants. Si cette âme avait été celle d'un cultivateur, son niveau de cultivation n'aurait pas été élevé, mais il aurait excellé dans la création d'avatars, à l'instar des branches d'un arbre !
 
 Cette âme était enveloppée d'une lumière verte et peu éclatante. Elle s'effaçait faiblement dans le cycle de la réincarnation, mais Wang Lin aperçut tout de même la silhouette floue qui apparut au moment précis de sa disparition.
 
@@ -94,13 +94,13 @@ Il y eut des hommes et des femmes...
 
 Une fois, la troisième âme se réincarna en un arbre majestueux. Durant ces mille ans, il grandit depuis une pousse jusqu'à ce qu'il dépérisse et meure.
 
-Une autre fois, elle se réincarna en un cultivateur. Le niveau de culture de ce dernier n'était pas élevé ; il n'avait réussi à atteindre que le stade de la Formation du Noyau au cours de sa vie. Il mourut lorsque son espérance de vie fut épuisée.
+Une autre fois, elle se réincarna en un cultivateur. Le niveau de cultivation de ce dernier n'était pas élevé ; il n'avait réussi à atteindre que le stade de la Formation du Noyau au cours de sa vie. Il mourut lorsque son espérance de vie fut épuisée.
 
 Le temps continua de s'écouler jusqu'à ce que la troisième âme choisisse de se réincarner sur une planète du Vide Brillant. Cette planète lui était très familière. Wang Lin fut stupéfait de découvrir qu'il s'agissait de la planète Suzaku !
 
 En voyant cela, l'esprit de Wang Lin trembla. Il ignorait si c'était le terme de sa quête, mais devant la planète Suzaku, il pressentit quelque chose.
 
-Cette troisième âme devint un mortel sur la planète Suzaku. Ce mortel ne pratiquait pas la culture, mais sa vie fut extrêmement brillante. Il devint le grand érudit du pays de Zhao !
+Cette troisième âme devint un mortel sur la planète Suzaku. Ce mortel ne pratiquait pas la cultivation, mais sa vie fut extrêmement brillante. Il devint le grand érudit du pays de Zhao !
 
 Son nom était Su Dao !
 

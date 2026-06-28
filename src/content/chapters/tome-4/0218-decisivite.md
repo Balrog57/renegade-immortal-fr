@@ -8,7 +8,7 @@ slug: decisivite
 ---
 Au sein de la Secte Cloud Sky, la plupart des cultivateurs de l'Âme Naissante se trouvaient dans la secte extérieure, bien qu'il en fût encore quelques-uns dans la secte intérieure. Cependant, la majorité d'entre eux se consacraient à l'alchimie et se livraient rarement au combat.
 
-C'était le cas du seul cultivateur de l'Âme Naissante du patio sud, qui utilisait actuellement son propre feu d'Âme Naissante ainsi que le feu terrestre pour raffiner un lot de pilules destinées à augmenter son niveau de culture.
+C'était le cas du seul cultivateur de l'Âme Naissante du patio sud, qui utilisait actuellement son propre feu d'Âme Naissante ainsi que le feu terrestre pour raffiner un lot de pilules destinées à augmenter son niveau de cultivation.
 
 En chemin vers le patio sud, Wang Lin effaça toutes ses traces et se déplaça comme un fantôme. Arrivé devant l'entrée, il fixa la brume blanche avant d'y pénétrer.
 
@@ -34,13 +34,13 @@ Cheng Xian était allongé sur son lit, le regard fixé au plafond. Deux filets 
 
 Cheng Xian n'écoutait pas un mot. À mesure que les pilules passaient dans sa bouche, l'énergie spirituelle de son corps se calmait lentement.
 
-Son maître soupira et reprit : « Je sais que tu es frustré. Combien de fois y es-tu allé ? Si je n'avais pas mis ma fierté de côté, tu aurais déjà perdu la vie. Le patio ouest n'est pas un endroit où l'on peut circuler librement. Cette fois, ne blâme pas ton maître de t'avoir enfermé ici. Le patio ouest a déjà envoyé un avertissement : si tu continues à causer des troubles, ils détruiront ta culture. » L'homme d'âge moyen secoua la tête et quitta la pièce.
+Son maître soupira et reprit : « Je sais que tu es frustré. Combien de fois y es-tu allé ? Si je n'avais pas mis ma fierté de côté, tu aurais déjà perdu la vie. Le patio ouest n'est pas un endroit où l'on peut circuler librement. Cette fois, ne blâme pas ton maître de t'avoir enfermé ici. Le patio ouest a déjà envoyé un avertissement : si tu continues à causer des troubles, ils détruiront ta cultivation. » L'homme d'âge moyen secoua la tête et quitta la pièce.
 
 Wang Lin resta immobile à l'extérieur de la cour. Après avoir observé la scène, il réfléchit un instant puis disparut. Il réapparut au cœur du patio et pénétra dans la chambre de Cheng Xian sans que personne ne s'en aperçoive.
 
 Il regarda Cheng Xian et agita la main. La restriction pesant sur le jeune homme fut instantanément levée. Ce dernier se redressa et fixa Wang Lin avec une haine profonde dans les yeux : « Ils t'ont envoyé pour me tuer ? Tuez-moi, je n'ai pas peur ! »
 
-Wang Lin portait un masque et son aura, tout comme sa culture, étaient totalement différentes de celles qu'il avait montrées auparavant ; il était donc impossible pour Cheng Xian de le reconnaître.
+Wang Lin portait un masque et son aura, tout comme sa cultivation, étaient totalement différentes de celles qu'il avait montrées auparavant ; il était donc impossible pour Cheng Xian de le reconnaître.
 
 Wang Lin jeta un coup d'œil à Cheng Xian, fit un geste de la main, et une restriction apparut aussitôt pour sceller la pièce.
 
@@ -116,11 +116,11 @@ Wang Lin détourna la tête, refusant de croiser le regard de Li Muwan. Après u
 
 Le cœur de Li Muwan se serra. Elle esquissa un sourire éphémère en regardant le dos de Wang Lin. Ce sourire, pour quiconque l'observait, ressemblait à un cri silencieux.
 
-« Les ancêtres de la Secte Cloud Sky veulent que je forme un couple de culture avec cet homme. Auparavant, je refusais sans cesse, mais aujourd'hui, je n'ai plus aucune raison de le faire... Si tu es encore dans le pays de Chu dans trois mois, alors s'il te plaît, viens à la cérémonie... »
+« Les ancêtres de la Secte Cloud Sky veulent que je forme un couple de cultivation avec cet homme. Auparavant, je refusais sans cesse, mais aujourd'hui, je n'ai plus aucune raison de le faire... Si tu es encore dans le pays de Chu dans trois mois, alors s'il te plaît, viens à la cérémonie... »
 
 Les pas de Wang Lin vacillèrent un instant. Un sentiment complexe l'envahit et il se mit à réfléchir. Les yeux de Li Muwan brillaient d'espoir en attendant sa réponse.
 
-L'homme d'âge moyen comprit enfin pourquoi Li Muwan s'était toujours opposée à l'idée de former un couple de culture. La raison, c'était cet homme. Bien que le visage de Wang Lin fût impassible, une trace d'intention meurtrière germa dans son cœur.
+L'homme d'âge moyen comprit enfin pourquoi Li Muwan s'était toujours opposée à l'idée de former un couple de cultivation. La raison, c'était cet homme. Bien que le visage de Wang Lin fût impassible, une trace d'intention meurtrière germa dans son cœur.
 
 Wang Lin réfléchit longuement. Puis, la voix basse et le dos tourné vers Li Muwan, il dit : « Félicitations ! » Sur ces mots, il s'éloigna définitivement.
 

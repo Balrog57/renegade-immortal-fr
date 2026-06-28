@@ -120,7 +120,7 @@ Une fois la rétribution divine passée, Wang Lin remarqua immédiatement que so
 
 L'épreuve de vie ou de mort de l'Ascendant !
 
-S'il commettait la moindre erreur, non seulement toute sa culture serait perdue, mais son âme originelle s'effondrerait également. Bien qu'il ignorât si cela affecterait le corps du dieu antique à l'extérieur, il n'était pas prêt à prendre un tel risque !
+S'il commettait la moindre erreur, non seulement toute sa cultivation serait perdue, mais son âme originelle s'effondrerait également. Bien qu'il ignorât si cela affecterait le corps du dieu antique à l'extérieur, il n'était pas prêt à prendre un tel risque !
 
 L'Ascension est une épreuve qui doit être accomplie dans un lieu extrêmement sûr, afin d'éliminer tout facteur externe et de garantir la plus grande chance de succès !
 

@@ -36,7 +36,7 @@ Le tonnerre dans le ciel résonnait parmi les nuages, comme si la majesté du to
 
 Après l'arrivée du tonnerre, les nuages commencèrent à se dissiper et à disparaître. À ce moment-là, au plus profond de la fosse, Wang Lin ouvrit soudainement les yeux. Son regard dégageait une puissance électrique et une pointe d'excitation.
 
-Il se lécha les lèvres. L'énergie d'origine contenue dans le tonnerre céleste était extrêmement riche, plusieurs fois plus dense que celle du lac de tonnerre. En raison de sa culture, il avait déjà atteint la limite de l'énergie d'origine qu'il pouvait stocker. Cependant, cet excédent allait modifier radicalement sa situation.
+Il se lécha les lèvres. L'énergie d'origine contenue dans le tonnerre céleste était extrêmement riche, plusieurs fois plus dense que celle du lac de tonnerre. En raison de sa cultivation, il avait déjà atteint la limite de l'énergie d'origine qu'il pouvait stocker. Cependant, cet excédent allait modifier radicalement sa situation.
 
 Il se déplaça rapidement et jaillit du cratère. Simultanément, il frappa son sac de rangement et le fourneau de tonnerre réapparut dans sa main !
 

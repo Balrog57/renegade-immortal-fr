@@ -48,7 +48,7 @@ Wang Lin connaissait trop bien ce sentiment ; il l'avait accompagné durant la m
 
 Un petit bouclier se trouvait au cœur de cette lumière. Ce bouclier avait été restauré et, bien qu'il ne fût pas indestructible, il contenait un sortilège nommé Rêve des Temps Anciens !
 
-Autrefois, avec le faible niveau de culture de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur de la Flétrissure Céleste. Aujourd'hui, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
+Autrefois, avec le faible niveau de cultivation de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur de la Flétrissure Céleste. Aujourd'hui, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
 
 Le bouclier de lumière verte en main, la puissance ancienne de Wang Lin jaillit de son corps pour pénétrer le bouclier, invoquant ainsi le sortilège.
 

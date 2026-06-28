@@ -68,7 +68,7 @@ L'expression du Taoïste Water changea.
 
 « Ce coup, au nom du Seigneur du Royaume Scellé, détruira le corps de cet esclave ! » L'aura de Wang Lin était telle qu'elle ressemblait à une inondation lorsqu'il agita la main. Le monde gronda et un vent puissant balaya les environs. Le fantôme de la tête derrière Wang Lin se transforma en un poing colossal qui descendit du ciel !
 
-Vu de loin, le monde entier fut recouvert par l'ombre de ce poing. Les yeux du Taoïste Water étaient injectés de folie. Avec son niveau de culture, il pouvait clairement ressentir l'intention meurtrière et cette aura puissante qui faisait trembler son cœur.
+Vu de loin, le monde entier fut recouvert par l'ombre de ce poing. Les yeux du Taoïste Water étaient injectés de folie. Avec son niveau de cultivation, il pouvait clairement ressentir l'intention meurtrière et cette aura puissante qui faisait trembler son cœur.
 
 « Pouvoir d'essence : Dragon Céleste Yin et Yang ! » rugit le Taoïste Water. Le visage pâle, ses mains formèrent rapidement des sceaux. À cet instant, un filament d'énergie d'essence noire et un filament d'énergie d'essence blanche apparurent. Ils jaillirent et se transformèrent en deux dragons géants entrelacés !
 
@@ -102,7 +102,7 @@ Dans le Système Stellaire de la Mer des Nuages, des groupes de cultivateurs voy
 
 Dans le Système Stellaire de la Rivière Invoquée, d'innombrables cultivateurs circulaient dans le système en préparation pour la guerre. À cet instant, l'onde dorée se répandit et fut comme un voile mystérieux que l'on déchire. La Formation de Scellement du Royaume apparut devant eux !
 
-Dans le Système Stellaire d'Allheaven, des groupes de cultivateurs déplaçaient les planètes de culture. Cependant, à cet instant, ils restèrent tous pétrifiés en contemplant la Formation de Scellement du Royaume sous leurs pieds !
+Dans le Système Stellaire d'Allheaven, des groupes de cultivateurs déplaçaient les planètes de cultivation. Cependant, à cet instant, ils restèrent tous pétrifiés en contemplant la Formation de Scellement du Royaume sous leurs pieds !
 
 Il en fut de même pour le Système Stellaire de l'Alliance. Toutes les petites forces de l'Alliance furent terrifiées et cessèrent leurs activités. Tous fixaient le filet doré qui était apparu après le passage de l'onde dorée !
 

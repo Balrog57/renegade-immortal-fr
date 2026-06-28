@@ -24,7 +24,7 @@ Au sein du Clan Céleste, dans le Secte Dao Yi, les années avaient transformé 
 
 Pourtant, à cet instant, un rugissement retentit au Secte Dao Yi. Tandis que l'écho résonnait, l'un des monts s'effondra et une silhouette enveloppée de brumes grises en jaillit. Cette figure, d'une allure féroce, fixait l'horizon.
 
-« Le Royaume Divin Immemorial !! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction ancestrale et de faire progresser ma culture ! »
+« Le Royaume Divin Immemorial !! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction ancestrale et de faire progresser ma cultivation ! »
 
 Au sein du Secte Ziyang, les deux adorables fillettes étaient en retraite. Les yeux de l'Ancêtre Céleste se trouvaient entre elles deux, émettant une étrange lumière qui les reliait. À cet instant, elles ouvrirent les yeux simultanément et regardèrent dans la même direction. Leurs regards semblaient transpercer les murs pour embrasser le monde extérieur.
 

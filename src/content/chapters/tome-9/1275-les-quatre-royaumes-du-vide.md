@@ -8,7 +8,7 @@ slug: les-quatre-royaumes-du-vide
 ---
 Les Chariots de Guerre Anti-Dieux avaient été perfectionnés par le célèbre forgeron excentrique du Royaume Céleste. Il cherchait encore les matériaux nécessaires pour les achever lorsque le Royaume Céleste s'est effondré !
 
-Lors de cette calamité, il était mort dans un regret monstrueux. Il avait consacré tout son savoir et toute sa culture à la création de ces chariots de guerre. N'hésitant pas à parcourir le monde pour trouver les matériaux requis, il y avait dépensé toutes ses forces, ce qui avait provoqué le flétrissement rapide de sa longévité infinie. Vers la fin, il était aux cheveux blancs et presque dépourvu de vitalité. Même si la calamité ne s'était pas produite, il serait mort une fois les Chariots de Guerre Anti-Dieux achevés.
+Lors de cette calamité, il était mort dans un regret monstrueux. Il avait consacré tout son savoir et toute sa cultivation à la création de ces chariots de guerre. N'hésitant pas à parcourir le monde pour trouver les matériaux requis, il y avait dépensé toutes ses forces, ce qui avait provoqué le flétrissement rapide de sa longévité infinie. Vers la fin, il était aux cheveux blancs et presque dépourvu de vitalité. Même si la calamité ne s'était pas produite, il serait mort une fois les Chariots de Guerre Anti-Dieux achevés.
 
 Son rêve était de créer le trésor le plus puissant du monde. Pour tuer même les dieux, pour détruire les lois et fendre le monde en deux !
 
@@ -92,12 +92,12 @@ Au moment où ces mots furent lâchés, il arrêta le ciel, il arrêta la terre,
 
 Les trois couleurs restantes — rouge, jaune et bleu — libérèrent un grondement tonitruant, comme si l'on tirait sur les rênes d'innombrables chevaux sauvages. Elles luttèrent férocement avant de s'immobiliser totalement à trente pieds de Daoïste Shui !
 
-« Quel trésor puissant ! Malheureusement, il reste manifestement un sceau ; sans quoi, même avec ma culture du stade initial du Vide Nirvana, j'aurais été blessé. De plus, ce vieil homme a été contraint d'utiliser le sort d'Arrêt. Lu Zihao, pour être capable de faire une telle chose, tu peux être considéré comme un génie céleste ! »
+« Quel trésor puissant ! Malheureusement, il reste manifestement un sceau ; sans quoi, même avec ma cultivation du stade initial du Vide Nirvana, j'aurais été blessé. De plus, ce vieil homme a été contraint d'utiliser le sort d'Arrêt. Lu Zihao, pour être capable de faire une telle chose, tu peux être considéré comme un génie céleste ! »
 
 « Vide Nirvana, Vide Spirituel, Vide Arcane et Vide de la Tribulation ! Le troisième niveau possède quatre royaumes. Ce n'est qu'en atteignant le stade du Vide Spirituel que je ne serais pas blessé par ce trésor une fois qu'il sera pleinement activé ! » Les yeux de Daoïste Shui s'illuminèrent. Ce Chariot de Guerre Anti-Dieux l'avait quelque peu surpris. S'il n'avait pas connu un sort qui n'appartenait pas à ce monde, cela aurait pu être problématique. Bien qu'il ne serait pas mort, il aurait subi des blessures avant de pouvoir tuer ce Liu Zihao. Et pour un cultivateur du troisième niveau, subir la contre-attaque d'une fourmi était une honte !
 
 « Tu n'as pas le droit d'utiliser ce trésor, alors ce vieil homme va te le prendre ! » Daoïste Shui agita ses manches et un vortex apparut entre ses sourcils. Dès son apparition, il jaillit pour dévorer les rayons de lumière rouge, jaune et bleu.
 
-La différence de niveau de culture entre les deux était comme un gouffre infranchissable. Wang Lin regarda la scène, stupéfait, mais une flamme d'indignation brûlait dans son cœur.
+La différence de niveau de cultivation entre les deux était comme un gouffre infranchissable. Wang Lin regarda la scène, stupéfait, mais une flamme d'indignation brûlait dans son cœur.
 
 « Je refuse ! J'ai encore trois atouts mortels ! Même si je dois mourir, je veux que cet homme paie un prix irrécupérable ! »

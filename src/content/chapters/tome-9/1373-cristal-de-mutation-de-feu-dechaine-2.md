@@ -8,7 +8,7 @@ slug: cristal-de-mutation-de-feu-dechaine-2
 ---
 L'esprit du vieil homme trembla et son visage se crispa sous l'effet d'une douleur accrue. Il cracha un nouveau jet de sang et battit en retraite précipitamment, les yeux emplis d'incrédulité.
 
-« Le Fléau du Quatrième Ciel !!! C'est là la puissance d'une culture au stade du Fléau du Quatrième Ciel ! Maudit soit, comment mon Clan du Scorpion Noir a-t-il pu offenser un vieux monstre pareil ?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
+« Le Fléau du Quatrième Ciel !!! C'est là la puissance d'une cultivation au stade du Fléau du Quatrième Ciel ! Maudit soit, comment mon Clan du Scorpion Noir a-t-il pu offenser un vieux monstre pareil ?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
 
 Le vieil homme sentit immédiatement l'énergie originelle jaillir avec une fureur folle autour de lui. C'était comme si cette énergie avait formé une cage invisible se refermant sur lui de toutes parts.
 
@@ -54,7 +54,7 @@ La grotte de Wang Lin devint la terre sainte du Clan du Scorpion Noir. En utilis
 
 Après avoir constaté la puissance de Wang Lin, l'esprit du vieil homme nommé Zhang fut profondément ébranlé. Il avait décidé qu'il suivrait absolument Zhong Big Red.
 
-Quant à Zhong Big Red, il était devenu encore plus hardi ; il était désormais capable de commander le Clan du Scorpion Noir grâce à sa culture de Formation de l'Âme.
+Quant à Zhong Big Red, il était devenu encore plus hardi ; il était désormais capable de commander le Clan du Scorpion Noir grâce à sa cultivation de Formation de l'Âme.
 
 « Il existe 372 petits clans dans la Terre Déchue. Mon Clan du Scorpion Noir est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 
@@ -66,9 +66,9 @@ Quant à Zhong Big Red, il était devenu encore plus hardi ; il était désormai
 
 À cet instant, il se tenait respectueusement dans la grotte de Wang Lin et lui racontait tout ce qu'il savait.
 
-« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de culture contrôlées par un Ancien Déchu. Même les marionnettes de mon Clan du Scorpion Noir ont été achetées là-bas. »
+« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de cultivation contrôlées par un Ancien Déchu. Même les marionnettes de mon Clan du Scorpion Noir ont été achetées là-bas. »
 
-« Cependant, plus le niveau de culture de la marionnette est élevé, plus elle est difficile à acquérir. Les cultivateurs ordinaires ne peuvent même pas les acheter ; seuls les clans de la Terre Déchue en sont qualifiés. »
+« Cependant, plus le niveau de cultivation de la marionnette est élevé, plus elle est difficile à acquérir. Les cultivateurs ordinaires ne peuvent même pas les acheter ; seuls les clans de la Terre Déchue en sont qualifiés. »
 
 « La rumeur dit que la méthode de fabrication des marionnettes a été transmise par le Grand Empereur. Quant au procédé lui-même, seuls les 13 anciens le connaissent. »
 

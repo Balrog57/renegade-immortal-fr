@@ -82,7 +82,7 @@ Le Corps Véritable de l'Ancien Dao !
 
 C'était la première fois que Wang Lin révélait son Corps Véritable de l'Ancien Dao. Son corps puissant dégageait une aura antique, parcouru de fins motifs sombres qui lui conféraient un aspect mystérieux.
 
-« Dégagez de là ! » Au sein du clan Ancien, on ne révélait pas ainsi son Corps Véritable de l'Ancien Dao, car toute blessure infligée à ce corps affecterait trop gravement sa culture. De plus, cela était peu pratique, sauf sur un champ de bataille.
+« Dégagez de là ! » Au sein du clan Ancien, on ne révélait pas ainsi son Corps Véritable de l'Ancien Dao, car toute blessure infligée à ce corps affecterait trop gravement sa cultivation. De plus, cela était peu pratique, sauf sur un champ de bataille.
 
 Dans le palais, les membres de l'Ancien Dao et l'empereur n'avaient même pas eu le temps de révéler leur Corps Véritable avant d'être annihilés par Wang Lin.
 

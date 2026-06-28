@@ -44,7 +44,7 @@ Rumble ! Une explosion indescriptible fit trembler les cieux et la terre. Le fou
 
 Chaque fragment était parcouru d'éclairs noirs, avant qu'une nouvelle série d'explosions ne survienne lorsque ces débris éclatèrent à nouveau !
 
-Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux Frappes Célestes, il était presque à court d'énergie originelle, au point de risquer une chute de son niveau de culture. S'il avait perdu ne fût-ce qu'un fragment de plus, sa culture se serait probablement effondrée.
+Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux Frappes Célestes, il était presque à court d'énergie originelle, au point de risquer une chute de son niveau de cultivation. S'il avait perdu ne fût-ce qu'un fragment de plus, sa cultivation se serait probablement effondrée.
 
 Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit une profonde inspiration. Bien que son visage fût livide, ses yeux étaient plus froids que jamais.
 
@@ -80,7 +80,7 @@ La vie d'un mortel est éphémère, et il en va de même pour un esprit vengeur.
 
 Ce que Liu Mei avait offert à Wang Lin était son propre fragment d'âme !
 
-Ce fragment ne pouvait pas cultiver car il en était incapable ! Toute tentative de culture activait l'aura de ressentiment, provoquant sa dissolution immédiate.
+Ce fragment ne pouvait pas cultiver car il en était incapable ! Toute tentative de cultivation activait l'aura de ressentiment, provoquant sa dissolution immédiate.
 
 Wang Ping ne pouvait pas cultiver en cachette de Wang Lin, car son corps même était constitué d'énergie d'épée...
 

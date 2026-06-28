@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1383 - Greed
 slug: cupidite
 ---
-Quant à Greed, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de culture n'était pas si exceptionnel, se limitant au stade Nirvana Scryer.
+Quant à Greed, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de cultivation n'était pas si exceptionnel, se limitant au stade Nirvana Scryer.
 
 Cependant, cet homme avait fait des apparitions fracassantes à maintes reprises. Les pilules et les trésors qu'il dénichait avaient déclenché une vague après l'autre dans la Terre Déchue.
 
-Bien que le niveau de culture de Greed ne fût pas élevé, il était extrêmement rusé. Grâce à ses sorts étranges et ses puissants trésors, il parvenait toujours à se protéger. Même des individus ayant un niveau de culture supérieur au sien peinaient à le capturer.
+Bien que le niveau de cultivation de Greed ne fût pas élevé, il était extrêmement rusé. Grâce à ses sorts étranges et ses puissants trésors, il parvenait toujours à se protéger. Même des individus ayant un niveau de cultivation supérieur au sien peinaient à le capturer.
 
 En particulier, cet homme excellait dans l'art de la fuite et possédait un sort capable d'augmenter sa vitesse par soixante-dix-sept, rendant toute poursuite impossible pour les cultivateurs ordinaires. Greed était également extrêmement prudent et n'hésitait jamais à prendre la fuite.
 
 Par conséquent, il ne faisait que rarement face au danger.
 
-Au fil du temps, pour une raison inconnue, le niveau de culture de Greed progressa de manière constante jusqu'à atteindre le stade Nirvana Cleanser. Ses sorts devinrent alors encore plus mystérieux.
+Au fil du temps, pour une raison inconnue, le niveau de cultivation de Greed progressa de manière constante jusqu'à atteindre le stade Nirvana Cleanser. Ses sorts devinrent alors encore plus mystérieux.
 
 Il finit par attirer l'attention des puissants cultivateurs de certains clans. Mus par la cupidité, ces derniers se mirent à traquer Greed. Beaucoup pensaient qu'il mourrait sans aucun doute, mais Greed sortit alors contre toute attente une multitude de trésors qu'il n'avait jamais utilisés auparavant !
 
@@ -40,7 +40,7 @@ Cependant, nul ne savait si Greed possédait des trésors encore plus redoutable
 
 Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Nirvana Shatterer et Heaven's Blight ?
 
-Après cette bataille, la renommée de Greed devint immense. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Greed saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa culture.
+Après cette bataille, la renommée de Greed devint immense. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Greed saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa cultivation.
 
 Quelques années plus tard, lorsque Greed réapparut, il se trouvait au stade intermédiaire de Nirvana Shatterer ! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Heaven's Blight.
 
@@ -60,7 +60,7 @@ Greed pratiquait un sort inconnu qui laissait derrière lui, partout où il pass
 
 À cet instant, les dix cultivateurs entourant Greed sentaient également cette puanteur presque insupportable. Cependant, ils n'osaient rien dire et demeuraient respectueux.
 
-Ils progressèrent rapidement et repérèrent bientôt la planète où se trouvait le Clan du Scorpion Noir. Les yeux de Greed s'illuminèrent en fixant la planète de culture au loin ; une lueur d'excitation brillait dans son regard.
+Ils progressèrent rapidement et repérèrent bientôt la planète où se trouvait le Clan du Scorpion Noir. Les yeux de Greed s'illuminèrent en fixant la planète de cultivation au loin ; une lueur d'excitation brillait dans son regard.
 
 À l'époque, il avait failli perdre la vie pour atteindre le Royaume Extérieur et avait dû compter sur sa propre force pour accomplir ses prouesses actuelles. Il était désormais plusieurs fois plus fort qu'auparavant et avait même acquis de nouveaux trésors.
 
@@ -78,19 +78,19 @@ Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine en
 
 Chaque fois que Greed songeait à cela, son cœur se serrait de douleur. Outre sa haine pour Wang Lin, une ombre immense planait sur son âme. Après avoir croisé la route de Wang Lin à plusieurs reprises, il ressentait une terreur extrême à son égard.
 
-Avec le temps, cette sensation s'était muée en une peur profonde. Bien que son niveau de culture ait augmenté, cette crainte ne s'était pas dissipée ; elle s'était au contraire intensifiée.
+Avec le temps, cette sensation s'était muée en une peur profonde. Bien que son niveau de cultivation ait augmenté, cette crainte ne s'était pas dissipée ; elle s'était au contraire intensifiée.
 
 Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à Wang Lin, son esprit tremblait.
 
-« Mon ennemi de toujours ! Sur la planète Suzaku, la Perle Bravant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre ! Il m'accompagnait depuis mon enfance ; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre ! »
+« Mon ennemi de toujours ! Sur la planète Suzaku, la Perle Bravant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de cultivation était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre ! Il m'accompagnait depuis mon enfance ; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre ! »
 
 « Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Allheaven pour traquer Wang Lin. Puis, après avoir souffert aux mains du Serpent Moongazer, j'ai croisé Wang Lin ! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais ! »
 
-« Puis, juste au moment où je m'apprêtais à échapper au Serpent Moongazer, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture ! » Greed se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
+« Puis, juste au moment où je m'apprêtais à échapper au Serpent Moongazer, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de cultivation ! » Greed se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
 
 Il avait passé sa vie à chercher des trésors, mais ce n'est qu'en affrontant Wang Lin qu'il avait tout perdu et frôlé la mort. C'était un cauchemar dont il ne pouvait se défaire.
 
-« Désormais, je possède encore plus de trésors et mon niveau de culture est bien plus élevé. Mes richesses sont même plus puissantes qu'auparavant. Je ne crois pas que vous puissiez sortir du Royaume Intérieur pour venir dans cette Terre Déchue voler mes biens ! Si cela devait réellement arriver, alors toi, Wang Lin, tu serais véritablement l'ennemi de ma vie ! »
+« Désormais, je possède encore plus de trésors et mon niveau de cultivation est bien plus élevé. Mes richesses sont même plus puissantes qu'auparavant. Je ne crois pas que vous puissiez sortir du Royaume Intérieur pour venir dans cette Terre Déchue voler mes biens ! Si cela devait réellement arriver, alors toi, Wang Lin, tu serais véritablement l'ennemi de ma vie ! »
 
 Greed ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalité. À ses yeux, c'était totalement impossible.
 
@@ -98,7 +98,7 @@ Greed ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalité. �
 
 « Maintenant que j'ai compris 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion Ancien du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir me débarrasser de ce sortilège ! » Tout en méditant ainsi, Greed ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
 
-« Mes trésors passés... Il est vraiment mon ennemi juré. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur ; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Greed était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
+« Mes trésors passés... Il est vraiment mon ennemi juré. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur ; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Greed était née des cauchemars qu'il avait vécus. Bien que son niveau de cultivation fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
 
 Tout comme un oiseau qui, après avoir failli être tué par une flèche, survit et devient un souverain parmi les oiseaux, la blessure du passé resterait à jamais gravée dans son esprit. Il tremblerait au simple bruit d'un arc.
 

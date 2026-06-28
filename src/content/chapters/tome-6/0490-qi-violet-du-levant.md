@@ -50,7 +50,7 @@ Le visage de Wang Lin s'assombrit. Il laissa échapper un grognement, leva son i
 
 Wang Lin murmura doucement : « Doigt Démoniaque ! » Des ondes de lumière démoniaque surgirent dans les environs et déferlèrent vers lui. Simultanément, l'énergie spirituelle céleste à l'intérieur de son corps convergea vers son index.
 
-« Situ a dit que plus mon niveau de culture est élevé, plus le Doigt Démoniaque sera puissant. J'ai atteint le stade intermédiaire de la Transformation de l'Âme, ce sort est donc au moins plusieurs fois plus puissant qu'auparavant. Je parviendrai certainement à briser cette formation ! »
+« Situ a dit que plus mon niveau de cultivation est élevé, plus le Doigt Démoniaque sera puissant. J'ai atteint le stade intermédiaire de la Transformation de l'Âme, ce sort est donc au moins plusieurs fois plus puissant qu'auparavant. Je parviendrai certainement à briser cette formation ! »
 
 Alors que l'énergie spirituelle céleste affluait dans son corps, son teint changea et une aura maléfique apparut, accompagnée d'une flamme dans sa main.
 
@@ -88,7 +88,7 @@ Sa vitesse avait atteint ses limites ; sa course générait des vagues de rugiss
 
 En volant, son regard devenait de plus en plus froid. Depuis son arrivée, les membres de la Division Pourpre avaient tenté de le réprimer. Wang Lin avait enduré, encore et encore, avant de décider d'agir avec autorité pour changer la donne. Cependant, Zhao Xingsha avait sollicité des renforts extérieurs, l'avait évincé de la Division Pourpre et avait fini par le piéger.
 
-Si sa culture n'avait pas été déjà au seuil d'une percée et s'il n'avait pas possédé suffisamment de jades célestes, il serait resté piégé ici pendant des années. Le jour où il aurait été libéré, sa vie ne dépendrait plus de lui.
+Si sa cultivation n'avait pas été déjà au seuil d'une percée et s'il n'avait pas possédé suffisamment de jades célestes, il serait resté piégé ici pendant des années. Le jour où il aurait été libéré, sa vie ne dépendrait plus de lui.
 
 « Ma règle a toujours été : "Si l'on ne me cherche pas, je ne cherche personne". Cependant, s'ils osent me provoquer, alors je les tuerai ! » Les yeux de Wang Lin étaient d'une froideur de glace alors qu'il fonçait vers la Secte du Destin Céleste. À un moment donné, son corps trembla légèrement avant qu'il ne se téléporte.
 
@@ -102,11 +102,11 @@ Dans la Division Pourpre, quelqu'un avait utilisé un puissant sortilège pour a
 
 De loin, toute la Division Pourpre semblait recouverte par cette couche de nuages, comme si elle flottait dans le Royaume Céleste. Sur ces nuages blancs étaient disposées d'innombrables petites tables, et de nombreux disciples de la Division Pourpre servaient les invités sur ces plateformes célestes.
 
-Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes étaient considérées comme les plus faibles de la planète et ne pouvaient séjourner dans la Division Pourpre que pour la durée des festivités.
+Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de cultivation, mais en petit nombre. Ces sectes étaient considérées comme les plus faibles de la planète et ne pouvaient séjourner dans la Division Pourpre que pour la durée des festivités.
 
 Sur les nuages surplombant la Division Pourpre, le frère aîné Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
 
-La Cinquième Sœur était en train de subir une punition et se trouvait en culture recluse ; le Sixième Frère était parti en aventure sans être revenu ; et le Septième Frère, Wang Lin, était absent. Voilà pourquoi les sièges étaient vacants.
+La Cinquième Sœur était en train de subir une punition et se trouvait en cultivation recluse ; le Sixième Frère était parti en aventure sans être revenu ; et le Septième Frère, Wang Lin, était absent. Voilà pourquoi les sièges étaient vacants.
 
 À la gauche de Zhao Xingsha siégeaient six Anciens, vêtus de diverses étoffes. Ces six hommes étaient tous des chefs de sectes de la planète Tian Yun. Le plus faible était au début du stade Ascendant, tandis que le plus puissant atteignait le sommet du stade avancé de l'Ascendance.
 

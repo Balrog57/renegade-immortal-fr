@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1157 - One Trial Two Calamities
 slug: une-epreuve-deux-cataclysmes
 ---
-Les « Trois Épreuves et Sept Cataclysmes » des anciens dieux étaient semblables aux cinq Afflictions Célestes des cultivateurs. C’était une lame suspendue au-dessus de leurs têtes : s'ils survivaient, leur niveau de culture augmenterait considérablement, mais en cas d'échec, ils mourraient.
+Les « Trois Épreuves et Sept Cataclysmes » des anciens dieux étaient semblables aux cinq Afflictions Célestes des cultivateurs. C’était une lame suspendue au-dessus de leurs têtes : s'ils survivaient, leur niveau de cultivation augmenterait considérablement, mais en cas d'échec, ils mourraient.
 
 La première épreuve comportait deux cataclysmes, la seconde également deux, et la troisième en comptait trois !
 
@@ -94,7 +94,7 @@ Les mortels du continent étaient terrifiés, ne comprenant pas ce qui se passai
 
 Les cultivateurs de la Secte de l'Origine accordèrent une importance capitale à cet événement. Ils envoyèrent presque toute la secte pour enquêter. Ces bruits ressemblaient à des rugissements, et chaque fois qu'ils atteignaient leurs oreilles, ils ne pouvaient s'empêcher d'être ébranlés.
 
-Li Xiangdong et Lu Yanfei, accompagnés de deux autres Anciens, flottaient dans les airs en observant la terre. Grâce à leur niveau de culture, ils sentaient clairement l'origine de ces rugissements.
+Li Xiangdong et Lu Yanfei, accompagnés de deux autres Anciens, flottaient dans les airs en observant la terre. Grâce à leur niveau de cultivation, ils sentaient clairement l'origine de ces rugissements.
 
 Li Xiangdong voulut descendre vérifier, mais Lu Yanfei l'en empêcha. Cependant, les rugissements s'intensifièrent encore, devenant presque capables de secouer le ciel.
 

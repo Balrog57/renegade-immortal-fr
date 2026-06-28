@@ -82,11 +82,11 @@ C'était la première fois depuis cent ans qu'il percevait quelqu'un à l'extér
 
 Wang Lin ne répondit pas. Au lieu de cela, il fit volte-face pour partir.
 
-Wang Lin savait qu'avec son niveau de culture actuel, s'il était facile d'entrer, il serait impossible de ressortir. Ayant découvert que l'Avarice était piégé ici et que personne n'était venu le secourir, Wang Lin en déduisit que l'Avarice était la seule personne issue du Système Stellaire de l'Alliance à s'être aventurée là.
+Wang Lin savait qu'avec son niveau de cultivation actuel, s'il était facile d'entrer, il serait impossible de ressortir. Ayant découvert que l'Avarice était piégé ici et que personne n'était venu le secourir, Wang Lin en déduisit que l'Avarice était la seule personne issue du Système Stellaire de l'Alliance à s'être aventurée là.
 
 Une fois cela compris, Wang Lin n'avait plus aucune inquiétude. S'il perdait son temps à discuter avec l'Avarice, alors il ne s'appellerait plus Wang Lin.
 
-Il partit sans la moindre hésitation. Il n'était absolument pas tenté par les trésors dont parlait l'Avarice. Ce qu'il devait obtenir, il l'obtiendrait naturellement ; ce qu'il ne devait pas avoir, il ne s'en montrerait pas cupide. Autrement, ce serait comme gaspiller ses plus de 900 ans de culture.
+Il partit sans la moindre hésitation. Il n'était absolument pas tenté par les trésors dont parlait l'Avarice. Ce qu'il devait obtenir, il l'obtiendrait naturellement ; ce qu'il ne devait pas avoir, il ne s'en montrerait pas cupide. Autrement, ce serait comme gaspiller ses plus de 900 ans de cultivation.
 
 C'était la raison pour laquelle Wang Lin avait renoncé lors de sa dernière visite, attendant d'avoir rassemblé suffisamment de Fruits d'Ascension Céleste.
 
@@ -110,7 +110,7 @@ La puissance mystérieuse du Fruit d'Ascension Céleste semblait former un océa
 
 Le sol trembla violemment et une aura d'excitation intense émana de la terre. Tous les tentacules semblèrent perdre leur agressivité et commencèrent à onduler joyeusement, comme s'ils étaient ivres.
 
-Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas possédé l'expérience du démon dispersé tirant sur l'âme de la planète, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux Yeux de Lune.
+Si la cultivation de Wang Lin avait été insuffisante ou s'il n'avait pas possédé l'expérience du démon dispersé tirant sur l'âme de la planète, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux Yeux de Lune.
 
 Les yeux de Wang Lin s'illuminèrent. Sans hésiter, il déploya ses bras et toucha les deux côtés de la fissure osseuse. C'était comme s'il les unissait à son propre corps.
 
@@ -122,6 +122,6 @@ Wang Lin rugit : « Extraction osseuse ! »
 
 Une aspiration puissante jaillit de la rivière des enfers. Cette troisième capacité provenait de l'Abîme des Marées dans les Terres de l'Esprit Démoniaque. Ce pouvoir avait été acquis lors d'une illumination, quand Wang Lin avait expérimenté la force invisible créée par l'intersection de deux systèmes stellaires.
 
-Sa puissance croîtrait indéfiniment au rythme de son Dao. À cet instant, il l'utilisait avec sa culture de stade avancé de l'Ascendant, et cela suffisait à faire trembler la planète entière. Même le brouillard entourant la planète fut affecté !
+Sa puissance croîtrait indéfiniment au rythme de son Dao. À cet instant, il l'utilisait avec sa cultivation de stade avancé de l'Ascendant, et cela suffisait à faire trembler la planète entière. Même le brouillard entourant la planète fut affecté !
 
 Des vagues de rugissements sourds, empreints d'une sensation d'ancienneté, jaillirent de la terre et se propagèrent au loin.

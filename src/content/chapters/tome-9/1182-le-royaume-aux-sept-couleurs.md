@@ -20,7 +20,7 @@ Tous suivirent de près le Maître Ashen Pine, progressant avec prudence. Ce der
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il inspectait les environs. Il n'y avait aucun arbre ici, seulement des montagnes dénudées. Les différentes strates de brume coexistaient en groupes distincts sans jamais se mélanger.
 
-À cet instant précis, Chen Tianjun s'arrêta soudainement et fixa une montagne non loin de là. Une grotte de pierre était vaguement perceptible à mi-pente. Elle n'était manifestement pas naturelle ; on pouvait deviner au premier coup d'œil qu'elle avait été aménagée pour servir de grotte de culture.
+À cet instant précis, Chen Tianjun s'arrêta soudainement et fixa une montagne non loin de là. Une grotte de pierre était vaguement perceptible à mi-pente. Elle n'était manifestement pas naturelle ; on pouvait deviner au premier coup d'œil qu'elle avait été aménagée pour servir de grotte de cultivation.
 
 « Il y a bien une grotte là-bas, mais elle est gardée par des bêtes de rang 12. La dernière fois que je suis venu, j'ai attiré ces bêtes loin du site pour m'y faufiler. J'en avais tiré quelques précieux artefacts », murmura le Maître Ashen Pine en jetant un regard à Chen Tianjun, avant de reprendre sa marche.
 
@@ -48,7 +48,7 @@ Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue p
 
 « C'est bel et bien la pilule de réincarnation ! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.
 
-« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seuls quelques fragments subsistent. Il est impossible de raffiner une véritable pilule ; nous ne pouvons que condenser une certaine énergie de réincarnation ! » expliqua lentement le Maître Ashen Pine.
+« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la cultivation, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seuls quelques fragments subsistent. Il est impossible de raffiner une véritable pilule ; nous ne pouvons que condenser une certaine énergie de réincarnation ! » expliqua lentement le Maître Ashen Pine.
 
 Les yeux de Duanmu s'illuminèrent et il fixa le Maître Ashen Pine d'un regard tranchant : « Le compagnon Ashen Pine est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
 

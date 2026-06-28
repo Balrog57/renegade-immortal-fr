@@ -14,7 +14,7 @@ La ville de Vast Water possédait également une branche de la famille Sun. À c
 
 C'était la première fois que Qing Yi se retrouvait dans une telle situation, elle était donc très nerveuse. Elle gardait la tête baissée, affichant une attitude empreinte de respect.
 
-Son maître, un cultivateur au stade de la Formation du Noyau, se tenait à ses côtés. Cependant, son visage était pâle et sa culture avait chuté du stade de la Formation du Noyau au stade avancé de l'Établissement des Fondations.
+Son maître, un cultivateur au stade de la Formation du Noyau, se tenait à ses côtés. Cependant, son visage était pâle et sa cultivation avait chuté du stade de la Formation du Noyau au stade avancé de l'Établissement des Fondations.
 
 L'un des anciens de la famille Sun était un vieil homme au visage rubicond. Il entrouvrit les yeux et demanda d'une voix feutrée : « Cette personne a-t-elle vraiment dit cela ? »
 
@@ -54,7 +54,7 @@ Wang Ping réfléchit en silence. Après un long moment, il esquissa un faible s
 
 Wang Lin regarda Wang Ping et répondit lentement : « Oui. » Son regard quitta son fils pour se perdre dans le lointain, par la fenêtre. Dans un espace que Wang Ping ne pouvait percevoir, une pointe de tristesse perçait les yeux de Wang Lin.
 
-Cette tristesse était si profonde, si intense, que nul ne pouvait la deviner. Wang Lin ne pouvait révéler ce secret quoi qu'il arrive, bien qu'il sache que Wang Ping avait enfoui son désir de culture sous une trace de ressentiment envers lui.
+Cette tristesse était si profonde, si intense, que nul ne pouvait la deviner. Wang Lin ne pouvait révéler ce secret quoi qu'il arrive, bien qu'il sache que Wang Ping avait enfoui son désir de cultivation sous une trace de ressentiment envers lui.
 
 « Ping Er, ce n'est pas que ton père refuse que tu cultives, mais... c'est juste que... tu ne peux pas cultiver... » Wang Lin soupira intérieurement. Sa tristesse s'intensifiait encore...
 
@@ -86,7 +86,7 @@ Tous les cultivateurs de la branche familiale sortirent pour accueillir ce visit
 
 « Salutations, Vice-Chef de Famille ! »
 
-Cet homme était Sun Qiming. En raison de l'affaire concernant Wang Lin, son statut au sein du clan avait progressé. De plus, sa culture ayant atteint le stade avancé de la Transformation de l'Âme, il avait été promu par Sun Xi pour devenir le prochain chef de famille.
+Cet homme était Sun Qiming. En raison de l'affaire concernant Wang Lin, son statut au sein du clan avait progressé. De plus, sa cultivation ayant atteint le stade avancé de la Transformation de l'Âme, il avait été promu par Sun Xi pour devenir le prochain chef de famille.
 
 Sun Qiming ne perdit pas de temps en politesses et demanda directement : « Où est cette personne ? » Les membres du clan ignoraient ce que signifiait pouvoir briser un noyau d'un simple regard, mais lui en était parfaitement conscient. Même s'il en était capable, il ne pourrait pas faire reculer trois cultivateurs de l'Âme Naissante d'un seul pas sans utiliser de sorts.
 

@@ -36,7 +36,7 @@ Il n'était pas venu ici pour poursuivre le combat, mais pour s'allier.
 
 Les yeux de Hu Juan s'illuminèrent et elle regarda Wang Wei. Tandis que Wang Wei fixait Bei Lou, la froideur dans son regard disparut lentement. Il agita la main pour dissiper la ride d'eau avant de dire calmement : « D'accord ! »
 
-Bei Lou se détendit légèrement et atterrit au sol, tout en maintenant une certaine distance avec le couple. Son regard se posa sur Wang Lin et il rit : « Petit frère Wang, ton niveau de culture s'est étonnamment encore amélioré. Cependant, si tu ne guéris pas cette blessure rapidement, elle affectera ta culture à l'avenir. Peu importe, ce démon n'a pu venir ici que grâce à toi ; je ne pense pas que quiconque d'autre m'aurait laissé entrer. »
+Bei Lou se détendit légèrement et atterrit au sol, tout en maintenant une certaine distance avec le couple. Son regard se posa sur Wang Lin et il rit : « Petit frère Wang, ton niveau de cultivation s'est étonnamment encore amélioré. Cependant, si tu ne guéris pas cette blessure rapidement, elle affectera ta cultivation à l'avenir. Peu importe, ce démon n'a pu venir ici que grâce à toi ; je ne pense pas que quiconque d'autre m'aurait laissé entrer. »
 
 « Bien que j'aie des remèdes pour t'aider, tes blessures ont dû être causées par quelqu'un. Dis-moi son nom et je le tuerai pour te remercier de ta grâce. »
 
@@ -76,7 +76,7 @@ Wang Lin baissa la tête et ses yeux s'illuminèrent. Il s'assit, mais ne sortit
 
 Bien qu'il se soigne, il ne scella pas son Sens Divin. Même si cela ralentissait sa récupération, il devait rester vigilant.
 
-Le temps passa lentement, et en un clin d'œil, sept jours s'écoulèrent. Durant cette période, Wang Wei et Hu Juan restèrent assis comme s'ils étaient en pleine culture. L'Ancien Démon Bei Lou en fit de même.
+Le temps passa lentement, et en un clin d'œil, sept jours s'écoulèrent. Durant cette période, Wang Wei et Hu Juan restèrent assis comme s'ils étaient en pleine cultivation. L'Ancien Démon Bei Lou en fit de même.
 
 Wang Lin laissa échapper un long soupir. Ses blessures s'étaient légèrement atténuées, mais les dangers latents persistaient. Heureusement, il disposait de suffisamment de pilules pour une guérison complète. Il en sortit d'autres et les avala après vérification.
 
@@ -108,8 +108,8 @@ Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers
 
 Cette scène soudaine fit pousser un cri étouffé de stupeur chez le Maître Void ; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse !
 
-Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur de Nirvana au milieu de ce même stade.
+Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de cultivation était tombé du sommet du stade de Briseur de Nirvana au milieu de ce même stade.
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 
-« Je suis l'Ancien de l'Alliance de la Culture, le Maître Void, le frère cadet de l'Ancien Principal, le Maître Zhong Xuan. Que signifie tout cela ? » Le Maître Void s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.
+« Je suis l'Ancien de l'Alliance de la Cultivation, le Maître Void, le frère cadet de l'Ancien Principal, le Maître Zhong Xuan. Que signifie tout cela ? » Le Maître Void s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Cultivation.

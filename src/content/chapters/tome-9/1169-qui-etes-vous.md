@@ -40,15 +40,15 @@ Cela lui permettait d'éviter d'être reconnue. La Li Qianmei aux cheveux noirs 
 
 La Secte du Jade Précieux avait placé de nombreux disciples autour de Peng Lai pour accueillir les cultivateurs arrivants. Après avoir payé les frais, ils ouvraient la formation pour permettre l'accès.
 
-C'était la première fois que Wang Lin voyait une planète de culture depuis son arrivée dans la Mer des Nuages, même s'il ne s'agissait que de la moitié d'une seule. Cependant, contrairement au choc ressenti par les autres cultivateurs devant une telle vision, Wang Lin restait extrêmement calme.
+C'était la première fois que Wang Lin voyait une planète de cultivation depuis son arrivée dans la Mer des Nuages, même s'il ne s'agissait que de la moitié d'une seule. Cependant, contrairement au choc ressenti par les autres cultivateurs devant une telle vision, Wang Lin restait extrêmement calme.
 
-Dans la Mer des Nuages, la majorité des cultivateurs n'avaient jamais vu de planète de culture auparavant, seulement des continents flottants. La stupeur de voir une planète pour la première fois se lisait sans peine sur leurs visages.
+Dans la Mer des Nuages, la majorité des cultivateurs n'avaient jamais vu de planète de cultivation auparavant, seulement des continents flottants. La stupeur de voir une planète pour la première fois se lisait sans peine sur leurs visages.
 
-Pourtant, pour Wang Lin, une planète de culture n'avait rien d'extraordinaire. Il était né sur une planète de culture, il avait accepté son maître sur une planète de culture et, à Allheaven, il possédait même sa propre planète de culture.
+Pourtant, pour Wang Lin, une planète de cultivation n'avait rien d'extraordinaire. Il était né sur une planète de cultivation, il avait accepté son maître sur une planète de cultivation et, à Allheaven, il possédait même sa propre planète de cultivation.
 
 Sans parler du vaste champ d'étoiles au sein de la Secte Divine de l'Oiseau Vermillon.
 
-Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté car ils possédaient une véritable planète de culture. Mais face à Wang Lin, leur orgueil était dérisoire.
+Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté car ils possédaient une véritable planète de cultivation. Mais face à Wang Lin, leur orgueil était dérisoire.
 
 Alors que chaque cultivateur payait ses pierres spirituelles pour entrer, ce fut enfin le tour de Wang Lin et Li Qianmei. Les cultivateurs postés ici étaient principalement au stade Yin et Yang. Cependant, celui qui les dirigeait était étonnamment au stade du Scryer de Nirvana.
 
@@ -86,7 +86,7 @@ Même le jeune maître de la Secte du Dao Pourpre n'avait pas cent morceaux de j
 
 De même, dans la Mer des Nuages, il existait une ressource encore plus précieuse appelée « cristal originel ». Tout comme les jades célestes étaient nécessaires pour atteindre le stade Ascendant et que les cultivateurs Yin et Yang les utilisaient pour leurs formations et leurs trésors, les cristaux originels étaient d'une importance capitale pour les cultivateurs du deuxième niveau.
 
-Les cristaux originels n'existaient que dans la Mer des Nuages et étaient choyés par ces derniers. Leur absorption permettait de restaurer rapidement l'énergie originelle et pouvait augmenter considérablement la vitesse de culture.
+Les cristaux originels n'existaient que dans la Mer des Nuages et étaient choyés par ces derniers. Leur absorption permettait de restaurer rapidement l'énergie originelle et pouvait augmenter considérablement la vitesse de cultivation.
 
 De plus, si l'on utilisait un cristal originel pour créer une formation ou raffiner un trésor, leur puissance en était décuplée.
 

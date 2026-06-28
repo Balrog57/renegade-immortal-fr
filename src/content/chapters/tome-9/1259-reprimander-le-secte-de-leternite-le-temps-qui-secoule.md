@@ -12,11 +12,11 @@ La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Déc
 
 Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparut derrière lui et devint gigantesque, diffusant une lumière écarlate qui enveloppa toute la zone.
 
-« Puisque tu as dérobé l'un de mes sorts, je vais prendre l'un des tiens ! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa culture terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant ; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
+« Puisque tu as dérobé l'un de mes sorts, je vais prendre l'un des tiens ! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa cultivation terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant ; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
 
 L'expression de Wang Lin demeurait calme. Il ne possédait plus beaucoup d'énergie originelle après avoir utilisé la Nuit Déchirée, mais ses yeux aussi dégageaient une intention de combat monstrueuse. L'étoile de la loi entre ses sourcils scintillait follement et tournait rapidement. À mesure qu'elle pivotait, l'énergie originelle du monde commença à se condenser vers Wang Lin avec frénésie.
 
-Il lui était extrêmement difficile de tuer quelqu'un au stade de la première Affliction Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa culture pour atteindre le stade du Briseur de Nirvana qu'il aurait une chance !
+Il lui était extrêmement difficile de tuer quelqu'un au stade de la première Affliction Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa cultivation pour atteindre le stade du Briseur de Nirvana qu'il aurait une chance !
 
 Cependant, il était évident que rien de tout cela n'était possible.
 
@@ -32,11 +32,11 @@ Alors qu'il agitait sa main droite, les vagues de la mer s'emportèrent et un to
 
 Dès l'apparition de la porte de pierre, une pression indicible enveloppa le monde. Cela réveilla en sursaut tous les cultivateurs qui étaient encore en état de transe à cause de la Nuit Déchirée. Pourtant, après cet instant de lucidité, ils furent frappés une seconde fois par la stupeur. En contemplant la porte de pierre surplombant l'océan, un sentiment lié au temps envahit leurs cœurs.
 
-Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Déchirée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de culture, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
+Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Déchirée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de cultivation, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
 
 « Comment cet homme peut-il posséder autant de sorts ?! Depuis qu'il est arrivé, il n'a sorti aucun trésor ; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant ? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein du Secte de l'Éternité, il ne lui était pas permis de battre en retraite !
 
-Son niveau de culture ne lui permettait pas non plus de fuir sans combattre, bien qu'il ait eu le vague sentiment que le monde avait légèrement changé depuis l'apparition de la porte.
+Son niveau de cultivation ne lui permettait pas non plus de fuir sans combattre, bien qu'il ait eu le vague sentiment que le monde avait légèrement changé depuis l'apparition de la porte.
 
 Au moment où la porte de pierre perça la surface de la mer, Wang Lin resta immobile, mais la porte s'éleva rapidement pour le porter vers les cieux. Il semblait désormais veiller sur toute forme de vie !
 
@@ -56,7 +56,7 @@ Plus stupéfiant encore, à cet instant précis, un point rouge éclatant apparu
 
 Seuls quelques cultivateurs activèrent de force leur énergie originelle pour empêcher ce point rouge d'apparaître !
 
-Ce point sanguin était la loi du vieil homme aux cheveux blancs. À cet instant, sa culture explosa avec frénésie. Tout en bouleversant le monde, elle affecta également les cultivateurs environnants !
+Ce point sanguin était la loi du vieil homme aux cheveux blancs. À cet instant, sa cultivation explosa avec frénésie. Tout en bouleversant le monde, elle affecta également les cultivateurs environnants !
 
 Le vieil homme poussa un rugissement et chargea Wang Lin. Cependant, lorsqu'il fut proche, les yeux de Wang Lin s'ouvrirent comme s'il s'était réveillé d'un sommeil millénaire. Son regard se posa sur le vieil homme.
 
@@ -74,7 +74,7 @@ Le monde sembla devenir éternel. Le flux du temps devint silencieux et s'écoul
 
 Les rides du vieil homme aux cheveux blancs s'estompèrent considérablement et la lutte dans ses yeux devint plus intense. À cet instant, il était immergé dans ses souvenirs alors que mille ans défilaient comme les pages d'un livre que l'on tourne...
 
-Ce qui basculait n'était pas seulement la culture du vieil homme, mais presque les souvenirs des cent mille cultivateurs environnants. Mille ans de souvenirs s'évaporèrent en seulement dix souffles.
+Ce qui basculait n'était pas seulement la cultivation du vieil homme, mais presque les souvenirs des cent mille cultivateurs environnants. Mille ans de souvenirs s'évaporèrent en seulement dix souffles.
 
 Le temps éternel apparut dans le monde telle une main géante, libérant la confusion scellée.
 
@@ -82,11 +82,11 @@ Un souffle de temps passait après l'autre. En un clin d'œil, dix autres souffl
 
 Deux mille ans de souvenirs furent inconsciemment parcourus. Le vieil homme aux cheveux blancs luttait tandis qu'il se remémorait deux mille ans de passé en seulement vingt souffles.
 
-Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Il combattait la marée des bêtes à la Secte Démoniaque. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
+Sa cultivation fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Il combattait la marée des bêtes à la Secte Démoniaque. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
 
 En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet de la première Affliction Céleste. Il luttait en méditation fermée pour résister à la décomposition que la première Affliction Céleste infligeait à son corps.
 
-Tandis que ses souvenirs étaient remués, il sembla retourner dans son passé ; la douleur envahit tout son être, le submergeant. Son niveau de culture retourna également à ce qu'il était cinq mille ans auparavant et se dissipa rapidement.
+Tandis que ses souvenirs étaient remués, il sembla retourner dans son passé ; la douleur envahit tout son être, le submergeant. Son niveau de cultivation retourna également à ce qu'il était cinq mille ans auparavant et se dissipa rapidement.
 
 Il se vit rugir de douleur, poussant un cri de révolte. Ce rugissement résonna dans son esprit, rendant la lutte dans ses yeux encore plus violente.
 

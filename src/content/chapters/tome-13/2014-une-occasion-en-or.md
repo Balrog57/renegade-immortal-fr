@@ -74,7 +74,7 @@ S'il était touché par ce doigt, même son corps ancien ne pourrait y survivre 
 
 Dans ce moment de crise, toute l'aura solaire du Grand Empereur qu'il avait absorbée entre la 150e et la 200e marche explosa à l'intérieur de son corps.
 
-La culture de Wang Lin entra en cycle, et alors que ses essences s'activaient, quatre-vingt-dix-neuf images rémanentes apparurent autour de lui. Il leva sa main droite et frappa le doigt !
+La cultivation de Wang Lin entra en cycle, et alors que ses essences s'activaient, quatre-vingt-dix-neuf images rémanentes apparurent autour de lui. Il leva sa main droite et frappa le doigt !
 
 Avec ce coup de poing, les ombres du Dao Ancien apparurent derrière lui. L'Ancien Dieu, l'Ancien Démon et l'Ancien Diable lancèrent tous un coup ! Au-dessus des ombres du Dao Ancien, se trouvait une ombre dorée. Cette silhouette était floue mais dégageait une énergie céleste d'une pureté extrême, et elle porta également un coup de poing.
 
@@ -112,8 +112,8 @@ Xuan Luo afficha une expression complexe et s'inclina devant la tour. Il s'appr�
 
 Au moment où son pied toucha le sol, les bruits de son corps luttant contre la pression devinrent assourdissants, mais ses yeux brillaient d'une intensité rare.
 
-« Le pouvoir ancien existe grâce à ma lignée, et ma culture céleste grâce à mes essences, mais ils ne pouvaient jamais s'intégrer… Dans le monde des grottes, j'ai tenté de les fusionner, mais ils se rejetaient l'un l'autre… Finalement, je ne pouvais que les maintenir séparés.
+« Le pouvoir ancien existe grâce à ma lignée, et ma cultivation céleste grâce à mes essences, mais ils ne pouvaient jamais s'intégrer… Dans le monde des grottes, j'ai tenté de les fusionner, mais ils se rejetaient l'un l'autre… Finalement, je ne pouvais que les maintenir séparés.
 
 « Mais en ce moment, il n'y a pas de meilleur endroit que celui-ci pour m'aider à fusionner les pouvoirs célestes et anciens ! Le Grand Empereur Gu Dao est l'être le plus puissant du Continent Astral Immortel. Sa pression est l'aide ultime pour leur fusion ! »
 
-Wang Lin était déterminé à poursuivre son ascension, car lors des 200 premières marches, il avait pressenti l'opportunité de fusionner sa culture ancienne et céleste. C'était pour lui une occasion en or !
+Wang Lin était déterminé à poursuivre son ascension, car lors des 200 premières marches, il avait pressenti l'opportunité de fusionner sa cultivation ancienne et céleste. C'était pour lui une occasion en or !

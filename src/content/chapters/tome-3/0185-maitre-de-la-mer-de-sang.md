@@ -40,15 +40,15 @@ Dans l'explosion du corps, une brume de sang se dispersa soudainement et envelop
 
 « Évasion par le Désir Sanguin... Très bien. Comme on pouvait l'attendre de mon disciple. Quand la situation tourne mal, il fuit », dit le Magicien Démon Céleste avec un sourire approbateur en regardant la direction de sa fuite.
 
-Toutes les techniques du Seigneur Démon des Six Désirs lui avaient été personnellement enseignées. Sa méthode de culture était la Méthode de Culture Démoniaque Céleste Mystérieuse. Les hommes possèdent six désirs innés. Cette méthode consistait à apprendre à contrôler ses propres désirs pour ensuite s'en servir afin d'influencer ceux d'autrui à ses propres fins.
+Toutes les techniques du Seigneur Démon des Six Désirs lui avaient été personnellement enseignées. Sa méthode de cultivation était la Méthode de Cultivation Démoniaque Céleste Mystérieuse. Les hommes possèdent six désirs innés. Cette méthode consistait à apprendre à contrôler ses propres désirs pour ensuite s'en servir afin d'influencer ceux d'autrui à ses propres fins.
 
 Comparée à la technique de la malédiction mortelle, elle n'était que légèrement moins cruelle. L'aspect crucial de cette méthode était la maîtrise de soi. Si l'on parvenait à contrôler quatre désirs, on atteignait le stade de la Formation de l'Âme ; si l'on maîtrisait les six, on atteignait celui de la Transformation de l'Âme.
 
-Le Seigneur Démon des Six Désirs avait déjà pris le contrôle de cinq de ses désirs innés. Le dernier, qu'il n'avait pas encore dompté, était l'obsession. Malgré tous ses efforts, il ne parvenait pas à maîtriser ce désir. Sa seule obsession était sa propre culture. Dès son premier jour d'entraînement, il s'était promis d'atteindre le stade de la Transformation de l'Âme.
+Le Seigneur Démon des Six Désirs avait déjà pris le contrôle de cinq de ses désirs innés. Le dernier, qu'il n'avait pas encore dompté, était l'obsession. Malgré tous ses efforts, il ne parvenait pas à maîtriser ce désir. Sa seule obsession était sa propre cultivation. Dès son premier jour d'entraînement, il s'était promis d'atteindre le stade de la Transformation de l'Âme.
 
 C'était son rêve et le but de sa vie. Le Magicien Démon Céleste avait prédit que cette obsession deviendrait le plus grand obstacle du Seigneur Démon des Six Désirs, et cela s'était réalisé.
 
-La technique d'Évasion par le Désir Sanguin était un recours ultime issu de la Méthode de Culture Démoniaque Céleste Mystérieuse. En sacrifiant sa progression sur le contrôle de l'un de ses désirs, l'utilisateur obtenait une accélération fulgurante.
+La technique d'Évasion par le Désir Sanguin était un recours ultime issu de la Méthode de Cultivation Démoniaque Céleste Mystérieuse. En sacrifiant sa progression sur le contrôle de l'un de ses désirs, l'utilisateur obtenait une accélération fulgurante.
 
 Le Seigneur Démon des Six Désirs avait toujours été un homme décisif. Dès qu'il eut aperçu son maître, l'horreur l'avait saisi. Il décida alors de braver le danger et de fuir pour sauver sa vie.
 
@@ -78,7 +78,7 @@ Le Bossu Meng s'arrêta. Il baissa les yeux et posa sa main droite sur la glace,
 
 À la vue de cette épée, le cœur du Bossu Meng fut ébranlé. Il ressentit un profond sentiment de familiarité, comme si cet objet lui était essentiel. Pendant un bref instant, il perdit sa concentration, et l'épée s'enfonça dans son épaule droite. Un tintement retentit lors de l'impact. Bien que la vitesse de l'arme fût prodigieuse, elle ne parvint qu'à peine à percer la peau du Bossu Meng.
 
-Mais malgré cette pénétration superficielle, la toxine commença déjà à envahir son corps. Le Bossu Meng ne se soucia guère du poison et saisit l'épée ; il avait le sentiment viscéral que cette arme lui appartenait autrefois. Avec son niveau de culture, attraper une épée volante était un jeu d'enfant. Alors qu'il tendait la main, des couches de Qi enveloppèrent l'arme, formant un tourbillon qui l'empêchait de s'échapper.
+Mais malgré cette pénétration superficielle, la toxine commença déjà à envahir son corps. Le Bossu Meng ne se soucia guère du poison et saisit l'épée ; il avait le sentiment viscéral que cette arme lui appartenait autrefois. Avec son niveau de cultivation, attraper une épée volante était un jeu d'enfant. Alors qu'il tendait la main, des couches de Qi enveloppèrent l'arme, formant un tourbillon qui l'empêchait de s'échapper.
 
 Wang Lin était presque à la sortie quand son visage se décomposa. Il perçut le danger auquel l'épée volante faisait face. Sans s'arrêter, ses mains s'activèrent rapidement pour former des signes, jusqu'à ce qu'il crache une bouffée de Qi doré. Au même moment, l'épée piégée dans le tourbillon de Qi en ressentit l'effet, et la toxine bleue sur sa lame s'intensifia.
 
@@ -88,7 +88,7 @@ Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng 
 
 Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque du Bossu Meng avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 
-Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de 1000 pieds du Bossu Meng.
+Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa cultivation était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de 1000 pieds du Bossu Meng.
 
 Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du troisième essai, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 
@@ -102,7 +102,7 @@ Entendant cela, le Bossu Meng chargea aussitôt vers Wang Lin. Il était certain
 
 Le Sens Divin du messager scanna rapidement le troisième essai et localisa Wang Lin et le Seigneur Démon des Six Désirs. Il concentra d'abord son attention sur ce dernier, qui était enveloppé d'un rayon de lumière rouge sang augmentant considérablement sa vitesse. Cependant, plus il progressait, plus les âmes errantes se multipliaient ; la quantité dépassait ce que son trésor pouvait gérer. En conséquence, il fut frappé par de nombreuses âmes en chemin et dut utiliser son énergie spirituelle pour lutter contre celles qui ravageaient son corps.
 
-À l'apparition du Sens Divin, le Seigneur Démon des Six Désirs fut profondément ébranlé. Après avoir enfin repoussé les âmes errantes, ce Sens Divin anormal surgit. Il savait que la culture de cet être devait être hors norme pour projeter une telle puissance. Après l'avoir scanné, le Sens Divin projeta une vague de puissance qui fit s'estomper peu à peu la lumière rouge sang, révélant le visage horrifié du Seigneur Démon des Six Désirs.
+À l'apparition du Sens Divin, le Seigneur Démon des Six Désirs fut profondément ébranlé. Après avoir enfin repoussé les âmes errantes, ce Sens Divin anormal surgit. Il savait que la cultivation de cet être devait être hors norme pour projeter une telle puissance. Après l'avoir scanné, le Sens Divin projeta une vague de puissance qui fit s'estomper peu à peu la lumière rouge sang, révélant le visage horrifié du Seigneur Démon des Six Désirs.
 
 « Je ne peux pas agir tant que le dévoreur d'âmes est là. Je ne pourrai t'aider à le bloquer qu'une seule fois », envoya le puissant Sens Divin au Magicien Démon Céleste, qui poursuivait indifféremment son disciple. Le visage du Magicien restait calme ; il hocha la tête et accéléra immédiatement.
 

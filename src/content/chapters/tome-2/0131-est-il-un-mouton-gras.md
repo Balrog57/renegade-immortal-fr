@@ -38,7 +38,7 @@ Avant qu'il n'ait pu achever sa phrase, des grondements de vent et de tonnerre r
 
 Cet homme était vêtu de noir intégral. Même l'épée volante sous ses pieds émettait une lueur sombre. Ses deux mains étaient enveloppées de brume noire. Sans même accorder un regard à Wang Lin, il demanda à Sun Youcai : « Est-ce lui, le mouton gras ? »
 
-Wang Lin l'observa et nota que le niveau de culture de cet homme était supérieur à celui de Sun Youcai. Cet individu avait déjà atteint le stade pseudo Formation du Noyau et pouvait rivaliser avec Li Qiqing.
+Wang Lin l'observa et nota que le niveau de cultivation de cet homme était supérieur à celui de Sun Youcai. Cet individu avait déjà atteint le stade pseudo Formation du Noyau et pouvait rivaliser avec Li Qiqing.
 
 Le visage de Sun Youcai s'illumina soudainement comme une fleur. Sa voix sonnait comme celle d'un courtisan cherchant à plaire : « Senior frère martial, c'est bien lui. J'ai remarqué que cette fille, Li Muwan, et son frère Li Qiqing, ont une bonne impression de lui. Si nous le transformons en marionnette pour les approcher, nous aurons de meilleures chances. »
 
@@ -72,9 +72,9 @@ Wang Lin rétracta le Sens Divin qu'il avait utilisé pour punir le démon et se
 
 Lorsque Sun Youcai l'avait rattrapé auparavant, il utilisait déjà sa vitesse maximale, ce qui prouvait ses capacités. C'est pourquoi Wang Lin ne l'avait pas tué ; il avait décidé de le capturer vivant pour lui soutirer des techniques.
 
-Sun Youcai était terrifié. Depuis qu'il avait commencé la culture il y a trente ans, alors qu'il n'était qu'un cultivateur de la Condensation de Qi au 15e niveau, il avait tué de nombreuses personnes. Mais il s'était toujours montré prudent, ne s'en prenant qu'à des individus plus faibles que lui. Il n'avait jamais osé défier plus fort que lui.
+Sun Youcai était terrifié. Depuis qu'il avait commencé la cultivation il y a trente ans, alors qu'il n'était qu'un cultivateur de la Condensation de Qi au 15e niveau, il avait tué de nombreuses personnes. Mais il s'était toujours montré prudent, ne s'en prenant qu'à des individus plus faibles que lui. Il n'avait jamais osé défier plus fort que lui.
 
-Au fil des ans, il avait utilisé tous les trésors trouvés et échangés à l'Atelier de la Faille contre des pilules pour accroître son niveau. Sa culture progressait, mais à mesure qu'il montait en puissance, les pilules ordinaires perdaient leur efficacité. Les pilules de haute qualité étaient soit introuvables, soit trop onéreuses ; il s'était donc tourné vers la Secte Luo He.
+Au fil des ans, il avait utilisé tous les trésors trouvés et échangés à l'Atelier de la Faille contre des pilules pour accroître son niveau. Sa cultivation progressait, mais à mesure qu'il montait en puissance, les pilules ordinaires perdaient leur efficacité. Les pilules de haute qualité étaient soit introuvables, soit trop onéreuses ; il s'était donc tourné vers la Secte Luo He.
 
 La Secte Luo He était célèbre pour ses formations et son alchimie. Si une pilule venait de cette secte, sa qualité était infaillible. La cible de Sun Youcai était Li Muwan. Il voulait obtenir des pilules ou des recettes auprès d'elle, mais le niveau de son frère aîné, Li Qiqing, était supérieur au sien, atteignant le stade pseudo Formation du Noyau. Un niveau bien au-dessus du sien, qui venait d'entrer dans le stade avancé de l'Établissement des Fondations.
 
@@ -82,7 +82,7 @@ Le Sun Youcai actuel aurait voulu que sa vitesse fût encore plus grande. Son es
 
 S'il avait utilisé un trésor puissant, il n'aurait pas eu aussi peur, mais il n'avait même pas aperçu l'ombre d'un artefact magique. Il avait seulement entendu Ma Liang prononcer le mot « détruis », et le quatrième frère martial était mort sur-le-champ.
 
-Quelle... quelle sorte de technique est-ce là ? En y pensant, Sun Youcai sentit son crâne s'engourdir. Plus il ne comprenait pas, plus sa terreur grandissait. Quel niveau de culture fallait-il pour tuer un pseudo Formation du Noyau d'un seul mot ? Ma Liang avait-il déjà atteint la Formation du Noyau ?
+Quelle... quelle sorte de technique est-ce là ? En y pensant, Sun Youcai sentit son crâne s'engourdir. Plus il ne comprenait pas, plus sa terreur grandissait. Quel niveau de cultivation fallait-il pour tuer un pseudo Formation du Noyau d'un seul mot ? Ma Liang avait-il déjà atteint la Formation du Noyau ?
 
 Non ! Sun Youcai rejeta aussitôt cette idée car il avait déjà rencontré des cultivateurs de ce stade. Même si des Anciens de la Formation du Noyau affrontaient un pseudo Formation du Noyau, cela ne serait pas aussi simple. Bien qu'ils gagneraient sans nul doute, ils ne pourraient pas les achever d'un mot comme s'il s'agissait d'une sentence céleste.
 

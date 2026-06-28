@@ -20,7 +20,7 @@ Il réfléchit un instant, mais ne partit pas immédiatement. Il déploya son se
 
 Et d'après la direction qu'il suivait, il ne montait pas, mais venait vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il esquissa un sourire malicieux. Ce sixième frère cadet était un homme impitoyable ; il avait caché son niveau de culture jusqu'au moment opportun.
+Les yeux de Wang Lin s'illuminèrent et il esquissa un sourire malicieux. Ce sixième frère cadet était un homme impitoyable ; il avait caché son niveau de cultivation jusqu'au moment opportun.
 
 D'après sa trajectoire, il se dirigeait vers Wang Lin, mais ce dernier n'était pas certain de ses intentions. S'il venait avec la volonté de tuer Wang Lin, alors celui-ci ne s'offusquerait pas de l'éliminer pour s'emparer de ses trésors.
 
@@ -32,7 +32,7 @@ Peu de temps après, une silhouette émergea du mur que Wang Lin observait. Dès
 
 Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire : « Compagnon cultivateur, je crois que nous sommes les deux seuls survivants dans ce Temple des Bêtes Célestes effondré. »
 
-Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le suivait. Cela signifiait qu'il y avait de fortes chances que ce dernier cachait encore son véritable niveau de culture.
+Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le suivait. Cela signifiait qu'il y avait de fortes chances que ce dernier cachait encore son véritable niveau de cultivation.
 
 Wang Lin demanda calmement : « Cet endroit est déjà effondré. Pourquoi ce compagnon cultivateur vient-il à ma rencontre au lieu de chercher une issue ? »
 
@@ -56,7 +56,7 @@ Sun Lei fronça les sourcils. Il pouvait immédiatement voir que Wang Lin n'éta
 
 Et même ainsi, il n'avait décelé Wang Lin qu'en passant à ses côtés alors qu'il s'échappait des nourritures pour bêtes célestes. Il avait dû mémoriser le sens divin de Wang Lin dans son esprit pour pouvoir l'identifier à peine.
 
-De son point de vue, cet homme devait être comme lui, quelqu'un dissimulant son niveau de culture ; par conséquent, à moins que cela ne soit absolument nécessaire, il ne voulait pas agir avec imprudence.
+De son point de vue, cet homme devait être comme lui, quelqu'un dissimulant son niveau de cultivation ; par conséquent, à moins que cela ne soit absolument nécessaire, il ne voulait pas agir avec imprudence.
 
 De plus, après cet échange et en voyant le calme olympien de l'inconnu, Sun Lei était certain que Wang Lin cachait sa véritable puissance. Un cultivateur au stade initial de la Formation de l'Âme ne pouvait en aucun cas faire preuve d'une telle sérénité face à un stade intermédiaire.
 
@@ -84,7 +84,7 @@ Sun Lei poussa un soupir de soulagement et sourit de nouveau : « Dans ce cas, q
 
 Wang Lin secoua la tête : « Les deux autres objets ne m'intéressent pas non plus. »
 
-« Vous ! » Les yeux de Sun Lei devinrent sombres. S'il n'avait pas craint que Wang Lin dissimule son niveau de culture, il serait déjà monté pour l'assassiner. Pourquoi perdreait-il son temps à écouter tant d'absurdités ?
+« Vous ! » Les yeux de Sun Lei devinrent sombres. S'il n'avait pas craint que Wang Lin dissimule son niveau de cultivation, il serait déjà monté pour l'assassiner. Pourquoi perdreait-il son temps à écouter tant d'absurdités ?
 
 Sun Lei prit une profonde inspiration pour réprimer sa colère. Plus Wang Lin agissait ainsi, plus il paraissait évident qu'il cachait sa puissance. Comment Wang Lin oserait-il lui parler de la sorte s'il n'en était pas capable ?
 
@@ -116,6 +116,6 @@ Les yeux de Wang Lin s'illuminèrent. Il agita ses manches et dit : « Compagnon
 
 Sans un mot, Sun Lei se dirigea vers l'une des grottes qui n'avaient pas été ensevelies. Les deux hommes marchèrent vers la grotte en maintenant une certaine distance. Il était évident qu'aucun d'eux ne se faisait confiance, et chacun restait sur ses gardes face à l'autre.
 
-Sun Lei ricana intérieurement : « Même si vous cachez votre niveau de culture, dès que j'aurai l'épée et que vous tenterez de la voler, je quitterai le Royaume Céleste et utiliserai le trésor de la secte pour vous anéantir. »
+Sun Lei ricana intérieurement : « Même si vous cachez votre niveau de cultivation, dès que j'aurai l'épée et que vous tenterez de la voler, je quitterai le Royaume Céleste et utiliserai le trésor de la secte pour vous anéantir. »
 
 C'était précisément pour cette raison qu'il avait sollicité l'aide de Wang Lin, malgré sa crainte que celui-ci ne dissimule sa véritable puissance.

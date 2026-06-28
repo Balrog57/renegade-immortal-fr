@@ -8,7 +8,7 @@ slug: regarda-les-cieux-dun-regard-froid
 ---
 Great Desolation agita la main et un vent aux effluves de poisson l'entoura. Les Flammes de Joss l'enveloppèrent également pour l'aider à résister au Dao Master Miao Yin.
 
-Tous deux étaient de puissants cultivateurs ; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la culture du Nirvana Void, leur combat restait dangereux et capable de faire trembler les cieux.
+Tous deux étaient de puissants cultivateurs ; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la cultivation du Nirvana Void, leur combat restait dangereux et capable de faire trembler les cieux.
 
 L'expression de Great Desolation était sombre. Il avait découvert cette terre scellée le premier et avait déployé d'immenses efforts pour briser la restriction. Juste au moment où il allait réussir, le Dao Master Miao Yin était apparu. Ce dernier avait lancé une attaque sournoise, déclenchant alors cette bataille acharnée.
 
@@ -38,13 +38,13 @@ La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens D
 
 « Dao Master Miao Yin... La personne qui combat est imprégnée de poison et est également un cultivateur du troisième pas... C'était trop rapide, je n'ai pas pu voir son identité ! » Les yeux de Wang Lin brillèrent. Il avait également aperçu la terre en dessous, où près de 100 cultivateurs se livraient bataille, y compris la fille du clan de l'Extermination des Sceaux.
 
-« La culture du Dao Master Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Zimo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Lorsqu'il vit la femme en blanc, il constata que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
+« La cultivation du Dao Master Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Zimo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Lorsqu'il vit la femme en blanc, il constata que son niveau de cultivation avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
 
 Ayant revu le Maître Miao Yin une fois de plus, et constatant qu'il était lui aussi bien affaibli, tout comme la femme en blanc, ses spéculations s'accentuèrent. « Devrais-je parier... » Wang Lin fronça les sourcils.
 
 S'il se trompait, il ne pourrait absolument pas pénétrer dans la terre scellée. Les cinq Maîtres du Système Stellaire Ancien étaient trop puissants ! Wang Lin n'aurait aucune chance face à eux !
 
-Un instant plus tard, une lueur glaciale brilla dans les yeux de Wang Lin. Il chargea sans hésiter, suivi des bêtes-moustiques. « Je suis certain que sa culture est supprimée à l'intérieur du tombeau. Sinon, pourquoi détruirait-il mon Sens Divin pour me chasser ? En tant que l'un des cinq Maîtres, comment pourrait-il craindre quiconque, à moins qu'il n'y ait une inquiétude cachée ? Maintenant qu'il est engagé dans un combat, c'est l'occasion idéale. Bien que cette fille du clan de l'Extermination des Sceaux soit sa servante, je dois la capturer ! »
+Un instant plus tard, une lueur glaciale brilla dans les yeux de Wang Lin. Il chargea sans hésiter, suivi des bêtes-moustiques. « Je suis certain que sa cultivation est supprimée à l'intérieur du tombeau. Sinon, pourquoi détruirait-il mon Sens Divin pour me chasser ? En tant que l'un des cinq Maîtres, comment pourrait-il craindre quiconque, à moins qu'il n'y ait une inquiétude cachée ? Maintenant qu'il est engagé dans un combat, c'est l'occasion idéale. Bien que cette fille du clan de l'Extermination des Sceaux soit sa servante, je dois la capturer ! »
 
 Wang Lin accéléra et plongea dans la distorsion. Il disparut, emportant avec lui les innombrables bêtes-moustiques.
 

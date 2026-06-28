@@ -18,7 +18,7 @@ Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis 
 
 Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
 
-Ta Shan était toujours assis sur une planète de culture quelque part au sein du Secte Divin de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
+Ta Shan était toujours assis sur une planète de cultivation quelque part au sein du Secte Divin de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
 
 Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
 
@@ -118,11 +118,11 @@ Dès que l'éclat atteignit une intensité critique, la lumière commença à se
 
 En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimaginable d'énergie spirituelle céleste envahit la zone. Un pilier d'énergie spirituelle jaillit vers les cieux, propageant des ondes de choc dans toutes les directions.
 
-Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète du Secte Divin de l'Oiseau Vermillon ! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement : le Royaume Céleste de la Pluie venait de s'ouvrir !
+Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète du Secte Divin de l'Oiseau Vermillon ! À cet instant, tous les cultivateurs ayant atteint un certain niveau de cultivation ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement : le Royaume Céleste de la Pluie venait de s'ouvrir !
 
 Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Allheaven, le Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 
-« Les personnes de notre niveau de culture risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite !!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie ! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
+« Les personnes de notre niveau de cultivation risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite !!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie ! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
 
 Une autre personne, à laquelle Wang Lin était trop occupé pour prêter attention, chargea également vers le Royaume Céleste de la Pluie ! Il s'agissait du cadavre féminin argenté !
 

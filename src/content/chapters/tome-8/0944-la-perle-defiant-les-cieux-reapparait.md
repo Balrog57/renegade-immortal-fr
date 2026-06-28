@@ -74,7 +74,7 @@ La silhouette de Wang Lin ne subsistait plus dans le vide ; seule restait l'éno
 
 Le rire du vieil homme était empreint d'exultation. Il n'aurait jamais cru rencontrer une telle fortune aujourd'hui.
 
-« Après avoir dévoré cet Ancien Dieu royal, ce vieillard aura le niveau de culture nécessaire pour occuper un poste au conseil des Anciens ! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
+« Après avoir dévoré cet Ancien Dieu royal, ce vieillard aura le niveau de cultivation nécessaire pour occuper un poste au conseil des Anciens ! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
 
 Il avait déjà imaginé comment il gagnerait le respect du conseil après avoir dévoré l'Ancien Dieu royal, et comment il s'élèverait au-dessus de tous au sein de sa secte !
 

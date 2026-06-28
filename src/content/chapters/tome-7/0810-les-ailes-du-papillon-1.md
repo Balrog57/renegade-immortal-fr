@@ -18,7 +18,7 @@ Le regard de l'homme en bleu se détacha de Ta Shan pour balayer les membres du 
 
 « Tu n'es pas de ce monde. D'où viens-tu ?! »
 
-L'expression de Wang Lin était froide. Il fut capable de discerner d'un seul coup d'œil le niveau de culture de cet homme : il se situait au sommet du stade Yang Corporel, un cran au-dessus de lui-même.
+L'expression de Wang Lin était froide. Il fut capable de discerner d'un seul coup d'œil le niveau de cultivation de cet homme : il se situait au sommet du stade Yang Corporel, un cran au-dessus de lui-même.
 
 À cet instant, Ta Shan fronça les sourcils et s'élança en avant, le poing droit levé. Les tatouages sur son corps brillèrent et se condensèrent sur son poing alors qu'il frappait l'homme en bleu.
 
@@ -106,7 +106,7 @@ Les yeux de Ta Shan étaient éteints, mais son regard restait indomptable. Cepe
 
 La bête-moustique tournait dans les airs, les yeux rivés sur l'homme d'âge moyen. Le crapaud de tonnerre observait la scène à distance, le regard froid et le ventre gonflé.
 
-L'homme en bleu fixait Wang Lin, mais il n'agissait pas avec précipitation. Il avait naturellement perçu le niveau de culture de ce dernier, et le papillon aux côtés de Wang Lin lui inspirait un très fort sentiment de danger.
+L'homme en bleu fixait Wang Lin, mais il n'agissait pas avec précipitation. Il avait naturellement perçu le niveau de cultivation de ce dernier, et le papillon aux côtés de Wang Lin lui inspirait un très fort sentiment de danger.
 
 « Cet individu n'appartient pas à ce clan insignifiant. Comment est-il entré ? À en juger par son aura, ce n'est pas un être céleste... Qui est-il... ? »
 

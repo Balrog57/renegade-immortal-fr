@@ -82,7 +82,7 @@ Le corps de Wang Lin trembla et des grondements tonnerreux résonnèrent fréné
 
 De la même manière, les cinq planètes brillèrent. Dès qu'elles disparurent, elles chargèrent dans les cinq points de sang effondrés de Wang Lin ! Les palais se déplacèrent à l'intérieur du corps de Wang Lin, causant une destruction sans fin, et convergèrent vers le dernier palais dans sa poitrine. Une fois condensés, le Sceau des Neuf Palais serait complet !
 
-Les planètes formées par les neuf palais n'étaient pas de véritables planètes de culture et ne contenaient aucune forme de vie. C'étaient neuf météorites gigantesques raffinées au fil d'innombrables années, devenues une partie même de la rétribution divine !
+Les planètes formées par les neuf palais n'étaient pas de véritables planètes de cultivation et ne contenaient aucune forme de vie. C'étaient neuf météorites gigantesques raffinées au fil d'innombrables années, devenues une partie même de la rétribution divine !
 
 La douleur intense dans le corps de Wang Lin manqua de faire s'effondrer son âme originelle. Ses rugissements devinrent plus violents tandis que les étoiles du Dieu Ancien entre ses sourcils tournaient rapidement. Son expression devint encore plus féroce !
 

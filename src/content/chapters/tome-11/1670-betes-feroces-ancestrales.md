@@ -84,7 +84,7 @@ Si la formation circulaire était la surface d'un lac, ces cultivateurs fous ét
 
 Wang Lin, à l'intérieur de la formation, observait les chars projeter toujours plus de cultivateurs. Ces derniers percutaient la barrière au prix de leur existence.
 
-Cependant, avec leur niveau de culture, ils ne provoquaient que de légères distorsions sans parvenir à détruire la formation. Pourtant, le regard de Wang Lin se fit plus sérieux et ses yeux brillèrent d'une lueur étrange.
+Cependant, avec leur niveau de cultivation, ils ne provoquaient que de légères distorsions sans parvenir à détruire la formation. Pourtant, le regard de Wang Lin se fit plus sérieux et ses yeux brillèrent d'une lueur étrange.
 
 « Quelque chose ne va pas ! »
 

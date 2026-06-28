@@ -44,7 +44,7 @@ Sans agir de manière imprudente, il mit la pierre de côté. Son regard se posa
 
 Fixant ce jade de brume, Wang Lin fronça les sourcils. Il tendit la main et le jade vola dans sa paume. À l'instant où il le toucha, cette voix antique réapparut dans son esprit.
 
-« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de culture du Dao de l'Œil Spirituel. Il peut te permettre de percevoir les changements du Continent Astral Immortel une fois, ou bien diviner une chose pour toi... »
+« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de cultivation du Dao de l'Œil Spirituel. Il peut te permettre de percevoir les changements du Continent Astral Immortel une fois, ou bien diviner une chose pour toi... »
 
 « Mais une seule fois... »
 
@@ -70,15 +70,15 @@ En voyant cette goutte d'eau, l'expression de Wang Lin changea et ses pupilles s
 
 Ce troisième objet était bien plus nécessaire pour Wang Lin que les deux précédents. C'était ce dont il avait toujours rêvé. Son essence aquatique n'avait atteint qu'un stade de petite complétion sur la Planète des Cinq Éléments et n'avait pu progresser davantage. Par conséquent, il stagnait au stade avancé du Vide Spirituel.
 
-Même après la formation de son corps véritable d'essence de feu, son niveau de culture n'avait pas progressé ; cela avait seulement rendu ses sorts plus féroces.
+Même après la formation de son corps véritable d'essence de feu, son niveau de cultivation n'avait pas progressé ; cela avait seulement rendu ses sorts plus féroces.
 
 « J'ai déjà sept essences. Une fois que cette essence aquatique sera complète, j'en aurai huit et j'atteindrai le sommet du Vide Spirituel. Si je peux obtenir une neuvième essence après cela, je pourrai les fusionner en une seule pour briser le stade du Vide Spirituel et devenir un cultivateur du Néant Arcanique ! »
 
 « À ce moment-là, bien que je ne sois qu'au stade du Néant Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du stade de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Néant Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup ! Alors, je deviendrai un cultivateur de la Tribulation du Vide ! »
 
-Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Néant Arcanique, il serait incomparablement supérieur aux autres.
+Wang Lin comprit que son chemin de cultivation était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Néant Arcanique, il serait incomparablement supérieur aux autres.
 
-On pouvait dire que la clé de la culture de Wang Lin résidait dans les essences !
+On pouvait dire que la clé de la cultivation de Wang Lin résidait dans les essences !
 
 Bien que le concept d'essence semble simple, les obtenir et les parfaire était extrêmement difficile. En contemplant cette goutte d'essence aquatique, Wang Lin ne put s'empêcher de prendre une profonde inspiration.
 

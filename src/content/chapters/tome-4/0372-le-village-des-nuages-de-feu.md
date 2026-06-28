@@ -18,7 +18,7 @@ Tard dans la nuit, le vent froid soufflait et le corps de Wang Lin frissonna. Il
 
 En chemin, Wang Lin manquait constamment de souffle et devait s'accorder des pauses. Son voyage était donc naturellement très lent. Sept jours plus tard, il marchait toujours sur la route principale.
 
-Bien qu'il fût dépourvu d'énergie spirituelle, il parvenait encore à en ressentir la présence. Il avait décelé quelques lieux imprégnés de cette essence, mais peu importait ses efforts de culture, il ne parvenait pas à en accumuler la moindre parcelle dans son corps.
+Bien qu'il fût dépourvu d'énergie spirituelle, il parvenait encore à en ressentir la présence. Il avait décelé quelques lieux imprégnés de cette essence, mais peu importait ses efforts de cultivation, il ne parvenait pas à en accumuler la moindre parcelle dans son corps.
 
 Wang Lin pensa avec amertume : « Peut-être que seules les sectes locales possèdent des lieux où l'énergie spirituelle est dense. »
 

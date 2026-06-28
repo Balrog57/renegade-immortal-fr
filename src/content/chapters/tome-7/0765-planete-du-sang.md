@@ -24,7 +24,7 @@ Le corps originel de Wang Lin se dirigea vers la Planète du Sang, l'expression 
 
 Plusieurs mois passèrent. Lorsqu'il croisa d'autres cultivateurs, tous furent stupéfaits et n'osèrent agir avec précipitation. Ils ne savaient rien des dieux anciens. Même parmi les quatre systèmes stellaires, seules quelques personnes connaissaient leur existence, et ce, uniquement à travers la lecture de registres antiques.
 
-De plus, les dieux anciens mentionnés dans ces récits étaient souvent des adultes possédant six étoiles ou plus. Leurs corps étaient plus vastes que des planètes de culture, un trait unique aux dieux anciens. L'aura d'un dieu ancien à quatre étoiles n'était pas flagrante. Parmi les cultivateurs, à moins de l'avoir vu personnellement, il serait impossible de l'associer à ces divinités éteintes depuis des éternités.
+De plus, les dieux anciens mentionnés dans ces récits étaient souvent des adultes possédant six étoiles ou plus. Leurs corps étaient plus vastes que des planètes de cultivation, un trait unique aux dieux anciens. L'aura d'un dieu ancien à quatre étoiles n'était pas flagrante. Parmi les cultivateurs, à moins de l'avoir vu personnellement, il serait impossible de l'associer à ces divinités éteintes depuis des éternités.
 
 C'était l'une des raisons pour lesquelles Wang Lin avait décidé de révéler la véritable forme de son corps originel.
 
@@ -32,7 +32,7 @@ Ces diverses considérations n'étaient que des objectifs secondaires. La vérit
 
 Une puissante intention meurtrière emplit son cœur. L'avatar avait été cultivé avec acharnement pendant de nombreuses années. En réalité, il n'y avait pour lui ni corps principal ni secondaire. Le corps originel était lui, et l'avatar était lui aussi. Si l'avatar mourait, cela signifiait qu'il avait été tué une fois !
 
-Si son corps originel choisissait de se cacher et d'attendre un niveau de culture plus élevé pour réapparaître, alors il ne serait plus Wang Lin. Il y avait des moments où il devait agir, même si les conséquences étaient défavorables !
+Si son corps originel choisissait de se cacher et d'attendre un niveau de cultivation plus élevé pour réapparaître, alors il ne serait plus Wang Lin. Il y avait des moments où il devait agir, même si les conséquences étaient défavorables !
 
 « La chance d'être découvert en tant que dieu ancien est extrêmement faible, mais même si je l'étais, et alors ?! » Ses yeux devinrent plus froids et sa progression s'accéléra.
 

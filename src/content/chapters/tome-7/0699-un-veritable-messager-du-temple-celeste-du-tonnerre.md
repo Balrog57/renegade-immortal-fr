@@ -108,15 +108,15 @@ Le corps de Qing Yi trembla. Elle s'apprêtait à parler, mais Wang Ping l'inter
 
 « Ces années ont été dures pour toi. En tant que cultivatrice, tu peux changer d'apparence. Pour que je ne me sente pas seul, tu as progressivement vieilli avec moi. Moi, Wang Ping, je ne l'oublierai jamais. S'il y a une autre vie, je ne t'oublierai jamais ! »
 
-Des larmes coulèrent sur les joues de Qing Yi. Son niveau de culture avait été élevé par Wang Lin jusqu'au sommet du stade avancé de l'Âme Naissante. Il y a plus de vingt ans, elle avait compris son domaine en accompagnant Wang Ping : son domaine était la Passion sans Regret.
+Des larmes coulèrent sur les joues de Qing Yi. Son niveau de cultivation avait été élevé par Wang Lin jusqu'au sommet du stade avancé de l'Âme Naissante. Il y a plus de vingt ans, elle avait compris son domaine en accompagnant Wang Ping : son domaine était la Passion sans Regret.
 
-« Je t'accompagnerai même dans l'au-delà ! » dit doucement Qing Yi. « La culture n'est que poussière à mes yeux... Je ne veux pas être une céleste impitoyable, je veux simplement être une personne sentimentale... »
+« Je t'accompagnerai même dans l'au-delà ! » dit doucement Qing Yi. « La cultivation n'est que poussière à mes yeux... Je ne veux pas être une céleste impitoyable, je veux simplement être une personne sentimentale... »
 
 Wang Ping la regarda, puis soupira en murmurant : « Pourquoi faire de telles choses... »
 
 À cet instant précis, un éclair siffla en traversant les étoiles. Si l'on regardait de près, on y distinguait une bête incroyablement immense et féroce. Cette créature ressemblait à un Qilin, mais elle n'avait pas de corne. Tout son corps était enveloppé d'éclairs : c'était une Bête du Tonnerre !
 
-Un érudit d'âge moyen était assis sur le dos de la bête. Sa culture était suffisamment puissante pour qu'il ne soit nullement perturbé par les décharges électriques qui traversaient son corps.
+Un érudit d'âge moyen était assis sur le dos de la bête. Sa cultivation était suffisamment puissante pour qu'il ne soit nullement perturbé par les décharges électriques qui traversaient son corps.
 
 L'éclair fonçait à une vitesse prodigieuse vers le domaine nord du Système Stellaire d'Allheaven.
 
@@ -126,9 +126,9 @@ Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Tho
 
 D'après les investigations, il semblait que le messager suspect n'avait pas quitté la planète Ran Yun ; il avait donc été envoyé ici pour vérifier.
 
-Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au niveau de l'Illusion Yin. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
+Le niveau de cultivation de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au niveau de l'Illusion Yin. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
 
-« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps ! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire d'Allheaven, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
+« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps ! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire d'Allheaven, hormis quelques anciennes familles de cultivation, presque personne n'osait provoquer le Temple.
 
 « Laisse-moi, Daoïste du Tonnerre, véritable messager du Temple Céleste du Tonnerre, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre ! » Le Daoïste du Tonnerre tapota la tête de sa monture de la main droite.
 

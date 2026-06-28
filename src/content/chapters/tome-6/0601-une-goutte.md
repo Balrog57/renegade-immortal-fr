@@ -40,7 +40,7 @@ Xu Liguo fut pris de surprise et tenta de se rétracter, mais le bras osseux ten
 
 Wang Lin observait froidement la scène. Dès que cette épaisse énergie spirituelle démoniaque fut libérée, il leva son index droit et murmura : « Doigt Démoniaque ! »
 
-Ce qui changea cette fois n'était pas sa propre énergie spirituelle céleste, mais l'énergie démoniaque qui venait d'être libérée. Grâce à sa culture de niveau Ascendant, Wang Lin pouvait transformer les forces du ciel et de la terre. Contrairement à l'aura de mort produite par le Doigt de la Mort, il s'agissait ici d'une pure énergie spirituelle démoniaque.
+Ce qui changea cette fois n'était pas sa propre énergie spirituelle céleste, mais l'énergie démoniaque qui venait d'être libérée. Grâce à sa cultivation de niveau Ascendant, Wang Lin pouvait transformer les forces du ciel et de la terre. Contrairement à l'aura de mort produite par le Doigt de la Mort, il s'agissait ici d'une pure énergie spirituelle démoniaque.
 
 À cet instant, l'index droit de Wang Lin devint un vortex colossal vers lequel toute l'énergie démoniaque convergeait. Bientôt, un rayon de lumière noire apparut au bout de son doigt.
 
@@ -120,7 +120,7 @@ Mais Wang Lin l'ignora totalement. À cet instant, la puissance des fruits étai
 
 Le Doigt de l'Inframonde !
 
-Il utilisa sa culture de niveau Ascendant pour invoquer le Doigt de l'Inframonde. Il pointa vers les abysses pour activer le domaine niché au cœur de son âme originelle. Ce doigt portait le domaine de la vie et de la mort ; il contenait toute la volonté de Wang Lin !
+Il utilisa sa cultivation de niveau Ascendant pour invoquer le Doigt de l'Inframonde. Il pointa vers les abysses pour activer le domaine niché au cœur de son âme originelle. Ce doigt portait le domaine de la vie et de la mort ; il contenait toute la volonté de Wang Lin !
 
 Ce doigt atteignit son apogée sous l'effet du Fruit de l'Ascension Céleste !
 

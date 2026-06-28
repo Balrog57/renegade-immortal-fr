@@ -40,7 +40,7 @@ Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes flo
 
 « Cela devrait permettre au Royaume Céleste de rester en sécurité pendant la recherche de la troisième âme ! » Wang Lin médita silencieusement un instant, puis se dirigea vers la rivière argentée.
 
-Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur culture et s'élancèrent dans les airs.
+Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur cultivation et s'élancèrent dans les airs.
 
 Qing Lin, Qing Shui, Situ Nan, Maître South Cloud et les autres flottaient là ; en voyant la silhouette blanche au loin, ils sourirent.
 
@@ -60,13 +60,13 @@ Son regard balaya l'assemblée et il esquissa un doux sourire.
 
 Ces trois mots déclenchèrent une explosion de acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé : le Clan de la Soie Bleue.
 
-Le Maître Dao Blue Dream était assis dans une hutte qu'il avait bâtie lui-même ; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en culture fermée.
+Le Maître Dao Blue Dream était assis dans une hutte qu'il avait bâtie lui-même ; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en cultivation fermée.
 
-Le Maître Dao Blue Dream estimait que la culture de Li Qianmei était encore insuffisante ; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une culture isolée afin qu'elle puisse appréhender son essence.
+Le Maître Dao Blue Dream estimait que la cultivation de Li Qianmei était encore insuffisante ; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une cultivation isolée afin qu'elle puisse appréhender son essence.
 
 Après avoir simplement échangé avec plusieurs de ses amis, Wang Lin s'éloigna. Il était accompagné de Situ Nan, Zhou Ru, Big Head, Treize et d'autres. Ils s'installèrent dans les montagnes du nord.
 
-Durant cette période, Wang Lin était allé rendre visite au Maître Dao Blue Dream. Lorsqu'il apprit que Li Qianmei était en culture fermée, il poussa un soupir de soulagement pour une raison qui lui échappait.
+Durant cette période, Wang Lin était allé rendre visite au Maître Dao Blue Dream. Lorsqu'il apprit que Li Qianmei était en cultivation fermée, il poussa un soupir de soulagement pour une raison qui lui échappait.
 
 Peut-être parce qu'il ignorait ce qu'il aurait pu lui dire s'il avait vu Li Qianmei. Lui-même ne savait pas si le sentiment qui l'unissait à elle était de la simple gratitude ou de l'amour.
 

@@ -14,7 +14,7 @@ L'inimaginable énergie d'origine du feu balayait son corps comme une tempête. 
 
 Une douleur intense le déchirait. Son corps était tel un récipient devant supporter neuf fois sa capacité normale ; on pouvait imaginer l'atrocité de la souffrance.
 
-Les Neuf Mystiques Transformations du Vermillion Bird s'accomplissent en empruntant neuf vies de culture et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Vermillion Bird !
+Les Neuf Mystiques Transformations du Vermillion Bird s'accomplissent en empruntant neuf vies de cultivation et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Vermillion Bird !
 
 La douleur cuisante fit saillir les veines de son visage. Le simple afflux de deux fois son énergie d'origine lui donnait presque l'impression que ses méridiens allaient exploser.
 
@@ -60,13 +60,13 @@ En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement 
 
 Wang Lin ignorait que les membres de la Secte Divine du Vermillion Bird observaient tous l'ascension d'un nouveau Dieu Empereur grâce à leurs sens divins par une méthode spéciale ! Des personnes familières regardaient également la scène.
 
-Lei Ji et Big Head étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
+Lei Ji et Big Head étaient sur un sommet montagneux. Ils cessèrent leur cultivation pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
 
 « Maître... »
 
-Dans le désert, la tempête s'était dissipée. Master Hollow Wind leva les yeux vers le ciel et murmura : « Quelle puissante énergie d'origine. Se pourrait-il que... se pourrait-il qu'il récolte enfin les fruits de ses trois années de culture ? »
+Dans le désert, la tempête s'était dissipée. Master Hollow Wind leva les yeux vers le ciel et murmura : « Quelle puissante énergie d'origine. Se pourrait-il que... se pourrait-il qu'il récolte enfin les fruits de ses trois années de cultivation ? »
 
-Sur une autre planète de culture, Situ Nan interrompit sa pratique et regarda le ciel, les yeux brillants d'une pointe de tension. L'Ancien du Vermillion Bird à ses côtés ne le pressa pas de reprendre sa culture ; il contemplait lui aussi le ciel avec un mélange d'anticipation et d'excitation.
+Sur une autre planète de cultivation, Situ Nan interrompit sa pratique et regarda le ciel, les yeux brillants d'une pointe de tension. L'Ancien du Vermillion Bird à ses côtés ne le pressa pas de reprendre sa cultivation ; il contemplait lui aussi le ciel avec un mélange d'anticipation et d'excitation.
 
 À cet instant, même son vieux cœur ne put s'empêcher de ressentir une multitude d'émotions.
 
@@ -82,7 +82,7 @@ Cependant, toutes ces bêtes étaient mortes, la peau entre leurs sourcils ayant
 
 Cet homme était Ta Shan ! Il mordillait le bout de son doigt et commençait à dessiner sur une peau de bête, mais il leva soudain la tête et son doigt s'immobilisa.
 
-« Maître... Êtes-vous sur le point de terminer votre culture en isolement ? »
+« Maître... Êtes-vous sur le point de terminer votre cultivation en isolement ? »
 
 Sur une planète située à la lisière de ce champ stellaire ardent, une statue de pierre noire trônait au sommet du plus haut pic montagneux. C'était une statue de Wang Lin, et un jeune homme était assis devant elle.
 
@@ -120,4 +120,4 @@ Xu Liguo effectuait souvent un balayage pour dissiper un peu les flammes devant 
 
 « Petit Wang Lin, si ton Grand-père Xu s'en sort, je ne te raterai pas pour m'avoir fait ça ! » À peine eut-il prononcé ces mots que son corps trembla et qu'il regarda au loin, les yeux emplis de crainte.
 
-« Bon sang, est-ce que ce meurtrier de Wang Lin est sur le point de sortir de sa culture en isolement ?! Cieux, ayez pitié, faites qu'il ne puisse pas sortir, qu'il ne puisse pas sortir ! Non... s'il ne peut pas sortir, comment pourrai-je sortir moi-même ? Il vaut mieux qu'il sorte. Qu'il sorte ! »
+« Bon sang, est-ce que ce meurtrier de Wang Lin est sur le point de sortir de sa cultivation en isolement ?! Cieux, ayez pitié, faites qu'il ne puisse pas sortir, qu'il ne puisse pas sortir ! Non... s'il ne peut pas sortir, comment pourrai-je sortir moi-même ? Il vaut mieux qu'il sorte. Qu'il sorte ! »

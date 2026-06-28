@@ -28,13 +28,13 @@ Ne plus voir la vie comme la vie, ne plus voir la mort comme la mort.
 
 Le regard de Wang Lin était limpide. Il avait compris.
 
-Il semblait avoir percé les secrets du domaine de la vie et de la mort. Sa compréhension de ce domaine augmentait à une vitesse fulgurante. Il prit une profonde inspiration ; il savait que sa culture était sur le point de franchir un nouveau palier.
+Il semblait avoir percé les secrets du domaine de la vie et de la mort. Sa compréhension de ce domaine augmentait à une vitesse fulgurante. Il prit une profonde inspiration ; il savait que sa cultivation était sur le point de franchir un nouveau palier.
 
 Le stade intermédiaire de la Formation de l'Âme n'était plus très loin.
 
-Une fois le stade de la Formation de l'Âme atteint, la compréhension de son propre domaine devient la clé. Après une percée dans son domaine, l'avancée du niveau de culture suit en moins de dix ans.
+Une fois le stade de la Formation de l'Âme atteint, la compréhension de son propre domaine devient la clé. Après une percée dans son domaine, l'avancée du niveau de cultivation suit en moins de dix ans.
 
-C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon sa taille. Cependant, la percée du domaine revient à augmenter la taille du récipient. Bien qu'il n'y ait toujours qu'une quantité limitée de liquide à l'intérieur, cette capacité peut désormais croître. Lorsque le volume de liquide atteint la limite du nouveau récipient, alors votre culture fera une percée.
+C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon sa taille. Cependant, la percée du domaine revient à augmenter la taille du récipient. Bien qu'il n'y ait toujours qu'une quantité limitée de liquide à l'intérieur, cette capacité peut désormais croître. Lorsque le volume de liquide atteint la limite du nouveau récipient, alors votre cultivation fera une percée.
 
 À cet instant, Lin Tianhou vola rapidement vers la femme. Il tendit la main, visant les deux épées célestes.
 
@@ -92,7 +92,7 @@ Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard m
 
 Ce mouvement déclencha une réaction en chaîne. Plus de cent cultivateurs se mirent à charger Wang Lin simultanément.
 
-Wang Lin fronça les sourcils. Le premier assaillant était déjà devant lui. C'était un homme très âgé aux cheveux blancs, dont le regard trahissait une soif inextinguible pour les épées. Son niveau de culture était celui du stade intermédiaire de la Formation de l'Âme.
+Wang Lin fronça les sourcils. Le premier assaillant était déjà devant lui. C'était un homme très âgé aux cheveux blancs, dont le regard trahissait une soif inextinguible pour les épées. Son niveau de cultivation était celui du stade intermédiaire de la Formation de l'Âme.
 
 Dès que le vieil homme fut à portée, les yeux de Wang Lin s'illuminèrent. Il savait qu'il ne pouvait pas battir en retraite ; faire marche arrière maintenant le condamnerait. Il leva la main et pointa le vieillard. Son domaine de la vie et de la mort frappa.
 
@@ -134,7 +134,7 @@ Le domaine de cet homme était la piété !
 
 Cependant, ce domaine s'effondra rapidement, remplacé par la peinture en noir et blanc.
 
-Le corps du vieillard trembla. Il ouvrit brusquement les yeux et cracha une importante quantité de sang. Son corps fut vidé de sa force, son regard s'éteignit, son domaine fut brisé et son cœur dao brutalement balayé. Son niveau de culture chuta drastiquement ; il n'était plus qu'un cultivateur au stade de la Formation de l'Âme privé de domaine.
+Le corps du vieillard trembla. Il ouvrit brusquement les yeux et cracha une importante quantité de sang. Son corps fut vidé de sa force, son regard s'éteignit, son domaine fut brisé et son cœur dao brutalement balayé. Son niveau de cultivation chuta drastiquement ; il n'était plus qu'un cultivateur au stade de la Formation de l'Âme privé de domaine.
 
 Wang Lin poussa un soupir. Il avança et pointa le front du vieillard du bout du doigt.
 
@@ -142,7 +142,7 @@ Bang !
 
 La tête du vieil homme explosa dans un fracas de sang et de chair. Son corps s'effondra sur place.
 
-« Ma culture est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Red Butterfly. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
+« Ma cultivation est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Red Butterfly. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
 
 Ce seul coup d'œil plongea chacun dans la réflexion, mais leur avidité ne faiblit pas d'un iota.
 

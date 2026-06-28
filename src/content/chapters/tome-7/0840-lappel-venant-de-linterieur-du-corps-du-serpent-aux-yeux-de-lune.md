@@ -28,15 +28,15 @@ Des ondes de lumière argentée ondulaient autour de lui, offrant un spectacle s
 
 À cet instant, des grondements ébranlèrent les étoiles et un vaisseau gigantesque surgit du lointain. D'innombrables jeunes femmes vêtues de robes colorées dansaient sur le pont. Un rire tonitruant retentit lorsqu'un vieil homme aux cheveux blancs, drapé dans une robe aux cinq couleurs, sauta du navire pour rejoindre le groupe.
 
-« Je vous ai fait attendre, chers cultivateurs. Sur la route, j'ai croisé plusieurs excellents fours de culture et cela m'a retardé ! » Le vieillard à la robe multicolore avait le teint rubicond et une peau d'une douceur extrême, semblable à celle d'un nourrisson. Dès son arrivée, une étrange aura féminine emplit l'espace.
+« Je vous ai fait attendre, chers cultivateurs. Sur la route, j'ai croisé plusieurs excellents fours de cultivation et cela m'a retardé ! » Le vieillard à la robe multicolore avait le teint rubicond et une peau d'une douceur extrême, semblable à celle d'un nourrisson. Dès son arrivée, une étrange aura féminine emplit l'espace.
 
-Le vieil homme de la famille Xiang rit : « Pour attirer l'attention du Daoïste aux Cinq Couleurs, ces fours de culture doivent être extraordinaires. »
+Le vieil homme de la famille Xiang rit : « Pour attirer l'attention du Daoïste aux Cinq Couleurs, ces fours de cultivation doivent être extraordinaires. »
 
 « Si le patriarche Xiang le souhaite, je vous en offrirai un après avoir capturé cette bête ! » Le Daoïste aux Cinq Couleurs observa les environs, secrètement impressionné. Chacun ici était un monstre ancien de grande renommée. Puisque tous étaient réunis, la capture de la créature était inéluctable.
 
 Tandis qu'ils discutaient, le patriarche de la famille Shengong restait de marbre, les yeux rivés sur le Serpent aux Yeux de Lune. Quant à l'homme en noir, il était encore plus silencieux.
 
-Le visage du Maître Flamespark demeurait serein. Bien que le niveau de culture du Daoïste aux Cinq Couleurs fût élevé, cela ne méritait pas son attention.
+Le visage du Maître Flamespark demeurait serein. Bien que le niveau de cultivation du Daoïste aux Cinq Couleurs fût élevé, cela ne méritait pas son attention.
 
 C'est alors qu'une silhouette apparut au loin. Vêtu de blanc, il ressemblait à un jeune homme, mais dégageait une aura antique. Cet ensemble lui conférait un magnétisme étrange.
 
@@ -46,7 +46,7 @@ Il ne chevauchait aucun trésor magique ; il marchait simplement sur le vide. D'
 
 L'homme en blanc hocha légèrement la tête et resta immobile, toujours silencieux.
 
-« La rumeur prétend que Li Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de culture ! Sa réputation l'a précédé ! » Le Maître Flamespark détourna le regard pour scruter soudainement l'horizon.
+« La rumeur prétend que Li Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de cultivation ! Sa réputation l'a précédé ! » Le Maître Flamespark détourna le regard pour scruter soudainement l'horizon.
 
 Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à moins de cent pieds des cultivateurs avant de se condenser instantanément en une silhouette !
 

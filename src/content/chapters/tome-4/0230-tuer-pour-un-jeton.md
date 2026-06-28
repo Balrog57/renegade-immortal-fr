@@ -30,7 +30,7 @@ Huit jours plus tard, Wang Lin arriva enfin à la ville.
 
 De grands et petits édifices couvraient la cité, abritant d'innombrables cultivateurs. Autour des rares réseaux de transfert de la ville, la foule était encore plus dense.
 
-Il faut dire qu'il y avait énormément de bêtes dans la Mer des Diables en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
+Il faut dire qu'il y avait énormément de bêtes dans la Mer des Diables en ce moment. Seuls ceux ayant atteint un certain niveau de cultivation ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
 
 La plupart des cultivateurs préféraient dépenser quelques pierres spirituelles pour utiliser les réseaux de transfert, garantissant ainsi une relative sécurité.
 
@@ -40,7 +40,7 @@ Wang Lin resta debout sur la bête et ne marqua aucun arrêt en pénétrant dans
 
 Wang Lin fronça les sourcils et disparut soudainement. Lorsqu'il réapparut, il était déjà à l'intérieur de la ville et la bête-moustique se trouvait dans son sac de stockage.
 
-Quant à sa culture, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Découpe de l'Esprit, personne ne pourrait percer son apparence.
+Quant à sa cultivation, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Découpe de l'Esprit, personne ne pourrait percer son apparence.
 
 Au moment de sa disparition, trois silhouettes apparurent dans le ciel. Elles étaient habillées de façon identique, seule la couleur de leurs vêtements changeait : noir, blanc et rouge.
 
@@ -62,7 +62,7 @@ Cette puissance était très légère. Seules les personnes ayant atteint le sta
 
 Fort de son expérience dans la Mer des Diables, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
 
-Ces échanges exigeaient souvent un niveau de culture minimum pour y accéder.
+Ces échanges exigeaient souvent un niveau de cultivation minimum pour y accéder.
 
 Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son expression changea : il vit un jeune homme accourir vers lui. Ce dernier était très beau, mais semblait terrifié par sa course effrénée, jetant sans cesse des regards derrière lui. Il était poursuivi par un homme d'âge moyen qui le traquait avec une expression malveillante. L'homme finit par le rattraper et tenta de s'en saisir. Dans sa fuite pour esquiver, le jeune homme percuta Wang Lin.
 
@@ -78,7 +78,7 @@ Wang Lin fronça les sourcils. Il recula d'un pas pour éviter l'assaut.
 
 L'homme d'âge moyen parut surpris, mais resta furieux : « Tu oses barrer ma route ? Dégage ! »
 
-Wang Lin le regarda avec calme. Il vit que sa culture n'était qu'au stade intermédiaire de l'Établissement des Fondations. Sa puissance spirituelle était très instable ; il était évident qu'il avait été artificiellement élevé à ce niveau par l'usage de drogues.
+Wang Lin le regarda avec calme. Il vit que sa cultivation n'était qu'au stade intermédiaire de l'Établissement des Fondations. Sa puissance spirituelle était très instable ; il était évident qu'il avait été artificiellement élevé à ce niveau par l'usage de drogues.
 
 Voyant que Wang Lin ne réagissait pas, l'homme laissa échapper un renâclement méprisant et se tourna vers le jeune homme : « Petit morveux, tu es bien courageux. Tu oses voler le jade de ton aîné ? »
 
@@ -92,7 +92,7 @@ Quelques passants se retournèrent, mais à la vue de l'homme d'âge moyen, ils 
 
 Wang Lin jeta un bref regard et ignora la scène pour continuer vers la boutique. Il savait ce qu'était ce jade violet : un matériau de raffinage pouvant se vendre environ une pierre spirituelle de qualité moyenne.
 
-Quant aux insultes de l'homme, si c'était le Wang Lin d'autrefois, il ne l'aurait pas laissé s'en tirer, mais avec sa culture actuelle, il ne daignait plus s'abaisser à corriger un être aussi insignifiant.
+Quant aux insultes de l'homme, si c'était le Wang Lin d'autrefois, il ne l'aurait pas laissé s'en tirer, mais avec sa cultivation actuelle, il ne daignait plus s'abaisser à corriger un être aussi insignifiant.
 
 Cependant, si Wang Lin ne voulait pas de problèmes, l'homme, lui, en cherchait. Après avoir empoché le jade, il se sentit d'autant plus arrogant. En voyant Wang Lin s'éloigner, il cria : « Je t'ai dit de dégager, pas de marcher ! »
 
@@ -166,7 +166,7 @@ Simultanément, Wang Lin frappa son sac et le miroir de bronze apparut dans sa m
 
 Les restrictions étaient d'une puissance redoutable. Les neuf dragons frappèrent de toutes parts. Les insectes entourant le chauve se désintégrèrent instantanément au contact des créatures.
 
-Le chauve était horrifié. Avec sa culture de l'Âme Naissante au stade initial, il sentit la mort approcher. L'étrange trésor magique du jeune homme l'effrayait au plus haut point.
+Le chauve était horrifié. Avec sa cultivation de l'Âme Naissante au stade initial, il sentit la mort approcher. L'étrange trésor magique du jeune homme l'effrayait au plus haut point.
 
 Il réfléchit une fraction de seconde, mordit le bout de sa langue et cracha un jet de sang. Son corps devint rouge sang alors qu'il reculait avec précipitation. Il savait que s'il restait dans la portée de ce trésor, il n'aurait aucune chance. Sa seule option était de sortir du champ d'action pour l'affronter à l'extérieur.
 

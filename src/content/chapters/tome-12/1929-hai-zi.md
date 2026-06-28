@@ -12,7 +12,7 @@ Mais pour l'instant, il avait encore une autre tâche à accomplir. Après avoir
 
 Presque tous les cultivateurs fixaient Wang Lin, tout comme l'Exalté Empyréen Zhu Lin l'avait fait auparavant. Même ce dernier vit ses pupilles se rétracter en observant Wang Lin.
 
-De son point de vue, Wang Lin différait des cultivateurs ordinaires. Ces derniers auraient tenté le palais suivant même en sachant qu'ils n'avaient aucune chance, afin d'évaluer la difficulté de l'épreuve et d'identifier leurs propres lacunes pour parfaire leur culture.
+De son point de vue, Wang Lin différait des cultivateurs ordinaires. Ces derniers auraient tenté le palais suivant même en sachant qu'ils n'avaient aucune chance, afin d'évaluer la difficulté de l'épreuve et d'identifier leurs propres lacunes pour parfaire leur cultivation.
 
 Mais après avoir franchi le quatrième palais, Wang Lin n'avait même pas daigné regarder le cinquième. D'autres ne l'avaient peut-être pas remarqué, mais l'Exalté Empyréen Zhu Lin le vit, et un sentiment d'effroi l'envahit à son égard.
 
@@ -86,7 +86,7 @@ L'expression de Wang Lin resta sereine. Au moment où la femme leva son doigt se
 
 L'armure d'âme du Taureau Céleste réapparaissait après plus de cinquante ans !
 
-Dès que l'armure prit forme, l'aura de culture de Wang Lin déferla. Il sauta du dos du dragon marin et fixa l'Exaltée Empyréen Hai Zi, qui fut stupéfaite par cette apparition.
+Dès que l'armure prit forme, l'aura de cultivation de Wang Lin déferla. Il sauta du dos du dragon marin et fixa l'Exaltée Empyréen Hai Zi, qui fut stupéfaite par cette apparition.
 
 « Messager d'Âme ! » Les pupilles de l'Exaltée Empyréen Hai Zi se rétractèrent. Elle savait que Wang Lin s'était retenu lors de leur dernier combat, mais elle ne s'attendait pas à ce qu'il soit un Messager d'Âme, dont le nombre est encore plus restreint que celui des Ascendants Empyréens !
 

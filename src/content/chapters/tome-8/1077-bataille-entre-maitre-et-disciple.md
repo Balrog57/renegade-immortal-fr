@@ -102,7 +102,7 @@ Cette autodestruction fut tellurique, créant une aura de pure destruction. Ce v
 
 Un grondement assourdissant retentit alors que son corps fut déchiré. Son âme d'origine transporta un impact inimaginable qui balaya tout sur son passage. Les yeux de l'Omniscient s'illuminèrent et sa main droite se porta vers le milieu de son front. Soudain, trois marques apparurent entre ses sourcils !
 
-Alors que l'Omniscient tendait la main vers son front, l'une des marques fut arrachée. À cet instant, le niveau de culture de l'Omniscient augmenta de manière prodigieuse, et cette puissance créa une tempête. Elle bloqua l'Origine Source de Wang Lin et stoppa l'impact de l'autodestruction du cultivateur.
+Alors que l'Omniscient tendait la main vers son front, l'une des marques fut arrachée. À cet instant, le niveau de cultivation de l'Omniscient augmenta de manière prodigieuse, et cette puissance créa une tempête. Elle bloqua l'Origine Source de Wang Lin et stoppa l'impact de l'autodestruction du cultivateur.
 
 Profitant de la puissance libérée par l'autodestruction du Nirvana, Wang Lin recula rapidement pour finalement rétablir une distance entre lui et l'Omniscient !
 

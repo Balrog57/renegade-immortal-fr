@@ -14,7 +14,7 @@ Cependant, il ne s'agissait que de transformer l'illusion en réalité — ils n
 
 Song Tian en était incapable. Dans ses souvenirs, lorsqu'il était allé rencontrer le Grand Empereur Gu Dao, il avait personnellement observé un phénomène similaire.
 
-« C'est impossible ! » Le démon ancestral, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait : que Wang Lin, qu'il considérait comme indigne de son attention, puisse contrôler les lois du monde après être sorti de sa retraite de culture.
+« C'est impossible ! » Le démon ancestral, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait : que Wang Lin, qu'il considérait comme indigne de son attention, puisse contrôler les lois du monde après être sorti de sa retraite de cultivation.
 
 Au moment où le démon ancestral sortit de la faille, il fut totalement stupéfait. Son esprit devint un vide absolu, et il ne put penser qu'à une seule chose : Wang Lin tendant la main vers le ciel tandis que toutes les lois convergeaient vers lui.
 
@@ -42,7 +42,7 @@ Cette voix fit sursauter le démon ancestral contenant le Sens Divin de Song Tia
 
 Pourtant, au moment même où la voix froide retentit, le regard glacial de Wang Lin se posa sur le démon ancestral. De fines lignes apparurent autour de lui et l'enveloppèrent. Le démon ancestral trembla puis resta immobile, comme pétrifié.
 
-Wang Lin avait spéculé depuis longtemps que le sort « Arrêt » était lié aux lois du monde. Avec son niveau de culture actuel, il n'avait plus besoin de former des sceaux — un simple regard suffisait à les invoquer.
+Wang Lin avait spéculé depuis longtemps que le sort « Arrêt » était lié aux lois du monde. Avec son niveau de cultivation actuel, il n'avait plus besoin de former des sceaux — un simple regard suffisait à les invoquer.
 
 Ce qui fut stoppé par le regard de Wang Lin n'était pas seulement le démon ancestral, mais aussi le Sens Divin de Song Tian. Ce dernier trembla et ne put plus bouger d'un iota.
 
@@ -86,7 +86,7 @@ Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Nordique, dans 
 
 Peu après, à l'intérieur de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste !
 
-Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans l'Ancien Jiu, l'extrêmement mystérieux Grand Empereur vit également son propre soleil apparaître dans le ciel !
+Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de cultivation. Dans l'Ancien Jiu, l'extrêmement mystérieux Grand Empereur vit également son propre soleil apparaître dans le ciel !
 
 Et le soleil de Song Tian apparut lui aussi, échappant à tout contrôle, pour s'envoler vers les cieux.
 

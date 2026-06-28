@@ -10,7 +10,7 @@ Au deuxième étage de la salle des enchères, un homme d'âge mûr vêtu de rob
 
 Elle ne dégageait aucun parfum médicinal ; la pilule semblait tout à fait ordinaire.
 
-Des murmures parcoururent la salle. Chaque cultivateur présent possédait naturellement une vue perçante. Une pilule de rang 8 représentait un trésor absolument rare pour eux. Cependant, si le niveau de culture d'un individu n'était pas suffisamment élevé, cette pilule deviendrait un poison mortel.
+Des murmures parcoururent la salle. Chaque cultivateur présent possédait naturellement une vue perçante. Une pilule de rang 8 représentait un trésor absolument rare pour eux. Cependant, si le niveau de cultivation d'un individu n'était pas suffisamment élevé, cette pilule deviendrait un poison mortel.
 
 Si elle ne pouvait être consommée, la garder sur soi serait une malédiction. Tout cultivateur incapable de la protéger s'exposerait à un grand désastre dès qu'il quitterait la ville.
 
@@ -102,4 +102,4 @@ Après s'être assis en position du lotus, Wang Lin fixa Sun Tai et ordonna : «
 
 ***
 
-[1. Le Grand Ancien du culte des cadavres sur la planète Suzaku. C'est lui que Zhou Yi avait marqué pour qu'il devienne l'esclave de Wang Lin. Il fut téléporté par le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants lorsqu'il vint sauver Wang Lin. Mais c'est aussi lui qui avait placé un sceau sur la culture de Wang Lin à l'époque.]
+[1. Le Grand Ancien du culte des cadavres sur la planète Suzaku. C'est lui que Zhou Yi avait marqué pour qu'il devienne l'esclave de Wang Lin. Il fut téléporté par le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants lorsqu'il vint sauver Wang Lin. Mais c'est aussi lui qui avait placé un sceau sur la cultivation de Wang Lin à l'époque.]

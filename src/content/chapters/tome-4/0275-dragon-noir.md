@@ -12,15 +12,15 @@ Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 1
 
 Des tours de glace descendirent du gouffre, l'une après l'autre.
 
-Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de culture. À l'instar du Clan des Démons Géants, ils ne possédaient pas de multiples sectes ; chacun appartenait à une seule et unique entité.
+Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de cultivation. À l'instar du Clan des Démons Géants, ils ne possédaient pas de multiples sectes ; chacun appartenait à une seule et unique entité.
 
 À Xue Yu, une fois qu'un cultivateur atteignait le stade de l'Âme Naissante, il pouvait manifester un géant de glace à partir de son Âme Naissante pour mener le combat. C'était là un symbole de son rang.
 
-De même, lorsqu'ils atteignaient le stade de la Formation de l'Âme, ils érigeaient leur propre tour de glace, laquelle devenait leur terrain de culture personnel.
+De même, lorsqu'ils atteignaient le stade de la Formation de l'Âme, ils érigeaient leur propre tour de glace, laquelle devenait leur terrain de cultivation personnel.
 
 La descente de ces tours signifiait que des cultivateurs de la Formation de l'Âme venaient d'apparaître.
 
-Chaque tour de glace possédait une forme unique, mais quiconque connaissait Xue Yu savait qu'il suffisait de compter le nombre d'étages pour déterminer le niveau de culture du cultivateur à son intérieur. Plus la tour était haute, plus le pouvoir du cultivateur était immense. C'était un moyen fort simple de jauger les forces de Xue Yu.
+Chaque tour de glace possédait une forme unique, mais quiconque connaissait Xue Yu savait qu'il suffisait de compter le nombre d'étages pour déterminer le niveau de cultivation du cultivateur à son intérieur. Plus la tour était haute, plus le pouvoir du cultivateur était immense. C'était un moyen fort simple de jauger les forces de Xue Yu.
 
 Au total, trente-six tours de glace descendirent du ciel.
 
@@ -40,7 +40,7 @@ En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'â
 
 Red Butterfly, le génie de Xue Yu qui avait captivé l'attention de Suzaku, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
-Les yeux de la femme s'illuminèrent et elle répondit : « Ainsi, il s'agit du compagnon de culture Zhou Yu, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
+Les yeux de la femme s'illuminèrent et elle répondit : « Ainsi, il s'agit du compagnon de cultivation Zhou Yu, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
 Le sourcil de Zhou Yu se fronça. Cette femme avait répondu à sa question par une autre interrogation. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
 
@@ -80,13 +80,13 @@ La mort du prodige de Xue Yu marquerait un tournant décisif dans cette guerre. 
 
 Lorsque les neuf assauts se déchaînèrent, de nombreux cultivateurs chargés de maintenir la formation périrent sur le coup. Ce furent eux qui absorbèrent une partie du contre-coup de l'attaque de la femme.
 
-Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Après avoir obtenu ce trésor dans un pays de culture de rang 5, personne ne pouvait l'égaler, si ce n'est sa jeune sœur de discipline qui était déjà bien au-delà d'elle.
+Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Après avoir obtenu ce trésor dans un pays de cultivation de rang 5, personne ne pouvait l'égaler, si ce n'est sa jeune sœur de discipline qui était déjà bien au-delà d'elle.
 
 Parmi les neuf figures, cinq se trouvaient au stade avancé de la Formation de l'Âme, tandis que les quatre autres maîtrisaient des domaines spéciaux. Personne ne pouvait survivre à une telle attaque, à moins d'avoir atteint le stade de la Transformation de l'Âme.
 
 Sous l'assaut combiné des domaines, la femme n'eut aucun moyen de résister et fut transformée en un cadavre ensanglanté. L'éventail, qui n'avait plus que deux plumes, fut saisi par un cultivateur au stade avancé de la Formation de l'Âme avant que les neuf silhouettes ne se muent en points lumineux et ne disparaissent.
 
-Les neuf assaillants avaient subi de lourds dégâts causés par l'éventail ; leur niveau de culture avait été considérablement amoindri et il leur faudrait un temps considérable pour s'en remettre.
+Les neuf assaillants avaient subi de lourds dégâts causés par l'éventail ; leur niveau de cultivation avait été considérablement amoindri et il leur faudrait un temps considérable pour s'en remettre.
 
 Une rage pure éclata dans les yeux des cultivateurs de Xue Yu, mais nulle tristesse n'y figurait. Cette fureur ne fit qu'intensifier la violence de leurs combats.
 
@@ -96,7 +96,7 @@ Cette femme n'était peut-être pas le véritable génie.
 
 À cet instant précis, des rayons de lumière arc-en-ciel jaillirent du sol. Il y en avait exactement 108. Ils apparurent simultanément sur toute l'étendue de l'Alliance des Quatre Sectes. Vu d'en haut, on aurait dit qu'ils formaient une immense formation couvrant l'intégralité du territoire.
 
-À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur culture et leur énergie spirituelle dans cette formation.
+À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur cultivation et leur énergie spirituelle dans cette formation.
 
 La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne s'égara dans des secousses si puissantes que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon noir de 10 000 pieds de long.
 

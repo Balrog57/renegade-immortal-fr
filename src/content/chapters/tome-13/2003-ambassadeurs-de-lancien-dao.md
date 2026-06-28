@@ -26,7 +26,7 @@ Telle était la nature du clan Ancien, une tradition héritée depuis des éons.
 
 L'empereur du clan Ancien était le ciel lui-même et représentait l'Ancêtre Ancien. Leur sang noble ne pouvait être effacé par aucune force ! Le clan Ancien vouait un respect suprême aux lignées de sang !
 
-Même les Grands Empereurs n'avaient pas le droit de destituer un empereur Ancien. En termes de culture, le Grand Empereur était le gardien du clan, mais en termes de pouvoir, l'empereur Ancien pouvait commander chaque membre de la lignée !
+Même les Grands Empereurs n'avaient pas le droit de destituer un empereur Ancien. En termes de cultivation, le Grand Empereur était le gardien du clan, mais en termes de pouvoir, l'empereur Ancien pouvait commander chaque membre de la lignée !
 
 S'il y avait un conflit d'autorité entre l'empereur Ancien et le Grand Empereur, bien plus de personnes obéiraient à l'empereur Ancien qu'au Grand Empereur !
 

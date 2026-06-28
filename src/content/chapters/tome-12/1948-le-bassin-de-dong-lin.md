@@ -28,7 +28,7 @@ Après un long moment, Wang Lin reprit peu à peu ses esprits. Il resta assis l�
 
 Le regard de Wang Lin s'illumina et il s'avança dans le bassin de Dong Lin. Lorsqu'il s'y assit, l'eau lui arriva à la taille. Une vague de froid envahit son corps.
 
-À l'intérieur du bassin, Wang Lin prit une profonde inspiration et cessa de songer aux secrets de la Secte Dong Lin. Il commença à faire circuler sa culture et sembla fusionner avec le bassin.
+À l'intérieur du bassin, Wang Lin prit une profonde inspiration et cessa de songer aux secrets de la Secte Dong Lin. Il commença à faire circuler sa cultivation et sembla fusionner avec le bassin.
 
 Il avait déjà ressenti cette sensation auparavant. Cependant, maintenant qu'il était réellement intégré, Wang Lin entra soudainement dans un état étrange.
 
@@ -106,11 +106,11 @@ Wang Lin surveillait Liu Jinbiao de près tandis que le temps s'écoulait lentem
 
 Tout en tremblant, l'œil gauche de Liu Jinbiao brillait d'un éclat intense. Même pour Wang Lin, cela revenait à fixer le soleil.
 
-« J'ai touché la lumière et une voix a résonné dans mon cœur, me murmurant le nom de cette lumière. C'est le commencement absolu... Le début de toute chose... Mais mon niveau de culture n'est pas assez élevé ; je n'ai pu comprendre qu'un fragment avant de ne plus pouvoir supporter l'intensité. » Liu Jinbiao prit une grande inspiration et regarda le bassin de Dong Lin.
+« J'ai touché la lumière et une voix a résonné dans mon cœur, me murmurant le nom de cette lumière. C'est le commencement absolu... Le début de toute chose... Mais mon niveau de cultivation n'est pas assez élevé ; je n'ai pu comprendre qu'un fragment avant de ne plus pouvoir supporter l'intensité. » Liu Jinbiao prit une grande inspiration et regarda le bassin de Dong Lin.
 
 « Maître, je pense que si j'ai pu comprendre une troisième fois, c'est grâce à mon Dao de la Tromperie. À cet instant, je me suis menti à moi-même en me faisant croire que c'était ma première immersion... En agissant ainsi, j'ai trompé le contrôle du bassin. Depuis mon réveil de la réincarnation, je peux exercer mon Dao de la Tromperie sur les autres. Le Maître veut-il essayer ? » Liu Jinbiao semblait avoir saisi quelque chose et tourna son regard vers Wang Lin.
 
-Wang Lin réfléchit un instant puis secoua la tête. Il possédait déjà une compréhension du Dao de la Tromperie et avait également progressé dans le Dao des Rêves. Il connaissait la méthode ; avec son niveau de culture, il n'avait nul besoin de l'aide de Liu Jinbiao.
+Wang Lin réfléchit un instant puis secoua la tête. Il possédait déjà une compréhension du Dao de la Tromperie et avait également progressé dans le Dao des Rêves. Il connaissait la méthode ; avec son niveau de cultivation, il n'avait nul besoin de l'aide de Liu Jinbiao.
 
 D'un pas assuré, Wang Lin s'immergea dans le bassin pour la quatrième fois. Lorsque la force étrange pénétra son corps, il utilisa le Dao de la Tromperie pour duper l'eau et plongea dans cet état mystérieux.
 

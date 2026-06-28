@@ -16,11 +16,11 @@ Aux yeux des cultivateurs du Système Stellaire Universel, le Système Stellaire
 
 On disait que le Système Stellaire de l'Alliance ne possédait pas de familles de cultivateurs, mais des sectes.
 
-On disait qu'il était composé de pays de culture classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire Universel !
+On disait qu'il était composé de pays de cultivation classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire Universel !
 
-On disait que le Système Stellaire de l'Alliance regorgeait de trésors magiques et d'innombrables pilules. Chaque secte y était un coffre au trésor, et chaque planète de culture une mine d'or.
+On disait que le Système Stellaire de l'Alliance regorgeait de trésors magiques et d'innombrables pilules. Chaque secte y était un coffre au trésor, et chaque planète de cultivation une mine d'or.
 
-On disait qu'au sein du Système Stellaire de l'Alliance, la puissance suprême était l'Alliance de Culture !
+On disait qu'au sein du Système Stellaire de l'Alliance, la puissance suprême était l'Alliance de Cultivation !
 
 On disait que les cultivateurs du Système Stellaire de l'Alliance étaient extrêmement sanguinaires, habitués au combat, semblables à des démons.
 
@@ -28,7 +28,7 @@ Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages mu
 
 Cependant, certaines familles hésitaient encore. Mais sous la pression du Temple Céleste du Tonnerre, l'invasion du Système Stellaire de l'Alliance était déjà une conclusion inéluctable.
 
-Plus important encore, l'action sans précédent du Temple Céleste du Tonnerre avait obtenu le soutien des deux puissantes familles qui existaient depuis l'ère de la culture antique !
+Plus important encore, l'action sans précédent du Temple Céleste du Tonnerre avait obtenu le soutien des deux puissantes familles qui existaient depuis l'ère de la cultivation antique !
 
 Ces deux familles étaient les forces les plus imposantes après celle des temps primordiaux. Leur puissance n'était en rien inférieure à celle du Temple Céleste du Tonnerre !
 
@@ -38,7 +38,7 @@ Sous la pression de ces trois grandes puissances, comment les autres familles de
 
 En conséquence, une tempête de préparatifs s'éleva dans le Système Stellaire Universel. Chaque famille se préparait pour l'instant où le passage s'ouvrirait !
 
-Pour cette bataille, les trois grandes puissances firent une annonce : quiconque accomplirait un exploit se verrait immédiatement attribuer la planète de culture conquise !
+Pour cette bataille, les trois grandes puissances firent une annonce : quiconque accomplirait un exploit se verrait immédiatement attribuer la planète de cultivation conquise !
 
 Cette promesse tenta les familles du Système Stellaire Universel. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
 
@@ -54,11 +54,11 @@ Cette nouvelle faillit provoquer l'effondrement de la tempête. Un seigneur cél
 
 Un seigneur céleste était encore en vie ! L'ensemble du Système Stellaire Universel atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place !
 
-Simultanément, le Temple Céleste du Tonnerre annonça que, selon les deux familles de culture, les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer !
+Simultanément, le Temple Céleste du Tonnerre annonça que, selon les deux familles de cultivation, les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer !
 
 La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire Universel, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
 
-Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Universel et porta la détermination des cultivateurs à son comble !
+Mais alors, la famille de cultivation la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Universel et porta la détermination des cultivateurs à son comble !
 
 L'attribution des titres célestes pouvait presque être comparée aux bénédictions divines du Royaume Céleste !
 
@@ -74,9 +74,9 @@ La tempête s'était levée, la flamme de la guerre était allumée, et tous att
 
 Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Universel, une autre nouvelle choc se répandit dans le système !
 
-La famille Yao, qui se situait juste en dessous des deux familles de culture antiques, venait d'émettre un Ordre Céleste !
+La famille Yao, qui se situait juste en dessous des deux familles de cultivation antiques, venait d'émettre un Ordre Céleste !
 
-Lorsque l'Ordre Céleste apparaît, le massacre est imminent ! La famille Yao était la plus puissante des quatre familles possédant un héritage du Royaume Céleste. Elles pouvaient être comparées aux deux familles de culture antiques et méprisaient même le Temple Céleste du Tonnerre !
+Lorsque l'Ordre Céleste apparaît, le massacre est imminent ! La famille Yao était la plus puissante des quatre familles possédant un héritage du Royaume Céleste. Elles pouvaient être comparées aux deux familles de cultivation antiques et méprisaient même le Temple Céleste du Tonnerre !
 
 Au cours des innombrables années depuis l'effondrement du Royaume Céleste, la famille Yao n'avait émis son Ordre Céleste que trois fois ! Et chaque fois, un bain de sang en résultait, et le massacre ne cessait qu'une fois la cible morte !
 
@@ -122,7 +122,7 @@ S'ils pouvaient charger, ils vivraient. Sinon, ils seraient dévorés par les b�
 
 Grâce à ces batailles sanglantes, le Clan de l'Immortel Choisi s'était rapidement endurci. On percevait une ombre de Wang Lin en chacun d'eux. Après tout, pour ces gens simples, Wang Lin était l'unique modèle.
 
-Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan de l'Immortel Choisi était doué et intelligent. Ils possédaient de bonnes racines de culture et leur capacité d'imitation était presque effrayante.
+Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan de l'Immortel Choisi était doué et intelligent. Ils possédaient de bonnes racines de cultivation et leur capacité d'imitation était presque effrayante.
 
 En seulement quelques mois d'interactions dans la brume, ils avaient assimilé la résolution de Wang Lin, son calme et son intention meurtrière.
 
@@ -138,13 +138,13 @@ Domaine Ouest du Système Universel !
 
 En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête Néfaste. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
 
-« Système Stellaire Universel, je suis de retour ! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture ! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
+« Système Stellaire Universel, je suis de retour ! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de cultivation ! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 
 Wang Lin regarda les membres du Clan de l'Immortel Choisi.
 
 « Voici le Système Stellaire Universel, sous le Domaine Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres ! »
 
-Le Clan de l'Immortel Choisi réfléchit un instant avant de regarder Wang Lin : « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement ? Une fois que nous aurons pris nos marques dans ce Système Stellaire Universel, nous partirons sans faute ! »
+Le Clan de l'Immortel Choisi réfléchit un instant avant de regarder Wang Lin : « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de cultivation qui pourrait nous abriter temporairement ? Une fois que nous aurons pris nos marques dans ce Système Stellaire Universel, nous partirons sans faute ! »
 
 Wang Lin réfléchit brièvement et hocha la tête. La planète Qing Ling était très vaste et pouvait accueillir les membres du clan.
 

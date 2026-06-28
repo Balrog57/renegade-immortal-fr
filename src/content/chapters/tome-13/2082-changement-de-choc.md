@@ -122,7 +122,7 @@ Wang Lin hocha la tête et sourit à Wu Feng.
 
 « Cela faisait longtemps. »
 
-« Cela fait des centaines d'années. Je ne m'attendais pas à ce que le niveau de culture du Seigneur Wang Lin atteigne un tel degré... » En voyant l'attitude de Wang Lin, le cœur de Wu Feng se réchauffa légèrement.
+« Cela fait des centaines d'années. Je ne m'attendais pas à ce que le niveau de cultivation du Seigneur Wang Lin atteigne un tel degré... » En voyant l'attitude de Wang Lin, le cœur de Wu Feng se réchauffa légèrement.
 
 Alors qu'ils discutaient, des centaines de rayons de lumière apparurent dans le ciel derrière Xuan Luo. Ces éclats se déplaçaient à une vitesse fulgurante — c'étaient les individus choisis pour pénétrer dans le Royaume Divin Immémorial.
 

@@ -30,7 +30,7 @@ Le vieil homme n'était plus une divinité ; il était devenu un pêcheur lança
 
 Le vieil homme, haut dans le ciel, était devenu le pêcheur. Wang Lin, au sol, était devenu le poisson, et la terre s'était muée en mer. Le filet géant était une cage de lois destinée à capturer la proie !
 
-Cette scène bouleversa l'esprit de Wang Lin. Elle ressemblait étrangement à sa propre compréhension du Dao de l'époque. D'une certaine manière, elle confirmait le fruit de son chemin de culture passé !
+Cette scène bouleversa l'esprit de Wang Lin. Elle ressemblait étrangement à sa propre compréhension du Dao de l'époque. D'une certaine manière, elle confirmait le fruit de son chemin de cultivation passé !
 
 Au moment où le filet de loi se referma, les yeux de Wang Lin brillèrent et il s'élança dans les airs. Aux yeux de son adversaire, Wang Lin n'était qu'un poisson incapable d'échapper au filet ! Il finirait par être capturé et enfermé dans cette cage de lois !
 

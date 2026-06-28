@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 119 - Soul Awakens
 slug: leveil-de-lame
 ---
-Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent. Si l'Union de Culture ne venait pas stabiliser les lieux, cet endroit se serait déjà effondré.
+Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent. Si l'Union de Cultivation ne venait pas stabiliser les lieux, cet endroit se serait déjà effondré.
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles, un lieu saturé d'énergie et peuplé de créatures étranges.
 

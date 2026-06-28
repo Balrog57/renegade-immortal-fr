@@ -62,7 +62,7 @@ Ce rugissement semblait venir d'un univers lointain, mais il devint monstrueux e
 
 Il vit une scène qu'il ne pourrait jamais oublier de sa vie !
 
-Neuf planètes de culture ardentes, neuf mondes brûlant comme des soleils, traversaient le système stellaire.
+Neuf planètes de cultivation ardentes, neuf mondes brûlant comme des soleils, traversaient le système stellaire.
 
 L'espace lui-même se brisait sous leur vitesse et d'innombrables ondulations se propageaient à cause de leur chaleur extrême.
 
@@ -74,13 +74,13 @@ Dans un fracas de tonnerre, la première planète se mua en une force colossale.
 
 Cependant, avant qu'elle n'ait pu reculer de dix mille pieds, la deuxième planète arriva et la paume fut repoussée à nouveau !
 
-La troisième planète de culture fondit sur la paume. La gigantesque main trembla soudainement puis explosa. De cette explosion surgit une ombre vêtue de noir.
+La troisième planète de cultivation fondit sur la paume. La gigantesque main trembla soudainement puis explosa. De cette explosion surgit une ombre vêtue de noir.
 
 Cette silhouette noire était le Souverain que Wang Lin avait aperçu devant la Tombe de l'Ordre Antique !
 
 Une fois apparu, il ne prononça pas un mot et agita la main. Une lumière éclatante émana de sa main desséchée, comme si celle-ci était devenue la première lumière éternelle de ce monde.
 
-Sa main droite levée pressa la quatrième planète de culture. Un grondement tonitruant retentit et la quatrième planète s'effondra, mais l'ombre noire recula elle aussi de quelques pas, la lumière de sa main s'étouffant.
+Sa main droite levée pressa la quatrième planète de cultivation. Un grondement tonitruant retentit et la quatrième planète s'effondra, mais l'ombre noire recula elle aussi de quelques pas, la lumière de sa main s'étouffant.
 
 Les cinquième, sixième, septième et huitième planètes arrivèrent toutes simultanément. À leur approche de l'ombre noire, elles explosèrent toutes en même temps, créant un impact indescriptible qui se propagea à travers le Système Stellaire Antique.
 
@@ -96,7 +96,7 @@ Il en extirpa le croissant de lune ! On ne savait plus s'il avait pêché l'eau 
 
 Après l'avoir extrait, l'ombre noire agita la main et l'eau du puits fonça vers la neuvième planète.
 
-Les deux entrèrent immédiatement en collision, mais l'eau du puits s'évapora instantanément, se transformant en une vapeur blanche. Cependant, au même moment, la planète de culture fut déchiquetée !
+Les deux entrèrent immédiatement en collision, mais l'eau du puits s'évapora instantanément, se transformant en une vapeur blanche. Cependant, au même moment, la planète de cultivation fut déchiquetée !
 
 On pouvait clairement voir une marque en forme de croissant de lune apparaître sur la planète. Cette marque la transperça, provoquant son effondrement et son enfoncement dans le vide !
 

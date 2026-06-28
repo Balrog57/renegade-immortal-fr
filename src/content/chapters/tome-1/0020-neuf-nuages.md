@@ -6,13 +6,13 @@ bookTitle: The Mediocre Youth
 en: Chapter 20 - Nine Clouds
 slug: neuf-nuages
 ---
-Wang Lin était également très heureux. Bien qu'il eût été chassé de la cour et que de nombreux disciples honoraires se fussent moqués de lui tout au long du mois, il avait énormément appris sur la culture. Il découvrit qu'il existait cinq étapes : la Condensation de Qi, l'Établissement des Fondations, la Formation du Noyau, l'Âme Naissante et la Formation de l'Esprit.
+Wang Lin était également très heureux. Bien qu'il eût été chassé de la cour et que de nombreux disciples honoraires se fussent moqués de lui tout au long du mois, il avait énormément appris sur la cultivation. Il découvrit qu'il existait cinq étapes : la Condensation de Qi, l'Établissement des Fondations, la Formation du Noyau, l'Âme Naissante et la Formation de l'Esprit.
 
 Au sein de la Secte Heng Yue, il n'y avait que deux experts au stade de la Formation du Noyau. Tous deux résidaient sur le sommet de la montagne, là où la concentration d'énergie spirituelle était la plus élevée. Ils restaient toujours en méditation recluse, s'entraînant sans jamais se soucier des affaires de la secte. Seules dix personnes dans toute la secte avaient atteint le stade de l'Établissement des Fondations. Elles occupaient les rangs les plus élevés et jouissaient de privilèges spéciaux, tels que l'usage de n'importe quel trésor magique à leur guise.
 
 Hormis ces quelques individus, tous les autres étaient bloqués au stade de la Condensation de Qi. Même Sun Dazhu n'était qu'au cinquième niveau de la Condensation de Qi.
 
-La culture était non seulement extrêmement ardue, mais elle exigeait également un temps considérable. Si l'on manquait de talent, on ne disposerait pas d'assez d'années de vie pour espérer progresser. L'Établissement des Fondations était encore plus difficile que la Condensation de Qi, car il ne suffisait pas de posséder une énergie spirituelle abondante ; il fallait également faire preuve de chance et de perception pour réussir.
+La cultivation était non seulement extrêmement ardue, mais elle exigeait également un temps considérable. Si l'on manquait de talent, on ne disposerait pas d'assez d'années de vie pour espérer progresser. L'Établissement des Fondations était encore plus difficile que la Condensation de Qi, car il ne suffisait pas de posséder une énergie spirituelle abondante ; il fallait également faire preuve de chance et de perception pour réussir.
 
 Wang Lin connaissait l'importance de l'énergie spirituelle. Il voulait récupérer le plus vite possible la perle de pierre.
 

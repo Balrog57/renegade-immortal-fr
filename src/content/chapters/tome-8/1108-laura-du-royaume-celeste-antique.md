@@ -60,7 +60,7 @@ Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se 
 
 « ... J'ai accidentellement aidé à dissiper la puissante rétribution divine à quatre formes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
 
-Au même moment, dans la région occidentale lointaine de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
+Au même moment, dans la région occidentale lointaine de l'Alliance, un vieil homme était assis sur la prairie d'une planète de cultivation très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
 
 Si Wang Lin avait été là, il aurait immédiatement reconnu ce vieil homme comme celui qui avait stoppé le combat entre Qing Shui et l'ancêtre de la famille Yao à Allheaven !
 
@@ -70,7 +70,7 @@ Il leva sa main droite pour cueillir une pousse, mais sa main trembla soudaineme
 
 Si Master Flamespark avait vu l'expression du vieil homme, il aurait été profondément choqué. Cet homme qu'il respectait tant était toujours resté calme et n'avait jamais montré une telle expression !
 
-Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de culture ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la rétribution divine !
+Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de cultivation ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la rétribution divine !
 
 La distance parcourue était absolument inconcevable ; même la manipulation spatiale ne permettrait pas de franchir une telle distance en un seul mouvement !
 

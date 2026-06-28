@@ -32,7 +32,7 @@ Après la durée d'un bâton d'encens, Gu Dao regarda Wang Lin d'un regard compl
 
 « Le septième pont... » Gu Dao sourit amèrement et observa Wang Lin avec profondeur. Il ressentait clairement l'intention de piétiner les cieux dans ce pas. Cette intention était l'expression ultime de la foi.
 
-Avec son niveau de culture actuel, il était incapable de franchir cette étape.
+Avec son niveau de cultivation actuel, il était incapable de franchir cette étape.
 
 « Peut-être ne pourrai-je vraiment pas te retenir... » Gu Dao prit une profonde inspiration et la complexité de son regard se mua en détermination alors qu'il poursuivait : « Cependant, je ne peux pas abandonner ainsi. J'ai passé ma vie entière à méditer sur le Monde d'un Seul Dao ! »
 
@@ -56,7 +56,7 @@ Après deux cents ans, Wang Lin ressentit à nouveau une crise de vie ou de mort
 
 Tout comme il avait répondu aux trois questions de Li Qianmei dans le monde des grottes, le monde était un cercle, et à l'extérieur de ce cercle se trouvait un autre cercle...
 
-« Très peu de gens sont extraordinaires dès la naissance... Tous les êtres vivants du monde désirent l'extraordinaire. Ils aspirent à la liberté pour ne pas être contrôlés par autrui. La loi de ce mot est un cercle ; la prédation des faibles par les forts dans le monde de la culture est un cercle ; et ce monde entier est une cage circulaire... »
+« Très peu de gens sont extraordinaires dès la naissance... Tous les êtres vivants du monde désirent l'extraordinaire. Ils aspirent à la liberté pour ne pas être contrôlés par autrui. La loi de ce mot est un cercle ; la prédation des faibles par les forts dans le monde de la cultivation est un cercle ; et ce monde entier est une cage circulaire... »
 
 « Le ciel radieux et le ciel étoilé sont également des cercles ! »
 

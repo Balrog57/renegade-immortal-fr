@@ -44,7 +44,7 @@ Wang Lin lui jeta un regard froid sans chercher à s'expliquer. Il agita la main
 
 Cette jeune fille étant proche du Maître Dao Miao Yin, elle connaissait nombre de ses sorts. Elle possédait sa propre méthode pour déterminer si les informations contenues dans le jade étaient authentiques ou non.
 
-Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miao Yin, dont la culture était supprimée, n'avait aucune chance de survivre.
+Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miao Yin, dont la cultivation était supprimée, n'avait aucune chance de survivre.
 
 Le fait de voir la Grande Désolation posséder l'avatar de Miao Yin fit disparaître son dernier espoir ; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, j'écraserai ton âme ! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange ; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
 
@@ -68,7 +68,7 @@ La main droite de Wang Lin s'arrêta à trois pouces du front de la jeune fille 
 
 « Nous offrons notre vie pour ouvrir la marque de clan. Le pouvoir de l'ancêtre émane de la marque et accomplit le sceau... » répondit rapidement la jeune fille, terrifiée.
 
-Dès qu'elle eut fini de parler, la main droite de Wang Lin se posa brusquement sur son front et il commença une recherche d'âme. Son esprit s'effondra sans opposer la moindre résistance tandis que Wang Lin le parcourait. Avec le niveau de culture de Wang Lin, il pouvait facilement fouiller sa mémoire sans blesser son âme. Après avoir assimilé tous ses souvenirs, ses yeux brillèrent et sa main droite balaya le front de la jeune fille pour en extraire sa marque de clan.
+Dès qu'elle eut fini de parler, la main droite de Wang Lin se posa brusquement sur son front et il commença une recherche d'âme. Son esprit s'effondra sans opposer la moindre résistance tandis que Wang Lin le parcourait. Avec le niveau de cultivation de Wang Lin, il pouvait facilement fouiller sa mémoire sans blesser son âme. Après avoir assimilé tous ses souvenirs, ses yeux brillèrent et sa main droite balaya le front de la jeune fille pour en extraire sa marque de clan.
 
 D'un geste de la main, il scella son corps et la rangea dans son espace de stockage. Il resta ensuite pensif, observant la marque du clan qui scintillait dans sa paume.
 
@@ -76,7 +76,7 @@ Le Clan de l'Extermination des Sceaux était une lignée extrêmement étrange. 
 
 Le risque de mort était très élevé et, depuis longtemps, l'autel du clan avait disparu. De nos jours, il ne restait que très peu de membres de ce clan.
 
-Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perdant ladite marque, et même leur niveau de culture n'en subissait pas le déclin. Ils cessaient simplement d'appartenir au Clan de l'Extermination des Sceaux.
+Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perdant ladite marque, et même leur niveau de cultivation n'en subissait pas le déclin. Ils cessaient simplement d'appartenir au Clan de l'Extermination des Sceaux.
 
 Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellement, était son incroyable sortilège des trois vies. Ce pouvoir pouvait être extrait et utilisé sur autrui.
 

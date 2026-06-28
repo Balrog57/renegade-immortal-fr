@@ -32,7 +32,7 @@ Le visage de Zhang Kuang était livide. Ses yeux étaient clos et son corps trem
 
 Le disciple en pourpre qui l'avait rattrapé affichait un regard d'horreur et restait muet.
 
-Le cœur de Huang Long était amer. Le disciple principal de la Secte Xuan Dao était tout simplement trop puissant. D'après ce qui venait de se passer, cet homme était au moins au 10e niveau. Il utilisait sûrement un talisman pour dissimuler son niveau de culture, rendant sa force réelle indéterminable.
+Le cœur de Huang Long était amer. Le disciple principal de la Secte Xuan Dao était tout simplement trop puissant. D'après ce qui venait de se passer, cet homme était au moins au 10e niveau. Il utilisait sûrement un talisman pour dissimuler son niveau de cultivation, rendant sa force réelle indéterminable.
 
 Puis, il observa les disciples internes environnants. Huang Long soupira. Même le disciple principal, qui côtoyait les anciens du stade de Formation du Noyau, n'avait guère de chance de l'emporter, car il n'était lui-même qu'au 10e niveau. S'il perdait ce combat, la Secte Heng Yue serait totalement anéantie !
 
@@ -50,7 +50,7 @@ Zhou Peng le dévisagea et demanda froidement : « Quoi ? Tu veux monter ? »
 
 Les paroles de Zhou Peng captèrent l'attention de tous. Lorsqu'ils réalisèrent qu'elles s'adressaient à Wang Lin, leurs expressions devinrent étranges.
 
-Huang Long soupira. Wang Lin n'était qu'au 3e niveau et passait normalement inaperçu parmi les disciples, mais malgré sa faible culture, son courage était louable.
+Huang Long soupira. Wang Lin n'était qu'au 3e niveau et passait normalement inaperçu parmi les disciples, mais malgré sa faible cultivation, son courage était louable.
 
 Voyant que Wang Lin ne répondait pas, Zhou Peng ricana : « Sur les quatre combats, il n'en reste plus qu'un. La Secte Heng Yue est une si grande institution et pourtant personne n'ose se lever. Je suis profondément déçu ! Aucun de vos disciples internes n'a le courage d'affronter l'adversité ? »
 

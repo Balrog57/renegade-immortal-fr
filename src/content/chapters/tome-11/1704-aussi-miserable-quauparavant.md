@@ -10,23 +10,23 @@ Chapitre 1704 - Aussi misérable qu'auparavant !
 
 Les yeux de Greed étaient emplis de désespoir et son cœur de regrets. Il avait rencontré Wang Lin dans le Royaume Extérieur, et finalement, la puanteur qui imprégnait son corps s'était dissipée. À l'origine, il avait poussé un soupir de soulagement.
 
-Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intérieur et Extérieur. Cette guerre l'avait extrêmement exalté ; peut-être pourrait-il obtenir encore plus de trésors dans ce conflit, et son niveau de culture augmenterait.
+Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intérieur et Extérieur. Cette guerre l'avait extrêmement exalté ; peut-être pourrait-il obtenir encore plus de trésors dans ce conflit, et son niveau de cultivation augmenterait.
 
 Greed suivit l'armée du Royaume Extérieur jusqu'à la Mer des Nuages, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer des Nuages et y pénétra.
 
 Il était transporté par l'excitation en réalisant qu'une puissante aura de trésor se trouvait ici. Cette aura le fit rire comme un fou pendant près de quinze minutes.
 
-Il était convaincu que sa chance était immense et qu'il allait rencontrer une fortune prodigieuse. Son niveau de culture augmenterait et il n'aurait plus à craindre ce Wang Lin. Il comptait bien lui voler tous ses trésors en retour.
+Il était convaincu que sa chance était immense et qu'il allait rencontrer une fortune prodigieuse. Son niveau de cultivation augmenterait et il n'aurait plus à craindre ce Wang Lin. Il comptait bien lui voler tous ses trésors en retour.
 
 Porté par ces ambitions, Greed suivit son instinct à l'intérieur de la grotte et découvrit un véritable autel antique.
 
 L'excitation de Greed atteignit des sommets lorsqu'il aperçut cet autel. Il vit également le monde contenu dans la faille sur laquelle l'un des coins de l'autel était ancré. Devant ce spectacle, il manqua de pousser un hurlement de loup.
 
-Il découvrit d'innombrables herbes célestes. Beaucoup d'entre elles n'étaient que des spécimens qu'il avait vus dans les livres, et d'autres étaient totalement inconnues. Presque toutes pourraient accroître son niveau de culture une fois raffinées.
+Il découvrit d'innombrables herbes célestes. Beaucoup d'entre elles n'étaient que des spécimens qu'il avait vus dans les livres, et d'autres étaient totalement inconnues. Presque toutes pourraient accroître son niveau de cultivation une fois raffinées.
 
 Il y avait tout simplement trop d'herbes célestes, une telle abondance qu'il en eut le souffle coupé.
 
-Outre ces herbes, il aperçut des bêtes célestes extrêmement dociles qui possédaient pourtant des niveaux de culture terrifiants. Ces créatures se poursuivaient et jouaient les unes avec les autres.
+Outre ces herbes, il aperçut des bêtes célestes extrêmement dociles qui possédaient pourtant des niveaux de cultivation terrifiants. Ces créatures se poursuivaient et jouaient les unes avec les autres.
 
 Cela exalta encore davantage Greed. Fort de son expérience, il savait qu'elles ne le dérangeraient pas s'il ne les provoquait pas. Il songea même que, tout comme le dragon de tonnerre de sa jeunesse, elles pourraient devenir ses animaux de compagnie.
 
@@ -52,7 +52,7 @@ Après ce coup, le calvaire de Greed commença.
 
 En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux de Greed. Il regarda les deux fillettes avec une fierté mêlée de désespoir.
 
-Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ruiner sa culture. À ses yeux, ces deux petites filles étaient tout simplement trop terrifiantes.
+Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ruiner sa cultivation. À ses yeux, ces deux petites filles étaient tout simplement trop terrifiantes.
 
 — Je parlerai... Je parlerai ! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Moongazer... » Le ventre de Greed semblait brûler alors qu'il commençait à s'exprimer.
 
@@ -108,7 +108,7 @@ Simultanément, Greed commença à sombrer dans ses rêves au milieu de la vague
 
 « 1 000 ans ; 3 000 ans ; 10 000 ans... Je raconterai des histoires pendant 10 000 ans ! Deux petites ancêtres, sauvez-moi !!! »
 
-Alors que Greed rugissait de douleur, il sentit deux petites mains presser contre son dos. Au même instant, une force de culture assez puissante pour l'étouffer se déversa dans son corps par ces deux petites mains.
+Alors que Greed rugissait de douleur, il sentit deux petites mains presser contre son dos. Au même instant, une force de cultivation assez puissante pour l'étouffer se déversa dans son corps par ces deux petites mains.
 
 Cette puissance fit briller le corps de Greed d'une lumière dorée infinie. Cette clarté se propagea et les mains de Greed bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
 

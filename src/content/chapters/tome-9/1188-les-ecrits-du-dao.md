@@ -80,11 +80,11 @@ Il s'agissait d'un rocher colossal de plus de mille pieds de haut, dans lequel �
 
 À cet instant précis, une voix erratique perça le brouillard épais. Elle était étrange et portait une force capable de transpercer l'âme. Elle semblait provenir de loin comme de très près ; impossible d'en déterminer l'origine.
 
-« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez le chemin de la culture... »
+« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez le chemin de la cultivation... »
 
-« Éveillé, toute vie doit avancer éternellement pour résoudre l'ère moderne. Échappez à la volonté céleste et obtenez la voie de la vie. Attendez le chemin de la culture... »
+« Éveillé, toute vie doit avancer éternellement pour résoudre l'ère moderne. Échappez à la volonté céleste et obtenez la voie de la vie. Attendez le chemin de la cultivation... »
 
-« Éveillé, scellez la volonté des cieux. Gravez les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attendez le chemin de la culture... »
+« Éveillé, scellez la volonté des cieux. Gravez les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attendez le chemin de la cultivation... »
 
 Ce passage sinistre résonnait à travers la brume, emplissant l'espace.
 

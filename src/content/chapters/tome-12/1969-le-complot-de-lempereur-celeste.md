@@ -62,7 +62,7 @@ Toutefois, il prit la peine de mobiliser toutes ses forces pour recueillir des i
 
 La différence entre le clan Ancien et le clan céleste résidait dans l'abîme qu'était un Grand Éther. Si ce n'était pas pour l'être transcendant qu'était le Grand Éther Guo Dao, qui ne s'impliquait normalement pas dans les affaires des trois clans, le clan Ancien aurait déjà été anéanti.
 
-Le Grand Éther Guo Dao vivait sur le sommet du Mont Ancien toute l'année. Sa culture était capable de briser les cieux et il était indéniablement le plus puissant des Grands Éthers !
+Le Grand Éther Guo Dao vivait sur le sommet du Mont Ancien toute l'année. Sa cultivation était capable de briser les cieux et il était indéniablement le plus puissant des Grands Éthers !
 
 Même le Grand Éther Dong Lin du clan céleste n'était pas son égal. Plus précisément, le Grand Éther Guo Dao était la seule personne répertoriée pour avoir tué un autre Grand Éther !
 

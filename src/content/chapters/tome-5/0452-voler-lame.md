@@ -24,7 +24,7 @@ Ce vieillard était celui qui avait poursuivi Wang Lin dans la faille spatiale a
 
 En fin de compte, il s'était appuyé sur son lien avec l'Esprit Ancestral pour être finalement secouru par son clan. Sa haine envers Wang Lin avait atteint des sommets, le poussant à mener un véritable massacre durant cette guerre. Parmi tous les chamans à huit feuilles, c'était lui qui avait tué le plus de cultivateurs.
 
-L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine de mourir, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de culture de Wang Lin était bien plus élevé qu'auparavant.
+L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine de mourir, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de cultivation de Wang Lin était bien plus élevé qu'auparavant.
 
 C'est ce qui avait permis à Wang Lin de passer inaperçu.
 
@@ -52,7 +52,7 @@ Le vieil homme voûté jura intérieurement et recula sans hésiter. S'il n'y av
 
 Même face à trois ou quatre d'entre eux, il aurait pu s'échapper ou combattre jusqu'à l'impasse.
 
-Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture actuel. Ce Qilin violet était particulièrement terrifiant ; le simple fait de le regarder faisait trembler son cœur.
+Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de cultivation actuel. Ce Qilin violet était particulièrement terrifiant ; le simple fait de le regarder faisait trembler son cœur.
 
 S'ajoutant à cela, d'innombrables fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
@@ -98,13 +98,13 @@ Non seulement ici, mais tout le Tombeau de Suzaku était en train de vaciller.
 
 Alors que les secousses s'intensifiaient, des bruits de déchirure retentirent dans le ciel, comme si d'immenses mains déchiraient la voûte céleste.
 
-D'innombrables failles spatiales apparurent dans le ciel. Le vent glacial qui s'en échappait pouvait geler n'importe quel être. Ces failles n'étaient pas comme celles de l'extérieur, où l'on peut entrer en toute sécurité si l'on possède un certain niveau de culture.
+D'innombrables failles spatiales apparurent dans le ciel. Le vent glacial qui s'en échappait pouvait geler n'importe quel être. Ces failles n'étaient pas comme celles de l'extérieur, où l'on peut entrer en toute sécurité si l'on possède un certain niveau de cultivation.
 
-Ici, c'était différent. Ces failles spatiales n'étaient pas réelles ; elles n'en avaient que l'apparence. Dans le Tombeau de Suzaku, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Culture.
+Ici, c'était différent. Ces failles spatiales n'étaient pas réelles ; elles n'en avaient que l'apparence. Dans le Tombeau de Suzaku, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Cultivation.
 
 Même un cultivateur au stade de la Transformation de l'Âme qui y pénétrait verrait son âme instantanément anéantie.
 
-Alors que le Cœur de la Planète de Culture continuait de se briser, l'effondrement du Cristal de la Planète de Culture commença enfin.
+Alors que le Cœur de la Planète de Cultivation continuait de se briser, l'effondrement du Cristal de la Planète de Cultivation commença enfin.
 
 La terre du Tombeau de Suzaku se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même des formes de vie normalement immortelles furent fauchées.
 

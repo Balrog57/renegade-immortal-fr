@@ -12,7 +12,7 @@ Le rugissement tonitruant se propagea dans toutes les directions !
 
 C'était la première confrontation entre Maître Lu Fu et Wang Lin ! Bien qu'aucun des deux n'ait attaqué directement, l'un cherchait à progresser tandis que l'autre tentait de bloquer sa route. Une bataille s'engagea au-dessus de la formation !
 
-Ce simple rire contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas. Ce rire fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées !
+Ce simple rire contenait toute la puissance de cultivation de Maître Lu Fu, un cultivateur du troisième pas. Ce rire fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées !
 
 C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée : si Wang Lin avait été un cultivateur du cinquième niveau de la Peste Céleste, son corps aurait été déchiré par ce rire et son âme originelle aurait été anéantie !
 
@@ -56,11 +56,11 @@ Le visage de Maître Flamespark était pâle et la peur emplissait son regard. I
 
 Bien qu'il ait accepté la réalité, il refusait inconsciemment d'y croire !
 
-Li Yunzi était le plus faible d'entre eux et avait été gravement blessé. Bien qu'il se fût rétabli, sa culture n'avait guère progressé. À cet instant, bien que Maître Lu Fu eût bloqué la majeure partie de l'impact, le simple résidu sonore lui causait une surdité brutale. Il cracha du sang et recula de plusieurs centaines de pieds avant de s'immobiliser enfin.
+Li Yunzi était le plus faible d'entre eux et avait été gravement blessé. Bien qu'il se fût rétabli, sa cultivation n'avait guère progressé. À cet instant, bien que Maître Lu Fu eût bloqué la majeure partie de l'impact, le simple résidu sonore lui causait une surdité brutale. Il cracha du sang et recula de plusieurs centaines de pieds avant de s'immobiliser enfin.
 
 La terreur se lut dans ses yeux et, tout comme Maître Flamespark, il contempla Wang Lin. Le Wang Lin actuel était un étranger absolu ; le fossé avec le garçon de ses souvenirs était trop immense !
 
-« Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille ? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse me sauver ! Il... il est devenu si puissant !! »
+« Atteindre un tel niveau de cultivation en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille ? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse me sauver ! Il... il est devenu si puissant !! »
 
 Blood God ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison ! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
 
@@ -72,7 +72,7 @@ La force de Wang Lin lui inspirait une crainte telle qu'il se sentait impuissant
 
 Alors que le rugissement s'estompait, Wang Lin fit un pas en avant. À chaque foulée, le tonnerre résonnait de nouveau, créant une pression écrasante sur le vortex !
 
-Maître Lu Fu prit une profonde inspiration, mais il ne se leva pas. Il fixa Wang Lin et déclara lentement : « Depuis notre rencontre sur la planète Suzaku, le niveau de culture de ce compagnon cultivateur a considérablement augmenté. Ce vieil homme ne peut qu'être impressionné ! »
+Maître Lu Fu prit une profonde inspiration, mais il ne se leva pas. Il fixa Wang Lin et déclara lentement : « Depuis notre rencontre sur la planète Suzaku, le niveau de cultivation de ce compagnon cultivateur a considérablement augmenté. Ce vieil homme ne peut qu'être impressionné ! »
 
 Sa voix émana du vortex.
 

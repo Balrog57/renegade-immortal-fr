@@ -116,7 +116,7 @@ Alors que Qing Shui s'apprêtait à partir avec sa prise, une aura maléfique ja
 
 Cette aura dense et malveillante contenait également l'essence du Serpent Moongazer.
 
-Le bras fut d'une rapidité telle qu'il semblait posséder le pouvoir de briser tous les sorts. En frappant le corps de Qing Shui, il le fit chanceler. Malgré sa culture, ce dernier ne put résister et fut projeté en arrière, crachant une large traînée de sang.
+Le bras fut d'une rapidité telle qu'il semblait posséder le pouvoir de briser tous les sorts. En frappant le corps de Qing Shui, il le fit chanceler. Malgré sa cultivation, ce dernier ne put résister et fut projeté en arrière, crachant une large traînée de sang.
 
 Simultanément, le bras agrippa l'âme originelle du vénérable Xuan Bao et la retira violemment. Il s'apprêtait à la ramener dans la fissure.
 

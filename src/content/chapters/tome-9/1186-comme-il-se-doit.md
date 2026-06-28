@@ -42,7 +42,7 @@ Le visage de Wang Lin était livide et son corps tremblait légèrement. Il semb
 
 « La formation subit un changement... » Maître Ashen Pine fronça les sourcils en observant le corps de Wang Lin. Après l'avoir scruté attentivement, il commença à réfléchir à son propre sixième pas et resta silencieux.
 
-Le vieil homme nommé Pang ricana, pensant qu'il avait trop surévalué cet homme. Ce dernier n'avait que la culture, mais aucune ruse. S'il se blessait ici, il ne pourrait plus continuer.
+Le vieil homme nommé Pang ricana, pensant qu'il avait trop surévalué cet homme. Ce dernier n'avait que la cultivation, mais aucune ruse. S'il se blessait ici, il ne pourrait plus continuer.
 
 Wang Lin resta immobile au sixième pas durant un long moment avant de faire le septième. À ce septième pas, il cracha du sang, mais ne recula pas. Il fit ensuite le huitième pas.
 

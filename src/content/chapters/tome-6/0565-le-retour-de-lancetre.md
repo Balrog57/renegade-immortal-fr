@@ -46,13 +46,13 @@ C'est pourquoi il garda le silence, se contentant de regarder calmement l'advers
 
 Le général démon poussa un soupir. Il n'avait toujours pas le courage de risquer ses 90 % de doute contre ces 10 % de vérité. Si cela s'avérait réel, il pourrait mourir !
 
-« Il est possible que, même avec sa culture, s'il utilisait la véritable puissance de ce sort, il subirait un terrible contrecoup, peut-être au point où son corps ne pourrait le supporter et s'effondrerait ; alors, il n'aurait utilisé qu'une illusion... » C'était la seule explication que le général démon était prêt à accepter.
+« Il est possible que, même avec sa cultivation, s'il utilisait la véritable puissance de ce sort, il subirait un terrible contrecoup, peut-être au point où son corps ne pourrait le supporter et s'effondrerait ; alors, il n'aurait utilisé qu'une illusion... » C'était la seule explication que le général démon était prêt à accepter.
 
 Sa suspicion persistait, mais il la réprima de force.
 
 Wang Lin demanda calmement : « Où est Treize ? »
 
-« Je raffine un trésor magique qui nécessite dix-huit individus dotés d'une constitution robuste. Je suis entré en culture fermée pour ce faire. Ton subordonné, Treize, est plus loin dans la liste, il n'a donc pas encore été raffiné ! »
+« Je raffine un trésor magique qui nécessite dix-huit individus dotés d'une constitution robuste. Je suis entré en cultivation fermée pour ce faire. Ton subordonné, Treize, est plus loin dans la liste, il n'a donc pas encore été raffiné ! »
 
 Puis le général démon ajouta lentement : « Je peux te le rendre car tu es mon commandant, mais tu as tué des dizaines de milliers de soldats démons et détruit cinq kilomètres de la ville. Cette affaire, je ne peux pas l'ignorer si facilement ! »
 
@@ -62,7 +62,7 @@ Le général démon répondit posément : « Dans trois mois, je dois retourner 
 
 À cet instant, il considérait Wang Lin comme son égal. Sans compter cette paume illusoire, le simple fait que Wang Lin ait pu briser son coup de poing des dix effondrements et résister à la Mer Démoniaque des Cent Vagues fit bondir sa considération pour lui !
 
-« Cet homme possède le même niveau de culture que moi. S'il n'était pas vrai que ses sorts ne font pas le poids face aux miens, ce serait un combat acharné ! » En pensant aux sorts, il se remémora soudainement cette paume, et l'idée que les techniques de Wang Lin étaient inférieures aux siennes disparut instantanément.
+« Cet homme possède le même niveau de cultivation que moi. S'il n'était pas vrai que ses sorts ne font pas le poids face aux miens, ce serait un combat acharné ! » En pensant aux sorts, il se remémora soudainement cette paume, et l'idée que les techniques de Wang Lin étaient inférieures aux siennes disparut instantanément.
 
 « Comparé à cette paume, mes sorts ne sont rien... Je crains que seul l'Empereur Démon puisse égaler une telle technique... » soupira le général démon.
 
@@ -80,7 +80,7 @@ Toutefois, cela n'était dû qu'à la force perçue de Wang Lin. C'est la puissa
 
 Bien qu'il soupçût cette paume, cela restait une intuition ; tant qu'il ne pourrait jamais la confirmer, il n'en prendrait pas le risque. Plus un être est intelligent, plus il agit de la sorte.
 
-Malgré son tempérament ouvert, le général démon, ayant atteint ce niveau de culture, n'était pas sot. En réalité, il ne perdrait pas face à Wang Lin en matière d'astuce.
+Malgré son tempérament ouvert, le général démon, ayant atteint ce niveau de cultivation, n'était pas sot. En réalité, il ne perdrait pas face à Wang Lin en matière d'astuce.
 
 « Je reviendrai dans trois mois ! » Le Sens Divin de Wang Lin balaya Treize. Il constata que le garçon n'avait aucune blessure et qu'il était simplement dans le coma. Il saisit Treize, fit un pas dans les airs et disparut par-delà l'horizon.
 
@@ -92,7 +92,7 @@ L'un d'eux dit : « Général Démon, je suis convaincu que son coup de paume é
 
 « Même si je sais qu'il y a 90 % de chances que cette paume soit une supercherie, je ne peux me résoudre à prendre ce risque ! Même s'il ne sait utiliser que des illusions, le fait qu'il m'ait fait hésiter ainsi prouve qu'il est bel et bien redoutable. Faire passer le réel pour du faux et le faux pour du réel... cet homme ne doit pas être sous-estimé ! »
 
-« De plus, il y a un an, face à mon coup de poing des dix effondrements, il avait dû utiliser une technique secrète pour résister jusqu'à sept impacts. Un an plus tard, sa culture a progressé de manière exponentielle. Lui et le commandant Yao ont disparu à peu près au même moment, pourtant lui seul est revenu ; il y a là un mystère ! Mais cela ne me concerne pas ! »
+« De plus, il y a un an, face à mon coup de poing des dix effondrements, il avait dû utiliser une technique secrète pour résister jusqu'à sept impacts. Un an plus tard, sa cultivation a progressé de manière exponentielle. Lui et le commandant Yao ont disparu à peu près au même moment, pourtant lui seul est revenu ; il y a là un mystère ! Mais cela ne me concerne pas ! »
 
 Les paroles du général démon s'adressaient aux cinq subordonnés, mais il murmurait surtout pour lui-même.
 
@@ -104,17 +104,17 @@ Cette Prison Sombre était souterraine. Bien que des restrictions protégeaient 
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 
-Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était décuplée. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu de la Raffinement de l'Âme.
+Wang Lin se déplaçait à une vitesse fulgurante. Sa cultivation ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était décuplée. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu de la Raffinement de l'Âme.
 
 Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu de la Raffinement de l'Âme se dessinait au loin !
 
-Bien que la tribu n'ait pas étendu son territoire cette année, tous ses membres s'étaient consacrés avec acharnement à leur culture. Cette zone de dix kilomètres était entièrement sous le contrôle de la tribu.
+Bien que la tribu n'ait pas étendu son territoire cette année, tous ses membres s'étaient consacrés avec acharnement à leur cultivation. Cette zone de dix kilomètres était entièrement sous le contrôle de la tribu.
 
 Un épais brouillard noir recouvrait le ciel au-dessus de ce périmètre. Par intermittence, des fragments d'âmes dérivaient dans cette brume noire, tandis que des gémissements fantomatiques s'en échappaient lentement.
 
 Les membres de la tribu s'étaient habitués à ces lamentations spectrales émanant du brouillard. Plus les gémissements étaient stridents, plus le nombre de fragments d'âmes présents était élevé !
 
-La majorité des habitants de la tribu étaient en pleine culture à cet instant. Ils avaient tous extrait leur âme, laissant les fragments s'échapper des fanions d'âme pour rejoindre le brouillard noir. Simultanément, des fragments revenaient du brouillard pour réintégrer les fanions.
+La majorité des habitants de la tribu étaient en pleine cultivation à cet instant. Ils avaient tous extrait leur âme, laissant les fragments s'échapper des fanions d'âme pour rejoindre le brouillard noir. Simultanément, des fragments revenaient du brouillard pour réintégrer les fanions.
 
 Dès son apparition, Wang Lin fit un pas et fonça vers la tribu comme un éclair. Il esquissa un sourire, ayant déjà remarqué plus de dix individus, répartis en dix points différents, observant attentivement les environs.
 

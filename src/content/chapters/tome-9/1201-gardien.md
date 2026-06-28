@@ -32,7 +32,7 @@ Ces intentions du Dao étaient infinies ; en affluant, elles soulevèrent toute 
 
 Alors que Wang Lin agitait sa main droite, les intentions du Dao formèrent un vortex gigantesque. Cela força le vieil homme à reprendre une expression sérieuse et à interrompre sa main géante.
 
-« Je contemple le Dao et mon esprit s'est égaré par mégarde. Je n'avais nullement l'intention de perturber la culture de ce Compagnon Cultivateur ! » Le corps de Wang Lin était entouré d'intentions du Dao infinies, tandis que des intentions encore plus chaotiques s'accumulaient pour protéger son image mentale.
+« Je contemple le Dao et mon esprit s'est égaré par mégarde. Je n'avais nullement l'intention de perturber la cultivation de ce Compagnon Cultivateur ! » Le corps de Wang Lin était entouré d'intentions du Dao infinies, tandis que des intentions encore plus chaotiques s'accumulaient pour protéger son image mentale.
 
 Les pupilles du vieil homme se rétractèrent alors qu'il fixait la silhouette illusoire de Wang Lin. Il n'avait jamais vu un sort mental capable de condenser une telle quantité d'intentions du Dao chaotique.
 
@@ -64,9 +64,9 @@ Les ondulations de la restriction résonnèrent alors que Wang Lin apparut hors 
 
 Maître Ashen Pine s'enfuit à toute allure, le visage livide. Son cœur était bouillonnant de rage. Il pensait que ses blessures étaient guéries et qu'il pourrait facilement tuer ce dénommé Lu ; au pire, il devrait simplement fournir un effort pour briser la restriction. Cependant, lorsqu'il se retrouva à moins de 10 000 pieds de Wang Lin, son cœur du Dao fut saisi et son esprit faillit s'effondrer.
 
-En particulier, lorsqu'il se trouva au milieu des immanentes intentions du Dao chaotique, il se sentit comme un barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de culture était sur le point d'augmenter !
+En particulier, lorsqu'il se trouva au milieu des immanentes intentions du Dao chaotique, il se sentit comme un barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de cultivation était sur le point d'augmenter !
 
-À cette pensée, un frisson parcourut l'échine de Maître Ashen Pine. Avant que la culture de Wang Lin ne progresse, il avait tout utilisé pour n'aboutir qu'à un affrontement où les deux parties furent gravement blessées. Maintenant que Wang Lin s'apprêtait à faire une percée, il mourrait sans aucun doute s'ils venaient à combattre !
+À cette pensée, un frisson parcourut l'échine de Maître Ashen Pine. Avant que la cultivation de Wang Lin ne progresse, il avait tout utilisé pour n'aboutir qu'à un affrontement où les deux parties furent gravement blessées. Maintenant que Wang Lin s'apprêtait à faire une percée, il mourrait sans aucun doute s'ils venaient à combattre !
 
 Maître Ashen Pine ressentit une amertume profonde et rugit vers le ciel. Il s'était préparé durant de nombreuses années, mais il devait admettre qu'il avait échoué sans possibilité de répit. S'il continuait ainsi, il risquait d'y laisser la vie.
 

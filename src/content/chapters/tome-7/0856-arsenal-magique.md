@@ -86,7 +86,7 @@ L'ampleur de ce combat affectait tout le Domaine du Sud. L'effondrement des éto
 
 Si cela perdurait, une catastrophe inévitable se produirait !
 
-Yao Yun ne cessait de reculer. Son corps irradiait un éclat démoniaque pour résister à la pression qui poussait Blood God, mais sa culture était insuffisante et il subissait des blessures continues. Il perdait tout courage, et même le démon logé en lui était sur le point de s'effondrer !
+Yao Yun ne cessait de reculer. Son corps irradiait un éclat démoniaque pour résister à la pression qui poussait Blood God, mais sa cultivation était insuffisante et il subissait des blessures continues. Il perdait tout courage, et même le démon logé en lui était sur le point de s'effondrer !
 
 Des bruits de tonnerre résonnaient tandis que le sort de Blood God continuait de se désintégrer. Aucune des plumes transformées en armes ne pouvait résister et elles volèrent toutes en éclats !
 

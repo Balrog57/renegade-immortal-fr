@@ -14,7 +14,7 @@ Il savait seulement qu'après l'entrée de Wang Lin dans les Ponts de l'Écrasem
 
 Les ondulations autour de la montagne persistèrent durant des mois, et lorsqu'elles finirent par se dissiper, Wang Lin en sortit calmement.
 
-Son apparence n'avait guère changé depuis quelques mois, mais si l'on regardait de plus près, on aurait pu croire que Wang Lin était un simple mortel. Il ne semblait y avoir aucun signe d'une culture circulant au sein de son corps.
+Son apparence n'avait guère changé depuis quelques mois, mais si l'on regardait de plus près, on aurait pu croire que Wang Lin était un simple mortel. Il ne semblait y avoir aucun signe d'une cultivation circulant au sein de son corps.
 
 Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la vaste mer. Il jeta un dernier regard vers le Clan Ancien, puis, un instant plus tard, il fit volte-face. Il se changea en un rayon de lumière et fonça vers le clan céleste, situé de l'autre côté du vaste bassin !
 
@@ -56,7 +56,7 @@ Cette scène revêtait une importance capitale pour le Continent Astral Immortel
 
 Ils étaient les seuls sur le Continent Astral à avoir atteint le stade de l'Écrasement Céleste, et c'était la première fois que leurs regards se croisaient.
 
-Quant à leur rencontre passée sur le Mont Gu Dao, elle ne pouvait être comparée à celle-ci en raison de la différence de niveau de culture.
+Quant à leur rencontre passée sur le Mont Gu Dao, elle ne pouvait être comparée à celle-ci en raison de la différence de niveau de cultivation.
 
 La silhouette dans la brume réfléchit silencieusement un instant avant de demander : « Tu savais que je viendrais ? »
 
@@ -82,7 +82,7 @@ Wang Lin fronça les sourcils en observant la silhouette émergeant de la brume.
 
 « Sur le Mont Gu Dao, j'ai emprunté ta pression pour fusionner mes pouvoirs célestes et anciens... C'est le premier point ! »
 
-« Dans la cité impériale de l'Ancien Dao, j'ai tué Ye Dao. Avec mon niveau de culture de l'époque, si tu avais agi, je n'aurais eu aucune certitude de l'emporter. Pourtant, tu es resté silencieux. C'est le deuxième point ! »
+« Dans la cité impériale de l'Ancien Dao, j'ai tué Ye Dao. Avec mon niveau de cultivation de l'époque, si tu avais agi, je n'aurais eu aucune certitude de l'emporter. Pourtant, tu es resté silencieux. C'est le deuxième point ! »
 
 « Dans l'Antiquité, Ji Du est devenu empereur et tu ne l'as pas arrêté. C'est le troisième ! »
 
@@ -96,7 +96,7 @@ La silhouette dans le brouillard resta silencieuse un long moment avant que sa v
 
 Wang Lin ne souhaitait pas non plus combattre Gu Dao, car leur relation était complexe. Il n'avait aucune raison de se battre, à moins que Gu Dao ne soit déterminé à le contraindre sans aucune possibilité de négociation.
 
-Wang Lin demanda soudain : « J'ai une question. Avec ton niveau de culture, tu pourrais facilement balayer l'intégralité du Continent Astral Immortel. Pourquoi permets-tu encore l'existence du clan céleste ? »
+Wang Lin demanda soudain : « J'ai une question. Avec ton niveau de cultivation, tu pourrais facilement balayer l'intégralité du Continent Astral Immortel. Pourquoi permets-tu encore l'existence du clan céleste ? »
 
 Dans le brouillard, Gu Dao réfléchit longuement. C'était une question que beaucoup se posaient au sein du Clan Ancien, tout comme les membres du clan céleste.
 
@@ -114,7 +114,7 @@ Ce serait un combat pour la suprématie absolue du Continent Astral Immortel dep
 
 Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts de l'Écrasement Céleste il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empereurs !
 
-Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa culture n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas de l'Écrasement Céleste. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées !
+Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa cultivation n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas de l'Écrasement Céleste. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées !
 
 Il possédait également cet avatar dans le vide. Cela faisait des centaines d'années qu'il l'avait obtenu, et il avait commencé à croître. Une fois fusionné avec lui, Wang Lin pourrait déchaîner une puissance terrifiante.
 

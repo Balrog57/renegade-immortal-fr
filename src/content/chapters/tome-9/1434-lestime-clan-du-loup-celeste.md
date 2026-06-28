@@ -42,7 +42,7 @@ Un éclat de lumière cristalline apparut devant lui, se matérialisant en l'Anc
 
 « Dans mon état actuel, je ne peux pas retourner vers la faille de la Mer des Nuages. La traque du Conseil Souverain a repris. Soit... J'ai passé ma vie dans le danger, une simple prime du Conseil Souverain ne m'effraie pas. Je veux voir combien de puissants cultivateurs seront attirés par l'appât ! »
 
-« Tandis qu'on me chasse, j'utiliserai le sort d'engloutissement pour restaurer ma culture ! » ricana Wang Lin.
+« Tandis qu'on me chasse, j'utiliserai le sort d'engloutissement pour restaurer ma cultivation ! » ricana Wang Lin.
 
 Une fois l'Ancienne Feuille disparue de la faille au-dessus de la planète abandonnée, une silhouette en émergea.
 
@@ -76,9 +76,9 @@ Des rugissements furieux et des grondements de tonnerre s'échappèrent du trou 
 
 Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
-« Malédiction ! Quel genre de trésor est-ce là ? Le Maître Simo a combattu cet homme, pourquoi n'a-t-il rien dit ? Et ce Grand Maître Yun Luo s'est immédiatement retiré en culture isolée après son retour ! »
+« Malédiction ! Quel genre de trésor est-ce là ? Le Maître Simo a combattu cet homme, pourquoi n'a-t-il rien dit ? Et ce Grand Maître Yun Luo s'est immédiatement retiré en cultivation isolée après son retour ! »
 
-« Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de culture... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres ! »
+« Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de cultivation... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres ! »
 
 L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Dao Maître Miao Yin, l'un des cinq maîtres du Système d'Étoiles Anciennes, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
 
@@ -96,7 +96,7 @@ L'homme médita un instant en silence. Sans mot dire, il fit un pas en avant.
 
 L'homme massif laissa échapper un grognement et déchira l'espace devant lui pour disparaître.
 
-Wang Lin émergea de l'espace distordu au sein du Système d'Étoiles Anciennes. Devant lui se trouvaient six planètes de culture disposées en cercle, protégées par une formation. C'était un domaine appartenant à un clan du système.
+Wang Lin émergea de l'espace distordu au sein du Système d'Étoiles Anciennes. Devant lui se trouvaient six planètes de cultivation disposées en cercle, protégées par une formation. C'était un domaine appartenant à un clan du système.
 
 D'un coup d'œil, on pouvait voir la projection illusoire d'une tête de loup scintiller sur la formation, signalant l'appartenance de ces lieux.
 
@@ -106,7 +106,7 @@ Il poussa un grognement et chargea les six planètes. Soudain, son corps expulsa
 
 Le brouillard sanguin s'étendit instantanément sur plus de 100 000 pieds, rugissant alors qu'il envahissait la branche du clan du Loup Céleste !
 
-La formation scintilla violemment, mais fut incapable d'endiguer l'invasion. La brume de Wang Lin s'engouffra dans l'une des planètes de culture.
+La formation scintilla violemment, mais fut incapable d'endiguer l'invasion. La brume de Wang Lin s'engouffra dans l'une des planètes de cultivation.
 
 Des cris déchirants éclatèrent et se propagèrent avec une fureur folle. Puis, en un instant, le silence tomba, lourd et mortel.
 

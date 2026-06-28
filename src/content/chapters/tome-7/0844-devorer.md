@@ -16,11 +16,11 @@ Profitant de cet émoi, la compétition officielle pour les titres célestes com
 
 « Le Royaume Céleste s'est effondré et les êtres célestes ont disparu, mais des êtres célestes renaîtront. Les titres que le Temple Céleste du Tonnerre attribuera feront de ces individus des êtres célestes ! Les familles de ces 108 personnes seront considérées comme des clans célestes ! Il s'agit d'un titre permanent ! »
 
-« Chaque être céleste lors de la guerre contre le Système Stellaire de l'Alliance sera un leader, et leurs familles recevront leurs propres planètes de culture ! »
+« Chaque être céleste lors de la guerre contre le Système Stellaire de l'Alliance sera un leader, et leurs familles recevront leurs propres planètes de cultivation ! »
 
 La nouvelle concernant l'attribution de titres célestes par le Temple Céleste du Tonnerre circulait depuis longtemps, mais elle ne commençait à se concrétiser qu'à présent. Cela plongea tous les cultivateurs du système stellaire d'Allheaven dans une véritable frénésie.
 
-Tous les membres principaux de nombreuses familles de culture se mirent en route !
+Tous les membres principaux de nombreuses familles de cultivation se mirent en route !
 
 Le nombre de prétendants aux titres célestes étant trop élevé, le Temple Céleste du Tonnerre annonça des tours préliminaires dans chacun des quatre domaines. Un messager du Temple Céleste du Tonnerre serait envoyé pour sélectionner 108 candidats dans chaque domaine afin qu'ils s'affrontent lors de la bataille finale pour les titres !
 
@@ -34,13 +34,13 @@ Une fois que le Temple Céleste du Tonnerre aura choisi les 108 êtres célestes
 
 Le système stellaire d'Allheaven tout entier entra en émoi. Tous les cultivateurs n'attendaient qu'une chose : le jour où ils pourraient se frayer un chemin par le carnage jusqu'au Système Stellaire de l'Alliance ! Une intention meurtrière dense imprégna le système stellaire d'Allheaven !
 
-Wang Lin ignorait tout de cela. Il était déjà en culture fermée depuis dix jours ! Durant cette période, il avait constamment absorbé l'énergie originelle contenue en Yao Bingyun.
+Wang Lin ignorait tout de cela. Il était déjà en cultivation fermée depuis dix jours ! Durant cette période, il avait constamment absorbé l'énergie originelle contenue en Yao Bingyun.
 
 Il continuait à raffiner et à absorber la vaste quantité d'énergie originelle de Yao Bingyun. Lentement mais sûrement, cette énergie devenait la sienne !
 
-Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de culture. Yao Bingyun possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
+Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de cultivation. Yao Bingyun possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
 
-Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la culture de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scryer du Nirvana !
+Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la cultivation de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scryer du Nirvana !
 
 Cependant, ce passage était semblable à un goulet d'étranglement. Ce n'était pas par manque d'énergie originelle, mais par manque de compréhension des cieux et par l'absence d'un changement dans son domaine !
 
@@ -54,7 +54,7 @@ Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le d
 
 « La compréhension d'un domaine ne peut être forcée. Sans l'opportunité adéquate, il est incroyablement difficile de parvenir à l'illumination ! » Wang Lin soupira et renonça à ses réflexions sur le karma. Bien que cela paraisse simple, atteindre une véritable compréhension était extrêmement ardu.
 
-« Je comprends enfin pourquoi le niveau de culture devient si difficile à augmenter après un certain point. L'énergie originelle y joue un rôle, mais ce qui importe davantage, c'est la compréhension de l'individu... » Wang Lin esquissa un sourire amer.
+« Je comprends enfin pourquoi le niveau de cultivation devient si difficile à augmenter après un certain point. L'énergie originelle y joue un rôle, mais ce qui importe davantage, c'est la compréhension de l'individu... » Wang Lin esquissa un sourire amer.
 
 « Comment puis-je accroître mon domaine du karma ? Cette compréhension est véritablement complexe ! Peu importe l'étendue de mes réflexions, tout reste illusoire et irréel... Comment faire pour que ma compréhension du karma devienne réelle... » Wang Lin soupira. Il s'interdisait d'y penser, mais il ne pouvait s'empêcher de méditer sur le sujet.
 
@@ -62,7 +62,7 @@ Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le d
 
 « Dans cet état, je pouvais vaguement percer tous les dao du monde. Je m'étais divisé en d'innombrables clones pour ensuite ne faire qu'un... C'était très similaire à ce que l'Omniscient m'enseignait lors de la pratique de ce sort ! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 
-« Le dao de l'Omniscient est le dao des cieux. Dans son sens divin, il existait d'innombrables Omniscients. Chaque Omniscient n'était doué que pour un seul sort céleste... Avec ma culture de l'époque, je ne pouvais percevoir que cela, mais avec le recul, non seulement chaque Omniscient possédait son propre sort céleste, mais chacun possédait aussi son propre... dao différent !!! »
+« Le dao de l'Omniscient est le dao des cieux. Dans son sens divin, il existait d'innombrables Omniscients. Chaque Omniscient n'était doué que pour un seul sort céleste... Avec ma cultivation de l'époque, je ne pouvais percevoir que cela, mais avec le recul, non seulement chaque Omniscient possédait son propre sort céleste, mais chacun possédait aussi son propre... dao différent !!! »
 
 L'expression de Wang Lin changea, frappé par sa propre intuition. Il prit une profonde inspiration en remémorant ses souvenirs de ce qui s'était passé à l'intérieur de l'Omniscient. Plus il y réfléchissait, plus il se sentait certain de son idée.
 

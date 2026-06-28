@@ -10,7 +10,7 @@ Il décida d'attendre. Il lui restait encore près de soixante ans à vivre. Il 
 
 Quatre-vingts ans étaient suffisants pour une vie entière. Wang Lin passa ces quatre-vingts années dans le Temple du Scorpion Vert.
 
-Durant cette période, il ne put absorber aucune énergie ni pratiquer la culture. Il ne pouvait qu'attendre sous la protection de la Perle Défiant le Ciel. À force d'attendre en silence, il semblait se transformer en vieillard. Beaucoup de choses et de souvenirs commençaient à s'estomper.
+Durant cette période, il ne put absorber aucune énergie ni pratiquer la cultivation. Il ne pouvait qu'attendre sous la protection de la Perle Défiant le Ciel. À force d'attendre en silence, il semblait se transformer en vieillard. Beaucoup de choses et de souvenirs commençaient à s'estomper.
 
 C'était comme si une couche de brouillard l'empêchait de voir clair, ou plus précisément, comme si ses souvenirs étaient scellés.
 
@@ -26,7 +26,7 @@ Quelqu'un pourrait peut-être subvertir le monde entier simplement pour retrouve
 
 Le temps passa. Cette fois, ce ne furent pas quarante ans, mais trente... Après que Wang Lin eut enduré avec détermination cent dix ans, le vieil homme à la robe verte prit une décision !
 
-Il ne pouvait plus attendre. Il lui restait moins de trente ans d'espérance de vie et il n'était plus nécessaire de continuer à tester Wang Lin. Il ne croyait pas qu'un être puisse patienter ainsi pendant cent dix ans. Ce n'était plus de la culture, mais une marche vers la mort !
+Il ne pouvait plus attendre. Il lui restait moins de trente ans d'espérance de vie et il n'était plus nécessaire de continuer à tester Wang Lin. Il ne croyait pas qu'un être puisse patienter ainsi pendant cent dix ans. Ce n'était plus de la cultivation, mais une marche vers la mort !
 
 Il constata que le corps de Wang Lin était devenu totalement inutile. À moins d'avoir pris des dispositions préalables, il aurait été détruit par ces scorpions.
 
@@ -52,7 +52,7 @@ Le vieil homme murmura, ses paroles empreintes d'une profonde lassitude.
 
 Mais !
 
-Dans sa main droite, dissimulé sous sa robe, se trouvait un jade. Ce jade était vert et ne nécessitait aucune culture pour être utilisé. Seule chaque génération de Ji Si pouvait s'en servir. Son rôle principal, outre la capacité de destruction, était de détecter les fluctuations mentales à proximité.
+Dans sa main droite, dissimulé sous sa robe, se trouvait un jade. Ce jade était vert et ne nécessitait aucune cultivation pour être utilisé. Seule chaque génération de Ji Si pouvait s'en servir. Son rôle principal, outre la capacité de destruction, était de détecter les fluctuations mentales à proximité.
 
 Si l'esprit de Wang Lin montrait le moindre signe d'activité, il n'hésiterait pas à l'exterminer avec le jade ; il ne serait pas aussi bienveillant que ses paroles !
 

@@ -14,7 +14,7 @@ Son expression demeurait calme, car tout ceci faisait partie de ses déductions 
 
 S'il pouvait marcher avec une telle désinvolture, c'était grâce à sa grande confiance. Wang Lin savait que le moindre faux pas l'exposerait à un terrible contrecoup.
 
-Les 18 premiers mètres n'étaient pas si redoutables, mais les 9 derniers seraient désastreux pour lui avec son niveau de culture actuel !
+Les 18 premiers mètres n'étaient pas si redoutables, mais les 9 derniers seraient désastreux pour lui avec son niveau de cultivation actuel !
 
 Cependant, rien n'est absolu, et il existe toujours une voie de salut au sein d'une restriction. Si l'on parvient à emprunter ce chemin en un instant de crise, on peut sauver sa vie.
 
@@ -84,7 +84,7 @@ Son corps bascula sur le côté, sa tête retomba, et il sombra dans le sommeil.
 
 Le temps passa... trois mois... six mois... neuf mois... un an !
 
-Wang Lin avait dormi durant toute cette année, laissant échapper par moments des ronflements. Depuis qu'il avait commencé la culture, il dormait rarement ; ce fut là son sommeil le plus long depuis plusieurs centaines d'années !
+Wang Lin avait dormi durant toute cette année, laissant échapper par moments des ronflements. Depuis qu'il avait commencé la cultivation, il dormait rarement ; ce fut là son sommeil le plus long depuis plusieurs centaines d'années !
 
 Bien qu'il dormît, l'énergie spirituelle céleste en lui augmentait sans relâche. Une telle vitesse aurait même stupéfié l'Omniscient s'il avait été témoin de la scène !
 
@@ -100,7 +100,7 @@ Il se redressa immédiatement, l'air vigilant. Après avoir scruté les environs
 
 Pensant à l'énergie spirituelle céleste, il inspecta immédiatement son état interne. Ce qu'il découvrit provoqua un choc inimaginable.
 
-« Ceci... moi... depuis combien de temps suis-je endormi ?! » Depuis le début de sa culture, Wang Lin était rarement aussi ébranlé.
+« Ceci... moi... depuis combien de temps suis-je endormi ?! » Depuis le début de sa cultivation, Wang Lin était rarement aussi ébranlé.
 
 « L'énergie spirituelle céleste dans mon corps a déjà largement surpassé le sommet du stade avancé de la Transformation de l'Âme. Il ne me reste plus qu'à approfondir la compréhension de mon domaine pour franchir l'épreuve de la vie et de la mort et atteindre le stade d'Ascendant ! » Wang Lin regarda la cruche avec incrédulité.
 
@@ -112,7 +112,7 @@ Après l'excitation vint une pointe d'appréhension.
 
 « Heureusement que mon domaine n'a pas encore atteint le niveau d'Ascendant, sinon j'aurais commencé à tenter la percée pendant mon sommeil. Je n'aurais pas pu utiliser le cristal d'ascension que Zhou Yi m'a donné, et si j'avais échoué, ma mort aurait été bien pitoyable ! » Wang Lin réfléchit, puis ses yeux s'illuminèrent.
 
-« Avec ma culture actuelle, personne au stade de la Transformation de l'Âme ne peut rivaliser avec moi. Il me suffit maintenant que mon domaine atteigne le niveau d'Ascendant, et je pourrai trouver un lieu secret pour conclure ma progression... Et cet endroit est le plus secret qui soit ; une fois que mon domaine aura fait sa percée, je reviendrai ici pour atteindre le stade d'Ascendant ! »
+« Avec ma cultivation actuelle, personne au stade de la Transformation de l'Âme ne peut rivaliser avec moi. Il me suffit maintenant que mon domaine atteigne le niveau d'Ascendant, et je pourrai trouver un lieu secret pour conclure ma progression... Et cet endroit est le plus secret qui soit ; une fois que mon domaine aura fait sa percée, je reviendrai ici pour atteindre le stade d'Ascendant ! »
 
 « Tout dans ce monde dépend du destin. C’était une coïncidence miraculeuse que j'entre ici. Sinon, même avec les jades célestes, il m'aurait fallu des années pour arriver à cet état. Est-ce là ce que les mortels appellent une rencontre fortuite... » Wang Lin était d'humeur joyeuse car, après un an de sommeil, il se trouvait dans une condition excellente. Alors qu'il s'apprêtait à briser la restriction environnante, une pensée le fit tressaillir.
 

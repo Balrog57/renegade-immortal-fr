@@ -78,7 +78,7 @@ Wang Lin dit lentement : « Ling Tianhou. »
 
 « Je suis, et je ne suis pas. » Le serviteur secoua la tête sans parler. C'était l'homme en robe grise qui avait pris la parole. Il se retourna et sourit à Wang Lin.
 
-L'homme en robe grise regarda Wang Lin avec un sourire et dit : « Voici certainement Madame Wang ; une alliée de taille pour le Compagnon de Culture Wang. »
+L'homme en robe grise regarda Wang Lin avec un sourire et dit : « Voici certainement Madame Wang ; une alliée de taille pour le Compagnon de Cultivation Wang. »
 
 Li Muwan resta calme et silencieuse. Elle se tint aux côtés de Wang Lin, observant l'homme en gris avec sérénité.
 
@@ -166,7 +166,7 @@ Wang Lin demanda soudain : « L'as-tu vu ? »
 
 « Tu ne vas pas cultiver ? » Li Muwan cligna des yeux et se leva à ses côtés.
 
-« La culture est dans le cœur. Après avoir trouvé mon véritable moi, chaque lieu est identique. » Wang Lin sourit en tenant Li Muwan. Tous deux se transformèrent en un rayon de lumière et disparurent dans la pénombre du crépuscule.
+« La cultivation est dans le cœur. Après avoir trouvé mon véritable moi, chaque lieu est identique. » Wang Lin sourit en tenant Li Muwan. Tous deux se transformèrent en un rayon de lumière et disparurent dans la pénombre du crépuscule.
 
 « Wang Lin, après la fin de la partie, tu as dit "comprends-tu"... Je ne comprends pas vraiment... Qu'y a-t-il à comprendre ? » La voix douce de Li Muwan résonna.
 

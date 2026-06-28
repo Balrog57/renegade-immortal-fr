@@ -26,21 +26,21 @@ Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'
 
 « Si c'était le cas, pourquoi m'avoir infligé une telle douleur ? Aviez-vous peur que je ne protège plus votre héritage une fois mon corps retrouvé ?! Je m'en voulais auparavant, mais maintenant je sais ! Moi, Long Daozi, j'ai toujours été reconnaissant de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce coffre. Cependant, je vois maintenant à quel point mes pensées étaient ridicules !! »
 
-À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable ; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
+À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable ; il pouvait clairement sentir sa cultivation se rétablir à une vitesse inimaginable.
 
 Passant de Corporeal Yang à Nirvana Scryer, qui était au rang 1 Sky Celestial, il atteignit rapidement le début du stade Nirvana Scryer, soit le rang 3 Sky Celestial.
 
-« Maître Carefree, vous m'avez bien trompé !! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 Sky Celestial, sans même ralentir.
+« Maître Carefree, vous m'avez bien trompé !! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa cultivation explosait. Elle grimpa au rang 6 Sky Celestial, sans même ralentir.
 
 En poursuivant sa course, l'expression de Wang Lin changea légèrement. Il pouvait sentir que les fluctuations d'énergie spirituelle céleste émanant du coffre devenaient de plus en plus puissantes.
 
 « Quel genre de trésor est-ce là ?! » Wang Lin prit une inspiration saccadée, le regard chargé de stupeur.
 
-Alors que Long Daozi souriait, l'énergie originelle céleste jaillit et il atteignit rapidement le rang 9 Sky Celestial ! C'était son niveau de culture maximal lorsqu'il résidait dans le Royaume Céleste !
+Alors que Long Daozi souriait, l'énergie originelle céleste jaillit et il atteignit rapidement le rang 9 Sky Celestial ! C'était son niveau de cultivation maximal lorsqu'il résidait dans le Royaume Céleste !
 
-Et cela ne s'arrêta pas là. Lorsque sa culture atteignit le rang 9 Sky Celestial, elle franchit la barrière du Sky Celestial pour subir une mutation inimaginable. Les yeux de Long Daozi brillaient d'un éclat si vif qu'ils semblaient pouvoir percer le cercueil.
+Et cela ne s'arrêta pas là. Lorsque sa cultivation atteignit le rang 9 Sky Celestial, elle franchit la barrière du Sky Celestial pour subir une mutation inimaginable. Les yeux de Long Daozi brillaient d'un éclat si vif qu'ils semblaient pouvoir percer le cercueil.
 
-Sa culture avait transcendé le niveau Sky Celestial pour atteindre celui de Roi Céleste !
+Sa cultivation avait transcendé le niveau Sky Celestial pour atteindre celui de Roi Céleste !
 
 « Rang 3 Roi Céleste ! Maître Carefree, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste ! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde ! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
 
@@ -84,7 +84,7 @@ Wang Lin saisit le cercueil. Le regard sérieux, il l'examina avec précaution a
 
 En voyant cet objet, il pensa à Li Muwan.
 
-« Planète Dong Lin ! Avec ma culture actuelle, je devrais pouvoir y jeter un œil ! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'All-Seer, il s'était rendu dans le système stellaire Allheaven pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
+« Planète Dong Lin ! Avec ma cultivation actuelle, je devrais pouvoir y jeter un œil ! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'All-Seer, il s'était rendu dans le système stellaire Allheaven pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
 
 Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
 

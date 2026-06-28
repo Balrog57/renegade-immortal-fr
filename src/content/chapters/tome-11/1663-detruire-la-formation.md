@@ -12,11 +12,11 @@ Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance d
 
 Wang Lin n'avait pas compté sur les Flammes Joss pour atteindre le troisième stade. Il s'était appuyé sur sa propre compréhension pour compléter ses trois essences éthérées. Il avait dévoré des éléments pour parachever ses essences du tonnerre et du feu.
 
-Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade ; il lui suffisait d'obtenir les essences que d'autres avaient formées. Dévorer d'innombrables quantités d'essence permettrait de restaurer sa culture et de l'augmenter !
+Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade ; il lui suffisait d'obtenir les essences que d'autres avaient formées. Dévorer d'innombrables quantités d'essence permettrait de restaurer sa cultivation et de l'augmenter !
 
 De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Spirit Void ordinaires. Il n'était pas nécessaire de fusionner un tel domaine avec son corps pour atteindre un état de perfection.
 
-Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa culture qu'il pouvait terrasser des cultivateurs Arcane Void du premier stade alors qu'il n'était qu'au milieu du stade Spirit Void !
+Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa cultivation qu'il pouvait terrasser des cultivateurs Arcane Void du premier stade alors qu'il n'était qu'au milieu du stade Spirit Void !
 
 Wang Lin osait même affronter des cultivateurs Arcane Void du stade intermédiaire. Bien qu'il fût difficile de prédire l'issue du combat, il leur serait extrêmement ardu de le tuer !
 
@@ -44,9 +44,9 @@ Au cours des dizaines de milliers d'années, de nombreux talents étaient nés d
 
 Il s'agissait du Vieux Fantôme Zhan ! À l'époque, il avait échoué à sa cinquième Tribulation Arcane et aurait dû mourir ; le Souverain le savait. Cependant, ce que le Souverain ignorait, c'est que le Vieux Fantôme Zhan avait obtenu une immense fortune céleste !
 
-Cette fortune céleste avait provoqué une explosion de sa culture, lui permettant d'endurer les épreuves jusqu'à la huitième Tribulation Arcane, avant de s'arrêter devant la neuvième.
+Cette fortune céleste avait provoqué une explosion de sa cultivation, lui permettant d'endurer les épreuves jusqu'à la huitième Tribulation Arcane, avant de s'arrêter devant la neuvième.
 
-Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exalts ! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux !
+Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exalts ! C'était un niveau de cultivation au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux !
 
 Le Souverain Céleste aux Sept Couleurs était un Exalt de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire !
 

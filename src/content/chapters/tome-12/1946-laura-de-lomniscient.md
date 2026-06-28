@@ -10,7 +10,7 @@ Chapitre 1946 - L'Aura de l'Omniscient !
 
 « Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit mon Secte Dong Lin et quelles étaient ses intentions !
 
-« Mon Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la culture.
+« Mon Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la cultivation.
 
 « Pourtant, le Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empereur pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de mon Secte Dong Lin…
 

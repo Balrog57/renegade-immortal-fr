@@ -40,7 +40,7 @@ Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attent
 
 Le raffinage des trésors se poursuivit, mais ce n'était plus l'objectif principal car le temps était compté. Wang Lin décida d'utiliser ce qu'il avait perçu de la troisième étape pour ajuster ses sorts.
 
-Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant était le Coup Céleste. Cependant, avant d'avoir franchi la première étape de culture et d'être entré dans le stade de l'Yin Illusoire, ce sort consommerait sa précieuse énergie d'origine.
+Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant était le Coup Céleste. Cependant, avant d'avoir franchi la première étape de cultivation et d'être entré dans le stade de l'Yin Illusoire, ce sort consommerait sa précieuse énergie d'origine.
 
 Vena ensuite le sort d'Arrêt. Ce sort n'était pas moins puissant que le Coup Céleste. S'il était utilisé au moment opportun, il jouerait un rôle décisif.
 
@@ -74,7 +74,7 @@ Ce jour-là, alors qu'il volait sans but dans l'espoir de croiser des mortels, i
 
 « Quelqu'un est enfin venu !!! »
 
-Zhang Xinhai apparut à l'orée du brouillard, le visage marqué par la fatigue et le corps imprégné d'une aura de mort. À ses côtés se tenait un homme d'âge moyen très tendu. Cet homme portait des robes noires et son niveau de culture atteignait également le sommet du stade de l'Âme Naissante.
+Zhang Xinhai apparut à l'orée du brouillard, le visage marqué par la fatigue et le corps imprégné d'une aura de mort. À ses côtés se tenait un homme d'âge moyen très tendu. Cet homme portait des robes noires et son niveau de cultivation atteignait également le sommet du stade de l'Âme Naissante.
 
 L'homme d'âge moyen regarda avec méfiance le brouillard noir au loin et murmura : « Père, devons-nous vraiment y aller ? »
 
@@ -126,8 +126,8 @@ Le temps passa rapidement. L'amélioration des sorts coûtait trop d'énergie à
 
 Enfin, lors de sa dix-huitième année sur la planète Qing Ling, son domaine de vie et de mort atteignit la perfection, sans aucune faille. Cela signifiait qu'une fois qu'il disposerait de suffisamment d'énergie spirituelle céleste, il serait véritablement au sommet du premier stade !
 
-Wang Lin possédait encore quelques jades célestes, mais il ignorait s'ils suffiraient. Même si ce n'était pas le cas, il pourrait toujours consommer le liquide céleste. Cette fois, il devait atteindre le sommet de la phase Ascendant et parachever le premier stade de culture !
+Wang Lin possédait encore quelques jades célestes, mais il ignorait s'ils suffiraient. Même si ce n'était pas le cas, il pourrait toujours consommer le liquide céleste. Cette fois, il devait atteindre le sommet de la phase Ascendant et parachever le premier stade de cultivation !
 
-« Le premier stade de culture... » Les yeux de Wang Lin brillèrent intensément.
+« Le premier stade de cultivation... » Les yeux de Wang Lin brillèrent intensément.
 
 « Lorsque j'ai atteint le stade Ascendant, l'Ancien Démon Bei Luo a dit que les cultivateurs défiant le ciel attireraient la Tribulation Divine. Je me demande si la Tribulation Divine ne reviendra pas lorsque je franchirai la première étape pour entrer dans l'Yin Illusoire ! » Wang Lin leva les yeux vers le ciel et son regard devint glacial.

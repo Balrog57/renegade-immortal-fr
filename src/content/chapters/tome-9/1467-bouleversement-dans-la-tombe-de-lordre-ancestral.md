@@ -16,11 +16,11 @@ Dès l'apparition de la faille, la brume fut aspirée vers elle. Celle-ci sembla
 
 Non loin de la Tombe de l'Ordre Ancestral, sur une plante morte, le corps principal de Great Desolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
 
-Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices ? C'était en raison de son tempérament qu'il n'avait presque aucun ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
+Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices ? C'était en raison de son tempérament qu'il n'avait presque aucun ami après des dizaines de milliers d'années de cultivation. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
 
 Son corps flottait dans la brume comme une montagne immobile tandis qu'il fixait le tumulte d'un regard glacial. Après avoir réfléchi un instant, une lueur de détermination brilla dans ses yeux.
 
-« Il n'y a aucune limite au niveau de culture de ceux qui peuvent entrer... » Great Desolation songea un moment, puis chargea sans hésitation dans la faille.
+« Il n'y a aucune limite au niveau de cultivation de ceux qui peuvent entrer... » Great Desolation songea un moment, puis chargea sans hésitation dans la faille.
 
 Au moment où la faille commença à absorber la brume, une planète illusoire apparut au loin. La planète était recouverte d'un océan violet dont les vagues rugissaient. Dans les profondeurs de l'océan siégeait un vieil homme. À cet instant, il ouvrit les yeux et une lueur froide y jaillit.
 
@@ -74,7 +74,7 @@ Au moment où Wang Lin pénétra dans la faille, les deux mains géantes se diss
 
 Dès l'entrée de Wang Lin dans la faille, la neuvième carte apparut instantanément dans son esprit. Toutefois, à cet instant, elle était inutile. Simultanément, une voix ancienne résonna dans l'esprit de Wang Lin.
 
-« Plateforme de rang 9, tu es qualifié pour recevoir mon héritage... Tu peux franchir la porte de la réincarnation et accéder à mon palais céleste... Cependant, mon palais a été scellé par mon ennemi ; il te faudra donc une culture immense et une chance prodigieuse pour y entrer... Dans ma vie, il n'y a qu'un seul... regret... La porte sur la gauche bloque ma voie de retraite... Li Guang m'a arraché l'œil gauche, lequel contenait la moitié de mes souvenirs, les souvenirs de mon foyer... Héritier, si tu peux devenir un ancien... Si... » Les mots se dissipèrent. Les deux dernières phrases étaient trop vagues. La vision de Wang Lin se troubla un instant et, lorsqu'il retrouva la vue, il se trouvait dans un palais d'une immensité incroyable.
+« Plateforme de rang 9, tu es qualifié pour recevoir mon héritage... Tu peux franchir la porte de la réincarnation et accéder à mon palais céleste... Cependant, mon palais a été scellé par mon ennemi ; il te faudra donc une cultivation immense et une chance prodigieuse pour y entrer... Dans ma vie, il n'y a qu'un seul... regret... La porte sur la gauche bloque ma voie de retraite... Li Guang m'a arraché l'œil gauche, lequel contenait la moitié de mes souvenirs, les souvenirs de mon foyer... Héritier, si tu peux devenir un ancien... Si... » Les mots se dissipèrent. Les deux dernières phrases étaient trop vagues. La vision de Wang Lin se troubla un instant et, lorsqu'il retrouva la vue, il se trouvait dans un palais d'une immensité incroyable.
 
 Ce palais semblait aussi vaste que le ciel, rendant sa limite invisible. L'ensemble du lieu était lumineux et dégageait une majesté impressionnante, bien qu'une aura sinistre s'en échappât également.
 

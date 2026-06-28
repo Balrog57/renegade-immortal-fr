@@ -18,7 +18,7 @@ Cette onde le fit pourtant trembler. Son esprit vacilla et son expression change
 
 Terrifié, il s'immobilisa en plein vol. Ses yeux étaient empreints de choc !
 
-À cet instant, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il n'avait ressenti une telle sensation qu'une seule fois, avant d'atteindre le troisième niveau de culture !
+À cet instant, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il n'avait ressenti une telle sensation qu'une seule fois, avant d'atteindre le troisième niveau de cultivation !
 
 « Qui est-ce ?! De quelle Divine Sense s'agit-il ?! » Devil Master Nine Heavens fixa le vide devant lui. Pour la première fois, la peur s'installa dans son cœur.
 
@@ -30,7 +30,7 @@ Cette Divine Sense était imprégnée d'une aura si dominante qu'on aurait dit l
 
 Dans la septième carte, un vieil homme vêtu de lin se trouvait là. Ses lèvres étaient scellées par trois aiguilles et son visage marqué par une expression cruelle.
 
-Great Desolation, qui était entré avec son corps originel, se précipitait à travers le tombeau antique. Sa culture de l'Arcane Void jaillissait tandis qu'il fonçait dans les couloirs. Rien ne pouvait l'arrêter !
+Great Desolation, qui était entré avec son corps originel, se précipitait à travers le tombeau antique. Sa cultivation de l'Arcane Void jaillissait tandis qu'il fonçait dans les couloirs. Rien ne pouvait l'arrêter !
 
 Il avança rapidement, franchissant une carte en seulement cinq pas ! Soudain, il s'arrêta net et ses yeux s'illuminèrent !
 
@@ -70,7 +70,7 @@ Wang Lin était assis dans le palais, et sa Divine Sense se propageait hors de s
 
 Poussant encore plus loin, sa Divine Sense atteignit la faille spatiale menant au Système Stellaire Antique.
 
-La Divine Sense de Wang Lin finit par stagner près de cette faille. À ce moment-là, du fait de sa fusion avec le tombeau antique, Wang Lin percevait des choses qu'il ne pouvait voir avec son niveau de culture actuel.
+La Divine Sense de Wang Lin finit par stagner près de cette faille. À ce moment-là, du fait de sa fusion avec le tombeau antique, Wang Lin percevait des choses qu'il ne pouvait voir avec son niveau de cultivation actuel.
 
 Une existence que même des êtres comme le Maître Dao Miao Yin ne pouvaient contempler !
 

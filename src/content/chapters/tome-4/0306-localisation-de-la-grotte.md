@@ -24,7 +24,7 @@ Une fois ce jade extrait, son âme originelle s'affaiblit, semblant prête à s'
 
 Après un long moment, Wang Lin ouvrit les yeux, le visage marqué par la fatigue. Il observa le jade céleste avant de le ranger dans sa sacoche de rangement.
 
-Avec son niveau de culture actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le jade céleste. Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
+Avec son niveau de cultivation actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le jade céleste. Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
 
 On pouvait dire que les cultivateurs de la Transformation de l'Âme étaient si rares car peu de gens parvenaient à pénétrer dans le Royaume Céleste pour obtenir suffisamment d'énergie spirituelle céleste.
 
@@ -36,7 +36,7 @@ Wang Lin laissa échapper un sourire amer. Son âme originelle était gravement 
 
 Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa main. Il le scruta de son Sens Divin et constata que ce prétendu jade céleste ressemblait beaucoup à une pierre spirituelle. Cependant, là où les pierres spirituelles libéraient de l'énergie spirituelle, les jades célestes libéraient de l'énergie spirituelle céleste.
 
-Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la culture. Plus on en possédait, mieux c'était.
+Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la cultivation. Plus on en possédait, mieux c'était.
 
 Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang ; même Suzaku serait descendu pour s'en emparer.
 
@@ -48,7 +48,7 @@ Dès que son Sens Divin pénétra dans le métal, il fut pris d'un vertige souda
 
 Après un long moment, Wang Lin afficha un regard d'émerveillement et ses yeux s'illuminèrent. Si les informations contenues dans ce métal étaient vraies, alors cet objet était le plus précieux des trois trésors. Ce morceau de métal fonctionnait comme un fragment de jade : il renfermait la méthode de raffinage d'un Charriot Tueur de Dieux.
 
-D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste Trésor Céleste. Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre culture. En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence : créer le trésor le plus puissant de l'univers.
+D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste Trésor Céleste. Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre cultivation. En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence : créer le trésor le plus puissant de l'univers.
 
 Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Céleste ; le Charriot Tueur de Dieux n'avait jamais atteint le stade souhaité et était resté scellé dans sa grotte. Avant que le Royaume Céleste ne soit détruit, il était sorti chercher des matériaux pour poursuivre ses travaux, mais il mourut tragiquement avant son retour. Ne voulant pas que l'œuvre de sa vie ne soit perdue, il avait laissé ces informations dans ce morceau de métal pour les générations futures.
 

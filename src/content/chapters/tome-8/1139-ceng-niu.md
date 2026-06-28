@@ -2,7 +2,7 @@
 n: 1139
 title: Ceng Niu
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1139 - Ceng Niu
 slug: ceng-niu
 ---
@@ -20,7 +20,7 @@ Au fil de sa progression, son corps rétrécit graduellement et ses cheveux devi
 
 La saison des pluies sur le continent de Mo Luo durait plusieurs mois. Ce n'est que lorsque la terre serait totalement saturée d'humidité, que les os des gens commenceraient à souffrir et que l'odeur de rouille imprégnerait l'air, que la pluie s'arrêterait enfin.
 
-Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent sortaient sous l'averse pour se diriger vers la zone septentrionale.
+Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une cultivation en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent sortaient sous l'averse pour se diriger vers la zone septentrionale.
 
 Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à travers la pluie. Pour quiconque regardait depuis le sol, la scène ressemblait à une pluie de météores.
 
@@ -62,9 +62,9 @@ Si le temps continuait de passer et qu'il pouvait oublier la menace de Tuo Sen, 
 
 Il aimait cette existence paisible et appréciait la joie de vivre du village. Pourtant, Wang Lin savait que ce genre de vie n'était qu'un bref éclat de soleil au milieu de la saison des pluies : elle allait bientôt disparaître.
 
-Les cultivateurs du Secte Origin arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche des mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais la plupart n'étaient pas qualifiés. Même ceux qui l'étaient ne pourraient rien accomplir avant de mourir.
+Les cultivateurs du Secte Origin arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche des mortels aptes à la cultivation. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais la plupart n'étaient pas qualifiés. Même ceux qui l'étaient ne pourraient rien accomplir avant de mourir.
 
-Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
+Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de cultivation, il pouvait être considéré comme un prodige parmi la jeune génération.
 
 L'expression de ce cultivateur était si glaciale qu'elle effraya immédiatement les villageois. Ils sortirent tous de leurs maisons, tremblant sous la pluie. Les habitants du continent de Mo Luo connaissaient la nature des cultivateurs ; ils comprenaient que si cet homme s'emportait, il ne lui faudrait qu'un instant pour tous les massacrer.
 
@@ -78,7 +78,7 @@ Ils attendaient depuis près de quinze minutes, mais le cultivateur ne s'était 
 
 Cependant, avant qu'il n'ait pu finir sa phrase, le regard glacial de Zhao Yu se posa sur lui, le forçant à taire ses paroles.
 
-Zhao Yu laissa échapper un renflement méprisant et dit froidement : « S'ils ne peuvent même pas supporter la pluie, comment pourraient-ils devenir des cultivateurs ? » Son souffle contenait une trace de sa puissance de culture ; lorsqu'il résonna à l'oreille des villageois, leurs visages devinrent blêmes.
+Zhao Yu laissa échapper un renflement méprisant et dit froidement : « S'ils ne peuvent même pas supporter la pluie, comment pourraient-ils devenir des cultivateurs ? » Son souffle contenait une trace de sa puissance de cultivation ; lorsqu'il résonna à l'oreille des villageois, leurs visages devinrent blêmes.
 
 Alors que Wang Lin se tenait au milieu de la foule, son expression s'assombrit. Il s'avança et marcha vers Zhao Yu.
 

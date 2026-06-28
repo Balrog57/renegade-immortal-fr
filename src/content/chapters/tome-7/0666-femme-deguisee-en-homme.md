@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 666 - Woman Dressed as a Man
 slug: femme-deguisee-en-homme
 ---
-Wang Lin avait l'intention de rester discret durant son séjour sur la planète Ran Yun. Cela lui permettrait de cultiver en toute sécurité et d'augmenter rapidement son niveau de culture afin de pouvoir retourner dans le Système Stellaire de l'Alliance.
+Wang Lin avait l'intention de rester discret durant son séjour sur la planète Ran Yun. Cela lui permettrait de cultiver en toute sécurité et d'augmenter rapidement son niveau de cultivation afin de pouvoir retourner dans le Système Stellaire de l'Alliance.
 
 Cependant, la discrétion ne signifiait pas qu'il allait se comporter comme un simple cultivateur de bas niveau et subir passivement son sort.
 
@@ -14,19 +14,19 @@ La véritable discrétion consistait à ne pas craindre que les autres ne décou
 
 Cette forme de discrétion, alliée à une telle attitude, créerait une force invisible qui empêcherait les puissances suprêmes de la planète Ran Yun de l'offenser.
 
-C'était précisément le résultat que Wang Lin recherchait. Ses pas étaient légers alors qu'il regagnait son logement dans la partie nord de la ville. Le jeune homme était toujours en train de cultiver sous le rocher ; il semblait s'être consacré sérieusement à sa culture durant toute la journée.
+C'était précisément le résultat que Wang Lin recherchait. Ses pas étaient légers alors qu'il regagnait son logement dans la partie nord de la ville. Le jeune homme était toujours en train de cultiver sous le rocher ; il semblait s'être consacré sérieusement à sa cultivation durant toute la journée.
 
 Dès qu'il s'approcha, le jeune homme ouvrit les yeux et poussa un léger reniflement. « Toi, arrête-toi ! »
 
 Wang Lin fut surpris. Il s'interrompit et fixa le jeune homme.
 
-« Sais-tu ce qui est le plus important pour les cultivateurs ? Je vais te le dire : c'est la diligence ! » Le jeune homme regarda Wang Lin et poursuivit : « Bien que ton talent ne soit pas exceptionnel, si tu es diligent, tu as une chance de progresser. Je garde cet endroit depuis de nombreuses années, et certains des cultivateurs qui sont passés par ici ont déjà atteint le stade de la Formation de l'Âme. Ils ne sont jamais partis tôt le matin comme toi, gaspillant un temps précieux pour la culture en errant inutilement. »
+« Sais-tu ce qui est le plus important pour les cultivateurs ? Je vais te le dire : c'est la diligence ! » Le jeune homme regarda Wang Lin et poursuivit : « Bien que ton talent ne soit pas exceptionnel, si tu es diligent, tu as une chance de progresser. Je garde cet endroit depuis de nombreuses années, et certains des cultivateurs qui sont passés par ici ont déjà atteint le stade de la Formation de l'Âme. Ils ne sont jamais partis tôt le matin comme toi, gaspillant un temps précieux pour la cultivation en errant inutilement. »
 
 « Ton talent est médiocre, tu dois donc être plus assidu. Sinon, tu ne seras jamais capable de former ton Âme Naissante au cours de ta vie ! »
 
 Cette leçon stupéfia Wang Lin, qui afficha un sourire amer.
 
-Voyant l'expression de Wang Lin, le ton du jeune homme s'adoucit. Le mépris dans ses yeux diminua et il déclara : « Ce n'est pas que je te dédaigne. Tu dois te souvenir que dans le monde de la culture, si tu veux que les autres te respectent, tu ne dois pas te sous-estimer toi-même. L'énergie spirituelle ici est très dense. Une fois tes affaires réglées, entre en culture isolée pendant une décennie, et peut-être qu'un jour, tu atteindras le stade de l'Âme Naissante. À ce moment-là, je pense que tu pourras assumer un certain pouvoir et des responsabilités au sein de ta famille, tout comme moi. »
+Voyant l'expression de Wang Lin, le ton du jeune homme s'adoucit. Le mépris dans ses yeux diminua et il déclara : « Ce n'est pas que je te dédaigne. Tu dois te souvenir que dans le monde de la cultivation, si tu veux que les autres te respectent, tu ne dois pas te sous-estimer toi-même. L'énergie spirituelle ici est très dense. Une fois tes affaires réglées, entre en cultivation isolée pendant une décennie, et peut-être qu'un jour, tu atteindras le stade de l'Âme Naissante. À ce moment-là, je pense que tu pourras assumer un certain pouvoir et des responsabilités au sein de ta famille, tout comme moi. »
 
 Wang Lin se frotta le nez. Depuis qu'il était devenu cultivateur, tous ceux qu'il avait rencontrés étaient rusés et égoïstes. Personne n'aurait pris la peine de lui adresser de tels mots. Et depuis qu'il était devenu puissant, en raison de ses nombreux meurtres, personne n'osait rien lui dire.
 
@@ -34,7 +34,7 @@ Même le senior Dun Tian n'avait pas passé beaucoup de temps avec Wang Lin avan
 
 À cet instant, se faisant soudainement réprimander par cet inconnu, il ressentit une pointe de mélancolie et acquiesça rapidement.
 
-L'expression du jeune homme s'améliora encore, bien qu'il conservât son sérieux : « Si tu rencontres des difficultés dans ta culture, tu peux venir m'en parler. Retiens bien ceci : ne pas avoir de talent n'est pas terrifiant, ce qui est terrifiant, c'est la paresse. Nous, les cultivateurs, marchons à contre-sens du ciel. Nous ne pouvons ni relâcher notre cœur, ni relâcher notre corps. Si nous le faisons, comment pourrons-nous cultiver en défiant les cieux ? Entre maintenant, et hâte-toi de cultiver. »
+L'expression du jeune homme s'améliora encore, bien qu'il conservât son sérieux : « Si tu rencontres des difficultés dans ta cultivation, tu peux venir m'en parler. Retiens bien ceci : ne pas avoir de talent n'est pas terrifiant, ce qui est terrifiant, c'est la paresse. Nous, les cultivateurs, marchons à contre-sens du ciel. Nous ne pouvons ni relâcher notre cœur, ni relâcher notre corps. Si nous le faisons, comment pourrons-nous cultiver en défiant les cieux ? Entre maintenant, et hâte-toi de cultiver. »
 
 Si quiconque connaissant Wang Lin avait assisté à cette scène, il en serait resté stupéfait.
 
@@ -48,23 +48,23 @@ Ce jeune homme était en réalité une femme déguisée en homme. Son visage ét
 
 Après être retourné dans sa demeure, Wang Lin s'assit en position du lotus. Il frappa son sac de rangement et mille jades célestes s'en échappèrent immédiatement. Sa main traça un sceau, projetant plusieurs rayons de lumière vers l'amas de pierres précieuses. La riche énergie spirituelle céleste fut instantanément contenue autour de lui, sans la moindre fuite.
 
-Wang Lin ferma les yeux et commença sa culture. Des filaments d'énergie spirituelle céleste pénétrèrent son corps et circulèrent lentement en lui.
+Wang Lin ferma les yeux et commença sa cultivation. Des filaments d'énergie spirituelle céleste pénétrèrent son corps et circulèrent lentement en lui.
 
 Le temps s'écoula lentement. Trois jours plus tard, Wang Lin ouvrit les yeux. Les mille jades célestes qui l'entouraient s'étaient transformés en poussière et avaient disparu. Il scruta les environs.
 
-« Toujours pas assez de jades célestes. La culture au stade Ascendant n'a rien à voir avec celle de la Transformation de l'Âme. À l'époque de la Transformation de l'Âme, je pouvais encore en assumer le coût, mais maintenant, au stade Ascendant, la quantité d'énergie spirituelle céleste requise est colossale ! »
+« Toujours pas assez de jades célestes. La cultivation au stade Ascendant n'a rien à voir avec celle de la Transformation de l'Âme. À l'époque de la Transformation de l'Âme, je pouvais encore en assumer le coût, mais maintenant, au stade Ascendant, la quantité d'énergie spirituelle céleste requise est colossale ! »
 
 « Même avec les deux cents mille jades de la famille Sun, je ne pourrai pas atteindre le milieu du stade Ascendant. Quant au stade avancé, la quantité nécessaire sera inimaginable. Sans parler du sommet du stade Ascendant et du passage au stade Yin et Yang... » Les sourcils de Wang Lin se froncèrent profondément. C'était un mystère pour lui. Les jades célestes étaient déjà extrêmement rares, et les cultivateurs au stade de la Transformation de l'Âme les utilisaient quotidiennement. Au fil des millénaires, une quantité astronomique de jades avait dû être consommée.
 
 Le Royaume Céleste avait disparu ; d'où venaient donc tous ces jades ? Wang Lin y avait déjà songé sans trouver de réponse.
 
-« De plus, ceci n'est que la première étape de la culture, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau ? Un être comme l'Omniscient aurait-il besoin d'une quantité de jades équivalente à celle de plusieurs cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
+« De plus, ceci n'est que la première étape de la cultivation, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau ? Un être comme l'Omniscient aurait-il besoin d'une quantité de jades équivalente à celle de plusieurs cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
 
 « Serait-il possible que... le second niveau ne nécessite pas de jades célestes ? Ou existe-t-il un moyen spécial de les remplacer ? » Une hypothèse audacieuse traversa son esprit.
 
 Alors qu'il réfléchissait, il tourna la tête. Portée par une légère brise, la silhouette du vieil homme en noir de la famille Sun apparut devant la maison.
 
-Wang Lin agita sa main droite pour lever la restriction sur la demeure. Le vieil homme entra rapidement et, après une hésitation, abaissa lui aussi son niveau de culture au stade de la Formation du Noyau. Il pénétra dans la pièce avec un sourire amer au fond du cœur.
+Wang Lin agita sa main droite pour lever la restriction sur la demeure. Le vieil homme entra rapidement et, après une hésitation, abaissa lui aussi son niveau de cultivation au stade de la Formation du Noyau. Il pénétra dans la pièce avec un sourire amer au fond du cœur.
 
 « Aîné, j'étais pressé la dernière fois et n'ai pas pu me présenter. Je suis Sun Qiming, de la famille Sun. Je suis le responsable de cette ville. Puis-je connaître votre nom, Aîné ? » Le vieil homme se montrait extrêmement respectueux. Si l'Ancien Ancestral s'était déplacé personnellement, c'était une personne qu'il ne pouvait absolument pas offenser.
 
@@ -74,7 +74,7 @@ Wang Lin répondit calmement : « Xu Mu. »
 
 Après avoir pris le sac, Wang Lin ne prit pas la peine de le vérifier. Il était convaincu que ce cultivateur Ascendant de la famille Sun n'oserait pas tenter de le tromper sur ce point.
 
-Une fois le sac remis, le vieil homme ajouta rapidement : « Soyez rassuré, Senior ; j'ai déjà donné l'ordre de veiller à ce que les événements d'hier ne s'ébruitent pas. Personne n'est même au courant de ma venue aujourd'hui, ainsi personne ne viendra perturber votre culture. De plus, si vous souhaitez entrer en culture isolée, il existe de meilleurs endroits dans la ville. »
+Une fois le sac remis, le vieil homme ajouta rapidement : « Soyez rassuré, Senior ; j'ai déjà donné l'ordre de veiller à ce que les événements d'hier ne s'ébruitent pas. Personne n'est même au courant de ma venue aujourd'hui, ainsi personne ne viendra perturber votre cultivation. De plus, si vous souhaitez entrer en cultivation isolée, il existe de meilleurs endroits dans la ville. »
 
 Wang Lin dit d'un ton neutre : « Ce n'est pas nécessaire. Vous pouvez partir. »
 
@@ -84,7 +84,7 @@ Le regard glacial de Wang Lin balaya l'homme. Ce dernier trembla instantanément
 
 Un silence de mort s'installa dans la pièce. Pour le vieil homme, chaque seconde semblait durer une éternité.
 
-Cette absence de bruit créait une pression invisible qui le faisait frémir. Il n'en avait pas envie, mais la famille lui avait ordonné de tester la culture de cet homme ; il devait donc prendre son courage à deux mains et poser la question. Pourtant, au fond de lui, il espérait que ce silence ne soit pas dû au fait que le Senior Xu Mu avait percé à jour ses intentions, mais qu'il avait été simplement tenté par la pilule fausse divine de rang 8.
+Cette absence de bruit créait une pression invisible qui le faisait frémir. Il n'en avait pas envie, mais la famille lui avait ordonné de tester la cultivation de cet homme ; il devait donc prendre son courage à deux mains et poser la question. Pourtant, au fond de lui, il espérait que ce silence ne soit pas dû au fait que le Senior Xu Mu avait percé à jour ses intentions, mais qu'il avait été simplement tenté par la pilule fausse divine de rang 8.
 
 Peu après, Wang Lin ouvrit lentement la bouche : « Apportez-la moi ! »
 
@@ -110,8 +110,8 @@ Lorsqu'il avait formé son Âme Naissante, il avait consommé une pilule de rang
 
 « Les noms de ces rangs ont été attribués par les générations ultérieures. Bien que les termes "céleste" ou "divin" soient impressionnants, ils ne peuvent rivaliser avec les véritables pilules célestes et divines. La différence est abyssale, comme entre le ciel et la terre. »
 
-« Pour être plus précis, les pilules de rang 9 constituent la limite. Si l'on atteint le second niveau, les pilules deviennent inefficaces à moins d'obtenir de véritables pilules célestes ou divines. Cependant, avec mon niveau de culture actuel, une pilule de rang 8 reste efficace. » Les yeux de Wang Lin s'illuminèrent et il prit sa décision.
+« Pour être plus précis, les pilules de rang 9 constituent la limite. Si l'on atteint le second niveau, les pilules deviennent inefficaces à moins d'obtenir de véritables pilules célestes ou divines. Cependant, avec mon niveau de cultivation actuel, une pilule de rang 8 reste efficace. » Les yeux de Wang Lin s'illuminèrent et il prit sa décision.
 
-« Ce junior en robe noire n'aurait pas osé tester ma culture avec une pilule. Il devait s'agir du cultivateur Ascendant de la famille Sun. Ne pouvant percer ma culture, il a utilisé cette méthode subtile pour m'éprouver. »
+« Ce junior en robe noire n'aurait pas osé tester ma cultivation avec une pilule. Il devait s'agir du cultivateur Ascendant de la famille Sun. Ne pouvant percer ma cultivation, il a utilisé cette méthode subtile pour m'éprouver. »
 
-« Si je n'avais pas montré d'intérêt, cela aurait signifié que j'ai déjà franchi la première étape de la culture. » Wang Lin toucha le sac contenant les deux cents mille jades célestes, puis relégua cette affaire au second plan de ses pensées.
+« Si je n'avais pas montré d'intérêt, cela aurait signifié que j'ai déjà franchi la première étape de la cultivation. » Wang Lin toucha le sac contenant les deux cents mille jades célestes, puis relégua cette affaire au second plan de ses pensées.

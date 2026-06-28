@@ -98,7 +98,7 @@ Tout au long de son périple, chaque fois que Wang Lin abattait une bête au sta
 
 S'il n'avait pas été pour le fait que le crapaud tonnerre ne convenait pas à ce mode de croissance, il l'aurait également libéré.
 
-Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit apparu sur la planète Suzaku pour une raison obscure, sa férocité surpassait celle de n'importe quelle créature issue d'une planète de culture.
+Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit apparu sur la planète Suzaku pour une raison obscure, sa férocité surpassait celle de n'importe quelle créature issue d'une planète de cultivation.
 
 Cette bête vivait pour dévorer ; elle pouvait consommer n'importe quel type de créature au monde et, plus elle dévorait, plus elle devenait puissante.
 

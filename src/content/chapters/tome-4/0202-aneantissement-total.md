@@ -62,11 +62,11 @@ Wang Lin sentit que 80 % du noyau était absorbé par son corps, tandis que les 
 
 Une fois le noyau absorbé, Wang Lin rangea le sac de rangement. Il pointa le corps de Qian Kun du doigt et une petite boule de feu jaillit de son extrémité. La flamme percuta le cadavre, le réduisant instantanément en poussière.
 
-En voyant cela, le visage de Yun Fei devint encore plus livide et elle recula inconsciemment de quelques pas. À ses yeux, le niveau de culture de ce jeune homme aux cheveux blancs était bien trop profond, tout comme l'était le trésor magique qu'il avait utilisé. Elle reconnut qu'il s'agissait d'une Âme Naissante.
+En voyant cela, le visage de Yun Fei devint encore plus livide et elle recula inconsciemment de quelques pas. À ses yeux, le niveau de cultivation de ce jeune homme aux cheveux blancs était bien trop profond, tout comme l'était le trésor magique qu'il avait utilisé. Elle reconnut qu'il s'agissait d'une Âme Naissante.
 
 L'erreur de Yun Fei était compréhensible. L'âme du Démon Xu Ligou avait été raffinée à partir d'une Âme Naissante. De plus, le fait que Xu Ligou ait côtoyé plusieurs ancêtres dans le troisième royaume l'avait quelque peu transformé.
 
-Plus important encore, Wang Lin avait formé son cœur d'âme. Bien qu'un cœur d'âme n'augmente pas le niveau de culture d'un dévoreur d'âmes, il lui permettait de créer des esprits errants. Ce cœur d'âme bénéficiait également aux esprits que le dévoreur contrôlait.
+Plus important encore, Wang Lin avait formé son cœur d'âme. Bien qu'un cœur d'âme n'augmente pas le niveau de cultivation d'un dévoreur d'âmes, il lui permettait de créer des esprits errants. Ce cœur d'âme bénéficiait également aux esprits que le dévoreur contrôlait.
 
 Wang Lin avait tué Qian Kun pour éviter que la nouvelle de sa sortie des Étoiles Brisées du Chaos ne soit ébruitée.
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Il tendit la main avec désinvolture et le corp
 
 Simultanément, son poignet droit pivota et ses doigts se rejoignirent. D'un geste, un cercle illusionnaire apparut et se fixa sur le front de Yun Fei.
 
-« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre culture sombrera dans le chaos et un feu à cinq étoiles s'allumera dans votre cœur. Si je ne l'éteins pas dans la minute qui suit, votre corps entier se transformera en une mare de sang. »
+« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre cultivation sombrera dans le chaos et un feu à cinq étoiles s'allumera dans votre cœur. Si je ne l'éteins pas dans la minute qui suit, votre corps entier se transformera en une mare de sang. »
 
 Le visage de Yun Fei devint livide, mais elle parvint à se calmer après quelques respirations profondes. Elle savait que sa vie était sauve pour l'instant.
 

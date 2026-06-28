@@ -10,7 +10,7 @@ La compétition des sectes de rang 8 impliquait toutes les sectes de ce rang, ma
 
 Les cultivateurs situés en dehors du Royaume Céleste du Vent étaient ainsi.
 
-Ils étaient tous les juniors des diverses sectes, mais leurs niveaux de culture n'étaient pas faibles. Ils s'étaient rassemblés pour tenter d'explorer le Royaume Céleste du Vent !
+Ils étaient tous les juniors des diverses sectes, mais leurs niveaux de cultivation n'étaient pas faibles. Ils s'étaient rassemblés pour tenter d'explorer le Royaume Céleste du Vent !
 
 Li Yuanlei était l'un d'eux. Parmi ce groupe, il faisait figure de chef, car il se trouvait au stade avancé du Nirvana Purificateur. Sous sa robe verte, sa silhouette élancée dégageait une aura majestueuse.
 
@@ -70,7 +70,7 @@ Après l'écho du rugissement, environ cent bêtes-moustiques s'élancèrent hor
 
 À cet instant, l'expression de Li Yuanlei changea radicalement et il recula sans hésiter en criant : « Un petit groupe de bêtes-moustiques géantes est expulsé ! Reculez, vite ! »
 
-Tandis qu'il parlait, les visages des cultivateurs aux côtés de Li Yuanlei se décomposèrent et ils commencèrent à battre en retraite. Avec leur niveau de culture, ils n'avaient aucune chance face à une centaine de ces créatures. Ils se dispersèrent rapidement.
+Tandis qu'il parlait, les visages des cultivateurs aux côtés de Li Yuanlei se décomposèrent et ils commencèrent à battre en retraite. Avec leur niveau de cultivation, ils n'avaient aucune chance face à une centaine de ces créatures. Ils se dispersèrent rapidement.
 
 « Parfum Céleste ! » La voix de Li Yuanlei résonna de nouveau. Simultanément, sa main droite s'agita et un bâton d'encens aussi épais qu'un bras apparut. L'encens commença à brûler, libérant rapidement une fragrance extraordinaire.
 

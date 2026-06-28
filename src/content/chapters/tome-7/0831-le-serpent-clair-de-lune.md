@@ -36,9 +36,9 @@ De nombreuses bêtes féroces figuraient dans les archives de la famille Yao. Ce
 
 Et cette bête ne figurait dans aucun registre familial. Cela signifiait qu'elle ne représentait aucune menace ; autrement, elle aurait été consignée dans les archives héritées par le clan.
 
-« Il n'est pas difficile de tuer cette bête ! » Yao Yunhai détourna le regard. Membre de la troisième génération de la famille Yao, bien que son niveau de culture ne fût pas élevé — seulement au sommet du stade Corporel Yang —, il était extrêmement orgueilleux. À ses yeux, le Serpent Clair de Lune n'était pas digne d'intérêt.
+« Il n'est pas difficile de tuer cette bête ! » Yao Yunhai détourna le regard. Membre de la troisième génération de la famille Yao, bien que son niveau de cultivation ne fût pas élevé — seulement au sommet du stade Corporel Yang —, il était extrêmement orgueilleux. À ses yeux, le Serpent Clair de Lune n'était pas digne d'intérêt.
 
-Yao Bingyun fixa le brouillard noir formé par le serpent. Ses yeux brillèrent et elle fonça droit dans la brume noire. Son mouvement servit de déclic : dès qu'elle eut pénétré la brume, ceux qui possédaient une culture puissante s'élancèrent à ses côtés.
+Yao Bingyun fixa le brouillard noir formé par le serpent. Ses yeux brillèrent et elle fonça droit dans la brume noire. Son mouvement servit de déclic : dès qu'elle eut pénétré la brume, ceux qui possédaient une cultivation puissante s'élancèrent à ses côtés.
 
 Yao Yunhai fut l'un d'eux. Perché sur son épée volante, il s'engouffra dans le brouillard noir.
 

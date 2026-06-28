@@ -76,7 +76,7 @@ Shengong Hu ne l'arrêta pas, mais son regard devint glacial.
 
 Wang Lin demanda calmement : « Qu'est-ce qu'un parchemin d'appel ? »
 
-Shengong Hu se retourna rapidement et répondit respectueusement : « Le parchemin d'appel est un jeton de communication du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant l'ouverture du Royaume Céleste du Tonnerre, le Hall Céleste du Tonnerre réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois ! »
+Shengong Hu se retourna rapidement et répondit respectueusement : « Le parchemin d'appel est un jeton de communication du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant l'ouverture du Royaume Céleste du Tonnerre, le Hall Céleste du Tonnerre réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la cultivation de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois ! »
 
 Wang Lin hocha légèrement la tête. Il ne dit plus rien et continua d'absorber le tonnerre pour le convertir en énergie originelle.
 
@@ -84,7 +84,7 @@ Les yeux de Shengong Hu brillaient d'excitation. Ayant reçu cet éclairage, il 
 
 Le temps passa lentement. En un clin d'œil, huit ans s'écoulèrent. En comptant les deux années précédentes, dix ans passèrent en un instant. L'énergie originelle à l'intérieur de Wang Lin se stabilisa progressivement tandis qu'il utilisait le sort du tonnerre originel. Son âme originelle était désormais saturée et ne pouvait plus rien absorber davantage.
 
-Wang Lin comprit que c'était parce que son niveau de culture n'était pas assez élevé. Ce n'est qu'après être entré dans la deuxième étape qu'il pourrait continuer à absorber l'énergie originelle. Pour l'instant, sa priorité était de franchir un nouveau palier de culture.
+Wang Lin comprit que c'était parce que son niveau de cultivation n'était pas assez élevé. Ce n'est qu'après être entré dans la deuxième étape qu'il pourrait continuer à absorber l'énergie originelle. Pour l'instant, sa priorité était de franchir un nouveau palier de cultivation.
 
 Il se leva et observa le tonnerre qui l'entourait. Ces dix années de contact lui avaient permis de mieux comprendre le tonnerre. C'était comme s'il pouvait percevoir l'origine même du tonnerre, bien que celle-ci fût encore un peu floue.
 
@@ -98,7 +98,7 @@ Grâce à dix ans d'absorption de tonnerre dans le lac, la vitesse de la Bête d
 
 Wang Lin connaissait déjà les changements subis par la Perle Défiant le Ciel. Non seulement les trois âmes à l'intérieur n'étaient pas affectées, mais elles semblaient encore plus éclatantes qu'auparavant.
 
-« Je dois me rendre au Royaume Céleste du Tonnerre qui s'ouvrira dans vingt ans. Cependant, je dois d'abord trouver un endroit caché pour accroître mon niveau de culture. De plus, suite au changement de la Perle Défiant le Ciel, elle n'a plus besoin du pouvoir des cinq éléments. Alors, de quoi a-t-elle besoin désormais ? » Wang Lin commença à réfléchir, assis sur le dos de la Bête du Tonnerre.
+« Je dois me rendre au Royaume Céleste du Tonnerre qui s'ouvrira dans vingt ans. Cependant, je dois d'abord trouver un endroit caché pour accroître mon niveau de cultivation. De plus, suite au changement de la Perle Défiant le Ciel, elle n'a plus besoin du pouvoir des cinq éléments. Alors, de quoi a-t-elle besoin désormais ? » Wang Lin commença à réfléchir, assis sur le dos de la Bête du Tonnerre.
 
 La Perle Défiant le Ciel était divisée entre le yin et le yang. Les deux n'étaient pas fusionnés, ce qui troublait Wang Lin.
 
@@ -106,9 +106,9 @@ La Perle Défiant le Ciel était divisée entre le yin et le yang. Les deux n'é
 
 C'était un objet laissé par Shengong Hu : une carte stellaire détaillée du domaine sud du Système Stellaire d'Allheaven. Elle contenait des descriptions précises, ce qui permettrait à Wang Lin de ne pas se perdre.
 
-La région devant lui était considérée comme la zone sauvage du domaine sud. La plupart des planètes y étaient désertes et sans particularité. Les cultivateurs puissants s'y rendaient rarement. Cependant, des mortels y vivaient sur certaines planètes, aux côtés de quelques familles de culture de bas rang.
+La région devant lui était considérée comme la zone sauvage du domaine sud. La plupart des planètes y étaient désertes et sans particularité. Les cultivateurs puissants s'y rendaient rarement. Cependant, des mortels y vivaient sur certaines planètes, aux côtés de quelques familles de cultivation de bas rang.
 
-« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière des Enfers. Et il est temps que je possède ma propre planète de culture dans le Système Stellaire d'Allheaven ! »
+« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière des Enfers. Et il est temps que je possède ma propre planète de cultivation dans le Système Stellaire d'Allheaven ! »
 
 Alors qu'il réfléchissait, ses yeux s'illuminèrent. Devant lui se trouvait une planète délaissée, mais pleine de vitalité, ce qui signifiait qu'une multitude de mortels y vivaient. La raison pour laquelle il avait choisi cet endroit était sa grande similitude avec la planète Suzaku !
 

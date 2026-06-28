@@ -14,7 +14,7 @@ Seul le regard du roi des moustiques changeait lorsqu'il se posait sur Wang Lin.
 
 En vérité, dans le cœur du roi des moustiques, Wang Lin était son parent.
 
-Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la culture des Nirvana Cleanser se dégageait d'elles.
+Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la cultivation des Nirvana Cleanser se dégageait d'elles.
 
 Avec le roi des moustiques menant une troupe de 5 000 bêtes, une force puissante était en train de se former. Les bêtes moustiques avaient progressivement accepté l'existence de Wang Lin, mais ce n'était qu'une acceptation superficielle. Dès que le roi des moustiques disparaîtrait, tout s'effondrerait instantanément.
 
@@ -26,13 +26,13 @@ La solitude qui régnait au sein de cette ancienne porte de pierre, conjuguée a
 
 Son cœur semblait lui aussi devenir antique.
 
-Ses presque 2 000 ans de culture étaient véritablement insignifiants comparés à cette porte de pierre. Cependant, alors que son esprit fusionnait avec elle, il percevait lentement dans son cœur le sentiment du passage du temps.
+Ses presque 2 000 ans de cultivation étaient véritablement insignifiants comparés à cette porte de pierre. Cependant, alors que son esprit fusionnait avec elle, il percevait lentement dans son cœur le sentiment du passage du temps.
 
 Tout comme lorsqu'un peintre contemple les montagnes, les mers et la vie, une structure vague apparaît d'abord dans son esprit. C'était semblable à cette existence floue qui habitait le cœur de Wang Lin. Bien qu'assis sur la porte de pierre, il ne regardait pas vers le bas ; au contraire, il ouvrit les yeux et fixa l'horizon.
 
 Son regard était aussi calme que la surface d'un puits. Malgré cette sérénité, une trace de nostalgie y résidait, se transformant inconsciemment en une ondulation qui ramenait à la surface les souvenirs enfouis de Wang Lin.
 
-À cet instant, il vit une planète de culture. Là-bas, un père marchait avec son enfant à travers les montagnes et les rivières. Ils parlaient et riaient en désignant divers sommets et cours d'eau.
+À cet instant, il vit une planète de cultivation. Là-bas, un père marchait avec son enfant à travers les montagnes et les rivières. Ils parlaient et riaient en désignant divers sommets et cours d'eau.
 
 Le père prit l'enfant par la main et ils continuèrent à conquérir montagne après montagne, à traverser rivières et lacs. Il prit également l'enfant et rugit au bord de l'océan, comme si leur cri provoquait les vagues géantes de l'abîme.
 
@@ -100,7 +100,7 @@ Cette scène insolite les empêcha de battre en retraite. Tous étaient sur le q
 
 Un jeune homme vêtu de noir murmura : « Les anciens de notre secte qui sont arrivés jusque-là ont dû voir cette porte. À en juger par son apparence, elle devait être un autel important du Royaume Céleste avant son effondrement. »
 
-« Il y a quelqu'un sur la porte ! » Li Yuanlei, qui possédait le niveau de culture le plus élevé, distinguait vaguement une silhouette assise sur la pierre à travers les milliers de moustiques.
+« Il y a quelqu'un sur la porte ! » Li Yuanlei, qui possédait le niveau de cultivation le plus élevé, distinguait vaguement une silhouette assise sur la pierre à travers les milliers de moustiques.
 
 Ses paroles firent trembler l'esprit de l'assemblée, et tous se tournèrent vers la scène avec incrédulité. Ils se concentrèrent et, un par un, ils aperçurent faiblement Wang Lin, assis sur la porte de pierre !
 

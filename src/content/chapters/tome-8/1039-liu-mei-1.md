@@ -2,7 +2,7 @@
 n: 1039
 title: Liu Mei (1)
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1039 - Liu Mei (1)
 slug: liu-mei-1
 ---
@@ -86,7 +86,7 @@ Il ne s'arrêta pas là. Tout en poursuivant son illumination, il étira son esp
 
 Il vit trop de cultivateurs et d'innombrables bêtes féroces qu'il n'avait jamais rencontrées ; il aperçut même des personnes qu'il avait connues par le passé.
 
-Ces rencontres n'arrêtèrent pas Wang Lin. Lui, à cet instant, était plongé dans un état étrange où il comprenait les lois avec une intensité frénétique. À mesure que son esprit grandissait, son niveau de culture atteignait également un sommet.
+Ces rencontres n'arrêtèrent pas Wang Lin. Lui, à cet instant, était plongé dans un état étrange où il comprenait les lois avec une intensité frénétique. À mesure que son esprit grandissait, son niveau de cultivation atteignait également un sommet.
 
 Atteindre le sommet du stade avancé de la Divination du Nirvana n'était pas difficile pour la plupart des cultivateurs de ce rang. Tant qu'ils observaient suffisamment de lois, ils atteignaient naturellement leur apogée.
 
@@ -96,11 +96,11 @@ L'esprit de Wang Lin continua sa progression et il vit une mer de flammes approc
 
 De vastes fissures apparaissaient dans l'espace par où passait l'Oiseau Vermillon, comme si la réalité pouvait s'effondrer d'un simple contact. Tous les météores qui s'approchaient de lui étaient réduits en cendres.
 
-Si ce n'était pour le fait que l'Oiseau Vermillon évitait les planètes de culture, bien trop de mondes se seraient effondrés sur son passage.
+Si ce n'était pour le fait que l'Oiseau Vermillon évitait les planètes de cultivation, bien trop de mondes se seraient effondrés sur son passage.
 
 Des rayons de flammes suivaient l'Oiseau Vermillon. À l'intérieur de chaque rayon, on trouvait des cultivateurs vêtus de rouge. Parmi eux se trouvaient des hommes et des femmes, ainsi que six Anciens dégageant une aura terrifiante en tête de procession.
 
-De loin, on aurait dit qu'il y avait pas moins de 1 000 cultivateurs derrière l'Oiseau Vermillon, et aucun d'eux n'avait un niveau de culture médiocre !
+De loin, on aurait dit qu'il y avait pas moins de 1 000 cultivateurs derrière l'Oiseau Vermillon, et aucun d'eux n'avait un niveau de cultivation médiocre !
 
 Ces individus se déplaçaient avec rapidité derrière l'oiseau flamboyant !
 
@@ -116,13 +116,13 @@ L'esprit de Wang Lin continua de s'étendre. Au centre de l'Alliance, il y avait
 
 Un bâtiment circulaire extrêmement vaste flottait parmi les étoiles, entouré d'au moins cent édifices plus petits. Des décharges d'éclairs noirs jaillissaient constamment, dégageant une pression étrange.
 
-C'était l'entrée de l'Alliance de la Culture. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
+C'était l'entrée de l'Alliance de la Cultivation. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
 
 L'esprit de Wang Lin atteignit ce lieu singulier. Il pénétra même l'entrée pour parvenir jusqu'au siège de l'Alliance.
 
-Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance de la Culture.
+Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance de la Cultivation.
 
-173 planètes de culture géantes formaient le siège de l'Alliance. 172 d'entre elles étaient disposées en cercle et n'étaient pas statiques ; elles se mouvaient lentement.
+173 planètes de cultivation géantes formaient le siège de l'Alliance. 172 d'entre elles étaient disposées en cercle et n'étaient pas statiques ; elles se mouvaient lentement.
 
 De loin, le siège de l'Alliance ressemblait à un système stellaire miniature.
 
@@ -132,4 +132,4 @@ Au centre de cet anneau planétaire se trouvait un vortex gigantesque. Ce vortex
 
 Au-dessus du vortex se trouvait la dernière des 173 planètes. Elle ne bougeait pas, mais flottait au-dessus du tourbillon, absorbant les gaz pourpres libérés par celui-ci.
 
-Ce vortex était d'une démesure telle qu'un cultivateur n'y serait qu'une fourmi. En réalité, le cultivateur serait plus petit qu'une fourmi et totalement invisible. Même la dernière planète de culture semblait véritablement insignifiante face à l'immensité du vortex.
+Ce vortex était d'une démesure telle qu'un cultivateur n'y serait qu'une fourmi. En réalité, le cultivateur serait plus petit qu'une fourmi et totalement invisible. Même la dernière planète de cultivation semblait véritablement insignifiante face à l'immensité du vortex.

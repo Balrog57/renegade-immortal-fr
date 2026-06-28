@@ -14,9 +14,9 @@ Le cœur de Wang Zhuo était empli de chagrin. Tout au long du périple, plus de
 
 Les pays environnants avaient tous succombé ; ils étaient soit détruits, soit devenus des vassaux du Clan des Immortels Délaissés.
 
-Les pays de culture de rang 3 n'étaient pas le principal champ de bataille pour le Clan des Immortels Délaissés ; ils n'étaient que des terrains d'entraînement pour leurs membres les plus faibles.
+Les pays de cultivation de rang 3 n'étaient pas le principal champ de bataille pour le Clan des Immortels Délaissés ; ils n'étaient que des terrains d'entraînement pour leurs membres les plus faibles.
 
-Le pays de Suzaku ne se souciait guère des pays de culture de rang 3. Au début, ils n'envoyaient que quelques cultivateurs au stade initial de la Formation de l'Âme, mais à mesure que la guerre faisait rage, ils retirèrent tous leurs émissaires et abandonnèrent totalement ces pays de rang 3.
+Le pays de Suzaku ne se souciait guère des pays de cultivation de rang 3. Au début, ils n'envoyaient que quelques cultivateurs au stade initial de la Formation de l'Âme, mais à mesure que la guerre faisait rage, ils retirèrent tous leurs émissaires et abandonnèrent totalement ces pays de rang 3.
 
 Aux yeux du pays de Suzaku, les cultivateurs de l'Âme Naissante étaient tout simplement trop faibles.
 
@@ -68,11 +68,11 @@ Les yeux du vieil homme étaient voilés de nostalgie lorsqu'il répondit : « I
 
 À l'instant même où ces mots furent prononcés, tous les autres, y compris l'homme robuste, tremblèrent et leurs yeux se remplirent de terreur.
 
-Dans le monde de la culture de Zhao, le nom de Wang Lin représentait une intention meurtrière capable de percer le ciel et une catastrophe de fin des temps.
+Dans le monde de la cultivation de Zhao, le nom de Wang Lin représentait une intention meurtrière capable de percer le ciel et une catastrophe de fin des temps.
 
 Ce jour-là, le sang avait coulé comme une rivière et la terre de Zhao avait été teinte de pourpre. Personne ne pouvait oublier cette journée.
 
-Même aujourd'hui, le fléau subi par la famille Teng était encore conté dans le monde de la culture de Zhao. Il restait gravé dans les cœurs et devenait l'objectif de nombreux jeunes cultivateurs.
+Même aujourd'hui, le fléau subi par la famille Teng était encore conté dans le monde de la cultivation de Zhao. Il restait gravé dans les cœurs et devenait l'objectif de nombreux jeunes cultivateurs.
 
 Au sommet d'une montagne, Wang Zhuo s'éveilla lentement. Ses yeux étaient d'abord empreints de confusion, mais celle-ci se dissipa peu à peu. Puis, il regarda calmement la silhouette blanche debout à ses côtés.
 
@@ -86,7 +86,7 @@ Wang Zhuo fixa Wang Lin tandis que les souvenirs du passé l'assaillaient, jusqu
 
 Wang Lin secoua la tête : « Seuls toi et moi subsistons du vieux clan Wang. Il n'y a pas de gratitude à avoir envers moi… »
 
-Wang Zhuo hésita un instant, puis demanda : « Vous… à quel niveau de culture êtes-vous… auriez-vous atteint le stade de la Transformation de l'Âme ? »
+Wang Zhuo hésita un instant, puis demanda : « Vous… à quel niveau de cultivation êtes-vous… auriez-vous atteint le stade de la Transformation de l'Âme ? »
 
 « Je n'ai pas encore atteint le stade de la Transformation de l'Âme. » Wang Lin regarda au loin.
 
@@ -100,19 +100,19 @@ Wang Lin secoua la tête. « Je n'étais pas sur la planète Suzaku ces sept der
 
 Le cœur de Wang Zhuo vacilla. Bien que Wang Lin l'ait dit avec désinvolture, cela lui parut insensé.
 
-Pas sur la planète Suzaku… Cela signifiait que le niveau de culture de Wang Lin pouvait franchir l'atmosphère même…
+Pas sur la planète Suzaku… Cela signifiait que le niveau de cultivation de Wang Lin pouvait franchir l'atmosphère même…
 
 Wang Zhuo prit une profonde inspiration et raconta à Wang Lin tout ce qu'il savait.
 
-L'expression de Wang Lin resta calme, mais son esprit était en tumulte. Le Clan des Immortels Délaissés avait envahi les lieux, et presque tous les pays de culture de rang 3 étaient tombés.
+L'expression de Wang Lin resta calme, mais son esprit était en tumulte. Le Clan des Immortels Délaissés avait envahi les lieux, et presque tous les pays de cultivation de rang 3 étaient tombés.
 
-Les pays de culture de rang 4 n'étaient pas non plus en sécurité. Le pays de Suzaku résistait de toutes ses forces, mais il était toujours repoussé.
+Les pays de cultivation de rang 4 n'étaient pas non plus en sécurité. Le pays de Suzaku résistait de toutes ses forces, mais il était toujours repoussé.
 
-La Secte des Cadavres soutenait pleinement le Clan des Immortels Délaissés, et cinq pays de culture de rang 4 avaient trahi Suzaku.
+La Secte des Cadavres soutenait pleinement le Clan des Immortels Délaissés, et cinq pays de cultivation de rang 4 avaient trahi Suzaku.
 
 Le Clan des Immortels Délaissés occupait déjà la moitié de la planète Suzaku.
 
-Wang Zhuo ajouta : « La rumeur dit que le Clan des Immortels Délaissés a envoyé neuf individus, et l'identité de cinq d'entre eux a déjà été révélée. Il en reste quatre, mais nul ne sait qui ils sont. Ils doivent provenir de pays de culture de rang 5 ou supérieur et occuper probablement des positions très élevées. »
+Wang Zhuo ajouta : « La rumeur dit que le Clan des Immortels Délaissés a envoyé neuf individus, et l'identité de cinq d'entre eux a déjà été révélée. Il en reste quatre, mais nul ne sait qui ils sont. Ils doivent provenir de pays de cultivation de rang 5 ou supérieur et occuper probablement des positions très élevées. »
 
 Wang Lin réfléchit. Il n'aurait jamais imaginé qu'en si peu de temps, un tel bouleversement puisse se produire.
 

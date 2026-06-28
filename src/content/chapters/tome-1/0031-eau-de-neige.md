@@ -16,7 +16,7 @@ Wang Hao soupira et, le visage empreint d'amertume, déclara : « Frère Tie Zhu
 
 « Comment peut-il cultiver si rapidement ? » Wang Lin n'avait pas vu Wang Zhuo depuis un certain temps et en était surpris. Il semblait que le talent jouait un rôle primordial.
 
-Wang Hao afficha une expression de colère et reprit : « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a supplié mon propre maître de lui fournir un lot de pilules d'Établissement des Fondations. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de culture augmente de façon draconienne. »
+Wang Hao afficha une expression de colère et reprit : « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a supplié mon propre maître de lui fournir un lot de pilules d'Établissement des Fondations. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de cultivation augmente de façon draconienne. »
 
 Wang Lin hocha la tête et demanda : « Quel est le rapport avec ton emprunt de talismanes ? »
 

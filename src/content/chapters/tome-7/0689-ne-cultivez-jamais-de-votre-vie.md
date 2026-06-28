@@ -120,7 +120,7 @@ Il détourna les yeux et demanda lentement : « Combien de temps comptez-vous ac
 
 Wang Lin réfléchit longuement avant de lever les yeux vers la lune et de répondre doucement : « Un cycle de réincarnation... »
 
-« Un cycle de réincarnation... » soupira Sun Tai. « Ne voulez-vous pas qu'il devienne un cultivateur ? Avec votre niveau de culture, vous pourriez lui offrir un chemin bien plus facile sur la voie de la culture. Il pourrait jouir d'un avantage supérieur à celui des descendants directs de grandes familles de cultivateurs. »
+« Un cycle de réincarnation... » soupira Sun Tai. « Ne voulez-vous pas qu'il devienne un cultivateur ? Avec votre niveau de cultivation, vous pourriez lui offrir un chemin bien plus facile sur la voie de la cultivation. Il pourrait jouir d'un avantage supérieur à celui des descendants directs de grandes familles de cultivateurs. »
 
 Un regard de dépit traversa les yeux de Wang Lin, qui déclara d'une voix feutrée : « Je ne le laisserai jamais cultiver de sa vie ! »
 
@@ -128,10 +128,10 @@ Sun Tai marqua une pause et tenta : « Le talent de cet enfant est exceptionnel.
 
 « Je ne le laisserai pas cultiver ! » répéta Wang Lin. Son regard se fixa sur Sun Tai avec une intensité implacable : « Jamais ! »
 
-Wang Lin se demanda intérieurement : *La culture, la culture... qu'y a-t-il au bout de ce chemin ?* Sa propre vie n'avait été qu'une succession d'instabilités et une route solitaire. Il refusait que son fils subisse le même sort.
+Wang Lin se demanda intérieurement : *La cultivation, la cultivation... qu'y a-t-il au bout de ce chemin ?* Sa propre vie n'avait été qu'une succession d'instabilités et une route solitaire. Il refusait que son fils subisse le même sort.
 
-Il connaissait trop bien la cruauté du monde de la culture, ses massacres et ses périls constants.
+Il connaissait trop bien la cruauté du monde de la cultivation, ses massacres et ses périls constants.
 
-« Ping Er a déjà subi trop de choses qu'un enfant ne devrait jamais connaître. Je l'ai nommé Wang Ping dans l'espoir que sa vie soit paisible et sûre. J'espérais qu'il devienne un simple mortel qui se marierait, élèverait des enfants et mènerait une existence tranquille... Désormais, ne parlez plus jamais de culture ! »
+« Ping Er a déjà subi trop de choses qu'un enfant ne devrait jamais connaître. Je l'ai nommé Wang Ping dans l'espoir que sa vie soit paisible et sûre. J'espérais qu'il devienne un simple mortel qui se marierait, élèverait des enfants et mènerait une existence tranquille... Désormais, ne parlez plus jamais de cultivation ! »
 
 La voix de Wang Lin était empreinte d'une résolution absolue. Elle ne changerait pas, car elle ne pouvait plus changer.

@@ -52,7 +52,7 @@ Du sang s'écoula du coin de sa bouche. Wang Lin sentit un impact puissant réso
 
 « Un second coup dévastateur... dix-huit sorts fusionnés en un seul assaut. Un unique coup suffit à isoler un espace du reste du monde. » Wang Lin leva les yeux et essuya le sang sur sa lèvre tout en fixant l'ancêtre du Secte du Dao Démoniaque.
 
-« Ton niveau de culture n'est pas élevé, mais ta puissance de combat atteint à peine celle d'un Exalté Empyréen. Pourtant, tu ignores comment les Exaltés Empyréens combattent. Je crois être le premier Exalté Empyréen auquel tu as fait face », déclara lentement l'ancêtre en avançant. Son regard envers Wang Lin devint plus sérieux.
+« Ton niveau de cultivation n'est pas élevé, mais ta puissance de combat atteint à peine celle d'un Exalté Empyréen. Pourtant, tu ignores comment les Exaltés Empyréens combattent. Je crois être le premier Exalté Empyréen auquel tu as fait face », déclara lentement l'ancêtre en avançant. Son regard envers Wang Lin devint plus sérieux.
 
 « Un cultivateur qui ignore les méthodes de combat des Exaltés Empyréens parvient à encaisser deux de mes coups... Cet homme n'est pas ordinaire ! »
 
@@ -64,13 +64,13 @@ L'ancêtre du Secte du Dao Démoniaque dit d'une voix posée : « Si tu parviens
 
 Wang Lin savait pertinemment que sans l'armure de l'âme, il ne survivrait pas. Ce coup était assez puissant pour l'anéantir totalement. Même son corps du Dao Antique ne pourrait résister ; il serait réduit en poussière !
 
-« Les Exaltés Empyréens... ils sont véritablement dignes d'être au sommet, juste sous les Ascendants Empyréens ! » Wang Lin ferma les yeux et le tatouage du Taureau Céleste sur son visage commença à se propager. Simultanément, sa culture explosa.
+« Les Exaltés Empyréens... ils sont véritablement dignes d'être au sommet, juste sous les Ascendants Empyréens ! » Wang Lin ferma les yeux et le tatouage du Taureau Céleste sur son visage commença à se propager. Simultanément, sa cultivation explosa.
 
-Cette aura émanant de l'âme du Taureau Céleste s'engouffra dans la chair et le corps de Wang Lin avec une fureur déchaînée. Elle pénétra également son âme originelle, faisant grimper instantanément son niveau de culture du stade initial de la Tribulation du Vide au stade intermédiaire. Mais ce n'était pas fini. Sa culture continua de progresser jusqu'au stade avancé de la Tribulation du Vide, puis atteignit le rang d'Exalté Doré avant de s'arrêter.
+Cette aura émanant de l'âme du Taureau Céleste s'engouffra dans la chair et le corps de Wang Lin avec une fureur déchaînée. Elle pénétra également son âme originelle, faisant grimper instantanément son niveau de cultivation du stade initial de la Tribulation du Vide au stade intermédiaire. Mais ce n'était pas fini. Sa cultivation continua de progresser jusqu'au stade avancé de la Tribulation du Vide, puis atteignit le rang d'Exalté Doré avant de s'arrêter.
 
 Ce changement soudain fit se contracter les pupilles de l'ancêtre pour la première fois.
 
-« Emprunter la force de l'âme ? C'est le pouvoir de l'âme du Taureau Céleste. Tu es donc reconnu par le Taureau Céleste ! Pour élever ta culture à un tel degré, tu dois être capable d'entendre la voix de son âme ! » L'expression de l'ancêtre changea radicalement !
+« Emprunter la force de l'âme ? C'est le pouvoir de l'âme du Taureau Céleste. Tu es donc reconnu par le Taureau Céleste ! Pour élever ta cultivation à un tel degré, tu dois être capable d'entendre la voix de son âme ! » L'expression de l'ancêtre changea radicalement !
 
 Il connaissait parfaitement les 72 âmes réprimées dans chacun des 72 continents. Bien que toutes fussent sous contrôle, le degré de répression et la puissance de chaque âme variaient d'un continent à l'autre.
 
@@ -92,7 +92,7 @@ Par conséquent, l'ancêtre du Secte du Dao Démoniaque n'avait jamais entendu p
 
 « Endurer deux de mes coups prouve qu'il est qualifié pour être un Exalté Empyréen. Et posséder une telle reconnaissance du Taureau Céleste... ceci... » L'ancêtre laissa transparaître une émotion qu'il avait contenue depuis longtemps.
 
-« Tout Grand Empereur Céleste qui verrait cet homme voudrait le prendre sous son aile... Je me demande quel niveau de culture il atteindra avec le pouvoir de l'armure de l'âme ! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
+« Tout Grand Empereur Céleste qui verrait cet homme voudrait le prendre sous son aile... Je me demande quel niveau de cultivation il atteindra avec le pouvoir de l'armure de l'âme ! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
 
 Dès que ce coup fut projeté, le poing contenant ses 27 sorts créa un trou noir gigantesque entre lui et Wang Lin. Ce gouffre semblait tout dévorer, engloutissant les ruines du Secte du Dao Démoniaque.
 

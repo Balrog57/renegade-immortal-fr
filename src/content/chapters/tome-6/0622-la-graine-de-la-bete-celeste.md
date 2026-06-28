@@ -12,11 +12,11 @@ slug: la-graine-de-la-bete-celeste
 
 Parmi les trois femmes devant le vieil homme, la petite sœur de Sun Yunshan, Sun Ruonan, murmura doucement : « Il… Il doit s'agir de Wang Lin ! »
 
-« Wang Lin !! » Le petit homme fut saisi de stupeur et son visage se voila immédiatement d'obscurité. Il n'aurait jamais imaginé que le jeune cultivateur qu'il avait voulu capturer sur un coup de tête pour en faire un gardien céleste ait atteint un tel niveau de culture. S'il l'avait su à l'époque, connaissant sa propre nature, il n'aurait jamais provoqué Wang Lin.
+« Wang Lin !! » Le petit homme fut saisi de stupeur et son visage se voila immédiatement d'obscurité. Il n'aurait jamais imaginé que le jeune cultivateur qu'il avait voulu capturer sur un coup de tête pour en faire un gardien céleste ait atteint un tel niveau de cultivation. S'il l'avait su à l'époque, connaissant sa propre nature, il n'aurait jamais provoqué Wang Lin.
 
 Le vieil homme réfléchit un instant avant de déclarer lentement : « Camarade cultivateur Wang, j'ai fait preuve d'imprudence plus tôt en vous offensant deux fois. Vous avez déjà tué deux de mes gardiens célestes, nous sommes donc quittes. Aujourd'hui, je ne vous compliquerai pas la tâche, vous pouvez partir ! Après ce jour, nos chemins ne se croiseront plus ! »
 
-En entendant ces paroles, les trois femmes furent surprises. Elles connaissaient bien ce vieil Ancêtre. Bien que son niveau de culture fût élevé, il était d'une grande mesquinerie. Or, alors qu'on frappait à sa porte, non seulement il n'attaquait pas, mais il laissait même Wang Lin s'en aller.
+En entendant ces paroles, les trois femmes furent surprises. Elles connaissaient bien ce vieil Ancêtre. Bien que son niveau de cultivation fût élevé, il était d'une grande mesquinerie. Or, alors qu'on frappait à sa porte, non seulement il n'attaquait pas, mais il laissait même Wang Lin s'en aller.
 
 C'était particulièrement vrai pour Sun Ruonan. Bien qu'elle ne sache que peu de choses sur Wang Lin, elle pensait que peu importe sa férocité, il ne pouvait égaler le vieil Ancêtre. Il fallait dire que l'Ancêtre était un être céleste ; un seul de ses sorts suffisait à piéger quatre cultivateurs au sommet de la phase de Transformation de l'Âme.
 
@@ -80,7 +80,7 @@ La rivière des enfers se dispersa brusquement pour former un vortex. Elle balay
 
 Le vieil homme surgit en trombe et flotta dans les airs. Les trois femmes qui cultivaient avec lui s'envolèrent également, observant la scène froidement de côté.
 
-L'expression du vieil homme était extrêmement fuyante ; il ne ressemblait pas à un cultivateur, mais plutôt à un voleur. Emporté par la colère, il hurla vers Wang Lin : « Wang Lin, j'ai enduré bien des choses car je ne voulais pas faire de toi mon ennemi, mais tu es vraiment ingrat ! Étant donné qu'il est difficile pour les cultivateurs du bas-monde d'atteindre ton niveau de culture, je vais te laisser une chance de survivre. Pars maintenant, mais si tu continues à m'irriter, ne me reproche pas de t'exterminer sans pitié ! »
+L'expression du vieil homme était extrêmement fuyante ; il ne ressemblait pas à un cultivateur, mais plutôt à un voleur. Emporté par la colère, il hurla vers Wang Lin : « Wang Lin, j'ai enduré bien des choses car je ne voulais pas faire de toi mon ennemi, mais tu es vraiment ingrat ! Étant donné qu'il est difficile pour les cultivateurs du bas-monde d'atteindre ton niveau de cultivation, je vais te laisser une chance de survivre. Pars maintenant, mais si tu continues à m'irriter, ne me reproche pas de t'exterminer sans pitié ! »
 
 Le regard de Wang Lin se fit glacial, mais il garda le silence. Au lieu de cela, il pointa son doigt vers l'avant et un « Doigt de la Mort » chargea vers le vieil homme.
 
@@ -98,7 +98,7 @@ Bien que les cultivateurs alentour n'eussent aucune idée de ce qu'il entendait 
 
 Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lors de sa coopération avec un disciple du Secte de l'Épée Da Lou ! Il n'en avait pas parlé à Sun Yunshan.
 
-Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa culture au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui justifiait son comportement.
+Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa cultivation au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui justifiait son comportement.
 
 « Dévorez-le ! » hurla le vieil homme en formant un sceau pointé vers les innombrables filaments bleus.
 

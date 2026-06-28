@@ -96,11 +96,11 @@ Kunpeng Zi s'agenouilla dans les airs et s'inclina devant l'All-Seer. « Discipl
 
 L'All-Seer hocha la tête, puis pointa l'espace entre ses sourcils. Une lumière jaune jaillit, faisant briller intensément les yeux de l'All-Seer. Bientôt, un cristal jaune apparut dans sa main.
 
-« Je présume que cet objet ne t'est pas inconnu. C'est le symbole des Sept Disciples du Destin Céleste. Entre en culture de porte close pendant plusieurs années pour l'étudier. À ta sortie, je te remettrai un autre trésor de protection ! »
+« Je présume que cet objet ne t'est pas inconnu. C'est le symbole des Sept Disciples du Destin Céleste. Entre en cultivation de porte close pendant plusieurs années pour l'étudier. À ta sortie, je te remettrai un autre trésor de protection ! »
 
 Kunpeng Zi prit une profonde inspiration, s'efforçant de réprimer son excitation. Bien qu'il sache depuis un moment qu'il obtiendrait le titre, il avait encore l'impression de rêver.
 
-En réalité, il savait au fond de lui que les autres disciples de la Division Jaune n'étaient pas faibles et que chacun d'eux excellait dans l'art de dissimuler sa culture. À moins d'un véritable combat, il serait impossible de percer leurs secrets.
+En réalité, il savait au fond de lui que les autres disciples de la Division Jaune n'étaient pas faibles et que chacun d'eux excellait dans l'art de dissimuler sa cultivation. À moins d'un véritable combat, il serait impossible de percer leurs secrets.
 
 S'ils devaient lutter, il n'aurait aucune confiance en sa victoire, d'autant plus que la Division Jaune comptait le frère aîné Yundao Zi.
 

@@ -26,7 +26,7 @@ Un langage complexe, semblable à celui des humains, s'entremêlait à ce rugiss
 
 Le vieillard en robe rouge pointa le ciel et fusionna avec la formation octogonale. La formation resta suspendue au-dessus du Serpent Moongazer et fit pleuvoir sur lui un tonnerre flamboyant. Simultanément, les éclairs rouges émanant des quatre jeunes restreignaient étroitement les mouvements de la créature.
 
-L'homme en robe noire se métamorphosa en un aigle géant de mille pieds. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent Moongazer, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven !
+L'homme en robe noire se métamorphosa en un aigle géant de mille pieds. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent Moongazer, l'attaquant de ses griffes. Même une véritable planète de cultivation s'effondrerait facilement sous la puissance de ses assauts. Sa cultivation était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven !
 
 L'ancêtre de la famille Shengong s'approcha du Serpent Moongazer en un seul pas. En ouvrant les bras, des filaments de tonnerre parcoururent son corps avec frénésie. Le tonnerre jaillissait sous forme de dragons tonnerreux et, bien qu'ils ne fussent pas issus d'un ancien dragon de tonnerre, ils provenaient d'un esprit du tonnerre !
 
@@ -82,7 +82,7 @@ Cet effondrement généra une force inimaginable qui frôla Wang Lin avant de ch
 
 Alors que la tempête s'engouffrait dans le vortex, une lueur rouge émergea. C'était la silhouette du Dieu du Sang qui se condensait rapidement. Après avoir pénétré le Serpent Moongazer, il avait continué son œuvre de destruction jusqu'à trouver ce lieu. À peine avait-il repris forme que la puissance du dieu ancien l'atteignit de plein fouet.
 
-Malgré sa culture, le Dieu du Sang poussa un gémissement et son corps s'effondra brusquement. Une force démoniaque se répandit soudainement pour l'aider à parer l'impact. L'ombre démoniaque qui se forma fut saisie de choc et s'écroula aussitôt, repoussée avec le Dieu du Sang hors du vortex.
+Malgré sa cultivation, le Dieu du Sang poussa un gémissement et son corps s'effondra brusquement. Une force démoniaque se répandit soudainement pour l'aider à parer l'impact. L'ombre démoniaque qui se forma fut saisie de choc et s'écroula aussitôt, repoussée avec le Dieu du Sang hors du vortex.
 
 Lorsque le corps du Dieu du Sang se reforma, son visage était d'une pâleur extrême et il cracha un flot de sang. Il recula précipitamment, la toux persistante. Il paraissait très affaibli, son âme originelle ayant été gravement blessée ! S'il n'avait pas eu le démon lié à son âme, il serait mort sur le coup !
 

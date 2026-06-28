@@ -22,7 +22,7 @@ Ces mots décrivaient parfaitement la véritable nature de Wang Lin.
 
 C'était semblable à ce qu'il avait vécu sur la planète Suzaku, lorsqu'il avait pu déceler le Domaine de l'Illusion Impitoyable de Liu Mei à travers les deux personnalités distinctes de ses deux disciples féminines.
 
-Bien que les cieux n'aient pas doté Wang Lin d'un talent de culture exceptionnel, sa sagesse avait été affinée par le temps, lui permettant d'acquérir une ruse bien au-delà de son âge. Tout cela n'était que cause et effet, créant un équilibre dans les cieux.
+Bien que les cieux n'aient pas doté Wang Lin d'un talent de cultivation exceptionnel, sa sagesse avait été affinée par le temps, lui permettant d'acquérir une ruse bien au-delà de son âge. Tout cela n'était que cause et effet, créant un équilibre dans les cieux.
 
 Wang Lin agita la main et le sac de rangement laissé par Yao Xixue vola vers sa paume. Il déploya son sens divin et constata que la quantité de jades était effectivement suffisante pour lui permettre d'atteindre le stade avancé de la Transformation de l'Âme, comme l'avait affirmé Yao Xixue.
 
@@ -70,7 +70,7 @@ C'était la première fois que Wang Lin faisait face à un tel phénomène. Son 
 
 C'était comme si un mortel regardait dans un miroir et ne voyait que tout ce qui l'entourait, sauf son propre reflet.
 
-Yao Xixue dit froidement : « Inutile de chercher. À moins d'avoir le niveau de culture d'un général démon, il est impossible de la détecter ! »
+Yao Xixue dit froidement : « Inutile de chercher. À moins d'avoir le niveau de cultivation d'un général démon, il est impossible de la détecter ! »
 
 Wang Lin rétracta son sens divin et admira grandement cette formation. Il demanda : « Cette formation a-t-elle été créée par votre père, l'Ancêtre Sanguin ? »
 
@@ -112,7 +112,7 @@ Un sentier sinueux et escarpé, d'environ dix pieds de large, s'étirait au loin
 
 Wang Lin se tenait sur une plateforme d'environ mille pieds de large où le tableau de transfert avait été secrètement gravé.
 
-Il comprit que Yao Xixue était venue ici maintes fois. Elle s'assit en position du lotus sur la plateforme et dit à Wang Lin : « Méditez pour comprendre votre domaine. Ce n'est qu'en obtenant la marque de qualification que l'on pourra marcher sur le Chemin de la Bête Révérée ! » Sans un mot de plus, elle ferma les yeux et commença sa culture.
+Il comprit que Yao Xixue était venue ici maintes fois. Elle s'assit en position du lotus sur la plateforme et dit à Wang Lin : « Méditez pour comprendre votre domaine. Ce n'est qu'en obtenant la marque de qualification que l'on pourra marcher sur le Chemin de la Bête Révérée ! » Sans un mot de plus, elle ferma les yeux et commença sa cultivation.
 
 Wang Lin observa les alentours puis avança. Il s'arrêta devant le sentier sinueux et vide, affichant une expression grave.
 

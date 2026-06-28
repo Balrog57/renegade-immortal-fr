@@ -38,7 +38,7 @@ Tandis qu'ils volaient, la femme demanda d'une voix suave : « Maître, où nous
 
 Le vieil homme ne répondit pas et continua sa progression jusqu'aux profondeurs du Royaume du Brouillard des Bêtes du Chaos. Ce n'est qu'alors qu'il s'arrêta et se retourna vers les trois disciples.
 
-« Vous êtes tous les disciples principaux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de culture, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons ! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
+« Vous êtes tous les disciples principaux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de cultivation, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons ! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
 
 Le vieil homme s'assit et réfléchit en silence, tandis que son sens divin se déployait pour observer ses trois disciples. À moins qu'ils ne soient réellement face à la mort, il n'interviendrait pas.
 
@@ -64,7 +64,7 @@ Cette centipède était plutôt laide, et les deux pinces géantes sur les côt�
 
 Dès l'apparition de la créature, les bêtes environnantes détectées par le sens divin de Wang Lin cessèrent de rugir et se dispersèrent. C'était comme si cette centipède était le roi de la zone et que sa présence imposait la retraite aux autres bêtes.
 
-Les yeux de Wang Lin étaient calmes. Grâce à son niveau de culture, il vit immédiatement que cette centipède était de rang 11, ce qui équivalait à un cultivateur du stade Nirvana Shatterer de niveau intermédiaire. Wang Lin fut surpris qu'une bête de ce niveau ose se dresser devant l'Empreinte de l'Esprit Guerrier.
+Les yeux de Wang Lin étaient calmes. Grâce à son niveau de cultivation, il vit immédiatement que cette centipède était de rang 11, ce qui équivalait à un cultivateur du stade Nirvana Shatterer de niveau intermédiaire. Wang Lin fut surpris qu'une bête de ce niveau ose se dresser devant l'Empreinte de l'Esprit Guerrier.
 
 En un instant, la centipède rouge jaillit du brouillard en poussant un sifflement strident. Ce cri était assourdissant et résonnait comme un tonnerre grondant, faisant tourbillonner le brouillard environnant avec une violence accrue.
 

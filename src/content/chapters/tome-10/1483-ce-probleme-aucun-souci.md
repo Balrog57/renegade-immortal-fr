@@ -24,7 +24,7 @@ Il était arrivé sur la planète Dong Ling pour la première fois aux côtés d
 
 Si ce n'avait été le Doigt de la Mort, Wang Lin serait depuis longtemps mort !
 
-À mesure que son niveau de culture augmentait et qu'il comprenait la difficulté de ressusciter Li Muwan, Wang Lin découvrit peu à peu que tout ce que l'Ancêtre de la famille Xiang avait affirmé n'était que mensonge. Il n'avait aucun moyen de ressusciter Li Muwan ! Si Wang Lin n'avait pas trouvé ce cercueil, le moindre espoir de réveil pour elle aurait été anéanti !
+À mesure que son niveau de cultivation augmentait et qu'il comprenait la difficulté de ressusciter Li Muwan, Wang Lin découvrit peu à peu que tout ce que l'Ancêtre de la famille Xiang avait affirmé n'était que mensonge. Il n'avait aucun moyen de ressusciter Li Muwan ! Si Wang Lin n'avait pas trouvé ce cercueil, le moindre espoir de réveil pour elle aurait été anéanti !
 
 La vitalité injectée par l'Ancêtre était précisément la raison pour laquelle l'âme de Li Muwan avait été si gravement endommagée !
 
@@ -32,7 +32,7 @@ L'Ancêtre tentait de détruire Li Muwan tout en volant sa vitalité !
 
 L'idée de Wang Lin d'injecter de la vitalité à Li Muwan aurait été la bonne, si elle avait été exécutée avec la méthode adéquate. Le réveil de Li Muwan n'en aurait pas été moins difficile, mais il n'aurait pas été impossible comme aujourd'hui !
 
-Pourtant, les méthodes sinistres de la famille Xiang avaient tout gâché. À l'époque, sa culture était insuffisante et il ne comprenait pas encore l'ampleur du stratagème. Aujourd'hui, mille ans plus tard, il voyait clair dans leur jeu, et sa haine était devenue monstrueuse !
+Pourtant, les méthodes sinistres de la famille Xiang avaient tout gâché. À l'époque, sa cultivation était insuffisante et il ne comprenait pas encore l'ampleur du stratagème. Aujourd'hui, mille ans plus tard, il voyait clair dans leur jeu, et sa haine était devenue monstrueuse !
 
 L'Ancêtre l'avait su dès le début !
 

@@ -60,7 +60,7 @@ Cependant, il n'eut pas le temps de faire deux pas qu'une main invisible le sais
 
 Le sac vola vers le jeune homme.
 
-Ce jeune homme était Wang Lin. L'énergie spirituelle dans la cage aquatique avait enfin réussi à s'infiltrer par une brèche, lui permettant de reconstituer un peu de culture en son sein.
+Ce jeune homme était Wang Lin. L'énergie spirituelle dans la cage aquatique avait enfin réussi à s'infiltrer par une brèche, lui permettant de reconstituer un peu de cultivation en son sein.
 
 Toutefois, cette énergie était dérisoire. Après avoir surgi pour tuer ces deux hommes, il avait presque épuisé les réserves qu'il avait accumulées. Il se dépêcha de verser le reste de l'énergie spirituelle dans son sac.
 
@@ -110,7 +110,7 @@ Au bout d'une journée, l'écoulement cessa progressivement. Les villageois cess
 
 Wang Lin les ignora. Avec l'aide de la bête, il retourna dans la prison, qui ressemblait désormais à un puits profond.
 
-Installé au fond, il ferma les yeux pour entamer sa culture.
+Installé au fond, il ferma les yeux pour entamer sa cultivation.
 
 Le moustique restait aux côtés de Wang Lin pour le protéger. Quiconque tentait de s'approcher jouait avec sa vie.
 
@@ -132,6 +132,6 @@ Un jour, Wang Lin ouvrit les yeux au fond du puits. Toutes ses blessures étaien
 
 Après réflexion, Wang Lin s'enfonça plus profondément dans l'eau. Lorsqu'il cultivait, il flottait à la surface sans couler.
 
-Sa culture s'étant légèrement stabilisée, il décida de mener une exploration. Toutefois, son niveau actuel étant trop bas, il se fit la promesse d'appeler la bête moustique en cas de danger.
+Sa cultivation s'étant légèrement stabilisée, il décida de mener une exploration. Toutefois, son niveau actuel étant trop bas, il se fit la promesse d'appeler la bête moustique en cas de danger.
 
 Bientôt, il plongea dans les profondeurs de l'eau cristalline. Mais malgré la clarté de l'eau, le fond du puits était recouvert d'une épaisse couche de boue noire.

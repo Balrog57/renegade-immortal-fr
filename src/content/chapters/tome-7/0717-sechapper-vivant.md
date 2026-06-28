@@ -12,7 +12,7 @@ Ce doigt illusoire semblait être issu du Dao céleste ; il était comme une ext
 
 Ce n'était pas un simple Dao qu'un cultivateur pouvait appréhender. En réalité, il était infiniment plus puissant que tout ce qu'un individu pouvait concevoir !
 
-Bien que le sommet de la culture de Greed ne fût que l'Illusion Yin, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
+Bien que le sommet de la cultivation de Greed ne fût que l'Illusion Yin, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de cultivation.
 
 Il fut capable de discerner d'un seul regard le Dao terrifiant contenu dans ce doigt.
 
@@ -150,7 +150,7 @@ Il ne comprenait pas et laissa échapper un soupir. Après avoir vérifié l'ét
 
 Après avoir médité un instant, Wang Lin cessa d'hésiter et s'élança en avant.
 
-« D'abord, je dois trouver un endroit pour me retirer en culture fermée afin de raffiner cet os et voir s'il peut compléter la perle défiant le ciel. Ensuite, je devrai m'atteler à la formation d'un nouveau corps. »
+« D'abord, je dois trouver un endroit pour me retirer en cultivation fermée afin de raffiner cet os et voir s'il peut compléter la perle défiant le ciel. Ensuite, je devrai m'atteler à la formation d'un nouveau corps. »
 
 Les yeux de Wang Lin brillèrent alors qu'il fonçait vers l'espace infini qui s'étendait devant lui.
 
@@ -206,7 +206,7 @@ Wang Lin ayant laissé un fragment de son Sens Divin sur la garde céleste, il p
 
 Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment de bien-être.
 
-« Cet endroit est parfait pour établir une grotte de culture ! » Les yeux de Wang Lin s'illuminèrent. Il récupéra l'os du Serpent Moongazer et rejoignit la garde céleste. Bientôt, la petite planète apparut devant lui.
+« Cet endroit est parfait pour établir une grotte de cultivation ! » Les yeux de Wang Lin s'illuminèrent. Il récupéra l'os du Serpent Moongazer et rejoignit la garde céleste. Bientôt, la petite planète apparut devant lui.
 
 « J'ai trouvé ce lieu grâce à mon âme originelle. En étant ici, mes blessures guérissent extrêmement vite ! » Songea Wang Lin tandis que la garde céleste lui frayait un chemin vers l'astre.
 

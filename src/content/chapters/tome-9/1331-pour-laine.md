@@ -24,7 +24,7 @@ Il ressentit un vague sentiment de crise.
 
 « Puisque ce Qi Zhi a pu devenir un vieux monstre de l'Âme Naissante, on ne peut le sous-estimer. Les simples restrictions à l'entrée de la grotte ne sont pas banales. » Il interrompit le cultivateur de la Formation du Noyau et dit d'une voix sombre :
 
-« Camarade Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte du Tonnerre Céleste. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classements du Tonnerre Dispersé. Je demande au Camarade Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre ; il avait insufflé toute sa culture de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
+« Camarade Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte du Tonnerre Céleste. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classements du Tonnerre Dispersé. Je demande au Camarade Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre ; il avait insufflé toute sa cultivation de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
 
 À peine sa voix eut-elle fini de résonner que la porte de la grotte gronda et s'ouvrit. Quelque chose fut projeté dehors : c'était Qi Zhi, plongé dans le coma.
 
@@ -48,11 +48,11 @@ Les trois cultivateurs de la Formation du Noyau ressentirent également que quel
 
 Ce regard fit rater un battement au cœur de Qiu Dehai. Sans hésiter, il agita la main pour projeter les trois cultivateurs de la Formation du Noyau vers Wang Lin afin de s'en servir de bouclier. Il recula précipitamment, trempé de sueur froide, alors qu'il s'apprêtait à se téléporter.
 
-Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de gaspiller leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
+Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de gaspiller leur cultivation ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
 
 Wang Lin ignora ces cultivateurs de l'Âme Naissante en pleine téléportation et agita sa main droite. Les trois cultivateurs de la Formation du Noyau poussèrent des cris déchirants alors que les marques entre leurs sourcils s'effondraient, libérant une multitude de trésors. Wang Lin les ramassa tous avant de s'élever dans les airs.
 
-Les trois cultivateurs crachèrent du sang et s'effondrèrent un à un, leurs noyaux ayant tous été brisés. Bien qu'ils ne fussent pas morts, leur culture était définitivement perdue !
+Les trois cultivateurs crachèrent du sang et s'effondrèrent un à un, leurs noyaux ayant tous été brisés. Bien qu'ils ne fussent pas morts, leur cultivation était définitivement perdue !
 
 Qiu Dehai entendit ces cris plaintifs après sa téléportation. Le frisson qui lui parcourait l'échine s'intensifia et il n'hésita pas à bondir de nouveau dans l'espace.
 
@@ -86,7 +86,7 @@ Les deux hommes coururent comme des déments, utilisant la téléportation sans 
 
 Le visage de Qiu Dehai était livide de peur. Il voulut parler, mais la voix qui les terrifiait résonna une nouvelle fois :
 
-« Continuez à appeler à l'aide et convoquez tous les cultivateurs de l'Âme Naissante de votre Secte du Tonnerre Céleste... Emmenez-moi dans votre secte ; sinon... je réduirai votre culture à néant ! »
+« Continuez à appeler à l'aide et convoquez tous les cultivateurs de l'Âme Naissante de votre Secte du Tonnerre Céleste... Emmenez-moi dans votre secte ; sinon... je réduirai votre cultivation à néant ! »
 
 L'homme d'âge mûr sortit un jade et le brisa pour demander de l'aide, avant même Qiu Dehai. Il détestait ce dernier jusqu'à la moelle et s'il ne pouvait pas entraîner d'autres personnes dans sa chute, il ne pourrait apaiser sa rage.
 
@@ -106,10 +106,10 @@ La secte entière fut plongée dans un silence de mort. Certains cultivateurs pl
 
 « Aîné, Aîné, vous êtes enfin arrivé !! » Dans ce silence pesant, un homme surgit soudainement. Il était mince et d'apparence ordinaire, mais il se trouvait au début du stade de la Formation de l'Âme. Ses yeux brillaient d'une excitation pure alors qu'il fixait Wang Lin.
 
-« Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan du Tonnerre Dispersé, même le Chef du Clan, ne sauraient vous égaler à votre âge.
+« Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre cultivation est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma cultivation augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan du Tonnerre Dispersé, même le Chef du Clan, ne sauraient vous égaler à votre âge.
 
 « Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle !!! »
 
-Même avec sa culture, Wang Lin ne put s'empêcher d'être surpris par les paroles de cet homme chétif, et il ne put s'empêcher de penser à Xu Liguo.
+Même avec sa cultivation, Wang Lin ne put s'empêcher d'être surpris par les paroles de cet homme chétif, et il ne put s'empêcher de penser à Xu Liguo.
 
 En vérité, il n'était pas le seul. Si n'importe quel autre cultivateur avait été témoin de cette scène, il en aurait été tout aussi stupéfait.

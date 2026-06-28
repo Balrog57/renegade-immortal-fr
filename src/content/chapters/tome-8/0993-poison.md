@@ -2,7 +2,7 @@
 n: 993
 title: Poison
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 993 - Poison
 slug: poison
 ---
@@ -16,11 +16,11 @@ Le Doigt du Tremblement de Montagne de Situ Nan, qui avait rassemblé toutes les
 
 Situ Nan rit et recula. Une lueur d'admiration dans ses yeux tandis qu'il souriait : « Cela fait bien longtemps que nous ne nous sommes pas vus. Wang Lin, je ne t'ai pas vu depuis des centaines d'années, et tu m'as vraiment surpris aujourd'hui ! »
 
-Wang Lin recula également en riant : « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années ! »
+Wang Lin recula également en riant : « On dirait que tu as dû te lancer dans une cultivation intensive en porte fermée durant ces centaines d'années ! »
 
 Les deux se regardèrent et sourirent joyeusement. Wang Lin n'avait pas ressenti un tel bonheur depuis longtemps. Ces retrouvailles avec Situ Nan lui rappelaient leur longue amitié, réchauffant son cœur.
 
-Situ Nan était resté le même. Arrogant, il avait très peu d'amis proches et, même ceux qu'il avait, il avait perdu de vue depuis longtemps. Wang Lin était spécial à ses yeux, car ils avaient traversé ensemble de nombreuses épreuves de vie ou de mort. Voir que la culture de Wang Lin avait atteint un tel degré le rendait profondément heureux.
+Situ Nan était resté le même. Arrogant, il avait très peu d'amis proches et, même ceux qu'il avait, il avait perdu de vue depuis longtemps. Wang Lin était spécial à ses yeux, car ils avaient traversé ensemble de nombreuses épreuves de vie ou de mort. Voir que la cultivation de Wang Lin avait atteint un tel degré le rendait profondément heureux.
 
 Sur l'invitation de Wang Lin, les deux s'envolèrent vers l'horizon, laissant les autres perplexes.
 
@@ -32,13 +32,13 @@ Tous se dispersèrent. À cet instant, Wang Lin et Situ Nan s'assirent au sommet
 
 Une table en jade blanc trônait entre eux, avec un pichet de vin et divers objets apportés par Situ Nan. Après avoir bu une gorgée, il s'exclama : « Je ne pensais pas que tant de choses se produiraient après ton départ pour la planète Tian Yun. Il aurait été préférable que tu me suives pour profiter de la vie en roi. »
 
-Wang Lin prit sa coupe, en but une gorgée, puis secoua la tête : « Si ce n'était pour certains imprévus sur le chemin de la planète Tian Yun, je n'en serais pas à mon niveau de culture actuel. »
+Wang Lin prit sa coupe, en but une gorgée, puis secoua la tête : « Si ce n'était pour certains imprévus sur le chemin de la planète Tian Yun, je n'en serais pas à mon niveau de cultivation actuel. »
 
 Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe en riant : « J'ai entendu parler de la guerre entre Allheaven et l'Alliance sur la planète Feng Luan, ainsi que de la renommée du Céleste du Tonnerre d'Allheaven. Je ne m'attendais pas à ce que ce soit toi ! »
 
 Le visage de Wang Lin resta impassible et il sourit simplement : « J'ai juste eu de la chance. »
 
-« Pourtant, ta culture est un peu étrange. Tu n'es qu'au pic du stade intermédiaire du Nirvana Scryer, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Nirvana Cleanser, son talent était prodigieux. Il avait également étudié avec acharnement durant sa culture en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Nirvana Cleanser, bien que le prix à payer fût lourd.
+« Pourtant, ta cultivation est un peu étrange. Tu n'es qu'au pic du stade intermédiaire du Nirvana Scryer, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Nirvana Cleanser, son talent était prodigieux. Il avait également étudié avec acharnement durant sa cultivation en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Nirvana Cleanser, bien que le prix à payer fût lourd.
 
 Le combat entre Wang Lin et Situ Nan n'avait été qu'un simple échange amical. Cependant, Situ Nan pouvait évidemment ressentir une puissance terrifiante dissimulée en Wang Lin. Malgré son arrogance habituelle, il en était secoué.
 
@@ -80,23 +80,23 @@ Sous la brise montagnarde, ils burent verre après verre. Après un moment de si
 
 Un homme peut se passer d'une amante, mais il ne peut se passer d'un véritable ami.
 
-Situ Nan ne posa aucune question supplémentaire sur l'étrangeté de la culture de Wang Lin. Il interrompit ses pensées en prenant une coupe et en souriant : « Que dire de plus entre nous, mon frère ? Quand j'étais en difficulté sur la planète Feng Luan, j'ai d'abord pensé à toi. Plus tard, toi et moi, nous retournerons sur la planète Feng Luan en faisant notre chemin dans le sang ! »
+Situ Nan ne posa aucune question supplémentaire sur l'étrangeté de la cultivation de Wang Lin. Il interrompit ses pensées en prenant une coupe et en souriant : « Que dire de plus entre nous, mon frère ? Quand j'étais en difficulté sur la planète Feng Luan, j'ai d'abord pensé à toi. Plus tard, toi et moi, nous retournerons sur la planète Feng Luan en faisant notre chemin dans le sang ! »
 
 Wang Lin sourit et acquiesça sans chercher à en savoir plus. Il discuta avec Situ Nan au fil des coupes de vin jusqu'au cœur de la nuit. La lune brillait intensément dans le ciel. Malgré la fraîcheur, un calme profond régnait. Parler de la vie avec un ami apportait une paix infinie à l'esprit de Wang Lin.
 
 Il n'avait pas ressenti cette chaleur depuis très longtemps. Ce genre de chaleur surgit naturellement auprès des vieux amis. C'était comme s'il était revenu sur la planète Suzaku, là où ses destins et ceux de Situ Nan étaient liés.
 
-« Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je croise le regard de ces maudites femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié ; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
+« Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je croise le regard de ces maudites femmes. Ce n'était pas grand-chose dans le monde de la cultivation... Je ne m'en suis pas soucié ; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
 
-« C'est tout ce que j'ai fait, et pourtant, ils ont lancé un ordre de mise à mort pour me traquer jour et nuit ! Cela m'a forcé à me cacher, et je ne pouvais même plus agir comme un roi en paix... Finalement, j'ai dû changer de lieu de culture sans cesse. Ces dernières centaines d'années, j'ai été comme une souris fuyant d'une planète à l'autre. Des planètes riches en énergie spirituelle ou des mondes déserts, je les ai toutes parcourues. »
+« C'est tout ce que j'ai fait, et pourtant, ils ont lancé un ordre de mise à mort pour me traquer jour et nuit ! Cela m'a forcé à me cacher, et je ne pouvais même plus agir comme un roi en paix... Finalement, j'ai dû changer de lieu de cultivation sans cesse. Ces dernières centaines d'années, j'ai été comme une souris fuyant d'une planète à l'autre. Des planètes riches en énergie spirituelle ou des mondes déserts, je les ai toutes parcourues. »
 
-Situ Nan s'emporta en parlant, saisit une cruche et but avec véhémence. Puis il la reposa et ajouta avec haine : « Après être sorti de ma culture en porte fermée, j'ai massacré mon chemin vers la planète Feng Luan, mais ils étaient trop nombreux. Et ils avaient trouvé des renforts, ce qui m'a causé de lourdes pertes ! » En arrivant à ce point, le visage de Situ Nan devint brusquement rouge.
+Situ Nan s'emporta en parlant, saisit une cruche et but avec véhémence. Puis il la reposa et ajouta avec haine : « Après être sorti de ma cultivation en porte fermée, j'ai massacré mon chemin vers la planète Feng Luan, mais ils étaient trop nombreux. Et ils avaient trouvé des renforts, ce qui m'a causé de lourdes pertes ! » En arrivant à ce point, le visage de Situ Nan devint brusquement rouge.
 
 Wang Lin devina grossièrement l'histoire avant que ses yeux ne se rétrécissent et qu'il ne fronce les sourcils. Il saisit la main droite de Situ Nan et déploya soigneusement son Sens Divin. Après un long moment, l'expression de Wang Lin devint encore plus troublante.
 
 Situ Nan eut un sourire amer, but une coupe et demanda : « Tu as compris ? »
 
-Wang Lin réfléchit un instant, une lueur de froideur et une intention meurtrière monstrueuse perçant dans son regard. Il acquiesça : « Quel genre de poison est si puissant que tu ne peux l'expulser malgré ta culture ? »
+Wang Lin réfléchit un instant, une lueur de froideur et une intention meurtrière monstrueuse perçant dans son regard. Il acquiesça : « Quel genre de poison est si puissant que tu ne peux l'expulser malgré ta cultivation ? »
 
 Situ Nan posa sa coupe et eut un sourire désabusé : « Je ne sais pas d'où ces maudites femmes de la planète Feng Luan ont tiré ce poison. J'ai consulté de nombreux registres pour découvrir qu'il s'appelle le Septième Ciel. Trois jours de paradis, puis trois jours d'enfer ! Maudit soit, durant ces jours-là, j'ai vraiment souhaité mourir ! »
 
@@ -104,6 +104,6 @@ Situ Nan posa sa coupe et eut un sourire désabusé : « Je ne sais pas d'où ce
 
 « L'effet principal du Septième Ciel réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton âme originelle est totalement détruite !
 
-« Bien qu'il faille sept jours pour mourir, dès l'instant de l'empoisonnement, on perd toute sa culture... »
+« Bien qu'il faille sept jours pour mourir, dès l'instant de l'empoisonnement, on perd toute sa cultivation... »
 
-« Alors, toi... » Wang Lin regarda Situ Nan. Il était évident que ce dernier n'avait pas perdu sa culture.
+« Alors, toi... » Wang Lin regarda Situ Nan. Il était évident que ce dernier n'avait pas perdu sa cultivation.

@@ -18,7 +18,7 @@ Wang Lin la relâcha. Il balaya la pièce du regard, puis s'assit sur une chaise
 
 Un léger sourire apparut sur les lèvres de Wang Lin : « Ma Liang n'était qu'un corps possédé. Voici mon véritable corps. »
 
-Li Muwan cligna des yeux et demanda précipitamment : « Ton vrai nom est donc Wang Lin ? Et pourquoi ton niveau de culture actuel est-il si différent de celui que j'ai vu il y a peu ? »
+Li Muwan cligna des yeux et demanda précipitamment : « Ton vrai nom est donc Wang Lin ? Et pourquoi ton niveau de cultivation actuel est-il si différent de celui que j'ai vu il y a peu ? »
 
 Wang Lin hocha la tête. Après une courte réflexion, il répondit : « Wan Er, je te l'expliquerai quand le moment sera venu. Pour l'instant, je veux savoir s'il existe une pilule permettant à un cultivateur de l'Établissement des Fondations d'atteindre le stade de l'Âme Naissante en deux mois ? »
 
@@ -64,9 +64,9 @@ Wang Lin hocha la tête avec un sourire : « Autant que tu le souhaites, j'en ai
 
 La poitrine de Li Muwan se soulevait rapidement sous l'effet de l'émotion. Elle ouvrit l'une des bouteilles et examina attentivement son contenu, avant de regarder Wang Lin avec incrédulité. Après un long silence, elle parvint enfin à articuler : « Frère Wang, sais-tu quels sont les effets de ce liquide spirituel ? »
 
-Wang Lin ne chercha pas à cacher la vérité et répondit lentement : « J'ai toujours utilisé le liquide spirituel au lieu des pilules pour accroître ma culture. Récemment, j'ai remarqué qu'il pouvait également augmenter le taux de réussite de l'alchimie. »
+Wang Lin ne chercha pas à cacher la vérité et répondit lentement : « J'ai toujours utilisé le liquide spirituel au lieu des pilules pour accroître ma cultivation. Récemment, j'ai remarqué qu'il pouvait également augmenter le taux de réussite de l'alchimie. »
 
-Li Muwan fut une nouvelle fois frappée de stupeur. Elle regarda Wang Lin d'un air étrange avant d'éclater de rire : « Frère Wang, tu es vraiment... en train de gaspiller un trésor céleste ! Bien que j'ignore l'origine de ce liquide, après avoir expérimenté ce que contenait la bouteille que tu m'as laissée durant une grande partie de ma vie, j'ai découvert que son usage lors de l'alchimie augmente considérablement les chances de succès. De plus, s'il est consommé directement, il prévient le vieillissement et peut accroître la longévité après une consommation prolongée. Si une quantité importante est utilisée pour confectionner une pilule, elle devient une puissante pilule spirituelle, bien plus efficace que de simplement boire le liquide. Une seule goutte n'aurait pas eu un impact immense, mais avec plus de dix gouttes, elle pourrait se vendre à un prix inimaginable dans le monde de la culture ! »
+Li Muwan fut une nouvelle fois frappée de stupeur. Elle regarda Wang Lin d'un air étrange avant d'éclater de rire : « Frère Wang, tu es vraiment... en train de gaspiller un trésor céleste ! Bien que j'ignore l'origine de ce liquide, après avoir expérimenté ce que contenait la bouteille que tu m'as laissée durant une grande partie de ma vie, j'ai découvert que son usage lors de l'alchimie augmente considérablement les chances de succès. De plus, s'il est consommé directement, il prévient le vieillissement et peut accroître la longévité après une consommation prolongée. Si une quantité importante est utilisée pour confectionner une pilule, elle devient une puissante pilule spirituelle, bien plus efficace que de simplement boire le liquide. Une seule goutte n'aurait pas eu un impact immense, mais avec plus de dix gouttes, elle pourrait se vendre à un prix inimaginable dans le monde de la cultivation ! »
 
 Wang Lin resta impassible et demanda : « Oh ? Ainsi, si j'utilise ceci pour fabriquer une pilule, cela augmentera-t-il mes chances d'atteindre l'Âme Naissante ? »
 

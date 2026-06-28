@@ -12,7 +12,7 @@ Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, 
 
 « La Roue Cœur des Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser ! »
 
-« Vous avez dit que cet homme était très rusé et très intelligent. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de culture a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon ! »
+« Vous avez dit que cet homme était très rusé et très intelligent. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de cultivation a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon ! »
 
 « Plus une personne est intelligente, plus il lui est difficile de s’en libérer ! Ce n'est que le premier cycle ; plus on avance, plus son potentiel destructeur est grand. Une fois qu'il atteindra les neuf cycles, il sera piégé là pour la vie, jusqu'à ce que son énergie mentale soit épuisée et qu'il meure ! »
 

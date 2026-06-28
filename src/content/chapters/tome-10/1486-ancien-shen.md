@@ -18,7 +18,7 @@ Un œil rouge sang fixait Wang Lin, révélant une lueur de colère et de peur.
 
 Une aura redoutable émanant d'un cultivateur du Cinquième Ciel de la Calamité se dégageait de son corps. Cette puissance concentrait la sinistre aura de mort environnante pour la transformer en les hurlements d'innombrables âmes. C'était comme si des esprits tourmentés rugissaient tous contre Wang Lin.
 
-Même si le vieil homme avait libéré sa culture du Cinquième Ciel de la Calamité, il paraissait bien trop faible aux yeux de Wang Lin !
+Même si le vieil homme avait libéré sa cultivation du Cinquième Ciel de la Calamité, il paraissait bien trop faible aux yeux de Wang Lin !
 
 Ignorant le vortex de mort formé par l'ancêtre de la famille Xiang, Wang Lin descendit dans le ravin et s'y engagea.
 
@@ -68,7 +68,7 @@ Cette silhouette étincelait intensément. À première vue, elle ressemblait à
 
 « Tuer est tuer, à quoi bon tout ce baratin ? Aujourd'hui, je tue. Quiconque osera résister mourra ! » Wang Lin serra le poing droit et broya la tête de l'ancêtre de la famille Xiang. Il s'élança ensuite dans les airs et pointa l'épée descendante de son doigt !
 
-Ce geste contenait le pouvoir de l'Ordre Ancien de Wang Lin, sa culture, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
+Ce geste contenait le pouvoir de l'Ordre Ancien de Wang Lin, sa cultivation, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
 
 Un éclat de froideur traversa les yeux de Wang Lin. Après son geste, une lueur sanglante jaillit et l'épée de sang s'élança.
 
@@ -106,7 +106,7 @@ Un soupir retentit derrière lui. Tandis que la lumière se distordait, un homme
 
 L'homme d'âge mûr secoua la tête en fixant la direction où Wang Lin s'était volatilisé.
 
-« Nos niveaux de culture ne sont pas très éloignés ; aucun de nous n'a véritablement atteint le troisième niveau. Même si j'avais attaqué, je crains que je ne l'aurais pas retenu... Ma culture est un peu singulière, je peux donc ressentir ce qui vous échappe... Dans son corps, j'ai perçu l'aura de deux cultivateurs du troisième niveau... Je redoute qu'il n'ait utilisé qu'une infime partie de sa force lors de ce bref combat contre vous... Comment aurais-je pu lutter ? »
+« Nos niveaux de cultivation ne sont pas très éloignés ; aucun de nous n'a véritablement atteint le troisième niveau. Même si j'avais attaqué, je crains que je ne l'aurais pas retenu... Ma cultivation est un peu singulière, je peux donc ressentir ce qui vous échappe... Dans son corps, j'ai perçu l'aura de deux cultivateurs du troisième niveau... Je redoute qu'il n'ait utilisé qu'une infime partie de sa force lors de ce bref combat contre vous... Comment aurais-je pu lutter ? »
 
 « Allons-y, il ne reste que très peu de membres dans notre clan. Nous sommes les deux seuls à nous être éveillés... » Alors qu'il parlait, l'homme d'âge mûr fut soudainement frappé par une sensation étrange. Il se retourna avec le vieillard.
 
@@ -124,4 +124,4 @@ Dès l'ouverture de ses paupières, des étoiles apparurent entre ses sourcils e
 
 Les deux cultivateurs en robes dorées pénétrèrent dans ce monde de glace et s'y précipitèrent. Ils flottèrent respectueusement au-dessus du continent où reposait la femme.
 
-Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson : « Bienvenue de votre culture en ermitage, Ancien Shen ! »
+Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson : « Bienvenue de votre cultivation en ermitage, Ancien Shen ! »

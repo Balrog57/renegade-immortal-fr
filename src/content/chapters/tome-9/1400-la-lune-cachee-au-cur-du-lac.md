@@ -38,7 +38,7 @@ Wang Lin leva les yeux et, d'un seul pas, disparut. Il réapparut sur la partie 
 
 Assis là, Wang Lin fixait la terre grise dans sa main en fronçant les sourcils.
 
-« Cette terre semble ordinaire, mais j'ai le sentiment que quelque chose ne va pas... » Wang Lin réfléchit et ferma les yeux. Un souvenir remonta progressivement à son esprit : celui où il avait fait un demi-pas vers la porte de la Perle Défiant le Ciel. Il s'était alors transformé en chaos, flottant dans le vide avant de devenir une planète de culture.
+« Cette terre semble ordinaire, mais j'ai le sentiment que quelque chose ne va pas... » Wang Lin réfléchit et ferma les yeux. Un souvenir remonta progressivement à son esprit : celui où il avait fait un demi-pas vers la porte de la Perle Défiant le Ciel. Il s'était alors transformé en chaos, flottant dans le vide avant de devenir une planète de cultivation.
 
 Wang Lin gardait une impression puissante de ce souvenir. C'était cette expérience qui lui avait permis d'acquérir une compréhension vague de bien des choses.
 
@@ -50,7 +50,7 @@ Une végétation extrêmement primitive naquit au sein de ce sol. À mesure que 
 
 Wang Lin ouvrit soudainement les yeux, une lueur étrange brillant dans son regard alors qu'il fixait la terre. Après un long moment, il murmura doucement : « Temps Fluide... »
 
-Le pouvoir du temps émana de son corps pour envelopper la terre qu'il tenait. Il semblait chercher le moment précis de la naissance de ce sol. Cependant, la terre était née si longtemps auparavant qu'il lui était impossible, avec son niveau de culture actuel, de remonter aussi loin. Néanmoins, il parvint à obtenir une idée générale.
+Le pouvoir du temps émana de son corps pour envelopper la terre qu'il tenait. Il semblait chercher le moment précis de la naissance de ce sol. Cependant, la terre était née si longtemps auparavant qu'il lui était impossible, avec son niveau de cultivation actuel, de remonter aussi loin. Néanmoins, il parvint à obtenir une idée générale.
 
 Après un temps très long, Wang Lin agita la main droite et la terre se dispersa. Il s'approcha alors d'une plante, en saisit une poignée, et utilisa de nouveau le Temps Fluide.
 
@@ -58,7 +58,7 @@ Un instant plus tard, Wang Lin lâcha la terre et la laissa retomber. Une lueur 
 
 « Si cette terre avait été formée par la nature, les âges seraient disparates... Pourtant, le sol ici semble être né simultanément ! Il n'y a que deux explications possibles ! »
 
-« Soit peu après la naissance de la planète, tous les volcans ont érupté en même temps, se détruisant pour former ce sol... Mais cela est peu probable. Après tout, la végétation primitive qui insuffle la vie à cette terre ne peut pas croître et mourir d'un seul coup... Si ce n'est pas le cas, alors il ne reste qu'une explication... Tout ici est artificiel ; cela a été créé par quelqu'un, il y a fort longtemps, au moyen d'un sortilège surpuissant ! » Wang Lin prit une profonde inspiration. Étant lui-même un puissant cultivateur, il pouvait imaginer la création d'une planète ; le niveau de culture requis pour un tel exploit était inimaginable !
+« Soit peu après la naissance de la planète, tous les volcans ont érupté en même temps, se détruisant pour former ce sol... Mais cela est peu probable. Après tout, la végétation primitive qui insuffle la vie à cette terre ne peut pas croître et mourir d'un seul coup... Si ce n'est pas le cas, alors il ne reste qu'une explication... Tout ici est artificiel ; cela a été créé par quelqu'un, il y a fort longtemps, au moyen d'un sortilège surpuissant ! » Wang Lin prit une profonde inspiration. Étant lui-même un puissant cultivateur, il pouvait imaginer la création d'une planète ; le niveau de cultivation requis pour un tel exploit était inimaginable !
 
 Tout en méditant silencieusement, Wang Lin secoua la tête. Il n'osait lui-même y croire. Il ignorait que si d'autres apprenaient sa spéculation, ils en seraient profondément choqués.
 
@@ -66,11 +66,11 @@ Peu de cultivateurs pouvaient déduire autant de choses à partir de simples ind
 
 Si le mystérieux Grand Empereur l'avait su, il en aurait été tout aussi stupéfait. Cela aurait été encore plus incroyable que le fait qu'il s'agisse d'une planète artificielle !
 
-Entre les cultivateurs, au-delà des différences de niveau, résidait également la compréhension du Dao. Le Dao, en vérité, est la compréhension du fonctionnement du monde. Quiconque saisit les rouages de l'univers et possède un niveau de culture adéquat peut accomplir des prouesses incroyables !
+Entre les cultivateurs, au-delà des différences de niveau, résidait également la compréhension du Dao. Le Dao, en vérité, est la compréhension du fonctionnement du monde. Quiconque saisit les rouages de l'univers et possède un niveau de cultivation adéquat peut accomplir des prouesses incroyables !
 
 Après avoir dispersé la terre, Wang Lin réfléchit encore un moment avant de s'allonger sur une feuille pour contempler le ciel gris. Il était un homme de réflexion ; c'était grâce à cette capacité qu'il avait survécu à tous les dangers de son existence.
 
-Bien que Wang Lin se soit montré extrêmement arrogant envers le Grand Maître Yun Luo et le Maître Simo du Conseil Souverain, il était en réalité d'une prudence extrême. Même s'il ignorait les intentions du Grand Empereur, cela ne l'empêchait pas de détourner la puissance de ce dernier à ses propres fins. Cette méthode était très pragmatique dans ce monde de culture impitoyable : ceux qui savent tirer profit des circonstances finissent toujours par atteindre leur but.
+Bien que Wang Lin se soit montré extrêmement arrogant envers le Grand Maître Yun Luo et le Maître Simo du Conseil Souverain, il était en réalité d'une prudence extrême. Même s'il ignorait les intentions du Grand Empereur, cela ne l'empêchait pas de détourner la puissance de ce dernier à ses propres fins. Cette méthode était très pragmatique dans ce monde de cultivation impitoyable : ceux qui savent tirer profit des circonstances finissent toujours par atteindre leur but.
 
 Des éclats de lumière continuaient de traverser le ciel tandis que de plus en plus de personnes rejoignaient la Planète du Grand Empereur. Allongé sur sa feuille, Wang Lin observait les passants et effleura lentement la grande feuille sous lui.
 

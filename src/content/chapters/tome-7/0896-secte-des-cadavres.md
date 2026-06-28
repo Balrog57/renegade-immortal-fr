@@ -32,7 +32,7 @@ Le torse de cet homme était nu et ses longs cheveux flottaient au vent. Ses pup
 
 « Tu oses invoquer des esprits vengeurs parmi les descendants de ma famille Wang ? Meurs ! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
 
-L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de culture était bien supérieur à celui de quiconque sur la planète Suzaku ; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
+L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de cultivation était bien supérieur à celui de quiconque sur la planète Suzaku ; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
 
 Le regard de la femme était glacial. En voyant Wang Lin attaquer l'homme, elle poussa un ricanement méprisant dans son cœur. Elle leva la main droite, prête à lancer un sortilège.
 
@@ -62,7 +62,7 @@ Sans hésiter, Wang Lin pressa sa main droite sur l'âme originelle de la femme 
 
 Plus il voyait, plus son visage s'assombrissait. Finalement, son regard devint glacial et il écrasa sans pitié son âme originelle. Celle-ci se mua en énergie originelle, directement dévorée par Wang Lin.
 
-Il avait déjà compris que quelque chose clochait avec cette femme. Bien qu'elle ait tenté de dissimuler sa culture, Wang Lin pouvait clairement percevoir sa culture Corporelle Yang. Sans l'esprit du phénix pour la protéger, un seul coup de tonnerre aurait suffi à l'anéantir.
+Il avait déjà compris que quelque chose clochait avec cette femme. Bien qu'elle ait tenté de dissimuler sa cultivation, Wang Lin pouvait clairement percevoir sa cultivation Corporelle Yang. Sans l'esprit du phénix pour la protéger, un seul coup de tonnerre aurait suffi à l'anéantir.
 
 De nombreux membres de la famille Wang étaient présents ici, et Wang Lin vit que le gaz noir émanant d'eux était relié à la main de cette femme. Il était évident qu'elle contrôlait leur vie.
 
@@ -92,7 +92,7 @@ Une fois les choses réglées, le Sens Divin de Wang Lin se projeta aux alentour
 
 « Planète Feng Luan, Secte des Cadavres... Vous osez songer à nuire aux descendants de ma famille Wang ? Ne me reprochez pas mon absence de pitié ! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux !
 
-Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi une membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
+Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi une membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de cultivation était bien plus élevé.
 
 La Secte des Cadavres. Wang Lin avait appris certains secrets sur elle par Sun Tai avant sa mort. L'une de leurs tâches consistait à collecter le ressentiment pour nourrir les esprits vengeurs.
 

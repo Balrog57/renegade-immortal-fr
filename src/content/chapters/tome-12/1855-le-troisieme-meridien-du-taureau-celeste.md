@@ -40,9 +40,9 @@ Au milieu de leur conversation, deux autres éclats de lumière arrivèrent de l
 
 « Salutations, Ancien Lu. » Le jeune homme en robe taoïste resta calme et salua Lu Wenran en joignant les mains. Il ne parla plus ensuite, semblant être de nature taciturne.
 
-Wang Lin observa les trois individus. Le plus faible d'entre eux se situait au début du stade de la Tribulation du Vide. L'homme nommé Lu Wenran était au milieu du stade de la Tribulation du Vide. Bien qu'il soit au même niveau de culture que le Souverain Céleste aux Sept Couleurs, Wang Lin ressentait une infériorité marquée !
+Wang Lin observa les trois individus. Le plus faible d'entre eux se situait au début du stade de la Tribulation du Vide. L'homme nommé Lu Wenran était au milieu du stade de la Tribulation du Vide. Bien qu'il soit au même niveau de cultivation que le Souverain Céleste aux Sept Couleurs, Wang Lin ressentait une infériorité marquée !
 
-Avec ces trois personnes, ils constituaient déjà une force redoutable. Comparé à eux, la culture de Wang Lin au sommet du Vide Spirituel ne pouvait véritablement rivaliser.
+Avec ces trois personnes, ils constituaient déjà une force redoutable. Comparé à eux, la cultivation de Wang Lin au sommet du Vide Spirituel ne pouvait véritablement rivaliser.
 
 Tandis que Wang Lin les observait, les deux compagnons de Yan Lu l'étudiaient également. Durant cette période, Wang Lin avait acquis une certaine renommée au sein du Grand Secte de l'Âme.
 
@@ -118,9 +118,9 @@ Près de 10 000 cultivateurs occupaient ce complexe. Il s'agissait principalemen
 
 Les deux autres anciens saluèrent Yan Lu et Xu Dongde avec politesse, semblant les connaître déjà.
 
-En revanche, les trois vieillards se contentèrent d'un simple signe de tête pour Wang Lin, sa culture ne paraissant pas dignes de leur attention.
+En revanche, les trois vieillards se contentèrent d'un simple signe de tête pour Wang Lin, sa cultivation ne paraissant pas dignes de leur attention.
 
-L'expression de Wang Lin resta impassible. Le niveau de culture des trois vieillards était remarquable. Deux d'entre eux étaient au milieu du stade du Vide Arcanique, et le vieil homme nommé Zhou parlait avec un niveau légèrement supérieur, se situant autour de six ou sept Tribulations Arcaniques, soit l'équivalent de Du Qing.
+L'expression de Wang Lin resta impassible. Le niveau de cultivation des trois vieillards était remarquable. Deux d'entre eux étaient au milieu du stade du Vide Arcanique, et le vieil homme nommé Zhou parlait avec un niveau légèrement supérieur, se situant autour de six ou sept Tribulations Arcaniques, soit l'équivalent de Du Qing.
 
 « Vous connaissez déjà Yan Lu et l'Ancien Xu. Voici l'Ancien Wang, qui vient de rejoindre notre Grand Secte de l'Âme. Il est venu nous prêter main-forte contre le Continent du Démon Vert ! » Lu Wenran désigna Wang Lin pour le présenter.
 

@@ -106,7 +106,7 @@ Le Sens Divin de Wang Lin enveloppait l'épée qui continuait d'avancer lentemen
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il contrôlait l'épée volante tout en réfléchissant.
 
-L'épée pénétra lentement dans le trou. Des vagues de fluctuations magiques provenaient de l'avant, rendant le contrôle de l'arme difficile pour Wang Lin en raison de son niveau de culture. Heureusement, la force de suppression était présente, lui permettant de la guider tout juste vers l'avant.
+L'épée pénétra lentement dans le trou. Des vagues de fluctuations magiques provenaient de l'avant, rendant le contrôle de l'arme difficile pour Wang Lin en raison de son niveau de cultivation. Heureusement, la force de suppression était présente, lui permettant de la guider tout juste vers l'avant.
 
 Peu après, l'épée transportant le Sens Divin de Wang Lin sortit du trou. Ce qui apparut devant lui fut un immense vortex tournant lentement, dégageant une force d'aspiration infinie.
 

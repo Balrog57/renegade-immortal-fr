@@ -76,7 +76,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 « Maître Dao Blue Dream ! » Les pupilles du Maître South Cloud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître Dao Blue Dream avait déjà atteint le sommet du stade du Vide Arcanique ; il n'était donc pas son égal !
 
-La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination ! Parmi les cinq maîtres, ni le Maître Démon Nine Heavens ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître Dao Blue Dream. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre !
+La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination ! Parmi les cinq maîtres, ni le Maître Démon Nine Heavens ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître Dao Blue Dream. Il n'y avait qu'une infime différence dans leurs niveaux de cultivation, mais cette mince marge était un gouffre !
 
 Presque personne ne pouvait contraindre le Souverain à changer d'avis. Miao Yin ne le pouvait pas, Nine Heavens non plus, mais Blue Dream le pouvait !
 
@@ -88,7 +88,7 @@ La main droite de Wang Lin marqua un temps d'arrêt tandis qu'il observait l'hom
 
 Le vacarme du carnage s'estompa lentement. Hormis le Maître Hong Shan et ses compagnons qui poursuivaient leur combat, tous les regards se tournèrent vers Wang Lin, attendant sa réponse.
 
-Wang Lin avait déjà imposé le respect de son identité de Seigneur du Royaume Scellé auprès des cultivateurs du Royaume Intérieur. Bien que son niveau de culture ne fût pas aussi élevé que celui du Maître Hong Shan, il était, à leurs yeux, digne de ce titre !
+Wang Lin avait déjà imposé le respect de son identité de Seigneur du Royaume Scellé auprès des cultivateurs du Royaume Intérieur. Bien que son niveau de cultivation ne fût pas aussi élevé que celui du Maître Hong Shan, il était, à leurs yeux, digne de ce titre !
 
 Wang Lin réfléchit en silence face à l'homme d'âge mûr, puis, un instant plus tard, il joignit les mains, le regard déterminé. Il agita la main droite et des millions de restrictions apparurent, se condensant pour former une gigantesque armature d'ombrelle !
 

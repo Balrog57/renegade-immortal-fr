@@ -98,7 +98,7 @@ La mer de feu devant le mille-pattes s'effondra instantanément et son corps exp
 
 Dans le brouillard, le vieil homme de la Secte Everlast avait tout observé, et il était sous le choc !
 
-« Qui est cet individu ?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de culture extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter !! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle ! »
+« Qui est cet individu ?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de cultivation extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter !! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle ! »
 
 Trois disciples suivaient le vieil homme. Ils étaient tous stupéfaits et terrifiés par ce qu'ils venaient de voir. Ils se croyaient puissants, mais ce spectacle avait ébranlé leur esprit.
 

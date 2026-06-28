@@ -24,7 +24,7 @@ Chi Hu esquissa un sourire amer, leva rapidement la tête et dit : « Frère Cen
 
 Red Butterfly fut stupéfaite. Ses yeux vacillèrent et elle resta silencieuse.
 
-L'expression de Wang Lin demeura imperturbable. Il avait toujours ce pressentiment que quelque chose n'allait pas. Depuis un certain temps, il sentait que quelqu'un les suivait. Cela n'avait rien à voir avec sa culture, mais plutôt avec cet instinct de survie qu'il avait développé au fil de ses années de combats mortels.
+L'expression de Wang Lin demeura imperturbable. Il avait toujours ce pressentiment que quelque chose n'allait pas. Depuis un certain temps, il sentait que quelqu'un les suivait. Cela n'avait rien à voir avec sa cultivation, mais plutôt avec cet instinct de survie qu'il avait développé au fil de ses années de combats mortels.
 
 « Je l'ai trouvé. Suivez-moi ! » Après un long moment, Chi Hu se remit en mouvement et s'élança vers l'avant.
 
@@ -50,7 +50,7 @@ Il vit les fissures célestes se rejoindre et une silhouette en sortir. Cette pe
 
 Il soupira en descendant vers le sol et aperçut l'homme d'âge moyen. « Bonjour, bonjour. »
 
-L'homme d'âge moyen fronça les sourcils. De tous ceux qui venaient de Suzaku, ce vieillard était le seul qu'il redoutait. Ce vieil homme possédait le même niveau de culture que lui ; ils étaient tous deux au stade intermédiaire de la Transformation de l'Âme.
+L'homme d'âge moyen fronça les sourcils. De tous ceux qui venaient de Suzaku, ce vieillard était le seul qu'il redoutait. Ce vieil homme possédait le même niveau de cultivation que lui ; ils étaient tous deux au stade intermédiaire de la Transformation de l'Âme.
 
 Pourtant, malgré sa longue vie, il ne connaissait pas cet individu. Il n'y avait que peu de cultivateurs au stade de la Transformation de l'Âme sur Suzaku, il estimait donc qu'il devrait connaître chacun d'entre eux.
 

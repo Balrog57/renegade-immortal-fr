@@ -18,11 +18,11 @@ En vérité, même s'ils avaient osé jouer ce coup, Wang Lin disposait encore d
 
 Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête du Néant se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Vide Brillant.
 
-« Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade de la Tribulation du Néant, il doit avoir traversé plusieurs Tribulations Arcanes... »
+« Le niveau de cultivation de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade de la Tribulation du Néant, il doit avoir traversé plusieurs Tribulations Arcanes... »
 
-« De plus, le premier étage de la tour ne contenait qu'une armure au lieu d'un être humain... La culture de cette Secte Gui Yi est très étrange, ils dépendent en fait de l'armure... Cette armure du premier étage appartient probablement à ce vieil homme nommé Ma... »
+« De plus, le premier étage de la tour ne contenait qu'une armure au lieu d'un être humain... La cultivation de cette Secte Gui Yi est très étrange, ils dépendent en fait de l'armure... Cette armure du premier étage appartient probablement à ce vieil homme nommé Ma... »
 
-« Si elle lui appartient vraiment, quel niveau de culture atteindrait-il en la revêtant ? » songea Wang Lin.
+« Si elle lui appartient vraiment, quel niveau de cultivation atteindrait-il en la revêtant ? » songea Wang Lin.
 
 Après le départ de Wang Lin, le vieil homme nommé Ma prit un air sombre et fixa le ciel. Il hésita, incapable de décider s'il devait retenir ses coups ou attaquer.
 
@@ -36,7 +36,7 @@ Après un long moment, le vieil homme nommé Ma demanda soudainement : « Qu'en 
 
 « Ce disciple ne croit pas que la Voie Céleste puisse nous dévorer ! L'oncle a trouvé des indices concernant la Voie Céleste, et je les ai recherchés durant toutes ces années. Bien que je n'aie rien découvert, j'ai quelques spéculations. »
 
-« La Voie Céleste a été divisée. Bien que cet enfant en soit devenu le maître, elle est incomplète ! Et si cette Voie Céleste incomplète peut dévorer tous les êtres vivants, elle ne peut pas dévorer ceux qui possèdent une culture puissante ! »
+« La Voie Céleste a été divisée. Bien que cet enfant en soit devenu le maître, elle est incomplète ! Et si cette Voie Céleste incomplète peut dévorer tous les êtres vivants, elle ne peut pas dévorer ceux qui possèdent une cultivation puissante ! »
 
 « Il doit être venu ici parce qu'il a découvert, par quelque moyen que ce soit, que nous venions de l'extérieur du monde des cavernes. L'instant est crucial pour trouver la troisième âme, et cela doit l'inquiéter. Ainsi, il est venu nous forcer à sortir de notre cachette ; maintenant qu'il sait tout de nous, il peut déployer ses plans ! »
 

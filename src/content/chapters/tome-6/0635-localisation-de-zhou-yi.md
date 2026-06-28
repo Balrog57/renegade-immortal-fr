@@ -62,7 +62,7 @@ Ces réactions identiques ne manquèrent pas d'attirer l'attention de Wang Lin, 
 
 Du Jian était, après tout, un disciple de l'All-Seer ; il était le septième disciple de la Division Rouge. Bien qu'il n'ait pas encore atteint le stade Ascendant, ses sorts étaient néanmoins prodigieux. En cette situation critique, il se mordit la langue et cracha une essence de sang d'âme originelle.
 
-Ce sang flotta dans l'air, semblant bouillir en prenant la forme de petites sphères. Même avec la culture de Wang Lin, s'il les touchait, son corps serait criblé de trous.
+Ce sang flotta dans l'air, semblant bouillir en prenant la forme de petites sphères. Même avec la cultivation de Wang Lin, s'il les touchait, son corps serait criblé de trous.
 
 Le regard de Wang Lin se fit glacial. D'un mouvement de manche, il souffla immédiatement le sang que Du Jian avait projeté sur le côté. Ces sorts utilisant l'essence de sang d'âme originelle n'étaient pas très complexes ; presque tout cultivateur les connaissait. Cependant, c'étaient des techniques qui blessaient lourdement l'utilisateur pour parvenir à tuer l'ennemi.
 
@@ -76,7 +76,7 @@ Les yeux de Wang Lin devinrent encore plus froids. Alors qu'il avançait, il poi
 
 Le fleuve des Enfers était déjà le fleuve le plus impur au monde. Lorsque le sarcome y entra, loin de l'affaiblir, il renforça sa puissance.
 
-Du Jian était certes très fort pour son niveau de culture, et ce trésor de sarcome lui assurait de ne jamais perdre. Cependant, face à quelqu'un qui possédait son propre Dao, comme Wang Lin, il n'était tout simplement pas de taille, à moins qu'il ne franchisse l'ultime étape : briser la barrière de son cœur pour entrer dans le stade Ascendant.
+Du Jian était certes très fort pour son niveau de cultivation, et ce trésor de sarcome lui assurait de ne jamais perdre. Cependant, face à quelqu'un qui possédait son propre Dao, comme Wang Lin, il n'était tout simplement pas de taille, à moins qu'il ne franchisse l'ultime étape : briser la barrière de son cœur pour entrer dans le stade Ascendant.
 
 La main droite de Wang Lin bougea avec la rapidité de l'éclair pour saisir Du Jian, dont les yeux étaient emplis de désespoir. Sans poser de questions, il activa son énergie spirituelle céleste pour sectionner immédiatement l'âme originelle de Du Jian de son corps. Puis, il frappa son sac de rangement et sortit le drapeau de restriction. D'un geste, d'innombrables restrictions s'envolèrent, formant une sphère de contraintes semblable à celle qui avait emprisonné Yao Xixue. Wang Lin la rangea ensuite dans son sac.
 
@@ -114,11 +114,11 @@ Tant qu'elles ne le provoquaient pas, il n'avait aucune intention de révéler l
 
 Quant à Murong Zhuo, ses sorts firent même lever les sourcils de Wang Lin. Ils étaient extrêmement variés ; jusqu'à présent, Wang Lin ne l'avait jamais vu utiliser deux fois le même sort.
 
-Wang Lin était convaincu qu'avec sa culture, il pourrait vaincre Murong Zhuo, mais au prix de blessures. La donne serait différente s'il utilisait des trésors, mais comment se faisait-t-il que Murong Zhuo n'en possède pas lui aussi ?
+Wang Lin était convaincu qu'avec sa cultivation, il pourrait vaincre Murong Zhuo, mais au prix de blessures. La donne serait différente s'il utilisait des trésors, mais comment se faisait-t-il que Murong Zhuo n'en possède pas lui aussi ?
 
 Si les sorts d'évasion de Murong Zhuo étaient aussi prodigieux que ceux du petit vieillard, et si ce dernier décidait de fuir, Wang Lin ne pourrait pas le rattraper.
 
-« L'âme originelle de ce vieux court est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la culture de ces sorts ! »
+« L'âme originelle de ce vieux court est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la cultivation de ces sorts ! »
 
 Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Lou ne pouvait voir au-delà de cette profondeur.
 
@@ -134,7 +134,7 @@ Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zh
 
 Murong Zhuo ne regarda pas les deux femmes et n'eut aucun geste suggérant qu'il avait entendu Wang Lin. Il continua sa descente, mais nul ne remarqua que ses yeux brillèrent un instant et qu'il devint plus vigilant.
 
-Il avait entendu parler du Secte des Cadavres. Cette secte était bien plus puissante que la plupart des pays de culture. Presque chaque pays possédait une branche du Secte des Cadavres. Leur puissance était tout simplement écrasante !
+Il avait entendu parler du Secte des Cadavres. Cette secte était bien plus puissante que la plupart des pays de cultivation. Presque chaque pays possédait une branche du Secte des Cadavres. Leur puissance était tout simplement écrasante !
 
 Les deux femmes prirent également congé et s'envolèrent. Cependant, Xu Fei joua distraitement avec ses cheveux. Un cheveu se détacha et vint se fixer sur la falaise.
 

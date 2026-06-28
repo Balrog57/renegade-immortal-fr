@@ -16,7 +16,7 @@ Depuis des millénaires, des rumeurs concernant les êtres célestes circulaient
 
 Cependant, les sectes de ce continent sortaient rarement de leurs domaines. Cela était peut-être dû au caractère mystérieux de la plus puissante secte du continent, la Secte Dong Lin, et toutes les autres suivaient cet exemple. Elles se dissimulaient derrière des voiles de mystère, mais c'était précisément ce qui renforçait le désir des mortels à leur égard.
 
-Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neuf sectes et treize factions. Leurs disciples sortaient rarement, la plupart d'entre eux se consacrant exclusivement à leur culture au sein de la secte.
+Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neuf sectes et treize factions. Leurs disciples sortaient rarement, la plupart d'entre eux se consacrant exclusivement à leur cultivation au sein de la secte.
 
 Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque toute l'année. Ces nuages semblaient faire partie intégrante de l'azur ; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
 
@@ -36,7 +36,7 @@ Après s'être fait réprimander, l'homme afficha un sourire servile et s'apprê
 
 « Hmph ! Le Grand Céleste a accepté de venir après que ce vieil homme et quelques amis l'ont supplié de longues heures durant. Même à mon âge, je reste ici sans oser montrer la moindre marque de manque de respect, et un individu comme toi refuse d'attendre ? Si le Grand Céleste venait à être offensé, toute ta famille pourrait bien être bannie de cette ville ! » Le vieillard lança un regard féroce à l'homme avant de prendre un mouchoir imprégné de glace pour s'essuyer le front.
 
-« Le Grand Céleste est bienveillant ; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Qui ne connaît pas son nom ? J'ai entendu dire que la ville de Lin avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux ! »
+« Le Grand Céleste est bienveillant ; il accepte de sacrifier son temps de cultivation pour parcourir le Continent du Grand Sage. Qui ne connaît pas son nom ? J'ai entendu dire que la ville de Lin avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux ! »
 
 « C'est exactement ce que l'être céleste a dit : une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux ! Si mon petit-fils peut entrer dans une secte céleste, je suis prêt à donner toute ma fortune ! » grommela un autre vieil homme, l'expression exaltée.
 
@@ -102,7 +102,7 @@ Devant la cité, alors que le siège descendait lentement du ciel, le vieil homm
 
 Il paraissait habitué à l'exaltation de la foule. Il souriait, le cœur empli d'une pointe de fierté.
 
-« Moi, Jin Biaozi, j'ai quitté mon village à l'âge de six ou sept ans et j'ai escroqué les gens tout au long de mon chemin. Tant d'années ont passé et j'ai dupé tant de personnes... Moi, Jin Biaozi, je suis né différent des autres. Non seulement je suis talentueux, mais même sans maître ni secte, j'ai appris la culture par moi-même ! »
+« Moi, Jin Biaozi, j'ai quitté mon village à l'âge de six ou sept ans et j'ai escroqué les gens tout au long de mon chemin. Tant d'années ont passé et j'ai dupé tant de personnes... Moi, Jin Biaozi, je suis né différent des autres. Non seulement je suis talentueux, mais même sans maître ni secte, j'ai appris la cultivation par moi-même ! »
 
 « Les gens comme moi sont rares ! Mais cela valait la peine de tromper quelqu'un pour être transporté jusqu'au Continent du Grand Sage. Les habitants ici sont simples et aspirent à devenir des êtres célestes, ce qui fait de cet endroit un véritable trésor pour les opportunistes comme moi ! »
 

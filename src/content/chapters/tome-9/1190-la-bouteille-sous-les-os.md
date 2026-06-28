@@ -104,10 +104,10 @@ Deux cultivatrices nommées Zhao ! L'une était une belle femme d'âge moyen d'e
 
 « Ce n'est pas un avatar ! C'est le Sort Ancestral Yang Yin ! » Le visage de Maître Ashen Pine se décomposa tandis qu'une pensée fulgurante traversait son esprit. Il venait de se remémorer une légende très ancienne concernant un sort interdit !
 
-Ce sort était terrifiant et allait à l'encontre de toute morale. Sa culture était extrêmement complexe, et jusqu'à ce jour, presque personne n'avait réussi à le maîtriser. Pourtant, Maître Ashen Pine n'avait d'autre choix que d'y croire, car la personne devant lui avait pratiqué cette technique interdite pour atteindre le niveau de trois ancêtres !
+Ce sort était terrifiant et allait à l'encontre de toute morale. Sa cultivation était extrêmement complexe, et jusqu'à ce jour, presque personne n'avait réussi à le maîtriser. Pourtant, Maître Ashen Pine n'avait d'autre choix que d'y croire, car la personne devant lui avait pratiqué cette technique interdite pour atteindre le niveau de trois ancêtres !
 
 Le Sort Ancestral Yang Yin permettait à une cultivatrice de concevoir une fille. Cette enfant grandirait au sein de sa mère grâce à un sort spécial, faisant en sorte que la mère et la fille partagent le même corps !
 
-Plus tard, la fille formerait un couple de culture avec un autre individu et donnerait à son tour naissance à une fille. Alors, les trois utiliseraient le sort spécial pour fusionner en une seule entité !
+Plus tard, la fille formerait un couple de cultivation avec un autre individu et donnerait à son tour naissance à une fille. Alors, les trois utiliseraient le sort spécial pour fusionner en une seule entité !
 
-C'était là la méthode permettant d'augmenter prodigieusement son niveau de culture : grâce à la fusion de trois âmes, leur Sens Divin devenait d'une puissance inouïe !
+C'était là la méthode permettant d'augmenter prodigieusement son niveau de cultivation : grâce à la fusion de trois âmes, leur Sens Divin devenait d'une puissance inouïe !

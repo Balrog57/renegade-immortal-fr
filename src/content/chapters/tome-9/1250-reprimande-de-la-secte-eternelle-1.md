@@ -22,7 +22,7 @@ Le Maître de la Secte Éternelle, cet homme d'âge moyen, paraissait serein, ma
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
-Puis, Wang Shanshan expliqua à Mu Bingmei : « Grande Sœur Li est l'un des génies de notre Mer des Nuages. En seulement mille ans de culture, elle a déjà atteint le sommet du stade du Briseur de Nirvana. »
+Puis, Wang Shanshan expliqua à Mu Bingmei : « Grande Sœur Li est l'un des génies de notre Mer des Nuages. En seulement mille ans de cultivation, elle a déjà atteint le sommet du stade du Briseur de Nirvana. »
 
 Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle hocha la tête.
 
@@ -66,7 +66,7 @@ L'Ancien chargé de la compétition de rang 5 apparut dans les airs. Il regarda 
 
 La Secte Origine se trouvait toujours dans le coin nord, et une aura oppressante imprégnait leur zone. Li Qianmei y était aussi assise, contemplant le ciel avec confusion et nostalgie, comme si elle était perdue dans ses pensées.
 
-Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférieure ; après un long moment, elle se leva. Étant la personne ayant le plus haut niveau de culture au sein de la Secte Origine, c'était à elle d'entrer dans cette compétition.
+Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférieure ; après un long moment, elle se leva. Étant la personne ayant le plus haut niveau de cultivation au sein de la Secte Origine, c'était à elle d'entrer dans cette compétition.
 
 Une fois debout, elle regarda les membres de sa secte, comprenant ses trois frères aînés et sa disciple. Après un soupir, elle glissa comme un papillon vers la plateforme.
 
@@ -86,7 +86,7 @@ L'environnement était plongé dans un silence absolu. Cette compétition de la 
 
 « Cher compagnon cultivateur, je sollicite votre enseignement. » Sur l'arène, Lu Yanfei affichait un regard ferme en s'inclinant légèrement vers Lu Yuncong.
 
-Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Nettoyage du Nirvana.
+Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de cultivation de Nettoyage du Nirvana.
 
 « Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte Origine. Cette situation est injuste ! »
 
@@ -94,7 +94,7 @@ Sur la plateforme où siégeait Mu Bingmei, le vieil homme en blanc fronça les 
 
 Sa voix était puissante et écrasa complètement les paroles de Lu Yuncong. Elle fut assourdissante.
 
-Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte Origine. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. Si elle venait, le disciple serait inférieur ! Si je combats la Secte Origine avant son arrivée, ce sera injuste pour eux ! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret ! »
+Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de cultivation, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte Origine. Cette personne possède un haut niveau de cultivation et une compréhension profonde du Dao. Si elle venait, le disciple serait inférieur ! Si je combats la Secte Origine avant son arrivée, ce sera injuste pour eux ! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret ! »
 
 À sa sortie, les cultivateurs environnants furent en émoi. L'homme mystérieux était déjà devenu le centre d'attention, mais avec les paroles de Lu Yuncong, sa renommée atteignit un nouveau sommet.
 

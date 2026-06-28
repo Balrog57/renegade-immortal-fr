@@ -8,7 +8,7 @@ slug: messager
 ---
 Le regard de Chu Yunfei se glaça et il demanda : « Que voulez-vous dire ? »
 
-Yunque Zi secoua la tête et répondit : « Vous devriez partir. Votre culture n'est pas de taille face à la mienne et vous êtes gravement blessé. Frère Chu, ne revenez pas avant mille ans. »
+Yunque Zi secoua la tête et répondit : « Vous devriez partir. Votre cultivation n'est pas de taille face à la mienne et vous êtes gravement blessé. Frère Chu, ne revenez pas avant mille ans. »
 
 Le regard de Chu Yunfei devint plus glacial encore alors qu'il lançait : « Et si je refuse ? »
 
@@ -48,7 +48,7 @@ Yunque Zi regarda l'entité et dit : « Au sein du Clan des Immortels Délaissé
 
 La figure réfléchit un instant et dit : « Tu es parmi les cultivateurs depuis trop longtemps et tu en as oublié tes origines. Te souviens-tu encore du nombre de membres de ton clan qui furent sacrifiés pour t'envoyer dans le pays de Suzaku... »
 
-Les yeux de Yunque Zi s'illuminèrent et il ricana : « Premier Ancêtre, je vais vous le dire une fois de plus : ne sous-estimez pas Zhuque Zi. Il possède le Cristal de Culture Planétaire. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de Culture Planétaire avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture ? »
+Les yeux de Yunque Zi s'illuminèrent et il ricana : « Premier Ancêtre, je vais vous le dire une fois de plus : ne sous-estimez pas Zhuque Zi. Il possède le Cristal de Cultivation Planétaire. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de Cultivation Planétaire avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Cultivation enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Cultivation ? »
 
 La figure resta silencieuse.
 
@@ -56,7 +56,7 @@ La figure resta silencieuse.
 
 « Même mon identité a dû être révélée par vous tous pour prouver que je suis un membre du Clan des Immortels Délaissés. À mes yeux, cela fut inutile ! »
 
-Yunque Zi reprit lentement : « Premier Ancêtre, si vous voulez que notre clan perdure, nous devons mettre la main sur le Cristal de Culture Planétaire et permettre à l'un de mes candidats de devenir le prochain Suzaku, afin de contrôler indirectement tous les cultivateurs de la planète. »
+Yunque Zi reprit lentement : « Premier Ancêtre, si vous voulez que notre clan perdure, nous devons mettre la main sur le Cristal de Cultivation Planétaire et permettre à l'un de mes candidats de devenir le prochain Suzaku, afin de contrôler indirectement tous les cultivateurs de la planète. »
 
 « J'avais déjà choisi quatre candidats et il ne me fallait que quelques décennies pour que mon plan aboutisse. Le stratagème que j'avais échafaudé durant d'innombrables années a été brisé par vous ! »
 
@@ -68,7 +68,7 @@ Yunque Zi reprit lentement : « Premier Ancêtre, si vous voulez que notre clan 
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 
-« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a pris le bras de Red Butterfly. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhuque Zi. »
+« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a pris le bras de Red Butterfly. À son retour, son niveau de cultivation avait grimpé en flèche et il avait même attiré l'attention de Zhuque Zi. »
 
 « Cet homme possède également trop de secrets ; parfois, même moi, je ne parviens pas à le percer. Ainsi, finalement, je l'ai choisi comme candidat principal pour mon plan ! »
 
@@ -76,7 +76,7 @@ Yunque Zi reprit lentement : « Premier Ancêtre, si vous voulez que notre clan 
 
 La figure réfléchit un instant avant de lever la tête. Elle fixa froidement Yunque Zi et dit : « Cette explication est encore insuffisante ! »
 
-Le regard d'Yunque Zi devint sérieux : « J'ignore dans quelle mesure le Cristal de Culture Planétaire affectera notre Clan des Immortels Délaissés. Si cela arrive, alors tous les membres du clan nés depuis que les cultivateurs ont pris le pouvoir mourront, vous et moi compris. Cette explication est-elle suffisante ? »
+Le regard d'Yunque Zi devint sérieux : « J'ignore dans quelle mesure le Cristal de Cultivation Planétaire affectera notre Clan des Immortels Délaissés. Si cela arrive, alors tous les membres du clan nés depuis que les cultivateurs ont pris le pouvoir mourront, vous et moi compris. Cette explication est-elle suffisante ? »
 
 La figure réfléchit à nouveau, puis poussa un soupir : « Qui était le premier candidat que tu as choisi ? »
 
@@ -84,7 +84,7 @@ Yunque Zi esquissa un faible sourire : « Une fois que le messager aura accompli
 
 Finalement, la figure demanda : « Pourquoi donner trois mois à Zhuque Zi ? »
 
-« Parce que je veux attendre qu'il active le Cristal de Culture Planétaire ! Je n'agirai pas maintenant, mais quand je le ferai, je ne laisserai aucune chance à Zhuque Zi ! »
+« Parce que je veux attendre qu'il active le Cristal de Cultivation Planétaire ! Je n'agirai pas maintenant, mais quand je le ferai, je ne laisserai aucune chance à Zhuque Zi ! »
 
 À l'extérieur du réseau de transfert vers Chu, Wang Lin regarda l'homme corpulent qui avait retiré son chapeau de paille. Bien que le cœur de Wang Lin ait tremblé légèrement, cela ne se vit pas sur son visage. Il sourit et dit : « Cela fait longtemps, frère Zhou ! »
 

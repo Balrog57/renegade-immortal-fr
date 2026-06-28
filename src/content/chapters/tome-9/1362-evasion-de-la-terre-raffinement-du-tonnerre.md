@@ -42,7 +42,7 @@ Dès l'apparition de ces bras, l'espace lui-même commença à s'effondrer, comm
 
 Il reconnut ces membres parce qu'il en avait vu un autrefois. Il avait combattu contre lui il y a plus de mille ans, lors d'une bataille inoubliable !
 
-À l'époque, il ne connaissait que peu de choses sur la culture ou les secrets des Royaumes Intérieur et Extérieur ; il était encore ignorant. Cependant, après plus de mille ans d'expérience, chaque fois qu'il repensait à ce qui s'était passé, il en était secoué !
+À l'époque, il ne connaissait que peu de choses sur la cultivation ou les secrets des Royaumes Intérieur et Extérieur ; il était encore ignorant. Cependant, après plus de mille ans d'expérience, chaque fois qu'il repensait à ce qui s'était passé, il en était secoué !
 
 Une sensation de folie émana du corps de Wang Lin. Il fixa les bras et laissa échapper un cri déchirant !
 
@@ -54,7 +54,7 @@ Il descendit tel un coup de foudre et atteignit instantanément Wang Lin !
 
 Wang Lin était déjà possédé par la démence. Dans toute sa vie, il n'avait qu'une seule ligne rouge ! Tout ce qui touchait à Li Muwan suffisait à le faire passer d'un calme absolu à une folie totale. À cet instant, il n'hésita pas une seconde et lâcha l'Éclair Éternel pour charger le bras.
 
-Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa culture s'emballa. Une silhouette gigantesque de Dieu Ancien apparut derrière lui, dégageant une pression si puissante qu'elle écrasait l'espace lui-même !
+Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa cultivation s'emballa. Une silhouette gigantesque de Dieu Ancien apparut derrière lui, dégageant une pression si puissante qu'elle écrasait l'espace lui-même !
 
 « Ceci... C'est... Tu Si !! » Une voix stupéfaite jaillit du vortex.
 
@@ -92,7 +92,7 @@ Il regarda le vortex disparaître lentement tout en entendant le rugissement fur
 
 « Pourquoi possèdes-tu cette épée... cette épée... » La voix s'estompa et le vortex finit par s'effacer. Le dernier coup de Wang Lin retomba au moment précis où le vortex disparaissait, manquant sa cible !
 
-« Je me fiche de qui vous êtes ou d'où vous venez, mais un jour, je briserai les cieux pour vous traquer tous. À l'époque, avant que ma culture ne soit achevée, vous avez dérobé l'âme de ma femme et l'avez condamnée à son état actuel. Je ne laisserai pas cette vendetta s'éteindre ! » L'expression de Wang Lin était féroce. C'était la première fois qu'il manifestait une telle rage depuis son arrivée dans le Système Stellaire Antique !
+« Je me fiche de qui vous êtes ou d'où vous venez, mais un jour, je briserai les cieux pour vous traquer tous. À l'époque, avant que ma cultivation ne soit achevée, vous avez dérobé l'âme de ma femme et l'avez condamnée à son état actuel. Je ne laisserai pas cette vendetta s'éteindre ! » L'expression de Wang Lin était féroce. C'était la première fois qu'il manifestait une telle rage depuis son arrivée dans le Système Stellaire Antique !
 
 Tout s'était passé trop vite, bien trop vite pour que quiconque puisse réagir. Trop vite pour que l'Éclair Éternel puisse pénétrer le vortex. Le vortex avait disparu, laissant l'Éclair Éternel sans issue.
 
@@ -104,7 +104,7 @@ Des grondements tonitruants émanèrent de l'Éclair Éternel. Il cessa de fuir 
 
 L'Éclair Éternel fut instantanément englouti par lui !
 
-« Affiner cet Éclair Éternel, affiner les huit dragons de tonnerre, absorber tout le tonnerre accompagnant le Grand Ancien... alors mon essence de tonnerre sera complète ! Ma culture augmentera ! »
+« Affiner cet Éclair Éternel, affiner les huit dragons de tonnerre, absorber tout le tonnerre accompagnant le Grand Ancien... alors mon essence de tonnerre sera complète ! Ma cultivation augmentera ! »
 
 Wang Lin avait tranché la main du Messager des Cieux. Bien que ce dernier ne se soit pas encore pleinement manifesté, il était bien plus puissant que celui rencontré sur la planète Suzaku. Pourtant, Wang Lin avait réussi à lui couper la main en combinant son tonnerre, son feu, son intention de combat et son Épée de Sang, le forçant ainsi à battre en retraite !
 
@@ -114,7 +114,7 @@ D'un revers de manche, il fit apparaître la paume du Messager des Cieux devant 
 
 En l'examinant, les yeux de Wang Lin se plissèrent. Cette paume... ne portait aucune empreinte !
 
-Toutes les mains humaines possèdent des empreintes. Peu importe le niveau de culture d'un être, nul ne choisirait de détruire ses propres empreintes palmaires.
+Toutes les mains humaines possèdent des empreintes. Peu importe le niveau de cultivation d'un être, nul ne choisirait de détruire ses propres empreintes palmaires.
 
 « Se pourrait-il que les Messagers des Cieux n'aient aucunement d'empreintes... » Les yeux de Wang Lin s'illuminèrent alors qu'il rangeait la paume de pierre dans son espace de stockage. Il jeta un regard aux membres du Clan du Tonnerre Dispersé qui n'osaient approcher.
 
@@ -152,7 +152,7 @@ Wang Lin traversa rapidement le Système Stellaire Antique, dissimulant son aura
 
 « Un cultivateur du troisième niveau devrait pouvoir me trouver aisément, mais avec mes cinq essences recouvrant mon aura, je n'ai qu'à trouver un lieu bondé. Si quelqu'un me cherche vraiment, je pourrai me cacher un certain temps.
 
-« Maintenant, je dois raffiner le tonnerre au plus vite ! » Les yeux de Wang Lin brillèrent et il utilisa plusieurs fois la Déformation Spatiale avant d'apparaître au-dessus d'une planète de culture.
+« Maintenant, je dois raffiner le tonnerre au plus vite ! » Les yeux de Wang Lin brillèrent et il utilisa plusieurs fois la Déformation Spatiale avant d'apparaître au-dessus d'une planète de cultivation.
 
 Cette planète appartenait à un petit clan du Système Stellaire Antique. Elle était peuplée de mortels, et sa capitale était particulièrement dense. Les rues étaient animées, comptant pas moins de dix millions d'habitants.
 
@@ -162,10 +162,10 @@ La rue était bondée. Hommes et femmes ne s'évitaient pas avec suspicion comme
 
 Des étals bordaient les trottoirs, certains proposant des places assises où de nombreux clients s'étaient rassemblés. Wang Lin entendit même quelqu'un déclamer un récit en passant devant un restaurant.
 
-« ... Quant à Xiu Yuhuan de la Secte Zhan Yan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les rumeurs sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de culture, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux êtres célestes se sont rencontrés... L'histoire sera glorieuse et incomparable, alors écoutez bien ! »
+« ... Quant à Xiu Yuhuan de la Secte Zhan Yan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les rumeurs sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de cultivation, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux êtres célestes se sont rencontrés... L'histoire sera glorieuse et incomparable, alors écoutez bien ! »
 
 Wang Lin sourit. Les cités mortelles du Système Stellaire Antique étaient intéressantes. Il était fascinant de voir des mortels parler de cultivateurs, même si l'essentiel était romancé. Cela prouvait néanmoins que les mortels ici n'ignoraient rien de leur existence.
 
 Dès son entrée dans la ville, Wang Lin comprit qu'il y avait de nombreux cultivateurs présents sans même avoir eu besoin de déployer son Sens Divin. Dans le restaurant, un homme et une femme écoutaient l'histoire avec attention. Il y avait près de cent cultivateurs dans la partie est de la capitale.
 
-« C'est préférable ainsi, cela rend la force vitale plus chaotique. Grâce à mes essences qui masquent mon aura, je devrais être en sécurité pour un certain temps. Ce sera suffisant pour raffiner l'Éclair Éternel dans mon âme originelle. Je me demande de combien ma culture augmentera... » Wang Lin marcha calmement vers le restaurant.
+« C'est préférable ainsi, cela rend la force vitale plus chaotique. Grâce à mes essences qui masquent mon aura, je devrais être en sécurité pour un certain temps. Ce sera suffisant pour raffiner l'Éclair Éternel dans mon âme originelle. Je me demande de combien ma cultivation augmentera... » Wang Lin marcha calmement vers le restaurant.

@@ -78,7 +78,7 @@ Dès que les fils verts disparurent, les Huit Diagrammes qui étaient figés dan
 
 « La rétribution divine est une calamité mais aussi une fortune... La rétribution divine du Ciel... La Rétribution Ji... Le Royaume Ji !!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense ! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
 
-« Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur de Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
+« Avec ton niveau de cultivation actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur de Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
 
 La roue des Huit Diagrammes se referma sur Wang Lin. L'expression de ce dernier changea radicalement et, au moment où la roue allait l'atteindre, une lueur de folie brilla dans ses yeux. Il prit une décision !
 
@@ -98,9 +98,9 @@ Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vo
 
 Alors qu'il hurlait, le vortex rugit à son tour et sept rayons de lumière en jaillirent. Ces sept lumières étaient composées de poussière d'étoiles !
 
-La lueur stellaire était éclatante et, au moment où elles s'élancèrent hors du vortex, elles se transformèrent en sept planètes de culture. Il s'agissait de véritables planètes de culture, contrairement aux Neuf Palais qui n'étaient que des météores !
+La lueur stellaire était éclatante et, au moment où elles s'élancèrent hors du vortex, elles se transformèrent en sept planètes de cultivation. Il s'agissait de véritables planètes de cultivation, contrairement aux Neuf Palais qui n'étaient que des météores !
 
-Les sept planètes de culture brillèrent intensément, formant la Grande Ourse !
+Les sept planètes de cultivation brillèrent intensément, formant la Grande Ourse !
 
 Après les Neuf Palais vinrent les Huit Diagrammes, et après les Huit Diagrammes surgirent les Sept Étoiles de la Grande Ourse ! Les sept étoiles : Alpha, Bêta, Gamma, Delta, Epsilon et Zeta !
 

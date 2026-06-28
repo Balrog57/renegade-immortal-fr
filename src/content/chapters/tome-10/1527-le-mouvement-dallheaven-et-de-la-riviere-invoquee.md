@@ -106,7 +106,7 @@ Sur le champ de bataille de la Mer des Nuages, Wang Lin se tenait là, brandissa
 
 L'océan de poison rugissait à travers les étoiles et des dizaines de milliers de bêtes-moustiques hurlaient en déferlant avec lui, chargeant vers les cent mille cultivateurs du Royaume Extérieur !
 
-Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... plus de neuf cents planètes de culture jaillirent brusquement !
+Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... plus de neuf cents planètes de cultivation jaillirent brusquement !
 
 Les renforts d'Allheaven étaient arrivés !
 

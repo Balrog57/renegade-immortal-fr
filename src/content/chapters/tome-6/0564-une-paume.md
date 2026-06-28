@@ -14,7 +14,7 @@ Alors que l'onde de choc se propageait, les soldats démoniaques dont la vie ava
 
 En plus de cela, tous les bâtiments situés dans un rayon de cinq kilomètres s'effondrèrent. L'écroulement des structures et des corps créa une onde de choc aérienne qui se propagea très loin.
 
-Seules les quelques personnes dont la culture était équivalente ou supérieure à celle des cultivateurs de la Transformation de l'Âme purent survivre à cette tempête.
+Seules les quelques personnes dont la cultivation était équivalente ou supérieure à celle des cultivateurs de la Transformation de l'Âme purent survivre à cette tempête.
 
 Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin.
 
@@ -52,7 +52,7 @@ Cette lueur sanglante enveloppa tout le corps de Wang Lin. À cet instant, les t
 
 Une série de grondements retentit, comme des vagues en colère frappant un rocher. La lumière écarlate tint durant plusieurs respirations avant de s'effondrer, laissant les vagues se refermer sur lui.
 
-Alors que les vagues approchaient, le symbole doré dans l'esprit de Wang Lin devint encore plus clair et profond ! Les yeux de Wang Lin brillèrent. Atteindre son niveau actuel de culture signifiait que son corps entier avait été tempéré par l'énergie spirituelle céleste et qu'il maîtrisait parfaitement son esprit ; rien ne devrait apparaître ainsi au milieu d'un combat.
+Alors que les vagues approchaient, le symbole doré dans l'esprit de Wang Lin devint encore plus clair et profond ! Les yeux de Wang Lin brillèrent. Atteindre son niveau actuel de cultivation signifiait que son corps entier avait été tempéré par l'énergie spirituelle céleste et qu'il maîtrisait parfaitement son esprit ; rien ne devrait apparaître ainsi au milieu d'un combat.
 
 Pourtant, à cet instant, le symbole doré scintillait violemment dans sa conscience. Il semblait prêt à se libérer pour s'échapper de son esprit.
 
@@ -98,11 +98,11 @@ Les yeux du général démoniaque révélèrent une lueur mystérieuse ; d'une s
 
 Suspendu dans les airs, Wang Lin ferma les yeux. Le général démoniaque était bien plus fort qu'il ne l'avait pensé. Le coup de poing de la désintégration n'était qu'une de ses techniques ; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir !
 
-Bien que la culture de cet adversaire ne soit qu'au sommet du stade tardif de la Transformation de l'Âme, tout comme celle de Wang Lin, ses sorts étaient bien plus puissants.
+Bien que la cultivation de cet adversaire ne soit qu'au sommet du stade tardif de la Transformation de l'Âme, tout comme celle de Wang Lin, ses sorts étaient bien plus puissants.
 
 Wang Lin devait l'admettre : il manquait de techniques de combat !
 
-Même en utilisant ses trésors, il n'était pas certain de pouvoir l'emporter. C'était la première fois depuis des centaines d'années que Wang Lin affrontait un égal en termes de culture et qu'il ne se sentait pas vainqueur ; s'il était le moindre peu imprudent, il perdrait !
+Même en utilisant ses trésors, il n'était pas certain de pouvoir l'emporter. C'était la première fois depuis des centaines d'années que Wang Lin affrontait un égal en termes de cultivation et qu'il ne se sentait pas vainqueur ; s'il était le moindre peu imprudent, il perdrait !
 
 De plus, il se trouvait dans la ville du général démoniaque. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En réalisant qu'il ne pouvait pas gagner par la force brute, une idée lui vint : une ruse !
 

@@ -14,7 +14,7 @@ Wang Lin avait cultivé en silence durant une année entière, imprégné de l'a
 
 Son véritable corps d'essence du tonnerre, fusionné avec des essences spéciales, avait été achevé au sein de la Secte Dong Lin. Il n'aurait plus besoin de comprendre d'autres essences spéciales ; il en possédait suffisamment. Quant à ce corps d'essence des cinq éléments, son essence de bois était proche de la perfection. Seule l'essence de métal restante n'était encore qu'au stade de la petite perfection. Wang Lin comprit que s'il parvenait à obtenir un autre fragment d'épée, l'essence de métal atteindrait sa plénitude.
 
-Une fois son essence de métal parfaite, même sans former de véritable corps d'essence, ses cinq essences élémentaires pourraient fusionner en une seule. À ce moment-là, le niveau de culture de Wang Lin passerait du stade moyen de la Tribulation du Vide au stade tardif de la Tribulation du Vide, et il deviendrait un Grand Exalté.
+Une fois son essence de métal parfaite, même sans former de véritable corps d'essence, ses cinq essences élémentaires pourraient fusionner en une seule. À ce moment-là, le niveau de cultivation de Wang Lin passerait du stade moyen de la Tribulation du Vide au stade tardif de la Tribulation du Vide, et il deviendrait un Grand Exalté.
 
 Enfin, il y avait les essences éthérées. Après le vrai et le faux, la vie et la mort, et le karma, Wang Lin avait compris la quatrième essence éthérée à la Secte Dong Lin : la réincarnation.
 
@@ -50,7 +50,7 @@ La secte était dirigée par les Empereurs Célestes. Chaque génération d'Empe
 
 L'Empereur Céleste de cette génération, Lian Daozhen, avait renommé cette mystérieuse secte : la Secte du Dao ! Le maître de cette génération était l'actuel Enseignant Impérial, Shang Daoxuan !
 
-La culture de ce Shang Daoxuan était impénétrable et son pouvoir de divination stupéfiant. À lui seul, il était capable de résister à la puissance combinée des trois Enseignants Impériaux du clan ancien.
+La cultivation de ce Shang Daoxuan était impénétrable et son pouvoir de divination stupéfiant. À lui seul, il était capable de résister à la puissance combinée des trois Enseignants Impériaux du clan ancien.
 
 Nul ne connaissait l'emplacement exact de la Secte du Dao ; depuis les temps anciens, seuls quelques rares individus l'avaient découvert. Cependant, aucun secret au monde ne peut résister au passage du temps. Après d'innombrables années, les spéculations étaient légion.
 
@@ -116,9 +116,9 @@ Au crépuscule, le ciel était gris. Tandis que le vent et la neige soufflaient,
 
 Une puissante pression céleste se jeta sur lui dès qu'il pénétra la cité. Elle était suffisante pour briser le corps de n'importe quel mortel, mais les cultivateurs parvenaient tout juste à la supporter. Pour celui qui pratiquait ici, l'effet était encore supérieur à celui des plus prestigieuses sectes.
 
-Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nul besoin de forcer la culture de cette énergie céleste. Marchant dans les rues de la ville, Wang Lin observa les alentours.
+Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nul besoin de forcer la cultivation de cette énergie céleste. Marchant dans les rues de la ville, Wang Lin observa les alentours.
 
-Au milieu du vent et de la neige, de nombreux passants marchaient rapidement. Même s'ils possédaient une certaine culture, aucun d'eux ne volait ; ils se contentaient de marcher comme des mortels.
+Au milieu du vent et de la neige, de nombreux passants marchaient rapidement. Même s'ils possédaient une certaine cultivation, aucun d'eux ne volait ; ils se contentaient de marcher comme des mortels.
 
 « Même les dragons doivent se terrer dans la Cité Ancestrale. Même les tigres doivent se coucher dans la Cité Ancestrale. Même les puissants Grands Exaltés doivent respecter l'accord... Est-ce donc ainsi que cela fonctionne... ? » Une lueur de froideur passa dans les yeux de Wang Lin.
 

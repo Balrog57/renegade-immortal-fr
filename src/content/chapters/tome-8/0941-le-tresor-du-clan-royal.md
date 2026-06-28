@@ -10,7 +10,7 @@ Yi Muzi fut stupéfait devant ce spectacle. Il n'aurait jamais imaginé que ce X
 
 Lorsqu'il fut envoyé ici par le Grand Ancien de la famille, il avait obtenu des détails sur le Serpent Moongazer et s'était méticuleusement préparé. Bien que sous le choc, il n'en oublia pas pour autant sa mission. Après avoir observé le Dieu Ancien à 5 étoiles sortir de la gueule du Serpent Moongazer, il n'hésita pas un instant et chargea l'intérieur.
 
-Il fonça droit vers la gueule du serpent. Bien que sa culture ait considérablement chuté, sa vitesse n'était nullement réduite. En un éclair, il disparut dans l'antre de la créature.
+Il fonça droit vers la gueule du serpent. Bien que sa cultivation ait considérablement chuté, sa vitesse n'était nullement réduite. En un éclair, il disparut dans l'antre de la créature.
 
 L'expression de Wudo Chan était empreinte d'une certaine complexité. Il avait consulté certains registres au sein de l'Alliance et avait découvert par accident l'identité du Serpent Moongazer. Il savait donc qu'une chose appelée la Fleur Lunaire se trouvait à l'intérieur !
 
@@ -54,7 +54,7 @@ Si Wang Lin avait défié Lou Chen, c'est qu'il savait que malgré sa puissance,
 
 Le caractère vacillant des étoiles sur le front de Lou Chen en était la preuve. À l'inverse de Wang Lin, dont les quatre étoiles étaient solides et brillaient d'un éclat pur, celles de son adversaire s'effaçaient. Plus important encore : Wang Lin appartenait à la lignée royale !
 
-Même si un Dieu Ancien ordinaire avait dévoré l'étoile de Lou Chen et que sa culture surpassait celle de Wang Lin, il ne ferait toujours pas le poids face aux sorts du clan royal. Les Dieux Anciens de la lignée royale étaient de véritables souverains. Ils ne maniaient pas seulement leurs sorts, ils possédaient également leurs propres armes royales !
+Même si un Dieu Ancien ordinaire avait dévoré l'étoile de Lou Chen et que sa cultivation surpassait celle de Wang Lin, il ne ferait toujours pas le poids face aux sorts du clan royal. Les Dieux Anciens de la lignée royale étaient de véritables souverains. Ils ne maniaient pas seulement leurs sorts, ils possédaient également leurs propres armes royales !
 
 Tandis qu'il reculait, Wang Lin reprit l'offensive et chargea Lou Chen. Les deux combattants échangèrent une série de coups fulgurants.
 

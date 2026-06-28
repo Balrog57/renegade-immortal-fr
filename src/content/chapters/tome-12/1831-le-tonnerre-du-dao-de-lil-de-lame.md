@@ -48,7 +48,7 @@ Dans la grotte, Wang Lin ouvrit les yeux. Il contempla le jade dans sa main et r
 
 « Selon les indications du jade, ce sort ne demande que trois jours d'apprentissage au début. Une fois la troisième étape atteinte, neuf personnes sur dix peuvent graver 100 000 inscriptions dans leur âme... »
 
-« Mais pour atteindre le niveau intermédiaire, il faudrait 999 ans... et il faudrait passer tout ce temps en culture fermée... Cela reste possible ; il n'est pas rare qu'un cultivateur s'isole pendant mille ans. Cependant, pour atteindre la maîtrise totale avec 4,9 milliards d'inscriptions, il faudrait près de 178 000 ans. Cela... » Wang Lin fronça les sourcils. Il comprenait vaguement pourquoi l'Ancien Taureau Vert lui avait donné si décontractément ce Dao de l'Œil de l'Âme qui semblait pourtant si précieux.
+« Mais pour atteindre le niveau intermédiaire, il faudrait 999 ans... et il faudrait passer tout ce temps en cultivation fermée... Cela reste possible ; il n'est pas rare qu'un cultivateur s'isole pendant mille ans. Cependant, pour atteindre la maîtrise totale avec 4,9 milliards d'inscriptions, il faudrait près de 178 000 ans. Cela... » Wang Lin fronça les sourcils. Il comprenait vaguement pourquoi l'Ancien Taureau Vert lui avait donné si décontractément ce Dao de l'Œil de l'Âme qui semblait pourtant si précieux.
 
 Il était tout simplement impossible de maîtriser ce sort ! Au mieux, on ne pouvait atteindre que le stade intermédiaire !
 
@@ -82,7 +82,7 @@ Le cœur de Wang Lin trembla et, sans hésiter, il chercha à identifier la pers
 
 Cette personne était lui-même !!
 
-À cette vision, l'illusion s'effondra. Il eut l'impression qu'une planète de culture entière venait de percuter son esprit, et son sens divin se retira précipitamment.
+À cette vision, l'illusion s'effondra. Il eut l'impression qu'une planète de cultivation entière venait de percuter son esprit, et son sens divin se retira précipitamment.
 
 « Qui osera m'opprimer sous une montagne de tonnerre dans le futur ? » L'expression de Wang Lin était farouche. Alors que tout s'écroulait, il força son sens divin à rester en place. Il leva les yeux vers la silhouette sur le chariot de tonnerre, déterminé à saisir ses traits !
 
@@ -98,7 +98,7 @@ Après une longue réflexion, Wang Lin ne parvenait toujours pas à oublier le v
 
 « Impossible... Comment est-ce possible... » Les yeux de Wang Lin étaient empreints de confusion. Après un long moment, il referma sa main. La petite silhouette retourna dans son âme pour y être nourrie.
 
-« Cette affaire est trop étrange... Cependant, ce Dao de l'Œil de l'Âme peut effectivement percevoir les changements du futur. Je devrai approfondir cette culture, peut-être pourrai-je alors l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa culture et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
+« Cette affaire est trop étrange... Cependant, ce Dao de l'Œil de l'Âme peut effectivement percevoir les changements du futur. Je devrai approfondir cette cultivation, peut-être pourrai-je alors l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa cultivation et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
 
 « Trois jours se sont écoulés... Je me demande ce que l'Ancien Taureau Vert a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon des Écritures de l'Âme pour choisir des sorts... » Les yeux de Wang Lin s'illuminèrent. Il songea aux divers sorts d'illusion du Grand Secte de l'Âme, notamment celui qu'Yan Lu avait utilisé pour invoquer l'âme de l'ancêtre du secte.
 

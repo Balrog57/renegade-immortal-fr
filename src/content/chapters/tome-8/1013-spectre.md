@@ -68,7 +68,7 @@ La lance fondit immédiatement sur le tourbillon et le transperça. Une aura des
 
 Saisissant cette chance, Wang Lin utilisa à nouveau le fourneau du Dieu Ancien, déclenchant des dizaines de téléportations d'un coup. Cependant, son visage pâlit instantanément face à la scène qui se déroulait derrière lui. Le tourbillon qui s'était effondré était semblable au gaz gris : il s'était transformé en des dizaines de nouveaux tourbillons de taille équivalente qui poursuivaient Wang Lin.
 
-Peu importait ses tentatives, il ne pouvait pas faire disparaître ces vortex. Plus il attaquait, plus de tourbillons apparaissaient. C'était la première fois que Wang Lin rencontrait une telle chose ! Avec sa culture, il voyait naturellement qu'aucun de ces tourbillons n'était une illusion ; ils étaient tous bien réels !
+Peu importait ses tentatives, il ne pouvait pas faire disparaître ces vortex. Plus il attaquait, plus de tourbillons apparaissaient. C'était la première fois que Wang Lin rencontrait une telle chose ! Avec sa cultivation, il voyait naturellement qu'aucun de ces tourbillons n'était une illusion ; ils étaient tous bien réels !
 
 « Je ne peux ni les disperser, ni utiliser de trésors, ni lancer de sorts. Dès que ce tourbillon se brisera à nouveau, il se transformera en centaines d'autres. Comment pourrai-je les esquiver alors ? »
 

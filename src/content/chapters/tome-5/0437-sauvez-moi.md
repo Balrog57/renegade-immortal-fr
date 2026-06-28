@@ -10,7 +10,7 @@ Chapitre 437 - Sauvez-moi...
 
 Ce son parvint aux oreilles de Wang Lin et pénétra directement dans son âme. C'était exactement le même cri qu'auparavant.
 
-Il ignora la voix et se faufila rapidement à travers l'étroite ouverture. Grâce à sa culture, il put atteindre rapidement la chambre cachée en passant par ce petit trou dans le mur.
+Il ignora la voix et se faufila rapidement à travers l'étroite ouverture. Grâce à sa cultivation, il put atteindre rapidement la chambre cachée en passant par ce petit trou dans le mur.
 
 Peu de temps après, Wang Lin déboucha dans une grotte dont les parois étaient percées d'innombrables petites ouvertures. Il entra par l'une d'elles.
 
@@ -76,7 +76,7 @@ Ce n'était pas la première fois que Wang Lin assistait à une telle scène, ma
 
 Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus puissant que le corps d'ancien dieu à trois étoiles actuel de Wang Lin ; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
 
-« Le niveau de culture de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux ! » Les yeux de Wang Lin brillèrent d'intérêt.
+« Le niveau de cultivation de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux ! » Les yeux de Wang Lin brillèrent d'intérêt.
 
 « Sauvez-moi... sauvez-moi... » Les appels devinrent plus fréquents. Il semblait que l'ancêtre avait remarqué la présence de Wang Lin.
 
@@ -114,7 +114,7 @@ Tenant la fiole d'une main, Wang Lin pressa l'autre sur une plaie du corps du g�
 
 « Sauvez-moi... » Wang Lin se tenait sur le géant. Cet appel à l'aide lui semblait être murmuré directement à son oreille ; il était d'une clarté absolue.
 
-Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants ; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois que cet être aurait retrouvé sa culture, il n'aurait plus aucune utilité pour Wang Lin.
+Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants ; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois que cet être aurait retrouvé sa cultivation, il n'aurait plus aucune utilité pour Wang Lin.
 
 Et même si cet homme lui promettait de riches trésors, cela ne suffirait pas à tenter Wang Lin. Hormis le sang qu'il était venu chercher, il ne voulait s'embarrasser d'aucun trouble inutile.
 

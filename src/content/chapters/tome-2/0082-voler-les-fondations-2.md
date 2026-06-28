@@ -14,7 +14,7 @@ Teng Li fronça les sourcils. Il laissa échapper un grognement et agita sa main
 
 Deux rayons arc-en-ciel se succédèrent dans le ciel. Les disciples de la famille Teng tentèrent de les suivre un moment avant d'abandonner, incapables de maintenir la cadence.
 
-Plus Teng Li poursuivait sa proie, plus il était stupéfait. Avec sa culture au stade avancé de l'Établissement des Fondations, chaque fois qu'il était sur le point de rattraper le gamin, celui-ci se téléportait.
+Plus Teng Li poursuivait sa proie, plus il était stupéfait. Avec sa cultivation au stade avancé de l'Établissement des Fondations, chaque fois qu'il était sur le point de rattraper le gamin, celui-ci se téléportait.
 
 L'attitude de Wang Lin ne faisait qu'accroître l'intérêt de Teng Li. La téléportation était une technique de niveau Âme Naissante. Pourtant, Wang Lin n'avait même pas atteint le stade de l'Établissement des Fondations et pouvait déjà s'en servir. Aux yeux de Teng Li, le garçon devait posséder un trésor capable de réaliser un tel prodige.
 
@@ -46,7 +46,7 @@ Une fois stoppée par l'armure, la lumière verte cligna et disparut sans laisse
 
 Wang Lin poussa un soupir secret, empreint de regret. L'épée verte réapparut dans sa main alors qu'il poursuivait sa fuite.
 
-Des perles de sueur apparurent sur le front de Teng Li. Ce qui venait de se passer était d'une dangerosité extrême. Même avec sa culture au stade avancé de l'Établissement des Fondations, s'il avait été touché, il aurait été gravement blessé. De plus, la lumière émanant de cette épée prouvait qu'il ne s'agissait pas d'un simple trésor. Il devinait que s'il avait été atteint, il serait mort sur le coup.
+Des perles de sueur apparurent sur le front de Teng Li. Ce qui venait de se passer était d'une dangerosité extrême. Même avec sa cultivation au stade avancé de l'Établissement des Fondations, s'il avait été touché, il aurait été gravement blessé. De plus, la lumière émanant de cette épée prouvait qu'il ne s'agissait pas d'un simple trésor. Il devinait que s'il avait été atteint, il serait mort sur le coup.
 
 Teng Li toucha l'armure que son grand-père lui avait offerte et se sentit chanceux, mais son désir de tuer Wang Lin ne fit que croître. Une lueur froide traversa ses yeux tandis qu'il murmurait pour lui-même : « En plus du trésor de téléportation, il possède aussi cette épée. Petit garnement, tous tes trésors m'appartiendront ! »
 

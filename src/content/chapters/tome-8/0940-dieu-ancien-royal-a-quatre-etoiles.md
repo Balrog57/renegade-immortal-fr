@@ -8,7 +8,7 @@ slug: dieu-ancien-royal-a-quatre-etoiles
 ---
 Alors que Wang Lin inspirait, l'étoile violette trembla et se précipita vers lui. Juste au moment où elle allait être dévorée par Wang Lin, le Serpent Regardant la Lune laissa échapper un rugissement. Soudain, une aura de dieu ancien extrêmement puissante explosa du corps du serpent.
 
-Au même instant, Yi Muzi et Wudo Chan affichèrent une étrange lueur dans leurs yeux et se lancèrent tous deux vers l'étoile violette. Cependant, ayant déjà épuisé une grande partie de leur énergie originelle lors de la bataille précédente, leur niveau de culture était tombé directement au stade du Scryer du Nirvana.
+Au même instant, Yi Muzi et Wudo Chan affichèrent une étrange lueur dans leurs yeux et se lancèrent tous deux vers l'étoile violette. Cependant, ayant déjà épuisé une grande partie de leur énergie originelle lors de la bataille précédente, leur niveau de cultivation était tombé directement au stade du Scryer du Nirvana.
 
 Les deux hommes chargèrent rapidement l'étoile violette en attaquant sous deux angles différents.
 
@@ -72,7 +72,7 @@ Après avoir pulvérisé les cinq éléments, ce coup de poing atteignit directe
 
 Tout cela s'était produit en un éclair. Aux yeux de Yi Muzi et des autres, le corps géant de Wang Lin avait simplement fait un pas, porté un coup, et l'homme en robe de dragon avait été expulsé.
 
-Des craquements retentirent dans le corps de l'adversaire et une grande quantité de sang jaillit de lui. S'ils avaient été à l'extérieur et si sa culture n'avait pas été scellée, il aurait été extrêmement difficile pour Wang Lin de le blesser !
+Des craquements retentirent dans le corps de l'adversaire et une grande quantité de sang jaillit de lui. S'ils avaient été à l'extérieur et si sa cultivation n'avait pas été scellée, il aurait été extrêmement difficile pour Wang Lin de le blesser !
 
 Cependant, ici, Wang Lin détenait tous les avantages. L'homme en robe de dragon avait la majeure partie de sa puissance scellée et n'avait d'autre choix que de reculer.
 
@@ -100,7 +100,7 @@ La femme magnifique se retourna et observa attentivement Wang Lin. Elle ouvrit l
 
 Cette scène ne choqua pas seulement Yi Muzi et ses compagnons ; elle stupéfia également Wang Lin. Il récupéra rapidement la couronne et fixa froidement Yi Muzi et Wudo Chan !
 
-Ces deux individus ne représentaient plus de menace pour lui. Leur culture avait déjà été lourdement scellée et le resterait.
+Ces deux individus ne représentaient plus de menace pour lui. Leur cultivation avait déjà été lourdement scellée et le resterait.
 
 Puis, le regard de Wang Lin se tourna vers le Serpent Regardant la Lune qui dégageait l'aura d'un dieu ancien. Il ouvrit alors la bouche et poussa un rugissement !
 

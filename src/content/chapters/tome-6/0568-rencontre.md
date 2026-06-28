@@ -22,7 +22,7 @@ Pour être plus précis, cette cité est composée de neuf villes de tailles sim
 
 Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités ! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes sont tout aussi distinctes, possédant chacune leur propre style.
 
-À l'aube, toute la Ville Démon du Ciel est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
+À l'aube, toute la Ville Démon du Ciel est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa cultivation.
 
 La Ville Démon du Ciel ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
 
@@ -64,7 +64,7 @@ En voyant l'étonnement sur les visages de ses subordonnés, le capitaine se sen
 
 Le soldat qui massait les épaules demanda : « Capitaine, selon vous, quel seigneur général remportera la victoire ? »
 
-« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui contrôle la ville voisine du Pays Démon du Feu, peut atteindre le top trois ! Il y a aussi le Seigneur Mo Lihai de l'Ancienne Ville Démon. Sa culture est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
+« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui contrôle la ville voisine du Pays Démon du Feu, peut atteindre le top trois ! Il y a aussi le Seigneur Mo Lihai de l'Ancienne Ville Démon. Sa cultivation est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
 
 Il fit tout cela en un instant presque imperceptible.
 
@@ -86,7 +86,7 @@ Une fois qu'ils furent partis, le capitaine poussa un soupir de soulagement. Le 
 
 Le capitaine fixa le soldat du regard et lui dit : « La compétition entre les généraux démons est cruciale pour eux tous, il est donc naturel qu'ils cherchent de l'aide. Si ce général Mo a choisi cette personne, c'est qu'elle possède certainement quelque chose d'exceptionnel ; alors ne vous posez pas trop de questions ! »
 
-Il regarda dans la direction où Wang Lin et Mo Lihai s'étaient éclipsés en pensant : « Cette personne a été reconnue par Mo Lihai et transportée via ce tableau de transfert, sa culture ne doit donc pas être simple ! De plus, au vu de la politesse dont Mo Lihai fait preuve à son égard, cet individu n'est certainement pas ordinaire ! »
+Il regarda dans la direction où Wang Lin et Mo Lihai s'étaient éclipsés en pensant : « Cette personne a été reconnue par Mo Lihai et transportée via ce tableau de transfert, sa cultivation ne doit donc pas être simple ! De plus, au vu de la politesse dont Mo Lihai fait preuve à son égard, cet individu n'est certainement pas ordinaire ! »
 
 Mo Lihai étant un général démon, les soldats de la porte ouest l'accueillirent avec une immense déférence. Ils les guidèrent à l'intérieur de la ville avant de retourner respectueusement à leurs postes.
 
@@ -108,7 +108,7 @@ La voie était très large, mais la foule se concentrait sur les deux côtés, l
 
 Voyant le regard de Wang Lin se poser sur cet espace, Mo Lihai sourit et expliqua : « Cette voie est une route militaire ; les civils n'y sont pas autorisés ! »
 
-À ce moment précis, des rugissements retentirent sur la route militaire au loin, et bientôt, un groupe de chevaux de guerre noirs surgit au galop. Wang Lin déploya son Sens Divin et détecta un total de dix-neuf montures. Un soldat en armure noire siégeait sur chacun d'eux, possédant une culture s'approchant de celle des cultivateurs de la Formation de l'Âme. L'énergie spirituelle démoniaque émanant de leurs corps était fusionnée d'une manière mystérieuse.
+À ce moment précis, des rugissements retentirent sur la route militaire au loin, et bientôt, un groupe de chevaux de guerre noirs surgit au galop. Wang Lin déploya son Sens Divin et détecta un total de dix-neuf montures. Un soldat en armure noire siégeait sur chacun d'eux, possédant une cultivation s'approchant de celle des cultivateurs de la Formation de l'Âme. L'énergie spirituelle démoniaque émanant de leurs corps était fusionnée d'une manière mystérieuse.
 
 Une énergie spirituelle démoniaque tourbillonnait dans le ciel au-dessus d'eux, formant l'ombre vague d'une bête gigantesque.
 

@@ -10,7 +10,7 @@ Deux personnes sortirent de la fausse montagne devant Wang Lin. Il s'agissait d'
 
 Derrière lui, la femme arborait un regard doux, mais une pointe de surprise y était perceptible. Elle ne s'attendait apparemment pas à ce que Wang Lin puisse parvenir jusqu'ici.
 
-En reconnaissant le Couple de Culture du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte de l'Empereur Céleste. La moindre imprudence pourrait lui coûter la vie.
+En reconnaissant le Couple de Cultivation du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa cultivation n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte de l'Empereur Céleste. La moindre imprudence pourrait lui coûter la vie.
 
 Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit : « Salutations, Seniors du Nuage Céleste. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
 
@@ -18,7 +18,7 @@ Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mai
 
 Quant aux blessures de Wang Lin, Wang Wei les avait naturellement décelées.
 
-Le Couple de Culture du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte de l'Empereur Céleste, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
+Le Couple de Cultivation du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte de l'Empereur Céleste, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
 
 Wang Lin n'était pas disposé à trop s'entretenir avec ces deux-là, et en l'absence de Zhou Yi, il nourrissait ses propres spéculations. De plus, étant blessé, il recula et dit : « Si vous, chers Seniors, n'avez rien d'autre à me dire, alors ce junior prend congé. »
 
@@ -60,7 +60,7 @@ Son expression devint sombre. Wang Lin scruta les environs et ses yeux s'illumin
 
 D'après ce qu'il pouvait observer, certaines restrictions avaient été ajoutées par-dessus, causant ce léger changement. Cependant, ces nouvelles couches s'étaient étonnamment et parfaitement fusionnées avec les restrictions préexistantes.
 
-Les restrictions sont d'une nature changeante, et chaque utilisateur les trace différemment. En raison de leur personnalité, de leur expérience, de leur compréhension et de leur niveau de culture, même si une même restriction était tracée par cent personnes, elle serait totalement différente pour ceux qui savent les lire, bien qu'elles puissent paraître identiques en surface.
+Les restrictions sont d'une nature changeante, et chaque utilisateur les trace différemment. En raison de leur personnalité, de leur expérience, de leur compréhension et de leur niveau de cultivation, même si une même restriction était tracée par cent personnes, elle serait totalement différente pour ceux qui savent les lire, bien qu'elles puissent paraître identiques en surface.
 
 Par conséquent, cette modification était inimaginable ; elle subvertissait clairement sa compréhension des restrictions.
 
@@ -76,7 +76,7 @@ C'était comme si une seule et même personne avait perfectionné sa propre cré
 
 Wang Lin fixa les sceaux, sentant que si ses soupçons étaient fondés, il venait de tomber dans un immense filet. Il ignorait seulement qui l'avait tendu.
 
-Sa première pensée se tourna vers le Couple de Culture du Nuage Céleste !
+Sa première pensée se tourna vers le Couple de Cultivation du Nuage Céleste !
 
 Après avoir mûri sa réflexion, Wang Lin refusa d'abandonner, car les pilules étaient trop cruciales pour lui. Il fixa la restriction et entama ses propres déductions.
 

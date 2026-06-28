@@ -20,9 +20,9 @@ C'était l'unique raison pour laquelle il avait déployé tant d'efforts à traq
 
 Heureusement, il avait emprunté le bateau de terre. Ce trésor renfermait une puissante technique d'évasion tellurique, ce qui rendait les choses bien plus aisées. Bien qu'il ne puisse pas utiliser pleinement ses techniques sous terre, il pensait que cela ne poserait aucun problème tant qu'il parviendrait à s'approcher. Cependant, il n'avait pas prévu que la destination du petit morveux soit la montagne de l'Union Hou Fen.
 
-Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il risquait de s'attirer les foudres du pays de culture de rang 4 situé derrière Xuan Wu et Hou Fen en verrouillant le pays avec son sens divin.
+Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il risquait de s'attirer les foudres du pays de cultivation de rang 4 situé derrière Xuan Wu et Hou Fen en verrouillant le pays avec son sens divin.
 
-En vérité, il n'avait tué personne dans l'un ou l'autre des deux pays. Cela était dû en grande partie à la présence de ce pays de culture de rang 4. Plus le niveau de culture d'un individu est élevé, plus il connaît les rouages internes de Suzaku. Xuan Wu et Hou Fen étant soutenus par le même pays de culture de rang 4, leurs affrontements n'avaient pas d'importance. En revanche, si un étranger s'y aventurait, ils interviendraient.
+En vérité, il n'avait tué personne dans l'un ou l'autre des deux pays. Cela était dû en grande partie à la présence de ce pays de cultivation de rang 4. Plus le niveau de cultivation d'un individu est élevé, plus il connaît les rouages internes de Suzaku. Xuan Wu et Hou Fen étant soutenus par le même pays de cultivation de rang 4, leurs affrontements n'avaient pas d'importance. En revanche, si un étranger s'y aventurait, ils interviendraient.
 
 Si cela s'était produit auparavant, il aurait pu tuer qui bon lui semblait, mais comme cet endroit allait bientôt s'ouvrir, il ne voulait pas causer trop de troubles ici.
 
@@ -32,7 +32,7 @@ Durant ces deux années, Xuan Wu et l'Union Hou Fen s'étaient habitués à êtr
 
 Presque tout le monde connaissait la source de ce phénomène. Les Anciens avaient tous averti les habitants qu'ils n'avaient pas le droit de se déplacer dans les quatre directions d'où émanaient les sens divins.
 
-Le Seigneur Démon Extrême du Huitième Niveau devenait de plus en plus nerveux, car l'endroit allait s'ouvrir dans seulement un an ; s'il arrivait trop tard, les conséquences seraient inimaginables. Dans l'urgence, il décida d'attendre encore six mois. Si, après ce délai, il ne trouvait toujours pas le garçon, il risquerait alors d'offenser le pays de culture de rang 4 et affinerait le pays tout entier pour retrouver ce petit morveux.
+Le Seigneur Démon Extrême du Huitième Niveau devenait de plus en plus nerveux, car l'endroit allait s'ouvrir dans seulement un an ; s'il arrivait trop tard, les conséquences seraient inimaginables. Dans l'urgence, il décida d'attendre encore six mois. Si, après ce délai, il ne trouvait toujours pas le garçon, il risquerait alors d'offenser le pays de cultivation de rang 4 et affinerait le pays tout entier pour retrouver ce petit morveux.
 
 Le temps passa lentement. Un mois, deux mois... jusqu'à ce que cinq mois s'écoulent. Au fil des jours, le teint du Seigneur Démon Extrême du Huitième Niveau s'assombrissait et l'hostilité sur son visage croissait progressivement.
 
@@ -64,7 +64,7 @@ L'expression de Wang Lin était sombre alors qu'il fixait froidement le vieil ho
 
 Le vieil homme renifla et demanda : « Quel est ton nom ? »
 
-Wang Lin répondit : « Ma Liang ! » La culture du vieil homme était pour lui comme une mer calme, trop profonde pour être sondée.
+Wang Lin répondit : « Ma Liang ! » La cultivation du vieil homme était pour lui comme une mer calme, trop profonde pour être sondée.
 
 Les yeux du vieil homme restèrent rivés sur Wang Lin tandis qu'il répétait, mot pour mot : « Ma Liang, je vais te poser cette question : connais-tu le sort de la mort ? » Une intention meurtrière transparaissait dans son regard. Si la réponse de Wang Lin était négative, le vieil homme l'exterminerait sur-le-champ sous l'effet de sa rage. Il retournerait ensuite à Nan Dou pour massacrer tous ceux qui lui avaient menti et utiliserait leurs âmes pour raffiner des trésors.
 
@@ -82,7 +82,7 @@ La cible de Wang Lin n'était pas le python, mais le vieil homme. Cette fois, il
 
 Au moment où il prononça ce mot, Wang Lin recula brusquement. Le vieil homme sentit son esprit vaciller lorsqu'un rayon d'éclair rouge perça son océ de conscience. Sa conscience devint totalement vide, ne laissant place qu'à un poulpe allongé sur le ventre. Dès que l'éclair rouge pénétra, le poulpe ouvrit la gueule, créant une puissante force d'aspiration qui engloutit immédiatement l'éclair.
 
-Mais la puissance du royaume du *ji* était au-delà de toute imagination. Bien que le niveau de culture du vieil homme fût extrêmement élevé, le poulpe frissonna après avoir aspiré l'éclair rouge.
+Mais la puissance du royaume du *ji* était au-delà de toute imagination. Bien que le niveau de cultivation du vieil homme fût extrêmement élevé, le poulpe frissonna après avoir aspiré l'éclair rouge.
 
 Ce frisson provoqua une réaction en chaîne qui fit trembler sa conscience même, forçant son corps à s'immobiliser un instant.
 

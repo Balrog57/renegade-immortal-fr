@@ -34,7 +34,7 @@ Lorsqu'il était arrivé, il avait été instantanément saisi par le regard de 
 
 Avant qu'il ne puisse trop réfléchir, Wang Lin ouvrit les yeux une fois de plus. Son regard était redevenu normal. Plus tôt, non seulement l'homme aux cheveux noirs avait été choqué, mais Wang Lin lui-même avait été surpris par ce qui venait de se passer.
 
-« Est-ce que cette sensation de tout à l'heure pourrait être la troisième étape... » Wang Lin réfléchit silencieusement. Cette sensation était quelque chose qui ne pouvait être obtenu que par le hasard et non par la volonté. Cependant, son niveau de culture était trop bas. C'était un ressenti qu'il pouvait garder au fond de son cœur, mais qu'il ne pouvait pas encore pleinement comprendre.
+« Est-ce que cette sensation de tout à l'heure pourrait être la troisième étape... » Wang Lin réfléchit silencieusement. Cette sensation était quelque chose qui ne pouvait être obtenu que par le hasard et non par la volonté. Cependant, son niveau de cultivation était trop bas. C'était un ressenti qu'il pouvait garder au fond de son cœur, mais qu'il ne pouvait pas encore pleinement comprendre.
 
 Les scènes réalistes du rêve irréel lui avaient ouvert la porte vers la troisième étape. Si quelqu'un dans le Système Stellaire d'Allheaven ou de l'Alliance l'apprenait, ils deviendraient tous fous pour obtenir cette perle !
 
@@ -46,7 +46,7 @@ Après avoir entrevu le Dao de la troisième étape, les futurs accomplissements
 
 « Ce junior est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue l'Aîné ! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
 
-Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
+Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de cultivation n'oseraient pas le provoquer.
 
 Plus important encore, le talent de cet homme était prodigieux. Le seigneur du Temple Céleste du Tonnerre avait lui-même déclaré que le talent de Shengong Hu pouvait être considéré comme faisant partie des trente meilleurs du Système Stellaire d'Allheaven.
 
@@ -54,7 +54,7 @@ Cette personne n'avait cultivé que depuis 1 000 ans. En seulement mille ans, il
 
 Personne ne pouvait déterminer ses limites. Peut-être parviendrait-il un jour à devenir un véritable cultivateur de la deuxième étape.
 
-Wang Lin ne bougea pas. Son expression restait neutre tandis qu'il regardait calmement Shengong Hu. Après avoir entrevu le Dao de la troisième étape, bien que son niveau de culture n'ait pas augmenté, sa force mentale avait subi un changement radical ; la nature même de son âme était différente de celle d'autrefois. À cet instant, même s'il se tenait devant l'Omniscient, il ne ressentirait aucune tension.
+Wang Lin ne bougea pas. Son expression restait neutre tandis qu'il regardait calmement Shengong Hu. Après avoir entrevu le Dao de la troisième étape, bien que son niveau de cultivation n'ait pas augmenté, sa force mentale avait subi un changement radical ; la nature même de son âme était différente de celle d'autrefois. À cet instant, même s'il se tenait devant l'Omniscient, il ne ressentirait aucune tension.
 
 C'était comme des mortels qui auraient aperçu des cultivateurs et leurs sorts : lorsqu'ils contemplent un roi mortel, ils n'ont plus peur !
 
@@ -66,7 +66,7 @@ Même la Bête du Tonnerre à ses côtés baissa la tête, perdant toute trace d
 
 Wang Lin détourna le regard et demanda calmement : « Que se passe-t-il ? » Son état d'esprit était encore quelque peu imprégné par le rêve irréel ; même son ton en témoignait.
 
-Bien que la culture de Shengong Hu fût au stade du Yang Corporel, son esprit était grandement ébranlé. En particulier, avec son cœur désormais craintif, il serait à peine capable d'utiliser le pouvoir d'un cultivateur Illusoire Yin.
+Bien que la cultivation de Shengong Hu fût au stade du Yang Corporel, son esprit était grandement ébranlé. En particulier, avec son cœur désormais craintif, il serait à peine capable d'utiliser le pouvoir d'un cultivateur Illusoire Yin.
 
 Quant à la Bête du Tonnerre, elle n'osait même pas lever la tête. Le regard précédent lui avait fait perdre tout courage.
 
@@ -78,19 +78,19 @@ Wang Lin avait décidé d'étudier attentivement le changement de la perle défi
 
 Le cœur de Wang Lin battait rapidement. Il ne pouvait imaginer les conséquences.
 
-De plus, ce rêve avait permis d'améliorer son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de culture.
+De plus, ce rêve avait permis d'améliorer son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de cultivation.
 
-Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la culture de cet Aîné. Ce dernier s'était montré clément en ne le tuant pas.
+Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la cultivation de cet Aîné. Ce dernier s'était montré clément en ne le tuant pas.
 
 En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas : cet Aîné lui avait épargné la vie. Autrement, il serait sans aucun doute mort !
 
 Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit : « Aîné, Junior est Shengong Hu, un membre de la famille Shenggong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie l'Aîné de me permettre de lui prêter allégeance ! »
 
-Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant ! Si un cultivateur puissant cachait son niveau, il ferait croire aux autres qu'il était un cultivateur Ascendant.
+Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de cultivation de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant ! Si un cultivateur puissant cachait son niveau, il ferait croire aux autres qu'il était un cultivateur Ascendant.
 
 « Prêter allégeance ? » Wang Lin fut surpris et fixa Shengong Hu.
 
-Shengong Hu s'empressa de poursuivre : « La culture de Junior est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance à l'Aîné. Cependant, Junior est extrêmement sincère ; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi Junior peut aider à satisfaire n'importe quelle exigence de l'Aîné. Junior sait que ces choses ne sont rien aux yeux de l'Aîné, mais j'espère qu'au vu de ma sincérité, l'Aîné acceptera mon allégeance... »
+Shengong Hu s'empressa de poursuivre : « La cultivation de Junior est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance à l'Aîné. Cependant, Junior est extrêmement sincère ; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi Junior peut aider à satisfaire n'importe quelle exigence de l'Aîné. Junior sait que ces choses ne sont rien aux yeux de l'Aîné, mais j'espère qu'au vu de ma sincérité, l'Aîné acceptera mon allégeance... »
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il secoua la tête. Il ne pouvait pas utiliser ce sort une seconde fois, et d'un seul regard, il avait compris que cet homme était extrêmement orgueilleux. Si celui-ci remarquait quoi que ce soit, cela causerait des ennuis inutiles.
 

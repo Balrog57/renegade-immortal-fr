@@ -60,7 +60,7 @@ Initialement, il pensait être en sécurité face à quiconque n'était pas un m
 
 Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre des Dieux Ancestraux. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
 
-« Récemment, j'ai eu la vie trop facile. L'augmentation de ma culture et l'intégration de mon corps originel m'ont rendu moins vigilant qu'auparavant... » Wang Lin songea silencieusement. Il serra le poing, le regard empreint de méfiance.
+« Récemment, j'ai eu la vie trop facile. L'augmentation de ma cultivation et l'intégration de mon corps originel m'ont rendu moins vigilant qu'auparavant... » Wang Lin songea silencieusement. Il serra le poing, le regard empreint de méfiance.
 
 Ce type de regard n'avait pas brillé dans ses yeux depuis longtemps. Grâce à cette crise, il avait retrouvé l'attitude prudente qui était la sienne autrefois.
 
@@ -96,7 +96,7 @@ L'expression de Wang Lin était plus sombre qu'à l'accoutumée. Cet endroit res
 
 Même si les cultivateurs ne pouvaient être comparés aux mortels, s'ils restaient ici trop longtemps, ils subiraient cette oppression. Non seulement leur âme originelle se transformerait et leur personnalité deviendrait hostile, mais ils finiraient presque par devenir des démons.
 
-Si un cultivateur démoniaque se trouvait ici, cet endroit serait pour lui une terre sainte favorisant sa culture. Cependant, à la fin, son âme originelle se transformerait totalement en celle d'un démon et il deviendrait un humain-démon dépourvu de toute conscience.
+Si un cultivateur démoniaque se trouvait ici, cet endroit serait pour lui une terre sainte favorisant sa cultivation. Cependant, à la fin, son âme originelle se transformerait totalement en celle d'un démon et il deviendrait un humain-démon dépourvu de toute conscience.
 
 Tout au long du chemin, Wang Lin réfléchissait en silence tout en avançant lentement. Durant ce mois, il ne revit pas le mystérieux gaz gris. Pourtant, loin de disparaître, le sentiment de crise s'intensifiait à mesure qu'il progressait.
 

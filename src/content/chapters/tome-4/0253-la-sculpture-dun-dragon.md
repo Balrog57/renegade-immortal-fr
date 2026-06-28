@@ -62,7 +62,7 @@ Wang Lin prit une profonde inspiration et posa nonchalamment la sculpture sur un
 
 Chaque tentative de sculpture d'une bête de haute qualité se terminait par une perte de contrôle lors des derniers coups, provoquant l'éclatement de l'œuvre.
 
-Wang Lin comprit que cela était dû à son niveau de culture insuffisant. Après tout, une bête spirituelle de haute qualité équivalait au stade de la Formation de l'Âme pour les humains.
+Wang Lin comprit que cela était dû à son niveau de cultivation insuffisant. Après tout, une bête spirituelle de haute qualité équivalait au stade de la Formation de l'Âme pour les humains.
 
 Les yeux de Da Niu brillaient d'admiration. Durant cette année, il était venu chaque jour observer Wang Lin sculpter, au point d'en devenir accro.
 

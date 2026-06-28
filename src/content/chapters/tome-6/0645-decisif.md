@@ -66,7 +66,7 @@ Sur ces mots, les trois autres disciples manifestèrent une intention meurtrièr
 
 « Wang Lin, dans dix respirations, même si tu résistes, je te sortirai de là ! » Après avoir envoyé ce message, Zhou Yi propagea son Sens Divin d'épée à travers le brouillard qui se contractait et verrouilla les quatre membres du Secte de l'Épée Da Lou !
 
-Wang Lin fonça comme la foudre vers l'un d'eux. Ce dernier possédait le niveau de culture le plus bas des quatre, étant seulement au stade intermédiaire de la Transformation de l'Âme. Son Sens Divin était inutile dans ce brouillard ; il était comme aveugle et sourd.
+Wang Lin fonça comme la foudre vers l'un d'eux. Ce dernier possédait le niveau de cultivation le plus bas des quatre, étant seulement au stade intermédiaire de la Transformation de l'Âme. Son Sens Divin était inutile dans ce brouillard ; il était comme aveugle et sourd.
 
 Au moment où Wang Lin se rapprocha, l'homme ne sentit qu'une brise. Mais cette brise devint subitement glaciale et emporta sa tête !
 

@@ -32,7 +32,7 @@ Par exemple, à l'extérieur du Gouffre de Dong Lin, les expressions et les pens
 
 « Qui est cet homme ?! En moins d'une journée, il a déjà obtenu plus de 300 jetons !! »
 
-« Ses actions sont décisives, pourtant son niveau de culture ne semble pas bien plus élevé. Chaque attaque est imprégnée d'une énergie nuageuse et semble extraordinaire ! »
+« Ses actions sont décisives, pourtant son niveau de cultivation ne semble pas bien plus élevé. Chaque attaque est imprégnée d'une énergie nuageuse et semble extraordinaire ! »
 
 « Il est probable que personne ne puisse l'égaler dans cette compétition. Je ne m'attendais pas à un tel prodige en cette génération. »
 

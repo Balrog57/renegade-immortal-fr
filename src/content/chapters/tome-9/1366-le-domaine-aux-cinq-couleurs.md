@@ -36,7 +36,7 @@ Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avo
 
 Un éclair de tonnerre défiant les cieux !
 
-Sa culture subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Domaine Intérieur, ni dans le Domaine Extérieur ! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur de Nirvana pour atteindre le stade avancé !
+Sa cultivation subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Domaine Intérieur, ni dans le Domaine Extérieur ! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur de Nirvana pour atteindre le stade avancé !
 
 Cependant, s'il n'utilisait pas le tonnerre mais plutôt son propre domaine, le feu et son énergie originelle, Wang Lin restait au stade intermédiaire du Briseur de Nirvana.
 
@@ -76,7 +76,7 @@ Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. 
 
 « Ancien, une foule immense s'est rassemblée dans ce domaine stellaire, mais personne n'a rien trouvé. Peut-être que cet homme n'est pas ici... »
 
-« Il n'est peut-être pas sur cette planète de culture, mais il est certainement dans ce domaine stellaire ! » déclara l'homme d'un ton lugubre tout en fendant les airs.
+« Il n'est peut-être pas sur cette planète de cultivation, mais il est certainement dans ce domaine stellaire ! » déclara l'homme d'un ton lugubre tout en fendant les airs.
 
 « Le Grand Maître Yun Luo du Conseil Souverain avait prédit que cet homme se trouverait dans ce domaine stellaire. Il ne faudra pas longtemps avant qu'il puisse localiser la planète exacte. Si nous parvenons à le trouver avant le Grand Maître Yun Luo, nous pourrons sûrement... » Les yeux de l'Ancien s'illuminèrent à cette pensée.
 

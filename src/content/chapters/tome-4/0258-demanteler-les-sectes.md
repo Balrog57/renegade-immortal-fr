@@ -48,7 +48,7 @@ Wang Lin répondit d'un ton neutre : « Wang Lin. »
 
 Le vieil homme hocha la tête. D'un mouvement de sa main droite, son aura changea radicalement, passant de celle d'un vieillard à celle d'une présence impérieuse. Bien que son apparence n'ait pas changé et qu'aucune énergie spirituelle ne s'échappât de son corps, il devint soudainement extrêmement mystérieux et difficile à sonder.
 
-L'énergie spirituelle dans le corps de Wang Lin s'agita sous cette stimulation et ses yeux s'illuminèrent. À cet instant, Wang Lin fut incapable de percer le niveau de culture de ce vieil homme. La lueur disparut rapidement de son regard alors qu'il prenait une gorgée de vin et disait : « Aîné, ma modeste demeure ne peut supporter une telle puissance. Je vous prie de vous retenir. »
+L'énergie spirituelle dans le corps de Wang Lin s'agita sous cette stimulation et ses yeux s'illuminèrent. À cet instant, Wang Lin fut incapable de percer le niveau de cultivation de ce vieil homme. La lueur disparut rapidement de son regard alors qu'il prenait une gorgée de vin et disait : « Aîné, ma modeste demeure ne peut supporter une telle puissance. Je vous prie de vous retenir. »
 
 Le vieil homme renifla : « Gamin, expérimente un peu. C'est cela, un domaine ! »
 
@@ -58,7 +58,7 @@ Aussitôt, l'aura autour de lui s'anima et une vague de rage déferla dans la bo
 
 Cette aura de rage se propagea dans les environs et l'énergie spirituelle de Wang Lin commença involontairement à résister. Dès qu'elle s'agita, elle fut aspirée par cette fureur déchaînée. Elle fut instantanément assimilée par cette aura et devint elle aussi extrêmement violente.
 
-Sous ce souffle de rage, une trace de terreur apparut dans les yeux de Wang Lin. L'énergie spirituelle à l'intérieur de son corps ne lui obéissait plus. Il eut même le sentiment que sa propre Âme Naissante était en train d'être assimilée par cette fureur. À ce moment précis, il eut l'impression que ses 400 ans de culture acharnée n'étaient devenus qu'un outil pour permettre au vieil homme de l'attaquer.
+Sous ce souffle de rage, une trace de terreur apparut dans les yeux de Wang Lin. L'énergie spirituelle à l'intérieur de son corps ne lui obéissait plus. Il eut même le sentiment que sa propre Âme Naissante était en train d'être assimilée par cette fureur. À ce moment précis, il eut l'impression que ses 400 ans de cultivation acharnée n'étaient devenus qu'un outil pour permettre au vieil homme de l'attaquer.
 
 « C'est mon Domaine de la Rage. J'ai utilisé ce domaine autrefois pour atteindre le stade de la Formation de l'Âme. Sous l'influence de ce domaine, toute énergie spirituelle est assimilée et contrôlée par moi. » Une pointe de folie perçait dans la voix du vieil homme. Après un bref regard vers Wang Lin, le domaine disparut, comme s'il n'avait jamais existé.
 
@@ -66,7 +66,7 @@ En quelques respirations seulement, Wang Lin fut couvert de sueur froide. Ses ma
 
 Wang Lin réfléchit un instant, puis demanda : « Pourquoi aucun des cultivateurs de la Formation de l'Âme que j'ai rencontrés auparavant n'a manifesté un tel domaine ? »
 
-Le vieil homme sursauta. Il se gratta la tête et dit avec embarras : « Cela... j'ai oublié. De plus, j'ai abaissé mon niveau de culture à la Formation de l'Âme, mais j'ai utilisé la puissance du stade de la Transformation de l'Âme pour activer le domaine, ce qui était un peu trop puissant... En vérité, les cultivateurs de la Formation de l'Âme ne peuvent pas déployer leur domaine ainsi, car seule une infime partie de leurs domaines transparaît dans leurs techniques, les rendant indétectables. Hehe, pardon. »
+Le vieil homme sursauta. Il se gratta la tête et dit avec embarras : « Cela... j'ai oublié. De plus, j'ai abaissé mon niveau de cultivation à la Formation de l'Âme, mais j'ai utilisé la puissance du stade de la Transformation de l'Âme pour activer le domaine, ce qui était un peu trop puissant... En vérité, les cultivateurs de la Formation de l'Âme ne peuvent pas déployer leur domaine ainsi, car seule une infime partie de leurs domaines transparaît dans leurs techniques, les rendant indétectables. Hehe, pardon. »
 
 Wang Lin eut un sourire amer et regarda le vieil homme. Il marmonna pour lui-même : « Un domaine... c'est donc cela, un domaine... »
 
@@ -76,7 +76,7 @@ Les yeux de Wang Lin brillèrent. Il fallait admettre que, bien que l'expérienc
 
 Il regarda le vieil homme sans accepter immédiatement. Il demanda lentement : « Quel prix dois-je payer ? »
 
-Les yeux du vieil homme se rétrécirent. Il frappa sa poitrine et dit : « Un prix ? Il n'y a aucun prix à payer. Avec moi pour te protéger dans ce pays de culture de rang 4, nous pourrons marcher tête haute sans crainte. »
+Les yeux du vieil homme se rétrécirent. Il frappa sa poitrine et dit : « Un prix ? Il n'y a aucun prix à payer. Avec moi pour te protéger dans ce pays de cultivation de rang 4, nous pourrons marcher tête haute sans crainte. »
 
 Wang Lin ne dit mot, mais fixa silencieusement le vieil homme.
 
@@ -88,7 +88,7 @@ Le vieil homme roula des yeux. Il frappa sa poitrine avec colère et s'exclama :
 
 Alors qu'il parlait, le visage du vieil homme rougit légèrement, mais plus il s'exprimait, plus il s'animait. Il en vint même à bomber et à frapper son torse.
 
-Wang Lin fut surpris. Il hocha la tête et dit : « Très bien, mais mon niveau de culture n'est pas encore assez élevé. Ce n'est qu'une fois le stade de la Formation de l'Âme atteint que je pourrai faire de votre sculpture une œuvre parfaite. »
+Wang Lin fut surpris. Il hocha la tête et dit : « Très bien, mais mon niveau de cultivation n'est pas encore assez élevé. Ce n'est qu'une fois le stade de la Formation de l'Âme atteint que je pourrai faire de votre sculpture une œuvre parfaite. »
 
 Le vieil homme fut instantanément ravi et répondit précipitamment : « Rien ne presse, rien ne presse ! Elle doit être parfaite. Oh... je veux une sculpture nue, alors assure-toi qu'elle soit impeccable. Et ce n'est pas tout, il m'en faudra plusieurs. Cent ! Oui, cent ! »
 
@@ -114,6 +114,6 @@ Wang Lin répondit calmement : « Jamais. »
 
 « Après avoir vu ma puissance, tu ne lâches même pas un mot ? » Les yeux du vieil homme s'écarquillèrent. C'était comme s'il avait déployé toute sa force pour offrir un banquet royal et que l'enfant n'avait montré aucune réaction.
 
-Wang Lin regarda le vieil homme avec une expression étrange et dit : « Le niveau de culture de l'Aîné est une chose que ce junior n'a jamais vue auparavant. Je vous admire ! »
+Wang Lin regarda le vieil homme avec une expression étrange et dit : « Le niveau de cultivation de l'Aîné est une chose que ce junior n'a jamais vue auparavant. Je vous admire ! »
 
 Le vieil homme renifla et se vanta : « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation d'un million de kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara : « Voilà la Secte des Nuages Blancs. Allons-y, ce vieux peut t'emmener démanteler cette secte ! »

@@ -104,7 +104,7 @@ Zhuque Zi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction
 
 Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et ainsi de suite.
 
-« En tant que Suzaku de la 14e génération, j'appelle tous les pays de culture ! La seconde guerre contre le Clan de l'Immortel Délaissé commence ! »
+« En tant que Suzaku de la 14e génération, j'appelle tous les pays de cultivation ! La seconde guerre contre le Clan de l'Immortel Délaissé commence ! »
 
 Les jetons nuageux disparurent rapidement. Puis, un vieil homme sortit de sa longue retraite au Secteur du Jade Céleste, dans le pays de Suzaku.
 

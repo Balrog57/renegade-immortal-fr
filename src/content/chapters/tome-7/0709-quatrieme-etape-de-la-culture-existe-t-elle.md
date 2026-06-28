@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 709 - Fourth Step of Cultivation, Does it Exist
 slug: quatrieme-etape-de-la-culture-existe-t-elle
 ---
-Chapitre 709 - Quatrième étape de la culture : existe-t-elle ?
+Chapitre 709 - Quatrième étape de la cultivation : existe-t-elle ?
 
 Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une Bête du Tonnerre à la corne argentée, teintée d'une pointe d'or. Son corps tout entier irradiait des éclairs, affichant une majesté impressionnante.
 
@@ -16,27 +16,27 @@ Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'
 
 Si un véritable messager du Temple Céleste du Tonnerre rencontrait Wang Lin, il en serait stupéfait.
 
-Plus de 900 ans de culture avaient permis à Wang Lin d'atteindre le stade avancé de l'Ascendant, atteignant ainsi le même niveau que Zhuque Zi à l'époque.
+Plus de 900 ans de cultivation avaient permis à Wang Lin d'atteindre le stade avancé de l'Ascendant, atteignant ainsi le même niveau que Zhuque Zi à l'époque.
 
 Si Zhuque Zi n'était pas mort, quel sentiment éprouverait-il en voyant cela ? Ce petit cultivateur qu'il ne considérait que comme un pion avait atteint des sommets aussi élevés !
 
-Les cultivateurs au stade avancé de l'Ascendant étaient considérés comme des existences suprêmes sur certaines petites planètes de culture. Personne n'oserait les provoquer là-bas.
+Les cultivateurs au stade avancé de l'Ascendant étaient considérés comme des existences suprêmes sur certaines petites planètes de cultivation. Personne n'oserait les provoquer là-bas.
 
-Après avoir passé l'année écoulée à absorber l'énergie spirituelle céleste, Wang Lin avait enfin atteint ce sommet. Il ne lui manquait plus qu'un pas pour que sa culture et son domaine atteignent la perfection. Après cela, il pourrait franchir le seuil de la deuxième étape !
+Après avoir passé l'année écoulée à absorber l'énergie spirituelle céleste, Wang Lin avait enfin atteint ce sommet. Il ne lui manquait plus qu'un pas pour que sa cultivation et son domaine atteignent la perfection. Après cela, il pourrait franchir le seuil de la deuxième étape !
 
-Peu de gens pouvaient atteindre la deuxième étape de la culture ; c'était une difficulté telle que les cultivateurs du premier stade ne pouvaient même l'imaginer.
+Peu de gens pouvaient atteindre la deuxième étape de la cultivation ; c'était une difficulté telle que les cultivateurs du premier stade ne pouvaient même l'imaginer.
 
 Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Illusoire Yin lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
-« La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
+« La première étape de la cultivation était déjà extrêmement difficile. En repensant à ces 900 ans de cultivation, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
 
 « Si la première étape est déjà ainsi, alors la deuxième doit être encore plus ardue. La deuxième étape doit également posséder sa propre épreuve de vie et de mort... Je me demande si je pourrai la réussir... Cependant, celui qui suit la volonté des cieux est semblable à un mortel, tandis que celui qui s'oppose aux cieux est immortel. Tant que mon cœur dao demeure, je peux surmonter tous les dangers ! » Les yeux de Wang Lin brillèrent intensément.
 
-« Il existe aussi la troisième étape de la culture. Même des êtres comme le Tout-Voyant ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un dieu ancestral... » Une pointe d'anticipation traversa son regard.
+« Il existe aussi la troisième étape de la cultivation. Même des êtres comme le Tout-Voyant ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un dieu ancestral... » Une pointe d'anticipation traversa son regard.
 
 Cependant, il savait que la troisième étape était encore bien trop lointaine ; il se pourrait même qu'il ne puisse en saisir l'essence avant la fin de sa vie.
 
-« Les trois étapes de la culture sont comme l'ascension d'une montagne ; chaque palier est plus difficile que le précédent. J'ignore combien de royaumes composent la troisième étape... Je me demande simplement s'il existe une quatrième étape ! » La main droite de Wang Lin caressa doucement la tête de la Bête du Tonnerre. Des éclairs circulaient dans sa main, mais ils n'avaient aucun effet sur lui.
+« Les trois étapes de la cultivation sont comme l'ascension d'une montagne ; chaque palier est plus difficile que le précédent. J'ignore combien de royaumes composent la troisième étape... Je me demande simplement s'il existe une quatrième étape ! » La main droite de Wang Lin caressa doucement la tête de la Bête du Tonnerre. Des éclairs circulaient dans sa main, mais ils n'avaient aucun effet sur lui.
 
 « La quatrième étape existe-t-elle... » murmura Wang Lin, comme s'il interrogeait les étoiles.
 
@@ -50,7 +50,7 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planè
 
 « Le Serpent Moongazer est un parasite qui vit à l'intérieur du corps d'un dieu ancestral. Je me demande s'il reste là-bas des traces de l'aura d'un dieu ancestral... » Wang Lin se remémora un souvenir passé.
 
-« À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Bête Sable Stellaire. Cette créature est extrêmement sensible à l'aura d'un dieu ancestral. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
+« À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Cultivation était arrivé avec une Bête Sable Stellaire. Cette créature est extrêmement sensible à l'aura d'un dieu ancestral. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 
 La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune plus tard, la planète Mille Illusions apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
 

@@ -122,7 +122,7 @@ Il était évident que Wang Lin ne choisirait pas cette voie. Alors qu'il commen
 
 « Outre ces huit lois, il y en a une autre ! » Les yeux de Wang Lin s'ouvrirent brusquement et se fixèrent sur la gigantesque porte de pierre sous ses pieds.
 
-Le temps avait laissé sa marque sur cette porte de pierre. C'était une aura naturelle qui émergeait lorsque quelqu'un restait présent assez longtemps. Il n'y avait rien d'extraordinaire en soi ; cette aura serait même plus puissante sur certaines planètes de culture antiques.
+Le temps avait laissé sa marque sur cette porte de pierre. C'était une aura naturelle qui émergeait lorsque quelqu'un restait présent assez longtemps. Il n'y avait rien d'extraordinaire en soi ; cette aura serait même plus puissante sur certaines planètes de cultivation antiques.
 
 Cependant, pour une raison inconnue, la marque du temps sur cette porte avait subi une mutation. C'était comme l'évolution du domaine d'un cultivateur : elle était passée du « temps » à l'« éternité » !
 

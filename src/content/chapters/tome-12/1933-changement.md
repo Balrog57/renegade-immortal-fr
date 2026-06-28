@@ -76,7 +76,7 @@ Wang Lin se déplaça très vite et se rapprocha à moins de 400 pieds d'elle, m
 
 La paume brisée charriait une férocité, une soif de sang et une folie indicible alors qu'elle ouvrait ses cinq doigts vers l'Exaltée.
 
-Wang Lin pouvait utiliser le sort « Arrête », mais il ne pourrait pas le dissiper à moins que le niveau de culture de la cible ne soit bien inférieur au sien. Empyrean Exalt Hai Zi étant une Empyrean Exalt, son niveau de culture était en réalité bien supérieur à celui de Wang Lin. Il ne pouvait donc pas briser l'effet en peu de temps.
+Wang Lin pouvait utiliser le sort « Arrête », mais il ne pourrait pas le dissiper à moins que le niveau de cultivation de la cible ne soit bien inférieur au sien. Empyrean Exalt Hai Zi étant une Empyrean Exalt, son niveau de cultivation était en réalité bien supérieur à celui de Wang Lin. Il ne pouvait donc pas briser l'effet en peu de temps.
 
 La Mer Montagne ayant été scellée par elle, la téléportation était impossible. La paume brisée était sur le point de dévorer Empyrean Exalt Hai Zi. Le désespoir emplissait ses yeux quand Wang Lin laissa échapper un rugissement et que les cinq Veines Magiques de son corps entrèrent en éruption. Elles tournèrent à une vitesse folle, propulsant Wang Lin plus vite qu'il ne l'avait jamais été auparavant !!
 

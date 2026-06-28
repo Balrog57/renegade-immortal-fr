@@ -26,7 +26,7 @@ C'est pourquoi, en rencontrant Qiu Siping, Wang Lin avait décidé de l'empêche
 
 L'expression de Wang Lin resta impassible alors qu'il disait calmement : « Oh, vraiment ? Dans ce cas, frère Qiu devrait m'accompagner en ville. Il ne sera pas trop tard pour que vous les recherchiez une fois que j'aurai obtenu cette carte. »
 
-Qiu Siping réfléchit un instant et soupira. Le stratagème de Wang Lin était d'une profondeur redoutable. Tout avait commencé au moment où ce dernier était apparu fortuitement pour signaler le niveau de culture de Qiu Siping, permettant ainsi aux deux juniors de s'échapper.
+Qiu Siping réfléchit un instant et soupira. Le stratagème de Wang Lin était d'une profondeur redoutable. Tout avait commencé au moment où ce dernier était apparu fortuitement pour signaler le niveau de cultivation de Qiu Siping, permettant ainsi aux deux juniors de s'échapper.
 
 Tout cela faisait partie des calculs de Wang Lin, et Qiu Siping, sans le savoir, était tombé dans son piège. Il semblait que Wang Lin avait délibérément poussé Qiu Siping à une situation où il devait tuer les deux juniors, pour ensuite les sauver et le forcer ainsi à dire la vérité. De plus, l'aura que Wang Lin dégageait suggérait que s'il persistait dans son entêtement, Wang Lin n'hésiterait pas à l'éliminer.
 
@@ -90,9 +90,9 @@ Une fois sa tâche accomplie, son corps disparut pour réapparaître devant la f
 
 Peu après, le visage sur la paroi recommença à bouger. Ses yeux étaient fixés sur Wang Lin tandis qu'il émettait des grognements hostiles.
 
-Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la culture en isolation ; s'il pouvait disposer d'une bête pareille pour le garder, ce serait idéal. Hélas, le niveau de culture de cette créature était limité.
+Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la cultivation en isolation ; s'il pouvait disposer d'une bête pareille pour le garder, ce serait idéal. Hélas, le niveau de cultivation de cette créature était limité.
 
-Cependant, Wang Lin possédait de nombreux noyaux dans son sac de rangement. Grâce à eux, il pourrait faire progresser la culture de cette bête de manière significative. Il forma alors un sceau et commença ses incantations.
+Cependant, Wang Lin possédait de nombreux noyaux dans son sac de rangement. Grâce à eux, il pourrait faire progresser la cultivation de cette bête de manière significative. Il forma alors un sceau et commença ses incantations.
 
 Il hurla : « Brise ! »
 

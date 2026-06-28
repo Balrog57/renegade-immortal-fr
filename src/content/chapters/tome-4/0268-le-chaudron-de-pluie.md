@@ -28,7 +28,7 @@ L'homme en noir, paniqué, hurla : « Que fais-tu, Zhou Wutai ?! »
 
 Zhou Wutai le regarda avec indifférence. Un léger sourire étira ses lèvres tandis qu'il murmurait : « Vous quatre avez offensé le frère Wang. Comment pourrais-je vous laisser partir ? » Sur ces mots, sa main gauche traça un sceau complexe. Une étrange lumière violette jaillit de sa paume. À cet instant précis, la différence entre un cultivateur de l'Âme Naissante tardif et un pseudo-cultivateur de la Formation de l'Âme devint flagrante.
 
-La culture de Zhou Wutai n'était qu'un cran en dessous de celle de Wang Lin ; il avait un pied dans le royaume de la Formation de l'Âme et avait commencé à acquérir une partie de son domaine. Lorsque la lumière violette apparut, l'homme en noir eut l'impression de revenir à sa jeunesse, à l'époque où il venait d'intégrer la secte et de rencontrer son maître.
+La cultivation de Zhou Wutai n'était qu'un cran en dessous de celle de Wang Lin ; il avait un pied dans le royaume de la Formation de l'Âme et avait commencé à acquérir une partie de son domaine. Lorsque la lumière violette apparut, l'homme en noir eut l'impression de revenir à sa jeunesse, à l'époque où il venait d'intégrer la secte et de rencontrer son maître.
 
 Bien qu'il sût que tout cela n'était qu'une illusion, le sentiment était d'un réalisme absolu. Une sensation écrasante envahit son corps. Lorsqu'il retrouva ses esprits, la main droite de Zhou Wutai pressait déjà son front. Accompagné d'une décharge d'énergie spirituelle, l'homme en noir cracha un sang noir et s'effondra, mort.
 
@@ -60,7 +60,7 @@ Wang Lin sourit. D'un geste de la main, il fit apparaître une nouvelle gourde d
 
 Ce dernier l'accepta avec un sourire espiègle et sortit la moitié d'un poulet rôti de sous ses vêtements. « Tu es assez malin, gamin. Tiens, je vais partager ce poulet avec toi. »
 
-Après avoir parlé, il dévisagea Wang Lin, son regard empreint d'une admiration grandissante : « Pas mal, jeune homme. Ton niveau de culture a encore progressé. Il semble que le stade de la Formation de l'Âme ne soit plus très loin. N'oublie pas la sculpture sur bois que tu m'as promise, sinon, peu importe où tu iras, je te retrouverai. »
+Après avoir parlé, il dévisagea Wang Lin, son regard empreint d'une admiration grandissante : « Pas mal, jeune homme. Ton niveau de cultivation a encore progressé. Il semble que le stade de la Formation de l'Âme ne soit plus très loin. N'oublie pas la sculpture sur bois que tu m'as promise, sinon, peu importe où tu iras, je te retrouverai. »
 
 Wang Lin eut un sourire discret : « Bien sûr. Je n'oublierai pas ma promesse envers l'Aîné. »
 
@@ -68,7 +68,7 @@ Le vieil homme arracha une cuisse de poulet et en croqua une bouchée. « Jeune 
 
 Intrigué, Wang Lin fixa le vieil homme et demanda : « L'Aîné sait-il ce qui se passe au sein de l'Alliance des Quatre Sectes ? »
 
-Le vieil homme redressa fièrement le menton : « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance a réussi à dérober un Chaudron de Pluie à un cultivateur de Xue Yu, et ils sont tous là pour le récupérer. Ce n'est qu'une bagatelle. »
+Le vieil homme redressa fièrement le menton : « Il n'est rien dans ce monde de cultivation que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance a réussi à dérober un Chaudron de Pluie à un cultivateur de Xue Yu, et ils sont tous là pour le récupérer. Ce n'est qu'une bagatelle. »
 
 « Un Chaudron de Pluie... » Wang Lin réfléchit un instant. Il se souvint soudainement de sa conversation avec le cultivateur aux grandes oreilles, Zhou Wutai, qui avait mentionné la Porte Céleste.
 
@@ -82,9 +82,9 @@ Wang Lin fut stupéfait. Rien de tel n'avait été mentionné dans la mémoire d
 
 Après avoir terminé le cou du poulet, le vieil homme déchira un large morceau de blanc de poitrine et ajouta en mangeant : « Bien sûr qu'ils sont morts. Pourquoi crois-tu que les cultivateurs au stade de la Transformation de l'Âme ou au-delà existent encore ? C'est parce qu'ils n'ont nulle part où aller ! »
 
-Le cœur de Wang Lin trembla. Il savait déjà que le monde antique de la culture s'était effondré lors d'une catastrophe, donnant naissance à l'Union de la Culture. Cependant, il n'avait pas imaginé que les êtres célestes eux-mêmes avaient péri.
+Le cœur de Wang Lin trembla. Il savait déjà que le monde antique de la cultivation s'était effondré lors d'une catastrophe, donnant naissance à l'Union de la Cultivation. Cependant, il n'avait pas imaginé que les êtres célestes eux-mêmes avaient péri.
 
-Remarquant le choc de Wang Lin, le vieil homme afficha un air de fierté. Il finit son repas, laissa échapper un rot et prit une gorgée de vin. S'essuyant négligemment les mains sur ses vêtements, il poursuivit : « Hé hé, choquant, n'est-ce pas ? Tous les anciens dieux sont morts, tout comme les anciens êtres célestes. Il ne reste plus beaucoup de cultivateurs de l'ère antique, c'est pourquoi l'Union de la Culture a pu apparaître et se développer à nouveau. »
+Remarquant le choc de Wang Lin, le vieil homme afficha un air de fierté. Il finit son repas, laissa échapper un rot et prit une gorgée de vin. S'essuyant négligemment les mains sur ses vêtements, il poursuivit : « Hé hé, choquant, n'est-ce pas ? Tous les anciens dieux sont morts, tout comme les anciens êtres célestes. Il ne reste plus beaucoup de cultivateurs de l'ère antique, c'est pourquoi l'Union de la Cultivation a pu apparaître et se développer à nouveau. »
 
 Wang Lin resta silencieux, digérant le secret que l'homme venait de lui livrer. Après un long moment, il fronça les sourcils : « Si cela est vrai, pourquoi les quatre Portes Célestes existent-elles encore ? »
 
@@ -102,4 +102,4 @@ Le vieil homme reprit : « Pour passer du stade de la Formation de l'Âme à cel
 
 Wang Lin réfléchit un instant, puis sourit faiblement : « Cela signifie que ce Chaudron de Pluie est une proie véritablement convoitée, surtout pour les cultivateurs de la Formation de l'Âme. Que ce soit pour élever leur propre niveau ou pour accroître le rang de leur pays, c'est un indispensable. Les trois autres types de chaudrons apparaîtront-ils également ? »
 
-Le vieil homme saisit la cruche de vin, en but une gorgée et répondit : « Ces quatre types de chaudrons apparaissent de temps à autre. Ils sont créés par les cieux ; ceux qui les obtiennent font preuve d'une immense chance. Les quatre Portes Célestes couvrent toutes les planètes de culture ; selon la porte dont on est le plus proche, c'est ce type de chaudron qui se manifestera. »
+Le vieil homme saisit la cruche de vin, en but une gorgée et répondit : « Ces quatre types de chaudrons apparaissent de temps à autre. Ils sont créés par les cieux ; ceux qui les obtiennent font preuve d'une immense chance. Les quatre Portes Célestes couvrent toutes les planètes de cultivation ; selon la porte dont on est le plus proche, c'est ce type de chaudron qui se manifestera. »

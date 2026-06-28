@@ -84,7 +84,7 @@ Au loin, les trois frères Chen avaient déjà remarqué la scène et accouraien
 
 Les trois frères Chen murmurèrent entre eux, parvenant à deviner une partie de la vérité.
 
-Plus loin, les cultivateurs résidant sur la planète furent tous tirés de leur culture. Leur niveau n'étant pas assez élevé, ils ne pouvaient ressentir qu'une pression écrasante. Ils n'osaient plus bouger, comme si le ciel allait les broyer au moindre mouvement !
+Plus loin, les cultivateurs résidant sur la planète furent tous tirés de leur cultivation. Leur niveau n'étant pas assez élevé, ils ne pouvaient ressentir qu'une pression écrasante. Ils n'osaient plus bouger, comme si le ciel allait les broyer au moindre mouvement !
 
 Ling Er cultivait en contemplant les cloches devant elle. Plus elle les regardait, plus elle les aimait, mais à cet instant, une pression puissante s'abattit sur elle. Soudain, une lumière bleue émana de sa poitrine pour l'aider à résister.
 
@@ -96,7 +96,7 @@ Big Head et sa compagnie sortirent également, pétrifiés par le spectacle. Le 
 
 Maître Hollow Wind fut le premier à remarquer l'anomalie. Flottant dans les airs, il affichait une expression extrêmement complexe en observant l'immense bouclier aux côtés de Wang Lin. Il avait obtenu ce bouclier en tuant un ennemi. Après l'avoir étudié, il avait été choqué, pressentant un lien avec les Quatre Sectes Divines.
 
-Il n'aurait pas osé l'utiliser si tôt ; il ne l'avait sorti que par nécessité vitale. Il pouvait briser la marque du dragon d'azur, mais avec sa culture, il percevait le vortex azur en dessous. Peu importaient ses tentatives, il ne parvenait pas à briser le vortex, il avait donc dû laisser le trésor tel quel.
+Il n'aurait pas osé l'utiliser si tôt ; il ne l'avait sorti que par nécessité vitale. Il pouvait briser la marque du dragon d'azur, mais avec sa cultivation, il percevait le vortex azur en dessous. Peu importaient ses tentatives, il ne parvenait pas à briser le vortex, il avait donc dû laisser le trésor tel quel.
 
 À présent, il ne s'attendait pas à ce que Wang Lin brise le sceau du vortex dès l'obtention de l'objet. En conséquence, il redoutait inconsciemment encore plus Wang Lin.
 

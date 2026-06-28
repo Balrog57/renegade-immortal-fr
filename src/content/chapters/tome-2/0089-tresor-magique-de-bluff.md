@@ -62,7 +62,7 @@ Sous l'apport d'énergie, le pouvoir du vieil homme augmenta rapidement jusqu'à
 
 Wang Lin était totalement stupéfait. Ignorant l'utilité réelle de cette perle, il décida d'y injecter encore plus de pouvoir spirituel.
 
-Les yeux du vieil homme brillèrent intensément et son aura s'intensifia brusquement. Ses mouvements provoquèrent des rugissements tonitruants alors que sa culture atteignait un niveau tel que Wang Lin ne pouvait même plus en déterminer le stade. La puissance du vieil homme avait atteint ce degré qui inspire la terreur d'un simple regard. L'homme expira et libéra l'aura d'un expert hors pair. Il plaça ses mains derrière son dos et tonna : « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez ! »
+Les yeux du vieil homme brillèrent intensément et son aura s'intensifia brusquement. Ses mouvements provoquèrent des rugissements tonitruants alors que sa cultivation atteignait un niveau tel que Wang Lin ne pouvait même plus en déterminer le stade. La puissance du vieil homme avait atteint ce degré qui inspire la terreur d'un simple regard. L'homme expira et libéra l'aura d'un expert hors pair. Il plaça ses mains derrière son dos et tonna : « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez ! »
 
 Wang Lin retira son pouvoir spirituel, et le vieil homme disparut aussitôt pour redevenir une fumée blanche. La fumée retourna dans la perle et, dans un craquement sec, une nouvelle fissure apparut sur la pierre.
 
@@ -70,13 +70,13 @@ Wang Lin fixa la perle de pierre, incapable de prononcer un mot. Il était total
 
 L'aura et l'expression avaient atteint leur apogée. Wang Lin était persuadé que même lui n'aurait pu déceler la supercherie. Après tout, aux yeux de la plupart des gens, ce vieil homme possédait l'aura d'un grand maître.
 
-Et avec l'augmentation de sa propre culture, il pourrait injecter plus de pouvoir spirituel dans la perle, augmentant ainsi la puissance du vieil homme. C'était là une méthode infaillible pour intimider autrui.
+Et avec l'augmentation de sa propre cultivation, il pourrait injecter plus de pouvoir spirituel dans la perle, augmentant ainsi la puissance du vieil homme. C'était là une méthode infaillible pour intimider autrui.
 
 Wang Lin rangea le trésor et marmonna pour lui-même : « Cet étrange être à la peau bleue est vraiment intéressant. Il a dû se sentir mal après avoir brisé la petite formation de confusion, alors il m'a offert ce trésor. »
 
 De cet échange bref, il comprit immédiatement que l'étranger ne savait pas utiliser les trésors magiques et qu'il devait en exister d'autres au sein des ruines. Désormais, cette cité dévastée était devenue un véritable trésor aux yeux de Wang Lin.
 
-« Cet endroit possède une lumière mystérieuse qui guérit les blessures, un trésor magique illusionnaire et un étrange être bleu... Quels autres secrets recèle ce lieu ? » Wang Lin se frotta le menton. Comme la lumière du jour régnait encore, il replaça les formations. Il s'assit au centre, but un peu de liquide d'esprit Yin, puis commença sa culture.
+« Cet endroit possède une lumière mystérieuse qui guérit les blessures, un trésor magique illusionnaire et un étrange être bleu... Quels autres secrets recèle ce lieu ? » Wang Lin se frotta le menton. Comme la lumière du jour régnait encore, il replaça les formations. Il s'assit au centre, but un peu de liquide d'esprit Yin, puis commença sa cultivation.
 
 Deux mois s'écoulèrent.
 

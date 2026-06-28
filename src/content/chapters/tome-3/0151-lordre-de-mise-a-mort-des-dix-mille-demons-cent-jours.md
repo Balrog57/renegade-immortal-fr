@@ -14,7 +14,7 @@ Qian Kun craignait par-dessus tout que Wang Lin ne reconnaisse pas le jeton. Si 
 
 Cependant, en voyant la jeune fille donner des explications, il finit par se détendre. Il ne croyait pas qu'un homme puisse encore vouloir tuer après avoir appris les conséquences d'un tel ordre de mise à mort. Son cœur s'apaisa et il dit : « Camarade cultivateur, que pensez-vous de ma proposition ? Ne soyez pas trop têtu. Si vous me tuez réellement, vous serez marqué par l'ordre de mise à mort, ce qui vous causera d'énormes ennuis. La jeune fille qui vous accompagne sera également entraînée dans votre chute, alors pourquoi agir ainsi ? Ai-je tort ? »
 
-Wang Lin ne da même pas un regard à Qian Kun. Il se tourna vers Li Muwan et demanda : « Es-tu sûre ? Si je tiens cent jours, puis-je obtenir toute sa culture ? »
+Wang Lin ne da même pas un regard à Qian Kun. Il se tourna vers Li Muwan et demanda : « Es-tu sûre ? Si je tiens cent jours, puis-je obtenir toute sa cultivation ? »
 
 Li Muwan prit une profonde inspiration et hocha la tête.
 
@@ -32,7 +32,7 @@ Wang Lin les dévisagea froidement et demanda : « Le quartier général de la S
 
 Mu Nan répondit précipitamment : « Aucun. Pas seulement la Secte Fighting Evil, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon de dix millions de kilomètres autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici ? Ils sont tous dans la mer intérieure. »
 
-Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander : « Quel est le niveau de culture du chef de la Secte Fighting Evil ? »
+Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander : « Quel est le niveau de cultivation du chef de la Secte Fighting Evil ? »
 
 Mu Bei fit un pas en avant et dit rapidement : « Senior, le chef de la Secte Fighting Evil est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
 
@@ -46,17 +46,17 @@ Le plus frappant était ce caractère « Punir » rouge sang au-dessus de sa tê
 
 Cet homme devait avoir lié ces corps pour servir d'avertissement à tous. Quiconque voyait cela était troublé, mais tous sortaient leurs jades de transmission sonore pour répandre la nouvelle auprès de leurs amis et de leurs sectes.
 
-La nouvelle de la réapparition de l'Ordre de mise à mort des Dix Mille Démons dans la Mer des Démons se propagea rapidement par divers moyens. Cela signifiait que si quelqu'un parvenait à tuer cet homme, il pourrait obtenir au moins la culture complète d'un cultivateur du stade initial de la Formation du Noyau.
+La nouvelle de la réapparition de l'Ordre de mise à mort des Dix Mille Démons dans la Mer des Démons se propagea rapidement par divers moyens. Cela signifiait que si quelqu'un parvenait à tuer cet homme, il pourrait obtenir au moins la cultivation complète d'un cultivateur du stade initial de la Formation du Noyau.
 
 Une telle opportunité représentait une tentation immense pour les cultivateurs de la Formation du Noyau ou de l'Établissement des Fondations. Pour ces derniers, cela signifiait atteindre le stade de la Formation du Noyau.
 
 Il était également possible pour les cultivateurs du stade intermédiaire de la Formation du Noyau de passer au stade avancé.
 
-Ce qui éveillait particulièrement la curiosité était le niveau de culture de la personne ayant activé l'ordre de mise à mort. S'il s'agissait d'un cultivateur du stade avancé de la Formation du Noyau, la frénésie serait décuplée.
+Ce qui éveillait particulièrement la curiosité était le niveau de cultivation de la personne ayant activé l'ordre de mise à mort. S'il s'agissait d'un cultivateur du stade avancé de la Formation du Noyau, la frénésie serait décuplée.
 
 Tandis que Wang Lin volait, un noyau doré de la taille d'un poing occupait désormais la place de l'ancien noyau, remplissant son corps d'énergie spirituelle.
 
-Wang Lin estima que sa culture de la Formation du Noyau était cent fois plus puissante que celle de l'Établissement des Fondations. Il fixa les profondeurs de la Mer des Démons. Son regard semblait transpercer la mer intérieure pour se poser sur Zhao, de l'autre côté. Il esquissa un sourire froid et murmura intérieurement : « Teng Huayuan, aujourd'hui j'ai atteint le stade de la Formation du Noyau. Le jour où j'atteindrai le stade de l'Âme Naissante sera le jour où je me frayerai un chemin jusqu'à Zhao. Teng Huayuan, tu ferais mieux de ne pas mourir trop tôt. Je veux enterrer chaque membre de la famille Teng avec toi. »
+Wang Lin estima que sa cultivation de la Formation du Noyau était cent fois plus puissante que celle de l'Établissement des Fondations. Il fixa les profondeurs de la Mer des Démons. Son regard semblait transpercer la mer intérieure pour se poser sur Zhao, de l'autre côté. Il esquissa un sourire froid et murmura intérieurement : « Teng Huayuan, aujourd'hui j'ai atteint le stade de la Formation du Noyau. Le jour où j'atteindrai le stade de l'Âme Naissante sera le jour où je me frayerai un chemin jusqu'à Zhao. Teng Huayuan, tu ferais mieux de ne pas mourir trop tôt. Je veux enterrer chaque membre de la famille Teng avec toi. »
 
 Mu Nan observait secrètement Wang Lin. L'expression qu'il vit lui glaça le sang et fit battre son cœur plus vite. Il jura intérieurement : « Comment se fait-il que personne ne vienne tuer cet homme ? Avec un tel signe au-dessus de sa tête, quelqu'un devrait surgir pour l'éliminer ! Si nous le ramenons vraiment, même si nous ne sommes pas tués par lui, le chef de la secte nous tuera. »
 
@@ -68,11 +68,11 @@ Par conséquent, il n'y avait aucune intention meurtrière. Au contraire, il ava
 
 L'homme gras fixa le caractère au-dessus de la tête de Wang Lin, laissa échapper un grand rire et s'exclama : « Tsk, tsk ! L'Ordre de mise à mort des Dix Mille Démons, quelle merveille ! Quelle merveille ! »
 
-« Cadet, je te donne une demi-heure pour régler tes affaires avant que tu ne meures. Ne tente pas de résister ; avec ta simple culture au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
+« Cadet, je te donne une demi-heure pour régler tes affaires avant que tu ne meures. Ne tente pas de résister ; avec ta simple cultivation au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
 
 Li Muwan esquissa un sourire en regardant l'arrogant homme gras, puis elle tourna les yeux vers Wang Lin et son sourire s'élargit.
 
-Mu Nan était excité. Voici enfin un véritable expert. C'était un cultivateur solitaire dont même le chef de la secte devait se méfier : le Seigneur Démon Shang Guanmo. La rumeur disait que sa culture était identique à celle du chef de la secte, au sommet du stade intermédiaire de la Formation du Noyau et à un pas du stade avancé. Sa méthode de culture était également d'un cran au-dessus de celle du Grand Ancien.
+Mu Nan était excité. Voici enfin un véritable expert. C'était un cultivateur solitaire dont même le chef de la secte devait se méfier : le Seigneur Démon Shang Guanmo. La rumeur disait que sa cultivation était identique à celle du chef de la secte, au sommet du stade intermédiaire de la Formation du Noyau et à un pas du stade avancé. Sa méthode de cultivation était également d'un cran au-dessus de celle du Grand Ancien.
 
 Wang Lin fronça les sourcils et ricana : « Tu cherches la mort ! »
 
@@ -84,7 +84,7 @@ Sans attendre qu'il ait fini sa phrase, Wang Lin pointa le Seigneur Démon au Ma
 
 « Qu'est-ce que c'est ? » Wang Lin tendit la main et ramassa les deux fragments de jade. Il les scruta avec son Sens Divin, puis une expression de surprise traversa son visage. Après avoir rangé les morceaux dans son sac de rangement, il fixa Shang Guanmo qui était terrifié.
 
-« Un sortilège de mort !!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade lui avait été donné par son maître, décédé depuis longtemps. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer des Démons et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de culture était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles ; il tomba brusquement à genoux et implora : « Senior, ayez pitié ! Senior, ayez pitié ! Le junior Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi ! »
+« Un sortilège de mort !!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade lui avait été donné par son maître, décédé depuis longtemps. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer des Démons et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de cultivation était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles ; il tomba brusquement à genoux et implora : « Senior, ayez pitié ! Senior, ayez pitié ! Le junior Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi ! »
 
 Mu Nan regardait la scène avec stupéfaction, puis jeta un regard furtif à Wang Lin. Face à ce regard froid, il n'osa plus nourrir les pensées qu'il avait eues auparavant. Mu Bei baissa également la tête pour dissimuler sa peur.
 
@@ -94,6 +94,6 @@ Li Muwan rougit et regarda Wang Lin. Cependant, face à son expression austère,
 
 Wang Lin fixa froidement Shang Guanmo. Le Domaine Ji afflua dans son esprit et des éclairs rouges brillèrent dans ses yeux. Shang Guanmo observait attentivement Wang Lin depuis tout ce temps et réalisa que la situation était désespérée. Il savait que si Wang Lin avait pu activer son jade de protection au point de le briser, sa puissance d'attaque devait être comparable à celle d'un cultivateur de l'Âme Naissante. Conjugué au sortilège de mort, il devina que même en fuyant, la mort serait inévitable.
 
-Accablé par l'anxiété, il pointa son front et son sang d'essence d'âme s'en échappa. Cette goutte de sang était de couleur dorée. Dès qu'elle apparut, le corps de Shang Guanmo trembla tandis que l'énergie spirituelle en lui s'emballait. Il semblait que son niveau de culture était sur le point de chuter.
+Accablé par l'anxiété, il pointa son front et son sang d'essence d'âme s'en échappa. Cette goutte de sang était de couleur dorée. Dès qu'elle apparut, le corps de Shang Guanmo trembla tandis que l'énergie spirituelle en lui s'emballait. Il semblait que son niveau de cultivation était sur le point de chuter.
 
-Plus le niveau de culture est élevé, plus le sang d'essence d'âme est précieux. S'il est prélevé, la culture de l'individu est endommagée, et plus le niveau est élevé, plus les dégâts sont irréparables.
+Plus le niveau de cultivation est élevé, plus le sang d'essence d'âme est précieux. S'il est prélevé, la cultivation de l'individu est endommagée, et plus le niveau est élevé, plus les dégâts sont irréparables.

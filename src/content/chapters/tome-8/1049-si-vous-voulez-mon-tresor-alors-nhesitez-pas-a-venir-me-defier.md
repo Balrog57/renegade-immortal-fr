@@ -36,7 +36,7 @@ Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient ané
 
 Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille de son poing apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
 
-Cette carapace de tortue était également un trésor Pseudo Nirvana Void. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors ! Après avoir lancé la carapace, Maître Void serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis des éons !
+Cette carapace de tortue était également un trésor Pseudo Nirvana Void. En tant que membre éminent de l'Alliance de la Cultivation, il ne manquait naturellement pas de trésors ! Après avoir lancé la carapace, Maître Void serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis des éons !
 
 La carapace de tortue vola et flotta devant Maître Void. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées s'écrasèrent sur elle. Un grondement tonitruant retentit ; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
 
@@ -90,7 +90,7 @@ Cette attaque des vingt-trois épées l'avait fait perdre toute confiance.
 
 Le corps de Maître Void s'écrasa au sol. Son visage était pâle et il était dans un état lamentable. Ses yeux étaient emplis de frustration !
 
-« Encore un tout petit peu ! Juste un fragment de plus, ah ! » Maître Void serra le poing. La douleur physique et la destruction de la moitié de son âme originelle firent chuter considérablement son niveau de culture. L'espoir qu'il avait ressenti au seuil de la compréhension de l'origine source, suivi d'une déception irréparable, lui fit pousser un rugissement de rage.
+« Encore un tout petit peu ! Juste un fragment de plus, ah ! » Maître Void serra le poing. La douleur physique et la destruction de la moitié de son âme originelle firent chuter considérablement son niveau de cultivation. L'espoir qu'il avait ressenti au seuil de la compréhension de l'origine source, suivi d'une déception irréparable, lui fit pousser un rugissement de rage.
 
 Cependant, il était un être ayant cultivé durant des éons. Après ce cri, il se calma et une intention meurtrière plus intense encore apparut dans ses yeux.
 

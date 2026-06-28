@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1087 - First Transformation of the Nine Mysterious Transformations
 slug: premiere-transformation-des-neuf-transformations-mysterieuses
 ---
-Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêcher ce que Qing Shui s'apprêtait à faire. Il laissa échapper un soupir avant de fermer les yeux et de se plonger dans sa culture.
+Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêcher ce que Qing Shui s'apprêtait à faire. Il laissa échapper un soupir avant de fermer les yeux et de se plonger dans sa cultivation.
 
 « Je connais votre relation avec Qing Shui. Une fois que vous aurez maîtrisé la première transformation, lorsque j'irai chercher le Cristal du Royaume Céleste de la Pluie, je pourrais trouver des nouvelles de lui... » L'homme âgé regardait Wang Lin d'un regard bienveillant.
 
@@ -20,7 +20,7 @@ Le temps passa lentement et, en un clin d'œil, une autre année s'écoula. Dura
 
 La région orientale des Quatre Sectes Divines n'était pas trop impliquée dans ces troubles. Cependant, en raison de l'ordre d'exécution lancé par le quartier général de l'Alliance contre Wang Lin, beaucoup osèrent s'aventurer au sein des Quatre Sectes Divines.
 
-Toutefois, ces intrus ne purent provoquer de grands remous et furent éliminés par les gardes des Quatre Sectes Divines. Même ceux possédant une culture puissante qui réussirent à échapper aux gardes furent balayés par les Anciens des Quatre Sectes Divines dès qu'ils s'enfoncèrent plus profondément dans le territoire.
+Toutefois, ces intrus ne purent provoquer de grands remous et furent éliminés par les gardes des Quatre Sectes Divines. Même ceux possédant une cultivation puissante qui réussirent à échapper aux gardes furent balayés par les Anciens des Quatre Sectes Divines dès qu'ils s'enfoncèrent plus profondément dans le territoire.
 
 La guerre entre Allheaven et l'Alliance se poursuivait, tandis que la Secte des Corps restait relativement calme. Néanmoins, des membres de la Secte des Corps étaient toujours présents sur les champs de bataille. Ils semblaient collecter les corps, qu'ils soient intacts ou endommagés. Parallèlement, ils commencèrent à contacter les deux camps pour reprendre leur commerce originel : la vente de cadavres.
 
@@ -28,7 +28,7 @@ La prolongation du conflit permit à la Secte des Corps d'être accueillie favor
 
 Seuls le Royaume du Vide Brillant et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
 
-Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que tout le monde ne l'ait pas vu, sa réputation les précédait tous.
+Au fil de cette année, le niveau de cultivation de Wang Lin progressait de plus en plus vite. Les grondements tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que tout le monde ne l'ait pas vu, sa réputation les précédait tous.
 
 Tous les membres du clan savaient que ce Wang Lin, dont le corps dégageait ces éclats de tonnerre, était leur futur Empereur Divin, l'espoir de la Secte Divine de l'Oiseau Vermillon. Cependant, là où il y a des hommes, il y a des disputes et des luttes de pouvoir.
 
@@ -36,9 +36,9 @@ La Secte Divine de l'Oiseau Vermillon n'échappait pas à cette règle. Tout le 
 
 Toutefois, la puissance de l'Empereur Divin était trop immense pour que ces gens osassent la désobéissance.
 
-Pendant trois ans, durant plus de mille jours et nuits, Wang Lin ne cessa jamais sa culture. L'Empereur Divin de l'Oiseau Vermillon ne cessait de lui transmettre sa propre énergie originelle de feu, s'ajoutant à la chaleur de la pierre sur laquelle ils reposaient tous deux.
+Pendant trois ans, durant plus de mille jours et nuits, Wang Lin ne cessa jamais sa cultivation. L'Empereur Divin de l'Oiseau Vermillon ne cessait de lui transmettre sa propre énergie originelle de feu, s'ajoutant à la chaleur de la pierre sur laquelle ils reposaient tous deux.
 
-Cela permit à la culture de Wang Lin de devenir encore plus raffinée. Son âme originelle était déjà rétablie. La graine de feu en lui avait absorbé toute cette chaleur et semblait prête à fondre. Elle libéra une puissante vague d'énergie originelle de feu à travers le corps de Wang Lin, et sept tatouages de feu scintillèrent sur son bras droit.
+Cela permit à la cultivation de Wang Lin de devenir encore plus raffinée. Son âme originelle était déjà rétablie. La graine de feu en lui avait absorbé toute cette chaleur et semblait prête à fondre. Elle libéra une puissante vague d'énergie originelle de feu à travers le corps de Wang Lin, et sept tatouages de feu scintillèrent sur son bras droit.
 
 Le mouvement de cette puissante énergie originelle était la source des tonnerres rugissants émanant de lui. Ce jour-là, l'énergie originelle du feu à l'intérieur de Wang Lin atteignit un point critique. S'il en absorbait davantage, il exploserait.
 
@@ -54,9 +54,9 @@ Lors des quatre premières fois, l'Empereur Divin de l'Oiseau Vermillon avait ai
 
 Au moment où son énergie originelle fut maîtrisée, un huitième tatouage de feu apparut aux côtés des sept déjà présents sur son bras droit. Les huit tatouages formaient un cercle ; il n'en manquait plus qu'un seul pour le compléter.
 
-« La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de culture. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de culture. Tu empruntes la puissance de ces neuf existences pour renverser les cieux, puis tu absorbes toute cette force en une seule unité pour achever la première transformation ! »
+« La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de cultivation. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de cultivation. Tu empruntes la puissance de ces neuf existences pour renverser les cieux, puis tu absorbes toute cette force en une seule unité pour achever la première transformation ! »
 
-« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance de Culture. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
+« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance de Cultivation. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
 
 « Cependant, ce vieil homme ne dispose plus de beaucoup de temps ; je sens l'ombre de la mort approcher. Je dois accélérer ta neuvième absorption. Ce processus sera extrêmement douloureux, mais tu dois l'endurer. Es-tu d'accord ? »
 

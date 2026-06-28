@@ -10,7 +10,7 @@ Chapitre 1702 - Un Rugissement qui ébranle les Sept Couleurs !
 
 « Des actions aussi rusées et décisives, Daoïste aux Sept Couleurs... » Wang Lin observait tout, l'esprit parfaitement lucide. Il comprenait pourquoi le Daoïste aux Sept Couleurs acceptait d'être piégé dans l'illusion.
 
-Fan Shanmeng avait attiré le Daoïste aux Sept Couleurs dans l'illusion, et celui-ci lui avait permis de l'y entraîner. Cependant, il avait utilisé sa puissante culture pour modifier de force l'illusion afin de revenir au moment où le Souverain Céleste aux Sept Couleurs s'était brisé en trois âmes et sept fragments.
+Fan Shanmeng avait attiré le Daoïste aux Sept Couleurs dans l'illusion, et celui-ci lui avait permis de l'y entraîner. Cependant, il avait utilisé sa puissante cultivation pour modifier de force l'illusion afin de revenir au moment où le Souverain Céleste aux Sept Couleurs s'était brisé en trois âmes et sept fragments.
 
 « La chose qu'il désire par-dessus tout est de retrouver la troisième âme. Pourtant, même après toutes ces années, il n'a toujours trouvé aucune trace d'elle ! »
 
@@ -60,7 +60,7 @@ Cependant, de la même manière, si Wang Lin pouvait la voir, le Daoïste aux Se
 
 Sa première chance depuis d'innombrables années !
 
-« S'il trouve la troisième âme, je mourrai sans aucun doute. Je dois la trouver avant lui ! Et si je ne peux pas la trouver, alors personne d'autre ne le pourra ! » Le regard de Wang Lin était froid et résolu. Cependant, sa culture étant bien inférieure, il ne pouvait l'arrêter.
+« S'il trouve la troisième âme, je mourrai sans aucun doute. Je dois la trouver avant lui ! Et si je ne peux pas la trouver, alors personne d'autre ne le pourra ! » Le regard de Wang Lin était froid et résolu. Cependant, sa cultivation étant bien inférieure, il ne pouvait l'arrêter.
 
 Voyant que la troisième âme semblait ralentir et s'apprêter à s'arrêter, l'excitation du Daoïste aux Sept Couleurs atteignit son paroxysme. À cet instant précis, Wang Lin s'arrêta brusquement et ses mains formèrent un sceau. La voile au visage fantomatique entourant son âme originelle étincela, et celle-ci disparut soudainement.
 

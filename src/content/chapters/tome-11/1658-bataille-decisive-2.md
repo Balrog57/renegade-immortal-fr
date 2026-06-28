@@ -36,7 +36,7 @@ Les corps des cultivateurs du Royaume Extérieur s'écrasaient, mais leurs tête
 
 Cette cape ne cessait de croître à mesure que Wang Lin transperçait l'armée ; le nombre de trophées augmentait sans relâche !
 
-Un grondement sourd accompagnait chacun de ses mouvements. L'expression de la concubine impériale céleste, prise pour cible par Wang Lin, changea radicalement et elle battit en retraite précipitamment. Bien que Wang Lin ne fût qu'au stade intermédiaire du Vide Spirituel, elle ressentait une terreur profonde à son égard à cause de la Flèche de Li Guang ; elle fit donc fi de son niveau de culture !
+Un grondement sourd accompagnait chacun de ses mouvements. L'expression de la concubine impériale céleste, prise pour cible par Wang Lin, changea radicalement et elle battit en retraite précipitamment. Bien que Wang Lin ne fût qu'au stade intermédiaire du Vide Spirituel, elle ressentait une terreur profonde à son égard à cause de la Flèche de Li Guang ; elle fit donc fi de son niveau de cultivation !
 
 À ses yeux, Wang Lin était un adversaire presque invincible. Combattre un tel être équivalait à la mort !
 

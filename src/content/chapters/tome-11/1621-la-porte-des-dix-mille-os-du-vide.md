@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1621 - Ten Thousand Void Bone Gate
 slug: la-porte-des-dix-mille-os-du-vide
 ---
-Il n'absorba pas la puissance, et il n'envisagea même pas de le faire. Pour l'instant, il voulait que la Porte du Vide entre en éruption afin que sa culture augmente considérablement après avoir atteint la troisième étape !
+Il n'absorba pas la puissance, et il n'envisagea même pas de le faire. Pour l'instant, il voulait que la Porte du Vide entre en éruption afin que sa cultivation augmente considérablement après avoir atteint la troisième étape !
 
 S'il absorbait la puissance de la Porte du Vide dès maintenant, il deviendrait immédiatement un cultivateur du Nirvana du Vide au stade intermédiaire. Cependant, il ne le souhaitait pas ; ce n'était là que deux essences.
 
@@ -68,7 +68,7 @@ Une fissure était sur le point d'apparaître entre ses sourcils. L'intérieur d
 
 C'était une caractéristique unique aux cultivateurs du Vide Spirituel : leur propre Domaine de la Flamme Spirituelle pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme Spirituelle !
 
-Wang Lin avait ouvert la Porte du Vide par lui-même, sans l'aide des Flammes Spirituelles. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Spirituelles, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
+Wang Lin avait ouvert la Porte du Vide par lui-même, sans l'aide des Flammes Spirituelles. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Spirituelles, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de cultivation n'était pas encore assez élevé.
 
 Dans un rire, il agita sa manche et repoussa les fragments de la Porte du Vide. Ce qui apparut devant lui était la cinquième Porte du Vide !
 

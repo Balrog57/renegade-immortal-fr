@@ -30,7 +30,7 @@ Dans ce chaos assourdissant, l'âme originelle du Maître Zhou Tian s'échappa, 
 
 Cependant, oubliez cela : même des cultivateurs au stade Nirvana Shatterer n'étaient pas dignes de s'échapper sans la permission de Wang Lin ! La main droite de Wang Lin s'étira vers le vide et une force de succion enveloppa le Maître Zhou Tian, le faisant hurler. Il fut instantanément happé par la main de Wang Lin.
 
-La différence abyssale de niveaux de culture faisait qu'il ne pouvait même pas choisir de s'autodétruire !
+La différence abyssale de niveaux de cultivation faisait qu'il ne pouvait même pas choisir de s'autodétruire !
 
 Une fois capturé par Wang Lin, le Maître Zhou Tian commença à supplier pour sa vie.
 
@@ -48,11 +48,11 @@ Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateur
 
 Wang Lin serait le premier après ces êtres mystérieux !
 
-C'était un vaste système stellaire contenant sept millions de planètes de culture. Ces planètes n'étaient pas densément regroupées, mais étaient principalement isolées les unes des autres !
+C'était un vaste système stellaire contenant sept millions de planètes de cultivation. Ces planètes n'étaient pas densément regroupées, mais étaient principalement isolées les unes des autres !
 
 Ce système stellaire était d'une immensité presque sans limites, mais aux yeux de Wang Lin, il semblait quelque peu artificiel ! Sa luminosité n'était qu'un décor et sa taille paraissait avoir été sculptée par une main invisible !
 
-La distance entre chaque planète de culture était rigoureusement identique !
+La distance entre chaque planète de cultivation était rigoureusement identique !
 
 Au centre de ce système stellaire infini se trouvait un continent immense. On y trouvait d'innombrables pavillons imposants ainsi qu'une statue !
 
@@ -118,6 +118,6 @@ Après l'accord de Wang Lin, l'homme le guida à travers la foule. Un autre cult
 
 « Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Éclair Spirituel, sa vie elle-même n'est pas garantie... »
 
-Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes : six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture plus élevés, au stade Yin Ilusoire.
+Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes : six nouveaux comme Wang Lin, et quatre autres aux niveaux de cultivation plus élevés, au stade Yin Ilusoire.
 
 Zhang Jingyun s'avança avec un sourire : « Tout le monde, j'en ai ramené un de plus. Je parie que vous avez déjà tous entendu parler du nom "Yu Fei". »

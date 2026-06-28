@@ -34,7 +34,7 @@ La tête de chaque étranger fut enfoncée dans un seau pour les forcer à boire
 
 Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celle-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de la mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne murmure au sujet son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
 
-Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire ; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une culture en buvait, cela n'aurait pratiquement aucun effet.
+Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire ; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une cultivation en buvait, cela n'aurait pratiquement aucun effet.
 
 Ouyang Hua se précipita vers Wang Lin. Encore à distance, il s'inclina respectueusement : « Le junior Ouyang Hua souhaite saluer le Suprême Céleste. »
 
@@ -56,7 +56,7 @@ En ce moment même, Wang Lin élevait des fragments d'âme ! Tous les fragments 
 
 La population du village avait soudainement décuplé. Le nombre d'hommes dépassait désormais la cinquantaine. Les femmes étaient réparties parmi les villageois, et quelques-unes des plus belles furent offertes à Wang Lin par Ouyang Hua, qui était avide de mérites. Cependant, il reçut un refus catégorique cette fois-ci.
 
-Tous ces nouveaux membres de la tribu commencèrent à pratiquer le sort d'affinage de l'âme. Une atmosphère de culture régnait désormais dans la vallée. Hormis ceux qui partaient chasser quotidiennement, tout le monde se concentrait sur sa culture. Même certaines femmes s'y mirent. Au début, Ouyang Hua s'y opposa, mais après avoir été réprimandé par Wang Lin via une transmission de message, il changea rapidement d'attitude et soutint ouvertement la culture féminine.
+Tous ces nouveaux membres de la tribu commencèrent à pratiquer le sort d'affinage de l'âme. Une atmosphère de cultivation régnait désormais dans la vallée. Hormis ceux qui partaient chasser quotidiennement, tout le monde se concentrait sur sa cultivation. Même certaines femmes s'y mirent. Au début, Ouyang Hua s'y opposa, mais après avoir été réprimandé par Wang Lin via une transmission de message, il changea rapidement d'attitude et soutint ouvertement la cultivation féminine.
 
 En conséquence, tous les habitants de la vallée, à l'exception des enfants, qu'ils soient hommes ou femmes, se mirent à cultiver avec acharnement. Apprendre le sort d'affinage était aisé et, grâce à la puissance de Treize et d'Ouyang Hua, ces deux-là devinrent rapidement les modèles à suivre.
 

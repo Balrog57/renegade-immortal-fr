@@ -18,7 +18,7 @@ Les quatre qui s'apprêtaient à tendre une embuscade à Wang Lin furent ébranl
 
 Mais ces quatre-là avaient eu le tort de chercher à importuner Wang Lin. Sans même que celui-ci ne bouge, son Domaine de Ji les rattrapa instantanément et les acheva.
 
-Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Domaine de Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de culture.
+Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Domaine de Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de cultivation.
 
 Après cela, Wang Lin rassembla tous leurs sacs de rangement et les ouvrit un par un. Il vérifia d'abord que la tablette de jade contenant la carte était intacte et poussa un soupir de soulagement. Bien que les autres sacs contenaient quelques trésors magiques, une seule chose attira l'attention de Wang Lin.
 
@@ -44,7 +44,7 @@ L'expression de Wang Lin changea brusquement lorsqu'il ressentit une intention m
 
 Le cuir chevelu de Wang Lin en fut engourdi. Il regarda le fourreau et prit une grande inspiration. Puis, il rangea soigneusement l'objet dans son sac de rangement, n'osant plus y toucher.
 
-Avec son niveau de culture actuel, il pouvait aisément comprendre qu'une quantité phénoménale d'intention meurtrière était scellée dans ce fourreau. En forçant l'épée à entrer, il n'en avait libéré qu'une infime partie, et pourtant cette fraction était déjà si puissante que Wang Lin ne pouvait même imaginer la force que contenait réellement l'objet.
+Avec son niveau de cultivation actuel, il pouvait aisément comprendre qu'une quantité phénoménale d'intention meurtrière était scellée dans ce fourreau. En forçant l'épée à entrer, il n'en avait libéré qu'une infime partie, et pourtant cette fraction était déjà si puissante que Wang Lin ne pouvait même imaginer la force que contenait réellement l'objet.
 
 Par conséquent, il était d'autant plus certain que ce fourreau n'était pas celui de jadis. Le précédent avait la capacité d'augmenter la puissance d'une épée volante, mais la différence de gain de puissance entre un enfoncement aux un cinquième et aux trois cinquièmes était abyssale.
 
@@ -64,7 +64,7 @@ Sous ce volcan se trouvait un édifice complet : le Temple du Dieu de la Guerre.
 
 Peu de temps après, un jeune homme dégageant une atmosphère sinistre apparut. Il était très beau, mais portait en lui une pointe de malveillance. Ses yeux brillaient d'une lueur antique tandis qu'il reprenait lentement conscience.
 
-Il réfléchit un moment et murmura : « Trois mille ans de guérison, et je peux enfin rétablir ma culture à 30 %. » Il serra le poing droit, fronça les sourcils et se dit : « C'est presque équivalent à la Transformation de l'Âme. Bien que ce ne soit pas suffisant, avec l'aide du disque stellaire, cela devrait me permettre de m'échapper de cette planète. Ma récupération sera bien plus rapide si je retourne sur ma planète natale. »
+Il réfléchit un moment et murmura : « Trois mille ans de guérison, et je peux enfin rétablir ma cultivation à 30 %. » Il serra le poing droit, fronça les sourcils et se dit : « C'est presque équivalent à la Transformation de l'Âme. Bien que ce ne soit pas suffisant, avec l'aide du disque stellaire, cela devrait me permettre de m'échapper de cette planète. Ma récupération sera bien plus rapide si je retourne sur ma planète natale. »
 
 Il prit une profonde inspiration et tâta sa taille, mais son expression devint soudainement étrange lorsqu'il ne sentit rien. Il regarda sa ceinture, resta stupéfait un instant, puis son visage s'assombrit.
 

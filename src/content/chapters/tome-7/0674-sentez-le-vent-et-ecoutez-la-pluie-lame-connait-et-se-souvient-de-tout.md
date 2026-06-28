@@ -12,7 +12,7 @@ Le Doigt de la Mort se transforma en un rayon de lumière noire lorsqu'il fut pr
 
 Le son résonna et continua de s'étendre avant de se muer en détonations de tonnerre qui descendaient du ciel. La puissance du tonnerre entourant le Doigt de la Mort était encore plus redoutable ; c'était comme si elle incarnait la colère de la foudre de la tribulation divine.
 
-D'un seul doigt, la lumière autour du corps de Huan Dong se désintégra sans aucune résistance. Son visage pâlit instantanément et il recula précipitamment. La puissance de ce doigt était trop immense, au point que, malgré sa culture, son cœur en trembla.
+D'un seul doigt, la lumière autour du corps de Huan Dong se désintégra sans aucune résistance. Son visage pâlit instantanément et il recula précipitamment. La puissance de ce doigt était trop immense, au point que, malgré sa cultivation, son cœur en trembla.
 
 Cependant, ce rayon de lumière noire ressemblait à un dragon noir. Il chargea directement vers le Huan Dong qui tentait de s'échapper.
 
@@ -26,7 +26,7 @@ Un rugissement tonitruant résonna dans toute la zone. Le corps de Huan Dong tre
 
 Son visage était livide, empreint de terreur.
 
-« Quel genre de tonnerre est-ce là ?! Quelle culture cette personne possède-t-elle ?! Si un seul sort suffit à me blesser ainsi, alors cet individu ne vient certainement pas de la planète Ran Yun. Je ne peux pas lutter ; je dois fuir rapidement et rapporter cela à Mademoiselle ! » Huan Dong frappa sa jambe et une lumière blanche commença immédiatement à en jaillir. Il devint encore plus rapide, au point que la moitié de son corps avait déjà disparu dans le vide alors qu'il s'apprêtait à se téléporter.
+« Quel genre de tonnerre est-ce là ?! Quelle cultivation cette personne possède-t-elle ?! Si un seul sort suffit à me blesser ainsi, alors cet individu ne vient certainement pas de la planète Ran Yun. Je ne peux pas lutter ; je dois fuir rapidement et rapporter cela à Mademoiselle ! » Huan Dong frappa sa jambe et une lumière blanche commença immédiatement à en jaillir. Il devint encore plus rapide, au point que la moitié de son corps avait déjà disparu dans le vide alors qu'il s'apprêtait à se téléporter.
 
 Lorsque Wang Lin était au début du stade Ascendant, ses sorts avaient déjà surpassé ceux des cultivateurs du milieu du stade Ascendant. L'écart entre le stade avancé et les deux premiers stades était immense, mais il pouvait combattre des cultivateurs du milieu du stade Ascendant.
 
@@ -50,9 +50,9 @@ Il prit la ferme décision qu'il ne ferait jamais d'ennemi à Xu Mu !
 
 La terreur que ressentait Carefree Shenren dans son cœur n'était pas moins grande que celle de l'ancêtre de la famille Ran. Il regarda la Formation d'Épées des Sept Étoiles et prit une profonde inspiration. À cet instant, il n'avait aucun doute que si Xu Mu voulait le tuer, il ne pourrait absolument pas résister.
 
-« Je crains que sa culture ne soit au sommet du stade avancé de l'Ascendant ! »
+« Je crains que sa cultivation ne soit au sommet du stade avancé de l'Ascendant ! »
 
-Relativement parlant, Sun Xi était beaucoup plus calme. Dans son cœur, il pensait que le niveau de culture de Wang Lin était extrêmement élevé. À cet instant, il se sentit rassuré et pensa : « Si ce Xu Mu est aussi fort, je dois m'assurer d'entretenir de bonnes relations avec lui. »
+Relativement parlant, Sun Xi était beaucoup plus calme. Dans son cœur, il pensait que le niveau de cultivation de Wang Lin était extrêmement élevé. À cet instant, il se sentit rassuré et pensa : « Si ce Xu Mu est aussi fort, je dois m'assurer d'entretenir de bonnes relations avec lui. »
 
 Le cuir chevelu de Huan Dong se hérissa. Les sept épées autour de lui étaient comme des lames de mort suspendues au-dessus de sa tête, prêtes à tomber à tout moment. Il fixa Wang Lin, mais vit aussi les trois autres derrière lui et hurla : « Ran Xuefeng, Sun Xi, Zhao Chuawen, cherchez-vous la mort ?! »
 
@@ -76,9 +76,9 @@ Le visage de Wang Lin resta impassible et il hocha la tête.
 
 Sun Xi expliqua : « Camarade cultivateur Xu, vous l'ignorez peut-être, mais l'ancêtre de la famille Huan a ramené une femme du Système Stellaire de l'Alliance. Il l'a prise pour disciple et utilisera le rituel de lignée pour transformer son sang. »
 
-Les yeux de Wang Lin se plissèrent. « Quel est le niveau de culture de l'ancêtre de la famille Huan ? »
+Les yeux de Wang Lin se plissèrent. « Quel est le niveau de cultivation de l'ancêtre de la famille Huan ? »
 
-Huan Hong se détendit un peu et répondit : « La culture de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin et du Yang ! »
+Huan Hong se détendit un peu et répondit : « La cultivation de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin et du Yang ! »
 
 Wang Lin regarda l'ancêtre de la famille Ran et ses compagnons avec un sourire qui n'en était pas un. Une pointe de dérision dans son regard fit baisser la tête à l'ancêtre de la famille Ran.
 
@@ -96,7 +96,7 @@ Avant qu'il ne puisse finir, Wang Lin fronça les sourcils et tendit la main. Le
 
 « Recherche d'âme ! »
 
-La culture de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprunter la puissance du gardien céleste pour exécuter ce sort de Recherche d'Âme.
+La cultivation de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprunter la puissance du gardien céleste pour exécuter ce sort de Recherche d'Âme.
 
 Les souvenirs de Huan Dong n'étaient que fragments que Wang Lin parcourait avec l'aide du gardien céleste. Tandis qu'il les consultait, le corps de Huan Dong se mit à trembler violemment et ses yeux exprimèrent une lutte douloureuse.
 

@@ -42,7 +42,7 @@ Il se souvenait clairement que la lumière cristalline qui était l'avatar de Qi
 
 Après l'avoir observé longuement, Wang Lin détourna le regard. Il ne prit pas le risque d'utiliser son Sens Divin et réprima de force cette impulsion, avant de ranger le cristal dans sa sacoche. Il avait le sentiment mystérieux que s'il y projetait son Sens Divin, quelque chose d'imprévisible se produirait sans lui apporter le moindre bénéfice.
 
-Ce genre de pressentiment était très vague ; c'était une infime parcelle de perception spirituelle qu'il avait développée après plus de mille ans de culture.
+Ce genre de pressentiment était très vague ; c'était une infime parcelle de perception spirituelle qu'il avait développée après plus de mille ans de cultivation.
 
 « Il est temps de quitter cet endroit. » Wang Lin se leva et commença à s'élever tel un dragon. La bulle d'air montait avec lui.
 
@@ -66,13 +66,13 @@ En entendant cette voix depuis les profondeurs, Wang Lin plissa les yeux.
 
 « Yao Xixue !! » Il ne pouvait pas voir son visage, mais ce sentiment de déjà-vu et cette voix familière lui permirent de l'identifier instantanément !
 
-Wang Lin esquissa un sourire amer et poussa un soupir. La rancœur entre lui et Yao Xixue était complexe. À l'époque, elle avait voulu l'utiliser et avait été la première à agir de manière malveillante. Wang Lin n'était jamais clément envers une femme, mais en raison de sa propre culture et de sa crainte de l'Ancêtre Sanguin et de son père, il l'avait scellée plutôt que de la tuer.
+Wang Lin esquissa un sourire amer et poussa un soupir. La rancœur entre lui et Yao Xixue était complexe. À l'époque, elle avait voulu l'utiliser et avait été la première à agir de manière malveillante. Wang Lin n'était jamais clément envers une femme, mais en raison de sa propre cultivation et de sa crainte de l'Ancêtre Sanguin et de son père, il l'avait scellée plutôt que de la tuer.
 
 Bien qu'il fût hostile envers l'Ancêtre Sanguin, Wang Lin l'admirait. Après tout, chaque acte de l'Ancêtre était motivé par l'amour pour sa fille. Si l'on avait fait la même chose à Wang Ping, il aurait agi comme l'Ancêtre Sanguin, mais il aurait d'abord cherché à comprendre les faits.
 
 L'Ancêtre Sanguin ignorait manifestement la vérité et ne considérait pas Wang Lin comme une menace ; il n'avait que des intentions meurtrières. Peu lui importait ce qui s'était passé, il voulait seulement savoir qui avait pris sa fille. Cela suffisait.
 
-Si Wang Lin avait eu son niveau de culture actuel à l'époque, l'Ancêtre Sanguin n'aurait pas été aussi extrême ; il aurait trouvé une autre manière de régler l'affaire. En fin de compte, Wang Lin n'était alors pas assez puissant pour que l'Ancêtre Sanguin s'en soucie vraiment. Même s'il avait su que sa fille était en tort, il aurait utilisé sa puissance pour imposer sa volonté et aurait tué Wang Lin pour apaiser sa colère.
+Si Wang Lin avait eu son niveau de cultivation actuel à l'époque, l'Ancêtre Sanguin n'aurait pas été aussi extrême ; il aurait trouvé une autre manière de régler l'affaire. En fin de compte, Wang Lin n'était alors pas assez puissant pour que l'Ancêtre Sanguin s'en soucie vraiment. Même s'il avait su que sa fille était en tort, il aurait utilisé sa puissance pour imposer sa volonté et aurait tué Wang Lin pour apaiser sa colère.
 
 Ce n'est pas que Wang Lin n'avait pas envisagé de rendre Yao Xixue ; il avait même songé à assumer la responsabilité de l'avoir scellée pendant des centaines d'années. Tant que les exigences de l'Ancêtre Sanguin n'étaient pas déraisonnables, il aurait accepté. Après tout, il était trop faible à ce moment-là.
 

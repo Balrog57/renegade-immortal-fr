@@ -14,7 +14,7 @@ C'était comme si... la statue céleste pleurait deux traînées de sang...
 
 « Je... m'étais trompé... » Li Yuan fixa la statue de pierre en marmonnant, ses yeux empreints de confusion.
 
-Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une culture au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave !
+Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une cultivation au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave !
 
 C'était à cause de cette aura que cet homme dégageait toujours un air mystérieux.
 
@@ -22,7 +22,7 @@ Wang Lin se méfiait énormément de ce pouvoir. Il l'avait remarqué pour la pr
 
 À cet instant, Wang Lin s'était contenté de garder cela en mémoire. Ce n'est que lorsqu'il vit le regard de Ge Hong posé sur la statue avant sa mort que Wang Lin fut frappé par un éclair de compréhension, comme si la foudre l'avait transpercé.
 
-La famille Ge était la descendante des Célestes ! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
+La famille Ge était la descendante des Célestes ! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur cultivation et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
 
 La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait eu une chance. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des millénaires, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
 

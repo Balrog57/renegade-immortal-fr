@@ -44,11 +44,11 @@ Ses mains traçaient des sceaux, envoyant constamment des runes pour accélérer
 
 Jadis, lorsque Wang Lin avait été confronté au piège mortel du Souverain, il avait libéré une âme scellée par Ye Mo. Cette âme s'était échappée du piège et avait pris la fuite.
 
-Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante culture pour blesser gravement le Dao Maître Rêve Bleu, puis il avait détruit le corps de Maître Nuage du Sud.
+Désormais, il avait recouvré sa cultivation et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante cultivation pour blesser gravement le Dao Maître Rêve Bleu, puis il avait détruit le corps de Maître Nuage du Sud.
 
 Il fixa les terres du Royaume Céleste avec une expression cruelle.
 
-« Presque tous les êtres puissants du Royaume Intérieur sont concentrés ici, dans le Royaume Céleste. Avant que ma culture ne soit rétablie, je n'étais pas certain de pouvoir briser la formation, mais désormais, elle cédera dans deux jours. Tous ces gens deviendront ma nourriture, et après avoir dévoré leur essence sanguine, mon niveau de culture atteindra l'Exaltation Dorée ! »
+« Presque tous les êtres puissants du Royaume Intérieur sont concentrés ici, dans le Royaume Céleste. Avant que ma cultivation ne soit rétablie, je n'étais pas certain de pouvoir briser la formation, mais désormais, elle cédera dans deux jours. Tous ces gens deviendront ma nourriture, et après avoir dévoré leur essence sanguine, mon niveau de cultivation atteindra l'Exaltation Dorée ! »
 
 « Haha, une fois devenu un Exalté Doré, même en retournant sur le Continent Astral Immortel, je pourrai devenir le Grand Ancien d'une secte et j'aurai même une chance de devenir un Exalté Céleste ! » Les yeux de Maître Âme Écarlate brillaient d'excitation. Il savait qu'il y avait très peu d'Exaltés Célestes sur le Continent Astral Immortel, tout au plus quelques centaines. Une fois devenu un Exalté Céleste, il pourrait servir un Grand Exalté.
 
@@ -58,7 +58,7 @@ Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Exalt
 
 « Le Grand Exalté Dao Yi accorde beaucoup d'importance aux Exaltés Célestes, donc si je le souhaite, il m'acceptera certainement. Sous la protection du Grand Exalté Dao Yi, même si ce Wang Lin venait à l'apprendre, je n'aurais aucune crainte ! »
 
-« Si son niveau de culture est inférieur au mien, j'absorberai toute son essence sanguine pour me renforcer. Si son niveau est similaire ou supérieur au mien — bien que cela soit peu probable — j'aurai toujours la protection du Grand Exalté Dao Yi. »
+« Si son niveau de cultivation est inférieur au mien, j'absorberai toute son essence sanguine pour me renforcer. Si son niveau est similaire ou supérieur au mien — bien que cela soit peu probable — j'aurai toujours la protection du Grand Exalté Dao Yi. »
 
 « Je ne crois pas qu'il oserait s'opposer au Grand Exalté Dao Yi ! Peut-être que son cœur tremblera et qu'il s'agenouillera en signe de dévotion dès qu'il verra le Grand Exalté ! »
 

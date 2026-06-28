@@ -18,7 +18,7 @@ Le Tout-Voyant fut surpris. C'était la première fois qu'il voyait une telle ex
 
 L'expression calme de Zhao Xinmeng disparut, remplacée par un air étrange. Elle fixa Wang Lin et réfléchit en silence.
 
-La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles du Tout-Voyant, il réfléchit un instant avant de répondre : « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
+La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles du Tout-Voyant, il réfléchit un instant avant de répondre : « Le niveau de cultivation de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
 
 « Wang Lin ! » Le Tout-Voyant l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel : « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois ! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps de la durée d'un bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas ! » Le Tout-Voyant fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
 
@@ -42,7 +42,7 @@ Les étoiles orbitant autour de Zhao Xinmeng commencèrent à converger vers son
 
 Même le reste de son corps fut recouvert d'une couche de lueur pourpre, lui conférant une aura mystérieuse.
 
-« Septième frère, je sais que tu ignores quel est mon Dao, alors je vais te le révéler aujourd'hui ! Mon Dao est l'Ombre Démoniaque. Dès lors que j'ai vu un sort une fois et que ses exigences ne dépassent pas mon niveau de culture, je peux l'imiter, bien qu'il ne soit pas déployé à pleine puissance ! Ce sort est celui que j'ai créé en imitant ton Doigt Démoniaque. Je l'appelle la Main Démoniaque Violette ! »
+« Septième frère, je sais que tu ignores quel est mon Dao, alors je vais te le révéler aujourd'hui ! Mon Dao est l'Ombre Démoniaque. Dès lors que j'ai vu un sort une fois et que ses exigences ne dépassent pas mon niveau de cultivation, je peux l'imiter, bien qu'il ne soit pas déployé à pleine puissance ! Ce sort est celui que j'ai créé en imitant ton Doigt Démoniaque. Je l'appelle la Main Démoniaque Violette ! »
 
 Tout en parlant, elle projeta sa main en avant. La lumière violette quitta soudainement son bras pour foncer vers Wang Lin.
 
@@ -74,7 +74,7 @@ Wang Lin observa la perle et dit d'un ton sérieux : « Tu as créé la Main Dé
 
 À l'instant où Wang Lin eut fini de parler, l'énergie démoniaque contenue dans la perle de Zhao Xinmeng disparut comme si elle n'avait jamais existé. En un instant, la perle sombre redevint d'un blanc pur.
 
-Cette énergie n'était pas une véritable essence démoniaque issue de la culture, mais une illusion créée à partir de l'énergie spirituelle céleste de Wang Lin. Par conséquent, il en avait le contrôle absolu et pouvait la dissiper par une simple pensée.
+Cette énergie n'était pas une véritable essence démoniaque issue de la cultivation, mais une illusion créée à partir de l'énergie spirituelle céleste de Wang Lin. Par conséquent, il en avait le contrôle absolu et pouvait la dissiper par une simple pensée.
 
 Ce type d'énergie spirituelle céleste modifiée ne pouvait être transmis à autrui ; sinon, quiconque l'étudierait découvrirait inévitablement la méthode pour cultiver le Doigt Démoniaque. Wang Lin avait promis à Situ Nan de ne jamais l'enseigner à personne.
 

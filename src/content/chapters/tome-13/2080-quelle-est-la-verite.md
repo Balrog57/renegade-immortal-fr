@@ -46,7 +46,7 @@ Wang Lin restait aux côtés de Li Muwan, tandis que des notes de cithare réson
 
 Dix ans, dix ans, dix ans... Wang Lin vécut dans cette vallée paisible pendant soixante-dix ans.
 
-Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de culture, ne cherchait plus à comprendre les essences et ignorait les complots et les mensonges. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
+Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de cultivation, ne cherchait plus à comprendre les essences et ignorait les complots et les mensonges. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
 
 Deux cents ans après le retour de Wang Lin dans le monde des grottes, un invité vint dans sa vallée. Cet invité était un homme chauve. Il ressemblait exactement à l'homme du passé, sans le moindre changement.
 
@@ -96,7 +96,7 @@ Wang Lin resta là, assis, à boire son vin. Il ne fit aucun commentaire sur les
 
 Il avait compris bien des choses depuis longtemps, mais il savait qu'il était lui-même, nommé Wang Lin. Né sur la planète Suzaku, fils d'un charpentier, ayant grandi dans un petit village de montagne.
 
-Pas à pas, il avait parcouru le chemin de la culture pour atteindre son état actuel.
+Pas à pas, il avait parcouru le chemin de la cultivation pour atteindre son état actuel.
 
 Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence ou de l'interférence d'une autre réincarnation. C'était son choix souverain.
 
@@ -126,11 +126,11 @@ Le temps passa et les saisons se succédèrent. Wang Lin resta dans la vallée, 
 
 Tout en veillant sur Li Muwan, il se remémorait ses souvenirs, plongé dans son propre monde.
 
-Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait auprès de Wang Lin durant quelques mois avant de repartir mener sa propre vie et sa culture.
+Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait auprès de Wang Lin durant quelques mois avant de repartir mener sa propre vie et sa cultivation.
 
 Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Big Red. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
 
-Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de culture actuel de Wang Lin, Zhong Big Red pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
+Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de cultivation actuel de Wang Lin, Zhong Big Red pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 

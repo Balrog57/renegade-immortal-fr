@@ -42,11 +42,11 @@ Une lueur de dédain passa dans les yeux de Greed lorsqu'il répondit : « Tu ve
 
 Aucun signe de vie ne émanait de cet œuf ; il était enveloppé d'une aura de mort.
 
-Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il avait commencé à comprendre la nature de Greed. La culture de ce dernier était liée à la mort, il était donc logique qu'il utilise cet objet pour favoriser sa propre progression.
+Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il avait commencé à comprendre la nature de Greed. La cultivation de ce dernier était liée à la mort, il était donc logique qu'il utilise cet objet pour favoriser sa propre progression.
 
 Cependant, rien ne garantissait qu'il s'agissait bien de ce que Greed avait trouvé.
 
-« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit ! » Les yeux de Greed devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de la Grande Épée Lou comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
+« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma cultivation, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit ! » Les yeux de Greed devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de la Grande Épée Lou comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
 
 Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement : « Veuillez ne pas nous en tenir rigueur, Aîné. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
 
@@ -108,7 +108,7 @@ La capacité de décision de Wang Lin était un trait qui ne pouvait être compa
 
 En volant, Wang Lin laissa échapper un long soupir.
 
-« L'Omniscient vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma culture du domaine de la vie et de la mort sur Suzaku qu'il avait décidé de faire de moi son disciple ! »
+« L'Omniscient vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma cultivation du domaine de la vie et de la mort sur Suzaku qu'il avait décidé de faire de moi son disciple ! »
 
 Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté absolue. Il se téléporta et disparut.
 
@@ -116,7 +116,7 @@ Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté 
 
 Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays Démoniaque du Feu pendant plusieurs jours. Il ne plaça aucune restriction ou sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 
-Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de culture extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
+Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de cultivation extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
 
 Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays Démoniaque de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi !
 

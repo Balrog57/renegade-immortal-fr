@@ -18,7 +18,7 @@ Il posa sa cape sur le côté, puis s'assit face à Wang Lin. À l'instant où i
 
 Une fois assis, Zhou Wutai saisit la cruche de vin que Wang Lin avait laissée sur la table. Sans même utiliser de coupe, il but une longue gorgée directement au goulot.
 
-Wang Lin observa Zhou Wutai. Comparé à dix ans auparavant, quelques rides supplémentaires marquaient son visage. De toute évidence, certains soucis l'avaient profondément affecté durant cette décennie. Quant à sa culture, il avait progressé depuis dix ans, mais demeurait tout de même un cran en dessous de Wang Lin.
+Wang Lin observa Zhou Wutai. Comparé à dix ans auparavant, quelques rides supplémentaires marquaient son visage. De toute évidence, certains soucis l'avaient profondément affecté durant cette décennie. Quant à sa cultivation, il avait progressé depuis dix ans, mais demeurait tout de même un cran en dessous de Wang Lin.
 
 Après tout, le Domaine de la Vie et de la Mort que Wang Lin avait expérimenté lui avait conféré une compréhension bien plus profonde.
 
@@ -58,7 +58,7 @@ Zhou Wutai reprit : « Plusieurs aînés de l'Alliance des Quatre Sectes sont so
 
 « Des cultivateurs de Xue Yue ? » C'était la première fois que Wang Lin entendait ce nom.
 
-Zhou Wutai prit une profonde inspiration : « Xue Yue est un autre pays de culture de rang 4. Ils se situent à la frontière nord du continent. Leur région est perpétuellement ensevelie sous la glace et la neige, et leur culture y est étroitement liée. Ainsi, chaque fois que Xue Yue attaque un autre pays, ils utilisent ces failles pour recouvrir d'abord le territoire de neige, avant de lancer l'assaut. »
+Zhou Wutai prit une profonde inspiration : « Xue Yue est un autre pays de cultivation de rang 4. Ils se situent à la frontière nord du continent. Leur région est perpétuellement ensevelie sous la glace et la neige, et leur cultivation y est étroitement liée. Ainsi, chaque fois que Xue Yue attaque un autre pays, ils utilisent ces failles pour recouvrir d'abord le territoire de neige, avant de lancer l'assaut. »
 
 Une fois son explication terminée, Zhou Wutai agita sa main droite, ouvrant la porte de la boutique. Il tendit la main et saisit une boule de neige. Puis, sa main gauche traça un sceau et une sphère de feu apparut, dégageant d'intenses vagues de chaleur.
 
@@ -72,7 +72,7 @@ Wang Lin fut immédiatement surpris ; ce n'était pas ce à quoi il s'attendait.
 
 Wang Lin resta pensif, mais ne dit mot.
 
-Zhou Wutai demanda avec franchise : « Frère Wang, je suis ici aujourd'hui, au nom de l'Alliance des Quatre Sectes, pour t'inviter à nous rejoindre. Avec ta culture, ton adhésion accroîtrait considérablement la puissance de l'Alliance ! »
+Zhou Wutai demanda avec franchise : « Frère Wang, je suis ici aujourd'hui, au nom de l'Alliance des Quatre Sectes, pour t'inviter à nous rejoindre. Avec ta cultivation, ton adhésion accroîtrait considérablement la puissance de l'Alliance ! »
 
 Wang Lin le regarda et répondit lentement : « Je ne suis qu'un modeste cultivateur de l'Âme Naissante. Il existe bien des cultivateurs au niveau bien supérieur au mien au sein de l'Alliance, mon impact ne sera donc pas majeur. »
 

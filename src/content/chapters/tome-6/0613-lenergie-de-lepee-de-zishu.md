@@ -10,7 +10,7 @@ La réaction de Tong Yun fut d'une rapidité fulgurante ; il afficha même une e
 
 Si c'était une personne ordinaire, elle aurait été plus ou moins dupe de ses manœuvres.
 
-Wang Lin lança un regard glacial à Tong Yun avant de détourner les yeux et d'avancer. L'expression de Tong Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant : « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de ce Domaine des Esprits Démoniaques... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des cent pieds autour de ce cadavre, il mourra sans aucun doute ! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne ! »
+Wang Lin lança un regard glacial à Tong Yun avant de détourner les yeux et d'avancer. L'expression de Tong Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant : « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de cultivation. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de ce Domaine des Esprits Démoniaques... Cependant, peu importe la puissance de sa cultivation, dès qu'il franchira la limite des cent pieds autour de ce cadavre, il mourra sans aucun doute ! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne ! »
 
 Tong Yun ricana intérieurement, mais en surface, il feignit la colère. Il n'osa toutefois pas s'interposer devant Wang Lin.
 
@@ -48,7 +48,7 @@ Le visage de Tong Yun était d'une pâleur extrême. Encore sous le choc d'avoir
 
 Ce n'est que lorsqu'il fut à des dizaines de kilomètres de là qu'il poussa un soupir de soulagement, découvrant qu'il était trempé de sueur froide. Une haine profonde l'envahit tandis qu'il regardait le cadavre décapité ; il le jeta brutalement sur le côté. D'un geste de la main droite, il fit apparaître un immense nuage noir qui enveloppa la dépouille et, en un clin d'œil, dévora entièrement le corps, jusqu'aux os.
 
-« C'est la faute de ce cadavre ! J'ai failli y laisser ma vie ! Bien que le niveau de culture de ce Senior soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon frère de discipline ! » Tong Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
+« C'est la faute de ce cadavre ! J'ai failli y laisser ma vie ! Bien que le niveau de cultivation de ce Senior soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon frère de discipline ! » Tong Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
 
 Il ignorait quel sort l'aurait frappé si Wang Lin avait réellement cru qu'il était le frère aîné de Zi Shu.
 
@@ -58,7 +58,7 @@ S'il ne la raffinait pas pendant un certain temps, il lui serait extrêmement di
 
 Au fond de la terre, le Sens Divin de Wang Lin se propagea et détecta une autre énergie d'épée non loin de là. Ses yeux s'illuminèrent ; il tendit la main sous terre et l'énergie d'épée au loin commença immédiatement à se débattre. Elle se transforma alors en un rat géant qui poussa un rugissement vers Wang Lin.
 
-Wang Lin s'exclama et libéra sa culture d'Ascendant. Le grand rat poussa un cri misérable avant d'être capturé par Wang Lin.
+Wang Lin s'exclama et libéra sa cultivation d'Ascendant. Le grand rat poussa un cri misérable avant d'être capturé par Wang Lin.
 
 Ce qui apparut devant lui était une épée simple et antique. Un rat noir se tenait sur la lame, fixant Wang Lin de ses yeux sombres.
 
@@ -66,7 +66,7 @@ Ce qui apparut devant lui était une épée simple et antique. Un rat noir se te
 
 « Saint de l'Épée, Ling Tianhou... Si un jour, moi, Wang Lin, je réunis les douze épées, quelle expression afférerez-vous ? » Wang Lin saisit l'épée, y imprégna son propre Sens Divin et la rangea dans son sac de rangement.
 
-Les douze épées étaient des trésors précieux, mais le niveau de culture des possesseurs de ces armes n'était pas assez élevé pour en exploiter toute la puissance. Entre les mains de Wang Lin, toutefois, la donne changeait.
+Les douze épées étaient des trésors précieux, mais le niveau de cultivation des possesseurs de ces armes n'était pas assez élevé pour en exploiter toute la puissance. Entre les mains de Wang Lin, toutefois, la donne changeait.
 
 Wang Lin passa un mois sous terre, là où Zi Shu était mort, avant de parvenir à raffiner l'énergie de l'épée. Cette fois, il la raffina intégralement pour son usage personnel. Cela différait de l'énergie de Mo Yang, qu'il se contentait de stocker pour la rejeter ensuite comme un objet à usage unique.
 
@@ -74,7 +74,7 @@ Après avoir raffiné l'énergie de l'épée de Zi Shu, Wang Lin pouvait désorm
 
 Par conséquent, cette énergie d'épée était devenue bien plus versatile. Comparé à auparavant, la différence était abyssale. Même parmi les douze épées, la plupart ne pouvaient être utilisées que de manière éphémère ; leurs possesseurs n'avaient pas la capacité de les projeter et de les récupérer selon leur volonté.
 
-Si Wang Lin pouvait accomplir cela, c'était parce que sa culture avait atteint le stade initial d'Ascendant. De plus, pour faciliter l'usage par ses disciples, lorsque Ling Tianhou leur avait offert ces énergies, il en avait effacé son propre Sens Divin, les transformant ainsi en objets sans maître.
+Si Wang Lin pouvait accomplir cela, c'était parce que sa cultivation avait atteint le stade initial d'Ascendant. De plus, pour faciliter l'usage par ses disciples, lorsque Ling Tianhou leur avait offert ces énergies, il en avait effacé son propre Sens Divin, les transformant ainsi en objets sans maître.
 
 Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que le Tout-Voyant ! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où le Tout-Voyant ne leur donnait que des trésors de sauvetage de piètre qualité.
 

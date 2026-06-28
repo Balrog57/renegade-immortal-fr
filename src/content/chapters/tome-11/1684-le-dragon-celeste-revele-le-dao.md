@@ -8,7 +8,7 @@ slug: le-dragon-celeste-revele-le-dao
 ---
 Wang Lin ne comprenait pas ce qu'était une personne puissante lorsqu'il était jeune. Il savait seulement que les enfants de ses voisins étaient plus forts que lui, et qu'ils étaient donc des êtres puissants.
 
-Ce n'est qu'il y a quelques années, après plus de 2 000 ans de culture, que Wang Lin comprit enfin ce que signifiait la responsabilité.
+Ce n'est qu'il y a quelques années, après plus de 2 000 ans de cultivation, que Wang Lin comprit enfin ce que signifiait la responsabilité.
 
 Le Seigneur du Royaume Scellé était un être puissant, et ce titre s'accompagnait d'une lourde responsabilité. Bien que Wang Lin n'ait pas porté ce titre longtemps, celui-ci l'avait poussé vers une véritable maturité propre aux cultivateurs.
 
@@ -48,7 +48,7 @@ Après un long moment, l'avatar de Wang Lin se retourna et fit un pas vers son c
 
 « Avant tout cela, laissez-moi orchestrer un prélude chaotique pour cette bataille finale ! » Les yeux de Wang Lin brillèrent et il quitta la formation en roue, se dirigeant vers le Système d'Étoiles Antique.
 
-« Je vais détruire le Royaume Céleste Antique du Royaume Extérieur ! » Ses yeux étaient empreints d'une intention meurtrière alors qu'il s'élançait dans le Système d'Étoiles Antique. Il se transforma en un rayon de lumière, fonçant en avant tout en libérant la plénitude de sa culture.
+« Je vais détruire le Royaume Céleste Antique du Royaume Extérieur ! » Ses yeux étaient empreints d'une intention meurtrière alors qu'il s'élançait dans le Système d'Étoiles Antique. Il se transforma en un rayon de lumière, fonçant en avant tout en libérant la plénitude de sa cultivation.
 
 Il ne cachait ni son aura ni sa silhouette ; il annonçait directement à l'ensemble du Royaume Extérieur que lui, Wang Lin, était arrivé !
 
@@ -66,7 +66,7 @@ Deux ans auparavant, il avait voulu lancer une attaque surprise au milieu du cha
 
 « Il est apparu dans le Système d'Étoiles Antique, pourquoi est-il venu... Cherche-t-il à me provoquer pour m'attirer et me tuer... » Les yeux du Souverain étaient emplis de suspicion. Il ne comprenait pas pourquoi Wang Lin se montrait avec une telle arrogance dans le Système d'Étoiles Antique.
 
-« Ce vieil homme ne s'approchera pas, je veux voir ce qu'il est capable de faire ! » Le Souverain ne pouvait que souffrir en silence. Sa culture était transcendante et, sans sa crainte de l'arc, il aurait immédiatement tué Wang Lin.
+« Ce vieil homme ne s'approchera pas, je veux voir ce qu'il est capable de faire ! » Le Souverain ne pouvait que souffrir en silence. Sa cultivation était transcendante et, sans sa crainte de l'arc, il aurait immédiatement tué Wang Lin.
 
 Également dans le Système d'Étoiles Antique, au sein du vortex formé par plusieurs étoiles où brillait une lumière aux sept couleurs, se trouvait le Daoïste aux Sept Couleurs. Il affichait un regard indifférent alors qu'il contemplait le lointain avec un léger sourire.
 
@@ -76,7 +76,7 @@ Deux ans auparavant, il avait voulu lancer une attaque surprise au milieu du cha
 
 « La formation sanguine est complète ; bientôt, je saurai où se trouve celui qui s'est réincarné d'innombrables fois ! Je vous ai cherché pendant des éons. Je veux savoir qui vous êtes aujourd'hui après tant de réincarnations !!! »
 
-Dans le Système d'Étoiles Antique, sur une planète de culture, une femme en blanc était assise. Elle était d'une grande beauté, mais dégageait une aura si froide qu'elle semblait être une montagne de glace, comme si elle était faite de neige. Ses yeux étaient clos, mais à cet instant, elle les ouvrit soudainement.
+Dans le Système d'Étoiles Antique, sur une planète de cultivation, une femme en blanc était assise. Elle était d'une grande beauté, mais dégageait une aura si froide qu'elle semblait être une montagne de glace, comme si elle était faite de neige. Ses yeux étaient clos, mais à cet instant, elle les ouvrit soudainement.
 
 « C'est lui ! » Cette femme était la troisième des huit concubines du Souverain Céleste !
 

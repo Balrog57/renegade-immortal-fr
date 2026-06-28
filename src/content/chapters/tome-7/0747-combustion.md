@@ -32,9 +32,9 @@ Wang Lin ferma les yeux. Lorsqu'il les rouvrit, il avait retrouvé toute sa luci
 
 La sphère de lumière condensée par le vieil homme avait explosé dans le corps de Wang Lin, le plongeant dans une crise majeure. La sensation de brûlure persistait.
 
-Pourtant, ce qui était surprenant, c'est que cette combustion ne nuisait pas à sa culture ; au contraire, elle s'avérait extrêmement bénéfique. Tandis qu'il brûlait, Wang Lin sentait sa culture progresser lentement, se rapprochant infiniment de la percée au sommet du stade avancé de l'Ascendant.
+Pourtant, ce qui était surprenant, c'est que cette combustion ne nuisait pas à sa cultivation ; au contraire, elle s'avérait extrêmement bénéfique. Tandis qu'il brûlait, Wang Lin sentait sa cultivation progresser lentement, se rapprochant infiniment de la percée au sommet du stade avancé de l'Ascendant.
 
-Toutefois, le processus était d'une douleur telle qu'il aurait pu rendre n'importe qui fou. Fort heureusement, la force mentale de Wang Lin, forgée par mille ans de culture, était stable comme le roc ; il se contenta donc d'endurer la souffrance. En apparence, personne ne pouvait remarquer la moindre anomalie.
+Toutefois, le processus était d'une douleur telle qu'il aurait pu rendre n'importe qui fou. Fort heureusement, la force mentale de Wang Lin, forgée par mille ans de cultivation, était stable comme le roc ; il se contenta donc d'endurer la souffrance. En apparence, personne ne pouvait remarquer la moindre anomalie.
 
 L'expression de Wang Lin demeura neutre et sa voix retrouva son calme lorsqu'il demanda : « Li Yuan, l'endroit dont vous parliez se trouve-t-il sur ce fragment ? »
 
@@ -50,13 +50,13 @@ Selon ses spéculations, si l'objectif de Li Yuan n'avait été que l'épée de 
 
 Wang Lin restait serein. Tout en les suivant, il subissait la douleur intérieure. À cet instant, ses sentiments envers le vieil homme étaient complexes.
 
-D'un côté, il lui était reconnaissant de lui avoir offert cette opportunité : malgré l'agonie, son niveau de culture augmentait inexorablement. De l'autre, il éprouvait une haine profonde envers ce vieillard pour lui avoir dérobé la Bête du Tonnerre et s'être joué de lui à deux reprises.
+D'un côté, il lui était reconnaissant de lui avoir offert cette opportunité : malgré l'agonie, son niveau de cultivation augmentait inexorablement. De l'autre, il éprouvait une haine profonde envers ce vieillard pour lui avoir dérobé la Bête du Tonnerre et s'être joué de lui à deux reprises.
 
 Après un soupir silencieux, Wang Lin concentra son esprit pour réprimer la douleur. Il sentait clairement que son corps subissait une métamorphose depuis l'absorption de la sphère de lumière. C'était comme si celle-ci tentait de condenser le tonnerre au sein de ses membres pour forger un véritable corps de chair et de sang.
 
-Wang Lin ignorait combien de temps ce processus durerait, mais il avait le sentiment qu'une fois la transformation achevée et la douleur dissipée, il franchirait la première étape de sa culture !
+Wang Lin ignorait combien de temps ce processus durerait, mais il avait le sentiment qu'une fois la transformation achevée et la douleur dissipée, il franchirait la première étape de sa cultivation !
 
-Sa culture avait atteint le sommet du stade avancé de l'Ascendant, et même son domaine avait évolué vers le domaine karmique. Pourtant, il ne savait comment réaliser une percée.
+Sa cultivation avait atteint le sommet du stade avancé de l'Ascendant, et même son domaine avait évolué vers le domaine karmique. Pourtant, il ne savait comment réaliser une percée.
 
 À cet instant, il prit une profonde inspiration et décida de ne plus réprimer la douleur. Au contraire, il la laissa exploser afin d'accélérer sa progression.
 
@@ -66,7 +66,7 @@ C'était comme si une purification par le feu éliminait ses impuretés.
 
 Tandis que Li Yuan volait, il ne se retourna pas, mais un éclat de restrictions scintillait entre ses sourcils. Grâce à elles, il pouvait exécuter de nombreux sorts qui auraient normalement nécessité l'usage de son sens divin.
 
-Il percevait parfaitement l'état du corps de Wang Lin. Après une courte réflexion, il se reconcentra. Plus le niveau de culture de Wang Lin serait élevé, plus ce voyage serait aisé. Cependant, il ne pouvait pas permettre à Wang Lin d'atteindre réellement le stade de l'Yin Illusoire, sous peine de provoquer des complications.
+Il percevait parfaitement l'état du corps de Wang Lin. Après une courte réflexion, il se reconcentra. Plus le niveau de cultivation de Wang Lin serait élevé, plus ce voyage serait aisé. Cependant, il ne pouvait pas permettre à Wang Lin d'atteindre réellement le stade de l'Yin Illusoire, sous peine de provoquer des complications.
 
 Li Yuan songea : « Il semble que je ne puisse plus hésiter ! »
 

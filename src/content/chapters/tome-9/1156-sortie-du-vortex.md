@@ -22,7 +22,7 @@ Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sor
 
 Wang Lin n'avait pas de temps à perdre en réflexions ; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur de Nirvana ! D'un mouvement de sa main gauche, Maître Vide et Omniscient se précipitèrent sur Noble Money.
 
-Face à ces deux âmes puissantes, même Noble Money se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur de Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
+Face à ces deux âmes puissantes, même Noble Money se montra extrêmement prudent. Dans toute sa vie de cultivation, il n'avait jamais vu un cultivateur du niveau Purificateur de Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
 
 L'âme d'Omniscient semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Money.
 
@@ -48,7 +48,7 @@ Ce qu'il n'avait pas pu imaginer, c'était la puissance brute de l'énergie d'é
 
 C'est alors que Wang Lin ouvrit les yeux. Le visage pâle, il retira l'épée de fer pour ensuite déclencher six frappes consécutives !
 
-Au total, dix-neuf coups furent portés, consommant près de 60 % de l'énergie originelle de Wang Lin. Puis, il recula. L'illusion de dix-neuf épées gigantesques apparut soudainement autour de Noble Money. Avec sa force actuelle, Wang Lin aurait pu en lancer davantage, mais les conséquences auraient dépassé ses prévisions ; il interrompit donc de force le mouvement de l'épée. À son niveau de culture, il pouvait contrôler l'arme jusqu'au dix-neuvième coup, mais au-delà, il n'aurait pu s'arrêter même s'il l'avait voulu, et ne l'aurait utilisée que jusqu'à l'épuisement total de ses forces.
+Au total, dix-neuf coups furent portés, consommant près de 60 % de l'énergie originelle de Wang Lin. Puis, il recula. L'illusion de dix-neuf épées gigantesques apparut soudainement autour de Noble Money. Avec sa force actuelle, Wang Lin aurait pu en lancer davantage, mais les conséquences auraient dépassé ses prévisions ; il interrompit donc de force le mouvement de l'épée. À son niveau de cultivation, il pouvait contrôler l'arme jusqu'au dix-neuvième coup, mais au-delà, il n'aurait pu s'arrêter même s'il l'avait voulu, et ne l'aurait utilisée que jusqu'à l'épuisement total de ses forces.
 
 « Tranche ! » hurla Wang Lin, et les dix-neuf épées géantes chutèrent instantanément. Elles s'enchaînèrent en une série de coups continus, chargeant droit sur Noble Money !
 
@@ -76,7 +76,7 @@ D'un battement d'ailes, Wang Lin rattrapa Noble Money dans une traînée de flam
 
 Les pupilles de l'âme de Noble Money se rétractèrent dans un cri. Il sentit la mort approcher et il était trop tard pour réfléchir. La folie embrasa son regard alors qu'il tentait une ultime action, une aura destructrice émanant de son âme.
 
-Dans ce moment de péril, il choisit l'autodestruction de son âme originelle, mais à son niveau de culture, il pouvait en contrôler l'ampleur. Ses bras explosèrent soudainement en un tourbillon pour tenter d'emprisonner l'oiseau vermillon. Le trésor plumeau qu'il tenait explosa également en d'innombrables lignes blanches qui chargèrent l'oiseau.
+Dans ce moment de péril, il choisit l'autodestruction de son âme originelle, mais à son niveau de cultivation, il pouvait en contrôler l'ampleur. Ses bras explosèrent soudainement en un tourbillon pour tenter d'emprisonner l'oiseau vermillon. Le trésor plumeau qu'il tenait explosa également en d'innombrables lignes blanches qui chargèrent l'oiseau.
 
 Cependant, cela ne put stopper l'oiseau vermillon avant l'impact. Les flammes enveloppèrent l'âme originelle de Noble Money.
 
@@ -132,11 +132,11 @@ Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à s
 
 Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Son maître lui avait dit que si le Senior Ceng Niu ne revenait pas, ce serait elle qui apporterait la ruine à la secte lors de l'arrivée du Secte du Dao Pourpre.
 
-À l'intérieur de la maison, Wang Lin s'assit, le regard grave, et pressa sa poitrine de la main droite. Son visage était toujours pâle alors qu'il entamait sa culture. Bientôt, des éclairs de lignes blanches commencèrent à être expulsés de son corps.
+À l'intérieur de la maison, Wang Lin s'assit, le regard grave, et pressa sa poitrine de la main droite. Son visage était toujours pâle alors qu'il entamait sa cultivation. Bientôt, des éclairs de lignes blanches commencèrent à être expulsés de son corps.
 
 Ces lignes blanches se tordaient avec une férocité extrême. La main droite de Wang Lin les saisit rapidement pour les arracher. Le sang jaillit, teignant ses vêtements de rouge.
 
-En observant les fils blancs dans sa paume, une froideur glaciale s'empara de son regard. Il les écrasa impitoyablement, les réduisant en poussière. Wang Lin poursuivit sa culture, forçant les lignes blanches à sortir de son corps.
+En observant les fils blancs dans sa paume, une froideur glaciale s'empara de son regard. Il les écrasa impitoyablement, les réduisant en poussière. Wang Lin poursuivit sa cultivation, forçant les lignes blanches à sortir de son corps.
 
 Il avait consacré tout son voyage de retour à cette tâche ; il ne restait donc plus beaucoup de fils blancs en lui.
 

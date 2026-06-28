@@ -16,7 +16,7 @@ Chaque pas qu'il faisait en retrait produisait un bruit sourd, comme s'il piéti
 
 Des craquements retentirent du bras droit de l'homme d'âge moyen et une onde de choc se propagea sur son membre. Du sang s'écoula du coin de sa bouche et il fut forcé de reculer de plusieurs pas.
 
-Un cultivateur possédant un niveau de culture bien supérieur à celui de Wang Lin pouvait le blesser directement par une telle collision avec ses sorts.
+Un cultivateur possédant un niveau de cultivation bien supérieur à celui de Wang Lin pouvait le blesser directement par une telle collision avec ses sorts.
 
 Cependant, entre les membres du clan ancestral, la collision terrifiante de deux corps dotés d'une force similaire pouvait produire un tel résultat !
 

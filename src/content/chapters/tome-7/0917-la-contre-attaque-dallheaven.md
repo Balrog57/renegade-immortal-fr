@@ -16,11 +16,11 @@ Même leur vision se brouilla.
 
 Ces dix-huit sphères de sang étaient composées d'un sang recueilli par les deux familles depuis des temps immémoriaux, sur des dizaines de milliers d'années. Ce sang avait été lentement raffiné au prix de nombreux sacrifices au fil des âges. Il s'agissait de l'un des deux trésors de protection de ces lignées.
 
-Cet objet était extrêmement célèbre dans l'ancien monde de la culture !
+Cet objet était extrêmement célèbre dans l'ancien monde de la cultivation !
 
 Il portait le nom des Dix-huit Lou Fu !
 
-Le Lou Fu était, à l'époque antique, une montagne de culture. Cependant, une nuit, la montagne s'effondra mystérieusement et tous les cultivateurs qui s'y trouvaient périrent d'une mort violente, leur sang ayant été intégralement drainé.
+Le Lou Fu était, à l'époque antique, une montagne de cultivation. Cependant, une nuit, la montagne s'effondra mystérieusement et tous les cultivateurs qui s'y trouvaient périrent d'une mort violente, leur sang ayant été intégralement drainé.
 
 Leur sang s'était rassemblé au Mont Lou Fu pour former une sphère de sang de cent pieds de large !
 
@@ -30,13 +30,13 @@ Toutefois, cette sphère de sang était trop maléfique et sa vitesse de formati
 
 Le pouvoir des dix-huit Lou Fu résidait dans leur pression. Un seul Lou Fu exerçait une strate de pression ; ainsi, dix-huit Lou Fu créaient un degré de compression inimaginable.
 
-De plus, si un cultivateur y fusionnait une partie de son propre sang, non seulement il ne subirait pas la pression, mais son niveau de culture augmenterait également pour une courte période.
+De plus, si un cultivateur y fusionnait une partie de son propre sang, non seulement il ne subirait pas la pression, mais son niveau de cultivation augmenterait également pour une courte période.
 
 L'expression du Saint Démon Noir était sombre ; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, le Dieu du Sang surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
 Le visage de Maître Flamespark demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire d'Allheaven.
 
-Dans le Système Stellaire d'Allheaven, des dizaines de milliers de cultivateurs avaient activé leur culture. Un objet se dressait parmi eux !
+Dans le Système Stellaire d'Allheaven, des dizaines de milliers de cultivateurs avaient activé leur cultivation. Un objet se dressait parmi eux !
 
 Cet objet était un morceau de bois. Cependant, ce bois mesurait cent mille pieds de long et dix mille pieds de large !
 
@@ -62,7 +62,7 @@ Le bois géant avait ouvert la voie à travers la barrière des fissures spatial
 
 Ce rugissement déchira la région ouest et ébranla violemment les cultivateurs de l'Alliance. Certains d'entre eux saignèrent même par leurs orifices sous l'effet des vibrations.
 
-Un sentiment extrême de violence émana du tunnel. Une planète de culture gigantesque apparut dans le conduit entre les deux systèmes, entourée d'une brume blanche et d'une apparence fort étrange.
+Un sentiment extrême de violence émana du tunnel. Une planète de cultivation gigantesque apparut dans le conduit entre les deux systèmes, entourée d'une brume blanche et d'une apparence fort étrange.
 
 Dès qu'elle apparut, la brume autour de la planète se retira rapidement jusqu'à disparaître totalement, puis une fissure fendit l'astre en son centre. La planète s'ouvrit et d'innombrables tentacules s'en déployèrent. C'était le Serpent Regardant la Lune !
 
@@ -94,7 +94,7 @@ De ce fait, les cultivateurs de l'Alliance étaient immédiatement désavantagé
 
 À cet instant, Wang Lin se trouvait dans la région ouest. Le corps de Lei Jia, bien plus petit — seulement trente pieds de haut —, ouvrait la voie. Le garçon à la grosse tête le suivait. Quant à Ta Shan, il conservait son expression froide tout en observant les environs.
 
-Le regard de Wang Lin était calme. En chemin, il avait croisé plusieurs cultivateurs de l'Alliance. Chaque fois qu'ils apercevaient Wang Lin, leurs visages se décomposaient face aux niveaux de culture du groupe. Ils faisaient demi-tour et fuyaient sans hésiter.
+Le regard de Wang Lin était calme. En chemin, il avait croisé plusieurs cultivateurs de l'Alliance. Chaque fois qu'ils apercevaient Wang Lin, leurs visages se décomposaient face aux niveaux de cultivation du groupe. Ils faisaient demi-tour et fuyaient sans hésiter.
 
 Cependant, certains pensaient être assez forts ou s'appuyer sur leur nombre. Après une brève hésitation, ils attaquèrent le groupe de Wang Lin. Mais tous furent exécutés par Wang Lin, sans exception.
 

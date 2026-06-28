@@ -40,19 +40,19 @@ Dès que ces mots furent prononcés, les six âmes affichèrent une expression d
 
 Simultanément, la pilule descendit lentement et fut saisie par Ouyang Zi. Bien que son visage fût calme, il était transporté par l'excitation intérieure : « J'ai enfin réussi ! Désormais, je pourrai tenter de raffiner une pilule de rang 6 ! »
 
-Quant à Wang Lin, il était assis dans l'espace défiant le ciel, en pleine culture, les yeux fixés sur la pilule qu'il tenait. Après un moment, son regard devint résolu et il jeta la pilule dans sa bouche.
+Quant à Wang Lin, il était assis dans l'espace défiant le ciel, en pleine cultivation, les yeux fixés sur la pilule qu'il tenait. Après un moment, son regard devint résolu et il jeta la pilule dans sa bouche.
 
 Dès que la pilule entra dans sa bouche, elle se transforma en un flux d'énergie spirituelle bleue. Alors que ce courant traversait le corps de Wang Lin, la tactique de l'Ancien Dieu dévorait sans relâche l'énergie spirituelle infinie de ce flux.
 
 Au même moment, le noyau de Wang Lin tourna rapidement tout en s'élargissant.
 
-Lentement, des éclats de puissance spirituelle violette apparurent dans son noyau. À mesure que cette énergie se rassemblait, sa culture atteignit enfin le sommet du stade avancé de la Formation du Noyau.
+Lentement, des éclats de puissance spirituelle violette apparurent dans son noyau. À mesure que cette énergie se rassemblait, sa cultivation atteignit enfin le sommet du stade avancé de la Formation du Noyau.
 
-Sa culture continuait de croître tandis que son noyau grandissait encore. Bientôt, des gouttes de liquide doré coulèrent de son noyau, comme si celui-ci était en train de fondre.
+Sa cultivation continuait de croître tandis que son noyau grandissait encore. Bientôt, des gouttes de liquide doré coulèrent de son noyau, comme si celui-ci était en train de fondre.
 
 Son corps devint également transparent à cet instant, lui permettant d'observer tous les changements qui s'opéraient en lui.
 
-Wang Lin restait parfaitement calme, concentrant toute son attention sur sa culture tout en attendant le moment où son Âme Naissante se formerait.
+Wang Lin restait parfaitement calme, concentrant toute son attention sur sa cultivation tout en attendant le moment où son Âme Naissante se formerait.
 
 Pour Wang Lin, la formation de son Âme Naissante revêtait une signification bien différente de celle des autres.
 
@@ -64,13 +64,13 @@ Même au sein de la Mer des Démons, il aurait la capacité de fonder sa propre 
 
 Le plus important était qu'il aurait la capacité de retourner dans le pays de Zhao pour accomplir sa vengeance. Teng Huayuan ; ce nom était une plaie que Wang Lin nourrissait depuis plus de 400 ans. C'était une haine indicible. Quiconque oserait barrer sa route devrait en payer le prix par le sang.
 
-Wang Lin ignorait quel niveau de culture Teng Huayuan avait atteint en quatre siècles, mais tant qu'il n'avait pas atteint la Séparation d'Esprit, une fois que Wang Lin atteindrait l'Âme Naissante, son destin resterait inchangé.
+Wang Lin ignorait quel niveau de cultivation Teng Huayuan avait atteint en quatre siècles, mais tant qu'il n'avait pas atteint la Séparation d'Esprit, une fois que Wang Lin atteindrait l'Âme Naissante, son destin resterait inchangé.
 
 Wang Lin ne pouvait croire qu'en à peine 400 ans, un cultivateur au début du stade de l'Âme Naissante puisse espérer atteindre la Séparation d'Esprit. Il fallait admettre qu'après l'Âme Naissante, même progresser d'un seul petit stade était extrêmement ardu.
 
-Le monde de la culture était une pyramide : plus on s'élève, plus les effectifs sont réduits.
+Le monde de la cultivation était une pyramide : plus on s'élève, plus les effectifs sont réduits.
 
-Parmi les sept niveaux de culture — Condensation de Qi, Établissement des Fondations, Formation du Noyau, Âme Naissante, Séparation d'Esprit, Transformation de l'Âme et Ascension — l'Âme Naissante constituait la barrière ultime. Atteindre ce stade signifiait que l'on avait véritablement pénétré le monde de la culture pour aspirer au sommet.
+Parmi les sept niveaux de cultivation — Condensation de Qi, Établissement des Fondations, Formation du Noyau, Âme Naissante, Séparation d'Esprit, Transformation de l'Âme et Ascension — l'Âme Naissante constituait la barrière ultime. Atteindre ce stade signifiait que l'on avait véritablement pénétré le monde de la cultivation pour aspirer au sommet.
 
 Outre la vengeance, une autre force le poussait à devenir plus fort : le danger constant qu'il ressentait face à l'homme aux cheveux roux dans les terres de l'Ancien Dieu.
 
@@ -78,17 +78,17 @@ Il était convaincu qu'avec le génie de cet homme, celui-ci trouverait un moyen
 
 Après avoir fusionné avec l'héritage de la connaissance, il sentait qu'il changeait lentement chaque jour. C'était un changement mental ; ses pensées s'alignaient de plus en plus sur celles d'un Ancien Dieu.
 
-Avant d'entrer dans le monde de la culture, le plus grand rêve de Wang Lin était de réussir les examens impériaux, de rendre ses parents fiers et de leur offrir une vie décente. Mais lorsque son quatrième oncle lui offrit la chance de devenir un immortel, tout bascula. À l'époque, il pensait que la ville près de son village était déjà la plus grande du monde. Quant à la capitale impériale, il n'en avait jamais rêvé, ni même entendu parler.
+Avant d'entrer dans le monde de la cultivation, le plus grand rêve de Wang Lin était de réussir les examens impériaux, de rendre ses parents fiers et de leur offrir une vie décente. Mais lorsque son quatrième oncle lui offrit la chance de devenir un immortel, tout bascula. À l'époque, il pensait que la ville près de son village était déjà la plus grande du monde. Quant à la capitale impériale, il n'en avait jamais rêvé, ni même entendu parler.
 
-Lorsqu'il pénétra pour la première fois dans le monde de la culture, son but était simplement de devenir immortel. Il apprit alors que le pays de Zhao n'était qu'un infime royaume sur cette planète.
+Lorsqu'il pénétra pour la première fois dans le monde de la cultivation, son but était simplement de devenir immortel. Il apprit alors que le pays de Zhao n'était qu'un infime royaume sur cette planète.
 
-Puis, des événements majeurs forcèrent Wang Lin à chercher sans cesse de nouveaux moyens de renforcer sa puissance. Son objectif restait de retourner au pays de Zhao pour se venger. En parcourant un pays après l'autre, ses horizons s'étaient considérablement élargis. Il découvrit que le monde sur lequel il marchait s'appelait la planète Suzaku et que le pays de Zhao n'était qu'un pays de culture de rang 3. Au-dessus, existaient des pays de rang 4, de rang 5 et même de rang 6.
+Puis, des événements majeurs forcèrent Wang Lin à chercher sans cesse de nouveaux moyens de renforcer sa puissance. Son objectif restait de retourner au pays de Zhao pour se venger. En parcourant un pays après l'autre, ses horizons s'étaient considérablement élargis. Il découvrit que le monde sur lequel il marchait s'appelait la planète Suzaku et que le pays de Zhao n'était qu'un pays de cultivation de rang 3. Au-dessus, existaient des pays de rang 4, de rang 5 et même de rang 6.
 
 Il comprit que le véritable souverain de la planète Suzaku était le pays de Suzaku.
 
 Après avoir reçu l'héritage de la connaissance, son horizon s'était encore élargi. Le vaste cosmos regorgeait d'innombrables planètes semblables à Suzaku. La démesure et la puissance de l'Ancien Dieu, capable de détruire une planète avec nonchalance, plongeaient Wang Lin dans une sorte d'ivresse.
 
-À cet instant, sa mentalité changea ; son but devint la poursuite de niveaux de culture toujours plus élevés. Seule la force lui permettrait de survivre dans ce monde.
+À cet instant, sa mentalité changea ; son but devint la poursuite de niveaux de cultivation toujours plus élevés. Seule la force lui permettrait de survivre dans ce monde.
 
 On pourrait dire qu'à ce moment précis, Wang Lin s'était libéré de son unique obsession de vengeance pour embrasser l'aspiration à la puissance pure. Il avait acquis la mentalité de celui qui refuse d'être foulé aux pieds et qui cherche à repousser les limites de sa propre existence.
 
@@ -108,7 +108,7 @@ Le second niveau était l'absorption.
 
 La dévoration et l'absorption sont deux concepts radicalement différents. La dévoration signifie que tout type d'énergie pénétrant le corps de Wang Lin est consommé par lui ; c'est un état passif.
 
-L'absorption, en revanche, est un état actif permettant de s'approprier la culture d'autrui.
+L'absorption, en revanche, est un état actif permettant de s'approprier la cultivation d'autrui.
 
 En réalité, la puissance phénoménale des Anciens Dieux provient de cette tactique. Chaque Ancien Dieu, à son éveil, possède cette technique gravée dans son esprit.
 
@@ -118,7 +118,7 @@ Cependant, la tactique de l'Ancien Dieu appartenait exclusivement aux Anciens Di
 
 Bien que la tactique de l'Ancien Dieu de Wang Lin présentât des différences par rapport au véritable second niveau, cela n'importait guère.
 
-Le temps s'écoula rapidement et le jour de la cérémonie de jumelage de culture entre Li Muwan et Sun Zhenwei arriva enfin.
+Le temps s'écoula rapidement et le jour de la cérémonie de jumelage de cultivation entre Li Muwan et Sun Zhenwei arriva enfin.
 
 Ce jour-là, toute la Secte Cloud Sky était empreinte d'une atmosphère festive. Aucun nuage ne troublait le ciel sur des milles à la ronde. Le ciel était d'un bleu pur et d'innombrables lumières volaient vers la secte.
 
@@ -134,7 +134,7 @@ Sans cela, il lui aurait été impossible d'être associé à Li Muwan lors de c
 
 Tous les visiteurs étaient au courant de ces enjeux. On pouvait dire que cette cérémonie visait à sceller l'alliance entre les sectes intérieure et extérieure.
 
-Après tout, la Secte Cloud Sky était scindée en deux : la secte intérieure pratiquait l'alchimie tandis que la secte extérieure se consacrait à la culture. C'est grâce à leur synergie que la secte avait atteint ses sommets actuels.
+Après tout, la Secte Cloud Sky était scindée en deux : la secte intérieure pratiquait l'alchimie tandis que la secte extérieure se consacrait à la cultivation. C'est grâce à leur synergie que la secte avait atteint ses sommets actuels.
 
 Sun Zhenwei portait une longue robe rouge. Sa stature haute et droite lui conférait une aura à la fois douce et distinguée. Il se tenait actuellement derrière les Anciens des deux secteurs pour accueillir les invités.
 
@@ -142,7 +142,7 @@ Bien qu'il souriait, ses yeux trahissaient une certaine nervosité. En réalité
 
 Il trouvait ce sentiment absurde. Aujourd'hui, presque tous les ancêtres au stade avancé de l'Âme Naissante étaient sortis de leur retraite pour assister à l'événement. Si quiconque osait troubler la cérémonie, sa seule issue serait la mort.
 
-À moins que son niveau de culture ne soit celui de la Séparation d'Esprit.
+À moins que son niveau de cultivation ne soit celui de la Séparation d'Esprit.
 
 Mais Sun Zhenwei ne croyait pas qu'un cultivateur de la Séparation d'Esprit s'abaisserait à s'en prendre à la Secte Cloud Sky. Et même une secte de ce niveau devait rester vigilante face au Secte du Démon Géant qui se trouvait derrière eux.
 
@@ -158,9 +158,9 @@ Sun Zhenwei répondit respectueusement. Bien qu'il puisse mentir à tout le mond
 
 En apprenant que le chef de la secte était impliqué, il retrouva confiance. En levant les yeux vers le chef de la secte, il vit le vieil homme aux cheveux blancs se retourner et lui adresser un léger sourire.
 
-Cet homme était Liu Fei, le chef de la secte extérieure. Sa culture était mystérieuse ; on disait qu'il utilisait une pilule pour masquer son véritable niveau et qu'il se trouvait déjà au stade avancé de l'Âme Naissante. À moins de posséder un niveau supérieur, il était presque impossible de percer son secret.
+Cet homme était Liu Fei, le chef de la secte extérieure. Sa cultivation était mystérieuse ; on disait qu'il utilisait une pilule pour masquer son véritable niveau et qu'il se trouvait déjà au stade avancé de l'Âme Naissante. À moins de posséder un niveau supérieur, il était presque impossible de percer son secret.
 
-À côté de ce vieil homme se tenait un autre Ancien aux cheveux blancs : Song Qing, le chef de la secte intérieure. Derrière lui se trouvait un groupe de personnes aux niveaux de culture variés qui, dans n'importe quelle autre secte, seraient devenus les alchimistes en chef en une seule journée.
+À côté de ce vieil homme se tenait un autre Ancien aux cheveux blancs : Song Qing, le chef de la secte intérieure. Derrière lui se trouvait un groupe de personnes aux niveaux de cultivation variés qui, dans n'importe quelle autre secte, seraient devenus les alchimistes en chef en une seule journée.
 
 « Sima Yunnan, chef de la Secte Hao Ran, et l'Ancien Xu Li sont ici pour célébrer cette occasion ! » Une voix tonna au loin, résonnant à travers toute la chaîne de montagnes de la Secte Cloud Sky.
 
@@ -198,7 +198,7 @@ Sima Yunnan réfléchit : « Si cet homme est celui que Xu Li décrit, il doit �
 
 À cet instant, toutes les sectes et familles de cultivateurs commençaient à affluer. Hormis les grandes sectes accueillies personnellement par Sun Zhenwei, tous les autres arrivaient dans la salle principale.
 
-Bientôt, le hall fut presque comble. Certains invités, plus réservés, s'assirent dans des coins ou se mirent en culture, les yeux clos.
+Bientôt, le hall fut presque comble. Certains invités, plus réservés, s'assirent dans des coins ou se mirent en cultivation, les yeux clos.
 
 Le long des murs de la salle principale se tenait une rangée de disciples de la secte extérieure, tous au stade de la Formation du Noyau ou supérieur. Ils se tenaient là, le dos droit comme des pins, le regard fixé devant eux.
 

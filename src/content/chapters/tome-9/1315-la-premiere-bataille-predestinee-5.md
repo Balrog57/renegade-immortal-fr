@@ -10,7 +10,7 @@ Après avoir quitté la formation, Wang Lin savait que Tuo Sen ne le laisserait 
 
 Wang Lin hurla en se déplaçant pour dévorer d'innombrables personnes. Ses blessures guérissaient à un rythme stupéfiant. Tous les os de son corps se régénérèrent et ses plaies se refermèrent rapidement.
 
-Le domaine stellaire du Clan de la Lune tout entier était plongé dans le chaos ! Tous ces Anciens assis sur les planètes de culture crachèrent du sang lors de l'effondrement de la formation de scellement divin, mais ils retrouvèrent aussitôt leur concentration. Leurs yeux commencèrent à luire d'un rouge éclatant ; une partie d'entre eux se dirigea vers le brouillard noir formé par Wang Lin, tandis que les autres chargèrent vers Tuo Sen sous la conduite du vieil homme aux cheveux blancs !
+Le domaine stellaire du Clan de la Lune tout entier était plongé dans le chaos ! Tous ces Anciens assis sur les planètes de cultivation crachèrent du sang lors de l'effondrement de la formation de scellement divin, mais ils retrouvèrent aussitôt leur concentration. Leurs yeux commencèrent à luire d'un rouge éclatant ; une partie d'entre eux se dirigea vers le brouillard noir formé par Wang Lin, tandis que les autres chargèrent vers Tuo Sen sous la conduite du vieil homme aux cheveux blancs !
 
 Le vieil homme aux cheveux blancs poussa un rugissement et agita sa main droite. Son corps commença à s'étendre et le croissant de lune entre ses sourcils se mit à pivoter. Sa stature atteignit des milliers de pieds, presque égale à celle d'un Dieu Ancien !
 
@@ -102,7 +102,7 @@ Son corps était incapable de résister. Cependant, au moment où l'onde de choc
 
 Cinq essences apparurent simultanément, formant un vortex pour contrer l'onde de choc. Au même moment, les yeux de Wang Lin virèrent au rouge et le Domaine Ji surgit !
 
-Des bruits de craquements continuèrent de résonner alors que le corps de Wang Lin reculait. Portant presque la moitié du doigt divin — qui ressemblait à une petite planète de culture — il commença à fusionner avec le monde. Il s'apprêtait à partir en utilisant la Distorsion Spatiale.
+Des bruits de craquements continuèrent de résonner alors que le corps de Wang Lin reculait. Portant presque la moitié du doigt divin — qui ressemblait à une petite planète de cultivation — il commença à fusionner avec le monde. Il s'apprêtait à partir en utilisant la Distorsion Spatiale.
 
 Pourtant, juste avant son départ, bien que ses yeux soient injectés de sang et empreints d'épuisement, une lueur de froideur y subsistait. D'une simple pensée, un fouet apparut autour de lui !
 

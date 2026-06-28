@@ -42,7 +42,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Lors de la seconde bataille, Senior Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière des Invocations, gardé par 30 000 cultivateurs ! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
 
-« Senior Maître South Cloud fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie !
+« Senior Maître South Cloud fut gravement blessé par le Souverain et s'est retiré en cultivation fermée. À ce jour, il ne montre aucun signe de sortie !
 
 « La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière des Invocations pour les ralentir, nous ne parvinons pas à stopper l'avancée de l'armée du Royaume Extérieur !
 
@@ -52,11 +52,11 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « La bataille s'est apaisée pendant un certain temps. Le Royaume Extérieur aura besoin de temps pour briser la lumière antique. Après cela, tous les cultivateurs de la troisième étape se sont reposés, puis ont rassemblé les forces restantes pour lancer la troisième bataille. L'objectif était de pulvériser les cinq Royaumes aux Sept Couleurs...
 
-« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs cultivateurs de la troisième étape du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de la Rivière des Invocations périrent, et les autres furent tous contraints à une culture fermée pour guérir.
+« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs cultivateurs de la troisième étape du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de la Rivière des Invocations périrent, et les autres furent tous contraints à une cultivation fermée pour guérir.
 
 « Nous sommes maintenant dans la neuvième année suivant la troisième bataille. Selon les calculs de Maître Hong Shan, il ne faudra pas longtemps avant que le Royaume Extérieur ne brise la lumière antique. Ils entreront alors pour unir leurs forces aux deux Royaumes aux Sept Couleurs restants. Le Royaume Intérieur est en péril ! »
 
-Maître Flamespark expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de culture avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Nirvana Shatter.
+Maître Flamespark expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de cultivation avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Nirvana Shatter.
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
@@ -66,7 +66,7 @@ Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et p
 
 « Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Allheaven est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière des Invocations. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps !
 
-« Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en culture fermée... »
+« Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en cultivation fermée... »
 
 Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'était pas attendu à ce que le temps s'écoule si différemment à l'intérieur de la Bête du Néant. Tant de combats avaient eu lieu au monde extérieur !
 
@@ -98,4 +98,4 @@ Cette lumière dorée lui inspirait une telle crainte qu'il ressentait presque l
 
 Maître Flamespark suivit Wang Lin et dit respectueusement : « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un cultivateur de la troisième étape au début du Vide Spirituel ! Il reste une grande quantité de restrictions et de trésors dans l'Alliance ; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur ! »
 
-« Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Culture.
+« Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Cultivation.

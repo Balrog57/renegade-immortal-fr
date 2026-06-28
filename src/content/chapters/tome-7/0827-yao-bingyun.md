@@ -16,7 +16,7 @@ Au moment où la silhouette de Wang Lin disparut, des ondulations se formèrent 
 
 Si quelqu'un connaissant bien la famille Yao se trouvait là, il l'aurait reconnue. Elle s'appelait Yao Bingyun et, dans le Domaine Oriental, elle était considérée comme l'un des trois phénix !
 
-Yao Bingyun, le Phénix de Glace. Elle figurait parmi les trois meilleurs niveaux de culture de la troisième génération de la famille Yao. Son expression était toujours imperturbable ; même face à ses propres proches, elle s'exprimait avec indifférence.
+Yao Bingyun, le Phénix de Glace. Elle figurait parmi les trois meilleurs niveaux de cultivation de la troisième génération de la famille Yao. Son expression était toujours imperturbable ; même face à ses propres proches, elle s'exprimait avec indifférence.
 
 Son talent n'était pas exceptionnel au sein de la famille Yao, mais sa quête du Dao dépassait l'entendement. Pour poursuivre son propre chemin, après avoir atteint le stade d'Ascendant, elle commença à cultiver le sort céleste : le Sceau de l'Âme.
 
@@ -24,7 +24,7 @@ Ce sort céleste scellait les sens de l'âme originelle. Les yeux ne peuvent plu
 
 À travers les âges, de nombreux membres de la famille Yao avaient péri en tentant de maîtriser ce sort ; ainsi, peu à peu, de moins en moins de personnes osaient l'entreprendre.
 
-Yao Bingyun était restée dans cet état, s'adonnant à une culture en isolement pendant cinq cents ans sur la planète de glace de la famille Yao.
+Yao Bingyun était restée dans cet état, s'adonnant à une cultivation en isolement pendant cinq cents ans sur la planète de glace de la famille Yao.
 
 À sa sortie de méditation, elle était devenue plus froide encore, telle un bloc de glace éternelle. Partout où elle allait, elle laissait un frisson dans son sillage. Sa vie était entièrement dévouée au Dao et sa détermination était incommensurable !
 
@@ -34,7 +34,7 @@ Après avoir détourné son regard, elle fit un pas en avant et reprit la poursu
 
 Cette traque dura dix jours. Wang Lin finit par réaliser que quelque chose n'allait pas et redoubla de prudence.
 
-Durant ces dix jours, Yao Bingyun le suivit de près. En temps normal, avec son tempérament, elle ne se serait jamais mêlée des querelles familiales. Si elle en avait eu le choix, elle aurait préféré passer son temps en culture isolée pour contempler les cieux.
+Durant ces dix jours, Yao Bingyun le suivit de près. En temps normal, avec son tempérament, elle ne se serait jamais mêlée des querelles familiales. Si elle en avait eu le choix, elle aurait préféré passer son temps en cultivation isolée pour contempler les cieux.
 
 Cependant, l'Ancêtre de la famille Yao, le Dieu de Sang, avait prononcé une parole lors de la libération de l'Ordre Céleste : quiconque tuerait personnellement Xu Mu pourrait exiger que toute la puissance de la famille Yao soit mise à sa disposition pour accomplir un seul souhait !
 
@@ -46,9 +46,9 @@ Au cours de ces dix jours, la nouvelle de l'apparition de Xu Mu se répandit com
 
 Cet incident provoqua un immense tumulte. Certains qui avaient presque oublié le nom de Xu Mu se remémorèrent soudainement toutes les rumeurs qui circulaient sur lui dans le Royaume Céleste du Tonnerre.
 
-Ce qui choqua davantage l'assistance fut que, parmi les vingt-huit membres, il y avait trois cultivateurs Corporel Yang, neuf Illusoire Yin et seize cultivateurs au sommet du stade d'Ascendant. Malgré cette force de frappe, Xu Mu avait pu les massacrer avec aisance. Même parmi les deux survivants, l'un d'eux, une fois rentré chez lui, annonça immédiatement que sa famille de culture et sa planète ne participeraient pas au conflit opposant Xu Mu à la famille Yao !
+Ce qui choqua davantage l'assistance fut que, parmi les vingt-huit membres, il y avait trois cultivateurs Corporel Yang, neuf Illusoire Yin et seize cultivateurs au sommet du stade d'Ascendant. Malgré cette force de frappe, Xu Mu avait pu les massacrer avec aisance. Même parmi les deux survivants, l'un d'eux, une fois rentré chez lui, annonça immédiatement que sa famille de cultivation et sa planète ne participeraient pas au conflit opposant Xu Mu à la famille Yao !
 
-L'autre était un cultivateur Corporel Yang. Il se trouvait dans un état bien pire, son âme originelle étant gravement endommagée. Dès son retour, il s'était enfermé en culture isolée, déclarant également qu'il ne s'impliquerait pas dans cette affaire !
+L'autre était un cultivateur Corporel Yang. Il se trouvait dans un état bien pire, son âme originelle étant gravement endommagée. Dès son retour, il s'était enfermé en cultivation isolée, déclarant également qu'il ne s'impliquerait pas dans cette affaire !
 
 Cette série de nouvelles réveilla brutalement le souvenir de Xu Mu dans l'esprit des cultivateurs du Système Stellaire d'Allheaven !
 
@@ -76,7 +76,7 @@ Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût p
 
 Yao Bingyun gardait un visage impassible. Sa main effleura une sacoche d'où surgit immédiatement un petit miroir. Sa main gauche traça un sceau, comme si elle pressentait quelque chose. Un court instant plus tard, elle se fusionna à son tour avec le monde.
 
-La silhouette de Wang Lin apparut près d'une planète de culture abandonnée, à la frontière des Domaines Occidental et Nordique. Lorsqu'il émergea, son visage était livide. Après tout, il avait été gravement blessé et contraint à une fuite effrénée. De plus, la fusion prolongée avec le monde avait aggravé ses blessures. À cet instant, ses yeux s'illuminèrent ; après avoir constaté que sa poursuivante avait été totalement distancée, il poussa un soupir de soulagement.
+La silhouette de Wang Lin apparut près d'une planète de cultivation abandonnée, à la frontière des Domaines Occidental et Nordique. Lorsqu'il émergea, son visage était livide. Après tout, il avait été gravement blessé et contraint à une fuite effrénée. De plus, la fusion prolongée avec le monde avait aggravé ses blessures. À cet instant, ses yeux s'illuminèrent ; après avoir constaté que sa poursuivante avait été totalement distancée, il poussa un soupir de soulagement.
 
 « La famille Yao a sans doute déjà lancé son plan. Désormais, chaque pas sera un combat ! » Le corps de Wang Lin vacilla alors qu'il se précipitait vers la planète déserte.
 

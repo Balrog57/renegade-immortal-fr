@@ -22,7 +22,7 @@ Ne pas changer tout en étant dans une forme de changement : tel était le plan 
 
 Le temps recommença à passer, imperceptiblement. Trois mois, trois mois, trois mois... Bientôt, après le départ du vieil homme, Wang Lin passa une année entière dans cet espace vert.
 
-Grâce à son niveau de culture actuel, son corps ne se décomposera pas avant des dizaines de milliers d'années. Son enveloppe charnelle n'avait pas changé durant cette année, mais les scorpions verts, eux, recouvraient désormais davantage sa peau.
+Grâce à son niveau de cultivation actuel, son corps ne se décomposera pas avant des dizaines de milliers d'années. Son enveloppe charnelle n'avait pas changé durant cette année, mais les scorpions verts, eux, recouvraient désormais davantage sa peau.
 
 Dans cet espace émeraude, les scorpions considéraient déjà Wang Lin comme l'un des leurs. Ce lieu ressemblait à un cachot et dégageait une aura lugubre.
 

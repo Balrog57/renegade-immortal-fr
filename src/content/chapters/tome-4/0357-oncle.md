@@ -62,7 +62,7 @@ Il posa Zhou Ru et murmura doucement : « Nous sommes arrivés à la maison. »
 
 Zhou Ru hocha silencieusement la tête. Ses grands yeux scrutaient les environs, mais elle ne touchait à rien ; elle préféra rester blottie contre Wang Lin.
 
-Partout où Wang Lin allait, elle le suivait de près. Même lorsque celui-ci pratiquait sa culture, elle s'asseyait à ses côtés, le regard empreint d'une pointe d'incompréhension.
+Partout où Wang Lin allait, elle le suivait de près. Même lorsque celui-ci pratiquait sa cultivation, elle s'asseyait à ses côtés, le regard empreint d'une pointe d'incompréhension.
 
 La nuit, une fois Zhou Ru endormie, Wang Lin se tint au chevet du lit. En contemplant le petit visage de l'enfant, il murmura : « Wan Er, pour l'instant ton Âme Naissante est instable, c'est pourquoi tes souvenirs ne sont pas revenus. Dès que tu auras dix-neuf ans, ils reviendront naturellement. »
 
@@ -70,7 +70,7 @@ En fixant Zhou Ru, les souvenirs de Li Muwan traversèrent son esprit.
 
 Après un soupir, Wang Lin la borda et quitta la pièce.
 
-Zhou Ru n'était pas comme lui ; il n'avait besoin que de la culture pour se nourrir. Pour une enfant de trois ans, la nourriture était essentielle à sa croissance.
+Zhou Ru n'était pas comme lui ; il n'avait besoin que de la cultivation pour se nourrir. Pour une enfant de trois ans, la nourriture était essentielle à sa croissance.
 
 Wang Lin aménagea une cuisine et sortit acheter de quoi faire provision. Lui qui n'avait pas cuisiné depuis cinq cents ans se retrouvait désormais à préparer les repas de Zhou Ru.
 
@@ -82,13 +82,13 @@ Zhou Ru hocha la tête.
 
 D'un geste de la main droite, Wang Lin fit apparaître un bol de bouillie. Une fois qu'elle eut fini de manger, elle lui demanda : « Oncle, pourquoi ce bol peut-il voler ? »
 
-Wang Lin esquissa un léger sourire. Sans répondre, il ferma les yeux pour poursuivre sa culture.
+Wang Lin esquissa un léger sourire. Sans répondre, il ferma les yeux pour poursuivre sa cultivation.
 
 Le temps s'écoula lentement tandis que Wang Lin s'imprégnait de cette vie nouvelle, regardant Zhou Ru grandir. Le sentiment qu'il avait éprouvé lorsqu'il était redevenu mortel revint habiter son cœur.
 
 C'était une sensation d'une sérénité et d'une paix infinies.
 
-Une nuit, alors que Wang Lin était en pleine culture, un cri déchira soudain le silence de la maison de pierre. Les yeux de Wang Lin s'illuminèrent et il se précipita dans la chambre. Il vit la petite Ru Er avoir rejeté ses couvertures, les mains crispées, le visage marqué par une lutte intérieure.
+Une nuit, alors que Wang Lin était en pleine cultivation, un cri déchira soudain le silence de la maison de pierre. Les yeux de Wang Lin s'illuminèrent et il se précipita dans la chambre. Il vit la petite Ru Er avoir rejeté ses couvertures, les mains crispées, le visage marqué par une lutte intérieure.
 
 « Oncle... sauve-moi... oncle... papa... maman... »
 
@@ -118,7 +118,7 @@ Impuissant, il ne lui en interdit pas l'usage. Cependant, la petite était très
 
 Au cours de ces deux années, il l'avait emmenée une fois voir ses parents, mais seulement après qu'ils furent tombés dans un sommeil profond.
 
-Un jour, alors que Wang Lin était en pleine culture, il ouvrit les yeux et vit Zhou Ru sortir discrètement de la pagode, un bol de bouillie à la main. Elle lui tira la langue avant de courir vers lui : « Oncle, oncle, j'ai encore vu la grande sœur fée, mais elle ne veut toujours pas manger ! »
+Un jour, alors que Wang Lin était en pleine cultivation, il ouvrit les yeux et vit Zhou Ru sortir discrètement de la pagode, un bol de bouillie à la main. Elle lui tira la langue avant de courir vers lui : « Oncle, oncle, j'ai encore vu la grande sœur fée, mais elle ne veut toujours pas manger ! »
 
 Lorsque Zhou Ru avait eu quatre ans, elle était montée en secret dans la pagode et avait découvert le cadavre féminin. Depuis lors, l'enfant ne cessait d'y penser et s'y rendait occasionnellement pour lui rendre visite.
 

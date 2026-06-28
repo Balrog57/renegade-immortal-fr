@@ -30,7 +30,7 @@ Ses yeux s'illuminèrent alors qu'il pressait la branche contre le cou du géant
 
 « Une monture ? » Wang Lin tressaillit et la branche dans sa main marqua un temps d'arrêt.
 
-« C'est exact, je suis prêt à devenir votre monture. Les puissants cultivateurs de l'Alliance de Culture aiment utiliser les membres du Clan des Démons Géants comme montures. Si vous me sauvez, j'accepterai ce sort. » La voix était empreinte d'ardeur.
+« C'est exact, je suis prêt à devenir votre monture. Les puissants cultivateurs de l'Alliance de Cultivation aiment utiliser les membres du Clan des Démons Géants comme montures. Si vous me sauvez, j'accepterai ce sort. » La voix était empreinte d'ardeur.
 
 Après avoir réfléchi un instant, le regard de Wang Lin s'illumina et il enfonça la branche dans le cou du géant. Un cercle noir apparut sur la peau du colosse alors que la branche s'enfonçait dans le vaisseau sanguin avant de disparaître.
 
@@ -56,7 +56,7 @@ Wang Lin demanda : « Une monture ? Quel est l'intérêt d'avoir un membre du Cl
 
 À cet instant, le flux sanguin s'amenuisait et la plaie semblait se refermer. Wang Lin désigna le cou du géant, puis la bouteille de jade s'envola pour qu'il la rattrape. Simultanément, sa main droite, chargée d'énergie spirituelle céleste, descendit pour frapper le cou du colosse. Une nouvelle quantité massive de sang jaillit et fut capturée par la fiole.
 
-« Connaissez-vous la boussole stellaire ? Le corps d'un membre du Clan des Démons Géants est similaire à une boussole stellaire, mais bien plus puissant. Nos corps sont les meilleurs outils pour voyager parmi les étoiles. De plus, nous ne sommes pas affectés par certains lieux où même les cultivateurs ne peuvent s'aventurer. C'est pourquoi ces puissants experts de l'Alliance de Culture paient des prix exorbitants pour qu'un membre de mon clan devienne leur monture. »
+« Connaissez-vous la boussole stellaire ? Le corps d'un membre du Clan des Démons Géants est similaire à une boussole stellaire, mais bien plus puissant. Nos corps sont les meilleurs outils pour voyager parmi les étoiles. De plus, nous ne sommes pas affectés par certains lieux où même les cultivateurs ne peuvent s'aventurer. C'est pourquoi ces puissants experts de l'Alliance de Cultivation paient des prix exorbitants pour qu'un membre de mon clan devienne leur monture. »
 
 « Étrange ! » Wang Lin fronça les sourcils. Bien que la voix de cet ancêtre semblât très anxieuse, ses réponses étaient d'une précision suspecte.
 

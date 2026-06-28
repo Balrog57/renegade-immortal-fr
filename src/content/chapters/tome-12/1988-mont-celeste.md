@@ -44,7 +44,7 @@ L'expression du jeune homme était calme alors qu'il reculait, fixant la montagn
 
 « Ce sont les neuf montagnes célestes qui constituent le fondement du clan céleste. Elles protègent le clan et suppriment les 72 âmes scellées. C'est aussi ce qui permet à chaque génération d'Empereur Céleste d'hériter du titre de Huit Extrêmes ! »
 
-« Cet endroit est le palais interdit situé sous la demeure impériale, le véritable lieu de culture en porte close de l'Ancêtre Céleste ! » répondit l'Enseignant Impérial sans hésiter.
+« Cet endroit est le palais interdit situé sous la demeure impériale, le véritable lieu de cultivation en porte close de l'Ancêtre Céleste ! » répondit l'Enseignant Impérial sans hésiter.
 
 « Wang Lin, attaque ! » Les yeux de l'Enseignant Impérial s'illuminèrent et il fonça vers Ming Dao. Sa main droite s'étira, faisant apparaître une petite silhouette de lumière blanche qui prit immédiatement la taille d'un homme pour charger à ses côtés.
 
@@ -84,7 +84,7 @@ Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commen�
 
 Le corps de l'Enseignant Impérial tremblait et sa respiration devint rauque. Son visage était extrêmement pâle, enveloppé par l'ombre de la mort.
 
-Voyant l'état de son mentor, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Taureau Céleste à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient ; il lança alors un coup de poing vers Ming Dao !
+Voyant l'état de son mentor, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Taureau Céleste à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa cultivation céleste fusionnaient ; il lança alors un coup de poing vers Ming Dao !
 
 Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent avec son corps original pour s'abattre sur Ming Dao.
 

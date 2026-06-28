@@ -16,7 +16,7 @@ Alors que l'homme d'âge moyen reculait, son visage était empreint d'une peur m
 
 Cependant, dès que ces sorts et trésors touchèrent la foudre rouge, ils se désintégrèrent tous ; ils ne purent l'arrêter un seul instant !
 
-« Quel genre de tonnerre est-ce là ?! » L'homme d'âge moyen n'hésita pas à saisir la femme qui l'appelait « parrain », mais qui était en réalité l'une de ses partenaires de culture duale. Avant même qu'elle ne puisse réagir, il s'en servit comme bouclier contre la foudre rouge !
+« Quel genre de tonnerre est-ce là ?! » L'homme d'âge moyen n'hésita pas à saisir la femme qui l'appelait « parrain », mais qui était en réalité l'une de ses partenaires de cultivation duale. Avant même qu'elle ne puisse réagir, il s'en servit comme bouclier contre la foudre rouge !
 
 Les yeux de la femme se remplirent d'incrédulité alors que son corps s'effondrait !
 
@@ -78,7 +78,7 @@ Ils se regroupèrent rapidement autour de lui, formant une sphère de tonnerre d
 
 Des grondements tonitruants retentirent comme des coups de foudre et la barrière trembla violemment !
 
-« Quelle arrogance ! Le tonnerre du monde devrait-il obéir à tes ordres ? Quand mon Clan du Tonnerre Éparpillé a-t-il produit un enfant aussi ingrat ? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur de Nirvana ; il était un puissant cultivateur au premier niveau de Fléau Céleste !
+« Quelle arrogance ! Le tonnerre du monde devrait-il obéir à tes ordres ? Quand mon Clan du Tonnerre Éparpillé a-t-il produit un enfant aussi ingrat ? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa cultivation dépassait le stade Briseur de Nirvana ; il était un puissant cultivateur au premier niveau de Fléau Céleste !
 
 Dès que le vieil homme parla, des dizaines de milliers de cultivateurs s'élancèrent depuis les seize planètes environnantes.
 

@@ -104,25 +104,25 @@ Tous les cultivateurs au stade de la Formation de l'Âme avaient suivi le combat
 
 Alors qu'il flottait dans les cieux, le Sens Divin de Wang Lin balaya Xue Yue pour diffuser un message impérieux :
 
-« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yue, et aucune secte de culture ne pourra y subsister, sous peine de voir mon retour ! »
+« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yue, et aucune secte de cultivation ne pourra y subsister, sous peine de voir mon retour ! »
 
 Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation du Cycle de la Vie et de la Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yue.
 
 « Scelle ! »
 
-D'un seul mot, la culture de tous les experts de la Formation de l'Âme fut verrouillée, tout comme Li Yuanfeng avait scellé celle de Wang Lin.
+D'un seul mot, la cultivation de tous les experts de la Formation de l'Âme fut verrouillée, tout comme Li Yuanfeng avait scellé celle de Wang Lin.
 
-Deux marques furent imprimées sur le front des cultivateurs : l'une claire et l'autre sombre, représentant la vie et la mort. Leur niveau de culture s'effondra brutalement.
+Deux marques furent imprimées sur le front des cultivateurs : l'une claire et l'autre sombre, représentant la vie et la mort. Leur niveau de cultivation s'effondra brutalement.
 
 Une fois sa tâche accomplie, Wang Lin frappa son sac de rangement et la bête moustique apparut pour l'emporter au loin.
 
 À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa position de plus puissant être sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre ; certains allaient même jusqu'à prétendre qu'il avait déjà atteint ce niveau.
 
-Nul ne doutait de sa puissance : il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yue et contraint un pays de culture de rang 5 à rétrograder au rang 3.
+Nul ne doutait de sa puissance : il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yue et contraint un pays de cultivation de rang 5 à rétrograder au rang 3.
 
 Ces événements laissèrent tous ceux qui en entendirent parler dans un état de choc et de stupeur.
 
-À cet instant, dans une ruelle d'un petit village d'un pays de culture de rang 3, un vieil homme était assis. Devant lui reposait une petite bassine où quelques pièces de bronze étaient éparpillées. Ce vieillard était très sale, débraillé, et ses cheveux lui dissimulaient le visage.
+À cet instant, dans une ruelle d'un petit village d'un pays de cultivation de rang 3, un vieil homme était assis. Devant lui reposait une petite bassine où quelques pièces de bronze étaient éparpillées. Ce vieillard était très sale, débraillé, et ses cheveux lui dissimulaient le visage.
 
 À ses côtés, un homme se tenait respectueusement. Ce dernier avait le visage large et de grandes oreilles ; si Wang Lin avait été présent, il l'aurait immédiatement reconnu.
 

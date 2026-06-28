@@ -26,7 +26,7 @@ Les yeux de Wang Lin devinrent de plus en plus brillants en se remémorant la si
 
 « Se pourrait-il que le corps de Situ ait été capturé et raffiné par quelqu'un, créant ainsi un fragment d'âme ? » Wang Lin osa cette hypothèse audacieuse dans son cœur, sans pouvoir la confirmer. Après une longue réflexion, il poussa un soupir et eut un sourire amer : « Senior Situ, si ce bras est vraiment le vôtre, alors je crois réellement ce que vous avez dit auparavant : que vous étiez le plus grand expert de Suzaku. »
 
-Wang Lin secoua la tête. En fin de compte, il n'était toujours pas certain des affirmations de Situ Nan. Cette incertitude ne faisait que croître au fil de sa culture. Après tout, l'homme numéro un de Suzaku était celui qui portait le titre même de Suzaku.
+Wang Lin secoua la tête. En fin de compte, il n'était toujours pas certain des affirmations de Situ Nan. Cette incertitude ne faisait que croître au fil de sa cultivation. Après tout, l'homme numéro un de Suzaku était celui qui portait le titre même de Suzaku.
 
 À moins que Situ Nan n'ait été le Suzaku de l'époque, il ne pouvait prétendre être le plus grand expert.
 
@@ -64,7 +64,7 @@ Le regard de l'homme d'âge moyen devint glacial et il dit lentement à la vieil
 
 La vieille femme réfléchit longuement avant de dire : « Je vais tout de même demander au Maître de secte d'agir. »
 
-L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit : « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions et, en plus de tout cela, Liao Fan a pu confirmer qu'il connaît la méthode de culture de l'Ascension des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
+L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit : « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions et, en plus de tout cela, Liao Fan a pu confirmer qu'il connaît la méthode de cultivation de l'Ascension des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
 
 La vieille femme fut stupéfaite : « Il semble que le Maître de secte ait enquêté sur cet homme. »
 
@@ -104,7 +104,7 @@ Grâce à sa présence, la petite Zhou Ru était devenue très arrogante et pass
 
 Wang Lin avait passé ces cinq dernières années à consolider ses fondations et à tenter de progresser vers le stade intermédiaire de la Formation de l'Âme. Pourtant, malgré tous ses efforts, il ne parvenait pas à avancer.
 
-Wang Lin savait qu'il avait atteint un goulot d'étranglement. S'il ne réussissait pas à le briser, sa culture resterait éternellement bloquée ici.
+Wang Lin savait qu'il avait atteint un goulot d'étranglement. S'il ne réussissait pas à le briser, sa cultivation resterait éternellement bloquée ici.
 
 Le nombre de challengers avait considérablement diminué au cours de ces cinq ans, mais la renommée de Ceng Niu n'avait fait que croître. Il était devenu un sujet de conversation récurrent parmi les nombreux cultivateurs.
 

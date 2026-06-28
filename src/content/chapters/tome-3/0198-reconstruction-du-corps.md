@@ -164,11 +164,11 @@ Même s'il en savait peu sur cette étoile, après avoir absorbé plus de 50 cri
 
 Les Anciens Dieux se consacraient à la perfection de leur enveloppe charnelle. Chaque Ancien Dieu utilisait toute l'énergie spirituelle absorbée pour affiner son corps. En conséquence, même pour eux, le corps finissait par atteindre une limite de croissance.
 
-À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la culture s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de culture supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui équivalait à atteindre un nouveau stade de culture.
+À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la cultivation s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de cultivation supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui équivalait à atteindre un nouveau stade de cultivation.
 
 Chaque Ancien Dieu traversait d'innombrables expansions et reconstructions corporelles. Plus ils en subissaient, plus ils devenaient puissants.
 
-Et après chaque reconstruction, la taille de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de culture distincts ; seule comptait la force de l'âme et celle du corps.
+Et après chaque reconstruction, la taille de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de cultivation distincts ; seule comptait la force de l'âme et celle du corps.
 
 L'héritage de connaissances que Wang Lin avait absorbé contenait les souvenirs d'une vie entière de Tu Si. Bien que ce dernier soit mort à l'âge adulte en pratiquant la Technique Divine de Transformation de l'Encre Fluide, il avait vécu huit reconstructions corporelles.
 

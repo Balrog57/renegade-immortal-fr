@@ -22,17 +22,17 @@ Bien qu'il ne puisse pas les toucher, il pouvait aisément les contrôler par la
 
 Wang Lin avait interrogé Situ Nan à propos de ces lumières, mais même lui n'était pas certain de ce qui s'y passait. Selon Situ Nan, cette perle défiant le ciel était extrêmement étrange. Cet espace n'en était qu'une des fonctions. Hormis la manipulation du temps, Situ Nan n'avait rien d'autre découvert sur l'objet.
 
-Situ Nan savait seulement qu'avec son statut de cultivateur le plus puissant d'un pays de rang 6, personne sur sa planète de culture n'osait l'affronter avant qu'il ne possède la perle.
+Situ Nan savait seulement qu'avec son statut de cultivateur le plus puissant d'un pays de rang 6, personne sur sa planète de cultivation n'osait l'affronter avant qu'il ne possède la perle.
 
 Cependant, une fois la perle en sa possession, des cultivateurs d'une puissance phénoménale étaient apparus pour tenter de le tuer. Ils l'avaient contraint à abandonner son corps et à se réfugier dans la perle défiant le ciel, ne lui permettant de survivre que de justesse.
 
-Situ Nan avait confié à Wang Lin que, d'après ses analyses, ceux qui le traquaient n'étaient certainement pas originaires de sa planète. Situ Nan en était persuadé car, ayant atteint son niveau actuel, il connaissait tous les experts du monde ; et pour celui qui était considéré comme le numéro un de sa planète, son niveau de culture était extrêmement élevé.
+Situ Nan avait confié à Wang Lin que, d'après ses analyses, ceux qui le traquaient n'étaient certainement pas originaires de sa planète. Situ Nan en était persuadé car, ayant atteint son niveau actuel, il connaissait tous les experts du monde ; et pour celui qui était considéré comme le numéro un de sa planète, son niveau de cultivation était extrêmement élevé.
 
-La plupart des assaillants possédaient un niveau de culture similaire au sien, et il était certain qu'une seule de ces personnes l'avait surpassé. Si ce n'était pas pour l'intervention de cet individu, Situ Nan n'aurait pas eu à abandonner son corps. Il faut dire que Situ Nan avait de nombreux alliés ; s'il n'y avait eu que des gens de même niveau que lui, il n'aurait pas eu à renoncer à son enveloppe charnelle, car sa position de premier cultivateur de la planète lui offrait l'avantage du terrain.
+La plupart des assaillants possédaient un niveau de cultivation similaire au sien, et il était certain qu'une seule de ces personnes l'avait surpassé. Si ce n'était pas pour l'intervention de cet individu, Situ Nan n'aurait pas eu à abandonner son corps. Il faut dire que Situ Nan avait de nombreux alliés ; s'il n'y avait eu que des gens de même niveau que lui, il n'aurait pas eu à renoncer à son enveloppe charnelle, car sa position de premier cultivateur de la planète lui offrait l'avantage du terrain.
 
-Mais lorsque cette personne était intervenue, Situ Nan avait compris qu'il serait inutile de solliciter de l'aide. Ses alliés mourraient un à un, car il savait que le niveau de culture de cet adversaire n'avait rien à voir avec le sien.
+Mais lorsque cette personne était intervenue, Situ Nan avait compris qu'il serait inutile de solliciter de l'aide. Ses alliés mourraient un à un, car il savait que le niveau de cultivation de cet adversaire n'avait rien à voir avec le sien.
 
-Le cœur de Situ Nan avait trouvé sa réponse : cet individu devait provenir d'un pays de culture de rang 7.
+Le cœur de Situ Nan avait trouvé sa réponse : cet individu devait provenir d'un pays de cultivation de rang 7.
 
 En songeant à cette conclusion, la perle défiant le ciel lui parut encore plus mystérieuse. Un objet pour lequel même un pays de rang 7 se disputerait devait être un trésor d'une valeur inestimable.
 
@@ -40,17 +40,17 @@ Situ Nan avait partagé tout cela avec Wang Lin et l'avait averti maintes fois d
 
 Situ Nan avait calculé que si cet individu provenait réellement d'un pays de rang 7, il lui serait facile pour eux d'envoyer un ordre de recherche dans un pays de rang 6. Ils devaient donc agir avec la plus grande discrétion.
 
-Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la perle défiant le ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Pour les cultivateurs, le niveau de culture est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
+Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la perle défiant le ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Pour les cultivateurs, le niveau de cultivation est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
 
-À cela s'ajoutait le sentiment de supériorité que l'on ressent une fois au sommet. Il faut admettre que dans le monde de la culture, la progression est primordiale. Que sont les mortels et les cultivateurs de Condensation de Qi pour un cultivateur de l'Établissement des Fondations ? Bien qu'il soit brutal de dire qu'ils ne sont pas au même niveau que des chiens ou des porcs, c'est ainsi que fonctionne la réalité de la culture.
+À cela s'ajoutait le sentiment de supériorité que l'on ressent une fois au sommet. Il faut admettre que dans le monde de la cultivation, la progression est primordiale. Que sont les mortels et les cultivateurs de Condensation de Qi pour un cultivateur de l'Établissement des Fondations ? Bien qu'il soit brutal de dire qu'ils ne sont pas au même niveau que des chiens ou des porcs, c'est ainsi que fonctionne la réalité de la cultivation.
 
 De même, aux yeux des cultivateurs de l'Âme Naissante, ceux de la Formation du Noyau et de l'Établissement des Fondations sont perçus comme les mortels et les cultivateurs de Condensation de Qi. Et si quelqu'un atteint le stade de la Transformation de l'Âme, alors tous ceux qui sont au stade de la Séparation de l'Esprit ou en dessous sont des êtres qu'il peut massacrer à sa guise.
 
-Le regard de Wang Lin devint déterminé. Il avait déjà goûté à la cruauté du monde de la culture. Ce monde était bien plus impitoyable que le monde mortel, et il devait s'endurcir pour survivre.
+Le regard de Wang Lin devint déterminé. Il avait déjà goûté à la cruauté du monde de la cultivation. Ce monde était bien plus impitoyable que le monde mortel, et il devait s'endurcir pour survivre.
 
 Il devait devenir si puissant que chacun le craindrait. Ce n'est qu'à ce prix qu'il ne serait plus victime des autres.
 
-« Si mon niveau de culture était celui de la Séparation de l'Esprit ou de la Transformation de l'Âme, sans parler de Teng Li, même si je massacrais toute la famille Teng, Teng Huayuan n'oserait pas dire un mot et n'oserait même pas aller chercher mes parents. Le pouvoir... tout repose sur le pouvoir. Ce n'est qu'en devenant un puissant cultivateur que l'on peut décider de la vie ou de la mort d'autrui. » Le cœur de Wang Lin se serra de douleur tandis que son regard se glaçait.
+« Si mon niveau de cultivation était celui de la Séparation de l'Esprit ou de la Transformation de l'Âme, sans parler de Teng Li, même si je massacrais toute la famille Teng, Teng Huayuan n'oserait pas dire un mot et n'oserait même pas aller chercher mes parents. Le pouvoir... tout repose sur le pouvoir. Ce n'est qu'en devenant un puissant cultivateur que l'on peut décider de la vie ou de la mort d'autrui. » Le cœur de Wang Lin se serra de douleur tandis que son regard se glaçait.
 
 Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans l'espace du rêve. Peu après, ses mains formèrent un sceau. Il tendit ensuite la main droite pour saisir le vide. Tous les corps de lumière convergèrent pour former une porte.
 

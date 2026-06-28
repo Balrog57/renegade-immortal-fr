@@ -14,7 +14,7 @@ Ce n'était là que le premier tour, et la situation était déjà ainsi. Une am
 
 Sun Dazhu prit une grande inspiration. « Bordel ! Un disciple est encore plus puissant que moi. Comment le Sect Xuan Dao fait-il pour recruter de tels génies ? Pourquoi n'ai-je pas cette chance ? »
 
-Wang Lin lança un regard profond à Liu Feng. Il avait clairement compris ce qui s'était produit. Bien qu'il ait pu déceler la culture de Liu Feng lors de l'utilisation de l'écran d'eau, Wang Lin en était tout de même impressionné par la technique.
+Wang Lin lança un regard profond à Liu Feng. Il avait clairement compris ce qui s'était produit. Bien qu'il ait pu déceler la cultivation de Liu Feng lors de l'utilisation de l'écran d'eau, Wang Lin en était tout de même impressionné par la technique.
 
 L'Ancien Ouyang du Sect Xuan Dao sourit et déclara d'une voix forte : « Ami Huang Long, pour ce second tour, c'est à votre tour d'envoyer un disciple en premier. »
 

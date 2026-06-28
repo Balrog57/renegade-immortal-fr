@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 34 - Training
 slug: entrainement
 ---
-Grâce aux chants atteignant la neuvième couche, Wang Lin pouvait poursuivre sa culture. Il reprit son mode de vie reclus, tandis qu'une tension pesante planait sur la Secte Heng Yue.
+Grâce aux chants atteignant la neuvième couche, Wang Lin pouvait poursuivre sa cultivation. Il reprit son mode de vie reclus, tandis qu'une tension pesante planait sur la Secte Heng Yue.
 
 Tous les disciples de la secte interne se préparaient pour la compétition. S'ils parvenaient à atteindre le sommet, des trésors magiques, des pilules, des talismans, des pierres spirituelles et bien d'autres récompenses leur seraient octroyés.
 
@@ -16,15 +16,15 @@ Quant à la compétition des nouveaux venus, puisqu'il n'y avait qu'une poignée
 
 En ce qui concernait les disciples honoraires, ils se montraient encore plus hostiles les uns envers les autres. La compétition pour devenir disciple interne représentait une chance unique de changer de destin ; chacun s'y préparait donc en secret.
 
-Cette atmosphère tendue n'avait aucun rapport avec Wang Lin. En plus de sa culture, il pratiquait également la technique d'attraction. La veille de la fin du mois, il quitta la maison des tâches pour se rendre directement à la cour principale.
+Cette atmosphère tendue n'avait aucun rapport avec Wang Lin. En plus de sa cultivation, il pratiquait également la technique d'attraction. La veille de la fin du mois, il quitta la maison des tâches pour se rendre directement à la cour principale.
 
-Il activa la technique permettant de dissimuler son niveau de culture. L'énergie spirituelle dans son corps se transforma rapidement pour simuler le niveau de la première couche de Condensation de Qi. Il avait trouvé les gens de la maison des tâches trop agaçants, car ils l'empêchaient de cultiver sereinement ; il cherchait donc un prétexte pour s'isoler dans un endroit calme.
+Il activa la technique permettant de dissimuler son niveau de cultivation. L'énergie spirituelle dans son corps se transforma rapidement pour simuler le niveau de la première couche de Condensation de Qi. Il avait trouvé les gens de la maison des tâches trop agaçants, car ils l'empêchaient de cultiver sereinement ; il cherchait donc un prétexte pour s'isoler dans un endroit calme.
 
 Arrivé à la cour principale, il entra et, peu après, se posta devant le jardin d'herbes de Sun Dazhu pour dire respectueusement : « Le disciple Wang Lin demande à rencontrer son maître. »
 
 « Pourquoi es-tu ici ? » La porte du jardin ne s'ouvrit pas. Il semblait que Sun Dazhu n'aimait véritablement pas ce disciple.
 
-L'expression de Wang Lin resta impassible. Il déclara avec respect : « La culture de ce disciple est trop faible, et je crains de ne pas pouvoir gagner lors de la compétition et de faire perdre la face à mon maître ; je souhaiterais donc m'abstenir de participer. »
+L'expression de Wang Lin resta impassible. Il déclara avec respect : « La cultivation de ce disciple est trop faible, et je crains de ne pas pouvoir gagner lors de la compétition et de faire perdre la face à mon maître ; je souhaiterais donc m'abstenir de participer. »
 
 Sun Dazhu ricana : « Hmm, il semble que tu sois encore un peu conscient de tes limites, petit morveux. Regarde le disciple de l'Ancien Xu, Wang Zhuo. Si jeune, et pourtant déjà au sommet de la première couche, capable d'atteindre la deuxième à tout moment. Même si tu participais, cela serait inutile ; les autres pourraient te tuer d'un simple doigt. J'ai même entendu dire que vous étiez de la même famille. Comment peut-il y avoir une telle différence ? »
 

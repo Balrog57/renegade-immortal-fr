@@ -98,7 +98,7 @@ Il vit également ce qui se passerait des dizaines de milliers d'années plus ta
 
 « Si je dois mourir, alors que je meure ! »
 
-Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi reformer ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta culture réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
+Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi reformer ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta cultivation réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
 
 L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo" ! »
 
@@ -114,7 +114,7 @@ Ce raffinage aurait sans doute échoué, car Maître Simo possédait encore de n
 
 Maître Simo resta suspendu dans les airs, songeur. D'un mouvement de la main droite, il fit disparaître la femme dans sa manche.
 
-Grâce à son niveau de culture, il comprit vaguement ce qui venait de se passer. Il regarda Wang Lin avec un regard d'une extrême complexité.
+Grâce à son niveau de cultivation, il comprit vaguement ce qui venait de se passer. Il regarda Wang Lin avec un regard d'une extrême complexité.
 
 « Dites-moi... Ces paroles qu'elle a pronquées... venaient-elles de votre sort ou... ? »
 

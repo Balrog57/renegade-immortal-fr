@@ -12,7 +12,7 @@ Ce jour-là, tous les jeunes ayant échoué au test furent renvoyés au pied de 
 
 Le jeune homme joignit les mains et dit : « Frère Wang Zhuo, félicitations pour être devenu le disciple de l'Oncle-Maître. Un avenir radieux s'ouvre devant toi. »
 
-Le visage de Wang Zhuo affichait une expression d'arrogance. Il déclara avec fierté : « C'est tout naturel. Maître a dit qu'une fois que j'aurai réglé les affaires mondaines de la maison, il m'enseignera les techniques de culture à mon retour. »
+Le visage de Wang Zhuo affichait une expression d'arrogance. Il déclara avec fierté : « C'est tout naturel. Maître a dit qu'une fois que j'aurai réglé les affaires mondaines de la maison, il m'enseignera les techniques de cultivation à mon retour. »
 
 Wang Hao leva la tête et ajouta sur le côté : « J'ai toujours méprisé ton arrogance. Et alors si tu as un maître ? Moi, je serai capable d'apprendre à fabriquer des pilules immortelles. »
 
@@ -72,7 +72,7 @@ Le visage du père de Wang Hao affichait également une expression anxieuse tand
 
 Le père de Wang Hao fut extatique. Il saisit sa coupe et la vida d'un trait. Wang Zhuo afficha un air de dégoût. Il lança avec mépris : « Troisième Oncle, tu as engendré un fils remarquable. Il a fait honte à la famille Wang. Devant tout le monde, il n'a su que flatter l'immortel et, ce n'est qu'en lui offrant des pots-de-vin qu'il a pu devenir son assistant. »
 
-Wang Hao haussa les sourcils et répondit : « Je suis heureux, et alors ? À l'avenir, nous verrons qui possède les techniques de culture les plus puissantes, et nous verrons alors qui a fait honte à la famille. »
+Wang Hao haussa les sourcils et répondit : « Je suis heureux, et alors ? À l'avenir, nous verrons qui possède les techniques de cultivation les plus puissantes, et nous verrons alors qui a fait honte à la famille. »
 
 Le père de Tie Zhu vit l'expression abattue sur le visage de son fils, ce qui fit trembler tout son corps. Il eut un pressentiment funeste.
 

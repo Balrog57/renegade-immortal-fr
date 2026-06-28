@@ -22,7 +22,7 @@ Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une ve
 
 Avant son départ, Feng Luan ordonna à quelqu'un d'appeler Wang Lin.
 
-Feng Luan se tenait à la fenêtre d'une magnifique demeure surplombant Hou Fen. Après un long moment, elle lança un morceau de jade et dit : « Hong Er a dit que tu étais extrêmement puissant sur le champ de bataille étranger ; alors pourquoi ton niveau de culture n'est-il qu'au milieu du stade de l'Établissement des Fondations ? »
+Feng Luan se tenait à la fenêtre d'une magnifique demeure surplombant Hou Fen. Après un long moment, elle lança un morceau de jade et dit : « Hong Er a dit que tu étais extrêmement puissant sur le champ de bataille étranger ; alors pourquoi ton niveau de cultivation n'est-il qu'au milieu du stade de l'Établissement des Fondations ? »
 
 Wang Lin attrapa le jade. Après l'avoir parcouru de son Sens Divin, son expression devint étrange. Ce jade contenait une partie d'une carte. Elle représentait environ sept ou huit pays au nord de Hou Fen, indiquant même le rang de chaque nation et les ressources dont elles étaient célèbres.
 
@@ -48,7 +48,7 @@ Une escouade de trente cultivateurs vola vers le nord sur leurs épées volantes
 
 Sur ce, le vieil homme s'assit au sol et ferma les yeux. Cet homme, Zhang Zili, était le capitaine de la 8e escouade, un cultivateur au début du stade de la Formation du Noyau de la Secte du Démon Maléfique. Il ne se souciait que des cinq cultivateurs de l'Établissement des Fondations ; les autres n'étaient pas dignes de son attention.
 
-Wang Lin fit un pas et s'envola au loin. Il atterrit sur une canopée et commença à cultiver. Quant au reste de l'équipe, tous se dispersèrent pour trouver un lieu propice à la culture. Bientôt, un silence absolu régna dans la zone, interrompu seulement par le bruit des respirations.
+Wang Lin fit un pas et s'envola au loin. Il atterrit sur une canopée et commença à cultiver. Quant au reste de l'équipe, tous se dispersèrent pour trouver un lieu propice à la cultivation. Bientôt, un silence absolu régna dans la zone, interrompu seulement par le bruit des respirations.
 
 Zhang Zili ouvrit les yeux et scruta les environs avec mépris. Il était très insatisfait d'avoir été affecté à ce poste. Dans son esprit, il aurait dû faire partie de l'armée principale pour attaquer les sectes ennemies. Dans ce cas, les cibles ne manqueraient pas, mais ici, il n'y avait même aucune garantie que des renforts tenteraient de passer.
 
@@ -74,7 +74,7 @@ Cette épée volante meurtrière flottait désormais autour de Wang Lin, dégage
 
 Les visages des huit personnes entourant Zhou Zili pâlirent instantanément. L'un d'eux cria précipitamment : « Retraite ! » Presque aussitôt, les huit s'enfuirent en tentant désespérément de s'échapper.
 
-Zhou Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il était convaincu que Wang Lin cachait son véritable niveau de culture pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente : une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
+Zhou Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il était convaincu que Wang Lin cachait son véritable niveau de cultivation pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente : une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
 
 Mais rien de tout cela n'importait pour le moment. Ces huit cultivateurs de l'Établissement des Fondations avaient réussi à utiliser une sorte de formation pour le piéger, ce qui était très embarrassant, surtout devant son propre groupe.
 

@@ -22,9 +22,9 @@ Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays des
 
 Quiconque nourrirait une intention meurtrière serait tué par Wang Lin sans la moindre hésitation !
 
-Il existait une planète privée, loin de la planète Tian Yun, nommée planète Mo. Cette planète appartenait à un être appelé l'Ancêtre Mo. Sa culture avait atteint le stade de l'Yin Illusoire de la phase Yin et Yang.
+Il existait une planète privée, loin de la planète Tian Yun, nommée planète Mo. Cette planète appartenait à un être appelé l'Ancêtre Mo. Sa cultivation avait atteint le stade de l'Yin Illusoire de la phase Yin et Yang.
 
-Cette fois-ci, avec son niveau de culture actuel, il avait perdu la qualification pour entrer dans la Terre des Esprits Démons. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
+Cette fois-ci, avec son niveau de cultivation actuel, il avait perdu la qualification pour entrer dans la Terre des Esprits Démons. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
 
 À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays des Démons de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo !
 

@@ -66,11 +66,11 @@ Le cœur de Wang Lin tressaillit légèrement, mais rien ne trahit son émotion.
 
 « Tu connais aussi le sort de la mort ? »
 
-En entendant cela, Li Muwan en eut la certitude absolue : il maîtrisait le légendaire sort de la mort. Cette technique du monde antique de la culture était incroyablement difficile à maîtriser. Cependant, une fois acquise, il suffisait de regarder quelqu'un et de prononcer le mot « meurs » pour que l'individu s'éteigne instantanément.
+En entendant cela, Li Muwan en eut la certitude absolue : il maîtrisait le légendaire sort de la mort. Cette technique du monde antique de la cultivation était incroyablement difficile à maîtriser. Cependant, une fois acquise, il suffisait de regarder quelqu'un et de prononcer le mot « meurs » pour que l'individu s'éteigne instantanément.
 
 Ce genre de technique était considéré comme l'une des plus maléfiques parmi les cultivateurs démoniaques. Elle exige la fusion de trois types d'énergie. La première est l'énergie Yin, extraite des Âmes Naissantes de cultivatrices via une technique de récolte du Yin. La deuxième est l'énergie de la mort, obtenue en absorbant l'essence des ossements des défunts ; bien que similaire à l'énergie Yin, sa qualité diffère grandement. La troisième est l'énergie de meurtre. Une fois qu'un individu a tué suffisamment, son corps produit sa propre intention meurtrière. Lorsque cette intention acquiert une conscience propre, elle devient l'énergie de mort requise.
 
-La fusion de ces trois énergies impose à l'utilisateur de survivre à une épreuve pour poursuivre la culture de cette technique. Chaque nuit, l'utilisateur endure une douleur inimaginable et doit surmonter ce test tous les trois ans.
+La fusion de ces trois énergies impose à l'utilisateur de survivre à une épreuve pour poursuivre la cultivation de cette technique. Chaque nuit, l'utilisateur endure une douleur inimaginable et doit surmonter ce test tous les trois ans.
 
 Ce n'est qu'après avoir traversé ce cycle d'innombrables fois que le premier stade du sort de la mort peut être considéré comme accompli. Si l'on souhaite poursuivre sa progression, les risques de trépas augmentent encore. Selon certains calculs, les chances de maîtriser totalement le sort de la mort sont pratiquement nulles. Bien que puissante, cette technique est trop vicieuse ; seuls quelques cultivateurs démoniaques osaient tenter de l'apprendre.
 
@@ -88,7 +88,7 @@ Grâce à cela, le travail s'accéléra instantanément et une grotte finit par 
 
 Elle savait que le nombre d'épées qu'un cultivateur pouvait commander dépendait de son Sens Divin.
 
-Le temps passa et une grotte composée de quatre pièces fut sculptée dans la roche. Ainsi fut formée une modeste demeure de culture. Wang Lin sortit des pierres spirituelles et installa diverses formations autour de l'entrée.
+Le temps passa et une grotte composée de quatre pièces fut sculptée dans la roche. Ainsi fut formée une modeste demeure de cultivation. Wang Lin sortit des pierres spirituelles et installa diverses formations autour de l'entrée.
 
 En voyant ces formations, Li Muwan afficha un visage surpris, mais après les avoir examinées de plus près, sa surprise fit place à un soupçon de dédain. Elle s'empressa toutefois de masquer cette émotion.
 
@@ -152,7 +152,7 @@ Wang Lin acquiesça :
 
 Li Muwan lui sourit pour la première fois. Son sourire était radieux lorsqu'elle affirma avec assurance :
 
-« Soyez sans crainte, senior frère. J'ai calculé que je peux produire 300 pilules d'Esprit Jaune pour favoriser la culture, 50 pilules d'Évitement du Poison, et divers autres remèdes. Une fois terminé, je vous les remettrai. Senior frère, parmi vos matériaux, le plus précieux est cette vigne de sang de démon. » Elle sortit alors une fine lamelle de bois rouge très ordinaire.
+« Soyez sans crainte, senior frère. J'ai calculé que je peux produire 300 pilules d'Esprit Jaune pour favoriser la cultivation, 50 pilules d'Évitement du Poison, et divers autres remèdes. Une fois terminé, je vous les remettrai. Senior frère, parmi vos matériaux, le plus précieux est cette vigne de sang de démon. » Elle sortit alors une fine lamelle de bois rouge très ordinaire.
 
 « Cette lamelle est l'un des ingrédients les plus essentiels pour la Pilule de la Distance Céleste. Je n'ai croisé cette vigne que dans les textes anciens. Avec elle, je suis confiante pour raffiner une Pilule de la Distance Céleste ; toutefois, son efficacité sera légèrement moindre car je devrai trouver des substituts pour les autres composants. »
 
@@ -188,7 +188,7 @@ Le visage de Wang Lin se mua en une expression étrange : le poursuivant n'étai
 
 Le jeune homme au regard sinistre tenait un os de bête noir. Tout en poursuivant l'homme d'âge mûr, il soufflait dessus avec nonchalance, libérant à chaque expiration une fumée noire. Dès qu'elle apparaissait, la fumée rattrapait le cultivateur et s'infiltrait dans son corps.
 
-« Senior frère apprenti, cours plus vite ! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi ! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre : « Mon cher aîné, j'ai passé un temps infini à préparer ces seize poisons pour toi. Comment aurais-je osé t'affronter si tu n'étais pas affaibli par ta culture de l'Établissement des Fondations ? Tu ne t'échapperas pas ! »
+« Senior frère apprenti, cours plus vite ! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi ! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre : « Mon cher aîné, j'ai passé un temps infini à préparer ces seize poisons pour toi. Comment aurais-je osé t'affronter si tu n'étais pas affaibli par ta cultivation de l'Établissement des Fondations ? Tu ne t'échapperas pas ! »
 
 L'homme d'âge mûr serra les dents, silencieux, tandis que son épée volante montait péniblement le long de la montagne.
 
@@ -206,7 +206,7 @@ Le jeune homme laissa échapper un rire hystérique :
 
 Le corps de l'homme trembla tandis qu'il crachait une bouffée de sang noir. Affaibli, il tomba de son épée volante. Le jeune homme poussa un ricanement froid et s'arrêta à trois pieds du cadavre étendu sur l'épée. Il poignarda la dépouille plusieurs fois pour s'assurer de sa mort avant de s'emparer du corps pour repartir.
 
-Soudain, il se figea, les yeux fixés sur une silhouette sombre émergeant de la brume. Une sueur froide perla sur son front. Alors qu'il poursuivait son aîné, il avait déployé son Sens Divin sans rien remarquer ; si cette personne apparaissait ainsi, c'était que son niveau de culture surpassait de loin le sien.
+Soudain, il se figea, les yeux fixés sur une silhouette sombre émergeant de la brume. Une sueur froide perla sur son front. Alors qu'il poursuivait son aîné, il avait déployé son Sens Divin sans rien remarquer ; si cette personne apparaissait ainsi, c'était que son niveau de cultivation surpassait de loin le sien.
 
 Il jeta le corps au sol, joignit immédiatement les mains et s'inclina avec respect. Sa malveillance disparut instantanément pour laisser place à un masque de sincérité :
 
@@ -220,6 +220,6 @@ Le cœur du disciple trembla et son expression devint encore plus déférente.
 
 « Apporte ton os de bête, » ordonna Wang Lin d'une voix froide et dépourvue d'émotion.
 
-Plus Wang Lin agissait ainsi, plus Sang Muya paniquait. Ayant grandi dans la Mer des Diables, il connaissait toutes sortes de techniques démoniaques. Bien que sa culture fût modeste, il avait réussi à cultiver une paire d'Yeux de Connaissance Démoniaque. Il savait que les puissants cultivateurs démoniaques étaient cruels, mais la plupart n'étaient que des imitateurs. Cet homme, en revanche, exhalait une froideur et une impitoyabilité qui semblaient venir de son âme même ; ce regard suffisait à glacer son propre cœur.
+Plus Wang Lin agissait ainsi, plus Sang Muya paniquait. Ayant grandi dans la Mer des Diables, il connaissait toutes sortes de techniques démoniaques. Bien que sa cultivation fût modeste, il avait réussi à cultiver une paire d'Yeux de Connaissance Démoniaque. Il savait que les puissants cultivateurs démoniaques étaient cruels, mais la plupart n'étaient que des imitateurs. Cet homme, en revanche, exhalait une froideur et une impitoyabilité qui semblaient venir de son âme même ; ce regard suffisait à glacer son propre cœur.
 
 Il jeta précipitamment l'os de bête qu'il tenait, n'osant nourrir la moindre pensée de résistance.

@@ -12,9 +12,9 @@ Ils étaient habitués à ce mode de vie et avaient passé de nombreuses années
 
 Les trois membres du Secte Démon, enveloppés d'une lueur bleue, étaient également assis au loin et jetaient parfois des regards vers la faille.
 
-Cela faisait presque un mois que Wang Lin était entré dans la faille spatiale. Pour des cultivateurs, un mois n'était qu'un instant ; souvent, une seule session de culture pouvait durer plusieurs mois.
+Cela faisait presque un mois que Wang Lin était entré dans la faille spatiale. Pour des cultivateurs, un mois n'était qu'un instant ; souvent, une seule session de cultivation pouvait durer plusieurs mois.
 
-Cependant, les cultivateurs environnants et les trois membres du Secte Démon ne parvenaient pas à se concentrer sur leur culture. La faille spatiale, pourtant si familière, était devenue extrêmement étrange.
+Cependant, les cultivateurs environnants et les trois membres du Secte Démon ne parvenaient pas à se concentrer sur leur cultivation. La faille spatiale, pourtant si familière, était devenue extrêmement étrange.
 
 Elle était plongée dans un silence terrifiant, comme un royaume de mort. Un tel phénomène était d'une rareté absolue au fil des éternités. Habituellement, des bêtes féroces rugissaient et surgissaient de l'intérieur, mais désormais, le silence régnait en maître.
 
@@ -34,7 +34,7 @@ Quelques jours plus tôt, il avait décidé de s'infiltrer dans la faille pour v
 
 Les paroles du vieil homme firent pâlir les visages des cultivateurs alentour. Bien qu'ils en aient eu quelques soupçons, ils restaient stupéfaits.
 
-« Cela doit être l'œuvre du cultivateur qui est entré pour sauver Li Qianmei il y a un mois. Sa culture est mystérieuse, et il a réussi à provoquer une telle calamité ! Mais... c'est tout simplement trop incroyable. Peu importe sa puissance, il n'est qu'un seul homme ; comment pourrait-il orchestrer un tel massacre ? »
+« Cela doit être l'œuvre du cultivateur qui est entré pour sauver Li Qianmei il y a un mois. Sa cultivation est mystérieuse, et il a réussi à provoquer une telle calamité ! Mais... c'est tout simplement trop incroyable. Peu importe sa puissance, il n'est qu'un seul homme ; comment pourrait-il orchestrer un tel massacre ? »
 
 « Même l'Ancien du Secte Démon n'était pas de taille face à ce cultivateur ; il en est même ressorti avec des blessures internes. Mais malgré sa force redoutable, je ne pense pas qu'il soit responsable de tout cela. Après tout, les bêtes féroces sont trop nombreuses, il ne peut pas tout gérer seul ! »
 
@@ -82,7 +82,7 @@ L'onde de choc se propagea instantanément, ébranlant toute la région de rang 
 
 C'était comme si l'apocalypse avait commencé dans la région de rang 9 ; le chaos était total !
 
-Au moment où les nuages apparurent et que le tonnerre gronda, tous les Anciens du Secte Démon furent arrachés à leur culture. Leurs expressions changèrent radicalement et ils s'élancèrent hors de leurs planètes de culture respectives.
+Au moment où les nuages apparurent et que le tonnerre gronda, tous les Anciens du Secte Démon furent arrachés à leur cultivation. Leurs expressions changèrent radicalement et ils s'élancèrent hors de leurs planètes de cultivation respectives.
 
 Lorsque les seize Anciens du Secte Démon émergèrent, ils virent les nuages et leurs pupilles se rétractèrent de stupeur.
 
@@ -96,7 +96,7 @@ L'homme regarda les nuages avec émotion et déclara lentement : « Il existe de
 
 « Le Maître du Secte disait autrefois que toutes les créatures vivantes devront un jour subir la Rétribution Infinie. Je ne m'attendais pas à la voir aujourd'hui ! Activez la formation de secte et laissez tous les cultivateurs entrer dans le Secte Démon ; sinon, ils seront tous anéantis par elle ! » L'homme d'âge moyen fixa les nuages, son expression devenant de plus en plus grave.
 
-Ses paroles firent office d'ordre. Les seize Anciens déployèrent leur Sens Divin et s'envolèrent immédiatement vers les planètes de culture. Une multitude de membres du Secte Démon sortirent pour guider les cultivateurs du champ de bataille vers l'abri du Secte.
+Ses paroles firent office d'ordre. Les seize Anciens déployèrent leur Sens Divin et s'envolèrent immédiatement vers les planètes de cultivation. Une multitude de membres du Secte Démon sortirent pour guider les cultivateurs du champ de bataille vers l'abri du Secte.
 
 Les disciples du Secte Démon agissaient comme une armée disciplinée. Dès l'ordre donné, ils se déplacèrent avec efficacité, utilisant des méthodes inconnues pour acheminer rapidement tous les cultivateurs à l'intérieur du Secte.
 

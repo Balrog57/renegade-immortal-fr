@@ -60,7 +60,7 @@ Un reniflement méprisant s'échappa du Daoïste aux Sept Couleurs avant qu'il n
 
 La troisième concubine hésita et ne fit pas un pas de plus.
 
-Le Daoïste aux Sept Couleurs fut le plus rapide. D'un seul pas, il atteignit les abords de la planète. Il l'observa et fronça les sourcils. Avec son niveau de culture, il voyait évidemment ce qui l'attendait sur cette planète, notamment la bête que lui-même redoutait.
+Le Daoïste aux Sept Couleurs fut le plus rapide. D'un seul pas, il atteignit les abords de la planète. Il l'observa et fronça les sourcils. Avec son niveau de cultivation, il voyait évidemment ce qui l'attendait sur cette planète, notamment la bête que lui-même redoutait.
 
 Tout cela fit hésiter le Daoïste aux Sept Couleurs devant l'astre.
 

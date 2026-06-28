@@ -30,7 +30,7 @@ La flamme brûla et plusieurs de ces trésors magiques commencèrent à fondre. 
 
 Après avoir réfléchi un instant, le Sens Divin de Wang Lin pénétra dans son sac pour fouiller davantage. D'autres trésors magiques s'envolèrent aussitôt pour rejoindre la sphère. Cela pouvait être considéré comme un grand nettoyage du sac de rangement de Wang Lin.
 
-De nombreux trésors s'étaient accumulés dans son sac en l'espace de plus de 800 ans. Beaucoup n'avaient été utilisés que quelques fois avant d'être délaissés. Après tout, à mesure que son niveau de culture augmentait, nombre de ces trésors perdaient leur utilité.
+De nombreux trésors s'étaient accumulés dans son sac en l'espace de plus de 800 ans. Beaucoup n'avaient été utilisés que quelques fois avant d'être délaissés. Après tout, à mesure que son niveau de cultivation augmentait, nombre de ces trésors perdaient leur utilité.
 
 Tous ces objets s'envolèrent et furent jetés dans la sphère par Wang Lin. À ce moment précis, une rose bleue apparut soudainement dans sa main.
 

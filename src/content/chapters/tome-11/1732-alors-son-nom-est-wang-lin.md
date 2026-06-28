@@ -32,7 +32,7 @@ Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge m
 
 « Le Général Céleste de l'Eau des Cinq Éléments !! C'est notre Seigneur Général de l'Eau du Secte Gui Yi !! »
 
-« Le Seigneur Général de l'Eau est en culture isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau !! »
+« Le Seigneur Général de l'Eau est en cultivation isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau !! »
 
 « Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet ; lorsqu'il se trouve dans la formation, sa puissance augmente considérablement. Cet envahisseur méprisable est mort ! »
 
@@ -46,11 +46,11 @@ Un vieil homme, situé au milieu de la phase de Nettoyage du Nirvana, poussa un 
 
 « C'est vrai, cet homme se nomme Wang Lin, et je sais une chose sur lui. Il est infâme en dehors de la planète des Cinq Éléments et il est d'une cruauté extrême. Partout où il passe, toute vie s'éteint et il ne laisse aucun survivant ! »
 
-Une autre personne s'avança et rugit : « Il n'y a pas si longtemps, j'ai entendu parler d'une famille nommée Teng sur une planète de culture. Il a convoité un trésor de leur lignée et a massacré toute la famille, y compris les mortels. Ni les vieux ni les jeunes n'ont été épargnés, le sang coulait comme une rivière ! »
+Une autre personne s'avança et rugit : « Il n'y a pas si longtemps, j'ai entendu parler d'une famille nommée Teng sur une planète de cultivation. Il a convoité un trésor de leur lignée et a massacré toute la famille, y compris les mortels. Ni les vieux ni les jeunes n'ont été épargnés, le sang coulait comme une rivière ! »
 
-« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, car sa culture était encore difficile. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il massacre tout sur son chemin vers la planète des Cinq Éléments ! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi !! »
+« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, car sa cultivation était encore difficile. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il massacre tout sur son chemin vers la planète des Cinq Éléments ! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi !! »
 
-« Comment pouvons-nous laisser un être aussi sans vergogne et méprisable pénétrer sur la planète des Cinq Éléments ! Ce cultivateur démoniaque doit être exécuté par tous. Le tuer, c'est sauver d'innombrables vies ! Tout le monde, bien que nos niveaux de culture soient bas, nous sommes plus nombreux et il n'est qu'un seul homme ! »
+« Comment pouvons-nous laisser un être aussi sans vergogne et méprisable pénétrer sur la planète des Cinq Éléments ! Ce cultivateur démoniaque doit être exécuté par tous. Le tuer, c'est sauver d'innombrables vies ! Tout le monde, bien que nos niveaux de cultivation soient bas, nous sommes plus nombreux et il n'est qu'un seul homme ! »
 
 Ces propos se propagèrent comme une traînée de poudre. Bientôt, ceux qui ne connaissaient pas du tout Wang Lin commencèrent à croire ces mensonges. Ils regardèrent Wang Lin à l'intérieur du vortex avec colère et haine !
 
@@ -78,7 +78,7 @@ La mer rugit et des grondements de tonnerre résonnèrent, déclenchant des vagu
 
 Wang Lin et le géant de feu disparurent du monde. Seul resta l'homme d'âge moyen aux cheveux noirs et au visage superbe !
 
-L'homme affichait une expression froide et orgueilleuse lorsqu'il déclara lentement : « Seulement ce niveau de culture... Je suis l'esprit de l'eau, donc au sein de la formation, je suis un dieu ! Ton essence de feu n'a aucune utilité ici ! »
+L'homme affichait une expression froide et orgueilleuse lorsqu'il déclara lentement : « Seulement ce niveau de cultivation... Je suis l'esprit de l'eau, donc au sein de la formation, je suis un dieu ! Ton essence de feu n'a aucune utilité ici ! »
 
 Alors que ses paroles résonnaient, tous les cultivateurs du Secte Gui Yi autour de la tour poussèrent des acclamations.
 

@@ -88,7 +88,7 @@ Le visage de Zhou Tian pâlit et il tenta de battre en retraite. Cependant, à c
 
 D'innombrables fragments d'âmes encerclaient la périphérie, poussant des vagues de cris. Les yeux de Zhou Tian étaient presque empreints de folie. Ayant passé sa vie à étudier le Dao des âmes, il laissa échapper un rugissement et forma un sceau de ses mains. Il pointa sa propre poitrine et son corps s'effondra aussitôt. D'innombrables ombres illusoires s'enfuirent alors dans toutes les directions.
 
-Puisque le Dao de l'âme de Zhou Tian avait presque atteint la perfection, son corps n'existait plus ; même son âme originelle avait fusionné avec son âme. Ce n'était que par ce moyen qu'il pouvait véritablement déployer ses techniques mortelles. Même un adversaire doté d'un niveau de culture supérieur pourrait, s'il manquait de vigilance, succomber à ses attaques sournoises.
+Puisque le Dao de l'âme de Zhou Tian avait presque atteint la perfection, son corps n'existait plus ; même son âme originelle avait fusionné avec son âme. Ce n'était que par ce moyen qu'il pouvait véritablement déployer ses techniques mortelles. Même un adversaire doté d'un niveau de cultivation supérieur pourrait, s'il manquait de vigilance, succomber à ses attaques sournoises.
 
 Pourtant, il se plaignit intérieurement. À l'origine, il voulait posséder Wang Lin, mais à cause de l'Armure de Cuir de l'Ancien Dieu, il avait été repoussé et légèrement blessé. Normalement, cela n'aurait pas posé de problème, mais il ne s'attendait pas à ce que l'âme originelle de Wang Lin soit si féroce qu'elle dévorerait directement son âme.
 

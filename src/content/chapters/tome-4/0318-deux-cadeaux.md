@@ -16,7 +16,7 @@ Il dit d'un ton amer : « Ascendant... »
 
 « Quand je suis venu dans le Royaume Céleste pour la première fois, je t'ai rencontré... Le domaine de la folie est une chose que tu m'as imposée. Je connais désormais ton objectif et je comprends tout, mais je ne le regrette pas. Si l'on me donnait une autre chance, je choisirais de te rencontrer à nouveau... » Zhou Yi ne daigna même pas regarder le vieil homme ; il fixait uniquement la dépouille féminine dans ses bras.
 
-Il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de culture ne cessait de croître.
+Il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de cultivation ne cessait de croître.
 
 Lorsqu'il atteignit le stade de la Formation de l'Âme, son maître lui offrit le Chaudron de la Pluie, mais nul n'aurait pu prédire à quel point il changerait.
 
@@ -28,7 +28,7 @@ Pour cette femme morte, il quitta sa secte. Son maître, refusant de tuer son pr
 
 « Amoureux des cadavres », « Le Fou » ; toutes sortes de rumeurs se répandirent à travers Suzaku. Cependant, rien de tout cela ne l'affecta. Il n'avait aucun regret.
 
-En empruntant le domaine de la folie, sa culture devint encore plus puissante, jusqu'à ce qu'il atteigne le stade de la Transformation de l'Âme.
+En empruntant le domaine de la folie, sa cultivation devint encore plus puissante, jusqu'à ce qu'il atteigne le stade de la Transformation de l'Âme.
 
 Son maître n'avait pas réussi à atteindre le stade d'Ascendant et avait atteint la fin de sa vie. Le jour où son maître mourut, Zhou Yi s'agenouilla devant la Secte des Cinq Éléments. Il resta ainsi agenouillé pendant sept jours.
 
@@ -72,7 +72,7 @@ Dans les airs, ces jades célestes formèrent une pagode. Zhou Yi regarda la dé
 
 Au moment où il toucha la pagode, une force mystérieuse pénétra son corps. Une empreinte supplémentaire venait de marquer son âme originelle.
 
-« Cette pagode contient mon domaine. Si tu trouves un endroit isolé et que tu y déposes cette pagode, elle formera une barrière de 100 mètres de large. À moins qu'un être n'ait un niveau de culture supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
+« Cette pagode contient mon domaine. Si tu trouves un endroit isolé et que tu y déposes cette pagode, elle formera une barrière de 100 mètres de large. À moins qu'un être n'ait un niveau de cultivation supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
 
 Zhou Yi sourit à Wang Lin en désignant son propre front. Un jade rouge de la taille d'un ongle apparut, et il le lança vers Wang Lin.
 
@@ -88,7 +88,7 @@ Bien que cet objet n'ait aucune capacité intrinsèque, il se forme lorsqu'un cu
 
 L'unique but de cet objet était de permettre à son utilisateur de bénéficier d'une seconde chance lors des choix fatidiques entre la vie et la mort pendant la tentative d'ascension.
 
-Une fois qu'un cultivateur Ascendant perdait son cristal ascendant, sa culture continuait de chuter jusqu'à la mort. Ce cristal était presque aussi vital que sa propre existence.
+Une fois qu'un cultivateur Ascendant perdait son cristal ascendant, sa cultivation continuait de chuter jusqu'à la mort. Ce cristal était presque aussi vital que sa propre existence.
 
 Même Zhou Yi venait de former le sien.
 
@@ -106,7 +106,7 @@ Face à une puissance absolue, le Grand Ancien de la Secte des Cadavres n'avait 
 
 L'ancien dit amèrement : « Ma vie ne durera même pas cent ans, comment puis-je être un esclave pendant mille ans ? Tu ferais mieux de me tuer ! »
 
-« Si tu veux mourir, je peux t'aider. Avec ma force restante, je peux te transformer en marionnette. Bien que ton niveau de culture diminue, cela sera considéré comme mon second cadeau ! » Sur ces mots, Zhou Yi pointa le front de l'ancien.
+« Si tu veux mourir, je peux t'aider. Avec ma force restante, je peux te transformer en marionnette. Bien que ton niveau de cultivation diminue, cela sera considéré comme mon second cadeau ! » Sur ces mots, Zhou Yi pointa le front de l'ancien.
 
 Il lui suffisait de pointer le front de l'homme pour que ce Grand Ancien de la Secte des Cadavres meure.
 

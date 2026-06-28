@@ -28,7 +28,7 @@ Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion
 
 Yao Xixue reconnut qu'il s'agissait de sa propre voix, comme si c'étaient les derniers mots qu'elle s'était laissés avant de perdre la mémoire.
 
-L'Ancêtre de Sang regarda Wang Lin s'éloigner progressivement, affichant une expression complexe. Une fois le sceau levé, il avait recouvré conscience. Bien qu'il ne fût qu'une âme, un être de son niveau de culture pourrait trouver un moyen de reformer un corps et de poursuivre sa pratique.
+L'Ancêtre de Sang regarda Wang Lin s'éloigner progressivement, affichant une expression complexe. Une fois le sceau levé, il avait recouvré conscience. Bien qu'il ne fût qu'une âme, un être de son niveau de cultivation pourrait trouver un moyen de reformer un corps et de poursuivre sa pratique.
 
 En voyant la silhouette de Wang Lin s'éloigner, l'animosité qu'il éprouvait autrefois avait disparu.
 
@@ -54,7 +54,7 @@ Wang Lin progressait pas à pas. Une aura puissante commença à s'accumuler dan
 
 Sous l'effet de cette puissance colossale, le regard de Wang Lin devint plus vif.
 
-Après avoir réglé l'affaire avec Yao Xixue et s'être libéré de ce karma, son cœur dao était devenu complet. Wang Lin sentit sa culture stagnante commencer à montrer les signes d'une percée imminente.
+Après avoir réglé l'affaire avec Yao Xixue et s'être libéré de ce karma, son cœur dao était devenu complet. Wang Lin sentit sa cultivation stagnante commencer à montrer les signes d'une percée imminente.
 
 Yao Xixue et l'Ancêtre de Sang avaient disparu derrière une restriction pour attendre le jour où la grotte serait totalement ouverte. En inspectant les environs, il constata qu'il ne restait plus personne dans la cavité.
 
@@ -88,11 +88,11 @@ Wang Lin examina le cadavre féminin argenté pendant qu'il restait assis là. I
 
 Il déploya son Sens Divin et constata que le sceau de contrôle originel à l'intérieur de son corps était intact. Toutes les autres restrictions cachées qu'il avait placées étaient également présentes. Ce ne fut qu'à ce moment qu'il se détendit et ferma les yeux pour cultiver.
 
-« Maintenant que ma culture montre des signes de percée, je dois saisir cette chance et ascender. C'est ainsi que j'obtiendrai de meilleures chances dans cette Grotte de l'Empereur Céleste. »
+« Maintenant que ma cultivation montre des signes de percée, je dois saisir cette chance et ascender. C'est ainsi que j'obtiendrai de meilleures chances dans cette Grotte de l'Empereur Céleste. »
 
 Lorsqu'il ferma les yeux, l'énergie originelle en lui commença soudainement à circuler dans tout son corps. Une trace de chaleur ardente émana de lui, mais elle resta confinée à une certaine distance sans se propager.
 
-Son domaine avait franchi un palier grâce à l'incident avec Yao Xixue. Maintenant que Wang Lin entamait sa pratique, sa culture, qui stagnait au sommet du stade intermédiaire du Nirvana Scryer, commença à se dénouer.
+Son domaine avait franchi un palier grâce à l'incident avec Yao Xixue. Maintenant que Wang Lin entamait sa pratique, sa cultivation, qui stagnait au sommet du stade intermédiaire du Nirvana Scryer, commença à se dénouer.
 
 Le temps passa lentement. En un clin d'œil, trois jours s'écoulèrent. Durant ces trois jours, Wang Lin ne bougea pas, et l'énergie originelle dans son corps circulait de plus en plus vite. Finalement, le flux de son énergie devint si fluide qu'il était impossible de distinguer son début de sa fin.
 
@@ -102,7 +102,7 @@ Le quatrième jour, Wang Lin ouvrit les yeux. Après un instant de réflexion, i
 
 « Il n'y a pas assez d'énergie originelle ici, c'est donc mon seul moyen de réaliser cette percée ! »
 
-Alors que le niveau de culture de Wang Lin progressait depuis le stade intermédiaire du Nirvana Scryer, une scène terrifiante se produisit loin de la Grotte de l'Empereur Céleste. Chaque cultivateur de l'Alliance qui fut témoin de cela fut frappé de stupeur.
+Alors que le niveau de cultivation de Wang Lin progressait depuis le stade intermédiaire du Nirvana Scryer, une scène terrifiante se produisit loin de la Grotte de l'Empereur Céleste. Chaque cultivateur de l'Alliance qui fut témoin de cela fut frappé de stupeur.
 
 Des flammes rouges surgissaient de l'horizon lointain, comme si elles venaient consumer toute chose pour les réduire au néant.
 

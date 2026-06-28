@@ -54,11 +54,11 @@ Le visage de Treize pâlit et il esquissa un sourire pitoyable. Il prit une prof
 
 Finalement, la voix de Treize s'affaiblit et il serra les poings.
 
-Wang Lin regarda le garçon et, après un long silence, déclara : « Je possède une méthode de culture qui peut te permettre de transférer l'énergie spirituelle démoniaque de ton corps vers ta chair. Cela augmentera la force de ton corps à un degré inimaginable. Bien que tu ne puisses utiliser aucun sortilège, ton corps deviendra de plus en plus robuste. C'est la méthode de raffinement corporel. Es-tu prêt à l'apprendre ? »
+Wang Lin regarda le garçon et, après un long silence, déclara : « Je possède une méthode de cultivation qui peut te permettre de transférer l'énergie spirituelle démoniaque de ton corps vers ta chair. Cela augmentera la force de ton corps à un degré inimaginable. Bien que tu ne puisses utiliser aucun sortilège, ton corps deviendra de plus en plus robuste. C'est la méthode de raffinement corporel. Es-tu prêt à l'apprendre ? »
 
 Le corps de Treize trembla violemment. Son visage fut illuminé par la joie. Sans hésiter, il hocha la tête avec empressement.
 
-« Ne sois pas si prompt à accepter. Cultiver cette méthode de raffinement corporel est extrêmement difficile et périlleux. Si tu commets une erreur, même moi, je ne pourrais peut-être pas te sauver. De plus, la culture de ce chemin est d'une douleur indicible. Peux-tu l'endurer ? »
+« Ne sois pas si prompt à accepter. Cultiver cette méthode de raffinement corporel est extrêmement difficile et périlleux. Si tu commets une erreur, même moi, je ne pourrais peut-être pas te sauver. De plus, la cultivation de ce chemin est d'une douleur indicible. Peux-tu l'endurer ? »
 
 « Ancêtre, Treize ne vous décevra absolument pas ! » Treize regarda Wang Lin avec une détermination qu'il n'avait jamais manifestée auparavant.
 
@@ -82,11 +82,11 @@ Si on leur laissait assez de temps pour croître, Wang Lin dirigerait une puissa
 
 Une impasse s'était installée entre les trois tribus dans ce rayon de 50 000 kilomètres.
 
-À l'origine, Ouyang Hua voulait attaquer l'une des grandes tribus, mais Wang Lin l'en avait empêché. Il voulait que les membres de la tribu cessent leurs offensives pour se concentrer sur leur culture. Les paroles de Wang Lin étaient perçues comme divines par le peuple de la tribu.
+À l'origine, Ouyang Hua voulait attaquer l'une des grandes tribus, mais Wang Lin l'en avait empêché. Il voulait que les membres de la tribu cessent leurs offensives pour se concentrer sur leur cultivation. Les paroles de Wang Lin étaient perçues comme divines par le peuple de la tribu.
 
 Un cas remarquable était celui de Treize. La persévérance de cet enfant était prodigieuse ; il avait réussi à assimiler une partie de la méthode de raffinement corporel du Clan du Démon Géant. Son corps était devenu dur comme l'acier et, lors des combats, il chargeait toujours en première ligne. Rien ne pouvait l'arrêter !
 
-En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la culture car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps !
+En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la cultivation car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps !
 
 Sa cible était la Cité du Démon Ancien !
 
@@ -100,7 +100,7 @@ Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l
 
 L'autre s'appelait Huo Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
-Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Raffinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
+Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Raffinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la cultivation. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 97 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 
@@ -112,6 +112,6 @@ Wang Lin accordant une immense importance au talent, il décida de le garder aup
 
 Le respect que Huo Pao vouait à Wang Lin n'était pas moindre que celui de Treize. Lorsqu'il apprit que l'Ancêtre allait l'emmener en expédition, il fut transporté par l'excitation.
 
-Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Huo Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la culture, il était le premier de la tribu.
+Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Huo Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la cultivation, il était le premier de la tribu.
 
 Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu du Raffinement de l'Âme, suivi par Huo Pao et Treize tels des gardes d'élite.

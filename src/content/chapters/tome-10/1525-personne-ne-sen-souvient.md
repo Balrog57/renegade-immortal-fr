@@ -60,7 +60,7 @@ Tuez !
 
 Les cultivateurs qui avaient chargé se dispersèrent immédiatement. La peur dans leurs cœurs étouffait leur férocité !
 
-Maître Hong Shan et Maître South Cloud chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Malgré son niveau de culture, il ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
+Maître Hong Shan et Maître South Cloud chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Malgré son niveau de cultivation, il ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
 
 L'ancêtre du Clan de l'Hirondelle de Feu fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea !
 

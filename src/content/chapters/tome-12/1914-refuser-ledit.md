@@ -36,9 +36,9 @@ C'était la puissance d'un Exalté Doré, dont la présence faisait changer les 
 
 « Une bête d'Exalté Doré... » Les yeux de Wang Lin brillèrent d'une lumière dorée monstrueuse, révélant une intention de combat fulgurante.
 
-Sa culture explosa sans la moindre retenue. C'était la première fois qu'il libérait sa pleine puissance depuis qu'il avait obtenu cette immense fortune au Temple du Scorpion Démon Vert !
+Sa cultivation explosa sans la moindre retenue. C'était la première fois qu'il libérait sa pleine puissance depuis qu'il avait obtenu cette immense fortune au Temple du Scorpion Démon Vert !
 
-Il déchaîna pleinement son corps de Dao Antique et sa culture de Tribulation du Vide. Hormis l'absence de son armure d'âme, c'était le sommet absolu atteint par Wang Lin en près de 3 000 ans de culture !
+Il déchaîna pleinement son corps de Dao Antique et sa cultivation de Tribulation du Vide. Hormis l'absence de son armure d'âme, c'était le sommet absolu atteint par Wang Lin en près de 3 000 ans de cultivation !
 
 Ses cheveux blancs s'allongèrent soudainement de plusieurs fois leur longueur, dépassant même son corps. Flottant dans les airs, ils se mariaient à sa robe blanche. Wang Lin semblait ainsi entouré d'une lumière éthérée et glaciale !
 
@@ -62,7 +62,7 @@ Bien qu'il possédât une force égale à celle d'un Exalté Doré, il sentait l
 
 Le sentiment de mort enveloppa tout le corps du dragon, qui rugit de douleur. Une souffrance intense le ravageait de toutes parts. La puissance déchirant l'obscurité détruisait son essence même.
 
-Cette douleur était telle que même son corps physique puissant et sa culture d'Exalté Doré ne pouvaient la supporter. Tandis qu'il rugissait, il fut envahi par la peur et le désespoir, comme piégé dans un cauchemar dont on ne peut s'éveiller.
+Cette douleur était telle que même son corps physique puissant et sa cultivation d'Exalté Doré ne pouvaient la supporter. Tandis qu'il rugissait, il fut envahi par la peur et le désespoir, comme piégé dans un cauchemar dont on ne peut s'éveiller.
 
 « Soumets-toi ou meurs ! » Alors que son corps était sur le point de s'effondrer sous une douleur infinie qui le poussait aux portes du néant, une voix puissante, empreinte de foi et de majesté, résonna dans l'univers.
 
@@ -88,7 +88,7 @@ Dès que Wang Lin prit le contrôle de la force d'âme, les ténèbres disparure
 
 Cependant, le maître de la Secte, protégé par sa lumière jaune, fut frappé d'incrédulité en voyant cela. Son corps se mit à trembler violemment.
 
-« Non... Impossible ! Ce dragon appartient à l'Ancien Ancêtre. Il... il s'est réellement soumis à Wang Lin ! » Le maître de la Secte était terrifié. Il n'était pas seulement choqué par la reddition du dragon, mais aussi par le sortilège de Nuit Brisée que Wang Lin avait déployé en libérant toute sa culture !
+« Non... Impossible ! Ce dragon appartient à l'Ancien Ancêtre. Il... il s'est réellement soumis à Wang Lin ! » Le maître de la Secte était terrifié. Il n'était pas seulement choqué par la reddition du dragon, mais aussi par le sortilège de Nuit Brisée que Wang Lin avait déployé en libérant toute sa cultivation !
 
 « Un sortilège de foi ! C'était un sortilège de foi ! » Il pensait que le dragon gagnerait du temps, mais il n'avait pas prévu un tel revirement. En quelques instants seulement, Wang Lin avait utilisé une technique de foi et la bête avait choisi la soumission !
 

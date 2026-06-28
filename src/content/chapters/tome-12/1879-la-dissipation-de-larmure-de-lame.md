@@ -100,13 +100,13 @@ Ces caractères n'étaient pas ceux des cultivateurs, mais ceux des êtres antiq
 
 Les cheveux blancs de Wang Lin flottaient au vent tandis que sa cultivation chutait jusqu'au stade avancé de la Tribulation Arcane. Il paraissait épuisé lorsqu'il fit un pas vers le palais souterrain.
 
-En chemin, son niveau de culture diminua encore pour atteindre le stade intermédiaire de la Tribulation Arcane. Lorsqu'il atteignit l'entrée du palais, sa cultivation revint à la normale, au stade avancé de la Tribulation de l'Esprit.
+En chemin, son niveau de cultivation diminua encore pour atteindre le stade intermédiaire de la Tribulation Arcane. Lorsqu'il atteignit l'entrée du palais, sa cultivation revint à la normale, au stade avancé de la Tribulation de l'Esprit.
 
 L'armure du Taureau Céleste sembla fondre, redevenant les innombrables fils noirs qui enveloppaient son corps. Finalement, ils se rassemblèrent sur le côté droit de son visage pour former un tatouage noir de Taureau Céleste.
 
 Le tatouage brilla, donnant à Wang Lin une apparence très singulière.
 
-Dès qu'il pénétra dans le palais souterrain, ses jambes fléchirent. Une puissante sensation de faiblesse envahit son corps, comme s'il avait perdu sa culture pour redevenir un simple mortel.
+Dès qu'il pénétra dans le palais souterrain, ses jambes fléchirent. Une puissante sensation de faiblesse envahit son corps, comme s'il avait perdu sa cultivation pour redevenir un simple mortel.
 
 Les plus de 1 000 cultivateurs, y compris Yan Lu et sa compagnie, tournèrent tous des regards anxieux vers lui. Ne pouvant voir ce qui se passait à l'extérieur du palais souterrain, ils attendaient le verdict.
 

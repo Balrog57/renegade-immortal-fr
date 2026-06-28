@@ -80,7 +80,7 @@ Des grondements résonnèrent sur la plateforme, attirant l'attention des 100 00
 
 Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'un autre secte de rang 5, tout en riant. « L’ascension du Secte du Dao Pourpre est entièrement due à Lu Yuncong ! Camarade cultivateur Wang, le Secte Divin ne pourra pas l’emporter. »
 
-Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé ; il révélait sans hésitation l'aura d'un cultivateur Briseur de Nirvana.
+Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de cultivation était élevé ; il révélait sans hésitation l'aura d'un cultivateur Briseur de Nirvana.
 
 Deux femmes étaient assises près du vieil homme. Toutes deux possédaient une beauté époustouflante. La femme vêtue de pourpre aurait pu faire battre le cœur de n'importe qui ; un soupçon de froideur marquait son visage, comme si rien au monde ne pouvait l'émouvoir ou la pousser à montrer sa faiblesse.
 
@@ -98,7 +98,7 @@ Le vieil homme en blanc sourit et ne revint pas sur le sujet, mais ils continuè
 
 De l'autre côté se trouvait le maître d'une autre secte de rang 5. C'était un vieil homme vêtu de noir, dont l'expression était extrêmement disgracieuse.
 
-Wang Shanshan regarda Lu Yuncong sur la plateforme et dit doucement à la femme assise près d'elle : « Ce Lu Yuncong est effectivement talentueux et digne des éloges du Professeur. Bien que son niveau de culture ne soit pas très élevé, il semble fusionner avec le monde ; sa compréhension du Dao doit donc être très profonde. Qu'en pense Grande Sœur Mu ? »
+Wang Shanshan regarda Lu Yuncong sur la plateforme et dit doucement à la femme assise près d'elle : « Ce Lu Yuncong est effectivement talentueux et digne des éloges du Professeur. Bien que son niveau de cultivation ne soit pas très élevé, il semble fusionner avec le monde ; sa compréhension du Dao doit donc être très profonde. Qu'en pense Grande Sœur Mu ? »
 
 Mu Bingmei n'avait aucun intérêt pour la compétition de la Mer des Nuages. Elle n'était venue que suite à la proposition de Wang Shanshan. Elle observa Lu Yuncong et répondit calmement : « On peut le considérer comme une élite. »
 
@@ -110,4 +110,4 @@ Elle ignorait pourquoi, mais en voyant Lu Yuncong, l'image d'une autre personne 
 
 « Cela m'intéresse. Lu Yuncong a cultivé pendant environ 3 000 ans sans s'appuyer sur aucun élixir. Il a atteint le stade Ascendant en 1 000 ans, puis le stade de l'Observateur du Nirvana 1 000 ans plus tard, et enfin le stade de Purification du Nirvana après encore 1 000 ans. Sa compréhension du Dao est très profonde. Même Li Qianmei du Secte Briseur de Ciel l'a sollicité pour discuter du Dao. Je me demande s'il existe des gens comme lui dans la région d'origine de la Camarade Cultivatrice Mu ? » L'homme qui parla n'était pas le vieil homme en blanc, mais un homme d'âge mûr assis à ses côtés.
 
-Mu Bingmei réfléchit longuement, puis dit doucement, comme si elle se remémorait des souvenirs : « Je connais une personne qui a atteint la Formation du Noyau en 200 ans, la Transformation de l'Âme en 500 ans, l'Ascendance en 800 ans et le stade Yin et Yang en 1 000 ans. Avant mon départ, il avait cultivé pendant moins de 2 000 ans et avait déjà atteint le début du stade de Purification du Nirvana. Son domaine était la vie et la mort, qui avait évolué vers le karma. Il y a très peu de gens dans ce monde capables de se comparer à lui ! Peut-être que ce Lu Yuncong possède un niveau de culture plus élevé, mais en termes de Dao, il n'est pas son égal ! Même dans un combat à mort, il ne ferait toujours pas le poids ! »
+Mu Bingmei réfléchit longuement, puis dit doucement, comme si elle se remémorait des souvenirs : « Je connais une personne qui a atteint la Formation du Noyau en 200 ans, la Transformation de l'Âme en 500 ans, l'Ascendance en 800 ans et le stade Yin et Yang en 1 000 ans. Avant mon départ, il avait cultivé pendant moins de 2 000 ans et avait déjà atteint le début du stade de Purification du Nirvana. Son domaine était la vie et la mort, qui avait évolué vers le karma. Il y a très peu de gens dans ce monde capables de se comparer à lui ! Peut-être que ce Lu Yuncong possède un niveau de cultivation plus élevé, mais en termes de Dao, il n'est pas son égal ! Même dans un combat à mort, il ne ferait toujours pas le poids ! »

@@ -74,9 +74,9 @@ Le choc que Wang Lin lui avait infligé était déjà immense, mais celui-ci ét
 
 « Posséder sept essences, maîtriser des sorts de sectes puissantes, être capable d'absorber la veine du feu terrestre par la force, provoquer le changement du tonnerre... Un tel homme ne peut pas être provoqué ! »
 
-Ce n'était pas que sa propre culture était insuffisante, mais il ignorait combien de choses terrifiantes Wang Lin pourrait encore déchaîner. Combien d'atouts l'homme n'avait-il pas encore révélés ?
+Ce n'était pas que sa propre cultivation était insuffisante, mais il ignorait combien de choses terrifiantes Wang Lin pourrait encore déchaîner. Combien d'atouts l'homme n'avait-il pas encore révélés ?
 
-Lorsqu'il avait attaqué deux fois auparavant, il n'avait même pas réussi à blesser Wang Lin. De là, il en déduisait que même si le niveau de culture de Wang Lin n'était pas son égal, il devait être très proche du sien !
+Lorsqu'il avait attaqué deux fois auparavant, il n'avait même pas réussi à blesser Wang Lin. De là, il en déduisait que même si le niveau de cultivation de Wang Lin n'était pas son égal, il devait être très proche du sien !
 
 Dans une telle conjoncture, entre la nature mystérieuse de Wang Lin et la prudence de Du Qing, comment pourrait-il mener bataille ?
 
@@ -102,7 +102,7 @@ Car à moins qu'un Grand Empereur n'ait personnellement remis ce trésor à quel
 
 Les Grands Empereurs offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne !
 
-Avec son niveau de culture, Du Qing était incapable de déterminer quel Grand Empereur l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empereur.
+Avec son niveau de cultivation, Du Qing était incapable de déterminer quel Grand Empereur l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empereur.
 
 Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empereur !
 

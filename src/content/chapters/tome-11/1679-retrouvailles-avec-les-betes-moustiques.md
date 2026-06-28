@@ -64,13 +64,13 @@ Cela faisait longtemps qu'il n'avait pas procédé ainsi, mais désormais, son a
 
 Son corps originel et son avatar se regardèrent. Un instant plus tard, l'avatar disparut pour s'enfoncer dans le Royaume Intérieur. Son corps originel ferma les yeux et resta assis au centre de la formation pour monter la garde durant le dernier mois.
 
-Wang Lin marcha à travers le système stellaire vêtu d'une robe blanche. À cet instant, il ne possédait plus son puissant corps physique, mais son niveau de culture était toujours celui du stade intermédiaire du Vide Spirituel. Cela ne changerait pas.
+Wang Lin marcha à travers le système stellaire vêtu d'une robe blanche. À cet instant, il ne possédait plus son puissant corps physique, mais son niveau de cultivation était toujours celui du stade intermédiaire du Vide Spirituel. Cela ne changerait pas.
 
 Lui, désormais, était un pur cultivateur. Il serait incapable de terrasser ses ennemis par la force brute de son corps et devrait compter sur ses sorts.
 
 « C'est le dernier mois avant que les quatre grands généraux ne sortent du Royaume Céleste Antique, et j'ai encore quelque chose à accomplir ! Je dois réformer les quatre Grands Royaumes Célestes en un nouveau Royaume Céleste. Désormais, les cultivateurs du Royaume Intérieur vivront dans le Royaume Céleste et pourront condenser des Flammes de Joss ! »
 
-« Tous les cultivateurs nés à partir de maintenant pourront cultiver pour devenir des Célestes. Une fois qu'ils auront atteint le stade de la Formation de l'Âme, ils pourront se rendre dans le Royaume Céleste pour leur culture ! » L'expression de Wang Lin était solennelle tandis qu'il traversait le Royaume Intérieur.
+« Tous les cultivateurs nés à partir de maintenant pourront cultiver pour devenir des Célestes. Une fois qu'ils auront atteint le stade de la Formation de l'Âme, ils pourront se rendre dans le Royaume Céleste pour leur cultivation ! » L'expression de Wang Lin était solennelle tandis qu'il traversait le Royaume Intérieur.
 
 À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes de Joss. Cependant, à sa mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
 
@@ -78,7 +78,7 @@ Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Fo
 
 Avant lui, d'autres avaient tenté l'aventure, mais les conditions n'étaient pas réunies. Ils ne possédaient pas le trésor du Seigneur du Royaume Scellé et, à l'époque, la Formation de Scellement du Royaume n'avait pas été suffisamment affaiblie.
 
-Wang Lin fit un pas en avant. Le premier endroit où il se rendit fut le Royaume Céleste du Vent dans la Mer des Nuages ! Ce royaume était bien préservé et occupé par une immense quantité de bêtes moustiques. À l'époque, le niveau de culture de Wang Lin n'était pas assez élevé pour ébranler ce domaine, mais aujourd'hui, il le pouvait !
+Wang Lin fit un pas en avant. Le premier endroit où il se rendit fut le Royaume Céleste du Vent dans la Mer des Nuages ! Ce royaume était bien préservé et occupé par une immense quantité de bêtes moustiques. À l'époque, le niveau de cultivation de Wang Lin n'était pas assez élevé pour ébranler ce domaine, mais aujourd'hui, il le pouvait !
 
 De plus, grâce à son lien, Wang Lin savait que les bêtes moustiques qui s'étaient séparées de lui lors de la bataille passée avaient survécu et s'étaient établies dans le Royaume Céleste du Vent.
 

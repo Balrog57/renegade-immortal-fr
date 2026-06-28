@@ -62,7 +62,7 @@ Lentement, divers trésors magiques, pilules et parchemins furent présentés. T
 
 Chacun de ces articles aurait pu être placé au plus haut étage du pavillon de raffinage des trésors pour être vendu à un prix astronomique. La plupart des cultivateurs présents ne faisaient que des échanges. Ce qu'ils recherchaient avant tout, c'étaient les pilules et les matériaux de fabrication. Bien sûr, les objets magiques et les pilules finies étaient également très prisés. Après cela, la priorité allait aux pierres spirituelles.
 
-Avant la disparition du brouillard entourant la Mer des Démons, les pierres spirituelles n'avaient pas une grande utilité ; leur valeur était faible car elles n'étaient nécessaires qu'occasionnellement pour la culture.
+Avant la disparition du brouillard entourant la Mer des Démons, les pierres spirituelles n'avaient pas une grande utilité ; leur valeur était faible car elles n'étaient nécessaires qu'occasionnellement pour la cultivation.
 
 Mais depuis que le brouillard s'était dissipé et que les bêtes avaient commencé à envahir la Mer des Démons, l'usage des tableaux de transfert s'était intensifié.
 
@@ -104,13 +104,13 @@ L'action de Wang Lin attira immédiatement l'attention de trois autres cultivate
 
 Après un bref silence, un autre cultivateur s'avança pour présenter ses articles.
 
-Bientôt, ce fut au tour de Wang Lin. À cet instant, un silence s'installa et tous les regards se tournèrent vers lui. Les actions de Wang Lin avaient révélé que sa culture n'était pas ordinaire.
+Bientôt, ce fut au tour de Wang Lin. À cet instant, un silence s'installa et tous les regards se tournèrent vers lui. Les actions de Wang Lin avaient révélé que sa cultivation n'était pas ordinaire.
 
 Ces cultivateurs étaient très curieux de voir ce que Wang Lin allait proposer.
 
 Après une courte réflexion, Wang Lin frappa son sac de rangement. Plusieurs cœurs de bêtes spirituelles de qualité moyenne et quelques trésors inutilisés s'envolèrent.
 
-En voyant qu'il ne présentait que des objets très communs, ils furent déçus. Cependant, leurs visages restèrent impassibles. Après tout, chacun d'eux avait atteint le stade de l'Âme Naissante ; après tant d'années de culture, ils maîtrisaient parfaitement l'art de masquer leurs émotions.
+En voyant qu'il ne présentait que des objets très communs, ils furent déçus. Cependant, leurs visages restèrent impassibles. Après tout, chacun d'eux avait atteint le stade de l'Âme Naissante ; après tant d'années de cultivation, ils maîtrisaient parfaitement l'art de masquer leurs émotions.
 
 Wang Lin déclara lentement : « Je souhaiterais obtenir une carte de la planète Suzaku. Plus elle sera complète, mieux ce sera. »
 
@@ -118,7 +118,7 @@ Wang Lin déclara lentement : « Je souhaiterais obtenir une carte de la planèt
 
 Wang Lin répondit calmement : « Oh ? Et que me faudrait-il pour obtenir une telle carte ? »
 
-L'érudit esquissa un sourire chaleureux et dit : « Vous devez être nouveau dans la Mer des Démons, permettez-moi de vous expliquer. Non seulement pour la Mer des Démons, mais pour n'importe quel pays de culture, une carte est primordiale. La planète Suzaku est tout simplement trop vaste ; sans carte, on ne sait pas où l'on va. »
+L'érudit esquissa un sourire chaleureux et dit : « Vous devez être nouveau dans la Mer des Démons, permettez-moi de vous expliquer. Non seulement pour la Mer des Démons, mais pour n'importe quel pays de cultivation, une carte est primordiale. La planète Suzaku est tout simplement trop vaste ; sans carte, on ne sait pas où l'on va. »
 
 « Quant à la Mer des Démons, c'est encore plus crucial. Une copie de la carte de la Mer des Démons coûterait 100 000 pierres spirituelles de haute qualité, et personne n'accepterait de pierres de faible ou moyenne qualité. Avec les trésors que vous présentez, ce n'est tout simplement pas suffisant. »
 
@@ -210,7 +210,7 @@ Wang Lin, toujours serein, demanda lentement : « Que voulez-vous ? »
 
 Le vieillard serra les dents et répondit : « Si vous m'aidez à tuer une personne, je vous donnerai ce jade. »
 
-Une lueur froide traversa les yeux de Wang Lin. Il interrogea : « Quel est le niveau de culture de cette cible ? »
+Une lueur froide traversa les yeux de Wang Lin. Il interrogea : « Quel est le niveau de cultivation de cette cible ? »
 
 L'homme répondit promptement : « Stade avancé de l'Âme Naissante, à un demi-pas de la Séparation de l'Esprit ! »
 

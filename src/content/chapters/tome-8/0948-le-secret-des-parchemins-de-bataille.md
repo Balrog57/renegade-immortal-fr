@@ -20,7 +20,7 @@ Un rugissement issu des temps anciens résonna à ses oreilles. Puis, une bourra
 
 Il était en transe, avec l'illusion d'être un bateau solitaire luttant contre des vagues tumultueuses.
 
-Pourtant, Xu Ting était un jeune prodige de la famille Xu de la planète Dong Lin. Il était entré dans le bassin céleste où son domaine s'était dissous, mais il en avait retiré son origine céleste. S'il avait vécu dans l'ancien monde de la culture, il aurait été un véritable être céleste !
+Pourtant, Xu Ting était un jeune prodige de la famille Xu de la planète Dong Lin. Il était entré dans le bassin céleste où son domaine s'était dissous, mais il en avait retiré son origine céleste. S'il avait vécu dans l'ancien monde de la cultivation, il aurait été un véritable être céleste !
 
 À cet instant, il prit une profonde inspiration et ses yeux brillèrent d'un éclat vif. Dans cette situation désespérée, il réprima la terreur qui lui serrait le cœur, fixa le parchemin et, de ses mains tremblantes, commença à l'ouvrir lentement.
 
@@ -82,7 +82,7 @@ Les mouvements de Wang Lin n'étaient pas précipités. Après avoir ouvert le p
 
 Le regard de Wang Lin devint glacial alors qu'il fixait la créature s'élançant vers lui et hurla : « Espèce de bête maudite, oses-tu ?! »
 
-Ce rugissement fut comme un coup de tonnerre fendant le ciel, résonnant à travers toute la planète de culture. Même le sommet de la montagne où se tenait Wang Lin trembla, menaçant de s'effondrer. Des fissures apparurent dans la terre environnante, formant de larges crevasses.
+Ce rugissement fut comme un coup de tonnerre fendant le ciel, résonnant à travers toute la planète de cultivation. Même le sommet de la montagne où se tenait Wang Lin trembla, menaçant de s'effondrer. Des fissures apparurent dans la terre environnante, formant de larges crevasses.
 
 S'il avait affronté un puissant cultivateur, Wang Lin n'aurait peut-être pas été assez fort pour l'emporter, mais ce simple esprit de bête antique n'était pas de taille pour ébranler son esprit. En cet instant, Wang Lin était un Dieu Ancien !
 
@@ -92,7 +92,7 @@ La féroce bête laissa échapper un rugissement, puis un gémissement, avant qu
 
 À cet instant, elle ressentit une aura qui la fit trembler devant ce cultivateur. Elle se souvenait distinctement que cette aura était une chose qu'elle n'osait absolument pas provoquer !
 
-Cette scène incroyable fit écarquiller les yeux de Li Yunzi. Même avec son niveau de culture, il ne put s'empêcher d'être stupéfait, mais bientôt, son cœur fut rempli d'extase.
+Cette scène incroyable fit écarquiller les yeux de Li Yunzi. Même avec son niveau de cultivation, il ne put s'empêcher d'être stupéfait, mais bientôt, son cœur fut rempli d'extase.
 
 « Ce Xu Mu a réussi à faire reculer l'esprit de la bête par la peur !! La seule personne dans ma famille Zhan capable d'accomplir cela au fil des âges était l'ancêtre, Zhan Xingye ! » Li Yunzi ignora tout le reste et ne quitta pas Wang Lin des yeux.
 
@@ -106,7 +106,7 @@ Une aura ancienne émanait du mot « Bataille », et à cet instant, une ombre d
 
 C'était toujours cet espace infini peuplé de ce vieil homme vêtu de blanc. Cependant, cette fois, le vieil homme était assis, et sa main droite continuait de tracer le mot « Bataille » dans le vide !
 
-« Ce vieil homme a atteint le royaume du Vide et a saisi la limite du monde. Je n'ai laissé aucun descendant, et toute ma culture est consignée dans le mot "Bataille". En cet instant, avant de tenter de briser les confins du monde, je laisse derrière moi ces six Parchemins de Bataille au cas où j'échouerais et perdrais la vie. Si quelqu'un parvient à obtenir les six parchemins dans le futur, il deviendra l'héritier de ce vieil homme ! »
+« Ce vieil homme a atteint le royaume du Vide et a saisi la limite du monde. Je n'ai laissé aucun descendant, et toute ma cultivation est consignée dans le mot "Bataille". En cet instant, avant de tenter de briser les confins du monde, je laisse derrière moi ces six Parchemins de Bataille au cas où j'échouerais et perdrais la vie. Si quelqu'un parvient à obtenir les six parchemins dans le futur, il deviendra l'héritier de ce vieil homme ! »
 
 Alors que le vieil homme murmurait, sa main droite s'arrêta soudainement. Des milliers et des milliers de caractères « Bataille » de tailles diverses l'entouraient. Le vieil homme pointa du doigt, et tous ces mots chargés d'intention de combat fusionnèrent en un seul caractère devant lui en un clin d'œil !
 

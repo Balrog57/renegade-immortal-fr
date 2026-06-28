@@ -58,7 +58,7 @@ D'un geste de la main, il fit apparaître de plus en plus de filets, couche apr�
 
 Le Grand Ancien fondit soudainement sur lui, la main tendue, déployant sa cinquième Affliction Céleste. Il déchira des dizaines de milliers de couches de ce filet, mais elles se rétablirent instantanément !
 
-« Je dois trouver un endroit sûr pour m'isoler en culture et absorber tout cela. Je ne peux pas poursuivre ce combat ! » Wang Lin recula rapidement, tandis que le talisman menant aux 7 Millions de Mondes apparaissait dans sa main gauche !
+« Je dois trouver un endroit sûr pour m'isoler en cultivation et absorber tout cela. Je ne peux pas poursuivre ce combat ! » Wang Lin recula rapidement, tandis que le talisman menant aux 7 Millions de Mondes apparaissait dans sa main gauche !
 
 Voyant Wang Lin battre en retraite, le Grand Ancien sembla perdre la raison, le sentiment de danger dans son cœur devenant de plus en plus oppressant !
 
@@ -66,7 +66,7 @@ Voyant Wang Lin battre en retraite, le Grand Ancien sembla perdre la raison, le 
 
 Le monde entier résonna de grondements tonitruants tandis que 60 000 des 70 000 couches du filet s'effondraient instantanément. Cependant, alors que le Grand Ancien allait charger, les 60 000 couches se régénérèrent aussitôt !
 
-Toute la culture du Grand Ancien reposait sur le tonnerre et, au début de ce combat, il détenait l'avantage. Mais l'essence du tonnerre de Wang Lin avait tellement augmenté qu'il ne pouvait plus l'affronter de front. Si c'était n'importe quel autre cultivateur de la cinquième Affliction Céleste, tuer Wang Lin aurait été bien plus simple. Mais ce n'était pas le cas ici : tous deux étaient des cultivateurs du tonnerre, et ils se disputaient la suprématie sur l'élément !
+Toute la cultivation du Grand Ancien reposait sur le tonnerre et, au début de ce combat, il détenait l'avantage. Mais l'essence du tonnerre de Wang Lin avait tellement augmenté qu'il ne pouvait plus l'affronter de front. Si c'était n'importe quel autre cultivateur de la cinquième Affliction Céleste, tuer Wang Lin aurait été bien plus simple. Mais ce n'était pas le cas ici : tous deux étaient des cultivateurs du tonnerre, et ils se disputaient la suprématie sur l'élément !
 
 À cet instant, Wang Lin reculait encore plus vite, troublé par le talisman qu'il tenait. Sans avoir le temps de réfléchir, son regard devint d'une détermination absolue !
 
@@ -78,7 +78,7 @@ Le Sort de Vie !
 
 Sacrifier sa propre existence et utiliser sa vitalité pour déclencher un sort imprégné d'une nuance du troisième stade. C'était là la véritable raison pour laquelle les cultivateurs de la cinquième Affliction étaient les plus puissants avant d'atteindre le troisième stade !
 
-Le Grand Ancien n'avait jamais eu à l'utiliser dans ses combats. Sa vitalité était déjà entamée et il devait maintenir sa culture scellée pour ne pas s'épuiser trop vite ; il luttait pour survivre assez longtemps afin de saisir sa chance d'atteindre le troisième stade !
+Le Grand Ancien n'avait jamais eu à l'utiliser dans ses combats. Sa vitalité était déjà entamée et il devait maintenir sa cultivation scellée pour ne pas s'épuiser trop vite ; il luttait pour survivre assez longtemps afin de saisir sa chance d'atteindre le troisième stade !
 
 Mais il n'avait plus le luxe de réfléchir. Une intention meurtrière embrasa ses yeux alors qu'il pointait sa main droite vers le ciel et hurlait :
 

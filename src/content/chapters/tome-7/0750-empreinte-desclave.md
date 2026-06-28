@@ -22,7 +22,7 @@ Le sceau émanant de la statue de pierre occupait l'esprit de Wang Lin. Une lumi
 
 Simultanément, la puissance qui consumait son corps envahit tout son être et dispersa l'empreinte dans son esprit.
 
-Dès qu'il retrouva la lucidité, Wang Lin ouvrit les yeux, le regard empreint d'effroi. Il prit une profonde inspiration et recula de plusieurs pas supplémentaires. Cette statue de pierre était bien trop étrange, mais grâce à ses mille ans de culture, il fut capable de formuler quelques hypothèses.
+Dès qu'il retrouva la lucidité, Wang Lin ouvrit les yeux, le regard empreint d'effroi. Il prit une profonde inspiration et recula de plusieurs pas supplémentaires. Cette statue de pierre était bien trop étrange, mais grâce à ses mille ans de cultivation, il fut capable de formuler quelques hypothèses.
 
 Le sceau de la statue était manifestement un sort céleste, une sorte d'héritage. Cependant, ce qu'il transmettait n'était pas de la puissance, mais une empreinte d'esclave destinée à perdurer sur des générations !
 
@@ -40,13 +40,13 @@ En un instant, la statue de pierre s'effondra en une multitude de fragments. Cep
 
 L'expression de Wang Lin était grave alors qu'il hochait la tête.
 
-Li Yuan poussa un soupir amer et dit lentement : « Il y a fort longtemps, ma famille Li était célèbre dans le système stellaire Allheaven comme l'une des six anciennes familles de culture. Notre clan cultivait le Dao des restrictions. À chaque génération, certains réussissaient à franchir la première étape pour atteindre la seconde.
+Li Yuan poussa un soupir amer et dit lentement : « Il y a fort longtemps, ma famille Li était célèbre dans le système stellaire Allheaven comme l'une des six anciennes familles de cultivation. Notre clan cultivait le Dao des restrictions. À chaque génération, certains réussissaient à franchir la première étape pour atteindre la seconde.
 
 À cette époque, la famille Li était au zénith !
 
-Cependant, après que les ancêtres de ma famille ont pénétré en ce lieu, plus aucune génération future n'a pu franchir la première étape de culture. Le sommet du stade tardif de l'Ascendant était devenu notre limite... C'était comme si le potentiel des membres de la famille était lentement aspiré dès leur naissance...
+Cependant, après que les ancêtres de ma famille ont pénétré en ce lieu, plus aucune génération future n'a pu franchir la première étape de cultivation. Le sommet du stade tardif de l'Ascendant était devenu notre limite... C'était comme si le potentiel des membres de la famille était lentement aspiré dès leur naissance...
 
-De plus, même nos espérances de vie ont commencé à décliner. À royaume de culture égal, les membres de ma famille Li n'ont qu'une longévité correspondant à 30 % de celle des autres... Tout cela est dû à l'empreinte d'esclave ! » Li Yuan se retourna soudainement et fixa la statue avec une haine monstrueuse. Cette rage fut immédiatement remplacée par la mélancolie, et le visage de Li Yuan se crispa dans un combat intérieur.
+De plus, même nos espérances de vie ont commencé à décliner. À royaume de cultivation égal, les membres de ma famille Li n'ont qu'une longévité correspondant à 30 % de celle des autres... Tout cela est dû à l'empreinte d'esclave ! » Li Yuan se retourna soudainement et fixa la statue avec une haine monstrueuse. Cette rage fut immédiatement remplacée par la mélancolie, et le visage de Li Yuan se crispa dans un combat intérieur.
 
 Les yeux de Wang Lin restaient calmes. Il se tenait en retrait, réfléchissant en silence.
 
@@ -54,11 +54,11 @@ Peu de temps après, il sembla que le corps de Li Yuan avait été exposé à un
 
 Li Yuan expira bruyamment et dit amèrement : « Frère Xu, quand mes émotions s'emballent, il devient difficile de contrôler l'empreinte d'esclave.
 
-Au fil des âges, c'est à cause de cette empreinte que la famille Li a progressivement décliné. Les membres du clan sont morts les uns après les autres, et leur culture est restée bloquée à la première étape. Nous avons lentement perdu notre gloire passée...
+Au fil des âges, c'est à cause de cette empreinte que la famille Li a progressivement décliné. Les membres du clan sont morts les uns après les autres, et leur cultivation est restée bloquée à la première étape. Nous avons lentement perdu notre gloire passée...
 
 Jusqu'à ce qu'il y ait des dizaines de milliers d'années, ma famille Li ait vu naître un génie incomparable ; il possédait un talent bien supérieur à celui de tous nos ancêtres. Il avait une compréhension terrifiante des restrictions. S'il était né avant que la famille Li ne soit marquée par l'empreinte, il serait devenu l'être le plus puissant de notre lignée !
 
-Bien que la culture de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il sacrifia sa propre longévité pour quitter le système stellaire Allheaven. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
+Bien que la cultivation de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il sacrifia sa propre longévité pour quitter le système stellaire Allheaven. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
 
 Dans le système stellaire Alliance, il échangea ses connaissances contre un parchemin appartenant à un puissant cultivateur. Dans le système stellaire Cloud Dust, sous le Royaume Céleste du Vent, il troqua les économies de la famille contre une boussole.
 
@@ -68,7 +68,7 @@ Il utilisa cette épée pour rassembler les âmes, les condensa avec la boussole
 
 Hélas, plus aucune nouvelle de l'ancêtre ne parvint. Dès lors, ma famille sombra dans le désespoir et déclinâ encore davantage. Les membres moururent les uns après les autres. L'empreinte d'esclave était comme une malédiction qui persistait cycle après cycle de réincarnation, et ma famille Li ne put jamais s'en libérer... À ce jour, en me comptant, il ne reste plus que trois membres dans la lignée Li... »
 
-La voix de Li Yuan était empreinte d'une immense tristesse. Il se retourna brusquement et ajouta d'un ton sombre : « Ce n'est qu'il y a mille ans que mon père découvrit par hasard l'épée de fer sur une planète de culture isolée ! Si cela n'avait été que cela, ce ne serait pas grand-chose. Après tout, tant de temps s'était écoulé que nous ne pouvions affirmer qu'elle appartenait à notre ancêtre.
+La voix de Li Yuan était empreinte d'une immense tristesse. Il se retourna brusquement et ajouta d'un ton sombre : « Ce n'est qu'il y a mille ans que mon père découvrit par hasard l'épée de fer sur une planète de cultivation isolée ! Si cela n'avait été que cela, ce ne serait pas grand-chose. Après tout, tant de temps s'était écoulé que nous ne pouvions affirmer qu'elle appartenait à notre ancêtre.
 
 Mais cette épée de fer fut raffinée avec la moitié des âmes de ma famille. Mon père put déceler d'un seul regard la colère et le ressentiment de nos morts. »
 
@@ -76,7 +76,7 @@ La main droite de Li Yuan s'étira et, après un éclat de lumière, un vortex a
 
 « La famille qui possédait l'épée de fer portait le nom de Ge ! » Les yeux de Li Yuan devinrent venimeux, saturés de haine.
 
-« Si c'était autrefois, quand la famille Li était encore puissante, anéantir une lignée comme les Ge n'aurait été qu'un jeu d'enfant. Mais aujourd'hui, la culture de ma famille est bloquée au sommet du stade tardif de l'Ascendant et, malgré notre maîtrise des restrictions, nous ne pouvons vaincre les Ge qui comptent deux cultivateurs de la seconde étape.
+« Si c'était autrefois, quand la famille Li était encore puissante, anéantir une lignée comme les Ge n'aurait été qu'un jeu d'enfant. Mais aujourd'hui, la cultivation de ma famille est bloquée au sommet du stade tardif de l'Ascendant et, malgré notre maîtrise des restrictions, nous ne pouvons vaincre les Ge qui comptent deux cultivateurs de la seconde étape.
 
 Il y a quelques années, je me suis infiltré sous une fausse identité au sein de la famille Ge. J'ai alors tout découvert... » Li Yuan leva les yeux vers le ciel avec amertume.
 
@@ -84,7 +84,7 @@ Il y a quelques années, je me suis infiltré sous une fausse identité au sein 
 
 Sur ces mots, la main droite de Li Yuan s'élança et saisit immédiatement Ge Hong. Il lui agrippa le front ; les yeux de la jeune femme étaient remplis de désespoir. Elle voulut dire quelque chose, mais resta muette.
 
-Wang Lin fronça les sourcils et dit calmement : « Cher compagnon de culture Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici ? »
+Wang Lin fronça les sourcils et dit calmement : « Cher compagnon de cultivation Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici ? »
 
 Li Yuan se tourna vers Wang Lin et répondit avec calme : « J'ai observé le combat du frère Xu contre ce cultivateur de l'Illusoire Yin grâce à mes restrictions. L'un des sorts du frère Xu est extrêmement précieux pour moi. Soyez sans crainte, je ne vous demanderai pas votre aide gratuitement. Une fois cette affaire conclue, je vous offrirai la Restriction des 18 Prunes dans son intégralité, ainsi que la Restriction d'Annihilation de ma famille en compensation ! Pour l'instant, je demande au frère Xu de ne pas s'impatienter, car je dois d'abord offrir un sacrifice aux âmes de mes ancêtres ! »
 

@@ -34,13 +34,13 @@ Si l'âme originelle de Wang Lin pouvait quitter son propre corps, il serait tou
 
 Ce type de contrôle était inutilisable au combat. En réalité, même si l'âme originelle de Wang Lin parvenait à en prendre le contrôle, il ne pourrait pas l'utiliser comme son propre corps, car les restes de l'âme originelle du Daoïste du Tonnerre rejetteraient sa volonté.
 
-Une fois la première étape du raffinage atteinte, seule l'âme originelle d'origine pouvait contrôler librement le corps. Dès lors que la troisième étape — celle du raffinage de l'âme originelle — échouait, plus personne ne pouvait le maîtriser, à moins qu'un être doté d'une culture de plusieurs rangs supérieure ne s'en emparât pour en faire son propre corps.
+Une fois la première étape du raffinage atteinte, seule l'âme originelle d'origine pouvait contrôler librement le corps. Dès lors que la troisième étape — celle du raffinage de l'âme originelle — échouait, plus personne ne pouvait le maîtriser, à moins qu'un être doté d'une cultivation de plusieurs rangs supérieure ne s'en emparât pour en faire son propre corps.
 
 Le regard de Wang Lin resta serein alors qu'il remettait le second gardien céleste dans son sac et regagnait la grotte.
 
 Il avait trop de choses à accomplir ; le gardien céleste n'était que l'une d'entre elles. Après avoir stabilisé son esprit, l'irritation causée par cet échec disparut.
 
-« Je dois augmenter mon niveau de culture afin qu'il soit en adéquation avec mon domaine ! » À l'intérieur de la grotte, Wang Lin s'assit en position de lotus, le regard brillant de détermination.
+« Je dois augmenter mon niveau de cultivation afin qu'il soit en adéquation avec mon domaine ! » À l'intérieur de la grotte, Wang Lin s'assit en position de lotus, le regard brillant de détermination.
 
 Il avait déjà mis de côté les trois âmes primaires ultimes ainsi que la formation d'épées des sept étoiles. Cependant, les rayons d'énergie d'épée de Ling Tianhou, le gardien céleste et la Bête du Tonnerre se trouvaient toujours dans la grotte.
 
@@ -88,7 +88,7 @@ Lorsqu'il tenta de l'examiner avec son sens divin, un éclair jaillit pour bloqu
 
 Cependant, cela n'eut aucun effet sur lui.
 
-L'éclair contenait une parcelle de tonnerre céleste, la véritable puissance du tonnerre divin. Il était évident que, sans pratiquer les méthodes de culture du Temple Céleste du Tonnerre, il était impossible de percer le secret de ce jade.
+L'éclair contenait une parcelle de tonnerre céleste, la véritable puissance du tonnerre divin. Il était évident que, sans pratiquer les méthodes de cultivation du Temple Céleste du Tonnerre, il était impossible de percer le secret de ce jade.
 
 Mais Wang Lin avait autrefois dévoré un ancien dragon du tonnerre ; le tonnerre qu'il maîtrisait était d'un niveau supérieur. L'énergie tonnerreuse de son âme originelle s'anima et pénétra le jade. Il brisa aisément la barrière et put voir ce qu'il contenait.
 

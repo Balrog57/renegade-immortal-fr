@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1414 - Fame of the Fallen Land
 slug: la-renommee-des-terres-dechues
 ---
-Le Feu Éthéré est invisible et peut enflammer toutes les émotions. Cependant, ce feu ne peut être utilisé que pour blesser des ennemis et ne peut pas augmenter le niveau de culture d'un membre du Clan de l'Oiseau Vermillon.
+Le Feu Éthéré est invisible et peut enflammer toutes les émotions. Cependant, ce feu ne peut être utilisé que pour blesser des ennemis et ne peut pas augmenter le niveau de cultivation d'un membre du Clan de l'Oiseau Vermillon.
 
 Le Feu Éthéré est un feu capable d'anéantir le monde ! Il peut tuer, mais ne peut être extrait du corps du cultivateur. Puisqu'il est invisible, il peut durer éternellement.
 
@@ -62,7 +62,7 @@ Après un bref moment de silence, les dix mille cultivateurs environnants éclat
 
 « La deuxième baguette d'encens s'est réellement fendue en deux ! C'est... »
 
-« Quel est le niveau de culture de ce troisième Jeune Empereur pour accomplir une telle prouesse ? L'extinction de la première baguette était déjà choquante, mais rien n'est comparable à la fracture de la seconde ! »
+« Quel est le niveau de cultivation de ce troisième Jeune Empereur pour accomplir une telle prouesse ? L'extinction de la première baguette était déjà choquante, mais rien n'est comparable à la fracture de la seconde ! »
 
 « Je crains que cela ne soit pas lié au troisième Jeune Empereur, je pense que c'est dû au brouillard magnétique ! Mais pourquoi le brouillard est-il soudainement entré dans l'encens... »
 

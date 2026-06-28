@@ -12,7 +12,7 @@ Ce n'était qu'une illusion, car le vent et le sable continuaient pourtant de to
 
 Cependant, malgré cela, son sens divin provoqua une onde de choc qui ébranla les âmes de tous les cultivateurs du Secte de la Terre.
 
-Sous l'influence de son sens divin, plus le niveau de culture était élevé, plus la pression était ressentie. L'Ancien du Secte de la Terre se trouvait au stade d'Exalt Doré. Bien que le Maître du Secte n'ait pas atteint ce stade, il était néanmoins un cultivateur de fin de niveau Tribulation du Vide.
+Sous l'influence de son sens divin, plus le niveau de cultivation était élevé, plus la pression était ressentie. L'Ancien du Secte de la Terre se trouvait au stade d'Exalt Doré. Bien que le Maître du Secte n'ait pas atteint ce stade, il était néanmoins un cultivateur de fin de niveau Tribulation du Vide.
 
 Ils étaient les deux piliers les plus puissants du Secte de la Terre.
 
@@ -24,7 +24,7 @@ En revanche, l'expression du Maître du Secte de la Terre changea radicalement. 
 
 Il n'osait pas rester, il n'osait pas désobéir !
 
-L'Exalt Doré du Secte de la Terre était également présent. Il pratiquait une culture en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
+L'Exalt Doré du Secte de la Terre était également présent. Il pratiquait une cultivation en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
 
 L'Ancien Exalt Doré du Secte de la Terre ouvrit les yeux, le regard empreint de choc et de terreur.
 
@@ -52,7 +52,7 @@ Tandis qu'il parlait, le Maître du Secte arriva également, mais son visage pâ
 
 « Ce junior n'avait pas remarqué l'arrivée du Senior, j'espère que vous pourrez me pardonner. Si le Senior n'y voit pas d'inconvénient, je vous prie de bien vouloir entrer dans le Secte de la Terre afin que ce junior puisse vous rendre ses hommages. » L'Exalt Doré Zheng Tianlin se montrait extrêmement respectueux, n'osant aucune impolitesse par crainte d'offenser ce terrifiant Exalt Céleste.
 
-Il n'osait même pas déployer son sens divin pour sonder le niveau de culture de Wang Lin ; il aurait été très irrespectueux qu'un cultivateur plus faible s'autorise une telle intrusion auprès d'un être aussi puissant.
+Il n'osait même pas déployer son sens divin pour sonder le niveau de cultivation de Wang Lin ; il aurait été très irrespectueux qu'un cultivateur plus faible s'autorise une telle intrusion auprès d'un être aussi puissant.
 
 Grâce à ce sens divin terrifiant, il pouvait déduire sans l'ombre d'un doute que l'individu devant lui était un Exalt Céleste. La présence du dragon marin de rang Exalt Doré faisait également trembler son cœur.
 

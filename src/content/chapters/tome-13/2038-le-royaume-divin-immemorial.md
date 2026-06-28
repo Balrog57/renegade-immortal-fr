@@ -20,7 +20,7 @@ La formation était située ici afin d'absorber l'aura de mort provenant du pala
 
 Wang Lin avait déjà vu ce genre de sortilège par le passé. Dans le Palais Céleste, il avait rencontré quelque chose de similaire.
 
-En cet instant, il brûlait son soleil d'Empyrée en échange du pouvoir nécessaire pour briser le vide. Il comptait utiliser la puissance de son corps et sa culture pour forcer la barrière et pénétrer dans cet espace.
+En cet instant, il brûlait son soleil d'Empyrée en échange du pouvoir nécessaire pour briser le vide. Il comptait utiliser la puissance de son corps et sa cultivation pour forcer la barrière et pénétrer dans cet espace.
 
 Ce sortilège ressemblait à celui permettant de sortir du monde caverneux pour entrer directement sur le Continent Astral Immortel. C'était comme franchir la frontière entre deux mondes, une prouesse difficile même pour les Grands Empyréens, à moins qu'une entrée n'ait été préalablement créée, comme au Palais Céleste. Cependant, Wang Lin tentait ici de forcer le passage, ce qui s'avérait extrêmement ardu.
 

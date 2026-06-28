@@ -14,7 +14,7 @@ Des traces de larmes marquaient encore son visage alors qu'elle mordillait sa l�
 
 « Il y a des choses dans ce monde qui n'ont aucune logique, et l'on ne peut que se fier à ses sentiments. Peu importe que cela en vaille la peine ou non, il fallait le faire... » Elle poussa un soupir, endurant la tristesse et l'amertume qui lui serraient le cœur, puis vola plus vite encore.
 
-Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de culture était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
+Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de cultivation était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
 
 À l'intérieur du palais, Mu Bingmei restait assise, le regard perdu dans le vide. Son beau visage affichait une expression d'indifférence.
 
@@ -102,7 +102,7 @@ La main se redressa après cette pause, et une exclamation étouffée parvint du
 
 Une voix ancienne émergea de la brume alors qu'une pression colossale descendait soudainement du ciel : « Tu as du talent ! Cependant, comment une luciole peut-elle se comparer à la lune ? Comment oses-tu t'élever devant moi ? Redescends ! »
 
-Cette pression était d'une puissance extrême. Si un cultivateur Briseur de Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
+Cette pression était d'une puissance extrême. Si un cultivateur Briseur de Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de cultivation s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
 
 Il n'avait absolument aucun moyen de résister !
 

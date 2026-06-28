@@ -14,7 +14,7 @@ En raison du fait que toute la Mer des Pillules était scellée et que le nombre
 
 Le massacre faisait rage sous le rugissement de la Mer des Pillules. L'odeur du sang attira lentement les bêtes féroces qui rôdaient dans les profondeurs.
 
-C'était un carnage, un massacre entre des niveaux de culture inégaux. Les cultivateurs en robes vertes étaient de haut niveau et suivaient strictement leurs ordres pour anéantir tous les cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pillules !
+C'était un carnage, un massacre entre des niveaux de cultivation inégaux. Les cultivateurs en robes vertes étaient de haut niveau et suivaient strictement leurs ordres pour anéantir tous les cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pillules !
 
 De l'autre côté de la mer, près du Continent du Démon Vert, trois grands drapeaux étaient plantés dans l'eau. Sous ces étendards se tenaient des milliers de cultivateurs qui fixaient l'horizon d'un regard glacial et silencieux.
 

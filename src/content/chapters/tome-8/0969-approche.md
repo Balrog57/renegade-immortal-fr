@@ -54,7 +54,7 @@ Cependant, le moment était venu de s'en servir !
 
 Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre ! Même Ghost Eye City fut affectée : de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
 
-À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Lou ! Il n'y avait qu'une seule secte sur cette planète : le Secte de l'Épée Da Lou !
+À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de cultivation nommée Da Lou ! Il n'y avait qu'une seule secte sur cette planète : le Secte de l'Épée Da Lou !
 
 Le Secte de l'Épée Da Lou occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que le Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
 

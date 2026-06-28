@@ -54,11 +54,11 @@ Les yeux de l'homme en robe rouge révélèrent une lueur mystérieuse ; il rit 
 
 L'homme d'âge moyen en robe noire afficha un regard déterminé. Il pensait que ce clone n'était pas nécessaire, mais il devait expérimenter l'attaque ultime de cette bête. Peut-être obtiendrait-il une récolte inattendue de cette expérience !
 
-Une fois son niveau de culture atteint, progresser devenait extrêmement difficile. À ses yeux, c'était peut-être sa chance !
+Une fois son niveau de cultivation atteint, progresser devenait extrêmement difficile. À ses yeux, c'était peut-être sa chance !
 
 En chargeant, ses mains formèrent un sceau et il se mua en un aigle noir. Bien que cet aigle ne fût qu'une illusion, il dégageait une aura antique alors qu'il fonçait droit sur le doigt du dieu antique.
 
-Un bang d'une puissance inimaginable secoua tout le Domaine Nord. C'était comme si le Domaine Nord entier s'effondrait. Tous les cultivateurs des planètes de culture ressentirent ce son résonner dans leur esprit.
+Un bang d'une puissance inimaginable secoua tout le Domaine Nord. C'était comme si le Domaine Nord entier s'effondrait. Tous les cultivateurs des planètes de cultivation ressentirent ce son résonner dans leur esprit.
 
 Le dragon de flammes s'effondra !
 
@@ -90,7 +90,7 @@ Après une longue méditation silencieuse, la main droite de Dieu Sang agrippa l
 
 Le nom de « Maître Démon Xu Mu » était désormais connu de tous les cultivateurs après la tragédie du Domaine Nord ! Malgré la poursuite de la famille Yao et d'innombrables autres cultivateurs, non seulement il n'était pas mort, mais il avait utilisé l'immense bête pour mener une contre-attaque terrifiante !
 
-Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire Allheaven. Aucune famille de culture ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
+Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire Allheaven. Aucune famille de cultivation ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
 
 Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire Allheaven : Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue !
 

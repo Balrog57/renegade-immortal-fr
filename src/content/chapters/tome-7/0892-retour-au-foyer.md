@@ -38,7 +38,7 @@ Dès que Zhou Wutai perçut ce sens divin, son corps trembla et son esprit fut b
 
 « Je ne pensais pas qu'il serait devenu aussi puissant en seulement quelques centaines d'années... » Zhou Wutai était, après tout, le Suzaku ; il réprima rapidement le choc de son cœur. Il joignit les mains en signe de respect envers Yun Quezi, puis partit avec ses hommes.
 
-Les émotions de Yun Quezi étaient encore plus tourmentées. Le sens divin de Wang Lin l'avait également fait frissonner. Le petit garçon d'autrefois avait atteint un niveau de culture inimaginable. Il poussa un soupir, ayant l'impression de pouvoir encore voir la silhouette du jeune homme qui payait ses boissons au restaurant.
+Les émotions de Yun Quezi étaient encore plus tourmentées. Le sens divin de Wang Lin l'avait également fait frissonner. Le petit garçon d'autrefois avait atteint un niveau de cultivation inimaginable. Il poussa un soupir, ayant l'impression de pouvoir encore voir la silhouette du jeune homme qui payait ses boissons au restaurant.
 
 Il songea à la bataille entre lui et Zhu Quezi, au conflit entre le Clan des Immortels Abandonnés et le pays de Suzaku. Désormais, tout cela semblait si insignifiant...
 
@@ -110,7 +110,7 @@ Le serveur fut déconcerté, mais ne prit pas cela au sérieux.
 
 Alors que Wang Lin marchait, aucun lieu ne lui parut familier. Tout était étranger. C'était comme si quelque chose obstruait son cœur et le plongeait dans un profond malaise.
 
-Soudain, Wang Lin eut un frisson. Ses mille ans de culture devinrent extrêmement fragiles et commencèrent à vaciller en lui.
+Soudain, Wang Lin eut un frisson. Ses mille ans de cultivation devinrent extrêmement fragiles et commencèrent à vaciller en lui.
 
 Il était comme un homme ayant quitté son foyer depuis une éternité. Puis, après avoir côtoyé tous ces inconnus, il aperçut soudain quelque chose de familier.
 

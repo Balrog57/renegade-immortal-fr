@@ -64,7 +64,7 @@ Wang Lin ne put s'empêcher de rire amèrement face à cette remarque. Il fixa l
 
 Le fou fut stupéfait un instant, puis observa attentivement la Bête des Enfers qui les poursuivait. Son visage pâlit aussitôt et il secoua la tête.
 
-« Malheureusement, je n'ai que de la culture, mais aucun sort pour manifester ma puissance. Si seulement j'avais ces sorts pour chasser la bête... » soupira Wang Lin.
+« Malheureusement, je n'ai que de la cultivation, mais aucun sort pour manifester ma puissance. Si seulement j'avais ces sorts pour chasser la bête... » soupira Wang Lin.
 
 « Oui, que devons-nous faire ? Je vais mourir, je vais être mangé. C'est la fin... » Le fou tremblait, les yeux emplis de désespoir.
 
@@ -80,7 +80,7 @@ L'expression de Wang Lin resta imperturbable, mais son rythme cardiaque s'accél
 
 Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le maître du second Oiseau Vermillon ne pouvait enseigner et qu'il avait dû apprendre en secret.
 
-Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément ; il exigerait de nombreuses années de culture en porte close et une profonde compréhension.
+Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément ; il exigerait de nombreuses années de cultivation en porte close et une profonde compréhension.
 
 La main gauche de Wang Lin forma un sceau et des millions de restrictions apparurent. La version volée de l'Ombrelle Brûlante du Royaume se manifesta.
 
@@ -94,7 +94,7 @@ Une fois terminé, il parut encore incertain. Juste à ce moment, les moustaches
 
 Wang Lin ne pouvait se résoudre à trop presser le fou. S'il n'avait pas été impérieux de récupérer ces sorts, il ne l'aurait pas poussé ainsi. Il éprouvait un profond regret envers lui, mais la graine du karma était semée. Bien que cela fût un peu sans gêne, Wang Lin rembourserait cela au centuple à l'avenir !
 
-Sur le chemin de la culture, une fois sa décision prise, il n'hésitait jamais ; c'était là la voie de Wang Lin. La fortune que ce fou lui offrait serait gravée à jamais dans son cœur. Même si cela devait lui porter préjudice plus tard, il ne reculerait pas ! Car il croyait fermement qu'il se devait de rendre toute bonté reçue.
+Sur le chemin de la cultivation, une fois sa décision prise, il n'hésitait jamais ; c'était là la voie de Wang Lin. La fortune que ce fou lui offrait serait gravée à jamais dans son cœur. Même si cela devait lui porter préjudice plus tard, il ne reculerait pas ! Car il croyait fermement qu'il se devait de rendre toute bonté reçue.
 
 Après avoir mémorisé la Lance aux Sept Couleurs et l'Arc de Li Guang, Wang Lin s'arrêta soudainement. Il leva sa main gauche et pressa la Bête des Enfers.
 

@@ -30,9 +30,9 @@ Elle regarda Wang Lin et dit calmement : « Cet endroit est le palais interdit. 
 
 « La personne que nous avons choisie est Lian Daofei ! »
 
-« Il porte le lignage de l'Ancêtre Céleste et a hérité d'une partie de sa culture. Notre clan a également planté une graine en lui au fil des ans. Une fois activée, il deviendra un Grand Empyre grâce à l'héritage de l'Ancêtre Céleste qu'il a absorbé ! »
+« Il porte le lignage de l'Ancêtre Céleste et a hérité d'une partie de sa cultivation. Notre clan a également planté une graine en lui au fil des ans. Une fois activée, il deviendra un Grand Empyre grâce à l'héritage de l'Ancêtre Céleste qu'il a absorbé ! »
 
-« Avec sa culture de Grand Empyre et le sort secret de notre clan, un effet de suppression pourra être maintenu. C'est pourquoi vous ne pouvez pas l'emmener... Si vous tentez de le prendre par la force, alors... je devrai également vous arrêter », dit doucement Hai Zi.
+« Avec sa cultivation de Grand Empyre et le sort secret de notre clan, un effet de suppression pourra être maintenu. C'est pourquoi vous ne pouvez pas l'emmener... Si vous tentez de le prendre par la force, alors... je devrai également vous arrêter », dit doucement Hai Zi.
 
 Gemini soupira en regardant Wang Lin et reprit pour la seconde fois : « Wang Lin, laisse Lian Daofei ici. Sa vie ne sera pas en danger ; il restera ici pour supprimer les 72 esprits. »
 

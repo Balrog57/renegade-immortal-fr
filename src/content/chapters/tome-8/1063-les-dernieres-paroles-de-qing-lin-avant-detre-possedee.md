@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1063 - Qing Lins Words Before Being Possessed
 slug: les-dernieres-paroles-de-qing-lin-avant-detre-possedee
 ---
-Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de la chute de sa culture, il chargea Wang Lin.
+Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de la chute de sa cultivation, il chargea Wang Lin.
 
 « Petit bâtard, je vais te dépécer vivant aujourd'hui ! »
 

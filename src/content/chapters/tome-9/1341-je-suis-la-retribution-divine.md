@@ -108,7 +108,7 @@ Un vieil homme au stade avancé de l'Âme Naissante fut stupéfait et demanda av
 
 « Il est différent de ceux qui se prétendent rétribution divine... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant ; il était au stade de la Purification Nirvana !
 
-Une telle chose devrait être impossible dans les 7 Millions de Mondes ! Cela ne devrait jamais arriver ! Si le Clan Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation !
+Une telle chose devrait être impossible dans les 7 Millions de Mondes ! Cela ne devrait jamais arriver ! Si le Clan Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa cultivation en retraite pour vérifier la situation !
 
 Au même moment, sur la planète où se trouvait Wang Lin, Xu Liguo rassemblait joyeusement des ressources avec des milliers de personnes. Son trône mesurait désormais près de 10 000 pieds de large et était entouré de magnifiques cultivatrices !
 

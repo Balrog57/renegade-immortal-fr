@@ -36,7 +36,7 @@ Li Muwan fixa la personne derrière Zhan Bai. Elle ne pouvait retenir ses larmes
 
 « Wang Lin... »
 
-Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument pas remarqué cet homme, ce qui signifiait que son niveau de culture était supérieur au sien.
+Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument pas remarqué cet homme, ce qui signifiait que son niveau de cultivation était supérieur au sien.
 
 Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla : « Toi... Ceng Niu ! »
 

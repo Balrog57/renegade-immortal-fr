@@ -48,7 +48,7 @@ Chen Tao tendit la fleur vers l'Omniscient et dit respectueusement : « C'est à
 
 La fleur vola lentement vers l'Omniscient et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit : « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle bourgeonne et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 
-« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Culture. Ancien Sun, ne me trompe-je pas ? » L'Omniscient tourna son regard vers l'Ancien Sun.
+« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Cultivation. Ancien Sun, ne me trompe-je pas ? » L'Omniscient tourna son regard vers l'Ancien Sun.
 
 L'Ancien Sun esquissa un léger sourire et hocha la tête. « C'est exact. C'est bien le Glaçage aux Sept Couleurs, mais elle n'est pas encore complète ; la dernière feuille ne s'est pas encore formée. Toutefois, avec les sorts de l'Omniscient, il ne faudra pas longtemps pour que sa septième feuille apparaisse également. »
 
@@ -66,7 +66,7 @@ Chen Tao regarda Zhao Xinmeng, jeta un bref coup d'œil à Wang Lin, puis ne lui
 
 Zhao Xinmeng poussa un soupir et envoya une transmission vocale. Le visage de Chen Tao se durcit. Il tourna brusquement la tête vers elle avant de balayer Wang Lin du regard : « Tu es le Septième Frère ? Dis ton nom ! »
 
-« Wang Lin ! » Les yeux de Wang Lin étaient sereins. Dès l'apparition de Chen Tao, celui-ci n'avait pas caché sa culture. Wang Lin pouvait vaguement percevoir que sa puissance dépassait le stade de la Transformation de l'Âme pour atteindre celui de l'Ascendant.
+« Wang Lin ! » Les yeux de Wang Lin étaient sereins. Dès l'apparition de Chen Tao, celui-ci n'avait pas caché sa cultivation. Wang Lin pouvait vaguement percevoir que sa puissance dépassait le stade de la Transformation de l'Âme pour atteindre celui de l'Ascendant.
 
 Quant au niveau exact de son Ascension, Wang Lin ne pouvait le déterminer.
 

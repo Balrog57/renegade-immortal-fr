@@ -48,7 +48,7 @@ Wang Lin réprima le choc qui agitait son cœur et demanda calmement : « Pourqu
 
 Les paroles de Wang Lin plongèrent l'arbre géant dans le silence. Après un long moment, un murmure s'éleva de la vieille essence végétale.
 
-« Il y a fort longtemps, il n'y avait ni Royaume Intérieur ni Royaume Extérieur dans le Système Stellaire Antique. Dans cet immense système, il existait un lieu sacré nommé le Royaume Céleste Antique. Ce royaume régnait sur le Système Stellaire Antique et y recueillait les êtres. Tous les êtres vivants, après avoir atteint un niveau de culture assez élevé pour ouvrir leur propre espace, pouvaient entrer dans le Royaume Céleste Antique et en devenir membres...
+« Il y a fort longtemps, il n'y avait ni Royaume Intérieur ni Royaume Extérieur dans le Système Stellaire Antique. Dans cet immense système, il existait un lieu sacré nommé le Royaume Céleste Antique. Ce royaume régnait sur le Système Stellaire Antique et y recueillait les êtres. Tous les êtres vivants, après avoir atteint un niveau de cultivation assez élevé pour ouvrir leur propre espace, pouvaient entrer dans le Royaume Céleste Antique et en devenir membres...
 
 « Tout fonctionnait harmonieusement, jusqu'à ce qu'un trésor provenant d'un système stellaire étranger provoque un bouleversement catastrophique !
 
@@ -60,7 +60,7 @@ Tandis que Wang Lin écoutait cette voix ancestrale, une onde de choc déferla s
 
 Le Royaume Céleste Antique s'était brisé, entraînant la division du Système Stellaire Antique en deux entités distinctes !
 
-« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en culture de porte close et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de la Concubine Céleste. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique !
+« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en cultivation de porte close et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de la Concubine Céleste. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique !
 
 « En tant qu'Ancien Dao Céleste, je suis descendu du Royaume Céleste Antique pour régner sur le Royaume Intérieur afin de repousser l'invasion du Royaume Extérieur et les combattre ! Cependant, avant que je ne puisse accomplir ma mission, j'ai été trahi par mon esclave Dao. J'ai été gravement blessé par les gens et les anciens célestes du Royaume Extérieur. Finalement, une concubine céleste a porté l'estocade, détruisant mon corps. J'ai été contraint d'entrer dans la Perle Défiant le Ciel et de subsister en tant qu'esprit du trésor... »
 
@@ -70,13 +70,13 @@ Le cœur de Wang Lin chancela, et il demanda promptement : « Qu'est-ce que la P
 
 « Cependant, je ne fus pas le premier maître de la Perle Défiant le Ciel. Au cours de mes innombrables années d'étude, j'ai découvert qu'il y eut deux autres possesseurs. Chacun d'eux était bien plus puissant que moi... Ils devaient être des cultivateurs d'un système stellaire étranger !
 
-« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole ! Hélas, l'Empereur Céleste est en culture de porte close ; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel : l'emplacement du Royaume des Dieux Anciens ! »
+« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole ! Hélas, l'Empereur Céleste est en cultivation de porte close ; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel : l'emplacement du Royaume des Dieux Anciens ! »
 
 « Le Royaume des Dieux Anciens ! » Wang Lin accumulait des secrets de plus en plus vertigineux. Il venait d'apprendre l'origine du Royaume Céleste Antique et de la Perle Défiant le Ciel ; voilà qu'on lui parlait maintenant du Royaume des Dieux Anciens !
 
-« Le Royaume des Dieux Anciens doit exister... Je n'en sais pas grand-chose non plus... À l'heure actuelle, je devrais être mort, mais ma mission n'est pas achevée. L'Empereur Céleste est toujours en culture de porte close et le Royaume Céleste Antique demeure scellé. Nous ne devons pas laisser les gens du Royaume Extérieur entrer ; sinon, les conséquences seront impensables !
+« Le Royaume des Dieux Anciens doit exister... Je n'en sais pas grand-chose non plus... À l'heure actuelle, je devrais être mort, mais ma mission n'est pas achevée. L'Empereur Céleste est toujours en cultivation de porte close et le Royaume Céleste Antique demeure scellé. Nous ne devons pas laisser les gens du Royaume Extérieur entrer ; sinon, les conséquences seront impensables !
 
-« Les deux autres personnes qui sont entrées ici ne sont pas devenues les maîtres de la Perle Défiant le Ciel ; elles ne sont que mes pions. Mais toi, tu es différent. Tu as fait en sorte que la Perle Défiant le Ciel t'accepte comme maître, c'est pourquoi je veux t'aider. Je veux que tu deviennes le Seigneur du Domaine Scellé et que tu le protèges pour moi. Résiste à l'invasion du Royaume Extérieur jusqu'à ce que l'Empereur Céleste sorte de sa culture de porte close, jusqu'à ce que le sceau du Royaume Céleste Antique s'ouvre !
+« Les deux autres personnes qui sont entrées ici ne sont pas devenues les maîtres de la Perle Défiant le Ciel ; elles ne sont que mes pions. Mais toi, tu es différent. Tu as fait en sorte que la Perle Défiant le Ciel t'accepte comme maître, c'est pourquoi je veux t'aider. Je veux que tu deviennes le Seigneur du Domaine Scellé et que tu le protèges pour moi. Résiste à l'invasion du Royaume Extérieur jusqu'à ce que l'Empereur Céleste sorte de sa cultivation de porte close, jusqu'à ce que le sceau du Royaume Céleste Antique s'ouvre !
 
 « Une fois que je t'aurai aidé, je me dissiperai totalement. Je me transformerai en un trésor du Royaume de Nirvana et fusionnerai avec le cœur de la Formation du Domaine Scellé pour la renforcer et te donner plus de temps pour croître !
 
@@ -102,6 +102,6 @@ Pour un cultivateur, six ans ne sont qu'un battement de cils, un instant fugace.
 
 Bien qu'elle fût toujours belle, elle paraissait souffrante et s'était considérablement affinée. Cependant, ses yeux brillaient toujours de détermination et de persévérance.
 
-Désormais, elle disposait de moins de deux heures de repos par jour. Elle consacrait ces deux heures à une culture acharnée, s'efforçant de recouvrer un peu de vitalité avant de devoir recouvrir à nouveau la statue de sang.
+Désormais, elle disposait de moins de deux heures de repos par jour. Elle consacrait ces deux heures à une cultivation acharnée, s'efforçant de recouvrer un peu de vitalité avant de devoir recouvrir à nouveau la statue de sang.
 
 Sa silhouette fragile ressemblait à une fleur fanée. Quiconque la voyait ne pouvait qu'être pris d'une profonde compassion pour elle.

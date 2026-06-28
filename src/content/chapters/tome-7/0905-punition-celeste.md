@@ -18,7 +18,7 @@ Au moment précis de sa disparition, un réseau de transfert apparut dans le bas
 
 Sur une planète de la secte de Suzaku, un homme ressemblant à Huanglong discutait avec sourire avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
 
-Après un long moment, il détourna les yeux et pensa : « Peu importe, il n'y a rien qu'il ne puisse voir dans la 17e couche. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite ; il ne pourra pas pénétrer dans la 18e. »
+Après un long moment, il détourna les yeux et pensa : « Peu importe, il n'y a rien qu'il ne puisse voir dans la 17e couche. La cultivation de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite ; il ne pourra pas pénétrer dans la 18e. »
 
 Dans la 16e couche du Cimetière des Immortels, Ta Shan entra dans le réseau de transfert et disparut. Wang Lin attendit un instant pour s'assurer de l'absence de danger avant d'y pénétrer à son tour. Le garçon à la grosse tête, Lei Ji et Yun Quezi s'engouffrèrent rapidement eux aussi dans le dispositif.
 
@@ -74,7 +74,7 @@ Une telle torture avait engendré une haine absolue envers les Célestes, une ha
 
 « Ceci... » Yun Quezi contemplait la scène, stupéfait, incapable de prononcer le moindre mot pendant un long moment.
 
-« Ce sont des Célestes. De leur vivant, leurs niveaux de culture étaient tous supérieurs aux miens ! » Le garçon à la grosse tête, se sentant le plus lié à ce lieu, éprouvait une agitation inexplicable.
+« Ce sont des Célestes. De leur vivant, leurs niveaux de cultivation étaient tous supérieurs aux miens ! » Le garçon à la grosse tête, se sentant le plus lié à ce lieu, éprouvait une agitation inexplicable.
 
 Soudain, le bruit de chaînes s'entrechoquant retentit. L'une des momies s'agita et un tatouage brilla avant de pénétrer dans le corps pour s'y fusionner.
 

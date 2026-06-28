@@ -16,7 +16,7 @@ Wang Lin resta silencieux.
 
 Cependant, avant de partir, la vieille femme en vert lança un dernier regard à Wang Lin. De même, le Maître Ashen Pine observa l'homme âgé nommé Pang.
 
-Une fois les deux partis, l'homme nommé Pang afficha un sourire sinistre et fixa Wang Lin. Il fit tourner la bague à son doigt et dit d'une voix lente : « Camarade cultivateur Lu, continuez votre culture. Ce vieil homme veillera bien sur vous. »
+Une fois les deux partis, l'homme nommé Pang afficha un sourire sinistre et fixa Wang Lin. Il fit tourner la bague à son doigt et dit d'une voix lente : « Camarade cultivateur Lu, continuez votre cultivation. Ce vieil homme veillera bien sur vous. »
 
 Après avoir parlé, il sonda présomptueusement Wang Lin avec son sens divin. Après s'être assuré que les blessures de Wang Lin étaient réelles, il ne lui accorda même plus un regard et commença à piller la grotte.
 

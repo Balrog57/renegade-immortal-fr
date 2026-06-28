@@ -18,11 +18,11 @@ Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis
 
 Le Maître Flamespark n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent Moongazer, il fronça les sourcils.
 
-Wang Lin ne s'attarda pas longtemps avec le Maître Flamespark. Il décida de partir en prétextant une affaire personnelle. Le Maître Flamespark réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de culture bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
+Wang Lin ne s'attarda pas longtemps avec le Maître Flamespark. Il décida de partir en prétextant une affaire personnelle. Le Maître Flamespark réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de cultivation bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
 
 Bien que cette aura fût redoutable aujourd'hui, avec le temps, elle croîtrait jusqu'à atteindre un degré absolument terrifiant.
 
-Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu ; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Flamespark. Il disparut parmi les étoiles, laissant son emplacement inconnu.
+Une fois de retour, le sceau qui entravait la cultivation de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu ; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Flamespark. Il disparut parmi les étoiles, laissant son emplacement inconnu.
 
 En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Illustre Xuan Bao.
 
@@ -36,7 +36,7 @@ Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait
 
 « Le toi d'aujourd'hui est qualifié pour voyager parmi les étoiles, je peux donc me détendre », répondit Qing Shui en faisant un pas pour rejoindre Wang Lin.
 
-Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps de Qing Shui. Il pouvait vaguement sentir que la culture de ce dernier était plusieurs fois plus élevée qu'il y a quelques jours !
+Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps de Qing Shui. Il pouvait vaguement sentir que la cultivation de ce dernier était plusieurs fois plus élevée qu'il y a quelques jours !
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom ; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher ! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
@@ -62,9 +62,9 @@ Wang Lin poussa un soupir. Il savait que Qing Shui avait dû découvrir quelque 
 
 S'il demandait dix jours, c'était parce qu'il avait deux affaires à régler !
 
-Il existait une planète de culture dans la région nord de l'Alliance. Située dans les profondeurs de cette région et loin du champ de bataille d'il y a quelques jours, elle n'avait pas été affectée par le grand conflit. Cette planète regorgeait d'énergie spirituelle et était recouverte de forêts infinies. C'était une planète de culture de rang 7 ! Trois planètes plus petites gravitaient autour d'elle, servant de mondes secondaires.
+Il existait une planète de cultivation dans la région nord de l'Alliance. Située dans les profondeurs de cette région et loin du champ de bataille d'il y a quelques jours, elle n'avait pas été affectée par le grand conflit. Cette planète regorgeait d'énergie spirituelle et était recouverte de forêts infinies. C'était une planète de cultivation de rang 7 ! Trois planètes plus petites gravitaient autour d'elle, servant de mondes secondaires.
 
-Cette planète de rang 7 portait un nom magnifique : Dark Moon. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de culture nichées au cœur de ses montagnes.
+Cette planète de rang 7 portait un nom magnifique : Dark Moon. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de cultivation nichées au cœur de ses montagnes.
 
 Une montagne célèbre dominait la partie sud de la planète : la Montagne Céleste. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume ; nul ne savait où se trouvait le pic véritable. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait pu croire que cet endroit appartenait au Royaume Céleste.
 

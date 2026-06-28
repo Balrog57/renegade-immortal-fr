@@ -6,15 +6,15 @@ bookTitle: The Mediocre Youth
 en: Chapter 60 - Elder
 slug: ancien
 ---
-Huang Long regarda les bouteilles et laissa échapper un reniflement. « L'eau de la rivière de la montagne arrière est interdite de sortie. Je vais prendre ces deux bouteilles. Tu peux aller te reposer. N'oublie pas de venir me voir demain ; je t'emmènerai à la bibliothèque des écritures pour te trouver une technique de culture appropriée », dit-il.
+Huang Long regarda les bouteilles et laissa échapper un reniflement. « L'eau de la rivière de la montagne arrière est interdite de sortie. Je vais prendre ces deux bouteilles. Tu peux aller te reposer. N'oublie pas de venir me voir demain ; je t'emmènerai à la bibliothèque des écritures pour te trouver une technique de cultivation appropriée », dit-il.
 
-En entendant cela, Wang Lin fut transporté par l'enthousiasme. En sortant, il prit congé avec respect. Bien que son niveau de culture fût déjà élevé, sa seule et unique technique était la technique d'attraction.
+En entendant cela, Wang Lin fut transporté par l'enthousiasme. En sortant, il prit congé avec respect. Bien que son niveau de cultivation fût déjà élevé, sa seule et unique technique était la technique d'attraction.
 
 Une fois Wang Lin parti, Huang Long se tourna vers l'interlocuteur. Il s'inclina respectueusement et demanda : « Ancien Shangguan, pensez-vous que les paroles de Wang Lin soient vraies ? Et comment devons-nous agir à son égard ? »
 
 Un vieil homme chétif vêtu d'une robe bleue sortit dans la salle principale, le visage empreint d'une profonde sévérité. « Quelle part de vérité y a-t-il ? Huang Long, ne vois-tu pas que ce petit gars n'a pas dit un seul mot de vrai ? »
 
-Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la culture, seule la force importait. Le fait qu'il soit le chef de la secte et que ses frères d'armes soient des anciens n'était qu'une façade destinée au monde extérieur.
+Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la cultivation, seule la force importait. Le fait qu'il soit le chef de la secte et que ses frères d'armes soient des anciens n'était qu'une façade destinée au monde extérieur.
 
 La règle de la Secte Heng Yue était la suivante : celui qui atteignait le stade de l'Établissement des Fondations pouvait devenir un ancien et jouir de ses privilèges. Si l'on atteignait la Formation du Noyau, on devenait l'un des véritables anciens de la Secte Heng Yue, et si l'on atteignait l'Âme Naissante, on était considéré comme un ancêtre de la secte.
 
@@ -22,7 +22,7 @@ Normalement, les dix anciens de l'Établissement des Fondations étaient en entr
 
 L'apparition de Wang Lin avait été totalement imprévue pour Huang Long ; il avait donc profité de l'occasion pour le traîner ici afin qu'il puisse être interrogé par lui et par les anciens de l'Établissement des Fondations.
 
-L'Ancien Shangguan jeta un regard sur les bouteilles que tenait Huang Long. Il les scruta de son Sens Divin, puis déclara : « Ce petit garnement a dit une chose vraie. C'est bien l'eau de la rivière de la montagne arrière et, si elle est consommée quotidiennement, elle favorisera la culture. »
+L'Ancien Shangguan jeta un regard sur les bouteilles que tenait Huang Long. Il les scruta de son Sens Divin, puis déclara : « Ce petit garnement a dit une chose vraie. C'est bien l'eau de la rivière de la montagne arrière et, si elle est consommée quotidiennement, elle favorisera la cultivation. »
 
 Huang Long hésita un instant. « Ancien Shangguan, pensez-vous que la technique utilisée par Wang Lin était réellement la technique d'attraction ? » demanda-t-il.
 
@@ -30,11 +30,11 @@ L'Ancien Shangguan regarda Huang Long et répondit : « J'ai assisté à ses com
 
 L'expression de Huang Long changea radicalement. « La technique d'attraction ? Mais comment peut-elle être si puissante qu'elle puisse même capturer des trésors magiques ? » s'étonna-t-il.
 
-L'Ancien Shangguan laissa échapper un reniflement glacial : « Toute technique, après une pratique prolongée, finit par acquérir un effet particulier, bien que cela ne soit rien pour des cultivateurs de l'Établissement des Fondations. Cette technique d'attraction est la plus fondamentale du monde de la culture. Ne comprends-tu toujours pas que plus une technique est basique, plus son histoire est ancienne ? »
+L'Ancien Shangguan laissa échapper un reniflement glacial : « Toute technique, après une pratique prolongée, finit par acquérir un effet particulier, bien que cela ne soit rien pour des cultivateurs de l'Établissement des Fondations. Cette technique d'attraction est la plus fondamentale du monde de la cultivation. Ne comprends-tu toujours pas que plus une technique est basique, plus son histoire est ancienne ? »
 
 Huang Long hocha rapidement la tête en signe d'assentiment.
 
-L'Ancien Shangguan réfléchit un moment, puis reprit : « La culture de cet enfant est bel et bien au 3ème niveau, mais il possède une énergie spirituelle trop abondante dans son corps pour que je puisse tout vérifier clairement. Je présume que sa puissance équivaut à celle du 14ème niveau de Condensation de Qi ; il devrait donc pouvoir atteindre l'Établissement des Fondations sous peu. Il est acceptable qu'un disciple de ce genre garde ses secrets, car la secte traverse une période très périlleuse. Humph, la Secte Xuan Dao mérite vraiment son nom de petite secte. Envoyer des juniors en Condensation de Qi comme anciens et oser tenter de rallier Wang Lin devant nous par transmission vocale ! »
+L'Ancien Shangguan réfléchit un moment, puis reprit : « La cultivation de cet enfant est bel et bien au 3ème niveau, mais il possède une énergie spirituelle trop abondante dans son corps pour que je puisse tout vérifier clairement. Je présume que sa puissance équivaut à celle du 14ème niveau de Condensation de Qi ; il devrait donc pouvoir atteindre l'Établissement des Fondations sous peu. Il est acceptable qu'un disciple de ce genre garde ses secrets, car la secte traverse une période très périlleuse. Humph, la Secte Xuan Dao mérite vraiment son nom de petite secte. Envoyer des juniors en Condensation de Qi comme anciens et oser tenter de rallier Wang Lin devant nous par transmission vocale ! »
 
 Huang Long fut stupéfait. Il ne posa pas de questions supplémentaires sur la transmission vocale, mais demanda : « Huang Long vous obéit. Ancien Shangguan, concernant les affaires des ancêtres... »
 
@@ -44,7 +44,7 @@ Huang Long esquissa un sourire amer et hocha silencieusement la tête.
 
 Quant à Wang Lin, lorsqu'il sortit de la salle principale, tous les disciples internes lui cédèrent le passage avec une immense déférence. Ce traitement était à l'opposé total de celui qu'il avait reçu la veille.
 
-« La force... dans le monde de la culture, seule la force importe », pensa Wang Lin, ému, alors qu'il regagnait le jardin de Sun Dazhu.
+« La force... dans le monde de la cultivation, seule la force importe », pensa Wang Lin, ému, alors qu'il regagnait le jardin de Sun Dazhu.
 
 Dès son entrée, il vit immédiatement Sun Dazhu s'avancer vers lui, un sourire aux lèvres. « Bon disciple, ton maître t'attendait depuis longtemps. Tiens, bois ce thé de récupération de haute qualité que j'ai préparé pour toi. Tu te sentiras beaucoup mieux après l'avoir bu. »
 
@@ -80,7 +80,7 @@ L'expression de Sun Dazhu devint instable. Après une longue hésitation, il fro
 
 Sun Dazhu saisit la tasse et la but d'un trait. Puis, il jeta la tasse au sol et déclara avec mécontentement : « Est-ce que cela te convient ? Le chef de la secte m'a demandé de le voir. Il serait regrettable que je sois en retard. Si tu as autre chose à dire, nous en parlerons plus tard. » Sur ce, il se détourna pour partir.
 
-Les yeux de Wang Lin s'illuminèrent et son corps bondit. L'expression de Sun Dazhu changea et il tenta de reculer précipitamment, mais comment sa culture au 5ème niveau pouvait-elle rivaliser avec celle de Wang Lin ?
+Les yeux de Wang Lin s'illuminèrent et son corps bondit. L'expression de Sun Dazhu changea et il tenta de reculer précipitamment, mais comment sa cultivation au 5ème niveau pouvait-elle rivaliser avec celle de Wang Lin ?
 
 En un instant, il fut aux côtés de Sun Dazhu. Ses yeux brillèrent et il frappa violemment la poitrine de ce dernier. Avant que Sun Dazhu ne boive le thé, Wang Lin avait compris qu'il n'avait pas réellement bu le liquide, mais l'avait entouré d'une couche d'énergie spirituelle pour simuler l'ingestion.
 
@@ -108,11 +108,11 @@ Les yeux de Wang Lin s'illuminèrent. « Quel est l'effet de cette herbe ? »
 
 Une intention meurtrière traversa le regard de Wang Lin. « Pourquoi vouliez-vous que je la consomme ? »
 
-« Dès que j'ai découvert que tu possédais ces gourdes, des doutes ont germé en moi, c'est pourquoi je t'ai pris comme disciple. À l'origine, je voulais te maintenir au premier niveau pour pouvoir utiliser la technique de recherche d'âme sur toi. Mais comme je t'avais déjà donné l'Herbe de Dispersion de l'Énergie Spirituelle, je pensais qu'il te faudrait plus de dix ans pour atteindre le premier niveau et j'avais abandonné cette idée. Lors de la compétition, tu as soudainement montré une force prodigieuse ; j'ai alors pensé que tu devais posséder d'autres gourdes, voire d'autres secrets. Je voulais aussi augmenter ma propre culture, alors j'ai pensé te donner ce thé. »
+« Dès que j'ai découvert que tu possédais ces gourdes, des doutes ont germé en moi, c'est pourquoi je t'ai pris comme disciple. À l'origine, je voulais te maintenir au premier niveau pour pouvoir utiliser la technique de recherche d'âme sur toi. Mais comme je t'avais déjà donné l'Herbe de Dispersion de l'Énergie Spirituelle, je pensais qu'il te faudrait plus de dix ans pour atteindre le premier niveau et j'avais abandonné cette idée. Lors de la compétition, tu as soudainement montré une force prodigieuse ; j'ai alors pensé que tu devais posséder d'autres gourdes, voire d'autres secrets. Je voulais aussi augmenter ma propre cultivation, alors j'ai pensé te donner ce thé. »
 
 Wang Lin prit une profonde inspiration et demanda : « Qu'est-ce que l'Herbe de Dispersion de l'Énergie Spirituelle ? De plus, avez-vous parlé de moi à quelqu'un d'autre ? Et pourquoi n'avez-vous pas utilisé cette Herbe Nématode sur moi plus tôt ? »
 
-« L'Herbe de Dispersion de l'Énergie Spirituelle sert à annihiler toute ta culture. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement ; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
+« L'Herbe de Dispersion de l'Énergie Spirituelle sert à annihiler toute ta cultivation. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement ; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
 
 « Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 90 % de chances de réussir. À l'origine, je voulais l'utiliser sur Lun Yunjie pour lui extorquer des pilules. »
 

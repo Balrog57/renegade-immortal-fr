@@ -16,7 +16,7 @@ Une atmosphère brûlante se manifesta dans un rayon de mille pieds autour de lu
 
 Wang Lin resta assis dans cet environnement relativement calme pendant dix jours. Durant ces dix jours, il demeura immobile, totalement absorbé par les changements radicaux qui s'opéraient au sein de son corps.
 
-Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Nirvana Scryer après la bataille entre Allheaven et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
+Sa cultivation n'était qu'à un cheveu d'atteindre le stade intermédiaire du Nirvana Scryer après la bataille entre Allheaven et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
 
 Cependant, au onzième jour, alors que la perle défiant le ciel changeait une fois de plus, la situation bascula !
 
@@ -56,13 +56,13 @@ Une détermination sans faille remplit les yeux de Wang Lin alors qu'il leva le 
 
 Soudain, Wang Lin sentit son âme être arrachée et repoussée par ce vent froid. Il disparut dans le vide infini.
 
-Alors qu'il continuait de reculer, Wang Lin sentit qu'il entrait dans une trace. Il se sentit rétrécir, et ses mille ans de culture s'inversèrent. Tout remonta le cours du temps jusqu'à ce qu'il ne soit plus qu'un nourrisson dans le ventre de sa mère.
+Alors qu'il continuait de reculer, Wang Lin sentit qu'il entrait dans une trace. Il se sentit rétrécir, et ses mille ans de cultivation s'inversèrent. Tout remonta le cours du temps jusqu'à ce qu'il ne soit plus qu'un nourrisson dans le ventre de sa mère.
 
 Le son des battements de cœur parvint clairement aux oreilles de Wang Lin, et l'affection longtemps perdue de ses parents envahit son esprit. Cependant, cela ne dura qu'un instant avant que le vent froid ne le projette loin de là.
 
 Wang Lin tenta de reculer une fois de plus, mais une force mystérieuse l'en empêchait cette fois. Pourtant, comparée au vent glacial, cette force était dérisoire.
 
-La force mystérieuse qui entravait sa retraite se brisa. Ce que Wang Lin vit alors le choqua profondément. Un tel choc était extrêmement rare en mille ans de culture !
+La force mystérieuse qui entravait sa retraite se brisa. Ce que Wang Lin vit alors le choqua profondément. Un tel choc était extrêmement rare en mille ans de cultivation !
 
 « Ceci... ceci est... » murmura Wang Lin. Il vit le ciel bleu, les nuages blancs et un oiseau volant sous la blancheur des cieux.
 

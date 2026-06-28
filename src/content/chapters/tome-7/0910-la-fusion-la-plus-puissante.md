@@ -8,7 +8,7 @@ slug: la-fusion-la-plus-puissante
 ---
 L'apparence de Wang Lin n'avait guère changé, mais il affichait un calme absolu. De légères lignes parcouraient son corps, sans pour autant être flagrantes. Une aura d'une puissance inouïe émanait de lui, emplissant l'immensité des étoiles.
 
-À mesure que cette aura se propageait, elle déclencha une onde de choc titanesque sur la planète de culture de rang 6. D'innombrables cultivateurs furent arrachés à leur méditation, sentant leurs âmes vaciller.
+À mesure que cette aura se propageait, elle déclencha une onde de choc titanesque sur la planète de cultivation de rang 6. D'innombrables cultivateurs furent arrachés à leur méditation, sentant leurs âmes vaciller.
 
 Alors que la stupéfaction gagnait l'assistance, Wang Lin fit un pas ; des ondulations apparurent sous ses pieds et il disparut parmi les étoiles.
 
@@ -16,7 +16,7 @@ L'expression de Yu Fei devint sombre et il serra le poing. Plus tôt, lorsqu'il 
 
 La Distorsion Spatiale !
 
-Il connaissait ce sort, mais il n'aurait jamais imaginé que ce Xu Mu le maîtrisait déjà. Il faut dire que très peu de cultivateurs qu'il connaissait pouvaient l'utiliser. C'était encore plus rare pour quelqu'un de son propre niveau de culture !
+Il connaissait ce sort, mais il n'aurait jamais imaginé que ce Xu Mu le maîtrisait déjà. Il faut dire que très peu de cultivateurs qu'il connaissait pouvaient l'utiliser. C'était encore plus rare pour quelqu'un de son propre niveau de cultivation !
 
 Comment ne pouvait-il être surpris ? De plus, les informations qu'il avait reçues sur Xu Mu n'en avaient absolument pas fait mention.
 
@@ -30,11 +30,11 @@ Il poussa un rugissement de rage, se retourna et fixa le garçon à la grosse t�
 
 Le garçon à la grosse tête, en plein combat contre l'avatar de Yu Fei, sentit son cuir chevelu picoter et faillit perdre la raison. Il ne put s'empêcher de maudire Wang Lin tout en reculant pour tenter de s'échapper.
 
-Cependant, porté par une rage noire, Yu Fei se rapprocha instantanément. Utilisant sa culture écrasante du stade intermédiaire de la Recherche de Nirvana, il pointa le doigt. Les cinq épées de sang jaillirent immédiatement vers le garçon.
+Cependant, porté par une rage noire, Yu Fei se rapprocha instantanément. Utilisant sa cultivation écrasante du stade intermédiaire de la Recherche de Nirvana, il pointa le doigt. Les cinq épées de sang jaillirent immédiatement vers le garçon.
 
 « Meurs ! » hurla Yu Fei. Les cinq épées de sang chargèrent avec la puissance de cinq cultivateurs du stade initial de la Recherche de Nirvana. En comptant celle qui avait déjà été lancée, c'était comme si six experts de ce niveau attaquaient l'enfant.
 
-Comment le garçon pouvait-il résister avec son niveau de culture actuel ?
+Comment le garçon pouvait-il résister avec son niveau de cultivation actuel ?
 
 Désespéré, une idée folle germa dans son esprit : il allait faire exploser son âme originelle. Peu importe, il devait détruire au moins un avatar !
 
@@ -100,7 +100,7 @@ C'était la première fois qu'il ressentait une telle émotion. Bien que stupéf
 
 Si ces personnes réagissaient ainsi, alors les quatre épées volantes près de Wang Lin n'avaient aucune chance. L'impact indescriptible du rugissement fit changer les couleurs du monde et l'espace lui-même s'effondra. Les quatre épées explosèrent toutes !
 
-Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une culture de Recherche de Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
+Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une cultivation de Recherche de Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
 
 Comme balayés par un vent destructeur, les quatre avatars s'effondrèrent et se dissipèrent instantanément. Ils étaient définitivement morts !
 

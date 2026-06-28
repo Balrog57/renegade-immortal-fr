@@ -134,7 +134,7 @@ L'œil gauche de cet être était semblable à la lune, et son œil droit à cel
 
 Le Wang Lin actuel n'était plus un simple cultivateur ni un Dieu Ancien, mais une combinaison inédite. Son corps possédait la puissance d'un Dieu Ancien, tout en étant porté par l'âme originelle d'un cultivateur.
 
-C'était l'union des méthodes de culture intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle de la taille d'un homme dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
+C'était l'union des méthodes de cultivation intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle de la taille d'un homme dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
 
 Cette âme originelle était comme le cœur du Dieu Ancien.
 
@@ -144,7 +144,7 @@ Bang ! Bang ! Bang !
 
 Le corps de Wang Lin fut projeté violemment et il continuait de cracher du sang. Cependant, il riait durant tout le combat, d'un rire empreint d'arrogance.
 
-« Maintenant qu'elle a été réincarnée avec son Âme Naissante, sa vie est prolongée. Cela respecte les lois des cieux. Tant qu'elle ne pratiquera pas la culture, elle pourra échapper au regard des cieux. Dans dix-neuf ans, quand son Âme Naissante se reformera, vous reviendrez, mais je vous arrêterai à nouveau ! »
+« Maintenant qu'elle a été réincarnée avec son Âme Naissante, sa vie est prolongée. Cela respecte les lois des cieux. Tant qu'elle ne pratiquera pas la cultivation, elle pourra échapper au regard des cieux. Dans dix-neuf ans, quand son Âme Naissante se reformera, vous reviendrez, mais je vous arrêterai à nouveau ! »
 
 Les yeux dans le nuage rouge contemplèrent calmement Wang Lin un instant avant de disparaître. Le poing géant disparut également. Les nuages rouges se dissipèrent.
 

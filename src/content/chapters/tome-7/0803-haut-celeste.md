@@ -38,15 +38,15 @@ Un vieil homme s'avança de la foule. Il avait une chevelure blanche et le visag
 
 « Que vient faire un Haut Céleste ici ? » Son regard était empreint de respect tandis qu'il fixait le Tatouage de l'Os de la Bête sur la main droite de Wang Lin.
 
-Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d'un millénaire de culture, il pouvait maintenir une expression calme même face à la stupéfaction. Pour l'instant, il ne laissa paraître le moindre signe de choc.
+Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d'un millénaire de cultivation, il pouvait maintenir une expression calme même face à la stupéfaction. Pour l'instant, il ne laissa paraître le moindre signe de choc.
 
 Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan des Immortels Délaissés, la portée était tout autre !
 
 Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon de la Collection, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
 
-Le regard de Wang Lin demeura serein lorsqu'il demanda lentement : « Vous pouvez percevoir mon niveau de culture ? »
+Le regard de Wang Lin demeura serein lorsqu'il demanda lentement : « Vous pouvez percevoir mon niveau de cultivation ? »
 
-Le vieil homme hocha la tête en fixant la main droite de Wang Lin. L'excitation dans ses yeux s'intensifia lorsqu'il répondit : « Un Haut Céleste de rang 8. Ce humble serviteur peut reconnaître votre culture. »
+Le vieil homme hocha la tête en fixant la main droite de Wang Lin. L'excitation dans ses yeux s'intensifia lorsqu'il répondit : « Un Haut Céleste de rang 8. Ce humble serviteur peut reconnaître votre cultivation. »
 
 Wang Lin réfléchit silencieusement tout en observant le vieillard. L'autre se qualifiait de « humble serviteur » et ne cessait de fixer sa main droite. Wang Lin trouva cela étrange et, face à l'exaltation de son interlocuteur, une idée audacieuse germa dans son esprit.
 

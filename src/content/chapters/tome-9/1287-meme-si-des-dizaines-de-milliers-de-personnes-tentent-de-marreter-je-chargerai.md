@@ -42,7 +42,7 @@ Wang Lin leva la tête et regarda le ciel sombre. Son cœur était en proie à l
 
 Même si le champ de bataille de la faille spatiale pouvait être relié au Royaume Extérieur. Tuo Sen se trouvait dans le Royaume Extérieur, et dès qu'il y poserait un pied, Tuo Sen le remarquerait. Il risquait de faire face à de grands dangers.
 
-Même s'il avait actuellement besoin de temps pour une culture en porte fermée afin de comprendre ce qu'il avait acquis dans le domaine du Dao, pour atteindre la troisième étape qui fait trembler les cieux !
+Même s'il avait actuellement besoin de temps pour une cultivation en porte fermée afin de comprendre ce qu'il avait acquis dans le domaine du Dao, pour atteindre la troisième étape qui fait trembler les cieux !
 
 Cependant, Wang Lin balaya tout cela d'un revers de main. Il ne voulait pas y penser. Il savait seulement qu'une femme nommée Li Qianmei faisait face à un péril mortel. S'il ne la sauvait pas, il ne pourrait jamais être heureux, car il lui devait dix années qu'il ne pourrait jamais rembourser !
 
@@ -78,7 +78,7 @@ Le Secte de l'Âme Marine était une branche du Secte de l'Âme Silencieuse. Pui
 
 Le maître de la secte était un cultivateur au sommet du stade Nirvana Scryer. Il était assez puissant pour dominer toute la région de rang 4 !
 
-À cet instant, il faisait nuit sur le continent du Secte de l'Âme Marine. Tous les cultivateurs étaient en pleine culture, et même le maître de la secte était assis dans sa chambre secrète. Soudain, un grondement tonitruant retentit et le continent entier trembla.
+À cet instant, il faisait nuit sur le continent du Secte de l'Âme Marine. Tous les cultivateurs étaient en pleine cultivation, et même le maître de la secte était assis dans sa chambre secrète. Soudain, un grondement tonitruant retentit et le continent entier trembla.
 
 Ce tremblement n'était pas violent, mais il suffit à réveiller tous les cultivateurs. Le maître du Secte de l'Âme Marine ouvrit les yeux et quitta précipitamment sa chambre secrète. Les anciens du Secte de l'Âme Marine accoururent également.
 
@@ -88,7 +88,7 @@ Avant qu'ils ne puissent dire un mot, une voix aussi glaciale qu'une glace éter
 
 « Ouvrez la formation de transfert et apportez-moi tous vos cristaux d'origine. Sinon... mourez ! » Sur ces mots, un jeune homme aux cheveux blancs apparut, l'expression sombre. Il n'avait dit qu'une seule chose, mais le sens de ses paroles terrifia les membres du Secte de l'Âme Marine !
 
-Le maître du Secte de l'Âme Marine trembla. Bien qu'il ne puisse percevoir le niveau de culture de cet individu, déchirer la formation de protection de la sorte n'était pas une mince affaire. Après avoir entendu ces mots, il joignit les mains et s'apprêta à parler. Cependant, son regard croisa celui de Wang Lin. Son esprit vacilla et il cracha du sang, son visage devenant instantanément livide.
+Le maître du Secte de l'Âme Marine trembla. Bien qu'il ne puisse percevoir le niveau de cultivation de cet individu, déchirer la formation de protection de la sorte n'était pas une mince affaire. Après avoir entendu ces mots, il joignit les mains et s'apprêta à parler. Cependant, son regard croisa celui de Wang Lin. Son esprit vacilla et il cracha du sang, son visage devenant instantanément livide.
 
 Wang Lin n'avait rien fait ; c'était simplement que le maître du Secte de l'Âme Marine était trop faible. En rencontrant le regard de Wang Lin, son esprit s'était déstabilisé au point de se blesser lui-même. Cela n'avait rien à voir avec Wang Lin !
 

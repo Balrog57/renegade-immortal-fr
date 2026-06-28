@@ -102,7 +102,7 @@ Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de 
 
 Alors que les rugissements résonnaient vers les hauteurs, une force invisible se précipita dans la faille. Cependant, celle-ci ne manifesta aucune réaction et le grondement intérieur ne fut point interrompu.
 
-« Pas assez... » Wang Lin ferma les yeux et déploya son Sens Divin. En un éclair, sa conscience embrassa l'intégralité du Brilliant Void. Son Sens Divin pénétra chaque planète de culture et sonda la mémoire de l'âme de chaque monde.
+« Pas assez... » Wang Lin ferma les yeux et déploya son Sens Divin. En un éclair, sa conscience embrassa l'intégralité du Brilliant Void. Son Sens Divin pénétra chaque planète de cultivation et sonda la mémoire de l'âme de chaque monde.
 
 Depuis des temps immémoriaux, quiconque avait vécu dans le Royaume du Brilliant Void, mortel ou cultivateur, avait poussé un rugissement de ressentiment en levant les yeux vers le ciel. Peut-être personne ne les avait vus, peut-être étaient-ils morts depuis longtemps, mais les planètes sur lesquelles ils avaient foulé le sol s'en souvenaient toutes.
 

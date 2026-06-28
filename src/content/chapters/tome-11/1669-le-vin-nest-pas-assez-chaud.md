@@ -44,7 +44,7 @@ Des grondements sourds retentirent. La puissance des cinq fusionna pour déferle
 
 Ce dernier était un vieillard aux cheveux blancs. L'expression grave, il sentit la puissance des quatre cultivateurs derrière lui affluer en lui ; ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Ses yeux brillèrent d'un éclat inédit.
 
-« Par ma culture et mon lignage, j'invoque l'ancien sort ! Dao brise-ciel, un seul Dao éteint le vide ! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de 100 000 pieds !
+« Par ma cultivation et mon lignage, j'invoque l'ancien sort ! Dao brise-ciel, un seul Dao éteint le vide ! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de 100 000 pieds !
 
 Une fois l'épée manifestée, les 100 000 âmes originelles s'y précipitèrent, lui conférant une aura colossale.
 

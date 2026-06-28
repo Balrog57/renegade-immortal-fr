@@ -14,7 +14,7 @@ Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle ava
 
 Même sa maîtresse, Lu Yanfei, prenait cette affaire au sérieux. Elle avait même utilisé des sorts pour tenter de trouver des indices, mais sans aucun résultat.
 
-La silhouette aux cheveux blancs ne s'était pas dissipée avec le temps, elle était devenue encore plus profonde. La nuit, elle s'éveillait de sa culture, et la silhouette blanche ainsi que ce doigt gracieux apparaissaient inconsciemment dans son esprit.
+La silhouette aux cheveux blancs ne s'était pas dissipée avec le temps, elle était devenue encore plus profonde. La nuit, elle s'éveillait de sa cultivation, et la silhouette blanche ainsi que ce doigt gracieux apparaissaient inconsciemment dans son esprit.
 
 « Qui est-il exactement... » Cette question hantait toujours Xu Yun.
 
@@ -30,7 +30,7 @@ Elle ne parvenait pas à en trouver la raison, mais elle marcha inconsciemment v
 
 Wang Lin posa le rouleau de bois qu'il avait emprunté au Secte Originel. Il ne contenait aucune information précieuse ; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer des Nuages.
 
-Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer des Nuages. Cela leur servait de rappel qu'il y avait toujours des êtres supérieurs à eux, afin qu'ils redoublent d'efforts dans leur culture.
+Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer des Nuages. Cela leur servait de rappel qu'il y avait toujours des êtres supérieurs à eux, afin qu'ils redoublent d'efforts dans leur cultivation.
 
 Pendant sa lecture, Wang Lin n'était pas totalement concentré ; il réfléchissait également à l'alchimie et aux bêtes spirituelles.
 
@@ -40,7 +40,7 @@ Xu Yun fut surprise. Les herbes étaient bien plus luxuriantes qu'auparavant. M�
 
 Wang Lin ne dit plus rien. Il reprit son rouleau et continua sa lecture.
 
-Plus il restait calme, plus Xu Yun fronçait les sourcils. Dès qu'elle entra, un parfum se diffusa dans la petite pièce. Wang Lin connaissait cette odeur ; lorsque Xu Yun pratiquait sa culture auparavant, il avait déjà senti ce parfum corporel.
+Plus il restait calme, plus Xu Yun fronçait les sourcils. Dès qu'elle entra, un parfum se diffusa dans la petite pièce. Wang Lin connaissait cette odeur ; lorsque Xu Yun pratiquait sa cultivation auparavant, il avait déjà senti ce parfum corporel.
 
 Xu Yun fixa Wang Lin et dit froidement : « Le fait que les herbes ne meurent pas n'a rien à voir avec vous. C'est parce qu'il y a une abondance d'énergie spirituelle ici et que ces herbes sont principalement de l'élément eau ; elles peuvent donc absorber l'énergie originelle de la pluie. »
 
@@ -86,11 +86,11 @@ Ce python était d'un violet noirâtre et ses yeux arboraient également un viol
 
 Wang Lin ne da même pas un regard au python et passa devant lui. La créature laissa échapper un rugissement sourd, mais la peur se lisait dans ses yeux. Elle commença à reculer pour laisser passer Wang Lin, n'osant point l'attaquer.
 
-En vérité, Wang Lin était arrivé ici il y a quatre jours. En termes de culture, ce python violet pouvait affronter des cultivateurs du stade avancé de la Divination du Nirvana, mais Wang Lin aurait pu l'éliminer sans effort.
+En vérité, Wang Lin était arrivé ici il y a quatre jours. En termes de cultivation, ce python violet pouvait affronter des cultivateurs du stade avancé de la Divination du Nirvana, mais Wang Lin aurait pu l'éliminer sans effort.
 
 Il n'avait pas fait de vagues et avait failli tuer le python. Cependant, comme il prévoyait de rester ici quelque temps, il ne lui semblait pas opportun de tuer la bête gardienne de la secte dès son arrivée ; il avait donc laissé le python en vie.
 
-Wang Lin s'approcha de l'étagère et, d'un revers de manche, fit dissiper toutes les restrictions. Il saisit le jade et commença à l'examiner. Il l'avait déjà vu quatre jours auparavant, mais il n'était pas intéressé par leurs sorts ou leurs méthodes de culture. En revanche, il portait une attention particulière aux informations sur les bêtes spirituelles et l'alchimie.
+Wang Lin s'approcha de l'étagère et, d'un revers de manche, fit dissiper toutes les restrictions. Il saisit le jade et commença à l'examiner. Il l'avait déjà vu quatre jours auparavant, mais il n'était pas intéressé par leurs sorts ou leurs méthodes de cultivation. En revanche, il portait une attention particulière aux informations sur les bêtes spirituelles et l'alchimie.
 
 Après un nouvel examen, Wang Lin réfléchit. Il reposa le jade et prit la pilule. Celle-ci semblait très banale. Lorsqu'il l'avait observée quatre jours plus tôt, il n'y avait rien trouvé d'intéressant.
 
@@ -102,11 +102,11 @@ En étudiant le jade ces derniers jours, il avait progressivement saisi certains
 
 En voyant la pilule dans sa main, il en eut la certitude.
 
-Après un soupir, Wang Lin reposa la pilule. Il ne prit aucun de ces trois objets qui étaient manifestement des héritages laissés par l'Ancien Ancêtre. À moins d'avoir une querelle avec eux, compte tenu du niveau de culture de Wang Lin, il n'allait pas commettre d'acte susceptible de ruiner une secte.
+Après un soupir, Wang Lin reposa la pilule. Il ne prit aucun de ces trois objets qui étaient manifestement des héritages laissés par l'Ancien Ancêtre. À moins d'avoir une querelle avec eux, compte tenu du niveau de cultivation de Wang Lin, il n'allait pas commettre d'acte susceptible de ruiner une secte.
 
 Il lui suffisait de les observer !
 
-« Désormais, je dois raffiner personnellement une pilule en utilisant cette méthode. Mon objectif dans la Mer des Nuages est de faire tout ce qui est en mon pouvoir pour améliorer ma culture ! » Les yeux de Wang Lin s'illuminèrent. Alors qu'il s'apprêtait à partir, il leva soudainement la tête, et son regard refléta une lueur étrange.
+« Désormais, je dois raffiner personnellement une pilule en utilisant cette méthode. Mon objectif dans la Mer des Nuages est de faire tout ce qui est en mon pouvoir pour améliorer ma cultivation ! » Les yeux de Wang Lin s'illuminèrent. Alors qu'il s'apprêtait à partir, il leva soudainement la tête, et son regard refléta une lueur étrange.
 
 Des éclairs déchiraient le ciel au-dessus de la partie occidentale du continent. Des grondements sourds résonnaient, comme si quelqu'un bombardait la région depuis l'extérieur.
 

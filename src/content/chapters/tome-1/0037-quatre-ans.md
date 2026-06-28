@@ -30,17 +30,17 @@ Une légère odeur d'énergie spirituelle émanait de l'eau. Wang Lin s'approcha
 
 Il sortit alors des gourdes et les remplit une à une. Après un long moment, il finit par remplir toutes ses gourdes et se retourna. Ses pupilles se rétractèrent instantanément lorsqu'il vit l'apprenti-frère Zhang debout à distance derrière lui, tel un fantôme. Alors qu'il puisait l'eau, il balayait constamment la zone avec son Sens Divin, mais n'avait rien détecté. Pourtant, il semblait que l'apprenti-frère Zhang était là depuis longtemps. Le cœur de Wang Lin sombra.
 
-Les yeux de Zhang Kuang s'illuminèrent et il dit : « Frère Wang, cette rivière contient effectivement beaucoup d'énergie spirituelle et est bénéfique pour ta culture, mais je vois que tu as déjà préparé de nombreuses gourdes. Savais-tu que tu en aurais besoin avant même de venir ici ? »
+Les yeux de Zhang Kuang s'illuminèrent et il dit : « Frère Wang, cette rivière contient effectivement beaucoup d'énergie spirituelle et est bénéfique pour ta cultivation, mais je vois que tu as déjà préparé de nombreuses gourdes. Savais-tu que tu en aurais besoin avant même de venir ici ? »
 
-Wang Lin rangea ses affaires sans laisser transparaître l'ombre d'une émotion et répondit : « Maître m'avait précédemment informé que la rivière favoriserait ma culture, j'ai donc préparé de quoi faire, disciple. »
+Wang Lin rangea ses affaires sans laisser transparaître l'ombre d'une émotion et répondit : « Maître m'avait précédemment informé que la rivière favoriserait ma cultivation, j'ai donc préparé de quoi faire, disciple. »
 
 Zhang Kuang fixa Wang Lin un long moment avant de dire : « Il est normal que Sun Dazhu soit au courant. Tu devrais retourner pratiquer. Réussir à atteindre le premier niveau en seulement deux ans montre que le jeune frère est vraiment déterminé. C'est une bonne chose. J'espère que lorsque je te reverrai, tu seras au deuxième niveau. »
 
-Wang Lin joignit les mains et partit. Ce n'est qu'une fois de retour dans sa grotte qu'il put enfin se détendre. Ses vêtements étaient trempés de sueur. Heureusement qu'il s'était entraîné à utiliser constamment cette technique pour dissimuler son niveau de culture, sinon, si Zhang avait su qu'il avait déjà atteint le troisième niveau, il serait devenu méfiant. Et si Zhang tentait de le tuer, il n'aurait aucune force pour riposter.
+Wang Lin joignit les mains et partit. Ce n'est qu'une fois de retour dans sa grotte qu'il put enfin se détendre. Ses vêtements étaient trempés de sueur. Heureusement qu'il s'était entraîné à utiliser constamment cette technique pour dissimuler son niveau de cultivation, sinon, si Zhang avait su qu'il avait déjà atteint le troisième niveau, il serait devenu méfiant. Et si Zhang tentait de le tuer, il n'aurait aucune force pour riposter.
 
 Wang Lin se murmura à lui-même : « Les immortels sont comme les mortels ; il en est de toutes sortes. En réalité, les immortels sont bien plus cruels que les mortels, je ne dois donc laisser personne découvrir l'existence de cette perle mystérieuse. »
 
-Après avoir actionné le levier pour sceller à nouveau la grotte, Wang Lin s'assit en tailleur et recommença sa culture.
+Après avoir actionné le levier pour sceller à nouveau la grotte, Wang Lin s'assit en tailleur et recommença sa cultivation.
 
 Le principe consistant à couper tous les désirs et liens mortels visait à empêcher ces choses de distraire les cultivateurs de leur voie. Pourtant, après être entré dans la Secte Heng Yue, Wang Lin découvrit que la plupart des immortels, loin de se détacher de leurs désirs, devenaient encore plus esclaves de ceux-ci.
 
@@ -48,9 +48,9 @@ Par conséquent, le terme « couper les désirs mortels » était une expression
 
 Après avoir été perplexe pendant longtemps sans trouver d'indices, Wang Lin comprit qu'il ne pourrait jamais rompre les liens avec sa famille. Sa chance résidait dans le fait que le troisième niveau n'était pas comme les deux premiers. Même s'il ne parvenait pas à franchir le palier, son énergie spirituelle continuait de croître. Finalement, il renonça à l'idée de progresser rapidement vers le quatrième niveau pour se concentrer uniquement sur l'accumulation de son énergie spirituelle.
 
-Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en culture fermée depuis quatre ans désormais. Il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau afin de la transformer en eau d'énergie spirituelle pour sa pratique.
+Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en cultivation fermée depuis quatre ans désormais. Il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau afin de la transformer en eau d'énergie spirituelle pour sa pratique.
 
-Quatre ans dans le monde réel équivalaient à 25 ans dans l'espace onirique. En incluant la période précédant la culture fermée, Wang Lin cultivait depuis déjà 27 ou 28 ans.
+Quatre ans dans le monde réel équivalaient à 25 ans dans l'espace onirique. En incluant la période précédant la cultivation fermée, Wang Lin cultivait depuis déjà 27 ou 28 ans.
 
 Son niveau de Condensation de Qi était toujours bloqué au troisième niveau, mais la quantité d'énergie spirituelle dans son corps ne cessait d'augmenter.
 
@@ -60,11 +60,11 @@ Toutes les grottes de la falaise s'ouvrirent. Les disciples internes en sortiren
 
 Grâce à son Sens Divin, Wang Lin sentit que ces plus de 40 personnes avaient toutes réalisé d'immenses progrès durant ces quatre années.
 
-Wang Zhuo avait déjà atteint le sommet du cinquième niveau et était prêt à percer le sixième. Beaucoup d'autres en étaient au même stade. La culture de chacun avait considérablement progressé.
+Wang Zhuo avait déjà atteint le sommet du cinquième niveau et était prêt à percer le sixième. Beaucoup d'autres en étaient au même stade. La cultivation de chacun avait considérablement progressé.
 
 La jeune fille nommée Xu était au troisième niveau, et quant au frère Zhang, il était déjà au sixième !
 
-Wang Lin sentait vaguement que sa propre culture différait de celle des autres. À l'instant où il avait utilisé son Sens Divin pour scanner l'assemblée, il semblait que personne d'autre ne s'en soit rendu compte.
+Wang Lin sentait vaguement que sa propre cultivation différait de celle des autres. À l'instant où il avait utilisé son Sens Divin pour scanner l'assemblée, il semblait que personne d'autre ne s'en soit rendu compte.
 
 La jeune fille nommée Zhou avait affirmé avoir atteint le troisième niveau deux ans auparavant, mais sous le regard de Wang Lin, il observa qu'elle stagnait toujours au troisième niveau, sans aucune progression.
 

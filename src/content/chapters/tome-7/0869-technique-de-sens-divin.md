@@ -36,7 +36,7 @@ Ce vortex devint instantanément impétueux. C'était comme une tempête abritan
 
 Sur ces mots, le vortex formé par les dragons noirs s'élargit soudainement dans une série de craquements stridents. L'impact des deux dragons força une brèche dans la suppression du sens divin.
 
-Bien que la culture et le sens divin de Wang Lin ne fussent pas à la hauteur de ceux de Russell, ses sorts étaient prodigieux et il possédait un trésor spécialisé pour contrer le sens divin !
+Bien que la cultivation et le sens divin de Wang Lin ne fussent pas à la hauteur de ceux de Russell, ses sorts étaient prodigieux et il possédait un trésor spécialisé pour contrer le sens divin !
 
 Dès qu'une ouverture se créa, le Fouet du Karma s'élança. Tandis que des grondements résonnaient, la suppression du sens divin de Russell s'effondra et fut repoussée.
 
@@ -46,7 +46,7 @@ Ce vent froid envahit la zone, faisant frissonner les cultivateurs environnants.
 
 Le visage de Russell était sombre. Une intention meurtrière traversa ses yeux, puis il se contenta de s'asseoir et forma un sceau de ses mains. Il ignora totalement l'assaut des dragons noirs et ferma les yeux.
 
-« Moi, Russell, suis au milieu du stade Nirvana Scryer. Si je ne peux pas te tuer, alors mes milliers d'années de culture auront été vaines ! » Au moment où Russell ferma les yeux, une puissante vague de sens divin jaillit de son corps et se transforma en d'innombrables aiguilles !
+« Moi, Russell, suis au milieu du stade Nirvana Scryer. Si je ne peux pas te tuer, alors mes milliers d'années de cultivation auront été vaines ! » Au moment où Russell ferma les yeux, une puissante vague de sens divin jaillit de son corps et se transforma en d'innombrables aiguilles !
 
 Une multitude d'aiguilles formées par son sens divin l'entouraient. Des milliers d'entre elles se rassemblèrent en un groupe dense avant de toutes foncer vers Wang Lin.
 
@@ -54,11 +54,11 @@ Chaque aiguille acérée contenait le sens divin transformé de Russell. C'étai
 
 Parmi les cultivateurs, la majorité des sorts se concentrent sur la puissance physique issue du corps ; très peu attaquent directement l'âme originelle. Cependant, une attaque de sens divin pouvait terrifier n'importe quel cultivateur !
 
-Les sorts physiques peuvent être résistés, mais les sorts de sens divin sont spécialisés dans la blessure de l'âme originelle. Une fois l'âme originelle endommagée, au mieux, il s'agit d'une blessure grave, mais le plus souvent, la victime subit une chute de son niveau de culture ou meurt !
+Les sorts physiques peuvent être résistés, mais les sorts de sens divin sont spécialisés dans la blessure de l'âme originelle. Une fois l'âme originelle endommagée, au mieux, il s'agit d'une blessure grave, mais le plus souvent, la victime subit une chute de son niveau de cultivation ou meurt !
 
 Le sort utilisé par Yao Bingyun autrefois pouvait être considéré comme tel. Cependant, c'était une fusion entre le sens divin et l'énergie originelle. Bien qu'efficace, cette méthode présentait des failles.
 
-En revanche, le sort déployé par Russell était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Céleste du Tonnerre avec sa simple culture de milieu de stade Nirvana Scryer !
+En revanche, le sort déployé par Russell était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Céleste du Tonnerre avec sa simple cultivation de milieu de stade Nirvana Scryer !
 
 « Tu as frappé le premier, je ne fais que me défendre, alors accepte ta mort ! » Alors que Russell hurlait, ses yeux s'ouvrirent brusquement et d'innombrables aiguilles de sens divin furent projetées vers Wang Lin.
 
@@ -66,9 +66,9 @@ Une lueur froide passa dans les yeux de Wang Lin ; il forma un sceau de ses deux
 
 Les aiguilles de sens divin se rapprochèrent rapidement de Wang Lin.
 
-L'expression de Wang Lin demeura calme. S'il avait affronté un véritable cultivateur du milieu du stade Nirvana Scryer, la bataille aurait été ardue. Après tout, chaque écart de culture au second niveau est immense. Mais ici, Russell utilisait son sens divin !
+L'expression de Wang Lin demeura calme. S'il avait affronté un véritable cultivateur du milieu du stade Nirvana Scryer, la bataille aurait été ardue. Après tout, chaque écart de cultivation au second niveau est immense. Mais ici, Russell utilisait son sens divin !
 
-Si c'un autre avait été en face, le sens divin de Russell aurait été difficile à contrer. Car la différence de niveau de culture se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible !
+Si c'un autre avait été en face, le sens divin de Russell aurait été difficile à contrer. Car la différence de niveau de cultivation se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible !
 
 Cependant, Wang Lin ne considérait même pas cette attaque comme une menace. Dès que les aiguilles approchèrent, le Fouet du Karma frappa. Après une série de craquements, un grand nombre d'aiguilles furent annihilées. Toutefois, elles étaient trop nombreuses ; certaines contournèrent le fouet et pénétrèrent dans le corps de Wang Lin.
 
@@ -88,7 +88,7 @@ L'Armure de Cuir de l'Ancien Dieu trembla, provoquant l'effondrement du serpent 
 
 Nul ne pouvait voir la scène périlleuse qui se jouait à l'intérieur de son âme originelle. Un seul instant d'inattention aurait signifié la mort. Le visage de Wang Lin devint pâle et ses yeux furent inondés d'intention meurtrière. Ses doigts formèrent une épée et il chargea Russell !
 
-Les pupilles de Russell se rétractèrent. Ses yeux se remplirent de terreur et il s'exclama : « Impossible ! » Il ne pouvait croire que son attaque de sens divin, digne d'un milieu de stade Nirvana Scryer, n'ait infligé aucun dommage à son adversaire. Cela contredisait ses milliers d'années de culture !
+Les pupilles de Russell se rétractèrent. Ses yeux se remplirent de terreur et il s'exclama : « Impossible ! » Il ne pouvait croire que son attaque de sens divin, digne d'un milieu de stade Nirvana Scryer, n'ait infligé aucun dommage à son adversaire. Cela contredisait ses milliers d'années de cultivation !
 
 « Même s'il possède un trésor spécialisé pour protéger son âme originelle, mon niveau est un petit royaume au-dessus du sien et j'ai perfectionné mes attaques de sens divin pendant des millénaires. Même avec un trésor céleste, il est impossible qu'il ne subisse aucun dommage ! » Tandis que Russell était sous le choc, les deux dragons noirs tentaient sans relâche de le dévorer.
 

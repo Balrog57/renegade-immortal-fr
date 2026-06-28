@@ -30,7 +30,7 @@ L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette
 
 À cet instant, les cultivateurs environnants furent saisis d'une excitation et d'une dévotion mêlées à une ferveur ardente.
 
-Pour eux, pouvoir assister au passage d'un être vers la Formation de l'Âme durant leur existence était un honneur et une chance inouïe. C'était également un immense bénéfice pour leur propre culture.
+Pour eux, pouvoir assister au passage d'un être vers la Formation de l'Âme durant leur existence était un honneur et une chance inouïe. C'était également un immense bénéfice pour leur propre cultivation.
 
 Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce stade à Zhao ; il l'avait fait simplement par une étrange impulsion intérieure.
 
@@ -42,11 +42,11 @@ L'apparition du trou noir au-dessus de Zhao rendit les mortels encore plus pieux
 
 Plus les mortels étaient proches du trou noir, plus ils en étaient affectés. Cela était particulièrement vrai pour le village situé aux abords immédiats du Secte Xuan Dao, où chaque enfant contemplait le gouffre avec stupéfaction. Si un cultivateur se trouvait à proximité, il pouvait voir une faible ceinture de lumière sur le front des mortels, reliée au trou noir.
 
-En réalité, chaque fois qu'un cultivateur est sur le point d'atteindre la Formation de l'Âme dans un pays de culture de rang 4, il retourne dans son pays d'origine. À chaque ascension vers ce stade, le trou noir qui apparaît transforme les mortels environnants.
+En réalité, chaque fois qu'un cultivateur est sur le point d'atteindre la Formation de l'Âme dans un pays de cultivation de rang 4, il retourne dans son pays d'origine. À chaque ascension vers ce stade, le trou noir qui apparaît transforme les mortels environnants.
 
 Ceux qui n'avaient aucune racine spirituelle peuvent alors en acquérir une !
 
-C'est l'une des raisons pour lesquelles les pays de culture de rang 4 peuvent totalement dominer les pays de rang 3. Chaque fois qu'un cultivateur atteint la Formation de l'Âme, il génère une multitude de mortels capables, eux aussi, de cultiver.
+C'est l'une des raisons pour lesquelles les pays de cultivation de rang 4 peuvent totalement dominer les pays de rang 3. Chaque fois qu'un cultivateur atteint la Formation de l'Âme, il génère une multitude de mortels capables, eux aussi, de cultiver.
 
 Wang Lin ignorait tout de cela. À cet instant, il était totalement fusionné avec son domaine de la Vie et de la Mort pour expérimenter les lois célestes.
 
@@ -88,11 +88,11 @@ Les mortels respirent l'énergie spirituelle des cieux et de la terre pour trans
 
 Cette transformation est appelée l'Établissement des Fondations.
 
-Selon les principes de la culture, nul ne peut recevoir d'aide extérieure pour atteindre l'Établissement des Fondations. On doit s'efforcer, encore et encore, pour suivre véritablement le chemin de la culture qui défie les cieux.
+Selon les principes de la cultivation, nul ne peut recevoir d'aide extérieure pour atteindre l'Établissement des Fondations. On doit s'efforcer, encore et encore, pour suivre véritablement le chemin de la cultivation qui défie les cieux.
 
 Cependant, atteindre ce stade est si ardu que des pilules capables de défier le ciel, telles que la Pilule d'Établissement des Fondations, furent créées. Aujourd'hui, après tant de temps, très peu de personnes parviennent à l'Établissement des Fondations sans l'aide d'une telle pilule.
 
-Bien que cela contrive les lois célestes, l'union de la culture a décrété que les cieux étaient morts et qu'il n'était donc plus nécessaire de les défier. Avec le passage des âges, les hommes en ont oublié l'importance.
+Bien que cela contrive les lois célestes, l'union de la cultivation a décrété que les cieux étaient morts et qu'il n'était donc plus nécessaire de les défier. Avec le passage des âges, les hommes en ont oublié l'importance.
 
 Une fois l'Établissement des Fondations atteint, le corps devient plus apte à absorber l'énergie spirituelle et peut en contenir davantage. Pourtant, un nouveau goulot d'étranglement finit toujours par apparaître.
 
@@ -104,7 +104,7 @@ Le noyau allège la charge du corps et permet une absorption accrue d'énergie s
 
 C'est pourquoi les cultivateurs de la Formation du Noyau sont comme des êtres célestes aux yeux de ceux qui sont au stade de l'Établissement des Fondations. Après tout, la réserve d'énergie spirituelle qu'ils possèdent dépasse l'entendement de leurs prédécesseurs.
 
-Une fois le noyau formé et la culture poursuivie, un autre obstacle surgit : le stade avancé de la Formation du Noyau.
+Une fois le noyau formé et la cultivation poursuivie, un autre obstacle surgit : le stade avancé de la Formation du Noyau.
 
 À ce point, la simple accumulation d'énergie ne suffit plus. C'est alors que le cultivateur subit une seconde transformation de qualité.
 
@@ -112,7 +112,7 @@ Il ne s'agit pas d'un changement de nature complet, mais pour un cultivateur, c'
 
 Le noyau se brise et l'Âme Naissante naît.
 
-On parle d'Âme "Naissante" car elle marque le véritable commencement du chemin de la culture.
+On parle d'Âme "Naissante" car elle marque le véritable commencement du chemin de la cultivation.
 
 La rupture du noyau et la naissance de l'Âme Naissante constituent une transformation mystérieuse, semblable au premier souffle d'un nouveau-né dans le monde mortel.
 

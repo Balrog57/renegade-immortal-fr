@@ -8,7 +8,7 @@ slug: fan-shanmeng
 ---
 Chapitre 1694 - Fan Shanmeng !
 
-Le visage de Fan Shanlu était d'une pâleur mortelle et elle ne répondit pas aux paroles de Wang Lin. Elle lutta pour s'asseoir et posa ses mains sur ses genoux, puis ferma les yeux pour commencer sa culture.
+Le visage de Fan Shanlu était d'une pâleur mortelle et elle ne répondit pas aux paroles de Wang Lin. Elle lutta pour s'asseoir et posa ses mains sur ses genoux, puis ferma les yeux pour commencer sa cultivation.
 
 Une lumière multicolore scintillait autour de son corps, et la lueur septicolore entre ses sourcils devint extrêmement brillante. Finalement, un faible vortex apparut entre ses sourcils. Non seulement une lumière aux sept couleurs s'en échappait, mais elle était accompagnée de rafales d'énergie glaciale.
 
@@ -84,11 +84,11 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 « Normalement, Seven-Colored et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
-« Ce morceau manquant est tombé entre les mains de Seven-Colored, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte aux Sept Taoïsmes.
+« Ce morceau manquant est tombé entre les mains de Seven-Colored, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma cultivation pour la supprimer totalement, espérant retourner rapidement à la Secte aux Sept Taoïsmes.
 
-« Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma culture entière aspirée pour servir à supprimer le fragment. Il a ensuite tenté de détruire mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
+« Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma cultivation entière aspirée pour servir à supprimer le fragment. Il a ensuite tenté de détruire mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
 
-« Il avait également besoin de ma culture pour ouvrir le fragment. Après tout, ce fragment provenant du Domaine Divin Immemorial était extrêmement difficile à déverrouiller.
+« Il avait également besoin de ma cultivation pour ouvrir le fragment. Après tout, ce fragment provenant du Domaine Divin Immemorial était extrêmement difficile à déverrouiller.
 
 « Pourtant, je ne suis pas morte. Étant une disciple centrale de la Grande Secte des Âmes, une partie de mon âme était restée auprès de mon maître. Ce dernier utilisa le grand sortilège de réincarnation pour me permettre de renaître rapidement.
 
@@ -114,4 +114,4 @@ La femme réfléchit un instant et finit par dire : « Il n'est pas complet ! »
 
 « Je ne sais pas comment il a convaincu Li Guang de l'aider à tuer Ye Mo, mais je sais qu'après avoir révélé à Lian Daofei comment pénétrer dans la grotte, une bataille féroce a éclaté !
 
-« Cette bataille eut lieu peu après la mort de Ye Mo. Seven-Colored est ensuite entré en culture fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment ! »
+« Cette bataille eut lieu peu après la mort de Ye Mo. Seven-Colored est ensuite entré en cultivation fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment ! »

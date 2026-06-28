@@ -12,7 +12,7 @@ L'ancêtre du Clan de l'Hirondelle de Feu était un cultivateur du troisième ni
 
 L'ancêtre émergea à l'extérieur de la planète principale du Clan de l'Hirondelle de Feu. Ses yeux étaient empreints d'extase et, en un éclair, il s'élança vers le centre de la planète, enveloppée de flammes.
 
-Sa vitesse était telle qu'il atteignit instantanément le lieu où il restait habituellement pour sa culture en isolement.
+Sa vitesse était telle qu'il atteignit instantanément le lieu où il restait habituellement pour sa cultivation en isolement.
 
 La température des flammes ici était absolument terrifiante ; une simple étincelle suffisait à tuer un cultivateur. Pourtant, l'ancêtre du Clan de l'Hirondelle de Feu demeurait parfaitement indemne et s'approcha rapidement, tenant Liu Jinbiao par la main.
 
@@ -116,7 +116,7 @@ Plus important encore, le traître, le troisième Oiseau Vermillon, possédait u
 
 Une certitude de 70 % suffisait pour décider d'entreprendre un acte capable de secouer les cieux ! Alors, imaginez avec 90 % ! Une fois cela accompli, il quitterait le Système Stellaire Antique pour retourner dans le Royaume Intérieur !
 
-« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements ! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire le royaume céleste utilisé pour générer les Flammes de Joss, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé. »
+« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en cultivation isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements ! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire le royaume céleste utilisé pour générer les Flammes de Joss, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé. »
 
 « Il a tout mis en œuvre pour tenter les personnes ayant attiré son attention dans le Royaume Intérieur, comme Sima Mo ou Qing Lin, et si je ne me trompe pas, la folie de Qing Shui doit aussi être liée à cet homme ! Il a même utilisé la malveillance de l'implantation du Dao... Tout cela est de sa main. Maintenant qu'il est gravement blessé, je dois saisir cette opportunité ! » Une lueur de folie apparut dans les yeux de Wang Lin. Ce qu'il prévoyait de faire était déjà insensé en soi !
 

@@ -12,9 +12,9 @@ Par conséquent, il devait se montrer impitoyable pour affirmer sa puissance !
 
 Un éclair de froideur traversa ses yeux alors qu'il fixait l'homme d'âge mûr qui reculait. Son pied droit s'avança et il se déplaça tel un météore.
 
-Le niveau de culture de l'homme d'âge mûr n'était pas très élevé, seulement au troisième Ciel de la Peste. Lorsqu'il avait attaqué Wang Lin par surprise, il était certain de réussir.
+Le niveau de cultivation de l'homme d'âge mûr n'était pas très élevé, seulement au troisième Ciel de la Peste. Lorsqu'il avait attaqué Wang Lin par surprise, il était certain de réussir.
 
-Même si quelqu'un possédait un niveau de culture supérieur au sien, une telle attaque sournoise aurait laissé des blessures. Après tout, quiconque serait aspiré ici serait momentanément hébété et pris de panique. Ce bref instant suffisait amplement pour tuer ou blesser gravement un homme.
+Même si quelqu'un possédait un niveau de cultivation supérieur au sien, une telle attaque sournoise aurait laissé des blessures. Après tout, quiconque serait aspiré ici serait momentanément hébété et pris de panique. Ce bref instant suffisait amplement pour tuer ou blesser gravement un homme.
 
 Une fois blessé, les cultivateurs environnants se seraient tous ligués contre lui. Ils avaient conclu un accord pour s'entraider, pacte qui resterait en vigueur jusqu'à ce qu'ils rencontrent un ennemi surpuissant.
 
@@ -36,7 +36,7 @@ C'était une décision aussi simple que tragique !
 
 Wang Lin fonça comme un rayon de lumière vers l'homme d'âge mûr. Voyant Wang Lin se rapprocher à une vitesse fulgurante, une lueur de folie apparut dans ses yeux. Il frappa sa poitrine et cracha une bouchée de sang. Utilisant l'Évasion Sanguine, qui le blessa gravement, il se précipita vers le brouillard. Il était sur le point d'y plonger.
 
-« Quel personnage ! » L'analyse rapide et la détermination de l'autre révélaient qu'il était digne de sa culture du troisième Ciel de la Peste. Cependant, il avait attaqué la mauvaise personne, et il devait maintenant faire face à Wang Lin !
+« Quel personnage ! » L'analyse rapide et la détermination de l'autre révélaient qu'il était digne de sa cultivation du troisième Ciel de la Peste. Cependant, il avait attaqué la mauvaise personne, et il devait maintenant faire face à Wang Lin !
 
 Wang Lin ne révéla ni son sort d'Arrêt, ni son épée de sang pour achever l'homme avant qu'il n'entre dans le brouillard. Ce n'étaient pas des atouts qu'il dévoilerait sans précaution.
 

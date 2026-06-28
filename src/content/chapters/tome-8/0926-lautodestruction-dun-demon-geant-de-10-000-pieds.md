@@ -8,7 +8,7 @@ slug: lautodestruction-dun-demon-geant-de-10-000-pieds
 ---
 Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blanche s'élancèrent vers les Lou Fu. Bien que ces derniers exercent une grande influence sur les cultivateurs de l'Alliance, ils n'affectèrent pas ces deux individus ; au contraire, ils leur apportèrent une aide précieuse en se précipitant pour les protéger à l'aide de leurs sorts.
 
-Li Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
+Li Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de cultivation.
 
 À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur d'Allheaven plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
 
@@ -24,7 +24,7 @@ Toutefois, Wang Lin ne croyait pas que Li Yunzi manqué de ressources, mais ce n
 
 Sur ces mots, il fit un pas et chargea droit vers le géant.
 
-La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin : « Cher compagnon de culture Xu, soyez prudent. »
+La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin : « Cher compagnon de cultivation Xu, soyez prudent. »
 
 Lorsque Wang Lin quitta le bois géant et sortit de sa zone d'influence, il fut assailli par le chaos des batailles environnantes. À mesure que le membre du clan des Démons Géants approchait, il pouvait entendre les détonations soniques provoquées par sa charge.
 
@@ -66,19 +66,19 @@ Après une explosion fracassante, le membre du clan des Démons Géants vola en 
 
 Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du clan des Démons Géants de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu !
 
-La femme en robe de palais sur le bois géant sourit : « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet d'accroître instantanément la puissance de votre corps est particulièrement impressionnant. »
+La femme en robe de palais sur le bois géant sourit : « J'admire les sorts du compagnon de cultivation Xu. Ce sort qui vous permet d'accroître instantanément la puissance de votre corps est particulièrement impressionnant. »
 
 Li Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa l'un des Parchemins de Bataille et y injecta son Sens Divin.
 
-Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité semblait porter un sort de sang capable d'inverser le ciel. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang, ainsi que le vieillard en robe noire et le jeune homme en blanc.
+Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité semblait porter un sort de sang capable d'inverser le ciel. Elle chargea directement vers le vieil homme sur la planète de cultivation qui combattait déjà une autre silhouette de sang, ainsi que le vieillard en robe noire et le jeune homme en blanc.
 
 Au loin, la femme en robe bleue fronça davantage les sourcils. De sa main semblable au jade, elle désigna deux autres géants de 10 000 pieds qui s'élancèrent. L'un d'eux se dirigea droit vers le Lou Fu.
 
-L'autre chargea directement vers le bois géant ! Alors que ce membre du clan des Démons Géants approchait, le vieil homme sur la planète de culture s'éleva dans les airs. Ses mains formèrent un sceau et il pressa la paume vers le bas !
+L'autre chargea directement vers le bois géant ! Alors que ce membre du clan des Démons Géants approchait, le vieil homme sur la planète de cultivation s'éleva dans les airs. Ses mains formèrent un sceau et il pressa la paume vers le bas !
 
-La planète de culture située entre le vieil homme et le démon commença soudainement à pivoter en émettant des ondulations. Le vieillard entama une incantation, ses yeux brillant d'une lueur intense. Puis, d'un geste sec, il cria : « Fluctuation planétaire ! »
+La planète de cultivation située entre le vieil homme et le démon commença soudainement à pivoter en émettant des ondulations. Le vieillard entama une incantation, ses yeux brillant d'une lueur intense. Puis, d'un geste sec, il cria : « Fluctuation planétaire ! »
 
-Après cet ordre, la planète de culture s'éleva et tourna avec une célérité accrue. Cependant, au fur et à mesure de sa rotation, elle commença à rétrécir jusqu'à n'atteindre que la moitié de sa taille initiale.
+Après cet ordre, la planète de cultivation s'éleva et tourna avec une célérité accrue. Cependant, au fur et à mesure de sa rotation, elle commença à rétrécir jusqu'à n'atteindre que la moitié de sa taille initiale.
 
 Simultanément, une onde rouge écarlate se propagea depuis la planète. Sous le contrôle du vieil homme, elle s'étendit vers l'avant à une vitesse prodigieuse.
 
@@ -108,4 +108,4 @@ L'expression de Wang Lin resta impassible tandis qu'il répondait calmement : «
 
 Xu Ting fut déconcerté et son expression devint incertaine. Serrant les dents, il déclara : « Très bien, relevons ce défi ! Nous massacrerons tout sur notre passage jusqu'à elle, et nous verrons qui réussira ! »
 
-La femme jouissait manifestement d'un rang très élevé, sans quoi elle ne dirigerait pas cette bataille. Pourtant, sa culture ne semblait pas si élevée, se situant seulement au milieu du stade Nirvana Scryer.
+La femme jouissait manifestement d'un rang très élevé, sans quoi elle ne dirigerait pas cette bataille. Pourtant, sa cultivation ne semblait pas si élevée, se situant seulement au milieu du stade Nirvana Scryer.

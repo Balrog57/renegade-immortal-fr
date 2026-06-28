@@ -26,17 +26,17 @@ Le regard de Yunque Zi resta calme face au singe, puis il sourit. « Ainsi, c'es
 
 Les yeux de l'homme âgé devinrent rouges alors qu'il fixait Yunque Zi. À ce moment précis, le singe sur son épaule poussa un cri, la rougeur disparut des yeux de l'homme et il déclara : « Je suis Mo Lihai. »
 
-Sur ces mots, une intention meurtrière traversa son regard avant qu'il ne ferme les yeux pour reprendre sa culture.
+Sur ces mots, une intention meurtrière traversa son regard avant qu'il ne ferme les yeux pour reprendre sa cultivation.
 
 « Bien que cet homme semble être au stade avancé de la Transformation de l'Âme, il dégage un sentiment mystérieux. Les gens ordinaires ne pourraient pas le détecter ; seuls ceux qui ont atteint le stade Ascendant peuvent clairement le ressentir... Cet homme n'est pas de la planète Suzaku ! » Yunque Zi regarda une dernière fois l'homme âgé avant de détourner les yeux. Il observa ensuite la porte géante et médita silencieusement.
 
 Grâce à sa compréhension du Tombeau de Suzaku, il avait été profondément choqué tout au long de son voyage. C'était totalement différent de ce que le précédent Suzaku lui avait décrit.
 
-Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Culture. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Tombeau de Suzaku.
+Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Cultivation. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Tombeau de Suzaku.
 
-Cependant, la montagne spirituelle était restée la même ; la porte était l'unique passage vers le tombeau du premier Suzaku. Le Cristal de la Planète de Culture était conservé à l'intérieur du tombeau du premier Suzaku.
+Cependant, la montagne spirituelle était restée la même ; la porte était l'unique passage vers le tombeau du premier Suzaku. Le Cristal de la Planète de Cultivation était conservé à l'intérieur du tombeau du premier Suzaku.
 
-Toutefois, il était impossible d'ouvrir cette porte sans le Cœur de la Planète de Culture. S'il voulait entrer, il devait attendre qu'elle se brise jusqu'à un certain point.
+Toutefois, il était impossible d'ouvrir cette porte sans le Cœur de la Planète de Cultivation. S'il voulait entrer, il devait attendre qu'elle se brise jusqu'à un certain point.
 
 Alors que Yunque Zi examinait la porte, son expression changea légèrement. Il jeta un regard vers le pied de la montagne spirituelle avant de détourner les yeux.
 

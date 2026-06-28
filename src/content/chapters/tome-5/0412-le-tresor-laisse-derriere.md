@@ -94,7 +94,7 @@ Mais à cet instant, le jade scintilla.
 
 L'homme au regard sombre poussa un cri déchirant ; une veine gonfla sur son front alors qu'il tentait de reculer en hâte. La terreur envahit ses yeux. Il pouvait ressentir une aura destructrice émanant du jade, une aura que même les membres à quatre feuilles de son clan ne pourraient surmonter.
 
-Mais une fois le jade activé, un homme de son niveau de culture n'avait aucune chance de survie.
+Mais une fois le jade activé, un homme de son niveau de cultivation n'avait aucune chance de survie.
 
 Le jade brilla une nouvelle fois et l'homme au regard sombre cracha un jet de sang en étant expulsé violemment hors de la demeure ancestrale. Il s'écrasa au sol et mourut sur le coup.
 
@@ -106,7 +106,7 @@ Cette scène étrange laissa les trois occupants de la demeure ancestrale dans u
 
 L'homme murmura pour lui-même : « Les rumeurs étaient vraies... »
 
-Le jade que Wang Lin avait laissé ici contenait un infime fragment de son Royaume Ji. Avec sa culture de l'époque, n'importe quel cultivateur de l'Âme Naissante mourrait instantanément face à lui.
+Le jade que Wang Lin avait laissé ici contenait un infime fragment de son Royaume Ji. Avec sa cultivation de l'époque, n'importe quel cultivateur de l'Âme Naissante mourrait instantanément face à lui.
 
 En ce moment même, au pied de la montagne Heng Yue, à l'extérieur de la Secte Tian Dao, la plupart des cultivateurs de Zhao étaient rassemblés. Leurs visages étaient empreints de colère alors qu'ils scrutaient l'horizon.
 
@@ -114,7 +114,7 @@ Ils fixaient tous une silhouette solitaire flottant dans les airs.
 
 Une grande partie du corps de cet homme était couverte de tatouages. Rien que par sa simple présence, il dégageait une aura puissante.
 
-Une voix rauque s'éleva de l'inconnu : « Ce pays de culture est en effet intéressant. Pensez-vous qu'il existe ici un trésor capable de renverser la situation ? »
+Une voix rauque s'éleva de l'inconnu : « Ce pays de cultivation est en effet intéressant. Pensez-vous qu'il existe ici un trésor capable de renverser la situation ? »
 
 Un vieil homme aux cheveux blancs, vêtu d'une robe noire, sortit de la Secte Tian Dao. Il fixa le membre du Clan de l'Immortel Délaissé avec haine et déclara : « Vous pouvez essayer ! »
 
@@ -122,7 +122,7 @@ L'homme laissa échapper un rire tandis que ses yeux brillaient, libérant sa v�
 
 « Intéressant. Je n'ai pas été envoyé ici pour m'occuper de vous, misérables cultivateurs, je ne faisais que passer. Cependant, puisque vous le demandez, je veux voir quel genre de trésor vous donne une telle assurance. » Ses yeux exprimaient un profond mépris. En tant que shaman à six feuilles, à moins de croiser un cultivateur de la Formation de l'Âme au stade avancé, nul ne représentait une menace pour lui.
 
-Il ne croyait pas qu'un tel expert puisse exister dans un simple pays de culture de rang 3.
+Il ne croyait pas qu'un tel expert puisse exister dans un simple pays de cultivation de rang 3.
 
 D'un seul pas, il s'approcha de la Secte Tian Dao. Les dragons qui l'entouraient poussèrent des rugissements et chargèrent vers la secte.
 

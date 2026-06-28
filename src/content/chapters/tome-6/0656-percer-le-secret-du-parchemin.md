@@ -44,7 +44,7 @@ Bien que sa voix fût douce, Wang Lin l'entendit distinctement. Ces mots furent 
 
 Si ce qu'il avait entendu précédemment ressemblait à dix mille éclairs foudroyant son esprit, alors ceci était cent mille, un million, dix millions de tonnerres explosant en lui, ébranlant jusqu'à son âme originelle.
 
-Son âme originelle, ses souvenirs, tout ce qu'il était, entra instantanément en éruption comme un déluge monstrueux à la suite de cette seconde phrase. C'était comme si le ciel entier s'effondrait. Malgré sa force mentale, Wang Lin ne put empêcher son corps de trembler. Il se retourna et fixa la femme. Ses yeux possédaient l'éclat d'une bête sauvage, ayant perdu toute la sérénité acquise durant ses 800 ans de culture !
+Son âme originelle, ses souvenirs, tout ce qu'il était, entra instantanément en éruption comme un déluge monstrueux à la suite de cette seconde phrase. C'était comme si le ciel entier s'effondrait. Malgré sa force mentale, Wang Lin ne put empêcher son corps de trembler. Il se retourna et fixa la femme. Ses yeux possédaient l'éclat d'une bête sauvage, ayant perdu toute la sérénité acquise durant ses 800 ans de cultivation !
 
 À cet instant, que ce soit l'All-Seer, la grotte, l'Ancêtre de Sang ou la Terre des Esprits Démoniaques n'avait plus d'importance ! Tout cela s'était effondré ; seule importait la présence du regard éperdu de Wang Lin sur la femme !
 
@@ -64,7 +64,7 @@ Chaque être possède une faille où, peu importe son intelligence, son calme s'
 
 Wang Lin restait un homme. Il n'était ni un être céleste impitoyable, ni un dieu sans merci...
 
-Après plus de 800 ans de culture, sa sérénité s'était imprégnée dans ses os au point de devenir son état naturel. Il avait pu quitter la planète Suzaku avec calme et laisser à Zhou Ru un sac en attendant le jour où elle l'ouvrirait...
+Après plus de 800 ans de cultivation, sa sérénité s'était imprégnée dans ses os au point de devenir son état naturel. Il avait pu quitter la planète Suzaku avec calme et laisser à Zhou Ru un sac en attendant le jour où elle l'ouvrirait...
 
 Il pouvait affronter tous ses ennemis avec impassibilité. Peu importe leur puissance, ils ne pourraient ébranler son cœur de Dao.
 
@@ -96,7 +96,7 @@ Ce qui était mystérieux, c'est que cette force semblait être confinée ici, c
 
 Au moment où Wang Lin posa les yeux sur le vortex, une force étrange émana de l'intérieur du parchemin et pénétra son corps. Cette puissance se condensa dans son regard, lui permettant à cet instant de percer le vortex pour voir ce qui s'y cachait.
 
-Un ciel étoilé parsemé d'innombrables planètes de culture... Cela ressemblait à un autre monde.
+Un ciel étoilé parsemé d'innombrables planètes de cultivation... Cela ressemblait à un autre monde.
 
 « C'est donc... » Wang Lin contempla le vortex, bouleversé. À cet instant, il retrouva son calme.
 

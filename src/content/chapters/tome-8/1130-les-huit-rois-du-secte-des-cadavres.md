@@ -42,7 +42,7 @@ Avant que quiconque ne puisse réagir, une bourrasque de vent fit vaciller ces c
 
 Au moment où les pupilles des cultivateurs se contractèrent, la tête géante les atteignit. Les combattants de première ligne ne purent même pas esquiver avant que la gueule du dragon ne s'écraser sur eux.
 
-Ils eurent soudain l'impression d'être frappés par une planète de culture ; leurs corps explosèrent dans un fracas assourdissant, se transformant en un amas de chair, avant de pulvériser une seconde fois en une brume de sang !
+Ils eurent soudain l'impression d'être frappés par une planète de cultivation ; leurs corps explosèrent dans un fracas assourdissant, se transformant en un amas de chair, avant de pulvériser une seconde fois en une brume de sang !
 
 Même leurs âmes originelles ne purent s'échapper et furent aspirées dans le dragon de sang par une force mystérieuse.
 
@@ -68,7 +68,7 @@ Pourtant, la puissance qu'ils manifestaient était capable de faire trembler les
 
 Finalement, l'un des huit rois agita ses manches et s'apprêta à collecter ces quatre captifs.
 
-Cependant, au même instant, une lumière rouge sang enveloppa le vide. Leurs expressions changèrent radicalement et ils levèrent les yeux. Grâce à leur niveau de culture, ils virent naturellement le gigantesque dragon de sang fondre sur eux.
+Cependant, au même instant, une lumière rouge sang enveloppa le vide. Leurs expressions changèrent radicalement et ils levèrent les yeux. Grâce à leur niveau de cultivation, ils virent naturellement le gigantesque dragon de sang fondre sur eux.
 
 Ce dragon était trop immense, même pour ces huit experts, et leurs pupilles se rétractèrent de stupeur.
 

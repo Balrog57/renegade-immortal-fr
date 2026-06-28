@@ -22,7 +22,7 @@ D'une voix lente, Wang Lin dit : « Puisque vous osez tenir ce discours devant m
 
 En entendant cela, le prince Ji Du se détendit légèrement. Son geste précédent revenait à marcher vers la mort, mais il était déterminé. Il ne laisserait pas passer cette chance après avoir rencontré Wang Lin, d'autant plus qu'elle déciderait de son destin !
 
-« L'unique disciple du Grand Empyrean Xuan Luo de l'Ancienne Voie se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est retourné au clan céleste, il est immédiatement entré en culture de porte close à son retour. Nous avons commencé à enquêter et, avec l'aide du Grand Empyrean Song, nous avons déduit la majeure partie de la vérité.
+« L'unique disciple du Grand Empyrean Xuan Luo de l'Ancienne Voie se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est retourné au clan céleste, il est immédiatement entré en cultivation de porte close à son retour. Nous avons commencé à enquêter et, avec l'aide du Grand Empyrean Song, nous avons déduit la majeure partie de la vérité.
 
 « Cependant, même alors, mon père et le Grand Empyrean Song Tian n'étaient pas certains que l'Exalt Empyrean aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyrean Xuan Luo.
 
@@ -62,7 +62,7 @@ Et cette personne devait être quelqu'un en qui le prince avait une confiance te
 
 Le visage du prince Ji Du devint livide. Bien que très rusé, il se sentait totalement mis à nu devant Wang Lin.
 
-« C'était... c'était l'enseignant impérial... Il est mon oncle maternel... Il y a dix ans, après être sorti de sa culture de porte close, il a pratiqué la divination sur mon avenir. Il m'a dit que lorsque les ambassadeurs de l'Ancienne Voie arriveraient, je devais les escorter. C'est là que je rencontrerais une chance de changer mon destin...
+« C'était... c'était l'enseignant impérial... Il est mon oncle maternel... Il y a dix ans, après être sorti de sa cultivation de porte close, il a pratiqué la divination sur mon avenir. Il m'a dit que lorsque les ambassadeurs de l'Ancienne Voie arriveraient, je devais les escorter. C'est là que je rencontrerais une chance de changer mon destin...
 
 « Si je parviens à saisir cette opportunité, ma destinée basculera et mon avenir sera sans limites... Mais si je la laisse passer, je ne vivrai pas plus de cent ans... Quant aux détails, il n'a pu voir clairement, il n'avait qu'un pressentiment vague. Après cela, il... il est mort. »
 
@@ -70,7 +70,7 @@ Sous le regard puissant de Wang Lin, l'esprit du prince Ji Du trembla et il n'os
 
 Wang Lin fronça les sourcils. Il éprouvait une profonde méfiance envers ceux qui portaient le titre d'enseignant impérial. Ces individus maîtrisaient la divination avec une telle expertise qu'il avait vu à quel point ils pouvaient être terrifiants au sein du clan céleste.
 
-Toutefois, cet enseignant du Clan Ancien ne pouvait rivaliser avec ceux du clan céleste et ses visions semblaient incertaines. Vu le niveau de culture de Wang Lin, il comprit que malgré la ruse du prince, celui-ci ne mentait pas.
+Toutefois, cet enseignant du Clan Ancien ne pouvait rivaliser avec ceux du clan céleste et ses visions semblaient incertaines. Vu le niveau de cultivation de Wang Lin, il comprit que malgré la ruse du prince, celui-ci ne mentait pas.
 
 « Si mon parrain m'aide, alors tout sera accompli ! Mon père vieillit et se prépare à abdiquer ; un nouvel empereur sera choisi parmi mes sept frères et sœurs... Parrain, vous n'avez pas besoin de décider immédiatement, mais si un jour vous décidez de quitter l'Ancienne Voie et que vous n'avez nulle part où aller, je vous en prie, revenez ici afin que ce fils puisse accomplir son devoir filial ! » dit rapidement le prince Ji Du.
 

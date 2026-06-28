@@ -58,7 +58,7 @@ Au total, trois cent soixante sommets principaux constituaient les racines du Gr
 
 Certains pics étaient très distants, d'autres très proches. Les vallées de chaque chaîne de montagnes abritaient d'innombrables pavillons magnifiques, des temples, des places et des grottes.
 
-Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de culture différentes. Le secte possédait de nombreux sorts ; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
+Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de cultivation différentes. Le secte possédait de nombreux sorts ; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
 
 À cet instant, la montagne rouge avait totalement changé. Elle n'était plus rouge, mais d'un violet sombre. Elle était parsemée de fissures et dans un état pitoyable.
 
@@ -74,7 +74,7 @@ Après être retourné au Grand Secte de l'Âme, l'expression de Wang Lin resta 
 
 Il n'avait pas échangé un mot avec l'Estimé Taureau Vert durant le trajet. En apercevant le Grand Secte de l'Âme, l'Estimé était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait du secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était la propriétaire de la veine principale de feu terrestre, celle-là même qui avait traqué Wang Lin dans les profondeurs !
 
-« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela ! » La jeune femme ne laissa aucun répit à l'Estimé Taureau Vert pour s'exprimer. Avec son niveau de culture, comment aurait-elle pu ignorer la situation ? L'Ancien avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
+« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela ! » La jeune femme ne laissa aucun répit à l'Estimé Taureau Vert pour s'exprimer. Avec son niveau de cultivation, comment aurait-elle pu ignorer la situation ? L'Ancien avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
 
 Elle s'était exprimée immédiatement afin que, même face à l'Ancien, celui-ci soit contraint de lui fournir des explications. Après tout, elle était une Ancienne du Grand Secte de l'Âme.
 
@@ -90,13 +90,13 @@ Une telle manœuvre consistait à porter l'affaire au grand jour devant tout le 
 
 Les actions de Yan Lu étaient chargées d'intentions multiples, prouvant son caractère exceptionnel. Tandis qu'elle chargeait, de puissantes auras jaillirent des sommets du Grand Secte de l'Âme et convergèrent vers le lieu de la confrontation.
 
-Ces figures possédaient des niveaux de culture variés. La plus forte se trouvait au début du stade de la Tribulation du Vide, tandis que la plus faible était encore au niveau du Vide Spirituel.
+Ces figures possédaient des niveaux de cultivation variés. La plus forte se trouvait au début du stade de la Tribulation du Vide, tandis que la plus faible était encore au niveau du Vide Spirituel.
 
 « Je remercie l'Ancien d'avoir capturé ce petit voleur. Petit voleur, voyons où tu pourras te cacher cette fois ! » Yan Lu chargea soudainement Wang Lin. Il vit la belle femme se métamorphoser en une tête de phénix dont le bec gigantesque fonçait sur lui.
 
 De loin, on aurait dit un phénix flamboyant dévorant les cieux !
 
-L'aura d'un cultivateur de la Tribulation du Vide émanait du phénix, mais sa culture semblait instable, prête à s'effondrer. La jeune femme était manifestement blessée par les assauts précédents de Wang Lin. De plus, le désastre de sa montagne et la rage provoquée par la réapparition soudaine de Wang Lin avaient ébranlé son esprit.
+L'aura d'un cultivateur de la Tribulation du Vide émanait du phénix, mais sa cultivation semblait instable, prête à s'effondrer. La jeune femme était manifestement blessée par les assauts précédents de Wang Lin. De plus, le désastre de sa montagne et la rage provoquée par la réapparition soudaine de Wang Lin avaient ébranlé son esprit.
 
 Les yeux de Wang Lin brillèrent d'un éclat vif. Plutôt que de reculer, il laissa échapper un rire qui se propagea dans toutes les directions. Puisqu'il avait décidé de rejoindre le Grand Secte de l'Âme et d'en devenir un Ancien, il lui fallait démontrer sa puissance !
 

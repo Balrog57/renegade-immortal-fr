@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 782 - The Qualification of a Rank 9 Celestial Lord
 slug: la-qualification-dun-seigneur-celeste-de-rang-9
 ---
-Les familles cultivatrices possédaient des classifications que les étrangers ignoraient. Dans le Système Stellaire de l'Alliance, par exemple, une planète de culture de rang 7 représentait le sommet de l'existence en surface.
+Les familles cultivatrices possédaient des classifications que les étrangers ignoraient. Dans le Système Stellaire de l'Alliance, par exemple, une planète de cultivation de rang 7 représentait le sommet de l'existence en surface.
 
-Les planètes de culture de rang 8 étaient extrêmement rares ; le Système Stellaire de l'Alliance n'en comptait que trois. Quant à la plus mystérieuse des planètes de culture de rang 9, il n'en existait qu'une seule dans tout le système !
+Les planètes de cultivation de rang 8 étaient extrêmement rares ; le Système Stellaire de l'Alliance n'en comptait que trois. Quant à la plus mystérieuse des planètes de cultivation de rang 9, il n'en existait qu'une seule dans tout le système !
 
 Les familles cultivatrices du Système Stellaire d'Allheaven suivaient des classifications similaires, mais elles accordaient davantage d'importance à l'histoire. Seules les lignées pérennes pouvaient devenir une existence éternelle au sein d'Allheaven.
 
@@ -16,13 +16,13 @@ Dans ce système, les plus communes étaient les familles établies sur les plan
 
 Au-dessus de ces familles se trouvaient les quatre grandes familles détenant des héritages du Royaume Céleste. Elles constituaient la force la plus puissante en surface dans le Système Stellaire d'Allheaven. En remontant à leurs racines, les ancêtres de ces quatre grandes familles étaient tous des êtres célestes au sein du Royaume Céleste du Tonnerre avant son effondrement ; leur statut était donc tout sauf ordinaire.
 
-De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances d'Allheaven. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la culture, et six familles de ce type subsistaient dans le Système Stellaire d'Allheaven.
+De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances d'Allheaven. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la cultivation, et six familles de ce type subsistaient dans le Système Stellaire d'Allheaven.
 
 La mystérieuse famille Ziang de la planète Dong Lin et la famille de Li Yuan faisaient partie de ces six. Cependant, au fil des millénaires, nombre de ces lignées antiques avaient décliné. La famille Li en était un exemple, tout comme trois autres ; aujourd'hui, il n'en restait plus que deux !
 
-Tout comme le Système de l'Alliance possédait une planète de culture de rang 9, le Système Stellaire d'Allheaven abritait une famille ayant survécu encore plus longtemps : une lignée existant depuis les temps primordiaux. Cette famille primordiale était la véritable puissance absolue d'Allheaven, et elle demeurait extrêmement mystérieuse.
+Tout comme le Système de l'Alliance possédait une planète de cultivation de rang 9, le Système Stellaire d'Allheaven abritait une famille ayant survécu encore plus longtemps : une lignée existant depuis les temps primordiaux. Cette famille primordiale était la véritable puissance absolue d'Allheaven, et elle demeurait extrêmement mystérieuse.
 
-Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la culture depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et assisté à la création du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire d'Allheaven. Il était fort probable que cette lignée primordiale détîchait le secret de l'ancien Royaume Céleste ; leurs simples sorts suffisaient à dominer tout le système stellaire.
+Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la cultivation depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et assisté à la création du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire d'Allheaven. Il était fort probable que cette lignée primordiale détîchait le secret de l'ancien Royaume Céleste ; leurs simples sorts suffisaient à dominer tout le système stellaire.
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
@@ -48,9 +48,9 @@ Ce qui suivit fut simple : les trois hommes coopérèrent pour ouvrir le pavillo
 
 Wang Lin hocha légèrement la tête. D'après les souvenirs du membre de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 
-Une fois Wang Lin entré, le vieillard sans corps soupira : « Si nous avions su qu'il était aussi puissant, nous ne l'aurions pas attaqué et l'aurions laissé entrer sans cérémonie. Avec sa culture, il ne pourra monter au plus haut que jusqu'au quatrième étage, comme nous. »
+Une fois Wang Lin entré, le vieillard sans corps soupira : « Si nous avions su qu'il était aussi puissant, nous ne l'aurions pas attaqué et l'aurions laissé entrer sans cérémonie. Avec sa cultivation, il ne pourra monter au plus haut que jusqu'au quatrième étage, comme nous. »
 
-« Le quatrième étage est notre limite, mais ses sorts et ses trésors sont redoutables. Nous avons le même niveau de culture, et il était évident qu'il se retenait. Je crains que s'il n'avait pas eu besoin de nous pour ouvrir le pavillon, il n'aurait pas seulement tué une personne lors de cet affrontement. »
+« Le quatrième étage est notre limite, mais ses sorts et ses trésors sont redoutables. Nous avons le même niveau de cultivation, et il était évident qu'il se retenait. Je crains que s'il n'avait pas eu besoin de nous pour ouvrir le pavillon, il n'aurait pas seulement tué une personne lors de cet affrontement. »
 
 Le vieillard sans corps eut un sourire amer : « En effet, je sentais qu'il voulait en tuer deux. Si je ne m'étais pas échappé assez vite, mon âme originelle se serait également effondrée. »
 
@@ -64,17 +64,17 @@ Tandis qu'ils discutaient, Wang Lin atteignit un espace mystérieux. Les environ
 
 Soudain, la brume environnante se mit à s'agiter. Le mouvement fut fulgurant ; les ondes de brouillard se rassemblèrent devant Wang Lin et, en un clin d'œil, formèrent une silhouette humaine. Cet être était fait de brume. Ses vêtements étaient indistincts, mais son visage était clairement visible. Son apparence était ordinaire, mais il dégageait une aura radicalement différente de celle d'un cultivateur. Une fois apparu, il regarda calmement Wang Lin, puis leva sa main droite, paume vers l'extérieur, et resta immobile.
 
-Les yeux de Wang Lin se plissèrent. Il savait, grâce aux souvenirs de Yao, que bien que le processus diffère pour chacun, il y avait une constante au début : le test du niveau de culture. Après une courte réflexion, Wang Lin fit un pas en avant et s'approcha de l'entité. Il leva sa main droite et la pressa contre la paume de l'autre.
+Les yeux de Wang Lin se plissèrent. Il savait, grâce aux souvenirs de Yao, que bien que le processus diffère pour chacun, il y avait une constante au début : le test du niveau de cultivation. Après une courte réflexion, Wang Lin fit un pas en avant et s'approcha de l'entité. Il leva sa main droite et la pressa contre la paume de l'autre.
 
 Instantanément, une force mystérieuse pénétra son corps. Elle le parcourut une fois avant de s'en extraire, et une voix grave résonna soudainement :
 
 « Grand Céleste de rang 8 ! Vous pouvez accéder au quatrième étage du Pavillon des Collections pour tester votre chance et tenter d'obtenir un sort céleste ! »
 
-En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura : « Grand Céleste de rang 8... Je me demande comment la culture est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Yang Corporel ; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
+En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura : « Grand Céleste de rang 8... Je me demande comment la cultivation est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Yang Corporel ; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
 
 À cet instant, l'être de brume commença à se dissiper lentement. Wang Lin savait qu'une fois la dissipation totale achevée, il serait téléporté au quatrième étage et que tout le reste dépendrait de sa chance. Cependant, quelle que soit sa fortune, il ne pourrait obtenir qu'un sort céleste de ce niveau. Bien qu'il ignorât le nombre d'étages du pavillon, il était évident que plus l'étage était élevé, meilleure serait la qualité des sorts ! Au plus haut étage, même le sort le plus commun surpasserait les trésors des étages inférieurs.
 
-Néanmoins, le test de culture ne pouvait être falsifié. Tout reposait sur la force propre de l'individu, ce qui constituait en soi une forme de destin. Seuls ceux dotés d'une culture puissante pouvaient espérer des sorts célestes précieux ; pour les autres, il était inutile d'espérer davantage.
+Néanmoins, le test de cultivation ne pouvait être falsifié. Tout reposait sur la force propre de l'individu, ce qui constituait en soi une forme de destin. Seuls ceux dotés d'une cultivation puissante pouvaient espérer des sorts célestes précieux ; pour les autres, il était inutile d'espérer davantage.
 
 Voyant que l'être de brume allait disparaître, Wang Lin eut soudain une idée audacieuse. À l'instant où cette pensée germa, son cœur se mit à battre la chamade et sa gorge devint sèche. Après une brève hésitation, il serra les dents et une pagode apparut dans sa main. Ses yeux projetèrent une lueur mystérieuse tandis qu'il frappait la pagode de sa main gauche. La femme en robe blanche apparut immédiatement devant lui.
 

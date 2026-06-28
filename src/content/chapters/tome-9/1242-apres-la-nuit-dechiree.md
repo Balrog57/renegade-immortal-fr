@@ -16,7 +16,7 @@ Les bêtes-moustiques semblaient porter un vif intérêt au vent, particulièrem
 
 D'innombrables ruines et débris jonchaient ces terres, aux côtés de nombreux édifices effondrés. Chaque passage du vent semblait en emporter une partie, et au fil des années, ces bâtiments avaient peu à peu disparu sous l'assaut des bourrasques.
 
-Contemplant ce spectacle, Wang Lin ne put s'empêcher de ressentir une immense désolation. En près de 2 000 ans de culture, il était allé dans le Royaume Céleste de la Pluie, celui du Tonnerre, et se trouvait désormais dans celui du Vent.
+Contemplant ce spectacle, Wang Lin ne put s'empêcher de ressentir une immense désolation. En près de 2 000 ans de cultivation, il était allé dans le Royaume Céleste de la Pluie, celui du Tonnerre, et se trouvait désormais dans celui du Vent.
 
 Ses expériences avaient été extraordinaires ; peu d'êtres pouvaient se comparer à ce qu'il avait vécu.
 
@@ -68,13 +68,13 @@ C'est comme un peintre qui n'aurait jamais vu le plus haut sommet, l'immensité 
 
 Ce n'est qu'après avoir vu et expérimenté par soi-même que l'on peut peindre les montagnes et les mers avec une telle âme que l'on crée des chefs-d'œuvre qui traverseront les âges.
 
-La culture suit la même logique, c'est pourquoi tous les disciples des grandes sectes partent explorer les cieux une fois que leur niveau de culture atteint un certain stade.
+La cultivation suit la même logique, c'est pourquoi tous les disciples des grandes sectes partent explorer les cieux une fois que leur niveau de cultivation atteint un certain stade.
 
 Cependant, les peintres restent des hommes, et certains ne sont pas émus par le ciel ou la terre. Ils n'acquièrent aucune compréhension et ne laissent derrière eux que des empreintes qui s'effacent avec le temps.
 
 Il y a aussi ceux qui acquièrent une compréhension en observant les cieux et la terre, les montagnes et les mers, ou même un simple pêcheur jetant ses filets. Bien que leurs traces soient également balayées, la compréhension qu'ils ont acquise demeure dans leur cœur et les accompagne partout.
 
-La culture est ainsi faite : certains cultivateurs ne ressentent aucune compréhension. Peu importe ce qu'ils voient, tout est vain.
+La cultivation est ainsi faite : certains cultivateurs ne ressentent aucune compréhension. Peu importe ce qu'ils voient, tout est vain.
 
 Certains cultivateurs ont fusionné le ciel avec leur cœur, faisant de lui leur propre compréhension. À cet instant, Wang Lin avait capturé la porte de pierre dans son cœur ! C'était l'un des trois grands royaumes : le Royaume Shi !
 

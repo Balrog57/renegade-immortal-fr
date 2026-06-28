@@ -140,13 +140,13 @@ Il descendit à plus de 300 mètres sous terre et s'assit en tailleur pour digé
 
 Cette énergie était trop puissante pour sa constitution actuelle ; il se mit à saigner du nez et de la bouche. Wang Lin pressa son front et la perle défiant le ciel apparut. Il s'en saisit et disparut dans l'espace de la perle.
 
-À l'intérieur, Wang Lin vola immédiatement vers l'Âme Naissante de Situ Nan pour entamer sa culture. Son corps saignait abondamment et ses veines commençaient à apparaître sous sa peau.
+À l'intérieur, Wang Lin vola immédiatement vers l'Âme Naissante de Situ Nan pour entamer sa cultivation. Son corps saignait abondamment et ses veines commençaient à apparaître sous sa peau.
 
 Ses mains formèrent un sceau complexe, une position étrange où une main reposait sur son front et l'autre sur son ventre, créant une boucle parfaite. L'immense quantité d'énergie spirituelle circulait rapidement dans son corps, renforçant ses muscles et ses os à chaque cycle.
 
 Deux mois passèrent dans la perle défiant le ciel avant que Wang Lin n'ouvre les yeux. Son regard était trouble, et il fallut un moment pour qu'il retrouve sa clarté.
 
-« Le jade du Secte des Démons Maléfiques affirmait qu'on pouvait augmenter son niveau de culture en dévorant des noyaux. Cela semble vrai, tant que je respecte le sceau et les incantations du jade. Hélas, je dois utiliser leur propre méthode pour absorber plus de 20 % de l'énergie d'un noyau. Pour l'instant, je n'en absorbe que 10 %. »
+« Le jade du Secte des Démons Maléfiques affirmait qu'on pouvait augmenter son niveau de cultivation en dévorant des noyaux. Cela semble vrai, tant que je respecte le sceau et les incantations du jade. Hélas, je dois utiliser leur propre méthode pour absorber plus de 20 % de l'énergie d'un noyau. Pour l'instant, je n'en absorbe que 10 %. »
 
 Wang Lin se leva et vérifia son état. Il pensa : « Je n'ai absorbé que 10 % de l'énergie, et pourtant cela m'a permis de franchir le stade intermédiaire de l'Établissement des Fondations pour atteindre le sommet du stade avancé, me plaçant ainsi au stade de pseudo-Formation du Noyau. »
 

@@ -38,9 +38,9 @@ Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son espri
 
 « Cependant, pour l'instant, la priorité est de former mon corps d'essence véritable de feu... Je devrai peut-être me rendre personnellement au Grand Secte de l'Âme... » Wang Lin fronça les sourcils. Pour lui, le Grand Secte de l'Âme était un colosse difficile à ébranler.
 
-« Du Qing a dit que la culture de l'ancêtre du Grand Secte de l'Âme est insondable et qu'il a également formé un corps d'essence véritable... » Wang Lin se frotta les tempes et soupira.
+« Du Qing a dit que la cultivation de l'ancêtre du Grand Secte de l'Âme est insondable et qu'il a également formé un corps d'essence véritable... » Wang Lin se frotta les tempes et soupira.
 
-« Mon niveau de culture n'est pas assez élevé... Cependant, ce n'est pas que je manque de méthodes... » Les yeux de Wang Lin s'illuminèrent et il pensa au Secte Gui Yi. Après tout, ce vieil homme nommé Ma connaissait son lien avec Xuan Luo.
+« Mon niveau de cultivation n'est pas assez élevé... Cependant, ce n'est pas que je manque de méthodes... » Les yeux de Wang Lin s'illuminèrent et il pensa au Secte Gui Yi. Après tout, ce vieil homme nommé Ma connaissait son lien avec Xuan Luo.
 
 Bientôt, Wang Lin abandonna l'idée de solliciter le Secte Gui Yi. Il y avait trop d'inconnues, et il n'aimait pas utiliser le nom d'autrui pour manipuler les autres.
 
@@ -58,9 +58,9 @@ Ce n'était pas comme dans le monde des grottes, où il n'existait ni barrière 
 
 Mais en raison de cette pression, il ne parvenait pas à fusionner avec le monde pour utiliser la Déformation Spatiale.
 
-Wang Lin comprit vaguement que cette pression ne l'affectait pas uniquement lui, mais qu'elle était omniprésente sur tout le Continent Astral Immortel. C'est pourquoi même avec le niveau de culture de Du Qing, il ne pouvait y parvenir.
+Wang Lin comprit vaguement que cette pression ne l'affectait pas uniquement lui, mais qu'elle était omniprésente sur tout le Continent Astral Immortel. C'est pourquoi même avec le niveau de cultivation de Du Qing, il ne pouvait y parvenir.
 
-« Peut-être qu'une fois que ma culture aura atteint un certain niveau, je pourrai forcer le passage et me déplacer ainsi... » Quelques jours plus tard, malgré de multiples tentatives, Wang Lin n'avait toujours pas réussi.
+« Peut-être qu'une fois que ma cultivation aura atteint un certain niveau, je pourrai forcer le passage et me déplacer ainsi... » Quelques jours plus tard, malgré de multiples tentatives, Wang Lin n'avait toujours pas réussi.
 
 Mais il n'abandonnait pas. La personnalité de Wang Lin avait toujours été ainsi : plus l'obstacle était grand, plus sa détermination s'affirmait. Son Sens Divin ne cessait de fluctuer au sein du Secte du Dragon Bleu alors qu'il tentait de s'insérer dans le monde.
 
@@ -88,7 +88,7 @@ Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur le Se
 
 « C'est tout simplement impossible. Cet homme est trop têtu ; c'est une pure perte de temps. Si fusionner avec le monde était si simple, n'importe qui pourrait le faire...
 
-« Son niveau de culture est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empereur... Quel imbécile. » Du Qing secoua la tête.
+« Son niveau de cultivation est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empereur... Quel imbécile. » Du Qing secoua la tête.
 
 En un éclair, trois mois de plus passèrent !
 
@@ -108,7 +108,7 @@ Dans la grotte, les vaisseaux sanguins dans les yeux de Wang Lin étaient devenu
 
 Pour être plus précis, il utilisait cette méthode pour stimuler son avatar qui croissait à l'intérieur de la coquille de pierre dans le vide !
 
-Après plusieurs jours d'essais, Wang Lin comprit qu'avec son niveau de culture, peu importaient ses efforts, il ne pourrait jamais briser cette pression exercée par le monde.
+Après plusieurs jours d'essais, Wang Lin comprit qu'avec son niveau de cultivation, peu importaient ses efforts, il ne pourrait jamais briser cette pression exercée par le monde.
 
 Cependant, il lui restait un ultime recours : l'avatar grandissant dans le vide ! Cet avatar était né au sein des lois du Continent Astral Immortel et pouvait même être considéré comme faisant partie de ces lois. Ainsi, la capacité de son Sens Divin à s'intégrer au monde dépendait de cet avatar.
 

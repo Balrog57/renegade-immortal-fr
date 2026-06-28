@@ -44,7 +44,7 @@ Outre cela, Wang Lin avait croisé des pillards : un groupe de personnes rejeté
 
 Ces individus passaient la majeure partie de leur temps dans l'espace, et aucun d'entre eux n'était faible. Ils dépouillaient tout cultivateur qu'ils rencontraient en chemin.
 
-Wang Lin en avait croisé quelques-uns, mais ces derniers étaient si expérimentés dans la détection des niveaux de culture qu'aucun n'avait osé tenter de l'arrêter.
+Wang Lin en avait croisé quelques-uns, mais ces derniers étaient si expérimentés dans la détection des niveaux de cultivation qu'aucun n'avait osé tenter de l'arrêter.
 
 Cependant, un Cultivateur Marginal inexpérimenté, pourtant au début du stade de la Transformation de l'Âme, avait tenté d'attaquer Wang Lin. Il s'était enfui bien loin après avoir été lourdement blessé par ce dernier.
 
@@ -72,7 +72,7 @@ Et même à cette distance, il pouvait déjà ressentir la densité de l'énergi
 
 La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. L'Omniscient avait dit autrefois que Suzaku était une planète à moitié dévastée ; en contemplant Tian Yun, Wang Lin n'en doutait plus.
 
-En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il découvrait une cité pour la première fois, avant de commencer sa culture.
+En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il découvrait une cité pour la première fois, avant de commencer sa cultivation.
 
 Une passion profonde s'empara de lui alors qu'il contemplait silencieusement la planète au loin. « Planète Tian Yun... Moi, Wang Lin, j'arrive ! » murmura-t-il pour lui-même.
 
@@ -80,7 +80,7 @@ Wang Lin prit une grande inspiration, mais au lieu de s'avancer, il fit un pas e
 
 Trois jours plus tard, il arriva près d'une petite planète déserte. Le corps de Wang Lin vacilla et son corps original apparut.
 
-Dès son apparition, le corps original s'élança. Il s'enfonça profondément dans le noyau de la planète déserte pour commencer sa culture.
+Dès son apparition, le corps original s'élança. Il s'enfonça profondément dans le noyau de la planète déserte pour commencer sa cultivation.
 
 Il y avait de puissants cultivateurs sur la planète Tian Yun, et certains pourraient identifier son corps original comme étant un Ancien Dieu. Par précaution, Wang Lin laissa son corps original en lieu sûr avant de s'envoler vers la planète Tian Yun.
 

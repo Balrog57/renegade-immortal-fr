@@ -12,15 +12,15 @@ Après une très longue attente, Wang Lin ouvrit les yeux. Il s'assit rapidement
 
 Trois jours plus tard, lui et son corps original ouvrirent les yeux simultanément.
 
-« Ma blessure est trop grave cette fois. Je dois me retirer en culture fermée pour récupérer ! » Wang Lin pensa secrètement que le messager des cieux n'avait eu aucune intention de le tuer avant ce tout dernier coup. Le messager n'avait aucune émotion ; il agissait strictement selon les lois.
+« Ma blessure est trop grave cette fois. Je dois me retirer en cultivation fermée pour récupérer ! » Wang Lin pensa secrètement que le messager des cieux n'avait eu aucune intention de le tuer avant ce tout dernier coup. Le messager n'avait aucune émotion ; il agissait strictement selon les lois.
 
 « Avec la quantité d'Âme Naissante de Wan Er qui s'est dissipée, il lui faudra dix-neuf ans pour se rétablir et s'éveiller. Une fois qu'elle sera éveillée, les cieux reviendront pour anéantir quiconque osera tenter de fuir la loi céleste. » Wang Lin fixa le ciel du regard.
 
 Wang Lin se leva. Au même moment, son corps original s'envola silencieusement vers l'immense crevasse créée durant la bataille. Il atterrit au fond du gouffre et sombra. Tandis qu'il s'enfonçait, la terre environnante l'emporta avec lui. Bientôt, le trou fut comblé, comme s'il n'avait jamais existé.
 
-À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière pourpre émanait de son corps, formant une petite sphère lumineuse à ses côtés.
+À des milliers de kilomètres sous la surface, le corps original était assis en pleine cultivation. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière pourpre émanait de son corps, formant une petite sphère lumineuse à ses côtés.
 
-La blessure infligée au corps original était bien plus lourde que celle de Wang Lin. Surtout lors de cette ultime attaque, où le corps original avait encaissé 70 % des dégâts. Cependant, compte tenu de la puissance de son essence physique, ce n'était pas mortel, bien qu'une culture fermée fût également nécessaire.
+La blessure infligée au corps original était bien plus lourde que celle de Wang Lin. Surtout lors de cette ultime attaque, où le corps original avait encaissé 70 % des dégâts. Cependant, compte tenu de la puissance de son essence physique, ce n'était pas mortel, bien qu'une cultivation fermée fût également nécessaire.
 
 Wang Lin prit une profonde inspiration. Il frappa ensuite son sac de rangement et en sortit un jade. Après y avoir laissé un message, il le lança vers le ciel ; l'objet disparut dans une traînée de lumière.
 
@@ -68,7 +68,7 @@ La femme voilée acquiesça : « Ce que dit l'Ancien est exact. Certes, traverse
 
 Le vieil homme nommé Hu s'élança en avant, et les autres le suivirent promptement.
 
-Qiu Siping soupira intérieurement. Après le départ de Wang Lin, il avait décidé de suivre l'Ancien Hu dans l'espoir d'atteindre un jour le stade de la Formation de l'Âme. Bien que son niveau de culture ait progressé ces dix dernières années, l'écart restait immense. Il était convaincu qu'en obtenant l'objet recherché dans le Cimetière des Immortels, atteindre la Formation de l'Âme ne serait plus un simple rêve.
+Qiu Siping soupira intérieurement. Après le départ de Wang Lin, il avait décidé de suivre l'Ancien Hu dans l'espoir d'atteindre un jour le stade de la Formation de l'Âme. Bien que son niveau de cultivation ait progressé ces dix dernières années, l'écart restait immense. Il était convaincu qu'en obtenant l'objet recherché dans le Cimetière des Immortels, atteindre la Formation de l'Âme ne serait plus un simple rêve.
 
 La femme soupira elle aussi. Durant ces dix ans, elle avait sollicité de nombreux cultivateurs de la Formation de l'Âme. Finalement, elle s'était souvenue que le Pavillon de Raffinage des Trésors en comptait un. En révélant certains secrets qu'elle n'avait jamais dits à Wang Lin, elle avait réussi à convaincre le vieil homme de lui prêter aide.
 
@@ -86,13 +86,13 @@ Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur posit
 
 L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expérience, il fut frappé de stupeur. Le vieil homme qui suivait la femme eut également les yeux illuminés par la surprise en contemplant le phénomène. Ce pilier de lumière émanait du centre de Chu, là où se trouvait la Tour Céleste.
 
-« C'est un messager descendant d'un pays de culture supérieur... Pourtant, un messager d'un pays de rang 4 ne provoquerait pas une telle agitation ! » Plus il observait, plus son choc grandissait.
+« C'est un messager descendant d'un pays de cultivation supérieur... Pourtant, un messager d'un pays de rang 4 ne provoquerait pas une telle agitation ! » Plus il observait, plus son choc grandissait.
 
 Soudain, plusieurs dragons dorés apparurent autour du pilier et, bientôt, un jeune homme vêtu de blanc en sortit lentement. À l'instant où il émergea, les dragons poussèrent des rugissements si puissants que les six voyageurs purent les entendre distinctement malgré la distance.
 
 Peu après, les dragons dorés chargèrent le jeune homme. Au moment de l'impact imminent, ils se transformèrent en d'innombrables fils d'or qui vinrent broder les vêtements du jeune homme.
 
-« Un messager de Suzaku ! » Le vieil homme afficha une expression d'effroi. Il comprit que quelque chose de colossal s'apprêtait à se produire à Chu. Pourquoi un messager de Suzaku descendrait-il dans un simple pays de culture de rang 3 ?
+« Un messager de Suzaku ! » Le vieil homme afficha une expression d'effroi. Il comprit que quelque chose de colossal s'apprêtait à se produire à Chu. Pourquoi un messager de Suzaku descendrait-il dans un simple pays de cultivation de rang 3 ?
 
 Le visage de la femme trahissait une pointe de panique. Le vieil homme fit un pas en avant pour se placer devant elle. La peur sur les traits de la jeune femme disparut rapidement, mais ses poings serrés étaient moites de sueur.
 

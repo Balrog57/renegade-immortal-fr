@@ -90,6 +90,6 @@ Huang Long et les autres anciens de la Secte Heng Yue montèrent sur leurs épé
 
 Le visage de l'Ancien Ouyang s'assombrit. Il balaya les environs du regard avant de fixer Huang Long : « Ami Huang Long, prendre un peu de poison n'est pas une chose grave, mais qu'un junior ose faire preuve d'une telle arrogance est un manque de respect inacceptable envers notre Secte Xuan Dao ! »
 
-Huang Long hésita un instant. Il ne voulait vraiment pas trop humilier la Secte Xuan Dao, car les nouvelles qu'ils apportaient étaient trop stupéfiantes. Si ces informations étaient vraies, l'équilibre des pouvoirs dans le pays de culture de Zhao allait être totalement bouleversé.
+Huang Long hésita un instant. Il ne voulait vraiment pas trop humilier la Secte Xuan Dao, car les nouvelles qu'ils apportaient étaient trop stupéfiantes. Si ces informations étaient vraies, l'équilibre des pouvoirs dans le pays de cultivation de Zhao allait être totalement bouleversé.
 
 Wang Lin marqua une pause. Il était résolu à obtenir ce poison. Il dit à l'Ancien Ouyang : « Ancien Ouyang, je ne veux qu'une petite quantité du venin de ce centipède. Je promets de ne pas lui faire de mal. Si vous acceptez, je suis prêt à vous offrir une contrepartie en échange. »

@@ -8,7 +8,7 @@ slug: ivresse
 ---
 Situ sourit amèrement. Lorsqu'il prit la cruche de vin, il constata qu'elle était vide. Il sortit alors une grande jarre de son sac et brisa le sceau. Il but directement à la source, laissant le vin couler le long du coin de sa bouche.
 
-Après avoir reposé la cruche, il soupira et dit : « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de culture. Grâce à une méthode spéciale de double culture, j'ai pu stimuler le Septième Ciel pour le maintenir au premier stade. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui ! »
+Après avoir reposé la cruche, il soupira et dit : « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de cultivation. Grâce à une méthode spéciale de double cultivation, j'ai pu stimuler le Septième Ciel pour le maintenir au premier stade. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui ! »
 
 L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il levait les yeux vers les étoiles. Son intention de tuer envers la planète Feng Luan, qui avait plongé Situ Nan dans cet état, était monstrueuse !
 
@@ -48,7 +48,7 @@ Wang Lin eut un sourire amer. Il connaissait trop bien Situ Nan pour douter qu'i
 
 Après avoir parlé, l'expression de Wang Lin s'assombrit. Il pensa à Li Muwan, qui reposait dans le Cercueil Évitant le Ciel. Puis il y avait Liu Mei, dont le souvenir lui provoquait un sentiment extrêmement complexe et une douleur lancinante.
 
-« Liu Mei n'est probablement pas morte... » Wang Lin regarda le ciel. Il en était venu à cette conclusion après son retour dans le Système Stellaire de l'Alliance. C'était une sorte d'intuition, un pressentiment acquis après plus de 1 000 ans de culture et son entrée dans la seconde étape.
+« Liu Mei n'est probablement pas morte... » Wang Lin regarda le ciel. Il en était venu à cette conclusion après son retour dans le Système Stellaire de l'Alliance. C'était une sorte d'intuition, un pressentiment acquis après plus de 1 000 ans de cultivation et son entrée dans la seconde étape.
 
 Situ Nan vit naturellement la douleur enfouie au fond des yeux de Wang Lin et poussa un soupir. Il connaissait l'histoire entre Wang Lin et Li Muwan. C'est pour cela qu'il voulait trouver une cultivatrice appropriée pour son frère, afin que Wang Lin puisse s'arracher à cette tristesse.
 
@@ -60,9 +60,9 @@ Ce genre de vie, solitaire parmi les étoiles, est une chose que l'on ne peut co
 
 Ses interactions avec Liu Mei lui avaient infligé d'immenses souffrances. Il avait passé cent ans à résoudre le ressentiment de Wang Pin, mais cela n'avait pas suffi à dissiper la douleur dans le cœur de Wang Lin.
 
-Il saisit la dernière jarre de vin sur la table et en but une grande gorgée sans retenue. Il la reposa avec fracas et rit : « Situ, tu m'as appris autrefois que le monde de la culture est cruel et régi par la loi de la jungle. Si l'on est négligent un seul instant, on périt. Si l'on veut vivre, il faut devenir impitoyable et féroce. C'est seulement ainsi que l'on acquiert les qualifications pour survivre !
+Il saisit la dernière jarre de vin sur la table et en but une grande gorgée sans retenue. Il la reposa avec fracas et rit : « Situ, tu m'as appris autrefois que le monde de la cultivation est cruel et régi par la loi de la jungle. Si l'on est négligent un seul instant, on périt. Si l'on veut vivre, il faut devenir impitoyable et féroce. C'est seulement ainsi que l'on acquiert les qualifications pour survivre !
 
-« J'ai appris à être cruel, et j'ai semé la mort au cours de mes plus de 1 300 ans de culture. J'ai aussi appris la solitude, mais j'ai perdu bien trop de choses...
+« J'ai appris à être cruel, et j'ai semé la mort au cours de mes plus de 1 300 ans de cultivation. J'ai aussi appris la solitude, mais j'ai perdu bien trop de choses...
 
 « J'ai perdu mes parents, ma famille, mon amante, mon enfant, mon bonheur, tout ! Parfois, je me demande : "Que suis-je en train de poursuivre ?" »
 
@@ -74,11 +74,11 @@ Situ Nan réfléchit silencieusement en observant Wang Lin. Il ouvrit la bouche,
 
 « Tu ne sais toujours pas que, suite à l'incident avec Liu Mei, elle portait mon propre sang et ma chair. Pourtant, ce qui m'a été envoyé fut une âme ayant absorbé des centaines d'années de ressentiment. Un enfant qui haïssait son père !
 
-« Tout cela a été causé par la culture. Si je n'avais pas cultivé, bien que je ne sois peut-être plus qu'un retour à la terre aujourd'hui, aucune de ces tristesses ne m'aurait frappé... »
+« Tout cela a été causé par la cultivation. Si je n'avais pas cultivé, bien que je ne sois peut-être plus qu'un retour à la terre aujourd'hui, aucune de ces tristesses ne m'aurait frappé... »
 
 Le visage de Wang Lin était empreint d'amertume. Il ne pouvait confier tout cela à personne d'autre au monde. Seule une personne pouvait le laisser déverser toute l'amertume accumulée durant ce millénaire, et cette personne était Situ !
 
-Seul Situ, celui qui l'avait vu grandir, de l'adolescent ignorant jusqu'à l'homme marchant sur le véritable chemin de la culture pour finalement quitter la planète Suzaku !
+Seul Situ, celui qui l'avait vu grandir, de l'adolescent ignorant jusqu'à l'homme marchant sur le véritable chemin de la cultivation pour finalement quitter la planète Suzaku !
 
 Alors que Situ Nan était plongé dans ses pensées, il prit la jarre de vin et la tendit à Wang Lin.
 
@@ -88,23 +88,23 @@ Son rire se perdit dans l'air, chargé de tristesse et de chagrin.
 
 « Si tu veux être ivre, alors je vais te laisser l'être ! » Situ Nan fouilla dans son sac et en sortit immédiatement une bouteille de jade violet qu'il posa sur la table.
 
-« Ce vin a été brassé dans le Royaume Céleste, et il n'en reste plus beaucoup. Je l'ai trouvé par hasard ; bien qu'il ne puisse accroître ta culture, une seule goutte suffit pour te faire ressentir l'ivresse d'un mortel ! » Situ Nan poussa la bouteille vers Wang Lin.
+« Ce vin a été brassé dans le Royaume Céleste, et il n'en reste plus beaucoup. Je l'ai trouvé par hasard ; bien qu'il ne puisse accroître ta cultivation, une seule goutte suffit pour te faire ressentir l'ivresse d'un mortel ! » Situ Nan poussa la bouteille vers Wang Lin.
 
 « Wang Lin, avec moi ici, tu peux te permettre d'être ivre, ne serait-ce qu'une fois ! »
 
 Wang Lin saisit la bouteille et, sans même y regarder, en but une gorgée. En avalant le liquide, il sentit une brûlure lui monter dans la gorge. Puis une chaleur s'accumula dans son abdomen et se propagea à travers tout son corps.
 
-« La culture, la culture... Sais-tu que j'ai autrefois envoyé les cendres d'un vieil ami dans sa ville natale ? Sais-tu ce que j'ai entendu, Situ ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
+« La cultivation, la cultivation... Sais-tu que j'ai autrefois envoyé les cendres d'un vieil ami dans sa ville natale ? Sais-tu ce que j'ai entendu, Situ ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
 
 « L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de taoïstes. L'an dernier, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste qui rentre chez lui. »
 
-Cette comptine qui s'échappait de la bouche de Wang Lin portait une trace de tristesse. Une trace de son impuissance et de l'illumination acquise après plus de 1 300 ans de culture. En entendant cela, la main de Situ Nan trembla.
+Cette comptine qui s'échappait de la bouche de Wang Lin portait une trace de tristesse. Une trace de son impuissance et de l'illumination acquise après plus de 1 300 ans de cultivation. En entendant cela, la main de Situ Nan trembla.
 
 « Cultiver pendant plus de mille ans... Combien de situations de vie ou de mort ai-je affrontées pour atteindre mon niveau actuel ? Tout cela en valait-il la peine ? Je n'ose pas demander... Je n'ose même pas penser aux joies que j'aurais eu si je n'avais pas cultivé...
 
 « Parce que j'ai déjà embrassé la vie d'un cultivateur, il est trop difficile de faire marche arrière ! Trop de choses me poussent à continuer. Si je deviens craintif, je ne pourrai plus jamais cultiver !
 
-« Situ, j'ai eu un enfant que tu ne rencontreras jamais. Il s'appelait Wang Ping. Je lui ai donné ce nom moi-même pour qu'il vive une vie de mortel, heureuse et paisible... Pour ne jamais cultiver... Durant sa vie, il m'a demandé trois fois pourquoi il ne pouvait pas pratiquer la culture... Pourquoi... Était-ce parce qu'il n'en était pas capable, ou parce que je refusais qu'il devienne comme moi ! »
+« Situ, j'ai eu un enfant que tu ne rencontreras jamais. Il s'appelait Wang Ping. Je lui ai donné ce nom moi-même pour qu'il vive une vie de mortel, heureuse et paisible... Pour ne jamais cultiver... Durant sa vie, il m'a demandé trois fois pourquoi il ne pouvait pas pratiquer la cultivation... Pourquoi... Était-ce parce qu'il n'en était pas capable, ou parce que je refusais qu'il devienne comme moi ! »
 
 Wang Lin tenait le verre et le vida d'un trait. Il sentit un léger vertige lui prendre à la tête. La seule autre fois où il s'était senti ivre ainsi, c'était lorsqu'il buvait en cachette le vin de riz de son père quand il était enfant.
 

@@ -12,11 +12,11 @@ Chapitre 1815 - Formation d'un Corps Véritable d'Essence !
 
 Tout comme si le Grand Empereur céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
 
-Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessures, ce qui l'avait contraint à une culture en porte fermée. L'autre raison pour laquelle il s'était retiré était le regret qu'il ressentait de ne pas avoir pu attendre Wang Lin.
+Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessures, ce qui l'avait contraint à une cultivation en porte fermée. L'autre raison pour laquelle il s'était retiré était le regret qu'il ressentait de ne pas avoir pu attendre Wang Lin.
 
 Maintenant que ce regret s'était dissipé, ses blessures ne posaient plus de problème.
 
-« Disciple Wang Er, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
+« Disciple Wang Er, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa cultivation.
 
 Dans le Continent du Taureau Céleste, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait l'Oiseau Vermillon à l'intérieur encore plus distinct et son rugissement plus puissant.
 
@@ -30,7 +30,7 @@ Après l'exclamation de Wang Lin, la boule de feu de dix pieds trembla et l'Oise
 
 Le corps véritable d'essence était en pleine formation !
 
-Du Qing, témoin de cette scène, resta stupéfait. C'était la première fois qu'il assistait à la formation d'un corps véritable d'essence. Un tel spectacle lui apportait des bénéfices immenses et ouvrait même une voie pour sa future culture. Ce chemin, autrefois flou, devenait désormais limpide.
+Du Qing, témoin de cette scène, resta stupéfait. C'était la première fois qu'il assistait à la formation d'un corps véritable d'essence. Un tel spectacle lui apportait des bénéfices immenses et ouvrait même une voie pour sa future cultivation. Ce chemin, autrefois flou, devenait désormais limpide.
 
 « Un corps véritable ! C'est un corps véritable ! J'ai réellement pu observer le processus. Une telle chose est extrêmement rare, et moi, Du Qing, j'en suis le témoin ! » Du Qing était exalté. Il avait traversé sept Tribulations Arcane, mais il n'aurait jamais osé, ni n'aurait eu la confiance nécessaire pour affronter la huitième ou la neuvième. Ce qu'il venait de voir aidait son essence de feu à croître !
 

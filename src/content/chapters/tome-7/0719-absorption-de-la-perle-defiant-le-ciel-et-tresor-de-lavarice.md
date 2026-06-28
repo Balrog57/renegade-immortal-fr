@@ -94,7 +94,7 @@ Il regarda la montagne céleste et ses yeux trahirent une pointe d'excitation.
 
 C'était l'Écran des Montagnes et des Rivières !
 
-Wang Lin n'avait jamais entendu parler du tableau des montagnes et des rivières. Cependant, certaines figures célèbres du monde de la culture le connaissaient parfaitement.
+Wang Lin n'avait jamais entendu parler du tableau des montagnes et des rivières. Cependant, certaines figures célèbres du monde de la cultivation le connaissaient parfaitement.
 
 Parmi les dix trésors célestes de haut rang du Royaume Céleste, le tableau des montagnes et des rivières était classé au cinquième rang !
 

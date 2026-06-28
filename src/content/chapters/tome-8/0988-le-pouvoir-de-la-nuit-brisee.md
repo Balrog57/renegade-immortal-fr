@@ -18,7 +18,7 @@ La tempête vola en éclats, comme déchirée par une force invisible. En un ins
 
 « Ceci... C'est impossible ! » Maître Hollow Wind était livide ; à cet instant, une douleur indicible emplissait son être. Le sang jaillit de ses orifices et il cracha une large traînée de sang. Il tenta de reculer, mais fut terrifié de constater que, peu importe ses mouvements, le soleil demeurait obstinément devant lui.
 
-« Je n'ai d'autre choix que de tenter le tout pour le tout ! » La main de Maître Hollow Wind traça un sceau et sa culture de Purificateur de Nirvana explosa. La capacité de rassembler l'énergie originelle était le propre des cultivateurs de ce rang, et il mobilisa cette faculté avec précipitation.
+« Je n'ai d'autre choix que de tenter le tout pour le tout ! » La main de Maître Hollow Wind traça un sceau et sa cultivation de Purificateur de Nirvana explosa. La capacité de rassembler l'énergie originelle était le propre des cultivateurs de ce rang, et il mobilisa cette faculté avec précipitation.
 
 Des filaments d'énergie originelle surgirent du vide pour converger devant Maître Hollow Wind tels des dragons rugissants. Rapidement, ils formèrent une sphère d'énergie originelle devant lui.
 
@@ -44,7 +44,7 @@ La sphère d'énergie s'effondra !
 
 Maître Hollow Wind laissa échapper un sourire misérable et cracha une nouvelle bouchée de sang. À cet instant, un bruit de déchirure retentit tandis que d'innombrables blessures apparaissaient sur son corps, trempant instantanément ses vêtements de pourpre.
 
-Des vagues de douleur inimaginable le frappèrent. Sans la persévérance extraordinaire acquise au fil de ses années de culture, il aurait hurlé de souffrance. Désormais, il ne pouvait que se sentir comme l'obscurité de la nuit, déchirée par la lumière du soleil ardent. Cette sensation devint si intense qu'il ne savait plus distinguer l'illusion de la réalité.
+Des vagues de douleur inimaginable le frappèrent. Sans la persévérance extraordinaire acquise au fil de ses années de cultivation, il aurait hurlé de souffrance. Désormais, il ne pouvait que se sentir comme l'obscurité de la nuit, déchirée par la lumière du soleil ardent. Cette sensation devint si intense qu'il ne savait plus distinguer l'illusion de la réalité.
 
 Non seulement son corps était couvert d'entailles, mais son âme originelle fut elle aussi meurtrie. C'était comme si une multitude de personnes tentaient de le mettre en pièces !
 
@@ -102,7 +102,7 @@ Les trois frères Chen se regardèrent, partageant la même terreur dans leurs y
 
 Big Head haleta en contemplant l'indifférent Wang Lin. Son cœur était partagé par des sentiments complexes.
 
-« L'écart entre nous ne cesse de croître... Ce voyage à l'Alliance a provoqué une progression fulgurante de son niveau de culture ! »
+« L'écart entre nous ne cesse de croître... Ce voyage à l'Alliance a provoqué une progression fulgurante de son niveau de cultivation ! »
 
 Une passion ardente brilla dans les yeux de Lei Ji, qui pensa : « Plus Maître est fort, plus je suis confiant pour reprendre la planète Giant Demon. »
 

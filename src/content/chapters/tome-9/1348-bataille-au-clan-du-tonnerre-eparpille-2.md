@@ -10,11 +10,11 @@ slug: bataille-au-clan-du-tonnerre-eparpille-2
 
 Ses paroles étaient calmes ; tandis qu'il parlait, le lac de tonnerre entourant les seize planètes du Clan du Tonnerre Éparpillé rugissait avec une intensité accrue, comme s'il lui répondait !
 
-Cette scène fit se contracter les pupilles de l'homme grand et d'âge moyen. Avec son niveau de culture, il pouvait clairement ressentir la puissance du tonnerre presque suffocante qui émanait de Wang Lin !
+Cette scène fit se contracter les pupilles de l'homme grand et d'âge moyen. Avec son niveau de cultivation, il pouvait clairement ressentir la puissance du tonnerre presque suffocante qui émanait de Wang Lin !
 
 « Ainsi, tu n'es pas un membre de mon Clan du Tonnerre Éparpillé ! » dit d'une voix basse le visage gigantesque qui surgit de l'éclair éternel à l'intérieur du temple.
 
-« Tu oses agir avec une telle insolence au sein de mon Clan du Tonnerre Éparpillé, malgré ton faible niveau de culture, et déclarer que tu vas nous détruire ? Quelle arrogance ! » La voix était empreinte de moquerie, et son rugissement fut tel un coup de tonnerre qui étouffa le bruit du lac de tonnerre !
+« Tu oses agir avec une telle insolence au sein de mon Clan du Tonnerre Éparpillé, malgré ton faible niveau de cultivation, et déclarer que tu vas nous détruire ? Quelle arrogance ! » La voix était empreinte de moquerie, et son rugissement fut tel un coup de tonnerre qui étouffa le bruit du lac de tonnerre !
 
 L'âme originelle de Wang Lin flottait dans l'espace. Tandis que la lumière de la foudre jaillissait, l'image vague d'un dragon vacillait. Il resta impassible face au rugissement de l'Ancien et n'en fut nullement affecté. Une lueur de froideur traversa son regard alors qu'il pointait l'éclair éternel et disait froidement : « Oses-tu me défier dans le lac de tonnerre ? »
 
@@ -40,7 +40,7 @@ Le Grand Ancien était le chef du Clan du Tonnerre Éparpillé, son sommet absol
 
 Même les neuf auras qui avaient ciblé Wang Lin se manifestèrent, révélant neuf individus d'âges divers. Tous s'inclinèrent.
 
-« Cet enfant recèle de nombreux secrets et me sera d'une grande utilité ! De plus, pour qu'un homme de sa culture vienne ici, je crains qu'il ne soit pas seul. Vous tous, gardez les lieux. Je veux voir de quoi il est capable ! » dit l'Ancien avec indifférence, avant de marcher lentement, les mains derrière le dos.
+« Cet enfant recèle de nombreux secrets et me sera d'une grande utilité ! De plus, pour qu'un homme de sa cultivation vienne ici, je crains qu'il ne soit pas seul. Vous tous, gardez les lieux. Je veux voir de quoi il est capable ! » dit l'Ancien avec indifférence, avant de marcher lentement, les mains derrière le dos.
 
 Sa marche n'était pas rapide, mais en quelques pas seulement, il franchit une distance incommensurable, comme si le monde s'était contracté devant lui.
 

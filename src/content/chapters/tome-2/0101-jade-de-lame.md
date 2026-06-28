@@ -22,13 +22,13 @@ L'examen de qualification pour accéder au champ de bataille étranger avait ét
 
 Les sourcils froncés, il murmura : « Es-tu certain de pouvoir tuer Punnan Zi ? »
 
-Une voix rauque s'échappa du corps de Ye Zizai : « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de culture de rang 3. Si ma possession est complète, il ne sera pas un problème, mais pour l'instant, je ne souhaite pas compliquer les choses. »
+Une voix rauque s'échappa du corps de Ye Zizai : « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de cultivation de rang 3. Si ma possession est complète, il ne sera pas un problème, mais pour l'instant, je ne souhaite pas compliquer les choses. »
 
 Ye Zizai resta longuement en silence pour réfléchir. Après un moment, il sortit un morceau de jade dont la teinte verte était ponctuée d'éclats de sang scintillants.
 
 « Que tous les disciples au stade de l'Établissement des Fondations des grottes 77 à 99 se rassemblent immédiatement dans la grotte 36. » Après avoir parlé, il marqua une pause et jeta un regard vers le recoin où il avait enfermé Adai. Puis, prenant une décision, il plaça un jade sur son front avant de le lancer.
 
-Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement : un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna : « Heureusement que j'ai franchi le stade du milieu de l'Établissement des Fondations il y a trois ans pour passer de la grotte 82 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
+Mu Rong était en pleine cultivation lorsque ses yeux s'ouvrirent brusquement : un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna : « Heureusement que j'ai franchi le stade du milieu de l'Établissement des Fondations il y a trois ans pour passer de la grotte 82 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
 
 Soudain, une fumée verte apparut devant lui, prenant la forme d'un morceau de jade.
 
@@ -78,7 +78,7 @@ Sans dire un mot, Wang Lin se mordit la langue et cracha un peu de sang. Il pres
 
 La technique permettant d'extraire un fragment de son âme était inscrite dans le jade que Ye Zizai lui avait remis.
 
-Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession ; après tout, hormis sa méthode de culture étrange, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
+Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession ; après tout, hormis sa méthode de cultivation étrange, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
 
 Voyant que Wang Lin obéissait, Ye Zizai fit un geste de la main et une immense ouverture se déchaîna. L'intérieur était d'une obscurité totale et une force d'aspiration en émanait.
 
@@ -94,7 +94,7 @@ Wang Lin ne montra aucune hésitation et disparut à son tour du Secte des Cadav
 
 Une fois tout le monde parti, une voix rauque résonna dans la cavité.
 
-« Ye Zizai, avec plus de vingt marionnettes et ce gamin en sacrifice, une fois que les marionnettes les auront consumés, leur niveau de culture bondira au stade de pseudo-Formation du Noyau. Cette fois, la qualification du Secte des Cadavres est assurée. »
+« Ye Zizai, avec plus de vingt marionnettes et ce gamin en sacrifice, une fois que les marionnettes les auront consumés, leur niveau de cultivation bondira au stade de pseudo-Formation du Noyau. Cette fois, la qualification du Secte des Cadavres est assurée. »
 
 Ye Zizai répondit calmement : « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour de ma mort, cela n'a donc plus d'intérêt. Puisque je ne vais pas utiliser son corps, autant l'utiliser comme nourriture pour renforcer les marionnettes. »
 

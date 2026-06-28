@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1321 - The Barrier to the Third Step
 slug: la-barriere-du-troisieme-etape
 ---
-La majorité des planètes de culture du Clan Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
+La majorité des planètes de cultivation du Clan Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
 
-Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de culture concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
+Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de cultivation concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
 
 Cet hiver, succédant à la saison des pluies, était saisissant. La terre, saturée d'humidité, fut instantanément figée par la neige. Marcher sur ce sol gelé permettait de ressentir la morsure du froid jusqu'au bout des pieds. Même le sang semblait ralentir et se glacer dans les veines.
 
@@ -54,7 +54,7 @@ Il vit même une lumière provenant d'un squelette mort. Cette lueur était empr
 
 Toute vie émettait cette lumière. Les montagnes, les rivières, les mers, la terre, le ciel... tout dégageait cette faible clarté. Il pouvait même percevoir faiblement cette vie depuis l'espace.
 
-Dans son esprit, tout sur cette planète de culture contenait cette lumière. Celle-ci se propageait progressivement comme une étincelle dans une prairie, envahissant l'esprit de Wang Lin.
+Dans son esprit, tout sur cette planète de cultivation contenait cette lumière. Celle-ci se propageait progressivement comme une étincelle dans une prairie, envahissant l'esprit de Wang Lin.
 
 Il ouvrit les yeux.
 

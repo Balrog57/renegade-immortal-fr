@@ -78,7 +78,7 @@ Wang Lin avait ses principes : s'il n'était pas offensé, il ne l'offenserait p
 
 Sa main droite se serra impitoyablement alors qu'il scrutait le ciel. Depuis qu'il avait atteint le stade du Purificateur de Nirvana, il percevait les échos de la rétribution divine. Cependant, étant au sein de la Secte Divine de l'Oiseau Rouge, une telle catastrophe pourrait causer des dommages irréparables à la secte elle-même. Même si d'autres pouvaient l'aider, Wang Lin n'en avait nul besoin pour le moment ; il voulait tester la puissance de son feu et de son tonnerre face à cette rétribution divine.
 
-Autrefois, Wang Lin aurait été impuissant face au moment de la descente du châtiment céleste. Mais grâce aux Neuf Transformations Mystérieuses, tout avait changé. Dès qu'il atteignit le stade de Purificateur de Nirvana, il utilisa ces transformations pour sceller sa culture au seuil du Clairvoyant de Nirvana afin de retarder l'échéance.
+Autrefois, Wang Lin aurait été impuissant face au moment de la descente du châtiment céleste. Mais grâce aux Neuf Transformations Mystérieuses, tout avait changé. Dès qu'il atteignit le stade de Purificateur de Nirvana, il utilisa ces transformations pour sceller sa cultivation au seuil du Clairvoyant de Nirvana afin de retarder l'échéance.
 
 Il savait qu'une seule pensée suffirait à le propulser véritablement au stade de Purificateur de Nirvana, et que la rétribution divine ne tarderait alors pas. Il avait initialement prévu de quitter la Secte Divine de l'Oiseau Rouge pour trouver un lieu reculé dans la région orientale afin de surmonter cette épreuve, mais l'apparition de sa bête moustique changea brusquement ses plans.
 

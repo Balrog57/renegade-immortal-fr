@@ -74,7 +74,7 @@ Un homme d'âge mûr esquissa un sourire amer et répondit lentement : « Ce n'e
 
 Le premier intervenant reprit d'un ton désabusé : « Avec le Maître à ses côtés, même si le jeune apprenti se met dans de graves difficultés, il s'en sortira sûrement. Si cela nous arrivait à nous, la situation serait bien différente. »
 
-« Ce n'est pas la première fois que nous voyons le Maître faire preuve de favoritisme envers lui. Même sa méthode de culture est différente de la nôtre. Laissons tomber. Tant que nous en avons conscience, cela suffit. Si nous le disions à voix haute, nous passerions pour des gens mesquins. »
+« Ce n'est pas la première fois que nous voyons le Maître faire preuve de favoritisme envers lui. Même sa méthode de cultivation est différente de la nôtre. Laissons tomber. Tant que nous en avons conscience, cela suffit. Si nous le disions à voix haute, nous passerions pour des gens mesquins. »
 
 « Je me demande quel disciple de quelle secte a provoqué la colère du jeune apprenti cette fois. D'après ses propos, cet individu se mêlait aux mortels. »
 
@@ -82,7 +82,7 @@ Le premier intervenant reprit d'un ton désabusé : « Avec le Maître à ses c�
 
 « À quoi bon en discuter ? Vu le rang du Maître au sein de l'Alliance des Quatre Sectes, ne parlons même pas des cultivateurs de la Formation du Noyau ; même ceux du stade de l'Âme Naissante n'auraient aucune chance face à lui. »
 
-Après quelques échanges, ils reprirent leur culture.
+Après quelques échanges, ils reprirent leur cultivation.
 
 En marchant, le jeune cultivateur se sentait transporté par la fierté. Il savait que son Maître avait toujours été indulgent envers lui, sans doute parce qu'il était son disciple personnel.
 
@@ -108,7 +108,7 @@ Le jeune cultivateur fut stupéfait. C'était la première fois qu'il voyait son
 
 « Fu Er, quand je t'ai rencontré pour la première fois, tu te disputais avec une bande d'enfants pour des bonbons. Peut-être l'as-tu déjà oublié... » Les yeux du cultivateur aux grandes oreilles étaient empreints de regret.
 
-Le jeune homme fut saisi par l'émotion et ne put s'empêcher de repenser à son enfance amère. Sans son Maître, il serait sans doute déjà mort. Ses yeux devinrent légèrement rouges et il murmura : « Je n'ai pas oublié. C'est le Maître qui m'a tiré de là et qui m'a enseigné la culture. »
+Le jeune homme fut saisi par l'émotion et ne put s'empêcher de repenser à son enfance amère. Sans son Maître, il serait sans doute déjà mort. Ses yeux devinrent légèrement rouges et il murmura : « Je n'ai pas oublié. C'est le Maître qui m'a tiré de là et qui m'a enseigné la cultivation. »
 
 Le cultivateur aux grandes oreilles lui frotta la tête et dit : « Allons-y. Emmène-moi voir cet homme. »
 

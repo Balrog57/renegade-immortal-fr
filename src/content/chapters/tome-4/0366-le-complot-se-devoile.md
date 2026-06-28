@@ -110,7 +110,7 @@ Bang !
 
 L'esprit explosa. Bien qu'il se soit téléporté, Wang Lin fut tout de même atteint. Il cracha un large jet de sang et s'affaiblit instantanément.
 
-Sa culture devint instable sous l'effet de ses blessures, chutant jusqu'au stade initial de la Formation de l'Âme.
+Sa cultivation devint instable sous l'effet de ses blessures, chutant jusqu'au stade initial de la Formation de l'Âme.
 
 Après avoir atterri, Wang Lin sortit immédiatement des pilules de son sac et les avala. Ses yeux brillèrent alors qu'il se téléportait vers Red Butterfly. Il forma un sceau de la main et tonna : « Red Butterfly, accepte ta mort ! »
 
@@ -144,7 +144,7 @@ Le teint de Red Butterfly revint et elle dit respectueusement : « Merci, Ancien
 
 Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna : « Remets-moi le fouet d'âme ! »
 
-Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le fouet d'âme et le lui remit avec amertume.
+Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la cultivation, seule la force importait. Il sortit le fouet d'âme et le lui remit avec amertume.
 
 Une fois le fouet saisi par Gong Sunpo, celui-ci pointa l'air de sa main droite, faisant apparaître une porte de lumière.
 

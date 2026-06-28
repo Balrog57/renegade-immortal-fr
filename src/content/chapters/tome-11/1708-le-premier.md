@@ -98,7 +98,7 @@ Sa seule force résidait dans sa ténacité, son caractère inflexible et son re
 
 Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'empereur et les anciens du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empereur, ils ne rencontraient que rarement le péril de la mort.
 
-Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
+Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa cultivation. Quoi qu'il désire, son clan le lui apportait sur un plateau.
 
 Tandis que Wang Lin serrait Li Muwan contre lui en pleurant, luttant désespérément pour la ressusciter, l'homme en robe royale jouait avec des trésors exotiques offerts par son peuple. Il pouvait choisir n'importe quelle femme pour en faire l'une de ses nombreuses concubines.
 

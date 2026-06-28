@@ -14,7 +14,7 @@ Le désert au sol trembla sous la force de succion. Même les vêtements de Wang
 
 Pourtant, ses cheveux blancs ne bougèrent pas d'un iota. Ses yeux calmes observaient froidement l'Ancien Démon Ta Jia.
 
-Wang Lin n'avait pas empêché Ta Jia de briser ses étoiles. Qing Lin avait rassemblé la puissance de Wang Wei, Hu Juan, Qing Shua et Zhou Yi, ainsi que sa propre culture, pour offrir à Wang Lin cette chance unique.
+Wang Lin n'avait pas empêché Ta Jia de briser ses étoiles. Qing Lin avait rassemblé la puissance de Wang Wei, Hu Juan, Qing Shua et Zhou Yi, ainsi que sa propre cultivation, pour offrir à Wang Lin cette chance unique.
 
 Wang Lin n'avait jamais cherché à obtenir une telle fortune. Il la chérirait éternellement, car il devait se battre pour atteindre l'illumination. Plus son éveil serait profond, plus ses gains seraient immenses !
 

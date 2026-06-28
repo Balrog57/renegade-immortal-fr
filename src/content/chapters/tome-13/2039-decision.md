@@ -14,7 +14,7 @@ Les yeux de l'avatar de massacre aux cheveux noirs s'illuminèrent et sa main dr
 
 « Vous possédez le sang de l'âme du Clan Céleste, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immemorial. »
 
-« Le Royaume Divin Immemorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer ; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
+« Le Royaume Divin Immemorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer ; ils ont besoin soit d'une cultivation puissante, soit d'un corps surpuissant. »
 
 « Cette fois, le Royaume Divin Immemorial s'ouvrira complètement. Ce sera radicalement différent des précédentes ouvertures. Si vous voulez y entrer avec Li Muwan, vous devez rendre son corps indestructible afin qu'il puisse être transporté là-bas. Ensuite, utilisez le pouvoir de la réincarnation pour trouver son véritable moi et l'extraire du cycle de la réincarnation pour en faire une existence immortelle ! » déclara l'Omniscient rapidement avant de recracher deux autres bouffées de sang.
 
@@ -28,7 +28,7 @@ Cette fois, il ne s'agissait pas du Clan Céleste, mais du Clan Ancien !
 
 L'une montrait la région d'Ancient Ji, où s'étendait une mer immense. L'eau était sombre et exhalait une odeur de décomposition. C'était la célèbre Mer de la Mort d'Ancient Ji.
 
-Normalement, c'était un lieu propice à la culture pour le peuple d'Ancient Ji. La pression de l'océan façonnait l'individu et, si celui-ci parvenait à persévérer, cela aidait à stimuler son plein potentiel.
+Normalement, c'était un lieu propice à la cultivation pour le peuple d'Ancient Ji. La pression de l'océan façonnait l'individu et, si celui-ci parvenait à persévérer, cela aidait à stimuler son plein potentiel.
 
 Cependant, une vague gigantesque surgit alors de sa Mer de la Mort. Cette vague se propagea dans toutes les directions tandis qu'un hurlement retentissait. La mer s'affaissa et un pilier colossal jaillit vers le ciel avant de disparaître. Le niveau de la Mer de la Mort chuta, comme si la moitié de ses eaux s'était volatilisée.
 

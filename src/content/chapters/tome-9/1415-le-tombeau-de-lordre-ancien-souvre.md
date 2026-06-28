@@ -34,7 +34,7 @@ Le vieil homme assis sur le lézard observa Wang Lin d'un œil différent. Il av
 
 La femme derrière le Dao Maître Blue Dream observa silencieusement Wang Lin. Le Dao Maître Blue Dream vit son expression et poussa un soupir intérieur.
 
-« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa culture... au lieu de simplement lui transmettre trois sorts... » Le Dao Maître Blue Dream ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
+« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa cultivation... au lieu de simplement lui transmettre trois sorts... » Le Dao Maître Blue Dream ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
 
 Le regard de Wang Lin balaya l'assemblée et il prit une profonde inspiration. Il percevait les émotions qui émanaient de chacun d'eux. S'il le voulait, il pourrait transformer ces émotions en Feu Éthéré.
 

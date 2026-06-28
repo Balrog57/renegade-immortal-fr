@@ -46,7 +46,7 @@ Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il
 
 Après avoir franchi les cinquante kilomètres, il s'enfonça dans le lac de tonnerre. Le lac rugit et la foudre envahit le regard de Wang Lin, remplaçant toute autre vision. Cela illumina brusquement l'espace environnant !
 
-Telle l'aube sur une planète de culture !
+Telle l'aube sur une planète de cultivation !
 
 Les éclairs nageaient dans le lac de tonnerre et encerclèrent Wang Lin dans un fracas assourdissant ! Le pied gauche de Wang Lin était déjà dans le lac, ainsi que la moitié de son corps !
 
@@ -78,7 +78,7 @@ Après un long moment, une marque de tonnerre jaillit de l'œil droit fermé de 
 
 Cette marque ressemblait à un éclair ordinaire, mais au passage de celle-ci, toute la foudre du lac devait s'écarter pour la guider. Cela permettait à cet éclair de se déplacer de plus en plus vite.
 
-Le vaste lac de tonnerre formait un immense anneau. Au point le plus profond, il n'y avait pas de tonnerre, mais seize planètes de culture !
+Le vaste lac de tonnerre formait un immense anneau. Au point le plus profond, il n'y avait pas de tonnerre, mais seize planètes de cultivation !
 
 De loin, ces planètes semblaient saturées de foudre, comme si elles avaient été condensées à partir d'éclairs !
 
@@ -94,7 +94,7 @@ L'une des seize planètes affichait une teinte jaune terreuse. Sur ce monde, se 
 
 Il y avait des dizaines de milliers de grottes, grandes ou petites. C'était là que les adultes du Clan du Tonnerre Éparpillé cultivaient.
 
-Au sein du clan, une fois devenu adulte et ayant atteint un certain niveau de culture, on quittait les trois planètes mères pour rejoindre les treize autres planètes de culture. On pouvait y chercher sa propre grotte, en recevoir une, en ouvrir une ou même en voler une.
+Au sein du clan, une fois devenu adulte et ayant atteint un certain niveau de cultivation, on quittait les trois planètes mères pour rejoindre les treize autres planètes de cultivation. On pouvait y chercher sa propre grotte, en recevoir une, en ouvrir une ou même en voler une.
 
 Les membres pouvaient se battre entre eux, mais le meurtre était proscrit. Quiconque tuait un semblable subissait de sévères punitions. Tant qu'il n'y avait pas de mort, tout restait permis. Cette forme de lutte cruelle forgeait les générations du clan.
 

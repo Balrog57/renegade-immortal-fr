@@ -50,7 +50,7 @@ Lu Yanfei réfléchit, mais son expression devint encore plus froide.
 
 L'aura du sommet du stade Brisant le Nirvana se propagea avec fureur, mais il ne remarqua pas que Wang Lin l'observait d'un regard froid, son Sens Divin déjà déployé.
 
-Wang Lin fusionna toute sa culture avec son Sens Divin et le projeta sur Mo Luo. En utilisant l'aura du jade comme guide, son Sens Divin convergea rapidement vers une capitale mortelle située dans la partie sud du continent !
+Wang Lin fusionna toute sa cultivation avec son Sens Divin et le projeta sur Mo Luo. En utilisant l'aura du jade comme guide, son Sens Divin convergea rapidement vers une capitale mortelle située dans la partie sud du continent !
 
 Cette capitale était bouillonnante et ses rues étaient bondées. Dans la partie sud de la ville, au sein d'une auberge, un vieil homme était assis dans une chambre close. Il dégageait l'aura d'un être céleste, avait les cheveux blancs et portait une robe blanche. Ses yeux étaient clos et un morceau de jade flottait devant lui !
 
@@ -96,7 +96,7 @@ Grâce à la protection du jade, le vieil homme n'était pas blessé et s'engouf
 
 L'esprit de Wang Lin fut troublé alors qu'il fixait l'homme en fuite. Il ne regardait pas le vieil homme, mais ce jade !
 
-Ce vieil homme nommé Liu Jinbiao était celui qui apparaissait dans la dernière vision lorsque Wang Lin prédisait son avenir. Pourtant, Wang Lin était perplexe, car le niveau de culture de cet homme était vraiment... bien trop bas !
+Ce vieil homme nommé Liu Jinbiao était celui qui apparaissait dans la dernière vision lorsque Wang Lin prédisait son avenir. Pourtant, Wang Lin était perplexe, car le niveau de cultivation de cet homme était vraiment... bien trop bas !
 
 À en juger par ses apparences, il venait à peine de franchir le stade Ascendant pour atteindre le stade Illusoire Yin !
 
@@ -106,7 +106,7 @@ Même si des centaines d'hommes de son espèce étaient réunis, ils ne pourraie
 
 Le vieil homme était livide et du sang coulait du coin de sa bouche. Ses yeux étaient empreints d'une panique inédite. Il avait escroqué des gens pendant de nombreuses années et, grâce au jade, il n'avait jamais été découvert. Il avait toujours été extrêmement prudent pour ne pas se faire prendre, mais voilà que quelqu'un l'avait trouvé et le traquait !
 
-« Un vieux monstre du stade Brisant le Nirvana ! » Rien qu'à la pensée du niveau de culture de son poursuivant, le vieil homme était saisi d'effroi. Il ne pouvait que regretter de ne pas pouvoir s'échapper plus vite.
+« Un vieux monstre du stade Brisant le Nirvana ! » Rien qu'à la pensée du niveau de cultivation de son poursuivant, le vieil homme était saisi d'effroi. Il ne pouvait que regretter de ne pas pouvoir s'échapper plus vite.
 
 « Jade, ah, jade, je compte sur toi pour traverser cette crise. Tu ne m'as jamais déçu jusqu'ici. Ma survie dépend de toi aujourd'hui. Tu dois m'aider ! La plupart des cristaux d'origine que j'ai volés ont été absorbés par toi ! » Le visage du vieil homme était encore plus pâle, mais ses paroles semblèrent avoir un effet. Le jade brilla à nouveau et la vitesse de l'homme augmenta.
 

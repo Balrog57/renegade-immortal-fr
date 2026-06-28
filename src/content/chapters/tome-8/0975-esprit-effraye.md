@@ -56,7 +56,7 @@ Cette mer de flammes était comme une tempête qui faisait rage dans son corps, 
 
 La douleur infligée au corps de Wang Lin lui donnait une expression hideuse. C'était comme si un mortel avait avalé un charbon ardent ! Sans sa volonté de fer, il aurait déjà poussé des hurlements de douleur.
 
-Si c'était un autre cultivateur, même doté d'un niveau de culture plus élevé, il n'aurait pu supporter une telle chaleur. Seul son corps de Dieu Ancien lui permettait de tolérer cela.
+Si c'était un autre cultivateur, même doté d'un niveau de cultivation plus élevé, il n'aurait pu supporter une telle chaleur. Seul son corps de Dieu Ancien lui permettait de tolérer cela.
 
 Cependant, si cela durait trop longtemps, même Wang Lin ne pourrait pas résister malgré ses capacités de Dieu Ancien.
 
@@ -98,7 +98,7 @@ Au moment où la lumière jaillit de la Perle Défiant le Ciel, Ling Tianhou s'e
 
 À cet instant, il vit les flammes disparaître du corps de Wang Lin. Puis, il fut soudainement frappé par le sentiment qu'une catastrophe approchait.
 
-Il n'avait jamais ressenti cela, même face à l'Omniscient. Seul son passage au Secte de la Culture du Vide Brillant lui avait procuré une sensation similaire. Maintenant, des dizaines de milliers d'années plus tard, il ressentait à nouveau ce pressentiment, comme s'il allait perdre la raison s'il ne se retirait pas immédiatement.
+Il n'avait jamais ressenti cela, même face à l'Omniscient. Seul son passage au Secte de la Cultivation du Vide Brillant lui avait procuré une sensation similaire. Maintenant, des dizaines de milliers d'années plus tard, il ressentait à nouveau ce pressentiment, comme s'il allait perdre la raison s'il ne se retirait pas immédiatement.
 
 « Quelle est cette lumière ?! » La panique envahit ses yeux alors que Ling Tianhou reculait rapidement, son expression changeant radicalement. Il avait la vague impression que cette lumière invisible approchait à toute vitesse. Terrifié, il frappa son front de sa main droite et une lueur jaillit de ses sourcils. L'ombre d'épée qu'il avait utilisée contre l'Omniscient s'élança en avant sans aucune hésitation.
 
@@ -146,7 +146,7 @@ Pourtant, la main géante ne marqua pas le moindre temps de pause ; elle perça 
 
 « Ceci... Qu'est-ce que c'est que ce démon ?! » Le choc se lisait dans les yeux de l'Omniscient. Il avait cultivé pendant d'innombrables années, mais n'avait jamais vu chose aussi étrange. Son esprit trembla et une lumière septicolore jaillit de ses yeux. Après une profonde inspiration, ses mains formèrent un sceau et il cria : « Destin Céleste ! »
 
-Le Destin Céleste était l'essence même de la culture de l'Omniscient ! Peu d'individus étaient dignes de le forcer à utiliser ce sort ! Pourtant, à cet instant, il utilisa sans la moindre hésitation une technique qu'il n'avait pas employée depuis des dizaines de milliers d'années !
+Le Destin Céleste était l'essence même de la cultivation de l'Omniscient ! Peu d'individus étaient dignes de le forcer à utiliser ce sort ! Pourtant, à cet instant, il utilisa sans la moindre hésitation une technique qu'il n'avait pas employée depuis des dizaines de milliers d'années !
 
 Il s'y résolut car il sentait une crise de vie ou de mort approcher ; quelque chose qu'il avait presque oublié était revenu le hanter !
 

@@ -52,7 +52,7 @@ Les cinq maîtres étaient extrêmement rusés ; ayant tous cultivé pendant des
 
 « N'est-ce pas cet esprit Dao que tu convoites ? Je te le donne ! Comparé à la Perle qui défie le Ciel que possède Wang Lin, ceci n'est rien ! » Le Maître Dao Miao Yin restait calme, attendant de voir le choix de Great Desolation.
 
-Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était certain de pouvoir tenir tête. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Nirvana Void.
+Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était certain de pouvoir tenir tête. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une cultivation au début du stade Nirvana Void.
 
 Bien qu'il n'eût aucune chance de victoire, le Maître Dao Miao Yin devrait déployer d'immenses efforts pour le tuer.
 

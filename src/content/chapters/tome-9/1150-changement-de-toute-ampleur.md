@@ -102,7 +102,7 @@ Une vieille femme était assise au sommet de l'un des huit crânes. Elle n'étai
 
 Une voix lugubre résonna dans toute la vallée, pénétrant clairement les oreilles des cinq personnes. Les visages des quatre jeunes devinrent livides alors qu'ils regardaient silencieusement leur maître.
 
-— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
+— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de cultivation soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
 
 Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal du Secte du Flux Clair dans la région 6, et il se trouvait au stade avancé du Nirvana Purificateur. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
 

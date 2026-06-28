@@ -102,7 +102,7 @@ Xu Dongde fronça les sourcils et lança soudain : « Et si l'assaillant n'étai
 
 La scène se répétait à l'extérieur du brouillard entourant la Prairie de l'Extrême Ciel. Des milliers de cultivateurs du Continent du Démon Vert cultivaient en silence, tandis qu'au centre du groupe, les deux cultivateurs de niveau moyen de la Tribulation du Vide enquêtaient sur la mort de Liu Zhiyuan.
 
-« Ce n'est pas la première fois qu'un cultivateur de la Tribulation du Vide meurt lors de nos combats contre le Continent du Taureau Céleste. Cependant, c'est la première fois que nous assistons à un tel décès sans même savoir qui en est l'auteur ! » Le vieil homme nommé Zhang affichait une expression sombre et colérique, teintée d'une pointe de peur. Il ignorait quelle serait la réaction du Maître du Secte de la Voie Démoniaque — dont le Sens Divin était scellé par une culture en porte fermée depuis des années — lorsqu'il apprendrait la nouvelle.
+« Ce n'est pas la première fois qu'un cultivateur de la Tribulation du Vide meurt lors de nos combats contre le Continent du Taureau Céleste. Cependant, c'est la première fois que nous assistons à un tel décès sans même savoir qui en est l'auteur ! » Le vieil homme nommé Zhang affichait une expression sombre et colérique, teintée d'une pointe de peur. Il ignorait quelle serait la réaction du Maître du Secte de la Voie Démoniaque — dont le Sens Divin était scellé par une cultivation en porte fermée depuis des années — lorsqu'il apprendrait la nouvelle.
 
 « L'identité de l'Ancien Liu... » murmurèrent certains cultivateurs du camp de Liu Zhiyuan, sans achever leur phrase.
 

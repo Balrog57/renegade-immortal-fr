@@ -34,11 +34,11 @@ En entendant ces paroles, Wang Lin resta silencieux, plongé dans ses réflexion
 
 « Peut-être que cette paume brisée appartient à l'Ancêtre Céleste... Si tel est le cas, qui a tranché sa main gauche ? De nombreuses rumeurs circulent sur la destruction de l'épée de l'Ancêtre Céleste. La chute de cette épée pourrait-elle être liée à cette paume brisée... ? »
 
-« Mais pourquoi cette paume se trouvait-elle dans le sceau de l'Arbre des Mers et des Montagnes ? Ce sceau existe depuis des éons. Les Grands Empyreans l'auraient remarqué depuis longtemps, alors pourquoi ne s'est-il manifesté que maintenant... De plus, cette zone appartient au Grand Empyrean Dao Yi. Avec son niveau de culture, comment pourrait-il ignorer cela ? »
+« Mais pourquoi cette paume se trouvait-elle dans le sceau de l'Arbre des Mers et des Montagnes ? Ce sceau existe depuis des éons. Les Grands Empyreans l'auraient remarqué depuis longtemps, alors pourquoi ne s'est-il manifesté que maintenant... De plus, cette zone appartient au Grand Empyrean Dao Yi. Avec son niveau de cultivation, comment pourrait-il ignorer cela ? »
 
 « Ou peut-être... » Les yeux de Wang Lin brillèrent intensément.
 
-« Les Grands Empyreans, y compris Dao Yi, connaissaient depuis longtemps l'étrange sceau de l'Arbre des Mers et des Montagnes, mais aucun d'eux n'a agi avec imprudence... » Wang Lin continua sa culture tout en poursuivant ses déductions. Il prit une profonde inspiration, secoué par la conclusion à laquelle il venait de parvenir.
+« Les Grands Empyreans, y compris Dao Yi, connaissaient depuis longtemps l'étrange sceau de l'Arbre des Mers et des Montagnes, mais aucun d'eux n'a agi avec imprudence... » Wang Lin continua sa cultivation tout en poursuivant ses déductions. Il prit une profonde inspiration, secoué par la conclusion à laquelle il venait de parvenir.
 
 Ses yeux brillèrent imperceptiblement lorsqu'il demanda lentement : « Exaltée Empyrean Hai Zi, puisque votre maître est le Grand Empyrean Jiu Di, pourquoi êtes-vous si loin du Continent Central, vivant ici, aux Mers et aux Montagnes ? »
 
@@ -50,7 +50,7 @@ Wang Lin ne chercha pas à se justifier et se contenta de la regarder calmement.
 
 La belle femme réfléchit un instant, son expression changeant comme si une pensée venait de l'effleurer. Après un long moment, elle sembla trouver une réponse et leva soudain les yeux, le regard empreint d'une lumière étrange.
 
-Elle fronça les sourcils et murmura : « C'est mon Maître qui m'a ordonné de venir sur le Continent Sud et de faire de l'Arbre des Mers et des Montagnes ma grotte de culture. »
+Elle fronça les sourcils et murmura : « C'est mon Maître qui m'a ordonné de venir sur le Continent Sud et de faire de l'Arbre des Mers et des Montagnes ma grotte de cultivation. »
 
 Les yeux de Wang Lin s'illuminèrent. Cela confirma une partie de ses spéculations. Si c'était vrai, la situation était extrêmement problématique.
 
@@ -64,7 +64,7 @@ Wang Lin esquissa un léger sourire. Les paroles de la jeune femme signifiaient 
 
 L'Exaltée Empyrean Hai Zi ferma ses beaux yeux. Après un long silence, elle dit doucement : « Mon Maître m'utilise comme appât pour attirer la paume brisée hors du sceau de l'Arbre des Mers et des Montagnes !
 
-« Je peux le comprendre. Mon Maître m'a élevée et m'a enseigné la culture. Même si je ne suis qu'un appât, je n'ai pas de griefs. Ce qui est étrange, c'est : pourquoi le Grand Empyrean Wu Feng s'en mêle-t-il ? Quel est son but en vous attirant ici ? » Elle rouvrit les yeux pour fixer Wang Lin.
+« Je peux le comprendre. Mon Maître m'a élevée et m'a enseigné la cultivation. Même si je ne suis qu'un appât, je n'ai pas de griefs. Ce qui est étrange, c'est : pourquoi le Grand Empyrean Wu Feng s'en mêle-t-il ? Quel est son but en vous attirant ici ? » Elle rouvrit les yeux pour fixer Wang Lin.
 
 L'expression de Wang Lin resta neutre et il secoua silencieusement la tête. Pourtant, il avait une intuition !
 
@@ -86,7 +86,7 @@ Bien que son esprit ne fût pas purement maléfique, il possédait une faculté 
 
 « Si le Grand Empyrean Jiu Di l'utilise vraiment comme appât, c'est qu'elle cache elle aussi quelque chose ! » Wang Lin revenait à ses hypothèses initiales, de plus en plus convaincu. Cependant, des doutes subsistaient : quel secret la paume brisée partageait-elle avec le clan céleste pour attirer l'attention des Grands Empyreans ?
 
-Wang Lin détourna le regard et se concentra à nouveau sur l'absorption de l'Esprit de l'Arbre des Mers et des Montagnes. Peu importe les événements à venir, accroître son niveau de culture était la condition sine qua non pour affronter l'avenir !
+Wang Lin détourna le regard et se concentra à nouveau sur l'absorption de l'Esprit de l'Arbre des Mers et des Montagnes. Peu importe les événements à venir, accroître son niveau de cultivation était la condition sine qua non pour affronter l'avenir !
 
 Le silence s'installa de nouveau tandis que le temps s'écoulait.
 

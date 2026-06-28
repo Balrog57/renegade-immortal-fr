@@ -6,17 +6,17 @@ bookTitle: "Alliance's Secret"
 en: Chapter 991 - Reunion(1)
 slug: reunion1
 ---
-Observant la planète de culture bleue, le sens divin de Situ Nan s'étira et se projeta en avant. C’était comme une tempête qui chargeait la planète pour la balayer de part en part.
+Observant la planète de cultivation bleue, le sens divin de Situ Nan s'étira et se projeta en avant. C’était comme une tempête qui chargeait la planète pour la balayer de part en part.
 
-Le stade de culture Nirvana Cleanser de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une puissance quasi infinie.
+Le stade de cultivation Nirvana Cleanser de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une puissance quasi infinie.
 
 Alors qu'il survolait la planète, celle-ci trembla comme si une paire de mains gigantesques jouait avec elle. Des grondements sourds jaillirent de la terre et le ciel changea de couleur !
 
-Les trois frères Chen étaient en pleine culture lorsqu'ils ouvrirent soudainement les yeux, affichant des expressions sombres. Ils disparurent tous les trois simultanément pour réapparaître aussitôt dans les airs.
+Les trois frères Chen étaient en pleine cultivation lorsqu'ils ouvrirent soudainement les yeux, affichant des expressions sombres. Ils disparurent tous les trois simultanément pour réapparaître aussitôt dans les airs.
 
 Cependant, ce sens divin était d'une puissance telle que, dès leur apparition, ils durent reculer de milliers de pieds et déployer toute leur force pour tenter de tenir bon.
 
-Big Head et Lei Ji ressentirent également cette onde dévastatrice. Le niveau de culture de Lei Ji n'étant pas assez élevé, il cracha immédiatement du sang. Pourtant, loin d'être effrayé, il affichait un visage sombre de détermination.
+Big Head et Lei Ji ressentirent également cette onde dévastatrice. Le niveau de cultivation de Lei Ji n'étant pas assez élevé, il cracha immédiatement du sang. Pourtant, loin d'être effrayé, il affichait un visage sombre de détermination.
 
 Big Head résista à l'impact du sens divin et rejoignit le palais de Wang Lin. Là, il se tint aux côtés de Ta Shan pour protéger la demeure de Wang Lin.
 
@@ -24,7 +24,7 @@ Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui 
 
 Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage de la charogne féminine et avait atteint l'instant le plus critique.
 
-Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Nirvana Cleanser.
+Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de cultivation bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Nirvana Cleanser.
 
 Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Hollow Wind brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard ; il traça un sceau et pointa le doigt vers l'avant.
 
@@ -32,7 +32,7 @@ Le sens divin s'accumula comme un tourbillon avant de reculer dans un éclat de 
 
 « L'humeur de ce vieil homme est plutôt bonne, je vais donc vous accorder une chance. Remettez-moi la femme à la racine spirituelle de l'eau et cette petite fille nommée Zhao Xue. Je ne considère absolument pas deux cultivateurs Nirvana Cleanser à moitié morts comme une menace. » Cette voix rauque tonna sur la planète Water Spirit comme un éclair de tonnerre, atteignant rapidement chaque recoin du monde.
 
-Cette voix était imprégnée d'un sortilège doublé de la puissance de culture Nirvana Cleanser de Situ Nan. Sa simple écoute força les trois frères Chen à cracher du sang et à battre en retraite une fois de plus.
+Cette voix était imprégnée d'un sortilège doublé de la puissance de cultivation Nirvana Cleanser de Situ Nan. Sa simple écoute força les trois frères Chen à cracher du sang et à battre en retraite une fois de plus.
 
 Le visage du Maître Yi Chen devint féroce alors qu'il hurlait : « Activez la formation de protection planétaire ! » Aussitôt, il effleura sa sacoche d'où s'envola un jeton noir.
 
@@ -106,7 +106,7 @@ Situ Nan le dévisagea et éclata de rire. « Je suis Situ Nan ! »
 
 « Cher cultivateur Situ possède une telle puissance, pourquoi nous forcer, nous trois ? De plus, Ling Er et Zhao Xue ne sont que des juniors, nous vous en prions, laissez-les partir. Nous, les frères Chen, ferons amende honorable. »
 
-En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de culture, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... à peine mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter ! »
+En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de cultivation, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... à peine mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter ! »
 
 « Aîné, Zhao Xue peut partir avec vous, mais je vous en prie, épargnez ma sœur junior ! » Au loin, deux traînées de lumière arrivèrent, révélant deux femmes. L'une était Zhao Xue et à ses côtés se tenait Ling Er, d'un calme absolu.
 

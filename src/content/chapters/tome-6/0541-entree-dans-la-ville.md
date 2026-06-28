@@ -10,7 +10,7 @@ Alors que les membres de la tribu du Raffinement de l'Âme sortaient lentement, 
 
 Dans leurs cœurs, Wang Lin était l'ancêtre de toute la tribu du Raffinement de l'Âme. Tant qu'il serait là, la tribu ne serait jamais détruite.
 
-Ouyang Hua s'agenouilla également. Ces quatre dernières années défilèrent dans son esprit. Sa culture avait grimpé en flèche durant cette période, et tout cela lui semblait n'être qu'un rêve.
+Ouyang Hua s'agenouilla également. Ces quatre dernières années défilèrent dans son esprit. Sa cultivation avait grimpé en flèche durant cette période, et tout cela lui semblait n'être qu'un rêve.
 
 En regardant les plus de 5 000 membres de la tribu derrière lui, le seul mot qu'Ouyang Hua pouvait utiliser pour décrire ses sentiments envers Wang Lin était respect !
 
@@ -30,7 +30,7 @@ D'après les souvenirs de l'ancien dieu Tu Si, ces bêtes ne vivaient pas seules
 
 Il faut dire que l'essaim de moustiques évoqué dans les souvenirs était une chose que même l'ancien dieu Tu Si craignait et évitait.
 
-Sitôt apparue, la bête moustique laissa échapper un rugissement strident. Ce cri résonna à travers les terres et fit instantanément pâlir Treize et Hu Pao. De toute évidence, avec leur culture, ils ne pouvaient supporter la puissance perçante de ce rugissement.
+Sitôt apparue, la bête moustique laissa échapper un rugissement strident. Ce cri résonna à travers les terres et fit instantanément pâlir Treize et Hu Pao. De toute évidence, avec leur cultivation, ils ne pouvaient supporter la puissance perçante de ce rugissement.
 
 Après avoir rugi, la bête moustique se posa aux côtés de Wang Lin et commença à frotter sa gueule contre lui, comme pour chercher à lui plaire.
 
@@ -76,11 +76,11 @@ Wang Lin sourit devant les réactions de Treize et de Hu Pao, puis il fit un pas
 
 La cité était si vaste qu'on ne pouvait en percevoir les limites d'un seul regard. Bien qu'elle fût la plus grande ville que Wang Lin ait rencontrée jusqu'ici, il avait déjà vu des planètes et des nébuleuses ; peu importe l'immensité de la ville, elle ne pouvait tout simplement pas être comparée à ces astres.
 
-En entrant dans la cité, il ne dissimula pas son énergie spirituelle céleste et resta très calme. Il s'agissait de la porte nord et, vu le flux incessant de personnes, des gardes y étaient naturellement postés. Wang Lin savait que dans le monde de la culture, tout reposait sur la puissance et qu'il n'était pas sage d'être trop effacé. La file d'attente était immense et, s'il attendait, il lui faudrait des heures avant d'entrer.
+En entrant dans la cité, il ne dissimula pas son énergie spirituelle céleste et resta très calme. Il s'agissait de la porte nord et, vu le flux incessant de personnes, des gardes y étaient naturellement postés. Wang Lin savait que dans le monde de la cultivation, tout reposait sur la puissance et qu'il n'était pas sage d'être trop effacé. La file d'attente était immense et, s'il attendait, il lui faudrait des heures avant d'entrer.
 
 Il contourna simplement la file et se dirigea droit vers la porte, suivi par Treize et Hu Pao. Comparé à la nervosité de Hu Pao, le calme de Treize le rendait encore plus serein.
 
-L'approche soudaine de Wang Lin attira l'attention des gardes. Tous étaient des soldats démons sous les ordres du général de l'aile gauche de la Cité du Démon Ancien. Leur niveau de culture était équivalent à celui de l'Établissement des Fondations et, à leurs yeux, Wang Lin n'était qu'un sauvage ordinaire dépourvu d'énergie spirituelle démoniaque.
+L'approche soudaine de Wang Lin attira l'attention des gardes. Tous étaient des soldats démons sous les ordres du général de l'aile gauche de la Cité du Démon Ancien. Leur niveau de cultivation était équivalent à celui de l'Établissement des Fondations et, à leurs yeux, Wang Lin n'était qu'un sauvage ordinaire dépourvu d'énergie spirituelle démoniaque.
 
 En revanche, Treize et Hu Pao qui le suivaient étaient imprégnés d'énergie spirituelle démoniaque et devaient être au rang 3 ou supérieur. Le fait d'avoir de tels individus comme compagnons rendait Wang Lin encore plus mystérieux à leurs yeux. Cependant, cela ne suffisait pas pour que les gardes enfreignent les règles.
 

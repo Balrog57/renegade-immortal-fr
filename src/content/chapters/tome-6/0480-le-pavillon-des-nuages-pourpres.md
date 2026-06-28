@@ -10,7 +10,7 @@ Le lieu de l'épreuve terrestre était un monde rougeoyant. Des piliers de flamm
 
 Wang Lin resta immobile tout en observant les environs, son expression demeurant calme.
 
-« Cet endroit teste la culture, mais j'ignore de quelle manière... » Wang Lin fit quelques pas en réfléchissant.
+« Cet endroit teste la cultivation, mais j'ignore de quelle manière... » Wang Lin fit quelques pas en réfléchissant.
 
 À ce moment précis, d'une fissure située non loin de là, un pilier de flammes jaillit dans les airs. Le feu se mua en une silhouette rougeoyante au milieu du ciel.
 
@@ -30,7 +30,7 @@ Wang Lin s'arrêta et plaça sa main derrière son dos. Il regarda la silhouette
 
 La silhouette de feu réfléchit un instant, puis s'inclina devant Wang Lin. Elle se mua à nouveau en flammes et disparut dans le sol.
 
-Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis de ce genre pour tester sa culture.
+Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis de ce genre pour tester sa cultivation.
 
 « Il doit y avoir quelqu'un au sein de la Secte du Destin Céleste qui m'observe de l'extérieur... » Wang Lin laissa échapper un léger sourire. Plutôt que de continuer, il fit demi-tour.
 
@@ -38,7 +38,7 @@ Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis d
 
 À cet instant, sous l'arbre Bodhi, l'homme au visage empreint de douceur fronça les sourcils, le regard chargé d'incertitude.
 
-« Cet homme a fait preuve d'une grande détermination en renonçant si vite... Malheureusement, je n'ai pas pu saisir cette opportunité pour jauger l'étendue de sa culture. Cependant, peu importe sa puissance, un cultivateur au stade initial de la Transformation de l'Âme n'est pas grand-chose. »
+« Cet homme a fait preuve d'une grande détermination en renonçant si vite... Malheureusement, je n'ai pas pu saisir cette opportunité pour jauger l'étendue de sa cultivation. Cependant, peu importe sa puissance, un cultivateur au stade initial de la Transformation de l'Âme n'est pas grand-chose. »
 
 En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement : « Troisième frère apprenti junior, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé ? »
 
@@ -78,7 +78,7 @@ Le temps s'écoulait lentement. Wang Lin en avait oublié la notion même. Il re
 
 Wang Lin n'était pas pressé ; en restant ainsi assis, il eut le sentiment vague d'avoir atteint la limite de quelque chose. En fusionnant tous les cycles et expériences traversés, le mot "Dao" apparut lentement dans son âme.
 
-C'était le 51e jour que Wang Lin passait dans l'épreuve céleste. Ce jour-là, il ouvrit les yeux et s'éveilla de sa culture.
+C'était le 51e jour que Wang Lin passait dans l'épreuve céleste. Ce jour-là, il ouvrit les yeux et s'éveilla de sa cultivation.
 
 Ses yeux n'étaient pas empreints de lumière, mais une lueur mystérieuse scintillait en lui. Il resta assis à réfléchir, puis esquissa un léger sourire.
 
@@ -120,7 +120,7 @@ La tour semblait être la source de tout le pourpre du monde ; sa simple vue fai
 
 D'innombrables disciples de la Secte Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins 10 000 personnes.
 
-À l'arrière de la montagne, d'innombrables demeures couvraient l'ensemble du relief. Des disciples y étudiaient le Dao, pratiquaient des techniques ou s'adonnaient à la culture.
+À l'arrière de la montagne, d'innombrables demeures couvraient l'ensemble du relief. Des disciples y étudiaient le Dao, pratiquaient des techniques ou s'adonnaient à la cultivation.
 
 D'un seul regard, Wang Lin estima qu'il y avait au moins 100 000 disciples ici.
 

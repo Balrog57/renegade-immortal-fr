@@ -62,7 +62,7 @@ La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il 
 
 Après avoir soigneusement rangé le rouleau, Wang Lin commença à méditer. Après un long moment, il sortit un Noyau Doré de son sac de rangement. Sa couleur s'était déjà assombrie. Il réfléchit encore un peu avant d'en sortir plus d'une centaine. Tous étaient ternes, exhalant une aura de mort.
 
-Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes ; en absorber trop d'éléments opposés risquait de rendre son énergie spirituelle erratique, le faisant perdre le contrôle et sombrer dans la folie.
+Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de cultivation, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes ; en absorber trop d'éléments opposés risquait de rendre son énergie spirituelle erratique, le faisant perdre le contrôle et sombrer dans la folie.
 
 Après avoir entendu cela, bien qu'il en fût réticent, Wang Lin renonça à l'idée de les consommer directement. Selon Li Muwan, ils n'auraient aucun effet négatif s'ils étaient d'abord raffinés via la méthode des cinq éléments.
 
@@ -70,7 +70,7 @@ Toutefois, ce type de technique de raffinement était considéré comme une mét
 
 Puis, Wang Lin sortit le tendon de dragon. D'un geste léger, le démon s'envola. Il fit le tour de la pièce une fois avant de regarder Wang Lin d'un air contrarié.
 
-La lueur rouge sur le démon était bien plus intense que la dernière fois. Wang Lin le fixa d'un regard glacial et demanda : « À quel point votre niveau de culture a-t-il été restauré ? »
+La lueur rouge sur le démon était bien plus intense que la dernière fois. Wang Lin le fixa d'un regard glacial et demanda : « À quel point votre niveau de cultivation a-t-il été restauré ? »
 
 Le démon recula prudemment et répondit : « Je ne suis revenu qu'au stade avancé de l'Établissement des Fondations. Si ce n'était pas pour cette épée qui m'a volé, j'aurais pu atteindre la Formation du Noyau ! »
 

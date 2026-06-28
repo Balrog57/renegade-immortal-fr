@@ -56,7 +56,7 @@ Sun Lei fut terrassé par le choc. Il n'avait pas le temps d'esquiver. Sentant l
 
 Une lueur de folie apparut dans son regard ; il frappa son front et une perle noire en jaillit. Il afficha alors une expression de désespoir déchirant, jamais vue auparavant.
 
-Cette perle noire était le fruit de centaines d'années de culture et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de culture de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de culture chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de la Condensation de Qi.
+Cette perle noire était le fruit de centaines d'années de cultivation et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de cultivation de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de cultivation chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de la Condensation de Qi.
 
 Sun Lei ferma les yeux et ordonna : « Explose ! »
 
@@ -136,4 +136,4 @@ Son corps disparut pour réapparaître sur la plateforme. Il cracha une bouchée
 
 Wang Lin avait rassemblé des dizaines de milliers d'âmes errantes lors de son voyage sur le champ de bataille étranger. Maintenant qu'elles étaient toutes libérées, elles formèrent un tourbillon noir autour de lui. Cela fit changer l'expression de tous les spectateurs sur la plateforme, qui reculèrent immédiatement.
 
-Wang Lin s'écroula au sol. Il lutta pour s'asseoir en position du lotus avant d'engloutir sept ou huit flacons de pilules et de commencer sa culture.
+Wang Lin s'écroula au sol. Il lutta pour s'asseoir en position du lotus avant d'engloutir sept ou huit flacons de pilules et de commencer sa cultivation.

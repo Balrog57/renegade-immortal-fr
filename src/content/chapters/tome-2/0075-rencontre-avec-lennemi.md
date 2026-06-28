@@ -66,7 +66,7 @@ Tous les membres de l'escorte tournèrent leurs regards vers Liu San, leurs yeux
 
 Liu San afficha une expression amère. Il allait prendre la parole quand trois autres boules de feu apparurent dans les airs, immobiles.
 
-Les yeux de Wang Lin s'illuminèrent, soudain intrigué. À en juger par l'aspect des boules de feu, celui qui les lançait ne pouvait pas avoir dépassé le troisième niveau de culture. Il se toucha le menton et projeta son Sens Divin. Il localisa rapidement l'individu, perché sur un grand arbre non loin de là.
+Les yeux de Wang Lin s'illuminèrent, soudain intrigué. À en juger par l'aspect des boules de feu, celui qui les lançait ne pouvait pas avoir dépassé le troisième niveau de cultivation. Il se toucha le menton et projeta son Sens Divin. Il localisa rapidement l'individu, perché sur un grand arbre non loin de là.
 
 « Qu'est-ce que c'est ? » marmonna Wang Lin, stupéfait. L'individu avait environ vingt ans et se situait au sommet du deuxième niveau, frôlant le troisième. Le visage du jeune homme était sombre et couvert de cicatrices ; à première vue, il paraissait très féroce, mais plus Wang Lin l'observait, plus son visage lui semblait familier.
 

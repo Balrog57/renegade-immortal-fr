@@ -36,7 +36,7 @@ Chaque fois qu'il y pensait, il en frissonnait et éprouvait une crainte encore 
 
 Il était un noble tigre démoniaque, il n'y avait donc aucun moyen qu'il fasse de telles choses, mais simplement lever et baisser la tête étaient des tâches qu'il pouvait encore accepter.
 
-Wang Lin, assis sous la pagode, observait le tigre malmené et esquissa un léger sourire. Ce tigre avait cultivé pendant trois cents ans, mais n'avait que le niveau de culture d'un cultivateur à l'étape de l'Établissement des Fondations.
+Wang Lin, assis sous la pagode, observait le tigre malmené et esquissa un léger sourire. Ce tigre avait cultivé pendant trois cents ans, mais n'avait que le niveau de cultivation d'un cultivateur à l'étape de l'Établissement des Fondations.
 
 Dès que Zhou Ru l'eut repéré, elle avait ordonné à Tie Yan de le capturer. Elle l'avait nommé Petit Blanc.
 
@@ -46,7 +46,7 @@ Le regard de Wang Lin passa de Zhou Ru vers l'extérieur de la vallée. Après u
 
 « Tie Yan ! »
 
-Tie Yan sortit de sa culture. Il se leva et s'avança respectueusement devant Wang Lin.
+Tie Yan sortit de sa cultivation. Il se leva et s'avança respectueusement devant Wang Lin.
 
 Wang Lin dit à Tie Yan : « Je dois me rendre à Suzaku. J'ignore combien de temps cela prendra, mais au plus huit ans. Pendant ce temps, prends soin de la petite Zhou Ru pour moi. »
 
@@ -110,7 +110,7 @@ C'était la véritable raison pour laquelle il se sentait en sécurité en laiss
 
 Après avoir réglé tous ces détails, Wang Lin sortit de la vallée. Il ignorait si ce qu'il allait affronter marquerait son ascension ou sa chute.
 
-Toutefois, fort de cinq cents ans d'expérience, son cœur était inébranlable. Il ne se laisserait pas facilement détourner. Il continuerait à suivre le chemin de la culture pour l'éternité.
+Toutefois, fort de cinq cents ans d'expérience, son cœur était inébranlable. Il ne se laisserait pas facilement détourner. Il continuerait à suivre le chemin de la cultivation pour l'éternité.
 
 Zhou Ru leva la tête et regarda Wang Lin. Elle agrippa le pelage de Petit Blanc. Ce dernier, très intelligent, commença immédiatement à courir pour rattraper Wang Lin.
 
@@ -140,4 +140,4 @@ Zhou Ru essuya ses larmes et dit au tigre : « Petit Blanc, fais le poirier ! »
 
 Le tigre laissa échapper un grognement mélancolique.
 
-Un mois avant la bataille entre Wang Lin et Red Butterfly, un événement majeur survint au sein du Clan des Démons Géants. L'un de ses ancêtres absorba suffisamment de jade céleste rapporté par Chi Hu pour atteindre le stade de la Transformation de l'Âme, devenant ainsi le premier membre du clan des Démons Géants à atteindre ce niveau de culture.
+Un mois avant la bataille entre Wang Lin et Red Butterfly, un événement majeur survint au sein du Clan des Démons Géants. L'un de ses ancêtres absorba suffisamment de jade céleste rapporté par Chi Hu pour atteindre le stade de la Transformation de l'Âme, devenant ainsi le premier membre du clan des Démons Géants à atteindre ce niveau de cultivation.

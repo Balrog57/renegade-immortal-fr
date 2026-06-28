@@ -38,7 +38,7 @@ La rivière des enfers s'engouffra dans le territoire de la flamme noire, créan
 
 Les cultivateurs capables de matérialiser leur propre Dao étaient terrifiants ! Wang Lin en était parfaitement conscient.
 
-Les yeux de Xu Fenghan se plissèrent alors qu'il contemplait la rivière des enfers, et il dit lentement : « Ainsi, tu peux aussi matérialiser ton propre Dao. Tu peux aussi extraire l'âme de la montagne et posséder tant de trésors magiques. Si mes conjectures sont exactes, tu es également un cultivateur du deuxième niveau, mais en raison de certaines circonstances, ta culture est retombée au sommet de la phase tardive de l'Ascendant ! »
+Les yeux de Xu Fenghan se plissèrent alors qu'il contemplait la rivière des enfers, et il dit lentement : « Ainsi, tu peux aussi matérialiser ton propre Dao. Tu peux aussi extraire l'âme de la montagne et posséder tant de trésors magiques. Si mes conjectures sont exactes, tu es également un cultivateur du deuxième niveau, mais en raison de certaines circonstances, ta cultivation est retombée au sommet de la phase tardive de l'Ascendant ! »
 
 Seule cette explication permettait à Xu Fenghan de sauver la face. Autrement, il ne pourrait accepter qu'un simple cultivateur de l'étape Ascendant puisse être aussi puissant.
 
@@ -80,7 +80,7 @@ Il ne céderait jamais. Si son Dao s'effondrait, il le reconstruirait ! Si la ri
 
 L'expression de Xu Fenghan était également blême et il recula lui aussi de plusieurs pas. Bien que le Dao formé par ses flammes n'ait pas sombré, c'était comme si une pluie torrentielle s'était abattue sur lui, éteignant plus de la moitié des flammes.
 
-Même son corps fut érodé par l'esprit vengeur de la rivière des enfers. Heureusement, sa culture était assez puissante pour le supprimer après de multiples tentatives. S'il n'y était pas parvenu, l'esprit aurait envahi son esprit et il serait devenu fou avant même que Wang Lin ne puisse attaquer.
+Même son corps fut érodé par l'esprit vengeur de la rivière des enfers. Heureusement, sa cultivation était assez puissante pour le supprimer après de multiples tentatives. S'il n'y était pas parvenu, l'esprit aurait envahi son esprit et il serait devenu fou avant même que Wang Lin ne puisse attaquer.
 
 « Les batailles de Dao sont les plus périlleuses ; ces paroles ne sont pas mensongères ! » Pour la première fois, Xu Fenghan considéra Wang Lin comme son égal.
 

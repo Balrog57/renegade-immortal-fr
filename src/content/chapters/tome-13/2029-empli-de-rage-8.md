@@ -28,7 +28,7 @@ Le visage de Wang Lin était extrêmement pâle. Bien qu'il possédât le sang d
 
 Qu'il réussisse ou qu'il échoue, il comptait capturer les âmes de tous ceux qu'il avait tués pour ensuite les ressusciter une fois Xuan Luo arrivé.
 
-Face à cette scène inimaginable, Xuan Luo fut ému. Avec son niveau de culture, il pouvait voir que Wang Lin n'avait pu accomplir tout cela que grâce à cette goutte de sang d'âme.
+Face à cette scène inimaginable, Xuan Luo fut ému. Avec son niveau de cultivation, il pouvait voir que Wang Lin n'avait pu accomplir tout cela que grâce à cette goutte de sang d'âme.
 
 « Avec trois gouttes de sang d'âme, on peut créer un nouveau clan... » Cette légende s'était transmise de génération en génération. En voyant cela, Xuan Luo y crut fermement.
 
@@ -38,7 +38,7 @@ Wang Lin leva la tête. Son visage livide lui donnait un air maladif. Il regarda
 
 « Wang Lin, dis à ton Maître la raison de tes actes. » Xuan Luo regarda Wang Lin et son expression s'adoucit progressivement. Il avait cru que Wang Lin ne tenait aucun compte de ses sentiments et qu'il s'était lancé dans une tuerie effrénée qui n'apporterait que des dommages irrémédiables et des regrets. Cela n'aurait pas seulement fait souffrir son cœur, cela l'aurait aussi profondément déçu.
 
-Pour son unique disciple, il avait tout accompli en tant qu'enseignant ; il l'avait même considéré comme son propre fils. Il avait préparé tout ce dont Wang Lin avait besoin pour sa culture et était même prêt à s'opposer au Grand Empereur Gu Dao pour lui. Quelques instants plus tôt encore, il affinait un trésor pour son disciple.
+Pour son unique disciple, il avait tout accompli en tant qu'enseignant ; il l'avait même considéré comme son propre fils. Il avait préparé tout ce dont Wang Lin avait besoin pour sa cultivation et était même prêt à s'opposer au Grand Empereur Gu Dao pour lui. Quelques instants plus tôt encore, il affinait un trésor pour son disciple.
 
 Mais en arrivant, il n'avait vu qu'un sol couvert de sang. Le Dao Antique qu'il protégeait avait subi d'innombrables pertes, et tout cela par la main de son disciple. Cela fit sentir à Xuan Luo comme si son cœur était poignardé, le remplissant d'une immense déception !
 

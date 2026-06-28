@@ -30,7 +30,7 @@ Qing Shui gardait les yeux calmes ; il jeta un bref regard à Wang Lin avant de 
 
 Hormis ces deux-là, les yeux des autres anciens s'illuminèrent également. Seul le Dieu de Sang affichait une expression sombre et ricana intérieurement.
 
-À l'exception d'eux, seules quelques personnes furent capables de percevoir le caractère extraordinaire du troisième œil. L'ancêtre de Xi Zifeng laissa échapper un soupir et murmura : « Cet homme est si jeune et possède pourtant une culture aussi puissante. Il n'est pas simple ! »
+À l'exception d'eux, seules quelques personnes furent capables de percevoir le caractère extraordinaire du troisième œil. L'ancêtre de Xi Zifeng laissa échapper un soupir et murmura : « Cet homme est si jeune et possède pourtant une cultivation aussi puissante. Il n'est pas simple ! »
 
 Le visage de Russell s'assombrit davantage. Le sort que Wang Lin venait d'utiliser l'avait légèrement surpris. Il fixa le jeune homme et déploya son sens divin. Un géant doré apparut immédiatement, émettant un éclat aveuglant. Dès son apparition, il dégagea une force capable de secouer l'âme originelle et chargea Wang Lin.
 
@@ -54,7 +54,7 @@ Le cœur de Xi Zifeng battait la chamade et son visage rougit légèrement en fi
 
 Il y avait aussi ce garçon à la grosse tête. Bien qu'il affichait toujours un sourire idiot, une froideur se cachait derrière celui-ci.
 
-Le visage de Russell s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours : en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son frère avait été tué dans la matrice de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu !
+Le visage de Russell s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours : en sortant de sa cultivation en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son frère avait été tué dans la matrice de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu !
 
 Et ce Xu Mu se trouvait actuellement au Temple Céleste du Tonnerre, participant à la compétition pour le titre céleste !
 
@@ -76,7 +76,7 @@ Le colosse s'effondra dans un fracas retentissant. Au même moment, par la combi
 
 Cependant, juste au moment où les trois géants s'effondraient, Russell passa à l'action ! C'était la première fois qu'il agissait physiquement au lieu d'utiliser son sens divin. Il se déplaça comme un éclair. Sa vitesse était phénoménale et, alors qu'il convergeait vers Wang Lin, il pointa son doigt vers lui !
 
-En lançant cette attaque, Russell engagea toute sa culture. Sa puissance de stade intermédiaire du Nirvana Scryer jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer ; il ouvrit donc la bouche et cracha le Sceau Céleste.
+En lançant cette attaque, Russell engagea toute sa cultivation. Sa puissance de stade intermédiaire du Nirvana Scryer jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer ; il ouvrit donc la bouche et cracha le Sceau Céleste.
 
 Le doigt de Russell percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force dévastatrice en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que de trois pouces, avant que Wang Lin ne puisse la ramener, Russell afficha un sourire sinistre, retira son doigt et recula !
 
@@ -90,7 +90,7 @@ Le cultivateur désigné par Russell descendit sans mot dire. Pourtant, à cet i
 
 S'il avait été réellement non qualifié, cela aurait été acceptable, mais il était évident que ce Russell le sabotait délibérément. Le regard de Wang Lin devint d'une froideur extrême alors qu'il s'avançait d'un pas lourd. Il ne prit même pas la peine de regarder le cultivateur qui descendait. Ce dernier sentit un vent glacial passer, ce qui fit changer son expression et le poussa à s'écarter précipitamment tout en pestant intérieurement.
 
-« Tu oses dire que je ne suis pas qualifié ?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Nirvana Scryer n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Bien qu'il ne fût pas certain de vaincre un cultivateur Nirvana Scryer de ce niveau, il ne pourrait se satisfaire d'un simple départ ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre !
+« Tu oses dire que je ne suis pas qualifié ?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Nirvana Scryer n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa cultivation. Bien qu'il ne fût pas certain de vaincre un cultivateur Nirvana Scryer de ce niveau, il ne pourrait se satisfaire d'un simple départ ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre !
 
 En s'élançant, Wang Lin leva la main et le sort « Appel du Vent » enveloppa les environs. Tandis que le vent noir rugissait, il couvrit le ciel et deux dragons noirs apparurent. Ils poussèrent des hurlements qui firent trembler les cieux et chargèrent vers Russell.
 

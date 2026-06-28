@@ -42,13 +42,13 @@ Il y avait moins de jades au deuxième étage, seulement quelques dizaines flott
 
 Situ Nan dit d'un ton paresseux : « Tout ceci est de qualité inférieure. Inutile de perdre ton temps. »
 
-Wang Lin esquissa un sourire amer et pensa : « Vous êtes un senior issu d'un pays de culture de rang 6, il est bien évident qu'aucune de ces techniques n'est à la hauteur de votre rang. »
+Wang Lin esquissa un sourire amer et pensa : « Vous êtes un senior issu d'un pays de cultivation de rang 6, il est bien évident qu'aucune de ces techniques n'est à la hauteur de votre rang. »
 
-Situ Nan insista : « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un endroit pour t'isoler en culture de porte close et, une fois que tu auras atteint l'Établissement des Fondations, tu pourras quitter cette petite secte. »
+Situ Nan insista : « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un endroit pour t'isoler en cultivation de porte close et, une fois que tu auras atteint l'Établissement des Fondations, tu pourras quitter cette petite secte. »
 
 L'élan d'anticipation de Wang Lin avait été totalement brisé par Situ Nan ; il sortit donc de la bibliothèque des écritures, le front soucieux.
 
-En voyant Wang Lin sortir, Huang Long fut surpris et demanda : « Tu as choisi si vite ? Il faut choisir avec soin. Cette bibliothèque contient les meilleures techniques du pays de culture de Zhao. D'autres n'ont même pas les qualifications pour y entrer. Ne gaspille pas cette chance. »
+En voyant Wang Lin sortir, Huang Long fut surpris et demanda : « Tu as choisi si vite ? Il faut choisir avec soin. Cette bibliothèque contient les meilleures techniques du pays de cultivation de Zhao. D'autres n'ont même pas les qualifications pour y entrer. Ne gaspille pas cette chance. »
 
 L'expression de Wang Lin était étrange. Les moqueries de Situ Nan et les éloges de l'Ancien créaient un profond conflit en lui. Il répondit : « Ce disciple a déjà choisi. »
 

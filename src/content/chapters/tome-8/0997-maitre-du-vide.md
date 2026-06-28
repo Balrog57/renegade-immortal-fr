@@ -30,7 +30,7 @@ Cette aura était très différente de celle de l'Omniscient. Si l'Omniscient é
 
 Les yeux de Situ Nan s'illuminèrent et il murmura : « Brisueur de Nirvana ! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
 
-« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Brisueur de Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
+« Si je veux m'amuser dans ce monde, j'ai besoin d'une cultivation capable de le subjuguer. Brisueur de Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
 
 Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Il regarda Ling Tianhou avec un sourire d'admiration.
 
@@ -38,7 +38,7 @@ Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blan
 
 Ling Tianhou se remémora le passé et répondit respectueusement : « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
 
-Le vieil homme en robe dorée poussa un soupir et dit lentement : « Lorsque toi et l'Omniscient étiez déjà de taille, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
+Le vieil homme en robe dorée poussa un soupir et dit lentement : « Lorsque toi et l'Omniscient étiez déjà de taille, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la cultivation de l'autre a également atteint un tel niveau. »
 
 Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
 

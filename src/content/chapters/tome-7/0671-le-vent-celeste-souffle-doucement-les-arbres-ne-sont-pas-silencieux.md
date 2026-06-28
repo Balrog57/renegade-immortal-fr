@@ -38,7 +38,7 @@ Il se leva et disparut de la pièce. Lorsqu'il réapparut, il se trouvait à plu
 
 Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déployant des restrictions. Une fois la dizaine de restrictions établie, les jades célestes chutèrent un à un, formant une formation gigantesque.
 
-Cette formation était sans nom ; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa culture.
+Cette formation était sans nom ; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa cultivation.
 
 Alors que plus de trois cents mille jades célestes descendaient, Wang Lin frappa à nouveau son sac et la Formation de l'Épée aux Sept Étoiles s'envola. Elle gravitait autour de lui pour le protéger. Le garde céleste surgit également de son ombre avant de se fondre dans le néant. Si quiconque osait le déranger, le garde céleste tuerait sans la moindre hésitation.
 
@@ -104,7 +104,7 @@ Au même moment, l'ombre du garde céleste apparut devant l'ancêtre de la famil
 
 Tout cela se produisit en un éclair ; si vite que l'ancêtre de la famille Ran ne ressentit qu'un effroi et une peur profonde au fond de son cœur.
 
-« Quel est exactement son niveau de culture... C'est terrifiant ! Il ne voulait pas me tuer, sinon je serais sans aucun doute mort sur le coup ! Cet homme... sa culture pourrait-elle être au sommet du stade tardif de l'Ascendant ?! » haleta le vieil homme.
+« Quel est exactement son niveau de cultivation... C'est terrifiant ! Il ne voulait pas me tuer, sinon je serais sans aucun doute mort sur le coup ! Cet homme... sa cultivation pourrait-elle être au sommet du stade tardif de l'Ascendant ?! » haleta le vieil homme.
 
 L'ombre du garde céleste disparut derrière Wang Lin. Ce dernier regarda froidement l'ancêtre et demanda calmement : « Est-ce vous qui vouliez m'impliquer dans les affaires d'il y a quatre ans ? »
 
@@ -130,4 +130,4 @@ Le regard de Sun Xi devint grave et il hocha immédiatement la tête. « Cher cu
 
 « En outre, je veux les pilules restantes et le sac de rangement du membre de la famille Huan impliqué il y a quatre ans. Apportez-moi tout, sans rien oublier ! »
 
-« Aussi, si je n'ai pas assez de jades célestes, vous devrez tous en trouver davantage pour moi. S'il n'y en a pas assez pour ma culture, alors je ne me soucierai plus de cette affaire ! »
+« Aussi, si je n'ai pas assez de jades célestes, vous devrez tous en trouver davantage pour moi. S'il n'y en a pas assez pour ma cultivation, alors je ne me soucierai plus de cette affaire ! »

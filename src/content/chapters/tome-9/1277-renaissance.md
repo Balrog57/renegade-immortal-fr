@@ -18,7 +18,7 @@ Cependant, malgré cela, la puissance du Souverain était telle qu'il avait pu e
 
 C'étaient les paroles du Souverain après avoir percé les secrets du temps ; il n'avait pas caché cette vérité, mais l'avait proclamée au monde entier. Dès lors, la réputation des Clous Divins du Vide aux Sept Couleurs s'envola. Tous les puissants en connaissaient l'existence !
 
-Daoist Water avait personnellement vu le Souverain les utiliser contre son propre maître. Daoist Water n'était pas la force principale de ce combat, mais alors que son maître pratiquait la culture en porte fermée pour étudier la Perle Défiant le Ciel, le Souverain avait utilisé un trésor extrêmement vicieux, raffiné avec l'aide de cultivateurs du Royaume Céleste Antique, pour blesser son maître !
+Daoist Water avait personnellement vu le Souverain les utiliser contre son propre maître. Daoist Water n'était pas la force principale de ce combat, mais alors que son maître pratiquait la cultivation en porte fermée pour étudier la Perle Défiant le Ciel, le Souverain avait utilisé un trésor extrêmement vicieux, raffiné avec l'aide de cultivateurs du Royaume Céleste Antique, pour blesser son maître !
 
 Ensuite, les trois seigneurs du Système Stellaire Antique et plusieurs cultivateurs du Royaume Céleste Antique avaient entamé une bataille à mort contre son maître. Ce que le Souverain avait déployé, c'étaient les 108 Clous Divins du Vide aux Sept Couleurs !
 
@@ -26,13 +26,13 @@ Ensuite, les trois seigneurs du Système Stellaire Antique et plusieurs cultivat
 
 Ces clous n'avaient pas été conçus pour tuer des cultivateurs ordinaires, mais spécifiquement pour anéantir les cultivateurs du troisième niveau !
 
-Cette singularité des clous aux sept couleurs était un mystère que même le Souverain n'avait pu élucider. Il savait seulement qu'ils étaient redoutables contre les puissants et inefficaces contre les faibles. Plus le niveau de culture était élevé, plus les dégâts infligés étaient dévastateurs !
+Cette singularité des clous aux sept couleurs était un mystère que même le Souverain n'avait pu élucider. Il savait seulement qu'ils étaient redoutables contre les puissants et inefficaces contre les faibles. Plus le niveau de cultivation était élevé, plus les dégâts infligés étaient dévastateurs !
 
 Il était impossible de comprendre cet aspect étrange sans connaître l'origine du météore. Les cultivateurs du stade Nirvana Shatterer pouvaient survivre à un impact, comme Sima qui avait trouvé un moyen de s'en libérer, ou Wang Lin dont le corps était assez puissant pour le rejeter.
 
 Cependant, pour les cultivateurs du troisième niveau, s'en défaire était d'une difficulté extrême !
 
-Après avoir atteint le troisième niveau, le corps subit une mutation étrange. Ce changement apportait une puissance accrue, mais entraînait aussi des transformations bizarres. Or, cette évolution était entravée par le clou aux sept couleurs. Plus la culture était élevée, plus il était difficile de se libérer de l'emprise du clou !
+Après avoir atteint le troisième niveau, le corps subit une mutation étrange. Ce changement apportait une puissance accrue, mais entraînait aussi des transformations bizarres. Or, cette évolution était entravée par le clou aux sept couleurs. Plus la cultivation était élevée, plus il était difficile de se libérer de l'emprise du clou !
 
 Cette affaire demeurait inexplicable et profondément mystérieuse.
 
@@ -96,7 +96,7 @@ Cette contraction instantanée généra une pression capable d'écraser toute ex
 
 Au moment où il prononça ces mots, les lignes de diamant se refermèrent furieusement sur Wang Lin. Un flash éblouissant illumina tout le champ d'étoiles et enveloppa le corps du jeune homme !
 
-Condenser la puissance de 10 millions de kilomètres d'espace sur une seule personne revenait à faire exploser une douzaine de planètes de culture simultanément.
+Condenser la puissance de 10 millions de kilomètres d'espace sur une seule personne revenait à faire exploser une douzaine de planètes de cultivation simultanément.
 
 Des grondements telluriques secouèrent le système stellaire. À cet instant, les régions de rang 5, 6, 7 et même 8 purent percevoir ce tumulte !
 

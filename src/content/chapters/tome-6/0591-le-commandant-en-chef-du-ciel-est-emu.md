@@ -10,11 +10,11 @@ slug: le-commandant-en-chef-du-ciel-est-emu
 
 « Si vous n'y arrivez pas, alors taisez-vous ! Si vous continuez à faire du bruit, ne me reprochez pas de devoir vous traiter durement ! » L'homme en armure dorée laissa échapper un reniflement glacial.
 
-Wang Lin regarda froidement l'homme en armure dorée. Le niveau de culture de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance dorée, Wang Lin avait pu constater que sa culture se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif !
+Wang Lin regarda froidement l'homme en armure dorée. Le niveau de cultivation de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance dorée, Wang Lin avait pu constater que sa cultivation se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif !
 
-Bien que le niveau de culture de cet individu ne soit qu'un cran au-dessus de celui du Vice-Commandant en Chef Xuan, pour Wang Lin, l'écart était abyssal !
+Bien que le niveau de cultivation de cet individu ne soit qu'un cran au-dessus de celui du Vice-Commandant en Chef Xuan, pour Wang Lin, l'écart était abyssal !
 
-Cependant, ce n'était là que l'aspect secondaire. Le plus important résidait dans le fait que le sort cultivé par l'homme en armure dorée était d'une tyrannie extrême. En encaissant la lance solaire, Wang Lin avait immédiatement perçu la force mystérieuse qui sous-tendait ce pouvoir. Le sort de cet homme était lié aux flammes Yang. Combiné à sa culture, cela le plaçait au sommet des cultivateurs Ascendants du stade intermédiaire. Il était même assez puissant pour affronter un cultivateur Ascendant moyen du stade tardif !
+Cependant, ce n'était là que l'aspect secondaire. Le plus important résidait dans le fait que le sort cultivé par l'homme en armure dorée était d'une tyrannie extrême. En encaissant la lance solaire, Wang Lin avait immédiatement perçu la force mystérieuse qui sous-tendait ce pouvoir. Le sort de cet homme était lié aux flammes Yang. Combiné à sa cultivation, cela le plaçait au sommet des cultivateurs Ascendants du stade intermédiaire. Il était même assez puissant pour affronter un cultivateur Ascendant moyen du stade tardif !
 
 À moins de croiser un cultivateur Ascendant titré, il serait très difficile de le vaincre !
 
@@ -110,7 +110,7 @@ Cependant, ce sentiment fut de courte durée. La force à l'intérieur de son co
 
 Non seulement eux, mais des exclamations retentirent parmi les généraux démoniaques. Le regard de Shi Xiao vers Wang Lin était chargé d'une intention meurtrière. Il leva la main à plusieurs reprises, hésita, puis la baissa.
 
-L'homme en armure dorée eut le regard froid et pensa avec mépris : « Purification de la moelle... Ce vieil homme suit l'Empereur Démon depuis longtemps, et l'Empereur a bien dit que l'on pouvait purifier sa moelle au son du tambour démoniaque. Cependant, cela n'est possible que si l'on possède un niveau de culture suffisamment élevé. Autrement, tenter de forcer la purification ne fera que vous blesser gravement ! »
+L'homme en armure dorée eut le regard froid et pensa avec mépris : « Purification de la moelle... Ce vieil homme suit l'Empereur Démon depuis longtemps, et l'Empereur a bien dit que l'on pouvait purifier sa moelle au son du tambour démoniaque. Cependant, cela n'est possible que si l'on possède un niveau de cultivation suffisamment élevé. Autrement, tenter de forcer la purification ne fera que vous blesser gravement ! »
 
 Les yeux du Commandant en Chef du Ciel étaient à demi ouverts. Il laissa paraître une pointe de déception avant de refermer les paupières.
 
@@ -120,7 +120,7 @@ Le visage de Wang Lin était d'une pâleur mortelle, mais ses yeux brillaient !
 
 « Il y a une certaine conscience au sein de cette force de défi. Si je fusionnais avec elle sans réfléchir, bien que cela soit considéré comme un acte de défi, ce serait le chemin du tambour et non le mien ! »
 
-« J'ai été blessé par la purification de la moelle non pas parce que ma culture est insuffisante, mais parce que mon Dao est différent ! Dans ce monde, qu'il s'agisse de cultivateurs ou d'autres créatures, tant qu'ils cultivent pour défier les cieux, ils possèdent tous leur propre nature de défi ! »
+« J'ai été blessé par la purification de la moelle non pas parce que ma cultivation est insuffisante, mais parce que mon Dao est différent ! Dans ce monde, qu'il s'agisse de cultivateurs ou d'autres créatures, tant qu'ils cultivent pour défier les cieux, ils possèdent tous leur propre nature de défi ! »
 
 « Bien que le mot soit "défier", chacun en a sa propre compréhension, et il existe d'innombrables Dao pour cela ! » Les yeux de Wang Lin s'illuminèrent comme jamais auparavant. Bien que son visage fût pâle, à cet instant, c'était comme si son domaine fusionnait avec son corps ! La lumière dans ses yeux s'estompa pour faire place à une profonde tristesse et à la solitude.
 

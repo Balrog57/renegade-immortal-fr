@@ -14,7 +14,7 @@ Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur 
 
 Ils n'étaient pas les seuls à ressentir cela. Les quatre Messagers du Démon Vert affichaient des expressions solennelles en fixant la terre.
 
-Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent du Démon Vert. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple du Scorpion du Démon Vert pour devenir les serviteurs du Scorpion du Démon Vert.
+Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent du Démon Vert. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de cultivation, ils étaient envoyés au Temple du Scorpion du Démon Vert pour devenir les serviteurs du Scorpion du Démon Vert.
 
 Au fil des éons, de nombreux messagers s'étaient succédé, mais après d'innombrables cycles d'élimination et de mort, seuls neuf d'entre eux avaient fini par obtenir la reconnaissance du Démon Vert !
 
@@ -46,7 +46,7 @@ Tandis que les quatre Messagers rugissaient, le miroir s'enfonça lentement pour
 
 Au plus profond de la terre, Wang Lin, fusionné avec le Taureau Céleste derrière lui, s'élançait vers la surface. Le palais souterrain restait derrière lui. Il n'avait nullement l'intention de jouer les héros ; il ne faisait pas cela pour le continent du Taureau Céleste, mais pour remplir ses trois conditions.
 
-Cependant, Wang Lin était raisonnable. Son armure d'âme contenait la culture et le sang de plus de mille cultivateurs restés dans le palais souterrain. Il ne pouvait les abandonner. Il devait au moins assurer leur sécurité avant de partir.
+Cependant, Wang Lin était raisonnable. Son armure d'âme contenait la cultivation et le sang de plus de mille cultivateurs restés dans le palais souterrain. Il ne pouvait les abandonner. Il devait au moins assurer leur sécurité avant de partir.
 
 Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Vert Taureau !
 
@@ -68,7 +68,7 @@ Sans l'ombre d'une hésitation, Wang Lin leva le pied. Il ne chargea plus vers l
 
 Avant que la créature ne puisse s'approcher, elle balança sa queue qui fouetta l'air vers Wang Lin tel un coup de fouet. Ce dernier afficha un regard glacial et ignora totalement l'attaque. Il leva les bras et agrippa la terre devant lui.
 
-« Déchirure Céleste ! » Sa culture de stade intermédiaire de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique !
+« Déchirure Céleste ! » Sa cultivation de stade intermédiaire de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique !
 
 Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille gigantesque devant lui. Celle-ci s'étira directement vers le scorpion en approche !
 
@@ -82,7 +82,7 @@ L'un des quatre Messagers du Démon Vert pâlit et cracha du sang.
 
 Un seul « Déchirure Céleste » avait suffi à tuer une âme de Scorpion Vert. Wang Lin observa le reste du combat et tourna la tête pour voir trois masses de gaz vert charger vers lui. Il s'agissait de trois autres scorpions identiques qui fonçaient avec férocité.
 
-« Je me demande si, avec mon niveau de culture actuel, l'usage de la Lance aux Sept Couleurs posséderait la puissance de plusieurs soleils, comme lorsqu'elle était maniée par le Souverain Céleste aux Sept Couleurs à son apogée ? » pensa Wang Lin, l'intention de combat montant en lui.
+« Je me demande si, avec mon niveau de cultivation actuel, l'usage de la Lance aux Sept Couleurs posséderait la puissance de plusieurs soleils, comme lorsqu'elle était maniée par le Souverain Céleste aux Sept Couleurs à son apogée ? » pensa Wang Lin, l'intention de combat montant en lui.
 
 Il fit un pas en avant. À l'instant où son pied toucha le sol, la terre trembla comme si elle ne pouvait supporter son poids. Sa main droite bougea avec célérité pour invoquer la Lance aux Sept Couleurs !
 
@@ -94,7 +94,7 @@ La lumière sur la lance changea rapidement pour se condenser en un noir profond
 
 Auparavant, aucune nuance de noir n'existait parmi le rouge, l'orange, le jaune, le vert, le bleu, l'indigo et le violet.
 
-Cependant, à cet instant, la Lance aux Sept Couleurs devint d'un noir absolu, chargée d'une intention meurtrière monstrueuse. C'était la véritable Lance aux Sept Couleurs. Il fallait atteindre un certain niveau de culture pour qu'elle puisse opérer sa première transformation !
+Cependant, à cet instant, la Lance aux Sept Couleurs devint d'un noir absolu, chargée d'une intention meurtrière monstrueuse. C'était la véritable Lance aux Sept Couleurs. Il fallait atteindre un certain niveau de cultivation pour qu'elle puisse opérer sa première transformation !
 
 Wang Lin leva la main et saisit cette première forme. Au moment où il la prit en main, la lance trembla et la lumière noire vira au blanc !
 
@@ -110,6 +110,6 @@ La lance grise fondit sur un scorpion. La créature poussa un hurlement et crach
 
 Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol, provoquant l'effondrement d'une vaste zone de la Prairie de l'Extrême Ciel sous l'impact, projetant des tonnes de terre et d'herbe vers le ciel.
 
-« Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup ! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
+« Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de cultivation. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup ! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
 
 « Il reste encore deux scorpions. Je vais en profiter pour tester mes autres sorts et voir si je dois continuer à les perfectionner ! »

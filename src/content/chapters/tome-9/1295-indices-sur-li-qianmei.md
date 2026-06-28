@@ -22,7 +22,7 @@ Sur cent personnes qui s'y engageaient, moins de trois revenaient. Les autres mo
 
 Grâce à cette méthode au taux de mortalité effroyable, ils avaient lentement découvert un passage au fil des éons. Li Qianmei était devenue une éclaireuse pour explorer à nouveau la faille spatiale. Soit elle survivrait et reviendrait avec de nouvelles découvertes, soit elle mourrait et deviendrait l'une de ces cultivatrices disparues.
 
-Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il contempla ce monde sombre, dépourvu de toute lumière. Même avec sa culture, il ne pouvait percevoir que mille pieds devant lui. Tout ce qui se trouvait au-delà n'était qu'un flou ténébreux.
+Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il contempla ce monde sombre, dépourvu de toute lumière. Même avec sa cultivation, il ne pouvait percevoir que mille pieds devant lui. Tout ce qui se trouvait au-delà n'était qu'un flou ténébreux.
 
 « Le chemin tracé dans le jade est un passage vers les profondeurs de la faille spatiale, obtenu par le Secte Démon au prix d'innombrables sacrifices. C'est aussi le chemin emprunté par Li Qianmei, mais cet endroit est tout simplement trop vaste. Même le passage contenu dans le jade ne pénètre pas réellement dans les profondeurs. »
 

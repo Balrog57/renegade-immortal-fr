@@ -28,7 +28,7 @@ Un bruit de pas se fit entendre depuis la cour sud alors que Wang Lin sortait le
 
 C'était une sensation étrange que nul ne pouvait expliquer, mais que tous ressentaient clairement. C'était comme si tout dans l'univers pouvait basculer par une simple pensée. Le vrai et le faux formaient un cycle éternel.
 
-« Un domaine Dao !!! » Le visage de Feng Peishan devint livide. Il possédait le niveau de culture le plus élevé ici et était un disciple central de la première secte de rang 6 ; il reconnut immédiatement que ce Grand Oncle-Maître du Sect Origin utilisait un domaine Dao !
+« Un domaine Dao !!! » Le visage de Feng Peishan devint livide. Il possédait le niveau de cultivation le plus élevé ici et était un disciple central de la première secte de rang 6 ; il reconnut immédiatement que ce Grand Oncle-Maître du Sect Origin utilisait un domaine Dao !
 
 Ce qui l'effrayait davantage, c'était que l'autre partie ne le faisait pas délibérément : le Dao était naturellement infusé dans ses paroles et ses actes. Ce royaume était bien supérieur à celui de la "Parole de Loi".
 
@@ -40,7 +40,7 @@ Leur Sect des Sorts Dao se concentrait précisément sur le concept de « Dao »
 
 Le corps de Zhou Hai trembla. Lorsqu'il croisa malgré lui le regard de Wang Lin, ses convulsions redoublèrent de violence. Il sombra dans une illusion, comme si la personne qui l'avait blessé était le monde lui-même, et qu'il n'était qu'une existence dérisoire au sein de ce monde.
 
-Son cœur battait à tout rompre et son esprit était embrumé. Bien qu'il ne puisse percevoir le niveau de culture de l'individu devant lui, il sentait en cet instant qu'aucun des Anciens, ni même le chef de sa propre secte, ne pourrait jamais lui inspirer une telle terreur.
+Son cœur battait à tout rompre et son esprit était embrumé. Bien qu'il ne puisse percevoir le niveau de cultivation de l'individu devant lui, il sentait en cet instant qu'aucun des Anciens, ni même le chef de sa propre secte, ne pourrait jamais lui inspirer une telle terreur.
 
 Wang Lin détourna son regard et leva les yeux vers Zhao Yu du Sect de la Collection Diabolique, demandant calmement : « Ou était-ce toi ? »
 
@@ -88,13 +88,13 @@ Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussère
 
 Feng Peishan demanda : « Camarade cultivateur Zhou, veuillez essayer de décrire en détail comment cet aîné a attaqué après votre entrée dans la cour sud. »
 
-Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit : « La culture de cet aîné est au moins au stade intermédiaire du Briseur de Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse ; l'empreinte de la paume était toujours noire.
+Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit : « La cultivation de cet aîné est au moins au stade intermédiaire du Briseur de Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse ; l'empreinte de la paume était toujours noire.
 
 Zhao Yu demanda soudainement : « S'agit-il d'une attaque empoisonnée ? »
 
 Zhou Hai secoua la tête : « Cet aîné ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres du Sect Origin. Leur révérence et leur sentiment de gloire n'étaient pas feints ; cette personne était bel et bien leur Grand Oncle-Maître. »
 
-« C'est vrai. » Feng Peishan hocha la tête et ajouta : « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
+« C'est vrai. » Feng Peishan hocha la tête et ajouta : « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade, il serait resté caché sans intervenir. Avec sa cultivation, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
 
 Zhao Yu acquiesça. En repensant aux événements, il dit : « Ce Grand Oncle-Maître du Sect Origin est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zhou Hai.
 
@@ -110,7 +110,7 @@ Le regard de Wang Lin se détacha de l'horizon. Sa décision était prise dès l
 
 Il n'avait pas la capacité ni le temps de les effacer. Plus important encore, plus il tenterait d'effacer ses traces, plus il risquait d'en créer de nouvelles.
 
-« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible ! Si je suis découvert, je n'aurai d'autre choix que de me rendre dans le Royaume Céleste du Vent ! » D'après les souvenirs de la Vieille Poisonneuse et les archives du Sect Origin, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément ; ils se contentaient de collecter des trésors en périphérie.
+« L'essentiel pour moi est d'augmenter mon niveau de cultivation le plus vite possible ! Si je suis découvert, je n'aurai d'autre choix que de me rendre dans le Royaume Céleste du Vent ! » D'après les souvenirs de la Vieille Poisonneuse et les archives du Sect Origin, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément ; ils se contentaient de collecter des trésors en périphérie.
 
 « Le Royaume Céleste du Vent est mon atout pour éliminer Tuo Sen... » Une lueur de froideur apparut dans les yeux de Wang Lin. S'il accordait tant d'importance à la technique de mutation apprise dans les souvenirs de la vieille femme, c'était parce qu'une fois maîtrisée, son évolution au sein du Royaume Céleste du Vent serait décuplée.
 

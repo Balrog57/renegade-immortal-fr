@@ -12,7 +12,7 @@ Toutefois, Wang Lin restait extrêmement prudent et dissimula son aura. Il se d�
 
 En quelques enjambées, Wang Lin fusionna avec le monde et disparut. Lorsqu'il réapparut, il se trouvait dans le ciel, à proximité du Continent du Démon Vert. Ici, même la voûte céleste était parcourue par une multitude de cultivateurs du Continent du Démon Vert.
 
-Ces derniers possédaient des niveaux de culture variés. La plupart étaient au deuxième stade, tandis que quelques rares individus atteignaient le troisième stade. Bien qu'ils ne fussent pas nombreux, on pouvait les apercevoir par intermittence. À leur passage, leurs sens divins balayaient la zone, comme s'ils montaient la garde contre une menace invisible.
+Ces derniers possédaient des niveaux de cultivation variés. La plupart étaient au deuxième stade, tandis que quelques rares individus atteignaient le troisième stade. Bien qu'ils ne fussent pas nombreux, on pouvait les apercevoir par intermittence. À leur passage, leurs sens divins balayaient la zone, comme s'ils montaient la garde contre une menace invisible.
 
 À mesure que les cultivateurs du Continent du Démon Vert se multipliaient, ceux du Vide Arcane apparaissaient également, obligeant Wang Lin à ralentir davantage sa progression. Après avoir mûri sa réflexion, il plongea dans la restriction invisible en contrebas. Ses yeux s'injectèrent de sang alors qu'il s'immergeait dans la brume.
 

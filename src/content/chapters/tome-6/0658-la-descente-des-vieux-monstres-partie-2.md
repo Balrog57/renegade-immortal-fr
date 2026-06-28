@@ -74,11 +74,11 @@ Wang Lin fit volte-face, le cristal à la main, et partit.
 
 Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays des Démons Célestes. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
-Wang Lin ne récupéra pas tous les fragments d'âmes collectés par la tribu ; il appela plutôt Treize et Ouyang Hua. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
+Wang Lin ne récupéra pas tous les fragments d'âmes collectés par la tribu ; il appela plutôt Treize et Ouyang Hua. Après avoir laissé quelques instructions et des méthodes de cultivation, il enseigna même à Treize la seconde moitié de la méthode de cultivation du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
-Dans la cité des Démons Célestes, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé ; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
+Dans la cité des Démons Célestes, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa cultivation. Après des années de guérison et de soins, sa cultivation avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé ; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
 
 Peu après, Shi Xiao ouvrit les yeux, le regard étincelant.
 
@@ -110,7 +110,7 @@ Une ombre noire apparut dans les airs. Derrière elle se trouvait la lune ronde,
 
 « Vous... vous êtes Wang Lin ! » Les yeux de Chen Tao se rétrécirent en reconnaissant l'identité de l'ombre.
 
-« Tu as vraiment du courage pour oser t'introduire dans mon manoir. Pars immédiatement en trois respirations, ou meurs ! » Le regard de Shi Xiao était glacial et empreint d'une intention meurtrière. Ces dernières années, sa culture avait grimpé en flèche ; il égalait désormais un cultivateur au début du stade Ascendant, et son corps regorgeait d'énergie spirituelle démoniaque.
+« Tu as vraiment du courage pour oser t'introduire dans mon manoir. Pars immédiatement en trois respirations, ou meurs ! » Le regard de Shi Xiao était glacial et empreint d'une intention meurtrière. Ces dernières années, sa cultivation avait grimpé en flèche ; il égalait désormais un cultivateur au début du stade Ascendant, et son corps regorgeait d'énergie spirituelle démoniaque.
 
 Wang Lin atterrit au sol. Il regarda calmement Shi Xiao et dit lentement : « Par le passé, j'ai promis à quelqu'un de prendre ta vie. Aujourd'hui, je suis venu accomplir cette promesse ! »
 
@@ -144,7 +144,7 @@ Ce sentiment provenait du Pays des Esprits Démoniaques ! Il émanait de la marq
 
 Ce n'était pas la première fois qu'une marque était ainsi effacée ; bien longtemps auparavant, un disciple nommé Sun Yun avait réussi le même exploit.
 
-L'Omniscient n'était pas le seul à être troublé. L'inquiétude de sa fille, Yao Xixue, pesait sur lui, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
+L'Omniscient n'était pas le seul à être troublé. L'inquiétude de sa fille, Yao Xixue, pesait sur lui, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de cultivation, une telle angoisse ne surgit jamais sans raison.
 
 C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, il fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier !
 

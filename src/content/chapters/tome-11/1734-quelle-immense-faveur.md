@@ -66,7 +66,7 @@ Bien qu'invisibles, ces Sens Divins firent distordre le ciel. Ils pénétrèrent
 
 Des centaines de Sens Divins convergèrent, déployant toute leur puissance sur la sphère d'eau, la comprimant avec une fureur déchaînée.
 
-En particulier, la puissance de Na Duo avait considérablement augmenté grâce à son armure. Le vieil homme en robe noire et les trois autres libérèrent également toute leur culture.
+En particulier, la puissance de Na Duo avait considérablement augmenté grâce à son armure. Le vieil homme en robe noire et les trois autres libérèrent également toute leur cultivation.
 
 Alors que l'eau se condensait rapidement, elle gronda violemment et rétrécit jusqu'à 30 000 pieds !
 

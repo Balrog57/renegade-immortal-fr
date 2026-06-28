@@ -36,7 +36,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « J'ai gagné ! » La personne qui parla n'était pas Jiu Di, mais Hai Zi. L'actuelle Hai Zi était radicalement différente de celle d'autrefois ; elle dégageait une aura mystérieuse et fixa calmement l'Empereur Céleste.
 
-« Si vous aviez renoncé à l'héritage de la culture de l'Ancêtre Céleste, l'embuscade que mon clan Dao Wang avait préparée se serait déclenchée ! Tous les temples spirituels des 72 continents obéissent à mon clan !
+« Si vous aviez renoncé à l'héritage de la cultivation de l'Ancêtre Céleste, l'embuscade que mon clan Dao Wang avait préparée se serait déclenchée ! Tous les temples spirituels des 72 continents obéissent à mon clan !
 
 « Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Le coût de leur éveil ferait trembler la tête de l'Ancêtre Céleste, et à ce moment-là, seul l'Ancêtre Céleste lui-même pourrait le contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos ! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan ! » parla doucement Hai Zi.
 

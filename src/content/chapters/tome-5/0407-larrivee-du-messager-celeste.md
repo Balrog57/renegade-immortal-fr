@@ -40,7 +40,7 @@ Le Clan de l'Immortel Délaissé s'était lancé à l'assaut, accompagné de qua
 
 Simultanément, une succession de nouvelles fracassantes résonnait sur toute la planète Suzaku. La plupart de ces nouvelles portaient le même mot : « trahison ».
 
-Divers dignitaires des pays de culture et ancêtres de sectes avaient trahi le pays de Suzaku.
+Divers dignitaires des pays de cultivation et ancêtres de sectes avaient trahi le pays de Suzaku.
 
 En raison de ces trahisons survenues lors de moments cruciaux des batailles, le pays de Suzaku avait été contraint de battre en retraite à maintes reprises.
 

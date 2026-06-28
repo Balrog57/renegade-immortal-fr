@@ -16,7 +16,7 @@ Wang Lin n'était pas dépourvu de sorts offensifs. Qu'il s'agisse des trois sor
 
 Quant aux sorts d'évasion, avec la restriction de téléportation, il ne s'en inquiétait guère. Bien que son utilisation demande un certain temps, une fois activée, sa puissance est extraordinaire. Quant à ses déplacements dans l'espace, il disposait de la boussole du dragon argenté, et sa vitesse n'y était donc inférieure à celle de quiconque.
 
-Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
+Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa cultivation dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
 
 L'Omniscient ne rompit pas la réflexion de Wang Lin. Il fixa silencieusement le lointain, sans montrer le moindre signe d'impatience. C'était le choix initial de Wang Lin ; l'Omniscient voulait voir quel genre de sort cet enfant choisirait.
 
@@ -58,7 +58,7 @@ Wang Lin chercha encore très longtemps avant de se détourner, sans jamais y re
 
 Dans une partie très discrète de ce monde aux sept couleurs, il y avait une vaste zone vide où siégeait un seul Omniscient vêtu de gris. Aucune fluctuation d'énergie spirituelle céleste ne s'en dégageait ; il restait simplement là, cultivant les yeux clos.
 
-Wang Lin ne fit que l'apercevoir en passant et franchit la zone d'un bond. Cependant, alors qu'il était en l'air, il s'arrêta brusquement, se retourna et inspecta attentivement cet Omniscient en pleine culture.
+Wang Lin ne fit que l'apercevoir en passant et franchit la zone d'un bond. Cependant, alors qu'il était en l'air, il s'arrêta brusquement, se retourna et inspecta attentivement cet Omniscient en pleine cultivation.
 
 « Gris... L'Omniscient apprécie les sept couleurs, et les neuf couleurs représentent l'apogée ; d'où vient donc le gris ? » Une lueur mystérieuse brilla dans les yeux de Wang Lin. Plus il observait, plus son regard s'intensifiait. Bien que cet Omniscient semble identique aux autres, Wang Lin pouvait déceler au premier coup d'œil qu'il paraissait un peu plus jeune...
 

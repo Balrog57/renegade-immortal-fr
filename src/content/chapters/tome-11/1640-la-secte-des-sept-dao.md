@@ -16,7 +16,7 @@ Ses cheveux blancs flottaient et ses vêtements bruissaient au vent, mais il res
 
 D'un geste de la main droite, un cristal doré clair, parsemé de fissures, apparut dans sa paume. Ce cristal contenait les souvenirs de toute une vie.
 
-Toutefois, ces souvenirs ne pouvaient être consultés par le Sens Divin ; même avec un niveau de culture supérieur, Wang Lin n'aurait pas pu percevoir les souvenirs du vieil homme.
+Toutefois, ces souvenirs ne pouvaient être consultés par le Sens Divin ; même avec un niveau de cultivation supérieur, Wang Lin n'aurait pas pu percevoir les souvenirs du vieil homme.
 
 Les souvenirs d'un Céleste ne pouvaient être perçus que par quelqu'un possédant une lignée céleste. C'était une restriction occulte et, bien que Wang Lin appartînt à un clan ancien, il n'aurait pas pu y accéder.
 
@@ -40,7 +40,7 @@ Le vieil homme était né sur ce continent. En grandissant, il avait rejoint une
 
 Les maîtres de la Secte des Sept Dao étaient un couple de pratiquants du Dao. L'un d'eux était l'être de la statue aux sept couleurs, appelé le Souverain Céleste aux Sept Couleurs !
 
-Sa culture était mystérieuse ; il avait fondé sa propre secte et rassemblé une multitude de disciples. Au cours des dizaines de milliers d'années écoulées depuis la fondation de la secte, celle-ci avait traversé de nombreuses crises. Mais finalement, le couple du Dao parvenait toujours à désamorcer le danger, et ils finirent par devenir célèbres dans toute la région.
+Sa cultivation était mystérieuse ; il avait fondé sa propre secte et rassemblé une multitude de disciples. Au cours des dizaines de milliers d'années écoulées depuis la fondation de la secte, celle-ci avait traversé de nombreuses crises. Mais finalement, le couple du Dao parvenait toujours à désamorcer le danger, et ils finirent par devenir célèbres dans toute la région.
 
 Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte des Sept Dao !
 
@@ -58,7 +58,7 @@ Accablé par une peur indicible, il entendit des grondements et des rugissements
 
 L'instant avant de sombrer dans l'inconscience, il sentit le maître de la secte et son partenaire du Dao charger vers le point de collision des deux soleils.
 
-Ce n'est que plusieurs jours plus tard que le vieil homme se réveilla. Il constata avec amertume que sa culture avait chuté de plusieurs niveaux. Quelques mois plus tard, le maître de la Secte des Sept Dao revint seul. Bien que son expression fût sombre, ses yeux brillaient d'une lueur intense.
+Ce n'est que plusieurs jours plus tard que le vieil homme se réveilla. Il constata avec amertume que sa cultivation avait chuté de plusieurs niveaux. Quelques mois plus tard, le maître de la Secte des Sept Dao revint seul. Bien que son expression fût sombre, ses yeux brillaient d'une lueur intense.
 
 Le Souverain Céleste aux Sept Couleurs ne mentionna jamais la disparition de sa partenaire du Dao. Au lieu de cela, il emmena certains de ses disciples, plusieurs concubines impériales célestes, les cent soldats et les quatre généraux dans une grotte. Il scella l'entrée en y apposant d'innombrables sceaux. Il utilisa même des trésors que le vieil homme n'avait jamais vus pour verrouiller la grotte. En raison des fissures sur le cristal, les souvenirs devinrent fragmentés, brisés comme des éclats de verre.
 
@@ -68,7 +68,7 @@ Wang Lin connaissait cette femme. En la voyant, il établit un lien clair avec l
 
 Dans un autre fragment, Wang Lin vit le Souverain Céleste aux Sept Couleurs, également connu sous le nom d'Empereur Céleste Antique par les Royaumes Intérieurs. Il était identique à la statue aux sept couleurs !
 
-Il avait conduit tout le monde dans la grotte et en avait scellé l'entrée et la sortie avant de partir pour une mission inconnue. Les concubines impériales, les soldats et les quatre généraux ignoraient ce que le Souverain Céleste entreprenait. Cependant, nul n'osait s'enquérir ; tous se retirèrent en culture fermée, attendant d'être convoqués par leur maître.
+Il avait conduit tout le monde dans la grotte et en avait scellé l'entrée et la sortie avant de partir pour une mission inconnue. Les concubines impériales, les soldats et les quatre généraux ignoraient ce que le Souverain Céleste entreprenait. Cependant, nul n'osait s'enquérir ; tous se retirèrent en cultivation fermée, attendant d'être convoqués par leur maître.
 
 Jusqu'au jour où une voix lugubre résonna à l'extérieur de la grotte. Cette voix tira tout le monde de sa méditation.
 
@@ -98,7 +98,7 @@ Tout en réfléchissant, l'expression de Wang Lin se fit sombre. Ces souvenirs a
 
 « Je connais l'Ancien Ye Mo et j'avais déjà quelques spéculations sur l'arrivée du fou... De plus, la femme en argent a affirmé que ce n'était pas elle qui avait ouvert la porte. Cette porte pourrait-elle être celle par laquelle le fou est entré... »
 
-« Le résultat de cette guerre fut la perte de raison et la démence du fou... Le Royaume Céleste Antique devint une ruine, et les vestiges de la Secte des Sept Dao se sont tous retirés en culture isolée. »
+« Le résultat de cette guerre fut la perte de raison et la démence du fou... Le Royaume Céleste Antique devint une ruine, et les vestiges de la Secte des Sept Dao se sont tous retirés en cultivation isolée. »
 
 « Le maître de la grotte, le maître de la Secte des Sept Dao, le Souverain Céleste aux Sept Couleurs, a également été gravement blessé... J'ignore si cela est vrai. Si c'est le cas, alors ce pour quoi ils se battaient était peut-être le prétendu Dao Céleste, ou la Perle Défiant le Ciel... Quel est le lien entre la Perle Défiant le Ciel et le Dao Céleste ? »
 

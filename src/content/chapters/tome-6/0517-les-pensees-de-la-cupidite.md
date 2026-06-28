@@ -8,11 +8,11 @@ slug: les-pensees-de-la-cupidite
 ---
 Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement : « Quelle sorte de fortune pourrait vous intéresser à ce point, Cupidité ? »
 
-Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura : « Le Saint de l'Épée se souvient-il de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet ? Cet objet est une perle, et la récompense est un sort céleste de haute qualité ! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte ! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture ! »
+Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura : « Le Saint de l'Épée se souvient-il de l'annonce envoyée par l'Alliance de Cultivation il y a des dizaines de milliers d'années, à la recherche d'un objet ? Cet objet est une perle, et la récompense est un sort céleste de haute qualité ! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Cultivation ait jamais offerte ! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Cultivation ! »
 
 Les yeux de Ling Tianhou devinrent sérieux et il demanda lentement : « Vos blessures sont-elles liées à cette perle ? »
 
-Cupidité hocha la tête avec un sourire amer. « Ne parlons plus du passé. C'était simplement parce que ma culture n'était pas assez puissante. Cependant, si le Saint de l'Épée agit, alors ce sera certainement facile ! »
+Cupidité hocha la tête avec un sourire amer. « Ne parlons plus du passé. C'était simplement parce que ma cultivation n'était pas assez puissante. Cependant, si le Saint de l'Épée agit, alors ce sera certainement facile ! »
 
 Le Saint de l'Épée Ling Tianhou leva la tête et scruta le vide. Après un long moment, il dit : « Nous pourrons en discuter une fois que la Mer des Esprits Démoniaques de l'Est sera terminée, mais avant cela, vous devez m'aider pour une affaire, Cupidité ! »
 
@@ -24,7 +24,7 @@ L'expression de Cupidité se figea. « Ling Tianhou, que voulez-vous dire par "a
 
 Ling Tianhou se tourna vers lui. Son visage était impassible lorsqu'il dit calmement : « Cupidité, lorsque je me faisais un nom parmi les étoiles, vous n'aviez même pas commencé à cultiver. Votre manège est clair pour moi. Si vous n'aviez pas été contraint par le propriétaire de la perle, pourquoi vous précipiteriez-vous ici pour me trouver ? Si je vous repoussais maintenant, j'ai bien peur que peu de temps après, nous ne soyons séparés par la vie et la mort ! »
 
-Cupidité réfléchit. Après un moment, il sourit et dit : « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité ! Cependant, j'ai entendu dire que la porte de la Mer des Esprits Démoniaques de l'Est est mystérieuse, alors je ne sais pas si je peux y entrer avec ma culture... »
+Cupidité réfléchit. Après un moment, il sourit et dit : « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité ! Cependant, j'ai entendu dire que la porte de la Mer des Esprits Démoniaques de l'Est est mystérieuse, alors je ne sais pas si je peux y entrer avec ma cultivation... »
 
 Ling Tianhou répondit calmement : « Ne vous en souciez pas. Vous êtes blessé, et c'est mon tour d'ouvrir la porte, je vous laisserai donc naturellement entrer. »
 
@@ -38,7 +38,7 @@ Avant que le nuage aux sept couleurs ne se rapproche, un sentiment de paix envel
 
 En marchant, l'All-Seer sourit et adressa des signes de tête à ceux qu'il connaissait. Derrière lui se trouvaient neuf personnes.
 
-Ces neuf individus portaient des robes de couleurs différentes, mais leurs regards étaient tous aussi perçants que la foudre et chacun possédait une culture puissante. Parmi eux se trouvait celui qui s'était battu contre Wang Lin pour le titre de véritable disciple de la Division Pourpre, le sixième frère de Wang Lin : Chen Tao !
+Ces neuf individus portaient des robes de couleurs différentes, mais leurs regards étaient tous aussi perçants que la foudre et chacun possédait une cultivation puissante. Parmi eux se trouvait celui qui s'était battu contre Wang Lin pour le titre de véritable disciple de la Division Pourpre, le sixième frère de Wang Lin : Chen Tao !
 
 L'actuel Chen Tao portait une robe pourpre et dégageait une pression colossale. Il était tel une épée prête à être dégainée, libérant sa tranchante acuité.
 
@@ -48,7 +48,7 @@ En un clin d'œil, le groupe de l'All-Seer atteignit la porte. Ils ne se trouvai
 
 Outre ces personnes, tous les vieux monstres observaient Ling Tianhou et l'All-Seer avec des expressions de spectateurs attendant un grand spectacle.
 
-À cet instant, on pouvait dire que presque tous les puissants cultivateurs de la planète Tian Yun et des planètes environnantes étaient présents. Ce qui était rassemblé ici représentait presque toute la puissance de la culture de rang 7 de Tian Yun.
+À cet instant, on pouvait dire que presque tous les puissants cultivateurs de la planète Tian Yun et des planètes environnantes étaient présents. Ce qui était rassemblé ici représentait presque toute la puissance de la cultivation de rang 7 de Tian Yun.
 
 Il ne restait plus qu'un jour avant le grand événement qui n'arrivait qu'une fois tous les 5 000 ans !
 
@@ -90,7 +90,7 @@ Son mouvement attira immédiatement l'attention de certains cultivateurs. En voy
 
 Yao Xixue, assise sur un gigantesque jade rouge, ouvrit les yeux pour regarder Wang Lin. Après quelques instants, elle détourna le regard.
 
-Yao Xixue pensa secrètement : « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple du Secte du Destin Céleste. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par l'All-Seer pour venir ici juste après avoir rejoint le Secte est en effet stupéfiant. »
+Yao Xixue pensa secrètement : « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple du Secte du Destin Céleste. Sa cultivation est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par l'All-Seer pour venir ici juste après avoir rejoint le Secte est en effet stupéfiant. »
 
 Wang Lin vola droit devant lui et arriva devant l'All-Seer peu de temps après. Il dit respectueusement : « Le disciple Wang Lin salue le Maître ! »
 

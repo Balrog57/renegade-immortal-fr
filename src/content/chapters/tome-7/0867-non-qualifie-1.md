@@ -30,7 +30,7 @@ Son apparition attira l'attention des cultivateurs environnants. Certains connai
 
 « Le Russell du Temple Céleste du Tonnerre ! »
 
-« On raconte qu'il a atteint le stade intermédiaire du Nirvana Scryer il y a 300 ans, et qu'il est en culture fermée depuis lors sans jamais réapparaître. Je ne m'attendais pas à ce qu'il soit le gardien de l'épreuve humaine. »
+« On raconte qu'il a atteint le stade intermédiaire du Nirvana Scryer il y a 300 ans, et qu'il est en cultivation fermée depuis lors sans jamais réapparaître. Je ne m'attendais pas à ce qu'il soit le gardien de l'épreuve humaine. »
 
 « Ce Russell n'est pas un homme ordinaire, surtout au regard de l'évolution de son sens divin. On dit que même certains vieux monstres célèbres font son éloge ! »
 
@@ -58,7 +58,7 @@ Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au mo
 
 Russell laissa échapper un renflement froid, le géant doré rétracta son poing, recula de quelques pas et se tint à nouveau aux côtés de Russell.
 
-« Déchet ! Avec une telle culture et une telle force mentale, tu n'es absolument pas qualifié pour participer à cette compétition céleste. Tu n'es pas digne de cela ! » L'impatience dans les yeux de Russell s'intensifia. Il estimait que tester cet individu était une pure perte de temps.
+« Déchet ! Avec une telle cultivation et une telle force mentale, tu n'es absolument pas qualifié pour participer à cette compétition céleste. Tu n'es pas digne de cela ! » L'impatience dans les yeux de Russell s'intensifia. Il estimait que tester cet individu était une pure perte de temps.
 
 L'âme d'origine du cultivateur réintégra son corps. Il regarda ensuite Russell d'un air livide et ouvrit la bouche comme pour protester, mais finit par se taire et s'inclina. C’est avec tristesse qu'il retourna vers le réseau de transfert et disparut en un éclair.
 
@@ -74,13 +74,13 @@ Lorsque le poing du géant frappa ce brouillard de sang, un grondement retentit.
 
 Toutefois, cela dépassait ses limites. Bien que son âme soit revenue dans son corps, il se retrouva totalement affaibli.
 
-« Puisque tu as tenu dix respirations, tu passes. Mais même si un déchet comme toi a réussi, tu seras éliminé lors de la prochaine épreuve ! » Russell fit un geste de la manche et le corps du cultivateur fut projeté en l'air. L'homme, le visage pâle, s'inclina devant Russell avant de retourner vers son réseau de transfert pour se mettre en culture.
+« Puisque tu as tenu dix respirations, tu passes. Mais même si un déchet comme toi a réussi, tu seras éliminé lors de la prochaine épreuve ! » Russell fit un geste de la manche et le corps du cultivateur fut projeté en l'air. L'homme, le visage pâle, s'inclina devant Russell avant de retourner vers son réseau de transfert pour se mettre en cultivation.
 
 Peu de temps après, un autre cultivateur, puis un autre, furent désignés par Russell. S'ils agissaient avec célérité, tout allait bien ; sinon, ils étaient brutalement arrachés au ciel par Russell, comme le premier, et subissaient des blessures avant même que l'épreuve ne commence réellement.
 
 À mesure que les cultivateurs atterrissaient un à un, le mot « déchet » était lancé sans relâche. Même ceux qui réussissaient ne pouvaient échapper aux insultes de Russell. L'impatience du juge grandissait jusqu'à ce qu'il en vienne à déclencher le coup du géant doré avant même que le participant n'ait touché le sol.
 
-Le temps passa rapidement. Plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Shan, dotés de niveaux de culture élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Russell s'adoucit et qu'il cessa de les traiter de déchets.
+Le temps passa rapidement. Plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Shan, dotés de niveaux de cultivation élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Russell s'adoucit et qu'il cessa de les traiter de déchets.
 
 « Toi, descends ! » Russell pointa un individu dans le ciel. Il s'agissait de Xu Ting, venu de la planète Dong Lin. Ses yeux brillèrent d'une lueur rouge et il afficha un sourire sinistre.
 

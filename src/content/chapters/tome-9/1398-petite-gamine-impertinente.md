@@ -114,10 +114,10 @@ L'expression de Wang Lin resta calme alors qu'il disait lentement : « Perdant !
 
 « Toi ! Osas-tu me défier ?! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
 
-Wang Lin sourit, une pointe de moquerie dans les yeux : « Oserez-vous entrer dans cette brume magnétique pour détruire votre culture jusqu'à retomber au cinquième niveau de la Flétrissure Céleste afin de me combattre ? »
+Wang Lin sourit, une pointe de moquerie dans les yeux : « Oserez-vous entrer dans cette brume magnétique pour détruire votre cultivation jusqu'à retomber au cinquième niveau de la Flétrissure Céleste afin de me combattre ? »
 
 À ces mots, l'atmosphère explosa en un tumulte général ! Maître Simo fut stupéfait et resta muet, le visage extrêmement sombre. Il n'osait pas !
 
 « Ce cher cultivateur est très perspicace. Je ne connais simplement pas votre nom. Pourriez-vous l'apprendre à Yun Luo ? » La femme aux longs cheveux sourit, son regard lunaire posé sur Wang Lin. Pourtant, pour lui, ce sourire était d'une prétention extrême et lui inspirait le dégoût.
 
-« Le poste de Grand Maître du Conseil Souverain ne repose pas sur le niveau de culture, mais est un titre transmis de génération en génération. Tu n'es qu'une petite gamine ayant cultivé depuis moins de mille ans, et tu oses m'appeler "Cher cultivateur" ? Quel manque de respect envers tes aînés ! Est-ce ainsi que ton prédécesseur t'a éduquée ? » L'expression de Wang Lin était glaciale, et ses paroles l'étaient plus encore.
+« Le poste de Grand Maître du Conseil Souverain ne repose pas sur le niveau de cultivation, mais est un titre transmis de génération en génération. Tu n'es qu'une petite gamine ayant cultivé depuis moins de mille ans, et tu oses m'appeler "Cher cultivateur" ? Quel manque de respect envers tes aînés ! Est-ce ainsi que ton prédécesseur t'a éduquée ? » L'expression de Wang Lin était glaciale, et ses paroles l'étaient plus encore.

@@ -146,7 +146,7 @@ Le visage du vieil homme changea de couleur et il s'écria : « Wang Zhuo, comme
 
 Le père de Tie Zhu renifla : « Si ton fils peut réussir, alors le mien sera également sélectionné ! »
 
-Le jeune homme rit, ignorant les remontrances de son père. Avec mépris, il dit : « Ainsi, tu es donc l'oncle ? Je te conseille de ne pas être aussi optimiste. La voie de la culture est extrêmement complexe ; seul un être sur dix mille peut espérer l'embrasser. Comment pourrait-il rivaliser avec moi qui, bien que n'étant pas encore un disciple officiel, ai été personnellement choisi par un maître immortel ? »
+Le jeune homme rit, ignorant les remontrances de son père. Avec mépris, il dit : « Ainsi, tu es donc l'oncle ? Je te conseille de ne pas être aussi optimiste. La voie de la cultivation est extrêmement complexe ; seul un être sur dix mille peut espérer l'embrasser. Comment pourrait-il rivaliser avec moi qui, bien que n'étant pas encore un disciple officiel, ai été personnellement choisi par un maître immortel ? »
 
 Une pointe de fierté traversa le visage du vieil homme, qui finit par réprimander le jeune homme avant de l'entraîner vers le banquet.
 

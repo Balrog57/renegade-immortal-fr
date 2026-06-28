@@ -86,7 +86,7 @@ Wang Lin ne prononça pas un mot, ses yeux brûlant d'une intention meurtrière.
 
 Un fracas assourdissant retentit et de nouvelles fissures lacérèrent le bouclier. L'homme d'âge moyen pâlit et du sang coula du coin de sa bouche. Il recula, terrifié.
 
-« Vous m'avez délibérément attiré ici, vous cachiez votre culture ! » La puissance de l'impact permit à l'homme de ressentir clairement l'aura terrifiante émanant du corps de Wang Lin. Son cœur battait sauvagement et toute pensée d'attaquer disparut de son esprit. Il ne voulait qu'une chose : s'échapper immédiatement.
+« Vous m'avez délibérément attiré ici, vous cachiez votre cultivation ! » La puissance de l'impact permit à l'homme de ressentir clairement l'aura terrifiante émanant du corps de Wang Lin. Son cœur battait sauvagement et toute pensée d'attaquer disparut de son esprit. Il ne voulait qu'une chose : s'échapper immédiatement.
 
 Cependant, puisqu'il avait été attiré ici, Wang Lin ne lui accorderait aucune chance. Wang Lin laissa échapper un renflement froid et leva la main. Son coup retomba une fois de plus, chargé de karma. Il frappa le bouclier qui s'effondra instantanément. Une aura fut alors extraite du bouclier et de l'homme d'âge moyen.
 

@@ -10,7 +10,7 @@ slug: un-jour-special
 
 Les dents du vieil homme Ma claquèrent. Il observa la silhouette floue et reconnut immédiatement ce qu'elle était. Ce trouble n'était pas causé par un sortilège, mais par l'effet unique résultant de la pression des Neuf Soleils !
 
-Les légendaires Neuf Soleils du Continent Astral Immortel étaient rarement vus, à moins d'appartenir à la même lignée ou à la même génération. L'écart immense entre les niveaux de culture et la pression exercée par les Grands Empereurs créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
+Les légendaires Neuf Soleils du Continent Astral Immortel étaient rarement vus, à moins d'appartenir à la même lignée ou à la même génération. L'écart immense entre les niveaux de cultivation et la pression exercée par les Grands Empereurs créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
 
 Il ne fallait même pas parler de ces êtres qui n'étaient que des fourmis face à Xuan Luo.
 
@@ -110,6 +110,6 @@ Le ciel du Royaume Céleste était d'un bleu pur, parsemé de nuages semblables 
 
 Le sol affichait un vert éclatant, avec des montagnes et des rivières se découpant au loin. Le parfum de la terre se mêlait à l'atmosphère du monde ; le respirer semblait pénétrer jusqu'à l'âme.
 
-Wang Lin était revenu dans le Royaume Céleste. Hormis le Maître du Dao Blue Dream, personne ne remarqua son retour. Wang Lin apparut devant la montagne qu'il avait utilisée autrefois pour sa culture en isolement.
+Wang Lin était revenu dans le Royaume Céleste. Hormis le Maître du Dao Blue Dream, personne ne remarqua son retour. Wang Lin apparut devant la montagne qu'il avait utilisée autrefois pour sa cultivation en isolement.
 
 Levant les yeux vers le ciel, l'expression de Wang Lin s'assombrit progressivement. Son regard se remplit peu à peu de pensées et de mélancolie. Chaque année, en ce jour précis, il cherchait à s'oublier lui-même. La plupart du temps, il s'imposait une activité intense pour ne pas avoir à se souvenir.

@@ -90,7 +90,7 @@ Cette tribulation était étroitement liée à la neuvième. Si quelqu'un pouvai
 
 Mais si l'on ne sacrifiait pas sa longévité, les chances de survivre à la neuvième tribulation n'étaient que de 10 % !
 
-Lors de la huitième épreuve, le cultivateur avait l'initiative de décider de la part de sa vie qu'il sacrifierait. Généralement, ceux qui osaient affronter cette étape avaient déjà un plan : ils calculaient la durée de vie nécessaire pour leur culture, puis sacrifiaient douloureusement le surplus afin d'augmenter leurs chances de réussir la neuvième tribulation.
+Lors de la huitième épreuve, le cultivateur avait l'initiative de décider de la part de sa vie qu'il sacrifierait. Généralement, ceux qui osaient affronter cette étape avaient déjà un plan : ils calculaient la durée de vie nécessaire pour leur cultivation, puis sacrifiaient douloureusement le surplus afin d'augmenter leurs chances de réussir la neuvième tribulation.
 
 La longévité n'augmentait pas après être entré dans la Tribulation du Vide, à moins de devenir un Grand Empereur. Autrement, peu importe la vie restante après le sacrifice de la huitième épreuve, c'était ce qu'il vous resterait pour le stade de la Tribulation du Vide.
 

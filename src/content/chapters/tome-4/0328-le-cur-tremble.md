@@ -128,6 +128,6 @@ Wang Lin ne marqua aucun temps d'arrêt durant ce voyage de 800 000 kilomètres.
 
 Il n'avait jamais ressenti un tel tressaillement auparavant ; c'était une première.
 
-« Un démon intérieur ? Impossible. Avec ma culture, un démon ordinaire ne pourrait jamais pénétrer mon âme originelle. » Tout en y réfléchissant, Wang Lin s'enfonça dans la Mer des Démons.
+« Un démon intérieur ? Impossible. Avec ma cultivation, un démon ordinaire ne pourrait jamais pénétrer mon âme originelle. » Tout en y réfléchissant, Wang Lin s'enfonça dans la Mer des Démons.
 
 « Je n'ai pas vu Wan Er depuis de nombreuses années. Je devrais lui acheter quelque chose... » Un léger sourire étira les lèvres de Wang Lin.

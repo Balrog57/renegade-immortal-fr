@@ -38,7 +38,7 @@ Même après avoir absorbé toute cette énergie et que son noyau céleste ait a
 
 Wang Lin savait que ce vortex était un cycle de réincarnation auto-créé par l'énergie originelle céleste. En réalité, c'était un sort qui se concentrait sur les souvenirs : il fallait s'immerger dans ses propres souvenirs pour en extraire les fragments d'âme de toutes les personnes que l'on avait tuées !
 
-Bien qu'il ne s'agisse que de souvenirs, ils étaient extrêmement réels lors de l'utilisation du sort. Les fragments d'âme extraits conservaient même une partie de leur culture. Par conséquent, ils pouvaient être utilisés dans l'Arsenal Magique !
+Bien qu'il ne s'agisse que de souvenirs, ils étaient extrêmement réels lors de l'utilisation du sort. Les fragments d'âme extraits conservaient même une partie de leur cultivation. Par conséquent, ils pouvaient être utilisés dans l'Arsenal Magique !
 
 Plus il prolongeait le processus, plus il perdrait d'énergie originelle céleste. S'il n'obtenait pas gain de cause après trois jours, son énergie s'épuiserait et le vortex s'effondrerait.
 

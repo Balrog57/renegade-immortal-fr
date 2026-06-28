@@ -24,9 +24,9 @@ La Recherche d'Âme était une technique immortelle simple. Le pire résultat po
 
 Cependant, cette technique d'âme présentait des inconvénients. Avant d'atteindre le stade de la Formation du Noyau, si elle était utilisée sur un mortel, l'utilisateur subirait les mêmes dommages que sa cible.
 
-Au stade de la Formation du Noyau, ce n'était plus un problème. Néanmoins, on ne pouvait l'utiliser que trois fois dans une vie, et chaque usage entraînait la perte d'un niveau de culture pour l'utilisateur.
+Au stade de la Formation du Noyau, ce n'était plus un problème. Néanmoins, on ne pouvait l'utiliser que trois fois dans une vie, et chaque usage entraînait la perte d'un niveau de cultivation pour l'utilisateur.
 
-Wang Lin s'assit en tailleur dans sa chambre. Quelle que fût l'attention qu'il portait à la pierre, elle ne semblait pas spéciale. Pourtant, lorsqu'il la tenait, il sentait son esprit devenir extrêmement limpide. Il commença alors sa culture.
+Wang Lin s'assit en tailleur dans sa chambre. Quelle que fût l'attention qu'il portait à la pierre, elle ne semblait pas spéciale. Pourtant, lorsqu'il la tenait, il sentait son esprit devenir extrêmement limpide. Il commença alors sa cultivation.
 
 La nuit passa. Wang Lin soupira. Il ne ressentait toujours pas cette sensation de fourmillements dans son corps. Aucun signe d'énergie spirituelle ne se manifestait en lui. Il eut un sourire amer. À cet instant, quelqu'un poussa la porte. Sun Dazhu entra, l'expression sombre, tenant un bol rempli d'un liquide noir.
 

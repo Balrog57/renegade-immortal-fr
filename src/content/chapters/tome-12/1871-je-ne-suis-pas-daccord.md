@@ -8,11 +8,11 @@ slug: je-ne-suis-pas-daccord
 ---
 Chapitre 1871 - Je ne suis pas d'accord !
 
-Alors qu'ils discutaient de cette question, Yan Lu réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Taureau Céleste pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
+Alors qu'ils discutaient de cette question, Yan Lu réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Taureau Céleste pour la revêtir comme une armure et obtenir un gain massif de niveau de cultivation pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
 
-Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Taureau Céleste pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de culture serait terrifiante.
+Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Taureau Céleste pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de cultivation serait terrifiante.
 
-Bien qu'il s'agisse d'un gain temporaire, il deviendrait bien plus facile d'atteindre ce niveau de culture par la suite.
+Bien qu'il s'agisse d'un gain temporaire, il deviendrait bien plus facile d'atteindre ce niveau de cultivation par la suite.
 
 Une telle opportunité était extrêmement rare. Elle ne pouvait se produire que lorsque le continent entier du Taureau Céleste était menacé et que la Formation des Sept Méridiens du Taureau Céleste était activée.
 
@@ -32,7 +32,7 @@ Yan Lu désirait naturellement une telle opportunité. Xu Dongde la convoit éga
 
 Les grondements sourds continuaient de résonner au-dessus d'eux. C'était comme la faux de la mort prête à faucher leurs vies à tout instant.
 
-« Compagnons cultivateurs, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du continent du Taureau Céleste ! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
+« Compagnons cultivateurs, veuillez vous asseoir et libérer toute votre cultivation. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du continent du Taureau Céleste ! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
 
 Cette fois, sept personnes au total seraient éligibles pour obtenir l'armure d'âme. Ces sept individus deviendraient légendaires sur le continent du Taureau Céleste !
 
@@ -42,7 +42,7 @@ Yan Lu et ses compagnons, derrière Lu Wenran, étaient réticents, mais il éta
 
 Il regarda le vieil homme nommé Zhou et hocha la tête.
 
-Le vieil homme nommé Zhou n'osa refuser. Ses mains formèrent rapidement des sceaux et il commença à murmurer une incantation que lui seul pouvait entendre. Sa culture était limitée, et s'il était chargé de cet endroit sans participer pleinement aux combats, c'était précisément parce que son corps facilitait la communication avec l'âme du Taureau Céleste.
+Le vieil homme nommé Zhou n'osa refuser. Ses mains formèrent rapidement des sceaux et il commença à murmurer une incantation que lui seul pouvait entendre. Sa cultivation était limitée, et s'il était chargé de cet endroit sans participer pleinement aux combats, c'était précisément parce que son corps facilitait la communication avec l'âme du Taureau Céleste.
 
 Il était semblable aux Messagers du Démon Vert : son identité était celle d'un serviteur du Taureau Céleste !
 
@@ -52,9 +52,9 @@ Wang Lin était assis à l'intérieur de la grotte. Ses yeux s'illuminèrent, ma
 
 « Ô âme sainte du Taureau Céleste, j'utilise mon sang pour guider ton essence ! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
 
-« Compagnons cultivateurs, transférez votre culture dans cette lumière sanguine ! » cria soudainement le vieil homme nommé Zhou.
+« Compagnons cultivateurs, transférez votre cultivation dans cette lumière sanguine ! » cria soudainement le vieil homme nommé Zhou.
 
-À la suite de son rugissement, les plus de mille cultivateurs libérèrent toute leur puissance. Des ondulations résonnèrent à travers la terre. Lorsque le dernier cultivateur eut achevé l'effort, il afficha une expression de douleur : toute la culture qu'ils avaient déployée était absorbée par la lumière sanguine.
+À la suite de son rugissement, les plus de mille cultivateurs libérèrent toute leur puissance. Des ondulations résonnèrent à travers la terre. Lorsque le dernier cultivateur eut achevé l'effort, il afficha une expression de douleur : toute la cultivation qu'ils avaient déployée était absorbée par la lumière sanguine.
 
 Cette lumière infinie absorba toute la force et retourna dans le sceau sanguin. Un fracas tonitruant retentit, puis une brume grise apparut.
 
@@ -76,7 +76,7 @@ Son exaltation intérieure avait atteint un paroxysme. Ses yeux brillaient de d�
 
 Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissement du Taureau Céleste. Ce cri ne lui était pas étranger !
 
-La première étape pour invoquer l'âme du Taureau Céleste consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé. L'empreinte sanguine constituait la seconde étape !
+La première étape pour invoquer l'âme du Taureau Céleste consistait à utiliser la cultivation de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé. L'empreinte sanguine constituait la seconde étape !
 
 « Compagnons cultivateurs, prélevez neuf gouttes de sang, soit précisément 450 grammes, ni plus ni moins, et concentrez-les sur votre index droit ! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 

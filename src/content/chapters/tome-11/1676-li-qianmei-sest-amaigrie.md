@@ -124,10 +124,10 @@ Wang Lin regarda le vieil homme. Il sourit en acceptant la cruche, puis la posa 
 
 Le Maître Dao prit lui-même une cruche et en but une gorgée. Il reprit lentement : « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je devais jouer un rôle. Une partie pour moi-même et une autre pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
 
-« Je n'imaginais pas que tu atteindrais un tel niveau de culture... Donne-moi la cinquième concubine et deviens mon gendre ! À partir de maintenant, je prendrai le Clan de la Soie Bleue pour rejoindre le Royaume Intérieur ! »
+« Je n'imaginais pas que tu atteindrais un tel niveau de cultivation... Donne-moi la cinquième concubine et deviens mon gendre ! À partir de maintenant, je prendrai le Clan de la Soie Bleue pour rejoindre le Royaume Intérieur ! »
 
 « J'utiliserai mes vieux os pour balayer le chemin devant toi ! » Le Maître Dao Bleu Rêve prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant neuf mois.
 
-Le corps de Li Qianmei trembla et elle se tourna vers son père. Durant tout le trajet, celui-ci n'avait pas prononcé un mot. Elle savait que son père était l'un des Cinq Maîtres du Système Stellaire Antique. Avec une telle identité et une telle culture, il ne prononçait pas ces mots uniquement pour sa mère...
+Le corps de Li Qianmei trembla et elle se tourna vers son père. Durant tout le trajet, celui-ci n'avait pas prononcé un mot. Elle savait que son père était l'un des Cinq Maîtres du Système Stellaire Antique. Avec une telle identité et une telle cultivation, il ne prononçait pas ces mots uniquement pour sa mère...
 
 Le Maître Dao Bleu Rêve dit calmement : « Laissons le passé derrière nous... Wang Lin, j'attendrai ici ta réponse. »

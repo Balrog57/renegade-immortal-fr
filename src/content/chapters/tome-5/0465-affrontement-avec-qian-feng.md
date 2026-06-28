@@ -20,7 +20,7 @@ De plus, ces quelques décennies de vie supplémentaire exigeaient un prix exorb
 
 La poupée de cuivre était la clé. Elle avait été créée par le quatrième Suzaku à partir d'un métal provenant d'une autre planète, raffiné d'innombrables fois. Puis, les Suzakus suivants y avaient ajouté d'innombrables trésors célestes, permettant enfin l'usage de ce sort d'absorption de vie.
 
-En réalité, si cette poupée de cuivre possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
+En réalité, si cette poupée de cuivre possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Cultivation, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
 
 Cependant, cet objet n'était pas encore achevé et présentait de nombreux défauts. Actuellement, bien que Zhuque Zi l'ait utilisé pour prendre forme et paraisse plein de vitalité, ce n'était qu'une apparence temporaire.
 

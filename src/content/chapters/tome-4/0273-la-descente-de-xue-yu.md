@@ -18,7 +18,7 @@ Ce Chaudron était une calamité pour l'Alliance des Quatre Sectes, mais aussi u
 
 Pour Wang Lin, ce Chaudron était indispensable à son avenir. Il sentait que l'énergie spirituelle environnante n'était plus aussi pure qu'auparavant.
 
-C'était comme si elle était souillée par des impuretés. Ce n'était pas que l'énergie spirituelle avait changé ces dernières années, mais parce que le niveau de culture de Wang Lin avait augmenté, il pouvait désormais détecter ce problème.
+C'était comme si elle était souillée par des impuretés. Ce n'était pas que l'énergie spirituelle avait changé ces dernières années, mais parce que le niveau de cultivation de Wang Lin avait augmenté, il pouvait désormais détecter ce problème.
 
 Cette énergie est inoffensive pour les cultivateurs en dessous du stade de la Formation de l'Âme, car ils sont incapables d'en percevoir les impuretés.
 
@@ -42,7 +42,7 @@ En un clin d'œil, une année s'écoula. Soit parce que les formations célestes
 
 L'ensemble de l'Alliance des Quatre Sectes était recouvert de blanc. Au cours de cette année, un grand nombre de mortels avaient péri. Bien que les cadavres ne soient pas toujours visibles, chaque pas s'effectuait entre la neige et les corps. Le monde mortel de l'Alliance des Quatre Sectes s'était transformé en une vaste tombe.
 
-En réalité, l'Alliance des Quatre Sectes s'était scindée en deux factions : l'une souhaitait se terrer pour attendre que l'orage passe, tandis que l'autre voulait combattre jusqu'au bout. Après tout, Xue Yu était également un pays de culture de rang 4.
+En réalité, l'Alliance des Quatre Sectes s'était scindée en deux factions : l'une souhaitait se terrer pour attendre que l'orage passe, tandis que l'autre voulait combattre jusqu'au bout. Après tout, Xue Yu était également un pays de cultivation de rang 4.
 
 Un jour, une immense aura glaciale s'échappa des failles du ciel, et une jeune fille émergea de l'une d'elles, au centre de l'Alliance des Quatre Sectes.
 
@@ -68,7 +68,7 @@ Mais alors qu'ils tombaient du ciel, quatre rayons de lumière jaillirent de l'o
 
 Des piliers de lumière cyan, rouge, violet et blanc, semblant pouvoir soutenir la voûte céleste, apparurent. Au sommet de ces colonnes, des figures gigantesques se condensèrent lentement. Lorsqu'elles furent pleinement formées, elles révélèrent être d'antiques barbares revêtus d'armures de cuir.
 
-En regardant de près ces géants, on pouvait apercevoir un cultivateur logé dans la poitrine de chacun d'eux. Bien qu'il fût impossible de deviner leur niveau de culture, il ne pouvait être bas.
+En regardant de près ces géants, on pouvait apercevoir un cultivateur logé dans la poitrine de chacun d'eux. Bien qu'il fût impossible de deviner leur niveau de cultivation, il ne pouvait être bas.
 
 Ces barbares antiques sortirent des piliers un à un et chargèrent les troupes de Xue Yu. Ils étaient légion, et chaque pas qu'ils faisaient semblait faire trembler la terre et le ciel.
 

@@ -32,7 +32,7 @@ Ses cheveux blancs ondulaient d'une manière singulière, lui conférant l'allur
 
 Ses yeux s'ouvrirent lentement, brillant d'un éclat intense. Le sourire au coin de sa bouche s'élargit encore, et son regard sembla percer le météore, les étoiles et le Royaume Céleste tout entier pour fixer la silhouette assise là-bas.
 
-« Tu es digne d'être le disciple de ce vieil homme... Tu ne peux échapper à mes mains... Plus ton niveau de culture sera élevé, plus tu aideras ce vieux renard. Plus je récolterai de bénéfices... »
+« Tu es digne d'être le disciple de ce vieil homme... Tu ne peux échapper à mes mains... Plus ton niveau de cultivation sera élevé, plus tu aideras ce vieux renard. Plus je récolterai de bénéfices... »
 
 « Oh ? Sept essences... Bien, bien, bien ! » L'Omniscient sourit et serra le poing droit. L'aura de l'essence karmique se propagea depuis son poing.
 
@@ -98,7 +98,7 @@ La porte s'ouvrit silencieusement. Qing Lin apparut, vêtu d'une chemise bleue, 
 
 « C'est rare que le Frère Wang vienne jusqu'ici. Je me demande ce qui vous amène ? »
 
-Bien que Qing Lin ait mentionné vouloir faire de Wang Lin son disciple, ce sujet n'avait plus jamais été abordé avec le temps. Le niveau de culture et le statut actuel de Wang Lin avaient naturellement poussé Qing Lin à changer sa façon de s'adresser à lui, témoignant ainsi du respect dû à un égal.
+Bien que Qing Lin ait mentionné vouloir faire de Wang Lin son disciple, ce sujet n'avait plus jamais été abordé avec le temps. Le niveau de cultivation et le statut actuel de Wang Lin avaient naturellement poussé Qing Lin à changer sa façon de s'adresser à lui, témoignant ainsi du respect dû à un égal.
 
 « J'ai entendu dire que vous étiez réputé pour votre divination, Senior Qing Lin. Je sollicite votre aide pour une divination ! » Wang Lin joignit les mains avec une expression solennelle.
 

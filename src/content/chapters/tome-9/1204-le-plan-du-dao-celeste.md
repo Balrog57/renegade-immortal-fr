@@ -60,7 +60,7 @@ La gorge de Wang Lin devint sèche. Tout en réfléchissant, il fronça les sour
 
 « Quelque chose ne va pas ! Si Zhan Xingye a été tué ainsi, comment une volonté aussi claire peut-elle encore subsister ? S'il est mort, sa volonté aurait dû se dissiper. Même si elle persiste, elle ne devrait pas être aussi nette... De plus, la voix du Souverain à la fin semblait manifestement épuisée... » Des idées défilaient dans l'esprit de Wang Lin, mais il ne parvenait pas à trouver de réponse définitive.
 
-« Vide Spirituel, Tribulation du Vide ! S'agirait-il de deux royaumes de la troisième étape ? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de culture avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain ? »
+« Vide Spirituel, Tribulation du Vide ! S'agirait-il de deux royaumes de la troisième étape ? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de cultivation avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain ? »
 
 « D'après ses paroles, ce Souverain semble craindre ce Vieux Fantôme Zhan. Afin de découvrir où ce dernier avait caché ses os, le Souverain a offert le Parchemin de la Bataille à Zhan Xingye. Il l'a laissé maîtriser le domaine de la bataille avant de le tuer pour s'emparer de son âme. Tout cela n'était qu'un rouage du plan céleste. Mais quel est donc ce plan ? » L'esprit de Wang Lin s'éclaircit. Bien que certaines zones d'ombre subsistent, ses pensées étaient désormais limpides.
 
@@ -100,9 +100,9 @@ Un soupir monta dans son cœur, mais il ne ralentit pas et continua de foncer. I
 
 Ses yeux brillèrent alors qu'il bondissait pour atteindre la tête de la statue.
 
-Dans les souvenirs du Maître Ashen Pine, sa méthode de culture s'intitulait : *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
+Dans les souvenirs du Maître Ashen Pine, sa méthode de cultivation s'intitulait : *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
 
-Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Ashen Pine d'augmenter neuf fois la vitesse de culture de ses sortilèges.
+Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Ashen Pine d'augmenter neuf fois la vitesse de cultivation de ses sortilèges.
 
 Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles ; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral Ying Yang de la vieille femme.
 

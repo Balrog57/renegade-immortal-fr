@@ -42,7 +42,7 @@ Il y avait même des cadavres, de grandes bêtes et de gigantesques trésors mag
 
 C'était comme si, à cet instant, tout ce qui se présentait devant eux n'était qu'une illusion.
 
-Wang Lin vit personnellement une bête démoniaque géante à corne unique, émettant des éclairs noirs et possédant un niveau de culture similaire à celui d'un cultivateur Ascendant, traverser son corps à une vitesse telle qu'il n'eut aucune chance de l'esquiver.
+Wang Lin vit personnellement une bête démoniaque géante à corne unique, émettant des éclairs noirs et possédant un niveau de cultivation similaire à celui d'un cultivateur Ascendant, traverser son corps à une vitesse telle qu'il n'eut aucune chance de l'esquiver.
 
 Au moment où elle le traversa, Wang Lin prit une profonde inspiration. Il se retourna soudainement et scruta attentivement la lumière rouge pour tenter d'apercevoir autant de trésors que possible.
 

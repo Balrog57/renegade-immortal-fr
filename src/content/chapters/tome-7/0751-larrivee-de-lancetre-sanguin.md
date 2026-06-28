@@ -28,7 +28,7 @@ Wang Lin regarda Li Yuan avec sérénité. Si l'affaire était aussi simple que 
 
 Tout en réfléchissant, Wang Lin jeta un regard furtif vers la statue de pierre, évitant soigneusement l'empreinte de la main avant de détourner les yeux. Il semblait avoir vaguement remarqué quelque chose : l'apparence du céleste ressemblait... étrangement à celle de Ge Hong.
 
-« Frère Xu, ma culture ne peut égaler la vôtre ; même avec les restrictions, je ne peux vous atteindre, sans parler de cette énergie d'épée, alors pourquoi douter encore de moi ? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai l'intégralité de la Restriction des 18 Prunelles. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu ! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
+« Frère Xu, ma cultivation ne peut égaler la vôtre ; même avec les restrictions, je ne peux vous atteindre, sans parler de cette énergie d'épée, alors pourquoi douter encore de moi ? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai l'intégralité de la Restriction des 18 Prunelles. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu ! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
 
 Wang Lin ne manifesta aucune émotion, mais il hocha la tête.
 
@@ -84,7 +84,7 @@ Le retrait de Wang Lin força Li Yuan à tourner brusquement la tête vers lui. 
 
 Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait l'âme de s'échapper, et ce sceau tendait à faire s'effondrer l'âme avec la statue.
 
-Wang Lin recula encore plus vite, parcourant mille pieds en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
+Wang Lin recula encore plus vite, parcourant mille pieds en un instant. Le regard de Li Yuan devint glacial et sa cultivation explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
 
 Sa charge fut semblable à une téléportation, lui permettant de rattraper directement Wang Lin, alors il hurla : « Confrère cultivateur Xu, pourquoi fuyez-vous ainsi !? »
 

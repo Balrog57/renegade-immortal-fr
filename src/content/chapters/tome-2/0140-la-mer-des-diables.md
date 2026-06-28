@@ -50,7 +50,7 @@ Wang Lin hocha la tête : « Ma demeure est très loin. Il me sera impossible de
 
 Zhong Zihong regarda Wang Lin d'un regard complexe et dit : « Aide-moi à tuer deux personnes. »
 
-Wang Lin haussa un sourcil. « Quel niveau de culture ? »
+Wang Lin haussa un sourcil. « Quel niveau de cultivation ? »
 
 Le regard de Zhong Zihong devint glacial alors qu'elle répondait : « L'une est au milieu du stade de l'Établissement des Fondations, et l'autre est au sommet du stade avancé de l'Établissement des Fondations. »
 
@@ -86,7 +86,7 @@ Depuis lors, la Mer des Diables était perpétuellement plongée dans le brouill
 
 Par ailleurs, en raison de la nature particulière de ce brouillard, celui-ci se transformait en eau de mer une fois par an, pendant un mois.
 
-Du fait de cet environnement hostile, les ressources étaient rares, les veines spirituelles peu nombreuses et les meurtres monnaie courante. Tout cela faisait de la Mer des Diables un refuge pour les cultivateurs démoniaques. Même les criminels des nations de culture les plus puissantes, traqués par leurs propres royaumes, s'échappaient vers la Mer des Diables.
+Du fait de cet environnement hostile, les ressources étaient rares, les veines spirituelles peu nombreuses et les meurtres monnaie courante. Tout cela faisait de la Mer des Diables un refuge pour les cultivateurs démoniaques. Même les criminels des nations de cultivation les plus puissantes, traqués par leurs propres royaumes, s'échappaient vers la Mer des Diables.
 
 C'est de là que venait son nom. Quant à son véritable nom, personne ne s'en souvenait plus. La Mer des Diables était un lieu chaotique et désordonné. Très peu de cultivateurs non démoniaques acceptaient de s'y aventurer.
 
@@ -102,7 +102,7 @@ Le jeune homme fit un geste de la main. Li Muwan poussa un cri alors qu'un large
 
 Le jeune homme éclata de rire en reniflant le morceau de tissu déchiré, les yeux brillants d'une lueur malveillante.
 
-Wang Lin observa la scène un instant avant de détourner le regard. Le niveau de culture de ce jeune homme était élevé : il se situait au milieu du stade de Formation du Noyau. Il ne cherchait pas les ennuis et son but était de partir avant l'arrivée des bêtes de feu.
+Wang Lin observa la scène un instant avant de détourner le regard. Le niveau de cultivation de ce jeune homme était élevé : il se situait au milieu du stade de Formation du Noyau. Il ne cherchait pas les ennuis et son but était de partir avant l'arrivée des bêtes de feu.
 
 Il n'avait rencontré Li Muwan qu'une fois ; il n'y avait donc aucune raison réelle de risquer sa vie pour elle. Mais à cet instant précis, le regard du jeune homme s'illumina et il projeta une lueur noire vers la cachette de Wang Lin.
 
@@ -114,13 +114,13 @@ Le jeune homme ricana. D'un geste, il fit apparaître huit épées volantes qui 
 
 Wang Lin soupira intérieurement, saisit le bras de Li Muwan et esquiva dangereusement les épées volantes. Il l'entraîna sous terre et utilisa la technique d'évasion tellurique pour fuir.
 
-La technique d'évasion tellurique était véritablement une relique du monde ancien de la culture, même s'il ne s'agissait ici que d'une branche inférieure. Même en portant une autre personne, sa vitesse n'en fut que peu affectée.
+La technique d'évasion tellurique était véritablement une relique du monde ancien de la cultivation, même s'il ne s'agissait ici que d'une branche inférieure. Même en portant une autre personne, sa vitesse n'en fut que peu affectée.
 
 Le jeune homme dirigea ses épées pour attaquer le sol. Il afficha un sourire moqueur alors que les ondes de choc se propageaient sous terre, mais à mesure que la vitesse de Wang Lin augmentait, l'expression du poursuivant devint plus sérieuse et il se concentra sur sa traque.
 
 Bien qu'il fût un cultivateur de la Formation du Noyau, il n'était pas spécialisé dans la vitesse. Si Wang Lin avait utilisé une épée volante ordinaire d'un cultivateur de l'Établissement des Fondations, cela n'aurait été rien, mais face à cette technique spécialisée, sa faiblesse fut exposée. Plus il poursuivait, plus l'écart entre lui et Wang Lin se creusait.
 
-Le visage de Wang Lin était sombre tandis qu'il jetait un regard impitoyable vers Li Muwan. Le cœur de celle-ci battait la chamade. Elle savait qu'elle l'avait entraîné dans sa chute. Elle mordit sa lèvre et dit rapidement : « Cet homme est un Ancien du Secte de Double Culture de Xuan Wu. Il a appris que je possédais une Pilule du Ciel Lointain. C'est pourquoi il méprise son statut pour me poursuivre. »
+Le visage de Wang Lin était sombre tandis qu'il jetait un regard impitoyable vers Li Muwan. Le cœur de celle-ci battait la chamade. Elle savait qu'elle l'avait entraîné dans sa chute. Elle mordit sa lèvre et dit rapidement : « Cet homme est un Ancien du Secte de Double Cultivation de Xuan Wu. Il a appris que je possédais une Pilule du Ciel Lointain. C'est pourquoi il méprise son statut pour me poursuivre. »
 
 Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent : « Tu possèdes une Pilule du Ciel Lointain ? »
 
@@ -184,7 +184,7 @@ Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin
 
 Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer des Diables.
 
-Li Muwan ignorait que ses paroles avaient réellement tenté Wang Lin. À ses yeux, elle était devenue un véritable four à pilules ambulant. En l'utilisant judicieusement, son niveau de culture pourrait progresser considérablement.
+Li Muwan ignorait que ses paroles avaient réellement tenté Wang Lin. À ses yeux, elle était devenue un véritable four à pilules ambulant. En l'utilisant judicieusement, son niveau de cultivation pourrait progresser considérablement.
 
 Wang Lin avait eu cette idée en lisant le journal de vie de Sun Youcai.
 

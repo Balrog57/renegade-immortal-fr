@@ -20,7 +20,7 @@ Le champ de bataille étranger n'ouvrant ses portes que tous les cent ans, des b
 
 Ce jour-là, d'innombrables cultivateurs s'étaient rassemblés devant la vallée de Jue Ming, venus de toutes les sectes de Zhao. Hormis les très grandes sectes qui disposaient de leurs propres zones, les autres formaient des groupes compacts. Le reste des gens appartenait à de petites familles, de petites sectes ou étaient des cultivateurs indépendants.
 
-Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils se présentaient là dans l'espoir de profiter de l'occasion : chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à des semaines de culture.
+Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils se présentaient là dans l'espoir de profiter de l'occasion : chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à des semaines de cultivation.
 
 Voyant que la vallée de Jue Ming était sur le point de s'ouvrir, chacun trouva un endroit pour attendre l'instant fatidique.
 

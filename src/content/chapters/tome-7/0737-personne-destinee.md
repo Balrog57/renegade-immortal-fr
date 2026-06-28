@@ -42,13 +42,13 @@ Wang Lin esquissa un sourire amer en regardant autour de lui. Il se trouvait dan
 
 Il activa lentement son âme originelle et découvrit une trace de tonnerre incompatible avec sa propre énergie. Ce tonnerre était la raison pour laquelle son âme originelle ne fonctionnait pas normalement.
 
-Les environs étaient plongés dans un silence absolu, et Wang Lin était totalement immergé dans sa culture. À ce moment-là, le gardien céleste sortit de son ombre. Il s'assit face à Wang Lin pour le protéger.
+Les environs étaient plongés dans un silence absolu, et Wang Lin était totalement immergé dans sa cultivation. À ce moment-là, le gardien céleste sortit de son ombre. Il s'assit face à Wang Lin pour le protéger.
 
 Sept jours passèrent en un éclair. Wang Lin ouvrit les yeux et cracha une bouffée d'air fétide contenant une trace de tonnerre.
 
 « Je ne peux plus prendre ce genre de risque à l'avenir... Heureusement, la quantité de tonnerre qui a perturbé mon âme originelle n'était pas importante. Autrement, je n'aurais pas pu l'expulser en si peu de temps. »
 
-Après avoir expulsé cette infime trace de foudre, les blessures de Wang Lin commencèrent à cicatriser et son âme originelle se rétablit. Son corps était endommagé, mais cela n'affectait pas sa culture. Wang Lin regarda la terre au-dessus de lui, puis fit un pas en avant et chargea directement vers la surface.
+Après avoir expulsé cette infime trace de foudre, les blessures de Wang Lin commencèrent à cicatriser et son âme originelle se rétablit. Son corps était endommagé, mais cela n'affectait pas sa cultivation. Wang Lin regarda la terre au-dessus de lui, puis fit un pas en avant et chargea directement vers la surface.
 
 « Puisque je suis arrivé dans le Royaume Céleste du Tonnerre, je dois bien observer ce qui le différencie du Royaume Céleste de la Pluie ! » Le corps de Wang Lin se transforma en un rayon de lumière, mais au moment où il toucha la terre, une lueur jaillit de celle-ci. Comme s'il avait heurté un mur de fer, un grondement retentit et il fut repoussé violemment.
 
@@ -68,7 +68,7 @@ L'expression de Wang Lin devint encore plus lugubre. Il était désormais certai
 
 Wang Lin réfléchit en silence. Il avait passé plusieurs jours à guérir et ignorait si le Royaume Céleste du Tonnerre s'était ouvert. Il n'arrivait pas non plus à déduire l'identité de l'auteur du sort.
 
-« Cependant, cette personne est capable de verrouiller une partie du Royaume Céleste. Je crains que sa culture ne soit pas simple ! Mais quel est son but en me forçant à avancer ? Cette méthode n'a aucun sens... Si cette personne était mon ennemie, elle aurait pu m'attaquer directement... » Wang Lin réfléchit et ses yeux s'illuminèrent. Il regarda ensuite le trou que le gardien céleste avait creusé en cherchant une issue.
+« Cependant, cette personne est capable de verrouiller une partie du Royaume Céleste. Je crains que sa cultivation ne soit pas simple ! Mais quel est son but en me forçant à avancer ? Cette méthode n'a aucun sens... Si cette personne était mon ennemie, elle aurait pu m'attaquer directement... » Wang Lin réfléchit et ses yeux s'illuminèrent. Il regarda ensuite le trou que le gardien céleste avait creusé en cherchant une issue.
 
 « Peu importe, il est inutile de rester ici. Voyons quels mystères m'attendent ! » Les yeux de Wang Lin devinrent glacials alors qu'il toucha son sac de rangement ; un pinceau céleste doré apparut dans sa main.
 

@@ -26,11 +26,11 @@ Bien qu'il ne fût pas difficile pour un cultivateur Yang Corporel de tuer plus 
 
 En particulier, parmi les cent Ascendants, plusieurs cultivateurs Yin Illusoires aux yeux injectés de sang étaient présents. Ils étaient bien plus puissants que les Ascendants et, avec eux en tête, la force du groupe était terrifiante.
 
-Cependant, ces éléments ne firent que faire changer les visages des messagers du Temple Céleste du Tonnerre. Parmi ces cultivateurs, deux étaient de niveau Yang Corporel. Ces deux-là s'étaient extrêmement bien dissimulés, mais dès qu'ils pénétrèrent l'écran de lumière, ils révélèrent leur niveau de culture. Leur apparition fit sursauter les messagers.
+Cependant, ces éléments ne firent que faire changer les visages des messagers du Temple Céleste du Tonnerre. Parmi ces cultivateurs, deux étaient de niveau Yang Corporel. Ces deux-là s'étaient extrêmement bien dissimulés, mais dès qu'ils pénétrèrent l'écran de lumière, ils révélèrent leur niveau de cultivation. Leur apparition fit sursauter les messagers.
 
 Pourtant, ce qui fit véritablement retenir le souffle des messagers du Temple Céleste du Tonnerre, ce fut Wang Lin !
 
-Bien que Wang Lin fût lui aussi un cultivateur Yang Corporel, ces messagers pouvaient ressentir une aura meurtrière émanant de lui. C'était une aura née de l'assassinat de nombreux individus de même niveau de culture.
+Bien que Wang Lin fût lui aussi un cultivateur Yang Corporel, ces messagers pouvaient ressentir une aura meurtrière émanant de lui. C'était une aura née de l'assassinat de nombreux individus de même niveau de cultivation.
 
 Même à cet instant, ces cultivateurs enragés regardaient Wang Lin avec respect. Ce sentiment émanait de tous les Ascendants, des Yin Illusoires et même des deux Yang Corporel.
 
@@ -96,7 +96,7 @@ Le messager cracha une large traînée de sang et fut projeté en arrière. Les 
 
 À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen. C'était l'un des deux cultivateurs Yang Corporel qui se cachaient parmi la foule. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
 
-Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau de culture des deux Yang Corporel plus tôt ; cependant, puisqu'ils avaient payé en jades, il n'avait rien dit et les avait laissés rester.
+Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau de cultivation des deux Yang Corporel plus tôt ; cependant, puisqu'ils avaient payé en jades, il n'avait rien dit et les avait laissés rester.
 
 La mort de l'un des messagers fut immédiatement remarquée par tous les cultivateurs environnants. En un instant, leur élan augmenta drastiquement !
 

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1052 - The Identity of the Celestial Cloud Cultivation Couple
 slug: lidentite-du-couple-de-cultivateurs-du-nuage-celeste
 ---
-« Wang Lin salue l'Aîné. Comment aurais-je pu oublier la promesse que j'ai faite ? Peu importe le danger de cet endroit, je ramènerai le corps de Qing Shuang ! » Voir Zhou Yi émut Wang Lin. Zhou Yi était l'un des rares bienfaiteurs qu'il ait connus, et quel que soit le niveau de culture que Wang Lin atteindrait, il resterait toujours respectueux envers lui.
+« Wang Lin salue l'Aîné. Comment aurais-je pu oublier la promesse que j'ai faite ? Peu importe le danger de cet endroit, je ramènerai le corps de Qing Shuang ! » Voir Zhou Yi émut Wang Lin. Zhou Yi était l'un des rares bienfaiteurs qu'il ait connus, et quel que soit le niveau de cultivation que Wang Lin atteindrait, il resterait toujours respectueux envers lui.
 
 Zhou Yi afficha une expression mélancolique en regardant Wang Lin et secoua la tête. « Il n'est pas nécessaire de m'appeler "Aîné" quand nous sommes seuls. Si cela ne te dérange pas, appelle-moi simplement "Grand Frère Zhou". » Les yeux de Zhou Yi se rétrécirent soudainement et il scruta attentivement Wang Lin.
 
@@ -72,7 +72,7 @@ Zhou Yi murmura : « J'étais prêt à tout brûler pour elle. Je n'ai aucun reg
 
 Après avoir appris que Zhou Yi avait brûlé son âme pour atteindre le stade d'Ascendant et retrouver sa lucidité afin de protéger le corps de Qing Shuang, tout en ne regrettant rien, une pointe de compassion apparut dans le regard de Hu Juan envers lui.
 
-« Quel destin terrible ! » Wang Wei laissa échapper un soupir. Avec son niveau de culture et son expérience, il pouvait naturellement distinguer si les paroles de Zhou Yi étaient vraies ou mensongères.
+« Quel destin terrible ! » Wang Wei laissa échapper un soupir. Avec son niveau de cultivation et son expérience, il pouvait naturellement distinguer si les paroles de Zhou Yi étaient vraies ou mensongères.
 
 Une âme résiduelle s'était formée en Qing Shuang en raison de ses milliers d'années d'obsession, et elle s'était éveillée. Elle avait ressuscité Zhou Yi, qui était au bord de la mort, pour faire de lui le nouvel Esprit d'Épée Céleste de la Pluie. Après avoir entendu ce récit par la bouche de Zhou Yi, Wang Wei et Hu Juan restèrent silencieux pour réfléchir.
 
@@ -102,11 +102,11 @@ L'esprit de Wang Lin fut frappé de stupeur et il commença à réfléchir inten
 
 Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La restriction changea immédiatement, devenant encore plus puissante qu'auparavant.
 
-« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Seule moi peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
+« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre cultivation des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Seule moi peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
 
 Wang Lin eut un haut-le-cœur et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 
-Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari concernant votre restriction à l'époque. »
+Wang Wei secoua la tête en riant. « Ma cultivation des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari concernant votre restriction à l'époque. »
 
 Wang Lin tapa sur sa sacoche de rangement et s'apprêta à sortir la pagode céleste. Cependant, à cet instant, l'expression de Wang Lin changea et il regarda soudainement au loin.
 

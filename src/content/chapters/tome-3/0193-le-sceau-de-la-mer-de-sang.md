@@ -14,7 +14,7 @@ Wang Lin resta impassible. Il observa les instruments qui l'entouraient sans pro
 
 L'homme âgé réfléchit un instant et ajouta : « C'est mon trésor de survie. Je ne peux pas te le donner. En revanche, je peux t'offrir dix pierres spirituelles de qualité supérieure. C'est notre limite. »
 
-Wang Lin ne ressentait nul besoin de les pousser davantage. La réalité était que la culture de ces individus atteignait un niveau inimaginable. S'il n'avait pas eu la mémoire de l'héritage comme atout ultime, il ne serait pas aussi calme.
+Wang Lin ne ressentait nul besoin de les pousser davantage. La réalité était que la cultivation de ces individus atteignait un niveau inimaginable. S'il n'avait pas eu la mémoire de l'héritage comme atout ultime, il ne serait pas aussi calme.
 
 Wang Lin dit calmement : « Cent pièces. »
 

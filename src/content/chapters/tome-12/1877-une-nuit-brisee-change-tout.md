@@ -80,13 +80,13 @@ Qu'il s'agisse d'une illusion ou d'une réalité, on pouvait affirmer que la Pra
 
 Cette projection servait de moyen de suppression !
 
-Zhang Daozong, le vieil homme nommé Zhao et les âmes originelles des deux cultivatrices étaient également présents. Ayant à peine survécu à l'Empreinte de l'Esprit de la Guerre, ils descendaient désormais désespérément, utilisant toute leur culture pour aider les Messagers du Démon Vert dans cette suppression !
+Zhang Daozong, le vieil homme nommé Zhao et les âmes originelles des deux cultivatrices étaient également présents. Ayant à peine survécu à l'Empreinte de l'Esprit de la Guerre, ils descendaient désormais désespérément, utilisant toute leur cultivation pour aider les Messagers du Démon Vert dans cette suppression !
 
 Ils comprirent que s'ils ne parvenaient pas à contenir Wang Lin, qui avait obtenu la reconnaissance du Taureau Céleste, ils rencontreraient un destin atroce !
 
 « Les Messagers du Taureau Céleste sont différents de nous. Ils peuvent atteindre une puissance absolue, mais seulement temporairement. Bien que j'ignore combien de temps cela durera, ce ne sera pas éternel. Tant que nous le maintenons sous pression, nous pourrons le tuer une fois son pouvoir épuisé ! » rugit l'un des Messagers du Démon Vert.
 
-Alors qu'il criait, Zhang Daozong et ses compagnons semblèrent être investis d'une puissance et d'une détermination sans limites. Ils déployèrent toute leur culture pour soutenir la suppression.
+Alors qu'il criait, Zhang Daozong et ses compagnons semblèrent être investis d'une puissance et d'une détermination sans limites. Ils déployèrent toute leur cultivation pour soutenir la suppression.
 
 La terre trembla sous des grondements tonitruants. Chaque écho rendait les visages de l'assistance un peu plus pâles.
 
@@ -98,7 +98,7 @@ Le parapluie s'ouvrit un instant et un incendie monstrueux déferla, consumant l
 
 Le Parapluie Brûlant du Royaume ne possédait pas de transformation comme la Lance aux Sept Couleurs ou l'Empreinte de l'Esprit de la Guerre. Il restait identique, bien que beaucoup plus puissant. Néanmoins, il demeurait légèrement inférieur à ces deux autres techniques.
 
-« Ce sort semble extrêmement puissant, mais en vérité, même le fou n'en avait qu'effleuré la surface. Même avec mon niveau de culture actuel, je ne peux exprimer sa véritable force... Ou plutôt, le sort n'est pas aussi puissant que je le pensais, et voici ma limite », pensa Wang Lin.
+« Ce sort semble extrêmement puissant, mais en vérité, même le fou n'en avait qu'effleuré la surface. Même avec mon niveau de cultivation actuel, je ne peux exprimer sa véritable force... Ou plutôt, le sort n'est pas aussi puissant que je le pensais, et voici ma limite », pensa Wang Lin.
 
 « Alors, je vais essayer mes propres sorts ! » Les yeux de Wang Lin brillèrent d'une lueur étrange alors qu'il levait les yeux. Il leva sa main droite et l'agita brusquement.
 

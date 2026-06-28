@@ -46,7 +46,7 @@ Le choc fut d'une intensité sans précédent, comme si une véritable tempête 
 
 Cette énergie était trop puissante. Sous l'impact, Wang Lin ne put s'empêcher de pousser un rugissement puissant. Son aura augmentait de façon effrénée. Tandis que son âme originelle dévorait cette énergie, elle acheva le processus crucial de transition entre le sommet du stade avancé de l'Ascendant et le stade Yin Illusoire.
 
-Qu'est-ce qu'une âme originelle ? Si la culture d'un individu n'a pas atteint le stade Yin Illusoire lors de ce processus vital, son âme originelle n'est en réalité qu'une illusion.
+Qu'est-ce qu'une âme originelle ? Si la cultivation d'un individu n'a pas atteint le stade Yin Illusoire lors de ce processus vital, son âme originelle n'est en réalité qu'une illusion.
 
 Une véritable âme originelle est capable de dévorer l'énergie originelle pour renaître grâce à elle !
 
@@ -78,9 +78,9 @@ Wang Lin riait de plus belle tandis que son âme originelle jaillissait de son c
 
 Il engloutit successivement ces huit éclairs avant de retourner dans son corps, pour ensuite les relâcher. Le corps de sang et la puissance du vieil homme explosèrent à nouveau, lui offrant en échange encore plus d'énergie originelle.
 
-Le niveau de culture de Wang Lin grimpa en flèche sous l'impact de cette énergie libérée. Sa culture au stade Yin Illusoire se stabilisa et commença déjà à pousser vers le sommet de ce même stade !
+Le niveau de cultivation de Wang Lin grimpa en flèche sous l'impact de cette énergie libérée. Sa cultivation au stade Yin Illusoire se stabilisa et commença déjà à pousser vers le sommet de ce même stade !
 
-Les stades Yin Illusoire et Yang Corporel marquaient la transition entre la première et la seconde étape de la culture. Ils représentaient l'équilibre parfait entre le yin et le yang. Le stade Yin Illusoire concernait la mutation de l'âme originelle, tandis que le stade Yang Corporel consistait en la dissipation totale de l'énergie spirituelle céleste au profit de l'énergie originelle !
+Les stades Yin Illusoire et Yang Corporel marquaient la transition entre la première et la seconde étape de la cultivation. Ils représentaient l'équilibre parfait entre le yin et le yang. Le stade Yin Illusoire concernait la mutation de l'âme originelle, tandis que le stade Yang Corporel consistait en la dissipation totale de l'énergie spirituelle céleste au profit de l'énergie originelle !
 
 Ce processus était appelé transformation originelle. Il visait à élever un cultivateur au rang des anciens.
 

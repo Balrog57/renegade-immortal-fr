@@ -72,7 +72,7 @@ Au loin, la femme en robe bleue observait la scène sans l'ombre d'une panique. 
 
 La femme en robe bleue leva la main droite et dit doucement : « J'invite le Grand Ancien du Palais Xuan, l'estimé Xuan Bao. »
 
-Un rire résonna à travers les étoiles. Ce rire ne dégageait pas une grande puissance de culture, mais tous les trésirs alentour tremblèrent un instant, comme s'ils s'apprêtaient à quitter leurs maîtres.
+Un rire résonna à travers les étoiles. Ce rire ne dégageait pas une grande puissance de cultivation, mais tous les trésirs alentour tremblèrent un instant, comme s'ils s'apprêtaient à quitter leurs maîtres.
 
 Le Saint Démon Noir en fuite poussa un soupir de soulagement. Non seulement lui, mais même le Saint Démon du Dragon Nuage se détendit. Ce dernier renonça simplement au combat et se retira rapidement.
 
@@ -80,19 +80,19 @@ Ils savaient parfaitement que les fameux quatre saints n'étaient pas uniquement
 
 Les quatre saints de l'Alliance étaient divisés en Lune, Nuage, Xian et Yao ! Ji Xiantian était le saint Xian. Chacun d'eux avait trois subordonnés ; ainsi, quelle que soit la combinaison, ils formaient les quatre saints !
 
-En vérité, pour cette bataille, l'Alliance de Culture n'avait dépêché que le saint Xian et ses trois subordonnés !
+En vérité, pour cette bataille, l'Alliance de Cultivation n'avait dépêché que le saint Xian et ses trois subordonnés !
 
 L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui imposait véritablement le respect et la crainte des membres de l'Alliance, c'était qu'il était l'un des Anciens capables de décider de tout au sein de l'organisation ! C'était là sa fonction la plus prestigieuse.
 
 Hormis les membres du Groupe des Anciens de l'Alliance, nul ne savait exactement combien ils étaient. Cependant, chacun d'eux était d'une puissance telle qu'il pouvait renverser les cieux !
 
-Si All-Seer était respecté et que l'Alliance de Culture avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient entaché son statut, il en demeurait un membre !
+Si All-Seer était respecté et que l'Alliance de Cultivation avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient entaché son statut, il en demeurait un membre !
 
 Si All-Seer n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens ; il s'était retiré du monde.
 
 Il faut dire que même Ji Xiantian ou Wudo Chan, qui affrontaient Maître Étincelle, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien !
 
-Nul ne savait quel niveau de culture était requis pour intégrer ce groupe. Certains soupçonnaient que, si la culture y était liée, elle n'était pas le seul critère. Le groupe des anciens détenait les plus hauts pouvoirs et les secrets les plus profonds de l'Alliance ! Ses membres étaient les véritables souverains de l'Alliance !
+Nul ne savait quel niveau de cultivation était requis pour intégrer ce groupe. Certains soupçonnaient que, si la cultivation y était liée, elle n'était pas le seul critère. Le groupe des anciens détenait les plus hauts pouvoirs et les secrets les plus profonds de l'Alliance ! Ses membres étaient les véritables souverains de l'Alliance !
 
 L'estimé Xuan Bao portait du blanc et était d'une silhouette légèrement mince, ce qui lui conférait une aura céleste. Ses yeux brillaient d'une profondeur infinie ; quiconque plongerait son regard dans le sien risquait d'y être immergé et de ne plus pouvoir s'en extirper pendant longtemps.
 

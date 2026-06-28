@@ -76,9 +76,9 @@ S'il avait appelé Wang Lin « maître », c'était uniquement parce que Zhou Yi
 
 Il aurait voulu tuer Wang Lin et le transformer en momie.
 
-Sun Tai poursuivit lentement : « Tu n'as pas à me répondre immédiatement, et ce vieil homme ne te laissera pas lever le sceau gratuitement. Je t'offrirai deux marionnettes de fin de stade de la Transformation de l'Âme. Avec elles, ta sécurité future sera assurée. Je peux aussi t'offrir des méthodes de culture ; dis-moi simplement quel genre tu souhaites et je trouverai un moyen de te les procurer. De plus, je possède des pilules et des remèdes célestes. Tant que tu acceptes, nous trouverons un terrain d'entente. »
+Sun Tai poursuivit lentement : « Tu n'as pas à me répondre immédiatement, et ce vieil homme ne te laissera pas lever le sceau gratuitement. Je t'offrirai deux marionnettes de fin de stade de la Transformation de l'Âme. Avec elles, ta sécurité future sera assurée. Je peux aussi t'offrir des méthodes de cultivation ; dis-moi simplement quel genre tu souhaites et je trouverai un moyen de te les procurer. De plus, je possède des pilules et des remèdes célestes. Tant que tu acceptes, nous trouverons un terrain d'entente. »
 
-Wang Lin regarda Sun Tai et répondit calmement : « Avec votre niveau de culture, Senior n'accepterait bien sûr pas de devenir l'esclave de quiconque. Je le comprends. Cependant, sans parler du fait que j'ignore comment lever ce sceau, même si je le pouvais, je ne le ferais pas immédiatement. »
+Wang Lin regarda Sun Tai et répondit calmement : « Avec votre niveau de cultivation, Senior n'accepterait bien sûr pas de devenir l'esclave de quiconque. Je le comprends. Cependant, sans parler du fait que j'ignore comment lever ce sceau, même si je le pouvais, je ne le ferais pas immédiatement. »
 
 Sun Tai fronça les sourcils et dit froidement : « Petit garnot, penses-tu vraiment être mon maître ? »
 
@@ -122,9 +122,9 @@ Wang Lin avançait sans relâche et cria froidement : « S'il s'agissait d'une a
 
 Le visage de Sun Tai était livide. Sa voix, rauque, tonna : « Si tu ne me crois pas, essaie donc ! »
 
-Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama : « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup ? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous ? Une seule pensée suffirait à vous faire mourir ! Même si vous possédez une quatrième âme, Senior Zhou Yi l'avait déjà prévu ! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir ! »
+Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama : « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup ? Avec la cultivation de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous ? Une seule pensée suffirait à vous faire mourir ! Même si vous possédez une quatrième âme, Senior Zhou Yi l'avait déjà prévu ! Voyant que votre niveau de cultivation n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir ! »
 
-Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai ; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior ?
+Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai ; compte tenu du niveau de cultivation de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior ?
 
 Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses capacités ?
 

@@ -88,13 +88,13 @@ Le regard de la femme se posa sur Wang Lin. Après l'avoir observé un instant, 
 
 L'expression de Wang Lin demeurait aussi calme qu'une eau immobile. Dès que la femme avait parlé, il avait déjà deviné son identité. Il ne s'attendait pas à ce que, après toutes ces années, cette jeune fille soit devenue une Ancienne de la Secte Cloud Sky.
 
-Bien que la culture de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la culture de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de culture, mais ce n'était pas le cas dans la Secte Cloud Sky.
+Bien que la cultivation de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la cultivation de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de cultivation, mais ce n'était pas le cas dans la Secte Cloud Sky.
 
-Dans la cour intérieure, on mesurait la valeur d'une personne à ses compétences en alchimie, et non à sa culture.
+Dans la cour intérieure, on mesurait la valeur d'une personne à ses compétences en alchimie, et non à sa cultivation.
 
-Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de culture inférieur à celui du disciple. La Secte Cloud Sky suivait une échelle de valeurs bien différente des autres.
+Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de cultivation inférieur à celui du disciple. La Secte Cloud Sky suivait une échelle de valeurs bien différente des autres.
 
-Certes, certaines pilules exigeaient un certain niveau de culture pour être raffinées ; il fallait alors que le cultivateur augmente son niveau.
+Certes, certaines pilules exigeaient un certain niveau de cultivation pour être raffinées ; il fallait alors que le cultivateur augmente son niveau.
 
 Dans ce monde, peu de gens étaient comme Li Muwan, capables de créer des pilules de rang 5 qui nécessiteraient normalement un stade d'Âme Naissante pour être raffinées.
 
@@ -116,7 +116,7 @@ Li Muwan l'observa longuement, affichant une expression complexe, puis demanda :
 
 Wang Lin réfléchit un instant et hocha la tête.
 
-Li Muwan poussa un soupir et son humeur revint à la normale. Elle dit : « La rupture du fourneau est sans doute due au fait que votre culture a progressé trop vite, vous ne parvenez pas encore à contrôler suffisamment l'énergie spirituelle de votre corps pour guider le feu. C'est très courant. Continuez vos entraînements et cela se résoudra de lui-même. »
+Li Muwan poussa un soupir et son humeur revint à la normale. Elle dit : « La rupture du fourneau est sans doute due au fait que votre cultivation a progressé trop vite, vous ne parvenez pas encore à contrôler suffisamment l'énergie spirituelle de votre corps pour guider le feu. C'est très courant. Continuez vos entraînements et cela se résoudra de lui-même. »
 
 « Puisque vous êtes le disciple de Zhou Lin, je vais vous offrir ce fourneau. Il préviendra cent ruptures. Si, après cent tentatives, vous ne maîtrisez toujours pas le feu, cela signifiera que vous n'avez aucun talent en alchimie ; vous devrez alors renoncer et rejoindre la secte extérieure. »
 
@@ -150,7 +150,7 @@ En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement : 
 
 Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit : « Je vous remercie pour votre gentillesse, Senior Frère Sun, mais j'ai déjà trouvé un remplaçant et fabriqué la pilule. Le frère Sun n'a qu'à le garder. »
 
-L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur : « Jeune sœur, les Ancêtres sont bienveillants. Après tout, vous n'êtes pas une disciple directe de la Secte Cloud Sky. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps ; je suis sûr que vous comprenez mes sentiments. »
+L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur : « Jeune sœur, les Ancêtres sont bienveillants. Après tout, vous n'êtes pas une disciple directe de la Secte Cloud Sky. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de cultivation. Nous nous connaissons depuis longtemps ; je suis sûr que vous comprenez mes sentiments. »
 
 Un éclair de froideur traversa les yeux de Li Muwan. Elle fixa l'homme et trancha : « Ne reparlez plus jamais de cette affaire ! »
 

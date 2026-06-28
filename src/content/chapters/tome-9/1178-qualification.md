@@ -16,7 +16,7 @@ Maître Ashen Pine était un Grand Ancien de la Secte du Jade Précieux qui n'av
 
 « 50 000 cristaux d'origine ! » Le jeune en jaune fixa Maître Ashen Pine en serrant les dents.
 
-Maître Ashen Pine ricana. Il se moquait d'exposer le fait qu'il possédait une telle fortune et d'attirer l'attention des régions supérieures. Après aujourd'hui, il partirait et ne reviendrait probablement jamais à Peng Lai. Sans compter que ses chances de succès seraient bien plus grandes cette fois-ci. Une fois sa réussite accomplie, son niveau de culture augmenterait considérablement, et après cela, il n'aurait plus rien à craindre !
+Maître Ashen Pine ricana. Il se moquait d'exposer le fait qu'il possédait une telle fortune et d'attirer l'attention des régions supérieures. Après aujourd'hui, il partirait et ne reviendrait probablement jamais à Peng Lai. Sans compter que ses chances de succès seraient bien plus grandes cette fois-ci. Une fois sa réussite accomplie, son niveau de cultivation augmenterait considérablement, et après cela, il n'aurait plus rien à craindre !
 
 Les mains derrière le dos, Maître Ashen Pine déclara calmement : « 60 000 ! »
 
@@ -34,7 +34,7 @@ L'expression de Maître Ashen Pine resta neutre tandis qu'il saluait Wang Lin d'
 
 « Camarade cultivateur Lu, le dépôt se trouve également dans le sac. Un total de 80 000 cristaux d'origine. Partons-nous ? »
 
-Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Maître Ashen Pine possédait un haut niveau de culture et se révélait très rusé. C'était aussi un homme impitoyable.
+Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Maître Ashen Pine possédait un haut niveau de cultivation et se révélait très rusé. C'était aussi un homme impitoyable.
 
 Cependant, quelle que soit sa ruse, il ne pouvait rivaliser avec l'Omniscient. Wang Lin avait même osé défier l'Omniscient ; comment pourrait-il craindre un simple Maître Ashen Pine ?
 
@@ -56,7 +56,7 @@ Wang Lin fixa Li Qianmei et, après une courte réflexion, demanda calmement : �
 
 Li Qianmei cligna des yeux et murmura : « J'allais partir, mais je me suis souvenue que vous aviez dit que vous m'accompagneriez. »
 
-Wang Lin fronça les sourcils : « Je vais vous accompagner jusqu'ici... Avec votre niveau de culture, il ne devrait pas y avoir trop de danger là-bas, mais restez prudente malgré tout. »
+Wang Lin fronça les sourcils : « Je vais vous accompagner jusqu'ici... Avec votre niveau de cultivation, il ne devrait pas y avoir trop de danger là-bas, mais restez prudente malgré tout. »
 
 Li Qianmei secoua la tête : « Qui sait ? Peut-être ne nous reverrons-nous jamais après mon départ... À en juger par le ton du Maître, cette épidémie semble assez grave. »
 
@@ -90,7 +90,7 @@ La lumière atterrit dans la main de Wang Lin, se dissipant pour révéler un st
 
 Wang Lin fit un mouvement de la main et commença à tracer une rune avec le stylo. Sa main ne faiblit pas, traçant trait après trait jusqu'à ce que la rune, d'une complexité extrême, soit achevée.
 
-« Ce stylo est un trésor céleste ; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale malgré votre niveau de culture ! » Wang Lin lâcha le stylo. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
+« Ce stylo est un trésor céleste ; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale malgré votre niveau de cultivation ! » Wang Lin lâcha le stylo. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
 
 Sans plus regarder Li Qianmei, Wang Lin se détourna et s'élança vers l'horizon.
 

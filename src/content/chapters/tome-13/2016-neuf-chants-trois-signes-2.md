@@ -34,7 +34,7 @@ Au moment où son pied toucha le sol, un son supplémentaire apparut, semblable 
 
 Le clapotis de la pluie résonna à travers le monde et se mêla à la flûte des nuages. Le chant devint encore plus prodigieux, comme s'il recelait une vitalité cachée.
 
-Xuan Luo ouvrit les yeux à cet instant. Il regarda Wang Lin et prit une profonde inspiration. Avec son niveau de culture et son statut, il n'aurait normalement montré aucun trouble. Pourtant, les quatre chants que Wang Lin avait déclenchés provoquèrent une onde de choc émotionnelle en lui.
+Xuan Luo ouvrit les yeux à cet instant. Il regarda Wang Lin et prit une profonde inspiration. Avec son niveau de cultivation et son statut, il n'aurait normalement montré aucun trouble. Pourtant, les quatre chants que Wang Lin avait déclenchés provoquèrent une onde de choc émotionnelle en lui.
 
 Le regard de Xuan Luo dépassa Wang Lin pour se porter sur la tour, tandis qu'il pensait silencieusement : « Grand Empyréen Gu Dao... Vous n'avez pas approuvé son existence, mais je me demande ce que vous pensez désormais... Ou si mon disciple, celui qui possède le sang ancestral, Wang Lin, reconnaîtra votre présence ! »
 

@@ -8,19 +8,19 @@ slug: grande-calamite
 ---
 Chapitre 368 - Grande Calamité !
 
-Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Son visage était d'une extrême sévérité lorsqu'il se redressa, mais après avoir réfléchi un instant, il se rassoit.
+Quelque part dans un pays de cultivation de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Son visage était d'une extrême sévérité lorsqu'il se redressa, mais après avoir réfléchi un instant, il se rassoit.
 
 Son expression était particulièrement laide alors qu'il marmonnait pour lui-même : « Frère apprenti aîné, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin ! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi ! Si tu le ruines, je ruinerai Qian Feng ! »
 
 Il jeta la cuisse de poulet qu'il tenait et ses yeux brillèrent de rage.
 
-« Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant ! »
+« Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de cultivation... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant ! »
 
 Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un long moment, il ouvrit les yeux et soupira.
 
 « Mes blessures physiques vont bien, mais celles de mon âme sont problématiques. De plus, je ressens un sentiment de danger ici à Suzaku. Ce pressentiment est certainement fondé. »
 
-« Les blessures de Red Butterfly étaient similaires aux miennes, mais elle a réalisé une percée. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant qu'elle ne sorte de sa culture en isolation, je crains de ne pas pouvoir me défendre contre elle. »
+« Les blessures de Red Butterfly étaient similaires aux miennes, mais elle a réalisé une percée. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant qu'elle ne sorte de sa cultivation en isolation, je crains de ne pas pouvoir me défendre contre elle. »
 
 Wang Lin était plongé dans ses pensées lorsque son expression changea soudainement. La moustique cessa de voler et regarda autour d'elle avec confusion.
 
@@ -44,13 +44,13 @@ Un homme d'âge moyen se tenait devant lui, entouré de tables, de chaises et d'
 
 L'homme d'âge moyen était assis sur une chaise ; il saisit une tasse, en prit une gorgée et dit : « Jeune Ceng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Red Butterfly ! »
 
-« Transformation de l'Âme ! » Il fut capable d'identifier le niveau de culture de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
+« Transformation de l'Âme ! » Il fut capable d'identifier le niveau de cultivation de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
 
 Wang Lin savait qu'il ne pouvait rien contre un cultivateur de la Transformation de l'Âme. Sa seule chance était la fuite.
 
-Cependant, le regard de Wang Lin devint soudainement glacial. Normalement, avec son niveau de culture, il pourrait facilement déchirer l'espace, mais en cet instant, il n'y parvenait pas, même en déployant toute sa puissance.
+Cependant, le regard de Wang Lin devint soudainement glacial. Normalement, avec son niveau de cultivation, il pourrait facilement déchirer l'espace, mais en cet instant, il n'y parvenait pas, même en déployant toute sa puissance.
 
-Cela n'avait rien à voir avec la chute de son niveau de culture. Après tout, il se trouvait toujours au stade initial de la Formation de l'Âme, ce qui aurait dû lui permettre d'ouvrir une faille spatiale sans difficulté.
+Cela n'avait rien à voir avec la chute de son niveau de cultivation. Après tout, il se trouvait toujours au stade initial de la Formation de l'Âme, ce qui aurait dû lui permettre d'ouvrir une faille spatiale sans difficulté.
 
 L'homme d'âge moyen posa sa tasse et secoua la tête. « Petit gars, pour t'empêcher de t'enfuir, j'ai déployé une formation pour sceller l'espace dans cette zone. Ta boussole stellaire n'est plus qu'un tas de déchets ici. »
 
@@ -86,7 +86,7 @@ Ce dernier afficha un sourire moqueur. Il intercepta l'énergie de l'épée de s
 
 « Qu'est-ce que c'est que ça ? » L'homme fut quelque peu surpris ; sa main droite était devenue légèrement engourdie.
 
-Wang Lin soupira à nouveau. Depuis la chute de son niveau de culture, son énergie spirituelle était chaotique. Son âme originelle était également endommagée, ce qui l'empêchait de déployer la puissance qu'il avait utilisée lors de son combat contre Red Butterfly.
+Wang Lin soupira à nouveau. Depuis la chute de son niveau de cultivation, son énergie spirituelle était chaotique. Son âme originelle était également endommagée, ce qui l'empêchait de déployer la puissance qu'il avait utilisée lors de son combat contre Red Butterfly.
 
 Wang Lin serra les dents et fit volte-face pour tenter une nouvelle fuite.
 

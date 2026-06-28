@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 153 - A Show of Strength at Nan Dou
 slug: une-demonstration-de-force-a-nan-dou
 ---
-Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois sectes dirigeantes ou pour la Secte de l'Éradication du Mal, on leur témoignait toujours le respect.
+Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur cultivation. Que ce soit pour les trois sectes dirigeantes ou pour la Secte de l'Éradication du Mal, on leur témoignait toujours le respect.
 
 Si l'ordre de mise à mort n'était pas apparu, ces gens ne se seraient jamais manifestés.
 
@@ -18,9 +18,9 @@ Un vieil homme, ayant vu Wang Lin tuer si aisément un cultivateur de la Formati
 
 « Hmph, n'avez-vous pas vu les dix corps qui étaient traînés derrière ce démon ? C'étaient des Anciens de la Secte de l'Éradication du Mal. Il peut massacrer des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité vous aveugle, c'est votre problème, mais je ne m'embarquerai pas dans ce chaos. Adieu ! » L'un des cultivateurs jeta un regard chargé de terreur vers Wang Lin, puis, après avoir parlé, sortit un bateau et s'éclipsa rapidement.
 
-Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement : « Le messager de la mer intérieure va bientôt arriver. Je suis prêt à tuer cet homme pour sauver les économies de mes cent dernières années. Une fois cette pilule de culture en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
+Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement : « Le messager de la mer intérieure va bientôt arriver. Je suis prêt à tuer cet homme pour sauver les économies de mes cent dernières années. Une fois cette pilule de cultivation en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
 
-Un vieil homme couvert de rides prit une profonde inspiration et murmura : « Il en est de même pour moi. Ma vie touchera à sa fin si je ne peux pas augmenter mon niveau de culture dans les dix prochaines années... cette fois, quoi qu'il arrive, je dois tenter ma chance ! »
+Un vieil homme couvert de rides prit une profonde inspiration et murmura : « Il en est de même pour moi. Ma vie touchera à sa fin si je ne peux pas augmenter mon niveau de cultivation dans les dix prochaines années... cette fois, quoi qu'il arrive, je dois tenter ma chance ! »
 
 Sur ces mots, son corps fendit l'air comme un éclair vers la position de Wang Lin, et les autres cultivateurs suivirent.
 

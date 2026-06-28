@@ -30,7 +30,7 @@ Wang Lin avait déjà parcouru ce chemin par le passé. Aujourd'hui, en reprenan
 
 « C'est comme si rien n'avait changé... » Wang Lin avança d'un pas tranquille.
 
-En marchant, il croisa un homme et une femme vêtus de robes bleues qui discutaient. Leurs niveaux de culture n'étaient pas élevés, ils étaient seulement au stade de la Transformation de l'Âme.
+En marchant, il croisa un homme et une femme vêtus de robes bleues qui discutaient. Leurs niveaux de cultivation n'étaient pas élevés, ils étaient seulement au stade de la Transformation de l'Âme.
 
 Portés par le vent, leurs mots lui parvinrent lentement.
 
@@ -48,7 +48,7 @@ Portés par le vent, leurs mots lui parvinrent lentement.
 
 L'homme en bleu, empreint de fierté, s'apprêtait à répondre lorsqu'il leva les yeux. Ce qu'il vit le fit sursauter : Wang Lin descendait de la montagne.
 
-Remarquant l'anomalie de son frère aîné, la femme leva la tête et aperçut également Wang Lin. Avec leur niveau de culture, ils n'avaient même pas perçu la présence de Wang Lin.
+Remarquant l'anomalie de son frère aîné, la femme leva la tête et aperçut également Wang Lin. Avec leur niveau de cultivation, ils n'avaient même pas perçu la présence de Wang Lin.
 
 L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sourire à l'homme en bleu et dit : « Frère aîné Li, ne soyez pas un étranger. »
 
@@ -58,7 +58,7 @@ L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sou
 
 Wang Lin sourit. Il ne connaissait pas le nom complet de cet homme, seulement son nom de famille, Li. Ils s'étaient brièvement rencontrés une fois, et il se souvenait que ce dernier l'avait regardé avec moquerie et dédain.
 
-En observant cet homme aujourd'hui, il nota que son niveau de culture était passé du début au milieu du stade de la Transformation de l'Âme.
+En observant cet homme aujourd'hui, il nota que son niveau de cultivation était passé du début au milieu du stade de la Transformation de l'Âme.
 
 Sans accorder plus d'attention à cet homme nommé Li, Wang Lin passa devant eux et continua sa route.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 694 - Just This Once
 slug: juste-une-fois
 ---
-Le vieil homme n'osait pas ouvrir la bouche, car son énergie vitale s'était déjà échappée de son corps. Il craignait que s'il ouvrait la bouche, son essence ne se dissiperait instantanément. Dans ce cas, s'il ne mourait pas, son niveau de culture chuterait considérablement.
+Le vieil homme n'osait pas ouvrir la bouche, car son énergie vitale s'était déjà échappée de son corps. Il craignait que s'il ouvrait la bouche, son essence ne se dissiperait instantanément. Dans ce cas, s'il ne mourait pas, son niveau de cultivation chuterait considérablement.
 
 À l'heure actuelle, il comptait entièrement sur les pilules qu'il avait avalées précédemment pour tenter de stopper la perte de son énergie vitale, mais l'effet était très limité.
 
@@ -68,7 +68,7 @@ Ce n'était ni une technique de Dao, ni un sort ; il n'y avait même pas une onc
 
 C'était une aura, une aura qui n'apparaissait que lorsqu'un être atteignait le sommet d'une génération. Quiconque possède son propre Dao contient le ciel et la terre en lui ; ils peuvent emprunter la puissance des cieux pour créer une pression absolue. Sans parler des trois vieillards, même des cultivateurs Ascendants ordinaires ne pourraient y résister.
 
-Le vieillard au centre possédait le niveau de culture le plus élevé, au sommet du stade avancé de l'Âme Naissante. Il était en plein processus de compréhension des cieux et se trouvait à mi-chemin du stade de la Formation de l'Âme. L'aura de Wang Lin lui parut extrêmement profonde. C'était comme si son âme avait été directement percutée par Wang Lin, ce qui fit pâlir son visage et le força à reculer de deux pas.
+Le vieillard au centre possédait le niveau de cultivation le plus élevé, au sommet du stade avancé de l'Âme Naissante. Il était en plein processus de compréhension des cieux et se trouvait à mi-chemin du stade de la Formation de l'Âme. L'aura de Wang Lin lui parut extrêmement profonde. C'était comme si son âme avait été directement percutée par Wang Lin, ce qui fit pâlir son visage et le força à reculer de deux pas.
 
 Wang Lin passa devant lui et quitta le restaurant. Wang Ping le suivit et, au moment de franchir le seuil, il se retourna pour lancer un sourire doux à Qing Yi.
 

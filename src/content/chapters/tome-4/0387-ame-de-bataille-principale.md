@@ -8,15 +8,15 @@ slug: ame-de-bataille-principale
 ---
 Alors que Wang Lin fixait l'endroit où Liu Mei avait disparu, son regard se glaça.
 
-« Je ne parviens pas à percer le niveau de culture de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien ; sinon, elle ne serait pas devenue la disciple de Zhuque Zi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à quelques dizaines de mètres de là.
+« Je ne parviens pas à percer le niveau de cultivation de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien ; sinon, elle ne serait pas devenue la disciple de Zhuque Zi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à quelques dizaines de mètres de là.
 
 Wang Lin n'était pas un homme de bien, mais constatant que l'inconscience des deux lui avait permis de déceler la nature de Liu Mei, il ne les chassa pas.
 
-« Liu Mei n'a pas saisi cette occasion pour me tuer avant que ma culture ne se rétablisse ; son objectif n'est donc pas ma mort. Son contact avec moi semblait empreint d'émotion, mais aussi d'une certaine cruauté. C'est étrange. Elle n'a certainement aucune intention louable. » L'expression de Wang Lin était sombre.
+« Liu Mei n'a pas saisi cette occasion pour me tuer avant que ma cultivation ne se rétablisse ; son objectif n'est donc pas ma mort. Son contact avec moi semblait empreint d'émotion, mais aussi d'une certaine cruauté. C'est étrange. Elle n'a certainement aucune intention louable. » L'expression de Wang Lin était sombre.
 
 Peu après, il agita ses manches, pénétra dans sa grotte et s'assit en position du lotus.
 
-« La culture n'est plus un problème. Une fois que mon âme originelle sera rétablie, mon niveau de culture reviendra au stade intermédiaire de la Formation de l'Âme. Le plus important désormais est de restaurer mon âme originelle. »
+« La cultivation n'est plus un problème. Une fois que mon âme originelle sera rétablie, mon niveau de cultivation reviendra au stade intermédiaire de la Formation de l'Âme. Le plus important désormais est de restaurer mon âme originelle. »
 
 « Je dois trouver une pression spirituelle encore plus puissante. Ce n'est qu'ainsi que je pourrai forcer la reformation de mon âme originelle. » Wang Lin réfléchit un instant avant de disparaître.
 
@@ -42,7 +42,7 @@ L'illusion recula prestement après le rugissement pour prendre rapidement forme
 
 Wang Lin reconnut cet homme ; c'était l'Ancien principal de la Montagne de l'Affinement de l'Âme, un cultivateur du stade avancé de l'Âme Naissante qui n'avait besoin que de comprendre son domaine pour atteindre le stade de la Formation de l'Âme.
 
-« Maudit soit-il ! Ce drapeau de 100 000 âmes devient de plus en plus puissant. Quand serai-je enfin capable d'en affiner le drapeau avec ma vitesse de culture ? » Le visage du vieil homme était sombre.
+« Maudit soit-il ! Ce drapeau de 100 000 âmes devient de plus en plus puissant. Quand serai-je enfin capable d'en affiner le drapeau avec ma vitesse de cultivation ? » Le visage du vieil homme était sombre.
 
 La bête Qilin n'attaqua pas activement le vieil homme comme elle l'avait fait avec Wang Lin. Dans ses yeux assoiffés de sang, on devinait une pointe de dérision.
 
@@ -50,7 +50,7 @@ La bête Qilin n'attaqua pas activement le vieil homme comme elle l'avait fait a
 
 « *Roar !* » Le Qilin poussa un grognement et le mépris dans ses yeux s'accentua.
 
-« Hmph ! » Le vieil homme frappa son sac de rangement et un faible drapeau doré apparut. Il agita l'objet et d'innombrables âmes en sortirent. En tête se trouvait une âme du stade avancé de l'Âme Naissante servant d'âme principale. Derrière elle se trouvaient dix âmes des stades intermédiaire et initial de l'Âme Naissante, suivies d'une multitude d'autres âmes de divers niveaux de culture.
+« Hmph ! » Le vieil homme frappa son sac de rangement et un faible drapeau doré apparut. Il agita l'objet et d'innombrables âmes en sortirent. En tête se trouvait une âme du stade avancé de l'Âme Naissante servant d'âme principale. Derrière elle se trouvaient dix âmes des stades intermédiaire et initial de l'Âme Naissante, suivies d'une multitude d'autres âmes de divers niveaux de cultivation.
 
 Le vieil homme hurla : « Dix mille âmes, dévorez ! » Il pointa le drapeau vers le Qilin, et toutes les âmes poussèrent des rugissements en chargeant vers lui.
 
@@ -58,7 +58,7 @@ Le Qilin haussa ses sourcils et se déplaça comme l'éclair. Au lieu d'esquiver
 
 Ce n'était manifestement pas la première fois que le vieil homme affrontait cette bête, il ne fut donc nullement surpris. Il observa la créature dévorer les âmes ; chaque fois qu'elle en engloutissait une, elle grandissait un peu plus.
 
-Avec son niveau de culture, il n'était normalement pas de taille face à ce Qilin, mais il était spécialisé dans l'affinement des âmes. Grâce au drapeau de 10 000 âmes, il parvenait tout juste à tenir tête à la bête.
+Avec son niveau de cultivation, il n'était normalement pas de taille face à ce Qilin, mais il était spécialisé dans l'affinement des âmes. Grâce au drapeau de 10 000 âmes, il parvenait tout juste à tenir tête à la bête.
 
 Peu après, les mains du vieil homme s'activèrent avec rapidité, formant divers sceaux. Bientôt, le sang commença à perler de ses pores. Son expression devint très grave alors qu'une sphère de sang apparaissait devant lui.
 
@@ -88,7 +88,7 @@ Il ne pouvait s'empêcher de penser qu'après le troisième, viendraient un quat
 
 Mais soudain, un Sens Divin puissant descendit de toutes parts. L'expression du vieil homme changea radicalement. Il était incapable de résister à cette pression ; il n'avait ressenti cela que face à un ancêtre de la Formation de l'Âme. Cependant, comparé à cette époque, le sentiment était plusieurs fois plus intense.
 
-« Cela doit être un ancêtre de la Formation de l'Âme qui sort d'une culture en méditation fermée. » Le vieil homme tremblait et s'exclama précipitamment : « Le disciple Wu Daoqi salue l'Ancêtre... »
+« Cela doit être un ancêtre de la Formation de l'Âme qui sort d'une cultivation en méditation fermée. » Le vieil homme tremblait et s'exclama précipitamment : « Le disciple Wu Daoqi salue l'Ancêtre... »
 
 Alors que le puissant Sens Divin balayait les lieux, le troisième Qilin poussa un cri de douleur et fut capturé par un rayon de lumière noire. Il rugissait en se débattant pour s'en libérer.
 
@@ -100,7 +100,7 @@ D'un revers de la main, l'un des Qilin vola en éclats en d'innombrables fragmen
 
 Un autre reniflement froid retentit via le Sens Divin, puis un gaz noir jaillit de toutes parts. Ce gaz se condensa en une lance noire qui transperça le Qilin.
 
-Wang Lin n'avait pas pu gérer ce Qilin auparavant car sa culture n'était qu'au stade intermédiaire de l'Âme Naissante. Cependant, ayant désormais franchi cette étape pour atteindre la Formation de l'Âme, il était fondamentalement un cultivateur de la Formation de l'Âme, bien que dépourvu de domaine. Bien que plus faible qu'un expert ordinaire de ce stade, cela lui suffisait amplement pour terrasser la bête.
+Wang Lin n'avait pas pu gérer ce Qilin auparavant car sa cultivation n'était qu'au stade intermédiaire de l'Âme Naissante. Cependant, ayant désormais franchi cette étape pour atteindre la Formation de l'Âme, il était fondamentalement un cultivateur de la Formation de l'Âme, bien que dépourvu de domaine. Bien que plus faible qu'un expert ordinaire de ce stade, cela lui suffisait amplement pour terrasser la bête.
 
 Un rugissement plus puissant que tous les autres Qilin réunis jaillit du drapeau doré, accompagné d'une aura radieuse. Au son de ce cri, tous les autres Qilin se brisèrent instantanément en fragments d'âmes et furent aspirés vers l'aura dorée.
 

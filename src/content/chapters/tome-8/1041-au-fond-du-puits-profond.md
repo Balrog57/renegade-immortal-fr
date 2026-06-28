@@ -30,7 +30,7 @@ Un fantôme d'Oiseau Vermillon apparut au sein de cette mer de flammes.
 
 Wang Lin observa attentivement, et l'Oiseau Vermillon devint transparent. La mer de flammes infinie se transforma en lignes rouges que Wang Lin pouvait désormais voir clairement.
 
-« Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
+« Selon ma compréhension de la cultivation, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
 
 La force des cultivateurs du stade Purificateur du Nirvana est étroitement liée à la loi qu'ils choisissent. »
 

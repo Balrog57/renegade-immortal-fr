@@ -34,7 +34,7 @@ Une lueur de froideur traversa les yeux de Wang Lin. Plus la porte était diffic
 
 « Six essences, ouvrez la Porte du Vide ! » Wang Lin poussa un rugissement alors qu'il fondait sur la Porte du Vide tel un rayon de lumière. Puis, sa main droite percuta la Porte des Dix Mille Squelettes du Vide dans un fracas monumental.
 
-Ce coup portait en lui les espoirs de 2 000 ans de culture de Wang Lin.
+Ce coup portait en lui les espoirs de 2 000 ans de cultivation de Wang Lin.
 
 Ce coup concentrait toute sa puissance avec six essences complètes.
 
@@ -56,13 +56,13 @@ Il passa directement du stade initial au stade intermédiaire de Vide Spirituel 
 
 Tandis que la puissance de la Porte du Vide pénétrait en lui, le corps de Wang Lin subissait un raffinement constant. Son organisme franchit une sorte de limite, dépassant le sommet du deuxième niveau !
 
-Ce pas marquait son entrée dans le troisième niveau. Ce n'était pas seulement une augmentation de son aura ; sa culture avait elle aussi atteint le troisième niveau !
+Ce pas marquait son entrée dans le troisième niveau. Ce n'était pas seulement une augmentation de son aura ; sa cultivation avait elle aussi atteint le troisième niveau !
 
 Désormais, Wang Lin était un cultivateur du troisième niveau !
 
 Les craquements dans son corps, les rugissements incessants dans son esprit et la sensation d'un confort extrême étaient comme les signes d'une métamorphose. Tout son être était en pleine évolution !
 
-La première étape de la culture, de la Condensation de Qi à l'Ascendant, permettait au corps du cultivateur de renaître. Ensuite, lorsqu'ils atteignaient le stade de Scryer du Nirvana, ils pouvaient absorber l'énergie originelle !
+La première étape de la cultivation, de la Condensation de Qi à l'Ascendant, permettait au corps du cultivateur de renaître. Ensuite, lorsqu'ils atteignaient le stade de Scryer du Nirvana, ils pouvaient absorber l'énergie originelle !
 
 Le troisième niveau était la seconde renaissance d'un cultivateur. Son corps s'étendait à l'infini, ne faisant plus qu'un avec le monde lui-même.
 
@@ -74,7 +74,7 @@ Lorsque l'essence karmique s'y mêla, son niveau atteignit le stade avancé de V
 
 Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du faux fusionnèrent, le niveau de Wang Lin franchit le sommet du Vide Nirvana pour atteindre le stade initial de Vide Spirituel !
 
-La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide qui, dans un rugissement, se précipita en avant.
+La cultivation de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide qui, dans un rugissement, se précipita en avant.
 
 La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Squelettes du Vide lui avait glacé le sang.
 
@@ -118,6 +118,6 @@ Cette brume changea rapidement dans la main de Wang Lin. En un court instant, el
 
 L'Empreinte Karmique était d'une tyrannie absolue !
 
-L'essence faisait partie du karma. L'individu était la cause karmique, sa culture était le destin karmique, et le fait de former son essence pour atteindre le troisième niveau était l'effet karmique ! À cet instant, les cheveux blancs de Wang Lin flottaient dans l'air alors qu'il restait d'un calme olympien. Il ressemblait au Souverain d'autrefois !
+L'essence faisait partie du karma. L'individu était la cause karmique, sa cultivation était le destin karmique, et le fait de former son essence pour atteindre le troisième niveau était l'effet karmique ! À cet instant, les cheveux blancs de Wang Lin flottaient dans l'air alors qu'il restait d'un calme olympien. Il ressemblait au Souverain d'autrefois !
 
 Attaquer avec le Grand Dao !

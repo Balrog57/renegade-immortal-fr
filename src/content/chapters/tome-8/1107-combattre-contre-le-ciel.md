@@ -42,7 +42,7 @@ Le corps de Wang Lin s'enfonça immédiatement de plusieurs dizaines de pieds so
 
 Il agita sa main droite. Au loin, la rivière ardente enveloppa la dépouille calcinée du vieil homme et l'entraîna en arrière avec son âme originelle.
 
-L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, Mountain Crumbles l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Nirvana Cleanser.
+L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, Mountain Crumbles l'avait encore plus affaibli, faisant chuter drastiquement son niveau de cultivation. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Nirvana Cleanser.
 
 En raison de l'encerclement par la rivière ardente, l'âme originelle de l'ancien s'était affaiblie, mais lorsque la rivière revint vers Wang Lin, ses yeux s'ouvrirent brusquement. Son âme originelle se déploya avec frénésie, lui permettant d'échapper au courant, et il chargea Wang Lin !
 

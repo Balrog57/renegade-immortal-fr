@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 260 - Ancestral Spirit Token
 slug: jeton-de-lesprit-ancestral
 ---
-La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit : « Bien que le niveau de culture du senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à mon Secte Nuage Blanc ! »
+La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit : « Bien que le niveau de cultivation du senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à mon Secte Nuage Blanc ! »
 
 Le vieil homme marmonna quelques mots. Il sortit impatiemment un sac de rangement usé et sale. Après avoir fouillé longuement dans le sac, il en tira finalement un jeton de bois noir. Des traces de graisse et des feuilles de légumes s'y accrochaient encore lorsqu'il le jeta négligemment dans la main de la vieille femme.
 
@@ -74,7 +74,7 @@ Sur ce, il se détourna pour partir.
 
 Wang Lin hésita un instant. Voyant que le vieil homme s'apprêtait à s'en aller, il demanda : « Quel genre d'objet est donc ce Jeton de l'Esprit Ancestral ? »
 
-Le vieil homme se retourna vers lui avec un sourire empreint de fierté : « Ce bout de ferraille n'est rien. J'en ai plein ici. » Il sortit alors divers jetons en disant : « Celui-ci est celui du Secte de l'Évasion Céleste, celui-là celui du Secte de la Brume Spirituelle, celui-ci appartient au Clan des Démons Géants d'un pays de culture de rang 4, et celui-là à un pays de rang 5... »
+Le vieil homme se retourna vers lui avec un sourire empreint de fierté : « Ce bout de ferraille n'est rien. J'en ai plein ici. » Il sortit alors divers jetons en disant : « Celui-ci est celui du Secte de l'Évasion Céleste, celui-là celui du Secte de la Brume Spirituelle, celui-ci appartient au Clan des Démons Géants d'un pays de cultivation de rang 4, et celui-là à un pays de rang 5... »
 
 Wang Lin restait bouche bée tandis qu'il présentait chaque jeton. Le visage du vieil homme rayonnait de fierté, comme s'il manipulait ses jouets préférés. Finalement, il agita la main et sortit un jeton vierge : « En plus de ceux-là, je peux fabriquer un jeton pour n'importe quelle secte. Hehe, j'ai vendu d'innombrables jetons au fil des ans. Tu peux aller vérifier ma réputation si tu le souhaites, elle est excellente. Que dirais-tu du jeton du chef de la Secte Nuage Blanc ? »
 

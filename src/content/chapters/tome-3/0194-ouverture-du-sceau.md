@@ -28,9 +28,9 @@ Tout cela ne pouvait être décrit que par le karma.
 
 Le Magicien Démon Céleste soupira à nouveau, mais en regardant le groupe de Dou Mu, sa haine s'estompa pour laisser place à la réflexion. Son expression demeura calme, ne trahissant aucune de ses pensées. C'était un vieil homme extrêmement rusé ; même face à une telle épreuve, son visage ne vacilla point.
 
-L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer ces individus et les contrôler. Si le Magicien Démon Céleste avait pu conserver sa santé mentale, c'était principalement grâce à sa technique de culture. Outre la Méthode de Culture du Démon Céleste Mystérieux, il possédait aussi un chant mystérieux qu'il avait découvert par accident lors de son premier voyage ici.
+L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer ces individus et les contrôler. Si le Magicien Démon Céleste avait pu conserver sa santé mentale, c'était principalement grâce à sa technique de cultivation. Outre la Méthode de Cultivation du Démon Céleste Mystérieux, il possédait aussi un chant mystérieux qu'il avait découvert par accident lors de son premier voyage ici.
 
-Il n'avait transmis ce chant à personne ; même le Seigneur Démon des Six Désirs en ignorait l'existence. C'est grâce à ce chant et à ses innombrables années de culture que, lorsqu'il fut capturé par l'homme aux cheveux roux et forcé de fusionner avec un fragment d'âme, il put prendre l'initiative de le supprimer au lieu de s'y fondre.
+Il n'avait transmis ce chant à personne ; même le Seigneur Démon des Six Désirs en ignorait l'existence. C'est grâce à ce chant et à ses innombrables années de cultivation que, lorsqu'il fut capturé par l'homme aux cheveux roux et forcé de fusionner avec un fragment d'âme, il put prendre l'initiative de le supprimer au lieu de s'y fondre.
 
 Il observa le groupe de Dou Mu. Il y a plusieurs années, il avait commencé à soupçonner que, parmi les milliers de cultivateurs présents, il n'était pas le seul à avoir pu supprimer son fragment d'âme. Il soupçonnait qu'il y en avait d'autres.
 

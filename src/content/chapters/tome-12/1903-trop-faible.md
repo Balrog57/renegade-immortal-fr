@@ -22,7 +22,7 @@ La Tribulation Arcane était une calamité, mais aussi une chance inestimable.
 
 Si l'on surmontait trois étapes consécutives, son âme originelle doublait de taille. Ceux qui parvenaient à en franchir six voyaient leur âme originelle tripler. Quant à ceux qui surmontaient les neuf d'affilée, leur âme originelle augmentait de plusieurs multiples ! Quant à l'ampleur exacte de cette croissance, nul ne le savait, car seuls deux êtres avaient réussi cet exploit, et tous deux étaient devenus des Grands Empereurs par la suite.
 
-S'ils ne le divulguaient pas, personne ne le saurait. Cependant, cela révélait la dangerosité de l'épreuve. La rumeur disait que ces deux Grands Empereurs avaient été gravement blessés après avoir surmonté les neuf Tribulations Arcanes et s'étaient retirés en culture fermée pendant une très longue période.
+S'ils ne le divulguaient pas, personne ne le saurait. Cependant, cela révélait la dangerosité de l'épreuve. La rumeur disait que ces deux Grands Empereurs avaient été gravement blessés après avoir surmonté les neuf Tribulations Arcanes et s'étaient retirés en cultivation fermée pendant une très longue période.
 
 Si des cultivateurs ordinaires parvenaient à franchir six Tribulations Arcanes consécutives, ils deviendraient extrêmement puissants au début du stade de la Tribulation du Vide. Sans même compter leurs trésors, ils pourraient combattre des experts du milieu du stade de la Tribulation du Vide sans subir de défaite !
 
@@ -44,7 +44,7 @@ Sa chevelure blanche flottait comme s'il allait s'envoler avec le vent. Il resta
 
 « Tribulation Arcane, comment vas-tu surgir ? J'ai hâte de te voir... » Les yeux de Wang Lin brillèrent. Il avait la confiance nécessaire pour affronter n'importe quelle Tribulation Arcane !
 
-Sa culture s'accéléra de plus en plus jusqu'à ce que son corps dégage l'aura de son apogée du Vide Arcane. Cette aura se concentra dans son corps avant d'éclater comme une tempête et de jaillir vers le ciel. Elle semblait fusionner avec les cieux, formant un orage terrifiant !
+Sa cultivation s'accéléra de plus en plus jusqu'à ce que son corps dégage l'aura de son apogée du Vide Arcane. Cette aura se concentra dans son corps avant d'éclater comme une tempête et de jaillir vers le ciel. Elle semblait fusionner avec les cieux, formant un orage terrifiant !
 
 Dès l'apparition de la tempête, une pression invisible se forma et se propagea autour de Wang Lin, prenant le centre du phénomène. Elle couvrit instantanément des centaines de kilomètres et continua sa progression.
 
@@ -58,9 +58,9 @@ Les expressions de ces cultivateurs changèrent l'une après l'autre. Ils n'eure
 
 « Une Tribulation Arcane ?!! Mais... comment la pression d'une telle épreuve a-t-elle pu apparaître ici ?! »
 
-« Se pourrait-il que le niveau de culture du Seigneur Démon Vert ait chuté après sa résurrection, et qu'il doive maintenant traverser des Tribulations Arcanes pour récupérer ? »
+« Se pourrait-il que le niveau de cultivation du Seigneur Démon Vert ait chuté après sa résurrection, et qu'il doive maintenant traverser des Tribulations Arcanes pour récupérer ? »
 
-« Le Seigneur Démon Vert avait été personnellement réprimé par l'Ancêtre Céleste, ce qui signifie que son niveau était extrêmement élevé. Cependant, il a été contenu trop longtemps, et peut-être que sa culture a réellement beaucoup décliné... »
+« Le Seigneur Démon Vert avait été personnellement réprimé par l'Ancêtre Céleste, ce qui signifie que son niveau était extrêmement élevé. Cependant, il a été contenu trop longtemps, et peut-être que sa cultivation a réellement beaucoup décliné... »
 
 La douzaine de cultivateurs du Continent du Démon Vert avaient chacun leurs propres pensées tout en reculant devant la pression. Ils regardèrent vers le temple, mais leur Sens Divin ne pouvait pénétrer profondément dans cette zone de pression ; ils ne pouvaient donc pas voir ce qui s'y passait.
 

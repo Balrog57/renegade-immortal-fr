@@ -72,7 +72,7 @@ Le troisième objet était une pilule. Entièrement noire, elle ne dégageait au
 
 « Senior Dao Ye vous a guidé ? » La belle jeune femme en robe fleurie agita la main et l'épée de cristal sanguin vola vers elle. Après un examen attentif, elle relâcha l'arme qui retourna flotter dans les airs.
 
-« Le deuxième objet contient un ensemble de sorts, mais il est brisé, ce qui rend toute culture impossible. Quel dommage. Quant au troisième objet, tout dépendra de votre perspicacité, chers cultivateurs. Si vous souhaitez l'acquérir, vous devrez respecter ma règle : je n'accepte que les jades célestes. » Le vieil homme sourit en contemplant l'assemblée.
+« Le deuxième objet contient un ensemble de sorts, mais il est brisé, ce qui rend toute cultivation impossible. Quel dommage. Quant au troisième objet, tout dépendra de votre perspicacité, chers cultivateurs. Si vous souhaitez l'acquérir, vous devrez respecter ma règle : je n'accepte que les jades célestes. » Le vieil homme sourit en contemplant l'assemblée.
 
 Hormis Wang Lin et la vieille femme en vert qui restaient immobiles, les quatre autres examinèrent les trésors un à un. La belle femme acheta l'épée de cristal, mais personne ne connut le prix exact.
 

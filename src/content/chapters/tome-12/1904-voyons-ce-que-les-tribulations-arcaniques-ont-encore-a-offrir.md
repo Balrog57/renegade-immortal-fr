@@ -50,7 +50,7 @@ Pourtant, il était extrêmement rare que quelqu'un réussisse avec une telle ai
 
 « Ce doit être le Seigneur Démon Vert ! Autrement, nul ne pourrait accomplir cela ! »
 
-« Avec le niveau de culture du Seigneur Démon Vert, il a déjà affronté des Tribulations Arcaniques. C'est pourquoi il peut rester si serein face à elles aujourd'hui ! »
+« Avec le niveau de cultivation du Seigneur Démon Vert, il a déjà affronté des Tribulations Arcaniques. C'est pourquoi il peut rester si serein face à elles aujourd'hui ! »
 
 Les cultivateurs du Continent du Démon Vert manifestèrent leur respect. Ils scrutèrent la zone soumise à la pression de la tribulation, attendant que le Seigneur Démon Vert en sorte.
 

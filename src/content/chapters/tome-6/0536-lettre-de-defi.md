@@ -38,7 +38,7 @@ La froideur dans le regard de Wang Lin s'intensifia et l'énergie spirituelle c�
 
 Une fois la ligne disparue, les traits de Treize retrouvèrent lentement leur couleur. Bien qu'il fût encore extrêmement faible, sa vie n'était plus en danger immédiat. Cependant, le visage de Wang Lin s'assombrit davantage : il comprit instantanément que Treize avait été brisé !
 
-Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la culture du sort de raffinage de l'âme s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
+Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la cultivation du sort de raffinage de l'âme s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
 
 L'ennemi avait agi avec une cruauté extrême sans pour autant tuer Treize. En laissant le lion le ramener, il prouvait qu'il avait manifestement d'autres desseins.
 
@@ -68,7 +68,7 @@ Désormais, la signification changeait : c'était une provocation, ou pour mieux
 
 Puisque cette personne avait envoyé un tel message, Wang Lin voulait voir quel genre d'individu osait le défier au sein de cette tribu !
 
-Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
+Wang Lin était doté d'une grande intelligence. Si le niveau de cultivation de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
 
 Fort de cette pensée, il laissa échapper un renflement glacial et s'élança comme une météorite traversant le ciel.
 

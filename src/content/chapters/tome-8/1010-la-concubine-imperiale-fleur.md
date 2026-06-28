@@ -90,7 +90,7 @@ Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaça
 
 La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement : « À son retour, il était déjà blessé. Il fut ensuite attaqué par deux insignifiants étrangers. Une fois revenu, il activa la grotte céleste pour se soigner. »
 
-« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
+« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en cultivation de porte close... »
 
 « Vous possédez le sortilège Stop, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront dans votre esprit. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 
@@ -144,6 +144,6 @@ D'une pensée, Maître Vent Creux, les trois frères Chen, Grand Tête et Lei Ji
 
 Le corps de Situ Nan disparut sous le balayage du Sens Divin de Wang Lin. Lorsqu'il réapparut, il se trouvait aux côtés de la grande formation.
 
-« La grotte est totalement ouverte. Lei Ji, ta culture est insuffisante, alors attends ici que nous revenions ! » Alors que la voix de Wang Lin résonnait, la formation au sol commença à scintiller.
+« La grotte est totalement ouverte. Lei Ji, ta cultivation est insuffisante, alors attends ici que nous revenions ! » Alors que la voix de Wang Lin résonnait, la formation au sol commença à scintiller.
 
 Au même moment, un changement prodigieux se produisit dans la Terre des Esprits Démoniaques !

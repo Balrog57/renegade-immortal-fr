@@ -52,7 +52,7 @@ Car Wang Lin n'avait pas seulement converti l'énergie spirituelle céleste de s
 
 Ce qui résidait dans la lumière noire au bout de son doigt n'était pas seulement de l'énergie spirituelle démoniaque, mais aussi son Dao ! Peu importait qu'il s'agisse du Dao céleste ou du Dao démoniaque ; cela contenait cette nature de défi envers les cieux qui habitait le cœur de Wang Lin !
 
-Cette lumière noire portait également un attachement profond : la volonté de Wang Lin de préserver ses sentiments pour Li Muwan, et son courage de braver les cieux. Elle renfermait aussi la détermination et l'inflexibilité de l'homme qu'il fut, ce mortel ayant traversé d'innombrables catastrophes et dangers pour tracer son propre chemin de culture !
+Cette lumière noire portait également un attachement profond : la volonté de Wang Lin de préserver ses sentiments pour Li Muwan, et son courage de braver les cieux. Elle renfermait aussi la détermination et l'inflexibilité de l'homme qu'il fut, ce mortel ayant traversé d'innombrables catastrophes et dangers pour tracer son propre chemin de cultivation !
 
 Ce doigt fit vibrer les cœurs de tous les témoins !
 
@@ -122,7 +122,7 @@ Sous la puissance des cieux, l'onde de choc n'avait même pas la moindre capacit
 
 Wang Lin sentit son corps devenir pesant, comme si des millions de livres s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même !
 
-C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte de l'Affinement de l'Âme. À l'époque, sa culture avait été gaspillée et il était redevenu un simple mortel.
+C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte de l'Affinement de l'Âme. À l'époque, sa cultivation avait été gaspillée et il était redevenu un simple mortel.
 
 Peu après, la Puissance des Cieux bougea à nouveau, et tous les nuages rouges descendirent encore ! Cette fois, la pression s'intensifia davantage et tous les palais entourant la place s'effondrèrent en mille morceaux !
 

@@ -14,7 +14,7 @@ Les yeux de Yunque Zi s'illuminèrent. D'un revers de main, il fit disparaître 
 
 Wang Lin ne se souciait guère de la manière dont Yunque Zi avait pu pénétrer dans ce lieu. Après tout, le Clan des Immortels Délaissés existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
 
-Wang Lin avait déjà renoncé à obtenir le Cristal de Culture Planétaire ; il ne voulait que récupérer son fragment d'âme.
+Wang Lin avait déjà renoncé à obtenir le Cristal de Cultivation Planétaire ; il ne voulait que récupérer son fragment d'âme.
 
 Après tout, ce cristal était lié à toutes les créatures vivantes de la planète Suzaku. Wang Lin n'en était pas encore au point d'être prêt à sacrifier la vie du monde entier par pur égoïsme.
 
@@ -72,7 +72,7 @@ Avant que le Royaume Céleste ne soit brisé, les cultivateurs de la Transformat
 
 Ces sens étaient très étranges ; seuls les puissants cultivateurs pouvaient les percevoir.
 
-Si le niveau de culture était assez élevé, une simple pensée permettait de percevoir vaguement les événements futurs. Le mystère de ces techniques était indescriptible.
+Si le niveau de cultivation était assez élevé, une simple pensée permettait de percevoir vaguement les événements futurs. Le mystère de ces techniques était indescriptible.
 
 À cet instant, Wang Lin ressentait cela. Il savait qu'il ne se trompait pas. Ce sourire sinistre lui était terriblement familier.
 
@@ -108,7 +108,7 @@ Cependant, comparé à toute vie sur Suzaku, un ancien dieu à cinq étoiles ét
 
 Le plus grand souhait de Tuo Sen était d'obtenir l'héritage de la connaissance. Après cela, il n'aurait plus qu'à prendre le temps de tout assimiler et d'affiner son corps pour devenir un véritable ancien dieu à huit étoiles.
 
-À ce moment-là, même les vieux monstres de l'Alliance de Culture le craindraient.
+À ce moment-là, même les vieux monstres de l'Alliance de Cultivation le craindraient.
 
 Si Wang Lin n'avait pas agi ainsi dans la Terre de l'Ancien Dieu ce jour-là, Tuo Sen aurait pu s'échapper.
 
@@ -122,15 +122,15 @@ Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lum
 
 Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démoniaque des Six Désirs, à Hunchback Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
 
-Il y avait aussi ces anciens cultivateurs, nés avant l'arrivée de quiconque sur la planète Suzaku. Leurs niveaux de culture étaient également très élevés.
+Il y avait aussi ces anciens cultivateurs, nés avant l'arrivée de quiconque sur la planète Suzaku. Leurs niveaux de cultivation étaient également très élevés.
 
-Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas dépassé le stade Ascendant. Cela devait être dû à une restriction imposée par la Terre de l'Ancien Dieu, empêchant leur niveau de culture de progresser au fil des années.
+Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas dépassé le stade Ascendant. Cela devait être dû à une restriction imposée par la Terre de l'Ancien Dieu, empêchant leur niveau de cultivation de progresser au fil des années.
 
 Toutefois, ils détenaient des techniques inconnues des générations futures. Une fois utilisées, leur puissance augmenterait de façon fulgurante.
 
-« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci ; il serait venu me chercher personnellement. Pourtant, pourquoi n'est-il pas venu ici au lieu de me traquer ? Serait-il lui aussi en quête du Cristal de Culture Planétaire ? » Le cœur de Wang Lin trembla.
+« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci ; il serait venu me chercher personnellement. Pourtant, pourquoi n'est-il pas venu ici au lieu de me traquer ? Serait-il lui aussi en quête du Cristal de Cultivation Planétaire ? » Le cœur de Wang Lin trembla.
 
-« Se pourrait-il que le Cristal de Culture Planétaire puisse libérer Tuo Sen de toutes les entraves de la Terre de l'Ancien Dieu ? » Les yeux de Wang Lin s'illuminèrent.
+« Se pourrait-il que le Cristal de Cultivation Planétaire puisse libérer Tuo Sen de toutes les entraves de la Terre de l'Ancien Dieu ? » Les yeux de Wang Lin s'illuminèrent.
 
 À cet instant, la montagne spirituelle se remit à trembler et une série de rugissements tonitruants résonna dans le ciel. L'effondrement se produisit pour la troisième fois.
 

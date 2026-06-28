@@ -12,15 +12,15 @@ Par la suite, il sortit le mystérieux joyau et commença à réfléchir. Il y a
 
 À ce sujet, Situ Nan avait déclaré que le Joyau Défiant le Ciel contenait suffisamment d'élément eau et qu'il avait désormais besoin de l'élément bois. Pour cette raison, il avait exhorté Wang Lin à plusieurs reprises à quitter la Secte Heng Yue pour se procurer des matériaux dotés de l'élément bois afin de remplir rapidement le joyau.
 
-Wang Lin avait pris conscience de sa puissance actuelle. Il se trouvait au 14ème niveau de Condensation de Qi. Cependant, il était curieux de savoir pourquoi il n'avait besoin d'aucun chant pour progresser ainsi par la culture. Il soupçonnait que cela avait un lien avec Situ Nan.
+Wang Lin avait pris conscience de sa puissance actuelle. Il se trouvait au 14ème niveau de Condensation de Qi. Cependant, il était curieux de savoir pourquoi il n'avait besoin d'aucun chant pour progresser ainsi par la cultivation. Il soupçonnait que cela avait un lien avec Situ Nan.
 
 Tout en tenant le joyau, il entra dans l'espace de rêve. Au moment où il s'apprêtait à y pénétrer, il rangea rapidement l'objet.
 
-Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement : « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt ? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé cette centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
+Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement : « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt ? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé cette centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la cultivation est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
 
 Wang Lin réfléchit longuement. « Aîné, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations ? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
 
-Situ Nan renifla et dit : « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la culture, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle ; tu ferais mieux de préparer un peu de rosée spirituelle. »
+Situ Nan renifla et dit : « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la cultivation, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle ; tu ferais mieux de préparer un peu de rosée spirituelle. »
 
 Wang Lin hocha la tête et dit : « La rosée est facile à obtenir. Cela demande simplement beaucoup de temps. »
 
@@ -30,7 +30,7 @@ Situ Nan soupira et dit : « Le stade du Mouvement Spirituel, qui correspond ég
 
 Wang Lin fut stupéfait : « La Méthode d'Ascension Souterraine ? »
 
-Situ Nan dit fièrement : « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la culture sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension Souterraine. »
+Situ Nan dit fièrement : « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la cultivation sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension Souterraine. »
 
 Wang Lin réfléchit un instant et hocha la tête.
 

@@ -32,7 +32,7 @@ Le vieux bossu roula des yeux et répliqua : « Les autres craignent peut-être 
 
 Le Seigneur Démon des Six Désirs fixa froidement le bossu. Rapidement, l'énergie spirituelle entre eux commença à s'emballer, mais les fluctuations se calmèrent dès que les deux retraitèrent leurs énergies respectives.
 
-À ce moment précis, l'Empereur Antique, qui observait la scène avec froideur sur le côté, déclara soudain : « On dirait que tout le monde est là. J'ai dérobé le Bouclier du Vent Glacial dans un pays de culture de rang 4. Cela devrait nous aider à achever plus de la moitié du premier essai. »
+À ce moment précis, l'Empereur Antique, qui observait la scène avec froideur sur le côté, déclara soudain : « On dirait que tout le monde est là. J'ai dérobé le Bouclier du Vent Glacial dans un pays de cultivation de rang 4. Cela devrait nous aider à achever plus de la moitié du premier essai. »
 
 Le Seigneur Démon des Six Désirs répondit froidement : « Je m'occuperai de la seconde moitié du premier essai. »
 
@@ -76,7 +76,7 @@ Désormais, les dix piliers contenaient chacun une pierre de qualité supérieur
 
 Ces dix pierres brillaient comme dix soleils éclatants. Elles descendirent lentement vers la matrice de transfert, la faisant tourner avec lenteur.
 
-Le Seigneur Démon des Six Désirs afficha une expression d'excitation et s'écria : « Il y a mille ans, plus de cent d'entre nous étaient entrés, mais nous n'avons même pas atteint la zone intérieure ! Les restrictions extérieures nous ont fait lutter et nous avons été contraints de battre en retraite au troisième essai ; seuls quatre d'entre nous ont survécu par chance. Mille ans plus tard, nos niveaux de culture ont considérablement augmenté. Nous devons briser ces restrictions et voir ce qui s'y cache ! »
+Le Seigneur Démon des Six Désirs afficha une expression d'excitation et s'écria : « Il y a mille ans, plus de cent d'entre nous étaient entrés, mais nous n'avons même pas atteint la zone intérieure ! Les restrictions extérieures nous ont fait lutter et nous avons été contraints de battre en retraite au troisième essai ; seuls quatre d'entre nous ont survécu par chance. Mille ans plus tard, nos niveaux de cultivation ont considérablement augmenté. Nous devons briser ces restrictions et voir ce qui s'y cache ! »
 
 Même l'Empereur Antique ne put s'empêcher de laisser ses yeux briller alors qu'il pénétrait dans la matrice.
 
@@ -108,7 +108,7 @@ Le Seigneur Démon des Six Désirs regarda Wang Qingyue et Wang Lin avant de dir
 
 « Quant aux trésors magiques, comme aucun d'eux ne peut tenir dans un sac de rangement, ils sont tous conservés à l'intérieur de son corps. Si vous avez de la chance, vous pourrez en trouver un. »
 
-« Il y a aussi des pilules. La culture des Dieux Anciens nécessitait des pilules dont la valeur dépasse tout ce que nous pouvons imaginer. Cependant, ils n'absorbent pas 100 % de leur consommation ; certains restes sont donc stockés dans leurs corps. Notre objectif est la Pilule de Transformation de l'Âme, que l'on pourra trouver dans les veines du Dieu Ancien. »
+« Il y a aussi des pilules. La cultivation des Dieux Anciens nécessitait des pilules dont la valeur dépasse tout ce que nous pouvons imaginer. Cependant, ils n'absorbent pas 100 % de leur consommation ; certains restes sont donc stockés dans leurs corps. Notre objectif est la Pilule de Transformation de l'Âme, que l'on pourra trouver dans les veines du Dieu Ancien. »
 
 Les yeux de Wang Qingyue s'illuminèrent alors qu'il contemplait l'anneau ovale en réfléchissant.
 
@@ -120,7 +120,7 @@ Duanmu Ji laissa échapper un rire sournois : « Il est bien trop tôt pour en p
 
 Le regard du bossu Meng se posa sur le jeune homme accompagnant le Seigneur Démon des Six Désirs. Il demanda : « Je me demande ce que ce jeune ami fera pour nous aider à franchir cette barrière ? »
 
-Le Seigneur Démon des Six Désirs fixa Wang Lin et dit froidement : « Il en va de même pour lui ; cet homme sera utile lors du troisième essai. C'est un cultivateur du pays de culture de rang 3, Tian Zhu. Il excelle dans les techniques spectrales qui pourraient s'avérer utiles contre les créatures du troisième essai. Il m'a fallu plusieurs années pour le trouver. »
+Le Seigneur Démon des Six Désirs fixa Wang Lin et dit froidement : « Il en va de même pour lui ; cet homme sera utile lors du troisième essai. C'est un cultivateur du pays de cultivation de rang 3, Tian Zhu. Il excelle dans les techniques spectrales qui pourraient s'avérer utiles contre les créatures du troisième essai. Il m'a fallu plusieurs années pour le trouver. »
 
 « Ainsi donc, héhé... le troisième essai. À l'époque, nous avions été stoppés par lui. J'espère que nous réussirons à le franchir cette fois ! » Le bossu Meng esquissa un sourire étrange en alternant son regard entre Wang Lin et le jeune homme.
 

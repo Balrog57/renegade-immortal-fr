@@ -72,7 +72,7 @@ Il traquait le Souverain Sanguin tandis que le Souverain Sanguin le traquait lui
 
 Le Souverain Sanguin, vêtu d'une robe rouge, traversait le vide. Chaque pas équivalait à une téléportation, et il parcourait les chaînes à une vitesse fulgurante.
 
-Son expression était calme, comme s'il n'était nullement en colère. Pourtant, ses yeux devenaient plus rouges de jour en jour. Avec sa culture, même si les cieux s'effondraient, son humeur resterait imperturbable, mais sa fille unique, Yao Xixue, était sa seule faiblesse !
+Son expression était calme, comme s'il n'était nullement en colère. Pourtant, ses yeux devenaient plus rouges de jour en jour. Avec sa cultivation, même si les cieux s'effondraient, son humeur resterait imperturbable, mais sa fille unique, Yao Xixue, était sa seule faiblesse !
 
 Il était prêt à défier les cieux et à massacrer tout ce qui se dressait sur son chemin pour elle. S'il devait choisir entre sa fille et l'atteinte de la troisième étape, il pourrait hésiter et lutter intérieurement, mais au final, il choisirait sa fille.
 
@@ -94,9 +94,9 @@ Juste avant que le Souverain Sanguin ne pose le pied sur le fragment, Wang Lin s
 
 Même le fragment se mit à trembler.
 
-Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de culture. Même les cultivateurs Illusoire Yin et Corporel Yang n'y échappèrent pas...
+Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de cultivation. Même les cultivateurs Illusoire Yin et Corporel Yang n'y échappèrent pas...
 
-La disparité des niveaux de culture rendait toute résistance impossible ; c'était comme si la puissance même des cieux descendait sur eux.
+La disparité des niveaux de cultivation rendait toute résistance impossible ; c'était comme si la puissance même des cieux descendait sur eux.
 
 Wang Lin réagit aussitôt, ses yeux brillant intensément alors qu'il fixait l'horizon. Il afficha un sourire glacial.
 

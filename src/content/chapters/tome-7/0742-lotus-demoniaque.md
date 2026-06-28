@@ -34,7 +34,7 @@ Après l'avoir observé un instant, Wang Lin fit un geste de la main et les frag
 
 Après la mort de Xu Fenghan, son corps s'était dissipé. Le sens divin de Wang Lin s'était étendu et il avait constaté qu'aucun sac de rangement n'avait été laissé derrière lui. C'était un phénomène très étrange.
 
-« Le niveau de culture de cet homme était très élevé. Même s'il n'avait pas préparé de trésors magiques pour ce voyage dans le Royaume Céleste du Tonnerre, il aurait dû prévoir des pilules. De plus, s'il avait obtenu des gains, il ne pouvait pas simplement les tenir dans sa main... » Wang Lin fronça les sourcils, totalement déconcerté.
+« Le niveau de cultivation de cet homme était très élevé. Même s'il n'avait pas préparé de trésors magiques pour ce voyage dans le Royaume Céleste du Tonnerre, il aurait dû prévoir des pilules. De plus, s'il avait obtenu des gains, il ne pouvait pas simplement les tenir dans sa main... » Wang Lin fronça les sourcils, totalement déconcerté.
 
 « Il doit y avoir une raison que j'ignore, ou alors il existe une méthode de stockage inconnue des profanes ! » Les yeux de Wang Lin s'illuminèrent et il pensa au lotus démoniaque qui se trouvait dans la rivière des enfers !
 
@@ -58,7 +58,7 @@ L'âme originelle de Wang Lin jaillit pour le poursuivre, dégageant des éclair
 
 « Je ne peux pas raffiner un démon dispersé, mais un si petit démon n'a aucune chance ! » Les yeux de Wang Lin restèrent calmes alors que les hurlements de la créature étaient noyés par le tonnerre. Le cri s'affaiblit progressivement jusqu'à disparaître totalement, le démon ayant été dévoré par son âme originelle.
 
-Les cultivateurs ordinaires ne possédaient pas de telles capacités de dévoration. Normalement, cela relevait de méthodes de culture démoniaques. Quant à Wang Lin, c'était parce qu'il était un dévoreur d'âmes.
+Les cultivateurs ordinaires ne possédaient pas de telles capacités de dévoration. Normalement, cela relevait de méthodes de cultivation démoniaques. Quant à Wang Lin, c'était parce qu'il était un dévoreur d'âmes.
 
 Après avoir absorbé le démon, les yeux de Wang Lin projetèrent une lueur sombre, comme imprégnés d'une trace d'énergie démoniaque. Cependant, des éclairs de tonnerre traversèrent rapidement son regard, dissipant toute impureté, et Wang Lin retrouva son aspect normal.
 
@@ -84,7 +84,7 @@ En brisant la cire, une odeur d'énergie spirituelle céleste s'en échappa, pro
 
 Après l'avoir contemplée un long moment, Wang Lin rangea la pilule et brisa la seconde perle. Un éclat de lumière jaillit et un talisman apparut. Ce dernier semblait d'une banalité absolue. Une rune simple y était tracée au cinabre.
 
-« Qu'est-ce que c'est... » Wang Lin fut surpris et prit le talisman pour l'examiner de plus près. Il ressemblait aux talismans qu'il avait vus au début de sa culture, ceux utilisés par les cultivateurs de bas niveau.
+« Qu'est-ce que c'est... » Wang Lin fut surpris et prit le talisman pour l'examiner de plus près. Il ressemblait aux talismans qu'il avait vus au début de sa cultivation, ceux utilisés par les cultivateurs de bas niveau.
 
 « Si Xu Fenghan l'a stocké dans son Dao, il ne peut pas être ordinaire ! » Les yeux de Wang Lin se plissèrent, mais après une longue inspection, il ne trouva aucun indice.
 
@@ -100,7 +100,7 @@ L'homme portait des robes bleu foncé et ses longs cheveux étaient attachés pa
 
 En volant, ils aperçurent Wang Lin et ne purent s'empêcher de s'interrompre. Ils déployèrent prudemment leur sens divin et furent légèrement rassurés de constater que Wang Lin n'était qu'au sommet du stade tardif de l'Ascendant. Les deux se regardèrent et, sans un mot, s'éloignèrent à toute vitesse.
 
-Tandis qu'ils sondaient la culture de Wang Lin, celui-ci perçait également la leur. Tous deux étaient au sommet du stade tardif de l'Ascendant et n'avaient pas encore franchi le palier suivant. Ils ne possédaient que peu d'énergie originelle dans leurs âmes originelles, contrairement à lui, qui avait déjà atteint un point de saturation.
+Tandis qu'ils sondaient la cultivation de Wang Lin, celui-ci perçait également la leur. Tous deux étaient au sommet du stade tardif de l'Ascendant et n'avaient pas encore franchi le palier suivant. Ils ne possédaient que peu d'énergie originelle dans leurs âmes originelles, contrairement à lui, qui avait déjà atteint un point de saturation.
 
 Ne voulant aucun conflit, ils partirent rapidement. Wang Lin leur jeta un seul regard avant de détourner les yeux pour continuer son observation du sol.
 

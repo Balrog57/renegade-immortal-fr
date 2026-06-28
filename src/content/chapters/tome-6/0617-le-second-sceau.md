@@ -14,11 +14,11 @@ Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa : 
 
 Wang Lin ferma les yeux tandis que son âme originelle continuait de graver son empreinte sur le démon dispersé. Il approfondit cette empreinte dans l'âme du démon, consolidant ainsi son contrôle.
 
-Par ailleurs, à mesure que la Tribu de Raffinement des Âmes s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de Raffinement des Âmes entraînait la creuse de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
+Par ailleurs, à mesure que la Tribu de Raffinement des Âmes s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de Raffinement des Âmes entraînait la creuse de vastes excavations. La cultivation au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
 
 Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays des Démons de Feu pour absorber les âmes de tous les soldats démons décédés.
 
-Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
+Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur cultivation étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
 
 La Tribu de Raffinement des Âmes progressait à une vitesse fulgurante ! Une telle croissance était rare. La tribu était comme un cocon absorbant ses nutriments ; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays !
 
@@ -42,9 +42,9 @@ Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieill
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature !
 
-Le piège à bêtes lui avait été confié par un ancien cultivateur sous les ordres de Tu Si, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé !
+Le piège à bêtes lui avait été confié par un ancien cultivateur sous les ordres de Tu Si, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de cultivation n'était pas assez élevé !
 
-Mais maintenant que le niveau de culture de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête !
+Mais maintenant que le niveau de cultivation de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête !
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement, faisant jaillir le piège à bêtes devant lui. Le bracelet était couvert d'innombrables symboles anciens et de gravures de créatures antiques. On y voyait aussi quelques fissures subtiles laissées par la première contre-attaque de la bête.
 
@@ -96,10 +96,10 @@ Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagne
 
 Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement : « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays des Démons Célestes il y a vingt ans ! »
 
-Un silence pesant régna dans le château avant qu'une voix sinistre ne s'en échappe : « Quel est son niveau de culture actuel ? »
+Un silence pesant régna dans le château avant qu'une voix sinistre ne s'en échappe : « Quel est son niveau de cultivation actuel ? »
 
 L'ombre noire hésita un instant : « Cela... ce subordonné n'a pu l'apprendre, car l'équipe envoyée pour capturer cet individu a été massacrée, et aucune nouvelle n'est revenue. Cependant, je sais que cette personne a été nommée messager de l'Ancien Démon. »
 
 « Messager de l'Ancien Démon... Haha ! Quelqu'un qui a attiré l'attention de ce vieil homme n'est certes pas ordinaire. Déployez trois unités... et envoyez également une garde céleste. Capturez cet homme vivant ! »
 
-L'ombre noire accepta l'ordre avec empressement et disparut. À l'intérieur du château, un petit vieil homme marmonna : « Si ce Wang Lin est correctement formé, il pourrait devenir une autre garde céleste pour moi ! Peu importe la hauteur de sa culture, tant qu'il n'a pas atteint le stade Ascendant, une garde céleste pourra le capturer sans aucun problème ! »
+L'ombre noire accepta l'ordre avec empressement et disparut. À l'intérieur du château, un petit vieil homme marmonna : « Si ce Wang Lin est correctement formé, il pourrait devenir une autre garde céleste pour moi ! Peu importe la hauteur de sa cultivation, tant qu'il n'a pas atteint le stade Ascendant, une garde céleste pourra le capturer sans aucun problème ! »

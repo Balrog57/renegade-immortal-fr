@@ -22,11 +22,11 @@ Même en utilisant son Sens Divin, on ne pouvait la trouver en raison de la stru
 
 Cependant, cela ne concernait pas Wang Lin !
 
-À cet instant, dans l'immensité de la partie orientale d'Allheaven, une planète de culture imposante flottait lentement. Des cratères étaient parsemés sur toute sa surface. La planète émettait une lueur jaune sombre et dégageait une pression écrasante.
+À cet instant, dans l'immensité de la partie orientale d'Allheaven, une planète de cultivation imposante flottait lentement. Des cratères étaient parsemés sur toute sa surface. La planète émettait une lueur jaune sombre et dégageait une pression écrasante.
 
 La planète Dong Ling !
 
-Elle n'était pas isolée ; des dizaines de plus petites planètes de culture gravitaient autour d'elle, suivant son mouvement.
+Elle n'était pas isolée ; des dizaines de plus petites planètes de cultivation gravitaient autour d'elle, suivant son mouvement.
 
 Des éclairs de lumière de formation reliaient ces astres mineurs à la planète Dong Ling. De loin, l'ensemble ressemblait à un filet gigantesque !
 
@@ -66,7 +66,7 @@ La famille Xiang était la plus puissante du système stellaire d'Allheaven ! El
 
 La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébranlerait tout le système stellaire d'Allheaven !
 
-C'est pour cette raison que Xiang Yundong, représentant de la famille Xiang, avait été choisi parmi les quatre disciples ayant appris un sortilège du Dao auprès de Maître Lu Fu, malgré sa culture manifestement insuffisante !
+C'est pour cette raison que Xiang Yundong, représentant de la famille Xiang, avait été choisi parmi les quatre disciples ayant appris un sortilège du Dao auprès de Maître Lu Fu, malgré sa cultivation manifestement insuffisante !
 
 Le choix des quatre personnes par Maître Lu Fu cachait une signification profonde, qu'il s'agisse du Dieu de Sang, de Li Yunzi ou de Maître Flamespark !
 
@@ -76,7 +76,7 @@ Elle affirmait que la famille la plus mystérieuse, détentrice d'un héritage d
 
 La famille Xiang n'existait que pour monter la garde devant les portes de cette famille mystérieuse !
 
-Cette famille de culture antique existait depuis bien avant l'effondrement du Royaume Céleste. La puissance qu'elle avait accumulée était inimaginable !
+Cette famille de cultivation antique existait depuis bien avant l'effondrement du Royaume Céleste. La puissance qu'elle avait accumulée était inimaginable !
 
 Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Allheaven lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
@@ -94,7 +94,7 @@ Tout le secteur oriental était imprégné d'une aura de mort monstrueuse. Cette
 
 D'innombrables âmes tourmentées poussaient des cris silencieux, chargés de ressentiment.
 
-Wang Lin était déjà venu ici une fois. C'était là que le seul Ancêtre survivant de la famille Xiang pratiquait sa culture en méditation fermée !
+Wang Lin était déjà venu ici une fois. C'était là que le seul Ancêtre survivant de la famille Xiang pratiquait sa cultivation en méditation fermée !
 
 Plus on s'enfonçait sous terre, plus le sol devenait sombre. Aucune vie ne pouvait subsister ici. Même les membres de la famille Xiang n'osaient s'y aventurer sans une raison impérieuse.
 

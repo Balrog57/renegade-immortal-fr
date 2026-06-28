@@ -28,7 +28,7 @@ L’Éminence Green Bull fronça les sourcils et fixa Wang Lin. Il prit le jade 
 
 Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, l’Éminence Green Bull prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
 
-Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pillules.
+Avec son niveau de cultivation, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pillules.
 
 Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure qui ne pouvait cicatriser rapidement. Tout cela confirmait l'authenticité de ce qui était enregistré dans le jade.
 
@@ -78,7 +78,7 @@ Dans le Grand Secte des Âmes, la plupart des disciples ne possédaient qu'une v
 
 La Voile Spectrale de Fan Shanmeng était de grade intermédiaire, un cadeau de Yan Lu.
 
-Normalement, une Voile Spectrale de grade intermédiaire était déjà extrêmement puissante. Utilisée correctement, elle pouvait ignorer le niveau de culture ! Cela avait d'ailleurs été prouvé entre les mains de Fan Shanmeng !
+Normalement, une Voile Spectrale de grade intermédiaire était déjà extrêmement puissante. Utilisée correctement, elle pouvait ignorer le niveau de cultivation ! Cela avait d'ailleurs été prouvé entre les mains de Fan Shanmeng !
 
 Si l'on pouvait obtenir une Voile Spectrale de grade supérieur ou extrême pour l'utiliser avec l'illusion multicouche, le résultat serait terrifiant ! Quant au grade absolu, il était trop difficile à raffiner. Dans tout le Grand Secte des Âmes, il n'en existait qu'une seule !
 
@@ -86,13 +86,13 @@ Cette Voile Spectrale était la formation de protection entourant le Grand Secte
 
 Il put clairement en déduire cela dans son esprit grâce aux informations gravées dans le jade et à ses propres spéculations.
 
-« La Voile Spectrale nécessite une âme pour achever le processus de raffinement, mais cette âme... n'a pas besoin d'être celle d'un cultivateur, et une culture plus élevée n'est pas nécessairement un avantage... Il faut une âme morte... » Wang Lin fronça les sourcils ; c'était la première fois qu'il entendait le terme « âme morte ».
+« La Voile Spectrale nécessite une âme pour achever le processus de raffinement, mais cette âme... n'a pas besoin d'être celle d'un cultivateur, et une cultivation plus élevée n'est pas nécessairement un avantage... Il faut une âme morte... » Wang Lin fronça les sourcils ; c'était la première fois qu'il entendait le terme « âme morte ».
 
 Le jade définissait l'âme morte comme l'état d'une personne ou d'une bête décédée dont l'obsession, l'inachèvement ou le ressentiment étaient assez puissants pour former une existence surnaturelle invisible et imperceptible pour autrui.
 
 Un peu plus de ressentiment, et elle deviendrait une âme de rancœur inutile ; un peu moins, et rien ne se formerait. Par conséquent, il était très difficile d'en obtenir une. Le Grand Secte des Âmes employait d'innombrables spécialistes étudiant les âmes mortes, et ils avaient fini par trouver une méthode pour les raffiner à partir de personnes ou de bêtes juste avant leur mort.
 
-Cependant, les âmes mortes ainsi raffinées manquaient de l'épreuve du temps ; peu importe le niveau de culture de la victime, l'âme morte ne pouvait servir qu'à affiner des Voiles Spectrales de grade débutant, ou au mieux intermédiaire.
+Cependant, les âmes mortes ainsi raffinées manquaient de l'épreuve du temps ; peu importe le niveau de cultivation de la victime, l'âme morte ne pouvait servir qu'à affiner des Voiles Spectrales de grade débutant, ou au mieux intermédiaire.
 
 Ces âmes ne pouvaient supporter que trois ou quatre couches d'illusions. Au-delà, elles s'effondraient.
 

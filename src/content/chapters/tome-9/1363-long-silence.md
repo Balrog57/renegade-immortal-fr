@@ -1,6 +1,6 @@
 ---
 n: 1363
-title: Long Silence
+title: Long silence
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1363 - Long Silence
@@ -10,7 +10,7 @@ La capitale mortelle était vaste et la population dense. Les habitants de la zo
 
 Il existait une substance appelée « cristaux mortels » qui servait de monnaie aux mortels, leur valeur variant selon leur taille.
 
-Bien que les cristaux mortels fussent inutiles pour les cultivateurs, leur rareté et leur beauté en faisaient la monnaie d'échange privilégiée des mortels. Avec le niveau de culture de Wang Lin, il était très facile d'en obtenir.
+Bien que les cristaux mortels fussent inutiles pour les cultivateurs, leur rareté et leur beauté en faisaient la monnaie d'échange privilégiée des mortels. Avec le niveau de cultivation de Wang Lin, il était très facile d'en obtenir.
 
 Alors qu'il se trouvait dans la capitale, une partie de son âme originelle quitta son corps pour s'enfoncer sous terre. Personne ne remarqua rien tandis qu'il découvrait un filon de cristaux mortels caché dans les profondeurs.
 
@@ -36,7 +36,7 @@ La lumière lunaire émergea peu à peu. Sous l'arbre, un homme regardait ses de
 
 « Petit enfant, la nuit est froide, voici une cruche de vin de riz pour toi. Bois-en un peu tard dans la nuit pendant tes études pour réchauffer ton corps. Si tu deviens riche plus tard, tu pourras me rembourser. » Il tendit la cruche à Wang Lin avant de repartir avec ses ouvriers.
 
-Wang Lin tint la cruche et constata qu'elle était encore à moitié pleine. Il sourit dans la direction de l'homme et son cœur s'apaisa. Comparé à la cruauté du monde de la culture, il préférait nettement cet environnement.
+Wang Lin tint la cruche et constata qu'elle était encore à moitié pleine. Il sourit dans la direction de l'homme et son cœur s'apaisa. Comparé à la cruauté du monde de la cultivation, il préférait nettement cet environnement.
 
 Le clair de lune gagna en intensité tandis qu'un vent glacial s'élevait. Le vent résonnait dans la rue et les branches suspendues aux maisons commencèrent à bruisser.
 

@@ -82,11 +82,11 @@ Sentant l'immense puissance contenue dans cette sphère, Wang Lin prit une profo
 
 Bien que cette masse de nuages ne puisse détruire les cieux, elle pourrait tuer n'importe quel cultivateur au stade de la Formation de l'Âme. Si Li Yuanfeng, en tant qu'être au stade de la Transformation de l'Âme, devait renaître, il serait tout aussi anéanti par cette sphère.
 
-« Le domaine de la vie et de la mort a atteint sa perfection et ma culture a franchi le stade de la Formation de l'Âme. Il ne me manque qu'une étape pour atteindre le stade de la Transformation de l'Âme. J'en ai déjà parcouru la moitié... » Wang Lin agita sa main droite et la sphère de nuages se dissipa.
+« Le domaine de la vie et de la mort a atteint sa perfection et ma cultivation a franchi le stade de la Formation de l'Âme. Il ne me manque qu'une étape pour atteindre le stade de la Transformation de l'Âme. J'en ai déjà parcouru la moitié... » Wang Lin agita sa main droite et la sphère de nuages se dissipa.
 
 « Je dois me préparer à atteindre le stade de la Transformation de l'Âme ! » Le regard de Wang Lin était d'un calme absolu.
 
-Les cultivateurs au stade de la Transformation de l'Âme sont de véritables puissances. On dit qu'ils sont recherchés par tous sur n'importe quelle planète de culture.
+Les cultivateurs au stade de la Transformation de l'Âme sont de véritables puissances. On dit qu'ils sont recherchés par tous sur n'importe quelle planète de cultivation.
 
 L'ancêtre du Clan des Démons Géants n'était qu'au début du stade de la Transformation de l'Âme, mais cela lui suffisait pour contrôler un clan entier et en devenir le chef.
 
@@ -94,7 +94,7 @@ Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la f
 
 On pouvait ainsi mesurer la valeur d'un tel cultivateur.
 
-Après tout, les vieux monstres Ascendants restaient toujours en culture fermée et leur nombre était bien trop restreint. Par conséquent, les cultivateurs de la Transformation de l'Âme constituent la véritable colonne vertébrale de toute puissance.
+Après tout, les vieux monstres Ascendants restaient toujours en cultivation fermée et leur nombre était bien trop restreint. Par conséquent, les cultivateurs de la Transformation de l'Âme constituent la véritable colonne vertébrale de toute puissance.
 
 Si l'on transposait cela au monde des arts martiaux mortels, ils seraient les experts de premier rang admirés par tous.
 

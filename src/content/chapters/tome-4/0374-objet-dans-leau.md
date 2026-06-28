@@ -86,7 +86,7 @@ Wang Lin fit un signe de la main droite pour ordonner au scribe de partir. Ses y
 
 Les pierres spirituelles de qualité supérieure dans l'eau étaient presque épuisées et leur puissance déclinait. Bien qu'il fallût encore d'innombrables années avant qu'elles ne soient totalement consumées, elles ne pouvaient plus satisfaire les besoins de Wang Lin.
 
-Il s'assit en position de lotus, frappa son sac de rangement pour faire apparaître trois pierres spirituelles de qualité supérieure, puis referma les yeux pour reprendre sa culture.
+Il s'assit en position de lotus, frappa son sac de rangement pour faire apparaître trois pierres spirituelles de qualité supérieure, puis referma les yeux pour reprendre sa cultivation.
 
 En un clin d'œil, trois mois passèrent. Cela faisait plus de six mois que Wang Lin avait quitté Chu.
 
@@ -94,9 +94,9 @@ En un clin d'œil, trois mois passèrent. Cela faisait plus de six mois que Wang
 
 Les bandits du village n'avaient pas quitté la montagne depuis plus de six mois, mais les réserves de nourriture étaient suffisantes pour qu'ils survivent à l'hiver.
 
-Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son attention sur sa culture afin d'accumuler de l'énergie spirituelle en lui. Il se préparait à tenter de briser le domaine et le sceau d'un seul coup.
+Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son attention sur sa cultivation afin d'accumuler de l'énergie spirituelle en lui. Il se préparait à tenter de briser le domaine et le sceau d'un seul coup.
 
-Grâce aux pierres spirituelles de qualité supérieure, sa culture avait atteint le 6ème niveau de la Condensation de Qi.
+Grâce aux pierres spirituelles de qualité supérieure, sa cultivation avait atteint le 6ème niveau de la Condensation de Qi.
 
 La bête moustique continuait de garder Wang Lin, bien qu'elle regardât parfois au loin, vers Chu. Au cours de ces trois mois, elle commença à regretter la grenouille tonnerre. Bien qu'elles fussent toujours en conflit, le manque de sa compagne se faisait sentir.
 

@@ -10,7 +10,7 @@ Une série de changements se produisait au sein du corps originel. En vérité, 
 
 Cependant, après l'illumination dans l'ancien sanctuaire, il avait pu comprendre les mystères de son domaine de la vie et de la mort. Dès lors, Wang Lin décida de laisser son corps originel emprunter la voie des dieux ancestraux.
 
-Wang Lin observa son corps originel, plongé dans la culture. Il ouvrit son sac de rangement, en sortit plusieurs gouttes de sang imprégnées d'une intention meurtrière, puis les pointa vers le front du corps originel. Les gouttes de sang s'y précipitèrent une à une.
+Wang Lin observa son corps originel, plongé dans la cultivation. Il ouvrit son sac de rangement, en sortit plusieurs gouttes de sang imprégnées d'une intention meurtrière, puis les pointa vers le front du corps originel. Les gouttes de sang s'y précipitèrent une à une.
 
 Les cheveux blancs du corps originel devinrent instantanément rouges et son intention meurtrière atteignit son apogée. À cet instant, il ressemblait étrangement à Te Sen, issu de la terre des dieux ancestraux.
 
@@ -30,7 +30,7 @@ Treize jours plus tard, les battements à l'intérieur du cocon devinrent plus i
 
 Après quelques craquements stridents, de gros morceaux de l'enveloppe tombèrent. Un bras de couleur bronze émergea alors du cocon. Par la suite, le corps originel en sortit. Ses cheveux rouges, semblables à du sang s'écoulant, retombaient sur ses épaules, tandis que les deux étoiles violettes sur son front tournaient lentement.
 
-Ses yeux n'étaient plus rouges mais avaient considérablement foncé ; pourtant, si l'on regardait de près, on aurait dit qu'ils contenaient des océans de sang. En absorbant la culture de son corps originel et d'innombrables pilules, celui-ci était parvenu à la deuxième transformation du dieu ancestral.
+Ses yeux n'étaient plus rouges mais avaient considérablement foncé ; pourtant, si l'on regardait de près, on aurait dit qu'ils contenaient des océans de sang. En absorbant la cultivation de son corps originel et d'innombrables pilules, celui-ci était parvenu à la deuxième transformation du dieu ancestral.
 
 La quantité d'énergie spirituelle nécessaire pour qu'un dieu ancestral subisse une telle transformation était désormais des milliers de fois supérieure à ce qui l'était autrefois.
 
@@ -48,13 +48,13 @@ Même Wang Lin ignorait la distance parcourue, mais son corps originel n'avait p
 
 Car, dans les temps anciens, les dieux ancestraux adultes entouraient leurs nouveau-nés d'une goutte de leur sang pour les nourrir et les protéger de la pression colossale du centre planétaire.
 
-Le corps originel s'assit en tailleur et commença à cultiver silencieusement... À moins que l'avatar ne soit confronté à une situation de vie ou de mort, il ne bougerait pas, restant absorbé par sa culture. Outre cette descente vers le centre de Suzaku pour accomplir la voie des dieux ancestraux, son seul mouvement serait de poursuivre ce chemin, bien qu'il fût d'une difficulté extrême.
+Le corps originel s'assit en tailleur et commença à cultiver silencieusement... À moins que l'avatar ne soit confronté à une situation de vie ou de mort, il ne bougerait pas, restant absorbé par sa cultivation. Outre cette descente vers le centre de Suzaku pour accomplir la voie des dieux ancestraux, son seul mouvement serait de poursuivre ce chemin, bien qu'il fût d'une difficulté extrême.
 
 Les dieux ancestraux devaient traverser trois pertes et sept épreuves, chacune étant un test de vie ou de mort. Il était impossible de tout accomplir sans y consacrer une éternité. Mais par-dessus tout, le plus insupportable restait la solitude...
 
 Il faut cultiver dans la solitude, endurer la solitude et, finalement, apprécier la solitude.
 
-De plus, la disparition des dieux ancestraux pesait sur le cœur de Wang Lin comme un rocher géant. Dans les temps anciens, après la mort de Tu Si, des événements inimaginables avaient causé la destruction du royaume céleste, l'extinction des anciens cieux et des dieux ancestraux, affectant jusqu'au monde antique de la culture et menant à l'apparition de l'Union de la Culture.
+De plus, la disparition des dieux ancestraux pesait sur le cœur de Wang Lin comme un rocher géant. Dans les temps anciens, après la mort de Tu Si, des événements inimaginables avaient causé la destruction du royaume céleste, l'extinction des anciens cieux et des dieux ancestraux, affectant jusqu'au monde antique de la cultivation et menant à l'apparition de l'Union de la Cultivation.
 
 Bien que ces événements fussent très lointains pour Wang Lin, si quelqu'un apprenait qu'il cultivait la voie des dieux ancestraux, cette distance s'estomperait dangereusement. Il ne pouvait donc permettre à personne de savoir que son corps originel suivait ce sentier, sous peine de provoquer un désastre.
 
@@ -64,7 +64,7 @@ Il étendit ses bras tandis que son domaine de la vie et de la mort commençait 
 
 Il ferma lentement les yeux pour appréhender les lois célestes et son domaine. À cet instant, mortels comme cultivateurs ressentirent un bouleversement intérieur. Si les mortels n'éprouvèrent qu'un sentiment mystérieux, tous les cultivateurs furent saisis par la panique.
 
-Les visages des quelques cultivateurs de l'Âme Naissante à Zhao changèrent radicalement ; ils quittèrent leurs sectes respectives pour comprendre l'origine du phénomène. Mais avec leur niveau de culture, ils ne pouvaient que ressentir cette présence sans parvenir à la localiser. Même les rares cultivateurs de l'Âme Naissante de la Secte Xuan Dao ignoraient que la source se trouvait dans leur propre montagne arrière.
+Les visages des quelques cultivateurs de l'Âme Naissante à Zhao changèrent radicalement ; ils quittèrent leurs sectes respectives pour comprendre l'origine du phénomène. Mais avec leur niveau de cultivation, ils ne pouvaient que ressentir cette présence sans parvenir à la localiser. Même les rares cultivateurs de l'Âme Naissante de la Secte Xuan Dao ignoraient que la source se trouvait dans leur propre montagne arrière.
 
 À cet instant, Wang Lin percevait tout ce qu'ils ressentaient : panique, stupeur, confusion et choc. Peu à peu, les nuages disparurent, laissant le pays de Zhao sans vent ni nuages, plongé dans une paix absolue. Dans cette sérénité, tous ceux qui étaient affectés par le domaine de la vie et de la mort retrouvèrent leur calme.
 

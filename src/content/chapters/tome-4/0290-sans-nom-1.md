@@ -86,7 +86,7 @@ Wang Lin se leva et tapota la bête. Celle-ci comprit immédiatement le signal e
 
 Peu de temps après, Wang Lin traversa l'anneau des Étoiles Brisées du Chaos. Il pouvait désormais le franchir aisément, alors qu'il avait eu tant de mal au stade de la Formation du Noyau.
 
-Grâce à son domaine de la Vie et de la Mort, il parvenait à faire paraître son niveau de culture bien inférieur à sa réalité, ce qui rendait les clones créés très faibles.
+Grâce à son domaine de la Vie et de la Mort, il parvenait à faire paraître son niveau de cultivation bien inférieur à sa réalité, ce qui rendait les clones créés très faibles.
 
 Une fois l'anneau franchi, il ne s'arrêta pas et se dirigea rapidement vers l'entrée des terres de l'Ancien Dieu.
 

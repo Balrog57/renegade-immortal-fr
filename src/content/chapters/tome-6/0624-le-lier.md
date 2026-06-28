@@ -60,7 +60,7 @@ L'homme, ligoté et livré à Wang Lin, le regarda avec un sentiment d'injustice
 
 Malgré son tempérament, Wang Lin ne put s'empêcher de sourire. Un tel sourire était extrêmement rare chez lui.
 
-Le petit vieil homme laissa échapper un grognement. À cet instant, il se fichait de tout. Son tempérament timoré avait été réprimé sans fin. Il était convaincu d'être le cultivateur le plus injustement traité du monde de la culture. Il avait manifestement bénéficié d'une rencontre fortuite qui aurait fait l'envie de tous, mais finalement, il avait été ruiné par les trésors obtenus lors de cette même chance.
+Le petit vieil homme laissa échapper un grognement. À cet instant, il se fichait de tout. Son tempérament timoré avait été réprimé sans fin. Il était convaincu d'être le cultivateur le plus injustement traité du monde de la cultivation. Il avait manifestement bénéficié d'une rencontre fortuite qui aurait fait l'envie de tous, mais finalement, il avait été ruiné par les trésors obtenus lors de cette même chance.
 
 « Hmph, ce vieil homme a manqué de chance cette fois. Si vous voulez me tuer ou quoi que ce soit, faites-le ! » Bien qu'il ait affirmé cela, il ne put s'empêcher de redevenir nerveux.
 
@@ -76,9 +76,9 @@ Wang Lin répondit par un geste de la main aux cultivateurs qui partaient, puis 
 
 « Lâchez-moi ! De quel droit m'arrachez-vous ainsi ? » Une fois capturée par Wang Lin, Sun Ruonan reprit ses esprits et commença à lutter.
 
-« Tais-toi ! » La voix de Wang Lin tomba sur elle comme un vent glacial, la réduisant immédiatement au silence. Cependant, elle ricana bientôt : « Je sais pourquoi vous me capturez. Vous voulez m'utiliser comme fourneau de culture ? Très bien, faites ce que vous voulez de moi, mais laissez-moi partir après ! »
+« Tais-toi ! » La voix de Wang Lin tomba sur elle comme un vent glacial, la réduisant immédiatement au silence. Cependant, elle ricana bientôt : « Je sais pourquoi vous me capturez. Vous voulez m'utiliser comme fourneau de cultivation ? Très bien, faites ce que vous voulez de moi, mais laissez-moi partir après ! »
 
-Alors qu'il volait, Wang Lin se retourna vers la femme. Ses yeux étaient empreints d'une froide cruauté ; il la regardait comme s'il contemplait un cadavre. Il dit lentement : « Tu n'as pas les qualifications pour devenir mon fourneau de culture ! »
+Alors qu'il volait, Wang Lin se retourna vers la femme. Ses yeux étaient empreints d'une froide cruauté ; il la regardait comme s'il contemplait un cadavre. Il dit lentement : « Tu n'as pas les qualifications pour devenir mon fourneau de cultivation ! »
 
 La vitesse de Wang Lin était fulgurante. En une seule enjambée, il avait déjà parcouru des dizaines de milliers de kilomètres.
 

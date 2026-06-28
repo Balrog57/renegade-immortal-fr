@@ -24,7 +24,7 @@ Les essences éthérées n'étaient pas affectées par le Continent Astral Immor
 
 Cette scène fut vue par tous les disciples de la Grande Secte de l'Âme et fit trembler leurs cœurs. En voyant cela, le visage de Yan Lu devint instantanément livide.
 
-Même les vieux monstres de la Grande Secte de l'Âme, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
+Même les vieux monstres de la Grande Secte de l'Âme, d'ordinaire en cultivation retirée, sortirent pour observer la scène de leurs propres yeux.
 
 « Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour servir, mais pour reprendre ma destinée ! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux ! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage !
 
@@ -86,7 +86,7 @@ Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. L
 
 Yan Lu se trouvait au sixième étage, attendant la réponse de Wang Lin. Elle était légèrement anxieuse, craignant soit que Wang Lin ne refuse, soit qu'une fois d'accord, il possède réellement un moyen d'atteindre le huitième étage.
 
-« Ce n'est pas possible... Cet parapluie m'est d'une grande utilité. Je ne suis pas prête à le lui laisser si facilement ! Le huitième étage... contient la volonté d'un cultivateur au stade tardif de la Tribulation du Vide. Avec le niveau de culture de Wang Lin, il a dû être blessé en atteignant le septième étage. Il ne pourra jamais atteindre le huitième ! »
+« Ce n'est pas possible... Cet parapluie m'est d'une grande utilité. Je ne suis pas prête à le lui laisser si facilement ! Le huitième étage... contient la volonté d'un cultivateur au stade tardif de la Tribulation du Vide. Avec le niveau de cultivation de Wang Lin, il a dû être blessé en atteignant le septième étage. Il ne pourra jamais atteindre le huitième ! »
 
 Alors que Yan Lu réfléchissait avec anxiété, les paroles de Wang Lin résonnèrent depuis le septième étage.
 
@@ -120,10 +120,10 @@ La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche ch
 
 « C'est un événement rarissime, même sur des centaines d'années ! Je vais assister à quelqu'un qui tente de franchir les septième et huitième étages d'un seul coup ! »
 
-Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic du Ciel Vert, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse ; il ne pouvait plus cacher le choc qui agitait son cœur.
+Un tumulte éclata alors que les anciens en cultivation retirée tournaient tous leurs regards avec des expressions graves. Au Pic du Ciel Vert, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse ; il ne pouvait plus cacher le choc qui agitait son cœur.
 
 « Il va au huitième étage !! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Grande Secte de l'Âme. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 
-Au sixième étage, Yan Lu ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de culture, elle possédait ses propres méthodes.
+Au sixième étage, Yan Lu ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de cultivation, elle possédait ses propres méthodes.
 
 Dans le nouveau pic qui avait été attribué à Yan Lu, l'une de ses disciples contemplait le ciel, stupéfaite. Elle trembla, son regard perdit soudainement sa focalisation pour être remplacé par une intention meurtrière. À cet instant, l'âme de la disciple fut supprimée et le Sens Divin que Yan Lu avait laissé sur le pic prit le contrôle, faisant de ses yeux les yeux de Yan Lu.

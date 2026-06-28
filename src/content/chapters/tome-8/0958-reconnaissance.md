@@ -20,7 +20,7 @@ Ling Tianhou agita sa main droite et l'une des quatre épées d'origine derrièr
 
 L'énergie d'épée était semblable à un arc-en-ciel !
 
-Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans le Domaine des Esprits Démoniaques étaient toutes extrêmement puissantes ; il n'était donc même pas nécessaire de mentionner la puissance de celle qui émanait directement de la source. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
+Avec la cultivation de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans le Domaine des Esprits Démoniaques étaient toutes extrêmement puissantes ; il n'était donc même pas nécessaire de mentionner la puissance de celle qui émanait directement de la source. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
 
 Des craquements tonnèrent dans le ciel, comme si celui-ci ne pouvait supporter la puissance de l'énergie d'épée.
 
@@ -48,7 +48,7 @@ Avec sa ruse habituelle, Wang Lin avait déjà tout analysé. À cet instant, ap
 
 Alors que les 27 épées volantes s'élançaient toutes, Wang Lin pointa un doigt vers l'avant. Les 27 épées volèrent vers Ling Tianhou tandis que les âmes poussaient des hurlements funèbres !
 
-Même l'All-Voyant fut stupéfait par ce spectacle. Il avait déjà prévu le résultat, mais pas le processus. Il avait pressenti que la culture de Wang Lin aurait considérablement augmenté et qu'il reviendrait le jour où la lumière verte et violette couvrirait le ciel, mais il ignorait exactement quel niveau de culture Wang Lin aurait atteint.
+Même l'All-Voyant fut stupéfait par ce spectacle. Il avait déjà prévu le résultat, mais pas le processus. Il avait pressenti que la cultivation de Wang Lin aurait considérablement augmenté et qu'il reviendrait le jour où la lumière verte et violette couvrirait le ciel, mais il ignorait exactement quel niveau de cultivation Wang Lin aurait atteint.
 
 Il avait même percé les secrets des multiples pouvoirs situés entre les sourcils de Wang Lin. Trois d'entre eux étaient des choses que lui-même redoutait !
 

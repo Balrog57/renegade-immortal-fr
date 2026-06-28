@@ -120,11 +120,11 @@ Dès que son pied toucha le sol, le tonnerre pénétra instantanément son corps
 
 Il fit vingt pas d'affilée avant de s'arrêter. Son corps entier était désormais entouré de foudre et son âme originelle dégageait la puissance du tonnerre.
 
-C'était là sa limite actuelle. Wang Lin s'assit lentement et ferma les yeux pour entamer sa culture.
+C'était là sa limite actuelle. Wang Lin s'assit lentement et ferma les yeux pour entamer sa cultivation.
 
 La Bête du Tonnerre dandina longuement sur la lisière avant de faire, finalement, un pas prudent. Dès qu'elle ressentit le tonnerre, elle se coucha et commença à absorber et à affiner l'énergie selon une méthode propre aux Bêtes du Tonnerre.
 
-Hormis le fracas des éclairs, aucun autre son ne résonnait. L'homme et la bête s'étaient ainsi plongés dans leur culture.
+Hormis le fracas des éclairs, aucun autre son ne résonnait. L'homme et la bête s'étaient ainsi plongés dans leur cultivation.
 
 Wang Lin s'adapta progressivement à cet environnement, le cœur encore empreint de stupéfaction. Le tonnerre ici surpassait celui de son propre corps. S'il n'avait pas été lui-même composé de tonnerre, il lui aurait été extrêmement difficile de rester ne serait-ce qu'à la lisière.
 

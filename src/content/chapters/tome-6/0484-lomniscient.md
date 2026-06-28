@@ -50,7 +50,7 @@ Parmi les disciples présents se trouvaient également des anciens disciplinaire
 
 Les disciples environnants reculèrent tous en fixant Wang Lin avec stupeur, mais leurs yeux brillaient désormais d'un nouveau respect.
 
-Les forts suscitent le respect des faibles, peu importe où ils se trouvent. C'était une loi immuable du monde de la culture !
+Les forts suscitent le respect des faibles, peu importe où ils se trouvent. C'était une loi immuable du monde de la cultivation !
 
 Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement : « Tuez-le ! Je vous autorise à dévorer son âme en guise de récompense ! »
 
@@ -70,7 +70,7 @@ Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au
 
 Même les anciens disciplinaires inclinèrent la tête, le cœur rempli de crainte.
 
-« Comment Wang Lin, qui vient d'une planète de culture stérile, peut-il posséder de tels sortilèges ?! » Cette question hantait l'esprit de chacun depuis longtemps.
+« Comment Wang Lin, qui vient d'une planète de cultivation stérile, peut-il posséder de tels sortilèges ?! » Cette question hantait l'esprit de chacun depuis longtemps.
 
 Finalement, le regard de Wang Lin se posa sur Bai Wei et la femme au stade avancé de la Transformation de l'Âme. Il leur demanda calmement : « Voulez-vous toujours agir ? »
 
@@ -84,7 +84,7 @@ L'âme originelle de l'homme d'âge moyen était pétrifiée par la peur ; il é
 
 Et ce n'était pas tout. Ce fouet étrange continuait de le frapper, et les dégâts traversaient sa chair pour atteindre directement son âme originelle. Le coup final l'avait même expulsée de son corps. Un tel sort et un tel trésor magique faisaient trembler son essence même.
 
-Puis il s'était retrouvé traqué par plusieurs fragments d'âmes de la Transformation de l'Âme. Si Wang Lin ne les avait pas rappelés, il aurait dû provoquer sa propre autodestruction et perdre une grande partie de sa culture pour espérer survivre.
+Puis il s'était retrouvé traqué par plusieurs fragments d'âmes de la Transformation de l'Âme. Si Wang Lin ne les avait pas rappelés, il aurait dû provoquer sa propre autodestruction et perdre une grande partie de sa cultivation pour espérer survivre.
 
 Quant à Zhao Xingsha, quelle que fût sa vitesse, il ne pouvait échapper à la bête spirituelle. Juste avant qu'il ne soit frappé, une lumière douce descendit du ciel.
 

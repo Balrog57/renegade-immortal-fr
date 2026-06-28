@@ -128,7 +128,7 @@ Au sein du vide sombre de la Bête du Nether se trouvait une formation gigantesq
 
 Un corps reposait dans le cercueil. C'était celui d'un homme très beau, paraissant âgé d'une vingtaine d'années. Il semblait dormir paisiblement. Le gaz noir issu de la formation pénétrait le cercueil et était absorbé par l'homme.
 
-Près du cercueil, une personne était assise en tailleur dans le vide. Elle portait une robe noire qui enveloppait tout son corps, ne laissant paraître que son visage. Ses yeux étaient clos pendant sa culture. On aurait dit qu'il avait toujours été là, gardien éternel de ce cercueil de cristal.
+Près du cercueil, une personne était assise en tailleur dans le vide. Elle portait une robe noire qui enveloppait tout son corps, ne laissant paraître que son visage. Ses yeux étaient clos pendant sa cultivation. On aurait dit qu'il avait toujours été là, gardien éternel de ce cercueil de cristal.
 
 Soudain, l'homme en robe noire ouvrit les yeux, scruta le lointain et murmura : « Il est donc bien venu ! Malheureusement, je ne suis pas encore assez fort pour détruire la formation. Sinon, il n'y aurait aucune inquiétude à avoir. » Ses yeux brillèrent et un rayon de lumière noire jaillit de son corps. La lumière se posa à cent pieds de là et prit la forme d'une silhouette humaine.
 

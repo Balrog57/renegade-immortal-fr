@@ -48,7 +48,7 @@ Wang Lin demanda calmement : « À quelle secte du système stellaire d'Allheave
 
 « Le système d'Allheaven n'est pas comme votre système de l'Alliance. Il n'y a pas de sectes, seulement des familles de cultivateurs. Ma famille est la famille Xiang, sur la planète Dong Lin. »
 
-Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit : « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de culture actuel... »
+Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit : « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de cultivation actuel... »
 
 La femme à l'intérieur secoua la tête et dit doucement : « Vous possédez la perle défiant le ciel, vous devriez donc certainement être capable de passer. »
 
@@ -118,13 +118,13 @@ Il prit une grande inspiration et frappa son sac de rangement. La formation des 
 
 « La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système d'Allheaven, personne ne saura que je possède la perle défiant le ciel. »
 
-« Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et l'Omniscient et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
+« Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et l'Omniscient et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de cultivation dépasse mon imagination, je serai impuissant. »
 
 Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
 « Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Greed que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven ! »
 
-« Une fois que mon niveau de culture aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte ! »
+« Une fois que mon niveau de cultivation aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte ! »
 
 Les yeux de Wang Lin étaient étincelants.
 

@@ -70,7 +70,7 @@ Alors qu'elle parlait, le ciel gronda et un éclair frappa la colline de l'île 
 
 « L'Ancêtre a transmis neuf signes, et maintenant trois d'entre eux se sont manifestés ! »
 
-Il existait un domaine stellaire au sein du Système Stellaire Antique abritant de nombreuses planètes de culture. Plus de mille planètes remplissaient ce vaste domaine. C'était un lieu très célèbre nommé la Terre Déchue. Un total de 372 petits clans y vivaient, rendant la zone extrêmement chaotique.
+Il existait un domaine stellaire au sein du Système Stellaire Antique abritant de nombreuses planètes de cultivation. Plus de mille planètes remplissaient ce vaste domaine. C'était un lieu très célèbre nommé la Terre Déchue. Un total de 372 petits clans y vivaient, rendant la zone extrêmement chaotique.
 
 En raison de ce désordre, les traîtres des grands clans ou ceux ayant provoqué de puissants ennemis s'y regroupaient. De plus en plus de gens convergeaient vers ce lieu jusqu'à former une puissance qu'on ne pouvait ignorer. Normalement, le Conseil Souverain n'aurait pas toléré l'existence d'un tel endroit, et parce qu'il servait de refuge aux traîtres, il était détesté par de nombreux clans.
 

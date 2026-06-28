@@ -42,7 +42,7 @@ Teng Huayuan n'avait pas imaginé que Wang Lin puisse se téléporter et fut dé
 
 À ces mots, tous les cultivateurs présents commencèrent à s'agiter en fixant le jeune homme. Même Lin Yi montra un intérêt certain ; il afficha une expression de surprise avant de ricaner en secouant silencieusement la tête.
 
-Teng Huayuan tonna : « Chers compagnons de culture, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc un différend personnel. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi ! »
+Teng Huayuan tonna : « Chers compagnons de cultivation, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc un différend personnel. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi ! »
 
 Lin Yi éclata soudain de rire : « Très bien, aucun cultivateur de Zhao n'osera se mettre en travers de ton chemin. Je veux voir si toi, Teng Huayuan, tu oseras vraiment le tuer. »
 
@@ -58,15 +58,15 @@ Non seulement lui, mais tous les cultivateurs au stade de l'Âme Naissante étai
 
 Tous les cultivateurs environnants, et particulièrement les experts des grandes sectes, furent frappés de stupeur. Même Teng Huayuan, qui s'apprêtait à se téléporter, s'immobilisa net.
 
-À leurs yeux, le niveau de culture du jeune homme augmentait à une vitesse prodigieuse. C'était un phénomène qu'ils n'avaient jamais vu de leur vie.
+À leurs yeux, le niveau de cultivation du jeune homme augmentait à une vitesse prodigieuse. C'était un phénomène qu'ils n'avaient jamais vu de leur vie.
 
-Le niveau de culture passa du début du stade de l'Établissement des Fondations au milieu, puis à la fin. Il grimpa ensuite rapidement au début du stade de la Formation du Noyau, puis au milieu, et enfin à la fin de la Formation du Noyau.
+Le niveau de cultivation passa du début du stade de l'Établissement des Fondations au milieu, puis à la fin. Il grimpa ensuite rapidement au début du stade de la Formation du Noyau, puis au milieu, et enfin à la fin de la Formation du Noyau.
 
 Et ce n'était pas fini. Lorsqu'il atteignit le stade final de la Formation du Noyau, une onde invisible émana du jeune homme et se propagea. Une Âme Naissante d'un pied de haut apparut avant de réintégrer promptement le corps du jeune homme.
 
-Le silence qui suivit était terrifiant. Ils n'auraient jamais imaginé voir le niveau de culture d'un individu bondir du début de l'Établissement des Fondations au début de l'Âme Naissante.
+Le silence qui suivit était terrifiant. Ils n'auraient jamais imaginé voir le niveau de cultivation d'un individu bondir du début de l'Établissement des Fondations au début de l'Âme Naissante.
 
-Mais la progression ne s'arrêta pas là. Le jeune homme leva la main et sa culture grimpa jusqu'au milieu du stade de l'Âme Naissante. Ce ne fut qu'une fois ce niveau atteint qu'il cessa enfin.
+Mais la progression ne s'arrêta pas là. Le jeune homme leva la main et sa cultivation grimpa jusqu'au milieu du stade de l'Âme Naissante. Ce ne fut qu'une fois ce niveau atteint qu'il cessa enfin.
 
 À cet instant, le visage du jeune homme était empreint d'une aura maléfique, ses cheveux flottaient de manière surnaturelle, et il pointa Teng Huayuan du doigt en demandant : « Oses-tu te mesurer à moi ? »
 

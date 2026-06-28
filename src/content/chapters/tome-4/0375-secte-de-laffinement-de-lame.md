@@ -16,19 +16,19 @@ Les flocons de neige qui tombaient vers Wang Lin fondaient à trois pouces de so
 
 Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouvelle.
 
-« Dix pour cent des marques de thé ont disparu, le sceau s'est desserré et ma culture est revenue au début du stade de l'Établissement des Fondations. En conséquence, je serai à peine capable d'utiliser une partie des trésors contenus dans mon sac. Grâce à cela et à la bête moustique, tant que je ne rencontre aucun cultivateur de la Formation de l'Âme, je serai en sécurité. »
+« Dix pour cent des marques de thé ont disparu, le sceau s'est desserré et ma cultivation est revenue au début du stade de l'Établissement des Fondations. En conséquence, je serai à peine capable d'utiliser une partie des trésors contenus dans mon sac. Grâce à cela et à la bête moustique, tant que je ne rencontre aucun cultivateur de la Formation de l'Âme, je serai en sécurité. »
 
 « Cependant, ce morceau de jade céleste est la limite que mon corps peut supporter pour le moment. Si j'en prends davantage, je crains que mon corps ne soit réduit en poussière par l'énergie spirituelle céleste avant même que le domaine et le sceau ne soient brisés. »
 
 « Désormais, je dois tenter d'atteindre le stade de la Formation du Noyau le plus tôt possible. Une fois ce stade atteint, je devrais être capable de prendre un autre morceau de jade céleste et de tenter de briser définitivement le domaine et le sceau. »
 
-« Pourtant, mes pierres spirituelles de haute qualité sont limitées ; je ne peux pas les gaspiller ainsi. Je dois trouver un lieu où l'énergie spirituelle est dense pour cultiver en paix. Je me dois de restaurer ma culture en neuf ans, quoi qu'il arrive ! »
+« Pourtant, mes pierres spirituelles de haute qualité sont limitées ; je ne peux pas les gaspiller ainsi. Je dois trouver un lieu où l'énergie spirituelle est dense pour cultiver en paix. Je me dois de restaurer ma cultivation en neuf ans, quoi qu'il arrive ! »
 
 Après avoir réfléchi un instant, ses yeux s'illuminèrent et il sauta sur la bête moustique. Cette dernière poussa un rugissement joyeux et emporta Wang Lin.
 
 Wang Lin baissa la tête pour regarder le village du Nuage de Feu. Après avoir tué l'homme grand et costaud ainsi que l'autre colosse balafré, la majeure partie de sa colère s'était apaisée. Il tapota la grosse tête du moustique qui, poussant un cri, chargea en avant.
 
-« Plus lentement ! » L'expression de Wang Lin changea. Sa culture n'étant revenue qu'au début de l'Établissement des Fondations, il ne pouvait supporter la vitesse de la bête moustique, dont le niveau se situait vers la fin de l'Âme Naissante.
+« Plus lentement ! » L'expression de Wang Lin changea. Sa cultivation n'étant revenue qu'au début de l'Établissement des Fondations, il ne pouvait supporter la vitesse de la bête moustique, dont le niveau se situait vers la fin de l'Âme Naissante.
 
 Le moustique ralentit immédiatement et reprit un vol paisible.
 
@@ -38,7 +38,7 @@ Assis sur le dos de la créature, Wang Lin sortit la carte de jade et regarda ve
 
 S'il avait choisi la Secte de l'Affinement de l'Âme, c'était en raison de sa nature singulière : elle ne comptait que quelques centaines de disciples principaux pour plus de dizaines de milliers de disciples extérieurs.
 
-Comparée aux deux autres grandes sectes de Pilu, la Secte de l'Affinement de l'Âme possédait le plus petit nombre de disciples principaux, tout en restant leur égale. Réussir à rivaliser avec ces deux puissances avec seulement quelques centaines d'élites prouvait non seulement que les trésors de la secte étaient exceptionnels, mais aussi que la culture des disciples principaux était redoutable.
+Comparée aux deux autres grandes sectes de Pilu, la Secte de l'Affinement de l'Âme possédait le plus petit nombre de disciples principaux, tout en restant leur égale. Réussir à rivaliser avec ces deux puissances avec seulement quelques centaines d'élites prouvait non seulement que les trésors de la secte étaient exceptionnels, mais aussi que la cultivation des disciples principaux était redoutable.
 
 La Secte de l'Affinement de l'Âme ne recrutait jamais d'enfants mortels. Il n'existait qu'une seule voie pour devenir un disciple principal : il fallait d'abord intégrer la secte en tant que disciple extérieur.
 
@@ -46,13 +46,13 @@ Tous les trois ans, une compétition opposait les disciples extérieurs pour dé
 
 Devenir un disciple extérieur était très simple ; il suffisait de payer suffisamment de pierres spirituelles pour obtenir ce rang pendant une certaine période.
 
-Plusieurs grandes montagnes entouraient la Secte de l'Affinement de l'Âme, offrant une énergie spirituelle plusieurs fois plus dense que la normale. C'est là que résidaient les disciples extérieurs. Bien qu'ils fussent des membres de la secte, ils ne faisaient en réalité que louer des grottes pour leur culture en échange de pierres spirituelles.
+Plusieurs grandes montagnes entouraient la Secte de l'Affinement de l'Âme, offrant une énergie spirituelle plusieurs fois plus dense que la normale. C'est là que résidaient les disciples extérieurs. Bien qu'ils fussent des membres de la secte, ils ne faisaient en réalité que louer des grottes pour leur cultivation en échange de pierres spirituelles.
 
 Les méthodes de la Secte de l'Affinement de l'Âme étaient très étranges et rarement vues sur le continent de Suzaku ; nul n'en connaissait la raison.
 
 C'est précisément ce qui avait attiré Wang Lin. La carte contenait des informations extrêmement détaillées sur la secte, et il était convaincu que la personne qui lui avait vendu le jade en avait été, un temps, un disciple extérieur.
 
-Pilu était, après tout, un pays de culture de rang 5, et d'innombrables familles de cultivateurs dépendaient des trois grandes sectes. Ces familles envoyaient une multitude de disciples vers les sectes tous les trois ans. Aucun de ces disciples n'obtenait de privilèges spéciaux : à moins d'un talent défiant les cieux, ils devaient tous commencer au bas de l'échelle.
+Pilu était, après tout, un pays de cultivation de rang 5, et d'innombrables familles de cultivateurs dépendaient des trois grandes sectes. Ces familles envoyaient une multitude de disciples vers les sectes tous les trois ans. Aucun de ces disciples n'obtenait de privilèges spéciaux : à moins d'un talent défiant les cieux, ils devaient tous commencer au bas de l'échelle.
 
 Après sept jours de voyage sur la bête moustique, Wang Lin arriva près de la Secte de l'Affinement de l'Âme. À environ 500 kilomètres de la secte, il descendit de sa monture et sortit une épée volante ordinaire. Il monta dessus et vola vers la secte.
 
@@ -68,7 +68,7 @@ Le vieil homme, sur le point de pénétrer dans la secte, se retourna brusquemen
 
 Wang Lin répondit respectueusement : « Ce disciple est un cultivateur indépendant qui espère devenir disciple extérieur. »
 
-Le vieil homme hocha la tête. « Atteindre le stade de l'Établissement des Fondations en tant que cultivateur indépendant n'est pas une mince affaire. Tu souhaites devenir disciple extérieur pour trouver un lieu de culture en vase clos, n'est-ce pas ? »
+Le vieil homme hocha la tête. « Atteindre le stade de l'Établissement des Fondations en tant que cultivateur indépendant n'est pas une mince affaire. Tu souhaites devenir disciple extérieur pour trouver un lieu de cultivation en vase clos, n'est-ce pas ? »
 
 Wang Lin soutint son regard avec déférence : « C'est précisément ce que le disciple souhaite. »
 
@@ -82,7 +82,7 @@ Le vieil homme s'arrêta et regarda Wang Lin avec un léger sourire. Il se dit q
 
 Il dissimula cependant aussitôt cet enthousiasme et demanda calmement : « Où as-tu trouvé cela ? »
 
-Wang Lin répondit avec respect : « Il y a de nombreuses années, j'ai aidé un cultivateur au stade de la Formation du Noyau. Il était gravement blessé et je l'ai protégé durant sa convalescence. Il m'a offert cette épée en guise de remerciement, mais le niveau de culture de ce disciple est trop faible pour s'en servir. »
+Wang Lin répondit avec respect : « Il y a de nombreuses années, j'ai aidé un cultivateur au stade de la Formation du Noyau. Il était gravement blessé et je l'ai protégé durant sa convalescence. Il m'a offert cette épée en guise de remerciement, mais le niveau de cultivation de ce disciple est trop faible pour s'en servir. »
 
 Les yeux du vieil homme brillèrent : « Oh ? Quel genre de blessure ? Décris-la moi. »
 

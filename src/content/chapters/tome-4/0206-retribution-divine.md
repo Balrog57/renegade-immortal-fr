@@ -10,13 +10,13 @@ L'expression de Wang Lin resta inchangée, mais cela piqua sa curiosité. Ce qu'
 
 Cet état fut nommé Gui Xi.
 
-La seule façon de résoudre ce problème était de placer le cultivateur dans un lieu sûr et de le laisser expulser les démons de son corps par ses propres moyens. Si une aide extérieure souhaitait intervenir, l'intervenant devait être plusieurs fois plus puissant que le cultivateur piégé, voire posséder un niveau de culture supérieur d'un royaume entier ; sinon, le cultivateur piégé n'aurait d'autre choix que de s'en sortir seul.
+La seule façon de résoudre ce problème était de placer le cultivateur dans un lieu sûr et de le laisser expulser les démons de son corps par ses propres moyens. Si une aide extérieure souhaitait intervenir, l'intervenant devait être plusieurs fois plus puissant que le cultivateur piégé, voire posséder un niveau de cultivation supérieur d'un royaume entier ; sinon, le cultivateur piégé n'aurait d'autre choix que de s'en sortir seul.
 
 Si un cultivateur restait bloqué en état de Gui Xi pendant une période trop longue, le démon prendrait alors totalement le contrôle. Son âme finirait par disparaître et son corps pourrirait.
 
-Cependant, dans l'ensemble, la plupart des cultivateurs entrant en Gui Xi finissaient par se réveiller ; ils perdaient certes une partie de leur culture, mais cela restait préférable à la perte de la vie.
+Cependant, dans l'ensemble, la plupart des cultivateurs entrant en Gui Xi finissaient par se réveiller ; ils perdaient certes une partie de leur cultivation, mais cela restait préférable à la perte de la vie.
 
-Le Gui Xi n'était pas un phénomène courant dans le monde de la culture. Du moins, Wang Lin n'avait encore jamais entendu parler d'un cultivateur piégé par cet état.
+Le Gui Xi n'était pas un phénomène courant dans le monde de la cultivation. Du moins, Wang Lin n'avait encore jamais entendu parler d'un cultivateur piégé par cet état.
 
 Une fois que Qiu Siping eut fini de parler, il regarda Wang Lin, cherchant à déceler des indices, mais l'expression de ce dernier ne changea absolument pas. Elle demeura aussi calme qu'à l'accoutumée.
 
@@ -66,11 +66,11 @@ Sur ces mots, le regard de Qiu Siping se posa sur Wang Lin.
 
 Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre : « Tuer votre maître ? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
 
-Qiu Siping laissa échapper un rire et déclara : « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon frère martial sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en récupérant une chacun, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
+Qiu Siping laissa échapper un rire et déclara : « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon frère martial sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de cultivation, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en récupérant une chacun, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
 
 Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement : « Je ne vois pas le rapport avec la connaissance des anciennes restrictions. »
 
-Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit : « L'endroit où mon maître cultive est une ancienne grotte de culture. Il l'a découverte par hasard et en a fait sa demeure. »
+Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit : « L'endroit où mon maître cultive est une ancienne grotte de cultivation. Il l'a découverte par hasard et en a fait sa demeure. »
 
 « J'ai pu les saboter pendant leur retraite parce que je m'y préparais depuis des années. J'ai passé de longues années à étudier les anciennes restrictions de cette grotte. »
 
@@ -84,7 +84,7 @@ Après avoir entendu cela, Wang Lin prit un morceau de jade et le scruta avec so
 
 Qiu Siping demanda : « Cher compagnon cultivateur, qu'en pensez-vous ? »
 
-Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda : « À quel niveau de culture se trouvent ces deux cultivateurs de l'Âme Naissante ? »
+Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda : « À quel niveau de cultivation se trouvent ces deux cultivateurs de l'Âme Naissante ? »
 
 Qiu Siping répondit immédiatement : « Mon maître est au début du stade de l'Âme Naissante, tandis que mon frère martial vient tout juste de former la sienne. Si vous parvenez à ouvrir la grotte, alors l'Âme Naissante de mon maître vous appartiendra. »
 

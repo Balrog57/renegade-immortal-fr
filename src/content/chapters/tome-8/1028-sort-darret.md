@@ -36,7 +36,7 @@ Il ne fallut que quelques instants pour qu'un cristal brillant, de la taille d'u
 
 « Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Frère Aîné ne pourrait accomplir cela si aisément ! » Maître Void haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
 
-« Bien que Qing Lin soit très puissant, selon les observations et les informations de l'Alliance, je suis sûr à 90 % qu'il est sur son lit de mort. Si je peux le capturer et le contrôler par une méthode spéciale, alors l'Alliance de Culture n'aura plus aucun ennemi ! »
+« Bien que Qing Lin soit très puissant, selon les observations et les informations de l'Alliance, je suis sûr à 90 % qu'il est sur son lit de mort. Si je peux le capturer et le contrôler par une méthode spéciale, alors l'Alliance de Cultivation n'aura plus aucun ennemi ! »
 
 Un grondement tonnerre résonna et l'os de bête trembla tandis que la lumière en perçait la structure. Lorsque la lumière jaillit enfin, l'os se brisa en d'innombrables fragments.
 

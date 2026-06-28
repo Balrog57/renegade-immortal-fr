@@ -96,7 +96,7 @@ Wang Lin flottait dans les airs, observant la terre en contrebas. Cet endroit lu
 
 Wang Lin soupira, l'expression tourmentée.
 
-« Suis-je las de ma culture... Comment aurais-je pu engendrer un fantôme empruntant un chemin si différent... » Wang Lin médita en silence.
+« Suis-je las de ma cultivation... Comment aurais-je pu engendrer un fantôme empruntant un chemin si différent... » Wang Lin médita en silence.
 
 « Contrairement à ce qui s'est passé sur la planète Tian Yun, je sais qui je suis et je sais que tout ceci n'est qu'une illusion. Je sais que je suis entré ici avec mon âme, et je connais mon but... Je dois allumer l'Épreuve Humaine... » Wang Lin leva la tête, une pointe de mélancolie dans les yeux. Dès qu'il put voir le monde clairement, il comprit ce qu'était l'encens humain et comment l'allumer.
 
@@ -112,7 +112,7 @@ Le vent léger soufflait, faisant flotter les longs cheveux et les vêtements de
 
 Le vieux Vermillion Bird laissa poindre une pointe d'anxiété. En observant la silhouette, son inquiétude grandit.
 
-« Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure, voire qu'il l'allume au premier souffle. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée ici. Se pourrait-il qu'il n'ait pas passé assez de temps à cultiver pour tout percer, et que son âme refuse de partir ? »
+« Pourquoi est-il si lent... Compte tenu de son niveau de cultivation, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure, voire qu'il l'allume au premier souffle. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée ici. Se pourrait-il qu'il n'ait pas passé assez de temps à cultiver pour tout percer, et que son âme refuse de partir ? »
 
 Le Maître Simo laissa échapper un rictus méprisant en fixant la silhouette sous l'encens. Il pensa : « Ce n'est que la première baguette et ce petit bâtard montre déjà des signes de faiblesse. Il n'a aucune chance de réussir les épreuves. Une fois qu'il aura échoué, le premier Jeune Empereur perdra toute dignité devant ces cultivateurs... »
 

@@ -58,6 +58,6 @@ Les parents de Wang Lin ne cessaient de lui adresser des paroles de réconfort. 
 
 À ses côtés, un homme d'âge moyen au visage froid répliqua : « Ce que l'Ancien Ma dit est juste. De toutes les sectes du royaume de Zhao, seule notre Secte Heng Yue agit ainsi. Mais si cet enfant mourait réellement dans nos montagnes, les parents craindraient que tous leurs enfants ne tentent de se suicider en cas de rejet. Dès lors, qui oserait nous confier ses enfants ? »
 
-Un vieil homme en robe prit une gorgée de thé et dit lentement : « En réalité, n'est-ce pas parce que notre Secte Heng Yue est en déclin que nous devons désormais sélectionner des disciples aptes à la culture parmi les mortels ? S'il y a cinq cents ans, qui se serait soucié de l'opinion des mortels ? »
+Un vieil homme en robe prit une gorgée de thé et dit lentement : « En réalité, n'est-ce pas parce que notre Secte Heng Yue est en déclin que nous devons désormais sélectionner des disciples aptes à la cultivation parmi les mortels ? S'il y a cinq cents ans, qui se serait soucié de l'opinion des mortels ? »
 
 Enfin, un vieillard couvert de rides soupira et conclut : « Si ce jeune homme a tenté de se suicider une fois, il pourrait recommencer. Bah, pour éviter que ce problème ne persiste, faisons une exception et acceptons-le comme disciple. » Après avoir parlé, il lança un regard discret à l'homme d'âge moyen.

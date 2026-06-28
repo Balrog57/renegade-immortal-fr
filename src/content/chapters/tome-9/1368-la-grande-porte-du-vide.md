@@ -14,7 +14,7 @@ Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l
 
 Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre : le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du monde. Après trois heures de raffinage par Wang Lin, il trembla et ne put plus résister !
 
-À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme d'origine du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme d'origine devenait plus puissante encore, et sa culture du tonnerre se rapprochait du sommet du stade Briseur de Nirvana.
+À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme d'origine du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme d'origine devenait plus puissante encore, et sa cultivation du tonnerre se rapprochait du sommet du stade Briseur de Nirvana.
 
 « Tonnerre Magnétique, je t'ordonne, en tant que tonnerre des cieux, de devenir mon tonnerre accompagnateur ! » rugit le Sens Divin de Wang Lin. Le cinquième type de tonnerre accompagnateur, le Tonnerre Magnétique, était très singulier. Il contenait une force magnétique colossale et dégageait une puissante force répulsive.
 
@@ -22,9 +22,9 @@ Pour l'absorber complètement, il aurait dû le raffiner pendant plusieurs jours
 
 Ils formèrent une force dévastatrice qui entra en collision avec la force magnétique. Après un rugissement violent, le Tonnerre Magnétique résista un instant avant de s'effondrer ! Dès son effondrement, l'âme d'origine de Wang Lin dévora le Tonnerre Magnétique. Toutefois, parce qu'il n'avait pas été absorbé mais dévoré après avoir cédé, il était bien plus faible que les autres types de tonnerres accompagnateurs.
 
-Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres accompagnateurs, ceux-ci tournèrent rapidement autour de son âme d'origine. À cet instant précis, sa culture passa du stade avancé du Briseur de Nirvana au sommet du Briseur de Nirvana !
+Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres accompagnateurs, ceux-ci tournèrent rapidement autour de son âme d'origine. À cet instant précis, sa cultivation passa du stade avancé du Briseur de Nirvana au sommet du Briseur de Nirvana !
 
-Une fois sa culture du tonnerre ayant atteint le sommet du Briseur de Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur : le Tonnerre Dao !
+Une fois sa cultivation du tonnerre ayant atteint le sommet du Briseur de Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur : le Tonnerre Dao !
 
 Le Clan des Disperseurs de Tonnerre avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie !
 
@@ -32,7 +32,7 @@ Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme d'
 
 Ces âmes ressentirent également l'intention Dao de Wang Lin et chargèrent son âme d'origine. Sans même que Wang Lin ait besoin de le dévorer, le Tonnerre Dao s'intégra de lui-même à son essence ! Une intégration parfaite !
 
-Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur de Nirvana ! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel !
+Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa cultivation avait atteint le paroxysme du stade Briseur de Nirvana ! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel !
 
 Les cent mille cultivateurs sur la planète qui traquaient Wang Lin remarquèrent immédiatement ce changement atmosphérique. Leurs Sens Divins fusionnèrent pour balayer toute la planète, mais ils ne trouvèrent toujours rien ! Si le Secte Zhen Yan ne les en avait pas empêchés, ces cultivateurs auraient ignoré toute forme de vie pour raffiner la planète entière afin de forcer Wang Lin à se manifester ! Des rayons de lumière emplirent le ciel ; des cultivateurs étaient partout !
 
@@ -50,7 +50,7 @@ Wang Lin était déjà fusionné avec la chaîne de montagnes. L'éruption de to
 
 Les cultivateurs qui cherchaient Wang Lin furent stupéfaits, puis exaltés alors qu'ils recommençaient leurs recherches. Plusieurs cultivateurs au stade de la Calamité Céleste travaillaient de concert, augmentant considérablement l'étendue de leurs Sens Divins.
 
-« Crapaud de Tonnerre ! Tu es une bête féroce dotée de ta propre lignée. Tu m'as suivi pendant de nombreuses années et, bien que ton niveau de culture ne soit pas élevé, tu as cultivé ma nature rebelle ! Aujourd'hui, en tant que seigneur du tonnerre, je te confère le titre de huitième type de tonnerre accompagnateur : le Tonnerre de Lignée ! Je me moque de ce qu'était le huitième type par le passé. À partir d'aujourd'hui, tu deviendras l'éternel huitième tonnerre accompagnateur ! »
+« Crapaud de Tonnerre ! Tu es une bête féroce dotée de ta propre lignée. Tu m'as suivi pendant de nombreuses années et, bien que ton niveau de cultivation ne soit pas élevé, tu as cultivé ma nature rebelle ! Aujourd'hui, en tant que seigneur du tonnerre, je te confère le titre de huitième type de tonnerre accompagnateur : le Tonnerre de Lignée ! Je me moque de ce qu'était le huitième type par le passé. À partir d'aujourd'hui, tu deviendras l'éternel huitième tonnerre accompagnateur ! »
 
 Le Sens Divin de Wang Lin était si puissant que lorsqu'il se propagea, le crapaud de tonnerre qui l'avait suivi durant d'innombrables années apparut. Le crapaud poussa un rugissement avant de se transformer en un éclair fulgurant qui chargea vers l'œil droit de Wang Lin ! En un instant, le crapaud disparut et un éclair de Tonnerre de Lignée apparut dans l'œil de Wang Lin ! Les huit types de tonnerres accompagnateurs tournaient désormais autour de son essence. Le monde changea de couleur et les nuages se dispersèrent !
 
@@ -60,7 +60,7 @@ Les cent mille cultivateurs ne ressentaient plus d'excitation, mais une terreur 
 
 « Le dernier type de tonnerre ! Je ne peux trouver ce dernier type dans ce monde, mais j'ai toujours défié les cieux tout au long de ma vie. Je refuse de me plier au destin ; je deviendrai le seigneur du monde. Je détruirai ces cieux et briserai cette terre ! J'ai combattu les cieux pour l'âme de ma femme et j'ai volé au temps lui-même. J'ai vécu ma vie en tant que cultivateur défiant le ciel. Bien que ce fût sanglant, je n'ai aucun regret. Moi, Wang Lin, ai parcouru le monde pendant deux mille ans, mais mon cœur demeure calme. Je recherche un cœur qui défie les cieux et je cultive une volonté qui défie les cieux ! »
 
-« Puisque je ne peux trouver la dernière forme de tonnerre accompagnateur, j'utiliserai toute ma vie de culture pour former le Tonnerre Défiant. Ce Tonnerre Défiant n'est jamais né auparavant, mais aujourd'hui, par mon commandement, ce monde donnera naissance au Tonnerre Défiant qui remplacera les neuf types passés et deviendra l'unique neuvième type : le Tonnerre Défiant ! »
+« Puisque je ne peux trouver la dernière forme de tonnerre accompagnateur, j'utiliserai toute ma vie de cultivation pour former le Tonnerre Défiant. Ce Tonnerre Défiant n'est jamais né auparavant, mais aujourd'hui, par mon commandement, ce monde donnera naissance au Tonnerre Défiant qui remplacera les neuf types passés et deviendra l'unique neuvième type : le Tonnerre Défiant ! »
 
 La volonté de Wang Lin était empreinte de folie et de puissance. Il se leva brusquement et scruta le ciel ! Son corps était aussi droit qu'un pin, imprégné d'une volonté défiant les cieux ! Ses yeux étaient comme des éclairs, et son aura s'élança vers la voûte céleste. Son cœur portait un défi direct contre le destin !
 

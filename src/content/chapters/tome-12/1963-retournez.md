@@ -42,7 +42,7 @@ Cette réalisation plongea Ming Dao dans une colère mêlée d'humiliation. Son 
 
 « Veux-tu réessayer ? » Wang Lin restait calme en observant l'Ascendant Empyréen Ming Dao, dont l'expression oscillait sans cesse. Plus il agissait avec indifférence, plus cela était insupportable pour Ming Dao. Ce dernier le fixait avec des yeux qui semblaient prêts à cracher du feu.
 
-« Avec un tel tempérament, comment a-t-il atteint son niveau de culture actuel ? Peut-être est-ce lié à son arrogance. Plus il perd, plus cela l'exalte. Cela lui a permis de comprendre une forme de vie déformée en endurant la douleur d'être surpassé. »
+« Avec un tel tempérament, comment a-t-il atteint son niveau de cultivation actuel ? Peut-être est-ce lié à son arrogance. Plus il perd, plus cela l'exalte. Cela lui a permis de comprendre une forme de vie déformée en endurant la douleur d'être surpassé. »
 
 « Comme un arc, plus on le courbe, plus la puissance potentielle est grande lors du déclenchement, mais... peu importe la force de l'arc, je le ferai ployer jusqu'à la rupture ! » Wang Lin regarda Ming Dao. Il n'avait pas oublié l'humiliation que ce dernier lui avait infligée. Ming Dao s'était montré très vicieux, et Wang Lin ne le laisserait pas s'en tirer ainsi.
 

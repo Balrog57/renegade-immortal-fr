@@ -14,7 +14,7 @@ Si cela n'avait été que là, il aurait pu s'en sortir, mais d'autres anomalies
 
 Sa mère le détestait et l'ignorait totalement. Il avait passé son enfance à subir brimades et maltraitances. Cependant, il n'en comprenait pas toute la portée et, face à quiconque, se contentait de sourire bêtement.
 
-Son talent rendait toute culture impossible. À l'âge de quinze ans, il fut banni de sa famille et ne fit plus partie du clan.
+Son talent rendait toute cultivation impossible. À l'âge de quinze ans, il fut banni de sa famille et ne fit plus partie du clan.
 
 Pourtant, nul n'aurait pu imaginer qu'il réapparaîtrait au sein de la lignée cinq cents ans plus tard. Son apparence n'avait guère changé ; il arborait toujours ce sourire idiot, mais il avait atteint le stade d'Ascendant !
 
@@ -24,7 +24,7 @@ Son enfance avait forgé une personnalité profondément tordue. Au fil de ces m
 
 Il était d'une prudence extrême. Lorsqu'il passait à l'acte, il veillait à ce que personne ne puisse trouver la moindre piste. Cependant, il y a trente ans, lors de l'un de ses massacres, sa famille finit par ne plus pouvoir le tolérer. L'ancêtre du stade Nirvana Scryer, au premier niveau, sortit personnellement pour l'éliminer !
 
-Chaque membre de la famille pensait que la bataille était gagnée d'avance, mais le garçon à la grosse tête libéra soudainement une culture de stade Nirvana Scryer, premier niveau. Il avait atteint ce stade depuis des décennies, mais l'avait gardé secret. Désormais, il révélait sa véritable puissance et engageait le combat contre son propre ancêtre !
+Chaque membre de la famille pensait que la bataille était gagnée d'avance, mais le garçon à la grosse tête libéra soudainement une cultivation de stade Nirvana Scryer, premier niveau. Il avait atteint ce stade depuis des décennies, mais l'avait gardé secret. Désormais, il révélait sa véritable puissance et engageait le combat contre son propre ancêtre !
 
 Au cours de cet affrontement, l'ancêtre perdit la vie, tandis que le garçon à la grosse tête, gravement blessé, prit la fuite ! Après cela, plus aucune nouvelle de lui ne parut jusqu'à la compétition céleste. Sa réapparition provoqua une onde de choc immense au sein de sa famille !
 
@@ -56,11 +56,11 @@ Le gaz noir et blanc enveloppa sa silhouette, faisant rétrécir instantanément
 
 Il cracha violemment une bouchée de sang. Ce sang n'était pas projeté au hasard : chaque goutte fonçait vers Wang Lin !
 
-Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire : c'était un cultivateur de second niveau au stade Nirvana Scryer !
+Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ ! Après tout, la cultivation du garçon à la grosse tête n'était pas dérisoire : c'était un cultivateur de second niveau au stade Nirvana Scryer !
 
 L'expression de Wang Lin resta neutre ; il ne chercha même pas à esquiver. Alors que le sang frais approchait, il murmura doucement : « Lier ! »
 
-Grâce à sa culture au stade Nirvana Scryer, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, la perle céleste laissée par Qing Shui tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde !
+Grâce à sa cultivation au stade Nirvana Scryer, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, la perle céleste laissée par Qing Shui tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde !
 
 Cela permit instantanément au sort de Liaison d'atteindre un niveau de puissance inédit depuis que Wang Lin l'avait appris !
 
@@ -98,7 +98,7 @@ En un instant, une sphère de tonnerre se forma dans sa paume, émettant des gr�
 
 En voyant ce déploiement de puissance, le garçon à la grosse tête trembla de tous ses membres. La scène qui l'avait autrefois fait craindre Wang Lin ressurgit de son passé. Cette fois, il n'était pas seulement effrayé ; il était terrifié au plus profond de son âme !
 
-« Frère Xu, mes deux mille ans de culture n'ont pas été faciles ! Si vous avez une exigence, je vous en prie, parlez ! Tant que vous ne me tuez pas, j'accepterai tout ! » Les pupilles du garçon se contractèrent alors qu'il fixait la sphère de foudre. Il n'était pas stupide. Depuis le début de l'affrontement, Wang Lin n'avait utilisé aucun sort dévastateur ; il n'était donc manifestement pas résolu à l'exécuter. S'il avait su reculer plus tôt, il aurait peut-être évité ce désastre.
+« Frère Xu, mes deux mille ans de cultivation n'ont pas été faciles ! Si vous avez une exigence, je vous en prie, parlez ! Tant que vous ne me tuez pas, j'accepterai tout ! » Les pupilles du garçon se contractèrent alors qu'il fixait la sphère de foudre. Il n'était pas stupide. Depuis le début de l'affrontement, Wang Lin n'avait utilisé aucun sort dévastateur ; il n'était donc manifestement pas résolu à l'exécuter. S'il avait su reculer plus tôt, il aurait peut-être évité ce désastre.
 
 Wang Lin répondit d'un ton calme : « J'ai besoin d'un serviteur ! »
 

@@ -86,7 +86,7 @@ Dao Yi fixa Wang Lin comme s'il cherchait à graver son visage dans sa mémoire.
 
 « Dao Yi, donne-le-lui ! » lança Jiu Di d'un ton glacial.
 
-Dao Yi savait qu'il était à bout de forces. Avec ses blessures actuelles, il lui serait déjà difficile de repousser la malédiction ancestrale. S'il tardait davantage, même s'il parvenait à s'en libérer, sa culture en serait trop endommagée. Dans un hurlement, alors que le pied de Wang Lin se relâchait, sa main droite plongea dans le vide et en extirpa un crâne de la taille d'un poing.
+Dao Yi savait qu'il était à bout de forces. Avec ses blessures actuelles, il lui serait déjà difficile de repousser la malédiction ancestrale. S'il tardait davantage, même s'il parvenait à s'en libérer, sa cultivation en serait trop endommagée. Dans un hurlement, alors que le pied de Wang Lin se relâchait, sa main droite plongea dans le vide et en extirpa un crâne de la taille d'un poing.
 
 Dao Yi lâcha le crâne et s'élança vers le ciel. Il brisa le vide et disparut sans laisser de trace.
 

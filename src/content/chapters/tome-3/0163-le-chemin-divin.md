@@ -36,9 +36,9 @@ L'Ancien au visage rouge se détourna et avança. Il s'arrêta devant un mur ver
 
 Cependant, en lisant plus bas, son cœur sombra en découvrant ces lignes : « Le disciple Chen Chong a gravé ceci de mémoire. Les futurs disciples devront cultiver avec prudence. »
 
-« Déçu ? » L'Ancien au visage rouge regarda Wang Lin et soupira. « La deuxième année suivant la découverte du Chemin Divin par mon Ancêtre, un traître a fait fuiter l'information, et la nouvelle se répandit soudainement aux quatre vents. Peu de temps après, le pays de culture de rang 4, Tian Gang, arriva. Après avoir discuté secrètement avec l'Ancêtre Gong, ils s'en emparèrent. L'Ancêtre Gong quitta alors le Sanctuaire du Dieu de la Guerre et ne revint jamais. »
+« Déçu ? » L'Ancien au visage rouge regarda Wang Lin et soupira. « La deuxième année suivant la découverte du Chemin Divin par mon Ancêtre, un traître a fait fuiter l'information, et la nouvelle se répandit soudainement aux quatre vents. Peu de temps après, le pays de cultivation de rang 4, Tian Gang, arriva. Après avoir discuté secrètement avec l'Ancêtre Gong, ils s'en emparèrent. L'Ancêtre Gong quitta alors le Sanctuaire du Dieu de la Guerre et ne revint jamais. »
 
-« Ce Chemin Divin est la méthode de culture la plus étrange que j'aie vue de toute ma vie. Quiconque le voit peut le comprendre, mais nul ne peut s'en souvenir. C'est comme si une force mystérieuse s'y opposait. »
+« Ce Chemin Divin est la méthode de cultivation la plus étrange que j'aie vue de toute ma vie. Quiconque le voit peut le comprendre, mais nul ne peut s'en souvenir. C'est comme si une force mystérieuse s'y opposait. »
 
 « Le talent de l'Ancêtre Chen Chong était très ordinaire ; il était le plus faible des disciples de l'Ancêtre Gong. Pourtant, il parvint à utiliser sa mémoire pour accomplir ce que nul ne croyait possible : graver le Chemin Divin. Une fois son œuvre achevée, il mourut. Juste avant son dernier souffle, il affirma que cette méthode était extrêmement puissante. Sa propre durée de vie n'étant pas suffisante, il n'avait pu en graver que 10 % ; d'où l'avertissement aux futurs disciples de cultiver avec prudence. »
 
@@ -88,13 +88,13 @@ Après un moment, la silhouette blanche commença à s'estomper jusqu'à dispara
 
 Wang Lin referma les yeux. Le visage pâle, il se mit à réfléchir. Quelques incantations apparurent mystérieusement dans son esprit. Après les avoir analysées, il ouvrit les yeux avec un sourire amer. Il comprenait enfin une partie du Chemin Divin.
 
-C'était une technique de culture d'avatar. Quant à la manière dont elle pouvait favoriser l'accès au stade de l'Âme Naissante, c'était par l'usage même de cet avatar : on pouvait cultiver simultanément avec le corps principal et l'avatar, pour ensuite fusionner les deux, augmentant ainsi considérablement les chances de réussite lors du passage à l'Âme Naissante.
+C'était une technique de cultivation d'avatar. Quant à la manière dont elle pouvait favoriser l'accès au stade de l'Âme Naissante, c'était par l'usage même de cet avatar : on pouvait cultiver simultanément avec le corps principal et l'avatar, pour ensuite fusionner les deux, augmentant ainsi considérablement les chances de réussite lors du passage à l'Âme Naissante.
 
-Cependant, cette technique était incomplète et comportait des failles fatales. L'avatar créé ne possédait aucune culture et sa durée de vie n'excédait pas trente ans. En somme, cette méthode s'apparentait davantage à un fardeau.
+Cependant, cette technique était incomplète et comportait des failles fatales. L'avatar créé ne possédait aucune cultivation et sa durée de vie n'excédait pas trente ans. En somme, cette méthode s'apparentait davantage à un fardeau.
 
 Parallèlement aux incantations, Chen Chong avait laissé quelques messages. Outre le fait que la technique était lacunaire et qu'il n'avait pas eu une vie assez longue pour tout graver, il proposait une solution.
 
-La solution consistait à utiliser la technique pour créer un avatar et à consommer des pilules durant ses trente années d'existence. En accumulant autant de pilules que possible, on pouvait pousser la culture de l'avatar à son paroxysme. Lors de la fusion finale, cela augmenterait légèrement les chances de percer le stade de l'Âme Naissante.
+La solution consistait à utiliser la technique pour créer un avatar et à consommer des pilules durant ses trente années d'existence. En accumulant autant de pilules que possible, on pouvait pousser la cultivation de l'avatar à son paroxysme. Lors de la fusion finale, cela augmenterait légèrement les chances de percer le stade de l'Âme Naissante.
 
 Si l'on économisait suffisamment de pilules, il serait même possible d'atteindre le stade de la Formation du Noyau avec l'avatar, augmentant ainsi drastiquement les chances de former son Âme Naissante.
 

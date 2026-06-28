@@ -24,7 +24,7 @@ En le voyant pleurer, Wang Lin ressentit une certaine compassion. Il se sentait 
 
 Le cœur de Wang Lin battait la chamade. Il mémorisa l'incantation. Puis, il murmura secrètement dans son esprit, et les passages qu'il ne comprenait pas devinrent soudainement limpides. Il pointa le ciel du doigt et une authentique Empreinte de l'Esprit Guerrier apparut. Bien qu'elle ne s'abatte pas sur lui, une pression écrasante se propagea dans l'air.
 
-En contemplant l'Empreinte de l'Esprit Guerrier, les pupilles de Wang Lin se rétractèrent et l'excitation envahit son cœur. Avec son niveau de culture, il comprit immédiatement que cette empreinte n'était pas un simple sort, mais un sort Dao !
+En contemplant l'Empreinte de l'Esprit Guerrier, les pupilles de Wang Lin se rétractèrent et l'excitation envahit son cœur. Avec son niveau de cultivation, il comprit immédiatement que cette empreinte n'était pas un simple sort, mais un sort Dao !
 
 Un sort Dao d'une puissance extrême, capable de détruire les cieux et la terre !
 
@@ -98,7 +98,7 @@ Face au fou, Wang Lin esquissa un lent sourire.
 
 Le fou sentit un pressentiment funeste en voyant Wang Lin le fixer avec ce sourire. Il se rappelait vaguement qu'après un tel sourire, il avait passé des heures à pratiquer l'Empreinte de l'Esprit Guerrier jusqu'à en perdre haleine.
 
-À cet instant précis, la planète de culture trembla et le ciel s'assombrit comme si une tempête éclatait. Un grondement tonnerre résonna et une immense silhouette apparut lentement.
+À cet instant précis, la planète de cultivation trembla et le ciel s'assombrit comme si une tempête éclatait. Un grondement tonnerre résonna et une immense silhouette apparut lentement.
 
 Le fantôme était colossal, semblable à une baleine, avec deux longues moustaches dansant au gré du vent.
 

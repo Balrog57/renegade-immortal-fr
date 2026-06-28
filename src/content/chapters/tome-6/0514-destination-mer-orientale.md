@@ -12,7 +12,7 @@ Après avoir vu Wang Lin arriver, le vieil homme poussa un soupir de soulagement
 
 « Cher cultivateur Wang Lin, s'il y a le moindre problème, nous pouvons en discuter. Ce vieil homme vous dira tout ce que vous voulez savoir sans le moindre mensonge ! »
 
-Le vieil homme trapu était impuissant, car sa culture était plus faible et ses trésors de moindre qualité. Wang Lin n'avait même pas besoin de le poursuivre ; il lui suffisait de lui lancer deux trésors pour le rendre fou de rage.
+Le vieil homme trapu était impuissant, car sa cultivation était plus faible et ses trésors de moindre qualité. Wang Lin n'avait même pas besoin de le poursuivre ; il lui suffisait de lui lancer deux trésors pour le rendre fou de rage.
 
 L'épée volante n'était pas si mal. Bien qu'elle fût extrêmement robuste, l'énergie de l'épée n'était pas très puissante. Cependant, cette robustesse même constituait un grave problème pour lui : peu importaient ses tentatives, elles n'avaient aucun effet sur l'épée volante. S'il n'avait pas été en train de courir pour sa vie, il aurait tout fait pour s'en emparer afin de l'étudier.
 
@@ -36,7 +36,7 @@ Le vieil homme n'osa pas tarder et répondit : « La Mer des Esprits Démoniaque
 
 « L'Héritage de l'Esprit Démoniaque ? » Les yeux de Wang Lin se plissèrent.
 
-« C'est exact. Cet héritage peut élever la culture d'un cultivateur d'un niveau entier. Si l'on le reçoit durant le stade de la Recherche du Dao, cela réduira les risques et augmentera considérablement les chances d'atteindre le stade Ascendant ! Bien sûr, si l'on est déjà au stade Ascendant, cela aidera tout de même à accroître son niveau de culture. Si l'on est au stade avancé de l'Ascendant, cela pourrait même aider à franchir les étapes de l'Incorporel Yin et du Corporel Yang pour obtenir un corps capable de durer des dizaines de milliers d'années ! »
+« C'est exact. Cet héritage peut élever la cultivation d'un cultivateur d'un niveau entier. Si l'on le reçoit durant le stade de la Recherche du Dao, cela réduira les risques et augmentera considérablement les chances d'atteindre le stade Ascendant ! Bien sûr, si l'on est déjà au stade Ascendant, cela aidera tout de même à accroître son niveau de cultivation. Si l'on est au stade avancé de l'Ascendant, cela pourrait même aider à franchir les étapes de l'Incorporel Yin et du Corporel Yang pour obtenir un corps capable de durer des dizaines de milliers d'années ! »
 
 « C'est pourquoi c'est un événement si majeur pour la planète Tian Yun. Beaucoup sont cupides, mais la Mer des Esprits Démoniaques de l'Est est très périlleuse. Si vous voulez les bénéfices, vous devez être prêt à payer le prix. Quiconque est autorisé à y entrer fait partie des plus exceptionnels de sa génération ! Il existe même une rumeur selon laquelle une seule personne pourrait en ressortir. Si... quelqu'un parvient à cet exploit, il obtiendra une récompense sans précédent... un sort céleste de basse qualité ! »
 

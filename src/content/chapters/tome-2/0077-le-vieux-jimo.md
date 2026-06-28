@@ -26,7 +26,7 @@ Les fissures commencèrent à se refermer, parvenant à contenir l'attaque de l'
 
 Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça qu'à moitié ; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau.
 
-Une lueur froide traversa les yeux de Wang Lin. C'était la première fois qu'il affrontait un adversaire ayant le même niveau de culture que lui. Bien que leurs niveaux soient identiques, son opposant possédait manifestement de meilleurs trésors magiques. Wang Lin sentait que l'épée était devenue bien plus puissante et que le jade de Zhou Peng ne pourrait pas résister.
+Une lueur froide traversa les yeux de Wang Lin. C'était la première fois qu'il affrontait un adversaire ayant le même niveau de cultivation que lui. Bien que leurs niveaux soient identiques, son opposant possédait manifestement de meilleurs trésors magiques. Wang Lin sentait que l'épée était devenue bien plus puissante et que le jade de Zhou Peng ne pourrait pas résister.
 
 Sans hésiter, il frappa son sac de rangement et en sortit un jade antique. Dès son apparition, ce dernier libéra une aura majestueuse.
 
@@ -74,7 +74,7 @@ Wang Lin agita la main. Les trois symboles tremblèrent ; deux d'entre eux se di
 
 Wang Lin rangea soigneusement le morceau de jade dans son sac de rangement. À l'origine, ce jade ne possédait qu'une seule attaque, mais grâce à l'aide de Situ Nan, il avait réussi à la diviser en neuf charges. Bien que chaque attaque fût moins puissante, cela lui permettait de s'en servir plus fréquemment.
 
-Une fois terminé, il prit une grande inspiration. Son front était couvert de sueur. Ce fut le combat le plus acharné qu'il ait eu à mener depuis le début de sa culture. Il activa alors la technique d'attraction pour récupérer l'épée volante et son fourreau afin de les examiner.
+Une fois terminé, il prit une grande inspiration. Son front était couvert de sueur. Ce fut le combat le plus acharné qu'il ait eu à mener depuis le début de sa cultivation. Il activa alors la technique d'attraction pour récupérer l'épée volante et son fourreau afin de les examiner.
 
 « Wang Lin, si je n'ai pas agi plus tôt, ce n'est pas par manque de volonté, mais parce que mon essence d'Âme Naissante est limitée ; elle ne peut être gaspillée sans discernement. De plus, tu dois vivre ces combats de vie ou de mort pour progresser à l'avenir. » Cette fois, la voix de Situ Nan était empreinte d'un sérieux inhabituel.
 

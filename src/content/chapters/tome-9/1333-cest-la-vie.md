@@ -62,15 +62,15 @@ C'était comme une demeure mortelle dont on aurait retiré le toit. À l'intéri
 
 « Grand-père Xu est là ! Il est imposant, magnifique, inégalé, beau et incomparable ! » Les rugissements des cultivateurs aux côtés de Xu Liguo résonnèrent, dégageant une aura de puissance absolue qui tira l'homme d'âge moyen de sa stupeur terrifiée.
 
-« Obéissez à Grand-père Xu et remettez tout ce qui peut être échangé contre des cristaux de tonnerre. Désobéissez, et Grand-père Xu détruira votre culture et vous emprisonnera à vie ! » hurlèrent immédiatement les deux cultivateurs de la Formation du Noyau aux voix les plus fortes.
+« Obéissez à Grand-père Xu et remettez tout ce qui peut être échangé contre des cristaux de tonnerre. Désobéissez, et Grand-père Xu détruira votre cultivation et vous emprisonnera à vie ! » hurlèrent immédiatement les deux cultivateurs de la Formation du Noyau aux voix les plus fortes.
 
 L'homme d'âge moyen fixa le trône, abasourdi. L'imposante structure exerçait sur lui une pression colossale. Il déglutit difficilement et s'inclina respectueusement en joignant les mains : « Ce disciple remettra tout. »
 
 Xu Liguo rit de bon cœur. Il regarda l'homme et sourit : « Bien. Désormais, suivez Grand-père Xu. Je veux savoir, où puis-je trouver des cultivatrices ? »
 
-L'homme sentit son cuir chevelu picoter sous le regard de Xu Liguo ; un mauvais pressentiment l'assaillit, mais il ne savait que faire. Entendant la question, il répondit précipitamment : « S'il s'agit de cultivatrices, il existe une secte à 5 000 kilomètres d'ici appelée la Secte du Tonnerre Céleste. Elle regorge de femmes et sa maîtresse est d'une beauté extrême ! Cependant, son niveau de culture est très élevé... On dit qu'elle entretient des liens avec un membre éminent du clan... »
+L'homme sentit son cuir chevelu picoter sous le regard de Xu Liguo ; un mauvais pressentiment l'assaillit, mais il ne savait que faire. Entendant la question, il répondit précipitamment : « S'il s'agit de cultivatrices, il existe une secte à 5 000 kilomètres d'ici appelée la Secte du Tonnerre Céleste. Elle regorge de femmes et sa maîtresse est d'une beauté extrême ! Cependant, son niveau de cultivation est très élevé... On dit qu'elle entretient des liens avec un membre éminent du clan... »
 
-Dès que Xu Liguo entendit le mot « beauté », ses yeux s'illuminèrent et il fit fi du niveau de culture de la femme. Il agita la main et rugit : « Montrez-moi le chemin ! Venez avec Grand-père Xu pour piller les gens ! Piller les trésors ! »
+Dès que Xu Liguo entendit le mot « beauté », ses yeux s'illuminèrent et il fit fi du niveau de cultivation de la femme. Il agita la main et rugit : « Montrez-moi le chemin ! Venez avec Grand-père Xu pour piller les gens ! Piller les trésors ! »
 
 Le groupe s'élança dans les airs. Le trône géant brillait sous le soleil, et l'on entendait les rires arrogants de Xu Liguo mêlés aux rugissements des cent compagnons.
 
@@ -84,13 +84,13 @@ Pensant ainsi, Big Red gagna en assurance et en enthousiasme, tout en restant se
 
 « Malédiction, si Senior n'avait eu que moi à ses côtés, ce serait une bénédiction. Je ne m'attendais pas à croiser ce Xu Liguo qui pratique lui aussi l'art invincible. Son niveau est supérieur au mien et il est d'une impudence sans nom. Il a forcément utilisé l'art invincible pour atteindre un tel stade ! »
 
-« Cependant, moi, Big Red, je ne reculerai pas. Bien que mon niveau de culture soit inférieur, j'ai étudié secrètement l'art invincible pendant des centaines d'années et je n'avais pas pu en déployer toute la puissance auparavant. Maintenant que Xu Liguo est là, je dois utiliser 120 % de mes capacités pour l'affronter ! Le vainqueur n'est pas encore décidé ! »
+« Cependant, moi, Big Red, je ne reculerai pas. Bien que mon niveau de cultivation soit inférieur, j'ai étudié secrètement l'art invincible pendant des centaines d'années et je n'avais pas pu en déployer toute la puissance auparavant. Maintenant que Xu Liguo est là, je dois utiliser 120 % de mes capacités pour l'affronter ! Le vainqueur n'est pas encore décidé ! »
 
 Big Red ricana tout en dirigeant ses hommes pour piller plusieurs grottes. Dans son cœur, il préparait déjà ses arguments pour Wang Lin afin de pouvoir invoquer l'art invincible à tout moment.
 
 « Mon talent pour l'art invincible est immense. Je ne crois pas être incapable de battre Xu Liguo ! »
 
-Pendant que Xu Liguo et Big Red collectaient leurs ressources, Wang Lin était assis dans le Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Éparpillé.
+Pendant que Xu Liguo et Big Red collectaient leurs ressources, Wang Lin était assis dans le Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de cultivation propres au Clan du Tonnerre Éparpillé.
 
 Cette technique s'appelait le Grand Sceau du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice ! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
 

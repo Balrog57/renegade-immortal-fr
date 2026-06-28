@@ -20,7 +20,7 @@ Les cultivateurs du Fleuve Invoqué affichaient tous une expression grave ; ils 
 
 Une cultivatrice à l'allure de lettrée, vêtue d'une longue tunique, se tenait sur un éclair en forme de dragon. Ses cheveux flottaient au vent, révélant un visage d'une grande beauté. À ses côtés, une superbe femme d'âge mûr suivait silencieusement le mouvement sur un autre éclair !
 
-Du côté d'Allheaven, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de culture. Ils venaient de diverses familles, mais ils étaient unis par un seul but ! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée !
+Du côté d'Allheaven, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de cultivation. Ils venaient de diverses familles, mais ils étaient unis par un seul but ! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée !
 
 À cet instant, ils n'étaient plus des cultivateurs du Fleuve Invoqué ou d'Allheaven ; ils étaient tous les membres des cultivateurs du Royaume Intérieur !
 

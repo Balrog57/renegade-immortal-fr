@@ -70,19 +70,19 @@ Le Maître du Vide esquissa un mince sourire et hocha la tête. « Ling Tianhou 
 
 L'Omniscient observa la Formation des Neuf Dragons et déclara d'un ton calme : « Je n'étais pas confiant en mes seules forces, mais puisque le Collègue Cultivateur Vide est ici, ce voyage ne devrait poser aucun problème ! »
 
-Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part et d'autre de la formation. Il s'agissait du Couple de Culture Céleste et de Wang Lin.
+Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part et d'autre de la formation. Il s'agissait du Couple de Cultivation Céleste et de Wang Lin.
 
 Une silhouette illusoire suivait le couple de cultivateurs célestes. Derrière Wang Lin se trouvaient Situ Nan, Maître Hollow Wind et leurs compagnons. Dès que les deux groupes furent face à face, ils commencèrent à jauger leurs adversaires.
 
 À l'instant où Wang Lin apparut, la silhouette derrière Wang Wei trembla en l'observant attentivement. Ses yeux trahissaient un mélange de regret et de satisfaction.
 
-Le regard de Wang Lin se posa sur le Couple de Culture Céleste. Il les avait déjà vus, sans pour autant les connaître, mais il reconnut immédiatement l'ombre derrière eux : c'était Zhou Yi !
+Le regard de Wang Lin se posa sur le Couple de Cultivation Céleste. Il les avait déjà vus, sans pour autant les connaître, mais il reconnut immédiatement l'ombre derrière eux : c'était Zhou Yi !
 
 Wang Wei observa Wang Lin avec intérêt et sourit. « Tu es Wang Lin, celui qui a pris la clé de la quatrième grotte ? »
 
-L'expression de Wang Lin était calme, mais ses yeux étaient empreints de prudence. Il ne parvenait pas à sonder le niveau de culture de l'homme devant lui, et celle qui accompagnait cet homme possédait elle aussi une culture indéchiffrable.
+L'expression de Wang Lin était calme, mais ses yeux étaient empreints de prudence. Il ne parvenait pas à sonder le niveau de cultivation de l'homme devant lui, et celle qui accompagnait cet homme possédait elle aussi une cultivation indéchiffrable.
 
-« Le Couple de Culture Céleste ! » Wang Lin avait entendu parler d'eux par Yao Xixue. Une fois qu'ils avaient pris le contrôle d'une grotte, ils n'en étaient jamais sortis. Ces deux-là devaient être ce couple.
+« Le Couple de Cultivation Céleste ! » Wang Lin avait entendu parler d'eux par Yao Xixue. Une fois qu'ils avaient pris le contrôle d'une grotte, ils n'en étaient jamais sortis. Ces deux-là devaient être ce couple.
 
 Wang Lin répondit calmement : « C'est bien moi. »
 
@@ -100,11 +100,11 @@ Au passage du regard de Wang Lin, les yeux de Zhou Yi brillèrent furtivement. W
 
 À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte du Vide Brillant.
 
-La femme arriva et inspecta les lieux. Elle salua d'abord l'Omniscient, observa attentivement le Couple de Culture Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
+La femme arriva et inspecta les lieux. Elle salua d'abord l'Omniscient, observa attentivement le Couple de Cultivation Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
 
 L'expression de l'Omniscient demeura imperturbable, bien qu'il fronçât les sourcils.
 
-Deux vieillards suivirent la femme : l'un était assis sur une gourde, l'autre était un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Culture Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de l'Omniscient.
+Deux vieillards suivirent la femme : l'un était assis sur une gourde, l'autre était un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Cultivation Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de l'Omniscient.
 
 Quant à l'homme en noir, il resta silencieux aux côtés de Wang Lin et de son groupe.
 
@@ -130,7 +130,7 @@ Son crâne était parfaitement lisse, sans un seul cheveu, et l'énergie spiritu
 
 « Bei Lou... » L'expression de Wang Lin resta calme tandis qu'il hochait la tête. « Tu n'es pas en retard, tu tombes à point nommé. »
 
-L'apparition du jeune homme chauve fit se rétracter les pupilles du Maître du Vide. Une lueur de froideur passa dans les yeux du Couple de Culture Céleste.
+L'apparition du jeune homme chauve fit se rétracter les pupilles du Maître du Vide. Une lueur de froideur passa dans les yeux du Couple de Cultivation Céleste.
 
 Seul l'Omniscient laissa poindre un sourire.
 

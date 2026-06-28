@@ -36,7 +36,7 @@ Sur ce lit reposait un corps qui ressemblait à une montagne de graisse. L'homme
 
 « Tu connais ce vieil homme ? » L'homme gras observa les innombrables corps derrière Wang Lin et fronça les sourcils. Il demanda : « Camarade cultivateur, ces mortels t'ont-ils importuné au point que tu aies dû tous les massacrer ? » À ses yeux, Wang Lin était son semblable, n'étant qu'au début du stade de l'Âme Naissante ; il ne le considérait donc pas comme une menace.
 
-Ji Mo avait semé la terreur dans le pays de Zhao pendant longtemps. Depuis qu'il avait atteint le stade de l'Âme Naissante, hormis quelques cultivateurs au stade avancé, il ne pensait que peu d'autres être une menace pour lui. Cela était dû en grande partie aux arts sombres secrets qu'il pratiquait. Cette méthode de culture était dédiée à la création de marionnettes ; ainsi, bien qu'il ne fût qu'au début du stade de l'Âme Naissante, il possédait plusieurs marionnettes façonnées à partir des restes d'anciens cultivateurs.
+Ji Mo avait semé la terreur dans le pays de Zhao pendant longtemps. Depuis qu'il avait atteint le stade de l'Âme Naissante, hormis quelques cultivateurs au stade avancé, il ne pensait que peu d'autres être une menace pour lui. Cela était dû en grande partie aux arts sombres secrets qu'il pratiquait. Cette méthode de cultivation était dédiée à la création de marionnettes ; ainsi, bien qu'il ne fût qu'au début du stade de l'Âme Naissante, il possédait plusieurs marionnettes façonnées à partir des restes d'anciens cultivateurs.
 
 En réalité, Ji Mo étudiait cela depuis longtemps et cherchait sans cesse des sujets comme des zombies pour les raffiner.
 
@@ -60,7 +60,7 @@ Le corps de Ji Mo trembla. Il eut le pressentiment que le pire allait arriver et
 
 Wang Lin ne l'arrêta pas, mais frappa son sac de rangement pour en sortir le drapeau de restriction. D'un geste, le drapeau couvrit instantanément une zone de 1000 kilomètres.
 
-L'expression de Ji Mo s'assombrit brusquement. Il fixa Wang Lin et aboya : « Quel est le sens de tout cela ? Je n'ai pas interféré avec vous ni avec la famille Teng ! Votre niveau de culture est le même que le mien, ne croyez pas que je vous crains ! »
+L'expression de Ji Mo s'assombrit brusquement. Il fixa Wang Lin et aboya : « Quel est le sens de tout cela ? Je n'ai pas interféré avec vous ni avec la famille Teng ! Votre niveau de cultivation est le même que le mien, ne croyez pas que je vous crains ! »
 
 Wang Lin regarda calmement le vieil homme. Il esquissa un sourire sarcastique : « Il y a 400 ans, votre plus jeune disciple est mort subitement. Vous en souvenez-vous toujours ? »
 
@@ -72,7 +72,7 @@ Les traits gras du visage de Ji Mo se contractèrent tandis qu'il feignait un so
 
 Pourtant, sa main était déjà sur son sac de rangement. Quatre volutes de fumée noire émergèrent à ses côtés. Entre les brumes, on pouvait distinguer des marionnettes momifiées. Normalement, Ji Mo n'utilisait jamais cette technique lors d'un combat ; cela prouvait à quel point il redoutait Wang Lin.
 
-Chacune de ces marionnettes possédait un niveau de culture proche du début du stade de l'Âme Naissante, mais Wang Lin ne lui accorda aucune attention : « Après cela, Zhang Hu et moi avons été pourchassés par Teng Lu. Je pense que vous devriez vous souvenir de ce qui s'est passé à l'époque. »
+Chacune de ces marionnettes possédait un niveau de cultivation proche du début du stade de l'Âme Naissante, mais Wang Lin ne lui accorda aucune attention : « Après cela, Zhang Hu et moi avons été pourchassés par Teng Lu. Je pense que vous devriez vous souvenir de ce qui s'est passé à l'époque. »
 
 Ji Mo était troublé. Après un moment, il soupira : « En réalité, je... » Alors qu'il parlait, ses yeux s'illuminèrent et son corps gras bondit hors de la calèche. Tout en s'élevant en arrière, il projeta quatre gouttes de sang qui frappèrent les marionnettes.
 
@@ -84,9 +84,9 @@ Soudain, huit restrictions surgirent de l'obscurité, couvrant la zone et encerc
 
 Bien que gras, Ji Mo n'était pas lent. Il s'enfuit rapidement, tentant même la téléportation, mais peu importaient ses efforts, Wang Lin restait obstinément sur ses talons.
 
-Ji Mo serra les dents et cessa de fuir. Sa main forma un sceau et son corps trembla. La graisse de son corps commença à bouger étrangement ; elle semblait être absorbée par lui-même tandis que sa silhouette s'affinait. À mesure qu'il absorbait cette masse, son aura décuplait. Ses cheveux s'agitèrent sans vent et son énergie spirituelle augmenta brusquement. Son niveau de culture passa du début au milieu du stade de l'Âme Naissante.
+Ji Mo serra les dents et cessa de fuir. Sa main forma un sceau et son corps trembla. La graisse de son corps commença à bouger étrangement ; elle semblait être absorbée par lui-même tandis que sa silhouette s'affinait. À mesure qu'il absorbait cette masse, son aura décuplait. Ses cheveux s'agitèrent sans vent et son énergie spirituelle augmenta brusquement. Son niveau de cultivation passa du début au milieu du stade de l'Âme Naissante.
 
-Finalement, l'homme face à Wang Lin était un homme d'âge moyen à l'allure imposante et très beau. Ses sourcils étaient épais, ses yeux larges, et il dégageait une aura puissante. Son niveau de culture bondit au sommet du stade intermédiaire de l'Âme Naissante, n'étant plus qu'à un pas du stade avancé.
+Finalement, l'homme face à Wang Lin était un homme d'âge moyen à l'allure imposante et très beau. Ses sourcils étaient épais, ses yeux larges, et il dégageait une aura puissante. Son niveau de cultivation bondit au sommet du stade intermédiaire de l'Âme Naissante, n'étant plus qu'à un pas du stade avancé.
 
 Il fixa Wang Lin et dit d'une voix basse : « Vous devriez vous sentir honoré. Vous êtes le premier à voir ma véritable forme depuis que j'ai atteint l'Âme Naissante. Il y a trop peu d'experts dans les parages, je suis donc réticent à vous tuer. Si vous aviez eu 80 ou 100 ans de plus, vous auriez peut-être eu le temps de croître. Faisons un marché : si vous me sacrifiez un bras, je vous laisserai la vie sauve pour un siècle. J'espère que dans cent ans, vous serez assez puissant pour m'affronter. J'ai hâte ! »
 

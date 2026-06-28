@@ -30,7 +30,7 @@ Privée d'injection de force vitale, l'Âme Naissante de Li Muwan commença à s
 
 « Continue d'absorber ma durée de vie... » Wang Lin regarda Li Muwan d'un regard empreint de douceur. Cette femme l'avait attendu pendant des centaines d'années pour une simple promesse.
 
-Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de culture. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il réalisa qu'il l'avait toujours aimée.
+Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de cultivation. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il réalisa qu'il l'avait toujours aimée.
 
 Il la regarda, se remémorant les instants de vie ou de mort et la tristesse d'être sans foyer...
 
@@ -52,7 +52,7 @@ Il prit une profonde inspiration et une force encore plus intense jaillit de son
 
 Un regard froid et impitoyable, chargé d'une aura de mort, jaillit de ses yeux et se posa sur Wang Lin.
 
-Dans le Système Stellaire de l'Alliance, sur une planète de culture, le corps original de Wang Lin se cachait au sein d'une secte, feignant d'être un disciple de bas niveau. En cet instant, il était assis en position du lotus alors qu'une immense quantité de sa force vitale se dissipait.
+Dans le Système Stellaire de l'Alliance, sur une planète de cultivation, le corps original de Wang Lin se cachait au sein d'une secte, feignant d'être un disciple de bas niveau. En cet instant, il était assis en position du lotus alors qu'une immense quantité de sa force vitale se dissipait.
 
 Cependant, son corps original ne cherchait pas à l'arrêter ; il se contenta de lever les yeux vers le ciel et resta silencieux.
 

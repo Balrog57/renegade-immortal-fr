@@ -36,7 +36,7 @@ Il devait y avoir une raison pour qu'un homme sur le point de mourir mente. Et W
 
 « Quel genre de jade et quelle recette pourraient pousser deux cultivateurs du stade de Nettoyage du Nirvana à se battre à mort ? Cela a même poussé un cultivateur du stade intermédiaire à oser tenter de tuer un cultivateur du stade avancé... »
 
-« Son intention initiale était de mourir par autodestruction afin que l'ouverture de son espace de stockage disparaisse avec lui. Cependant, pour quiconque possède un niveau de culture suffisamment élevé, il n'est pas difficile d'extraire quelque chose d'un espace de stockage fermé. »
+« Son intention initiale était de mourir par autodestruction afin que l'ouverture de son espace de stockage disparaisse avec lui. Cependant, pour quiconque possède un niveau de cultivation suffisamment élevé, il n'est pas difficile d'extraire quelque chose d'un espace de stockage fermé. »
 
 « De plus, d'après ses paroles, il m'a manifestement pris pour une secte entière plutôt que pour un simple individu... À en juger par cela, la lutte pour le jade et la recette est une guerre entre des sectes... Il a dit que ses disciples avaient été empoisonnés par la Vieille Poison de la Secte aux Cinq Poisons... La vieille femme que j'ai tuée plus tôt devait être elle. »
 
@@ -68,7 +68,7 @@ En particulier, une phrase de cette recette résonna avec force dans son esprit.
 
 « Celui qui consomme cette pilule a 10 % de chances de transformer la Loi en Origine Source et d'atteindre ce que nous, cultivateurs, appelons la troisième étape ! Il a 50 % de chances de surmonter l'Affliction Céleste ! Et il a 80 % de chances d'entrer dans le Royaume Shi ! »
 
-Il fallut beaucoup de temps à Wang Lin pour retrouver son sang-froid. Il rangea promptement le jade et l'os dans son espace de stockage. Il n'avait pas le temps d'en analyser les détails, mais il était intimement convaincu que ces objets suffiraient à provoquer une véritable calamité dans le monde de la culture !
+Il fallut beaucoup de temps à Wang Lin pour retrouver son sang-froid. Il rangea promptement le jade et l'os dans son espace de stockage. Il n'avait pas le temps d'en analyser les détails, mais il était intimement convaincu que ces objets suffiraient à provoquer une véritable calamité dans le monde de la cultivation !
 
 Pour l'instant, la nouvelle de cette recette ne s'était pas encore propagée, mais à mesure que la bataille ferait rage, elle finirait par ébranler l'intégralité de la Mer de Nuages.
 
@@ -98,7 +98,7 @@ Pourtant, son cœur battait encore la chamade, comme s'il était dans un rêve. 
 
 Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer de Nuages. Cela serait vrai même au sein de l'Alliance ou d'Allheaven, car cette recette était de nature à rendre les cultivateurs fous !
 
-En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur de Nirvana et se préparant pour leur Affliction Céleste, feraient n'importe quoi pour obtenir une telle pilule.
+En particulier les vieux monstres, toujours en cultivation solitaire, ayant atteint le sommet du stade de Briseur de Nirvana et se préparant pour leur Affliction Céleste, feraient n'importe quoi pour obtenir une telle pilule.
 
 « Je ne dois laisser personne découvrir que cet objet est entre mes mains ! » Wang Lin traversa rapidement la région de rang 5, n'osant pas déployer son sens divin. Il pressentait que de nombreux cultivateurs se précipitaient vers le continent sauvage en ce moment même dans cette zone.
 

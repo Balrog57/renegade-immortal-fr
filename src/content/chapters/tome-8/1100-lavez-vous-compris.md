@@ -22,7 +22,7 @@ Les deux s'observèrent durant un long moment. La férocité sur le visage de Ma
 
 « Les cultivateurs s'opposent aux cieux. Puisque nous empruntons cette voie sans retour, il est inévitable que nous disparaissions un jour. Je le comprends bien... Lorsque vous avez invité les trois d'entre nous dans la Terre des Esprits Démoniaques, vous ne nous avez pas forcés ; nous étions tous volontaires. Je le comprends également... » Maître Yi Chen affichait une expression amère en regardant les cruches de vin éparpillées autour de lui. Il en saisit quelques-unes pour constater qu'elles étaient vides.
 
-Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce dernier prit une grande gorgée, et des larmes coulèrent sur ses joues tandis qu'il murmurait : « Je me déteste d'avoir un niveau de culture si bas. Je me hais de n'avoir aucun moyen de ressusciter mes deux frères. Je me hais de ne pas pouvoir me venger et de les avoir injustement lésés ! »
+Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce dernier prit une grande gorgée, et des larmes coulèrent sur ses joues tandis qu'il murmurait : « Je me déteste d'avoir un niveau de cultivation si bas. Je me hais de n'avoir aucun moyen de ressusciter mes deux frères. Je me hais de ne pas pouvoir me venger et de les avoir injustement lésés ! »
 
 À cet instant, Ling Er apporta du vin depuis la ville. Les yeux rougis par l'émotion, elle posa délicatement les cruches à côté de Maître Yi Chen.
 
@@ -50,7 +50,7 @@ Le temps passa lentement. Après avoir quitté Maître Yi Chen, Wang Lin s'assit
 
 N'étant pas capable de percer les mystères de la vie et de la mort, il devait endurer plus de mille ans de douleur et de solitude. Et il allait devoir continuer d'endurer...
 
-Il luttait contre cette douleur dans son cœur tout en arpentant le vaste chemin de la culture dont on ne voyait pas la fin.
+Il luttait contre cette douleur dans son cœur tout en arpentant le vaste chemin de la cultivation dont on ne voyait pas la fin.
 
 Hormis les crépitements de la fumée noire s'élevant du volcan, on entendait seulement le crépitement des flammes. À part cela, tout était plongé dans un silence absolu.
 
@@ -68,13 +68,13 @@ Il ressentit une immense solitude en regardant silencieusement celle qui l'avait
 
 Bien que cette chaleur fût infime, elle s'intégra à l'âme originelle de Wang Lin. C'était comme une illusion provenant de l'autre rive d'un fleuve qui pourrait disparaître à tout instant, mais que l'on refusait de quitter du regard, même si ce fleuve était celui de la vie et de la mort.
 
-La femme dans le cercueil avait été le seul espoir de Wang Lin durant ses mille ans de culture. En la fixant, il semblait tout oublier.
+La femme dans le cercueil avait été le seul espoir de Wang Lin durant ses mille ans de cultivation. En la fixant, il semblait tout oublier.
 
 « Quand tu t'éveilleras... Nous trouverons un refuge que nul autre ne pourra découvrir et nous nous y installerons tranquillement... » Un sourire doux apparut sur les lèvres de Wang Lin. Ce désir si modeste était son plus grand souhait.
 
 « L'ancien moi ne comprenait pas... Mais maintenant, je comprends... » murmura Wang Lin, tandis qu'un profond sentiment de tristesse et de mélancolie se dégageait de son corps.
 
-Auparavant, il ne saisissait pas vraiment les sentiments qui unissaient Zhou Yi et Qing Shuang. Cependant, après plus de mille ans de culture et une solitude infinie, Wang Lin avait compris.
+Auparavant, il ne saisissait pas vraiment les sentiments qui unissaient Zhou Yi et Qing Shuang. Cependant, après plus de mille ans de cultivation et une solitude infinie, Wang Lin avait compris.
 
 C'était une forme d'espoir spirituel, une sorte de persévérance et de lutte, mais aussi un sentiment de refus obstiné !
 

@@ -42,7 +42,7 @@ Sa progression paraissait lente, mais en réalité, chaque pas couvrait de vaste
 
 Wang Lin ne se rendit pas dans le Royaume Céleste de la Pluie. Ce n'était pas par manque de volonté, mais par manque de temps. Il passa devant l'entrée cachée du Royaume Céleste de la Pluie et jeta un regard en arrière. Il devait d'abord aller chercher le fou.
 
-À l'autre extrémité du Vide Brillant se trouvait une planète. Ce n'était pas la planète Suzaku, mais une planète de culture de rang 7. Elle était entourée de plusieurs planètes plus petites et paraissait très paisible de loin. Comme cette zone était assez déserte, peu de cultivateurs s'y rendaient.
+À l'autre extrémité du Vide Brillant se trouvait une planète. Ce n'était pas la planète Suzaku, mais une planète de cultivation de rang 7. Elle était entourée de plusieurs planètes plus petites et paraissait très paisible de loin. Comme cette zone était assez déserte, peu de cultivateurs s'y rendaient.
 
 En ce moment même, dans une cité mortelle de cette planète, l'automne était déjà là. Un vent froid balayait la ville, comme s'il avait emporté quelque chose avant de repartir.
 

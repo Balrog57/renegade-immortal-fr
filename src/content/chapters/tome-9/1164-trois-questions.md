@@ -8,7 +8,7 @@ slug: trois-questions
 ---
 Une bête spirituelle gigantesque, longue d'environ 3 000 pieds, se déplaçait dans le brouillard stellaire de la région de rang 5. Cette créature ressemblait à un tigre et possédait une corne unique de plus de 100 pieds de long qui émettait un éclat glacial.
 
-Plus de trente personnes étaient assises sur le dos du tigre. Elles étaient toutes calmes, pratiquant leur culture les yeux fermés. Parmi elles se trouvaient des hommes et des femmes, dégageant chacune des fluctuations de leur propre culture.
+Plus de trente personnes étaient assises sur le dos du tigre. Elles étaient toutes calmes, pratiquant leur cultivation les yeux fermés. Parmi elles se trouvaient des hommes et des femmes, dégageant chacune des fluctuations de leur propre cultivation.
 
 Un homme se tenait aux côtés du tigre à la corne. C'était un homme d'âge moyen, vêtu d'une robe violette qui flottait sans qu'aucun vent ne souffle. Les mains derrière le dos, il fixait le brouillard stellaire qui s'étendait devant lui. Nul ne savait ce qu'il pensait.
 
@@ -40,7 +40,7 @@ Le vieil homme hésita un instant avant de murmurer : « Selon les enquêtes, c'
 
 Le vieil homme fut interdit. Après une réflexion approfondie, il questionna : « Pourrait-il y avoir quelqu'un d'autre ? »
 
-« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore ? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement : « Comment cette Vieille Poisonneuse pourrait-elle résister à Shi Luoxing sans être découverte, compte tenu de son niveau de culture ? Et comment aurait-elle pu tuer le Noble Argent du Secte de la Fleur Claire tout en s'échappant ? »
+« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore ? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement : « Comment cette Vieille Poisonneuse pourrait-elle résister à Shi Luoxing sans être découverte, compte tenu de son niveau de cultivation ? Et comment aurait-elle pu tuer le Noble Argent du Secte de la Fleur Claire tout en s'échappant ? »
 
 « Le Noble Argent du Secte de la Fleur Claire était un cultivateur au stade Briseur de Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs du Secte de la Fleur Claire ? »
 

@@ -12,7 +12,7 @@ Chapitre 1883 - Trahison du Continent Taureau Céleste !
 
 Par conséquent, il ne pouvait rester sans réagir. Même si l'interlocuteur était le Maître de la Secte Gui Yi, il comptait bien les remettre en question.
 
-« Ton niveau de culture est le plus bas, une seule armure suffit donc. Cette décision a été prise conjointement par la Secte Gui Yi et le Grand Secte de l'Âme. Tu n'as pas à la comprendre, mais tu dois l'accepter. Si cette armure d'élément feu ne te plaît pas, alors ce vieil homme la reprendra. » La voix majestueuse résonna de nouveau. L'armure de feu flottante se transforma en un océan de flammes avant de retourner dans le grand hall.
+« Ton niveau de cultivation est le plus bas, une seule armure suffit donc. Cette décision a été prise conjointement par la Secte Gui Yi et le Grand Secte de l'Âme. Tu n'as pas à la comprendre, mais tu dois l'accepter. Si cette armure d'élément feu ne te plaît pas, alors ce vieil homme la reprendra. » La voix majestueuse résonna de nouveau. L'armure de feu flottante se transforma en un océan de flammes avant de retourner dans le grand hall.
 
 Wang Lin fixa le grand hall et dit lentement : « Puisque cette décision a été prise entre les deux sectes, en avez-vous la preuve ? »
 
@@ -52,7 +52,7 @@ Une lueur de froideur traversa le regard de Wang Lin. D'innombrables pensées tr
 
 Le changement d'attitude de l'Ancêtre Vert Taureau et les difficultés imposées par la Secte Gui Yi... Quelque chose dont Wang Lin n'avait pas conscience était en train de se jouer.
 
-Il sentait même que s'il remettait l'armure d'âme, il lui serait très difficile de quitter la Secte Gui Yi. Sans le renforcement de culture offert par l'armure, il se retrouverait dans une situation périlleuse.
+Il sentait même que s'il remettait l'armure d'âme, il lui serait très difficile de quitter la Secte Gui Yi. Sans le renforcement de cultivation offert par l'armure, il se retrouverait dans une situation périlleuse.
 
 Ce sentiment était viscéral. En vérité, Wang Lin ne voulait pas garder l'armure pour lui seul. Son plan initial était d'accomplir les trois conditions pour rembourser ces trois cadeaux, puis de laisser l'armure et partir seul.
 
@@ -70,17 +70,17 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Edge Cloud. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire ne laissant apparaître que ses yeux et ses cheveux blancs qui flottaient sans qu'aucun vent ne soufflât.
 
-Le niveau de culture de Wang Lin bondit soudainement du stade avancé de l'Espace Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
+Le niveau de cultivation de Wang Lin bondit soudainement du stade avancé de l'Espace Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
 Des grondements de tonnerre résonnèrent sur la place de la Secte Gui Yi alors que l'empreinte démoniaque s'effondrait. La main noire trembla et la moitié de sa masse se désintégra, mais le reste finit par percuter Wang Lin.
 
-Avec son niveau de culture actuel, après avoir été frappé par les vestiges de la main noire, le visage de Wang Lin pâlit et du sang jaillit du coin de sa bouche tandis qu'il reculait rapidement.
+Avec son niveau de cultivation actuel, après avoir été frappé par les vestiges de la main noire, le visage de Wang Lin pâlit et du sang jaillit du coin de sa bouche tandis qu'il reculait rapidement.
 
 « Wang Lin a trahi le Continent Taureau Céleste ! Émettez l'Ordre de l'Âme ! Tous les cultivateurs du Continent Taureau Céleste peuvent le tuer sur-le-champ ! Quiconque l'exécutera sera récompensé par l'armure d'élément feu, la Voile Fantôme de la Secte du Grand Âme et une Perle de Taureau Céleste ! »
 
 Alors qu'il était repoussé, Wang Lin entendit ces mots. Il serra les dents, envahi par une émotion indescriptible. Il avait le sentiment diffus que ces trois objets étaient, à l'origine, ses propres récompenses...
 
-À la suite de cette annonce, l'expression d'Edge Cloud changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin !
+À la suite de cette annonce, l'expression d'Edge Cloud changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de cultivation augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin !
 
 S'il était si déterminé, c'était à cause de la Perle de Taureau Céleste !
 
@@ -92,7 +92,7 @@ Grâce à la Perle de Taureau Céleste, on pouvait porter l'armure n'importe où
 
 Wang Lin n'avait jamais entendu parler de la Perle de Taureau Céleste auparavant ; sinon, il aurait été stupéfait de découvrir qu'elle ressemblait étrangement à un objet qu'il possédait déjà !
 
-Sur les sept perles existantes, la Secte Gui Yi en détenait trois et le Grand Secte de l'Âme quatre. Au fil des âges, elles n'avaient jamais servi de récompenses, mais constituaient la structure même de la Terre Sainte de culture des deux sectes.
+Sur les sept perles existantes, la Secte Gui Yi en détenait trois et le Grand Secte de l'Âme quatre. Au fil des âges, elles n'avaient jamais servi de récompenses, mais constituaient la structure même de la Terre Sainte de cultivation des deux sectes.
 
 Cette terre sainte ne pouvait atteindre sa perfection que lorsque trois perles étaient réunies. Par conséquent, ce ne pouvait être la Secte Gui Yi seule ; seul le Grand Secte de l'Âme pouvait en sortir une, car il en possédait une de trop !
 
@@ -100,7 +100,7 @@ La Voile Fantôme de protection du Grand Secte de l'Âme était un secret hautem
 
 Ces deux objets suffisaient à rendre n'importe qui fou ! C'était la raison pour laquelle Edge Cloud s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
 
-Tang Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
+Tang Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de cultivation atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
 
 Seul Yun Yifeng resta silencieux, l'expression sombre. Il ne poursuivit pas. Cependant, alors que Tang Jia s'élançait, il ouvrit la bouche et lui envoya un message par Sens Divin.
 

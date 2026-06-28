@@ -14,7 +14,7 @@ Au cours de ces dix jours, Wang Lin retrouva Fan Shanlu. Elle était la premièr
 
 Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la voile principale et pouvait désormais la contrôler à sa guise. Il l'rangea dans son espace de stockage.
 
-Durant ces dix jours, Wang Lin trouva également une planète de culture. Utilisant sa puissante culture, il repéra un corps qui venait de rendre l'âme, puis il le transforma. Il y insuffla l'âme d'un personnage secondaire pour former une âme originelle.
+Durant ces dix jours, Wang Lin trouva également une planète de cultivation. Utilisant sa puissante cultivation, il repéra un corps qui venait de rendre l'âme, puis il le transforma. Il y insuffla l'âme d'un personnage secondaire pour former une âme originelle.
 
 Après cela, Wang Lin navigua silencieusement à travers les étoiles, seul. Au plus profond de son cœur, il ressentit une pointe de réticence.
 
@@ -24,7 +24,7 @@ Dans un soupir, Wang Lin disparut de la lumière éclatante. Lorsqu'il réapparu
 
 Il pénétra dans le Royaume Céleste. Tandis que des ondulations se propageaient, le Sens Divin de Wang Lin s'étendit, enveloppant tout le domaine. Il diffusa alors l'information stipulant qu'il fallait passer par la réincarnation pour quitter le monde de la grotte.
 
-« Si quelqu'un souhaite partir, venez me trouver... Je partirai dans une demi-lune... » Wang Lin s'assit sur la montagne qu'il avait utilisée pour sa culture en isolement et ferma lentement les yeux.
+« Si quelqu'un souhaite partir, venez me trouver... Je partirai dans une demi-lune... » Wang Lin s'assit sur la montagne qu'il avait utilisée pour sa cultivation en isolement et ferma lentement les yeux.
 
 Rester ou partir était un choix. Wang Lin n'interviendrait pas ; il avait simplement ouvert la porte. Quant au monde extérieur, il ignorait si celui-ci serait une bénédiction ou un fléau pour les habitants du monde de la grotte.
 

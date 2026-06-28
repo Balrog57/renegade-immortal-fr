@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 533 - demonic spiritual energy Crystal
 slug: cristal-denergie-spirituelle-demoniaque
 ---
-Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que presque tous possédaient un talent remarquable, bien supérieur à ce qu'était son propre corps lorsqu'il avait commencé sa culture.
+Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que presque tous possédaient un talent remarquable, bien supérieur à ce qu'était son propre corps lorsqu'il avait commencé sa cultivation.
 
 Tout en éprouvant du regret, Wang Lin se sentait également heureux. Bien qu'il n'y eût aucune énergie spirituelle ici, il y avait de l'énergie spirituelle démoniaque. Peut-être qu'en utilisant cette énergie pour cultiver le drapeau spirituel, ils pourraient en tirer certains bénéfices.
 
@@ -70,11 +70,11 @@ Ouyang Hua saisit précipitamment le jade, le pressa contre son front et commen�
 
 Le corps d'Ouyang Hua trembla tandis qu'il prenait une profonde inspiration pour contenir son émotion, et il dit : « Ce junior a vu. » Il changea inconsciemment la façon dont il se désignait.
 
-Wang Lin acquiesça. Plus tôt, il avait utilisé son doigt pour forcer l'ouverture d'un méridien chez Ouyang Hua. Cette méthode était extrêmement tyrannique et entraînerait de lourdes conséquences à l'avenir, mais c'était le moyen le plus rapide d'augmenter sa culture !
+Wang Lin acquiesça. Plus tôt, il avait utilisé son doigt pour forcer l'ouverture d'un méridien chez Ouyang Hua. Cette méthode était extrêmement tyrannique et entraînerait de lourdes conséquences à l'avenir, mais c'était le moyen le plus rapide d'augmenter sa cultivation !
 
 Wang Lin regarda Ouyang Hua et dit lentement : « Ce chant s'appelle "l'Affinage de l'Âme". Écoute attentivement, car je ne te l'expliquerai qu'une seule fois. Une fois que tu l'auras appris, tu l'enseigneras aux villageois d'ici. »
 
-L'excitation d'Ouyang Hua ce jour-là était comparable à une succession de vagues déferlantes. L'augmentation de sa culture l'avait déjà transporté ; après avoir découvert le chant dans le jade, son cœur battait la chamade. Il avait un pressentiment, car il peinait à croire que cela soit réel. Après tout, les sorts étaient extrêmement rares en Terre des Esprits Démoniaques, et nul commun ne pouvait espérer en obtenir.
+L'excitation d'Ouyang Hua ce jour-là était comparable à une succession de vagues déferlantes. L'augmentation de sa cultivation l'avait déjà transporté ; après avoir découvert le chant dans le jade, son cœur battait la chamade. Il avait un pressentiment, car il peinait à croire que cela soit réel. Après tout, les sorts étaient extrêmement rares en Terre des Esprits Démoniaques, et nul commun ne pouvait espérer en obtenir.
 
 Ouyang Hua prit une grande inspiration et demanda avec incrédulité : « Suprême Céleste... voulez-vous dire que vous allez m'enseigner ce sort ? »
 
@@ -84,9 +84,9 @@ Le corps d'Ouyang Hua frémit alors qu'il s'inclina avec respect : « Moi, Ouyan
 
 Il fallait admettre que l'accès aux sorts était réservé à une infime élite. Avec les capacités d'Ouyang Hua, il n'aurait jamais eu la moindre chance d'en apprendre un, sans parler des autres villageois.
 
-Wang Lin lui indiqua les points clés de la culture de ce sort. Ouyang Hua écoutait comme un disciple modèle, et sa gratitude envers Wang Lin ne fit que croître. Une fois les explications terminées, Ouyang Hua accomplit le rituel pour honorer son maître et se retira.
+Wang Lin lui indiqua les points clés de la cultivation de ce sort. Ouyang Hua écoutait comme un disciple modèle, et sa gratitude envers Wang Lin ne fit que croître. Une fois les explications terminées, Ouyang Hua accomplit le rituel pour honorer son maître et se retira.
 
-Ces actions laissèrent Wang Lin quelque peu surpris. Cependant, il venait de lui transmettre une technique de culture ; le geste d'Ouyang Hua n'était donc pas déplacé.
+Ces actions laissèrent Wang Lin quelque peu surpris. Cependant, il venait de lui transmettre une technique de cultivation ; le geste d'Ouyang Hua n'était donc pas déplacé.
 
 Le temps passa lentement et, en un clin d'œil, trois mois s'écoulèrent.
 
@@ -110,13 +110,13 @@ D'une simple pensée, toute l'énergie spirituelle démoniaque contenue dans son
 
 « Cette énergie spirituelle démoniaque est intéressante ! » Les yeux de Wang Lin brillèrent d'intérêt.
 
-Au cours de ces trois mois, il sortit de la vallée à trois reprises, et chaque fois, il enseigna la culture du sort d'Affinage de l'Âme aux villageois. Le peuple de la vallée savait désormais que ce sort venait de Wang Lin et que c'était lui qui leur offrait la chance de pratiquer une technique. Toute la peur et les malentendus envers lui s'étaient dissipés, remplacés par un respect et une gratitude infinis.
+Au cours de ces trois mois, il sortit de la vallée à trois reprises, et chaque fois, il enseigna la cultivation du sort d'Affinage de l'Âme aux villageois. Le peuple de la vallée savait désormais que ce sort venait de Wang Lin et que c'était lui qui leur offrait la chance de pratiquer une technique. Toute la peur et les malentendus envers lui s'étaient dissipés, remplacés par un respect et une gratitude infinis.
 
 Chaque fois que Wang Lin apparaissait, tous les villageois qui le voyaient abandonnaient leurs tâches pour lui saluer avec déférence.
 
 Parmi ceux qui pratiquaient l'Affinage de l'Âme, outre Ouyang Hua qui progressait rapidement, une autre personne attira l'attention de Wang Lin. Il s'agissait du jeune homme que Wang Lin avait suivi pour découvrir cette vallée !
 
-Ce jeune homme possédait un talent remarquable pour la culture du sort d'Affinage de l'Âme. En seulement trois mois, il avait déjà atteint le troisième stade, celui où l'on doit créer son propre drapeau spirituel.
+Ce jeune homme possédait un talent remarquable pour la cultivation du sort d'Affinage de l'Âme. En seulement trois mois, il avait déjà atteint le troisième stade, celui où l'on doit créer son propre drapeau spirituel.
 
 ***
 

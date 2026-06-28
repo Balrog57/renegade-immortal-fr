@@ -106,7 +106,7 @@ Ces roches dégageaient une aura antique et étaient saturées d'énergie spirit
 
 Cependant, bien que cette énergie fût stupéfiante, elle n'était pas vivante ; elle semblait morte.
 
-« Je n'ai jamais vu de pierres spirituelles de ce genre... Ce rocher d'un millier de pieds surpasse même les pierres spirituelles de qualité supérieure. S'il était rapporté dans le monde de la Culture, il pourrait se vendre à un prix astronomique ! »
+« Je n'ai jamais vu de pierres spirituelles de ce genre... Ce rocher d'un millier de pieds surpasse même les pierres spirituelles de qualité supérieure. S'il était rapporté dans le monde de la Cultivation, il pourrait se vendre à un prix astronomique ! »
 
 « Pourtant, on y voit des traces du passage du temps. C'est comme si des dizaines de milliers d'années s'étaient écoulées... créant ceci... » Alors qu'il analysait l'objet, Wang Lin interrompit brusquement sa réflexion. Ses yeux s'écarquillèrent et il fixa les gravats dans sa main.
 
@@ -114,7 +114,7 @@ Cependant, bien que cette énergie fût stupéfiante, elle n'était pas vivante 
 
 « Les excrétions de la Bête du Néant ! » Wang Lin regarda les débris devant lui, le visage rayonnant.
 
-« C'est logique, la Bête du Néant a dû dévorer plusieurs planètes de culture pour une raison quelconque, et le temps s'est écoulé à l'intérieur de son corps. Bien que les planètes soient mortes et leurs âmes dissipées, l'énergie spirituelle qu'elles contenaient s'est condensée pour former ces roches. Voilà pourquoi elles semblent mortes tout en étant si riches en énergie ! Et elles sont imprégnées de la trace du temps... »
+« C'est logique, la Bête du Néant a dû dévorer plusieurs planètes de cultivation pour une raison quelconque, et le temps s'est écoulé à l'intérieur de son corps. Bien que les planètes soient mortes et leurs âmes dissipées, l'énergie spirituelle qu'elles contenaient s'est condensée pour former ces roches. Voilà pourquoi elles semblent mortes tout en étant si riches en énergie ! Et elles sont imprégnées de la trace du temps... »
 
 « Bête du Néant, pour te chasser, je dois d'abord te sceller. Non seulement je dois sceller l'extérieur, mais je devrai aussi sceller l'intérieur de ton corps... »
 

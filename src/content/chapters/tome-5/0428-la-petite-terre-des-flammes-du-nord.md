@@ -44,13 +44,13 @@ Pour parler de l'origine de cet enfant démoniaque, il faut d'abord évoquer le 
 
 Le Secte des Cadavres est une secte immense ; aucune autre secte sur la planète Suzaku ne peut lui être comparée. En réalité, le Secte des Cadavres possède des branches sur de nombreuses planètes.
 
-C'est une organisation tentaculaire dont les racines s'étendent sur de multiples planètes de culture. Ils sont impliqués dans le commerce de corps et la collecte d'objots d'origines mystérieuses.
+C'est une organisation tentaculaire dont les racines s'étendent sur de multiples planètes de cultivation. Ils sont impliqués dans le commerce de corps et la collecte d'objots d'origines mystérieuses.
 
 Très peu de gens savent où se situe le siège du Secte des Cadavres, car c'est un secret bien gardé !
 
 La structure du Secte des Cadavres ressemble à une tour, composée de nombreux niveaux différents.
 
-Au sein de l'alliance de culture, le Secte des Cadavres est l'une des rares organisations reconnues comme une secte officielle. Comparé à la multitude de sectes éparpillées sur les diverses planètes de culture, le Secte des Cadavres compte parmi les rares véritables sectes de l'ère actuelle.
+Au sein de l'alliance de cultivation, le Secte des Cadavres est l'une des rares organisations reconnues comme une secte officielle. Comparé à la multitude de sectes éparpillées sur les diverses planètes de cultivation, le Secte des Cadavres compte parmi les rares véritables sectes de l'ère actuelle.
 
 De nombreux cultivateurs de l'ancienne génération savent qu'on ne s'attaque pas au Secte des Cadavres sans réfléchir. On raconte que la personne derrière le Secte des Cadavres entretiendrait un lien avec l'effondrement du Royaume Céleste.
 
@@ -122,14 +122,14 @@ Tout se passa à une vitesse fulgurante. En un instant, Situ Nan et le quatrièm
 
 Situ Nan afficha un air de joie au milieu des flammes avant de s'en extraire mystérieusement. Il vola vers la flamme de glace où se trouvait l'enfant démoniaque et pénétra dans son corps.
 
-« Wang Lin, cette Brume des Neuf Lieues est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma culture. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhuque Zi entre-temps ; ne meurs pas avant mon retour ! » La voix de Situ Nan résonna depuis la Brume des Neuf Lieues.
+« Wang Lin, cette Brume des Neuf Lieues est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma cultivation. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhuque Zi entre-temps ; ne meurs pas avant mon retour ! » La voix de Situ Nan résonna depuis la Brume des Neuf Lieues.
 
 Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et demanda : « Tu n'as pas besoin que je te garde ? »
 
 « Nul besoin ; cette Brume des Neuf Lieues est la meilleure des protections ! » La voix de Situ Nan trahissait une pointe d'excitation. Après des dizaines de milliers d'années, il allait enfin retrouver un corps. Malgré tout ce qu'il avait traversé, il ne pouvait s'empêcher d'être enthousiaste.
 
-« Cultivateurs étrangers, attendez seulement ! Une fois que ce vieux aura recouvré sa culture, je viendrai sans faute vous retrouver pour ma vengeance ! »
+« Cultivateurs étrangers, attendez seulement ! Une fois que ce vieux aura recouvré sa cultivation, je viendrai sans faute vous retrouver pour ma vengeance ! »
 
-Wang Lin leva la tête vers l'horizon et dit calmement : « Tu ne m'as toujours pas dit ce qu'est le Cristal de Planète de Culture. »
+Wang Lin leva la tête vers l'horizon et dit calmement : « Tu ne m'as toujours pas dit ce qu'est le Cristal de Planète de Cultivation. »
 
-« Le Cristal de Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un trésor surpuissant. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux ! »
+« Le Cristal de Planète de Cultivation... Avant de devenir le souverain d'une planète de cultivation, je pensais aussi que c'était un trésor surpuissant. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux ! »

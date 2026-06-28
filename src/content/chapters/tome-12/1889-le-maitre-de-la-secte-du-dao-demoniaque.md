@@ -20,7 +20,7 @@ Dès qu'il eut prononcé ces deux mots, la frontière du Continent Meng Earth fu
 
 Après l'apparition de Nuit Brisée, Wang Lin utilisa le sort le plus puissant qu'un cultivateur puisse déployer. Le soleil se leva, libérant une puissance capable de déchirer la nuit.
 
-Quel que soit leur niveau de culture, les centaines de cultivateurs de la Secte du Dao Démoniaque poussèrent des cris de détresse sous la force de Nuit Brisée. Leurs corps s'effondrèrent et leurs âmes originelles furent anéanties.
+Quel que soit leur niveau de cultivation, les centaines de cultivateurs de la Secte du Dao Démoniaque poussèrent des cris de détresse sous la force de Nuit Brisée. Leurs corps s'effondrèrent et leurs âmes originelles furent anéanties.
 
 Il y avait aussi les cent personnes qui traversaient le réseau de transfert. Avant même que leurs corps ne puissent se condenser, ils périrent.
 
@@ -54,7 +54,7 @@ La paume se transforma ensuite en un point focal. La vie et la mort basculèrent
 
 « Dieu, Démon, Diable, Ancien Dao Sans Céleste ! »
 
-Ce sort de l'Ancien Dao Sans Céleste fut lancé alors que son niveau de culture avait été porté au stade précoce de la Tribulation du Vide par l'armure d'âme. Sa puissance était phénoménale et, bien que différente de Nuit Brisée, sa force destructrice était identique !
+Ce sort de l'Ancien Dao Sans Céleste fut lancé alors que son niveau de cultivation avait été porté au stade précoce de la Tribulation du Vide par l'armure d'âme. Sa puissance était phénoménale et, bien que différente de Nuit Brisée, sa force destructrice était identique !
 
 Des grondements tonitruants retentirent et une ondulation grise se propagea. Les cent cultivateurs périrent tous. L'expression du vieux monstre du stade avancé de la Tribulation du Vide changea et il battit en retraite précipitamment. Cependant, il fut tout de même touché par les ondes grises.
 

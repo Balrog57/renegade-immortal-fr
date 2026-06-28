@@ -60,7 +60,7 @@ Cependant, même l'Empereur Céleste ne remarqua pas la Perle Défiant le Ciel �
 
 Après avoir libéré le sceau du clan Dao Wang, l'Empereur Céleste fut transporté par l'excitation. Il pensait toujours que tout était sous son contrôle. Sa confiance absolue était intacte et il commença aussitôt à absorber la puissance de la tête de l'Ancêtre Céleste !
 
-Des volutes de fumée dorée s'échappèrent des orifices de la tête de l'Ancêtre Céleste pour pénétrer le corps de l'Empereur Céleste. Cela provoqua une ascension soudaine de son niveau de culture.
+Des volutes de fumée dorée s'échappèrent des orifices de la tête de l'Ancêtre Céleste pour pénétrer le corps de l'Empereur Céleste. Cela provoqua une ascension soudaine de son niveau de cultivation.
 
 L'excitation emplit l'Empereur Céleste, mais il ne vit pas qu'au loin, au moment où il levait le sceau du clan Dao Wang, le corps de l'Empyrean Exalt Hai Zi tremblait violemment.
 

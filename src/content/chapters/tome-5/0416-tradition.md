@@ -46,7 +46,7 @@ C'était une secte très étrange. Au lieu d'un hall principal unique, ses bâti
 
 Quelques zones de terre ferme permettaient aux disciples du Secte des Insectes Démoniaques d'y vivre, répartis dans ces îlots éparpillés sur l'étendue de la zone humide.
 
-Les disciples n'avaient guère de sens de la camaraderie. Leur méthode de culture étant liée aux insectes, l'abondance de créatures venimeuses dans le marais leur était particulièrement profitable.
+Les disciples n'avaient guère de sens de la camaraderie. Leur méthode de cultivation étant liée aux insectes, l'abondance de créatures venimeuses dans le marais leur était particulièrement profitable.
 
 Ce jour-là, deux silhouettes apparurent dans le ciel, à la lisière du marais. L'une était âgée, l'autre jeune. Le vieil homme portait une robe noire, ses cheveux étaient gris et sa silhouette très maigre. Les mains derrière le dos, il affichait un regard froid et dégageait une aura qui faisait fuir les insectes par pure terreur.
 

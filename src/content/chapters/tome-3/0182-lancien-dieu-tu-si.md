@@ -28,7 +28,7 @@ Wang Lin n'était pas pressé. Le temps s'écoula lentement, et bientôt, trois 
 
 Il lui fallut trois ans pour franchir ces 300 pieds en avançant prudemment, étape par étape. Sa maîtrise des restrictions s'était également considérablement accrue à mesure qu'il brisait chacune d'elles.
 
-Lorsque Wang Lin atteignit le sommet de la montagne, trois ans après le passage du Seigneur Démon des Six Désirs et de l'Empereur Antique, il comprit que cela n'avait été possible que grâce à l'activation massive des restrictions survenue trois ans auparavant. Toutes les restrictions environnantes avaient perdu leur puissance. Même s'il tentait de les déclencher, elles n'auraient pas la force nécessaire pour s'activer. Sans cela, il n'aurait jamais pu parvenir aussi loin avec sa culture actuelle.
+Lorsque Wang Lin atteignit le sommet de la montagne, trois ans après le passage du Seigneur Démon des Six Désirs et de l'Empereur Antique, il comprit que cela n'avait été possible que grâce à l'activation massive des restrictions survenue trois ans auparavant. Toutes les restrictions environnantes avaient perdu leur puissance. Même s'il tentait de les déclencher, elles n'auraient pas la force nécessaire pour s'activer. Sans cela, il n'aurait jamais pu parvenir aussi loin avec sa cultivation actuelle.
 
 Pourtant, Wang Lin n'était qu'à 15 pieds du sommet. Les nuages commencèrent à s'assombrir et à s'amonceler. On entrevoyait des éclairs. Wang Lin leur lança un regard calme avant de pénétrer dans le tourbillon.
 
@@ -134,7 +134,7 @@ Auparavant, Xu Liguo ne ressentait cela que lorsque Wang Lin utilisait toute la 
 
 Wang Lin pointa le lac du doigt. Xu Liguo voulut marchander, mais devant le regard de Wang Lin, il s'envola docilement vers l'eau, tout en le maudissant silencieusement.
 
-Il pestait dans son cœur : « Attends un peu ! Dès que j'aurai dévoré quelques âmes de plus, recruté quelques subordonnés et augmenté un peu ma propre culture, je me battrai avec toi jusqu'à la mort ! » Après s'être défoulé, il se sentit mieux et plongea dans le lac pour commencer ses recherches.
+Il pestait dans son cœur : « Attends un peu ! Dès que j'aurai dévoré quelques âmes de plus, recruté quelques subordonnés et augmenté un peu ma propre cultivation, je me battrai avec toi jusqu'à la mort ! » Après s'être défoulé, il se sentit mieux et plongea dans le lac pour commencer ses recherches.
 
 Wang Lin utilisa le fragment d'âme qu'il avait laissé dans le corps de Xu Liguo pour inspecter le lac tandis que son propre corps restait sur la rive. Une fois certain de l'absence de danger, il s'envola vers la pagode.
 

@@ -56,9 +56,9 @@ Une lueur froide passa dans les yeux de Wang Lin. D'un geste du doigt, il fit ja
 
 Le membre trembla violemment. Il brilla d'un rouge vif comme s'il était blessé et commença à fuir encore plus rapidement.
 
-À ce moment précis, une équipe de sept ou huit cultivateurs d'une famille de culture passait par là, le visage empreint de stupeur. Leur niveau de culture n'était pas élevé ; ils se situaient tous entre les stades moyen et tardif de l'Ascendant. Ils volaient précipitamment vers ce lieu, comme s'ils étaient eux-mêmes poursuivis par un ennemi puissant.
+À ce moment précis, une équipe de sept ou huit cultivateurs d'une famille de cultivation passait par là, le visage empreint de stupeur. Leur niveau de cultivation n'était pas élevé ; ils se situaient tous entre les stades moyen et tardif de l'Ascendant. Ils volaient précipitamment vers ce lieu, comme s'ils étaient eux-mêmes poursuivis par un ennemi puissant.
 
-Le bras sectionné se retourna immédiatement vers cette famille de culture. Il fut si rapide qu'il atteignit les cultivateurs en un clin d'œil et commença à les mettre en pièces. Le bras écrasa leurs âmes originelles et absorba leur énergie originelle.
+Le bras sectionné se retourna immédiatement vers cette famille de cultivation. Il fut si rapide qu'il atteignit les cultivateurs en un clin d'œil et commença à les mettre en pièces. Le bras écrasa leurs âmes originelles et absorba leur énergie originelle.
 
 Après quelques respirations, tous les membres de cette famille furent massacrés et leurs âmes originelles absorbées par le membre tranché. La lueur rouge du bras devint encore plus intense. Non seulement ses blessures avaient guéri, mais il semblait plus puissant qu'auparavant.
 
@@ -86,9 +86,9 @@ Survolant le fragment, l'homme pressa sa main vers le bas, provoquant l'effondre
 
 Alors que le fragment s'écroulait, une flamme monstrueuse jaillit de l'intérieur. Un éclair rouge retentit et un œil s'en échappa. L'homme saisit l'œil et l'inséra dans sa cavité oculaire droite.
 
-« Le Royaume Ji a été scellé dans l'œil droit, mais une trop grande partie a été consommée lors de la Guerre Céleste. Il sera très difficile de le reconstituer, mais ce n'est pas impossible ! Cependant, je viens à peine de m'échapper, ma culture n'est donc qu'à 10 %. Je dois restaurer mon énergie céleste originelle au plus vite. » Un éclat rouge traversa les yeux de l'homme tandis qu'il affichait un sourire sinistre.
+« Le Royaume Ji a été scellé dans l'œil droit, mais une trop grande partie a été consommée lors de la Guerre Céleste. Il sera très difficile de le reconstituer, mais ce n'est pas impossible ! Cependant, je viens à peine de m'échapper, ma cultivation n'est donc qu'à 10 %. Je dois restaurer mon énergie céleste originelle au plus vite. » Un éclat rouge traversa les yeux de l'homme tandis qu'il affichait un sourire sinistre.
 
-« Il semble que de nombreux cultivateurs juniors se soient développés au fil des ans. Très bien. Bien que les dévorer tous ne restaure pas entièrement ma culture, cela me permettra de récupérer suffisamment. Cependant, avant de commencer le festin, je dois fermer la porte céleste pour m'assurer qu'ils ne puissent pas s'échapper ! » En ricanant, son corps disparut dans le vide.
+« Il semble que de nombreux cultivateurs juniors se soient développés au fil des ans. Très bien. Bien que les dévorer tous ne restaure pas entièrement ma cultivation, cela me permettra de récupérer suffisamment. Cependant, avant de commencer le festin, je dois fermer la porte céleste pour m'assurer qu'ils ne puissent pas s'échapper ! » En ricanant, son corps disparut dans le vide.
 
 Wang Lin saisit Li Yuan et se dirigea droit vers la porte située sur le flanc ouest du Royaume Céleste. Ils restèrent silencieux tout au long du trajet. Wang Lin regardait devant lui, l'âme lourde ; il avait le pressentiment que le Royaume Céleste du Tonnerre allait sombrer dans un chaos indescriptible !
 

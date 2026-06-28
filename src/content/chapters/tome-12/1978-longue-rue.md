@@ -66,7 +66,7 @@ Au-dessus de lui, trois autres personnes apparurent. Elles ne formèrent ni paum
 
 Devant, derrière, à gauche, à droite et en haut ! Au total, 15 assaillants étaient apparus simultanément pour l'exterminer !
 
-Tous possédaient une culture d'Exalt Émérite, et leur attaque survint précisément au moment où la culture de Wang Lin était scellée !
+Tous possédaient une cultivation d'Exalt Émérite, et leur attaque survint précisément au moment où la cultivation de Wang Lin était scellée !
 
 Les yeux de Wang Lin se plissèrent et il poussa un rugissement en cette heure critique. Sans hésiter, il déchaîna toute la puissance de son armure de l'âme ; la force du Dao Ancien satura son corps, le rendant incroyablement puissant. Son pied droit frappa le sol avec une violence inouïe.
 
@@ -88,7 +88,7 @@ Wang Lin leva sa main gauche d'un geste vif, utilisant son bras pour bloquer leu
 
 Les trois assaillants tremblèrent tandis que le vent révélait leurs visages. Les six individus sur les flancs de Wang Lin pointèrent tous vers ses côtés !
 
-Six doigts touchèrent le corps de Wang Lin et son visage pâlit instantanément. La puissance de la restriction dans son organisme augmenta drastiquement, affaiblissant sa culture. Au même moment, trois épées fendirent le ciel vers lui. Wang Lin rugit et leva la main gauche pour frapper les trois assaillants. Deux épées se brisèrent et leurs propriétaires éclatèrent en morceaux. Cependant, l'un d'eux parvint à s'approcher et planta son épée de trois pouces dans le front de Wang Lin !
+Six doigts touchèrent le corps de Wang Lin et son visage pâlit instantanément. La puissance de la restriction dans son organisme augmenta drastiquement, affaiblissant sa cultivation. Au même moment, trois épées fendirent le ciel vers lui. Wang Lin rugit et leva la main gauche pour frapper les trois assaillants. Deux épées se brisèrent et leurs propriétaires éclatèrent en morceaux. Cependant, l'un d'eux parvint à s'approcher et planta son épée de trois pouces dans le front de Wang Lin !
 
 Une douleur fulgurante envahit son corps et le sang coula dans ses yeux, teintant le monde devant lui d'une teinte écarlate.
 

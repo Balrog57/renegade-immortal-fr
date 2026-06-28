@@ -58,7 +58,7 @@ Wang Lin sourit. Il n'avait jamais vu une telle expression sur le visage de Li M
 
 Li Muwan prit rapidement la fuite et descendit la montagne. Ce n'est qu'une fois hors de la montagne qu'elle se détendit et regarda une dernière fois le sommet.
 
-« Ma Sœur Aînée avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de culture... Il m'a fait mourir de peur ! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
+« Ma Sœur Aînée avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de cultivation... Il m'a fait mourir de peur ! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
 
 Après avoir marmonné ces mots, Li Muwan partit rapidement.
 
@@ -74,7 +74,7 @@ Le temps s'écoula lentement. Un jour, deux jours... En un clin d'œil, quatre j
 
 Durant ces quatre jours, Li Muwan ne revint pas. Wang Lin resta au sommet de la montagne, dans l'attente. Tout comme Li Muwan attendait son retour, il n'était accompagné que par les notes de la cithare.
 
-Wang Lin ne pratiqua aucune culture durant ces quatre jours, se contentant de contempler le ciel en attendant.
+Wang Lin ne pratiqua aucune cultivation durant ces quatre jours, se contentant de contempler le ciel en attendant.
 
 Ce n'est que l'après-midi du cinquième jour qu'il entendit un bruit provenant du pied de la montagne. Li Muwan entama une ascension rapide. Elle essuya la sueur de son front, la peur et la prudence toujours présentes dans ses yeux, mais elle serra les dents pour marcher vers Wang Lin.
 

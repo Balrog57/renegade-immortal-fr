@@ -36,7 +36,7 @@ En cet instant, les yeux du vieil homme étaient clos ; il cultivait paisiblemen
 
 Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, du Secte des Sept Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
 
-En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa culture, un puissant sens divin balaya les lieux.
+En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa cultivation, un puissant sens divin balaya les lieux.
 
 La puissance de ce sens divin choqua le vieil homme. Il comprit clairement que, à moins que son propriétaire ne veuille qu'il le détecte, il n'aurait jamais pu ressentir une telle présence.
 
@@ -56,7 +56,7 @@ Mais après un long moment, il ne rouvrit pas les yeux et se calma pour replonge
 
 Devant lui flottait un jade formé par un sens divin. Ce jade n'était pas corporel, semblant alterner entre l'illusion et la solidité. Il flottait silencieusement, attendant que le bébé s'éveille pour le voir.
 
-La planète de culture où reposait le bébé était extrêmement ordinaire et ne paraissait en rien étrange. Si elle présentait une particularité, c'était qu'elle ressemblait à un globe oculaire vue de loin.
+La planète de cultivation où reposait le bébé était extrêmement ordinaire et ne paraissait en rien étrange. Si elle présentait une particularité, c'était qu'elle ressemblait à un globe oculaire vue de loin.
 
 Les chaînes de montagnes sur la planète évoquaient des veines sanguines, les vastes mers rappelaient la sclérotique, et le continent semblait être la pupille.
 

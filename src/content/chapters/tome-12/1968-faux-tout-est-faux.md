@@ -86,7 +86,7 @@ En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Greed.
 
 « J'avais effectivement ignoré un problème auparavant ! Même avec le pouvoir du Maître Xuan Luo, il ne pouvait pas extraire des êtres du monde des grottes — il ne pouvait que les protéger pendant leur réincarnation. Même pour moi, le Maître a dû payer un certain prix pour m'aider à partir. »
 
-« Mais le niveau de culture de Greed n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyrean Gemini. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
+« Mais le niveau de cultivation de Greed n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyrean Gemini. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
 
 « Même après avoir subi un accident lors de la réincarnation, le Grand Empyrean Gemini possède encore une telle puissance. S'ils n'avaient pas eu cet accident... ils seraient les Grands Empyreans les plus puissants du clan céleste. Je me demande comment elle se comparerait au Grand Empyrean Dong Lin... »
 
@@ -116,7 +116,7 @@ Bien qu'il soit arrivé tardivement, il imaginait aisément que les propositions
 
 « Senior, vous... » Gu Ya eut soudain l'impression d'être dans un rêve.
 
-Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Greed. Puis il se tourna vers Gu Ya et dit : « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyrean Gemini très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
+Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Greed. Puis il se tourna vers Gu Ya et dit : « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyrean Gemini très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en cultivation fermée et j'ignorerai le monde extérieur. »
 
 « Quand je partirai, vous ne pourrez pas m'en empêcher, et si un Grand Empyrean agit contre moi alors que je serai au Continent Central, vous devrez m'aider. Peut-être ne suivrai-je le Grand Empyrean Gemini que pendant quelques années... »
 
@@ -124,7 +124,7 @@ Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Greed. P
 
 « C'est donc ainsi... » Gu Ya baissa la tête pour réfléchir. Après un long moment, il releva la tête, les yeux empreints de détermination.
 
-« Oui, je peux représenter le Grand Empyrean Gemini et vous le promettre ! Cependant, j'espère que même si vous entrez en culture fermée, peu importe la durée... » Sans attendre qu'il finisse sa phrase, Wang Lin comprit son intention.
+« Oui, je peux représenter le Grand Empyrean Gemini et vous le promettre ! Cependant, j'espère que même si vous entrez en cultivation fermée, peu importe la durée... » Sans attendre qu'il finisse sa phrase, Wang Lin comprit son intention.
 
 « Parmi les cinq Grands Empyreans célestes, je n'en suivrai aucun autre de ma vie. Dans le clan céleste, je ne suivrai que le Grand Empyrean Gemini ! » Wang Lin fit personnellement cette promesse.
 
@@ -132,6 +132,6 @@ Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Greed. P
 
 Après tout, un être qui était le premier des Empyeans Ascendants, le numéro un sous les Grands Empyreans, serait difficile à retenir en permanence.
 
-« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyrean Gemini utilisait avant son accident ! » Gu Ya joignit les mains avec un immense respect.
+« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de cultivation fermée que le Grand Empyrean Gemini utilisait avant son accident ! » Gu Ya joignit les mains avec un immense respect.
 
 « Allons-y... » Wang Lin regarda en direction de la Secte Dong Lin. C'était comme s'il faisait ses adieux au vieil homme solitaire qui restait là-bas.

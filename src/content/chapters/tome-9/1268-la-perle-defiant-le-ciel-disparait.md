@@ -54,7 +54,7 @@ Ce n'était pas le cri d'un cultivateur, mais celui d'un dieu ancien ! Le rugiss
 
 La terre trembla et d'innombrables montagnes s'effondrèrent au loin. Les rivières coulèrent à l'envers dans un fracas assourdissant !
 
-Le rugissement d'un dieu ancien, conjugué à la culture de Wang Lin, pouvait directement briser n'importe quel cultivateur du Nettoyeur de Nirvana, détruire le corps d'un Briseur de Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur de Nirvana !
+Le rugissement d'un dieu ancien, conjugué à la cultivation de Wang Lin, pouvait directement briser n'importe quel cultivateur du Nettoyeur de Nirvana, détruire le corps d'un Briseur de Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur de Nirvana !
 
 Il pouvait faire perdre tous ses sens à un Briseur de Nirvana au stade tardif ! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur !
 

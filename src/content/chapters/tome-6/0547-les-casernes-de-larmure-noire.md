@@ -10,7 +10,7 @@ Le Dao d'un cultivateur doit être inébranlable afin de ne pas être facilement
 
 Emprunter la voie démoniaque, c'est comme traverser un vent glacial qui transperce le corps, attaque le cœur et s'empare de l'âme !
 
-Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa culture et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
+Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa cultivation et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
 
 La nostalgie n'est pas effrayante en soi ; ce qui est terrifiant, c'est de s'y perdre totalement et de ne plus parvenir à s'en extirper. En temps normal, une telle chose n'arriverait pas à Wang Lin, mais il venait d'emprunter la voie démoniaque. Bien qu'il l'ait réprimée, des idéaux démoniaques subsistaient en lui, et ils étaient la source de cette nostalgie !
 
@@ -20,9 +20,9 @@ D'un autre côté, cela signifie qu'ils sont partout !
 
 Le démon extraterritorial pénètre dans le corps, active le feu du Dao du cultivateur pour consumer son âme originelle, s'emparant ainsi de sa vie et détruisant son cœur de Dao. Aux yeux des anciens cultivateurs, ces démons étaient terrifiants. S'ils commettaient une seule erreur en les laissant entrer, ils seraient ruinés à jamais.
 
-À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Culture prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
+À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Cultivation prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
 
-L'Alliance de la Culture réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
+L'Alliance de la Cultivation réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
 
 C'est précisément ce qui venait d'arriver à Wang Lin. Son désir irrépressible de retourner sur la planète Suzaku était l'apogée de son idéal démoniaque. Si cela avait persisté, Wang Lin se serait réveillé par lui-même, mais le délai aurait pu être court ou extrêmement long.
 

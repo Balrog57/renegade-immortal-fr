@@ -70,7 +70,7 @@ Ces trois individus n'étaient pas ordinaires : c'étaient Maître Vide et deux 
 
 Ling Tianhou tremblait. Auparavant, il ne redoutait que Wang Lin. Bien que cette paume géante lui ait inspiré une certaine crainte, elle ne l'avait pas terrifié comme il l'était maintenant. Il n'aurait jamais imaginé que le sortilège de Wang Lin puisse atteindre une telle puissance !
 
-« Il... Quel est son niveau de culture... Un tel sortilège est inouï ! »
+« Il... Quel est son niveau de cultivation... Un tel sortilège est inouï ! »
 
 Le visage du All-Seer pâlit et il cracha une bouchée de sang. Repoussé de plusieurs pas, il redressa la tête pour fixer Wang Lin. Sur ses trois avatars, deux avaient été détruits, et celui à la robe grise n'était plus qu'une étincelle de volonté. C'était un coup terrible qu'il n'avait pas subi depuis des éons, et il était désormais lui-même blessé.
 
@@ -98,13 +98,13 @@ Le calme olympien du Démon Ancien Ta Jia fut ébranlé pour la première fois. 
 
 Le regard de Ta Jia se verrouilla sur Wang Lin, ses pupilles se contractant. Il avait le sentiment que cet homme était le dernier atout que Qing Lin avait préparé pour son éveil !
 
-Au siège de l'Alliance de Culture, là où étaient conservés les jetons de vie des personnalités importantes, l'un des trois jetons de jade violet sur l'étagère supérieure vola en éclats au moment précis où la Nuit Brisée de Wang Lin disparut.
+Au siège de l'Alliance de Cultivation, là où étaient conservés les jetons de vie des personnalités importantes, l'un des trois jetons de jade violet sur l'étagère supérieure vola en éclats au moment précis où la Nuit Brisée de Wang Lin disparut.
 
 Simultanément, le son d'une cloche résonna dans tout le siège de l'Alliance. Une partie des cultivateurs présents leva les yeux vers le lieu de conservation des jetons de vie.
 
 Depuis le début de la guerre contre Allheaven, des morts s'enchaînaient chaque jour, mais ils n'étaient pas assez éminents pour que leurs jetons soient conservés au siège. La cloche signalant un décès n'avait retenti que quelques fois ; au maximum cinq fois d'affilée.
 
-Avec l'arrogance de l'Alliance de Culture, ils ne se souciaient guère de la morale ; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation !
+Avec l'arrogance de l'Alliance de Cultivation, ils ne se souciaient guère de la morale ; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation !
 
 La cloche sonna une fois, deux fois, trois fois... Lorsqu'elle atteignit la cinquième sonnerie, une autre partie des membres releva la tête vers les jetons.
 

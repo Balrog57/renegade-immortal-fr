@@ -8,15 +8,15 @@ slug: le-fragment-dame-de-wan-er
 ---
 Mais tous les cultivateurs Ascendants ne réussissent pas ; le taux de réussite n'est que de 50 %.
 
-Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on puisse récupérer son fragment d'âme en toute sécurité.
+Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de cultivation de rang 5 accède au rang 6, que l'on puisse récupérer son fragment d'âme en toute sécurité.
 
 Yunque Zhi n'avait pas pu récupérer son fragment d'âme ; en fait, depuis l'arrivée du pays Suzaku, personne n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
 
-Bien que le sceau sur le Cristal de la Planète de Culture empêchât les futurs Suzaku de contrôler la planète, il empêchait également quiconque de récupérer son fragment d'âme lorsqu'il atteignait le stade Ascendant.
+Bien que le sceau sur le Cristal de la Planète de Cultivation empêchât les futurs Suzaku de contrôler la planète, il empêchait également quiconque de récupérer son fragment d'âme lorsqu'il atteignait le stade Ascendant.
 
-Dans certaines planètes de culture plus puissantes, comme celles contrôlées par des pays de rang 7 ou 8, il existait des sectes suffisamment puissantes pour rivaliser avec une planète de rang 6. Ces sectes avaient trouvé des moyens d'éluder le Cristal de la Planète de Culture.
+Dans certaines planètes de cultivation plus puissantes, comme celles contrôlées par des pays de rang 7 ou 8, il existait des sectes suffisamment puissantes pour rivaliser avec une planète de rang 6. Ces sectes avaient trouvé des moyens d'éluder le Cristal de la Planète de Cultivation.
 
-Si ce n'était pas le cas, il n'y aurait point de luttes au sein de l'Alliance de Culture.
+Si ce n'était pas le cas, il n'y aurait point de luttes au sein de l'Alliance de Cultivation.
 
 À cet instant, loin dans l'espace, sur une planète immense, de nombreux rayons de lumière d'épées sillonnaient le ciel. Ces personnes ne se livraient pas à un combat, mais se précipitaient vers une destination précise.
 
@@ -40,7 +40,7 @@ L'auteur de ce précepte était un homme respecté par la majorité de la popula
 
 Aucune trace de mort ne l'habitait ; il était empreint d'une vitalité infinie.
 
-Il se trouvait actuellement dans la Pagode du Destin Céleste de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même : « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant était capable de comprendre le domaine de la vie et de la mort du cycle de la réincarnation et tentait d'atteindre le stade de la Formation de l'Âme. Peu de gens peuvent en arriver là ; voyant que sa culture était insuffisante, je lui avais donné un indice en lui disant que je l'accepterais comme disciple honorifique pendant cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
+Il se trouvait actuellement dans la Pagode du Destin Céleste de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même : « En rendant visite à un vieil ami, je suis passé près d'une planète de cultivation semi-déclinante et j'y ai rencontré un enfant. Cet enfant était capable de comprendre le domaine de la vie et de la mort du cycle de la réincarnation et tentait d'atteindre le stade de la Formation de l'Âme. Peu de gens peuvent en arriver là ; voyant que sa cultivation était insuffisante, je lui avais donné un indice en lui disant que je l'accepterais comme disciple honorifique pendant cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de cultivation il se trouve actuellement, mais s'il parvient jusqu'ici et que sa cultivation n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
 
 Le Tout-Voyant réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
 

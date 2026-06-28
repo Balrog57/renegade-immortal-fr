@@ -10,7 +10,7 @@ slug: eveil
 
 « Cette empreinte de paume... C'est lui !! Se pourrait-il que cette personne ait un lien avec... lui... pourrait-il aussi être ici ?! » Une trace de panique traversa son Sens Divin.
 
-Normalement, avec sa force mentale, ce genre de panique n'aurait jamais dû apparaître. Cependant, cet individu était tout simplement trop terrifiant. Si terrifiant que, malgré sa culture, son cœur tremblait à la seule pensée de cet homme !
+Normalement, avec sa force mentale, ce genre de panique n'aurait jamais dû apparaître. Cependant, cet individu était tout simplement trop terrifiant. Si terrifiant que, malgré sa cultivation, son cœur tremblait à la seule pensée de cet homme !
 
 « Bien que l'empreinte de cette personne présente de nombreuses différences, environ 70 % sont identiques à son sort... Est-ce une coïncidence, ou bien... ? »
 
@@ -54,7 +54,7 @@ Wang Lin réfléchit longuement avant de dire lentement : « Ainsi, il s'avère 
 
 Un rire arrogant s'échappa de Hu Pao. À cet instant, il avait véritablement les moyens d'être arrogant. La puissance de cent millions de fragments d'âmes était immense !
 
-D'autant plus que ces fragments provenaient tous de ce champ de bataille antique. Avant de mourir, aucun de leurs niveaux de culture n'était faible. Il y avait même des fragments d'âme de niveau général démon, ce qui rendait la chose d'autant plus terrifiante !
+D'autant plus que ces fragments provenaient tous de ce champ de bataille antique. Avant de mourir, aucun de leurs niveaux de cultivation n'était faible. Il y avait même des fragments d'âme de niveau général démon, ce qui rendait la chose d'autant plus terrifiante !
 
 « Avec cet étendard d'âme en main, qui pourra m'arrêter, sinon le Maître qui m'a sauvé ? Personne ne peut m'arrêter ! Cent millions de fragments n'est pas mon but ; mon objectif est un milliard, dix milliards ! Je veux qu'un dixième pays démoniaque surgisse dans la Terre des Esprits Démoniaques. Et le premier empereur démon sera moi, Hu Pao ! »
 
@@ -64,7 +64,7 @@ Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d
 
 « C'est pourquoi, au moment même où j'ai été sauvé, j'ai juré de devenir fort. Je te dépasserai, puis je te tuerai ! »
 
-Wang Lin secoua légèrement la tête en observant attentivement Hu Pao : « Pour parvenir à un tel niveau de culture en seulement dix ans, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
+Wang Lin secoua légèrement la tête en observant attentivement Hu Pao : « Pour parvenir à un tel niveau de cultivation en seulement dix ans, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
 
 « Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Red Butterfly par certains aspects, il est impossible d'atteindre un tel degré en seulement dix ans. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi ! Tu as dû cultiver une méthode qui consume ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
 
@@ -132,15 +132,15 @@ Un vieil homme se tenait au pied de cette tour. Vêtu d'une armure noire, il obs
 
 Le regard de Wang Lin s'éloigna du vieil homme pour se fixer sur la tour. Il pouvait ressentir une énergie démoniaque puissante émaner de l'édifice noir.
 
-C'était une véritable énergie démoniaque. Il y avait une distinction nette entre celle-ci et l'énergie démoniaque issue de la culture des cultivateurs.
+C'était une véritable énergie démoniaque. Il y avait une distinction nette entre celle-ci et l'énergie démoniaque issue de la cultivation des cultivateurs.
 
-Maintenant que Wang Lin avait repris ses esprits, ses pupilles se rétractèrent. Cette énergie était d'une puissance extrême. L'individu à l'intérieur de la tour devait être un expert sans égal. Wang Lin prit une profonde inspiration. Son âme originelle et son corps n'avaient pas encore totalement fusionné. Il lui faudrait encore une demi-lune pour que l'un et l'autre ne fassent qu'un, et ce n'est qu'alors sa culture au début du stade Ascendant serait stabilisée.
+Maintenant que Wang Lin avait repris ses esprits, ses pupilles se rétractèrent. Cette énergie était d'une puissance extrême. L'individu à l'intérieur de la tour devait être un expert sans égal. Wang Lin prit une profonde inspiration. Son âme originelle et son corps n'avaient pas encore totalement fusionné. Il lui faudrait encore une demi-lune pour que l'un et l'autre ne fassent qu'un, et ce n'est qu'alors sa cultivation au début du stade Ascendant serait stabilisée.
 
 « Le Fruit de l'Ascension Céleste est tout simplement trop tyrannique. Bien qu'il m'ait permis d'encaisser ses attaques, il m'a aussi plongé dans un état de folie que je n'avais jamais connu auparavant... » Wang Lin prit une grande inspiration et fixa le lointain.
 
 Le vieil homme en armure noire fit un pas. Ce mouvement fit trembler la terre, et les secousses atteignirent les pieds de Wang Lin.
 
-« Stade Ascendant avancé... La culture de cet homme... Non, attendez, son véritable niveau de culture n'est pas si élevé, c'est l'armure qu'il porte ! » La clarté de ses yeux vacilla une fois de plus. L'effet du Fruit de l'Ascension Céleste attaquait sa conscience avec acharnement, tentant de le replonger dans la démence.
+« Stade Ascendant avancé... La cultivation de cet homme... Non, attendez, son véritable niveau de cultivation n'est pas si élevé, c'est l'armure qu'il porte ! » La clarté de ses yeux vacilla une fois de plus. L'effet du Fruit de l'Ascension Céleste attaquait sa conscience avec acharnement, tentant de le replonger dans la démence.
 
 Les yeux de Wang Lin devinrent froids et il poussa un reniflement cinglant pour réprimer les effets du fruit. Puis, il leva la main droite vers le ciel. Un grondement retentit alors qu'une immense rivière apparut dans les airs.
 

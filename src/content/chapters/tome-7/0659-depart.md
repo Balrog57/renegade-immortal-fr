@@ -42,11 +42,11 @@ Il s'agissait du Couple Céleste des Nuages, Wang Wei et Hu Juan.
 
 Wang Wei observa calmement Ling Tianhou et sa compagnie. Lorsque son regard se posa sur l'Omniscient, ses pupilles se rétractèrent imperceptiblement. L'Omniscient gardait les yeux clos ; il continuait ses calculs même après leur arrivée.
 
-Wang Wei sourit. « Chers compagnons de culture, cela fait bien longtemps ! »
+Wang Wei sourit. « Chers compagnons de cultivation, cela fait bien longtemps ! »
 
 Hu Juan esquissa également un sourire discret, sans toutefois prendre la parole.
 
-Ling Tianhou fixa Wang Wei et dit froidement : « Compagnon de culture Wang, j'ai remarqué que Cupidité est avec vous. Remettez-le moi, j'ai des questions cruciales à lui poser ! »
+Ling Tianhou fixa Wang Wei et dit froidement : « Compagnon de cultivation Wang, j'ai remarqué que Cupidité est avec vous. Remettez-le moi, j'ai des questions cruciales à lui poser ! »
 
 Wang Wei sourit et dit à son amante : « Regarde, après tant d'années, non seulement le tempérament du Saint de l'Épée n'a pas faibli, mais il s'est encore aggravé. »
 
@@ -70,11 +70,11 @@ Cupidité eut un rire moqueur. « Ce vieil homme vous a enfermés dans la brume 
 
 Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et trancha froidement : « Chen Long, tais-toi ! » Puis, fixant Cupidité avec une intention meurtrière, il ajouta mot pour mot : « Cupidité, où est le jeton ?! »
 
-Cupidité eut un sourire amer et déclara d'un ton désespéré : « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains ! »
+Cupidité eut un sourire amer et déclara d'un ton désespéré : « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de cultivation que le jeton n'est pas entre mes mains ! »
 
 Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Cupidité.
 
-Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement : « C'est Wang Lin, du Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner ! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Lou ! »
+Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de cultivation. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement : « C'est Wang Lin, du Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner ! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Lou ! »
 
 Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 
@@ -124,6 +124,6 @@ L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Apr
 
 Ling Tianhou demanda d'une voix pesante : « Qui ira ? »
 
-« Si je me propose, mes compagnons de culture se méfieront de moi. Le meilleur choix est sans aucun doute Cupidité ! Nous placerons chacun une restriction sur lui, et ainsi, ce Cupidité ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener ! De plus, le niveau de culture de Cupidité est assez élevé pour faire face à lui ! »
+« Si je me propose, mes compagnons de cultivation se méfieront de moi. Le meilleur choix est sans aucun doute Cupidité ! Nous placerons chacun une restriction sur lui, et ainsi, ce Cupidité ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener ! De plus, le niveau de cultivation de Cupidité est assez élevé pour faire face à lui ! »
 
 L'Omniscient fixa silencieusement le vortex, ses yeux brillant d'une lueur mystérieuse. Personne ne savait ce qu'il méditait.

@@ -48,7 +48,7 @@ Le visage de Zhao Xingsha était empreint d'une grande gravité. Ignorant l'homm
 
 L'expression de Wang Lin demeura imperturbable. L'apparition de ces gens était prévisible. Il soupçonnait que tout ceci était manipulé en secret par l'Omniscient, sans pour autant comprendre ses motivations. Malgré l'incertitude de la situation, aucune trace de peur ne transparaissait sur son visage.
 
-Zhao Xingsha était au milieu du stade de la Transformation de l'Âme ! Bai Wei également ! L'homme d'âge moyen aussi ! La seule personne dont Wang Lin ignorait le niveau était la femme ; sa culture semblait extrêmement puissante !
+Zhao Xingsha était au milieu du stade de la Transformation de l'Âme ! Bai Wei également ! L'homme d'âge moyen aussi ! La seule personne dont Wang Lin ignorait le niveau était la femme ; sa cultivation semblait extrêmement puissante !
 
 « Stade avancé de la Transformation de l'Âme... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -56,7 +56,7 @@ Face à la question de Zhao Xingsha, Wang Lin demanda calmement : « Qui est Sun
 
 À ces mots, les visages de l'assistance changèrent instantanément. Zhao Xingsha fixa Wang Lin un moment avant de dire : « Septième frère, tu as tort. Ton frère aîné ne peut rien pour toi ici ! » Sur ce, il relâcha l'homme d'âge moyen.
 
-En une seule enjambée, l'homme franchit près de cent pieds pour s'arrêter à dix pieds de Wang Lin. Il se dressa devant lui et cracha : « Déchet d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort ! »
+En une seule enjambée, l'homme franchit près de cent pieds pour s'arrêter à dix pieds de Wang Lin. Il se dressa devant lui et cracha : « Déchet d'une planète de cultivation stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort ! »
 
 Une aura meurtrière émanait de cet homme. Wang Lin le dévisagea et posa la main sur son sac de rangement.
 
@@ -68,7 +68,7 @@ Un éclat mystérieux passa dans les yeux de Bai Wei alors qu'il répondait : «
 
 L'homme d'âge moyen renifla, se retourna vers Wang Lin et déclara : « Attaque. Je te laisse utiliser trois sorts ! Même si tu emploies des trésors magiques, je te permettrai de les utiliser en premier ! »
 
-Wang Lin l'observa avec calme. La culture de cet homme était au milieu du stade de la Transformation de l'Âme et il possédait une énergie spirituelle céleste bien supérieure à la sienne. Cependant, Wang Lin disposait de nombreux trésors magiques et, en comptant les trois sorts mortels légués par Situ Nan, il avait 70 % de chances de l'emporter contre un cultivateur de ce niveau.
+Wang Lin l'observa avec calme. La cultivation de cet homme était au milieu du stade de la Transformation de l'Âme et il possédait une énergie spirituelle céleste bien supérieure à la sienne. Cependant, Wang Lin disposait de nombreux trésors magiques et, en comptant les trois sorts mortels légués par Situ Nan, il avait 70 % de chances de l'emporter contre un cultivateur de ce niveau.
 
 « Trois sorts... » Un léger sourire étira les lèvres de Wang Lin alors qu'il pointait son pouce vers l'adversaire : « Très bien ! »
 

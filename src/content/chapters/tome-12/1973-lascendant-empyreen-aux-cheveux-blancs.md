@@ -16,7 +16,7 @@ Chapitre 1973 - L'Ascendant Empyréen aux cheveux blancs !
 
 Alors que ses paroles résonnaient, trois vieillards apparurent à ces endroits. L'homme situé juste devant Wang Lin était l'Ascendant Empyréen !
 
-Ses cheveux étaient mi-noirs, mi-blancs. Il fixait Wang Lin avec un mélange de choc et d'hésitation dans les yeux. Il semblait avoir des conjectures sur le niveau de culture de Wang Lin, mais il en était incertain.
+Ses cheveux étaient mi-noirs, mi-blancs. Il fixait Wang Lin avec un mélange de choc et d'hésitation dans les yeux. Il semblait avoir des conjectures sur le niveau de cultivation de Wang Lin, mais il en était incertain.
 
 « Je ne souhaite pas me faire un ennemi du Manoir Li. Après tout, la relique de Li Guang m'a beaucoup aidé. » Wang Lin mentionna comment l'Arc de Li Guang l'avait aidé à échapper à de nombreux dangers dans le monde des grottes.
 

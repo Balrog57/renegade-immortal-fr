@@ -40,7 +40,7 @@ Malgré son sourire, ses paroles n'avaient rien d'arrogant ; il paraissait très
 
 « L'Ancien Wang est trop modeste. Nous appartenons désormais au même secte et nous nous entraiderons naturellement. »
 
-« Haha, la culture de l'Ancien Wang est extraordinaire et vos sorts sont prodigieux. Les cultivateurs comme nous respectent les forts. Pourquoi parler d'imprudence ? Aucun problème, aucun problème ! »
+« Haha, la cultivation de l'Ancien Wang est extraordinaire et vos sorts sont prodigieux. Les cultivateurs comme nous respectent les forts. Pourquoi parler d'imprudence ? Aucun problème, aucun problème ! »
 
 « Si l'Ancien Wang en a le temps, venez à ma Montagne du Nuage Détendu. J'y tiens un thé céleste dont nous pourrons discuter tout en débattant du Dao. »
 
@@ -68,9 +68,9 @@ L'Ancêtre Taureau Vert rit de cette scène. Il hocha la tête et dit : « C'est
 
 Wang Lin saisit le jade et ne dit plus rien. Il s'envola vers son pic, passant devant les nombreux disciples de Yan Lu. Soudain, il s'arrêta et jeta un regard à Fan Shanmeng.
 
-Le cœur de Fan Shanmeng trembla sous ce regard fugace, et elle baissa la tête. Sa culture était faible ; elle n'était qu'au septième stade des Tribulations Arcanes, tout comme Du Qing. Le fait que sa sœur et elle soient devenues les partenaires Dao du Souverain Céleste aux Sept Couleurs ne dépendait pas de sa propre culture, mais du simple fait qu'elle fût une disciple du Grand Secte de l'Âme !
+Le cœur de Fan Shanmeng trembla sous ce regard fugace, et elle baissa la tête. Sa cultivation était faible ; elle n'était qu'au septième stade des Tribulations Arcanes, tout comme Du Qing. Le fait que sa sœur et elle soient devenues les partenaires Dao du Souverain Céleste aux Sept Couleurs ne dépendait pas de sa propre cultivation, mais du simple fait qu'elle fût une disciple du Grand Secte de l'Âme !
 
-Une raison plus profonde et un coup de chance avaient présidé à cela. Autrement, avec la culture de Tribulation du Vide du Souverain Céleste à l'époque, il n'aurait jamais pris une partenaire comme elle.
+Une raison plus profonde et un coup de chance avaient présidé à cela. Autrement, avec la cultivation de Tribulation du Vide du Souverain Céleste à l'époque, il n'aurait jamais pris une partenaire comme elle.
 
 Le Souverain Céleste aux Sept Couleurs avait traversé bien des épreuves. Il avait eu de nombreuses amours que les autres ignoraient. Pourtant, même après avoir atteint le stade médian de la Tribulation du Vide, il était resté avec Fan Shanmeng. Cela prouvait l'attachement qu'il lui portait.
 

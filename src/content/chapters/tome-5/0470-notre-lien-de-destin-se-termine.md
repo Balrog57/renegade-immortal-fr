@@ -92,7 +92,7 @@ Le corps de Wang Lin apparut devant la Secte du Ciel Nuageux.
 
 Un rayon de lumière s'élança rapidement de la secte et s'arrêta à dix pieds de Wang Lin, révélant un vieil homme : c'était Tie Yan.
 
-Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un pays de culture de rang 4.
+Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un pays de cultivation de rang 4.
 
 « Tie Yan est là ! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
 

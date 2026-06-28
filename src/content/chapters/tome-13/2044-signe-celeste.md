@@ -40,7 +40,7 @@ Enfin, Wang Lin tourna son regard vers l'essence du tonnerre de la boucherie. Ce
 
 « J'ai constamment réprimé cette essence de la boucherie. Elle est née lorsque je l'ai fusionnée avec le tonnerre, puis j'ai utilisé les restrictions pour l'équilibrer. Ensuite, elle a été fusionnée avec la fin absolue, ce qui l'a renforcée, m'obligeant à utiliser le commencement absolu pour l'équilibrer de nouveau. »
 
-« Par conséquent, si elles atteignent toutes un état de corps véritable d'essence, tout devrait trouver son équilibre. De plus, j'ai d'autres méthodes ! » marmonna Wang Lin avant de prendre une résolution ferme. À cet instant, il ne pouvait plus hésiter. S'il voulait accroître son niveau de culture, il devait franchir ce pas.
+« Par conséquent, si elles atteignent toutes un état de corps véritable d'essence, tout devrait trouver son équilibre. De plus, j'ai d'autres méthodes ! » marmonna Wang Lin avant de prendre une résolution ferme. À cet instant, il ne pouvait plus hésiter. S'il voulait accroître son niveau de cultivation, il devait franchir ce pas.
 
 Fixant l'essence de la boucherie et le corps véritable du tonnerre, Wang Lin prit sa décision. Le corps véritable du tonnerre ouvrit les yeux et aspira l'essence de la boucherie. Le tonnerre entourant son corps vira soudainement au noir.
 
@@ -70,11 +70,11 @@ Toute secte dotée d'une puissance ressentait qu'après cette période de latenc
 
 Au cours de ce conflit, même des Grands Empereurs pourraient tomber. Quant aux Ascendants et aux Empereurs Exaltés des diverses sectes, certains disparaîtraient tandis que d'autres entreraient dans la légende.
 
-Dans le clan Ancien, le constat était identique. Les trois familles royales suivaient les ordres du Grand Empereur Gu Dao pour se préparer au combat. Tous ressentaient cette pression, et leurs Grands Empereurs respectifs s'étaient retirés en culture fermée.
+Dans le clan Ancien, le constat était identique. Les trois familles royales suivaient les ordres du Grand Empereur Gu Dao pour se préparer au combat. Tous ressentaient cette pression, et leurs Grands Empereurs respectifs s'étaient retirés en cultivation fermée.
 
 Dans le Dao Ancien, Luo Chen était devenu le nouvel empereur. Cependant, en tant que nouveau souverain, il ne maîtrisait pas encore l'ensemble du Dao Ancien. Il lui faudrait du temps pour s'adapter avant de véritablement tout posséder.
 
-Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'empereur dans la gestion du Dao Ancien. Quant à Xuan Luo, après avoir nommé Luo Chen, il s'était également retiré en culture fermée.
+Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'empereur dans la gestion du Dao Ancien. Quant à Xuan Luo, après avoir nommé Luo Chen, il s'était également retiré en cultivation fermée.
 
 Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaume Divin Immemorial. Ce n'était pas le moment idéal pour se réincarner ; il devait contenir cette pulsion et attendre que les choses s'apaisent.
 
@@ -88,11 +88,11 @@ Ji Du avait tenté de rencontrer le Grand Empereur Song Tian à maintes reprises
 
 Une jeune femme se tenait à ses côtés, le regardant de temps à autre avec une inquiétude manifeste.
 
-« Frère, le Senior Wang Lin est en culture fermée depuis cent ans... La date de l'abdication de Père approche. Selon la coutume, un nouvel empereur doit être choisi cent ans avant l'abdication. »
+« Frère, le Senior Wang Lin est en cultivation fermée depuis cent ans... La date de l'abdication de Père approche. Selon la coutume, un nouvel empereur doit être choisi cent ans avant l'abdication. »
 
 « En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide du Senior Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser l'un des génies de l'Ancien Shi — un homme considéré comme le plus puissant de sa génération et un allié proche de Ji Du. Elle s'exprima à côté de lui en jetant un regard froid sur la situation.
 
-« La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Ancien, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song ? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
+« La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Ancien, il s'est immédiatement retiré en cultivation fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song ? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
 
 « Frère royal ! » s'exclama la femme, encore plus anxieuse.
 
@@ -116,4 +116,4 @@ Le ciel, autrefois limpide, sembla s'effondrer tandis que d'immenses fragments s
 
 « Un signe céleste ! »
 
-« Cela provient de la chambre de culture de Père ! Père est sorti de sa culture fermée ! » Ji Du se leva, transporté par l'excitation.
+« Cela provient de la chambre de cultivation de Père ! Père est sorti de sa cultivation fermée ! » Ji Du se leva, transporté par l'excitation.

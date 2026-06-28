@@ -66,7 +66,7 @@ Red Butterfly tituba de quelques pas en arrière et son visage devint instantan�
 
 « Merci... »
 
-Lorsqu'elle prononça ces deux mots, elle ne s'entendit même pas les dire. Elle se transforma en un rayon de lumière rouge et fonça vers Allheaven. Sa vitesse atteignait la limite autorisée par son niveau de culture. Elle retournait à Allheaven pour retrouver Qing Shui !
+Lorsqu'elle prononça ces deux mots, elle ne s'entendit même pas les dire. Elle se transforma en un rayon de lumière rouge et fonça vers Allheaven. Sa vitesse atteignait la limite autorisée par son niveau de cultivation. Elle retournait à Allheaven pour retrouver Qing Shui !
 
 Red Butterfly était partie !
 
@@ -120,7 +120,7 @@ Ces trois individus étaient censés être restés piégés dans l'Ancienne Tomb
 
 Nous étions au sixième mois de la deuxième année ! Il restait encore un semestre avant que l'accord de Wang Lin avec les quatre grands généraux n'arrive à échéance.
 
-« Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire ! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
+« Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta cultivation... Aujourd'hui, je ferai ce qu'un père se doit de faire ! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
 
 D'un revers de manche, il fit un pas vers l'Outer Realm. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
 
@@ -134,12 +134,12 @@ D'un revers de manche, il fit un pas vers l'Outer Realm. Son corps se changea en
 
 Pourtant, sa silhouette était aussi immuable qu'une montagne. En sa présence, nul ne pouvait faire un seul pas en avant !
 
-Sa culture au sommet du Vide Arcane explosa de son corps. La puissance d'un sommet du Vide Arcane était capable de briser les cieux. Il n'attaqua pas, mais la simple aura de sa culture fit trembler le système stellaire tout entier.
+Sa cultivation au sommet du Vide Arcane explosa de son corps. La puissance d'un sommet du Vide Arcane était capable de briser les cieux. Il n'attaqua pas, mais la simple aura de sa cultivation fit trembler le système stellaire tout entier.
 
 C'était comme si l'univers complet devait se soumettre à sa force !
 
 L'expression du Maître Dao Miao Yin changea. Lui, Neuf Cieux et la Grande Désolation échangèrent des regards où ne transparaissait que la terreur.
 
-Les Cinq Maîtres du Système Stellaire Antique possédaient des niveaux de culture variés. Bien que le Souverain détiât un pouvoir terrifiant, Bleu Rêve à pleine puissance était encore plus redoutable. Si ce n'était pour l'imperfection de son cœur de Dao causée par sa femme, et pour son refus d'affronter la Tribulation Arcane, même le Souverain ne pourrait donner d'ordres à Bleu Rêve !
+Les Cinq Maîtres du Système Stellaire Antique possédaient des niveaux de cultivation variés. Bien que le Souverain détiât un pouvoir terrifiant, Bleu Rêve à pleine puissance était encore plus redoutable. Si ce n'était pour l'imperfection de son cœur de Dao causée par sa femme, et pour son refus d'affronter la Tribulation Arcane, même le Souverain ne pourrait donner d'ordres à Bleu Rêve !
 
 Ces trois êtres le savaient parfaitement !

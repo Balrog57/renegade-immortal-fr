@@ -18,7 +18,7 @@ Tandis que le jeune homme riait, la bête spirituelle noire sous ses pieds charg
 
 Toute la pluie qui tombait fut repoussée. C'était comme si les précipitations devaient s'arrêter partout où passait cette rafale ! Même les éclairs furent déchirés par le souffle du vent, se dispersant tels des fleurs épanouies.
 
-À cet instant, tous les disciples du Secte Origin sortirent de leur culture. Leurs visages étaient pâles, accablés par une pression puissante venant de l'ouest, une force qui semblait pouvoir les écraser à tout moment.
+À cet instant, tous les disciples du Secte Origin sortirent de leur cultivation. Leurs visages étaient pâles, accablés par une pression puissante venant de l'ouest, une force qui semblait pouvoir les écraser à tout moment.
 
 Au sommet de la montagne orientale du Secte Origin, l'homme d'âge mûr parmi les quatre anciens affichait une expression amère. Il ferma silencieusement les yeux, avant de les rouvrir avec véhémence. Se transformant en un rayon de lumière, il s'élança vers l'ouest.
 
@@ -62,7 +62,7 @@ En entendant les paroles du vieil homme, le jeune homme en pourpre fut stupéfai
 
 « Je vais te faire l'honneur, alors dégage d'ici immédiatement et ne reviens jamais ! » La voix glaciale de Wang Lin frappa l'ancien comme un vent glacial.
 
-Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre du Secte Origin, il demeurait un cultivateur au stade intermédiaire de la Purification du Nirvana. Ne pouvant réellement percer le niveau de culture de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
+Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre du Secte Origin, il demeurait un cultivateur au stade intermédiaire de la Purification du Nirvana. Ne pouvant réellement percer le niveau de cultivation de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
 
 « Quel ton arrogant. Même lorsque l'ancêtre du Secte Origin a affronté notre Secte du Dao Pourpre, il a dû... » Avant que le vieil homme ne puisse achever sa phrase, le jeune homme en pourpre derrière lui éclata de rire.
 

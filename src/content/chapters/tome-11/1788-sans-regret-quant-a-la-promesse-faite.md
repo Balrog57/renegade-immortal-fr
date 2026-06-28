@@ -128,4 +128,4 @@ Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine 
 
 Outre le fait de sauver Fan Shanlu, il y avait une chose que Wang Lin avait presque oubliée. Dans le dernier mois précédant son départ, un souvenir lui revint soudainement à l'esprit.
 
-Il avait autrefois promis à un petit personnage de lui offrir un corps doté d'un certain niveau de culture. L'âme de ce petit personnage reposait dans son espace de stockage depuis bien longtemps.
+Il avait autrefois promis à un petit personnage de lui offrir un corps doté d'un certain niveau de cultivation. L'âme de ce petit personnage reposait dans son espace de stockage depuis bien longtemps.

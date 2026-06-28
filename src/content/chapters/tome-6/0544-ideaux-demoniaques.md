@@ -22,7 +22,7 @@ Son corps fut projeté en arrière par une force colossale et s'écrasa au sol, 
 
 Seule la moitié d'un sceau de vie, formé par l'Art du Massacre Céleste, subsistait ; le reste s'était dissipé.
 
-L'éclat doré dans les yeux du général de l'aile gauche s'estompa et il déclara calmement : « Il est déjà très difficile de résister à la puissance du quatrième effondrement avec ta culture de Transformation de l'Âme au stade intermédiaire. Tu peux te retirer ! Il t'est impossible d'obtenir le poste de commandant en chef, tu ne pourras même pas devenir simple commandant. Le seul rang qui te soit réservé est celui d'Ancien ! » Bien que son expression n'affichât aucun mépris, ses paroles étaient cinglantes.
+L'éclat doré dans les yeux du général de l'aile gauche s'estompa et il déclara calmement : « Il est déjà très difficile de résister à la puissance du quatrième effondrement avec ta cultivation de Transformation de l'Âme au stade intermédiaire. Tu peux te retirer ! Il t'est impossible d'obtenir le poste de commandant en chef, tu ne pourras même pas devenir simple commandant. Le seul rang qui te soit réservé est celui d'Ancien ! » Bien que son expression n'affichât aucun mépris, ses paroles étaient cinglantes.
 
 Les yeux de Wang Lin brillèrent intensément. L'intention du poing contenue dans les dix effondrements représentait l'apogée de l'esprit du général. Pour un cultivateur, c'était la mesure de la pureté de son cœur Dao. Le cœur Dao fusionne avec l'âme originelle et provoque ainsi l'évolution de cette dernière. Dès lors, une seule foi demeure dans le corps d'un individu. Cette foi est si puissante qu'elle peut bouleverser les cieux et la terre !
 
@@ -86,9 +86,9 @@ Son corps ressemblait à une ombre et, d'un seul pas, il perça l'anneau de lumi
 
 L'éclat doré dans les yeux du général de l'aile gauche brilla intensément et il hurla : « Quel étrange individu ! Ce général t'a vraiment sous-estimé. Je t'attendrai ici ; il reste encore quatre effondrements ! »
 
-« La foi de ton sort est la conviction que tu remporteras la victoire. Elle est forgée par la volonté et l'esprit de tous ceux qui ont succombé à ta technique. Je n'ai pas la culture nécessaire pour briser tes dix effondrements, mais je sais que la clé ne réside pas dans la culture, mais dans la foi ! »
+« La foi de ton sort est la conviction que tu remporteras la victoire. Elle est forgée par la volonté et l'esprit de tous ceux qui ont succombé à ta technique. Je n'ai pas la cultivation nécessaire pour briser tes dix effondrements, mais je sais que la clé ne réside pas dans la cultivation, mais dans la foi ! »
 
-« Pour briser ta foi, je me suis transformé en démon avec ce doigt et j'ai fusionné cette conviction avec mon Doigt Démoniaque. Ainsi, mon doigt semble désormais posséder sa propre âme. Ce n'est plus une compétition de culture, mais un combat de convictions ! » Tandis que Wang Lin prononçait ces paroles avec calme, il fit un nouveau pas en avant !
+« Pour briser ta foi, je me suis transformé en démon avec ce doigt et j'ai fusionné cette conviction avec mon Doigt Démoniaque. Ainsi, mon doigt semble désormais posséder sa propre âme. Ce n'est plus une compétition de cultivation, mais un combat de convictions ! » Tandis que Wang Lin prononçait ces paroles avec calme, il fit un nouveau pas en avant !
 
 Le septième effondrement arriva !
 

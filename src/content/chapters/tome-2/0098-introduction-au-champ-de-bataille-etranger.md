@@ -12,15 +12,15 @@ Au plus profond des cavernes du Secte des Cadavres, les yeux de Ye Zizai s'illum
 
 « Je m'absente pour quelques jours. Ouvrez la formation de défense et tuez quiconque osera s'enfuir ! »
 
-L'ancêtre de la famille Teng, Teng Huayuan, était en pleine culture dans la demeure ancestrale de son clan lorsque l'arc-en-ciel apparut dans le ciel. Ses yeux s'illuminèrent, trahissant une certaine hésitation. Après un instant, il envoya une transmission vocale par jade avant de partir à son tour.
+L'ancêtre de la famille Teng, Teng Huayuan, était en pleine cultivation dans la demeure ancestrale de son clan lorsque l'arc-en-ciel apparut dans le ciel. Ses yeux s'illuminèrent, trahissant une certaine hésitation. Après un instant, il envoya une transmission vocale par jade avant de partir à son tour.
 
 La même scène se produisit au sein des divers grands sectes à travers Zhao.
 
 Depuis l'ensemble du territoire de Zhao, toutes les traînées de lumière convergèrent vers la Tour Céleste.
 
-La Tour Céleste était le symbole d'un pays membre de l'Union de Culture. Lorsqu'une nation rejoignait l'Union, celle-ci envoyait un représentant pour ériger la tour. Un messager résidait à l'intérieur de la Tour Céleste ; ce dernier ne s'immisçait pas dans les affaires du pays hôte et n'intervenait que pour résoudre les crises majeures.
+La Tour Céleste était le symbole d'un pays membre de l'Union de Cultivation. Lorsqu'une nation rejoignait l'Union, celle-ci envoyait un représentant pour ériger la tour. Un messager résidait à l'intérieur de la Tour Céleste ; ce dernier ne s'immisçait pas dans les affaires du pays hôte et n'intervenait que pour résoudre les crises majeures.
 
-Punnan Zi fut le premier cultivateur de l'Âme Naissante à atteindre la Tour Céleste. Après tout, il était le dernier survivant des cultivateurs de l'Âme Naissante d'il y a cinq cents ans. Son niveau de culture atteignait déjà le stade intermédiaire de l'Âme Naissante, et il n'était plus qu'à un pas du stade avancé.
+Punnan Zi fut le premier cultivateur de l'Âme Naissante à atteindre la Tour Céleste. Après tout, il était le dernier survivant des cultivateurs de l'Âme Naissante d'il y a cinq cents ans. Son niveau de cultivation atteignait déjà le stade intermédiaire de l'Âme Naissante, et il n'était plus qu'à un pas du stade avancé.
 
 Grâce à l'expérience acquise sur le champ de bataille étranger, il occupait solidement la position de cultivateur le plus puissant de Zhao.
 
@@ -68,7 +68,7 @@ Des rafales de vent surgirent des piliers de lumière. Elles frappèrent violemm
 
 Il s'agissait de Punnan Zi, Ye Zizai, un cultivateur aux cheveux blancs de la Secte Piao Miao et un vieil homme svelte de la Secte Tian Dao.
 
-L'expression du messager corpulent devint extrêmement grave. Il s'élança dans les airs et cria respectueusement : « Shi Linyi, modérateur de rang 3, accueille l'arrivée du Messager de l'Union de Culture ! »
+L'expression du messager corpulent devint extrêmement grave. Il s'élança dans les airs et cria respectueusement : « Shi Linyi, modérateur de rang 3, accueille l'arrivée du Messager de l'Union de Cultivation ! »
 
 Une tête gigantesque émergea du trou noir et fixa froidement l'assemblée.
 

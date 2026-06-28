@@ -72,9 +72,9 @@ La foudre bougeait à l'intérieur des fissures et s'approcha instantanément de
 
 Wang Lin se trouvait au cœur de cette sphère. La foudre se débattait et refusait d'être contrôlée par lui. Puis, elle commença à se contracter frénétiquement vers lui !
 
-Wang Lin laissa échapper un reniflement glacial alors que la foudre enveloppait son corps. Bien que son niveau de culture ne puisse égaler celui de la statue, son âme originelle était celle d'un dragon de tonnerre ancien. Il était le maître du tonnerre en ce monde. Tant qu'il s'agissait de tonnerre, cela n'était pas digne de le défier !
+Wang Lin laissa échapper un reniflement glacial alors que la foudre enveloppait son corps. Bien que son niveau de cultivation ne puisse égaler celui de la statue, son âme originelle était celle d'un dragon de tonnerre ancien. Il était le maître du tonnerre en ce monde. Tant qu'il s'agissait de tonnerre, cela n'était pas digne de le défier !
 
-Cela n'avait rien à voir avec la culture ; c'était une bataille de tonnerre !
+Cela n'avait rien à voir avec la cultivation ; c'était une bataille de tonnerre !
 
 Les dragons de tonnerre anciens s'étaient vu accorder par le Dao céleste le droit de contrôler le tonnerre. Mais Wang Lin ne croyait pas aux cieux et allait utiliser son propre Dao pour dérober aux cieux le droit de commander au tonnerre !
 

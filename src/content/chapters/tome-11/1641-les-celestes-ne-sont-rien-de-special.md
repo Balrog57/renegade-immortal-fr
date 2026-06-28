@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1641 - Celestials Aren’t Anything Special
 slug: les-celestes-ne-sont-rien-de-special
 ---
-« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une culture en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Domaine Brillant des Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
+« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une cultivation en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Domaine Brillant des Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
 
 En vérité, il avait ressenti ces auras dès son entrée dans le Royaume Céleste Antique. La raison de sa présence ici, outre la destruction des statues, était de rencontrer l'une de ces quatre auras familières.
 
@@ -48,7 +48,7 @@ D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse 
 
 Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal !
 
-Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade intermédiaire de l'Espace Arcane.
+Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante cultivation du stade intermédiaire de l'Espace Arcane.
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le vieillard. Sa main droite se crispa en un poing et il lança un coup vers lui. Lorsque les deux forces entrèrent en collision, un fracas tonitruant retentit, faisant trembler la terre.
 

@@ -14,7 +14,7 @@ Ce son fut si puissant que le corps de Ta Shan fut repoussé de plusieurs dizain
 
 Le garçon à la grosse tête fut également projeté en arrière. Quant à Lei Ji, il ressentit un bourdonnement et son esprit s'obscurcit ; il comprit seulement qu'il était constamment repoussé.
 
-Yun Quezi subit le même sort. Ayant le niveau de culture le plus bas, il fut projeté en arrière jusqu'à heurter un mur. Il cracha une grande bouffée de sang, l'esprit brisé.
+Yun Quezi subit le même sort. Ayant le niveau de cultivation le plus bas, il fut projeté en arrière jusqu'à heurter un mur. Il cracha une grande bouffée de sang, l'esprit brisé.
 
 Le regard de Wang Lin se glaça. À l'instant où la voix apparut, son énergie originelle s'activa et il fut repoussé de plusieurs dizaines de pieds avant de pouvoir se stabiliser. Le visage pâle, il regarda droit devant lui.
 
@@ -44,7 +44,7 @@ L'expression de Wang Lin était empreinte de respect. Aucune trace de rébellion
 
 Le vieux cultivateur observa Wang Lin. Après un moment de réflexion, il dit : « Wang Lin, je veux te poser une question. Penses-tu sincèrement que je suis l'ancien maître de la Secte Heng Yue et te considères-tu sincèrement comme un disciple de la Secte Heng Yue ? »
 
-Wang Lin réfléchit en silence. Il éprouvait beaucoup de regrets envers la Secte Heng Yue. Après tout, elle fut sa première secte et son premier pas dans le monde de la culture.
+Wang Lin réfléchit en silence. Il éprouvait beaucoup de regrets envers la Secte Heng Yue. Après tout, elle fut sa première secte et son premier pas dans le monde de la cultivation.
 
 Il regarda le vieux cultivateur et dit calmement : « La Secte Heng Yue était la première secte de Junior, et la planète Suzaku est ma patrie. »
 
@@ -56,11 +56,11 @@ Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Apr�
 
 Wang Lin hocha la tête, le visage serein.
 
-« Cette guerre contre le Système Stellaire Allheaven est la bataille de l'Alliance de la Culture. Elle n'a rien à voir avec mes Quatre Sectes Divines ! » lança le vieux cultivateur avec une désinvolture apparente.
+« Cette guerre contre le Système Stellaire Allheaven est la bataille de l'Alliance de la Cultivation. Elle n'a rien à voir avec mes Quatre Sectes Divines ! » lança le vieux cultivateur avec une désinvolture apparente.
 
 L'expression de Wang Lin changea alors qu'il fixait l'homme.
 
-Le vieux cultivateur cessa d'en parler et se tourna vers lui. Après réflexion, il dit : « Wang Lin, puisque tu as vu le 17e niveau, tu dois déjà avoir des conjectures en tête. Avec ton niveau de culture actuel, tu peux entrer dans le 18e niveau pour tenter de comprendre ce qui s'y trouve avec mon aide. Que tu y trouves quelque chose ou non dépendra de ta chance ! »
+Le vieux cultivateur cessa d'en parler et se tourna vers lui. Après réflexion, il dit : « Wang Lin, puisque tu as vu le 17e niveau, tu dois déjà avoir des conjectures en tête. Avec ton niveau de cultivation actuel, tu peux entrer dans le 18e niveau pour tenter de comprendre ce qui s'y trouve avec mon aide. Que tu y trouves quelque chose ou non dépendra de ta chance ! »
 
 Sans attendre de réponse sur la volonté du jeune homme, il agita sa manche. Wang Lin sentit une force puissante l'envelopper. Bien qu'il restât prudent, il ne résista pas et maintint son expression respectueuse.
 

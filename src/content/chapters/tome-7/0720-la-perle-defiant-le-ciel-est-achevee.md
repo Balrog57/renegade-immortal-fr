@@ -114,9 +114,9 @@ C'était comme si ce qui se dressait devant lui appartenait à un niveau totalem
 
 Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent de Lune, il n'avait éprouvé que de la surprise. Il n'avait jamais connu ce tremblement de l'âme qui lui donnait l'impression de ne pouvoir opposer la moindre résistance.
 
-C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de culture. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur !
+C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de cultivation. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur !
 
-À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la rétribution divine dans la Terre des Esprits Démoniques, il s'était appuyé sur son cœur taoïste pour persévérer et résister !
+À mesure que la cultivation et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la rétribution divine dans la Terre des Esprits Démoniques, il s'était appuyé sur son cœur taoïste pour persévérer et résister !
 
 Mais en cet instant, bien que cette porte gigantesque ne dégageât aucune pression directe, son esprit et son corps tremblaient !
 

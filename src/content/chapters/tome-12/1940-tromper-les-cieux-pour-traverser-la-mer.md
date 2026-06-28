@@ -22,7 +22,7 @@ Un sourire joyeux éclaira son visage. Rencontrer un vieil ami en cette terre é
 
 En un éclair, il abandonna l'idée de se rendre à la Secte Dong Lin et vola vers la cité mortelle située à des centaines de milliers de kilomètres.
 
-Avec son niveau de culture, il pouvait parcourir une telle distance en un instant. À mesure qu'il approchait de la ville, la sensation devenait plus intense. Lorsqu'il arriva au-dessus de la cité, il regarda en bas et aperçut, à l'intérieur des murs, un vieil homme aux cheveux blancs dégageant l'aura d'un immortel. Il afficha une expression étrange.
+Avec son niveau de cultivation, il pouvait parcourir une telle distance en un instant. À mesure qu'il approchait de la ville, la sensation devenait plus intense. Lorsqu'il arriva au-dessus de la cité, il regarda en bas et aperçut, à l'intérieur des murs, un vieil homme aux cheveux blancs dégageant l'aura d'un immortel. Il afficha une expression étrange.
 
 Ce vieil homme était la source de la fluctuation du sceau !
 
@@ -34,7 +34,7 @@ Même sans cette fluctuation, Wang Lin aurait immédiatement reconnu le visage f
 
 En observant la fierté dissimulée de Liu Jinbiao et les mortels qui l'entouraient, Wang Lin ne put s'empêcher de sourire plus largement encore. Cependant, une partie de ce sourire était amer, teinté par un certain mal de tête.
 
-« Tromper des mortels... Liu Jinbiao était capable de duper des cultivateurs, alors pourquoi trompe-t-il des simples mortels ? Des fluctuations de culture émanent de son corps ; il a atteint le stade de la Formation du Noyau au fil des années. Utiliser sa culture pour escroquer des mortels... je me demande ce qui lui passe par la tête. » Wang Lin fronça les sourcils tout en observant et en méditant. Il ne chercha pas à réveiller immédiatement la mémoire de Liu Jinbiao, mais préféra observer sa manière de les duper.
+« Tromper des mortels... Liu Jinbiao était capable de duper des cultivateurs, alors pourquoi trompe-t-il des simples mortels ? Des fluctuations de cultivation émanent de son corps ; il a atteint le stade de la Formation du Noyau au fil des années. Utiliser sa cultivation pour escroquer des mortels... je me demande ce qui lui passe par la tête. » Wang Lin fronça les sourcils tout en observant et en méditant. Il ne chercha pas à réveiller immédiatement la mémoire de Liu Jinbiao, mais préféra observer sa manière de les duper.
 
 Si Wang Lin ne souhaitait pas être remarqué, il resterait invisible pour presque tout le monde.
 
@@ -62,7 +62,7 @@ Quelques jours plus tard, ils arrivèrent aux abords d'une chaîne de montagnes.
 
 « Attendez-moi ici jusqu'à mon retour. »
 
-Les quatre hommes robustes et les enfants hochèrent rapidement la tête. Les quatre hommes étaient au stade de l'Établissement des Fondations, tandis que les enfants étaient au stade de la Condensation de Qi. La plupart d'entre eux avaient reçu des méthodes de culture de la part de Liu Jinbiao et s'étaient entraînés par eux-mêmes.
+Les quatre hommes robustes et les enfants hochèrent rapidement la tête. Les quatre hommes étaient au stade de l'Établissement des Fondations, tandis que les enfants étaient au stade de la Condensation de Qi. La plupart d'entre eux avaient reçu des méthodes de cultivation de la part de Liu Jinbiao et s'étaient entraînés par eux-mêmes.
 
 Liu Jinbiao emporta les cinq enfants dans un courant de vent noir et disparut.
 
@@ -74,7 +74,7 @@ Ses yeux s'illuminèrent tandis que son regard se faisait sérieux. Il fixa les 
 
 Ces derniers devinrent instantanément pâles de nervosité sous son regard intense. Pourtant, ils serrèrent les dents sans verser une larme.
 
-« Pas mal. En réalité, ce vieil homme ne vous a pas dit la vérité devant vos proches. Votre talent est en fait très médiocre et vous êtes à peine qualifiés pour la culture. Si je vous ai choisis, c'est uniquement parce que votre détermination est sans faille ! Les cultivateurs n'ont pas peur d'un talent limité ; un cœur résolu est l'essentiel ! »
+« Pas mal. En réalité, ce vieil homme ne vous a pas dit la vérité devant vos proches. Votre talent est en fait très médiocre et vous êtes à peine qualifiés pour la cultivation. Si je vous ai choisis, c'est uniquement parce que votre détermination est sans faille ! Les cultivateurs n'ont pas peur d'un talent limité ; un cœur résolu est l'essentiel ! »
 
 Les cinq enfants regardèrent Liu Jinbiao avec anxiété, restant silencieux.
 

@@ -72,7 +72,7 @@ Si l'ensemble du système stellaire de Brilliant Void était un lac dont les pla
 
 Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le Brilliant Void. Après tout, l'Alliance n'était que leur quartier général temporaire, et la plupart d'entre eux étaient morts lors du massacre qui avait secoué les cieux plus tôt.
 
-Ce massacre avait été déclenché par un maître et son disciple. Avec le niveau de culture du Maître Long Pan, peu de cultivateurs du Royaume Extérieur pouvaient espérer survivre.
+Ce massacre avait été déclenché par un maître et son disciple. Avec le niveau de cultivation du Maître Long Pan, peu de cultivateurs du Royaume Extérieur pouvaient espérer survivre.
 
 Cependant, l'objectif du Maître Long Pan étant la Rivière Invoquée, il n'était pas resté dans le Brilliant Void. Cela permit à quelques poissons de s'échapper.
 
@@ -80,7 +80,7 @@ Trois cultivateurs du Royaume Extérieur, portant des marques entre les sourcils
 
 « Aucune réponse du jade messager. Je crains que tout le monde ne soit en danger. Bon sang, que s'est-il passé ?! »
 
-« Nous ne pouvons pas retourner à l'Alliance de Culture, je crains qu'un problème ne s'y soit produit. Se pourrait-il que le Royaume Intérieur ait lancé une contre-attaque ? Il vaut mieux chercher une planète de culture pour nous y cacher en attendant que l'armée principale se fraye un chemin. »
+« Nous ne pouvons pas retourner à l'Alliance de Cultivation, je crains qu'un problème ne s'y soit produit. Se pourrait-il que le Royaume Intérieur ait lancé une contre-attaque ? Il vaut mieux chercher une planète de cultivation pour nous y cacher en attendant que l'armée principale se fraye un chemin. »
 
 Alors que les trois avançaient, ils échangeaient des messages. À cet instant précis, deux ondulations passèrent et une intention meurtrière monstrueuse les transperça tous les trois.
 
@@ -112,7 +112,7 @@ Toutefois, cette zone n'était plus que des fragments de continents ; seuls troi
 
 Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer de Nuages !
 
-Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur : il était au début du stade Vide Arcane ! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture !
+Le niveau de cultivation de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur : il était au début du stade Vide Arcane ! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la cultivation !
 
 Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sur les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes de Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
 

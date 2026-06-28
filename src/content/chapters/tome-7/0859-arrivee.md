@@ -24,7 +24,7 @@ Dans cette vaste étendue, d'innombrables pierres bleues flottaient dans le vide
 
 Ces pierres bleues avaient été préparées par le Domaine Sud pour tous ceux qui souhaitaient assister à la compétition. À cet instant, pas moins de dizaines de milliers de cultivateurs étaient répartis parmi ces pierres !
 
-Leurs niveaux de culture variaient considérablement, bien que la plupart fussent des cultivateurs du premier stade. En plus d'accompagner leurs membres familiaux venus pour la compétition, ils étaient là pour élargir leurs horizons en observant des sorts célestes.
+Leurs niveaux de cultivation variaient considérablement, bien que la plupart fussent des cultivateurs du premier stade. En plus d'accompagner leurs membres familiaux venus pour la compétition, ils étaient là pour élargir leurs horizons en observant des sorts célestes.
 
 Parmi l'innombrable mer de pierres bleues, on distinguait de nombreuses pierres rouges ; chaque cultivateur assis sur l'une d'elles avait le regard brillant, empreint d'une intense intention de bataille. C'étaient les participants ayant obtenu le droit de lutter pour un titre céleste dans le Domaine Sud !
 
@@ -54,11 +54,11 @@ Bien que tout cela parût glorieux en apparence, cela différait grandement de l
 
 Avec l'intelligence de Shengong Hu, il avait ses propres conjectures.
 
-« Je crains que Xu Mu ne soit pas aussi puissant que je l'imaginais... Je redoute que son niveau de culture ne soit inférieur au mien... Peu importe sa diligence pour accroître sa puissance, il n'est au plus qu'au stade Corporel Yang, comme moi. Hélas. » Le cœur de Shengong Hu était lourd de sentiments complexes alors qu'il détournait son regard du vide.
+« Je crains que Xu Mu ne soit pas aussi puissant que je l'imaginais... Je redoute que son niveau de cultivation ne soit inférieur au mien... Peu importe sa diligence pour accroître sa puissance, il n'est au plus qu'au stade Corporel Yang, comme moi. Hélas. » Le cœur de Shengong Hu était lourd de sentiments complexes alors qu'il détournait son regard du vide.
 
 Zhan Konglie éprouvait une amertume similaire. Il était aussi perspicace que Shengong Hu et, lorsque la nouvelle de la traque de Wang Lin par la famille Yao lui parvint, il comprit progressivement la vérité.
 
-« Xu Mu... Hélas, je ne m'attendais pas à ce que même moi, Zhan Konglie, puisse un jour être trompé. Ce n'est pas que je n'aie pas pu percer sa culture, c'est qu'il n'y avait rien à percer ; c'était simplement son véritable niveau. Il a dû bénéficier d'une rencontre fortuite pour atteindre le stade Corporel Yang dans le Royaume Céleste du Tonnerre, et il ne cachait pas sa force comme je l'avais cru ! »
+« Xu Mu... Hélas, je ne m'attendais pas à ce que même moi, Zhan Konglie, puisse un jour être trompé. Ce n'est pas que je n'aie pas pu percer sa cultivation, c'est qu'il n'y avait rien à percer ; c'était simplement son véritable niveau. Il a dû bénéficier d'une rencontre fortuite pour atteindre le stade Corporel Yang dans le Royaume Céleste du Tonnerre, et il ne cachait pas sa force comme je l'avais cru ! »
 
 « Même à présent, cet homme doit encore être au stade Corporel Yang. Je me suis trompé sur lui ! » Zhan Konglie laissa échapper un soupir, empreint de déception.
 
@@ -100,7 +100,7 @@ Des filaments d'énergie spirituelle émanaient d'eux, formant un réseau étroi
 
 Meng Lin était actuellement assis parmi les étoiles, le cœur bouillonnant de colère. Membre de la famille Meng de la Planète Terre Flamme, il souhaitait profiter de cette occasion pour observer les sorts célestes lors de la compétition. Cependant, on l'avait envoyé en patrouille si loin d'ici, ce qui l'irritait profondément.
 
-En pensant à la façon dont ses pairs se réjouiraient de son malheur lorsqu'ils apprendraient qu'il avait été assigné à cette garde, il devint de plus en plus morose, incapable de retrouver le calme nécessaire à sa culture.
+En pensant à la façon dont ses pairs se réjouiraient de son malheur lorsqu'ils apprendraient qu'il avait été assigné à cette garde, il devint de plus en plus morose, incapable de retrouver le calme nécessaire à sa cultivation.
 
 « Si seulement je pouvais observer les divers sorts célestes utilisés lors de ce tournoi, particulièrement ceux des Trois Calamités du Domaine Sud, cela favoriserait grandement ma progression. Hélas ! » Meng Lin laissa échapper un sombre soupir. Il n'était qu'au stade avancé de la Transformation de l'Âme et ne parvenait pas encore à franchir l'ultime étape vers le stade Ascendant. Soudain, ses pupilles se rétractèrent alors qu'il fixait l'espace devant lui.
 

@@ -72,13 +72,13 @@ L'expression de Du Qing changea, ses yeux trahissant un regard sombre. Il avait 
 
 Lorsqu'il leva les yeux, le regard froid de Wang Lin rencontra celui de Du Qing pour la première fois !
 
-Grâce à cet échange, Wang Lin avait percé le niveau de culture de Du Qing. Cet homme n'avait pas atteint le stade de la Tribulation du Vide, il se trouvait encore au stade de la Tribulation Arcanique. À en juger par la puissance de son attaque, il était plus fort que le Souverain, mais ne pouvait rivaliser avec des êtres tels que le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan !
+Grâce à cet échange, Wang Lin avait percé le niveau de cultivation de Du Qing. Cet homme n'avait pas atteint le stade de la Tribulation du Vide, il se trouvait encore au stade de la Tribulation Arcanique. À en juger par la puissance de son attaque, il était plus fort que le Souverain, mais ne pouvait rivaliser avec des êtres tels que le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan !
 
 Wang Lin avait évalué la force de Du Qing, mais Du Qing ne parvenait pas à lire en Wang Lin.
 
 « À en juger par son aura, cet homme est au plus haut du Vide Spirituel et n'a même pas atteint le Vide Arcanique... Pourtant, un tel cultivateur n'aurait jamais pu résister à mon attaque ni dévorer ce feu terrestre ! »
 
-« Son corps aurait dû s'effondrer sous l'effet de mon sort, mais son expression est restée de marbre. De plus, il a transféré la majeure partie de la force vers l'âme du dragon en dessous de lui ; il est donc impossible de percer sa véritable culture ! »
+« Son corps aurait dû s'effondrer sous l'effet de mon sort, mais son expression est restée de marbre. De plus, il a transféré la majeure partie de la force vers l'âme du dragon en dessous de lui ; il est donc impossible de percer sa véritable cultivation ! »
 
 « Mais je ne crois pas qu'il soit seulement au sommet du Vide Spirituel ! Il doit cacher son véritable niveau ; sinon, il ne se serait pas échappé de la Secte du Dragon Bleu ! » Les deux hommes s'observaient, tentant de deviner les secrets de l'autre.
 

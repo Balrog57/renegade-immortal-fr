@@ -8,7 +8,7 @@ slug: richesse
 ---
 Sun Dazhu hocha la tête d'un air satisfait et dit : « Tu peux garder ce jeton. Il te permettra de circuler librement dans ce jardin. Mais souviens-toi, tu n'es pas autorisé à toucher une seule des herbes sans ma permission. »
 
-Wang Lin acquiesça. Il savait que Sun Dazhu ne l'appréciait guère, mais voyant qu'il avait déjà atteint le troisième niveau de culture, Sun Dazhu le reconnaissait au moins comme un disciple. Wang Lin s'éclipsa respectueusement.
+Wang Lin acquiesça. Il savait que Sun Dazhu ne l'appréciait guère, mais voyant qu'il avait déjà atteint le troisième niveau de cultivation, Sun Dazhu le reconnaissait au moins comme un disciple. Wang Lin s'éclipsa respectueusement.
 
 Peu de temps après, il atteignit le pavillon des épées dans la cour principale. Il y était venu bien des années auparavant ; y revenir ainsi raviva les souvenirs de l'époque.
 

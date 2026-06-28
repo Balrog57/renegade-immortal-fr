@@ -38,7 +38,7 @@ Bien que Wang Lin conservât l'apparence d'un jeune homme, il dégageait une aur
 
 En effleurant le mur, les scènes de son enfance traversèrent son esprit. La tristesse dans son cœur s'intensifia et le désir ardent de retrouver ses parents l'envahit.
 
-Après avoir fait attendre Ta Shan et le garçon à la grosse tête à l'extérieur, Wang Lin s'assit seul dans la demeure ancestrale. Il ressentit l'aura de la maison et oublia le monde de la culture, se remémorant son enfance joyeuse et ses années passées sous l'amour de ses parents.
+Après avoir fait attendre Ta Shan et le garçon à la grosse tête à l'extérieur, Wang Lin s'assit seul dans la demeure ancestrale. Il ressentit l'aura de la maison et oublia le monde de la cultivation, se remémorant son enfance joyeuse et ses années passées sous l'amour de ses parents.
 
 L'environnement était plongé dans un silence absolu ; durant ce calme, le cœur de Wang Lin subit un véritable baptême. Ses souvenirs d'enfance refirent progressivement surface alors qu'il restait là, seul.
 
@@ -88,9 +88,9 @@ Voyant ce vieil homme, les cultivateurs environnants adoptèrent une attitude re
 
 « Le Secte Xuan Dao... » Le regard de Wang Lin envers le vieil homme devint légèrement plus doux. Il hocha la tête et demanda lentement : « Puisque vous avez atteint le stade de la Transformation de l'Âme, le pays de Zhao a-t-il atteint le rang 5 ? »
 
-Le vieil homme, qui était arrivé furieux, fut déconcerté. Il fronça les sourcils et répondit : « Mon pays de Zhao est devenu un pays de culture de rang 5 il y a 300 ans. Tous les cultivateurs de la planète Suzaku le savent ! Qui êtes-vous ?! » Pourtant, en fixant Wang Lin, une sensation de familiarité l'assaillit, comme s'il l'avait déjà rencontré autrefois.
+Le vieil homme, qui était arrivé furieux, fut déconcerté. Il fronça les sourcils et répondit : « Mon pays de Zhao est devenu un pays de cultivation de rang 5 il y a 300 ans. Tous les cultivateurs de la planète Suzaku le savent ! Qui êtes-vous ?! » Pourtant, en fixant Wang Lin, une sensation de familiarité l'assaillit, comme s'il l'avait déjà rencontré autrefois.
 
-« Un pays de culture de rang 5... » Wang Lin regarda la terre avec un sentiment de satisfaction. Lorsqu'il était parti, le pays de Zhao n'était qu'au rang 3 ; désormais, bien que seules quelques centaines d'années se soient écoulées, il avait déjà atteint le rang 5.
+« Un pays de cultivation de rang 5... » Wang Lin regarda la terre avec un sentiment de satisfaction. Lorsqu'il était parti, le pays de Zhao n'était qu'au rang 3 ; désormais, bien que seules quelques centaines d'années se soient écoulées, il avait déjà atteint le rang 5.
 
 Après avoir détourné les yeux, Wang Lin observa attentivement le vieillard. En l'examinant de plus près, il décela des indices et sourit. Il percevait vaguement une aura très ténue. Cette aura lui appartenait !
 

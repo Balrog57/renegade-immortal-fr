@@ -10,9 +10,9 @@ Le maigre cultivateur avait débité un long discours, et tous ses mots étaient
 
 L'expression habituellement calme de Wang Lin se mua en un étrange sourire à l'écoute des paroles de ce cultivateur svelte.
 
-Ce dernier ne laissait transparaître aucune trace de fausseté, comme si tout ce qu'il venait de dire était naturel et vrai. Son expression rendait véritablement difficile pour Wang Lin d'attaquer et de gaspiller ainsi sa culture.
+Ce dernier ne laissait transparaître aucune trace de fausseté, comme si tout ce qu'il venait de dire était naturel et vrai. Son expression rendait véritablement difficile pour Wang Lin d'attaquer et de gaspiller ainsi sa cultivation.
 
-Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cultivateur. Ce dernier savait qu'il ne pouvait pas résister, et que c'était là son seul moyen de préserver sa culture.
+Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cultivateur. Ce dernier savait qu'il ne pouvait pas résister, et que c'était là son seul moyen de préserver sa cultivation.
 
 « Quel est ton nom ? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte du Tonnerre Céleste.
 
@@ -20,9 +20,9 @@ Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cul
 
 « Assez. Remets-moi tout ce que tu as rassemblé et qui peut être échangé contre des cristaux de tonnerre. »
 
-Bien que Big Red paraisse calme, il était mort de peur. Plus tôt, alors qu'il cultivait dans la salle principale, il avait entendu quatre objets lourds s'écraser sur la place. Son Sens Divin s'était déployé pour découvrir ses quatre Grands Anciens jetés au sol, leur culture totalement anéantie. Il avait été stupéfait, puis furieux.
+Bien que Big Red paraisse calme, il était mort de peur. Plus tôt, alors qu'il cultivait dans la salle principale, il avait entendu quatre objets lourds s'écraser sur la place. Son Sens Divin s'était déployé pour découvrir ses quatre Grands Anciens jetés au sol, leur cultivation totalement anéantie. Il avait été stupéfait, puis furieux.
 
-Cependant, cette colère s'était instantanément évaporée lorsqu'il avait aperçu Wang Lin, le laissant tremblant de peur. Il était au début du stade de la Formation de l'Âme et, bien qu'il ne cultivât pas de domaines comme les cultivateurs du Royaume Intérieur, sa marque était active à 30 %. De plus, grâce à son niveau de culture, il avait côtoyé d'autres experts, le plus puissant ayant atteint le stade Ascendant.
+Cependant, cette colère s'était instantanément évaporée lorsqu'il avait aperçu Wang Lin, le laissant tremblant de peur. Il était au début du stade de la Formation de l'Âme et, bien qu'il ne cultivât pas de domaines comme les cultivateurs du Royaume Intérieur, sa marque était active à 30 %. De plus, grâce à son niveau de cultivation, il avait côtoyé d'autres experts, le plus puissant ayant atteint le stade Ascendant.
 
 Lorsqu'il avait perçu Wang Lin, il avait été terrifié au point d'avoir l'impression que le monde s'effondrait. Ce sentiment était plusieurs fois plus puissant que lorsqu'il avait rencontré le cultivateur Ascendant. Heureusement, il était extrêmement rusé et n'avait pas hésité à transformer cette terreur en une excitation feinte, suivie d'une rapide flatterie.
 

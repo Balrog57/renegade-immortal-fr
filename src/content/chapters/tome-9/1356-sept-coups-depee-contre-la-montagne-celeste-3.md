@@ -20,7 +20,7 @@ Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respect
 
 « Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine ; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux, alors nous allons le détruire et devenir nous-mêmes des êtres célestes ! »
 
-D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Taoïste Scattered Spirit pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa !
+D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la cultivation avait été scellée par le Taoïste Scattered Spirit pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa !
 
 « Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Foudre Spirituelle ! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage ! »
 

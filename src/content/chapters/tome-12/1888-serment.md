@@ -50,7 +50,7 @@ Son bras gauche forma un sceau et il décocha neuf coups de poing contre les neu
 
 Un grondement tonitruant déchira les montagnes, créant une tempête qui balaya la région. Les neuf ombres d'épées s'effondrèrent, tout comme l'armure du bras gauche de Wang Lin. Cependant, il parvint à progresser de mille pieds et se retrouva à moins de deux cents pieds de Void Cloud, qui s'apprêtait à porter un ultime coup !
 
-« Un trésor condensé d'un sortilège par un Grand Empereur... j'en possède un aussi ! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de culture augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
+« Un trésor condensé d'un sortilège par un Grand Empereur... j'en possède un aussi ! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de cultivation augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
 
 Il devait le garder pour l'instant critique. Le combat contre Void Cloud semblait difficile, mais pas assez pour justifier l'usage de *Nuit Brisée* !
 
@@ -100,7 +100,7 @@ Les matrices s'activèrent promptement. Alors que Wang Lin observait la scène, 
 
 Plus de cent individus apparurent, dégageant des auras puissantes.
 
-L'activation de ces six matrices coûta un prix exorbitant au continent du Diable Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
+L'activation de ces six matrices coûta un prix exorbitant au continent du Diable Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de cultivation était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
 
 Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du continent du Diable Vert !
 

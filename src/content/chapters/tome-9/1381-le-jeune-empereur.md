@@ -48,7 +48,7 @@ Le vent souffla et l'odeur du sang persista longtemps dans l'air.
 
 La voix venue du vide ne réapparut plus jamais. Le doigt retourna dans le vortex et disparut sans laisser de trace, comme si rien ne s'était produit.
 
-La planète de culture était plongée dans un silence de mort. Les anciens du Clan de l'Hirondelle de Feu fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
+La planète de cultivation était plongée dans un silence de mort. Les anciens du Clan de l'Hirondelle de Feu fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
 
 Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgracieux, marqué par la panique et le regret. Il recula nerveusement pour se poster aux côtés de son père.
 
@@ -102,7 +102,7 @@ En voyant cette lumière, la peur dans les yeux du Patriarche disparut, remplac�
 
 Wang Lin leva la tête. Il ne se précipita pas pour attaquer, mais observa froidement vers le haut.
 
-Un homme d'âge moyen vêtu de rouge sortit du rayon d'énergie d'épée. Il ne dégageait aucune aura de cultivateur ; même Wang Lin ne détecta rien. Il était évident qu'il utilisait un sort extrêmement puissant pour dissimuler sa culture.
+Un homme d'âge moyen vêtu de rouge sortit du rayon d'énergie d'épée. Il ne dégageait aucune aura de cultivateur ; même Wang Lin ne détecta rien. Il était évident qu'il utilisait un sort extrêmement puissant pour dissimuler sa cultivation.
 
 « Le neuvième Ancien du Conseil Déchu salue le Messager du Grand Empereur. Puisque Seigneur Messager est venu, nous sollicitons votre aide ! » Le Patriarche devint respectueux et joignit les mains. Son fils fit de même.
 

@@ -52,7 +52,7 @@ Mais le Secte des Cadavres n'était pas un lieu où il pouvait s'attarder. Il d�
 
 Cependant, le danger était immense. Même Wang Lin en doutait.
 
-Après une longue réflexion, il renonça à s'y rendre en personne. Il comprit qu'avec son niveau de culture actuel, peu importe sa prudence, ses chances d'obtenir ces plantes vert pourpre étaient infimes et qu'il risquait surtout de perdre la vie. La situation était trop périlleuse.
+Après une longue réflexion, il renonça à s'y rendre en personne. Il comprit qu'avec son niveau de cultivation actuel, peu importe sa prudence, ses chances d'obtenir ces plantes vert pourpre étaient infimes et qu'il risquait surtout de perdre la vie. La situation était trop périlleuse.
 
 Une fois sa décision prise, il frappa son sac de rangement, et un fourreau d'épée à l'aspect antique apparut, flottant devant lui.
 
@@ -62,7 +62,7 @@ Wang Lin avait étudié ce fourreau maintes fois. Situ Nan lui avait même confi
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il murmurait : « Sun Hao disait qu'il avait trouvé cette épée et son fourreau dans une grotte antique, et qu'à l'exception de son maître, seuls ceux ayant atteint le stade de la Formation du Noyau pouvaient les affiner. Il y a part du vrai et part du faux dans ses propos. Ce n'est pas que l'affinement est impossible en dessous de la Formation du Noyau, c'est simplement que la quantité de temps et d'énergie spirituelle requise est démesurée. Une fois la Formation du Noyau atteinte, le feu du noyau réduit considérablement ce processus. Malheureusement, la technique d'affinement par le sang ne peut s'appliquer qu'à un seul objet. Si elle pouvait être utilisée sur les deux simultanément, tout serait bien plus simple. »
 
-Wang Lin fixait le fourreau sans ciller. Pour accroître la puissance de son épée volante, il devait tenter de nouveau l'affinement. Bien qu'il ne possédât pas de noyau véritable, il disposait d'un noyau froid issu de sa culture de la Méthode d'Ascension des Enfers.
+Wang Lin fixait le fourreau sans ciller. Pour accroître la puissance de son épée volante, il devait tenter de nouveau l'affinement. Bien qu'il ne possédât pas de noyau véritable, il disposait d'un noyau froid issu de sa cultivation de la Méthode d'Ascension des Enfers.
 
 Toute l'énergie spirituelle de son corps était régie par ce noyau froid. Wang Lin l'avait étudié longuement, mais Situ Nan l'avait prévenu : un noyau froid était loin de constituer un véritable noyau et, à moins d'un dernier recours, il ne devait jamais quitter son corps. Car une fois extrait, le noyau froid finirait par se dissiper, l'obligeant à en former un nouveau.
 
@@ -78,7 +78,7 @@ De larges gouttes de sueur perlèrent sur le front de Wang Lin, mais elles furen
 
 Le temps s'écoula. Après ce long périple de vibrations, la lumière bleue qui entourait le fourreau commença à vaciller. Lentement, une forme pentagonale se dessina sur la surface de l'objet.
 
-Voyant le motif apparaître, Wang Lin se détendit légèrement. Il cessa d'envoyer des rayons pour réguler son énergie spirituelle, pensif : « Ma culture est environ cinq fois plus puissante qu'auparavant. Situ Nan m'a enseigné une méthode consistant à forcer l'apparition de la formation sur le fourreau en utilisant mon énergie spirituelle. La dernière fois, il m'avait fallu 5 000 assauts avant que la formation n'apparaisse, et j'étais trop épuisé pour continuer. Cette fois, elle est apparue après seulement 1 000 rayons. Bien que ma culture ait progressé, je suis encore loin de la Formation du Noyau. Situ Nan disait qu'à ce stade, seuls quelques rayons suffiraient à faire surgir la formation. »
+Voyant le motif apparaître, Wang Lin se détendit légèrement. Il cessa d'envoyer des rayons pour réguler son énergie spirituelle, pensif : « Ma cultivation est environ cinq fois plus puissante qu'auparavant. Situ Nan m'a enseigné une méthode consistant à forcer l'apparition de la formation sur le fourreau en utilisant mon énergie spirituelle. La dernière fois, il m'avait fallu 5 000 assauts avant que la formation n'apparaisse, et j'étais trop épuisé pour continuer. Cette fois, elle est apparue après seulement 1 000 rayons. Bien que ma cultivation ait progressé, je suis encore loin de la Formation du Noyau. Situ Nan disait qu'à ce stade, seuls quelques rayons suffiraient à faire surgir la formation. »
 
 Il prit une profonde inspiration. Sa main droite traça un sceau et pointa son abdomen. Son ventre se rétracta alors qu'une expression de douleur marquait ses traits. Sa main redescendit lentement de son abdomen et, lorsqu'il ouvrit la bouche, un orbe bleu de la taille d'un nouveau-né s'en échappa pour flotter dans l'air.
 

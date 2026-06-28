@@ -74,7 +74,7 @@ Après le départ de Li Qianmei, son maître ferma les yeux. La douleur qui lui 
 
 Un ancien, projeté au loin, rugit : « Maître de Secte ! Si Li Qianmei offense le Senior Daoïste Water et met la Secte Divine en colère, notre Secte Heaven Breaking n'en pourra pas subir les conséquences ! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix ! »
 
-Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard : « Dégage, dégage, dégage !! » Sa culture du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en terrifiant.
+Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard : « Dégage, dégage, dégage !! » Sa cultivation du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en terrifiant.
 
 « La Secte Heaven Breaking a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Daoïste Water, j'en assumerai seul la responsabilité ! » Le maître de Li Qianmei agita sa manche et disparut.
 

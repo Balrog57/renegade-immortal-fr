@@ -62,7 +62,7 @@ Wang Lin observa les deux disciples du Secte Dong Lin devant lui. Il poussa un s
 
 Guidé par les disciples, Wang Lin vola vers le centre de la secte. Le Secte Dong Lin était vaste, et tout au long de son voyage, il vit un lieu débordant de vie.
 
-Il vit également de nombreuses grues voletter dans le ciel. Au sol, que ce soit dans la cour d'alchimie ou dans les résidences, des disciples étaient assis, pratiquant leur culture ou discutant entre eux.
+Il vit également de nombreuses grues voletter dans le ciel. Au sol, que ce soit dans la cour d'alchimie ou dans les résidences, des disciples étaient assis, pratiquant leur cultivation ou discutant entre eux.
 
 Le vent qui soufflait était chargé d'une énergie céleste dense, comme si l'on se trouvait au paradis.
 
@@ -124,7 +124,7 @@ Il demanda doucement : « Le Secte Dong Lin de votre rêve était-il identique �
 
 « Le même. » En regardant le vieillard, Wang Lin pouvait ressentir toute sa détresse.
 
-« Merci... » Le vieil homme ferma les yeux. Deux larmes coulèrent sur ses joues. Avec son niveau de culture, il ne devrait plus connaître la sensation des pleurs, mais quand Wang Lin avait répondu « le même », les larmes s'étaient mises à couler.
+« Merci... » Le vieil homme ferma les yeux. Deux larmes coulèrent sur ses joues. Avec son niveau de cultivation, il ne devrait plus connaître la sensation des pleurs, mais quand Wang Lin avait répondu « le même », les larmes s'étaient mises à couler.
 
 « Je suis assis ici depuis si longtemps... Vous êtes le seul à m'avoir apporté un sentiment de familiarité... C'est ma maison... Je l'ai quittée il y a bien longtemps, lorsque je suis devenu un Ascendant Empyréen, et quand je suis revenu, tout était déjà ainsi... » Le vieil homme ouvrit les yeux, lesquels étaient noyés dans une douleur et une tristesse indicibles.
 
@@ -132,7 +132,7 @@ Wang Lin resta silencieux.
 
 Quelle émotion pouvait transformer un être en une telle créature ? Quelle tristesse pouvait pousser quelqu'un à s'auto-illusionner par un rêve ? Quelle solitude pouvait amener un homme à créer une illusion pour ne plus être seul ?
 
-« Si Wan Er ne peut toujours pas s'éveiller... Si Ping Er ne peut pas ouvrir les yeux... Si la Planète Suzaku est détruite... Peut-être que je deviendrais comme lui. Un homme assis dans le vide, sur sa propre planète de culture, s'engourdissant dans un rêve. Dans ce monde, il y aurait mes parents, moi, Wan Er, Ping Er, et tous les visages qui me sont familiers... »
+« Si Wan Er ne peut toujours pas s'éveiller... Si Ping Er ne peut pas ouvrir les yeux... Si la Planète Suzaku est détruite... Peut-être que je deviendrais comme lui. Un homme assis dans le vide, sur sa propre planète de cultivation, s'engourdissant dans un rêve. Dans ce monde, il y aurait mes parents, moi, Wan Er, Ping Er, et tous les visages qui me sont familiers... »
 
 « Si ce jour arrive vraiment, peut-être ferai-je la même chose... »
 

@@ -24,7 +24,7 @@ Mais à cet instant, l'ancêtre du Secte du Dao Démoniaque remarqua qu'aucune l
 
 La portée de cette phrase était vertigineuse !
 
-« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalt Empyréen. Après avoir revêtu l'armure de l'âme, son niveau de culture est infiniment proche de celui d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre du Secte du Dao Démoniaque intérieurement.
+« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalt Empyréen. Après avoir revêtu l'armure de l'âme, son niveau de cultivation est infiniment proche de celui d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre du Secte du Dao Démoniaque intérieurement.
 
 Wang Lin réfléchit silencieusement. Le Grand Empyréen Dao Yi était le premier Grand Empyréen qu'il rencontrait, et il pouvait percevoir la sincérité de la promesse dans ces mots.
 
@@ -68,7 +68,7 @@ Wang Lin ignorait tout de cela jusqu'alors. Bien qu'il parût impassible, il fut
 
 « Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalt Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Un espace séparé de ce monde où les cultivateurs Exalt Empyréens peuvent obtenir une évaluation précise de leur force. »
 
-Le vieil homme poursuivit lentement : « L'Épreuve Empyréenne comporte 19 niveaux, et seuls les Exalt Empyréens peuvent y pénétrer. Avec mon niveau de culture il y a 500 ans, j'ai tenté ma chance, mais je n'ai franchi que le troisième niveau avant d'échouer au quatrième. »
+Le vieil homme poursuivit lentement : « L'Épreuve Empyréenne comporte 19 niveaux, et seuls les Exalt Empyréens peuvent y pénétrer. Avec mon niveau de cultivation il y a 500 ans, j'ai tenté ma chance, mais je n'ai franchi que le troisième niveau avant d'échouer au quatrième. »
 
 « L'Épreuve Empyréenne ? » Les yeux de Wang Lin se rétrécirent. Il avait entendu le Grand Empyréen Dao Yi en parler plus tôt, mais il n'en saisissait pas la nature. Cependant, les explications du vieil homme lui permirent de mieux comprendre.
 
@@ -110,11 +110,11 @@ Cette année ne fut pour lui qu'un instant fugace. Un jour, après cette année 
 
 « Ce coup de poing... j'ai calculé toutes les manières possibles d'y résister. J'ai simulé des millions de fois, mais pas une seule fois je n'ai pu l'esquiver... Ce n'était pourtant qu'un fragment du sens divin du Grand Empyréen Dao Yi... » Wang Lin soupira.
 
-L'euphorie liée à l'augmentation de son niveau de culture s'était estompée. Comparé à un Grand Empyrée, il était encore bien trop faible.
+L'euphorie liée à l'augmentation de son niveau de cultivation s'était estompée. Comparé à un Grand Empyrée, il était encore bien trop faible.
 
 « Cependant, malgré cela, j'ai acquis une compréhension immense, particulièrement lors du combat contre l'ancêtre du Secte du Dao Démoniaque. Intégrer le dao au corps et un coup de poing contenant 27 sorts... Je peux imiter et apprendre cela ! » Les yeux de Wang Lin étincelèrent. Ce combat lui avait apporté une sagesse inestimable.
 
-« Je dois trouver un endroit pour méditer un certain temps. » À son niveau de culture, il pouvait se rendre n'importe où dans la terre des cieux.
+« Je dois trouver un endroit pour méditer un certain temps. » À son niveau de cultivation, il pouvait se rendre n'importe où dans la terre des cieux.
 
 Wang Lin se leva et contempla les ruines environnantes. Il sentait naturellement la présence des membres du Secte du Dao Démoniaque revenus du Continent du Taureau Céleste.
 

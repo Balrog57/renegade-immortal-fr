@@ -46,7 +46,7 @@ Le Maître Lu Fu regarda Wang Lin et dit avec lenteur : « Le trésor de ce viei
 
 « Les cultivateurs d'Allheaven possèdent assez d'intention de bataille, mais il leur manque une intention de tuer... l'odeur du sang. » Wang Lin leva la main droite et tendit doucement le geste vers la formation en contrebas.
 
-En un instant, une planète de culture s'éleva avant de s'effondrer. Tandis que d'innombrables fragments volaient en éclats, une goutte de liquide doré flotta devant Wang Lin.
+En un instant, une planète de cultivation s'éleva avant de s'effondrer. Tandis que d'innombrables fragments volaient en éclats, une goutte de liquide doré flotta devant Wang Lin.
 
 La puissance de sa prise terrifia les dizaines de milliers de cultivateurs. Même les yeux du Maître Lu Fu se plissèrent.
 

@@ -18,7 +18,7 @@ Tandis que ces esclaves du Royaume Extérieur poussaient, de nombreuses âmes de
 
 Simultanément, l'apparition de cette formation ne bloqua pas l'aura provenant du Système Stellaire Antique. Elle n'arrêta que les cultivateurs qui n'appartenaient pas au Royaume Intérieur : tous les clans portant un marquage entre leurs sourcils.
 
-Grâce à l'aura du Système Stellaire Antique, le Royaume Intérieur pouvait désormais rassembler des Flammes Joss pour sa culture. Les chaînes qui entravaient les cultivateurs du Royaume Intérieur disparurent.
+Grâce à l'aura du Système Stellaire Antique, le Royaume Intérieur pouvait désormais rassembler des Flammes Joss pour sa cultivation. Les chaînes qui entravaient les cultivateurs du Royaume Intérieur disparurent.
 
 Alors que toutes les âmes du Royaume Intérieur entraient dans la formation circulaire, Wang Lin agita la main. Ses cheveux blancs flottaient sans qu'aucun vent ne souffle, ses yeux brillaient d'une lueur étrange, et il poussa un rugissement.
 
@@ -62,7 +62,7 @@ Le Royaume Intérieur était désormais 40 % plus vaste qu'auparavant. À cet in
 
 Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages. Il s'assit et le Fourneau Impérial apparut devant lui. Il ferma les yeux et commença ses trois années de garde !
 
-Ce bouleversement avait provoqué une expansion de 40 % du Royaume Intérieur. Les quatre systèmes stellaires s'étaient agrandis et d'innombrables planètes de culture, dépourvues de cultivateurs, étaient apparues dans le Royaume Intérieur.
+Ce bouleversement avait provoqué une expansion de 40 % du Royaume Intérieur. Les quatre systèmes stellaires s'étaient agrandis et d'innombrables planètes de cultivation, dépourvues de cultivateurs, étaient apparues dans le Royaume Intérieur.
 
 C'était comme injecter la vie même dans le Royaume Intérieur !
 

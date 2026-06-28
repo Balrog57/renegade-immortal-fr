@@ -28,7 +28,7 @@ Wang Lin serra le poing ; les restrictions scintillantes à l'intérieur s'effon
 
 Ling Yue, Montagne des Cinq Esprits.
 
-Le cultivateur numéro un de Ling Yue, le vieil homme qui se trouvait à une demi-étape du stade Ascendant, était le vieux Tian Tai de la Montagne des Cinq Esprits. Il était actuellement assis au sommet de la montagne, absorbant la puissance de la lune pour sa culture.
+Le cultivateur numéro un de Ling Yue, le vieil homme qui se trouvait à une demi-étape du stade Ascendant, était le vieux Tian Tai de la Montagne des Cinq Esprits. Il était actuellement assis au sommet de la montagne, absorbant la puissance de la lune pour sa cultivation.
 
 Le vieux Tian Tai ouvrit les yeux. Son regard était calme alors qu'il contemplait le vide et dit lentement : « Le vieux Tian Tai salue le Messager. »
 
@@ -90,9 +90,9 @@ Bien que ce fût le jour, une aura glacial émanait du sol et se propageait dans
 
 Wang Lin observa attentivement la scène. Après avoir réfléchi un instant, il fit un pas vers la chaîne de montagnes.
 
-« L'Art du Massacre Céleste doit être expérimenté au cœur du massacre. Aujourd'hui, j'utiliserai ce lieu pour entamer ma culture de l'Art du Massacre Céleste ! »
+« L'Art du Massacre Céleste doit être expérimenté au cœur du massacre. Aujourd'hui, j'utiliserai ce lieu pour entamer ma cultivation de l'Art du Massacre Céleste ! »
 
-À ce moment précis, plusieurs rayons d'énergie d'épée apparurent à l'horizon. Ces énergies arboraient des couleurs vives et dégageaient une puissance évidente ; il était clair qu'aucun de ces individus n'avait une culture faible.
+À ce moment précis, plusieurs rayons d'énergie d'épée apparurent à l'horizon. Ces énergies arboraient des couleurs vives et dégageaient une puissance évidente ; il était clair qu'aucun de ces individus n'avait une cultivation faible.
 
 « Frère aîné, nous y sommes ! » Avant que les énergies d'épée ne s'approchent, une voix s'éleva de l'un d'eux.
 
@@ -104,7 +104,7 @@ Parmi les cinq, trois étaient des hommes et deux des femmes. Leurs vêtements �
 
 Parmi les deux femmes, l'une portait une robe rouge et avait un grain de beauté au-dessus de la bouche. Elle dit doucement : « Frère aîné, je crois que je viens de voir quelqu'un entrer dans cette zone ! »
 
-Cette jeune fille ne semblait pas très âgée, mais son niveau de culture était au stade avancé de la Formation du Noyau.
+Cette jeune fille ne semblait pas très âgée, mais son niveau de cultivation était au stade avancé de la Formation du Noyau.
 
 Parmi les trois hommes, l'un était d'une grande beauté et d'âge moyen. Il portait une robe verte et blanche, ses cheveux étaient attachés par une simple ceinture noire et il portait une épée ordinaire dans le dos.
 

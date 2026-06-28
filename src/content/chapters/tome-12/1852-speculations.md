@@ -82,7 +82,7 @@ Toute la secte grouillait d'activité ; des rayons de lumière fusaient entre le
 
 Sur les montagnes d'herbes, une foule de disciples récoltait des plantes médicinales pour les livrer aux Anciens alchimistes afin de lancer la production de pilules.
 
-Des fluctuations de culture émanaient des nombreuses montagnes. Il était évident que les Anciens étaient tous en culture fermée pour rester à leur apogée et accomplir les tâches de la secte.
+Des fluctuations de cultivation émanaient des nombreuses montagnes. Il était évident que les Anciens étaient tous en cultivation fermée pour rester à leur apogée et accomplir les tâches de la secte.
 
 Tous les sommets étaient en pleine effervescence, à l'exception de la montagne de feu de Wang Lin, qui restait immobile et silencieuse.
 
@@ -98,7 +98,7 @@ Wang Lin songea un instant puis agita sa manche. Il ne retourna pas sur sa propr
 
 Tout au long de son trajet, chaque disciple croisé s'arrêtait pour le saluer avant de reprendre ses tâches.
 
-Wang Lin ne s'arrêta pas, se contentant de hocher la tête en passant. Sa culture n'était pas ordinaire et attirait l'attention des Anciens qu'il croisait, mais dès qu'ils identifièrent Wang Lin, ils retirèrent immédiatement leur Sens Divin.
+Wang Lin ne s'arrêta pas, se contentant de hocher la tête en passant. Sa cultivation n'était pas ordinaire et attirait l'attention des Anciens qu'il croisait, mais dès qu'ils identifièrent Wang Lin, ils retirèrent immédiatement leur Sens Divin.
 
 Peu après, le Pic Céleste Vert apparut devant lui. Wang Lin se téléporta pour se retrouver à l'extérieur du pic et s'adressa solennellement à la montagne :
 
@@ -118,7 +118,7 @@ Un instant plus tard, la petite personne effectua six prosternations consécutiv
 
 « Le Continent du Démon Vert a eu de nombreux petits conflits avec mon Continent du Taureau Céleste, mais c'est la première fois qu'ils entreprennent une action d'une telle ampleur. Ils ont réellement trouvé un moyen de raffiner la Mer de Pilules... »
 
-« Cette affaire ne se réglera pas de sitôt. Le Continent du Démon Vert possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de culture que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul ! » Les yeux de l'Illustre Vert Taureau brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
+« Cette affaire ne se réglera pas de sitôt. Le Continent du Démon Vert possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de cultivation que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul ! » Les yeux de l'Illustre Vert Taureau brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
 
 L'expression de Wang Lin resta imperturbable. Il s'assit face à l'Illustre Vert Taureau et prit soudain la parole :
 

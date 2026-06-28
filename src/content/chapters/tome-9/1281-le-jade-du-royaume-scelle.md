@@ -30,7 +30,7 @@ Pourtant, au-delà du feu ardent, subsistait encore le feu du Dao. Si Wang Lin p
 
 La compréhension du feu de Wang Lin n'était en rien inférieure à celle de la vie et de la mort, du karma, ou du vrai et du faux. Si ces trois dernières pouvaient engendrer des essences, alors naturellement le feu engendrerait également une essence !
 
-Cependant, cette essence était si bien dissimulée que le taoïste Shui ne pouvait tout simplement pas la remarquer. C'était dû à son niveau de culture !
+Cependant, cette essence était si bien dissimulée que le taoïste Shui ne pouvait tout simplement pas la remarquer. C'était dû à son niveau de cultivation !
 
 S'il y avait un cultivateur du troisième niveau au stade du Vide Spirituel, il serait capable de voir cette quatrième essence qui choquerait tous les autres cultivateurs du troisième niveau !
 
@@ -64,7 +64,7 @@ Rien de tout cela n'était certain, mais confronté à cette crise de vie ou de 
 
 « Meurs ! » Le taoïste Shui afficha un regard dément, mêlant terreur et excitation. Ces expressions conjuguées témoignaient de sa personnalité perverse. Il voulait tuer cet être défiant les cieux, ce génie prodigieux. Il voulait tuer celui qu'il soupçonnait d'être la réincarnation d'un cultivateur du quatrième niveau. Il voulait tuer cet homme capable de rivaliser avec le trésor le plus puissant du monde !
 
-Sur la planète de culture qu'il avait projetée, les 1,5 milliard de disciples du Dao de l'Eau dégageaient une force terrifiante et s'abattaient sur Wang Lin !
+Sur la planète de cultivation qu'il avait projetée, les 1,5 milliard de disciples du Dao de l'Eau dégageaient une force terrifiante et s'abattaient sur Wang Lin !
 
 Les yeux de Wang Lin étaient d'un calme absolu. À ce stade, il avait tout lâché. Vivre ou mourir n'avait plus d'importance alors que tout défilait devant ses yeux. Les seules choses qu'il ne pouvait rompre étaient le lien avec ses parents, l'amour de Wang Er et son amitié avec Situ et Qing Shui.
 
@@ -74,7 +74,7 @@ Le feu de la mort peut être plus éclatant que n'importe quelle étoile. Si l'o
 
 Mais s'il reste des sentiments persistants dans le cœur, même la mort peut être aussi brillante qu'une étoile et rayonner aux quatre coins du monde.
 
-« Tu veux me tuer ? Alors... mourons ensemble ! » Alors que l'immense planète de culture s'écrasait, Wang Lin ouvrit les bras. Les trois vortex s'agitèrent frénétiquement et les essences de feu et de tonnerre à l'intérieur de son corps jaillirent !
+« Tu veux me tuer ? Alors... mourons ensemble ! » Alors que l'immense planète de cultivation s'écrasait, Wang Lin ouvrit les bras. Les trois vortex s'agitèrent frénétiquement et les essences de feu et de tonnerre à l'intérieur de son corps jaillirent !
 
 Cette attaque dépassait les cent coups de la vie, elle était plus puissante que le Char de Guerre du Dieu Tueur. C'était une attaque utilisant les essences que Wang Lin venait de comprendre pour lancer le sortilège le plus fulgurant de sa vie, son ultime sort !
 
@@ -88,11 +88,11 @@ Wang Lin ne pouvait utiliser cette attaque qu'une seule fois, car elle exigeait 
 
 C'était splendide et prodigieux !
 
-Il n'y avait aucune hésitation dans les yeux du taoïste Shui. Son choc aurait pu soulever le monde, mais il devait attaquer pour tuer Wang Lin. Même si cela entraînait une blessure l'obligeant à une culture en méditation fermée pendant des milliers d'années. Même s'il devait sacrifier les 1,5 milliard de disciples du Dao de l'Eau qu'il avait rassemblés, il devait frapper !
+Il n'y avait aucune hésitation dans les yeux du taoïste Shui. Son choc aurait pu soulever le monde, mais il devait attaquer pour tuer Wang Lin. Même si cela entraînait une blessure l'obligeant à une cultivation en méditation fermée pendant des milliers d'années. Même s'il devait sacrifier les 1,5 milliard de disciples du Dao de l'Eau qu'il avait rassemblés, il devait frapper !
 
 S'il reculait maintenant, il mourrait sans aucun doute dans le futur. Il valait mieux tuer Wang Lin ici et éliminer toute menace potentielle !
 
-« Meurs ! » Les yeux du taoïste Shui révélèrent une intention meurtrière monstrueuse alors que la grande planète de culture descendait pour percuter le vortex contenant les cinq essences !
+« Meurs ! » Les yeux du taoïste Shui révélèrent une intention meurtrière monstrueuse alors que la grande planète de cultivation descendait pour percuter le vortex contenant les cinq essences !
 
 Cependant, à cet instant précis, un changement stupéfiant que personne n'aurait pu imaginer se produisit !!!
 
@@ -100,11 +100,11 @@ Avant cette bataille, Wang Lin s'était fusionné avec l'Omniscient et avait uti
 
 Cet espoir de survie était un jade appartenant à Liu Jinbiao !
 
-À cet instant, la planète de culture du taoïste Shui était sur le point de s'entrechoquer avec le vortex d'essences de Wang Lin, et ce dernier s'apprêtait à faire exploser ses essences pour qu'ils meurent tous les deux. Le jade qui s'était intégré à son âme originelle, disparu avec la Perle des Désobéissants et devenu indétectable pour le taoïste Shui, réapparut soudainement !
+À cet instant, la planète de cultivation du taoïste Shui était sur le point de s'entrechoquer avec le vortex d'essences de Wang Lin, et ce dernier s'apprêtait à faire exploser ses essences pour qu'ils meurent tous les deux. Le jade qui s'était intégré à son âme originelle, disparu avec la Perle des Désobéissants et devenu indétectable pour le taoïste Shui, réapparut soudainement !
 
 Le jade brilla intensément en émergeant du corps de Wang Lin pour flotter devant lui. Dès l'apparition du jade, le taoïste Shui trembla violemment et ses yeux furent envahis par la peur et la panique. Son visage devint livide, vidé de tout sang.
 
-Même la planète de culture formée par son sortilège s'immobilisa en plein ciel, et les 1,5 milliard de disciples du Dao de l'Eau tremblèrent d'un même frisson !
+Même la planète de cultivation formée par son sortilège s'immobilisa en plein ciel, et les 1,5 milliard de disciples du Dao de l'Eau tremblèrent d'un même frisson !
 
 Une pression indescriptible jaillit du jade avec une force folle et se propagea parmi les étoiles !
 

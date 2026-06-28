@@ -1,12 +1,12 @@
 ---
 n: 823
-title: Yao Changkong
+title: Yao Changdong
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
-en: Yao Changkong
+en: Yao Changdong
 slug: yao-changdong
 ---
-Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire qu'il le dépassait légèrement.
+Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de cultivation de l'adversaire était à peu près égal au sien, voire qu'il le dépassait légèrement.
 
 Cependant, ce sort étrange utilisé par l'autre partie lui inspirait une grande peur.
 
@@ -80,7 +80,7 @@ Au même moment, une lueur grise apparut aux pieds de trois individus, dont le c
 
 À cet instant, à l'exception du vieil homme qui combattait toujours Ta Shan, les huit survivants n'hésitèrent pas à renoncer. Comparées aux bénéfices promis par la famille Yao, leurs vies étaient bien plus précieuses. Il était évident que Xu Mu n'était pas un adversaire à leur portée.
 
-Par ce seul sort étrange, peu importe leur nombre, Xu Mu restait invincible ! À moins d'avoir un niveau de culture extrêmement élevé, il serait presque impossible de le vaincre !
+Par ce seul sort étrange, peu importe leur nombre, Xu Mu restait invincible ! À moins d'avoir un niveau de cultivation extrêmement élevé, il serait presque impossible de le vaincre !
 
 Les huit ne tergiversèrent pas. Ils se retirèrent rapidement dans huit directions différentes.
 
@@ -94,7 +94,7 @@ Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention
 
 Trois trésors poursuivaient trois cibles différentes. Wang Lin fit un pas en avant et disparut.
 
-Presque instantanément, Wang Lin apparut aux côtés d'un cultivateur en fuite. Ce dernier, le visage déformé par la peur, s'apprêtait à parler lorsque Wang Lin pressa son doigt entre ses sourcils, utilisant sa culture Corporel Yang.
+Presque instantanément, Wang Lin apparut aux côtés d'un cultivateur en fuite. Ce dernier, le visage déformé par la peur, s'apprêtait à parler lorsque Wang Lin pressa son doigt entre ses sourcils, utilisant sa cultivation Corporel Yang.
 
 Dès qu'il retira son doigt, il disparut à nouveau. Un instant plus tard, le Sceau de Scellement Céleste et la Paire Dao Fanée revinrent également. Seul Xu Liguo n'était pas de retour ; il jurait tout en contrôlant l'Épée Céleste pour attaquer.
 

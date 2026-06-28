@@ -46,7 +46,7 @@ Une flamme apparut, illuminant l'obscurité autour de l'os. Les yeux de Wang Lin
 
 Il posa la main droite sur l'os, prêt à l'absorber. Pourtant, il s'interrompit brusquement et commença à réfléchir.
 
-« Le fait qu'une personne ait pu provoquer un changement d'état chez le Serpent Moongazer signifie que sa culture est phénoménale. Si cette personne est déjà morte, ce ne sera pas un problème. Cependant, s'il se cache encore ou s'il est piégé ici, alors lorsque je prendrai l'os et libérerai les Fruits d'Ascension Céleste, il est fort probable qu'il surgisse ! Dans ce cas, cela introduira de trop nombreuses variables ! »
+« Le fait qu'une personne ait pu provoquer un changement d'état chez le Serpent Moongazer signifie que sa cultivation est phénoménale. Si cette personne est déjà morte, ce ne sera pas un problème. Cependant, s'il se cache encore ou s'il est piégé ici, alors lorsque je prendrai l'os et libérerai les Fruits d'Ascension Céleste, il est fort probable qu'il surgisse ! Dans ce cas, cela introduira de trop nombreuses variables ! »
 
 Wang Lin retira sa main. Après une courte réflexion, il se déplaça le long de l'os. Il décida d'explorer soigneusement la zone pour vérifier si d'autres cultivateurs rôdaient dans les parages.
 

@@ -18,7 +18,7 @@ C'était comme les cieux et leur esprit : deux entités insaisissables que nul n
 
 « La colère du Moongazer, le doigt d'un dieu ancien. » C'était la seconde description du Serpent Moongazer dans les souvenirs de Tu Si, et celle qui avait laissé l'impression la plus profonde chez Wang Lin.
 
-En lisant entre les lignes, cela signifiait qu'une fois qu'un Serpent Moongazer entrait dans une rage folle et atteignait sa troisième forme, il acquérait la puissance du doigt d'un dieu ancien. Cette puissance variait, mais le doigt d'un dieu ancien à neuf étoiles suffisait à effondrer une planète de culture.
+En lisant entre les lignes, cela signifiait qu'une fois qu'un Serpent Moongazer entrait dans une rage folle et atteignait sa troisième forme, il acquérait la puissance du doigt d'un dieu ancien. Cette puissance variait, mais le doigt d'un dieu ancien à neuf étoiles suffisait à effondrer une planète de cultivation.
 
 S'il s'agissait d'un dieu ancien d'une seule étoile, cela ne ferait rire qu'un disciple.
 

@@ -96,7 +96,7 @@ Wang Lin vit alors quelque chose qu'il n'oublierait jamais. Son visage pâlit in
 
 Une immense fissure s'était ouverte au-dessus des trois continents. On aurait dit que le ciel avait été déchiré, laissant apparaître une faille spatiale indescriptible ! Une pression capable de faire trembler les cieux émana de cette brèche alors qu'une bête moustique gigantesque, mesurant plus de 100 000 pieds, sortait lentement la moitié de son corps, comme si elle luttait pour s'extirper.
 
-La gueule terrifiante de ce monstre semblait capable de transpercer une planète de culture pour en aspirer toute l'essence !
+La gueule terrifiante de ce monstre semblait capable de transpercer une planète de cultivation pour en aspirer toute l'essence !
 
 Dans sa lutte, un rugissement qui résonna dans tout le Royaume Céleste du Vent se propagea. À cet instant, le royaume entier trembla comme s'il allait s'effondrer à nouveau. Toutes les bêtes moustiques frémirent, comme en signe d'adoration !
 

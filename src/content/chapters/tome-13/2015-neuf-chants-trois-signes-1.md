@@ -36,9 +36,9 @@ La septième marche, la huitième ! Wang Lin atteignit la 208e marche. Les veine
 
 Mais son regard demeurait inébranlable. Il sentait ses pouvoirs célestes et anciens fusionner rapidement sous cette pression. À cet instant précis, il sentit que quelque chose changeait !
 
-« Le pouvoir ancien est à l'extérieur et la culture céleste à l'intérieur. La fusion du pouvoir céleste et ancien en un seul... » Wang Lin leva le pied et franchit la neuvième puis la dixième marche pour atteindre la 210e !
+« Le pouvoir ancien est à l'extérieur et la cultivation céleste à l'intérieur. La fusion du pouvoir céleste et ancien en un seul... » Wang Lin leva le pied et franchit la neuvième puis la dixième marche pour atteindre la 210e !
 
-Au moment où son pied se posa, une infime parcelle de sa culture d'essence et de son pouvoir ancien fusionna enfin sous l'intense pression extérieure !
+Au moment où son pied se posa, une infime parcelle de sa cultivation d'essence et de son pouvoir ancien fusionna enfin sous l'intense pression extérieure !
 
 Cette trace de puissance fusionnée était un mélange de céleste et d'ancien. Elle contenait les deux essences, mais elle était aussi le propre pouvoir de Wang Lin !
 

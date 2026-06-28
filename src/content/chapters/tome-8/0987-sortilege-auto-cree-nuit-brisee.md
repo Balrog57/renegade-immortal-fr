@@ -10,13 +10,13 @@ Liu Wen n'était à l'origine qu'un ancien cultivateur de l'ombre. Bien que tale
 
 Nul ne savait comment il avait atteint cet état de Perception Divine, ni combien de temps celui-ci avait duré. Était-ce un simple instant ou une éternité ?
 
-Cependant, Wang Lin savait que Liu Wen n'était auparavant qu'un cultivateur sans aucun renom dans le monde de la culture. Après s'être retiré en méditation solitaire et en en ressortant, il était devenu une existence terrifiante. Ce qui le rendait si redoutable, c’est que personne n'avait jamais vu l'un de ses sorts auparavant.
+Cependant, Wang Lin savait que Liu Wen n'était auparavant qu'un cultivateur sans aucun renom dans le monde de la cultivation. Après s'être retiré en méditation solitaire et en en ressortant, il était devenu une existence terrifiante. Ce qui le rendait si redoutable, c’est que personne n'avait jamais vu l'un de ses sorts auparavant.
 
 Si cela avait été son seul trait, cela n'aurait pas été surprenant, mais tous les sorts de Liu Wen étaient d'une puissance extrême et contenaient le Dao des Cieux. Il avait déclenché une véritable tempête à l'époque ancienne.
 
 Trop de gens voulaient percer son secret, déclenchant ainsi un bain de sang. Peu importait le nombre d'assaillants, et même lorsque certains vieux monstres qui ne s'impliquaient d'ordinaire jamais dans de telles affaires se mirent en mouvement, aucun ne parvint à capturer Liu Wen. C'était comme s'il pouvait prédire tous les dangers et les éviter !
 
-Plus tard, réalisant qu'il ne pourrait résister à tous par sa seule puissance, il disparut. Il devint une légende étrange dans l'ancien monde de la culture. Ce n'est que bien plus tard que les gens comprirent qu'il avait dû pénétrer dans l'un des trois grands royaumes. Cela ne pouvait être le Royaume Ji ; il devait s'agir du Royaume Dao ou du Royaume Shi.
+Plus tard, réalisant qu'il ne pourrait résister à tous par sa seule puissance, il disparut. Il devint une légende étrange dans l'ancien monde de la cultivation. Ce n'est que bien plus tard que les gens comprirent qu'il avait dû pénétrer dans l'un des trois grands royaumes. Cela ne pouvait être le Royaume Ji ; il devait s'agir du Royaume Dao ou du Royaume Shi.
 
 Quant à savoir lequel, après avoir recoupé tous les événements, ils déterminèrent que c'était le Royaume Shi !
 

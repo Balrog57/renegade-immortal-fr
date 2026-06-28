@@ -18,7 +18,7 @@ Le fils de Da Niu, Ceng Xiaoniu, venait tout juste d'intégrer la Secte Nuage Bl
 
 Par conséquent, malgré ses efforts pour retrouver ses parents, l'Alliance des Quatre Sectes était trop vaste. Presque tous les mortels avaient été déplacés pour déblayer la neige et étaient dispersés aux quatre coins du pays.
 
-À moins de posséder un niveau de culture extrêmement élevé, il n'y avait aucun moyen de retrouver ses parents.
+À moins de posséder un niveau de cultivation extrêmement élevé, il n'y avait aucun moyen de retrouver ses parents.
 
 Da Niu avait perdu le compte des jours où cette neige tombait sans relâche. Chaque matin, il se réveillait pour découvrir, à ses côtés, un nouveau cadavre figé par le gel.
 

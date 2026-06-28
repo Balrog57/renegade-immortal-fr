@@ -108,7 +108,7 @@ D'innombrables épines étaient enfouies dans sa chair. Bien qu'invisibles, la d
 
 Pourtant, même s'il pouvait choisir à nouveau, il le ferait sans l'ombre d'une hésitation, peu importe si cela contredisait ses plans ou paraissait stupide.
 
-S'il avait attendu toutes ces années pour sauver Qing Shui, c'était parce qu'avec son niveau de culture de l'époque, il n'avait aucune chance de réussir. Mais avec son niveau actuel, l'espoir était là. S'il avait attendu d'atteindre le troisième échelon, d'avoir une force encore plus grande, il ne saurait jamais si Qing Shui serait encore en vie...
+S'il avait attendu toutes ces années pour sauver Qing Shui, c'était parce qu'avec son niveau de cultivation de l'époque, il n'avait aucune chance de réussir. Mais avec son niveau actuel, l'espoir était là. S'il avait attendu d'atteindre le troisième échelon, d'avoir une force encore plus grande, il ne saurait jamais si Qing Shui serait encore en vie...
 
 Parfois, celui qui calcule tout froidement, chaque gain et chaque perte, est un être qui ignore ce que sont les émotions.
 

@@ -10,7 +10,7 @@ Chapitre 882 - Barrière spatiale, ouvre !
 
 Maître Flamespark flottait dans les airs, ses mains formant un sceau tandis que des éclats de lumière noire jaillissaient de son front. À l'apparition de ces lumières noires, elles se transformèrent rapidement en fragments d'un continent.
 
-Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa culture pour résister à cette force.
+Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa cultivation pour résister à cette force.
 
 À première vue, on aurait dit que le ciel était scindé en deux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire d'Allheaven virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
 

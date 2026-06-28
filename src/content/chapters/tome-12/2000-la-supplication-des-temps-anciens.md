@@ -16,17 +16,17 @@ L'Empereur Céleste de cette génération, Lian Daozhen, se retirait fréquemmen
 
 Wu Feng retourna au Continent Nord et s'enferma immédiatement dans le glacier éternel. Il dispelsa silencieusement la malédiction ancestrale qui rongeait son corps.
 
-N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, son combat serait bien plus facile que celui de Dao Yi ou de Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
+N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, son combat serait bien plus facile que celui de Dao Yi ou de Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de cultivation augmenterait considérablement.
 
 Dao Yi traîna son corps mutilé jusqu'au Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
 
 Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gemini l'avait autrefois surnommé le « type au faux masque » !
 
-Afin de dissiper la malédiction sans affecter sa culture future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous !
+Afin de dissiper la malédiction sans affecter sa cultivation future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous !
 
 La malédiction ancestrale était si puissante que les Exaltés Dorés moururent instantanément après l'avoir touchée. Même les Exaltés Empyréens poussèrent des hurlements misérables alors que leurs corps commençaient à pourrir. Bien qu'ils puissent tenir un peu plus longtemps, le dénouement resterait inévitablement la mort !
 
-Seuls les Ascendants Empyréens purent survivre grâce à leur puissante culture, mais le prix à payer fut immense.
+Seuls les Ascendants Empyréens purent survivre grâce à leur puissante cultivation, mais le prix à payer fut immense.
 
 Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Yi eurent aidé à porter le fardeau, Dao Yi chercha des cultivateurs du troisième niveau avec acharnement. Même s'ils ne pouvaient l'aider qu'à supporter une infime fraction de la malédiction, cela lui serait d'un immense secours.
 
@@ -64,7 +64,7 @@ Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Ses griefs personnel
 
 Dans le Grand Secte de l'Âme, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
 
-Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
+Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien qu'il ne possédât pas le niveau de cultivation requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
 
 Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, le Grand Secte de l'Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
@@ -78,7 +78,7 @@ Wang Lin regarda le Grand Secte de l'Âme avec une expression complexe. Il étai
 
 Dans un soupir, Wang Lin s'avança vers le Grand Secte de l'Âme.
 
-Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres du secte, personne ne remarqua son arrivée.
+Son niveau de cultivation actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres du secte, personne ne remarqua son arrivée.
 
 Au sein du Grand Secte de l'Âme, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
 

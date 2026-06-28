@@ -10,7 +10,7 @@ Chapitre 1442 - Une chance de guérir !
 
 Des milliers de bêtes humanoïdes ne semblaient pas si impressionnantes en apparence, mais si vous les aviez vues de vos propres yeux, surgissant du brouillard en poussant des hurlements stridents, le spectacle aurait été terrifiant. Leurs expressions féroces, leur vitesse fulgurante et leur apparence monstrueuse leur conféraient un élan redoutable.
 
-Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs mené par Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés : les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur de Nirvana.
+Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs mené par Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de cultivation variés : les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur de Nirvana.
 
 Individuellement, elles n'étaient pas si redoutables, mais leur nombre et leur vitesse étrange les rendaient difficiles à affronter. Bien que la tâche fût périlleuse, les cultivateurs présents n'étaient pas de faibles esprits. À cet instant, tous commencèrent à lancer des sorts et à déployer leurs trésors. La bataille était engagée.
 
@@ -38,7 +38,7 @@ Le temps passait rapidement. L'agitation de Wang Lin obligeait tous les cultivat
 
 Soudain, un éclair blanc jaillit : Wang Lin surgit comme un coup de tonnerre. Dans un fracas assourdissant, plus de la moitié des bêtes périrent. Après avoir absorbé leur force vitale, Wang Lin repartit. L'homme d'âge moyen fronça les sourcils et marmonna quelque chose, avant que ses yeux ne se rétrécissent de stupéfaction. Plusieurs personnes avaient compris le stratagème ; après tout, les cultivateurs ici étaient tous des êtres rusés. Le comportement de Wang Lin avait fini par trahir son intention.
 
-« Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la culture pendant plusieurs mois ! »
+« Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la cultivation pendant plusieurs mois ! »
 
 Cependant, le constat était amer : plus de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui tremblait de peur, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin !
 
@@ -54,7 +54,7 @@ Le Fourneau Impérial apparut soudainement, encerclant les mille bêtes. Lorsqu'
 
 Dans un grondement sourd, le Fourneau Impérial s'agita et les bêtes à l'intérieur hurlèrent. Avant qu'elles ne puissent s'autodétruire, la puissance du Dieu Ancien déferla à travers le fourneau. Les vingt cultivateurs abasourdis virent l'artefact se rétracter brusquement pour disparaître entre les sourcils de Wang Lin.
 
-Tout cela se produisit en un instant. Wang Lin avait instantanément raflé toutes les bêtes restantes, ne laissant rien derrière lui ! Il se retourna et son regard balaya ses poursuivants. Voyant l'émotion bouillonnante dans leurs yeux, il regagna sa plateforme d'un pas assuré. D'un mouvement de manche, il déploya sa puissance de culture pour saturer la zone.
+Tout cela se produisit en un instant. Wang Lin avait instantanément raflé toutes les bêtes restantes, ne laissant rien derrière lui ! Il se retourna et son regard balaya ses poursuivants. Voyant l'émotion bouillonnante dans leurs yeux, il regagna sa plateforme d'un pas assuré. D'un mouvement de manche, il déploya sa puissance de cultivation pour saturer la zone.
 
 Les vingt cultivateurs lui lançaient des regards hostiles, mais la présence écrasante de Wang Lin les intimidait, et nul n'osa faire le premier pas. La jeune fille du Clan de l'Extermination des Sceaux vit l'opportunité de s'avancer, mais le regard glacial de Wang Lin se posa sur elle. Son esprit vacilla, son visage pâlit et elle resta pétrifiée.
 

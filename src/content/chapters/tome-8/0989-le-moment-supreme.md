@@ -8,7 +8,7 @@ slug: le-moment-supreme
 ---
 Maître Hollow Wind n'était pas certain que Wang Lin ait créé ce sort qui avait failli lui faire perdre la raison. Il ressentait seulement que le sort était d'une puissance redoutable, et il voyait rarement un sort d'une telle envergure !
 
-Si Maître Hollow Wind pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en culture et de son stade de culture au début du Nirvana Cleanser. En éprouvant le sort, Maître Hollow Wind avait ressenti un manque de maîtrise !
+Si Maître Hollow Wind pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en cultivation et de son stade de cultivation au début du Nirvana Cleanser. En éprouvant le sort, Maître Hollow Wind avait ressenti un manque de maîtrise !
 
 Ce manque de maîtrise ne provenait pas du fait que l'utilisateur n'était pas familier avec la technique, mais du sort lui-même. C’est comme un jade qui vient d'être poli : il semble très lisse, mais si vous le touchez, vous constaterez qu'il est encore un peu rugueux.
 
@@ -30,7 +30,7 @@ Maître Hollow Wind comprit que si Wang Lin n'avait pas voulu le tuer, il aurait
 
 Tandis que des centaines d'idées traversaient l'esprit de Maître Hollow Wind, Wang Lin réfléchissait également. Le choc que Sundered Night avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Hollow Wind. En fait, il était encore plus stupéfait !
 
-« Ma culture actuelle n'est qu'au sommet du milieu du stade Nirvana Scryer, un pas avant le stade final, mais loin du sommet du stade de fin de Nirvana Scryer. La différence entre ma culture et celle d'un Nirvana Cleanser est immense, alors pourquoi Sundered Night a-t-il pu blesser si facilement Maître Hollow Wind... »
+« Ma cultivation actuelle n'est qu'au sommet du milieu du stade Nirvana Scryer, un pas avant le stade final, mais loin du sommet du stade de fin de Nirvana Scryer. La différence entre ma cultivation et celle d'un Nirvana Cleanser est immense, alors pourquoi Sundered Night a-t-il pu blesser si facilement Maître Hollow Wind... »
 
 Wang Lin continua de méditer sur ce problème.
 
@@ -46,7 +46,7 @@ Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une r
 
 Cependant, après avoir constaté la puissance de Sundered Night et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniques pour retrouver sa liberté.
 
-Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa culture et son expérience, il pouvait en deviner les indices ; il estimait que 80 % des paroles de Wang Lin étaient vraies.
+Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa cultivation et son expérience, il pouvait en deviner les indices ; il estimait que 80 % des paroles de Wang Lin étaient vraies.
 
 Toutefois, que ce soit vrai ou faux n'avait plus d'importance. Le choc provoqué par le sort l'avait poussé à abandonner toute idée de rébellion. D'une certaine manière, il s'en sentait soulagé, n'ayant plus à porter ce poids.
 
@@ -54,9 +54,9 @@ De plus, après avoir reçu la clémence deux fois, Maître Hollow Wind savait q
 
 Wang Lin regarda calmement Maître Hollow Wind. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée ; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Hollow Wind commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniques.
+« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en cultivation fermée ; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Hollow Wind commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniques.
 
-Après avoir salué Wang Lin, Maître Hollow Wind retourna à son palais pour commencer sa culture.
+Après avoir salué Wang Lin, Maître Hollow Wind retourna à son palais pour commencer sa cultivation.
 
 Une fois Maître Hollow Wind parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau Sundered Night et la lumière dorée réapparut.
 
@@ -106,7 +106,7 @@ Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au mom
 
 Il y avait dans ses yeux une lueur de malveillance, mais aussi une intelligence inattendue. Elle ralentit sa retraite et chargea directement Wang Lin !
 
-Le cadavre féminin était gravement blessé et, bien que son niveau de culture ait chuté, sa férocité était restée intacte. Elle se précipita sur Wang Lin pour le griffer sans pitié.
+Le cadavre féminin était gravement blessé et, bien que son niveau de cultivation ait chuté, sa férocité était restée intacte. Elle se précipita sur Wang Lin pour le griffer sans pitié.
 
 L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de ses yeux. La main de la créature toucha immédiatement cette lueur.
 

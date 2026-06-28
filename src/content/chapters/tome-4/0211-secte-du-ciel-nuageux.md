@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 211 - Cloud Sky Sect
 slug: secte-du-ciel-nuageux
 ---
-Calendrier Suzaku, an 134 500. Dans le pays de culture de Chu, une lueur jaillit sur son territoire. Après trois jours, toutes les sectes avaient envoyé des disciples pour enquêter, mais ils ne finirent par trouver rien d'autre qu'une grotte abandonnée.
+Calendrier Suzaku, an 134 500. Dans le pays de cultivation de Chu, une lueur jaillit sur son territoire. Après trois jours, toutes les sectes avaient envoyé des disciples pour enquêter, mais ils ne finirent par trouver rien d'autre qu'une grotte abandonnée.
 
 La rumeur voulait qu'un trésor fût apparu en ces lieux, mais qu'il eût déjà été emporté par un tiers.
 
@@ -18,7 +18,7 @@ Dès l'apparition de cette pilule, la déjà célèbre Secte du Ciel Nuageux gag
 
 À la fin de ce mois, la Secte du Ciel Nuageux ouvrit ses portes pour son recrutement, un événement qui n'avait lieu que tous les trente ans.
 
-Les diverses familles de culture du pays de Chu y envoyaient leurs descendants, espérant qu'ils puissent intégrer la secte et atteindre la grandeur sous sa protection.
+Les diverses familles de cultivation du pays de Chu y envoyaient leurs descendants, espérant qu'ils puissent intégrer la secte et atteindre la grandeur sous sa protection.
 
 Cependant, les critères d'admission de la Secte du Ciel Nuageux étaient bien singuliers. Contrairement aux autres sectes qui privilégiaient le talent inné, le recrutement de la Secte du Ciel Nuageux reposait sur une technique spéciale.
 
@@ -34,7 +34,7 @@ Ces mots étaient : « Secte du Ciel Nuageux ».
 
 Lorsque commençait l'événement de recrutement, qui durait dix jours tous les trente ans, ces trois caractères apparaissaient dans le ciel et, une fois la période écoulée, ils disparaissaient.
 
-Ainsi, tous les cultivateurs errants et les familles de culture du pays de Chu savaient que dès l'apparition de ces mots, la Secte du Ciel Nuageux avait commencé son recrutement. Dès leur disparition, l'événement touchait à sa fin.
+Ainsi, tous les cultivateurs errants et les familles de cultivation du pays de Chu savaient que dès l'apparition de ces mots, la Secte du Ciel Nuageux avait commencé son recrutement. Dès leur disparition, l'événement touchait à sa fin.
 
 Ce matin-là, le ciel était dépourvu de nuages. Des éclats de lumière d'épée volaient de toutes les directions vers la Secte du Ciel Nuageux. Lorsqu'ils atteignirent une distance d'environ mille kilomètres de la montagne, ils descendirent de leurs épées volantes, révélant de nombreux jeunes gens. Ils étaient tous assez jeunes. Certains voyageaient seuls, tandis que d'autres étaient accompagnés de leurs aînés.
 
@@ -52,13 +52,13 @@ En y regardant de plus près, la jeune fille était très attrayante ; la décri
 
 L'expression de l'homme resta imperturbable. Il regarda la jeune fille, lui toucha le front du bout du doigt et sourit. « Il y a trop de sang versé dans la Secte de l'Épée. Ce n'est pas fait pour toi. Je sais que la Secte du Ciel Nuageux est une institution majeure du pays de Chu. Même si le pays devait subir un grand désastre, cela n'affecterait pas la secte. Si tu réussis à y entrer, ton frère sera soulagé. Si mère et père étaient encore en vie, ils le seraient tout autant. »
 
-En entendant son frère évoquer leurs parents, l'expression de la jeune fille s'assombrit légèrement. Après une courte réflexion, elle hocha la tête docilement. Elle pointa ensuite la forêt du doigt et dit à son frère : « Grand frère, si j'entre dans la Secte du Ciel Nuageux, je fabriquerai des pilules rien que pour toi. Ensuite, quand ta culture sera élevée, nous pourrons rentrer à la maison et donner une leçon à ces vieux. »
+En entendant son frère évoquer leurs parents, l'expression de la jeune fille s'assombrit légèrement. Après une courte réflexion, elle hocha la tête docilement. Elle pointa ensuite la forêt du doigt et dit à son frère : « Grand frère, si j'entre dans la Secte du Ciel Nuageux, je fabriquerai des pilules rien que pour toi. Ensuite, quand ta cultivation sera élevée, nous pourrons rentrer à la maison et donner une leçon à ces vieux. »
 
 En entendant cela, un éclat froid passa dans les yeux de l'homme. Par crainte d'effrayer sa sœur, il ne lui avait jamais révélé la vérité sur ce qui s'était passé cette année-là.
 
 Les yeux de la jeune fille s'écarquillèrent en apercevant un jeune homme devant eux et elle rit : « Grand frère, regarde ! Cet homme porte des vêtements vraiment bizarres. »
 
-L'homme leva les yeux et vit qu'à soixante mètres devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de culture. Il était impossible pour des mortels d'arriver jusqu'ici.
+L'homme leva les yeux et vit qu'à soixante mètres devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de cultivation. Il était impossible pour des mortels d'arriver jusqu'ici.
 
 Il était donc très rare de voir quelqu'un habillé ainsi ; c'était manifestement l'apparence d'un simple villageois de montagne.
 
@@ -66,7 +66,7 @@ Comme s'il avait entendu la voix de la jeune fille, le jeune homme se retourna p
 
 Une pointe de surprise traversa le regard de l'homme. Il savait que sa sœur était très séduisante et que, durant le voyage, la plupart des passants ne pouvaient s'empêcher de la dévisager. Surtout depuis qu'ils étaient entrés dans le périmètre des mille kilomètres de la Secte du Ciel Nuageux, chaque rencontre s'attardait sur elle ; pourtant, les yeux de ce jeune homme étaient aussi calmes que l'eau dormante et, lorsqu'il avait croisé le regard de sa sœur, aucune émotion n'avait traversé ses yeux.
 
-L'homme projeta son Sens Divin et découvrit que la culture du jeune homme ne se situait qu'aux deuxième ou troisième couches de la Condensation de Qi. Après une brève exploration, il retira son attention.
+L'homme projeta son Sens Divin et découvrit que la cultivation du jeune homme ne se situait qu'aux deuxième ou troisième couches de la Condensation de Qi. Après une brève exploration, il retira son attention.
 
 La jeune fille regarda le garçon avec une lueur d'intérêt dans les yeux. Elle s'avança rapidement et cria : « Hé ! Es-tu ici pour rejoindre la secte, toi aussi ? »
 
@@ -84,7 +84,7 @@ La jeune fille tapa du pied et rattrapa le garçon. Elle marcha à ses côtés e
 
 Le jeune homme fronça de nouveau les sourcils et soupira intérieurement. À ses yeux, cette fille était comme un poussin nouveau-né, et un poussin particulièrement agaçant.
 
-Si sa culture n'était pas trop faible en ce moment, il aurait déjà fait tournoyer ses manches pour partir plutôt que de subir les importunités de cette jeune fille.
+Si sa cultivation n'était pas trop faible en ce moment, il aurait déjà fait tournoyer ses manches pour partir plutôt que de subir les importunités de cette jeune fille.
 
 Le temps passa rapidement et l'après-midi arriva. Le soleil brillait de mille feux et la sueur perlait sur le front du garçon. Il eut un sourire amer au fond de lui. Cela faisait longtemps qu'il n'avait pas été essoufflé comme un simple mortel.
 
@@ -102,11 +102,11 @@ Plus précisément, il s'agissait de l'avatar de Wang Lin, créé par la techniq
 
 Cependant, ce corps n'avait que trente ans à vivre.
 
-C'était son seul plan pour franchir le stade de l'Âme Naissante sans perdre sa culture. Quant à son corps principal, il était caché quelque part près de la Secte du Ciel Nuageux.
+C'était son seul plan pour franchir le stade de l'Âme Naissante sans perdre sa cultivation. Quant à son corps principal, il était caché quelque part près de la Secte du Ciel Nuageux.
 
 Il avait déjà abandonné la grotte qu'il occupait auparavant car, au moment où l'avatar s'était manifesté, un rayon de lumière avait jailli vers le ciel.
 
-Il avait donc dû quitter précipitamment son repaire pour trouver un autre endroit afin de commencer sa culture en isolement.
+Il avait donc dû quitter précipitamment son repaire pour trouver un autre endroit afin de commencer sa cultivation en isolement.
 
 Son corps principal s'était lancé dans une méditation intensive tandis que son avatar vivait dans un village au pied de la montagne pendant quelques mois. Lorsqu'il apprit que la Secte du Ciel Nuageux recrutait, il réfléchit et décida de tenter sa chance.
 
@@ -118,7 +118,7 @@ Tous ceux qui venaient pour rejoindre la Secte du Ciel Nuageux furent conduits s
 
 Lorsque la jeune fille marchant avec Wang Lin fut emmenée par les disciples à la porte, son frère s'apprêta à partir, mais il jeta un dernier regard sur Wang Lin.
 
-L'expression de Wang Lin était calme. Bien que sa culture fût absente, son expérience demeurait intacte. L'homme devant lui n'était certainement pas encore au stade de la Formation du Noyau et se situait, au mieux, à un stade avancé de l'Établissement des Fondations. Si Wang Lin avait utilisé son corps principal, il aurait pu l'éliminer sans le moindre effort.
+L'expression de Wang Lin était calme. Bien que sa cultivation fût absente, son expérience demeurait intacte. L'homme devant lui n'était certainement pas encore au stade de la Formation du Noyau et se situait, au mieux, à un stade avancé de l'Établissement des Fondations. Si Wang Lin avait utilisé son corps principal, il aurait pu l'éliminer sans le moindre effort.
 
 Après quelques jours passés à la Secte du Ciel Nuageux, les trois grands caractères flottant dans le ciel se dissipèrent lentement. Ils finirent par disparaître sans laisser de trace, signalant la fin de la période de recrutement.
 
@@ -138,7 +138,7 @@ Simultanément, une colonne de brume sombre s'éleva du sol. Elle était majestu
 
 La voix de l'homme résonna vers la foule : « Par n'importe quel moyen, tant que vous parvenez à identifier précisément la substance qui se trouve au cœur de cette colonne de brume sombre, vous serez qualifiés. Vous avez six heures ! » Sur ces mots, il se posa sur le côté et resta silencieux, observant la colonne.
 
-L'expression de Wang Lin demeura impassible. Il fixa la colonne noire et commença à réfléchir. Bien qu'il ne soit qu'un avatar, sa création n'avait pas hérité de la culture ou du Sens Divin du corps principal, mais toutes ses techniques et les souvenirs de l'Ancien Dieu étaient restés intacts.
+L'expression de Wang Lin demeura impassible. Il fixa la colonne noire et commença à réfléchir. Bien qu'il ne soit qu'un avatar, sa création n'avait pas hérité de la cultivation ou du Sens Divin du corps principal, mais toutes ses techniques et les souvenirs de l'Ancien Dieu étaient restés intacts.
 
 Les yeux de Wang Lin tremblèrent légèrement. Il continua d'analyser la colonne jusqu'à ce qu'un léger sourire apparaisse sur son visage. À ses yeux, cette colonne était clairement une forme de restriction, conçue pour tester tous ceux qui tenteraient de la percer.
 

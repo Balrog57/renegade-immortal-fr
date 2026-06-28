@@ -46,13 +46,13 @@ Wang Lin leva les yeux vers le doigt qui grandissait et se rapprochait, jusqu'à
 
 Le fantôme de Qing Shui leva la main droite et forma un sceau. Puis, il pointa le cristal devant Wang Lin. L'artefact trembla et tourna frénétiquement avant qu'un éclat de lumière fulgurant ne soit projeté vers le doigt géant qui descendait sur lui !
 
-En approchant du doigt, le cristal libéra une explosion de lumière inimaginable. Cette clarté était si intense que, si un mortel la regardait, ses yeux se seraient liquéfiés, entraînant sa mort immédiate. Même pour un cultivateur, elle était aveuglante ; si sa culture était insuffisante, son corps se dissiperait purement et simplement.
+En approchant du doigt, le cristal libéra une explosion de lumière inimaginable. Cette clarté était si intense que, si un mortel la regardait, ses yeux se seraient liquéfiés, entraînant sa mort immédiate. Même pour un cultivateur, elle était aveuglante ; si sa cultivation était insuffisante, son corps se dissiperait purement et simplement.
 
 Malgré son corps de Dieu Ancien, Wang Lin ressentit une douleur oculaire face à cette lumière. Heureusement, celle-ci disparut en un éclair.
 
 Cependant, Maître Yi Chen, qui observait au loin, ne fut pas aussi chanceux. Il ne ressentit pas seulement une douleur aux yeux, mais eut l'impression que d'innombrables aiguilles d'argent le transperçaient. Terrifié, il fit circuler précipitamment l'énergie originelle dans son corps et ne retrouva ses esprits qu'après un long moment.
 
-Quant au seigneur de la Cité aux Yeux Fantômes, le jeune homme en noir, sa culture était inférieure à celle de Maître Yi Chen, se situant seulement au sommet du stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
+Quant au seigneur de la Cité aux Yeux Fantômes, le jeune homme en noir, sa cultivation était inférieure à celle de Maître Yi Chen, se situant seulement au sommet du stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
 
 Mais son Sens Divin continuait de se déployer pour observer attentivement ce combat !
 

@@ -48,7 +48,7 @@ L'Ancien Song sourit : « Ce n'est pas de l'avarice, c'est simplement que lorsqu
 
 Alors que les deux commençaient à discuter, les deux autres Anciens de la Secte Xuan Dao reconnurent des visages familiers et entamèrent une conversation, comme si les paroles hostiles d'autrefois n'avaient jamais été prononcées.
 
-En évoquant les événements qui secouaient le monde de la culture dans le pays de Zhao, les yeux des disciples des deux sectes s'écarquillèrent d'intérêt.
+En évoquant les événements qui secouaient le monde de la cultivation dans le pays de Zhao, les yeux des disciples des deux sectes s'écarquillèrent d'intérêt.
 
 Des récits tels que : un disciple mâle de la Secte Wu Feng avait séduit la disciple principale de la Secte Misty au point de la rendre enceinte ; la chef de la Secte Misty s'était rendue à la Secte Wu Feng pour réclamer justice, mais était revenue avec un nouveau-né.
 
@@ -56,13 +56,13 @@ Ou encore la Secte Heaven, où certains disciples avaient abandonné leur ordre 
 
 On parla aussi de la naissance d'un génie, et enfin de l'anniversaire de l'expert en Formation du Noyau de la Secte Misty qui approchait, précisant que toutes les sectes alliées enverraient des représentants pour célébrer l'événement.
 
-Wang Lin écouta longuement, commençant à se forger une vision globale du monde de la culture dans le pays de Zhao. À un moment donné, il sentit soudain qu'un regard pesait sur lui. Il tourna la tête et vit la disciple de la Secte Xuan Dao qui l'observait avec un léger sourire.
+Wang Lin écouta longuement, commençant à se forger une vision globale du monde de la cultivation dans le pays de Zhao. À un moment donné, il sentit soudain qu'un regard pesait sur lui. Il tourna la tête et vit la disciple de la Secte Xuan Dao qui l'observait avec un léger sourire.
 
 Wang Lin hocha discrètement la tête et se mit intérieurement sur ses gardes. Il ne croyait pas posséder un tel charme pour attirer l'attention parmi tous les disciples présents.
 
 Liu Mei, chef des disciples internes de la Secte Xuan Dao, avait une confiance absolue en son charme inné. Au sein de sa propre secte, presque aucun garçon de son âge ne pouvait lui résister. Mais ce jeune homme à l'apparence ordinaire fut le premier à reprendre ses esprits, ce qui la surprit. Elle ne put s'empêcher de le dévisager à nouveau, mais peu importe l'intensité de son regard, Wang Lin n'était qu'au 3ème niveau et n'avait rien d'extraordinaire.
 
-Tandis que les Anciens discutaient, les disciples des deux sectes commencèrent également à échanger pour se préparer à la compétition imminente. Tous les membres de la Secte Xuan Dao semblaient enveloppés d'un brouillard mystérieux dissimulant leur niveau de culture.
+Tandis que les Anciens discutaient, les disciples des deux sectes commencèrent également à échanger pour se préparer à la compétition imminente. Tous les membres de la Secte Xuan Dao semblaient enveloppés d'un brouillard mystérieux dissimulant leur niveau de cultivation.
 
 Wang Lin fut lui aussi surpris par l'intérêt qu'il portait à la Secte Xuan Dao. Cette technique semblait similaire à une pilule de camouflage, mais à un degré supérieur.
 

@@ -196,7 +196,7 @@ Teng Xuan était un disciple de la sixième génération de la famille Teng. Il 
 
 La famille Teng comptait six membres au sein du Secte Tian Dao, tous jouissant d'un statut considérable. Bien sûr, le plus influent restait Teng Xuan ; les cinq autres n'étaient qu'au stade de l'Établissement des Fondations.
 
-Teng Xuan était très satisfait de sa situation, tant pour son partenaire de culture que pour son rang actuel. Certes, tout cela était dérisoire face aux membres éminents du clan, mais il connaissait ses limites et savait qu'il ne pouvait rivaliser avec eux.
+Teng Xuan était très satisfait de sa situation, tant pour son partenaire de cultivation que pour son rang actuel. Certes, tout cela était dérisoire face aux membres éminents du clan, mais il connaissait ses limites et savait qu'il ne pouvait rivaliser avec eux.
 
 Parmi les innombrables membres des Teng, combien pouvaient réellement égaler ces génies ? Teng Xuan espérait seulement atteindre le stade avancé de la Formation du Noyau avant sa mort.
 
@@ -256,11 +256,11 @@ Wang Lin lui envoya une pichenette sur la poitrine. Le corps du jeune homme trem
 
 Les cultivateurs de l'Âme Naissante qui le suivaient étaient horrifiés. Ils partageaient tous la même pensée : quand la famille Teng avait-elle offensé un tel démon ?
 
-La culture de ce démon était à un niveau inimaginable, et pourtant il ne cherchait pas Teng Huayuan. Au lieu de cela, il massacrait les descendants des Teng. Il était clair qu'il nourrissait une haine profonde et voulait anéantir tout le clan.
+La cultivation de ce démon était à un niveau inimaginable, et pourtant il ne cherchait pas Teng Huayuan. Au lieu de cela, il massacrait les descendants des Teng. Il était clair qu'il nourrissait une haine profonde et voulait anéantir tout le clan.
 
 Ces cultivateurs ressentirent un frisson dans leur cœur et leurs pas ralentirent inconsciemment.
 
-Le regard de Wang Lin restait froid tandis qu'une intention meurtrière l'enveloppait. Il esquissa un sourire cruel en ciblant la cinquième personne. C'était le plus âgé d'entre eux. Ses cheveux étaient déjà tout blancs, mais son niveau de culture n'était que celui du sommet de l'Établissement des Fondations.
+Le regard de Wang Lin restait froid tandis qu'une intention meurtrière l'enveloppait. Il esquissa un sourire cruel en ciblant la cinquième personne. C'était le plus âgé d'entre eux. Ses cheveux étaient déjà tout blancs, mais son niveau de cultivation n'était que celui du sommet de l'Établissement des Fondations.
 
 Le visage du vieil homme ne montrait ni panique ni chagrin, mais une expression très sérieuse. Tout en volant, il sortait à répétition des jades de transmission, y injectait un peu de son sens divin et les lançait.
 
@@ -294,7 +294,7 @@ Wang Lin ne ralentit pas tandis que la bête s'éloignait du Sect Tian Dao. De l
 
 Ce n'est que lorsque Wang Lin disparut à l'horizon qu'ils purent enfin reprendre leur souffle. L'un d'eux chuchota : « La famille Teng est finie... »
 
-Un autre murmura : « Pas seulement la famille Teng, tout le pays de Zhao va sombrer dans le chaos. » Puis, il prit une profonde inspiration et s'adressa aux anciens du Sect Tian Dao qui l'observaient : « Donnez l'ordre de rappeler tous les disciples en entraînement extérieur. Rompez toute relation commerciale avec la famille Teng. Tout disciple en extérieur ayant formé un partenariat de culture avec une femme des Teng doit être expulsé de la secte. À partir d'aujourd'hui, nous n'aurons plus aucun lien avec eux. »
+Un autre murmura : « Pas seulement la famille Teng, tout le pays de Zhao va sombrer dans le chaos. » Puis, il prit une profonde inspiration et s'adressa aux anciens du Sect Tian Dao qui l'observaient : « Donnez l'ordre de rappeler tous les disciples en entraînement extérieur. Rompez toute relation commerciale avec la famille Teng. Tout disciple en extérieur ayant formé un partenariat de cultivation avec une femme des Teng doit être expulsé de la secte. À partir d'aujourd'hui, nous n'aurons plus aucun lien avec eux. »
 
 Après avoir massacré sept membres de la famille Teng, les yeux de Wang Lin restaient glacials. Il faut un cœur d'acier pour anéantir une lignée entière. Le moindre instant de faiblesse empêcherait l'action décisive nécessaire pour mener ce massacre à bien. Après tout, exterminer un clan n'était pas à la portée de n'importe qui.
 

@@ -44,7 +44,7 @@ Wang Lin ne le pouvait pas.
 
 Ainsi, les deux progressèrent dans la distance, tandis que les rires et les rugissements rauques du fou résonnaient dans l'espace.
 
-Peu après, une vaste planète de culture apparut devant eux. Elle était immense, comparable en taille à la planète Tian Yun, mais le nombre de petites planètes qui la protégeaient était bien supérieur à celui de Tian Yun.
+Peu après, une vaste planète de cultivation apparut devant eux. Elle était immense, comparable en taille à la planète Tian Yun, mais le nombre de petites planètes qui la protégeaient était bien supérieur à celui de Tian Yun.
 
 Wang Lin n'était jamais venu sur cette planète ; elle lui était donc étrangère.
 
@@ -52,7 +52,7 @@ Des ondulations se propageaient autour de l'astre, dégageant l'aura de restrict
 
 La planète entière était plongée dans un silence absolu. C'était comme si elle était morte, sans le moindre son.
 
-En levant les yeux, le fou aperçut également la planète de culture. Il devint instantanément joyeux, ses yeux s'illuminèrent et il se mit à rugir :
+En levant les yeux, le fou aperçut également la planète de cultivation. Il devint instantanément joyeux, ses yeux s'illuminèrent et il se mit à rugir :
 
 « Wow, wow ! Tant de gens, tant de filles, cet endroit est génial ! Ce roi voit enfin du monde, c'est tellement amusant, tellement amusant ! » Le fou agita les mains avec enthousiasme en regardant Wang Lin.
 
@@ -60,9 +60,9 @@ En levant les yeux, le fou aperçut également la planète de culture. Il devint
 
 Le regard de Wang Lin balaya la planète. Il n'attira l'attention d'aucun cultivateur et put analyser clairement la situation.
 
-Il s'agissait d'une planète de culture de rang 7, divisée en des centaines de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
+Il s'agissait d'une planète de cultivation de rang 7, divisée en des centaines de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
 
-En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Nettoyage du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
+En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Nettoyage du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en cultivation fermée.
 
 Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur de Nirvana.
 
@@ -100,9 +100,9 @@ Les deux se contemplèrent un moment avant qu'une tête ne surgisse du second ra
 
 « Vous deux, accompagnez-le et attendez-moi ici, sur cette planète. Pendant ce temps, ne laissez personne lui faire de mal ! » Wang Lin était un homme de peu de mots, mais ses ordres imposaient une pression écrasante.
 
-Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigner dans la distance. Avec Xu Liguo, qui possédait un niveau de culture décent, et Liu Jinbiao, qui excellait dans l'art de la tromperie, ce fou devrait être en sécurité sur cette planète protégée.
+Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigner dans la distance. Avec Xu Liguo, qui possédait un niveau de cultivation décent, et Liu Jinbiao, qui excellait dans l'art de la tromperie, ce fou devrait être en sécurité sur cette planète protégée.
 
-Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Culture !
+Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Cultivation !
 
 « Senior Frère Qing Shui, Wang Lin arrive ! »
 

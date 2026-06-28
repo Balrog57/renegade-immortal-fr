@@ -46,7 +46,7 @@ Cette puissante intention de combat se propagea sauvagement, résonnant dans un 
 
 À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 10 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes bleues du Temple Céleste du Tonnerre sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation !
 
-Les ancêtres des grandes familles de culture sortirent de leur méditation. Ils fixèrent l'horizon et leurs yeux s'illuminèrent de choc.
+Les ancêtres des grandes familles de cultivation sortirent de leur méditation. Ils fixèrent l'horizon et leurs yeux s'illuminèrent de choc.
 
 « Quelle puissance d'intention de combat ! »
 
@@ -56,7 +56,7 @@ Face à cette intention de combat vaste et inimaginable, s'ils ne laissaient pas
 
 Combat !
 
-Une intention de combat infinie sembla sculpter le mot « COMBAT » qui résonna dans les oreilles de tous les cultivateurs environnants. Bien que ce mot fût silencieux, il vibrait dans l'esprit de chacun. Ceux dont la culture était faible crachèrent aussitôt du sang et furent blessés !
+Une intention de combat infinie sembla sculpter le mot « COMBAT » qui résonna dans les oreilles de tous les cultivateurs environnants. Bien que ce mot fût silencieux, il vibrait dans l'esprit de chacun. Ceux dont la cultivation était faible crachèrent aussitôt du sang et furent blessés !
 
 Submergés par cette intention de combat, une pensée irrésistible s'imposa à leurs esprits !
 
@@ -90,7 +90,7 @@ Un rugissement retentit alors que Tang Yanfeng chargeait. Une épée rouge émet
 
 Derrière lui, certains cultivateurs qui ne furent pas opprimés par l'intention de combat chargeaient également vers Wang Lin !
 
-Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa main droite et son énergie originelle jaillit comme une tempête. Sa culture de stade initial de Nirvana Scryer s'échappa de son corps et balaya la zone !
+Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa main droite et son énergie originelle jaillit comme une tempête. Sa cultivation de stade initial de Nirvana Scryer s'échappa de son corps et balaya la zone !
 
 Alors que son énergie se répandait avec fureur, les yeux de Tang Yanfeng révélèrent une trace de terreur. Il n'aurait jamais imaginé que l'homme devant lui ait déjà franchi le stade Corporeal Yang pour atteindre celui de Nirvana Scryer !
 
@@ -100,7 +100,7 @@ Tang Yanfeng poussa un cri d'incrédulité lorsque les deux doigts de Wang Lin f
 
 Alors que les explosions retentissaient, les deux doigts de Wang Lin ne s'arrêtèrent pas et frappèrent directement la poitrine de Tang Yanfeng. Un choc brutal retentit, puis Tang Yanfeng cracha du sang et fut projeté en arrière. Des craquements sinistres résonnèrent dans son corps alors que le tonnerre explosait en lui. Son âme originelle fut blessée et il fut expulsé au loin.
 
-Tout cela se produisit en un instant, avec une rapidité inimaginable. Avec sa culture de stade initial de Nirvana Scryer, repousser un cultivateur au sommet du stade Corporeal Yang ne lui demanda aucun effort. S'il avait eu l'intention de le tuer, Tang Yanfeng serait mort !
+Tout cela se produisit en un instant, avec une rapidité inimaginable. Avec sa cultivation de stade initial de Nirvana Scryer, repousser un cultivateur au sommet du stade Corporeal Yang ne lui demanda aucun effort. S'il avait eu l'intention de le tuer, Tang Yanfeng serait mort !
 
 Il retira ses doigts, puis son troisième œil s'ouvrit et un rayon de lumière jaillit. Wang Lin se tourna vers tous les cultivateurs qui avaient suivi Tang Yanfeng. Leurs expressions changèrent tandis que leurs sorts se transformaient brusquement en énergie originelle brute. Tous crachèrent du sang et furent repoussés !
 

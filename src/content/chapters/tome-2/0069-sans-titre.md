@@ -44,7 +44,7 @@ Situ Nan répondit lentement : « Ce petit bébé n'est pas encore mort, mais il
 
 Les yeux de Wang Lin s'illuminèrent. Après une courte réflexion, il dit : « Vous avez mentionné précédemment que vous m'enseigneriez une technique de marionnette. Enseignez-la-moi maintenant. »
 
-Situ Nan éclata de rire, ravi de la tournure des événements. Il n'avait pas précisé la nature de cette technique ni son origine. En réalité, il s'agissait d'une technique démoniaque. Il estimait que Wang Lin manquait d'intention meurtrière ; et sans elle, même avec dix vies, il ne pourrait survivre dans le monde de la culture. Situ Nan s'efforçait de changer la nature profonde de Wang Lin, et il semblait enfin porter ses fruits.
+Situ Nan éclata de rire, ravi de la tournure des événements. Il n'avait pas précisé la nature de cette technique ni son origine. En réalité, il s'agissait d'une technique démoniaque. Il estimait que Wang Lin manquait d'intention meurtrière ; et sans elle, même avec dix vies, il ne pourrait survivre dans le monde de la cultivation. Situ Nan s'efforçait de changer la nature profonde de Wang Lin, et il semblait enfin porter ses fruits.
 
 Situ Nan était enchanté : « Cette technique de marionnette doit être exécutée par toi. Je t'expliquerai comment procéder une fois que tu auras trouvé une grotte isolée », dit-il joyeusement.
 

@@ -34,7 +34,7 @@ Sa fierté et son arrogance étaient inscrites dans ses os !
 
 « L'héritage de la mémoire de Tu Si... Une fois complet, se réveillera-t-il ? Disparaîtras-tu ? Je l'ignore... » Wang Lin n'avait pris qu'une partie de l'héritage de l'Ordre Antique, mais il était unique. Personne d'autre que lui ne pourrait plus l'obtenir.
 
-Si un jour la culture de Wang Lin atteignait un stade lui permettant d'en supporter davantage, il reviendrait pour continuer... Après avoir prononcé ces dernières paroles, Wang Lin agita la main. Ling Dong et Zhou Jin, stupéfaits par ce qu'ils venaient de voir, furent rangés dans le Fourneau Impérial par Wang Lin. Il mit également le corps du démon ancien dans son espace de stockage.
+Si un jour la cultivation de Wang Lin atteignait un stade lui permettant d'en supporter davantage, il reviendrait pour continuer... Après avoir prononcé ces dernières paroles, Wang Lin agita la main. Ling Dong et Zhou Jin, stupéfaits par ce qu'ils venaient de voir, furent rangés dans le Fourneau Impérial par Wang Lin. Il mit également le corps du démon ancien dans son espace de stockage.
 
 Il rangea les Feuilles Antiques, l'épée de sang et le reste de ses biens. Ayant obtenu une partie de l'héritage, Wang Lin maîtrisait désormais la première couche de la tombe mieux que quiconque. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à quitter le palais.
 
@@ -122,6 +122,6 @@ Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à Allheaven. 
 
 Dès son apparition, une aura terrifiante jaillit de son corps, se transformant en une pression qui balaya tout Allheaven. Cette puissance était telle qu'elle fit trembler chaque être vivant !
 
-Maître Lu Fu fut le premier à ressentir cet impact ! Il fut arraché à sa culture !
+Maître Lu Fu fut le premier à ressentir cet impact ! Il fut arraché à sa cultivation !
 
 « Ce n'est pas le Royaume Extérieur, mais Allheaven dans le Royaume Intérieur... Il est temps de rentrer à la maison... » La silhouette blanche songea un instant, puis esquissa un sourire.

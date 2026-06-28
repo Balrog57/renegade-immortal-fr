@@ -18,11 +18,11 @@ La propagande de Li Shan séduisit nombre de disciples de la secte intérieure, 
 
 Le regard de Li Shan se tourna vers Wang Lin, au loin. Il savait que ce dernier était considéré comme un rebut au sein de la Secte Heng Yue. Les gens de sa trempe étaient les clients idéaux pour Li Shan. Il avait déjà liquidé tous les moins-que-rien de la Secte Xuan Dao ; ainsi, en voyant Wang Lin, il poursuivit avec enthousiasme :
 
-« Cette bombe est particulièrement utile pour les frères ayant une culture inférieure. Avec cette bombe fétide à portée de main, qui oserait encore vous intimider ? Si quelqu'un ose vous malmener, lancez-lui une bombe ! Moi, Li Shan, je vous le promets : vous pourrez marcher la tête haute dans la secte sans que personne n'ose plus vous importuner. »
+« Cette bombe est particulièrement utile pour les frères ayant une cultivation inférieure. Avec cette bombe fétide à portée de main, qui oserait encore vous intimider ? Si quelqu'un ose vous malmener, lancez-lui une bombe ! Moi, Li Shan, je vous le promets : vous pourrez marcher la tête haute dans la secte sans que personne n'ose plus vous importuner. »
 
 En disant cela, Li Shan riait intérieurement. L'idée que personne n'oserait l'importuner était impossible ; il risquait plutôt de s'attirer une bonne correction.
 
-Voyant qu'il avait presque convaincu la foule, Li Shan pressa le pas pour conclure la vente : « Cette bombe fétide est un excellent moyen de défense pour ceux dont la culture est faible. Aujourd'hui, je fais une promotion : achetez-en deux, et la troisième est offerte ! Considérez cela comme un cadeau de ma part. Lorsque nous nous reverrons dans le monde de la culture, n'oubliez pas de prendre soin de moi ! »
+Voyant qu'il avait presque convaincu la foule, Li Shan pressa le pas pour conclure la vente : « Cette bombe fétide est un excellent moyen de défense pour ceux dont la cultivation est faible. Aujourd'hui, je fais une promotion : achetez-en deux, et la troisième est offerte ! Considérez cela comme un cadeau de ma part. Lorsque nous nous reverrons dans le monde de la cultivation, n'oubliez pas de prendre soin de moi ! »
 
 Parmi les disciples séduits par ses paroles, l'un demanda : « Cet article est-il vraiment aussi incroyable que vous le prétendez ? Sortez-en quelques-uns et laissez-moi en tester une au hasard. Si c'est aussi efficace, j'en achèterai plusieurs pour m'amuser. »
 
@@ -52,7 +52,7 @@ Cependant, de nombreux disciples restaient prudents et n'achetaient rien.
 
 Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant : *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de l'échange dans trois jours, vous aurez simplement été arnaqués par moi ; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même avec un marteau ! J'ai hâte d'être à l'échange dans trois jours. »*
 
-Son regard balaya les environs et il remarqua le léger sourire de Wang Lin. Il fut stupéfait. Ses yeux s'écarquillèrent et il dit : « Frère, pourquoi n'en achèteriez-vous pas quelques-unes pour vous amuser ? Avec votre niveau de culture, elles vous conviendraient à merveille. Si quelqu'un vous importune, lancez-lui simplement une bombe ! »
+Son regard balaya les environs et il remarqua le léger sourire de Wang Lin. Il fut stupéfait. Ses yeux s'écarquillèrent et il dit : « Frère, pourquoi n'en achèteriez-vous pas quelques-unes pour vous amuser ? Avec votre niveau de cultivation, elles vous conviendraient à merveille. Si quelqu'un vous importune, lancez-lui simplement une bombe ! »
 
 Wang Lin regarda Li Shan avec une expression moqueuse.
 

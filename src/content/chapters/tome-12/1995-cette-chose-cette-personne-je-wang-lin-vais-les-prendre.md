@@ -28,7 +28,7 @@ Lorsque la main droite de l'Empereur Céleste s'abattit sur la tête, des fissur
 
 Alors que cette brume dorée se répandait, l'Empereur Céleste ouvrit grand la bouche et commença à l'inhaler frénétiquement.
 
-S'il parvenait à absorber toute cette fumée, il pourrait hériter de la culture de l'Ancêtre Céleste. Il pourrait même inverser les dommages causés par la malédiction ancestrale lors de la fracture de la tête !
+S'il parvenait à absorber toute cette fumée, il pourrait hériter de la cultivation de l'Ancêtre Céleste. Il pourrait même inverser les dommages causés par la malédiction ancestrale lors de la fracture de la tête !
 
 Son coup n'avait pas seulement fissuré la tête, il avait également brisé le sceau de Hai Zi. Bien que la structure soit endommagée, l'Empereur Céleste pouvait désormais s'emparer de l'héritage par la force !
 
@@ -74,15 +74,15 @@ La tête de l'Ancêtre Céleste n'aurait pas dû être si fragile, mais le choc 
 
 En conséquence, la force destructrice de l'autodestruction combinée aux contre-attaques de Jiu Di et de ses compagnons frappa de plein fouet la tête de l'Ancêtre Céleste, provoquant son craquement final.
 
-À mesure que la fissure s'étendait, c'était comme si les quatre d'entre eux violaient simultanément la malédiction ancestrale. Dao Yi, possédant la culture la plus faible, poussa un cri déchirant. Des nuées de gaz noirs l'enveloppèrent et son beau visage commença à se décomposer rapidement.
+À mesure que la fissure s'étendait, c'était comme si les quatre d'entre eux violaient simultanément la malédiction ancestrale. Dao Yi, possédant la cultivation la plus faible, poussa un cri déchirant. Des nuées de gaz noirs l'enveloppèrent et son beau visage commença à se décomposer rapidement.
 
 Wu Feng laissa échapper un gémissement étouffé tandis que son corps, entouré de fumée noire, entrait lui aussi en décomposition.
 
-Jiu Di, doté du niveau de culture le plus élevé, vit la malédiction se répartir entre les quatre. Grâce à sa puissance, il parvint à résister ; des runes étranges apparurent sur son corps, offrant un spectacle saisissant !
+Jiu Di, doté du niveau de cultivation le plus élevé, vit la malédiction se répartir entre les quatre. Grâce à sa puissance, il parvint à résister ; des runes étranges apparurent sur son corps, offrant un spectacle saisissant !
 
 L'Empereur Céleste n'ayant fait exploser que sa chair, son âme demeurait intacte. Tandis que le crâne se fendillait, son âme, en pleine dissipation, se précipita vers la tête. Il visait l'œil gauche, là où se trouvait Lian Daofei !
 
-« Je suis l'Empereur Céleste — ma sagesse surpasse celle des mortels ; comment aurais-je pu ne pas prévoir de secours ? Dao Fei est mon ultime recours ! Je prendrai le contrôle de son corps pour qu'il m'aide à porter le fardeau de la malédiction ancestrale. Il a lui aussi hérité d'une partie de la culture de l'Ancêtre Céleste, je peux encore renverser la situation ! » L'âme de l'Empereur Céleste brûlait, et alors que les trois autres luttaient contre la malédiction, il fonça vers l'œil gauche de la tête brisée.
+« Je suis l'Empereur Céleste — ma sagesse surpasse celle des mortels ; comment aurais-je pu ne pas prévoir de secours ? Dao Fei est mon ultime recours ! Je prendrai le contrôle de son corps pour qu'il m'aide à porter le fardeau de la malédiction ancestrale. Il a lui aussi hérité d'une partie de la cultivation de l'Ancêtre Céleste, je peux encore renverser la situation ! » L'âme de l'Empereur Céleste brûlait, et alors que les trois autres luttaient contre la malédiction, il fonça vers l'œil gauche de la tête brisée.
 
 Cependant, au moment même où son âme atteignait l'œil gauche et s'apprêtait à s'engouffrer dans le corps de Lian Daofei, un changement stupéfiant se produisit !
 

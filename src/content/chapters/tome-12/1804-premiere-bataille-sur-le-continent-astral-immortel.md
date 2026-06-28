@@ -16,7 +16,7 @@ Il possédait déjà une essence et se trouvait au stade avancé du Vide Spiritu
 
 « Quel genre de cadavre est-ce là ?! » L'expression de l'homme d'âge moyen devint sombre alors qu'il fixait Kang Ren, qui restait pétrifié par la peur. Il laissa échapper un reniflement froid et s'avança vers le feu.
 
-Sachant qu'il possédait lui-même un haut niveau de culture et ne ressentant aucune aura trop puissante provenant de l'individu dans les flammes, il chargea vers le brasier.
+Sachant qu'il possédait lui-même un haut niveau de cultivation et ne ressentant aucune aura trop puissante provenant de l'individu dans les flammes, il chargea vers le brasier.
 
 N'étant pas loin du feu, il franchit la distance en une seule enjambée. Sa bulle protectrice entra en contact avec les flammes dans un bruit de craquement. Le feu sembla être repoussé, lui ouvrant ainsi un passage.
 
@@ -80,7 +80,7 @@ Tout en réfléchissant, Wang Lin absorba une grande quantité de feu terrestre 
 
 Il prit alors sa résolution. Sa main traça un sceau qu'il agita brusquement. La terre trembla et davantage de feu terrestre jaillit. Les flammes remplirent la grotte et certaines commencèrent même à s'en échapper.
 
-À l'extérieur, l'homme d'âge moyen vit cela. Ayant atteint un tel niveau de culture, il n'était pas stupide et comprit immédiatement l'intention de Wang Lin.
+À l'extérieur, l'homme d'âge moyen vit cela. Ayant atteint un tel niveau de cultivation, il n'était pas stupide et comprit immédiatement l'intention de Wang Lin.
 
 « Il va s'enfuir ! » L'expression de l'homme d'âge moyen devint sombre. Ce qui venait de se passer l'avait terrifié, mais ce qu'il craignait par-dessus tout, c'était la colère de l'Ancêtre à son retour !
 
@@ -90,7 +90,7 @@ Si l'Ancêtre s'emportait, il pourrait simplement le transformer en une statue d
 
 « Li Changtian, Sun Mengde, Han Xin, cet homme va s'enfuir ! Ne le laissez pas partir, sinon l'Ancêtre sera furieux, et vous en connaissez les conséquences ! Tous les disciples de la Secte du Dragon Bleu, interrompez la Formation de l'Eau Céleste et activez le Murmure du Dao ! » Tout en parlant, l'homme d'âge moyen réprima ses blessures et chargea. Derrière lui, le visage du vieil homme aux cheveux blancs changea également ; il serra les dents et s'élança à son tour.
 
-Simultanément, les deux dragons dans les nuages se tordirent pour reprendre une forme humaine, un homme et une femme. Pensant à la terreur que représentait l'Ancêtre, ils déployèrent toute leur puissance de culture pour charger vers la grotte en contrebas.
+Simultanément, les deux dragons dans les nuages se tordirent pour reprendre une forme humaine, un homme et une femme. Pensant à la terreur que représentait l'Ancêtre, ils déployèrent toute leur puissance de cultivation pour charger vers la grotte en contrebas.
 
 Les quatre Grands Anciens de la Secte du Dragon Bleu, quatre cultivateurs du troisième pas, allaient tenter d'empêcher Wang Lin de partir !
 

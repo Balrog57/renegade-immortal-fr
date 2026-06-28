@@ -22,7 +22,7 @@ Au moment même où la momie se retournait, l'attaque de Wang Lin l'atteignit. L
 
 Après avoir tué l'une d'elles, une multitude de momies se précipita vers lui.
 
-Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa culture au stade initial du Nirvana Scryer !
+Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa cultivation au stade initial du Nirvana Scryer !
 
 Cependant, à cet instant, Wang Lin réfléchissait à la manière d'en tirer le profit maximal ! Les tuer pour leur énergie d'origine céleste n'était qu'un de ses objectifs ; il avait une idée encore plus audacieuse en tête.
 
@@ -82,7 +82,7 @@ C'était comme la fin du monde. Les expressions de tous les cultivateurs de la p
 
 Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de cent cultivateurs voyageait dans l'espace, mené par le cultivateur aux six doigts.
 
-En mouvement, son expression changea brusquement et il fixa l'horizon. Grâce à sa culture, il pouvait vaguement sentir que la densité du tonnerre devant lui dépassait l'entendement.
+En mouvement, son expression changea brusquement et il fixa l'horizon. Grâce à sa cultivation, il pouvait vaguement sentir que la densité du tonnerre devant lui dépassait l'entendement.
 
 Il en eut le cuir chevelu engourdi. Son esprit ne put s'empêcher de se remémorer le moment où Xu Mu avait utilisé le « tonnerre en une ligne vers les cieux » pour tuer le garçon à la grosse tête.
 
@@ -112,7 +112,7 @@ Le corps du garçon à la grosse tête trembla. Le souvenir du sort qui l'avait 
 
 Ta Shan restait impassible, mais Lei Ji eut un haut-le-cœur. Le tonnerre devant lui l'avait bouleversé. Devenir la monture d'un être aussi puissant ne lui inspirait aucune rancœur ; au contraire, il ressentait un sentiment d'honneur.
 
-Le monde de la culture respecte les forts !
+Le monde de la cultivation respecte les forts !
 
 Au moment où la 18e couche fut ouverte par la force du tonnerre sur la planète Suzaku, le vieux cultivateur ressemblant à Huanglong fut saisi de stupeur. Il fit un pas et disparut.
 

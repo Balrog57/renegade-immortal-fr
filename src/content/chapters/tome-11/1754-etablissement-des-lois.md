@@ -20,25 +20,25 @@ Ce développement soudain surprit l'être céleste qui avait réussi à passer s
 
 Les yeux du Souverain, dissimulé, s'illuminèrent et il laissa échapper un ricanement.
 
-Faisant abstraction de cet incident pour un instant, le disciple de la Secte des Sept Dao qui avait traversé les ruines par chance entra dans le fourneau. C'était un vieil homme dont le niveau de culture n'était pas très élevé. Il vit la fleur géante devant lui ainsi que les 300 gouttes de rosée.
+Faisant abstraction de cet incident pour un instant, le disciple de la Secte des Sept Dao qui avait traversé les ruines par chance entra dans le fourneau. C'était un vieil homme dont le niveau de cultivation n'était pas très élevé. Il vit la fleur géante devant lui ainsi que les 300 gouttes de rosée.
 
 Les trois personnes entrées avant lui avaient déjà disparu. Il hésita et contempla la fleur durant un long moment avant de saisir une goutte de rosée et d'entrer lentement.
 
 Au moment où le vieil homme pénétra dans la goutte, Wang Lin, assis au sommet de la montagne, leva soudain les yeux vers le ciel.
 
-« Le premier est arrivé ! Malheureusement, son niveau de culture n'est pas élevé... Venir ici avec une culture aussi basse semble signifier que mon avertissement précédent a été ignoré. Il court à sa perte ! Utilisons-le pour expérimenter la loi que j'ai établie ici. » Un éclair de froideur traversa les yeux de Wang Lin. Son Sens Divin se déploya et localisa le vortex apparu dans le ciel.
+« Le premier est arrivé ! Malheureusement, son niveau de cultivation n'est pas élevé... Venir ici avec une cultivation aussi basse semble signifier que mon avertissement précédent a été ignoré. Il court à sa perte ! Utilisons-le pour expérimenter la loi que j'ai établie ici. » Un éclair de froideur traversa les yeux de Wang Lin. Son Sens Divin se déploya et localisa le vortex apparu dans le ciel.
 
 Le vortex continuait de pivoter tandis qu'une silhouette floue émergeait lentement. La forme se stabilisa rapidement et, dès qu'elle fut pleinement apparue, le vortex disparut.
 
-La silhouette était le vieil homme chanceux de la Secte des Sept Dao. Dès son apparition, il se montra vigilant et déploya son Sens Divin. Cependant, avec son niveau de culture, il fut incapable de détecter Wang Lin.
+La silhouette était le vieil homme chanceux de la Secte des Sept Dao. Dès son apparition, il se montra vigilant et déploya son Sens Divin. Cependant, avec son niveau de cultivation, il fut incapable de détecter Wang Lin.
 
 Il fronça les sourcils et hésita un instant. Il fit un pas, s'apprêtant à prendre son envol, mais son expression changea brusquement lors de ce mouvement. Son pied ne rencontra que le vide et il sombra rapidement.
 
-Ce changement soudain stupéfia totalement le vieil homme. Un instant plus tard, son visage fut empreint d'horreur : il avait perdu la capacité de voler. Même en déchaînant toute sa culture, il ne pouvait empêcher son corps de chuter !
+Ce changement soudain stupéfia totalement le vieil homme. Un instant plus tard, son visage fut empreint d'horreur : il avait perdu la capacité de voler. Même en déchaînant toute sa cultivation, il ne pouvait empêcher son corps de chuter !
 
 Au sommet de la montagne, les yeux de Wang Lin brillaient intensément.
 
-« C'est effectivement efficace ! Les mondes détruits sont fascinants ! Malheureusement, après avoir testé de nombreuses lois, seule celle qui empêche le vol a fonctionné. Elle ne peut affecter les trésors et, selon le niveau de culture de la cible, le délai d'application varie. » Wang Lin agita sa main droite et un éclat de lumière sanglante jaillit. L'épée de sang s'élança et disparut vers le vieil homme.
+« C'est effectivement efficace ! Les mondes détruits sont fascinants ! Malheureusement, après avoir testé de nombreuses lois, seule celle qui empêche le vol a fonctionné. Elle ne peut affecter les trésors et, selon le niveau de cultivation de la cible, le délai d'application varie. » Wang Lin agita sa main droite et un éclat de lumière sanglante jaillit. L'épée de sang s'élança et disparut vers le vieil homme.
 
 Grâce à la vélocité de l'épée et à la puissance du sort de Wang Lin, elle atteignit une vitesse de Déformation Spatiale. En un éclair, elle apparut sous le vieil homme.
 
@@ -90,7 +90,7 @@ Bientôt, le vortex disparut et l'identité des trois individus devint claire. U
 
 Les trois portaient des vêtements différents de ceux des habitants du monde des grottes. Leurs robes daoïstes étaient identiques à celles que portait le vieil homme précédemment. Il était évident qu'ils appartenaient à la Secte des Sept Dao !
 
-Leurs niveaux de culture divergeaient. L'un d'eux se trouvait au début du Nirvana Vide, tandis que les deux autres étaient encore au deuxième stade, au cinquième Fléau Céleste.
+Leurs niveaux de cultivation divergeaient. L'un d'eux se trouvait au début du Nirvana Vide, tandis que les deux autres étaient encore au deuxième stade, au cinquième Fléau Céleste.
 
 Dès que le vortex disparut et que les trois furent distinctement visibles, Wang Lin attaqua. L'épée de sang fonça en avant tandis que Wang Lin se rapprochait.
 

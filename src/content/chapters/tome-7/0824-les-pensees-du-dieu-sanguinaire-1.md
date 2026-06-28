@@ -72,7 +72,7 @@ Wang Lin n'avait jamais vu une épée volante d'une telle envergure. Elle dégag
 
 « Xu Mu, me rencontrer est ton malheur. Si tu avais croisé un autre membre de ma famille Yao, ils auraient peut-être accepté tes supplications. Mais devant moi, Yao Changdong, tes prières sont inutiles ! » Yao Changdong affichait une fierté extrême et songea : « Je dois en finir avant l'arrivée de Yao Bingyun. Sinon, cette femme glaciale me volera le mérite ! »
 
-Wang Lin gardait un calme olympien, le regard froid. Il avait déjà remarqué que les cultivateurs du Système Stellaire d'Allheaven étaient pétris d'orgueil, une caractéristique forgée par leur modèle de familles de culture. Cela tranchait radicalement avec les complots et les luttes incessantes du Système Stellaire de l'Alliance.
+Wang Lin gardait un calme olympien, le regard froid. Il avait déjà remarqué que les cultivateurs du Système Stellaire d'Allheaven étaient pétris d'orgueil, une caractéristique forgée par leur modèle de familles de cultivation. Cela tranchait radicalement avec les complots et les luttes incessantes du Système Stellaire de l'Alliance.
 
 Wang Lin hocha légèrement la tête et joignit ses mains comme pour s'exprimer. Pourtant, à cet instant, une énergie d'origine jaillit de sa bouche pour former une épée illusoire qui fonça vers Yao Changdong à une vitesse fulgurante.
 
@@ -134,4 +134,4 @@ Le Sceau Céleste fut chargé de toute l'énergie d'origine de Wang Lin et s'aba
 
 À cet instant, le sceau, le Coup Céleste, le coup de poing de Ta Shan et le Sceau Céleste convergèrent tous sur Yao Changdong. Lorsque le Sceau Céleste percuta sa cible, un fracas retentit à travers les étoiles.
 
-Le son fut si puissant que quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres put l'entendre, tel l'effondrement d'une planète de culture.
+Le son fut si puissant que quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres put l'entendre, tel l'effondrement d'une planète de cultivation.

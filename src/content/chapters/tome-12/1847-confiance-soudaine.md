@@ -98,7 +98,7 @@ L'Oiseau Vermillon laissa échapper un soupir, comme s'il avait quelque chose su
 
 Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la Mer des Pillules, une intention meurtrière brillant dans ses yeux.
 
-« Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte ! Void Cloud, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner ! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Void Cloud était très étrange ; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée !
+« Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte ! Void Cloud, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner ! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La cultivation de Void Cloud était très étrange ; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée !
 
 Wang Lin avait déjà extrait la Sens Divin de Yan Lu des deux trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance !
 

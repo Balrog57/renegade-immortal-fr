@@ -38,11 +38,11 @@ Wang Lin n'était pas du genre à tuer sans distinction. Parmi ces gens, deux in
 
 Il s'agissait de deux vieillards ; l'un portait du gris, l'autre du blanc.
 
-À cet instant, le cœur du vieil homme en robe grise était amer et il laissa échapper un soupir de regret. Cette fois, ils avaient provoqué une personne qu'ils n'auraient pas dû défier. Le fait que cet homme puisse annuler la force de recul de la formation d'un simple doigt signifiait que sa culture n'était pas faible.
+À cet instant, le cœur du vieil homme en robe grise était amer et il laissa échapper un soupir de regret. Cette fois, ils avaient provoqué une personne qu'ils n'auraient pas dû défier. Le fait que cet homme puisse annuler la force de recul de la formation d'un simple doigt signifiait que sa cultivation n'était pas faible.
 
 Quant au vieil homme en robe blanche, il était sous le choc. Son regard vers Wang Lin était empreint d'incrédulité.
 
-« Pourquoi un être aussi puissant apparaît-il dans cette terre de sauvages ? Son niveau de culture est à peu près le même que celui de l'Ancien du manoir du général. Je crains de ne pas être son égal... »
+« Pourquoi un être aussi puissant apparaît-il dans cette terre de sauvages ? Son niveau de cultivation est à peu près le même que celui de l'Ancien du manoir du général. Je crains de ne pas être son égal... »
 
 Le regard de Wang Lin restait impavide alors qu'il déclara lentement : « Qui m'a envoyé la lettre de défi ? Sortez ! »
 

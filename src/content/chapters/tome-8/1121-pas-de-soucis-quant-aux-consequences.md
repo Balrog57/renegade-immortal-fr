@@ -8,11 +8,11 @@ slug: pas-de-soucis-quant-aux-consequences
 ---
 Qing Lin regarda Wang Lin et dit lentement : « Le Maître a été gravement blessé à l'époque et a dû affronter Ta Jia et Bei Lou par la suite. Finalement, Ta Jia a envahi mon corps... »
 
-« Bien que je ne sois pas totalement impuissant, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
+« Bien que je ne sois pas totalement impuissant, j'ai besoin de me retirer en cultivation pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
 
 « Ce nouveau Royaume Céleste de la Pluie deviendra une terre pour mes disciples. La porte du Royaume Céleste de la Pluie a été scellée, personne d'autre ne pourra donc y pénétrer désormais. »
 
-« Si tu as des amis ou des proches, tu peux les amener ici pour vivre dans le Royaume Céleste de la Pluie. Une fois que la culture de ton Maître aura retrouvé son niveau, nous pourrons rendre au Royaume Céleste sa gloire d'antan ! » Tandis que Qing Lin parlait calmement, son regard croisa celui de Wang Lin.
+« Si tu as des amis ou des proches, tu peux les amener ici pour vivre dans le Royaume Céleste de la Pluie. Une fois que la cultivation de ton Maître aura retrouvé son niveau, nous pourrons rendre au Royaume Céleste sa gloire d'antan ! » Tandis que Qing Lin parlait calmement, son regard croisa celui de Wang Lin.
 
 Wang Lin réfléchit longuement et demanda doucement : « Le Maître connaît-il les dieux anciens... ? »
 
@@ -30,7 +30,7 @@ Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, e
 
 « La force d'une seule attaque... » Wang Lin esquissa un sourire amer en comprenant le sens des paroles de Qing Lin. Ce dernier était trop blessé et n'avait plus la puissance nécessaire que pour lancer une seule attaque. Bien que cet assaut puisse dissuader Tuo Sen, il ne pouvait pas être utilisé. Même si l'ennemi était forcé de reculer, l'avenir en deviendrait périlleux.
 
-Qing Lin réfléchit un instant et reprit lentement : « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver ma culture de pointe. Sinon, mon royaume scellé sera anéanti... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi ! »
+Qing Lin réfléchit un instant et reprit lentement : « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver ma cultivation de pointe. Sinon, mon royaume scellé sera anéanti... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi ! »
 
 Wang Lin secoua la tête, regarda Qing Lin et demanda : « Maître, quelle calamité le Royaume Céleste a-t-il subie à l'époque ? »
 
@@ -68,9 +68,9 @@ C'était comme si un marteau céleste lui avait frappé la poitrine ; le visage 
 
 Wang Lin prit une profonde inspiration en fixant Qing Lin. L'espoir dans ses yeux fut ravivé.
 
-« Le Maître a entendu dire que le Cercueil Évitant le Ciel apparut pour la première fois dans le Royaume Céleste de la Foudre et appartenait à l'Empereur Céleste Zi Xia. La culture de Zi Xia se situait juste en dessous de la mienne et au-dessus de celle de Bai Fan. Elle a peut-être survécu à l'effondrement du Royaume Céleste de la Foudre, ou elle a peut-être laissé des disciples derrière elle. Tu pourrais peut-être trouver l'incantation du Cercueil Évitant le Ciel auprès d'elle ! »
+« Le Maître a entendu dire que le Cercueil Évitant le Ciel apparut pour la première fois dans le Royaume Céleste de la Foudre et appartenait à l'Empereur Céleste Zi Xia. La cultivation de Zi Xia se situait juste en dessous de la mienne et au-dessus de celle de Bai Fan. Elle a peut-être survécu à l'effondrement du Royaume Céleste de la Foudre, ou elle a peut-être laissé des disciples derrière elle. Tu pourrais peut-être trouver l'incantation du Cercueil Évitant le Ciel auprès d'elle ! »
 
-« Même si tu ne parviens pas à la trouver, ce n'est pas grave. Une fois que ma culture sera rétablie, je t'aiderai sans faute ! »
+« Même si tu ne parviens pas à la trouver, ce n'est pas grave. Une fois que ma cultivation sera rétablie, je t'aiderai sans faute ! »
 
 Wang Lin se leva et joignit les mains. Il était déjà satisfait d'obtenir une telle réponse.
 

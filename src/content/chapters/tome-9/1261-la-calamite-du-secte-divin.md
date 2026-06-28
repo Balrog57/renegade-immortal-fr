@@ -80,7 +80,7 @@ En ce laps de temps, la sixième étoile entre ses sourcils commença à former 
 
 « Cela a permis à mon étoile de montrer des signes de récupération en un instant seulement... L'étoile utilisée pour forger cette épée pourrait-elle provenir d'un... d'un Ancien Dieu Royal de 9 étoiles ? » Wang Lin reposa sa tasse et réprima le choc dans son esprit.
 
-Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les quelque 100 000 cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant au Secte Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
+Sur une autre planète de cultivation, sur ordre de Feng Hai et des autres Anciens, les quelque 100 000 cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant au Secte Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
 
 Simultanément, une puissante formation s'activa autour de la planète. Nul ne pouvait partir sans un jeton, bien que l'entrée fût libre.
 
@@ -88,7 +88,7 @@ Li Qianmei s'installa avec les membres du Secte Origine. Elle se tint dans la co
 
 Mu Bingmei restait silencieuse, seule à trois mille mètres de l'emplacement du Secte Origine. La lumière lunaire éclairait sa silhouette solitaire, lui donnant un air mélancolique. Elle mordilla sa lèvre inférieure, attendant Wang Lin comme Li Qianmei. Elle avait quelque chose à lui dire, quelque chose qu'elle se devait de lui dire...
 
-De la même manière, loin de la région de rang 8, au cœur de la région de rang 9 et enveloppée d'un brouillard dense, se trouvait une immense planète de culture. Un palais y dégageait une aura imposante, et à l'intérieur siégeait un garçon.
+De la même manière, loin de la région de rang 8, au cœur de la région de rang 9 et enveloppée d'un brouillard dense, se trouvait une immense planète de cultivation. Un palais y dégageait une aura imposante, et à l'intérieur siégeait un garçon.
 
 Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient et se fermaient en brillant d'un éclat singulier. Sept morceaux de jade flottaient devant lui, chacun portant un nom gravé. Sur le troisième jade, on pouvait lire : « Lu Zihao ! »
 
@@ -102,6 +102,6 @@ La main gauche du garçon s'avança et le feu pénétra étrangement dans sa pau
 
 Le garçon, qui était assis, se leva brusquement en voyant la vision. En se levant, six des sept jades gravés s'effondrèrent, à l'exception de celui portant le nom « Lu Zihao » !
 
-Une énergie source, similaire à celle du Maître Lu Fu d'Allheaven, jaillit du garçon et fit même trembler violemment le brouillard entourant la planète de culture !
+Une énergie source, similaire à celle du Maître Lu Fu d'Allheaven, jaillit du garçon et fit même trembler violemment le brouillard entourant la planète de cultivation !
 
 « C'est lui ! Même si nous devons tuer mille innocents, nous ne pouvons pas laisser passer un seul suspect ! »

@@ -38,7 +38,7 @@ Wang Lin afficha un visage perplexe et répondit rapidement : « Ancien, je ne v
 
 Sans lui laisser finir, l'Ancien Sun laissa échapper un rire colérique : « Tu oses encore jouer l'innocent avec moi ? Je te questionnais sur la gourde ! Elle semble avoir été récemment détachée de sa vigne. Wang Lin, je te donne une dernière chance de me dire où tu as obtenu cet objet, ou je t'expulse de la Secte Heng Yue dès aujourd'hui ! »
 
-Le visage de Wang Lin se mua en une expression de colère. Animé par un élan de révolte, il s'écria : « Et alors si je suis expulsé ? Ici, à la Secte Heng Yue, tout ce que j'ai fait, c'est puiser l'eau pour remplir ces dix cuves. Souvent, je passais plus d'une semaine sans pouvoir manger ! Si ce n'était pas pour les patates douces que ma mère m'a données, je serais déjà mort de faim. Ce n'est pas de la culture, c'est de la torture ! »
+Le visage de Wang Lin se mua en une expression de colère. Animé par un élan de révolte, il s'écria : « Et alors si je suis expulsé ? Ici, à la Secte Heng Yue, tout ce que j'ai fait, c'est puiser l'eau pour remplir ces dix cuves. Souvent, je passais plus d'une semaine sans pouvoir manger ! Si ce n'était pas pour les patates douces que ma mère m'a données, je serais déjà mort de faim. Ce n'est pas de la cultivation, c'est de la torture ! »
 
 « J'ai dû redoubler d'efforts pour sortir cette gourde de la rivière. Si elle vous intéresse, prenez-la, tout simplement ! Pourquoi dire que je mens ? Et quel est le rapport avec la vigne ? Quelqu'un a pu la détacher et la jeter à l'eau. Vous me questionnez, mais à qui dois-je poser la question, moi ? »
 
@@ -56,7 +56,7 @@ Refoulant sa colère, il tonna : « Très bien ! Je t'accepte comme disciple. Je
 
 Une fois l'Ancien parti, le visage de Wang Lin s'assombrit. Il ricana intérieurement : « Ce vieux renard a des intentions cachées. En apparence, il m'accepte comme disciple, mais en réalité, il ne convoite que d'autres gourdes. »
 
-Wang Lin médita un instant, puis eut un petit rire. Il n'avait qu'à lui fournir quelques gourdes ; la montagne en regorgeait. Il lui suffisait d'en faire tremper certaines dans l'eau avec la perle. Désormais qu'il avait l'opportunité de devenir un disciple interne, il devait saisir cette chance pour pratiquer sa culture sérieusement.
+Wang Lin médita un instant, puis eut un petit rire. Il n'avait qu'à lui fournir quelques gourdes ; la montagne en regorgeait. Il lui suffisait d'en faire tremper certaines dans l'eau avec la perle. Désormais qu'il avait l'opportunité de devenir un disciple interne, il devait saisir cette chance pour pratiquer sa cultivation sérieusement.
 
 Excité par cette perspective, il fit ses bagages et laissa une bonne réserve de patates douces pour Zhang Hu, avant de se diriger vers la cour de l'Ancien Sun.
 

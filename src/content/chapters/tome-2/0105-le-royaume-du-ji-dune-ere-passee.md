@@ -16,9 +16,9 @@ Pourtant, un cultivateur du stade avancé de l'Âme Naissante doté du Royaume d
 
 Si cela n'était là que tout, le Royaume du Ji ne serait pas considéré comme aussi terrifiant. Ce qui est véritablement effrayant, c'est qu'aux temps anciens, lorsqu'un cultivateur de la Transformation de l'Âme traversait ses épreuves, on découvrit qu'il possédait le Royaume du Ji.
 
-Cette nouvelle provoqua un choc immense dans le monde antique de la culture et les plongea tous dans la terreur.
+Cette nouvelle provoqua un choc immense dans le monde antique de la cultivation et les plongea tous dans la terreur.
 
-Il faut dire que ce cultivateur ravagea le monde de la culture pendant trois mille ans. Durant ces trois millénaires, il régna tel un monarque sur l'univers des cultivateurs. Quiconque l'irritait voyait sa famille et sa secte être purement et simplement anéanties.
+Il faut dire que ce cultivateur ravagea le monde de la cultivation pendant trois mille ans. Durant ces trois millénaires, il régna tel un monarque sur l'univers des cultivateurs. Quiconque l'irritait voyait sa famille et sa secte être purement et simplement anéanties.
 
 En ces trois mille années, le simple fait de prononcer son nom suffisait à faire frissonner les plus braves.
 
@@ -26,7 +26,7 @@ Le Royaume du Ji est une existence défiant les cieux. Non seulement il rend inv
 
 C'est pourquoi, chaque fois qu'un cultivateur du Royaume du Ji surgit, il est traqué par tous les autres. Le monde antique considérait le Royaume du Ji comme une anomalie défiant véritablement l'ordre céleste.
 
-Si la voie de la culture démoniaque est comparée à une bête féroce, face au Royaume du Ji, elle n'est qu'un animal domestique apprivoisé.
+Si la voie de la cultivation démoniaque est comparée à une bête féroce, face au Royaume du Ji, elle n'est qu'un animal domestique apprivoisé.
 
 En réalité, dans les temps anciens, l'étude du Royaume du Ji ne s'interrompit jamais, mais on n'en aboutit finalement qu'à une compréhension superficielle.
 
@@ -34,21 +34,21 @@ Heureusement, une seule personne sembla capable de briser la limite de la Sépar
 
 La plupart des archives concernant le Royaume du Ji se sont perdues au fil des âges. De nos jours, nul ne sait comment ce royaume est apparu ni comment l'obtenir.
 
-On ne trouve que quelques descriptions dans les bibliothèques des très grandes sectes des pays de culture de haut rang.
+On ne trouve que quelques descriptions dans les bibliothèques des très grandes sectes des pays de cultivation de haut rang.
 
-À une certaine époque de l'Antiquité, un génie de la culture naquit dans le pays de Gu Nie. À l'âge de dix ans, il avait déjà atteint le stade de la Formation du Noyau, avant que sa secte ne soit anéantie par d'autres clans. Cinq ans plus tard, un cultivateur mystérieux apparut et, en l'espace d'un mois, il massacra plus de dix mille cultivateurs. Le ciel fut couvert de sang. Avec une culture n'atteignant que le stade avancé de l'Âme Naissante, non seulement il pouvait aisément tuer ses pairs, mais il était même capable d'éliminer des experts de la Séparation de l'Esprit. Finalement, les sectes orthodoxes et démoniaques unirent leurs forces pour envoyer un expert de la Transformation de l'Âme qui finit par l'abattre.
+À une certaine époque de l'Antiquité, un génie de la cultivation naquit dans le pays de Gu Nie. À l'âge de dix ans, il avait déjà atteint le stade de la Formation du Noyau, avant que sa secte ne soit anéantie par d'autres clans. Cinq ans plus tard, un cultivateur mystérieux apparut et, en l'espace d'un mois, il massacra plus de dix mille cultivateurs. Le ciel fut couvert de sang. Avec une cultivation n'atteignant que le stade avancé de l'Âme Naissante, non seulement il pouvait aisément tuer ses pairs, mais il était même capable d'éliminer des experts de la Séparation de l'Esprit. Finalement, les sectes orthodoxes et démoniaques unirent leurs forces pour envoyer un expert de la Transformation de l'Âme qui finit par l'abattre.
 
 Dans les temps anciens, le pays de Clear Water fut détruit et le roi du pays intégra une secte. Trente ans plus tard, il en sortit pour entamer un carnage sans précédent contre tous les cultivateurs. Peu importait qu'ils fussent hommes ou femmes, jeunes ou vieux, il les massacrait tous. En seulement sept jours, il ne restait plus aucun cultivateur dans le pays de Clear Water. Même sa propre secte ne put y échapper.
 
-Le sang teignit le sol de Clear Water en rouge pourpre. Alors que les pays de culture supérieure préparaient des experts pour l'éliminer, le sang de Clear Water se mit à bouillir. Utilisant ce sang pour terrasser ses ennemis, le roi disparut dans le chaos. Certains prétendent qu'il subit une rétribution divine...
+Le sang teignit le sol de Clear Water en rouge pourpre. Alors que les pays de cultivation supérieure préparaient des experts pour l'éliminer, le sang de Clear Water se mit à bouillir. Utilisant ce sang pour terrasser ses ennemis, le roi disparut dans le chaos. Certains prétendent qu'il subit une rétribution divine...
 
 Tous ces récits partagent un point commun : tous ces cultivateurs possédaient le Royaume du Ji.
 
 Quant à la manière dont ils l'avaient obtenu, nul ne le savait. Certains pensaient qu'ils avaient subi une mutation, d'autres croyaient qu'ils détenaient tous le même trésor magique. Grâce à l'héritage de ce trésor, quiconque en serait le possesseur obtiendrait le Royaume du Ji.
 
-De multiples spéculations circulèrent, mais avec la disparition du monde antique de la culture, ces rumeurs s'éteignirent également.
+De multiples spéculations circulèrent, mais avec la disparition du monde antique de la cultivation, ces rumeurs s'éteignirent également.
 
-Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 que fut Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée de Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume du Ji.
+Nul ne savait qu'en cet instant précis, dans le pays de cultivation de rang 3 que fut Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée de Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume du Ji.
 
 Si Teng Huayuan l'avait su, il n'aurait jamais accepté d'être le catalyseur de la naissance d'un cultivateur du Royaume du Ji.
 
@@ -96,7 +96,7 @@ Cette scène interrompit tous les combats. Les spectateurs fixaient avec stupeur
 
 La surprise fut générale. Avant que quiconque ne puisse réagir, Wang Lin était déjà devant eux. Quatre personnes se dressaient sur son chemin. Avant qu'elles ne puissent dire un mot, une lumière bleue les frappa et elles se figèrent, suivant le sort de l'homme au talisman.
 
-À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains : « De quelle secte venez-vous, cher compagnon de culture ? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
+À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains : « De quelle secte venez-vous, cher compagnon de cultivation ? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
 
 Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de cent mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement : « Tu as tué mon frère apprenti. Je ne t'oublierai pas ! »
 

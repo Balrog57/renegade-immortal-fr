@@ -48,7 +48,7 @@ Alors que les débris volaient, deux gémissements déchirants retentirent. Une 
 
 « Le douzième épéiste du Secte de l'Épée Da Lou, Mo Yang, souhaite saluer le Seigneur Mo Lihai ! »
 
-Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture de porte close.
+Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine cultivation de porte close.
 
 D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quiconque s'approchait à moins de dix pieds de cet homme se transformait silencieusement en un brouillard sanglant.
 
@@ -106,11 +106,11 @@ Le regard du membre du Secte de l'Épée Da Lou se glaça. En tant que l'une des
 
 Pourtant, il était totalement ignoré par cet individu. L'homme laissa échapper un grognement froid, disparut pour réapparaître devant Wang Lin et lança d'un ton glacial : « Wang... »
 
-Sans attendre la fin de sa phrase, Wang Lin leva la tête et dit : « Pour un cultivateur à s'en énerver si facilement, vos mille ans de culture sont une immense déception ! »
+Sans attendre la fin de sa phrase, Wang Lin leva la tête et dit : « Pour un cultivateur à s'en énerver si facilement, vos mille ans de cultivation sont une immense déception ! »
 
 Si cela avait été proféré par quelqu'un de la génération de l'Omniscient, l'homme l'aurait humblement accepté, mais l'entendre de la bouche de Wang Lin était extrêmement irritant.
 
-Il rit de rage, ses yeux devenant plus froids encore : « Je veux voir ce que tu as réussi à accomplir en tes mille ans de culture ! »
+Il rit de rage, ses yeux devenant plus froids encore : « Je veux voir ce que tu as réussi à accomplir en tes mille ans de cultivation ! »
 
 Wang Lin secoua la tête et dit calmement : « Écarte-toi. »
 
@@ -118,7 +118,7 @@ L'homme du Secte de l'Épée Da Lou rit, forma un sceau de la main et un rayon d
 
 L'expression de Wang Lin restait sereine ; il ne daigna même pas regarder les soixante-quatre rayons. L'énergie d'épée s'abattit sur lui, mais à cet instant, une lueur émana des sceaux de la vie. Les rayons de l'épée entrèrent en collision avec les sceaux et disparurent totalement.
 
-« Est-ce là tout ton pouvoir ? Il semble que tes mille ans de culture ne soient pas seulement une déception, mais un pur gaspillage ! » Wang Lin secoua la tête.
+« Est-ce là tout ton pouvoir ? Il semble que tes mille ans de cultivation ne soient pas seulement une déception, mais un pur gaspillage ! » Wang Lin secoua la tête.
 
 Le visage de l'homme changea radicalement, empreint d'incrédulité. Bien que ces soixante-quatre rayons ne constituent pas son attaque la plus puissante, ce n'était pas un sort faible pour autant. Voir Wang Lin les repousser si aisément ébranla profondément son cœur.
 
@@ -128,7 +128,7 @@ Alors que Wang Lin continuait de marcher, l'homme du Secte de l'Épée Da Lou re
 
 Wang Lin fronça les sourcils, le regarda froidement et dit : « Dégage ! Puisque tu es venu aujourd'hui pour remettre la lettre de défi, je ne te tuerai pas ! »
 
-« Tu n'es qu'au sommet du stade avancé de la Transformation de l'Âme, un niveau de culture identique au mien. Même si ton sort est puissant, rien ne te permettra de résister à cette épée ! » Les yeux de l'homme devinrent sérieux. Ne perdant plus de temps en paroles, il fit bouger sa main droite et l'épée précieuse dans son dos s'envola.
+« Tu n'es qu'au sommet du stade avancé de la Transformation de l'Âme, un niveau de cultivation identique au mien. Même si ton sort est puissant, rien ne te permettra de résister à cette épée ! » Les yeux de l'homme devinrent sérieux. Ne perdant plus de temps en paroles, il fit bouger sa main droite et l'épée précieuse dans son dos s'envola.
 
 *Rumble rumble rumble !*
 

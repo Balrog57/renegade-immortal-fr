@@ -106,7 +106,7 @@ Il apparut à l'extérieur de la vallée Jue Ming. Sans perdre un instant, il s'
 
 Un mois plus tard, Wang Lin sortit d'un réseau de transfert loin de Zhao.
 
-Il marmonna : « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade de Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le premier cultivateur de Suzaku, il doit donc connaître le cristal planétaire de culture. Il devrait pouvoir m'aider à obtenir ce trésor. »
+Il marmonna : « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade de Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le premier cultivateur de Suzaku, il doit donc connaître le cristal planétaire de cultivation. Il devrait pouvoir m'aider à obtenir ce trésor. »
 
 « Reste à savoir si je pourrai également ressusciter maman et papa une fois que j'aurai atteint la Transformation de l'Âme... mais mon domaine est celui de la vie et de la mort. Plus je comprends le cycle de la réincarnation, plus je réalise à quel point il est difficile de s'y opposer. Cet objectif de ressusciter mes parents sera extrêmement ardu... » Wang Lin poussa un soupir.
 

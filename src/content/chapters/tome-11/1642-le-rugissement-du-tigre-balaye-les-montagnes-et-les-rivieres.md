@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1642 - Tiger Roar Sweeps the Mountains and Rivers
 slug: le-rugissement-du-tigre-balaye-les-montagnes-et-les-rivieres
 ---
-Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison des lois régissant ce processus, il ne pouvait utiliser une culture dépassant le stade initial du Vide Arcane. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
+Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison des lois régissant ce processus, il ne pouvait utiliser une cultivation dépassant le stade initial du Vide Arcane. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
 
 Il pensait initialement que cette puissance serait suffisante pour tuer Wang Lin.
 
@@ -18,7 +18,7 @@ Il était un être céleste et, à ses yeux, peu importe la puissance de Wang Li
 
 Il n'était pas seulement en colère contre Wang Lin, mais surtout contre lui-même pour avoir ressenti cette crainte. Il ne pouvait concevoir qu'il ait pu craindre une simple fourmi d'un royaume inférieur !
 
-Dans un rugissement, les yeux du vieil homme au Tigre Blanc libérèrent une lumière blanche. Cette clarté contenait une aura extrêmement puissante et dominante, issue de sa méthode de culture : c'était le pouvoir de la farouche étoile du Tigre Blanc.
+Dans un rugissement, les yeux du vieil homme au Tigre Blanc libérèrent une lumière blanche. Cette clarté contenait une aura extrêmement puissante et dominante, issue de sa méthode de cultivation : c'était le pouvoir de la farouche étoile du Tigre Blanc.
 
 Tout en rugissant, le vieil homme fit un pas en avant et chargea vers Wang Lin. Sa main droite traça un sceau alors qu'il pointait vers le ciel dans un cri puissant.
 
@@ -42,7 +42,7 @@ Seul subsistait le rugissement violent du tigre, qui devenait de plus en plus as
 
 Les oreilles de Wang Lin bourdonnaient alors qu'il flottait dans les airs. Le ciel au-dessus de lui se désintégrait et la terre sous ses pieds s'effondrait. Son corps entier était enveloppé par le rugissement du Tigre Blanc. Le vent faisait battre ses cheveux et ses vêtements, tentant de mettre son corps en pièces.
 
-S'il n'avait pas possédé le corps d'un Dieu Ancien, sa forme physique se serait effondrée malgré sa culture au milieu du stade du Vide Spirituel. Et après l'effondrement de son corps, son âme originelle aurait été gravement blessée.
+S'il n'avait pas possédé le corps d'un Dieu Ancien, sa forme physique se serait effondrée malgré sa cultivation au milieu du stade du Vide Spirituel. Et après l'effondrement de son corps, son âme originelle aurait été gravement blessée.
 
 Ce rugissement de tigre contenait une pression qui n'avait rien à envier à la puissance des cieux. Aux yeux de Wang Lin, cette force avait brisé toute limite et semblait capable de dévorer toute forme de vie !
 

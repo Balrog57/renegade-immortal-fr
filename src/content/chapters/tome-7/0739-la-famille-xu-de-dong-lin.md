@@ -18,9 +18,9 @@ Wang Lin restait debout sur la terre ferme, levant calmement les yeux vers le ci
 
 Alors que le fantôme démoniaque approchait, le jeune homme au sommet baissa les yeux vers Wang Lin et lâcha froidement : « Tu cherches la mort ! » Sans bouger, il fit converger la pluie environnante qui se condensa rapidement pour jaillir vers lui. La pluie prit la forme de flèches perçant l'air, fonçant sur Wang Lin dans un étrange sifflement.
 
-Le jeune homme se trouvait au stade Illusoire Yin, et il était évident qu'il n'était pas novice en matière de culture. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
+Le jeune homme se trouvait au stade Illusoire Yin, et il était évident qu'il n'était pas novice en matière de cultivation. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
 
-Sa culture pouvait rivaliser avec celle du Daoïste du Tonnerre, et ses sorts démoniaques le rendaient encore plus redoutable. Même le Daoïste du Tonnerre n'aurait pas nécessairement l'avantage contre lui.
+Sa cultivation pouvait rivaliser avec celle du Daoïste du Tonnerre, et ses sorts démoniaques le rendaient encore plus redoutable. Même le Daoïste du Tonnerre n'aurait pas nécessairement l'avantage contre lui.
 
 Les flèches de pluie étaient imprégnées d'une intention meurtrière féroce. Le regard de Wang Lin se fit glacial et il recula de quelques pas. Sa main s'élança et des éclats de tonnerre explosèrent. Simultanément, des sphères de foudre apparurent, chacune reliée aux autres par des arcs électriques.
 
@@ -78,7 +78,7 @@ Aux yeux du jeune homme, ce fut comme si Wang Lin s'était divisé en deux. Le c
 
 Un coup de poing fut décoché !
 
-La culture de Wang Lin ayant atteint le sommet du stade tardif de l'Ascendant, il n'était plus aussi simple de discerner que la garde céleste se cachait dans son ombre.
+La cultivation de Wang Lin ayant atteint le sommet du stade tardif de l'Ascendant, il n'était plus aussi simple de discerner que la garde céleste se cachait dans son ombre.
 
 Tout cela se déroula en un laps de temps extrêmement court. La vitesse fut telle que le jeune homme n'eut même pas le temps de réfléchir. Il ne s'attendait pas à ce qu'un simple cultivateur au sommet du stade Ascendant puisse créer une sphère de tonnerre aussi puissante et invoquer l'âme d'une montagne. Ce qui le choqua le plus fut le coup de poing porté par la marionnette !
 
@@ -88,7 +88,7 @@ Ce coup représentait l'apogée de la puissance de la garde céleste ; un coup c
 
 L'enchaînement des événements le prit totalement au dépourvu. Entre l'attaque lente du début et la fulgurance qui suivit, le jeune homme ressentit une crise de vie ou de mort qu'il n'avait pas éprouvée depuis très longtemps. Il n'hésita pas à battre en retraite précipitamment, car ce coup lui fit frissonner les chairs.
 
-Il avait le sentiment que s'il ne reculait pas et qu'il subissait cet impact, même avec sa culture au stade Illusoire Yin, il mourrait sans aucun doute !
+Il avait le sentiment que s'il ne reculait pas et qu'il subissait cet impact, même avec sa cultivation au stade Illusoire Yin, il mourrait sans aucun doute !
 
 Alors que le jeune homme se repliait, le coup de poing de la garde céleste explosa. Sans hésiter, il se mordit la langue et cracha un sang d'essence chargé d'énergie originelle.
 

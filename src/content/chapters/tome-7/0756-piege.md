@@ -114,13 +114,13 @@ Il se leva ensuite, scruta l'horizon et se mit à réfléchir.
 
 Un instant plus tard, Li Yuan ouvrit lentement les yeux en expulsant une bouffée d'air vicié. Ses yeux révélèrent une pointe de terreur lorsqu'il demanda : « Frère Xu, qui est cette personne ?! »
 
-Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit : « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre de Sang. Sa culture est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
+Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit : « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre de Sang. Sa cultivation est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
 
-Li Yuan esquissa un sourire amer : « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que son niveau de culture ne dépasse le stade du Briseur Nirvana ; il se situe au moins au stade du Purificateur Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Allheaven... Comment avez-vous pu provoquer un tel être ? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
+Li Yuan esquissa un sourire amer : « Frère Xu, la cultivation de cet homme n'est pas une simple cultivation du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que son niveau de cultivation ne dépasse le stade du Briseur Nirvana ; il se situe au moins au stade du Purificateur Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Allheaven... Comment avez-vous pu provoquer un tel être ? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
 
 Wang Lin resta calme et répondit lentement : « Frère Li, cherchons d'abord la sortie. Nous pourrons discuter une fois en sécurité. »
 
-Li Yuan soupira. Après réflexion, il ajouta : « Bien que sa culture soit élevée, si nous ne le provoquons pas, il existe des moyens de l'éviter. Oublions cela, faisons comme vous dites et cherchons d'abord une issue. »
+Li Yuan soupira. Après réflexion, il ajouta : « Bien que sa cultivation soit élevée, si nous ne le provoquons pas, il existe des moyens de l'éviter. Oublions cela, faisons comme vous dites et cherchons d'abord une issue. »
 
 Sur ces mots, il se leva et inspecta les lieux.
 

@@ -60,7 +60,7 @@ En un instant, une quantité infinie d'énergie spirituelle jaillit de tout Chu 
 
 La demeure de pierre ne put supporter cette puissante énergie spirituelle ; des fissures commencèrent à se propager partout. Sous l'effet d'un souffle de vent, la maison de pierre se changea en poussière et disparut.
 
-Lu Fei et Tie Yan furent tirés de leur culture. Leurs expressions changèrent instantanément. À cet instant, le corps d'Ouyang Zi fut repoussé par une force douce et déposé devant eux.
+Lu Fei et Tie Yan furent tirés de leur cultivation. Leurs expressions changèrent instantanément. À cet instant, le corps d'Ouyang Zi fut repoussé par une force douce et déposé devant eux.
 
 La voix de Wang Lin parvint jusqu'à eux : « Prenez Ouyang Zi et attendez-moi dans la Secte du Ciel Nuageux ! »
 

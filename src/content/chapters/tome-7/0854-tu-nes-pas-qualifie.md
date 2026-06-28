@@ -46,7 +46,7 @@ Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il levait la main droi
 
 Ce sort le plus puissant, Invoque le Vent, fut utilisé une fois de plus. Le vent noir était encore plus puissant cette fois-ci, formant deux dragons noirs devant Wang Lin !
 
-Avant d'atteindre le stade du Scryer du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de culture, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial !
+Avant d'atteindre le stade du Scryer du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de cultivation, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial !
 
 Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers Blood God.
 
@@ -102,7 +102,7 @@ Un seul regard suffisait à terrifier n'importe qui !
 
 « Puisqu'il a appris l'Invoque le Vent, il est le successeur intergénérationnel de mon maître. Avec son statut actuel, oublie ta famille Yao ; même l'ancêtre de ta lignée n'oserait pas lui faire la moindre égratignure ! » Tandis que Qing Shui parlait froidement, il pointa Blood God du doigt. Les six dragons noirs poussèrent des rugissements et ouvrirent leurs gueules pour projeter de terrifiantes rafales de vent glacial.
 
-Le visage de Blood God s'assombrit davantage. À cet instant, la bourrasque glaciale fonça sur lui et, malgré sa culture, il ressentit le froid. Bien que le sort ressemblât à celui de Wang Lin, la différence de puissance était comparable au ciel et à la terre !
+Le visage de Blood God s'assombrit davantage. À cet instant, la bourrasque glaciale fonça sur lui et, malgré sa cultivation, il ressentit le froid. Bien que le sort ressemblât à celui de Wang Lin, la différence de puissance était comparable au ciel et à la terre !
 
 Blood God n'hésita pas à ouvrir les bras. Une immense brume de sang apparut. Des hirondelles ensanglantées se formèrent une à une jusqu'à atteindre un total de 99. Elles constituèrent une tempête de sang qui entra en collision avec la rafale glaciale.
 

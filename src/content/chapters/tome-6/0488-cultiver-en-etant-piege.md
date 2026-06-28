@@ -8,11 +8,11 @@ slug: cultiver-en-etant-piege
 ---
 Wang Lin apparut devant le septième étage du pavillon des trésors. Dès son apparition, il se transforma en un rayon de lumière et s'élança vers l'horizon.
 
-En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon de la Forêt Violette. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en culture en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois !
+En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon de la Forêt Violette. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en cultivation en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois !
 
 La vitesse de Wang Lin était telle qu'il créait des détonations soniques, le rendant très conspicuous dans le calme de cette Montagne de la Division Violette. À cet instant précis, juste en dessous de sa trajectoire, un élégant porche en bambou abritait trois vieillards. Ils étaient tous les trois des Anciens disciplinaires de la division violette. L'un d'eux leva les yeux vers l'endroit où Wang Lin avait disparu avant de laisser échapper un grognement et de dire, d'un ton mécontent : « Ce Wang Lin est bien trop arrogant. Il ose user d'une telle vitesse au sein même du domaine de la secte ! »
 
-Le vieil homme à ses côtés secoua la tête et répondit : « À moins qu'ils ne trahissent la secte, il vaut mieux ne pas s'en prendre aux disciples de l'Ancêtre. Bien que son niveau de culture ne soit pas élevé, il possède une immense expérience du combat. Même si nous nous y mettons à trois, nous n'obtiendrions au mieux qu'une égalité. »
+Le vieil homme à ses côtés secoua la tête et répondit : « À moins qu'ils ne trahissent la secte, il vaut mieux ne pas s'en prendre aux disciples de l'Ancêtre. Bien que son niveau de cultivation ne soit pas élevé, il possède une immense expérience du combat. Même si nous nous y mettons à trois, nous n'obtiendrions au mieux qu'une égalité. »
 
 Le dernier homme saisit une tasse en porcelaine violette, en prit une gorgée et déclara : « Ce n'est pas une affaire qui doive nous préoccuper. La compétition entre les disciples de l'Ancêtre est d'une férocité extrême. Nous sommes dans cette secte depuis des millénaires ; ne l'avez-vous toujours pas compris ? »
 
@@ -36,7 +36,7 @@ Cet homme était vêtu de bleu, avec trois dragons azur brodés sur sa manche.
 
 « Troisième disciple de la division bleue du Secte du Destin Céleste, Sima Rufeng ! » L'homme affichait un sourire empreint de douceur et, après être apparu, son regard se posa sur Wang Lin.
 
-« Stade avancé de la Transformation de l'Âme ! Et un niveau de culture légèrement supérieur à celui de la Quatrième Sœur ; il doit être au sommet du stade avancé de la Transformation de l'Âme ! » Les pupilles de Wang Lin se contractèrent imperceptiblement.
+« Stade avancé de la Transformation de l'Âme ! Et un niveau de cultivation légèrement supérieur à celui de la Quatrième Sœur ; il doit être au sommet du stade avancé de la Transformation de l'Âme ! » Les pupilles de Wang Lin se contractèrent imperceptiblement.
 
 Sima Rufeng déclara d'une voix forte : « Jeune frère apprenti Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre frère aîné. Frère Wang, puisque vous êtes là, autant vous montrer. »
 
@@ -76,7 +76,7 @@ Ces quatre intentions provenaient de Zhao Xingsha, du Deuxième Frère et des de
 
 Face à cette coalition, Wang Lin n'osait agir avec imprudence ; il s'était donc laissé téléporter par elle.
 
-La Quatrième Sœur reprit lentement : « Si le Septième Frère est intéressé par ce sortilège, je pourrai vous l'enseigner une fois que tout sera terminé. Cependant, pour l'instant, j'espère que vous accepterez de vous retirer en culture ici pendant trois ans. Dans trois ans, je reviendrai pour vous libérer ! »
+La Quatrième Sœur reprit lentement : « Si le Septième Frère est intéressé par ce sortilège, je pourrai vous l'enseigner une fois que tout sera terminé. Cependant, pour l'instant, j'espère que vous accepterez de vous retirer en cultivation ici pendant trois ans. Dans trois ans, je reviendrai pour vous libérer ! »
 
 L'expression de Wang Lin resta inchangée tandis qu'il inspectait les lieux. L'endroit était entouré de rochers mystérieux gravés de runes. Vu d'en haut, on comprendrait aisément qu'il s'agissait de restrictions.
 
@@ -112,4 +112,4 @@ La lame demi-lunaire suivit rapidement l'épée céleste pour charger dans les c
 
 Les yeux de Wang Lin s'illuminèrent ; d'un geste de la main, il rappela l'épée céleste. La lame demi-lunaire tourna autour de l'épée en émettant des ondes de chants de lames, semblant elle aussi profondément frustrée.
 
-« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire ? Puisque cet endroit est désolé, je m'en servirai pour ma culture. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je serai capable de briser ce siège et de rejoindre la lutte pour le titre de véritable disciple ! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.
+« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire ? Puisque cet endroit est désolé, je m'en servirai pour ma cultivation. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je serai capable de briser ce siège et de rejoindre la lutte pour le titre de véritable disciple ! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.

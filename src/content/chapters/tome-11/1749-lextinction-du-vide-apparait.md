@@ -8,7 +8,7 @@ slug: lextinction-du-vide-apparait
 ---
 Chapitre 1749 - L'Extinction du Vide apparaît !
 
-Dans la partie orientale du vaste Système Stellaire d'Allheaven se trouvait une planète. Bien que cette planète possédât de l'énergie spirituelle, celle-ci n'était pas dense ; c'était une planète de culture ordinaire.
+Dans la partie orientale du vaste Système Stellaire d'Allheaven se trouvait une planète. Bien que cette planète possédât de l'énergie spirituelle, celle-ci n'était pas dense ; c'était une planète de cultivation ordinaire.
 
 Après les deux guerres, il ne restait plus beaucoup de cultivateurs sur ce monde. Seuls des cultivateurs de l'Établissement des Fondations et de la Formation du Noyau subsistaient. La plupart des sectes avaient été abandonnées.
 
@@ -78,7 +78,7 @@ Wang Lin attachait de l'importance aux liens !
 
 « Si je ne meurs pas, les trois âmes du Souverain Céleste aux Sept Couleurs fusionneront en une seule et le Maître mourra... » Xie Qing regarda Wang Lin, les yeux brillants.
 
-« Au fil des ans, après l'éveil de la troisième âme, j'ai utilisé ma culture de l'âme pour former trois sceaux. Le premier sceau ne nécessite aucune force externe. Une fois que je serai mort, la troisième âme n'entrera pas dans le cycle de la réincarnation et pourra être récupérée par le Maître... »
+« Au fil des ans, après l'éveil de la troisième âme, j'ai utilisé ma cultivation de l'âme pour former trois sceaux. Le premier sceau ne nécessite aucune force externe. Une fois que je serai mort, la troisième âme n'entrera pas dans le cycle de la réincarnation et pourra être récupérée par le Maître... »
 
 « À ce moment-là, la troisième âme s'éveillera complètement après mon décès. Elle ouvrira le cœur du monde caverneux, s'y rendra et en ouvrira la porte. Le Maître pourra alors quitter le monde caverneux... »
 

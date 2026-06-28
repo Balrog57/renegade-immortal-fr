@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 731 - A Tool for Understanding the Karma Domain
 slug: un-outil-pour-comprendre-le-domaine-du-karma
 ---
-Cinq années passèrent en un éclair. Tous les cultivateurs de la planète Qing Ling, quel que soit leur niveau de culture, furent accaparés durant ces cinq ans. Zhang Xinhai réfléchit longuement et décida de ne pas dissimuler la requête de Wang Lin. Il la diffusa afin que chaque famille de cultivateurs en fût informée.
+Cinq années passèrent en un éclair. Tous les cultivateurs de la planète Qing Ling, quel que soit leur niveau de cultivation, furent accaparés durant ces cinq ans. Zhang Xinhai réfléchit longuement et décida de ne pas dissimuler la requête de Wang Lin. Il la diffusa afin que chaque famille de cultivateurs en fût informée.
 
 Cependant, la famille Zhang fut désignée comme l'unique messagère de Wang Lin.
 

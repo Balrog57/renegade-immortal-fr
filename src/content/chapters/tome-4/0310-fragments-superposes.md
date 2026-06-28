@@ -58,7 +58,7 @@ Wang Lin afficha une expression moqueuse en les suivant.
 
 Il pensa secrètement : « En fin de compte, son esprit et son cœur sont trop instables. Bien que parvenir au stade avancé de la Formation de l'Âme en cent ans soit un véritable miracle, elle souffre encore de nombreux maux. Son cœur est trop faible. Ce n'est qu'une question de vitesse ; quelle est la différence entre être devant ou derrière ? »
 
-« Si je la combat avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la rétribution divine, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
+« Si je la combat avec mon niveau de cultivation actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la rétribution divine, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
 
 Le domaine de la vie et de la mort de Wang Lin était dérivé du cycle de la réincarnation des cieux, mais comme il n'était qu'au début de la Formation de l'Âme, il ne pouvait en déployer toute la puissance. Après tout, il venait à peine de commencer à comprendre les lois célestes.
 
@@ -76,7 +76,7 @@ Tout en volant, Wang Lin revoyait attentivement les détails de son combat contr
 
 Les trois n'étant pas des individus ordinaires, ils se déplaçaient avec rapidité. Peu après, sous la direction de Chi Hu, ils arrivèrent à l'autre extrémité du fragment. Une montagne imposante s'y dressait.
 
-Cette montagne avait la forme d'un dragon dont la tête plongeait dans les nuages. Cette brume donnait au dragon un aspect irréel. C'était là un rare terrain de culture immortelle.
+Cette montagne avait la forme d'un dragon dont la tête plongeait dans les nuages. Cette brume donnait au dragon un aspect irréel. C'était là un rare terrain de cultivation immortelle.
 
 Wang Lin leva les yeux vers la montagne et dit lentement : « Frère Chi Hu, pourquoi personne d'autre n'a-t-il trouvé l'endroit indiqué par le jade ? Veuillez nous éclairer. »
 

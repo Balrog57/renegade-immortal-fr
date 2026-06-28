@@ -110,7 +110,7 @@ L'expression de Mo Lihai devint grave alors qu'il entrait ; Wang Lin le suivit d
 
 Mo Lihai traversa l'arche avec calme. À l'intérieur s'étendait un jardin foisonnant de fleurs exotiques dont le parfum enveloppait les deux hommes.
 
-Un homme vêtu de pourpre se tenait debout, le dos tourné vers eux, contemplant le ciel. Il semblait faire corps avec son environnement. Wang Lin lui jeta un bref regard avant de détourner les yeux. Le niveau de culture de cet homme était équivalent à celui d'un cultivateur Ascendant au début de son stade, étant au sommet de sa puissance et prêt à percer à tout instant !
+Un homme vêtu de pourpre se tenait debout, le dos tourné vers eux, contemplant le ciel. Il semblait faire corps avec son environnement. Wang Lin lui jeta un bref regard avant de détourner les yeux. Le niveau de cultivation de cet homme était équivalent à celui d'un cultivateur Ascendant au début de son stade, étant au sommet de sa puissance et prêt à percer à tout instant !
 
 Cependant, tant qu'il n'aurait pas réalisé cette percée, il resterait bien loin de pouvoir égaler un cultivateur Ascendant au milieu de son stade.
 
@@ -162,7 +162,7 @@ L'homme recula sans hésiter et une énergie spirituelle démoniaque jaillit de 
 
 Le visage de l'homme changea radicalement alors qu'il reculait à nouveau ; il finit même par piétiner les fleurs qu'il chérissait tant, les ignorant totalement. À cet instant, il n'avait plus le temps de se soucier de son jardin, car chaque pore de sa peau semblait hurler et il devait se concentrer de toutes ses forces pour résister à l'assaut.
 
-Avec sa culture, s'il s'était préparé, il n'en serait pas réduit à un tel état, mais il avait trop sous-estimé Wang Lin. Ce sort était d'une telle puissance qu'il aurait pu être incapable de le supporter, même en étant prêt. Il était désormais trop tard pour les regrets.
+Avec sa cultivation, s'il s'était préparé, il n'en serait pas réduit à un tel état, mais il avait trop sous-estimé Wang Lin. Ce sort était d'une telle puissance qu'il aurait pu être incapable de le supporter, même en étant prêt. Il était désormais trop tard pour les regrets.
 
 Un écran de lumière bleue, issu de son armure démoniaque, apparut à sept pouces de son corps, mais dès sa manifestation, il fut percuté par les deux mille filaments et repoussé violemment.
 
@@ -174,7 +174,7 @@ Les deux mille filaments pénétrèrent son corps et circulèrent une fois à tr
 
 Le visage de l'homme en pourpre était d'une pâleur extrême, tandis que Wang Lin semblait s'être transformé en une existence radicalement différente.
 
-Avec sa culture au sommet du stade avancé de la Transformation de l'Âme et ces deux mille filaments de carnage, il n'était plus difficile pour lui de lutter contre des cultivateurs Ascendants !
+Avec sa cultivation au sommet du stade avancé de la Transformation de l'Âme et ces deux mille filaments de carnage, il n'était plus difficile pour lui de lutter contre des cultivateurs Ascendants !
 
 « Très bien ! Tu as les qualifications ! » L'homme prit une profonde inspiration, s'efforçant de retrouver un visage serein et esquissant un sourire de supériorité, tel un aîné envers la jeune génération.
 
@@ -182,4 +182,4 @@ L'expression de Mo Lihai était étrange. Réprimant le choc qui agitait son cœ
 
 Une fois certain que les deux étaient loin, l'homme en pourpre ne put plus contenir sa douleur et cracha une bouchée de sang. Le serviteur qui entrait immédiatement paniqua devant la scène.
 
-« Je ne recevrai personne pendant trois mois. Je me retire en culture fermée ! » Après ces mots, l'homme en pourpre disparut.
+« Je ne recevrai personne pendant trois mois. Je me retire en cultivation fermée ! » Après ces mots, l'homme en pourpre disparut.

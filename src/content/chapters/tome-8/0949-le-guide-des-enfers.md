@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 949 - Nether Guide
 slug: le-guide-des-enfers
 ---
-« Autrefois, l'Ancêtre Zhan Xingye, après des années de compréhension, parvint enfin à ouvrir le troisième parchemin de bataille. Cependant, après l'avoir observé, son expression devint très étrange. Il s'est retiré en culture de porte close avec ce troisième parchemin pendant mille ans et n'en est jamais ressorti. Un jour, après ces mille ans, le clan ne trouva plus que le troisième parchemin et un jade à l'endroit même de sa retraite, mais l'Ancêtre avait disparu sans laisser de trace ! »
+« Autrefois, l'Ancêtre Zhan Xingye, après des années de compréhension, parvint enfin à ouvrir le troisième parchemin de bataille. Cependant, après l'avoir observé, son expression devint très étrange. Il s'est retiré en cultivation de porte close avec ce troisième parchemin pendant mille ans et n'en est jamais ressorti. Un jour, après ces mille ans, le clan ne trouva plus que le troisième parchemin et un jade à l'endroit même de sa retraite, mais l'Ancêtre avait disparu sans laisser de trace ! »
 
 « Si l'Ancêtre n'avait pas disparu, même le Temple Céleste du Tonnerre n'oserait provoquer ma famille Zhan. Pas même cette ancienne famille de cultivateurs ne l'oserait. Lorsque l'Ancêtre était parmi nous, l'honneur de la famille Zhan rayonnait ! »
 
@@ -20,7 +20,7 @@ Même Zhan Konglie en était persuadé.
 
 Li Yunzi eut un sourire amer. Il savait que, bien que trois membres de la famille fussent capables d'ouvrir le deuxième parchemin, ils ne pouvaient qu'en comprendre le sens. Aucun d'eux ne pouvait s'y immerger totalement comme Xu Mu avait pu le faire !
 
-Cela n'avait rien à voir avec le niveau de culture, ni même avec le talent. Quant à la raison exacte, Li Yunzi ne parvenait pas à en saisir l'essence.
+Cela n'avait rien à voir avec le niveau de cultivation, ni même avec le talent. Quant à la raison exacte, Li Yunzi ne parvenait pas à en saisir l'essence.
 
 Après une longue réflexion silencieuse, Li Yunzi regarda Wang Lin et dit lentement : « Xu Mu, quel prix dois-je payer pour que tu consultes le troisième parchemin ? Parle ! »
 
@@ -28,9 +28,9 @@ En réalité, il avait ses propres desseins. En plus de la recherche de l'Ancêt
 
 « Si quelqu'un de ma famille Zhan parvient à obtenir cet héritage, il pourra atteindre les sommets ! »
 
-Wang Lin réfléchit. Après un long moment, il secoua la tête. « Avec mon niveau de culture actuel, je ne devrais pas être capable d'ouvrir le troisième parchemin. » Lorsqu'il avait observé le deuxième parchemin de bataille, l'énergie d'origine source était entrée dans son troisième œil.
+Wang Lin réfléchit. Après un long moment, il secoua la tête. « Avec mon niveau de cultivation actuel, je ne devrais pas être capable d'ouvrir le troisième parchemin. » Lorsqu'il avait observé le deuxième parchemin de bataille, l'énergie d'origine source était entrée dans son troisième œil.
 
-« Cela n'a rien à voir avec ton niveau de culture, tu devrais donc essayer. Moi, Li Yunzi, je m'efforcerai de satisfaire n'importe laquelle de tes requêtes ! » La main droite de Li Yunzi toucha l'espace entre ses sourcils et un parchemin en jaillit immédiatement.
+« Cela n'a rien à voir avec ton niveau de cultivation, tu devrais donc essayer. Moi, Li Yunzi, je m'efforcerai de satisfaire n'importe laquelle de tes requêtes ! » La main droite de Li Yunzi toucha l'espace entre ses sourcils et un parchemin en jaillit immédiatement.
 
 C'était le troisième Parchemin de Bataille !
 
@@ -44,7 +44,7 @@ Wang Lin le réceptionna. À l'instant où il le toucha, il sentit une aura qui 
 
 L'expression de Li Yunzi s'assombrit.
 
-« Cependant, Senior Li Yunzi peut se rassurer. Je souhaite également découvrir ce que contient le troisième Parchemin de Bataille. Le jour viendra où ma culture sera assez puissante, je reviendrai vers vous pour le consulter. Si, en l'ouvrant ne serait-ce qu'un peu, je venais à mourir sous l'effet de l'aura, alors il faudra trouver quelqu'un d'autre. »
+« Cependant, Senior Li Yunzi peut se rassurer. Je souhaite également découvrir ce que contient le troisième Parchemin de Bataille. Le jour viendra où ma cultivation sera assez puissante, je reviendrai vers vous pour le consulter. Si, en l'ouvrant ne serait-ce qu'un peu, je venais à mourir sous l'effet de l'aura, alors il faudra trouver quelqu'un d'autre. »
 
 Wang Lin recula de quelques pas et parla avec calme. Il savait que Li Yunzi ne l'attaquerait pas. Bien sûr, même si l'autre partie s'avérait sans scrupules et passait à l'offensive, Wang Lin s'était déjà préparé. Même s'il ne gagnerait pas le combat, il pourrait s'échapper et gagner suffisamment de temps jusqu'à l'arrivée de Qing Shui.
 
@@ -72,7 +72,7 @@ Wang Lin joignit les mains et partit. Après quelques pas, il se transforma en u
 
 Dès que Wang Lin fut parti, l'expression de Li Yunzi redevint lugubre et il marmonna : « Maître Flamespark ne se disputera pas avec moi pour une chose aussi insignifiante, mais il y a Qing Shui... Cependant, Qing Shui ne vivra plus longtemps... Une fois qu'il sera mort, je veux voir comment tu échapperas à moi, Xu Mu ! »
 
-Après avoir quitté cette planète de culture, l'expression de Wang Lin devint sombre. Lorsqu'il fut convoqué par Li Yunzi, il n'avait pas d'autre choix que de s'y rendre, sous peine de l'offenser. S'il voulait emprunter la puissance d'Allheaven pour conjurer une crise future, il devait répondre à cette convocation.
+Après avoir quitté cette planète de cultivation, l'expression de Wang Lin devint sombre. Lorsqu'il fut convoqué par Li Yunzi, il n'avait pas d'autre choix que de s'y rendre, sous peine de l'offenser. S'il voulait emprunter la puissance d'Allheaven pour conjurer une crise future, il devait répondre à cette convocation.
 
 De plus, ils avaient maintenu une certaine relation, il n'avait donc aucune raison de décliner.
 
@@ -88,7 +88,7 @@ Après avoir trouvé un immense rocher flottant dans l'espace, Wang Lin s'y assi
 
 Lors de son apparition, il dégageait une puissante odeur de sang. Derrière lui flottaient au moins une centaine de têtes aux visages empreints de désespoir.
 
-Wang Lin ouvrit les yeux avec un sourire amer. Le niveau de culture de Qing Shui était encore plus élevé qu'il y a dix jours. Il était évident qu'il avait dévoré de nombreux cultivateurs.
+Wang Lin ouvrit les yeux avec un sourire amer. Le niveau de cultivation de Qing Shui était encore plus élevé qu'il y a dix jours. Il était évident qu'il avait dévoré de nombreux cultivateurs.
 
 « Ces gens sont tous des cultivateurs du Royaume de la Massacre qui excellaient dans l'art de se cacher. Si nous voulons pénétrer dans le Royaume de la Massacre, nous avons besoin de ces têtes ! » Tandis qu'il parlait, Qing Shui agita sa main droite. Les têtes derrière lui volèrent pour former un cercle.
 

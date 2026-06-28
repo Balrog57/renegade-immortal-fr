@@ -44,11 +44,11 @@ Wang Hao eut un sourire amer : « Tu as tout vu ? »
 
 Wang Lin hocha la tête : « Wang Hao, dis-moi ce qui se passe. »
 
-Wang Hao serra les poings et répondit, les dents serrées : « Lors de notre échange, j'ai toujours regretté de ne pas avoir pu obtenir de pilule d'Établissement des Fondations. Plus tard, mon maître... enfin, Lu Yunjie, m'en a donné une pour me remercier de l'avoir assisté. J'étais très surpris à l'époque. Il m'a également transmis une méthode de culture, prétendant qu'elle était supérieure à celle de la secte. Je n'y ai pas prêté attention et je l'ai pratiquée. »
+Wang Hao serra les poings et répondit, les dents serrées : « Lors de notre échange, j'ai toujours regretté de ne pas avoir pu obtenir de pilule d'Établissement des Fondations. Plus tard, mon maître... enfin, Lu Yunjie, m'en a donné une pour me remercier de l'avoir assisté. J'étais très surpris à l'époque. Il m'a également transmis une méthode de cultivation, prétendant qu'elle était supérieure à celle de la secte. Je n'y ai pas prêté attention et je l'ai pratiquée. »
 
 Wang Lin prit une profonde inspiration : « Quoi ? Laisse-moi voir ! »
 
-Wang Hao sortit un manuscrit relié par des fils et le lança à Wang Lin. Il poursuivit : « Mais après deux ans de pratique, mon corps s'est affaibli. Bien que je parvienne à condenser la puissance spirituelle en moi, je suis incapable de l'utiliser. Plus tard, j'ai secrètement soudoyé un disciple pour qu'il fasse des recherches, et j'ai découvert que la méthode de culture que Lu Yunjie m'avait donnée s'appelait "l'Épreuve du Fourneau de Feu". »
+Wang Hao sortit un manuscrit relié par des fils et le lança à Wang Lin. Il poursuivit : « Mais après deux ans de pratique, mon corps s'est affaibli. Bien que je parvienne à condenser la puissance spirituelle en moi, je suis incapable de l'utiliser. Plus tard, j'ai secrètement soudoyé un disciple pour qu'il fasse des recherches, et j'ai découvert que la méthode de cultivation que Lu Yunjie m'avait donnée s'appelait "l'Épreuve du Fourneau de Feu". »
 
 Wang Lin ouvrit le livre et le parcourut. Plus il lisait, plus il était terrifié. Ce qui était écrit différait totalement des Trois Niveaux de la Condensation de Qi. Au lieu d'utiliser l'énergie spirituelle pour raffiner le corps de l'intérieur, cette méthode rassemblait l'énergie en un tourbillon. Ce tourbillon s'étendait à mesure que la puissance spirituelle augmentait, afin d'absorber l'énergie céleste et terrestre pour raffiner le corps de l'extérieur, simulant ainsi une forme de Condensation de Qi.
 
@@ -56,7 +56,7 @@ En termes simples, la Condensation de Qi consistait à raffiner lentement le cor
 
 Cette autre méthode était bien plus brutale. Si l'on avait de la chance, le tourbillon s'étendait au-delà du corps avant que celui-ci ne s'effondre, permettant d'atteindre la Condensation de Qi. Sinon, le corps était pulvérisé avant même que le tourbillon n'ait pu sortir.
 
-Wang Hao ajouta, les dents grinçantes : « Les archives de la secte possèdent quelques exemplaires de cette méthode de culture de l'Épreuve du Fourneau de Feu. On dit qu'elle provient du pays disparu de Lu. Seuls deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
+Wang Hao ajouta, les dents grinçantes : « Les archives de la secte possèdent quelques exemplaires de cette méthode de cultivation de l'Épreuve du Fourneau de Feu. On dit qu'elle provient du pays disparu de Lu. Seuls deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
 
 Wang Lin posa la question cruciale : « Quel intérêt Lu Yunjie y trouve-t-il ? »
 

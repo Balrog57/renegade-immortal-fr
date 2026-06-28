@@ -74,7 +74,7 @@ Au cours du mois et demi écoulé, en plus de l'étude du miroir, Wang Lin avait
 
 Pendant qu'il raffinait le miroir, la restriction sur Yun Fei s'était activée à plusieurs reprises. À chaque fois, Wang Lin l'avait neutralisée à distance via le second démon. Après tout ce temps, Yun Fei avait fini par se résigner à son sort, devenant presque insensible.
 
-En réalité, elle avait tenté de sortir de la demeure à plusieurs reprises pour chercher des experts capables de lever ces restrictions, mais elle revenait toujours déçue. Aucun cultivateur ne pouvait briser l'entrave. Tous ceux qui l'examinaient fronçaient les sourcils ; pour eux, il ne s'agissait pas d'une restriction du monde de la culture actuel, mais d'une technique antique.
+En réalité, elle avait tenté de sortir de la demeure à plusieurs reprises pour chercher des experts capables de lever ces restrictions, mais elle revenait toujours déçue. Aucun cultivateur ne pouvait briser l'entrave. Tous ceux qui l'examinaient fronçaient les sourcils ; pour eux, il ne s'agissait pas d'une restriction du monde de la cultivation actuel, mais d'une technique antique.
 
 Certains posaient des questions, mais comme les restrictions étaient déjà un sujet complexe et peu prisé, peu de gens prenaient le temps de l'étudier. Malgré le caractère unique de son cas, personne n'essayait d'en apprendre davantage. Yun Fei restait très prudente, craignant de révéler accidentellement des informations sur Wang Lin et de se faire tuer par lui avant d'avoir réussi.
 
@@ -94,7 +94,7 @@ C'est alors que son regard se fixa sur un magasin de cinq étages, orné d'une s
 
 En voyant ce pavillon, Wang Lin eut un sourire étrange. Il se remémora l'époque à la ville de Nan Dou, où il s'était rendu dans un pavillon similaire pour échanger une peau de dragon contre un fourneau à pilules, un incident qui avait provoqué une traque sanglante. Il avait fini par donner ce fameux fourneau à Li Muwan.
 
-À cette pensée, l'image d'une femme douce et fragile surgit dans son esprit. Il soupira. Il savait qu'elle l'aimait, mais il portait un grief de sang qu'il ne pouvait oublier. Dans ce monde de culture impitoyable, il ne pouvait se permettre aucun lien, car si une nouvelle catastrophe survenait, elle en subirait les conséquences.
+À cette pensée, l'image d'une femme douce et fragile surgit dans son esprit. Il soupira. Il savait qu'elle l'aimait, mais il portait un grief de sang qu'il ne pouvait oublier. Dans ce monde de cultivation impitoyable, il ne pouvait se permettre aucun lien, car si une nouvelle catastrophe survenait, elle en subirait les conséquences.
 
 Après de telles expériences, le cœur de Wang Lin s'était refroidi. Il avait décidé de ne plus s'attacher avant d'être assez puissant pour protéger ceux qu'il chérissait. En un clin d'œil, deux cents ans s'étaient écoulés ; Li Muwan n'était peut-être même plus de ce monde.
 
@@ -122,7 +122,7 @@ Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyen
 
 Wang Lin était satisfait : il possédait désormais tout ce qu'il fallait pour ses drapeaux de restriction. À part la pierre d'encre, les autres composants étaient communs et faciles à trouver. En revanche, il était déçu par le jade ; même dans un tel pavillon, les informations sur les anciens tableaux restaient éparses et lacunaires. Quant au Royaume Ji, il n'avait rien trouvé de concret en posant des questions indirectes.
 
-De retour dans la grotte, après s'être assuré de l'état de Yun Fei, il se mit au travail. Sa culture étant bien supérieure à la sienne, elle ne sentit pas son entrée. Il sortit le jade obtenu dans le second royaume de la Terre de l'Ancien Dieu, qui contenait les instructions de fabrication, le consulta une dernière fois, puis l'écrasa dans sa main.
+De retour dans la grotte, après s'être assuré de l'état de Yun Fei, il se mit au travail. Sa cultivation étant bien supérieure à la sienne, elle ne sentit pas son entrée. Il sortit le jade obtenu dans le second royaume de la Terre de l'Ancien Dieu, qui contenait les instructions de fabrication, le consulta une dernière fois, puis l'écrasa dans sa main.
 
 Après avoir extrait la pierre d'encre et y insufflé son pouvoir spirituel, il fusionna les autres matériaux selon les directives. Puis, suivant le protocole du jade, il libéra une essence de pouvoir spirituel de sang pour entamer le processus de raffinage, appelé « l'Élévation de l'Objet ».
 

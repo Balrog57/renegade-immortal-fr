@@ -10,7 +10,7 @@ Chapitre 1509 - Cette Bataille !!
 
 Dans la région de rang 9 de la Mer des Nuages, le Secte Fantôme !
 
-Le Secte Fantôme était extrêmement mystérieux au sein de la Mer des Nuages, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture à porte close au sein du Secte Fantôme.
+Le Secte Fantôme était extrêmement mystérieux au sein de la Mer des Nuages, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine cultivation à porte close au sein du Secte Fantôme.
 
 Ce vieil homme portait une robe verte, son expression était sombre, et il était entouré de flammes fantomatiques, ce qui lui donnait un air extrêmement sinistre.
 
@@ -56,7 +56,7 @@ Cette scène perturba Situ Nan. Dès qu'il ouvrit les yeux, il sembla entendre q
 
 Le regard de Qing Lin balaya Situ Nan et il tonna : « Assieds-toi ! Le Maître s'en occupera ! De plus, ce Daoïste Eau n'est pas un bâtard, c'est l'esclave de mon Maître ! »
 
-Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana : « Bien que tu sois mon Maître, il est mon frère. Je sais tout de lui. C'est moi qui l'ai aidé à gravir le chemin de la culture ! Il t'a aidé à t'éveiller, et pourtant tu ne crois toujours pas en lui ! »
+Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana : « Bien que tu sois mon Maître, il est mon frère. Je sais tout de lui. C'est moi qui l'ai aidé à gravir le chemin de la cultivation ! Il t'a aidé à t'éveiller, et pourtant tu ne crois toujours pas en lui ! »
 
 « Ce n'est pas que le Maître ne croit pas... Mais ce Souverain... » Qing Lin affichait une expression complexe et, après un moment de silence, il envoya un message par Sens Divin dans le jeton de pluie.
 
@@ -78,7 +78,7 @@ Cependant, à cet instant précis, tout le monde dans la vallée entendit le mes
 
 La froideur dans les yeux de l'homme en rouge s'intensifia et il esquissa un sourire.
 
-« Moi, Maître Hong Shan, je ne voulais pas gaspiller sa culture avant la guerre... Mais puisqu'il court à sa perte... Eh ! » L'homme en rouge regarda au loin, et le froid dans ses yeux fut lentement remplacé par de l'admiration.
+« Moi, Maître Hong Shan, je ne voulais pas gaspiller sa cultivation avant la guerre... Mais puisqu'il court à sa perte... Eh ! » L'homme en rouge regarda au loin, et le froid dans ses yeux fut lentement remplacé par de l'admiration.
 
 « Puisque ce petit gars est parti de lui-même, voyons quel est le jugement du Seigneur du Royaume Scellé... Après tout, ce sont leurs propres affaires internes ! »
 
@@ -92,7 +92,7 @@ Sans Lu Zihao ou sans Wang Lin, le Secte Origine n'existerait pas aujourd'hui !
 
 Au sein du Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla son secte avec une expression complexe. Puis il se calma progressivement et s'envola vers le Secte Divin.
 
-À l'intérieur du Secte Divin, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa culture il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun !
+À l'intérieur du Secte Divin, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa cultivation il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun !
 
 Mu Bingmei tenait toujours ses promesses. Elle contempla la pilule pendant un long, très long moment...
 

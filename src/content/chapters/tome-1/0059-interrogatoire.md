@@ -62,7 +62,7 @@ Wang Lin eut un petit rire : « La technique d'attraction. Si le Maître de sect
 
 Huang Long examina attentivement la technique, puis se mit à méditer. Après un long moment, il demanda soudainement : « Auparavant, tu étais manifestement au 3ème niveau et, même maintenant, tu sembles toujours être au 3ème niveau. Comment peux-tu posséder une telle puissance ? Quel est ton niveau exact ? Wang Lin, dis-moi la vérité ! »
 
-Le visage de Wang Lin se mua en une expression amère : « Le disciple ne comprend pas vraiment. Je n'ai fait que continuer ma culture et c'est devenu ainsi. Quant au niveau que j'ai atteint, le disciple l'ignore. »
+Le visage de Wang Lin se mua en une expression amère : « Le disciple ne comprend pas vraiment. Je n'ai fait que continuer ma cultivation et c'est devenu ainsi. Quant au niveau que j'ai atteint, le disciple l'ignore. »
 
 Huang Long fixa Wang Lin et dit d'une voix grave : « Wang Lin, tu refuses toujours de me le dire ? »
 

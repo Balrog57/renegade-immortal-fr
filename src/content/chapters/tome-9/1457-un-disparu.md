@@ -68,7 +68,7 @@ Cette voix résonna dans l'esprit de Wang Lin. À l'instant même où elle s'est
 
 « L'Ordre Ancien Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par l'Oiseau Vermillon de la première génération ! Il se souvenait parfaitement des paroles de celui-ci :
 
-« Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Ancien ne fût pas aussi puissant que le Souverain Céleste Ancien, ce dernier le craignait néanmoins... »
+« Ce vieil homme ne connaît pas grand-chose à la cultivation des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Ancien ne fût pas aussi puissant que le Souverain Céleste Ancien, ce dernier le craignait néanmoins... »
 
 Wang Lin médita longuement, puis ses yeux brillèrent d'un éclat vif.
 

@@ -26,7 +26,7 @@ Des craquements incessants émanaient de cette sphère qui subissait une compres
 
 La sphère était devenue invisible à l'œil nu. Seul le Sens Divin permettait de percevoir cette masse de tonnerre comprimée 30 000 fois dans la main de Wang Lin.
 
-« Bien que ce corps ait été modifié par moi, il ne peut afficher au maximum qu'une force équivalente à la Formation de l'Âme. Cependant, mon âme originelle est puissante ; elle n'est donc pas limitée par ce corps, et les étrangers ne peuvent percevoir mon âme originelle ! C'est parce que mon âme originelle a fusionné avec le tonnerre environnant et se trouve au même niveau d'existence que l'Éclair Éternel. Même si l'Ancêtre du Clan Scatter Thunder venait, tant qu'il cultive la marque du clan et l'Éclair Éternel, malgré un niveau de culture plus élevé, son contrôle sur le tonnerre ne pourrait égaler le mien ! » Wang Lin contempla la sphère de tonnerre, minuscule comme une particule de poussière, et poursuivit sa réflexion.
+« Bien que ce corps ait été modifié par moi, il ne peut afficher au maximum qu'une force équivalente à la Formation de l'Âme. Cependant, mon âme originelle est puissante ; elle n'est donc pas limitée par ce corps, et les étrangers ne peuvent percevoir mon âme originelle ! C'est parce que mon âme originelle a fusionné avec le tonnerre environnant et se trouve au même niveau d'existence que l'Éclair Éternel. Même si l'Ancêtre du Clan Scatter Thunder venait, tant qu'il cultive la marque du clan et l'Éclair Éternel, malgré un niveau de cultivation plus élevé, son contrôle sur le tonnerre ne pourrait égaler le mien ! » Wang Lin contempla la sphère de tonnerre, minuscule comme une particule de poussière, et poursuivit sa réflexion.
 
 « Une compression de 30 000 fois est la limite de ce corps. Si je tente d'intensifier davantage, ce corps s'effondrera instantanément. » Wang Lin agita la main droite et la particule formée par la sphère compressée disparut silencieusement.
 
@@ -46,11 +46,11 @@ Le temps passa lentement. Wang Lin était dans la salle depuis plus d'un mois. E
 
 Ses yeux s'ouvrirent lentement, révélant de la fatigue, mais une lueur étrange y brillait.
 
-« Tous les membres du Clan Scatter Thunder cultivent leur marque pendant des éternités, et à mesure que la marque s'éveille, ils obtiennent un pouvoir infini et la maîtrise du tonnerre. Si la marque améliore leur culture, elle fait aussi ceci... ils offrent constamment leur force vitale et leur tonnerre en sacrifice à l'Éclair Éternel... »
+« Tous les membres du Clan Scatter Thunder cultivent leur marque pendant des éternités, et à mesure que la marque s'éveille, ils obtiennent un pouvoir infini et la maîtrise du tonnerre. Si la marque améliore leur cultivation, elle fait aussi ceci... ils offrent constamment leur force vitale et leur tonnerre en sacrifice à l'Éclair Éternel... »
 
 « C’est très similaire aux Flammes Joss ! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 
-« Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan Scatter Thunder n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de culture variables... »
+« Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan Scatter Thunder n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de cultivation variables... »
 
 « Tout cela ressemble également énormément au Classement du Clan Scatter Thunder ! »
 
@@ -58,7 +58,7 @@ Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler
 
 Les pupilles de Wang Lin se rétractèrent et il leva soudain la tête. Son regard perça les murs de la salle pour embrasser le monde, d'un air extrêmement sombre.
 
-« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme une prison ? Par exemple, lors de mon combat contre le Daoïste Eau, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Daoïste Eau était Dieu ! »
+« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une cultivation inimaginable, et qu'il ait créé ce lieu comme une prison ? Par exemple, lors de mon combat contre le Daoïste Eau, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de cultivation, et pour ces disciples, le Daoïste Eau était Dieu ! »
 
 Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas à percer les cieux ni le brouillard entourant la vérité.
 
@@ -80,7 +80,7 @@ Peu après avoir pris cette pose, l'appel de Wang Lin résonna dans son esprit. 
 
 Dès qu'il entra, avant même de voir Wang Lin, Big Red s'exclama avec enthousiasme : « Le jeune Big Red a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour l'Aîné ! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant le mois précédent s'envolèrent pour former une petite montagne.
 
-Tout plein d'entrain, il prit une grande inspiration et dit avec excitation : « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré ! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de culture a augmenté ! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Big Red. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement ! »
+Tout plein d'entrain, il prit une grande inspiration et dit avec excitation : « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré ! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de cultivation a augmenté ! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Big Red. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement ! »
 
 L'expression de Wang Lin resta neutre tandis qu'il observait Big Red. D'un geste de la main, il rangea tout ce qui serviraient à l'échange des cristaux.
 

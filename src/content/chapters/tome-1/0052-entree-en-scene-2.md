@@ -46,7 +46,7 @@ La réaction de Lu Song fut moins intense. C'était la première fois qu'il ente
 
 Tous les disciples intérieurs restaient figés, arborant des expressions de pure stupéfaction.
 
-Du côté du Secte Xuan Dao, la situation n'était guère meilleure. Les yeux de l'Ancien Ouyang s'écarquillèrent. Zhou Peng était leur atout secret, reconnu comme le génie numéro un du monde de la culture de Zhao. Sa véritable puissance atteignait le 13ème niveau de Condensation de Qi, et il venait pourtant de perdre ? Si les Anciens de la Secte Heng Yue étaient intervenus, cela aurait été compréhensible, mais c'était quelqu'un que la Secte Heng Yue elle-même considérait comme un déchet ! Ce devait être par imprudence de la part de Zhou Peng, certainement !
+Du côté du Secte Xuan Dao, la situation n'était guère meilleure. Les yeux de l'Ancien Ouyang s'écarquillèrent. Zhou Peng était leur atout secret, reconnu comme le génie numéro un du monde de la cultivation de Zhao. Sa véritable puissance atteignait le 13ème niveau de Condensation de Qi, et il venait pourtant de perdre ? Si les Anciens de la Secte Heng Yue étaient intervenus, cela aurait été compréhensible, mais c'était quelqu'un que la Secte Heng Yue elle-même considérait comme un déchet ! Ce devait être par imprudence de la part de Zhou Peng, certainement !
 
 Les deux autres Anciens se regardèrent, incapables de prononcer le moindre mot. Cette bataille était d'une étrangeté absolue ; ils étaient trop abasourdis pour parler.
 

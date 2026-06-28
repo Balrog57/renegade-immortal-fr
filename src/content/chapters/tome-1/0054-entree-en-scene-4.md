@@ -16,27 +16,27 @@ Zhang Kuang savait que si cette eau spirituelle était proposée en échange aup
 
 Mais lorsqu'il retourna vérifier, Wang Lin avait déjà disparu. Il n'y avait qu'une soixantaine de disciples internes au sein de la Secte Heng Yue. Il les inspecta tous, mais ne trouva aucun individu lui ressemblant.
 
-Il resta plongé dans la mélancolie pendant un long moment. Il avait également tenté de surveiller Wang Lin, mais après avoir découvert que celui-ci n'était qu'au 3ème niveau de culture, il s'était persuadé que ce n'était pas lui.
+Il resta plongé dans la mélancolie pendant un long moment. Il avait également tenté de surveiller Wang Lin, mais après avoir découvert que celui-ci n'était qu'au 3ème niveau de cultivation, il s'était persuadé que ce n'était pas lui.
 
 Pourtant, à présent, il était sûr à 100 % que cet homme était Wang Lin. Cette certitude ne reposait sur aucune logique ; elle était purement intuitive.
 
-« Ce Wang Lin a déjà atteint un niveau de culture aussi élevé ! Heureusement que je ne lui ai rien fait à l'époque. Hélas, le secret de cette eau spirituelle devra rester enfoui dans mon cœur. Peu importe que Wang Lin soit réellement cet homme ou non, car le monde de la culture est trop cruel. Sans parler des compagnons d'une même secte, même les frères se tueraient entre eux. Avec la puissance de culture de Wang Lin, je serais incapable de riposter ! » Zhang Kuang décida de ne plus jamais chercher à provoquer Wang Lin.
+« Ce Wang Lin a déjà atteint un niveau de cultivation aussi élevé ! Heureusement que je ne lui ai rien fait à l'époque. Hélas, le secret de cette eau spirituelle devra rester enfoui dans mon cœur. Peu importe que Wang Lin soit réellement cet homme ou non, car le monde de la cultivation est trop cruel. Sans parler des compagnons d'une même secte, même les frères se tueraient entre eux. Avec la puissance de cultivation de Wang Lin, je serais incapable de riposter ! » Zhang Kuang décida de ne plus jamais chercher à provoquer Wang Lin.
 
 Il se remémora aussi involontairement l'épisode dans les montagnes arrières, lorsqu'il pensait que Wang Lin n'était même pas au premier niveau et qu'il lui avait tendu la main. Il se demanda ce que Wang Lin avait réellement pensé de lui à ce moment-là.
 
 Il y avait aussi cet incident au bord de la rivière. En y repensant, Zhang Kuang en eut un frisson. Il était soulagé de ne rien avoir fait alors, sans quoi il aurait été fini.
 
-Ce n'est pas qu'il ne se demandait pas comment Wang Lin était devenu si fort, mais face au niveau de culture actuel de ce dernier, il s'interrompit aussitôt. Il sentait que s'il continuait à chercher la réponse, il mettrait sa propre vie en péril.
+Ce n'est pas qu'il ne se demandait pas comment Wang Lin était devenu si fort, mais face au niveau de cultivation actuel de ce dernier, il s'interrompit aussitôt. Il sentait que s'il continuait à chercher la réponse, il mettrait sa propre vie en péril.
 
 Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin et dit d'un ton sombre : « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le premier disciple de la Secte Heng Yue. Le destin est vraiment trop cruel ! Moi qui ai cultivé avec acharnement pendant dix ans, je n'ai atteint que le 6ème niveau. »
 
 Si la Secte Xuan Dao avait été surprise auparavant, elle était maintenant sous le choc !
 
-Zhou Peng pouvait expliquer la première fois par une simple négligence, mais lors de la deuxième et de la troisième tentative, il fut projeté en arrière, encore et toujours, d'un seul mouvement. Surtout la troisième fois. Zhou Peng avait retiré son talisman jaune et utilisé toute sa puissance de culture, pour finir battu en un seul coup.
+Zhou Peng pouvait expliquer la première fois par une simple négligence, mais lors de la deuxième et de la troisième tentative, il fut projeté en arrière, encore et toujours, d'un seul mouvement. Surtout la troisième fois. Zhou Peng avait retiré son talisman jaune et utilisé toute sa puissance de cultivation, pour finir battu en un seul coup.
 
 Cela laissa tous les membres de la Secte Xuan Dao stupéfaits.
 
-Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa : « Mon frère aîné n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon frère est déjà au 12ème niveau. Quel niveau de culture Wang Lin a-t-il donc atteint ? »
+Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa : « Mon frère aîné n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon frère est déjà au 12ème niveau. Quel niveau de cultivation Wang Lin a-t-il donc atteint ? »
 
 Liu Feng murmura d'un ton incrédule : « Pourrait-il avoir déjà atteint l'Établissement des Fondations ? »
 
@@ -46,9 +46,9 @@ Les yeux de Liu Mei brillèrent d'un éclat nouveau. Elle se sentait encore plus
 
 Plusieurs autres disciples restèrent muets. Leur frère aîné était leur héros, un expert ; et pourtant, cet expert venait d'être terrassé par quelqu'un d'autre, en un seul mouvement, sans aucune possibilité de riposter. Cela les fit tous douter des techniques enseignées à la Secte Xuan Dao.
 
-L'expression de l'Ancien Ouyang ressemblait à celle de Huang Long lorsque les disciples de la Secte Heng Yue avaient perdu toutes leurs précédentes batailles. Son visage était empreint d'une grande amertume. Il observa Wang Lin intensément et fut choqué. Avec sa culture au 14ème niveau, peu importe comment il scrutait Wang Lin, il ne pouvait y voir qu'un cultivateur au 3ème niveau.
+L'expression de l'Ancien Ouyang ressemblait à celle de Huang Long lorsque les disciples de la Secte Heng Yue avaient perdu toutes leurs précédentes batailles. Son visage était empreint d'une grande amertume. Il observa Wang Lin intensément et fut choqué. Avec sa cultivation au 14ème niveau, peu importe comment il scrutait Wang Lin, il ne pouvait y voir qu'un cultivateur au 3ème niveau.
 
-« Est-il... est-il vraiment un disciple interne de la Secte Heng Yue... a-t-il déjà atteint l'Établissement des Fondations ? Comment se fait-il que je sois incapable de percevoir son véritable niveau de culture ? »
+« Est-il... est-il vraiment un disciple interne de la Secte Heng Yue... a-t-il déjà atteint l'Établissement des Fondations ? Comment se fait-il que je sois incapable de percevoir son véritable niveau de cultivation ? »
 
 Les visages des deux autres anciens étaient également très pâles. Les trois affrontements de Zhou Peng leur avaient permis de mesurer la puissance de Wang Lin.
 

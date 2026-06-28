@@ -48,7 +48,7 @@ Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas
 
 Le nez du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
 
-La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de son secte étaient présents, mais son frère aîné l'était aussi ; ils ne le laisseraient naturellement pas subir de défaite.
+La cultivation de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de son secte étaient présents, mais son frère aîné l'était aussi ; ils ne le laisseraient naturellement pas subir de défaite.
 
 « C'est ainsi que vous traitez vos invités ? » Wang Lin ne daigna même pas regarder l'énergie de l'épée et fixa calmement Chen Long. Il était désormais certain que les disciples du Secte de l'Épée Da Lou étaient piégés. S'ils n'avaient pas été retenus ici depuis longtemps, auraient-ils été aussi impatients ?
 
@@ -72,7 +72,7 @@ Après avoir été projeté par Chen Long, Wu Ma se retrouva dépossédé de son
 
 L'expression de Wang Lin resta impassible lorsqu'il dit calmement : « Puisque tu es le frère cadet du camarade cultivateur Chen Long, je ne te tuerai pas pour cette offense. Je garderai cette épée en guise d'avertissement. »
 
-Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est ainsi que cela doit être ! » Il se retourna et lança froidement à Wu Ma : « Toi, tais-toi ! Le camarade cultivateur Wang n'est pas quelqu'un que tu peux provoquer. Si tu continues, je détruirai ta culture en lieu et place de notre Maître ! »
+Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est ainsi que cela doit être ! » Il se retourna et lança froidement à Wu Ma : « Toi, tais-toi ! Le camarade cultivateur Wang n'est pas quelqu'un que tu peux provoquer. Si tu continues, je détruirai ta cultivation en lieu et place de notre Maître ! »
 
 Wu Ma, manifestement terrifié par Chen Long, hocha la tête et resta silencieux.
 
@@ -92,7 +92,7 @@ Wang Lin répondit d'un ton serein : « Mon ami est de nature froide et n'appré
 
 Greed lança un regard à Wang Lin et eut un sourire narquois.
 
-Chen Long sourit légèrement et présenta l'homme : « Camarade cultivateur Wang, ce senior est Greed. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une culture d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle ! »
+Chen Long sourit légèrement et présenta l'homme : « Camarade cultivateur Wang, ce senior est Greed. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une cultivation d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle ! »
 
 Wang Lin pensa : « Ce Chen Long n'est pas simple ! » Cet homme avait été capable de distiller toutes les informations essentielles en quelques phrases seulement.
 

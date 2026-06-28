@@ -92,7 +92,7 @@ Il avait déjà vu des cultivateurs dont les yeux abritaient la foudre. Cependan
 
 À cet instant, la foudre émanant des yeux de Wang Lin lui donnait l'impression de se tenir sous l'immensité du ciel, face à un coup de tonnerre imminent. C'était ce sentiment d'impuissance totale face à la puissance divine des cieux.
 
-Wang Lin fronça les sourcils. Ne voulant plus perdre de temps en futilités, il saisit Du Jian et le traîna vers l'ouverture de la fissure. Près du gouffre, Du Jian prit conscience de l'immense force d'aspiration. Malgré sa culture, il sentait son âme originelle sur le point d'être arrachée de son corps.
+Wang Lin fronça les sourcils. Ne voulant plus perdre de temps en futilités, il saisit Du Jian et le traîna vers l'ouverture de la fissure. Près du gouffre, Du Jian prit conscience de l'immense force d'aspiration. Malgré sa cultivation, il sentait son âme originelle sur le point d'être arrachée de son corps.
 
 Il commença à s'époumoner de terreur.
 

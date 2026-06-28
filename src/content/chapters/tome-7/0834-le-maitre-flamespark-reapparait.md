@@ -44,7 +44,7 @@ Ces petits spécimens étaient infiniment plus menus que le grand original, qui 
 
 À l'apparition de ces petits Serpents Lunaires, le carnage atteignit son paroxysme. Les innombrables créatures se dispersèrent et commencèrent à dévorer les cultivateurs alentour.
 
-Quant aux membres de la famille Yao, seuls ceux au stade du Nirvana Scryer purent s'échapper ; tous les autres avaient péri ! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent Lunaire.
+Quant aux membres de la famille Yao, seuls ceux au stade du Nirvana Scryer purent s'échapper ; tous les autres avaient péri ! Quant aux familles de cultivation venues en renfort, la majorité succomba à la fureur du Serpent Lunaire.
 
 L'espace entier fut imprégné d'une épaisse odeur de sang.
 
@@ -72,7 +72,7 @@ L'homme en violet renifla mais ne reprit pas la parole.
 
 « C'est fou, certes, mais si les cultivateurs du Système Stellaire Allheaven entrent en guerre contre le Système Stellaire de l'Alliance, ils auront besoin d'une puissance suffisante, sans quoi ils n'auront aucune chance ! »
 
-« Trop peu de cultivateurs du Système Stellaire Allheaven ont connu des affrontements entre la vie et la mort. C'est le revers de la culture basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés ! »
+« Trop peu de cultivateurs du Système Stellaire Allheaven ont connu des affrontements entre la vie et la mort. C'est le revers de la cultivation basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés ! »
 
 « En observant simplement Xu Mu, vous devriez mieux comprendre que je ne saurais l'expliquer ! »
 

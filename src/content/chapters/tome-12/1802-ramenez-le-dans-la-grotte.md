@@ -42,7 +42,7 @@ Puis, d'un revers de manche, Kang Ren se laissa envelopper par un vent noir. Con
 
 La Secte du Dragon Bleu était située sur une immense chaîne de montagnes entourée de poisons. Les sommets environnants avaient été creusés pour former d'innombrables chambres de pierre servant de grottes.
 
-À l'œil nu, il était difficile de percevoir la fin de cette étendue montagneuse infinie. La secte comptait près de 50 000 disciples, mais la plupart étaient soit en voyage, soit en culture isolée. Hormis les réunions annuelles, les rencontres y étaient rares.
+À l'œil nu, il était difficile de percevoir la fin de cette étendue montagneuse infinie. La secte comptait près de 50 000 disciples, mais la plupart étaient soit en voyage, soit en cultivation isolée. Hormis les réunions annuelles, les rencontres y étaient rares.
 
 Kang Ren fendit l'air tel un rayon de lumière pour rejoindre la secte. Bien que la montagne fût entourée de poisons, ces derniers s'écartaient sur son passage, signe qu'il possédait de quoi se protéger.
 
@@ -82,7 +82,7 @@ Au même moment, sa main gauche traça un sceau qu'il pressa contre le dispositi
 
 La vague de chaleur frappa le corps de Kang Ren, faisant perler instantanément la sueur sur son front.
 
-« Chaque fois que je raffine une marionnette, je dois utiliser le feu terrestre, et il est terriblement brûlant. Seuls les puissants maîtres dotés d'une essence de feu peuvent ne pas être affectés par cette chaleur ; ils peuvent même l'utiliser pour leur culture. »
+« Chaque fois que je raffine une marionnette, je dois utiliser le feu terrestre, et il est terriblement brûlant. Seuls les puissants maîtres dotés d'une essence de feu peuvent ne pas être affectés par cette chaleur ; ils peuvent même l'utiliser pour leur cultivation. »
 
 « Je me demande quand je deviendrai moi aussi un puissant cultivateur... » Les yeux de Kang Ren étaient empreints de convoitise. Il accéléra l'extraction du feu terrestre et commença le processus de raffinage.
 
@@ -94,7 +94,7 @@ Alors que la formation s'activait, à l'extérieur de la grotte, le jeune homme 
 
 Le visage de ce vieil homme était d'un noir violacé, créant un contraste saisissant avec sa chevelure blanche. L'aura d'un cultivateur du stade initial du Nirvana Void émanait de son corps.
 
-« Oses-tu perturber la culture isolée de ce vieux pour une affaire aussi dérisoire ? Même si tu as une rancune personnelle contre Kang Ren... » Tandis que le vieil homme parlait, ses yeux s'illuminèrent et son regard perça la paroi de la grotte où se trouvait Kang Ren.
+« Oses-tu perturber la cultivation isolée de ce vieux pour une affaire aussi dérisoire ? Même si tu as une rancune personnelle contre Kang Ren... » Tandis que le vieil homme parlait, ses yeux s'illuminèrent et son regard perça la paroi de la grotte où se trouvait Kang Ren.
 
 Il avait senti les grondements de la formation utilisée pour le raffinage des marionnettes.
 

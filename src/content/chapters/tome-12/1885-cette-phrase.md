@@ -8,7 +8,7 @@ slug: cette-phrase
 ---
 Chapitre 1885 - Cette phrase !
 
-Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture d'Edge Cloud était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
+Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de cultivation d'Edge Cloud était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de cultivation chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
 Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Sundered Night !
 
@@ -92,7 +92,7 @@ Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué p
 
 « Quelque chose a changé, partez ! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Vert Taureau pour ordonner à Wang Lin de fuir sans tarder !
 
-« Même avec le niveau de culture de l'Ancêtre Vert Taureau, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
+« Même avec le niveau de cultivation de l'Ancêtre Vert Taureau, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
 
 « Une fois parti, cela signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Vert Taureau veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Grande Secte de l'Âme et de la Secte Gui Yi.
 

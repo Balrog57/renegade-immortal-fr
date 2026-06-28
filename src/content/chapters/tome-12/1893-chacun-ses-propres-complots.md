@@ -28,7 +28,7 @@ C'était la seule méthode que Wang Lin ait conçue pour résister face à une t
 
 Le tonnerre grondait dans cet espace verdâtre et d'innombrables éclairs jaillissaient du corps véritable. En s'approchant, il se désintégra en une multitude de foudres qui pénétrèrent le corps de Wang Lin. Sous la volonté du maître du Secte Dao Démoniaque, l'énergie balaya Wang Lin pour effacer son esprit et tout ce qu'il était.
 
-Le temps s'étira, et un mois passa en un éclair. Le tonnerre entourant Wang Lin finit par se dissiper jusqu'à disparaître totalement. Il restait là, immobile, sans aucune fluctuation d'âme ou de culture. Même sa vitalité semblait presque éteinte. Il ressemblait à un mort-vivant.
+Le temps s'étira, et un mois passa en un éclair. Le tonnerre entourant Wang Lin finit par se dissiper jusqu'à disparaître totalement. Il restait là, immobile, sans aucune fluctuation d'âme ou de cultivation. Même sa vitalité semblait presque éteinte. Il ressemblait à un mort-vivant.
 
 Une puissante sensation divine balaya Wang Lin avant de s'éloigner lentement.
 
@@ -76,7 +76,7 @@ Après une longue attente, le corps d'essence de tonnerre ne montrait toujours a
 
 « Gardiens du Démon Vert, tuez-le ! Son esprit est toujours là. Activez la Formation du Démon Vert, nous ne pouvons pas le laisser s'échapper ! » Aussitôt, il battit en retraite, mais ses yeux fixaient Wang Lin avec une lueur sinistre.
 
-Tandis qu'il hurlait, les Messagers du Démon Vert aux côtés de l'homme arborèrent des regards féroces et chargèrent Wang Lin de part et d'autre. En s'approchant, leurs mains formèrent des sceaux et leur culture de milieu du stade de la Tribulation du Vide explosa. Deux scorpions verts géants apparurent, sifflant et rugissant alors qu'ils se précipitaient sur lui.
+Tandis qu'il hurlait, les Messagers du Démon Vert aux côtés de l'homme arborèrent des regards féroces et chargèrent Wang Lin de part et d'autre. En s'approchant, leurs mains formèrent des sceaux et leur cultivation de milieu du stade de la Tribulation du Vide explosa. Deux scorpions verts géants apparurent, sifflant et rugissant alors qu'ils se précipitaient sur lui.
 
 Cela ne ressemblait plus du tout à un test ; il semblait bien qu'ils voulaient réellement la mort de Wang Lin. À cet instant, le seul choix de Wang Lin était d'étendre son esprit dans le corps véritable, d'y ancrer sa volonté et d'activer l'armure spirituelle du Taureau Céleste pour les éliminer tous les trois avant de fuir prestement.
 

@@ -66,7 +66,7 @@ La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la To
 
 À cet instant, la voix antique résonna pour la quatrième fois !
 
-« Le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront emprunter la voie de l'Ordre Antique... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Great Desolation !
+« Le palais céleste contient mon héritage. Une fois que la cultivation des membres de mon clan aura atteint ses limites, ils pourront emprunter la voie de l'Ordre Antique... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Great Desolation !
 
 Au même moment, Great Desolation se précipitait également vers lui.
 

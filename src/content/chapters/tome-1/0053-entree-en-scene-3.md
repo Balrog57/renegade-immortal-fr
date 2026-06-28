@@ -12,7 +12,7 @@ Zhou Peng bouillonnait de rage, pensant qu'il avait fait preuve de négligence a
 
 La force d'attraction de Wang Lin fut déployée à nouveau. Le python émit un gémissement avant de disparaître. La joue droite de Zhou Peng était enflée ; il cracha une bouchée de sang alors qu'il était projeté en arrière une fois de plus.
 
-Dès qu'il eut touché le sol, il chargea de nouveau sur l'estrade. Ses cheveux étaient complètement en désordre. Ignorant le sang au coin de sa bouche, il déchira ses vêtements et retira le talisman jaune collé sur sa poitrine. Sa culture augmenta soudainement et ses cheveux flottèrent dans les airs d'une manière étrange.
+Dès qu'il eut touché le sol, il chargea de nouveau sur l'estrade. Ses cheveux étaient complètement en désordre. Ignorant le sang au coin de sa bouche, il déchira ses vêtements et retira le talisman jaune collé sur sa poitrine. Sa cultivation augmenta soudainement et ses cheveux flottèrent dans les airs d'une manière étrange.
 
 « Wang Lin !!! Ce n'est pas juste ! Je n'utilisais pas ma véritable force ! Battons-nous— »
 
@@ -26,9 +26,9 @@ Huang Long finit par sortir de sa stupeur et son visage s'illumina d'extase. Plu
 
 Sun Dazhu prit une profonde inspiration. Retrouvant peu à peu ses esprits, il songea : « Wang Lin doit posséder un secret. Cette gourde n'était sûrement pas la seule ! Wang Lin, tu m'as bien trompé ! Humph ! »
 
-Dao Xu était stupéfait. La première fois pouvait être considérée comme de la chance, mais les deux affrontements suivants étaient de véritables combats. Ce qui le choqua le plus fut qu'après avoir retiré son talisman jaune, la culture de Zhou Peng avait atteint le douzième niveau — ce qui équivalait à la sienne — et il fut pourtant expulsé de l'estrade d'une simple claque par la technique d'attraction de Wang Lin.
+Dao Xu était stupéfait. La première fois pouvait être considérée comme de la chance, mais les deux affrontements suivants étaient de véritables combats. Ce qui le choqua le plus fut qu'après avoir retiré son talisman jaune, la cultivation de Zhou Peng avait atteint le douzième niveau — ce qui équivalait à la sienne — et il fut pourtant expulsé de l'estrade d'une simple claque par la technique d'attraction de Wang Lin.
 
-À quel niveau ce Wang Lin avait-il atteint ? Il fixa le jeune homme durant un long moment. Peu importe combien de fois il tentait de sonder sa culture avec son Sens Divin, il ne parvenait pas à voir clair en lui.
+À quel niveau ce Wang Lin avait-il atteint ? Il fixa le jeune homme durant un long moment. Peu importe combien de fois il tentait de sonder sa cultivation avec son Sens Divin, il ne parvenait pas à voir clair en lui.
 
 L'Ancien au visage rouge finit par reprendre ses esprits et pensa : « C'est moi qui ai approuvé l'admission de Wang Lin dans la secte. Humph, il semble que mon instinct ne m'ait pas trompé ! »
 
@@ -44,12 +44,12 @@ La femme nommée Xu cligna des yeux à plusieurs reprises en fixant Wang Lin, pu
 
 L'un des disciples intérieurs rit secrètement en observant les disciples alentour : « Ce Wang Lin s'est avéré feindre la faiblesse pour mieux surprendre ses adversaires, tel un porc déguisé pour dévorer un tigre. Trop rusé. Heureusement, je ne l'ai jamais raillé, sinon cela aurait été déplorable. Hehe, je vais pouvoir assister au spectacle de tous ceux qui l'ont tant critiqué. »
 
-Un disciple qui avait beaucoup moqué Wang Lin pensa : « C'est fini ! Je me suis tellement empressé de rire de lui, mais maintenant il pourrait me tuer d'un simple doigt ! Ta culture est déjà si élevée, et pourtant tu fais semblant d'être si faible ! Quel effrontement ! Hélas, ce Wang Lin est connu pour sa rancune parmi les disciples anonymes et on le surnomme le Roi au Cœur Noir. Je devrais aller m'attacher à lui pour gagner ses faveurs plus tard... »
+Un disciple qui avait beaucoup moqué Wang Lin pensa : « C'est fini ! Je me suis tellement empressé de rire de lui, mais maintenant il pourrait me tuer d'un simple doigt ! Ta cultivation est déjà si élevée, et pourtant tu fais semblant d'être si faible ! Quel effrontement ! Hélas, ce Wang Lin est connu pour sa rancune parmi les disciples anonymes et on le surnomme le Roi au Cœur Noir. Je devrais aller m'attacher à lui pour gagner ses faveurs plus tard... »
 
 Un autre disciple qui l'avait souvent raillé pensa nerveusement : « Ce Wang Lin doit être un génie de sang-froid. C'est sûrement pour cela qu'il ne s'est même pas donné la peine de répondre quand j'étais l'objet de mes moqueries ! Cela doit être comme lorsqu'un chien mord une personne : la personne ne mord pas le chien en retour. Oui, c'est certainement cela. Le frère Wang Lin est un génie, comment pourrait-il se soucier d'un homme comme moi ? »
 
 Le troisième frère aîné de la Maison des Pilules prit une inspiration glacée. Son expression était troublée : « C'est mauvais signe. J'ai entendu dire que ce type et Wang Hao sont parents et qu'ils entretiennent de bonnes relations... Comment gérer cela ? Si c'était il y a trois jours, j'aurais pu laisser passer Wang Hao sans l'offenser, mais maintenant... ah, Wang Hao est déjà dans une position compromise. S'il va voir Wang Hao, je devrai affronter sa colère... Ce Wang Hao ne peut pas rester en vie ! Si je le laisse partir, il pourrait revenir pour se venger ! Une fois l'échange terminé, j'irai le tuer et je prétendrai qu'il est mort d'une autre cause ! »
 
-Lu Song baissa la tête et regarda ses vêtements violets. Il eut un rire amer : « Les disciples intérieurs de la Secte Heng Yue vont connaître un grand bouleversement. Ce Wang Lin n'est pas simple. Ses stratagèmes sont profonds. Il a probablement caché sa culture uniquement pour aujourd'hui. Hehe, je crains que le nom de Wang Lin ne se répande bientôt dans tout le monde de la culture de l'État de Zhao. Je dois faire de lui un ami et non un ennemi ! » Sur cette pensée, il décida de la manière dont il traiterait Wang Lin à l'avenir.
+Lu Song baissa la tête et regarda ses vêtements violets. Il eut un rire amer : « Les disciples intérieurs de la Secte Heng Yue vont connaître un grand bouleversement. Ce Wang Lin n'est pas simple. Ses stratagèmes sont profonds. Il a probablement caché sa cultivation uniquement pour aujourd'hui. Hehe, je crains que le nom de Wang Lin ne se répande bientôt dans tout le monde de la cultivation de l'État de Zhao. Je dois faire de lui un ami et non un ennemi ! » Sur cette pensée, il décida de la manière dont il traiterait Wang Lin à l'avenir.
 
 Le visage de Zhang Kuang était empreint d'amertume. Lorsqu'il avait obtenu l'eau spirituelle, il avait simplement pensé qu'il s'agissait d'une eau riche en énergie spirituelle, et n'avait donc pas cherché à poursuivre Wang Lin.

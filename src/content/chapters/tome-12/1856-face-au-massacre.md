@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1856 - Facing slaughter
 slug: face-au-massacre
 ---
-Dans le monde de la culture, les forts étaient respectés. Le niveau de culture de Wang Lin n'était pas vraiment élevé ; il était donc logique que ces trois individus ne lui accordent aucune attention. Les autres, témoins de cette scène, tirèrent naturellement leurs propres conclusions.
+Dans le monde de la cultivation, les forts étaient respectés. Le niveau de cultivation de Wang Lin n'était pas vraiment élevé ; il était donc logique que ces trois individus ne lui accordent aucune attention. Les autres, témoins de cette scène, tirèrent naturellement leurs propres conclusions.
 
-Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement chercher une grotte isolée pour se retirer en culture.
+Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement chercher une grotte isolée pour se retirer en cultivation.
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
@@ -54,7 +54,7 @@ Si les cultivateurs du Continent du Démon Vert voulaient briser la barrière, i
 
 Bientôt, le ciel serein de la Prairie du Ciel Extrême serait obscurci par les cultivateurs du Continent du Démon Vert.
 
-Yan Lu choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la force principale de la défense.
+Yan Lu choisit également d'entrer en cultivation fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la force principale de la défense.
 
 En réalité, quatre autres personnes parmi les 10 000 cultivateurs se trouvaient au stade initial de la Tribulation du Vide. Bien qu'issus de petites sectes ou étant des cultivateurs renegats, leur importance était capitale ; ils furent invités dans les palais en tant que forces décisives de cette bataille !
 
@@ -66,9 +66,9 @@ En vérité, compte tenu de son identité, Wang Lin aurait pu choisir un palais 
 
 Assis là, il cultivait lentement, laissant son Sens Divin se propager avec parcimonie. Profitant de ce temps, il affina le parapluie bleu et l'Origine du Fantôme de l'Âme à un niveau plus profond.
 
-Il sortit également la restriction du compas et la déploya sur la prairie. Cet objet était d'un mystère extrême ; même en le dispersant, nul ne s'en aperçut, pas même Lu Wenran, qui possédait le niveau de culture le plus élevé ici.
+Il sortit également la restriction du compas et la déploya sur la prairie. Cet objet était d'un mystère extrême ; même en le dispersant, nul ne s'en aperçut, pas même Lu Wenran, qui possédait le niveau de cultivation le plus élevé ici.
 
-Les jours défilèrent sans compter. Hormis les bruits sourds de la culture, un silence de mort régnait entre les palais et les grottes.
+Les jours défilèrent sans compter. Hormis les bruits sourds de la cultivation, un silence de mort régnait entre les palais et les grottes.
 
 Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trembla. Une ligne verte apparut brusquement sur la carte de la Prairie du Ciel Extrême.
 
@@ -78,7 +78,7 @@ Cette ligne était composée d'innombrables points verts qui se multipliaient à
 
 Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent du Démon Vert, Lu Wenran ouvrit les yeux, le regard glacial.
 
-« Compagnons de culture, les envahisseurs du Continent du Démon Vert sont là ! » Sa voix résonna à travers le complexe de palais.
+« Compagnons de cultivation, les envahisseurs du Continent du Démon Vert sont là ! » Sa voix résonna à travers le complexe de palais.
 
 L'aura de méditation se dissipa et tous les cultivateurs présents ouvrirent les yeux.
 
@@ -88,7 +88,7 @@ Un hurlement terrifiant déchira le ciel de la Prairie du Ciel Extrême. Plus de
 
 Parmi cette légion, six individus étaient les plus rapides.
 
-Ces six guerriers comprenaient quatre hommes et deux femmes. Vêtus de façon extravagante, leur niveau de culture représentait le sommet du Continent du Démon Vert ! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 hommes.
+Ces six guerriers comprenaient quatre hommes et deux femmes. Vêtus de façon extravagante, leur niveau de cultivation représentait le sommet du Continent du Démon Vert ! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 hommes.
 
 Les quatre autres se situaient au stade initial de la Tribulation du Vide.
 
@@ -98,7 +98,7 @@ Ils chargèrent en tête, suivis par le reste de l'armée qui couvrait le ciel d
 
 « L'idée est excellente, frère Zhao. J'ai entendu dire que cette formation peut engendrer l'âme du Taureau Céleste. Je brûle d'envie de voir à quoi elle ressemble ! » Le vieillard nommé Zhang sourit et hocha la tête. À leur niveau, ils avaient tout vu et ne mourraient pas si facilement. Pour eux, cette invasion n'était qu'un jeu.
 
-Sur le plan mental, ils surpassaient Lu Wenran, mais un fossé immense les séparait encore du Souverain Céleste aux Sept Couleurs. Bien que leurs niveaux de culture fussent comparables, leur courage et leur sérénité faisaient défaut.
+Sur le plan mental, ils surpassaient Lu Wenran, mais un fossé immense les séparait encore du Souverain Céleste aux Sept Couleurs. Bien que leurs niveaux de cultivation fussent comparables, leur courage et leur sérénité faisaient défaut.
 
 Tout en parlant, ils levèrent la main droite et formèrent des sceaux avant de les pointer vers la prairie. La terre trembla et des strates de nuages s'élevèrent pour former un géant de 100 000 pieds qui chargea en avant.
 

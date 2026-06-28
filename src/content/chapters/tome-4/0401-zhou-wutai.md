@@ -70,9 +70,9 @@ Un homme robuste vêtu de violet et portant un chapeau de paille marchait dans s
 
 Sa voix précéda son corps : « Dame Liu Mei, votre adversaire, c'est moi ! »
 
-La femme en robe violette regarda l'homme corpulent et murmura : « Posséder le chapeau de paille de l'Oncle Martial Yunque signifie que vous êtes l'un des quatre candidats qu'il a choisis. Cependant, avec votre simple culture au stade intermédiaire de la Formation de l'Âme, vous ne pourrez pas m'arrêter. »
+La femme en robe violette regarda l'homme corpulent et murmura : « Posséder le chapeau de paille de l'Oncle Martial Yunque signifie que vous êtes l'un des quatre candidats qu'il a choisis. Cependant, avec votre simple cultivation au stade intermédiaire de la Formation de l'Âme, vous ne pourrez pas m'arrêter. »
 
-L'homme robuste éclata de rire : « La culture de Dame Liu Mei est bien trop élevée pour moi, mais je ne peux ignorer les ordres du Senior Yunque. Que diriez-vous de partager un verre avec moi ? Ainsi, je pourrai partir en disant que je n'ai pas désobéi aux ordres. »
+L'homme robuste éclata de rire : « La cultivation de Dame Liu Mei est bien trop élevée pour moi, mais je ne peux ignorer les ordres du Senior Yunque. Que diriez-vous de partager un verre avec moi ? Ainsi, je pourrai partir en disant que je n'ai pas désobéi aux ordres. »
 
 La femme ramena une mèche de cheveux derrière son oreille et esquissa un sourire magnifique. « Vous êtes une personne intéressante, mais vous devrez attendre que j'aie d'abord secouru l'ancêtre du Clan des Démons Géants ; alors seulement, je boirai avec vous. »
 

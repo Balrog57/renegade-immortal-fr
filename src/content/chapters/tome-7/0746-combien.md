@@ -10,7 +10,7 @@ L'expression de Wang Lin devint sombre et ses pupilles se rétractèrent lorsqu'
 
 Après tout, le simple tonnerre qu'elle dégageait contenait une trace de tonnerre céleste ; il était donc inutile de mentionner l'intégralité de la chaîne.
 
-Il ne percevait aucune indication du niveau de culture du vieil homme, mais il pouvait imaginer qu'il était extrêmement élevé. De plus, il ressentait vaguement émaner de cet homme un sentiment de retour à l'origine.
+Il ne percevait aucune indication du niveau de cultivation du vieil homme, mais il pouvait imaginer qu'il était extrêmement élevé. De plus, il ressentait vaguement émaner de cet homme un sentiment de retour à l'origine.
 
 Inconsciemment, Wang Lin recula de quelques pas. Il ne connaissait absolument pas ce vieil homme ; par conséquent, la personne prédestinée n'était probablement pas lui. Son regard se détourna et se posa sur Li Yuan.
 
@@ -26,7 +26,7 @@ L'expression de Wang Lin changea instantanément. Il regarda l'ancien et, après
 
 Le vieil homme afficha un air d'impatience et fit un pas en avant. Sa main se tendit vers Wang Lin alors qu'il disait : « Quelles sont toutes ces bêtises ? Si ce vieux dit que tu es lié par le destin, alors c'est le cas ! »
 
-L'expression de Wang Lin devint lugubre et il recula précipitamment. Ne pouvant percer le niveau de culture de cet homme, il était incapable de l'affronter et ne pouvait que fuir !
+L'expression de Wang Lin devint lugubre et il recula précipitamment. Ne pouvant percer le niveau de cultivation de cet homme, il était incapable de l'affronter et ne pouvait que fuir !
 
 Le vieil homme esquissa un sourire malicieux et tendit la main. En un instant, une zone de cinq kilomètres fut saturée d'une force colossale. Cette puissance était tout simplement démesurée et contenait une quantité inimaginable d'énergie originelle.
 
@@ -48,7 +48,7 @@ Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à trente pie
 
 Le vieil homme regarda Wang Lin et sourit : « Pourquoi ne cours-tu pas ? »
 
-Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueusement : « Je ne sais pas ce que Senior désire, mais le niveau de culture de Junior n'est pas assez élevé pour répondre aux exigences de Senior. »
+Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueusement : « Je ne sais pas ce que Senior désire, mais le niveau de cultivation de Junior n'est pas assez élevé pour répondre aux exigences de Senior. »
 
 Le regard du vieil homme se posa sur le sac de Wang Lin et il dit : « Aucun problème. Tu ne peux pas m'aider, mais la Bête de Tonnerre à l'intérieur de ton sac, si. Laisse ce vieux l'emprunter un moment, je te la rendrai ensuite. »
 
@@ -56,9 +56,9 @@ Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce q
 
 La Bête de Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'était la première fois qu'elle manifestait un tel comportement.
 
-Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria : « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un junior ? »
+Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria : « Avec la cultivation de Senior, comment peut-il ainsi s'emparer des possessions d'un junior ? »
 
-Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration : « Tu veux une compensation ? Intéressant, mais je ne peux pas utiliser la Bête de Tonnerre de ce vieux en vain ! » Il regarda Wang Lin et ajouta : « Ta culture est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça ? Laisse ce vieux te donner un coup de main ! »
+Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration : « Tu veux une compensation ? Intéressant, mais je ne peux pas utiliser la Bête de Tonnerre de ce vieux en vain ! » Il regarda Wang Lin et ajouta : « Ta cultivation est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça ? Laisse ce vieux te donner un coup de main ! »
 
 La main droite de l'ancien s'avança et une grande quantité de poussière se rassembla dans sa paume pour former une sphère de lumière. Il cracha ensuite une bouffée d'énergie dans la sphère et la projeta sans même regarder. La boule de lumière fila droit sur Wang Lin.
 

@@ -78,7 +78,7 @@ Il s'adressa immédiatement à Situ Nan : « Senior Situ, existe-t-il un moyen d
 
 Situ Nan répondit calmement : « Il y en a un... mais... »
 
-Wang Lin fronça les sourcils et trancha d'un ton grave : « Si Zhou Peng s'échappe, je prendrai mes parents et nous partirons loin d'ici. Quant à la culture, j'abandonnerai tout pour vivre comme un simple mortel. »
+Wang Lin fronça les sourcils et trancha d'un ton grave : « Si Zhou Peng s'échappe, je prendrai mes parents et nous partirons loin d'ici. Quant à la cultivation, j'abandonnerai tout pour vivre comme un simple mortel. »
 
 Situ Nan rétorqua aussitôt : « Pourquoi es-tu si pressé ? Je prenais juste mon temps pour parler. Si j'étais le moi d'autrefois, je t'aurais tué d'une seule gifle pour ton manque de respect envers ton disciple ! »
 

@@ -26,7 +26,7 @@ Wang Lin esquissa un léger sourire et passa son bras autour de la taille de Li 
 
 Resté en retrait derrière Wang Lin et Li Muwan, Lu Fei soupira : « Il semble que la rumeur selon laquelle l'Aînée Li avait vécu un temps dans la Mer des Diables soit vraie. »
 
-Tie Yan répondit : « C'est peut-être ainsi que le Maître de Secte et l'Aînée Li se sont rencontrés. Frère Lu, il semble que votre culture se soit un peu améliorée. »
+Tie Yan répondit : « C'est peut-être ainsi que le Maître de Secte et l'Aînée Li se sont rencontrés. Frère Lu, il semble que votre cultivation se soit un peu améliorée. »
 
 Lu Fei sourit : « Je ne peux m'approcher de la pagode qu'à mille pieds environ. Je suis encore très loin du compte. »
 
@@ -106,7 +106,7 @@ Mais ce qui choqua le plus l'assemblée, ce fut Lu Fei et Tie Yan !
 
 Des cultivateurs du stade avancé de l'Âme Naissante !
 
-Même dans la Mer des Diables, les cultivateurs de ce niveau étaient rares. Dans la grande salle même, moins de cinq personnes avaient atteint une telle culture.
+Même dans la Mer des Diables, les cultivateurs de ce niveau étaient rares. Dans la grande salle même, moins de cinq personnes avaient atteint une telle cultivation.
 
 Où que ce soit dans la Mer des Diables, ces individus étaient le genre de personnes capables de provoquer un séisme d'un simple pas.
 
@@ -136,7 +136,7 @@ L'homme prit une profonde inspiration et entra rapidement.
 
 Après un long moment, il ressortit. Son expression était redevenue normale et il retourna en bas pour reprendre ses conversations. Tous tentèrent d'obtenir des informations sur Wang Lin, mais l'homme se contentait d'esquiver les questions.
 
-À ce même instant, à 10 000 kilomètres de la ville de Devil Rebel, dans une grotte souterraine, un vieil homme était assis. Alors qu'il était plongé dans sa culture, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
+À ce même instant, à 10 000 kilomètres de la ville de Devil Rebel, dans une grotte souterraine, un vieil homme était assis. Alors qu'il était plongé dans sa cultivation, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
 
 Cette jeune fille possédait une grâce singulière et des yeux d'un charme irrésistible.
 

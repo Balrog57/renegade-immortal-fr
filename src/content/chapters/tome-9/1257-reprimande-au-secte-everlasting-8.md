@@ -16,7 +16,7 @@ Ce coup d'estoc psychologique lui laissait un goût amer. Il retourna vers le se
 
 Yin Yue était également pâle ; elle mordit sa lèvre inférieure et joignit les mains devant Wang Lin avant de se détourner, l'allure tout aussi défaite sous la pluie.
 
-Mu Bingmei observait la scène, stupéfaite. Elle pensait être celle qui comprenait le mieux la culture de Wang Lin, mais elle réalisait à présent que sa compréhension de lui était dérisoire.
+Mu Bingmei observait la scène, stupéfaite. Elle pensait être celle qui comprenait le mieux la cultivation de Wang Lin, mais elle réalisait à présent que sa compréhension de lui était dérisoire.
 
 « Cent ans... Je n'aurais jamais imaginé qu'il deviendrait aussi puissant ! » Le regard de Mu Bingmei se posa sur Wang Lin et, à cet instant, il lui sembla devenu un étranger. Ses cheveux blancs et sa robe immaculée ne faisaient qu'accentuer l'amertume dans son cœur.
 
@@ -28,7 +28,7 @@ Li Qianmei n'aurait pas non plus cru que Wang Lin pourrait la bouleverser ainsi 
 
 Quant à Wang Shanshan, elle poussa un long soupir de stupeur. Elle connaissait parfaitement le sort d'extraction de l'âme planétaire pour l'avoir vu son maître l'utiliser. Son maître avait affirmé qu'il n'y avait pas plus de trois personnes dans la Mer des Nuages capables de réaliser une telle prouesse !
 
-Au-dessus de l'âme de la planète se trouvait l'âme du vide, représentant l'âme du système stellaire lui-même. Le sort permettant d'extraire l'âme d'un système stellaire appartenait au troisième niveau de culture. Son maître avait dit que parmi les cultivateurs du deuxième niveau, une légende des temps anciens existait.
+Au-dessus de l'âme de la planète se trouvait l'âme du vide, représentant l'âme du système stellaire lui-même. Le sort permettant d'extraire l'âme d'un système stellaire appartenait au troisième niveau de cultivation. Son maître avait dit que parmi les cultivateurs du deuxième niveau, une légende des temps anciens existait.
 
 Cette légende évoquait quatre grands sorts qu'un cultivateur du deuxième niveau pouvait acquérir en comprenant les lois célestes. Deux de ces quatre sorts étaient l'extraction de l'âme planétaire et la manipulation spatiale !
 
@@ -36,11 +36,11 @@ Ces sorts ne s'apprenaient pas, ils se comprenaient par la seule grâce de la fo
 
 Le silence perdura après le départ de Du Lin et Yin Yue, comme si personne n'osait rompre cette éternité de mutisme.
 
-Les anciens du Sect Everlasting regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse du Doigt du Destin Céleste, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
+Les anciens du Sect Everlasting regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa cultivation ou de ses sorts. Qu'il s'agisse du Doigt du Destin Céleste, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
 
 Ils ignoraient de quels sorts Wang Lin disposait, mais ils pressentaient que ce qu'il venait de montrer n'était pas sa limite. Trop de secrets et de surprises fracassantes sommeillaient encore en lui.
 
-« Quelqu'un d'autre de la région de rang 7 ose-t-il se mesurer à moi ? » Wang Lin agita la main droite et l'aura antique se dissipa lentement, comme si l'âme était rendue à la planète de culture.
+« Quelqu'un d'autre de la région de rang 7 ose-t-il se mesurer à moi ? » Wang Lin agita la main droite et l'aura antique se dissipa lentement, comme si l'âme était rendue à la planète de cultivation.
 
 La terre trembla légèrement avant de retrouver son calme. Tout semblait n'avoir été qu'une illusion, un mirage qui ne s'était jamais produit.
 
@@ -72,9 +72,9 @@ Les cultivateurs aux alentours de la plateforme furent frappés par un vent hurl
 
 Le regard de Li Qianmei se glaça et une intention meurtrière jaillit de son corps. Elle s'apprêtait à s'élancer dans cette pression pour secourir Wang Lin. Cependant, à l'instant où son aura apparut, le vieil homme leva la main et fit un geste de balayage. Une pression écrasante repoussa l'intention meurtrière et la comprima à peine à sept pouces de son corps !
 
-Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa culture de Briseur de Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa culture impossible.
+Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa cultivation de Briseur de Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa cultivation impossible.
 
-La puissance du Maître du Sect Everlasting était désormais révélée au monde. Être capable de diriger un sect de rang 8 signifiait que sa culture dépassait l'entendement !
+La puissance du Maître du Sect Everlasting était désormais révélée au monde. Être capable de diriger un sect de rang 8 signifiait que sa cultivation dépassait l'entendement !
 
 Le visage de Mu Bingmei pâlit. Elle percevait l'intention meurtrière tapie dans la pression du Maître du Sect. Bien qu'il s'agisse probablement d'un simulacre, cette inquiétude troublait son esprit. N'ayant pas le temps de réfléchir, elle forma un sceau étrange, un sort transmis par des générations de Saintesses du Vide Brillant.
 
@@ -86,7 +86,7 @@ Cette scène stupéfia le vieil homme en blanc. À ce moment, Li Qianmei libéra
 
 Un jade apparut devant elle. C'était le jade que l'être mystérieux de la Secte Démoniaque lui avait offert !
 
-Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élançaient, Wang Lin leva son pied droit et fit un pas en avant. À cet instant, il fusionna avec le monde, devenant une entité unique avec la planète de culture. Une aura antique imprégna tout son être.
+Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élançaient, Wang Lin leva son pied droit et fit un pas en avant. À cet instant, il fusionna avec le monde, devenant une entité unique avec la planète de cultivation. Une aura antique imprégna tout son être.
 
 « Nul besoin que vous interveniez. » Alors qu'il avançait, il agita la main et une énergie à la fois puissante et douce enveloppa Li Qianmei et Mu Bingmei, les forçant à s'arrêter.
 

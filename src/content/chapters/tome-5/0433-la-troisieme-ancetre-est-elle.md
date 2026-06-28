@@ -24,7 +24,7 @@ Ces figures étaient entièrement composées de plantes et dégageaient une aura
 
 « Étranger, quitte cet endroit ! » Une voix sans genre s'échappa de la bouche de ces plantes et résonna dans toute la couche.
 
-Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la culture d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard des Mille Milliards d'Âmes apparut dans sa paume.
+Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la cultivation d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard des Mille Milliards d'Âmes apparut dans sa paume.
 
 Wang Lin murmura : « Âmes, dispersez-vous ! »
 
@@ -80,17 +80,17 @@ De la sixième à la dixième couche, Wang Lin fit une récolte prodigieuse. S'i
 
 Logiquement, ces pierres étaient inutiles pour eux. Leur pouvoir de tatouage provenait de bêtes démoniaques, les pierres spirituelles n'auraient donc dû présenter aucun intérêt.
 
-Bien que les pierres spirituelles ne captivent plus vraiment l'attention de Wang Lin, elles demeuraient une monnaie d'échange entre cultivateurs ; plus il en avait, mieux c'était. En chemin, il en collecta une quantité colossale. Même pour une secte d'un pays de culture de rang 4, cette réserve suffirait à la faire subsister pendant mille ans.
+Bien que les pierres spirituelles ne captivent plus vraiment l'attention de Wang Lin, elles demeuraient une monnaie d'échange entre cultivateurs ; plus il en avait, mieux c'était. En chemin, il en collecta une quantité colossale. Même pour une secte d'un pays de cultivation de rang 4, cette réserve suffirait à la faire subsister pendant mille ans.
 
 Mais comparés à ces pierres, les crânes des shamans à huit feuilles suscitaient un intérêt bien plus vif. Chaque crâne portait un tatouage unique et l'aura qui s'en dégageait correspondait à celle d'un cultivateur de la Transformation de l'Âme.
 
 Wang Lin pressentait que ces crânes n'étaient pas ordinaires et valaient bien plus que les pierres spirituelles.
 
-Son intuition était juste. Sur la planète Tian Yun, les essences de ceux utilisant des pouvoirs différents de la culture traditionnelle possédaient une valeur immense. L'essence des membres du Clan des Immortels Délaissés résidait dans leurs crânes. En utilisant une technique secrète, on pouvait extraire le tatouage du crâne pour en acquérir le pouvoir.
+Son intuition était juste. Sur la planète Tian Yun, les essences de ceux utilisant des pouvoirs différents de la cultivation traditionnelle possédaient une valeur immense. L'essence des membres du Clan des Immortels Délaissés résidait dans leurs crânes. En utilisant une technique secrète, on pouvait extraire le tatouage du crâne pour en acquérir le pouvoir.
 
 Et si l'on parvenait à obtenir le crâne d'un shaman à neuf feuilles ou plus, sa valeur devenait inestimable !
 
-Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance de la Culture. L'Alliance ne les élimine pas, mais les capture d'une certaine manière : elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
+Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance de la Cultivation. L'Alliance ne les élimine pas, mais les capture d'une certaine manière : elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
 
 Pour élever une race en captivité, il faut naturellement la nourrir...
 

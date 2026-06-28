@@ -10,7 +10,7 @@ Le vieil homme regarda Wang Lin et dit nonchalamment : « À l'instar de la plan
 
 Les yeux de Wang Lin restèrent calmes alors qu'il demandait lentement : « Quand les Portes Célestes s'ouvriront-elles ? »
 
-Le vieil homme eut un rire et demanda : « Quoi ? Es-tu tenté ? En vérité, avec ton niveau de culture, bien que ce soit dangereux, tant que tu restes prudent, tu n'as pas trop à t'inquiéter. Après tout, plus ta culture est élevée, plus la restriction qui pèse sur toi l'est aussi. »
+Le vieil homme eut un rire et demanda : « Quoi ? Es-tu tenté ? En vérité, avec ton niveau de cultivation, bien que ce soit dangereux, tant que tu restes prudent, tu n'as pas trop à t'inquiéter. Après tout, plus ta cultivation est élevée, plus la restriction qui pèse sur toi l'est aussi. »
 
 Wang Lin leva la tête et demanda au vieil homme : « Pourquoi en est-il ainsi ? »
 
@@ -36,7 +36,7 @@ Sur ces mots, le vieil homme jeta la sculpture sur le côté et répéta à Wang
 
 Wang Lin remarqua ce changement soudain et sentit l'énergie spirituelle de la zone se mettre à circuler d'une manière particulière. Soudain, il ressentit un sentiment de danger imminent.
 
-Wang Lin avait toujours eu des conjectures sur le niveau de culture du vieil homme, mais à cet instant, son estimation augmenta encore.
+Wang Lin avait toujours eu des conjectures sur le niveau de cultivation du vieil homme, mais à cet instant, son estimation augmenta encore.
 
 Il regarda le vieil homme tout en saisissant un autre morceau de bois. Cette fois, sa main se déplaça comme l'éclair. Il mit deux fois moins de temps pour achever cette sculpture.
 
@@ -92,6 +92,6 @@ En temps normal, lors des grands affrontements, les cultivateurs évitaient d'af
 
 Ce phénomène n'avait qu'une seule interprétation : Xue Yu prévoyait d'anéantir l'Alliance des Quatre Sectes en déclenchant une guerre visant l'extermination complète du pays.
 
-Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination : trois impliquant des pays de culture de rang 4 et une impliquant un pays de rang 5.
+Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination : trois impliquant des pays de cultivation de rang 4 et une impliquant un pays de rang 5.
 
 Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait que Xue Yue avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.

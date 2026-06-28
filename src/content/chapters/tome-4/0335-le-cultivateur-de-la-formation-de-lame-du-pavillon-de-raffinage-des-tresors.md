@@ -12,7 +12,7 @@ Depuis cette pièce, il suffisait de regarder en bas pour apercevoir l'immense s
 
 Wang Lin et Li Muwan discutaient tranquillement. De temps à autre, Li Muwan esquissait un sourire, laissant transparaître une expression de tendresse et de satisfaction.
 
-Lu Fei et Tie Yan étaient assis en tailleur près de la porte, tous deux en pleine culture.
+Lu Fei et Tie Yan étaient assis en tailleur près de la porte, tous deux en pleine cultivation.
 
 À un moment donné, Wang Lin leur avait prodigué quelques conseils, les inspirant à cultiver avec encore plus d'ardeur. Ils passaient presque tout leur temps ici à pratiquer. Selon Wang Lin, ce n'est qu'après avoir apaisé le chaos de leur énergie spirituelle qu'ils pourraient commencer à appréhender l'étape de la Formation de l'Âme.
 
@@ -106,7 +106,7 @@ Les yeux du vieillard étaient remplis d'incrédulité. Il fixa Wang Lin longuem
 
 Il se rappelait désormais. À l'époque, il avait croisé Wang Lin et Qiu Siping et avait immédiatement décelé une puissance étrange en Wang Lin. Cela ressemblait au légendaire Domaine Ji, ce qui avait éveillé sa cupidité. Il avait voulu forcer Wang Lin à devenir son disciple pour tenter d'extraire le Domaine Ji.
 
-Cependant, il n'avait jamais imaginé qu'après des centaines d'années, cet homme atteindrait la Formation de l'Âme, le même niveau de culture que lui. Ses ambitions passées s'étaient instantanément envolées.
+Cependant, il n'avait jamais imaginé qu'après des centaines d'années, cet homme atteindrait la Formation de l'Âme, le même niveau de cultivation que lui. Ses ambitions passées s'étaient instantanément envolées.
 
 Qiu Siping était totalement abasourdi par ses souvenirs. Wang Lin était resté un cran au-dessus de lui.
 

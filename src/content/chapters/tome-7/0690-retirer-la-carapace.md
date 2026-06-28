@@ -22,7 +22,7 @@ Wang Ping avait désormais dix ans ; pourtant, comparé aux autres enfants du vi
 
 Cette grande tempête de neige rendait la journée particulièrement glaciale. Sun Tai était assis paisiblement dans la cour. Vêtu d'un manteau épais, il contemplait le ciel, les yeux emplis de nostalgie. À ses côtés, Wang Ping, lui aussi emmitouflé dans un manteau épais, regardait le ciel d'un air absent.
 
-« Ping Er, pourquoi es-tu venu rendre visite à ce vieil homme au lieu d'accompagner ton père ? » Les yeux de Sun Tai brillaient de bienveillance. Il aimait véritablement cet enfant du plus profond de son cœur. S'il n'avait pas eu Wang Lin pour lui interdire de laisser l'enfant pratiquer la culture, il lui aurait réellement enseigné tout ce qu'il savait.
+« Ping Er, pourquoi es-tu venu rendre visite à ce vieil homme au lieu d'accompagner ton père ? » Les yeux de Sun Tai brillaient de bienveillance. Il aimait véritablement cet enfant du plus profond de son cœur. S'il n'avait pas eu Wang Lin pour lui interdire de laisser l'enfant pratiquer la cultivation, il lui aurait réellement enseigné tout ce qu'il savait.
 
 Wang Ping fit la moue et répondit avec mécontentement : « Je ne veux pas y retourner, Tante Zhang est encore là. »
 

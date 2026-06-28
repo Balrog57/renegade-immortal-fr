@@ -22,7 +22,7 @@ L'aura de bêtes féroces convergeait vers leur position.
 
 Wang Lin utilisait presque toute sa vitesse, avançant tel un rayon de lumière perçant l'espace. Il fusionnait parfois avec le monde pour accélérer encore davantage.
 
-« Par ici ! » Fan Shanlu était légèrement plus rapide que Wang Lin. Son niveau de culture était extrêmement élevé et, bien qu'elle fût blessée, elle avait réussi à contenir une grande partie de ses lésions au fil des ans.
+« Par ici ! » Fan Shanlu était légèrement plus rapide que Wang Lin. Son niveau de cultivation était extrêmement élevé et, bien qu'elle fût blessée, elle avait réussi à contenir une grande partie de ses lésions au fil des ans.
 
 En un éclair, elle dépassa Wang Lin pour ouvrir la voie. Elle ne fonça pas en ligne droite mais bifurqua dans une autre direction. Les yeux de Wang Lin s'illuminèrent et il la suivit sans l'ombre d'une hésitation.
 

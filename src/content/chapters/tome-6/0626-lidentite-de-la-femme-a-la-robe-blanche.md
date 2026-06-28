@@ -24,7 +24,7 @@ La deuxième partie détaillait la méthode pour créer des gardiens célestes. 
 
 Une remarque était également gravée dans le jade : « Mon père a placé une restriction de lignée sur ce jade. Sans votre propre sang, il est impossible de briser son sceau. »
 
-Cependant, ce jade existait depuis bien trop longtemps ; assez longtemps pour que, même avec la puissante culture de son propriétaire, le passage des âges ne puisse être totalement compensé. La restriction de la première section avait disparu, et celle de la deuxième s'était considérablement affaiblie. Seule la restriction de la dernière partie était restée parfaitement intacte.
+Cependant, ce jade existait depuis bien trop longtemps ; assez longtemps pour que, même avec la puissante cultivation de son propriétaire, le passage des âges ne puisse être totalement compensé. La restriction de la première section avait disparu, et celle de la deuxième s'était considérablement affaiblie. Seule la restriction de la dernière partie était restée parfaitement intacte.
 
 « Parmi les trois trésors célestes, je n'en vois que deux. Le Fourreau Spirituel est absent... Ces objets furent offerts à une femme nommée Qin Shuang. Si son nom est Qin, alors son père est... »
 
@@ -58,7 +58,7 @@ Le temps s'écoula lentement. Wang Lin resta immergé dans les secrets du jade p
 
 Le vieil homme chétif s'était réveillé le deuxième jour suivant l'immersion de Wang Lin. Cependant, la Formation d'Épées aux Trois Talents l'encerclait toujours. Des rafales d'énergie glaciale pénétraient son corps par les pointes des lames, l'empêchant de bouger d'un pouce.
 
-Avec sa culture, il pouvait vaguement percevoir que le mystère de cette formation ne résidait pas dans les épées elles-mêmes, mais dans la force mystérieuse qui les animait. En outre, Xu Liguo le surveillait. Ce dernier flottait nonchalamment autour du vieil homme, affichant par intermittence un sourire glacial tout en agitant sa lame noire devant lui.
+Avec sa cultivation, il pouvait vaguement percevoir que le mystère de cette formation ne résidait pas dans les épées elles-mêmes, mais dans la force mystérieuse qui les animait. En outre, Xu Liguo le surveillait. Ce dernier flottait nonchalamment autour du vieil homme, affichant par intermittence un sourire glacial tout en agitant sa lame noire devant lui.
 
 Quelques jours plus tard, le Sens Divin de Wang Lin émergea du jade. Il ouvrit les yeux et laissa échapper un long soupir.
 
@@ -84,7 +84,7 @@ Une fois le fragment récupéré, l'âme originelle du vieil homme fut projetée
 
 L'une des raisons pour lesquelles il l'avait jeté à la bannière de l'âme était d'éviter le gaspillage : après tout, il s'agissait d'une âme originelle au stade de la Transformation de l'Âme. L'autre raison était l'intérêt de Wang Lin pour la grotte que le vieillard avait découverte.
 
-Toutefois, Wang Lin savait qu'il n'était pas temps de partir. L'essentiel était d'utiliser les quelques décennies restantes pour porter sa culture et ses trésors magiques vers un nouveau sommet. Il devait se préparer pour l'accord centenaire conclu avec l'Ancien Démon.
+Toutefois, Wang Lin savait qu'il n'était pas temps de partir. L'essentiel était d'utiliser les quelques décennies restantes pour porter sa cultivation et ses trésors magiques vers un nouveau sommet. Il devait se préparer pour l'accord centenaire conclu avec l'Ancien Démon.
 
 Cela était d'autant plus vrai pour les deux nouveaux trésors et le sort céleste de basse qualité qu'il venait d'obtenir !
 

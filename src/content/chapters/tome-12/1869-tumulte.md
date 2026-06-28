@@ -18,11 +18,11 @@ Même s'il possédait neuf essences et atteignait le stade précoce de l'Arcane 
 
 Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé de l'Arcane Vide, ou son Dao Ancestral devrait traverser la dernière épreuve !
 
-Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la culture — d'autres facteurs entraient parfois en jeu !
+Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la cultivation — d'autres facteurs entraient parfois en jeu !
 
 Pourtant, à cet instant précis, il n'avait aucune préparation face à un ancien monstre du stade intermédiaire de la Tribulation du Vide qui le pourchassait. Le monde lui-même avait été scellé, l'empêchant de s'échapper, et il faudrait du temps pour briser ce sceau. Une fois que l'ancien monstre le rattraperait, il mourrait sans aucun doute !
 
-En cette situation critique, la pleine culture de Wang Lin s'activa et il pénétra dans le roi moustique. La vitesse de ce dernier augmenta considérablement alors qu'il chargeait en avant.
+En cette situation critique, la pleine cultivation de Wang Lin s'activa et il pénétra dans le roi moustique. La vitesse de ce dernier augmenta considérablement alors qu'il chargeait en avant.
 
 Derrière lui, Zhang Daozong suivait calmement, mais une intention meurtrière monstrueuse se cachait dans ses yeux.
 
@@ -82,7 +82,7 @@ Cependant, le monde étant scellé, il ne pouvait pas se téléporter ; tout dé
 
 Au loin, un rayon de lumière verte se rapprochait. Un Messager du Démon Vert allait traquer Wang Lin aux côtés du vieil homme nommé Zhang !
 
-Pour le Continent du Démon Vert, la mort de Wang Lin était impérative ; sinon, ils ne pourraient apaiser leur haine ! Les Messagers du Démon Vert différaient des cultivateurs ordinaires : ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de culture de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
+Pour le Continent du Démon Vert, la mort de Wang Lin était impérative ; sinon, ils ne pourraient apaiser leur haine ! Les Messagers du Démon Vert différaient des cultivateurs ordinaires : ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de cultivation de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
 
 Les pupilles de Wang Lin se rétractèrent. Il était encore à 3 000 pieds du sol. Au loin, il vit Yan Lu cracher du sang. Son corps délicat trembla tandis qu'elle s'enfuyait sous terre. Après elle, Xu Dongde, le visage pâle, s'engouffra également dans la terre.
 

@@ -24,7 +24,7 @@ Alors que l'Ancien Système Stellaire changeait radicalement, le brouillard deve
 
 « La troisième âme s'est éveillée !! Le cœur du monde de la grotte s'est rouvert !! » Le visage du Souverain était pâle, mais il n'hésita pas une seconde et chargea vers le Royaume Intérieur.
 
-Simultanément, dans les diverses régions du Royaume Extérieur, les concubines survivantes, y compris celle que Wang Lin avait rencontrée dans l'Ancienne Tombe, furent tirées de leur culture. Elles contemplaient toutes les étoiles avec des expressions variées : excitation, complexité ou effroi.
+Simultanément, dans les diverses régions du Royaume Extérieur, les concubines survivantes, y compris celle que Wang Lin avait rencontrée dans l'Ancienne Tombe, furent tirées de leur cultivation. Elles contemplaient toutes les étoiles avec des expressions variées : excitation, complexité ou effroi.
 
 « Le cœur de la grotte s'est ouvert !! » Un instant plus tard, les concubines s'élancèrent depuis divers points du Royaume Extérieur vers le Royaume Intérieur !
 
@@ -62,7 +62,7 @@ Yun Yifeng suivit le vieil homme Ma et tourna son regard vers Allheaven. Ses yeu
 
 Le monde de la grotte grondait violemment et le brouillard se mouvait comme une mer déchaînée. Vu d'en haut, on aurait dit que l'intégralité du monde s'était transformée en un océan de brume, seul Allheaven, où se trouvait Wang Lin, demeurant limpide. Il était devenu une lumière éclatante dans les ténèbres !
 
-À cet instant, dans le Royaume Céleste, Qing Shui se tenait devant sa demeure et contemplait le ciel nuageux. Il ressentit un appel dans son esprit, un appel qui l'irritait profondément. Également dans le Royaume Céleste, Situ Nan sortit de sa culture. Il regarda devant lui d'un air sombre, mais nul ne savait à quoi il pensait.
+À cet instant, dans le Royaume Céleste, Qing Shui se tenait devant sa demeure et contemplait le ciel nuageux. Il ressentit un appel dans son esprit, un appel qui l'irritait profondément. Également dans le Royaume Céleste, Situ Nan sortit de sa cultivation. Il regarda devant lui d'un air sombre, mais nul ne savait à quoi il pensait.
 
 Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle du Maître Dao Bleu Rêve !
 

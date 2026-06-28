@@ -26,7 +26,7 @@ La lumière ne provenait pas d'une direction aléatoire ; elle émanait du savan
 
 À cet instant, la zone où il se trouvait fut baignée de lumière. Son corps dépérissait en un clin d'œil, jusqu'à ne ressembler qu'à un squelette.
 
-Pourtant, il ne mourait pas... Il ne pouvait pas mourir ; il était condamné à passer d'innombrables années ici... C'était simplement qu'il refusait d'abandonner, et cette volonté le poussait à lutter. Son visage se crispa alors qu'il forçait l'activation de sa culture et laissa échapper un rugissement !
+Pourtant, il ne mourait pas... Il ne pouvait pas mourir ; il était condamné à passer d'innombrables années ici... C'était simplement qu'il refusait d'abandonner, et cette volonté le poussait à lutter. Son visage se crispa alors qu'il forçait l'activation de sa cultivation et laissa échapper un rugissement !
 
 Les pupilles du vieil homme en noir se rétractèrent et son expression devint grave alors qu'il reculait. Ses yeux restèrent fixés sur la quatrième étoile au sommet de la tête de Tuo Sen. À cet instant, il sentit clairement que la voix de Maître Wuji provenait de là.
 

@@ -16,7 +16,7 @@ Xi Zifeng était rongée par l'anxiété tandis qu'elle s'enfuyait, les dents se
 
 Un homme d'âge moyen ricana en frappant son sac de rangement pour en sortir une aiguille dorée. Il la lança, et celle-ci vola droit vers Xi Zifeng.
 
-« Cette cultivatrice d'Allheaven sera mon 19ème fourneau de culture. Haha, je n'ai jamais goûté à une femme d'Allheaven auparavant. Il semble que je ne sois pas venu ici en vain ! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
+« Cette cultivatrice d'Allheaven sera mon 19ème fourneau de cultivation. Haha, je n'ai jamais goûté à une femme d'Allheaven auparavant. Il semble que je ne sois pas venu ici en vain ! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
 
 Voyant que l'aiguille dorée allait lui transpercer le dos, Xi Zifeng fit brusquement demi-tour et forma un sceau. Un éclair de lumière argentée jaillit pour tenter d'arrêter l'aiguille.
 
@@ -28,7 +28,7 @@ Alors que l'homme d'âge moyen riait en se rapprochant rapidement, il était sur
 
 « Reculez ! »
 
-Ces deux mots étaient d'une simplicité absolue, mais aux oreilles de l'homme d'âge moyen, ce fut comme si des dizaines de milliers de coups de tonnerre éclataient simultanément, faisant trembler son esprit. Le niveau de culture de cet homme n'était pas très élevé, bien que supérieur à celui de Xi Zifeng, sans pour autant être radicalement différent.
+Ces deux mots étaient d'une simplicité absolue, mais aux oreilles de l'homme d'âge moyen, ce fut comme si des dizaines de milliers de coups de tonnerre éclataient simultanément, faisant trembler son esprit. Le niveau de cultivation de cet homme n'était pas très élevé, bien que supérieur à celui de Xi Zifeng, sans pour autant être radicalement différent.
 
 À cet instant, alors que son corps tremblait, il ne perçut qu'un bourdonnement dans ses oreilles, comme s'il était brusquement isolé du monde. Il n'entendait plus que le battement rapide de son propre cœur.
 

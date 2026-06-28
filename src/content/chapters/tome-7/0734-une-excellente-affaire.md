@@ -14,7 +14,7 @@ Le vieil homme ricana. « N'y pense même pas. Tu as déjà pris le fourneau du 
 
 Les yeux de Wang Lin se plissèrent, puis il leva sa main droite et un rayon de lumière noire jaillit instantanément. Dès l'apparition de cette lueur sombre, le vieil homme eut la sensation que sa force vitale allait être drainée.
 
-La lumière noire s'élança directement vers la planète de culture et disparut aussitôt. Cependant, le sens divin du vieil homme la suivit de près et vit l'éclat noir atterrir sur une plaine. La végétation de la plaine se flétrit instantanément avant de se transformer en d'innombrables brins de vitalité qui s'échappèrent de la planète pour pénétrer dans le corps de Wang Lin.
+La lumière noire s'élança directement vers la planète de cultivation et disparut aussitôt. Cependant, le sens divin du vieil homme la suivit de près et vit l'éclat noir atterrir sur une plaine. La végétation de la plaine se flétrit instantanément avant de se transformer en d'innombrables brins de vitalité qui s'échappèrent de la planète pour pénétrer dans le corps de Wang Lin.
 
 Wang Lin dit calmement : « Ce sort s'appelle le Doigt de la Mort ! »
 
@@ -30,7 +30,7 @@ Wang Lin réfléchit un instant. À l'époque, ce qui importait le plus à Situ 
 
 Le vieil homme fut soudainement pris d'un doute et son cœur se remplit d'incrédulité. Même si le sort présentait des défauts, ce n'était pas quelque chose que Wang Lin pouvait utiliser comme monnaie d'échange. Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite et disait lentement : « Ce dernier sort est une technique que j'ai apprise d'un senior briseur de Nirvana. Si cela ne vous intéresse toujours pas, alors oubliez cette affaire ! »
 
-Wang Lin envoya une commande mentale, et la garde céleste derrière lui se transforma en un rayon de lumière dorée qui fonça vers la planète de culture.
+Wang Lin envoya une commande mentale, et la garde céleste derrière lui se transforma en un rayon de lumière dorée qui fonça vers la planète de cultivation.
 
 Le mouvement de la marionnette fit sombrer l'expression du vieil homme.
 
@@ -50,11 +50,11 @@ D'un mouvement sec du doigt, Wang Lin fit voler le gaz gris. Il le pointa ensuit
 
 Le vieil homme fut ému. Sa main droite s'étira pour saisir le sceau, et son sens divin l'examina avec soin. Plus il l'étudiait, plus il était stupéfait. Finalement, ses yeux brillèrent d'une lueur intense.
 
-Avec son niveau de culture, il put presque immédiatement percer les secrets de l'Art du Massacre Céleste. Le sceau de vie possédait manifestement une fonction protectrice, tandis que le gaz gris offrait des capacités offensives.
+Avec son niveau de cultivation, il put presque immédiatement percer les secrets de l'Art du Massacre Céleste. Le sceau de vie possédait manifestement une fonction protectrice, tandis que le gaz gris offrait des capacités offensives.
 
 Bien qu'il ne fût pas d'une puissance absolue, ce sort pouvait être utilisé de multiples fois et stocké.
 
-« Ce sceau de vie est formé par l'Art du Massacre Céleste ! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante ! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait un trillion de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait ! » Wang Lin ne mentait pas ; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
+« Ce sceau de vie est formé par l'Art du Massacre Céleste ! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante ! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait un trillion de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de cultivation s'effondrait ! » Wang Lin ne mentait pas ; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
 
 Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un senior briseur de Nirvana était indéniable.
 
@@ -82,7 +82,7 @@ Wang Lin rattrapa le jade et l'examina. Il essaya secrètement le sort et consac
 
 En regardant l'Ancien, Wang Lin éprouva une certaine pointe de culpabilité. Après tout, il avait réalisé une affaire exceptionnelle. Après avoir hésité, il dit : « Confrère, il est préférable de ne pas cultiver plus de 100 000 brins d'énergie de massacre, sans quoi un grand danger pourrait surgir ! » Sur ces mots, il partit précipitamment, comme s'il était pressé.
 
-Le vieil homme fut surpris avant de baisser les yeux sur le jade qu'il tenait. Après une réflexion, il retourna rapidement sur la planète avec les autres et se lança immédiatement dans une culture de méditation profonde. Il devait cultiver autant que possible pour être prêt lorsque le Royaume Céleste du Tonnerre s'ouvrirait dans un mois.
+Le vieil homme fut surpris avant de baisser les yeux sur le jade qu'il tenait. Après une réflexion, il retourna rapidement sur la planète avec les autres et se lança immédiatement dans une cultivation de méditation profonde. Il devait cultiver autant que possible pour être prêt lorsque le Royaume Céleste du Tonnerre s'ouvrirait dans un mois.
 
 Assis sur le dos de la Bête du Tonnerre, Wang Lin affichait une expression étrange. Il secoua la tête et murmura : « Échanger trois sorts défectueux contre un sort contenant une trace du troisième pas... c'est un peu trop avantageux... Un peu trop... » En regardant le jade dans sa main, un sourire apparut sur son visage.
 
@@ -92,7 +92,7 @@ Si Wang Lin n'avait pas perçu le troisième pas, il n'aurait jamais vu le poten
 
 L'erreur laissée par le vieil homme ne lui importait guère. Tant qu'il disposait de suffisamment de temps, il pourrait la corriger. Cela serait bien plus simple que de réparer les trois autres sorts.
 
-La Bête du Tonnerre fendait les étoiles à une vitesse prodigieuse. Sa cible était la planète de culture de Wang Lin : Qing Lin !
+La Bête du Tonnerre fendait les étoiles à une vitesse prodigieuse. Sa cible était la planète de cultivation de Wang Lin : Qing Lin !
 
 Les cultivateurs de Qing Lin se réjouissaient que le senior excentrique aux penchants particuliers soit enfin parti. Cependant, quelques mois plus tard, l'atmosphère devint de nouveau oppressante avec le retour de ce même senior.
 

@@ -32,7 +32,7 @@ La troisième concubine hésita un instant, puis dit doucement : « Tang Shan...
 
 « Activez vos sept portes dorées et reculez ! » La voix de Wang Lin devint soudainement glaciale alors qu'il fixait l'horizon.
 
-Les yeux de Tang Shan se rétrécirent. Son niveau de culture n'était pas bas, elle remarqua immédiatement l'anomalie. Elle obéit à Wang Lin sans hésiter et une lumière dorée l'enveloppa. Sept portes dorées apparurent autour d'elle.
+Les yeux de Tang Shan se rétrécirent. Son niveau de cultivation n'était pas bas, elle remarqua immédiatement l'anomalie. Elle obéit à Wang Lin sans hésiter et une lumière dorée l'enveloppa. Sept portes dorées apparurent autour d'elle.
 
 Un rayon de lumière fonçait vers eux depuis le lointain. Ce rayon transportait une immense plateforme de pierre qui brillait, sur laquelle se tenait un jeune homme vêtu de bleu.
 
@@ -46,9 +46,9 @@ Le jeune homme vacilla légèrement et fit un demi-pas en arrière. Il fixa Wang
 
 « Si vous parvenez à me vaincre, je suivrai tous vos ordres tant que nous serons au cœur du monde caverneux ! » Yun Yifeng s'avança hors de la plateforme pour faire face à Wang Lin. Dans son regard, la troisième concubine, Tang Shan, n'existait pas. Seul Wang Lin comptait !
 
-En observant Yun Yifeng, la froideur dans les yeux de Wang Lin s'intensifia. Il manquait l'âme d'un puissant cultivateur, et cet homme était venu seul. Cela ferait gagner du temps à Wang Lin, mais le niveau de culture de cet homme n'était pas si élevé. Wang Lin sentait que sa seule âme ne suffirait pas.
+En observant Yun Yifeng, la froideur dans les yeux de Wang Lin s'intensifia. Il manquait l'âme d'un puissant cultivateur, et cet homme était venu seul. Cela ferait gagner du temps à Wang Lin, mais le niveau de cultivation de cet homme n'était pas si élevé. Wang Lin sentait que sa seule âme ne suffirait pas.
 
-Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirement du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa culture, et son sort de Déchirement du Ciel était capable de briser les cieux.
+Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirement du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa cultivation, et son sort de Déchirement du Ciel était capable de briser les cieux.
 
 Wang Lin ne considérait pas Yun Yifeng comme une menace. Cependant, si cet homme respectait sa promesse après sa défaite, Wang Lin en serait touché.
 

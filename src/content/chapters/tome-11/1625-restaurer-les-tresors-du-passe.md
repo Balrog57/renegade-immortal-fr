@@ -8,7 +8,7 @@ slug: restaurer-les-tresors-du-passe
 ---
 Wang Lin absorba la puissance de la Porte du Vide à l'intérieur du vortex. Tandis qu'il le faisait, son essence de massacre fusionna complètement avec son corps.
 
-Au moment où la fusion fut achevée, le niveau de culture de Wang Lin passa du stade initial de l'Esprit du Vide au stade intermédiaire de l'Esprit du Vide !
+Au moment où la fusion fut achevée, le niveau de cultivation de Wang Lin passa du stade initial de l'Esprit du Vide au stade intermédiaire de l'Esprit du Vide !
 
 Une fois ce palier atteint, Wang Lin pointa le vortex du doigt. La puissance de la Porte du Vide se précipita vers sa main. Le tonnerre gronda et les éclairs jaillirent de toutes parts, faisant apparaître une épée de tonnerre dans sa main.
 
@@ -40,7 +40,7 @@ Il savait toutefois que ce pouvoir mystérieux de la Porte du Vide était extrê
 
 Cette aura pouvait même réparer des trésors. Cela se voyait bien au fait qu'elle puisse engendrer des trésors d'essence.
 
-Il leva la tête. Au moment où le vortex allait disparaître, Wang Lin le pointa du doigt. Il utilisa le sort « Arrêt » avec sa culture de stade intermédiaire de l'Esprit du Vide et poussa un rugissement calme.
+Il leva la tête. Au moment où le vortex allait disparaître, Wang Lin le pointa du doigt. Il utilisa le sort « Arrêt » avec sa cultivation de stade intermédiaire de l'Esprit du Vide et poussa un rugissement calme.
 
 « Arrête ! »
 
@@ -92,7 +92,7 @@ Dès que le fragment apparut, la puissance de la Porte du Vide que Wang Lin avai
 
 C'était le Bouclier de Lumière Azur, un trésor acquis par Wang Lin lors de ses jeunes années. Il avait montré sa plus grande puissance autrefois, dans la Terre des Esprits Démoniaques !
 
-Qu'il s'agisse de l'Omniscient ou de l'ancien démon, tous avaient été terrifiés devant lui. Pour le niveau de culture de Wang Lin à l'époque, c'était déjà stupéfiant. Si cela pouvait être réparé maintenant, avec l'ajout de la puissance de la Porte du Vide et la culture actuelle de Wang Lin, sa puissance serait phénoménale !
+Qu'il s'agisse de l'Omniscient ou de l'ancien démon, tous avaient été terrifiés devant lui. Pour le niveau de cultivation de Wang Lin à l'époque, c'était déjà stupéfiant. Si cela pouvait être réparé maintenant, avec l'ajout de la puissance de la Porte du Vide et la cultivation actuelle de Wang Lin, sa puissance serait phénoménale !
 
 Le plus grand atout de ce trésor n'était pas sa défense, mais le sort qu'il contenait. Ce sort s'appelait... Rêve des Temps Anciens !
 

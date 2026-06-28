@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1171 - Puzzled
 slug: perplexe
 ---
-Il y avait des restaurants et des lieux d'hébergement dans les différentes cités flottantes de Peng Lai. Bien que les cultivateurs n'aient pas besoin de manger ni de beaucoup se reposer, ils aimaient tout de même se restaurer. Même en pleine culture, l'on pouvait rechercher le calme d'une chambre privée.
+Il y avait des restaurants et des lieux d'hébergement dans les différentes cités flottantes de Peng Lai. Bien que les cultivateurs n'aient pas besoin de manger ni de beaucoup se reposer, ils aimaient tout de même se restaurer. Même en pleine cultivation, l'on pouvait rechercher le calme d'une chambre privée.
 
 Ces installations n'étaient pas rares dans la cité.
 
@@ -48,7 +48,7 @@ Après avoir discuté de cette affaire, Wang Lin se leva et prit congé. Il part
 
 Ce n'est qu'une fois les deux disparus que le visage du vieil homme au teint rouge devint sombre, perdant toute sa franchise initiale.
 
-Il dit d'une voix lente : « Sa culture est très étrange ! »
+Il dit d'une voix lente : « Sa cultivation est très étrange ! »
 
 Tang Lihai répondit : « C'est en effet très singulier. Il est aussi prudent, méfiant et sage... tout en étant extrêmement impitoyable et décisif dans ses actes. »
 
@@ -120,7 +120,7 @@ Wang Lin et Ouyang Long se trouvaient dans l'un de ces passages.
 
 Wang Lin acquiesça silencieusement.
 
-Ils progressèrent rapidement jusqu'au bout du passage. Devant eux se tenaient deux cultivateurs au niveau de culture honorable, séparés par une porte de pierre close.
+Ils progressèrent rapidement jusqu'au bout du passage. Devant eux se tenaient deux cultivateurs au niveau de cultivation honorable, séparés par une porte de pierre close.
 
 Ouyang Long regarda Wang Lin, réfléchit un instant et dit : « L'enchère d'aujourd'hui est organisée par mon oncle-maître, qui a invité quelques autres cultivateurs à participer. On peut considérer cela comme une petite vente privée. Si vous le souhaitez, vous pouvez également mettre quelque chose en vente. Mon oncle-maître entamera notre transaction une fois l'enchère terminée. »
 

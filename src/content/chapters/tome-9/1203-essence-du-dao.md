@@ -18,7 +18,7 @@ Cependant, le domaine de Wang Lin ayant progressé, il lui suffisait d'absorber 
 
 « Si je peux atteindre le sommet du stade de Condensation de Qi, ces vieux monstres au stade tardif de la Brisure de Nirvana ne feront pas le poids ! » Wang Lin prit une profonde inspiration, et une immense quantité d'énergie originelle se précipita dans son corps pour y être entièrement absorbée.
 
-Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans qu'aucun vent ne souffle. Son âme originelle était également en pleine culture et continuait de croître alors qu'elle dévorait cette énergie originelle infinie.
+Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans qu'aucun vent ne souffle. Son âme originelle était également en pleine cultivation et continuait de croître alors qu'elle dévorait cette énergie originelle infinie.
 
 À mesure que l'énergie affluait, l'âme originelle de Wang Lin devint aussi vaste que son propre corps. Soudain, les yeux de Wang Lin s'ouvrirent. Son regard, semblable à celui des étoiles éclatantes, perçait le ciel et la terre.
 

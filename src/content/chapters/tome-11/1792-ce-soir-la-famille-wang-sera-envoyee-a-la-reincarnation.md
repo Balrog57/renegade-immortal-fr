@@ -50,7 +50,7 @@ Cette nouvelle formation était une création personnelle de Wang Lin. Familier 
 
 Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Spirit Void et son héritage de l'Ancient Dao était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Arcane Void tardif !
 
-Avec un tel niveau de culture, ses sept essences et ses sorts de l'Ancient Dao, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure !
+Avec un tel niveau de cultivation, ses sept essences et ses sorts de l'Ancient Dao, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure !
 
 Alors que le puissant Sens Divin de Wang Lin balayait les environs, ses yeux brillèrent. Il fit un pas en avant et disparut.
 
@@ -102,13 +102,13 @@ Miao Yin était assis au fond de l'océan, entouré par l'obscurité. Pourtant, 
 
 Ces ossements étaient principalement ceux d'animaux. Tandis que Miao Yin se soignait dans les abysses, un rugissement sembla se propager à travers l'eau par une méthode mystérieuse.
 
-« Wang Lin, Blue Dream... vous deux ne mourrez pas une belle mort ! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Blue Dream, son niveau de culture avait chuté au stade Spirit Void. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
+« Wang Lin, Blue Dream... vous deux ne mourrez pas une belle mort ! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Blue Dream, son niveau de cultivation avait chuté au stade Spirit Void. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
 
 Dans son rugissement, Miao Yin tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir qui trembla, incapable de lutter face à la puissance du tourbillon.
 
 Miao Yin saisit la tête du serpent et lui mordit le cou. Il aspira violemment toute l'essence de la créature. Le serpent se changea instantanément en un squelette avant d'être rejeté sur le côté.
 
-Il était sur le point de reprendre sa culture quand son expression changea radicalement et qu'il leva les yeux.
+Il était sur le point de reprendre sa cultivation quand son expression changea radicalement et qu'il leva les yeux.
 
 Le ciel se déforma au-dessus de l'océan doré et Wang Lin en sortit. Ses yeux brillaient comme la foudre alors qu'il contemplait la mer en contrebas.
 

@@ -34,7 +34,7 @@ Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin a
 
 Quant à la femme laide, elle hésita un instant avant de les suivre à son tour.
 
-Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une demi-heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit : « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
+Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une demi-heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit : « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Cultivation se brise, nous mourrons tous ici. »
 
 Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 
@@ -56,7 +56,7 @@ Sous la direction de Murong Yun, Mu Yunhai plongea dans le nuage noir. Wang Lin 
 
 À l'intérieur du nuage, Wang Lin ouvrit la bouche et cracha une lueur noire qui disparut aussitôt dans l'obscurité.
 
-Puis, il frappa son sac de rangement pour en extraire un objet. D'un geste sec, celui-ci disparut également dans le nuage noir. Il accomplit tout cela avec une discrétion absolue sous le couvert des ténèbres, si bien que personne ne remarqua rien. Même la femme à ses côtés n'en décela rien, tant l'écart entre leurs niveaux de culture était immense.
+Puis, il frappa son sac de rangement pour en extraire un objet. D'un geste sec, celui-ci disparut également dans le nuage noir. Il accomplit tout cela avec une discrétion absolue sous le couvert des ténèbres, si bien que personne ne remarqua rien. Même la femme à ses côtés n'en décela rien, tant l'écart entre leurs niveaux de cultivation était immense.
 
 La montagne nichée dans le nuage semblait floue ; c'était comme si quelque chose enveloppait le sommet, lui conférant un aspect éthéré. Au sommet se trouvait une vaste plateforme, et au centre de celle-ci trônait un autel noir.
 
@@ -110,7 +110,7 @@ Murong Yun renifla : « Je suis fait de fragments d'âme ! Dis-moi ce qui t'a tr
 
 Wang Lin répliqua : « Tes vêtements sont bien trop vieux et ne correspondent pas à ceux que porteraient les cultivateurs venant d'entrer. Quel est ton objectif ? »
 
-« Je n'ai pas d'objectif ; je veux simplement vous empêcher de récupérer le Cristal de Planète de Culture. Est-ce là tes seuls points ? » Murong Yun fronça les sourcils.
+« Je n'ai pas d'objectif ; je veux simplement vous empêcher de récupérer le Cristal de Planète de Cultivation. Est-ce là tes seuls points ? » Murong Yun fronça les sourcils.
 
 Wang Lin soupira et secoua la tête. « La dernière raison est le symbole sur tes vêtements... » Sur ces mots, la main droite de Wang Lin bougea brusquement. Il activa l'énergie spirituelle céleste de son corps, faisant apparaître un sort chargé de cette même énergie devant lui. Alors que sa main s'élevait, le sort céleste jaillit vers Murong Yun.
 

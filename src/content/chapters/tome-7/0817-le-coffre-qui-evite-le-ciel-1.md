@@ -12,11 +12,11 @@ Dès l'apparition de cette lueur noire, elle se transforma en une courte épée 
 
 Les lèvres de l'homme à la robe noire ne cessèrent pas de s'agiter et il continua de marmonner. Des rayons de lumière noire jaillirent de son entreconch et se changèrent en courtes épées. En un instant, plus d'une dizaine de lames volèrent vers Wang Lin.
 
-Wang Lin ne bougea pas. Le niveau de culture de cet homme à la robe noire était extrêmement élevé ; il n'appartenait certainement pas aux stades Illusoire Yin ou Corporel Yang.
+Wang Lin ne bougea pas. Le niveau de cultivation de cet homme à la robe noire était extrêmement élevé ; il n'appartenait certainement pas aux stades Illusoire Yin ou Corporel Yang.
 
 Cependant, puisque tout son corps n'était fait que d'os, à l'exception de sa tête, cela signifiait que peu importe sa puissance, il ne pouvait utiliser toute sa force.
 
-L'expression de Wang Lin resta calme. La culture que cet homme pouvait déployer ne pouvait être supérieure au début du stade Nirvana Scryer !
+L'expression de Wang Lin resta calme. La cultivation que cet homme pouvait déployer ne pouvait être supérieure au début du stade Nirvana Scryer !
 
 Au moment où ces courtes épées s'approchèrent, Ta Shan surgit par la pensée de Wang Lin. Les blessures qu'il avait subies précédemment n'étaient pas considérables. À cet instant, son corps brilla intensément alors qu'il s'élançait pour porter un coup de poing.
 
@@ -48,7 +48,7 @@ Au moment où l'homme leva les mains, une force mystérieuse commença soudainem
 
 L'expression féroce de l'homme s'intensifia et il poussa violemment vers le haut !
 
-Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan des Immortels Choisis qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la culture était plus faible virent du sang jaillir de leurs orifices.
+Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan des Immortels Choisis qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la cultivation était plus faible virent du sang jaillir de leurs orifices.
 
 Le Sceau Céleste vacilla et marqua une pause.
 
@@ -60,7 +60,7 @@ Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement
 
 La puissance du Coup Céleste se dissipa dans un fracas !
 
-« Avec un tel niveau de culture, ce n'est même pas suffisant pour me faire bouger. Si c'est là tout ce que tu as, tu n'es pas digne de posséder le trésor de mon maître ! » La voix rauque de l'homme était glaciale.
+« Avec un tel niveau de cultivation, ce n'est même pas suffisant pour me faire bouger. Si c'est là tout ce que tu as, tu n'es pas digne de posséder le trésor de mon maître ! » La voix rauque de l'homme était glaciale.
 
 Wang Lin garda son calme en fixant l'adversaire. Il pointa le ciel et dit doucement : « Sceau, libération ! »
 

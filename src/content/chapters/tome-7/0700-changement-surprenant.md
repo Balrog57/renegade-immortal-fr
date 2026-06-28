@@ -48,9 +48,9 @@ Un éclair puissant déchira le ciel de cette nuit d'hiver obscure. L'atmosphèr
 
 Même le vent glacial et impétueux s'interrompit brusquement.
 
-Toutes les figures de culture sur la planète Ran Yun ressentirent cette aura colossale, tandis que le fracas du tonnerre explosait à leurs oreilles.
+Toutes les figures de cultivation sur la planète Ran Yun ressentirent cette aura colossale, tandis que le fracas du tonnerre explosait à leurs oreilles.
 
-L'ancêtre de la famille Sun, Sun Xi, qui était en culture fermée depuis de nombreuses années, vit ses yeux s'illuminer soudainement. En un éclair, il s'éleva dans les airs pour scruter le ciel. Son expression changea instantanément.
+L'ancêtre de la famille Sun, Sun Xi, qui était en cultivation fermée depuis de nombreuses années, vit ses yeux s'illuminer soudainement. En un éclair, il s'éleva dans les airs pour scruter le ciel. Son expression changea instantanément.
 
 « Quelle puissante énergie spirituelle céleste et quel tonnerre ! » Sun Xi prit une inspiration brusque, ses pupilles se contractant.
 
@@ -120,11 +120,11 @@ L'actuel Wang Ping n'avait plus rien d'un mortel. Le calme dans son regard étai
 
 Tout cela était l'héritage de son père, Wang Lin. Dix-neuf ans de vie ordinaire, huit ans de voyage et plus de trente ans en tant que souverain suprême parmi les mortels lui avaient forgé un cœur qui ne craint pas les cieux. Il ne craignait pas l'effondrement des cieux, et encore moins ce cultivateur !
 
-Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle mobilisa sa culture, se tint aux côtés de son mari et affronta calmement l'homme d'âge moyen.
+Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle mobilisa sa cultivation, se tint aux côtés de son mari et affronta calmement l'homme d'âge moyen.
 
 L'homme la regarda avec un air significatif, ses yeux brillant d'une lumière étrange qui semblait vouloir percer l'âme de Wang Ping.
 
-La raison pour laquelle son Sens Divin s'était arrêté ici était que tous les mortels s'étaient évanouis lors de son passage. Sa culture était si puissante et imprégnée de tonnerre que son Sens Divin avait frappé les mortels comme la foudre des cieux.
+La raison pour laquelle son Sens Divin s'était arrêté ici était que tous les mortels s'étaient évanouis lors de son passage. Sa cultivation était si puissante et imprégnée de tonnerre que son Sens Divin avait frappé les mortels comme la foudre des cieux.
 
 Cependant, ce seul mortel ne s'était pas effondré, et il semblait même ne pas avoir remarqué le passage du Sens Divin. C'est ce qui avait piqué sa curiosité et l'avait poussé à verrouiller cet endroit !
 

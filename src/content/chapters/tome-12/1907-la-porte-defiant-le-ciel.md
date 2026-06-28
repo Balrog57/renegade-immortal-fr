@@ -18,7 +18,7 @@ Bien qu'il ne s'agisse que de la pression d'un cultivateur au début du stade de
 
 Après un long moment, la silhouette sortit lentement de la tempête et finit par se dessiner clairement. Wang Lin regarda le ciel avec calme.
 
-Il sentait qu'après avoir détruit la neuvième Arcane Tribulation, une barrière qui réprimait sa culture avait été brisée. Cela lui avait permis de progresser jusqu'à atteindre le stade de la Tribulation du Vide !
+Il sentait qu'après avoir détruit la neuvième Arcane Tribulation, une barrière qui réprimait sa cultivation avait été brisée. Cela lui avait permis de progresser jusqu'à atteindre le stade de la Tribulation du Vide !
 
 « Tribulation du Vide... » Wang Lin ferma les yeux. Dans son corps, un vortex géant tournait à toute vitesse. Ce vortex dégageait une aura terrifiante ; avec une telle puissance, Wang Lin avait l'impression qu'il lui suffisait d'ouvrir la paume pour tenir le monde entier.
 
@@ -26,7 +26,7 @@ C'était une sensation merveilleuse.
 
 Un instant plus tard, alors que la tempête s'effaçait derrière lui, il ouvrit soudainement les yeux. Il serra le poing droit et un craquement résonna dans sa main. Une puissance terrifiante, dépassant largement le stade initial de la Tribulation du Vide, se concentra dans sa paume.
 
-Alors qu'il contractait son poing, la terre sous ses pieds gronda et d'innombrables fissures se propagèrent. La pression de sa culture de la Tribulation du Vide se répandit soudainement. Les cultivateurs du Continent du Démon Vert reculèrent immédiatement, observant Wang Lin avec suspicion.
+Alors qu'il contractait son poing, la terre sous ses pieds gronda et d'innombrables fissures se propagèrent. La pression de sa cultivation de la Tribulation du Vide se répandit soudainement. Les cultivateurs du Continent du Démon Vert reculèrent immédiatement, observant Wang Lin avec suspicion.
 
 Ils ne ressentaient aucune trace de l'aura du Scorpion Vert Démon émanant de lui. À cet instant, leurs expressions changèrent toutes.
 
@@ -34,7 +34,7 @@ Ils ne ressentaient aucune trace de l'aura du Scorpion Vert Démon émanant de l
 
 Pour la première fois, Wang Lin ressentit clairement une fluctuation de conscience provenant de la Perle Défiant le Ciel. Cette fluctuation était empreinte d'un désir ardent !
 
-Une telle fluctuation était imperceptible pour Wang Lin avant d'atteindre le stade de la Tribulation du Vide. Depuis que son niveau de culture avait augmenté, la Perle Défiant le Ciel semblait radicalement différente.
+Une telle fluctuation était imperceptible pour Wang Lin avant d'atteindre le stade de la Tribulation du Vide. Depuis que son niveau de cultivation avait augmenté, la Perle Défiant le Ciel semblait radicalement différente.
 
 Un éclair de froideur traversa les yeux de Wang Lin. Après une courte réflexion, il leva la main droite et décocha un coup de poing vers la terre !
 
@@ -66,7 +66,7 @@ Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner
 
 Le corps de Wang Lin paraissait minuscule face au scorpion vert. Pourtant, il restait là, le regard glacial, dégageant une aura capable de subjuguer l'âme du scorpion.
 
-Ses cheveux blancs retombaient sur ses épaules. Alors que l'âme du scorpion rugissait, il leva la main et frappa. Ce coup contenait à la fois la puissance du Dao Antique de Wang Lin et sa culture de la Tribulation du Vide. Il créa une force capable de briser les cieux qui chargea l'âme du scorpion.
+Ses cheveux blancs retombaient sur ses épaules. Alors que l'âme du scorpion rugissait, il leva la main et frappa. Ce coup contenait à la fois la puissance du Dao Antique de Wang Lin et sa cultivation de la Tribulation du Vide. Il créa une force capable de briser les cieux qui chargea l'âme du scorpion.
 
 Un grondement de tonnerre éclata soudainement ; le corps de l'âme du scorpion trembla et fut repoussé, comme frappé par un vent dévastateur. L'âme semblait sur le point de s'éteindre, mais à cet instant, les quatre sceaux brillèrent et compensèrent la puissance du coup de Wang Lin. Bien que repoussée de dizaines de milliers de pieds, l'entité resta intacte !
 

@@ -22,7 +22,7 @@ Le sentiment était radicalement distinct. Certes, ils étaient la même personn
 
 Elle n'était pas la seule à être terrifiée. Chaque cultivateur croisant le regard de Wang Lin sentait son esprit vaciller et reculait instinctivement. Ils ressentaient tous cette sensation terrifiante que leur âme originelle allait être arrachée de leur corps.
 
-Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, des anciens du secteur ou même de ces vieux monstres, tout le monde ressentait la même chose : l'imminence de la séparation entre leur âme originelle et leur enveloppe charnelle.
+Quel que soit leur niveau de cultivation, qu'il s'agisse des plus jeunes disciples, des anciens du secteur ou même de ces vieux monstres, tout le monde ressentait la même chose : l'imminence de la séparation entre leur âme originelle et leur enveloppe charnelle.
 
 Tout cela était dû au regard terrifiant de Wang Lin !
 
@@ -48,7 +48,7 @@ La troisième marche, la quatrième, la cinquième... Tous les membres du Grand 
 
 Il avait gravi ces 15 marches sans la moindre pause, comme si les restrictions imposées par l'escalier n'avaient aucune importance pour lui.
 
-Cette scène fit pâlir les disciples du Grand Secte de l'Âme. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé !
+Cette scène fit pâlir les disciples du Grand Secte de l'Âme. Elle stupéfia tous les vieux monstres en cultivation fermée. L'Ancien Taureau Vert eut un souffle coupé !
 
 Le sens divin de Yan Lu, logé dans la disciple, frémit et elle faillit perdre le contrôle. Elle serra les poings si fort que ses ongles s'enfoncèrent dans sa chair, faisant perler le sang.
 
@@ -90,7 +90,7 @@ Au fur et à mesure qu'il descendait, ses jambes et son corps apparurent progres
 
 « Êtes-vous sûre ? Répondez-moi ! » Wang Lin atteignit la neuvième marche, révélant enfin sa stature. Ses paroles étaient calmes, mais elles tonnaient comme l'orage. Le visage de Yan Lu resta figé tandis qu'elle reculait de plusieurs pas.
 
-La panique se lisait dans ses yeux. À cet instant, elle en oublia son propre niveau de culture et se sentit comme une fourmi face à Wang Lin. Et ce Wang Lin ne lui ressemblait plus du tout !
+La panique se lisait dans ses yeux. À cet instant, elle en oublia son propre niveau de cultivation et se sentit comme une fourmi face à Wang Lin. Et ce Wang Lin ne lui ressemblait plus du tout !
 
 « Qui êtes-vous ?! » Des veines de sang apparurent dans les yeux de Yan Lu, sa voix n'étant plus qu'un croassement rauque.
 
@@ -98,7 +98,7 @@ Wang Lin utilisait la puissance de son avatar pour supprimer Yan Lu. Une fois l'
 
 Ainsi, cette femme ne serait plus une menace pour lui !
 
-Il n'y avait aucune haine profonde entre eux, et Wang Lin ne souhaitait pas détruire son cœur de Dao. Elle pourrait continuer sa culture normalement, mais la crainte qu'il inspirerait l'empêcherait de devenir son ennemie.
+Il n'y avait aucune haine profonde entre eux, et Wang Lin ne souhaitait pas détruire son cœur de Dao. Elle pourrait continuer sa cultivation normalement, mais la crainte qu'il inspirerait l'empêcherait de devenir son ennemie.
 
 « Donnez-le moi ! » Wang Lin descendit encore, franchissant deux marches supplémentaires. Il leva nonchalamment sa main droite.
 

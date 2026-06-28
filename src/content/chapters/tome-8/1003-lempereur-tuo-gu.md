@@ -68,19 +68,19 @@ L'Épée Impériale ressemblait à un rayon de lumière argentée suivant Wang L
 
 Dans la quatrième grotte, sous la direction de Situ Nan, ils continuaient à briser les restrictions intérieures. Les entraves étaient si nombreuses que, tandis qu'ils les rompaient, des objets appartenant aux êtres célestes apparaissaient devant eux.
 
-Avec le niveau de culture de Situ Nan et de ses compagnons, briser ces restrictions n'était pas difficile. Ils chargèrent directement vers le centre de la grotte. Cependant, la puissance des restrictions ici atteignait presque son apogée. Ce n'était pas une chose que l'on pouvait vaincre par la seule culture ; il fallait comprendre la nature même de la restriction pour la briser.
+Avec le niveau de cultivation de Situ Nan et de ses compagnons, briser ces restrictions n'était pas difficile. Ils chargèrent directement vers le centre de la grotte. Cependant, la puissance des restrictions ici atteignait presque son apogée. Ce n'était pas une chose que l'on pouvait vaincre par la seule cultivation ; il fallait comprendre la nature même de la restriction pour la briser.
 
 À cet instant, un éclair de lumière dorée jaillit sur la plateforme à l'extérieur de la grotte et Wang Lin apparut. Sans hésiter, il se précipita à l'intérieur. En chemin, il constata que toutes les restrictions avaient été brisées. Hormis celles de l'entrée, détruites par d'autres bien longtemps auparavant, le reste avait été accompli par Situ Nan et son groupe.
 
 Peu de temps après, Wang Lin aperçut Situ Nan et ses compagnons.
 
-Les trois frères Chen étaient assis là, en pleine culture, entourés d'un gaz blanc. Il était évident qu'ils avaient épuisé une grande partie de leur énergie à briser une restriction et qu'ils se remettaient.
+Les trois frères Chen étaient assis là, en pleine cultivation, entourés d'un gaz blanc. Il était évident qu'ils avaient épuisé une grande partie de leur énergie à briser une restriction et qu'ils se remettaient.
 
 Big Head se tenait aux côtés des trois frères. Ce qui surprit Wang Lin, c'est que Big Head possédait un talent inattendu pour les restrictions. Il guidait Lei Ji dans le calcul nécessaire pour en briser une nouvelle.
 
 Maître Hollow Wind avait également étudié les restrictions et était devenu la force principale de l'opération. Quant à Situ Nan et la femme en argent, ils étaient chargés de parer toute riposte qui pourrait survenir une fois les protections brisées.
 
-L'arrivée lente de Wang Lin attira immédiatement l'attention de tous. Situ Nan, présent depuis plusieurs jours, commençait à perdre patience. Les restrictions environnantes le rendaient étourdi, car ses connaissances en la matière étaient limitées. À ses yeux, peu importait la puissance d'une restriction : tant que son niveau de culture était assez élevé, il pourrait la briser.
+L'arrivée lente de Wang Lin attira immédiatement l'attention de tous. Situ Nan, présent depuis plusieurs jours, commençait à perdre patience. Les restrictions environnantes le rendaient étourdi, car ses connaissances en la matière étaient limitées. À ses yeux, peu importait la puissance d'une restriction : tant que son niveau de cultivation était assez élevé, il pourrait la briser.
 
 Cependant, comme il devait gérer les changements imprévus consécutifs à la destruction des barrières, il ne pouvait pas s'éloigner. Autrement, avec son tempérament, il aurait déjà foncé seul pour tout démanteler.
 
@@ -88,7 +88,7 @@ En voyant Wang Lin revenir, les yeux de Situ Nan s'illuminèrent et il éclata d
 
 Sur ces mots, il n'attendit même pas la réponse de Wang Lin. Il s'engouffra dans une forêt de bambous adjacente et disparut.
 
-Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le supprimer temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Hollow Wind et regarda devant lui.
+Compte tenu du niveau de cultivation de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le supprimer temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Hollow Wind et regarda devant lui.
 
 Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de brume. Un pont de pierre reliait les deux rives. Ce pont était l'unique entrée.
 
@@ -100,9 +100,9 @@ L'expression de Wang Lin resta neutre tandis que son regard se posait sur le pon
 
 Maître Hollow Wind fronça les sourcils en observant la rivière et ajouta : « Les trois frères Chen sont trop épuisés et se rétablissent. Le plan du cultivateur Situ était d'attendre leur récupération pour briser l'obstacle de concert. Mais je reste réservé sur cette méthode. »
 
-De son point de vue, Wang Lin ne pouvait pas avoir pratiqué la culture pendant si longtemps. Il avait appris quelques choses sur lui.
+De son point de vue, Wang Lin ne pouvait pas avoir pratiqué la cultivation pendant si longtemps. Il avait appris quelques choses sur lui.
 
-« Atteindre un tel niveau de culture en seulement un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse rien aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser ! Tout reposera sur moi et Big Head. » Maître Hollow Wind soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles ; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
+« Atteindre un tel niveau de cultivation en seulement un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse rien aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser ! Tout reposera sur moi et Big Head. » Maître Hollow Wind soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles ; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
 
 Wang Lin observa le pont de pierre et ne put s'empêcher de froncer les sourcils. Il comprenait pourquoi Maître Hollow Wind était bloqué. C'était exactement comme il l'avait dit : si la barrière était brisée par la force, la réaction en chaîne serait catastrophique.
 

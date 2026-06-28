@@ -26,7 +26,7 @@ Zhou Wutai leva les yeux vers Wang Lin et dit d'une voix lente : « Red Butterfl
 
 Wang Lin hocha la tête.
 
-Zhou Wutai reprit calmement : « L'endroit que j'ai trouvé a été scellé par le maître de Red Butterfly avant sa mort ! Le niveau de culture de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-il pu mettre en place une formation aussi complexe ? Dans cette formation se trouve une mèche de cheveux de Red Butterfly. »
+Zhou Wutai reprit calmement : « L'endroit que j'ai trouvé a été scellé par le maître de Red Butterfly avant sa mort ! Le niveau de cultivation de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-il pu mettre en place une formation aussi complexe ? Dans cette formation se trouve une mèche de cheveux de Red Butterfly. »
 
 « Quelle formation ? » Wang Lin sentit une étrange sensation et ses yeux se plissèrent.
 
@@ -44,7 +44,7 @@ Cette formation mesurait une centaine de pieds de large et occupait toute la pi�
 
 Une mèche de cheveux était figée au centre de la formation. Celle-ci semblait inactive depuis de nombreuses années et ne montrait aucun signe de fonctionnement.
 
-« Voici la formation », dit Zhou Wutai en l'observant, son visage trahissant la perplexité qu'il avait ressentie par le passé. « Je ne crois pas que le maître de Red Butterfly ait pu placer une telle formation avec son niveau de culture. »
+« Voici la formation », dit Zhou Wutai en l'observant, son visage trahissant la perplexité qu'il avait ressentie par le passé. « Je ne crois pas que le maître de Red Butterfly ait pu placer une telle formation avec son niveau de cultivation. »
 
 Wang Lin entra dans la formation et baissa la tête pour l'examiner attentivement. Elle était extrêmement complexe et regorgeait de restrictions. Comme Zhou Wutai l'avait affirmé, ce n'était pas l'œuvre d'un cultivateur du premier échelon.
 
@@ -56,7 +56,7 @@ Une lueur de déduction brilla dans les yeux de Wang Lin et, un instant plus tar
 
 Wang Lin réfléchit un instant, puis dit calmement : « C'est une matrice de transfert par division d'âme ! »
 
-« Elle a dû être placée par un cultivateur au sommet du stade de Nirvana Cleanser ou plus haut… Ce n'est pas quelque chose que le maître de Red Butterfly aurait pu accomplir, à moins qu'il ne cachait son véritable niveau de culture… Cependant, si c'était le cas, ce qui est arrivé à Red Butterfly par la suite resterait inexplicable. »
+« Elle a dû être placée par un cultivateur au sommet du stade de Nirvana Cleanser ou plus haut… Ce n'est pas quelque chose que le maître de Red Butterfly aurait pu accomplir, à moins qu'il ne cachait son véritable niveau de cultivation… Cependant, si c'était le cas, ce qui est arrivé à Red Butterfly par la suite resterait inexplicable. »
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse : « Le rôle de cette matrice est de séparer une partie de l'âme en utilisant cette mèche de cheveux pour ensuite la transférer ailleurs. J'ignore où elle a été envoyée… Mais ce cheveu contient bien l'aura de Red Butterfly. Peut-être que Red Butterfly n'est pas réellement morte ! »
 
@@ -110,7 +110,7 @@ Par ce geste, il cessa d'être le mortel revenu dans son village natal pour rede
 
 Un cultivateur impitoyable !
 
-Wang Lin quittait ainsi le monde des mortels pour retourner dans l'univers sanglant de la culture. Ce qu'il allait affronter désormais n'était plus la tendresse de ses parents, mais les sentiers périlleux et traîtres de la voie de la culture !
+Wang Lin quittait ainsi le monde des mortels pour retourner dans l'univers sanglant de la cultivation. Ce qu'il allait affronter désormais n'était plus la tendresse de ses parents, mais les sentiers périlleux et traîtres de la voie de la cultivation !
 
 C'était un chemin sans retour ! Une fois que l'on y avait posé le pied, il fallait avancer sans relâche. On ne pouvait s'arrêter, et même si l'on regardait en arrière, ce n'était que pour un bref instant.
 

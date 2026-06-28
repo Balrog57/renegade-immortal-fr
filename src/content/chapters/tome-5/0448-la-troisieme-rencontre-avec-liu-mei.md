@@ -36,7 +36,7 @@ Boum !
 
 L'énergie de l'épée percuta les plumes, et l'onde de choc qui en résulta fit claquer violemment les vêtements de Liu Mei et de Wang Lin sous la force du vent.
 
-Les yeux de Liu Mei s'illuminèrent alors qu'elle observait Wang Lin : « Tu es bel et bien au stade initial de la Transformation de l'Âme. Wang Lin, ta vitesse de culture est vraiment prodigieuse ! »
+Les yeux de Liu Mei s'illuminèrent alors qu'elle observait Wang Lin : « Tu es bel et bien au stade initial de la Transformation de l'Âme. Wang Lin, ta vitesse de cultivation est vraiment prodigieuse ! »
 
 Le regard de Wang Lin devint glacial. Il observa l'épée céleste dans sa main et la caressa du bout des doigts. Puis, d'un ton pesant, il déclara : « Liu Mei, je le répéterai une dernière fois : écarte-toi, ou j'attaquerai de toutes mes forces ! »
 
@@ -76,7 +76,7 @@ Wang Lin s'élança et saisit la lance. L'énergie spirituelle céleste jaillit 
 
 La lance fendit l'air comme pour percer les cieux, créant des détonations soniques sur son passage.
 
-Les yeux froids de Liu Mei révélèrent une lueur mystérieuse : « Bien que tu possèdes de nombreux trésors, la quantité d'énergie spirituelle céleste que tu peux mobiliser avec ta culture au stade initial de la Transformation de l'Âme est bien trop dérisoire. »
+Les yeux froids de Liu Mei révélèrent une lueur mystérieuse : « Bien que tu possèdes de nombreux trésors, la quantité d'énergie spirituelle céleste que tu peux mobiliser avec ta cultivation au stade initial de la Transformation de l'Âme est bien trop dérisoire. »
 
 Sur ces mots, sa main délicate pointa vers l'avant et, dans un éclair vert, la silhouette du paon réapparut. Les yeux de l'oiseau projetèrent une lumière démoniaque alors qu'il flottait au-dessus de Liu Mei, fixant Wang Lin qui fonçait toujours sur elle.
 
@@ -108,7 +108,7 @@ Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main ; s
 
 « J'ai été la deuxième personne à entrer dans la Tombe de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la bannière d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 
-Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de faciliter les transferts. Une fois que le Cristal de la Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
+Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de faciliter les transferts. Une fois que le Cristal de la Planète de Cultivation s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
 
 Même détruit, il ne lui faudrait que quelques jours pour se reconstruire et demeurer ici éternellement. Ses propriétés étaient similaires à celles des êtres vivants composés de fragments d'âmes.
 

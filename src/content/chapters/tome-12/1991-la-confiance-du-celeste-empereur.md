@@ -8,7 +8,7 @@ slug: la-confiance-du-celeste-empereur
 ---
 Chapitre 1991 - La confiance du Céleste Empereur !
 
-« Alors, c'était donc son plan ! Il avait dit plus tôt qu'il voulait que j'hérite de la culture de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste capable de lever le sceau sur tout son clan.
+« Alors, c'était donc son plan ! Il avait dit plus tôt qu'il voulait que j'hérite de la cultivation de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste capable de lever le sceau sur tout son clan.
 
 « Au départ, je ne l'ai pas cru, c'est pourquoi je n'ai pas résisté une fois absorbé par l'œil droit. J'ai caché mon âme à l'intérieur de la Perle Défiant le Ciel et j'ai utilisé une fausse âme pour le tromper, afin de découvrir la nature de ses desseins !
 
@@ -84,7 +84,7 @@ Le Céleste Empereur sourit avec morgue au-dessus de la tête de l'Ancêtre Cél
 
 « Mon plan réside dans la tête de l'Ancêtre Céleste ! Cette tête est morte depuis des années et ne peut être ressuscitée. Elle ne peut servir que de montagne pour réprimer les 72 âmes du clan céleste !
 
-« Mais c'est le trésor de l'Ancêtre Céleste, et cela me permettra d'obtenir sa culture complète sans le moindre danger !
+« Mais c'est le trésor de l'Ancêtre Céleste, et cela me permettra d'obtenir sa cultivation complète sans le moindre danger !
 
 « Je vais m'en emparer, je ne vais pas l'hériter !
 

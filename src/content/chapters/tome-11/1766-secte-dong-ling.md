@@ -32,7 +32,7 @@ Wang Lin analysa rapidement la situation et se retira sans hésiter.
 
 Une fois hors de la brume, deux choix s'offraient au Vieux Fantôme Zhan. Il pouvait soit tuer Wang Lin pour s'emparer de la troisième âme, soit poursuivre le Daoïste aux Sept Couleurs pour profiter de cette occasion unique — alors que ce dernier était gravement blessé — afin de fusionner leurs âmes !
 
-Certes, sans la troisième âme, cette fusion ne serait pas totale ; il ne s'agirait que d'une contrainte et non d'une véritable fusion, mais il n'aurait aucun regret. Bien que son niveau de culture resterait inchangé, personne ne pourrait plus contester sa possession de la troisième âme !
+Certes, sans la troisième âme, cette fusion ne serait pas totale ; il ne s'agirait que d'une contrainte et non d'une véritable fusion, mais il n'aurait aucun regret. Bien que son niveau de cultivation resterait inchangé, personne ne pourrait plus contester sa possession de la troisième âme !
 
 Ces deux options étaient d'une tentation immense pour le Vieux Fantôme Zhan. S'il tentait d'abord de tuer Wang Lin, il craignait l'arc Li Guang. Il ignorait combien de flèches Wang Lin pouvait encore décocher et, s'il perdait trop de temps, le Daoïste aux Sept Couleurs se rétablirait, ce qui ne vaudrait plus la peine !
 

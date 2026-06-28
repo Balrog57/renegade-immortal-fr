@@ -12,9 +12,9 @@ Un morceau de jade flottait dans les airs, dégageant une douce lueur.
 
 Wang Lin agita sa main droite et saisit le jade. En l'examinant, il y découvrit une carte menant au Mont Suzaku.
 
-Il réfléchit un moment, puis s'assit en position de lotus. Il avait subi de graves blessures lors de son combat contre Red Butterfly et sa culture était instable. Même en consommant des pilules, celles-ci ne l'aideraient que très peu et il ne pourrait pas se rétablir rapidement. S'il voulait une guérison complète, il lui faudrait entrer en culture de méditation prolongée.
+Il réfléchit un moment, puis s'assit en position de lotus. Il avait subi de graves blessures lors de son combat contre Red Butterfly et sa cultivation était instable. Même en consommant des pilules, celles-ci ne l'aideraient que très peu et il ne pourrait pas se rétablir rapidement. S'il voulait une guérison complète, il lui faudrait entrer en cultivation de méditation prolongée.
 
-Après un long moment, le ciel s'assombrit et Wang Lin se leva. Il frappa son sac de rangement et la bête moustique apparut. Il s'assit sur la créature, lui envoya un message spirituel et poursuivit sa culture.
+Après un long moment, le ciel s'assombrit et Wang Lin se leva. Il frappa son sac de rangement et la bête moustique apparut. Il s'assit sur la créature, lui envoya un message spirituel et poursuivit sa cultivation.
 
 Le vol de la moustique devint plus fluide alors qu'elle se dirigeait vers la direction indiquée par Wang Lin.
 
@@ -42,7 +42,7 @@ Autour de ces deux bassins se trouvaient 99 pierres spirituelles de qualité sup
 
 À cet instant, au centre de chacun des deux bassins, un homme et une femme étaient assis.
 
-L'homme siégeait au-dessus du bassin de flammes et la femme au-dessus du bassin froid. Tous deux portaient des vêtements très fins et étaient en pleine culture.
+L'homme siégeait au-dessus du bassin de flammes et la femme au-dessus du bassin froid. Tous deux portaient des vêtements très fins et étaient en pleine cultivation.
 
 L'homme n'était pas particulièrement beau, mais il dégageait une aura légèrement maléfique. Cependant, cette aura n'était pas répulsive ; au contraire, elle inspirait aux gens une étrange sensation d'intimité.
 
@@ -62,7 +62,7 @@ Les yeux de l'homme brillèrent et il demanda : « Red Butterfly ? Mais elle est
 
 Le vieil homme répondit lentement : « Son domaine impitoyable a fait une percée lors de son combat contre Ceng Niu ; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable ! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant très longtemps. »
 
-L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait : « Ceng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma culture avec son niveau actuel ! »
+L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait : « Ceng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma cultivation avec son niveau actuel ! »
 
 Le vieil homme soupira. « C'est un peu regrettable pour Red Butterfly. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
 
@@ -110,7 +110,7 @@ Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquie
 
 Liu Mei resta pensive.
 
-Le vieil homme regarda Liu Mei et reprit : « Tu vas bientôt sortir de ta culture en ermitage. Ce Ceng Niu devrait arriver sous peu ; va donc l'accueillir. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Une fois que tu auras réussi, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku ! »
+Le vieil homme regarda Liu Mei et reprit : « Tu vas bientôt sortir de ta cultivation en ermitage. Ce Ceng Niu devrait arriver sous peu ; va donc l'accueillir. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Une fois que tu auras réussi, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku ! »
 
 Liu Mei soupira. Elle se mordit la lèvre inférieure et commença à méditer sur ses options.
 
@@ -118,11 +118,11 @@ Liu Mei soupira. Elle se mordit la lèvre inférieure et commença à méditer s
 
 Liu Mei murmura : « La disciple obéit ! »
 
-Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de percer la grotte pour voir jusqu'à un pays de culture de rang 1, où un vieillard était en train de manger une cuisse de poulet.
+Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de percer la grotte pour voir jusqu'à un pays de cultivation de rang 1, où un vieillard était en train de manger une cuisse de poulet.
 
 « Jeune frère apprenti, parmi les quatre personnes que tu as choisies, Ceng Niu est la plus faible ; je suppose que cela ne te dérangera pas ! »
 
-« Je vais entrer en culture de méditation prolongée. J'espère qu'à mon retour, tu auras déjà réussi. » Après un long moment, le vieil homme détourna son regard et disparut dans un éclair de lumière rouge.
+« Je vais entrer en cultivation de méditation prolongée. J'espère qu'à mon retour, tu auras déjà réussi. » Après un long moment, le vieil homme détourna son regard et disparut dans un éclair de lumière rouge.
 
 Liu Mei se leva. Ses vêtements fins collaient à sa peau, révélant une silhouette aux courbes parfaites et exquises.
 
@@ -150,7 +150,7 @@ Qian Feng éclata de rire. « Red Butterfly est déjà morte. Elle n'est plus qu
 
 Liu Mei observa attentivement Red Butterfly jusqu'à ce qu'elle ne puisse plus supporter le spectacle. Elle savait que Red Butterfly avait déjà perdu son domaine et son énergie vitale pour devenir l'automate de Qian Feng.
 
-Le fait qu'une beauté légendaire de cette génération ait subi un tel sort plongea Liu Mei dans la mélancolie. C'était la troisième personne dévorée par Qian Feng jusqu'à présent. À chaque fois qu'il dévorait quelqu'un, son niveau de culture augmentait.
+Le fait qu'une beauté légendaire de cette génération ait subi un tel sort plongea Liu Mei dans la mélancolie. C'était la troisième personne dévorée par Qian Feng jusqu'à présent. À chaque fois qu'il dévorait quelqu'un, son niveau de cultivation augmentait.
 
 L'Ancêtre était devenu pressé de former le prochain Suzaku.
 

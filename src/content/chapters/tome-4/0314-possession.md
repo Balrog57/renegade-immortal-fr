@@ -42,7 +42,7 @@ Chi Hu regarda Wang Lin avec un sourire amer. « Frère Ceng, comptez-vous entre
 
 Wang Lin resta impassible. Il ne répondit pas, mais demanda : « Frère Chi Hu, qui est Zhou Yi ? »
 
-L'expression de Chi Hu devint étrange. Il hésita un instant avant de ne rien dire. Au lieu de cela, il envoya une transmission vocale : « Frère Ceng, cet homme est l'un des rares vieux monstres de la Transformation de l'Âme à Suzaku. Son niveau de culture est extrêmement élevé. Cependant, il a un surnom : l'Amoureux des Cadavres. »
+L'expression de Chi Hu devint étrange. Il hésita un instant avant de ne rien dire. Au lieu de cela, il envoya une transmission vocale : « Frère Ceng, cet homme est l'un des rares vieux monstres de la Transformation de l'Âme à Suzaku. Son niveau de cultivation est extrêmement élevé. Cependant, il a un surnom : l'Amoureux des Cadavres. »
 
 Wang Lin fut stupéfait. « L'Amoureux des Cadavres ? »
 
@@ -98,7 +98,7 @@ Dans un grand fracas, la troisième couche commença à trembler violemment. Le 
 
 D'immenses quantités d'énergie spirituelle céleste disparurent dans ces failles. En un instant, il ne resta plus aucune énergie disponible.
 
-Zhou Yi déclara, le visage sombre : « Secte des Cadavres ! Tu dois être le Grand Ancien de la Secte des Cadavres. Si nous entrons en combat, ce fragment s'effondrera. Si un seul fragment s'effondrait, nous pourrions nous échapper grâce à notre culture. Cependant, sache ceci : il y a six fragments qui se chevauchent ici. Si l'un d'eux s'effondre, tous s'effondreront. À ce moment-là, même un être ayant atteint le stade Ascendant ne pourra pas s'échapper ! »
+Zhou Yi déclara, le visage sombre : « Secte des Cadavres ! Tu dois être le Grand Ancien de la Secte des Cadavres. Si nous entrons en combat, ce fragment s'effondrera. Si un seul fragment s'effondrait, nous pourrions nous échapper grâce à notre cultivation. Cependant, sache ceci : il y a six fragments qui se chevauchent ici. Si l'un d'eux s'effondre, tous s'effondreront. À ce moment-là, même un être ayant atteint le stade Ascendant ne pourra pas s'échapper ! »
 
 L'expression du vieil homme changea. Ses yeux brillèrent et il disparut du cercueil pour réapparaître instantanément derrière Red Butterfly.
 
@@ -130,7 +130,7 @@ Un arc-en-ciel apparut sous l'effet d'une technique inconnue de Zhou Yi qui frap
 
 Zhou Yi dit calmement : « Deviens mon avatar pour un temps. Non seulement tu ne mourras pas, mais tu pourras expérimenter mon domaine. »
 
-Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent de plus en plus intensément alors que son niveau de culture s'envolait soudainement.
+Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent de plus en plus intensément alors que son niveau de cultivation s'envolait soudainement.
 
 « Haha ! Parmi ces trois petits gars, j'ai choisi celui qui possède un corps naturel aux cinq éléments. Tu as choisi l'ancien Clan des Démons Géants. Le seul qui reste est un humain ordinaire et inutile. Dégage ! » Le vieil homme rit en fixant Wang Lin.
 

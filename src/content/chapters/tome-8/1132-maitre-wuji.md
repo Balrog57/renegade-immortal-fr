@@ -16,7 +16,7 @@ Alors que les grondements du dragon de sang résonnaient, la puissance temporell
 
 La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Allheaven s'y trouvait ; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon. Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
 
-Son corps se mit à trembler de manière incontrôlable, comme si une énergie glaciale s'était infiltrée en lui. Des rides apparurent sur sa peau, se superposant rapidement les unes aux autres. Il ressentit une fatigue extrême et sa culture sembla stagner.
+Son corps se mit à trembler de manière incontrôlable, comme si une énergie glaciale s'était infiltrée en lui. Des rides apparurent sur sa peau, se superposant rapidement les unes aux autres. Il ressentit une fatigue extrême et sa cultivation sembla stagner.
 
 Tout cela se produisit en un instant. Le jeune homme ne fut confus qu'un bref moment, mais il crut entendre des cris venant du loin, empreints d'une terreur indicible. Il sursauta. Il voulut tourner la tête, mais son corps était devenu trop raide ; le moindre mouvement lui était impossible.
 

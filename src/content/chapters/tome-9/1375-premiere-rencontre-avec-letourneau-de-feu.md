@@ -20,7 +20,7 @@ Après un long moment, Wang Lin demanda lentement : « La planète principale du
 
 L'ancien de la Scorpione Noire répondit promptement : « Il y en a, mais le Clan de l'Étourneau de Feu les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan du Dragon Blindé. »
 
-Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan de la Scorpione Noire. Devant Wang Lin se dressait une planète de culture verdoyante.
+Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan de la Scorpione Noire. Devant Wang Lin se dressait une planète de cultivation verdoyante.
 
 Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan de la Scorpione Noire.
 
@@ -50,7 +50,7 @@ En le revoyant, Wang Lin comprit instantanément que cet homme ne provenait pas 
 
 Pour qu'un cultivateur du troisième pas se trouve ici à ce moment précis, il n'y avait pas besoin de deviner ses intentions. Wang Lin savait exactement pourquoi il était là !
 
-« Il est venu pour me tuer... Cependant, il n'est probablement pas venu avec son corps originel ; sinon, il ne dégagerait que l'aura d'un cultivateur du cinquième niveau de la Fléau Céleste... Bien sûr, il pourrait dissimuler sa culture... Il semble aussi craindre cet endroit. Sinon, il aurait déjà attaqué... »
+« Il est venu pour me tuer... Cependant, il n'est probablement pas venu avec son corps originel ; sinon, il ne dégagerait que l'aura d'un cultivateur du cinquième niveau de la Fléau Céleste... Bien sûr, il pourrait dissimuler sa cultivation... Il semble aussi craindre cet endroit. Sinon, il aurait déjà attaqué... »
 
 « Le Conseil Souverain est très rapide... Cinquième niveau de la Fléau Céleste... » Une étincelle d'intention de combat brilla dans les yeux de Wang Lin alors qu'il esquissait un sourire narquois avant de traverser l'atmosphère de la planète.
 
@@ -64,7 +64,7 @@ Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une sil
 
 Maître Simo rit à son tour et joignit les mains : « Camarade cultivateur Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un aîné pourrait-elle être une nuisance ? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte ! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
+« Comment la venue d'un aîné pourrait-elle être une nuisance ? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte ! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en cultivation fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
@@ -78,7 +78,7 @@ Ces cristaux pourraient l'aider lors de sa quatrième éveil. En absorber une gr
 
 Cependant, après avoir aperçu Maître Simo, Wang Lin changea d'avis. Puisque l'adversaire le traquait jusqu'ici, la fuite serait difficile. Mais Wang Lin n'avait aucune intention de fuir ; il prévoyait de combattre ici même !
 
-« Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une culture de cinquième niveau de la Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable stature de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
+« Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une cultivation de cinquième niveau de la Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable stature de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
 
 « Si ce n'est vraiment qu'un avatar qui me poursuit, alors je laisserai cet avatar périr pour servir d'exemple ! Bien que ce ne soit qu'une projection, je dois me préparer. Après tout, un ennemi du cinquième niveau de la Fléau Céleste n'est pas une proie facile, et bien que mon essence de tonnerre soit complète, la prudence reste de mise ! »
 

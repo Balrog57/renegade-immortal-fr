@@ -14,7 +14,7 @@ Il tenait un petit boulier à la main. D'un mouvement de doigt, il produisait de
 
 Bien qu'il ne restât que 28 plateformes, sept d'entre elles avaient été infiltrées avec succès et finalement dérobées au terme de nombreux combats ! Réussir à voler une plateforme dans de telles circonstances prouvait que ces individus n'étaient pas ordinaires.
 
-Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme de la quatrième Cendre du Ciel figurait parmi eux. Les cinq autres ne manquaient pas de puissance de culture et appartenaient chacun à un clan différent ; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
+Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme de la quatrième Cendre du Ciel figurait parmi eux. Les cinq autres ne manquaient pas de puissance de cultivation et appartenaient chacun à un clan différent ; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
 
 L'un d'eux avait conquis sa plateforme avec une facilité déconcertante : une vieille femme en vert au visage parsemé de bosses. Son apparence était terrifiante et, tandis qu'elle avançait, les cultivateurs alentour affichaient des expressions de confusion totale. La plateforme qu'elle convoitait faisait l'objet d'un affrontement entre plus de dix cultivateurs. Pourtant, dès que la vieille femme s'approcha, leurs regards se troublèrent et ils reculèrent inopinément. Même l'ancien propriétaire abandonna sa place, permettant à la vieille femme de s'y installer.
 

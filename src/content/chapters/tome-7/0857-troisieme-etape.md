@@ -30,7 +30,7 @@ Alors qu'il rugissait, les flammes de la lampe antique se propagèrent et le vé
 
 C'était comme si une aura primordiale, issue des temps les plus anciens, s'était éveillée parmi les étoiles !
 
-Cette énergie démoniaque rendit l'énergie originelle de tous les cultivateurs du Domaine Méridional instable. Certaines bêtes sur les planètes de culture devinrent extrêmement agitées, absorbant l'énergie démoniaque avec frénésie.
+Cette énergie démoniaque rendit l'énergie originelle de tous les cultivateurs du Domaine Méridional instable. Certaines bêtes sur les planètes de cultivation devinrent extrêmement agitées, absorbant l'énergie démoniaque avec frénésie.
 
 Tandis que le démon ancien chargeait, son corps fut recouvert de flammes. Sa griffe massive s'abattit vers Qing Shui. Cette griffe portait une aura plus puissante que la Loi elle-même ; toutes les lois s'effacèrent devant elle !
 
@@ -96,7 +96,7 @@ L'ombre illusoire était floue, rendant son apparence impossible à distinguer. 
 
 Alors que les pupilles de Wang Lin se rétractaient, l'espace environnant qui s'était effondré se rassembla rapidement pour retrouver sa forme normale. Non seulement cela, mais à mesure que la lumière cristalline s'estompait, toute la destruction subie par le Domaine Méridional fut annulée.
 
-Même l'énergie démoniaque absorbée par certaines bêtes sur les planètes de culture se dissipa silencieusement !
+Même l'énergie démoniaque absorbée par certaines bêtes sur les planètes de cultivation se dissipa silencieusement !
 
 « Si vous continuez à vous battre, je vous tuerai tous les deux. » Après avoir lâché ces mots empreints de calme, la lumière cristalline disparut comme si de rien n'était.
 

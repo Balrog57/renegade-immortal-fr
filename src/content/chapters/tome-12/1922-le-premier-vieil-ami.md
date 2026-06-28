@@ -14,11 +14,11 @@ Durant ces trois années, Wang Lin créa une grotte sous l'immensité désertiqu
 
 Après trois ans passés sous le désert, Wang Lin ouvrit les yeux. Son regard semblait contenir l'éclat des étoiles.
 
-« Compte tenu de mon niveau de culture sans l'armure de l'âme, mon coup de poing ne peut contenir, au maximum, que neuf sorts. » Wang Lin leva sa main droite devant lui et la serra. Des grondements sourds émanèrent de sa paume.
+« Compte tenu de mon niveau de cultivation sans l'armure de l'âme, mon coup de poing ne peut contenir, au maximum, que neuf sorts. » Wang Lin leva sa main droite devant lui et la serra. Des grondements sourds émanèrent de sa paume.
 
 « Malgré cela, mon coup est bien plus puissant qu'il ne l'était il y a trois ans. Si je devais affronter à nouveau l'ancêtre du Secte du Dao Démoniaque sans l'armure de l'âme, je pourrais égaler son premier coup ! »
 
-Lorsqu'il avait affronté le premier coup de l'ancêtre du Secte du Dao Démoniaque, Wang Lin avait été forcé de reculer de trois pas. Désormais, après trois ans, bien que son niveau de culture fût resté inchangé, sa force de combat avait considérablement augmenté.
+Lorsqu'il avait affronté le premier coup de l'ancêtre du Secte du Dao Démoniaque, Wang Lin avait été forcé de reculer de trois pas. Désormais, après trois ans, bien que son niveau de cultivation fût resté inchangé, sa force de combat avait considérablement augmenté.
 
 « Malheureusement, après trois ans d'observation, j'ai appris que les âmes originelles des Exaltés Dorés ne me permettent de créer que jusqu'à six Veines de Sorts, alors qu'il m'en faut neuf ! » Wang Lin avait clairement ressenti la puissance de l'Art du Sort Rapide lors de son combat contre l'ancêtre du Secte du Dao Démoniaque.
 
@@ -30,7 +30,7 @@ L'âme originelle du maître de la secte du Secte du Dao Démoniaque avait ouver
 
 « L'Art du Sort Rapide doit être cultivé. Il est extrêmement puissant et me permet d'utiliser toute ma force !
 
-Mon véritable niveau de culture n'est qu'au début du stade Tribulation du Vide. En raison de cette restriction, mon poing ne peut intégrer au maximum que neuf sorts. Je dois obtenir les essences de métal et de bois dès que possible pour en former les corps véritables d'essence. Ensuite, une fois les cinq éléments fusionnés en un seul, mon niveau de culture s'élèvera au milieu du stade Tribulation du Vide.
+Mon véritable niveau de cultivation n'est qu'au début du stade Tribulation du Vide. En raison de cette restriction, mon poing ne peut intégrer au maximum que neuf sorts. Je dois obtenir les essences de métal et de bois dès que possible pour en former les corps véritables d'essence. Ensuite, une fois les cinq éléments fusionnés en un seul, mon niveau de cultivation s'élèvera au milieu du stade Tribulation du Vide.
 
 Alors, je pourrai intégrer encore plus de sorts. J'ignore combien j'en serai capable après avoir atteint le milieu du stade Tribulation du Vide !
 
@@ -38,7 +38,7 @@ Outre cela, je dois affronter davantage d'Exaltés Célestes et attirer l'attent
 
 Les yeux de Wang Lin s'illuminèrent et il se leva après ces trois années de méditation.
 
-« Je dois me rendre à l'Épreuve Céleste pour voir combien de niveaux je peux franchir avec mon niveau de culture actuel ! »
+« Je dois me rendre à l'Épreuve Céleste pour voir combien de niveaux je peux franchir avec mon niveau de cultivation actuel ! »
 
 Le corps de Wang Lin apparut dans le désert en un éclair. D'un revers de manche, il fit apparaître un dragon marin sous ses pieds. La créature laissa échapper un rugissement empreint de respect.
 
@@ -52,7 +52,7 @@ La tortue indiquait vaguement que la Secte Céleste du Continent Céleste compta
 
 « Cependant, bien que la carte sur la carapace de tortue semble vaste, ce n'est qu'une partie de l'ensemble. Je dois me rendre auprès des deux sectes du continent Meng Earth pour obtenir leurs tablettes de jade cartographiques. »
 
-Si Wang Lin était entré dans le continent Meng Earth avec son niveau de culture précédent, ces deux sectes auraient été des colosses qu'il aurait soigneusement évités. Mais la situation avait changé. À ses yeux, ce n'étaient plus que des sectes ordinaires qui n'avaient rien de terrifiant.
+Si Wang Lin était entré dans le continent Meng Earth avec son niveau de cultivation précédent, ces deux sectes auraient été des colosses qu'il aurait soigneusement évités. Mais la situation avait changé. À ses yeux, ce n'étaient plus que des sectes ordinaires qui n'avaient rien de terrifiant.
 
 « Cet endroit est le plus proche de la Secte de la Terre, allons-y en premier ! » La carte apparut dans l'esprit de Wang Lin et, un instant plus tard, le dragon marin changea de direction, filant droit vers l'est jusqu'à disparaître.
 
@@ -86,19 +86,19 @@ La Secte de la Terre comptait moins de 30 000 disciples, ce qui tranchait avec l
 
 Les disciples suivaient une hiérarchie stricte composée de neuf rangs différents. Parallèlement, la quantité de ressources allouée à chaque disciple était bien supérieure à celle des autres sectes, car elle n'avait qu'à se diviser entre 30 000 membres !
 
-Toutes leurs ressources étaient consacrées à la culture de ces 30 000 disciples, en particulier les plus doués. La Secte de la Terre avait ainsi accumulé des richesses inimaginables.
+Toutes leurs ressources étaient consacrées à la cultivation de ces 30 000 disciples, en particulier les plus doués. La Secte de la Terre avait ainsi accumulé des richesses inimaginables.
 
 Au sein de la secte, le nombre de membres de rang 1 était très faible, moins de cent personnes. Les membres de rang 9 étaient les plus nombreux, dépassant les 20 000.
 
 À cet instant, dans un magnifique pavillon situé dans la zone des membres de rang 5, deux cultivateurs étaient assis.
 
-L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de culture n'était pas élevé, se situant au deuxième stade du Nirvana Scryer.
+L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de cultivation n'était pas élevé, se situant au deuxième stade du Nirvana Scryer.
 
 La femme à ses côtés ne cultivait pas ; elle le regardait avec un regard doux, empreint d'une profonde affection.
 
 Soudain, l'homme trembla violemment. Son visage se déforma sous l'effet de la douleur et il laissa échapper des rugissements étouffés.
 
-Ce changement brusque fit chanceler l'expression de la femme. Elle posa immédiatement sa main sur sa poitrine pour injecter sa culture dans son corps.
+Ce changement brusque fit chanceler l'expression de la femme. Elle posa immédiatement sa main sur sa poitrine pour injecter sa cultivation dans son corps.
 
 Un instant plus tard, la douleur s'atténua et il ouvrit brusquement les yeux. En peu de temps, son corps fut trempé de sueur.
 

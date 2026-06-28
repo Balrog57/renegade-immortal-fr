@@ -98,7 +98,7 @@ Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le loin
 
 Au même instant, sur la Montagne de l'Origine, Song Tian sortit de sa méditation en retraite, les mains derrière le dos. Il regarda en direction de la cité impériale.
 
-« Avec son niveau de culture, il choisira certainement de diviser complètement son âme dès la première fois, donc cela ne sera pas court... Peu importe. Lors de sa précédente retraite, j'ai agi à deux reprises contre lui. Bien que je l'aie reconnu plus tard comme l'empereur, je l'avais offensé le premier... Et depuis son arrivée, il n'a pas cherché à me tenir rigueur de cela... Je le protégerai durant sa première division en guise de réparation. » Song Tian s'élança dans les airs et disparut. Il réapparut devant le temple ancestral et s'assit, tournant le dos à l'édifice.
+« Avec son niveau de cultivation, il choisira certainement de diviser complètement son âme dès la première fois, donc cela ne sera pas court... Peu importe. Lors de sa précédente retraite, j'ai agi à deux reprises contre lui. Bien que je l'aie reconnu plus tard comme l'empereur, je l'avais offensé le premier... Et depuis son arrivée, il n'a pas cherché à me tenir rigueur de cela... Je le protégerai durant sa première division en guise de réparation. » Song Tian s'élança dans les airs et disparut. Il réapparut devant le temple ancestral et s'assit, tournant le dos à l'édifice.
 
 « Personne n'est autorisé à s'approcher à moins de 10 000 pieds du temple ancestral. Les contrevenants mourront ! » Le Sens Divin de Song Tian se déploya largement.
 
@@ -110,7 +110,7 @@ Il prit une profonde inspiration et envoya un message par son Sens Divin à Song
 
 « Ce n'est rien, je ne fais que te protéger durant cette première division en réparation de mes actes passés. » Song Tian ne se retourna pas, gardant les yeux fixés sur le ciel. Après une courte réflexion, il ferma les yeux.
 
-Dès que le Sens Divin de Wang Lin se rétracta, son corps trembla et il leva la tête. Bien qu'il souffrît atrocement sous l'effet de la première division, sa culture actuelle lui permettait de sentir une présence veiller silencieusement sur lui.
+Dès que le Sens Divin de Wang Lin se rétracta, son corps trembla et il leva la tête. Bien qu'il souffrît atrocement sous l'effet de la première division, sa cultivation actuelle lui permettait de sentir une présence veiller silencieusement sur lui.
 
 Wang Lin connaissait cette silhouette.
 

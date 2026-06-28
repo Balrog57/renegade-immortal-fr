@@ -46,7 +46,7 @@ En conséquence, sa vitesse ralentit considérablement. Les poursuivants travers
 
 La vision des planètes massacrées dans le Domaine Occidental les avait choqués. Bien que cet événement fût terrifiant, il ne les avait pas directement touchés sur le moment. Mais en cet instant précis, si ce Xu Mu devenait fou ici, les conséquences seraient inimaginables.
 
-Fort de cette crainte, les membres des familles de culture du Domaine Septentrional restèrent en retrait et s'éloignèrent lentement. Pourtant, certains continuèrent naïvement de traquer Wang Lin, malgré la présence de leurs propres familles dans le Domaine Septentrional.
+Fort de cette crainte, les membres des familles de cultivation du Domaine Septentrional restèrent en retrait et s'éloignèrent lentement. Pourtant, certains continuèrent naïvement de traquer Wang Lin, malgré la présence de leurs propres familles dans le Domaine Septentrional.
 
 La silhouette de Wang Lin apparut au centre du Domaine Septentrional, à proximité des cinq planètes principales. Il connaissait parfaitement cette zone, en particulier la planète Ran Yun où il avait vécu pendant près de cent ans.
 
@@ -58,9 +58,9 @@ Le corps de Wang Lin vacilla et il se précipita vers les cinq planètes princip
 
 Dans le Domaine Septentrional, une entité supplémentaire était apparue aux côtés des cinq planètes majeures. Pour de nombreux cultivateurs, cela ressemblait à une gigantesque forme de vie ovale. Elle possédait d'innombrables tentacules s'étendant de son corps et paraissait extrêmement terrifiante.
 
-Heureusement, elle n'avait blessé personne. Lorsqu'elle était arrivée près des cinq planètes principales, son corps s'était contracté pour se transformer en planète. Au fil des années, d'innombrables débris spatiaux avaient été attirés par elle, formant une fine couche de terre à sa surface. De loin, elle ne différait guère d'une planète de culture.
+Heureusement, elle n'avait blessé personne. Lorsqu'elle était arrivée près des cinq planètes principales, son corps s'était contracté pour se transformer en planète. Au fil des années, d'innombrables débris spatiaux avaient été attirés par elle, formant une fine couche de terre à sa surface. De loin, elle ne différait guère d'une planète de cultivation.
 
-Cependant, les cultivateurs du Domaine Septentrional savaient qu'il ne s'agissait pas d'une planète de culture et qu'il ne fallait point la provoquer. Même en passant à proximité, ils faisaient un large détour, n'osant pas poser le pied sur ce monde.
+Cependant, les cultivateurs du Domaine Septentrional savaient qu'il ne s'agissait pas d'une planète de cultivation et qu'il ne fallait point la provoquer. Même en passant à proximité, ils faisaient un large détour, n'osant pas poser le pied sur ce monde.
 
 Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura glaciale. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Septentrional !
 
@@ -74,7 +74,7 @@ Au moment où il pénétra dans le brouillard entourant le serpent, Yao Bingyun 
 
 À cet instant précis, des lueurs de lumière surgirent au loin. Les cultivateurs et les membres de la famille Yao, poursuivant Wang Lin, venaient d'arriver. Les cultivateurs du Domaine Septentrional avaient déjà un mauvais pressentiment ; en voyant la planète formée par le Serpent Observateur de Lune, leurs visages s'assombrirent.
 
-« Cette chose n'est pas une planète de culture, mais une bête étrange ! J'ai vu de mes propres yeux cette créature se transformer en planète ! »
+« Cette chose n'est pas une planète de cultivation, mais une bête étrange ! J'ai vu de mes propres yeux cette créature se transformer en planète ! »
 
 « Bien que cette chose ne semble pas avoir de capacités offensives, elle n'en demeure pas moins suspecte. Est-ce que ce Xu Mu nous a attirés ici pour utiliser cette bête contre nous ? »
 

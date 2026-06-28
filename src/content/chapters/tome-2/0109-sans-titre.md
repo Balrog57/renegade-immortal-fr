@@ -12,7 +12,7 @@ Grâce à ce guide, les sectes qui avaient déjà perdu leurs jetons purent expl
 
 Le Sect He Huan fut la dernière secte à détenir encore un jeton. La disciple féminine qui dirigeait le groupe ne remit pas l'objet, mais tourna son regard vers la seule autre secte restante : la Vallée Wu Feng.
 
-Le chef de la Vallée Wu Feng était un vieil homme dont l'apparence suggérait qu'il était proche de la mort. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de culture en méditation pour parfaire sa formation.
+Le chef de la Vallée Wu Feng était un vieil homme dont l'apparence suggérait qu'il était proche de la mort. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de cultivation en méditation pour parfaire sa formation.
 
 Il fixa Wang Lin et ricana : « Petit bâtard, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 
@@ -20,7 +20,7 @@ Le front du chef du Sect He Huan se détendit. Après avoir échangé quelques m
 
 Le regard de Wang Lin balaya le groupe avant de se poser sur l'arrogant vieillard. Puis, sans dire un mot, il frappa son sac de rangement et un grain de riz cyan apparut en suspens dans l'air.
 
-L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de culture était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Éventail de Foudre Céleste et de Feu Éolien —, sa victoire lui semblait assurée.
+L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de cultivation était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Éventail de Foudre Céleste et de Feu Éolien —, sa victoire lui semblait assurée.
 
 En voyant que Wang Lin ne sortait qu'un insignifiant petit point de lumière, un sourire condescendant s'étira sur son visage. Il cria à ses disciples : « Reculez tous, et regardez comment je vais détruire cet insolent gamin ! »
 

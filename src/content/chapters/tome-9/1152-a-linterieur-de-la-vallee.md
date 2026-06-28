@@ -20,7 +20,7 @@ Un vent glacial et puissant fit brusquement changer l'expression de la vieille f
 
 Une intention meurtrière brilla dans les yeux de Wang Lin alors qu'il flottait dans les airs. La première attaque qui l'atteignit fut le sceau formé par le regard de la statue. Il se déplaçait avec une célérité fulgurante, visant la poitrine de Wang Lin.
 
-Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de culture de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs du stade Nettoyeur du Nirvana !
+Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de cultivation de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs du stade Nettoyeur du Nirvana !
 
 L'homme le plus téméraire l'emporte sur le chemin étroit ! Au moment où le sceau de poison allait l'atteindre, Wang Lin leva la main droite et projeta une force vers l'avant. Il se trouvait soudainement à moins de sept pouces du sceau !
 
@@ -56,7 +56,7 @@ C'est à ce moment que la lance noire atteignit sa cible et perça la poitrine d
 
 Les hurlements de la vieille femme cessèrent net et son corps s'effondra dans une mare de sang. Son âme originelle affaiblie tentait de s'échapper quand Wang Lin agita sa manche pour la capturer.
 
-Bien que ce combat fût bref, Wang Lin ressentit encore un frisson face à tant de danger. Les sorts de poison de cette vieille femme suffisaient à vaincre la plupart des adversaires de même niveau de culture. Même des êtres au niveau supérieur auraient souffert de son venin s'ils n'étaient pas préparés.
+Bien que ce combat fût bref, Wang Lin ressentit encore un frisson face à tant de danger. Les sorts de poison de cette vieille femme suffisaient à vaincre la plupart des adversaires de même niveau de cultivation. Même des êtres au niveau supérieur auraient souffert de son venin s'ils n'étaient pas préparés.
 
 Il était courant pour Wang Lin de tuer, mais ce meurtre s'était produit sans autre raison que la nécessité. Il ne la connaissait même pas, et si elle n'avait pas tenté de l'éliminer, il ne l'aurait pas tuée ainsi.
 

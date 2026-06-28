@@ -32,9 +32,9 @@ Les dix-sept têtes du Ji Qiong semblaient réticentes et continuaient de rugir 
 
 Les pupilles de Wang Lin se contractèrent. Il avait senti que quelque chose n'allait pas auparavant. Bien que ce Ji Qiong fût puissant, il ne correspondait pas à la force qu'il avait vue dans les souvenirs de Tu Si. Même si celui des souvenirs de Tu Si possédait 36 têtes, celui-ci en comptait déjà 18.
 
-Ce soupçon lui était venu à l'esprit, mais il n'y avait pas prêté attention. Juste au moment où il commençait à suspecter quelque chose, le Ji Qiong utilisa un sort qui lui glaça les nerfs. Dès que la tête apparut, la culture de Wang Lin sembla se figer et il fut presque totalement immobilisé.
+Ce soupçon lui était venu à l'esprit, mais il n'y avait pas prêté attention. Juste au moment où il commençait à suspecter quelque chose, le Ji Qiong utilisa un sort qui lui glaça les nerfs. Dès que la tête apparut, la cultivation de Wang Lin sembla se figer et il fut presque totalement immobilisé.
 
-Alors que la tête tentait de le dévorer, une puissante force d'aspiration se manifesta autour de lui. C'était une force à laquelle il ne pouvait résister et, sa culture étant gelée, Wang Lin fut directement aspiré vers l'immense gueule.
+Alors que la tête tentait de le dévorer, une puissante force d'aspiration se manifesta autour de lui. C'était une force à laquelle il ne pouvait résister et, sa cultivation étant gelée, Wang Lin fut directement aspiré vers l'immense gueule.
 
 Il semblait que le sort utilisé par la tête puisse dévorer le monde. Les épées volantes de la seconde vague furent toutes aspirées.
 
@@ -44,7 +44,7 @@ Si cela s'était arrêté là, ce n'aurait pas été si grave. Ce qui choqua Wan
 
 En pleine crise, Wang Lin lutta pour lever sa main droite vers ses sourcils. Des craquements résonnèrent dans son bras jusqu'à ce qu'il se transforme en pierre, mais il parvint à toucher la zone entre ses sourcils.
 
-À la suite de cela, le bras droit de Wang Lin explosa et d'innombrables fragments rocheux furent projetés dans la gueule. Cependant, en profitant de l'explosion de son bras droit, sa culture gelée se détendit légèrement.
+À la suite de cela, le bras droit de Wang Lin explosa et d'innombrables fragments rocheux furent projetés dans la gueule. Cependant, en profitant de l'explosion de son bras droit, sa cultivation gelée se détendit légèrement.
 
 En un instant, la main gauche de Wang Lin plongea dans le vide et l'espace de stockage s'ouvrit. Il y jeta rapidement le fragment et l'épée de fer, puis une peau de bête vola et atterrit près du talisman jaune sur sa poitrine.
 
@@ -56,7 +56,7 @@ Mais à cet instant précis, sa jambe gauche se changea en pierre et s'effondra 
 
 Le Ji Qiong rugissait sans relâche. Les dix-sept têtes faisaient face avec férocité à l'empreinte de main qui approchait, et les veines sur chacune d'elles étaient gonflées. La main géante libéra un éclat vert éblouissant et la force d'aspiration s'intensifia !
 
-Le pied droit de Wang Lin s'effondra soudainement alors qu'il tentait de fuir l'aspiration. Son corps ne pouvait plus faire le moindre pas face à l'augmentation de cette force, et il fut entraîné vers la grande gueule. Wang Lin esquissa un sourire amer tout en bougeant sa main gauche qui se transformait en pierre. Il n'hésita pas à retirer les deux objets de sa poitrine et utilisa le reste de sa culture pour les remettre dans l'espace de stockage.
+Le pied droit de Wang Lin s'effondra soudainement alors qu'il tentait de fuir l'aspiration. Son corps ne pouvait plus faire le moindre pas face à l'augmentation de cette force, et il fut entraîné vers la grande gueule. Wang Lin esquissa un sourire amer tout en bougeant sa main gauche qui se transformait en pierre. Il n'hésita pas à retirer les deux objets de sa poitrine et utilisa le reste de sa cultivation pour les remettre dans l'espace de stockage.
 
 Après avoir fait tout cela, sa vision se troubla et il fut dévoré par la tête géante, comme les innombrables épées volantes.
 
@@ -80,9 +80,9 @@ Cette tête ressemblait à Wang Lin !
 
 « Se pourrait-il qu'elle soit scellée ? Si elle utilise son véritable pouvoir, cela activera le sceau... Cette tête qui est apparue... était trop terrifiante ! Avec ces deux tatouages de flétrissement, ma vitesse était comparable à celle d'un cultivateur au stade avancé du Briseur de Nirvana, mais je n'avais aucune chance face à cette force d'aspiration ! »
 
-Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer : « Wang Lin, ton niveau de culture actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose ! »
+Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer : « Wang Lin, ton niveau de cultivation actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose ! »
 
-Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniacs, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
+Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniacs, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de cultivation de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
 
 Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur de Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
 

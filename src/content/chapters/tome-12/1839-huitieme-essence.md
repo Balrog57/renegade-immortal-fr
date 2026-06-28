@@ -30,7 +30,7 @@ Les yeux de la marionnette Yi Si devinrent féroces alors qu'elle fixait l'entr�
 
 Wang Lin restait inquiet et jeta un regard au tatouage d'encre du roi des moustiques. Au moment où il baissa les yeux, le regard du roi des moustiques se fit glacial, semblant observer Wang Lin.
 
-Le roi des moustiques était la dernière couche de protection que Wang Lin avait préparée pour sa culture en isolement !
+Le roi des moustiques était la dernière couche de protection que Wang Lin avait préparée pour sa cultivation en isolement !
 
 Ce n'est qu'à ce moment-là que Wang Lin se détendit un peu. Il s'assit dans la grotte et contempla la goutte d'eau avec excitation. Il prit une profonde inspiration et pressa la goutte d'eau entre ses sourcils.
 
@@ -58,13 +58,13 @@ Il resta dans cet état pendant neuf jours. Durant cette période, la goutte d'e
 
 Il semblait que ces neuf jours de condensation et ces neuf jours de dispersion formaient un cycle. Une fois le premier cycle achevé, le second commençait immédiatement !
 
-Au dix-neuvième jour de sa culture en isolement, son corps changea de nouveau et s'atrophia instantanément pour redevenir un corps desséché. La goutte d'eau dans son corps scintillait frénétiquement.
+Au dix-neuvième jour de sa cultivation en isolement, son corps changea de nouveau et s'atrophia instantanément pour redevenir un corps desséché. La goutte d'eau dans son corps scintillait frénétiquement.
 
 Ce processus se répéta de nombreuses fois. Wang Lin traversa sept cycles de dessèchement suivis de saturation. Après ces sept cycles, la goutte d'eau en lui ne représentait plus que 20 % de sa taille initiale.
 
 Plusieurs mois passèrent.
 
-Wang Lin ignorait tout ce qui se passait à l'extérieur pendant ces longs mois, s'immergeant corps et âme dans l'absorption de l'essence d'eau. Il comprenait qu'une fois la formation de l'essence d'eau réussie, son niveau de culture augmenterait instantanément !
+Wang Lin ignorait tout ce qui se passait à l'extérieur pendant ces longs mois, s'immergeant corps et âme dans l'absorption de l'essence d'eau. Il comprenait qu'une fois la formation de l'essence d'eau réussie, son niveau de cultivation augmenterait instantanément !
 
 Et cette essence d'eau était une essence corporelle. Elle présenterait le même problème que son essence de feu : la fusion et la dévoration de la volonté.
 
@@ -72,13 +72,13 @@ Cependant, l'essence d'eau de Wang Lin n'avait atteint auparavant qu'une petite 
 
 Le temps passa de nouveau et dix-huit jours supplémentaires s'écoulèrent. Wang Lin avait achevé son huitième cycle. Après ces huit cycles, la goutte d'eau était si minuscule que, sans un examen attentif, on ne pourrait même pas la voir.
 
-Pendant que Wang Lin pratiquait sa culture en isolement, son corps d'essence véritable protégeait la grotte à l'extérieur. À l'intérieur, la marionnette Yi Si montait la garde contre toute menace.
+Pendant que Wang Lin pratiquait sa cultivation en isolement, son corps d'essence véritable protégeait la grotte à l'extérieur. À l'intérieur, la marionnette Yi Si montait la garde contre toute menace.
 
 La marionnette Yi Si n'avait pas consommé de sang depuis longtemps et était devenue très irritable. Elle rugissait constamment et lançait parfois des regards féroces à Wang Lin. Cependant, elle savait que Wang Lin était son maître ; bien que ce lien ne fût pas puissant, il suffisait à l'aider à réprimer son envie dévorante de sang.
 
 L'autre aspect crucial était que la marionnette Yi Si sentait que son maître avait changé. Il possédait une aura qui l'effrayait. Bien que le lien fût ténu, il avait fusionné avec l'âme de son maître.
 
-C'était la raison pour laquelle Wang Lin l'autorisait à le protéger. Malgré sa soif de sang, la volonté de Wang Lin exerçait encore une influence. Tant que cela ne durait pas trop longtemps, cela ne poserait pas de problème. À mesure que la culture de Wang Lin progresserait, sa volonté deviendrait plus forte et suffirait à contrôler cette marionnette sanguinaire !
+C'était la raison pour laquelle Wang Lin l'autorisait à le protéger. Malgré sa soif de sang, la volonté de Wang Lin exerçait encore une influence. Tant que cela ne durait pas trop longtemps, cela ne poserait pas de problème. À mesure que la cultivation de Wang Lin progresserait, sa volonté deviendrait plus forte et suffirait à contrôler cette marionnette sanguinaire !
 
 Il y avait également cette infime trace d'aura provenant de son avatar à l'intérieur de son corps. D'autres auraient eu du mal à la détecter, mais pas la marionnette Yi Si.
 
@@ -86,7 +86,7 @@ Fan Shanmeng se trouvait également dans la montagne et observait la grotte de W
 
 Fan Shanmeng s'arrêta à mille pieds de là lorsqu'elle aperçut le corps d'essence véritable de Wang Lin. La peur se lut dans ses yeux.
 
-Elle n'était pas assez audacieuse pour agir contre Wang Lin pendant sa culture en isolement, mais elle souhaitait l'observer de près afin d'accomplir l'ordre de son maître : maudire lentement Wang Lin jusqu'à la mort.
+Elle n'était pas assez audacieuse pour agir contre Wang Lin pendant sa cultivation en isolement, mais elle souhaitait l'observer de près afin d'accomplir l'ordre de son maître : maudire lentement Wang Lin jusqu'à la mort.
 
 Cependant, au moment où elle s'immobilisa à mille pieds, le corps d'essence de Wang Lin ouvrit les yeux et jeta un regard vers Fan Shanmeng.
 
@@ -100,9 +100,9 @@ Pourtant, elle n'était manifestement pas aussi rapide que Yi Si. La marionnette
 
 Des grondements tonitruants résonnèrent à travers la secte. La plupart des membres de la Grande Secte de l'Âme avaient reçu l'ordre de l'Ancien Ancêtre de ne pas s'approcher de la montagne de Wang Lin. À ce signal, tous tournèrent les regards.
 
-Yan Lu était en pleine culture lorsqu'elle ouvrit les yeux et son expression changea. Elle avait presque oublié qu'elle avait envoyé Fan Shanmeng maudire Wang Lin. Une trace de peur apparut dans ses yeux alors qu'elle se précipitait vers la montagne de Wang Lin.
+Yan Lu était en pleine cultivation lorsqu'elle ouvrit les yeux et son expression changea. Elle avait presque oublié qu'elle avait envoyé Fan Shanmeng maudire Wang Lin. Une trace de peur apparut dans ses yeux alors qu'elle se précipitait vers la montagne de Wang Lin.
 
-À l'intérieur de la grotte, Wang Lin vivait le neuvième et dernier cycle. Une fois réussi, son essence d'eau serait complète et son niveau de culture augmenterait.
+À l'intérieur de la grotte, Wang Lin vivait le neuvième et dernier cycle. Une fois réussi, son essence d'eau serait complète et son niveau de cultivation augmenterait.
 
 Cependant, la goutte d'essence d'eau était totalement épuisée et son corps était desséché. Wang Lin ouvrit les yeux, d'où jaillit une lumière éclatante.
 

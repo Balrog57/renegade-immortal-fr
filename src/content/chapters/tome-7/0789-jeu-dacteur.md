@@ -140,7 +140,7 @@ Son corps ne portait aucune cicatrice, mais ses yeux étaient saturés d'intenti
 
 L'apparence de cet homme ressemblait à celle du vieil homme aux cheveux blancs, mais il semblait bien plus jeune. Tandis qu'il parlait, sa main droite frappa la statue qui fondit instantanément pour former une lance noire qu'il tint fermement.
 
-« Que racontes-tu encore ? Ce n'est qu'un être céleste. Tu n'es qu'un général céleste, sans même mentionner que ton niveau de culture actuel n'est que celui de Seigneur Céleste ! » Wang Lin regarda son propre corps prononcer ces mots d'un ton désuet. Pourtant, il avait le vague sentiment que ces paroles manquaient singulièrement de confiance.
+« Que racontes-tu encore ? Ce n'est qu'un être céleste. Tu n'es qu'un général céleste, sans même mentionner que ton niveau de cultivation actuel n'est que celui de Seigneur Céleste ! » Wang Lin regarda son propre corps prononcer ces mots d'un ton désuet. Pourtant, il avait le vague sentiment que ces paroles manquaient singulièrement de confiance.
 
 Alors qu'il parlait, son corps avança et sa main droite pressa vers le bas. Le vide entier fut mis en mouvement et une brume blanche commença à s'accumuler rapidement. Bientôt, elle se mua en une sphère blanche de la taille d'un poing qui chargea l'homme d'âge moyen.
 

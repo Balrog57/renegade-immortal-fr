@@ -8,7 +8,7 @@ slug: obtenu-par-la-tromperie
 ---
 Le Clan de l'Évasion Nuageuse ne quitta pas la planète ; ils n'oseraient pas partir tant que Wang Lin ne l'aurait pas permis.
 
-Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en culture en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de 50 kilomètres autour de la grotte.
+Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en cultivation en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de 50 kilomètres autour de la grotte.
 
 Le Clan du Scorpion Noir possédant le statut le plus élevé, ils occupèrent la zone la plus proche de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement à proximité.
 
@@ -78,7 +78,7 @@ Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer ins
 
 « Il y avait aussi des aînés qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier leur identité. Chaque fois que je pense à eux, mon cœur se serre de tristesse ! »
 
-« Lamentable, lamentable ! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua : « Ne serais-tu pas simplement un escroc ? Tu en parles comme s'il s'agissait d'une culture... »
+« Lamentable, lamentable ! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua : « Ne serais-tu pas simplement un escroc ? Tu en parles comme s'il s'agissait d'une cultivation... »
 
 Xu Liguo n'eut pas le temps de finir sa phrase que Liu Jinbiao se redressa brusquement et lui lança un regard noir. Ses yeux brillaient de fierté et d'arrogance, mais aussi d'une pointe de solitude. Une solitude propre à celui qui se tient au sommet !
 

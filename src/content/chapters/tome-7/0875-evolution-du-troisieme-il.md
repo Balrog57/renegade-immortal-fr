@@ -26,7 +26,7 @@ Ces événements semblèrent se dérouler sur une longue période, mais tout s'�
 
 Li Yunzi n'avait initialement pas une bonne opinion de Wang Lin. Bien que ce Xu Mu ait pu combattre Russell et possédât des sorts incroyables, sans l'intervention de Qing Shui, c'est Xu Mu qui aurait perdu !
 
-Quant au deuxième essai, la raison pour laquelle Xu Mu avait pu dévorer l'esprit du tonnerre était également due à la chance. Li Yunzi était un homme qui avait atteint son niveau de culture actuel par son propre travail acharné. À ses yeux, les cultivateurs qui dépendaient de la chance n'étaient pas dignes. Xu Mu était l'un de ces cultivateurs selon lui.
+Quant au deuxième essai, la raison pour laquelle Xu Mu avait pu dévorer l'esprit du tonnerre était également due à la chance. Li Yunzi était un homme qui avait atteint son niveau de cultivation actuel par son propre travail acharné. À ses yeux, les cultivateurs qui dépendaient de la chance n'étaient pas dignes. Xu Mu était l'un de ces cultivateurs selon lui.
 
 Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois pas en avant et fixa Wang Lin. C'était comme si quelque chose rugissait dans son cœur.
 

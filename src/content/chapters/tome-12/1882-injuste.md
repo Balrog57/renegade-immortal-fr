@@ -8,7 +8,7 @@ slug: injuste
 ---
 Chapitre 1882 - Injuste !
 
-« Frère Wang ! » L'expression nonchalante du jeune homme disparut. Son aura changea soudainement, sa puissante culture explosa et il éclata d'un rire sonore.
+« Frère Wang ! » L'expression nonchalante du jeune homme disparut. Son aura changea soudainement, sa puissante cultivation explosa et il éclata d'un rire sonore.
 
 Il chargea en avant et rejoignit instantanément Wang Lin.
 
@@ -22,7 +22,7 @@ Les pupilles de Tang Jia se rétractèrent alors qu'elle fixait la silhouette du
 
 « Si je n'active pas l'armure d'âme du Taureau Céleste, je ne pourrai pas résister à ce coup ! » Tang Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide !
 
-Il y avait également le vieil homme assis sous l'horloge. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa culture était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs à son apogée !
+Il y avait également le vieil homme assis sous l'horloge. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa cultivation était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs à son apogée !
 
 L'expression de Wang Lin resta imperturbable. Lorsque la lame dorée du jeune homme fut à moins de cent pieds, ses yeux brillèrent et il fixa intensément le regard de son adversaire. Il leva la main et pointa l'avant.
 
@@ -78,7 +78,7 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Tang Jia ! » La voix résonna à nouveau.
 
-« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ton Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor du Secte Gui Yi ! »
+« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ton Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de cultivation. Je te remettrai également l'armure élémentaire d'eau, un trésor du Secte Gui Yi ! »
 
 Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement : « Merci, Maître de Secte. »
 
@@ -98,7 +98,7 @@ Wang Lin resta serein alors qu'il avançait vers la grande salle.
 
 « Les récompenses ont été distribuées, maintenant je vous confie une mission top secrète ! » La voix retentit. Yun Yifeng voulut dire quelque chose, mais après avoir jeté un regard à la grande salle, il se tut pour réfléchir.
 
-Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger ; Tang Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Edge Cloud, doté d'une culture élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Tang Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
+Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger ; Tang Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Edge Cloud, doté d'une cultivation élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Tang Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
 
 « Votre mission est de... » La voix commença, mais avant qu'elle ne puisse terminer, un éclat de froideur passa dans les yeux de Wang Lin.
 

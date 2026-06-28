@@ -104,7 +104,7 @@ Si le fou s'était contenté de refuser, cela n'aurait pas été si grave, mais 
 
 « Assez ! » Wang Lin interrompit le rugissement du fou par un rire exaspéré. Il dit froidement : « C'est le dernier sort. Si tu veux l'apprendre, apprends-le, sinon oublie tout ! » Wang Lin leva la main droite sans même former de sceau. Il utilisa le tout premier sort qu'il avait appris : le *Sort d'Attraction*.
 
-Avec son niveau de culture, utiliser un sort de *Condensation de Qi* était d'une facilité déconcertante. La terre trembla et un immense rocher tourbillonna dans le ciel.
+Avec son niveau de cultivation, utiliser un sort de *Condensation de Qi* était d'une facilité déconcertante. La terre trembla et un immense rocher tourbillonna dans le ciel.
 
 Le fou fut surpris une seconde, puis fixa la roche suspendue. Ses yeux brillèrent et il bondit de joie en se frottant les paupières. Puis, il commença à applaudir.
 

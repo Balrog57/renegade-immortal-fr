@@ -46,7 +46,7 @@ Wang Lin médita en silence face au palais noir qui se dressait devant lui, puis
 
 La plupart des cultivateurs Empyrean Exalts virent son geste et secouèrent la tête.
 
-« Après un échec, il est rare de réussir la seconde tentative. Plutôt que de perdre son temps ici, mieux vaut partir et se consacrer à sa culture. »
+« Après un échec, il est rare de réussir la seconde tentative. Plutôt que de perdre son temps ici, mieux vaut partir et se consacrer à sa cultivation. »
 
 « On dirait qu'il ne compte encore que sur la chance. Héhé, soit. Peut-être que le premier niveau peut se passer par simple chance. »
 

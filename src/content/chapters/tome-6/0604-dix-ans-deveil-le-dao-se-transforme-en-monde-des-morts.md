@@ -26,7 +26,7 @@ Wang Lin remarqua immédiatement plus de dix intentions meurtrières foncer sur 
 
 Doigt du Monde des Morts !
 
-Ce Doigt du Monde des Morts était utilisé avec une culture de niveau Ascendant. Un seul doigt pour invoquer les enfers. Après la fusion de son domaine et de son âme originelle, ce doigt représentait les fluctuations entre la vie et la mort. À l'instant où le doigt apparut, d'innombrables éclairs déchirèrent le ciel et une vaste rivière surgit soudainement dans les airs.
+Ce Doigt du Monde des Morts était utilisé avec une cultivation de niveau Ascendant. Un seul doigt pour invoquer les enfers. Après la fusion de son domaine et de son âme originelle, ce doigt représentait les fluctuations entre la vie et la mort. À l'instant où le doigt apparut, d'innombrables éclairs déchirèrent le ciel et une vaste rivière surgit soudainement dans les airs.
 
 Cette rivière était trouble, parcourue par d'innombrables restes et membres qui y dérivaient. Des fantômes s'y débattaient sans fin, et l'on pouvait distinguer de multiples visages humains dans l'eau !
 
@@ -46,7 +46,7 @@ Le visage de l'homme d'âge mûr sur le mur changea comme jamais auparavant. Inc
 
 « C'est... c'est impossible... Cet homme n'est qu'un cultivateur Ascendant, et pourtant il possède un Dao si terrifiant qu'il a déjà créé sa propre rivière des enfers ! »
 
-« Ce niveau de culture a déjà atteint la deuxième étape, celle qui frôle le Dao des Cieux ! »
+« Ce niveau de cultivation a déjà atteint la deuxième étape, celle qui frôle le Dao des Cieux ! »
 
 Créer son propre cycle de réincarnation grâce à une rivière des enfers formée par son propre Dao était le plus grand gain qu'il ait obtenu au cours de ses dix dernières années de défi envers les cieux ! Cependant, ce Dao n'était encore qu'un concept vague dans l'esprit de Wang Lin. Après tout, dix ans de compréhension restaient insuffisants.
 
@@ -68,7 +68,7 @@ Ces filaments se précipitèrent vers Wang Lin, qui marchait lentement vers la v
 
 Le visage de l'homme d'âge mûr sur le mur devint livide et sa gorge se dessécha. Il ne cessait de reculer, sentant qu'il était impuissant face à l'homme qui se dressait devant lui.
 
-« Mon niveau de culture est identique au sien ; nous sommes tous deux au stade initial de l'Ascendant. Cet homme est gravement blessé, j'étais donc initialement sûr à cent pour cent de pouvoir le tuer, mais à présent, je n'en suis même pas sûr à dix pour cent... Il possède déjà son propre Dao, et cette rivière des enfers est trop terrifiante ! L'Empereur Démon m'a fait du tort en me forçant à rester ici... »
+« Mon niveau de cultivation est identique au sien ; nous sommes tous deux au stade initial de l'Ascendant. Cet homme est gravement blessé, j'étais donc initialement sûr à cent pour cent de pouvoir le tuer, mais à présent, je n'en suis même pas sûr à dix pour cent... Il possède déjà son propre Dao, et cette rivière des enfers est trop terrifiante ! L'Empereur Démon m'a fait du tort en me forçant à rester ici... »
 
 L'homme serra les dents et commença à battre en retraite frénétiquement. Sans aucune hésitation, il sortit un os de bête noir de la taille d'un poing et le broya. À l'instant où l'os se brisa, un filet de gaz noir s'en échappa. Ce gaz enveloppa rapidement l'homme et le téléporta instantanément.
 

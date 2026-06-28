@@ -14,7 +14,7 @@ Le fait que Wang Lin n'ait pas tué les cultivateurs au stade de la Transformati
 
 D'innombrables tempêtes de colère éclatèrent immédiatement. Les cultivateurs dont les familles avaient été massacrées semblaient avoir perdu la raison ; ils ne reculèrent pas et jurèrent de venger Xu Mu !
 
-Cependant, encore plus de familles de cultivateurs se montrèrent hésitantes, en particulier celles du Domaine de l'Ouest. On ignorait qui avait pris l'initiative, mais bientôt, elles quittèrent toutes discrètement les lieux pour retourner sur leurs planètes de culture. Soudain, le blocus dans le Domaine de l'Ouest commença à s'étioler. De nombreuses familles de cultivateurs évaluèrent la vengeance sanglante de Wang Lin et, après un long moment, finirent par se retirer lentement.
+Cependant, encore plus de familles de cultivateurs se montrèrent hésitantes, en particulier celles du Domaine de l'Ouest. On ignorait qui avait pris l'initiative, mais bientôt, elles quittèrent toutes discrètement les lieux pour retourner sur leurs planètes de cultivation. Soudain, le blocus dans le Domaine de l'Ouest commença à s'étioler. De nombreuses familles de cultivateurs évaluèrent la vengeance sanglante de Wang Lin et, après un long moment, finirent par se retirer lentement.
 
 Après tout, exposer leurs cadets à la mort pour les simples bénéfices de la famille Yao dépassait leur ligne de conduite. Plus important encore, les actions de Wang Lin avaient fait ressentir un frisson glacial dans le cœur de ces cultivateurs dont l'intérêt primordial résidait dans leurs familles.
 
@@ -130,7 +130,7 @@ Tout cela se produisit en un instant ; c'était d'une rapidité inconcevable. Lo
 
 Simultanément, l'un des fragments émit les fluctuations d'un cultivateur Illusoire Yin avant de s'effondrer brusquement.
 
-Cela provoqua une explosion aussi puissante que celle d'un cultivateur Illusoire Yin. L'impact blessa gravement tous ceux dont la culture était inférieure au stade Illusoire Yin. Deux personnes crachèrent instantanément du sang, les yeux éteints.
+Cela provoqua une explosion aussi puissante que celle d'un cultivateur Illusoire Yin. L'impact blessa gravement tous ceux dont la cultivation était inférieure au stade Illusoire Yin. Deux personnes crachèrent instantanément du sang, les yeux éteints.
 
 L'explosion de ce fragment servit de signal, car les autres fragments explosèrent les uns après les autres. Finalement, la puissance combinée des explosions déferla sur la zone.
 
@@ -148,7 +148,7 @@ Au moment où l'âme de l'Ancêtre Sanguin se condensa, une voix extrêmement fr
 
 Cette voix émanait du seul fragment qui ne s'était pas encore effondré. Dès que cette voix retentit, l'âme d'origine de l'Ancêtre Sanguin émit un puissant éclat couleur sang avant de se briser. Une onde de choc se propagea frénétiquement après la chute de l'âme.
 
-Chaque cultivateur touché par cette onde fut instantanément tué, à moins que sa culture ne soit extrêmement puissante.
+Chaque cultivateur touché par cette onde fut instantanément tué, à moins que sa cultivation ne soit extrêmement puissante.
 
 Les yeux d'un cultivateur Illusoire Yin issu d'une famille du Domaine Nord furent remplis de terreur. Il était extrêmement proche de l'Ancêtre Sanguin et, dès que celui-ci s'effondra, l'onde le frappa de plein fouet. Il laissa échapper un gémissement misérable avant que son corps ne s'écroule. Même son âme d'origine ne put s'échapper et se dissipa.
 

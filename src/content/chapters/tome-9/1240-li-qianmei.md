@@ -30,7 +30,7 @@ Cependant, alors que Lu Yuncong parlait, une voix étrange, semblant sourdre du 
 
 Cette voix semblait faible, mais dès son apparition, elle affecta les âmes originelles de chacun, provoquant de violentes fluctuations.
 
-Si le niveau de culture d'une personne n'était pas assez élevé, son visage pâlirait et son âme originelle en serait blessée dans cette confusion.
+Si le niveau de cultivation d'une personne n'était pas assez élevé, son visage pâlirait et son âme originelle en serait blessée dans cette confusion.
 
 Seul Liu Yingjie resta impassible, bien qu'un regard de surprise brille dans ses yeux. Il se retourna et joignit respectueusement les mains : « Salutations, Senior Zhao. »
 
@@ -90,7 +90,7 @@ Les murmures se propagèrent sur toute la plateforme avec l'apparition de Li Qia
 
 Lu Yingjie vit également Li Qianmei, perchée haut dans le ciel, et ses yeux s'illuminèrent. Il connaissait Li Qianmei ; elle lui avait autrefois posé trois questions.
 
-Même Zhao Long, aux côtés de Liu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Heaven Breaking de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
+Même Zhao Long, aux côtés de Liu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Heaven Breaking de rang 9. Que ce soit son niveau de cultivation ou sa secte, il n'était pas de son rang.
 
 L'homme chargé de la compétition aujourd'hui était un vieil homme nommé Feng Hai, accompagné de six autres Anciens de la Secte Éternelle. Ayant senti la présence de Li Qianmei, il s'élança immédiatement avec les Anciens et une trentaine de disciples. Ils furent suivis par les cent personnes responsables de l'événement.
 

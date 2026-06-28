@@ -36,7 +36,7 @@ Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son êtr
 
 « Qu'est-ce que c'est ? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans et portait une robe blanche ornée de motifs de vignes noires sur les poignets.
 
-Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna : « Teng Jia, Teng Yi, attendez ce gamin, Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
+Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna : « Teng Jia, Teng Yi, attendez ce gamin, Zhang Hu. Détruisez sa cultivation, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
 
 À l'instant où il prononça ces mots, deux ombres jaillirent à ses côtés. Il s'agissait de deux vieillards au visage ridé. L'un d'eux dit : « Monseigneur, ces deux personnes sont dans la ville de la Famille Teng. Cela va à l'encontre des règles. Si le chef demande... »
 

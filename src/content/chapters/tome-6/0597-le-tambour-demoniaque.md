@@ -80,7 +80,7 @@ Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard 
 
 « Lorsque d'autres font face à l'Ascendant, ils suivent soit le Dao céleste, soit ils l'évitent, et ainsi la punition divine n'advient pas. Mais toi, tu as choisi de l'affronter, et c'est ce qui a provoqué la descente de cette rétribution... »
 
-« Le Dao céleste ne permettra jamais un troisième type de culture défiant les cieux... Il y a d'innombrables années, lors de la formation de l'univers, il existait une race aussi ancienne que le Dao céleste lui-même. Les membres de cette race possédaient un pouvoir immense. Ils utilisaient ce pouvoir pour forger leur propre Dao, et ils utilisaient ce Dao pour combattre les cieux. Certains possédaient des sorts prodigieux ; d'un simple revers de main, ils pouvaient détruire le Dao et utiliser leurs sortilèges pour lutter contre les cieux. Il y avait aussi ceux qui marchaient sur la voie du massacre ; ils vivaient dans la boucherie et utilisaient la mort pour combattre les cieux ! »
+« Le Dao céleste ne permettra jamais un troisième type de cultivation défiant les cieux... Il y a d'innombrables années, lors de la formation de l'univers, il existait une race aussi ancienne que le Dao céleste lui-même. Les membres de cette race possédaient un pouvoir immense. Ils utilisaient ce pouvoir pour forger leur propre Dao, et ils utilisaient ce Dao pour combattre les cieux. Certains possédaient des sorts prodigieux ; d'un simple revers de main, ils pouvaient détruire le Dao et utiliser leurs sortilèges pour lutter contre les cieux. Il y avait aussi ceux qui marchaient sur la voie du massacre ; ils vivaient dans la boucherie et utilisaient la mort pour combattre les cieux ! »
 
 « Ils se faisaient appeler l'Ordre Ancestral ! »
 

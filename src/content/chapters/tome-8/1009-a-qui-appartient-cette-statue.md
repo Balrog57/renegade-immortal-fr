@@ -134,7 +134,7 @@ L'énergie originelle du monde devait s'incliner devant cette statue !
 
 Wang Lin était terrifié. À cet instant, il n'entendait que les battements précipités de son cœur. C'était comme si son sang avait cessé de couler, avant que, l'instant d'après, tout son flux sanguin ne se précipite violemment vers son cœur.
 
-Wang Lin n'avait jamais rencontré une telle situation en plus de 1 300 ans de culture, mais ce n'était pas le moment de s'en préoccuper. Son énergie originelle était inutilisable et la circulation de son sang le faisait trembler.
+Wang Lin n'avait jamais rencontré une telle situation en plus de 1 300 ans de cultivation, mais ce n'était pas le moment de s'en préoccuper. Son énergie originelle était inutilisable et la circulation de son sang le faisait trembler.
 
 Une pression inimaginable exigeait qu'il tombe à genoux pour se soumettre à la majesté de cette statue !
 

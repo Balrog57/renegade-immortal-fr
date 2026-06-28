@@ -10,7 +10,7 @@ slug: mei-er
 
 Bien que le cœur de Ran Yue fût sous le choc, elle se calma rapidement. Voyant que Wang Lin restait silencieux, elle commença à spéculer. Bien que les sorts de Wang Lin fussent impressionnants, le statut d'un Messager Céleste du Tonnerre était extraordinaire ; elle nourrissait donc elle aussi des soupçons.
 
-De plus, ce qui la surprit véritablement, c'était son incapacité à percer le niveau de culture de Wang Lin. Cela ne faisait qu'accroître l'incertitude quant à son identité.
+De plus, ce qui la surprit véritablement, c'était son incapacité à percer le niveau de cultivation de Wang Lin. Cela ne faisait qu'accroître l'incertitude quant à son identité.
 
 Quant aux trois autres, et particulièrement Sun Xueshan, ils se montraient extrêmement respectueux. Sun Xueshan était même transporté par une excitation frisant le fanatisme. Après avoir entendu les paroles de Ran Yue, il était intimement convaincu que cet homme devait être un Messager Céleste du Tonnerre.
 
@@ -22,13 +22,13 @@ Après un court moment de vol, Wang Lin fronça les sourcils. Les quatre étaien
 
 Étant étranger au système stellaire d'Allheaven, il n'était pas pressé de se précipiter. Au contraire, il jugeait préférable de mieux comprendre ce système afin de faciliter ses futurs déplacements.
 
-Wang Lin demanda calmement : « Quelles autres planètes de culture se trouvent aux alentours de la planète Ran Yun ? »
+Wang Lin demanda calmement : « Quelles autres planètes de cultivation se trouvent aux alentours de la planète Ran Yun ? »
 
 Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de Wang Lin avec une admiration non dissimulée, répondit promptement : « La planète Ran Yun est affiliée à la planète Thousand Illusion, l'une des cinq planètes majeures du domaine Nord. Il existe également de nombreuses autres planètes sous l'influence de Thousand Illusion. » Il s'étonna un instant que Wang Lin ne le sache pas, mais se rassura en se disant qu'il y avait une multitude de planètes dans le système stellaire d'Allheaven.
 
 L'expression de Wang Lin resta de marbre, mais son cœur tressaillit.
 
-« La planète Thousand Illusion... Thousand Illusion... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Thousand Illusion. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
+« La planète Thousand Illusion... Thousand Illusion... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la cultivation au sein du domaine Impitoyable de Thousand Illusion. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
 
 « Le domaine Nord. Il semble que le système stellaire d'Allheaven soit divisé en quatre domaines : Est, Ouest, Nord et Sud. Je me trouve donc actuellement dans le domaine Nord. »
 
@@ -56,15 +56,15 @@ Il n'était pas le seul : hormis Ran Yue, les deux autres devinrent également e
 
 Même Ran Yue retint un souffle court. Toutes ses conjectures sur l'identité de Wang Lin furent balayées d'un coup.
 
-Leurs réactions semblaient disproportionnées par rapport à leur niveau de culture. Bien que les cultivateurs de la Transformation de l'Âme ne fussent pas aussi rusés que ceux de l'Ascendant, ils ne devaient pas être si facilement déstabilisés. Comparés à des experts, ces quatre individus paraissaient bien immatures.
+Leurs réactions semblaient disproportionnées par rapport à leur niveau de cultivation. Bien que les cultivateurs de la Transformation de l'Âme ne fussent pas aussi rusés que ceux de l'Ascendant, ils ne devaient pas être si facilement déstabilisés. Comparés à des experts, ces quatre individus paraissaient bien immatures.
 
-En recoupant ses connaissances, Wang Lin eut soudainement une intuition : il semblait que les membres de ces grandes familles de culture n'étaient que rarement confrontés à des situations de mort imminente.
+En recoupant ses connaissances, Wang Lin eut soudainement une intuition : il semblait que les membres de ces grandes familles de cultivation n'étaient que rarement confrontés à des situations de mort imminente.
 
-Sans avoir traversé d'innombrables épreuves de vie ou de mort, peu importe leur niveau de culture, ils ne deviendraient jamais de véritables puissances.
+Sans avoir traversé d'innombrables épreuves de vie ou de mort, peu importe leur niveau de cultivation, ils ne deviendraient jamais de véritables puissances.
 
 Wang Lin les observa froidement. « Connaissez-vous la planète Dong Lin ?! »
 
-Le visage de Ran Yue s'affaissa et elle dit respectueusement : « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom : le Massacre de Dong Lin. Cette planète a aussi une particularité étrange : elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste : tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré une famille de culture entière.
+Le visage de Ran Yue s'affaissa et elle dit respectueusement : « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom : le Massacre de Dong Lin. Cette planète a aussi une particularité étrange : elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste : tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré une famille de cultivation entière.
 
 La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire d'Allheaven.
 
@@ -108,7 +108,7 @@ En volant, elle tourna la tête vers le système stellaire laissé derrière eux
 
 « Votre disciple a grandi ici et ressent une certaine tristesse à l'idée de ce départ », répondit-elle en jouant avec ses cheveux, les lèvres serrées.
 
-Le vieil homme eut un rire léger. « Il n'y a pas lieu d'être triste. Une fois que ton niveau de culture sera assez élevé, tu pourras revenir. Bien que je n'aie pas trouvé le trésor que je cherchais, t'avoir prise comme disciple fait que ce voyage dans le système stellaire de l'Alliance en valait la peine ! »
+Le vieil homme eut un rire léger. « Il n'y a pas lieu d'être triste. Une fois que ton niveau de cultivation sera assez élevé, tu pourras revenir. Bien que je n'aie pas trouvé le trésor que je cherchais, t'avoir prise comme disciple fait que ce voyage dans le système stellaire de l'Alliance en valait la peine ! »
 
 La femme sourit sans mot dire, mais son regard sur le système qu'ils quittaient devint plus complexe encore.
 

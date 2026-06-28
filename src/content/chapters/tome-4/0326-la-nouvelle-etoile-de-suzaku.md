@@ -76,11 +76,11 @@ Wang Lin rit et hocha la tête. Il activa le fourneau de retour et un vortex se 
 
 Chi Hu frappa également son sac de rangement pour en sortir son chaudron de retour. Il l'activa et entra dans le vortex, tout comme Wang Lin.
 
-Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de culture de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Red Butterfly, avait perdu un bras lors d'un combat !
+Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de cultivation de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Red Butterfly, avait perdu un bras lors d'un combat !
 
-Avec la destruction de l'Alliance des Quatre Sectes et l'ascension de Xue Yu au rang de pays de culture de niveau 5, sa renommée avait explosé sur la planète. Les rumeurs à son sujet étaient incessantes, évoquant notamment comment elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans, ou encore comment elle avait été acceptée comme disciple centrale de Suzaku. Ces faits alimentaient encore les discussions parmi les cultivateurs.
+Avec la destruction de l'Alliance des Quatre Sectes et l'ascension de Xue Yu au rang de pays de cultivation de niveau 5, sa renommée avait explosé sur la planète. Les rumeurs à son sujet étaient incessantes, évoquant notamment comment elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans, ou encore comment elle avait été acceptée comme disciple centrale de Suzaku. Ces faits alimentaient encore les discussions parmi les cultivateurs.
 
-Peu de gens savaient que Red Butterfly avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de culture de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
+Peu de gens savaient que Red Butterfly avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de cultivation de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
 
 La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainement dans le ciel et que Red Butterfly en tomba. Elle avait perdu un bras et ne prononça qu'une seule chose avant de perdre connaissance :
 
@@ -88,7 +88,7 @@ La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainemen
 
 C'était le nom que Red Butterfly avait craché entre ses dents avant de sombrer dans l'inconscience.
 
-Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Red Butterfly et du nom de Ceng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Ceng Niu devint soudainement plus célèbre que celui de Red Butterfly elle-même ; il devint l'étoile la plus brillante de la planète.
+Tous les messagers des pays de cultivation de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Red Butterfly et du nom de Ceng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Ceng Niu devint soudainement plus célèbre que celui de Red Butterfly elle-même ; il devint l'étoile la plus brillante de la planète.
 
 Tout le monde cherchait à savoir de quelle planète ce Ceng Niu pouvait bien venir.
 
@@ -102,15 +102,15 @@ L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien qu
 
 L'affaire refit surface brusquement lorsque le jeune maître du Clan du Démon Géant revint il y a trois mois. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
 
-Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire : « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Red Butterfly, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Red Butterfly qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe ! »
+Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire : « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa cultivation est impénétrable, et quant à sa rancœur envers Red Butterfly, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Red Butterfly qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe ! »
 
-Après avoir déclaré cela, Chi Hu entra immédiatement en culture de méditation et refusa de recevoir quiconque. Cette déclaration fut divulguée et se propagea comme une traînée de poudre, faisant ressurgir le nom de Ceng Niu partout, plus célèbre que jamais.
+Après avoir déclaré cela, Chi Hu entra immédiatement en cultivation de méditation et refusa de recevoir quiconque. Cette déclaration fut divulguée et se propagea comme une traînée de poudre, faisant ressurgir le nom de Ceng Niu partout, plus célèbre que jamais.
 
 Par la suite, une fois rétablie, Red Butterfly envoya un message à travers Suzaku : « Ceng Niu, notre combat n'est pas terminé ! Je t'attends ! »
 
 « Ceng Niu, qui es-tu au juste ?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Red Butterfly, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu ? Bien que Red Butterfly ait fait réaliser son portrait, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
 
-Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même : « Ceng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
+Dans une petite secte d'un pays de cultivation de rang 4, un homme d'âge mûr marmonna pour lui-même : « Ceng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
 
 Des nuages couvraient le ciel dans la région où Wang Lin était entré dans le Royaume Céleste. La foudre déchirait les cieux et une pluie incessante tombait. Cette tempête durait déjà depuis plus d'un mois. Très peu de cultivateurs sortaient sous cette pluie, et encore moins de mortels.
 
@@ -120,7 +120,7 @@ La jeune fille rit : « Maître, voyager sous cette pluie consomme beaucoup d'é
 
 Le vieil homme sourit : « C'est vrai. Si tu restes aussi diligente, tu pourras atteindre le stade de la Formation du Noyau d'ici dix ans ! »
 
-La jeune fille demanda soudainement : « Maître, à quel niveau de culture pensez-vous que Ceng Niu ait atteint pour pouvoir arracher un bras à Red Butterfly ? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme ? »
+La jeune fille demanda soudainement : « Maître, à quel niveau de cultivation pensez-vous que Ceng Niu ait atteint pour pouvoir arracher un bras à Red Butterfly ? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme ? »
 
 « Ceng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger ? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme ; sinon, Red Butterfly n'aurait pas seulement perdu un bras, elle serait morte. »
 

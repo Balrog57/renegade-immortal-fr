@@ -50,7 +50,7 @@ Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yun
 
 Qu'il s'agisse du Céleste du Tonnerre d'Allheaven, de l'Empereur Divin de l'Oiseau Vermillon, du disciple de la génération suivante du Céleste Empereur Bai Fang, du jeune apprenti du Seigneur Céleste Qing Shui ou du disciple de l'actuel Céleste Empereur Qing Lin, chacun de ces titres pesait bien plus lourd que tout ce que le Secte Dao Pourpre pouvait offrir.
 
-Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace du Secte Dao Pourpre était une plaisanterie ; elle ne représentait même pas un cheveu sur la tête de Tuo Sen !
+Les plus de 1 000 ans d'expérience de cultivation de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace du Secte Dao Pourpre était une plaisanterie ; elle ne représentait même pas un cheveu sur la tête de Tuo Sen !
 
 D'un revers de la main droite, Wang Lin rangea la gigantesque bête spirituelle noire qui tremblait après avoir perdu son maître. Elle n'osa opposer aucune résistance.
 
@@ -66,7 +66,7 @@ Le silence tomba sur les environs, et la respiration de chacun devint pesante. L
 
 « Pourquoi ce senior a-t-il aidé le Secte de l'Origine ? »
 
-« Pour tuer instantanément Song Wude... Quel est son niveau de culture ? »
+« Pour tuer instantanément Song Wude... Quel est son niveau de cultivation ? »
 
 « Il a les cheveux blancs ! » murmura doucement Lu Yanfei, avant d'esquisser un léger sourire. Ce sourire n'était pas apparu depuis que son maître avait été gravement blessé.
 

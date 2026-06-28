@@ -30,13 +30,13 @@ Cette énergie d'épée hurla en balayant tout l'espace vert, provoquant l'effon
 
 Le morceau de métal se rapprocha instantanément et pénétra dans le corps de Wang Lin. Il fondit pour se transformer en une aura dorée qui se propagea dans chaque parcelle de son être.
 
-À cet instant, une pression écrasante jaillit du corps de Wang Lin. Elle était si intense qu'elle semblait presque solide. Le corps du vieil homme en trembla. À ce moment précis, l'âme originelle de Wang Lin ne contrôlait pas son corps ; sinon, la pression aurait été encore plus terrifiante compte tenu de son niveau de culture actuel !
+À cet instant, une pression écrasante jaillit du corps de Wang Lin. Elle était si intense qu'elle semblait presque solide. Le corps du vieil homme en trembla. À ce moment précis, l'âme originelle de Wang Lin ne contrôlait pas son corps ; sinon, la pression aurait été encore plus terrifiante compte tenu de son niveau de cultivation actuel !
 
 L'expression des deux Messagers du Scorpion Vert changea radicalement. Ils fixèrent le corps de Wang Lin avec une extrême gravité.
 
-« Bien que le corps de cette personne soit celui d'un clan ancien, le corps de Lord Green Devil est plus puissant que celui du clan ancien, et sa culture surpasse celle du clan Céleste. Le corps de cet homme n'est encore pas assez fort... »
+« Bien que le corps de cette personne soit celui d'un clan ancien, le corps de Lord Green Devil est plus puissant que celui du clan ancien, et sa cultivation surpasse celle du clan Céleste. Le corps de cet homme n'est encore pas assez fort... »
 
-« Bien que je ne puisse pas fusionner ses pouvoirs anciens et célestes — car plus sa lignée est pure, plus son pouvoir céleste sera rejeté — je dois créer une veine séparée afin d'éviter ce rejet. Ainsi, lorsque Lord Green Devil descendra, il pourra atteindre le sommet de sa culture ! » marmonna l'homme en robe verte. La folie dans ses yeux s'intensifia. D'un geste de sa manche, il projeta vers Wang Lin quatre feuilles, six pilules exhalant une odeur de sang, une ligne de sang rouge et trois pierres grises.
+« Bien que je ne puisse pas fusionner ses pouvoirs anciens et célestes — car plus sa lignée est pure, plus son pouvoir céleste sera rejeté — je dois créer une veine séparée afin d'éviter ce rejet. Ainsi, lorsque Lord Green Devil descendra, il pourra atteindre le sommet de sa cultivation ! » marmonna l'homme en robe verte. La folie dans ses yeux s'intensifia. D'un geste de sa manche, il projeta vers Wang Lin quatre feuilles, six pilules exhalant une odeur de sang, une ligne de sang rouge et trois pierres grises.
 
 Chacun de ces objets était d'une valeur inestimable. S'ils avaient été exhibés en public, ils auraient déclenché des combats entre d'innombrables cultivateurs. Le vieil homme n'hésita pas un instant à les sacrifier sur Wang Lin. Les objets se désintégrèrent en une multitude de fragments pour pénétrer dans le corps du jeune homme. Parmi eux, la ligne de sang était la plus précieuse. La rumeur disait qu'il s'agissait d'un fragment de cheveu de l'Ancêtre Céleste !
 

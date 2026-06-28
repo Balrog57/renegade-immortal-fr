@@ -40,7 +40,7 @@ Xu Yun se montrait très respectueuse envers cet homme nommé Ceng Niu qui vivai
 
 Chaque fois qu'elle songeait à la silhouette de Wang Lin et à la grâce de ses mouvements, elle se sentait tendue. À cet instant, elle observait Wang Lin avec perplexité.
 
-« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer Nuageuse atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Nuageuse. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
+« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer Nuageuse atteignait un certain niveau de cultivation, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Nuageuse. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
 
 Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici ; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
 
@@ -66,11 +66,11 @@ Les disciples de la secte le savaient tous et n'osaient pas venir ici pour cueil
 
 Si la pilule explosait, non seulement la maison serait détruite, mais le jardin lui-même en subirait les conséquences. Xu Yun frappa le sol de frustration, mais n'osa pas s'avancer pour l'interrompre.
 
-« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une junior comme moi. Quel tyran ! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
+« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa cultivation élevée pour intimider une junior comme moi. Quel tyran ! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
 
 « Arrogant, quel arrogant ! » En repensant au visage de Wang Lin, sa colère redoublait.
 
-« Bien que l'alchimie ait un lien avec la culture, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de culture, le taux de réussite lors d'un premier essai ne peut être élevé ! » Xu Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
+« Bien que l'alchimie ait un lien avec la cultivation, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de cultivation, le taux de réussite lors d'un premier essai ne peut être élevé ! » Xu Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
 
 Wang Lin ne se souciait guère du mécontentement de Xu Yun. De retour dans sa chambre, il s'assit et agita la main. Toutes les herbes qu'il avait cueillies flottèrent dans l'air. Son œil gauche s'illumina et des flammes commencèrent immédiatement à y brûler.
 

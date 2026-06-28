@@ -20,13 +20,13 @@ Après avoir constaté la présence du Clan des Hirondelles de Feu dans les Terr
 
 Le vieil homme du Clan des Hirondelles de Feu entra au deuxième étage et s'assit nonchalamment. Ses yeux s'illuminèrent et il commença à observer Wang Lin. Bien qu'il paraisse calme, il était extrêmement vigilant.
 
-Il connaissait naturellement le Patriarche du Scorpion Noir et savait quel devrait être son niveau de culture. Pourtant, même un homme de son rang n'était pas qualifié pour s'asseoir et se tenait là, tel un serviteur.
+Il connaissait naturellement le Patriarche du Scorpion Noir et savait quel devrait être son niveau de cultivation. Pourtant, même un homme de son rang n'était pas qualifié pour s'asseoir et se tenait là, tel un serviteur.
 
 Cela rendait Wang Lin profondément mystérieux à ses yeux.
 
-De plus, le plus important était qu'il ne parvenait pas à percer la culture de Wang Lin !
+De plus, le plus important était qu'il ne parvenait pas à percer la cultivation de Wang Lin !
 
-Peu importe la manière dont son Sens Divin se propageait, il ne détectait aucune aura de culture émanant de Wang Lin, et encore moins de quoi déterminer son clan d'appartenance.
+Peu importe la manière dont son Sens Divin se propageait, il ne détectait aucune aura de cultivation émanant de Wang Lin, et encore moins de quoi déterminer son clan d'appartenance.
 
 Les habitants du Système d'Étoiles Anciennes n'arboraient pas toujours leur marque entre les sourcils. Certains cultivateurs puissants pouvaient dissimuler leur marque de clan, la rendant indétectable pour autrui.
 
@@ -66,7 +66,7 @@ La femme charmante s'inclina respectueusement, puis sortit un morceau de jade qu
 
 Le mur commença immédiatement à onduler avant de devenir transparent, révélant clairement l'intérieur. Derrière la paroi, trois pierres blanches de la taille d'un poing tournaient lentement sur elles-mêmes.
 
-La femme baissa la tête et murmura : « Senior, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Ardant à vendre ; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture Hu était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
+La femme baissa la tête et murmura : « Senior, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Ardant à vendre ; il ne reste que ces trois pièces... À l'origine, le Compagnon de Cultivation Hu était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
 
 Le vieil homme du Clan des Hirondelles de Feu regarda les trois pierres blanches et soupira intérieurement. Il joignit les mains : « Puisque le Senior les désire, comment ce junior oserait-il rivaliser ? »
 
@@ -80,7 +80,7 @@ Wang Lin demanda lentement : « Est-ce suffisant pour les cristaux ? »
 
 La femme prit une profonde inspiration, scruta de nouveau les cristaux, puis hocha la tête : « C'est suffisant ! »
 
-À cet instant précis, le vieil homme du Clan des Hirondelles de Feu intervint : « Compagnon de Culture Zhao, ce vieux pourrait-il examiner ces pilules ? » Bien que son expression restât calme, son cœur était en plein tumulte. En voyant les pilules, il ressentit une aura qui ébranla ses fondations.
+À cet instant précis, le vieil homme du Clan des Hirondelles de Feu intervint : « Compagnon de Cultivation Zhao, ce vieux pourrait-il examiner ces pilules ? » Bien que son expression restât calme, son cœur était en plein tumulte. En voyant les pilules, il ressentit une aura qui ébranla ses fondations.
 
 La femme regarda le vieil homme avec hésitation. Cependant, voyant Wang Lin rester immobile, les yeux clos comme s'il n'en avait cure, elle acquiesça et lui tendit une pilule.
 

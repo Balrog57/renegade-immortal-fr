@@ -12,13 +12,13 @@ Bien que Ye Zizai soit parti, le Secte des Cadavres était plus vigilant que jam
 
 Cependant, ces ouvertures étaient saturées d'énergie Yin et s'enfonçaient profondément. Même après avoir sondé plus de cent mètres à l'intérieur, Wang Lin ne trouva rien d'anormal. Néanmoins, l'énergie Yin devenait si puissante que son Sens Divin ne pouvait plus la supporter et commençait à vaciller. Il réfléchit un instant. Ne voulant pas agir avec imprudence, il retira d'abord son Sens Divin. Après avoir calmé son esprit, il forma quelques sceaux, mobilisant toute l'énergie spirituelle de son corps. Une couche de lumière bleu profond enveloppa alors sa silhouette, formant un tourbillon qui aspira tout le gaz blanc environnant.
 
-Tous les disciples du Secte des Cadavres qui cultivaient à l'intérieur venaient de reprendre leurs esprits après la pression subie. Ils étaient stupéfaits de sentir l'énergie Yin diminuer sous l'effet de la culture de Wang Lin. Comme cette énergie provenait d'un lieu mystérieux situé profondément sous terre, ils en furent extrêmement surpris.
+Tous les disciples du Secte des Cadavres qui cultivaient à l'intérieur venaient de reprendre leurs esprits après la pression subie. Ils étaient stupéfaits de sentir l'énergie Yin diminuer sous l'effet de la cultivation de Wang Lin. Comme cette énergie provenait d'un lieu mystérieux situé profondément sous terre, ils en furent extrêmement surpris.
 
 Voyant le flux incessant d'énergie Yin converger vers lui, Wang Lin cessa rapidement son absorption pour commencer à digérer l'énergie déjà présente dans son corps.
 
 Alors qu'il cultivait, il sentit soudain une sensation de froid intense là où il tenait la perle. Il la sortit précipitamment et constata que d'innombrables gouttelettes de liquide s'y étaient accumulées.
 
-Wang Lin fut immédiatement stupéfait. Il fallait admettre que la faiblesse de la Perle Défiant le Ciel résidait dans son absence d'énergie spirituelle interne, l'obligeant à consommer du liquide spirituel pour poursuivre sa culture. Cependant, l'efficacité de l'eau spirituelle diminuait avec l'usage ; seule la rosée permettait de maintenir une efficacité constante.
+Wang Lin fut immédiatement stupéfait. Il fallait admettre que la faiblesse de la Perle Défiant le Ciel résidait dans son absence d'énergie spirituelle interne, l'obligeant à consommer du liquide spirituel pour poursuivre sa cultivation. Cependant, l'efficacité de l'eau spirituelle diminuait avec l'usage ; seule la rosée permettait de maintenir une efficacité constante.
 
 Mais collecter la rosée était un processus bien trop lent. C'est pourquoi il n'avait que peu pratiqué à l'intérieur de la perle depuis qu'il avait commencé la Méthode d'Ascension des Enfers. Il continuait néanmoins à récolter de la rosée pour ses besoins occasionnels.
 
@@ -26,7 +26,7 @@ Pourtant, pour une raison obscure, la Perle Défiant le Ciel produisait soudaine
 
 Wang Lin prit une profonde inspiration et, sans perdre un instant, commença à recueillir le précieux liquide.
 
-Une fois la collecte terminée, ses yeux s'illuminèrent alors qu'il reprenait la culture de l'énergie Yin. Immédiatement, du gaz blanc apparut. Cette fois, il maintint son Sens Divin sur la perle de pierre et remarqua que partie de ce gaz pénétrait à l'intérieur, faisant réapparaître plusieurs gouttes de liquide à sa surface.
+Une fois la collecte terminée, ses yeux s'illuminèrent alors qu'il reprenait la cultivation de l'énergie Yin. Immédiatement, du gaz blanc apparut. Cette fois, il maintint son Sens Divin sur la perle de pierre et remarqua que partie de ce gaz pénétrait à l'intérieur, faisant réapparaître plusieurs gouttes de liquide à sa surface.
 
 Un sourire de joie éclaira le visage de Wang Lin. De cette manière, il parvint à recueillir une gourde entière de liquide spirituel.
 
@@ -72,7 +72,7 @@ Wang Lin ne put s'empêcher de lâcher un sourire amer. Il aurait aimé que Situ
 
 Il comprit que quitter les lieux ne se ferait pas de sitôt. Ses explorations précédentes n'avaient servi qu'à jauger l'ampleur du piège.
 
-Ses mains formèrent un nouveau sceau pour refermer l'accès à sa grotte. Il reprit la culture de l'énergie Yin. Non seulement il disposait de la perle, mais il projeta également son Sens Divin dans les interstices des murs.
+Ses mains formèrent un nouveau sceau pour refermer l'accès à sa grotte. Il reprit la cultivation de l'énergie Yin. Non seulement il disposait de la perle, mais il projeta également son Sens Divin dans les interstices des murs.
 
 Plutôt que de fragmenter son Sens Divin, il le concentra en un seul flux unique vers l'un des petits trous. De cette manière, sa portée augmenta considérablement. Initialement, son Sens Divin s'étendait sur un kilomètre, mais les interférences des parois rocheuses le maintenaient prisonnier de la grotte.
 

@@ -10,7 +10,7 @@ Wang Lin sentit la plante géante invoquée par le vieil homme alors qu'il se te
 
 Il avait fait preuve d'une grande prudence tout ce temps. Il n'agissait que lorsqu'il était certain de sa propre sécurité.
 
-Maintenant qu'il avait coupé la voie de retraite du vieil homme, il savait que celui-ci était furieux. Bien que le vieil homme fût alors à son point le plus faible, Wang Lin savait aussi que son propre niveau de culture était bien trop bas. Sans la vitesse de la boussole stellaire, il serait déjà devenu le pantin du vieil homme.
+Maintenant qu'il avait coupé la voie de retraite du vieil homme, il savait que celui-ci était furieux. Bien que le vieil homme fût alors à son point le plus faible, Wang Lin savait aussi que son propre niveau de cultivation était bien trop bas. Sans la vitesse de la boussole stellaire, il serait déjà devenu le pantin du vieil homme.
 
 Peu importe la faiblesse d'un shaman aux sept feuilles — qui possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme —, il aurait toujours eu la capacité de tuer Wang Lin. Ce dernier ne croyait pas avoir, de lui-même, le pouvoir de tuer le vieil homme.
 

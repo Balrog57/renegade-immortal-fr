@@ -60,7 +60,7 @@ Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deu
 
 « Char de Guerre Divin, libération du sceau ! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
-C'était une bête spirituelle haute de près de mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Choisis. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
+C'était une bête spirituelle haute de près de mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Choisis. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une cultivation puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 
 Les poils de la puce se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
 
@@ -88,7 +88,7 @@ Cette fois, dès que la bête spirituelle chargea en rugissant, son corps s'effo
 
 Après que la bête spirituelle s'est effondrée deux fois, son regard devint plus féroce encore. Elle poussa un rugissement violent, son corps se reforma et elle chargea une nouvelle fois. Cette fois, sa masse se divisa en une multitude de segments pour attaquer Wang Lin de toutes parts.
 
-Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans de culture, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée !
+Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans de cultivation, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée !
 
 Le regard de Wang Lin se glaça et il dit calmement : « Effondrement ! Effondrement ! Effondrement ! »
 

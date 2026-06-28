@@ -12,7 +12,7 @@ Ces âmes étaient de véritables âmes errantes issues du champ de bataille ext
 
 En réalité, il avait collecté plus de 100 000 âmes errantes au cours de ses années passées sur le champ de bataille, mais il n'avait pu en faire sortir que 10 000.
 
-La différence entre les âmes errantes et les démons résidait dans le fait que, peu importe le niveau de culture de l'ennemi, elles se jetaient sur lui sans hésiter, même si cela signifiait qu'elles risquaient d'être elles-mêmes raffinées.
+La différence entre les âmes errantes et les démons résidait dans le fait que, peu importe le niveau de cultivation de l'ennemi, elles se jetaient sur lui sans hésiter, même si cela signifiait qu'elles risquaient d'être elles-mêmes raffinées.
 
 Wang Lin n'avait pas encore testé s'il pouvait terrasser un cultivateur au stade de la Formation de l'Âme en utilisant ses 10 000 âmes errantes. Après tout, à moins d'une nécessité absolue, il ne voulait pas gaspiller ces précieuses âmes pour lesquelles il avait tant lutté.
 
@@ -28,7 +28,7 @@ Cet homme était également un membre du Clan des Démons Géants venu de Suzaku
 
 Parmi les personnes présentes sur la plateforme, un homme d'âge moyen vêtu d'un manteau gris se distinguait. Ses yeux étaient sombres, son nez légèrement aquilin, et son visage exhalait une profonde mélancolie. Il fixa Wang Lin et fit un pas vers lui.
 
-Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme ; il n'était qu'à un stade avancé de l'Âme Naissante. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
+Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de cultivation de cet individu n'atteignait même pas le stade de la Formation de l'Âme ; il n'était qu'à un stade avancé de l'Âme Naissante. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
 
 L'homme au manteau gris s'avança prudemment vers les âmes errantes. Il commença à psalmodier et une sphère de flammes noires se forma dans sa paume. Dès l'apparition de cette flamme noire, une vague de chaleur se propagea dans l'air.
 
@@ -48,7 +48,7 @@ Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitè
 
 Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixant froidement les personnes sur la plateforme.
 
-L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et parfaitement préparés. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort sur le coup.
+L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et parfaitement préparés. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la cultivation de l'ennemi avait été à son apogée, il serait mort sur le coup.
 
 Voyant que ses flammes s'étouffaient et qu'une multitude de ces créatures mystérieuses rôdaient encore, l'homme serra les dents et agita la main. Un petit chaudron apparut alors devant lui. Son regard trahissait une profonde amertume alors qu'il s'apprêtait à l'utiliser pour fuir vers sa planète d'origine.
 
@@ -64,7 +64,7 @@ Sa chair se désintégra lentement pour ne laisser qu'un squelette, tandis que l
 
 Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandement, les âmes environnantes revinrent vers lui et disparurent dans son front.
 
-À cet instant, l'homme du Clan des Démons Géants laissa échapper un rire. Il fit quelques pas en avant et demanda : « Cher compagnon de culture, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne ? »
+À cet instant, l'homme du Clan des Démons Géants laissa échapper un rire. Il fit quelques pas en avant et demanda : « Cher compagnon de cultivation, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne ? »
 
 Wang Lin le regarda et répondit calmement : « Un fragment du royaume céleste s'est effondré. »
 
@@ -72,13 +72,13 @@ L'homme fut stupéfait. Il regarda Wang Lin avec une admiration non feinte : « 
 
 Wang Lin secoua la tête et dit : « Ce n'était que de la chance. Mon nom est Ceng Niu ! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas dévoré le jade céleste avec imprudence, il serait déjà mort.
 
-« Ceng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux : « Cher compagnon, seriez-vous un membre de la famille Ceng, issue du pays de culture de rang 5 nommé Heaven Soul, dans le sud de Suzaku ? »
+« Ceng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux : « Cher compagnon, seriez-vous un membre de la famille Ceng, issue du pays de cultivation de rang 5 nommé Heaven Soul, dans le sud de Suzaku ? »
 
 Wang Lin fut surpris et secoua silencieusement la tête.
 
-Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Heaven Soul. Bien qu'il ne l'admette pas, il ne croyait pas que Ceng Niu ait acquis sa culture par ses propres moyens ; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
+Chi Hu resta pensif un long moment. Le seul pays de cultivation de haut rang possédant une famille nommée Ceng était Heaven Soul. Bien qu'il ne l'admette pas, il ne croyait pas que Ceng Niu ait acquis sa cultivation par ses propres moyens ; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
 
-Le Clan des Démons Géants étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
+Le Clan des Démons Géants étant lui-même un pays de cultivation de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de cultivation.
 
 Chi Hu hésita, puis demanda avec retenue : « Frère Ceng, me permettriez-vous de m'approcher pour discuter ? »
 

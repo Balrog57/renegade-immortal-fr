@@ -12,7 +12,7 @@ Les actions de Wang Lin semblaient grandioses, mais avec sa puissance actuelle, 
 
 Au moment où il entra dans la formation, un grondement tonitruant résonna à travers le monde jusqu'au Secte du Dao Démoniaque.
 
-La plupart des quelque 30 000 cultivateurs étaient en pleine culture. Lorsque ce fracas retentit, leurs expressions changèrent radicalement. Ils s'élancèrent rapidement dans les airs pour scruter le ciel.
+La plupart des quelque 30 000 cultivateurs étaient en pleine cultivation. Lorsque ce fracas retentit, leurs expressions changèrent radicalement. Ils s'élancèrent rapidement dans les airs pour scruter le ciel.
 
 Le brouillard céleste grondait violemment, et dix-huit ombres semblaient encercler une seule personne. À chaque assaut, des échos de tonnerre faisaient vibrer l'atmosphère.
 
@@ -58,7 +58,7 @@ Le vieil homme à la robe dorée qui avait chargé dans le brouillard s'échappa
 
 Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Grand Exalt, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
 
-« Lui... Quel est donc son niveau de culture !?! »
+« Lui... Quel est donc son niveau de cultivation !?! »
 
 Tandis que la lumière solaire dispersée descendait sur eux, une silhouette en robe blanche se tenait là, silencieuse. Un regard froid, dissimulé sous sa capuche, fixait les 30 000 cultivateurs stupéfaits du Secte du Dao Démoniaque !
 

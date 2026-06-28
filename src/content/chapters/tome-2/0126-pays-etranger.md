@@ -12,15 +12,15 @@ La main géante se transforma en d'innombrables lignes noires. Elles planèrent 
 
 En raison de l'existence du Royaume Ji, Wang Lin devint le premier dévoreur d'âmes à passer du monde de la décadence au monde des vivants. Bien que son âme n'ait été raffinée qu'en une simple parcelle d'Âme du Royaume Ji, l'essence d'un dévoreur d'âmes demeurait en lui.
 
-Le niveau 3 de culture de Hou Fen se situait dans la partie sud de la planète Suzaku, au sud de la Mer des Diables.
+Le niveau 3 de cultivation de Hou Fen se situait dans la partie sud de la planète Suzaku, au sud de la Mer des Diables.
 
 Ce jour-là, au sommet du volcan qui trônait au centre de Hou Fen, un groupe de personnes du Sanctuaire du Dieu de la Guerre était rassemblé.
 
 Les six ancêtres Nascent Soul du Sanctuaire du Dieu de la Guerre étaient assis confortablement au sommet de Hou Fen. Lors du combat pour le droit d'accéder au champ de bataille étranger, le Sanctuaire du Dieu de la Guerre avait écrasé la concurrence, étant la seule secte à y avoir pénétré.
 
-La personne qui dirigeait le groupe n'était pas un cultivateur Nascent Soul, mais un Ancien du stade initial de Formation du Noyau nommé Huo Hongfei. Peut-être était-ce dû au fait que sa méthode de culture était le Chemin Divin, car malgré ses 200 ans, il ne paraissait pas vieux du tout ; il ressemblait plutôt à un très bel homme d'âge moyen.
+La personne qui dirigeait le groupe n'était pas un cultivateur Nascent Soul, mais un Ancien du stade initial de Formation du Noyau nommé Huo Hongfei. Peut-être était-ce dû au fait que sa méthode de cultivation était le Chemin Divin, car malgré ses 200 ans, il ne paraissait pas vieux du tout ; il ressemblait plutôt à un très bel homme d'âge moyen.
 
-Le Chemin Divin est la méthode de culture suprême du Sanctuaire du Dieu de la Guerre. Seuls ceux qui ont atteint le stade de l'Établissement des Fondations peuvent pratiquer cette méthode, laquelle est censée faciliter l'accès au stade de la Formation du Noyau. Quant à son fonctionnement exact, les profanes l'ignoraient.
+Le Chemin Divin est la méthode de cultivation suprême du Sanctuaire du Dieu de la Guerre. Seuls ceux qui ont atteint le stade de l'Établissement des Fondations peuvent pratiquer cette méthode, laquelle est censée faciliter l'accès au stade de la Formation du Noyau. Quant à son fonctionnement exact, les profanes l'ignoraient.
 
 Mais puisque tous les cultivateurs de la Formation du Noyau et de l'Âme Naissante du Sanctuaire du Dieu de la Guerre étaient originaires de Hou Fen, cette méthode devait nécessairement posséder une particularité.
 
@@ -48,13 +48,13 @@ Une fois apparus, les trois regardèrent la scène familière devant eux avec un
 
 Ce qui leur importait le plus à cet instant était de savoir si Wang Lin était vivant ou mort. Il faut dire que tous trois avaient déjà offert leur Essence de Sang à Wang Lin. S'il venait à mourir, il leur serait également difficile d'échapper à la mort.
 
-Après avoir salué l'Ancien Huo Hongfei, celui-ci balaya le groupe du regard et déclara : « Pas mal. Le niveau de culture de chacun a considérablement progressé. Zihong et Tang Xiong ont tous deux atteint le stade avancé de l'Établissement des Fondations. Lin Tao est un peu en retard, mais il est très proche de la percée. Très bien ! Après avoir traversé cette épreuve dans le champ de bataille étranger, votre vitesse de culture augmentera grandement. Ah, quel dommage que si peu de disciples soient revenus... »
+Après avoir salué l'Ancien Huo Hongfei, celui-ci balaya le groupe du regard et déclara : « Pas mal. Le niveau de cultivation de chacun a considérablement progressé. Zihong et Tang Xiong ont tous deux atteint le stade avancé de l'Établissement des Fondations. Lin Tao est un peu en retard, mais il est très proche de la percée. Très bien ! Après avoir traversé cette épreuve dans le champ de bataille étranger, votre vitesse de cultivation augmentera grandement. Ah, quel dommage que si peu de disciples soient revenus... »
 
 Zhou Zihong soupira et murmura : « Maître, lorsque le champ de bataille étranger s'est soudainement effondré, d'étranges créatures sont apparues. Dès qu'elles vous atteignaient, vous mouriez instantanément. Personne sur le champ de bataille n'a pu résister. Tout s'est passé trop vite. À l'origine, notre récolte était très abondante, mais maintenant... » Son expression devint soudainement très sombre.
 
 Huo Hongfei fit un geste de la main. En les observant, il fronça les sourcils et demanda : « Nous en reparlerons plus tard. Dites-moi d'abord, pourquoi votre apparence n'a-t-elle pas changé ? »
 
-Il est vrai que si l'apparence ne changeait pas à l'intérieur du champ de bataille étranger, on vieillissait instantanément de cinquante ans dès la sortie. Bien que la méthode de culture utilisée par les trois ait aidé à maintenir leur jeunesse, ils ne devraient pas ressembler exactement à ce qu'ils étaient avant leur départ.
+Il est vrai que si l'apparence ne changeait pas à l'intérieur du champ de bataille étranger, on vieillissait instantanément de cinquante ans dès la sortie. Bien que la méthode de cultivation utilisée par les trois ait aidé à maintenir leur jeunesse, ils ne devraient pas ressembler exactement à ce qu'ils étaient avant leur départ.
 
 Tang Xiong était le disciple aîné et également le disciple prodige du chef de la secte. Après avoir entendu Huo Hongfei, il répondit rapidement : « L'Ancien l'ignore, mais mon jeune frère de discipline, Mai Liang, s'est procuré des pilules capables de préserver notre apparence pendant cent ans chacune. Nous en avons tous les trois pris deux. »
 
@@ -66,7 +66,7 @@ La jeune femme fut irritée, mais elle se contenta de sourire sans plus rien dir
 
 Le jeune homme à ses côtés lui murmura quelque chose à l'oreille. La jeune femme lui tira la langue et son visage rougit.
 
-Huo Hongfei ignora les deux jeunes gens. Il se tourna de nouveau vers le groupe de Zhou Zihong et dit : « Bien, puisque tout le monde est revenu, nous allons rentrer. L'Ancêtre Laun Feng est sorti de sa culture en porte fermée pour que vous lui rapportiez ce qui s'est passé sur le champ de bataille étranger. » Il lança un regard significatif aux trois disciples.
+Huo Hongfei ignora les deux jeunes gens. Il se tourna de nouveau vers le groupe de Zhou Zihong et dit : « Bien, puisque tout le monde est revenu, nous allons rentrer. L'Ancêtre Laun Feng est sorti de sa cultivation en porte fermée pour que vous lui rapportiez ce qui s'est passé sur le champ de bataille étranger. » Il lança un regard significatif aux trois disciples.
 
 Lin Tao hésita un instant et murmura : « Mon jeune frère Mai Liang est encore là-bas. La situation était critique, alors il nous a dit de rentrer en premier et qu'il nous suivrait. »
 

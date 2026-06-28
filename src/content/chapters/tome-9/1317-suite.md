@@ -32,9 +32,9 @@ Il était presque certain qu'un lien de parenté unissait le Dao Master Blue Dre
 
 Son plan initial était de quitter le Clan de la Soie Bleue ainsi que ce domaine stellaire. Après mûre réflexion, Wang Lin choisit de rester. Il voulait s'assurer que Li Qianmei se réveillerait véritablement.
 
-Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan de la Soie Bleue. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de culture émettant une puissante lueur bleue. C'était là que se trouvait le Dao Master Blue Dream.
+Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan de la Soie Bleue. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de cultivation émettant une puissante lueur bleue. C'était là que se trouvait le Dao Master Blue Dream.
 
-Cette planète de culture était baignée d'une lumière azurée ; même l'intérieur de la planète semblait imprégné d'une clarté bleue qui irriguait les océans. Wang Lin avança et pénétra dans l'atmosphère de la planète.
+Cette planète de cultivation était baignée d'une lumière azurée ; même l'intérieur de la planète semblait imprégné d'une clarté bleue qui irriguait les océans. Wang Lin avança et pénétra dans l'atmosphère de la planète.
 
 Aucune formation de protection n'était en place, Wang Lin flotta donc dans les airs au-dessus du monde. Le murmure des vagues de l'océan sous lui parvint lentement à ses oreilles.
 
@@ -70,7 +70,7 @@ Le temps s'écoulait lentement. Li Qianmei était assise dans une demeure ordina
 
 Des ondes de musique de flûte résonnaient à l'extérieur. C'était la femme en rose, assise devant la demeure bleue. Elle portait la flûte à ses lèvres et jouait avec douceur. La mélodie était chargée d'une émotion complexe qui semblait faire écho au monde entier, à la maison et à la montagne même que Wang Lin gravissait.
 
-Lorsque les notes de la flûte parvinrent aux oreilles de Wang Lin, il avait parcouru près de 50 % des marches. Il paraissait épuisé, ses yeux injectés de sang. La force de résistance était indescriptible ; c'était comme si plusieurs planètes de culture s'abattaient sur lui. Chaque pas était un supplice !
+Lorsque les notes de la flûte parvinrent aux oreilles de Wang Lin, il avait parcouru près de 50 % des marches. Il paraissait épuisé, ses yeux injectés de sang. La force de résistance était indescriptible ; c'était comme si plusieurs planètes de cultivation s'abattaient sur lui. Chaque pas était un supplice !
 
 Le pouvoir de l'Ancien Dieu circulait dans ses veines aux côtés de son énergie originelle, et une puissance fulgurante jaillit de son corps. Ses yeux brillèrent alors qu'il levait les pieds pour reprendre sa marche.
 
@@ -82,7 +82,7 @@ Ces deux énergies furent son seul soutien pour s'approcher toujours plus du som
 
 En trois jours, Wang Lin avait gravi près de 80 % des marches. À cet instant, il leva les yeux et aperçut la fin de l'escalier. Mais il était à bout de forces ; son corps ressemblait à un tambour que l'on martèle sous le poids d'une pression incessante. Il ne pouvait s'empêcher de trembler.
 
-Un instant, il eut l'impression de remonter le temps, avant même d'avoir commencé sa culture, pour se retrouver passant les examens de la Secte Heng Yue. Cette force de résistance magnifique était comme si le monde entier tentait de l'écraser !
+Un instant, il eut l'impression de remonter le temps, avant même d'avoir commencé sa cultivation, pour se retrouver passant les examens de la Secte Heng Yue. Cette force de résistance magnifique était comme si le monde entier tentait de l'écraser !
 
 Plus terrifiant encore, alors qu'il montait, il ne subissait pas seulement une pression venant d'en haut, mais aussi une force poussant du bas. Il devait diviser sa puissance pour simplement rester immobile. S'il relâchait sa garde, il serait projeté loin de là.
 

@@ -80,7 +80,7 @@ Alors qu'un rugissement capable de fracturer le monde résonnait, Wang Lin ne fi
 
 Mais ces obstacles semblables à des remparts s'effondrèrent tous devant le corps divin antique de Wang Lin. La puissance contenue dans ce simple pas était indescriptible ; il semblait avoir déchiré l'espace pour avancer à une vitesse comparable à la Distorsion Spatiale.
 
-Le démon des vents avait utilisé toute sa culture pour s'enfuir frénétiquement. Afin d'empêcher Wang Lin de la rattraper avec ce pouvoir étrange, elle ne se soucia pas d'épuiser son énergie démoniaque et en projeta une quantité massive autour d'elle pour se protéger.
+Le démon des vents avait utilisé toute sa cultivation pour s'enfuir frénétiquement. Afin d'empêcher Wang Lin de la rattraper avec ce pouvoir étrange, elle ne se soucia pas d'épuiser son énergie démoniaque et en projeta une quantité massive autour d'elle pour se protéger.
 
 Cette énergie fit apparaître l'ombre d'un immense démon antique derrière elle.
 

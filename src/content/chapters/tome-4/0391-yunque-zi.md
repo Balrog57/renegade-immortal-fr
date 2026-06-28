@@ -86,21 +86,21 @@ Du Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si 
 
 Les yeux de Wang Lin brillèrent. Pour que cet ancêtre soit si prévoyant, quelque chose d'imprévisible allait sans doute se produire.
 
-Du Tian regarda Wang Lin avec une pointe d'appréciation dans le regard. Après un silence, il demanda : « Petit ami, sais-tu pourquoi il y a moins de dix pays de culture de rang 5 sur cette planète, alors que le pays Suzaku la domine depuis si longtemps ? »
+Du Tian regarda Wang Lin avec une pointe d'appréciation dans le regard. Après un silence, il demanda : « Petit ami, sais-tu pourquoi il y a moins de dix pays de cultivation de rang 5 sur cette planète, alors que le pays Suzaku la domine depuis si longtemps ? »
 
-Il ne laissa pas à Wang Lin le temps de répondre. Affichant une mine impuissante, il poursuivit : « Lorsque le pays Suzaku est arrivé sur cette planète, six grandes sectes le composaient. Les disciples de ces six sectes se sont ensuite dispersés pour fonder les divers pays de culture de la planète. Parallèlement, les disciples de cœur de ces six sectes furent autorisés à établir des pays de culture de rang 5. »
+Il ne laissa pas à Wang Lin le temps de répondre. Affichant une mine impuissante, il poursuivit : « Lorsque le pays Suzaku est arrivé sur cette planète, six grandes sectes le composaient. Les disciples de ces six sectes se sont ensuite dispersés pour fonder les divers pays de cultivation de la planète. Parallèlement, les disciples de cœur de ces six sectes furent autorisés à établir des pays de cultivation de rang 5. »
 
-« Ce fut le premier groupe de pays de culture de rang 5. Ma Secte de l'Affinement de l'Âme en faisait partie ! »
+« Ce fut le premier groupe de pays de cultivation de rang 5. Ma Secte de l'Affinement de l'Âme en faisait partie ! »
 
 Le regard de Wang Lin resta serein. Son expression demeura imperturbable.
 
-Du Tian leva les yeux vers le ciel et déclara calmement : « Le temps a passé lentement. Chaque fois qu'un pays de culture de rang 5 était sur le point d'atteindre le stade de pays de rang 6, il était brutalement rétrogradé à son état initial en une seule nuit. Le pays Suzaku ne permettrait jamais l'émergence d'un autre pays de culture de rang 6 sur la planète Suzaku. »
+Du Tian leva les yeux vers le ciel et déclara calmement : « Le temps a passé lentement. Chaque fois qu'un pays de cultivation de rang 5 était sur le point d'atteindre le stade de pays de rang 6, il était brutalement rétrogradé à son état initial en une seule nuit. Le pays Suzaku ne permettrait jamais l'émergence d'un autre pays de cultivation de rang 6 sur la planète Suzaku. »
 
 « Ma Secte de l'Affinement de l'Âme a eu trois occasions d'atteindre le rang 6 au cours de ces innombrables années, mais nous avons été brisés à chaque fois. Aujourd'hui, nous avons perdu notre pays et ne subsistons plus que comme une secte. »
 
 Wang Lin réfléchissait en silence.
 
-« Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte de l'Affinement de l'Âme. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète des Quatre Saints, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète des Quatre Saints. C'est alors que l'Union de la Culture nous a octroyé la planète Suzaku. »
+« Devenir un pays de cultivation de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte de l'Affinement de l'Âme. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de cultivation de rang 5 sur la planète des Quatre Saints, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète des Quatre Saints. C'est alors que l'Union de la Cultivation nous a octroyé la planète Suzaku. »
 
 « À cette époque, ma Secte de l'Affinement de l'Âme comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des tatouages, et elle était extrêmement puissante. »
 
@@ -108,11 +108,11 @@ Wang Lin réfléchissait en silence.
 
 « Bien que nous ayons finalement triomphé, la planète Suzaku fut endommagée et le pays Suzaku perdit de nombreux cultivateurs Ascendants. »
 
-« C'est pour cette raison que le premier Suzaku créa le Mont Suzaku afin d'en faire le point de contrôle central de la planète, au moment où les six sectes se scindèrent en pays de culture de rang 5. »
+« C'est pour cette raison que le premier Suzaku créa le Mont Suzaku afin d'en faire le point de contrôle central de la planète, au moment où les six sectes se scindèrent en pays de cultivation de rang 5. »
 
-« Après cela, ce fut un cauchemar pour tous les pays de culture de rang 5. Tous les pays subordonnés à Suzaku reçurent l'ordre de ne laisser aucun pays de rang 5 atteindre le rang 6. Actuellement, le pays Suzaku ne compte que quatre cultivateurs Ascendants, et ils sont très affaiblis. »
+« Après cela, ce fut un cauchemar pour tous les pays de cultivation de rang 5. Tous les pays subordonnés à Suzaku reçurent l'ordre de ne laisser aucun pays de rang 5 atteindre le rang 6. Actuellement, le pays Suzaku ne compte que quatre cultivateurs Ascendants, et ils sont très affaiblis. »
 
-« Le Suzaku craint que les pays de culture de rang 5 ne se retournent contre lui pour prendre le pouvoir. Il craint pour la stabilité de la planète. »
+« Le Suzaku craint que les pays de cultivation de rang 5 ne se retournent contre lui pour prendre le pouvoir. Il craint pour la stabilité de la planète. »
 
 Wang Lin médita sur ces paroles. Après un moment, il regarda Du Tian et dit : « Aîné, quel est le rapport avec moi ? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
 
@@ -126,7 +126,7 @@ Du Tian reprit lentement : « Tu es l'un des quatre candidats choisis par Yunque
 
 Du Tian agita la main et une sculpture en bois apparut dans sa paume. C'était le portrait d'un homme d'une grande beauté, dont le regard semblait presque vivant.
 
-« ... C'est lui ! » Wang Lin fut stupéfait, son expression devenant étrange. C'était le vieil homme qui lui avait donné ce chapeau de paille. La culture de ce vieillard était prodigieuse ; il en avait eu les soupçons à l'époque, mais il tenait enfin la réponse.
+« ... C'est lui ! » Wang Lin fut stupéfait, son expression devenant étrange. C'était le vieil homme qui lui avait donné ce chapeau de paille. La cultivation de ce vieillard était prodigieuse ; il en avait eu les soupçons à l'époque, mais il tenait enfin la réponse.
 
 « Il est Yunque Zi. Il est le jeune frère apprenti du Suzaku actuel... » Du Tian observa la sculpture et ajouta : « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
 

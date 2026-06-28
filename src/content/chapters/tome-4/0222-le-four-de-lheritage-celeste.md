@@ -72,7 +72,7 @@ Mais malgré ses analyses, il ne parvenait pas à en saisir la nature. Quant au 
 
 L'épée volante que Sun Zhenwei avait offerte à Wang Lin n'avait toujours donné aucun signe de vie. Bien que cela fût normal, Sun Zhenwei sentait que quelque chose clochait.
 
-Cependant, il ne restait qu'un mois avant la cérémonie du couple de culture. Chaque fois qu'un membre de la secte venait le féliciter, il était obligé de les recevoir, ce qui l'empêchait de se consacrer pleinement à ses soupçons.
+Cependant, il ne restait qu'un mois avant la cérémonie du couple de cultivation. Chaque fois qu'un membre de la secte venait le féliciter, il était obligé de les recevoir, ce qui l'empêchait de se consacrer pleinement à ses soupçons.
 
 Les quelques cultivateurs au stade de l'Âme Naissante du Secte Ciel Nuageux savaient que Li Muwan n'appréciait guère l'idée de cette cérémonie ; ils ne s'interrogeaient donc pas sur sa présence prolongée à la bibliothèque. Ils avaient même ouvert les zones secrètes habituellement interdites pour elle, espérant ainsi apaiser les tensions.
 
@@ -86,9 +86,9 @@ Après sa décision, elle enregistra promptement la méthode. Elle ne partit tou
 
 En vérité, Li Muwan avait consigné énormément de connaissances durant son mois de séjour. Ses lectures ne se limitaient pas au sceau de la pilule.
 
-Elle agissait ainsi pour tromper autrui. Li Muwan n'était pas novice dans le monde de la culture. Après tant d'épreuves, son esprit déjà vif était devenu tranchant et froid.
+Elle agissait ainsi pour tromper autrui. Li Muwan n'était pas novice dans le monde de la cultivation. Après tant d'épreuves, son esprit déjà vif était devenu tranchant et froid.
 
-Sans cette lucidité, il lui aurait été presque impossible de survivre en tant que femme dans ce monde impitoyable de la culture.
+Sans cette lucidité, il lui aurait été presque impossible de survivre en tant que femme dans ce monde impitoyable de la cultivation.
 
 Cette prudence, elle l'avait largement puisée en observant Wang Lin. On pourrait dire qu'elle avait acquis une part de sa vigilance lors de leur passage dans la Mer des Démons. Cette prudence lui avait sauvé la vie à maintes reprises après leur séparation.
 
@@ -116,9 +116,9 @@ L'homme en robe grise poursuivit : « L'Ancienne Li est très intelligente et pr
 
 Sun Zhenwei eut un ricanement méprisant. Il l'avait soupçonné, mais il se rappela qu'il ne restait que vingt jours. Il avait hâte de voir jusqu'où Li Muwan pourrait aller.
 
-Il n'avait plus crainte des alliés de Li Muwan. Lors de la cérémonie du couple de culture, de nombreux ancêtres au stade de l'Âme Naissante seraient présents. Si cette personne tentait quoi que ce soit, les ancêtres s'en chargeraient pour lui.
+Il n'avait plus crainte des alliés de Li Muwan. Lors de la cérémonie du couple de cultivation, de nombreux ancêtres au stade de l'Âme Naissante seraient présents. Si cette personne tentait quoi que ce soit, les ancêtres s'en chargeraient pour lui.
 
-Une fois le stade de la Formation du Noyau atteint, Wang Lin avait consommé plusieurs bouteilles de pilules. Alors que la tactique de l'Ancien Dieu absorbait toute l'énergie spirituelle, sa culture grimpa brusquement, le faisant passer du début au milieu du stade de la Formation du Noyau.
+Une fois le stade de la Formation du Noyau atteint, Wang Lin avait consommé plusieurs bouteilles de pilules. Alors que la tactique de l'Ancien Dieu absorbait toute l'énergie spirituelle, sa cultivation grimpa brusquement, le faisant passer du début au milieu du stade de la Formation du Noyau.
 
 Cependant, Wang Lin trouvait cette progression trop lente. Bravant les conséquences, il continua de prendre des pilules, mais sentit leur efficacité décliner.
 
@@ -144,11 +144,11 @@ Pour une personne normale, ce gain de vitesse ne se traduirait que par une absor
 
 Mais avec la tactique de l'Ancien Dieu, cette légère accélération offrait à Wang Lin suffisamment de temps pour capturer la masse d'énergie spirituelle qui, normalement, se serait dissipée.
 
-Grâce à cette méthode, la culture de Wang Lin bondit du milieu au stade avancé de la Formation du Noyau. Bien qu'il n'ait pas atteint le sommet de ce stade, il était désormais très proche de l'Âme Naissante.
+Grâce à cette méthode, la cultivation de Wang Lin bondit du milieu au stade avancé de la Formation du Noyau. Bien qu'il n'ait pas atteint le sommet de ce stade, il était désormais très proche de l'Âme Naissante.
 
 Cependant, toutes les pilules fournies par Li Muwan étaient épuisées.
 
-Ce jour-là, Wang Lin s'éveilla de sa culture à l'intérieur de la Perle de l'Héritage Céleste. Il sentit un appel de l'esprit Xu Ligou. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
+Ce jour-là, Wang Lin s'éveilla de sa cultivation à l'intérieur de la Perle de l'Héritage Céleste. Il sentit un appel de l'esprit Xu Ligou. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
 
 Wang Lin se leva et fit un pas en avant. Son corps s'estompa soudainement, comme s'il perçait l'espace pour disparaître sans laisser de trace.
 
@@ -160,7 +160,7 @@ Wang Lin lança calmement l'épée qui se planta dans le sol. Il ouvrit la porte
 
 Mais soudain, ses pas s'arrêtèrent : la porte s'ouvrit silencieusement et Zhou Lin entra.
 
-En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi ; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit : « Ma maîtresse est sous surveillance. Elle m'a chargé de vous conduire quelque part pour vous rencontrer. »
+En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi ; il ne pouvait même pas sonder sa cultivation actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit : « Ma maîtresse est sous surveillance. Elle m'a chargé de vous conduire quelque part pour vous rencontrer. »
 
 Wang Lin le regarda calmement et acquiesça.
 
@@ -168,7 +168,7 @@ Zhou Lin entra dans le jardin et referma la grille. Il observa Wang Lin d'un air
 
 Zhou Lin secoua la tête. Il était censé être en retraite, mais Li Muwan lui avait envoyé un message pour qu'il sorte prématurément. Orphelin sauvé par Li Muwan, il lui vouait un respect et une gratitude infinis.
 
-D'après les paroles de sa maîtresse, il comprit que le disciple qu'elle avait pris sous son aile était son ami. Il lui fallut un long moment pour assimiler l'information. C'est pourquoi, face au niveau de culture de Wang Lin, il fut seulement stupéfait et non surpris ; il préféra supposer que la culture de Wang Lin avait toujours été aussi élevée et qu'il l'avait simplement dissimulée jusqu'ici.
+D'après les paroles de sa maîtresse, il comprit que le disciple qu'elle avait pris sous son aile était son ami. Il lui fallut un long moment pour assimiler l'information. C'est pourquoi, face au niveau de cultivation de Wang Lin, il fut seulement stupéfait et non surpris ; il préféra supposer que la cultivation de Wang Lin avait toujours été aussi élevée et qu'il l'avait simplement dissimulée jusqu'ici.
 
 Zhou Lin arriva devant sa chambre. Il agita la main et la porte brilla avant de s'ouvrir.
 
@@ -198,7 +198,7 @@ L'expression de Zhou Lin resta imperturbable alors qu'il replaçait le fourneau 
 
 Zhou Lin ignorait la nature exacte du lien entre Wang Lin et Li Muwan, mais il savait que tout ce qu'il possédait venait d'elle ; si elle lui demandait quoi que ce soit, il s'y donnerait corps et âme.
 
-Il savait aussi que sa maîtresse préparait des choses mystérieuses liées à la cérémonie du couple de culture dans vingt jours. En s'impliquant, il serait inévitablement entraîné dans cette affaire.
+Il savait aussi que sa maîtresse préparait des choses mystérieuses liées à la cérémonie du couple de cultivation dans vingt jours. En s'impliquant, il serait inévitablement entraîné dans cette affaire.
 
 Lorsque Wang Lin réapparut, il vit Li Muwan.
 

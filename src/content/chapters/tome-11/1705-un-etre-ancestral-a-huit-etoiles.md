@@ -12,7 +12,7 @@ Les continents du Royaume Céleste du Vent avaient été pris par Wang Lin, mais
 
 Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Cela permit à l'aura qui terrorisait le monde des grottes de s'infiltrer dans le Sect Gu Yi à travers cette porte.
 
-Dès que l'aura apparut, les expressions de tous les cultivateurs de la secte changèrent radicalement. Ceux possédant un haut niveau de culture furent saisis de choc et d'incrédulité !
+Dès que l'aura apparut, les expressions de tous les cultivateurs de la secte changèrent radicalement. Ceux possédant un haut niveau de cultivation furent saisis de choc et d'incrédulité !
 
 « L'un des neuf soleils, l'aura d'un Grand Empereur... Ceci... Quel Grand Empereur est apparu là-bas ? »
 

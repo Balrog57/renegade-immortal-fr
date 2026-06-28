@@ -24,7 +24,7 @@ Son rire devint de plus en plus fort, comme s'il avait perdu la raison.
 
 Lorsque ce rire atteignit les oreilles de Xuan Luo, ce fut comme si une paire de mains géantes lui saisissait la tête pour l'arracher. À cet instant, il eut la sensation qu'une partie de lui-même manquait. Son visage pâlit tandis qu'il contemplait Wang Lin, et son regard sembla s'ancrer dans un âge encore plus avancé.
 
-« Moi, Wang Lin, depuis que j'ai commencé la culture durant mon enfance, j'ai traversé d'innombrables massacres et connu la froideur du monde. La plupart des gens que j'ai rencontrés étaient sournois et sinistres... Suis-je destiné à être une étoile solitaire ? Ma femme est morte, mon fils est piégé dans la réincarnation, les traces de Situ sont perdues, et Qing Shui a également disparu. Tous ceux qui m'ont montré de la bonté ont fini par souffrir... »
+« Moi, Wang Lin, depuis que j'ai commencé la cultivation durant mon enfance, j'ai traversé d'innombrables massacres et connu la froideur du monde. La plupart des gens que j'ai rencontrés étaient sournois et sinistres... Suis-je destiné à être une étoile solitaire ? Ma femme est morte, mon fils est piégé dans la réincarnation, les traces de Situ sont perdues, et Qing Shui a également disparu. Tous ceux qui m'ont montré de la bonté ont fini par souffrir... »
 
 « Je tiens énormément à la bienveillance que les autres m'ont témoignée, car elle est rare et doit être chérie. »
 

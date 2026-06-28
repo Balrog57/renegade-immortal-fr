@@ -38,7 +38,7 @@ S'il n'avait pas été gravement blessé auparavant et n'avait pas encore totale
 
 Tandis que Wang Lin reculait, la tête antique et les ombres des trois clans anciens reculèrent également. Les trois ombres s'effondrèrent, ne laissant subsister que la tête. Celle-ci couvrait le ciel, mais commençait à devenir floue.
 
-Wang Lin était au stade intermédiaire du Vide Spirituel, mais grâce à son corps de Dieu Antique et ses sorts, il pouvait affronter des cultivateurs du début du stade du Vide Arcane. Même si le niveau de culture de l'ennemi dépassait ce stade, il pouvait toujours dégainer l'Arc Li Guang. La puissance d'une seule flèche de cet arc suffisait à ébranler le monde !
+Wang Lin était au stade intermédiaire du Vide Spirituel, mais grâce à son corps de Dieu Antique et ses sorts, il pouvait affronter des cultivateurs du début du stade du Vide Arcane. Même si le niveau de cultivation de l'ennemi dépassait ce stade, il pouvait toujours dégainer l'Arc Li Guang. La puissance d'une seule flèche de cet arc suffisait à ébranler le monde !
 
 Le corps du vieil homme au Tigre Blanc fut écrasé contre la statue ; bien que son expression fût féroce, une profonde terreur perçait dans ses yeux. Pourtant, cette peur ne suffit pas à lui faire battre en retraite. Il était le Général Tigre Blanc, un habitant du Continent Astral Immortel et l'un des quatre grands généraux du Souverain Céleste aux Sept Couleurs !
 

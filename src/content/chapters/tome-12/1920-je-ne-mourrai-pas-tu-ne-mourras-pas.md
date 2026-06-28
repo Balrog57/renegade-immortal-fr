@@ -24,13 +24,13 @@ Car sa limite resterait de 27 sorts, et elle ne pourrait être dépassée. Tout 
 
 Mais Wang Lin était différent. Sa force de combat réelle était infiniment supérieure grâce à son corps du Dao Antique et au sang de l'âme. Ce sang de l'âme jouait un rôle vital.
 
-En conséquence, avec sa culture actuelle d'Exalt Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
+En conséquence, avec sa cultivation actuelle d'Exalt Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
 
-C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné ses pouvoirs anciens et célestes ! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide !
+C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de cultivation après avoir fusionné ses pouvoirs anciens et célestes ! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide !
 
 La fusion de ces trois puissances était la raison pour laquelle Wang Lin possédait une telle force de combat !
 
-Son corps était la bouteille, sa culture était l'eau, et son avatar le plus puissant rendait la bouteille flexible, comme si elle était élastique et pouvait continuer à s'étendre.
+Son corps était la bouteille, sa cultivation était l'eau, et son avatar le plus puissant rendait la bouteille flexible, comme si elle était élastique et pouvait continuer à s'étendre.
 
 L'existence du sang de l'âme avait provoqué un changement chez Wang Lin. Normalement, ce changement ne se manifestait pas, mais il constituait l'une des sources de sa force. C'était une différence fondamentale qui empêchait les autres membres du clan Antique d'égaler Wang Lin.
 

@@ -14,11 +14,11 @@ Ce bracelet avait sauvé la vie de Wang Lin dans le Royaume aux Sept Couleurs. I
 
 Son cœur était déjà mort et ne pouvait abriter que Li Muwan… À moins que le monde ne soit détruit, à moins que ce ne soit au moment de la mort, peut-être choisirait-il alors un autre chemin.
 
-Cependant, pour l'instant, il ne le pouvait pas. Ou pour être plus exact, Li Qianmei n'était pas véritablement entrée dans son cœur. Wang Lin ne l'admirait qu'en tant que compagne de culture. Seule l'apparition du bracelet et un tournant du destin avaient rendu cette admiration quelque peu complexe.
+Cependant, pour l'instant, il ne le pouvait pas. Ou pour être plus exact, Li Qianmei n'était pas véritablement entrée dans son cœur. Wang Lin ne l'admirait qu'en tant que compagne de cultivation. Seule l'apparition du bracelet et un tournant du destin avaient rendu cette admiration quelque peu complexe.
 
 Wang Lin avait même le sentiment que l'excellence de Li Qianmei ne devait pas lui être révélée. Ils ne se connaissaient qu'à travers trois questions, et en dehors de cela, ils n'avaient rien l'un de l'autre.
 
-Ils n'avaient pas partagé les années passées dans la Mer des Démons, les siècles d'attente au Secte du Ciel Nuageux, le choc de mourir de vieillesse dans la vallée, ni la musique qui avait accompagné Wang Lin durant ses deux mille ans de culture.
+Ils n'avaient pas partagé les années passées dans la Mer des Démons, les siècles d'attente au Secte du Ciel Nuageux, le choc de mourir de vieillesse dans la vallée, ni la musique qui avait accompagné Wang Lin durant ses deux mille ans de cultivation.
 
 Il n'y avait pas non plus eu ce rugissement douloureux de Wang Lin qui avait ébranlé le monde lorsque l'émissaire des cieux était arrivé.
 
@@ -78,7 +78,7 @@ Elle ne disait rien, et Wang Lin n'en savait rien…
 
 « Quand j'étais petite, j'ai compris que j'étais différente des autres. Mes cheveux sont bleus ; personne dans la Mer des Nuages n'a cette couleur… Je me souviens encore comment mes compagnons de jeu se moquaient de moi enfant… » dit doucement Li Qianmei, une amertume dans les yeux en évoquant son passé.
 
-« J'ai cultivé très durement, et Maître a raffiné de nombreux élixirs pour moi. Grâce à eux, j'ai pu atteindre mon niveau de culture actuel… Ma culture m'a été donnée par mon maître, par le Secte Brise-Ciel… Je dois aller sur le champ de bataille, c'est mon destin. »
+« J'ai cultivé très durement, et Maître a raffiné de nombreux élixirs pour moi. Grâce à eux, j'ai pu atteindre mon niveau de cultivation actuel… Ma cultivation m'a été donnée par mon maître, par le Secte Brise-Ciel… Je dois aller sur le champ de bataille, c'est mon destin. »
 
 Li Qianmei ne relâcha pas sa main emmêlée dans l'herbe. Au contraire, elle la tira pour que les tiges restent enlacées autour de ses doigts.
 

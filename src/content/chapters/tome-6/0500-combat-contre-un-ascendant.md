@@ -44,7 +44,7 @@ Aujourd'hui, c'était la première fois qu'il levait le premier des cinq sceaux,
 
 Le Char de Guerre Divin était une relique capable d'égorger des dieux célestes ; comment aurait-il pu être faible ? Une fois les cinq sceaux libérés, sa puissance serait inimaginable.
 
-Toutefois, avec le niveau de culture actuel de Wang Lin, lever ne serait-ce que le premier sceau était extrêmement périlleux. S'il perdait le contrôle, il subirait un contrecoup dévastateur du char. Mais puisque sa culture avait atteint le stade intermédiaire de la Transformation de l'Âme, il éprouvait une certaine confiance, sans quoi il n'aurait pas pris cette décision si promptement.
+Toutefois, avec le niveau de cultivation actuel de Wang Lin, lever ne serait-ce que le premier sceau était extrêmement périlleux. S'il perdait le contrôle, il subirait un contrecoup dévastateur du char. Mais puisque sa cultivation avait atteint le stade intermédiaire de la Transformation de l'Âme, il éprouvait une certaine confiance, sans quoi il n'aurait pas pris cette décision si promptement.
 
 Non seulement l'aura de la bête spirituelle changea avec la levée du premier sceau, mais les pointes acérées sur le char commencèrent également à se métamorphoser. Elles se mirent à bouger et s'allongèrent, paraissant plus menaçantes que jamais, tandis que des ondes de lumière noire émanaient d'elles.
 

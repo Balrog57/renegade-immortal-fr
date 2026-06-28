@@ -10,7 +10,7 @@ Avant d'entrer, Wang Lin sortit une cape noire pour se couvrir la tête. Une foi
 
 En plus de toutes ces épées, un pilier de cristal trônait au centre de la pièce, avec trois épées volantes flottant au milieu, leurs pointes dirigées vers le bas. Ces trois épées palpitaient d'une lueur changeante ; parfois, elles brillaient intensément.
 
-Alors que Wang Lin observait les trois épées centrales, un employé s'approcha. Il avait environ vingt ans et l'air très vif. Il examina attentivement Wang Lin. Il était tout à fait normal que les clients se cachent le visage, car de nombreux cultivateurs ne souhaitaient pas être reconnus. Quant au niveau de culture de Wang Lin, l'employé disposait d'une technique spéciale propre au Pavillon du Raffinage des Trésors pour le vérifier. Plus il l'examinait, plus il devenait excité, car le niveau de culture de Wang Lin oscillait constamment entre la Formation du Noyau et le sommet du stade avancé de l'Établissement des Fondations.
+Alors que Wang Lin observait les trois épées centrales, un employé s'approcha. Il avait environ vingt ans et l'air très vif. Il examina attentivement Wang Lin. Il était tout à fait normal que les clients se cachent le visage, car de nombreux cultivateurs ne souhaitaient pas être reconnus. Quant au niveau de cultivation de Wang Lin, l'employé disposait d'une technique spéciale propre au Pavillon du Raffinage des Trésors pour le vérifier. Plus il l'examinait, plus il devenait excité, car le niveau de cultivation de Wang Lin oscillait constamment entre la Formation du Noyau et le sommet du stade avancé de l'Établissement des Fondations.
 
 Bien que cet employé fût surpris, il ne le montra pas. Il demanda respectueusement : « Senior a-t-il des vues sur ces épées volantes ? »
 
@@ -24,7 +24,7 @@ Une fois arrivé au deuxième étage, l'employé alla rapidement parler à un ho
 
 L'homme d'âge moyen était chauve et ses yeux brillaient par intermittence. Il se leva, joignit les mains et dit : « De quelle qualité de four à pilules le camarade cultivateur souhaite-t-il disposer ? »
 
-Wang Lin observa l'homme et constata que son niveau de culture était au sommet de l'Établissement des Fondations, tout comme le sien. Il fut surpris par cette découverte. Si le premier étage accueillait un cultivateur de la Condensation de Qi et le deuxième un cultivateur de l'Établissement des Fondations, cela signifiait-il qu'un expert de la Formation du Noyau dirigeait le troisième étage ?
+Wang Lin observa l'homme et constata que son niveau de cultivation était au sommet de l'Établissement des Fondations, tout comme le sien. Il fut surpris par cette découverte. Si le premier étage accueillait un cultivateur de la Condensation de Qi et le deuxième un cultivateur de l'Établissement des Fondations, cela signifiait-il qu'un expert de la Formation du Noyau dirigeait le troisième étage ?
 
 Gardant une expression sereine, Wang Lin demanda : « Pourriez-vous m'en présenter quelques-uns ? »
 
@@ -86,9 +86,9 @@ Il n'avait parcouru qu'une courte distance qu'un cultivateur vêtu de noir appar
 
 Il s'appelait Wei San, un disciple de la Secte du Combat contre le Mal venu faire des achats à Nan Dou. Lorsqu'il avait vu Wang Lin monter au deuxième étage, la curiosité l'avait poussé à l'observer depuis l'auberge d'en face. Il avait même envoyé une transmission vocale par jade à ses compagnons de secte présents en ville. Après avoir attendu longtemps, il vit Wang Lin partir et déduisit que ce dernier devait posséder des trésors. Wei San ne put s'empêcher de laisser germer des intentions malveillantes.
 
-Il n'avait cependant pas pu percer le niveau de culture de Wang Lin. Selon ses suppositions, l'inconnu devait être au stade de la Formation du Noyau. Cela l'avait fait hésiter, mais lorsque ses compagnons arrivèrent accompagnés d'Anciens, il fut ravi et leur expliqua tout en détail.
+Il n'avait cependant pas pu percer le niveau de cultivation de Wang Lin. Selon ses suppositions, l'inconnu devait être au stade de la Formation du Noyau. Cela l'avait fait hésiter, mais lorsque ses compagnons arrivèrent accompagnés d'Anciens, il fut ravi et leur expliqua tout en détail.
 
-Outre lui, plus de dix personnes apparurent, affichant divers niveaux de culture. La plupart étaient au stade de l'Établissement des Fondations, mais trois d'entre eux étaient enveloppés d'une brume noire. Ces trois-là étaient précisément ceux qui inquiétaient Wang Lin.
+Outre lui, plus de dix personnes apparurent, affichant divers niveaux de cultivation. La plupart étaient au stade de l'Établissement des Fondations, mais trois d'entre eux étaient enveloppés d'une brume noire. Ces trois-là étaient précisément ceux qui inquiétaient Wang Lin.
 
 Wei San se retourna et dit respectueusement : « Anciens, je ne peux croire que vous soyez également à Nan Dou ! Je suis certain que cet individu possède un trésor sur lui. »
 

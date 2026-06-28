@@ -18,9 +18,9 @@ Une longue épée était plantée dans chaque bassin. Bien que la moitié des la
 
 Il passait du temps dans le Tombeau de Suzaku, et tout était si différent de ce que Situ Nan lui avait décrit. Wang Lin n'était pas stupide ; il avait déjà ses propres spéculations sur l'origine de ces changements.
 
-« Je crains que le Tombeau de Suzaku ne soit en réalité le Cristal de la Planète de Culture lui-même. Je suis dans le Tombeau de Suzaku, mais aussi à l'intérieur du Cristal de la Planète de Culture ! »
+« Je crains que le Tombeau de Suzaku ne soit en réalité le Cristal de la Planète de Cultivation lui-même. Je suis dans le Tombeau de Suzaku, mais aussi à l'intérieur du Cristal de la Planète de Cultivation ! »
 
-« C'est pourquoi toutes ces étranges formes de vie sont nées dans le tombeau... C'est pourquoi ces mystérieuses failles sont apparues lorsque le Cristal de la Planète de Culture a commencé à se briser. Ces failles sont l'effondrement même du Cristal de la Planète de Culture. » L'expression de Wang Lin était sombre tandis qu'il contemplait les bassins devant lui. Cependant, cela ne restait qu'une conjecture ; il devrait atteindre le centre de cette zone pour le confirmer. Si la montagne s'y trouvait, il s'était trompé, mais si elle n'y était pas, alors sa théorie était exacte.
+« C'est pourquoi toutes ces étranges formes de vie sont nées dans le tombeau... C'est pourquoi ces mystérieuses failles sont apparues lorsque le Cristal de la Planète de Cultivation a commencé à se briser. Ces failles sont l'effondrement même du Cristal de la Planète de Cultivation. » L'expression de Wang Lin était sombre tandis qu'il contemplait les bassins devant lui. Cependant, cela ne restait qu'une conjecture ; il devrait atteindre le centre de cette zone pour le confirmer. Si la montagne s'y trouvait, il s'était trompé, mais si elle n'y était pas, alors sa théorie était exacte.
 
 Wang Lin réfléchit encore un instant, puis il déploya son sens divin et son cœur trembla.
 
@@ -98,7 +98,7 @@ Hélas, l'objet devant lui n'était pas la Richesse, mais une lame de demi-lune.
 
 Il était d'autant plus improbable qu'une lame capable de faire adorer d'innombrables épées puisse coexister avec une autre, et cette lame n'était pas ordinaire !
 
-Mais quelle que soit l'extraordinaire nature de cet objet, il était constitué d'innombrables fragments d'âmes ; il était donc impossible de l'emporter. Même s'il réussissait à s'en saisir après avoir quitté le Cristal de la Planète de Culture, elle se briserait en une multitude de fragments qui retourneraient à leurs propriétaires originaux.
+Mais quelle que soit l'extraordinaire nature de cet objet, il était constitué d'innombrables fragments d'âmes ; il était donc impossible de l'emporter. Même s'il réussissait à s'en saisir après avoir quitté le Cristal de la Planète de Cultivation, elle se briserait en une multitude de fragments qui retourneraient à leurs propriétaires originaux.
 
 Wang Lin soupira intérieurement. Il allait lever la main pour rappeler l'épée céleste et quitter les lieux quand il fixa soudainement la mystérieuse lame.
 

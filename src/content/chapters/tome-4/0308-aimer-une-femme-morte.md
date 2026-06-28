@@ -76,9 +76,9 @@ Faisant fi des trois épées célestes, seul ce grand cercueil de jade céleste 
 
 Atteindre le stade de la Transformation de l'Âme revêtait une importance capitale pour Wang Lin. Une fois ce stade atteint, Situ Nan pourrait s'éveiller.
 
-Cependant, Wang Lin n'était qu'au début du stade de la Formation de l'Âme et était encore loin du stade avancé. Il ignorait quand il atteindrait ce dernier niveau, mais cela ne l'inquiétait guère. Il savait qu'on ne pouvait précipiter sa culture. Tout viendrait en temps voulu.
+Cependant, Wang Lin n'était qu'au début du stade de la Formation de l'Âme et était encore loin du stade avancé. Il ignorait quand il atteindrait ce dernier niveau, mais cela ne l'inquiétait guère. Il savait qu'on ne pouvait précipiter sa cultivation. Tout viendrait en temps voulu.
 
-En outre, certaines herbes célestes étaient également très tentantes. S'il les rapportait à Li Muwan, elle pourrait confectionner des pilules de haute qualité, ce qui permettrait d'augmenter davantage son niveau de culture.
+En outre, certaines herbes célestes étaient également très tentantes. S'il les rapportait à Li Muwan, elle pourrait confectionner des pilules de haute qualité, ce qui permettrait d'augmenter davantage son niveau de cultivation.
 
 À moins qu'une pilule n'ait un effet exceptionnel, Wang Lin ne l'utiliserait pas à la légère. Après tout, à son stade, tout reposait principalement sur sa propre compréhension ; les pilules n'étaient plus l'élément prédominant.
 

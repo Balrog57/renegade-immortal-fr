@@ -26,13 +26,13 @@ Du Tian contempla la scène et dit d'un ton amer : « Le Sceau Mystérieux de Su
 
 Le Sceau Mystérieux de Suzaku est un sort que seule chaque génération de Suzaku peut apprendre. Il ne peut être cultivé ; il est transmis par le Suzaku précédent.
 
-Ce sceau n'a pas été créé par le premier Suzaku ; c'est un sort qui leur a été légué par l'Union de la Culture.
+Ce sceau n'a pas été créé par le premier Suzaku ; c'est un sort qui leur a été légué par l'Union de la Cultivation.
 
-Ce Sceau Mystérieux de Suzaku n'augmente pas le niveau de culture, mais il est extrêmement puissant. Il n'a que deux fonctions : l'attaque et la défense.
+Ce Sceau Mystérieux de Suzaku n'augmente pas le niveau de cultivation, mais il est extrêmement puissant. Il n'a que deux fonctions : l'attaque et la défense.
 
 Son attaque peut tout détruire, et sa défense est plus robuste que la formation Suzaku tout entière, même lorsqu'elle ne protège qu'une seule personne.
 
-Nul ne sait comment l'Union de la Culture a réussi à créer ce sort. Sur une planète de culture de rang 6, une seule personne peut en connaître le secret à la fois. À moins que cette personne ne meure, personne d'autre ne peut l'utiliser. Même si le Suzaku précédent est encore en vie, dès que le Suzaku actuel apprend le Sceau Mystérieux de Suzaku, le précédent perd le pouvoir du sceau.
+Nul ne sait comment l'Union de la Cultivation a réussi à créer ce sort. Sur une planète de cultivation de rang 6, une seule personne peut en connaître le secret à la fois. À moins que cette personne ne meure, personne d'autre ne peut l'utiliser. Même si le Suzaku précédent est encore en vie, dès que le Suzaku actuel apprend le Sceau Mystérieux de Suzaku, le précédent perd le pouvoir du sceau.
 
 La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mais seuls ceux qui ont appris le sort en connaissent la contrepartie. Le sceau que Zhuque Zi venait d'utiliser était celui-là.
 
@@ -64,7 +64,7 @@ Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une 
 
 « La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut au stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé !
 
-« Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhuque.
+« Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Cultivation alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhuque.
 
 Zhuque Zi déclara d'un ton solennel : « Âme de Triple Métal ! »
 
@@ -136,7 +136,7 @@ Zhuque Zi frappa son sac de rangement et en sortit un morceau de boue noire. Il 
 
 La main de Zhuque Zi guida ce gaz pour tracer un symbole étrange.
 
-« Ce vieil homme utilise son statut de Suzaku actuel et sacrifie 90 % de son espérance de vie restante pour ouvrir le Cristal de Planète de Culture. Je vais invoquer le domaine de "stase" que l'Union de la Culture nous a offert ! » Sa main droite pointa le symbole, qui s'envola rapidement pour s'immobiliser à trois pieds devant lui.
+« Ce vieil homme utilise son statut de Suzaku actuel et sacrifie 90 % de son espérance de vie restante pour ouvrir le Cristal de Planète de Cultivation. Je vais invoquer le domaine de "stase" que l'Union de la Cultivation nous a offert ! » Sa main droite pointa le symbole, qui s'envola rapidement pour s'immobiliser à trois pieds devant lui.
 
 À cet instant, tout dans un rayon de 1000 pieds se figea.
 

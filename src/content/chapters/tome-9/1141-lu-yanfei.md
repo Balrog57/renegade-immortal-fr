@@ -16,13 +16,13 @@ Des vagues d'énergie originelle se propageaient à travers l'averse. Wang Lin p
 
 Le bruit de ses pas s'enfonçant dans la boue se mêlait au clapotis de la pluie sur son parapluie. Wang Lin écoutait ce son tout en ressentant l'énergie originelle du monde. Il éprouvait un sentiment de sérénité tandis qu'il avançait lentement.
 
-La séance de culture de Xu Yun n'était pas terminée. Elle cultivait toujours silencieusement, tentant de franchir le stade de l'Yin Illusoire pour atteindre celui du Yang Corporel. Elle n'avait pas remarqué le départ de Wang Lin, mais même si elle n'avait pas été plongée dans sa culture, elle n'aurait pas non plus perçu son départ.
+La séance de cultivation de Xu Yun n'était pas terminée. Elle cultivait toujours silencieusement, tentant de franchir le stade de l'Yin Illusoire pour atteindre celui du Yang Corporel. Elle n'avait pas remarqué le départ de Wang Lin, mais même si elle n'avait pas été plongée dans sa cultivation, elle n'aurait pas non plus perçu son départ.
 
-Depuis son arrivée au Secte Originel, Wang Lin n'avait pas caché son niveau de culture. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa culture.
+Depuis son arrivée au Secte Originel, Wang Lin n'avait pas caché son niveau de cultivation. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa cultivation.
 
 L'énergie originelle d'un cultivateur du Nettoyage du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
 
-Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà atteint la troisième étape. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à l'aide de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
+Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà atteint la troisième étape. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à l'aide de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa cultivation.
 
 Vêtu de blanc et tenant son parapluie, il quitta la cour pour commencer à arpenter le Secte Originel. Il croisa d'autres cultivateurs, mais tous étaient pressés et ne se dérangèrent pas mutuellement.
 
@@ -50,7 +50,7 @@ La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de
 
 Wang Lin sourit soudainement et passa devant la femme en rouge. Il reprit sa route, s'apprêtant à partir.
 
-La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans tout le Secte Originel, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois frères aînés montraient un certain respect en raison de son niveau de culture supérieur.
+La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans tout le Secte Originel, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois frères aînés montraient un certain respect en raison de son niveau de cultivation supérieur.
 
 Sans parler des mortels, cet homme devant elle était étrangement serein.
 
@@ -60,7 +60,7 @@ La femme en rouge poussa un soupir et murmura : « Attends. Serais-tu prêt à m
 
 Lu Yanfei occupait un rang très élevé au sein du Secte Originel, et la plupart des gens lui vouaient un grand respect. De plus, en raison de son statut, certaines choses n'étaient pas faciles à aborder.
 
-Le jeune homme devant elle n'avait aucune culture et n'était qu'un mortel. Aux yeux de Lu Yanfei, la différence entre eux était aussi vaste que le ciel et la terre. Plus important encore, le calme du jeune homme était contagieux et l'aidait inconsciemment à s'apaiser.
+Le jeune homme devant elle n'avait aucune cultivation et n'était qu'un mortel. Aux yeux de Lu Yanfei, la différence entre eux était aussi vaste que le ciel et la terre. Plus important encore, le calme du jeune homme était contagieux et l'aidait inconsciemment à s'apaiser.
 
 Elle voulait simplement trouver quelqu'un capable de l'écouter. En ce matin pluvieux sur cette montagne, ils n'étaient plus que deux.
 
@@ -68,7 +68,7 @@ Wang Lin réfléchit et cessa de s'éloigner. Il resta au sommet de la montagne,
 
 La brise montagnarde sifflait avec la pluie. Hormis le vent et l'eau, tout était calme.
 
-« À l'âge de treize ans, j'ai été acceptée comme disciple par Maître et j'ai foulé le chemin de la culture... » La voix de Lu Yanfei était calme, empreinte de nostalgie. Sa voix se perdit lentement dans la pluie.
+« À l'âge de treize ans, j'ai été acceptée comme disciple par Maître et j'ai foulé le chemin de la cultivation... » La voix de Lu Yanfei était calme, empreinte de nostalgie. Sa voix se perdit lentement dans la pluie.
 
 « Lorsque je tentais de franchir le stade de l'Ascendant, Maître fut prêt à dépenser une quantité immense d'herbes de la secte, et alla même en échanger auprès d'autres sectes pour me raffiner une Pilule Trompeuse du Ciel qui me permit d'atteindre le stade Ascendant... »
 
@@ -82,7 +82,7 @@ Lu Yanfei avait beaucoup dit. Wang Lin resta en retrait et écouta silencieuseme
 
 Les nuages sombres s'éloignèrent et le ciel se dégagea. Un arc-en-ciel éclatant apparut dans le ciel, d'une beauté indescriptible.
 
-« La Secte du Dao Pourpre a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de culture. Si je refuse, ils rapporteront à la secte principale qu'ils entameront une guerre contre notre Secte Originel en profitant de la mort de mon maître... La secte principale ne nous a jamais aimés. Si la Secte du Dao Pourpre insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
+« La Secte du Dao Pourpre a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de cultivation. Si je refuse, ils rapporteront à la secte principale qu'ils entameront une guerre contre notre Secte Originel en profitant de la mort de mon maître... La secte principale ne nous a jamais aimés. Si la Secte du Dao Pourpre insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
 
 Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
@@ -94,9 +94,9 @@ L'expression de Wang Lin resta impassible. Voyant que la femme en rouge avait fi
 
 Elle regarda dans la direction où Wang Lin s'était éloigné.
 
-« Le cœur de cet homme est au niveau de ceux de ma génération. S'il emprunte le chemin de la culture, il accomplira certainement de grandes choses à l'avenir... Malheureusement... »
+« Le cœur de cet homme est au niveau de ceux de ma génération. S'il emprunte le chemin de la cultivation, il accomplira certainement de grandes choses à l'avenir... Malheureusement... »
 
-Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
+Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine cultivation lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
 
 « Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent de l'Alliance ou d'Allheaven. Maintenant que j'ai écouté l'Ancien du Secte Originel, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique ! La Mer des Nuages était remplie de brouillard, et dans ce brouillard se trouvait un monde appartenant aux bêtes spirituelles... »
 

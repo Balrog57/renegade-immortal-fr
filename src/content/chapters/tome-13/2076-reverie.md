@@ -16,7 +16,7 @@ Bien que certains des cultivateurs arrivés plus tard dans le Royaume Céleste n
 
 Désormais qu'ils le voyaient, tout le Royaume Céleste semblait bouillonner. Le sentiment d'oppression et la panique disparurent instantanément.
 
-Maître Sud Nuage n'avait que son âme originelle ; avec le niveau de culture actuel de Wang Lin, celui-ci pouvait rassembler la puissance du monde pour lui façonner un nouveau corps. Maître Sud Nuage pourrait fusionner avec ce corps sans ressentir le moindre inconfort.
+Maître Sud Nuage n'avait que son âme originelle ; avec le niveau de cultivation actuel de Wang Lin, celui-ci pouvait rassembler la puissance du monde pour lui façonner un nouveau corps. Maître Sud Nuage pourrait fusionner avec ce corps sans ressentir le moindre inconfort.
 
 Le Dao Maître Bleu Rêve hésita en regardant Wang Lin, mais il resta silencieux. Il attendait que Wang Lin condense un nouveau corps pour Maître Sud Nuage avant de tenter de lui parler, mais finalement, il laissa échapper un soupir.
 
@@ -48,9 +48,9 @@ Le Dao Maître Bleu Rêve ferma les yeux et murmura pour lui-même : « Tu ne l'
 
 À ce moment précis, un grondement sourd retentit dans le ciel couleur sang. Les nombreuses fissures célestes montraient des signes d'effondrement et un rire arrogant s'éleva d'en haut.
 
-« Tous vous, cultivateurs du monde caverneux, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma culture ! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
+« Tous vous, cultivateurs du monde caverneux, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma cultivation ! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
 
-Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans Maître Âme Rouge, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Rouge.
+Personne dans le Royaume Céleste ne connaissait précisément le niveau de cultivation de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans Maître Âme Rouge, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Rouge.
 
 L'expression de Maître Sud Nuage était détendue — il n'était nullement inquiet. À voir comment Wang Lin pouvait lui créer un nouveau corps d'un simple geste de la main, il savait à quel point l'homme était puissant.
 
@@ -102,7 +102,7 @@ Wang Lin détourna les yeux et dit calmement : « Treize, tue-le ! »
 
 Non loin de là, une lueur glaciale passa dans les yeux de Treize et il s'élança sans hésiter. En s'élevant vers le ciel, il agita la main droite et de la fumée apparut. C'était le Dao du Feu Extrême des Huit Dao Extrêmes !
 
-Pour son disciple Treize, Wang Lin avait choisi des sorts adaptés à ses capacités. Il avait également puisé dans la puissance du monde pour augmenter considérablement le niveau de culture de Treize !
+Pour son disciple Treize, Wang Lin avait choisi des sorts adaptés à ses capacités. Il avait également puisé dans la puissance du monde pour augmenter considérablement le niveau de cultivation de Treize !
 
 D'autres n'auraient pu le faire, mais en tant qu'être ayant atteint la demi-étape du Piétinement Céleste, comparable aux Ancêtres Anciens et Célestes, cette tâche ne lui était pas difficile.
 
@@ -112,11 +112,11 @@ Sous ce feu rugissant, toutes les marionnettes de sang s'effondrèrent, incapabl
 
 Le brasier céleste disparut instantanément après le départ de Treize. Le ciel restait rouge, mais l'éclat était moins intense. Un vieil homme apparut à la brèche de la formation et fixa Wang Lin, stupéfait.
 
-« Wang Lin !! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa culture de la Tribulation du Vide explosa soudainement, faisant trembler le ciel et la terre.
+« Wang Lin !! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa cultivation de la Tribulation du Vide explosa soudainement, faisant trembler le ciel et la terre.
 
 « Tu es donc revenu dans le monde caverneux ! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme ! » Ce vieil homme était Maître Âme Rouge. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
 
-De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume ; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de la Tribulation du Vide.
+De son point de vue, la cultivation de Wang Lin n'était qu'un nuage de brume ; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa cultivation de la Tribulation du Vide.
 
 Wang Lin regarda calmement Maître Âme Rouge se précipiter vers lui.
 

@@ -26,7 +26,7 @@ Le garçon adressa un sourire discret à Wang Lin avant de se retourner pour sor
 
 Pour une raison quelconque, Wang Lin éprouva un sentiment d'inquiétude dans cette grotte immortelle.
 
-En observant les fruits sur le plateau, il réfléchit un instant avant de se remettre à sa culture. Sa main droite restait posée sur son sac de rangement afin de pouvoir riposter en cas de danger imminent.
+En observant les fruits sur le plateau, il réfléchit un instant avant de se remettre à sa cultivation. Sa main droite restait posée sur son sac de rangement afin de pouvoir riposter en cas de danger imminent.
 
 Le temps passa et, en un clin d'œil, trois jours s'écoulèrent. Durant cette période, seul le garçon vint dans sa chambre. Le matin du deuxième jour, Wang Lin sortit, mais découvrit que tous les serviteurs avaient perdu la moitié de leur langue, les rendant incapables de parler.
 
@@ -34,13 +34,13 @@ De plus, une grande partie de la zone était recouverte de puissantes restrictio
 
 Il y avait quelque chose de sinistre dans cet endroit.
 
-Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa culture afin de rester dans les meilleures conditions possibles pour l'affrontement contre le Papillon Rouge.
+Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa cultivation afin de rester dans les meilleures conditions possibles pour l'affrontement contre le Papillon Rouge.
 
-Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine culture, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
+Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine cultivation, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
 
 Cet homme était élégant, sans être extrêmement beau. Il n'avait pas de barbe, mais présentait une légère barbe de quelques jours. Ses yeux étaient brillants, bien que semblant voilés par une sorte de brume. Bien qu'il ne parlât pas, il dégageait une aura de majesté.
 
-Le regard de Wang Lin resta calme. Il n'était nullement surpris que cet homme ait pu entrer sans qu'il s'en aperçoive. De nombreuses personnes possédant un niveau de culture supérieur au sien se trouvaient ici. Il n'était plus un jeune garçon débutant en culture ; il ne se laissait pas facilement impressionner.
+Le regard de Wang Lin resta calme. Il n'était nullement surpris que cet homme ait pu entrer sans qu'il s'en aperçoive. De nombreuses personnes possédant un niveau de cultivation supérieur au sien se trouvaient ici. Il n'était plus un jeune garçon débutant en cultivation ; il ne se laissait pas facilement impressionner.
 
 L'homme d'âge mûr prit une gorgée de thé et tapota doucement la table du bout des doigts, sans dire un mot.
 
@@ -66,7 +66,7 @@ L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âm
 
 Le message laissé par cet homme était limpide. S'il perdait la bataille contre le Papillon Rouge, la seule issue qui lui resterait serait la mort.
 
-Wang Lin prit une profonde inspiration, ferma les yeux et reprit sa culture.
+Wang Lin prit une profonde inspiration, ferma les yeux et reprit sa cultivation.
 
 Quelques jours plus tard, le jour du grand combat arriva.
 
@@ -90,7 +90,7 @@ Cependant, la brise légère qui faisait flotter sa manche vide entachait l'imag
 
 Sa beauté, à l'instar de son talent, était empreinte d'arrogance et de cruauté.
 
-Autour du périmètre de l'autel, des cercles de lumière blanche accueillaient des sièges. De nombreuses personnes y étaient déjà assises : hommes et femmes, jeunes et vieux. Il s'agissait d'émissaires de différents pays de culture.
+Autour du périmètre de l'autel, des cercles de lumière blanche accueillaient des sièges. De nombreuses personnes y étaient déjà assises : hommes et femmes, jeunes et vieux. Il s'agissait d'émissaires de différents pays de cultivation.
 
 Bien qu'ils ne fussent pas cent, ils s'en rapprochaient. Malgré leur nombre, un silence absolu régnait.
 
@@ -110,7 +110,7 @@ Le Papillon Rouge baissa les yeux vers sa manche vide avant de lever la tête. S
 
 Non seulement Wang Lin était le premier à l'avoir vaincue, mais il lui avait même arraché un bras. Si Wang Lin l'avait battue lors d'un combat direct, bien qu'elle l'aurait détesté, sa haine n'aurait pas été aussi viscérale.
 
-Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur taoïste. Durant toutes ces années, son niveau de culture n'avait pas progressé. Tout cela était de la faute de Wang Lin.
+Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur taoïste. Durant toutes ces années, son niveau de cultivation n'avait pas progressé. Tout cela était de la faute de Wang Lin.
 
 Seul en le tuant pourrait-elle restaurer son cœur taoïste.
 

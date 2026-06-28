@@ -14,7 +14,7 @@ Les expressions de ces trois individus changèrent radicalement. Face à ce feu 
 
 Bien qu'ils ne fussent ici que sous forme de projections et que leurs corps originaux ne risqueraient rien, la perte de leurs projections les laisserait gravement blessés et nécessiterait un long temps de récupération. À cet instant, les trois reculèrent avec effroi.
 
-« Le Seigneur du Royaume Scellé ! Cet homme est véritablement digne de son titre. Il est capable d'utiliser un sort de destruction de royaume avec son niveau de culture actuel ! » L'expression du vieil homme en robe grise changea profondément.
+« Le Seigneur du Royaume Scellé ! Cet homme est véritablement digne de son titre. Il est capable d'utiliser un sort de destruction de royaume avec son niveau de cultivation actuel ! » L'expression du vieil homme en robe grise changea profondément.
 
 « Le précédent Seigneur du Royaume Scellé était extrêmement difficile à tuer. Je ne m'attendais pas à ce que cette génération soit tout aussi redoutable ! » La vieille femme en noir prit une profonde inspiration et fixa Wang Lin avec une puissante intention meurtrière, avant de battre en retraite rapidement.
 

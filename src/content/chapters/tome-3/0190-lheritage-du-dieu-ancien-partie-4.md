@@ -36,7 +36,7 @@ Le processus dura une éternité...
 
 Quelles que soient les recherches des cultivateurs, ils ne trouvaient rien. C'était comme si quelque chose les aveuglait ; ils ne parvenaient pas à comprendre où passait toute l'essence végétale. Peu après, ce fut au tour de l'énergie spirituelle : elle disparut intégralement en un temps record, laissant la planète exsangue. Les cultivateurs n'eurent d'autre choix que de migrer.
 
-Toute cette énergie fut absorbée par le jeune homme, faisant croître son corps de façon spectaculaire. Par la suite, des catastrophes naturelles se multiplièrent à la surface. Des montagnes s'effondrèrent et certains cultivateurs qui n'avaient pas migré assez tôt moururent subitement sans cause apparente. Le plus souvent, ils perdaient instantanément toute leur culture ainsi que la vie.
+Toute cette énergie fut absorbée par le jeune homme, faisant croître son corps de façon spectaculaire. Par la suite, des catastrophes naturelles se multiplièrent à la surface. Des montagnes s'effondrèrent et certains cultivateurs qui n'avaient pas migré assez tôt moururent subitement sans cause apparente. Le plus souvent, ils perdaient instantanément toute leur cultivation ainsi que la vie.
 
 Des années plus tard, la planète était devenue un monde mort. Puis, le jeune homme bougea brusquement et l'astre entier explosa. Au milieu des débris de la planète déchiquetée, le jeune homme émergea. Il mesurait des milliers de pieds de haut et son regard était glacial, dépourvu de toute émotion.
 
@@ -66,9 +66,9 @@ Si Wang Lin était entré dans la Mer de la Connaissance de manière conventionn
 
 Pour y pénétrer, il fallait avoir obtenu l'héritage de la puissance du Dieu Ancien, puis utiliser l'énergie spirituelle résiduelle du corps pour ouvrir les portes de la Mer de la Connaissance. Cependant, un détail changeait tout dans la partie de la mémoire que Wang Lin avait obtenue : une mention expliquait pourquoi le Dieu Ancien Tu Si avait sacrifié sa vie.
 
-La race des Dieux Anciens transmettait depuis longtemps une technique magique mystérieuse nommée la Technique Divine de Transformation d'Encre Fluide. Une fois maîtrisée, elle permettait au Dieu Ancien de diviser sa conscience divine en dix, puis ces dix en dizaines de milliers, et ces dizaines de milliers en millions. Chaque fragment de conscience posséderait une culture non inférieure à celle du corps original. L'auteur de cette technique était inconnu, et au fil des millénaires, personne n'avait réussi à la pratiquer avec succès.
+La race des Dieux Anciens transmettait depuis longtemps une technique magique mystérieuse nommée la Technique Divine de Transformation d'Encre Fluide. Une fois maîtrisée, elle permettait au Dieu Ancien de diviser sa conscience divine en dix, puis ces dix en dizaines de milliers, et ces dizaines de milliers en millions. Chaque fragment de conscience posséderait une cultivation non inférieure à celle du corps original. L'auteur de cette technique était inconnu, et au fil des millénaires, personne n'avait réussi à la pratiquer avec succès.
 
-Tu Si était un génie de la culture. Après avoir échoué à maîtriser la technique par les voies classiques, il eut une idée folle : la culture inversée. Il renonça à sa longue vie et, au moment même où son âme commençait à se dissiper, il utilisa de force la technique pour empêcher ses fragments d'âme de disparaître, espérant continuer à cultiver jusqu'à obtenir les résultats escomptés.
+Tu Si était un génie de la cultivation. Après avoir échoué à maîtriser la technique par les voies classiques, il eut une idée folle : la cultivation inversée. Il renonça à sa longue vie et, au moment même où son âme commençait à se dissiper, il utilisa de force la technique pour empêcher ses fragments d'âme de disparaître, espérant continuer à cultiver jusqu'à obtenir les résultats escomptés.
 
 Malheureusement, si Tu Si avait eu plus de temps, il aurait sans doute réussi. Mais un événement vint bouleverser son plan : l'irruption d'un homme aux cheveux roux dans le corps du Dieu Ancien. La puissance de cet intrus était prodigieuse ; il s'empara de force de l'héritage de la puissance et engagea une lutte contre l'âme résiduelle de Tu Si. Finalement, Tu Si étant déjà mort, son âme fut détruite.
 
@@ -84,7 +84,7 @@ Après réflexion, une idée lui vint. Il tendit la main vers la membrane qui l'
 
 Dès qu'il fut de nouveau visible, il aperçut au loin une vague de Qi. Cette onde infinie rugissait vers lui. Wang Lin resta immobile, ferma les yeux et exécuta quelques gestes. Lorsque la vague de Qi l'atteignit, il poussa sa main en avant. Son corps s'intégra à l'onde et fut emporté par elle dans le lointain.
 
-Autrefois, cela lui aurait été impossible, mais grâce à l'héritage partiel du Dieu Ancien, il connaissait les entrailles de ce corps mieux que quiconque. On pourrait même dire que s'il désirait se cacher, nul ne pourrait le trouver, à l'exception de l'homme aux cheveux roux piégé dans la Mer Sanguine qui, grâce à sa culture prodigieuse, serait capable de le débusquer.
+Autrefois, cela lui aurait été impossible, mais grâce à l'héritage partiel du Dieu Ancien, il connaissait les entrailles de ce corps mieux que quiconque. On pourrait même dire que s'il désirait se cacher, nul ne pourrait le trouver, à l'exception de l'homme aux cheveux roux piégé dans la Mer Sanguine qui, grâce à sa cultivation prodigieuse, serait capable de le débusquer.
 
 Tandis qu'il chevauchait la vague de Qi, une pensée traversa son esprit. Arrivé à un point précis, il s'en extirpa et, profitant de l'élan de l'onde, atteignit les confins du ciel. Il saisit l'espace de sa main droite et y ouvrit une faille. Dans un éclair, son corps s'y engouffra.
 
@@ -104,7 +104,7 @@ Le cultivateur démoniaque fut une nouvelle fois pris de stupeur. Il cligna des 
 
 Pendant ce temps, les quelques dizaines de cultivateurs déjà présents déployèrent leur Sens Divin pour traquer Wang Lin. Ils le repérèrent rapidement et volèrent vers lui à une vitesse incroyable.
 
-L'héritage partiel n'avait pas augmenté la culture de Wang Lin, mais il lui permettait désormais de se déplacer à sa guise dans le corps du Dieu Ancien. Personne ne connaissait mieux ces lieux que lui. Même l'homme aux cheveux roux ne pouvait rivaliser sur ce point, tant les natures de leurs héritages différaient.
+L'héritage partiel n'avait pas augmenté la cultivation de Wang Lin, mais il lui permettait désormais de se déplacer à sa guise dans le corps du Dieu Ancien. Personne ne connaissait mieux ces lieux que lui. Même l'homme aux cheveux roux ne pouvait rivaliser sur ce point, tant les natures de leurs héritages différaient.
 
 Lorsque les cultivateurs démoniaques atteignirent Wang Lin, ils chargèrent à pleine vitesse. Pourtant, malgré leur Sens Divin verrouillé sur lui, ils furent frappés par une découverte stupéfiante : il s'était volatilisé. Il semblait connaître cet endroit mieux qu'eux.
 

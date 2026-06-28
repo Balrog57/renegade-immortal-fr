@@ -12,21 +12,21 @@ Chapitre 1757 - État du jeu !
 
 La loi en ce lieu ressemblait fort à une partie d'échecs : il fallait séparer une portion de son sens divin pour en faire un soldat, tout en utilisant le corps d'un mortel pour affronter ce massacre de millions de combattants !
 
-Leur culture serait totalement supprimée, les rendant incapables de l'utiliser.
+Leur cultivation serait totalement supprimée, les rendant incapables de l'utiliser.
 
-« Le Général Tigre Blanc est devenu un général, tandis que l'homme de la Planète des Cinq Éléments est devenu un soldat. C'est là l'avantage que le Général Tigre Blanc croit posséder ! Les trois cents mondes détruits ne peuvent pas sceller les lignées, mais si la puissance se concentre sur seulement deux ou trois individus, elle peut en supprimer la lignée. Et si la lignée est supprimée, il ne sert à rien de parler de culture. Le Général Tigre Blanc n'est pas seulement un être céleste, il possède aussi un corps puissant. Bien que sa lignée céleste soit entravée, son corps demeure robuste. Malgré la suppression qui affecte sa constitution, il reste assez fort pour agir en tant que général !
+« Le Général Tigre Blanc est devenu un général, tandis que l'homme de la Planète des Cinq Éléments est devenu un soldat. C'est là l'avantage que le Général Tigre Blanc croit posséder ! Les trois cents mondes détruits ne peuvent pas sceller les lignées, mais si la puissance se concentre sur seulement deux ou trois individus, elle peut en supprimer la lignée. Et si la lignée est supprimée, il ne sert à rien de parler de cultivation. Le Général Tigre Blanc n'est pas seulement un être céleste, il possède aussi un corps puissant. Bien que sa lignée céleste soit entravée, son corps demeure robuste. Malgré la suppression qui affecte sa constitution, il reste assez fort pour agir en tant que général !
 
 Quant à l'homme de la Planète des Cinq Éléments, il ne cultive pas son corps et ressemble à un érudit. Par conséquent, le fossé entre un général et un soldat devient abyssal ! »
 
 Wang Lin plissa les yeux, lesquels brillaient d'une lueur de sagesse.
 
-« La loi de cet endroit supprime la culture, et le Général Tigre Blanc est un être céleste. Lorsqu'il m'a vu utiliser l'Arc Li Guang, il a dû déduire que je ne possédais pas de lignée céleste. Si je peux manier l'Arc Li Guang, c'est grâce au sang du Corps Céleste Immortel !
+« La loi de cet endroit supprime la cultivation, et le Général Tigre Blanc est un être céleste. Lorsqu'il m'a vu utiliser l'Arc Li Guang, il a dû déduire que je ne possédais pas de lignée céleste. Si je peux manier l'Arc Li Guang, c'est grâce au sang du Corps Céleste Immortel !
 
-En tant qu'individu dépourvu de lignée céleste, ma culture pourrait être totalement supprimée. Même le sens divin que j'en séparerais ne serait que celui d'un simple soldat. Cependant, pour eux, leur lignée leur permet encore de manifester un certain pouvoir.
+En tant qu'individu dépourvu de lignée céleste, ma cultivation pourrait être totalement supprimée. Même le sens divin que j'en séparerais ne serait que celui d'un simple soldat. Cependant, pour eux, leur lignée leur permet encore de manifester un certain pouvoir.
 
 C'est là l'avantage qu'il croit détenir ! De plus, pensant que je n'ai pas de lignée céleste, il estime que le monde ne subira pas de charge supplémentaire en devant supprimer une autre personne dotée d'une telle lignée.
 
-Peut-être pense-t-il que je possède un héritage du Dao Antique et le corps d'un Dieu Antique, mais il ignore que j'ai obtenu la lignée du Dao Antique. Bien que ma lignée soit supprimée, grâce à ma culture, non seulement je ne serai pas plus faible que le Général Tigre Blanc, mais je serai encore plus fort ! » Wang Lin fit un pas décisif en avant.
+Peut-être pense-t-il que je possède un héritage du Dao Antique et le corps d'un Dieu Antique, mais il ignore que j'ai obtenu la lignée du Dao Antique. Bien que ma lignée soit supprimée, grâce à ma cultivation, non seulement je ne serai pas plus faible que le Général Tigre Blanc, mais je serai encore plus fort ! » Wang Lin fit un pas décisif en avant.
 
 D'un seul pas, il pénétra dans le domaine, et un grondement tonnerre résonna à travers le monde dévasté. Simultanément, une force puissante s'engouffra, comme pour déchirer le monde et affaiblir la loi établie par le Général Tigre Blanc !
 

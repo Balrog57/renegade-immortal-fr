@@ -34,7 +34,7 @@ Presque aucun Exalt Céleste ni Ascendant ici ne savait que Wang Lin possédait 
 
 « Nous avons failli être dupés par lui. Ce Wang Lin est sans vergogne !! Quel Ascendant ? Ce n'est qu'un simple Exalt Céleste. Sans cette armure, je pourrais le tuer d'un seul souffle ! »
 
-« Humph, je soupçonne qu'il n'a même pas la culture d'un Exalt Céleste, et s'il est ici, c'est uniquement grâce au pouvoir de l'armure ! Regardez son niveau de culture, il n'est clairement qu'au stade intermédiaire de la Tribulation du Vide, et n'est même pas un Exalt Doré. Je pensais qu'il cachait délibérément sa force, mais il semble n'être qu'un insignifiant cultivateur de la Tribulation du Vide ! »
+« Humph, je soupçonne qu'il n'a même pas la cultivation d'un Exalt Céleste, et s'il est ici, c'est uniquement grâce au pouvoir de l'armure ! Regardez son niveau de cultivation, il n'est clairement qu'au stade intermédiaire de la Tribulation du Vide, et n'est même pas un Exalt Doré. Je pensais qu'il cachait délibérément sa force, mais il semble n'être qu'un insignifiant cultivateur de la Tribulation du Vide ! »
 
 « Pas étonnant que seuls le Grand Empereur Dao Yi et le Grand Empereur Wu Feng soient venus après qu'il ait franchi le 13e palais. Le Grand Empereur Jiu Di n'est jamais apparu. Clairement, il a percé à jour l'indécence de cet individu depuis longtemps et éprouve trop de mépris pour vouloir le recruter ! »
 
@@ -66,11 +66,11 @@ Face au mépris et aux critiques de la foule, le Grand Empereur Dao Yi s'apprêt
 
 « Le fait que l'Empereur Céleste parle ainsi en ce moment signifie qu'il entretient une certaine relation avec cet enfant. Cet individu... il n'est pas seulement infâme, il est... Il vaut mieux ne pas le recruter. Bien que la compréhension de son enfant soit singulière, tout cela est désormais perdu. » Dao Yi soupira et resta muet. Il avait renoncé à Wang Lin.
 
-Soudain, la voix indignée d'une femme jaillit de la foule. Cette voix, chargée de toute sa puissance de culture, résonna dans toute l'Épreuve Empyrée.
+Soudain, la voix indignée d'une femme jaillit de la foule. Cette voix, chargée de toute sa puissance de cultivation, résonna dans toute l'Épreuve Empyrée.
 
 « Taisez-vous tous ! Vous n'y connaissez rien. Il y a plus d'une décennie, Wang Lin pouvait combattre à mes côtés sans armure de l'âme. Comment pourrait-il être ce que vous prétendez ?! »
 
-« Même avec l'armure de l'âme, et alors ? Cela signifie simplement qu'il a obtenu la reconnaissance des âmes étrangères pour obtenir leur puissance. Cela fait partie intégrante de sa propre culture ! »
+« Même avec l'armure de l'âme, et alors ? Cela signifie simplement qu'il a obtenu la reconnaissance des âmes étrangères pour obtenir leur puissance. Cela fait partie intégrante de sa propre cultivation ! »
 
 « Le 13e palais... il a eu la force de le franchir. Est-ce que l'un d'entre vous, qui se moque de lui, oserait l'affronter ?! Si vous êtes tous si jaloux, allez donc obtenir vos propres armures de l'âme et voyez à quel point obtenir la reconnaissance d'une âme étrangère est plus difficile que de passer l'Épreuve Empyrée ! » Cette voix appartenait à l'Exalt Céleste Hai Zi. Elle était très célèbre dans le clan céleste, en partie grâce à son maître, le Grand Empereur Jiu Di, et en partie par sa propre force.
 
@@ -78,7 +78,7 @@ Après ses paroles, un silence soudain s'abattit sur les environs.
 
 Wang Lin restait silencieux, pensif, debout devant le réseau de transfert, le visage pâle. Sous les regards dubitatifs de l'assemblée, il leva les yeux vers l'Exalt Céleste Hai Zi, visiblement exaltée et en colère, au loin.
 
-L'Empereur Céleste secoua la tête : « Petite Hai Zi, ne dis pas de bêtises. Que vous soyez des Exalt Célestes ou des Ascendants, l'essentiel est de se concentrer sur sa propre culture. S'appuyer sur une puissance extérieure a ses limites ! La limite de ce Wang Lin est le 13e palais. Je crains que pour les centaines de milliers d'années à venir, il lui soit difficile de faire un seul pas de plus. Quel intérêt y a-t-il à atteindre temporairement un tel niveau ? »
+L'Empereur Céleste secoua la tête : « Petite Hai Zi, ne dis pas de bêtises. Que vous soyez des Exalt Célestes ou des Ascendants, l'essentiel est de se concentrer sur sa propre cultivation. S'appuyer sur une puissance extérieure a ses limites ! La limite de ce Wang Lin est le 13e palais. Je crains que pour les centaines de milliers d'années à venir, il lui soit difficile de faire un seul pas de plus. Quel intérêt y a-t-il à atteindre temporairement un tel niveau ? »
 
 « C'est une vérité que tous les cultivateurs doivent graver dans leur esprit : s'appuyer sur des forces extérieures ne fait que retarder votre propre progression. Wang Lin est un exemple pour vous tous ! »
 

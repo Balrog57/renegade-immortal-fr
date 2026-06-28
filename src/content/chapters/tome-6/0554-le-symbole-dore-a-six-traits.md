@@ -32,7 +32,7 @@ Son cœur vacilla, mais comme son cœur dao était ferme, il remarqua immédiate
 
 Wang Lin prit une profonde inspiration pour apaiser son agitation intérieure. Il ne lui prêta plus attention et se reconcentra sur la compréhension de son domaine. Il se souvenait clairement qu'elle n'avait pas ces symboles auparavant ; cela devait donc avoir un lien étroit avec la puissance mystérieuse qui venait d'apparaître.
 
-Les yeux de Yao Xixue s'ouvrirent un instant avant qu'elle ne les referme pour reprendre sa culture en silence.
+Les yeux de Yao Xixue s'ouvrirent un instant avant qu'elle ne les referme pour reprendre sa cultivation en silence.
 
 Wang Lin s'immergea dans le cycle de la vie et de la mort de la réincarnation. Des scènes du passé défilèrent dans son esprit. Apprendre la vie et la mort, comprendre ce qu'est l'existence et ce qu'est le néant, il ouvrit le parchemin de la vie et de la mort, et finalement, le domaine pénétra dans son corps. Tout cela affluait dans le cœur de Wang Lin.
 
@@ -100,7 +100,7 @@ D'un mot, Yao Xixue lança le jade. Celui-ci vola en éclats dans les airs pour 
 
 La silhouette magnifique de Yao Xixue retomba lentement au sol. Elle se retourna pour regarder Wang Lin avant de faire face à l'autre extrémité de la plateforme, où un autre Chemin du Dragon Sacré l'attendait.
 
-Les pupilles de Wang Lin se contractèrent. La culture de cette statue n'était pas inférieure à celle d'un cultivateur au début de la Transformation de l'Âme. Bien qu'elle fût dépourvue d'intelligence, la puissance dégagée par ce simple pas était immense. Si on lui permettait d'utiliser un sort ou de bouger librement, elle serait indubitablement difficile à maîtriser.
+Les pupilles de Wang Lin se contractèrent. La cultivation de cette statue n'était pas inférieure à celle d'un cultivateur au début de la Transformation de l'Âme. Bien qu'elle fût dépourvue d'intelligence, la puissance dégagée par ce simple pas était immense. Si on lui permettait d'utiliser un sort ou de bouger librement, elle serait indubitablement difficile à maîtriser.
 
 Pourtant, quelques instants plus tôt, elle avait été si aisément scellée par Yao Xixue. Cela changea radicalement l'opinion que Wang Lin se faisait d'elle.
 

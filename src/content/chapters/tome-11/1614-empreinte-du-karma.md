@@ -84,7 +84,7 @@ Ces deux seules essences suffiraient à Wang Lin pour fracasser la Porte du Vide
 
 « Karma, apparais ! » La froideur dans les yeux de Wang Lin s'estompa, remplacée par la nostalgie. L'aura d'un grand érudit, qu'il n'avait jamais libérée hors de son rêve, se propagea.
 
-Cette aura n'était pas une chose qu'un cultivateur pouvait posséder. Même les grands érudits devenus cultivateurs ne pouvaient conserver une telle aura. Sur le chemin de la culture, dans ce monde où les faibles sont la proie des forts, tous avaient changé. Ils avaient oublié ce que signifiait comprendre le monde.
+Cette aura n'était pas une chose qu'un cultivateur pouvait posséder. Même les grands érudits devenus cultivateurs ne pouvaient conserver une telle aura. Sur le chemin de la cultivation, dans ce monde où les faibles sont la proie des forts, tous avaient changé. Ils avaient oublié ce que signifiait comprendre le monde.
 
 Seul en utilisant le Dao du Rêve, Wang Lin avait pu préserver l'aura d'un grand érudit après son réveil. Au moment où il prononça ces mots, cette aura explosa.
 

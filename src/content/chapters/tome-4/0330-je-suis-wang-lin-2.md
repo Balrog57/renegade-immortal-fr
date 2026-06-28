@@ -12,7 +12,7 @@ Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source
 
 Zhan Bai ricana, puis fronça bientôt les sourcils en marmonnant : « La grenouille tonitruante de Ceng Niu est l'ennemie naturelle de mes insectes, ce sera donc un peu difficile. » Ses yeux s'illuminèrent et il prit une décision. Cette fois, il devait s'enfoncer plus profondément dans la Vallée Désolée des Neuf Fantômes pour obtenir l'insecte roi. Avec l'insecte roi, même la grenouille tonitruante perdrait de son efficacité.
 
-« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Red Butterfly, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
+« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Red Butterfly, alors son niveau de cultivation ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
 
 La Secte du Ciel Nuageux était entourée de nuages blancs. Ces nuages n'étaient pas naturels, mais constituaient une formation de protection de la secte. Non seulement cette formation protégeait la secte, mais elle avait également la capacité de masquer les fluctuations d'énergie spirituelle provenant de l'intérieur.
 
@@ -50,7 +50,7 @@ En contemplant les rangées infinies de bâtiments de pierre spirituelle qui sem
 
 La formation de protection de la secte avait été facilement détruite. Les habitants de la Secte du Ciel Nuageux étaient plongés dans le désespoir.
 
-Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes de cent pieds d'épaisseur. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
+Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes de cent pieds d'épaisseur. Certaines disciples féminines, dont le niveau de cultivation était faible, étaient si terrifiées qu'elles se mirent à pleurer.
 
 Zhan Bai tendit la main. Plusieurs disciples furent saisis par une force invisible. Un groupe d'insectes se détacha de l'essaim et bondit sur elles. Des cris déchirants résonnèrent rapidement alors que les disciples étaient submergés par les insectes. Ces derniers rampaient partout sur elles, certains s'introduisant même dans leurs corps.
 
@@ -84,7 +84,7 @@ Un vieil homme aux cheveux blancs fit un pas en avant, s'interposant devant Li M
 
 Les yeux de Zhan Bai s'illuminèrent. Il fixa le vieil homme et déclara avec mépris : « Mes requêtes ? Ma demande est très simple. Je vais tous vous tuer, prendre toutes les pilules et sceller cet endroit pour en faire mon palais personnel... Quant à toi, ton nom est Li Muwan ? Tu es très jolie et possède une certaine grâce. Tu seras ma servante. »
 
-L'une des cultivatrices de l'Âme Naissante, une vieille femme, s'écria : « Vous allez trop loin ! » Elle n'avait atteint le stade de l'Âme Naissante que grâce à Li Muwan. En entendant ces paroles, elle perdit tout sang-froid et, oubliant la différence de niveau de culture, hurla de rage.
+L'une des cultivatrices de l'Âme Naissante, une vieille femme, s'écria : « Vous allez trop loin ! » Elle n'avait atteint le stade de l'Âme Naissante que grâce à Li Muwan. En entendant ces paroles, elle perdit tout sang-froid et, oubliant la différence de niveau de cultivation, hurla de rage.
 
 L'expression de Zhan Bai s'assombrit. Ses yeux devinrent injectés de sang alors qu'il disait : « Il semble que j'aie été trop clément. Très bien, je vais détruire la Secte du Ciel Nuageux ! » Sur ce, il agita sa main droite et les insectes environnants se mirent à attaquer tout le monde.
 
@@ -102,7 +102,7 @@ Ces insectes étaient très étranges. Aucun trésor ni aucun sortilège ne semb
 
 Li Muwan mordit sa lèvre, le regard rempli de désespoir.
 
-Zhan Bai observait Li Muwan avec intérêt. Il se frotta le menton et dit : « Pour être honnête, j'ai anéanti de nombreuses sectes, et tu es la quatrième maîtresse de secte féminine que je rencontre. Bien que ta culture ne soit pas très élevée, tu ferais une excellente hôte pour mes parasites. »
+Zhan Bai observait Li Muwan avec intérêt. Il se frotta le menton et dit : « Pour être honnête, j'ai anéanti de nombreuses sectes, et tu es la quatrième maîtresse de secte féminine que je rencontre. Bien que ta cultivation ne soit pas très élevée, tu ferais une excellente hôte pour mes parasites. »
 
 Sur ces mots, il pointa Li Muwan du doigt et une goutte de sang jaillit soudainement de son index. La goutte se transforma en un insecte malveillant qui bondit vers elle.
 
@@ -116,6 +116,6 @@ Li Muwan resta pensive. Elle regarda au loin et murmura : « Grand frère Wang, 
 
 « Grand frère Wang ? Hahaha, est-ce que c'était Wang... comment disais-tu, Lin ? » Zhan Bai éclata de rire. Depuis son arrivée à Chu, il avait entendu le nom de Wang Lin mentionné par de nombreuses personnes. Il l'avait même entendu de la bouche de membres d'autres sectes alors qu'ils rendaient l'âme.
 
-« Votre pays de Chu est très étrange. Ce Wang Lin semble être très célèbre. Qui est-il exactement ? » Zhan Bai laissa échapper un rire tonitruant, empreint d'arrogance. Ses yeux brillèrent et il ajouta avec mépris : « Je suis maintenant vraiment curieux de savoir qui est réellement ce Wang Lin. Je suis aussi curieux de voir comment tu as réussi, avec ton niveau de culture, à faire en sorte que tous ces cultivateurs de l'Âme Naissante soient prêts à mourir avec toi. »
+« Votre pays de Chu est très étrange. Ce Wang Lin semble être très célèbre. Qui est-il exactement ? » Zhan Bai laissa échapper un rire tonitruant, empreint d'arrogance. Ses yeux brillèrent et il ajouta avec mépris : « Je suis maintenant vraiment curieux de savoir qui est réellement ce Wang Lin. Je suis aussi curieux de voir comment tu as réussi, avec ton niveau de cultivation, à faire en sorte que tous ces cultivateurs de l'Âme Naissante soient prêts à mourir avec toi. »
 
 « Parce qu'elle est ma femme. Je... suis Wang Lin ! » une voix glaciale résonna derrière Zhan Bai.

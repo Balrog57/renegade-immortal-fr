@@ -12,7 +12,7 @@ Au huitième étage du Pavillon des Écritures Spirituelles, l'aura choquante qu
 
 Wang Lin ne voulait pas puiser trop de puissance de son avatar. Il n'en utiliserait que la quantité juste pour ne rien gaspiller. Il n'y avait aucun avantage à en abuser, et cela pourrait provoquer la dessiccation de l'avatar.
 
-Quant à l'idée d'emprunter la puissance de l'avatar pour accéder au neuvième étage, cette pensée avait traversé l'esprit de Wang Lin un instant. Cependant, il sentait à quel point les restrictions sur ces escaliers étaient puissantes ; le coût pour monter était trop élevé. Il n'était pas raisonnable d'essayer à son niveau de culture actuel.
+Quant à l'idée d'emprunter la puissance de l'avatar pour accéder au neuvième étage, cette pensée avait traversé l'esprit de Wang Lin un instant. Cependant, il sentait à quel point les restrictions sur ces escaliers étaient puissantes ; le coût pour monter était trop élevé. Il n'était pas raisonnable d'essayer à son niveau de cultivation actuel.
 
 Après avoir pesé le pour et le contre, Wang Lin renonça à l'idée de monter au neuvième étage. Il dispersa l'aura de son avatar et commença à observer le huitième étage.
 
@@ -104,8 +104,8 @@ Wang Lin retourna dans la grotte au sommet et s'assit. D'un revers de main, il f
 
 « Ce Grand Secte de l'Âme a été bon envers moi ; je peux envisager d'y rester quelque temps avant de chercher mon Maître... »
 
-« Je ne comprends toujours pas la situation exacte de l'endroit où se trouve mon Maître. Cependant, pour que j'apparaisse soudainement, il doit y avoir des gens mécontents ou cherchant à provoquer un conflit... Par conséquent, je dois augmenter mon niveau de culture avant de le retrouver ! » Quelqu'un ayant le niveau de Wang Lin possédait un sens aigu du danger futur. Bien qu'il ne fût pas aussi clair que ceux capables de diviner les changements du monde, il percevait la situation.
+« Je ne comprends toujours pas la situation exacte de l'endroit où se trouve mon Maître. Cependant, pour que j'apparaisse soudainement, il doit y avoir des gens mécontents ou cherchant à provoquer un conflit... Par conséquent, je dois augmenter mon niveau de cultivation avant de le retrouver ! » Quelqu'un ayant le niveau de Wang Lin possédait un sens aigu du danger futur. Bien qu'il ne fût pas aussi clair que ceux capables de diviner les changements du monde, il percevait la situation.
 
 Il avait l'impression vague qu'une grande calamité se préparait pour lui.
 
-« Tant que j'aurai un niveau de culture suffisamment élevé, aucune de ces calamités ne sera un problème ! Maintenant, je veux voir quels genres de cadeaux la personne du Grand Secte de l'Âme qui a prédit mon apparition m'a laissés ! » Les yeux de Wang Lin s'illuminèrent et se posèrent sur la première boîte.
+« Tant que j'aurai un niveau de cultivation suffisamment élevé, aucune de ces calamités ne sera un problème ! Maintenant, je veux voir quels genres de cadeaux la personne du Grand Secte de l'Âme qui a prédit mon apparition m'a laissés ! » Les yeux de Wang Lin s'illuminèrent et se posèrent sur la première boîte.

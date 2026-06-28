@@ -44,7 +44,7 @@ Cependant, malgré ses efforts pour se libérer, elle ne pouvait s'échapper du 
 
 Pourtant, à cet instant précis, Wang Lin ouvrit soudainement les yeux, qui se mirent à briller. Son expression était calme alors qu'il agitait la main, provoquant une distorsion de tout ce qui se trouvait dans la maison, tel un miroir déformant. La distorsion persista jusqu'à ce que des craquements retentissent et que, finalement, tout ne vole en éclats.
 
-Après cela, Wang Lin ferma les yeux et fit abstraction du monde extérieur. Il se replongea dans sa culture pour entamer l'étape finale de la dévoraison de l'éclair éternel.
+Après cela, Wang Lin ferma les yeux et fit abstraction du monde extérieur. Il se replongea dans sa cultivation pour entamer l'étape finale de la dévoraison de l'éclair éternel.
 
 Sous la pluie, le vieil homme en robe taoïste scruta lentement les habitations. Lorsque son regard passa devant la demeure de Wang Lin, il ne lui accorda même pas une attention particulière. Il vit simplement un lettré disparaître dans la maison, remplacé par une famille bien plus animée.
 
@@ -58,7 +58,7 @@ Le vieil homme ferma soudainement les yeux. La lumière de sa marque tribale fai
 
 Des scènes similaires ne se produisaient pas seulement dans diverses villes, mais sur de nombreuses planètes à travers tout le Système Stellaire Ancien !
 
-Une fois l'Ordre du Système Stellaire Ancien prononcé, chaque clan devait s'y plier ; ils avaient ainsi lancé une recherche minutieuse sur chaque planète de culture et chaque planète abandonnée. Les habitants du Système Stellaire Ancien formaient un filet gigantesque !
+Une fois l'Ordre du Système Stellaire Ancien prononcé, chaque clan devait s'y plier ; ils avaient ainsi lancé une recherche minutieuse sur chaque planète de cultivation et chaque planète abandonnée. Les habitants du Système Stellaire Ancien formaient un filet gigantesque !
 
 L'expression de Wang Lin resta neutre et imperturbable lorsqu'ils partirent ; ses yeux ne s'ouvrirent même pas. Le rugissement de l'éclair éternel s'affaiblissait, tout comme sa lutte !
 
@@ -68,11 +68,11 @@ Les deux éclairs à l'intérieur de l'âme originelle de Wang Lin finirent par 
 
 Dès que l'éclair éternel fut assimilé, la volonté qu'il contenait fut raffinée par Wang Lin et ne fit plus qu'un avec son âme originelle. Il sentit son âme originelle trembler, tandis que son essence de tonnerre croissait à une vitesse inimaginable.
 
-Cette progression était indescriptible. La seule montée en puissance de son essence de tonnerre permit la culture de Wang Lin de franchir le stade intermédiaire du Briseur de Nirvana pour tendre vers le stade avancé !
+Cette progression était indescriptible. La seule montée en puissance de son essence de tonnerre permit la cultivation de Wang Lin de franchir le stade intermédiaire du Briseur de Nirvana pour tendre vers le stade avancé !
 
-Tandis que son essence de tonnerre grondait, la culture de Wang Lin atteindrait instantanément le stade avancé du Briseur de Nirvana s'il utilisait son pouvoir !
+Tandis que son essence de tonnerre grondait, la cultivation de Wang Lin atteindrait instantanément le stade avancé du Briseur de Nirvana s'il utilisait son pouvoir !
 
-La puissance de l'essence représentait les fondements de tous les domaines. Obtenir l'essence signifiait qu'il avait percé à jour toutes les lois du tonnerre. Il n'y avait plus de limite de domaine pour sa culture, ce qui était sans précédent !
+La puissance de l'essence représentait les fondements de tous les domaines. Obtenir l'essence signifiait qu'il avait percé à jour toutes les lois du tonnerre. Il n'y avait plus de limite de domaine pour sa cultivation, ce qui était sans précédent !
 
 Après avoir dévoré la volonté de l'éclair éternel, l'esprit de Wang Lin fut secoué. Des souvenirs traversèrent son esprit. C'étaient les souvenirs de cette volonté, les souvenirs de l'éclair éternel !
 

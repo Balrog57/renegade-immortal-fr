@@ -42,7 +42,7 @@ Les yeux de Wang Lin s'illuminèrent. Après une courte réflexion, il s'élanç
 
 La glace était entourée d'une énergie glaciale, mais cela n'arrêta pas Wang Lin. Ce froid n'avait d'effet que sur les autres ; pour lui, ce n'était qu'un terrain plat.
 
-En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cependant, il lui suffisait de faire circuler un peu de sa culture pour que cette sensation disparaisse.
+En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cependant, il lui suffisait de faire circuler un peu de sa cultivation pour que cette sensation disparaisse.
 
 La glace agissait comme un miroir ; elle reflétait vaguement sa silhouette lors de ses mouvements, donnant l'impression qu'une ombre incertaine le suivait. Wang Lin n'y prêta qu'un bref regard et poursuivit sa route comme si de rien n'était.
 
@@ -96,7 +96,7 @@ Cependant, non seulement cette puissance était faible, mais elle fluctuait de m
 
 Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Ling existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences !
 
-La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
+La cultivation du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
 
 Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Elle restait très étrange et ne fondait pas ; elle continuait d'émaner une aura glaciale.
 

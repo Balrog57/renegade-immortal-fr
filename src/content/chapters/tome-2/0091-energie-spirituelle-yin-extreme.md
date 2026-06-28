@@ -14,7 +14,7 @@ L'expression de Teng Huayuan changea brusquement. Sans réfléchir, il recula pr
 
 Il ne vit qu'un brouillard sombre s'avancer depuis le lointain, entouré de vents éerieux. Une main desséchée surgit de cette brume noire et tendit les doigts vers lui.
 
-Teng Huayuan sonda le brouillard avec son sens divin et fut saisi par la terreur. Le niveau de culture de cet individu était celui du stade intermédiaire de l'Âme Naissante, ce qui le força à reculer de nouveau.
+Teng Huayuan sonda le brouillard avec son sens divin et fut saisi par la terreur. Le niveau de cultivation de cet individu était celui du stade intermédiaire de l'Âme Naissante, ce qui le força à reculer de nouveau.
 
 La main desséchée fit un léger mouvement. Une main gigantesque apparut, tentant de saisir Teng Huayuan.
 
@@ -92,7 +92,7 @@ Qualité normale : rang 4, 6, 8, 10. Bonne qualité : rang 3, 6, 10... et franch
 
 Wang Lin afficha un sourire de satisfaction. Il déploya son sens divin et comprit que la supériorité de l'énergie Yin ici était liée aux cavités du sol. Il pouvait voir des filaments d'énergie s'échapper de ces trous pour se mêler à l'énergie environnante.
 
-Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2 Dense. À minuit, elle avait atteint le rang 5 Dense. Wang Lin n'hésita plus et commença immédiatement sa culture.
+Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2 Dense. À minuit, elle avait atteint le rang 5 Dense. Wang Lin n'hésita plus et commença immédiatement sa cultivation.
 
 Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota une différence fondamentale : la pureté de l'énergie était dix fois supérieure à celle qu'il avait connue auparavant. Un changement de qualité entraîne un changement de quantité ; cela signifiait qu'une minute d'accumulation équivalait désormais à plus de dix minutes passées auparavant.
 
@@ -114,17 +114,17 @@ En examinant les débris, il retint son souffle : la structure interne de la pie
 
 Wang Lin ignorait qu'après avoir dévoré cette énergie Yin, son énergie spirituelle avait subi une métamorphose radicale. Même si Situ Nan était présent, il n'aurait pu comprendre ce qui venait de se passer.
 
-Dans l'ère antique de la culture, outre les différents niveaux de culture, il existait trois rangs pour l'énergie spirituelle : Ji, Dao et Shi. Ces trois royaumes ne suivaient pas une hiérarchie linéaire mais progressaient en parallèle. Une fois un royaume atteint, on ne pouvait plus passer à un autre. La difficulté d'accès n'était pas insurmontable, mais tout dépendait de la chance.
+Dans l'ère antique de la cultivation, outre les différents niveaux de cultivation, il existait trois rangs pour l'énergie spirituelle : Ji, Dao et Shi. Ces trois royaumes ne suivaient pas une hiérarchie linéaire mais progressaient en parallèle. Une fois un royaume atteint, on ne pouvait plus passer à un autre. La difficulté d'accès n'était pas insurmontable, mais tout dépendait de la chance.
 
 Les cultivateurs érudits de l'Antiquité savaient qu'il ne fallait pas choisir le Royaume Ji. Bien que sa puissance offensive fût immense, ses inconvénients étaient trop nombreux. Le plus mortel était qu'une fois sur la voie du Ji, on ne pouvait utiliser que cette énergie spécifique, ce qui posait un problème majeur pour passer du stade de l'Âme Naissante à celui de la Formation de l'Âme. La Formation de l'Âme exigeait une intégration avec le monde et non un chemin extrême.
 
-Pourtant, malgré ces défauts, le Royaume Ji offrait des avantages indéniables. On pouvait dire que face à un utilisateur du Royaume Ji, les cultivateurs de même niveau étaient totalement impuissants. Bien qu'il soit presque impossible d'atteindre la Formation de l'Âme par cette voie, celui qui atteignait le sommet de l'Âme Naissante devenait incontestablement le plus fort de tous ceux situés en dessous de ce stade. Plus important encore, avec l'augmentation de leur culture, les cultivateurs du Royaume Ji n'avaient même plus besoin de trésors magiques, car leur énergie spirituelle était déjà la plus puissante.
+Pourtant, malgré ces défauts, le Royaume Ji offrait des avantages indéniables. On pouvait dire que face à un utilisateur du Royaume Ji, les cultivateurs de même niveau étaient totalement impuissants. Bien qu'il soit presque impossible d'atteindre la Formation de l'Âme par cette voie, celui qui atteignait le sommet de l'Âme Naissante devenait incontestablement le plus fort de tous ceux situés en dessous de ce stade. Plus important encore, avec l'augmentation de leur cultivation, les cultivateurs du Royaume Ji n'avaient même plus besoin de trésors magiques, car leur énergie spirituelle était déjà la plus puissante.
 
 Quant au Royaume Dao, il était le rêve de tout cultivateur. Une fois que l'énergie spirituelle atteignait ce stade, accéder à la Formation de l'Âme devenait une formalité. C'est pourquoi le Royaume Dao était le plus recherché dans le monde ancien.
 
 Enfin, le Royaume Shi : si le Royaume Ji représentait la mort, le Royaume Shi représentait la vie. C'était un domaine que les cultivateurs inférieurs à la Formation de l'Âme ne pouvaient même pas concevoir, et que même les maîtres de la Formation de l'Âme ne pouvaient qu'espérer atteindre.
 
-Ces trois royaumes étaient extrêmement difficiles à maîtriser et, avec la chute du monde antique, les connaissances à leur sujet s'étaient éteintes. Les cultivateurs actuels ne prêtaient plus attention à la nature de leur énergie spirituelle, ne se souciant que de leur niveau de culture.
+Ces trois royaumes étaient extrêmement difficiles à maîtriser et, avec la chute du monde antique, les connaissances à leur sujet s'étaient éteintes. Les cultivateurs actuels ne prêtaient plus attention à la nature de leur énergie spirituelle, ne se souciant que de leur niveau de cultivation.
 
 Wang Lin ignorait que, grâce à l'énergie Yin dévorée, son énergie spirituelle était passée dans le Royaume Ji. Tout cela était dû à la Méthode d'Ascension des Enfers, l'un des rares moyens capables de générer une telle énergie. Cependant, la méthode transmise par Situ Nan n'était pas identique à celle de l'Antiquité ; avec les siècles, des fragments s'étaient perdus et ses successeurs avaient dû réorganiser les informations restantes.
 

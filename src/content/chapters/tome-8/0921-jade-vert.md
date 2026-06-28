@@ -42,9 +42,9 @@ Remarquant le regard de Wang Lin, elle lui adressa un sourire gracieux, bien que
 
 Enfin, il y avait un jeune homme. Vêtu d'une chemise blanche, il était entouré de trois flûtes de bambou qui émettaient des mélodies étranges. De loin, le son des flûtes semblait se matérialiser pour former une illusion autour de lui ; il était facile de perdre son âme dans ce mirage.
 
-Le jeune homme ne prêta aucune attention au regard de Wang Lin. Il restait concentré sur sa culture, les yeux clos, empreint d'une profonde arrogance.
+Le jeune homme ne prêta aucune attention au regard de Wang Lin. Il restait concentré sur sa cultivation, les yeux clos, empreint d'une profonde arrogance.
 
-Si ces trois individus avaient capté l'attention de Wang Lin, c'est parce qu'il était incapable de percer leur niveau de culture !
+Si ces trois individus avaient capté l'attention de Wang Lin, c'est parce qu'il était incapable de percer leur niveau de cultivation !
 
 Tandis que Wang Lin les observait, les cultivateurs sur le bois dirigèrent également leurs regards vers lui. Compte tenu de sa réputation dans le système stellaire Allheaven, il ne fallut pas longtemps pour qu'ils le reconnaissent, d'autant plus que le rugissement du Tigre Volant retentissait derrière lui.
 
@@ -92,13 +92,13 @@ Tous les occupants du bois regardèrent Wang Lin, chacun avec une émotion diff�
 
 Le jeune homme aux trois flûtes de bambou ouvrit soudainement les yeux pour observer attentivement Wang Lin. Il hocha la tête sans dire un mot. La femme en robe de palais sourit davantage, tandis que le vieil homme en noir changea subtilement son regard.
 
-Ces trois-là possédaient des niveaux de culture élevés ; étant au stade avancé du Nirvana Scryer, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
+Ces trois-là possédaient des niveaux de cultivation élevés ; étant au stade avancé du Nirvana Scryer, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
 
-Cette explosion de puissance n'était pas uniquement composée d'énergie originelle ; elle contenait aussi une trace de Loi. Les trois comprirent immédiatement ce point et accordèrent plus d'importance à Wang Lin. Bien que sa culture fût inférieure à la leur, ils le considéraient désormais comme un égal.
+Cette explosion de puissance n'était pas uniquement composée d'énergie originelle ; elle contenait aussi une trace de Loi. Les trois comprirent immédiatement ce point et accordèrent plus d'importance à Wang Lin. Bien que sa cultivation fût inférieure à la leur, ils le considéraient désormais comme un égal.
 
 Après tout, peu de cultivateurs au stade Nirvana Scryer parvenaient à comprendre les Lois.
 
-Dans le monde de la culture, la force est souveraine. Pour obtenir la reconnaissance d'autrui, il faut atteindre leur niveau !
+Dans le monde de la cultivation, la force est souveraine. Pour obtenir la reconnaissance d'autrui, il faut atteindre leur niveau !
 
 Debout aux côtés de Li Yunzi, Wang Lin dit respectueusement : « Xu Mu salue l'Aîné Li Yunzi. »
 

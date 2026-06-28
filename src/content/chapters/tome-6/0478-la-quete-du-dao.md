@@ -24,7 +24,7 @@ Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une
 
 L'expression de Wang Lin devint très sérieuse. Il ne répondit pas immédiatement, mais demanda : « Quelles sont ces trois épreuves ? »
 
-« La première est l'épreuve Humaine ; elle teste ton cœur de Dao. La deuxième est l'épreuve Terrestre ; elle teste ta culture. La troisième est l'épreuve Céleste ; elle teste ton domaine. Ce n'est qu'en surmontant ces trois épreuves que tu pourras entrer dans le Sect de la Destinée Céleste. Oses-tu ? » La voix demeurait aussi neutre que devant, sans la moindre trace d'agacement.
+« La première est l'épreuve Humaine ; elle teste ton cœur de Dao. La deuxième est l'épreuve Terrestre ; elle teste ta cultivation. La troisième est l'épreuve Céleste ; elle teste ton domaine. Ce n'est qu'en surmontant ces trois épreuves que tu pourras entrer dans le Sect de la Destinée Céleste. Oses-tu ? » La voix demeurait aussi neutre que devant, sans la moindre trace d'agacement.
 
 Une fois la parole achevée, des dizaines de milliers de rayons de lumière convergèrent pour former un anneau ovale devant Wang Lin.
 
@@ -40,7 +40,7 @@ Deux personnes se tenaient respectueusement derrière lui, semblant avoir enviro
 
 L'homme souriant s'adressa au vieil homme : « Maître, cet homme n'est qu'un disciple honoraire ; pourquoi lui imposer ces trois épreuves ? »
 
-Les yeux du vieil homme, semblables à des éclairs fixés sur l'horizon, répondirent lentement : « Je l'ai accepté comme disciple sur un coup de tête, scellant ainsi le karma entre maître et disciple. En seulement cent ans, sa culture a déjà atteint ce stade. Il n'est pas ordinaire ! »
+Les yeux du vieil homme, semblables à des éclairs fixés sur l'horizon, répondirent lentement : « Je l'ai accepté comme disciple sur un coup de tête, scellant ainsi le karma entre maître et disciple. En seulement cent ans, sa cultivation a déjà atteint ce stade. Il n'est pas ordinaire ! »
 
 L'homme au regard doux sourit légèrement : « Attirer l'attention du Maître est sa fortune. »
 

@@ -32,7 +32,7 @@ Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies, ses 
 
 Il ignorait combien de temps s'était écoulé ; cela sembla durer une éternité, ou peut-être seulement un instant. Wang Lin ouvrit les yeux et, en levant le regard, il vit le pied issu du sort de Gu Dao. Celui-ci semblait avoir perdu sa capacité à l'entraver alors qu'il descendait.
 
-À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
+À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de cultivation surpassait toutes les existences du Continent Astral Immortel.
 
 Même si l'Ancêtre Céleste et l'Ancêtre Antique étaient présents, il serait digne de les affronter.
 
@@ -80,7 +80,7 @@ De l'autre côté du mur de mer, les quatre Grands Empereurs du clan Céleste r�
 
 « Ce ne devrait pas être lui... » songea Dao Yi.
 
-« Il a combattu Gu Dao et laissé derrière lui un champ de bataille aussi terrifiant. Si j'avais été témoin de cet affrontement, cela aurait grandement favorisé ma culture... » soupira également Ji Du. Il doutait de l'identité de l'adversaire de Gu Dao. Était-ce vraiment... Wang Lin ?
+« Il a combattu Gu Dao et laissé derrière lui un champ de bataille aussi terrifiant. Si j'avais été témoin de cet affrontement, cela aurait grandement favorisé ma cultivation... » soupira également Ji Du. Il doutait de l'identité de l'adversaire de Gu Dao. Était-ce vraiment... Wang Lin ?
 
 Wu Feng observa le champ de bataille avec une expression complexe. Les lois du monde ici s'étaient effondrées et étaient plongées dans un chaos total. Il était impossible d'y voir clair ou d'en tirer la moindre leçon.
 
@@ -110,7 +110,7 @@ Une fois Ji Du achevé, Wu Feng réfléchit un instant avant de répondre : « C
 
 Dao Yi hésita un moment en regardant Ji Du et Wu Feng avant de hocher la tête. Quant à Gemini, elle réfléchit brièvement et accepta.
 
-Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. À leur niveau de culture, leurs paroles étaient crédibles.
+Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. À leur niveau de cultivation, leurs paroles étaient crédibles.
 
 Les trois possédaient aussi leurs propres méthodes ; ils n'avaient donc pas peur que Ji Du les trompe.
 

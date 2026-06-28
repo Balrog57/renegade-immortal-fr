@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 386 - Second encounter with Liu Mei
 slug: deuxieme-rencontre-avec-liu-mei
 ---
-Au cours de ces trois mois de culture en isolement, grâce à l'aide du filon spirituel, Wang Lin avait réussi à franchir le stade de l'Âme Naissante. Il ne lui restait plus qu'à reformer son âme originelle pour que son niveau de culture revienne au stade de la Formation de l'Âme.
+Au cours de ces trois mois de cultivation en isolement, grâce à l'aide du filon spirituel, Wang Lin avait réussi à franchir le stade de l'Âme Naissante. Il ne lui restait plus qu'à reformer son âme originelle pour que son niveau de cultivation revienne au stade de la Formation de l'Âme.
 
 Il ne restait que trois marques de thé sur son visage et le sceau de Sun Tai était sur le point de se briser.
 
@@ -34,7 +34,7 @@ Il n'y avait qu'une seule exigence pour l'âme principale : elle devait être pl
 
 Tout en étudiant le drapeau spirituel, Wang Lin pensa au Qilin qui se trouvait profondément sous le secte. Cette bête devait être l'âme principale de ce drapeau doré.
 
-Wang Lin avait collecté une grande quantité de fragments d'âme au cours de ces trois mois de culture. Pour une raison quelconque, ces fragments s'étaient rassemblés à l'intérieur du filon spirituel. Lorsque Wang Lin avait inspecté le filon pour la première fois, ils n'y étaient pas. Quelqu'un les avait clairement collectés juste avant son inspection.
+Wang Lin avait collecté une grande quantité de fragments d'âme au cours de ces trois mois de cultivation. Pour une raison quelconque, ces fragments s'étaient rassemblés à l'intérieur du filon spirituel. Lorsque Wang Lin avait inspecté le filon pour la première fois, ils n'y étaient pas. Quelqu'un les avait clairement collectés juste avant son inspection.
 
 En collectant ces fragments, il comprit où tous les restes d'âmes du filon spirituel finissaient : ils étaient tous absorbés par le drapeau spirituel situé sous le secte.
 
@@ -50,7 +50,7 @@ Quant au vortex d'âme, c'était l'une des trois techniques du manuel. Les trois
 
 La condensation était plutôt simple. Bien qu'il n'y ait que dix jades au Sommet de l'Affinement des Âmes, beaucoup en avaient fait des copies pour les vendre. Cette technique reposait sur l'affinement de l'âme. Elle permettait de donner forme à un fragment d'âme éthéré et de le placer dans un drapeau spirituel.
 
-Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement des Âmes. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
+Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement des Âmes. Elle exigeait au moins un niveau de cultivation Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
 
 La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau spirituel. C'était l'une des raisons pour lesquelles le Secte de l'Affinement des Âmes comptait si peu de disciples tout en étant aussi puissant. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
 
@@ -72,7 +72,7 @@ Xu Yun afficha une expression suppliante et dit :
 
 Wang Lin ne répondit pas, mais son regard devint glacial. Le cœur de Xu Yun trembla sous cette pression.
 
-Liu Wei, déjà timide, ne put plus contenir ses émotions et se mit à pleurer. Elle était pourtant très talentueuse ; elle avait atteint le stade intermédiaire de la Formation du Noyau relativement vite. Puis, lors d'une compétition entre disciples extérieurs, elle s'était donnée à fond pour devenir une disciple interne. Mais après son entrée dans la secte interne, la réalité fut bien différente de ses attentes. La secte interne était un lieu où les forts dévoraient les faibles ; cela n'avait rien à voir avec l'image qu'elle se faisait d'une secte de culture.
+Liu Wei, déjà timide, ne put plus contenir ses émotions et se mit à pleurer. Elle était pourtant très talentueuse ; elle avait atteint le stade intermédiaire de la Formation du Noyau relativement vite. Puis, lors d'une compétition entre disciples extérieurs, elle s'était donnée à fond pour devenir une disciple interne. Mais après son entrée dans la secte interne, la réalité fut bien différente de ses attentes. La secte interne était un lieu où les forts dévoraient les faibles ; cela n'avait rien à voir avec l'image qu'elle se faisait d'une secte de cultivation.
 
 Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quand il leva soudainement la tête pour fixer le ciel. Une silhouette verte, semblable à une fée, descendit des cieux et atterrit à cent pieds de lui.
 
@@ -80,7 +80,7 @@ Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quan
 
 Liu Mei esquissa un léger sourire et dit :
 
-— Le frère Qing Mu a recouvré la majeure partie de sa culture. Cela mérite d'être célébré.
+— Le frère Qing Mu a recouvré la majeure partie de sa cultivation. Cela mérite d'être célébré.
 
 À l'instant même où elle parla, Wang Lin pointa le doigt vers l'air, provoquant l'évanouissement immédiat de Xu Yun et Liu Wei.
 

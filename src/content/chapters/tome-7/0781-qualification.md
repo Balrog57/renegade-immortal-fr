@@ -72,7 +72,7 @@ Wang Lin se déplaça avec une célérité extrême pour charger directement ver
 
 Sa main droite vacilla et une onde d'impact puissante s'élança. Wang Lin recula immédiatement et agita sa main droite. La collision de leurs énergies originelles provoqua un fracas assourdissant qui se propagea à travers tout le fragment.
 
-L'homme en robe noire avait le regard glacial. Il avait depuis longtemps remarqué que le niveau de culture de Wang Lin était identique au sien : le stade Corporel Yang. À cet instant, il fit un pas en avant, forma un sceau de la main droite et murmura une incantation. Une force colossale descendit soudainement du ciel.
+L'homme en robe noire avait le regard glacial. Il avait depuis longtemps remarqué que le niveau de cultivation de Wang Lin était identique au sien : le stade Corporel Yang. À cet instant, il fit un pas en avant, forma un sceau de la main droite et murmura une incantation. Une force colossale descendit soudainement du ciel.
 
 Peu après, un éclair de tonnerre céleste surgit des cieux et fondit sur Wang Lin.
 
@@ -100,7 +100,7 @@ Les trois restants étaient également au stade Corporel Yang. Désormais, quatr
 
 Le regard de Wang Lin devint glacial et il déclara lentement : « Le Pavillon des Collections n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra ! »
 
-L'un d'eux répondit froidement : « À moins d'atteindre le stade Nirvana Scryer, aucun étranger n'est qualifié pour entrer dans le pavillon ! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son adversité.
+L'un d'eux répondit froidement : « À moins d'atteindre le stade Nirvana Scryer, aucun étranger n'est qualifié pour entrer dans le pavillon ! » Ils avaient naturellement perçu le niveau de cultivation de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son adversité.
 
 À ce moment-là, l'aura de l'homme en robe noire se stabilisa. Il lâcha un ricanement froid, s'avança et frappa son sac de rangement. Une épée volante rouge en jaillit aussitôt et, d'un geste du doigt, elle fonça vers Wang Lin.
 

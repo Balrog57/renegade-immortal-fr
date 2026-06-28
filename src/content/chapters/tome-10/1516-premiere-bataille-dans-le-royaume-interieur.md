@@ -108,11 +108,11 @@ Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvena
 
 « Pour les trois premiers, s'ils sont des cultivateurs du troisième pas, ils recevront chacun dix esprits taoïstes de rang 3 ! S'ils ne le sont pas, ils deviendront les disciples du Souverain ! »
 
-« Conformément à l'accord antique, le premier classé pourra devenir le partenaire de culture de la princesse céleste et sera nommé Souverain Céleste ! »
+« Conformément à l'accord antique, le premier classé pourra devenir le partenaire de cultivation de la princesse céleste et sera nommé Souverain Céleste ! »
 
 Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant une soif de sang impitoyable. Des rugissements sourds éclatèrent au sein de chaque clan, faisant trembler l'univers ! Pour ce Système Stellaire antique dispersé composé d'innombrables clans, la seule raison de combattre était le pillage !
 
-Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de culture ! Pillez ! Pillez ! Pillez !
+Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de cultivation ! Pillez ! Pillez ! Pillez !
 
 « Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan Lunaire et tué d'innombrables cultivateurs du Royaume Extérieur ! »
 
@@ -126,7 +126,7 @@ Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette
 
 Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir ! C'était Maître Enlighten East ! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade de l'Espace Arcane !
 
-À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation ! L'estimable Nan Zhao ! Bien que son niveau de culture ne fût pas aussi élevé que celui de Great Desolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre !
+À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation ! L'estimable Nan Zhao ! Bien que son niveau de cultivation ne fût pas aussi élevé que celui de Great Desolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre !
 
 Près d'eux se trouvait l'ancêtre lugubre du Clan de l'Hirondelle de Feu, fixant la formation avec une soif de sang démente !
 

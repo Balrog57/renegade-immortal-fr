@@ -8,13 +8,13 @@ slug: ebranler-tout-le-continent-astral-immortel
 ---
 Au plus profond de la mer, l'expression de Miao Yin était féroce, mais ses pupilles se contractèrent et ses yeux se remplirent de terreur.
 
-« Vous avez déjà tué mon avatar et pris son âme. Notre rancune aurait dû s'éteindre, alors pourquoi êtes-vous ici pour me tuer ?! Il est difficile pour des cultivateurs comme nous d'atteindre un tel niveau de culture. Si vous me traitez ainsi aujourd'hui, quelqu'un fera de même avec vous dans le futur ! »
+« Vous avez déjà tué mon avatar et pris son âme. Notre rancune aurait dû s'éteindre, alors pourquoi êtes-vous ici pour me tuer ?! Il est difficile pour des cultivateurs comme nous d'atteindre un tel niveau de cultivation. Si vous me traitez ainsi aujourd'hui, quelqu'un fera de même avec vous dans le futur ! »
 
 La voix du Maître Dao Miao Yin était perçante et résonna depuis les abysses. Le son se propagea sur l'océan doré, déclenchant une vague gigantesque. Un immense vortex se forma et se précipita vers Miao Yin.
 
 À cet instant, Wang Lin trônait dans le ciel tandis que Miao Yin se trouvait sous la mer. Bien qu'un vortex les séparât, ils pouvaient clairement se voir.
 
-Miao Yin ne chercha pas à fuir comme Neuf Cieux. Il savait que son niveau de culture avait trop chuté et qu'il n'avait aucune chance d'échapper à Wang Lin.
+Miao Yin ne chercha pas à fuir comme Neuf Cieux. Il savait que son niveau de cultivation avait trop chuté et qu'il n'avait aucune chance d'échapper à Wang Lin.
 
 « Je ne vais pas te tuer aujourd'hui. Je suis simplement venu t'envoyer vers la réincarnation ! » Wang Lin regarda Miao Yin, prisonnier du vortex. Il leva la main et fit un geste décontracté vers lui.
 
@@ -46,9 +46,9 @@ Le Maître Ciel Dieu Vide demeurait ici. Il avait renoncé à entrer dans le Roy
 
 Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur extrême envers Wang Lin lui nouait le cœur.
 
-À cet instant, il était assis sur un rocher, en pleine culture. Il absorbait la puissance des étoiles pour nourrir son corps tout en ressentant les changements de son environnement. Si personne ne le dérangeait, il pourrait rester ainsi pendant des millénaires.
+À cet instant, il était assis sur un rocher, en pleine cultivation. Il absorbait la puissance des étoiles pour nourrir son corps tout en ressentant les changements de son environnement. Si personne ne le dérangeait, il pourrait rester ainsi pendant des millénaires.
 
-Jusqu'à ce que sa culture soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour ébranler le monde des grottes ! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
+Jusqu'à ce que sa cultivation soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour ébranler le monde des grottes ! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
 
 En vérité, même si quelqu'un venait le troubler, le Maître Ciel Dieu Vide s'en moquait, tant que cette personne n'était pas Wang Lin.
 
@@ -102,7 +102,7 @@ Un instant plus tard, Wang Lin quitta le clan Cang Meng. Nul ne sut qu'il était
 
 Plus d'une douzaine de Feuilles Anciennes apparurent pour former un vortex. Elles s'élancèrent vers le clan, scellant le système stellaire et l'intégralité du clan !
 
-« Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur culture ne pourra jamais dépasser le stade de Briseur de Nirvana ! Ils n'auront plus jamais le droit de fouler les étoiles ! » Wang Lin agita sa manche et s'éloigna.
+« Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur cultivation ne pourra jamais dépasser le stade de Briseur de Nirvana ! Ils n'auront plus jamais le droit de fouler les étoiles ! » Wang Lin agita sa manche et s'éloigna.
 
 Tandis qu'il avançait, tous les clans possédant un cultivateur de la troisième étape subirent le même sort dans le Système d'Étoiles Anciennes. Les maîtres de la troisième étape furent contraints à la réincarnation et leurs clans furent scellés.
 

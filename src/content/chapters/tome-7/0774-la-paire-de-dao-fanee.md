@@ -14,7 +14,7 @@ Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à
 
 « L'Ancêtre Sanguin appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout le Dieu Sanguin de cette lignée... » Le regard de Wang Lin devint glacial.
 
-« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma culture, alors ajouter un Dieu Sanguin ne change pas grand-chose ! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
+« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma cultivation, alors ajouter un Dieu Sanguin ne change pas grand-chose ! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
 
 De plus, puisqu'il avait déjà offensé l'Ancêtre Sanguin, il prit une décision.
 
@@ -96,7 +96,7 @@ Après réflexion, Wang Lin frappa son propre sac de rangement et l'autre talism
 
 « Qu'est-ce que c'est exactement... » Le sens divin de Wang Lin se déploya pour scanner les deux talismans. Ses yeux se plissèrent lorsqu'il nota de faibles fluctuations d'énergie originelle émanant d'eux.
 
-Avec son niveau de culture précédent, il n'aurait pas pu les remarquer.
+Avec son niveau de cultivation précédent, il n'aurait pas pu les remarquer.
 
 « Intéressant. Cet objet pourrait-il lui aussi être un trésor ?! » Wang Lin réfléchit silencieusement avant de ranger les talismans. Il avait le pressentiment qu'ils n'étaient pas ordinaires.
 
@@ -138,9 +138,9 @@ Li Yuan acquiesça et rangea les épées. Il ramassa le sac et le scanna du sens
 
 Wang Lin l'accepta avec un sourire et le rangea dans son sac.
 
-Li Yuan hésita et demanda : « Je ne peux plus percevoir la culture de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été neutralisé par l'espace de stockage ? »
+Li Yuan hésita et demanda : « Je ne peux plus percevoir la cultivation de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été neutralisé par l'espace de stockage ? »
 
-« Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de culture de Wang Lin était liée à l'Ancêtre Sanguin.
+« Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de cultivation de Wang Lin était liée à l'Ancêtre Sanguin.
 
 Wang Lin regarda Li Yuan et sourit : « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour traquer tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions ? »
 

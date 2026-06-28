@@ -12,7 +12,7 @@ Dans le néant, les cheveux noirs de Wang Lin flottaient sans qu'aucun vent ne l
 
 Wang Ping n'était pas le seul à avoir traversé un cycle de réincarnation ; Wang Lin lui-même l'avait fait.
 
-Sa culture avait franchi le stade initial de l'Ascendant pour atteindre le stade intermédiaire. Son domaine avait également progressé jusqu'au stade avancé de l'Ascendant au cours de ce cycle de réincarnation.
+Sa cultivation avait franchi le stade initial de l'Ascendant pour atteindre le stade intermédiaire. Son domaine avait également progressé jusqu'au stade avancé de l'Ascendant au cours de ce cycle de réincarnation.
 
 Avec suffisamment de jades célestes, Wang Lin était confiant de pouvoir devenir un véritable puissant au stade avancé de l'Ascendant !
 
@@ -20,7 +20,7 @@ Avec suffisamment de jades célestes, Wang Lin était confiant de pouvoir deveni
 
 Wang Lin commença à réfléchir.
 
-« La différence entre la première et la deuxième étape est en effet un gouffre qui ne peut être franchi aisément. Même si ma culture atteint le stade avancé de l'Ascendant, sans énergie originelle, je ne ferai pas le poids face aux cultivateurs du Yin et du Yang ! Mais comment puis-je obtenir de l'énergie originelle... »
+« La différence entre la première et la deuxième étape est en effet un gouffre qui ne peut être franchi aisément. Même si ma cultivation atteint le stade avancé de l'Ascendant, sans énergie originelle, je ne ferai pas le poids face aux cultivateurs du Yin et du Yang ! Mais comment puis-je obtenir de l'énergie originelle... »
 
 Wang Lin s'élança dans le vide et traversa rapidement l'atmosphère, fonçant parmi les étoiles vers la marionnette céleste et la Bête du Tonnerre. Derrière lui, la Bête du Tonnerre du Temple Céleste du Tonnerre le suivait toujours, tout en maintenant une certaine distance.
 
@@ -36,7 +36,7 @@ Peu de temps après, le regard de Wang Lin se glaça alors qu'il entendait des b
 
 À ses côtés se trouvait la Bête du Tonnerre dont le troisième sceau avait été levé. Elle poussait des rugissements et chargeait avec frénésie, sa corne dégageant de puissants éclairs. Cela forçait le Daoïste du Tonnerre à esquiver sans relâche, rendant son visage pâle et empreint de désespoir.
 
-Le Daoïste du Tonnerre vit la lumière argentée approcher au loin ; lorsqu'il réalisa qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel ! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée !
+Le Daoïste du Tonnerre vit la lumière argentée approcher au loin ; lorsqu'il réalisa qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de cultivation chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel ! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée !
 
 Le regard de Wang Lin était glacial. Il devait tuer ce Daoïste du Tonnerre ! Cet homme était un messager du Temple Céleste du Tonnerre. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
 
@@ -74,7 +74,7 @@ Les pupilles du Daoïste du Tonnerre se contractèrent ; son visage pâlit et so
 
 « Xu Mu !!! Ne me force pas ! Tous les messagers du Temple Céleste du Tonnerre possèdent un sort de préservation de la vie. Au pire, je sacrifierai ma propre durée de vie ! » Les yeux du Daoïste du Tonnerre étaient injectés de sang alors qu'il fixait Wang Lin.
 
-Il ressentait une amertume profonde. Utiliser ce sort ne serait pas un problème s'il disposait de suffisamment d'énergie originelle, mais sans elle, cela consumerait sa longévité. Dans ce cas, non seulement sa vie serait raccourcie, mais sa culture chuterait au stade de la Transformation de l'Âme à cause de l'épuisement de son énergie originelle.
+Il ressentait une amertume profonde. Utiliser ce sort ne serait pas un problème s'il disposait de suffisamment d'énergie originelle, mais sans elle, cela consumerait sa longévité. Dans ce cas, non seulement sa vie serait raccourcie, mais sa cultivation chuterait au stade de la Transformation de l'Âme à cause de l'épuisement de son énergie originelle.
 
 Surtout, il n'avait aucune certitude pouvoir blesser Wang Lin avec ce trésor de survie. Ces deux rayons d'énergie d'épée l'effrayaient au plus haut point et lui glaçaient le sang. Une fois ce sort utilisé, il craignait que la seule issue ne soit encore la mort.
 
@@ -86,7 +86,7 @@ Wang Lin fixa le Daoïste à travers la barrière. Il réfléchit un instant ava
 
 Le Daoïste du Tonnerre hésita. À cet instant, la barrière autour de lui tremblait violemment sous les assauts extérieurs et était sur le point de s'effondrer. Il serra les dents et finit par dire : « D'accord, ce vieil homme accepte ! »
 
-Son cœur devint machiavélique : *La culture de cet homme n'est pas supérieure à la mienne. Même s'il marque ce vieil homme comme son esclave, cela ne durera pas longtemps. Une fois ma culture rétablie, je m'enfuirai et le dénoncerai au Temple Céleste du Tonnerre. Ils enverront alors des gens pour l'éliminer afin de venger mon affront !*
+Son cœur devint machiavélique : *La cultivation de cet homme n'est pas supérieure à la mienne. Même s'il marque ce vieil homme comme son esclave, cela ne durera pas longtemps. Une fois ma cultivation rétablie, je m'enfuirai et le dénoncerai au Temple Céleste du Tonnerre. Ils enverront alors des gens pour l'éliminer afin de venger mon affront !*
 
 Wang Lin dit lentement : « Ouvre la barrière ! »
 

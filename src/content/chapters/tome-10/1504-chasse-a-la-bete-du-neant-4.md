@@ -62,11 +62,11 @@ Sept couleurs, sept couleurs !!
 
 La lumière aux sept couleurs clignota rapidement et devint encore plus puissante. Des phantoms commencèrent à flotter hors de la gueule de la Bête du Néant !
 
-« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Attends le chemin de la culture... » Un murmure émana des phantoms qui flottaient hors de la gueule de la Bête du Néant.
+« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Attends le chemin de la cultivation... » Un murmure émana des phantoms qui flottaient hors de la gueule de la Bête du Néant.
 
-« Éveillé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la culture... »
+« Éveillé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la cultivation... »
 
-« Éveillé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête du Néant, finissant par encercler toute la zone !
+« Éveillé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la cultivation... » De plus en plus de silhouettes apparurent autour de la Bête du Néant, finissant par encercler toute la zone !
 
 « Les Éveillés !!! » Les yeux de Wang Lin s'illuminèrent et il comprit vaguement quelque chose.
 

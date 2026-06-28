@@ -8,7 +8,7 @@ slug: son-identite
 ---
 Chapitre 1722 - Son identité !!
 
-L'image qui apparut cette fois-ci était une planète de culture. Wang Lin connaissait bien cette planète : c'était la planète Tian Yun !
+L'image qui apparut cette fois-ci était une planète de cultivation. Wang Lin connaissait bien cette planète : c'était la planète Tian Yun !
 
 Le Tout-Voyant se trouvait dans une pièce secrète dissimulée au sein de la Secte Tian Yun. Devant lui siégeaient neuf jeunes gens, tous inconscients.
 
@@ -24,17 +24,17 @@ Wang Lin observait tout cela avec une expression calme, mais une vague de troubl
 
 L'image changea une fois de plus, montrant le Tout-Voyant à différentes époques. Jusqu'à ce qu'il voie, à un moment donné, le Tout-Voyant assis au-dessus d'une planète abandonnée. Après avoir dévoré le cultivateur qu'il avait sélectionné, il s'était éveillé une fois de plus.
 
-Il quittait la planète et, alors qu'il volait dans les airs, il s'arrêta soudainement. Il regarda en bas et aperçut une planète de culture terne, jaunâtre et à moitié abandonnée.
+Il quittait la planète et, alors qu'il volait dans les airs, il s'arrêta soudainement. Il regarda en bas et aperçut une planète de cultivation terne, jaunâtre et à moitié abandonnée.
 
 Il laissa échapper un léger murmure et un sourire se dessina progressivement sur son visage. Il projeta lentement son Sens Divin.
 
-« Il est rare de voir une compréhension aussi profonde sur une planète aussi délabrée. Cependant, avec votre simple niveau de culture d'Âme Naissante, vous ne devriez pas être trop gourmand dans votre quête de la Formation de l'Âme. Si vous persistez ainsi, je crains que même après des millions d'années, vous ne trouviez toujours pas la source. À ce moment-là, votre corps aura complètement décomposé. Y avez-vous pensé ? » Tout en parlant, le Tout-Voyant leva la main droite et exerça une pression vers le bas sur la planète moribonde.
+« Il est rare de voir une compréhension aussi profonde sur une planète aussi délabrée. Cependant, avec votre simple niveau de cultivation d'Âme Naissante, vous ne devriez pas être trop gourmand dans votre quête de la Formation de l'Âme. Si vous persistez ainsi, je crains que même après des millions d'années, vous ne trouviez toujours pas la source. À ce moment-là, votre corps aura complètement décomposé. Y avez-vous pensé ? » Tout en parlant, le Tout-Voyant leva la main droite et exerça une pression vers le bas sur la planète moribonde.
 
 « Le nom de ce vieil homme est le Tout-Voyant. Aujourd'hui, je vous témoigne ma bonne volonté. Si vous parvenez à quitter cette planète abandonnée pour venir me trouver sur la planète Tian Yun, je vous accepterai comme disciple nommé pour cent ans ! »
 
 Le sourire du Tout-Voyant s'élargit davantage. D'un revers de manche, il s'éloigna dans le lointain.
 
-« Cet enfant n'est pas mauvais. Je peux l'élever un peu afin qu'il soit dévoré par mon avatar. Cependant, son niveau de culture est trop bas ; il est difficile de dire s'il pourra être utile ou non... Pourtant, j'ai le sentiment que cet enfant sera extraordinaire ! »
+« Cet enfant n'est pas mauvais. Je peux l'élever un peu afin qu'il soit dévoré par mon avatar. Cependant, son niveau de cultivation est trop bas ; il est difficile de dire s'il pourra être utile ou non... Pourtant, j'ai le sentiment que cet enfant sera extraordinaire ! »
 
 En voyant cela, l'esprit de Wang Lin trembla violemment. Il fixa la planète terne et jaune, comme si son esprit était bombardé. L'aura émanant de cette planète fit tout comprendre à Wang Lin !
 
@@ -52,13 +52,13 @@ Tandis que les trois mille âmes fonçaient sur l'avatar de Wang Lin, son corps 
 
 L'individu que Wang Lin observait était devenu totalement différent du Tout-Voyant, comme s'il s'agissait d'une autre personne. S'il n'avait pas verrouillé l'aura, il n'aurait jamais cru que tous ces individus disparates étaient le Tout-Voyant !
 
-Dans l'ancien monde de la culture, avant l'effondrement des quatre Royaumes Célestes, un homme d'âge moyen vêtu de bleu flottait au-dessus d'une planète. Avec un sourire, il dévora un jeune homme inconscient qui se trouvait devant lui.
+Dans l'ancien monde de la cultivation, avant l'effondrement des quatre Royaumes Célestes, un homme d'âge moyen vêtu de bleu flottait au-dessus d'une planète. Avec un sourire, il dévora un jeune homme inconscient qui se trouvait devant lui.
 
 Ce jeune homme était son unique disciple !
 
 « C'est mon 34e éveil... »
 
-Également dans l'ancien monde de la culture, parmi les fragments dispersés, une femme charmante flottait dans l'espace. Elle sourit et dévora un homme inconscient à ses côtés. Le niveau de culture de cet homme était élevé ; il était imprégné d'énergie céleste et provenait manifestement des quatre Royaumes Célestes.
+Également dans l'ancien monde de la cultivation, parmi les fragments dispersés, une femme charmante flottait dans l'espace. Elle sourit et dévora un homme inconscient à ses côtés. Le niveau de cultivation de cet homme était élevé ; il était imprégné d'énergie céleste et provenait manifestement des quatre Royaumes Célestes.
 
 Les dévorations répétées, parfois multiples, parfois uniques, furent toutes perçues par Wang Lin. Ce qu'il vit le stupéfia !
 
@@ -70,7 +70,7 @@ L'expression de l'avatar de Wang Lin restait calme ; il demeurait assis là, com
 
 À ce moment précis, les âmes des trois autres systèmes stellaires arrivèrent rapidement. Tout cela se produisit à une vitesse fulgurante, mais du point de vue du corps original de Wang Lin, chaque mouvement semblait d'une lenteur extrême.
 
-Le corps original de Wang Lin vit les éveils du Tout-Voyant se succéder encore et encore, jusqu'au troisième éveil. Ce n'était plus l'époque de la culture ancienne, mais celle de la culture immémoriale !
+Le corps original de Wang Lin vit les éveils du Tout-Voyant se succéder encore et encore, jusqu'au troisième éveil. Ce n'était plus l'époque de la cultivation ancienne, mais celle de la cultivation immémoriale !
 
 Le système stellaire de l'ère immémoriale était foisonnant de planètes. Il y avait là des cultivateurs et non des êtres célestes, car les Royaumes Célestes n'existaient pas encore. Ils cultivaient l'aura du monde.
 
@@ -94,7 +94,7 @@ Wang Lin fixa le vieil homme souriant, ses pupilles se contractant.
 
 L'image disparut, et lorsqu'elle réapparut, c'était le deuxième éveil du Tout-Voyant !
 
-Cette fois, ce qui apparut devant Wang Lin était un système stellaire étranger. Non seulement ce système était inconnu, mais il ne présentait aucun signe de vie. D'innombrables planètes de culture jonchaient l'espace, mais sans la moindre trace d'existence vivante !
+Cette fois, ce qui apparut devant Wang Lin était un système stellaire étranger. Non seulement ce système était inconnu, mais il ne présentait aucun signe de vie. D'innombrables planètes de cultivation jonchaient l'espace, mais sans la moindre trace d'existence vivante !
 
 C'était un système stellaire mort, ou plutôt, c'était la phase primordiale du monde caverneux avant que la vie ne soit engendrée !
 

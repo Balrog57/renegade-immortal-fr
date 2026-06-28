@@ -40,11 +40,11 @@ En s'approchant du combat impliquant les sept cultivateurs du stade initial de l
 
 « Il est très difficile de tuer des cultivateurs au stade initial de la Tribulation du Vide... Un tel être est presque impossible à abattre... Même avec la Poupée Yi Si, cela ne suffira pas... » Wang Lin savait parfaitement à quel point il était ardu d'éliminer un cultivateur ayant traversé les neuf Tribulations Arcanes pour atteindre le stade de la Tribulation du Vide. Ce n'était pas comparable au meurtre du cultivateur nommé Qian ou de l'homme et de la femme sous les bannières à la Mer des Pilules.
 
-Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bien que cela semble infiniment proche de la Tribulation du Vide, l'écart était trop vaste. Ces deux individus pouvaient vaincre White Tiger et ses compagnons et, dans un environnement spécifique, les pousser à bout. Après tout, le niveau de culture de White Tiger et des autres se situait autour de la septième ou huitième Tribulation Arcane, proche de celui de Du Qing.
+Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bien que cela semble infiniment proche de la Tribulation du Vide, l'écart était trop vaste. Ces deux individus pouvaient vaincre White Tiger et ses compagnons et, dans un environnement spécifique, les pousser à bout. Après tout, le niveau de cultivation de White Tiger et des autres se situait autour de la septième ou huitième Tribulation Arcane, proche de celui de Du Qing.
 
 Dans le monde des cavernes, seuls le Vieux Fantôme Zhan et le Daoïste aux Sept Couleurs atteignaient le stade initial de la Tribulation du Vide. S'ils avaient fusionné avec la troisième âme pour devenir le nouveau Souverain Céleste aux Sept Couleurs, ils auraient atteint le sommet du stade intermédiaire de la Tribulation du Vide.
 
-Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire ; même la Grande Secte de l'Âme ne pourrait supporter un tel coup.
+Avec son niveau de cultivation actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire ; même la Grande Secte de l'Âme ne pourrait supporter un tel coup.
 
 Observant le brouillard tourbillonner devant lui, il regardait les sept combattants engagés dans une lutte acharnée pour leur survie. Il était extrêmement difficile de décider d'un vainqueur ; en réalité, c'était presque impossible. Tant qu'ils restaient prudents, ils ne mourraient pas, au pire seraient-ils blessés.
 
@@ -66,7 +66,7 @@ La bataille chaotique entre les sept continuait sous des grondements tonitruants
 
 Entre deux explosions, Liu Zhiyuang recula sans hésiter. Nul besoin de mots : ses trois compagnons comprirent son intention et bloquèrent les attaques pour lui permettre de consommer des pilules. Après plusieurs heures de lutte, il était inévitable qu'ils doivent restaurer leur énergie céleste sous peine de ne pouvoir poursuivre.
 
-Le visage de Liu Zhiyuang était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des "fours de culture" féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
+Le visage de Liu Zhiyuang était empreint d'une cruauté extrême. Il pratiquait une méthode de double cultivation Yin et Yang qui consistait à condenser les âmes des "fours de cultivation" féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
 
 En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue de trois pouces de haut, à l'aspect misérable. Liu Zhiyuang ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
 

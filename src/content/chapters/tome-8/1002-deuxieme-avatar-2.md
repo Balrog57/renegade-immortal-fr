@@ -38,7 +38,7 @@ Après avoir réfléchi un instant, les yeux de Wang Lin s'illuminèrent ; il fi
 
 « Mon corps original est un dieu antique, mon premier avatar est un cultivateur, et mon deuxième avatar est un démon ancien. Je me demande si je pourrai créer un troisième avatar qui soit un diable ancien ! Le moment venu, lorsqu'ils fusionneront tous… je me demande si je pourrai revenir à l'Ordre Antique ! » Le cœur de Wang Lin battait la chamade alors qu'il regardait le démon ancien qui s'était offert à lui, et il sourit.
 
-Son corps vacilla et il quitta la statue. Son sens divin et sa culture retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
+Son corps vacilla et il quitta la statue. Son sens divin et sa cultivation retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
 
 Il prit une profonde inspiration et s'assit, la main posée sur ses genoux. Puis, il expulsa de l'énergie d'origine essentielle qui enveloppa la statue de pierre avant d'y placer des restrictions.
 
@@ -54,7 +54,7 @@ Puisqu'il ne pouvait pas l'imposer par la force, il devait le raffiner lentement
 
 Toutefois, ce n'était pas une difficulté majeure pour Wang Lin, car ce démon ancien croyait déjà être Wang Lin ; peu de raffinage était donc nécessaire. Tout ce que Wang Lin avait à faire, c'était d'intégrer son sens divin et de s'assurer que le démon ancien sache qui était l'original !
 
-Cela ne fut pas difficile pour lui. Il possédait un niveau de culture supérieur à celui du démon ancien et il était un dieu antique.
+Cela ne fut pas difficile pour lui. Il possédait un niveau de cultivation supérieur à celui du démon ancien et il était un dieu antique.
 
 Néanmoins, Wang Lin resta prudent durant les quelques jours restants. Non seulement il intégra complètement son sens divin au démon ancien, mais il laissa également une empreinte sur le sceau. De plus, il plaça une quantité massive de restrictions à l'intérieur de l'avatar. Si celui-ci venait jamais à se rebeller, Wang Lin pourrait instantanément le soumettre d'une simple pensée.
 

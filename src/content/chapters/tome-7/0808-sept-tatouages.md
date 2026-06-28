@@ -22,7 +22,7 @@ Sous les yeux de Wang Lin, la lumière noire se condensa pour former sept runes 
 
 En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Anti-Dieu :
 
-« Le troisième Char de Guerre Anti-Dieu est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires : l'Aile du Mystère Mystérieux, le Bois de Culture de l'Inframonde et l'Âme du Papillon Céleste !
+« Le troisième Char de Guerre Anti-Dieu est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires : l'Aile du Mystère Mystérieux, le Bois de Cultivation de l'Inframonde et l'Âme du Papillon Céleste !
 
 Je regrette de ne pas avoir pu trouver ces trois éléments. Puisse mon successeur les dénicher et apaiser mes regrets ! Pour que le troisième char reconnaisse son maître, vous devez fusionner avec les sept runes et les raffiner pour en faire votre trésor lié à la vie. Ce n'est qu'à cette condition que sa véritable puissance sera libérée. Autrement, même en fusionnant avec les runes, vous ne pourrez jamais l'utiliser pleinement ! Successeur, choisis toi-même ; choisis avec prudence et discernement... »
 
@@ -34,7 +34,7 @@ Le fragment et les épées que possédait Wang Lin étaient de ce genre.
 
 Toutefois, lorsqu'il s'agit d'un trésor lié à la vie, sa destruction peut avoir des conséquences tragiques : soit l'utilisateur subit de graves blessures et son âme originelle se fragmente, soit, dans les cas les plus critiques, il meurt tout simplement. Malgré ce risque, de nombreux cultivateurs choisissaient pourtant d'affiner des trésors liés à la vie.
 
-C'était parce qu'une fois le lien établi, la puissance du trésor décuplait et sa force croissait proportionnellement au niveau de culture de son détenteur.
+C'était parce qu'une fois le lien établi, la puissance du trésor décuplait et sa force croissait proportionnellement au niveau de cultivation de son détenteur.
 
 Wang Lin avait lu cela dans des chroniques anciennes. Autrefois, un cultivateur utilisait une simple épée volante comme trésor lié à la vie. Au fil de ses progrès, la puissance de l'épée avait augmenté jusqu'à atteindre un degré inimaginable.
 

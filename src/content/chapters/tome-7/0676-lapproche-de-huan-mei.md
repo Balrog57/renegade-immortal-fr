@@ -52,15 +52,15 @@ Alors que les runes continuaient de pleuvoir, presque chaque centimètre du corp
 
 C’était le Dao de l'ancêtre de la famille Huan : le Dao de l'Identité Sans Forme des Dix Mille Illusions !
 
-Il pressa sa paume contre le front de Liu Mei. Le puissant Dao de l'ancêtre pénétra directement l'âme originelle de Liu Mei. Simultanément, son propre esprit céleste se déversa en elle sans retenue pour l'aider à élever son niveau de culture.
+Il pressa sa paume contre le front de Liu Mei. Le puissant Dao de l'ancêtre pénétra directement l'âme originelle de Liu Mei. Simultanément, son propre esprit céleste se déversa en elle sans retenue pour l'aider à élever son niveau de cultivation.
 
 La quantité d'esprit céleste nécessaire pour atteindre le sommet du stade Ascendant était colossale ; aucun cultivateur du premier stade ne pouvait accomplir un tel exploit, pas même ceux du stade Yin et Yang.
 
 Seuls ceux qui avaient véritablement atteint la deuxième étape possédaient ce genre de pouvoir défiant les cieux.
 
-L'ancêtre de la famille Huan était un puissant cultivateur de la deuxième étape ; son niveau de culture était celui du début du stade Nirvana Scryer !
+L'ancêtre de la famille Huan était un puissant cultivateur de la deuxième étape ; son niveau de cultivation était celui du début du stade Nirvana Scryer !
 
-D'immenses quantités d'esprit céleste et d'innombrables fragments de Dao fusionnèrent pour être transférés dans le corps de Liu Mei par l'ancêtre. Ce dernier se souciait manifestement énormément de cette disciple et souhaitait qu'elle reprenne les rênes de la famille Huan ; autrement, il n'aurait pas été prêt à entamer sa propre culture pour l'aider ainsi.
+D'immenses quantités d'esprit céleste et d'innombrables fragments de Dao fusionnèrent pour être transférés dans le corps de Liu Mei par l'ancêtre. Ce dernier se souciait manifestement énormément de cette disciple et souhaitait qu'elle reprenne les rênes de la famille Huan ; autrement, il n'aurait pas été prêt à entamer sa propre cultivation pour l'aider ainsi.
 
 Le corps de Liu Mei trembla, puis toutes les runes de sang environnantes pénétrèrent soudainement son corps pour se transformer en le sang de la lignée Huan. Ce sang circula en elle, expulsant par la même occasion tout son propre sang.
 
@@ -72,7 +72,7 @@ Des regards empreints de jalousie jaillirent des dizaines de milliers de membres
 
 Liu Mei, elle, n'avait mis que moins de la durée d'un bâton d'encens pour accomplir ce qui était l'objectif ultime de tant d'autres.
 
-Le bras de l'ancêtre de la famille Huan s'atrophia et il vieillit instantanément. Il recula de quelques pas, le regard même terni par l'âge. Il regarda Liu Mei et dit doucement : « À partir d'aujourd'hui, tu es un membre de la famille Huan. Le sang des Huan coule dans tes veines. Ton père doit maintenant se consacrer à une culture en méditation fermée. Durant cette période, tu devras t'efforcer d'atteindre le stade Yin et Yang le plus vite possible. »
+Le bras de l'ancêtre de la famille Huan s'atrophia et il vieillit instantanément. Il recula de quelques pas, le regard même terni par l'âge. Il regarda Liu Mei et dit doucement : « À partir d'aujourd'hui, tu es un membre de la famille Huan. Le sang des Huan coule dans tes veines. Ton père doit maintenant se consacrer à une cultivation en méditation fermée. Durant cette période, tu devras t'efforcer d'atteindre le stade Yin et Yang le plus vite possible. »
 
 Liu Mei se retourna et regarda silencieusement l'ancêtre. Elle ne dit mot et se contenta de hocher la tête.
 

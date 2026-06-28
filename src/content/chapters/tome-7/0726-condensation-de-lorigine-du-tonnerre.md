@@ -12,7 +12,7 @@ Wang Lin affichait une expression neutre tout en ressentant l'âme dao de Shengo
 
 Shengong Hu répondit respectueusement : « Il reste dix ans avant que le Royaume Céleste du Tonnerre ne s'ouvre. On pourra alors utiliser le fourneau de tonnerre pour y pénétrer. »
 
-Wang Lin réfléchit un instant. Le Royaume Céleste du Tonnerre l'intéressait vivement. Lorsqu'il était entré dans le Royaume Céleste de la Pluie, il n'avait pu absorber aucun jade céleste ; pourtant, à cet instant, il pouvait en absorber une quantité massive. Ce voyage au Royaume Céleste du Tonnerre permettrait à sa culture d'atteindre son apogée.
+Wang Lin réfléchit un instant. Le Royaume Céleste du Tonnerre l'intéressait vivement. Lorsqu'il était entré dans le Royaume Céleste de la Pluie, il n'avait pu absorber aucun jade céleste ; pourtant, à cet instant, il pouvait en absorber une quantité massive. Ce voyage au Royaume Céleste du Tonnerre permettrait à sa cultivation d'atteindre son apogée.
 
 « Le Royaume Céleste est brisé. Quelles sont les restrictions pour y entrer ? » Les yeux de Wang Lin brillèrent alors qu'il fixait Shengong Hu.
 
@@ -22,19 +22,19 @@ Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme : « Ce vie
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Aîné, le Royaume Céleste du Tonnerre de mon Système Stellaire d'Allheaven n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Nirvana Scryer. »
+« Aîné, le Royaume Céleste du Tonnerre de mon Système Stellaire d'Allheaven n'est pas trop gravement endommagé. La limite de cultivation est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Nirvana Scryer. »
 
 Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie ; après tout, il y avait des éons, les Royaumes Célestes de la Pluie et du Tonnerre étaient tous deux des passages vers l'ancien Royaume Céleste.
 
 Après avoir recueilli ces informations, Wang Lin regarda calmement Shengong Hu et dit : « Peu importe. Tu peux rester ici pour cultiver, mais ne dérange pas ce vieil homme ! »
 
-Shengong Hu acquiesça rapidement. Il était venu ici dans le dessein de cultiver, mais il était désormais gravement blessé et son niveau de culture avait chuté. Il lui serait difficile de trouver un meilleur endroit en seulement dix ans. De plus, la guérison de ses blessures prendrait énormément de temps ; il est possible qu'il ne parvienne à se rétablir qu'au moment de l'ouverture du Royaume Céleste du Tonnerre.
+Shengong Hu acquiesça rapidement. Il était venu ici dans le dessein de cultiver, mais il était désormais gravement blessé et son niveau de cultivation avait chuté. Il lui serait difficile de trouver un meilleur endroit en seulement dix ans. De plus, la guérison de ses blessures prendrait énormément de temps ; il est possible qu'il ne parvienne à se rétablir qu'au moment de l'ouverture du Royaume Céleste du Tonnerre.
 
 Une fois l'autorisation accordée par Wang Lin, il ressentit immédiatement une profonde gratitude. En vérité, il n'aurait pas dû éprouver un tel sentiment, mais son cœur avait déjà, inconsciemment, capitulé. Il était totalement subjugué par le regard de Wang Lin.
 
 Wang Lin détourna les yeux et ne prêta plus attention à Shengong Hu. Il se retourna et s'avança vers les profondeurs du lac de tonnerre.
 
-Au début, Shengong Hu ne remarqua rien, mais il finit par soupirer. C'était bel et bien un être doté d'un niveau de culture supérieur, et son tonnerre n'avait rien d'ordinaire. Avec sa propre culture, il ne pouvait progresser que de cinquante pas avant d'être stoppé.
+Au début, Shengong Hu ne remarqua rien, mais il finit par soupirer. C'était bel et bien un être doté d'un niveau de cultivation supérieur, et son tonnerre n'avait rien d'ordinaire. Avec sa propre cultivation, il ne pouvait progresser que de cinquante pas avant d'être stoppé.
 
 Pourtant, en suivant Wang Lin du regard, il le vit marcher cent pas dans le lac de tonnerre avant de s'asseoir.
 
@@ -60,7 +60,7 @@ Au fil du temps, d'immenses quantités de tonnerre convergèrent de toutes les d
 
 Une sensation de bien-être profond émana peu à peu du corps de Wang Lin.
 
-Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie d'origine que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage de la coupure céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
+Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie d'origine que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage de la coupure céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de cultivation.
 
 L'énergie d'origine est une ressource extrêmement difficile à récupérer pour les cultivateurs de la première étape. Si Wang Lin n'avait pas possédé une âme d'origine du tonnerre, il l'aurait regretté toute sa vie.
 

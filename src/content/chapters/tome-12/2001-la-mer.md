@@ -8,13 +8,13 @@ slug: la-mer
 ---
 Le Continent Astral Immortel comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
 
-Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un certain niveau de culture ne pouvaient espérer la franchir.
+Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un certain niveau de cultivation ne pouvaient espérer la franchir.
 
 Cette mer constituait une barrière naturelle rendant périlleux tout voyage entre les terres des Célestes et celles des Anciens.
 
 Le continent du Nord bordait cette mer, et sa partie la plus septentrionale était le Continent Meng Froid. Ce dernier n'était pas très vaste et était majoritairement recouvert de neige.
 
-Les cultivateurs résidant sur ce continent étaient accoutumés à ce climat, et la plupart d'entre eux pratiquaient des méthodes de culture liées au froid. Les mortels y étaient rares, et plus on s'enfonçait vers le nord, plus leur présence se faisait rare.
+Les cultivateurs résidant sur ce continent étaient accoutumés à ce climat, et la plupart d'entre eux pratiquaient des méthodes de cultivation liées au froid. Les mortels y étaient rares, et plus on s'enfonçait vers le nord, plus leur présence se faisait rare.
 
 À l'extrémité septentrionale du continent s'étendait une mer immense. Vu d'en haut, le Continent Meng Froid ressemblait à un fragment de glace flottant à la lisière de l'océan. Bien que martelé jour et nuit par les flots, il ne fondait jamais.
 
@@ -68,15 +68,15 @@ Et même celui-ci... » Xu Liguo les énumérait un à un. Avant qu'il n'ait pu 
 
 « Maître... Regardez-le... Je... Je... » Liu Jinbiao regarda Xu Liguo, puis tourna son regard vers Wang Lin qui marchait devant eux, ignorant superbement ses supplications.
 
-« Maître, ignorez-le. C'est lui qui a insisté pour améliorer sa culture de cette façon. Maître, marchez plus lentement, le sol est glissant. Ne vous inquiétez pas, le Petit Xu sait se débrouiller seul. » Xu Liguo rattrapa rapidement Wang Lin et commença à lui masser les épaules par-dessus son manteau. Puis, il se retourna avec un air de triomphe pour fixer Liu Jinbiao d'un regard venimeux.
+« Maître, ignorez-le. C'est lui qui a insisté pour améliorer sa cultivation de cette façon. Maître, marchez plus lentement, le sol est glissant. Ne vous inquiétez pas, le Petit Xu sait se débrouiller seul. » Xu Liguo rattrapa rapidement Wang Lin et commença à lui masser les épaules par-dessus son manteau. Puis, il se retourna avec un air de triomphe pour fixer Liu Jinbiao d'un regard venimeux.
 
 Xu Liguo envoya alors un message par Sens Divin : « Tu veux voler la place de ton Grand-père Xu auprès du Maître ? Beurk, tu n'en as pas les capacités ! Quand ton Grand-père Xu suivait déjà le Maître, tu n'étais qu'un nourrisson qui buvait encore son lait ! »
 
 « Espèce de... »
 
-« Et moi alors ? N'est-ce pas moi qui ai suggéré au Maître que, puisque notre culture n'était pas assez élevée, nous devions traverser le Nord par nos propres forces ? Cela renforcerait notre volonté autant que notre culture !
+« Et moi alors ? N'est-ce pas moi qui ai suggéré au Maître que, puisque notre cultivation n'était pas assez élevée, nous devions traverser le Nord par nos propres forces ? Cela renforcerait notre volonté autant que notre cultivation !
 
-C'est moi qui l'ai dit, et alors ? Mon niveau de culture est inférieur au tien et je ne possède pas ce stupide dragon pour m'aider. J'ai peur du froid, alors j'ai mis des vêtements en coton. Pourquoi t'énerves-tu autant ? Si tu as des vêtements en coton, mets-les ! » grogna Xu Liguo.
+C'est moi qui l'ai dit, et alors ? Mon niveau de cultivation est inférieur au tien et je ne possède pas ce stupide dragon pour m'aider. J'ai peur du froid, alors j'ai mis des vêtements en coton. Pourquoi t'énerves-tu autant ? Si tu as des vêtements en coton, mets-les ! » grogna Xu Liguo.
 
 Voyant que la dispute allait dégénérer, Wang Lin fronça les sourcils. Depuis leur apparition, ils ne cessaient de se chamailler.
 

@@ -62,13 +62,13 @@ Après avoir passé quatre jours et nuits dans l'auberge, Wang Lin réussit enfi
 
 Treize et Hu Pao étaient arrivés à l'auberge la veille et s'étaient installés dans les deux chambres voisines de celle de Wang Lin. S'ils avaient pu le retrouver, c'est parce que Wang Lin les avait appelés par son sens divin.
 
-Après plusieurs jours de culture, Wang Lin sortit de l'auberge le cinquième jour, suivi de près par Treize et Hu Pao.
+Après plusieurs jours de cultivation, Wang Lin sortit de l'auberge le cinquième jour, suivi de près par Treize et Hu Pao.
 
-En arpentant les rues de la Cité du Démon Ancien, Wang Lin eut l'impression d'être dans un autre monde. Les différences avec le monde de la culture étaient flagrantes ; des bâtiments à l'environnement, tout était étranger.
+En arpentant les rues de la Cité du Démon Ancien, Wang Lin eut l'impression d'être dans un autre monde. Les différences avec le monde de la cultivation étaient flagrantes ; des bâtiments à l'environnement, tout était étranger.
 
-« Cette Mer Démoniaque Orientale est un monde à part entière, ce qui la rend très mystérieuse. J'ignore comment un tel lieu a pu se former. La rumeur selon laquelle il s'agirait de la grotte de culture d'un puissant empereur céleste avant l'effondrement du Royaume Céleste pourrait-elle être vraie... » Wang Lin avait du mal à y croire. Si cette rumeur était exacte, alors la culture de cet empereur dépassait l'entendement. Être capable de transformer sa propre grotte de culture en un monde entier était une perspective terrifiante.
+« Cette Mer Démoniaque Orientale est un monde à part entière, ce qui la rend très mystérieuse. J'ignore comment un tel lieu a pu se former. La rumeur selon laquelle il s'agirait de la grotte de cultivation d'un puissant empereur céleste avant l'effondrement du Royaume Céleste pourrait-elle être vraie... » Wang Lin avait du mal à y croire. Si cette rumeur était exacte, alors la cultivation de cet empereur dépassait l'entendement. Être capable de transformer sa propre grotte de cultivation en un monde entier était une perspective terrifiante.
 
-« Bien qu'il ne s'agisse que d'une rumeur, les légendes ne naissent pas sans raison. Si c'est véritablement la grotte de culture d'un empereur céleste, alors ce royaume est sa propre création. Dès lors, d'où viennent tous ces indigènes... » Tandis qu'il traversait la ville, il se mit à réfléchir.
+« Bien qu'il ne s'agisse que d'une rumeur, les légendes ne naissent pas sans raison. Si c'est véritablement la grotte de cultivation d'un empereur céleste, alors ce royaume est sa propre création. Dès lors, d'où viennent tous ces indigènes... » Tandis qu'il traversait la ville, il se mit à réfléchir.
 
 « Se pourrait-il que... » Le cœur de Wang Lin tressaillit face à une idée proprement folle. Dans son village autrefois, certains villageois créaient des enclos de boue pour élever du bétail.
 

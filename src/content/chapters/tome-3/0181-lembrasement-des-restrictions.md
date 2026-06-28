@@ -244,7 +244,7 @@ Une lueur de cupidité brilla dans ses yeux. Il n'était qu'à quinze mètres du
 
 Il s'engouffra dans le tunnel et réapparut au sommet de la montagne. Il laissa échapper un rire. Alors qu'il s'apprêtait à franchir la sortie du second royaume, le Seigneur Démon des Six Désirs arriva lui aussi.
 
-Comment les restrictions situées à moins de trente mètres du sommet avaient-elles pu être si facilement contournées ? Si ces deux hommes avaient réussi cet exploit, ce n'était pas seulement grâce à leur niveau de culture, mais aussi grâce aux trésors qu'ils possédaient.
+Comment les restrictions situées à moins de trente mètres du sommet avaient-elles pu être si facilement contournées ? Si ces deux hommes avaient réussi cet exploit, ce n'était pas seulement grâce à leur niveau de cultivation, mais aussi grâce aux trésors qu'ils possédaient.
 
 Ces objets étaient leurs deux armes secrètes pour franchir les royaumes.
 
@@ -268,7 +268,7 @@ De plus, le Seigneur Démon des Six Désirs et l'Empereur Ancien étaient tous d
 
 Le cœur de Wang Lin se calma alors qu'il observait les deux adversaires. Il décida de faire preuve d'une prudence absolue.
 
-Alors que le Seigneur Démon des Six Désirs s'apprêtait à entrer dans le tourbillon, plus de dix éclairs tombèrent. Il utilisa rapidement le corps du jeune homme pour les intercepter, mais en fut tout de même touché. Il cracha une bouchée de sang. Sa culture diminua instantanément d'un niveau de manière permanente, et l'un des bras du corps du garçon fut arraché par la foudre. Pourtant, le Seigneur Démon des Six Désirs serra les dents et disparut dans le tourbillon.
+Alors que le Seigneur Démon des Six Désirs s'apprêtait à entrer dans le tourbillon, plus de dix éclairs tombèrent. Il utilisa rapidement le corps du jeune homme pour les intercepter, mais en fut tout de même touché. Il cracha une bouchée de sang. Sa cultivation diminua instantanément d'un niveau de manière permanente, et l'un des bras du corps du garçon fut arraché par la foudre. Pourtant, le Seigneur Démon des Six Désirs serra les dents et disparut dans le tourbillon.
 
 Alors que le bras volait, il frappa la lumière noire et commença à fumer. Une fois qu'il atteignit l'extérieur de l'anneau, il ne restait plus aucune chair ni aucun sang sur lui. Il n'en restait que l'os, parsemé de grains de lumière dorée. Cependant, l'os était brisé. Il semblait que la lumière noire fût capable d'endommager même la structure osseuse.
 

@@ -20,7 +20,7 @@ Cependant, Wang Lin ne partit pas. Il resta assis, faisant circuler l'énergie d
 
 Privé du clou aux sept couleurs, rien n'empêchait Wang Lin de recouvrer ses forces.
 
-Le temps s'écoula et, en un clin d'œil, deux jours passèrent. Wang Lin ouvrit les yeux, qui brillèrent comme des éclairs dans l'obscurité du tunnel. Il se leva et étira ses membres ; ses blessures étaient presque totalement guéries. Son âme originelle n'était plus affaiblie et son énergie originelle avait pleinement été restaurée au cours de ces deux jours de culture.
+Le temps s'écoula et, en un clin d'œil, deux jours passèrent. Wang Lin ouvrit les yeux, qui brillèrent comme des éclairs dans l'obscurité du tunnel. Il se leva et étira ses membres ; ses blessures étaient presque totalement guéries. Son âme originelle n'était plus affaiblie et son énergie originelle avait pleinement été restaurée au cours de ces deux jours de cultivation.
 
 Il était de nouveau à son apogée. Même si le Maître Ashen Pine n'avait pas été blessé, Wang Lin pourrait à nouveau l'affronter !
 
@@ -50,11 +50,11 @@ Lorsqu'il saisit l'épée, il ressentit l'aura d'un trésor de niveau Pseudo-Nir
 
 Après avoir répertorié ses nouveaux biens, les yeux de Wang Lin s'illuminèrent. Au vu des richesses du Maître Ashen Pine, il n'était pas difficile de deviner que ce Royaume aux Sept Couleurs regorgeait de trésors. La plupart des possessions du Maître Ashen Pine devaient provenir d'ici, notamment ces perles capables d'invoquer des sorts.
 
-« C'est une véritable mine d'or. Si le Maître Ashen Pine a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de notre capacité à obtenir les trésors et les pilules les plus puissants pour élever notre niveau de culture ! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
+« C'est une véritable mine d'or. Si le Maître Ashen Pine a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de notre capacité à obtenir les trésors et les pilules les plus puissants pour élever notre niveau de cultivation ! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
 
 Son premier objectif : la grotte de Sima Mo, telle que révélée par les souvenirs de Pang Decai !
 
-Dans les souvenirs de Pang Decai, après avoir découvert la grotte de Sima Mo, ils ne l'avaient pas ouverte totalement, mais n'en avaient ouvert qu'une partie. Ils s'étaient alors préparés à capturer les bêtes spirituelles pour les raffiner en pilules. Une fois leur culture augmentée, ils comptaient briser complètement le sceau de la grotte.
+Dans les souvenirs de Pang Decai, après avoir découvert la grotte de Sima Mo, ils ne l'avaient pas ouverte totalement, mais n'en avaient ouvert qu'une partie. Ils s'étaient alors préparés à capturer les bêtes spirituelles pour les raffiner en pilules. Une fois leur cultivation augmentée, ils comptaient briser complètement le sceau de la grotte.
 
 « Une grotte qui n'a pas été entièrement ouverte et qui est restée intacte ! » Wang Lin se déplaça avec célérité en suivant les souvenirs de Pang Decai. Il traversa la vallée sans déclencher la moindre restriction.
 
@@ -102,7 +102,7 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Nous sommes entrés dans la faille et avons basculé dans ce cauchemar horrible... Mais à l'époque, je n'avais rien vu venir...
 
-« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer de Nuages, mais aussi le Ciel Tout-Puissant, la Rivière Invoquée et le Vide Brillant !
+« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la cultivation. Pas seulement la Mer de Nuages, mais aussi le Ciel Tout-Puissant, la Rivière Invoquée et le Vide Brillant !
 
 « Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer de Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 

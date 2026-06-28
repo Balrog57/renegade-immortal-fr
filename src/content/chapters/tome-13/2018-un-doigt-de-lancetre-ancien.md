@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2018 - One Finger of the Ancient Ancestor
 slug: un-doigt-de-lancetre-ancien
 ---
-Wang Lin posa la tablette de jade d'invitation et cessa de songer à cette affaire. Après tout, comparée à la cérémonie d'investiture de l'impératrice de l'Empereur Dao Ancien, sa culture était bien plus importante.
+Wang Lin posa la tablette de jade d'invitation et cessa de songer à cette affaire. Après tout, comparée à la cérémonie d'investiture de l'impératrice de l'Empereur Dao Ancien, sa cultivation était bien plus importante.
 
 « Le vrai corps d'essence métallique pourra se former au cours des prochains jours. Une fois que le vrai corps des cinq éléments sera complet, je pourrai vérifier si mes spéculations sont exactes », admit Wang Lin avec une pointe d'inquiétude. S'il restait au stade avancé de la Tribulation du Vide après l'achèvement de son vrai corps des cinq éléments, alors sa déduction serait erronée.
 
@@ -16,13 +16,13 @@ Cependant, les essences éthérées demeuraient un mystère absolu, dépendant e
 
 Cela fit que Wang Lin contempla l'essence métallique avec un mélange d'appréhension et d'anticipation.
 
-Après un long moment, il laissa échapper un soupir et détourna son regard de l'essence métallique. Il avait fait tout ce qu'il pouvait. Que sa culture progresse ou non, il aurait sa réponse dans quelques jours.
+Après un long moment, il laissa échapper un soupir et détourna son regard de l'essence métallique. Il avait fait tout ce qu'il pouvait. Que sa cultivation progresse ou non, il aurait sa réponse dans quelques jours.
 
 Les yeux de Wang Lin s'entrouvrirent légèrement. Après une courte réflexion, il agita sa manche. Une lumière brilla dans la demeure en bois et une restriction s'anima lentement. Elle ne produisit aucun son et, de l'extérieur, aucune lumière ne s'en échappa.
 
 Wang Lin pénétra dans la formation et disparut.
 
-Sous la terre, au cœur de la formation, une vaste grotte s'ouvrait à environ 100 000 pieds sous la demeure en bois. Cette grotte était apparue récemment ; Wang Lin l'avait créée au cinquième jour de sa culture en méditation fermée.
+Sous la terre, au cœur de la formation, une vaste grotte s'ouvrait à environ 100 000 pieds sous la demeure en bois. Cette grotte était apparue récemment ; Wang Lin l'avait créée au cinquième jour de sa cultivation en méditation fermée.
 
 Cette caverne de plusieurs milliers de pieds de large était dominée par un soleil noir et blanc. Au centre flottait un gigantesque astre bicolore !
 
@@ -30,7 +30,7 @@ Bien qu'il ne s'agisse que d'une silhouette, c'était bel et bien le Soleil du G
 
 Sous ce Soleil du Grand Empyréen reposait une tête haute de 1 000 pieds. Elle n'avait ni yeux ni oreilles, et une profonde fissure marquait son crâne. C'était la tête de l'Ancêtre Céleste !
 
-Wang Lin avait disposé d'innombrables restrictions autour de cette grotte. Avec son niveau de culture actuel, ces barrières étaient extrêmement puissantes. Oubliez les Empyrés Exaltés, même les Empyrés Ascendants ne pourraient les ressentir.
+Wang Lin avait disposé d'innombrables restrictions autour de cette grotte. Avec son niveau de cultivation actuel, ces barrières étaient extrêmement puissantes. Oubliez les Empyrés Exaltés, même les Empyrés Ascendants ne pourraient les ressentir.
 
 Même des Grands Empyrés auraient du mal à les détecter sans une observation minutieuse. Cela s'expliquait par le fait que ces restrictions intégraient la fusion des pouvoirs céleste et ancien de Wang Lin ! Il en avait extrait une fraction pour les combiner aux restrictions, leur conférant ainsi cette puissance redoutable.
 
@@ -48,7 +48,7 @@ L'Empereur Céleste, capturé par Wang Lin, était dans un état lamentable. Il 
 
 Bien que cette pression fût celle d'un Grand Empyréen, l'énergie céleste n'était pas pure — elle était extrêmement chaotique et exsudait un sentiment de défaite. On aurait dit que l'âme souffrait d'une douleur indicible.
 
-« Quelle puissante malédiction ancestrale... » murmura Wang Lin pour lui-même. Il continua à apposer des sceaux sur l'âme de l'Empereur Céleste. Malgré son niveau de culture et sa puissance, alliés à la force propre de l'Empereur Céleste, ils ne parvenaient toujours pas à expulser la malédiction ancestrale. Cependant, il réussissait à maintenir un équilibre pour que l'âme ne se dissipe pas.
+« Quelle puissante malédiction ancestrale... » murmura Wang Lin pour lui-même. Il continua à apposer des sceaux sur l'âme de l'Empereur Céleste. Malgré son niveau de cultivation et sa puissance, alliés à la force propre de l'Empereur Céleste, ils ne parvenaient toujours pas à expulser la malédiction ancestrale. Cependant, il réussissait à maintenir un équilibre pour que l'âme ne se dissipe pas.
 
 « J'avais initialement l'intention d'utiliser la pression de cette âme pour forcer la fusion de mes pouvoirs céleste et ancien, mais cela semble désormais superflu. Néanmoins, c'est l'âme de l'Empereur Céleste ; elle me reste très utile », songea Wang Lin en contemplant son propre Soleil du Grand Empyréen.
 
@@ -66,11 +66,11 @@ Le gaz gris se dissipa.
 
 Le front de Wang Lin était couvert de sueur et la lueur argentée de ses yeux s'estompa. Il esquissa un sourire amer.
 
-« La fusion des pouvoirs céleste et ancien peut éliminer la malédiction ancestrale... Cependant, avec mon niveau de culture actuel, je ne peux tenir longtemps et je ne peux expulser la malédiction d'un seul coup... » Wang Lin regarda l'âme de l'Empereur Céleste. La parcelle de malédiction ancestrale qu'il avait extraite s'était déjà reformée.
+« La fusion des pouvoirs céleste et ancien peut éliminer la malédiction ancestrale... Cependant, avec mon niveau de cultivation actuel, je ne peux tenir longtemps et je ne peux expulser la malédiction d'un seul coup... » Wang Lin regarda l'âme de l'Empereur Céleste. La parcelle de malédiction ancestrale qu'il avait extraite s'était déjà reformée.
 
 Dans un soupir, Wang Lin agita la main droite pour ranger l'âme de l'Empereur Céleste. Il resta assis là, plongé dans ses pensées, avant de laisser échapper un dernier soupir.
 
-« Il semble que je doive attendre que ma culture augmente afin de maintenir plus longtemps le pouvoir fusionné, pour ainsi dissiper la malédiction ancestrale et la fusionner avec mon Soleil du Grand Empyréen. »
+« Il semble que je doive attendre que ma cultivation augmente afin de maintenir plus longtemps le pouvoir fusionné, pour ainsi dissiper la malédiction ancestrale et la fusionner avec mon Soleil du Grand Empyréen. »
 
 « Cette malédiction est étrange et l'identité de l'Empereur Céleste est particulière ; il n'est donc pas opportun de demander l'aide de Maître Xuan Luo. » Wang Lin avait ses propres secrets, et à moins d'une nécessité absolue, il avait pour habitude de ne rien divulguer.
 

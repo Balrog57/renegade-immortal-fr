@@ -18,7 +18,7 @@ Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme 
 
 Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement : « Cela fait longtemps, Senior Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer : « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Déchus ? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer : « Je n'ai commencé la cultivation qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Déchus ? »
 
 Yun Quezi pointa Ta Shan du doigt.
 
@@ -72,7 +72,7 @@ Yun Quezi dit d'une voix lente : « C'est l'une des marques ancestrales du Clan 
 
 Wang Lin hocha la tête, puis déploya son Sens Divin pour débusquer l'entrée de la douzième couche. En un éclair, il chargea vers elle.
 
-Douzième couche, treizième, quatorzième, quinzième, seizième... Avec son niveau de culture, Wang Lin ne rencontra aucun obstacle et atteignit directement la seizième couche !
+Douzième couche, treizième, quatorzième, quinzième, seizième... Avec son niveau de cultivation, Wang Lin ne rencontra aucun obstacle et atteignit directement la seizième couche !
 
 On y trouvait également des tatouages rouge sang sur le sol, mais bien plus complexes. Leur simple observation suffisait à troubler l'esprit. Les yeux de Wang Lin se plissèrent alors qu'il observait les treize cercueils disposés ici. Chacun était surmonté d'un tatouage scintillant.
 

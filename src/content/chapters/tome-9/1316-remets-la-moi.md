@@ -44,9 +44,9 @@ En utilisant continuellement la Distorsion Spatiale, ils traversèrent l'immensi
 
 Le Clan de la Soie Bleue était l'un des rares clans qu'il ne fallait pas s'avancer à combattre. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
 
-Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception du Maître Dao Blue Dream, dont le nom résonnait dans tout le Système Stellaire Ancien.
+Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la cultivation ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception du Maître Dao Blue Dream, dont le nom résonnait dans tout le Système Stellaire Ancien.
 
-Avant que le Maître Dao Blue Dream ne devienne célèbre, le Clan de la Soie Bleue n'était qu'une infime famille. Bien que leurs niveaux de culture fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
+Avant que le Maître Dao Blue Dream ne devienne célèbre, le Clan de la Soie Bleue n'était qu'une infime famille. Bien que leurs niveaux de cultivation fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
 
 Chaque membre du clan était un maître de la musique, et tous étaient d'une grande beauté. Hommes comme femmes possédaient des traits magnifiques.
 
@@ -128,7 +128,7 @@ Les pupilles de la femme en blanc se rétractèrent soudainement. Elle agita sa 
 
 Après avoir parcouru une distance indéterminée à travers le ciel étoilé, Wang Lin amena Li Qianmei au magnifique foyer du Clan de la Soie Bleue, là où se trouvait le Maître Dao Blue Dream, et là qui était la demeure de Li Qianmei...
 
-À mesure que Wang Lin avançait, l'immensité spatiale devenait plus lumineuse. Le domaine stellaire du Clan de la Soie Bleue était magnifique. Même les planètes de culture ressemblaient à de véritables étoiles, émettant une douce lueur bleue qui se propageait au loin.
+À mesure que Wang Lin avançait, l'immensité spatiale devenait plus lumineuse. Le domaine stellaire du Clan de la Soie Bleue était magnifique. Même les planètes de cultivation ressemblaient à de véritables étoiles, émettant une douce lueur bleue qui se propageait au loin.
 
 Wang Lin regarda Li Qianmei, endormie dans ses bras, et murmura doucement : « Qianmei, nous y sommes... »
 

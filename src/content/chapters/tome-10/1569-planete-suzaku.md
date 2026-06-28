@@ -84,7 +84,7 @@ Le fou rugit avec enthousiasme : « Pourquoi regarder en arrière ? Ce Roi ne vo
 
 Après ses paroles, mis à part le vieillard, l'expression des deux jeunes hommes changea. Ils fixèrent froidement le fou et s'apprêtèrent à parler. Le vieillard fronça les sourcils et leva la main pour stopper ses disciples. Il ne regardait pas le fou, mais Wang Lin, qui contemplait toujours la planète Suzaku avec nostalgie.
 
-« Cher compagnon de culture, je présume que vous êtes également venu en pèlerinage sur la terre natale du Seigneur du Royaume Scellé. Ce lieu est une terre sainte. J'espère que vous saurez maîtriser votre compagnon afin d'éviter tout incident. » Une fois son allocution terminée, le vieillard détourna le regard de Wang Lin. Il agita ses manches et, avec ses trois disciples, s'avança vers la formation.
+« Cher compagnon de cultivation, je présume que vous êtes également venu en pèlerinage sur la terre natale du Seigneur du Royaume Scellé. Ce lieu est une terre sainte. J'espère que vous saurez maîtriser votre compagnon afin d'éviter tout incident. » Une fois son allocution terminée, le vieillard détourna le regard de Wang Lin. Il agita ses manches et, avec ses trois disciples, s'avança vers la formation.
 
 Les trois disciples lancèrent des regards venimeux au fou. Les deux jeunes hommes, en particulier, étaient furieux.
 

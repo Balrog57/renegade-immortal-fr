@@ -78,7 +78,7 @@ Ces hommes formaient une force redoutable. La plupart du temps, Wang Lin n'avait
 
 De plus en plus de combattants rejoignaient les rangs de Wang Lin. Les énergies d'épée sous leurs pieds leur donnaient l'apparence d'une épée gigantesque transperçant la région occidentale !
 
-Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Céleste du Tonnerre, les 108 autres cieux et certaines familles de culture faisaient de même.
+Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Céleste du Tonnerre, les 108 autres cieux et certaines familles de cultivation faisaient de même.
 
 Cependant, l'équipe menée par Wang Lin était la plus imposante !
 
@@ -104,6 +104,6 @@ Bien que ce bois colossal puisse faire trembler son esprit, cela ne l'aurait pas
 
 Le Serpent Moongazer !!
 
-Le corps titanesque du Serpent Moongazer ressemblait à une planète de culture, et ses innombrables tentacules ondulaient autour de lui. Ses rugissements colériques résonnaient sans cesse parmi les étoiles.
+Le corps titanesque du Serpent Moongazer ressemblait à une planète de cultivation, et ses innombrables tentacules ondulaient autour de lui. Ses rugissements colériques résonnaient sans cesse parmi les étoiles.
 
 Au moment où Wang Lin vit le Serpent Moongazer, son corps entier trembla. Et ce tremblement émanait de son corps d'Ancien Dieu !

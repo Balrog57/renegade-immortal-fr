@@ -8,7 +8,7 @@ slug: futur-empereur
 ---
 L'arrêt soudain de Wang Lin dans les airs attira l'attention des membres de l'Ancient Dao, et Ye Wei leva également les yeux vers lui.
 
-C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de culture n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de seigneur.
+C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de cultivation n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de seigneur.
 
 Il y avait une multitude de personnes comme lui au sein de l'Ancient Dao. Normalement, personne ne prêterait attention à un tel individu ; s'il n'avait pas été transporté ici par les innombrables réseaux de transfert, il serait passé totalement inaperçu.
 
@@ -80,7 +80,7 @@ Xuan Luo observa Luo Chen, semblant peser une décision. Un instant plus tard, s
 
 Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long silence, elle soupira.
 
-« Je vais poursuivre ma culture en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
+« Je vais poursuivre ma cultivation en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
 
 Jusqu'ici, le Grand Empereur Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
 

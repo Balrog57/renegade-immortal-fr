@@ -98,7 +98,7 @@ Tous les corps disparus durant la bataille apparaissaient ici, mais dès leur ap
 
 Wang Lin réfléchit un instant. Il n'aurait pas cru que l'Alliance des Quatre Sectes ne s'en serait pas rendu compte plus tôt, mais lui-même était incapable de détecter cette grotte jusqu'ici.
 
-Il faut dire que le Sens Divin de Wang Lin atteignait celui d'un cultivateur au stade avancé de la Formation de l'Âme ; si même lui n'avait pu la percevoir, il était fort improbable que quiconque dans un pays de culture de rang 4 y parvienne.
+Il faut dire que le Sens Divin de Wang Lin atteignait celui d'un cultivateur au stade avancé de la Formation de l'Âme ; si même lui n'avait pu la percevoir, il était fort improbable que quiconque dans un pays de cultivation de rang 4 y parvienne.
 
 Wang Lin prit une profonde inspiration. Il recula lentement pour regagner la surface. Il leva les yeux vers le ciel, réfléchit un moment, puis tapota son sac de rangement pour en sortir un jade de transmission vocale.
 

@@ -32,7 +32,7 @@ Tang Shan intervint après avoir formé les sept portes dorées pour Wang Lin et
 
 Tous deux attaquèrent le Souverain simultanément !
 
-La combinaison des « Huit Lames qui Coupent l'Âme » avec la culture de Yun Yifeng dégageait une puissance phénoménale. Le Souverain agita sa manche et une lumière aux sept couleurs vola vers Yun Yifeng.
+La combinaison des « Huit Lames qui Coupent l'Âme » avec la cultivation de Yun Yifeng dégageait une puissance phénoménale. Le Souverain agita sa manche et une lumière aux sept couleurs vola vers Yun Yifeng.
 
 Des grondements tonitruants résonnèrent. Yun Yifeng, déjà blessé par Wang Lin, vit les sept portes dorées s'effondrer. Il cracha du sang et, les dents serrées, poussa un rugissement en tranchant l'air. Sept des lames se brisèrent lors de la collision avec la lumière aux sept couleurs, mais la huitième était sur le point de percer cette lumière pour atteindre le Souverain.
 

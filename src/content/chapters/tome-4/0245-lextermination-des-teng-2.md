@@ -56,7 +56,7 @@ La tour de têtes gagna deux nouveaux trophées.
 
 Après avoir exécuté ces quatre personnes, Wang Lin se redressa et fixa Teng Huayuan avec un sourire cruel.
 
-En voyant ce sourire, le cœur de Teng Huayuan se glaça. Quatre cultivateurs de l'Âme Naissante avaient été éliminés si aisément. Quel niveau de culture ce Wang Lin avait-il atteint ?
+En voyant ce sourire, le cœur de Teng Huayuan se glaça. Quatre cultivateurs de l'Âme Naissante avaient été éliminés si aisément. Quel niveau de cultivation ce Wang Lin avait-il atteint ?
 
 Le cuir chevelu de Teng Huayuan picota. Son hypothèse précédente était erronée : la restriction entourant la ville n'avait pas été posée par un tiers, mais par ce démon lui-même.
 

@@ -42,7 +42,7 @@ Lorsque le Fruit du Dao fut frappé par Wang Lin, les filaments connectés au Ma
 
 Wang Lin avança et effectua six mouvements de mains successifs. Un grondement sourd résonna, mais le Fruit du Dao semblait imperturbable. Seule l'expression du Maître Hong Shan s'accentuait dans la souffrance et son regard se vidait davantage.
 
-« Avec ta simple culture, tu oses prétendre détruire le Fruit du Dao pour le sauver ? Oublie cela, même ce vieil homme ne pourrait l'anéantir. Je veux voir comment tu comptes sauver ce Maître Hong Shan ! Le sceau du Souverain n'est pas une chose que l'on brise ! »
+« Avec ta simple cultivation, tu oses prétendre détruire le Fruit du Dao pour le sauver ? Oublie cela, même ce vieil homme ne pourrait l'anéantir. Je veux voir comment tu comptes sauver ce Maître Hong Shan ! Le sceau du Souverain n'est pas une chose que l'on brise ! »
 
 « Plus tu attaqueras, plus tu aideras le Fruit du Dao à affiner le Maître Hong Shan pour en faire une marionnette au service de mon Royaume Extérieur ! » ricana le Seigneur du Palais de la Punition Céleste en jetant un regard vers lui.
 
@@ -72,7 +72,7 @@ Le Maître Long Pan médita un instant avant que sa main droite ne forme un scea
 
 Le Maître Long Pan fit un pas en avant et disparut, fusionnant avec le Tableau des Montagnes et des Rivières ! Les reliefs se précipitèrent pour s'écraser sur le Seigneur du Palais de la Punition Céleste !
 
-Ayant déjà consumé sa force vitale, il attaquait désormais sans aucun souci pour sa propre vie. Les montagnes et les rivières se muèrent en une paume gigantesque, brûlant de la culture la plus puissante du Maître Long Pan. Cette paume s'abattit vers le Seigneur du Palais de la Punition Céleste.
+Ayant déjà consumé sa force vitale, il attaquait désormais sans aucun souci pour sa propre vie. Les montagnes et les rivières se muèrent en une paume gigantesque, brûlant de la cultivation la plus puissante du Maître Long Pan. Cette paume s'abattit vers le Seigneur du Palais de la Punition Céleste.
 
 À cet instant, Qing Shui leva la tête et sa main droite forma un sceau. Il déclara calmement : « Lune Noire ! »
 
@@ -82,7 +82,7 @@ Ces nuages sombres surgirent avec une soudaineté brutale, et simultanément, un
 
 « Ciel Clair ! » Une lueur d'intention meurtrière jaillit des yeux de Qing Shui. La lune brillante sur le visage du vieil homme brilla d'un éclat aussi intense que le soleil, comme si cette lumière cherchait à détruire la lune elle-même.
 
-« Le sort de Bai Fan !! C'est l'un des six grands sorts de Bai Fan ! Bai Fan est mort, tu es... tu es Qing Shui !! » La lune sur le visage du vieil homme se déforma. Normalement, avec son niveau de culture, il aurait pu résister à ce sort par la force. Cependant, juste au moment où la lune s'illumina, l'immense paume du Maître Long Pan se referma sur lui.
+« Le sort de Bai Fan !! C'est l'un des six grands sorts de Bai Fan ! Bai Fan est mort, tu es... tu es Qing Shui !! » La lune sur le visage du vieil homme se déforma. Normalement, avec son niveau de cultivation, il aurait pu résister à ce sort par la force. Cependant, juste au moment où la lune s'illumina, l'immense paume du Maître Long Pan se referma sur lui.
 
 Qing Shui fit un pas en avant et une essence de massacre dévastatrice fut projetée vers l'homme en noir.
 
@@ -92,7 +92,7 @@ Les nombreux cultivateurs du Royaume Extérieur qui n'avaient pas été tués pa
 
 La paume formée par le Maître Long Pan vola en éclats sous l'impact ; sa silhouette réapparut alors qu'il reculait de plusieurs dizaines de pieds. Il cracha une gorgée d'essence originelle, paraissant affaibli, mais ses yeux demeuraient calmes.
 
-Le corps de Qing Shui fut projeté en arrière, sa culture étant insuffisante pour encaisser un tel choc. Bien que l'essence de massacre fût puissante, il n'en sortit pas indemne. Du sang coula du coin de sa bouche, mais son expression restait d'une froideur extrême.
+Le corps de Qing Shui fut projeté en arrière, sa cultivation étant insuffisante pour encaisser un tel choc. Bien que l'essence de massacre fût puissante, il n'en sortit pas indemne. Du sang coula du coin de sa bouche, mais son expression restait d'une froideur extrême.
 
 Le Seigneur du Palais de la Punition Céleste cracha du sang, le corps tremblant. Les innombrables âmes de Flammes de l'Encens utilisées pour bloquer l'attaque se dissipèrent toutes. Lorsque la lune sur son visage disparut, cinq fissures profondes apparurent et s'étendirent sur tout son corps.
 

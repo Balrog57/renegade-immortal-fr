@@ -30,7 +30,7 @@ Initialement, il faisait preuve d'une immense fierté, mais il avait sous-estim�
 
 « Adieu, ma bien-aimée petite beauté ! Un jour, je reviendrai te retrouver ! » Ce type, même à cet instant, ne pensait qu'à sa petite beauté, oubliant totalement son petit frère, la lame noire...
 
-Une pointe de tristesse traversa Xu Liguo avant qu'il ne se retourne. Alors qu'il s'apprêtait à poursuivre sa fuite, il s'arrêta soudainement. Son expression changea légèrement, mais il afficha aussitôt un visage empreint de flatterie pour plaire à son maître. « Ma... Maître, votre vitesse est incroyable. Il semble que votre culture ait énormément progressé. Vous êtes véritablement digne d'être mon maître. Je... »
+Une pointe de tristesse traversa Xu Liguo avant qu'il ne se retourne. Alors qu'il s'apprêtait à poursuivre sa fuite, il s'arrêta soudainement. Son expression changea légèrement, mais il afficha aussitôt un visage empreint de flatterie pour plaire à son maître. « Ma... Maître, votre vitesse est incroyable. Il semble que votre cultivation ait énormément progressé. Vous êtes véritablement digne d'être mon maître. Je... »
 
 Wang Lin apparut à trente mètres devant Xu Liguo, le visage empreint d'indifférence.
 

@@ -60,7 +60,7 @@ Cette excitation provenait de la promesse faite par le vieil homme nommé Zhang 
 
 La rumeur disait que lors de l'extraction du noyau du Scorpion Démoniaque par l'Ancêtre Céleste, un accident s'était produit. Le noyau s'était brisé en morceaux, créant cinq fosses à travers le Continent du Démon Vert. Ces fosses étaient saturées d'énergie démoniaque, et y cultiver offrait des bénéfices inestimables.
 
-Pour Xu Decai, dont la culture stagnait depuis longtemps, c'était une chance unique. Qu'il puisse augmenter son niveau de culture ou non, il devait tenter sa chance.
+Pour Xu Decai, dont la cultivation stagnait depuis longtemps, c'était une chance unique. Qu'il puisse augmenter son niveau de cultivation ou non, il devait tenter sa chance.
 
 « Wang Lin, si je te tue, j'obtiendrai une immense fortune. Nous n'avons pas de querelle personnelle, mais tu dois mourir ! » Xu Decai se lécha les lèvres, un éclat de froideur dans le regard.
 

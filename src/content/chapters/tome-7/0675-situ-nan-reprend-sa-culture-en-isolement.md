@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 675 - Situ Nan Enters Closed Door Cultivation Once More
 slug: situ-nan-reprend-sa-culture-en-isolement
 ---
-La mort de Huan Dong fut immédiatement détectée par la famille Huan. En tant que grande lignée établie sur une planète de culture principale, le massacre d'un membre de la famille provoqua un véritable tollé.
+La mort de Huan Dong fut immédiatement détectée par la famille Huan. En tant que grande lignée établie sur une planète de cultivation principale, le massacre d'un membre de la famille provoqua un véritable tollé.
 
 L'ancêtre de la famille Huan était furieux en apprenant la nouvelle ; cependant, ses yeux s'illuminèrent soudainement et il réprima la proposition de la famille de chercher vengeance sur la planète Ran Yun. Au lieu de cela, il avança la date du rituel de lignée.
 
@@ -20,7 +20,7 @@ Dès que la famille Huan passa à l'action, les couleurs du ciel changèrent. Av
 
 Quant à Liu Mei, après avoir appris la mort de Huan Dong, son expression ne changea pas. C'était comme si la personne décédée n'était qu'une simple fourmi.
 
-Liu Mei leva les yeux vers le ciel bleu et murmura : « Planète Ran Yun... Est-ce là un combat pour démontrer ma puissance à la famille Huan ? Selon Maître, pendant le rituel de lignée, il me transmettra une partie de sa culture. Au prix d'une baisse de son propre niveau d'un grade pendant deux cents ans, il m'aidera à atteindre le sommet du stade avancé de l'Ascendant. Quant à entrer dans le stade Yin et Yang, cela dépendra de ma propre compréhension. »
+Liu Mei leva les yeux vers le ciel bleu et murmura : « Planète Ran Yun... Est-ce là un combat pour démontrer ma puissance à la famille Huan ? Selon Maître, pendant le rituel de lignée, il me transmettra une partie de sa cultivation. Au prix d'une baisse de son propre niveau d'un grade pendant deux cents ans, il m'aidera à atteindre le sommet du stade avancé de l'Ascendant. Quant à entrer dans le stade Yin et Yang, cela dépendra de ma propre compréhension. »
 
 « Après cela, la différence entre moi et cet homme de Suzaku deviendra plus grande. Dans les années à venir, une fois que j'aurai atteint la seconde étape et que je reverrai cette personne, j'ignore quel état d'esprit il aura. Cependant, à ce moment-là, il ne sera qu'une fourmi, tout comme ce Huan Dong... »
 
@@ -76,7 +76,7 @@ Cette vision pesait lourdement sur le cœur et oppressait l'esprit.
 
 Des vagues de rugissements émanaient de la planète Yun Xia, dont la majorité provenait du sous-sol.
 
-« C'est une planète de culture totalement gâchée... » Wang Lin songea silencieusement tout en avançant, son Sens Divin déployé à la recherche d'une veine métallique. En volant, il aperçut les ruines de plusieurs cités. Il était évident que cet endroit avait été autrefois extrêmement prospère, mais tout n'était plus que décombres.
+« C'est une planète de cultivation totalement gâchée... » Wang Lin songea silencieusement tout en avançant, son Sens Divin déployé à la recherche d'une veine métallique. En volant, il aperçut les ruines de plusieurs cités. Il était évident que cet endroit avait été autrefois extrêmement prospère, mais tout n'était plus que décombres.
 
 Les tentacules sortant du sol s'enroulaient autour des ruines des villes. On ne pouvait s'empêcher d'avoir la chair de poule face à un tel spectacle.
 
@@ -102,7 +102,7 @@ Simultanément, les informations sur le Serpent Moongazer transmises par l'Ancie
 
 Wang Lin, tapi dans une fissure du sol, observait le nuage rouge dans le ciel. Le corps gigantesque du Serpent Moongazer s'éloignant progressivement, il commença à réfléchir en silence.
 
-Au même moment, sur une planète de culture d'apparence très ordinaire du Système Stellaire Alliance, deux femmes vêtues d'habits colorés pénétrèrent dans la capitale d'un pays mortel.
+Au même moment, sur une planète de cultivation d'apparence très ordinaire du Système Stellaire Alliance, deux femmes vêtues d'habits colorés pénétrèrent dans la capitale d'un pays mortel.
 
 Chacune des femmes avait une sphère de lumière éclatante flottant au-dessus de sa main droite. Ces sphères dégageaient une puissante aura meurtrière.
 
@@ -122,4 +122,4 @@ Situ Nan poussa un cri étrange ; une flamme sembla brûler en lui alors qu'il s
 
 « Vieille salope, attends un peu ! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire Alliance voient ton comportement de séductrice ! Je te rendrai très célèbre dans tout le Système Stellaire Alliance ! Ce vieil homme tiendra sa promesse ! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
 
-« Au pire, je n'aurai qu'à retourner en culture en isolement, tu n'as qu'à attendre ! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise : il retournerait en culture en isolement. S'il ne parvenait pas au stade du Scryer Nirvana, il ne ressortirait pas !
+« Au pire, je n'aurai qu'à retourner en cultivation en isolement, tu n'as qu'à attendre ! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise : il retournerait en cultivation en isolement. S'il ne parvenait pas au stade du Scryer Nirvana, il ne ressortirait pas !

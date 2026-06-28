@@ -14,11 +14,11 @@ L'effort final par l'énergie spirituelle nécessiterait l'aide de la Pilule du 
 
 Ses vêtements se transformèrent également en poussière et disparurent. Seule l'armure intérieure en peau de dragon subsistait, en lambeaux sur son corps.
 
-Wang Lin resta immobile et silencieux, les yeux clos. Après un long moment, il les rouvrit, une lueur bleue émanant de ses pupilles. Bien qu'il n'en fût qu'à la moitié du chemin vers le stade de la Formation du Noyau en termes de culture, sa Méthode de Culture de l'Ascension des Ténèbres avait atteint son achèvement.
+Wang Lin resta immobile et silencieux, les yeux clos. Après un long moment, il les rouvrit, une lueur bleue émanant de ses pupilles. Bien qu'il n'en fût qu'à la moitié du chemin vers le stade de la Formation du Noyau en termes de cultivation, sa Méthode de Cultivation de l'Ascension des Ténèbres avait atteint son achèvement.
 
 Une masse de flammes bleues jaillit de son noyau prototype, traversa son corps avant de se matérialiser dans sa main. À cet instant, une masse de flamme bleue brûlait silencieusement à trois pouces au-dessus de sa paume.
 
-Au lieu de dégager de la chaleur, cette flamme émettait un froid glacial. Elle était l'essence même de la Méthode de Culture de l'Ascension des Ténèbres : la Flamme des Ténèbres.
+Au lieu de dégager de la chaleur, cette flamme émettait un froid glacial. Elle était l'essence même de la Méthode de Cultivation de l'Ascension des Ténèbres : la Flamme des Ténèbres.
 
 Dès l'apparition de la Flamme des Ténèbres, la glace bleue qui l'entourait commença immédiatement à dégager une vapeur blanche, comme si elle était sur le point de fondre. Wang Lin agita la main et la flamme disparut. La vapeur se dissipa lentement, révélant un creux dans la glace.
 

@@ -92,7 +92,7 @@ Une fois l'escalier manifesté, des silhouettes enveloppées d'une lumière dor�
 
 « Enfin libres !! »
 
-« Maintenant que notre culture est rétablie, nous, les célestes, sommes revenus ! »
+« Maintenant que notre cultivation est rétablie, nous, les célestes, sommes revenus ! »
 
 Des rugissements s'élevèrent de ces dizaines de silhouettes dorées. Chacune d'elles dégageait l'aura d'un cultivateur du troisième pas ! Cependant, ces auras différaient de celles des cultivateurs du monde des grottes ; il était difficile de décrire précisément cette différence !
 

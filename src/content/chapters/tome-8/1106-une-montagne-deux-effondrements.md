@@ -42,7 +42,7 @@ Ils étaient les chanceux. Bien qu'ils n'aient pas échappé à la mort, leur do
 
 Ces squelettes ne durèrent qu'un demi-souffle avant de s'effondrer en tas de cendres... Quant à leurs âmes originelles, elles furent consumées par la lave jusqu'au néant.
 
-Les plus douloureux furent les combattants possédant les niveaux de culture les plus élevés. Ils ne périrent pas lors de la première vague de lave, mais ne purent s'en extirper. Ils ne purent que lutter désespérément à l'intérieur. Malgré l'usage de divers sorts et trésors, il leur était impossible d'échapper à cette calamité !
+Les plus douloureux furent les combattants possédant les niveaux de cultivation les plus élevés. Ils ne périrent pas lors de la première vague de lave, mais ne purent s'en extirper. Ils ne purent que lutter désespérément à l'intérieur. Malgré l'usage de divers sorts et trésors, il leur était impossible d'échapper à cette calamité !
 
 Au loin, la bête moustique utilisa sa vitesse fulgurante pour revenir. Ses yeux étaient empreints de froideur alors qu'elle s'engouffrait dans la Montagne qui s'effondre, là où se trouvaient ses congénères. Le sort de Wang Lin avait détruit toutes les forces de scellement, et il n'y avait plus de flammes pour entraver les bêtes moustiques.
 
@@ -80,7 +80,7 @@ Des vagues d'énergie originelle jaillirent de son âme, formant une force viole
 
 « Arrête ! » La voix de Wang Lin était glaciale, et au moment où il parla, l'âme originelle du vieil homme marqua un temps d'arrêt.
 
-Le niveau de culture du vieil homme étant supérieur à celui de Wang Lin, ce dernier activa son énergie originelle de feu pour compenser le rebond du sort « Arrête ». D'un geste de la main droite et d'une simple pensée, le Fouet du Karma apparut tel un dragon et s'élança vers l'Ancien. Un claquement sec retentit, et l'aura destructrice émanant de l'âme originelle fut pulvérisée par le Fouet du Karma.
+Le niveau de cultivation du vieil homme étant supérieur à celui de Wang Lin, ce dernier activa son énergie originelle de feu pour compenser le rebond du sort « Arrête ». D'un geste de la main droite et d'une simple pensée, le Fouet du Karma apparut tel un dragon et s'élança vers l'Ancien. Un claquement sec retentit, et l'aura destructrice émanant de l'âme originelle fut pulvérisée par le Fouet du Karma.
 
 Alors que l'écho du claquement résonnait, l'âme originelle de l'Ancien laissa échapper des cris de douleur. La folie qui habitait ses yeux s'était évanouie, remplacée par une terreur pure. Au moment où il tentait de reculer, le Fouet du Karma le tira violemment vers Wang Lin.
 

@@ -62,7 +62,7 @@ Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit : « I
 
 Wang Lin saisit le jade, joignit les mains et dit : « Je vous remercie infiniment, Senior Ancien Démon. »
 
-Le jeune homme sourit et secoua la tête. Il dit : « C'est moi qui devrais te remercier. Tu devrais partir ; je dois me consacrer à une culture en isolation pendant un certain temps. »
+Le jeune homme sourit et secoua la tête. Il dit : « C'est moi qui devrais te remercier. Tu devrais partir ; je dois me consacrer à une cultivation en isolation pendant un certain temps. »
 
 Wang Lin se leva et fit un pas en avant. Il disparut complètement, quittant le Lac du Dragon.
 
@@ -108,7 +108,7 @@ Cet homme occupait une position singulière ; il semblait que tous les autres di
 
 Avarice le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur frère aîné, Chen Long !
 
-Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement qu'Avarice dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Nu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
+Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa cultivation si parfaitement qu'Avarice dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de cultivation le plus élevé parmi les Douze Épées, même Chou Nu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
 
 Après avoir écouté Chen Long, Avarice réfléchit un instant : « Ces bêtes sont effectivement très étranges ; même moi, je ne les ai jamais vues. L'espace est infini et les cieux agissent de manière mystérieuse ; il est donc impossible pour les cultivateurs de connaître toutes les formes de vie.
 

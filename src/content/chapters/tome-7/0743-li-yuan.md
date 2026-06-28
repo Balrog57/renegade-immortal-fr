@@ -32,7 +32,7 @@ L'homme soupira et murmura : « Peut-être a-t-il percé le secret... »
 
 Une lueur de mépris apparut dans les yeux de l'homme, bien qu'elle fût très soigneusement dissimulée. Il déclara simplement : « Les cultivateurs qui parviennent au Royaume Céleste du Tonnerre sont des êtres ayant pratiqué depuis longtemps et dotés d'une grande intelligence. Si je laisse trop de failles, personne n'y croira. Si je n'en laisse aucune, même si des cultivateurs du second stade arrivent, je suis certain qu'ils ne perceront pas le mystère. »
 
-Une lueur d'intention meurtrière traversa les yeux de la femme, qui esquissa un sourire glacial. « Li Yuan, vous avez du cran. Êtes-vous en train de suggérer que mon temps de culture est trop court ?! »
+Une lueur d'intention meurtrière traversa les yeux de la femme, qui esquissa un sourire glacial. « Li Yuan, vous avez du cran. Êtes-vous en train de suggérer que mon temps de cultivation est trop court ?! »
 
 L'homme réfléchit longuement avant de répondre respectueusement : « Mon âme vit entre les mains de la famille de ma dame, comment oserais-je ?! »
 
@@ -62,7 +62,7 @@ De nouvelles ondulations apparurent sur le rocher à cent pieds de là, et Li Yu
 
 L'expression de la femme changea lorsqu'elle se retourna et fixa Wang Lin, qui venait de surgir. Elle fronça les sourcils, prête à parler, mais Li Yuan s'avança pour faire écran. Il joignit les mains en signe de respect envers Wang Lin et dit lentement : « Camarade cultivateur, nous vous avons offensé tout à l'heure avec cette histoire de restriction. En ce moment... »
 
-« Pourquoi perdre ton temps avec lui ? Le niveau de culture de cet homme est le même que le nôtre. Si nous attaquons ensemble, nous pourrons le donner en pâture à mon animal ! » La femme laissa échapper un ricanement glacial et chargea. Elle frappa son sac de contenance et un éventail de plumes apparut instantanément, volant vers Wang Lin avec une intention meurtrière féroce.
+« Pourquoi perdre ton temps avec lui ? Le niveau de cultivation de cet homme est le même que le nôtre. Si nous attaquons ensemble, nous pourrons le donner en pâture à mon animal ! » La femme laissa échapper un ricanement glacial et chargea. Elle frappa son sac de contenance et un éventail de plumes apparut instantanément, volant vers Wang Lin avec une intention meurtrière féroce.
 
 Li Yuan eut un sourire amer tandis que sa main droite formait un sceau ; des restrictions apparurent aussitôt. Elles se combinèrent pour lancer une attaque coordonnée contre Wang Lin.
 

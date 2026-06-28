@@ -30,7 +30,7 @@ Cependant, il ne s'attendait pas à ce que Wu Feng tienne de tels propos.
 
 « Je n'ai pas autant d'avantages à offrir que toi, et ma chance dans le Royaume Divin Immemorial n'est pas aussi grande que la tienne. » Wu Feng parlait avec calme. Il regarda Wang Lin droit dans les yeux, le regard clair et sincère.
 
-« Mais si tu me suis, tu ne seras pas mon subordonné. Je te prendrai comme disciple pour mon propre maître ! Nos niveaux de culture diffèrent, mais nos statuts seront égaux ! Ce qui est à moi est à toi ! C'est la seule chose que je puisse t'offrir. » Wu Feng contemplait Wang Lin. Il accordait une importance capitale à un tel individu. Il sentait que Wang Lin avait de fortes chances de devenir un Grand Empereur, et une telle personne valait bien un tel engagement.
+« Mais si tu me suis, tu ne seras pas mon subordonné. Je te prendrai comme disciple pour mon propre maître ! Nos niveaux de cultivation diffèrent, mais nos statuts seront égaux ! Ce qui est à moi est à toi ! C'est la seule chose que je puisse t'offrir. » Wu Feng contemplait Wang Lin. Il accordait une importance capitale à un tel individu. Il sentait que Wang Lin avait de fortes chances de devenir un Grand Empereur, et une telle personne valait bien un tel engagement.
 
 Les paroles de Wu Feng stupéfièrent le Grand Empereur Dao Yi, qui resta silencieux. Une telle condition était en effet bien supérieure aux trésors qu'il avait proposés.
 
@@ -112,4 +112,4 @@ Wang Lin regarda le cultivateur jeté au sol, qui baissa les mains pour révéle
 
 Ce changement soudain surprit Wang Lin.
 
-L'Exalt Empereur Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de culture, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres gérer la situation.
+L'Exalt Empereur Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de cultivation, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres gérer la situation.

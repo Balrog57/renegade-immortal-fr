@@ -2,7 +2,7 @@
 n: 1019
 title: Nirvana (3)
 book: 8
-bookTitle: "Alliance's Secret"
+bookTitle: Alliance's Secret
 en: Chapter 1019 - Nirvana (3)
 slug: nirvana-3
 ---
@@ -40,7 +40,7 @@ La lumière grise sous ses pieds disparut aussitôt, tandis qu'une puissante ond
 
 « Troisième sceau : libération ! »
 
-L'ouverture de trois sceaux représentait la limite de la culture de Wang Lin !
+L'ouverture de trois sceaux représentait la limite de la cultivation de Wang Lin !
 
 Le papillon trembla et, en un clin d'œil, se métamorphosa en un papillon aux sept couleurs !
 

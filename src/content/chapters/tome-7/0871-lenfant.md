@@ -26,9 +26,9 @@ Xu Ting laissa échapper un froid reniflement et marcha vers le lac de tonnerre.
 
 Le corps de Xu Ting trembla avant qu'il ne prenne une profonde inspiration. Puis, il fit cinq pas en avant et s'assit en position du lotus.
 
-Après lui, Shengong Hu s'avança. Sa culture était liée au tonnerre et il fréquentait souvent des lieux de ce type ; ce n'était d'ailleurs pas la première fois qu'il pénétrait dans ce lac de foudre. Il entra avec un calme olympien avant de s'asseoir en position du lotus.
+Après lui, Shengong Hu s'avança. Sa cultivation était liée au tonnerre et il fréquentait souvent des lieux de ce type ; ce n'était d'ailleurs pas la première fois qu'il pénétrait dans ce lac de foudre. Il entra avec un calme olympien avant de s'asseoir en position du lotus.
 
-Peu après, d'autres suivirent. Cependant, certains, dont la culture était insuffisante, virent leurs corps trembler dès l'entrée dans le lac et furent contraints de se retirer précipitamment, le visage pâle comme s'ils avaient été blessés.
+Peu après, d'autres suivirent. Cependant, certains, dont la cultivation était insuffisante, virent leurs corps trembler dès l'entrée dans le lac et furent contraints de se retirer précipitamment, le visage pâle comme s'ils avaient été blessés.
 
 Wang Lin observa le jade que Xi Zifeng lui avait confié. Puis il leva les yeux vers elle ; son visage était totalement rouge, mais elle n'osait pas croiser son regard. Il soupira. D'un balayage de son Sens Divin, il comprit que ce jade pouvait parer de puissants éclairs. C'était manifestement un précieux trésor de défense personnelle.
 
@@ -68,7 +68,7 @@ Immédiatement, un cultivateur du Domaine Sud devint livide et cracha du sang. C
 
 La brume autour de Xu Ting se fit plus dense, comme pour isoler le tonnerre. Son expression demeurait neutre tandis qu'il fixait Wang Lin. Il l'observait depuis son entrée, et le comportement de ce dernier était tout simplement trop singulier.
 
-« Ce Xu Mu n'oppose aucune résistance et n'utilise aucun trésor magique. Il reste là, assis calmement, comme s'il était en pleine culture. Le plus étrange, c'est que le puissant tonnerre qui pénètre son corps... disparaît ? » Plus Xu Ting réfléchissait, plus il était stupéfait. Il multipliait les hypothèses, mais malgré ses efforts, la véritable réponse lui échappait.
+« Ce Xu Mu n'oppose aucune résistance et n'utilise aucun trésor magique. Il reste là, assis calmement, comme s'il était en pleine cultivation. Le plus étrange, c'est que le puissant tonnerre qui pénètre son corps... disparaît ? » Plus Xu Ting réfléchissait, plus il était stupéfait. Il multipliait les hypothèses, mais malgré ses efforts, la véritable réponse lui échappait.
 
 Dans le ciel, l'un des messagers leva la main et frappa le tambour noir. Le onzième coup résonna soudainement dans le fracas de la foudre.
 

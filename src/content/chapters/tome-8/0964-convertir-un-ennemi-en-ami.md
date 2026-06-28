@@ -26,7 +26,7 @@ Réaliser plusieurs tâches simultanément était trop facile pour des cultivate
 
 « Pas bon ! » Le vieil homme jura intérieurement et, d'un revers de manches, chargea hors de la pièce à une vitesse fulgurante.
 
-Une onde de choc parcourut Ghost Eye City alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
+Une onde de choc parcourut Ghost Eye City alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de cultivation variés, levèrent les yeux vers le ciel.
 
 L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré leur perception divine, cela ne serait pas arrivé.
 
@@ -44,9 +44,9 @@ Aucun cultivateur du Nirvana Scryer ne pouvait faire cela ; pas même un cultiva
 
 Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nirvana, qu'il s'agisse d'une simple vérification de perception divine ou d'un balayage arrogant, cela restait compréhensible.
 
-S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à Ghost Eye City. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
+S'ils avaient connu son niveau de cultivation au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à Ghost Eye City. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
 
-« Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de culture d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte du Destin Céleste... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de l'Omniscient ? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
+« Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de cultivation d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte du Destin Céleste... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de l'Omniscient ? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
 
 Le vieillard en robe verte, très embarrassé, dit : « Veuillez ne pas nous blâmer, Camarade Cultivateur Wang. Nous trois sommes responsables de cette ville, il est possible que nous vous ayons offensé. Veuillez nous oublier, pardonnez-nous ! »
 
@@ -86,7 +86,7 @@ Wang Lin esquissa un léger sourire. Il n'y avait aucune raison de refuser cette
 
 « Le Frère Wang est trop poli. » Maître Yi Chen s'éloigna alors avec les deux autres.
 
-Bai Wei ne parvenait pas à s'adapter à tout cela. Avec son niveau de culture, il n'aurait jamais interagi avec des cultivateurs de ce rang, même en étant le disciple de l'Omniscient.
+Bai Wei ne parvenait pas à s'adapter à tout cela. Avec son niveau de cultivation, il n'aurait jamais interagi avec des cultivateurs de ce rang, même en étant le disciple de l'Omniscient.
 
 Bientôt, des serviteurs arrivèrent pour installer les deux hommes. Il y avait de nombreuses chambres vacantes. Après le départ de Bai Wei, Xu Liguo suivit instinctivement, mais après un regard froid de Wang Lin, il obéit et suivit son maître.
 
@@ -104,7 +104,7 @@ Wang Lin s'assit tranquillement, les yeux mi-clos. Il semblait contempler la fen
 
 « Se pourrait-il que ce que Bai Wei voulait dire soit caché derrière ces banalités ? Si c'est le cas, il doit faire face à des difficultés qui l'empêchent de s'exprimer directement. Il n'a certainement pas peur de moi, mais... mon Maître ? » Wang Lin sentit qu'il tenait peut-être un indice, sans toutefois en être certain.
 
-« Peut-être existe-t-il des restrictions qui l'empêchent de parler... et il ne peut que donner des indices... » Wang Lin réfléchissait silencieusement à la façon dont l'expression de Bai Wei avait radicalement changé lorsque lui avait interrogé sur sa méthode de culture.
+« Peut-être existe-t-il des restrictions qui l'empêchent de parler... et il ne peut que donner des indices... » Wang Lin réfléchissait silencieusement à la façon dont l'expression de Bai Wei avait radicalement changé lorsque lui avait interrogé sur sa méthode de cultivation.
 
 C'est aussi à ce moment-là que Wang Lin remarqua l'étrange marque formée par les mouvements de l'énergie Yin à l'intérieur de Bai Wei.
 

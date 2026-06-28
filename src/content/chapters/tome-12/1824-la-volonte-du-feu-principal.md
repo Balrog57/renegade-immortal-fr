@@ -64,7 +64,7 @@ Après un long moment, la froideur reprit place dans son regard.
 
 « Même si les Grands Empereurs des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes ! Même si je me suis trompée et que le Grand Empereur derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale du Grand Secte des Âmes ; j'aurai donc raison de le tuer. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empereurs ne peuvent être aussi déraisonnables ! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
 
-Le tempérament de cette femme était farouche, et son niveau de culture actuel était le reflet de sa personnalité ; elle n'abandonnerait pas si facilement. Bien que l'empreinte dorée l'ait déstabilisée, sa décision était prise.
+Le tempérament de cette femme était farouche, et son niveau de cultivation actuel était le reflet de sa personnalité ; elle n'abandonnerait pas si facilement. Bien que l'empreinte dorée l'ait déstabilisée, sa décision était prise.
 
 Ce n'était plus une affaire à la portée de Du Qing.
 

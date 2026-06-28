@@ -102,7 +102,7 @@ Mais une autre scène choqua profondément l'esprit de Wang Lin. C'était un Wan
 
 Il sembla remarquer le regard de Wang Lin et se tourna vers lui. Ses yeux étaient entièrement gris !
 
-Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine culture ; d'autres manifestaient leurs sorts ; l'un d'eux utilisait même le sort céleste "Stop" !
+Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine cultivation ; d'autres manifestaient leurs sorts ; l'un d'eux utilisait même le sort céleste "Stop" !
 
 Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de l'Omniscient, il avait vu la même chose : chaque Omniscient utilisait un sort différent !
 

@@ -16,7 +16,7 @@ Wang Lin n'était pas quelqu'un qui ignorait sa place. Dès que le savant d'âge
 
 Au fil du temps, les bêtes de feu commencèrent à rattraper l'arrière-garde. De plus en plus d'entre elles apparurent derrière l'armée des cultivateurs, exerçant une pression écrasante sur les esprits de chacun.
 
-Un immense bassin se dressait à la frontière de Hou Fen. Une fois l'armée de cultivateurs arrivée sur place, les chefs des diverses sectes et familles de culture, ainsi que les dix-neuf cultivateurs de l'Âme Naissante, entamèrent une importante réunion secrète.
+Un immense bassin se dressait à la frontière de Hou Fen. Une fois l'armée de cultivateurs arrivée sur place, les chefs des diverses sectes et familles de cultivation, ainsi que les dix-neuf cultivateurs de l'Âme Naissante, entamèrent une importante réunion secrète.
 
 À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans le ciel au-dessus du bassin. L'un des cultivateurs de la Secte Lou He s'écria : « Après de nombreuses années d'études, ma Secte Lou He a déterminé que ce lieu est la terre ancestrale des bêtes de feu, le berceau des esprits de feu. Si nous posons un sceau ici, cela affectera tous les volcans de Hou Fen. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plus de mille ans, nous pourrons emprisonner les bêtes de feu à l'intérieur de Hou Fen. »
 
@@ -36,7 +36,7 @@ Aussitôt, la Secte Lou He, la Secte des Cadavres et la Secte des Démons démon
 
 De nouveaux rugissements résonnèrent dans le bassin alors que la fumée rouge se densifiait. Elle convergea en un point précis, prenant diverses formes avant de se transformer en un anneau évidé.
 
-À cet instant, les cultivateurs de l'Âme Naissante issus des familles de culture qui n'étaient pas encore intervenus affichèrent des sourires amers. Ils frappèrent leur propre front pour libérer leurs Âmes Naissantes, qui s'envolèrent vers l'espace vide à l'intérieur de l'anneau pour s'y établir.
+À cet instant, les cultivateurs de l'Âme Naissante issus des familles de cultivation qui n'étaient pas encore intervenus affichèrent des sourires amers. Ils frappèrent leur propre front pour libérer leurs Âmes Naissantes, qui s'envolèrent vers l'espace vide à l'intérieur de l'anneau pour s'y établir.
 
 Un cultivateur de la Secte Lou He cria : « Compagnon cultivateur indépendant, agissez maintenant ! Qu'attendez-vous ? »
 
@@ -56,7 +56,7 @@ Une fois la formation déployée, seuls les mortels pouvaient circuler librement
 
 Alors que le sceau s'opérait, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes saisirent les corps des cultivateurs indépendants. Ceux qui avaient des familles avaient confié leurs restes à ces derniers, tandis que les autres les avaient remis à la Secte Lou He.
 
-Plusieurs cultivateurs de la Secte Lou He se tenaient à l'extérieur de la formation. Ils s'inclinèrent et crièrent : « Chers compagnons, soyez tranquilles pendant que vous maintenez la formation. Nous promettons de protéger vos corps. Ce sceau n'a besoin de durer que trois mois. Je suis convaincu qu'à ce moment-là, nous aurons trouvé refuge à Xuan Wu. Je crois aussi que le pays de culture supérieur viendra alors éliminer les bêtes. Nous viendrons personnellement saluer votre retour. »
+Plusieurs cultivateurs de la Secte Lou He se tenaient à l'extérieur de la formation. Ils s'inclinèrent et crièrent : « Chers compagnons, soyez tranquilles pendant que vous maintenez la formation. Nous promettons de protéger vos corps. Ce sceau n'a besoin de durer que trois mois. Je suis convaincu qu'à ce moment-là, nous aurons trouvé refuge à Xuan Wu. Je crois aussi que le pays de cultivation supérieur viendra alors éliminer les bêtes. Nous viendrons personnellement saluer votre retour. »
 
 Dès que ces mots furent prononcés, les cultivateurs de l'Âme Naissante des trois autres sectes s'inclinèrent avec une sincérité sans faille.
 

@@ -68,25 +68,25 @@ Le Maître Dao Miao Yin cracha un flot de sang et battit en retraite précipitam
 
 « Même si je dois sacrifier un avatar, je dois tenter ma chance ! » Le visage magnifique du Maître Dao Miao Yin se déforma. Il s'arrêta et n'utilisa aucun sort lorsqu'il percuta le brouillard.
 
-Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de l'Esprit Vide, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement !
+Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de l'Esprit Vide, mais à mesure que le brouillard pénétrait en lui, son niveau de cultivation chutait rapidement !
 
-Début de l'Esprit Vide, pic du Nirvana Vide, fin, milieu, début ! En un clin d'œil, sa culture fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement ; son apparence élégante avait disparu.
+Début de l'Esprit Vide, pic du Nirvana Vide, fin, milieu, début ! En un clin d'œil, sa cultivation fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement ; son apparence élégante avait disparu.
 
 Cependant, à cet instant précis, une marque numérique apparut entre ses sourcils ! Dès l'apparition de la marque, une force de succion le tira dans la faille centrale !
 
-« Je comprends... Les cultivateurs de la troisième étape peuvent résister à cette force, mais le début du Nirvana Vide est le niveau de culture le plus élevé capable d'entrer dans la Tombe de l'Ordre Ancien ! »
+« Je comprends... Les cultivateurs de la troisième étape peuvent résister à cette force, mais le début du Nirvana Vide est le niveau de cultivation le plus élevé capable d'entrer dans la Tombe de l'Ordre Ancien ! »
 
 Des scènes similaires se produisaient dans ce brouillard qui s'étendait sur des centaines de millions de kilomètres !
 
-Dans la partie occidentale, une créature gigantesque de la taille d'une planète de culture se trouvait là : le Serpent Moongazer ! Sur son dos siégeait le vieil homme au tatouage Yin et Yang. Il observa la brume et ses yeux s'illuminèrent, car il avait lui aussi percé le mystère du brouillard. Sa main traça rapidement un sceau et pointa entre ses sourcils. Trois fragments de son âme originelle s'envolèrent !
+Dans la partie occidentale, une créature gigantesque de la taille d'une planète de cultivation se trouvait là : le Serpent Moongazer ! Sur son dos siégeait le vieil homme au tatouage Yin et Yang. Il observa la brume et ses yeux s'illuminèrent, car il avait lui aussi percé le mystère du brouillard. Sa main traça rapidement un sceau et pointa entre ses sourcils. Trois fragments de son âme originelle s'envolèrent !
 
 Ils chargèrent respectueusement Wudong Chan, Ji Xiantian et le Serpent Moongazer.
 
 Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugit : « Wudong Chan, Ji Xiantian et Serpent Moongazer ! Vous trois entrerez dans la Tombe de l'Ordre Ancien ! »
 
-Le brouillard surgit soudainement et des marques numériques apparurent entre les sourcils du Serpent Moongazer et des deux autres, avant qu'ils ne soient aspirés. Le vieil homme s'échappa rapidement de la zone d'influence. Il réapparut sur une planète de culture lointaine et se mit à cultiver.
+Le brouillard surgit soudainement et des marques numériques apparurent entre les sourcils du Serpent Moongazer et des deux autres, avant qu'ils ne soient aspirés. Le vieil homme s'échappa rapidement de la zone d'influence. Il réapparut sur une planète de cultivation lointaine et se mit à cultiver.
 
-Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Vermillion Bird appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer avec une culture affaiblie au risque de mourir. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
+Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Vermillion Bird appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer avec une cultivation affaiblie au risque de mourir. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
 
 Ces cultivateurs mouraient tous misérablement, transformés en squelettes. Cependant, le huitième homme trembla mais ne mourut pas ; une marque numérique apparut entre ses sourcils !
 

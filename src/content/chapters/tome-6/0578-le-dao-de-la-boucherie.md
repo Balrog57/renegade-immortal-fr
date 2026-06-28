@@ -16,7 +16,7 @@ L'homme plus âgé lâcha : « Très fort ! »
 
 Les yeux du jeune homme s'illuminèrent alors qu'il murmurait lentement : « Cet homme doit être au stade de la Transformation de l'Âme ! »
 
-« Peu importe son niveau de culture, puisque l'Ancêtre veut le capturer, il ne pourra pas s'échapper ! » L'homme plus âgé prit sa tasse et but une gorgée.
+« Peu importe son niveau de cultivation, puisque l'Ancêtre veut le capturer, il ne pourra pas s'échapper ! » L'homme plus âgé prit sa tasse et but une gorgée.
 
 Puis, il ajouta : « Envoyez les hommes ; ne faites pas attendre l'Ancêtre ! »
 
@@ -50,9 +50,9 @@ Dans le restaurant, à 10 000 pieds de là, le jeune homme se leva brusquement e
 
 Seule l'expression de l'homme plus âgé était restée inchangée.
 
-Le jeune homme dit d'un ton sérieux : « Il a réprimé son énergie, nous ne pouvons donc pas déterminer son niveau exact de culture ! »
+Le jeune homme dit d'un ton sérieux : « Il a réprimé son énergie, nous ne pouvons donc pas déterminer son niveau exact de cultivation ! »
 
-L'homme plus âgé fixa Wang Lin et répondit lentement : « Le niveau de culture de cet homme doit se situer au stade intermédiaire de la Transformation de l'Âme. C'est la seule façon qu'il ait pu tuer le numéro 4, qui avait pourtant un niveau équivalent à celui d'un débutant de la Transformation de l'Âme. Envoyez le numéro 3 ! »
+L'homme plus âgé fixa Wang Lin et répondit lentement : « Le niveau de cultivation de cet homme doit se situer au stade intermédiaire de la Transformation de l'Âme. C'est la seule façon qu'il ait pu tuer le numéro 4, qui avait pourtant un niveau équivalent à celui d'un débutant de la Transformation de l'Âme. Envoyez le numéro 3 ! »
 
 Les yeux du jeune homme brillèrent d'une pointe d'intention de combat. Il secoua la tête et dit doucement : « Pas besoin d'envoyer le numéro 3, j'irai moi-même ! »
 
@@ -62,7 +62,7 @@ Tout en parlant, il se leva une nouvelle fois pour faire face à Wang Lin.
 
 « N'oubliez pas, je suis le numéro 2 ! » Le jeune homme descendit les marches du restaurant.
 
-« Le niveau de culture du numéro 2 équivaut à celui d'un cultivateur au stade avancé de la Transformation de l'Âme ; il n'est qu'à un cheveu d'atteindre le sommet de ce stade. Avec lui, cette bataille ne laisse aucun suspense ! » L'homme plus âgé reprit sa coupe de vin sans même plus regarder par-delà la rivière.
+« Le niveau de cultivation du numéro 2 équivaut à celui d'un cultivateur au stade avancé de la Transformation de l'Âme ; il n'est qu'à un cheveu d'atteindre le sommet de ce stade. Avec lui, cette bataille ne laisse aucun suspense ! » L'homme plus âgé reprit sa coupe de vin sans même plus regarder par-delà la rivière.
 
 Alors que le jeune homme sortait du restaurant, une brise provenant de la rivière fit flotter ses vêtements. Il marcha contre le vent en progressant lentement vers Wang Lin.
 
@@ -106,7 +106,7 @@ L'aura puissante qu'il avait déployée en marchant s'était totalement effondr�
 
 Tous les hommes en robe noire qui observaient depuis le premier étage du restaurant furent frappés de stupeur. Bien qu'ils fussent éloignés, ils eurent l'impression d'être sur le lieu même de l'affrontement. La sueur qui perla sur leurs corps trempa instantanément leurs vêtements.
 
-Avec leur niveau de culture, ils ne comprenaient pas comment un regard porté depuis 10 000 pieds pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie !
+Avec leur niveau de cultivation, ils ne comprenaient pas comment un regard porté depuis 10 000 pieds pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie !
 
 Au deuxième étage, les yeux de l'homme plus âgé s'illuminèrent ; il se leva brusquement et fit exploser la table devant lui par réflexe.
 
@@ -118,13 +118,13 @@ Tout ce qu'il faisait était instinctif ; il sentait que s'il n'avait pas résis
 
 Son regard vers Wang Lin devint d'une gravité extrême, une expression qu'il ne réservait que lorsqu'il faisait face aux Gardiens Célestes !
 
-« C'est trop terrifiant ! Bien que mon niveau de culture soit le même que le sien, je ne suis absolument pas de taille. Je dois partir, et vite ! » L'homme n'hésita pas une seconde. Son corps s'agita pour entamer une téléportation, mais il fut immédiatement expulsé du vide.
+« C'est trop terrifiant ! Bien que mon niveau de cultivation soit le même que le sien, je ne suis absolument pas de taille. Je dois partir, et vite ! » L'homme n'hésita pas une seconde. Son corps s'agita pour entamer une téléportation, mais il fut immédiatement expulsé du vide.
 
 Son expression changea radicalement ; renonçant à la téléportation, il se redressa d'un bond. L'énergie spirituelle céleste et démoniaque qu'il libéra provoqua l'effondrement du deuxième étage. Il s'élança hors du restaurant, résolu à fuir coûte que coûte.
 
 Mais il s'immobilisa brusquement dans les airs, une sueur froide trempant tout son corps. Wang Lin se tenait à dix pieds de lui, le regardant calmement.
 
-« Tu as perturbé ma culture et tu prétends encore t'enfuir ? »
+« Tu as perturbé ma cultivation et tu prétends encore t'enfuir ? »
 
 L'homme plus âgé afficha un sourire amer, ses yeux brillant d'une lueur de folie. Sans aucune hésitation, il toucha le sceau qu'il n'avait jamais voulu activer de sa vie, et l'énergie spirituelle céleste et démoniaque dans son corps explosa instantanément !
 

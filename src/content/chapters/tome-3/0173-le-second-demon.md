@@ -28,9 +28,9 @@ Lors de la bataille précédente, environ deux cents de ces créatures avaient �
 
 Une fois la tornade partie, Wang Lin poussa un soupir de soulagement. Simultanément, son cœur se glaça. Cette épreuve terrestre était très étrange ; sa logique était l'exact opposé de la normale. Habituellement, lorsqu'on remarque que des créatures sont spécialisées dans les attaques de sens divin et sonores mais possèdent des corps faibles, la première réaction est de les exterminer le plus vite possible pour éviter d'en attirer davantage.
 
-Mais ici, une fois qu'un certain nombre de ces créatures étaient tuées et qu'elles commençaient à appeler au secours, à moins de posséder une culture divine, la seule issue restante était la mort.
+Mais ici, une fois qu'un certain nombre de ces créatures étaient tuées et qu'elles commençaient à appeler au secours, à moins de posséder une cultivation divine, la seule issue restante était la mort.
 
-Wang Lin se mit en culture au sommet de la tour noire et scruta l'horizon, observant là où tous les tourbillons noirs convergeaient. Après avoir mûri sa réflexion, il décida de ne pas précipiter les choses et d'attendre à l'intérieur de la tour.
+Wang Lin se mit en cultivation au sommet de la tour noire et scruta l'horizon, observant là où tous les tourbillons noirs convergeaient. Après avoir mûri sa réflexion, il décida de ne pas précipiter les choses et d'attendre à l'intérieur de la tour.
 
 Il tourna ensuite son regard vers le démon. Le visage de ce dernier était empreint de cupidité en voyant la tornade s'éloigner.
 
@@ -58,9 +58,9 @@ Ses seuls autres trésors étaient le tendon de dragon et le parchemin. Cependan
 
 La clé pour élever un démon résidait dans la nature particulière de l'âme. L'âme du premier démon possédait le potentiel d'un cultivateur de l'Âme Naissante. Cela avait permis à Wang Lin de l'élever de telle sorte qu'il acquière certains attributs des âmes errantes. Toutefois, par rapport aux véritables âmes errantes du monde de la décomposition, les différences demeuraient nombreuses.
 
-Une véritable âme errante, quel que soit le niveau de culture de sa proie, pouvait dévorer l'âme et aspirer toute l'essence de la chair dès qu'elle s'y jetait. À moins de croiser un cultivateur extrêmement puissant capable de les anéantir, leurs seuls ennemis naturels étaient les dévoreurs d'âmes.
+Une véritable âme errante, quel que soit le niveau de cultivation de sa proie, pouvait dévorer l'âme et aspirer toute l'essence de la chair dès qu'elle s'y jetait. À moins de croiser un cultivateur extrêmement puissant capable de les anéantir, leurs seuls ennemis naturels étaient les dévoreurs d'âmes.
 
-Cependant, le démon Xu Liguo ne pouvait dévorer que des âmes de niveau de culture équivalent au sien. S'il tentait de s'attaquer à l'âme d'un cultivateur de l'Âme Naissante, il risquait d'être repoussé.
+Cependant, le démon Xu Liguo ne pouvait dévorer que des âmes de niveau de cultivation équivalent au sien. S'il tentait de s'attaquer à l'âme d'un cultivateur de l'Âme Naissante, il risquait d'être repoussé.
 
 Ce qui fascinait Wang Lin, c'était la capacité de ces petites créatures à fusionner. C'était la première fois qu'il voyait des sens divins capables de se fondre pour en former un nouveau. Cette aptitude particulière lui donnait l'envie de s'en servir pour créer un démon.
 

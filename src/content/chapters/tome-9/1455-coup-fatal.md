@@ -16,7 +16,7 @@ C'était pour lui un moment de vie ou de mort !
 
 Tenant la rune, le Maître Dao Miao Yin l'écrasa, la transformant en une pluie d'étincelles lumineuses.
 
-Le visage de la Grande Désolation pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit : « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux ; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme ? Une simple bouchée de sang suffit ! »
+Le visage de la Grande Désolation pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit : « La méthode de cultivation de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux ; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme ? Une simple bouchée de sang suffit ! »
 
 Au moment où la Grande Désolation cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
 
@@ -112,7 +112,7 @@ C'était l'atout de Wang Lin, le coup le plus puissant qu'il avait préparé pou
 
 L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien [1], n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
-Le Maître Dao Miao Yin était l'un des cinq grands maîtres ; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Great Desolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
+Le Maître Dao Miao Yin était l'un des cinq grands maîtres ; ainsi, bien que sa cultivation fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Great Desolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
 
 Le plus important était que la compréhension que Miao Yin avait de Wang Lin s'était arrêtée à la Planète du Grand Empereur. Il n'aurait jamais pu imaginer que Wang Lin serait capable de prendre le contrôle de Ling Dong, qui se trouvait déjà à demi-pas du troisième niveau.
 
@@ -140,7 +140,7 @@ Si Wang Lin avait enfoncé totalement les aiguilles, Miao Yin n'aurait eu que pe
 
 Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésiter, il traça un sceau de la main et, dans un rugissement, projeta l'intégralité de l'océan dans le Fourneau de l'Empereur.
 
-Le Fourneau de l'Empereur abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
+Le Fourneau de l'Empereur abritait d'innombrables royaumes, mais avec le niveau de cultivation de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
 
 À cet instant, alors que le Maître Dao Miao Yin et Great Desolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes de Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
 

@@ -16,13 +16,13 @@ La vieille femme à ses côtés était stupéfaite par ce spectacle. La puissanc
 
 « Avant de combattre le Daoïste Water, j'étais à mi-chemin du stade de la Rupture du Nirvana et je pouvais affronter des cultivateurs du Premier Fléau Céleste. Cependant, ce serait une bataille acharnée. Pour gagner, j'aurais dû payer un prix, et ce serait extrêmement difficile !
 
-Cependant, pour l'instant, je n'ai pas encore levé le sceau de ma culture. Après avoir compris mon premier sort taoïste dans le royaume du Dao, mon corps s'est renforcé, et je peux déjà vaincre des cultivateurs du Premier Fléau Céleste ! Quant aux cultivateurs du Deuxième Fléau Céleste, même si je ne suis pas aussi puissant qu'eux, avec cette arme de dieu ancien, je peux tenir tête ! »
+Cependant, pour l'instant, je n'ai pas encore levé le sceau de ma cultivation. Après avoir compris mon premier sort taoïste dans le royaume du Dao, mon corps s'est renforcé, et je peux déjà vaincre des cultivateurs du Premier Fléau Céleste ! Quant aux cultivateurs du Deuxième Fléau Céleste, même si je ne suis pas aussi puissant qu'eux, avec cette arme de dieu ancien, je peux tenir tête ! »
 
 Parmi les stades du Fléau Céleste, l'écart entre chaque étape est immense. Après tout, si l'on échoue à l'une d'elles, on meurt ; mais si l'on réussit, on obtient un pouvoir inimaginable !
 
 C'était une puissance acquise au prix de sa propre vie, il était donc difficile de la surpasser.
 
-« Pourtant, si j'ouvre le sceau, mon niveau de culture augmentera considérablement. Seulement 10 ans se sont écoulés dans le monde extérieur, mais j'ai médité pendant une éternité dans la Perle Défiant le Ciel. Par conséquent, si mon sceau est levé, j'aurai une chance d'atteindre le stade intermédiaire de la Rupture du Nirvana en une seule fois ! Si j'atteins ce stade, les cultivateurs du Deuxième Fléau Céleste ne seront plus de taille face à moi. Je devrais même pouvoir combattre des cultivateurs du Troisième Fléau Céleste ! » Les yeux de Wang Lin brillèrent d'un éclat intense.
+« Pourtant, si j'ouvre le sceau, mon niveau de cultivation augmentera considérablement. Seulement 10 ans se sont écoulés dans le monde extérieur, mais j'ai médité pendant une éternité dans la Perle Défiant le Ciel. Par conséquent, si mon sceau est levé, j'aurai une chance d'atteindre le stade intermédiaire de la Rupture du Nirvana en une seule fois ! Si j'atteins ce stade, les cultivateurs du Deuxième Fléau Céleste ne seront plus de taille face à moi. Je devrais même pouvoir combattre des cultivateurs du Troisième Fléau Céleste ! » Les yeux de Wang Lin brillèrent d'un éclat intense.
 
 Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir le monde entier entre ses poings lorsqu'il les serrait. La confiance inondait son cœur !
 
@@ -30,7 +30,7 @@ Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir
 
 Avant son combat contre le Daoïste Water, Wang Lin considérait le troisième niveau comme un royaume légendaire et dévastateur, capable de briser le ciel, que seuls les vrais dieux pouvaient atteindre. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
 
-Cependant, désormais, parce que la culture de Wang Lin s'était améliorée, parce qu'il avait combattu le Daoïste Water et parce qu'il avait atteint la compréhension dans le royaume du Dao, le voile mystérieux entourant les cultivateurs du troisième niveau s'était déchiré. Leur légende d'invincibilité s'effondrait, et il ne restait plus que l'intention meurtrière de Wang Lin !
+Cependant, désormais, parce que la cultivation de Wang Lin s'était améliorée, parce qu'il avait combattu le Daoïste Water et parce qu'il avait atteint la compréhension dans le royaume du Dao, le voile mystérieux entourant les cultivateurs du troisième niveau s'était déchiré. Leur légende d'invincibilité s'effondrait, et il ne restait plus que l'intention meurtrière de Wang Lin !
 
 Franchissant la région de rang 8 avec la détermination de sauver Li Qianmei, Wang Lin pénétrait pour la première fois dans la région de rang 9 !
 
@@ -46,7 +46,7 @@ Ses pupilles avaient disparu, totalement remplacées par une lumière septicolor
 
 Ignorant le Daoïste Water pour l'instant, une fois Wang Lin entré dans la région de rang 9, la vieille femme prit immédiatement les devants. Tous deux percèrent le brouillard et chargèrent vers le Secte des Démons !
 
-Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais Wang Lin n'avait pas le temps de les tuer et ne voulait pas être ralenti. Dès qu'il pénétra dans la brume, sa culture explosa et une intention meurtrière monstrueuse terrassa toutes les bêtes environnantes. Le brouillard fut repoussé et les bêtes cachées à l'intérieur s'écartèrent pour lui laisser le passage !
+Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais Wang Lin n'avait pas le temps de les tuer et ne voulait pas être ralenti. Dès qu'il pénétra dans la brume, sa cultivation explosa et une intention meurtrière monstrueuse terrassa toutes les bêtes environnantes. Le brouillard fut repoussé et les bêtes cachées à l'intérieur s'écartèrent pour lui laisser le passage !
 
 « Secte Divin, Daoïste Water, je vous tuerai sans faute ! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
 
@@ -74,7 +74,7 @@ Li Qianmei était l'une des trois personnes ayant obtenu cette reconnaissance. M
 
 Cependant, Li Qianmei étant partie depuis 10 ans, la colère du Secte des Démons s'était éveillée. Pour eux, il n'y avait aucune raison légitime de s'absenter pendant une décennie. S'ils ne la punissaient pas, ils ne seraient plus le Secte des Démons !
 
-À cet instant, à l'extérieur de la fissure spatiale, près du cercle formé par les six planètes de culture du Secte des Démons, des milliers de génies de la Mer des Nuages se livraient à un combat acharné. Toutes sortes de sorts étaient déployés.
+À cet instant, à l'extérieur de la fissure spatiale, près du cercle formé par les six planètes de cultivation du Secte des Démons, des milliers de génies de la Mer des Nuages se livraient à un combat acharné. Toutes sortes de sorts étaient déployés.
 
 À l'intérieur de la fissure, divers types de bêtes rugissaient et luttaient pour s'extraire de la brèche afin d'anéantir tout ce qui se trouvait sur leur passage ! Leur férocité était radicalement différente de celle des bêtes féroces de la Mer des Nuages. Elles étaient bien plus puissantes !
 

@@ -22,7 +22,7 @@ Wang Lin n'avait pas le temps de trop réfléchir. Il savait seulement qu'il dev
 
 À cet instant, il s'approcha de la montagne et joignit les mains contre le sol.
 
-« Je vais prendre cette montagne, mais je vous rembourserai certainement à l'avenir. Je suis prêt à payer n'importe quel prix ! J'espère que mes frères de culture du Sect Everlasting pourront m'aider cette fois ! » Sur ces mots, Wang Lin fit un pas en avant et se posa sur la montagne.
+« Je vais prendre cette montagne, mais je vous rembourserai certainement à l'avenir. Je suis prêt à payer n'importe quel prix ! J'espère que mes frères de cultivation du Sect Everlasting pourront m'aider cette fois ! » Sur ces mots, Wang Lin fit un pas en avant et se posa sur la montagne.
 
 Il n'hésita pas une seconde. Dès que ses pieds touchèrent le sol, toute sa puissance de dieu ancien s'activa. En un éclair, la montagne sembla s'éveiller et une aura antique en jaillit.
 
@@ -50,7 +50,7 @@ Ces six auras appartenaient à des cultivateurs extrêmement puissants au premie
 
 « Li Zhihao !!! C'est toi !! Que fais-tu ?! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière !
 
-Wang Lin n'avait jamais vu ce vieil homme auparavant, mais d'après son niveau de culture, il était évident qu'il s'agissait de l'un des Grands Anciens du Sect Everlasting !
+Wang Lin n'avait jamais vu ce vieil homme auparavant, mais d'après son niveau de cultivation, il était évident qu'il s'agissait de l'un des Grands Anciens du Sect Everlasting !
 
 Les yeux du vieillard brillaient de soif de sang alors qu'il agitait sa main droite, faisant résonner le tonnerre. Un orage infini apparut dans le ciel et fut entièrement absorbé par la main de l'homme. Puis, dix-neuf sphères de tonnerre capables de fendre les cieux furent projetées vers Wang Lin !
 
@@ -84,7 +84,7 @@ Au moment où leur sort et l'épée-dragon arrivèrent, Wang Lin pointa l'avant 
 
 Les dix millions de rayons éblouissants couvrirent le ciel entier ! Même Daoist Water avait été blessé par une telle puissance, alors cette attaque était phénoménale ! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
 
-Des grondements tonitruants résonnèrent à travers la planète de culture ; même le brouillard entourant la planète fut repoussé comme s'il craignait l'approche de ce pouvoir ! Lorsque l'homme en robe noire percuta les rayons d'énergie, la foudre autour de lui s'effondra. Il cracha du sang et recula immédiatement, révélant une expression de terreur qu'il n'avait jamais montrée auparavant !
+Des grondements tonitruants résonnèrent à travers la planète de cultivation ; même le brouillard entourant la planète fut repoussé comme s'il craignait l'approche de ce pouvoir ! Lorsque l'homme en robe noire percuta les rayons d'énergie, la foudre autour de lui s'effondra. Il cracha du sang et recula immédiatement, révélant une expression de terreur qu'il n'avait jamais montrée auparavant !
 
 L'expression du Maître du Sect changea radicalement ; il agita l'épée-dragon, créant d'innombrables lames. Des bruits de rupture résonnèrent alors qu'il tentait de résister, mais la tempête des dix millions de rayons d'énergie l'obligea à battre en retraite. Il ne pouvait absolument pas approcher Wang Lin.
 
@@ -94,19 +94,19 @@ L'expression du Maître du Sect changea radicalement ; il agita l'épée-dragon,
 
 Le Maître du Sect Everlasting esquiva l'énergie et dit d'un ton sombre : « Pourquoi le Sect Everlasting vous prêterait-il quoi que ce soit ? Pourquoi devrions-nous vous croire ?! »
 
-« Le fait que Daoist Water du Sect de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une culture en porte fermée avec de graves blessures ! Ou le fait que je sois prêt à prêter un serment de sang ! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin ! La rune s'échappa de la tempête d'épée et flotta devant le Maître du Sect Everlasting.
+« Le fait que Daoist Water du Sect de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une cultivation en porte fermée avec de graves blessures ! Ou le fait que je sois prêt à prêter un serment de sang ! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin ! La rune s'échappa de la tempête d'épée et flotta devant le Maître du Sect Everlasting.
 
 Les paroles de Wang Lin furent comme un coup de tonnerre qui choqua l'esprit du Maître du Sect et du vieil homme en noir !
 
 « Daoist Water du Sect de Dieu a échoué à vous tuer ?! » Le Maître du Sect laissa échapper un souffle, les yeux remplis d'incrédulité.
 
-« Absurde, personne au monde ne vous croirait. Votre serment de sang est inutile à mes yeux ! » L'homme en noir avait dû reculer deux fois face à Wang Lin. Avec son niveau de culture et son statut, une telle situation était inédite. Il ricana, les yeux brillants, et tendit sa main droite vers le serment de sang de Wang Lin pour l'écraser sans pitié !
+« Absurde, personne au monde ne vous croirait. Votre serment de sang est inutile à mes yeux ! » L'homme en noir avait dû reculer deux fois face à Wang Lin. Avec son niveau de cultivation et son statut, une telle situation était inédite. Il ricana, les yeux brillants, et tendit sa main droite vers le serment de sang de Wang Lin pour l'écraser sans pitié !
 
 La rune de sang s'effondra dans un fracas !
 
 Le visage de Wang Lin devint instantanément pâle, mais son regard se fit glacial. Il avait fait preuve de bienveillance. Ce trésor du dieu ancien n'appartenait pas au Sect Everlasting et, par respect pour eux, il avait été extrêmement sincère, n'hésitant même pas à laisser un serment de sang. Pourtant, tout cela était vain !
 
-« Seule la force parle dans le monde de la culture. Les forts sont respectés... » Les yeux de Wang Lin s'illuminèrent.
+« Seule la force parle dans le monde de la cultivation. Les forts sont respectés... » Les yeux de Wang Lin s'illuminèrent.
 
 À cet instant précis, les quatre autres auras puissantes convergèrent soudainement. Il s'agissait des quatre Grands Anciens du Sect Everlasting, tous extrêmement redoutables !
 

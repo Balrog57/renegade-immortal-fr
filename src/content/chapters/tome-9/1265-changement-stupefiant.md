@@ -14,7 +14,7 @@ Elle était venue informer Wang Lin de ce qui s'était passé au sein de l'Allia
 
 Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunaire, s'arrêta devant la cour. Elle marqua une pause, sans se retourner, puis murmura :
 
-« Li Qianmei est plutôt douée... Cependant, tu ne peux toujours pas oublier la petite sœur Wan Er... Je crois que si la petite sœur Wan Er se réveillait, elle ne voudrait pas te voir solitaire pendant des milliers d'années... Je ne veux pas non plus te voir ainsi. Après aujourd'hui, je me rendrai au Secte Divin pour me rétablir et je ne quitterai probablement pas la culture en ermitage pendant mille ans. J'ignore si nous nous reverrons dans un millénaire. Pourtant, Wang Lin... j'ai quelque chose que je veux te dire.
+« Li Qianmei est plutôt douée... Cependant, tu ne peux toujours pas oublier la petite sœur Wan Er... Je crois que si la petite sœur Wan Er se réveillait, elle ne voudrait pas te voir solitaire pendant des milliers d'années... Je ne veux pas non plus te voir ainsi. Après aujourd'hui, je me rendrai au Secte Divin pour me rétablir et je ne quitterai probablement pas la cultivation en ermitage pendant mille ans. J'ignore si nous nous reverrons dans un millénaire. Pourtant, Wang Lin... j'ai quelque chose que je veux te dire.
 
 "Je suis Liu Mei, la mère de Wang Ping... Lorsque je me libérerai du Royaume du Vide Brillant, j'accompagnerai Wang Ping à travers d'innombrables cycles de réincarnation et je serai une véritable mère", murmura Mu Bingmei en s'éloignant progressivement. Son cœur dao tendait vers la complétion après avoir prononcé ces mots.
 
@@ -26,7 +26,7 @@ Cette fissure, c'était Liu Mei, aussi Wang Lin, mais surtout Wang Ping ! Cepend
 
 C'est grâce à ce changement que son dao commença à montrer des signes de complétion. L'impitoyabilité et l'affection étaient les deux faces d'une même pièce !
 
-Culture, culture... si l'on utilise l'impitoyabilité des cieux pour cultiver le dao, le résultat final ne sera pas assez noble pour être appelé un dao !
+Cultivation, cultivation... si l'on utilise l'impitoyabilité des cieux pour cultiver le dao, le résultat final ne sera pas assez noble pour être appelé un dao !
 
 Lorsqu'un cultivateur possède une once d'affection, il peut s'en servir pour défier le dao. Cela permet au cultivateur d'avoir un trésor précieux à protéger, ce qui le rend prêt à lutter contre le monde entier.
 
@@ -104,12 +104,12 @@ Tout en réfléchissant, il retourna rapidement vers la Secte d'Origine pour con
 
 Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation terrifiante ne cessait de croître. Même en tentant de cultiver, il ne parvenait pas à apaiser son esprit.
 
-« Vite, organisez les affaires de la Secte d'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai ! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son âme originelle pénétra rapidement le Sceau Céleste pour fusionner avec l'âme de l'Omniscient.
+« Vite, organisez les affaires de la Secte d'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai ! » Dès son retour, il donna ses ordres et se lança immédiatement en cultivation en ermitage. Son âme originelle pénétra rapidement le Sceau Céleste pour fusionner avec l'âme de l'Omniscient.
 
 Cette fois, il ne fusionnait pas avec l'Omniscient pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu !
 
 Au même moment, dans le Secte Briseur de Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 
-Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert ; elle était devenue une formation de scellement ! Son maître avait interrompu sa quasi-éternelle culture en ermitage et se tenait à l'extérieur de la structure. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément !
+Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert ; elle était devenue une formation de scellement ! Son maître avait interrompu sa quasi-éternelle cultivation en ermitage et se tenait à l'extérieur de la structure. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément !
 
 « Il est interdit de franchir cette formation pendant trois mois ! Faute de quoi, tu seras punie conformément aux lois de la secte ! »

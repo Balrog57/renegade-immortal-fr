@@ -16,7 +16,7 @@ Ce pilier de lumière perça les cieux, se transformant en d'immenses anneaux de
 
 Quelques oiseaux noirs et laids passèrent par là et furent fortuitement balayés par cette énergie. Leurs corps tremblèrent violemment alors qu'une épaisse fumée noire s'en échappait pour se dissiper. Une fois le gaz noir disparu, ces oiseaux se métamorphosèrent soudainement en grues blanches ; elles poussèrent des cris de joie et, l'œil empreint d'intelligence, s'envolèrent en dessinant une courbe magnifique dans le ciel.
 
-Le Territoire des Esprits Démoniaques était saturé d'énergie démoniaque, source de culture pour ses habitants. À cet instant, une scène prodigieuse se déroula dans les cieux. L'énergie démoniaque qui imprégnait la terre entra en collision avec l'énergie spirituelle céleste. Ce fut un affrontement féroce : comme le feu et l'eau, les deux forces refusaient de se mélanger, provoquant des altérations étranges.
+Le Territoire des Esprits Démoniaques était saturé d'énergie démoniaque, source de cultivation pour ses habitants. À cet instant, une scène prodigieuse se déroula dans les cieux. L'énergie démoniaque qui imprégnait la terre entra en collision avec l'énergie spirituelle céleste. Ce fut un affrontement féroce : comme le feu et l'eau, les deux forces refusaient de se mélanger, provoquant des altérations étranges.
 
 Toutefois, l'énergie démoniaque locale était si puissante qu'un seul pilier ne suffisait pas ; il fut rapidement réprimé par l'influence environnante. Mais alors que davantage d'énergie spirituelle céleste jaillissait du pilier, celui-ci parvint enfin à couvrir un rayon de 50 kilomètres, créant une zone assez dense pour empêcher l'énergie démoniaque de l'engloutir totalement.
 
@@ -40,7 +40,7 @@ L'apparition successive des trois piliers de lumière dans le Territoire des Esp
 
 L'énergie spirituelle céleste émanant des trois piliers semblait engager trois combats simultanés contre l'énergie démoniaque. Hormis à l'est, le ciel au-dessus du Territoire des Esprits Démoniaques était paré de lumières multicolores. Cependant, l'énergie démoniaque accumulée depuis des éons était si vaste que les trois piliers ne suffisaient pas encore à ébranler le domaine.
 
-Dans la première grotte, le Couple de Culture Céleste se tenait silencieusement au cœur de la grande formation. Bien que Wang Wei paraisse calme, une pointe d'excitation irrépressible brillait dans ses yeux. Il prit une profonde inspiration et murmura : « Ce jour... Le jour que nous attendions est enfin arrivé... »
+Dans la première grotte, le Couple de Cultivation Céleste se tenait silencieusement au cœur de la grande formation. Bien que Wang Wei paraisse calme, une pointe d'excitation irrépressible brillait dans ses yeux. Il prit une profonde inspiration et murmura : « Ce jour... Le jour que nous attendions est enfin arrivé... »
 
 Hu Juan, debout à ses côtés, lui prit la main et dit doucement : « Nous réussirons cette fois. »
 

@@ -10,7 +10,7 @@ Chapitre 1690 - Impossible de se tromper !
 
 Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin décochait sa deuxième flèche. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin !
 
-Compte tenu de son niveau de culture, il était déjà entré dans le stade du Tribulant Arcanique ; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire ! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.
+Compte tenu de son niveau de cultivation, il était déjà entré dans le stade du Tribulant Arcanique ; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire ! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.
 
 Dans ce monde caverneux, il était le chef des Cinq Maîtres du Royaume Céleste Antique. Il avait joui d'un rang prestigieux durant d'innombrables années et était vénéré comme un dieu par une multitude de cultivateurs. Il était habitué à dominer les autres.
 
@@ -50,7 +50,7 @@ Cette fois, il avait tout calculé sans la moindre faille et avait forcé Wang L
 
 Cependant, même dans ses rêves les plus fous, le Souverain n'aurait pu prédire l'accident qui survint. L'apparition du fou déclencha une onde de choc monstrueuse dans son cœur et provoqua l'effondrement total de sa calamité de vie et de mort !
 
-Non seulement il n'avait pas tué Wang Lin, mais il était devenu la raison pour laquelle le niveau de culture de Wang Lin avait augmenté si rapidement. Cet événement plongea le Souverain dans une profonde mélancolie !
+Non seulement il n'avait pas tué Wang Lin, mais il était devenu la raison pour laquelle le niveau de cultivation de Wang Lin avait augmenté si rapidement. Cet événement plongea le Souverain dans une profonde mélancolie !
 
 Cependant, il ne reconnut toujours pas Wang Lin et s'obstina à croire que celui-ci n'était que chanceux. Ce n'est qu'à la cinquième fois, lorsque Wang Lin l'abattit avec la flèche, que le Souverain reprit ses esprits après avoir survécu grâce au sortilège des trois vies.
 
@@ -60,7 +60,7 @@ Wang Lin était comme une épine dans le cœur du Souverain. Chaque fois qu'il p
 
 « Cette fois, il est impossible de se tromper ! » Le Souverain apparut à 100 000 pieds de Wang Lin. Il fixa ce dernier, agita ses manches et s'élança vers lui.
 
-Sa culture du Tribulant Arcanique se déploya, faisant trembler l'espace lui-même sous l'effet d'une ondulation invisible. Wang Lin resta calme, mais fut contraint de reculer.
+Sa cultivation du Tribulant Arcanique se déploya, faisant trembler l'espace lui-même sous l'effet d'une ondulation invisible. Wang Lin resta calme, mais fut contraint de reculer.
 
 Le Souverain n'était pas un adversaire que Wang Lin pouvait affronter de front. Tandis que la puissance du Souverain éclatait, Wang Lin ressemblait à une feuille solitaire bravant la fureur de l'océan. Il continua sa retraite.
 
@@ -102,7 +102,7 @@ Derrière ce bouclier, des éclats de lumières colorées résonnèrent et un pa
 
 Dès le contact, Wang Lin sentit son corps sur le point de s'effondrer. Il cracha du sang et fut repoussé. L'index droit de Wang Lin fut instantanément désintégré par l'empreinte, mais se reforma aussitôt. En quelques respirations seulement, son doigt fut détruit et reconstitué plus de mille fois !
 
-La différence de niveau de culture était comparable à un gouffre béant ; elle dépassait de loin ce que Wang Lin pouvait surmonter. Après quelques instants, bien que son index puisse encore tenir le choc, son corps ne le pouvait plus. Des blessures apparurent partout sur lui et une douleur intense l'assaillit.
+La différence de niveau de cultivation était comparable à un gouffre béant ; elle dépassait de loin ce que Wang Lin pouvait surmonter. Après quelques instants, bien que son index puisse encore tenir le choc, son corps ne le pouvait plus. Des blessures apparurent partout sur lui et une douleur intense l'assaillit.
 
 Le Bouclier d'Ombre et de Lumière se tordit, vacilla, puis s'effondra !
 

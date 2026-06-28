@@ -38,13 +38,13 @@ Une intention meurtrière monstrueuse émana de l'épée au moment de sa chute. 
 
 Le corps de Huan Fengshen se raidit soudainement.
 
-« Ceci... Ceci est... » L'esprit de Huan Fengshen trembla. C'était comme si une épée venait de lui transpercer les sourcils pour ressortir par le sommet de son crâne. Inconsciemment, il recula de plusieurs pas. Avec sa culture au stade avancé de l'Ascendant, il n'était pas capable de percevoir la Loi de l'épée. Cependant, il sentit clairement qu'au moment où l'épée tomba, elle semblait contenir une loi céleste, mais plus encore, elle possédait le pouvoir de déchirer les cieux.
+« Ceci... Ceci est... » L'esprit de Huan Fengshen trembla. C'était comme si une épée venait de lui transpercer les sourcils pour ressortir par le sommet de son crâne. Inconsciemment, il recula de plusieurs pas. Avec sa cultivation au stade avancé de l'Ascendant, il n'était pas capable de percevoir la Loi de l'épée. Cependant, il sentit clairement qu'au moment où l'épée tomba, elle semblait contenir une loi céleste, mais plus encore, elle possédait le pouvoir de déchirer les cieux.
 
 Bang, bang, bang ! Huan Fengshen sentit son propre cœur s'emballer. Il eut l'illusion qu'il allait s'effondrer avec le monde.
 
 Tous les descendants directs de la famille Huan qui scrutaient le ciel étaient frappés de stupeur. Cette simple chute leur donnait l'impression d'en faire partie, comme si l'épée qui déchirait le monde les avait eux aussi scindés en deux. Ils furent immédiatement couverts de sueur froide.
 
-Avec leur niveau de culture, ils ne comprenaient pas pourquoi ils ressentaient une telle chose, même sous la protection de la formation. L'adversaire s'était contenté de baisser son épée. En cet instant, la peur de la mort commença à se propager.
+Avec leur niveau de cultivation, ils ne comprenaient pas pourquoi ils ressentaient une telle chose, même sous la protection de la formation. L'adversaire s'était contenté de baisser son épée. En cet instant, la peur de la mort commença à se propager.
 
 Non seulement eux, mais les yeux de Qian Kuizi, qui observait via son Sens Divin, brillèrent intensément. Depuis la chambre secrète du domaine de la famille Qian, il se redressa brusquement.
 
@@ -58,13 +58,13 @@ L'épée tomba, et à cet instant, tout son son disparut du monde. La formation 
 
 Après avoir rengainé son épée, le visage de Wang Lin était pâle. Cependant, son regard devint plus glacial encore alors qu'il fixait la famille Huan en contrebas.
 
-L'impact du Coup Céleste sur le corps était immense, et cela n'avait rien à voir avec le niveau de culture. Cela reposait sur l'énergie d'origine issue de l'intégration parfaite entre l'âme d'origine et le corps !
+L'impact du Coup Céleste sur le corps était immense, et cela n'avait rien à voir avec le niveau de cultivation. Cela reposait sur l'énergie d'origine issue de l'intégration parfaite entre l'âme d'origine et le corps !
 
-L'âme d'origine et l'énergie d'origine d'un cultivateur Ascendant sont fusionnées en une seule entité. Pourtant, le Coup Céleste peut séparer une partie de cette énergie d'origine. Un Ascendant ne possède qu'une quantité fixe d'énergie d'origine ; si trop est perdue, sa culture régresse. Heureusement, Wang Lin possédait le Cristal de l'Ascendant de Zhou Yi, il disposait donc d'un surplus d'énergie d'origine par rapport à la plupart des cultivateurs.
+L'âme d'origine et l'énergie d'origine d'un cultivateur Ascendant sont fusionnées en une seule entité. Pourtant, le Coup Céleste peut séparer une partie de cette énergie d'origine. Un Ascendant ne possède qu'une quantité fixe d'énergie d'origine ; si trop est perdue, sa cultivation régresse. Heureusement, Wang Lin possédait le Cristal de l'Ascendant de Zhou Yi, il disposait donc d'un surplus d'énergie d'origine par rapport à la plupart des cultivateurs.
 
 La famille Huan était plongée dans un silence de mort. Le regard de Huan Wuqing devint plus sombre encore alors qu'il fixait Wang Lin et lâcha froidement : « Je t'ai sous-estimé. Posséder un tel style d'épée au stade Ascendant est une prouesse, tu es en effet très fort ! »
 
-« Cependant, l'écart entre la première et la seconde étape est trop vaste. Si tu avais déployé cet art de l'épée avec une culture de la seconde étape, cela aurait été intéressant, mais pour l'instant, c'est inutile ! Aujourd'hui, tu as brisé la formation de ma famille Huan, alors tu mourras sans aucun doute ! »
+« Cependant, l'écart entre la première et la seconde étape est trop vaste. Si tu avais déployé cet art de l'épée avec une cultivation de la seconde étape, cela aurait été intéressant, mais pour l'instant, c'est inutile ! Aujourd'hui, tu as brisé la formation de ma famille Huan, alors tu mourras sans aucun doute ! »
 
 « Je vous en prie, Jade Ancestral ! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment d'unité, se propagea comme un vent céleste pour envelopper la famille.
 
@@ -84,7 +84,7 @@ Huan Wuqing pensa : « Hélas, le trésor céleste a disparu avec Huan Wuxiang i
 
 La puissance émanant du jade était semblable à une douce brise printanière, tout en dégageant une lumière éclatante. Après un instant, le jade sembla fondre pour prendre la forme d'une personne. Bien que ses traits fussent flous, elle dégageait une majesté écrasante.
 
-« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Voyant du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange ; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade ? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
+« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une cultivation équivalente à celle d'un Voyant du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange ; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade ? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
 
 Dans la demeure des Xu, le vieil homme sourit et murmura : « Le trésor céleste de la famille Huan a été emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
 

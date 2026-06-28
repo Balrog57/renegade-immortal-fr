@@ -38,7 +38,7 @@ Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Boute
 
 Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
 
-Il restait moins d'un mois avant la Sélection des Anciens Déchus. Wang Lin était en culture fermée depuis deux mois ! Durant cette période, un événement majeur s'était produit dans les Terres Déchues !
+Il restait moins d'un mois avant la Sélection des Anciens Déchus. Wang Lin était en cultivation fermée depuis deux mois ! Durant cette période, un événement majeur s'était produit dans les Terres Déchues !
 
 À la périphérie des Terres Déchues, sur une planète abandonnée, l'astre entier s'embrasa. Les flammes étaient bleues et enveloppèrent la planète tout entière.
 
@@ -48,9 +48,9 @@ Peu importe leur activité, au moment où la planète s'embrasa, ils furent tous
 
 Leurs flammes commencèrent à converger vers cette planète abandonnée, comme si elles étaient appelées !
 
-Ce phénomène étrange stupéfia tous les cultivateurs du feu ! En particulier, les membres du Clan des Faucons de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un faucon de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien !
+Ce phénomène étrange stupéfia tous les cultivateurs du feu ! En particulier, les membres du Clan des Faucons de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine cultivation quand le feu en son sein apparut soudainement pour se transformer en un faucon de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien !
 
-Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Faucons de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle des pilules !
+Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Faucons de Feu quitta précipitamment sa cultivation pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle des pilules !
 
 Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Faucons de Feu !
 
@@ -66,7 +66,7 @@ Une goutte de sang brûlante flottait devant lui. Il la fixait, le regard charg�
 
 Les yeux du vieil homme brillèrent ; il se leva soudainement et saisit la goutte de sang. D'un pas, il disparut sans laisser de trace.
 
-Lorsqu'il réapparut, il se trouvait dans les profondeurs de cette planète de culture. L'intérieur de l'astre avait été évidé pour former une mer de feu. Même pour des cultivateurs du feu, la chaleur y était difficile à supporter.
+Lorsqu'il réapparut, il se trouvait dans les profondeurs de cette planète de cultivation. L'intérieur de l'astre avait été évidé pour former une mer de feu. Même pour des cultivateurs du feu, la chaleur y était difficile à supporter.
 
 Le vieil homme traversa rapidement la mer de flammes et atteignit bientôt les profondeurs de la planète. Ici, le feu était d'un violet sombre et terrifiant !
 

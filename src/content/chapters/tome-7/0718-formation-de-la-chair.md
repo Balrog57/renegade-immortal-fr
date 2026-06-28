@@ -12,7 +12,7 @@ Il était extrêmement rare qu'un tel endroit existe.
 
 En raison du champ d'astéroïdes qui entourait ce lieu, il était impossible de le remarquer. Si ce n'était pour l'âme originelle de Wang Lin, il ne l'aurait jamais découvert.
 
-Bien qu'aucune vie n'y fût, une puissante vitalité émanait de la planète. Cette vitalité n'avait rien à envier à celle d'une planète de culture regorgeant d'énergie spirituelle.
+Bien qu'aucune vie n'y fût, une puissante vitalité émanait de la planète. Cette vitalité n'avait rien à envier à celle d'une planète de cultivation regorgeant d'énergie spirituelle.
 
 Cependant, l'énergie spirituelle faisait ici défaut. Après tout, la moindre trace d'énergie spirituelle s'effondrerait instantanément sous la densité du tonnerre.
 

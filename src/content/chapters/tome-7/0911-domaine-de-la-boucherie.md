@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 911 - Slaughter Domain
 slug: domaine-de-la-boucherie
 ---
-La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la culture de ce Xu Mu était extrêmement singulière. Bien que le niveau de culture de Xu Mu ne fût qu'au début du stade Nirvana Scryer, son corps physique était assez puissant pour surclasser les trésors qu'il avait affinés avec ses avatars !
+La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la cultivation de ce Xu Mu était extrêmement singulière. Bien que le niveau de cultivation de Xu Mu ne fût qu'au début du stade Nirvana Scryer, son corps physique était assez puissant pour surclasser les trésors qu'il avait affinés avec ses avatars !
 
 Cette réalisation fit trembler son esprit.
 
@@ -112,6 +112,6 @@ Après réflexion, Wang Lin observa la branche dans sa main et la rangea. L'obte
 
 Lorsqu'il réapparut, il se trouvait sur le dos de Lei Ji. Le garçon à la grosse tête fut surpris, mais en voyant Wang Lin revenir, il se détendit et afficha un regard respectueux.
 
-Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement : « Lei Ji, trouve-moi une planète cachée et déserte. Je veux me consacrer à la culture en méditation fermée ! »
+Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement : « Lei Ji, trouve-moi une planète cachée et déserte. Je veux me consacrer à la cultivation en méditation fermée ! »
 
 Lei Ji poussa un grondement sonore et s'envola au loin dans l'immensité.

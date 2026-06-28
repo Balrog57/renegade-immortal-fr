@@ -14,13 +14,13 @@ Wang Lin tenait le jeton de cristal dans sa main. Outre l'incantation permettant
 
 Il franchit promptement les onze plateformes. Aucun changement n'était à noter sur celles-ci ; les statues de pierre demeuraient scellées par les marques de Yao Xixue.
 
-Suite aux événements survenus dans la grotte, son niveau de culture avait atteint le sommet du stade avancé de la Transformation de l'Âme, et sa vitesse s'en trouvait considérablement accrue. Il se déplaçait tel un éclair et ne mit que deux semaines pour revenir à la première plateforme !
+Suite aux événements survenus dans la grotte, son niveau de cultivation avait atteint le sommet du stade avancé de la Transformation de l'Âme, et sa vitesse s'en trouvait considérablement accrue. Il se déplaçait tel un éclair et ne mit que deux semaines pour revenir à la première plateforme !
 
-Celle-ci était totalement vide, mais en cet instant précis, grâce à son niveau de culture actuel et à ce qu'il avait appris en brisant les restrictions durant deux mois, il remarqua le réseau de transfert laissé par l'Ancêtre du Sang !
+Celle-ci était totalement vide, mais en cet instant précis, grâce à son niveau de cultivation actuel et à ce qu'il avait appris en brisant les restrictions durant deux mois, il remarqua le réseau de transfert laissé par l'Ancêtre du Sang !
 
-En observant le réseau, Wang Lin réfléchit un moment, puis sortit quatre sacs de rangement qui appartenaient tous à Yao Xixue. Auparavant, avec son niveau de culture au stade intermédiaire de la Transformation de l'Âme, il aurait éprouvé des difficultés à ouvrir ces sacs.
+En observant le réseau, Wang Lin réfléchit un moment, puis sortit quatre sacs de rangement qui appartenaient tous à Yao Xixue. Auparavant, avec son niveau de cultivation au stade intermédiaire de la Transformation de l'Âme, il aurait éprouvé des difficultés à ouvrir ces sacs.
 
-Cependant, la culture de Wang Lin avait atteint le sommet du stade avancé de la Transformation de l'Âme et surpassait désormais même celle de Yao Xixue. D'une simple pensée, sa main droite balaya les quatre sacs de rangement, et une explosion de lumière rouge sang en jaillit. Cette lueur était extrêmement tenace et résistait au Sens Divin de Wang Lin.
+Cependant, la cultivation de Wang Lin avait atteint le sommet du stade avancé de la Transformation de l'Âme et surpassait désormais même celle de Yao Xixue. D'une simple pensée, sa main droite balaya les quatre sacs de rangement, et une explosion de lumière rouge sang en jaillit. Cette lueur était extrêmement tenace et résistait au Sens Divin de Wang Lin.
 
 Wang Lin laissa échapper un froid reniflement ; l'énergie spirituelle céleste de son corps s'anima tout comme son âme originelle. D'une simple pression, la lumière rouge sang entourant l'un des sacs s'effondra instantanément !
 
@@ -28,13 +28,13 @@ Sans s'arrêter, il tendit la main vers un autre sac. La lumière rouge sang ré
 
 Wang Lin effaça l'empreinte du Sens Divin sur le troisième sac comme il l'avait fait pour les deux précédents. Il était sur le point de tout terminer d'un coup et de saisir le dernier sac lorsque son expression changea soudainement, et sa main droite s'immobilisa à trois pouces du quatrième sac.
 
-Ses yeux devinrent très sérieux tandis qu'il retirait lentement sa main pour examiner attentivement le sac de rangement. Plus tôt, lorsqu'il avait récupéré les sacs, son niveau de culture n'était pas assez élevé, mais en y regardant de plus près maintenant, il sembla déceler des indices.
+Ses yeux devinrent très sérieux tandis qu'il retirait lentement sa main pour examiner attentivement le sac de rangement. Plus tôt, lorsqu'il avait récupéré les sacs, son niveau de cultivation n'était pas assez élevé, mais en y regardant de plus près maintenant, il sembla déceler des indices.
 
 Une fine ligne violette se dessinait au sein de la dernière lueur rouge sang. Il aurait été très difficile de la remarquer sans une attention particulière ; elle ne pouvait être détectée que par le Sens Divin et demeurait totalement invisible à l'œil nu.
 
 « Bien que ce sac semble tout à fait ordinaire, au moment où j'allais l'effacer, j'ai ressenti cette sensation terrifiante. Je crains que ce sac ne contienne pas le Sens Divin de Yao Xixue. Se pourrait-il que ce soit celui de son père, l'Ancêtre du Sang... » Wang Lin réfléchit.
 
-« Selon la logique, à moins que le sac n'ait été marqué par votre propre Sens Divin, vous ne pouvez pas l'ouvrir sans avoir d'abord effacé celui d'autrui. Cependant, la culture de l'Ancêtre du Sang est céleste et il a cultivé pendant une éternité. Il a peut-être trouvé un moyen pour que sa fille utilise son sac sans avoir à supprimer son propre Sens Divin. En conséquence, même si un étranger s'emparait de ce sac par négligence, il serait instantanément tué par le Sens Divin qui y est logé... Cet Ancêtre du Sang est vraiment redoutable ! » Wang Lin retira lentement son Sens Divin. Une fois celui-ci disparu, la lumière rouge sang sur le sac s'évanouit immédiatement.
+« Selon la logique, à moins que le sac n'ait été marqué par votre propre Sens Divin, vous ne pouvez pas l'ouvrir sans avoir d'abord effacé celui d'autrui. Cependant, la cultivation de l'Ancêtre du Sang est céleste et il a cultivé pendant une éternité. Il a peut-être trouvé un moyen pour que sa fille utilise son sac sans avoir à supprimer son propre Sens Divin. En conséquence, même si un étranger s'emparait de ce sac par négligence, il serait instantanément tué par le Sens Divin qui y est logé... Cet Ancêtre du Sang est vraiment redoutable ! » Wang Lin retira lentement son Sens Divin. Une fois celui-ci disparu, la lumière rouge sang sur le sac s'évanouit immédiatement.
 
 Bien que Wang Lin n'ait jamais rencontré l'Ancêtre du Sang, après avoir constaté comment celui-ci avait propagé de fausses informations sur la Pilule de l'Âme Sanguine et le piège du Sens Divin sur le sac, c'était comme s'il l'avait vu en personne. Tout en éprouvant une grande admiration pour lui, il le redoutait profondément.
 
@@ -44,7 +44,7 @@ Il déploya son Sens Divin et ne put s'empêcher d'inspirer profondément, malgr
 
 Il y en avait trop pour pouvoir les estimer ! Wang Lin effectua un balayage sommaire avec son Sens Divin : il y avait au moins dix fois plus de jades célestes que ce qu'elle lui avait donné jusqu'à présent !
 
-« La quantité de jade céleste nécessaire pour atteindre le stade Ascendant est immense, bien plus que le total requis jusqu'ici. La quantité requise pour chaque étape après l'Ascension doit être inimaginable. Si l'on n'en possède pas assez, la culture s'arrête tout simplement. Ce qui est devant moi est une véritable mine d'or ! »
+« La quantité de jade céleste nécessaire pour atteindre le stade Ascendant est immense, bien plus que le total requis jusqu'ici. La quantité requise pour chaque étape après l'Ascension doit être inimaginable. Si l'on n'en possède pas assez, la cultivation s'arrête tout simplement. Ce qui est devant moi est une véritable mine d'or ! »
 
 Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il rangeait ce sac pour diriger son Sens Divin vers le second. En regardant à l'intérieur, ses yeux brillèrent d'excitation.
 

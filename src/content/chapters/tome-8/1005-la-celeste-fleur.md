@@ -14,7 +14,7 @@ Dès qu'il s'approcha, l'immense mer de fleurs s'agita et un parfum floral l'ass
 
 Maître Hollow Wind afficha une expression étrange, recula rapidement et s'exclama : « Le Parfum de Pluie Toxique ! »
 
-« J'ai consulté certains registres du Royaume Céleste qui traitaient des poisons de ce domaine. Ils classaient les cent poisons les plus redoutables avec une brève description pour chacun. Après avoir raffiné d'innombrables fleurs, deux types de poisons peuvent se former. L'un d'eux est ce Parfum de Pluie Toxique. Si vous le sentez, votre culture devient immédiatement instable ; si vous en inhalez quelques bouffées de plus, vous perdrez toute votre culture. »
+« J'ai consulté certains registres du Royaume Céleste qui traitaient des poisons de ce domaine. Ils classaient les cent poisons les plus redoutables avec une brève description pour chacun. Après avoir raffiné d'innombrables fleurs, deux types de poisons peuvent se former. L'un d'eux est ce Parfum de Pluie Toxique. Si vous le sentez, votre cultivation devient immédiatement instable ; si vous en inhalez quelques bouffées de plus, vous perdrez toute votre cultivation. »
 
 L'expression des trois frères Chen changea légèrement, mais ils ne reculèrent pas. Après tout, ils étaient des cultivateurs du Nirvana Scryer et possédaient des méthodes pour s'en protéger.
 
@@ -34,9 +34,9 @@ Lorsque Wang Lin avait raffiné ce cadavre, il en était venu à parfaitement le
 
 Wang Lin avait toujours cru qu'il s'agissait d'un sort, mais ce n'est qu'en la raffinant qu'il découvrit qu'il s'agissait d'un poison ! En l'étudiant, il comprit que ce Cadavre d'Argent possédait un venin extrêmement puissant. Ce poison était très diversifié et pouvait être mélangé pour créer diverses substances terrifiantes.
 
-Par conséquent, le Cadavre d'Argent était devenu, aux yeux de Wang Lin, un cadavre empoisonné ! C'est là que résidait sa véritable puissance ! Avec sa culture de stade initial du Nirvana Cleanser et le venin en son corps, si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, traiter avec elle aurait été un véritable casse-tête et il ne l'aurait pas provoquée avec autant de légèreté.
+Par conséquent, le Cadavre d'Argent était devenu, aux yeux de Wang Lin, un cadavre empoisonné ! C'est là que résidait sa véritable puissance ! Avec sa cultivation de stade initial du Nirvana Cleanser et le venin en son corps, si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, traiter avec elle aurait été un véritable casse-tête et il ne l'aurait pas provoquée avec autant de légèreté.
 
-À cet instant, le Cadavre d'Argent chargea directement au cœur du parfum floral. Le poison qui pouvait instantanément affaiblir la culture d'un être ou même tuer des cultivateurs plus faibles n'eut aucun effet sur elle.
+À cet instant, le Cadavre d'Argent chargea directement au cœur du parfum floral. Le poison qui pouvait instantanément affaiblir la cultivation d'un être ou même tuer des cultivateurs plus faibles n'eut aucun effet sur elle.
 
 Le Cadavre d'Argent ouvrit sa petite bouche et inspira. C'était comme si un vortex s'était formé, aspirant tout le parfum floral dans sa gorge. Au cours de ce processus, l'effluve invisible prit soudain une forme physique. De grandes quantités de gaz s'échappèrent des fleurs pour pénétrer rapidement dans la bouche du cadavre.
 

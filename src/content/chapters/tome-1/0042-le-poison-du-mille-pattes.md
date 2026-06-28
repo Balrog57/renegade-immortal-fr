@@ -16,7 +16,7 @@ Wang Zhuo sourit. Il se tourna vers Wang Lin et cria d'une voix forte : « Junio
 
 Parmi les disciples de la Secte Heng Yue, l'un d'eux s'esclaffa : « Je me demandais bien de qui le frère Wang Zhuo parlait. Comme je m'y attendais, c'est le junior frère Wang Lin. »
 
-Un autre poursuivit : « Ce travail lui sied à merveille. Avec son manque de talent, ce n'est qu'une perte de temps pour lui de pratiquer la culture. Il n'aura jamais la moindre chance lors des échanges. »
+Un autre poursuivit : « Ce travail lui sied à merveille. Avec son manque de talent, ce n'est qu'une perte de temps pour lui de pratiquer la cultivation. Il n'aura jamais la moindre chance lors des échanges. »
 
 « Il n'y a vraiment personne de plus apte que lui pour ces corvées. Junior frère Wang Lin, accomplis bien ta tâche et ne fais pas honte à la Secte Heng Yue. »
 
@@ -58,7 +58,7 @@ En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par
 
 Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit : « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher de gros vers ; ce sont ses préférés. »
 
-Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança : « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
+Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança : « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la cultivation. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
 
 Wang Lin reconnut immédiatement l'interlocuteur : c'était Sun Hao, celui-là même qui s'était moqué de lui durant la période d'entraînement.
 

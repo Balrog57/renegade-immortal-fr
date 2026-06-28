@@ -16,7 +16,7 @@ Lorsqu'il était arrivé ici, Wang Lin avait laissé Zhong Big Red sortir pour r
 
 Après avoir libéré Zhong Big Red, Wang Lin avait utilisé un sort pour sonder son cœur. Après tout, ayant détruit le Clan du Tonnerre Dispersé, il ne pouvait ignorer les intentions que Zhong Big Red aurait pu nourrir.
 
-Cependant, ce qui surprit Wang Lin fut le fait que Zhong Big Red n'éprouvait presque aucun sentiment envers le Clan du Tonnerre Dispersé. De son point de vue, le clan ne l'avait jamais aidé et, à cause des cristaux de tonnerre, il devait constamment leur offrir des tributs. Dans ses jeunes années, il s'était élevé par ses propres moyens jusqu'à son niveau de culture actuel, et ayant vu la cruauté dont les membres du clan faisaient preuve les uns envers les autres, il n'avait éprouvé aucune loyauté.
+Cependant, ce qui surprit Wang Lin fut le fait que Zhong Big Red n'éprouvait presque aucun sentiment envers le Clan du Tonnerre Dispersé. De son point de vue, le clan ne l'avait jamais aidé et, à cause des cristaux de tonnerre, il devait constamment leur offrir des tributs. Dans ses jeunes années, il s'était élevé par ses propres moyens jusqu'à son niveau de cultivation actuel, et ayant vu la cruauté dont les membres du clan faisaient preuve les uns envers les autres, il n'avait éprouvé aucune loyauté.
 
 Par conséquent, lorsqu'il apprit qu'il pouvait devenir plus fort en suivant Wang Lin, il choisit de quitter le Clan du Tonnerre Dispersé sans l'ombre d'une hésitation.
 
@@ -42,13 +42,13 @@ Pourtant, une méthode étrange traversa l'esprit de Wang Lin. S'il réussissait
 
 « Zhong Big Red, prends mes pilules et achète une marionnette. » Après avoir pesé sa décision, Wang Lin agita la main droite, faisant apparaître trois pilules. Un parfum exquis emplit la grotte. Zhong Big Red fixa les pilules en déglutissant avec difficulté avant de les recevoir respectueusement.
 
-Tenant les pilules, Zhong Big Red afficha un sourire flatteur et murmura : « Maître, on vend aussi des fours de culture, devrais-je... »
+Tenant les pilules, Zhong Big Red afficha un sourire flatteur et murmura : « Maître, on vend aussi des fours de cultivation, devrais-je... »
 
 Wang Lin fronça les sourcils, ce qui fit taire Zhong Big Red, qui quitta précipitamment la grotte.
 
 Une fois dehors, les vêtements de Zhong Big Red étaient trempés de sueur. Bien que suivre Wang Lin fût une opportunité immense, ce simple froncement de sourcils l'avait terrifié.
 
-« Quand j'étais dans l'espace de stockage du Maître, ce Xu Liguo était trop cruel. Il me harcelait sans cesse parce que son niveau de culture est plus élevé. Je m'en souviendrai. Dès que ma culture aura progressé, je me vengerai ! »
+« Quand j'étais dans l'espace de stockage du Maître, ce Xu Liguo était trop cruel. Il me harcelait sans cesse parce que son niveau de cultivation est plus élevé. Je m'en souviendrai. Dès que ma cultivation aura progressé, je me vengerai ! »
 
 « Hmph, hmph... tant que je servirai convenablement le Maître, ce jour ne sera pas loin. » Zhong Big Red, serrant les pilules contre lui, s'envola vers l'horizon.
 
@@ -68,17 +68,17 @@ Zhong Big Red garda un visage impassible et sourit. Il agita la main droite pour
 
 Les yeux du vieillard se rétrécirent soudainement alors qu'il examinait l'objet de plus près. Son expression changea instantanément, l'extase envahissant son regard.
 
-« C'est une pilule de haute qualité ! Elle convient parfaitement à ma culture et elle est extrêmement rare ! Petit Frère Zhong, ceci... »
+« C'est une pilule de haute qualité ! Elle convient parfaitement à ma cultivation et elle est extrêmement rare ! Petit Frère Zhong, ceci... »
 
 Zhong Big Red rit et joignit les mains : « Ce n'est rien, ce genre de pilule est inutile pour le Maître. Je vois que vous êtes au stade intermédiaire de la Formation de l'Âme depuis longtemps, j'imagine que cette pilule vous sera utile. Acceptez-la simplement. »
 
-Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement les pilules. Il regarda Zhong Big Red et murmura : « Petit Frère Zhong, le niveau de culture de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre : « Pourrait-il être au stade Yin et Yang ? »
+Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement les pilules. Il regarda Zhong Big Red et murmura : « Petit Frère Zhong, le niveau de cultivation de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre : « Pourrait-il être au stade Yin et Yang ? »
 
-Zhong Big Red s'attendait à ce qu'on l'interroge sur son maître. Son expression devint immédiatement respectueuse et il chuchota : « La culture de mon Maître est transcendante, même moi j'en ignore le niveau exact. Cependant, j'ai vu le Maître terrasser des cultivateurs du Nirvana Scryer d'un seul coup ! »
+Zhong Big Red s'attendait à ce qu'on l'interroge sur son maître. Son expression devint immédiatement respectueuse et il chuchota : « La cultivation de mon Maître est transcendante, même moi j'en ignore le niveau exact. Cependant, j'ai vu le Maître terrasser des cultivateurs du Nirvana Scryer d'un seul coup ! »
 
 Le vieil homme aspira une bouffée d'air glacial ; il n'osait chercher à savoir si c'était vrai ou faux. Peu importait la vérité : quelqu'un capable de distribuer de telles pilules avec autant de désinvolture était une personne qu'il ne fallait pas provoquer.
 
-« Le Petit Frère Zhong a de la chance d'avoir un tel maître. Ta culture va certainement s'envoler à l'avenir. N'oublie pas ton Grand Frère alors ! » Les yeux du vieillard brillaient d'envie tandis qu'il joignait les mains.
+« Le Petit Frère Zhong a de la chance d'avoir un tel maître. Ta cultivation va certainement s'envoler à l'avenir. N'oublie pas ton Grand Frère alors ! » Les yeux du vieillard brillaient d'envie tandis qu'il joignait les mains.
 
 Zhong Big Red rit : « Naturellement. En fait, je suis venu demander de l'aide au Grand Frère Zhang. »
 
@@ -104,7 +104,7 @@ La salle se trouvait au centre de la ville, mais très peu de cultivateurs s'y a
 
 Les silhouettes de Zhong Big Red et du vieillard furent remarquées par beaucoup de passants, dont certains secrètement secouaient la tête.
 
-Dès qu'ils pénétrèrent dans la salle, le corps de Zhong Big Red trembla sous l'effet d'une énergie froide émanant de toutes parts. Sa culture étant insuffisante pour y résister, l'énergie pénétra immédiatement en lui. Ce fut comme si un marteau géant s'abattait sur son cœur ; il cracha aussitôt une bouchée de sang.
+Dès qu'ils pénétrèrent dans la salle, le corps de Zhong Big Red trembla sous l'effet d'une énergie froide émanant de toutes parts. Sa cultivation étant insuffisante pour y résister, l'énergie pénétra immédiatement en lui. Ce fut comme si un marteau géant s'abattait sur son cœur ; il cracha aussitôt une bouchée de sang.
 
 Le vieil homme s'en sortait mieux, mais son visage était pâle. Il s'agenouilla rapidement et dit : « Nos intentions sont nobles, juniors, nous souhaitons simplement acheter une marionnette. »
 
@@ -128,7 +128,7 @@ Tenant les deux pilules, l'homme d'âge moyen continua de jauger Zhong Big Red. 
 
 Après un signe de tête, l'homme agita la main. Sa marque de clan brilla et une marionnette, ressemblant trait pour trait à un être humain, apparut devant eux.
 
-La marionnette n'avait aucune marque de clan entre les sourcils et affichait une expression terne. Elle était dépourvue d'intelligence et de vitalité, ne dégageant qu'une aura sombre. Son niveau de culture se situait au début du stade de la Formation de l'Âme.
+La marionnette n'avait aucune marque de clan entre les sourcils et affichait une expression terne. Elle était dépourvue d'intelligence et de vitalité, ne dégageant qu'une aura sombre. Son niveau de cultivation se situait au début du stade de la Formation de l'Âme.
 
 « Ces deux pilules ne permettent d'échanger que cette marionnette. Maintenant, disparaissez tous les deux. » L'homme tourna le dos et s'enfonça dans les profondeurs de la salle.
 
@@ -138,7 +138,7 @@ Il récupéra rapidement la marionnette et partit avec le vieil homme maigre.
 
 Quant à l'homme d'âge moyen, après être entré dans le temple, il s'enfonça sous terre. Un autre monde se cachait là : une tour souterraine dont la salle n'était que le sommet. C'était le deuxième étage, où trônait également une statue de scorpion, sur laquelle un jeune homme était assis.
 
-Le jeune homme semblait absorber la puissance de la statue pendant sa culture. À l'arrivée de l'homme d'âge moyen, il ouvrit les yeux.
+Le jeune homme semblait absorber la puissance de la statue pendant sa cultivation. À l'arrivée de l'homme d'âge moyen, il ouvrit les yeux.
 
 « Jeune Maître, deux cultivateurs de la Formation de l'Âme ont apporté ces deux pilules ! » L'homme lui remit rapidement les objets. Le jeune homme hautain les saisit et, après les avoir examinés, déclara froidement :
 
@@ -160,11 +160,11 @@ Le visage de Zhong Big Red était d'une pâleur extrême. Cette épreuve lui ava
 
 « Les pilules ont attiré trop l'attention, hélas... J'ai mal agi. Non seulement j'ai blessé le Compagnon Cultivateur Zhang, mais j'ai failli provoquer une catastrophe. » Zhong Big Red vola à toute vitesse vers la grotte de Wang Lin.
 
-« La culture ! Si j'avais eu un niveau plus élevé, comme celui de Xu Liguo, cela ne se serait pas passé ainsi ! Moi, Zhong Big Red, je dois devenir fort ! » Il serra les dents, habité par une détermination farouche. Une heure plus tard, la grotte de Wang Lin apparut devant lui.
+« La cultivation ! Si j'avais eu un niveau plus élevé, comme celui de Xu Liguo, cela ne se serait pas passé ainsi ! Moi, Zhong Big Red, je dois devenir fort ! » Il serra les dents, habité par une détermination farouche. Une heure plus tard, la grotte de Wang Lin apparut devant lui.
 
 Après avoir atterri sur la montagne, Zhong Big Red afficha une mine amère et se dirigea vers l'entrée. Il cracha une nouvelle bouchée de sang en se posant.
 
-Wang Lin, qui était en pleine culture, ouvrit les yeux au moment où Zhong Big Red entrait. Son regard brilla comme deux lueurs vives alors qu'il fixait son subordonné.
+Wang Lin, qui était en pleine cultivation, ouvrit les yeux au moment où Zhong Big Red entrait. Son regard brilla comme deux lueurs vives alors qu'il fixait son subordonné.
 
 Wang Lin demanda calmement : « Où est la marionnette ? »
 
@@ -174,13 +174,13 @@ Wang Lin l'examina attentivement, une lueur étrange dans les yeux.
 
 « Cette chose... » Un instant plus tard, il détourna le regard et rangea la marionnette. Puis il demanda avec désinvolture : « Comment t'es-tu blessé ? »
 
-Zhong Big Red réfléchit longuement avant de lui relater l'événement. Voyant l'expression de Wang Lin s'assombrir, il dit amèrement : « Maître, j'ai été imprudent. Si j'avais mieux contrôlé les informations, cela ne serait pas arrivé. Au moins, j'ai obtenu la marionnette et rempli votre ordre... Quant à ma blessure, je pourrai m'en remettre après une période de culture en ermite. »
+Zhong Big Red réfléchit longuement avant de lui relater l'événement. Voyant l'expression de Wang Lin s'assombrir, il dit amèrement : « Maître, j'ai été imprudent. Si j'avais mieux contrôlé les informations, cela ne serait pas arrivé. Au moins, j'ai obtenu la marionnette et rempli votre ordre... Quant à ma blessure, je pourrai m'en remettre après une période de cultivation en ermite. »
 
 Voyant le silence de Wang Lin, et sentant son expression devenir encore plus menaçante, son cœur trembla. Il murmura : « Le Maître s'est enfui vers la Terre Déchue pour échapper à ses poursuivants. Ce petit peut endurer... »
 
 Avant qu'il n'ait fini, le reniflement froid de Wang Lin et la pâleur de son visage le coupèrent net.
 
-« Quelle méthode empoisonnée. Peu importe le temps que tu passeras en culture fermée, tu ne t'en remettras pas facilement. Cette personne a brisé la trajectoire de ta culture et a laissé une empreinte de sens divin... »
+« Quelle méthode empoisonnée. Peu importe le temps que tu passeras en cultivation fermée, tu ne t'en remettras pas facilement. Cette personne a brisé la trajectoire de ta cultivation et a laissé une empreinte de sens divin... »
 
 Le corps de Zhong Big Red trembla, les poings serrés. Puis il les relâcha, plongé dans ses pensées.
 
@@ -208,7 +208,7 @@ Dans le hall principal, l'homme d'âge moyen était assis tandis que le vieil ho
 
 L'homme d'âge moyen ouvrit les yeux avec effroi et cracha du sang. Il se leva d'un bond.
 
-Non seulement lui, mais tous les cultivateurs du Clan du Scorpion Noir en pleine culture dans la tour s'éveillèrent sous le choc. Même le jeune homme au deuxième étage trembla, le visage blême. La voix avait pénétré la terre pour frapper directement le sanctuaire, faisant vibrer toute la structure.
+Non seulement lui, mais tous les cultivateurs du Clan du Scorpion Noir en pleine cultivation dans la tour s'éveillèrent sous le choc. Même le jeune homme au deuxième étage trembla, le visage blême. La voix avait pénétré la terre pour frapper directement le sanctuaire, faisant vibrer toute la structure.
 
 Trois respirations passèrent en un éclair et la main droite de Wang Lin s'abattit. Des grondements tonitruants éclatèrent alors qu'une quantité infinie d'éclairs convergeait de toutes les directions, formant un gigantesque filet de foudre qui s'abattit sur la ville.
 

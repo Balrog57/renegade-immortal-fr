@@ -74,7 +74,7 @@ Il s'agissait d'un réflexe inconscient de Fan Shanlu. Wang Lin analysa ces dét
 
 En voyant Wang Lin, Fan Shanlu resta stupéfaite un long moment avant d'esquisser un sourire à son tour.
 
-« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples de base du Grand Secte de l'Âme entrent en culture isolée. Une fois la brume déployée, le sens divin de l'Enseignant ne balaiera pas la zone ; nous sommes en sécurité ici. »
+« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples de base du Grand Secte de l'Âme entrent en cultivation isolée. Une fois la brume déployée, le sens divin de l'Enseignant ne balaiera pas la zone ; nous sommes en sécurité ici. »
 
 Le sourire de Fan Shanlu était empreint de joie. Elle ne s'attendait pas à croiser Wang Lin ici. Pourtant, sa gratitude envers lui n'avait rien perdu de son intensité avec le temps.
 
@@ -94,11 +94,11 @@ En vérité, Fan Shanlu ressentait la même chose. Après tout, elle avait pass�
 
 Wang Lin percevait cette joie, ce qui réchauffait son cœur. Il sourit silencieusement un instant avant de prendre la parole.
 
-« J'ai besoin du principal filon de feu terrestre pour ma culture... Cela pourrait affecter le filon principal ici présent. »
+« J'ai besoin du principal filon de feu terrestre pour ma cultivation... Cela pourrait affecter le filon principal ici présent. »
 
 Fan Shanlu réfléchit et, après un long silence, elle hocha la tête.
 
-« Aucun problème. Je peux t'emmener dans le lieu de culture isolée dédié au filon de feu terrestre. L'Enseignant sera facile à éviter ; elle est la plupart du temps en culture isolée et ne déploie son sens divin que de façon occasionnelle. Elle ne vérifie pas trop souvent les disciples pour ne pas perturber leur pratique. Le principal problème est ma sœur aînée... Elle se trouve aussi sur cette montagne de flammes. Cependant, elle a attiré l'attention de l'Enseignant, donc elle ne sortira pas facilement. Voici ce que je propose : je t'accompagnerai jusqu'à la salle de feu. Si d'autres posent des questions, je dirai que je suis en culture isolée. Mais cela ne doit pas durer trop longtemps, sinon les soupçons grandiront. » Fan Shanlu se montra décisive et trouva rapidement une solution.
+« Aucun problème. Je peux t'emmener dans le lieu de cultivation isolée dédié au filon de feu terrestre. L'Enseignant sera facile à éviter ; elle est la plupart du temps en cultivation isolée et ne déploie son sens divin que de façon occasionnelle. Elle ne vérifie pas trop souvent les disciples pour ne pas perturber leur pratique. Le principal problème est ma sœur aînée... Elle se trouve aussi sur cette montagne de flammes. Cependant, elle a attiré l'attention de l'Enseignant, donc elle ne sortira pas facilement. Voici ce que je propose : je t'accompagnerai jusqu'à la salle de feu. Si d'autres posent des questions, je dirai que je suis en cultivation isolée. Mais cela ne doit pas durer trop longtemps, sinon les soupçons grandiront. » Fan Shanlu se montra décisive et trouva rapidement une solution.
 
 Wang Lin réfléchit et dit lentement : « Ce ne serait pas sans risque pour toi... »
 
@@ -116,4 +116,4 @@ Wang Lin hocha la tête et se transforma en fumée. Il pénétra dans sa manche 
 
 Fan Shanlu ajusta ses vêtements et, une fois son calme retrouvé, elle agita sa main de jade pour dissiper la brume. Elle sortit de la grotte.
 
-Elle ne marqua aucun arrêt en chemin. Sans aller ni trop vite ni trop lentement, elle se dirigea vers une grotte monumentale située au pied de la montagne rouge. C'était l'endroit le plus proche du principal filon de feu terrestre que leur maître avait aménagé pour permettre à ses disciples de pratiquer leur culture isolée.
+Elle ne marqua aucun arrêt en chemin. Sans aller ni trop vite ni trop lentement, elle se dirigea vers une grotte monumentale située au pied de la montagne rouge. C'était l'endroit le plus proche du principal filon de feu terrestre que leur maître avait aménagé pour permettre à ses disciples de pratiquer leur cultivation isolée.

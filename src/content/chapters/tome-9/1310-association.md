@@ -10,17 +10,17 @@ Le sort de dévoration céleste reposait sur la destruction totale pour une abso
 
 Une brume s'échappa du corps déchu du vieil homme, révélant la silhouette de Wang Lin. Son visage était rubicond, mais une vague ligne noire marquait l'espace entre ses sourcils.
 
-Dès son apparition, il ne marqua aucun temps de pause ; il chargea à travers la planète de culture. Sur son passage, une brume noire s'engouffrait dans chaque cultivateur qu'il croisait. Tous poussèrent des cris déchirants tandis que leurs corps se flétrissaient, leur chair et leur sang étant ainsi absorbés par Wang Lin.
+Dès son apparition, il ne marqua aucun temps de pause ; il chargea à travers la planète de cultivation. Sur son passage, une brume noire s'engouffrait dans chaque cultivateur qu'il croisait. Tous poussèrent des cris déchirants tandis que leurs corps se flétrissaient, leur chair et leur sang étant ainsi absorbés par Wang Lin.
 
 Un instant plus tard, tous les cultivateurs de la planète avaient péri. Le corps de Wang Lin était enveloppé d'un nuage de brume noire monstrueuse, semblable à des flammes démoniaques. Alors qu'il flottait dans les airs, il tendit impitoyablement la main vers le sol.
 
 « Extraction de l'Âme Planétaire ! »
 
-L'intégralité de la planète de culture se mit à trembler, laissant échapper une aura antique. C'était comme si elle était forcée de s'éveiller de son long sommeil.
+L'intégralité de la planète de cultivation se mit à trembler, laissant échapper une aura antique. C'était comme si elle était forcée de s'éveiller de son long sommeil.
 
 Des volutes de gaz blanc s'élevèrent de la planète et se rassemblèrent dans la main gauche de Wang Lin, formant une sphère gazeuse. Cette sphère semblait contenir son propre monde.
 
-Tenant l'âme planétaire, la brume noire monstrueuse qui entourait Wang Lin s'enroula autour de lui, et il disparut de cette planète de culture.
+Tenant l'âme planétaire, la brume noire monstrueuse qui entourait Wang Lin s'enroula autour de lui, et il disparut de cette planète de cultivation.
 
 Parmi les étoiles, Wang Lin fusionna avec le monde et fonça en avant. Chaque fois qu'il croisait une planète, il s'y précipitait pour dévorer tous ses cultivateurs, extrayait ensuite l'âme de la planète et repartait. Il portait désormais sept âmes planétaires autour de lui.
 

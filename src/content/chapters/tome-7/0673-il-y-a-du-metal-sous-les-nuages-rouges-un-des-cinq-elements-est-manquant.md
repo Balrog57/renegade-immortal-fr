@@ -18,7 +18,7 @@ Après les avoir rangées, Wang Lin saisit le jeton et l'examina avec son sens d
 
 Pourtant, Wang Lin sentait que quelque chose clochait. Il réfléchit un instant avant de s'exclamer : « Gardien céleste ! »
 
-L'ombre sous ses pieds s'étira rapidement hors de son corps, glissa le long de sa peau et s'enroula autour du jeton. Wang Lin ferma les yeux et emprunta la culture du gardien céleste pour voir immédiatement à travers l'objet !
+L'ombre sous ses pieds s'étira rapidement hors de son corps, glissa le long de sa peau et s'enroula autour du jeton. Wang Lin ferma les yeux et emprunta la cultivation du gardien céleste pour voir immédiatement à travers l'objet !
 
 Peu après, Wang Lin ouvrit les yeux, affichant une expression sombre.
 
@@ -34,7 +34,7 @@ Parmi les crépitements de la foudre, l'onde émise par la pierre de jade fut to
 
 « J'ai effacé le sortilège de message qui était laissé sur la pierre de jade. » Wang Lin étudia attentivement les informations enregistrées dans le jade. Après un long moment, il retira son sens divin, ses yeux brillant de plus en plus intensément !
 
-« C'est bel et bien le Domaine de l'Illusion Cruelle ! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions ! » Cette pierre de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
+« C'est bel et bien le Domaine de l'Illusion Cruelle ! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions ! » Cette pierre de jade contenait la méthode de cultivation des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
 
 Le seul moyen de briser ces restrictions était le lignage.
 
@@ -56,7 +56,7 @@ Wang Lin rangea ses affaires, les yeux brillants de réflexion.
 
 « Je ne sais juste pas où se trouve la planète Yun Xia ! » Il ouvrit les yeux et son sens divin se déploya instantanément. Son sens balaya la planète Ran Yun et descendit vers l'endroit où se trouvait Sun Xi.
 
-Sun Xi était assis en position de lotus dans le foyer ancestral de la famille Sun, prêt pour sa culture. Cependant, il sursauta et tourna brusquement la tête en entendant la voix de Wang Lin.
+Sun Xi était assis en position de lotus dans le foyer ancestral de la famille Sun, prêt pour sa cultivation. Cependant, il sursauta et tourna brusquement la tête en entendant la voix de Wang Lin.
 
 « Gravez tout ce que vous savez sur la carte du système stellaire d'Allheaven et envoyez-la-moi. »
 
@@ -102,7 +102,7 @@ Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphè
 
 « Je suis Huan Dong, membre de second rang de la famille Huan de la planète des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder ! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri ; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
 
-La jeune femme sous le rocher était l'une d'entre eux. Elle était en pleine culture lorsqu'elle fut frappée par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
+La jeune femme sous le rocher était l'une d'entre eux. Elle était en pleine cultivation lorsqu'elle fut frappée par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
 
 Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, le Sage sans Souci et Sun Xi devinrent soudainement livides.
 

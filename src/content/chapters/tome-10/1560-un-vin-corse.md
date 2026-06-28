@@ -14,7 +14,7 @@ La neuvième épine était nichée dans sa colonne vertébrale ; elle y était t
 
 Le visage d'inconscience de Qing Shui restait tordu par la douleur, mais une nuance de soulagement et de joie perçait ses traits. Son soulagement était dû à Wang Lin, tout comme sa joie.
 
-Après un bref moment de culture, l'épuisement de Wang Lin se dissipa quelque peu. Il prit une profonde inspiration et souleva le corps inconscient de Qing Shui, le plaçant dos à lui. Les yeux de Wang Lin brillaient comme des éclairs tandis qu'il fixait le dos gracile de son compagnon.
+Après un bref moment de cultivation, l'épuisement de Wang Lin se dissipa quelque peu. Il prit une profonde inspiration et souleva le corps inconscient de Qing Shui, le plaçant dos à lui. Les yeux de Wang Lin brillaient comme des éclairs tandis qu'il fixait le dos gracile de son compagnon.
 
 La colonne vertébrale de Qing Shui était enflée ; l'image était révoltante.
 
@@ -52,7 +52,7 @@ Wang Lin réfléchit un instant. L'instant d'après, sa main droite retira impit
 
 Une respiration saccadée s'échappa des lèvres de Qing Shui, et il fallut un long moment pour qu'il retrouve son calme. Ses mains formèrent un sceau et il commença à cultiver.
 
-Le visage de Wang Lin était pâle ; après avoir rejeté l'épine, il ferma également les yeux pour se mettre en culture. En retirant la neuvième épine, il avait ressenti une douleur similaire, comme si sa propre moelle lui avait été arrachée. Bien que moins intense que celle de Qing Shui, elle n'en demeurait pas moins fulgurante.
+Le visage de Wang Lin était pâle ; après avoir rejeté l'épine, il ferma également les yeux pour se mettre en cultivation. En retirant la neuvième épine, il avait ressenti une douleur similaire, comme si sa propre moelle lui avait été arrachée. Bien que moins intense que celle de Qing Shui, elle n'en demeurait pas moins fulgurante.
 
 Après une demi-heure, Wang Lin ouvrit les yeux.
 
@@ -74,7 +74,7 @@ Wang Lin en prit également une grande gorgée, ressentant lui aussi ce feu liqu
 
 Leurs rires étaient empreints d'une joie pure. Il était rare qu'ils puissent rire si franchement.
 
-« Une fois cette épine retirée, ma culture sera restaurée et augmentera considérablement ! Essence de massacre, essence de massacre... » Tandis que Qing Shui parlait, une pointe de tristesse flotta dans ses yeux, mais il la refoula profondément en lui. Il reprit la cruche des mains de Wang Lin et but une nouvelle gorgée.
+« Une fois cette épine retirée, ma cultivation sera restaurée et augmentera considérablement ! Essence de massacre, essence de massacre... » Tandis que Qing Shui parlait, une pointe de tristesse flotta dans ses yeux, mais il la refoula profondément en lui. Il reprit la cruche des mains de Wang Lin et but une nouvelle gorgée.
 
 « Allez, retire la dernière épine ! » Posant la cruche, les yeux de Qing Shui brillèrent d'un éclat tel que Wang Lin eut l'impression de retrouver le Qing Shui de jadis.
 
@@ -104,7 +104,7 @@ Qing Shui saisit la gourde et but une gorgée. Il aspira un souffle d'air froid 
 
 Le regard de Wang Lin devint grave et il retira impitoyablement l'épine ! Les veines sur tout le corps de Qing Shui se gonflèrent et convergèrent vers sa poitrine.
 
-À mesure que Wang Lin tirait, la culture gelée de Qing Shui se délia. Une aura de massacre se propagea dans l'air, faisant apparaître des nuages noirs dans le ciel. L'aura de massacre était d'une densité extrême à cet instant !
+À mesure que Wang Lin tirait, la cultivation gelée de Qing Shui se délia. Une aura de massacre se propagea dans l'air, faisant apparaître des nuages noirs dans le ciel. L'aura de massacre était d'une densité extrême à cet instant !
 
 Une neige noire commença à tomber des nuages, recouvrant la terre.
 

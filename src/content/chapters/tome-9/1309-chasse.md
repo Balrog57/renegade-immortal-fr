@@ -54,7 +54,7 @@ Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déf
 
 Tuo Sen afficha une expression féroce, serra le poing de sa main droite et lança un coup de poing dévastateur.
 
-Un seul de ses coups possédait la puissance nécessaire pour faire exploser une planète de culture !
+Un seul de ses coups possédait la puissance nécessaire pour faire exploser une planète de cultivation !
 
 Sa main droite bougea avec une célérité fulgurante et percuta les éclairs rouges. Ces derniers pénétrèrent le corps de Tuo Sen, déclenchant une frénésie de destruction.
 
@@ -92,9 +92,9 @@ Tuo Sen le poursuivrait très bientôt, Wang Lin en était certain !
 
 Le temps lui manquait ; il devait rapidement retrouver son apogée. À cet instant, il vola à toute allure, fendant l'espace.
 
-« Ce n'est qu'une fois Tuo Sen écarté que je pourrai confier Li Qianmei au Maître du Dao Blue Dream. Plus tôt, en dévorant ces centaines de cultivateurs, j'ai également acquis leurs souvenirs. Le Maître du Dao Blue Dream est l'un des cinq maîtres du Système Stellaire Antique. Il réside sur le Mont Bleu, au sein du Clan de la Soie Bleue ! » Tandis qu'il se téléportait à travers les étoiles, une froideur glaciale s'empara de son regard. Il détecta une planète de culture au loin, peuplée de nombreux cultivateurs du Système Stellaire Antique.
+« Ce n'est qu'une fois Tuo Sen écarté que je pourrai confier Li Qianmei au Maître du Dao Blue Dream. Plus tôt, en dévorant ces centaines de cultivateurs, j'ai également acquis leurs souvenirs. Le Maître du Dao Blue Dream est l'un des cinq maîtres du Système Stellaire Antique. Il réside sur le Mont Bleu, au sein du Clan de la Soie Bleue ! » Tandis qu'il se téléportait à travers les étoiles, une froideur glaciale s'empara de son regard. Il détecta une planète de cultivation au loin, peuplée de nombreux cultivateurs du Système Stellaire Antique.
 
-« Pour l'instant, je ne peux me permettre aucune pitié. Je suis né dans le Royaume Intérieur, et tôt ou tard, les Royaumes Intérieur et Extérieur entreront en guerre totale. Tuer une personne de plus maintenant affaiblira le Royaume Extérieur ! C'est une lutte entre deux mondes, où le bien et le mal n'existent pas ! » La vitesse de Wang Lin augmenta considérablement tandis qu'il réfléchissait, des craquements résonnant dans son corps. Le brouillard noir revint et le projeta vers la planète de culture.
+« Pour l'instant, je ne peux me permettre aucune pitié. Je suis né dans le Royaume Intérieur, et tôt ou tard, les Royaumes Intérieur et Extérieur entreront en guerre totale. Tuer une personne de plus maintenant affaiblira le Royaume Extérieur ! C'est une lutte entre deux mondes, où le bien et le mal n'existent pas ! » La vitesse de Wang Lin augmenta considérablement tandis qu'il réfléchissait, des craquements résonnant dans son corps. Le brouillard noir revint et le projeta vers la planète de cultivation.
 
 Il volait de plus en plus vite, perçant l'espace pour s'approcher de la planète. Celle-ci apparaissait sombre, recouverte de marécages. L'énergie spirituelle y était extrêmement dense, et non seulement des cultivateurs y résidaient, mais aussi une multitude de bêtes spirituelles ! Cependant, un détail étrange frappait : la planète était saturée de ressentiment. Cette rancœur était si dense qu'elle semblait s'élever vers le ciel.
 

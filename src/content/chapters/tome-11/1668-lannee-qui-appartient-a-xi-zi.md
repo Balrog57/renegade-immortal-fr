@@ -82,7 +82,7 @@ Les larmes de Xi Zifeng coulèrent, portées par une émotion complexe. Elle se 
 
 Au loin, Mu Bingmei et la femme en rose observaient la scène en silence. Elles étaient assises à 10 000 pieds de là. À leur arrivée, elles avaient conclu un accord : une année chacune.
 
-Une année n'était pas long. Ce n'était rien pour les mortels, et encore moins pour les cultivateurs. Souvent, une seule session de culture ou une période d'isolement faisait passer plusieurs années en un clin d'œil. Pourtant, Xi Zifeng espérait que cette année s'écoulerait lentement.
+Une année n'était pas long. Ce n'était rien pour les mortels, et encore moins pour les cultivateurs. Souvent, une seule session de cultivation ou une période d'isolement faisait passer plusieurs années en un clin d'œil. Pourtant, Xi Zifeng espérait que cette année s'écoulerait lentement.
 
 Wang Lin n'était pas un homme de paroles, surtout avec les femmes. Il restait souvent silencieux, même auprès de Li Muwan, se contentant de la regarder d'un regard tendre.
 

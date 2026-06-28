@@ -8,7 +8,7 @@ slug: contempler-les-tribulations-arcaniques-den-haut
 ---
 L'homme d'âge moyen regarda au loin et, après un long moment, il murmura pour lui-même : « J'ai éveillé une calamité prématurément... » Il baissa la tête, contempla les ruines en contrebas et déploya son sens divin. Son sens divin était si puissant qu'il couvrit instantanément chaque centimètre de son continent.
 
-Il se souvenait vaguement qu'il y a fort longtemps, il était venu ici et avait détruit cet endroit. Après avoir exterminé toute forme de vie, il avait absorbé l'aura de la mort pour s'immerger dans une culture en isolement.
+Il se souvenait vaguement qu'il y a fort longtemps, il était venu ici et avait détruit cet endroit. Après avoir exterminé toute forme de vie, il avait absorbé l'aura de la mort pour s'immerger dans une cultivation en isolement.
 
 Selon ses calculs, il aurait dû s'éveiller après cinq calamités, mais il s'était éveillé avec une calamité d'avance.
 
@@ -68,11 +68,11 @@ La fusion des trois essences se mua en une ligne imprégnée de ses souvenirs. C
 
 Au moment où l'anneau fut imprimé, la nostalgie dans le regard de Wang Lin disparut, remplacée par une lumière dorée.
 
-Dans cette clarté, le niveau de culture de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui était destinée au Scorpion Vert !
+Dans cette clarté, le niveau de cultivation de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui était destinée au Scorpion Vert !
 
 Même la majeure partie de l'âme du Scorpion Vert, que Wang Lin avait dévorée après l'échec de la possession, fut absorbée par son âme originelle.
 
-Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de culture de Wang Lin à un stade infiniment proche du pic de l'Arcane Vide !
+Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de cultivation de Wang Lin à un stade infiniment proche du pic de l'Arcane Vide !
 
 Il lui manquait encore de quoi briser les barrières et entrer dans la Tribulation Arcanique pour faire face à l'arrivée des neuf Tribulations Arcaniques !
 
@@ -84,7 +84,7 @@ Ce changement soudain attira l'attention de tous les cultivateurs du Continent d
 
 Mais ceux qui subsistaient étaient tous des puissances redoutables !
 
-En particulier, bien que d'innombrables disciples fussent tombés, la Secte du Dao Démoniaque possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en culture isolée depuis plus de cent ans et n'en était jamais ressorti.
+En particulier, bien que d'innombrables disciples fussent tombés, la Secte du Dao Démoniaque possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en cultivation isolée depuis plus de cent ans et n'en était jamais ressorti.
 
 À cet instant, l'immense bouleversement au Temple du Scorpion Vert, au centre même du continent, fut ressenti par toutes les sectes environnantes.
 
@@ -92,9 +92,9 @@ Quiconque pouvait le ressentir connaissait la rumeur de la résurrection du Dém
 
 Le phénomène autour du temple dura plusieurs mois. Durant cette période, une quantité phénoménale d'énergie mondiale convergea vers ce point avec frénésie. Les cultivateurs présents n'osaient s'approcher, se contentant d'observer depuis la périphérie, reculant à mesure que le phénomène s'étendait.
 
-Toute cette puissance afflua dans le corps de Wang Lin durant ces mois, faisant grimper sans cesse son niveau de culture. Un jour, après plusieurs mois de tension, sa culture explosa soudainement et des grondements tonitruants résonnèrent dans ses entrailles.
+Toute cette puissance afflua dans le corps de Wang Lin durant ces mois, faisant grimper sans cesse son niveau de cultivation. Un jour, après plusieurs mois de tension, sa cultivation explosa soudainement et des grondements tonitruants résonnèrent dans ses entrailles.
 
-Sous l'effet de ces fracas, son niveau de culture passa du stade avancé de l'Arcane Vide au pic de l'Arcane Vide !
+Sous l'effet de ces fracas, son niveau de cultivation passa du stade avancé de l'Arcane Vide au pic de l'Arcane Vide !
 
 Cette fluctuation fut dissimulée par la déferlante d'énergie mondiale. Les cultivateurs du continent n'osaient pas non plus déployer leur Sens Divin, de peur d'irriter le Scorpion Vert en pleine résurrection. Ils craignaient sa colère, et personne ne remarqua rien.
 

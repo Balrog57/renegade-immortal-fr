@@ -56,7 +56,7 @@ Le vieil homme restait à quelques pas derrière. Son regard se posait occasionn
 
 Depuis qu'elle avait quitté la Secte Briseuse de Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
-« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même le Secte Divin lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de culture soit supérieur, je suis inférieure à lui en ce sens. »
+« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même le Secte Divin lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de cultivation soit supérieur, je suis inférieure à lui en ce sens. »
 
 « Hélas... Même un tel homme a été stoppé par la deuxième question. » Li Qianmei soupira intérieurement.
 
@@ -114,7 +114,7 @@ Plus étrange encore : à mesure que l'homme approchait, le ciel s'obscurcissait
 
 Il n'avait prononcé qu'un seul mot, mais à cet instant, les pas de l'homme d'âge moyen s'interrompirent. C'était comme si le rythme qu'il avait instauré par ses pas était brisé, le rendant incapable de distinguer le vrai du faux. Tout ce qui s'était produit jusqu'alors semblait s'être effondré sous la simple pensée de Wang Lin.
 
-L'expression de Lu Yuncong devint immédiatement grave. Ce sentiment était d'une clarté absolue. Il avait pourtant déployé sa culture et son domaine pour encercler cet homme en blanc. Ces pas qu'il faisait constituaient son domaine, et chaque foulée devait être une attaque de domaine.
+L'expression de Lu Yuncong devint immédiatement grave. Ce sentiment était d'une clarté absolue. Il avait pourtant déployé sa cultivation et son domaine pour encercler cet homme en blanc. Ces pas qu'il faisait constituaient son domaine, et chaque foulée devait être une attaque de domaine.
 
 En avançant, son domaine fusionnait avec le monde et son Dao se transformait en nuages sombres, lui conférant un élan décuplé. Ces douze pas simples consistaient à emprunter la puissance des cieux pour s'abattre sur cet homme en blanc à l'apparence ordinaire.
 
@@ -130,7 +130,7 @@ Ce fut comme si un coup de tonnerre invisible explosait dans la cour ; l'homme e
 
 En reculant, les nuages sombres du ciel se déchirèrent et disparurent instantanément. Le ciel redevint clair...
 
-Quelle que soit la profondeur et la subtilité de la compréhension du Dao de Lu Yuncong, comment pouvait-il rivaliser avec Wang Lin ? Wang Lin avait compris le cycle de la vie et de la mort après 500 ans de culture ; après plus de 900 ans, il avait achevé ce cycle pour qu'il se transforme en karma. Puis, après plus de 1 000 ans, son karma fut accompli et se transforma à nouveau en le domaine du vrai et du faux !
+Quelle que soit la profondeur et la subtilité de la compréhension du Dao de Lu Yuncong, comment pouvait-il rivaliser avec Wang Lin ? Wang Lin avait compris le cycle de la vie et de la mort après 500 ans de cultivation ; après plus de 900 ans, il avait achevé ce cycle pour qu'il se transforme en karma. Puis, après plus de 1 000 ans, son karma fut accompli et se transforma à nouveau en le domaine du vrai et du faux !
 
 Que pouvait bien utiliser Lu Yuncong pour comparer ? Quelle était sa qualification pour prétendre à une telle égalité ?
 

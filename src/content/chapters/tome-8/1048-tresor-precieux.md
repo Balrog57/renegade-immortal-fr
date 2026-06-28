@@ -40,7 +40,7 @@ Il n'eut aucun temps pour esquiver. Le timing de Wang Lin était parfait, et c'�
 
 À cet instant précis, l'âme originelle de Maître Void jaillit de son corps à une vitesse inimaginable pour entourer sa silhouette. Le corps de Maître Void brilla d'une lueur pourpre, tout comme son âme originelle qui devint entièrement violette.
 
-L'âme originelle d'un cultivateur ordinaire est très fragile et dépend de son corps physique. Cependant, lorsqu'on atteint un niveau de culture aussi élevé que celui de Maître Void, l'âme originelle devient bien plus puissante que le corps lui-même. Maître Void utilisa donc son âme pour envelopper son corps afin de bloquer l'épée d'argent !
+L'âme originelle d'un cultivateur ordinaire est très fragile et dépend de son corps physique. Cependant, lorsqu'on atteint un niveau de cultivation aussi élevé que celui de Maître Void, l'âme originelle devient bien plus puissante que le corps lui-même. Maître Void utilisa donc son âme pour envelopper son corps afin de bloquer l'épée d'argent !
 
 La lumière argentée jaillit violemment et le corps de Maître Void trembla ; son visage devint rouge avant qu'il ne crache un flot de sang. Son âme originelle vacilla avant de se rétracter dans son corps.
 
@@ -74,7 +74,7 @@ Dès l'apparition du cube de glace violet, Wang Lin avait ressenti une aura simi
 
 Non seulement il avait exposé son origine première, mais aussi son trésor de Pseudo-Nirvana Void. Cependant, s'il réussissait à terrasser ou à mutiler Maître Void, cela suffirait à dissuader la belle femme et l'homme en noir.
 
-Après une profonde inspiration, Wang Lin décida de fermer les yeux. En utilisant cette épée, il avait le sentiment qu'elle possédait son propre esprit. Son niveau de culture ne lui permettait pas d'en manifester la pleine puissance, mais puisque l'épée ne nécessitait aucun affinage, il existait un moyen de libérer sa véritable force : il devait simplement traiter le trésor comme une personne à part entière.
+Après une profonde inspiration, Wang Lin décida de fermer les yeux. En utilisant cette épée, il avait le sentiment qu'elle possédait son propre esprit. Son niveau de cultivation ne lui permettait pas d'en manifester la pleine puissance, mais puisque l'épée ne nécessitait aucun affinage, il existait un moyen de libérer sa véritable force : il devait simplement traiter le trésor comme une personne à part entière.
 
 Au moment où Wang Lin ferma les yeux et abandonna le contrôle de l'arme, l'épée laissa échapper un chant martial. L'avatar de Maître Void chargea à nouveau. Le cube de glace violet à l'intérieur de l'avatar dégageait un froid infini. Avant même qu'il n'atteigne sa cible, une énergie glaciale surpuissante convergeait déjà vers Wang Lin.
 

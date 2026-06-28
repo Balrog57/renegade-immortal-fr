@@ -70,11 +70,11 @@ Wang Lin ignora tous les regards qui convergeaient vers lui. Il s'assit et ferma
 
 Ce sentiment apparut alors que Wang Lin faisait route vers le palais, issu de l'inquiétude qu'il avait ressentie auparavant. Il éclata soudainement lorsqu'il s'assit, ce qui le surprit lui-même.
 
-Bien qu'il puisse être réprimé, cela affectait l'humeur de Wang Lin. Autrement, lorsque le Général Immortel s'était levé, Wang Lin n'aurait pas laissé transparaître un soupçon de sa culture.
+Bien qu'il puisse être réprimé, cela affectait l'humeur de Wang Lin. Autrement, lorsque le Général Immortel s'était levé, Wang Lin n'aurait pas laissé transparaître un soupçon de sa cultivation.
 
 Un personnage de ce rang n'était pas qualifié pour provoquer une telle réaction. À cet instant, Wang Lin eut même la pensée folle de tuer cet homme et de massacrer tout le monde ici.
 
-« Quelle en est la raison ? Pourquoi deviens-je ainsi en arrivant au palais de l'Ancien Dao... » Wang Lin ferma les yeux et fit circuler sa culture. Son esprit se calma lentement, mais il devint encore plus sombre.
+« Quelle en est la raison ? Pourquoi deviens-je ainsi en arrivant au palais de l'Ancien Dao... » Wang Lin ferma les yeux et fit circuler sa cultivation. Son esprit se calma lentement, mais il devint encore plus sombre.
 
 « Quelque chose ne va pas. Se pourrait-il que le palais ait activé des restrictions pour m'affecter ainsi ? Pourtant, en regardant autour de moi, aucune restriction ne semble active... » Wang Lin ouvrit les yeux et resta assis en silence.
 

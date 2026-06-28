@@ -86,7 +86,7 @@ L'effondrement des environs s'accéléra à mesure que les failles spatiales se 
 
 Le corps de Wang Lin fonça vers Red Butterfly comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
-Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à 90 mètres de Red Butterfly. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler : « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais ! »
+Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à 90 mètres de Red Butterfly. Le visage de cette dernière changea brusquement. Bien que sa cultivation se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler : « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais ! »
 
 « Haha, Red Butterfly, un génie comme toi ne devrait pas utiliser de telles menaces. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 

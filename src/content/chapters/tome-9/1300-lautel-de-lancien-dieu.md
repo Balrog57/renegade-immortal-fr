@@ -18,7 +18,7 @@ Même Wang Lin en eut le frisson.
 
 En quelques respirations seulement, le corps du scorpion se dessécha, vidé de son sang. Même sa compréhension du Dao fut dispersée et aspirée par la nuée de moustiques.
 
-Le roi des moustiques poussa un sifflement d'extase. Son corps trembla tandis que son niveau de culture augmentait considérablement. Et il n'était pas le seul : les 5 000 autres bêtes moustiques poussèrent toutes des rugissements exaltés !
+Le roi des moustiques poussa un sifflement d'extase. Son corps trembla tandis que son niveau de cultivation augmentait considérablement. Et il n'était pas le seul : les 5 000 autres bêtes moustiques poussèrent toutes des rugissements exaltés !
 
 Après avoir goûté au sang des bêtes et absorbé leurs essences, elles traversaient une phase de croissance fulgurante. Elles se dispersèrent alors pour traquer les bêtes féroces ; dès qu'une proie était capturée, elles attaquaient en masse pour la vider de toute substance.
 

@@ -10,7 +10,7 @@ Situ Nan dit, tout en fixant le char de guerre : « Un trésor céleste ! Bien q
 
 « Qualité inférieure... » Les yeux de Wang Lin s'illuminèrent. Il possédait trois chars de guerre et celui-ci était le plus petit. Les deux autres étaient bien plus puissants, en particulier le dernier.
 
-« J'ai lu quelques archives anciennes concernant les trésors célestes utilisant des esprits de bêtes. Ils ne peuvent être produits que dans le Royaume Céleste, et depuis l'effondrement de celui-ci, ces trésors ont presque disparu. Malheureusement, bien qu'il s'agisse d'un trésor de qualité inférieure, il nécessite une technique spéciale pour être utilisé, tout comme les trésors de qualité moyenne. L'utiliser par la force ne permet pas de libérer toute sa puissance. Quel dommage ! » Situ Nan soupira. Il admirait véritablement Wang Lin à cet instant. Bien que le niveau de culture de ce gamin ne fût pas aussi élevé que le sien, il possédait indéniablement une multitude de trésors. À son propre niveau de culture, il n'avait même pas un seul trésor céleste.
+« J'ai lu quelques archives anciennes concernant les trésors célestes utilisant des esprits de bêtes. Ils ne peuvent être produits que dans le Royaume Céleste, et depuis l'effondrement de celui-ci, ces trésors ont presque disparu. Malheureusement, bien qu'il s'agisse d'un trésor de qualité inférieure, il nécessite une technique spéciale pour être utilisé, tout comme les trésors de qualité moyenne. L'utiliser par la force ne permet pas de libérer toute sa puissance. Quel dommage ! » Situ Nan soupira. Il admirait véritablement Wang Lin à cet instant. Bien que le niveau de cultivation de ce gamin ne fût pas aussi élevé que le sien, il possédait indéniablement une multitude de trésors. À son propre niveau de cultivation, il n'avait même pas un seul trésor céleste.
 
 Wang Lin regarda Situ Nan, sortit un morceau de jade et, après y avoir inscrit quelques informations, le lui lança.
 
@@ -50,7 +50,7 @@ C'était une guerre titanesque ; tout le continent Suzaku tremblait tandis que l
 
 Zhuque Zi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, accompagnant le mouvement de ses cheveux blancs. Il restait là, parfaitement immobile.
 
-Chu Yuanfei était parti. L'ancêtre Ascendant du Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhuque Zi.
+Chu Yuanfei était parti. L'ancêtre Ascendant du Secte de la Terre Brisée s'était retiré en cultivation à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhuque Zi.
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, un soupçon de folie !
 
@@ -96,9 +96,9 @@ Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhou
 
 Cette première ancêtre paraissait extrêmement ordinaire, et pourtant, d'un simple revers de la main, elle avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
-Yunque Zi dit d'une voix grave : « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Culture Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais ! »
+Yunque Zi dit d'une voix grave : « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Cultivation Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais ! »
 
-Zhuque Zi laissa échapper un rire teinté de moquerie : « Si ce n'était pas parce que vous craignez que je détruise le Cristal de Culture Planétaire, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
+Zhuque Zi laissa échapper un rire teinté de moquerie : « Si ce n'était pas parce que vous craignez que je détruise le Cristal de Cultivation Planétaire, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
 
 « Arrogant ! » Les yeux du cinquième ancêtre s'illuminèrent ; il frappa son front, faisant apparaître un tatouage. Il pointa ce dernier, cracha un peu de sang dessus et hurla : « Sceau ! »
 

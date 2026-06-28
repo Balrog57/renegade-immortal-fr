@@ -18,7 +18,7 @@ Wang Lin joignit les mains et dit : « Merci infiniment ! »
 
 Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la division violette ; que dirais-tu que ton frère aîné te fasse visiter les lieux ? »
 
-Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement : « Je te remercie pour ta bienveillance, frère aîné, mais je suis encore occupé par ma culture. Faisons cela un autre jour. »
+Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement : « Je te remercie pour ta bienveillance, frère aîné, mais je suis encore occupé par ma cultivation. Faisons cela un autre jour. »
 
 En parlant, Wang Lin recula de deux pas. Il ressentait une sensation étrange émanant de Bai Wei, et discuter avec lui le mettait profondément mal à l'aise.
 
@@ -48,7 +48,7 @@ Wang Lin réfléchit un instant. Peu après, il dit calmement : « Troisième Fr
 
 Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre : « La division violette est la plus faible de toutes les divisions, mais la compétition y reste féroce ; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
 
-« Ne sous-estime pas ton frère aîné ; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti gravement blessé, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille ; il s'est retiré en culture fermée pendant des centaines d'années pour préparer son rétablissement. »
+« Ne sous-estime pas ton frère aîné ; sa cultivation n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti gravement blessé, ce qui avait fait chuter son niveau de cultivation. Cependant, il est d'une détermination sans faille ; il s'est retiré en cultivation fermée pendant des centaines d'années pour préparer son rétablissement. »
 
 « Malheureusement, Sun Yun est apparu, et il a vaincu Sixième Frère ainsi que ton frère aîné pour obtenir la position de véritable disciple de Maître. »
 
@@ -56,9 +56,9 @@ Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant d
 
 Wang Lin fronça légèrement les sourcils : « Le titre des sept véritables disciples de l'Omniscient n'est qu'un titre. Pourquoi se battre ainsi ? »
 
-Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre ? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de l'Omniscient, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres ? Chaque pays de culture devra te témoigner un immense respect, et d'innombrables personnes chercheront à devenir tes disciples. »
+Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre ? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de l'Omniscient, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres ? Chaque pays de cultivation devra te témoigner un immense respect, et d'innombrables personnes chercheront à devenir tes disciples. »
 
-« En plus de cela, chacun des sept véritables disciples peut disposer d'un pays de culture entier pour s'entraîner. Tu pourras choisir n'importe quel pays sur la planète Tian Yun, ou même l'un des pays des planètes environnantes ! »
+« En plus de cela, chacun des sept véritables disciples peut disposer d'un pays de cultivation entier pour s'entraîner. Tu pourras choisir n'importe quel pays sur la planète Tian Yun, ou même l'un des pays des planètes environnantes ! »
 
 « Et ce n'est pas le point le plus crucial. Toi et moi sommes des cultivateurs au stade de la Transformation de l'Âme, et notre désir le plus ardent est d'atteindre le stade Ascendant ! Atteindre le stade Ascendant, c'est chercher le Dao ou mourir en essayant ; tu as dû en entendre parler. Le moment où un cultivateur tente d'atteindre le stade Ascendant est extrêmement périlleux. Il arrive que l'on ne puisse plus jamais cultiver. Le taux de survie n'est que de 10 % ! »
 
@@ -66,7 +66,7 @@ Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire
 
 Wang Lin prit une profonde inspiration, les yeux brillants.
 
-« Ce n'est pas tout. La quantité de jade céleste dont les cultivateurs de notre niveau ont besoin est inimaginable. Même en tant que disciple de Maître, tu reçois une allocation mensuelle, mais à mesure que ta culture augmentera, elle deviendra insuffisante. En revanche, une fois devenu l'un des sept véritables disciples, tu auras accès aux stocks illimités de jade céleste de la Secte du Destin Céleste ! Es-tu enfin tenté ? »
+« Ce n'est pas tout. La quantité de jade céleste dont les cultivateurs de notre niveau ont besoin est inimaginable. Même en tant que disciple de Maître, tu reçois une allocation mensuelle, mais à mesure que ta cultivation augmentera, elle deviendra insuffisante. En revanche, une fois devenu l'un des sept véritables disciples, tu auras accès aux stocks illimités de jade céleste de la Secte du Destin Céleste ! Es-tu enfin tenté ? »
 
 Les pupilles de Wang Lin se contractèrent !
 
@@ -74,11 +74,11 @@ Les pupilles de Wang Lin se contractèrent !
 
 « La transmission de Maître n'est pas un vague concept philosophique, mais de véritables sorts célestes ! Sois un véritable disciple pendant 100 ans et tu recevras un sort céleste de faible qualité ; un sort complet et authentique ! »
 
-« Être l'un des véritables disciples pendant 1 000 ans te permet d'obtenir un autre sort céleste de faible qualité. Tu seras également envoyé à l'Alliance de la Culture pour approfondir tes études et devenir véritablement une puissance dans le monde de la culture ! »
+« Être l'un des véritables disciples pendant 1 000 ans te permet d'obtenir un autre sort céleste de faible qualité. Tu seras également envoyé à l'Alliance de la Cultivation pour approfondir tes études et devenir véritablement une puissance dans le monde de la cultivation ! »
 
 Le regard de Wang Lin devint grave et il demanda, avec précision : « Si je reste un véritable disciple pendant 1 000 ans, je recevrai un sort céleste complet. Est-ce bien vrai ? »
 
-Bai Wei acquiesça. « C'est absolument vrai ! Le véritable disciple de la division verte, Li Shengnan, l'est depuis plus de 1 000 ans. Il y a cent ans, il a reçu de Maître un sort céleste complet de faible qualité. Il est toujours en culture fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau inimaginable ! »
+Bai Wei acquiesça. « C'est absolument vrai ! Le véritable disciple de la division verte, Li Shengnan, l'est depuis plus de 1 000 ans. Il y a cent ans, il a reçu de Maître un sort céleste complet de faible qualité. Il est toujours en cultivation fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau inimaginable ! »
 
 Les yeux de Wang Lin reflétèrent une lueur mystérieuse. Après avoir longuement réfléchi en silence, il hocha la tête et se leva. Il joignit les mains devant Bai Wei et dit : « Troisième Frère, je suis fatigué. Nous discuterons un autre jour. Je reviendrai te voir. »
 
@@ -96,11 +96,11 @@ Les trois sorts de mort que Situ Nan avait dérivés d'un sort céleste brisé p
 
 Les êtres célestes étaient puissants pour deux raisons : les trésors célestes et les sorts célestes !
 
-Un être céleste possédant des trésors de haute qualité et maîtrisant des sorts célestes de haut niveau était une puissance dépassant l'imagination. Plus leur culture était élevée, plus ils devenaient terrifiants.
+Un être céleste possédant des trésors de haute qualité et maîtrisant des sorts célestes de haut niveau était une puissance dépassant l'imagination. Plus leur cultivation était élevée, plus ils devenaient terrifiants.
 
 Il existait peut-être des techniques rivalisant avec les sorts célestes, mais d'après ce que savait Wang Lin, seules les techniques des anciens dieux pouvaient en être à la hauteur.
 
-Wang Lin possédait de nombreuses techniques des anciens dieux issues des souvenirs de Tu Si. Cependant, elles exigeaient toutes des conditions extrêmement strictes et, avec le niveau de culture actuel de son corps originel, il ne pouvait en utiliser aucune.
+Wang Lin possédait de nombreuses techniques des anciens dieux issues des souvenirs de Tu Si. Cependant, elles exigeaient toutes des conditions extrêmement strictes et, avec le niveau de cultivation actuel de son corps originel, il ne pouvait en utiliser aucune.
 
 « Les sept véritables disciples de l'Omniscient... Intéressant ! » Les yeux de Wang Lin s'illuminèrent. Il enfila ses vêtements de disciple et sortit du pavillon.
 
@@ -116,6 +116,6 @@ La division violette était immense. Ayant déjà exploré la zone à plusieurs 
 
 C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierres spirituelles. C'est aussi là que Bai Wei avait récupéré le jeton et les vêtements de Wang Lin. En tant que disciple de l'Omniscient, il bénéficierait de privilèges spéciaux, comme une allocation mensuelle de jade céleste. Il avait décidé de s'y rendre après les explications de Bai Wei.
 
-« Si je veux prétendre à la position de l'un des sept véritables disciples, ma culture doit atteindre le milieu du stade de la Transformation de l'Âme ! Sur la planète Tian Yun, moi, Wang Lin, serai un être dominant ! Ce n'est pas un endroit où l'on cache sa force ; si je montre la moindre faiblesse, je finirai immédiatement sous les bottes de quelqu'un. Même l'Omniscient le permet, sans quoi le combat précédent n'aurait jamais eu lieu ! »
+« Si je veux prétendre à la position de l'un des sept véritables disciples, ma cultivation doit atteindre le milieu du stade de la Transformation de l'Âme ! Sur la planète Tian Yun, moi, Wang Lin, serai un être dominant ! Ce n'est pas un endroit où l'on cache sa force ; si je montre la moindre faiblesse, je finirai immédiatement sous les bottes de quelqu'un. Même l'Omniscient le permet, sans quoi le combat précédent n'aurait jamais eu lieu ! »
 
 « Puisqu'il en est ainsi, je veux voir jusqu'où je peux grimper dans cette Secte du Destin Céleste ! Tant que je ne franchis pas la limite imposée par Maître, je pourrai faire tout ce que je souhaite ! »

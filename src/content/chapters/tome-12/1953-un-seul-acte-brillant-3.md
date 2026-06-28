@@ -34,7 +34,7 @@ La belle femme fixa la feuille d'automne devant elle et dit doucement : « Maît
 
 Le vieil homme ouvrit les yeux et son regard balaya la feuille.
 
-« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant ? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empereurs plus tard et cherchent ardemment à étendre leur pouvoir. Outre la culture du sixième Grand Empereur, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
+« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant ? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empereurs plus tard et cherchent ardemment à étendre leur pouvoir. Outre la cultivation du sixième Grand Empereur, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
 
 « Mais pour Maître, franchir le neuvième palais n'est rien de plus que des fourmis sur le sol. Qu'importe si une fourmi est un peu plus grande que les autres ? Ce n'est que s'il parvenait à franchir le quinzième palais, comme Ming Dao, que Maître envisagerait de le recruter », déclara lentement le vieil homme.
 

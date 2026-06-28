@@ -16,9 +16,9 @@ Sur ce, il s'envola rapidement au loin et cessa de parler de piéger Wang Lin.
 
 Wang Lin resta sur place, regardant froidement Sun Tai disparaître à l'horizon. Ce n'est qu'une fois celui-ci parti que Wang Lin se détendit enfin un peu.
 
-Le niveau de culture de ce Sun Tai était trop élevé. Ce type d'esclave était une chose que Wang Lin ne voudrait jamais avoir. Il semblait même que Zhou Yi n'ait pas réalisé que Sun Tai possédait une quatrième âme.
+Le niveau de cultivation de ce Sun Tai était trop élevé. Ce type d'esclave était une chose que Wang Lin ne voudrait jamais avoir. Il semblait même que Zhou Yi n'ait pas réalisé que Sun Tai possédait une quatrième âme.
 
-Wang Lin pensa secrètement : « Même s'il possède une quatrième âme, si sa troisième âme venait à mourir, son niveau de culture chuterait considérablement. Cela pourrait même laisser une blessure cachée. Si tel est le cas, Sun Tai ne sera pas effrayé par mes simples paroles. » Il se retourna et s'envola vers Chi Hu et la boussole.
+Wang Lin pensa secrètement : « Même s'il possède une quatrième âme, si sa troisième âme venait à mourir, son niveau de cultivation chuterait considérablement. Cela pourrait même laisser une blessure cachée. Si tel est le cas, Sun Tai ne sera pas effrayé par mes simples paroles. » Il se retourna et s'envola vers Chi Hu et la boussole.
 
 Wang Lin savait que ce qui venait de se passer était extrêmement dangereux. S'il avait hésité un seul instant, il aurait été capturé par Sun Tai.
 
@@ -28,7 +28,7 @@ Wang Lin retourna rapidement vers la boussole stellaire.
 
 « Frère Ceng, ce Sun Tai est l'Ancien principal du Secte des Cadavres. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan des Démons Géants, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
 
-Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
+Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa cultivation était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
 Wang Lin sourit et dit : « Nul besoin de s'inquiéter. Si le senior Zhou Yi ne m'avait pas dit qu'il serait très utile de le garder en vie, je l'aurais déjà tué pour utiliser cette pagode afin de sceller sa quatrième âme. Il n'aurait alors eu aucun moyen d'échapper à son destin. » Wang Lin disait tout cela avec une expression très calme. Il savait que même si Sun Tai était parti, il utiliserait son sens divin pour les espionner.
 
@@ -40,7 +40,7 @@ Peu de temps après leur départ, Sun Tai apparut. Il fixa la direction où Wang
 
 Sun Tai réfléchit un moment avant de s'élancer vers l'avant.
 
-« Quel genre de problème est-ce là... Je ne peux ni le tuer, ni le piéger. Pourquoi est-ce si problématique ? Si je le pousse trop, il pourrait décider d'ignorer les paroles de Zhou Yi et de détruire ma troisième âme. Bien que j'aie une quatrième âme, elle n'est pas encore pleinement mature. La mort de la troisième âme ne ferait pas que diminuer mon niveau de culture, elle réduirait aussi ma longévité... »
+« Quel genre de problème est-ce là... Je ne peux ni le tuer, ni le piéger. Pourquoi est-ce si problématique ? Si je le pousse trop, il pourrait décider d'ignorer les paroles de Zhou Yi et de détruire ma troisième âme. Bien que j'aie une quatrième âme, elle n'est pas encore pleinement mature. La mort de la troisième âme ne ferait pas que diminuer mon niveau de cultivation, elle réduirait aussi ma longévité... »
 
 Il laissa échapper un soupir de grande frustration.
 
@@ -78,7 +78,7 @@ Chi Hu fixa Wang Lin, se demandant secrètement si ce dernier disait la vérité
 
 « Si Ceng Niu essaie de me forcer ou de me tromper, même si je lui donne la boussole, je ne serais pas heureux. Et si cela arrive et que je sors d'ici vivant, je trouverai un moyen de me venger. Cependant, sa façon de parler est empreinte de sincérité. Il me considère véritablement comme un ami. »
 
-« De plus, la culture de Ceng Niu est terrifiante. Il a aussi reçu le cristal Ascendant de Zhou Yi, ce qui fait de lui la personne de ma génération la plus susceptible d'atteindre le stade Ascendant. Si je me lie d'amitié avec lui maintenant, il pourrait aider mon clan à l'avenir. »
+« De plus, la cultivation de Ceng Niu est terrifiante. Il a aussi reçu le cristal Ascendant de Zhou Yi, ce qui fait de lui la personne de ma génération la plus susceptible d'atteindre le stade Ascendant. Si je me lie d'amitié avec lui maintenant, il pourrait aider mon clan à l'avenir. »
 
 Pensant cela, il dit avec un certain regret : « Frère Ceng, puisque vous me considérez comme un ami, comment pourrais-je être avare ? Si vous deviez essayer de l'emprunter plus tard, avec le tempérament des vieux sages chez moi, ils ne vous la prêteraient jamais facilement. Autant vous l'offrir dès aujourd'hui ! »
 

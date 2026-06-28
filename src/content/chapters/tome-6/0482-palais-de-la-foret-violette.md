@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 482 - Purple Forest Palace
 slug: palais-de-la-foret-violette
 ---
-Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète à la culture déclinante, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
+Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète à la cultivation déclinante, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
 
 Un tel niveau de puissance n'était comparable qu'à celui de cultivateurs du stade moyen de la Transformation de l'Âme !
 
@@ -28,9 +28,9 @@ Son nom était Sun Yun, et il résidait au Pavillon du Nuage Violet ! »
 
 Le regard de Wang Lin se fit sérieux alors qu'il demandait calmement : « Quel rapport cela a-t-il avec moi ? »
 
-« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi le secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul ; il a alors scellé le Pavillon du Nuage Violet et a proclamé que la prochaine personne héritant du Secte du Nuage Violet serait l'un de ses sept disciples directs ! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit : « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun ; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon du Nuage Violet, la discrimination est inévitable !
+« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi le secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul ; il a alors scellé le Pavillon du Nuage Violet et a proclamé que la prochaine personne héritant du Secte du Nuage Violet serait l'un de ses sept disciples directs ! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit : « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun ; vous seul venez d'une planète à la cultivation déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon du Nuage Violet, la discrimination est inévitable !
 
-De plus, votre niveau de culture n'est même pas si élevé ; il est donc naturel que vos aînés vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les complots et les trahisons sont inéluctables ! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne nous mêlerons plus jamais de vos affaires ! »
+De plus, votre niveau de cultivation n'est même pas si élevé ; il est donc naturel que vos aînés vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les complots et les trahisons sont inéluctables ! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne nous mêlerons plus jamais de vos affaires ! »
 
 En disant cela, le vieil homme jeta un regard vers la lame en croissant de lune. Il la redoutait profondément.
 
@@ -106,7 +106,7 @@ C'était l'une des trois techniques létales que Situ Nan avait enseignées à W
 
 Le Doigt de la Mort !
 
-Ces trois techniques étaient des méthodes extrêmement puissantes et démoniaques que Situ avait forgées au fil de ses dizaines de milliers d'années de culture. Durant toute sa vie, il ne les avait transmises qu'à Wang Lin.
+Ces trois techniques étaient des méthodes extrêmement puissantes et démoniaques que Situ avait forgées au fil de ses dizaines de milliers d'années de cultivation. Durant toute sa vie, il ne les avait transmises qu'à Wang Lin.
 
 D'un seul doigt, le visage de la femme devint livide et la folie qui animait son regard s'évanouit. Elle voulut immédiatement battre en retraite, mais découvrit avec terreur que l'espace autour d'elle était devenu d'une fragilité extrême, incapable de supporter ne serait-ce qu'une téléportation.
 

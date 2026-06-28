@@ -10,11 +10,11 @@ Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5
 
 Le Secte du Jade Précieux était la secte numéro un de la région de rang 5. Il comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
 
-La taille de Peng Lai était bien plus vaste que celle de Mo Luo ; elle était au moins une douzaine de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de culture !
+La taille de Peng Lai était bien plus vaste que celle de Mo Luo ; elle était au moins une douzaine de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de cultivation !
 
-Dans la Mer des Nuages, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
+Dans la Mer des Nuages, les planètes de cultivation étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
 
-Même le Secte du Jade Précieux n'était pas qualifié pour occuper une planète de culture entière ; il n'en avait obtenu que la moitié ! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que le Secte Fantôme de rang 9 lui en avait fait don.
+Même le Secte du Jade Précieux n'était pas qualifié pour occuper une planète de cultivation entière ; il n'en avait obtenu que la moitié ! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que le Secte Fantôme de rang 9 lui en avait fait don.
 
 Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi au Secte du Jade Précieux de la conserver.
 
@@ -22,7 +22,7 @@ Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoi
 
 Outre le prestige du Secte du Jade Précieux, la renommée de Peng Lai reposait également sur l'enchère qu'il organisait tous les 30 ans. À chaque édition, une foule immense de cultivateurs convergeait, incluant des figures célèbres venues des régions supérieures. L'événement était d'une effervescence extrême.
 
-L'enchère se déroulait sur trois mois, proposant une liste exhaustive de trésors, de pilules, de recettes de pilules et de bêtes spirituelles. Elle offrait aux cultivateurs une immense variété de ressources, incluant l'échange de jade céleste et de cristaux d'origine, ainsi que le commerce de corps et de fours de culture.
+L'enchère se déroulait sur trois mois, proposant une liste exhaustive de trésors, de pilules, de recettes de pilules et de bêtes spirituelles. Elle offrait aux cultivateurs une immense variété de ressources, incluant l'échange de jade céleste et de cristaux d'origine, ainsi que le commerce de corps et de fours de cultivation.
 
 Il y avait même des paris consistant à faire combattre ses propres bêtes spirituelles. Bien sûr, les activités les plus fascinantes étaient le Chaos de Peng Lai et la mise aux enchères de ses propres biens.
 

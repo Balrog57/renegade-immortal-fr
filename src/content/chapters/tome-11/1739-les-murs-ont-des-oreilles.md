@@ -60,13 +60,13 @@ L'expression des trois hommes changea. Ils voulurent charger pour stopper Wang L
 
 Tout cela était prévu par Wang Lin !
 
-Son poing gronda. Ce coup était chargé de sa détermination et de la totalité de sa culture. Il se rapprochait inexorablement de la tour !
+Son poing gronda. Ce coup était chargé de sa détermination et de la totalité de sa cultivation. Il se rapprochait inexorablement de la tour !
 
 Cependant, à cet instant précis, une aura puissante émana du quatrième étage de la tour. Tandis que cette aura se répandait, un jeune homme vêtu de noir en sortit !
 
 Ce jeune homme paraissait ordinaire, mais ses yeux brillaient d'une lueur étrange. C'était le même qui était sorti de la faille spatiale lors de la rétribution divine de Wang Lin !
 
-Ce jeune homme cherchait quelque chose dans la Rivière des Appels, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin !
+Ce jeune homme cherchait quelque chose dans la Rivière des Appels, mais des années auparavant, il était revenu, impuissant, pour s'isoler en cultivation secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin !
 
 Il connaissait Wang Lin, et Wang Lin l'avait déjà rencontré !
 
@@ -86,7 +86,7 @@ Tandis que Wang Lin reculait, six fleurs noires apparurent sur son bras, comme i
 
 Une douleur intense envahit l'esprit de Wang Lin, et une lueur glaciale passa dans ses yeux.
 
-Une étoile illusoire apparut entre les sourcils du jeune homme, ainsi que dans chacun de ses yeux. C'était le résultat de la culture du Dao Antique de Wang Lin combinée à sa propre culture de cultivateur !
+Une étoile illusoire apparut entre les sourcils du jeune homme, ainsi que dans chacun de ses yeux. C'était le résultat de la cultivation du Dao Antique de Wang Lin combinée à sa propre cultivation de cultivateur !
 
 Après être apparues, les étoiles se transformèrent en Ancien Dieu, Ancien Démon et Ancien Diable. Elles s'incarnèrent dans l'esprit du jeune homme pour attaquer son âme originelle.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 615 - Whereabouts of Greed
 slug: les-traces-de-la-cupidite
 ---
-L'homme d'âge moyen s'appelait Hai Zhu. Au moment où Wang Lin lui trancha la tête, il scella son âme originelle. Avec le niveau de culture de Wang Lin au stade Ascendant, il fut d'une facilité déconcertante de sceller l'âme originelle d'un cultivateur du stade avancé de la Transformation de l'Âme !
+L'homme d'âge moyen s'appelait Hai Zhu. Au moment où Wang Lin lui trancha la tête, il scella son âme originelle. Avec le niveau de cultivation de Wang Lin au stade Ascendant, il fut d'une facilité déconcertante de sceller l'âme originelle d'un cultivateur du stade avancé de la Transformation de l'Âme !
 
 Wang Lin emporta la tête et partit. Il fut comme une brise printanière qui disparut en un clin d'œil. Quant à l'émeraude de l'Empereur, il ne la récupéra pas car elle lui était inutile. Cependant, c'était un présent que le Démon Empereur avait offert en signe de bonne foi ; s'il ne l'avait pas acceptée, il aurait paru bien trop arrogant.
 
@@ -16,7 +16,7 @@ Wang Lin raffina la tête de Hai Zhu et dévora l'énergie d'épée. Quant à l'
 
 « Non seulement les membres du Secte de l'Épée Da Lou dans la Terre des Esprits Démoniaques possèdent tous un fragment de l'énergie d'épée de Ling Tianhou, mais il y a aussi quelqu'un nommé Cupidité qui les protège secrètement... Cupidité... Ce nom est très particulier, je ne devrais pas le connaître. L'apparence de ce "Cupidité" dans la mémoire de Hai Zhu m'est quelque peu familière, mais je suis certain de ne jamais l'avoir rencontré auparavant », songea Wang Lin en volant.
 
-« Cupidité... D'après les souvenirs de Hai Zhu, la culture de cette personne a déjà surpassé le stade Ascendant pour atteindre le stade de l'Illusion Yin... Un seul pas en dessous du stade Corporel Yang de Situ Nan... » Les sourcils de Wang Lin se froncèrent. Soudain, il cessa de voler et resta immobile dans les airs.
+« Cupidité... D'après les souvenirs de Hai Zhu, la cultivation de cette personne a déjà surpassé le stade Ascendant pour atteindre le stade de l'Illusion Yin... Un seul pas en dessous du stade Corporel Yang de Situ Nan... » Les sourcils de Wang Lin se froncèrent. Soudain, il cessa de voler et resta immobile dans les airs.
 
 « Situ Nan ! » Wang Lin prit une profonde inspiration et sa main droite effleura son sac de rangement. Un jade en sortit et il le saisit. Après l'avoir examiné avec son Sens Divin, son expression devint sombre.
 
@@ -34,7 +34,7 @@ S'il pouvait totalement séparer la perle défiant le ciel de son corps, Wang Li
 
 Les sourcils de Wang Lin se contractèrent violemment.
 
-« D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Culture s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps ralentit à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Quoi qu'on en dise, cette perle n'est qu'un objet ordinaire. Bien qu'elle puisse ralentir le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
+« D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Cultivation s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps ralentit à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Quoi qu'on en dise, cette perle n'est qu'un objet ordinaire. Bien qu'elle puisse ralentir le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
 
 Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même : « À l'origine, il y avait cinq disciples du Secte de l'Épée Da Lou, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel du Secte de l'Épée Da Lou, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul survivant dans le Pays des Démons Célestes. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
 
@@ -74,7 +74,7 @@ Durant cette période, des vagues de membres du Clan de l'Affinement de l'Âme, 
 
 Wang Lin semblait avoir oublié la guerre au Pays des Démons de Feu. Il passa ces dix ans à cultiver dans sa tour, gravant son empreinte sur le démon dispersé. Il se préparait ! Il se préparait à devenir encore plus puissant avant l'expiration du délai de cent ans, car c'était la seule façon d'honorer l'accord passé avec le Démon Antique.
 
-Cette culture incessante permit au stade initial Ascendant de Wang Lin de devenir encore plus stable. Il sentait que, bien qu'une partie de l'énergie de la boucherie envoyée disparaisse, une quantité toujours plus grande lui revenait chaque jour. Quant aux membres du clan, plus ils massacraient, plus leur énergie de la boucherie se renforçait, garantissant ainsi leur survie et augmentant leur puissance.
+Cette cultivation incessante permit au stade initial Ascendant de Wang Lin de devenir encore plus stable. Il sentait que, bien qu'une partie de l'énergie de la boucherie envoyée disparaisse, une quantité toujours plus grande lui revenait chaque jour. Quant aux membres du clan, plus ils massacraient, plus leur énergie de la boucherie se renforçait, garantissant ainsi leur survie et augmentant leur puissance.
 
 À ce jour, il avait envoyé un total de 100 000 parcelles d'énergie de la boucherie au sein de 100 000 membres du clan. Ces parcelles ne cessaient de croître de jour en jour.
 

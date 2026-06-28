@@ -74,7 +74,7 @@ Cela montrait à quel point il était faible.
 
 L'âme originelle de Wang Lin ne bougeait pas. Il attendait toujours. S'il attaquait maintenant, l'âme du scorpion s'enfuirait rapidement car elle n'avait pas encore entamé la possession. Une fois la possession commencée, il ne serait plus facile de partir, et ce serait là la meilleure chance pour Wang Lin.
 
-L'âme originelle de Wang Lin afficha un regard froid. Il ignorait quel serait son niveau de culture après avoir dévoré l'âme du scorpion, mais il avait le sentiment que cela représenterait une immense fortune pour lui !
+L'âme originelle de Wang Lin afficha un regard froid. Il ignorait quel serait son niveau de cultivation après avoir dévoré l'âme du scorpion, mais il avait le sentiment que cela représenterait une immense fortune pour lui !
 
 Il possédait assez de patience pour utiliser son propre corps comme appât afin d'obtenir ce trésor !
 
@@ -132,7 +132,7 @@ Une fois l'âme du scorpion partie, l'âme originelle de Wang Lin enveloppa imm�
 
 « Corps véritable de l'essence de l'Eau ! » Le corps véritable de l'essence de l'eau avait fusionné avec le sang de Wang Lin. À cet instant, les vaisseaux sanguins de Wang Lin gonflèrent et une ombre apparut derrière lui, se transformant rapidement en son quatrième corps véritable d'essence !
 
-Après l'apparition des quatre corps véritables d'essence, l'aura de Wang Lin était terrifiante. Son niveau de culture restait le même, mais il lui suffisait de s'apaiser pour que son niveau augmente considérablement par la seule force de sa pensée.
+Après l'apparition des quatre corps véritables d'essence, l'aura de Wang Lin était terrifiante. Son niveau de cultivation restait le même, mais il lui suffisait de s'apaiser pour que son niveau augmente considérablement par la seule force de sa pensée.
 
 Cependant, ce n'était pas le moment de s'apaiser. Après l'apparition des quatre corps véritables, les yeux de Wang Lin libérèrent un éclat de lumière dorée. Cette lumière contenait une force de suppression, et il fixa l'âme du scorpion qui tentait de fuir !
 

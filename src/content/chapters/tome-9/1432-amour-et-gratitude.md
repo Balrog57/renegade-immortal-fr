@@ -56,7 +56,7 @@ Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui 
 
 Cependant, certaines choses étaient encore plus importantes que sa propre existence ! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des émotions dont il ne pouvait se défaire !
 
-« À partir de maintenant, je te confie le Secte de la Raffinement de l'Âme... » Sur la planète Suzaku, le maître du Secte de la Raffinement de l'Âme, Dun Tian, avait transmis les trésors de son secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin ! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait !
+« À partir de maintenant, je te confie le Secte de la Raffinement de l'Âme... » Sur la planète Suzaku, le maître du Secte de la Raffinement de l'Âme, Dun Tian, avait transmis les trésors de son secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la cultivation depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin ! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait !
 
 « Moi, Wang Lin, je ne m'agenouillerai jamais devant les cieux, sauf par respect pour Situ ! »
 
@@ -78,7 +78,7 @@ La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques
 
 La deuxième génération lui avait transmis la méthode pour contrôler le dragon et la Restriction de l'Âme Antique. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon : le Parapluie Antique Brûlant les Royaumes !
 
-« Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé ! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
+« Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé ! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la cultivation duale, ce vieil homme ne comprend vraiment pas... »
 
 Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-il rompre tous ces liens par un seul choix... Les souvenirs du Maître Simo emplirent l'esprit de Wang Lin. En contemplant la vie du Maître Simo, il avait l'impression de visionner ses propres souvenirs.
 

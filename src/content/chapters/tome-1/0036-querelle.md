@@ -14,7 +14,7 @@ Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité
 
 L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'énergie spirituelle liquide, il constata que chaque fois qu'il attendait dans le monde réel, l'énergie spirituelle y était au moins deux fois plus dense qu'à l'extérieur des montagnes arrières.
 
-À partir du deuxième niveau, sa culture ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après d'innombrables tentatives, il réussit enfin son percée.
+À partir du deuxième niveau, sa cultivation ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après d'innombrables tentatives, il réussit enfin son percée.
 
 Cependant, ce qui le plongeait dans la confusion et la détresse était que, durant les sept années suivantes, bien qu'il ait atteint le sommet du troisième niveau, il ne parvenait pas à passer au quatrième, quels que soient ses efforts. Ce n'était pas par manque d'énergie spirituelle ; il sentait une force mystérieuse l'arrêter chaque fois qu'il atteignait le point critique.
 
@@ -30,9 +30,9 @@ Après une légère hésitation, Wang Lin ne sortit pas cette gourde. D'après s
 
 Il se leva et s'étira. Il marcha jusqu'au levier et le tira. Dans un rugissement, la porte de pierre s'ouvrit. La lumière du soleil inonda la grotte, éblouissant Wang Lin. Une fois ses yeux accoutumés à la clarté, il sortit de la cavité et prit une profonde inspiration.
 
-En regardant vers le bas, il vit une multitude de personnes discuter dans la vallée. Il semblait que beaucoup d'entre elles trouvaient la culture ennuyeuse et venaient pour socialiser.
+En regardant vers le bas, il vit une multitude de personnes discuter dans la vallée. Il semblait que beaucoup d'entre elles trouvaient la cultivation ennuyeuse et venaient pour socialiser.
 
-Après avoir réfléchi un instant, il activa une technique pour dissimuler son niveau de culture au premier niveau de Condensation de Qi. D'un revers de manches, il s'élança et son corps descendit lentement vers le sol, flottant dans les airs.
+Après avoir réfléchi un instant, il activa une technique pour dissimuler son niveau de cultivation au premier niveau de Condensation de Qi. D'un revers de manches, il s'élança et son corps descendit lentement vers le sol, flottant dans les airs.
 
 Durant les treize années passées dans l'espace de rêve, il avait parfaitement maîtrisé la technique d'attraction. Il n'avait même plus besoin de réciter l'incantation ; sa seule volonté suffisait à l'activer.
 
@@ -62,7 +62,7 @@ Ce dernier reprit avec un regard méprisant : « Qu'est-ce que ça signifie ? Tu
 
 Le visage des deux compères changea instantanément. Ils jetèrent des regards noirs à Wang Lin avant de renifler avec mépris, ne disant plus un mot. Ils craignaient manifestement le frère Zhang.
 
-Le regard du frère apprenti Zhang se tourna vers Wang Lin et il ajouta d'un ton tout aussi sévère : « Wang Lin, tu n'aurais vraiment pas dû venir. Mais puisque tu es là, concentre-toi sur ta culture. Dans le monde de la culture, la puissance est tout. »
+Le regard du frère apprenti Zhang se tourna vers Wang Lin et il ajouta d'un ton tout aussi sévère : « Wang Lin, tu n'aurais vraiment pas dû venir. Mais puisque tu es là, concentre-toi sur ta cultivation. Dans le monde de la cultivation, la puissance est tout. »
 
 Wang Lin hocha la tête. Après une courte hésitation, il demanda : « Frère apprenti Zhang, j'ai une question. Une fois que l'on atteint le sommet du premier niveau de Condensation de Qi, pourquoi, malgré tous mes efforts, ne parviens-je pas à passer au deuxième niveau ? »
 

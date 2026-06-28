@@ -42,7 +42,7 @@ Tandis que Wang Lin survolait les cieux, son Sens Divin se déploya pour couvrir
 
 Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Continent du Taureau Céleste. Les autres s'étaient contentés d'obtenir la reconnaissance du feu pour en comprendre l'essence et devenir des cultivateurs du troisième niveau.
 
-S'ils atteignaient un certain niveau de culture et que leur essence était assez puissante, ils pourraient peut-être devenir des rois du feu. Mais en fin de compte, cela différait radicalement de ce que Wang Lin entreprenait.
+S'ils atteignaient un certain niveau de cultivation et que leur essence était assez puissante, ils pourraient peut-être devenir des rois du feu. Mais en fin de compte, cela différait radicalement de ce que Wang Lin entreprenait.
 
 Wang Lin n'était pas originaire du Continent Astral Immortel et ne comprenait pas le feu de cette terre. Faute d'avoir obtenu la reconnaissance du feu local, il subirait naturellement un rejet.
 
@@ -106,7 +106,7 @@ Le changement le plus flagrant était que, désormais, chaque fois qu'il utilisa
 
 À présent, son essence de feu s'était renforcée et se rapprochait de la formation d'un Corps Véritable d'Essence !
 
-Dans cette terre étrange peuplée de puissants cultivateurs, rien n'était plus exaltant que d'augmenter son niveau de culture. Wang Lin n'hésita pas à progresser, chevauchant le géant Oiseau Vermillon, tandis que son Sens Divin se déployait pour traquer la prochaine veine de feu !
+Dans cette terre étrange peuplée de puissants cultivateurs, rien n'était plus exaltant que d'augmenter son niveau de cultivation. Wang Lin n'hésita pas à progresser, chevauchant le géant Oiseau Vermillon, tandis que son Sens Divin se déployait pour traquer la prochaine veine de feu !
 
 Deux jours après le départ de Wang Lin, un rayon de lumière approcha du lointain. La personne à l'intérieur était l'ancêtre du Secte du Dragon Bleu, Du Qing ! Il arriva très rapidement cette fois et, lorsqu'il atterrit, il fut frappé de stupeur. En observant les montagnes en contrebas, ses paupières tressaillirent.
 

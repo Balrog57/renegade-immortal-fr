@@ -86,7 +86,7 @@ Cette silhouette était un homme fait de sang pur. Dès son apparition, il pouss
 
 L'être de sang se dirigea vers l'affrontement entre le Dieu du Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
 
-L'âme originelle de Li Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Flamespark ou même du Dieu du Sang, son rôle dans cette guerre entre Allheaven et l'Alliance était crucial !
+L'âme originelle de Li Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa cultivation ne fût pas aussi puissante que celle du Maître Flamespark ou même du Dieu du Sang, son rôle dans cette guerre entre Allheaven et l'Alliance était crucial !
 
 Les 18 Lou Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan possédait le sort pour les contrôler. Ce secret ne pouvait être transmis à des étrangers ; seuls quelques membres de la lignée Zhan pouvaient l'utiliser !
 
@@ -104,9 +104,9 @@ Son sens divin pénétra le parchemin et se transforma en une vague incroyable q
 
 Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent Lunaire !
 
-Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa du doigt une main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
+Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa du doigt une main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de cultivation qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de cultivation s'abattit directement vers les 15 Lou Fu restants.
 
-Un vieil homme flottait encore sur cette planète de culture. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Lou Fu, porté par l'astre.
+Un vieil homme flottait encore sur cette planète de cultivation. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Lou Fu, porté par l'astre.
 
 Cependant, la force de suppression devenait plus intense à mesure que l'on approchait des Lou Fu. L'expression du vieil homme se fit grave tandis qu'il s'approchait de leur position.
 

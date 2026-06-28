@@ -20,7 +20,7 @@ Des centaines de petites plateformes flottaient dans le ciel, surplombant le pal
 
 Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs milliers de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
 
-Neuf silhouettes vêtues de noir flottaient au-dessus du tambour ; chacune d'elles possédait une culture comparable à celle d'un Exalt Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
+Neuf silhouettes vêtues de noir flottaient au-dessus du tambour ; chacune d'elles possédait une cultivation comparable à celle d'un Exalt Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
 
 L'écho du tambour ne s'éteignait pas, mais se propageait par ondes successives. Il enveloppait tout le ciel, drapant les quelque mille plateformes volantes.
 
@@ -28,7 +28,7 @@ Grâce à cela, tous les membres du clan de l'Ancien Dao présents pouvaient l'e
 
 Des grondements tonitruants retentissaient par intervalles, créant d'innombrables échos. Dès qu'un son commençait à s'estomper, un autre prenait le relais, plongeant le monde dans le fracas des percussions.
 
-Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exalt Empyréens, ils possédaient tous une culture équivalente à celle de cultivateurs du troisième niveau.
+Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exalt Empyréens, ils possédaient tous une cultivation équivalente à celle de cultivateurs du troisième niveau.
 
 Chacun choisit une table et s'assit pour converser. La place entière commença à bourdonner, devenant très animée.
 
@@ -88,13 +88,13 @@ Un immense tumulte s'éleva devant cette vision. Dans le ciel lointain, encore l
 
 L'apparition des 18 dragons démoniaques avait altéré l'énergie spirituelle de la région. La tempête générée par leur vortex était capable de bloquer le Sens Divin.
 
-« Les 18 Rois de l'Ancien Dao... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il venait d'arriver dans l'Ancien Dao et avait été en culture fermée durant tout ce temps ; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
+« Les 18 Rois de l'Ancien Dao... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il venait d'arriver dans l'Ancien Dao et avait été en cultivation fermée durant tout ce temps ; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
 
 Cependant, cette question demeurait ancrée dans son esprit.
 
 Après réflexion, alors que le huitième coup de tambour résonnait encore, il se dirigea vers le palais au loin. Pourtant, à mesure qu'il approchait, un sentiment d'inquiétude grandissait en lui.
 
-Ce n'était pas une sensation de danger imminent, mais un pressentiment indescriptible. Avec son niveau de culture, Wang Lin était capable de percevoir les événements majeurs avant même qu'ils ne surviennent.
+Ce n'était pas une sensation de danger imminent, mais un pressentiment indescriptible. Avec son niveau de cultivation, Wang Lin était capable de percevoir les événements majeurs avant même qu'ils ne surviennent.
 
 Pourtant, malgré ses réflexions, il ne parvenait pas à deviner ce qui pourrait se jouer lors de ce banquet royal.
 

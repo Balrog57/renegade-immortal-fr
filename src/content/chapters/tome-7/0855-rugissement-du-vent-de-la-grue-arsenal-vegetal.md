@@ -38,7 +38,7 @@ L'expression de Dieu Sanglant était d'une extrême noirceur. À cet instant, le
 
 Il avait cependant réprimé sa douleur par la force et utilisé une technique secrète transmise par son clan pour se rétablir. Néanmoins, s'il devait affronter Qing Shui maintenant, le danger serait immense.
 
-C'était là une première raison. En tant que chef d'une famille de culture descendant des Célestes, il nourrissait des sentiments complexes envers ces derniers. C'était particulièrement vrai pour Qing Shui. Il se souvenait clairement que ce dernier était décrit dans les archives familiales, et que même leurs ancêtres célestes manifestaient un respect extrême à son égard.
+C'était là une première raison. En tant que chef d'une famille de cultivation descendant des Célestes, il nourrissait des sentiments complexes envers ces derniers. C'était particulièrement vrai pour Qing Shui. Il se souvenait clairement que ce dernier était décrit dans les archives familiales, et que même leurs ancêtres célestes manifestaient un respect extrême à son égard.
 
 Qing Shui était une figure trop légendaire. Même si Dieu Sanglant n'était pas blessé, il ne serait pas certain de l'emporter. De plus, une fois qu'un cultivateur atteint un certain niveau, soit il évite le combat, soit la bataille devient cataclysmique !
 

@@ -64,9 +64,9 @@ L'épée brillait d'un éclat vert en tournoyant autour de Wang Lin, sa pointe d
 
 L'expression des disciples du Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours considéré Wang Lin comme un modèle à atteindre ; lorsqu'il avait atteint l'Établissement des Fondations grâce à Punnan Zi un an auparavant, il pensait l'avoir surpassé.
 
-Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa culture était également d'une étrangeté absolue. Le frère aîné Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
+Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa cultivation était également d'une étrangeté absolue. Le frère aîné Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
 
-Quel niveau de culture Wang Lin avait-il donc atteint ? Plus Liu Feng y réfléchissait, plus la terreur l'envahissait.
+Quel niveau de cultivation Wang Lin avait-il donc atteint ? Plus Liu Feng y réfléchissait, plus la terreur l'envahissait.
 
 Contre toute attente, Liu Mei ne manifesta aucune surprise ; après avoir observé Wang Lin, elle sortit résolument le jeton et le lui lança.
 
@@ -76,6 +76,6 @@ Après avoir rangé le jeton, Wang Lin lança un regard glacial à Liu Mei. Il s
 
 Après un long moment, Liu Mei détourna les yeux et soupira. Son charme inégalable semblait n'avoir aucun effet sur Wang Lin.
 
-De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique de force d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Une fois ses formations défensives installées, il commença sa culture en méditation fermée.
+De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique de force d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Une fois ses formations défensives installées, il commença sa cultivation en méditation fermée.
 
 Il devait être pleinement préparé pour la bataille qui l'attendait dans deux mois.

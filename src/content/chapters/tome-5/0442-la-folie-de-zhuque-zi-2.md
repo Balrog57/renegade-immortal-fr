@@ -26,13 +26,13 @@ Une lueur de folie apparut dans les yeux de Zhuque Zi et il éclata de rire. « 
 
 Les yeux d'Yunque Zi restèrent sereins lorsqu'il répondit : « Oh ? Expliquez-moi cela. »
 
-Zhuque Zi rit de plus belle. Son regard devint glacial alors qu'il poursuivait : « Le Cristal de la Planète de Culture se trouve dans le Tombeau de Suzaku. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux qui sont nés sur cette planète après la prise de contrôle par le pays de Suzaku mourront ! »
+Zhuque Zi rit de plus belle. Son regard devint glacial alors qu'il poursuivait : « Le Cristal de la Planète de Cultivation se trouve dans le Tombeau de Suzaku. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Cultivation. Soit l'Alliance de Cultivation anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux qui sont nés sur cette planète après la prise de contrôle par le pays de Suzaku mourront ! »
 
-Yunque Zi esquissa un léger sourire : « Le Cristal de la Planète de Culture contient les fragments d'âme de chaque cultivateur de la planète. Si vous le détruisez, mon frère, vos propres disciples mourront avec vous ! » Sur ces mots, il lança un regard nonchalant vers Qian Feng et Liu Mei.
+Yunque Zi esquissa un léger sourire : « Le Cristal de la Planète de Cultivation contient les fragments d'âme de chaque cultivateur de la planète. Si vous le détruisez, mon frère, vos propres disciples mourront avec vous ! » Sur ces mots, il lança un regard nonchalant vers Qian Feng et Liu Mei.
 
 En entendant cela, une lueur mystérieuse brilla dans les yeux de Qian Feng. Il regarda Liu Mei et remarqua que ses sourcils étaient encore plus froncés.
 
-« Ce vieux fou possède bien des secrets. J'ignorais que le Cristal de la Planète de Culture pouvait servir à une telle fin... » Les yeux de Qian Feng devinrent froids.
+« Ce vieux fou possède bien des secrets. J'ignorais que le Cristal de la Planète de Cultivation pouvait servir à une telle fin... » Les yeux de Qian Feng devinrent froids.
 
 « La vie et la mort ne dépendent que du destin. Qian Feng, Liu Mei, ce vieil homme vous donne une chance d'aller récupérer vos fragments d'âme. Si vous réussissez, vous vivrez ; sinon, vous mourrez. Ne me blâmez pas. »
 
@@ -42,7 +42,7 @@ La folie dans les yeux de Zhuque Zi s'intensifia alors qu'il hurlait : « Brise-
 
 Le cristal rouge commença à se fissurer. Des craquelures de plus en plus nombreuses apparurent, comme s'il allait voler en éclats à tout instant. À cet instant précis, tous les cultivateurs de la planète Suzaku, où qu'ils fussent, même ceux ayant quitté la planète depuis longtemps, et tant qu'ils n'avaient pas atteint le stade d'Ascendant, sentirent leur cœur trembler !
 
-Du pays de rang 6 de Suzaku jusqu'aux pays de culture de rang 1, même les mortels ressentirent une douleur lancinante au cœur. Cette souffrance émanait de l'âme ; c'était un tourment auquel nul ne pouvait résister. Même les cultivateurs spécialisés dans l'âme ne pouvaient qu'en atténuer légèrement l'intensité.
+Du pays de rang 6 de Suzaku jusqu'aux pays de cultivation de rang 1, même les mortels ressentirent une douleur lancinante au cœur. Cette souffrance émanait de l'âme ; c'était un tourment auquel nul ne pouvait résister. Même les cultivateurs spécialisés dans l'âme ne pouvaient qu'en atténuer légèrement l'intensité.
 
 Ceux qui fuyaient, ceux qui soignaient leurs blessures et ceux qui erraient sans savoir quoi faire ressentirent tous cette douleur de l'âme. Ils avaient l'impression qu'ils s'effondreraient au moindre surcroît de souffrance. Si ce sentiment avait duré une respiration de plus, il aurait pu rendre n'importe qui fou, ou pire, le tuer.
 
@@ -50,7 +50,7 @@ Parmi les mortels, des rois aux simples roturiers, tous sur la planète Suzaku t
 
 Même les membres du Clan de l'Immortel Délaissé qui se précipitaient vers le Mont Suzaku sur le continent de Suzaku ressentirent ce phénomène. Bien que leur ressenti fût bien plus faible, ils avaient la sensation que leur vie tenait à un fil, comme si une simple pression pouvait mettre fin à leur existence.
 
-Le Cristal de la Planète de Culture était plus puissant que quiconque ne l'avait imaginé. Même Zhuque Zi sentit sa propre vie vaciller. À cet instant, il sembla comprendre quelque chose : « Alors c'est donc cela, le Cristal de la Planète de Culture de l'Alliance de Culture... »
+Le Cristal de la Planète de Cultivation était plus puissant que quiconque ne l'avait imaginé. Même Zhuque Zi sentit sa propre vie vaciller. À cet instant, il sembla comprendre quelque chose : « Alors c'est donc cela, le Cristal de la Planète de Cultivation de l'Alliance de Cultivation... »
 
 À ce moment-là, les poursuivants cessèrent leur traque et les fuyards s'arrêtèrent net. Tout sur la planète sembla figé. L'air était saturé de respirations haletantes et de peur.
 
@@ -60,13 +60,13 @@ Bien que le premier ancêtre gardât un visage calme, son cœur était amer. Le 
 
 À côté de Zhuque Zi, l'expression de Qian Feng changea radicalement. Il lançait désormais des regards de rage vers lui. Seule Liu Mei, qui semblait accablée, contemplait le ciel sans dire un mot.
 
-La folie dans les yeux de Zhuque Zi s'atténua légèrement pour laisser place à une lucidité passagère. Cependant, cette clarté disparut vite et il éclata d'un rire dément : « Le Cœur de la Planète de Culture ne s'est pas encore totalement brisé ; il se fragmente peu à peu. Le Cristal de la Planète de Culture s'effondrera lorsqu'il sera entièrement détruit. Yunque Zi, le jeu commence maintenant ! Voyons si votre Clan de l'Immortel Délaissé peut récupérer le Cristal avant qu'il ne vole en éclats. Si vous y parvenez, je suppose que vous avez les moyens d'empêcher sa destruction. À ce moment-là, ce vieil homme vous cédera la planète Suzaku ! Mais si vous échouez ou si vous n'avez aucun moyen de l'arrêter, alors vous périrez tous avec moi ! »
+La folie dans les yeux de Zhuque Zi s'atténua légèrement pour laisser place à une lucidité passagère. Cependant, cette clarté disparut vite et il éclata d'un rire dément : « Le Cœur de la Planète de Cultivation ne s'est pas encore totalement brisé ; il se fragmente peu à peu. Le Cristal de la Planète de Cultivation s'effondrera lorsqu'il sera entièrement détruit. Yunque Zi, le jeu commence maintenant ! Voyons si votre Clan de l'Immortel Délaissé peut récupérer le Cristal avant qu'il ne vole en éclats. Si vous y parvenez, je suppose que vous avez les moyens d'empêcher sa destruction. À ce moment-là, ce vieil homme vous cédera la planète Suzaku ! Mais si vous échouez ou si vous n'avez aucun moyen de l'arrêter, alors vous périrez tous avec moi ! »
 
 Sur ces mots, il agita la main et tout le Mont Suzaku se mit à gronder. Sous l'effet de ce tumulte violent, la poussière s'éleva partout et la terre trembla. Dans ce fracas qui ébranla les cieux, le Mont Suzaku se fendit en deux. Un passage sombre apparut soudainement devant tous.
 
 « J'ai ouvert le Tombeau de Suzaku. Yunque Zi, le jeu commence ! Vous connaissez les règles du Tombeau de Suzaku : tout cultivateur n'ayant pas atteint le stade d'Ascendant peut y entrer, mais les Ascendants ne le peuvent pas ! » Les yeux de Zhuque Zi étaient embrasés par la folie.
 
-Le premier ancêtre observait le Cœur de la Planète de Culture qui se brisait lentement. Il s'apprêtait à attaquer quand Yunque Zi secoua la tête et murmura : « C'est inutile. Le Cœur de la Planète de Culture et Zhuque Zi ont fusionné depuis longtemps. Il n'a même pas besoin de le sortir pour qu'il se brise ; il a tout orchestré pour nous mettre sous pression et nous forcer à contempler notre mort. Même si vous l'emportiez, nous ne pourrions empêcher sa destruction. Je suis certain qu'avec la folie qui l'habite, il finira par détruire le Cristal de la Planète de Culture ! »
+Le premier ancêtre observait le Cœur de la Planète de Cultivation qui se brisait lentement. Il s'apprêtait à attaquer quand Yunque Zi secoua la tête et murmura : « C'est inutile. Le Cœur de la Planète de Cultivation et Zhuque Zi ont fusionné depuis longtemps. Il n'a même pas besoin de le sortir pour qu'il se brise ; il a tout orchestré pour nous mettre sous pression et nous forcer à contempler notre mort. Même si vous l'emportiez, nous ne pourrions empêcher sa destruction. Je suis certain qu'avec la folie qui l'habite, il finira par détruire le Cristal de la Planète de Cultivation ! »
 
 « S'il y a trois mois, il n'aurait probablement même pas proposé ce jeu et aurait fait exploser le Cristal directement. Mais puisqu'il a eu le temps d'y réfléchir, il nous offre cette chance inespérée. Hélas, si vous m'aviez écouté, nous ne serions pas dans un tel dilemme ! »
 
@@ -74,12 +74,12 @@ Dès que le Mont Suzaku se fendit en deux, Qian Feng fut le premier à charger d
 
 À cet instant, les nuages se mirent à bouillonner et un grand nombre de membres du Clan de l'Immortel Délaissé apparurent au sein des masses sombres. Plusieurs individus s'envolèrent des nuages ; ils semblaient déjà informés de la situation. Sans un mot, ils pénétrèrent dans le Tombeau de Suzaku. Parmi eux se trouvait le vieil homme bossu aux huit feuilles qui avait autrefois traqué Wang Lin.
 
-Trois jours plus tard, la nouvelle de l'ouverture du Tombeau de Suzaku s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Culture, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau de Suzaku afin de récupérer leur propre fragment d'âme.
+Trois jours plus tard, la nouvelle de l'ouverture du Tombeau de Suzaku s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Cultivation, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau de Suzaku afin de récupérer leur propre fragment d'âme.
 
-Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pénétrer dans le tombeau. Cependant, le Tombeau de Suzaku était soumis à une restriction spéciale imposée par le Cristal de la Planète de Culture : une fois qu'un certain nombre de personnes avait été atteint, plus personne ne pouvait entrer. Bien que beaucoup aient tenté l'aventure, ceux qui réussirent réellement à y pénétrer furent très peu nombreux.
+Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pénétrer dans le tombeau. Cependant, le Tombeau de Suzaku était soumis à une restriction spéciale imposée par le Cristal de la Planète de Cultivation : une fois qu'un certain nombre de personnes avait été atteint, plus personne ne pouvait entrer. Bien que beaucoup aient tenté l'aventure, ceux qui réussirent réellement à y pénétrer furent très peu nombreux.
 
 Zhou Wutai fut l'un d'entre eux, accompagné de la femme toujours voilée, Zi Xin.
 
-Le quatrième jour, Wang Lin et Situ Nan arrivèrent au Mont Suzaku. Zhuque Zi avait disparu, ne laissant derrière lui que le Cristal de la Planète de Culture qui se brisait lentement. Yunque Zi et sa compagnie n'étaient pas non plus là ; nul ne savait où ils s'étaient rendus.
+Le quatrième jour, Wang Lin et Situ Nan arrivèrent au Mont Suzaku. Zhuque Zi avait disparu, ne laissant derrière lui que le Cristal de la Planète de Cultivation qui se brisait lentement. Yunque Zi et sa compagnie n'étaient pas non plus là ; nul ne savait où ils s'étaient rendus.
 
 Une multitude de cultivateurs et de membres du Clan de l'Immortel Délaissé étaient assis autour du Mont Suzaku, les yeux rivés sur l'entrée du tombeau. Pour l'heure, aucun d'eux n'était intéressé par le combat. Wang Lin observa le passage au pied du mont et s'en approcha lentement.

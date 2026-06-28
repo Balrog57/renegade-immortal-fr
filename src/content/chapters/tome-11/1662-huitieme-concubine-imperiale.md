@@ -84,7 +84,7 @@ La femme pâlit mortellement et recula de plusieurs pas, son expression changean
 
 « Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte des Sept Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde ; il est des dizaines de milliers de fois plus vaste que ce monde de caverne et bien plus magnifique... »
 
-« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Cet endroit est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
+« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une cultivation puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Cet endroit est le véritable Royaume Céleste. Même ton niveau de cultivation augmentera considérablement... »
 
 Wang Lin resta impassible, regardant la femme en violet avec une indifférence totale. Ses paroles n'avaient eu aucun effet sur lui.
 
@@ -106,16 +106,16 @@ Son regard se porta sur la direction prise par la femme en violet, sans même po
 
 Toutefois, en cas d'échec, poser la question serait inutile. Mourir aux côtés de Wan Er serait alors la seule issue possible.
 
-Wang Lin détourna le regard et se retourna. Il observa la Formation de Scellement du Royaume qui s'étiolait, ses yeux brillant d'une lueur déterminée. Il s'approcha de la structure semblable à une toile d'araignée, s'assit et ferma les yeux. Sa culture s'activa et il commença à absorber l'énergie du monde.
+Wang Lin détourna le regard et se retourna. Il observa la Formation de Scellement du Royaume qui s'étiolait, ses yeux brillant d'une lueur déterminée. Il s'approcha de la structure semblable à une toile d'araignée, s'assit et ferma les yeux. Sa cultivation s'activa et il commença à absorber l'énergie du monde.
 
 Tandis qu'il cultivait, l'énergie originelle de la Mer des Nuages affluait de toutes parts. Elle circulait dans son corps, absorbée par son âme originelle et sa chair, aidant son corps d'Ancien Dieu à se régénérer.
 
 Simultanément, la main droite de Wang Lin s'étendit pour extraire des sphères de lumière grâce à son Empreinte du Karma. Il les broya pour en inhaler la puissance essentielle. Cette essence pénétra ses six essences, permettant à ces dernières de redémarrer lentement.
 
-Après avoir atteint la troisième étape, l'énergie originelle ne pouvait plus qu'accélérer la récupération de son pouvoir d'Ancien Dieu ; elle n'apportait aucune aide directe à sa culture.
+Après avoir atteint la troisième étape, l'énergie originelle ne pouvait plus qu'accélérer la récupération de son pouvoir d'Ancien Dieu ; elle n'apportait aucune aide directe à sa cultivation.
 
 Au troisième stade, il n'existait qu'une seule chose capable d'améliorer et de guérir un cultivateur : l'essence !
 
 Le temps passa. Plusieurs heures plus tard, les yeux de Wang Lin s'ouvrirent brusquement, dégageant une pression écrasante.
 
-« Puisque la Formation de Scellement du Royaume est moribonde, je vais la détruire complètement. Ensuite, j'utiliserai ma culture pour la reconstruire ! »
+« Puisque la Formation de Scellement du Royaume est moribonde, je vais la détruire complètement. Ensuite, j'utiliserai ma cultivation pour la reconstruire ! »

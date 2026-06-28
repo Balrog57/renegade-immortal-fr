@@ -22,13 +22,13 @@ Sun Qiming reprit d'un ton solennel : « La famille Sun est puissante et occupe 
 
 Les yeux de Sun Qiming se posèrent sur le jeune homme et il dit calmement : « Jeune homme de la famille Yun, cette affaire a commencé à cause de vous. Préparez-vous, car elle pourrait ne pas être aussi facile à régler ! »
 
-Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Cloud Sea. La planète Cloud Sea était l'une des planètes principales de la partie nord du système stellaire Allheaven. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
+Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Cloud Sea. La planète Cloud Sea était l'une des planètes principales de la partie nord du système stellaire Allheaven. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de cultivation ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la cultivation était inférieure au stade de la Transformation de l'Âme.
 
-En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de culture lui témoignent un respect extrême.
+En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de cultivation lui témoignent un respect extrême.
 
 Après tout, la famille Yun était la première famille de la planète Cloud Sea, surpassant même la puissance de la famille Huan.
 
-Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Allheaven, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
+Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune cultivation, tant qu'il se trouvait dans la partie nord du système stellaire Allheaven, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
 
 Arrivés dans la partie nord de la ville de Vast Water, Sun Qiming et sa suite s'arrêtèrent à cent pieds du manoir Wang.
 
@@ -48,13 +48,13 @@ L'Ancien au visage rouge était au stade de la Formation de l'Âme. D'un seul pa
 
 L'expression de Sun Qiming changea radicalement. À cet instant, il avait ressenti l'aura d'un cultivateur Ascendant. Ce qui le bouleversa le plus, c'est qu'il connaissait parfaitement cette aura.
 
-Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le projeta en arrière. Il joignit respectueusement ses mains et dit : « Je vous prie d'excuser notre dérangement de la culture du Senior. Ce subordonné s'en va immédiatement. »
+Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le projeta en arrière. Il joignit respectueusement ses mains et dit : « Je vous prie d'excuser notre dérangement de la cultivation du Senior. Ce subordonné s'en va immédiatement. »
 
 Sur ces mots, il agita ses manches et disparut soudainement avec tous les membres de la famille Sun. Lorsqu'ils réapparurent, ils se trouvaient dans le hall principal de la branche de la famille Sun à Vast Water City.
 
-« Aucun membre de la famille Sun n'est autorisé à s'approcher à moins de mille pieds de ce manoir. Quiconque désobéira verra sa culture anéantie et sera banni de la famille Sun ! » Même à cet instant, le cœur de Sun Qiming battait la chamade et son front était couvert de sueur froide.
+« Aucun membre de la famille Sun n'est autorisé à s'approcher à moins de mille pieds de ce manoir. Quiconque désobéira verra sa cultivation anéantie et sera banni de la famille Sun ! » Même à cet instant, le cœur de Sun Qiming battait la chamade et son front était couvert de sueur froide.
 
-« Lui seul possède une culture capable de briser un noyau d'un simple regard. »
+« Lui seul possède une cultivation capable de briser un noyau d'un simple regard. »
 
 Les membres de la famille Sun n'avaient jamais vu Sun Qiming dans un tel état. De plus, il les avait emmenés si rapidement qu'ils en étaient tous terrifiés. L'Ancien en robe verte regarda l'homme au visage rouge dont l'expression était livide et dont l'Âme Naissante était sur le point de s'effondrer. Tremblant, l'Ancien en vert demanda : « Chef de famille, qui... qui est-ce ? »
 
@@ -72,7 +72,7 @@ Même le jeune homme en robe violette sembla comprendre quelque chose. Il réfl�
 
 Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Allheaven au cours des trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
 
-Accablé par un sentiment de malaise, Yun Wufeng retourna dans sa chambre à la demeure de la famille Sun. Qing Yi était assise là, le visage pâle. Sa culture étant scellée, elle n'était plus qu'une mortelle. Après avoir été chassée de la famille Sun, elle avait été capturée et emmenée ici.
+Accablé par un sentiment de malaise, Yun Wufeng retourna dans sa chambre à la demeure de la famille Sun. Qing Yi était assise là, le visage pâle. Sa cultivation étant scellée, elle n'était plus qu'une mortelle. Après avoir été chassée de la famille Sun, elle avait été capturée et emmenée ici.
 
 Au sein de la famille Sun, il y avait naturellement des gens disposés à flatter la famille Yun.
 
@@ -88,7 +88,7 @@ Yun Wufeng sursauta. Au moment où il tentait de se retourner, sa vision s'obscu
 
 Qing Yi se redressa précipitamment et dit respectueusement : « Senior... »
 
-Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement : « Ton talent est plutôt bon. Passe une vie entière aux côtés de Wang Ping, et je t'offrirai une culture au stade de l'Âme Naissante. »
+Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement : « Ton talent est plutôt bon. Passe une vie entière aux côtés de Wang Ping, et je t'offrirai une cultivation au stade de l'Âme Naissante. »
 
 Qing Yi trembla à la pensée de Wang Ping. Son visage s'empourpra et elle hocha légèrement la tête.
 
@@ -96,7 +96,7 @@ Trois jours plus tard, Wang Ping partit, et Qing Yi le suivit.
 
 Wang Ping quitta la ville de Vast Water porté par ses idéaux. Il ne voulait pas d'une vie paisible ; il convoitait l'aventure !
 
-Wang Lin resta seul. La nuit du départ de Wang Ping, il avait beaucoup bu. Normalement, grâce à sa culture, l'ivresse ne l'atteignait pas, mais cette nuit-là, il fut ivre.
+Wang Lin resta seul. La nuit du départ de Wang Ping, il avait beaucoup bu. Normalement, grâce à sa cultivation, l'ivresse ne l'atteignait pas, mais cette nuit-là, il fut ivre.
 
 C'était la première fois qu'il s'enivrait en plus de huit cents ans. Pour la première fois, sans même utiliser le moindre sort, il parut encore plus vieux.
 

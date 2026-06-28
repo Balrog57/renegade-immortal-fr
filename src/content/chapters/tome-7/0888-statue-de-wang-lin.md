@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 888 - Statue of Wang Lin
 slug: statue-de-wang-lin
 ---
-Ce garçon à la grosse tête avait déjà aperçu, de loin, cette planète de culture en partie dévastée. D'après sa connaissance du Système Stellaire de l'Alliance, ce type de planète devrait être de rang 6.
+Ce garçon à la grosse tête avait déjà aperçu, de loin, cette planète de cultivation en partie dévastée. D'après sa connaissance du Système Stellaire de l'Alliance, ce type de planète devrait être de rang 6.
 
-Avec son niveau de culture, un pays de culture de rang 6 ne méritait pas son attention, sans compter qu'il était accompagné de centaines de cultivateurs. La seule raison pour laquelle il se trouvait ici était qu'il passait par là. Sa véritable mission consistait à être la première vague de cultivateurs à pénétrer dans la région sud afin d'en enquêter sur la situation !
+Avec son niveau de cultivation, un pays de cultivation de rang 6 ne méritait pas son attention, sans compter qu'il était accompagné de centaines de cultivateurs. La seule raison pour laquelle il se trouvait ici était qu'il passait par là. Sa véritable mission consistait à être la première vague de cultivateurs à pénétrer dans la région sud afin d'en enquêter sur la situation !
 
 À mesure qu'il s'approchait lentement, l'expression de la vieille femme située aux abords de la planète Suzaku devint sombre. Les autres cultivateurs l'accompagnèrent ; ils utilisèrent leur vitesse fulgurante pour retourner sur la planète Suzaku.
 
-En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de culture était tout simplement trop faible ! N'importe quel cultivateur du stade Illusory Yin pourrait massacrer la planète entière !
+En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de cultivation était tout simplement trop faible ! N'importe quel cultivateur du stade Illusory Yin pourrait massacrer la planète entière !
 
 « Messager Céleste, laissez-nous, deux frères, aller sur cette planète ! » Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Illusory Yin, mais seulement au sommet du dernier stade de l'Ascendant. Son regard envers le garçon à la grosse tête était empreint de respect.
 
@@ -20,7 +20,7 @@ Un autre homme suivait l'homme d'âge moyen ; les deux se ressemblaient comme de
 
 Le garçon à la grosse tête balaya la planète Suzaku de son sens divin et laissa paraître un soupçon de mépris. S'il voulait détruire cette planète, ce serait trop facile. Il déclara simplement : « Je vous donne quinze minutes. Tuez tous les cultivateurs d'ici pour moi ! »
 
-Les deux frères rirent. L'un d'eux dit : « Messager Céleste, soyez rassuré. Avec une planète de culture pareille, quinze minutes ne sont pas nécessaires. Il ne nous faudra que sept ! » Sur ces mots, il chargea comme une météorite vers la planète Suzaku.
+Les deux frères rirent. L'un d'eux dit : « Messager Céleste, soyez rassuré. Avec une planète de cultivation pareille, quinze minutes ne sont pas nécessaires. Il ne nous faudra que sept ! » Sur ces mots, il chargea comme une météorite vers la planète Suzaku.
 
 Son frère le suivit, chargé d'une intention meurtrière. En un clin d'œil, les deux percèrent l'atmosphère et arrivèrent au-dessus de la planète Suzaku.
 
@@ -34,9 +34,9 @@ Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait
 
 « Puisque le Compagnon Cultivateur Wang Lin m'a confié la garde de Suzaku, j'ai promis de vivre et de mourir avec cette planète. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas ! »
 
-Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires ! Ils l'avaient appris après avoir reçu les informations de l'Alliance de la Culture. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
+Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires ! Ils l'avaient appris après avoir reçu les informations de l'Alliance de la Cultivation. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
 
-De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et son tatouage scintillait sur son front. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan de l'Immortel Délaissé s'était rassemblé un à un derrière lui, les traits extrêmement graves.
+De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de cultivation en ermitage. Il paraissait beaucoup plus âgé et son tatouage scintillait sur son front. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan de l'Immortel Délaissé s'était rassemblé un à un derrière lui, les traits extrêmement graves.
 
 Simultanément, certains cultivateurs qui ne se souciaient guère des affaires mondaines sortirent de leurs retraites. Ils levèrent les yeux vers le ciel alors qu'une aura oppressante apparaissait. Cette pression était semblable à des montagnes s'effondrant du ciel ; quiconque oserait résister serait écrasé !
 
@@ -66,13 +66,13 @@ Lors de la compétition pour le titre céleste, il avait obtenu le rang de Céle
 
 Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait : le massacre, un massacre sans fin. S'opposer à cet homme signifiait une mort certaine !
 
-Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes de l'Allheaven, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux ! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois !
+Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes de l'Allheaven, bienfaiteur d'innombrables familles de cultivation, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux ! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois !
 
 À cet instant, ils ne cherchèrent même pas à comprendre ce qui se passait. Perdus dans leur effroi, ils ne voulaient qu'une chose : partir le plus vite possible. Avec leur intelligence, ils étaient sûrs de ne pas s'être trompés. Cette statue était Xu Mu !
 
 Quel que soit leur courage, ils n'oseraient jamais provoquer Xu Mu ! Quant à savoir pourquoi une statue de Xu Mu se trouvait ici et faisait l'objet d'un tel culte, c'était une question qu'ils ne souhaitaient pas connaître. Le regret qui les rongeait était déjà monstrueux. S'ils l'avaient su, ils ne seraient jamais venus, car une telle situation aurait indéniablement offensé Xu Mu.
 
-La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné ; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan de l'Immortel Délaissé fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait le Secte Cloud Sky. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs d'Allheaven n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur le Secte Cloud Sky !
+La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné ; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan de l'Immortel Délaissé fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait le Secte Cloud Sky. Sur la planète Suzaku, il était le plus ancien et son niveau de cultivation avait considérablement progressé au fil des ans. Les deux cultivateurs d'Allheaven n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur le Secte Cloud Sky !
 
 « Le Secte Cloud Sky... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade ? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
 

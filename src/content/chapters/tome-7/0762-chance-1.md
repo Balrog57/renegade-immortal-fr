@@ -42,7 +42,7 @@ Sous la force destructrice de l'espace de stockage, même si Yao Xixue avait con
 
 Derrière lui, les flammes noires approchaient et la lumière rouge émanait de l'Ancêtre Sanguin avec frénésie. Il voulait retarder l'effondrement pour gagner du temps afin que Yao Xixue ne soit pas affectée durant son processus de résurrection.
 
-L'Ancêtre Sanguin ouvrit les bras et sa culture de Nettoyage du Nirvana, au stade intermédiaire, éclata sans retenue. Des vagues de lumière sanguine jaillirent de son corps pour bloquer les flammes noires qui dévoraient tout sur leur passage.
+L'Ancêtre Sanguin ouvrit les bras et sa cultivation de Nettoyage du Nirvana, au stade intermédiaire, éclata sans retenue. Des vagues de lumière sanguine jaillirent de son corps pour bloquer les flammes noires qui dévoraient tout sur leur passage.
 
 Son corps fut instantanément enveloppé et les flammes commencèrent à le consumer. Une douleur intense, qu'il n'avait pas ressentie depuis des dizaines de milliers d'années, envahit ses membres. Cependant, l'Ancêtre Sanguin ne s'en souciait guère. Il concentra toute sa puissance pour protéger la zone de trente pieds devant lui, afin d'empêcher le sens divin de Yao Xixue de se dissiper.
 

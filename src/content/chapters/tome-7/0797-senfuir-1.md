@@ -60,7 +60,7 @@ La femme, plongée dans le désespoir, lutta pour s'extraire de la fissure et cr
 
 Wang Lin fronça les sourcils. Il avait déjà vu cette femme. Lorsque Zhan Konglie était passé accompagné de plus de dix personnes, elle faisait partie de ce groupe.
 
-Lorsqu'ils s'étaient croisés, elle venait d'atteindre le stade du Yin Illusoire. Pourtant, à présent, sa culture avait chuté et elle était presque à court d'énergie originelle. Elle ne pouvait probablement plus compter que sur un niveau de culture Ascendant.
+Lorsqu'ils s'étaient croisés, elle venait d'atteindre le stade du Yin Illusoire. Pourtant, à présent, sa cultivation avait chuté et elle était presque à court d'énergie originelle. Elle ne pouvait probablement plus compter que sur un niveau de cultivation Ascendant.
 
 Le fragment sous Wang Lin pivota soudainement pour se diriger vers la femme. En un instant, il percuta la faille spatiale de cent pieds. Au moment où la brèche s'effondra, la femme bondit et atterrit sur le fragment.
 

@@ -8,21 +8,21 @@ slug: lembuscade-de-wang-lin
 ---
 Ce loup vert mesurait 100 000 pieds de large. Bien qu’il fût petit à l’échelle de l’espace, sa présence suffisait à terrifier quiconque le voyait de près.
 
-Un monstrueux brouillard rouge commença à se condenser sur la dernière des six planètes de culture du clan de l'Estimé Loup Céleste. La silhouette de Wang Lin apparut alors.
+Un monstrueux brouillard rouge commença à se condenser sur la dernière des six planètes de cultivation du clan de l'Estimé Loup Céleste. La silhouette de Wang Lin apparut alors.
 
-Une lueur rouge traversa ses yeux tandis que les blessures de son âme originelle se rétablissaient légèrement. D’un regard indifférent, il projeta sa main vers les six planètes de culture !
+Une lueur rouge traversa ses yeux tandis que les blessures de son âme originelle se rétablissaient légèrement. D’un regard indifférent, il projeta sa main vers les six planètes de cultivation !
 
 À cet instant, les restrictions que Wang Lin avait laissées sur les six planètes entrèrent en éruption et l'une d'elles s'effondra. La puissance de la déflagration secoua tout le domaine stellaire !
 
-Il s'agissait d'une planète de culture abandonnée, mais elle regorgeait d'énergie spirituelle que le clan de l'Estimé Loup Céleste avait mis énormément d'efforts à obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
+Il s'agissait d'une planète de cultivation abandonnée, mais elle regorgeait d'énergie spirituelle que le clan de l'Estimé Loup Céleste avait mis énormément d'efforts à obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
 
-Ce qui s'effondrait n'était pas seulement les montagnes et la terre, mais aussi la puissante énergie spirituelle ! Des grondements tonitruants résonnèrent alors que la planète de culture était déchirée. L'impact colossal se mua en une tempête qui se propagea rapidement.
+Ce qui s'effondrait n'était pas seulement les montagnes et la terre, mais aussi la puissante énergie spirituelle ! Des grondements tonitruants résonnèrent alors que la planète de cultivation était déchirée. L'impact colossal se mua en une tempête qui se propagea rapidement.
 
 Wang Lin maîtrisait parfaitement le timing de l'impact. Sachant que l'ennemi arriverait à tout moment, il avait disposé ce piège sur la planète pendant qu'il la dévorait !
 
 Presque à l'instant même où l'homme costaud s'approcha, la planète vola en éclats.
 
-S'il n'y avait eu qu'une seule planète de culture, cela n'aurait pas témoigné de la détermination et de la cruauté de Wang Lin. Mais après la première, les cinq autres explosèrent également !
+S'il n'y avait eu qu'une seule planète de cultivation, cela n'aurait pas témoigné de la détermination et de la cruauté de Wang Lin. Mais après la première, les cinq autres explosèrent également !
 
 L'impact puissant se mêla à d'innombrables fragments. L'effondrement constant créa une force capable de briser le ciel qui se propageait dans toutes les directions.
 
@@ -64,7 +64,7 @@ La jeune fille sur son épaule fronça les sourcils en observant Wang Lin qui s'
 
 À peine eut-elle prononcé ces mots que les yeux de Wang Lin s'illuminèrent. Au cœur de l'onde de choc causée par l'effondrement des six planètes, une lumière sanglante monstrueuse jaillit !
 
-L'épée de sang avait été dissimulée depuis longtemps dans une planète de culture. Même après l'effondrement de celle-ci, elle était restée cachée au sein du chaos, invisible.
+L'épée de sang avait été dissimulée depuis longtemps dans une planète de cultivation. Même après l'effondrement de celle-ci, elle était restée cachée au sein du chaos, invisible.
 
 Pourtant, elle surgit soudainement. Tandis que la lumière rouge illuminait la zone, elle fonça vers la jeune fille !
 
@@ -82,13 +82,13 @@ Cette scène fit rétrécir les pupilles de l'homme du clan de l'Estimé Loup C�
 
 « Cette épée était aussi un objet étrange ! Elle était d'une rapidité et d'un tranchant extrêmes. Il sait que je suis un cultivateur de la troisième étape et que j'aurais pu résister à l'épée de sang. Pour garantir le coup, il a renoncé à m'attaquer pour décider de détruire la servante... » Une pointe de terreur traversait les pensées de l'homme costaud !
 
-Ce qu'il craignait n'était pas la culture de Wang Lin, mais ces trésors infinis et ces stratagèmes aussi profonds que l'océan !
+Ce qu'il craignait n'était pas la cultivation de Wang Lin, mais ces trésors infinis et ces stratagèmes aussi profonds que l'océan !
 
 Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeune fille était qu'il avait reconnu la marque entre ses sourcils. Le pouvoir et la terreur que représentait cette marque avaient laissé une empreinte indélébile dans l'esprit de Wang Lin !
 
 Le Clan de l'Extermination des Sceaux ! L'un des petits clans du Système Stellaire Antique ! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles !
 
-Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Nirvana Void !
+Du point de vue de Wang Lin, bien que son niveau de cultivation ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Nirvana Void !
 
 « Quel homme impitoyable... » Un léger soupir s'échappa de l'homme costaud. La lumière revint progressivement dans les yeux de la jeune fille dont le front avait été transpercé par l'épée de sang.
 
@@ -96,7 +96,7 @@ La blessure entre ses sourcils se referma et cicatrisa rapidement, bien qu'une m
 
 La jeune fille leva un doigt, essuya le sang sur la marque de son front et le porta à sa bouche.
 
-« Des calculs et des ruses effrayants... Il avait depuis longtemps prévu la route que nous emprunterions pour le traquer. Il a d'abord placé des restrictions sur les planètes de culture pour les faire exploser lorsque nous nous approcherions. Tandis que nous étions distraits par l'explosion, nous n'avons pas remarqué l'épée volante cachée... C'était là son véritable objectif... » Les yeux de la jeune fille brillèrent.
+« Des calculs et des ruses effrayants... Il avait depuis longtemps prévu la route que nous emprunterions pour le traquer. Il a d'abord placé des restrictions sur les planètes de cultivation pour les faire exploser lorsque nous nous approcherions. Tandis que nous étions distraits par l'explosion, nous n'avons pas remarqué l'épée volante cachée... C'était là son véritable objectif... » Les yeux de la jeune fille brillèrent.
 
 « Il sait probablement que je suis du Clan de l'Extermination des Sceaux... Tout ce piège a été tendu... juste pour me tuer !! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
 

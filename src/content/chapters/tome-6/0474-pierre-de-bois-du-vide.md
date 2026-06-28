@@ -24,7 +24,7 @@ Wang Lin fut très surpris que cet homme connaisse la pierre de bois du vide. Ce
 
 Les membres du clan des Dieux Anciens n'avaient généralement pas besoin d'un tel objet, car ils pouvaient traverser l'espace par la seule force de leur corps.
 
-Seuls quelques lieux spéciaux ou certains Dieux Anciens de bas niveau auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance de Culture.
+Seuls quelques lieux spéciaux ou certains Dieux Anciens de bas niveau auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance de Cultivation.
 
 Sa fabrication exigeait des matériaux et des méthodes de raffinage exceptionnels. Mais une fois achevée, elle était plusieurs fois plus rapide et puissante que les boussoles stellaires existantes.
 
@@ -52,13 +52,13 @@ Peu après, ils arrivèrent devant un large stand. Li Dannan joignit les mains e
 
 Le propriétaire du stand était un homme au visage rubicond. Il regarda Li Dannan en souriant : « Petit garnement, quel trésor de mon étal a attiré ton attention ? » Alors qu'il parlait, son regard balaya nonchalamment Wang Lin, mais ses yeux se figèrent instantanément et ses pupilles se rétractèrent.
 
-Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux : « Aîné, junior est Zhang Hualin. Je me demande ce que l'Aîné recherche. »
+Grâce à sa cultivation, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux : « Aîné, junior est Zhang Hualin. Je me demande ce que l'Aîné recherche. »
 
 Wang Lin fixa le vieil homme au visage rouge et dit : « La pierre de bois du vide ! »
 
 Le vieil homme fut stupéfait : « Le prix de cet objet n'est pas bas, et je ne le vends que pour le compte d'autrui. Cette personne a précisé qu'il n'est pas sujet à l'échange ; il ne peut être vendu que pour cinq pierres d'esprit de qualité supérieure ! »
 
-Li Dannan eut un sourire amer : « Cinq pierres d'esprit de qualité supérieure... c'est un prix astronomique. Hormis dans les pays de culture de rang 7, les pierres d'esprit de qualité supérieure sont trop rares, et il existe de meilleurs matériaux qui ne coûtent pas aussi cher dans ces pays. »
+Li Dannan eut un sourire amer : « Cinq pierres d'esprit de qualité supérieure... c'est un prix astronomique. Hormis dans les pays de cultivation de rang 7, les pierres d'esprit de qualité supérieure sont trop rares, et il existe de meilleurs matériaux qui ne coûtent pas aussi cher dans ces pays. »
 
 Le vieil homme au visage rouge soupira : « Ce prix est vraiment excessif, mais cet ami à moi est bien trop têtu. Aîné, qu'en pensez-vous... »
 
@@ -70,7 +70,7 @@ Une fine couche de lumière entourait la pierre. C'était un sort que tout march
 
 Wang Lin fit un geste de la main. La pierre s'envola instantanément de la main du vieil homme pour atterrir dans celle de Wang Lin. La lumière ne sembla avoir aucun effet et se brisa dès que la pierre de bois du vide eut quitté la main du vendeur.
 
-L'expression du vieil homme changea et il prit une profonde inspiration. Il pensait avoir surestimé la culture de ce jeune homme, mais il l'avait en réalité sous-estimée. Ce jeune homme devait être au moins au stade de la Transformation de l'Âme !
+L'expression du vieil homme changea et il prit une profonde inspiration. Il pensait avoir surestimé la cultivation de ce jeune homme, mais il l'avait en réalité sous-estimée. Ce jeune homme devait être au moins au stade de la Transformation de l'Âme !
 
 Wang Lin examina la pierre de bois du vide. Après avoir confirmé qu'il s'agissait du bon article, il fit un geste pour la ranger dans son propre sac de rangement.
 
@@ -110,9 +110,9 @@ Soudain, les yeux de Li Dannan s'illuminèrent : « Aîné, bien que je ne sache
 
 Wang Lin détourna le regard et dit calmement : « Oh ? Parle-moi d'eux. »
 
-Li Dannan s'exécuta immédiatement : « La boutique du clan Shang est la plus importante de la ville de Ming Mei ; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de culture de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
+Li Dannan s'exécuta immédiatement : « La boutique du clan Shang est la plus importante de la ville de Ming Mei ; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de cultivation de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
 
-« Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 50 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de culture ! »
+« Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 50 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de cultivation ! »
 
 En entendant cela, Wang Lin hocha la tête : « Montre-moi le chemin ! »
 

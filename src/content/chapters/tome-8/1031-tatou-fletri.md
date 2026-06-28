@@ -40,7 +40,7 @@ Tenant cette boule d'eau de mer, Wang Lin la porta à son nez pour en humer l'od
 
 Wang Lin leva la tête, plongé dans ses pensées. Des éclairs de déduction brillaient dans son regard.
 
-« C'est de la rosée ! Lors de mes débuts de culture, je dépendais de la rosée provenant de la Perle Défiant le Ciel ; je la connais donc parfaitement. Ceci n'est pas un océan, c'est une goutte de rosée sur un pétale de fleur ou un brin d'herbe ! »
+« C'est de la rosée ! Lors de mes débuts de cultivation, je dépendais de la rosée provenant de la Perle Défiant le Ciel ; je la connais donc parfaitement. Ceci n'est pas un océan, c'est une goutte de rosée sur un pétale de fleur ou un brin d'herbe ! »
 
 Le regard de Wang Lin s'éclaira tandis qu'il contemplait les environs avec admiration.
 
@@ -48,9 +48,9 @@ Le regard de Wang Lin s'éclaira tandis qu'il contemplait les environs avec admi
 
 « Les restrictions se concentrent généralement sur le piégeage et l'attaque ; très peu visent uniquement à emprisonner. Il s'agit de la Grotte de l'Empereur Céleste et, d'après les paroles de l'Ancêtre Sacré du Clan du Tatou, Qiu Yao, Qing Lin est un être impitoyable. Il est impossible que les restrictions ici ne servent qu'à piéger quelqu'un. » Tout en réfléchissant, il ne put s'empêcher de jeter un œil à son sac de rangement. Avant d'entrer, il avait clairement vu l'avatar de Qing Lin pénétrer dans le cristal jaune de son sac.
 
-« D'après l'expression de Qiu Yao, ce qu'elle a dit ne semble pas être faux. Cependant, après mille ans de culture, je ne prendrai jamais les paroles d'autrui pour argent comptant. Comme le noir et le blanc : vus séparément, ils sont distincts, mais si on les mélange, le gris apparaît ! » Pour Wang Lin, à moins de voir par lui-même ou de découvrir la vérité par sa propre analyse, il pouvait écouter les autres sans jamais les croire totalement.
+« D'après l'expression de Qiu Yao, ce qu'elle a dit ne semble pas être faux. Cependant, après mille ans de cultivation, je ne prendrai jamais les paroles d'autrui pour argent comptant. Comme le noir et le blanc : vus séparément, ils sont distincts, mais si on les mélange, le gris apparaît ! » Pour Wang Lin, à moins de voir par lui-même ou de découvrir la vérité par sa propre analyse, il pouvait écouter les autres sans jamais les croire totalement.
 
-C'était l'expérience qu'il avait acquise au fil de mille ans de culture. S'il avait été un mortel ou s'il venait d'intégrer la Secte Heng Yue, il l'aurait cru sans réserve.
+C'était l'expérience qu'il avait acquise au fil de mille ans de cultivation. S'il avait été un mortel ou s'il venait d'intégrer la Secte Heng Yue, il l'aurait cru sans réserve.
 
 « Que ce soit vrai ou faux, peu importe. Au moins, j'ai pu cerner une partie de la personnalité de Qing Lin. Je ne peux pas activer les restrictions ici ! » Les yeux de Wang Lin brillèrent tandis qu'il manipulait avec précaution la bulle pour descendre plus profondément.
 

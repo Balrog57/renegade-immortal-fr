@@ -66,7 +66,7 @@ Boum, boum, boum... Des explosions successives secouèrent l'espace même, propa
 
 Les rugissements du dragon noir résonnaient encore, mais son corps avait disparu et le vent noir s'était dissipé. Le visage de Wang Lin était légèrement pâle alors qu'il reculait de quelques pas, mais ses yeux brillaient d'une lueur vive.
 
-« Cette personne possède un niveau de culture similaire au mien, mais c'est un adversaire redoutable ! » Les yeux de Wang Lin s'animèrent tandis que son corps vacillait et se fondait dans le monde.
+« Cette personne possède un niveau de cultivation similaire au mien, mais c'est un adversaire redoutable ! » Les yeux de Wang Lin s'animèrent tandis que son corps vacillait et se fondait dans le monde.
 
 L'homme à la robe noire recula promptement, le visage pâle. La destruction des cinq lames célestes avait ébranlé son esprit, mais aucune trace de peur ne lisait dans ses yeux ; ils étaient au contraire empreints d'une intention de combat décuplée.
 

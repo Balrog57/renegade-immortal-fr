@@ -16,7 +16,7 @@ Le cuir chevelu de Wang Lin s'engourdit. Il était pris dans une situation inext
 
 Après un soupir, l'expression de Wang Lin changea soudainement lorsqu'une aura glaciale émana du sol devant lui. Une fissure apparut brusquement et un Serpent Lunaire de plus de cent pieds de long se précipita vers lui. De son point de vue, la gueule béante de la créature ne visait pas simplement à dévorer l'aura de l'armure.
 
-Après mille ans de culture, Wang Lin n'avait pas pour habitude de se bercer d'illusions. Il ne croyait pas un instant que le Serpent Lunaire allait le reconnaître comme son maître simplement à cause de l'aura de l'Ancien Dieu !
+Après mille ans de cultivation, Wang Lin n'avait pas pour habitude de se bercer d'illusions. Il ne croyait pas un instant que le Serpent Lunaire allait le reconnaître comme son maître simplement à cause de l'aura de l'Ancien Dieu !
 
 À cet instant, le visage de Wang Lin devint grave, ses yeux se glacèrent et il recula promptement. Le Serpent Lunaire fondit sur lui, dévorant sans relâche l'aura qui émanait du corps de Wang Lin.
 

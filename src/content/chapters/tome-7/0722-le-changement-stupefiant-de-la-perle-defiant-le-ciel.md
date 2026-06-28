@@ -20,7 +20,7 @@ Le sort d'origine du tonnerre utilisait une méthode mystérieuse pour extraire 
 
 Ce type de sort était extrêmement rare ; seuls des cultivateurs de la deuxième étape possédaient une telle technique. Elle était souvent considérée comme un trésor que l'on ne cédait pas à la légère.
 
-Cette méthode consistait à faire pénétrer le tonnerre dans le corps. Si le niveau de culture n'était pas assez élevé, cela revenait à s'infliger des blessures au propre corps. La moindre imprudence pouvait endommager son âme originelle et, dans les cas graves, entraîner sa destruction immédiate.
+Cette méthode consistait à faire pénétrer le tonnerre dans le corps. Si le niveau de cultivation n'était pas assez élevé, cela revenait à s'infliger des blessures au propre corps. La moindre imprudence pouvait endommager son âme originelle et, dans les cas graves, entraîner sa destruction immédiate.
 
 Cependant, cette méthode ne pouvait être plus adaptée à Wang Lin. Son âme originelle était faite de tonnerre et son nouveau corps était également composé de tonnerre. Aux yeux de la Bête du Tonnerre, l'être entier de Wang Lin n'était que du tonnerre.
 

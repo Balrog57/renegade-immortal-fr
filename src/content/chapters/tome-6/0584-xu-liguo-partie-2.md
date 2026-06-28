@@ -20,11 +20,11 @@ Chen Tao, debout aux côtés de Shi Xiao, ne quittait pas Wang Lin des yeux. Ce 
 
 L'élimination d'Ao Di n'était qu'un détail secondaire. Ce qui choquait le plus Chen Tao, c'était la paume que Wang Lin avait projetée contre la lance dorée. Chen Tao savait parfaitement ce qu'était cette lance. Il avait entendu l'Omniscient dire autrefois qu'il existait un sort capable de récolter la puissance du soleil pour la condenser en liquide. L'Omniscient avait beaucoup loué ce sort.
 
-Bien que l'homme à l'armure dorée n'ait pas encore atteint le niveau de culture nécessaire pour transformer l'énergie solaire en liquide, cette attaque contenait véritablement la puissance du soleil !
+Bien que l'homme à l'armure dorée n'ait pas encore atteint le niveau de cultivation nécessaire pour transformer l'énergie solaire en liquide, cette attaque contenait véritablement la puissance du soleil !
 
-Chen Tao pensait qu'il aurait pu utiliser sa propre paume pour la faire dévier légèrement, mais changer complètement sa trajectoire avec seulement deux frappes, comme Wang Lin l'avait fait, était une tâche extrêmement complexe ! Ce n'était pas une simple question de niveau de culture ou d'énergie spirituelle céleste ; c'était une question de calcul, une forme de déduction !
+Chen Tao pensait qu'il aurait pu utiliser sa propre paume pour la faire dévier légèrement, mais changer complètement sa trajectoire avec seulement deux frappes, comme Wang Lin l'avait fait, était une tâche extrêmement complexe ! Ce n'était pas une simple question de niveau de cultivation ou d'énergie spirituelle céleste ; c'était une question de calcul, une forme de déduction !
 
-« S'il avait été dans cet état lors de notre combat pour la position de véritable disciple... Même si j'avais gagné, j'en serais gravement blessé et j'aurais dû m'enfermer en méditation pendant cent ans. Il y aurait même eu un risque que mon niveau de culture chute ! » Chen Tao prit une profonde inspiration et regarda Wang Lin d'un air complexe.
+« S'il avait été dans cet état lors de notre combat pour la position de véritable disciple... Même si j'avais gagné, j'en serais gravement blessé et j'aurais dû m'enfermer en méditation pendant cent ans. Il y aurait même eu un risque que mon niveau de cultivation chute ! » Chen Tao prit une profonde inspiration et regarda Wang Lin d'un air complexe.
 
 L'homme le plus joyeux de l'assemblée était, bien sûr, Mo Lihai. Il ne pouvait cacher son sourire, convaincu que sa décision passée avait été des plus sages !
 
@@ -72,7 +72,7 @@ Wang Lin demanda mentalement : « Quel est le problème ? »
 
 Le corps de Wang Lin tressaillit. Il interrompit Xu Liguo : « Ici ? »
 
-Xu Liguo répondit fièrement : « Elle est au sommet du palais, là-bas. Maître, vous ne pourrez pas la voir, seul moi le peux ! » Puis, il frissonna soudainement en se rappelant que Wang Lin était considéré comme un démon, et ajouta précipitamment : « Cela n'a rien à voir avec la culture. Si je peux la voir, c'est parce que j'ai appris une astuce des esprits d'épée grâce à la petite lame noire. Il a dit que les esprits d'épées de haute qualité peuvent ressentir les autres, même quand nous sommes dans un sac de rangement. Mais cela ne fonctionne que si l'autre esprit a quitté son épée. »
+Xu Liguo répondit fièrement : « Elle est au sommet du palais, là-bas. Maître, vous ne pourrez pas la voir, seul moi le peux ! » Puis, il frissonna soudainement en se rappelant que Wang Lin était considéré comme un démon, et ajouta précipitamment : « Cela n'a rien à voir avec la cultivation. Si je peux la voir, c'est parce que j'ai appris une astuce des esprits d'épée grâce à la petite lame noire. Il a dit que les esprits d'épées de haute qualité peuvent ressentir les autres, même quand nous sommes dans un sac de rangement. Mais cela ne fonctionne que si l'autre esprit a quitté son épée. »
 
 Xu Liguo devinait ce que pensait Wang Lin et enchaîna immédiatement : « Maître, vous devez faire vite, elle est sur le point de regarder par ici ! Soyez tranquille, la petite lame noire m'a appris une technique pour cacher mon aura d'épée afin que personne ne puisse me voir. Ne vous inquiétez pas ! »
 

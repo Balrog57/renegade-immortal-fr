@@ -52,7 +52,7 @@ Cependant, aujourd'hui, la situation s'était totalement inversée. À cet insta
 
 « Nous ne pouvons pas laisser cet homme entrer dans le Secte Divin ! »
 
-« L'ordre du Secte Divin est de défendre jusqu'à la mort ! Des cultivateurs comme nous ne craignent pas la mort ! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. Le Secte Divin était derrière eux ; c'était leur vie même et la raison de leur culture !
+« L'ordre du Secte Divin est de défendre jusqu'à la mort ! Des cultivateurs comme nous ne craignent pas la mort ! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. Le Secte Divin était derrière eux ; c'était leur vie même et la raison de leur cultivation !
 
 Au cours des dizaines de milliers d'années écoulées, la position du Secte Divin était une chose que les cultivateurs de la Mer des Nuages respectaient et pour laquelle ils étaient prêts à mourir !
 
@@ -78,7 +78,7 @@ Pitoyables, mais respectables !
 
 Wang Lin fut ému en voyant les cultivateurs de la Mer des Nuages charger contre lui. Certains étaient des connaissances du passé, mais la plupart étaient des inconnus !
 
-Ces cultivateurs appartenaient à divers niveaux de culture, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer des Nuages et une foi unique. Ils étaient de véritables cultivateurs de la Mer des Nuages, unis dans la vie comme dans la mort !
+Ces cultivateurs appartenaient à divers niveaux de cultivation, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer des Nuages et une foi unique. Ils étaient de véritables cultivateurs de la Mer des Nuages, unis dans la vie comme dans la mort !
 
 Ce qu'ils gardaient n'était pas le Daoïste Eau, mais le Secte Divin !
 

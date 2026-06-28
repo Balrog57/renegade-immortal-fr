@@ -54,7 +54,7 @@ Les six épées d'essence tournaient lentement autour de Wang Lin. L'aura des es
 
 Tout dans cet espace s'apaisa, comme si rien ne s'était produit. Seul Wang Lin restait là, assis et immobile.
 
-Cependant, une aura extrêmement puissante émanait de son corps. Cette aura était le fruit de sa puissante culture au stade moyen du Vide Spirituel. À cet instant, l'aura semblait bouillir, montrant des signes d'ascension.
+Cependant, une aura extrêmement puissante émanait de son corps. Cette aura était le fruit de sa puissante cultivation au stade moyen du Vide Spirituel. À cet instant, l'aura semblait bouillir, montrant des signes d'ascension.
 
 Cette puissance devint toujours plus intense. Tandis qu'elle se propageait, les six épées d'essence autour de Wang Lin bourdonnèrent de joie, célébrant la naissance d'une septième essence !
 

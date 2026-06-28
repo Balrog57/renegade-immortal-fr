@@ -28,7 +28,7 @@ Wang Lin fit un pas et se transforma en un rayon de lumière avant de disparaît
 
 Après son départ, Bai Wei et la Quatrième Sœur discutèrent un instant avant de se séparer.
 
-Sur le chemin du retour vers le Pavillon de la Division Pourpre, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Céleste et murmura pour lui-même : « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela ? »
+Sur le chemin du retour vers le Pavillon de la Division Pourpre, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Céleste et murmura pour lui-même : « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la cultivation de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela ? »
 
 Il retourna au Pavillon de la Division Pourpre, le visage sombre.
 

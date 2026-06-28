@@ -54,7 +54,7 @@ Ye Mo avait utilisé son sort pour massacrer d'innombrables êtres avant lui. La
 
 Cette flèche était immense ; la puissance qu'elle renfermait pouvait transpercer l'œil gauche de Ye Mo, et bien plus encore que l'espace lui-même. Dans sa course, rien ne pouvait l'arrêter.
 
-À cette époque, la Formation de Scellement du Royaume n'existait pas encore. En sa trajectoire, elle traversa plusieurs planètes de culture massives, les faisant s'effondrer avant de disparaître au loin.
+À cette époque, la Formation de Scellement du Royaume n'existait pas encore. En sa trajectoire, elle traversa plusieurs planètes de cultivation massives, les faisant s'effondrer avant de disparaître au loin.
 
 Cependant, tandis que la flèche filait, l'œil gauche tomba soit dans le Royaume Extérieur, soit dans le Royaume Intérieur. Il fut égaré dans l'immensité de l'espace, vers une destination inconnue.
 

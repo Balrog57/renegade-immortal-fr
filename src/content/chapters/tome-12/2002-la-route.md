@@ -12,17 +12,17 @@ L'océan n'était plus froid ; il était devenu humide. La mer se faisait de plu
 
 Le dragon de mer fendait les eaux avec une souplesse extrême. Il était bien plus rapide en mer que dans les airs, et une silhouette vêtue de blanc était assise sur sa tête.
 
-Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan Ancien à sa vitesse maximale. Au lieu de cela, il laissa le dragon de mer nager. Assis sur l'animal, il commença à ajuster sa culture.
+Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan Ancien à sa vitesse maximale. Au lieu de cela, il laissa le dragon de mer nager. Assis sur l'animal, il commença à ajuster sa cultivation.
 
 « Ce voyage au clan Ancien ne devrait présenter aucun danger de mort. Après tout, le Maître Xuan Luo est là-bas... » Après un long moment, Wang Lin ouvrit les yeux. Le ciel était bleu et limpide, et la chaleur du soleil se posait sur son corps sous une lumière éclatante.
 
-« Une fois au clan Ancien, je devrai rester calme. Durant ma culture silencieuse, je dois accomplir ma promesse au Maître. Je dois protéger le Dao Ancien et garder la réincarnation du Maître. Après tout, j'appartiens au Dao Ancien... » Wang Lin laissa échapper un soupir mélancolique.
+« Une fois au clan Ancien, je devrai rester calme. Durant ma cultivation silencieuse, je dois accomplir ma promesse au Maître. Je dois protéger le Dao Ancien et garder la réincarnation du Maître. Après tout, j'appartiens au Dao Ancien... » Wang Lin laissa échapper un soupir mélancolique.
 
 « Malheureusement, dans le clan Céleste, je n'ai trouvé ni Qing Shui, ni Situ Nan... Et je n'ai pas trouvé non plus... Li Qianmei. Quel dommage. Peu importe. Lorsque je retournerai au clan Céleste, j'en trouverai peut-être la trace. » Wang Lin soupira de nouveau. Avant de partir, il avait déployé son Sens Divin pour les chercher, mais sans succès.
 
 « Je ne me rendrai ni vers les Si Anciens, ni vers les Ji Anciens, mais vers la cité impériale du Dao Ancien. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
 
-« Ma culture est encore insuffisante ; je dois donc entrer en culture fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse faite au Maître, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
+« Ma cultivation est encore insuffisante ; je dois donc entrer en cultivation fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse faite au Maître, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
 
 « Wan Er... Où se cache ce fragment de ton âme... Ce n'est que lorsque ton âme sera complète que je pourrai trouver un moyen de t'éveiller... » Wang Lin soupira et tendit la main droite vers le vide. Une faille s'ouvrit, menant à son espace de stockage.
 
@@ -32,7 +32,7 @@ Auparavant, il ne pouvait l'ouvrir sans endommager son espace de stockage, mais 
 
 « Elle appartenait à Ye Mo... Lorsque j'ai obtenu la tête de Ye Mo, j'avais promis d'être bienveillant envers ses descendants. Lors de ce voyage au clan Ancien, je dois les trouver... » Tenant l'épée de sang, Wang Lin fit un geste et elle s'élança dans le ciel. Après un long moment, des grondements sourds résonnèrent.
 
-« Avec mon niveau de culture actuel, je peux facilement libérer toute sa puissance. » L'épée de sang trembla et des craquements se firent entendre. D'innombrables fissures apparurent sur la lame, comme si l'épée muait, une couche s'en détachant.
+« Avec mon niveau de cultivation actuel, je peux facilement libérer toute sa puissance. » L'épée de sang trembla et des craquements se firent entendre. D'innombrables fissures apparurent sur la lame, comme si l'épée muait, une couche s'en détachant.
 
 La lueur rouge sang de l'arme devint plus intense. Wang Lin n'avait pas compris cela autrefois, mais il vit désormais un sceau sur l'épée. D'un revers de main, il brisa le sceau.
 
@@ -42,17 +42,17 @@ Son corps entier était couvert d'une armure et, dans sa main droite, elle brand
 
 « La terre natale de Ye Mo, là où se trouve le Maître, le Dao Ancien... Le lieu que je dois protéger. Je me demande quel genre d'endroit c'est. » Wang Lin regarda l'épée de sang avant de la ranger. L'ombre disparut, révélant à nouveau la clarté du ciel.
 
-« Après avoir absorbé le fragment d'épée, mon essence de métal est complète et les cinq éléments fusionnent en un seul. Mon niveau de culture a augmenté. » La culture de Wang Lin différait de celle des autres ; il avait besoin d'essences. Ce n'était qu'avec elles que son niveau pouvait progresser.
+« Après avoir absorbé le fragment d'épée, mon essence de métal est complète et les cinq éléments fusionnent en un seul. Mon niveau de cultivation a augmenté. » La cultivation de Wang Lin différait de celle des autres ; il avait besoin d'essences. Ce n'était qu'avec elles que son niveau pouvait progresser.
 
 Grâce à la complétion de l'essence de métal, Wang Lin passa du stade intermédiaire de la Tribulation du Vide au stade avancé de la Tribulation du Vide. Ensuite, grâce à l'héritage de l'Ancêtre Céleste, il avait pu faire apparaître les contours du soleil de Grand Empyréen lorsqu'il déchaînait sa pleine puissance.
 
-« Le corps véritable de l'essence du tonnerre meurtrier est complet avec les cinq essences. Le corps véritable des cinq éléments est également achevé. Ce qui suit, ce sont mes essences éthérées... Si je peux comprendre mes deux autres essences éthérées, ma culture peut atteindre le sommet de la Tribulation du Vide ! Mais comprendre les essences éthérées est extrêmement difficile... Dans toute ma vie, je n'en ai compris que trois. » Dans ce rare moment de calme, Wang Lin commença à analyser la voie future de sa culture.
+« Le corps véritable de l'essence du tonnerre meurtrier est complet avec les cinq essences. Le corps véritable des cinq éléments est également achevé. Ce qui suit, ce sont mes essences éthérées... Si je peux comprendre mes deux autres essences éthérées, ma cultivation peut atteindre le sommet de la Tribulation du Vide ! Mais comprendre les essences éthérées est extrêmement difficile... Dans toute ma vie, je n'en ai compris que trois. » Dans ce rare moment de calme, Wang Lin commença à analyser la voie future de sa cultivation.
 
 « Si je m'appuie sur les essences éthérées pour élever mon niveau, alors ma progression future sera très laborieuse... Il faudra de nombreuses années avant que je ne puisse encore progresser. » Wang Lin fronça les sourcils tandis que le dragon de mer nageait sous lui, fendant les vagues et traçant un sillon dans l'océan.
 
 La mer était déchaînée, montant et descendant avec violence. Wang Lin n'y jeta qu'un regard avant de se replonger dans ses réflexions sur son destin.
 
-« Cela ne fonctionnera pas ainsi. Si cela continue, je ne saurai jamais quand je posséderai la puissance nécessaire pour retourner au clan Céleste. Ma culture est différente de celle des autres ; peut-être puis-je trouver un autre moyen d'augmenter mon niveau. » Wang Lin resta plongé dans ses pensées tandis que le temps s'écoulait.
+« Cela ne fonctionnera pas ainsi. Si cela continue, je ne saurai jamais quand je posséderai la puissance nécessaire pour retourner au clan Céleste. Ma cultivation est différente de celle des autres ; peut-être puis-je trouver un autre moyen d'augmenter mon niveau. » Wang Lin resta plongé dans ses pensées tandis que le temps s'écoulait.
 
 Quelques jours plus tard, Wang Lin ouvrit les yeux, laissant paraître une pointe de fatigue.
 
@@ -62,7 +62,7 @@ Quelques jours plus tard, Wang Lin ouvrit les yeux, laissant paraître une point
 
 « Ensuite, il y aura le corps véritable de l'essence du tonnerre meurtrier. Pour l'instant, seule l'essence du tonnerre a formé un corps véritable. Les quatre autres — la mise à mort, le commencement absolu, la fin absolue et la restriction — sont incomplètes. Si elles parviennent toutes à former leurs propres corps véritables, alors mon essence du tonnerre meurtrier sera complète et me permettra de dépasser le stade de la Tribulation du Vide ! Cependant, je devrai attendre que les corps véritables des essences de métal et de bois apparaissent pour savoir si cette voie est la bonne. » Wang Lin médita en décidant de son avenir.
 
-« Quant au schéma du soleil de Grand Empyréen... La raison de son apparition est profondément liée à l'héritage céleste que j'ai reçu. Cet héritage n'a pas augmenté mon niveau de culture, mais m'a permis de condenser ce soleil une fois ma pleine puissance déchaînée. Avec ce soleil, ma puissance de combat augmente de façon prodigieuse ! Cela compense la destruction de mon armure d'âme du Taureau Céleste. Avec mon niveau et ma force actuels, je suis le plus puissant sous les Grands Empyréens. Même face à un Grand Empyréen, à moins qu'il ne consume sa puissance de Grand Empyréen, je peux encore lutter !
+« Quant au schéma du soleil de Grand Empyréen... La raison de son apparition est profondément liée à l'héritage céleste que j'ai reçu. Cet héritage n'a pas augmenté mon niveau de cultivation, mais m'a permis de condenser ce soleil une fois ma pleine puissance déchaînée. Avec ce soleil, ma puissance de combat augmente de façon prodigieuse ! Cela compense la destruction de mon armure d'âme du Taureau Céleste. Avec mon niveau et ma force actuels, je suis le plus puissant sous les Grands Empyréens. Même face à un Grand Empyréen, à moins qu'il ne consume sa puissance de Grand Empyréen, je peux encore lutter !
 
 « Si mes analyses sont justes, une fois que les cinq éléments auront formé leurs corps véritables et que mon niveau aura augmenté, je devrais être capable d'échanger des coups avec un Grand Empyréen brûlant sa puissance de Grand Empyréen ! Et quand mon essence du tonnerre meurtrier possédera ses propres corps véritables, très peu de Grands Empyréens pourront me tenir tête ! Ensuite, si je parviens à comprendre la quatrième essence éthérée — l'essence de la réincarnation que j'ai comprise au Secte Dong Lin —, je pourrai l'utiliser pour briser les innombrables barrières du rêve afin de trouver mon moi véritable et obtenir la cinquième essence éthérée !
 

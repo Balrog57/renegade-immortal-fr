@@ -14,7 +14,7 @@ Le visage de cet homme était gris et d'une grande vieillesse, mais ses yeux bri
 
 Ce geste dégageait une pression colossale. Les neuf cultivateurs au stade de la Formation de l'Âme s'inclinèrent respectueusement avant de disparaître.
 
-Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parvenait pas à percer le niveau de culture du vieil homme, mais il était certain que celui-ci se trouvait au stade de la Transformation de l'Âme.
+Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parvenait pas à percer le niveau de cultivation du vieil homme, mais il était certain que celui-ci se trouvait au stade de la Transformation de l'Âme.
 
 « Petit ami Ceng Niu, ce vieux a attendu ce jour pendant deux ans ! » Le vieil homme regarda Wang Lin avec une lueur mystérieuse dans le regard.
 
@@ -52,7 +52,7 @@ Le vieil homme rit et déclara : « Cela ne suffit pas pour offenser le pays de 
 
 Wang Lin réfléchit un instant, puis regarda le vieil homme : « Que voulez-vous, Senior ? Vous n'avez qu'à me le dire. »
 
-Une lueur d'appréciation brilla dans les yeux du vieil homme : « Ne sois pas si pressé ; ce n'était que le premier cadeau. Voici maintenant le second. Ceng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta culture ! »
+Une lueur d'appréciation brilla dans les yeux du vieil homme : « Ne sois pas si pressé ; ce n'était que le premier cadeau. Voici maintenant le second. Ceng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta cultivation ! »
 
 Sans attendre la réponse de Wang Lin, ses yeux s'illuminèrent. Une pression plusieurs fois plus puissante que celle de la veine spirituelle apparut soudainement autour du corps de Wang Lin.
 
@@ -84,23 +84,23 @@ Après cinq respirations, la dernière marque de thé sur son visage disparut !
 
 Wang Lin laissa échapper un rire, et le sceau de Sun Tai s'effondra également.
 
-Sa culture était revenue au stade intermédiaire de la Formation de l'Âme. En réalité, elle était même plus puissante qu'auparavant.
+Sa cultivation était revenue au stade intermédiaire de la Formation de l'Âme. En réalité, elle était même plus puissante qu'auparavant.
 
 Wang Lin joignit les mains et dit : « Merci ! »
 
 Le vieil homme regarda Wang Lin avec une admiration grandissante : « Il est un peu tôt pour me remercier ; j'ai préparé un troisième cadeau pour toi. Oses-tu le recevoir ? »
 
-Wang Lin prit une profonde inspiration. Ayant recouvré sa culture, il dégageait désormais une aura dominante et sourit légèrement : « Pourquoi hésiterais-je ? »
+Wang Lin prit une profonde inspiration. Ayant recouvré sa cultivation, il dégageait désormais une aura dominante et sourit légèrement : « Pourquoi hésiterais-je ? »
 
 Il comprit que si l'ancêtre de la Transformation de l'Âme était prêt à un tel déploiement de force, c'est qu'il attendait quelque chose en retour ; il ne comprenait simplement pas de quoi un tel être aurait pu avoir besoin de sa part.
 
-« Bien ! Ceng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même ; je ne peux rien y pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
+« Bien ! Ceng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de cultivation jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même ; je ne peux rien y pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
 
 Wang Lin réfléchit un instant, puis le suivit sans mot dire.
 
 À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de trente pieds réapparut. Cette fois encore, ce n'était qu'une illusion.
 
-« Voici le trésor principal de la Secte du Raffinage de l'Âme : le drapeau des mille millions d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte du Raffinage de l'Âme ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria : « Assieds-toi en position du lotus ! »
+« Voici le trésor principal de la Secte du Raffinage de l'Âme : le drapeau des mille millions d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte du Raffinage de l'Âme ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de cultivation jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria : « Assieds-toi en position du lotus ! »
 
 Wang Lin obéit sans hésitation. Si le vieil homme avait voulu l'attaquer, un être d'une telle puissance n'aurait pas eu besoin de tout ce cérémonial. Cependant, sa vigilance ne faiblit pas. S'il détectait le moindre signe suspect, il s'échapperait grâce à la boussole stellaire.
 

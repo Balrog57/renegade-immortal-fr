@@ -8,7 +8,7 @@ slug: recuperation-folle-1
 ---
 Pays de Xue Yue, à l'intérieur du Sanctuaire divin de la Neige et de la Glace.
 
-Li Yuanfeng était actuellement assis en position de lotus, en pleine culture. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
+Li Yuanfeng était actuellement assis en position de lotus, en pleine cultivation. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
 
 Un morceau de jade céleste de la taille d'un ongle se trouvait à l'intérieur de chaque bloc. Grâce à une formation inscrite dans la glace, l'énergie spirituelle céleste subissait une transformation mystérieuse.
 
@@ -28,9 +28,9 @@ Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade
 
 « Je ne sais pas si Ceng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Red Butterfly, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu ? C'est très étrange ! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Red Butterfly, a annoncé qu'elle entrerait en retraite de cultivation pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu ? C'est très étrange ! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
-À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples de la secte extérieure du Secte du Raffinement de l'Âme, Wang Lin s'éveilla de sa culture.
+À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples de la secte extérieure du Secte du Raffinement de l'Âme, Wang Lin s'éveilla de sa cultivation.
 
 « Le sommet du dernier stade de l'Établissement des Fondations ! »
 
@@ -68,7 +68,7 @@ Cette grotte n'avait rien de spécial et n'était pas la plus basse. De loin, il
 
 « Ça doit être ici ! » Wang Lin atterrit et observa la grotte.
 
-Pendant sa culture, il avait utilisé l'œil de veine spirituelle pseudo pour localiser le véritable œil de la veine spirituelle. En y regardant de plus près, il put déterminer immédiatement que la grotte 743 était l'une des plus proches du véritable œil.
+Pendant sa cultivation, il avait utilisé l'œil de veine spirituelle pseudo pour localiser le véritable œil de la veine spirituelle. En y regardant de plus près, il put déterminer immédiatement que la grotte 743 était l'une des plus proches du véritable œil.
 
 « Il y a quelqu'un à l'intérieur. » Wang Lin vit que la porte de la grotte était scellée. Après une courte réflexion, il élabora un plan.
 
@@ -80,13 +80,13 @@ L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit 
 
 Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il s'approcha à dix pieds de l'homme.
 
-« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qian Mu cachait quelque chose de suspect. Sa vitesse de culture était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
+« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qian Mu cachait quelque chose de suspect. Sa vitesse de cultivation était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
 
 La prochaine fois que l'homme l'avait revu, il en était au milieu du stade de l'Établissement des Fondations.
 
 Et maintenant, il avait déjà atteint le sommet du dernier stade de l'Établissement des Fondations. L'homme d'âge mûr se lécha les lèvres, le cœur palpitant. Il ne pouvait s'empêcher de penser que la prochaine fois qu'ils se rencontreraient, cet homme aurait déjà atteint son propre niveau : le début du stade de la Formation du Noyau !
 
-« Soit ce Qian Mu possède un trésor défiant les cieux, soit sa méthode de culture est extrêmement mystérieuse ! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qian Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "compagnon cultivateur". »
+« Soit ce Qian Mu possède un trésor défiant les cieux, soit sa méthode de cultivation est extrêmement mystérieuse ! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qian Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "compagnon cultivateur". »
 
 Wang Lin lui jeta un regard et répondit : « Aucun problème ! »
 

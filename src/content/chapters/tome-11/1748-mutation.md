@@ -52,7 +52,7 @@ Son propre Dao Céleste était incomplet, ou plutôt, il ne maîtrisait pas enco
 
 La clarté de son esprit s'estompa peu à peu alors que l'aube pointait à l'horizon. Au loin, Xuan Luo soupira.
 
-« Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empereur que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma culture devra franchir une étape supplémentaire... » Les yeux de Xuan Luo brillaient d'une lueur mystérieuse.
+« Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empereur que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma cultivation devra franchir une étape supplémentaire... » Les yeux de Xuan Luo brillaient d'une lueur mystérieuse.
 
 « Même les neuf soleils cherchent leur voie, mais nul ne la trouve. Nous ne pouvons que profiter du temps imposé par la réincarnation pour méditer... Le Dao Céleste est issu du Royaume Divin Primordial. J'ignore quand ce royaume mystérieux est apparu ou quand l'humanité parviendra à le comprendre pleinement... Ah. » Xuan Luo leva sa main droite et observa son index, où un cercle noir tournait lentement, émettant l'aura du Dao Céleste.
 

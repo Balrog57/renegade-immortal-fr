@@ -122,7 +122,7 @@ Ces trois années furent une expérience spirituelle lui permettant de maîtrise
 
 Le maître observa son disciple. Il savait qu'une fois Wang Lin parti, leur prochaine rencontre pourrait ne pas avoir lieu avant trois cents ans.
 
-La silhouette de Wang Lin disparut du monde pour réapparaître près d'un bassin bordant la vaste mer, avant de s'enfoncer dans les profondeurs d'une montagne. Sa culture étant désormais à son apogée, il décida de retourner vers les Ponts du Piétinement des Cieux !
+La silhouette de Wang Lin disparut du monde pour réapparaître près d'un bassin bordant la vaste mer, avant de s'enfoncer dans les profondeurs d'une montagne. Sa cultivation étant désormais à son apogée, il décida de retourner vers les Ponts du Piétinement des Cieux !
 
 Avec son niveau actuel, il pouvait tenter de briser son goulot d'étranglement à tout instant. Il pourrait pénétrer dans le monde illusoire pour expérimenter l'acte de piétiner les cieux.
 

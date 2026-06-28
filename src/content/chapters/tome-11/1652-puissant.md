@@ -62,7 +62,7 @@ La planète était entièrement sous son contrôle grâce à ses âmes de Flamme
 
 Un bruit strident retentit sur la planète dès que Wang Lin arriva. À ce signal, les algues commencèrent à croître follement. Elles atteignirent 10 000 pieds, 100 000 pieds, un million, voire dix millions de pieds de long. Et elles continuaient de s'étendre !
 
-En un éclair, la planète de culture subit une métamorphose sans précédent.
+En un éclair, la planète de cultivation subit une métamorphose sans précédent.
 
 Alors que les algues infinies grandissaient, la planète se transforma en une tête ! Les algues qui continuaient de croître étaient les longs cheveux de ce visage !
 
@@ -72,7 +72,7 @@ Certaines montagnes tombèrent tandis que d'autres s'élevaient. Certaines rivi�
 
 C'était le visage d'une femme. À mesure que la surface de la planète changeait, elle prit les traits de cette femme. Cette scène était d'une étrangeté absolue dans l'espace !
 
-La gigantesque planète de culture était devenue sa tête. Son visage était d'une grande beauté et ses yeux étaient clos ! Les algues formant sa chevelure flottaient sans aucun vent, ce qui accentuait sa beauté et lui conférait un charme troublant !
+La gigantesque planète de cultivation était devenue sa tête. Son visage était d'une grande beauté et ses yeux étaient clos ! Les algues formant sa chevelure flottaient sans aucun vent, ce qui accentuait sa beauté et lui conférait un charme troublant !
 
 Un pic montagneux formait son nez, des montagnes ses sourcils, des canyons ses lèvres et les océans ses yeux. Tout cela témoignait de la puissance phénoménale de son sortilège.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent. À cet instant précis, les sourcils de la
 
 Un regard impitoyable fixa Wang Lin, et un cri capable d'anéantir le vide jaillit de sa bouche !
 
-« Ce sort est passablement bon, mais ta culture est trop faible ! » La main droite de Wang Lin s'élança vers le vide devant lui et une lumière sanglante enveloppa la zone. L'épée de sang apparut comme surgie du néant. Un feu jaillit de son œil gauche et un éclair illumina son œil droit. Entre ses sourcils, la vie et la mort, le karma, le vrai et le faux se manifestèrent. Tous fusionnèrent dans l'épée de sang qui trônait devant lui !
+« Ce sort est passablement bon, mais ta cultivation est trop faible ! » La main droite de Wang Lin s'élança vers le vide devant lui et une lumière sanglante enveloppa la zone. L'épée de sang apparut comme surgie du néant. Un feu jaillit de son œil gauche et un éclair illumina son œil droit. Entre ses sourcils, la vie et la mort, le karma, le vrai et le faux se manifestèrent. Tous fusionnèrent dans l'épée de sang qui trônait devant lui !
 
 L'épée émit un son monstrueux, comme si elle était transportée par une excitation extrême. C'était comme si elle avait été affamée durant des années et qu'elle pouvait enfin déchaîner sa faim !
 

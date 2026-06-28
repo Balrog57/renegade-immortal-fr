@@ -70,7 +70,7 @@ En chemin, Wang Lin croisait régulièrement ces individus. En raison de cette a
 
 De nombreux cultivateurs les suivaient également avec des intentions malveillantes.
 
-Le cœur de Mu Nan et de Mu Bei tremblait. En chemin, ils rencontrèrent de nombreuses personnes ayant un niveau de culture supérieur au leur. Même certains vieux briscards qui ne montraient jamais le bout de leur nez les suivaient de près.
+Le cœur de Mu Nan et de Mu Bei tremblait. En chemin, ils rencontrèrent de nombreuses personnes ayant un niveau de cultivation supérieur au leur. Même certains vieux briscards qui ne montraient jamais le bout de leur nez les suivaient de près.
 
 Cela les déstabilisait profondément. Et si ces deux-là étaient troublés, même Shang Guanmo était nerveux. Si cela continuait, l'attention de cultivateurs extérieurs à la zone de Nan Dou finirait par être attirée. Après cela, rien ne garantissait qu'un cultivateur de l'Âme Naissante n'apparaîtrait.
 

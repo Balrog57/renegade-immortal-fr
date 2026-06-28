@@ -8,7 +8,7 @@ slug: tie-zhu
 ---
 La lumière jaune semblait être un appel vers les origines. Quiconque était enveloppé par elle ressentait un sentiment de réincarnation, les souvenirs du passé défilant devant ses yeux, rendant impossible toute distinction avec le présent.
 
-Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Il s'agissait d'un sort Dao, et sa puissance était liée au niveau de culture de chacun. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
+Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Il s'agissait d'un sort Dao, et sa puissance était liée au niveau de cultivation de chacun. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
 
 Cependant, le Dao était différent. Il était très rare que quelqu'un maîtrise un sort Dao. La rumeur prétendait que seuls ceux qui atteignaient le Royaume du Dao pouvaient en obtenir un. Les sorts Dao étaient similaires aux batailles de domaines, mais leur essence différait grandement.
 
@@ -38,7 +38,7 @@ Un petit sentier apparut à ses côtés... Un chemin de terre qui s'enfonçait d
 
 « J'ai dû faire un rêve... » Wang Lin se gratta le visage, son expression honnête trahissant une profonde confusion. Il ramassa le livre à ses côtés et se leva. En regardant la forêt au loin, il aperçut vaguement les montagnes brumeuses et les pavillons appartenant à la secte sur les hauteurs.
 
-« Dans ce rêve, je suis devenu un immortel... et j'ai vécu plus de mille ans de culture. J'ai dû trop étudier pour faire un rêve aussi étrange. » Wang Lin était perplexe, plongé dans une sorte de torpeur.
+« Dans ce rêve, je suis devenu un immortel... et j'ai vécu plus de mille ans de cultivation. J'ai dû trop étudier pour faire un rêve aussi étrange. » Wang Lin était perplexe, plongé dans une sorte de torpeur.
 
 Alors qu'il était ainsi égaré, une voix atteignit ses oreilles : « Tie Zhu, ton père te cherche. Pourquoi n'es-tu pas encore rentré à la maison ? » C'était un homme d'âge moyen tenant une fourche de chasse, s'apprêtant à quitter le village.
 
@@ -48,7 +48,7 @@ Wang Lin se gratta la tête et salua l'assemblée avant de se diriger vers le vi
 
 « C'est vraiment étrange. Ce rêve était trop réel. Red Butterfly, Li Muwan, Liu Mei, Mu Bingmei, Lu Yanfei, Li Qianmei... Il y avait aussi Yunque Zi, Zhuque Zi, Situ Nan, l'Omniscient, et bien d'autres encore. Ainsi que l'Empereur Divin de l'Oiseau Vermillon, l'Empereur Divin du Dragon Azur, Tuo Sen, Tu Si... Je me souviens avoir pris deux disciples. L'un s'appelait Thirteen et l'autre Xie Qing... » Tandis qu'il marchait, son esprit restait embrumé.
 
-« Il y a un Dieu Ancien sur la planète Suzaku ? Et hors de la planète Suzaku, il existe aussi la Secte des Corpses ? Et l'Alliance de Culture ? Les Quatre Sectes Divines ? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire d'Allheaven et celui de Cloud Sea... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant : « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
+« Il y a un Dieu Ancien sur la planète Suzaku ? Et hors de la planète Suzaku, il existe aussi la Secte des Corpses ? Et l'Alliance de Cultivation ? Les Quatre Sectes Divines ? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire d'Allheaven et celui de Cloud Sea... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant : « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
 
 Il cessa de songer à ce songe bizarre et poussa la porte qui menait à la cour. En entrant, il vit son père tenant une pipe. Ce dernier la secoua sur le sol avant de fixer Wang Lin du regard.
 

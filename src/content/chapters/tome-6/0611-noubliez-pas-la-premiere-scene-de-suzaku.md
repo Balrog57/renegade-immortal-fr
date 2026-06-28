@@ -6,13 +6,13 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 611 - Dont Forget The First Scene Of Suzaku
 slug: noubliez-pas-la-premiere-scene-de-suzaku
 ---
-Aux confins de la planète de culture de rang 7, Tian Yun.
+Aux confins de la planète de cultivation de rang 7, Tian Yun.
 
 L’Étoile Sanguine.
 
 Une femme vêtue de pourpre chevauchait une épée de trois pieds de long, fendant avec célérité l'immensité de l'espace. Trois autres femmes, parées de robes colorées, la poursuivaient de près.
 
-L'une des poursuivantes ricana : « Misérable ! Tu as trahi le Sect de l'Eau Céleste et dérobé le trésor sacré de la jeune maîtresse du secte. Crois-tu vraiment pouvoir t’échapper ? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir ! »
+L'une des poursuivantes ricana : « Misérable ! Tu as trahi le Sect de l'Eau Céleste et dérobé le trésor sacré de la jeune maîtresse du secte. Crois-tu vraiment pouvoir t’échapper ? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de cultivation de rang 7. Tu ne pourras pas fuir ! »
 
 La femme en pourpre serra les dents, le visage d'une pâleur extrême. Le voile violet qu'elle portait était déjà tombé.
 
@@ -38,7 +38,7 @@ Une lueur de froideur traversa les yeux de l'homme. Il agita ses larges manches,
 
 « Quel est ton nom ? »
 
-« Zi Xin... le nom de cette junior est Zi Xin. Une cultivatrice de la planète de culture de rang 6, Suzaku », répondit la femme en pourpre en fixant l'inconnu. Cet homme avait été capable de repousser ses poursuivantes d'un simple revers de manche. Un tel cultivateur était tout simplement terrifiant.
+« Zi Xin... le nom de cette junior est Zi Xin. Une cultivatrice de la planète de cultivation de rang 6, Suzaku », répondit la femme en pourpre en fixant l'inconnu. Cet homme avait été capable de repousser ses poursuivantes d'un simple revers de manche. Un tel cultivateur était tout simplement terrifiant.
 
 ***
 
@@ -46,9 +46,9 @@ Planète Suzaku.
 
 Pays de Chu, le Sect du Ciel Nuageux !
 
-Le Sect du Ciel Nuageux était devenu radicalement différent. Le pays de Chu avait été élevé au rang de pays de culture de rang 4 par l'actuel Suzaku, Zhou Wutai. Bien qu'il ne fût que de rang 4, sa sphère d'influence était la plus vaste de tous les pays de ce niveau.
+Le Sect du Ciel Nuageux était devenu radicalement différent. Le pays de Chu avait été élevé au rang de pays de cultivation de rang 4 par l'actuel Suzaku, Zhou Wutai. Bien qu'il ne fût que de rang 4, sa sphère d'influence était la plus vaste de tous les pays de ce niveau.
 
-Même les pays de culture de rang 5 devaient faire preuve de respect lorsqu'ils pénétraient en Chu, tout particulièrement face au Sect du Ciel Nuageux.
+Même les pays de cultivation de rang 5 devaient faire preuve de respect lorsqu'ils pénétraient en Chu, tout particulièrement face au Sect du Ciel Nuageux.
 
 Car presque tous ceux qui avaient vécu ces quelques centaines d'années connaissaient le nom d'un cultivateur : Wang Lin. Cet homme avait, à lui seul, déclenché une vague sans précédent sur la planète Suzaku !
 
@@ -66,11 +66,11 @@ Depuis leur position, ils pouvaient contempler l'imposante statue. Le visage du 
 
 Le vieil homme regarda l'œuvre et laissa poindre une trace de nostalgie. Après un long silence, il caressa la tête de l'enfant et dit : « Sais-tu pourquoi le chef du Sect du Ciel Nuageux a pu atteindre le stade de la Formation de l'Âme ? Pourquoi toutes les sectes de Chu considèrent le Sect du Ciel Nuageux comme leur suzerain ? »
 
-« Pourquoi tous ces experts des pays de culture de rang 5 doivent-ils se montrer si respectueux en ces lieux ? Tout cela est grâce à cette statue ! »
+« Pourquoi tous ces experts des pays de cultivation de rang 5 doivent-ils se montrer si respectueux en ces lieux ? Tout cela est grâce à cette statue ! »
 
 Le jeune homme parut surpris avant de cligner des yeux et de sourire : « C'est étrange... comment une simple statue peut-elle inspirer un tel respect ? »
 
-Le vieil homme soupira : « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku ! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer des Démons. Il sauva une femme magnifique et stupéfia tout le Sect du Ciel Nuageux. Il se fraya un chemin à travers Zhao, créant des fleuves de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière ! »
+Le vieil homme soupira : « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku ! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de cultivation, il parvint à semer un chaos total dans la Mer des Démons. Il sauva une femme magnifique et stupéfia tout le Sect du Ciel Nuageux. Il se fraya un chemin à travers Zhao, créant des fleuves de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière ! »
 
 « On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a tranché le bras de Red Butterfly. Il vainquit Liu Mei, affronta Qian Feng et accepta Du Tain du Sect de la Raffinement de l'Âme comme maître. Il détruisit Xue Yue, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Abandonnés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal ! »
 

@@ -44,7 +44,7 @@ Sa main gauche traça un sceau et pointa vers le ciel. Instantanément, un parfu
 
 Une lumière sanguine monstrueuse hurla et, d'un doigt pointé par Wang Lin, elle chargea les flammes septicolores.
 
-Alors que Wang Lin scellait son geste, toute sa culture explosa, générant une onde de choc qui s'abattit sur la flamme aux sept couleurs !
+Alors que Wang Lin scellait son geste, toute sa cultivation explosa, générant une onde de choc qui s'abattit sur la flamme aux sept couleurs !
 
 Tout se déroula en un éclair, avec une rapidité dépassant l'imagination. En un instant, Wang Lin avait déployé tous ses sorts et trésors pour lancer son assaut !
 
@@ -126,7 +126,7 @@ Wang Lin avait passé sa vie à affronter le danger et l'avait surmonté grâce 
 
 Le sort *Pêcher la lune dans le puits* était d'une tyrannie absolue et sa puissance terrifiante. Cependant, l'âme qu'il avait pêchée était celle de l'ancien démon, et non celle de Wang Lin !
 
-Seul Wang Lin, en tant qu'Ancien Dieu, pouvait substituer son âme par celle d'un ancien démon. Pour n'importe qui d'autre, cela aurait été impossible ; même avec un niveau de culture supérieur, ils se seraient effondrés sous le sort et la substitution aurait été détectée !
+Seul Wang Lin, en tant qu'Ancien Dieu, pouvait substituer son âme par celle d'un ancien démon. Pour n'importe qui d'autre, cela aurait été impossible ; même avec un niveau de cultivation supérieur, ils se seraient effondrés sous le sort et la substitution aurait été détectée !
 
 Cependant, les anciens démons et les anciens dieux partageant la même origine, ils pouvaient parfaitement se substituer l'un à l'autre !
 

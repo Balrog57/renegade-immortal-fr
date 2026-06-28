@@ -50,7 +50,7 @@ Il ne connaissait pas cette femme...
 
 Il décela vaguement la racine de ce sentiment : c'était son tempérament. Cette sérénité était très proche de celle de Li Muwan.
 
-« Ce ne peut pas être Wan Er... Ce n'est qu'une ressemblance de tempérament, une simple illusion... » Avec son niveau de culture actuel, si cette femme était réellement Li Muwan, il l'aurait reconnue d'un seul coup d'œil. Pourtant, malgré ses efforts, il ne décelait aucune trace de l'aura de Li Muwan.
+« Ce ne peut pas être Wan Er... Ce n'est qu'une ressemblance de tempérament, une simple illusion... » Avec son niveau de cultivation actuel, si cette femme était réellement Li Muwan, il l'aurait reconnue d'un seul coup d'œil. Pourtant, malgré ses efforts, il ne décelait aucune trace de l'aura de Li Muwan.
 
 « Wan Er est dans le Cercueil Évitant le Ciel et son fragment d'âme est manquant... Je ne peux pas le retrouver... Cette femme n'est pas elle, ce n'est que le hasard de ce monde qui place des êtres au tempérament similaire... » Wang Lin ferma les yeux pour masquer sa douleur.
 
@@ -96,7 +96,7 @@ Wang Lin pleurait rarement, mais tandis qu'il buvait, des larmes coulèrent au c
 
 La femme en robe de phénix retourna aux côtés de l'Empereur et retrouva son calme. Elle garda la tête basse sans dire un mot. Le sourire de l'Empereur Dao Antique s'élargit, son regard se posant par intermittence sur Wang Lin avec des éclairs de fierté et de joie.
 
-« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva son coupe et but avec les cent mille convives du banquet.
+« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de cultivation, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva son coupe et but avec les cent mille convives du banquet.
 
 Selon la tradition de l'Ancient Dao, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
 

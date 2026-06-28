@@ -42,7 +42,7 @@ Trois rayons de lumière bleue jaillirent vers Yun Yifeng et Tang Shan, les aspi
 
 Les quatre fusionnèrent avec la lumière bleue. Au moment même où ils disparurent dans cet éclat, ils se transformèrent en quatre runes qui volèrent vers le Souverain.
 
-L'expression du Souverain changea radicalement. Tout cela s'était produit en un éclair ; les quatre runes fonçaient sur lui à peine Bleu Rêve était apparu. Le Souverain ne pouvait l'éviter. Après tout, cette attaque résultait de la pleine puissance de culture de Bleu Rêve. Bien qu'il n'ait pas encore atteint le stade de la Tribulation Arcane, il pouvait combattre des cultivateurs de ce niveau !
+L'expression du Souverain changea radicalement. Tout cela s'était produit en un éclair ; les quatre runes fonçaient sur lui à peine Bleu Rêve était apparu. Le Souverain ne pouvait l'éviter. Après tout, cette attaque résultait de la pleine puissance de cultivation de Bleu Rêve. Bien qu'il n'ait pas encore atteint le stade de la Tribulation Arcane, il pouvait combattre des cultivateurs de ce niveau !
 
 Guidées par lui et soutenues par les trois autres, ces quatre runes franchirent toutes les barrières pour percuter le corps du Souverain.
 

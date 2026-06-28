@@ -12,11 +12,11 @@ Une brume apparut dans le ciel et se mit à tourbillonner. Elle avait la forme d
 
 Une pression colossale émana du ciel pour envelopper le sol en contrebas. La terre commença à trembler ; si elle avait possédé une âme, elle aurait frémi de terreur face à une telle puissance.
 
-Outre le prince Ji Du et son entourage, de nombreux gardes se trouvaient dans le palais. Leur culture n'était pas faible, certains ayant même atteint le rang de Seigneur à 27 étoiles.
+Outre le prince Ji Du et son entourage, de nombreux gardes se trouvaient dans le palais. Leur cultivation n'était pas faible, certains ayant même atteint le rang de Seigneur à 27 étoiles.
 
 Cependant, à cet instant, alors que la pression descendait, les quelque mille gardes pâlirent tous et leurs corps se mirent à trembler. Des craquements sinistres résonnèrent dans leurs membres, comme si leur constitution ne pouvait supporter une telle force.
 
-« Qu'a-t-il cultivé durant ces cent dernières années pour générer une telle pression ? » L'expression du jeune homme en robe violette changea radicalement. Même avec son propre niveau de culture, il sentait qu'il ne pourrait presque pas y résister.
+« Qu'a-t-il cultivé durant ces cent dernières années pour générer une telle pression ? » L'expression du jeune homme en robe violette changea radicalement. Même avec son propre niveau de cultivation, il sentait qu'il ne pourrait presque pas y résister.
 
 Quant à la jeune femme, elle n'arrivait plus du tout à se tenir debout ; clouée sur sa chaise, le front couvert de sueur, elle ne pouvait que subir l'assaut.
 
@@ -46,7 +46,7 @@ Un homme d'âge moyen était assis à l'autre extrémité de la corne. Vêtu d'u
 
 Derrière lui se tenait un autre individu, un jeune homme au visage rude trahissant une pointe de férocité. Cependant, cette férocité avait laissé place à la stupéfaction alors qu'il fixait le lointain.
 
-Avec son niveau de culture, il n'aurait normalement pas remarqué une telle pression depuis une telle distance. Pourtant, se tenant derrière l'homme d'âge moyen, il parvint à la ressentir par une méthode singulière.
+Avec son niveau de cultivation, il n'aurait normalement pas remarqué une telle pression depuis une telle distance. Pourtant, se tenant derrière l'homme d'âge moyen, il parvint à la ressentir par une méthode singulière.
 
 « Maître... Ceci... C'est... » Le jeune homme haleta. Voyant l'expression lugubre de son mentor, il s'interrompit aussitôt, ravalant ses paroles.
 
@@ -58,7 +58,7 @@ En entendant le nom de « Wang Lin », le jeune homme au visage rude eut un haut
 
 L'homme d'âge moyen laissa échapper un froid reniflement.
 
-« Ton maître a déjà croisé ce Wang Lin par le passé, lorsque Xuan Luo l'a amené ici. Sa culture n'est pas faible et sa puissance de combat est extraordinaire, mais il ne mérite toujours pas mon attention !
+« Ton maître a déjà croisé ce Wang Lin par le passé, lorsque Xuan Luo l'a amené ici. Sa cultivation n'est pas faible et sa puissance de combat est extraordinaire, mais il ne mérite toujours pas mon attention !
 
 La seule raison pour laquelle il a pu pénétrer dans le palais de l'Ancien Dao et en ressortir est que Xuan Luo n'est pas intervenu ! Il a tué l'Empereur de l'Ancien Dao, pourtant le Grand Empyrean Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur !
 
@@ -66,7 +66,7 @@ La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyre
 
 Le jeune homme poussa un soupir de soulagement avant de demander, après une hésitation :
 
-« Maître, si Wang Lin sort d'une culture en porte fermée après cent ans, cela signifie que son niveau a progressé, sans quoi il ne pourrait dégager une telle pression. »
+« Maître, si Wang Lin sort d'une cultivation en porte fermée après cent ans, cela signifie que son niveau a progressé, sans quoi il ne pourrait dégager une telle pression. »
 
 L'homme d'âge moyen resta silencieux, mais ses pupilles se contractèrent imperceptiblement. Après un long moment de réflexion, il prit la parole :
 

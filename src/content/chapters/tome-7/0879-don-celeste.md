@@ -46,7 +46,7 @@ Si l'on regardait de loin, combiné au Temple Céleste du Tonnerre, ce lieu ne d
 
 Les cultivateurs environnants se levèrent, accompagnés des ancêtres de leurs clans. Tous affichaient des expressions respectueuses, formant une foule compacte. Non seulement eux, mais même les vieux monstres sur les tapis de prière se redressèrent, le visage grave. À l'autre extrémité, les messagers du Temple Céleste du Tonnerre se tenaient là, empreints de solennité.
 
-À cet instant, ce n'était pas seulement au Temple Céleste du Tonnerre que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire d'Allheaven. Les cultivateurs de chaque famille sur chaque planète de culture possédaient une pierre de transmission sonore du Temple Céleste du Tonnerre.
+À cet instant, ce n'était pas seulement au Temple Céleste du Tonnerre que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire d'Allheaven. Les cultivateurs de chaque famille sur chaque planète de cultivation possédaient une pierre de transmission sonore du Temple Céleste du Tonnerre.
 
 Ces pierres ne permettaient pas seulement de transmettre le son, elles pouvaient aussi projeter les images de ce qui se déroulait. Elles avaient été distribuées gratuitement par le temple ; outre leur usage pour le don céleste, elles serviraient également à la mobilisation pour la guerre contre le Système Stellaire de l'Alliance.
 
@@ -54,7 +54,7 @@ Ainsi, presque tous les cultivateurs assistaient à la cérémonie du don céles
 
 Le Temple Céleste du Tonnerre étant situé au centre du Système Stellaire d'Allheaven, une aura meurtrière commença à émaner des quatre domaines qui l'entouraient.
 
-À l'est, les cultivateurs commençaient à se rassembler en une foule dense d'au moins 10 000 personnes ! Ils portaient tous des vêtements distincts, prouvant qu'ils appartenaient à différentes familles de culture. Tous regardaient silencieusement devant eux. Un homme couvert d'une armure rouge se tenait face à eux, ses cheveux blancs flottant dans son dos et le visage impassible, tenant la pierre de transmission sonore qui relayait la scène du temple.
+À l'est, les cultivateurs commençaient à se rassembler en une foule dense d'au moins 10 000 personnes ! Ils portaient tous des vêtements distincts, prouvant qu'ils appartenaient à différentes familles de cultivation. Tous regardaient silencieusement devant eux. Un homme couvert d'une armure rouge se tenait face à eux, ses cheveux blancs flottant dans son dos et le visage impassible, tenant la pierre de transmission sonore qui relayait la scène du temple.
 
 Le sud était identique : 10 000 cultivateurs étaient assis dans l'espace, menés par un vieillard, les yeux rivés sur les étoiles. Les secteurs ouest et nord comptaient également des armées de cultivateurs similaires. À cet instant, le don céleste au Temple Céleste du Tonnerre était observé par tous !
 
@@ -86,7 +86,7 @@ Wang Lin saisit le Drapeau du Tigre Céleste. Il prit une profonde inspiration e
 
 « Maître Démon Xu Mu, le Céleste du Tonnerre ! »
 
-« Cet homme a surpassé les 108 célestes. Sa culture doit être prodigieuse, ce n'est pas un individu avec lequel on joue ! »
+« Cet homme a surpassé les 108 célestes. Sa cultivation doit être prodigieuse, ce n'est pas un individu avec lequel on joue ! »
 
 Sur la planète Ran Yun, une belle femme leva les yeux vers la cérémonie céleste qui s'affichait dans le ciel. Au départ, elle n'y prêtait aucune attention et s'apprêtait à détourner le regard. Mais soudain, elle fut saisie de stupeur ! En posant les yeux sur Wang Lin, elle tomba en transe. Cet homme lui était si familier, comme si elle l'avait déjà aperçu quelque part.
 
@@ -98,11 +98,11 @@ Sur la planète Qing Ling, de nombreux cultivateurs levèrent les yeux vers le c
 
 Au sommet du Pic Heng Yun, Xie Qing sortit de sa transe. Il regarda le ciel et ses yeux brillèrent d'excitation. Il murmura : « Maître ! »
 
-Sur une planète de culture reculée, Yao Bingyun était assise sur le plus haut iceberg. Elle leva la tête vers les cieux, son regard trahissant une émotion complexe.
+Sur une planète de cultivation reculée, Yao Bingyun était assise sur le plus haut iceberg. Elle leva la tête vers les cieux, son regard trahissant une émotion complexe.
 
 « Je ne m'attendais pas à ce qu'il devienne le Céleste du Tonnerre... »
 
-Dans le Domaine Nord, sur une planète de culture presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Greed leva les yeux vers le ciel avec un regard malveillant.
+Dans le Domaine Nord, sur une planète de cultivation presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Greed leva les yeux vers le ciel avec un regard malveillant.
 
 « Il a donc atteint une telle renommée dans le Système Stellaire d'Allheaven ! »
 

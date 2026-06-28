@@ -32,7 +32,7 @@ Cependant, le singe noir n'en était pas affecté, comme s'il savait déjà où 
 
 Durant ces jours de pillage, le singe noir s'était rapproché de Wang Lin. Parfois, il jetait un regard par-dessus son épaule vers lui, comme s'il contemplait un confrère du même métier.
 
-C'est cette observation qui rappela à Wang Lin le jour où il avait dompté le singe noir. Même lorsqu'il avait clairement révélé une culture plus puissante et blessé l'animal, le singe n'avait pas voulu se soumettre. Au lieu de cela, ses yeux étaient empreints de haine et d'un refus obstiné. Ce n'est que face à la menace de mort qu'il s'était finalement incliné.
+C'est cette observation qui rappela à Wang Lin le jour où il avait dompté le singe noir. Même lorsqu'il avait clairement révélé une cultivation plus puissante et blessé l'animal, le singe n'avait pas voulu se soumettre. Au lieu de cela, ses yeux étaient empreints de haine et d'un refus obstiné. Ce n'est que face à la menace de mort qu'il s'était finalement incliné.
 
 On peut supposer que ce singe noir, qui avait l'habitude de voler les herbes d'autrui, devait éprouver un sentiment très complexe en étant lui-même dépouillé.
 
@@ -90,7 +90,7 @@ Il vit aussi une vieille femme décrépite debout sur l'un des crânes !
 
 Les pupilles de la vieille femme se contractèrent. Le brouillard limitait sa vision et son Sens Divin était restreint. Cependant, les vibrations du sol s'intensifièrent et bientôt, la vague infinie de bêtes entra dans le champ de perception de son Sens Divin.
 
-À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de culture, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
+À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de cultivation, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
 
 Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte de la Fleur Claire envoyait des renforts, soit l'une des six autres sectes était arrivée prématurément.
 
@@ -104,7 +104,7 @@ Le singe noir changea brusquement de trajectoire pour foncer vers les huit crân
 
 Simultanément, la main droite de Wang Lin forma un sceau et pointa vers l'avant. Un vent noir apparut instantanément et se mua en dragons sombres qui chargèrent la vieille femme.
 
-Le niveau de culture de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur de Nirvana. Cependant, sa culture du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air !
+Le niveau de cultivation de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur de Nirvana. Cependant, sa cultivation du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air !
 
 La première se transforma en un brouillard rouge qui se propagea rapidement. Elle entra en collision avec le vent noir dans un grondement assourdissant.
 

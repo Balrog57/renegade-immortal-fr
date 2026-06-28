@@ -10,7 +10,7 @@ Nul ne connaissait le cœur Dao de Wang Lin, hormis lui-même.
 
 Wang Lin se sentait oppressé après l'apparition de Liu Mei. Le pays Suzaku était tel un géant massif dont la présence pouvait être ressentie par tous, en tout point de la planète.
 
-Plus son niveau de culture augmentait, plus il devenait conscient de ce sentiment. Bien que son séjour à Suzaku fût court, cette sensation de danger s'était gravée dans son cœur.
+Plus son niveau de cultivation augmentait, plus il devenait conscient de ce sentiment. Bien que son séjour à Suzaku fût court, cette sensation de danger s'était gravée dans son cœur.
 
 Que ce soit dans la grotte céleste où tous les serviteurs étaient muets, ou lors de son combat contre Red Butterfly, il ressentait cette pression immense qui lui ôtait jusqu'au souffle.
 
@@ -36,11 +36,11 @@ Nul ne savait combien de disciples de la secte extérieure étaient morts au fil
 
 Chaque jour, un grand nombre de disciples mouraient. Les cent arènes de combat étaient inondées de sang. Wang Lin observa attentivement ces derniers jours : chaque fois que quelqu'un mourait, son âme était absorbée par l'arène avant de disparaître.
 
-Le jour du combat de Wang Lin, il plana doucement vers l'arène. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène. Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de culture était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria : « Numéro 8972, combat ! »
+Le jour du combat de Wang Lin, il plana doucement vers l'arène. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène. Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de cultivation était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria : « Numéro 8972, combat ! »
 
 Un cri monta des disciples environnants, puis un disciple court et gras bondit de la foule telle une boule de viande pour atterrir sur l'arène. Sans dire un mot, il forma un sceau de la main ; des boules de feu apparurent et s'abattirent sur Wang Lin comme une pluie incandescente.
 
-« Stade avancé de l'Établissement des Fondations... » Wang Lin secoua la tête. Pour cette compétition, il avait verrouillé son niveau de culture au stade intermédiaire de la Formation du Noyau. Il fit un geste de la main et sauta hors de l'arène.
+« Stade avancé de l'Établissement des Fondations... » Wang Lin secoua la tête. Pour cette compétition, il avait verrouillé son niveau de cultivation au stade intermédiaire de la Formation du Noyau. Il fit un geste de la main et sauta hors de l'arène.
 
 À l'instant où il quitta la scène, le corps du disciple court et gras trembla. Toutes les flammes s'éteignirent et le disciple s'évanouit. Wang Lin ne l'avait pas tué ; tuer un junior au stade de l'Établissement des Fondations était tout simplement indigne.
 
@@ -52,7 +52,7 @@ Parmi elles se trouvait un vieil homme aux cheveux gris au stade avancé de la F
 
 En voyant cette technique, Wang Lin pensa immédiatement au Royaume du Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume du Ji.
 
-« Un sort de la mort ? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume du Ji avait été confondu avec un tel sort ; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
+« Un sort de la mort ? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume du Ji avait été confondu avec un tel sort ; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de cultivation, c'était la première fois qu'il en voyait un.
 
 La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût qu'au stade initial de la Formation du Noyau, il se comportait comme une bête sauvage. Il était capable de détecter le flux d'énergie spirituelle avant même que l'adversaire n'utilise une technique, lui permettant d'anticiper ses mouvements. Contre un adversaire plus fort, cela ne servirait pas à grand-chose, mais contre des gens de même niveau, c'était un avantage céleste. Wang Lin ne put s'empêcher d'apprécier ce talent ; il eut même l'envie de le prendre comme disciple, avant de chasser rapidement cette idée.
 
@@ -84,7 +84,7 @@ Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la m
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot : « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 
-« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens tentaient d'imiter le Royaume du Ji. La rumeur prétend que porter ce sort à son apogée permet d'acquérir un fragment de la puissance du Royaume du Ji. »
+« Le sort de la mort... À moins d'avoir un niveau de cultivation bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la cultivation, lorsque les anciens tentaient d'imiter le Royaume du Ji. La rumeur prétend que porter ce sort à son apogée permet d'acquérir un fragment de la puissance du Royaume du Ji. »
 
 Les paroles de son maître résonnaient encore dans sa tête alors que Sima fixait son ultime adversaire. Il ne considérait pas le jeune homme nommé Qing Mu comme une menace. Une intention meurtrière traversa son regard et il tonna : « Meurs ! »
 

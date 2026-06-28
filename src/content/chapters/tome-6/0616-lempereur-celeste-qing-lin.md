@@ -26,7 +26,7 @@ Yao Xixue poussa un léger soupir et murmura : « Je peux tout te dire, mais tu 
 
 « Tu n'as pas la qualification pour m'imposer des conditions. Je respecterai naturellement ma promesse ! Parle, tu n'as qu'une seule chance. Si tu te tais, je te scellerai à jamais ! » La voix de Wang Lin était calme, mais elle dégageait une intention glaciale.
 
-Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, elle murmura : « Mon père m'avait prévenue de ne pas t'affronter. J'étais très perplexe et je ne comprenais pas pourquoi mon père te connaissait. À l'époque, tu n'étais qu'un simple petit cultivateur, même si tu étais le disciple du Tout-Voyant. D'après ce que je savais de mon père, ton statut, ta culture, tout en toi ne méritait pas son attention ! »
+Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, elle murmura : « Mon père m'avait prévenue de ne pas t'affronter. J'étais très perplexe et je ne comprenais pas pourquoi mon père te connaissait. À l'époque, tu n'étais qu'un simple petit cultivateur, même si tu étais le disciple du Tout-Voyant. D'après ce que je savais de mon père, ton statut, ta cultivation, tout en toi ne méritait pas son attention ! »
 
 « C'est pourquoi je ne l'ai pas écouté. Mais maintenant, je comprends un peu mieux pourquoi il parlait de toi... »
 
@@ -44,7 +44,7 @@ Yao Xixue hocha la tête avec amertume : « Oui, c'était bel et bien une grotte
 
 Wang Lin demanda : « Quel était ton but en y allant ? »
 
-« Mon père a dit un jour que la grotte factice contenait de nombreux trésors, du liquide spirituel et d'autres choses. Si je pouvais les obtenir, cela aiderait grandement ma culture... » La voix de Yao Xixue était douce, mais avant qu'elle ne puisse finir sa phrase, elle vit le rictus de mépris sur le visage de Wang Lin.
+« Mon père a dit un jour que la grotte factice contenait de nombreux trésors, du liquide spirituel et d'autres choses. Si je pouvais les obtenir, cela aiderait grandement ma cultivation... » La voix de Yao Xixue était douce, mais avant qu'elle ne puisse finir sa phrase, elle vit le rictus de mépris sur le visage de Wang Lin.
 
 Wang Lin regarda calmement Yao Xixue. Il ne dit mot, mais son regard fit trembler son cœur. Après un long silence, elle dit amèrement : « Tout ce que j'ai dit est vrai. Ne t'en sers pas comme excuse pour ne pas me libérer à l'avenir ! »
 
@@ -58,7 +58,7 @@ Les yeux de Wang Lin se plissèrent davantage. « Le secret que ton père et les
 
 « L'Empereur Céleste Qing Lin était l'être le plus puissant du Royaume Céleste. La rumeur prétend que lorsque le Royaume Céleste s'est effondré, l'Empereur Céleste Qing Lin n'est pas mort. Après son combat, il s'est enfui, bien que blessé ! »
 
-« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin est en culture secrète à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
+« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin est en cultivation secrète à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
 
 Compte tenu de la force mentale de Wang Lin, elle voulait voir quelle expression il prendrait en entendant cette nouvelle explosive. Malheureusement, elle ne vit que son visage immuable. L'expression de Wang Lin n'avait pas changé d'un iota, mais ses pupilles se rétractèrent imperceptiblement.
 
@@ -74,7 +74,7 @@ Wang Lin ne pourrait jamais oublier ce qu'il avait aperçu lorsqu'il était entr
 
 Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de brume se dressait devant lui, une brume qu'il ne parvenait pas à déchirer. Il regarda calmement Yao Xixue et demanda : « Comment les quatre grottes factices étaient-elles réparties entre eux à l'époque ? »
 
-« Le Tout-Voyant et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Céleste Nuageux ! À l'époque, le niveau de culture de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie ! »
+« Le Tout-Voyant et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Céleste Nuageux ! À l'époque, le niveau de cultivation de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie ! »
 
 « Le Couple Céleste Nuageux ? » C'était la première fois que Wang Lin entendait ce nom.
 
@@ -98,7 +98,7 @@ Le regard de Yao Xixue vers Wang Lin révéla une lueur de choc. Ce n'est qu'à 
 
 « Cet homme est d'une ruse sans limite. Bien que ses questions semblent simples, dès que j'y réponds, je suis déjà tombée dans ses calculs. Étape par étape, j'ai involontairement permis à cet homme de prendre le contrôle d'une multitude d'informations. Par conséquent, si je devais mentir, il serait immédiatement capable de le détecter grâce à tout ce qu'il sait déjà. Cet homme... est trop terrifiant ! »
 
-Yao Xixue ignorait que, grâce à la culture des restrictions de Wang Lin, les déductions opérées dans son esprit étaient dix, voire cent fois plus complexes. Sa conversation avec Yao Xixue n'était en réalité qu'une mince affaire pour lui.
+Yao Xixue ignorait que, grâce à la cultivation des restrictions de Wang Lin, les déductions opérées dans son esprit étaient dix, voire cent fois plus complexes. Sa conversation avec Yao Xixue n'était en réalité qu'une mince affaire pour lui.
 
 Wang Lin n'avait pas peur que Yao Xixue parle. Tant qu'elle parlait, il avait les moyens d'extraire des informations de sa bouche. Ce dont il avait peur, c'était qu'elle se taise, comme elle l'avait fait auparavant !
 
@@ -114,4 +114,4 @@ Yao Xixue réfléchit un instant et hocha la tête.
 
 Yao Xixue hésita un instant avant de répondre : « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays Démoniaque de la Flamme ! »
 
-Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même : « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi le Tout-Voyant a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »
+Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même : « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de cultivation est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi le Tout-Voyant a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »

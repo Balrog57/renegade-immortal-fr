@@ -82,11 +82,11 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Quels que soient tes griefs envers l'Ancient Shi, cela ne concerne pas notre Ancient Dao ! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
 
-« Le groupe de trois de Liang Yun possède une culture équivalente à l'Arcane Void. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau du Void Tribulant. »
+« Le groupe de trois de Liang Yun possède une cultivation équivalente à l'Arcane Void. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa cultivation équivaut au niveau du Void Tribulant. »
 
 « Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes ; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 
-« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Empyrean Exalt. Les chances qu'il soit un Ascendant Empyrean sont faibles, sans quoi il ne serait pas mort. »
+« C'est peut-être là toute la différence entre les lignées. Le niveau de cultivation de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Empyrean Exalt. Les chances qu'il soit un Ascendant Empyrean sont faibles, sans quoi il ne serait pas mort. »
 
 « De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Empyrean Exalt. Il avait intégré ses 27 étoiles et passé les trois épreuves. Par conséquent, ce membre du clan Ancient est comparable aux Empyrean Exalts. »
 

@@ -68,7 +68,7 @@ Selon leur plan initial, même sans l'offre de Wang Lin, ils partiraient dans tr
 
 Cependant, les cultivateurs du royaume inférieur n'étaient que des fourmis à leurs yeux. Une fois partis, la guerre entre les deux royaumes ne les soucierait guère, pas plus que le nombre de vies perdues.
 
-Tant qu'ils trouveraient le Souverain Céleste et que sa culture serait rétablie, ils pourraient se contenter de détruire toute vie dans cette grotte. Ils activeraient ensuite le Dao Céleste et, après des dizaines de milliers d'années, tout reviendrait à l'état initial.
+Tant qu'ils trouveraient le Souverain Céleste et que sa cultivation serait rétablie, ils pourraient se contenter de détruire toute vie dans cette grotte. Ils activeraient ensuite le Dao Céleste et, après des dizaines de milliers d'années, tout reviendrait à l'état initial.
 
 Pourtant, Wang Lin les avait trouvés et menaçait de dévaster l'Ancien Royaume Céleste pour leur imposer un accord. Cela les obligeait à considérer la proposition avec sérieux.
 

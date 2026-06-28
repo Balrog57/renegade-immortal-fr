@@ -26,9 +26,9 @@ C'était un changement délibéré de la part de Wang Lin. Après tout, si quelq
 
 Au cours des trois dernières années, Xu Tao commença à venir plus fréquemment. Il venait chaque mois, apportant de l'or et de l'argent, avec l'intention d'attirer Wang Lin de son côté. Et à chaque fois, il insistait sur le fait que ces présents étaient offerts par le prince en signe de respect envers lui.
 
-Wang Lin n'avait aucun intérêt pour ce prince. Il était venu dans la capitale avec un seul but : expérimenter la vie mortelle afin de réaliser une percée dans sa culture.
+Wang Lin n'avait aucun intérêt pour ce prince. Il était venu dans la capitale avec un seul but : expérimenter la vie mortelle afin de réaliser une percée dans sa cultivation.
 
-Compte tenu de son niveau de culture, il n'avait aucune envie de s'impliquer dans les luttes de pouvoir des mortels.
+Compte tenu de son niveau de cultivation, il n'avait aucune envie de s'impliquer dans les luttes de pouvoir des mortels.
 
 À la fin de l'automne de cette année-là, le vent arracha les feuilles des saules bordant la rue, les faisant voler au loin et les séparant de leurs branches.
 
@@ -42,7 +42,7 @@ Après six années passées à se transformer en mortel, il l'était devenue tot
 
 Le seul détail qui le différenciait des simples mortels résidait dans ses yeux. Une distinction nette entre le noir et le blanc s'y dessinait, doublée d'une lueur subtile qui lui conférait un regard singulier.
 
-Au cours des trois dernières années, Wang Lin n'avait pas pratiqué sa culture une seule fois ; la dernière substance rouge s'était inconsciemment condensée en une perle qu'il avait rangée dans son sac de rangement.
+Au cours des trois dernières années, Wang Lin n'avait pas pratiqué sa cultivation une seule fois ; la dernière substance rouge s'était inconsciemment condensée en une perle qu'il avait rangée dans son sac de rangement.
 
 Il ouvrit la porte de la boutique et le vent glacial de l'automne lui fouetta le visage. Wang Lin resserra son col, referma la porte et s'éloigna.
 

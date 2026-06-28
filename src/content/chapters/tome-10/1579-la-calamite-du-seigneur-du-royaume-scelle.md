@@ -48,7 +48,7 @@ De loin, l'immense étendue où se trouvait Wang Lin ressemblait à un puits san
 
 Une voix éthérée descendit du ciel pour atteindre les oreilles de Wang Lin.
 
-Wang Lin réfléchit silencieusement en levant les yeux vers la voûte céleste. Ses pupilles se rétractèrent et il prit une profonde inspiration. Des craquements résonnèrent dans son corps tandis qu'il libérait une faible lueur dorée, activant ainsi sa pleine culture.
+Wang Lin réfléchit silencieusement en levant les yeux vers la voûte céleste. Ses pupilles se rétractèrent et il prit une profonde inspiration. Des craquements résonnèrent dans son corps tandis qu'il libérait une faible lueur dorée, activant ainsi sa pleine cultivation.
 
 Dans le ciel azur, la lumière bleue se condensa lentement pour former une silhouette. Cet homme d'âge moyen, vêtu de bleu, regarda Wang Lin d'un regard complexe et poussa un soupir.
 
@@ -66,7 +66,7 @@ Alors qu'ils disparaissaient, de violentes ondulations secouèrent le ciel. Une 
 
 Le regard de ce vieil homme était semblable à la foudre et empreint d'une intention meurtrière. Dès son apparition, il leva la main droite et pointa Wang Lin du doigt !
 
-« Bien que ce vieil homme ne puisse utiliser toute sa culture, même s'il ne s'agit que du stade intermédiaire du Vide Spirituel, tu mourras comme le précédent Seigneur du Royaume Scellé ! »
+« Bien que ce vieil homme ne puisse utiliser toute sa cultivation, même s'il ne s'agit que du stade intermédiaire du Vide Spirituel, tu mourras comme le précédent Seigneur du Royaume Scellé ! »
 
 Sur ce geste, le monde changea de teinte et une bourrasque hurla à travers l'univers. Une ligne grise apparut avant de se muer en un dragon gris. Fier et sauvage, il chargea Wang Lin à une vitesse inimaginable.
 
@@ -128,11 +128,11 @@ Un homme vêtu de blanc sortit lentement de l'ombre de l'épée brisée, le rega
 
 « Vite, achevez ce combat ! » Les paroles de l'homme étaient aussi froides que son apparence. Tandis qu'il avançait, le vieil homme en gris et la vieille femme en noir chargèrent Wang Lin !
 
-Wang Lin recula promptement. Bien que leur culture fût ici supprimée, résister à trois cultivateurs du stade intermédiaire du Vide Spirituel n'était pas une mince affaire !
+Wang Lin recula promptement. Bien que leur cultivation fût ici supprimée, résister à trois cultivateurs du stade intermédiaire du Vide Spirituel n'était pas une mince affaire !
 
 Tout en reculant, Wang Lin pointa le ciel. L'Empreinte de l'Esprit Martial interrompue réapparut. Ses yeux brillèrent d'un éclat doré, libérant une intense intention de combat.
 
-« Puisque vous voulez combattre, alors battons-nous !! » La voix de Wang Lin était calme. Plus le danger était grand, plus il devenait fou, mais son esprit, lui, devenait plus limpide. C'était un trait qu'il avait forgé au cours de ses deux mille ans de culture.
+« Puisque vous voulez combattre, alors battons-nous !! » La voix de Wang Lin était calme. Plus le danger était grand, plus il devenait fou, mais son esprit, lui, devenait plus limpide. C'était un trait qu'il avait forgé au cours de ses deux mille ans de cultivation.
 
 À cet instant, il fit signe au ciel et le monde trembla sous l'éclat d'une lumière dorée. L'immense empreinte de paume, baignée d'un éclat d'or, descendit. Avant même qu'elle ne soit proche, une pression écrasante s'abattit sur les lieux.
 
