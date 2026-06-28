@@ -3,7 +3,7 @@ n: 1288
 title: "La gloire d'il y a 10 ans !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1288 - Fame From 10 Years Ago!"
+en: "Chapter 1288 - Fame From 10 Years Ago !"
 slug: la-gloire-dil-y-a-10-ans
 ---
 Chapitre 1288 - La gloire d'il y a 10 ans !
@@ -32,7 +32,7 @@ Pourtant, juste au moment où l'épée s'approchait, un grondement tonitruant ja
 
 Cela provoqua un changement radical dans son expression !
 
-« Lu Zihao !! » Cet homme appartenait à la Secte Éternelle et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné !
+« Lu Zihao ! ! » Cet homme appartenait à la Secte Éternelle et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné !
 
 Wang Lin n'accorda aucune attention à ces jeunes gens. Après s'être élancé, il fonça droit devant lui, créant un fracas tonitruant dans son sillage.
 
@@ -54,13 +54,13 @@ Wang Lin fendait les étoiles. Sa vitesse était telle qu'elle provoquait des gr
 
 Ce qu'ils virent provoqua un choc immense !
 
-« Lu Zihao !!! »
+« Lu Zihao ! ! ! »
 
-« Lu Zihao !!! Le Lu Zihao qui a tué le précédent Maître de secte et l'Ancien en chef !! »
+« Lu Zihao ! ! ! Le Lu Zihao qui a tué le précédent Maître de secte et l'Ancien en chef ! ! »
 
-« Cette personne n'avait-elle pas été tuée par la Secte Divine ? Comment peut-il être encore en vie ?! »
+« Cette personne n'avait-elle pas été tuée par la Secte Divine ? Comment peut-il être encore en vie ? ! »
 
-« On disait qu'il y a dix ans, la Secte Divine avait tué cet homme dans la région de rang 5. Pourtant, non seulement il n'est pas mort, mais il est devenu encore plus puissant. Se pourrait-il que même la Secte Divine ne puisse l'éliminer ?! »
+« On disait qu'il y a dix ans, la Secte Divine avait tué cet homme dans la région de rang 5. Pourtant, non seulement il n'est pas mort, mais il est devenu encore plus puissant. Se pourrait-il que même la Secte Divine ne puisse l'éliminer ? ! »
 
 Dès qu'ils aperçurent Wang Lin, les membres de la Secte de la Musique Céleste qui l'avaient vu à la Secte Éternelle furent en plein tumulte. Ils étaient pétrifiés, leurs yeux emplis d'une peur et d'une panique infinies !
 

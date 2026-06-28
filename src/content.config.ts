@@ -3,7 +3,7 @@ import { z } from 'astro/zod';
 import { glob } from 'astro/loaders';
 
 // Wiki type enum: ce qui définit une fiche lore (personnage / lieu / secte / cultivation)
-const wikiType = z.enum(['personnage', 'lieu', 'secte', 'cultivation']);
+const wikiType = z.enum(['personnage', 'lieu', 'secte', 'cultivation', 'auteur']);
 
 const chapters = defineCollection({
   loader: glob({

@@ -4,7 +4,7 @@ title: Un silence précède chaque grand événement
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1153 - There is Silence Before Every Major Event
-slug: un-silence-precede-chaque-grand-evenement
+slug: un-silence-precede-chaque-grand-événement
 ---
 Au moment où la situation changea, l'énergie originelle de Wang Lin perdit sa douceur. Elle se chargea de la force d'une montagne lorsqu'elle s'abattit sur l'homme d'âge moyen.
 

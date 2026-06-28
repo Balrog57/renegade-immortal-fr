@@ -14,9 +14,9 @@ Par conséquent, les membres des trois clans étaient encore nombreux aux alento
 
 La joie et l'animation se dissipèrent, laissant place à un silence de mort. Seules les lumières vives et colorées continuaient d'éblouir, mais une intention glaciale imprégnait désormais l'air !
 
-« Quelle est cette voix ?! »
+« Quelle est cette voix ? ! »
 
-« Ye Dao... Ye Dao... N'est-ce pas le nom de l'Empereur du Dao Antique ?! »
+« Ye Dao... Ye Dao... N'est-ce pas le nom de l'Empereur du Dao Antique ? ! »
 
 « Cet individu... ose-t-il proférer des paroles aussi arrogantes dans la cité impériale du Dao Antique ? » Après un bref instant de silence, la zone touchée par le hurlement de Wang Lin fut envahie par des cris de stupeur.
 
@@ -38,7 +38,7 @@ Ce cri était chargé d'une intention meurtrière capable de secouer les cieux, 
 
 Il se leva brusquement et regarda derrière lui. Son regard semblait capable de percer la montagne pour voir tout ce qui se passait dans la maison en bois !
 
-« Que s'est-il passé ?! » Le cœur de Xuan Luo manqua un battement ; il sentit qu'un événement majeur se produisait. Il agita sa manche pour tenter de retirer son Sens Divin, mais l'épée était à un stade critique de son raffinage : il lui faudrait encore une demi-encens pour s'en détacher complètement.
+« Que s'est-il passé ? ! » Le cœur de Xuan Luo manqua un battement ; il sentit qu'un événement majeur se produisait. Il agita sa manche pour tenter de retirer son Sens Divin, mais l'épée était à un stade critique de son raffinage : il lui faudrait encore une demi-encens pour s'en détacher complètement.
 
 Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés dans le Temple du Dao Antique.
 
@@ -50,7 +50,7 @@ Sous l'effet de ce rugissement, le lit de bois sur lequel Wang Lin était assis 
 
 Alors que le tourbillon balayait la vallée, les arbres, l'herbe, la table de pierre, la rivière et tout ce qui s'y trouvait furent réduits en cendres. La tempête emporta tout vers le ciel !
 
-Wang Lin flottait au centre du chaos. Ses cheveux étaient ébouriffés et ses yeux d'un rouge anormal. Il dégageait une intention meurtrière monstrueuse. Il... était devenu fou !!!
+Wang Lin flottait au centre du chaos. Ses cheveux étaient ébouriffés et ses yeux d'un rouge anormal. Il dégageait une intention meurtrière monstrueuse. Il... était devenu fou ! !!
 
 Il n'avait jamais été aussi incontrôlable. C'était comme si son cœur était lacéré par des lames !
 
@@ -64,7 +64,7 @@ Wang Lin bondit dans les airs, ses cheveux ondulant sans qu'aucun vent ne soit p
 
 Alors qu'il hurlait, son niveau de cultivation commença à grimper, passant du stade avancé de la Tribulation du Vide au sommet de la Tribulation du Vide ! Cela confirmait que les spéculations de Wang Lin sur sa voie de cultivation future étaient exactes !
 
-Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er !!
+Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er ! !
 
 Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière ; toute la Montagne du Dao Antique sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste s'élancèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture !
 
@@ -72,7 +72,7 @@ Cependant, à cet instant précis, les neuf personnes ayant reçu le message de 
 
 D'un coup d'œil, ils virent que l'endroit était en ruines. Ils aperçurent la fissure et la tempête qui ravageait tout. Au cœur du tourbillon se trouvait Wang Lin ; les cheveux ébouriffés, il dégageait une intention meurtrière terrifiante !
 
-« Jeune Maître !! Vous... »
+« Jeune Maître ! ! Vous... »
 
 « Que s'est-il passé ? Jeune Maître, je vous en prie, calmez-vous ! »
 
@@ -90,24 +90,24 @@ Mais alors qu'il s'élançait, l'expression des neuf changea et ils se placèren
 
 Sans hésiter, les neuf activèrent la formation du Temple pour stopper Wang Lin !
 
-La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux injectés de sang révélaient une intention meurtrière monstrueuse !!
+La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux injectés de sang révélaient une intention meurtrière monstrueuse ! !
 
-« Vous osez m'arrêter ?! »
+« Vous osez m'arrêter ? ! »
 
 Le vieil homme dont le niveau de cultivation était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit : « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres de Lord Xuan pour vous retenir. Une décision pourra être prise une fois que Lord Xuan sera arrivé. »
 
 « Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante à la tête. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 
-« Écartez-vous de mon chemin !! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître !
+« Écartez-vous de mon chemin ! ! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître !
 
 C'était la seule voie possible pour Wang Lin !
 
 Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut derrière Wang Lin. Ce soleil était bien plus tangible que celui de la Montagne Gu Dao. À sa vue, les pupilles des neuf disciples se rétractèrent violemment !
 
-« Un Grand Empyréen !!! »
+« Un Grand Empyréen ! !! »
 
-« C'est un Grand Soleil Empyréen !!! »
+« C'est un Grand Soleil Empyréen ! !! »
 
-« Il... il est en réalité un Grand Empyréen !! » Les neuf étaient plongés dans l'incrédulité alors que Wang Lin levait la main droite et l'agitait. Le monde gronda et la formation entourant le Temple du Dao Antique s'effondra. Les neuf subordonnés crachèrent du sang, repoussés par l'onde de choc. Wang Lin ne les tua pas ; il se transforma en un rayon de lumière et jaillit hors de la vallée !
+« Il... il est en réalité un Grand Empyréen ! ! » Les neuf étaient plongés dans l'incrédulité alors que Wang Lin levait la main droite et l'agitait. Le monde gronda et la formation entourant le Temple du Dao Antique s'effondra. Les neuf subordonnés crachèrent du sang, repoussés par l'onde de choc. Wang Lin ne les tua pas ; il se transforma en un rayon de lumière et jaillit hors de la vallée !
 
 Un éclair de lumière rouge s'élança, massacrant tout sur son passage vers le palais !

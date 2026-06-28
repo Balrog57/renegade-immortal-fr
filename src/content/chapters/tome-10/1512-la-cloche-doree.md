@@ -3,7 +3,7 @@ n: 1512
 title: "La Cloche Dorée !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1512 - Golden Bell!"
+en: "Chapter 1512 - Golden Bell !"
 slug: la-cloche-doree
 ---
 Chapitre 1512 - La Cloche Dorée !
@@ -26,7 +26,7 @@ Le Taoïste Water fut instantanément repoussé de neuf pas et cracha neuf bouff
 
 Son apparence juvénile commença instantanément à vieillir !
 
-« Impossible !! Impossible !! Quelle fortune as-tu donc acquise pour... pour obtenir une puissance aussi terrifiante ?! »
+« Impossible ! ! Impossible ! ! Quelle fortune as-tu donc acquise pour... pour obtenir une puissance aussi terrifiante ? ! »
 
 Après ses neuf pas de recul, le Taoïste Water ne put plus résister à la force monstrueuse du corps de Dieu Antique à 7 étoiles de Wang Lin. Il fut projeté en arrière et s'écrasa contre la montagne centrale !
 
@@ -36,7 +36,7 @@ Un nuage de poussière s'éleva dans les airs avant de se propager en un large a
 
 De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut repoussé. À ce moment-là, son visage était pâle et il fulminait intérieurement. Il ressentait une peur profonde envers Wang Lin, qui ne lui avait même pas jeté un regard.
 
-« Qui est cet homme pour avoir des cultivateurs du troisième pas comme esclaves ?! Comment ai-je pu offenser une telle personne ? Tout est la faute de ce Taoïste Water !! »
+« Qui est cet homme pour avoir des cultivateurs du troisième pas comme esclaves ? ! Comment ai-je pu offenser une telle personne ? Tout est la faute de ce Taoïste Water ! ! »
 
 Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin ; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes Joss. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
 
@@ -46,7 +46,7 @@ Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'ava
 
 À cet instant précis, le Taoïste Water essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Heaven Breaking pour détruire le Dao Cœur de Wang Lin. La Secte Fantôme ne semblait pas non plus se soucier de son offre concernant les disciples Yin et Yang et ne montrait aucun signe d'apparition. Le Taoïste Water leva les yeux et rugit :
 
-« Tai Aluo !! »
+« Tai Aluo ! ! »
 
 Alors que le Taoïste Water rugissait, un soupir résonna à travers le monde. Une silhouette sortit lentement du monde qui avait déjà commencé à se distordre sous l'effet des massacres.
 
@@ -112,20 +112,20 @@ C'était la même chose partout dans le Royaume Intérieur !
 
 L'immensité de cette formation qui enveloppait tout le Royaume Intérieur était absolument stupéfiante ! Pour une trop grande partie de la population, c'était la première fois qu'ils en voyaient l'existence. Beaucoup semblèrent perdre le souffle, fixant la formation avec effroi !
 
-« La Formation de Scellement du Royaume !! »
+« La Formation de Scellement du Royaume ! ! »
 
-« C'est la Formation de Scellement du Royaume !! »
+« C'est la Formation de Scellement du Royaume ! ! »
 
 « Elle scelle le Royaume Intérieur depuis des éternités... Cette formation qui existe depuis des millénaires ! Ceci... ceci est... »
 
 « Alors, le système stellaire dans lequel nous vivons était bien scellé, comme l'avait dit la Mer des Nuages ! »
 
-« Tout était donc vrai !! Les habitants du Système Stellaire Antique sont à l'extérieur de la Formation de Scellement du Royaume !! »
+« Tout était donc vrai ! ! Les habitants du Système Stellaire Antique sont à l'extérieur de la Formation de Scellement du Royaume ! ! »
 
 Dans la région de rang 1 de la Mer des Nuages, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Dieu !
 
-« Damnation, c'est l'aura du Royaume Céleste Antique. Ce Taoïste Water possède réellement un tel objet !! »
+« Damnation, c'est l'aura du Royaume Céleste Antique. Ce Taoïste Water possède réellement un tel objet ! ! »
 
 Dans le Système Stellaire de l'Alliance, un rugissement fracassant retentit du côté de la Secte des Cadavres.
 
-« Un objet du Royaume Céleste Antique !! Cet objet était très faible avant de fusionner avec la Formation de Scellement du Royaume. Il ne doit surtout pas être détruit !! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Dieu !
+« Un objet du Royaume Céleste Antique ! ! Cet objet était très faible avant de fusionner avec la Formation de Scellement du Royaume. Il ne doit surtout pas être détruit ! ! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Dieu !

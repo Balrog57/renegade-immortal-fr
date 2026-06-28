@@ -4,7 +4,7 @@ title: Précis et prêt
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 759 - Precise and Ready
-slug: precis-et-pret
+slug: precis-et-prêt
 ---
 Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à écrire en suivant le texte. Il percevait progressivement une trace de ce que ressentait l'être céleste.
 

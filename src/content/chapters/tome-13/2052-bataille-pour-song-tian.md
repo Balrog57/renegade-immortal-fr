@@ -3,18 +3,18 @@ n: 2052
 title: "Bataille pour Song Tian !"
 book: 13
 bookTitle: Light of the coming end
-en: "Chapter 2052 - Battle Song Tian!"
+en: "Chapter 2052 - Battle Song Tian !"
 slug: bataille-pour-song-tian
 ---
 Chapitre 2052 - Bataille pour Song Tian !
 
-« Wang Lin !! C'est bel et bien Wang Lin !!! » Un rugissement jaillit de la Secte Dao Yi, et la colère contenue dans ce cri résonna à travers le monde.
+« Wang Lin ! ! C'est bel et bien Wang Lin ! !! » Un rugissement jaillit de la Secte Dao Yi, et la colère contenue dans ce cri résonna à travers le monde.
 
 Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, le Secte Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empereur Céleste. Il n'osait même pas imaginer à quel point sa force avait augmenté !
 
 Le gigantesque Soleil de Grand Empereur Céleste, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin !
 
-« Il n'est même pas encore parvenu au royaume du Dieu Immémorial et pourtant... Il est devenu un Grand Empereur Céleste par sa propre force !! » Dans le Continent Nordique, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
+« Il n'est même pas encore parvenu au royaume du Dieu Immémorial et pourtant... Il est devenu un Grand Empereur Céleste par sa propre force ! ! » Dans le Continent Nordique, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
 
 Dans la Secte Purple Yang, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
 
@@ -24,11 +24,11 @@ Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empereur Ji Du reg
 
 « Lorsqu'il était au palais, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs : noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
 
-« Normalement, le fait qu'il devienne un Grand Empereur Céleste ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste !! »
+« Normalement, le fait qu'il devienne un Grand Empereur Céleste ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste ! ! »
 
 « Et le moment où il est devenu un Grand Empereur Céleste... » Le cœur de Ji Du tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
 
-Ji Du laissa paraître son effroi et murmura pour lui-même : « Ce doit être... impossible !! »
+Ji Du laissa paraître son effroi et murmura pour lui-même : « Ce doit être... impossible ! ! »
 
 Hai Zi, assise à l'angle du Mont de l'Empereur, levait les yeux vers le ciel avec un regard complexe, laissant poindre une lueur d'illumination.
 
@@ -44,7 +44,7 @@ Le monde retrouva son calme tandis que la puissance des lois se dissipait lentem
 
 Réprimant l'excitation qui agitait son cœur, il s'agenouilla immédiatement à mille pieds de Wang Lin et s'exclama d'une voix forte :
 
-« Félicitations, parrain, pour votre accession au rang de Grand Empereur Céleste !! »
+« Félicitations, parrain, pour votre accession au rang de Grand Empereur Céleste ! ! »
 
 « Salutations, Seigneur Wang ! » Derrière Ji Du, la jeune femme et son époux, le jeune homme vêtu de pourpre, s'adressèrent à lui avec respect. Ils ne purent cacher le choc dans leurs yeux et tombèrent à genoux devant Wang Lin.
 
@@ -60,7 +60,7 @@ Devant la créature, Wang Lin leva la main droite et pointa l'espace entre les s
 
 Le corps de Ji Du frémit et il leva brusquement les yeux. Incapable de contenir son émotion, il regarda Wang Lin avec une immense gratitude.
 
-« Merci, parrain, pour votre aide !! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur de l'Ancient Shi !!
+« Merci, parrain, pour votre aide ! ! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur de l'Ancient Shi ! !
 
 Le colossal démon ancien n'attendit aucun ordre de Wang Lin. Il poussa un hurlement, fit volte-face avec Wang Lin et Ji Du sur son dos, et déchira la faille par laquelle il était apparu. Il s'engouffra dans le gouffre et disparut.
 
@@ -84,7 +84,7 @@ Deux silhouettes se tenaient sur sa tête : Wang Lin et Ji Du !
 
 Song Tian fixa soudainement Wang Lin. Simultanément, le regard de Chi Man croisa celui de Ji Du.
 
-Song Tian agita sa manche et lança froidement : « Wang Lin !! »
+Song Tian agita sa manche et lança froidement : « Wang Lin ! ! »
 
 Wang Lin sourit, joignit les mains et répondit : « Salutations, Seigneur Song. »
 
@@ -120,7 +120,7 @@ La main droite de Wang Lin s'immobilisa alors qu'une marque blanche apparaissait
 
 « Veux-tu toujours te battre ? » Le regard calme de Wang Lin se posa sur Song Tian.
 
-« Pourquoi pas ?! » Song Tian éclata d'un rire et s'élança dans les airs. Il leva la main droite vers la Montagne de l'Origine en contrebas.
+« Pourquoi pas ? ! » Song Tian éclata d'un rire et s'élança dans les airs. Il leva la main droite vers la Montagne de l'Origine en contrebas.
 
 La montagne entière trembla, semblant s'élever vers le ciel, comme si Song Tian la soulevait de ses propres mains !
 

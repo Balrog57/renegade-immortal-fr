@@ -3,7 +3,7 @@ n: 1555
 title: "Qing Shui !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1555 - Qing Shui!"
+en: "Chapter 1555 - Qing Shui !"
 slug: qing-shui
 ---
 Chapitre 1555 - Qing Shui !
@@ -28,7 +28,7 @@ Même les nuages aux sept couleurs furent dispersés par ce rugissement et repou
 
 D'un seul regard, une lueur de folie s'alluma dans les yeux de Wang Lin.
 
-Il vit Qing Shui !!
+Il vit Qing Shui ! !
 
 Au sommet de la montagne, un homme mince à l'expression féroce était cloué à la roche par neuf épines. Ces neuf pointes émettaient une lumière aux sept couleurs, mais ce n'étaient pas les clous aux sept couleurs.
 
@@ -36,7 +36,7 @@ Cet homme au visage farouche était Qing Shui ! Bien que son apparence ait radic
 
 Des rugissements semblaient jaillir sans interruption de la bouche de Qing Shui. Il paraissait tenter de briser les neuf épines qui le maintenaient, mais en vain ; il ne pouvait que hurler de rage.
 
-« Tuer, tuer, tuer, tuer !! Je vais tous vous tuer, tuer tout le monde ! Tuez ! » Un son distordu et rauque s'échappait de sa bouche.
+« Tuer, tuer, tuer, tuer ! ! Je vais tous vous tuer, tuer tout le monde ! Tuez ! » Un son distordu et rauque s'échappait de sa bouche.
 
 Un autre objet se trouvait devant lui !
 
@@ -46,11 +46,11 @@ Il paraissait exister depuis une éternité. Des fils rouges semblaient s'échap
 
 Wang Lin en eut le cuir chevelu engourdi. Il pressentait que ces 100 000 montagnes n'étaient pas de simples reliefs. Cette formation jouait un rôle spécial, et Qing Shui en était le pivot céleste !
 
-« Tortue Noire pétrifiée, formation des 100 000 montagnes, 100 000 cultivateurs morts-vivants dont le sang est condensé en ressentiment pour se transformer en intention meurtrière... Quelle est cette maudite formation ?! » songea Wang Lin silencieusement tout en progressant. En un éclair, il franchit l'interstice des nuages septicolores et se retrouva à moins de mille pieds de Qing Shui !
+« Tortue Noire pétrifiée, formation des 100 000 montagnes, 100 000 cultivateurs morts-vivants dont le sang est condensé en ressentiment pour se transformer en intention meurtrière... Quelle est cette maudite formation ? ! » songea Wang Lin silencieusement tout en progressant. En un éclair, il franchit l'interstice des nuages septicolores et se retrouva à moins de mille pieds de Qing Shui !
 
 Pourtant, au moment où il approchait, Qing Shui leva brusquement la tête. Ses cheveux masquaient la majeure partie de son visage, ne laissant apparaître que ses yeux écarlates. Il fixa Wang Lin et rugit comme un possédé.
 
-« Tuer, tuer, tuer !! Je vais tout massacrer, je vais tous vous tuer, tuer jusqu'à ce qu'il ne reste plus rien, tuer toute vie !! »
+« Tuer, tuer, tuer ! ! Je vais tout massacrer, je vais tous vous tuer, tuer jusqu'à ce qu'il ne reste plus rien, tuer toute vie ! ! »
 
 Ces rugissements dégageaient une intention meurtrière terrifiante. Wang Lin étant à moins de mille pieds, il subit le choc de plein fouet. Cette intention était assez puissante pour briser le cœur du Dao ; elle ressemblait au Domaine de Ji, capable de pénétrer l'esprit et de tuer par la simple peur !
 
@@ -76,7 +76,7 @@ Même l'expression de Wang Lin changea face à cette aura de massacre. Elle éta
 
 Un fracas assourdissant retentit et du sang jaillit du coin de la bouche de Wang Lin, le forçant à reculer. Cependant, il ne quitta pas Qing Shui des yeux, la tristesse dans son regard s'intensifiant.
 
-« Frère Aîné Qing Shui !! C'est moi, Wang Lin ! Je suis ton frère cadet, Wang Lin !! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
+« Frère Aîné Qing Shui ! ! C'est moi, Wang Lin ! Je suis ton frère cadet, Wang Lin ! ! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
 
 L'ombre de sang se dissipa sous l'assaut du feu et du tonnerre dorés. L'impact repoussa les cheveux de Qing Shui, révélant ses yeux et son visage.
 
@@ -84,7 +84,7 @@ Cela permit à Wang Lin de voir des veines gonflées sur le visage de Qing Shui,
 
 À l'écho des paroles de Wang Lin, les yeux de Qing Shui se plissèrent, laissant transparaître une expression douloureuse. Cette douleur mêlait tristesse et désespoir, comme s'il venait de découvrir un secret terrible !
 
-« Mon âme est enchaînée au corps de la Tortue Noire. Wang Lin... Tue-moi... Tue, tue, tue ! Je vais massacrer tous les êtres vivants !! »
+« Mon âme est enchaînée au corps de la Tortue Noire. Wang Lin... Tue-moi... Tue, tue, tue ! Je vais massacrer tous les êtres vivants ! ! »
 
 Dès qu'il retrouva une brève lucidité, la Tortue Noire pétrifiée trembla et un gaz gris apparut. Il fonça instantanément vers le plus haut pic pour s'engouffrer dans le corps de Qing Shui.
 
@@ -96,7 +96,7 @@ Lorsque l'impact eut repoussé les cheveux de Qing Shui, Wang Lin vit clairement
 
 Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrêmement difficile.
 
-« Dix épines !! Ce n'est pas neuf, mais dix !! Je comprends ! » Wang Lin recula précipitamment. Puis, baissant la tête, il observa les 100 000 montagnes en contrebas, le regard brillant de compréhension.
+« Dix épines ! ! Ce n'est pas neuf, mais dix ! ! Je comprends ! » Wang Lin recula précipitamment. Puis, baissant la tête, il observa les 100 000 montagnes en contrebas, le regard brillant de compréhension.
 
 « Les 100 000 montagnes se sont transformées en dix épines pour sceller le corps de Qing Shui ! »
 
@@ -104,7 +104,7 @@ Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrê
 
 « Cette Tortue Noire n'est pas morte, c'est son véritable corps ! Ils utilisent le corps de la Tortue Noire pour piéger l'âme de Qing Shui ! »
 
-« Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Frère Aîné Qing Shui sert de fourneau pour la produire !! »
+« Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Frère Aîné Qing Shui sert de fourneau pour la produire ! ! »
 
 « Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Cultivation avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux sous l'ancien Empereur Céleste. Elle porte l'aura du clan de la Tortue Noire, et en tant que descendant, l'Empereur Divin n'a eu d'autre choix que de trahir les Quatre Sectes ! Seule une telle tentation pouvait le pousser à la trahison ! »
 

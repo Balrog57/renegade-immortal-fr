@@ -4,7 +4,7 @@ title: La première personne à prêter allégeance
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 725 - The First Person to Pledge
-slug: la-premiere-personne-a-preter-allegeance
+slug: la-première-personne-a-preter-allegeance
 ---
 Aux yeux de l'homme aux cheveux noirs, la silhouette de Wang Lin paraissait infiniment immense. Il était même convaincu que personne dans le Système Stellaire d'Allheaven ne pourrait rester indemne sous un tel regard, pas même le chef du Temple Céleste du Tonnerre !
 

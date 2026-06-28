@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 563 - Saving Thirteen
 slug: sauver-treize
 ---
+
 Le corps de Sima Yan trembla. Cette voix qui lui parvint fit glacer tout son être.
 
 « Six mois après votre départ, les deux ont disparu... Je ne sais pas où ils sont ! »
@@ -36,9 +37,9 @@ Après avoir tué Sima Yan, Wang Lin tourna son regard vers l'homme costaud qui 
 
 Wang Lin fit un pas et se retrouva devant l'homme costaud. Il demanda froidement : « Où est Treize ?! »
 
-L'homme en armure noire fixa Wang Lin, réfléchit un instant, puis dit : « Parles-tu du barbare que Sima Yan a gaspillé il y a six mois ? Si c'est lui que tu cherches, me questionner est inutile.
+L'homme en armure noire fixa Wang Lin, réfléchit un instant, puis dit : « Parles-tu du barbare que Sima Yan a gaspillé il y a six mois ? Si c'est lui que tu cherches, me questionner est inutile. »
 
-« Le général démon a ordonné de rassembler des individus dotés de corps robustes. Ce barbare avait toute son énergie spirituelle démoniaque concentrée dans sa chair et utilisait une méthode mystérieuse pour raffiner son corps. Voyant qu'il répondait aux exigences du général démon, je l'ai soigné pour l'offrir au général !
+« Le général démon a ordonné de rassembler des individus dotés de corps robustes. Ce barbare avait toute son énergie spirituelle démoniaque concentrée dans sa chair et utilisait une méthode mystérieuse pour raffiner son corps. Voyant qu'il répondait aux exigences du général démon, je l'ai soigné pour l'offrir au général ! »
 
 « Commandant Wang, si vous avez des capacités, ne faites pas le fier ici. Osez-vous interroger le seigneur général démon vous-même ? Soyez rassuré, je ne mentirai jamais sur les affaires concernant le général démon ! » L'homme costaud regarda Wang Lin avec un sourire moqueur.
 
@@ -52,13 +53,13 @@ Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il 
 
 « Treize et Hu Pao ont été amenés dans cette Cité Démoniaque par ma faute ; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
-« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune ! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au pays Sky Demon pour eux signifie défier ces deux puissances !
+« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune ! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au pays Sky Demon pour eux signifie défier ces deux puissances ! »
 
-« Je devrais être prudent et rester à l'écart du danger. Rien de tout cela n'en vaut la peine !
+« Je devrais être prudent et rester à l'écart du danger. Rien de tout cela n'en vaut la peine ! »
 
-« Pourtant, moi, Wang Lin, je ne veux pas suivre les conventions pour un jour trouver le Dao des cieux ; je veux vivre sans avoir le sentiment d'avoir lésé qui que ce soit. Je ne suis ni un gentleman, ni un scélérat, ni un homme honnête, ni un hypocrite, mais il y a certaines choses dans la vie qui doivent être faites, tout simplement !
+« Pourtant, moi, Wang Lin, je ne veux pas suivre les conventions pour un jour trouver le Dao des cieux ; je veux vivre sans avoir le sentiment d'avoir lésé qui que ce soit. Je ne suis ni un gentleman, ni un scélérat, ni un homme honnête, ni un hypocrite, mais il y a certaines choses dans la vie qui doivent être faites, tout simplement ! »
 
-« De ce point de vue, je ne suis pas fait pour être un cultivateur !
+« De ce point de vue, je ne suis pas fait pour être un cultivateur ! »
 
 « Cependant, il y a des choses que je me dois d'accomplir ! Si je ne sauve pas Treize, quel Dao est-ce que je poursuis ?! » Wang Lin leva les yeux vers le ciel. Sa détermination était faite !
 
@@ -186,9 +187,9 @@ Ajoutant les dizaines de milliers de soldats qui l'entouraient, Wang Lin savait 
 
 Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus puissant, doté d'une force capable de fendre les cieux, infiniment proche d'un sort céleste de qualité inférieure. Le troisième sort meurtrier !
 
-« Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant s'inclinerait !
+« Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant s'inclinerait ! »
 
-« Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de cultivation du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade !
+« Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de cultivation du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade ! »
 
 « Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des dizendes de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang ! »
 

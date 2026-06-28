@@ -4,7 +4,7 @@ title: Les Ruines de la Forêt
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 86 - Forest Ruins
-slug: les-ruines-de-la-foret
+slug: les-ruines-de-la-forêt
 ---
 Wang Lin réfléchit un instant. Il pointa l'esprit de Teng Li et commença à l'absorber. L'esprit de Teng Li se mit à gonfler et à bouillonner.
 

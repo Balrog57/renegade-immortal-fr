@@ -3,8 +3,8 @@ n: 1804
 title: "Première bataille sur le continent Astral Immortel !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1804 - First Battle On the Immortal Astral Continent!"
-slug: premiere-bataille-sur-le-continent-astral-immortel
+en: "Chapter 1804 - First Battle On the Immortal Astral Continent !"
+slug: première-bataille-sur-le-continent-astral-immortel
 ---
 Chapitre 1804 - Première bataille sur le continent Astral Immortel !
 
@@ -14,7 +14,7 @@ Il possédait déjà une essence et se trouvait au stade avancé du Vide Spiritu
 
 À l'instant où il vit la colonne de feu, il distingua vaguement une silhouette enveloppée de flammes portant un cercueil sur le dos. L'homme d'âge moyen sentit une aura menaçante émaner de là, faisant trembler son cœur.
 
-« Quel genre de cadavre est-ce là ?! » L'expression de l'homme d'âge moyen devint sombre alors qu'il fixait Kang Ren, qui restait pétrifié par la peur. Il laissa échapper un reniflement froid et s'avança vers le feu.
+« Quel genre de cadavre est-ce là ? ! » L'expression de l'homme d'âge moyen devint sombre alors qu'il fixait Kang Ren, qui restait pétrifié par la peur. Il laissa échapper un reniflement froid et s'avança vers le feu.
 
 Sachant qu'il possédait lui-même un haut niveau de cultivation et ne ressentant aucune aura trop puissante provenant de l'individu dans les flammes, il chargea vers le brasier.
 
@@ -34,11 +34,11 @@ Il avait perdu le contrôle de son corps. Lorsque Wang Lin avait parlé, il eut 
 
 Sous les yeux des dizaines de milliers de cultivateurs à l'extérieur, l'homme d'âge moyen fut expulsé et recracha une troisième fois du sang. Il fut projeté à des dizaines de milliers de pieds avant de s'immobiliser. Son visage était d'une pâleur mortelle et la terreur dans ses yeux était indescriptible.
 
-« Qui êtes-vous ?! » hurla immédiatement l'homme d'âge moyen.
+« Qui êtes-vous ? ! » hurla immédiatement l'homme d'âge moyen.
 
 Cette scène soudaine choqua non seulement tous les disciples de la Secte du Dragon Bleu, mais aussi les deux anciens qui s'étaient transformés en dragons. Le maître de Nuage Virtuel écarquilla les yeux, remplis d'incrédulité.
 
-« Qui est donc dans cette grotte ?! Même l'Ancien Zhao, au stade avancé du Vide Spirituel, a été instantanément repoussé et gravement blessé ?! »
+« Qui est donc dans cette grotte ? ! Même l'Ancien Zhao, au stade avancé du Vide Spirituel, a été instantanément repoussé et gravement blessé ? ! »
 
 « Assez de bruit ! » Au milieu de ce tumulte, la voix froide de Wang Lin s'éleva de la grotte de Kang Ren.
 
@@ -46,9 +46,9 @@ Dès que cette voix retentit, le silence se fit total. Même la pluie tombant du
 
 Voyant la pluie ainsi figée, le visage du vieil homme aux cheveux blancs fut envahi par la peur.
 
-« La parole qui dicte la loi, tout se fige... Cela signifie qu'il est au stade du Vide Arcanique ou plus haut. Qui... qui est cette personne ?! »
+« La parole qui dicte la loi, tout se fige... Cela signifie qu'il est au stade du Vide Arcanique ou plus haut. Qui... qui est cette personne ? ! »
 
-« Qui Kang Ren a-t-il ramené ?! Cet homme doit être célèbre sur le continent Heavenly Bull, il ne peut pas être un inconnu ! »
+« Qui Kang Ren a-t-il ramené ? ! Cet homme doit être célèbre sur le continent Heavenly Bull, il ne peut pas être un inconnu ! »
 
 À l'intérieur de la grotte, le désespoir de Kang Ren avait atteint son paroxysme. Il avait vu l'Ancien Zhao, au statut extrêmement élevé, être repoussé et recracher du sang par une simple parole issue des flammes. En voyant l'embrasement, il comprit qu'il avait causé un désastre sans précédent !
 

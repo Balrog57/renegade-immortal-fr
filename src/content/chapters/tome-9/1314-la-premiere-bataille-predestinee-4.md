@@ -4,7 +4,7 @@ title: La Première Bataille Prédestinée (4)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1314 - The First Predestined Battle (4)
-slug: la-premiere-bataille-predestinee-4
+slug: la-première-bataille-predestinee-4
 ---
 Sort de l'Extermination du Grand Dieu Lunaire, Ailes de la Lune Sanglante, Neuf Os de l'Ancien Dieu, Liquide de Décomposition Divine !
 

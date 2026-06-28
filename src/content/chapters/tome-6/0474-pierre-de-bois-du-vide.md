@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 474 - Void Wood Stone
 slug: pierre-de-bois-du-vide
 ---
+
 Il faut dire que la plupart des personnes qui se rendaient ici entraient par la porte ouest, car elle était plus proche du marché libre de la place. On y trouvait de nombreux articles introuvables dans les boutiques spécialisées, et les prix y étaient légèrement plus bas. Le seul inconvénient résidait dans la difficulté de distinguer le vrai du faux, contrairement aux magasins qui ne vendaient aucun article contrefait. Faire ses achats sur la place reposait donc entièrement sur la capacité de l'acheteur à discerner la valeur des objets.
 
 Quant à ceux qui entraient par la porte est, il s'agissait soit de leur première visite en ville, soit de clients de grande importance !
@@ -94,9 +95,9 @@ Li Dannan s'approcha rapidement et répondit respectueusement : « Aîné, Junio
 
 Wang Lin demanda : « Si des trésors aussi importants sont échangés ici, il y a naturellement d'autres cultivateurs qui rôdent. Pourquoi tant de gens acceptent-ils encore de commercer dans un tel endroit ? »
 
-Li Dannan répondit promptement : « L'Aîné l'ignore peut-être, mais la plupart des personnes qui fréquentent ces étals ne viennent pas seules ; elles n'ont donc pas peur d'être espionnées.
+Li Dannan répondit promptement : « L'Aîné l'ignore peut-être, mais la plupart des personnes qui fréquentent ces étals ne viennent pas seules ; elles n'ont donc pas peur d'être espionnées. »
 
-« Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à un stand de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles.
+« Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à un stand de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles. »
 
 « On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, depuis longtemps, le commerce est intrinsèquement risqué ; tout dépend donc du destin. »
 
@@ -110,7 +111,7 @@ Soudain, les yeux de Li Dannan s'illuminèrent : « Aîné, bien que je ne sache
 
 Wang Lin détourna le regard et dit calmement : « Oh ? Parle-moi d'eux. »
 
-Li Dannan s'exécuta immédiatement : « La boutique du clan Shang est la plus importante de la ville de Ming Mei ; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de cultivation de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
+Li Dannan s'exécuta immédiatement : « La boutique du clan Shang est la plus importante de la ville de Ming Mei ; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de cultivation de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales. »
 
 « Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 50 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de cultivation ! »
 

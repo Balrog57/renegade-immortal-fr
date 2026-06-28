@@ -4,7 +4,7 @@ title: Le Fourneau Yin Mystérieux
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 806 - Mysterious Yin Furnace
-slug: le-fourneau-yin-mysterieux
+slug: le-fourneau-yin-mystérieux
 ---
 Wang Lin laissa échapper un froid reniflement avant de se déplacer ; il apparut instantanément aux côtés de la bête de brume. Ses deux doigts, formant une épée, se mouvrent plus vite que la créature. Il pressa directement son doigt entre les sourcils de la bête de brume, provoquant une explosion.
 

@@ -3,7 +3,7 @@ n: 2048
 title: "Le Suppliant des 108 âmes !"
 book: 13
 bookTitle: Light of the coming end
-en: "Chapter 2048 - The Plead of the 108 souls!"
+en: "Chapter 2048 - The Plead of the 108 souls !"
 slug: le-suppliant-des-108-ames
 ---
 Chapitre 2048 - Le Suppliant des 108 âmes !
@@ -36,11 +36,11 @@ Il implorait l'existence étrange qu'il sentait dans les cieux de lui accorder l
 
 Presque tous les cultivateurs du clan céleste furent témoins de cette scène qui déchirait le firmament. Ils étaient plongés dans la panique et le désarroi. La terre tremblait de plus belle tandis que les âmes apparues continuaient de rugir ; on aurait dit qu'une calamité était sur le point de s'abattre !
 
-« Que se passe-t-il ?! » Au sein du Secte Dao Yi, le Grand Empereur Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de cultivation, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
+« Que se passe-t-il ? ! » Au sein du Secte Dao Yi, le Grand Empereur Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de cultivation, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
 
 Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbre s'agita en poussant des rugissements stridents.
 
-Dao Yi contempla l'arbre géant et eut un haut-le-cœur. « Bon sang, cet arbre monstrueux n'était-il pas mort ?! Pourquoi son âme est-elle encore là ?! Que s'est-il passé ? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais ?! »
+Dao Yi contempla l'arbre géant et eut un haut-le-cœur. « Bon sang, cet arbre monstrueux n'était-il pas mort ? ! Pourquoi son âme est-elle encore là ? ! Que s'est-il passé ? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais ? ! »
 
 Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
@@ -60,9 +60,9 @@ Ses yeux s'illuminèrent alors qu'elle mordait le bout de sa langue pour cracher
 
 Cette fois, le corps de Hai Zi trembla et elle chancela, le visage livide. Ses yeux étaient empreints d'incrédulité.
 
-« Ils ont senti un regard de piétinement du ciel qui les contemplait depuis au-dessus du Continent Astral Immortel !! »
+« Ils ont senti un regard de piétinement du ciel qui les contemplait depuis au-dessus du Continent Astral Immortel ! ! »
 
-« Quoi ?! » L'expression de Jiu Di changea radicalement et il ne put plus masquer ses émotions. Il leva brusquement les yeux vers le ciel, sentant ses cheveux se hérisser. Hormis l'immensité céleste, il ne voyait rien, mais il pouvait imaginer un regard scrutant le Continent Astral Immortel à cet instant précis, peut-être même en le fixant lui.
+« Quoi ? ! » L'expression de Jiu Di changea radicalement et il ne put plus masquer ses émotions. Il leva brusquement les yeux vers le ciel, sentant ses cheveux se hérisser. Hormis l'immensité céleste, il ne voyait rien, mais il pouvait imaginer un regard scrutant le Continent Astral Immortel à cet instant précis, peut-être même en le fixant lui.
 
 « Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa cultivation sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
 
@@ -94,7 +94,7 @@ Xuan Luo sortit de sa méditation en porte close. Il observa la scène et eut un
 
 L'Ancien Shi Song Tian fixa les changements dans les 36 pays, stupéfait.
 
-« Ceci... Cela pourrait-il être lié à ce Wang Lin ?! Impossible. Une telle scène ne peut décemment pas avoir de lien avec cet homme ! »
+« Ceci... Cela pourrait-il être lié à ce Wang Lin ? ! Impossible. Une telle scène ne peut décemment pas avoir de lien avec cet homme ! »
 
 Dans l'Ancien Ji, le mystérieux Grand Empereur, en pleine méditation isolée, ressentit ce bouleversement avec une profonde amertume.
 

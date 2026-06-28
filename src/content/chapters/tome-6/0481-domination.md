@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 481 - Domineering
 slug: domination
 ---
+
 Wang Lin regarda la femme et demanda calmement : « Pourquoi ? »
 
 Une intention meurtrière envahit le visage de la femme qui répondit froidement : « Il n'y a aucune raison. Vous pouvez vivre n'importe où, sauf ici ! »
@@ -32,9 +33,9 @@ Sur une magnifique falaise située à 50 kilomètres du Pavillon des Nuages Pour
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère du Secte du Destin Céleste est étrange. Je n'ai même pas passé les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que le Maître m'avait assigné le Pavillon des Nuages Pourpres.
+« L'atmosphère du Secte du Destin Céleste est étrange. Je n'ai même pas passé les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que le Maître m'avait assigné le Pavillon des Nuages Pourpres. »
 
-« Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
+« Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche... »
 
 « Tout cela est enveloppé d'un brouillard que je ne parviens pas à percer. Je dois trouver un moyen de voir clair dans tout cela, et surtout comprendre l'histoire qui se cache derrière le Pavillon des Nuages Pourpres ! »
 

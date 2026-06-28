@@ -98,18 +98,18 @@ L'homme d'âge moyen tendit négligemment la main pour saisir la goutte de sang 
 
 « Ceci... ceci est... » Le calme de l'homme d'âge moyen vola en éclats, remplacé par le choc et l'incrédulité. Il rapprocha précipitamment la goutte de ses yeux et déploya son Sens Divin. Après l'avoir scrutée des centaines de fois, la stupeur dans son regard s'intensifia encore !
 
-« Le Sang de l'Oiseau Vermillon !! C'est du Sang de l'Oiseau Vermillon !! » L'homme d'âge moyen se leva brusquement et porta la goutte près de sa bouche. Après l'avoir léchée, son corps trembla de nouveau.
+« Le Sang de l'Oiseau Vermillon ! ! C'est du Sang de l'Oiseau Vermillon ! ! » L'homme d'âge moyen se leva brusquement et porta la goutte près de sa bouche. Après l'avoir léchée, son corps trembla de nouveau.
 
-« C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de l'Oiseau Vermillon !! L'Oiseau Vermillon !! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
+« C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de l'Oiseau Vermillon ! ! L'Oiseau Vermillon ! ! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
 
 Le patriarche des Faucons de Feu s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
 
 En un éclair, la main ramena le vieil homme au bord de la mer de flammes violettes.
 
-Avant qu'il ne puisse réagir, il entendit la voix exaltée de l'Ancêtre : « Où as-tu obtenu ce sang ?! » Il resta figé un instant. Il n'avait jamais vu l'Ancêtre aussi enthousiaste. Il répondit promptement : « Un membre du clan des Terres Déchues l'a rapporté ! »
+Avant qu'il ne puisse réagir, il entendit la voix exaltée de l'Ancêtre : « Où as-tu obtenu ce sang ? ! » Il resta figé un instant. Il n'avait jamais vu l'Ancêtre aussi enthousiaste. Il répondit promptement : « Un membre du clan des Terres Déchues l'a rapporté ! »
 
 En entendant cela, l'homme d'âge moyen éclata de rire. L'extase brillait dans ses yeux, et les trois marques de flammes commencèrent à brûler sauvagement.
 
-« Bien, bien, bien ! Tu es digne d'avoir été choisi par moi pour être le patriarche du clan, excellent travail !! Envoie immédiatement tous les membres du clan pour trouver la source de ce sang dans les Terres Déchues, coûte que coûte !! »
+« Bien, bien, bien ! Tu es digne d'avoir été choisi par moi pour être le patriarche du clan, excellent travail ! ! Envoie immédiatement tous les membres du clan pour trouver la source de ce sang dans les Terres Déchues, coûte que coûte ! ! »
 
 Le patriarche des Faucons de Feu hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta : « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège ! »

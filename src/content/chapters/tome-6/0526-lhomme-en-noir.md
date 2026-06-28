@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 526 - Man In Black
 slug: lhomme-en-noir
 ---
+
 Une flamme démoniaque vacillait dans ses yeux. Ses vêtements s'agitaient sans qu'aucun vent ne souffle, et des lambeaux d'aura démoniaque se diffusaient dans l'air.
 
 En voyant cela, Ouyang Hua ne put s'empêcher d'être terrifié. Il prit une profonde inspiration, recula de quelques pas et murmura pour lui-même : « La rumeur dit que la première fois qu'un étranger entre en contact avec un cristal d'esprit démoniaque, l'énergie démoniaque en lui subit une mutation ! »
@@ -26,11 +27,11 @@ Bientôt, le silence retomba sur les lieux, si ce n'est par, par intermittence, 
 
 L'attention de Wang Lin était entièrement focalisée sur son dantian. Il ressentait la présence du cristal d'esprit démoniaque.
 
-« Si j'en possède une grande quantité, même sans pouvoir les fusionner avec l'énergie spirituelle céleste, ils constitueront néanmoins une force à part entière. Au moins mille cultivateurs sont venus ici, et je suis convaincu que le but de chacun est ce cristal d'esprit démoniaque.
+« Si j'en possède une grande quantité, même sans pouvoir les fusionner avec l'énergie spirituelle céleste, ils constitueront néanmoins une force à part entière. Au moins mille cultivateurs sont venus ici, et je suis convaincu que le but de chacun est ce cristal d'esprit démoniaque. »
 
-« Les affrontements entre cultivateurs servent probablement à s'emparer des cristaux d'esprit démoniaques de leurs semblables. J'ignore seulement quels autres effets ce cristal peut produire.
+« Les affrontements entre cultivateurs servent probablement à s'emparer des cristaux d'esprit démoniaques de leurs semblables. J'ignore seulement quels autres effets ce cristal peut produire. »
 
-« Cette énergie démoniaque doit avoir d'autres usages, sans quoi elle n'aurait pu provoquer autant de massacres au fil des âges.
+« Cette énergie démoniaque doit avoir d'autres usages, sans quoi elle n'aurait pu provoquer autant de massacres au fil des âges. »
 
 « Je crains que des secrets encore inconnus ne soient cachés en son sein. Ce n'est qu'une fois ces mystères résolus que je pourrai décider de ma voie future. Cinq cents ans, ce n'est ni long, ni court ; toutefois, si l'absorption de plus de cristaux d'esprit démoniaques peut aider à accroître ma cultivation, alors autant me laisser emporter et déclencher une véritable orgie meurtrière, comme je le faisais dans la Mer des Démons ! »
 

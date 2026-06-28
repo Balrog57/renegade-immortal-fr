@@ -1,12 +1,12 @@
 ---
 n: 1515
-title: "Le Seigneur Scellé !!"
+title: "Le Seigneur Scellé ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1515 - Sealed Lord!!"
+en: "Chapter 1515 - Sealed Lord !!"
 slug: le-seigneur-scelle
 ---
-Chapitre 1515 - Le Seigneur Scellé !!
+Chapitre 1515 - Le Seigneur Scellé ! !
 
 Quant à la Bête du Nether, toute sa fourrure soyeuse était hérissée. Elle fixait les cultivateurs environnants et rugissait comme si elle allait se précipiter à tout instant.
 
@@ -36,7 +36,7 @@ Un cri misérable retentit et ce dernier cracha une bouffée d'essence d'âme or
 
 De nouveaux cris déchirants retentirent. Une folie apparut dans le désespoir du Daoïste Water, mais cette démence n'était rien pour Wang Lin !
 
-« Je suis l'esclave du Seigneur du Royaume Scellé ! Accepte-moi comme ton esclave et ta force augmentera considérablement ! Ne me tue pas !! »
+« Je suis l'esclave du Seigneur du Royaume Scellé ! Accepte-moi comme ton esclave et ta force augmentera considérablement ! Ne me tue pas ! ! »
 
 L'expression de Wang Lin resta indifférente alors qu'il avançait pour porter le troisième coup !
 
@@ -56,11 +56,11 @@ Les yeux du Daoïste Water étaient déjà vitreux et il fut projeté au loin. L
 
 « Ce coup est pour... Ce n'est pour rien, juste pour te tuer ! » Wang Lin ne chercha plus d'autre motif et chargea en avant. Sa main droite se ferma en un poing et il fondit sur ce qui restait de l'âme originelle du Daoïste Water !
 
-Dans son ultime moment de lucidité, le Daoïste Water hurla son dernier atout !!
+Dans son ultime moment de lucidité, le Daoïste Water hurla son dernier atout ! !
 
-« Je suis lié à Mu Bingmei, me tuer revient à la tuer !! Elle est ta femme ! Tue-moi !! Tue-moi !! Si tu me tues, Mu Bingmei mourra !! Ce vieil homme s'est préparé depuis longtemps. Cette stupide Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa cultivation et lui a donné des pilules pour que nos âmes soient liées ! »
+« Je suis lié à Mu Bingmei, me tuer revient à la tuer ! ! Elle est ta femme ! Tue-moi ! ! Tue-moi ! ! Si tu me tues, Mu Bingmei mourra ! ! Ce vieil homme s'est préparé depuis longtemps. Cette stupide Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa cultivation et lui a donné des pilules pour que nos âmes soient liées ! »
 
-« À quoi bon cette cloche dorée ? Elle est mon véritable talisman !! » rit le Daoïste Water en agitant son bras droit restant. Le monde se distordit et une scène apparut.
+« À quoi bon cette cloche dorée ? Elle est mon véritable talisman ! ! » rit le Daoïste Water en agitant son bras droit restant. Le monde se distordit et une scène apparut.
 
 Une vaste formation se dessina au sein de la distorsion. Une femme y était assise, et des traces de sang choquantes maculaient ses vêtements blancs !
 
@@ -90,11 +90,11 @@ Simultanément, il leva sa main gauche et pointa l'image distordue. D'un mot, le
 
 Des grondements tonitruants retentirent et une force inimaginable s'engouffra dans l'âme originelle en lambeaux du Daoïste Water. Sa main droite s'effondra et la puissance frappa sa tête, effaçant son âme ! Un cri misérable déchira l'air !
 
-Le Daoïste Water, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer Nuageuse, était mort !!
+Le Daoïste Water, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer Nuageuse, était mort ! !
 
 Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens ; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut stupéfait en l'entendant !
 
-« Le Sort de Transformation de Vie de l'Ordre Ancien !! C'est le Sort de Transformation de Vie de l'Ordre Ancien !! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie !! »
+« Le Sort de Transformation de Vie de l'Ordre Ancien ! ! C'est le Sort de Transformation de Vie de l'Ordre Ancien ! ! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie ! ! »
 
 Le Sort de Transformation de Vie de l'Ordre Ancien était une technique que Wang Lin avait acquise via son héritage. Il était inutile pour Li Muwan, mais il pouvait maintenant transférer toute la vitalité du Daoïste Water à Mu Bingmei, qui était liée à lui !
 

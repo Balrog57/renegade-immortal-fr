@@ -4,7 +4,7 @@ title: "Fusion de l'Esprit Véritable"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1075 - Fusion of True Spirit
-slug: fusion-de-lesprit-veritable
+slug: fusion-de-lesprit-véritable
 ---
 L'Alliance de la Cultivation tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume du Ji scintillant dans son œil droit alors qu'il pénétrait à l'intérieur.
 

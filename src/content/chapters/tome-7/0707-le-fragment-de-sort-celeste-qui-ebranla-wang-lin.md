@@ -6,6 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 707 - The Incomplete Celestial Spell Book That Shocked Wang Lin
 slug: le-fragment-de-sort-celeste-qui-ebranla-wang-lin
 ---
+
 Six mois plus tard, une explosion sourde résonna à travers la planète abandonnée où Wang Lin avait creusé sa grotte. La planète entière trembla légèrement tandis qu'une poussière dense envahissait le ciel telle un brouillard épais.
 
 Wang Lin fronça les sourcils et émergea de ce nuage de poussière.
@@ -14,7 +15,7 @@ Derrière lui suivait une marionnette décharnée. D'innombrables éclairs crép
 
 Le Daoïste du Tonnerre avait finalement choisi de faire des compromis, mais Wang Lin avait sous-estimé le taux d'échec de la création de gardiens célestes. Même en utilisant la Bête du Tonnerre issue du Temple Céleste du Tonnerre, l'opération avait tout de même échoué.
 
-« Les gardiens célestes de bas grade possèdent une force équivalente à celle des cultivateurs au sommet du premier pas. C’est parce que j'ai ajouté le fantôme céleste que des changements se sont produits, lui permettant d'atteindre la puissance de cultivateurs de l'Yin Illusoire.
+« Les gardiens célestes de bas grade possèdent une force équivalente à celle des cultivateurs au sommet du premier pas. C’est parce que j'ai ajouté le fantôme céleste que des changements se sont produits, lui permettant d'atteindre la puissance de cultivateurs de l'Yin Illusoire.»
 
 « Pour ce second gardien céleste, j'ai utilisé un cultivateur de l'Yin Illusoire ainsi que la Bête du Tonnerre. J'aurais dû être capable de produire un gardien de grade moyen, mais malheureusement, j'ai encore échoué. »
 
@@ -104,7 +105,7 @@ Le sens divin de Wang Lin se posa sur le second sort, nommé : *Sort d'Origine d
 
 C'est ce sort qui provoqua le véritable choc chez Wang Lin !
 
-« Le Sort d'Origine du Tonnerre est un fragment d'un sort céleste de bas grade. Il permet d'absorber l'énergie originelle du tonnerre pour la condenser rapidement en sa propre énergie, aidant ainsi à réduire le temps passé au stade Yin et Yang.
+« Le Sort d'Origine du Tonnerre est un fragment d'un sort céleste de bas grade. Il permet d'absorber l'énergie originelle du tonnerre pour la condenser rapidement en sa propre énergie, aidant ainsi à réduire le temps passé au stade Yin et Yang.»
 
 « Ce sort est extrêmement impérieux. La puissance du tonnerre céleste est telle que les cultivateurs du premier pas ne peuvent la supporter ; ils sont donc incapables de le pratiquer. »
 

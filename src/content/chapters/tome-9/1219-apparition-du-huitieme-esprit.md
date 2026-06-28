@@ -42,11 +42,11 @@ Lorsque le sixième esprit apparut, même Tuo Sen fut désavantagé. Sous l'assa
 
 Il fut contraint au retrait. Son visage était empreint de gravité et d'une pointe d'incrédulité. Cependant, sa férocité ne fit que croître.
 
-« Quelle formation puissante ! Ce n'est qu'en dévorant Wang Lin et en devenant un véritable Dieu Ancien Royal à 8 étoiles que j'aurai une chance de briser ce sceau. Non seulement cette formation a été conçue pour emprisonner les cultivateurs, mais elle a manifestement été pensée pour mon clan de Dieux Anciens ! Pourtant, je peux faiblement percevoir l'aura de Wang Lin ici, ce qui signifie qu'il doit se trouver à l'extérieur de la formation de scellement, dans le Système Stellaire Antique ! Je dois briser cette formation, quel qu'en soit le prix !! »
+« Quelle formation puissante ! Ce n'est qu'en dévorant Wang Lin et en devenant un véritable Dieu Ancien Royal à 8 étoiles que j'aurai une chance de briser ce sceau. Non seulement cette formation a été conçue pour emprisonner les cultivateurs, mais elle a manifestement été pensée pour mon clan de Dieux Anciens ! Pourtant, je peux faiblement percevoir l'aura de Wang Lin ici, ce qui signifie qu'il doit se trouver à l'extérieur de la formation de scellement, dans le Système Stellaire Antique ! Je dois briser cette formation, quel qu'en soit le prix ! ! »
 
 Les yeux de Tuo Sen s'illuminèrent d'un éclat rouge. Tout en reculant, sa main droite pointa l'espace entre ses sourcils. La troisième étoile de son front brilla plus intensément que jamais, et l'aura originelle d'un cultivateur du troisième pas jaillit avec force.
 
-« Je vais utiliser toute ma puissance pour m'extraire de là, même si cela signifie que je n'aurai plus la force de revenir. Mais peu importe. Wang Lin est dans le Système Stellaire Antique, hors de la formation ; il serait donc inutile de rester dans le Royaume Scellé. Tant que je peux sortir et le dévorer, tous mes sacrifices en vaudront la peine !! »
+« Je vais utiliser toute ma puissance pour m'extraire de là, même si cela signifie que je n'aurai plus la force de revenir. Mais peu importe. Wang Lin est dans le Système Stellaire Antique, hors de la formation ; il serait donc inutile de rester dans le Royaume Scellé. Tant que je peux sortir et le dévorer, tous mes sacrifices en vaudront la peine ! ! »
 
 Tuo Sen prit sa décision. L'énergie originelle de sa troisième étoile devint si intense qu'elle sembla envelopper toute la formation. On pouvait entendre de faibles cris de mort émaner de cette troisième étoile, mais à cet instant, une puissante poussée d'énergie résonna. La troisième étoile s'élança et percuta la formation de scellement telle une météorite !
 
@@ -64,7 +64,7 @@ C'est à ce moment qu'un autre rayon de lumière jaillit de la formation. Il ét
 
 Tandis que les fracas tonnerres retentissaient, les sept esprits semblèrent fusionner en un seul pour stopper Tuo Sen. Un grondement sourd éclata et, pour la première fois, le visage de Tuo Sen pâlit et du sang s'échappa du coin de sa bouche.
 
-« Quelle est cette formation ?! Quel fou a pu placer un tel mécanisme ?! Existe-t-il une autre entité cachée ici à part moi ? Sinon, une telle puissance ne pourrait être expliquée !! »
+« Quelle est cette formation ? ! Quel fou a pu placer un tel mécanisme ? ! Existe-t-il une autre entité cachée ici à part moi ? Sinon, une telle puissance ne pourrait être expliquée ! ! »
 
 Son assaut fut bloqué, et bien que ses yeux fussent empreints de folie, son esprit restait lucide. Dans sa vie, hormis Tu Si, il ne craignait personne. En fixant la formation, la démence dans son regard s'intensifia.
 
@@ -84,7 +84,7 @@ En un instant, la lumière se condensa en une hache gigantesque !
 
 Une aura antique de Dieu Ancien se propagea immédiatement. Dès l'apparition de la hache, il fut totalement saisi de stupeur ! Il avait rencontré bien des choses au cours des éons, mais il n'avait jamais été aussi choqué qu'à cet instant.
 
-« C'est... c'est impossible !! Comment cela a-t-il pu devenir l'esprit de cette formation ?! »
+« C'est... c'est impossible ! ! Comment cela a-t-il pu devenir l'esprit de cette formation ? ! »
 
 Une fois que la hache, imprégnée d'une puissante aura de Dieu Ancien, fut apparue, elle s'éleva dans les cieux et s'abattit sur Tuo Sen !
 
@@ -116,4 +116,4 @@ Dès que la fissure se manifesta, Tuo Sen s'en échappa en chargeant !
 
 Tuo Sen riait comme un fou tout en crachant du sang. Les trois étoiles ternes revinrent vers lui, mais l'une d'elles s'effondra soudainement.
 
-« Wang Lin, ce Dieu arrive !! Je veux voir où tu pourras te cacher !! »
+« Wang Lin, ce Dieu arrive ! ! Je veux voir où tu pourras te cacher ! ! »

@@ -3,7 +3,7 @@ n: 1537
 title: "Le Corps du Clan Céleste Immortel !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1537 - Immortal Celestial Clan Body!"
+en: "Chapter 1537 - Immortal Celestial Clan Body !"
 slug: le-corps-du-clan-celeste-immortel
 ---
 Chapitre 1537 - Le Corps du Clan Céleste Immortel !
@@ -52,19 +52,19 @@ C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était 
 
 Après un instant, l'excitation sur le visage du fou s'estompa pour laisser place à une colère infinie !
 
-« Espèce de salaud !! Tu ne t'es toujours pas rétabli !! Le sang de ce vieux fou... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah !!! Tout ce sang que je t'ai donné suffirait à obtenir ce poussin aux sept couleurs !! Si mon grand frère savait, il deviendrait fou, ah !! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
+« Espèce de salaud ! ! Tu ne t'es toujours pas rétabli ! ! Le sang de ce vieux fou... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah ! !! Tout ce sang que je t'ai donné suffirait à obtenir ce poussin aux sept couleurs ! ! Si mon grand frère savait, il deviendrait fou, ah ! ! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
 
-« Rends-moi mon sang !! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petit Yu, sors cet homme et tranche-lui la tête !! »
+« Rends-moi mon sang ! ! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petit Yu, sors cet homme et tranche-lui la tête ! ! »
 
 Le fou rugit, toujours ivre de colère. Il fixa Wang Lin et lui mordit directement l'épaule, avant de pousser un grognement semblable à celui d'un chien enragé.
 
-« Ce roi va te mordre à mort, te mordre à mort !! » Après s'être agité un moment, le fou respirait bruyamment. Ses yeux étaient injectés de sang et son expression devint féroce. Il fixa Wang Lin, relâcha sa morsure, puis se couvrit la bouche en laissant échapper des gémissements de douleur.
+« Ce roi va te mordre à mort, te mordre à mort ! ! » Après s'être agité un moment, le fou respirait bruyamment. Ses yeux étaient injectés de sang et son expression devint féroce. Il fixa Wang Lin, relâcha sa morsure, puis se couvrit la bouche en laissant échapper des gémissements de douleur.
 
-« Je déteste les cultivateurs de la Nation Antique, leurs corps sont trop durs. Les dents de ce roi vont me tuer !! Petit Rouge, va chez la famille Zhou chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y ! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain ! »
+« Je déteste les cultivateurs de la Nation Antique, leurs corps sont trop durs. Les dents de ce roi vont me tuer ! ! Petit Rouge, va chez la famille Zhou chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y ! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain ! »
 
 Le fou s'éloigna en marmonnant et en gémissant de douleur. Puis il se retourna pour fixer Wang Lin, montrant à nouveau des signes de folie imminente.
 
-« Je refuse d'y croire !! Attends, laisse-moi réfléchir ! »
+« Je refuse d'y croire ! ! Attends, laisse-moi réfléchir ! »
 
 Les yeux rouge sang du fou brillèrent et, après avoir réfléchi un instant, il ne trouva toujours rien. Plus frustré encore, il rugit vers Wang Lin.
 
@@ -110,4 +110,4 @@ Des grondements tonitruants résonnèrent. Le fou cracha une bouchée de sang et
 
 Le corps de Wang Lin trembla et ses paupières furent agités de spasmes rapides. Son esprit rugissait ; il sentait distinctement le mouvement du fou. Au moment précis où l'homme avait pressé sa main, Wang Lin sentit la puissance de l'Ordre Antique qu'il avait réprimée éclater comme si elle était devenue folle.
 
-« Espèce de fou !! » Wang Lin ouvrit soudain les yeux !
+« Espèce de fou ! ! » Wang Lin ouvrit soudain les yeux !

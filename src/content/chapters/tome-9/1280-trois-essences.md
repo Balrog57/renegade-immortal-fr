@@ -1,12 +1,12 @@
 ---
 n: 1280
-title: "Trois Essences !!"
+title: "Trois Essences ! !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1280 - Three Essences!!"
+en: "Chapter 1280 - Three Essences ! !"
 slug: trois-essences
 ---
-Chapitre 1280 - Trois Essences !!
+Chapitre 1280 - Trois Essences ! !
 
 Ce doigt apparut trop soudainement, sans aucun avertissement. Le taoïste Shui pensait avoir détruit l'avatar de l'autre, et son esprit était déjà affecté par la folie du clou aux sept couleurs lorsque celui-ci surgit !
 
@@ -24,7 +24,7 @@ Car ce clou avait transpercé le point entre ses sourcils ! C'était un point vu
 
 En ce moment de crise, le visage du taoïste Shui devint livide et la peur envahit ses yeux. Il savait parfaitement de quoi les Clous Divins du Vide aux Sept Couleurs étaient capables. Lorsqu'il vit son maître être transpercé par quatre-vingt-quatorze clous, cette expression de douleur fut quelque chose que le taoïste Shui ne pourrait jamais oublier !
 
-« Maître, sauvez-moi !!! » Le taoïste Shui tenta de reculer, mais le doigt le suivit pour enfoncer davantage le clou. Au moment où le taoïste Shui poussa son cri, une force puissante jaillit de l'intérieur de son corps. Cette puissance se condensa sur le dos de la main droite du taoïste Shui et se transforma en un talisman !
+« Maître, sauvez-moi ! ! ! » Le taoïste Shui tenta de reculer, mais le doigt le suivit pour enfoncer davantage le clou. Au moment où le taoïste Shui poussa son cri, une force puissante jaillit de l'intérieur de son corps. Cette puissance se condensa sur le dos de la main droite du taoïste Shui et se transforma en un talisman !
 
 Dès l'apparition du talisman, une lumière dorée illumina l'espace sombre et se propagea. Le doigt qui pressait vers le Clou aux Sept Couleurs fut frappé par cette lumière et se dissipa, laissant échapper un sifflement dans le processus.
 
@@ -76,13 +76,13 @@ L'essence du Karma !
 
 « Ceci... ceci... » L'expression du taoïste Shui changea radicalement. L'essence de vie et de mort de Wang Lin l'avait déjà terrassé, mais à cet instant, une onde monstrueuse secoua son cœur !
 
-« Il y a en fait une deuxième essence !! Une seule suffit pour devenir un cultivateur du troisième étape, mais posséder deux essences est extrêmement rare. Seuls des êtres comme le Souverain, Qin Lin et d'autres talents prodigieux peuvent entrer dans le Dao avec deux essences et atteindre le troisième étape ! Si cet enfant atteint ce stade, au moment où il y entrera, je ne serai plus son égal ! Ma seule option sera la fuite ! » Le taoïste Shui n'avait rencontré que deux personnes possédant deux essences : le Souverain et Qin Lin !
+« Il y a en fait une deuxième essence ! ! Une seule suffit pour devenir un cultivateur du troisième étape, mais posséder deux essences est extrêmement rare. Seuls des êtres comme le Souverain, Qin Lin et d'autres talents prodigieux peuvent entrer dans le Dao avec deux essences et atteindre le troisième étape ! Si cet enfant atteint ce stade, au moment où il y entrera, je ne serai plus son égal ! Ma seule option sera la fuite ! » Le taoïste Shui n'avait rencontré que deux personnes possédant deux essences : le Souverain et Qin Lin !
 
 Ces deux individus étaient si puissants que le taoïste Shui ne pouvait même pas se comparer à eux. Pourtant, il faisait face à une troisième personne dotée de deux essences. À cet instant, il eut même l'idée de prendre Wang Lin comme disciple.
 
 Cependant, sitôt cette pensée apparue, il l'écrasa !
 
-« Cet enfant me hait au plus profond de ses os, mais son talent est d'une rareté absolue. Même dans les Royaumes Intérieur et Extérieur, un tel talent n'apparaît qu'une fois tous les dix mille ans. Un tel être doit mourir par ma main. Cela m'apportera plus de joie que la destruction de n'importe quel nombre de trésors magiques !! Haha !! Un être aussi doué sera tué par moi ! » La folie dans les yeux du taoïste Shui s'intensifia alors que la planète de cultivation se refermait sur Wang Lin !
+« Cet enfant me hait au plus profond de ses os, mais son talent est d'une rareté absolue. Même dans les Royaumes Intérieur et Extérieur, un tel talent n'apparaît qu'une fois tous les dix mille ans. Un tel être doit mourir par ma main. Cela m'apportera plus de joie que la destruction de n'importe quel nombre de trésors magiques ! ! Haha ! ! Un être aussi doué sera tué par moi ! » La folie dans les yeux du taoïste Shui s'intensifia alors que la planète de cultivation se refermait sur Wang Lin !
 
 À cet instant précis, l'étoile de loi située entre les sourcils de Wang Lin s'effondra soudainement !
 
@@ -98,14 +98,14 @@ Trois essences jaillirent soudainement des trois vortex. Cependant, elles étaie
 
 Cette scène interrompit l'attaque du taoïste Shui, ses yeux manquant presque de sortir de leurs orbites !
 
-« Impossible !! Absolument impossible !! Trois essences... trois essences... personne n'est jamais entré dans le Dao avec trois essences ! Cet enfant défie les cieux. S'il atteint le troisième étape, même s'il vient d'y entrer, je ne pourrai même pas m'échapper de lui !!! »
+« Impossible ! ! Absolument impossible ! ! Trois essences... trois essences... personne n'est jamais entré dans le Dao avec trois essences ! Cet enfant défie les cieux. S'il atteint le troisième étape, même s'il vient d'y entrer, je ne pourrai même pas m'échapper de lui ! ! ! »
 
 « Trois essences ! Le Souverain et Qin Lin n'en ont que deux. Même Maître n'en avait que deux et demi, incapable de réaliser complètement la troisième ! Comment cet enfant peut-il avoir trois essences ? Un tel être est quelqu'un que les cieux eux-mêmes voudront détruire. S'il devient un cultivateur du troisième étape, même les cultivateurs de la Tribulation du Vide ne seront pas de taille ! Il pourrait détruire le monde et régner en maître suprême ! »
 
-« Qui diable est-il ?! Ce n'est pas un simple cultivateur, mais la réincarnation d'un être puissant. Quel genre de cultivateur posséderait la capacité de se réincarner et de cultiver trois essences ?! »
+« Qui diable est-il ? ! Ce n'est pas un simple cultivateur, mais la réincarnation d'un être puissant. Quel genre de cultivateur posséderait la capacité de se réincarner et de cultiver trois essences ? ! »
 
-« À moins que... à moins qu'il ne soit la réincarnation d'un légendaire cultivateur du quatrième étape, celui qui piétine les cieux !! » Le taoïste Shui était un cultivateur du troisième étape, mais à cet instant, il fut terrifié par ce qu'il voyait !
+« À moins que... à moins qu'il ne soit la réincarnation d'un légendaire cultivateur du quatrième étape, celui qui piétine les cieux ! ! » Le taoïste Shui était un cultivateur du troisième étape, mais à cet instant, il fut terrifié par ce qu'il voyait !
 
-« Puisque j'ai provoqué une telle existence, je dois le tuer, sinon il ne restera aucune place pour moi !!! » Le visage du taoïste Shui était livide tandis qu'il serrait les dents. Sa puissance de cultivateur du troisième étape éclata alors qu'il fusionnait avec la planète de cultivation pour s'abattre sur Wang Lin !
+« Puisque j'ai provoqué une telle existence, je dois le tuer, sinon il ne restera aucune place pour moi ! ! ! » Le visage du taoïste Shui était livide tandis qu'il serrait les dents. Sa puissance de cultivateur du troisième étape éclata alors qu'il fusionnait avec la planète de cultivation pour s'abattre sur Wang Lin !
 
-« Même si tu es la réincarnation d'un cultivateur du quatrième étape qui piétine les cieux, tu mourras par ma main. Pour ce vieillard, tuer un tel être en vaut la peine !! Meurs, meurs, meurs !! »
+« Même si tu es la réincarnation d'un cultivateur du quatrième étape qui piétine les cieux, tu mourras par ma main. Pour ce vieillard, tuer un tel être en vaut la peine ! ! Meurs, meurs, meurs ! ! »

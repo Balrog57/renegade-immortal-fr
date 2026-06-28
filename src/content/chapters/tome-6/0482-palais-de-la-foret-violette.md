@@ -4,7 +4,7 @@ title: Palais de la Forêt Violette
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 482 - Purple Forest Palace
-slug: palais-de-la-foret-violette
+slug: palais-de-la-forêt-violette
 ---
 Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète à la cultivation déclinante, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
 

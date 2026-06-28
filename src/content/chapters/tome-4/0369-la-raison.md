@@ -6,6 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 369 - The Reason
 slug: la-raison
 ---
+
 Chi Hu arriva rapidement devant Wang Lin et lui décocha un coup de pied qui le projeta très loin. Ce coup ne fit pas seulement du mal à Wang Lin ; il lui injecta même une nouvelle vague d'énergie spirituelle.
 
 « Frère Ceng, échappez-vous vers le sud-est ! » La voix anxieuse de Chi Hu parvint aux oreilles de Wang Lin.

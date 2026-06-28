@@ -4,7 +4,7 @@ title: "La Transformation de l'Âme la plus faible et le véritable Wang Lin"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 394 - The weakest soul transformation and the real Wang Lin
-slug: la-transformation-de-lame-la-plus-faible-et-le-veritable-wang-lin
+slug: la-transformation-de-lame-la-plus-faible-et-le-véritable-wang-lin
 ---
 Li Yuanfeng prit une profonde inspiration et dit lentement : « Ceng Niu, n'implique pas les autres dans notre combat. Tous, partez ! Éloignez-vous à 5 000 kilomètres. Personne n'est autorisé à approcher. »
 

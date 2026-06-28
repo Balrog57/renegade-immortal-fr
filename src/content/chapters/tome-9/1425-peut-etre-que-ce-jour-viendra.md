@@ -4,7 +4,7 @@ title: Peut-être que ce jour viendra...
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1425 - Perhaps That Day Will Come
-slug: peut-etre-que-ce-jour-viendra
+slug: peut-être-que-ce-jour-viendra
 ---
 Chapitre 1425 - Peut-être que ce jour viendra...
 

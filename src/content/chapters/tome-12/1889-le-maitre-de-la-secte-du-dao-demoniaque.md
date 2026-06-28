@@ -3,7 +3,7 @@ n: 1889
 title: "Le Maître de la Secte du Dao Démoniaque !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1889 - Devil Dao Sect’s Sect Master!"
+en: "Chapter 1889 - Devil Dao Sect’s Sect Master !"
 slug: le-maitre-de-la-secte-du-dao-demoniaque
 ---
 Chapitre 1889 - Le Maître de la Secte du Dao Démoniaque !
@@ -74,9 +74,9 @@ Cependant, à ce moment précis, les sept réseaux de transfert s'allumèrent de
 
 « Lune Noire, Ciel Clair ! »
 
-« Temps Fluide !! »
+« Temps Fluide ! ! »
 
-« Essences, condensez-vous !! » Les yeux de Wang Lin étaient rouges. Il allait lancer tous ses sorts avant que son armure d'âme ne disparaisse pour anéantir ces cultivateurs du Dao Démoniaque !
+« Essences, condensez-vous ! ! » Les yeux de Wang Lin étaient rouges. Il allait lancer tous ses sorts avant que son armure d'âme ne disparaisse pour anéantir ces cultivateurs du Dao Démoniaque !
 
 Après l'Empreinte de l'Esprit de Guerre, l'immense empreinte de paume à six doigts s'abattit sur les cent personnes. Simultanément, la troisième transformation de la Lance aux Sept Couleurs fendit l'air.
 
@@ -98,11 +98,11 @@ Les yeux de Wang Lin étaient injectés de sang. Seule une infime partie de son 
 
 Son véritable corps d'essence de feu apparut et s'étendit soudainement, enveloppant instantanément la zone.
 
-« Feu Éthéré, brûle !! » rugit Wang Lin d'une voix rauque. Les cent cultivateurs présents étaient habités par des émotions intenses, ce qui en faisait le combustible idéal pour le Feu Éthéré !
+« Feu Éthéré, brûle ! ! » rugit Wang Lin d'une voix rauque. Les cent cultivateurs présents étaient habités par des émotions intenses, ce qui en faisait le combustible idéal pour le Feu Éthéré !
 
 Le Feu Éthéré commença à consumer les cultivateurs. Des jaillissements de flammes illuminèrent la zone tandis que des cris misérables résonnaient.
 
-« Quiconque se mettra sur mon chemin mourra !! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et le Voile Fantomatique surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin !
+« Quiconque se mettra sur mon chemin mourra ! ! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et le Voile Fantomatique surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin !
 
 La scène était absolument terrifiante. Les cultivateurs brûlés par le Feu Éthéré étaient soit tués par les flammes, soit par l'épée de sang de Wang Lin. Les autres n'osaient même pas attaquer face à cette intention meurtrière monstrueuse qui semblait vouloir tout anéantir sur son passage.
 
@@ -124,6 +124,6 @@ Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaqu
 
 Mais à cet instant précis, quatre des réseaux de transfert brillèrent à nouveau. Trois d'entre eux transportèrent des dizaines de cultivateurs, tandis que le quatrième n'en dégagea qu'une seule personne !
 
-« Maître de Secte !! »
+« Maître de Secte ! ! »
 
-« Salutations, Maître de Secte !! » À l'apparition de cet homme, tous les cultivateurs s'inclinèrent avec respect.
+« Salutations, Maître de Secte ! ! » À l'apparition de cet homme, tous les cultivateurs s'inclinèrent avec respect.

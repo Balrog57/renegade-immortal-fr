@@ -4,7 +4,7 @@ title: Je préférerais être avec ma femme pour toujours
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1787 - I’d Rather Be With My Wife Forever
-slug: je-prefererais-etre-avec-ma-femme-pour-toujours
+slug: je-prefererais-être-avec-ma-femme-pour-toujours
 ---
 Alors que ses paroles résonnaient, la silhouette de Xuan Luo apparut lentement dans le palais vers lequel Wang Lin s'inclinait, avant de se manifester pleinement dans le système stellaire.
 

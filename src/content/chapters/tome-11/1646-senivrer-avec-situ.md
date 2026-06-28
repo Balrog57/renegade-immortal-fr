@@ -48,7 +48,7 @@ Mais comment pouvait-il leur dire ? Il n'y avait aucun moyen d'annoncer cette cr
 
 Cependant, le Daoïste Esprit Dissipé avait été plus chanceux que Wang Lin, car il croyait être arrivé dans le vrai monde après avoir quitté un monde factice.
 
-Le silence et la confusion de Wang Lin furent remarqués par Situ Nan, ce qui l'inquiéta. Il ne comprenait pas ce que Wang Lin avait affronté à l'intérieur de la faille. Il était si plein d'entrain en y entrant, et voilà qu'il semblait maintenant déprimé.
+Le silence et la confusion de Wang Lin furent remarqués par Situ Nan, ce qui l'inquiéta. Il ne comprenait pas ce que Wang Lin avait affronté à l'intérieur de la faille. Il était si plein d'en train en y entrant, et voilà qu'il semblait maintenant déprimé.
 
 Wang Lin avança silencieusement jusqu'à Situ Nan. Ses yeux confus trahissaient une grande fatigue lorsqu'il murmura : « Situ, as-tu du vin ? Je veux m'enivrer à nouveau... Une dernière fois... »
 

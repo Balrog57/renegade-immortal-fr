@@ -52,7 +52,7 @@ Le père de Tie Zhu regarda tous ces parents qui, autrefois, le méprisaient. To
 
 Le père de Wang Zhuo gardait un air indifférent tout au long de la scène. Secrètement, il espérait que l'Immortel vienne annoncer que Tie Zhu n'avait pas été sélectionné, afin de voir la réaction de son deuxième frère. En y pensant, il laissa échapper un rire et trinqua avec le parent qui se trouvait à côté de lui en train de vanter les mérites de son enfant.
 
-La scène était bouillonnante et pleine d'entrain. Soudain, une épée de lumière apparut et se posa dans la cour. Quatre personnes en descendirent.
+La scène était bouillonnante et pleine d'en train. Soudain, une épée de lumière apparut et se posa dans la cour. Quatre personnes en descendirent.
 
 Le silence tomba instantanément sur la zone. Aucun membre de la famille Wang n'osa prononcer un mot.
 

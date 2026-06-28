@@ -6,6 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 449 - The last illusion
 slug: lultime-illusion
 ---
+
 Un grondement sourd émana du parchemin, suivi d'une immense volute de gaz gris. Cette brume se transforma soudainement en un dragon qui ouvrit la gueule pour dévorer le paon de Liu Mei.
 
 Le paon poussa un cri ; un cri si cristallin qu'il aurait pu ébranler les cieux. Il leva ensuite sa tête fière et déploya sa magnifique queue. Les plumes septicolores de son plumage diffusèrent une lueur démoniaque tandis que son domaine impitoyable se projeta vers l'avant.
@@ -32,7 +33,7 @@ Le paon poussa un autre cri tandis que les sept couleurs de sa queue fusionnaien
 
 Une fois l'arc-en-ciel entré dans le parchemin, la peinture n'était plus seulement en noir et blanc ; elle contenait désormais des touches de couleur. Le gaz gris entourant le paon n'était plus monochrome ; d'autres teintes s'y étaient mêlées.
 
-« 999 illusions. Il ne me manque qu'une seule illusion pour atteindre les 1000. Wang Lin, où se cache cette ultime illusion ? Si telle est votre seule force, si vous êtes incapable de me résister sans votre drapeau de l'âme, alors je suis profondément déçue. J'aurais pu vous attaquer lors de notre première rencontre au Secte de l'Affinement de l'Âme, mais vous étiez trop faible alors. Votre domaine n'avait pas encore atteint sa complétude pour devenir corporel, j'ai donc dû attendre.
+« 999 illusions. Il ne me manque qu'une seule illusion pour atteindre les 1000. Wang Lin, où se cache cette ultime illusion ? Si telle est votre seule force, si vous êtes incapable de me résister sans votre drapeau de l'âme, alors je suis profondément déçue. J'aurais pu vous attaquer lors de notre première rencontre au Secte de l'Affinement de l'Âme, mais vous étiez trop faible alors. Votre domaine n'avait pas encore atteint sa complétude pour devenir corporel, j'ai donc dû attendre. »
 
 « Votre domaine a désormais atteint la complétude de la Transformation de l'Âme et est devenu corporel, mais vous êtes toujours aussi faible. Si c'est là tout ce que vous avez, alors vous ne pourrez même pas me permettre d'accomplir ma dernière illusion ! »
 

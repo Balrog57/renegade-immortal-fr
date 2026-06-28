@@ -6,13 +6,14 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 626 - Identity of the White-Robed Female Corpse
 slug: lidentite-de-la-femme-a-la-robe-blanche
 ---
-« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du soleil. Mon père a collecté douze soleils et les a transformés en douze symboles que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
 
-« Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.
+« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du soleil. Mon père a collecté douze soleils et les a transformés en douze symboles que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.»
 
-« Quant au troisième trésor, il est préférable de l'utiliser avec votre Épée Céleste de la Pluie. Ce trésor s'appelle le Fourreau Spirituel. Placer l'épée céleste à l'intérieur permet de renforcer l'esprit de l'arme. Mon père a utilisé le Métal Céleste d'Origine provenant du Bassin de Purification Céleste pour le fabriquer.
+« Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.»
 
-« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Mon père l'a découvert par accident sur une planète mystérieuse. Malheureusement, il était incomplet, mais mon père a réussi à le restaurer après l'avoir étudié.
+« Quant au troisième trésor, il est préférable de l'utiliser avec votre Épée Céleste de la Pluie. Ce trésor s'appelle le Fourreau Spirituel. Placer l'épée céleste à l'intérieur permet de renforcer l'esprit de l'arme. Mon père a utilisé le Métal Céleste d'Origine provenant du Bassin de Purification Céleste pour le fabriquer.»
+
+« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Mon père l'a découvert par accident sur une planète mystérieuse. Malheureusement, il était incomplet, mais mon père a réussi à le restaurer après l'avoir étudié.»
 
 « Mon père pressent qu'il ne s'agit que d'une partie d'un vaste sort combiné. Hélas, ce que j'ai trouvé étant incomplet, je n'ai pu restaurer l'intégralité de la technique. »
 
@@ -32,7 +33,7 @@ Les yeux de Wang Lin s'illuminèrent et il murmura : « L'Empereur Céleste Qin 
 
 Après avoir examiné attentivement le jade dans sa main, Wang Lin se mit à réfléchir. Il ferma les yeux. « D'après le ton de ces inscriptions, cette Qin Shuang était la fille de l'Empereur Céleste de la Pluie. Elle possédait également une arme appelée l'Épée Céleste de la Pluie... » Il ouvrit soudainement les yeux dans un éclat de lumière dorée.
 
-« L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qin Lin ?! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envolâ lentement.
+« L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qin Lin ? ! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envolâ lentement.
 
 En observant le corps de la femme, Wang Lin se plongea dans ses pensées. Ses yeux brillèrent ; il forma un index et un majeur en guise d'épée et fit un geste vif. Une lame de vent jaillit et une marque rouge apparut immédiatement sur le poignet de la défunte.
 
@@ -62,9 +63,9 @@ Avec sa cultivation, il pouvait vaguement percevoir que le mystère de cette for
 
 Quelques jours plus tard, le Sens Divin de Wang Lin émergea du jade. Il ouvrit les yeux et laissa échapper un long soupir.
 
-« Ces êtres célestes sont encore plus cruels que les cultivateurs. La deuxième partie du jade contenait des enregistrements détaillés sur la création d'une marionnette appelée gardien céleste. Cette méthode n'est pas destinée aux célestes, mais conçue pour être utilisée contre les cultivateurs. On capture les cultivateurs pour les raffiner. Si l'opération réussit, le gardien céleste qui en résulte est d'une puissance extrême !
+« Ces êtres célestes sont encore plus cruels que les cultivateurs. La deuxième partie du jade contenait des enregistrements détaillés sur la création d'une marionnette appelée gardien céleste. Cette méthode n'est pas destinée aux célestes, mais conçue pour être utilisée contre les cultivateurs. On capture les cultivateurs pour les raffiner. Si l'opération réussit, le gardien céleste qui en résulte est d'une puissance extrême !»
 
-« Selon les célestes, un gardien céleste n'est pas une personne, mais un trésor. Il se décline en trois qualités : faible, moyenne et élevée. Le jade précise qu'un gardien de qualité faible équivaut à un cultivateur Ascendant au sommet de la phase tardive, soit la limite du premier niveau.
+« Selon les célestes, un gardien céleste n'est pas une personne, mais un trésor. Il se décline en trois qualités : faible, moyenne et élevée. Le jade précise qu'un gardien de qualité faible équivaut à un cultivateur Ascendant au sommet de la phase tardive, soit la limite du premier niveau.»
 
 « Quant aux qualités moyenne et élevée, je ne peux déterminer à quel point elles se situent dans le second niveau. »
 
@@ -72,7 +73,7 @@ Quelques jours plus tard, le Sens Divin de Wang Lin émergea du jade. Il ouvrit 
 
 D'un ton calme, Wang Lin ordonna : « Donne-la moi ! »
 
-Le visage du vieil homme se crispa d'amertume : « Vous avez déjà tous mes sacs de rangement, que voulez-vous encore ?! » Dans son for intérieur, il maudissait : « Ce nommé Wang est pire que ce couple de cultivateurs. Ils ne voulaient qu'un seul de mes sacs, mais lui, il ne veut rien me laisser ! »
+Le visage du vieil homme se crispa d'amertume : « Vous avez déjà tous mes sacs de rangement, que voulez-vous encore ? ! » Dans son for intérieur, il maudissait : « Ce nommé Wang est pire que ce couple de cultivateurs. Ils ne voulaient qu'un seul de mes sacs, mais lui, il ne veut rien me laisser ! »
 
 Wang Lin lança un regard glacial à l'homme et frappa son propre sac de rangement. Dix fragments de jade brisé s'envolèrent ; c'étaient les objets contenus dans les dix gardiens célestes que le vieil homme possédait. En voyant ces débris, l'expression du vieillard changea radicalement.
 

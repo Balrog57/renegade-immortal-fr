@@ -3,7 +3,7 @@ n: 1813
 title: "Trop Vicieux !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1813 - Too Vicious!"
+en: "Chapter 1813 - Too Vicious !"
 slug: trop-vicieux
 ---
 Chapitre 1813 - Trop Vicieux !
@@ -58,7 +58,7 @@ L'autre essence contenait le karma. Le Karma était un Grand Dao, d'une complexi
 
 Face à cette aura meurtrière, Du Qing recula encore de plusieurs pas. Il ne regardait plus Wang Lin avec simple crainte, mais avec une pure terreur !
 
-« Massacre... L'essence du massacre !! C'est l'essence du massacre !! Tu possèdes réellement l'essence du massacre !! » Du Qing manqua de hurler. Sur le Continent Astral Immortel, l'essence du massacre était encore plus rare que son essence du poids. Même avec une seule essence, celle du massacre suffisait pour s'ériger en souverain !
+« Massacre... L'essence du massacre ! ! C'est l'essence du massacre ! ! Tu possèdes réellement l'essence du massacre ! ! » Du Qing manqua de hurler. Sur le Continent Astral Immortel, l'essence du massacre était encore plus rare que son essence du poids. Même avec une seule essence, celle du massacre suffisait pour s'ériger en souverain !
 
 La formation de l'essence du massacre signifiait que les mains de celui qui la possédait étaient trempées dans le sang. Il fallait avoir mis fin à d'innombrables vies pour qu'elle puisse émerger. Du moins, c'était ce que croyait Du Qing.
 
@@ -68,7 +68,7 @@ La formation de l'essence du massacre signifiait que les mains de celui qui la p
 
 L'aura de l'essence de la restriction explosa.
 
-« Sept !! Ce n'était pas six, mais sept ! Il... il... » Du Qing recula une fois de plus en contemplant les sept essences flottant entre lui et Wang Lin. Son cuir chevelu devint engourdi et des grondements tonitruants résonnèrent dans son esprit.
+« Sept ! ! Ce n'était pas six, mais sept ! Il... il... » Du Qing recula une fois de plus en contemplant les sept essences flottant entre lui et Wang Lin. Son cuir chevelu devint engourdi et des grondements tonitruants résonnèrent dans son esprit.
 
 Le choc que Wang Lin lui avait infligé était déjà immense, mais celui-ci était encore plus violent. L'idée de faire volte-face pour s'enfuir ne cessait de traverser son esprit.
 
@@ -80,7 +80,7 @@ Lorsqu'il avait attaqué deux fois auparavant, il n'avait même pas réussi à b
 
 Dans une telle conjoncture, entre la nature mystérieuse de Wang Lin et la prudence de Du Qing, comment pourrait-il mener bataille ?
 
-« Et alors, qu'importe si tu as sept essences ! Oses-tu venir te mesurer à moi ?! » Du Qing serra les dents. Bien qu'il brûlasse de fuir, il devait lancer ces dernières paroles, faute de quoi cette poursuite serait trop humiliante.
+« Et alors, qu'importe si tu as sept essences ! Oses-tu venir te mesurer à moi ? ! » Du Qing serra les dents. Bien qu'il brûlasse de fuir, il devait lancer ces dernières paroles, faute de quoi cette poursuite serait trop humiliante.
 
 « Veux-tu vraiment te battre ? » demanda le visage de Wang Lin depuis l'intérieur de la boule de feu, ses yeux s'illuminant d'un éclat étrange. Tandis qu'il parlait, une pression terrifiante jaillit de la sphère de feu.
 
@@ -108,8 +108,8 @@ Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les 
 
 Du Qing cracha une bouffée de sang. Tout en reculant, il lança un regard accusateur à Wang Lin et rugit :
 
-« Damnation, si tu possèdes un tel trésor, pourquoi ne l'as-tu pas utilisé plus tôt !! Si tu l'avais sorti dès le début, seuls des fantômes auraient tenté de te traquer. Même si tu avais massacré toute la Secte du Dragon Bleu, j'aurais fait comme si je n'avais rien vu ! »
+« Damnation, si tu possèdes un tel trésor, pourquoi ne l'as-tu pas utilisé plus tôt ! ! Si tu l'avais sorti dès le début, seuls des fantômes auraient tenté de te traquer. Même si tu avais massacré toute la Secte du Dragon Bleu, j'aurais fait comme si je n'avais rien vu ! »
 
-« Tu... Tu es trop vicieux ! Simplement trop vicieux !! Il n'existe personne comme toi ! »
+« Tu... Tu es trop vicieux ! Simplement trop vicieux ! ! Il n'existe personne comme toi ! »
 
 La réaction de Du Qing surprit jusqu'à Wang Lin. Il ne s'attendait pas à ce que cette empreinte dorée ait un effet aussi puissant, capable de faire cracher du sang à Du Qing et de le pousser à rugir de telles paroles, au mépris total de son rang.

@@ -14,11 +14,11 @@ Toute la zone fut plongée dans un silence de mort. Les centaines de clans et le
 
 Le Jeune Empereur était bien réel ! Cette nouvelle avait été annoncée par le Grand Empereur il y a quelques mois, mais personne ne l'avait encore aperçu. C'était la première fois que ces cultivateurs voyaient le Jeune Empereur en personne.
 
-« Le... Jeune Empereur ?!! » L'homme d'âge moyen du Clan du Serpent de l'Âme pâlit, les yeux emplis de terreur. Son cœur battait à tout rompre, sa bouche devint sèche et une sueur froide perla sur son front. Il fixait Wang Lin, totalement abasourdi.
+« Le... Jeune Empereur ? ! ! » L'homme d'âge moyen du Clan du Serpent de l'Âme pâlit, les yeux emplis de terreur. Son cœur battait à tout rompre, sa bouche devint sèche et une sueur froide perla sur son front. Il fixait Wang Lin, totalement abasourdi.
 
 Il y avait aussi le 13e Ancien Déchu. Son expression changea radicalement et il recula inconsciemment de quelques pas. Son esprit tremblait et ses yeux étaient pétris de peur. Il n'aurait jamais imaginé que ses soupçons soient fondés !
 
-« Dès que j'ai vu le Clan du Dragon Blindé, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne !! Je... J'ai essayé de l'utiliser pour étaler ma puissance... »
+« Dès que j'ai vu le Clan du Dragon Blindé, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne ! ! Je... J'ai essayé de l'utiliser pour étaler ma puissance... »
 
 Le Patriarche du Ruisseau Tourbillonnant tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
 
@@ -28,7 +28,7 @@ Le messager commença à expliquer respectueusement : « J'ai fait attendre le J
 
 « Pour que le passage s'ouvre plus tôt, ce Jeune Empereur... »
 
-« Dans la Terre Déchue, il n'y a eu que deux Jeunes Empereurs, et voilà qu'un troisième apparaît !! »
+« Dans la Terre Déchue, il n'y a eu que deux Jeunes Empereurs, et voilà qu'un troisième apparaît ! ! »
 
 « Ce troisième Jeune Empereur doit être encore plus estimé que les deux précédents, sinon le passage ne se serait pas ouvert prématurément. Une telle chose est sans précédent ! »
 
@@ -100,7 +100,7 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 À ses côtés se tenait un homme d'âge moyen. Son expression était sombre et il dégageait une présence massive comme une montagne. Une pression colossale émanait de son corps, frappant les cultivateurs environnants telle une tempête, les forçant à reculer. Une fumée floue entourait l'homme, parsemée de visages déformés poussant des rugissements silencieux. Plus d'un million de visages différents y apparaissaient tour à tour.
 
-« Les Flammes de Joss ! Un cultivateur du troisième niveau !!! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
+« Les Flammes de Joss ! Un cultivateur du troisième niveau ! ! ! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
 
 « Cette jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer l'Empereur. J'ai été invitée par le chef du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
 
@@ -108,11 +108,11 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 Wang Lin vit également Maître Simo ! Leurs regards se croisèrent et entrèrent en collision comme deux épées capables de briser le monde !
 
-« Petit bâtard !! » La voix de Maître Simo sortit entre ses dents, chargée d'une intention meurtrière puissante.
+« Petit bâtard ! ! » La voix de Maître Simo sortit entre ses dents, chargée d'une intention meurtrière puissante.
 
 L'expression de Wang Lin resta calme alors qu'il disait lentement : « Perdant ! Tu ne sais que parler. Quel genre de cultivateur du troisième niveau es-tu donc ? »
 
-« Toi ! Osas-tu me défier ?! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
+« Toi ! Osas-tu me défier ? ! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
 
 Wang Lin sourit, une pointe de moquerie dans les yeux : « Oserez-vous entrer dans cette brume magnétique pour détruire votre cultivation jusqu'à retomber au cinquième niveau de la Flétrissure Céleste afin de me combattre ? »
 

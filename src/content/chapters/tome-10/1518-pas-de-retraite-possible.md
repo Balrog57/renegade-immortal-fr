@@ -1,12 +1,12 @@
 ---
 n: 1518
-title: "Pas de retraite possible !!"
+title: "Pas de retraite possible ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1518 - Can’t Retreat!!"
+en: "Chapter 1518 - Can’t Retreat !!"
 slug: pas-de-retraite-possible
 ---
-Chapitre 1518 - Pas de retraite possible !!
+Chapitre 1518 - Pas de retraite possible ! !
 
 Le lieu de la première bataille contre le Royaume Intérieur était le Système d'Étoiles de la Mer Nuageuse ! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait !
 
@@ -36,11 +36,11 @@ C'était une invasion, l'invasion de sa patrie. Pour son foyer, pour sa terre na
 
 Cette guerre durerait un temps indéterminé. Peut-être mourrait-il, peut-être perdrait-il la chance de faire revivre Wan Er, mais en cet instant, il ne se battait pas pour lui-même, mais pour son foyer !
 
-Pour le bien commun, il devait se battre !! C'était pourquoi Maître Hong Shan lui avait demandé s'il était prêt à se battre jusqu'à la mort. C'était la guerre !
+Pour le bien commun, il devait se battre ! ! C'était pourquoi Maître Hong Shan lui avait demandé s'il était prêt à se battre jusqu'à la mort. C'était la guerre !
 
 Wang Lin était prêt à mourir au combat !
 
-Bien que cela fût soudain, il appartenait au Royaume Intérieur. Même si ce dernier était rempli de dangers et de complots visant sa personne, il restait un cultivateur du Royaume Intérieur !!
+Bien que cela fût soudain, il appartenait au Royaume Intérieur. Même si ce dernier était rempli de dangers et de complots visant sa personne, il restait un cultivateur du Royaume Intérieur ! !
 
 Dans son propre foyer, c'était la loi du plus fort, mais que comptait cette règle face à une invasion ?
 
@@ -68,9 +68,9 @@ Le feu aux neuf couleurs dans son œil gauche forma une tempête prête à écla
 
 Le tatouage de tonnerre dans son œil droit commença à tourner rapidement, déclenchant des grondements impétueux !
 
-Combattre, combattre, combattre !!
+Combattre, combattre, combattre ! !
 
-Puisqu'ils se trouvaient là, il allait affronter les 100 000 cultivateurs envahisseurs du Royaume Extérieur !! Wang Lin se tenait là tel un dieu de la guerre !
+Puisqu'ils se trouvaient là, il allait affronter les 100 000 cultivateurs envahisseurs du Royaume Extérieur ! ! Wang Lin se tenait là tel un dieu de la guerre !
 
 Ses longs cheveux blancs et sa robe flottante rendaient sa silhouette infiniment imposante !
 
@@ -114,7 +114,7 @@ Ce bâton, couvert d'épines et taché d'une quantité massive de sang noir, dé
 
 Des grondements tonitruants retentirent. La Formation de Scellement du Royaume trembla violemment. Les pupilles de Wang Lin se contractèrent, mais son expression restait farouche !
 
-La guerre avait commencé !!
+La guerre avait commencé ! !
 
 La Formation de Scellement du Royaume vibrait alors que les esprits de la formation apparaissaient un à un, bientôt tous ensemble. Cependant, au moment même où ils surgissaient, le pouvoir mystérieux provenant du Système d'Étoiles Antique forma une main et tira vers le haut !
 
@@ -146,6 +146,6 @@ Dans une fissure spatiale saturée d'énergie spirituelle céleste, une femme en
 
 Il y avait cinq trésors, et chacun d'eux pouvait à lui seul causer une catastrophe. À cet instant précis, ils explosèrent tous à l'intérieur de la Formation de Scellement du Royaume. La force destructrice pénétra dans la fissure et commença à l'élargir, faisant trembler les deux royaumes, intérieur et extérieur !
 
-Une large brèche s'ouvrit brièvement dans la Formation de Scellement du Royaume !!
+Une large brèche s'ouvrit brièvement dans la Formation de Scellement du Royaume ! !
 
 La guerre avait commencé !

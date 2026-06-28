@@ -20,7 +20,7 @@ La colère et le froid émanant de cette voix firent presque se dissiper le corp
 
 Ce regard le fit presque perdre connaissance, ses yeux se remplissant d'une terreur extrême.
 
-« Ma... Maître !!! » Xu Liguo resta figé un instant avant de pousser un cri déchirant. Ce son pouvait ébranler l'âme et transmettait toute l'étendue de sa peur.
+« Ma... Maître ! !! » Xu Liguo resta figé un instant avant de pousser un cri déchirant. Ce son pouvait ébranler l'âme et transmettait toute l'étendue de sa peur.
 
 « Maître, ayez pitié ! Maître, écoutez-moi ! Cette affaire n'est pas ce que vous croyez... Cette affaire... » Après tout, Xu Liguo suivait Wang Lin depuis très longtemps. Bien que terrifié, il parvenait encore à s'exprimer, ce qui était bien plus que ce que Liu Jinbiao pouvait faire. Malgré sa voix tremblante, il semblait vouloir s'agripper aux jambes de Wang Lin pour supplier.
 
@@ -28,7 +28,7 @@ Ce changement soudain stupéfia les cultivateurs restants. Les dix plus cruels d
 
 La femme pâlit également et cracha du sang, l'obligeant à reculer de quelques pas. La panique dans son regard atteignit son paroxysme. Elle ignorait qui était cet homme, mais la pression qu'il dégageait suffisait presque à l'effondrer. Même son maître et tous les puissants cultivateurs qu'elle avait rencontrés n'étaient que de simples fourmis face à lui.
 
-« Vous... Qui êtes-vous ?! » Tremblante, la cultivatrice recula. Sous la pression, ses paroles et ses traits se déformèrent sous l'effet de la peur.
+« Vous... Qui êtes-vous ? ! » Tremblante, la cultivatrice recula. Sous la pression, ses paroles et ses traits se déformèrent sous l'effet de la peur.
 
 Non seulement elle, mais presque tous les présents avaient l'impression de faire face à une tempête. Une tempête liée au monde entier, possédant le pouvoir de détruire toute vie. Ils n'étaient que des poussières devant ce tumulte et mourraient au moindre contact avec lui.
 
@@ -36,7 +36,7 @@ Le jeune homme en noir, Fan Huazi, se tenait à distance. Du sang coulait du coi
 
 Le fou était celui qui ressentait le moins de pression. Dès qu'il vit Wang Lin, il afficha immédiatement une expression de détresse. Les larmes jaillirent de ses yeux et il se précipita à travers la foule vers Wang Lin en pleurant.
 
-« Ils m'ont harcelé !! Je n'ai rien fait, j'ai seulement demandé le nom de cette petite fille. Je n'ai vraiment rien fait ! Xu Liguo m'a dit que je pourrais bien m'amuser en faisant ceci ou cela... Mais avant que je ne puisse faire quoi que ce soit, ils sont arrivés. Je n'ai rien fait... » Le fou se sentait profondément lésé et finit par éclater en sanglots.
+« Ils m'ont harcelé ! ! Je n'ai rien fait, j'ai seulement demandé le nom de cette petite fille. Je n'ai vraiment rien fait ! Xu Liguo m'a dit que je pourrais bien m'amuser en faisant ceci ou cela... Mais avant que je ne puisse faire quoi que ce soit, ils sont arrivés. Je n'ai rien fait... » Le fou se sentait profondément lésé et finit par éclater en sanglots.
 
 Le cœur de Xu Liguo trembla à ces mots. Il n'osait pas s'avancer sous le regard indifférent de Wang Lin. Juste au moment où il allait parler, Wang Lin pointa du doigt.
 
@@ -46,7 +46,7 @@ Ce simple geste avait consommé près de 30 % de sa cultivation, faisant presque
 
 Cette fois, il fut totalement terrifié. Il suivait Wang Lin depuis de nombreuses années et savait à quel point celui-ci pouvait être cruel. Il n'appelait pas Wang Lin « démon » sans raison !
 
-« Maître, Maître !! J'ai accompli de grandes choses pour le Maître !! J'ai versé mon sang pour le Maître !! Maître, vous souvenez-vous encore de l'ancêtre du Clan des Démons Géants sur la planète Suzaku ? Vous souvenez-vous... » Xu Liguo hurlait, énumérant presque tout ce qu'il avait fait pour Wang Lin.
+« Maître, Maître ! ! J'ai accompli de grandes choses pour le Maître ! ! J'ai versé mon sang pour le Maître ! ! Maître, vous souvenez-vous encore de l'ancêtre du Clan des Démons Géants sur la planète Suzaku ? Vous souvenez-vous... » Xu Liguo hurlait, énumérant presque tout ce qu'il avait fait pour Wang Lin.
 
 Il craignait que s'il tardait trop, il n'aurait plus jamais l'occasion de parler.
 
@@ -60,11 +60,11 @@ Regardant Liu Jinbiao, Wang Lin pointa à nouveau vers l'avant et une rafale de 
 
 « Tes exploits sont réels, ils resteront acquis, mais je ne t'accorderai pas cette fortune. Oublie l'idée de retrouver la liberté : tu seras mon esclave pendant mille ans ! » En entendant ces mots, Liu Jinbiao esquissa un sourire amer, mais il poussa un immense soupir de soulagement dans son cœur. Il pouvait accepter cette punition.
 
-« Seigneur du Royaume Scellé !!! Vous êtes le Seigneur du Royaume Scellé !!! » s'exclama Fan Huazi avec exaltation. Il en avait eu un doute auparavant, mais lorsqu'il entendit Wang Lin évoquer la planète Suzaku et le Clan des Moineaux de Feu, il en fut certain. Il marcha d'un pas enthousiaste vers Wang Lin et s'inclina.
+« Seigneur du Royaume Scellé ! !! Vous êtes le Seigneur du Royaume Scellé ! !! » s'exclama Fan Huazi avec exaltation. Il en avait eu un doute auparavant, mais lorsqu'il entendit Wang Lin évoquer la planète Suzaku et le Clan des Moineaux de Feu, il en fut certain. Il marcha d'un pas enthousiaste vers Wang Lin et s'inclina.
 
 À ses paroles, les cultivateurs environnants furent saisis d'incrédulité et d'une immense excitation. Tous joignirent les mains et s'inclinèrent.
 
-« Salutations, Seigneur du Royaume Scellé !! »
+« Salutations, Seigneur du Royaume Scellé ! ! »
 
 La cultivatrice fut stupéfaite un instant avant de joindre les mains comme les autres. Elle fit confiance aux paroles de Fan Huazi. Seul le Seigneur du Royaume Scellé pouvait dégager une telle pression terrifiante.
 

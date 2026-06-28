@@ -4,7 +4,7 @@ title: Le Corps Mystérieux
 book: 3
 bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
-slug: le-corps-mysterieux
+slug: le-corps-mystérieux
 ---
 Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Hou Fen après que le pays de cultivation de rang 4 soit intervenu pour éliminer les bêtes de feu.
 

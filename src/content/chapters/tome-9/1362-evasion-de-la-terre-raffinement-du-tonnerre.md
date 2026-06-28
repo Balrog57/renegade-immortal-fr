@@ -18,11 +18,11 @@ Au sein du Système Stellaire Antique, une silhouette gigantesque se déplaçait
 
 Tuo Sen s'arrêta soudainement, se retourna, et ses yeux injectés de sang fixèrent le ciel étoilé.
 
-« L'aura de mon clan. Cette aura est très, très familière. Je le connais vaguement ! Non, c'était Tu Si qui le connaissait !! »
+« L'aura de mon clan. Cette aura est très, très familière. Je le connais vaguement ! Non, c'était Tu Si qui le connaissait ! ! »
 
 La voix résonna dans les oreilles de Wang Lin comme un coup de tonnerre, mais ses mains maintenaient fermement l'Éclair Éternel. Loin de relâcher sa prise, il tira impitoyablement une fois de plus sur l'Éclair Éternel !
 
-« Quelle blague. Pourquoi devrais-je lâcher prise simplement parce que vous me le demandez ? Cet Éclair Éternel m'appartient !! Si vous persistez dans votre entêtement, ne me reprochez pas ma cruauté ! »
+« Quelle blague. Pourquoi devrais-je lâcher prise simplement parce que vous me le demandez ? Cet Éclair Éternel m'appartient ! ! Si vous persistez dans votre entêtement, ne me reprochez pas ma cruauté ! »
 
 Le son étouffé provenant de l'intérieur du vortex se transforma en un rugissement, comme si le refus de Wang Lin avait irrité cette existence mystérieuse. Le tonnerre tourbillonnait autour du vortex avec une rapidité telle que quelque chose semblait sur le point d'en jaillir !
 
@@ -46,7 +46,7 @@ Il reconnut ces membres parce qu'il en avait vu un autrefois. Il avait combattu 
 
 Une sensation de folie émana du corps de Wang Lin. Il fixa les bras et laissa échapper un cri déchirant !
 
-« C'est vous !! Celui qui m'a volé l'âme de Wan Er sur la planète Suzaku !! Messager des cieux !! » Wang Lin laissait rarement échapper des rugissements, mais en cet instant, il était aussi fou qu'une bête sauvage, et quiconque le voyait en serait terrifié.
+« C'est vous ! ! Celui qui m'a volé l'âme de Wan Er sur la planète Suzaku ! ! Messager des cieux ! ! » Wang Lin laissait rarement échapper des rugissements, mais en cet instant, il était aussi fou qu'une bête sauvage, et quiconque le voyait en serait terrifié.
 
 Un ricanement froid provint du vortex, puis un bras s'élança impitoyablement vers Wang Lin. La foudre et le tonnerre entouraient le membre, donnant l'impression que le bras lui-même était constitué d'éclairs !
 
@@ -56,7 +56,7 @@ Wang Lin était déjà possédé par la démence. Dans toute sa vie, il n'avait 
 
 Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa cultivation s'emballa. Une silhouette gigantesque de Dieu Ancien apparut derrière lui, dégageant une pression si puissante qu'elle écrasait l'espace lui-même !
 
-« Ceci... C'est... Tu Si !! » Une voix stupéfaite jaillit du vortex.
+« Ceci... C'est... Tu Si ! ! » Une voix stupéfaite jaillit du vortex.
 
 « Feu ! » Les yeux de Wang Lin étaient emplis d'une folie sans fin lorsqu'il leva la main gauche. Un feu bleu surgit de son œil gauche et explosa instantanément de son corps. Un Oiseau Vermillon bleu apparut et poussa un cri strident !
 
@@ -64,7 +64,7 @@ Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa cultivat
 
 « Tonnerre ! » L'œil droit de Wang Lin brilla, tout comme sa marque de tonnerre. Le dragon géant sous lui s'enroula autour de lui, et l'Oiseau Vermillon et le dragon se croisèrent. Un sortilège terrifiant de tonnerre et de feu apparut !
 
-« Bataille !!! » rugit Wang Lin alors que l'Épée de Sang surgissait, atteignant instantanément mille pieds de long. Wang Lin s'en saisit fermement !
+« Bataille ! ! ! » rugit Wang Lin alors que l'Épée de Sang surgissait, atteignant instantanément mille pieds de long. Wang Lin s'en saisit fermement !
 
 Au moment où il empoigna l'Épée de Sang, la silhouette du Dieu Ancien leva les mains. Dans un éclat de lumière écarlate, une épée de sang de dix mille pieds apparut dans ses mains !
 
@@ -98,7 +98,7 @@ Tout s'était passé trop vite, bien trop vite pour que quiconque puisse réagir
 
 Wang Lin se retourna soudainement et fixa l'Éclair Éternel. Après avoir été blessé par l'épée dans les 7 Millions de Mondes, il était extrêmement affaibli. Puis, à l'instant, il avait subi le contrecoup de la folie de Wang Lin. Dès que Wang Lin posa les yeux sur lui, l'éclair se retira rapidement, comme s'il possédait une conscience propre.
 
-« Où comptes-tu fuir ?! » Wang Lin, toujours animé par une intention meurtrière, utilisa la Déformation Spatiale pour surgir devant l'Éclair Éternel. Sa main droite s'abattit impitoyablement sur lui.
+« Où comptes-tu fuir ? ! » Wang Lin, toujours animé par une intention meurtrière, utilisa la Déformation Spatiale pour surgir devant l'Éclair Éternel. Sa main droite s'abattit impitoyablement sur lui.
 
 Des grondements tonitruants émanèrent de l'Éclair Éternel. Il cessa de fuir pour charger Wang Lin. Cependant, ce dernier le saisit immédiatement de la main droite, et l'Éclair commença à se débattre. Sans attendre, Wang Lin ouvrit la bouche pour le dévorer !
 
@@ -122,7 +122,7 @@ Wang Lin détourna le regard, prêt à partir. Quant au nettoyage, le Daoïste E
 
 Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance après une longue hésitation. Entouré d'une aura stellaire, il volait vers Wang Lin sur un objet semblable à un alène.
 
-« Ma... Maître !! Vous vous souvenez encore de moi ? » Le corps du cultivateur tremblait. Prononcer ces mots équivalait à trahir le Clan du Tonnerre Dispersé. Bien que le clan soit en pleine crise, il risquait d'être tué par les siens avant tout ! Mais porté par sa détermination, il n'eut pas le temps de trop réfléchir !
+« Ma... Maître ! ! Vous vous souvenez encore de moi ? » Le corps du cultivateur tremblait. Prononcer ces mots équivalait à trahir le Clan du Tonnerre Dispersé. Bien que le clan soit en pleine crise, il risquait d'être tué par les siens avant tout ! Mais porté par sa détermination, il n'eut pas le temps de trop réfléchir !
 
 « Bon sang, un homme doit savoir trancher dans sa vie. Tout dépendra de ma chance. Si je reste, je meurs ; alors je suivrai Maître, même au prix de la trahison envers mon clan. Peu importe ! »
 

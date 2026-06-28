@@ -3,7 +3,7 @@ n: 1732
 title: "Alors, son nom est Wang Lin !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1732 - So HisName is Wang Lin!"
+en: "Chapter 1732 - So HisName is Wang Lin !"
 slug: alors-son-nom-est-wang-lin
 ---
 Chapitre 1732 - Alors, son nom est Wang Lin !
@@ -30,9 +30,9 @@ Le ciel de ce monde était sombre, chargé de nuages. Il n'y avait ni éclairs n
 
 Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge moyen aux cheveux noirs, tenant une lance bleue, émergea des flots. Il s'éleva lentement au rythme des vagues !
 
-« Le Général Céleste de l'Eau des Cinq Éléments !! C'est notre Seigneur Général de l'Eau du Secte Gui Yi !! »
+« Le Général Céleste de l'Eau des Cinq Éléments ! ! C'est notre Seigneur Général de l'Eau du Secte Gui Yi ! ! »
 
-« Le Seigneur Général de l'Eau est en cultivation isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau !! »
+« Le Seigneur Général de l'Eau est en cultivation isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau ! ! »
 
 « Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet ; lorsqu'il se trouve dans la formation, sa puissance augmente considérablement. Cet envahisseur méprisable est mort ! »
 
@@ -42,13 +42,13 @@ Un vieil homme, situé au milieu de la phase de Nettoyage du Nirvana, poussa un 
 
 « Camarades du Secte Gui Yi, quelqu'un vient de nous provoquer ! Nous l'avons traité avec respect, mais il s'est montré extrêmement arrogant ! Il a forcé notre formation et a même volé deux des cinq esprits ! »
 
-« C'est un envahisseur, comment pouvons-nous le laisser entrer ?! » La voix du vieil homme était rauque et ses yeux brûlaient de haine.
+« C'est un envahisseur, comment pouvons-nous le laisser entrer ? ! » La voix du vieil homme était rauque et ses yeux brûlaient de haine.
 
 « C'est vrai, cet homme se nomme Wang Lin, et je sais une chose sur lui. Il est infâme en dehors de la planète des Cinq Éléments et il est d'une cruauté extrême. Partout où il passe, toute vie s'éteint et il ne laisse aucun survivant ! »
 
 Une autre personne s'avança et rugit : « Il n'y a pas si longtemps, j'ai entendu parler d'une famille nommée Teng sur une planète de cultivation. Il a convoité un trésor de leur lignée et a massacré toute la famille, y compris les mortels. Ni les vieux ni les jeunes n'ont été épargnés, le sang coulait comme une rivière ! »
 
-« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, car sa cultivation était encore difficile. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il massacre tout sur son chemin vers la planète des Cinq Éléments ! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi !! »
+« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, car sa cultivation était encore difficile. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il massacre tout sur son chemin vers la planète des Cinq Éléments ! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi ! ! »
 
 « Comment pouvons-nous laisser un être aussi sans vergogne et méprisable pénétrer sur la planète des Cinq Éléments ! Ce cultivateur démoniaque doit être exécuté par tous. Le tuer, c'est sauver d'innombrables vies ! Tout le monde, bien que nos niveaux de cultivation soient bas, nous sommes plus nombreux et il n'est qu'un seul homme ! »
 
@@ -60,7 +60,7 @@ Parmi les cinq éléments, l'eau et le feu ne peuvent jamais coexister. À l'int
 
 Directement face à Wang Lin, l'homme d'âge moyen aux cheveux noirs se tenait au sommet des vagues déchaînées. Armé de sa lance bleue et revêtu de son armure, il fixa froidement Wang Lin.
 
-« Wang Lin !! » Dès que Wang Lin posa les yeux sur lui, l'homme poussa un rugissement soudain. Il bondit dans les airs et des ondes surgirent sous ses pieds. Une vague colossale déferla vers Wang Lin.
+« Wang Lin ! ! » Dès que Wang Lin posa les yeux sur lui, l'homme poussa un rugissement soudain. Il bondit dans les airs et des ondes surgirent sous ses pieds. Une vague colossale déferla vers Wang Lin.
 
 Des rugissements retentirent dans la mer entourant Wang Lin. Puis, quatre murs d'eau surgirent, l'emprisonnant totalement !
 
@@ -82,7 +82,7 @@ L'homme affichait une expression froide et orgueilleuse lorsqu'il déclara lente
 
 Alors que ses paroles résonnaient, tous les cultivateurs du Secte Gui Yi autour de la tour poussèrent des acclamations.
 
-« Maintenant que le Seigneur Général de l'Eau est sorti, qui peut lui résister ?! Peu importe la puissance du feu de ce vilain individu, il sera éteint par le Seigneur Général de l'Eau !! »
+« Maintenant que le Seigneur Général de l'Eau est sorti, qui peut lui résister ? ! Peu importe la puissance du feu de ce vilain individu, il sera éteint par le Seigneur Général de l'Eau ! ! »
 
 « Le Seigneur Général de l'Eau a déjà atteint la légendaire troisième étape. Cet envahisseur maudit, quelle qualification a-t-il pour lui tenir tête ? »
 

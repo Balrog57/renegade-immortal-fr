@@ -20,7 +20,7 @@ Wang Lin était assis là, la tête baissée. En si peu de temps, il avait bu se
 
 Des gouttes de vin s'éparpillèrent, et l'une d'elles atterrit sur le visage de la femme. Elle était glaciale.
 
-« Wan Er... Où est ton âme ?! » Wang Lin disparut dans le ciel, mais la femme entendit vaguement sa voix.
+« Wan Er... Où est ton âme ? ! » Wang Lin disparut dans le ciel, mais la femme entendit vaguement sa voix.
 
 Cette voix était empreinte d'une tristesse infinie. Elle n'était pas la seule à l'avoir entendue ; certains parmi la foule sur la place et sur les plateformes l'avaient également perçue. L'Empereur Dao Antique l'entendit aussi, et le sourire au coin de ses lèvres s'élargit. Il prit sa coupe de vin et en but une gorgée.
 
@@ -38,7 +38,7 @@ Elle retourna au palais, l'esprit éteint. Derrière elle, l'effervescence de la
 
 « Wan Er, je suis devenu un démon pour tuer le Dao, j'ai défié les cieux pour subvertir l'ordre du monde. Je me tenais devant toi, le dos voûté par la solitude, simplement pour que tu ouvres ces yeux qui m'apaisent. »
 
-« Wan Er, où est ton âme ?! »
+« Wan Er, où est ton âme ? ! »
 
 Des larmes coulèrent sur le visage de Wang Lin alors qu'il traversait la cité impériale du Dao Antique, baignée de lumières. En marchant silencieusement, son dos dégageait une mélancolie et une solitude déchirantes.
 
@@ -70,7 +70,7 @@ Wang Lin s'efforça de rester calme et de ne plus penser à cela. Il se répéta
 
 Mais au moment même où il fermait les yeux, il les rouvrit brusquement. Ses yeux brillaient d'une lumière dorée monstrueuse et d'un choc profond !
 
-« Ce n'est pas possible !!! »
+« Ce n'est pas possible ! !! »
 
 « J'ai rencontré cette Song Zhi à l'extérieur de Blackstone City. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien qu'élégante, elle ne ressemblait en rien à ce que j'ai ressenti au palais ! »
 
@@ -78,15 +78,15 @@ Le corps de Wang Lin tremblait.
 
 « Si elle avait été la même qu'au palais, il était impossible que je ne l'aie pas remarqué à Blackstone City. J'aurais dû ressentir ce soupçon de familiarité à l'époque ! »
 
-« Mais alors, je n'ai rien ressenti du tout, et pourtant, quand je l'ai revue au palais, cette sensation familière m'a frappé !!! »
+« Mais alors, je n'ai rien ressenti du tout, et pourtant, quand je l'ai revue au palais, cette sensation familière m'a frappé ! !! »
 
-« Quelque chose ne va pas !! »
+« Quelque chose ne va pas ! ! »
 
 « L'Empereur Dao Antique a cherché une concubine pendant des centaines d'années avant de la choisir. Song Zhi n'est pas une beauté absolue, alors pourquoi l'a-t-il choisie... ? »
 
-« Quel genre de femme l'Empereur Dao Antique a-t-il traqué pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais ?! »
+« Quel genre de femme l'Empereur Dao Antique a-t-il traqué pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais ? ! »
 
-« Pourquoi ai-je ressenti une telle agitation en allant vers le palais et une fois arrivé ? Pourquoi cette intention de tuer est-elle apparue face à l'Empereur Dao Antique ? Et pourquoi a-t-elle disparu quand j'ai vu Song Zhi ?! »
+« Pourquoi ai-je ressenti une telle agitation en allant vers le palais et une fois arrivé ? Pourquoi cette intention de tuer est-elle apparue face à l'Empereur Dao Antique ? Et pourquoi a-t-elle disparu quand j'ai vu Song Zhi ? ! »
 
 Wang Lin se leva brusquement, le corps tremblant. Ses yeux brillaient d'un éclat si intense qu'ils illuminèrent toute la demeure. Ses cheveux s'agitèrent sans le moindre vent, comme si une puissance cachée était sur le point d'éclater !
 
@@ -96,7 +96,7 @@ Wang Lin se leva brusquement, le corps tremblant. Ses yeux brillaient d'un écla
 
 Un feu semblait couver dans son cœur, prêt à exploser !
 
-« Des centaines d'années de sélection... L'énorme écart entre la Song Zhi d'autrefois et celle d'aujourd'hui... En fin de compte, quel est ce secret qui me rend fou ?! » L'expression de Wang Lin se déforma ; il peinait à se maîtriser. Il avait envie de se précipiter au palais pour capturer l'Empereur Dao Antique et lui pratiquer une recherche d'âme !
+« Des centaines d'années de sélection... L'énorme écart entre la Song Zhi d'autrefois et celle d'aujourd'hui... En fin de compte, quel est ce secret qui me rend fou ? ! » L'expression de Wang Lin se déforma ; il peinait à se maîtriser. Il avait envie de se précipiter au palais pour capturer l'Empereur Dao Antique et lui pratiquer une recherche d'âme !
 
 Mais... il ne le pouvait pas !
 

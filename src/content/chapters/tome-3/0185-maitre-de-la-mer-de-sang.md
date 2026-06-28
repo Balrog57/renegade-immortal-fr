@@ -6,6 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 185 - Master of the Blood Sea
 slug: maitre-de-la-mer-de-sang
 ---
+
 L'individu qui se tenait là mesurait plus de dix pieds de haut. Il dégageait une puissante intention meurtrière et portait une armure violette d'où jaillissaient des épines osseuses extrêmement acérées.
 
 Ses cheveux noirs flottaient derrière sa tête sans qu'un souffle de vent ne les agite. Son visage était d'une grande beauté, aux traits tranchants. Il ressemblait à un démon, particulièrement avec son expression impitoyable.
@@ -140,14 +141,14 @@ Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers o
 
 À côté de ces lignes, plusieurs autres paragraphes manuscrits apparurent :
 
-« En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Monde de la Décomposition. Après avoir cherché, j'ai trouvé l'entrée du Monde de la Décomposition, mais je n'y suis pas entré.
+« En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Monde de la Décomposition. Après avoir cherché, j'ai trouvé l'entrée du Monde de la Décomposition, mais je n'y suis pas entré. »
 
-« La Terre des Dieux Anciens a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu divertissant, les autres royaumes sont très décevants. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps.
+« La Terre des Dieux Anciens a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu divertissant, les autres royaumes sont très décevants. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps. »
 
-« Le quatrième royaume n'est qu'un réseau de transfert. Ce réseau transfère l'individu en fonction de la vitesse à laquelle il a franchi les trois premiers royaumes. C'est extrêmement complexe. Après l'avoir étudié longuement, je peux désormais l'utiliser pour pénétrer dans n'importe quelle partie du corps de l'Ancien Dieu.
+« Le quatrième royaume n'est qu'un réseau de transfert. Ce réseau transfère l'individu en fonction de la vitesse à laquelle il a franchi les trois premiers royaumes. C'est extrêmement complexe. Après l'avoir étudié longuement, je peux désormais l'utiliser pour pénétrer dans n'importe quelle partie du corps de l'Ancien Dieu. »
 
-« Comment peut-on appeler cela la Terre des Dieux Anciens ? C'est clairement une Terre des Dieux Démons.
+« Comment peut-on appeler cela la Terre des Dieux Anciens ? C'est clairement une Terre des Dieux Démons. »
 
-« L'Ancien Dieu Tu Si... cet homme est véritablement un cultivateur d'une immense sagesse. Je l'admire profondément pour avoir conçu une telle méthode.
+« L'Ancien Dieu Tu Si... cet homme est véritablement un cultivateur d'une immense sagesse. Je l'admire profondément pour avoir conçu une telle méthode. »
 
 « Jamais je n'aurais pensé rester piégé dans un tel endroit pendant des milliers d'années... »

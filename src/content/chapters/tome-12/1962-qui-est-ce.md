@@ -36,7 +36,7 @@ Wang Lin ricana. Puisque toutes les faux-semblants avaient été déchirés, il 
 
 Il pénétra dans le 14e palais !
 
-« L'armure de l'âme ne me laisse plus beaucoup de temps. Puisque je veux choquer tout le monde, je dois utiliser l'avatar formé par la loi du Continent Astral Immortel !! Avatar, utilise l'âme comme guide et fusionne !! » La silhouette de Wang Lin disparut dans le 14e palais.
+« L'armure de l'âme ne me laisse plus beaucoup de temps. Puisque je veux choquer tout le monde, je dois utiliser l'avatar formé par la loi du Continent Astral Immortel ! ! Avatar, utilise l'âme comme guide et fusionne ! ! » La silhouette de Wang Lin disparut dans le 14e palais.
 
 Après l'entrée de Wang Lin dans le 14e palais, tous les cultivateurs en contrebas furent plongés dans le silence. Ce changement fut tout aussi soudain que lorsqu'ils apprirent qu'il avait utilisé l'armure de l'âme pour franchir le 13e palais.
 
@@ -68,9 +68,9 @@ Cette lumière provenait du 14e palais. Elle perçait les nuages et enveloppait 
 
 Elle était si éclatante qu'elle semblait transpercer les yeux et le cœur des cultivateurs en bas !
 
-« Neuf respirations !! Impossible, il a passé tellement de temps dans le 13e palais. Comment pourrait-il ne prendre que neuf respirations pour franchir le 14e palais, pourtant plus difficile encore ?! »
+« Neuf respirations ! ! Impossible, il a passé tellement de temps dans le 13e palais. Comment pourrait-il ne prendre que neuf respirations pour franchir le 14e palais, pourtant plus difficile encore ? ! »
 
-« Il... Il... Il l'a vraiment réussi ! Son armure de l'âme n'est-elle pas épuisée ?! N'a-t-il qu'une force équivalente au 5e palais sans elle ?! »
+« Il... Il... Il l'a vraiment réussi ! Son armure de l'âme n'est-elle pas épuisée ? ! N'a-t-il qu'une force équivalente au 5e palais sans elle ? ! »
 
 « Pourrait-il posséder une autre armure de l'âme ? »
 

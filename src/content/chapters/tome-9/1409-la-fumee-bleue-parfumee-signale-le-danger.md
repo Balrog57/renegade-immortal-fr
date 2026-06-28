@@ -3,7 +3,7 @@ n: 1409
 title: "La fumée bleue parfumée signale le danger !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1409 - Fragrant Blue Signal Smoke Burns!"
+en: "Chapter 1409 - Fragrant Blue Signal Smoke Burns !"
 slug: la-fumee-bleue-parfumee-signale-le-danger
 ---
 Chapitre 1409 - La fumée bleue parfumée signale le danger !
@@ -30,7 +30,7 @@ Le regard sous les flammes noires s'éloigna de plus en plus de Li Muwan.
 
 Le corps de Li Muwan s'affaissa au sol tandis qu'elle contemplait ce regard apparemment éternel dans le ciel, l'esprit tremblant.
 
-Li Muwan lutta pour rugir : « Qui es-tu, bon sang ?! » Une douleur inconnue lui lacéra le cœur. Elle ne savait pas d'où venait cette souffrance, mais elle ne faisait que croître.
+Li Muwan lutta pour rugir : « Qui es-tu, bon sang ? ! » Une douleur inconnue lui lacéra le cœur. Elle ne savait pas d'où venait cette souffrance, mais elle ne faisait que croître.
 
 Le feu du karma s'embrasa et détruisit tout, mais il ne put détruire ni le cœur dao de Wang Lin, ni ses souvenirs !
 
@@ -40,7 +40,7 @@ Le feu du karma s'embrasa et détruisit tout, mais il ne put détruire ni le cœ
 
 « Si ce feu du karma veut brûler mon corps, si ce feu du karma veut me détruire, je ne l'arrêterai pas ! Ce feu est l'obsession de ma vie, ceci est mon dao ! »
 
-« Quel est l'intérêt de cultiver le dao impitoyable des cieux ? J'ai cultivé avec mon obsession et j'ai utilisé cette obsession pour former le cycle du karma. Alors, si je n'atteins pas le paradis ? Et alors si je vais en enfer ? Tant que l'enfer est libre, qu'y a-t-il de mal à cela ?! »
+« Quel est l'intérêt de cultiver le dao impitoyable des cieux ? J'ai cultivé avec mon obsession et j'ai utilisé cette obsession pour former le cycle du karma. Alors, si je n'atteins pas le paradis ? Et alors si je vais en enfer ? Tant que l'enfer est libre, qu'y a-t-il de mal à cela ? ! »
 
 Juste au moment où le feu du karma allait l'anéantir, un cri de Vermillion Bird retentit, fracassant le silence !
 
@@ -64,7 +64,7 @@ Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa
 
 Le vieux Vermillion Bird laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de l'Oiseau Vermillon, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine !
 
-« Bon garçon, il a réussi à reformer son Vermillion Bird sous le feu du karma !! Après cela viendront les neuf rétributions karmiques. C'est la partie la plus périlleuse ! »
+« Bon garçon, il a réussi à reformer son Vermillion Bird sous le feu du karma ! ! Après cela viendront les neuf rétributions karmiques. C'est la partie la plus périlleuse ! »
 
 Seul le vieil homme assis sur le lézard gardait les yeux clos, comme si rien de tout cela ne pouvait retenir son attention.
 
@@ -86,7 +86,7 @@ En un clin d'œil, tout le ciel fut recouvert par ce feu noir, mais aucune créa
 
 Cette mer de feu couvrant la voûte céleste devint de plus en plus puissante, telle une vague violente balayant les cieux.
 
-« Bâton d'encens humain, embrase-toi !! » Le rugissement de Wang Lin devint la voix du Vermillion Bird et se propagea dans l'éther. La mer de feu se contracta soudainement vers Wang Lin pour former un pilier de flammes s'élançant vers le ciel.
+« Bâton d'encens humain, embrase-toi ! ! » Le rugissement de Wang Lin devint la voix du Vermillion Bird et se propagea dans l'éther. La mer de feu se contracta soudainement vers Wang Lin pour former un pilier de flammes s'élançant vers le ciel.
 
 L'âme de Wang Lin se reforma au sommet du Vermillion Bird noir, au cœur des flammes. Il leva les yeux vers le firmament et agita la main.
 
@@ -96,11 +96,11 @@ Des grondements tonitruants résonnèrent dans le ciel, se transformant en une f
 
 À cet instant, des volutes de fumée noire s'échappèrent du premier bâton d'encens sur le dos de la tortue géante !
 
-« Allumé !! »
+« Allumé ! ! »
 
-« Le premier bâton d'encens est allumé !! »
+« Le premier bâton d'encens est allumé ! ! »
 
-« Voyons combien de temps il pourra tenir !! » Les cultivateurs attendaient depuis de longs jours et commençaient à perdre patience. S'ils n'avaient pas craint le Jeune Empereur, ils seraient déjà partis. Cependant, à cet instant précis, tous les regards se tournèrent vers la fumée noire qui s'élevait.
+« Voyons combien de temps il pourra tenir ! ! » Les cultivateurs attendaient depuis de longs jours et commençaient à perdre patience. S'ils n'avaient pas craint le Jeune Empereur, ils seraient déjà partis. Cependant, à cet instant précis, tous les regards se tournèrent vers la fumée noire qui s'élevait.
 
 Au début, la fumée ressemblait à des rubans de soie, mais elle prit rapidement l'ampleur d'un signal de détresse. La température élevée commença à se propager et le Bâton d'Encens Humain brûla avec éclat !
 

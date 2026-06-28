@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 568 - Acquaintance
 slug: rencontre
 ---
+
 La Ville Démon du Ciel !
 
 Elle est située dans la partie septentrionale du Pays Démon du Ciel. Elle est entourée d'innombrables montagnes qui s'entrecroisent. Si l'on regarde depuis les cieux, ces montagnes semblent former la silhouette de neuf dragons s'enroulant autour de la cité.
@@ -44,7 +45,7 @@ Le capitaine fit rouler ses épaules et sourit : « Oui, c'est plutôt bon. Parm
 
 « Puisque je suis de bonne humeur aujourd'hui, je vais te le dire ! » En ces mots, les gardes se rapprochèrent immédiatement. Visiblement, ils brûlaient tous d'envie de savoir ce qui se tramait.
 
-« Vous n'êtes que des recrues de la dernière centaine d'années, il est donc normal que vous l'ignoriez. Tous les trois cents ans, une grande compétition oppose les généraux démons, et l'Empereur Démon y assiste personnellement. Les récompenses sont parfois des trésors ou des sorts démoniaques ! Cependant, cette fois, la compétition revêt une signification tout à fait différente !
+« Vous n'êtes que des recrues de la dernière centaine d'années, il est donc normal que vous l'ignoriez. Tous les trois cents ans, une grande compétition oppose les généraux démons, et l'Empereur Démon y assiste personnellement. Les récompenses sont parfois des trésors ou des sorts démoniaques ! Cependant, cette fois, la compétition revêt une signification tout à fait différente ! »
 
 « Car il y a deux cents ans, nous avons subi de lourdes pertes face au Pays Démon du Feu, incluant deux vice-commandants en chef. C'est pourquoi l'Empereur Démon choisira deux nouveaux vice-commandants en chef lors de cette compétition ! »
 
@@ -58,7 +59,7 @@ Dans le Pays Démon du Ciel, une fois que le commandant en chef meurt, un vice-c
 
 C'est la première étape pour devenir commandant en chef : devenir vice-commandant en chef !
 
-En voyant l'étonnement sur les visages de ses subordonnés, le capitaine se sentit empreint de fierté. Il s'éclaircit la voix et poursuivit : « C'est pour cela que tous les généraux démons, pourtant si orgueilleux, sont venus ici. Vu l'importance de l'enjeu, même ceux qui n'avaient initialement pas l'intention de participer se sont présentés !
+En voyant l'étonnement sur les visages de ses subordonnés, le capitaine se sentit empreint de fierté. Il s'éclaircit la voix et poursuivit : « C'est pour cela que tous les généraux démons, pourtant si orgueilleux, sont venus ici. Vu l'importance de l'enjeu, même ceux qui n'avaient initialement pas l'intention de participer se sont présentés ! »
 
 « Le quatorzième tableau de transfert que nous gardons est réservé aux seuls généraux démons ; c'est bien pour cela qu'il est si sollicité ces derniers jours ! »
 
@@ -94,7 +95,7 @@ Mo Lihai regarda Wang Lin et dit sincèrement : « Frère Wang, les diverses fac
 
 Deux cités étaient reliées à la porte ouest : la première était la Ville Xuan, et la seconde, la Ville Hong !
 
-Mo Lihai expliqua : « La Ville Démon du Ciel compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Sky, Earth, Xuan et Yellow sont les quatre villes intérieures, tandis que Universe, Eternity, Hong et Desolate constituent les villes extérieures.
+Mo Lihai expliqua : « La Ville Démon du Ciel compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Sky, Earth, Xuan et Yellow sont les quatre villes intérieures, tandis que Universe, Eternity, Hong et Desolate constituent les villes extérieures. »
 
 « Les villes intérieures sont destinées aux fonctionnaires civils, tandis que les villes extérieures sont réservées aux militaires. Il existe également d'autres distinctions selon le rang. Moi, je réside à la Ville Hong ! »
 

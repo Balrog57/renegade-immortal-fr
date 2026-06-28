@@ -6,6 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 771 - Yao Family (2)
 slug: la-famille-yao-2
 ---
+
 Alors qu'il résistait au nuage noir, il continuait d'être repoussé par sa contraction. Ce cycle se poursuivit jusqu'à ce que les nuages noirs montrent des signes d'effondrement. Les yeux de Wang Lin devinrent froids et il ouvrit la bouche pour cracher de l'énergie originelle.
 
 Cette énergie originelle pénétra le nuage noir et lui donna soudainement l'impression d'être imprégné d'un pouvoir infini, le faisant se contracter frénétiquement. Cependant, à cet instant, la résistance émanant de l'Ancêtre Sanguin augmentait elle aussi sans fin.
@@ -78,7 +79,7 @@ Wang Lin regarda le drapeau d'âme et dit : « Ancêtre Sanguin, je respecte vot
 
 Il savait que l'Ancêtre Sanguin pouvait entendre !
 
-« Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter ?! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté !
+« Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter ? ! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté !
 
 « Je vous ai donné une chance, mais le senior Ancêtre Sanguin n'avait qu'une idée en tête : me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui ! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
 
@@ -88,7 +89,7 @@ Il leva sa main droite et pressa le fragment céleste. Une lueur jaune jaillit t
 
 Il tapota ses vêtements comme pour balayer toute la morosité des derniers jours. Puis son corps se transforma en un rayon de lumière et il s'envola au loin.
 
-« Je deviendrai aussi fort que possible dans le Royaume Céleste du Tonnerre. Mes sorts sont encore bien insuffisants. Auparavant, mon niveau de cultivation n'était pas assez élevé pour prétendre aux sorts célestes. Cependant, avec ma cultivation actuelle, je suis assez fort pour participer aux batailles pour les grottes célestes.
+« Je deviendrai aussi fort que possible dans le Royaume Céleste du Tonnerre. Mes sorts sont encore bien insuffisants. Auparavant, mon niveau de cultivation n'était pas assez élevé pour prétendre aux sorts célestes. Cependant, avec ma cultivation actuelle, je suis assez fort pour participer aux batailles pour les grottes célestes.»
 
 Mon objectif est un sort céleste ! Wan Er, ne t'inquiète pas, j'irai certainement sur la planète Dong Lin ! Dès qu'il y aura la moindre lueur d'espoir pour ton réveil, moi, Wang Lin, je ferai tout ce qui est en mon pouvoir pour me battre ! »
 

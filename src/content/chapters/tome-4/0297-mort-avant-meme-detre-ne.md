@@ -4,7 +4,7 @@ title: "Mort avant même d'être né"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 297 - Died before it was borned
-slug: mort-avant-meme-detre-ne
+slug: mort-avant-même-detre-ne
 ---
 Les yeux de Wang Lin s'illuminèrent et son corps disparut soudainement à l'intérieur du drapeau de restriction. Cependant, il fut très difficile pour le cultivateur aux robes vertes de s'en apercevoir. Après tout, ce dernier n'était qu'au stade initial de la Formation de l'Âme, tandis que le Sens Divin de Wang Lin se situait au niveau de celui d'un expert de la phase tardive de la Formation de l'Âme.
 

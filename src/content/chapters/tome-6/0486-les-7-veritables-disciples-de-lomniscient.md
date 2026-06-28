@@ -4,7 +4,7 @@ title: "Les 7 véritables disciples de l'Omniscient"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 486 - The 7 true disciples of the All-Seer
-slug: les-7-veritables-disciples-de-lomniscient
+slug: les-7-véritables-disciples-de-lomniscient
 ---
 Wang Lin poussa un soupir intérieur et sortit du pavillon. Dehors se tenait Bai Wei, vêtu d'une robe violette ornée de motifs floraux. Bai Wei était indéniablement un bel homme, mais sous la lumière du soleil, il dégageait véritablement l'aura d'une femme magnifique.
 

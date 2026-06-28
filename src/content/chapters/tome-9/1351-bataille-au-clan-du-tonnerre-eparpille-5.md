@@ -3,7 +3,7 @@ n: 1351
 title: "Bataille au Clan du Tonnerre Éparpillé ! (5)"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1351 - Battle at the Scatter Thunder Clan! (5)"
+en: "Chapter 1351 - Battle at the Scatter Thunder Clan ! (5)"
 slug: bataille-au-clan-du-tonnerre-eparpille-5
 ---
 L'Ancien en chef du Clan du Tonnerre Éparpillé affichait une expression venimeuse ; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
@@ -26,7 +26,7 @@ Cependant, que ce soient les blessures ou le sort du Maître Dao Blue Dream, ils
 
 « Cet homme n'est pas très âgé, mais il possède déjà un esprit aussi rusé. Il doit être très célèbre dans le Système d'Étoiles Anciennes, pourtant je n'ai jamais entendu parler du nom de "Wang Lin" auparavant !
 
-« Que cache-t-il donc exactement ?! »
+« Que cache-t-il donc exactement ? ! »
 
 L'expression de l'Ancien en chef du Clan du Tonnerre Éparpillé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant !
 
@@ -66,7 +66,7 @@ Dès qu'il eut fini de parler, des grondements tonitruants résonnèrent à l'in
 
 Une tête de dragon gigantesque surgit soudainement du centre du vortex. Cette tête était d'un vert profond et dégageait un tonnerre incessant. Dès son apparition, elle poussa un rugissement unique à celui des dragons du tonnerre antiques !
 
-ROAR !!
+ROAR ! !
 
 Wang Lin s'approchait avec un tonnerre infini, mais dès qu'il fut proche, tout le tonnerre autour de lui s'effondra. Lui-même fut affecté par le rugissement. Il trembla violemment comme si son corps allait exploser. Puis il cracha du sang et fut projeté en arrière. L'incrédulité se lisait dans ses yeux !
 
@@ -98,18 +98,18 @@ Une crise de vie ou de mort surgit dans l'esprit de Wang Lin. Son visage était 
 
 La puissance des dragons du tonnerre antiques dépassait tout ce qu'il avait imaginé. Ils étaient bien plus forts que celui qu'il avait dévoré autrefois !
 
-« C'est un véritable dragon du tonnerre antique !! Cependant, ces espèces sont éteintes, donc ces huit ne sont pas réels, mais formés d'âmes. Néanmoins, si ces huit dragons explosent en même temps, ils me tueront instantanément. Même mon corps de Dieu Antique ne pourra pas y résister à cause des limites de mes étoiles !
+« C'est un véritable dragon du tonnerre antique ! ! Cependant, ces espèces sont éteintes, donc ces huit ne sont pas réels, mais formés d'âmes. Néanmoins, si ces huit dragons explosent en même temps, ils me tueront instantanément. Même mon corps de Dieu Antique ne pourra pas y résister à cause des limites de mes étoiles !
 
 « Pourtant, c'est parce que j'ai dévoré la moitié de l'âme d'un dragon du tonnerre antique que j'ai pu créer l'essence de tonnerre. Si je parviens à dévorer ces huit dragons, ma puissance de tonnerre augmentera considérablement ! » Les blessures de Wang Lin s'aggravaient sous le bombardement incessant. Son âme originelle était sur le point de s'effondrer et son corps atteignait ses limites.
 
-« Que faire ?! L'âme ! L'âme !! Bien que ces dragons aient été puissants de leur vivant, ils ne sont plus que des âmes désormais ! Il me faut une chance ! » Les yeux de Wang Lin étaient injectés de sang alors qu'il affrontait le déluge, et une lueur étrange brilla dans son regard. Il ne recula plus, mais poussa un rugissement envers les huit dragons qui n'était pas moins puissant que le leur !
+« Que faire ? ! L'âme ! L'âme ! ! Bien que ces dragons aient été puissants de leur vivant, ils ne sont plus que des âmes désormais ! Il me faut une chance ! » Les yeux de Wang Lin étaient injectés de sang alors qu'il affrontait le déluge, et une lueur étrange brilla dans son regard. Il ne recula plus, mais poussa un rugissement envers les huit dragons qui n'était pas moins puissant que le leur !
 
-ROAR !!
+ROAR ! !
 
 Un vortex apparut entre les sourcils de Wang Lin, et son âme originelle s'étendit sous la forme d'un dragon du tonnerre antique. Il laissa échapper un rugissement qui égalait le leur !
 
 Son cri déchira les cieux. En se propageant, il força les huit dragons environnants à marquer une pause un instant !
 
-« Fouet de l'Âme !! » À cet instant, une lueur jaillit autour de Wang Lin. Le fouet mystérieux qui l'accompagnait depuis d'innombrables années apparut soudainement !
+« Fouet de l'Âme ! ! » À cet instant, une lueur jaillit autour de Wang Lin. Le fouet mystérieux qui l'accompagnait depuis d'innombrables années apparut soudainement !
 
 Depuis que le Fouet de l'Âme s'était fusionné avec le Dao de Wang Lin, il pouvait changer de taille à volonté. Il enveloppa Wang Lin et se projeta comme un fouet vers les huit dragons du tonnerre antiques !

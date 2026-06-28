@@ -3,7 +3,7 @@ n: 2021
 title: "Soudain, un regard en arrière !"
 book: 13
 bookTitle: Light of the coming end
-en: "Chapter 2021 - Suddenly Looking Back!"
+en: "Chapter 2021 - Suddenly Looking Back !"
 slug: soudain-un-regard-en-arriere
 ---
 Chapitre 2021 - Soudain, un regard en arrière !
@@ -20,9 +20,9 @@ Des murmures s'élevèrent parmi la foule alors que Wang Lin passait devant des 
 
 À mesure qu'il progressait, les regards se concentraient de plus en plus sur lui, et le bourdonnement de la foule devenait de plus en plus intense.
 
-« Où va-t-il s'asseoir ?! »
+« Où va-t-il s'asseoir ? ! »
 
-« Il ose se diriger vers l'avant ! Deux des quatre sièges à l'avant sont préparés pour le Grand Empereur et l'enseignant impérial. Les deux derniers sont réservés aux deux ancêtres de l'Ancien Dao qui sont encore en vie !! »
+« Il ose se diriger vers l'avant ! Deux des quatre sièges à l'avant sont préparés pour le Grand Empereur et l'enseignant impérial. Les deux derniers sont réservés aux deux ancêtres de l'Ancien Dao qui sont encore en vie ! ! »
 
 Parmi les quatre derniers sièges restants, un se trouvait devant avec trois derrière lui. Alors que Wang Lin s'avançait vers les 18 Rois, sept d'entre eux se levèrent et joignirent les mains en signe de respect envers lui.
 
@@ -48,13 +48,13 @@ Dès qu'il prit place, un immense tumulte éclata sur toute la place.
 
 « La pression que cet homme a libérée était extrêmement puissante, j'ai cru que mon cœur s'arrêtait ! Son pouvoir ancien est insondable, ce n'est certainement pas un homme ordinaire ! »
 
-« J'ai entendu dire que le Grand Empereur de l'Ancien Dao avait annoncé avoir accepté un disciple. Serait-il le disciple du Grand Empereur Xuan Luo ?! Mais il est si jeune... »
+« J'ai entendu dire que le Grand Empereur de l'Ancien Dao avait annoncé avoir accepté un disciple. Serait-il le disciple du Grand Empereur Xuan Luo ? ! Mais il est si jeune... »
 
 « C'est bien lui ! »
 
-« L'Empereur Ascendant aux cheveux blancs !! Je ne m'attendais pas à ce que cet homme soit réellement le disciple du Grand Empereur Xuan Luo !! »
+« L'Empereur Ascendant aux cheveux blancs ! ! Je ne m'attendais pas à ce que cet homme soit réellement le disciple du Grand Empereur Xuan Luo ! ! »
 
-« Quoi ? C'est l'Empereur Ascendant aux cheveux blancs ? N'est-il pas un membre du clan céleste ? On dit qu'il est le premier sous les Grands Empereurs !! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Astral Immortel !! »
+« Quoi ? C'est l'Empereur Ascendant aux cheveux blancs ? N'est-il pas un membre du clan céleste ? On dit qu'il est le premier sous les Grands Empereurs ! ! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Astral Immortel ! ! »
 
 Ceux qui reconnurent Wang Lin appartenaient à la famille royale, comme le Prince Ji Du. Les membres de l'Ancien Dao en savaient davantage car ils connaissaient sa réputation ; cependant, les membres des autres clans affichaient des expressions extrêmement complexes en le regardant, avec des traces cachées de peur dans les yeux.
 
@@ -86,19 +86,19 @@ Un personnage de ce rang n'était pas qualifié pour provoquer une telle réacti
 
 Lorsque le son du tambour disparut, tout le monde sur la place et sur les plateformes volantes se tut soudainement. Instinctivement, les discussions cessèrent et tous les regards se tournèrent vers la salle principale !
 
-« L'Empereur arrive !! » Une voix aiguë et perçante retentit depuis la salle. Elle portait une force de pénétration puissante. Puis, les portes closes s'ouvrirent.
+« L'Empereur arrive ! ! » Une voix aiguë et perçante retentit depuis la salle. Elle portait une force de pénétration puissante. Puis, les portes closes s'ouvrirent.
 
 Alors que les portes étaient poussées, tous les regards se fixèrent sur la salle, sur l'homme assis sur un trône de dragon.
 
-Cet homme portait une robe royale et une couronne impériale. Il dégageait une pression imposante sans pour autant manifester de colère. C'était l'Empereur de l'Ancien Dao !!
+Cet homme portait une robe royale et une couronne impériale. Il dégageait une pression imposante sans pour autant manifester de colère. C'était l'Empereur de l'Ancien Dao ! !
 
-« Saluons tous l'Empereur !! » Sur la place et les plateformes, tout le monde, y compris les 18 Rois, s'inclina devant l'Empereur de l'Ancien Dao !
+« Saluons tous l'Empereur ! ! » Sur la place et les plateformes, tout le monde, y compris les 18 Rois, s'inclina devant l'Empereur de l'Ancien Dao !
 
 Les membres n'appartenant pas à l'Ancien Dao n'avaient pas l'obligation de s'agenouiller, mais tous les membres de l'Ancien Dao devaient mettre un genou à terre. Wang Lin se leva et, après avoir silencieusement réfléchi un instant, il s'inclina sans pour autant s'agenouiller !
 
 Bien que son expression semblât normale, cette sensation de massacre déchaînée submergeait son esprit comme une vague impétueuse. Il arrivait à peine à la contenir.
 
-Ce sentiment devint extrêmement violent au moment même où l'Empereur de l'Ancien Dao apparut !!
+Ce sentiment devint extrêmement violent au moment même où l'Empereur de l'Ancien Dao apparut ! !
 
 « Tout le monde, c'est un événement joyeux pour moi. Célébrons cela par ce banquet, et buvez tous avec moi ! » L'Empereur de l'Ancien Dao sourit, mais lorsque son regard balaya Wang Lin, son cœur fut assombri par l'insatisfaction. Cependant, son expression resta imperturbable et il adressa même un sourire à Wang Lin, comme s'il se souciait de lui.
 

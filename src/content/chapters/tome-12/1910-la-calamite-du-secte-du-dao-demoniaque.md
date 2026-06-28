@@ -3,7 +3,7 @@ n: 1910
 title: "La Calamité du Secte du Dao Démoniaque !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1910 - Devil Dao Sect’s Calamity!"
+en: "Chapter 1910 - Devil Dao Sect’s Calamity !"
 slug: la-calamite-du-secte-du-dao-demoniaque
 ---
 Chapitre 1910 - La Calamité du Secte du Dao Démoniaque !
@@ -58,13 +58,13 @@ Le vieil homme à la robe dorée qui avait chargé dans le brouillard s'échappa
 
 Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Grand Exalt, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
 
-« Lui... Quel est donc son niveau de cultivation !?! »
+« Lui... Quel est donc son niveau de cultivation ! ? ! »
 
 Tandis que la lumière solaire dispersée descendait sur eux, une silhouette en robe blanche se tenait là, silencieuse. Un regard froid, dissimulé sous sa capuche, fixait les 30 000 cultivateurs stupéfaits du Secte du Dao Démoniaque !
 
-Le vieil homme à la robe dorée réprima ses tremblements et rugit : « Qui êtes-vous, Monsieur ?! Pourquoi avez-vous forcé l'entrée de mon Secte du Dao Démoniaque et détruit notre formation ? »
+Le vieil homme à la robe dorée réprima ses tremblements et rugit : « Qui êtes-vous, Monsieur ? ! Pourquoi avez-vous forcé l'entrée de mon Secte du Dao Démoniaque et détruit notre formation ? »
 
-« Mon Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Empyrean Exalt ! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune ?! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse !
+« Mon Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Empyrean Exalt ! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune ? ! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse !
 
 Si ces deux-là étaient ainsi terrifiés, que dire des dizaines de cultivateurs du troisième stade qui venaient de frôler la mort ? Tous fixaient Wang Lin avec effroi.
 
@@ -74,17 +74,17 @@ Les quelque 30 000 cultivateurs du Secte du Dao Démoniaque semblaient en avoir 
 
 Après avoir parlé, il agita sa main droite et écarta la robe qui couvrait son visage, révélant ses cheveux blancs et son visage impassible. Il plongea son regard vers la multitude.
 
-« Cela ne fait que cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin ?! »
+« Cela ne fait que cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin ? ! »
 
 Dès que Wang Lin souleva sa capuche, les yeux du vieil homme à la robe dorée se remplirent d'incrédulité.
 
-« Wang Lin !!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. Le Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme !
+« Wang Lin ! !! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. Le Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme !
 
-« C'est lui !! » haleta l'homme en robe rouge, qui reconnut également Wang Lin ! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu Wang Lin massacrer ses propres compagnons de secte et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
+« C'est lui ! ! » haleta l'homme en robe rouge, qui reconnut également Wang Lin ! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu Wang Lin massacrer ses propres compagnons de secte et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
 
-« Wang Lin !! C'est bien lui !! »
+« Wang Lin ! ! C'est bien lui ! ! »
 
-« N'avait-il pas été capturé par le Maître de Secte il y a plus de cent ans pour être envoyé au Temple des Scorpions ?! Il n'est pas mort ?! »
+« N'avait-il pas été capturé par le Maître de Secte il y a plus de cent ans pour être envoyé au Temple des Scorpions ? ! Il n'est pas mort ? ! »
 
 « C'est vraiment lui. À l'époque, à la frontière du Continent de la Terre Meng, il avait ouvert une rivière de sang. Notre Secte du Dao Démoniaque avait déployé un nombre immense de cultivateurs et même le Maître de Secte était intervenu pour le capturer ! »
 
@@ -108,10 +108,10 @@ L'expression du vieil homme à la robe dorée changea radicalement. Il ressentit
 
 Avec sa puissance actuelle, Wang Lin n'avait pas besoin d'arborer son armure d'âme pour menacer des cultivateurs au stade avancé de la Tribulation du Vide. Alors que les deux combattants se rapprochaient, la Lame Yin de Wang Lin fendit l'air !
 
-« Tuez !! » Un rugissement fracassant jaillit de sa bouche !
+« Tuez ! ! » Un rugissement fracassant jaillit de sa bouche !
 
-« Tuez !! » Derrière lui, son Véritable Corps des Cinq Éléments apparut et leva également sa Lame Yin. Pour la première fois, il poussa le même cri que Wang Lin !
+« Tuez ! ! » Derrière lui, son Véritable Corps des Cinq Éléments apparut et leva également sa Lame Yin. Pour la première fois, il poussa le même cri que Wang Lin !
 
-« Tuez !! » Derrière le Véritable Corps des Cinq Éléments se dressait le Véritable Corps de l'Essence du Tonnerre. La Lame Yin de tonnerre s'éleva dans les airs et un troisième rugissement retentit !
+« Tuez ! ! » Derrière le Véritable Corps des Cinq Éléments se dressait le Véritable Corps de l'Essence du Tonnerre. La Lame Yin de tonnerre s'éleva dans les airs et un troisième rugissement retentit !
 
 Les trois cris de « Tuez » résonnèrent, formant une onde sonore dévastatrice. Ce son supplanta tous les autres bruits du monde et fit vibrer le cœur de chaque cultivateur du Secte du Dao Démoniaque. Toute leur attention se cristallisa sur ces trois silhouettes qui convergeaient rapidement sous la lumière du soleil !

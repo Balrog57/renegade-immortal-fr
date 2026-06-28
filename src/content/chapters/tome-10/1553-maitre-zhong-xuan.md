@@ -68,11 +68,11 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « De plus, c'est vous qui avez découvert ce Royaume aux Sept Couleurs, Maître. Les cultivateurs du Royaume Extérieur qui étaient apparus ont été tués par vos soins, et c'est vous qui avez scellé le Royaume aux Sept Couleurs. Vous avez même établi le Quartier Général de l'Alliance ici pour garder ce royaume. Comme vous dormiez depuis toutes ces années, vous ignorez les changements survenus au fil du temps...
 
-« À quoi bon mourir pour le Royaume Intérieur ?! Le Souverain du Royaume Extérieur est extrêmement puissant ; je crains que même Maître ne soit pas de taille. Contre quoi pourrions-nous résister ?
+« À quoi bon mourir pour le Royaume Intérieur ? ! Le Souverain du Royaume Extérieur est extrêmement puissant ; je crains que même Maître ne soit pas de taille. Contre quoi pourrions-nous résister ?
 
 « La perte du Royaume Intérieur est inéluctable, et vous ne pouvez l'empêcher, Maître ! Avec votre puissance, nous pourrions faire défection vers le Royaume Extérieur et y obtenir une immense fortune. Pourquoi s'échiner pour le Royaume Intérieur ? »
 
-« Toi !! » Maître Long Pan fixa Maître Zhong Xuan, et le regret dans ses yeux se fit plus intense. En réalité, il n'avait rien trouvé de notable dans la mémoire de l'ancien ; tout ce qu'il avait fait n'était que pour effrayer Maître Zhong Xuan. Ce dernier, ignorant cela, avait tout déballé sous l'effet de la terreur.
+« Toi ! ! » Maître Long Pan fixa Maître Zhong Xuan, et le regret dans ses yeux se fit plus intense. En réalité, il n'avait rien trouvé de notable dans la mémoire de l'ancien ; tout ce qu'il avait fait n'était que pour effrayer Maître Zhong Xuan. Ce dernier, ignorant cela, avait tout déballé sous l'effet de la terreur.
 
 « Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Brilliant Void, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel ! Tout cela était en vue de la guerre contre le Royaume Extérieur ! » Maître Long Pan soupira.
 
@@ -86,7 +86,7 @@ Tout cela n'était dû qu'à l'aspiration du corps à cultiver. Une rumeur dans 
 
 Cependant, cette expression plongea Maître Zhong Xuan dans le désespoir. Son corps trembla et il poussa un cri :
 
-« Maître, ce disciple n'avait pas l'intention d'ouvrir le sceau du Royaume aux Sept Couleurs !! C'est le Seigneur Céleste Qing Shui qui s'est frayé un chemin jusqu'ici et qui a forcé ce disciple à briser le sceau !! C'est lui qui a ouvert le Royaume aux Sept Couleurs ! Ce disciple n'y est pour rien, c'est lui le coupable ! »
+« Maître, ce disciple n'avait pas l'intention d'ouvrir le sceau du Royaume aux Sept Couleurs ! ! C'est le Seigneur Céleste Qing Shui qui s'est frayé un chemin jusqu'ici et qui a forcé ce disciple à briser le sceau ! ! C'est lui qui a ouvert le Royaume aux Sept Couleurs ! Ce disciple n'y est pour rien, c'est lui le coupable ! »
 
 Les yeux de Wang Lin se plissèrent sur Maître Zhong Xuan. L'aura de Maître Flamespark était empreinte d'une haine monstrueuse, et sa respiration devint rauque.
 
@@ -96,7 +96,7 @@ Maître Long Pan sembla ignorer ces paroles ; son regard vers Maître Zhong Xuan
 
 L'expression de Maître Zhong Xuan changea radicalement et il recula comme un fou en poussant un cri de détresse.
 
-« Maître, ayez pitié ! Maître, ne me tuez pas !! Maître !!! Ce disciple sait qu'il a eu tort, ce disciple admet son erreur, Maître !!! » Il reculait avec désespoir. Alors que la tempête se refermait sur lui, il esquissa un sourire misérable et ferma les yeux.
+« Maître, ayez pitié ! Maître, ne me tuez pas ! ! Maître ! !! Ce disciple sait qu'il a eu tort, ce disciple admet son erreur, Maître ! !! » Il reculait avec désespoir. Alors que la tempête se refermait sur lui, il esquissa un sourire misérable et ferma les yeux.
 
 La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira derrière Maître Long Pan, hors de portée de l'arc de Wang Lin.
 
@@ -108,7 +108,7 @@ Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour 
 
 « Je vais sacrifier ma vitalité et, en échange, je brûlerai mon âme originelle pour atteindre la force du début du stade Arcanique... Je vais tuer tous les cultivateurs du Royaume Extérieur dans le Royaume Intérieur... détruire les Royaumes aux Sept Couleurs restants, et reprendre la Rivière des Invocations en échange de la vie de Maître Zhong Xuan... » Maître Long Pan joignit les mains devant Wang Lin avant de lancer un regard empreint de douceur à Maître Zhong Xuan.
 
-« Maître !!! » Maître Zhong Xuan reprit ses esprits et se prostra sans cesse au sol, les yeux emplis d'une tristesse infinie et d'un profond remords...
+« Maître ! !! » Maître Zhong Xuan reprit ses esprits et se prostra sans cesse au sol, les yeux emplis d'une tristesse infinie et d'un profond remords...
 
 « Allons-y... » Maître Long Pan soupira. Il prit Maître Zhong Xuan et s'éloigna dans le lointain.
 

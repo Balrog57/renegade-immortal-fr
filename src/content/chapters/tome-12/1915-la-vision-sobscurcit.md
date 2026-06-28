@@ -3,7 +3,7 @@ n: 1915
 title: "La vision s'obscurcit !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1915 - Vision Goes Black!"
+en: "Chapter 1915 - Vision Goes Black !"
 slug: la-vision-sobscurcit
 ---
 Chapitre 1915 - La vision s'obscurcit !
@@ -54,7 +54,7 @@ Dans un fracas de tonnerre, l'empreinte géante entra en collision avec le ridea
 
 Alors que les grondements assourdissants étouffaient tous les autres sons du monde, le messager impérial recracha du sang et fut repoussé de mille pieds. Il parvint à peine à s'arrêter, crachant à nouveau du sang, le regard chargé d'incrédulité face à Wang Lin.
 
-« Empyrean... Une cultivation d'Empyrean Exalt !! »
+« Empyrean... Une cultivation d'Empyrean Exalt ! ! »
 
 Wang Lin avait forcé le messager impérial à reculer d'un seul coup de paume. Sa cultivation explosa et un vent noir enveloppa son corps, entrant en collision avec les neuf couteaux noirs. Dans un fracas de tonnerre, les neuf lames furent pulvérisées.
 
@@ -72,11 +72,11 @@ Cette dévoration sembla engendrer une force d'aspiration infinie. L'âme origin
 
 « Ancêtre, sauvez-moi ! »
 
-« Seigneur Messager, sauvez-moi !! »
+« Seigneur Messager, sauvez-moi ! ! »
 
 L'expression du messager impérial changea radicalement. Il serra les dents et chargea de nouveau pour empêcher Wang Lin de dévorer le maître de la Secte du Dao Démoniaque.
 
-« Wang Lin, si tu le tues, je ne pourrai pas proclamer l'édit de l'Empereur ! Ce n'est pas une faute que tu peux assumer ; c'est un affront à la puissance des Célestes. Veux-tu trahir tout le clan céleste ?! »
+« Wang Lin, si tu le tues, je ne pourrai pas proclamer l'édit de l'Empereur ! Ce n'est pas une faute que tu peux assumer ; c'est un affront à la puissance des Célestes. Veux-tu trahir tout le clan céleste ? ! »
 
 C'était la première fois que le messager impérial délivrait un édit. Il ne s'attendait pas à une telle confrontation. En tant que messager, il avait vu de nombreux cultivateurs puissants sur le Continent Central, mais aucun n'avait été aussi arrogant que Wang Lin, osant tuer sous l'autorité d'un édit impérial !
 
@@ -96,7 +96,7 @@ Un tel regard, une telle majesté et une telle pression étaient des choses qu'i
 
 Il n'osait pas rester ; il devait reculer. Tandis qu'il reculait, le maître de la Secte du Dao Démoniaque fut submergé par un désespoir total. Il vit son âme originelle être aspirée de mille pieds à moins de trois cents pieds de Wang Lin. Constatant qu'il allait être dévoré, ses yeux s'emplirent de folie !
 
-« Si tu veux me tuer, alors tu seras enterré avec moi ! Seigneur Messager, ce vieil homme accepte l'édit. Ce vieil homme veut entendre l'édit de l'Empereur Céleste, même dans la mort !! » Il choisit de ne pas s'autodétruire, préférant forcer le messager à lire l'édit. Cela scellerait le crime de Wang Lin de manière irrévocable. Il utilisait sa propre mort pour condamner Wang Lin à souffrir dans le futur !
+« Si tu veux me tuer, alors tu seras enterré avec moi ! Seigneur Messager, ce vieil homme accepte l'édit. Ce vieil homme veut entendre l'édit de l'Empereur Céleste, même dans la mort ! ! » Il choisit de ne pas s'autodétruire, préférant forcer le messager à lire l'édit. Cela scellerait le crime de Wang Lin de manière irrévocable. Il utilisait sa propre mort pour condamner Wang Lin à souffrir dans le futur !
 
 Alors que son hurlement résonnait, son âme originelle se trouvait à moins de dix pieds de Wang Lin. Elle se transforma en une lueur fantomatique et fut dévorée par Wang Lin.
 
@@ -104,9 +104,9 @@ Alors que son hurlement résonnait, son âme originelle se trouvait à moins de 
 
 La mission du messager impérial était de transmettre l'édit. Puisque celui qui devait le recevoir l'avait accepté, il n'hésita pas à l'ouvrir. Simultanément, sa voix résonna :
 
-« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur du Démon Vert contre la famille impériale. S'il est encore en vie, détruisez-le ainsi que la Secte du Dao Démoniaque avant l'accomplissement de l'édit !!
+« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur du Démon Vert contre la famille impériale. S'il est encore en vie, détruisez-le ainsi que la Secte du Dao Démoniaque avant l'accomplissement de l'édit ! !
 
-« S'il est mort et s'il a été tué par un homme nommé Wang Lin, alors Wang Lin devra accepter l'édit. Venez sur le Continent Central. J'ai appris comment vous avez aidé Dao Fei, et je ne l'ai pas oublié !! »
+« S'il est mort et s'il a été tué par un homme nommé Wang Lin, alors Wang Lin devra accepter l'édit. Venez sur le Continent Central. J'ai appris comment vous avez aidé Dao Fei, et je ne l'ai pas oublié ! ! »
 
 Alors que le messager impérial lisait l'édit, de la sueur perla sur son front. Il n'avait pu l'ouvrir qu'une fois la personne désignée présente. C'était la première fois qu'il voyait le contenu, et après sa lecture, il fut stupéfait.
 

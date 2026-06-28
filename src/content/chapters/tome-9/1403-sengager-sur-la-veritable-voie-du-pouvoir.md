@@ -4,7 +4,7 @@ title: "S'engager sur la véritable Voie du Pouvoir"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1403 - Stepping Into the Proper Dao of Power
-slug: sengager-sur-la-veritable-voie-du-pouvoir
+slug: sengager-sur-la-véritable-voie-du-pouvoir
 ---
 Un fracas tonitruant retentit et le lac s'agita violemment. Une couche d'eau s'effondra soudainement, libérant d'innombrables gouttelettes. Puis une autre couche s'effondra à son tour, et ce cycle se répéta sans relâche. En un instant, les strates de l'eau du lac se dissipèrent en vapeur et s'élevèrent dans les airs.
 

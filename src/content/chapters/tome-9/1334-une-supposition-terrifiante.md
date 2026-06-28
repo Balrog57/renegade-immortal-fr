@@ -80,7 +80,7 @@ Peu après avoir pris cette pose, l'appel de Wang Lin résonna dans son esprit. 
 
 Dès qu'il entra, avant même de voir Wang Lin, Big Red s'exclama avec enthousiasme : « Le jeune Big Red a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour l'Aîné ! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant le mois précédent s'envolèrent pour former une petite montagne.
 
-Tout plein d'entrain, il prit une grande inspiration et dit avec excitation : « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré ! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de cultivation a augmenté ! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Big Red. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement ! »
+Tout plein d'en train, il prit une grande inspiration et dit avec excitation : « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré ! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de cultivation a augmenté ! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Big Red. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement ! »
 
 L'expression de Wang Lin resta neutre tandis qu'il observait Big Red. D'un geste de la main, il rangea tout ce qui serviraient à l'échange des cristaux.
 

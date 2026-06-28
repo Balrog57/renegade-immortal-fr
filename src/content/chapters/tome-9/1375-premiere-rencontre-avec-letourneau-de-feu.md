@@ -4,7 +4,7 @@ title: "Première rencontre avec l'Étourneau de Feu"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1375 - First Encounter With Fire Sparrow
-slug: premiere-rencontre-avec-letourneau-de-feu
+slug: première-rencontre-avec-letourneau-de-feu
 ---
 « Maître, le membre du Conseil des Déchus le plus proche est le neuvième ancien, qui est également le chef du Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan de la Scorpione Noire en ouvrant la voie.
 

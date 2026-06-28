@@ -4,7 +4,7 @@ title: Je veux la première place
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 860 - I Want First Place
-slug: je-veux-la-premiere-place
+slug: je-veux-la-première-place
 ---
 Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 100 000 kilomètres de la planète Flamme Terrestre. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la manipulation spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui !
 

@@ -50,7 +50,7 @@ Les yeux de Wang Lin se rétrécirent. Les paroles de cet homme le touchèrent p
 
 Wang Lin leva les yeux vers le plafond. Il ajouta des branches sèches au feu et demanda : « Et vous ? Quels sont vos rêves ? »
 
-L'homme d'âge moyen bâilla, semblant accablé par la somnolence. Mais en entendant Wang Lin, il retrouva soudainement de l'entrain et commença à parler avec excitation.
+L'homme d'âge moyen bâilla, semblant accablé par la somnolence. Mais en entendant Wang Lin, il retrouva soudainement de l'en train et commença à parler avec excitation.
 
 « Moi, j'ai beaucoup de rêves. Je veux énormément de pierres spirituelles. Je veux beaucoup d'argent. Je veux plein de nourriture délicieuse... » Il avala sa salive en parlant.
 

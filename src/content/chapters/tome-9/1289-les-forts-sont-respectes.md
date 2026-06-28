@@ -3,7 +3,7 @@ n: 1289
 title: "Les forts sont respectés !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1289 - The Strong are Respected!"
+en: "Chapter 1289 - The Strong are Respected !"
 slug: les-forts-sont-respectes
 ---
 Chapitre 1289 - Les forts sont respectés !
@@ -48,7 +48,7 @@ Tout cela se produisit en un instant. Tandis que Wang Lin absorbait l'aura du di
 
 Ces six auras appartenaient à des cultivateurs extrêmement puissants au premier stade de la Flétrissure Céleste !
 
-« Li Zhihao !!! C'est toi !! Que fais-tu ?! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière !
+« Li Zhihao ! ! ! C'est toi ! ! Que fais-tu ? ! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière !
 
 Wang Lin n'avait jamais vu ce vieil homme auparavant, mais d'après son niveau de cultivation, il était évident qu'il s'agissait de l'un des Grands Anciens du Sect Everlasting !
 
@@ -66,13 +66,13 @@ C'était comme si Wang Lin était leur véritable maître, le souverain de tout 
 
 Le visage de l'homme en noir se décomposa. Il agita ses manches pour percuter les sphères de foudre. Un grondement tonitruant qui secoua l'univers entier retentit !
 
-« Cher collègue cultivateur Li, mon Sect Everlasting a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez tué le Maître du Sect de la Musique Céleste et je n'ai pas poursuivi l'affaire. J'ai même déplacé le Sect Origin dans la région 7 ! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter le Sect Origin avec égard ! Vous réapparaissez et, alors que vous auriez dû être un simple invité, voilà que vous voulez prendre la montagne de mon Sect Everlasting !! Pensez-vous être digne de défier mon Sect Everlasting ?! » Le Maître du Sect Everlasting fixait Wang Lin, ses paroles tonnant comme l'orage !
+« Cher collègue cultivateur Li, mon Sect Everlasting a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez tué le Maître du Sect de la Musique Céleste et je n'ai pas poursuivi l'affaire. J'ai même déplacé le Sect Origin dans la région 7 ! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter le Sect Origin avec égard ! Vous réapparaissez et, alors que vous auriez dû être un simple invité, voilà que vous voulez prendre la montagne de mon Sect Everlasting ! ! Pensez-vous être digne de défier mon Sect Everlasting ? ! » Le Maître du Sect Everlasting fixait Wang Lin, ses paroles tonnant comme l'orage !
 
 Wang Lin réfléchit silencieusement en observant le Maître du Sect. Après un long moment, il dit lentement : « Je dois une immense faveur au Sect Everlasting et je rendrai certainement ce qui se trouve dans cette montagne à l'avenir ! Pour certaines raisons, je dois l'emporter avec moi ! Un jour, je reviendrai et je vous rembourserai tous ! »
 
 L'aura du dieu ancien sous Wang Lin s'agita une fois de plus pour charger en lui. Ses vêtements furent secoués par la poussée de l'énergie divine antique qui affluait en son sein. La quatrième étoile se forma entre ses sourcils !
 
-« Une faveur ? Pour qui vous prenez-vous ? Quelles sont vos qualifications pour devoir un service au Sect Everlasting ? Croyez-vous être le Grand Ancien du Sect de Dieu ?! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets !
+« Une faveur ? Pour qui vous prenez-vous ? Quelles sont vos qualifications pour devoir un service au Sect Everlasting ? Croyez-vous être le Grand Ancien du Sect de Dieu ? ! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets !
 
 Le Maître du Sect Everlasting devint encore plus glacial. Lorsqu'il avait appris la disparition et la prétendue mort de Wang Lin, il n'avait pas protégé le Sect Origin comme il l'avait promis ; au contraire, il les avait tenus prêts à être livrés au Sect de Dieu. Il ne deviendrait pas l'ennemi du Sect de Dieu pour une seule personne ou une simple branche sectaire ! Et encore moins pour protéger le petit Sect Origin qui n'avait plus aucune valeur.
 
@@ -88,17 +88,17 @@ Des grondements tonitruants résonnèrent à travers la planète de cultivation 
 
 L'expression du Maître du Sect changea radicalement ; il agita l'épée-dragon, créant d'innombrables lames. Des bruits de rupture résonnèrent alors qu'il tentait de résister, mais la tempête des dix millions de rayons d'énergie l'obligea à battre en retraite. Il ne pouvait absolument pas approcher Wang Lin.
 
-« Ce Lu Zhihao était déjà très fort. Après dix ans, il est devenu encore plus puissant !!! »
+« Ce Lu Zhihao était déjà très fort. Après dix ans, il est devenu encore plus puissant ! ! ! »
 
 « Je ne souhaite pas devenir l'ennemi du Sect Everlasting. Je veux seulement emprunter ce qui se trouve dans la montagne. Je le rendrai assurément un jour ! » Wang Lin était entouré par les dix millions de rayons d'énergie, et sa voix était empreinte de sincérité.
 
-Le Maître du Sect Everlasting esquiva l'énergie et dit d'un ton sombre : « Pourquoi le Sect Everlasting vous prêterait-il quoi que ce soit ? Pourquoi devrions-nous vous croire ?! »
+Le Maître du Sect Everlasting esquiva l'énergie et dit d'un ton sombre : « Pourquoi le Sect Everlasting vous prêterait-il quoi que ce soit ? Pourquoi devrions-nous vous croire ? ! »
 
 « Le fait que Daoist Water du Sect de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une cultivation en porte fermée avec de graves blessures ! Ou le fait que je sois prêt à prêter un serment de sang ! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin ! La rune s'échappa de la tempête d'épée et flotta devant le Maître du Sect Everlasting.
 
 Les paroles de Wang Lin furent comme un coup de tonnerre qui choqua l'esprit du Maître du Sect et du vieil homme en noir !
 
-« Daoist Water du Sect de Dieu a échoué à vous tuer ?! » Le Maître du Sect laissa échapper un souffle, les yeux remplis d'incrédulité.
+« Daoist Water du Sect de Dieu a échoué à vous tuer ? ! » Le Maître du Sect laissa échapper un souffle, les yeux remplis d'incrédulité.
 
 « Absurde, personne au monde ne vous croirait. Votre serment de sang est inutile à mes yeux ! » L'homme en noir avait dû reculer deux fois face à Wang Lin. Avec son niveau de cultivation et son statut, une telle situation était inédite. Il ricana, les yeux brillants, et tendit sa main droite vers le serment de sang de Wang Lin pour l'écraser sans pitié !
 

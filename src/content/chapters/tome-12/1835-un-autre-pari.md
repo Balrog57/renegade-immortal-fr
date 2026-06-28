@@ -3,7 +3,7 @@ n: 1835
 title: "Un autre pari !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1835 - Another Bet!"
+en: "Chapter 1835 - Another Bet !"
 slug: un-autre-pari
 ---
 Chapitre 1835 - Un autre pari !
@@ -16,11 +16,11 @@ Le monde trembla et les innombrables cultivateurs de la Grande Secte de l'Âme o
 
 C'était la 16e marche !
 
-« Plus que trois... Ma volonté ne cédera même pas devant les cieux, pourquoi devrais-je reculer ?! » L'essence de vie et de mort de Wang Lin jaillit de son corps.
+« Plus que trois... Ma volonté ne cédera même pas devant les cieux, pourquoi devrais-je reculer ? ! » L'essence de vie et de mort de Wang Lin jaillit de son corps.
 
 Les essences éthérées n'étaient pas affectées par le Continent Astral Immortel. Dès qu'elles jaillirent, Wang Lin posa le pied sur la 17e marche !
 
-« Ma volonté a percé le monde des grottes et le Continent Astral Immortel. Je suis le premier à quitter le monde des grottes ! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer ?! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche !
+« Ma volonté a percé le monde des grottes et le Continent Astral Immortel. Je suis le premier à quitter le monde des grottes ! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer ? ! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche !
 
 Cette scène fut vue par tous les disciples de la Grande Secte de l'Âme et fit trembler leurs cœurs. En voyant cela, le visage de Yan Lu devint instantanément livide.
 
@@ -50,7 +50,7 @@ Yan Lu leva instinctivement la main pour saisir l'objet, mais son orgueil l'en e
 
 Wang Lin rangea l'épée de sang et saisit le parapluie bleu. Juste au moment où il s'apprêtait à effacer le Sens Divin de Yan Lu pour se l'approprier, sa voix froide résonna depuis le sixième étage.
 
-« Wang Lin, es-tu toujours prêt à parier ?! »
+« Wang Lin, es-tu toujours prêt à parier ? ! »
 
 Les yeux de Wang Lin s'illuminèrent. Il eut un sourire méprisant et interrompit son geste d'effacement du Sens Divin. Tenant l'objet dans sa main, il demanda lentement :
 
@@ -64,7 +64,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « Pourquoi devrais-je continuer à parier avec toi ? » Les paroles de Wang Lin étaient calmes alors qu'il agitait sa manche et s'enfonçait dans le septième étage, où se trouvaient moins de 30 corps d'âmes.
 
-« Wang Lin !! Si tu gagnes, je te donnerai ce trésor !! » Yan Lu agita la main et une petite calebasse violette apparut.
+« Wang Lin ! ! Si tu gagnes, je te donnerai ce trésor ! ! » Yan Lu agita la main et une petite calebasse violette apparut.
 
 À l'instant où la calebasse se manifesta, des fluctuations d'âme en émanèrent.
 
@@ -72,7 +72,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme ! »
 
-« Tant que tu parviens à entrer au huitième étage, tu peux le prendre ! Es-tu prêt à parier ?! » La voix de Yan Lu était perçante et résonna dans tout le Pavillon des Écritures de l'Âme.
+« Tant que tu parviens à entrer au huitième étage, tu peux le prendre ! Es-tu prêt à parier ? ! » La voix de Yan Lu était perçante et résonna dans tout le Pavillon des Écritures de l'Âme.
 
 Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âme provenant du sixième étage. Il manquait actuellement de trésors. S'il voulait asseoir sa position sur le Continent Astral Immortel, outre sa propre force, les trésors étaient essentiels.
 
@@ -116,13 +116,13 @@ Cet escalier menait au huitième étage du Pavillon des Écritures de l'Âme !
 
 La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche choqua l'esprit de tous.
 
-« Il... il veut réellement se rendre au huitième étage !! »
+« Il... il veut réellement se rendre au huitième étage ! ! »
 
 « C'est un événement rarissime, même sur des centaines d'années ! Je vais assister à quelqu'un qui tente de franchir les septième et huitième étages d'un seul coup ! »
 
 Un tumulte éclata alors que les anciens en cultivation retirée tournaient tous leurs regards avec des expressions graves. Au Pic du Ciel Vert, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse ; il ne pouvait plus cacher le choc qui agitait son cœur.
 
-« Il va au huitième étage !! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Grande Secte de l'Âme. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
+« Il va au huitième étage ! ! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Grande Secte de l'Âme. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 
 Au sixième étage, Yan Lu ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de cultivation, elle possédait ses propres méthodes.
 

@@ -4,7 +4,7 @@ title: La Dernière Personne
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 864- The Last Person
-slug: la-derniere-personne
+slug: la-dernière-personne
 ---
 Certains cultivateurs de l'étape Nirvana Scryer avaient participé à la compétition pour les titres célestes, mais ils n'étaient pas nombreux. La plupart d'entre eux étaient considérés comme les ancêtres de leurs clans ; ils étaient donc liés par leurs responsabilités familiales et devaient faire preuve d'une prudence extrême dans chacune de leurs actions et décisions.
 

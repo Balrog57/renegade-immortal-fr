@@ -6,6 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 415 - Soul Transformation (2)
 slug: transformation-de-lame-2
 ---
+
 En chemin, Wang Lin déploya son sens divin et aperçut de nombreux cultivateurs dont les expressions disgracieuses ne semblaient que dissimuler leurs inquiétudes. Même lorsqu'ils croisaient une connaissance, ils se contentaient d'un bref salut avant de reprendre chacun leur route.
 
 Alors qu'il volait, Wang Lin fronça soudainement les sourcils. Plus d'une dizaine de cultivateurs, dont les sens divins étaient liés par un lien mystérieux, balayaient la zone.
@@ -52,9 +53,9 @@ Du Tian leva les yeux vers le ciel et éclata de rire. « Quel genre d'individu 
 
 Wang Lin esquissa un léger sourire et secoua la tête. « Je reviendrais tout de même pour le drapeau d'âmes d'un milliard. »
 
-Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin avec une expression approbatrice et sourit. « Bien, le drapeau d'âmes d'un milliard est à toi. Mon fragment d'âme sera aussi le tien dans quelques années ; par la même occasion, tout le Secte du Raffinement de l'Âme t'appartiendra ! Si cet endroit ne te plaît pas, tu pourras abandonner le secte ici présent, mais tu devras te souvenir de ma bonté à ton égard et tenir ta promesse.
+Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin avec une expression approbatrice et sourit. « Bien, le drapeau d'âmes d'un milliard est à toi. Mon fragment d'âme sera aussi le tien dans quelques années ; par la même occasion, tout le Secte du Raffinement de l'Âme t'appartiendra ! Si cet endroit ne te plaît pas, tu pourras abandonner le secte ici présent, mais tu devras te souvenir de ma bonté à ton égard et tenir ta promesse. »
 
-« Ce vieil homme n'exige qu'une seule chose : que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, mon Secte du Raffinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de mon Secte du Raffinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de mon secte : devenir un pays de cultivation de rang 6.
+« Ce vieil homme n'exige qu'une seule chose : que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, mon Secte du Raffinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de mon Secte du Raffinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de mon secte : devenir un pays de cultivation de rang 6. »
 
 « Écoute bien, Ceng Niu ! »
 
@@ -84,7 +85,7 @@ Wang Lin s'inclina également.
 
 Une lueur de joie passa dans les yeux de Du Tian et il hocha discrètement la tête. Puis, il se déplaça sur le côté et pressa sa main contre une paroi. Peu après, des grondements retentirent de toutes parts.
 
-« Ceng Niu, assieds-toi en position du lotus. Mon Secte du Raffinement de l'Âme ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète des Quatre Saints, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon grand frère apprenti et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas ; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
+« Ceng Niu, assieds-toi en position du lotus. Mon Secte du Raffinement de l'Âme ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète des Quatre Saints, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon grand frère apprenti et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas ; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder. »
 
 « Mon Secte du Raffinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en visiterons deux ; si deux ne suffisent pas, nous irons vers une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
 

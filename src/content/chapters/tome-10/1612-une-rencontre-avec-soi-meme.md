@@ -4,7 +4,7 @@ title: Une Rencontre Avec Soi-Même
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1612 - A Meeting With Yourself
-slug: une-rencontre-avec-soi-meme
+slug: une-rencontre-avec-soi-même
 ---
 C'était l'automne de la 35e année depuis que Wang Lin avait quitté Zhao.
 

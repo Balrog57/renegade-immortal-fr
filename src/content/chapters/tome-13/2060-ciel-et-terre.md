@@ -70,21 +70,21 @@ Le rugissement devint plus intense, chargé d'une tristesse et d'une rage infini
 
 La voix pénétra les oreilles de Wang Lin et lui infligea une douleur fulgurante au cœur. Cette souffrance ne pouvait être comparée à celle ressentie lors de la division de son âme, mais pour lui, elle était la chose la plus douloureuse au monde.
 
-« Ciel et Terre !! » La silhouette sur la montagne leva la tête et poussa un rugissement !
+« Ciel et Terre ! ! » La silhouette sur la montagne leva la tête et poussa un rugissement !
 
-« Quel est l'intérêt d'être au sommet des cieux et de la terre ?! »
+« Quel est l'intérêt d'être au sommet des cieux et de la terre ? ! »
 
-« Quel est l'intérêt d'être vénéré par tous ?! »
+« Quel est l'intérêt d'être vénéré par tous ? ! »
 
-« Quel est l'intérêt de transmettre d'innombrables écritures ?! »
+« Quel est l'intérêt de transmettre d'innombrables écritures ? ! »
 
-« Si le monde est ainsi, pourquoi ne pas le détruire ?! »
+« Si le monde est ainsi, pourquoi ne pas le détruire ? ! »
 
-« Si toute vie est ainsi, pourquoi ne pas disparaître ?! »
+« Si toute vie est ainsi, pourquoi ne pas disparaître ? ! »
 
-« Si les écritures sont ainsi, pourquoi ne pas y mettre fin ?! »
+« Si les écritures sont ainsi, pourquoi ne pas y mettre fin ? ! »
 
-« Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour endormir la terre, pour faire refluer le fleuve des enfers, pour arrêter la réincarnation et pour faire en sorte que le monde... n'existe plus du tout !!! »
+« Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour endormir la terre, pour faire refluer le fleuve des enfers, pour arrêter la réincarnation et pour faire en sorte que le monde... n'existe plus du tout ! !! »
 
 La voix était empreinte d'une volonté terrifiante qui se propageait dans toutes les directions. Le cœur de Wang Lin trembla et son corps commença à se désintégrer rapidement, comme s'il était expulsé de cet endroit.
 
@@ -108,7 +108,7 @@ Dans le palais, le tambour résonna.
 
 « Neuvième hommage ! »
 
-« Salutations, Empereur !! » Alors que les voix des membres d'Ancient Shi fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Suprême.
+« Salutations, Empereur ! ! » Alors que les voix des membres d'Ancient Shi fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Suprême.
 
 Ji Du, qui flottait dans le ciel près du tambour, tourna brusquement la tête. Il fixa la statue alors que les vingt-sept halos brillaient intensément. Simultanément, une ombre s'étira et recouvrit la moitié de la statue de l'Ancêtre Suprême.
 
@@ -120,7 +120,7 @@ L'ombre semblait se superposer à la statue, mais en le faisant, l'apparence de 
 
 C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvrir la statue de l'Ancêtre Suprême !
 
-Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme d'Ancient Dao... il a enfin réussi !! Je me demande quel genre de présent il obtiendra de l'Ancêtre Suprême... »
+Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme d'Ancient Dao... il a enfin réussi ! ! Je me demande quel genre de présent il obtiendra de l'Ancêtre Suprême... »
 
 Sur la Montagne de l'Origine, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
 
@@ -138,6 +138,6 @@ C'était une goutte de sang !
 
 Cette goutte dégageait l'aura d'une âme, et à son apparition, toute la cité impériale d'Ancient Shi fut plongée dans un silence de mort !
 
-« Sang d'âme !! » Sur la Montagne de l'Origine, au moment où Song Tian vit le sang, il fut frappé de stupeur et afficha un regard d'incrédulité !
+« Sang d'âme ! ! » Sur la Montagne de l'Origine, au moment où Song Tian vit le sang, il fut frappé de stupeur et afficha un regard d'incrédulité !
 
 « C'est du sang d'âme ! Trois gouttes de sang d'âme peuvent créer un clan Ancient. Il en avait déjà obtenu une auparavant, et maintenant... c'est la deuxième ! » Xuan Luo prit une profonde inspiration. Même lui n'aurait jamais cru que Wang Lin puisse obtenir une seconde goutte de sang d'âme !

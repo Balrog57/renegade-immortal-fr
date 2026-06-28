@@ -4,7 +4,7 @@ title: La Première Bataille Destinée (2)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1312 - The First Predestined Battle (2)
-slug: la-premiere-bataille-destinee-2
+slug: la-première-bataille-destinee-2
 ---
 Le coup de poing de Tuo Sen, après avoir brisé une étoile, était d'une puissance extrême. Bien qu'il ne puisse utiliser que peu de sorts d'Ancien Dieu en raison du manque d'héritage de connaissances, la seule puissance de son corps était capable de bouleverser les cieux.
 
@@ -40,7 +40,7 @@ En leur vol, sept phantoms géants de planètes de cultivation apparurent. C'ét
 
 L'expression de Tuo Sen devint sombre. Lors de la Formation du Royaume Scellé, il avait fait exploser une étoile, et dans la bataille qui venait de se dérouler, il en avait fait exploser une autre. Il ne lui restait plus que six étoiles !
 
-Logiquement, il ne devrait être qu'aussi fort que Wang Lin, mais il était Tuo Sen, et aussi l'Ancien Dieu Tu Si !!!
+Logiquement, il ne devrait être qu'aussi fort que Wang Lin, mais il était Tuo Sen, et aussi l'Ancien Dieu Tu Si ! ! !
 
 Tu Si avait vécu bien trop longtemps. Ce corps n'était pas celui d'un Ancien Dieu à 6 étoiles, mais était infiniment proche de celui d'un Ancien Dieu à 9 étoiles. Bien que ses étoiles fussent brisées, la puissance de son corps était terrifiante !
 
@@ -52,7 +52,7 @@ Après tout, Wang Lin n'avait obtenu que l'héritage de la mémoire, tandis que 
 
 « Une fois que nous fusionnerons, ce dieu atteindra le sommet que j'ai touché par le passé. Tu... ne peux pas résister à cela ! » rugit Tuo Sen avant de s'élancer. Il agita la main et lança un coup de poing vers les sept phantoms planétaires.
 
-« Fusionne avec moi pour que nous atteignions l'apogée de ma puissance royale d'Ancien Dieu. Pourquoi... ne m'obéis-tu pas ?! » hurla Tuo Sen alors que son poing percutait les sept planètes de cultivation.
+« Fusionne avec moi pour que nous atteignions l'apogée de ma puissance royale d'Ancien Dieu. Pourquoi... ne m'obéis-tu pas ? ! » hurla Tuo Sen alors que son poing percutait les sept planètes de cultivation.
 
 Des grondements tonitruants résonnèrent. À chaque collision, le rugissement de Tuo Sen devenait plus fracassant encore, comme si rien au monde ne pouvait entraver sa progression. Les sept âmes planétaires tremblaient violemment, sur le point de s'effondrer.
 
@@ -60,19 +60,19 @@ Dans un fracas, l'une des âmes planétaires explosa sous le coup de Tuo Sen, cr
 
 Même la lumière lunaire qui baignait le domaine stellaire se fragmenta en d'innombrables étincelles avant de se dissiper.
 
-« Intègre-toi à moi pour que je puisse briser la loi de l'héritage et utiliser les puissants sorts de mon clan d'Anciens Dieux ! Ce monde est vaste, et mon clan peut retrouver sa gloire ! Tu... oses ne pas obéir !! » Tuo Sen semblait avoir perdu la raison, et deux autres âmes planétaires furent détruites par lui !
+« Intègre-toi à moi pour que je puisse briser la loi de l'héritage et utiliser les puissants sorts de mon clan d'Anciens Dieux ! Ce monde est vaste, et mon clan peut retrouver sa gloire ! Tu... oses ne pas obéir ! ! » Tuo Sen semblait avoir perdu la raison, et deux autres âmes planétaires furent détruites par lui !
 
 « Tu es incapable d'utiliser l'héritage de la connaissance. Même si tu connais les sorts des Anciens Dieux, tu es impuissant à les pratiquer. Seul moi, Tuo Sen, peux utiliser les sortilèges des Anciens Dieux ! » La distance entre Wang Lin et Tuo Sen se réduisit instantanément. Tuo Sen fonçait comme une météorite, et les quatre dernières âmes planétaires s'effondrèrent toutes !
 
 Les grondements qui en résultèrent devinrent le seul son audible dans son monde. Même le rugissement de Tuo Sen était étouffé par ce tumulte !
 
-« Bien que tu possèdes six étoiles, tu n'as ni l'héritage du pouvoir, ni l'essence de la force. Quel droit as-tu de rivaliser avec moi ?! Dans ce monde, seul moi, Tuo Sen, suis un véritable Ancien Dieu, et je suis le seul qualifié pour obtenir tous les héritages ! » rugit Tuo Sen en chargeant Wang Lin.
+« Bien que tu possèdes six étoiles, tu n'as ni l'héritage du pouvoir, ni l'essence de la force. Quel droit as-tu de rivaliser avec moi ? ! Dans ce monde, seul moi, Tuo Sen, suis un véritable Ancien Dieu, et je suis le seul qualifié pour obtenir tous les héritages ! » rugit Tuo Sen en chargeant Wang Lin.
 
 Au moment où il se rapprochait, les mains de Wang Lin formèrent un sceau et sa paume gauche poussa vers l'avant. Ses yeux brillèrent d'une lueur étrange tandis que toute son énergie originelle et sa puissance d'Ancien Dieu convergeaient vers sa paume. Une empreinte de paume gigantesque apparut et, en un instant, toute l'énergie originelle des environs commença à s'y rassembler.
 
 Puis, l'empreinte se solidifia et chargea vers Tuo Sen !
 
-« Tu n'es qu'un démon de Tu Si, et tu oses te prétendre un dieu ?! » rugit Wang Lin alors que l'empreinte fonçait sur lui. Tuo Sen grogna et leva la main, tentant impitoyablement de déchirer l'empreinte en deux.
+« Tu n'es qu'un démon de Tu Si, et tu oses te prétendre un dieu ? ! » rugit Wang Lin alors que l'empreinte fonçait sur lui. Tuo Sen grogna et leva la main, tentant impitoyablement de déchirer l'empreinte en deux.
 
 Des grondements tonitruants résonnèrent et le vide trembla. Le domaine stellaire du Clan Lunaire sembla sur le point de s'effondrer. L'empreinte de paume fut inopinément fendue en deux par Tuo Sen.
 
@@ -82,7 +82,7 @@ Un rugissement retentit alors que Wang Lin crachait du sang sous l'impact d'un c
 
 Le corps gigantesque de Tuo Sen fut à nouveau freiné par l'attaque de Wang Lin, mais il continua d'avancer. Il ouvrit la bouche et aspira l'air, absorbant une part massive de l'aura d'Ancien Dieu environnante.
 
-« Faible, faible, faible !! Wang Lin, ce dieu t'a donné près de 2 000 ans pour croître, et pourtant tu es toujours aussi médiocre ! » Dans un fracas, Tuo Sen s'écrasa au sol parmi les statues d'Anciens Dieux.
+« Faible, faible, faible ! ! Wang Lin, ce dieu t'a donné près de 2 000 ans pour croître, et pourtant tu es toujours aussi médiocre ! » Dans un fracas, Tuo Sen s'écrasa au sol parmi les statues d'Anciens Dieux.
 
 À l'instant où il toucha terre, le monde trembla violemment. Sa main droite s'éleva dans les airs, obscurcissant le ciel pour atteindre Wang Lin. Il ne voulait pas tuer Wang Lin, mais le capturer vivant !
 
@@ -100,14 +100,14 @@ Un grondement assourdissant secoua le monde. Le Coup Divin libéra toute l'éner
 
 Le poing droit de Tuo Sen trembla et il fut projeté en arrière. Wang Lin, lui, cracha une gerbe de sang et, couvert de rouge, fut violemment projeté au sol !
 
-« Sois détruit par ce dieu !! » La main droite de Tuo Sen était engourdie et son esprit vacillait. Il ne s'attendait pas à ce que Wang Lin ait progressé autant en si peu de temps. Renonçant à sa main, il fit jaillir les six étoiles situées entre ses sourcils pour encercler Wang Lin !
+« Sois détruit par ce dieu ! ! » La main droite de Tuo Sen était engourdie et son esprit vacillait. Il ne s'attendait pas à ce que Wang Lin ait progressé autant en si peu de temps. Renonçant à sa main, il fit jaillir les six étoiles situées entre ses sourcils pour encercler Wang Lin !
 
 Il comptait dévorer Wang Lin comme il l'avait fait pour les cultivateurs du troisième pas !
 
 En ce moment de crise, une lueur étrange brilla dans les yeux de Wang Lin. Il attendait précisément cet instant !
 
-« Tuo Sen, crois-tu vraiment que Tu Si est mort ?! »
+« Tuo Sen, crois-tu vraiment que Tu Si est mort ? ! »
 
-« Quoi ?! » Après ces mots, même l'expression d'un être aussi puissant que Tuo Sen changea radicalement !
+« Quoi ? ! » Après ces mots, même l'expression d'un être aussi puissant que Tuo Sen changea radicalement !
 
 Un bouleversement majeur survint soudainement !

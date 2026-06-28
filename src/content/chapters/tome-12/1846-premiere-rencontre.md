@@ -4,7 +4,7 @@ title: "Première Rencontre !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1846 - Meeting for the First Time!"
-slug: premiere-rencontre
+slug: première-rencontre
 ---
 Chapitre 1846 - Première Rencontre !
 

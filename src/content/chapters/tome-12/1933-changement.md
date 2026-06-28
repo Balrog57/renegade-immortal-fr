@@ -18,17 +18,17 @@ Lors de l'impact, des grondements tonitruants résonnèrent à travers les eaux,
 
 Le visage d'Empyrean Exalt Hai Zi devint pâle et elle fut projetée en arrière. Il s'agissait d'un sort que son maître lui avait enseigné, d'une puissance extrême. Bien qu'elle ne maîtrisât pas encore le second style, cela faisait en sorte que très peu de personnes sous le rang d'Ascendant ne puissent rivaliser avec elle !
 
-Cependant, elle venait de tomber sur Wang Lin !!
+Cependant, elle venait de tomber sur Wang Lin ! !
 
 Wang Lin recula également, la respiration rauque. Alors que l'ombre du Taureau Céleste s'effondrait, l'armure spirituelle qui couvrait son corps montrait des signes de dissipation.
 
-Au moment même où il reculait, les yeux de Wang Lin s'illuminèrent. Il leva la main droite et quatre-vingt-dix-sept images rémanentes apparurent. Il pointa férocement du doigt l'Empyrean Exalt Hai Zi en pleine retraite !!
+Au moment même où il reculait, les yeux de Wang Lin s'illuminèrent. Il leva la main droite et quatre-vingt-dix-sept images rémanentes apparurent. Il pointa férocement du doigt l'Empyrean Exalt Hai Zi en pleine retraite ! !
 
 « Arrête ! »
 
-« Arrête !! »
+« Arrête ! ! »
 
-« Arrête !!! » Wang Lin utilisa le sort « Arrête » une seconde fois face à Empyrean Exalt Hai Zi. Les 97 images rémanentes fusionnèrent, et ce doigt qui lui inspirait terreur, colère et honte fondit sur elle !!
+« Arrête ! !! » Wang Lin utilisa le sort « Arrête » une seconde fois face à Empyrean Exalt Hai Zi. Les 97 images rémanentes fusionnèrent, et ce doigt qui lui inspirait terreur, colère et honte fondit sur elle ! !
 
 « Wang Lin, tu... » Empyrean Exalt Hai Zi n'eut pas le temps de finir sa phrase. En raison de ses blessures, elle fut totalement immobilisée. Son âme originelle étant stoppée et l'octopus ne la soutenant plus, elle commença à sombrer vers les profondeurs de la mer.
 
@@ -48,9 +48,9 @@ L'endroit où il combattait Empyrean Exalt Hai Zi n'était pas loin du fond mari
 
 Il semblait y avoir quelque chose d'étrange dans ces ondulations, mais rien de discernable à l'œil nu.
 
-« Âme non issue du Continent Astral Immortel détectée, sceller ! » Un vague sens divin se propagea à travers l'eau et pénétra l'esprit de Wang Lin, provoquant un immense changement dans son expression !!
+« Âme non issue du Continent Astral Immortel détectée, sceller ! » Un vague sens divin se propagea à travers l'eau et pénétra l'esprit de Wang Lin, provoquant un immense changement dans son expression ! !
 
-« Elle n'est pas morte !! »
+« Elle n'est pas morte ! ! »
 
 Wang Lin sentit son cuir chevelu picoter. Il savait trop bien à quel point cette entité était puissante. Il était sur le point de partir, mais il s'arrêta de nouveau.
 
@@ -68,21 +68,21 @@ Les ondulations dans la mer étaient en réalité une paume brisée qui s'était
 
 « Le sceau de la Mer Montagne est apparu à cause de moi, et en cet instant, c'est moi qui l'ai immobilisée. Si je fuis maintenant en l'abandonnant, je prendrai une décision indigne de mon cœur ! »
 
-« Si je ne peux pas rester fidèle à mes principes, quel droit ai-je de défier les cieux et de ressusciter Wang Er ? Quelle foi aurais-je pour atteindre le sommet ?! Peut-être que d'autres y parviendront, mais moi, Wang Lin, je ne le peux pas ! » Les yeux de Wang Lin brillaient d'une détermination farouche. Il chargea vers Empyrean Exalt Hai Zi !!
+« Si je ne peux pas rester fidèle à mes principes, quel droit ai-je de défier les cieux et de ressusciter Wang Er ? Quelle foi aurais-je pour atteindre le sommet ? ! Peut-être que d'autres y parviendront, mais moi, Wang Lin, je ne le peux pas ! » Les yeux de Wang Lin brillaient d'une détermination farouche. Il chargea vers Empyrean Exalt Hai Zi ! !
 
 Son action fut perçue par Empyrean Exalt Hai Zi, qui était plongée dans le désespoir et la stupeur.
 
-Wang Lin se déplaça très vite et se rapprocha à moins de 400 pieds d'elle, mais malgré sa vitesse, il n'était pas plus rapide que la paume brisée. Celle-ci ne se trouvait plus qu'à moins de 300 pieds d'Empyrean Exalt Hai Zi !!
+Wang Lin se déplaça très vite et se rapprocha à moins de 400 pieds d'elle, mais malgré sa vitesse, il n'était pas plus rapide que la paume brisée. Celle-ci ne se trouvait plus qu'à moins de 300 pieds d'Empyrean Exalt Hai Zi ! !
 
 La paume brisée charriait une férocité, une soif de sang et une folie indicible alors qu'elle ouvrait ses cinq doigts vers l'Exaltée.
 
 Wang Lin pouvait utiliser le sort « Arrête », mais il ne pourrait pas le dissiper à moins que le niveau de cultivation de la cible ne soit bien inférieur au sien. Empyrean Exalt Hai Zi étant une Empyrean Exalt, son niveau de cultivation était en réalité bien supérieur à celui de Wang Lin. Il ne pouvait donc pas briser l'effet en peu de temps.
 
-La Mer Montagne ayant été scellée par elle, la téléportation était impossible. La paume brisée était sur le point de dévorer Empyrean Exalt Hai Zi. Le désespoir emplissait ses yeux quand Wang Lin laissa échapper un rugissement et que les cinq Veines Magiques de son corps entrèrent en éruption. Elles tournèrent à une vitesse folle, propulsant Wang Lin plus vite qu'il ne l'avait jamais été auparavant !!
+La Mer Montagne ayant été scellée par elle, la téléportation était impossible. La paume brisée était sur le point de dévorer Empyrean Exalt Hai Zi. Le désespoir emplissait ses yeux quand Wang Lin laissa échapper un rugissement et que les cinq Veines Magiques de son corps entrèrent en éruption. Elles tournèrent à une vitesse folle, propulsant Wang Lin plus vite qu'il ne l'avait jamais été auparavant ! !
 
-Cette vélocité provenait de l'Art Magique Rapide utilisé à pleine puissance. Tandis que Wang Lin avançait, 97 images rémanentes apparurent, suivies d'une 98e !!
+Cette vélocité provenait de l'Art Magique Rapide utilisé à pleine puissance. Tandis que Wang Lin avançait, 97 images rémanentes apparurent, suivies d'une 98e ! !
 
-98 images rémanentes, ajoutées au corps original, faisaient 99 !!
+98 images rémanentes, ajoutées au corps original, faisaient 99 ! !
 
 En empruntant la puissance de l'image supplémentaire générée par l'Art Magique Rapide, la vitesse de Wang Lin augmenta encore. Lorsque la paume brisée fut à moins de trois pieds d'Empyrean Exalt Hai Zi et qu'une aura féroce allait l'engloutir, une force puissante fut injectée entre la paume et la cible. Empyrean Exalt Hai Zi fut brusquement projetée au loin.
 
@@ -104,13 +104,13 @@ Des grondements assourdissants provoquèrent une houle violente. Les ondulations
 
 Cette paume brisée était également une main gauche !
 
-Alors que les innombrables éclats de lumière pénétraient sa main, une vague de douleur si intense fit pâlir le visage de Wang Lin. Son corps trembla violemment. Tandis qu'une masse de particules fantomatiques s'accumulait, quelque chose ressemblant à un gant noir apparut sur sa main gauche !!
+Alors que les innombrables éclats de lumière pénétraient sa main, une vague de douleur si intense fit pâlir le visage de Wang Lin. Son corps trembla violemment. Tandis qu'une masse de particules fantomatiques s'accumulait, quelque chose ressemblant à un gant noir apparut sur sa main gauche ! !
 
 Sa main était devenue entièrement noire, et le gant commença à se propager vers son bras.
 
 Cette scène terrifiante frappa Empyrean Exalt Hai Zi de stupeur. Le visage de Wang Lin était livide et son regard s'était fait féroce. Sa main gauche était le siège d'une douleur atroce ; il perdait toute autre perception, comme si ce membre ne lui appartenait plus. Il sentait que, par sa progression, les parties du corps touchées cesseraient également d'être les siennes !
 
-Alors que les éclats de lumière formaient ce gant sur sa main gauche, un sentiment de dégoût extrême envahit son esprit. C'était une sensation aussi nette que l'incompatibilité entre le feu et l'eau !!
+Alors que les éclats de lumière formaient ce gant sur sa main gauche, un sentiment de dégoût extrême envahit son esprit. C'était une sensation aussi nette que l'incompatibilité entre le feu et l'eau ! !
 
 Sans la moindre hésitation, une lueur glaciale passa dans les yeux de Wang Lin. Il leva la Lame Yin de sa main droite et trancha sa propre main gauche. La chair fondit rapidement jusqu'à ce qu'il ne reste que la peau, laquelle fusionna avec la mer avant de se précipiter à nouveau vers lui.
 

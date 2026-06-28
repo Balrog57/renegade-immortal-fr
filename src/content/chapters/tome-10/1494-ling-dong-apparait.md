@@ -3,7 +3,7 @@ n: 1494
 title: "Ling Dong apparaît !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1494 - Ling Dong Appears!"
+en: "Chapter 1494 - Ling Dong Appears !"
 slug: ling-dong-apparait
 ---
 Chapitre 1494 - Ling Dong apparaît !
@@ -20,7 +20,7 @@ Leurs rugissements faisaient trembler les cieux, comme si une tempête d'une pui
 
 Le vent hurlait à travers le monde !
 
-« Wang Lin !! Penses-tu vraiment que ce vieil homme ait peur de te combattre ?! Puisque tu veux la guerre, alors nous allons nous battre ! » Le Maître Lu Fu afficha un sourire colérique et agita sa main droite. Une faille spatiale se produisit et une épée brisée apparut devant lui !
+« Wang Lin ! ! Penses-tu vraiment que ce vieil homme ait peur de te combattre ? ! Puisque tu veux la guerre, alors nous allons nous battre ! » Le Maître Lu Fu afficha un sourire colérique et agita sa main droite. Une faille spatiale se produisit et une épée brisée apparut devant lui !
 
 Cette épée brisée n'avait que la moitié d'une lame, mais une netteté absolue balaya le monde, formant un rayon d'énergie tranchante indescriptible qui fonça vers Wang Lin !
 
@@ -56,7 +56,7 @@ Les yeux de Wang Lin restaient aussi calmes qu'une eau dormante alors qu'il obse
 
 Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Ses yeux s'illuminèrent ; il ne parvenait pas à comprendre comment Wang Lin pouvait rester aussi serein !
 
-« Peu importe sa force, il est impossible qu'il ait supprimé sa cultivation pour que je ne puisse pas le percer à jour. Ce calme est étrange !! Je veux voir jusqu'où il peut rester ainsi ! »
+« Peu importe sa force, il est impossible qu'il ait supprimé sa cultivation pour que je ne puisse pas le percer à jour. Ce calme est étrange ! ! Je veux voir jusqu'où il peut rester ainsi ! »
 
 Tout cela se produisit en un instant. L'épée brisée chargea tandis que le royaume fantôme libérait une énergie spirituelle céleste monstrueuse. Des volutes de Flammes Joss enveloppèrent son corps.
 
@@ -84,7 +84,7 @@ C'était la première fois que Wang Lin révélait pleinement sa puissance de Di
 
 Les pupilles du Maître Lu Fu se contractèrent, mais il n'avait aucune intention de reculer. En un clin d'œil, il se retrouva à moins de cinq cents pieds de Wang Lin ! Le regard de ce dernier restait calme, et cette sérénité suffisait à terrifier autrui et empêchait le Maître Lu Fu de déceler la moindre faille !
 
-« Quel sort utilise-t-il ?! Si ce n'est que cette aura, il ne fera pas le poids face à ma formation planétaire ! »
+« Quel sort utilise-t-il ? ! Si ce n'est que cette aura, il ne fera pas le poids face à ma formation planétaire ! »
 
 Juste au moment où le Maître Lu Fu allait percuter et que ses pensées fusaient, le soupir de Wang Lin se fit entendre. Il agita la main droite en direction de son front et le Fourneau de l'Empereur apparut.
 
@@ -94,9 +94,9 @@ Dès l'apparition de l'Estimé Ling Dong, l'aura d'un véritable cultivateur de 
 
 Une immense faille spatiale apparut au-dessus de lui. À l'intérieur se trouvait un océan pourpre monstrueux, et d'infinies Flammes Joss remplissaient cet océan pourpre !
 
-« Un cultivateur de la troisième étape !! » Le Maître Lu Fu changea de visage comme jamais auparavant. Il s'arrêta net, les yeux écarquillés par l'incrédulité !
+« Un cultivateur de la troisième étape ! ! » Le Maître Lu Fu changea de visage comme jamais auparavant. Il s'arrêta net, les yeux écarquillés par l'incrédulité !
 
-« Il y a un autre cultivateur de la troisième étape !! C'est là son atout, la raison de son calme olympien !! Il... Quelle est donc son identité pour posséder... un cultivateur de la troisième étape comme esclave ?! »
+« Il y a un autre cultivateur de la troisième étape ! ! C'est là son atout, la raison de son calme olympien ! ! Il... Quelle est donc son identité pour posséder... un cultivateur de la troisième étape comme esclave ? ! »
 
 Bien que le Maître Lu Fu ait vécu des dizaines de milliers d'années, il fut profondément choqué par l'apparition de l'Estimé Ling Dong.
 
@@ -104,7 +104,7 @@ Il comprit enfin pourquoi Wang Lin était si calme face à ses sorts, pourquoi i
 
 Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui émanaient de la faille spatiale au-dessus de l'Estimé Ling Dong. Une telle quantité de Flammes Joss dépassait tout ce qu'il pouvait imaginer !
 
-« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape ?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Si un tel être existait, il n'y avait même plus besoin de parler des autres.
+« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape ? ! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Si un tel être existait, il n'y avait même plus besoin de parler des autres.
 
 Le Maître Flamespark fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de cultivation ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave !
 
@@ -112,7 +112,7 @@ Esclave Antique, Esclave Antique !
 
 Comment quelqu'un ayant entendu ces deux mots pourrait-il ignorer l'identité de Ling Dong ?
 
-Il était tout à fait normal pour un cultivateur d'avoir un esclave, mais cet esclave... cet esclave était un cultivateur de la troisième étape !!
+Il était tout à fait normal pour un cultivateur d'avoir un esclave, mais cet esclave... cet esclave était un cultivateur de la troisième étape ! !
 
 Même dans le Royaume Extérieur, une telle nouvelle provoquerait une onde de choc monumentale, et plus encore dans le Royaume Intérieur, où l'on ne voyait qu'exceptionnellement un cultivateur de la troisième étape tous les dizaines de milliers d'années !
 
@@ -124,4 +124,4 @@ Cet homme était un cultivateur de la troisième étape !
 
 L'esprit du Maître Flamespark vacilla et devint vide. Ses yeux devinrent vitreux.
 
-« Il... Quelle fortune a-t-il donc rencontrée... Non seulement il peut affronter un cultivateur de la troisième étape, mais il possède carrément un esclave de la troisième étape... La troisième étape... La troisième étape !!! Je n'ai rencontré que le Maître Lu Fu en des dizaines de milliers d'années. C'est... je ne peux pas y croire... Je ne peux pas le croire !!! » L'esprit du Maître Flamespark était plongé dans la confusion. Il ne pouvait concevoir ce qu'il voyait : un cultivateur de la troisième étape était l'esclave de Wang Lin !
+« Il... Quelle fortune a-t-il donc rencontrée... Non seulement il peut affronter un cultivateur de la troisième étape, mais il possède carrément un esclave de la troisième étape... La troisième étape... La troisième étape ! !! Je n'ai rencontré que le Maître Lu Fu en des dizaines de milliers d'années. C'est... je ne peux pas y croire... Je ne peux pas le croire ! !! » L'esprit du Maître Flamespark était plongé dans la confusion. Il ne pouvait concevoir ce qu'il voyait : un cultivateur de la troisième étape était l'esclave de Wang Lin !

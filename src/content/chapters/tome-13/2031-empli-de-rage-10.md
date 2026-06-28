@@ -16,7 +16,7 @@ Pour ne pas décevoir son maître, il aurait pu s'agenouiller, offrir des tréso
 
 Cependant, cette pensée n'était qu'un luxe, un rêve irréel.
 
-Il avait enduré encore et encore, mais désormais, il ne pouvait plus supporter. Puisque les choses en étaient ainsi, il n'y avait plus besoin d'endurer !!!
+Il avait enduré encore et encore, mais désormais, il ne pouvait plus supporter. Puisque les choses en étaient ainsi, il n'y avait plus besoin d'endurer ! !!
 
 Sous le regard de l'assemblée, Wang Lin éclata d'un rire tonitruant tourné vers le ciel, jusqu'à ce que des larmes coulent sur son visage. Ces larmes étaient amères ; elles contenaient ses milliers d'années de détermination et son caractère indomptable, elles incarnaient la dévotion de Wang Lin envers sa propre conscience et envers ceux qui lui avaient témoigné de la bonté.
 
@@ -30,7 +30,7 @@ Lorsque ce rire atteignit les oreilles de Xuan Luo, ce fut comme si une paire de
 
 « Je tiens énormément à l'amour, car l'amour me permet de persévérer... » Des larmes coulèrent sur le visage de Wang Lin alors qu'il riait en parlant seul.
 
-Le rire de Wang Lin atteignit également les oreilles de l'Empereur Dao Antique. Ce son était d'une violence extrême pour lui, et son cœur trembla. Sans hésiter, il pointa Wang Lin du doigt et rugit : « Tuez-le !! »
+Le rire de Wang Lin atteignit également les oreilles de l'Empereur Dao Antique. Ce son était d'une violence extrême pour lui, et son cœur trembla. Sans hésiter, il pointa Wang Lin du doigt et rugit : « Tuez-le ! ! »
 
 Au sein du clan Antique, là où le pouvoir impérial régnait en maître, et dans le palais de l'Empereur Dao Antique, l'ordre de l'empereur devait être exécuté immédiatement. Pourtant, à cet instant, mis à part les mille personnes proches du palais, les dizaines de milliers d'autres alentour, y compris ceux que Wang Lin avait ressuscités, restèrent silencieux.
 
@@ -38,11 +38,11 @@ Ils avaient tout été témoins : ils avaient vu la cause et l'effet, la douleur
 
 C'était un choix entre le pouvoir impérial et leur conscience, et la majorité hésitait. Cependant, des milliers de personnes, encore endoctrinées par le pouvoir impérial, poussèrent un rugissement et chargèrent Wang Lin.
 
-« Maître !! » Wang Lin se retourna soudainement, ignorant totalement ceux qui fonçaient sur lui. Il fixa Xuan Luo d'un regard résolu.
+« Maître ! ! » Wang Lin se retourna soudainement, ignorant totalement ceux qui fonçaient sur lui. Il fixa Xuan Luo d'un regard résolu.
 
-« Veuillez laisser le Disciple vous appeler "Maître"... une dernière fois ! Le Disciple ne peut rembourser la bonté que vous m'avez témoignée. La seule façon de vous rendre la pareille est de mourir une fois, et alors, moi, Wang Lin, n'aurai plus aucun lien avec l'Empereur Dao Antique !! »
+« Veuillez laisser le Disciple vous appeler "Maître"... une dernière fois ! Le Disciple ne peut rembourser la bonté que vous m'avez témoignée. La seule façon de vous rendre la pareille est de mourir une fois, et alors, moi, Wang Lin, n'aurai plus aucun lien avec l'Empereur Dao Antique ! ! »
 
-« Désormais, tout ce que je, Wang Lin, ferai n'aura plus aucun rapport... avec Maître !! Tout ce que je ferai, j'en assumerai la responsabilité !! » Wang Lin leva soudainement sa main droite alors que les milliers de personnes approchaient et que Xuan Luo s'apprêtait à agiter sa manche.
+« Désormais, tout ce que je, Wang Lin, ferai n'aura plus aucun rapport... avec Maître ! ! Tout ce que je ferai, j'en assumerai la responsabilité ! ! » Wang Lin leva soudainement sa main droite alors que les milliers de personnes approchaient et que Xuan Luo s'apprêtait à agiter sa manche.
 
 Wang Lin regarda Xuan Luo, et sa main droite s'abattit sans pitié sur son propre crâne. Ce coup contenait son amour pour Xuan Luo ; ce coup contenait l'explosion de la rage inextinguible de Wang Lin !
 
@@ -60,19 +60,19 @@ Xuan Luo contempla cette silhouette devenue un chaos de chair et de sang, et ver
 
 C'est à cet instant qu'une scène étrange se produisit. Les débris de chair et de sang issus de l'explosion du corps de Wang Lin se rassemblèrent rapidement. En un clin d'œil, un nouveau Wang Lin fut formé !
 
-Il cracha une bouffée de sang, le visage extrêmement pâle. Aujourd'hui, il avait utilisé une fois son précieux sort des Trois Vies !!
+Il cracha une bouffée de sang, le visage extrêmement pâle. Aujourd'hui, il avait utilisé une fois son précieux sort des Trois Vies ! !
 
-Il était déjà mort une fois !!!
+Il était déjà mort une fois ! !!
 
-Après sa résurrection, il n'était plus le disciple de Xuan Luo, et il n'avait plus aucun lien avec l'Empereur Dao Antique. Il n'avait plus à tenir compte de la position de quiconque, ni à se réprimer sans cesse. Il allait faire ce qu'il voulait et reprendre Wan Er, qui lui appartenait !!
+Après sa résurrection, il n'était plus le disciple de Xuan Luo, et il n'avait plus aucun lien avec l'Empereur Dao Antique. Il n'avait plus à tenir compte de la position de quiconque, ni à se réprimer sans cesse. Il allait faire ce qu'il voulait et reprendre Wan Er, qui lui appartenait ! !
 
-« Ye Dao !! » Wang Lin lâcha un rugissement qui déchira les cieux. Ce cri était l'éruption de toute la colère qu'il avait refoulée. C'était un rugissement venu des profondeurs de son âme !
+« Ye Dao ! ! » Wang Lin lâcha un rugissement qui déchira les cieux. Ce cri était l'éruption de toute la colère qu'il avait refoulée. C'était un rugissement venu des profondeurs de son âme !
 
 À cet instant, une intention meurtrière monstrueuse jaillit du corps de Wang Lin sans aucune retenue. Cette intention fit basculer le monde, comme s'il venait de surgir des enfers. Il s'élança avec férocité, folie et soif de sang.
 
-L'expression de l'Empereur Dao Antique changea ; il recula de quelques pas avant de rugir : « Tuez-le !! » Les quelque mille personnes devant le palais et les milliers qui avaient chargé s'élancèrent tous sur Wang Lin. Même s'il ne s'agissait que d'utiliser leurs corps comme boucliers, ils devaient défendre le pouvoir impérial. On ignorait si c'était là leur gloire ou leur tragédie.
+L'expression de l'Empereur Dao Antique changea ; il recula de quelques pas avant de rugir : « Tuez-le ! ! » Les quelque mille personnes devant le palais et les milliers qui avaient chargé s'élancèrent tous sur Wang Lin. Même s'il ne s'agissait que d'utiliser leurs corps comme boucliers, ils devaient défendre le pouvoir impérial. On ignorait si c'était là leur gloire ou leur tragédie.
 
-« Quiconque se mettra à nouveau en travers de mon chemin mourra pour de bon cette fois !! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait et décochait un coup de poing. Les dizaines de personnes devant lui poussèrent des cris déchirants en explosant, mais les membres du clan Antique derrière eux continuaient de charger.
+« Quiconque se mettra à nouveau en travers de mon chemin mourra pour de bon cette fois ! ! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait et décochait un coup de poing. Les dizaines de personnes devant lui poussèrent des cris déchirants en explosant, mais les membres du clan Antique derrière eux continuaient de charger.
 
 Wang Lin piétina le sang sous ses pas tandis qu'il progressait. Il n'était pas rapide, mais chaque enjambée couvrait des centaines de pieds. Des rivières de sang s'écoulaient alors qu'il se frayait un chemin dans le massacre.
 

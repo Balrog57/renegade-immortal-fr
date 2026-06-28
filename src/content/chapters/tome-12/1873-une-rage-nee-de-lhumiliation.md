@@ -3,7 +3,7 @@ n: 1873
 title: "Une rage née de l'humiliation !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1873 - Fly Into Rage Out of Humiliation!"
+en: "Chapter 1873 - Fly Into Rage Out of Humiliation !"
 slug: une-rage-nee-de-lhumiliation
 ---
 Chapitre 1873 - Une rage née de l'humiliation !
@@ -18,7 +18,7 @@ Une fois la fusion accomplie, il n'aurait plus à tenir compte de l'opinion de q
 
 « Ancien Wang Lin, je ne m'attendais pas à ce que vous agissiez ainsi... Avec votre niveau de cultivation, comment auriez-vous pu tuer un cultivateur de la Tribulation du Vide ? Il aurait été préférable d'admettre votre incapacité à l'affronter et d'éviter le combat. Personne n'en aurait fait cas, même si de nombreux membres du troisième méridien ont péri ! »
 
-« Mais bien qu'ils soient morts, ils sont morts avec bravoure. Je ne les oublierai pas, personne ici ne les oubliera, et le Continent du Taureau Céleste ne les oubliera jamais !! »
+« Mais bien qu'ils soient morts, ils sont morts avec bravoure. Je ne les oublierai pas, personne ici ne les oubliera, et le Continent du Taureau Céleste ne les oubliera jamais ! ! »
 
 « Rangez cette tête et retirez-vous. Je peux faire comme si de rien n'était. Sinon, si vous continuez à jouer la comédie pour vous attribuer des mérites, je pourrais vous tuer sans même demander l'avis de l'Ancêtre ! »
 
@@ -54,15 +54,15 @@ Il s'agissait de celle de Xu Decai, un cultivateur de la Tribulation du Vide du 
 
 À l'instant où la tête apparut, le palais souterrain fut plongé dans un silence de mort. Tous les regards se fixèrent sur elle. Même les trois cultivateurs de la Tribulation du Vide de la secte voisine se redressèrent brusquement !
 
-« C'est lui !! »
+« C'est lui ! ! »
 
-« Xu Decai !! Je l'ai affronté lors de la première bataille. Il lance ses sorts avec une rapidité fulgurante. Un cultivateur ordinaire de même niveau ne ferait pas le poids face à lui ! »
+« Xu Decai ! ! Je l'ai affronté lors de la première bataille. Il lance ses sorts avec une rapidité fulgurante. Un cultivateur ordinaire de même niveau ne ferait pas le poids face à lui ! »
 
-« Je me demandais pourquoi il n'était pas apparu lors du second combat. Il s'avère que... il a été tué par l'Ancien Wang !! »
+« Je me demandais pourquoi il n'était pas apparu lors du second combat. Il s'avère que... il a été tué par l'Ancien Wang ! ! »
 
 Les trois hommes haletèrent, échangeant des regards chargés de terreur et de choc !
 
-L'expression de Yan Lu changea également, et elle se leva instinctivement. Elle fixa la tête de Xu Decai, incapable d'y croire. Elle trouvait déjà insensé que Wang Lin ait pu en tuer un, mais voilà qu'un second apparaissait !!
+L'expression de Yan Lu changea également, et elle se leva instinctivement. Elle fixa la tête de Xu Decai, incapable d'y croire. Elle trouvait déjà insensé que Wang Lin ait pu en tuer un, mais voilà qu'un second apparaissait ! !
 
 Xu Dongde, lui aussi, sentit son cœur trembler. Pour la première fois, il regarda Wang Lin avec une profonde crainte. S'il s'était manifesté plus tôt, c'était uniquement parce que l'arrogance de Lu Wenran l'avait irrité. Désormais, il avait le sentiment que son intervention était d'une justesse absolue !
 
@@ -70,7 +70,7 @@ Si ce Wang Lin n'était pas à la hauteur, alors personne ici ne l'était !
 
 Quant au vieil homme nommé Zhou, son visage devint livide. Il se souvenait parfaitement de son manque de respect envers Wang Lin et de ses paroles déplacées. À cette pensée, il fut envahi par une sueur froide.
 
-« Ce démon !! Il détient les têtes de deux cultivateurs de la Tribulation du Vide. Il est impossible qu'il ait récupéré les deux après que d'autres les aient tués. »
+« Ce démon ! ! Il détient les têtes de deux cultivateurs de la Tribulation du Vide. Il est impossible qu'il ait récupéré les deux après que d'autres les aient tués. »
 
 Les mille et plus de cultivateurs en contrebas réfléchirent un instant, avant qu'un tumulte encore plus violent qu'auparavant n'éclate. Pour eux, les cultivateurs de la Tribulation du Vide étaient des êtres divins bien au-dessus de leur portée. Voir Wang Lin brandir les têtes de deux tels êtres était un choc trop immense.
 
@@ -78,7 +78,7 @@ Les mille et plus de cultivateurs en contrebas réfléchirent un instant, avant 
 
 « Puis, ce même vieil homme est apparu lors de ma patrouille pour tuer le second cultivateur du Continent du Démon Vert. J'ai également été témoin de la scène et j'ai coupé la tête du cadavre », déclara Wang Lin d'un ton lugubre en fixant Lu Wenran, dont l'expression se décomposait rapidement.
 
-Le cœur de Lu Wenran s'emballa comme une lame de fond. En contemplant la tête de Xu Decai, il sentit son cuir chevelu s'engourdir. Il regarda Wang Lin, n'imaginant pas qu'il ait pu terrasser deux cultivateurs de la Tribulation du Vide au début de leur ascension. Même pour lui, ces êtres n'étaient pas une plaisanterie !!
+Le cœur de Lu Wenran s'emballa comme une lame de fond. En contemplant la tête de Xu Decai, il sentit son cuir chevelu s'engourdir. Il regarda Wang Lin, n'imaginant pas qu'il ait pu terrasser deux cultivateurs de la Tribulation du Vide au début de leur ascension. Même pour lui, ces êtres n'étaient pas une plaisanterie ! !
 
 Xu Decai était si célèbre sur le Continent du Démon Vert que Lu Wenran en avait entendu parler. Il savait que sa vitesse d'incantation était terrifiante. Lors de la première bataille, lorsqu'il affronta Zhang Daozong, il l'avait reconnu !
 
@@ -86,7 +86,7 @@ Après la déclaration de Wang Lin, le visage de Lu Wenran se crispa et il repri
 
 « Je n'ai pas vu ce vieil homme insondable, mais puisqu'il a agi une fois, il est possible qu'il ait agi une seconde ! Quant au fait que vous possédiez ces têtes, je ne peux que dire que votre chance est insolente. Vous... » Les paroles de Lu Wenran furent interrompues par le rire de Wang Lin.
 
-Alors qu'il riait, Wang Lin leva la main gauche et une âme spectrale apparut dans sa paume. L'âme poussa un cri déchirant : c'était l'apparence même de Xu Decai !!
+Alors qu'il riait, Wang Lin leva la main gauche et une âme spectrale apparut dans sa paume. L'âme poussa un cri déchirant : c'était l'apparence même de Xu Decai ! !
 
 « Lu Wenran, regarde ce que c'est ! » lança Wang Lin en le fixant intensément !
 

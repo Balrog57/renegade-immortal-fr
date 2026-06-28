@@ -4,7 +4,7 @@ title: Me punir moi-même
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1633 - Punish Myself
-slug: me-punir-moi-meme
+slug: me-punir-moi-même
 ---
 Après plusieurs tentatives, il décida d'utiliser le sort « Arrêt » pour geler l'esprit de son adversaire et sceller le sien, afin que l'ennemi ne puisse pas lire ses pensées.
 

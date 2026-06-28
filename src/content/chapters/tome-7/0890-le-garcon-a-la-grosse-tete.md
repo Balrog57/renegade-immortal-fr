@@ -4,7 +4,7 @@ title: Le garçon à la grosse tête
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 890 - Big-headed Boy
-slug: le-garcon-a-la-grosse-tete
+slug: le-garcon-a-la-grosse-tête
 ---
 Le regard du garçon à la grosse tête était empli d'horreur. Il cracha un jet de sang et tout son corps fut enveloppé par une lueur sanglante. Il recula à une vitesse inimaginable.
 

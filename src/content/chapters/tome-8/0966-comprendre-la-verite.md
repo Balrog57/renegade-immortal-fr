@@ -4,7 +4,7 @@ title: Comprendre la vérité
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 966 - Understanding the Truth
-slug: comprendre-la-verite
+slug: comprendre-la-vérité
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 

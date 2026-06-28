@@ -14,7 +14,7 @@ Xu Liguo s'était métamorphosé en une brume noire et fuyait à toute allure. I
 
 Les yeux de la superbe femme étaient emplis de dédain lorsqu'elle lança froidement : « Tu ne peux pas t'échapper. Dès que tu m'as capturée, tu as déclenché une immense calamité ! Ce n'est qu'un simple Ancien et tu prends déjà la fuite ? Il ne faudra pas longtemps avant que mon père ne sorte de sa cultivation en isolement pour te raffiner en une âme de tonnerre, afin que tu sois tourmenté pendant des milliers d'années pour apaiser la haine dans mon cœur ! »
 
-Xu Liguo émergea de la brume, lui asséna une gifle et hurla avec colère : « Ferme-la ! Qu'est-ce que ton Grand-père Xu n'a pas vu ou vécu ? Qu'est-ce que cela représente ?! »
+Xu Liguo émergea de la brume, lui asséna une gifle et hurla avec colère : « Ferme-la ! Qu'est-ce que ton Grand-père Xu n'a pas vu ou vécu ? Qu'est-ce que cela représente ? ! »
 
 Une intention meurtrière traversa le regard de la magnifique femme ; elle laissa échapper un ricanement glacial et cracha une bouchée de sang.
 
@@ -44,7 +44,7 @@ En voyant l'acte de Xu Liguo, il laissa échapper un rugissement. Sa main droite
 
 La boule de tonnerre suivait le mouvement de la main du vieil homme. Elle déchira l'espace et chargea Xu Liguo !
 
-« Merde, encore ça !! » hurla Xu Liguo en retirant sa main pour se transformer en brume noire et se disperser. À l'instant même où il se dissipa, la sphère de tonnerre noir frappa.
+« Merde, encore ça ! ! » hurla Xu Liguo en retirant sa main pour se transformer en brume noire et se disperser. À l'instant même où il se dissipa, la sphère de tonnerre noir frappa.
 
 Un bang tonitruant retentit, faisant trembler la terre et provoquant d'innombrables fissures spatiales. Le tonnerre se propagea dans toutes les directions tandis que le vacarme persistait !
 
@@ -60,17 +60,17 @@ Saisissant cette opportunité, Xu Liguo battit en retraite et rugit : « Vieil h
 
 Une vapeur noire s'échappa du visage du vieil homme qui poursuivait Xu Liguo ; sa colère atteignait son paroxysme. Il avait vécu de nombreuses années, mais n'avait jamais rencontré un ennemi aussi venimeux. Tout au long de la poursuite, l'autre partie ne cessait de l'insulter, et bien que son cœur fût habituellement calme comme l'eau, il ne put s'empêcher de s'enflammer de rage !
 
-« Quand je t'aurai attrapé, je ferai en sorte que tu regrettes d'être né !!! »
+« Quand je t'aurai attrapé, je ferai en sorte que tu regrettes d'être né ! ! ! »
 
 « Vieux fou, tu ne peux pas dire autre chose ? Tu as déjà répété ça cent fois ! Cent fois, ah, cent fois... Dis-moi, vieil homme, est-ce que tu veux me regarder profiter de cette petite fille ? Est-ce pour cela que tu n'as pas réussi à atteindre le stade du Purificateur Nirvana ? Veux-tu que je le fasse encore cent fois ? » lança Xu Liguo avec malveillance en se téléportant. Bien qu'il fût affaibli, tel une lampe à huile presque vide, ses paroles n'en devenaient que plus cruelles !
 
 « Très bien, ton Grand-père Xu va te laisser voir tout ce que tu veux ! » La main droite de Xu Liguo s'abattit sur la magnifique femme et déchira ses vêtements. Une grande partie de son habit fut arrachée, révélant sa peau blanche comme neige.
 
-La haine dans les yeux de la femme devint monstrueuse et elle hurla : « Je vais te tuer !!! »
+La haine dans les yeux de la femme devint monstrueuse et elle hurla : « Je vais te tuer ! ! ! »
 
 « Ferme-la, petite femme. Si tu continues à mettre ton grand-père en colère, je prendrai le contrôle de ton corps. Tu sais que je suis un esprit, je peux facilement posséder ton corps ! Et alors, je commencerai à me déshabiller ! » Bien qu'Xu Liguo parlât avec méchanceté, son cœur était amer.
 
-« Maître, si vous ne revenez pas, votre Grand-père Xu est fini !! C'est vous qui m'avez laissé sortir, mais maintenant vous m'ignorez !!! Maître, je vous en prie, apparaissez !! »
+« Maître, si vous ne revenez pas, votre Grand-père Xu est fini ! ! C'est vous qui m'avez laissé sortir, mais maintenant vous m'ignorez ! ! ! Maître, je vous en prie, apparaissez ! ! »
 
 En entendant ces paroles, le visage de la femme pâlit. Elle se tut immédiatement, n'osant plus pronter le moindre son.
 
@@ -82,7 +82,7 @@ Soudain, une voix douce résonna dans le monde : « Quel esprit d'épée à la l
 
 Un homme d'âge moyen vêtu de bleu apparut avec cette voix. Son apparition fut extrêmement bizarre, se tenant juste sur la trajectoire de fuite de Xu Liguo !
 
-La magnifique femme s'écria instantanément de joie : « Parrain !! »
+La magnifique femme s'écria instantanément de joie : « Parrain ! ! »
 
 « Un Brisueur de Nirvana au sommet ! » Les pupilles de Xu Liguo se rétractèrent et son corps trembla. Juste au moment où il allait battre en retraite, l'homme d'âge moyen leva la main droite et fit un geste nonchalant.
 
@@ -98,7 +98,7 @@ Des grondements tonitruants retentirent et Xu Liguo s'effondra une fois de plus.
 
 « Au lieu de te tuer d'un coup, je vais te laisser te désintégrer lentement pour que tu goûtes à la peur de la mort encore et encore ! » La voix de l'homme d'âge moyen restait douce, tandis que la magnifique femme à ses côtés était habitée par une haine monstrueuse !
 
-« Maître, sauvez-moi. Si vous ne me sauvez pas, je vais mourir !! » Xu Liguo était terrifié. S'il n'avait pas provoqué la femme au point de ne plus pouvoir faire marche arrière, il se serait depuis longtemps rendu.
+« Maître, sauvez-moi. Si vous ne me sauvez pas, je vais mourir ! ! » Xu Liguo était terrifié. S'il n'avait pas provoqué la femme au point de ne plus pouvoir faire marche arrière, il se serait depuis longtemps rendu.
 
 « C'est vrai, tu as encore un Maître. Je veux voir quel est le cran de ton Maître pour me provoquer. Il devra être enterré avec toi ! » L'homme d'âge moyen afficha un sourire serein.
 
@@ -112,7 +112,7 @@ Des grondements tonitruants éclatèrent et le monde entier fut submergé par le
 
 Wang Lin sortit de la tempête de foudre.
 
-« Maître !! Maître, sauvez-moi !!! » Xu Liguo n'avait jamais été dans un tel état ; il n'avait jamais semblé aussi joyeux de voir Wang Lin apparaître. Envahi par le sentiment d'injustice, il vola vers lui.
+« Maître ! ! Maître, sauvez-moi ! ! ! » Xu Liguo n'avait jamais été dans un tel état ; il n'avait jamais semblé aussi joyeux de voir Wang Lin apparaître. Envahi par le sentiment d'injustice, il vola vers lui.
 
 Cependant, le vieil homme en vert, qui détestait Xu Liguo au plus haut point, leva inconsciemment la main droite pour l'intercepter. Mais le prix de ce geste instinctif fut la mort !
 

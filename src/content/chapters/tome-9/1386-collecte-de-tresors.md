@@ -40,17 +40,17 @@ Il craignait que s'il était trop lent, tous ses trésors ne soient repris un pa
 
 Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva soudainement ses esprits. Il s'arrêta, l'expression empreinte d'incertitude.
 
-« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs de la Fléau Céleste ! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui ?! » Greed serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même !
+« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs de la Fléau Céleste ! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui ? ! » Greed serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même !
 
 « Ce vieil homme ne fuira plus, je vais tuer Wang Lin et me venger ! » Une intention meurtrière apparut dans les yeux de Greed et il fit demi-tour, prêt à repartir.
 
 Cependant, à cet instant précis, son expression changea radicalement. Son corps trembla et ses pupilles se rétractèrent.
 
-« Le Sens Divin sur les 99 épées a été effacé par la force !! Bon sang, quel est le niveau de cultivation de Wang Lin pour être capable d'effacer mon Sens Divin ainsi ?! » Greed marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
+« Le Sens Divin sur les 99 épées a été effacé par la force ! ! Bon sang, quel est le niveau de cultivation de Wang Lin pour être capable d'effacer mon Sens Divin ainsi ? ! » Greed marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
 
 Des pensées fulgurèrent dans ses yeux et il chargea vers Wang Lin... Cependant, il ne fit que trois pas avant de s'arrêter, le visage livide, saisi par le choc.
 
-« Le Sens Divin des Neuf Tablettes de Protection Osseuse a... a été effacé par la force !! J'ai trouvé ces tablettes à l'extérieur de cette tombe mystérieuse, et elles n'avaient pas porté d'empreinte de Sens Divin depuis des dizaines de milliers d'années. Mon Sens Divin y était totalement intégré, personne ne devrait pouvoir l'effacer si facilement... Comment a-t-il pu effacer mon Sens Divin en un temps si court ?! »
+« Le Sens Divin des Neuf Tablettes de Protection Osseuse a... a été effacé par la force ! ! J'ai trouvé ces tablettes à l'extérieur de cette tombe mystérieuse, et elles n'avaient pas porté d'empreinte de Sens Divin depuis des dizaines de milliers d'années. Mon Sens Divin y était totalement intégré, personne ne devrait pouvoir l'effacer si facilement... Comment a-t-il pu effacer mon Sens Divin en un temps si court ? ! »
 
 Greed commença à hésiter. Il pressentait que la cultivation de Wang Lin n'était pas simple !
 
@@ -58,11 +58,11 @@ Greed commença à hésiter. Il pressentait que la cultivation de Wang Lin n'ét
 
 Pourtant... Après seulement trois respirations, un bruit de craquement résonna dans le corps de Greed. Il cracha du sang, son visage devint livide et son expression changea radicalement !
 
-« La Lance du Démon de Brume... a été prise !! » Greed fut terrifié, la peur l'envahissant totalement. À cet instant, il n'avait plus aucune intention de chercher querelle à Wang Lin. L'unique pensée de s'échapper occupa à nouveau son esprit.
+« La Lance du Démon de Brume... a été prise ! ! » Greed fut terrifié, la peur l'envahissant totalement. À cet instant, il n'avait plus aucune intention de chercher querelle à Wang Lin. L'unique pensée de s'échapper occupa à nouveau son esprit.
 
 Sans hésiter, Greed fit volte-face et s'enfuit au loin à plus de 90 fois sa vitesse normale !
 
-« Némésis, némésis !!! Ce maudit Wang Lin est ma némésis !!! » Les paroles de Greed étaient empreintes d'amertume, d'une immense réticence et de colère, mais surtout d'un sentiment... d'injustice !
+« Némésis, némésis ! ! ! Ce maudit Wang Lin est ma némésis ! ! ! » Les paroles de Greed étaient empreintes d'amertume, d'une immense réticence et de colère, mais surtout d'un sentiment... d'injustice !
 
 Il avait survécu au Moongazer après avoir frôlé la mort certaine et avait trouvé de grandes opportunités. Il avait obtenu des trésors plus puissants et pensait pouvoir ébranler le monde.
 
@@ -70,7 +70,7 @@ Cependant, avant même de pouvoir profiter de cette vie nouvelle, il rencontra �
 
 Après quelques respirations, le corps de Greed trembla ; il rugit et cracha de nouveau du sang. Son corps était instable tandis qu'il fuyait avec précipitation.
 
-« Maudite némésis !!! Il a même volé mon Fourneau Impérial !!! Mon Fourneau Impérial !! » Le cœur de Greed se serra, comme si une main s'était introduite dans sa poitrine pour en arracher un morceau de chair.
+« Maudite némésis ! ! ! Il a même volé mon Fourneau Impérial ! ! ! Mon Fourneau Impérial ! ! » Le cœur de Greed se serra, comme si une main s'était introduite dans sa poitrine pour en arracher un morceau de chair.
 
 « Je n'aurais pas dû sortir autant de trésors devant le Clan de l'Évasion des Nuages ! Si j'en avais pris un seul, ou même aucun... » Greed regrettait ses actes alors qu'il s'échappait, le visage pâle.
 

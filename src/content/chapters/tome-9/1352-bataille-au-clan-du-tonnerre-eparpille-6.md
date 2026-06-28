@@ -3,7 +3,7 @@ n: 1352
 title: "Bataille au Clan du Tonnerre Éparpillé ! (6)"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1352 - Battle at the Scatter Thunder Clan! (6)"
+en: "Chapter 1352 - Battle at the Scatter Thunder Clan ! (6)"
 slug: bataille-au-clan-du-tonnerre-eparpille-6
 ---
 À l'instant même où le Fouet de l'Âme apparut, les yeux du Grand Ancien s'écarquillèrent en fixant l'arme. Un éclair de choc traversa son regard.
@@ -26,9 +26,9 @@ Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa cu
 
 En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur even apparut dans ses yeux !
 
-« Cette lumière dorée !!! Cette lumière dorée !!! Cet objet pourrait-il vraiment être... Impossible, ce fouet a été emporté, comment pourrait-il être entre ses mains ? C'est impossible ! »
+« Cette lumière dorée ! ! ! Cette lumière dorée ! ! ! Cet objet pourrait-il vraiment être... Impossible, ce fouet a été emporté, comment pourrait-il être entre ses mains ? C'est impossible ! »
 
-« Je veux voir ce que peut faire cette imitation de fouet ! Anciens dragons de tonnerre, dévorez pour moi !! » Le Grand Ancien fixa le fouet et, ses mains formant un sceau, il cracha à nouveau son sang. Ce sang se répandit sur les huit anciens dragons de tonnerre qui poussèrent des rugissements violents. Ils ne reculèrent plus, mais chargèrent en avant !
+« Je veux voir ce que peut faire cette imitation de fouet ! Anciens dragons de tonnerre, dévorez pour moi ! ! » Le Grand Ancien fixa le fouet et, ses mains formant un sceau, il cracha à nouveau son sang. Ce sang se répandit sur les huit anciens dragons de tonnerre qui poussèrent des rugissements violents. Ils ne reculèrent plus, mais chargèrent en avant !
 
 Wang Lin fit un pas en avant et mania rapidement le Fouet de l'Âme. Une bataille haletante s'engagea entre lui et les anciens dragons de tonnerre. La lueur spectrale du fouet faiblissait, progressivement remplacée par la lumière dorée émanant des parties brisées.
 
@@ -78,9 +78,9 @@ Cette ligne dorée s'étirait à l'infini et trancha directement la tempête qui
 
 Lors de cet effondrement, les âmes des huit anciens dragons de tonnerre furent scindées en deux, poussant des cris funèbres. Elles commencèrent à se dissiper, prêtes à retourner dans l'Ancien Royaume du Tonnerre disparu depuis longtemps !
 
-Les yeux du Grand Ancien étaient emplis d'une terreur monstrueuse. Dès l'apparition de la ligne dorée, il recula précipitamment mais fut tout de même atteint. Il cracha immédiatement du sang en s'enfuyant et s'écria : « Ceci !! Ceci !! Le Fouet de Scellement des Âmes des Millions de Mondes a été emporté autrefois. Il n'aurait jamais dû réapparaître dans ce monde !! »
+Les yeux du Grand Ancien étaient emplis d'une terreur monstrueuse. Dès l'apparition de la ligne dorée, il recula précipitamment mais fut tout de même atteint. Il cracha immédiatement du sang en s'enfuyant et s'écria : « Ceci ! ! Ceci ! ! Le Fouet de Scellement des Âmes des Millions de Mondes a été emporté autrefois. Il n'aurait jamais dû réapparaître dans ce monde ! ! »
 
-« Qui diable es-tu ? D'où viens-tu ? Pourquoi possèdes-tu le trésor du chef de ce groupe de cultivateurs qui a aidé l'Ancêtre à l'époque ?! » La terreur dans le cœur du Grand Ancien atteignit son paroxysme. Il avait personnellement vu ce fouet auparavant !!
+« Qui diable es-tu ? D'où viens-tu ? Pourquoi possèdes-tu le trésor du chef de ce groupe de cultivateurs qui a aidé l'Ancêtre à l'époque ? ! » La terreur dans le cœur du Grand Ancien atteignit son paroxysme. Il avait personnellement vu ce fouet auparavant ! !
 
 À l'époque où l'Ancêtre était encore présent, il n'était qu'un cultivateur de la Formation de l'Âme. Il avait vu de ses propres yeux le chef de ce groupe de cultivateurs manier ce fouet. D'un seul mouvement, le monde s'effondra et le temps sembla s'inverser. Une faille gigantesque apparut dans la réalité et, au cœur de cet effondrement, les 7 Millions de Mondes surgirent !
 
@@ -90,7 +90,7 @@ Il avait également vu que lorsque ce cultivateur libéra ces créatures, un rug
 
 Cependant, cette figure qui l'avait tant terrifié s'effondra lorsque le mystérieux cultivateur mania le fouet une troisième fois !
 
-« Ils sont déjà partis, ils ont pris le fouet et sont partis. Pourquoi le trésor de leur chef réapparaît-il ainsi, et entre ses mains ?! À moins que... à moins que ce ne soit l'esprit de l'Ancêtre qui agisse, envoyant cet homme ici pour me remettre le Fouet de Scellement des Âmes des Millions de Mondes !!! » Le Grand Ancien fut envahi par une cupidité sans fin.
+« Ils sont déjà partis, ils ont pris le fouet et sont partis. Pourquoi le trésor de leur chef réapparaît-il ainsi, et entre ses mains ? ! À moins que... à moins que ce ne soit l'esprit de l'Ancêtre qui agisse, envoyant cet homme ici pour me remettre le Fouet de Scellement des Âmes des Millions de Mondes ! ! ! » Le Grand Ancien fut envahi par une cupidité sans fin.
 
 Wang Lin n'avait pas le temps de se soucier des pensées du Grand Ancien. À ce moment, ses yeux émettaient une lueur étrange. Son cœur battait la chamade alors qu'il observait les huit âmes d'anciens dragons de tonnerre déchirées qui étaient en train d'être aspirées.
 
@@ -104,7 +104,7 @@ Wang Lin n'avait pu dévorer que la moitié de cet ancien dragon autrefois parce
 
 Bien qu'il n'ait pas utilisé ce pouvoir depuis longtemps, aujourd'hui, il allait s'en servir à nouveau !
 
-« Dévorer, dévorer, dévorer ces huit anciens dragons de tonnerre. Dévorez-les et mon pouvoir du tonnerre augmentera grandement !!! » Une volonté démente envahit l'esprit de Wang Lin. Son âme originelle obéit à ses ordres et commença sa voracité !
+« Dévorer, dévorer, dévorer ces huit anciens dragons de tonnerre. Dévorez-les et mon pouvoir du tonnerre augmentera grandement ! ! ! » Une volonté démente envahit l'esprit de Wang Lin. Son âme originelle obéit à ses ordres et commença sa voracité !
 
 Les âmes des anciens dragons de tonnerre qui allaient se dissiper tremblèrent, tandis qu'une partie d'entre elles était dévorée par Wang Lin !
 

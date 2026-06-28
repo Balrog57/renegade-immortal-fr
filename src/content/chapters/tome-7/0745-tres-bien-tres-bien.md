@@ -4,7 +4,7 @@ title: Très bien, très bien
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 745 - Very Good, Very Good
-slug: tres-bien-tres-bien
+slug: très-bien-très-bien
 ---
 Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci touchèrent le sol, Wang Lin ressentit une étrange sensation. C'était comme si cet homme et l'épée de fer n'avaient fait qu'un.
 

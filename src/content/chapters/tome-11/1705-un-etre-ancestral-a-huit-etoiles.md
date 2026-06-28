@@ -4,7 +4,7 @@ title: "Un Être Ancestral à Huit Étoiles !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1705 - Eight-Star Ancient One!"
-slug: un-etre-ancestral-a-huit-etoiles
+slug: un-être-ancestral-a-huit-etoiles
 ---
 Chapitre 1705 - Un Être Ancestral à Huit Étoiles !
 

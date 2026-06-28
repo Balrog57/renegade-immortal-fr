@@ -3,7 +3,7 @@ n: 1920
 title: "Je ne mourrai pas, tu ne mourras pas !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1920 - I Won’t Die, You Won’t die!"
+en: "Chapter 1920 - I Won’t Die, You Won’t die !"
 slug: je-ne-mourrai-pas-tu-ne-mourras-pas
 ---
 Chapitre 1920 - Je ne mourrai pas, tu ne mourras pas !
@@ -58,7 +58,7 @@ De loin, l'ombre gigantesque du Taureau Céleste enveloppa Wang Lin et percuta l
 
 Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Astral Imortel.
 
-*Rumble, rumble, rumble, rumble !!*
+*Rumble, rumble, rumble, rumble ! !*
 
 Les 27 sorts à l'intérieur du trou noir furent pulvérisés. Le trou noir lui-même trembla et se désintégra sous l'impact !
 
@@ -68,9 +68,9 @@ Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'e
 
 L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahirent une rare trace de choc et il recula précipitamment.
 
-« Une fusion de 98 sorts... Il ne peut pas fusionner le Dao avec son corps, mais cette méthode produit un effet similaire. S'il pouvait utiliser un sort de plus, ne serait-il pas encore plus puissant ?! »
+« Une fusion de 98 sorts... Il ne peut pas fusionner le Dao avec son corps, mais cette méthode produit un effet similaire. S'il pouvait utiliser un sort de plus, ne serait-il pas encore plus puissant ? ! »
 
-« La limite d'un Exalt Empyréen est de 99 ; un de plus serait considéré comme atteignant le rang d'Ascendant Empyréen ! Après avoir emprunté la puissance de l'armure d'âme, il est devenu terrifiant !! » Le vieil homme aux cheveux roux leva les mains et, dans un rugissement, lança plusieurs attaques.
+« La limite d'un Exalt Empyréen est de 99 ; un de plus serait considéré comme atteignant le rang d'Ascendant Empyréen ! Après avoir emprunté la puissance de l'armure d'âme, il est devenu terrifiant ! ! » Le vieil homme aux cheveux roux leva les mains et, dans un rugissement, lança plusieurs attaques.
 
 « C'est presque comparable à un cultivateur Ascendant Empyréen ! Il n'a pas fusionné son Dao avec son corps et ces 98 sorts ne forment pas un tout cohérent ; ils ont été fusionnés par la force et ne sont pas parfaits, mais malgré cela, je parviens à peine à résister ! »
 
@@ -82,7 +82,7 @@ Cependant, plus de 10 sorts ne s'étaient pas dissipés et percutèrent violemme
 
 Un autre immense Taureau Céleste apparut dans le ciel et chargea en avant.
 
-« Quelle force et quelle vitesse prodigieuses... Je n'ai même pas pu contenir la première vague que la seconde est déjà là ! Son corps doit être d'une robustesse extrême pour supporter un tel déploiement continu de sorts !! »
+« Quelle force et quelle vitesse prodigieuses... Je n'ai même pas pu contenir la première vague que la seconde est déjà là ! Son corps doit être d'une robustesse extrême pour supporter un tel déploiement continu de sorts ! ! »
 
 Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second Taureau Céleste fondait sur lui, une aura de Grand Empyréen jaillit de la robe taoïste violette qu'il portait.
 
@@ -96,9 +96,9 @@ Ce coup semblait d'une banalité extrême, comme s'il était porté par un morte
 
 Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière. Son visage était pâle, mais ses yeux brillaient d'une détermination farouche.
 
-« Grand Empyréen Dao Yi !! »
+« Grand Empyréen Dao Yi ! ! »
 
-« Salutations, Grand Empyréen Dao Yi !! » Derrière l'ombre indistincte, l'ancêtre du Secte du Dao Démoniaque joignit immédiatement les mains et s'inclina respectueusement devant la silhouette.
+« Salutations, Grand Empyréen Dao Yi ! ! » Derrière l'ombre indistincte, l'ancêtre du Secte du Dao Démoniaque joignit immédiatement les mains et s'inclina respectueusement devant la silhouette.
 
 L'ombre, initialement floue, finit par révéler clairement la figure qu'elle abritait.
 

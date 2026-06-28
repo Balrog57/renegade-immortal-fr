@@ -22,7 +22,7 @@ Dans un rugissement, les yeux du vieil homme au Tigre Blanc libérèrent une lum
 
 Tout en rugissant, le vieil homme fit un pas en avant et chargea vers Wang Lin. Sa main droite traça un sceau alors qu'il pointait vers le ciel dans un cri puissant.
 
-« Et si je te force à obéir ?! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler ! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers l'Ancien Royaume Céleste. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
+« Et si je te force à obéir ? ! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler ! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers l'Ancien Royaume Céleste. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
 
 Ce rugissement secoua les cieux et créa un impact si violent que la terre en trembla.
 
@@ -74,7 +74,7 @@ Ce mouvement rendit le rugissement du tigre encore plus intense. Le ciel changea
 
 Un son strident retentit lorsque la lame fendant le ciel fendit la silhouette de Wang Lin, mais aucune blessure n'apparut sur son corps. C'était comme si la lame n'avait tranché qu'une ombre !
 
-« L'essence du Vrai et du Faux !! C'est l'essence du Vrai et du Faux !! Maudit soit, les sept lois imposées par le Souverain Céleste empêchaient la naissance des essences éthérées. Si ce n'était pas parce qu'il était gravement blessé et avait dû retirer ces sept lois, cet homme n'aurait jamais eu la chance de comprendre une telle essence ! »
+« L'essence du Vrai et du Faux ! ! C'est l'essence du Vrai et du Faux ! ! Maudit soit, les sept lois imposées par le Souverain Céleste empêchaient la naissance des essences éthérées. Si ce n'était pas parce qu'il était gravement blessé et avait dû retirer ces sept lois, cet homme n'aurait jamais eu la chance de comprendre une telle essence ! »
 
 Les yeux du vieil homme étaient empreints de choc, mais il refusait d'abandonner. Il fit tournoyer sa lame des milliers de fois. Des hurlements aigus continua ne cesser de résonner, mais la silhouette de Wang Lin demeurait une illusion. La lame traversait son corps sans que rien ne change.
 
@@ -88,7 +88,7 @@ Ce coup était léger, presque sans force, comme s'il ne possédait aucun pouvoi
 
 Un grondement monstrueux retentit et le vieil homme cracha du sang. Son corps fut projeté en arrière comme un cerf-volant dont on aurait coupé la ficelle. Cependant, une vapeur blanche fut arrachée au vieil homme pour venir se rassembler dans la main de Wang Lin.
 
-« Le Karma !! C'est l'essence karmique !! Tu possèdes donc deux essences éthérées !! »
+« Le Karma ! ! C'est l'essence karmique ! ! Tu possèdes donc deux essences éthérées ! ! »
 
 Wang Lin lança un regard froid au vieil homme au Tigre Blanc. Le rugissement du tigre résonnait encore à ses oreilles. Dans un froid renâclement, Wang Lin ne poursuivit pas son assaut mais écrasa la vapeur blanche dans sa paume. Le vieil homme au Tigre Blanc trembla, cracha de nouveau du sang et s'enfuit à une vitesse encore plus grande.
 

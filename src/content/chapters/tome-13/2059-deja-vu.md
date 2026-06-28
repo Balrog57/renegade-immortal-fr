@@ -4,7 +4,7 @@ title: Déjà vu
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2059 - Seen Before
-slug: deja-vu
+slug: déjà-vu
 ---
 À qui appartenait cette silhouette, et quel était ce corps qu'il tenait... Wang Lin n'osait se poser ces questions ; il avait peur d'y songer...
 

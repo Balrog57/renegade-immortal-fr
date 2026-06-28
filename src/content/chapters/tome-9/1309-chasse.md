@@ -1,12 +1,12 @@
 ---
 n: 1309
-title: "Chasse !!"
+title: "Chasse ! !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1309 - Hunt!!"
+en: "Chapter 1309 - Hunt ! !"
 slug: chasse
 ---
-Chapitre 1309 - Chasse !!
+Chapitre 1309 - Chasse ! !
 
 « Tuo Sen ! » À l'instant où Wang Lin fusionna avec le monde, une lueur de froideur traversa son regard alors qu'il contemplait la silhouette gigantesque derrière lui. Bien qu'il fût encore à distance, le corps de Tuo Sen était d'une démesure extrême. Son simple rugissement était capable de faire vaciller l'énergie originelle du monde.
 
@@ -36,7 +36,7 @@ Ils poursuivaient Tuo Sen à distance, sans relâche.
 
 Tuo Sen parvint près de la Formation du Domaine Scellé dans un fracas de tonnerre et frappa le vide de sa main droite. Un rugissement puissant résonna alors qu'il déchirait une faille spatiale. Son corps se rétracta jusqu'à la taille d'un homme ordinaire et disparut dans la brèche.
 
-Chasser !!
+Chasser ! !
 
 Quoi qu'il en coûte, il devait capturer Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur !
 
@@ -48,7 +48,7 @@ Pourtant, l'instant après son apparition, une tempête commença à se lever de
 
 Un vent glacial s'en échappa avec sauvagerie tandis qu'un rugissement retentissait. Tuo Sen surgit de la faille spatiale comme un possédé, les yeux injectés de sang et emplis d'avidité.
 
-« Wang Lin !! Ce Dieu t'a enfin trouvé !! »
+« Wang Lin ! ! Ce Dieu t'a enfin trouvé ! ! »
 
 Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déformation Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Domaine Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
 
@@ -64,7 +64,7 @@ Son corps trembla violemment et il cracha un flot de sang. Le brouillard noir qu
 
 La main droite de Tuo Sen marqua une pause, et ses yeux brillèrent d'une lueur étrange !
 
-« Rétribution Divine du Domaine Ji !! »
+« Rétribution Divine du Domaine Ji ! ! »
 
 Son expression changea. Incapable de détruire les éclairs rouges à l'intérieur de lui, il les laissa continuer leur œuvre destructrice. Toutefois, le dommage restait minime comparé à l'incroyable capacité de régénération d'un Dieu Ancien. Mais Tuo Sen étant déjà blessé, cela constituait un danger latent.
 
@@ -104,7 +104,7 @@ Toutefois, la vitesse d'activation de la formation était bien trop lente pour l
 
 Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité et leur sang étaient aspirés par l'obscurité.
 
-Un vieil homme vêtu de vert s'élança hors de la planète en rugissant : « Quel démon ose venir dévorer sur ma planète Devil Na ?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste !
+Un vieil homme vêtu de vert s'élança hors de la planète en rugissant : « Quel démon ose venir dévorer sur ma planète Devil Na ? ! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste !
 
 « Un puissant cultivateur ! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Domaine Ji qui perça le brouillard pour frapper le vieillard.
 

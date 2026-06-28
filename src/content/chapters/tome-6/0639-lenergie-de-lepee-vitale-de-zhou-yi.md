@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 639 - Zhou Yis Life Sword Energy
 slug: lenergie-de-lepee-vitale-de-zhou-yi
 ---
+
 Wang Lin murmura : « Senior Zhou Yi ! »
 
 Il pouvait sentir que, outre les forces extérieures, la principale raison de l'aura de mort qui émanait de Zhou Yi était lui-même. Ce dernier désirait sincèrement mourir.
@@ -106,7 +107,7 @@ Les trois sphères de lumière furent instantanément brisées et dévorées par
 
 La fissure qui scellait Zhou Yi s'écroula immédiatement !
 
-« Ling Tianhou, bien que tu m'aies maintenu scellé pendant des centaines d'années, si ce n'était pas parce que mon cœur était mort, comment ton sceau aurait-il pu me piéger ?! Je suis l'esprit de l'Épée Céleste de la Pluie ! Ma vie est aussi longue que les cieux et la terre, et j'ai hérité des Quatre Grandes Intentions d'Épée de l'Antiquité ! Bien que je ne puisse pas te tuer, à moins que je ne le permette, tu ne peux me sceller !
+« Ling Tianhou, bien que tu m'aies maintenu scellé pendant des centaines d'années, si ce n'était pas parce que mon cœur était mort, comment ton sceau aurait-il pu me piéger ? ! Je suis l'esprit de l'Épée Céleste de la Pluie ! Ma vie est aussi longue que les cieux et la terre, et j'ai hérité des Quatre Grandes Intentions d'Épée de l'Antiquité ! Bien que je ne puisse pas te tuer, à moins que je ne le permette, tu ne peux me sceller !»
 
 « Durant ces centaines d'années, malgré mon cœur éteint, j'ai pu ressentir continuellement l'héritage de l'ancienne intention d'épée. Si nous nous revoyons, voyons si ma cultivation est toujours la même qu'autrefois ! » Zhou Yi s'envola juste avant que la fissure ne s'effondre totalement.
 

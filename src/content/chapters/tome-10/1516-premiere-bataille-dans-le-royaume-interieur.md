@@ -4,7 +4,7 @@ title: "Première bataille dans le Royaume Intérieur !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1516 - First Battle in the Inner Realm!"
-slug: premiere-bataille-dans-le-royaume-interieur
+slug: première-bataille-dans-le-royaume-interieur
 ---
 Chapitre 1516 - Première bataille dans le Royaume Intérieur !
 

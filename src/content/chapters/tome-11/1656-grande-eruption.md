@@ -1,12 +1,12 @@
 ---
 n: 1656
-title: "Grande Éruption !!"
+title: "Grande Éruption ! !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1656 - Grand Eruption!!"
+en: "Chapter 1656 - Grand Eruption !!"
 slug: grande-eruption
 ---
-Chapitre 1656 - Grande Éruption !!
+Chapitre 1656 - Grande Éruption ! !
 
 L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui étaient voilés et sur le point de se fermer. À cet instant, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
 
@@ -42,7 +42,7 @@ En particulier, les cultivateurs du Vide Arcanique qui avaient participé à la 
 
 « Wang Lin ! »
 
-« Il n'est toujours pas mort !! »
+« Il n'est toujours pas mort ! ! »
 
 « C’est la flèche de Li Guang ! » Les expressions des deux concubines impériales célestes qui avaient été témoins de la puissance de l'arme changèrent radicalement.
 
@@ -80,7 +80,7 @@ Le Souverain fut contraint de reculer, les manches de sa robe noire se déchiran
 
 Ce sang contenait une trace d'or et explosa instantanément avec la puissance d'une lignée céleste. Un soleil doré apparut devant lui et la loi de l'origine enveloppa le domaine stellaire.
 
-« Ce vieil homme ne le croit pas !!! » Le Souverain projeta le soleil doré vers la flèche.
+« Ce vieil homme ne le croit pas ! !! » Le Souverain projeta le soleil doré vers la flèche.
 
 « Dégage de là, petit serviteur aux empreintes ! » La voix de Wang Lin résonna alors que la flèche percutait le soleil doré.
 
@@ -98,7 +98,7 @@ Ce puits n'était pas posé à plat mais disposé verticalement. À la surface d
 
 Cette flèche illusoire jaillit de l'eau pour charger la Flèche de Li Guang. Au moment de leur collision, l'impact fut tel que le Souverain recracha du sang, les yeux écarquillés d'incrédulité.
 
-« Tu utilises le Corps Immortel du Maître !!! Le Corps Immortel est précieux et on n'a qu'une seule chance dans une vie pour l'obtenir... Tu l'as abandonné et gaspillé ainsi... Mais combien de fois pourras-tu tirer cette flèche ? Je dirais deux au maximum !! Après deux tirs, tu ne pourras plus jamais devenir un Céleste de ta vie. Sans le sang céleste, tu n'es rien d'autre qu'une fourmi !! » Les paroles du Souverain furent interrompues par l'impact de la flèche qui se transféra dans son corps. Son corps s'effondra, et le palais derrière lui s'écroula avec lui !
+« Tu utilises le Corps Immortel du Maître ! !! Le Corps Immortel est précieux et on n'a qu'une seule chance dans une vie pour l'obtenir... Tu l'as abandonné et gaspillé ainsi... Mais combien de fois pourras-tu tirer cette flèche ? Je dirais deux au maximum ! ! Après deux tirs, tu ne pourras plus jamais devenir un Céleste de ta vie. Sans le sang céleste, tu n'es rien d'autre qu'une fourmi ! ! » Les paroles du Souverain furent interrompues par l'impact de la flèche qui se transféra dans son corps. Son corps s'effondra, et le palais derrière lui s'écroula avec lui !
 
 Ce palais existait depuis des temps immémoriaux et constituait le pilier spirituel du Royaume Extérieur. Pour les cultivateurs du Royaume Extérieur, ce lieu était un sanctuaire sacré qu'on ne pouvait détruire !
 
@@ -108,7 +108,7 @@ Le Souverain fut anéanti, le palais s'écroula, et le monde changea de couleur 
 
 Cependant, le Souverain n'était pas totalement mort. Au moment où son corps fut détruit et que l'énergie de la flèche se dissipa, ses restes déchiquetés commencèrent à bouger. Ils se rassemblèrent rapidement et son corps se reforma à l'extérieur de la faille.
 
-« Le sort de la Triple Vie du Clan de l'Extermination des Sceaux !! » Les pupilles de Wang Lin se rétractèrent.
+« Le sort de la Triple Vie du Clan de l'Extermination des Sceaux ! ! » Les pupilles de Wang Lin se rétractèrent.
 
 Le Souverain ressuscité affichait un visage livide. Il n'hésita pas une seconde et recula dans la faille après avoir repris forme. Sa main droite s'étira derrière lui, provoquant l'effondrement de la faille.
 
@@ -126,4 +126,4 @@ Il y avait aussi ces deux concubines impériales célestes. Malgré leur haut ra
 
 Au loin, la Grand Maîtresse Yun Luo tremblait de façon incontrôlable. De sa position, elle ne pouvait voir que le dos de Wang Lin. Elle connaissait cette silhouette, et elle en avait peur. C'était le dos de l'être qui, selon ses divinations, détruirait le monde !
 
-« Bien qu'elle ne soit pas mon amante, elle est la mère de mon fils, Wang Ping. Qu'as-tu dit à l'instant ?! » Wang Lin se retourna. Son regard était tranchant comme une épée alors qu'il fixait Dao Feishan, qui se tenait à cent pieds de Mu Bingmei.
+« Bien qu'elle ne soit pas mon amante, elle est la mère de mon fils, Wang Ping. Qu'as-tu dit à l'instant ? ! » Wang Lin se retourna. Son regard était tranchant comme une épée alors qu'il fixait Dao Feishan, qui se tenait à cent pieds de Mu Bingmei.

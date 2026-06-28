@@ -30,7 +30,7 @@ Quant au crapaud tonnerre, il semblait habitué à la méprisable bête moustiqu
 
 Peu de temps après, le Charriot de Guerre Divin apparut et se transforma en la Bête du Tonnerre. Dès qu'il fut là, il vit le crapaud tonnerre et commença à rugir.
 
-L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillèrent et il fixa la Bête du Tonnerre, le ventre gonflé. La bête moustique était également pleine d'entrain, observant la Bête du Tonnerre avec intérêt.
+L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillèrent et il fixa la Bête du Tonnerre, le ventre gonflé. La bête moustique était également pleine d'en train, observant la Bête du Tonnerre avec intérêt.
 
 Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attentivement la Bête du Tonnerre et pensa : « Le Maître est vraiment un Maître. Cela ne fait pas longtemps qu'il est là, et déjà une autre bête stupide est apparue. Battez-vous ! C'est mieux si vous vous battez tous. Ainsi, vous saurez tous que c'est moi qui accompagne le Maître depuis le plus longtemps ! »
 

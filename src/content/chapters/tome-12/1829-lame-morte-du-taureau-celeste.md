@@ -3,7 +3,7 @@ n: 1829
 title: "L'Âme Morte du Taureau Céleste !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1829 - The Dead Soul of the Heavenly Bull!"
+en: "Chapter 1829 - The Dead Soul of the Heavenly Bull !"
 slug: lame-morte-du-taureau-celeste
 ---
 Chapitre 1829 - L'Âme Morte du Taureau Céleste !
@@ -28,9 +28,9 @@ Les cheveux de Yan Lu étaient ébouriffés. Elle se trouvait prise au piège pa
 
 Un sentiment de vie ou de mort envahit son cœur.
 
-« Que diable est-il donc ?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant ! » Il était trop tard pour que Yan Lu réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade forma un sceau avant de saisir le sang pour l'écraser sans pitié !
+« Que diable est-il donc ? ! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant ! » Il était trop tard pour que Yan Lu réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade forma un sceau avant de saisir le sang pour l'écraser sans pitié !
 
-« J'utiliserai mon essence de sang pour invoquer l'Ancêtre du Grand Secte des Âmes et briser le vide !! Origine du Fantôme de l'Âme ! » La voix de Yan Lu était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
+« J'utiliserai mon essence de sang pour invoquer l'Ancêtre du Grand Secte des Âmes et briser le vide ! ! Origine du Fantôme de l'Âme ! » La voix de Yan Lu était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
 
 Lorsque Yan Lu broya le sang, des volutes de brume sanguine s'échappèrent entre ses doigts. Rapidement, cette masse de brouillard se rassembla pour former une route de sang !
 
@@ -54,7 +54,7 @@ Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se pr
 
 Tout en reculant, Wang Lin retira sa main droite et tendit son index !
 
-« Dao Démoniaque, Inversion de la Vie et de la Mort !! »
+« Dao Démoniaque, Inversion de la Vie et de la Mort ! ! »
 
 À cet instant, l'expression de Yan Lu changea à nouveau. Elle sentit la puissante force vitale de son corps se muer en une aura de mort. Un sentiment de faiblesse envahit ses membres.
 
@@ -76,11 +76,11 @@ Le Taureau Céleste arborait une expression féroce et ses yeux étaient inject�
 
 Dès l'apparition du Taureau Céleste, tout le Grand Secte des Âmes fut ébranlé. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
 
-« Le Taureau Céleste !! »
+« Le Taureau Céleste ! ! »
 
-« C'est... est-ce le Taureau Céleste ?! Il a pris sa forme !! »
+« C'est... est-ce le Taureau Céleste ? ! Il a pris sa forme ! ! »
 
-« C'est impossible, comment peut-il en être ainsi ?! »
+« C'est impossible, comment peut-il en être ainsi ? ! »
 
 Même les vieux monstres qui n'étaient pas sortis et qui observaient via leur Sens Divin furent choqués. Ils quittèrent leurs sommets pour contempler le Taureau Céleste formé par l'aura de mort. Même certains vieux monstres qui pensaient que ce combat ne méritait pas leur attention furent émus.
 
@@ -88,13 +88,13 @@ Dans la partie la plus profonde du Grand Secte des Âmes, sur le pic le plus él
 
 Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
 
-« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé !! Il y a d'innombrables années, l'Ancêtre a déplacé tout le Grand Secte des Âmes vers le Continent du Taureau Céleste et a choisi cette veine principale de terre-feu pour attendre une seule personne ! »
+« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé ! ! Il y a d'innombrables années, l'Ancêtre a déplacé tout le Grand Secte des Âmes vers le Continent du Taureau Céleste et a choisi cette veine principale de terre-feu pour attendre une seule personne ! »
 
-« Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui !! »
+« Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui ! ! »
 
 « Il n'est pas issu du Continent Astral Immortel ; il vient du monde des grottes. D'une certaine manière, il est très similaire aux 72 bêtes scellées sous les 72 continents ! »
 
-« Le Taureau Céleste provient de l'extérieur des cieux, et non du Continent Astral Immortel. Cet homme est identique, c'est pourquoi il peut déclencher l'âme du Taureau Céleste !! »
+« Le Taureau Céleste provient de l'extérieur des cieux, et non du Continent Astral Immortel. Cet homme est identique, c'est pourquoi il peut déclencher l'âme du Taureau Céleste ! ! »
 
 Au moment où le Taureau Céleste d'aura mortelle apparut, le visage de Yan Lu devint livide. Elle n'avait pas imaginé que ce combat prendrait une telle tournure.
 
@@ -116,4 +116,4 @@ Yan Lu cracha une bouchée de sang et recula précipitamment. Son expression ava
 
 Alors que les neuf ondulations fonçaient sur Yan Lu, un rugissement retentit soudainement à travers le monde.
 
-« Assez !! Yan Lu, recule ! Tu ne peux manquer de respect au nouvel Ancien ! Quant à ton Pic de Feu, je te compenserai ! »
+« Assez ! ! Yan Lu, recule ! Tu ne peux manquer de respect au nouvel Ancien ! Quant à ton Pic de Feu, je te compenserai ! »

@@ -3,7 +3,7 @@ n: 1430
 title: "L'Ombrelle s'ouvre pour détruire le royaume !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1430 - Umbrella Opens to Destroy the Realm!"
+en: "Chapter 1430 - Umbrella Opens to Destroy the Realm !"
 slug: lombrelle-souvre-pour-detruire-le-royaume
 ---
 Chapitre 1430 - L'Ombrelle s'ouvre pour détruire le royaume !
@@ -24,7 +24,7 @@ L'Oiseau Vermillon aux sept couleurs derrière le vieil homme leva la tête et p
 
 Cette scène fut si soudaine que les pupilles de l'homme d'âge mûr se rétractèrent.
 
-« Ce vieux fou t'a réellement donné cela pour me tuer !!! »
+« Ce vieux fou t'a réellement donné cela pour me tuer ! !! »
 
 À la suite du cri fracassant de l'Oiseau Vermillon, une pression terrifiante jaillit du vortex avant de se disperser rapidement. La température grimpa soudainement jusqu'à ce que l'endroit ressemble à un royaume de feu !
 
@@ -54,7 +54,7 @@ Ses paroles ébranlèrent le monde entier. Avec le mot « terre », une étendue
 
 Avec le mot « feu », la mer commença à brûler, recouverte d'une flamme aux sept couleurs. Enfin, avec le dernier mot, « vent », une rafale balaya les flammes.
 
-« Quatre Éléments !! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par la mer en furie !
+« Quatre Éléments ! ! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par la mer en furie !
 
 Après la flamme venait la mer déchaînée. Enfin, la terre traversa le corps de l'homme et chargea vers le ciel comme pour colmater le vortex.
 
@@ -70,7 +70,7 @@ Wang Lin avait passé sa vie à chercher l'avantage dans les situations pérille
 
 Tuer le Souverain !
 
-« Quel premier Oiseau Vermillon perfide !! » Une lueur de froideur passa dans les yeux de Wang Lin. Le premier Oiseau Vermillon avait vécu bien trop longtemps, et Wang Lin n'était naturellement pas de taille. Bien qu'il ait deviné le plan du premier, il avait toujours un temps de retard !
+« Quel premier Oiseau Vermillon perfide ! ! » Une lueur de froideur passa dans les yeux de Wang Lin. Le premier Oiseau Vermillon avait vécu bien trop longtemps, et Wang Lin n'était naturellement pas de taille. Bien qu'il ait deviné le plan du premier, il avait toujours un temps de retard !
 
 « L'ancêtre de la deuxième génération m'a soudainement transmis le sort le plus puissant du clan car il avait tout percé et tentait de m'aider... »
 
@@ -110,7 +110,7 @@ Wang Lin fut frappé par cette onde de choc et du sang jaillit du coin de sa bou
 
 Le Souverain, qui approchait, vit cela et son expression changea radicalement !
 
-« Maudit soit, ce vieux fou t'a vraiment enseigné ce sort !! » Il chargea Wang Lin sans hésiter. Cependant, l'esprit de la forêt antique que Wang Lin avait libéré poussa un rugissement et fonça sur le Souverain !
+« Maudit soit, ce vieux fou t'a vraiment enseigné ce sort ! ! » Il chargea Wang Lin sans hésiter. Cependant, l'esprit de la forêt antique que Wang Lin avait libéré poussa un rugissement et fonça sur le Souverain !
 
 Le Souverain, l'expression féroce, agita la main droite, transformant une puissance infinie en une empreinte de paume gigantesque. C'était comme un soleil descendant sur l'esprit de la forêt antique.
 
@@ -118,12 +118,12 @@ Des grondements emplirent l'air tandis que l'esprit de bois tremblait. La paume 
 
 À cet instant, le neuvième souffle arriva et la main droite de Wang Lin acheva le dernier sceau. Ses mains étaient ensanglantées et presque incapables de bouger après avoir terminé ce dernier geste.
 
-Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Antique Brûlant les Royaumes !!
+Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Antique Brûlant les Royaumes ! !
 
-« Ombrelle Antique Brûlant les Royaumes !! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper !
+« Ombrelle Antique Brûlant les Royaumes ! ! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper !
 
 Bien qu'il ne l'ait appris que récemment, il était l'Oiseau Vermillon et avait pratiqué les restrictions pendant longtemps ; il possédait donc des méthodes pour créer des sceaux rapidement. Cependant, sa compréhension étant encore limitée, sa puissance était manifestement inférieure à la perfection. Pourtant, pour un tel sort, même une puissance moindre restait capable de bouleverser le ciel !
 
 Il cracha alors un flot de sang. Wang Lin sentit clairement sa vitalité être rapidement absorbée par l'ombrelle antique pour générer la force nécessaire à son ouverture !
 
-« Ombrelle, ouvre-toi pour détruire le royaume !! » rugit Wang Lin en déployant ses bras !
+« Ombrelle, ouvre-toi pour détruire le royaume ! ! » rugit Wang Lin en déployant ses bras !

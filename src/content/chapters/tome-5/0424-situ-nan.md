@@ -6,6 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 424 - Situ Nan
 slug: situ-nan
 ---
+
 Des vagues de membres du Clan de l'Immortel Déchu se rassemblaient à l'intérieur de l'immense nuage noir situé sur le flanc est du continent Suzaku.
 
 Au centre de ce nuage, d'innombrables membres du clan chantaient à l'unisson. La puissance de leurs tatouages s'était échappée de leurs corps pour flotter dans les airs.
@@ -136,7 +137,7 @@ Zhuque Zi s'enfuit rapidement sans se retourner. En un clin d'œil, il se change
 
 À cent mille kilomètres de là, Zhuque Zi serra les dents et poussa un rugissement vers le ciel.
 
-« Deuxième génération de Suzaku ! Comment peut-il être encore en vie ?! Comment peut-il toujours être sur la planète Suzaku ?! Comment est-ce possible !?!?! La troisième génération de Suzaku avait comploté contre lui en attirant des cultivateurs étrangers. Comment n'est-il pas mort !?!?! »
+« Deuxième génération de Suzaku ! Comment peut-il être encore en vie ?! Comment peut-il toujours être sur la planète Suzaku ?! Comment est-ce possible !? !?! La troisième génération de Suzaku avait comploté contre lui en attirant des cultivateurs étrangers. Comment n'est-il pas mort !? !?! »
 
 Il rugit tout au long de sa fuite jusqu'à ce qu'il atteigne le pays de Suzaku. Il s'arrêta soudainement en jetant un regard vers Pilu. Sa colère avait disparu, remplacée par la suspicion.
 

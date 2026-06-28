@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Wang Lin's Wisdom
 slug: la-bete-moustique-aux-brumes-violettes
 ---
+
 Une brise légère faisait doucement onduler l'herbe au sol. Les vêtements de l'homme et de la femme oscillaient également au gré du vent.
 
 L'homme observa le sol avec une lueur d'admiration dans les yeux et sourit : « Ces restrictions incluent des techniques de restriction anciennes... Oh, il y a aussi une trace de restrictions célestes. Ce n'est pas simple ! »
@@ -20,9 +21,9 @@ L'homme rit : « Juan Er, essaies-tu de tester ton mari ? Et si nous faisions un
 
 La femme sourit et regarda l'homme avec tendresse : « Comment une si petite restriction pourrait-elle attirer l'attention du Céleste des Nuages, Wang Wei, qui prétend pouvoir percer tous les secrets des restrictions célestes ? »
 
-L'homme sourit et secoua la tête : « Tu esquives la question. Je ne crois pas que tu n'aies pas déjà percé ces restrictions. Bien qu'elles soient rudimentaires, elles sont empreintes d'une profonde réflexion et s'avèrent extrêmement ingénieuses. Regarde bien ; si n'importe qui d'autre que nous deux avait fait preuve d'un tant soit peu de négligence, il ne les aurait même pas remarquées.
+L'homme sourit et secoua la tête : « Tu esquives la question. Je ne crois pas que tu n'aies pas déjà percé ces restrictions. Bien qu'elles soient rudimentaires, elles sont empreintes d'une profonde réflexion et s'avèrent extrêmement ingénieuses. Regarde bien ; si n'importe qui d'autre que nous deux avait fait preuve d'un tant soit peu de négligence, il ne les aurait même pas remarquées.»
 
-« Ces restrictions n'ont pas été conçues pour tuer, elles ne dégagent donc aucune intention meurtrière. Cependant, elles sont liées par le Sens Divin ; ainsi, si quiconque pénétrait dans cette zone, il serait immédiatement détecté par celui qui les a posées.
+« Ces restrictions n'ont pas été conçues pour tuer, elles ne dégagent donc aucune intention meurtrière. Cependant, elles sont liées par le Sens Divin ; ainsi, si quiconque pénétrait dans cette zone, il serait immédiatement détecté par celui qui les a posées.»
 
 « Mais ce n'est pas là l'essentiel. Si c'était tout, cela n'aurait pas suscité mon intérêt. Regarde là-bas ! » L'homme pointa une touffe d'herbe. Le vent soufflait et l'herbe ondulait, sans que rien ne semble anormal.
 
@@ -42,9 +43,9 @@ Tout en parlant, il frotta l'herbe entre ses deux doigts. Un gaz blanc apparut s
 
 Cette goutte de liquide bleu était d'une clarté absolue. Une à une, les restrictions à l'intérieur se mirent à scintiller ; elles étaient denses, tant les restrictions internes étaient nombreuses.
 
-L'homme afficha une nouvelle fois un air d'admiration. Il contempla le liquide au-dessus de sa paume et murmura : « Il y a plus de 1 000 restrictions ici, et elles sont parfaitement liées. La structure est si stable que les restrictions peuvent prendre la forme d'une goutte de liquide. Bien que ces types de restrictions soient très communs, plus une restriction est banale, plus il est difficile de les lier avec une telle perfection. C'est pourquoi seul un être ayant cultivé pendant plus de 10 000 ans peut créer une telle œuvre. Seul un cultivateur ayant traversé les vicissitudes de l'existence, ayant connu d'innombrables scénarios de vie et de mort, et ayant trouvé son propre Dao, peut posséder la ruse nécessaire pour déduire une telle restriction !
+L'homme afficha une nouvelle fois un air d'admiration. Il contempla le liquide au-dessus de sa paume et murmura : « Il y a plus de 1 000 restrictions ici, et elles sont parfaitement liées. La structure est si stable que les restrictions peuvent prendre la forme d'une goutte de liquide. Bien que ces types de restrictions soient très communs, plus une restriction est banale, plus il est difficile de les lier avec une telle perfection. C'est pourquoi seul un être ayant cultivé pendant plus de 10 000 ans peut créer une telle œuvre. Seul un cultivateur ayant traversé les vicissitudes de l'existence, ayant connu d'innombrables scénarios de vie et de mort, et ayant trouvé son propre Dao, peut posséder la ruse nécessaire pour déduire une telle restriction !»
 
-« Sans dix mille ans d'existence, comment pourrait-on expérimenter tous les changements de la vie ? Comment pourrait-on percer les mystères de la vie et de la mort ? Comment pourrait-on forger un stratagème aussi exquis ?
+« Sans dix mille ans d'existence, comment pourrait-on expérimenter tous les changements de la vie ? Comment pourrait-on percer les mystères de la vie et de la mort ? Comment pourrait-on forger un stratagème aussi exquis ?»
 
 « La création de restrictions n'a que peu à voir avec le talent ; elle est bien plus liée à l'état d'esprit et à la capacité de planification ! » Les yeux de Wang Wei s'embuèrent d'une pointe de nostalgie.
 

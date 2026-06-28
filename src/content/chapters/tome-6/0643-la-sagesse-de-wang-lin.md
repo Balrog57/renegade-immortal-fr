@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 643 - Wang Lins Wisdom
 slug: la-sagesse-de-wang-lin
 ---
+
 Au cœur du brouillard violet, les yeux de Greed s'entrouvrirent, laissant échapper une lueur froide.
 
 « Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper ! Maîtriser cette bête reine, c'est maîtriser tout le troupeau ! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai un moyen de l'affronter ! » Une pointe d'orgueil brillait dans le regard de Greed.
@@ -34,7 +35,7 @@ C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé
 
 Greed observa les disciples de la Secte de l'Épée Da Lou et ricana intérieurement.
 
-« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets ! Ce vieil homme est venu trois fois dans l'Abîme des Marées depuis mon arrivée dans la Terre de l'Esprit Démonique. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a fait rougir les yeux de Ling Tianhou et de l'Omniscient !
+« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets ! Ce vieil homme est venu trois fois dans l'Abîme des Marées depuis mon arrivée dans la Terre de l'Esprit Démonique. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a fait rougir les yeux de Ling Tianhou et de l'Omniscient !»
 
 « Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Greed balaya indistinctement les disciples de la Secte de l'Épée Da Lou, y compris Chen Long.
 
@@ -94,9 +95,9 @@ Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respec
 
 « Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Lou, et le dernier... s'appelle Greed ! » Wang Lin n'en dit pas plus sur lui.
 
-« La Secte de l'Épée Da Lou ! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Lou !! Wang Lin, que comptes-tu faire ? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
+« La Secte de l'Épée Da Lou ! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Lou ! ! Wang Lin, que comptes-tu faire ? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
 
-Wang Lin réfléchit un instant et répondit : « Aîné, ne trouvez-vous pas cela étrange... Le niveau de cultivation de ce Greed est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester !
+Wang Lin réfléchit un instant et répondit : « Aîné, ne trouvez-vous pas cela étrange... Le niveau de cultivation de ce Greed est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester !»
 
 « De plus, Aîné, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples ? J'ai vérifié sa cultivation : il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé ? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal ! »
 

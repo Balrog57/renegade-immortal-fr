@@ -3,12 +3,12 @@ n: 1521
 title: "Cette chemise n'est pas une chemise !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1521 - This Shirt is Not a Shirt!"
+en: "Chapter 1521 - This Shirt is Not a Shirt !"
 slug: cette-chemise-nest-pas-une-chemise
 ---
 Chapitre 1521 - Cette chemise n'est pas une chemise !
 
-« Vide Spirituel ! Vide Spirituel !! » Wang Lin recula, le visage livide. Bien que tout semble ordinaire, la situation était extrêmement terrifiante. Wang Lin ressentait pour la première fois l'effroi qu'inspirait un cultivateur du Vide Spirituel !
+« Vide Spirituel ! Vide Spirituel ! ! » Wang Lin recula, le visage livide. Bien que tout semble ordinaire, la situation était extrêmement terrifiante. Wang Lin ressentait pour la première fois l'effroi qu'inspirait un cultivateur du Vide Spirituel !
 
 Les cultivateurs du Vide Spirituel étaient bien moins nombreux que ceux du Nirvana Void, et leur statut était bien plus élevé.
 
@@ -42,9 +42,9 @@ Leurs âmes originelles étaient emprisonnées dans leurs corps, incapables de s
 
 Si cela n'était là que le bout de son art, cela ne montrerait pas toute l'étendue des méthodes de Maître Hong Shan. Il agita la main et les yeux de ces cadavres desséchés parés de leurs chemises rouges émise une lumière sanglante monstrueuse. Comme s'ils étaient possédés, ils chargèrent les cultivateurs du Royaume Extérieur et entamèrent un massacre !
 
-« Rendez-moi mon sang !! Je veux du sang, je veux du sang !!! »
+« Rendez-moi mon sang ! ! Je veux du sang, je veux du sang ! !! »
 
-« Donnez-moi votre sang, mon corps me fait si mal, mon corps est si sec. Je veux du sang !!! »
+« Donnez-moi votre sang, mon corps me fait si mal, mon corps est si sec. Je veux du sang ! !! »
 
 D'étranges rugissements s'échappaient de ces cultivateurs. Ils avaient soif de sang. Après avoir été vidés de leur substance, la douleur qu'ils ressentaient dépassait l'entendement !
 
@@ -54,7 +54,7 @@ Au moment où il s'écroula, son âme originelle et ses yeux furent empreints d'
 
 Cette rumeur ne mentionnait qu'une seule personne !
 
-« L'Enfant à la Chemise Rouge !! Vous êtes l'Enfant à la Chemise Rouge !!! »
+« L'Enfant à la Chemise Rouge ! ! Vous êtes l'Enfant à la Chemise Rouge ! !! »
 
 Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait l'Estimé Nan Zhao. Il allait tuer ! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan !
 
@@ -68,11 +68,11 @@ Quatre cultivateurs de la troisième étape !
 
 L'Ancêtre du Clan de l'Hirondelle de Feu serra les dents et détourna son attention de Wang Lin. Il chargea également vers Maître Hong Shan !
 
-Cinq cultivateurs de la troisième étape pour affronter Maître Hong Shan !!
+Cinq cultivateurs de la troisième étape pour affronter Maître Hong Shan ! !
 
 Maître South Cloud ne prêtait aucune attention à Maître Hong Shan ni aux innombrables cultivateurs du Royaume Extérieur. Il chargeait la Formation de Scellement du Royaume ! Sa tâche était périlleuse : il devait réparer la brèche dans la formation !
 
-« Le Royaume Intérieur n'est pas prêt, il lui faut encore du temps. La Formation de Scellement du Royaume ne peut pas être ouverte !!! » Maître South Cloud se sentait anxieux en approchant de la formation. Il vit immédiatement Ling Dong et Zhou Jin !
+« Le Royaume Intérieur n'est pas prêt, il lui faut encore du temps. La Formation de Scellement du Royaume ne peut pas être ouverte ! !! » Maître South Cloud se sentait anxieux en approchant de la formation. Il vit immédiatement Ling Dong et Zhou Jin !
 
 « Wang Lin, prête-moi ces deux-là ! » La voix rauque de Maître South Cloud résonna à travers les étoiles.
 
@@ -128,7 +128,7 @@ Sa tête vola au loin, mais ses yeux conservaient toute la haine de son vivant, 
 
 Il vit alors le cultivateur du Royaume Extérieur être submergé par une multitude de combattants de la Mer Nuageuse suite à ce retard. Ils ne cherchèrent même pas à combattre ; ils choisirent tous l'autodestruction !
 
-Si l'autodestruction de dix cultivateurs ne pouvait vous tuer, alors vingt le feraient ! Si vingt échouaient, trois cents le feraient !!
+Si l'autodestruction de dix cultivateurs ne pouvait vous tuer, alors vingt le feraient ! Si vingt échouaient, trois cents le feraient ! !
 
 Alors que les explosions successives faisaient trembler la terre, la force destructrice annihila le cultivateur du Royaume Extérieur. Même dans l'agonie, la dernière chose qu'il entendit fut ce cri de l'âme :
 

@@ -1,12 +1,12 @@
 ---
 n: 1508
-title: "Méprisable !!"
+title: "Méprisable ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1508 - Despicable!!"
+en: "Chapter 1508 - Despicable !!"
 slug: meprisable
 ---
-Chapitre 1508 - Méprisable !!
+Chapitre 1508 - Méprisable ! !
 
 Dans le Secte Divin de la Mer des Nuages, l'Ancien en chef, le Daoïste Shui, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
@@ -64,15 +64,15 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Daoïste Shui
 
 « Celui qui le tuera résoudra une calamité pour notre Royaume Intérieur !
 
-« Celui qui éliminera cet individu deviendra le Maître du Secte de mon Secte Divin !!
+« Celui qui éliminera cet individu deviendra le Maître du Secte de mon Secte Divin ! !
 
-« Celui qui tuera cette personne pourra avoir ce vieil homme comme esclave pendant mille ans !!! »
+« Celui qui tuera cette personne pourra avoir ce vieil homme comme esclave pendant mille ans ! !! »
 
 Le Daoïste Shui, l'expression hideuse, agita la main. Le jade contenant son message délirant s'envola et disparut parmi les étoiles !
 
 « Tu veux me tuer, espèce de petit bâtard ? Je veux voir comment tu t'y prendras ! » Le Daoïste Shui saisit le septième jade pour envoyer son ultime message par Sens Divin.
 
-« Céleste Antique, l'âme résiduelle de mon seigneur a prédit que le Royaume Extérieur envahira bientôt, mais le Royaume Scellé manque de puissance. Je crains qu'il ne nous soit difficile de résister. Face à ce péril, j'espère que le Céleste Antique descendra !! » Le Daoïste Shui forma un sceau et cracha une bouffée de sang. D'un geste, il transforma son sang en une rune écarlate.
+« Céleste Antique, l'âme résiduelle de mon seigneur a prédit que le Royaume Extérieur envahira bientôt, mais le Royaume Scellé manque de puissance. Je crains qu'il ne nous soit difficile de résister. Face à ce péril, j'espère que le Céleste Antique descendra ! ! » Le Daoïste Shui forma un sceau et cracha une bouffée de sang. D'un geste, il transforma son sang en une rune écarlate.
 
 Ce jade projeta un éclat sanglant qui jaillit vers les cieux. Sous cette lueur, le firmament tout entier fut enveloppé.
 
@@ -84,13 +84,13 @@ Le Daoïste Shui s'agenouilla et leva la main vers les cieux. Son espace de stoc
 
 Cette carapace exhalait une aura antique et était saturée d'une énergie spirituelle céleste extrêmement dense !
 
-« Cette tortue est mon signe distinctif. Je suis le serviteur du Seigneur du Royaume Scellé. Ô Céleste Antique, descendez et accordez-nous un trésor !! » Le Daoïste Shui s'inclina au sol tout en brandissant la carapace.
+« Cette tortue est mon signe distinctif. Je suis le serviteur du Seigneur du Royaume Scellé. Ô Céleste Antique, descendez et accordez-nous un trésor ! ! » Le Daoïste Shui s'inclina au sol tout en brandissant la carapace.
 
 Des rugissements tonnèrent dans le ciel de sang, et un regard émergea du vortex. Il fixa lentement la carapace que le Daoïste Shui présentait.
 
 « Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume ; cela pourra stopper l'invasion pendant cent ans... Cent ans devraient suffire pour que plusieurs émissaires s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux !
 
-C'était une cloche, une cloche d'or !!
+C'était une cloche, une cloche d'or ! !
 
 Dans sa chute, le tintement cristallin de la cloche résonna à travers l'éther.
 
@@ -102,7 +102,7 @@ Des grondements de tonnerre résonnèrent dans son esprit lorsqu'il établit la 
 
 La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal. Il esquissa un sourire sinistre, se redressa et murmura : « L'objet que cette vieille chose a laissé est décidément utile... Avec un trésor du Royaume Céleste Antique, je veux voir comment ce Wang Lin espère me tuer !
 
-« Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies ! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Daoïste Shui n'en avait jamais eu l'intention !!
+« Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies ! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Daoïste Shui n'en avait jamais eu l'intention ! !
 
 Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste de la Foudre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant était aspiré et piégé en son sein.
 

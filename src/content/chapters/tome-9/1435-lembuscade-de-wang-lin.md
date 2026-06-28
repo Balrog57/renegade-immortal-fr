@@ -58,7 +58,7 @@ Même la jeune fille n'aurait jamais imaginé que Wang Lin la ciblerait ainsi en
 
 L'homme costaud, les yeux emplis d'une intention meurtrière, s'apprêtait à poursuivre sa proie. Cependant, son expression changea brusquement lorsqu'un feu éthéré s'embrasa dans son corps. En un instant, le feu envahit tout son être ; même le loup derrière lui fut enveloppé par ces flammes et se mit à pousser des hurlements plaintifs.
 
-« Un cultivateur du Feu Éthéré !!! Maudit soit-il !! » Le visage de l'homme pâlit instantanément et il cracha du sang, les yeux écarquillés par le choc !
+« Un cultivateur du Feu Éthéré ! !! Maudit soit-il ! ! » Le visage de l'homme pâlit instantanément et il cracha du sang, les yeux écarquillés par le choc !
 
 La jeune fille sur son épaule fronça les sourcils en observant Wang Lin qui s'éloignait. Elle leva la main vers son front et murmura doucement : « En tant que descendante du Clan de l'Extermination des Sceaux, j'invoque le sceau de mon clan pour entraver sa retraite... »
 
@@ -78,7 +78,7 @@ Cette scène fit rétrécir les pupilles de l'homme du clan de l'Estimé Loup C�
 
 « Il est clairement un cultivateur du Feu Éthéré, mais il ne l'a pas utilisé. Il a attendu ce moment précis pour provoquer mes émotions, puis a profité de l'instant où je supprime le feu pour ôter la vie à la servante du Maître Dao Miao Yin avec cette épée qu'il avait cachée dans les planètes !
 
-« Quelle ruse terrifiante !!
+« Quelle ruse terrifiante ! !
 
 « Cette épée était aussi un objet étrange ! Elle était d'une rapidité et d'un tranchant extrêmes. Il sait que je suis un cultivateur de la troisième étape et que j'aurais pu résister à l'épée de sang. Pour garantir le coup, il a renoncé à m'attaquer pour décider de détruire la servante... » Une pointe de terreur traversait les pensées de l'homme costaud !
 
@@ -98,7 +98,7 @@ La jeune fille leva un doigt, essuya le sang sur la marque de son front et le po
 
 « Des calculs et des ruses effrayants... Il avait depuis longtemps prévu la route que nous emprunterions pour le traquer. Il a d'abord placé des restrictions sur les planètes de cultivation pour les faire exploser lorsque nous nous approcherions. Tandis que nous étions distraits par l'explosion, nous n'avons pas remarqué l'épée volante cachée... C'était là son véritable objectif... » Les yeux de la jeune fille brillèrent.
 
-« Il sait probablement que je suis du Clan de l'Extermination des Sceaux... Tout ce piège a été tendu... juste pour me tuer !! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
+« Il sait probablement que je suis du Clan de l'Extermination des Sceaux... Tout ce piège a été tendu... juste pour me tuer ! ! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
 
 « Quelle ruse profonde. Une fois qu'il nous a identifiés comme ennemis, il s'est montré décisif et impitoyable. On ne provoque pas facilement ce genre d'individu... Nous avons sous-estimé sa force... Même Maître l'a sous-estimée... Si mon Clan de l'Extermination des Sceaux ne possédait pas le sort des Trois Âmes, je serais... morte. » La jeune fille serra les dents. Bien qu'elle paraisse calme, elle était habitée par la peur. En un instant, sans même avoir le temps de réfléchir, elle avait déjà passé la mort.
 
@@ -106,7 +106,7 @@ C'était la première fois qu'elle vivait une telle expérience !
 
 « Continuez la poursuite. Même s'il faut le traquer jusqu'au bout du monde, nous devons le tuer ! Nord-est, 1 734 532 kilomètres ! Les stratagèmes de cet homme sont profonds et tout doit être pris en compte. Je crains que même sa route d'évasion n'ait un sens... Cette direction... Ceci... » murmura la femme tandis que sa main tenant la boussole tremblait. Elle leva soudain les yeux vers le nord-est.
 
-« C'est l'emplacement de la Tombe de l'Ordre Antique !! Pourquoi a-t-il choisi de s'enfuir là-bas ?! »
+« C'est l'emplacement de la Tombe de l'Ordre Antique ! ! Pourquoi a-t-il choisi de s'enfuir là-bas ? ! »
 
 L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... La zone s'étendant de la faille jusqu'à la Tombe de l'Ordre Antique était plongée dans un brouillard dense. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
 

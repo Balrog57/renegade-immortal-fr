@@ -4,7 +4,7 @@ title: Cœurs morts, déjà oubliés
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2072 - Hearts Dead, Already Forgotten
-slug: curs-morts-deja-oublies
+slug: curs-morts-déjà-oublies
 ---
 Sous le rideau de pluie, la chute des gouttes ressemblait à un murmure délicat. Tandis que l'eau se dispersait, le chant du vent s'y mêlait pour former une brume onirique issue d'une vie antérieure.
 
@@ -78,11 +78,11 @@ Wang Lin, de son côté, restait plongé dans ses pensées.
 
 « La réincarnation. Lorsque j'ai déverrouillé les souvenirs des êtres en réincarnation, je ne me suis pas demandé si j'étais moi aussi prisonnier d'un cycle... Si je suis réellement dans un cycle de réincarnation, alors qui viendra déverrouiller mes propres souvenirs ? » En y songeant, Wang Lin éclata de rire, un rire qui se mua en sanglots.
 
-« La réincarnation, c'est donc cela la réincarnation !! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais !! » Il riait encore, l'esprit soudain porté vers la silhouette qui rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
+« La réincarnation, c'est donc cela la réincarnation ! ! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais ! ! » Il riait encore, l'esprit soudain porté vers la silhouette qui rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
 
 Les paroles de cette figure retentirent une fois de plus à ses oreilles :
 
-« Ciel et terre !! Quel est l'intérêt d'être au sommet des cieux et de la terre ?! Quel intérêt y a-t-il à être adoré par tous ?! Quel sens donner à la récitation infinie des écritures ?! Si le monde est ainsi, pourquoi ne pas le détruire ?! Si toute vie est ainsi, pourquoi ne pas disparaître ?! Si les écritures sont ainsi, pourquoi ne pas y mettre fin ?! Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour plonger la terre dans le sommeil, pour inverser le cours de la rivière des enfers, pour arrêter la réincarnation et faire que le monde... n'existe plus !!! »
+« Ciel et terre ! ! Quel est l'intérêt d'être au sommet des cieux et de la terre ? ! Quel intérêt y a-t-il à être adoré par tous ? ! Quel sens donner à la récitation infinie des écritures ? ! Si le monde est ainsi, pourquoi ne pas le détruire ? ! Si toute vie est ainsi, pourquoi ne pas disparaître ? ! Si les écritures sont ainsi, pourquoi ne pas y mettre fin ? ! Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour plonger la terre dans le sommeil, pour inverser le cours de la rivière des enfers, pour arrêter la réincarnation et faire que le monde... n'existe plus ! !! »
 
 Wang Lin marmonna ces paroles tandis qu'elles tourbillonnaient dans son esprit. Cette voix devint de plus en plus assourdissante, jusqu'à ce que le ciel se déchire, que la terre tremble et qu'une tempête s'abatte sur le Continent Astral Immortel.
 

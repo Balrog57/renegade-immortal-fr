@@ -4,7 +4,7 @@ title: Quelle est la vérité ?
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2080 - What is the Truth
-slug: quelle-est-la-verite
+slug: quelle-est-la-vérité
 ---
 Chapitre 2080 - Quelle est la vérité ?
 

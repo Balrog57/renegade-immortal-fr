@@ -6,6 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 717 - Escaping alive
 slug: sechapper-vivant
 ---
+
 Tous les cheveux de Greed se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
 
 Ce doigt illusoire semblait être issu du Dao céleste ; il était comme une extension des cieux eux-mêmes.
@@ -138,7 +139,7 @@ Wang Lin fut surpris, puis immédiatement envahi par l'extase. Il accéléra sa 
 
 Wang Lin poussa un grand soupir de soulagement, ses yeux trahissant encore une trace de peur persistante.
 
-« Ce Serpent Moongazer est tout simplement trop puissant. S'il n'avait pas été si lent, je serais déjà mort ! Comparé à celui dont Tu Si avait le souvenir, il n'y avait rien de similaire entre les deux, hormis leur apparence. Comment ce Serpent Moongazer peut-il être aussi terrifiant ?! »
+« Ce Serpent Moongazer est tout simplement trop puissant. S'il n'avait pas été si lent, je serais déjà mort ! Comparé à celui dont Tu Si avait le souvenir, il n'y avait rien de similaire entre les deux, hormis leur apparence. Comment ce Serpent Moongazer peut-il être aussi terrifiant ? ! »
 
 Wang Lin se retourna vers le domaine nord et commença à réfléchir.
 

@@ -3,7 +3,7 @@ n: 1709
 title: "L'Envie de l'Empereur !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1709 - Emperor’s Envy!"
+en: "Chapter 1709 - Emperor’s Envy !"
 slug: lenvie-de-lempereur
 ---
 Chapitre 1709 - L'Envie de l'Empereur !
@@ -64,7 +64,7 @@ Ce changement soudain provoqua un tollé !
 
 L'expression de l'homme en robe royale changea pour la première fois. Il fixa la lumière entre les sourcils de la statue, le choc se lisant dans ses yeux.
 
-« Comment est-ce possible ?! Cela devait s'arrêter, comment cela peut-il arriver ? Ceci... ceci... »
+« Comment est-ce possible ? ! Cela devait s'arrêter, comment cela peut-il arriver ? Ceci... ceci... »
 
 Seul le jeune homme aux cheveux noirs, le Grand Empereur Xuan Luo, esquissa un sourire. Ses yeux brillaient d'une lueur étrange tandis qu'il contemplait la statue en silence.
 
@@ -84,13 +84,13 @@ La lumière sanguine devint de nouveau monstrueuse, et cette fois, la sixième g
 
 « Pas six gouttes, il y en a sept ! »
 
-Alors que la lumière sanguine s'intensifiait, la foule entra en effervescence. Le visage de l'homme en robe royale vira au violet alors que la septième goutte apparaissait ! Et ce qui fut encore plus incroyable, c'est qu'au moment où le Grand Empereur Xuan Luo éclata de rire, la huitième goutte apparut !!
+Alors que la lumière sanguine s'intensifiait, la foule entra en effervescence. Le visage de l'homme en robe royale vira au violet alors que la septième goutte apparaissait ! Et ce qui fut encore plus incroyable, c'est qu'au moment où le Grand Empereur Xuan Luo éclata de rire, la huitième goutte apparut ! !
 
 Huit gouttes de sang ! Même le Grand Empereur Xuan Luo n'en avait obtenu que huit !
 
 Les spectateurs étaient proches de la folie, fixant la statue avec effroi. L'homme en robe royale se lécha inconsciemment les lèvres, une lueur de froideur presque imperceptible traversant son regard.
 
-« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang ? Je suis le véritable descendant de l'Ancêtre Suprême, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle !! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empereur Xuan Luo voir son trouble.
+« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang ? Je suis le véritable descendant de l'Ancêtre Suprême, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle ! ! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empereur Xuan Luo voir son trouble.
 
 Il dissimula son expression sombre sous un sourire. Tournant son visage vers le jeune homme aux cheveux noirs, il dit : « Félicitations, Oncle. Il semble que cet enfant devienne votre unique disciple. Peut-être qu'un jour, il surpassera l'Oncle et deviendra un nouveau Grand Empereur pour le clan Dao. »
 
@@ -106,17 +106,17 @@ La neuvième goutte de sang fit briller les yeux du Grand Empereur Xuan Luo. La 
 
 Cependant, ce n'était pas la fin. Après la neuvième goutte, la lumière sanguine se rassembla une fois de plus. Alors que tout le monde retenait son souffle, la dixième goutte montra des signes d'apparition !
 
-« La dixième goutte !! Quelque chose qui ne s'est jamais produit depuis la nuit des temps, la dixième goutte !! »
+« La dixième goutte ! ! Quelque chose qui ne s'est jamais produit depuis la nuit des temps, la dixième goutte ! ! »
 
-« Dix gouttes du sang de l'Ancêtre Suprême, c'est incroyable. Dix gouttes... cela ne signifie-t-il pas que cet homme est le véritable empereur du clan Dao ?! »
+« Dix gouttes du sang de l'Ancêtre Suprême, c'est incroyable. Dix gouttes... cela ne signifie-t-il pas que cet homme est le véritable empereur du clan Dao ? ! »
 
-« Même la famille royale n'a jamais obtenu dix gouttes. Qui est donc cet individu ? Pourrait-il devenir le futur empereur de notre clan Dao ?! »
+« Même la famille royale n'a jamais obtenu dix gouttes. Qui est donc cet individu ? Pourrait-il devenir le futur empereur de notre clan Dao ? ! »
 
 L'homme en robe royale était livide, sur le point de perdre tout contrôle face à sa jalousie démente. Il fixait la lumière qui se concentrait entre les sourcils de la statue. Toute la clarté de la région convergea pour former une goutte !
 
-Cette goutte n'était pas rouge, mais violette !! À l'instant où cette goutte de sang pourpre apparut, l'expression de l'homme en robe royale changea radicalement et il recula instinctivement de quelques pas. Ses yeux exprimaient plus de choc, d'horreur et d'incrédulité que jamais !
+Cette goutte n'était pas rouge, mais violette ! ! À l'instant où cette goutte de sang pourpre apparut, l'expression de l'homme en robe royale changea radicalement et il recula instinctivement de quelques pas. Ses yeux exprimaient plus de choc, d'horreur et d'incrédulité que jamais !
 
-« Le Sang de l'Âme de l'Ancêtre Suprême !! C'est... c'est du Sang de l'Âme !!! C'est impossible, impossible... »
+« Le Sang de l'Âme de l'Ancêtre Suprême ! ! C'est... c'est du Sang de l'Âme ! !! C'est impossible, impossible... »
 
 L'expression du Grand Empereur changea elle aussi pour la première fois. Il fixa la goutte violette, le choc se lisant dans son regard. S'il n'avait pas été troublé par la neuvième goutte, il l'était totalement à cet instant précis.
 

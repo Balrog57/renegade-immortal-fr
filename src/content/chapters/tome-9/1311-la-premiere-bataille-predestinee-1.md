@@ -4,7 +4,7 @@ title: La Première Bataille Prédestinée (1)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1311 - The First Predestined Battle (1)
-slug: la-premiere-bataille-predestinee-1
+slug: la-première-bataille-predestinee-1
 ---
 Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de cultivation s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au stade du Nirvana Vide. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
 

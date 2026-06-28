@@ -16,7 +16,7 @@ En voyant cela, une lueur glaciale traversa les yeux du Maître de Secte. Opprim
 
 « Vous deux avez du cran ! Sans même que l'Aîné ait à intervenir, je vous bannirai tous deux de la secte ! » Sur ces mots, il s'élança pour faire étalage de sa force.
 
-« Idiot !! » En entendant cela, l'expression du vieil homme de l'Exaltation Dorée changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte Terrestre.
+« Idiot ! ! » En entendant cela, l'expression du vieil homme de l'Exaltation Dorée changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte Terrestre.
 
 Cependant, avant qu'il ne puisse faire quoi que ce soit, Wang Lin se retourna et la douceur dans ses yeux se mua en un regard glacial.
 
@@ -46,7 +46,7 @@ Le sortilège de réincarnation ne pouvait dissimuler une obsession millénaire�
 
 L'homme réfléchit un instant et dit : « Oui, je suis un orphelin. Je me suis donné le nom de "Qing". » La femme à ses côtés serra sa main plus fort encore.
 
-« Des sentiments impossibles à oublier, même après la réincarnation… Il était passionné et a gardé un cadavre pendant mille ans. Lorsqu'elle s'est réveillée, ils étaient des étrangers. Des années d'attente, à attendre qu'elle se souvienne de lui… Une obsession pour la vie… Dans cette vie, son nom est Qing… Comment cela peut-il être son nom ? C'est clairement celui de la femme dont il est obsédé. Le "Qing" de Qing Shuang !! » Wang Lin regarda l'homme au visage impassible et resta silencieux un long moment.
+« Des sentiments impossibles à oublier, même après la réincarnation… Il était passionné et a gardé un cadavre pendant mille ans. Lorsqu'elle s'est réveillée, ils étaient des étrangers. Des années d'attente, à attendre qu'elle se souvienne de lui… Une obsession pour la vie… Dans cette vie, son nom est Qing… Comment cela peut-il être son nom ? C'est clairement celui de la femme dont il est obsédé. Le "Qing" de Qing Shuang ! ! » Wang Lin regarda l'homme au visage impassible et resta silencieux un long moment.
 
 Cette froideur différait de celle de Qing Shui. Elle provenait de sa vie antérieure en tant qu'esprit d'épée. La froideur de la lame n'avait rien à voir avec les émotions, et même après la réincarnation, elle persistait.
 
@@ -64,13 +64,13 @@ La femme trembla, recula inconsciemment de quelques pas pour se cacher derrière
 
 « Autrefois, Zhou Yi appelait Qing Shuang "Ting Er"… Dans cette vie, elle ne devrait pas se souvenir de son passé… » Wang Lin ferma les yeux. À l'époque, il avait commis un acte.
 
-Il n'aurait pas dû le faire, car chacun a droit à ses souvenirs. Mais lors de la réincarnation de Qing Shuang, il avait effacé sa mémoire !!
+Il n'aurait pas dû le faire, car chacun a droit à ses souvenirs. Mais lors de la réincarnation de Qing Shuang, il avait effacé sa mémoire ! !
 
-Ce n'était pas un simple sceau, il avait totalement oblitéré ses souvenirs !! Cela avait causé une souffrance intense à son âme. C'est pourquoi elle ressentait encore une peur inimaginable envers Wang Lin, même après la réincarnation.
+Ce n'était pas un simple sceau, il avait totalement oblitéré ses souvenirs ! ! Cela avait causé une souffrance intense à son âme. C'est pourquoi elle ressentait encore une peur inimaginable envers Wang Lin, même après la réincarnation.
 
-« Je ne crois pas que vous ayez perdu le souvenir de Zhou Yi ; vous avez simplement choisi la froideur. J'ai été témoin de la majeure partie de votre vie avec Zhou Yi. Puisque vous avez choisi d'oublier et que vous avez accepté de vous réincarner par mes soins, je suppose que vous l'avez fait intentionnellement. Par conséquent, je vais vous aider à effacer vos souvenirs !!
+« Je ne crois pas que vous ayez perdu le souvenir de Zhou Yi ; vous avez simplement choisi la froideur. J'ai été témoin de la majeure partie de votre vie avec Zhou Yi. Puisque vous avez choisi d'oublier et que vous avez accepté de vous réincarner par mes soins, je suppose que vous l'avez fait intentionnellement. Par conséquent, je vais vous aider à effacer vos souvenirs ! !
 
-Désormais, vous n'aurez plus les souvenirs de votre vie antérieure. Vous ne posséderez que ceux de votre vie actuelle !! » C'était ce que Wang Lin s'était dit en effaçant la mémoire de Qing Shuang.
+Désormais, vous n'aurez plus les souvenirs de votre vie antérieure. Vous ne posséderez que ceux de votre vie actuelle ! ! » C'était ce que Wang Lin s'était dit en effaçant la mémoire de Qing Shuang.
 
 Il ne l'avait dit à personne, et personne ne l'avait remarqué. Il avait fait cela seul, pour aider Zhou Yi.
 
@@ -78,7 +78,7 @@ Tandis que Wang Lin gardait les yeux clos, l'homme tenant la main de sa bien-aim
 
 Au moment où il parla, la femme serra sa main si fort qu'il semblait que leurs mains allaient fusionner ; même la mort ne saurait les séparer. Elle paraissait nerveuse et triste — elle semblait même avoir oublié sa peur de Wang Lin.
 
-« Qing, ce n'est qu'un rêve. Ce n'est qu'un rêve !!! »
+« Qing, ce n'est qu'un rêve. Ce n'est qu'un rêve ! !! »
 
 Wang Lin ouvrit les yeux et fixa l'homme.
 
@@ -108,9 +108,9 @@ C'est là ma réponse pour vous. » Les yeux de Wang Lin étaient empreints de n
 
 « Si un jour vous découvrez que ma réponse est la bonne, vous pourrez prendre cette pilule. Elle fera en sorte que vous ne fassiez plus jamais ce rêve. » Wang Lin se retourna et s'avança vers la tête du dragon marin. Il laissa derrière lui une pilule flétrie et jaune, semblable à une feuille d'automne, qui flottait devant l'homme confus.
 
-« Zheng Tianlin, ces deux-là sont mes plus proches amis, et ils sont désormais réincarnés au sein de votre secte. C'est une immense bénédiction pour vous. J'aiderai votre secte à trois reprises !! Si quoi que ce soit leur arrive, je reviendrai vous demander des comptes ! » La voix de Wang Lin résonna dans le cœur du vieil homme de l'Exaltation Dorée. Simultanément, Wang Lin agita la main et un jade portant son empreinte vola vers le vieil homme.
+« Zheng Tianlin, ces deux-là sont mes plus proches amis, et ils sont désormais réincarnés au sein de votre secte. C'est une immense bénédiction pour vous. J'aiderai votre secte à trois reprises ! ! Si quoi que ce soit leur arrive, je reviendrai vous demander des comptes ! » La voix de Wang Lin résonna dans le cœur du vieil homme de l'Exaltation Dorée. Simultanément, Wang Lin agita la main et un jade portant son empreinte vola vers le vieil homme.
 
-« Merci, Très Haut Empyrean !! » Le vieil homme de l'Exaltation Dorée trembla et s'inclina devant Wang Lin. C'était un présent inestimable !!
+« Merci, Très Haut Empyrean ! ! » Le vieil homme de l'Exaltation Dorée trembla et s'inclina devant Wang Lin. C'était un présent inestimable ! !
 
 À cet instant, une brise souffla, faisant flotter les cheveux de l'homme et de la femme. Deux mèches de leurs chevelures s'entrelacèrent comme deux papillons dansants.
 

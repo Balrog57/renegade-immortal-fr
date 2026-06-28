@@ -3,7 +3,7 @@ n: 1981
 title: "Wang Lin aux cheveux noirs !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1981 - Black-Haired Wang Lin!"
+en: "Chapter 1981 - Black-Haired Wang Lin !"
 slug: wang-lin-aux-cheveux-noirs
 ---
 Chapitre 1981 - Wang Lin aux cheveux noirs !
@@ -50,7 +50,7 @@ En un laps de temps très court, plus de la moitié des silhouettes périrent so
 
 Wang Lin ne marqua pas de pause. Il leva la main et des centaines d'éclairs noirs apparurent. La destruction et l'intention meurtrière qui les animaient formèrent un gaz noir enveloppant Wang Lin. Ces éclairs volèrent vers la paume comme une pluie de météores.
 
-Rumble, rumble, rumble, rumble !!
+Rumble, rumble, rumble, rumble ! !
 
 La paume s'effondra soudainement, et les cent personnes à l'intérieur périrent toutes. Lorsque Wang Lin en sortit, du sang coulait de sa bouche, mais la folie dans ses yeux était devenue plus intense encore. Alors qu'il avançait, des ondulations résonnèrent dans le vide devant lui. Le doigt qui avait disparu réapparut soudainement et pointa entre les sourcils de Wang Lin !
 
@@ -58,7 +58,7 @@ La paume s'effondra soudainement, et les cent personnes à l'intérieur périren
 
 Cependant, sous la menace du doigt, Wang Lin leva brusquement la tête. La folie dans son regard s'intensifia sans montrer le moindre signe de dissipation.
 
-« Détruire, c'est rendre toute existence nulle. Avec ton simple pouvoir, tu oses prétendre me faire disparaître ?! » Wang Lin leva la main droite et décocha un coup de poing. Sous l'impact, d'innombrables ondulations parcoururent le vide et un faible gémissement étouffé résonna, comme si quelqu'un venait d'être blessé. Le doigt qui pointait vers Wang Lin s'effondra immédiatement.
+« Détruire, c'est rendre toute existence nulle. Avec ton simple pouvoir, tu oses prétendre me faire disparaître ? ! » Wang Lin leva la main droite et décocha un coup de poing. Sous l'impact, d'innombrables ondulations parcoururent le vide et un faible gémissement étouffé résonna, comme si quelqu'un venait d'être blessé. Le doigt qui pointait vers Wang Lin s'effondra immédiatement.
 
 À l'instant même où le doigt disparut, des milliers de silhouettes floues apparurent des deux côtés de la rue. Dès leur apparition, elles chargèrent toutes contre Wang Lin !
 
@@ -90,23 +90,23 @@ Dans un craquement, la moitié d'un bras fut arrachée.
 
 « Sors de là ! » rugit Wang Lin en extrayant le membre du vide. Le monde trembla et le bras s'effondra. Ce gémissement étouffé résonna de nouveau depuis le néant !
 
-« Que tous entrent dans ce lieu et tuent cet homme !! » Une voix empreinte d'une intention meurtrière jaillit du vide.
+« Que tous entrent dans ce lieu et tuent cet homme ! ! » Une voix empreinte d'une intention meurtrière jaillit du vide.
 
 Alors que la voix résonnait, des silhouettes apparurent rapidement sur les côtés de la rue. Des dizaines de milliers de figures surgirent. Elles ignorèrent totalement l'Exalt Céleste Hai Zi pour charger Wang Lin.
 
 Le Wang Lin aux cheveux noirs recula de quelques pas, désormais enveloppé d'une masse imposante de gaz noir. La mort dans ses yeux contrastait violemment avec le sourire cruel sur son visage. Il leva la main et frappa impitoyablement son propre front !
 
-« Corps véritable des cinq éléments, sors de là !! » À ces mots, le corps de Wang Lin trembla et une forme superposée apparut au-dessus de lui. Son corps véritable des cinq éléments fut expulsé de son être !
+« Corps véritable des cinq éléments, sors de là ! ! » À ces mots, le corps de Wang Lin trembla et une forme superposée apparut au-dessus de lui. Son corps véritable des cinq éléments fut expulsé de son être !
 
 Le corps véritable des cinq éléments, à l'expression extrêmement sérieuse, apparut aux côtés de l'Exalt Céleste Hai Zi et scruta la scène.
 
 Après avoir perdu son corps véritable des cinq éléments, le niveau de cultivation de Wang Lin diminua, mais l'aura de massacre autour de lui devint plus pure encore !
 
-« Essence de restriction, sors de là !! »
+« Essence de restriction, sors de là ! ! »
 
-« Essence du commencement absolu, sors de là !! »
+« Essence du commencement absolu, sors de là ! ! »
 
-« Essence du tonnerre, sors aussi de là !! »
+« Essence du tonnerre, sors aussi de là ! ! »
 
 Le Wang Lin aux cheveux noirs continua de rugir jusqu'à ce que toutes ses essences soient expulsées de son corps !
 
@@ -114,7 +114,7 @@ Le Wang Lin aux cheveux noirs continua de rugir jusqu'à ce que toutes ses essen
 
 Des grondements tonitruants éclatèrent et, un instant plus tard, Wang Lin fut repoussé en crachant du sang. Il sentait son corps sur le point de se briser. Peu importe sa force, il ne pouvait survivre aux assauts de dizaines de milliers d'individus !
 
-« Vie et mort, karma, vrai et faux, sortez de là !! » Le Wang Lin aux cheveux noirs poussa un rugissement et son corps trembla. Ses trois essences éthérées furent également forcées hors de son être !
+« Vie et mort, karma, vrai et faux, sortez de là ! ! » Le Wang Lin aux cheveux noirs poussa un rugissement et son corps trembla. Ses trois essences éthérées furent également forcées hors de son être !
 
 À ce moment, le Wang Lin aux cheveux noirs ne possédait plus que deux essences — le massacre et la fin absolue ! Il n'y avait plus de corps véritables d'essences, seulement son corps originel !
 
@@ -132,6 +132,6 @@ Dans un bruit de craquement, le doigt fut broyé ! D'un coup sec, une silhouette
 
 La figure trembla violemment et s'effondra soudainement.
 
-« Tu... Tu n'es pas Wang Lin !!! Qui es-tu ?! » La voix de l'Exalt Céleste Hai Zi, empreinte de terreur, résonna dans la nuit silencieuse.
+« Tu... Tu n'es pas Wang Lin ! !! Qui es-tu ? ! » La voix de l'Exalt Céleste Hai Zi, empreinte de terreur, résonna dans la nuit silencieuse.
 
 Le Wang Lin aux cheveux noirs se retourna et lança un regard glacial à Hai Zi tout en s'avançant vers elle.

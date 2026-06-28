@@ -4,7 +4,7 @@ title: "Le véritable pouvoir de l'Étendard des Mille Milliards d'Âmes"
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 418 - The true power of the 1 billion soul soul flag
-slug: le-veritable-pouvoir-de-letendard-des-mille-milliards-dames
+slug: le-véritable-pouvoir-de-letendard-des-mille-milliards-dames
 ---
 Dès son apparition, il tua immédiatement plusieurs membres puissants du Clan des Immortels Déchus et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
 

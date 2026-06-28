@@ -4,7 +4,7 @@ title: Deux Événements Majeurs
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 820 - Two Big Events
-slug: deux-evenements-majeurs
+slug: deux-événements-majeurs
 ---
 Le Temple Céleste du Tonnerre avait émis un Décret Universel pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance !
 

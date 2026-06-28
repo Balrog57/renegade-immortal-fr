@@ -6,6 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 502 - Domain Enters the Body
 slug: le-domaine-entre-dans-le-corps
 ---
+
 S'il était capable de faire cela à l'heure actuelle, ce n'était pas parce que sa cultivation était assez puissante pour supprimer la froideur ambiante, mais en raison de la froideur qui régnait dans son cœur.
 
 Cette froideur intérieure ne pouvait être dissipée, lui conférant ainsi une volonté inébranlable. C'était l'état de pureté de l'esprit.
@@ -92,9 +93,9 @@ D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit l
 
 Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former l'Omniscient.
 
-« L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais ce Sortilège du Destin Céleste. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé !
+« L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais ce Sortilège du Destin Céleste. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé ! »
 
-« Je passais justement par la planète Suzaku lorsque tu comprenais ton domaine. Je t'ai vu suivre ton domaine jusqu'à son origine, et mon amour pour le talent m'a poussé à vouloir faire de toi mon disciple. Cela signifie qu'il y avait un lien entre nous, le destin entre maître et disciple.
+« Je passais justement par la planète Suzaku lorsque tu comprenais ton domaine. Je t'ai vu suivre ton domaine jusqu'à son origine, et mon amour pour le talent m'a poussé à vouloir faire de toi mon disciple. Cela signifie qu'il y avait un lien entre nous, le destin entre maître et disciple. »
 
 « Moi, l'Omniscient, j'ai suivi le destin des cieux toute ma vie, et c'est ainsi que je t'ai accepté comme mon disciple ! » À ce moment, l'Omniscient marqua une pause et fixa Wang Lin.
 

@@ -124,7 +124,7 @@ Après avoir pris le jade, Wang Lin y jeta un œil et descendit de la tête du d
 
 « Oh ? Et comment comptez-vous vous racheter ? » Wang Lin esquissa un sourire qui n'en était pas un.
 
-Voyant Wang Lin s'exprimer, le prince retrouva de l'entrain et joignit rapidement les mains.
+Voyant Wang Lin s'exprimer, le prince retrouva de l'en train et joignit rapidement les mains.
 
 « Je demande au Senior de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs de l'Ancient Dao, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas :
 

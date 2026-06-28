@@ -4,7 +4,7 @@ title: "La Colère du Moongazer, le Doigt de l'Ancien Dieu"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 716 - Moongazers Wrath, The Finger of the Ancient God
-slug: la-colere-du-moongazer-le-doigt-de-lancien-dieu
+slug: la-colère-du-moongazer-le-doigt-de-lancien-dieu
 ---
 Dans les souvenirs du dieu ancien Tu Si, il y avait une phrase qu'il utilisait pour décrire les Serpents Moongazer :
 

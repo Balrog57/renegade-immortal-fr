@@ -4,7 +4,7 @@ title: Après la Nuit Déchirée
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1242 - After Sundered Night
-slug: apres-la-nuit-dechiree
+slug: après-la-nuit-dechiree
 ---
 Se cacher au sein de l'aura des innombrables bêtes-moustiques rendait Wang Lin presque impossible à trouver, mais plus il s'enfonçait dans le Royaume Céleste du Vent, plus il devenait prudent. La vitesse de l'essaim ralentit considérablement à mesure qu'ils pénétraient dans les profondeurs du royaume.
 

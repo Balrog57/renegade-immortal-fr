@@ -60,7 +60,7 @@ Certains avaient même le regard brillant en fuyant, espérant attirer des pours
 
 Les cultivateurs d'Allheaven n'étaient pas encore organisés. Certains l'aperçurent et se précipitèrent à la poursuite des fuyards de l'Alliance.
 
-L'un des assaillants d'Allheaven utilisa rapidement un sort en poursuivant sa proie, faisant cracher une large bouchée de sang à un cultivateur de l'Alliance. Ce dernier perdit tout entrain ; sa vitesse ralentit et ses yeux se remplirent de désespoir.
+L'un des assaillants d'Allheaven utilisa rapidement un sort en poursuivant sa proie, faisant cracher une large bouchée de sang à un cultivateur de l'Alliance. Ce dernier perdit tout en train ; sa vitesse ralentit et ses yeux se remplirent de désespoir.
 
 Alors que le cultivateur d'Allheaven riait, il fit un pas en avant pour l'achever. Pourtant, au moment où il s'approcha, le désespoir disparut des yeux du fuyard de l'Alliance. Au lieu de cela, celui-ci ricana et riposta !
 

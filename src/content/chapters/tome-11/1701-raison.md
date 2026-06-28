@@ -3,7 +3,7 @@ n: 1701
 title: "Raison !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1701 - Reason!"
+en: "Chapter 1701 - Reason !"
 slug: raison
 ---
 Chapitre 1701 - Raison !
@@ -94,11 +94,11 @@ Des fracas de tonnerre résonnaient tandis que la terre s'effondrait. Des pans e
 
 Wang Lin était stupéfait par ce spectacle. Après un instant de choc, le fou et le Souverain Céleste aux Sept Couleurs entrèrent en collision dans un fracas assourdissant. Le Souverain Céleste fut projeté en arrière et cracha du sang. Son visage, marqué par la douleur et la folie, se crispa dans un rugissement violent.
 
-« Fan Shanmeng, Fan Shanlu, pourquoi m'avez-vous trahi ?! N'ai-je pas été bon envers vous ? Pourquoi ?! Est-ce seulement parce que j'ai obtenu ce fragment que vous avez oublié les dizaines de milliers d'années passées ensemble ?! »
+« Fan Shanmeng, Fan Shanlu, pourquoi m'avez-vous trahi ? ! N'ai-je pas été bon envers vous ? Pourquoi ? ! Est-ce seulement parce que j'ai obtenu ce fragment que vous avez oublié les dizaines de milliers d'années passées ensemble ? ! »
 
 « Fan Shanmeng, sors de là ! »
 
-« Vous m'avez tendu une embuscade lors du voyage de retour, pourtant je vous ai laissé partir sans vous tuer. Savez-vous combien mon cœur en a souffert ? Le savez-vous ?! Et maintenant, vous amenez un étranger pour me supprimer, espèce de salope !!! Et toi, Lian Daofei, avec ton statut noble et tes innombrables partenaires taoïstes... Tu as jeté ton dévolu sur cette traînée il y a des années, crois-tu que je ne l'ai pas vu ?! » hurla le Souverain Céleste aux Sept Couleurs, les yeux injectés de folie.
+« Vous m'avez tendu une embuscade lors du voyage de retour, pourtant je vous ai laissé partir sans vous tuer. Savez-vous combien mon cœur en a souffert ? Le savez-vous ? ! Et maintenant, vous amenez un étranger pour me supprimer, espèce de salope ! !! Et toi, Lian Daofei, avec ton statut noble et tes innombrables partenaires taoïstes... Tu as jeté ton dévolu sur cette traînée il y a des années, crois-tu que je ne l'ai pas vu ? ! » hurla le Souverain Céleste aux Sept Couleurs, les yeux injectés de folie.
 
 Le fou, ou plus précisément Lian Daofei, affichait un air d'une immense fierté. Après avoir entendu ces accusations, il secoua la tête avec un sourire méprisant :
 
@@ -110,7 +110,7 @@ Cet œil était dépourvu de toute émotion, d'une indifférence absolue. Il fix
 
 À l'instant où l'œil se ferma, l'expression de Lian Daofei changea radicalement.
 
-« La Voie Céleste !! »
+« La Voie Céleste ! ! »
 
 « Que vous tous mouriez pour ce seigneur ! » Le Souverain Céleste aux Sept Couleurs aboya tandis que le monde tremblait. Un gaz noir se propagea, occultant la vision de Wang Lin.
 

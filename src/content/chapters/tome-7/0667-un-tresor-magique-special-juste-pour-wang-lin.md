@@ -6,13 +6,14 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 667 - A Special Magical Treasure Just for Wang Lin
 slug: un-tresor-magique-special-juste-pour-wang-lin
 ---
+
 Un rayon de lumière rouge traversait le domaine nord du système stellaire d'Allheaven, tandis qu'une voix antique résonnait en son sein.
 
 « Mei Er, ceci est la terre natale de ton maître et ton futur foyer. En y repensant, des milliers d'années se sont écoulées depuis mon retour. Sans la Pierre d'Allheaven laissée par l'Ancêtre, il n'aurait pas été si facile pour moi de t'y emmener. »
 
 Une femme se trouvait à l'intérieur du rayon de lumière rouge. En contemplant ce système stellaire inconnu, elle ne ressentait aucun sentiment d'appartenance.
 
-« La planète aux reflets de verre est la planète Thousand Illusion. C'est l'une des cinq étoiles principales du domaine nord du système stellaire d'Allheaven. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de cultivation de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.
+« La planète aux reflets de verre est la planète Thousand Illusion. C'est l'une des cinq étoiles principales du domaine nord du système stellaire d'Allheaven. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de cultivation de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.»
 
 « Désormais, en plus d'être ma disciple, tu seras aussi ma fille adoptive. Une fois de retour sur la planète Thousand Illusion, je pratiquerai le rituel d'échange de sang pour transformer ta lignée. À partir de ce jour, tu ne porteras plus le nom de Liu Mei, mais celui de Huan Mei ! Es-tu d'accord ? »
 
@@ -24,7 +25,7 @@ Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te 
 
 Le rayon de lumière rouge s'élança rapidement, ne laissant derrière lui que l'écho de ses rires alors qu'il fonçait droit vers la brillante planète Thousand Illusion.
 
-En observant la planète, la femme pensa intérieurement : « Ce voyage vers le système stellaire d'Allheaven est une nouvelle vie pour moi... Wang Lin et tout ce qui s'est passé sur la planète Suzaku appartiennent désormais au passé. Avec son talent, il n'a probablement même pas encore atteint le stade Ascendant. De plus, rien ne garantit qu'il puisse réussir l'épreuve de la vie et de la mort lors de sa percée vers le stade Ascendant.
+En observant la planète, la femme pensa intérieurement : « Ce voyage vers le système stellaire d'Allheaven est une nouvelle vie pour moi... Wang Lin et tout ce qui s'est passé sur la planète Suzaku appartiennent désormais au passé. Avec son talent, il n'a probablement même pas encore atteint le stade Ascendant. De plus, rien ne garantit qu'il puisse réussir l'épreuve de la vie et de la mort lors de sa percée vers le stade Ascendant.»
 
 « L'écart entre lui et moi ne cesse de se creuser. Il n'est plus digne d'être considéré comme mon adversaire. Hélas, le trésor magique spécial que j'avais préparé pour lui n'a plus aucune utilité. » La femme prit une profonde inspiration en songeant au trésor qu'elle avait confectionné spécialement pour Wang Lin. Une pointe de douleur déchirante passa dans ses yeux, mais elle fut aussitôt masquée par l'indifférence.
 

@@ -4,7 +4,7 @@ title: "N'oubliez pas la première scène de Suzaku"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 611 - Dont Forget The First Scene Of Suzaku
-slug: noubliez-pas-la-premiere-scene-de-suzaku
+slug: noubliez-pas-la-première-scene-de-suzaku
 ---
 Aux confins de la planète de cultivation de rang 7, Tian Yun.
 

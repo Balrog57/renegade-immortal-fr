@@ -4,7 +4,7 @@ title: La Première Bataille Prédestinée (5)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1315 - The First Predestined Battle (5)
-slug: la-premiere-bataille-predestinee-5
+slug: la-première-bataille-predestinee-5
 ---
 Après avoir quitté la formation, Wang Lin savait que Tuo Sen ne le laisserait pas filer. Bien qu'il fût gravement blessé à cet instant, il serra les dents et se mit à dévorer avec frénésie. Tous les membres du Clan de la Lune n'étaient pas puissants ; la plupart des cent mille individus ne résistèrent même pas une seule attaque.
 

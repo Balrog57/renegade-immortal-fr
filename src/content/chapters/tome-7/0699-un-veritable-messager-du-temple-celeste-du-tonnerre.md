@@ -4,7 +4,7 @@ title: Un véritable messager du Temple Céleste du Tonnerre
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 699 - A Real Messenger From the Thunder Celestial Temple
-slug: un-veritable-messager-du-temple-celeste-du-tonnerre
+slug: un-véritable-messager-du-temple-celeste-du-tonnerre
 ---
 La lune était éclatante et les étoiles scintillaient.
 

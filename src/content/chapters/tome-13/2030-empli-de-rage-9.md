@@ -46,7 +46,7 @@ Wang Lin regarda Song Zhi, puis sa main droite plongea dans le vide pour en extr
 
 L'expression de ce dernier changea radicalement alors qu'il contemplait l'âme. Ses yeux étaient remplis d'incrédulité.
 
-« L'Empereur Céleste ! C'est... c'est impossible, il... Tu... Tu possèdes réellement son âme !! » haleta l'Empereur du Dao Antique. Et il n'était pas le seul ; lorsque Wang Lin sortit cette âme, les visages de tous les membres du Dao Antique se décomposèrent !
+« L'Empereur Céleste ! C'est... c'est impossible, il... Tu... Tu possèdes réellement son âme ! ! » haleta l'Empereur du Dao Antique. Et il n'était pas le seul ; lorsque Wang Lin sortit cette âme, les visages de tous les membres du Dao Antique se décomposèrent !
 
 Il en allait de même pour les membres des deux autres clans au loin. Beaucoup avaient déjà vu l'Empereur Céleste et reconnurent immédiatement la véracité de cette âme.
 
@@ -54,7 +54,7 @@ Les yeux du père de l'Empereur du Dao Antique s'écarquillèrent et son corps s
 
 Même Xuan Luo fut stupéfait en voyant cette âme.
 
-« Pas assez !! Comment une simple âme d'Empereur Céleste pourrait-elle suffire ?! » Le cœur de l'Empereur du Dao Antique battait la chamade et, pour la première fois, il regarda Wang Lin avec une peur profonde. Il ne pouvait concevoir comment Wang Lin avait pu obtenir l'âme de l'Empereur Céleste. Il faut dire que l'Empereur Céleste était l'un des neuf Grands Empereurs !
+« Pas assez ! ! Comment une simple âme d'Empereur Céleste pourrait-elle suffire ? ! » Le cœur de l'Empereur du Dao Antique battait la chamade et, pour la première fois, il regarda Wang Lin avec une peur profonde. Il ne pouvait concevoir comment Wang Lin avait pu obtenir l'âme de l'Empereur Céleste. Il faut dire que l'Empereur Céleste était l'un des neuf Grands Empereurs !
 
 Wang Lin réfléchit en silence. Il agita la main gauche vers le ciel et le Grand Empereur Soleil noir et blanc apparut derrière lui. Quelque chose émergea lentement de l'intérieur du soleil. C'était une tête. Une tête gigantesque, dépourvue d'yeux et d'oreilles !
 
@@ -64,29 +64,29 @@ Dès que la tête apparut, une énergie céleste extrêmement dense et une lumi�
 
 « C'est... » L'Empereur du Dao Antique fut saisi d'effroi en contemplant la tête. Il sentait qu'elle lui était familière, sans pouvoir s'en rappeler.
 
-« C'est... c'est la tête de l'Ancêtre Céleste !!! C'est... c'est véritablement la tête de l'Ancêtre Céleste !! » Le corps du père de l'Empereur du Dao Antique trembla violemment et il s'élança hors du palais. Il fixait la tête suspendue dans les airs, révélant une exaltation qu'il n'avait jamais manifestée auparavant.
+« C'est... c'est la tête de l'Ancêtre Céleste ! !! C'est... c'est véritablement la tête de l'Ancêtre Céleste ! ! » Le corps du père de l'Empereur du Dao Antique trembla violemment et il s'élança hors du palais. Il fixait la tête suspendue dans les airs, révélant une exaltation qu'il n'avait jamais manifestée auparavant.
 
-« Quoi !?! La tête de l'Ancêtre Céleste ! » Une fois son choc passé, l'expression de l'Empereur du Dao Antique changea radicalement.
+« Quoi ! ? ! La tête de l'Ancêtre Céleste ! » Une fois son choc passé, l'expression de l'Empereur du Dao Antique changea radicalement.
 
 Xuan Luo haleta en observant la tête, l'esprit totalement embrumé.
 
 Si ces quelques individus étaient dans cet état, qu'en était-il du reste des spectateurs ? Dès qu'ils entendirent le cri du père de l'Empereur du Dao Antique, tous se tournèrent vers la tête. Le choc qu'ils ressentirent fut bien plus intense que lorsqu'ils virent l'âme de l'Empereur Céleste.
 
-« L'Ancêtre... La tête de l'Ancêtre Céleste !!! »
+« L'Ancêtre... La tête de l'Ancêtre Céleste ! !! »
 
-« L'Ancêtre Céleste... est mort !! Alors, qu'en est-il de l'Ancêtre Dao ? L'Ancêtre Dao est-il encore en vie... ? »
+« L'Ancêtre Céleste... est mort ! ! Alors, qu'en est-il de l'Ancêtre Dao ? L'Ancêtre Dao est-il encore en vie... ? »
 
-« Ce Wang Lin possède la tête de l'Ancêtre Céleste !! » Cette nouvelle provoqua une onde de choc dans tout le palais et allait bientôt déferler sur l'ensemble du clan Ancestral. Les membres des deux autres clans fixaient la tête, incrédules.
+« Ce Wang Lin possède la tête de l'Ancêtre Céleste ! ! » Cette nouvelle provoqua une onde de choc dans tout le palais et allait bientôt déferler sur l'ensemble du clan Ancestral. Les membres des deux autres clans fixaient la tête, incrédules.
 
 Wang Lin regarda l'Empereur du Dao Antique, pétrifié, et dit d'une voix rauque : « J'échange ces deux trésors contre l'âme de ma femme. Est-ce assez ? »
 
-« Assez !! Assez !! » La personne qui répondit à Wang Lin fut le père de l'Empereur du Dao Antique. Il se tourna avec exaltation vers son fils.
+« Assez ! ! Assez ! ! » La personne qui répondit à Wang Lin fut le père de l'Empereur du Dao Antique. Il se tourna avec exaltation vers son fils.
 
-« Ye Dao, avec ces deux objets, notre Dao Antique s'élèvera ! Avec l'âme de l'Empereur Céleste et la tête de l'Ancêtre Céleste, mon Dao Antique aura la chance d'unifier tout le clan Ancestral !! Laisse partir cette femme !! » La voix du vieil homme tremblait d'excitation.
+« Ye Dao, avec ces deux objets, notre Dao Antique s'élèvera ! Avec l'âme de l'Empereur Céleste et la tête de l'Ancêtre Céleste, mon Dao Antique aura la chance d'unifier tout le clan Ancestral ! ! Laisse partir cette femme ! ! » La voix du vieil homme tremblait d'excitation.
 
 L'Empereur du Dao Antique hésita.
 
-« Vite, lève la restriction ! Qu'attends-tu ?! » rugit anxieusement le vieil homme.
+« Vite, lève la restriction ! Qu'attends-tu ? ! » rugit anxieusement le vieil homme.
 
 « Pas assez ! Avec un ennemi aussi redoutable que lui, je ne pourrai jamais être serein. Si nous tuons cet homme, ces deux objets appartiendront à mon Dao Antique ! » Un éclair d'intention meurtrière brilla dans les yeux de l'Empereur du Dao Antique.
 
@@ -96,7 +96,7 @@ L'Empereur du Dao Antique hésita.
 
 Même l'Empereur du Dao Antique pâlit et cracha une bouchée de sang. Il leva les yeux vers Xuan Luo avec une expression féroce.
 
-« Xuan Luo, oses-tu me blesser ? N'as-tu pas peur de la colère du Grand Empereur Gu Dao ?! »
+« Xuan Luo, oses-tu me blesser ? N'as-tu pas peur de la colère du Grand Empereur Gu Dao ? ! »
 
 « Ye Dao, lève cette restriction. Tu peux prendre la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste. Ce vieil homme fera comme si de rien n'était. Mais si tu refuses, alors ce vieil homme se battra contre le Grand Empereur Gu Dao pour te tuer aujourd'hui ! » Le cœur de Xuan Luo était déchiré. Il regarda l'expression presque suppliante et le visage livide de Wang Lin. Son cœur ne pouvait le supporter.
 
@@ -106,7 +106,7 @@ Avec un tel disciple, Xuan Luo pouvait être fier. Si son disciple était capabl
 
 Xuan Luo savait l'ampleur des conséquences, mais en voyant son disciple endurer tant d'humiliations, il avait décidé de se donner corps et âme !
 
-« Tu oserais me tuer ? Xuan Luo, tu es le Grand Empereur du Dao Antique. Si tu me tues, non seulement le Grand Empereur Gu Dao t'exterminera, mais tu te dresseras contre le Dao Antique que tu as protégé durant des éternités. Tu offenses l'intégralité du clan Ancestral. Oses-tu ?! Tu seras le paria du Dao Antique ; même mort, tu seras détesté par tous ! » rugit l'Empereur du Dao Antique, le visage féroce.
+« Tu oserais me tuer ? Xuan Luo, tu es le Grand Empereur du Dao Antique. Si tu me tues, non seulement le Grand Empereur Gu Dao t'exterminera, mais tu te dresseras contre le Dao Antique que tu as protégé durant des éternités. Tu offenses l'intégralité du clan Ancestral. Oses-tu ? ! Tu seras le paria du Dao Antique ; même mort, tu seras détesté par tous ! » rugit l'Empereur du Dao Antique, le visage féroce.
 
 Le corps de Xuan Luo trembla. Il ferma les yeux pour dissimuler la tristesse et la confusion qui les habitaient.
 

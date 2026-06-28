@@ -3,7 +3,7 @@ n: 1495
 title: "Pas seulement un !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1495 - Not Just One!"
+en: "Chapter 1495 - Not Just One !"
 slug: pas-seulement-un
 ---
 Chapitre 1495 - Pas seulement un !
@@ -16,17 +16,17 @@ Il ne pouvait imaginer comment un cultivateur du troisième pas pouvait devenir 
 
 Plus grave encore, cela pulvérisait l'image des cultivateurs du troisième pas en tant qu'êtres suprêmes !
 
-Cette scène lui faisait comprendre que les cultivateurs du troisième pas étaient aussi de simples cultivateurs... et qu'ils pouvaient devenir l'esclave d'autrui !!
+Cette scène lui faisait comprendre que les cultivateurs du troisième pas étaient aussi de simples cultivateurs... et qu'ils pouvaient devenir l'esclave d'autrui ! !
 
 Cependant, cette révélation brutale eut un impact violent sur Li Yunzi. Son corps trembla et il cracha une bouchée de sang.
 
-« Qui est donc ce Wang Lin... Il... Il... Comment a-t-il fait cela ? Comment a-t-il pu faire d'un cultivateur du troisième pas son esclave ?! »
+« Qui est donc ce Wang Lin... Il... Il... Comment a-t-il fait cela ? Comment a-t-il pu faire d'un cultivateur du troisième pas son esclave ? ! »
 
-« Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet au sein du Royaume Intérieur !! »
+« Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet au sein du Royaume Intérieur ! ! »
 
 Blood God était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de cultivation, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
 
-« Une hallucination... Ce doit être une hallucination... Un cultivateur du troisième pas si rare que tous les cultivateurs admirent, comment un tel être pourrait-il accepter de devenir l'esclave de quelqu'un d'autre... C'est impossible !! »
+« Une hallucination... Ce doit être une hallucination... Un cultivateur du troisième pas si rare que tous les cultivateurs admirent, comment un tel être pourrait-il accepter de devenir l'esclave de quelqu'un d'autre... C'est impossible ! ! »
 
 Cependant, le raisonnement de Blood God fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
 
@@ -40,13 +40,13 @@ Sous cette pression, ils ne parvenaient plus à tenir debout. La peur les submer
 
 « Ceci... Ceci... »
 
-« Est-ce le troisième pas... Qui a fait changer l'expression de l'Ancêtre et l'a arrêté net ? Serait-ce vraiment le légendaire... troisième pas !!! »
+« Est-ce le troisième pas... Qui a fait changer l'expression de l'Ancêtre et l'a arrêté net ? Serait-ce vraiment le légendaire... troisième pas ! !! »
 
-« La même aura que l'Ancêtre. C'est sans aucun doute un cultivateur du troisième pas !! »
+« La même aura que l'Ancêtre. C'est sans aucun doute un cultivateur du troisième pas ! ! »
 
-« Un cultivateur du troisième pas ! Trois cultivateurs du troisième pas sont apparus simultanément à Allheaven !! Absurde, c'est absolument absurde !!! Pendant des dizaines de milliers d'années, il n'y avait que l'Ancêtre, et maintenant... »
+« Un cultivateur du troisième pas ! Trois cultivateurs du troisième pas sont apparus simultanément à Allheaven ! ! Absurde, c'est absolument absurde ! !! Pendant des dizaines de milliers d'années, il n'y avait que l'Ancêtre, et maintenant... »
 
-« Le niveau de cultivation de Wang Lin n'était pas élevé lorsqu'il est parti. Pourtant, après 800 ans, sa cultivation a atteint un niveau aussi terrifiant... Un cultivateur du troisième pas comme esclave... Incroyable !! »
+« Le niveau de cultivation de Wang Lin n'était pas élevé lorsqu'il est parti. Pourtant, après 800 ans, sa cultivation a atteint un niveau aussi terrifiant... Un cultivateur du troisième pas comme esclave... Incroyable ! ! »
 
 Le tumulte se propagea à travers le domaine stellaire jusqu'à devenir un grondement de tonnerre violent.
 
@@ -96,7 +96,7 @@ Il y avait aussi cette épée brisée. Elle se rapprocha instantanément à moin
 
 Maître Lu Fu avait retrouvé son courage après le choc provoqué par Ling Dong. Il venait de prendre la décision irrévocable de combattre Wang Lin !
 
-Mais un changement soudain survint !!
+Mais un changement soudain survint ! !
 
 Wang Lin regarda calmement Maître Lu Fu qui s'approchait à toute vitesse. Il fronça les sourcils et prononça lentement : « Ancien Esclave, Zhou Jin ! »
 
@@ -106,7 +106,7 @@ Un hurlement de loup terrifiant jaillit du Four Impérial et résonna à travers
 
 Cette aura était empreinte de tyrannie et de soif de sang. Conjuguée au torse nu de Zhou Jin, elle dégageait une puissance farouche ! Derrière lui se tenait un immense loup rouge sang qui fixait Maître Lu Fu !
 
-Maître Lu Fu pensait que le choc qu'il avait ressenti auparavant était déjà à son comble, mais comparé à ce qui se passait maintenant, ce n'était rien du tout !?!
+Maître Lu Fu pensait que le choc qu'il avait ressenti auparavant était déjà à son comble, mais comparé à ce qui se passait maintenant, ce n'était rien du tout ! ? !
 
 Une onde de terreur indescriptible balaya son corps et il n'osa plus avancer. Il recula jusqu'à une distance de plus de trois cents mètres, les yeux écarquillés par la stupeur.
 
@@ -128,10 +128,10 @@ Rumble, rumble, rumble, rumble !
 
 Le Royaume Céleste du Vent fut déchiré et dissipé, ne laissant derrière lui que Maître Lu Fu, plus terrifié encore qu'auparavant !
 
-« Pas seulement un esclave du troisième pas... Il y en a deux !! Deux esclaves du troisième pas. Ceci... Ceci... Ceci... » Maître Lu Fu était devenu comme Master Flamespark et ses compagnons : totalement abasourdi. Ses yeux étaient remplis d'incrédulité, comme si on lui avait jeté de l'eau glacée au visage. Son corps tremblait et l'idée même de combattre s'était envolée. Il n'en avait plus la force, il n'osait plus même essayer !!
+« Pas seulement un esclave du troisième pas... Il y en a deux ! ! Deux esclaves du troisième pas. Ceci... Ceci... Ceci... » Maître Lu Fu était devenu comme Master Flamespark et ses compagnons : totalement abasourdi. Ses yeux étaient remplis d'incrédulité, comme si on lui avait jeté de l'eau glacée au visage. Son corps tremblait et l'idée même de combattre s'était envolée. Il n'en avait plus la force, il n'osait plus même essayer ! !
 
 Le loup de sang apparu derrière Zhou Jin fit penser à une rumeur à Maître Lu Fu !
 
 À cet instant, les plans de Maître Lu Fu volèrent en éclats face à ce changement radical. Il n'aurait jamais imaginé que Wang Lin puisse s'appuyer sur un soutien aussi terrifiant derrière son calme apparent !
 
-Face à trois cultivateurs du troisième pas, il n'avait plus la moindre force pour poursuivre le combat !! Bien qu'il possédât la formation planétaire, celle-ci n'était pas encore achevée. Comment pourrait-il espérer lutter contre trois de tels êtres ?
+Face à trois cultivateurs du troisième pas, il n'avait plus la moindre force pour poursuivre le combat ! ! Bien qu'il possédât la formation planétaire, celle-ci n'était pas encore achevée. Comment pourrait-il espérer lutter contre trois de tels êtres ?

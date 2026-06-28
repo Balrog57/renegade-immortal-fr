@@ -1,12 +1,12 @@
 ---
 n: 1509
-title: "Cette Bataille !!"
+title: "Cette Bataille ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1509 - This Battle!!"
+en: "Chapter 1509 - This Battle !!"
 slug: cette-bataille
 ---
-Chapitre 1509 - Cette Bataille !!
+Chapitre 1509 - Cette Bataille ! !
 
 Dans la région de rang 9 de la Mer des Nuages, le Secte Fantôme !
 
@@ -22,7 +22,7 @@ Au même moment, le sixième ensemble de jade du Daoïste Eau déclencha une vag
 
 Tous les puissants cultivateurs des quatre systèmes stellaires qui se préparaient pour la bataille reçurent l'information contenue dans le jade. Certains connaissaient son nom, d'autres l'entendaient pour la première fois, mais son nom se répandit instantanément dans tout le Royaume Intérieur !
 
-La Perle Défiant le Ciel était réapparue !!
+La Perle Défiant le Ciel était réapparue ! !
 
 Cette nouvelle suffisait à rendre fou quiconque la connaissait ! En ce moment crucial de préparation à la guerre, le Daoïste Eau avait bouleversé les cœurs !
 
@@ -60,13 +60,13 @@ Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana :
 
 « Ce n'est pas que le Maître ne croit pas... Mais ce Souverain... » Qing Lin affichait une expression complexe et, après un moment de silence, il envoya un message par Sens Divin dans le jeton de pluie.
 
-« Wang Lin est mon disciple. Qui ose lui faire du mal ?! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
+« Wang Lin est mon disciple. Qui ose lui faire du mal ? ! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
 
 Dans la Mer des Nuages, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés des membres du Secte Démon.
 
 L'homme en rouge écoutait attentivement Maître Lu Fu. Bien qu'il restât calme, une lueur de froideur brillait dans ses yeux.
 
-« Quel magnifique Domaine aux Sept Couleurs ! Quel grand Souverain !! »
+« Quel magnifique Domaine aux Sept Couleurs ! Quel grand Souverain ! ! »
 
 Cependant, à cet instant précis, tout le monde dans la vallée entendit le message de Sens Divin du Secte Divin qui se propageait dans tout le Royaume Intérieur !
 
@@ -128,17 +128,17 @@ En traversant la Mer des Nuages, le givre continua de s'étendre jusqu'à attein
 
 La glace était partout, pétrifiant le système stellaire. Wang Lin chargea vers les profondeurs de la Mer des Nuages, là où se trouvait le Secte Divin de rang 9 !
 
-En pleine charge, l'intention de tuer de Wang Lin subit un étrange changement. Cette mutation se produisit inconsciemment, sans que personne ne puisse comprendre comment. Ce changement fit apparaître une parcelle d'essence au cœur même de son intention de tuer !!
+En pleine charge, l'intention de tuer de Wang Lin subit un étrange changement. Cette mutation se produisit inconsciemment, sans que personne ne puisse comprendre comment. Ce changement fit apparaître une parcelle d'essence au cœur même de son intention de tuer ! !
 
-L'Essence de Massacre !! Tout dans ce monde pouvait devenir essence, mais l'Essence de Massacre était extrêmement difficile à former. Il ne s'agissait pas seulement de tuer massivement ; le changement singulier requis était une chose que les autres n'avaient pas encore comprise.
+L'Essence de Massacre ! ! Tout dans ce monde pouvait devenir essence, mais l'Essence de Massacre était extrêmement difficile à former. Il ne s'agissait pas seulement de tuer massivement ; le changement singulier requis était une chose que les autres n'avaient pas encore comprise.
 
 À mesure qu'il avançait, Wang Lin accélérait. Des craquements résonnaient alors qu'il gelait tout sur son passage pour pénétrer dans les profondeurs de la Mer des Nuages. La région de rang 9 !
 
-D'un seul pas, tout le brouillard de la région de rang 9 gronda et se changea en glace. Le corps de Wang Lin apparut devant le Secte Divin !!
+D'un seul pas, tout le brouillard de la région de rang 9 gronda et se changea en glace. Le corps de Wang Lin apparut devant le Secte Divin ! !
 
 « Daoïste Eau ! » Sa voix glaciale fit trembler les cieux et se propagea dans la Mer des Nuages comme un coup de tonnerre !
 
-« Tu as comploté avec le Royaume Extérieur et trahi ton seigneur. À l'époque, le Seigneur du Royaume Scellé n'avait pu se résoudre à te tuer, mais je viens ici sur ses ordres pour exécuter son esclave en son nom !! »
+« Tu as comploté avec le Royaume Extérieur et trahi ton seigneur. À l'époque, le Seigneur du Royaume Scellé n'avait pu se résoudre à te tuer, mais je viens ici sur ses ordres pour exécuter son esclave en son nom ! ! »
 
 La voix de Wang Lin était comme la puissance des cieux, faisant trembler le monde !
 
@@ -146,4 +146,4 @@ Trop de gens observaient cette bataille !
 
 Les Sens Divins d'innombrables cultivateurs puissants surveillaient l'événement, et la volonté de nombreux cultivateurs du troisième niveau s'était manifestée !
 
-Cette bataille allait rendre Wang Lin légendaire dans tout le Royaume Intérieur !!
+Cette bataille allait rendre Wang Lin légendaire dans tout le Royaume Intérieur ! !

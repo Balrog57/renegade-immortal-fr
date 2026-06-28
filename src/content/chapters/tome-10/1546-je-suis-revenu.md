@@ -3,7 +3,7 @@ n: 1546
 title: "Je suis revenu !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1546 - I Have Returned!"
+en: "Chapter 1546 - I Have Returned !"
 slug: je-suis-revenu
 ---
 Chapitre 1546 - Je suis revenu !
@@ -48,7 +48,7 @@ Les yeux de Maître Flammespark étaient empreints de folie. Ses mains formèren
 
 Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Flammespark cracha du sang. Il utilisa l'énergie du choc pour charger follement vers l'avant. Les fragments derrière lui furent consumés par la mer de flammes et trois d'entre eux s'effondrèrent, mais les restants suivirent Maître Flammespark.
 
-« Si le vice-doyen du Conseil Souverain, l'estimé Maître Tian Zhao, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait ?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Flammespark.
+« Si le vice-doyen du Conseil Souverain, l'estimé Maître Tian Zhao, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait ? ! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Flammespark.
 
 Les deux cultivateurs du Système des Étoiles Anciennes étaient tous deux au sommet du stade de Briseur de Nirvana, tout comme l'actuel Maître Flammespark. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
 
@@ -66,7 +66,7 @@ Toutefois, il était encore à une certaine distance de la limite de la zone. Ma
 
 « Le Seigneur du Royaume Scellé est déjà mort, vous le savez mieux que quiconque ! S'il était vivant, pourquoi n'est-il pas apparu lors des deuxième et troisième batailles ? Pourquoi n'est-il pas intervenu quand Maître Hong Shan était piégé ? "Seigneur du Royaume Scellé"... ce n'est qu'un nom usurpé ; aux yeux de ce vieil homme, il n'est qu'un enfant ! » Les paroles du membre du Clan du Loup Céleste étaient tranchantes. Sa main droite traça un sceau et des poils verts poussèrent soudainement sur tout son bras droit !
 
-L'expression de Maître Flammespark s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan de l'Hirondelle de Feu du doigt et sourit férocement : « Ridicule ? Il a tué l'ancêtre de votre clan en un instant et a abattu plus de 100 000 cultivateurs du Royaume Extérieur ! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure ?! »
+L'expression de Maître Flammespark s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan de l'Hirondelle de Feu du doigt et sourit férocement : « Ridicule ? Il a tué l'ancêtre de votre clan en un instant et a abattu plus de 100 000 cultivateurs du Royaume Extérieur ! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure ? ! »
 
 L'intention meurtrière dans les yeux du cultivateur du Clan de l'Hirondelle de Feu devint monstrueuse. C'était la douleur même qui déchirait tout leur clan !
 
@@ -98,10 +98,10 @@ Ces deux-là connaissaient trop bien cette voix. Elle était un cauchemar ancré
 
 Lorsqu'ils distinguèrent enfin la silhouette, le dernier vestige d'espoir auquel ils s'accrochaient vola en éclats !
 
-« Seigneur du Royaume Scellé !! »
+« Seigneur du Royaume Scellé ! ! »
 
-« SEIGNEUR DU ROYAUME SCELLÉ !!!! » Une voix déformée par une terreur indicible jaillit de leurs gorges ! Un tel cri ne pouvait émaner que d'un être dont l'esprit s'était brisé sous la peur !
+« SEIGNEUR DU ROYAUME SCELLÉ ! !! ! » Une voix déformée par une terreur indicible jaillit de leurs gorges ! Un tel cri ne pouvait émaner que d'un être dont l'esprit s'était brisé sous la peur !
 
-« Seigneur du Royaume Scellé, Wang Lin !! » La dernière voix était empreinte d'une joie inimaginable. C'était celle de Maître Flammespark, pétrifié par l'incrédulité !
+« Seigneur du Royaume Scellé, Wang Lin ! ! » La dernière voix était empreinte d'une joie inimaginable. C'était celle de Maître Flammespark, pétrifié par l'incrédulité !
 
 « Je suis revenu ! »

@@ -3,7 +3,7 @@ n: 1520
 title: "Âme Spirituelle !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1520 - Spirit Soul!"
+en: "Chapter 1520 - Spirit Soul !"
 slug: ame-spirituelle
 ---
 Chapitre 1520 - Âme Spirituelle !
@@ -58,7 +58,7 @@ C'était comme s'il avait été violemment entraîné dans une illusion, un mond
 
 Le ciel y était noir, la terre également. Une odeur nauséabonde imprégnait les lieux, et il vit d'innombrables silhouettes vêtues de noir assises sur le sol. À première vue, ces gens étaient sans fin !
 
-Cent mille, un million, dix millions, cent millions, un milliard, dix milliards !!
+Cent mille, un million, dix millions, cent millions, un milliard, dix milliards ! !
 
 Ce monde était sans limites, et la multitude de ces êtres en noir était terrifiante !
 
@@ -104,7 +104,7 @@ Le ciel s'écroula et la paume descendit. La masse noire percuta le dos du Dieu 
 
 Un fracas de tonnerre retentit violemment lorsque la paume noire frappa le dos du géant. Le dos se brisa, mais sans que chair ni sang ne soient projetés. Le dos du Dieu Ancien continua de s'enfoncer, comme si même lui ne pouvait résister !
 
-« Comment pourrais-je vénérer un être comme toi ?! » rugit Wang Lin, le visage empreint d'une fureur sauvage. Le Dieu Ancien qui le portait se retourna soudainement et décocha un coup de poing !
+« Comment pourrais-je vénérer un être comme toi ? ! » rugit Wang Lin, le visage empreint d'une fureur sauvage. Le Dieu Ancien qui le portait se retourna soudainement et décocha un coup de poing !
 
 Un autre fracas tonitruant éclata lorsque le poing du Dieu Ancien entra en collision avec la paume noire. Une onde de choc puissante se propagea, repoussant la paume noire de 100 000 pieds !
 
@@ -112,7 +112,7 @@ Le Dieu Ancien sembla pousser un soupir avant de se dissiper progressivement. Il
 
 Alors que le coup du Dieu Ancien avait repoussé la paume sombre, Wang Lin chargea en avant. Il ferma le poing et lança une attaque ! Une tête fantomatique apparut et fusionna avec ce coup !
 
-« Brise pour moi !! » cria Wang Lin. Son corps sembla ne faire qu'un avec ce coup de poing. Un éclair de foudre et des flammes dévorantes jaillirent alors qu'il s'élançait comme une météorite. Il percuta à nouveau la paume sombre !
+« Brise pour moi ! ! » cria Wang Lin. Son corps sembla ne faire qu'un avec ce coup de poing. Un éclair de foudre et des flammes dévorantes jaillirent alors qu'il s'élançait comme une météorite. Il percuta à nouveau la paume sombre !
 
 Des grondements de tonnerre résonnèrent et la paume noire trembla. Le corps de Wang Lin transperça le centre de la masse !
 
@@ -120,6 +120,6 @@ Les yeux vides de Wang Lin retrouvèrent instantanément leur éclat, comme s'il
 
 La main droite de l'Éminent Nan Zhao trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir !
 
-« Quel corps puissant !!! » L'expression de l'Éminent Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles prioritaires !
+« Quel corps puissant ! !! » L'expression de l'Éminent Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles prioritaires !
 
-« Il n'a même pas encore atteint le troisième pas, et pourtant il a pu esquiver et riposter contre ma paume. S'il atteint le troisième pas, il sera absolument terrifiant !! Cet enfant ne doit pas être laissé en vie !! »
+« Il n'a même pas encore atteint le troisième pas, et pourtant il a pu esquiver et riposter contre ma paume. S'il atteint le troisième pas, il sera absolument terrifiant ! ! Cet enfant ne doit pas être laissé en vie ! ! »

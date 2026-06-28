@@ -4,7 +4,7 @@ title: Rendre grâce
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 861 - Repaying Gratitude
-slug: rendre-grace
+slug: rendre-grâce
 ---
 « Xu Mu ! Le Xu Mu qui a massacré des planètes dans le Domaine de l'Ouest ! »
 

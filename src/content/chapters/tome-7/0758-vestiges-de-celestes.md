@@ -6,6 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 758 - Relics of Celestials
 slug: vestiges-de-celestes
 ---
+
 Wang Lin observa l'entrée de la seconde vallée ; de l'endroit où il se tenait, elle semblait déserte. Il fit quelques pas en avant et inspecta les environs avec prudence. Puis, sa main droite traça un sceau et une restriction s'en échappa.
 
 Cette restriction se divisa en quatorze fragments dans les airs et fonça vers la vallée. Les yeux de Wang Lin brillèrent alors qu'il regardait ces restrictions pénétrer dans la gorge et disparaître silencieusement, comme si elles avaient été englouties. Il n'y eut aucune ondulation.
@@ -146,11 +147,11 @@ Non loin de la table se trouvait un encensoir, mais il ne contenait plus que de 
 
 Wang Lin s'approcha de la table et vit qu'une feuille était maintenue par un presse-papier. Ce dernier dégageait des ondes d'énergie spirituelle céleste, prouvant son caractère extraordinaire. Cependant, Wang Lin ne s'attarda pas sur l'objet, mais se concentra sur le texte.
 
-« La 16e année de la 27e ère du Royaume Céleste. La première guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire ! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...
+« La 16e année de la 27e ère du Royaume Céleste. La première guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire ! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...»
 
-« La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit ! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...
+« La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit ! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...»
 
-« Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...
+« Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...»
 
 « Alors que la plupart des Célestes combattaient, j'ai fui, mais une paire d'yeux me suivait... Je devais peindre ce que j'avais vu... »
 

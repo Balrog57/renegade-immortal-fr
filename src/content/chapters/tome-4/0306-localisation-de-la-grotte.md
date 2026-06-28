@@ -6,116 +6,177 @@ bookTitle: Clean Sweep
 en: Chapter 306 - Location of the Cave
 slug: localisation-de-la-grotte
 ---
+
 Wang Lin réfléchit un instant puis dit : « J'ai bien peur qu'il soit très difficile pour nous deux d'entrer dans cet endroit. »
 
-Chi Hu sourit et répondit : « Il sera certes difficile si nous ne sommes que deux, mais j'ai sollicité une autre personne. Si nous partons tous les trois, je suis assez confiant pour que nous y parvenions. »
+Chi Hu sourit et répondit : « Il sera certes difficile si nous ne sommes que deux, mais j'ai sollicité une autre personne.
 
-Les yeux de Wang Lin s'illuminèrent. Il déclara : « Je ne peux pas vous donner de réponse immédiate. Laissez-moi y réfléchir quelques jours. »
+Si nous partons tous les trois, je suis assez confiant pour que nous y parvenions. »
 
-Chi Hu acquiesça. « Naturellement ! Que diriez-vous de ceci : si le frère Ceng accepte, rejoignez-moi ici dans un mois. Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. » Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
+Les yeux de Wang Lin s'illuminèrent.
 
-Wang Lin réceptionna le jade et remarqua qu'il était identique à celui du Secte Da Luo. Il servait à se téléporter à travers le Royaume Céleste. Cependant, contrairement à celui du Secte Da Luo, seul un fragment était illuminé.
+Il déclara : « Je ne peux pas vous donner de réponse immédiate.
 
-« Lorsque vous entrerez dans le vortex, activez ce jade et il vous mènera au bon fragment. Frère Ceng, je vous attendrai là-bas. » Sur quoi, Chi Hu joignit les mains et s'enfonça dans le vortex.
+Laissez-moi y réfléchir quelques jours. »
 
-Wang Lin rangea le jade puis s'assit en tailleur. Il sortit le drapeau de restriction pour s'en entourer. Son âme originelle s'échappa, affichant une expression de douleur, tandis qu'un morceau de jade céleste, de la taille d'un grain de riz, était extorqué de son essence même.
+Chi Hu acquiesça. « Naturellement !
+
+Que diriez-vous de ceci : si le frère Ceng accepte, rejoignez-moi ici dans un mois.
+
+Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. »
+
+Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
+
+Wang Lin réceptionna le jade et remarqua qu'il était identique à celui du Secte Da Luo.
+
+Il servait à se téléporter à travers le Royaume Céleste.
+
+Cependant, contrairement à celui du Secte Da Luo, seul un fragment était illuminé.
+
+« Lorsque vous entrerez dans le vortex, activez ce jade et il vous mènera au bon fragment.
+
+Frère Ceng, je vous attendrai là-bas. »
+
+Sur quoi, Chi Hu joignit les mains et s'enfonça dans le vortex.
+
+Wang Lin rangea le jade puis s'assit en tailleur.
+
+Il sortit le drapeau de restriction pour s'en entourer.
+
+Son âme originelle s'échappa, affichant une expression de douleur, tandis qu'un morceau de jade céleste, de la taille d'un grain de riz, était extorqué de son essence même.
 
 Une fois ce jade extrait, son âme originelle s'affaiblit, semblant prête à s'effondrer à tout moment alors qu'elle retournait lentement dans son corps.
 
-Après un long moment, Wang Lin ouvrit les yeux, le visage marqué par la fatigue. Il observa le jade céleste avant de le ranger dans sa sacoche de rangement.
+Après un long moment, Wang Lin ouvrit les yeux, le visage marqué par la fatigue.
 
-Avec son niveau de cultivation actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le jade céleste. Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
+Il observa le jade céleste avant de le ranger dans sa sacoche de rangement.
+
+Avec son niveau de cultivation actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le jade céleste.
+
+Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
 
 On pouvait dire que les cultivateurs de la Transformation de l'Âme étaient si rares car peu de gens parvenaient à pénétrer dans le Royaume Céleste pour obtenir suffisamment d'énergie spirituelle céleste.
 
-Certaines sectes, fortes de dizaines de milliers d'années d'histoire, possédaient des réserves de jades célestes, mais seuls leurs élites et leurs Anciens pouvaient les utiliser. La rareté des cultivateurs de la Transformation de l'Âme expliquait pourquoi il y avait encore moins de cultivateurs Ascendants.
+Certaines sectes, fortes de dizaines de milliers d'années d'histoire, possédaient des réserves de jades célestes, mais seuls leurs élites et leurs Anciens pouvaient les utiliser.
+
+La rareté des cultivateurs de la Transformation de l'Âme expliquait pourquoi il y avait encore moins de cultivateurs Ascendants.
 
 Si quelqu'un tentait d'absorber l'énergie spirituelle céleste avant d'atteindre le stade avancé de la Formation de l'Âme, cet objet ne serait plus un trésor, mais un poison.
 
-Wang Lin laissa échapper un sourire amer. Son âme originelle était gravement endommagée, mais heureusement, il disposait d'âmes errantes. Après en avoir dévoré quelques-unes, il put se rétablir quelque peu.
+Wang Lin laissa échapper un sourire amer.
 
-Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa main. Il le scruta de son Sens Divin et constata que ce prétendu jade céleste ressemblait beaucoup à une pierre spirituelle. Cependant, là où les pierres spirituelles libéraient de l'énergie spirituelle, les jades célestes libéraient de l'énergie spirituelle céleste.
+Son âme originelle était gravement endommagée, mais heureusement, il disposait d'âmes errantes.
 
-Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la cultivation. Plus on en possédait, mieux c'était.
+Après en avoir dévoré quelques-unes, il put se rétablir quelque peu.
 
-Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang ; même Suzaku serait descendu pour s'en emparer.
+Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa main.
 
-Après un bref examen, Wang Lin rangea le jade. Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine. Il prit une profonde inspiration avant de sortir un autre objet : le morceau de métal provenant de la poitrine du squelette.
+Il le scruta de son Sens Divin et constata que ce prétendu jade céleste ressemblait beaucoup à une pierre spirituelle.
 
-Sun Lei avait prétendu qu'il s'agissait d'un trésor céleste de type défensif, mais dès que Wang Lin l'eut saisi, il comprit que cet objet n'était aucunement un trésor céleste. Il n'avait pas eu le temps de l'examiner plus en détail alors, mais à présent, il déploya son Sens Divin pour l'étudier de près.
+Cependant, là où les pierres spirituelles libéraient de l'énergie spirituelle, les jades célestes libéraient de l'énergie spirituelle céleste.
+
+Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la cultivation.
+
+Plus on en possédait, mieux c'était.
+
+Il connaissait la valeur inestimable de l'énergie spirituelle céleste.
+
+Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang ; même Suzaku serait descendu pour s'en emparer.
+
+Après un bref examen, Wang Lin rangea le jade.
+
+Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine.
+
+Il prit une profonde inspiration avant de sortir un autre objet : le morceau de métal provenant de la poitrine du squelette.
+
+Sun Lei avait prétendu qu'il s'agissait d'un trésor céleste de type défensif, mais dès que Wang Lin l'eut saisi, il comprit que cet objet n'était aucunement un trésor céleste.
+
+Il n'avait pas eu le temps de l'examiner plus en détail alors, mais à présent, il déploya son Sens Divin pour l'étudier de près.
 
 Dès que son Sens Divin pénétra dans le métal, il fut pris d'un vertige soudain tandis qu'une masse d'informations inondait son esprit.
 
-Après un long moment, Wang Lin afficha un regard d'émerveillement et ses yeux s'illuminèrent. Si les informations contenues dans ce métal étaient vraies, alors cet objet était le plus précieux des trois trésors. Ce morceau de métal fonctionnait comme un fragment de jade : il renfermait la méthode de raffinage d'un Charriot Tueur de Dieux.
+Après un long moment, Wang Lin afficha un regard d'émerveillement et ses yeux s'illuminèrent.
 
-D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste Trésor Céleste. Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre cultivation. En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence : créer le trésor le plus puissant de l'univers.
+Si les informations contenues dans ce métal étaient vraies, alors cet objet était le plus précieux des trois trésors.
 
-Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Céleste ; le Charriot Tueur de Dieux n'avait jamais atteint le stade souhaité et était resté scellé dans sa grotte. Avant que le Royaume Céleste ne soit détruit, il était sorti chercher des matériaux pour poursuivre ses travaux, mais il mourut tragiquement avant son retour. Ne voulant pas que l'œuvre de sa vie ne soit perdue, il avait laissé ces informations dans ce morceau de métal pour les générations futures.
+Ce morceau de métal fonctionnait comme un fragment de jade : il renfermait la méthode de raffinage d'un Charriot Tueur de Dieux.
 
-À l'intérieur du métal, cet homme avait consigné de nombreux détails sur le Charriot Tueur de Dieux inachevé, y compris des méthodes de production minutieuses. Il avait également laissé la localisation de sa grotte, exhortant quiconque la trouverait à récupérer le charriot et, si possible, à poursuivre ses recherches.
+D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste Trésor Céleste.
 
-Wang Lin prit une grande inspiration. La méthode de fabrication de ce charriot était extrêmement complexe. Beaucoup des matériaux requis avaient déjà disparu, rendant sa production impossible. Cependant, d'après les écrits, Wang Lin comprit qu'il existait plusieurs de ces Chariots Tueur de Dieux dans sa grotte, ce qui l'excitait au plus haut point.
+Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre cultivation.
 
-Après réflexion, il se leva, rangea le drapeau de restriction et marcha vers le vortex. Les personnes sur la plateforme, voyant Wang Lin approcher, reculèrent. La plupart d'entre eux étaient au stade de l'Âme Naissante ; ils n'osaient pas entrer dans le vortex, espérant seulement pouvoir dépouiller un voyageur blessé à sa sortie du Royaume Céleste.
+En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence : créer le trésor le plus puissant de l'univers.
+
+Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Céleste ; le Charriot Tueur de Dieux n'avait jamais atteint le stade souhaité et était resté scellé dans sa grotte.
+
+Avant que le Royaume Céleste ne soit détruit, il était sorti chercher des matériaux pour poursuivre ses travaux, mais il mourut tragiquement avant son retour.
+
+Ne voulant pas que l'œuvre de sa vie ne soit perdue, il avait laissé ces informations dans ce morceau de métal pour les générations futures.
+
+À l'intérieur du métal, cet homme avait consigné de nombreux détails sur le Charriot Tueur de Dieux inachevé, y compris des méthodes de production minutieuses.
+
+Il avait également laissé la localisation de sa grotte, exhortant quiconque la trouverait à récupérer le charriot et, si possible, à poursuivre ses recherches.
+
+Wang Lin prit une grande inspiration.
+
+La méthode de fabrication de ce charriot était extrêmement complexe.
+
+Beaucoup des matériaux requis avaient déjà disparu, rendant sa production impossible.
+
+Cependant, d'après les écrits, Wang Lin comprit qu'il existait plusieurs de ces Chariots Tueur de Dieux dans sa grotte, ce qui l'excitait au plus haut point.
+
+Après réflexion, il se leva, rangea le drapeau de restriction et marcha vers le vortex.
+
+Les personnes sur la plateforme, voyant Wang Lin approcher, reculèrent.
+
+La plupart d'entre eux étaient au stade de l'Âme Naissante ; ils n'osaient pas entrer dans le vortex, espérant seulement pouvoir dépouiller un voyageur blessé à sa sortie du Royaume Céleste.
 
 Wang Lin ne leur jeta même pas un regard et sauta dans le vortex.
 
-À l'intérieur du vortex, le corps de Wang Lin continuait de sombrer. Durant cette chute, il garda les yeux grands ouverts. Selon le morceau de métal, la grotte se trouvait dans la partie occidentale du Royaume Céleste. Toutefois, le Royaume Céleste actuel n'étant plus qu'un amas de fragments, rien ne garantissait que la grotte existât encore ou qu'elle n'ait pas déjà été découverte.
+À l'intérieur du vortex, le corps de Wang Lin continuait de sombrer.
 
-Le corps de Wang Lin continua sa descente jusqu'à ce qu'il atterrisse sur un fragment de la partie est. Il observa les environs avant de s'envoler rapidement pour retourner sur la plateforme. Puis, il entra à nouveau dans le vortex. Il répéta l'opération maintes fois avant de finir par atterrir sur un fragment de la partie ouest.
+Durant cette chute, il garda les yeux grands ouverts.
 
-Selon les descriptions du Céleste Trésor Céleste, sa grotte se trouvait à l'intérieur d'une montagne en forme de tigre. Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme. Il réfléchit un moment. Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches. En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
+Selon le morceau de métal, la grotte se trouvait dans la partie occidentale du Royaume Céleste.
 
-De nombreux jours passèrent sans qu'il ne trouve quoi que ce soit ; il retourna donc sur la plateforme pour entrer une nouvelle fois dans le vortex. Les gens sur la plateforme l'avaient vu revenir et plonger dans le vortex à plusieurs reprises, mais nul ne savait ce qu'il cherchait, et personne n'osait poser de question.
+Toutefois, le Royaume Céleste actuel n'étant plus qu'un amas de fragments, rien ne garantissait que la grotte existât encore ou qu'elle n'ait pas déjà été découverte.
 
-Ce jour-là, Wang Lin atterrit à nouveau et constata qu'il se trouvait du côté est du Royaume Céleste. Il poussa un soupir. Si cela continuait ainsi, combien d'années lui faudrait-il pour explorer tous les fragments de l'ouest ? La grotte du Céleste Trésor Céleste était tout simplement trop difficile à localiser.
+Le corps de Wang Lin continua sa descente jusqu'à ce qu'il atterrisse sur un fragment de la partie est.
 
-Alors qu'il s'apprêtait à s'envoler de nouveau, il ressentit soudainement une fluctuation de sorts au loin. Il vit alors deux silhouettes foncer vers lui. L'une était entourée de nuages noirs, tandis que la seconde était un jeune homme vêtu d'une robe blanche, arborant un sourire glacial.
+Il observa les environs avant de s'envoler rapidement pour retourner sur la plateforme.
 
-À cet instant, l'individu en tête remarqua Wang Lin. Il changea brusquement de direction et cria : « Camarade cultivateur, sauvez-moi ! »
+Puis, il entra à nouveau dans le vortex.
 
-Le visage du cultivateur en robe blanche s'assombrit ; il rangea son éventail et fit un geste de la main. Soudain, une main gigantesque apparut pour saisir l'homme qui fuyait. Ce dernier changea d'expression, semblant incapable d'esquiver, mais son corps se transforma soudainement en une multitude de petits insectes, lui permettant de s'échapper de l'emprise.
+Il répéta l'opération maintes fois avant de finir par atterrir sur un fragment de la partie ouest.
 
-L'homme réapparut à cent pieds de Wang Lin. En y regardant de plus près, Wang Lin le reconnut : c'était le jeune homme aux yeux empreints de soif de sang de Suzaku. Son visage était livide. Une fois apparu, il ne continua pas sa fuite mais se retourna pour faire face au jeune homme en blanc qui le poursuivait.
+Selon les descriptions du Céleste Trésor Céleste, sa grotte se trouvait à l'intérieur d'une montagne en forme de tigre.
 
-Le cultivateur en robe blanche regarda Wang Lin et joignit les mains : « Camarade cultivateur, cela ne vous concerne pas. Veuillez partir », dit-il.
+Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme.
 
-Le jeune homme répliqua promptement : « Camarade cultivateur, cet individu a tenté de me voler mon jade céleste ! Si vous m'aidez, nous pourrons nous partager le butin ! »
+Il réfléchit un moment.
 
-Les yeux du jeune homme en robe blanche se plissèrent : « Quelles absurdités. C'est toi qui m'as volé ! »
+Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches.
 
-Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans ce chaos. Sans un mot, il recula et s'envola. Le jeune homme changea brusquement d'expression et se lança à la poursuite de Wang Lin en criant : « Camarade cultivateur, considérez que nous venons de la même planète et aidez-moi pour cette fois ! »
+En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
 
-Le visage de Wang Lin s'assombrit. Il se retourna et tonna : « Dégage ! N'essaie pas de m'entraîner dans votre querelle. Si tu continues à me suivre, ne me reproche pas d'être impitoyable ! »
+De nombreux jours passèrent sans qu'il ne trouve quoi que ce soit ; il retourna donc sur la plateforme pour entrer une nouvelle fois dans le vortex.
 
-Le jeune homme afficha un regard malveillant ; il sortit un jade céleste et le lança vers Wang Lin avant de s'enfuir : « Puisque tu refuses d'aider, autant t'apporter les ennuis. Je ne veux plus de ce jade ! »
+Les gens sur la plateforme l'avaient vu revenir et plonger dans le vortex à plusieurs reprises, mais nul ne savait ce qu'il cherchait, et personne n'osait poser de question.
 
-Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme qui s'échappait à Wang Lin, et il vola rapidement vers lui. Wang Lin ne daigna même pas regarder le jade céleste. D'un revers de la main droite, il l'envoya au jeune homme en blanc. Ce dernier fut surpris, puis joignit les mains : « Merci infiniment ! Je suis Sima Yun du Secte Kui Shui. Et vous ? »
+Ce jour-là, Wang Lin atterrit à nouveau et constata qu'il se trouvait du côté est du Royaume Céleste.
 
-« Ceng Niu ! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner.
+Il poussa un soupir.
 
-Le jeune homme en blanc cria : « Camarade Ceng, j'ai déjà exploré ce secteur pendant plusieurs jours et il n'y a plus aucune énergie spirituelle céleste ici. J'ignore si vous possédez les localisations de transfert vers d'autres fragments, mais nous pourrions faire un échange. »
+Si cela continuait ainsi, combien d'années lui faudrait-il pour explorer tous les fragments de l'ouest ?
 
-Wang Lin s'arrêta, se retourna et fixa le jeune homme. Ce dernier était au stade initial de la Formation de l'Âme, mais la technique qu'il avait manifestée plus tôt était extrêmement puissante. Wang Lin réfléchit un instant, puis frappa sa sacoche pour en sortir le jade du Secte Da Luo. Il y injecta un peu d'énergie spirituelle et une carte du Royaume Céleste apparut. Bien que la majeure partie soit obscure, environ trente fragments étaient illuminés.
+La grotte du Céleste Trésor Céleste était tout simplement trop difficile à localiser.
 
-Le jeune homme en robe blanche observa attentivement la carte avant de sortir son propre jade. Il y insuffla de la puissance spirituelle et une carte similaire apparut, affichant plus de vingt fragments éclairés. Wang Lin s'enthousiasma en voyant que le jeune homme possédait cinq fragments situés dans la partie ouest.
+Alors qu'il s'apprêtait à s'envoler de nouveau, il ressentit soudainement une fluctuation de sorts au loin.
 
-Le cultivateur en blanc dit : « Camarade Ceng, ma carte contient vingt et un emplacements, dont huit se chevauchent avec les vôtres. Que diriez-vous d'un échange après que vous en aurez effacé quelques-uns ? »
+Il vit alors deux silhouettes foncer vers lui.
 
-Sans dire un mot, Wang Lin sortit un jade vierge pour en faire une copie. Il effaça ensuite certains emplacements afin de correspondre au nombre de localisations du jeune homme avant de le fixer du regard. Ce dernier possédait également un jade vide et procédait à la même opération. Une fois terminé, ils lancèrent leurs jades respectifs l'un vers l'autre.
+L'une était entourée de nuages noirs, tandis que la seconde était un jeune homme vêtu d'une robe blanche, arborant un sourire glacial.
 
-« Camarade Ceng, si vous avez l'occasion de venir sur ma Planète d'Argent Brisée, je vous accueillerai avec plaisir. »
+À cet instant, l'individu en tête remarqua Wang Lin.
 
-Wang Lin acquiesça : « D'accord ! »
-
-« Je m'en vais ! Puisque ce petit bâtard a osé me voler, je ne le laisserai pas s'échapper ! » Sur ces mots, l'homme en blanc disparut.
-
-Wang Lin réfléchit un moment avant d'ouvrir le jade qu'il venait de recevoir et pointa l'un des fragments de l'ouest. Soudain, une formation apparut et Wang Lin y disparut.
-
-Dans la partie occidentale du Royaume Céleste, il existait un fragment abritant une montagne en forme de tigre, mais à cet instant, ladite montagne était fendue en deux. Wang Lin flottait dans les airs, observant calmement ce relief. Il avait finalement trouvé cette montagne sur le troisième fragment qu'il avait testé grâce aux transferts du jeune homme en blanc. Bien qu'elle ne fût pas exactement conforme à la description du métal, l'apparence générale y était.
-
-Le corps de Wang Lin s'élança vers la montagne. Au pied de celle-ci, il découvrit la grotte du Céleste Trésor Céleste. En apercevant l'entrée, son visage s'assombrit. Les murs de la grotte étaient déjà brisés et portaient les stigmates de techniques dévastatrices ; elle avait manifestement été ravagée il y a fort longtemps. Wang Lin pénétra lentement à l'intérieur.
-
-La grotte n'était guère vaste et semblait totalement vide. Wang Lin laissa échapper un sourire amer : il avait passé tant de temps à chercher ce lieu, pour finalement arriver trop tard.
-
-Mais à cet instant précis, les yeux de Wang Lin s'illuminèrent soudainement.
+Il changea brusquement de direction et cria : « Camarade cultivateur, sauvez-moi ! » Le visage du cultivateur en robe blanche s'assombrit ; il rangea son éventail et fit un geste de la main. Soudain, une main gigantesque apparut pour saisir l'homme qui fuyait. Ce dernier changea d'expression, semblant incapable d'esquiver, mais son corps se transforma soudainement en une multitude de petits insectes, lui permettant de s'échapper de l'emprise. L'homme réapparut à cent pieds de Wang Lin. En y regardant de plus près, Wang Lin le reconnut : c'était le jeune homme aux yeux empreints de soif de sang de Suzaku. Son visage était livide. Une fois apparu, il ne continua pas sa fuite mais se retourna pour faire face au jeune homme en blanc qui le poursuivait. Le cultivateur en robe blanche regarda Wang Lin et joignit les mains : « Camarade cultivateur, cela ne vous concerne pas. Veuillez partir », dit-il. Le jeune homme répliqua promptement : « Camarade cultivateur, cet individu a tenté de me voler mon jade céleste ! Si vous m'aidez, nous pourrons nous partager le butin ! » Les yeux du jeune homme en robe blanche se plissèrent : « Quelles absurdités. C'est toi qui m'as volé ! » Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans ce chaos. Sans un mot, il recula et s'envola. Le jeune homme changea brusquement d'expression et se lança à la poursuite de Wang Lin en criant : « Camarade cultivateur, considérez que nous venons de la même planète et aidez-moi pour cette fois ! » Le visage de Wang Lin s'assombrit. Il se retourna et tonna : « Dégage ! N'essaie pas de m'entraîner dans votre querelle. Si tu continues à me suivre, ne me reproche pas d'être impitoyable ! » Le jeune homme afficha un regard malveillant ; il sortit un jade céleste et le lança vers Wang Lin avant de s'enfuir : « Puisque tu refuses d'aider, autant t'apporter les ennuis. Je ne veux plus de ce jade ! » Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme qui s'échappait à Wang Lin, et il vola rapidement vers lui. Wang Lin ne daigna même pas regarder le jade céleste. D'un revers de la main droite, il l'envoya au jeune homme en blanc. Ce dernier fut surpris, puis joignit les mains : « Merci infiniment ! Je suis Sima Yun du Secte Kui Shui. Et vous ? » « Ceng Niu ! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner. Le jeune homme en blanc cria : « Camarade Ceng, j'ai déjà exploré ce secteur pendant plusieurs jours et il n'y a plus aucune énergie spirituelle céleste ici. J'ignore si vous possédez les localisations de transfert vers d'autres fragments, mais nous pourrions faire un échange. » Wang Lin s'arrêta, se retourna et fixa le jeune homme. Ce dernier était au stade initial de la Formation de l'Âme, mais la technique qu'il avait manifestée plus tôt était extrêmement puissante. Wang Lin réfléchit un instant, puis frappa sa sacoche pour en sortir le jade du Secte Da Luo. Il y injecta un peu d'énergie spirituelle et une carte du Royaume Céleste apparut. Bien que la majeure partie soit obscure, environ trente fragments étaient illuminés. Le jeune homme en robe blanche observa attentivement la carte avant de sortir son propre jade. Il y insuffla de la puissance spirituelle et une carte similaire apparut, affichant plus de vingt fragments éclairés. Wang Lin s'enthousiasma en voyant que le jeune homme possédait cinq fragments situés dans la partie ouest. Le cultivateur en blanc dit : « Camarade Ceng, ma carte contient vingt et un emplacements, dont huit se chevauchent avec les vôtres. Que diriez-vous d'un échange après que vous en aurez effacé quelques-uns ? » Sans dire un mot, Wang Lin sortit un jade vierge pour en faire une copie. Il effaça ensuite certains emplacements afin de correspondre au nombre de localisations du jeune homme avant de le fixer du regard. Ce dernier possédait également un jade vide et procédait à la même opération. Une fois terminé, ils lancèrent leurs jades respectifs l'un vers l'autre. « Camarade Ceng, si vous avez l'occasion de venir sur ma Planète d'Argent Brisée, je vous accueillerai avec plaisir. » Wang Lin acquiesça : « D'accord ! » « Je m'en vais ! Puisque ce petit bâtard a osé me voler, je ne le laisserai pas s'échapper ! » Sur ces mots, l'homme en blanc disparut. Wang Lin réfléchit un moment avant d'ouvrir le jade qu'il venait de recevoir et pointa l'un des fragments de l'ouest. Soudain, une formation apparut et Wang Lin y disparut. Dans la partie occidentale du Royaume Céleste, il existait un fragment abritant une montagne en forme de tigre, mais à cet instant, ladite montagne était fendue en deux. Wang Lin flottait dans les airs, observant calmement ce relief. Il avait finalement trouvé cette montagne sur le troisième fragment qu'il avait testé grâce aux transferts du jeune homme en blanc. Bien qu'elle ne fût pas exactement conforme à la description du métal, l'apparence générale y était. Le corps de Wang Lin s'élança vers la montagne. Au pied de celle-ci, il découvrit la grotte du Céleste Trésor Céleste. En apercevant l'entrée, son visage s'assombrit. Les murs de la grotte étaient déjà brisés et portaient les stigmates de techniques dévastatrices ; elle avait manifestement été ravagée il y a fort longtemps. Wang Lin pénétra lentement à l'intérieur. La grotte n'était guère vaste et semblait totalement vide. Wang Lin laissa échapper un sourire amer : il avait passé tant de temps à chercher ce lieu, pour finalement arriver trop tard. Mais à cet instant précis, les yeux de Wang Lin s'illuminèrent soudainement.

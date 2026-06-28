@@ -4,7 +4,7 @@ title: Le Très Respecté Taureau Vert
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1817 - Esteemed Green Bull
-slug: le-tres-respecte-taureau-vert
+slug: le-très-respecte-taureau-vert
 ---
 En observant Wang Lin et le roi moustique qui s'éloignaient au loin, Du Qing afficha une expression amère. Il eut envie de se gifler pour réprimer l'effroi qui lui nouait le cœur, puis il s'élança à toute vitesse pour les rattraper.
 

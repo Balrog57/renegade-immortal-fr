@@ -6,9 +6,10 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 606 - Awaken
 slug: eveil
 ---
+
 À l'intérieur de la tour noire, la lumière spectrale vacillait comme jamais auparavant. Une pointe de terreur émanait même de cette lueur fantomatique. Une telle chose ne s'était pratiquement jamais produite au cours de ces innombrables années !
 
-« Cette empreinte de paume... C'est lui !! Se pourrait-il que cette personne ait un lien avec... lui... pourrait-il aussi être ici ?! » Une trace de panique traversa son Sens Divin.
+« Cette empreinte de paume... C'est lui ! ! Se pourrait-il que cette personne ait un lien avec... lui... pourrait-il aussi être ici ? ! » Une trace de panique traversa son Sens Divin.
 
 Normalement, avec sa force mentale, ce genre de panique n'aurait jamais dû apparaître. Cependant, cet individu était tout simplement trop terrifiant. Si terrifiant que, malgré sa cultivation, son cœur tremblait à la seule pensée de cet homme !
 
@@ -22,7 +23,7 @@ L'âme originelle stimulée de Wang Lin montra des signes de lucidité en entend
 
 Il se retourna et vit des nuages sombres fondre sur l'horizon. Ces nuages noirs étaient composés d'innombrables fragments d'âmes. Ces fragments regorgeaient d'énergie et provoquaient de terrifiantes ondulations en chargeant.
 
-Un jeune homme vêtu de noir marchait vers Wang Lin, pas à pas, sous ces nuages ténébreux. Cet homme paraissait ordinaire, mais une haine profonde brûlait dans son regard. Il fixa Wang Lin et hurla, les dents serrées : « Wang Lin, me reconnais-tu ?! »
+Un jeune homme vêtu de noir marchait vers Wang Lin, pas à pas, sous ces nuages ténébreux. Cet homme paraissait ordinaire, mais une haine profonde brûlait dans son regard. Il fixa Wang Lin et hurla, les dents serrées : « Wang Lin, me reconnais-tu ? ! »
 
 Les yeux de Wang Lin retrouvèrent leur limpidité. Il regarda l'individu et dit d'une voix basse : « Hu Pao. »
 
@@ -32,19 +33,19 @@ Les yeux de Wang Lin retrouvèrent leur limpidité. Il regarda l'individu et dit
 
 La voix de Wang Lin resta calme. « En effet, je n'aurais jamais imaginé. »
 
-Hu Pao hurla avec fureur : « Quand tu m'as abandonné, moi et Treize, sais-tu combien nous avons souffert ? Surtout moi, dont tous les os ont été broyés et les méridiens brisés par ce commandant !
+Hu Pao hurla avec fureur : « Quand tu m'as abandonné, moi et Treize, sais-tu combien nous avons souffert ? Surtout moi, dont tous les os ont été broyés et les méridiens brisés par ce commandant !»
 
-« J'ai subi la torture et l'humiliation dans la prison obscure. Où étais-tu alors ?
+« J'ai subi la torture et l'humiliation dans la prison obscure. Où étais-tu alors ?»
 
 « Quand j'ai appelé d'innombrables fois pour que tu me sauves, où étais-tu ? À tes yeux, Treize et moi n'étions que des pions. Malheureusement, Treize est toujours un idiot qui ne connaît pas ton vrai visage ! »
 
 Les fragments d'âmes au-dessus de lui semblaient ressentir cette exaltation et rugirent avec lui.
 
-« Heureusement, les cieux ont des yeux et ne m'ont pas laissé mourir. Au lieu de cela, ils m'ont donné une nouvelle vie et m'ont permis de rencontrer Maître. J'ai pu achever mon sort de raffinage d'âmes ici, et j'ai raffiné plus de cent millions de fragments d'âmes. Aujourd'hui, tu mourras sans aucun doute ! Cependant, je ne te tuerai pas si facilement. Je scellerai ton âme dans ton corps et je te jetterai dans le donjon le plus cruel du pays des démons, où tu seras humilié sans jamais pouvoir mourir !
+« Heureusement, les cieux ont des yeux et ne m'ont pas laissé mourir. Au lieu de cela, ils m'ont donné une nouvelle vie et m'ont permis de rencontrer Maître. J'ai pu achever mon sort de raffinage d'âmes ici, et j'ai raffiné plus de cent millions de fragments d'âmes. Aujourd'hui, tu mourras sans aucun doute ! Cependant, je ne te tuerai pas si facilement. Je scellerai ton âme dans ton corps et je te jetterai dans le donjon le plus cruel du pays des démons, où tu seras humilié sans jamais pouvoir mourir !»
 
 « Ensuite, j'extrairai ton âme et je te scellerai dans un étendard d'âme pour te tourmenter chaque jour ! »
 
-Hu Pao fixa violemment Wang Lin avant de laisser poindre une pointe de dérision : « As-tu déjà pensé qu'un jour, tu serais tué par le sort que tu as toi-même enseigné ? As-tu déjà goûté à la sensation de cent millions de fragments d'âmes envahissant ton corps ?! »
+Hu Pao fixa violemment Wang Lin avant de laisser poindre une pointe de dérision : « As-tu déjà pensé qu'un jour, tu serais tué par le sort que tu as toi-même enseigné ? As-tu déjà goûté à la sensation de cent millions de fragments d'âmes envahissant ton corps ? ! »
 
 « Une fois ton âme prise, je retournerai vers la Tribu du Raffinage d'Âmes pour capturer toutes leurs âmes également ! » Le corps de Hu Pao tremblait sous l'effet de l'excitation, et il se mit à rire comme un possédé.
 
@@ -60,11 +61,11 @@ D'autant plus que ces fragments provenaient tous de ce champ de bataille antique
 
 Wang Lin regarda silencieusement Hu Pao et dit lentement : « Il semble donc que tu veuilles me tuer, et que la haine ne soit que la moitié de la raison. L'autre moitié consiste à éliminer tous ceux qui connaissent le sort de raffinage d'âmes. De cette façon, personne d'autre ne pourra utiliser ce même sort pour rivaliser avec toi pour les fragments d'âmes... n'est-ce pas ? »
 
-Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d'être mon ancien maître. C'est exact. Tu m'as traité comme un pion, mais tu m'as enseigné le sort de raffinage d'âmes. Si je te haïssais auparavant, ce n'était pas à ce point. Mais dans la prison obscure, j'ai atteint l'éveil. Quel droit as-tu d'être mon maître ? Quel droit les autres avaient-ils de m'attaquer simplement parce qu'ils ne t'aiment pas ? Parce que tu es fort ? Alors, si je deviens encore plus puissant, qu'en sera-t-il ?!
+Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d'être mon ancien maître. C'est exact. Tu m'as traité comme un pion, mais tu m'as enseigné le sort de raffinage d'âmes. Si je te haïssais auparavant, ce n'était pas à ce point. Mais dans la prison obscure, j'ai atteint l'éveil. Quel droit as-tu d'être mon maître ? Quel droit les autres avaient-ils de m'attaquer simplement parce qu'ils ne t'aiment pas ? Parce que tu es fort ? Alors, si je deviens encore plus puissant, qu'en sera-t-il ? !»
 
 « C'est pourquoi, au moment même où j'ai été sauvé, j'ai juré de devenir fort. Je te dépasserai, puis je te tuerai ! »
 
-Wang Lin secoua légèrement la tête en observant attentivement Hu Pao : « Pour parvenir à un tel niveau de cultivation en seulement dix ans, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
+Wang Lin secoua légèrement la tête en observant attentivement Hu Pao : « Pour parvenir à un tel niveau de cultivation en seulement dix ans, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.»
 
 « Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Red Butterfly par certains aspects, il est impossible d'atteindre un tel degré en seulement dix ans. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi ! Tu as dû cultiver une méthode qui consume ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
 
@@ -72,9 +73,9 @@ Wang Lin secoua légèrement la tête en observant attentivement Hu Pao : « Pou
 
 Hu Pao rit follement : « Je vais te montrer ce qu'est un million de fragments d'âmes ! Tu n'as probablement jamais vu ne serait-ce qu'un million d'âmes auparavant ! »
 
-Xu Liguo entendait clairement leur échange. Il regarda Hu Pao et pensa : « Ce gamin ne connaît pas la hauteur du ciel. Ton grand-père Xu a tenté de se rebeller maintes fois, et j'ai échoué à chaque fois. Si tu réussis vraiment, je changerai mon nom en Hu et je m'appellerai Hu Liguo !
+Xu Liguo entendait clairement leur échange. Il regarda Hu Pao et pensa : « Ce gamin ne connaît pas la hauteur du ciel. Ton grand-père Xu a tenté de se rebeller maintes fois, et j'ai échoué à chaque fois. Si tu réussis vraiment, je changerai mon nom en Hu et je m'appellerai Hu Liguo !»
 
-« Se rebeller est une chose extrêmement difficile qui exige une planification minutieuse, surtout face à ce démon. Comment peux-tu croire que ce sera aussi simple ?! »
+« Se rebeller est une chose extrêmement difficile qui exige une planification minutieuse, surtout face à ce démon. Comment peux-tu croire que ce sera aussi simple ? ! »
 
 Wang Lin leva la tête et regarda calmement le ciel. Le million de fragments d'âmes fonçait sur lui. C'était une vision qu'il n'avait pas contemplée depuis longtemps. Cette masse noire de fragments, tous dotés d'expressions féroces, ne reculerait pas avant de l'avoir complètement dévoré.
 
@@ -86,7 +87,7 @@ Soudain, le million de fragments d'âmes s'immobilisa. Cette scène était si é
 
 Les fragments reconnaissaient Hu Pao comme leur maître, mais en voyant ce symbole, ils comprirent immédiatement que l'homme devant eux était le véritable Maître !
 
-« C'est... c'est impossible... Impossible !! » Hu Pao perdit soudainement toute connexion avec ces millions d'âmes dans son esprit. Pris de panique, il afficha un visage féroce et hurla : « Cent millions d'âmes, dévorez ! »
+« C'est... c'est impossible... Impossible ! ! » Hu Pao perdit soudainement toute connexion avec ces millions d'âmes dans son esprit. Pris de panique, il afficha un visage féroce et hurla : « Cent millions d'âmes, dévorez ! »
 
 À sa suite, les nuages noirs descendirent brusquement du ciel, créant une pression colossale, et les cent millions d'âmes s'élancèrent. À cet instant, il semblait que les fragments d'âmes étaient la seule chose existant au monde !
 
@@ -98,9 +99,9 @@ Les cent millions de fragments furent stupéfaits ; ils affichèrent immédiatem
 
 Ce changement radical et cette scène inexplicable laissèrent l'esprit de Hu Pao dans le vide.
 
-« Ton sort de raffinage d'âmes a été manipulé par quelqu'un pour en faciliter le contrôle. Cependant, comment la racine même du sort pourrait-elle être si aisément modifiée sans la véritable transmission et des dizaines de milliers d'années de sacrifices ?! »
+« Ton sort de raffinage d'âmes a été manipulé par quelqu'un pour en faciliter le contrôle. Cependant, comment la racine même du sort pourrait-elle être si aisément modifiée sans la véritable transmission et des dizaines de milliers d'années de sacrifices ? ! »
 
-Wang Lin était l'héritier du sort de raffinage d'âmes, et ce sort était le cœur même de la Secte du Raffinage d'Âmes. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en seulement dix ans sans posséder la véritable transmission ?!
+Wang Lin était l'héritier du sort de raffinage d'âmes, et ce sort était le cœur même de la Secte du Raffinage d'Âmes. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en seulement dix ans sans posséder la véritable transmission ? !
 
 Le bienfaiteur de Hu Pao ne pouvait pas faire une telle chose. Peut-être que l'homme dans l'armure le pouvait, mais il n'aurait pas gaspillé son temps pour une si futilité.
 

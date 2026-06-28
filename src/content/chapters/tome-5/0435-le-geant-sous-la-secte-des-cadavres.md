@@ -6,6 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 435 - The giant under the Corpse Sect
 slug: le-geant-sous-la-secte-des-cadavres
 ---
+
 La femme leva la main et appela les tatouages de dragon et de tigre. Les deux motifs tremblèrent instantanément puis, sans l'ombre d'une hésitation, volèrent vers elle. Ils circulèrent autour de sa silhouette comme s'ils étaient transportés par une immense joie.
 
 Peu après, la femme retourna lentement dans le parchemin, suivie par les deux tatouages.
@@ -34,31 +35,31 @@ Zhuque Zi cultivait actuellement dans les montagnes arrières du Mont Suzaku. Un
 
 Peu après, Zhuque Zi ouvrit les yeux. Une trace de folie y brillait. Un tel regard n'apparaissait que rarement sur lui.
 
-« Yunque Zi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense ! Traître, haha, quelle magnifique trahison ! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien : voici l'homme que tu as choisi !
+« Yunque Zi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense ! Traître, haha, quelle magnifique trahison ! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien : voici l'homme que tu as choisi ! »
 
-« Yunque Zi, nous avons grandi ensemble et possédons des talents similaires ; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser ? Il ne cessait de t'éloger, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il m'aurait tué à la moindre erreur.
+« Yunque Zi, nous avons grandi ensemble et possédons des talents similaires ; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser ? Il ne cessait de t'éloger, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il m'aurait tué à la moindre erreur. »
 
-« Quand il m'a transmis la Formation Mystérieuse de Suzaku, j'étais transporté par l'excitation et la gratitude. J'en ai même oublié mes amertumes passées, n'ayant qu'une seule pensée en tête : donner ma vie à la planète Suzaku et devenir un digne Suzaku.
+« Quand il m'a transmis la Formation Mystérieuse de Suzaku, j'étais transporté par l'excitation et la gratitude. J'en ai même oublié mes amertumes passées, n'ayant qu'une seule pensée en tête : donner ma vie à la planète Suzaku et devenir un digne Suzaku. »
 
-« Pourtant, je n'aurais jamais imaginé que Qian Pinghai soit aussi perfide. La Formation Mystérieuse de Suzaku est une arme à double tranchant. Chaque utilisation inflige de lourds dommages à l'âme originelle. Si elle est trop sollicitée, l'âme originelle ne pourra jamais se rétablir. Même maintenant qu'il est mort, je ne comprends toujours pas pourquoi il a agi ainsi !
+« Pourtant, je n'aurais jamais imaginé que Qian Pinghai soit aussi perfide. La Formation Mystérieuse de Suzaku est une arme à double tranchant. Chaque utilisation inflige de lourds dommages à l'âme originelle. Si elle est trop sollicitée, l'âme originelle ne pourra jamais se rétablir. Même maintenant qu'il est mort, je ne comprends toujours pas pourquoi il a agi ainsi ! »
 
-« Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cristal de la Planète de Cultivation au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi.
+« Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cristal de la Planète de Cultivation au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi. »
 
-« Qian Pinghai, tu as été aveugle de nommer Yunque Zi comme prochain Suzaku ! Si j'avais suivi tes ordres en remettant le Cristal de la Planète de Cultivation à Yunque Zi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans la tombe de Suzaku, je l'ai vendu à la Secte des Cadavres ! C'était le seul moyen d'apaiser ma haine envers toi.
+« Qian Pinghai, tu as été aveugle de nommer Yunque Zi comme prochain Suzaku ! Si j'avais suivi tes ordres en remettant le Cristal de la Planète de Cultivation à Yunque Zi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans la tombe de Suzaku, je l'ai vendu à la Secte des Cadavres ! C'était le seul moyen d'apaiser ma haine envers toi. »
 
-« Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
+« Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement... »
 
-« Ce vieil homme a parcouru la planète entière et a fini par trouver Qian Feng parmi tes descendants. Cet homme possède la même racine spirituelle que toi et te ressemble également. Chaque fois que je le vois, ma haine pour toi croît encore un peu. Ce vieil homme va l'élever et lui transmettre la Formation Mystérieuse de Suzaku. Et chaque fois que je le verrai l'utiliser, mon cœur sera rempli de joie !
+« Ce vieil homme a parcouru la planète entière et a fini par trouver Qian Feng parmi tes descendants. Cet homme possède la même racine spirituelle que toi et te ressemble également. Chaque fois que je le vois, ma haine pour toi croît encore un peu. Ce vieil homme va l'élever et lui transmettre la Formation Mystérieuse de Suzaku. Et chaque fois que je le verrai l'utiliser, mon cœur sera rempli de joie ! »
 
-« C'est là mon unique façon de te rendre ce que tu m'as fait subir.
+« C'est là mon unique façon de te rendre ce que tu m'as fait subir. »
 
-« Yunque Zi, tu connais l'existence du Cristal de la Planète de Cultivation. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance de Cultivation...
+« Yunque Zi, tu connais l'existence du Cristal de la Planète de Cultivation. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance de Cultivation... »
 
-« Bien que le Cristal de la Planète de Cultivation ait été scellé par le deuxième Suzaku, empêchant les futurs Suzakus de le contrôler, tant que le Cœur de la Planète de Cultivation est brisé, il peut entraîner la destruction du Cristal lui-même. Cependant, le prix est trop lourd car une partie de mon âme réside en son sein. Si le Cristal se brise, je mourrai avec lui.
+« Bien que le Cristal de la Planète de Cultivation ait été scellé par le deuxième Suzaku, empêchant les futurs Suzakus de le contrôler, tant que le Cœur de la Planète de Cultivation est brisé, il peut entraîner la destruction du Cristal lui-même. Cependant, le prix est trop lourd car une partie de mon âme réside en son sein. Si le Cristal se brise, je mourrai avec lui. »
 
-« L'Alliance de Cultivation n'intervient pas arbitrairement dans les affaires de chaque planète de cultivation, mais cela n'est vrai que tant que le Cristal de la Planète de Cultivation reste intact. L'Alliance est presque obsédée par l'idée de préserver l'intégrité des Cristaux de Planète de Cultivation. Cette affaire est empreinte de mystères que même les anciens Suzakus n'ont pu élucider. Mais une chose est certaine : si le Cristal se brise, l'Alliance enverra immédiatement des enquêteurs. À cet instant, ton insignifiant Clan des Immortels Délaissés sera anéanti !
+« L'Alliance de Cultivation n'intervient pas arbitrairement dans les affaires de chaque planète de cultivation, mais cela n'est vrai que tant que le Cristal de la Planète de Cultivation reste intact. L'Alliance est presque obsédée par l'idée de préserver l'intégrité des Cristaux de Planète de Cultivation. Cette affaire est empreinte de mystères que même les anciens Suzakus n'ont pu élucider. Mais une chose est certaine : si le Cristal se brise, l'Alliance enverra immédiatement des enquêteurs. À cet instant, ton insignifiant Clan des Immortels Délaissés sera anéanti ! »
 
-« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yunque Zi, ce vieil homme va jouer avec toi. Si tu parviens à obtenir ce Cristal avant la fin de mes jours, je n'aurai aucun mal à te le céder. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira le Cristal pour entraîner ton Clan des Immortels Délaissés dans ma chute !
+« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yunque Zi, ce vieil homme va jouer avec toi. Si tu parviens à obtenir ce Cristal avant la fin de mes jours, je n'aurai aucun mal à te le céder. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira le Cristal pour entraîner ton Clan des Immortels Délaissés dans ma chute ! »
 
 « Si ce vieil homme ne peut être le premier Suzaku, il peut encore être le dernier. Ne me donne pas cette opportunité ! »
 
@@ -76,9 +77,9 @@ Le regard de Qian Feng était aussi tranchant que l'éclair alors qu'il fixait l
 
 « À quoi ce vieil homme pense-t-il ? La situation devient trop périlleuse. Nous ferions mieux d'abandonner la planète Suzaku, de partir loin et de revenir quand nous aurons la puissance nécessaire pour vaincre. Si cette impasse perdure, le moral des troupes finira par s'effondrer. »
 
-Ses yeux brillèrent, il laissa échapper un renflement froid et marmonna pour lui-même : « Je me demande où se cache ce Ceng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme d'un Milliard soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il semblait tourmenté, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Ceng Niu.
+Ses yeux brillèrent, il laissa échapper un renflement froid et marmonna pour lui-même : « Je me demande où se cache ce Ceng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme d'un Milliard soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il semblait tourmenté, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Ceng Niu. »
 
-« Cependant, il vaut mieux ne pas utiliser le trésor du vieil homme, sauf nécessité absolue. Ce vieux sac d'os a bien caché ses intentions, mais j'ai remarqué depuis longtemps que son attitude envers moi était singulière.
+« Cependant, il vaut mieux ne pas utiliser le trésor du vieil homme, sauf nécessité absolue. Ce vieux sac d'os a bien caché ses intentions, mais j'ai remarqué depuis longtemps que son attitude envers moi était singulière. »
 
 « J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin ! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien ! Cependant, avant de partir, je dois tuer cette traînée de Zi Xin ! »
 

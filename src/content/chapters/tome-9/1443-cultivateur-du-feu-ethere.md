@@ -1,12 +1,12 @@
 ---
 n: 1443
-title: "Cultivateur du Feu Éthéré !!"
+title: "Cultivateur du Feu Éthéré ! !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1443 - Ethereal Fire Cultivator!!"
+en: "Chapter 1443 - Ethereal Fire Cultivator !!"
 slug: cultivateur-du-feu-ethere
 ---
-Chapitre 1443 - Cultivateur du Feu Éthéré !!
+Chapitre 1443 - Cultivateur du Feu Éthéré ! !
 
 Une force invisible tirait ces vingt-cinq plateformes, qui se déplaçaient à une vitesse dépassant l'entendement. Cette vélocité n'avait rien à envier à la pleine puissance d'un cultivateur de la Blight Céleste.
 
@@ -78,7 +78,7 @@ Wang Lin resta calme face aux provocations, mais une froideur glaciale traversa 
 
 « Quel culot ! »
 
-« Tu oses ?! »
+« Tu oses ? ! »
 
 « Arrogant ! Tu cherches la mort ! »
 
@@ -98,7 +98,7 @@ Le brasier continua de s'étendre, et la majorité des bêtes devint partie int�
 
 1 000, 3 000, 8 000, 10 003... Une quantité phénoménale de force vitale pénétrait son corps en un éclair. De plus en plus de bêtes étaient consumées par le Feu Éthéré !
 
-Tandis que cette énergie affluait, les blessures de Wang Lin furent totalement comblées !!
+Tandis que cette énergie affluait, les blessures de Wang Lin furent totalement comblées ! !
 
 Dans un fracas de tonnerre, les bêtes féroces continuaient de périr !
 
@@ -108,11 +108,11 @@ Si simple, si prodigieux !
 
 « Qui donc comptait me tuer ? » Wang Lin se retourna, son regard glacial pesant sur les cultivateurs stupéfaits derrière lui. Dans son œil gauche, un Feu Éthéré aux neuf couleurs ardait avec éclat.
 
-« Un cultivateur du Feu Éthéré !!! »
+« Un cultivateur du Feu Éthéré ! !! »
 
-« C'est un cultivateur du Feu Éthéré ! Comment est-ce possible ?! »
+« C'est un cultivateur du Feu Éthéré ! Comment est-ce possible ? ! »
 
-« Ce cultivateur légendaire dont on dit qu'il n'apparaît que tous les dizaines de milliers d'années... Il est réellement un cultivateur du Feu Éthéré !! »
+« Ce cultivateur légendaire dont on dit qu'il n'apparaît que tous les dizaines de milliers d'années... Il est réellement un cultivateur du Feu Éthéré ! ! »
 
 « D'un simple geste, il a massacré des dizaines de milliers de bêtes en un instant. Une telle cultivation... Je... j'allais vraiment tenter de le tuer... »
 

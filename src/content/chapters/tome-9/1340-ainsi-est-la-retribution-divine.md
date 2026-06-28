@@ -58,9 +58,9 @@ Plus de dix silhouettes se dessinaient à l'intérieur des nuages de rétributio
 
 L'espace derrière ces dix silhouettes sembla se distordre pour révéler un continent magnifique. Il était saturé d'énergie spirituelle céleste, où volaient d'innombrables grues célestes et où des palais remplissaient la terre !
 
-« Le Royaume Céleste !!! C'est le Royaume Céleste !!! »
+« Le Royaume Céleste ! ! ! C'est le Royaume Céleste ! ! ! »
 
-« La rétribution divine de l'Ancêtre a fait apparaître plus de dix êtres célestes !! C'est un signe de bon augure !! Auspicieux !! »
+« La rétribution divine de l'Ancêtre a fait apparaître plus de dix êtres célestes ! ! C'est un signe de bon augure ! ! Auspicieux ! ! »
 
 Les milliers de cultivateurs autour de la montagne écarquillèrent les yeux, transportés par l'excitation. C'était la première fois qu'ils voyaient une telle vision ! En contemplant cela, leur désir de devenir des êtres célestes décupla !
 
@@ -112,7 +112,7 @@ Cette sixième vague faisait des dizaines de pieds de large et fit trembler la t
 
 Elle s'abattit soudainement alors que l'homme âgé lançait son dernier rugissement :
 
-« Je veux devenir un être céleste !! »
+« Je veux devenir un être céleste ! ! »
 
 Sa voix fit trembler les cieux et atteignit les oreilles de Wang Lin, qui ouvrit brusquement les yeux.
 

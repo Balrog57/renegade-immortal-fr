@@ -1,12 +1,12 @@
 ---
 n: 1473
-title: "La Puissance d'un Rugissement !!"
+title: "La Puissance d'un Rugissement ! !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1473 - The Power of A Roar!!"
+en: "Chapter 1473 - The Power of A Roar !!"
 slug: la-puissance-dun-rugissement
 ---
-Chapitre 1473 - La Puissance d'un Rugissement !!
+Chapitre 1473 - La Puissance d'un Rugissement ! !
 
 Dans la neuvième carte, l'avatar de Devil Master Nine Heavens se déplaçait également à toute allure à travers le tombeau. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
 
@@ -20,7 +20,7 @@ Terrifié, il s'immobilisa en plein vol. Ses yeux étaient empreints de choc !
 
 À cet instant, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il n'avait ressenti une telle sensation qu'une seule fois, avant d'atteindre le troisième niveau de cultivation !
 
-« Qui est-ce ?! De quelle Divine Sense s'agit-il ?! » Devil Master Nine Heavens fixa le vide devant lui. Pour la première fois, la peur s'installa dans son cœur.
+« Qui est-ce ? ! De quelle Divine Sense s'agit-il ? ! » Devil Master Nine Heavens fixa le vide devant lui. Pour la première fois, la peur s'installa dans son cœur.
 
 Ni lui ni la femme en rose n'étaient les seuls dans cet état. Tous les cultivateurs survivants dans le tombeau ressentirent ce balayage monstrueux de Divine Sense.
 
@@ -38,7 +38,7 @@ La Divine Sense de Wang Lin, fusionnée avec le tombeau antique, venait de balay
 
 Cependant, au moment où sa main droite toucha l'onde, il ressentit une force colossale. Un grondement de tonnerre résonna alors que Great Desolation était forcé de reculer. Son expression changea instantanément et son esprit trembla !
 
-« Qui êtes-vous, Votre Excellence ?! »
+« Qui êtes-vous, Votre Excellence ? ! »
 
 Nul ne lui répondit, et la Divine Sense continua sa progression. Elle traversa la septième carte, la sixième, la cinquième... Dans la deuxième carte, le corps originel de Devil Master Nine Heavens et Miao Yin avançaient calmement. Ils franchissaient des distances incommensurables en un seul pas.
 
@@ -50,7 +50,7 @@ Les pupilles de Miao Yin se rétractèrent. Il sentit inopinément son esprit af
 
 Le visage de ce dernier était sombre, ses yeux trahissant une immense stupeur.
 
-« Très fort... Très, très fort !! »
+« Très fort... Très, très fort ! ! »
 
 La troisième Concubine Impériale Céleste avait renoncé à s'aventurer plus loin dans le tombeau. Elle volait prestement vers la première carte. Elle avait abandonné toute chance de trouver un trésor ici pour choisir la fuite !
 
@@ -124,7 +124,7 @@ Personne d'autre ne put l'entendre. Seul Wang Lin y assista clairement, car il �
 
 Tandis que ses yeux s'illuminaient, le rugissement qui avait pénétré sa conscience sembla s'engouffrer dans sa chair. Une étrange fluctuation parcourut son être, poussant Wang Lin à lâcher un rugissement de démence !
 
-ROAR !!
+ROAR ! !
 
 La puissance de ce cri fit changer les couleurs du monde et ébranla l'éternité elle-même !
 

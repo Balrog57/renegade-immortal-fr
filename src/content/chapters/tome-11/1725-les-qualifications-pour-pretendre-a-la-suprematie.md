@@ -3,7 +3,7 @@ n: 1725
 title: "Les qualifications pour prétendre à la suprématie !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1725 - The Qualifications to Vie for Supremacy!"
+en: "Chapter 1725 - The Qualifications to Vie for Supremacy !"
 slug: les-qualifications-pour-pretendre-a-la-suprematie
 ---
 Chapitre 1725 - Les qualifications pour prétendre à la suprématie !
@@ -36,7 +36,7 @@ L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet i
 
 L'expression de l'Omniscient devint féroce. Au moment même où le Dao Maître Blue Dream attaquait, il poussa un rugissement.
 
-« Tu n'es qu'une vie formée par le Dao Céleste ! Comment oses-tu me barrer la route ?! » L'Omniscient ne prêta aucune attention au Dao Maître Blue Dream. Il agita la main droite et percuta l'attaque de ce dernier.
+« Tu n'es qu'une vie formée par le Dao Céleste ! Comment oses-tu me barrer la route ? ! » L'Omniscient ne prêta aucune attention au Dao Maître Blue Dream. Il agita la main droite et percuta l'attaque de ce dernier.
 
 Un grondement de tonnerre résonna. Le visage du Dao Maître Blue Dream se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin ; il n'était plus qu'à moins de 100 pieds de lui !
 
@@ -66,7 +66,7 @@ L'horreur dans les yeux de l'Omniscient atteignit son paroxysme. Il avait complo
 
 Il n'avait pas prévu que Wang Lin retrouverait son corps originel, et il ne pensait pas non plus que ce dernier puisse encore contrôler son avatar ! Cela lui semblait impossible. Il avait déjà totalement pris possession de ce corps pour devenir une existence indépendante. Même à cet instant, il ne comprenait toujours pas pourquoi cela arrivait !
 
-Pourquoi Wang Lin pouvait-il encore contrôler ce corps ? Pourquoi pouvait-il faire dissiper le Dao et disperser l'âme originelle ?!
+Pourquoi Wang Lin pouvait-il encore contrôler ce corps ? Pourquoi pouvait-il faire dissiper le Dao et disperser l'âme originelle ? !
 
 Tandis que l'Omniscient était plongé dans la peur et la confusion, il entendit la troisième sentence de Wang Lin.
 
@@ -76,13 +76,13 @@ Tandis que l'Omniscient était plongé dans la peur et la confusion, il entendit
 
 La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependant, lorsque l'âme de Wang Lin disparut, la perfection fut rompue. Le corps de l'Omniscient s'effondra et les 2 999 âmes restantes jaillirent en tumulte.
 
-« C'est impossible ! Impossible ! Pourquoi ? Tu peux encore contrôler ce corps... Cela contredit les règles de ce monde ! Cela défie les lois de ce monde ! Je suis le Dao Céleste, c'est moi qui fixe les règles ! Tous les corps que je prends m'appartiennent !! »
+« C'est impossible ! Impossible ! Pourquoi ? Tu peux encore contrôler ce corps... Cela contredit les règles de ce monde ! Cela défie les lois de ce monde ! Je suis le Dao Céleste, c'est moi qui fixe les règles ! Tous les corps que je prends m'appartiennent ! ! »
 
-« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Toi... Qui es-tu ?! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que l'Omniscient avait dévorées au cours de ses plus de 90 éveils.
+« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Toi... Qui es-tu ? ! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que l'Omniscient avait dévorées au cours de ses plus de 90 éveils.
 
 Elles hurlaient toutes simultanément !
 
-« Qui diable es-tu ?! Tu n'es ni les trois âmes, ni les sept fragments de Seven-Colored. Tu n'es qu'un mortel issu de ma propre grotte. Tu ne peux pas faire ça, je refuse d'y croire !!! »
+« Qui diable es-tu ? ! Tu n'es ni les trois âmes, ni les sept fragments de Seven-Colored. Tu n'es qu'un mortel issu de ma propre grotte. Tu ne peux pas faire ça, je refuse d'y croire ! !! »
 
 « Tu n'es qu'une partie du Dao Céleste, mais moi, je suis le maître du Dao Céleste... » Wang Lin regarda les 2 999 âmes qui rugissaient de concert. Ces âmes étaient habitées par la folie, la confusion, ainsi que par la douleur et l'incrédulité.
 

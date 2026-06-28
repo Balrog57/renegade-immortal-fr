@@ -4,7 +4,7 @@ title: "Le mystérieux champ d'étoiles derrière la région de rang 9"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1168 - The Mysterious starfield Behind the Rank 9 Region
-slug: le-mysterieux-champ-detoiles-derriere-la-region-de-rang-9
+slug: le-mystérieux-champ-detoiles-derriere-la-region-de-rang-9
 ---
 Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5. La majeure partie de cette renommée provenait du Secte du Jade Précieux !
 

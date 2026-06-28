@@ -4,7 +4,7 @@ title: Première Transformation des Neuf Transformations Mystérieuses
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1087 - First Transformation of the Nine Mysterious Transformations
-slug: premiere-transformation-des-neuf-transformations-mysterieuses
+slug: première-transformation-des-neuf-transformations-mysterieuses
 ---
 Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêcher ce que Qing Shui s'apprêtait à faire. Il laissa échapper un soupir avant de fermer les yeux et de se plonger dans sa cultivation.
 

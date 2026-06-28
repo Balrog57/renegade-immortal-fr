@@ -4,7 +4,7 @@ title: "Même si des dizaines de milliers de personnes tentent de m'arrêter, je
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1287 - Even If Tens of Thousands of People Try to Stop Me, Ill Still Charge Forward!"
-slug: meme-si-des-dizaines-de-milliers-de-personnes-tentent-de-marreter-je-chargerai
+slug: même-si-des-dizaines-de-milliers-de-personnes-tentent-de-marreter-je-chargerai
 ---
 Chapitre 1287 - Même si des dizaines de milliers de personnes tentent de m'arrêter, je chargerai quand même !
 

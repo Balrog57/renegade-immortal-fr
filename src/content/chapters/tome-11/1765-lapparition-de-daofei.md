@@ -3,7 +3,7 @@ n: 1765
 title: "L'Apparition de Daofei !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1765 - Daofei Appears!"
+en: "Chapter 1765 - Daofei Appears !"
 slug: lapparition-de-daofei
 ---
 Chapitre 1765 - L'Apparition de Daofei !
@@ -74,7 +74,7 @@ Au centre de la force destructrice, la poitrine du Daoïste aux Sept Couleurs tr
 
 Pourtant, ses yeux étaient toujours habités par la démence.
 
-« Tu es si près de cette force destructrice... Avec ton niveau de cultivation, je veux voir comment tu vas y survivre !!! »
+« Tu es si près de cette force destructrice... Avec ton niveau de cultivation, je veux voir comment tu vas y survivre ! !! »
 
 Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Ancestral, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti !
 
@@ -92,7 +92,7 @@ Cependant, à cet instant précis, la force destructrice frappa le fou. Le corps
 
 Néanmoins, le corps du fou trembla et ses yeux s'ouvrirent lentement. Son regard était empreint de confusion et d'une pointe de colère. Pas encore tout à fait réveillé, il se mit à rugir avec fureur contre le Daoïste aux Sept Couleurs qui se tenait devant lui.
 
-« Qui ? Qui est là ?! Qui ose troubler le sommeil de ce Roi ?! Vous êtes tous des brutes, je vais le dire à mon grand frère ! » hurla le fou face au Daoïste, sans même remarquer que Wang Lin tenait son épaule pour l'utiliser comme bouclier contre la force destructrice.
+« Qui ? Qui est là ? ! Qui ose troubler le sommeil de ce Roi ? ! Vous êtes tous des brutes, je vais le dire à mon grand frère ! » hurla le fou face au Daoïste, sans même remarquer que Wang Lin tenait son épaule pour l'utiliser comme bouclier contre la force destructrice.
 
 « Vous abusez... Vous osez chatouiller ce Roi pendant qu'il dort ? Vous... Vous... » Alors qu'il rugissait, le fou se mit soudainement à ronfler. Sa tête bascula et il se rendormit aussitôt, comme si ses paroles n'avaient été que des paroles de sommeil.
 
@@ -102,17 +102,17 @@ Au loin, le Vieux Fantôme Zhan, entouré par la Voile Fantomatique, avait déj�
 
 Non loin de là, le Souverain en fuite trembla et manqua de trébucher lorsque le Fou rugit :
 
-« Ma... Maître !! »
+« Ma... Maître ! ! »
 
 Les Généraux Tortue Noire et Oiseau Vermillon qui s'enfuyaient aussi fixèrent avec choc l'homme que Wang Lin maintenait debout.
 
-« Lian Daofei !!! »
+« Lian Daofei ! !! »
 
 Ils n'étaient pas les seuls à être stupéfaits. Au loin, la troisième concubine pâlit instantanément, pétrifiée.
 
 Il y avait aussi les gens de la planète des Cinq Éléments menés par le vieil homme nommé Ma. Ils tremblaient tous. Ce dernier regardait le fou avec une terreur indicible.
 
-« Il... Il est vraiment là !! » Le vieil homme Ma ignorait que Lian Daofei était venu ici autrefois. Son cœur battait la chamade et son esprit se figea.
+« Il... Il est vraiment là ! ! » Le vieil homme Ma ignorait que Lian Daofei était venu ici autrefois. Son cœur battait la chamade et son esprit se figea.
 
 Le Grand Empyréen Xuan Luo s'avançait vers les neuf poissons. Il avait saisi le cinquième quand il s'arrêta soudainement pour observer attentivement le fou. Ses yeux révélèrent une lueur mystérieuse.
 

@@ -1,12 +1,12 @@
 ---
 n: 1486
-title: "Ancien Shen !!"
+title: "Ancien Shen ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1486 - Elder Shen!!"
+en: "Chapter 1486 - Elder Shen !!"
 slug: ancien-shen
 ---
-Chapitre 1486 - Ancien Shen !!
+Chapitre 1486 - Ancien Shen ! !
 
 Le corps émacié était complètement décomposé. Il n'y avait plus de peau, seulement des traces de chair et de sang noirs. Cela ne ressemblait plus à un être humain, mais à un cadavre ayant pourri durant d'innombrables années !
 
@@ -40,11 +40,11 @@ Tout cela se produisit en un instant. Un instant plus tard, Wang Lin saisit la t
 
 Wang Lin ne perdit pas une seconde en paroles. Son énergie originelle s'activa et il commença une recherche d'âme pour obtenir les réponses qu'il cherchait !
 
-« Tu oses me tuer ?! Ma famille Xiang est une branche de l'ancienne famille Dong Ling ! Je suis issu de cette lignée, je m'appelle Dong Lingtai ! Comment oses-tu me tuer ?! »
+« Tu oses me tuer ? ! Ma famille Xiang est une branche de l'ancienne famille Dong Ling ! Je suis issu de cette lignée, je m'appelle Dong Lingtai ! Comment oses-tu me tuer ? ! »
 
 Une folie désespérée brûlait sous la peur dans ses yeux. Il hurlait tandis que Wang Lin procédait à la recherche d'âme.
 
-« Tu as détruit la planète Dong Ling et massacré des dizaines de milliers de personnes ! Tu as offensé la famille Dong Ling, tu vas mourir !!! Pas seulement toi, mais tous tes proches seront anéantis !! Comment oses-tu me tuer ?! »
+« Tu as détruit la planète Dong Ling et massacré des dizaines de milliers de personnes ! Tu as offensé la famille Dong Ling, tu vas mourir ! !! Pas seulement toi, mais tous tes proches seront anéantis ! ! Comment oses-tu me tuer ? ! »
 
 « Trop bruyant ! » L'expression de Wang Lin resta de marbre. Au moment où il parla, une force colossale s'engouffra dans le corps de l'ancêtre de la famille Xiang. Tout ce qui soutenait son corps s'effondra.
 

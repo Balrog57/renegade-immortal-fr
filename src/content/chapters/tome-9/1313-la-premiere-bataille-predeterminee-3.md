@@ -4,9 +4,9 @@ title: La Première Bataille Prédéterminée (3)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1313 - The First Predestined Battle (3)
-slug: la-premiere-bataille-predeterminee-3
+slug: la-première-bataille-predeterminee-3
 ---
-« Pensez-vous vraiment que Tu Si soit mort ?! » Ces mots furent comme un coup de tonnerre fendant le ciel. Ils pénétrèrent l'esprit de Tuo Sen et frappèrent son point faible !
+« Pensez-vous vraiment que Tu Si soit mort ? ! » Ces mots furent comme un coup de tonnerre fendant le ciel. Ils pénétrèrent l'esprit de Tuo Sen et frappèrent son point faible !
 
 Tuo Sen était d'une arrogance extrême ; il ne craignait même pas les cieux. Cependant, s'il y avait une personne qu'il redoutait par-dessus tout, c'était Tu Si !
 
@@ -16,7 +16,7 @@ Il était né d'un démon niché dans le cœur de Tu Si et avait toujours nourri
 
 Il n'en était pas certain, et il n'osait même pas y songer, bien que tous les signes indiquent que Tu Si avait péri sous l'effet de la Technique Divine de Transformation d'Encre Fluide !
 
-« Si vous voulez me dévorer, essayez. Le moment où moi, Wang Lin, je mourrai, sera aussi celui où Tu Si s'éveillera. Et alors, vous serez anéantis vous aussi !! » La voix de Wang Lin résonna à travers le vide.
+« Si vous voulez me dévorer, essayez. Le moment où moi, Wang Lin, je mourrai, sera aussi celui où Tu Si s'éveillera. Et alors, vous serez anéantis vous aussi ! ! » La voix de Wang Lin résonna à travers le vide.
 
 L'esprit de Tuo Sen trembla et les six étoiles cessèrent de tourner. Un rare signe d'hésitation et de choc apparut dans ses yeux.
 
@@ -24,7 +24,7 @@ Alors que son esprit sombrait dans le chaos et que cette hésitation qui ne deva
 
 Des hurlements jaillirent du clair de lune effondré et une aura puissante déferla de toutes les directions telle une tempête. Ce tumulte résonna dans tout le domaine du Clan Lunaire !
 
-« Formation de Scellement Divin, ouvrez-vous !! » Une voix antique, empreinte de folie, d'excitation et d'une peur cachée, retentit à travers le domaine stellaire !
+« Formation de Scellement Divin, ouvrez-vous ! ! » Une voix antique, empreinte de folie, d'excitation et d'une peur cachée, retentit à travers le domaine stellaire !
 
 À l'écho de sa voix, des ombres apparurent dans le silence du domaine du Clan Lunaire ! Des hommes et des femmes, tous arborant une marque en croissant de lune entre les sourcils !
 
@@ -54,7 +54,7 @@ Lorsque Tuo Sen était arrivé des années auparavant, bien qu'ils aient ressent
 
 Tandis que le Clan Lunaire continuait d'attendre, Tuo Sen finit par arriver, attiré par Wang Lin !
 
-Ce qui exalta tout le Clan Lunaire, c'est qu'il n'y avait pas un seul ancien dieu royal, mais deux !!
+Ce qui exalta tout le Clan Lunaire, c'est qu'il n'y avait pas un seul ancien dieu royal, mais deux ! !
 
 La formation fut activée et le monde fut recouvert de lumière lunaire. Ce monde de lune était un espace créé par l'ancêtre du Clan Lunaire pour sceller les anciens dieux. Une fois piégé à l'intérieur, il était extrêmement difficile de s'en échapper !
 
@@ -82,7 +82,7 @@ S'il ne s'était agi que d'épées de lumière lunaire ordinaires, Wang Lin aura
 
 Tuo Sen subissait le même sort. Alors qu'il rugissait, son poing percuta la tempête. Celle-ci se brisa en d'innombrables épées qui transpercèrent son corps, laissant de multiples marques sanglantes !
 
-« Esclaves impies, osez-vous blesser ce dieu ? Maintenant, mourez !! » Tuo Sen était hors de lui. Lorsqu'il combattait Wang Lin, il le considérait au moins comme un membre de son clan. Cependant, ces anciens esclaves n'étaient que des fourmis à ses yeux. Et ces fourmis avaient osé l'offenser ; comment ne pouvait-il être furieux ?
+« Esclaves impies, osez-vous blesser ce dieu ? Maintenant, mourez ! ! » Tuo Sen était hors de lui. Lorsqu'il combattait Wang Lin, il le considérait au moins comme un membre de son clan. Cependant, ces anciens esclaves n'étaient que des fourmis à ses yeux. Et ces fourmis avaient osé l'offenser ; comment ne pouvait-il être furieux ?
 
 Dans sa rage, Tuo Sen sembla perdre la raison, déchaînant une destruction massive dans ce monde de lumière lunaire. Pourtant, plus il détruisait, plus la soie se reformait. En un clin d'œil, le monde devint flou, totalement enveloppé par les fils de soie.
 
@@ -94,7 +94,7 @@ En un instant, ces plus de 10 000 membres décédés apparurent sous forme d'âm
 
 Ces 10 000 lunes grondèrent, et plus de la moitié fonça vers Tuo Sen, tandis que les autres visèrent Wang Lin !
 
-« Invoquer le trésor du Clan Lunaire, les Ailes de la Lune Sanguine !! Sacrifice de sang ! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan Lunaire apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
+« Invoquer le trésor du Clan Lunaire, les Ailes de la Lune Sanguine ! ! Sacrifice de sang ! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan Lunaire apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
 
 Alors que la voix antique retentissait, ces membres du Clan Lunaire affichèrent tous des expressions féroces et abattirent les bêtes. Des torrents de sang et de chair éclatèrent, mais ils furent immédiatement absorbés par la formation.
 

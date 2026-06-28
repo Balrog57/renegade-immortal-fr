@@ -4,7 +4,7 @@ title: "Formation d'un Corps Véritable d'Essence !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1815 - Forming an Essence True Body!"
-slug: formation-dun-corps-veritable-dessence
+slug: formation-dun-corps-véritable-dessence
 ---
 Chapitre 1815 - Formation d'un Corps Véritable d'Essence !
 

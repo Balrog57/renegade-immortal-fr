@@ -3,12 +3,12 @@ n: 1899
 title: "Offrande !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1899 - Offering!"
+en: "Chapter 1899 - Offering !"
 slug: offrande
 ---
 Chapitre 1899 - Offrande !
 
-« Je déteste !!! » Ce furent les derniers mots que hurla l'ancien à la robe verte avant de mourir. Grâce à sa sagesse, il avait naturellement compris ce qui s'était passé. Il avait vu Wang Lin utiliser l'œil de suppression et la Lame Yin qu'il lui avait données sur le scorpion vert.
+« Je déteste ! !! » Ce furent les derniers mots que hurla l'ancien à la robe verte avant de mourir. Grâce à sa sagesse, il avait naturellement compris ce qui s'était passé. Il avait vu Wang Lin utiliser l'œil de suppression et la Lame Yin qu'il lui avait données sur le scorpion vert.
 
 Cette scène suffit à le pousser dans une telle colère qu'il en fit une crise cardiaque. Son espérance de vie étant déjà bien entamée, il cracha un flot de sang avant de s'éteindre !
 
@@ -32,9 +32,9 @@ Après cent ans, ils étaient venus au Temple du Scorpion Vert pour une raison i
 
 Cependant, ce qui les attendait était cette lame capable de faire trembler les âmes !
 
-« Wang Lin !! Il est donc vraiment ici !! » Yun Yifeng et Tang Jia furent tous deux stupéfaits.
+« Wang Lin ! ! Il est donc vraiment ici ! ! » Yun Yifeng et Tang Jia furent tous deux stupéfaits.
 
-« N'était-il pas mort ?! » Les pupilles d'Edge Cloud se rétractèrent, le visage empreint de choc.
+« N'était-il pas mort ? ! » Les pupilles d'Edge Cloud se rétractèrent, le visage empreint de choc.
 
 La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps vrais d'essence convergeaient également sur elle !
 
@@ -78,13 +78,13 @@ Il vit un filet de gaz noir s'échapper du corps du vieillard pour se condenser 
 
 « C'est... » La pensée de Wang Lin s'anima et son sens divin se propagea vers la brume noire. Dès que son sens divin effleura le brouillard, une voix rauque rugit dans son esprit :
 
-« Je déteste !!! »
+« Je déteste ! !! »
 
-« Je déteste !!! »
+« Je déteste ! !! »
 
 Cette voix était si féroce qu'elle fit même tressaillir le cœur de Wang Lin, et ses yeux brillèrent d'un éclat vif.
 
-« Une âme fantôme !! Cet homme a formé une âme fantôme aussi puissante après sa mort !! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie d'Extreme Sky ! Elle était d'une qualité supérieure, infiniment proche de la perfection !
+« Une âme fantôme ! ! Cet homme a formé une âme fantôme aussi puissante après sa mort ! ! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie d'Extreme Sky ! Elle était d'une qualité supérieure, infiniment proche de la perfection !
 
 Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme fantôme formée par le vieillard vola vers lui et fut emmagasinée !
 
@@ -104,6 +104,6 @@ Ainsi, on pouvait dire que l'ancien à la robe verte avait tout donné à Wang L
 
 Les yeux de Wang Lin s'illuminèrent. Son niveau de cultivation montrait des signes d'augmentation. Il prit une profonde inspiration, l'excitation brillant dans son regard !
 
-« Cette fois, voyons jusqu'où ma cultivation peut s'élever !! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela !! »
+« Cette fois, voyons jusqu'où ma cultivation peut s'élever ! ! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela ! ! »
 
-« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans !! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Extreme Sky. Ils étaient tous là, gravés dans sa mémoire.
+« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans ! ! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Extreme Sky. Ils étaient tous là, gravés dans sa mémoire.

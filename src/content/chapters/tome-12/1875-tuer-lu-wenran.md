@@ -3,7 +3,7 @@ n: 1875
 title: "Tuer Lu Wenran !"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1875 - Killing Lu Wenran!"
+en: "Chapter 1875 - Killing Lu Wenran !"
 slug: tuer-lu-wenran
 ---
 Chapitre 1875 - Tuer Lu Wenran !
@@ -56,21 +56,21 @@ Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta e
 
 Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu Wenran, au point qu'il faillit recracher une bouchée de sang. Ses yeux devinrent injectés de sang et il reprit ses attaques frénétiques.
 
-« J'étais au Pill Sea et tu y étais aussi ! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser le Pill Sea afin d'obtenir de grands mérites ?! Si c'était moi, j'aurais pu le faire aussi ! »
+« J'étais au Pill Sea et tu y étais aussi ! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser le Pill Sea afin d'obtenir de grands mérites ? ! Si c'était moi, j'aurais pu le faire aussi ! »
 
-« Je suis au troisième méridien et tu y es également. Mon niveau de cultivation est supérieur au tien et je suis mon aîné. Cette armure d'âme m'appartient, de quel droit me la voles-tu ?! »
+« Je suis au troisième méridien et tu y es également. Mon niveau de cultivation est supérieur au tien et je suis mon aîné. Cette armure d'âme m'appartient, de quel droit me la voles-tu ? ! »
 
 Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribulation du Vide, augmenta encore une fois.
 
-La première Tribulation du Vide, la deuxième, la troisième, la quatrième... la huitième, la neuvième !!!
+La première Tribulation du Vide, la deuxième, la troisième, la quatrième... la huitième, la neuvième ! !!
 
 Aucune Tribulation du Vide ne survint ; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du stade de la Tribulation du Vide au stade de la Tribulation du Vide !
 
-Stade initial de la Tribulation du Vide !!
+Stade initial de la Tribulation du Vide ! !
 
 Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Taureau Céleste derrière lui ouvrit également les siennes, révélant un regard féroce et défiant les cieux !
 
-Roar !!
+Roar ! !
 
 L'ombre du Taureau Céleste leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie de l'Extrême Ciel et par-delà le continent !
 
@@ -80,7 +80,7 @@ En surface, les six cultivateurs du stade médian de la Tribulation du Vide ente
 
 « Ce doit être le rugissement du Taureau Céleste ! Seul lui peut faire trembler mon cœur d'un tel cri ! »
 
-« J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Taureau Céleste !! » Les six sentirent un pressentiment funeste.
+« J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Taureau Céleste ! ! » Les six sentirent un pressentiment funeste.
 
 S'ils réagissaient ainsi, que dire des près de 2 000 cultivateurs du Continent du Démon Vert ? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
 

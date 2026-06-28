@@ -3,7 +3,7 @@ n: 1431
 title: "Ce jour est arrivé !"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: "Chapter 1431 - This Day Arrived!"
+en: "Chapter 1431 - This Day Arrived !"
 slug: ce-jour-est-arrive
 ---
 Chapitre 1431 - Ce jour est arrivé !
@@ -28,7 +28,7 @@ C'était là le pouvoir capable de dévaster un royaume !
 
 L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Vermillon et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait et que le feu s'éteignait !
 
-« L'Ancienne Ombrelle Brûlant les Royaumes !! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait combattu l'esprit originel de l'Oiseau Vermillon et l'avait scellé avant même d'avoir vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlant les Royaumes !
+« L'Ancienne Ombrelle Brûlant les Royaumes ! ! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait combattu l'esprit originel de l'Oiseau Vermillon et l'avait scellé avant même d'avoir vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlant les Royaumes !
 
 À cet instant, il était plus affaibli qu'auparavant ! Avec une expression féroce, le Souverain forma un sceau et saisit l'étoffe sur son épaule. Dans un rugissement, il la tira violemment !
 
@@ -42,13 +42,13 @@ Des grondements tonitruants retentirent frénétiquement alors que le feu péné
 
 Tout cela se produisit en un éclair. Alors que la paume se désintégrait, elle se rapprocha de l'ombrelle. Après avoir réduit sa taille de moitié, elle percuta l'ombrelle antique !
 
-« Ancienne Ombrelle Brûlant les Royaumes, brise-toi devant ce Souverain !! »
+« Ancienne Ombrelle Brûlant les Royaumes, brise-toi devant ce Souverain ! ! »
 
 L'ombrelle antique trembla et Wang Lin cracha du sang. La vitalité dans son corps était en plein chaos. Après tout, son niveau de cultivation n'était pas assez élevé pour déployer sa véritable puissance. Le simple fait de l'ouvrir à 20 % pour bloquer la paume du Souverain représentait sa limite !
 
 Après avoir recraché du sang, Wang Lin fut repoussé. Faute d'injection de vitalité, l'ombrelle antique commença lentement à se dissiper. Cela n'était pas dû à la paume !
 
-Cependant, juste au moment où elle allait disparaître complètement, Wang Lin afficha une expression féroce alors qu'il était projeté en arrière. Une lueur de folie brilla dans ses yeux lorsqu'il rugit : « Explose !! »
+Cependant, juste au moment où elle allait disparaître complètement, Wang Lin afficha une expression féroce alors qu'il était projeté en arrière. Une lueur de folie brilla dans ses yeux lorsqu'il rugit : « Explose ! ! »
 
 L'ombrelle antique, sur le point de se dissiper, trembla et, sous l'écho du cri de Wang Lin, une aura destructrice jaillit de son sein !
 
@@ -80,7 +80,7 @@ Le Foyer de l'Empereur apparut autour de Wang Lin, formant un bouclier, et entra
 
 Un bourdonnement puissant retentit alors que Wang Lin était repoussé, couvert d'innombrables blessures. Le Foyer de l'Empereur ne s'effondra pas, mais il ne put prendre sa forme complète à cause de la force de l'impact et fut renvoyé dans la première étoile d'Ancien Dieu de Wang Lin !
 
-« Ce Souverain veut voir comment tu vas résister, comment tu vas t'échapper !! » Le Souverain poursuivait Wang Lin, les yeux injectés de soif de sang !
+« Ce Souverain veut voir comment tu vas résister, comment tu vas t'échapper ! ! » Le Souverain poursuivait Wang Lin, les yeux injectés de soif de sang !
 
 L'empreinte de la paume n'était plus qu'à sept pieds de Wang Lin, et sa pression ébranlait son esprit. C'était comme si son âme originelle allait être arrachée de son corps !
 
@@ -98,9 +98,9 @@ Heureusement, il possédait un corps d'Ancien Dieu ; autrement, seul l'impact au
 
 Malgré cela, il avait réussi à bloquer directement un coup du Souverain !
 
-« Toujours pas mort !! » Le Souverain traversa l'espace et projeta de nouveau sa main droite. Une autre paume fut lancée vers Wang Lin avec une vitesse et une force encore plus grandes !
+« Toujours pas mort ! ! » Le Souverain traversa l'espace et projeta de nouveau sa main droite. Une autre paume fut lancée vers Wang Lin avec une vitesse et une force encore plus grandes !
 
-L'expression de Wang Lin devint féroce alors qu'il levait la main gauche pour pointer son bras droit. Il rugit : « Sortilège de sauvetage d'Ancien Dieu à 8 étoiles, Bénédiction Ancienne !! »
+L'expression de Wang Lin devint féroce alors qu'il levait la main gauche pour pointer son bras droit. Il rugit : « Sortilège de sauvetage d'Ancien Dieu à 8 étoiles, Bénédiction Ancienne ! ! »
 
 La puissance d'Ancien Dieu à l'intérieur de Wang Lin se précipita dans le gantelet à une vitesse fulgurante. Tandis que ses paroles résonnaient, une puissante aura d'Ancien Dieu apparut parmi les étoiles !
 
@@ -132,7 +132,7 @@ Le Souverain sortit un trésor inconnu pour bloquer l'épée de sang, la repouss
 
 Cependant, juste au moment où Wang Lin allait utiliser la Déformation Spatiale pour fuir, la voix affaiblie du Souverain résonna à travers le monde. Lorsque ces mots atteignirent les oreilles de Wang Lin, il se figea net.
 
-« Wang Lin... Wang Lin, tu es audacieux, cruel, décisif et rusé ! Veux-tu devenir mon soldat ? Si tu acceptes, je peux ressusciter ta femme !! Pas seulement éveiller son âme, mais la ressusciter complètement !!! »
+« Wang Lin... Wang Lin, tu es audacieux, cruel, décisif et rusé ! Veux-tu devenir mon soldat ? Si tu acceptes, je peux ressusciter ta femme ! ! Pas seulement éveiller son âme, mais la ressusciter complètement ! !! »
 
 L'esprit de Wang Lin bourdonna comme s'il venait d'être frappé par la foudre. La folie se lut dans ses yeux alors qu'il fixait l'homme d'âge moyen qui se tenait la poitrine.
 
@@ -140,4 +140,4 @@ L'esprit de Wang Lin bourdonna comme s'il venait d'être frappé par la foudre. 
 
 « Peut-être que... ce jour viendra... »
 
-Ce jour est arrivé !!!
+Ce jour est arrivé ! !!

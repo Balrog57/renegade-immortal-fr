@@ -4,7 +4,7 @@ title: Colère
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 895 - Wrath
-slug: colere
+slug: colère
 ---
 L'expression de Ta Shan était glaciale alors qu'il agitait nonchalamment la main. Il créa un vent puissant qui balaya les énergies d'épée, provoquant l'effondrement des épées volantes de ses adversaires. Les deux hommes ne ressentirent qu'un impact inimaginable.
 

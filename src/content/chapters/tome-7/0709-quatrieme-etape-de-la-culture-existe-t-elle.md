@@ -6,6 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 709 - Fourth Step of Cultivation, Does it Exist
 slug: quatrieme-etape-de-la-culture-existe-t-elle
 ---
+
 Chapitre 709 - Quatrième étape de la cultivation : existe-t-elle ?
 
 Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une Bête du Tonnerre à la corne argentée, teintée d'une pointe d'or. Son corps tout entier irradiait des éclairs, affichant une majesté impressionnante.
@@ -28,7 +29,7 @@ Peu de gens pouvaient atteindre la deuxième étape de la cultivation ; c'était
 
 Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Illusoire Yin lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
-« La première étape de la cultivation était déjà extrêmement difficile. En repensant à ces 900 ans de cultivation, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
+« La première étape de la cultivation était déjà extrêmement difficile. En repensant à ces 900 ans de cultivation, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.»
 
 « Si la première étape est déjà ainsi, alors la deuxième doit être encore plus ardue. La deuxième étape doit également posséder sa propre épreuve de vie et de mort... Je me demande si je pourrai la réussir... Cependant, celui qui suit la volonté des cieux est semblable à un mortel, tandis que celui qui s'oppose aux cieux est immortel. Tant que mon cœur dao demeure, je peux surmonter tous les dangers ! » Les yeux de Wang Lin brillèrent intensément.
 

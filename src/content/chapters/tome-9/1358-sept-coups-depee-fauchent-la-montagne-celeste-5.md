@@ -42,7 +42,7 @@ L'effondrement de la marque du clan équivalait à l'autodestruction d'un cultiv
 
 À cet instant, la marque du Grand Ancien explosa et son pouvoir décupla. Il forgea un nouveau corps de pur tonnerre et balaya les âmes tourmentées. Cependant, ses yeux étaient injectés de sang et égarés par la folie alors qu'il chargeait Wang Lin.
 
-« Meurs ! Meurs ! Meurs !! Vous allez tous crever !! Je sacrifie ma vie entière, toute ma cultivation ! Ce vieil homme va utiliser le Sort des Trois Souffles !! Vous mourrez tous !!! »
+« Meurs ! Meurs ! Meurs ! ! Vous allez tous crever ! ! Je sacrifie ma vie entière, toute ma cultivation ! Ce vieil homme va utiliser le Sort des Trois Souffles ! ! Vous mourrez tous ! ! ! »
 
 Le Sort des Trois Souffles n'était pas une technique du Clan du Tonnerre Dispersé, mais un héritage laissé par ces mystérieux cultivateurs avant leur départ. On pouvait le considérer comme un sort Dao !
 
@@ -52,7 +52,7 @@ Même les cultivateurs du troisième niveau auraient eu des difficultés face à
 
 Le Grand Ancien, devenu fou, pointa Wang Lin du doigt et poussa un cri féroce.
 
-« Sort des Trois Souffles, meurs pour moi !! »
+« Sort des Trois Souffles, meurs pour moi ! ! »
 
 Instantanément, une aura inimaginable envahit les 7 Millions de Mondes et convergea vers Wang Lin. C'était la puissance brute d'un sort Dao !
 
@@ -60,7 +60,7 @@ L'expression de Wang Lin changea radicalement. Il était impossible de résister
 
 Un premier souffle passa rapidement. La porte du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin et le Sort du Temps Fluide s'activa.
 
-« Temps Fluide, remonte 1 000 ans !! »
+« Temps Fluide, remonte 1 000 ans ! ! »
 
 Tandis que le Temps Fluide agissait avec célérité, Wang Lin abattit son épée une ultime fois. Le septième coup !
 
@@ -78,7 +78,7 @@ Son âme originelle ne parvint pas à s'échapper avant que le rayon d'énergie 
 
 Voyant sa fin imminente, ses yeux s'écarquillèrent et il poussa un dernier rugissement désespéré !
 
-« Tonnerre sacré éternel, sauve-moi, sauve-moi !!! »
+« Tonnerre sacré éternel, sauve-moi, sauve-moi ! ! ! »
 
 Alors que son cri résonnait, l'éclair éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti la mort de son maître. Le tonnerre gronda avec violence et se mua en un éclair divin de plus de 100 000 pieds de long !
 
@@ -92,7 +92,7 @@ Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependa
 
 À cet instant, le Daoïste Esprit Dispersé forma un sceau et rugit :
 
-« Les 7 Millions de Mondes sont brisés et mon clan est libre. Tous mes gens, toutes les créatures, nous allons briser le Royaume Céleste ensemble !!! »
+« Les 7 Millions de Mondes sont brisés et mon clan est libre. Tous mes gens, toutes les créatures, nous allons briser le Royaume Céleste ensemble ! ! ! »
 
 Les 7 Millions de Mondes en plein effondrement se transformèrent en d'innombrables fragments. Toutes les survivantes offrirent volontairement leur vie à l'épée pour entamer leur ultime combat contre le tonnerre éternel !
 

@@ -3,7 +3,7 @@ n: 1750
 title: "La Grotte s'ouvre !"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1750 - The Cave Opens!"
+en: "Chapter 1750 - The Cave Opens !"
 slug: la-grotte-souvre
 ---
 Chapitre 1750 - La Grotte s'ouvre !
@@ -22,11 +22,11 @@ Alors que l'Ancien Système Stellaire changeait radicalement, le brouillard deve
 
 À cet instant, dans le Royaume Extérieur, le Souverain ouvrit soudainement les yeux. Son expression était empreinte de terreur. Il se leva précipitamment et fit un pas en avant pour apparaître dans le système stellaire embrumé. En regardant au loin, sa peur fut lentement remplacée par la stupéfaction !
 
-« La troisième âme s'est éveillée !! Le cœur du monde de la grotte s'est rouvert !! » Le visage du Souverain était pâle, mais il n'hésita pas une seconde et chargea vers le Royaume Intérieur.
+« La troisième âme s'est éveillée ! ! Le cœur du monde de la grotte s'est rouvert ! ! » Le visage du Souverain était pâle, mais il n'hésita pas une seconde et chargea vers le Royaume Intérieur.
 
 Simultanément, dans les diverses régions du Royaume Extérieur, les concubines survivantes, y compris celle que Wang Lin avait rencontrée dans l'Ancienne Tombe, furent tirées de leur cultivation. Elles contemplaient toutes les étoiles avec des expressions variées : excitation, complexité ou effroi.
 
-« Le cœur de la grotte s'est ouvert !! » Un instant plus tard, les concubines s'élancèrent depuis divers points du Royaume Extérieur vers le Royaume Intérieur !
+« Le cœur de la grotte s'est ouvert ! ! » Un instant plus tard, les concubines s'élancèrent depuis divers points du Royaume Extérieur vers le Royaume Intérieur !
 
 Au même moment, dans le Royaume Intérieur, au sein du Vide Brillant, la zone entourant la planète Suzaku trembla. Le brouillard tourbillonna et le vide à l'extérieur de la planète se déchira silencieusement ! L'aura du champ de bataille étranger s'échappa de la faille tandis que des fragments volaient rapidement pour se rassembler et former une autre plaque de schiste ! Cette plaque, semblable à un petit continent, vola vers Allheaven dès son apparition !
 
@@ -34,7 +34,7 @@ Ce n'était pas le seul endroit. Des plaques identiques se formaient également 
 
 Alors que ces plaques fonçaient en avant, l'expression du Daoïste aux Sept Couleurs, qui effectuait des recherches à Allheaven, changea radicalement. Son corps trembla tandis qu'il fixait l'horizon, une rage monstrueuse déferlant dans son cœur !
 
-« La troisième âme a été trouvée !!! Le cœur de la grotte s'est ouvert ! Qui ? Qui a trouvé la troisième âme le premier ?! » Le Daoïste aux Sept Couleurs semblait avoir perdu la raison alors qu'il chargeait en avant.
+« La troisième âme a été trouvée ! !! Le cœur de la grotte s'est ouvert ! Qui ? Qui a trouvé la troisième âme le premier ? ! » Le Daoïste aux Sept Couleurs semblait avoir perdu la raison alors qu'il chargeait en avant.
 
 Les quatre généraux se trouvaient également à Allheaven. La bête géante de brouillard devant eux poussa un gémissement et trembla, n'osant plus bouger. Le grondement résonna à travers le système stellaire et le brouillard apparut soudainement. L'aura de l'ouverture du cœur emplit chaque parcelle du monde de la grotte !
 
@@ -42,7 +42,7 @@ Les expressions des quatre généraux changèrent brusquement. Ils peinaient à 
 
 « La grotte s'est ouverte ! »
 
-« Qui a trouvé la troisième âme ? Serait-ce le Daoïste aux Sept Couleurs ?! » Sans hésiter, les quatre se précipitèrent vers l'origine de l'aura !
+« Qui a trouvé la troisième âme ? Serait-ce le Daoïste aux Sept Couleurs ? ! » Sans hésiter, les quatre se précipitèrent vers l'origine de l'aura !
 
 Une autre silhouette était pourtant plus rapide qu'eux. Tandis qu'ils avançaient, cette forme passa devant eux comme un éclair. Il s'agissait du Vieux Fantôme Zhan. En cet instant, son expression était sombre et trahissait une peur latente. S'il ne trouvait pas la troisième âme le premier et que le Daoïste aux Sept Couleurs l'emportait, ce qui l'attendait n'était qu'une dévoraison douloureuse suivie de la mort.
 

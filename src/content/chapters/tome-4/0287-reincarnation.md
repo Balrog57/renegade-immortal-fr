@@ -6,88 +6,131 @@ bookTitle: Clean Sweep
 en: Chapter 287 - Reincarnation
 slug: reincarnation
 ---
-Après tout, une fois qu'un cultivateur forme son Âme Naissante, il acquiert le droit de défier les cieux. Ce droit est d'une valeur inestimable, mais il ne suffit pas. Pour défier les cieux, il faut comprendre les cieux et le cycle de la réincarnation.
 
-Ce n'est qu'en comprenant la loi des cieux que l'on peut trouver le moyen de s'y opposer. C'est un concept d'un grand mystère : soit on comprend, soit on ne comprend pas.
+Après tout, une fois qu'un cultivateur forme son Âme Naissante, il acquiert le droit de défier les cieux. Ce droit est d'une valeur inestimable, mais il ne suffit pas.
 
-Si l'on ne parvient pas à appréhender les cieux, peu importe la quantité d'énergie spirituelle que l'on absorbe, l'on restera toujours faible. C'est comme donner une arme divine à un nourrisson ; s'il est incapable de la manier, elle demeure inutile.
+Pour défier les cieux, il faut comprendre les cieux et le cycle de la réincarnation.
+
+Ce n'est qu'en comprenant la loi des cieux que l'on peut trouver le moyen de s'y opposer.
+
+C'est un concept d'un grand mystère : soit on comprend, soit on ne comprend pas.
+
+Si l'on ne parvient pas à appréhender les cieux, peu importe la quantité d'énergie spirituelle que l'on absorbe, l'on restera toujours faible.
+
+C'est comme donner une arme divine à un nourrisson ; s'il est incapable de la manier, elle demeure inutile.
 
 S'il tente de s'en servir par la force, il pourra blesser son ennemi, mais il se blessera lui-même en retour.
 
-Comprendre les cieux et obtenir un domaine est ce qui permet au nourrisson de manier l'arme. C'est l'unique moyen d'acquérir la capacité de wielding ce pouvoir. Ce n'est qu'après avoir compris les cieux que l'on peut exercer cette puissance comme si elle était la sienne.
+Comprendre les cieux et obtenir un domaine est ce qui permet au nourrisson de manier l'arme.
+
+C'est l'unique moyen d'acquérir la capacité de wielding ce pouvoir.
+
+Ce n'est qu'après avoir compris les cieux que l'on peut exercer cette puissance comme si elle était la sienne.
 
 En conséquence, cette étape est appelée Formation de l'Âme.
 
-Une fois que l'on possède la force de manier ce pouvoir, on dépasse largement les mortels et les autres cultivateurs. On devient une existence transcendant l'humain, car l'on possède une âme divine.
+Une fois que l'on possède la force de manier ce pouvoir, on dépasse largement les mortels et les autres cultivateurs.
 
-Cependant, cette âme n'est pas le type d'âme ordinaire répertorié dans les annales ; c'est un état d'esprit, un changement de cœur, un royaume extrêmement mystérieux. Ce royaume est similaire à l'âme décrite dans les textes, et c'est ainsi que la phase de Formation de l'Âme fut nommée.
+On devient une existence transcendant l'humain, car l'on possède une âme divine.
 
-Mais le simple fait de posséder ce pouvoir ne suffit pas. Même si un nourrisson a la force de l'employer, il ne peut le faire longtemps. C'est ainsi qu'apparut l'Âme d'Origine. Une fois que le nourrisson grandit, il devient naturellement capable de stocker davantage de puissance : c'est cela, l'Âme d'Origine.
+Cependant, cette âme n'est pas le type d'âme ordinaire répertorié dans les annales ; c'est un état d'esprit, un changement de cœur, un royaume extrêmement mystérieux.
 
-Pour former une Âme d'Origine, il faut un domaine et un Sens Divin. Ceux-ci fusionnent ensuite pour former l'Âme Naissante, et ainsi, une nouvelle âme naît. C'est l'Âme d'Origine !
+Ce royaume est similaire à l'âme décrite dans les textes, et c'est ainsi que la phase de Formation de l'Âme fut nommée.
 
-Quant au pouvoir qui peut être utilisé, il s'agit du pouvoir des cieux. Les cultivateurs de la Formation de l'Âme peuvent invoquer le pouvoir céleste, ce que les cultivateurs de l'Âme Naissante ne peuvent faire. Ce pouvoir des cieux est le domaine. Selon le domaine que l'on comprend des cieux, on sera capable de manifester différentes puissances célestes.
+Mais le simple fait de posséder ce pouvoir ne suffit pas.
 
-À cet instant, Wang Lin comprit tout. Il regarda lentement la terre devant lui et, après un long moment, son Âme d'Origine redescendit lentement. Son Âme d'Origine retourna dans la grotte et pénétra dans son front, finissant par fusionner de nouveau avec son corps.
+Même si un nourrisson a la force de l'employer, il ne peut le faire longtemps.
+
+C'est ainsi qu'apparut l'Âme d'Origine.
+
+Une fois que le nourrisson grandit, il devient naturellement capable de stocker davantage de puissance : c'est cela, l'Âme d'Origine.
+
+Pour former une Âme d'Origine, il faut un domaine et un Sens Divin.
+
+Ceux-ci fusionnent ensuite pour former l'Âme Naissante, et ainsi, une nouvelle âme naît.
+
+C'est l'Âme d'Origine !
+
+Quant au pouvoir qui peut être utilisé, il s'agit du pouvoir des cieux.
+
+Les cultivateurs de la Formation de l'Âme peuvent invoquer le pouvoir céleste, ce que les cultivateurs de l'Âme Naissante ne peuvent faire.
+
+Ce pouvoir des cieux est le domaine.
+
+Selon le domaine que l'on comprend des cieux, on sera capable de manifester différentes puissances célestes.
+
+À cet instant, Wang Lin comprit tout.
+
+Il regarda lentement la terre devant lui et, après un long moment, son Âme d'Origine redescendit lentement.
+
+Son Âme d'Origine retourna dans la grotte et pénétra dans son front, finissant par fusionner de nouveau avec son corps.
 
 À ce moment précis, toute l'énergie spirituelle du corps de Wang Lin disparut pour fusionner avec son Âme d'Origine.
 
-Après un long moment, Wang Lin ouvrit lentement les yeux. Son regard évoquait celui d'un nouveau-né, avec une distinction parfaite entre le noir et le blanc, imprégné d'une aura singulière.
+Après un long moment, Wang Lin ouvrit lentement les yeux.
 
-Wang Lin prit une profonde inspiration et leva sa main droite. Il referma brusquement la main et une faille spatiale apparut. Un air glacial s'en échappa, un souffle qui semblait capable d'anéantir toute vie.
+Son regard évoquait celui d'un nouveau-né, avec une distinction parfaite entre le noir et le blanc, imprégné d'une aura singulière.
 
-Auparavant, Wang Lin n'aurait pu ouvrir une telle faille aussi aisément qu'ici, dans les terres de l'Ancien Dieu. Autrement, il aurait dû épuiser toute l'énergie spirituelle de son corps pour y parvenir avec peine.
+Wang Lin prit une profonde inspiration et leva sa main droite.
 
-Cet air glacial était le vent destructeur du vide. Les cultivateurs de l'Âme Naissante pouvaient à peine y résister, tandis que les cultivateurs de la Formation du Noyau devaient s'en tenir loin, à moins de posséder un trésor capable de les protéger. Wang Lin pouvait y résister autrefois, mais il en ressentait un immense inconfort ; s'il avait tenté d'y pénétrer, il n'aurait pas survécu. C'est pour cette raison que, jadis, lorsque ses adversaires ouvraient une faille pour s'enfuir, il n'osait les poursuivre.
+Il referma brusquement la main et une faille spatiale apparut.
 
-Désormais, cet air glacial n'avait plus aucun effet sur Wang Lin. Même si son corps entier pénétrait dans la faille, cela ne lui ferait plus aucun mal.
+Un air glacial s'en échappa, un souffle qui semblait capable d'anéantir toute vie.
 
-Il esquissa un léger sourire en enfonçant lentement sa main droite dans la brèche. Lorsqu'il la retira, des éclats de lumière tapissaient sa peau. Après avoir observé ces lueurs un instant, Wang Lin les écrasa d'un geste réfléchi.
+Auparavant, Wang Lin n'aurait pu ouvrir une telle faille aussi aisément qu'ici, dans les terres de l'Ancien Dieu.
 
-Il se leva et avança, tandis que la pierre scellant la grotte s'ouvrait dans un fracas assourdissant. En sortant, il vit que tous les membres de la Secte Xuan Dao étaient agenouillés au sol, le regard tourné vers lui. Même des cultivateurs voisins, n'appartenant pas à la secte, étaient présents et prosternés.
+Autrement, il aurait dû épuiser toute l'énergie spirituelle de son corps pour y parvenir avec peine.
 
-Le regard de Wang Lin balaya l'assemblée en un instant. Il reconnut beaucoup de visages familiers. Soudain, son regard se fixa sur l'un des hommes d'âge moyen. En le voyant, il laissa échapper un léger sourire. Après l'avoir observé plus attentivement, son sourire s'élargit.
+Cet air glacial était le vent destructeur du vide.
+
+Les cultivateurs de l'Âme Naissante pouvaient à peine y résister, tandis que les cultivateurs de la Formation du Noyau devaient s'en tenir loin, à moins de posséder un trésor capable de les protéger.
+
+Wang Lin pouvait y résister autrefois, mais il en ressentait un immense inconfort ; s'il avait tenté d'y pénétrer, il n'aurait pas survécu.
+
+C'est pour cette raison que, jadis, lorsque ses adversaires ouvraient une faille pour s'enfuir, il n'osait les poursuivre.
+
+Désormais, cet air glacial n'avait plus aucun effet sur Wang Lin.
+
+Même si son corps entier pénétrait dans la faille, cela ne lui ferait plus aucun mal.
+
+Il esquissa un léger sourire en enfonçant lentement sa main droite dans la brèche.
+
+Lorsqu'il la retira, des éclats de lumière tapissaient sa peau.
+
+Après avoir observé ces lueurs un instant, Wang Lin les écrasa d'un geste réfléchi.
+
+Il se leva et avança, tandis que la pierre scellant la grotte s'ouvrait dans un fracas assourdissant.
+
+En sortant, il vit que tous les membres de la Secte Xuan Dao étaient agenouillés au sol, le regard tourné vers lui.
+
+Même des cultivateurs voisins, n'appartenant pas à la secte, étaient présents et prosternés.
+
+Le regard de Wang Lin balaya l'assemblée en un instant.
+
+Il reconnut beaucoup de visages familiers.
+
+Soudain, son regard se fixa sur l'un des hommes d'âge moyen.
+
+En le voyant, il laissa échapper un léger sourire.
+
+Après l'avoir observé plus attentivement, son sourire s'élargit.
 
 Wang Lin murmura pour lui-même : « Quarante ans pour atteindre le stade avancé de l'Établissement des Fondations, très bien ! »
 
-L'homme d'âge moyen en robe blanche fixa Wang Lin, le visage empreint de confusion. Il avait la sensation de connaître cet homme, mais malgré tous ses efforts, aucun souvenir ne venait. En voyant ce dernier le regarder, il ressentit un tressaillement, comme si quelque chose en lui s'éveillait. Une image traversa son esprit : il lui semblait avoir appartenu autrefois à la même secte que cet homme...
+L'homme d'âge moyen en robe blanche fixa Wang Lin, le visage empreint de confusion.
 
-Mais il secoua aussitôt la tête, jugeant cette pensée insensée. Il prit une grande inspiration et baissa immédiatement le front.
+Il avait la sensation de connaître cet homme, mais malgré tous ses efforts, aucun souvenir ne venait.
 
-À ce moment, un vieil expert de l'Âme Naissante s'avança. Il s'agenouilla devant Wang Lin et demanda d'une voix tremblante : « Senior est-il originaire de Zhao ? »
+En voyant ce dernier le regarder, il ressentit un tressaillement, comme si quelque chose en lui s'éveillait.
 
-À ces mots, tous les cultivateurs alentour retinrent leur souffle. Leurs yeux brillaient d'excitation en fixant Wang Lin. Même l'homme d'âge moyen leva la tête pour le regarder à nouveau.
+Une image traversa son esprit : il lui semblait avoir appartenu autrefois à la même secte que cet homme...
 
-L'apparence actuelle de Wang Lin n'était pas si différente de celle qu'il avait autrefois, mais son aura était devenue radicalement différente ; il n'était donc pas étonnant que personne ne le reconnaît. Et même s'ils l'avaient fait, ils n'auraient pas osé le dire à voix haute.
+Mais il secoua aussitôt la tête, jugeant cette pensée insensée.
 
-Pour qu'un pays de cultivation de rang 3 devienne un pays de rang 4, il nécessite un cultivateur de la Formation de l'Âme né sur son sol. Les pays de rang 4 possèdent une technique pour vérifier cela, issue de Suzaku ; à moins d'avoir un niveau de cultivation supérieur aux experts de Suzaku, la fraude est quasi impossible. De plus, le cultivateur de la Formation de l'Âme doit résider dans le pays pendant cent ans avant que celui-ci ne puisse revendiquer son nouveau rang.
+Il prit une grande inspiration et baissa immédiatement le front.
 
-Évidemment, Wang Lin ne pouvait accepter cette condition. Après avoir entendu les paroles du vieil homme, il réfléchit longuement et dit : « Je suis originaire de ce pays, mais je ne peux rester cent ans. Je vous demande pardon. »
+À ce moment, un vieil expert de l'Âme Naissante s'avança.
 
-Le corps du vieillard frissonna et son visage se décomposa de déception. Tous les cultivateurs environnants éprouvèrent le même sentiment. Lorsque les attentes sont trop hautes, la chute est d'autant plus brutale.
+Il s'agenouilla devant Wang Lin et demanda d'une voix tremblante : « Senior est-il originaire de Zhao ? »
 
-Wang Lin soupira. Il tendit sa main droite vers l'air, et dix sphères de lumière apparurent. Il les projeta, et chacune atterrit sur un cultivateur différent. Les corps des dix récipiendaires tremblèrent sous l'effet d'une douleur fulgurante, mais celle-ci ne fut que passagère. Une fois leur souffle retrouvé, leurs visages s'illuminèrent de joie. L'homme en robe blanche était l'un d'entre eux.
-
-Wang Lin déclara calmement : « Je ne peux rester, mais j'ai laissé dix graines spirituelles. Bien qu'elles ne facilitent pas votre cultivation, dès que vous aurez atteint le stade avancé de l'Âme Naissante, je le saurai et je viendrai vous enseigner ! » Après avoir parlé, il regarda une dernière fois l'homme en robe blanche avec un sourire discret.
-
-La graine spirituelle qu'il avait offerte à cet homme était unique : elle contenait le pouvoir de lui sauver la vie à trois reprises. Ces graines étaient façonnées par un cultivateur de la Formation de l'Âme à partir du pouvoir des cieux ; leur valeur était inestimable.
-
-Tandis que l'homme fixait Wang Lin, le sentiment de familiarité s'intensifia dans son esprit. Mais au moment où la mémoire allait refaire surface, une douleur atroce lui lacéra le crâne. C'était une souffrance dépassant ses capacités. Alors qu'il croyait son esprit sur le point d'exploser, une force douce émanant de la graine spirituelle fit disparaître la douleur. Il resta tremblant, couvert de sueur.
-
-Une voix suave résonna dans sa tête : « N'y pense plus. Une fois que tu auras atteint le stade de l'Âme Naissante, tu te souviendras de tout. Si tu savais maintenant, cela ne t'apporterait que de la douleur. »
-
-L'homme frémit. En levant les yeux, il vit que Wang Lin lui adressait un sourire évanescent.
-
-Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, il ne reviendrait pas à Zhao avant qu'un de ses fils n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen.
-
-« J'atteindrai le stade de l'Âme Naissante ! Je le ferai ! »
-
-À cet instant précis, un objet tomba du ciel. Les regards se tournèrent vers lui : c'était une sculpture en bois. Elle atterrit au sommet de la montagne et s'y fusionna. Soudain, la montagne sembla se gorger d'énergie spirituelle.
-
-Une voix lointaine murmura : « Cet objet pourra sauver Zhao des invasions des pays de cultivation de rang 3 à trois reprises. Soyez prudents... »
-
-Envisageant la fin tragique de l'Alliance des Quatre Sectes, il avait accompli un dernier geste pour Zhao.
-
-Au cours des quelques siècles qui suivirent, cette sculpture sauva effectivement Zhao d'une invasion. Les envahisseurs avaient poussé le pays dans ses derniers retranchements, forçant les cultivateurs de Zhao à s'agenouiller devant l'objet sacré. La montagne brilla face au mépris des assaillants, changeant brusquement leur attitude...
-
-Et lorsque la lumière disparut, tous les envahisseurs périrent...
+À ces mots, tous les cultivateurs alentour retinrent leur souffle. Leurs yeux brillaient d'excitation en fixant Wang Lin. Même l'homme d'âge moyen leva la tête pour le regarder à nouveau. L'apparence actuelle de Wang Lin n'était pas si différente de celle qu'il avait autrefois, mais son aura était devenue radicalement différente ; il n'était donc pas étonnant que personne ne le reconnaît. Et même s'ils l'avaient fait, ils n'auraient pas osé le dire à voix haute. Pour qu'un pays de cultivation de rang 3 devienne un pays de rang 4, il nécessite un cultivateur de la Formation de l'Âme né sur son sol. Les pays de rang 4 possèdent une technique pour vérifier cela, issue de Suzaku ; à moins d'avoir un niveau de cultivation supérieur aux experts de Suzaku, la fraude est quasi impossible. De plus, le cultivateur de la Formation de l'Âme doit résider dans le pays pendant cent ans avant que celui-ci ne puisse revendiquer son nouveau rang. Évidemment, Wang Lin ne pouvait accepter cette condition. Après avoir entendu les paroles du vieil homme, il réfléchit longuement et dit : « Je suis originaire de ce pays, mais je ne peux rester cent ans. Je vous demande pardon. » Le corps du vieillard frissonna et son visage se décomposa de déception. Tous les cultivateurs environnants éprouvèrent le même sentiment. Lorsque les attentes sont trop hautes, la chute est d'autant plus brutale. Wang Lin soupira. Il tendit sa main droite vers l'air, et dix sphères de lumière apparurent. Il les projeta, et chacune atterrit sur un cultivateur différent. Les corps des dix récipiendaires tremblèrent sous l'effet d'une douleur fulgurante, mais celle-ci ne fut que passagère. Une fois leur souffle retrouvé, leurs visages s'illuminèrent de joie. L'homme en robe blanche était l'un d'entre eux. Wang Lin déclara calmement : « Je ne peux rester, mais j'ai laissé dix graines spirituelles. Bien qu'elles ne facilitent pas votre cultivation, dès que vous aurez atteint le stade avancé de l'Âme Naissante, je le saurai et je viendrai vous enseigner ! » Après avoir parlé, il regarda une dernière fois l'homme en robe blanche avec un sourire discret. La graine spirituelle qu'il avait offerte à cet homme était unique : elle contenait le pouvoir de lui sauver la vie à trois reprises. Ces graines étaient façonnées par un cultivateur de la Formation de l'Âme à partir du pouvoir des cieux ; leur valeur était inestimable. Tandis que l'homme fixait Wang Lin, le sentiment de familiarité s'intensifia dans son esprit. Mais au moment où la mémoire allait refaire surface, une douleur atroce lui lacéra le crâne. C'était une souffrance dépassant ses capacités. Alors qu'il croyait son esprit sur le point d'exploser, une force douce émanant de la graine spirituelle fit disparaître la douleur. Il resta tremblant, couvert de sueur. Une voix suave résonna dans sa tête : « N'y pense plus. Une fois que tu auras atteint le stade de l'Âme Naissante, tu te souviendras de tout. Si tu savais maintenant, cela ne t'apporterait que de la douleur. » L'homme frémit. En levant les yeux, il vit que Wang Lin lui adressait un sourire évanescent. Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, il ne reviendrait pas à Zhao avant qu'un de ses fils n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen. « J'atteindrai le stade de l'Âme Naissante ! Je le ferai ! » À cet instant précis, un objet tomba du ciel. Les regards se tournèrent vers lui : c'était une sculpture en bois. Elle atterrit au sommet de la montagne et s'y fusionna. Soudain, la montagne sembla se gorger d'énergie spirituelle. Une voix lointaine murmura : « Cet objet pourra sauver Zhao des invasions des pays de cultivation de rang 3 à trois reprises. Soyez prudents... » Envisageant la fin tragique de l'Alliance des Quatre Sectes, il avait accompli un dernier geste pour Zhao. Au cours des quelques siècles qui suivirent, cette sculpture sauva effectivement Zhao d'une invasion. Les envahisseurs avaient poussé le pays dans ses derniers retranchements, forçant les cultivateurs de Zhao à s'agenouiller devant l'objet sacré. La montagne brilla face au mépris des assaillants, changeant brusquement leur attitude... Et lorsque la lumière disparut, tous les envahisseurs périrent...

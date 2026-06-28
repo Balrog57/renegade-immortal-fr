@@ -6,6 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 423 - The Wise and Sorrowful King
 slug: le-roi-sage-et-accable-de-chagrin
 ---
+
 Cependant, bien qu'il ait voulu battre en retraite, les épées formées par l'être de nuages étaient plus rapides que l'éclair et s'approchèrent promptement de lui.
 
 Les yeux de Zhuque Zi devinrent sombres tandis que sa main traçait un sceau devant lui. À l'instant même où ce sceau apparut, une aura puissante enveloppa Zhuque Zi.
@@ -58,11 +59,11 @@ Après une courte réflexion, Zhuque Zi dit lentement : « J'ai lu les récits s
 
 Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière dorée et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envolat brusquement.
 
-« Le monde est divisé en cinq éléments qui se neutralisent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver ; en avoir deux signifie que l'on est intelligent ; trois signifie que l'on a du talent ; quatre signifie que l'on possède un talent céleste ; et cinq signifie que l'on est parfait.
+« Le monde est divisé en cinq éléments qui se neutralisent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver ; en avoir deux signifie que l'on est intelligent ; trois signifie que l'on a du talent ; quatre signifie que l'on possède un talent céleste ; et cinq signifie que l'on est parfait. »
 
-« Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. En avoir deux est rare, en avoir trois est encore plus rare, en avoir quatre est presque inouï, et nul n'a jamais entendu parler de quelqu'un possédant les cinq.
+« Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. En avoir deux est rare, en avoir trois est encore plus rare, en avoir quatre est presque inouï, et nul n'a jamais entendu parler de quelqu'un possédant les cinq. »
 
-« La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut au stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé !
+« La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut au stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé ! »
 
 « Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Cultivation alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhuque.
 

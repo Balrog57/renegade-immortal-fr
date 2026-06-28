@@ -1,12 +1,12 @@
 ---
 n: 1519
-title: "Contre-attaque !!"
+title: "Contre-attaque ! !"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1519 - Counter Attack!!"
+en: "Chapter 1519 - Counter Attack !!"
 slug: contre-attaque
 ---
-Chapitre 1519 - Contre-attaque !!
+Chapitre 1519 - Contre-attaque ! !
 
 À l'instant même où cette brèche s'ouvrit, les 90 000 cultivateurs affichèrent des regards meurtriers et poussèrent des rugissements de folie !
 
@@ -52,7 +52,7 @@ Le palais géant et noir situé à l'extérieur de la formation s'ouvrit soudain
 
 L'expression de l'homme changea. Il avait déjà remarqué que l'aura du jade lui était familière. Maintenant qu'elle l'enveloppait, son esprit trembla.
 
-« Seigneur du Royaume Scellé, vieux spectre !!! Tu as réellement fusionné ton être avec la formation ! »
+« Seigneur du Royaume Scellé, vieux spectre ! !! Tu as réellement fusionné ton être avec la formation ! »
 
 Alors que tout cela se produisait, une intention meurtrière brilla dans les yeux de Wang Lin. Il avait attendu pour confirmer sa conjecture. Peut-être que, depuis le début, le Seigneur du Royaume Scellé attendait ce moment précis !
 
@@ -80,11 +80,11 @@ Pourtant, ce massacre ne suffisait pas à forcer ces dizaines de milliers de cul
 
 Des grondements tonitruants retentirent. En explosant, ils libérèrent une force destructrice immense. Si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, il aurait été contraint de reculer face à ce chaos sanglant.
 
-« C'est Wang Lin ! Tuez-le et vous pourrez intégrer le classement du Système Stellaire Ancien !! »
+« C'est Wang Lin ! Tuez-le et vous pourrez intégrer le classement du Système Stellaire Ancien ! ! »
 
-« Tuez-le !!! »
+« Tuez-le ! !! »
 
-« Il n'est qu'un seul homme et il ose barrer la route à l'armée de notre Royaume Extérieur. Meurs, meurs, meurs, meurs !! »
+« Il n'est qu'un seul homme et il ose barrer la route à l'armée de notre Royaume Extérieur. Meurs, meurs, meurs, meurs ! ! »
 
 Les dizaines de milliers de cultivateurs chargèrent, les yeux injectés de sang et fous de rage. Wang Lin se frayait un chemin dans la masse. Chaque personne autour de lui était une ennemie, et d'innombrables trésors bombardaient son corps. Le Bouclier de Lumière et d'Ombre ne tint qu'un instant avant de s'effondrer !
 
@@ -96,11 +96,11 @@ Au milieu de ce carnage, Wang Lin en avait oublié le nombre de victimes. De nom
 
 La Hache Fende-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs furent déchiquetés et pérint misérablement !
 
-« Ling Dong, Zhou Jin, vous osez nous barrer la route ? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres ?! » Le Maître Enlighten East agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Fende-Ciel de retomber !
+« Ling Dong, Zhou Jin, vous osez nous barrer la route ? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres ? ! » Le Maître Enlighten East agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Fende-Ciel de retomber !
 
 Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il attaqua tout de même sans hésiter. Ling Dong, quant à lui, était de marbre. Les paroles de l'adversaire n'étaient pas en mesure de provoquer la moindre fluctuation dans son esprit !
 
-La Grand Maître Yun Lou s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla : « Tuez Wang Lin !! »
+La Grand Maître Yun Lou s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla : « Tuez Wang Lin ! ! »
 
 L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Fende-Ciel et fonça sur Wang Lin !
 
@@ -122,7 +122,7 @@ L'ancêtre du Clan des Moineaux de Feu, porté par une intention meurtrière, ag
 
 Cet oiseau de feu renfermait d'innombrables Flammes Joss et dégageait une aura d'une chaleur extrême. L'espace lui-même semblait être calciné par lui. L'oiseau se rapprocha instantanément de Wang Lin !
 
-Les yeux de l'Estimé Nan Zhao s'illuminèrent. Sans utiliser de sort, il leva simplement sa main droite. Sa main pâle devint instantanément noire, imprégnée d'un poison inimaginable. Affichant un sourire cruel, il fit un pas en avant et franchit une vaste distance. Il traversa l'oiseau de feu et abattit sa main droite vers Wang Lin !!
+Les yeux de l'Estimé Nan Zhao s'illuminèrent. Sans utiliser de sort, il leva simplement sa main droite. Sa main pâle devint instantanément noire, imprégnée d'un poison inimaginable. Affichant un sourire cruel, il fit un pas en avant et franchit une vaste distance. Il traversa l'oiseau de feu et abattit sa main droite vers Wang Lin ! !
 
 Wang Lin se retourna brusquement. Ses pupilles se rétractèrent et il recula rapidement tout en levant la main droite.
 

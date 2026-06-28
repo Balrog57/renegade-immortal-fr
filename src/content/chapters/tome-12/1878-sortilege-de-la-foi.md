@@ -32,7 +32,7 @@ Combattre les hommes, combattre les bêtes, combattre la terre, combattre les ci
 
 Déchirer les voiles d'obscurité qui masquaient ses yeux pour chercher la lumière par-delà les ténèbres de la nuit !
 
-C'était Sundered Night !!
+C'était Sundered Night ! !
 
 Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant, grâce à l'Armure de l'Âme et à son niveau de cultivation actuel, il le comprit un peu mieux après avoir utilisé Sundered Night.
 
@@ -54,13 +54,13 @@ Les deux femmes cultivatrices au début de la Tribulation du Vide ne ressentiren
 
 Elles ignoraient tout, mais lorsque les quatre messagers du Continent du Démon Vert virent le soleil, leurs visages devinrent extrêmement livides. Une terreur profonde s'empara de leurs cœurs.
 
-« C'est un sortilège de la foi... Au-delà des sorts et des sorts Dao, un sortilège de la foi que seuls les Grands Empereurs peuvent utiliser !! »
+« C'est un sortilège de la foi... Au-delà des sorts et des sorts Dao, un sortilège de la foi que seuls les Grands Empereurs peuvent utiliser ! ! »
 
-« C'est indubitablement un sortilège de la foi !! Une fois que le soleil contiendra assez de foi, il se transformera en l'art le plus puissant, encore plus difficile à obtenir que les sorts Dao ! »
+« C'est indubitablement un sortilège de la foi ! ! Une fois que le soleil contiendra assez de foi, il se transformera en l'art le plus puissant, encore plus difficile à obtenir que les sorts Dao ! »
 
-« Seuls les neuf Grands Empereurs peuvent manier les sorts de la foi. La rumeur dit qu'ils ne peuvent être hérités. Chaque sort de la foi est créé par les Grands Empereurs eux-mêmes !! »
+« Seuls les neuf Grands Empereurs peuvent manier les sorts de la foi. La rumeur dit qu'ils ne peuvent être hérités. Chaque sort de la foi est créé par les Grands Empereurs eux-mêmes ! ! »
 
-« Qui est cet individu ?! Comment peut-il utiliser un sort de la foi ? Bien que la foi ne soit pas encore puissante, elle est bien là !! »
+« Qui est cet individu ? ! Comment peut-il utiliser un sort de la foi ? Bien que la foi ne soit pas encore puissante, elle est bien là ! ! »
 
 Les sorts de la foi surpassaient les sorts Dao et leur puissance était indescriptible. Ces sorts exigeaient la foi ; non pas une simple volonté comme l'essence du feu, mais celle issue de l'expérience propre et de la persévérance de l'individu. On pouvait y voir la métamorphose ultime des domaines.
 
@@ -108,7 +108,7 @@ Wang Lin ouvrit les yeux. À l'instant même, le soleil à l'horizon libéra une
 
 C'était une foi capable de défier les cieux et de déchirer la nuit pour ressusciter Li Muwan. C'était sa vie entière, celle d'une âme indomptable !
 
-C'était son premier sortilège de la foi !!
+C'était son premier sortilège de la foi ! !
 
 L'obscurité céleste disparut sans laisser de trace, tout comme la mer. Les âmes originelles des deux cultivatrices au début de la Tribulation du Vide s'évanouirent. Il n'y eut aucun cri de détresse ; elles semblaient avoir été touchées par la foi de Wang Lin et furent libérées lorsque la lumière déchira les ténèbres. Elles sourirent tandis que leurs âmes originelles se dissolvaient !
 

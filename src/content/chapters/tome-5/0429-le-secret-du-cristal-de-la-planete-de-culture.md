@@ -6,21 +6,22 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 429 - The secret of the Cultivation Planet Crystal
 slug: le-secret-du-cristal-de-la-planete-de-culture
 ---
+
 Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
-« Le Cristal de la Planète de Cultivation... c'est une belle foutaise ! C'est un objet créé par l'Alliance de Cultivation, et ils en offrent un à chaque pays de cultivation qui atteint le rang 6.
+« Le Cristal de la Planète de Cultivation... c'est une belle foutaise ! C'est un objet créé par l'Alliance de Cultivation, et ils en offrent un à chaque pays de cultivation qui atteint le rang 6. »
 
-« En l'implantant au cœur de la planète de cultivation et en l'activant, toute la planète se retrouve entourée d'un pouvoir mystérieux. Dès son activation, toute créature vivante née sur cette planète naît avec une parcelle d'âme manquante.
+« En l'implantant au cœur de la planète de cultivation et en l'activant, toute la planète se retrouve entourée d'un pouvoir mystérieux. Dès son activation, toute créature vivante née sur cette planète naît avec une parcelle d'âme manquante. »
 
-« Cette parcelle est absorbée par le Cristal de la Planète de Cultivation, et l'Alliance de Cultivation accorde au pays un contrôle absolu sur le cristal. Héhé, un pays de cultivation de rang 6 devient ainsi comme un roi grâce à l'existence du Cristal de la Planète de Cultivation !
+« Cette parcelle est absorbée par le Cristal de la Planète de Cultivation, et l'Alliance de Cultivation accorde au pays un contrôle absolu sur le cristal. Héhé, un pays de cultivation de rang 6 devient ainsi comme un roi grâce à l'existence du Cristal de la Planète de Cultivation ! »
 
-« Grâce à cet objet, n'importe quelle génération de Suzaku peut tuer n'importe quel être vivant sur la planète, à moins que cette personne ou cette créature n'ait dépassé le stade Ascendant et ne récupère de force sa parcelle d'âme. Sinon, il n'y a aucun autre moyen.
+« Grâce à cet objet, n'importe quelle génération de Suzaku peut tuer n'importe quel être vivant sur la planète, à moins que cette personne ou cette créature n'ait dépassé le stade Ascendant et ne récupère de force sa parcelle d'âme. Sinon, il n'y a aucun autre moyen. »
 
-« Cependant, je suppose que le Cristal de la Planète de Cultivation n'est pas un secret sur beaucoup d'autres planètes ; les gens ont dû trouver des moyens de le contrer, sans quoi il y aurait bien plus de pays de rang 6 renversés par leurs propres habitants.
+« Cependant, je suppose que le Cristal de la Planète de Cultivation n'est pas un secret sur beaucoup d'autres planètes ; les gens ont dû trouver des moyens de le contrer, sans quoi il y aurait bien plus de pays de rang 6 renversés par leurs propres habitants. »
 
-« Mais de manière générale, ce Cristal de la Planète de Cultivation confère aux pays de cultivation de rang 6 un contrôle ultime sur leur planète.
+« Mais de manière générale, ce Cristal de la Planète de Cultivation confère aux pays de cultivation de rang 6 un contrôle ultime sur leur planète. »
 
-« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Cultivation. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos ; sinon, elle serait aussi solide qu'un tambour de fer.
+« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Cultivation. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos ; sinon, elle serait aussi solide qu'un tambour de fer. »
 
 « Haha, tous les Suzakus qui m'ont succédé ont dû me haïr pour cela, mais je ne supportais tout simplement pas ce fichu cristal ! »
 
@@ -46,9 +47,9 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Le Cristal de la Planète de Cultivation ! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre du Nord Ardente.
 
-« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Cultivation et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient [1]. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la cultivation.
+« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Cultivation et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient [1]. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la cultivation. »
 
-« Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli ; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
+« Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli ; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir. »
 
 « De plus, il y a cette petite fiole de sang de l'ancêtre du Clan des Démons Géants. Cette fiole est cruciale pour mon corps originel qui se trouve toujours sur la lune ; elle pourrait lui permettre d'utiliser les techniques des Dieux Anciens ! La personne qui implorait de l'aide sous le Secte des Cadavres à Zhao devait être l'ancêtre fondateur du Clan des Démons Géants. Je dois m'y rendre pour voir si je peux obtenir davantage de sang. »
 

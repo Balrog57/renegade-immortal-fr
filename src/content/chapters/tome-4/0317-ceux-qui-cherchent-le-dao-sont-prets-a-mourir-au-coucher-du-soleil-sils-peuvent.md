@@ -4,7 +4,7 @@ title: "Ceux qui cherchent le Dao sont prêts à mourir au coucher du soleil s'i
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 317 -Those who seek Dao are willing to die at sunset if they could gain the right path in the morning
-slug: ceux-qui-cherchent-le-dao-sont-prets-a-mourir-au-coucher-du-soleil-sils-peuvent
+slug: ceux-qui-cherchent-le-dao-sont-prêts-a-mourir-au-coucher-du-soleil-sils-peuvent
 ---
 Le bracelet libéra une immense quantité de lumière blanche qui se concentra pour former un trou noir derrière Red Butterfly.
 
