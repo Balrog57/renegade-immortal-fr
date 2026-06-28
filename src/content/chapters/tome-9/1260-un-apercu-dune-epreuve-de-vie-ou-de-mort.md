@@ -1,4 +1,4 @@
----
+﻿---
 n: 1260
 title: "Un aperçu d'une épreuve de vie ou de mort"
 book: 9
@@ -24,7 +24,7 @@ Profond et mystérieux !
 
 Seuls ces mots pouvaient décrire le choc que Wang Lin avait provoqué chez tout le monde. Nul ne savait quels autres sorts il n'avait pas encore dégainés. C'est précisément pour cette raison que l'impression qu'ils avaient de lui devint encore plus forte.
 
-De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 5, 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier du Secte Divin.
+De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 5, 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier du Secte Divine.
 
 Tout cela rendait Wang Lin encore plus impénétrable et mystérieux aux yeux de tous.
 
@@ -52,9 +52,9 @@ Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle.
 
 Il semblait que leur destin était d'être ni familiers, ni inconnus. Ce sentiment d'indifférence entre eux existerait pour toujours.
 
-Nul ne réalisa que Wang Shanshan, du Secte Divin, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
+Nul ne réalisa que Wang Shanshan, du Secte Divine, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
 
-Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître du Secte Divin. Elle l'avait fait sans préméditation ; elle voulait simplement montrer un génie de la Mer des Nuages à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein du Secte Divin après avoir vu cela !
+Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître du Secte Divine. Elle l'avait fait sans préméditation ; elle voulait simplement montrer un génie de la Mer des Nuages à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein du Secte Divine après avoir vu cela !
 
 Cependant, elle n'aurait jamais pu imaginer l'immense onde de choc qui serait déclenchée lorsque son maître verrait ce qui était gravé dans ce petit morceau de jade !
 

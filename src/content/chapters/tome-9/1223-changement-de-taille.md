@@ -70,23 +70,23 @@ La brume aux sept couleurs ne fut nullement perturbée par l'effondrement de la 
 
 Après un long moment, l'expression de Wang Lin changea lorsqu'il perçut des indices. Cette brume n'était pas apparue par hasard ; elle semblait... elle semblait émaner du squelette du cerf.
 
-« Intéressant... » Les yeux de Wang Lin brillèrent et il tendit la main pour plonger dans le brouillard, mais son expression changea soudainement et sa main s'immobilisa. À cet instant précis, il sentit clairement l'âme originelle de l'All-Seer lutter pour s'échapper du Sceau Céleste des 18 Enfers.
+« Intéressant... » Les yeux de Wang Lin brillèrent et il tendit la main pour plonger dans le brouillard, mais son expression changea soudainement et sa main s'immobilisa. À cet instant précis, il sentit clairement l'âme originelle de le Tout-Voyant lutter pour s'échapper du Sceau Céleste des 18 Enfers.
 
 C'était la première fois qu'une âme scellée et extraite du cycle des réincarnations manifestait une telle volonté de s'échapper sans avoir été invoquée.
 
-L'esprit de Wang Lin pénétra immédiatement dans le Sceau Céleste des 18 Enfers. Il parcourut les dix-huit couches infernales jusqu'à l'âme de l'All-Seer et fusionna avec elle sans la moindre hésitation.
+L'esprit de Wang Lin pénétra immédiatement dans le Sceau Céleste des 18 Enfers. Il parcourut les dix-huit couches infernales jusqu'à l'âme de le Tout-Voyant et fusionna avec elle sans la moindre hésitation.
 
-L'aura de Wang Lin subit une métamorphose radicale. Il ne ressemblait plus à Wang Lin, mais était devenu l'All-Seer. Il dégageait un calme absolu, comme si le monde entier était sous son empire et que rien ne pouvait l'ébranler.
+L'aura de Wang Lin subit une métamorphose radicale. Il ne ressemblait plus à Wang Lin, mais était devenu le Tout-Voyant. Il dégageait un calme absolu, comme si le monde entier était sous son empire et que rien ne pouvait l'ébranler.
 
-En ressentant l'âme de l'All-Seer, Wang Lin perçut clairement son désir pour la brume aux sept couleurs. Cette convoitise était si intense qu'elle expliquait sa tentative de forcer le Sceau Céleste.
+En ressentant l'âme de le Tout-Voyant, Wang Lin perçut clairement son désir pour la brume aux sept couleurs. Cette convoitise était si intense qu'elle expliquait sa tentative de forcer le Sceau Céleste.
 
 « Désir... Je veux voir quelle utilité cette brume peut avoir pour toi ! » Les yeux de Wang Lin s'emparent d'un éclat multicolore alors que sa main droite plongeait dans la brume.
 
 À cet instant précis, la brume tourbillonna et fut aspirée par la main de Wang Lin. Rapidement, tout le brouillard disparut, mais une nouvelle quantité émana des os de la bête, laquelle fut aussitôt absorbée à son tour.
 
-La brume pénétra l'énergie d'origine de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de l'All-Seer commença à l'absorber avec frénésie ; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable All-Seer plutôt qu'une simple fusion d'âmes issues de ses avatars !
+La brume pénétra l'énergie d'origine de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de le Tout-Voyant commença à l'absorber avec frénésie ; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable Tout-Voyant plutôt qu'une simple fusion d'âmes issues de ses avatars !
 
-Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de l'All-Seer, qui s'assit alors pour digérer cette essence, comme en pleine cultivation. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
+Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de le Tout-Voyant, qui s'assit alors pour digérer cette essence, comme en pleine cultivation. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
 
 « Très intéressant... » Après une observation prolongée, Wang Lin retira son Sens Divin. Son regard se posa sur la courte épée logée dans les os.
 

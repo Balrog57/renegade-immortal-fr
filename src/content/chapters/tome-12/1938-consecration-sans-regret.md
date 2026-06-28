@@ -16,7 +16,7 @@ Wang Lin s'assit au sommet d'un pin et prit une profonde inspiration. Le monde i
 
 « Il doit y avoir un secret derrière cette paume brisée. J'ai beaucoup gagné lors de ce voyage à la Mer de Montagnes. Outre les esprits, j'ai également obtenu un fragment de l'épée de l'Ancêtre Céleste ! » Les yeux de Wang Lin s'illuminèrent, une lueur dorée brillant dans sa main.
 
-« Je n'ai pas pu l'absorber à l'intérieur du rideau lumineux de l'Exalt Céleste Hai Zi. Maintenant que je suis libre, je le fusionnerai avec le fragment dans mon œil dès que possible ! » Wang Lin avait réfléchi aux questions que les Grands Empereurs pourraient lui poser ; puisqu'ils l'avaient laissé partir, cela signifiait qu'il avait réussi leur test.
+« Je n'ai pas pu l'absorber à l'intérieur du rideau lumineux de l'Exaltation Empyréenne Hai Zi. Maintenant que je suis libre, je le fusionnerai avec le fragment dans mon œil dès que possible ! » Wang Lin avait réfléchi aux questions que les Grands Empyrées pourraient lui poser ; puisqu'ils l'avaient laissé partir, cela signifiait qu'il avait réussi leur test.
 
 En un éclair, le corps de Wang Lin devint flou et se fondit lentement dans un pin en dessous. À l'intérieur de l'arbre ancien, il s'assit et sortit les deux derniers Esprits de la Mer de Montagnes.
 
@@ -78,18 +78,18 @@ Le douzième vortex apparut soudainement autour de sa main droite, suivi immédi
 
 La respiration de Wang Lin devint plus lourde. Il sentait qu'il avait atteint sa limite !
 
-« Treize sorts. Sans l'armure de l'âme, je peux combattre un Exalt Céleste ayant fusionné 52 sorts si j'utilise mes essences ! »
+« Treize sorts. Sans l'armure de l'âme, je peux combattre un Exaltation Empyréenne ayant fusionné 52 sorts si j'utilise mes essences ! »
 
 « Je me demande si je pourrai franchir le cinquième niveau de l'Épreuve Céleste avec ma force actuelle ! Cela devrait suffire ! » Wang Lin sourit.
 
 Cependant, il n'avait aucune intention de retourner à l'Épreuve Céleste pour le moment. Il avait pris une décision : la prochaine fois qu'il s'y présenterait, il allait stupéfier tout le monde !
 
-« Attirer l'attention de tous les Grands Empereurs dépendra de ma seconde tentative à l'Épreuve Céleste ! Désormais, nul besoin de continuer à défier d'autres Exalts Célestes. Je dois me rendre sur le Continent Oriental, rejoindre la Secte Dong Lin et voir si le bassin de Dong Lin est le même que celui que j'ai vu dans l'illusion du monde des grottes, ou s'il est différent ! » Wang Lin se leva, les yeux brillants.
+« Attirer l'attention de tous les Grands Empyrées dépendra de ma seconde tentative à l'Épreuve Céleste ! Désormais, nul besoin de continuer à défier d'autres Exaltations Empyréennes. Je dois me rendre sur le Continent Oriental, rejoindre la Secte Dong Lin et voir si le bassin de Dong Lin est le même que celui que j'ai vu dans l'illusion du monde des grottes, ou s'il est différent ! » Wang Lin se leva, les yeux brillants.
 
-« J'irai au Secte Dong Lin, puis je retournerai à l'Épreuve Céleste pour voir combien de niveaux je peux franchir ! Après cela, je devrai choisir un Grand Empereur, puis je rejoindrai ma dernière étape au sein du clan céleste : la cité impériale du Continent Central !! »
+« J'irai au Secte Dong Lin, puis je retournerai à l'Épreuve Céleste pour voir combien de niveaux je peux franchir ! Après cela, je devrai choisir un Grand Empyrée, puis je rejoindrai ma dernière étape au sein du clan céleste : la cité impériale du Continent Central !! »
 
 « Une fois le problème de la cité impériale résolu, je quitterai le clan céleste pour me rendre au Pays Ancien. Je trouverai mon maître, Xuan Luo, et j'accomplirai ma promesse ! » Wang Lin prit une profonde inspiration et disparut des pins. Il se changea en un rayon de lumière et s'envola vers le lointain Continent Oriental.
 
-« Je sens que je deviens de plus en plus fort. Wan Er, le jour où je deviendrai un Grand Empereur sera celui où je ressusciterai personnellement ma femme ! »
+« Je sens que je deviens de plus en plus fort. Wan Er, le jour où je deviendrai un Grand Empyrée sera celui où je ressusciterai personnellement ma femme ! »
 
 « Ce jour n'est pas loin. Il est très proche, très proche... Wan Er, il est très proche. » Alors que Wang Lin fonçait vers l'avant, une rare lueur de tendresse illumina son regard. Ce regard chaleureux contenait des millénaires d'une persévérance sans aucun regret.

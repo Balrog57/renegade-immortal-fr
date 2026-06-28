@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2078 - Two Points
 slug: deux-points
 ---
-Les yeux du Maître Scarlet Soul devinrent rouges et il poussa un rugissement hystérique : « Faux ! Personne ne peut créer un vortex reliant le Continent Astral Immortel pour invoquer un Grand Empereur, tout cela est faux ! N'essayez pas de tromper ce vieil homme !!! »
+Les yeux du Maître Scarlet Soul devinrent rouges et il poussa un rugissement hystérique : « Faux ! Personne ne peut créer un vortex reliant le Continent Astral Immortel pour invoquer un Grand Empyrée, tout cela est faux ! N'essayez pas de tromper ce vieil homme !!! »
 
 Son expression était féroce et les veines de son front étaient saillantes. À cet instant, il oublia sa peur et sentit son esprit sur le point de s'effondrer face à une telle absurdité.
 
@@ -16,21 +16,21 @@ Son expression était féroce et les veines de son front étaient saillantes. À
 
 « Voyez si c'est encore faux ! » Wang Lin resta calme et, tandis qu'il parlait, trois couleurs apparurent derrière lui : le noir, le blanc et l'or !
 
-Ces trois couleurs de lumière se rassemblèrent soudainement pour former un soleil gigantesque, et l'aura d'un Grand Empereur jaillit de Wang Lin, s'abattant violemment sur le Maître Scarlet Soul.
+Ces trois couleurs de lumière se rassemblèrent soudainement pour former un soleil gigantesque, et l'aura d'un Grand Empyrée jaillit de Wang Lin, s'abattant violemment sur le Maître Scarlet Soul.
 
 Au même instant, le visage de l'Empereur Céleste Lian Daozhen apparut au sein du soleil. Bien que ses traits fussent déformés par la douleur, quiconque avait rencontré Lian Daozhen aurait pu le reconnaître !
 
-« Faux... Tout est faux... Tout est faux... Vous êtes aussi un Grand Empereur ? Haha, tout est faux. N'essayez pas de me tromper », murmura le Maître Scarlet Soul, le regard vitreux.
+« Faux... Tout est faux... Tout est faux... Vous êtes aussi un Grand Empyrée ? Haha, tout est faux. N'essayez pas de me tromper », murmura le Maître Scarlet Soul, le regard vitreux.
 
-Après avoir libéré la pression d'un Grand Empereur, le niveau de cultivation de Wang Lin continua de croître jusqu'à atteindre une demi-étape vers le Piétinement du Ciel. Sa pression était suffisante pour effondrer un système stellaire et anéantir toute vie.
+Après avoir libéré la pression d'un Grand Empyrée, le niveau de cultivation de Wang Lin continua de croître jusqu'à atteindre une demi-étape vers le Piétinement du Ciel. Sa pression était suffisante pour effondrer un système stellaire et anéantir toute vie.
 
 Toute cette puissance se concentra autour du Maître Scarlet Soul sans en laisser s'échapper la moindre parcelle. Il commença à rire comme un fou, et à l'instant même où il sombra dans la démence, son corps s'effondra.
 
 Lorsque son corps s'effondra, le Maître Scarlet Soul perdit la raison.
 
-Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empereur. Il avait même osé plaisanter sur l'amante d'un Grand Empereur et avait pris le descendant d'un Grand Empereur pour disciple.
+Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyrée. Il avait même osé plaisanter sur l'amante d'un Grand Empyrée et avait pris le descendant d'un Grand Empyrée pour disciple.
 
-Il avait même poussé le descendant de ce Grand Empereur à se rebeller contre lui.
+Il avait même poussé le descendant de ce Grand Empyrée à se rebeller contre lui.
 
 Absurde, absolument ridicule !
 
@@ -72,7 +72,7 @@ Ce sort exigeait qu'il réintègre un corps de bébé pour recommencer sa croiss
 
 Wang Lin observa l'enfant jusqu'à son départ, plusieurs jours plus tard. Il laissa un Sens Divin pour Tuo Sen afin que, lors de son réveil, le nouveau-né puisse le ressentir.
 
-Pour Wang Lin, le monde des grottes ne recelait plus de mystères. S'il en restait, ce serait l'All-Seer et le Daoïste aux Sept Couleurs. Cependant, toute trace de ces deux êtres avait disparu du monde des grottes.
+Pour Wang Lin, le monde des grottes ne recelait plus de mystères. S'il en restait, ce serait l'Tout-Voyant et le Daoïste aux Sept Couleurs. Cependant, toute trace de ces deux êtres avait disparu du monde des grottes.
 
 Wang Lin visita de nombreux endroits puis, un an plus tard, retourna sur la planète Suzaku, sa terre natale.
 
@@ -104,7 +104,7 @@ Désormais, il avait trouvé la réponse.
 
 Wang Lin rangea le crâne et sortit de l'espace où se trouvait la Terre de l'Ancien Dieu.
 
-« L'Ancien Maître Impérial du Dao qui ressemblait à l'All-Seer a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
+« L'Ancien Maître Impérial du Dao qui ressemblait à l'Tout-Voyant a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
 
 Le temps s'écoula. En un clin d'œil, dix ans passèrent.
 

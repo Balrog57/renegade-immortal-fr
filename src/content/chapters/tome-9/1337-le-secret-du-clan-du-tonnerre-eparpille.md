@@ -102,7 +102,7 @@ Maître Zhou Tian était plus proche du jade et fut plus rapide que Wang Lin. Ce
 
 Ce dernier saisit l'objet et lança un regard glacial à Wang Lin avant de ne prononcer qu'un seul mot :
 
-« Dégage ! » Son expression était indifférente, mais une pression écrasante se propagea, sans même afficher de dédain explicite. C'était là sa fierté en tant que cultivateur au stade Nirvana Scryer, un niveau qui le plaçait au-dessus de millions d'individus. Pour lui, Wang Lin n'était qu'une fourmi qu'il pourrait écraser des centaines de fois d'un simple geste du doigt.
+« Dégage ! » Son expression était indifférente, mais une pression écrasante se propagea, sans même afficher de dédain explicite. C'était là sa fierté en tant que cultivateur au stade Scruteur du Nirvana, un niveau qui le plaçait au-dessus de millions d'individus. Pour lui, Wang Lin n'était qu'une fourmi qu'il pourrait écraser des centaines de fois d'un simple geste du doigt.
 
 Un junior osant rivaliser avec lui pour une mission revenait à chercher la mort !
 

@@ -8,7 +8,7 @@ slug: bloque
 ---
 Chapitre 1727 - Bloqué !
 
-Après avoir dévoré l'All-Seer, la Bête des Profondeurs était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
+Après avoir dévoré le Tout-Voyant, la Bête des Profondeurs était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu !
 
@@ -18,7 +18,7 @@ Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
 Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer Nuageuse, mais ils ne pouvaient pas voir la Bête des Profondeurs. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
 
-C'est ainsi que l'All-Seer avait pu demeurer dans la Rivière des Invocations pendant des centaines d'années sans jamais être détecté.
+C'est ainsi que le Tout-Voyant avait pu demeurer dans la Rivière des Invocations pendant des centaines d'années sans jamais être détecté.
 
 Le corps original de Wang Lin était assis sur le dos de la Bête des Profondeurs, tandis que son avatar condensait ses essences à ses côtés. Les ondulations qui se propageaient à travers la Mer Nuageuse ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
@@ -36,7 +36,7 @@ Après cela, les essences de mise à mort et de restriction furent rappelées et
 
 À mesure que ses essences se mettaient en mouvement, son âme originale émergea lentement de celles-ci. Cela permit à Wang Lin de retrouver progressivement l'état dans lequel il se trouvait avant l'effondrement de son avatar.
 
-La seule différence était qu'il n'y avait plus d'âme d'avatar de l'All-Seer.
+La seule différence était qu'il n'y avait plus d'âme d'avatar du Tout-Voyant.
 
 Dès que l'avatar de Wang Lin fut totalement rétabli, son corps original ouvrit les yeux et regarda son avatar. Après un instant, l'avatar et le corps original fusionnèrent pour ne former qu'un seul être.
 
@@ -44,13 +44,13 @@ Les yeux de Wang Lin brillèrent et il bougea son corps. Constatant qu'il n'épr
 
 « Puisque je suis qualifié pour prétendre à la suprématie, je dois faire un voyage vers la planète des Cinq Éléments ! Trop de secrets s'y cachent, et la dernière force du monde caverneux y est dissimulée ! »
 
-« Cette force cherche clairement à tirer profit de la situation à la fin, tout comme l'All-Seer... Puisque vous aimez tous vous cacher dans l'ombre, alors je vais vous forcer à sortir au grand jour et vous faire comprendre que ce monde caverneux n'appartient à aucun d'entre vous, étrangers ! »
+« Cette force cherche clairement à tirer profit de la situation à la fin, tout comme le Tout-Voyant... Puisque vous aimez tous vous cacher dans l'ombre, alors je vais vous forcer à sortir au grand jour et vous faire comprendre que ce monde caverneux n'appartient à aucun d'entre vous, étrangers ! »
 
 « Une fois la dernière force cachée révélée, la compétition pour la troisième âme pourra officiellement commencer ! »
 
-Du point de vue de Wang Lin, l'All-Seer était un clou qu'il fallait arracher ; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
+Du point de vue de Wang Lin, le Tout-Voyant était un clou qu'il fallait arracher ; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
 
-C'était la vérité. Maintenant que l'All-Seer avait été détruit par Wang Lin, il ne restait plus qu'un second clou : les êtres célestes de la Secte Gui Yi.
+C'était la vérité. Maintenant que le Tout-Voyant avait été détruit par Wang Lin, il ne restait plus qu'un second clou : les êtres célestes de la Secte Gui Yi.
 
 Ces intrus étaient le deuxième clou ! Il allait les exposer à la lumière !
 

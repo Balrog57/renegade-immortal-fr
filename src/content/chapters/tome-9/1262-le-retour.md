@@ -1,4 +1,4 @@
----
+﻿---
 n: 1262
 title: Le Retour
 book: 9
@@ -10,7 +10,7 @@ Chapitre 1262 - Le Retour...
 
 À l'intérieur de ce palais lugubre, une tempête éclata à la voix du garçon. Cette tempête fit tourbillonner le brouillard stellaire autour de la planète et provoqua des grondements tonitruants.
 
-« Maître, moi, Daoïste Water, j'ai combattu aux côtés de votre volonté et j'ai failli mourir de nombreuses fois ; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris le Secte Divin, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire ! »
+« Maître, moi, Daoïste Water, j'ai combattu aux côtés de votre volonté et j'ai failli mourir de nombreuses fois ; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris le Secte Divine, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire ! »
 
 « Cependant... Êtes-vous vraiment mort ?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
@@ -20,7 +20,7 @@ Chapitre 1262 - Le Retour...
 
 Le visage du garçon aux cheveux blancs devint encore plus féroce, et ses yeux révélèrent une intention meurtrière monstrueuse.
 
-« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute ! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de ce sentiment qu'il avait paniqué et utilisé tout le Secte Divin pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
+« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute ! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de ce sentiment qu'il avait paniqué et utilisé tout le Secte Divine pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
 
 Il avait cultivé pendant d'innombrables années, et c'était la première fois qu'il ressentait une telle peur depuis la mort de son maître. Cette peur lui rappelait les instants précédant le trépas de son mentor.
 

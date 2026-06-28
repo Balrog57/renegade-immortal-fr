@@ -26,17 +26,17 @@ Telle était la nature du clan Ancien, une tradition héritée depuis des éons.
 
 L'empereur du clan Ancien était le ciel lui-même et représentait l'Ancêtre Ancien. Leur sang noble ne pouvait être effacé par aucune force ! Le clan Ancien vouait un respect suprême aux lignées de sang !
 
-Même les Grands Empereurs n'avaient pas le droit de destituer un empereur Ancien. En termes de cultivation, le Grand Empereur était le gardien du clan, mais en termes de pouvoir, l'empereur Ancien pouvait commander chaque membre de la lignée !
+Même les Grands Empyrées n'avaient pas le droit de destituer un empereur Ancien. En termes de cultivation, le Grand Empyrée était le gardien du clan, mais en termes de pouvoir, l'empereur Ancien pouvait commander chaque membre de la lignée !
 
-S'il y avait un conflit d'autorité entre l'empereur Ancien et le Grand Empereur, bien plus de personnes obéiraient à l'empereur Ancien qu'au Grand Empereur !
+S'il y avait un conflit d'autorité entre l'empereur Ancien et le Grand Empyrée, bien plus de personnes obéiraient à l'empereur Ancien qu'au Grand Empyrée !
 
 Cela différait grandement du clan Céleste. Dans ce dernier, Jiu Di avait osé comploter contre l'Empereur Céleste, allant jusqu'à l'assassiner !
 
-Mais dans le clan Ancien, bien que les Grands Empereurs fussent puissants, ils ne blesseraient jamais un empereur Ancien. Cela en raison d'une loi établie par le plus puissant des Grands Empereurs sur le Continent Astral Immortel !
+Mais dans le clan Ancien, bien que les Grands Empyrées fussent puissants, ils ne blesseraient jamais un empereur Ancien. Cela en raison d'une loi établie par le plus puissant des Grands Empyrées sur le Continent Astral Immortel !
 
 Il protègerait les trois nations du clan Ancien, ainsi que toute existence capable de devenir l'unique empereur Ancien.
 
-Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là où résidait le plus puissant des Grands Empereurs.
+Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là où résidait le plus puissant des Grands Empyrées.
 
 Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Purple Yang. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 

@@ -108,11 +108,11 @@ En entendant cela, le vieil homme éclata soudain de rire, mais dans ce rire, la
 
 « Oh ? Et qui donc est ton maître ? »
 
-L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit : « Le disciple du Grand Empereur Gémeaux, l'Empereur Exalté Gu Ya ! »
+L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit : « Le disciple du Grand Empyrée Gémeaux, l'Exaltation Empyréenne Gu Ya ! »
 
 Son calme et ses paroles assurées stupéfièrent le vieil homme.
 
-« Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Empereur Exalté Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau ! » Le vieil homme ne le croyait absolument pas.
+« Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Exaltation Empyréenne Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau ! » Le vieil homme ne le croyait absolument pas.
 
 Liu Jinbiao agita sa manche et dit froidement : « La voie de la tromperie est mon domaine. Quant à mon niveau de cultivation, ouvre tes vieux yeux et regarde attentivement. Mon niveau est-il vraiment limité à la Formation du Noyau ?! »
 

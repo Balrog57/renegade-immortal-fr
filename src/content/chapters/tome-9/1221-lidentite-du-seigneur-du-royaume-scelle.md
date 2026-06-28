@@ -1,4 +1,4 @@
----
+﻿---
 n: 1221
 title: "L'identité du Seigneur du Royaume Scellé"
 book: 9
@@ -26,7 +26,7 @@ Cette aura ne se contentait pas de les faire trembler ; elle vidait leurs esprit
 
 « Le Seigneur du Royaume Scellé ! »
 
-Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre systèmes stellaires furent touchées. Dans le Secte Divin, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
+Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre systèmes stellaires furent touchées. Dans le Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
 
 Cependant, à cet instant précis, ses paupières tremblèrent et il ouvrit soudainement les yeux.
 
@@ -118,7 +118,7 @@ Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les s
 
 « Il est temps de partir. Je me demande comment va la bête moustique après toutes ces années. Et combien de temps ai-je dormi dans cette fleur... Cela a dû faire au moins 20 ou 30 ans. » Les yeux de Wang Lin étaient brillants et empreints d'assurance alors qu'il s'avançait. Il quitta la montagne et s'envola droit devant lui.
 
-« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, je pourrai peut-être même tenter de pénétrer le Secte Divin ! Je ne sais juste pas si Tuo Sen s'est réveillé... »
+« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, je pourrai peut-être même tenter de pénétrer le Secte Divine ! Je ne sais juste pas si Tuo Sen s'est réveillé... »
 
 À cet instant, dans le Système Stellaire Antique, parmi les étoiles infinies, Tuo Sen fixait le ciel. Il serrait les dents, envahi par une humeur sombre. Sa colère était telle qu'il brûlait de détruire tout être vivant sur son passage.
 

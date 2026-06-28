@@ -94,17 +94,17 @@ Cette aura provenant de l'empreinte dorée, bien que ténue, semblait capable de
 
 Elle était de nature à rendre fou quiconque la percevrait et la comprendrait !
 
-« Grand... Grand Empereur... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empereur.
+« Grand... Grand Empyrée... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empyrée.
 
 La puissance intrinsèque de ce trésor était secondaire ; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui ! Oubliez Du Qing, même la Grande Secte des Âmes et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée !
 
-Car à moins qu'un Grand Empereur n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel !
+Car à moins qu'un Grand Empyrée n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel !
 
-Les Grands Empereurs offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne !
+Les Grands Empyrées offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne !
 
-Avec son niveau de cultivation, Du Qing était incapable de déterminer quel Grand Empereur l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empereur.
+Avec son niveau de cultivation, Du Qing était incapable de déterminer quel Grand Empyrée l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empyrée.
 
-Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empereur !
+Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empyrée !
 
 Du Qing cracha une bouffée de sang. Tout en reculant, il lança un regard accusateur à Wang Lin et rugit :
 

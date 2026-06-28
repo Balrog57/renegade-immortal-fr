@@ -38,9 +38,9 @@ Le visage de Void Cloud pâlit légèrement alors qu'il fixait Wang Lin. Lorsque
 
 Immédiatement après, il leva la main droite et une épée antique imprégnée d'une aura royale apparut. Il s'en saisit et bondit dans les airs. Après les neuf ombres d'épées, il libéra l'assaut final !
 
-En voyant cette épée antique dégageant une aura royale, Wang Lin perçut instantanément une trace de la puissance d'un Grand Empereur !
+En voyant cette épée antique dégageant une aura royale, Wang Lin perçut instantanément une trace de la puissance d'un Grand Empyrée !
 
-Cette épée était identique à son Sceau Doré. C'était un trésor qu'un Grand Empereur avait formé en condensant un sortilège !
+Cette épée était identique à son Sceau Doré. C'était un trésor qu'un Grand Empyrée avait formé en condensant un sortilège !
 
 Alors que les neuf ombres d'épées convergeaient, les yeux de Wang Lin s'illuminèrent. Il allait partir, et quiconque tenterait de l'en empêcher subirait sa colère. L'armure de son bras droit s'était effondrée, mais il lui restait encore son bras gauche !
 
@@ -50,7 +50,7 @@ Son bras gauche forma un sceau et il décocha neuf coups de poing contre les neu
 
 Un grondement tonitruant déchira les montagnes, créant une tempête qui balaya la région. Les neuf ombres d'épées s'effondrèrent, tout comme l'armure du bras gauche de Wang Lin. Cependant, il parvint à progresser de mille pieds et se retrouva à moins de deux cents pieds de Void Cloud, qui s'apprêtait à porter un ultime coup !
 
-« Un trésor condensé d'un sortilège par un Grand Empereur... j'en possède un aussi ! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de cultivation augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
+« Un trésor condensé d'un sortilège par un Grand Empyrée... j'en possède un aussi ! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de cultivation augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
 
 Il devait le garder pour l'instant critique. Le combat contre Void Cloud semblait difficile, mais pas assez pour justifier l'usage de *Nuit Brisée* !
 
@@ -60,7 +60,7 @@ Au moment où les mots de Wang Lin résonnèrent, sa main droite plongea dans le
 
 Une fois apparu, le sceau percuta l'épée antique. Un fracas tonitruant retentit et Void Cloud cracha du sang. Il paraissait désormais affaibli. L'épée dans sa main vola en éclats et il fut projeté au sol.
 
-Une profonde fissure apparut sur le sceau doré de Wang Lin, mais il ne se brisa pas. Il devint simplement terne, et Wang Lin le rangea. Lorsque deux trésors créés par des Grands Empereurs entrent en collision, la qualité des objets ou des sorts importe peu ; l'essentiel réside dans la quantité de puissance de foi utilisée pour les façonner.
+Une profonde fissure apparut sur le sceau doré de Wang Lin, mais il ne se brisa pas. Il devint simplement terne, et Wang Lin le rangea. Lorsque deux trésors créés par des Grands Empyrées entrent en collision, la qualité des objets ou des sorts importe peu ; l'essentiel réside dans la quantité de puissance de foi utilisée pour les façonner.
 
 Prendre vie à partir du néant était déjà un prodige en soi. Il était évident que la puissance de foi de l'épée de Void Cloud était bien inférieure à celle du sceau doré de Wang Lin !
 
@@ -68,7 +68,7 @@ Après avoir rangé son sceau, Wang Lin se tint au sommet de la montagne et fixa
 
 Le sang continuait de couler de la bouche de Void Cloud. Il regarda Wang Lin, l'air vaincu.
 
-« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empereur. Une défaite était une défaite !
+« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empyrée. Une défaite était une défaite !
 
 « Mais tu as aussi perdu... » Void Cloud lutta pour se redresser et regarda Wang Lin avec une expression complexe.
 

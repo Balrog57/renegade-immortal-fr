@@ -62,7 +62,7 @@ Après avoir libéré le sceau du clan Dao Wang, l'Empereur Céleste fut transpo
 
 Des volutes de fumée dorée s'échappèrent des orifices de la tête de l'Ancêtre Céleste pour pénétrer le corps de l'Empereur Céleste. Cela provoqua une ascension soudaine de son niveau de cultivation.
 
-L'excitation emplit l'Empereur Céleste, mais il ne vit pas qu'au loin, au moment où il levait le sceau du clan Dao Wang, le corps de l'Empyrean Exalt Hai Zi tremblait violemment.
+L'excitation emplit l'Empereur Céleste, mais il ne vit pas qu'au loin, au moment où il levait le sceau du clan Dao Wang, le corps de l'Exaltation Empyréenne Hai Zi tremblait violemment.
 
 Les yeux de Hai Zi étaient empreints de confusion et de lutte. Un souvenir s'éveillait dans son esprit. Lorsque le sceau du clan Dao Wang disparut, une source de puissance s'éveilla à l'intérieur de son corps !
 
@@ -82,7 +82,7 @@ La tête située sous l'Empereur Céleste perdit toute sa splendeur et ferma len
 
 Cela interrompit l'aura dorée que l'Empereur Céleste absorbait ; la source s'était volatilisée. La lumière dorée se retira du corps de l'Empereur pour retourner dans la tête de l'Ancêtre Céleste.
 
-Ce changement soudain stupéfia l'Empereur Céleste. Ses yeux s'écarquillèrent d'incrédulité et il leva brusquement les yeux. Il vit immédiatement l'Empyrean Exalt Hai Zi !
+Ce changement soudain stupéfia l'Empereur Céleste. Ses yeux s'écarquillèrent d'incrédulité et il leva brusquement les yeux. Il vit immédiatement l'Exaltation Empyréenne Hai Zi !
 
 « C'est... C'est impossible ! Le Maître Impérial est mort, totalement mort ! Vous n'appartenez pas au clan Dao Wang, comment pouvez-vous posséder le pouvoir du Maître Impérial ?! » L'Empereur Céleste était au bord de la folie. Il refusait de croire ce qu'il voyait — il ne pouvait, ne voulait pas y croire !
 
@@ -92,7 +92,7 @@ Tout s'était déroulé selon ses desseins. Seules les apparitions soudaines de 
 
 Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste, il réalisa que rien n'était ce qu'il avait imaginé. Il était en réalité au cœur du plan de quelqu'un d'autre !
 
-« Je... suis le Maître Impérial... » L'Empyrean Exalt Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes de Maîtres Impériaux.
+« Je... suis le Maître Impérial... » L'Exaltation Empyréenne Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes de Maîtres Impériaux.
 
 « La personne qui est morte était le dernier membre de mon clan sur le Continent Astral Immortel, à mes côtés... » soupira Hai Zi.
 
@@ -106,7 +106,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 Jiu Di réfléchit un instant puis déclara lentement : « Empereur Céleste, elle est ma fille ! »
 
-« La raison pour laquelle j'ai pu vivre si longtemps avec une longévité infinie, et même devenir un Grand Empyrean, est due à l'aide du clan Dao Wang ! Le clan s'était préparé à cela depuis fort longtemps, jusqu'à ce qu'ils prédisent l'apparition de Wang Lin. C'est alors qu'ils ont mis le plan à exécution ! » Jiu Di regarda calmement l'Empereur Céleste, qui était pétrifié par la vérité.
+« La raison pour laquelle j'ai pu vivre si longtemps avec une longévité infinie, et même devenir un Grand Empyrée, est due à l'aide du clan Dao Wang ! Le clan s'était préparé à cela depuis fort longtemps, jusqu'à ce qu'ils prédisent l'apparition de Wang Lin. C'est alors qu'ils ont mis le plan à exécution ! » Jiu Di regarda calmement l'Empereur Céleste, qui était pétrifié par la vérité.
 
 Wang Lin entendit également ces paroles depuis l'intérieur de la tête de l'Ancêtre Céleste. Tandis que tous les regards étaient tournés vers Jiu Di et Hai Zi, son âme sortit de la Perle Défiant le Ciel pour reprendre le contrôle de son corps !
 

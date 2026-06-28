@@ -38,7 +38,7 @@ Wang Lin leva la tête. Son visage livide lui donnait un air maladif. Il regarda
 
 « Wang Lin, dis à ton Maître la raison de tes actes. » Xuan Luo regarda Wang Lin et son expression s'adoucit progressivement. Il avait cru que Wang Lin ne tenait aucun compte de ses sentiments et qu'il s'était lancé dans une tuerie effrénée qui n'apporterait que des dommages irrémédiables et des regrets. Cela n'aurait pas seulement fait souffrir son cœur, cela l'aurait aussi profondément déçu.
 
-Pour son unique disciple, il avait tout accompli en tant qu'enseignant ; il l'avait même considéré comme son propre fils. Il avait préparé tout ce dont Wang Lin avait besoin pour sa cultivation et était même prêt à s'opposer au Grand Empereur Gu Dao pour lui. Quelques instants plus tôt encore, il affinait un trésor pour son disciple.
+Pour son unique disciple, il avait tout accompli en tant qu'enseignant ; il l'avait même considéré comme son propre fils. Il avait préparé tout ce dont Wang Lin avait besoin pour sa cultivation et était même prêt à s'opposer au Grand Empyrée Gu Dao pour lui. Quelques instants plus tôt encore, il affinait un trésor pour son disciple.
 
 Mais en arrivant, il n'avait vu qu'un sol couvert de sang. Le Dao Antique qu'il protégeait avait subi d'innombrables pertes, et tout cela par la main de son disciple. Cela fit sentir à Xuan Luo comme si son cœur était poignardé, le remplissant d'une immense déception !
 
@@ -66,7 +66,7 @@ Il était convaincu que Wang Lin ne pourrait jamais lui nuire, ni n'oserait le t
 
 S'il ne profitait pas de cet avantage, il ne méritait pas son rang royal.
 
-De plus, il était l'Empereur Dao Antique — quiconque oserait le tuer devrait d'abord demander la permission au Grand Empereur Gu Dao !
+De plus, il était l'Empereur Dao Antique — quiconque oserait le tuer devrait d'abord demander la permission au Grand Empyrée Gu Dao !
 
 En tant qu'Empereur Dao, il n'avait rien à craindre ; comment laisser Wang Lin faire ce qu'il voulait ? Il y avait déjà réfléchi : une fois cette affaire réglée, il allait gâter Song Zhi, prendre son corps vierge, la laisser porter son enfant et plonger Wang Lin dans le désespoir !
 
@@ -76,7 +76,7 @@ Wang Lin médita silencieusement. L'intention meurtrière en lui était presque 
 
 Mais il ne pouvait pas le faire. Une légère rougeur monta sur ses joues pâles alors qu'il contenait sa fureur déchaînée.
 
-Il regarda Song Zhi, le visage empreint de tristesse. Il possédait une puissance comparable à celle d'un Grand Empereur et, hormis Xuan Luo, personne ici n'était son égal. Pourtant, en cet instant, face à un empereur insignifiant, il ne pouvait faire un pas de plus. Il voyait l'âme de Wan Er là, juste devant lui, mais il ne pouvait l'atteindre.
+Il regarda Song Zhi, le visage empreint de tristesse. Il possédait une puissance comparable à celle d'un Grand Empyrée et, hormis Xuan Luo, personne ici n'était son égal. Pourtant, en cet instant, face à un empereur insignifiant, il ne pouvait faire un pas de plus. Il voyait l'âme de Wan Er là, juste devant lui, mais il ne pouvait l'atteindre.
 
 Tout cela parce qu'il ne voulait pas décevoir Xuan Luo ni le placer dans une situation impossible. Il ne voulait pas infliger de chagrin au maître à qui il devait tant.
 

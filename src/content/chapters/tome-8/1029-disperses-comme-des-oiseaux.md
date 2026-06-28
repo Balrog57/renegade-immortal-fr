@@ -86,7 +86,7 @@ Alors que les paroles venimeuses de Qiu Yao résonnaient, le Bassin Funéraire C
 
 Le vortex jaillit soudainement, se muant en un immense tourbillon capable de tout anéantir sur son passage, et s'élança droit vers le ciel. À cet instant, l'expression du Maître du Vide changea ; il saisit la belle femme d'âge moyen ainsi que la jeune fille, suspectée d'être la Sainte du Vide Brillant, et s'enfuit.
 
-L'All-Seer et ses compagnons firent de même. En un instant, tout le monde se dispersa comme des oiseaux.
+L'Tout-Voyant et ses compagnons firent de même. En un instant, tout le monde se dispersa comme des oiseaux.
 
 Le tourbillon jaillit, provoquant l'effondrement de l'espace environnant dans une série de grondements assourdissants. Ce qui s'écroula n'était pas seulement l'espace, mais aussi la bordure de la grotte scellée par le démon dispersé.
 
@@ -116,7 +116,7 @@ Même le Maître du Vide pâlit sous l'effet de ses blessures. Il ne prit même 
 
 Quant à la belle femme et à la jeune fille en rose, elles furent également dispersées ; chacune toucha une restriction différente et s'évanouit sans laisser de trace.
 
-L'All-Seer continua sa retraite, ses yeux brillant d'une lueur mystérieuse. Ses pas suivirent un mouvement étrange avant qu'il ne se précipite dans une restriction située dans un pavillon lointain, disparaissant ainsi à son tour.
+L'Tout-Voyant continua sa retraite, ses yeux brillant d'une lueur mystérieuse. Ses pas suivirent un mouvement étrange avant qu'il ne se précipite dans une restriction située dans un pavillon lointain, disparaissant ainsi à son tour.
 
 Presque tout le monde disparut au cours de cette fuite désordonnée.
 

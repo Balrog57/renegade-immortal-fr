@@ -10,7 +10,7 @@ slug: empli-de-rage-11
 
 Lorsque Wang Lin pénétra dans le palais, le visage de l'Empereur Dao Antique pâlit. Il recula inconsciemment de quelques pas et fixa Wang Lin du regard.
 
-« Wang Lin, si je meurs, cette femme mourra aussi ! Oserez-vous me tuer ?! Je bénéficie de la protection du Grand Empereur Gu Dao, personne dans ce monde ne peut tuer un empereur antique ! »
+« Wang Lin, si je meurs, cette femme mourra aussi ! Oserez-vous me tuer ?! Je bénéficie de la protection du Grand Empyrée Gu Dao, personne dans ce monde ne peut tuer un empereur antique ! »
 
 Wang Lin ignora l'Empereur Dao Antique, tout comme le père de celui-ci, dont l'expression était tout aussi sinistre. Il ne regardait que Song Zhi. En contemplant cette femme qui lui procurait une sensation familière capable d'apaiser sa folie, il marcha vers l'aura qu'il poursuivait depuis des milliers d'années.
 
@@ -44,7 +44,7 @@ D'un seul coup, la ligne fut coupée en deux.
 
 Au moment même où la ligne fut tranchée, l'Empereur Dao Antique cracha une bouchée de sang. Il avait l'air pitoyable, ses yeux emplis d'horreur et d'incrédulité.
 
-« Impossible !! Ce Verrou Ancestral de l'Âme Pourpre ne peut pas être coupé ainsi ! C'est le sort secret des familles impériales, seul le Grand Empereur Gu Dao peut le lever... » L'Empereur Dao Antique hurla, mais n'osa s'approcher de Wang Lin et continua de reculer.
+« Impossible !! Ce Verrou Ancestral de l'Âme Pourpre ne peut pas être coupé ainsi ! C'est le sort secret des familles impériales, seul le Grand Empyrée Gu Dao peut le lever... » L'Empereur Dao Antique hurla, mais n'osa s'approcher de Wang Lin et continua de reculer.
 
 Wang Lin ne prêta aucune attention à l'Empereur Dao Antique ; il ne regardait que la femme en souffrance. Il lui caressa doucement les cheveux.
 
@@ -76,11 +76,11 @@ Wang Lin fut transporté par l'émotion et rit aux éclats vers le ciel tout en 
 
 Lorsque Wang Lin tourna son regard vers lui, l'Empereur Dao Antique vit clairement son intention meurtrière et sentit son cœur s'effondrer.
 
-« Je suis l'Empereur Dao Antique, je bénéficie de la protection du Grand Empereur Gu Dao, vous ne pouvez pas me tuer ! » L'Empereur Dao Antique recula de nouveau. Les yeux de Wang Lin s'illuminèrent. Il voulait tuer cet homme ; sa haine était ancrée jusqu'aux os. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Antique.
+« Je suis l'Empereur Dao Antique, je bénéficie de la protection du Grand Empyrée Gu Dao, vous ne pouvez pas me tuer ! » L'Empereur Dao Antique recula de nouveau. Les yeux de Wang Lin s'illuminèrent. Il voulait tuer cet homme ; sa haine était ancrée jusqu'aux os. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Antique.
 
 Wang Lin se rapprocha instantanément, le regard chargé d'une intention meurtrière monstrueuse. Il leva la main droite et s'abattit sur l'Empereur Dao Antique !
 
-« Grand Empereur Gu Dao, sauvez-moi ! » hurla l'Empereur Dao Antique.
+« Grand Empyrée Gu Dao, sauvez-moi ! » hurla l'Empereur Dao Antique.
 
 Mais au moment où la paume de Wang Lin allait frapper, un grondement tonnerre retentit. Un éclat de lumière pourpre apparut autour de l'Empereur Dao Antique et repoussa l'attaque de Wang Lin.
 
@@ -96,7 +96,7 @@ Face à cela, l'Empereur Dao Antique rit avec une arrogance croissante. Il ne pr
 
 « De quel droit prétendez-vous me tuer ? Wang Lin, vous n'êtes qu'une fourmi du monde des grottes. Maintenant que cent mille membres de mon clan arrivent, je veux voir comment vous comptez fuir ! Vous allez mourir, et une fois mort, je m'amuserai avec cette femme pour qu'elle vous accompagne dans la mort ! » l'Empereur Dao Antique éclata de rire.
 
-« Je ne peux pas te tuer... » Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et son Grand Empereur Soleil apparut derrière lui. Il dégageait simultanément une lumière noire et blanche, tandis que son sang d'âme circulait frénétiquement. À cet instant, le Chant du Vent jaillit de son corps !
+« Je ne peux pas te tuer... » Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et son Grand Empyrée Soleil apparut derrière lui. Il dégageait simultanément une lumière noire et blanche, tandis que son sang d'âme circulait frénétiquement. À cet instant, le Chant du Vent jaillit de son corps !
 
 Des grondements tonnerres résonnèrent : c'était le Chant du Tonnerre !
 
@@ -106,7 +106,7 @@ La pluie tomba également, composant le Chant de la Pluie ! Puis les Chants du C
 
 Le huitième chant était celui des organes internes ; il était indescriptible tant il résonnait à travers tout le palais du Dao Antique !
 
-« Dans ce monde, il existe une autre personne aux côtés du Grand Empereur Gu Dao capable de te tuer... l'Ancêtre Originel ! » dit lentement Wang Lin. À mesure que ses paroles s'échappaient, son sang d'âme libéra le neuvième chant !
+« Dans ce monde, il existe une autre personne aux côtés du Grand Empyrée Gu Dao capable de te tuer... l'Ancêtre Originel ! » dit lentement Wang Lin. À mesure que ses paroles s'échappaient, son sang d'âme libéra le neuvième chant !
 
 Le dernier fut le Chant de la Lignée. Lorsque celui-ci retentit, les yeux de Wang Lin devinrent argentés, révélant une aura de suprême divinité !
 

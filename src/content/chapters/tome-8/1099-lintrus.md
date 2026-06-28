@@ -68,7 +68,7 @@ Wang Lin fixa le trident, mais soudain, son expression changea et il leva les ye
 
 « Je dois encore lui donner des explications concernant cette affaire... » soupira Wang Lin avant de ranger le trident et de disparaître.
 
-Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales du Secte Divin de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
+Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales du Secte Divine de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
 
 À cet instant, une femme était agenouillée sur le plus haut sommet. Elle était magnifique, mais son visage portait une expression d'amertume alors qu'elle restait immobile en prière.
 
@@ -96,7 +96,7 @@ Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde
 
 Nul ne vit que Wang Lin était assis sur des ossements. C'était un spectacle sinistre...
 
-Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville du Secte Divin de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
+Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville du Secte Divine de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
 
 « Deuxième frère, troisième frère, votre grand frère vous a fait du tort. Je suis désolé... » L'homme déversait le vin dans sa bouche, laissant le liquide s'écouler du coin de ses lèvres pour se mêler à ses larmes.
 

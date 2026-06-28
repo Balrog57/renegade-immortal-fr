@@ -32,7 +32,7 @@ L'air froid frappait puissamment son corps. Il resta silencieux, plongé dans se
 
 Le firmament était toujours voilé par des nuages sombres et la pluie obstruait la vue. Naturellement, cela n'affectait en rien Wang Lin ; il aperçut deux épées volant dans l'espace clair au-dessus de la couche nuageuse.
 
-Un homme et une femme chevauchaient ces épées volantes. L'homme, vêtu de bleu, était très beau. Son niveau de cultivation n'était pas négligeable, se situant autour du stade de Nirvana Scryer. La femme était gracieuse, vêtue de robes aux couleurs du phénix ; elle était d'une grande beauté et dégageait une aura de noblesse.
+Un homme et une femme chevauchaient ces épées volantes. L'homme, vêtu de bleu, était très beau. Son niveau de cultivation n'était pas négligeable, se situant autour du stade de Scruteur du Nirvana. La femme était gracieuse, vêtue de robes aux couleurs du phénix ; elle était d'une grande beauté et dégageait une aura de noblesse.
 
 Sous leurs pieds s'étendaient les nuages noirs. Depuis leur position, ils pouvaient clairement voir la foudre zigzaguer dans les masses nuageuses et entendre le grondement du tonnerre.
 
@@ -86,7 +86,7 @@ Dès que cet éclair prit sa forme définitive, les nuages grondèrent et une pl
 
 L'ensemble de la planète de cultivation pouvait entendre le fracas assourdissant émanant des nuages !
 
-Dans la cité impériale, plusieurs vieillards se trouvaient dans un pavillon imposant. Presque tous étaient au stade de Nirvana Cleanser, et l'un d'eux atteignait le stade de Nirvana Shatterer !
+Dans la cité impériale, plusieurs vieillards se trouvaient dans un pavillon imposant. Presque tous étaient au stade de Purificateur du Nirvana, et l'un d'eux atteignait le stade de Briseur du Nirvana !
 
 Alors qu'ils se tenaient debout dans le pavillon, ils observaient les nuages tourbillonnants et écoutaient le grondement du tonnerre. Leurs regards étaient empreints d'étrangeté.
 
@@ -94,7 +94,7 @@ Alors qu'ils se tenaient debout dans le pavillon, ils observaient les nuages tou
 
 L'un des vieillards répondit : « Peut-être sommes-nous simplement trop inquiets. »
 
-« Hélas, même un grand clan comme le Clan du Tonnerre Dispersé a été anéanti et son Grand Ancien tué. En écoutant ce tonnerre, je ne peux m'empêcher de pressentir une anomalie, mais je me trompe peut-être. » Le vieillard au stade Nirvana Shatterer secoua la tête et se tut.
+« Hélas, même un grand clan comme le Clan du Tonnerre Dispersé a été anéanti et son Grand Ancien tué. En écoutant ce tonnerre, je ne peux m'empêcher de pressentir une anomalie, mais je me trompe peut-être. » Le vieillard au stade Briseur du Nirvana secoua la tête et se tut.
 
 « Peu importe qui est cette personne. Puisque l'Ordre de Mort de l'Ancien Système Stellaire a été émis, dès que ses traces seront trouvées, il sera sans aucun doute condamné ! »
 

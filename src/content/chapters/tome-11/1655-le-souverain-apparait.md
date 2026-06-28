@@ -96,7 +96,7 @@ Simultanément, un fracas retentit et le bouclier lumineux entourant Mu Bingmei 
 
 « L'amante du Seigneur du Royaume Scellé saura sans aucun doute ravir ce seigneur ! »
 
-Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres du Secte Divin se ruèrent en avant, prêts à mourir avec leur ennemi !
+Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres du Secte Divine se ruèrent en avant, prêts à mourir avec leur ennemi !
 
 À cet instant précis, à l'extérieur de la formation planétaire, Qing Lin, la femme de Summoned River et le Maître Hong Shan, qui combattaient les cultivateurs du Vide Arcanique du Royaume Extérieur, affrontaient eux aussi leurs plus grands combats pour la survie !
 

@@ -42,7 +42,7 @@ Après ces centaines de poils, les restants des 3 000 suivirent, se transformant
 
 Tout cela se produisit en un instant. Les 3 000 poils s'étaient transformés en 3 000 sorts différents que Wang Lin avait croisés au cours de sa vie.
 
-Il y avait aussi les sorts de Qing Lin, du Daoïste Water et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Vermillon Birds de la première et de la deuxième génération, et bien d'autres encore !
+Il y avait aussi les sorts de Qing Lin, du Daoïste de l'Eau et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Vermillon Birds de la première et de la deuxième génération, et bien d'autres encore !
 
 3 000 poils, 3 000 Grands Daos, 3 000 sorts ! La majorité des sortilèges gravés dans la mémoire de Wang Lin apparaissaient devant lui.
 

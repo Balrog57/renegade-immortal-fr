@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2086 - Reincarnation is Right There
 slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cette
 ---
-« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral d'Ancient Shi. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née ! » Wang Lin ne regarda pas l'All-Seer, mais fixa le pont situé derrière lui.
+« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral d'Ancient Shi. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née ! » Wang Lin ne regarda pas l'Tout-Voyant, mais fixa le pont situé derrière lui.
 
 « J'avais peur de l'échec que j'avais entrevu, j'avais peur d'avoir échoué à ressusciter Wan Er. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain ; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité !
 
@@ -30,7 +30,7 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « J'ai la réponse à tout ! » Wang Lin regarda le crâne dans sa main avec une expression complexe.
 
-« Ce qui manque à l'intérieur de la Perle Défiant le Ciel, c'est vous ! Vous n'êtes pas le soi-disant gardien, mais l'esprit du trésor de la Boussole de la Frontière ! » Wang Lin leva les yeux. Son regard était si intense qu'il fit trembler l'All-Seer.
+« Ce qui manque à l'intérieur de la Perle Défiant le Ciel, c'est vous ! Vous n'êtes pas le soi-disant gardien, mais l'esprit du trésor de la Boussole de la Frontière ! » Wang Lin leva les yeux. Son regard était si intense qu'il fit trembler l'Tout-Voyant.
 
 « À l'origine, j'étais très confus quant à la résurrection de Li Muwan. Je ne savais même pas comment la ramener à la vie jusqu'à ce que vous apparaissiez sur la montagne désertée de l'Ancient Dao.
 
@@ -40,11 +40,11 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « Jusqu'à ce que je voie ce crâne... » murmura Wang Lin.
 
-« Vous... Quelle méthode avez-vous conçue... » Le gaz noir autour de l'All-Seer continuait de bouillonner. Face au calme imperturbable de Wang Lin, ses paroles ne firent qu'emplir son cœur d'effroi.
+« Vous... Quelle méthode avez-vous conçue... » Le gaz noir autour de l'Tout-Voyant continuait de bouillonner. Face au calme imperturbable de Wang Lin, ses paroles ne firent qu'emplir son cœur d'effroi.
 
 Il réalisa que tout ce qu'il savait était désormais bien différent. Il sentit soudain une calamité s'abattre sur lui en entendant Wang Lin évoquer cette idée folle et cette méthode.
 
-Wang Lin fixa calmement l'All-Seer.
+Wang Lin fixa calmement l'Tout-Voyant.
 
 « Ma méthode est très simple. Je maîtrise le Temps Fluide, vous devriez le savoir... Une fois mon avatar de massacre achevé, j'ai utilisé mon sortilège de Temps Fluide avec toute ma puissance pour inverser le temps et le renvoyer dans le passé !
 
@@ -66,7 +66,7 @@ Wang Lin fixa calmement l'All-Seer.
 
 « Ce n'est que lorsqu'il est arrivé dans le Royaume du Dieu Immémorial lors d'une réincarnation qu'il a pu accomplir la tâche que je lui avais assignée : il a brisé la boussole avant de se dissiper. Cela a rendu la boussole incomplète et a libéré l'esprit du trésor qui y résidait !
 
-« C'est vous. » Wang Lin fixa l'All-Seer. En entendant cela, le corps de ce dernier trembla violemment, ses yeux emplis d'incrédulité et d'une peur indescriptible.
+« C'est vous. » Wang Lin fixa l'Tout-Voyant. En entendant cela, le corps de ce dernier trembla violemment, ses yeux emplis d'incrédulité et d'une peur indescriptible.
 
 « Impossible, c'est impossible ! »
 
@@ -78,16 +78,16 @@ Wang Lin fixa calmement l'All-Seer.
 
 « L'Ancêtre Ancien et l'Ancêtre Céleste n'ont pas su percer le mystère de la réincarnation. Ils pensaient que tout était faux et sont morts en cherchant le Dao... Voilà ce qu'est la réincarnation...
 
-« Une fois la réincarnation comprise, on voit qu'elle n'est qu'un cercle. On peut s'y déplacer librement et saisir n'importe quel point. » Wang Lin secoua la tête et regarda calmement l'All-Seer.
+« Une fois la réincarnation comprise, on voit qu'elle n'est qu'un cercle. On peut s'y déplacer librement et saisir n'importe quel point. » Wang Lin secoua la tête et regarda calmement l'Tout-Voyant.
 
 « Vous avez comploté contre moi, mais vous ignoriez qu'en fin de compte, c'est moi qui complotais contre vous... C'est comme chercher quelque chose et le trouver soudainement au moment même où l'on se retourne. »
 
 « Impossible, ce ne peut pas être ainsi !! J'ai personnellement vu votre vie antérieure ! J'ai personnellement vu comment vous avez emprunté ma boussole ! J'ai personnellement vu comment vous êtes entré dans le Dao du Rêve avec elle !
 
-« J'ai aussi personnellement vu vos multiples réincarnations jusqu'à ce que vous atteigniez ce point avant de disparaître dans la boussole !! » L'All-Seer semblait avoir sombré dans la démence. Il avait comploté toute une vie, pour finalement commettre une erreur de calcul monumentale.
+« J'ai aussi personnellement vu vos multiples réincarnations jusqu'à ce que vous atteigniez ce point avant de disparaître dans la boussole !! » L'Tout-Voyant semblait avoir sombré dans la démence. Il avait comploté toute une vie, pour finalement commettre une erreur de calcul monumentale.
 
 Lorsqu'il fut libéré de la boussole, il crut à un accident, sans se douter que cela faisait partie intégrante du plan de Wang Lin.
 
-« Impossible, je ne le crois pas !! » rugit l'All-Seer, tandis que son corps de gaz noir recouvrait le ciel. Il s'élança vers Wang Lin comme pour le dévorer.
+« Impossible, je ne le crois pas !! » rugit l'Tout-Voyant, tandis que son corps de gaz noir recouvrait le ciel. Il s'élança vers Wang Lin comme pour le dévorer.
 
 « Ce n'est pas parce que vous l'avez vu que c'est vrai... Car vous ne pouvez pas percer le mystère de la réincarnation. Elle est là, sous vos yeux ; si vous la comprenez, elle vous appartient, mais si vous ne la comprenez pas, vous ne la comprendrez jamais. » Wang Lin secoua la tête.

@@ -16,7 +16,7 @@ Wang Lin avança avec assurance. Sa marche n'était ni rapide ni lente, mais cha
 
 Au loin, devant lui, un groupe d'une centaine de cultivateurs survolait le système stellaire. Ils tenaient des fils semblables à de la soie qui étaient enroulés autour d'une planète de cultivation.
 
-Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une cultivation au sommet du Nirvana Cleanser. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
+Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une cultivation au sommet du Purificateur du Nirvana. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
 
 « Soyez tous attentifs et appliquez votre force simultanément pour ne pas endommager la planète de cultivation. Sinon, les reproches du Temple Céleste du Tonnerre seront le cadet de nos soucis. Si les préparatifs de bataille sont compromis, nous pourrons tous rentrer chez nous en cultivation isolée ! »
 

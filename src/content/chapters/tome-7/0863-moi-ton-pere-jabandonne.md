@@ -72,13 +72,13 @@ L'homme à la robe noire recula promptement, le visage pâle. La destruction des
 
 Après un rire dément, il fit un pas en avant, puis s'immobilisa net. Lorsque son pied toucha le sol, un fracas retentit dans l'espace derrière lui et de nombreuses fissures apparurent.
 
-« Magnifique ! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Illusoire Yin. À l'étape Corporel Yang, j'étais le premier sous l'étape Nirvana Scryer. Tu es digne de devenir mon opposant ! »
+« Magnifique ! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Illusoire Yin. À l'étape Corporel Yang, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant ! »
 
 L'homme à la robe noire, Nangong Han, riait comme un fou tout en formant un sceau de ses mains. En un éclair, l'espace devant lui se tordit et neuf lames illusoires apparurent soudainement.
 
 Cependant, au moment même où ces neuf lames surgissaient, une ondulation se produisit à ses côtés. Wang Lin apparut, deux doigts formant une épée, et le pointa sans la moindre hésitation !
 
-Ce geste concentrait son Dao et son énergie d'origine du stade Nirvana Scryer. D'un mouvement de ses doigts, les poissons noir et blanc apparurent. Ils tournèrent pour former une force de scellement qui vola vers Nangong Han !
+Ce geste concentrait son Dao et son énergie d'origine du stade Scruteur du Nirvana. D'un mouvement de ses doigts, les poissons noir et blanc apparurent. Ils tournèrent pour former une force de scellement qui vola vers Nangong Han !
 
 Nangong Han se retourna brusquement et recula avec célérité. Ses mains formèrent un sceau rapide pour renvoyer l'attaque vers Wang Lin. Mais Wang Lin était apparu si soudainement et si près que seules deux des neuf lames purent intercepter son assaut. Le regard de Wang Lin restait empreint d'indifférence, et les deux lames illusoires s'effondrèrent aussitôt !
 
@@ -98,7 +98,7 @@ La silhouette de Wang Lin apparut à trente pieds de Nangong Han alors que la fo
 
 Nangong Han prit une inspiration glacée et recula précipitamment en criant : « Arrête ! Arrête ! J'abandonne ! Je ne me bats plus. Tu maîtrises la Manipulation Spatiale, comment suis-je censé lutter contre ça ?! Arrête ! » Il fit volte-face et s'enfuit.
 
-« J'ai déjà déclaré forfait et tu continues de me hanter. J'abandonne, je ne me battrai plus contre toi ! » eut un sourire amer Nangong Han. Il n'aurait pas voulu que cela se termine ainsi, mais affronter un cultivateur du stade Nirvana Scryer maîtrisant la Manipulation Spatiale le plaçait dans un désavantage trop grand.
+« J'ai déjà déclaré forfait et tu continues de me hanter. J'abandonne, je ne me battrai plus contre toi ! » eut un sourire amer Nangong Han. Il n'aurait pas voulu que cela se termine ainsi, mais affronter un cultivateur du stade Scruteur du Nirvana maîtrisant la Manipulation Spatiale le plaçait dans un désavantage trop grand.
 
 En disant cela, l'image de puissance qu'il s'était forgée auprès de cette génération s'effondra instantanément. Wang Lin réapparut à deux cents pieds de lui. Il fronça les sourcils en observant Nangong Han.
 

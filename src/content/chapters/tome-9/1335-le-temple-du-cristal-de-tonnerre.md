@@ -74,7 +74,7 @@ Soudain, l'expression de Wang Lin changea légèrement et il tourna la tête. Un
 
 Un rire résonna dans le vide, et les nuages se rétractèrent pour ne former qu'un manteau autour d'un vieil homme qui émergeait. Ce dernier avait les cheveux blancs, mais ses yeux brillaient d'une force colossale. À chacun de ses pas, l'espace et le temps semblaient se distordre.
 
-« Un cultivateur du Nirvana Scryer... » Wang Lin resta calme, un sourire indéchiffrable aux lèvres.
+« Un cultivateur du Scruteur du Nirvana... » Wang Lin resta calme, un sourire indéchiffrable aux lèvres.
 
 Dès l'apparition du vieil homme, la stupeur saisit les cultivateurs à l'extérieur du passage. Sans un mot, ils joignirent leurs mains pour le saluer avec déférence.
 

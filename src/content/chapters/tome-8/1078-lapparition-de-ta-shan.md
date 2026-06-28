@@ -18,9 +18,9 @@ Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et cert
 
 Seuls quelques vieux monstres ayant vécu depuis des éons conservaient des souvenirs vagues de ce lieu imprégné de brume verte. Bien que ces souvenirs fussent flous, ils ne les avaient pas oubliés.
 
-C'était l'emplacement du Secte Divin de l'Azure Dragon, l'un des quatre Sectes Divins !
+C'était l'emplacement du Secte Divine de l'Azure Dragon, l'un des quatre Sectes Divins !
 
-À cet instant, une silhouette apparut lentement au loin. Cet homme d'âge moyen affichait une trace de nostalgie et de mélancolie dans le regard. Il contempla le Secte Divin de l'Azure Dragon et laissa échapper un soupir.
+À cet instant, une silhouette apparut lentement au loin. Cet homme d'âge moyen affichait une trace de nostalgie et de mélancolie dans le regard. Il contempla le Secte Divine de l'Azure Dragon et laissa échapper un soupir.
 
 Il leva ensuite sa main droite et pointa l'horizon. L'ombre d'un Oiseau Vermillon surgit et poussa un cri qui résonna à travers le monde avant de charger dans la brume verte.
 
@@ -28,15 +28,15 @@ Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude.
 
 « Salutations, Empereur Divin de l'Oiseau Vermillon ! » Après que les neuf vieillards furent sortis du brouillard vert et eurent aperçu l'homme d'âge moyen, ils manifestèrent leur respect en joignant les mains.
 
-« L'Éveilleur de l'Oiseau Vermillon est apparu ; je dois emprunter le trésor sacré de votre Secte Divin de l'Azure Dragon. Et je demande à vous tous de me suivre ! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divins de la Tortue Noire et du Tigre Blanc. Le Secte Divin de l'Azure Dragon était le dernier.
+« L'Éveilleur de l'Oiseau Vermillon est apparu ; je dois emprunter le trésor sacré de votre Secte Divine de l'Azure Dragon. Et je demande à vous tous de me suivre ! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divins de la Tortue Noire et du Tigre Blanc. Le Secte Divine de l'Azure Dragon était le dernier.
 
-Les neuf anciens du Secte Divin de l'Azure Dragon se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête : « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon ! »
+Les neuf anciens du Secte Divine de l'Azure Dragon se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête : « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon ! »
 
-Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens du Secte Divin de l'Oiseau Vermillon, Wang Lin avait pu échapper à l'Omniscient. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
+Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens du Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à l'Omniscient. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
-Au loin, les cinq autres anciens du Secte Divin de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas tous des cultivateurs au sommet du stade de Briseur de Nirvana ; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter le Démon Ancien Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
+Au loin, les cinq autres anciens du Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas tous des cultivateurs au sommet du stade de Briseur de Nirvana ; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter le Démon Ancien Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
-Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par le Secte Divin de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Nirvana Void, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale Fleur qui avait subjugué la créature humanoïde, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
+Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par le Secte Divine de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Nirvana Void, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale Fleur qui avait subjugué la créature humanoïde, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
 
 L'expression de l'Omniscient demeurait sereine. Après avoir arraché la marque entre ses sourcils, une aura puissante émanait de lui. Il s'approcha lentement de Wang Lin.
 

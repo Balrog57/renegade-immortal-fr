@@ -30,11 +30,11 @@ La belle femme réfléchit un instant, puis demanda : « Cultivateur Mo, Senior 
 
 « Je sais seulement que cette personne est extrêmement arrogante et qu'elle n'a rencontré aucun des autres émissaires. Les Quatre Sectes Divins gardent également son nom secret. » Li Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
 
-Il était venu au Secte Divin de l'Oiseau Vermillon sur ordre du Temple Céleste du Tonnerre. Au-delà des félicitations, il avait une mission profonde qui exigeait d'entrer en contact direct avec le nouvel Empereur Divin.
+Il était venu au Secte Divine de l'Oiseau Vermillon sur ordre du Temple Céleste du Tonnerre. Au-delà des félicitations, il avait une mission profonde qui exigeait d'entrer en contact direct avec le nouvel Empereur Divin.
 
 Cette affaire était capitale ; sans quoi, il ne se serait pas déplacé personnellement.
 
-La belle femme murmura doucement : « Cette jeune fille a quelques informations. Lors de la bataille dans la grotte de l'Empereur Céleste Qing Lin il y a trois ans, on disait que le Secte Divin de l'Oiseau Vermillon avait emmené quelqu'un... »
+La belle femme murmura doucement : « Cette jeune fille a quelques informations. Lors de la bataille dans la grotte de l'Empereur Céleste Qing Lin il y a trois ans, on disait que le Secte Divine de l'Oiseau Vermillon avait emmené quelqu'un... »
 
 Li Yunzi laissa échapper un reniflement froid. Il était naturellement au courant. Le camp d'Allheaven avait déjà envisagé cette hypothèse, mais à l'exception de Maître Flamespark, qui pensait qu'il s'agissait très probablement de « lui », personne d'autre n'y croyait. Ainsi, la possibilité que « lui » soit le nouvel Empereur Divin fut écartée, car cela paraissait tout simplement inconcevable.
 
@@ -44,11 +44,11 @@ Si quelqu'un prétendait que Wang Lin était le nouvel Empereur Divin, Li Yunzi 
 
 En pensant à Qing Shui, Li Yunzi se sentit apaisé. La disparition de Qing Shui était dans ses prévisions. Il savait même que les troubles au siège de l'Alliance étaient directement liés à lui.
 
-En plus d'accomplir la tâche confiée par Allheaven, il avait un objectif personnel en venant ici : utiliser le nom d'Allheaven pour réclamer Wang Lin auprès du Secte Divin de l'Oiseau Vermillon.
+En plus d'accomplir la tâche confiée par Allheaven, il avait un objectif personnel en venant ici : utiliser le nom d'Allheaven pour réclamer Wang Lin auprès du Secte Divine de l'Oiseau Vermillon.
 
-Il pensait que le Secte Divin de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux ; il ne devrait donc pas être difficile de le récupérer.
+Il pensait que le Secte Divine de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux ; il ne devrait donc pas être difficile de le récupérer.
 
-La belle femme regarda Li Yunzi et demanda : « Oh ? La rumeur dit que ses sorts étaient capables de tuer Maître Void. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi le Senior Li Yunzi pense-t-il qu'il n'est pas qualifié ? À l'époque, le Secte Divin de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
+La belle femme regarda Li Yunzi et demanda : « Oh ? La rumeur dit que ses sorts étaient capables de tuer Maître Void. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi le Senior Li Yunzi pense-t-il qu'il n'est pas qualifié ? À l'époque, le Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
 Li Yunzi répondit calmement : « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de cultivation ! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 
@@ -108,7 +108,7 @@ Voyant la fissure sur le point de s'effondrer dès son apparition, l'homme en ar
 
 Cette scène fit contracter les pupilles de la belle femme. Même Li Yunzi plissa les yeux.
 
-Sans changer d'expression, Mo Zhi retira les cadeaux préparés de la fissure. Pilules, trésors et divers objets furent présentés. Les membres du Secte Divin de l'Oiseau Vermillon s'approchèrent pour les recueillir et se tenaient désormais en retrait.
+Sans changer d'expression, Mo Zhi retira les cadeaux préparés de la fissure. Pilules, trésors et divers objets furent présentés. Les membres du Secte Divine de l'Oiseau Vermillon s'approchèrent pour les recueillir et se tenaient désormais en retrait.
 
 La dernière chose que Mo Zhi sortit fut un petit drapeau bleu et vert. Dès son apparition, il libéra une puissante vague d'énergie glaciale. Même l'énergie du feu dans la salle sembla marquer un temps d'arrêt.
 
@@ -122,7 +122,7 @@ En entendant ces mots, les yeux de Mo Zhi brillèrent tandis qu'il fixait profon
 
 Li Yunzi, venu au nom du Temple Céleste du Tonnerre d'Allheaven, avait lui aussi apporté des présents. Bien que précieux, aucun ne retint l'attention de Wang Lin. Une fois les cadeaux reçus, Li Yunzi prit la parole : « Empereur Divin, outre les missions pour lesquelles le Temple Céleste du Tonnerre m'a envoyé, j'ai également une requête personnelle. »
 
-Voyant le regard du nouvel Empereur se poser sur lui, Li Yunzi réfléchit un instant et dit : « Il y a trois ans, le Secte Divin de l'Oiseau Vermillon a emmené un homme nommé "Wang Lin". Si votre Secte n'a plus d'usage pour lui, pourriez-vous permettre à ce vieil homme de le récupérer ? »
+Voyant le regard du nouvel Empereur se poser sur lui, Li Yunzi réfléchit un instant et dit : « Il y a trois ans, le Secte Divine de l'Oiseau Vermillon a emmené un homme nommé "Wang Lin". Si votre Secte n'a plus d'usage pour lui, pourriez-vous permettre à ce vieil homme de le récupérer ? »
 
 À ces mots, les quatre anciens entourant l'homme en armure furent stupéfaits et se tournèrent tous vers Li Yunzi.
 

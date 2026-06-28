@@ -38,7 +38,7 @@ L'Enseignant Impérial rugit : « Lian Daozhen !!! »
 
 Le rire du Céleste Empereur résonna dans les cieux alors qu'il émergeait de la déchirure. D'un seul pas, il atterrit sur la tête de l'Ancêtre Céleste !
 
-Simultanément, le Grand Empyrean Gemini le poursuivit à travers l'ouverture. Le visage des deux jeunes filles était pâle mais d'un sérieux extrême. En arrivant, leurs pupilles se rétractèrent lorsqu'elles aperçurent la tête de l'Ancêtre Céleste sous les pieds du Céleste Empereur.
+Simultanément, le Grand Empyrée Gemini le poursuivit à travers l'ouverture. Le visage des deux jeunes filles était pâle mais d'un sérieux extrême. En arrivant, leurs pupilles se rétractèrent lorsqu'elles aperçurent la tête de l'Ancêtre Céleste sous les pieds du Céleste Empereur.
 
 « Enseignant Impérial, votre machination est profonde ! Vous saviez que je préparais Dao Fei depuis longtemps pour le sortilège du Retour à l'Origine Ancestrale. Vous saviez aussi que Ming Dao n'était qu'un double destiné à assurer le succès de Dao Fei !
 
@@ -58,11 +58,11 @@ C'était l'assurance de celui qui tient tout entre ses mains !
 
 « Vous vouliez transférer l'héritage de Ming Dao à Wang Lin et saisir son corps ; vous l'avez donc attiré ici pour qu'il devienne l'œil droit de la tête de l'Ancêtre Céleste.
 
-« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyrean Gemini pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'utilisais Dao Fei pour le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche !
+« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyrée Gemini pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'utilisais Dao Fei pour le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche !
 
 « Puis, vous avez utilisé le sort spécial de votre clan Dao Wang pour forcer la tête de l'Ancêtre Céleste à parler afin de lever le sceau de votre clan. Croyez-vous que j'ignorais tout cela ? » Le Céleste Empereur éclata de rire.
 
-Le Grand Empyrean Gemini affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles !
+Le Grand Empyrée Gemini affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles !
 
 Et ce n'était pas un simple frisson, mais un sentiment de terreur profonde !
 
@@ -96,17 +96,17 @@ Le Céleste Empereur sourit avec morgue au-dessus de la tête de l'Ancêtre Cél
 
 « Avec cela, je suis le plus puissant des Grands Empyreans ! Gemini, osez-vous défier cet empereur à nouveau ? » Le Céleste Empereur leva les yeux avec une assurance insolente et chargea Gemini, la tête sous ses pieds.
 
-Le Grand Empyrean Gemini, les deux jeunes filles, serrèrent les dents ; derrière elles, un soleil pourpre apparut. Le soleil émit une lumière violacée qui forgea deux épées de pourpre volant vers le Céleste Empereur.
+Le Grand Empyrée Gemini, les deux jeunes filles, serrèrent les dents ; derrière elles, un soleil pourpre apparut. Le soleil émit une lumière violacée qui forgea deux épées de pourpre volant vers le Céleste Empereur.
 
-Les deux épées fusionnèrent instantanément pour foncer sur lui. Le Céleste Empereur agita la main droite et les yeux de l'Ancêtre Céleste brillèrent d'un éclat intense. Une lumière dorée monstrueuse, presque solide, sembla faire face à l'éclat des épées pourpres du Grand Empyrean Gemini !
+Les deux épées fusionnèrent instantanément pour foncer sur lui. Le Céleste Empereur agita la main droite et les yeux de l'Ancêtre Céleste brillèrent d'un éclat intense. Une lumière dorée monstrueuse, presque solide, sembla faire face à l'éclat des épées pourpres du Grand Empyrée Gemini !
 
-Des grondements tonitruants retentirent lorsque la lumière des épées s'effondra brusquement lors de la collision avec l'éclat doré. Les fragments créèrent des ondulations qui forcèrent le Grand Empyrean Gemini à battre en retraite.
+Des grondements tonitruants retentirent lorsque la lumière des épées s'effondra brusquement lors de la collision avec l'éclat doré. Les fragments créèrent des ondulations qui forcèrent le Grand Empyrée Gemini à battre en retraite.
 
 Le Céleste Empereur sourit, et tandis que la tête de l'Ancêtre Céleste resplendissait, sa main droite s'étira vers le vide. Un oiseau doré apparut dans sa paume.
 
-Il projeta sa main et l'oiseau battit des ailes en volant vers le Grand Empyrean Gemini !
+Il projeta sa main et l'oiseau battit des ailes en volant vers le Grand Empyrée Gemini !
 
-Le Grand Empyrean Gemini recula et les deux jeunes filles devinrent solennelles. Sans hésiter, elles s'envolèrent pour fusionner avec le soleil pourpre. Leurs corps se muèrent en fumée avant de prendre la forme d'une magnifique femme d'une vingtaine d'années !
+Le Grand Empyrée Gemini recula et les deux jeunes filles devinrent solennelles. Sans hésiter, elles s'envolèrent pour fusionner avec le soleil pourpre. Leurs corps se muèrent en fumée avant de prendre la forme d'une magnifique femme d'une vingtaine d'années !
 
 Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva sa main semblable à du jade, et le monde entier devint violet !
 
@@ -114,10 +114,10 @@ Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva
 
 Au même moment, dans le ciel surplombant la cité, un immense météore pourpre, comparable à la moitié de la taille de la ville elle-même, apparut. Il dégageait une pression écrasante en descendant vers la cité ancestrale. D'innombrables fissures se formèrent au sol et les cultivateurs utilisèrent divers moyens pour fuir la ville.
 
-Les yeux du Céleste Empereur se plissèrent alors qu'il fixait le Grand Empyrean Gemini fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée contenait l'essence même de l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
+Les yeux du Céleste Empereur se plissèrent alors qu'il fixait le Grand Empyrée Gemini fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée contenait l'essence même de l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
 
 « Si les yeux de l'Ancêtre Céleste ne s'étaient pas ouverts et si je n'avais pu le contrôler, j'aurais peut-être été mis en difficulté face à votre sort le plus puissant, le Sort de la Foi Lin Pourpre... Mais pour l'instant, ce n'est pas suffisant ! » Le Céleste Empereur était débordant de confiance.
 
 Mais à cet instant précis, une voix antique résonna dans le palais interdit.
 
-« Si ce vieil homme intervient, cela sera-t-il suffisant ?! » Tandis que la voix résonnait, le Grand Empyrean Jiu Di sortit de la déchirure dans le ciel. Derrière lui suivait l'Empyrean Exalt Hai Zi, au visage livide.
+« Si ce vieil homme intervient, cela sera-t-il suffisant ?! » Tandis que la voix résonnait, le Grand Empyrée Jiu Di sortit de la déchirure dans le ciel. Derrière lui suivait l'Exaltation Empyréenne Hai Zi, au visage livide.

@@ -12,17 +12,17 @@ Dès que l'empreinte dorée disparut, la lumière dorée s'éteignit de ce monde
 
 Wang Lin rangea l'empreinte et dit lentement : « Je ne te saluerai pas ! »
 
-Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il recula de quelques pas, prêt à partir. Durant la poursuite, Wang Lin l'avait choqué à maintes reprises. Finalement, cette empreinte dorée dégageant une aura de Grand Empereur l'avait poussé à abandonner toute idée de combat. Il ne voulait que partir le plus vite possible.
+Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il recula de quelques pas, prêt à partir. Durant la poursuite, Wang Lin l'avait choqué à maintes reprises. Finalement, cette empreinte dorée dégageant une aura de Grand Empyrée l'avait poussé à abandonner toute idée de combat. Il ne voulait que partir le plus vite possible.
 
 « Vicieux ! Simplement trop vicieux ! » Du Qing était profondément déprimé et recula de cent pieds. Il s'arrêta soudainement et regarda Wang Lin, toujours entouré par la boule de feu.
 
-« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empereur. Rencontrer quelqu'un de cette trempe est une chance inouïe ! Comment pourrais-je perdre mes moyens et partir ainsi ? Si je peux obtenir les conseils d'un Grand Empereur, mon niveau de cultivation augmentera sans aucun doute ! »
+« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empyrée. Rencontrer quelqu'un de cette trempe est une chance inouïe ! Comment pourrais-je perdre mes moyens et partir ainsi ? Si je peux obtenir les conseils d'un Grand Empyrée, mon niveau de cultivation augmentera sans aucun doute ! »
 
 « Si je le suis et que j'accède à ce passé, je n'aurai plus à me soucier du Grand Secte de l'Âme. Je n'aurai plus besoin de lui envoyer les précieux trésors que je trouverai ! » En y pensant, l'expression déprimée de Du Qing s'effaça pour laisser place à l'excitation.
 
-« Oui, c'est exact. C'est une opportunité dont d'innombrables cultivateurs rêvent. Si un autre secte du Continent Taureau Céleste apprenait qu'il possède un trésor offert par un Grand Empereur, ils deviendraient fous. Ils l'inviteraient immédiatement comme invité d'honneur et lui donneraient tout ce qu'il demanderait... »
+« Oui, c'est exact. C'est une opportunité dont d'innombrables cultivateurs rêvent. Si un autre secte du Continent Taureau Céleste apprenait qu'il possède un trésor offert par un Grand Empyrée, ils deviendraient fous. Ils l'inviteraient immédiatement comme invité d'honneur et lui donneraient tout ce qu'il demanderait... »
 
-« Les cieux ont des yeux, ma fortune est arrivée. Pour l'instant, je suis le seul à connaître son identité, et je ne dois laisser personne d'autre le savoir. Ce bénéfice m'est réservé à moi seul... Je ignore seulement quel Grand Empereur se cache derrière lui... Peu importe lequel ! » Le corps de Du Qing était fait de bois et n'avait pas de cœur, mais il eut l'impression d'entendre ses propres battements de cœur à cet instant.
+« Les cieux ont des yeux, ma fortune est arrivée. Pour l'instant, je suis le seul à connaître son identité, et je ne dois laisser personne d'autre le savoir. Ce bénéfice m'est réservé à moi seul... Je ignore seulement quel Grand Empyrée se cache derrière lui... Peu importe lequel ! » Le corps de Du Qing était fait de bois et n'avait pas de cœur, mais il eut l'impression d'entendre ses propres battements de cœur à cet instant.
 
 « Haha, une chance céleste, c'est une véritable bénédiction du ciel ! » Les yeux de Du Qing brillèrent alors qu'il fixait la boule de feu où se trouvait Wang Lin. Il prit une profonde inspiration et força un sourire.
 
@@ -44,7 +44,7 @@ Entendant l'accord de Wang Lin, Du Qing retrouva toute sa vigueur. Son expressio
 
 « Le Camarade Cultivateur Wang peut être serein, ce vieil homme risquera sa vie pour assurer votre sécurité ! » Tout en parlant, il fit un pas en avant, s'éleva à mille pieds dans les airs et prit place. Son Sens Divin se déploya pour envelopper la zone, tout en épargnant délibérément l'espace immédiat entourant Wang Lin, afin de ne pas le troubler.
 
-L'expression de Wang Lin resta neutre. Du Qing ne cachait pas ses intentions, et cela était parfaitement limpide pour lui. Tout cela était dû à l'empreinte dorée. Du Qing cherchait manifestement à se rapprocher du Grand Empereur qui avait doté Wang Lin de ce trésor.
+L'expression de Wang Lin resta neutre. Du Qing ne cachait pas ses intentions, et cela était parfaitement limpide pour lui. Tout cela était dû à l'empreinte dorée. Du Qing cherchait manifestement à se rapprocher du Grand Empyrée qui avait doté Wang Lin de ce trésor.
 
 « C'est une bonne chose aussi. Comme c'est ma première fois sur le Continent Astral Immortel, il y a beaucoup de choses que j'ignore. Il y a des secrets qu'une recherche d'âme ne peut révéler, j'ai donc besoin d'un homme comme lui à mes côtés... Et c'est lui qui m'a sollicité plutôt que moi de chercher son aide ; je garde ainsi l'initiative ! » Wang Lin ricana intérieurement et ferma les yeux, se dissimulant lentement au cœur de la boule de feu.
 
@@ -72,7 +72,7 @@ C'était comme si deux volontés de feu s'étaient manifestées sur le Continent
 
 La sensation était étrange. L'une de ces volontés appartenait à la veine de feu terrestre du continent, tandis que l'autre émanait de la boule de feu que Du Qing observait !
 
-Du Qing contempla la sphère et haleta : « Quelqu'un digne de recevoir un trésor d'un Grand Empereur... Son essence de feu peut même résister à la volonté du feu terrestre de ce lieu ! »
+Du Qing contempla la sphère et haleta : « Quelqu'un digne de recevoir un trésor d'un Grand Empyrée... Son essence de feu peut même résister à la volonté du feu terrestre de ce lieu ! »
 
 À cet instant précis, le grondement devint encore plus violent et la boule rétrécit brusquement, passant de soixante-dix à trente pieds ! Wang Lin sortit alors de cette sphère de trente pieds.
 

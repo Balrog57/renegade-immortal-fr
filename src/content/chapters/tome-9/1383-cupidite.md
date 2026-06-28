@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1383 - Greed
 slug: cupidite
 ---
-Quant à Greed, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de cultivation n'était pas si exceptionnel, se limitant au stade Nirvana Scryer.
+Quant à Greed, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de cultivation n'était pas si exceptionnel, se limitant au stade Scruteur du Nirvana.
 
 Cependant, cet homme avait fait des apparitions fracassantes à maintes reprises. Les pilules et les trésors qu'il dénichait avaient déclenché une vague après l'autre dans la Terre Déchue.
 
@@ -16,19 +16,19 @@ En particulier, cet homme excellait dans l'art de la fuite et possédait un sort
 
 Par conséquent, il ne faisait que rarement face au danger.
 
-Au fil du temps, pour une raison inconnue, le niveau de cultivation de Greed progressa de manière constante jusqu'à atteindre le stade Nirvana Cleanser. Ses sorts devinrent alors encore plus mystérieux.
+Au fil du temps, pour une raison inconnue, le niveau de cultivation de Greed progressa de manière constante jusqu'à atteindre le stade Purificateur du Nirvana. Ses sorts devinrent alors encore plus mystérieux.
 
 Il finit par attirer l'attention des puissants cultivateurs de certains clans. Mus par la cupidité, ces derniers se mirent à traquer Greed. Beaucoup pensaient qu'il mourrait sans aucun doute, mais Greed sortit alors contre toute attente une multitude de trésors qu'il n'avait jamais utilisés auparavant !
 
-Chaque trésor possédait une puissance capable de secouer les cieux. Les trois cultivateurs Nirvana Shatterer qui pourchassaient Greed furent blessés lorsqu'ils furent pris au dépourvu par lui. L'un d'eux fut même tué !
+Chaque trésor possédait une puissance capable de secouer les cieux. Les trois cultivateurs Briseur du Nirvana qui pourchassaient Greed furent blessés lorsqu'ils furent pris au dépourvu par lui. L'un d'eux fut même tué !
 
 Les deux autres s'enfuirent, gravement blessés !
 
-Cet événement provoqua une onde de choc immense dans la Terre Déchue ; c'était tout simplement incroyable. Un cultivateur Nirvana Cleanser n'avait pas péri sous la poursuite de trois cultivateurs Nirvana Shatterer, et avait même réussi à en tuer un !
+Cet événement provoqua une onde de choc immense dans la Terre Déchue ; c'était tout simplement incroyable. Un cultivateur Purificateur du Nirvana n'avait pas péri sous la poursuite de trois cultivateurs Briseur du Nirvana, et avait même réussi à en tuer un !
 
-Le nom de Greed se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Nirvana Shatterer était furieux. Bien que ce clan ne possédât pas de Grand Ancien Déchu, il restait très puissant. Afin d'éliminer Greed, le clan envoya un cultivateur Heaven's Blight de premier niveau !
+Le nom de Greed se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas de Grand Ancien Déchu, il restait très puissant. Afin d'éliminer Greed, le clan envoya un cultivateur Heaven's Blight de premier niveau !
 
-Qu'un cultivateur Heaven's Blight de premier niveau tue un cultivateur Nirvana Cleanser revenait à un tigre piétinant une fourmi ! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Greed était condamné, un autre miracle se produisit !
+Qu'un cultivateur Heaven's Blight de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi ! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Greed était condamné, un autre miracle se produisit !
 
 Greed sortit un trésor. De nombreuses rumeurs circulèrent plus tard à son sujet ; la plupart affirmaient qu'il s'agissait d'une statue brisée !
 
@@ -38,11 +38,11 @@ Cette force destructrice ébranla tous les cultivateurs Heaven's Blight de la Te
 
 Cependant, nul ne savait si Greed possédait des trésors encore plus redoutables. Après tout, il était le maître d'innombrables richesses.
 
-Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Nirvana Shatterer et Heaven's Blight ?
+Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Briseur du Nirvana et Heaven's Blight ?
 
 Après cette bataille, la renommée de Greed devint immense. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Greed saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa cultivation.
 
-Quelques années plus tard, lorsque Greed réapparut, il se trouvait au stade intermédiaire de Nirvana Shatterer ! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Heaven's Blight.
+Quelques années plus tard, lorsque Greed réapparut, il se trouvait au stade intermédiaire de Briseur du Nirvana ! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Heaven's Blight.
 
 En secret, un cultivateur Heaven's Blight de quatrième niveau convoita le trésor de Greed et tenta de l'attaquer par surprise. Mais il finit gravement blessé et fut contraint de battre en retraite. Désormais, plus personne n'osait comploter contre lui !
 

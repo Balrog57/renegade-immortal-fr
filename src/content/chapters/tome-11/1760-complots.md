@@ -60,7 +60,7 @@ Grâce à sa cultivation pour stabiliser la barrière, l'effet fut notable. Cepe
 
 « Cet enfant est rusé. S'il découvre que j'ai déjà percé son plan, il pourrait changer de tactique et causer des ennuis inutiles. Je vais le laisser croire que sa méthode fonctionne, puis je le capturerai une fois qu'il se croira victorieux ! » Le Daoïste aux Sept Couleurs sourit et poursuivit sa traque avec désinvolture.
 
-Pendant que les deux hommes s'élançaient, le Grand Empereur Xuan Luo observait la scène. Il songea à aider Wang Lin à résoudre ce problème, mais cette idée ne fit que l'effleurer avant de disparaître.
+Pendant que les deux hommes s'élançaient, le Grand Empyrée Xuan Luo observait la scène. Il songea à aider Wang Lin à résoudre ce problème, mais cette idée ne fit que l'effleurer avant de disparaître.
 
 « Cet enfant doit compter sur lui-même pour passer cette épreuve. S'il parvient à remarquer ma présence, je l'aiderai. C'est mon ultime test pour lui ! »
 
@@ -82,7 +82,7 @@ Il se déplaça très rapidement, vola à plus de cent mille pieds, puis se recr
 
 Au moment même où il se transformait en planète, une lumière aux sept couleurs envahit le vortex dont il venait de sortir. Le Daoïste aux Sept Couleurs n'hésita pas et replongea immédiatement dans le vortex.
 
-Le Grand Empereur Xuan Luo vit tout cela, ses pupilles se contractant sous le choc. Il observa intensément la planète que Wang Lin avait simulée, une lueur d'étonnement dans les yeux.
+Le Grand Empyrée Xuan Luo vit tout cela, ses pupilles se contractant sous le choc. Il observa intensément la planète que Wang Lin avait simulée, une lueur d'étonnement dans les yeux.
 
 « Quel esprit machiavélique... Cet enfant... est un dragon parmi les hommes ! » Xuan Luo songea en silence, et son regard trahissait une admiration qu'il n'avait jamais manifestée auparavant.
 

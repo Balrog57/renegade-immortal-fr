@@ -54,7 +54,7 @@ Les sons de la glace qui se brise résonnèrent à travers le Royaume aux Sept C
 
 Même le petit doigt ne fit que tressaillir, malgré les assauts répétés des dragons noirs et de l'effondrement de la glace.
 
-Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé l'effondrement de la glace, il ne s'arrêta pas. Il agita sa main gauche, ouvrit la bouche, et le Sceau Céleste s'envola. Une multitude d'âmes de bataille apparurent, bien que l'âme de l'All-Seer soit absente. Les autres suivirent Maître Void et chargèrent le petit doigt en poussant des cris lugubres.
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé l'effondrement de la glace, il ne s'arrêta pas. Il agita sa main gauche, ouvrit la bouche, et le Sceau Céleste s'envola. Une multitude d'âmes de bataille apparurent, bien que l'âme de le Tout-Voyant soit absente. Les autres suivirent Maître Void et chargèrent le petit doigt en poussant des cris lugubres.
 
 Wang Lin se donnait corps et âme. Après avoir déployé son Arsenal Magique, sa main gauche traça un sceau tandis qu'il pointait le sol et hurlait :
 
@@ -62,7 +62,7 @@ Wang Lin se donnait corps et âme. Après avoir déployé son Arsenal Magique, s
 
 La terre entière trembla alors que cinq volcans majestueux surgirent devant lui, leurs entrailles bouillonnantes de feu. Bien qu'ils ne fussent que des illusions, les montagnes continuaient de s'écrouler !
 
-Simultanément, d'innombrables filaments d'énergie de massacre jaillirent de son corps. C'était toute l'énergie de massacre absorbée de l'All-Seer aux robes grises. Cette énergie se condensa en une épée rouge et fonça vers le petit doigt qui s'approchait, rejoignant tous ses autres sortilèges.
+Simultanément, d'innombrables filaments d'énergie de massacre jaillirent de son corps. C'était toute l'énergie de massacre absorbée de le Tout-Voyant aux robes grises. Cette énergie se condensa en une épée rouge et fonça vers le petit doigt qui s'approchait, rejoignant tous ses autres sortilèges.
 
 Tout cela se produisit en un éclair, au moment même où les cinq doigts se refermaient.
 

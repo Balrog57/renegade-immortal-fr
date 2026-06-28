@@ -14,57 +14,57 @@ Ses yeux étaient semblables à des étoiles, dégageant une profondeur insondab
 
 Cette montagne n'était pas haute et était densément boisée. Le vent faisait bruisser les feuilles, créant une mélodie merveilleuse.
 
-Wang Lin paraissait calme au sommet de la montagne. Il ne ressentait ni fierté pour avoir franchi le 17e palais, ni arrogance face à l'imminente venue des Grands Empereurs pour le recruter. Tout comme dans le monde des grottes, il contemplait silencieusement le ciel.
+Wang Lin paraissait calme au sommet de la montagne. Il ne ressentait ni fierté pour avoir franchi le 17e palais, ni arrogance face à l'imminente venue des Grands Empyrées pour le recruter. Tout comme dans le monde des grottes, il contemplait silencieusement le ciel.
 
 Après un temps indéterminé, alors que le soleil se couchait, Wang Lin resta immobile et le ciel changea soudainement. Les nuages blancs furent enveloppés par l'obscurité, puis le soleil surgit dans le firmament sombre !
 
 L'astre apparut de nulle part, émettant une lumière si éblouissante que la terre sembla redevenir jour. Une chaleur infinie émanait du soleil, comme si Wang Lin était extrêmement proche de lui, et une silhouette sortit lentement de l'astre.
 
-Une robe de taoïste et une chevelure noire. Cet homme ressemblait à un jeune homme plutôt beau. Le Grand Empereur Dao Yi fut le premier à apparaître devant Wang Lin !
+Une robe de taoïste et une chevelure noire. Cet homme ressemblait à un jeune homme plutôt beau. Le Grand Empyrée Dao Yi fut le premier à apparaître devant Wang Lin !
 
 Dès l'apparition de Dao Yi, tout se figea. Le vent s'arrêta, les arbres cessèrent de bouger, tout se figea. Même les vêtements de Wang Lin semblèrent immobiles.
 
 C'était comme si ce monde avait été pétrifié par une force invisible !
 
-Seul le Grand Empereur Dao Yi pouvait encore bouger alors qu'il sortait du soleil. Il flotta dans l'air à cent pieds de Wang Lin et le surplomba du regard.
+Seul le Grand Empyrée Dao Yi pouvait encore bouger alors qu'il sortait du soleil. Il flotta dans l'air à cent pieds de Wang Lin et le surplomba du regard.
 
-Alors qu'il observait Wang Lin, le vide autour de ce dernier craquela. Ce son soudain fit briller les yeux du Grand Empereur Dao Yi.
+Alors qu'il observait Wang Lin, le vide autour de ce dernier craquela. Ce son soudain fit briller les yeux du Grand Empyrée Dao Yi.
 
 D'innombrables fissures apparurent dans le vide entourant Wang Lin, donnant l'impression que celui-ci était figé dans une glace en train de se briser.
 
-Quelques instants plus tard, les vêtements gelés de Wang Lin se mirent à bouger malgré l'absence de vent. Il leva la tête et fixa le Grand Empereur Dao Yi !
+Quelques instants plus tard, les vêtements gelés de Wang Lin se mirent à bouger malgré l'absence de vent. Il leva la tête et fixa le Grand Empyrée Dao Yi !
 
-Cette scène fit jaillir une lueur dorée dans les yeux du Grand Empereur Dao Yi. Il ne s'attendait pas à ce que Wang Lin se remette si rapidement de sa pression, une force capable de tout geler dans ce monde.
+Cette scène fit jaillir une lueur dorée dans les yeux du Grand Empyrée Dao Yi. Il ne s'attendait pas à ce que Wang Lin se remette si rapidement de sa pression, une force capable de tout geler dans ce monde.
 
 Il faut dire qu'il était présent avec son corps véritable. Ce n'était ni un sens divin ni un avatar, mais son corps originel !
 
-« En effet digne d'être l'Ascendant Empereur numéro un ayant franchi le 17e palais ! Être capable de se rétablir sous ma pression est suffisant pour que tu sois qualifié de plus fort parmi les Grands Empereurs ! »
+« En effet digne d'être l'Ascendant Empereur numéro un ayant franchi le 17e palais ! Être capable de se rétablir sous ma pression est suffisant pour que tu sois qualifié de plus fort parmi les Grands Empyrées ! »
 
-« Wang Lin, suis ce seigneur. Ce seigneur t'a promis jadis que si je ne mourrais pas, tu ne mourrais pas ! » Le Grand Empereur Dao Yi sourit. Il semblait avoir oublié qu'il avait renoncé à recruter Wang Lin lors de l'Essai des Empereurs.
+« Wang Lin, suis ce seigneur. Ce seigneur t'a promis jadis que si je ne mourrais pas, tu ne mourrais pas ! » Le Grand Empyrée Dao Yi sourit. Il semblait avoir oublié qu'il avait renoncé à recruter Wang Lin lors de l'Essai des Empereurs.
 
-Wang Lin réfléchit silencieusement, puis joignit les mains en signe de respect devant le Grand Empereur Dao Yi.
+Wang Lin réfléchit silencieusement, puis joignit les mains en signe de respect devant le Grand Empyrée Dao Yi.
 
-Le Grand Empereur Dao Yi fronça légèrement les sourcils avant de se détendre. Il regarda Wang Lin et prit la parole. Sa voix n'était pas forte et ne résonnait pas, mais chaque mot semblait imprégné de Loi et faisait trembler le monde.
+Le Grand Empyrée Dao Yi fronça légèrement les sourcils avant de se détendre. Il regarda Wang Lin et prit la parole. Sa voix n'était pas forte et ne résonnait pas, mais chaque mot semblait imprégné de Loi et faisait trembler le monde.
 
-« Ceci est un trésor que ce seigneur a personnellement affiné ! » dit le Grand Empereur Dao Yi en levant sa main droite. Un anneau apparut sur son index, puis s'envola dans les airs pour former un halo d'environ trente pieds de large.
+« Ceci est un trésor que ce seigneur a personnellement affiné ! » dit le Grand Empyrée Dao Yi en levant sa main droite. Un anneau apparut sur son index, puis s'envola dans les airs pour former un halo d'environ trente pieds de large.
 
 « J'ai utilisé des matériaux du Royaume Divin Immémorial pour créer cet anneau, et il m'a fallu cent mille ans pour l'affiner. Son apparence imite un trésor de l'Ancêtre Céleste. Même pour moi, il faudrait un effort colossal pour le briser ! »
 
-Wang Lin observa le halo de trente pieds, les yeux brillants. Cet anneau était extraordinaire ; Wang Lin ne parvenait pas à en percer les secrets. C'était comme s'il n'appartenait pas à ce monde ou qu'il s'agissait d'une illusion. La pression qu'il dégageait donnait à Wang Lin l'impression irréelle de faire face à un Grand Empereur.
+Wang Lin observa le halo de trente pieds, les yeux brillants. Cet anneau était extraordinaire ; Wang Lin ne parvenait pas à en percer les secrets. C'était comme s'il n'appartenait pas à ce monde ou qu'il s'agissait d'une illusion. La pression qu'il dégageait donnait à Wang Lin l'impression irréelle de faire face à un Grand Empyrée.
 
-Remarquant la lueur dans les yeux de Wang Lin, le Grand Empereur Dao Yi agita sa main gauche. Un morceau de bambou vert apparut dans sa paume. La couleur du bambou était éclatante et il dégageait un parfum suave.
+Remarquant la lueur dans les yeux de Wang Lin, le Grand Empyrée Dao Yi agita sa main gauche. Un morceau de bambou vert apparut dans sa paume. La couleur du bambou était éclatante et il dégageait un parfum suave.
 
-« Ce morceau de bambou est un trésor céleste. Une fois fusionné avec ton corps, tes essences évolueront ; il contient également le Dao de ce seigneur ! Si tu parviens à le comprendre, même si tu ne deviens pas un Grand Empereur, tu en seras infiniment proche ! »
+« Ce morceau de bambou est un trésor céleste. Une fois fusionné avec ton corps, tes essences évolueront ; il contient également le Dao de ce seigneur ! Si tu parviens à le comprendre, même si tu ne deviens pas un Grand Empyrée, tu en seras infiniment proche ! »
 
 Dès l'apparition du bambou vert, le regard de Wang Lin se fit sérieux. Rien qu'en humant son parfum, les essences dans son corps semblaient se renforcer. Cet objet paraissait plus bénéfique pour les essences que n'importe quoi d'autre.
 
 Si Wang Lin pouvait fusionner avec lui, cela lui profiterait immensément !
 
-Le Grand Empereur Dao Yi observait attentivement Wang Lin et sourit. Il savait que cet homme était attiré par les trésors exotiques. Ces objets exerçaient une forte attraction sur lui ; il était donc venu avec l'intention de le séduire par des richesses !
+Le Grand Empyrée Dao Yi observait attentivement Wang Lin et sourit. Il savait que cet homme était attiré par les trésors exotiques. Ces objets exerçaient une forte attraction sur lui ; il était donc venu avec l'intention de le séduire par des richesses !
 
-De plus, ces deux trésors ne lui coûtaient rien, et ce serait extrêmement rentable de les offrir pour recruter Wang Lin. Cependant, il savait que Wang Lin n'était pas un cultivateur ordinaire et qu'il n'était pas le seul Grand Empereur venu pour lui. S'il ne présentait pas de véritables trésors, il risquait d'être supplanté par ses pairs une fois arrivés.
+De plus, ces deux trésors ne lui coûtaient rien, et ce serait extrêmement rentable de les offrir pour recruter Wang Lin. Cependant, il savait que Wang Lin n'était pas un cultivateur ordinaire et qu'il n'était pas le seul Grand Empyrée venu pour lui. S'il ne présentait pas de véritables trésors, il risquait d'être supplanté par ses pairs une fois arrivés.
 
-« En plus de ces deux trésors, il y en a un autre ! » En prononçant ces mots, le Grand Empereur Dao Yi sentit son propre cœur se serrer. On pouvait dire qu'il s'agissait là d'un véritable trésor, que lui-même n'avait pas encore totalement compris.
+« En plus de ces deux trésors, il y en a un autre ! » En prononçant ces mots, le Grand Empyrée Dao Yi sentit son propre cœur se serrer. On pouvait dire qu'il s'agissait là d'un véritable trésor, que lui-même n'avait pas encore totalement compris.
 
 D'un revers de manche, un vortex géant apparut devant lui et un crâne de la taille d'un poing en sortit lentement. Le crâne était entouré d'une couche de lumière et, dès son apparition, une quantité terrifiante d'aura de mort se répandit.
 
@@ -74,21 +74,21 @@ Ce crâne ne ressemblait pas à celui d'un adulte, mais à celui d'un nourrisson
 
 « Cela ne provient pas du Royaume Divin Immémorial. Il y a très longtemps, lorsque j'ai quitté le Continent Astral Immortel, je l'ai trouvé sur un continent en ruines.
 
-« Au moment où je m'en suis emparé, le continent a disparu... Cet objet contient une trace de pouvoir que je ne saisis pas, mais j'ai le vague sentiment que si je parviens à absorber cette puissance, je pourrais peut-être briser les limites des Grands Empereurs pour devenir une existence comparable à l'Ancêtre Céleste...
+« Au moment où je m'en suis emparé, le continent a disparu... Cet objet contient une trace de pouvoir que je ne saisis pas, mais j'ai le vague sentiment que si je parviens à absorber cette puissance, je pourrais peut-être briser les limites des Grands Empyrées pour devenir une existence comparable à l'Ancêtre Céleste...
 
-« Peut-être n'étais-je destiné qu'à le rencontrer sans pouvoir le comprendre. Il est resté entre mes mains pendant une éternité... Si tu me suis, je te le donnerai ! » Le Grand Empereur Dao Yi afficha un regard résolu. Il était véritablement prêt à payer un prix certain pour recruter Wang Lin.
+« Peut-être n'étais-je destiné qu'à le rencontrer sans pouvoir le comprendre. Il est resté entre mes mains pendant une éternité... Si tu me suis, je te le donnerai ! » Le Grand Empyrée Dao Yi afficha un regard résolu. Il était véritablement prêt à payer un prix certain pour recruter Wang Lin.
 
 Wang Lin fixa le crâne de bébé. Il ne parvenait pas à en percer les mystères, mais l'objet suscitait une sensation indescriptible. Il lui procurait un sentiment de familiarité. Il avait l'impression que son âme l'avait oublié, sans pouvoir se rappeler quand il l'avait vu pour la dernière fois.
 
 Wang Lin hésita longuement avant de parler.
 
-« Merci infiniment, Grand Empereur Dao Yi, mais permettez-moi de réfléchir à cette proposition ! »
+« Merci infiniment, Grand Empyrée Dao Yi, mais permettez-moi de réfléchir à cette proposition ! »
 
-Le sourcil du Grand Empereur Dao Yi se fronça alors qu'il regardait Wang Lin, puis il hocha lentement la tête.
+Le sourcil du Grand Empyrée Dao Yi se fronça alors qu'il regardait Wang Lin, puis il hocha lentement la tête.
 
-« Très bien. Avec ta force, d'autres Grands Empereurs doivent chercher à te recruter en plus de moi. Il est normal de prendre le temps de la réflexion. »
+« Très bien. Avec ta force, d'autres Grands Empyrées doivent chercher à te recruter en plus de moi. Il est normal de prendre le temps de la réflexion. »
 
-Alors que le Grand Empereur Dao Yi parlait, un rugissement retentit hors du monde enveloppé par l'aura de mort. Ce rugissement était semblable au tonnerre et l'aura funeste environnante commença à bouillonner.
+Alors que le Grand Empyrée Dao Yi parlait, un rugissement retentit hors du monde enveloppé par l'aura de mort. Ce rugissement était semblable au tonnerre et l'aura funeste environnante commença à bouillonner.
 
 Des ondulations résonnèrent dans le ciel et une personne en sortit !
 
@@ -98,24 +98,24 @@ Après sept pas, le monde sembla s'effondrer et tout recula. L'aura de mort fut 
 
 Après sept pas, il se tint aux côtés de Wang Lin. Contrairement à Dao Yi qui flottait dans les airs, cet homme corpulent se tenait sur le sommet de la montagne, tout comme Wang Lin.
 
-« Salutations, Grand Empereur Wu Feng. Merci, Grand Empereur Wu Feng, pour votre aide lors de l'Essai des Empereurs, je m'en souviendrai. » Wang Lin joignit les mains devant l'homme chauve.
+« Salutations, Grand Empyrée Wu Feng. Merci, Grand Empyrée Wu Feng, pour votre aide lors de l'Essai des Empereurs, je m'en souviendrai. » Wang Lin joignit les mains devant l'homme chauve.
 
-Le Grand Empereur Wu Feng éclata de rire. Sa voix était comme le tonnerre et fit trembler le ciel.
+Le Grand Empyrée Wu Feng éclata de rire. Sa voix était comme le tonnerre et fit trembler le ciel.
 
 « Ce n'est rien. Je n'aimais déjà pas ce Céleste Empereur, je ne faisais que dire ce que je pensais. » C'était là une autre différence entre lui et Dao Yi. Tandis que Dao Yi se référait toujours à lui-même avec solennité, Wu Feng paraissait beaucoup plus décontracté.
 
-« Tu as sûrement deviné la raison de ma venue. Ne parlons pas de conditions ; j'ai ici une excellente cruche de vin que je ne partage normalement avec personne. Veux-tu boire un coup ? » Le Grand Empereur Wu Feng agita la main droite et une gourde verte apparut dans sa paume alors qu'il souriait à Wang Lin.
+« Tu as sûrement deviné la raison de ma venue. Ne parlons pas de conditions ; j'ai ici une excellente cruche de vin que je ne partage normalement avec personne. Veux-tu boire un coup ? » Le Grand Empyrée Wu Feng agita la main droite et une gourde verte apparut dans sa paume alors qu'il souriait à Wang Lin.
 
 Wang Lin sourit et tendit la main vers le vide. La gourde vola vers lui et il en but une grande gorgée.
 
 « Bien. Que tu finisses par te mettre sous mes ordres ou non, tu pourras venir au glacier nord quand tu le voudras ! » Wu Feng regarda Wang Lin avec un sourire, puis leva la tête vers Dao Yi.
 
-« Dao Yi, si plus d'un Grand Empereur souhaite recruter un Empereur Ascendant, selon l'accord, tu n'as qu'une seule occasion de présenter tes conditions. As-tu terminé ? » En parlant, il observa les trois trésors. Il ignora la bague et le bambou vert — son regard se fit plus étroit sur le crâne.
+« Dao Yi, si plus d'un Grand Empyrée souhaite recruter un Empyrée Ascendant, selon l'accord, tu n'as qu'une seule occasion de présenter tes conditions. As-tu terminé ? » En parlant, il observa les trois trésors. Il ignora la bague et le bambou vert — son regard se fit plus étroit sur le crâne.
 
 « C'est tout ? Si c'est là tout ce que tu comptes proposer, alors je vais faire ma propre offre. »
 
 Alors qu'il parlait, Wu Feng fixa Dao Yi.
 
-En entendant cela, le cœur de Wang Lin tressaillit. Il était rare que plusieurs Grands Empereurs s'intéressent à une seule personne ; le fait que Wu Feng le souligne face à Dao Yi signifiait qu'il avait ses propres intentions.
+En entendant cela, le cœur de Wang Lin tressaillit. Il était rare que plusieurs Grands Empyrées s'intéressent à une seule personne ; le fait que Wu Feng le souligne face à Dao Yi signifiait qu'il avait ses propres intentions.
 
 « Va-t-il m'aider... » Wang Lin regarda Wu Feng.

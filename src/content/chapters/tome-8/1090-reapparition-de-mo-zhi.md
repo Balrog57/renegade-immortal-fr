@@ -76,11 +76,11 @@ Dans la pièce secrète du Secte Chu Yun siégeait un vieil homme à l'apparence
 
 « Un vieil ami ? » Mo Zhi avait très peu d'amis, mais il ne posa pas de question supplémentaire et se retira.
 
-À cet instant, au sein des Quatre Sectes Divins, des rayons de lumière fonçaient vers le Secte Divin du Vermillion Bird. Les flammes y rugissaient et les acclamations criant « Empereur Divin » atteignaient leur paroxysme.
+À cet instant, au sein des Quatre Sectes Divins, des rayons de lumière fonçaient vers le Secte Divine du Vermillion Bird. Les flammes y rugissaient et les acclamations criant « Empereur Divin » atteignaient leur paroxysme.
 
 Wang Lin prit une profonde inspiration en contemplant le ciel étoilé embrasé par le feu et le tonnerre.
 
-Non loin de lui, l'Empereur Divin du Vermillion Bird était transporté par l'excitation et éclata de rire : « Bien ! Mon Secte Divin du Vermillion Bird a un nouvel Empereur Divin. Je peux enfin partir en souriant ! »
+Non loin de lui, l'Empereur Divin du Vermillion Bird était transporté par l'excitation et éclata de rire : « Bien ! Mon Secte Divine du Vermillion Bird a un nouvel Empereur Divin. Je peux enfin partir en souriant ! »
 
 Il leva sa main droite vers le vide. Une fissure apparut devant lui et trois rayons de lumière s'en échappèrent !
 
@@ -100,7 +100,7 @@ Wang Lin ressentit clairement un sentiment d'ancienneté émanant de cette cape,
 
 Wang Lin le saisit, et la lumière se transforma en un sceau en forme de flamme. Il n'avait que la taille de sa paume, mais en le tenant, Wang Lin pouvait ressentir la puissante énergie de feu qu'il contenait ainsi qu'une aura ancestrale.
 
-« La troisième chose est l'objet le plus important de mon Secte Divin du Vermillion Bird : le Trésor Saint ! » Le troisième rayon de lumière tomba dans la main de Wang Lin et se changea en une pierre blanche. En observant attentivement le Trésor Saint du Vermillion Bird, Wang Lin vit immédiatement d'innombrables runes scintiller sans cesse sur la pierre.
+« La troisième chose est l'objet le plus important de mon Secte Divine du Vermillion Bird : le Trésor Saint ! » Le troisième rayon de lumière tomba dans la main de Wang Lin et se changea en une pierre blanche. En observant attentivement le Trésor Saint du Vermillion Bird, Wang Lin vit immédiatement d'innombrables runes scintiller sans cesse sur la pierre.
 
 À chaque éclat des runes, la chaleur de la pierre augmentait. On aurait dit que ces runes n'avaient cessé de briller depuis des éons. Le regard de Wang Lin devint sérieux.
 

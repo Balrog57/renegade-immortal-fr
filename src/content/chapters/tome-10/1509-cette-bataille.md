@@ -68,7 +68,7 @@ L'homme en rouge écoutait attentivement Maître Lu Fu. Bien qu'il restât calme
 
 « Quel magnifique Domaine aux Sept Couleurs ! Quel grand Souverain ! ! »
 
-Cependant, à cet instant précis, tout le monde dans la vallée entendit le message de Sens Divin du Secte Divin qui se propageait dans tout le Royaume Intérieur !
+Cependant, à cet instant précis, tout le monde dans la vallée entendit le message de Sens Divin du Secte Divine qui se propageait dans tout le Royaume Intérieur !
 
 « Impossible ! »
 
@@ -82,21 +82,21 @@ La froideur dans les yeux de l'homme en rouge s'intensifia et il esquissa un sou
 
 « Puisque ce petit gars est parti de lui-même, voyons quel est le jugement du Seigneur du Royaume Scellé... Après tout, ce sont leurs propres affaires internes ! »
 
-Dans la région de rang 7 de la Mer des Nuages, les branches du Secte Divin chargèrent vers le Secte Origine qui vivait en paix depuis des centaines d'années ! Le Secte Origine ne put opposer aucune résistance et ses membres furent rapidement capturés. Ils furent aussitôt transférés vers le Secte Divin de rang 9.
+Dans la région de rang 7 de la Mer des Nuages, les branches du Secte Divine chargèrent vers le Secte Origine qui vivait en paix depuis des centaines d'années ! Le Secte Origine ne put opposer aucune résistance et ses membres furent rapidement capturés. Ils furent aussitôt transférés vers le Secte Divine de rang 9.
 
-Le Secte Divin n'avait qu'à donner un seul ordre pour que ces disciples massacrent tout le monde au sein du Secte Origine !
+Le Secte Divine n'avait qu'à donner un seul ordre pour que ces disciples massacrent tout le monde au sein du Secte Origine !
 
 Lu Yanfei faisait partie des captifs, mais elle restait silencieuse et très calme. Elle avait anticipé depuis longtemps que ce jour pourrait arriver, et elle ne ressentait aucun regret. Non seulement elle, mais tous les membres du Secte Origine ressentaient la même chose !
 
 Sans Lu Zihao ou sans Wang Lin, le Secte Origine n'existerait pas aujourd'hui !
 
-Au sein du Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla son secte avec une expression complexe. Puis il se calma progressivement et s'envola vers le Secte Divin.
+Au sein du Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla son secte avec une expression complexe. Puis il se calma progressivement et s'envola vers le Secte Divine.
 
-À l'intérieur du Secte Divin, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa cultivation il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun !
+À l'intérieur du Secte Divine, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa cultivation il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun !
 
 Mu Bingmei tenait toujours ses promesses. Elle contempla la pilule pendant un long, très long moment...
 
-Sous les ordres de Daoïste Eau, les disciples du Secte Divin se rassemblèrent rapidement. Tous les réseaux de transfert furent ouverts pour leur permettre de regagner le secteur en peu de temps. Plus de 10 000 disciples s'étaient réunis !
+Sous les ordres de Daoïste Eau, les disciples du Secte Divine se rassemblèrent rapidement. Tous les réseaux de transfert furent ouverts pour leur permettre de regagner le secteur en peu de temps. Plus de 10 000 disciples s'étaient réunis !
 
 Ces 10 000 disciples formèrent la Formation de Destruction des Neuf Cieux, initialement préparée pour la bataille contre le Royaume Extérieur !
 
@@ -126,7 +126,7 @@ Si quelqu'un osait défier ce principe, alors il tuerait ! Tuer ! Tuer !
 
 En traversant la Mer des Nuages, le givre continua de s'étendre jusqu'à atteindre 50 000, puis 100 000 pieds de large !
 
-La glace était partout, pétrifiant le système stellaire. Wang Lin chargea vers les profondeurs de la Mer des Nuages, là où se trouvait le Secte Divin de rang 9 !
+La glace était partout, pétrifiant le système stellaire. Wang Lin chargea vers les profondeurs de la Mer des Nuages, là où se trouvait le Secte Divine de rang 9 !
 
 En pleine charge, l'intention de tuer de Wang Lin subit un étrange changement. Cette mutation se produisit inconsciemment, sans que personne ne puisse comprendre comment. Ce changement fit apparaître une parcelle d'essence au cœur même de son intention de tuer ! !
 
@@ -134,7 +134,7 @@ L'Essence de Massacre ! ! Tout dans ce monde pouvait devenir essence, mais l'Es
 
 À mesure qu'il avançait, Wang Lin accélérait. Des craquements résonnaient alors qu'il gelait tout sur son passage pour pénétrer dans les profondeurs de la Mer des Nuages. La région de rang 9 !
 
-D'un seul pas, tout le brouillard de la région de rang 9 gronda et se changea en glace. Le corps de Wang Lin apparut devant le Secte Divin ! !
+D'un seul pas, tout le brouillard de la région de rang 9 gronda et se changea en glace. Le corps de Wang Lin apparut devant le Secte Divine ! !
 
 « Daoïste Eau ! » Sa voix glaciale fit trembler les cieux et se propagea dans la Mer des Nuages comme un coup de tonnerre !
 

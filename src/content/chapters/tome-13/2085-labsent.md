@@ -8,7 +8,7 @@ slug: labsent
 ---
 Quel était donc le Royaume Divin Immemorial ?
 
-C'était la question que presque tous les cultivateurs du Continent Astral Immortel se posaient. Même les Grands Empereurs ignoraient quelle était la nature de l'existence du Royaume Divin Immemorial ou d'où il provenait.
+C'était la question que presque tous les cultivateurs du Continent Astral Immortel se posaient. Même les Grands Empyrées ignoraient quelle était la nature de l'existence du Royaume Divin Immemorial ou d'où il provenait.
 
 Bien que de nombreuses personnes aient pénétré dans le Royaume Divin Immemorial, nul n'avait pu déterminer la nature exacte de ce lieu.
 

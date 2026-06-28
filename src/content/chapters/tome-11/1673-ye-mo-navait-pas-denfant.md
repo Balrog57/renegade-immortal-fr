@@ -84,7 +84,7 @@ Une force colossale émana de son pied. Au moment critique, alors que Wang Lin l
 
 Le corps de Wang Lin trembla et du sang jaillit de sa bouche alors qu'il était projeté en arrière sur des dizaines de milliers de pieds. Ses poings vibraient encore ; bien qu'il n'ait utilisé aucun sort de Dieu Ancestral, c'était là la force physique la plus pure qu'il pouvait déployer avec son héritage d'Ancien !
 
-Les cultivateurs du Nirvana Void s'effondreraient devant une telle puissance, et même les cultivateurs du Spirit Void ne pourraient y résister. Même les cultivateurs de l'Arcane Void devraient utiliser un sort puissant pour parer un tel coup.
+Les cultivateurs du Nirvana Void s'effondreraient devant une telle puissance, et même les cultivateurs du Spirit Void ne pourraient y résister. Même les cultivateurs de l'Vide Arcanique devraient utiliser un sort puissant pour parer un tel coup.
 
 La marque de guerre du clan ancestral était une lutte acharnée pour la survie !
 

@@ -120,7 +120,7 @@ Wang Lin aperçut immédiatement les deux individus à l'intérieur. Ses yeux se
 
 En voyant Wang Lin, l'homme en noir esquissa un sourire étrange. C'est la belle femme qui eut une expression troublée. Lorsque son regard balaya Wang Lin, elle fut frappée de stupeur.
 
-« Sa cultivation est encore plus étrange ! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Nettoyage du Nirvana, sa cultivation ne semblait être qu'au début du stade de l'Observateur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet de l'Observateur du Nirvana ! Cache-t-il son véritable niveau ou vient-il de réaliser une percée ? »
+« Sa cultivation est encore plus étrange ! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Purificateur du Nirvana, sa cultivation ne semblait être qu'au début du stade de l'Observateur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet de l'Observateur du Nirvana ! Cache-t-il son véritable niveau ou vient-il de réaliser une percée ? »
 
 Wang Lin les observa attentivement. Il avait manifestement percé le secret du pavillon. En réalité, la carte indiquait bien la présence d'un réseau de transfert vers un espace de stockage à l'intérieur de ce pavillon. Même sans la carte, Wang Lin pouvait en voir l'existence.
 

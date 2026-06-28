@@ -94,13 +94,13 @@ L'Ancêtre Céleste !
 
 L'Ancêtre Céleste avait disparu dans le vide il y a des éons. C'était la première fois depuis lors que son ombre se manifestait de nouveau. Cela déclencha une onde de choc immense parmi la race céleste.
 
-Tous les Grands Empereurs de la race céleste apparurent et s'inclinèrent vers le ciel !
+Tous les Grands Empyrées de la race céleste apparurent et s'inclinèrent vers le ciel !
 
 Au même moment, dans les 36 États du pays antique, un vortex colossal apparut également. Ce vortex était noir et s'étendait sur les 36 États comme pour défier les Célestes !
 
 Une aura terrifiante et tyrannique jaillit de ce vortex, forçant tous les habitants des pays antiques à se prosterner au sol dans une exaltation mêlée de crainte.
 
-Simultanément, Xuan Luo et les deux autres survivants des quatre anciens Grands Empereurs surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
+Simultanément, Xuan Luo et les deux autres survivants des quatre anciens Grands Empyrées surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
 
 Il n'y avait pas d'ombre comme celle de l'Ancêtre Céleste, mais une paire d'yeux. Des yeux argentés qui fixaient l'Ancêtre Céleste, libérant une lumière argentée monstrueuse !
 

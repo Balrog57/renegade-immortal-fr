@@ -1,4 +1,4 @@
----
+﻿---
 n: 1176
 title: "Ne serait-il pas mieux de s'oublier l'un l'autre ?"
 book: 9
@@ -22,7 +22,7 @@ En chemin, tous les cultivateurs qui l'aperçurent lui adressèrent respectueuse
 
 Peu de temps après, Wang Lin atteignit la ville principale. Les cultivateurs du Sect du Jade Précieux pouvaient arrêter quiconque ne possédant pas de jade d'invitation. Cependant, en voyant Wang Lin, leurs esprits tremblèrent et ils s'écartèrent aussitôt, n'osant même pas vérifier s'il détenait une invitation ou non.
 
-Une centaine de cultivateurs étaient dispersés sur la place. La plupart étaient au niveau Nirvana Scryer ou Nirvana Cleanser ; il y avait peu de vieux monstres de niveau Nirvana Shatterer.
+Une centaine de cultivateurs étaient dispersés sur la place. La plupart étaient au niveau Scruteur du Nirvana ou Purificateur du Nirvana ; il y avait peu de vieux monstres de niveau Briseur du Nirvana.
 
 L'arrivée de Wang Lin attira immédiatement l'attention de l'assemblée. Tous lui firent une salutation, et certains s'approchèrent même pour engager la conversation. Wang Lin les recevait avec calme tout en parcourant la foule du regard, jusqu'à ce qu'il aperçoive Li Qianmei au loin.
 
@@ -38,7 +38,7 @@ Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune h
 
 Il avait ensuite rapporté ses observations au Maître de la Secte. Après une longue réflexion, celui-ci avait envoyé un ordre : aucun disciple de la secte ne devait offenser cet homme sur Peng Lai.
 
-« Qu'il appartienne ou non au Secte Divin n'a aucune importance pour mon Sect du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta : « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
+« Qu'il appartienne ou non au Secte Divine n'a aucune importance pour mon Sect du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta : « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
 Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit : « Très bien. J'ai justement deux trésors que je souhaite enchérir. »
 
@@ -56,7 +56,7 @@ Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'
 
 Comme la plupart de ces cultivateurs avaient déjà participé à ces enchères, ils n'en furent pas surpris. Ils se dispersèrent et s'installèrent sur les différentes tablettes selon leur niveau de cultivation et leur statut.
 
-Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position ; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Nirvana Shatterer, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
+Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position ; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Briseur du Nirvana, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
 
 Une fois installée, elle murmura comme pour elle-même : « Je vais bientôt partir. »
 

@@ -100,4 +100,4 @@ Dans un fracas violent, le corps de Wang Lin trembla. Lorsqu'il baissa la tête,
 
 Il connaissait cet homme !
 
-« All-Seer !! C'était bien vous !! »
+« Tout-Voyant !! C'était bien vous !! »

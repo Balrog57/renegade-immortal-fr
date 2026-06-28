@@ -14,7 +14,7 @@ Cependant, tout cela avait ses limites. Si quelqu'un franchissait cette ligne ro
 
 L'intention martiale de Zhang Xingye avait pris racine dans l'esprit de Wang Lin !
 
-À cet instant, ce Maître Zhou Tian, qui n'était qu'un simple cultivateur du niveau Nirvana Scryer, osait montrer les crocs. Le regard de Wang Lin se glaça tandis qu'il fixait le Maître Zhou Tian, un sourire narquois étirant le coin de sa bouche.
+À cet instant, ce Maître Zhou Tian, qui n'était qu'un simple cultivateur du niveau Scruteur du Nirvana, osait montrer les crocs. Le regard de Wang Lin se glaça tandis qu'il fixait le Maître Zhou Tian, un sourire narquois étirant le coin de sa bouche.
 
 En voyant l'expression de Wang Lin, le cœur du Maître Zhou Tian rata un battement et il ressentit un vague sentiment de danger. Pourtant, en observant Wang Lin, il ne percevait qu'un simple cultivateur Ascendant. Qu'un petit cultivateur puisse afficher une telle expression fit froncer les sourcils du Maître Zhou Tian, et une intention meurtrière germa dans son cœur.
 
@@ -22,7 +22,7 @@ Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurpe
 
 À ce moment précis, les six cultivateurs du Clan Scatter Thunder chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin : « Ton nom est Yu Fei ? »
 
-Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du type Corporeal Yang qui lui avait remis le jade.
+Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du type Yang Corporel qui lui avait remis le jade.
 
 Sans un mot, il agita la main droite et le jade apparut, volant vers l'interlocuteur.
 
@@ -60,7 +60,7 @@ Wang Lin et le Maître Zhou Tian étaient entrés dans le tunnel menant aux 7 Mi
 
 Enveloppé d'un manteau de tonnerre qui lui donnait l'apparence d'un nuage orageux, il chargeait en avant. Son indifférence de tout à l'heure avait disparu, remplacée par une humeur sombre et une aura dominatrice.
 
-En tant que cultivateur Nirvana Scryer, il possédait sa propre fierté. Les 7 Millions de Mondes étaient une terre sans loi, un lieu prisé des puissants. Qu'il s'agisse d'échanges secrets ou de règlements de comptes, les Anciens du clan ne s'en souciaient guère. C'était là que seule la force faisait foi !
+En tant que cultivateur Scruteur du Nirvana, il possédait sa propre fierté. Les 7 Millions de Mondes étaient une terre sans loi, un lieu prisé des puissants. Qu'il s'agisse d'échanges secrets ou de règlements de comptes, les Anciens du clan ne s'en souciaient guère. C'était là que seule la force faisait foi !
 
 Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait : « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de cultivation est légèrement supérieur au mien ; si j'entame un combat, je ne pourrai pas l'égaler ! »
 
@@ -84,7 +84,7 @@ Conjuguée à cette voix glaciale, l'impression était pour le Maître Zhou Tian
 
 Le tonnerre qu'il déchaîna était monstrueux dans ce tunnel étroit ; il semblait s'être métamorphosé en un dragon de tonnerre. La créature ouvrit sa gueule et chargea Wang Lin.
 
-« J'avais prévu de te tuer dans les 7 Millions de Mondes, mais puisque tu viens chercher la mort, je vais prendre ta vie dès maintenant ! » La voix sinistre du Maître Zhou Tian résonna tandis que le dragon tonnerrait. Ce rugissement semblait être celui d'une multitude de voix s'unissant pour produire l'attaque la plus puissante possible pour un cultivateur Nirvana Scryer !
+« J'avais prévu de te tuer dans les 7 Millions de Mondes, mais puisque tu viens chercher la mort, je vais prendre ta vie dès maintenant ! » La voix sinistre du Maître Zhou Tian résonna tandis que le dragon tonnerrait. Ce rugissement semblait être celui d'une multitude de voix s'unissant pour produire l'attaque la plus puissante possible pour un cultivateur Scruteur du Nirvana !
 
 Il engageait le combat avec toute sa force, trahissant ainsi sa peur et ses soupçons face à la présence de Wang Lin.
 

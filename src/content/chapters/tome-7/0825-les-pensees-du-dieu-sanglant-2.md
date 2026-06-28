@@ -26,7 +26,7 @@ L'expression de Wang Lin était sombre. Tout en reculant, il frappa son sac de r
 
 Wang Lin avait tenu l'avantage auparavant et n'avait laissé aucune chance de riposte à Yao Changdong. Tout avait été orchestré pour le tuer, mais finalement, cela avait échoué.
 
-Wang Lin comprenait désormais clairement la différence entre les cultivateurs Corporel Yang et Nirvana Scryer. Il était certain que la situation qu'il avait mise en place aurait pu tuer n'importe quel cultivateur Corporel Yang, mais Yao Changdong n'était pas blessé du tout.
+Wang Lin comprenait désormais clairement la différence entre les cultivateurs Corporel Yang et Scruteur du Nirvana. Il était certain que la situation qu'il avait mise en place aurait pu tuer n'importe quel cultivateur Corporel Yang, mais Yao Changdong n'était pas blessé du tout.
 
 Bien que ce noyau ait joué un rôle majeur, même sans lui, Yao Changdong devait posséder d'autres sorts.
 
@@ -134,4 +134,4 @@ Une puissante fluctuation du pouvoir du tatouage émana du talisman et se diffus
 
 Des bruits de craquement retentirent. À chaque battement d'ailes du papillon, une partie des tatouages s'effondrait. Pourtant, il continua sa charge et se rapprocha à nouveau de Wang Lin.
 
-« Je dois tuer Xu Mu. Il n'est qu'au stade Corporel Yang et il est déjà si puissant. Une fois qu'il atteindra le stade Nirvana Scryer, je ne serai plus son adversaire ! »
+« Je dois tuer Xu Mu. Il n'est qu'au stade Corporel Yang et il est déjà si puissant. Une fois qu'il atteindra le stade Scruteur du Nirvana, je ne serai plus son adversaire ! »

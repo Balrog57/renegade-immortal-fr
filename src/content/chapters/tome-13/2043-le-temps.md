@@ -62,9 +62,9 @@ Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors d
 
 Wang Lin ouvrit les yeux et observa ses trois véritables corps d'essence. Durant ces neuf années, il avait poussé son pouvoir ancestral à son apogée, tout en portant ses trois véritables corps d'essence à leurs sommets respectifs.
 
-Désormais, il était confiant de pouvoir affronter un Grand Empereur Dao Yi au sommet de sa puissance sans subir de revers. Il sentait même qu'il serait capable de le supprimer !
+Désormais, il était confiant de pouvoir affronter un Grand Empyrée Dao Yi au sommet de sa puissance sans subir de revers. Il sentait même qu'il serait capable de le supprimer !
 
-« Parmi les Grands Empereurs, le clan céleste possède le Dao Yi le plus faible. Avec ma force actuelle, bien que je ne sois pas de taille face à Jiu Di, je devrais être l'égal de Wu Feng... Même au sein du clan Ancien, je devrais pouvoir combattre Song Tian, dont la puissance est comparable à celle du Maître Xuan Luo, bien que l'issue reste incertaine.
+« Parmi les Grands Empyrées, le clan céleste possède le Dao Yi le plus faible. Avec ma force actuelle, bien que je ne sois pas de taille face à Jiu Di, je devrais être l'égal de Wu Feng... Même au sein du clan Ancien, je devrais pouvoir combattre Song Tian, dont la puissance est comparable à celle du Maître Xuan Luo, bien que l'issue reste incertaine.
 
 « Et cela, c'est avant même d'utiliser mon avatar le plus puissant. » Wang Lin restait calme en méditant. Un instant plus tard, il tourna son regard vers l'âme de l'Empereur Céleste, toujours consumée par son feu d'âme.
 
@@ -76,13 +76,13 @@ Désormais, il était confiant de pouvoir affronter un Grand Empereur Dao Yi au 
 
 « Quant aux éléments nécessaires pour parachever ce corps... Le Maître... Il m'a emmené dans de nombreux lieux à travers le clan Ancien et a réuni suffisamment d'objets... » Wang Lin soupira et détourna le regard. Son regard semblait transpercer les murs, s'étendre vers la montagne arrièrer du Temple de l'Ancien Dao, pour atteindre le vieil homme qui n'était plus jeune.
 
-Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne pas sortir de sa méditation tant que son niveau de cultivation n'aurait pas augmenté. Il devait s'élever non seulement pour surmonter le Grand Empereur Song Tian, mais aussi pour ne plus craindre le Grand Empereur Gu Dao.
+Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne pas sortir de sa méditation tant que son niveau de cultivation n'aurait pas augmenté. Il devait s'élever non seulement pour surmonter le Grand Empyrée Song Tian, mais aussi pour ne plus craindre le Grand Empyrée Gu Dao.
 
-Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empereur Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
+Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empyrée Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
 
 Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immemorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret du Maître Impérial de l'Ancien Dao.
 
-« L'attitude du Grand Empereur Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
+« L'attitude du Grand Empyrée Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
 
 Son chemin de cultivation était radicalement différent de celui des autres. C'était une voie qu'il avait tracée lui-même, et lui seul pouvait décider de la direction à prendre. Seule l'expérimentation lui révélerait l'issue.
 
@@ -100,9 +100,9 @@ Quant aux deux derniers nuages, l'un émettait une lumière éclatante tandis qu
 
 « Ce n'est que lorsque les quatre essences auront formé leurs propres véritables corps et fusionneront en un véritable corps d'essence de tonnerre de massacre complet que mon niveau de cultivation pourra franchir le sommet du Vide Tribulant !
 
-« Cela correspondra peut-être à un Empereur Exalté ou un Empereur Ascendant, mais il est possible que ce soit autre chose, un royaume inconnu... Peut-être même un Grand Empereur ! » Les yeux de Wang Lin étaient empreints d'attente. D'après ses connaissances, les Empereurs Exaltés et les Empereurs Ascendants n'étaient que des êtres au sommet du Vide Tribulant. Cependant, l'ascension vers le rang de Grand Empereur était si ardue qu'elle avait été subdivisée en plusieurs échelons.
+« Cela correspondra peut-être à un Exaltation Empyréenne ou un Empyrée Ascendant, mais il est possible que ce soit autre chose, un royaume inconnu... Peut-être même un Grand Empyrée ! » Les yeux de Wang Lin étaient empreints d'attente. D'après ses connaissances, les Exaltations Empyréennes et les Empyrées Ascendants n'étaient que des êtres au sommet du Vide Tribulant. Cependant, l'ascension vers le rang de Grand Empyrée était si ardue qu'elle avait été subdivisée en plusieurs échelons.
 
-En réalité, tant les Empereurs Exaltés que les Empereurs Ascendants étaient, fondamentalement, des cultivateurs au sommet du Vide Tribulant.
+En réalité, tant les Exaltations Empyréennes que les Empyrées Ascendants étaient, fondamentalement, des cultivateurs au sommet du Vide Tribulant.
 
 Le regard de Wang Lin s'illumina. Après une courte réflexion, il leva la main droite et fit un geste vers le plafond de la chambre secrète. Une scène prodigieuse se produisit : le plafond se mua en ciel.
 

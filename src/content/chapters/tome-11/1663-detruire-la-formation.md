@@ -16,13 +16,13 @@ Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade ; il 
 
 De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Spirit Void ordinaires. Il n'était pas nécessaire de fusionner un tel domaine avec son corps pour atteindre un état de perfection.
 
-Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa cultivation qu'il pouvait terrasser des cultivateurs Arcane Void du premier stade alors qu'il n'était qu'au milieu du stade Spirit Void !
+Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa cultivation qu'il pouvait terrasser des cultivateurs Vide Arcanique du premier stade alors qu'il n'était qu'au milieu du stade Spirit Void !
 
-Wang Lin osait même affronter des cultivateurs Arcane Void du stade intermédiaire. Bien qu'il fût difficile de prédire l'issue du combat, il leur serait extrêmement ardu de le tuer !
+Wang Lin osait même affronter des cultivateurs Vide Arcanique du stade intermédiaire. Bien qu'il fût difficile de prédire l'issue du combat, il leur serait extrêmement ardu de le tuer !
 
 Le chemin menant au troisième stade emprunté par Wang Lin différait radicalement de celui des autres cultivateurs. Même le Souverain Céleste aux Sept Couleurs suivait une voie distincte. Bien que ce dernier ait eu besoin de Flammes Joss, les flammes qu'il absorbait n'étaient pas toxiques.
 
-Ce n'était pas que personne n'avait suivi la voie de Wang Lin, c'était simplement qu'elle était extrêmement difficile. C'était un sentier sans égal, débordant de possibilités infinies. S'il voulait devenir un cultivateur Arcane Void, il lui faudrait obtenir et parachever encore quelques essences !
+Ce n'était pas que personne n'avait suivi la voie de Wang Lin, c'était simplement qu'elle était extrêmement difficile. C'était un sentier sans égal, débordant de possibilités infinies. S'il voulait devenir un cultivateur Vide Arcanique, il lui faudrait obtenir et parachever encore quelques essences !
 
 Lorsque d'autres atteignaient le troisième stade, il était presque impossible de compléter une autre essence. Mais pour Wang Lin, la situation était bien différente. Il pouvait encore obtenir une septième, une huitième, une neuvième et même une dixième essence.
 
@@ -30,15 +30,15 @@ De plus, comme il n'avait pas absorbé de Flammes Joss, ses essences ne posséda
 
 Si la huitième essence apparaissait et parvenait à sa complétion, il pourrait atteindre le sommet de Spirit Void !
 
-Avec neuf essences, il pourrait franchir le stade Arcane Void ! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Exalt de la Tribulation du Vide !
+Avec neuf essences, il pourrait franchir le stade Vide Arcanique ! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Exalt de la Tribulation du Vide !
 
-La différence entre un Exalt de la Tribulation du Vide et un Arcane Void résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception ; c'était un gouffre que chacun devait affronter !
+La différence entre un Exalt de la Tribulation du Vide et un Vide Arcanique résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception ; c'était un gouffre que chacun devait affronter !
 
 Cette calamité était appelée la Tribulation Arcane. Elle se divisait en neuf étapes et, après avoir survécu à ces neuf épreuves, on pouvait réussir à franchir le stade de la Tribulation du Vide.
 
 Même un être aussi puissant que le Souverain n'avait traversé que trois Tribulations Arcanes et n'avait pas eu le courage d'affronter la quatrième.
 
-Le Maître Dao Blue Dream n'avait même pas surmonté la première et stagnait au sommet de l'Arcane Void. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
+Le Maître Dao Blue Dream n'avait même pas surmonté la première et stagnait au sommet de l'Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
 
 Au cours des dizaines de milliers d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalt !
 

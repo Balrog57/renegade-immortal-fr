@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1339 - Malicious Intent
 slug: intention-malveillante
 ---
-L'entrée vers les 7 Millions de Mondes se trouvait à moins de cinq kilomètres ! Bien qu'un cultivateur au stade Nirvana Scryer ne puisse pas s'y téléporter, c'était une distance qu'il pouvait parcourir en un clin d'œil !
+L'entrée vers les 7 Millions de Mondes se trouvait à moins de cinq kilomètres ! Bien qu'un cultivateur au stade Scruteur du Nirvana ne puisse pas s'y téléporter, c'était une distance qu'il pouvait parcourir en un clin d'œil !
 
 Cependant, le Maître Zhou Tian n'aurait même pas eu ce laps de temps !
 
@@ -28,7 +28,7 @@ Tandis que les grondements tonitruants résonnaient, tout le tonnerre contenu en
 
 Dans ce chaos assourdissant, l'âme originelle du Maître Zhou Tian s'échappa, entourée de sa marque clanique. Son âme était gravement endommagée et presque transparente. Après avoir jailli, elle tenta de fuir précipitamment.
 
-Cependant, oubliez cela : même des cultivateurs au stade Nirvana Shatterer n'étaient pas dignes de s'échapper sans la permission de Wang Lin ! La main droite de Wang Lin s'étira vers le vide et une force de succion enveloppa le Maître Zhou Tian, le faisant hurler. Il fut instantanément happé par la main de Wang Lin.
+Cependant, oubliez cela : même des cultivateurs au stade Briseur du Nirvana n'étaient pas dignes de s'échapper sans la permission de Wang Lin ! La main droite de Wang Lin s'étira vers le vide et une force de succion enveloppa le Maître Zhou Tian, le faisant hurler. Il fut instantanément happé par la main de Wang Lin.
 
 La différence abyssale de niveaux de cultivation faisait qu'il ne pouvait même pas choisir de s'autodétruire !
 
@@ -62,7 +62,7 @@ C'était la place centrale des 7 Millions de Mondes, le point d'arrivée de tous
 
 Une foule immense de cultivateurs se pressait devant ces pavillons, pas moins de dix mille individus ! La plupart étaient au stade de la Transformation de l'Âme, et beaucoup au stade Ascendant. Il n'y avait que quelques rares êtres au stade Yin et Yang !
 
-Nombreux étaient ceux dépassant le stade Nirvana Scryer. La plupart semblaient pressés !
+Nombreux étaient ceux dépassant le stade Scruteur du Nirvana. La plupart semblaient pressés !
 
 Une immense formation de transfert se trouvait devant chaque grand pavillon. Wang Lin scruta immédiatement les alentours dès sa sortie de la formation. Bien qu'il s'y soit préparé, il restait stupéfait.
 

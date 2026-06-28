@@ -100,6 +100,6 @@ Ses cheveux blancs flottant au vent, sa silhouette blanche en mouvement... c'ét
 
 « C'est le karma ! Maintenant, je vais prendre votre vie ! » Le passé refit surface devant les yeux de Wang Lin et il s'avança, imprégné d'une intention meurtrière !
 
-« Vous ne pouvez pas me tuer ! Je suis l'Ancien de la Secte Divine, je suis un cultivateur du troisième niveau de la Mer des Nuages, je suis l'esclave du Seigneur du Royaume Scellé ! Vous ne pouvez pas me tuer ! J'apporterai des mérites au royaume intérieur. Je possède des informations sur le royaume extérieur. Si vous me laissez partir, je suis prêt à devenir votre esclave ! »
+« Vous ne pouvez pas me tuer ! Je suis l'Ancien de la Secte Divinee, je suis un cultivateur du troisième niveau de la Mer des Nuages, je suis l'esclave du Seigneur du Royaume Scellé ! Vous ne pouvez pas me tuer ! J'apporterai des mérites au royaume intérieur. Je possède des informations sur le royaume extérieur. Si vous me laissez partir, je suis prêt à devenir votre esclave ! »
 
 Bien que Daoïste Eau fût un cultivateur du troisième niveau, son cœur était bien plus vil. Face à la mort imminente, il abandonna toute dignité et hurla bruyamment : « Je suis prêt à devenir votre esclave, ne me tuez pas ! »

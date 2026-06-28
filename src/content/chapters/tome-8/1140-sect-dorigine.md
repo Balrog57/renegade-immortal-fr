@@ -14,7 +14,7 @@ Lu Yanfei aimait le rouge, et presque tout le monde au Sect d'Origine le savait.
 
 Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de cultivation étaient inférieurs à ceux de Lu Yanfei.
 
-Lu Yanfei, au sommet du stade Nirvana Scryer, était la beauté numéro un du Sect d'Origine et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la cultivation de son maître, un expert au sommet du stade Nirvana Cleanser, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, le Sect d'Origine se trouvait dans son état le plus vulnérable.
+Lu Yanfei, au sommet du stade Scruteur du Nirvana, était la beauté numéro un du Sect d'Origine et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la cultivation de son maître, un expert au sommet du stade Purificateur du Nirvana, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, le Sect d'Origine se trouvait dans son état le plus vulnérable.
 
 En ce moment, Lu Yanfei tenait un jade. C'était une pierre de jade violette qu'elle serrait impitoyablement, au point que sa main, aussi délicate que du jade, en devint légèrement blanche.
 
@@ -22,7 +22,7 @@ L'humiliation se lisait dans ses yeux, mais elle ne pouvait que la subir. Elle a
 
 Après avoir laissé échapper un profond soupir, elle parvint tout juste à reprendre ses esprits et regarda les trois disciples féminines devant elle avant de dire doucement : « Faites-les entrer. »
 
-Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yun, possédait le niveau de cultivation le plus élevé ; elle se trouvait à une demi-étape du stade Illusory Yin. Bien qu'elle ne fût pas aussi belle que son maître, elle était extrêmement délicate et dotée d'une personnalité douce.
+Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yun, possédait le niveau de cultivation le plus élevé ; elle se trouvait à une demi-étape du stade Yin Illusoire. Bien qu'elle ne fût pas aussi belle que son maître, elle était extrêmement délicate et dotée d'une personnalité douce.
 
 Peu de temps après, quatre jeunes aux visages pâles et tremblants firent leur entrée. En pénétrant dans la pièce, ils n'osèrent même pas respirer. La tête basse, ils semblaient ne plus savoir comment agir.
 

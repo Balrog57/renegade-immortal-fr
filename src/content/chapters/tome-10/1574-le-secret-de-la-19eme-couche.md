@@ -57,7 +57,7 @@ Les cadavres qui reposaient à l'intérieur étaient les ancêtres du Clan du Ta
 
 Wang Lin scruta le bassin et repéra un sceau.
 
-Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Corporeal Yang ou supérieur.
+Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Yang Corporel ou supérieur.
 
 À l'époque, Wang Lin n'avait pu entrer lui-même et avait dû compter sur la force de Big Head. Désormais, Wang Lin s'avança calmement.
 

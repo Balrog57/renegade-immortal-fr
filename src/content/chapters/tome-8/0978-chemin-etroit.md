@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 978 - Narrow Road
 slug: chemin-etroit
 ---
-Son énergie d'origine de cultivateur au stade intermédiaire du Nirvana Scryer balaya la planète Da Lou comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
+Son énergie d'origine de cultivateur au stade intermédiaire du Scruteur du Nirvana balaya la planète Da Lou comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
 
 Soudain, chaque disciple de la Secte de l'Épée de Da Lou eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister ; c'était comme s'ils ne pourraient pas survivre sans cet effort.
 
@@ -24,7 +24,7 @@ Wang Lin restait simplement immobile. Il contemplait calmement le ciel et médit
 
 « Ce n'était qu'une petite complétion due à l'absorption de l'énergie Yang extrême par la perle défiant le ciel. Si je veux en voir l'intégralité, elle doit absorber l'énergie Yin pour atteindre sa pleine complétion. Je suppose que j'aurai alors une réponse ! » Wang Lin prit une profonde inspiration et ses yeux brillèrent.
 
-« Peu importe si l'All-Seer complotait contre moi ou contre Ling Tianhou ; il s'est trompé cette fois ! Le piège a été brisé ! » Wang Lin ricana et fit un pas vers le vide. Son regard balaya la tour gigantesque où se trouvait Ling Tianhou.
+« Peu importe si le Tout-Voyant complotait contre moi ou contre Ling Tianhou ; il s'est trompé cette fois ! Le piège a été brisé ! » Wang Lin ricana et fit un pas vers le vide. Son regard balaya la tour gigantesque où se trouvait Ling Tianhou.
 
 Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuations d'énergie d'origine y étaient encore perceptibles.
 
@@ -32,11 +32,11 @@ Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuati
 
 Wang Lin fit un pas et quitta la planète Da Lou.
 
-« Quelle était la cible de l'autre rayon de lumière provenant de la perle... » Wang Lin songea, puis ses yeux s'illuminèrent tandis qu'il murmurait : « Ce serait une excellente chose que ce soit l'All-Seer... »
+« Quelle était la cible de l'autre rayon de lumière provenant de la perle... » Wang Lin songea, puis ses yeux s'illuminèrent tandis qu'il murmurait : « Ce serait une excellente chose que ce soit le Tout-Voyant... »
 
 Il mit fin à ses pensées et ne s'attarda plus sur cette affaire. Puis, se transformant en un rayon de lumière, il s'élança dans les profondeurs de l'espace.
 
-« Le complot de l'All-Seer a échoué, il n'est donc plus nécessaire de rester sur la planète Da Lou. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniacs ! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes ! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
+« Le complot du Tout-Voyant a échoué, il n'est donc plus nécessaire de rester sur la planète Da Lou. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniacs ! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes ! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
 
 Wang Lin n'utilisant pas la Courbure Spatiale, il ne volait pas à une vitesse fulgurante en traversant l'espace comme un simple rayon de lumière. Quelques heures plus tard, il aperçut une planète abandonnée.
 
@@ -84,11 +84,11 @@ Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissemen
 
 Tout au long du trajet, quiconque croisait Wang Lin se mettait à chuchoter et à le regarder avec respect. Dans le monde de la cultivation, la force commandait le respect !
 
-Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Nirvana Scryer.
+Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Scruteur du Nirvana.
 
-Ses yeux s'illuminèrent et il pensa : « Autrefois, ma cultivation était au début du Nirvana Scryer et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Nirvana Cleanser... Maintenant que j'ai atteint le stade intermédiaire du Nirvana Scryer, les cultivateurs au début du Nirvana Cleanser ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire ! »
+Ses yeux s'illuminèrent et il pensa : « Autrefois, ma cultivation était au début du Scruteur du Nirvana et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Purificateur du Nirvana... Maintenant que j'ai atteint le stade intermédiaire du Scruteur du Nirvana, les cultivateurs au début du Purificateur du Nirvana ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire ! »
 
-« À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Nirvana Cleanser. Si je retournais dans le passé, je devrais pouvoir l'affronter ! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Nirvana Cleanser voulait me tuer, ce ne serait pas aussi facile ! »
+« À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Purificateur du Nirvana. Si je retournais dans le passé, je devrais pouvoir l'affronter ! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile ! »
 
 À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait trois cents pieds de long et émettait des ondes de fluctuations.
 

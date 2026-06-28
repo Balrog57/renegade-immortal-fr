@@ -1,4 +1,4 @@
----
+﻿---
 n: 1303
 title: Formation du Royaume Scellé
 book: 9
@@ -68,7 +68,7 @@ Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa
 
 Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. Au Secte Fantôme, au Secte Divin, au Secte Briseur de Ciel et parmi les bêtes féroces dans la brume, des gens s'évanouissaient également.
+Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. Au Secte Fantôme, au Secte Divine, au Secte Briseur de Ciel et parmi les bêtes féroces dans la brume, des gens s'évanouissaient également.
 
 L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la divine rétribution, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment !
 

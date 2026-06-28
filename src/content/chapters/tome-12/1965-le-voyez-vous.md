@@ -10,35 +10,35 @@ Chapitre 1965 - Le voyez-vous ?
 
 Wang Lin s'en alla, mais un immense bourdonnement s'empara de l'Épreuve Empyréenne. Le fait que Wang Lin ait surmonté les épreuves avait suscité une excitation telle qu'elle changea la perception de tous.
 
-Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Ascendant Empyrean Ming Dao pour devenir le numéro un juste après les Grands Empyreans !
+Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Empyrée Ascendant Ming Dao pour devenir le numéro un juste après les Grands Empyreans !
 
-L'Ascendant Empyrean aux cheveux blancs !
+L'Empyrée Ascendant aux cheveux blancs !
 
 Tout ce qui concernait l'armure de l'âme fut silencieusement enfoui au plus profond de leurs cœurs. Plus personne n'en parlait ; ils comprirent tous que, même s'ils avaient possédé une armure de l'âme, ils n'auraient pu franchir le 17e palais !
 
 L'exploit de Wang Lin déclencha une vague massive de tentatives. Après avoir été témoins de sa prouesse, de nombreux cultivateurs se lancèrent à leur tour dans les épreuves.
 
-Le Grand Empyrean Dao Yi observa silencieusement Wang Lin s'éloigner. Une lueur traversa son regard avant qu'il ne parte à son tour. Il voulait retrouver Wang Lin immédiatement. Quel qu'en soit le prix, il comptait le recruter !
+Le Grand Empyrée Dao Yi observa silencieusement Wang Lin s'éloigner. Une lueur traversa son regard avant qu'il ne parte à son tour. Il voulait retrouver Wang Lin immédiatement. Quel qu'en soit le prix, il comptait le recruter !
 
-Wu Feng laissa échapper un soupir. Après que Wang Lin eut franchi le 17e palais, il comprit qu'il serait encore plus difficile de l'enrôler que l'Ascendant Empyrean Ming Dao !
+Wu Feng laissa échapper un soupir. Après que Wang Lin eut franchi le 17e palais, il comprit qu'il serait encore plus difficile de l'enrôler que l'Empyrée Ascendant Ming Dao !
 
 « Heureusement, j'ai noué une bonne relation avec lui. Même si j'échoue, mes liens avec lui seront bien meilleurs que ceux des autres Grands Empyreans », songea Wu Feng avant de disparaître.
 
 Dans le palais impérial, un grondement tonitruant retentit. Le trône du dragon fut réduit en poussière par l'Empereur Céleste.
 
-À ses côtés, l'Ascendant Empyrean Ming Dao ouvrit les yeux. Son regard était vide de toute étincelle et il baissa silencieusement la tête.
+À ses côtés, l'Empyrée Ascendant Ming Dao ouvrit les yeux. Son regard était vide de toute étincelle et il baissa silencieusement la tête.
 
 « Ming Dao, je te donnerai l'opportunité de te rendre dans la zone de cultivation isolée de l'Ancêtre Céleste. Que tu puisses laver cette humiliation ou non dépendra de toi ! Ce Wang Lin finira par venir dans la ville impériale. Si tu parviens à le tuer, tu resteras le numéro un parmi les Ascendants Empyreans ! »
 
 Cette fois, Ming Dao n'hésita pas comme auparavant et hocha sobrement la tête.
 
-Continent Central, au sommet du Mont Empereur. Le Grand Empyrean Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
+Continent Central, au sommet du Mont Empereur. Le Grand Empyrée Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
 
-« Je n'ai pu recruter l'Ascendant Empyrean Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi ! » Le Grand Empyrean Jiu Di se tourna vers l'Empyrean Exalt Hai Zi, qui ouvrait lentement les yeux, et rit.
+« Je n'ai pu recruter l'Empyrée Ascendant Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi ! » Le Grand Empyrée Jiu Di se tourna vers l'Exaltation Empyréenne Hai Zi, qui ouvrait lentement les yeux, et rit.
 
 « Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton frère aîné. Qu'en dis-tu ? »
 
-L'Empyrean Exalt Hai Zi fut surprise et son cœur se remplit de joie.
+L'Exaltation Empyréenne Hai Zi fut surprise et son cœur se remplit de joie.
 
 Continent Est, au sein de la Secte Purple Yang. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer :
 

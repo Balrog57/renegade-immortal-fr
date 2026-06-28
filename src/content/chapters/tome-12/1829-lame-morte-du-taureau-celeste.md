@@ -42,7 +42,7 @@ Au moment où elle posa le pied sur la route de sang, le monde changea de couleu
 
 « Le neuvième Ancêtre, Luo Yunhai. Des peintures murales dans la secte dépeignent sa vie de massacre. Il était entouré d'un milliard d'âmes de vengeurs ; c'était la puissance d'une génération ! »
 
-« À son apogée, le neuvième Ancêtre avait défié le Grand Empereur Dao Yi. Il échoua et fut tué par le Grand Empereur. Cependant, devant son talent exceptionnel, son âme ne fut pas détruite et il fut autorisé à revenir au sein de la secte ! »
+« À son apogée, le neuvième Ancêtre avait défié le Grand Empyrée Dao Yi. Il échoua et fut tué par le Grand Empyrée. Cependant, devant son talent exceptionnel, son âme ne fut pas détruite et il fut autorisé à revenir au sein de la secte ! »
 
 Des rumeurs de choc parcoururent le monde alors que l'ombre de sang surgissait de la voie derrière Yan Lu.
 

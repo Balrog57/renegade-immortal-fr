@@ -8,7 +8,7 @@ slug: la-gloire-de-la-mer-des-nuages
 ---
 Chapitre 1510 - La Gloire de la Mer des Nuages !
 
-Sa voix déferla sur le Secte Divin, pénétrant les oreilles des milliers de cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
+Sa voix déferla sur le Secte Divine, pénétrant les oreilles des milliers de cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
 
 Ces cultivateurs n'avaient pas encore terminé la mise en place de la formation. Ils s'étaient précipités ici dès réception de l'ordre, mais Wang Lin avait été trop rapide : la formation n'était achevée qu'à 30 % !
 
@@ -20,7 +20,7 @@ Alors que sa voix résonnait à travers les étoiles, elle fut clairement entend
 
 « Tu ne racontes que des bêtises. Formation de Destruction des Neuf Cieux, détruisez ce pion du Souverain ! » La voix du Daoïste Eau perça l'esprit de Wang Lin telle une flèche.
 
-Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Daoïste Eau, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers le Secte Divin !
+Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Daoïste Eau, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers le Secte Divine !
 
 Il marchait vers le sommet de la Mer des Nuages pour affronter le cultivateur de la troisième étape, le Daoïste Eau !
 
@@ -50,11 +50,11 @@ Cependant, aujourd'hui, la situation s'était totalement inversée. À cet insta
 
 « Tuez ! »
 
-« Nous ne pouvons pas laisser cet homme entrer dans le Secte Divin ! »
+« Nous ne pouvons pas laisser cet homme entrer dans le Secte Divine ! »
 
-« L'ordre du Secte Divin est de défendre jusqu'à la mort ! Des cultivateurs comme nous ne craignent pas la mort ! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. Le Secte Divin était derrière eux ; c'était leur vie même et la raison de leur cultivation !
+« L'ordre du Secte Divine est de défendre jusqu'à la mort ! Des cultivateurs comme nous ne craignent pas la mort ! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. Le Secte Divine était derrière eux ; c'était leur vie même et la raison de leur cultivation !
 
-Au cours des dizaines de milliers d'années écoulées, la position du Secte Divin était une chose que les cultivateurs de la Mer des Nuages respectaient et pour laquelle ils étaient prêts à mourir !
+Au cours des dizaines de milliers d'années écoulées, la position du Secte Divine était une chose que les cultivateurs de la Mer des Nuages respectaient et pour laquelle ils étaient prêts à mourir !
 
 L'intention du Daoïste Eau était de les laisser périr ! De les laisser mourir entre les mains de Wang Lin, afin de susciter la colère de tous les cultivateurs de la Mer des Nuages et le chagrin des trois autres systèmes stellaires !
 
@@ -68,11 +68,11 @@ Sous la poussée de la peur et de l'honneur, ces dizaines de milliers de cultiva
 
 « Gloire à la Mer des Nuages ! »
 
-Ces rugissements se propagèrent en ondes tandis que ces dizaines de milliers de cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer des Nuages et le Secte Divin jusqu'au dernier souffle !
+Ces rugissements se propagèrent en ondes tandis que ces dizaines de milliers de cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer des Nuages et le Secte Divine jusqu'au dernier souffle !
 
 Ce son était capable de secouer l'esprit de quiconque l'entendait et de faire trembler les âmes !
 
-Portés par ce chant de gloire, ces dizaines de milliers de cultivateurs semblaient avoir perdu la raison en chargeant vers l'avant. Ils commencèrent à activer la Formation de Destruction des Neuf Cieux pourtant incomplète. Ils utilisaient leur chair et leur sang pour défendre la gloire du Secte Divin !
+Portés par ce chant de gloire, ces dizaines de milliers de cultivateurs semblaient avoir perdu la raison en chargeant vers l'avant. Ils commencèrent à activer la Formation de Destruction des Neuf Cieux pourtant incomplète. Ils utilisaient leur chair et leur sang pour défendre la gloire du Secte Divine !
 
 Pitoyables, mais respectables !
 
@@ -80,9 +80,9 @@ Wang Lin fut ému en voyant les cultivateurs de la Mer des Nuages charger contre
 
 Ces cultivateurs appartenaient à divers niveaux de cultivation, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer des Nuages et une foi unique. Ils étaient de véritables cultivateurs de la Mer des Nuages, unis dans la vie comme dans la mort !
 
-Ce qu'ils gardaient n'était pas le Daoïste Eau, mais le Secte Divin !
+Ce qu'ils gardaient n'était pas le Daoïste Eau, mais le Secte Divine !
 
-Ils ignoraient l'insidiosité du Daoïste Eau ; ils savaient seulement que le Secte Divin avait ordonné de ne pas laisser Wang Lin entrer !
+Ils ignoraient l'insidiosité du Daoïste Eau ; ils savaient seulement que le Secte Divine avait ordonné de ne pas laisser Wang Lin entrer !
 
 Gloire à la Mer des Nuages !
 
@@ -124,9 +124,9 @@ Dès que ces dizaines de milliers de personnes furent figées, Wang Lin fit un p
 
 Ils étaient dignes de respect !
 
-Le monde trembla. Wang Lin avait écarté les dizaines de milliers de cultivateurs, mais il ne pouvait écarter la gloire. Il fendit cette aura pour charger vers la planète du Secte Divin, là où se trouvait le Daoïste Eau !
+Le monde trembla. Wang Lin avait écarté les dizaines de milliers de cultivateurs, mais il ne pouvait écarter la gloire. Il fendit cette aura pour charger vers la planète du Secte Divine, là où se trouvait le Daoïste Eau !
 
-« Daoïste Eau, oses-tu m'affronter loyalement ? » La planète du Secte Divin trembla et la terre s'effondra. D'innombrables fissures apparurent sous les pas de Wang Lin alors qu'il atteignait la planète !
+« Daoïste Eau, oses-tu m'affronter loyalement ? » La planète du Secte Divine trembla et la terre s'effondra. D'innombrables fissures apparurent sous les pas de Wang Lin alors qu'il atteignait la planète !
 
 Son apparition fit hurler le brouillard gelé, tandis que les craquements se multipliaient. La glace se répandit dans toutes les directions, enveloppant toute la zone !
 

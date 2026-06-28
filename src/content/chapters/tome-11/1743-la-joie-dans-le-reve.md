@@ -10,7 +10,7 @@ Cependant, maintenant que tout s'était apaisé, il ne pouvait s'empêcher d'y r
 
 « C’est encore ce jour de l’année... » Wang Lin baissa amèrement la tête et s'assit.
 
-À cet instant précis, le Grand Empereur Xuan Luo se tenait au sommet de la montagne, observant silencieusement Wang Lin.
+À cet instant précis, le Grand Empyrée Xuan Luo se tenait au sommet de la montagne, observant silencieusement Wang Lin.
 
 Après s'être assis, Wang Lin laissa échapper un profond soupir et tendit la main droite. La Voile Fantomatique apparut et enveloppa son corps.
 
@@ -44,7 +44,7 @@ Cette silhouette était la sienne, celle de sa femme...
 
 Le cœur de Wang Lin fut pris d'une douleur lancinante ; il vida la cruche de vin, la jeta sur le côté et en sortit une autre.
 
-Non loin de là, le Grand Empereur Xuan Luo était assis et contemplait le dos de Wang Lin. La tristesse et la solitude qui émanaient de cet homme émurent jusqu'à lui.
+Non loin de là, le Grand Empyrée Xuan Luo était assis et contemplait le dos de Wang Lin. La tristesse et la solitude qui émanaient de cet homme émurent jusqu'à lui.
 
 « Wan Er, attends, attends-moi... Ce ne sera pas long avant que je puisse le faire ! » Wang Lin but une gorgée de vin, laissant le liquide déborder du coin de sa bouche. D'un revers de manche, il fit apparaître le Cercueil d'Évasion Céleste devant lui.
 
@@ -102,7 +102,7 @@ Voyant l'état de Li Muwan, Wang Lin ressentit un pincement au cœur et desserra
 
 En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha un sourire heureux. Cependant, l'amertume et la tristesse dissimulées sous ce sourire restaient invisibles pour autrui.
 
-Au loin, le Grand Empereur Xuan Luo avait tout observé en silence, et son propre cœur ressentit une pointe de douleur. Il regarda Wang Lin, contempla son sourire et médita intérieurement :
+Au loin, le Grand Empyrée Xuan Luo avait tout observé en silence, et son propre cœur ressentit une pointe de douleur. Il regarda Wang Lin, contempla son sourire et médita intérieurement :
 
 « Quelle solitude et quelle tristesse peuvent pousser un homme à chercher la joie dans un rêve ? » soupira Xuan Luo.
 

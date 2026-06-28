@@ -35,7 +35,7 @@ Après trois mois supplémentaires, l'évidence finit par s'imposer.
 
 Ce qui stupéfia davantage les cultivateurs fut le retour des Quatre Sectes Divines !
 
-La rumeur prétendait que l'Empereur Divin de l'Oiseau Vermillon était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, All-Seer, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
+La rumeur prétendait que l'Empereur Divin de l'Oiseau Vermillon était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, Tout-Voyant, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
 
 C'était une nouvelle qui ébranlait le ciel.
 

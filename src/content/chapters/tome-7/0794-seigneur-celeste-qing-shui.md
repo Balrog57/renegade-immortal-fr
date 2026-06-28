@@ -44,7 +44,7 @@ L'expression du jeune homme maléfique resta neutre : « Rang 9 Céleste Supéri
 
 Le miroir ancien trembla de nouveau et, après plus de dix respirations, une âme originelle apparut. Cette âme était très ancienne et semblait désincarnée, mais dès son apparition, une énergie originelle plus dense que celle des quarante-deux précédentes se répandit.
 
-« C'est... » Les pupilles de Wang Lin se contractèrent. L'énergie originelle était terrifiante, d'une puissance rivalisant avec l'ancêtre de la famille Hua. « Il doit s'agir de l'âme originelle d'un cultivateur Nirvana Scryer ! »
+« C'est... » Les pupilles de Wang Lin se contractèrent. L'énergie originelle était terrifiante, d'une puissance rivalisant avec l'ancêtre de la famille Hua. « Il doit s'agir de l'âme originelle d'un cultivateur Scruteur du Nirvana ! »
 
 Le jeune homme maléfique plissa les yeux et lécha ses lèvres : « Rang 3 Céleste du Firmament ! »
 

@@ -78,11 +78,11 @@ On pourrait même dire qu'ils étaient nés selon la même méthode. Bien qu'il 
 
 C'était son plus grand atout !
 
-Le Huitième Niveau du Dao Céleste de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empereur pourrait sans doute accomplir une telle prouesse.
+Le Huitième Niveau du Dao Céleste de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empyrée pourrait sans doute accomplir une telle prouesse.
 
 S'il pouvait l'utiliser, c'était grâce à son avatar. C'était lui qui avait compris le sort après que le corps original de Wang Lin l'ait observé, et cette compréhension avait été transmise au corps originel. Cela permettait à Wang Lin d'utiliser ce sort ultime qui avait jadis scellé le Taureau Céleste !
 
-Avec neuf anneaux, ce sort pourrait sceller le Taureau Céleste ; il pourrait même sceller un Grand Empereur !!
+Avec neuf anneaux, ce sort pourrait sceller le Taureau Céleste ; il pourrait même sceller un Grand Empyrée !!
 
 Toutefois, son avatar actuel était encore loin d'atteindre une telle maîtrise.
 

@@ -8,7 +8,7 @@ slug: meprisable
 ---
 Chapitre 1508 - Méprisable ! !
 
-Dans le Secte Divin de la Mer des Nuages, l'Ancien en chef, le Daoïste Shui, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
+Dans le Secte Divine de la Mer des Nuages, l'Ancien en chef, le Daoïste Shui, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
 Quatre montagnes l'entouraient. Si l'on observait la scène depuis les cieux, on aurait l'impression que ces cinq sommets étaient tels cinq doigts perçant le firmament !
 
@@ -30,11 +30,11 @@ Observant l'endroit où elles avaient disparu, le Daoïste Shui réfléchit un i
 
 Tenant un jade, une intention meurtrière jaillit des yeux du Daoïste Shui.
 
-« En ma qualité d'Ancien en chef du Secte Divin, je convoque tous les cultivateurs préparant la bataille pour ériger la Formation de Destruction des Neuf Cieux aux abords du Secte ! » D'un revers de main, le jade disparut.
+« En ma qualité d'Ancien en chef du Secte Divine, je convoque tous les cultivateurs préparant la bataille pour ériger la Formation de Destruction des Neuf Cieux aux abords du Secte ! » D'un revers de main, le jade disparut.
 
 Il leva le second jade. Son expression devint féroce et il projeta un message par son Sens Divin.
 
-« Ordre du Secte Divin : toutes les sectes de rang 7 doivent impérativement capturer tous les membres du Secte Originel. Par mon ordre, chaque membre du Secte Originel doit être exécuté ; aucun ne doit survivre ! »
+« Ordre du Secte Divine : toutes les sectes de rang 7 doivent impérativement capturer tous les membres du Secte Originelle. Par mon ordre, chaque membre du Secte Originelle doit être exécuté ; aucun ne doit survivre ! »
 
 Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le Daoïste Shui ne s'arrêta pas là. Il saisit le troisième jade.
 
@@ -52,7 +52,7 @@ Le cinquième jade se désintégra pour fusionner avec le vide, emportant un sou
 
 Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Daoïste Shui s'était un peu dissipée. Pourtant, le malaise persistait, et il saisit le sixième jade. Un instant plus tard, une intention meurtrière brûla dans ses yeux.
 
-« Mer des Nuages, Rivière Invoquée, Allheaven et l'Alliance. Ce vieil homme est l'Ancien en chef du Secte Divin et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur le Secte Divin et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur !
+« Mer des Nuages, Rivière Invoquée, Allheaven et l'Alliance. Ce vieil homme est l'Ancien en chef du Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur le Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur !
 
 « Aujourd'hui, ce vieil homme a reçu des informations précises : un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur ! Cet individu s'est bien caché et a également dérobé le trésor de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit le Secte Démon, mais il ne pourra échapper à ce vieil homme !
 
@@ -64,7 +64,7 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Daoïste Shui
 
 « Celui qui le tuera résoudra une calamité pour notre Royaume Intérieur !
 
-« Celui qui éliminera cet individu deviendra le Maître du Secte de mon Secte Divin ! !
+« Celui qui éliminera cet individu deviendra le Maître du Secte de mon Secte Divine ! !
 
 « Celui qui tuera cette personne pourra avoir ce vieil homme comme esclave pendant mille ans ! !! »
 

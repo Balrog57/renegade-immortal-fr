@@ -16,13 +16,13 @@ L'armée du Royaume Extérieur attaqua de huit directions différentes, telle hu
 
 Des grondements tonitruants résonnèrent et, peu après, une onde de choc monstrueuse se propagea. Les cultivateurs du Vide Arcanique qui observaient la scène agitèrent leurs mains pour dissiper l'onde de choc afin qu'elle n'affecte pas les assaillants du Royaume Extérieur.
 
-Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs du Secte Divin. Au fil des années, en tant que maîtresse du Secte Divin, Mu Bingmei avait utilisé son charme unique et les dernières paroles de Wang Lin pour unir le Secte. Depuis lors, le Secte Divin l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer Nuageuse, de la Rivière Invocatrice, du Vide Brillant et, désormais, dans cette ultime bataille.
+Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs du Secte Divine. Au fil des années, en tant que maîtresse du Secte Divine, Mu Bingmei avait utilisé son charme unique et les dernières paroles de Wang Lin pour unir le Secte. Depuis lors, le Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer Nuageuse, de la Rivière Invocatrice, du Vide Brillant et, désormais, dans cette ultime bataille.
 
-Ils avaient subi d'immenses pertes, tant en vies qu'en blessures, et elle-même avait frôlé la mort à deux reprises. Désormais, il ne restait plus que quelques milliers de membres du Secte Divin.
+Ils avaient subi d'immenses pertes, tant en vies qu'en blessures, et elle-même avait frôlé la mort à deux reprises. Désormais, il ne restait plus que quelques milliers de membres du Secte Divine.
 
 « Maîtresse, veuillez vous rendre à l'autel central, nous pouvons garder cet endroit ! » À côté de Mu Bingmei, un vieil homme aux cheveux blancs la regarda avec une expression de tristesse et joignit les mains en signe de respect.
 
-Alors qu'il parlait, tous les cultivateurs du Secte Divin environnants tournèrent leur regard vers Mu Bingmei. Ils joignirent tous les mains et s'écrièrent à l'unisson :
+Alors qu'il parlait, tous les cultivateurs du Secte Divine environnants tournèrent leur regard vers Mu Bingmei. Ils joignirent tous les mains et s'écrièrent à l'unisson :
 
 « Maîtresse, veuillez vous rendre à l'autel central, nous pouvons garder cet endroit ! »
 
@@ -42,13 +42,13 @@ Il leva sa main droite, pointa Mu Bingmei du doigt et sourit :
 
 « Tu es à moi ! »
 
-Le regard de Mu Bingmei resta serein, mais ses yeux se glacèrent. Ce jeune homme n'était autre que Dao Feishan, le chef du Clan Dao Fei, réputé pour ses techniques de cultivation de couple. Sa personnalité était cruelle et de nombreux disciples du Secte Divin avaient péri sous ses coups.
+Le regard de Mu Bingmei resta serein, mais ses yeux se glacèrent. Ce jeune homme n'était autre que Dao Feishan, le chef du Clan Dao Fei, réputé pour ses techniques de cultivation de couple. Sa personnalité était cruelle et de nombreux disciples du Secte Divine avaient péri sous ses coups.
 
 Ce Dao Feishan ne courtisait pas seulement les femmes, mais aussi les beaux hommes. Mu Bingmei avait déjà affronté deux crises mortelles, dont l'une consistait à être traquée par lui. Si Qing Shui n'était pas intervenu pour l'aider, elle aurait eu bien du mal à échapper à l'humiliation.
 
 « Maîtresse ! Je demande à la Maîtresse de se rendre à l'autel central ! Ce vieil homme ne croit pas que le Seigneur du Royaume Scellé soit mort. Si quelque chose vous arrivait et que le Seigneur du Royaume Scellé revenait, nous... » Le vieil homme aux cheveux blancs s'exprimait avec une anxiété manifeste.
 
-« Je suis la maîtresse du Secte Divin ! » répondit doucement Mu Bingmei, la voix empreinte de détermination.
+« Je suis la maîtresse du Secte Divine ! » répondit doucement Mu Bingmei, la voix empreinte de détermination.
 
 Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de cultivation. Derrière elle se trouvaient les cultivateurs de l'Alliance de Cultivation du Vide Brillant. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
 

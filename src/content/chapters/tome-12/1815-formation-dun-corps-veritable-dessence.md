@@ -10,7 +10,7 @@ Chapitre 1815 - Formation d'un Corps Véritable d'Essence !
 
 « Avec mon sceau doré, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir ! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
 
-Tout comme si le Grand Empereur céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
+Tout comme si le Grand Empyrée céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
 
 Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessures, ce qui l'avait contraint à une cultivation en porte fermée. L'autre raison pour laquelle il s'était retiré était le regret qu'il ressentait de ne pas avoir pu attendre Wang Lin.
 

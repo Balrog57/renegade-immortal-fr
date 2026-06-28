@@ -8,7 +8,7 @@ slug: un-seul-acte-brillant-3
 ---
 Continent du Sud, Secte Dao Yi.
 
-Cette secte était la première du Continent du Sud ; elle était même célèbre dans l'ensemble du clan céleste. Car un Grand Empereur nommé Dao Yi était issu de cette secte !
+Cette secte était la première du Continent du Sud ; elle était même célèbre dans l'ensemble du clan céleste. Car un Grand Empyrée nommé Dao Yi était issu de cette secte !
 
 Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se trouvait un étang où, assis tranquillement, un jeune homme vêtu d'une robe taoïste contemplait l'eau. Il tenait une branche de saule à la main, la laissant pendre au-dessus du bassin comme s'il pêchait.
 
@@ -20,13 +20,13 @@ La majeure partie du Continent du Nord était recouverte de glace et de neige to
 
 Une chaîne de montagnes s'étendait à l'extrême nord du Continent du Nord. Ce massif était un immense glacier qui n'avait pas fondu depuis des dizaines de milliers d'années. Ses formes irrégulières ressemblaient à des épées perçant le ciel. La glace scintillait sous le soleil, dégageant une intention glaciale.
 
-Cet endroit était la grotte du Grand Empereur Wu Feng, du Continent du Nord.
+Cet endroit était la grotte du Grand Empyrée Wu Feng, du Continent du Nord.
 
 Sous l'un des glaciers siégeait un homme chauve d'âge moyen, d'une stature imposante. La lumière du soleil se réfractait sur la glace, créant une illusion qui révélait les scènes de l'Épreuve de l'Empereur.
 
 Ce grand cultivateur chauve restait calme, observant la silhouette qui se précipitait vers le neuvième palais. Ses yeux s'illuminèrent progressivement.
 
-Dès qu'un cultivateur franchissait le huitième palais, les Grands Empereurs en étaient informés. À cet instant précis, au loin, sur le Mont de l'Empereur dans le Continent Central, une femme magnifique se tenait parmi les feuilles d'automne qui tombaient. L'une d'elles, immobile, projetait les scènes de l'Épreuve de l'Empereur.
+Dès qu'un cultivateur franchissait le huitième palais, les Grands Empyrées en étaient informés. À cet instant précis, au loin, sur le Mont de l'Empereur dans le Continent Central, une femme magnifique se tenait parmi les feuilles d'automne qui tombaient. L'une d'elles, immobile, projetait les scènes de l'Épreuve de l'Empereur.
 
 À ses côtés siégeait un vieil homme à l'allure nonchalante, comme dépourvu de toute énergie. Bien qu'il regardât la scène, il semblait n'avoir aucun esprit ; c'était comme si ce qui se déroulait dans l'Épreuve de l'Empereur ne pouvait susciter son intérêt.
 
@@ -34,7 +34,7 @@ La belle femme fixa la feuille d'automne devant elle et dit doucement : « Maît
 
 Le vieil homme ouvrit les yeux et son regard balaya la feuille.
 
-« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant ? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empereurs plus tard et cherchent ardemment à étendre leur pouvoir. Outre la cultivation du sixième Grand Empereur, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
+« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant ? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empyrées plus tard et cherchent ardemment à étendre leur pouvoir. Outre la cultivation du sixième Grand Empyrée, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
 
 « Mais pour Maître, franchir le neuvième palais n'est rien de plus que des fourmis sur le sol. Qu'importe si une fourmi est un peu plus grande que les autres ? Ce n'est que s'il parvenait à franchir le quinzième palais, comme Ming Dao, que Maître envisagerait de le recruter », déclara lentement le vieil homme.
 
@@ -58,7 +58,7 @@ Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mi
 
 L'homme d'âge moyen observa la scène, stupéfait, avec un sourire amer. Il se leva et s'inclina devant les deux fillettes qui jouaient, l'air très sérieux.
 
-« Grands Empereurs Jumeaux ! »
+« Grands Empyrées Jumeaux ! »
 
 Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit Loup, dont les larmes finirent par couler.
 
@@ -66,11 +66,11 @@ Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit 
 
 « Il fait semblant ! Ce Petit Loup est désobéissant, il simule ! »
 
-L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes : « Grands Empereurs Jumeaux !!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
+L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes : « Grands Empyrées Jumeaux !!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
 
 « Petite Gu Ya, es-tu désobéissante toi aussi ? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
 
-Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel : « Grands Empereurs Jumeaux, cet homme doit être recruté ! »
+Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel : « Grands Empyrées Jumeaux, cet homme doit être recruté ! »
 
 « Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main en direction du cultivateur nommé Petit Loup, puis disparut dans la chambre de pierre avec l'autre enfant.
 
@@ -86,7 +86,7 @@ Soudain, les 99 planètes changèrent de trajectoire pour foncer vers Wang Lin. 
 
 Les yeux de Wang Lin se contractèrent. Il n'hésita pas à déployer non seulement ses corps véritables des cinq éléments et de l'essence du tonnerre, mais aussi ses trois essences éthérées. Capable de fusionner jusqu'à 23 sorts dans son corps, avec l'aide de ses corps véritables et de ses essences, il atteignit désormais un total de 92 sorts !
 
-C'était la limite de Wang Lin avant de revêtir l'armure de l'âme. Un seul coup de poing ou un simple doigt contenait 92 sorts, ce qui le rapprochait infiniment d'un Empereur Ascendant.
+C'était la limite de Wang Lin avant de revêtir l'armure de l'âme. Un seul coup de poing ou un simple doigt contenait 92 sorts, ce qui le rapprochait infiniment d'un Empyrée Ascendant.
 
 Il leva la main droite, les yeux étincelants. Une douleur vive lui traversa le bras alors qu'il se transformait en Lame Yin, et il abattit son coup sur les 99 planètes de la manière la plus directe qui soit !
 
@@ -104,9 +104,9 @@ Sous les yeux de la multitude, le neuvième palais, resté sombre durant de long
 
 « Il a passé le neuvième palais ! Après aujourd'hui, le nom de Wang Lin fera sans aucun doute trembler les cinq continents ! »
 
-« Le neuvième palais... Le neuvième palais ! Franchir le neuvième palais signifie atteindre le sommet de l'Exaltation Empirique, n'étant plus qu'à un pas d'un Empereur Ascendant. Se pourrait-il que nous assistions aujourd'hui à la naissance du 49e Empereur Ascendant ?! »
+« Le neuvième palais... Le neuvième palais ! Franchir le neuvième palais signifie atteindre le sommet de l'Exaltation Empirique, n'étant plus qu'à un pas d'un Empyrée Ascendant. Se pourrait-il que nous assistions aujourd'hui à la naissance du 49e Empyrée Ascendant ?! »
 
-« Je crains que tous les Grands Empereurs ne soient en train de surveiller cet endroit ! »
+« Je crains que tous les Grands Empyrées ne soient en train de surveiller cet endroit ! »
 
 Les cultivateurs en bas étaient tous stupéfaits. L'Exaltation Empirique Zhu Lin baissa amèrement la tête.
 

@@ -12,9 +12,9 @@ Chapitre 1946 - L'Aura de l'Omniscient !
 
 « Mon Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la cultivation.
 
-« Pourtant, le Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empereur pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de mon Secte Dong Lin…
+« Pourtant, le Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empyrée pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de mon Secte Dong Lin…
 
-« J'ai consulté les cinq Grands Empereurs et même l'Enseignant Impérial, mais aucun d'eux n'a rien trouvé. Seul l'Enseignant Impérial a craché une bouchée de sang pendant la divination, ses yeux emplis de terreur… Cependant, cette peur n'a duré qu'un instant avant d'être remplacée par la confusion…
+« J'ai consulté les cinq Grands Empyrées et même l'Enseignant Impérial, mais aucun d'eux n'a rien trouvé. Seul l'Enseignant Impérial a craché une bouchée de sang pendant la divination, ses yeux emplis de terreur… Cependant, cette peur n'a duré qu'un instant avant d'être remplacée par la confusion…
 
 « Il est resté confus pendant trois jours, et je l'ai observé durant cette période. Lorsqu'il est redevenu lucide, il avait oublié ce qu'il avait diviné pour moi. C'était comme si une force invisible avait effacé ses souvenirs de ces trois jours… » murmura le vieil homme, ses yeux empreints d'une tristesse révélant une haine et une folie inimaginables.
 
@@ -106,17 +106,17 @@ D'une voix éraillée, le vieil homme demanda : « Êtes-vous simplement de pass
 
 « Un cultivateur ne peut entrer dans le Bassin Dong Lin que deux fois. À la troisième tentative, la mort est immédiate. Peu d'étrangers savent que mon Secte Dong Lin possède ce bassin. Ceux qui le savent seraient prêts à payer n'importe quel prix pour y accéder.
 
-« Des rumeurs circulent, tant à l'intérieur qu'à l'extérieur de la secte, affirmant que le Bassin Dong Lin peut aider à former des Corps Véritables d'Essence, mais c'est faux… Si cela était vrai, mon Secte Dong Lin serait depuis longtemps la première secte du clan céleste. Nous ne pourrions pas le garder, et un Grand Empereur se l'approprierait bien avant.
+« Des rumeurs circulent, tant à l'intérieur qu'à l'extérieur de la secte, affirmant que le Bassin Dong Lin peut aider à former des Corps Véritables d'Essence, mais c'est faux… Si cela était vrai, mon Secte Dong Lin serait depuis longtemps la première secte du clan céleste. Nous ne pourrions pas le garder, et un Grand Empyrée se l'approprierait bien avant.
 
-« Malgré cela, les convoitises sont nombreuses, mais en raison de la réputation du premier ancêtre du Secte Dong Lin, le Grand Empereur Dong Lin, et du fait que le bassin est immuable et que son effet s'affaiblit avec le temps, personne n'est venu tenter de le voler. »
+« Malgré cela, les convoitises sont nombreuses, mais en raison de la réputation du premier ancêtre du Secte Dong Lin, le Grand Empyrée Dong Lin, et du fait que le bassin est immuable et que son effet s'affaiblit avec le temps, personne n'est venu tenter de le voler. »
 
-« Le Grand Empereur Dong Lin ? » Les yeux de Wang Lin se rétrécirent. C'était la première fois qu'il entendait ce nom.
+« Le Grand Empyrée Dong Lin ? » Les yeux de Wang Lin se rétrécirent. C'était la première fois qu'il entendait ce nom.
 
-« Les cinq Grands Empereurs du clan céleste ne sont pas éternels, et certains tombent… L'ancêtre de première génération de mon Secte Dong Lin était un Grand Empereur, mais il est tombé… Personne ne sait où son corps a disparu… De nombreuses personnes ont cherché ses restes, y compris certains Grands Empereurs ultérieurs, mais sans succès...
+« Les cinq Grands Empyrées du clan céleste ne sont pas éternels, et certains tombent… L'ancêtre de première génération de mon Secte Dong Lin était un Grand Empyrée, mais il est tombé… Personne ne sait où son corps a disparu… De nombreuses personnes ont cherché ses restes, y compris certains Grands Empyrées ultérieurs, mais sans succès...
 
-« Une rumeur prétend que si l'on parvient à trouver le corps de l'ancêtre, il serait possible de devenir un Grand Empereur sans subir les épreuves du Royaume Divin Immémorial… Mais ce n'est qu'une légende », dit calmement le vieil homme.
+« Une rumeur prétend que si l'on parvient à trouver le corps de l'ancêtre, il serait possible de devenir un Grand Empyrée sans subir les épreuves du Royaume Divin Immémorial… Mais ce n'est qu'une légende », dit calmement le vieil homme.
 
-Wang Lin prit une profonde inspiration. Il ne s'attendait pas à ce que le Secte Dong Lin possède un tel héritage, et qu'un Grand Empereur ait autrefois dirigé la secte !
+Wang Lin prit une profonde inspiration. Il ne s'attendait pas à ce que le Secte Dong Lin possède un tel héritage, et qu'un Grand Empyrée ait autrefois dirigé la secte !
 
 « L'effet du Bassin Dong Lin est très faible désormais. La rumeur dit qu'il aide à former un Corps Véritable, mais son véritable effet est de vous plonger dans un état singulier, vous offrant ainsi une certaine chance de comprendre l'essence spéciale appartenant au cultivateur étranger !
 

@@ -8,7 +8,7 @@ slug: planete-divine-de-loiseau-vermillon
 ---
 Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance de Cultivation, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux !
 
-Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Nettoyage du Nirvana n'oseraient même pas y poser le pied.
+Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Purificateur du Nirvana n'oseraient même pas y poser le pied.
 
 Seuls ceux ayant atteint le stade de Briseur de Nirvana avaient le courage d'y entrer. Et encore, ils devaient faire preuve d'une prudence extrême, car la moindre erreur signifiait la mort.
 

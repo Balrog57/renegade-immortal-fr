@@ -62,9 +62,9 @@ Cependant, alors que le sens divin de Wang Lin traversait la restriction et s'ap
 
 Simultanément, le dragon illusoire formé par les trois sens divins tourbillonna pour créer une tempête, tentant d'emprisonner le sens divin de Wang Lin pour l'empêcher de s'échapper.
 
-Deux des trois sens divins se situaient au début du stade Nirvana Scryer. Celui de Maître Yi Chen était au milieu du stade Nirvana Scryer. La combinaison de leurs puissances empêchait Wang Lin de s'éclipser immédiatement.
+Deux des trois sens divins se situaient au début du stade Scruteur du Nirvana. Celui de Maître Yi Chen était au milieu du stade Scruteur du Nirvana. La combinaison de leurs puissances empêchait Wang Lin de s'éclipser immédiatement.
 
-Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n'avait pas encore atteint le milieu du stade Nirvana Scryer ; il ne pouvait donc rivaliser avec eux sur ce terrain.
+Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n'avait pas encore atteint le milieu du stade Scruteur du Nirvana ; il ne pouvait donc rivaliser avec eux sur ce terrain.
 
 « Je suis Wang Lin, du Sect du Destin Céleste. J'espère que vous me pardonnerez. » Wang Lin, ayant été le premier à manquer de politesse, ne ressentit aucune colère.
 
@@ -78,7 +78,7 @@ Bai Wei n'était manifestement pas au courant, mais Wang Lin fronça les sourcil
 
 Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais qu'ils étaient employés par la Cité aux Yeux Fantômes, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
 
-En substance, tous les vieux monstres du stade Nirvana Scryer de la planète comprenaient que les trois frères assuraient la sécurité de la cité. La plupart d'entre eux évitaient de sonder avec leur sens divin par respect pour eux.
+En substance, tous les vieux monstres du stade Scruteur du Nirvana de la planète comprenaient que les trois frères assuraient la sécurité de la cité. La plupart d'entre eux évitaient de sonder avec leur sens divin par respect pour eux.
 
 L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi bon admettre une erreur une fois que la situation s'était retournée contre lui ?
 
@@ -86,7 +86,7 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 « De plus, si nous ne punissons pas sévèrement cet individu, nous n'aurons aucun moment de paix avant le début des enchères. Pour effrayer ceux qui oseraient observer avec leur sens divin, nous devons faire preuve de fermeté. »
 
-« Je vous donne trois secondes pour réfléchir ! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Nirvana Scryer ! Même si cet homme venait réellement du Sect du Destin Céleste, l'Omniscient ne se abaisserait pas à s'en occuper. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
+« Je vous donne trois secondes pour réfléchir ! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana ! Même si cet homme venait réellement du Sect du Destin Céleste, l'Omniscient ne se abaisserait pas à s'en occuper. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
 
 S'il s'était agi d'un membre du Sect de l'Épée Da Lou, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 

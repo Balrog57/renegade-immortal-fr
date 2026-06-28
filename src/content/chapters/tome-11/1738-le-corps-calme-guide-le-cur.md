@@ -54,13 +54,13 @@ Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer
 
 Un tumulte s'empara de son esprit et il ressentit une terreur inexplicable envers Wang Lin.
 
-À l'extérieur de la planète des Cinq Éléments, les yeux du Grand Empereur Xuan Luo brillaient d'une lueur étrange alors qu'il observait Wang Lin. Cette lumière s'intensifiait sans cesse. Il avait été témoin de tout ce que Wang Lin avait accompli, et son propre cœur se mit à battre la chamade.
+À l'extérieur de la planète des Cinq Éléments, les yeux du Grand Empyrée Xuan Luo brillaient d'une lueur étrange alors qu'il observait Wang Lin. Cette lumière s'intensifiait sans cesse. Il avait été témoin de tout ce que Wang Lin avait accompli, et son propre cœur se mit à battre la chamade.
 
 « Puisqu'il ne pouvait pas s'apaiser instantanément, il a d'abord calmé son corps. Utilisant son corps comme ancre pour apaiser son âme. Puis il a utilisé son âme comme guide pour apaiser son âme originelle. Son âme originelle a ensuite saisi le cœur pour l'apaiser... »
 
 « Par extension du calme du corps, de l'âme et de l'âme originelle, le cœur finit naturellement par s'apaiser... Il est rare qu'un être conçoive une telle méthode en un temps si court ! Une telle compréhension est exceptionnelle ! »
 
-« Je prendrai cet enfant pour disciple ! » Le Grand Empereur Xuan Luo laissa éclater un enthousiasme qu'il n'avait pas montré depuis dix mille ans.
+« Je prendrai cet enfant pour disciple ! » Le Grand Empyrée Xuan Luo laissa éclater un enthousiasme qu'il n'avait pas montré depuis dix mille ans.
 
 Le huitième souffle du neuvième cycle !
 
@@ -78,11 +78,11 @@ S'il l'avait voulu, il lui suffisait de faire un pas en avant pour sortir de la 
 
 Sous l'impulsion de son geste, la planète des Cinq Éléments, qui était immobile, se remit à tourner. Cependant, cette fois, elle tournait en sens inverse !
 
-Alors que la rotation s'inversait, le Grand Empereur Xuan Luo éclata de rire, rempli d'admiration pour Wang Lin.
+Alors que la rotation s'inversait, le Grand Empyrée Xuan Luo éclata de rire, rempli d'admiration pour Wang Lin.
 
 « Cet enfant a mon tempérament. Très bien, très bien ! »
 
-Au même instant, à l'opposé de la joie du Grand Empereur Xuan Luo, les cultivateurs sur la planète des Cinq Éléments subissaient un sort funeste. Ils regardaient le ciel, mais les nuages se dissipèrent soudainement et l'azur changea radicalement. Le ciel ne fut plus bleu ni lumineux ; il fut remplacé par le vide spatial entourant la planète !
+Au même instant, à l'opposé de la joie du Grand Empyrée Xuan Luo, les cultivateurs sur la planète des Cinq Éléments subissaient un sort funeste. Ils regardaient le ciel, mais les nuages se dissipèrent soudainement et l'azur changea radicalement. Le ciel ne fut plus bleu ni lumineux ; il fut remplacé par le vide spatial entourant la planète !
 
 Tous les cultivateurs de la Secte Gui Yi virent une planète flotter dans ce vide. C'était la planète des Cinq Éléments !
 

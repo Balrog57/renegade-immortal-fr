@@ -98,13 +98,13 @@ La belle femme répliqua avec colère : « Si ce n'était pas à cause de vous, 
 
 La puissance du Maître du Vide exerçait une pression insoutenable sur Wang Lin !
 
-Bien qu'il ait atteint le sommet de l'étape Nirvana Scryer et possède un corps de Dieu Ancien, il n'était pas de taille face au Maître du Vide. Après tout, ce dernier était un cultivateur au stade Nirvana Shatterer !
+Bien qu'il ait atteint le sommet de l'étape Scruteur du Nirvana et possède un corps de Dieu Ancien, il n'était pas de taille face au Maître du Vide. Après tout, ce dernier était un cultivateur au stade Briseur du Nirvana !
 
 La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais le Maître du Vide l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent : « Jeune homme, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance : sors d'ici et attire cette chose humanoïde loin de nous ! »
 
 Bien que les paroles du Maître du Vide semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible ; des milliers d'ondulations invisibles apparurent soudainement.
 
-Elles surgirent avec une rapidité fulgurante. Dès leur apparition, elles libérèrent la puissance brute d'un cultivateur Nirvana Shatterer, fonçant à une vitesse inimaginable vers la poitrine de Wang Lin.
+Elles surgirent avec une rapidité fulgurante. Dès leur apparition, elles libérèrent la puissance brute d'un cultivateur Briseur du Nirvana, fonçant à une vitesse inimaginable vers la poitrine de Wang Lin.
 
 À cet instant précis, une lueur bleue jaillit de l'œil droit de Wang Lin et un bouclier de lumière azur apparut devant lui. Les ondulations percutèrent le bouclier dans une explosion assourdissante qui sembla déchirer le monde.
 
@@ -114,6 +114,6 @@ Alors que le bouclier était enfoncé, une ondulation pénétra son corps. Elle 
 
 Tout cela se produisit si vite que même la belle femme fut stupéfaite et les pupilles de l'homme en noir se contractèrent.
 
-Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été empreinte de sa pleine puissance, elle aurait aisément pu terrasser un cultivateur Nirvana Scryer !
+Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été empreinte de sa pleine puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana !
 
 Il songea qu'avec un tel coup, l'éventuel Empereur Divin de l'Oiseau Vermillon mourrait à coup sûr, entraînant l'Oiseau Vermillon dans sa chute.

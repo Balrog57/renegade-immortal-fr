@@ -28,7 +28,7 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Toi... Quand t'es-tu séparé du Serpent Moongazer ? » demanda Wang Lin.
 
-« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent Moongazer », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
+« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent Moongazer », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyrée et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 
@@ -82,11 +82,11 @@ Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long
 
 « Je vais poursuivre ma cultivation en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
 
-Jusqu'ici, le Grand Empereur Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
+Jusqu'ici, le Grand Empyrée Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
 
-Malgré l'appel de l'Empereur de l'Ancient Dao, le Grand Empereur Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres de l'Ancient Dao ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
+Malgré l'appel de l'Empereur de l'Ancient Dao, le Grand Empyrée Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres de l'Ancient Dao ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
 
-Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire : si le Grand Empereur Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter !
+Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire : si le Grand Empyrée Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter !
 
 Les chances d'échec étaient immenses, mais le combat était inévitable !
 

@@ -10,7 +10,7 @@ Le moral de Wang Lin était quelque peu pesant. Le regard du vieux Divin Empereu
 
 Alors que Wang Lin avançait, presque tous les cultivateurs des planètes qu’il croisait s'envolaient pour l'acclamer. Les cris de « Divin Empereur ! » faisaient trembler le ciel.
 
-Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres du Secte Divin de l'Oiseau Vermillon avaient nourris pendant d'innombrables années.
+Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres du Secte Divine de l'Oiseau Vermillon avaient nourris pendant d'innombrables années.
 
 De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres du Secte de l'Oiseau Vermillon se mettaient en marche derrière lui.
 
@@ -24,7 +24,7 @@ Le sourire de Wang Lin s'élargit. Les blessures de Situ Nan avaient guéri et s
 
 La femme en argent et Maître Hollow Wind suivirent Situ Nan. La femme en argent restait silencieusement dans l'ombre de Wang Lin. Quant à Maître Hollow Wind, bien que son expression fût empreinte de respect, la joie qui brillait dans ses yeux venait du plus profond de son cœur.
 
-Enfin, lorsque Wang Lin atteignit la dernière planète du Secte Divin de l'Oiseau Vermillon, le nombre de membres du secteur était suffisant pour occulter le ciel.
+Enfin, lorsque Wang Lin atteignit la dernière planète du Secte Divine de l'Oiseau Vermillon, le nombre de membres du secteur était suffisant pour occulter le ciel.
 
 « Divin Empereur ! »
 
@@ -32,7 +32,7 @@ Enfin, lorsque Wang Lin atteignit la dernière planète du Secte Divin de l'Oise
 
 Les rugissements tonitruants qui résonnèrent remplacèrent tout autre son dans la voûte étoilée.
 
-La planète principale finale du Secte Divin de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres du secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
+La planète principale finale du Secte Divine de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres du secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
 
 Près de lui, Liao Yun regardait Ren Tao avec dédain. Il s'élança dans les airs vers Wang Lin, qui était entouré d'une foule immense, et dit respectueusement : « Liao Yun salue le Divin Empereur ! » Il était empreint de révérence. Personne ne connaissait mieux Wang Lin que ceux qui s'étaient rendus sur la Terre des Esprits Démoniaques, et il en faisait partie.
 
@@ -46,11 +46,11 @@ Les visages sombres de Ren Tao, des quelques anciens et des autres fidèles, for
 
 Ren Tao redressa brusquement la tête pour fixer Wang Lin, qui souriait avec la foule, et hurla : « Wang Lin, je te défie ! » Il n'avait pas le choix. Si Wang Lin poursuivait ainsi, il n'aurait plus aucune chance de devenir le Divin Empereur.
 
-Au sein du Secte Divin de l'Oiseau Vermillon, le Divin Empereur était un dieu ! Quiconque osait s'opposer à lui devenait l'ennemi de tout le secte. Cependant, il existait une loi au sein du Secte qui donnait à Ren Tao l'audace de défier Wang Lin !
+Au sein du Secte Divine de l'Oiseau Vermillon, le Divin Empereur était un dieu ! Quiconque osait s'opposer à lui devenait l'ennemi de tout le secte. Cependant, il existait une loi au sein du Secte qui donnait à Ren Tao l'audace de défier Wang Lin !
 
 Ce rugissement traversa les étoiles et imposa immédiatement le silence. Tous les regards se tournèrent vers Ren Tao.
 
-Certains anciens du Secte Divin de l'Oiseau Vermillon étaient présents. Leur tâche consistait à aider Wang Lin à assumer sereinement son rôle de Divin Empereur ; ils ne toléreraient aucun signe de rébellion.
+Certains anciens du Secte Divine de l'Oiseau Vermillon étaient présents. Leur tâche consistait à aider Wang Lin à assumer sereinement son rôle de Divin Empereur ; ils ne toléreraient aucun signe de rébellion.
 
 C'était un arrêt de mort envoyé par le vieux Divin Empereur !
 
@@ -58,9 +58,9 @@ Le front de Ren Tao était couvert de sueur et les yeux de tous étaient rivés 
 
 Les trois vieillards derrière Ren Tao firent un pas en avant pour l'entourer, puis ils fixèrent les divers anciens parmi la foule.
 
-« Ren Tao, oses-tu ?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur ? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Nirvana Shatterer qui s'était trouvé sur la Terre des Esprits Démoniaques.
+« Ren Tao, oses-tu ?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur ? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre des Esprits Démoniaques.
 
-« Ancien Zhou, les lois de mon Secte Divin de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai ? »
+« Ancien Zhou, les lois de mon Secte Divine de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai ? »
 
 « Idiot téméraire ! » Un éclair de froideur passa dans les yeux de l'Ancien Zhou. Il ricana mais n'intervint pas et recula de quelques pas.
 
@@ -68,7 +68,7 @@ Non seulement ce vieil homme, mais à cet instant, parmi la multitude, ceux qui 
 
 Sous ces regards, l'esprit de Ren Tao ne put s'empêcher de vaciller. Il avait beaucoup entendu parler des prouesses de Wang Lin sur la Terre des Esprits Démoniaques trois ans auparavant, mais il n'y avait pas cru.
 
-En cet instant, il voyait clairement que Wang Lin n'était qu'au sommet du stade Nirvana Scryer, ce qui le confortait dans son scepticisme. Il s'apprêtait à parler quand, soudain, le regard glacial de Wang Lin se verrouilla sur lui.
+En cet instant, il voyait clairement que Wang Lin n'était qu'au sommet du stade Scruteur du Nirvana, ce qui le confortait dans son scepticisme. Il s'apprêtait à parler quand, soudain, le regard glacial de Wang Lin se verrouilla sur lui.
 
 Dès que ce regard tomba sur lui, le corps de Ren Tao trembla et un frisson l'envahit le cœur. Même les yeux des trois anciens derrière lui se plissèrent.
 
@@ -76,9 +76,9 @@ Dès que ce regard tomba sur lui, le corps de Ren Tao trembla et un frisson l'en
 
 Ils n'avaient jamais oublié ce pouvoir qui déchirait les ténèbres de la nuit et ce poing capable de briser le firmament lors du Rêve des Temps Anciens.
 
-L'esprit de Ren Tao trembla plus intensément encore, envahi par un pressentiment funeste. Pourtant, il ne pouvait reculer maintenant. Après une dernière vérification minutieuse, il confirma que Wang Lin n'était effectivement qu'au sommet du stade Nirvana Scryer. Le visage sombre, il serra les dents et déclara : « Je relève le défi ! »
+L'esprit de Ren Tao trembla plus intensément encore, envahi par un pressentiment funeste. Pourtant, il ne pouvait reculer maintenant. Après une dernière vérification minutieuse, il confirma que Wang Lin n'était effectivement qu'au sommet du stade Scruteur du Nirvana. Le visage sombre, il serra les dents et déclara : « Je relève le défi ! »
 
-Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps de Dieu Ancien, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Nirvana Cleanser avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Nirvana Shatterer ! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
+Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps de Dieu Ancien, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Purificateur du Nirvana avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Briseur du Nirvana ! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
 
 S'il y avait une différence, c'était que ce corps puissant permettrait à l'endurance de Wang Lin de dépasser toutes les espérances !
 
@@ -86,7 +86,7 @@ Il n'était même pas nécessaire d'évoquer la Nuit Déchirée, qu'il ne pouvai
 
 Non seulement la Nuit Déchirée avait tué Maître Vide, mais deux avatars de l'Omniscient avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain !
 
-« Quoi qu'il en soit, tu es un membre du Secte Divin de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes ! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
+« Quoi qu'il en soit, tu es un membre du Secte Divine de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes ! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
 
 « Neuf Transformations Mystérieuses ! » Dès l'apparition de cet esprit, une agitation immense parcourut les membres du secte. Des regards encore plus exaltés se tournèrent vers Wang Lin !
 
@@ -126,6 +126,6 @@ Du début à la fin, Wang Lin était resté calme. Il n'était pas déçu par le
 
 « C'était peut-être plus efficace que prévu, car cela a fusionné avec le tonnerre... »
 
-Le regard de Wang Lin balaya la foule et se posa sur les trois vieillards derrière Ren Tao. L'un d'eux était au début du stade Nirvana Shatterer et les deux autres étaient à la fin du stade Nirvana Cleanser.
+Le regard de Wang Lin balaya la foule et se posa sur les trois vieillards derrière Ren Tao. L'un d'eux était au début du stade Briseur du Nirvana et les deux autres étaient à la fin du stade Purificateur du Nirvana.
 
 « Voulez-vous, vous aussi, me défier ? » Une flamme blanche apparut dans l'œil droit de Wang Lin alors qu'il fixait les trois vieillards.

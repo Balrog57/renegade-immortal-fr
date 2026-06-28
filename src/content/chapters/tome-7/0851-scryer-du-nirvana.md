@@ -1,6 +1,6 @@
 ---
 n: 851
-title: Scryer du Nirvana
+title: Scruteur du Nirvana
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 851 - Nirvana Scryer
@@ -48,9 +48,9 @@ Une aura brumeuse envahit les lieux lors de la réapparition de Wang Lin. Toute 
 
 Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la cultivation de Wang Lin franchit un nouveau palier !
 
-Le stade Scryer du Nirvana !
+Le stade Scruteur du Nirvana !
 
-Un fracas assourdissant résonna dans cet espace brumeux alors que Wang Lin accédait au stade Scryer du Nirvana. Son corps commença à flotter et ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Une aura puissante émanait de lui tandis que les flux du Yin et du Yang tournaient. Un vortex se forma, déchaîné autour de lui.
+Un fracas assourdissant résonna dans cet espace brumeux alors que Wang Lin accédait au stade Scruteur du Nirvana. Son corps commença à flotter et ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Une aura puissante émanait de lui tandis que les flux du Yin et du Yang tournaient. Un vortex se forma, déchaîné autour de lui.
 
 D'immenses quantités de brume reculèrent sous cette tempête comme si elles étaient repoussées par une force invincible. Même l'énergie brûlante se dissipa, n'osant s'approcher de lui.
 
@@ -60,7 +60,7 @@ Un éclair de froideur traversa son regard alors qu'il levait la tête vers le c
 
 Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds ; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de tribulation divine ! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Nettoyage du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa cultivation avait régressé au milieu du stade Scryer du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de tribulation divine ! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa cultivation avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
 
 Aussi s'efforçait-il, il ne parvenait à rien se remémorer.
 

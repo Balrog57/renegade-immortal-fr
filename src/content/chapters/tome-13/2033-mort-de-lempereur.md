@@ -60,7 +60,7 @@ Wang Lin resta silencieux et leva la main droite. À ce geste, l'ombre de l'Anc�
 
 Le visage de l'Empereur devint cendré et il poussa un cri déchirant : « NON ! »
 
-« Grand Empereur Gu Dao, sauvez-moi ! Père, sauvez-moi ! Ancêtre, sauvez-moi ! Maître Impérial, sauvez-moi ! » rugissait l'Empereur de terreur.
+« Grand Empyrée Gu Dao, sauvez-moi ! Père, sauvez-moi ! Ancêtre, sauvez-moi ! Maître Impérial, sauvez-moi ! » rugissait l'Empereur de terreur.
 
 Alors qu'il implorait son ancêtre, profondément sous le palais, dans une chambre secrète recouverte de runes, un cercueil violet reposait dans les profondeurs de la terre.
 

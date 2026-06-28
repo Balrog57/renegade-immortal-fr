@@ -60,7 +60,7 @@ En tant que maîtresse raffineuse, elle songea : « Les matériaux de ces 27 ép
 
 Le vieil homme assis sur la gourde se leva soudainement. Il fixa Wang Lin, et une immense vague déferla dans son cœur !
 
-« Il n'est certainement pas au stade initial du Nirvana Scryer ! »
+« Il n'est certainement pas au stade initial du Scruteur du Nirvana ! »
 
 Quant au vieil homme ressemblant à une montagne de chair, son esprit trembla. Il fixa les 27 épées et l'indifférence de Wang Lin. De la sueur froide perla sur son front.
 
@@ -82,7 +82,7 @@ Sous la force du coup, les quatre épées d'origine de Ling Tianhou furent toute
 
 Cette scène fut un choc pour quiconque la vit !
 
-Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Nirvana Cleanser, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts !
+Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Purificateur du Nirvana, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts !
 
 Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita ; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria : « Tu es digne que ce vieil homme utilise des sorts ! Je ne connais que trois sortilèges : Sacrifice, Trou, Brise ! Épée de sacrifice, première phase, invocation par le sang ! »
 

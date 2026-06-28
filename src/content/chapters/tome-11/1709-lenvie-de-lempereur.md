@@ -8,13 +8,13 @@ slug: lenvie-de-lempereur
 ---
 Chapitre 1709 - L'Envie de l'Empereur !
 
-À travers les âges, parmi les trois clans du pays antique du Continent Astral Immortel, nul n'avait franchi cette étape ! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empereurs, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
+À travers les âges, parmi les trois clans du pays antique du Continent Astral Immortel, nul n'avait franchi cette étape ! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empyrées, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
 
 Ils admiraient l'Ancêtre Suprême avec une ferveur presque religieuse ; il était leur ciel !
 
 Peu importe leur arrogance, ils n'osaient montrer le moindre manque de respect envers l'Ancêtre Suprême. C'était un sentiment inculqué dès la naissance. Tous ceux qui les entouraient étaient semblables.
 
-Même le Grand Empereur Xuan Luo était ainsi. Cela témoignait de l'impact colossal de cette figure !
+Même le Grand Empyrée Xuan Luo était ainsi. Cela témoignait de l'impact colossal de cette figure !
 
 Cependant, Wang Lin était différent. Il se déplaça tel un rayon de lumière pour converger vers le vortex en pleine dissipation. Sa silhouette dégageait une force inflexible, une tyrannie sans limites et une nature puissante et indomptable !
 
@@ -66,7 +66,7 @@ L'expression de l'homme en robe royale changea pour la première fois. Il fixa l
 
 « Comment est-ce possible ? ! Cela devait s'arrêter, comment cela peut-il arriver ? Ceci... ceci... »
 
-Seul le jeune homme aux cheveux noirs, le Grand Empereur Xuan Luo, esquissa un sourire. Ses yeux brillaient d'une lueur étrange tandis qu'il contemplait la statue en silence.
+Seul le jeune homme aux cheveux noirs, le Grand Empyrée Xuan Luo, esquissa un sourire. Ses yeux brillaient d'une lueur étrange tandis qu'il contemplait la statue en silence.
 
 Tandis que près d'un million de membres du clan ancien étaient stupéfaits, la lumière sanguine se concentra entre les sourcils de la statue et une cinquième goutte de sang s'en échappa !
 
@@ -84,15 +84,15 @@ La lumière sanguine devint de nouveau monstrueuse, et cette fois, la sixième g
 
 « Pas six gouttes, il y en a sept ! »
 
-Alors que la lumière sanguine s'intensifiait, la foule entra en effervescence. Le visage de l'homme en robe royale vira au violet alors que la septième goutte apparaissait ! Et ce qui fut encore plus incroyable, c'est qu'au moment où le Grand Empereur Xuan Luo éclata de rire, la huitième goutte apparut ! !
+Alors que la lumière sanguine s'intensifiait, la foule entra en effervescence. Le visage de l'homme en robe royale vira au violet alors que la septième goutte apparaissait ! Et ce qui fut encore plus incroyable, c'est qu'au moment où le Grand Empyrée Xuan Luo éclata de rire, la huitième goutte apparut ! !
 
-Huit gouttes de sang ! Même le Grand Empereur Xuan Luo n'en avait obtenu que huit !
+Huit gouttes de sang ! Même le Grand Empyrée Xuan Luo n'en avait obtenu que huit !
 
 Les spectateurs étaient proches de la folie, fixant la statue avec effroi. L'homme en robe royale se lécha inconsciemment les lèvres, une lueur de froideur presque imperceptible traversant son regard.
 
-« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang ? Je suis le véritable descendant de l'Ancêtre Suprême, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle ! ! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empereur Xuan Luo voir son trouble.
+« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang ? Je suis le véritable descendant de l'Ancêtre Suprême, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle ! ! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empyrée Xuan Luo voir son trouble.
 
-Il dissimula son expression sombre sous un sourire. Tournant son visage vers le jeune homme aux cheveux noirs, il dit : « Félicitations, Oncle. Il semble que cet enfant devienne votre unique disciple. Peut-être qu'un jour, il surpassera l'Oncle et deviendra un nouveau Grand Empereur pour le clan Dao. »
+Il dissimula son expression sombre sous un sourire. Tournant son visage vers le jeune homme aux cheveux noirs, il dit : « Félicitations, Oncle. Il semble que cet enfant devienne votre unique disciple. Peut-être qu'un jour, il surpassera l'Oncle et deviendra un nouveau Grand Empyrée pour le clan Dao. »
 
 Le cœur de l'homme en robe royale était sinistre. Bien que ses paroles semblassent élogieuses, elles étaient chargées de sous-entendus. Pourtant, son ton ne trahissait aucune fausseté, comme s'il parlait réellement avec joie. Il était difficile d'y déceler la moindre malveillance.
 
@@ -102,7 +102,7 @@ Sous ce regard, l'homme en robe royale frissonna. Alors qu'il s'apprêtait à pa
 
 La neuvième goutte se forma lentement sous ce fracas qui ébranlait les cieux !
 
-La neuvième goutte de sang fit briller les yeux du Grand Empereur Xuan Luo. La joie qui rayonnait de son regard était manifeste pour tous !
+La neuvième goutte de sang fit briller les yeux du Grand Empyrée Xuan Luo. La joie qui rayonnait de son regard était manifeste pour tous !
 
 Cependant, ce n'était pas la fin. Après la neuvième goutte, la lumière sanguine se rassembla une fois de plus. Alors que tout le monde retenait son souffle, la dixième goutte montra des signes d'apparition !
 
@@ -118,7 +118,7 @@ Cette goutte n'était pas rouge, mais violette ! ! À l'instant où cette goutt
 
 « Le Sang de l'Âme de l'Ancêtre Suprême ! ! C'est... c'est du Sang de l'Âme ! !! C'est impossible, impossible... »
 
-L'expression du Grand Empereur changea elle aussi pour la première fois. Il fixa la goutte violette, le choc se lisant dans son regard. S'il n'avait pas été troublé par la neuvième goutte, il l'était totalement à cet instant précis.
+L'expression du Grand Empyrée changea elle aussi pour la première fois. Il fixa la goutte violette, le choc se lisant dans son regard. S'il n'avait pas été troublé par la neuvième goutte, il l'était totalement à cet instant précis.
 
 « Ancêtre Suprême... En envoyant une goutte de Sang de l'Âme, cela pourrait-il signifier quelque chose... Le Sang de l'Âme, ce Sang de l'Âme... À travers les âges, seules neuf gouttes de Sang de l'Âme sont apparues. Trois gouttes de Sang de l'Âme ont créé l'un des clans anciens... »
 
@@ -126,7 +126,7 @@ L'expression du Grand Empereur changea elle aussi pour la première fois. Il fix
 
 Le jeune homme aux cheveux noirs prit une profonde inspiration. Sa main droite pointa vers le ciel et les couleurs du monde basculèrent. Un immense soleil rouge apparut, enveloppant la zone et empêchant quiconque de l'extérieur de voir ce qui s'y déroulait !
 
-« Je scelle cet endroit avec mon Soleil Empyréen ! Membres de mon clan Dao, ne révélez jamais cette affaire. Quiconque violera ce secret mourra, quelle que soit son identité ! » déclara lentement le Grand Empereur Xuan Luo. Il se retourna et jeta un regard profond à l'homme en robe royale.
+« Je scelle cet endroit avec mon Soleil Empyréen ! Membres de mon clan Dao, ne révélez jamais cette affaire. Quiconque violera ce secret mourra, quelle que soit son identité ! » déclara lentement le Grand Empyrée Xuan Luo. Il se retourna et jeta un regard profond à l'homme en robe royale.
 
 « As-tu entendu ? »
 

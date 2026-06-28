@@ -58,7 +58,7 @@ Comparée à la deuxième calamité de la troisième épreuve, la troisième n'�
 
 Il pouvait s'agir d'un fragment de mémoire, peut-être d'un sortilège incomplet, ou encore d'une parcelle de sang de l'Ancêtre extrêmement pur... Il existait même une infime chance qu'il s'agisse de sang d'âme...
 
-Cependant, cette probabilité n'était qu'une rumeur inventée par les générations futures. On disait que même le Grand Empereur Gu Dao n'avait pas obtenu de sang d'âme lors de sa Bénédiction.
+Cependant, cette probabilité n'était qu'une rumeur inventée par les générations futures. On disait que même le Grand Empyrée Gu Dao n'avait pas obtenu de sang d'âme lors de sa Bénédiction.
 
 Il se murmurait toutefois que ce que Gu Dao avait obtenu était extraordinaire, mais personne ne savait de quoi il s'agissait.
 

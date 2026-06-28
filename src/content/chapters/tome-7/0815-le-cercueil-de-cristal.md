@@ -48,7 +48,7 @@ La complexité de ce motif dépassait l'entendement. Les yeux de cet homme robus
 
 Il regarda le dos de l'homme robuste et ses yeux exprimèrent un soupçon de regret.
 
-« Malheureusement, il ne pourra atteindre que le sommet du stade Yang Corporel et ne parviendra pas à percer vers le stade Scryer du Nirvana ! » Le corps de Wang Lin bougea et, lorsqu'il réapparut, il se tenait sur l'épaule du géant. Ce dernier marcha vers les membres du Clan de l'Immortel Élu.
+« Malheureusement, il ne pourra atteindre que le sommet du stade Yang Corporel et ne parviendra pas à percer vers le stade Scruteur du Nirvana ! » Le corps de Wang Lin bougea et, lorsqu'il réapparut, il se tenait sur l'épaule du géant. Ce dernier marcha vers les membres du Clan de l'Immortel Élu.
 
 « Je ne m'attendais pas à ce que la consommation de tant de jades célestes aide non seulement le corps de Ta Shan à récupérer, mais lui permette aussi de progresser d'un cran. Le fantôme céleste fut crucial. Sans lui, l'étape suivante aurait échoué immédiatement. »
 

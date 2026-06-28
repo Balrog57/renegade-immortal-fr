@@ -114,7 +114,7 @@ L'expression de Tang Jia devint complexe et elle reprit sa course. Cependant, so
 
 Ce n'est qu'après le départ de Tang Jia que Yun Yifeng se retourna et s'agenouilla devant le grand hall.
 
-« Maître de Secte, vous devez donner des explications à ce disciple ! Ce disciple a déjà informé la secte de l'identité de Wang Lin et de son lien avec le Grand Empereur Xuan Luo... »
+« Maître de Secte, vous devez donner des explications à ce disciple ! Ce disciple a déjà informé la secte de l'identité de Wang Lin et de son lien avec le Grand Empyrée Xuan Luo... »
 
 Un long silence régna dans le grand hall, puis un soupir de lassitude résonna.
 

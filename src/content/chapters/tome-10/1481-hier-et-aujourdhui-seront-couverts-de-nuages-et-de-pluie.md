@@ -34,7 +34,7 @@ Wang Lin avait cultivé une fusion entre le Dao et les sorts, utilisant ces dern
 
 À cet instant, le corps de Xie Qing était extrêmement fragile, si faible qu'une simple épée volante suffirait à l'anéantir. Son corps était semblable à une lampe à huile épuisée, mais il débordait d'une telle vitalité qu'il restait en vie !
 
-Bien que son enveloppe charnelle fût fragile, ces 800 ans de méditation avaient permis à Xie Qing d'atteindre une compréhension du domaine dépassant de loin celle de n'importe quel cultivateur ordinaire ! Dans un affrontement de domaines, même les cultivateurs du Nirvana Scryer ne pourraient rivaliser avec lui ! Son domaine avait atteint le niveau du Nirvana Cleanser et il avait entrevu les lois !
+Bien que son enveloppe charnelle fût fragile, ces 800 ans de méditation avaient permis à Xie Qing d'atteindre une compréhension du domaine dépassant de loin celle de n'importe quel cultivateur ordinaire ! Dans un affrontement de domaines, même les cultivateurs du Scruteur du Nirvana ne pourraient rivaliser avec lui ! Son domaine avait atteint le niveau du Purificateur du Nirvana et il avait entrevu les lois !
 
 C'était une voie de cultivation inexistante dans ce monde. À l'instar des Dieux Anciens qui ne cultivaient que leur corps, Xie Qing ne cultivait que son domaine ! Il n'y avait ni âme originelle ni Âme Naissante dans son corps ; il ne possédait pas les âmes qu'un cultivateur est censé avoir. Il ne possédait qu'une âme vibrante de vitalité !
 

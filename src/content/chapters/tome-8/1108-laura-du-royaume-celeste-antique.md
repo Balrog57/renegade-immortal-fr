@@ -82,7 +82,7 @@ C'est là que la lumière vert-noir était apparue !
 
 Quant à Wang Lin, il regagna rapidement la zone contrôlée par les Quatre Sectes Divins avant de ralentir sa course. Il ne cessait de rejouer la scène qu'il venait de vivre, et plus particulièrement l'image de ce jeune homme qui l'avait tant troublé.
 
-« Qui est-il... ? » Les yeux de Wang Lin trahissaient une crainte alors qu'il scrutait le ciel sombre derrière lui. Il s'élança et des ondulations apparurent avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur du Secte Divin de l'Oiseau Vermillon.
+« Qui est-il... ? » Les yeux de Wang Lin trahissaient une crainte alors qu'il scrutait le ciel sombre derrière lui. Il s'élança et des ondulations apparurent avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur du Secte Divine de l'Oiseau Vermillon.
 
 Il n'entra pas dans le champ d'étoiles ardent mais choisit une planète abandonnée. Wang Lin s'installa sur une montagne de cette planète.
 
@@ -100,11 +100,11 @@ Quinze minutes plus tard, Wang Lin retira son Sens Divin et sourit.
 
 « Je peux utiliser cette âme originelle comme guide en employant le sortilège du Frère Aîné Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer Nuageuse sera mon ultime recours ! »
 
-Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda le Secte Divin de l'Oiseau Vermillon et murmura : « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Allheaven, le Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en pleine tempête... »
+Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda le Secte Divine de l'Oiseau Vermillon et murmura : « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Allheaven, le Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en pleine tempête... »
 
 « En vérité, vous n'avez deviné que la moitié. Mon autre objectif est de vous conduire tous vers la Terre du Dieu Antique, afin qu'aucun d'entre vous ne puisse saboter le plan des Quatre Sectes Divins visant à sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie ! »
 
-« Je me demande combien d'entre vous ont percé à jour mon stratagème ! » Wang Lin, animé par une pointe de fierté, se dirigea vers le Secte Divin de l'Oiseau Vermillon.
+« Je me demande combien d'entre vous ont percé à jour mon stratagème ! » Wang Lin, animé par une pointe de fierté, se dirigea vers le Secte Divine de l'Oiseau Vermillon.
 
 Il allait retrouver Wang Wei et Hu Juan, ainsi que le Démon Ancien Ta Jia, qui était scellé par le trésor sacré.
 

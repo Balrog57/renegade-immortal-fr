@@ -70,6 +70,6 @@ Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles 
 
 « Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin qu'il a laissé lors du scellement de l'Ancêtre Sainte du clan des Tatouages. Il est dépourvu d'intelligence, de souvenirs et de sorts ; il ne possède que l'instinct d'empêcher cet Ancêtre Sainte de s'échapper ! » L'esprit du Maître du Vide fut ébranlé. À son niveau de cultivation, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel ; si fragile qu'un souffle pourrait l'anéantir.
 
-À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans le Secte Divin de l'Oiseau Vermillon !
+À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans le Secte Divine de l'Oiseau Vermillon !
 
 Tout cela n'était dû qu'à l'éveil de l'Oiseau Vermillon !

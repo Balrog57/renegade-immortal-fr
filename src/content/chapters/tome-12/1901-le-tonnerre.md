@@ -56,7 +56,7 @@ Le tonnerre tournait lentement autour du corps véritable en émettant des craqu
 
 Une infime aura s'échappa du temple et se propagea instantanément à travers tout le Continent du Démon Vert. Chaque créature vivante trembla, saisie par l'illusion qu'elle allait être anéantie.
 
-Cependant, à l'instant même où cette once d'aura apparut, elle disparut aussitôt. Tout se passa en un éclair, sans attirer l'attention d'un seul Grand Empereur !
+Cependant, à l'instant même où cette once d'aura apparut, elle disparut aussitôt. Tout se passa en un éclair, sans attirer l'attention d'un seul Grand Empyrée !
 
 « Si ce tonnerre explose, le Continent du Démon Vert... » Wang Lin ressentait rarement la peur, mais cette fois, il tremblait devant le tonnerre qu'il avait lui-même créé !
 
@@ -88,7 +88,7 @@ Le doute s'effaça des yeux de Wang Lin, remplacé par une détermination farouc
 
 L'apparition du tonnerre de massacre dépassait son imagination. Il sentit son cœur rater un battement lors de sa manifestation. Une partie de ce choc venait du tonnerre lui-même, mais c'étaient les changements qu'il déclenchait qui le bouleversaient réellement.
 
-Ces mutations ne pouvaient être ressenties par personne d'autre, pas même par un Grand Empereur. Seul Wang Lin pouvait les percevoir, car elles étaient son œuvre et contenaient son essence et sa volonté !
+Ces mutations ne pouvaient être ressenties par personne d'autre, pas même par un Grand Empyrée. Seul Wang Lin pouvait les percevoir, car elles étaient son œuvre et contenaient son essence et sa volonté !
 
 Wang Lin cessa de songer à cela. Atteint le stade avancé du Vide Arcanique, il tourna son regard vers les trois dernières essences éthérées !
 
@@ -98,9 +98,9 @@ Une fois que ces trois essences fusionneraient en une seule, ses neuf essences d
 
 Après avoir franchi ces neuf tribulations, il entrerait dans le royaume des cultivateurs de la Tribulation du Vide !
 
-Avec sa capacité de combat, s'il atteignait le début du stade de la Tribulation du Vide, il pourrait affronter des cultivateurs au sommet de ce même stade. Il pourrait même devenir le numéro un sous les Grands Empereurs !
+Avec sa capacité de combat, s'il atteignait le début du stade de la Tribulation du Vide, il pourrait affronter des cultivateurs au sommet de ce même stade. Il pourrait même devenir le numéro un sous les Grands Empyrées !
 
-En d'autres termes, il deviendrait l'équivalent d'un demi-Grand Empereur !
+En d'autres termes, il deviendrait l'équivalent d'un demi-Grand Empyrée !
 
 Une telle puissance ferait de lui un être sans limite, que personne ne pourrait comploter contre lui ou manipuler avec aisance !
 

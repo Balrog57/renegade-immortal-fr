@@ -54,11 +54,11 @@ Les deux femmes cultivatrices au début de la Tribulation du Vide ne ressentiren
 
 Elles ignoraient tout, mais lorsque les quatre messagers du Continent du Démon Vert virent le soleil, leurs visages devinrent extrêmement livides. Une terreur profonde s'empara de leurs cœurs.
 
-« C'est un sortilège de la foi... Au-delà des sorts et des sorts Dao, un sortilège de la foi que seuls les Grands Empereurs peuvent utiliser ! ! »
+« C'est un sortilège de la foi... Au-delà des sorts et des sorts Dao, un sortilège de la foi que seuls les Grands Empyrées peuvent utiliser ! ! »
 
 « C'est indubitablement un sortilège de la foi ! ! Une fois que le soleil contiendra assez de foi, il se transformera en l'art le plus puissant, encore plus difficile à obtenir que les sorts Dao ! »
 
-« Seuls les neuf Grands Empereurs peuvent manier les sorts de la foi. La rumeur dit qu'ils ne peuvent être hérités. Chaque sort de la foi est créé par les Grands Empereurs eux-mêmes ! ! »
+« Seuls les neuf Grands Empyrées peuvent manier les sorts de la foi. La rumeur dit qu'ils ne peuvent être hérités. Chaque sort de la foi est créé par les Grands Empyrées eux-mêmes ! ! »
 
 « Qui est cet individu ? ! Comment peut-il utiliser un sort de la foi ? Bien que la foi ne soit pas encore puissante, elle est bien là ! ! »
 
@@ -78,13 +78,13 @@ Sorts, sorts Dao, sorts de la foi !
 
 Ces trois catégories correspondent aux deux métamorphoses des domaines. Les sorts correspondent aux domaines, les sorts Dao aux essences, et les sorts de la foi à la foi !
 
-Cependant, ce dernier niveau n'était accessible qu'aux neuf Grands Empereurs ! Tous les autres ne pouvaient que contempler cette cime depuis les profondeurs !
+Cependant, ce dernier niveau n'était accessible qu'aux neuf Grands Empyrées ! Tous les autres ne pouvaient que contempler cette cime depuis les profondeurs !
 
 Sundered Night était un sort créé par Wang Lin, contenant toute une vie passée à déchirer l'obscurité !
 
-La raison pour laquelle les Grands Empereurs pouvaient matérialiser leurs sorts résidait dans leur foi puissante, capable de créer quelque chose à partir du néant !
+La raison pour laquelle les Grands Empyrées pouvaient matérialiser leurs sorts résidait dans leur foi puissante, capable de créer quelque chose à partir du néant !
 
-Créer le néant à partir de rien était la racine même de tous les sortilèges des Grands Empereurs !
+Créer le néant à partir de rien était la racine même de tous les sortilèges des Grands Empyrées !
 
 Wang Lin avait les yeux clos sous terre, mais il percevait tout ce qui se passait à l'extérieur. À cet instant, c'était comme s'il s'était réincarné dans le soleil. Il contemplait la mer en contrebas et voyait les regards terrifiés de chacun.
 

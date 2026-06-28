@@ -62,7 +62,7 @@ Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour
 
 La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Monde Extérieur ou de devenir un espion du Monde Extérieur, tel que... le Daoïste Water !
 
-Nirvana Void, Spirit Void, Arcane Void et Void Tribulant constituaient les quatre grandes étapes du troisième pas. Le Nirvana Void n'était pas si terrible, mais atteindre le Spirit Void était pratiquement impossible.
+Nirvana Void, Spirit Void, Vide Arcanique et Tribulation du Vide constituaient les quatre grandes étapes du troisième pas. Le Nirvana Void n'était pas si terrible, mais atteindre le Spirit Void était pratiquement impossible.
 
 Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes Joss. Il unifia les quatre Royaumes Célestes pour en faire un trésor puissant afin de contrer l'absorption de la Formation du Royaume Scellé.
 

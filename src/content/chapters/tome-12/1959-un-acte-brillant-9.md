@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1959 - A Single Brilliant Feat! (9)"
 slug: un-acte-brillant-9
 ---
-Presque tous les Exaltés Célestes, les Ascendants et les Grands Empereurs du clan céleste furent attirés par l'action apparemment folle de Wang Lin.
+Presque tous les Exaltés Célestes, les Ascendants et les Grands Empyrées du clan céleste furent attirés par l'action apparemment folle de Wang Lin.
 
 Ce genre d'événement était très rare au sein du clan céleste. Seul l'Ascendant Ming Dao avait reçu une telle attention par le passé.
 
@@ -18,7 +18,7 @@ Dans un avenir proche, il était même probable que le Clan Ancestral entende pa
 
 Le 49e Ascendant du clan céleste. Après être devenu un Ascendant, il avait franchi les 11e et 12e palais et tentait à présent le 13e !
 
-Le Grand Empereur Jiu Di, sur la Montagne de l'Empereur, ne se prélassait plus ; il fixait intensément la feuille d'automne devant lui, l'expression grave.
+Le Grand Empyrée Jiu Di, sur la Montagne de l'Empereur, ne se prélassait plus ; il fixait intensément la feuille d'automne devant lui, l'expression grave.
 
 Il comprenait que franchir le 13e palais, même avec l'armure de l'âme, signifiait que cet homme n'était pas sans valeur...
 
@@ -26,11 +26,11 @@ Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, s
 
 À ses côtés, l'Ascendant Ming Dao, vêtu de noir, s'était déjà assis. Son sens divin était concentré sur son front ; il s'apprêtait à participer à l'Épreuve Empyréenne !
 
-À cet instant, au sein de l'Épreuve Empyréenne, le Grand Empereur Dao Yi fronça les sourcils et soupira. Il savait que Wang Lin avait déjà déclenché une tempête. Si un Grand Empereur souhaitait attirer un tel cultivateur, cela exigerait un certain prix.
+À cet instant, au sein de l'Épreuve Empyréenne, le Grand Empyrée Dao Yi fronça les sourcils et soupira. Il savait que Wang Lin avait déjà déclenché une tempête. Si un Grand Empyrée souhaitait attirer un tel cultivateur, cela exigerait un certain prix.
 
-Mais peu importe l'ampleur de ce prix, cela en vaudrait la peine. Une fois que cet homme deviendrait un Grand Empereur, les bénéfices seraient immenses. Avoir un autre Grand Empereur comme allié, d'autant plus avec une relation préexistante, aiderait grandement à accroître le statut de n'importe quel Grand Empereur.
+Mais peu importe l'ampleur de ce prix, cela en vaudrait la peine. Une fois que cet homme deviendrait un Grand Empyrée, les bénéfices seraient immenses. Avoir un autre Grand Empyrée comme allié, d'autant plus avec une relation préexistante, aiderait grandement à accroître le statut de n'importe quel Grand Empyrée.
 
-Le Grand Empereur Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où les quatre Grands Empereurs, aux côtés de Gemini, se disputeraient tous la même personne.
+Le Grand Empyrée Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où les quatre Grands Empyrées, aux côtés de Gemini, se disputeraient tous la même personne.
 
 À moins qu'un accident imprévu ne survienne...
 
@@ -82,7 +82,7 @@ Cette troisième fois, Wang Lin comprit que la réponse était : « le vrai et l
 
 Ce test d'illumination du Dao pouvait être ardu pour d'autres, mais Wang Lin avait déjà commencé à sonder ces questions dans le monde de la grotte.
 
-« Un seul acte pour entrer dans l'histoire... Je devrais avoir presque atteint ce but. Après le 13e palais, je devrais m'arrêter. Même si les Grands Empereurs savent que je possède l'armure de l'âme, cela devrait suffire. » Wang Lin réfléchit et prit une décision.
+« Un seul acte pour entrer dans l'histoire... Je devrais avoir presque atteint ce but. Après le 13e palais, je devrais m'arrêter. Même si les Grands Empyrées savent que je possède l'armure de l'âme, cela devrait suffire. » Wang Lin réfléchit et prit une décision.
 
 Alors que la voix résonnait, l'esprit de Wang Lin était limpide. Il songea à son rêve sur la planète Suzaku et déclara lentement : « La vie et la mort sont des chaînes, voilà le Dao. Les chaînes s'entrelacent pour former un cercle qui est le karma, voilà le Dao ! Les êtres possèdent une barrière onirique ; ils ne peuvent distinguer l'éveil du rêve. Cette barrière empêche toute vie de percevoir la réalité du monde. Ils sont immergés dans le vrai et le faux, incapables de s'en extirper. Le pouvoir de briser la barrière du rêve et d'ouvrir les yeux est le vrai et le faux, voilà le Dao ! »
 
@@ -102,7 +102,7 @@ Le temps passa. Les spectateurs de l'Épreuve Empyréenne attendaient depuis la 
 
 Les Ascendants échangeaient des messages par sens divin — certains ressentaient du regret, d'autres du soulagement.
 
-« Est-ce là la limite ? » Le Grand Empereur Dao Yi regarda le ciel et se détendit légèrement. Si Wang Lin ne franchissait pas le 13e palais, il serait plus facile de le recruter.
+« Est-ce là la limite ? » Le Grand Empyrée Dao Yi regarda le ciel et se détendit légèrement. Si Wang Lin ne franchissait pas le 13e palais, il serait plus facile de le recruter.
 
 Alors que chacun spéculait sur l'issue de l'épreuve, l'ancien réseau de transfert au loin s'illumina. Une silhouette commença à se condenser et, une fois la lumière dissipée, un jeune homme vêtu de noir apparut devant l'assemblée.
 
@@ -116,7 +116,7 @@ Sa présence ébranla la foule autant que Dao Yi et Wu Feng. C'était comme si s
 
 Ils guettaient ce qui se passerait lorsque Wang Lin apparaîtrait et que leurs regards se croiseraient !
 
-« L'Ascendant le plus puissant, numéro un sous les Grands Empereurs. L'Ascendant Ming Dao a décidé de venir maintenant ! C'est fascinant ! »
+« L'Ascendant le plus puissant, numéro un sous les Grands Empyrées. L'Ascendant Ming Dao a décidé de venir maintenant ! C'est fascinant ! »
 
 « Cet Ascendant Ming Dao ne peut manifestement pas rester calme. Après tout, Wang Lin est sur le point de le dépasser. S'il n'était pas venu, cela aurait été contraire à sa nature. »
 
@@ -124,7 +124,7 @@ Ils guettaient ce qui se passerait lorsque Wang Lin apparaîtrait et que leurs r
 
 Seuls les Ascendants comprenaient réellement la stature de l'Ascendant Ming Dao. Ils se regardèrent, leurs expressions demeurant impassibles, mais l'attente grandissait dans leurs cœurs.
 
-« Ming Dao salue le Grand Empereur Dao Yi et le Grand Empereur Wu Feng. » Le jeune homme au regard froid ne daigna pas regarder les Exaltés ni les autres Ascendants, mais joignit les mains en signe de respect envers les deux Grands Empereurs.
+« Ming Dao salue le Grand Empyrée Dao Yi et le Grand Empyrée Wu Feng. » Le jeune homme au regard froid ne daigna pas regarder les Exaltés ni les autres Ascendants, mais joignit les mains en signe de respect envers les deux Grands Empyrées.
 
 Wu Feng observa l'Ascendant Ming Dao et soupira intérieurement. Il lui avait offert des conditions excellentes, mais Ming Dao avait tout de même choisi l'Empereur Céleste. Alors qu'il s'apprêtait à parler, il leva soudain les yeux.
 

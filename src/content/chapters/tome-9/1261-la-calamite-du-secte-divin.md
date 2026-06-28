@@ -1,6 +1,6 @@
----
+﻿---
 n: 1261
-title: La Calamité du Secte Divin
+title: La Calamité du Secte Divine
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1261 - The Calamity From the God Sect
@@ -44,7 +44,7 @@ Heureusement, le maître de la secte et l'Ancien ne s'en soucièrent guère. Apr
 
 Une fois assis, des disciples de la Secte Éternelle apportèrent le thé avant de se retirer respectueusement.
 
-Le maître de la Secte Éternelle réfléchit un instant et dit : « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle ; elles nous ont été confiées par le Secte Divin. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
+Le maître de la Secte Éternelle réfléchit un instant et dit : « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle ; elles nous ont été confiées par le Secte Divine. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
 
 Wang Lin prit une gorgée de thé tout en dissimulant son trouble. Il sentait que plus il resterait ici, mieux ce serait pour lui, mais il craignait aussi que s'il prolongeait son séjour, quelqu'un ne finisse par remarquer quelque chose.
 
@@ -60,13 +60,13 @@ Ce n'était pas que les deux hommes doutaient des intentions de Wang Lin, mais l
 
 Par conséquent, même s'ils nourrissaient des doutes, ceux-ci n'étaient pas trop profonds. Ils avaient vu les sorts de Wang Lin et le trouvaient très mystérieux ; peut-être que des pilules ne suffiraient pas à guérir quelqu'un de son rang.
 
-Le maître de la secte réfléchit encore et dit lentement : « Qu'importe. Depuis que le Secte Divin a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu. »
+Le maître de la secte réfléchit encore et dit lentement : « Qu'importe. Depuis que le Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu. »
 
-Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine : il était en train de lui céder un tribut destiné au Secte Divin.
+Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine : il était en train de lui céder un tribut destiné au Secte Divine.
 
 Bien que le ton ne fût pas aussi grave que ses mots le suggéraient, c'était la vérité.
 
-Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut du Secte Divin. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8 ! »
+Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut du Secte Divine. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8 ! »
 
 Tandis qu'il parlait, l'aura de l'Ancien Dieu pénétra son corps avec une force folle, remontant de ses pieds jusqu'à son front. Cela provoqua la reformation rapide de la sixième étoile effondrée.
 
@@ -94,7 +94,7 @@ Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient e
 
 Le garçon leva la main droite et pointa chaque jade du doigt avant de s'arrêter sur celui marqué « Lu Zihao ».
 
-« Puisque j'ai détecté l'aura du Maître, j'ai utilisé le pouvoir du Secte Divin pour fouiller la Mer de Nuages à la recherche d'individus suspects. J'en ai trouvé sept ! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
+« Puisque j'ai détecté l'aura du Maître, j'ai utilisé le pouvoir du Secte Divine pour fouiller la Mer de Nuages à la recherche d'individus suspects. J'en ai trouvé sept ! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
 
 À cet instant précis, il fronça les sourcils. Sa main s'étendit et un feu commença à brûler. Un jade apparut au milieu des flammes ; il avait été envoyé par Wang Shanshan via une méthode spéciale.
 

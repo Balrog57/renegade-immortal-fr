@@ -66,7 +66,7 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, environ mille âmes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
-Depuis que l'édit des Grands Empereurs avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
+Depuis que l'édit des Grands Empyrées avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 

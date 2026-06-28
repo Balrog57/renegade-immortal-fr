@@ -86,9 +86,9 @@ L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui
 
 Hormis les membres du Groupe des Anciens de l'Alliance, nul ne savait exactement combien ils étaient. Cependant, chacun d'eux était d'une puissance telle qu'il pouvait renverser les cieux !
 
-Si All-Seer était respecté et que l'Alliance de Cultivation avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient entaché son statut, il en demeurait un membre !
+Si Tout-Voyant était respecté et que l'Alliance de Cultivation avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient entaché son statut, il en demeurait un membre !
 
-Si All-Seer n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens ; il s'était retiré du monde.
+Si Tout-Voyant n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens ; il s'était retiré du monde.
 
 Il faut dire que même Ji Xiantian ou Wudo Chan, qui affrontaient Maître Étincelle, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien !
 

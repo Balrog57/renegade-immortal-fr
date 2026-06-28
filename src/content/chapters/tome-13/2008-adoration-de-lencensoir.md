@@ -44,7 +44,7 @@ Les couches de protection entourant la cité rendaient l'entrée très difficile
 
 Aux yeux du peuple du Dao de l'Ancien, seules neuf personnes pouvaient ignorer ces protections !
 
-Ces neuf êtres étaient les neuf Grands Empereurs Célestes !
+Ces neuf êtres étaient les neuf Grands Empyrées !
 
 Seuls eux pouvaient pénétrer calmement dans la cité impériale du Dao de l'Ancien !
 
@@ -54,7 +54,7 @@ Une foule immense d'habitants du Dao de l'Ancien vivait dans la cité, rendant l
 
 Wang Lin resta là et observa les lieux. Il regarda les hommes et les femmes du clan de l’Ancien, mais pour une raison inconnue, il ne ressentait plus ce sentiment d'appartenance qu'il avait éprouvé lors de son arrivée initiale dans le clan.
 
-« Mon maître doit être au courant de mon arrivée... » Wang Lin n'eut pas besoin de déployer son Sens Divin pour percevoir une montagne à l'extrémité sud de la ville. Des nuages enveloppaient ce mont, lequel dégageait l'aura d'un Grand Empereur Céleste.
+« Mon maître doit être au courant de mon arrivée... » Wang Lin n'eut pas besoin de déployer son Sens Divin pour percevoir une montagne à l'extrémité sud de la ville. Des nuages enveloppaient ce mont, lequel dégageait l'aura d'un Grand Empyrée.
 
 Il pouvait ressentir de la douceur dans cette aura. Un léger sourire étira ses lèvres et il marcha vers le sud.
 
@@ -64,9 +64,9 @@ Des bouffées d'aura fraîche se propageaient dans l'air. Respirer ici suffisait
 
 De nombreux membres du clan de l’Ancien montaient vers le temple situé au sommet. Tous les habitants connaissaient ce lieu !
 
-C'était le Temple du Dao de l'Ancien ! C'était là que résidait l'unique Grand Empereur Céleste du clan, Xuan Luo !
+C'était le Temple du Dao de l'Ancien ! C'était là que résidait l'unique Grand Empyrée du clan, Xuan Luo !
 
-Le Temple du Dao de l'Ancien était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de cultivation, bien qu'ils aperçoives rarement le Grand Empereur Céleste Xuan Luo. Les neuf puissants disciples de Xuan Luo se chargeaient de les guider.
+Le Temple du Dao de l'Ancien était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de cultivation, bien qu'ils aperçoives rarement le Grand Empyrée Xuan Luo. Les neuf puissants disciples de Xuan Luo se chargeaient de les guider.
 
 À tout instant, l'un des neuf se trouvait au temple pour éclairer ses compatriotes !
 

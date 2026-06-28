@@ -72,7 +72,7 @@ Wang Lin accélérait sans cesse, mais son expression devenait de plus en plus p
 
 La seule chose pouvant être qualifiée d'imprudence était son plan pour comploter contre le Souverain. Cette idée n'avait aucune raison d'être là ; elle était apparue soudainement après sa discussion avec le premier Oiseau Vermillon.
 
-Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ainsi. Il était même entré dans l'âme de l'All-Seer pour diviner ses chances. Il s'était également fait une promesse : si le Souverain était réellement là et avait recouvré ses forces, il utiliserait le jade pour battre en retraite vers le Royaume Intérieur.
+Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ainsi. Il était même entré dans l'âme de le Tout-Voyant pour diviner ses chances. Il s'était également fait une promesse : si le Souverain était réellement là et avait recouvré ses forces, il utiliserait le jade pour battre en retraite vers le Royaume Intérieur.
 
 Tout cela semblait être des idées propres qui lui étaient venues spontanément.
 

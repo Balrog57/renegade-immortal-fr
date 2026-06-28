@@ -8,7 +8,7 @@ slug: retournez
 ---
 Chapitre 1963 - Retournez !
 
-Les Empereurs Ascendants en contrebas étaient plongés dans un silence total. Tous les bouleversements de cette journée avaient fait taire leurs cris ; ils se contentaient désormais de fixer le 16e palais, flou, et la silhouette blanche qui se tenait à ses côtés.
+Les Empyrées Ascendants en contrebas étaient plongés dans un silence total. Tous les bouleversements de cette journée avaient fait taire leurs cris ; ils se contentaient désormais de fixer le 16e palais, flou, et la silhouette blanche qui se tenait à ses côtés.
 
 Les actions de Wang Lin avaient totalement renversé la situation défavorable d'autrefois. Toutes les questions et tous les doutes avaient été balayés par une force absolue, ne laissant aucune trace derrière eux.
 
@@ -34,7 +34,7 @@ Avant d'avoir pu achever sa phrase, il s'interrompit brusquement car tout était
 
 Wang Lin dit lentement : « Tu es trop lent. »
 
-« Tu... Tu as franchi le 16e palais ? » Le visage de l'Ascendant Empyréen Ming Dao pâlit instantanément. Il fixa Wang Lin, une puissante intention meurtrière brillant dans ses yeux. Il ne tolérerait jamais que quiconque soit plus fort que lui. Il ne pouvait rien contre les Grands Empereurs, mais il se devait d'être le premier parmi les Ascendants !
+« Tu... Tu as franchi le 16e palais ? » Le visage de l'Ascendant Empyréen Ming Dao pâlit instantanément. Il fixa Wang Lin, une puissante intention meurtrière brillant dans ses yeux. Il ne tolérerait jamais que quiconque soit plus fort que lui. Il ne pouvait rien contre les Grands Empyrées, mais il se devait d'être le premier parmi les Ascendants !
 
 Pourtant, les acclamations et la gloire qu'il aurait dû obtenir en franchissant le 16e palais venaient d'être usurpées par Wang Lin. En observant ce dernier, il comprit que celui-ci avait probablement mis bien moins de temps que lui.
 

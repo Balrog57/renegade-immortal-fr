@@ -1,4 +1,4 @@
----
+﻿---
 n: 1154
 title: Au bord du gouffre
 book: 9
@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1154 - On the Verge
 slug: au-bord-du-gouffre
 ---
-« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité » ! En tant qu'Ancien de la Secte Clear Flower, il avait atteint le stade initial de Nirvana Shatterer.
+« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité » ! En tant qu'Ancien de la Secte Clear Flower, il avait atteint le stade initial de Briseur du Nirvana.
 
 Il possédait des sorts terrifiants et, de par sa personnalité, si vous le provoquiez sans disposer d'un niveau de cultivation puissant ou d'une secte solide pour vous protéger, la seule issue était la mort.
 
@@ -26,7 +26,7 @@ Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure
 
 Trois objets reposaient aux côtés du corps : une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Heaven Breaking étaient entrés en transe et avaient quitté précipitamment la fissure pour regagner leur secte.
 
-Leur découverte était trop incroyable ; elle pouvait ébranler tout le système stellaire de la Mer de Nuages ! Il était possible que la Secte Heaven Breaking supplante le Secte Divin de rang 9 !
+Leur découverte était trop incroyable ; elle pouvait ébranler tout le système stellaire de la Mer de Nuages ! Il était possible que la Secte Heaven Breaking supplante le Secte Divine de rang 9 !
 
 Cependant, un traître s'était glissé parmi eux et la nouvelle avait fuité. Ce qui les attendait fut l'hostilité de toute la région de rang 8. D'innombrables vieux monstres, d'ordinaire si discrets, avaient participé à cette bataille qui les avait poussés à bout, les yeux injectés de sang.
 
@@ -76,7 +76,7 @@ Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premie
 
 Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte Clear Flower, fixaient le cultivateur.
 
-Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa cultivation était singulière et que les étrangers ne pouvaient pas la percer immédiatement ; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Nirvana Scryer.
+Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa cultivation était singulière et que les étrangers ne pouvaient pas la percer immédiatement ; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Scruteur du Nirvana.
 
 Noble Money détourna le regard. Il brûlait d'envie d'atteindre le continent sauvage. À première vue, il ne vit rien d'anormal chez ce cultivateur aux cheveux blancs qui semblait manifestement stupéfait par leur apparition soudaine.
 
@@ -104,6 +104,6 @@ Cette affaire était d'une importance capitale, et Noble Money préférait tuer 
 
 Le visage de Wang Lin changea. Il se leva avec respect, tout en affichant la dose exacte de panique nécessaire : « Compagnons Cultivateurs, que signifie cela ? »
 
-« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite ! » Parmi les huit disciples, six étaient au stade Corporeal Yang et deux au stade initial de Nirvana Scryer.
+« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite ! » Parmi les huit disciples, six étaient au stade Yang Corporel et deux au stade initial de Scruteur du Nirvana.
 
 S'ils avaient rencontré Wang Lin dans des circonstances normales, ils n'auraient jamais osé un tel acte, car sa cultivation était supérieure à la leur. Cependant, en présence de l'Ancien Noble Money et face à une affaire aussi cruciale pour leur secte, ils étaient devenus tous d'une hostilité sans faille.

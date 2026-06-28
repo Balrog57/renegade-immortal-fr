@@ -64,7 +64,7 @@ Après un long moment, une lueur d'intention meurtrière traversa le regard de l
 
 Void Cloud, l'un des quatre génies du Continent de l'Est ! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait fréquenter n'importe quelle secte pour y apprendre leurs sorts. Il était le Frère Aîné de tous les disciples du Continent du Démon Vert !
 
-« On dit que le Frère Aîné Void Cloud est allé dans le Continent Nord pour rejoindre la secte du Grand Empereur Wu Feng afin d'étudier le Dao. Sa cultivation est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra ! » Le jeune homme au visage de jade était transporté par l'excitation.
+« On dit que le Frère Aîné Void Cloud est allé dans le Continent Nord pour rejoindre la secte du Grand Empyrée Wu Feng afin d'étudier le Dao. Sa cultivation est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra ! » Le jeune homme au visage de jade était transporté par l'excitation.
 
 Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si dévora la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
 

@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1940 - Cheat the Heavens to Cross the Sea
 slug: tromper-les-cieux-pour-traverser-la-mer
 ---
-« La Secte Dong Lin a toujours été mystérieuse parmi les neuf sectes et treize factions. Je me demande s'ils possèdent un Empereur Exalté ! » Les coquilles de tortue et les tablettes cartographiques que Wang Lin avait obtenues contenaient très peu d'informations sur la Secte Dong Lin.
+« La Secte Dong Lin a toujours été mystérieuse parmi les neuf sectes et treize factions. Je me demande s'ils possèdent un Exaltation Empyréenne ! » Les coquilles de tortue et les tablettes cartographiques que Wang Lin avait obtenues contenaient très peu d'informations sur la Secte Dong Lin.
 
 Cela était dû au fait que très peu de membres de cette secte quittaient leur domaine pour communiquer avec le monde extérieur.
 
-« Puisque cette secte fait partie des neuf sectes et treize factions, elle ne peut être médiocre ; mais même s'il y a des cultivateurs de rang Empereur Exalté, cela ne posera pas de problème. » Wang Lin réfléchit tandis que son sens divin se déployait. Alors qu'il s'apprêtait à se diriger vers la Secte Dong Lin, il s'arrêta soudainement.
+« Puisque cette secte fait partie des neuf sectes et treize factions, elle ne peut être médiocre ; mais même s'il y a des cultivateurs de rang Exaltation Empyréenne, cela ne posera pas de problème. » Wang Lin réfléchit tandis que son sens divin se déployait. Alors qu'il s'apprêtait à se diriger vers la Secte Dong Lin, il s'arrêta soudainement.
 
 En étendant son sens divin, il perçut une fluctuation familière provenant d'une cité mortelle située à des centaines de milliers de kilomètres de là. Il avait placé ce sceau sur toutes les incarnations. Il ne pouvait pas les détecter de loin, mais dès qu'il s'approcherait, il pourrait ressentir leur présence.
 

@@ -46,7 +46,7 @@ Même si un accident s'était produit et que Wang Lin avait obtenu l'armure de l
 
 Mais en voyant Wang Lin utiliser un sort de foi, il comprit soudain que ce dernier n'était pas un être ordinaire !
 
-« Un sort de foi que les Grands Empereurs peuvent utiliser... et lui... il peut aussi l'utiliser... C'est d'une importance capitale. Je dois m'échapper pour rapporter cela au Vieil Ancêtre ! »
+« Un sort de foi que les Grands Empyrées peuvent utiliser... et lui... il peut aussi l'utiliser... C'est d'une importance capitale. Je dois m'échapper pour rapporter cela au Vieil Ancêtre ! »
 
 Cependant, alors qu'il formulait cette pensée, ses pupilles se rétractèrent. Devant lui, des ondulations résonnèrent et Wang Lin, revêtu de son armure noire, sortit du néant.
 

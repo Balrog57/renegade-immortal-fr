@@ -94,7 +94,7 @@ Les cultivateurs chérissent souvent leur enveloppe charnelle, car elle est la r
 
 Il y avait beaucoup de gens aussi laids qu'elle. De plus, n'étant qu'une cultivatrice Corporel Yang sans aucun soutien familial, elle pouvait être maltraitée sans que personne ne s'en inquiète.
 
-« Xi Zifeng, utilise ton âme originelle pour dévier la trajectoire de cette planète. » Cet homme d'âge moyen était au milieu du stade Nirvana Scryer, et ses paroles portaient une autorité incontestable.
+« Xi Zifeng, utilise ton âme originelle pour dévier la trajectoire de cette planète. » Cet homme d'âge moyen était au milieu du stade Scruteur du Nirvana, et ses paroles portaient une autorité incontestable.
 
 Il connaissait cette femme depuis longtemps, et il avait été, autrefois, l'un de ceux qui convoitaient sa beauté. C'est précisément pour cela que chaque fois qu'il voyait son apparence hideuse, il ressentait un inconfort croissant.
 

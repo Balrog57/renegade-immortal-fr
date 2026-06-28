@@ -34,7 +34,7 @@ La cultivation de cet homme était extrêmement puissante ; même lorsqu'il éta
 
 Et l'homme mystérieux repartit, imperturbable.
 
-Une telle puissance n'était accessible qu'aux stades légendaires de l'Illusoire Yin, du Corporel Yang et du Nirvana Scryer ! En conséquence, il se déplaçait comme une nuée de criquets ; personne n'osait plus l'affronter ou lui barrer la route.
+Une telle puissance n'était accessible qu'aux stades légendaires de l'Illusoire Yin, du Corporel Yang et du Scruteur du Nirvana ! En conséquence, il se déplaçait comme une nuée de criquets ; personne n'osait plus l'affronter ou lui barrer la route.
 
 Wang Lin resta assis sur la falaise pendant trois jours, contemplant la ville de Ming Mei. La nuit du troisième jour, un léger sourire apparut sur les lèvres de Wang Lin alors qu'il sortait son chapeau de paille pour le poser sur sa tête.
 

@@ -88,9 +88,9 @@ Ce rugissement était bien plus puissant que celui d'une bête de rang 12 ; il �
 
 « Une pilule de rang 13 !! » Wang Lin prit une profonde inspiration et rangea soigneusement deux des bouteilles, ne laissant que la première. Il la prit et se dirigea vers la grotte contenant le fourneau.
 
-Il fallait atteindre le stade intermédiaire du Nirvana Shatterer pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de cultivation, il fallait faire preuve d'une prudence extrême !
+Il fallait atteindre le stade intermédiaire du Briseur du Nirvana pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de cultivation, il fallait faire preuve d'une prudence extrême !
 
-Le véritable niveau de cultivation de Wang Lin, en faisant abstraction de son corps de Dieu Ancien, n'était que le début du stade Nirvana Cleanser. Il ne pouvait pas consommer directement une pilule de rang 11 ; il devait donc la raffiner à nouveau !
+Le véritable niveau de cultivation de Wang Lin, en faisant abstraction de son corps de Dieu Ancien, n'était que le début du stade Purificateur du Nirvana. Il ne pouvait pas consommer directement une pilule de rang 11 ; il devait donc la raffiner à nouveau !
 
 Dans la grotte au fourneau, Wang Lin réfléchit et une étincelle brilla dans son œil gauche. Le feu apparut instantanément et se précipita dans le fourneau. Celui-ci trembla et ses marquages s'activèrent lentement.
 

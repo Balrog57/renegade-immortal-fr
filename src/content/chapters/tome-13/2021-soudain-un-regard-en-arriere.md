@@ -22,7 +22,7 @@ Des murmures s'élevèrent parmi la foule alors que Wang Lin passait devant des 
 
 « Où va-t-il s'asseoir ? ! »
 
-« Il ose se diriger vers l'avant ! Deux des quatre sièges à l'avant sont préparés pour le Grand Empereur et l'enseignant impérial. Les deux derniers sont réservés aux deux ancêtres de l'Ancien Dao qui sont encore en vie ! ! »
+« Il ose se diriger vers l'avant ! Deux des quatre sièges à l'avant sont préparés pour le Grand Empyrée et l'enseignant impérial. Les deux derniers sont réservés aux deux ancêtres de l'Ancien Dao qui sont encore en vie ! ! »
 
 Parmi les quatre derniers sièges restants, un se trouvait devant avec trois derrière lui. Alors que Wang Lin s'avançait vers les 18 Rois, sept d'entre eux se levèrent et joignirent les mains en signe de respect envers lui.
 
@@ -30,7 +30,7 @@ Parmi les quatre derniers sièges restants, un se trouvait devant avec trois der
 
 Wang Lin marqua une pause et sourit aux sept personnes qui s'étaient inclinées devant lui. Puis, il se dirigea vers les neuf Généraux Immortels enveloppés d'auras noires.
 
-Parmi les neuf, huit restèrent silencieux, mais celui dont le niveau égalait un Empereur Ascendant ayant franchi le 14e palais laissa échapper un reniflement froid et ses yeux s'illuminèrent. Il se leva soudainement, comme pour empêcher Wang Lin de passer devant lui.
+Parmi les neuf, huit restèrent silencieux, mais celui dont le niveau égalait un Empyrée Ascendant ayant franchi le 14e palais laissa échapper un reniflement froid et ses yeux s'illuminèrent. Il se leva soudainement, comme pour empêcher Wang Lin de passer devant lui.
 
 Mais juste au moment où il allait se lever, le regard glacial de Wang Lin se posa sur lui, et une lueur rouge d'intention meurtrière brilla dans ses yeux. Une pression terrifiante se dégagea du corps de Wang Lin avant de se dissiper soudainement.
 
@@ -44,17 +44,17 @@ Au moment où il se rassit, Wang Lin toucha le sol et arriva devant la table la 
 
 Dès qu'il prit place, un immense tumulte éclata sur toute la place.
 
-« Qui est-il ? Il s'est assis à la place du Grand Empereur de l'Ancien Dao. C'est... c'est... »
+« Qui est-il ? Il s'est assis à la place du Grand Empyrée de l'Ancien Dao. C'est... c'est... »
 
 « La pression que cet homme a libérée était extrêmement puissante, j'ai cru que mon cœur s'arrêtait ! Son pouvoir ancien est insondable, ce n'est certainement pas un homme ordinaire ! »
 
-« J'ai entendu dire que le Grand Empereur de l'Ancien Dao avait annoncé avoir accepté un disciple. Serait-il le disciple du Grand Empereur Xuan Luo ? ! Mais il est si jeune... »
+« J'ai entendu dire que le Grand Empyrée de l'Ancien Dao avait annoncé avoir accepté un disciple. Serait-il le disciple du Grand Empyrée Xuan Luo ? ! Mais il est si jeune... »
 
 « C'est bien lui ! »
 
-« L'Empereur Ascendant aux cheveux blancs ! ! Je ne m'attendais pas à ce que cet homme soit réellement le disciple du Grand Empereur Xuan Luo ! ! »
+« L'Empyrée Ascendant aux cheveux blancs ! ! Je ne m'attendais pas à ce que cet homme soit réellement le disciple du Grand Empyrée Xuan Luo ! ! »
 
-« Quoi ? C'est l'Empereur Ascendant aux cheveux blancs ? N'est-il pas un membre du clan céleste ? On dit qu'il est le premier sous les Grands Empereurs ! ! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Astral Immortel ! ! »
+« Quoi ? C'est l'Empyrée Ascendant aux cheveux blancs ? N'est-il pas un membre du clan céleste ? On dit qu'il est le premier sous les Grands Empyrées ! ! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Astral Immortel ! ! »
 
 Ceux qui reconnurent Wang Lin appartenaient à la famille royale, comme le Prince Ji Du. Les membres de l'Ancien Dao en savaient davantage car ils connaissaient sa réputation ; cependant, les membres des autres clans affichaient des expressions extrêmement complexes en le regardant, avec des traces cachées de peur dans les yeux.
 
@@ -110,7 +110,7 @@ Wang Lin poussa un soupir silencieux et prit sa coupe. Il avait l'intention de r
 
 L'Empereur de l'Ancien Dao sourit et but une gorgée. Tous les autres burent ensuite en signe de félicitations. Wang Lin ne but pas, mais posa sa coupe avec les autres et s'apprêtait à parler.
 
-« Outre cet événement joyeux, je souhaite également annoncer une autre affaire. Certains d'entre vous ont peut-être entendu dire que le disciple du Grand Empereur Xuan Luo, l'Empereur Ascendant aux cheveux blancs du clan céleste, sera le gardien de mon Ancien Dao ! »
+« Outre cet événement joyeux, je souhaite également annoncer une autre affaire. Certains d'entre vous ont peut-être entendu dire que le disciple du Grand Empyrée Xuan Luo, l'Empyrée Ascendant aux cheveux blancs du clan céleste, sera le gardien de mon Ancien Dao ! »
 
 « Wang Lin, avance et écoute l'édit ! » L'Empereur de l'Ancien Dao sourit.
 

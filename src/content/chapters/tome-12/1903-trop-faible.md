@@ -20,9 +20,9 @@ Ils n'avaient pas assez de confiance pour en traverser neuf d'un coup. Dès qu'i
 
 La Tribulation Arcane était une calamité, mais aussi une chance inestimable.
 
-Si l'on surmontait trois étapes consécutives, son âme originelle doublait de taille. Ceux qui parvenaient à en franchir six voyaient leur âme originelle tripler. Quant à ceux qui surmontaient les neuf d'affilée, leur âme originelle augmentait de plusieurs multiples ! Quant à l'ampleur exacte de cette croissance, nul ne le savait, car seuls deux êtres avaient réussi cet exploit, et tous deux étaient devenus des Grands Empereurs par la suite.
+Si l'on surmontait trois étapes consécutives, son âme originelle doublait de taille. Ceux qui parvenaient à en franchir six voyaient leur âme originelle tripler. Quant à ceux qui surmontaient les neuf d'affilée, leur âme originelle augmentait de plusieurs multiples ! Quant à l'ampleur exacte de cette croissance, nul ne le savait, car seuls deux êtres avaient réussi cet exploit, et tous deux étaient devenus des Grands Empyrées par la suite.
 
-S'ils ne le divulguaient pas, personne ne le saurait. Cependant, cela révélait la dangerosité de l'épreuve. La rumeur disait que ces deux Grands Empereurs avaient été gravement blessés après avoir surmonté les neuf Tribulations Arcanes et s'étaient retirés en cultivation fermée pendant une très longue période.
+S'ils ne le divulguaient pas, personne ne le saurait. Cependant, cela révélait la dangerosité de l'épreuve. La rumeur disait que ces deux Grands Empyrées avaient été gravement blessés après avoir surmonté les neuf Tribulations Arcanes et s'étaient retirés en cultivation fermée pendant une très longue période.
 
 Si des cultivateurs ordinaires parvenaient à franchir six Tribulations Arcanes consécutives, ils deviendraient extrêmement puissants au début du stade de la Tribulation du Vide. Sans même compter leurs trésors, ils pourraient combattre des experts du milieu du stade de la Tribulation du Vide sans subir de défaite !
 

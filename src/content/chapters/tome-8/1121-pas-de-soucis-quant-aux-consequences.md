@@ -116,9 +116,9 @@ Les auras autour de lui faiblirent légèrement et la voix glaciale résonna de 
 
 « Laisse le jade et disparais ! »
 
-Une lueur de froideur passa dans les yeux de Wang Lin. Il pouvait clairement distinguer que ces quatre auras appartenaient à des cultivateurs du Nirvana Scryer. Le fait d'avoir des cultivateurs au stade Nirvana Scryer pour garder la porte prouvait que le Royaume du Vide Brillant n'était pas moins puissant qu'une autre force de l'Alliance.
+Une lueur de froideur passa dans les yeux de Wang Lin. Il pouvait clairement distinguer que ces quatre auras appartenaient à des cultivateurs du Scruteur du Nirvana. Le fait d'avoir des cultivateurs au stade Scruteur du Nirvana pour garder la porte prouvait que le Royaume du Vide Brillant n'était pas moins puissant qu'une autre force de l'Alliance.
 
-Cependant, ces quatre cultivateurs étaient bien trop arrogants. Bien qu'ils aient détecté que Wang Lin était un cultivateur du Nirvana Cleanser, leurs paroles restaient brutales. Il était probable que, tant qu'un cultivateur du Nirvana Shatterer ne se présenterait pas, ils ne feraient preuve d'aucune courtoisie.
+Cependant, ces quatre cultivateurs étaient bien trop arrogants. Bien qu'ils aient détecté que Wang Lin était un cultivateur du Purificateur du Nirvana, leurs paroles restaient brutales. Il était probable que, tant qu'un cultivateur du Briseur du Nirvana ne se présenterait pas, ils ne feraient preuve d'aucune courtoisie.
 
 Il n'avait déjà aucun sentiment favorable envers le Royaume du Vide Brillant, mais il était venu ici dans l'unique but de prendre Zhou Ru avec lui. Après une courte réflexion, Wang Lin réprima sa colère et dit calmement : « En plus de livrer le jade, je souhaite rencontrer Mu Bingmei. »
 
@@ -136,7 +136,7 @@ La froideur dans les yeux de Wang Lin s'intensifia, mais il la maîtrisa encore 
 
 Une aura meurtrière jaillit de son corps et une intention de tuer envahit son regard. Après avoir réfléchi un instant, il la réprima une fois de plus et dit calmement : « Je vous demande l'amabilité de transmettre un message. Dites simplement que Wang Lin est venu. »
 
-« Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Nirvana Cleanser, il n'aurait pas été aussi poli et aurait déjà attaqué.
+« Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Purificateur du Nirvana, il n'aurait pas été aussi poli et aurait déjà attaqué.
 
 Wang Lin eut un sourire amer de colère. Il n'aurait jamais cru que les quatre gardiens du Royaume du Vide Brillant feraient preuve d'une telle arrogance.
 

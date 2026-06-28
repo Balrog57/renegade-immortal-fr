@@ -20,7 +20,7 @@ Une épée de sang apparut de nulle part au cœur de cette lumière écarlate et
 
 Tout se produisit en un instant, avec une rapidité dépassant l'entendement. L'épée de sang entra en collision avec la montagne. Ce n'était pas une montagne ordinaire ; elle était protégée par d'innombrables restrictions. Ces dernières s'illuminèrent dans une tentative désespérée de résister à l'épée !
 
-Pourtant, si même les cultivateurs du troisième pas ne pouvaient y résister, et si le corps de Tuo Sen lui-même ne pouvait l'arrêter, comment cette simple montagne pourrait-elle espérer tenir ? La montagne était un trésor du Secte Divin et du Taoïste Water, mais peu importait.
+Pourtant, si même les cultivateurs du troisième pas ne pouvaient y résister, et si le corps de Tuo Sen lui-même ne pouvait l'arrêter, comment cette simple montagne pourrait-elle espérer tenir ? La montagne était un trésor du Secte Divine et du Taoïste Water, mais peu importait.
 
 Elle ne put rien contre l'épée de sang !
 

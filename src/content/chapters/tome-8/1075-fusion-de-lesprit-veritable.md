@@ -68,7 +68,7 @@ Dans le ciel, des centaines de personnes apparurent derrière l'Oiseau Vermillon
 
 Les Briseurs du Nirvana !
 
-Derrière ces six individus, tous les membres du Secte Divin de l'Oiseau Vermillon projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
+Derrière ces six individus, tous les membres du Secte Divine de l'Oiseau Vermillon projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
 
 Lorsque les six anciens aperçurent Wang Lin, leurs visages exprimèrent un mélange d'excitation et de choc !
 
@@ -76,6 +76,6 @@ Leur excitation venait du fait qu'ils avaient parcouru tout ce chemin pour prot�
 
 Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Sundered Night. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits ?
 
-Une trace de crainte se mêlait à ce choc ! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres du Secte Divin de l'Oiseau Vermillon ? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin !
+Une trace de crainte se mêlait à ce choc ! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres du Secte Divine de l'Oiseau Vermillon ? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin !
 
-L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement : « Protégez celui qui s'est éveillé ! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples du Secte Divin de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.
+L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement : « Protégez celui qui s'est éveillé ! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples du Secte Divine de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.

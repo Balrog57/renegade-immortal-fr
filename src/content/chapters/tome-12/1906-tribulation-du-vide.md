@@ -20,9 +20,9 @@ Par conséquent, la qualité des pilules était primordiale. Même avec la meill
 
 Cette tribulation plaçait le cultivateur dans une position très passive. Ils ne pouvaient rien faire d'autre qu'endurer. Depuis les temps anciens, nul n'avait pu faire autrement !
 
-Même les Grands Empereurs agissaient ainsi. Ils ne pouvaient endurer cette épreuve qu'en consommant de grandes quantités de pilules et en luttant contre la peur qui envahissait leur cœur !
+Même les Grands Empyrées agissaient ainsi. Ils ne pouvaient endurer cette épreuve qu'en consommant de grandes quantités de pilules et en luttant contre la peur qui envahissait leur cœur !
 
-Même les deux légendaires Grands Empereurs ayant traversé neuf Tribulations Arcanes consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
+Même les deux légendaires Grands Empyrées ayant traversé neuf Tribulations Arcanes consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
 
 Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme originelle s'effondra. Son âme dépérrit rapidement, mais son expression resta imperturbable. Durant le court laps de temps qu'il parvint à gagner, il réfléchit fébrilement à un moyen de briser cette tribulation !
 
@@ -92,7 +92,7 @@ Mais si l'on ne sacrifiait pas sa longévité, les chances de survivre à la neu
 
 Lors de la huitième épreuve, le cultivateur avait l'initiative de décider de la part de sa vie qu'il sacrifierait. Généralement, ceux qui osaient affronter cette étape avaient déjà un plan : ils calculaient la durée de vie nécessaire pour leur cultivation, puis sacrifiaient douloureusement le surplus afin d'augmenter leurs chances de réussir la neuvième tribulation.
 
-La longévité n'augmentait pas après être entré dans la Tribulation du Vide, à moins de devenir un Grand Empereur. Autrement, peu importe la vie restante après le sacrifice de la huitième épreuve, c'était ce qu'il vous resterait pour le stade de la Tribulation du Vide.
+La longévité n'augmentait pas après être entré dans la Tribulation du Vide, à moins de devenir un Grand Empyrée. Autrement, peu importe la vie restante après le sacrifice de la huitième épreuve, c'était ce qu'il vous resterait pour le stade de la Tribulation du Vide.
 
 À moins de rencontrer une nouvelle fortune, rien ne pouvait changer cela.
 
@@ -188,7 +188,7 @@ Peu après, les trois flèches des cinq éléments arrivèrent. Alors que le gro
 
 Ces flèches auraient dû être invisibles, mais elles contenaient la foi de Wang Lin, sa haine des cieux et sa volonté de les briser !
 
-Sa foi rendait cette attaque infiniment proche d'un sort de foi de Grand Empereur, lui permettant de se matérialiser à partir du néant !
+Sa foi rendait cette attaque infiniment proche d'un sort de foi de Grand Empyrée, lui permettant de se matérialiser à partir du néant !
 
 La dernière flèche était celle du tonnerre, une pointe destructrice. Ce n'était pas une flèche, mais un éclair en forme de projectile. Elle gronda violemment en s'approchant du Sceau de la Réincarnation pour y déchaîner sa force dévastatrice.
 

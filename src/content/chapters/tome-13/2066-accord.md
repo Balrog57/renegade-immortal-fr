@@ -12,7 +12,7 @@ Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le 
 
 Les neuf chants et les trois signes faisaient l'objet de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Antique recevait un héritier.
 
-À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Antique, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Antique. Au centre du vaste bassin, le Grand Empereur Gu Dao fut le témoin personnel de l'accomplissement de la légende.
+À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Antique, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Antique. Au centre du vaste bassin, le Grand Empyrée Gu Dao fut le témoin personnel de l'accomplissement de la légende.
 
 À ce moment précis, la silhouette apparue au-dessus du clan Antique se tenait là et poussa un rugissement vers l'autre figure gigantesque qui s'était manifestée au-dessus du clan Céleste.
 
@@ -40,13 +40,13 @@ Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Anc
 
 Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade de la Foulée sur le Paradis. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
 
-Sur ce geste, le pied géant trembla et se brisa en d'innombrables fragments devant Wang Lin. Une tempête puissante dispersa les débris à travers le monde, sous les yeux du Grand Empereur Gu Dao.
+Sur ce geste, le pied géant trembla et se brisa en d'innombrables fragments devant Wang Lin. Une tempête puissante dispersa les débris à travers le monde, sous les yeux du Grand Empyrée Gu Dao.
 
 Gu Dao resta silencieux, plongé dans ses pensées. Son visage parut plus vieux encore, marqué par une trace de fatigue et de soulagement.
 
 « Je ne peux pas vous arrêter... Mais j'espère que dans trois cents ans, lorsque le Royaume Divin Immemorial s'ouvrira, vous entrerez du côté du clan Antique... » Gu Dao regarda Wang Lin tout en joignant les mains et en s'inclinant profondément.
 
-Wang Lin resta silencieux. Il observa le Grand Empereur Gu Dao, puis hocha la tête.
+Wang Lin resta silencieux. Il observa le Grand Empyrée Gu Dao, puis hocha la tête.
 
 « Merci... » Gu Dao ouvrit les yeux et, ce faisant, reprit son apparence normale. Le brouillard enveloppa à nouveau son corps jusqu'à le recouvrir entièrement. La brume tourbillonna et l'emporta vers la direction du clan Antique.
 
@@ -56,11 +56,11 @@ Après avoir traversé la tempête, il atteindrait la frontière du clan Célest
 
 Cette bataille prit fin lorsque les deux disparurent. Dans ce combat, Gu Dao avait perdu ; ainsi, le titre de plus fort du Continent Astral Immortel n'appartenait plus à Gu Dao, mais à... Wang Lin !
 
-Cependant, mis à part l'arrivée précipitée des Grands Empereurs, personne d'autre ne savait que cela s'était produit.
+Cependant, mis à part l'arrivée précipitée des Grands Empyrées, personne d'autre ne savait que cela s'était produit.
 
 Le douzième jour après le départ de Wang Lin, sept rayons de lumière arrivèrent des deux côtés du mur de mer et révélèrent sept personnes.
 
-Ces sept individus étaient les sept Grands Empereurs du Continent Astral Immortel !
+Ces sept individus étaient les sept Grands Empyrées du Continent Astral Immortel !
 
 Ils se connaissaient tous, mais bien qu'appartenant à deux camps différents, ils ne souhaitaient pas combattre. Au lieu de cela, ils déployèrent tous leur Sens Divin pour observer la zone et réfléchir en silence.
 
@@ -70,13 +70,13 @@ Xuan Luo ferma les yeux. Lorsque son Sens Divin se déploya, son corps trembla. 
 
 « Les vestiges de cette bataille ne se dissiperont pas avant des centaines d'années... » murmura Song Tian pour lui-même. Il ressentait également la puissance choquante et les fluctuations des lois issues du combat qui s'était déroulé ici.
 
-Il y avait aussi l'énigmatique Grand Empereur Ancient Ji. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
+Il y avait aussi l'énigmatique Grand Empyrée Ancient Ji. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
 
-« Qui affrontait le Grand Empereur Gu Dao... ? Mais peu importe qui c'était, le Grand Empereur Gu Dao devait avoir gagné ! »
+« Qui affrontait le Grand Empyrée Gu Dao... ? Mais peu importe qui c'était, le Grand Empyrée Gu Dao devait avoir gagné ! »
 
 « Se pourrait-il que ce soit... Wang Lin... » Xuan Luo ouvrit les yeux, incertain.
 
-De l'autre côté du mur de mer, les quatre Grands Empereurs du clan Céleste réfléchissaient tous en silence. Ils retirèrent leur Sens Divin. Ils ne pouvaient imaginer quel genre de combat s'était livré ici il y a quelques jours.
+De l'autre côté du mur de mer, les quatre Grands Empyrées du clan Céleste réfléchissaient tous en silence. Ils retirèrent leur Sens Divin. Ils ne pouvaient imaginer quel genre de combat s'était livré ici il y a quelques jours.
 
 « Ce ne devrait pas être lui... » songea Dao Yi.
 
@@ -86,7 +86,7 @@ Wu Feng observa le champ de bataille avec une expression complexe. Les lois du m
 
 En vérité, la raison pour laquelle ils étaient venus, outre le choc provoqué par les changements de lois, était de témoigner personnellement de la bataille. Cependant, il était évident que cela serait impossible.
 
-Quant au Grand Empereur Gemini, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
+Quant au Grand Empyrée Gemini, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
@@ -134,6 +134,6 @@ Même une fois la scène terminée, les sept restèrent silencieux pendant un lo
 
 L'être le plus puissant du Continent Astral Immortel n'était plus Gu Dao, mais Wang Lin !
 
-Le cœur de Dao Yi trembla. Il était un Grand Empereur, et pourtant, il ressentait la peur. La force de Wang Lin lui inspirait l'incrédulité, mais par-dessus tout, elle lui inspirait la terreur.
+Le cœur de Dao Yi trembla. Il était un Grand Empyrée, et pourtant, il ressentait la peur. La force de Wang Lin lui inspirait l'incrédulité, mais par-dessus tout, elle lui inspirait la terreur.
 
 « Était-ce lui... » Dans l'esprit de Ji Du, le souvenir de ce regard qui semblait être descendu du ciel il y a cent ans, lorsque les soixante-douze âmes imploraient toutes vers les cieux, refit surface.

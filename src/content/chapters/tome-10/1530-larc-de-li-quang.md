@@ -30,7 +30,7 @@ Chaque poil de son corps se hérissa, et un sentiment de vie ou de mort s'empara
 
 Hormis le taoïste aux sept couleurs, Wang Lin était peut-être le seul à connaître l'origine de cet arc et à l'avoir vu en action ! L'expression solennelle qui se dessina dans ses yeux sema la confusion parmi les autres.
 
-Du point de vue des observateurs extérieurs, le jeune homme en blanc n'était qu'au stade initial du Nirvana Scryer, et l'arc qu'il tenait ne dégageait aucune fluctuation, comme s'il s'agissait d'un arc ordinaire.
+Du point de vue des observateurs extérieurs, le jeune homme en blanc n'était qu'au stade initial du Scruteur du Nirvana, et l'arc qu'il tenait ne dégageait aucune fluctuation, comme s'il s'agissait d'un arc ordinaire.
 
 La gravité de l'expression de Wang Lin apaisa son esprit, lui permettant d'entrer dans un état de vide. C'était comme si tout le reste avait disparu pour ne laisser que l'arc, lentement bandé !
 

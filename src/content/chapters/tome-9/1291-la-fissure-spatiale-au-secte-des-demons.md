@@ -1,4 +1,4 @@
----
+﻿---
 n: 1291
 title: La Fissure Spatiale au Secte des Démons
 book: 9
@@ -34,7 +34,7 @@ Cependant, désormais, parce que la cultivation de Wang Lin s'était améliorée
 
 Franchissant la région de rang 8 avec la détermination de sauver Li Qianmei, Wang Lin pénétrait pour la première fois dans la région de rang 9 !
 
-Alors qu'il entrait dans cette région, un homme était assis dans une pièce secrète à l'intérieur du Secte Divin. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Le garçon aux cheveux blancs poussa un cri lugubre.
+Alors qu'il entrait dans cette région, un homme était assis dans une pièce secrète à l'intérieur du Secte Divine. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Le garçon aux cheveux blancs poussa un cri lugubre.
 
 Son visage vieillissait rapidement, mais dès qu'il atteignait une limite d'âge, le processus s'inversait. Ce cycle se répétait sans fin. Cette alternance entre la vie et la mort causait une douleur qu'aucun être ordinaire ne pourrait endurer !
 
@@ -48,15 +48,15 @@ Ignorant le Daoïste Water pour l'instant, une fois Wang Lin entré dans la rég
 
 Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais Wang Lin n'avait pas le temps de les tuer et ne voulait pas être ralenti. Dès qu'il pénétra dans la brume, sa cultivation explosa et une intention meurtrière monstrueuse terrassa toutes les bêtes environnantes. Le brouillard fut repoussé et les bêtes cachées à l'intérieur s'écartèrent pour lui laisser le passage !
 
-« Secte Divin, Daoïste Water, je vous tuerai sans faute ! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
+« Secte Divine, Daoïste Water, je vous tuerai sans faute ! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
 
 En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements tonitruants éclataient alors qu'il déchirait le brouillard devant lui, fonçant vers le champ de bataille du Secte des Démons sous la guidance de la vieille femme.
 
 Le Secte des Démons était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux !
 
-Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres du Secte des Démons étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal du Secte Divin !
+Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres du Secte des Démons étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal du Secte Divine !
 
-Les rumeurs affirmaient que le Secte des Démons s'était séparé du Secte Divin et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance du Secte des Démons !
+Les rumeurs affirmaient que le Secte des Démons s'était séparé du Secte Divine et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance du Secte des Démons !
 
 En restant postés sur le champ de bataille durant des éternités pour assurer la paix de la Mer des Nuages, leur manque d'information incitait les habitants de la Mer des Nuages à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets !
 

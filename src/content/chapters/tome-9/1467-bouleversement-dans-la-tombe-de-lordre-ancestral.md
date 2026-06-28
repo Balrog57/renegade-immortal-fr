@@ -62,7 +62,7 @@ Dao Master Miao Yin regarda l'homme en robe noire et demanda : « Divinez-vous q
 
 Le Maître Démon Nine Heavens sourit et joignit les mains en signe de respect : « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, le Maître Démon Nine Heavens s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres : Arcane Void Great Desolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Ancestral... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres : Vide Arcanique Great Desolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Ancestral... Je suis inquiet... »
 
 À l'intérieur de la Tombe de l'Ordre Ancestral, les deux bras gigantesques avaient balayé l'espace comme pour détruire la première plateforme de rang 9, mais ils avaient en réalité ouvert une faille vers un autre monde.
 

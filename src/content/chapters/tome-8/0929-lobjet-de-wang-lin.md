@@ -84,7 +84,7 @@ Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Allheaven
 
 Tout cela était crucial pour lui. Après tout, sa durée de cultivation était bien trop courte comparée à celle de ces vieux maîtres ; il était donc moins instruit qu'eux.
 
-Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Nettoyage du Nirvana et du Brise-Nirvana.
+Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Purificateur du Nirvana et du Brise-Nirvana.
 
 Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir.
 

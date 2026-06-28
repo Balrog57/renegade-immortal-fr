@@ -10,7 +10,7 @@ slug: zhou-ru
 
 Une lueur glaciale apparut dans les yeux de Wang Lin et il fit un pas en avant. Des ondulations résonnèrent et, en un clin d'œil, il se retrouva devant l'homme âgé. Son doigt pointa droit entre les sourcils de ce dernier.
 
-Wang Lin pouvait facilement tuer un cultivateur du Nirvana Scryer !
+Wang Lin pouvait facilement tuer un cultivateur du Scruteur du Nirvana !
 
 Les pupilles de l'homme âgé se rétractèrent, empreintes de choc. Il voulut battre en retraite, mais il n'était pas assez puissant pour échapper à Wang Lin ! Le doigt de Wang Lin se déplaça comme la foudre, poursuivant l'homme et s'abattant entre ses sourcils.
 
@@ -30,7 +30,7 @@ Les visages pleurants de sept bébés apparurent sur les perles, puis ils se dis
 
 Le dernier vieillard ne sortit pas un trésor, mais une pierre de jade. Il comptait utiliser le temps que ses pairs lui offraient pour la briser et transmettre l'information dans le Royaume du Vide Brillant.
 
-Les trois hommes avaient manifestement l'habitude de coopérer ; ils agissaient en parfaite symbiose, sans même avoir besoin de se parler. Si Wang Lin avait été un ordinaire cultivateur du Nirvana Cleanser, bien qu'il n'eût guère craint les attaques de trois experts tardifs du stade Nirvana Scryer, il lui aurait été difficile d'empêcher l'un d'eux de briser sa pierre de jade.
+Les trois hommes avaient manifestement l'habitude de coopérer ; ils agissaient en parfaite symbiose, sans même avoir besoin de se parler. Si Wang Lin avait été un ordinaire cultivateur du Purificateur du Nirvana, bien qu'il n'eût guère craint les attaques de trois experts tardifs du stade Scruteur du Nirvana, il lui aurait été difficile d'empêcher l'un d'eux de briser sa pierre de jade.
 
 Après tout, ils étaient rompus au combat coordonné et ne laisseraient à leur adversaire la moindre faille.
 
@@ -48,7 +48,7 @@ Ils virent Wang Lin s'approcher pour saisir la pierre de jade du troisième viei
 
 Son regard se posa sur le dernier ancien. Une intention meurtrière fulgurante brilla dans les yeux de Wang Lin.
 
-« Celui qui raffine un trésor avec des âmes de bébés ne peut être pardonné ! » Le dernier vieillard était celui qui avait projeté les sept perles de jade, et ses yeux étaient pétris de terreur. Wang Lin était bien plus puissant que ce qu'il imaginait d'un cultivateur du Nirvana Cleanser. S'ils avaient su qu'il était aussi redoutable, ils n'auraient jamais osé faire preuve d'une telle arrogance. Ils n'avaient pas réalisé qu'ils avaient provoqué un être aussi terrifiant.
+« Celui qui raffine un trésor avec des âmes de bébés ne peut être pardonné ! » Le dernier vieillard était celui qui avait projeté les sept perles de jade, et ses yeux étaient pétris de terreur. Wang Lin était bien plus puissant que ce qu'il imaginait d'un cultivateur du Purificateur du Nirvana. S'ils avaient su qu'il était aussi redoutable, ils n'auraient jamais osé faire preuve d'une telle arrogance. Ils n'avaient pas réalisé qu'ils avaient provoqué un être aussi terrifiant.
 
 Pourtant, une lueur d'espoir le traversa : bien que Wang Lin ait détruit les corps de ses compagnons, il n'avait pas endommagé leurs âmes originelles. Cela signifiait que Wang Lin devait également craindre le Royaume du Vide Brillant. Mais les paroles de ce dernier firent trembler son cœur.
 
@@ -56,7 +56,7 @@ Il regarda impuissant Wang Lin s'approcher, le doigt tendu vers son propre front
 
 Aucun cri ne retentit, mais le corps de l'homme se changea instantanément en cendres noires, emportant avec lui son âme originelle.
 
-Sur les quatre cultivateurs du Nirvana Scryer, trois furent capturés et un fut tué. Jusqu'au bout, aucun n'avait pu briser sa pierre de jade ! Privée de leur contrôle, la hache se dissipa en énergie originelle. Quant au fouet, il fut consumé par les flammes jusqu'à n'être plus que néant.
+Sur les quatre cultivateurs du Scruteur du Nirvana, trois furent capturés et un fut tué. Jusqu'au bout, aucun n'avait pu briser sa pierre de jade ! Privée de leur contrôle, la hache se dissipa en énergie originelle. Quant au fouet, il fut consumé par les flammes jusqu'à n'être plus que néant.
 
 Ces sept âmes infantiles lugubres étaient empreintes de confusion. En les voyant, le cœur de Wang Lin trembla et des souvenirs du passé l'assaillirent. D'un mouvement de manche, il créa un vortex qui absorba les sept âmes.
 
@@ -90,7 +90,7 @@ En entendant ces mots, Wang Lin soupira et ignora simplement l'individu. Son sen
 
 « Le jeune Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de l'Oiseau Vermillon ! »
 
-Les yeux du garçon s'illuminèrent, mais il n'attaqua pas. Il continua d'observer Wang Lin. À cet instant, plusieurs sens divins balayèrent les environs, incluant ceux de cultivateurs du Nirvana Shatterer.
+Les yeux du garçon s'illuminèrent, mais il n'attaqua pas. Il continua d'observer Wang Lin. À cet instant, plusieurs sens divins balayèrent les environs, incluant ceux de cultivateurs du Briseur du Nirvana.
 
 Il y en avait assez pour tuer Wang Lin !
 
@@ -114,7 +114,7 @@ Sans hésiter, elle se changea en un rayon de lumière et vola vers la source du
 
 Après le départ de Zhou Ru, une femme d'une beauté exceptionnelle apparut du vide là où elle se trouvait. Elle regarda devant elle avec une expression complexe et amère, avant de faire un pas en avant.
 
-Wang Lin attendit simplement après avoir envoyé son sens divin. Peu de temps après, plusieurs rayons de lumière convergèrent vers lui et se transformèrent en cultivateurs. Leurs niveaux de cultivation variaient, le plus faible étant au début du stade Nirvana Cleanser. Ils dévisagèrent Wang Lin avec froideur, ne lui accordant aucune importance.
+Wang Lin attendit simplement après avoir envoyé son sens divin. Peu de temps après, plusieurs rayons de lumière convergèrent vers lui et se transformèrent en cultivateurs. Leurs niveaux de cultivation variaient, le plus faible étant au début du stade Purificateur du Nirvana. Ils dévisagèrent Wang Lin avec froideur, ne lui accordant aucune importance.
 
 L'homme qui s'était rendu en Terre des Esprits Démoniaques avec Mu Bingmei n'apparut pas. C'est un homme d'âge moyen, vêtu de robes pourpres et dorées, qui surgit du vide devant Wang Lin.
 

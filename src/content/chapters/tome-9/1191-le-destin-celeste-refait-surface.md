@@ -30,7 +30,7 @@ Pourtant, alors qu'il franchissait à peine le premier pas dans les ondulations,
 
 « C'est donc le quatrième royaume ancestral ! » Les pupilles de Maître Ashen Pine se contractèrent, mais il était déjà trop tard pour réfléchir. Sa main gauche s'abattit sur le bras flétri dans un fracas tonnerreux. Maître Ashen Pine poussa un gémissement et son visage devint instantanément livide.
 
-« Le stade de pointe du milieu du Nirvana Shatterer ! »
+« Le stade de pointe du milieu du Briseur du Nirvana ! »
 
 Le bras gauche de Maître Ashen Pine était engourdi et devenu totalement noir. Un liquide jaunâtre suintait immédiatement de sa chair. Il était empoisonné ! S'appuyant sur la force de cet impact, il s'engouffra dans les ondulations.
 
@@ -82,7 +82,7 @@ Le flacon de jade fut projeté par l'impact et vola vers la fissure qui ne mesur
 
 Les yeux de Maître Ashen Pine devinrent injectés de sang alors qu'il s'élançait pour rattraper le flacon. La vieille femme, les yeux brillants, se précipita également vers la fissure.
 
-C'est à cet instant précis qu'une silhouette blanche jaillit, se déplaçant à la vitesse d'un cultivateur du stade avancé du Nirvana Shatterer. Elle dépassa la vieille femme en vert et Maître Ashen Pine, saisit le flacon et, sans l'ombre d'une hésitation, s'engouffra hors de la fissure.
+C'est à cet instant précis qu'une silhouette blanche jaillit, se déplaçant à la vitesse d'un cultivateur du stade avancé du Briseur du Nirvana. Elle dépassa la vieille femme en vert et Maître Ashen Pine, saisit le flacon et, sans l'ombre d'une hésitation, s'engouffra hors de la fissure.
 
 Dès qu'il eut franchi la brèche, l'inconnu pressa sa main droite contre la fissure, libérant une restriction qui accéléra considérablement sa fermeture.
 

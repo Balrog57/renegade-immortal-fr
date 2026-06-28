@@ -8,7 +8,7 @@ slug: reunion1
 ---
 Observant la planète de cultivation bleue, le sens divin de Situ Nan s'étira et se projeta en avant. C’était comme une tempête qui chargeait la planète pour la balayer de part en part.
 
-Le stade de cultivation Nirvana Cleanser de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une puissance quasi infinie.
+Le stade de cultivation Purificateur du Nirvana de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une puissance quasi infinie.
 
 Alors qu'il survolait la planète, celle-ci trembla comme si une paire de mains gigantesques jouait avec elle. Des grondements sourds jaillirent de la terre et le ciel changea de couleur !
 
@@ -24,15 +24,15 @@ Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui 
 
 Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage de la charogne féminine et avait atteint l'instant le plus critique.
 
-Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de cultivation bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Nirvana Cleanser.
+Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de cultivation bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Purificateur du Nirvana.
 
 Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Hollow Wind brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard ; il traça un sceau et pointa le doigt vers l'avant.
 
 Le sens divin s'accumula comme un tourbillon avant de reculer dans un éclat de rire.
 
-« L'humeur de ce vieil homme est plutôt bonne, je vais donc vous accorder une chance. Remettez-moi la femme à la racine spirituelle de l'eau et cette petite fille nommée Zhao Xue. Je ne considère absolument pas deux cultivateurs Nirvana Cleanser à moitié morts comme une menace. » Cette voix rauque tonna sur la planète Water Spirit comme un éclair de tonnerre, atteignant rapidement chaque recoin du monde.
+« L'humeur de ce vieil homme est plutôt bonne, je vais donc vous accorder une chance. Remettez-moi la femme à la racine spirituelle de l'eau et cette petite fille nommée Zhao Xue. Je ne considère absolument pas deux cultivateurs Purificateur du Nirvana à moitié morts comme une menace. » Cette voix rauque tonna sur la planète Water Spirit comme un éclair de tonnerre, atteignant rapidement chaque recoin du monde.
 
-Cette voix était imprégnée d'un sortilège doublé de la puissance de cultivation Nirvana Cleanser de Situ Nan. Sa simple écoute força les trois frères Chen à cracher du sang et à battre en retraite une fois de plus.
+Cette voix était imprégnée d'un sortilège doublé de la puissance de cultivation Purificateur du Nirvana de Situ Nan. Sa simple écoute força les trois frères Chen à cracher du sang et à battre en retraite une fois de plus.
 
 Le visage du Maître Yi Chen devint féroce alors qu'il hurlait : « Activez la formation de protection planétaire ! » Aussitôt, il effleura sa sacoche d'où s'envola un jeton noir.
 
@@ -44,7 +44,7 @@ Dès que le premier jeton vola en éclats, les deux autres suivirent. Deux nouve
 
 Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces trois couches puissent résister à l'ennemi, mais il ne céda pas à la panique. Il ricana intérieurement : « Avec le Frère Wang ici, je veux voir comment tu comptes malmener la planète Water Spirit ! »
 
-« Oh ? » En voyant les trois couches de lumière, une lueur froide traversa les yeux de Situ Nan. En balayant la planète de son sens divin, il repéra deux cultivateurs au stade précoce de Nirvana Cleanser.
+« Oh ? » En voyant les trois couches de lumière, une lueur froide traversa les yeux de Situ Nan. En balayant la planète de son sens divin, il repéra deux cultivateurs au stade précoce de Purificateur du Nirvana.
 
 Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Water Spirit.
 
@@ -74,15 +74,15 @@ Les yeux de Situ Nan révélèrent une lumière mystérieuse alors qu'il s'excla
 
 À sa parole, les explosions au cœur du vortex atteignirent leur paroxysme et les éclairs devinrent plus violents encore. Cependant, tout cela n'était que secondaire ; le plus crucial était la transformation radicale de l'énergie originelle à l'intérieur du tourbillon !
 
-Les cultivateurs Nirvana Cleanser pouvaient absorber l'énergie originelle du monde pour l'infuser dans leurs sorts, rendant leurs attaques bien plus puissantes que celles des cultivateurs Nirvana Scryer.
+Les cultivateurs Purificateur du Nirvana pouvaient absorber l'énergie originelle du monde pour l'infuser dans leurs sorts, rendant leurs attaques bien plus puissantes que celles des cultivateurs Scruteur du Nirvana.
 
 Toutefois, cela restait la méthode la plus élémentaire : on se contentait d'absorber et de condenser !
 
 Mais si l'on comprenait les lois, on pouvait utiliser la *transformation* en complément de l'absorption et de la condensation !
 
-Cette fameuse « transformation » consistait en un changement qualitatif : en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Nirvana Cleanser appelaient la « puissance de la loi ».
+Cette fameuse « transformation » consistait en un changement qualitatif : en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Purificateur du Nirvana appelaient la « puissance de la loi ».
 
-En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi ! C'était un phénomène extrêmement rare chez les cultivateurs Nirvana Cleanser, et plus encore chez les Nirvana Scryer. Voilà pourquoi le Maître Hollow Wind était si stupéfait !
+En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi ! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Hollow Wind était si stupéfait !
 
 Situ Nan cria alors que le vortex de 30 mètres devant lui se contracta jusqu'à n'atteindre que la taille de sa main, avant de foncer droit sur la formation planétaire.
 

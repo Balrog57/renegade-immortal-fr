@@ -46,11 +46,11 @@ Les yeux de l'homme d'âge moyen s'illuminèrent et il fixa le vieil homme.
 
 « Ce messager n'a pas besoin que tu lui dictes sa conduite ! »
 
-Le vieil homme n'était qu'au stade initial du Nirvana Scryer ; il ressentit une pression écrasante sous le regard de l'homme d'âge moyen. Pourtant, il serra les dents et railla :
+Le vieil homme n'était qu'au stade initial du Scruteur du Nirvana ; il ressentit une pression écrasante sous le regard de l'homme d'âge moyen. Pourtant, il serra les dents et railla :
 
 « Vous savez aussi que la compagne cultivatrice Xi Zi l'aimait. Lorsqu'il était là, osiez-vous agir ainsi ? »
 
-Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, cet homme n'était qu'au stade du Corporeal Yang, mais il était déjà une existence qu'il admirait.
+Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, cet homme n'était qu'au stade du Yang Corporel, mais il était déjà une existence qu'il admirait.
 
 Il n'osait manifester aucun manque de respect devant lui. Cet homme s'était illustré lors de la guerre avec l'Alliance ; il était devenu célèbre tant à Allheaven qu'au sein de l'Alliance, et l'homme d'âge moyen devait admettre qu'il n'était qu'une fourmi face à lui.
 

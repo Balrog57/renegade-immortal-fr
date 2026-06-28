@@ -1,4 +1,4 @@
----
+﻿---
 n: 1174
 title: Vous êtes en retard
 book: 9
@@ -122,7 +122,7 @@ Dans l'Alliance, pour empêcher les membres du Secte du Dao Pourpre de la Mer Nu
 
 L'Empreinte de l'Esprit Guerrier !
 
-L'Empreinte de l'Esprit Guerrier du Secte Divin de Rang 9 !!
+L'Empreinte de l'Esprit Guerrier du Secte Divine de Rang 9 !!
 
 Toutes ces pensées se succédèrent dans son esprit, de sa première compréhension aux quatre fois où il l'avait employée. Ces souvenirs tourbillonnèrent jusqu'à ce qu'ils s'effondrent tous, ne laissant subsister que l'empreinte de la main.
 
@@ -134,9 +134,9 @@ La volonté contenue dans cette paume était celle d'un être s'élevant au-dess
 
 Cette paume était comme le firmament ! Et sous elle, Wu Qing n'était qu'une fourmi ! Dès l'apparition de cette main, le sens divin de tous les vieux monstres trembla et tout Peng Lai fut saisi par la terreur !
 
-« L'Empreinte... l'Empreinte de l'Esprit Guerrier !!! L'Empreinte de l'Esprit Guerrier du Secte Divin de Rang 9 !! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur de Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte du Secte Divin se manifester devant ses yeux.
+« L'Empreinte... l'Empreinte de l'Esprit Guerrier !!! L'Empreinte de l'Esprit Guerrier du Secte Divine de Rang 9 !! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur de Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte du Secte Divine se manifester devant ses yeux.
 
-Dans son esprit, ce n'était pas seulement l'Empreinte, mais tout le Secte Divin qui s'abattait sur lui !
+Dans son esprit, ce n'était pas seulement l'Empreinte, mais tout le Secte Divine qui s'abattait sur lui !
 
 Il poussa un cri et commença à reculer comme un fou. La peur dans ses yeux submergea sa raison. À cet instant, il ne se souciait plus de la blessure grave de son esprit ou de l'effondrement imminent de son corps ; il ne voulait qu'une chose : s'échapper. Mais la fuite était impossible, car la paume continuait de croître jusqu'à saturer sa vision.
 
@@ -202,11 +202,11 @@ Le lettré en blanc eut un haut-le-cœur, mais ses yeux brillèrent d'un éclat 
 
 Non loin de là, le vieil homme balafré restait pétrifié. Il n'arrivait toujours pas à croire ce qu'il venait de voir.
 
-« Je ne pensais pas qu'il appartenait au Secte Divin... L'Empreinte de l'Esprit Guerrier est trop terrifiante ! »
+« Je ne pensais pas qu'il appartenait au Secte Divine... L'Empreinte de l'Esprit Guerrier est trop terrifiante ! »
 
 Le vieillard desséché en noir fut le plus chanceux. À cet instant, les deux sphères dans ses mains avaient cessé de tourner. Son visage était pâle et la sueur froide coulait sur son front alors qu'il reprenait son souffle.
 
-« Heureusement que Wu Qing a attaqué en premier ; sinon, c'est moi qui serais mort ! La Secte de la Collection des Démons sera bientôt anéantie pour avoir osé provoquer quelqu'un du Secte Divin ! »
+« Heureusement que Wu Qing a attaqué en premier ; sinon, c'est moi qui serais mort ! La Secte de la Collection des Démons sera bientôt anéantie pour avoir osé provoquer quelqu'un du Secte Divine ! »
 
 Il y avait aussi la vieille femme en vert qui avait vendu la carte des étoiles à Wang Lin. Ses yeux s'illuminèrent et elle fronça les sourcils, réprimant le choc dans son cœur. Elle observa les ruines laissées par la paume, mais nul ne savait ce qu'elle pensait réellement.
 

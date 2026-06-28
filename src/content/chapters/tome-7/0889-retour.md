@@ -28,7 +28,7 @@ Le garçon à la grosse tête les dévisagea d'un air sombre. Il fit un pas et s
 
 À ses yeux, il ne devait utiliser ses sorts que sur des planètes de rang 7 !
 
-« Malheureusement, je n'ai encore rencontré aucune planète de cultivation de rang 7. Je veux voir quel genre d'individu sur cette planète abandonnée peut faire fuir deux cultivateurs Ascendants au sommet de la phase tardive ! » Le garçon à la grosse tête laissa échapper un ricanement froid. Son corps ne s'approcha pas de la planète, mais son sens divin se déploya. Il se trouvait au début du stade Nirvana Scryer et avait choisi d'entrer dans le bassin céleste ; il avait perdu son domaine, mais possédait désormais une origine céleste !
+« Malheureusement, je n'ai encore rencontré aucune planète de cultivation de rang 7. Je veux voir quel genre d'individu sur cette planète abandonnée peut faire fuir deux cultivateurs Ascendants au sommet de la phase tardive ! » Le garçon à la grosse tête laissa échapper un ricanement froid. Son corps ne s'approcha pas de la planète, mais son sens divin se déploya. Il se trouvait au début du stade Scruteur du Nirvana et avait choisi d'entrer dans le bassin céleste ; il avait perdu son domaine, mais possédait désormais une origine céleste !
 
 Il avait secrètement utilisé plusieurs sorts célestes auparavant, et la puissance qu'il en avait retirée l'avait agréablement surpris.
 

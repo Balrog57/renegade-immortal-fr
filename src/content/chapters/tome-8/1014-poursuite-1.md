@@ -54,9 +54,9 @@ Un immense cratère jonchait le sol. Wang Lin avait déjà repris sa taille huma
 
 En contemplant le désert de sable noir et lisse, Wang Lin poussa un soupir de soulagement, bien que la peur persiste dans son regard.
 
-« C'est la première fois que mon corps de dieu ancestral à cinq étoiles est ainsi blessé. J'ignore ce qu'était ce tourbillon, mais sa puissance était phénoménale. Si je l'avais laissé se diviser une fois de plus, je n'aurais pas pu résister aujourd'hui. » L'expression de Wang Lin était sombre. Après la fusion de son corps originel et de son avatar, il pouvait combattre des cultivateurs du stade Nirvana Cleanser.
+« C'est la première fois que mon corps de dieu ancestral à cinq étoiles est ainsi blessé. J'ignore ce qu'était ce tourbillon, mais sa puissance était phénoménale. Si je l'avais laissé se diviser une fois de plus, je n'aurais pas pu résister aujourd'hui. » L'expression de Wang Lin était sombre. Après la fusion de son corps originel et de son avatar, il pouvait combattre des cultivateurs du stade Purificateur du Nirvana.
 
-Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Nirvana Cleanser ou du Nirvana Shatterer, surtout compte tenu de l'immense puissance de ce corps de dieu ancestral.
+Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Purificateur du Nirvana ou du Briseur du Nirvana, surtout compte tenu de l'immense puissance de ce corps de dieu ancestral.
 
 Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre des Dieux Ancestraux. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
 

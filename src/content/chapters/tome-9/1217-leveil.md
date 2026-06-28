@@ -1,4 +1,4 @@
----
+﻿---
 n: 1217
 title: "L'Éveil"
 book: 9
@@ -34,11 +34,11 @@ Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Syst
 
 « Tu es trop faible ! »
 
-Quant au Secte Divin de l'Oiseau Vermillon, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen !
+Quant au Secte Divine de l'Oiseau Vermillon, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen !
 
 « Ce feu est agaçant à regarder ! »
 
-Nul membre du Secte Divin de l'Oiseau Vermillon n'osa exprimer sa colère.
+Nul membre du Secte Divine de l'Oiseau Vermillon n'osa exprimer sa colère.
 
 Puis, Tuo Sen partit vers le Royaume du Vide Brillant pour combattre le vieil homme. Après avoir scellé ce dernier dans l'une de ses étoiles, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume du Vide Brillant ! Le Royaume du Vide Brillant, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
 

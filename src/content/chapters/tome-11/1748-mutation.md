@@ -67,7 +67,7 @@ Il pointa du doigt l'espace entre ses sourcils, là où résidait la Bête du Ne
 
 « Je ne parviens pas à comprendre... Mais je pressens que cette affaire est cruciale. Elle pourrait même être la clé pour résoudre la fusion des trois âmes... Si ce que j'ai vu dans l'illusion n'est pas entièrement vrai, alors il n'y a aucune explication possible... Mais si ce que j'ai vu est réel et que Qing Lin et les autres sont véritablement les sept fragments, alors le fait d'avoir trouvé leurs âmes de destin dans la rétribution divine demeure inexplicable... »
 
-Les yeux de Wang Lin devinrent lentement injectés de sang. Il semblait piégé dans une impasse dont il ne pouvait sortir. Non loin de là, le Grand Empereur Xuan Luo ouvrit les yeux. Il observait Wang Lin. Qu'il s'agisse du rêve de la planète Suzaku ou de la quête de la troisième âme, il avait tout vu.
+Les yeux de Wang Lin devinrent lentement injectés de sang. Il semblait piégé dans une impasse dont il ne pouvait sortir. Non loin de là, le Grand Empyrée Xuan Luo ouvrit les yeux. Il observait Wang Lin. Qu'il s'agisse du rêve de la planète Suzaku ou de la quête de la troisième âme, il avait tout vu.
 
 « Il est entré dans une boucle et ne pourra pas résoudre ce mystère de sitôt. En vérité, cette affaire est très simple... »
 
@@ -93,7 +93,7 @@ Wang Lin respira profondément. Cette clarté mentale faisait converger toutes l
 
 « Si le pouvoir au sein du Dao Céleste peut transformer les sept fragments, il peut aussi transformer les trois âmes. Si je parviens à maîtriser cette force, je pourrai rendre la troisième âme indépendante. Une fois devenue indépendante, les trois âmes ne pourront plus fusionner ! Si la fusion est impossible, alors tout sera résolu ! Mais de quelle nature est cette force... »
 
-Bien que son esprit fût lucide, il peinait à concevoir l'essence même du pouvoir central du Dao Céleste. Son propre Dao Céleste était incomplet, ou plutôt, il ne maîtrisait pas encore totalement le Dao qu'il contrôlait. C'est par ce Dao que la vie pouvait émerger et que toutes les lois et règles de l'univers prenaient forme. La clarté de son esprit s'estompa peu à peu alors que l'aube pointait à l'horizon. Au loin, Xuan Luo soupira. « Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empereur que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma cultivation devra franchir une étape supplémentaire... »
+Bien que son esprit fût lucide, il peinait à concevoir l'essence même du pouvoir central du Dao Céleste. Son propre Dao Céleste était incomplet, ou plutôt, il ne maîtrisait pas encore totalement le Dao qu'il contrôlait. C'est par ce Dao que la vie pouvait émerger et que toutes les lois et règles de l'univers prenaient forme. La clarté de son esprit s'estompa peu à peu alors que l'aube pointait à l'horizon. Au loin, Xuan Luo soupira. « Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empyrée que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma cultivation devra franchir une étape supplémentaire... »
 
 Les yeux de Xuan Luo brillaient d'une lueur mystérieuse.
 

@@ -14,7 +14,7 @@ Pendant un instant, il sembla pouvoir voir Li Qianmei et sa compagnie progresser
 
 « La loi du Continent Astral Immortel est invisible et se ressent sous forme de pression. Si tu parviens à y résister, alors tu pourras peut-être en sortir !
 
-« Cependant, même avec mon aide, les chances de succès ne sont que de 50 %... Depuis l'Antiquité, je n'ai jamais entendu parler d'un Grand Empereur aidant quelqu'un à résister à la loi du Continent Astral Immortel. Tu seras sans doute le premier... C'est ton propre destin, alors nul besoin d'éprouver trop de gratitude envers ce vieil homme.
+« Cependant, même avec mon aide, les chances de succès ne sont que de 50 %... Depuis l'Antiquité, je n'ai jamais entendu parler d'un Grand Empyrée aidant quelqu'un à résister à la loi du Continent Astral Immortel. Tu seras sans doute le premier... C'est ton propre destin, alors nul besoin d'éprouver trop de gratitude envers ce vieil homme.
 
 « Si tu réussis à en sortir, ce vieil homme te prendra pour disciple et te ramènera au clan Dao Antique ! Si tu finis par mourir... je t'aiderai à prendre soin de ceux qui se sont réincarnés... Prends... soin de toi ! » Xuan Luo laissa échapper un soupir. Il avait véritablement pris Wang Lin en affection. Il avait l'intention de tout lui transmettre et de laisser Wang Lin protéger le clan Dao Antique durant sa période de réincarnation.
 

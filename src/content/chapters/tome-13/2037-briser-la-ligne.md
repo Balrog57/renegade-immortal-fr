@@ -34,7 +34,7 @@ Des craquements résonnèrent dans son corps et son bras droit fut repoussé. Il
 
 « Tu ne peux pas briser cette formation... Tu ne peux pas arrêter mon plan. J'ai attendu ce jour pendant bien trop longtemps... » Le vieil homme secoua la tête en regardant Wang Lin. Son regard était étrange, mêlant des émotions complexes : cupidité et peur.
 
-Wang Lin avait déjà vu ce genre de regard chez l'Omniscient, mais il n'avait jamais été aussi explicite. Cela était dû au fait que sa cultivation avait atteint le niveau de Grand Empereur.
+Wang Lin avait déjà vu ce genre de regard chez l'Omniscient, mais il n'avait jamais été aussi explicite. Cela était dû au fait que sa cultivation avait atteint le niveau de Grand Empyrée.
 
 « L'Omniscient est déjà mort et le Souverain Céleste aux Sept Couleurs a disparu. Qui êtes-vous ?! » rugit Wang Lin, tandis que son corps s'étendait à nouveau. Il était désormais un géant de plus de 10 000 pieds. Son rugissement fut comme une bourrasque, et son pied droit s'abattit sur la formation.
 
@@ -82,24 +82,24 @@ Bien qu'il ait franchi la limite, il semblait évoluer dans un espace différent
 
 Le vieil homme regarda Wang Lin, qui n'était plus qu'à quelques centaines de pieds, avec une expression pitoyable. Mais l'instant d'après, ses pupilles se rétractèrent violemment.
 
-Tandis que Wang Lin se tenait là, son niveau de cultivation ne cessait de grimper. Le soleil de Grand Empereur derrière lui brilla d'un éclat intense et grandit de plus de dix fois sa taille en un clin d'œil !
+Tandis que Wang Lin se tenait là, son niveau de cultivation ne cessait de grimper. Le soleil de Grand Empyrée derrière lui brilla d'un éclat intense et grandit de plus de dix fois sa taille en un clin d'œil !
 
 Le soleil géant dégageait toujours plus de lumière, mais son expansion ne s'arrêtait pas. De loin, on aurait dit une sphère gonflant indéfiniment.
 
-« Que comptes-tu faire ?! » L'expression du vieil homme devint sombre alors qu'il fixait le soleil de Grand Empereur. Sans hésiter, il leva la main droite. La mouche géante qui tournait autour de lui se mit à bourdonner bruyamment ; elle afficha un regard féroce et chargea Wang Lin.
+« Que comptes-tu faire ?! » L'expression du vieil homme devint sombre alors qu'il fixait le soleil de Grand Empyrée. Sans hésiter, il leva la main droite. La mouche géante qui tournait autour de lui se mit à bourdonner bruyamment ; elle afficha un regard féroce et chargea Wang Lin.
 
 Cependant, lorsqu'elle fut à quelques dizaines de pieds de lui, elle ne put s'approcher davantage, comme stoppée par une barrière invisible.
 
 Des grondements tonitruants retentirent alors que la mouche, ivre de rage, se fracassait contre cette barrière invisible. La main droite de Wang Lin plongea dans le vide devant lui et une âme apparut : c'était l'âme de l'Empereur Céleste !
 
-Tenant cette âme, Wang Lin ferma les yeux et son niveau de cultivation continua de s'élever. Alors que sa cultivation atteignait le stade de la Tribulation du Vide, elle continua de progresser ! Il injecta toute sa puissance dans l'âme, forçant les yeux de l'Empereur Céleste à s'ouvrir pour libérer une lumière dorée éblouissante. Toutefois, ces yeux étaient dépourvus de conscience et n'exprimaient que la confusion. Wang Lin agita la main et projeta l'âme dans le soleil de Grand Empereur derrière lui.
+Tenant cette âme, Wang Lin ferma les yeux et son niveau de cultivation continua de s'élever. Alors que sa cultivation atteignait le stade de la Tribulation du Vide, elle continua de progresser ! Il injecta toute sa puissance dans l'âme, forçant les yeux de l'Empereur Céleste à s'ouvrir pour libérer une lumière dorée éblouissante. Toutefois, ces yeux étaient dépourvus de conscience et n'exprimaient que la confusion. Wang Lin agita la main et projeta l'âme dans le soleil de Grand Empyrée derrière lui.
 
 Une tête floue était dissimulée à l'intérieur de ce soleil gigantesque : c'était la tête de l'Ancêtre Céleste, que Wang Lin avait récupérée au Palais Dao Antique pour l'intégrer au soleil.
 
 Au moment où l'âme de l'Empereur Céleste rejoignit le soleil et la tête de l'Ancêtre Céleste, ce dernier s'étendit à nouveau, atteignant cent fois sa taille originale !
 
-Le corps de Wang Lin trembla et il poussa un rugissement. Le soleil de Grand Empereur prit encore plusieurs fois plus d'ampleur avant que les yeux de Wang Lin ne s'ouvrent brusquement.
+Le corps de Wang Lin trembla et il poussa un rugissement. Le soleil de Grand Empyrée prit encore plusieurs fois plus d'ampleur avant que les yeux de Wang Lin ne s'ouvrent brusquement.
 
-« Embrase-toi, soleil de Grand Empereur ! » Le soleil commença à brûler. De loin, il ressemblait à une gigantesque boule de feu noire et blanche, et une mer de flammes déferla à travers le ciel !
+« Embrase-toi, soleil de Grand Empyrée ! » Le soleil commença à brûler. De loin, il ressemblait à une gigantesque boule de feu noire et blanche, et une mer de flammes déferla à travers le ciel !
 
 L'expression du vieil homme changea radicalement ; il se leva d'un bond et hurla : « Ne veux-tu pas vraiment ressusciter Li Muwan ?! »

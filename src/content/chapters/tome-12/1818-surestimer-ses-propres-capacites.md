@@ -88,7 +88,7 @@ Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur le Se
 
 « C'est tout simplement impossible. Cet homme est trop têtu ; c'est une pure perte de temps. Si fusionner avec le monde était si simple, n'importe qui pourrait le faire...
 
-« Son niveau de cultivation est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empereur... Quel imbécile. » Du Qing secoua la tête.
+« Son niveau de cultivation est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empyrée... Quel imbécile. » Du Qing secoua la tête.
 
 En un éclair, trois mois de plus passèrent !
 
@@ -96,11 +96,11 @@ Wang Lin avait passé sept mois en méditation fermée à étudier ce sortilège
 
 Du Qing, voyant cela, ricana :
 
-« Je ne sais pas si je devrais lui dire qu'il surestime ses capacités. Bien qu'il ait capté l'attention d'un Grand Empereur, possède de nombreux trésors et une bête extraordinaire, ce qu'il fait actuellement prouve qu'il se croit bien plus puissant qu'il ne l'est !
+« Je ne sais pas si je devrais lui dire qu'il surestime ses capacités. Bien qu'il ait capté l'attention d'un Grand Empyrée, possède de nombreux trésors et une bête extraordinaire, ce qu'il fait actuellement prouve qu'il se croit bien plus puissant qu'il ne l'est !
 
 « Je veux voir combien de temps il compte persévérer. Lorsqu'il échouera finalement, quelle expression fera-t-il... » Il y avait une pointe de mépris dans les yeux de Du Qing, mais aussi une part de jalousie.
 
-« Comment se fait-il que moi, Du Qing, je n'aie pas été accepté par un Grand Empereur... Est-ce que tous les Grands Empereurs apprécient les fous de ce genre ? » Du Qing était peu convaincu.
+« Comment se fait-il que moi, Du Qing, je n'aie pas été accepté par un Grand Empyrée... Est-ce que tous les Grands Empyrées apprécient les fous de ce genre ? » Du Qing était peu convaincu.
 
 Au cours de ces sept mois, les actions apparemment insensées de Wang Lin avaient lentement changé l'avis de Du Qing. Il en venait à penser que l'esprit de Wang Lin était peut-être défaillant.
 

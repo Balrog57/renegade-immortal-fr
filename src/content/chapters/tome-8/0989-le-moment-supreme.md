@@ -8,7 +8,7 @@ slug: le-moment-supreme
 ---
 Maître Hollow Wind n'était pas certain que Wang Lin ait créé ce sort qui avait failli lui faire perdre la raison. Il ressentait seulement que le sort était d'une puissance redoutable, et il voyait rarement un sort d'une telle envergure !
 
-Si Maître Hollow Wind pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en cultivation et de son stade de cultivation au début du Nirvana Cleanser. En éprouvant le sort, Maître Hollow Wind avait ressenti un manque de maîtrise !
+Si Maître Hollow Wind pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en cultivation et de son stade de cultivation au début du Purificateur du Nirvana. En éprouvant le sort, Maître Hollow Wind avait ressenti un manque de maîtrise !
 
 Ce manque de maîtrise ne provenait pas du fait que l'utilisateur n'était pas familier avec la technique, mais du sort lui-même. C’est comme un jade qui vient d'être poli : il semble très lisse, mais si vous le touchez, vous constaterez qu'il est encore un peu rugueux.
 
@@ -18,7 +18,7 @@ Wang Lin regarda calmement Maître Hollow Wind et hocha la tête.
 
 Ce simple hochement fit naître une tempête dans le cœur de Maître Hollow Wind. Il fixa Wang Lin, abasourdi, incapable de prononcer un mot pendant un long moment.
 
-Les sorts auto-créés n'étaient pas l'apanage de n'importe qui. D'après l'expérience de Maître Hollow Wind, il avait entendu dire que seuls les vieux monstres au stade du Nirvana Shatterer étaient qualifiés pour concevoir des sorts qui leur étaient propres.
+Les sorts auto-créés n'étaient pas l'apanage de n'importe qui. D'après l'expérience de Maître Hollow Wind, il avait entendu dire que seuls les vieux monstres au stade du Briseur du Nirvana étaient qualifiés pour concevoir des sorts qui leur étaient propres.
 
 En somme, tout sort auto-créé possédait une puissance dépassant l'imagination !
 
@@ -30,7 +30,7 @@ Maître Hollow Wind comprit que si Wang Lin n'avait pas voulu le tuer, il aurait
 
 Tandis que des centaines d'idées traversaient l'esprit de Maître Hollow Wind, Wang Lin réfléchissait également. Le choc que Sundered Night avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Hollow Wind. En fait, il était encore plus stupéfait !
 
-« Ma cultivation actuelle n'est qu'au sommet du milieu du stade Nirvana Scryer, un pas avant le stade final, mais loin du sommet du stade de fin de Nirvana Scryer. La différence entre ma cultivation et celle d'un Nirvana Cleanser est immense, alors pourquoi Sundered Night a-t-il pu blesser si facilement Maître Hollow Wind... »
+« Ma cultivation actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma cultivation et celle d'un Purificateur du Nirvana est immense, alors pourquoi Sundered Night a-t-il pu blesser si facilement Maître Hollow Wind... »
 
 Wang Lin continua de méditer sur ce problème.
 
@@ -84,7 +84,7 @@ Une illumination divine apparut dans les yeux de Wang Lin. D'une simple pensée,
 
 « C'était donc cela ! Mon réservoir d'énergie d'origine est insuffisant pour utiliser ce sort auto-créé si dévastateur. Je ne peux qu'emprunter la puissance du lever du soleil... » Wang Lin médita longuement avant de secouer la tête. Il fit un pas et disparut.
 
-« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais avoir la puissance nécessaire pour affronter un cultivateur au début du stade Nirvana Shatterer ! »
+« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais avoir la puissance nécessaire pour affronter un cultivateur au début du stade Briseur du Nirvana ! »
 
 « Le moment où le soleil dépasse l'horizon est celui où je suis à mon apogée ! »
 

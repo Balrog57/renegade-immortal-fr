@@ -100,11 +100,11 @@ Le palais souterrain était plongé dans une brume, presque identique à ce qu'i
 
 Cette montagne perçait le ciel et était d'une taille colossale. Debout devant elle, Wang Lin sentit la présence du fou endormi en son sein.
 
-D'innombrables restrictions et sceaux protégeaient l'intérieur et l'extérieur de la montagne. Même un Grand Empereur aurait eu besoin de beaucoup de temps pour les briser.
+D'innombrables restrictions et sceaux protégeaient l'intérieur et l'extérieur de la montagne. Même un Grand Empyrée aurait eu besoin de beaucoup de temps pour les briser.
 
 Wang Lin leva la main droite et fit un geste vers la montagne. Celle-ci gronda et s'effondra à une vitesse fulgurante. Des masses rocheuses gigantesques s'écroulèrent, et en un clin d'œil, toutes les restrictions et tous les sceaux disparurent sous le simple mouvement de sa main.
 
-Alors que la montagne s'effondrait, le corps du fou apparut. Il reposait paisiblement, les yeux clos. Il dormait. Des fluctuations de cultivation de niveau Grand Empereur émanaient de son corps.
+Alors que la montagne s'effondrait, le corps du fou apparut. Il reposait paisiblement, les yeux clos. Il dormait. Des fluctuations de cultivation de niveau Grand Empyrée émanaient de son corps.
 
 Wang Lin s'avança jusqu'à lui et pointa le front du dormeur du doigt. Soudain, le corps du fou fut secoué par un tremblement.
 

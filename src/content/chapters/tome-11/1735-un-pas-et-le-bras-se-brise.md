@@ -108,8 +108,8 @@ D'un geste nonchalant de la main gauche, il s'empara de l'armure et de la lance 
 
 « Cultivateur du Pays Antique !! Tu es un membre du Clan Antique !! » Une voix presque déformée par la douleur résonna depuis le vortex.
 
-Cette scène fut observée par le Grand Empereur Xuan Luo, à l'extérieur de la planète. Il afficha un sourire fier et une expression tyrannique.
+Cette scène fut observée par le Grand Empyrée Xuan Luo, à l'extérieur de la planète. Il afficha un sourire fier et une expression tyrannique.
 
 « Bien, c'est effectivement un enfant de mon Clan de la Voie Antique. C'est la meilleure façon de traiter ceux qui osent offenser la Voie Antique. S'il avait fait moins, j'en aurais été quelque peu insatisfait. Cela ressemble beaucoup à mon tempérament. Si c'était moi, je lui aurais coupé les griffes ! »
 
-« Secte Gui Yi, le groupe de célestes qui est venu ici est intéressant... » Le Grand Empereur Xuan Luo regarda la tour avec désinvolture. S'il le voulait, il lui suffirait d'un revers de main pour que toute vie sur la planète disparaisse.
+« Secte Gui Yi, le groupe de célestes qui est venu ici est intéressant... » Le Grand Empyrée Xuan Luo regarda la tour avec désinvolture. S'il le voulait, il lui suffirait d'un revers de main pour que toute vie sur la planète disparaisse.

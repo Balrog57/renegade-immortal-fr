@@ -8,7 +8,7 @@ slug: faire-un-pas-pour-pietiner-les-cieux
 ---
 Chapitre 2064 - Faire un pas pour piétiner les cieux !
 
-Tous les Grands Empereurs du Continent Astral Immortel furent stupéfaits. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancestral étaient d'une rapidité extrême.
+Tous les Grands Empyrées du Continent Astral Immortel furent stupéfaits. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancestral étaient d'une rapidité extrême.
 
 Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de cultivation de Wang Lin ou de Gu Dao.
 
@@ -20,7 +20,7 @@ La brume autour de Gu Dao se brisa complètement dans un cri misérable. Elle di
 
 « Puisque vous voulez voir, alors regardez... Vous êtes la première personne à découvrir mon visage depuis d'innombrables années... » Le corps de Gu Dao était svelte et il portait une robe verte dont la manche droite manquait. Ses cheveux étaient gris, et il fixait Wang Lin alors que la brume autour de son visage se dissipait totalement.
 
-Wang Lin le regarda également à des milliers de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empereur Gu Dao. Il ne fut pas surpris et poussa un long soupir.
+Wang Lin le regarda également à des milliers de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empyrée Gu Dao. Il ne fut pas surpris et poussa un long soupir.
 
 « C'est bien vous ! »
 
@@ -34,7 +34,7 @@ Gu Dao ressemblait trait pour trait à la statue de l'Ancêtre Ancestral dans le
 
 Gu Dao afficha une expression mélancolique et déclara lentement : « Je suis Gu Dao... et aussi l'Ancêtre Ancestral. J'ai obtenu une partie de la mémoire et de la volonté de l'Ancêtre Ancestral... pour protéger le clan Ancestral et les descendants des familles impériales... Mon apparence a lentement changé après avoir absorbé cette mémoire et cette volonté... » La voix de Gu Dao était basse.
 
-« La distance maximale que vous pouvez parcourir est cet endroit ! Les rumeurs disent que vous avez tué un Grand Empereur du clan Céleste, mais ce n'est qu'une erreur. Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
+« La distance maximale que vous pouvez parcourir est cet endroit ! Les rumeurs disent que vous avez tué un Grand Empyrée du clan Céleste, mais ce n'est qu'une erreur. Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
 
 Il était perplexe car, avec le niveau de cultivation de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul ; pourtant, après d'innombrables années, le clan Céleste existait toujours.
 
@@ -60,7 +60,7 @@ D'un geste, d'innombrables particules de lumière se rassemblèrent derrière lu
 
 L'énergie infinie du monde fut absorbée et l'ombre lumineuse s'étendit. Le vortex d'aspiration se propagea vers le clan Céleste et le clan Ancestral.
 
-Du côté du clan Céleste, près de la vaste mer, les quatre Grands Empereurs Célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancestral avec Song Tian et ses compagnons ; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
+Du côté du clan Céleste, près de la vaste mer, les quatre Grands Empyrées s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancestral avec Song Tian et ses compagnons ; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
 
 Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les 100 000 pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu !
 

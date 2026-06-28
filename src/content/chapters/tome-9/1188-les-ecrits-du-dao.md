@@ -1,4 +1,4 @@
----
+﻿---
 n: 1188
 title: Les Écrits du Dao
 book: 9
@@ -62,7 +62,7 @@ En regardant devant lui, Wang Lin sentait distinctement que Maître Ashen Pine s
 
 Maître Ashen Pine portait l'Armure Divine Démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
 
-« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes ; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts du Secte Divin. » Maître Ashen Pine avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
+« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes ; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts du Secte Divine. » Maître Ashen Pine avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
 
 « Pang Decai doit être en route... » Les yeux de Maître Ashen Pine brillèrent d'une lueur indéchiffrable.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1160 - Li Qianmei
 slug: li-qianmei
 ---
-Un seul coup de pied suffit pour tuer une bête de rang 8. Bien qu'une telle créature puisse combattre un cultivateur au sommet du stade Nirvana Cleanser, elle était incapable d'utiliser des trésors ; elle ne pouvait employer que les lois qu'elle maîtrisait sous forme de sorts. Cependant, cela restait une bête de rang 8 !
+Un seul coup de pied suffit pour tuer une bête de rang 8. Bien qu'une telle créature puisse combattre un cultivateur au sommet du stade Purificateur du Nirvana, elle était incapable d'utiliser des trésors ; elle ne pouvait employer que les lois qu'elle maîtrisait sous forme de sorts. Cependant, cela restait une bête de rang 8 !
 
 Même dans la Mer des Nuages, un cultivateur capable d'éliminer instantanément une bête de rang 8 était suffisamment puissant pour figurer parmi les plus grands experts !
 
@@ -14,7 +14,7 @@ Li Xiangdong et ses compagnons contemplèrent la scène avec stupéfaction. Ils 
 
 « Avec un cultivateur aussi puissant au sein de ma Secte Originelle, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5 ! » Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté !
 
-S'ils avaient su que Wang Lin avait tué un cultivateur Nirvana Shatterer de la région de rang 6, ils en auraient été encore plus choqués.
+S'ils avaient su que Wang Lin avait tué un cultivateur Briseur du Nirvana de la région de rang 6, ils en auraient été encore plus choqués.
 
 Lorsque les bêtes féroces aperçurent la puissance de Wang Lin, toute cupidité quitta leurs yeux pour faire place à la terreur. Elles entamèrent immédiatement leur fuite, cherchant à quitter le domaine du continent de Mo Luo.
 
@@ -54,9 +54,9 @@ Bien que la sixième étoile fût encore incertaine, elle permettait de déchaî
 
 Un sourire apparut au coin de ses lèvres. Wang Lin laissa son corps original dans les profondeurs du continent pour continuer à absorber l'énergie originelle et entamer la formation de son Serpent Moongazer. Il quitta le sous-sol pour réapparaître dans la demeure de la cour.
 
-Il poussa un profond soupir, l'humeur sereine. La réussite de cette épreuve par son corps original allait considérablement accroître sa puissance dans la Mer des Nuages. En combinant son avatar et son corps originel, tuer un cultivateur Nirvana Shatterer au stade initial ne serait plus aussi complexe qu'auparavant !
+Il poussa un profond soupir, l'humeur sereine. La réussite de cette épreuve par son corps original allait considérablement accroître sa puissance dans la Mer des Nuages. En combinant son avatar et son corps originel, tuer un cultivateur Briseur du Nirvana au stade initial ne serait plus aussi complexe qu'auparavant !
 
-« Cependant, l'écart entre les stades initial, intermédiaire, avancé et sommet du Nirvana Shatterer est immense. Je ne sais pas si je pourrai rivaliser avec des cultivateurs Nirvana Shatterer de stade intermédiaire une fois mon corps originel et mon avatar fusionnés ! » Les yeux de Wang Lin brillèrent alors qu'il poussait la porte pour sortir.
+« Cependant, l'écart entre les stades initial, intermédiaire, avancé et sommet du Briseur du Nirvana est immense. Je ne sais pas si je pourrai rivaliser avec des cultivateurs Briseur du Nirvana de stade intermédiaire une fois mon corps originel et mon avatar fusionnés ! » Les yeux de Wang Lin brillèrent alors qu'il poussait la porte pour sortir.
 
 Dès que Wang Lin apparut, une brise légère effleura son visage, procurant un grand confort. La barrière ayant été réactivée, le ciel était d'un bleu pur parsemé de nuages blancs.
 
@@ -80,7 +80,7 @@ Tandis que la région de rang 6 s'agitait, la nouvelle concernant le jade et la 
 
 Des éclats de lumière jaillirent des régions de rang 7 et 8 vers le continent sauvage scellé de la région de rang 5.
 
-Le brouillard d'étoiles dans les profondeurs de la Mer des Nuages était extrêmement dense, au point qu'un cultivateur Nirvana Shatterer ne pouvait étendre son Sens Divin que sur 500 pieds. S'aventurer dans ce brouillard sans préparation revenait à marcher à l'aveugle, avec un risque immense de s'égarer.
+Le brouillard d'étoiles dans les profondeurs de la Mer des Nuages était extrêmement dense, au point qu'un cultivateur Briseur du Nirvana ne pouvait étendre son Sens Divin que sur 500 pieds. S'aventurer dans ce brouillard sans préparation revenait à marcher à l'aveugle, avec un risque immense de s'égarer.
 
 Les bêtes féroces les plus puissantes résidaient ici. Certaines utilisaient même des sorts pour fusionner leur corps avec la brume afin de comprendre les lois. Si aucun cultivateur ne les provoquait, elles n'attaquaient pas de leur propre initiative.
 
@@ -104,9 +104,9 @@ Il s'agissait de Li Qianmei, de la Secte Céleste Brisée de rang 9 !
 
 Elle commença sa cultivation à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de cultivation, elle atteignit le sommet du stade Illusoire Yin.
 
-Puis, toute la Secte Céleste Brisée consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scrutateur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Nirvana Cleanser.
+Puis, toute la Secte Céleste Brisée consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scrutateur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
 
-Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Nirvana Shatterer de la Secte Céleste Brisée ! À ce jour, après plus de 1 300 ans de cultivation, elle avait atteint le stade avancé du Nirvana Shatterer.
+Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Céleste Brisée ! À ce jour, après plus de 1 300 ans de cultivation, elle avait atteint le stade avancé du Briseur du Nirvana.
 
 Dans la Mer des Nuages, le nom de « Li Qianmei » était une légende !
 

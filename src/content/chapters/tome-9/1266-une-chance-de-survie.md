@@ -1,4 +1,4 @@
----
+﻿---
 n: 1266
 title: Une Chance de Survie
 book: 9
@@ -6,21 +6,21 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1266 - A Chance of Survival
 slug: une-chance-de-survie
 ---
-Un courant sous-jacent agitait la Mer des Nuages, provoqué par le Secte Divin. Il interférait avec une série d'individus !
+Un courant sous-jacent agitait la Mer des Nuages, provoqué par le Secte Divine. Il interférait avec une série d'individus !
 
 Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa cultivation en isolement prolongé pour empêcher leur disciple la plus importante de s'échapper.
 
 Il traversait ses propres difficultés ; il devait agir ainsi pour la sécurité de Li Qianmei !
 
-Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue au Secte Divin avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante du Secte Divin : le Grand Ancien, le Daoïste Eau !
+Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue au Secte Divine avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante du Secte Divine : le Grand Ancien, le Daoïste Eau !
 
-Dès son entrée au Secte Divin, elle avait été placée dans une salle de cultivation isolée. Le Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir !
+Dès son entrée au Secte Divine, elle avait été placée dans une salle de cultivation isolée. Le Secte Divine fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir !
 
 Si elle avait su que la compétition entre sectes de rang 8 avait été annulée, son intelligence l'aurait poussée à la suspicion. Même sans trouver la véritable cause, elle aurait perçu des indices.
 
 Cependant, pour l'instant, Mu Bingmei n'en savait rien.
 
-Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par le Secte Divin !
+Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par le Secte Divine !
 
 Ce courant sous-jacent se propageait à travers toute la Mer des Nuages.
 

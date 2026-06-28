@@ -32,7 +32,7 @@ Une branche reliait encore le fruit. La silhouette aux sept couleurs coupa la ti
 
 « Ceci est un cadeau pour toi. »
 
-Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept couleurs lui inspirait la même sensation que l'All-Seer. Il ne pouvait deviner les intentions de cet être. Cette personne lui avait permis de sauver Qing Shui, lui avait révélé le secret des Anciens, et venait même de lui offrir un Fruit du Dao !
+Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept couleurs lui inspirait la même sensation que l'Tout-Voyant. Il ne pouvait deviner les intentions de cet être. Cette personne lui avait permis de sauver Qing Shui, lui avait révélé le secret des Anciens, et venait même de lui offrir un Fruit du Dao !
 
 Rien de tout cela ne pouvait être fait sans raison ; il devait y avoir un piège !
 

@@ -56,19 +56,19 @@ Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il con
 
 Wang Lin regarda calmement Chen Feng et dit lentement : « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
-Chen Feng eut un sourire amer et secoua la tête. Il avait déjà vérifié le sceau ; il savait qu'il s'agissait d'un art capable de ne sceller que des cultivateurs du stade Nirvana Scryer. S'il le voulait, il ne lui faudrait pas longtemps pour le briser.
+Chen Feng eut un sourire amer et secoua la tête. Il avait déjà vérifié le sceau ; il savait qu'il s'agissait d'un art capable de ne sceller que des cultivateurs du stade Scruteur du Nirvana. S'il le voulait, il ne lui faudrait pas longtemps pour le briser.
 
 Cependant, il n'osait prendre ce risque, et il craignait encore plus Wang Lin pour cette raison. À ses yeux, c'était un piège. S'il croyait vraiment Wang Lin et tentait de rompre le sceau, cela déclencherait probablement une réaction en chaîne activant quelque chose de bien plus puissant.
 
 À ce moment-là, les conséquences seraient au-delà de sa résistance.
 
-« Wang Lin n'oserait pas être aussi imprudent si ce n'était pas le cas. Les complots de cet homme sont profonds, je ne peux donc pas le sous-estimer ! Comment cela pourrait-il être comparable à un sceau de Nirvana Cleanser ? Bien que cela m'obligerait à me soumettre temporairement, je chercherais constamment un moyen de le briser ! »
+« Wang Lin n'oserait pas être aussi imprudent si ce n'était pas le cas. Les complots de cet homme sont profonds, je ne peux donc pas le sous-estimer ! Comment cela pourrait-il être comparable à un sceau de Purificateur du Nirvana ? Bien que cela m'obligerait à me soumettre temporairement, je chercherais constamment un moyen de le briser ! »
 
 « Pourtant, il a fait en sorte que le sceau semble pouvoir se briser d'un simple toucher, mais en réalité, un piège y est dissimulé. Comment oserais-je toucher un tel sceau ?! »
 
 Le vieil homme sourit amèrement.
 
-C'était là le véritable dessein de Wang Lin. Après tout, son niveau de cultivation réel n'était que celui d'un stade intermédiaire avancé du Nirvana Scryer ; comment pouvait-il sceller un cultivateur Nirvana Cleanser ? Il ne pouvait compter que sur ses ruses !
+C'était là le véritable dessein de Wang Lin. Après tout, son niveau de cultivation réel n'était que celui d'un stade intermédiaire avancé du Scruteur du Nirvana ; comment pouvait-il sceller un cultivateur Purificateur du Nirvana ? Il ne pouvait compter que sur ses ruses !
 
 Ce stratagème formait un sceau invisible qui, s'il était utilisé correctement, était plus puissant que n'importe quel sceau au monde !
 
@@ -134,4 +134,4 @@ Il ignorait que ses paroles furent comme des dizaines de milliers d'éclairs exp
 
 Le Maître Yi Chen s'exclama rapidement sans hésitation : « Frère Wang Lin, ne partez pas si vite. La planète Esprit de l'Eau est immense. Si le frère Wang n'y voit aucun inconvénient, vous pouvez y cultiver ! »
 
-« Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Nirvana Cleanser et a fait du célèbre Maître Vent Creux son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Nirvana Scryer, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne ! »
+« Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Vent Creux son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne ! »

@@ -72,7 +72,7 @@ L'Empereur Dao Antique dit : « Impératrice, reconnaissez-vous le futur gardien
 
 La femme en robe de phénix baissa la tête et secoua négativement.
 
-« Le Maître Impérial a déclaré que ce fragment d'âme avait été scellé par lui, de sorte qu'aucune fluctuation ne puisse se propager. Même si les êtres les plus proches du fragment apparaissaient, ils seraient incapables de le détecter. À moins que cette personne ne possède un pouvoir de divination dépassant celui du Maître Impérial, même les Grands Empereurs ne pourraient le percevoir. » L'Empereur Dao Antique esquissa un léger sourire.
+« Le Maître Impérial a déclaré que ce fragment d'âme avait été scellé par lui, de sorte qu'aucune fluctuation ne puisse se propager. Même si les êtres les plus proches du fragment apparaissaient, ils seraient incapables de le détecter. À moins que cette personne ne possède un pouvoir de divination dépassant celui du Maître Impérial, même les Grands Empyrées ne pourraient le percevoir. » L'Empereur Dao Antique esquissa un léger sourire.
 
 « Intéressant. Ce fragment d'âme pourrait-il vraiment être lié à ce Wang Lin ? » L'Empereur était agréablement surpris, tout en conservant son sourire insaisissable.
 

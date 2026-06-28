@@ -72,7 +72,7 @@ Ce cadavre était entouré de multiples chaînes. Celles qui pendaient plus tôt
 
 Ce cadavre n'avait pas été formé naturellement, mais raffiné à partir d'innombrables restes par un sortilège. Au sein de l'Alliance, on l'appelait un « cadavre raffiné » !
 
-Cet objet était créé par le Royaume de la Prison des Cadavres, la Secte des Cadavres fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés ! Chaque cadavre possédait une cultivation équivalente à celle d'un cultivateur Nirvana Scryer au stade avancé !
+Cet objet était créé par le Royaume de la Prison des Cadavres, la Secte des Cadavres fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés ! Chaque cadavre possédait une cultivation équivalente à celle d'un cultivateur Scruteur du Nirvana au stade avancé !
 
 Le premier cadavre raffiné qui apparut secoua les chaînes de son corps et poussa un rugissement. Ce cri pouvait pénétrer le corps pour affecter directement l'âme originelle.
 
@@ -84,7 +84,7 @@ En balayant la zone, il créa une véritable rafale de vent. De nombreux cultiva
 
 Au fur et à mesure que les cadavres raffinés surgissaient l'un après l'autre, la situation sur le champ de bataille commença à s'inverser. Cela fut particulièrement flagrant lorsque les trois derniers sortirent : ils n'émettaient pas de lueur pourpre, deux d'entre eux brillaient d'argent et le dernier d'or !
 
-Les deux cadavres argentés étaient un homme et une femme. Bien que leurs expressions fussent léthargiques, leurs corps avaient la taille de ceux d'un humain normal et ils portaient des tuniques argentées. Ils n'avaient que deux chaînes autour d'eux. Dès leur apparition, ils dégagèrent la pression de cultivateurs Nirvana Cleanser au stade initial.
+Les deux cadavres argentés étaient un homme et une femme. Bien que leurs expressions fussent léthargiques, leurs corps avaient la taille de ceux d'un humain normal et ils portaient des tuniques argentées. Ils n'avaient que deux chaînes autour d'eux. Dès leur apparition, ils dégagèrent la pression de cultivateurs Purificateur du Nirvana au stade initial.
 
 Le dernier cadavre raffiné ne pouvait même plus être qualifié de cadavre. C'était un homme d'âge moyen vêtu d'une robe de dragon ; il ressemblait à un empereur mortel !
 
@@ -98,7 +98,7 @@ S'il pouvait obtenir un mérite, il le prendrait ; sinon, il se concentrerait un
 
 « Je ne sais pas où se trouve le Frère Aîné Qing Shu, mais je crois qu'il doit être dans les parages ! » Wang Lin continua de reculer, mais la femme en robe bleue n'avait aucune intention de le laisser filer. Elle pointa sa main de jade et un cadavre raffiné ordinaire fixa Wang Lin avant de s'élancer à sa poursuite.
 
-L'expression de Wang Lin devint sombre. S'il devait affronter un Nirvana Scryer au stade intermédiaire avec son corps et ses sorts actuels, il pourrait l'emporter. Cependant, face à un Nirvana Scryer au stade avancé, il devrait déployer toutes ses capacités pour espérer une victoire, et les variables étaient trop nombreuses.
+L'expression de Wang Lin devint sombre. S'il devait affronter un Scruteur du Nirvana au stade intermédiaire avec son corps et ses sorts actuels, il pourrait l'emporter. Cependant, face à un Scruteur du Nirvana au stade avancé, il devrait déployer toutes ses capacités pour espérer une victoire, et les variables étaient trop nombreuses.
 
 Toutefois, il serait imprudent de s'épuiser ainsi dans cette grande bataille. De plus, s'il était blessé, il se retrouverait immédiatement en danger de mort.
 

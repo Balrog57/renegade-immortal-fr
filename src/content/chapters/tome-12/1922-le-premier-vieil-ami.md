@@ -26,7 +26,7 @@ Cependant, la raison pour laquelle ce sort était si puissant résidait dans la 
 
 L'âme originelle du maître de la secte du Secte du Dao Démoniaque avait ouvert la quatrième et la cinquième Veine de Sort, mais la sixième nécessitait neuf Exaltés Dorés !
 
-« Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Célestes. Se pourrait-il que la huitième exige neuf Exaltés Ascendants... ? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empereurs Célestes... ? Peut-être que la neuvième n'exigera qu'un seul Grand Empereur Céleste... » Wang Lin sourit amèrement.
+« Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Célestes. Se pourrait-il que la huitième exige neuf Exaltés Ascendants... ? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empyrées... ? Peut-être que la neuvième n'exigera qu'un seul Grand Empyrée... » Wang Lin sourit amèrement.
 
 « L'Art du Sort Rapide doit être cultivé. Il est extrêmement puissant et me permet d'utiliser toute ma force !
 
@@ -34,7 +34,7 @@ Mon véritable niveau de cultivation n'est qu'au début du stade Tribulation du 
 
 Alors, je pourrai intégrer encore plus de sorts. J'ignore combien j'en serai capable après avoir atteint le milieu du stade Tribulation du Vide !
 
-Outre cela, je dois affronter davantage d'Exaltés Célestes et attirer l'attention des autres Grands Empereurs Célestes... De plus, je dois rechercher des informations sur l'Épreuve Céleste et voir si elle est réellement ce que l'ancêtre du Secte du Dao Démoniaque avait affirmé. »
+Outre cela, je dois affronter davantage d'Exaltés Célestes et attirer l'attention des autres Grands Empyrées... De plus, je dois rechercher des informations sur l'Épreuve Céleste et voir si elle est réellement ce que l'ancêtre du Secte du Dao Démoniaque avait affirmé. »
 
 Les yeux de Wang Lin s'illuminèrent et il se leva après ces trois années de méditation.
 
@@ -92,7 +92,7 @@ Au sein de la secte, le nombre de membres de rang 1 était très faible, moins d
 
 À cet instant, dans un magnifique pavillon situé dans la zone des membres de rang 5, deux cultivateurs étaient assis.
 
-L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de cultivation n'était pas élevé, se situant au deuxième stade du Nirvana Scryer.
+L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de cultivation n'était pas élevé, se situant au deuxième stade du Scruteur du Nirvana.
 
 La femme à ses côtés ne cultivait pas ; elle le regardait avec un regard doux, empreint d'une profonde affection.
 

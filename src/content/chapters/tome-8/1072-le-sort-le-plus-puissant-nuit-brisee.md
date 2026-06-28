@@ -104,4 +104,4 @@ Même le fou de Maître du Vide fut surpris et s'éveilla brusquement de sa conf
 
 « La... Loi d'origine !!! »
 
-Lorsqu'il était au stade intermédiaire du Scryer Nirvana, il avait compris la loi du monde pour créer Nuit Brisée. Or, le niveau de cultivation de Wang Lin était désormais bien supérieur à celui qu'il avait alors, au sommet du Scryer Nirvana et à un seul pas du Nirvana Cleanser. À son niveau actuel, s'il lançait ce sort qu'il ne pouvait utiliser que lors des rares moments où la loi d'origine se manifestait... même Wang Lin ignorait quelle en serait la puissance dévastatrice.
+Lorsqu'il était au stade intermédiaire du Scryer Nirvana, il avait compris la loi du monde pour créer Nuit Brisée. Or, le niveau de cultivation de Wang Lin était désormais bien supérieur à celui qu'il avait alors, au sommet du Scryer Nirvana et à un seul pas du Purificateur du Nirvana. À son niveau actuel, s'il lançait ce sort qu'il ne pouvait utiliser que lors des rares moments où la loi d'origine se manifestait... même Wang Lin ignorait quelle en serait la puissance dévastatrice.

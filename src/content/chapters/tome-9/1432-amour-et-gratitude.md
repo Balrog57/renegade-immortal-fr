@@ -1,4 +1,4 @@
----
+﻿---
 n: 1432
 title: Amour et Gratitude
 book: 9
@@ -68,9 +68,9 @@ Le frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'
 
 « Puisqu'il est mon frère cadet, personne ne peut lui nuire. Si vous lui blessez ne serait-ce qu'un doigt, je vous réclamerai la vie ! »
 
-La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le frère cadet qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué le Secte Divin de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
+La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le frère cadet qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué le Secte Divine de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
 
-« Ce vieil homme, Lu Yun, a vécu toute sa vie pour le Secte Divin de l'Oiseau Vermillon... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin du Secte Divin de l'Oiseau Vermillon pour moi. »
+« Ce vieil homme, Lu Yun, a vécu toute sa vie pour le Secte Divine de l'Oiseau Vermillon... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin du Secte Divine de l'Oiseau Vermillon pour moi. »
 
 Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin veille sur la secte. Face à toute la bonté reçue, il ne pouvait supporter la colère et le regard déçu de l'Empereur Divin défunt.
 

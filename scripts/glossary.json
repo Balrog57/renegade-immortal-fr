@@ -5,7 +5,9 @@
     "aliases": [
       "condensation du qi",
       "Condensation du Qi",
-      "condensation du Qi"
+      "condensation du Qi",
+      "condensation de qi",
+      "Condensation de Qi"
     ]
   },
   "Foundation Establishment": {
@@ -21,7 +23,11 @@
     "category": "cultivation",
     "aliases": [
       "formation du noyau",
-      "Formation du Noyau"
+      "Formation du Noyau",
+      "noyau de cultivation",
+      "Noyau de Cultivation",
+      "noyau",
+      "Noyau"
     ]
   },
   "Gold Core": {
@@ -89,7 +95,23 @@
     "category": "cultivation",
     "aliases": [
       "scruteur du nirvana",
-      "Scruteur du Nirvana"
+      "Scruteur du Nirvana",
+      "observateur du nirvana",
+      "Observateur du Nirvana",
+      "scrutation du nirvana",
+      "Scrutation du Nirvana",
+      "scrutateur du nirvana",
+      "Scrutateur du Nirvana",
+      "scryeur de nirvana",
+      "Scryeur de Nirvana",
+      "scryeur du nirvana",
+      "Scryeur du Nirvana",
+      "scryer du nirvana",
+      "Scryer du Nirvana",
+      "nirvana scryer",
+      "Nirvana Scryer",
+      "Scryer Nirvana",
+      "scryer nirvana"
     ]
   },
   "Nirvana Cleanser": {
@@ -97,7 +119,21 @@
     "category": "cultivation",
     "aliases": [
       "purificateur du nirvana",
-      "Purificateur du Nirvana"
+      "Purificateur du Nirvana",
+      "purification du nirvana",
+      "Purification du Nirvana",
+      "purificateur de nirvana",
+      "Purificateur de Nirvana",
+      "nettoyant du nirvana",
+      "Nettoyant du Nirvana",
+      "nettoyeur du nirvana",
+      "Nettoyeur du Nirvana",
+      "nettoyeur de nirvana",
+      "Nettoyeur de Nirvana",
+      "nirvana cleanser",
+      "Nirvana Cleanser",
+      "Cleanser Nirvana",
+      "cleanser nirvana"
     ]
   },
   "Nirvana Shatterer": {
@@ -105,7 +141,17 @@
     "category": "cultivation",
     "aliases": [
       "briseur du nirvana",
-      "Briseur du Nirvana"
+      "Briseur du Nirvana",
+      "brisure de nirvana",
+      "Brisure de Nirvana",
+      "briseur de nirvana",
+      "Briseur de Nirvana",
+      "brisant le nirvana",
+      "Brisant le Nirvana",
+      "nirvana shatterer",
+      "Nirvana Shatterer",
+      "Shatterer Nirvana",
+      "shatterer nirvana"
     ]
   },
   "Heaven's Blight": {
@@ -123,7 +169,11 @@
     "aliases": [
       "séparation de l'âme",
       "Sectionnement de l'Âme",
-      "sectionnement de l'âme"
+      "sectionnement de l'âme",
+      "separation spirituelle",
+      "Separation Spirituelle",
+      "separation d'ame",
+      "Separation d'Ame"
     ]
   },
   "Void Tribulant": {
@@ -131,7 +181,9 @@
     "category": "cultivation",
     "aliases": [
       "tribulation du vide",
-      "Tribulation du Vide"
+      "Tribulation du Vide",
+      "tribulant du vide",
+      "Tribulant du Vide"
     ]
   },
   "Arcane Void": {
@@ -146,6 +198,8 @@
     "fr": "Tribulation Arcanique",
     "category": "cultivation",
     "aliases": [
+      "tribulation arcane",
+      "Tribulation Arcane",
       "tribulation arcanique",
       "Tribulation Arcanique"
     ]
@@ -163,7 +217,13 @@
     "category": "cultivation",
     "aliases": [
       "foulée céleste",
-      "Foulée Céleste"
+      "Foulée Céleste",
+      "piétinement du ciel",
+      "Piétinement du Ciel",
+      "piétinement céleste",
+      "Piétinement Céleste",
+      "pont du piétinement céleste",
+      "Pont du Piétinement Céleste"
     ]
   },
   "Grand Empyrean": {
@@ -171,7 +231,13 @@
     "category": "cultivation",
     "aliases": [
       "grand empyrée",
-      "Grand Empyrée"
+      "Grand Empyrée",
+      "grands empyrées",
+      "Grands Empyrées",
+      "grand exalt",
+      "Grand Exalt",
+      "grands exalts",
+      "Grands Exalts"
     ]
   },
   "Empyrean Exalt": {
@@ -179,7 +245,27 @@
     "category": "cultivation",
     "aliases": [
       "exaltation empyréenne",
-      "Exaltation Empyréenne"
+      "Exaltation Empyréenne",
+      "exaltations empyréennes",
+      "Exaltations Empyréennes",
+      "exalt empyréen",
+      "Exalt Empyréen",
+      "exalt empyréenne",
+      "Exalt Empyréenne",
+      "exaltés empyréens",
+      "Exaltés Empyréens",
+      "exalté céleste",
+      "Exalté Céleste",
+      "exaltés célestes",
+      "Exaltés Célestes",
+      "exalt céleste",
+      "Exalt Céleste",
+      "exalts célestes",
+      "Exalts Célestes",
+      "exalt émérite",
+      "Exalt Émérite",
+      "exalts émérites",
+      "Exalts Émérites"
     ]
   },
   "Golden Exalt": {
@@ -187,7 +273,17 @@
     "category": "cultivation",
     "aliases": [
       "exaltation dorée",
-      "Exaltation Dorée"
+      "Exaltation Dorée",
+      "exalt doré",
+      "Exalt Doré",
+      "exalté doré",
+      "Exalté Doré",
+      "exalt dorée",
+      "Exalt Dorée",
+      "exalts dorés",
+      "Exalts Dorés",
+      "exaltés dorés",
+      "Exaltés Dorés"
     ]
   },
   "Celestial Emperor": {
@@ -211,7 +307,9 @@
     "category": "cultivation",
     "aliases": [
       "seigneur céleste",
-      "Seigneur Céleste"
+      "Seigneur Céleste",
+      "seigneurs célestes",
+      "Seigneurs Célestes"
     ]
   },
   "Celestial Body": {
@@ -224,7 +322,13 @@
   },
   "Ascendant Empyrean": {
     "fr": "Empyrée Ascendant",
-    "category": "cultivation"
+    "category": "cultivation",
+    "aliases": [
+      "empyrée ascendant",
+      "Empyrée Ascendant",
+      "empyrées ascendants",
+      "Empyrées Ascendants"
+    ]
   },
   "5 Essence Great Completion": {
     "fr": "Grand Accomplissement des 5 Essences",
@@ -255,7 +359,13 @@
     "category": "cultivation",
     "aliases": [
       "royaume ji",
-      "Royaume Ji"
+      "Royaume Ji",
+      "royaume de ji",
+      "Royaume de Ji",
+      "domaine ji",
+      "Domaine Ji",
+      "domaine de ji",
+      "Domaine de Ji"
     ]
   },
   "cultivation": {
@@ -278,7 +388,11 @@
       "immortel",
       "Immortel",
       "immortelle",
-      "Immortelle"
+      "Immortelle",
+      "immortalité",
+      "Immortalité",
+      "immortels",
+      "Immortels"
     ]
   },
   "celestial": {
@@ -343,7 +457,9 @@
     "aliases": [
       "flamme joss",
       "Flamme Joss",
-      "flamme de joss"
+      "flamme de joss",
+      "flammes joss",
+      "Flammes Joss"
     ]
   },
   "karma": {
@@ -388,7 +504,18 @@
     "aliases": [
       "dieu ancien",
       "Dieu Ancien",
-      "ancien dieu"
+      "ancien dieu",
+      "anciens dieux",
+      "dieu ancestral",
+      "Dieu Ancestral",
+      "dieu antique",
+      "Dieu Antique",
+      "dieux anciens",
+      "Dieux Anciens",
+      "divin ancien",
+      "Divin Ancien",
+      "divine ancienne",
+      "divines anciennes"
     ]
   },
   "ancient demon": {
@@ -397,16 +524,44 @@
     "aliases": [
       "démon ancien",
       "Démon Ancien",
-      "ancien démon"
+      "ancien démon",
+      "anciens démons",
+      "démon ancestral",
+      "Démon Ancestral",
+      "démon antique",
+      "Démon Antique",
+      "démons anciens",
+      "Démons Anciens",
+      "démoniaque ancien",
+      "Démoniaque Ancien",
+      "démoniaque ancienne",
+      "démoniaques anciens",
+      "démoniaques anciennes"
     ]
   },
   "ancient devil": {
     "fr": "diable ancien",
     "category": "concept",
     "aliases": [
-      "diable ancien",
+      "démon ancien",
+      "Diable Ancestral",
+      "démoniaques anciens",
+      "Diable Antique",
+      "diable antique",
+      "diables anciens",
       "Diable Ancien",
-      "ancien diable"
+      "démons anciens",
+      "diable ancestral",
+      "démons antiques",
+      "Démons Anciens",
+      "diable ancien",
+      "ancien diable",
+      "Démon Ancien",
+      "Démons Antiques",
+      "Diables Anciens",
+      "anciens diables",
+      "démoniaque ancien",
+      "démoniaques anciennes"
     ]
   },
   "demon": {
@@ -424,7 +579,13 @@
     "category": "concept",
     "aliases": [
       "diable",
-      "Diable"
+      "Diable",
+      "démon",
+      "Démon",
+      "démoniaque",
+      "Démoniaque",
+      "démoniaques",
+      "Démoniaques"
     ]
   },
   "beast": {
@@ -446,7 +607,9 @@
     "aliases": [
       "trésor magique",
       "objet magique",
-      "artefact magique"
+      "artefact magique",
+      "trésors magiques",
+      "Trésors Magiques"
     ]
   },
   "magic weapon": {
@@ -455,7 +618,15 @@
   },
   "formation": {
     "fr": "formation",
-    "category": "concept"
+    "category": "concept",
+    "aliases": [
+      "formation",
+      "formations",
+      "réseau",
+      "réseaux",
+      "Réseau",
+      "Réseaux"
+    ]
   },
   "restriction": {
     "fr": "restriction",
@@ -503,9 +674,13 @@
     "fr": "châtiment divin",
     "category": "concept",
     "aliases": [
-      "châtiment divin",
+      "Divine Rétribution",
+      "divine rétribution",
       "punition divine",
-      "rétribution divine"
+      "rétribution divine",
+      "châtiment divin",
+      "tribulation divine",
+      "Tribulation Divine"
     ]
   },
   "heavenly dao": {
@@ -518,7 +693,13 @@
   },
   "origin energy": {
     "fr": "énergie originelle",
-    "category": "concept"
+    "category": "concept",
+    "aliases": [
+      "énergie originelle",
+      "energie originelle",
+      "énergie d'origine",
+      "energie d'origine"
+    ]
   },
   "bloodline": {
     "fr": "lignée",
@@ -560,7 +741,10 @@
     "category": "concept",
     "aliases": [
       "système stellaire",
-      "système d'étoiles"
+      "système d'étoiles",
+      "systèmes stellaires",
+      "système astral",
+      "système"
     ]
   },
   "planet": {
@@ -603,7 +787,9 @@
     "category": "concept",
     "aliases": [
       "mortel",
-      "Mortel"
+      "Mortel",
+      "mortels",
+      "Mortels"
     ]
   },
   "mortal world": {
@@ -627,7 +813,12 @@
     "category": "concept",
     "aliases": [
       "royaume céleste",
-      "domaine céleste"
+      "domaine céleste",
+      "royaume des cieux",
+      "monde céleste",
+      "royaume divin",
+      "royaumes célestes",
+      "Royaumes Célestes"
     ]
   },
   "celestial domain": {
@@ -656,7 +847,9 @@
     "category": "concept",
     "aliases": [
       "jade céleste",
-      "pierre céleste"
+      "pierre céleste",
+      "jade spirituel",
+      "jade"
     ]
   },
   "storage bag": {
@@ -665,7 +858,8 @@
     "aliases": [
       "sac de stockage",
       "sacoche de stockage",
-      "bourse de stockage"
+      "bourse de stockage",
+      "espace de stockage"
     ]
   },
   "spatial rift": {
@@ -691,7 +885,13 @@
     "category": "concept",
     "aliases": [
       "matrice",
+      "matrices",
       "formation",
+      "formations",
+      "réseau",
+      "réseaux",
+      "Réseau",
+      "Réseaux",
       "array"
     ]
   },
@@ -727,7 +927,15 @@
   },
   "All-Seer": {
     "fr": "All-Seer (Tian Yun Zi)",
-    "category": "personnage"
+    "category": "personnage",
+    "aliases": [
+      "Tian Yun Zi",
+      "tian yun zi",
+      "Tout-Voyant",
+      "tout-voyant",
+      "Omniscient",
+      "omniscient"
+    ]
   },
   "Wang Lin": {
     "fr": "Wang Lin",
@@ -802,8 +1010,14 @@
     "category": "personnage"
   },
   "Daoist Water": {
-    "fr": "Daoist Water",
-    "category": "personnage"
+    "fr": "Daoïste de l'Eau",
+    "category": "personnage",
+    "aliases": [
+      "Daoïste Eau",
+      "Daoïste de l'eau",
+      "daoïste de l'Eau",
+      "daoïste eau"
+    ]
   },
   "Hongdie": {
     "fr": "Red Butterfly",
@@ -819,7 +1033,11 @@
   },
   "Sea of Devils": {
     "fr": "Mer des Démons",
-    "category": "lieu"
+    "category": "lieu",
+    "aliases": [
+      "mer des diables",
+      "Mer des Diables"
+    ]
   },
   "Blue Pine Peaks": {
     "fr": "Pics du Pin Bleu",
@@ -839,19 +1057,47 @@
   },
   "Forsaken Immortal Clan": {
     "fr": "Clan de l'Immortel Banni",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "clan des immortels abandonnes",
+      "Clan des Immortels Abandonnes",
+      "immortels abandonnes",
+      "Immortels Abandonnes"
+    ]
   },
   "Scatter Thunder Clan": {
     "fr": "Clan de la Foudre Dispersée",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "clan de la foudre dispersée",
+      "Clan du Tonnerre Dispersé",
+      "clan du tonnerre dispersé",
+      "Clan du Tonnerre Éparpillé",
+      "clan du tonnerre éparpillé"
+    ]
   },
   "Fire Sparrow Clan": {
     "fr": "Clan du Moineau de Feu",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "clan du moineau de feu",
+      "Clan des Moineaux de Feu",
+      "clan des moineaux de feu"
+    ]
   },
   "Tattoo Clan": {
     "fr": "Clan du Tatouage",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "clan du tatouage",
+      "Clan du Tatouage",
+      "Clan des Tatouages",
+      "clan des tatouages",
+      "clan du tatou",
+      "Clan du Tatou",
+      "clan tatou",
+      "Clan Tatou"
+    ]
   },
   "Moon Devourer Clan": {
     "fr": "Clan Dévoreur de Lune",
@@ -867,19 +1113,45 @@
   },
   "Fighting Evil Sect": {
     "fr": "Secte de la Lutte contre le Mal",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "secte du combat contre le mal",
+      "Secte du Combat contre le Mal",
+      "combat contre le mal",
+      "Combat contre le Mal"
+    ]
   },
   "Soul Refining Sect": {
     "fr": "Secte de Raffinage des Âmes",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "secte de raffinage des âmes",
+      "Secte de Raffinage des Âmes",
+      "secte du raffinage d'âme",
+      "Secte du Raffinage d'Âme",
+      "secte de l'affinement d'âmes",
+      "Secte de l'Affinement d'Âmes"
+    ]
   },
   "God Sect": {
     "fr": "Secte Divine",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "secte divine",
+      "Secte Divine",
+      "Secte Divin",
+      "secte divin",
+      "Secte de Dieu",
+      "secte de dieu"
+    ]
   },
   "Cloud Sky Sect": {
     "fr": "Secte du Ciel des Nuages",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "secte ciel nuageux",
+      "Secte Ciel Nuageux"
+    ]
   },
   "Heavenly Fate Sect": {
     "fr": "Secte du Destin Céleste",
@@ -887,7 +1159,13 @@
   },
   "Origin Sect": {
     "fr": "Secte Originelle",
-    "category": "secte"
+    "category": "secte",
+    "aliases": [
+      "secte originelle",
+      "Secte Originelle",
+      "Secte de l'Origine",
+      "secte de l'origine"
+    ]
   },
   "Xuan Dao Sect": {
     "fr": "Secte Xuan Dao",

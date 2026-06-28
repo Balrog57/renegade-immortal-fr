@@ -56,7 +56,7 @@ Une lueur de déduction brilla dans les yeux de Wang Lin et, un instant plus tar
 
 Wang Lin réfléchit un instant, puis dit calmement : « C'est une matrice de transfert par division d'âme ! »
 
-« Elle a dû être placée par un cultivateur au sommet du stade de Nirvana Cleanser ou plus haut… Ce n'est pas quelque chose que le maître de Red Butterfly aurait pu accomplir, à moins qu'il ne cachait son véritable niveau de cultivation… Cependant, si c'était le cas, ce qui est arrivé à Red Butterfly par la suite resterait inexplicable. »
+« Elle a dû être placée par un cultivateur au sommet du stade de Purificateur du Nirvana ou plus haut… Ce n'est pas quelque chose que le maître de Red Butterfly aurait pu accomplir, à moins qu'il ne cachait son véritable niveau de cultivation… Cependant, si c'était le cas, ce qui est arrivé à Red Butterfly par la suite resterait inexplicable. »
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse : « Le rôle de cette matrice est de séparer une partie de l'âme en utilisant cette mèche de cheveux pour ensuite la transférer ailleurs. J'ignore où elle a été envoyée… Mais ce cheveu contient bien l'aura de Red Butterfly. Peut-être que Red Butterfly n'est pas réellement morte ! »
 

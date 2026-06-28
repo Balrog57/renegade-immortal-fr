@@ -62,7 +62,7 @@ Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres 
 
 À cet instant précis, trois individus s'élancèrent parmi les cent cultivateurs environnants !
 
-Parmi eux, deux étaient au stade intermédiaire du Nirvana Scryer. Le troisième était un vieil homme doté d'un niveau de cultivation très élevé, au stade avancé du Nirvana Scryer !
+Parmi eux, deux étaient au stade intermédiaire du Scruteur du Nirvana. Le troisième était un vieil homme doté d'un niveau de cultivation très élevé, au stade avancé du Scruteur du Nirvana !
 
 Ce vieil homme ne s'était pas manifesté lorsque Wang Lin et Qing Shui étaient apparus ; il s'était caché avec prudence pour ne se révéler qu'à présent.
 

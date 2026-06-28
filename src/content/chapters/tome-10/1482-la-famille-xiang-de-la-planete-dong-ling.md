@@ -16,7 +16,7 @@ Cependant, ce choc disparut rapidement et les yeux de Maître Lu Fu s'illuminèr
 
 La planète Dong Ling, le lieu le plus mystérieux d'Allheaven ! Wang Lin avait entendu parler de cet endroit par le passé.
 
-Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale d'Allheaven. Même pour un cultivateur au stade de Nirvana Shatterer, il était extrêmement difficile de localiser la planète Dong Ling.
+Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale d'Allheaven. Même pour un cultivateur au stade de Briseur du Nirvana, il était extrêmement difficile de localiser la planète Dong Ling.
 
 Même en utilisant son Sens Divin, on ne pouvait la trouver en raison de la structure unique de la planète. La grande majorité des cultivateurs devait s'en remettre à la vue nue pour la débusquer.
 

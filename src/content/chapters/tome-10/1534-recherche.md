@@ -44,7 +44,7 @@ La Secte Démoniaque avait envoyé près de 70 % de ses cultivateurs pour statio
 
 Sans la Formation de Scellement du Royaume, l'endroit constituait désormais la porte d'entrée vers le Royaume Intérieur, bien que la zone fût saturée de tempêtes spatiales !
 
-La Secte Fantôme avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
+La Secte Fantôme avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divinee, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
 
 Les cultivateurs du Fleuve Invoqué avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
 
@@ -94,7 +94,7 @@ Shengong Hu et Zhan Konglei le croyaient également !
 
 Les marques d'esclavage de l'estimée Ling Dong et de Zhou Jin ne s'étaient pas estompées, et la présence massive de bêtes-moustiques empoisonnées dans le Système Stellaire de la Mer des Nuages renforçait la conviction de beaucoup que le Seigneur du Royaume Scellé était toujours vivant !
 
-Mu Bingmei, qui était devenue la maîtresse de la Secte Divine grâce à une simple parole de Wang Lin, avait les larmes aux yeux, mais elle croyait fermement en sa survie !
+Mu Bingmei, qui était devenue la maîtresse de la Secte Divinee grâce à une simple parole de Wang Lin, avait les larmes aux yeux, mais elle croyait fermement en sa survie !
 
 Accablé par le chagrin, Situ Nan abandonna sa cultivation dans le Royaume Céleste de la Pluie pour se livrer silencieusement à la boisson. Il buvait avec excès et riait en levant les yeux vers le ciel. Pourtant, tout en riant, ses larmes coulaient inexorablement. Il but pendant trois jours, rit pendant trois jours et pleura pendant trois jours. Par la suite, il prit la décision de quitter le Royaume Céleste de la Pluie. Il allait retrouver son frère !
 
@@ -106,7 +106,7 @@ Beaucoup cherchaient le Seigneur du Royaume Scellé Wang Lin, mais malgré leurs
 
 « Où es-tu… » Dans le Système Stellaire d'Allheaven, Xi Zifeng, Xie Qing et les autres fixaient silencieusement le ciel étoilé.
 
-Dans la Secte Divine, après avoir réglé quelques affaires triviales, la très épuisée Mu Bingmei but un bol de soupe médicinale. Elle regarda silencieusement le ciel depuis son pavillon et murmura pour elle-même : « Où es-tu… »
+Dans la Secte Divinee, après avoir réglé quelques affaires triviales, la très épuisée Mu Bingmei but un bol de soupe médicinale. Elle regarda silencieusement le ciel depuis son pavillon et murmura pour elle-même : « Où es-tu… »
 
 À l'extérieur du vortex de brume dans la Mer des Nuages, la femme à la robe bleu aquatique observa le tourbillon de brouillard et, après un long moment, poussa un soupir.
 

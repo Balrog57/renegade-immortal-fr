@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1158 - Repeated Bone Refinement
 slug: raffinement-osseux-repete
 ---
-L'un des deux anciens s'exprimait avec inquiétude : « Si ce n'était qu'une bête de rang 7, tout irait bien... Je crains que si cela continue, une bête de rang 8, capable de combattre un cultivateur au sommet du Nirvana Cleanser, n'apparaisse ; et que des bêtes de rang 9, qui ne diffèrent en rien des cultivateurs Nirvana Shatterer, ne soient attirées... Le cas échéant, mon continent de Mo Luo sera plongé dans le chaos ! »
+L'un des deux anciens s'exprimait avec inquiétude : « Si ce n'était qu'une bête de rang 7, tout irait bien... Je crains que si cela continue, une bête de rang 8, capable de combattre un cultivateur au sommet du Purificateur du Nirvana, n'apparaisse ; et que des bêtes de rang 9, qui ne diffèrent en rien des cultivateurs Briseur du Nirvana, ne soient attirées... Le cas échéant, mon continent de Mo Luo sera plongé dans le chaos ! »
 
 Li Xiangdong réfléchit un instant et dit lentement : « Je ne pense pas. Après tout, ce continent est situé près de la limite de la région de rang 4, il ne devrait donc y avoir aucune créature puissante dans les parages... »
 

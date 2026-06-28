@@ -98,7 +98,7 @@ Après avoir inspecté les lieux, Wang Lin fut pleinement satisfait. L'espace é
 
 Son Sens Divin se déploya pour inspecter soigneusement la zone. Puis, Wang Lin s'assit sur le tapis de jade violet et ferma lentement les yeux.
 
-Son énergie originelle emplit son corps tandis que sa cultivation de Nirvana Scryer, au stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
+Son énergie originelle emplit son corps tandis que sa cultivation de Scruteur du Nirvana, au stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
 
 Durant ce laps de temps, les trois frères Chen passèrent, mais ils ne le dérangèrent pas. Après avoir attendu un moment, ils prirent congé et partirent.
 
@@ -108,7 +108,7 @@ Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absol
 
 À l'instant où ses yeux s'ouvrirent, ce fut comme si un éclair avait transpercé l'obscurité du palais, le baignant de lumière.
 
-« Trois jours de repos ajoutés à la cultivation effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Nirvana Scryer... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Nirvana Cleanser au stade intermédiaire ! Cependant, cela ne suffira pas pour le voyage vers la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
+« Trois jours de repos ajoutés à la cultivation effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Scruteur du Nirvana... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Purificateur du Nirvana au stade intermédiaire ! Cependant, cela ne suffira pas pour le voyage vers la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
 
 Cette lueur azur rendit immédiatement le palais brumeux. À l'intérieur de cette lumière se trouvait un petit bouclier entièrement bleu azur. Il avait été raffiné avec une matière inconnue et des volutes de nuages semblaient flotter en son sein. Il était d'une beauté remarquable.
 

@@ -28,19 +28,19 @@ Il existait des sorts plus rapides que le déplacement instantané au stade de l
 
 Ce sort s'appelait la Distorsion Spatiale !
 
-C'était une technique que les anciens cultivateurs ne pouvaient utiliser qu'une fois leur âme originelle formée. Dans le monde de la cultivation actuel, seuls ceux atteignant le stade du Scryer du Nirvana pouvaient maîtriser ce sort originel !
+C'était une technique que les anciens cultivateurs ne pouvaient utiliser qu'une fois leur âme originelle formée. Dans le monde de la cultivation actuel, seuls ceux atteignant le stade du Scruteur du Nirvana pouvaient maîtriser ce sort originel !
 
 Tous les cultivateurs du second pas n'étaient pas capables de comprendre cette technique. Cela n'avait rien à voir avec le talent, mais dépendait de la compréhension profonde de l'énergie originelle.
 
 L'Ancêtre Sanguin fuyait rapidement, parcourant d'innombrables kilomètres depuis le point de disparition de Wang Lin. Son niveau de cultivation ayant été réduit au stade du Yang Corporel, il ne pouvait plus utiliser beaucoup de sorts. De plus, son âme originelle était endommagée, ce qui le rendait encore plus vulnérable.
 
-« Wang Lin, une fois que je me serai rétabli, je jure que je te tuerai ! » L'Ancêtre Sanguin se déplaçait à une vitesse extrême, telle une ombre fendant le vide. Après un long moment, il finit par se détendre et murmura : « Ce petit morveux de Wang Lin ne devrait plus être capable de me rattraper maintenant. Je dois trouver un endroit pour utiliser une méthode secrète afin de restaurer ma cultivation au stade du Scryer du Nirvana le plus vite possible. »
+« Wang Lin, une fois que je me serai rétabli, je jure que je te tuerai ! » L'Ancêtre Sanguin se déplaçait à une vitesse extrême, telle une ombre fendant le vide. Après un long moment, il finit par se détendre et murmura : « Ce petit morveux de Wang Lin ne devrait plus être capable de me rattraper maintenant. Je dois trouver un endroit pour utiliser une méthode secrète afin de restaurer ma cultivation au stade du Scruteur du Nirvana le plus vite possible. »
 
 Après avoir réfléchi un instant, l'Ancêtre Sanguin prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma derrière lui et la silhouette de Wang Lin en émergea.
 
 Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Ancêtre Sanguin avait presque perdu la raison, totalement terrassé par le choc.
 
-« Distorsion Spatiale ! Cet homme n'a pas encore atteint le stade du Scryer du Nirvana, comment peut-il utiliser un sort que seuls les cultivateurs du second pas peuvent maîtriser ?! C'est impossible ! » L'Ancêtre Sanguin s'enfuit précipitamment, l'amertume lui nouant le cœur.
+« Distorsion Spatiale ! Cet homme n'a pas encore atteint le stade du Scruteur du Nirvana, comment peut-il utiliser un sort que seuls les cultivateurs du second pas peuvent maîtriser ?! C'est impossible ! » L'Ancêtre Sanguin s'enfuit précipitamment, l'amertume lui nouant le cœur.
 
 « On dit souvent que ceux qui peuvent franchir le stade du Yin et du Yang d'un seul bond atteignent souvent le sommet du second pas. Est-ce donc vrai... » L'Ancêtre Sanguin était horrifié. Même avant que son niveau de cultivation ne chute, il n'avait réussi qu'à effleurer les contours de ce sort qui ne s'apprenait pas, mais se comprenait.
 

@@ -106,7 +106,7 @@ Le ciel s'obscurcit à nouveau et, neuf respirations plus tard, les ténèbres s
 
 Tandis que le monde oscillait entre l'ombre et la lumière, le Continent Astral Immortel commença à trembler. Des vagues titanesques s'élevèrent dans la vaste mer, provoquant des grondements capables de déchirer les cieux.
 
-Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Astral Immortel ne pouvait être causé que par le légendaire Royaume Divin Immemorial, celui-là même capable de transformer un être en Grand Empereur !
+Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Astral Immortel ne pouvait être causé que par le légendaire Royaume Divin Immemorial, celui-là même capable de transformer un être en Grand Empyrée !
 
 « Le Royaume Divin Immemorial... » murmura Wang Lin. Il avait entendu parler de ce lieu depuis longtemps, mais c'était la première fois qu'il assistait à son ouverture.
 

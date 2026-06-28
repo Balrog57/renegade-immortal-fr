@@ -32,7 +32,7 @@ Le clan céleste n'avait pas besoin de s'agenouiller devant l'empereur, il lui s
 
 La raison pour laquelle la famille impériale restait toujours en retrait, ne participant pas aux affaires mondaines, découlait également de la volonté de l'Ancêtre Céleste. Les êtres célestes ne pouvaient être entravés, et s'ils l'étaient, ils n'étaient pas dignes de porter ce nom !
 
-En conséquence, même les quatre autres Grands Empereurs témoignaient un certain respect à la famille impériale.
+En conséquence, même les quatre autres Grands Empyrées témoignaient un certain respect à la famille impériale.
 
 Tandis que tous les cultivateurs du Secte Gui Yi s'inclinaient, la silhouette dorée surplombait la terre du regard.
 

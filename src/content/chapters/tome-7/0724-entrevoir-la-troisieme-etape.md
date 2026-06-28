@@ -70,7 +70,7 @@ Il progressa lentement à travers les astéroïdes. Il connaissait bien cet endr
 
 Il se déplaçait rapidement et, après un temps indéterminé, il se rapprocha du centre. Plus il s'approchait, plus son sentiment de choc grandissait.
 
-« Que s'est-il passé là-bas ? » L'expression de l'homme aux cheveux noirs était sombre. Son niveau de cultivation était au stade Corporel Yang ; il ne lui manquait que peu de chose pour atteindre la plénitude et entrer dans le stade du Nirvana Scryer. Avec son niveau, très peu de choses pouvaient provoquer un tel trouble chez lui !
+« Que s'est-il passé là-bas ? » L'expression de l'homme aux cheveux noirs était sombre. Son niveau de cultivation était au stade Corporel Yang ; il ne lui manquait que peu de chose pour atteindre la plénitude et entrer dans le stade du Scruteur du Nirvana. Avec son niveau, très peu de choses pouvaient provoquer un tel trouble chez lui !
 
 Pourtant, à cet instant, ce sentiment s'intensifiait encore.
 

@@ -56,13 +56,13 @@ Simultanément, les yeux de Wang Lin s'illuminèrent et il recula, disparaissant
 
 La jeune femme resta immobile, plongée dans une réflexion silencieuse.
 
-À cet instant, elle ressentit l'aura d'un Grand Empereur émanant de l'empreinte, ce qui la terrifia. Cette aura lui évoqua bien des choses.
+À cet instant, elle ressentit l'aura d'un Grand Empyrée émanant de l'empreinte, ce qui la terrifia. Cette aura lui évoqua bien des choses.
 
 Après un long moment, la froideur reprit place dans son regard.
 
-« Et alors, s'il possède un trésor offert par un Grand Empereur ? Cet homme détient l'épée de sang appartenant au clan de l'Ancien Dao. Il est évident qui est ce Grand Empereur ! »
+« Et alors, s'il possède un trésor offert par un Grand Empyrée ? Cet homme détient l'épée de sang appartenant au clan de l'Ancien Dao. Il est évident qui est ce Grand Empyrée ! »
 
-« Même si les Grands Empereurs des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes ! Même si je me suis trompée et que le Grand Empereur derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale du Grand Secte des Âmes ; j'aurai donc raison de le tuer. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empereurs ne peuvent être aussi déraisonnables ! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
+« Même si les Grands Empyrées des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes ! Même si je me suis trompée et que le Grand Empyrée derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale du Grand Secte des Âmes ; j'aurai donc raison de le tuer. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyrées ne peuvent être aussi déraisonnables ! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
 
 Le tempérament de cette femme était farouche, et son niveau de cultivation actuel était le reflet de sa personnalité ; elle n'abandonnerait pas si facilement. Bien que l'empreinte dorée l'ait déstabilisée, sa décision était prise.
 
@@ -70,7 +70,7 @@ Ce n'était plus une affaire à la portée de Du Qing.
 
 Dans une autre partie de la veine de feu principale, le véritable corps d'essence de Wang Lin détecta les mouvements de la jeune femme et poussa un soupir.
 
-« Les cultivateurs ayant véritablement atteint le stade du Vide Tribulant sont tous des êtres déterminés. Un trésor formé par un Grand Empereur ne les fera pas reculer si facilement... Puisqu'elle refuse de céder, voyons qui de nous deux sera le plus rapide ! » Le regard de Wang Lin devint résolu et il disparut.
+« Les cultivateurs ayant véritablement atteint le stade du Vide Tribulant sont tous des êtres déterminés. Un trésor formé par un Grand Empyrée ne les fera pas reculer si facilement... Puisqu'elle refuse de céder, voyons qui de nous deux sera le plus rapide ! » Le regard de Wang Lin devint résolu et il disparut.
 
 Tandis que le véritable corps d'essence de Wang Lin continuait d'absorber la veine de feu principale, la lutte du dragon s'affaiblissait. Seuls les cheveux du véritable corps d'essence ressemblaient encore à des plumes, mais à cet instant, des cheveux noirs apparurent à la racine.
 

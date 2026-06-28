@@ -120,11 +120,11 @@ Le corps de la femme tressaillit comme si elle ressentait la douleur même dans 
 
 Tandis que les larmes de la femme coulaient, loin de là, au pied du Mont Gu Dao, Wang Lin levait les yeux vers le sommet avec froideur.
 
-Le Grand Empereur Gu Dao ne le reconnaissait manifestement pas, mais il ne reconnaissait pas non plus l'ensemble du clan Antique. La seule personne qu'il respectait était Xuan Luo !
+Le Grand Empyrée Gu Dao ne le reconnaissait manifestement pas, mais il ne reconnaissait pas non plus l'ensemble du clan Antique. La seule personne qu'il respectait était Xuan Luo !
 
 Sans Xuan Luo, il ne serait jamais venu ici !
 
-« 300 marches... » Le soleil du Grand Empereur derrière Wang Lin projeta une puissante lumière noire et blanche. Wang Lin leva le pied !
+« 300 marches... » Le soleil du Grand Empyrée derrière Wang Lin projeta une puissante lumière noire et blanche. Wang Lin leva le pied !
 
 Il ne fit pas une seule marche, mais des dizaines d'un coup !
 
@@ -132,10 +132,10 @@ Lorsqu'il s'arrêta, Wang Lin se trouvait à la 39e marche. Une pression écrasa
 
 À ses yeux, l'escalier menant au sommet semblait se tordre comme un être vivant.
 
-Avec un reniflement méprisant, la silhouette du soleil du Grand Empereur derrière lui brilla plus intensément encore. D'un bond, il s'élança à nouveau.
+Avec un reniflement méprisant, la silhouette du soleil du Grand Empyrée derrière lui brilla plus intensément encore. D'un bond, il s'élança à nouveau.
 
 La 42e marche, la 57e, la 69e, la 83e... Des grondements tonitruants résonnaient dans ses oreilles alors qu'il affrontait cette pression titanesque pour atteindre la 99e marche. Il leva le pied droit et s'engagea sans pitié sur la 100e marche !
 
 À l'instant où son pied toucha le sol, le monde entier trembla et le Mont Gu Dao sembla vaciller. Une pression monumentale bombarda Wang Lin, faisant vibrer son esprit et lui arrachant un filet de sang au coin de la bouche.
 
-Cette pression émanait de la montagne elle-même, du Grand Empereur Gu Dao !
+Cette pression émanait de la montagne elle-même, du Grand Empyrée Gu Dao !

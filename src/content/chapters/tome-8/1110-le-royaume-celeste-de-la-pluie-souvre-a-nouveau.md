@@ -18,7 +18,7 @@ Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis 
 
 Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
 
-Ta Shan était toujours assis sur une planète de cultivation quelque part au sein du Secte Divin de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
+Ta Shan était toujours assis sur une planète de cultivation quelque part au sein du Secte Divine de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
 
 Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
 
@@ -52,7 +52,7 @@ Situ Nan était déjà arrivé près des 35 Anciens et se tenait aux côtés de 
 
 Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger ! Il comptait rendre toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan !
 
-Certaines planètes abandonnées du Secte Divin de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
+Certaines planètes abandonnées du Secte Divine de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
 
 À cet instant, Wang Lin apparut près de l'une de ces planètes désolées. Aucune plante n'y poussait et presque toute forme de vie s'était éteinte. Il n'y avait qu'un désert noir dégageant une chaleur étouffante.
 
@@ -118,7 +118,7 @@ Dès que l'éclat atteignit une intensité critique, la lumière commença à se
 
 En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimaginable d'énergie spirituelle céleste envahit la zone. Un pilier d'énergie spirituelle jaillit vers les cieux, propageant des ondes de choc dans toutes les directions.
 
-Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète du Secte Divin de l'Oiseau Vermillon ! À cet instant, tous les cultivateurs ayant atteint un certain niveau de cultivation ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement : le Royaume Céleste de la Pluie venait de s'ouvrir !
+Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète du Secte Divine de l'Oiseau Vermillon ! À cet instant, tous les cultivateurs ayant atteint un certain niveau de cultivation ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement : le Royaume Céleste de la Pluie venait de s'ouvrir !
 
 Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Allheaven, le Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 

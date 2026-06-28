@@ -1,4 +1,4 @@
----
+﻿---
 n: 1177
 title: Armure du Démon Divin
 book: 9
@@ -34,9 +34,9 @@ Elle n'était pas obligée de le faire, mais elle l'avait fait.
 
 Le génie du Secte Ciel Brisant de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
 
-Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre du Secte Divin.
+Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre du Secte Divine.
 
-L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance au Secte Divin ; des doutes subsistaient, bien que soigneusement dissimulés.
+L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance au Secte Divine ; des doutes subsistaient, bien que soigneusement dissimulés.
 
 Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qianmei.
 

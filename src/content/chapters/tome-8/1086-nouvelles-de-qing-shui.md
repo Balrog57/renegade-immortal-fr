@@ -14,7 +14,7 @@ Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme
 
 Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Vermillion Bird, tandis que son avatar était ici pour guérir.
 
-Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Nirvana Cleanser, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
+Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
 Cette percée ne pouvait être forcée ; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine était désormais presque à son apogée.
 
@@ -36,7 +36,7 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Big Head !
 
-Le corps de Big Head s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé au Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Nirvana Shatterer. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
+Le corps de Big Head s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé au Secte Divine du Vermillion Bird, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
 
 Big Head devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
@@ -50,7 +50,7 @@ Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, r
 
 Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
-Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein du Secte Divin du Vermillion Bird est bien plus sûr que l'extérieur. »
+Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein du Secte Divine du Vermillion Bird est bien plus sûr que l'extérieur. »
 
 « Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants ! » Lorsque Maître Hollow Wind songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Sundered Night* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
 
@@ -72,17 +72,17 @@ Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une qu
 
 « Cet endroit maudit est trop chaud ! Si ce n'était pas pour mon frère, je serais déjà parti depuis longtemps ! » L'homme serra la glace encore plus fort, absorbant d'immenses quantités d'énergie froide.
 
-À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Nirvana Shatterer du Secte Divin du Vermillion Bird. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
+À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana du Secte Divine du Vermillion Bird. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
 
 Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
 « Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin de libérer la toxine dans ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon ! »
 
-Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans le Secte Divin du Vermillion Bird, il lui aurait été impossible de tenir deux ans.
+Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans le Secte Divine du Vermillion Bird, il lui aurait été impossible de tenir deux ans.
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait avoir le cœur de pierre et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
-« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Nirvana Shatterer ? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur ! » Situ Nan se redressa et reprit sa cultivation à contrecœur.
+« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Briseur du Nirvana ? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur ! » Situ Nan se redressa et reprit sa cultivation à contrecœur.
 
 Le vieil homme sourit. Durant ces deux années, il avait développé une très bonne opinion de ce « Petit Situ ». Empêcher Situ d'absorber la glace était pour son propre bien. Il avait toujours utilisé la force juste pour ne jamais le blesser réellement. Il sourit et dit : « Très bien, ce vieil homme attendra que ce jour arrive. »
 
@@ -96,7 +96,7 @@ Wang Lin prit une profonde inspiration. Tandis qu'il le faisait, sa main traça 
 
 Le vieil homme derrière Wang Lin devint encore plus pâle et l'aura de mort qui l'entourait s'intensifia. Il dit d'une voix rauque : « Je crains de ne pas pouvoir tenir beaucoup plus longtemps... »
 
-« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant le Secte Divin du Vermillion Bird... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré du Secte Divin du Vermillion Bird. »
+« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant le Secte Divine du Vermillion Bird... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré du Secte Divine du Vermillion Bird. »
 
 La main de Wang Lin revint à sa position initiale alors qu'il restait assis là. L'énergie brûlante circulait dans les méridiens de son corps. Il expira ensuite un souffle chaud et ouvrit les yeux.
 

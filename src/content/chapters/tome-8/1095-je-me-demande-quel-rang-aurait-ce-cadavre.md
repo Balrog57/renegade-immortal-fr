@@ -46,7 +46,7 @@ Li Yunzi ferma les yeux et tendit la main vers le vide. Six Lou Fu, exhalant une
 
 Wang Lin agita ses manches et les six Lou Fu furent aspirés dans son sac de rangement. Il saisit ensuite le jade et, après l'avoir inspecté, le rangea.
 
-« Je m'en vais ! » Li Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein du Secte Divin de l'Oiseau Vermillon.
+« Je m'en vais ! » Li Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein du Secte Divine de l'Oiseau Vermillon.
 
 « Ne partez pas si vite. J'ai une chose que je dois demander à Li Yunzi de transmettre au Senior Maître Flamespark ! » Wang Lin agita la main droite et un morceau de jade vola vers Li Yunzi.
 
@@ -54,7 +54,7 @@ Li Yunzi fronça les sourcils et son Sens Divin scruta le jade. Soudain, son exp
 
 « Cette affaire... »
 
-Wang Lin sourit sans rien ajouter. « Si le Senior Maître Flamespark est intéressé, il pourra venir me trouver au Secte Divin de l'Oiseau Vermillon ! »
+Wang Lin sourit sans rien ajouter. « Si le Senior Maître Flamespark est intéressé, il pourra venir me trouver au Secte Divine de l'Oiseau Vermillon ! »
 
 Li Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'impression de ne plus pouvoir percer l'âme de l'homme devant lui. Il poussa un soupir et partit précipitamment.
 
@@ -92,7 +92,7 @@ Ce n'est que lorsque Li Yunzi fut loin qu'une silhouette masculine apparut. L'ho
 
 « Attaquer un junior par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
 
-Laissons de côté le sort de Li Yunzi pour l'instant. Après avoir quitté le Secte Divin de l'Oiseau Vermillon, la femme du Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divins, elle allait prendre congé.
+Laissons de côté le sort de Li Yunzi pour l'instant. Après avoir quitté le Secte Divine de l'Oiseau Vermillon, la femme du Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divins, elle allait prendre congé.
 
 Cependant, Wang Lin lui demanda de rester pour assister à la cérémonie d'investiture qui aurait lieu dans quelques jours.
 

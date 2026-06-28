@@ -1,4 +1,4 @@
----
+﻿---
 n: 1157
 title: Une Épreuve, Deux Cataclysmes
 book: 9
@@ -22,7 +22,7 @@ Tout cela fit de lui le premier ancien dieu à subir la première épreuve dès 
 
 L'épreuve qu'un ancien dieu de 8 étoiles avait franchie sans difficulté représentait pour Wang Lin une question de vie ou de mort.
 
-L'un des cataclysmes de la première épreuve était la catastrophe corporelle. Autrefois, au sein du Secte Divin de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os. Désormais, après son arrivée dans le Système Stellaire de la Mer Nuageuse, cela s'était intensifié : tout ce qui se trouvait sous sa poitrine était devenu osseux.
+L'un des cataclysmes de la première épreuve était la catastrophe corporelle. Autrefois, au sein du Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os. Désormais, après son arrivée dans le Système Stellaire de la Mer Nuageuse, cela s'était intensifié : tout ce qui se trouvait sous sa poitrine était devenu osseux.
 
 Ce n'était que le début, l'avènement du premier cataclysme. Le corps continuerait à se désagréger jusqu'à ce qu'il ne reste plus ni chair ni sang. Alors, la première catastrophe prendrait fin et la seconde commencerait.
 
@@ -108,7 +108,7 @@ Ce qui les choqua encore plus fut l'apparition de bêtes féroces dans le brouil
 
 Elles tentèrent de charger à plusieurs reprises, mais furent repoussées. C'était comme si quelque chose d'extrêmement attractif se trouvait ici, mais que leur instinct de conservation les empêchait d'oser. Cela provoquait une hésitation constante.
 
-Parmi elles se trouvaient des bêtes de rang 5 et même de rang 6 ! Ce qui terrifiait encore plus Li Xiangdong, c'est qu'il aperçut même une bête de rang 7. Une bête de rang 7 suffisait à combattre un cultivateur de stade intermédiaire du Nirvana Cleanser !
+Parmi elles se trouvaient des bêtes de rang 5 et même de rang 6 ! Ce qui terrifiait encore plus Li Xiangdong, c'est qu'il aperçut même une bête de rang 7. Une bête de rang 7 suffisait à combattre un cultivateur de stade intermédiaire du Purificateur du Nirvana !
 
 « Jeune sœur Lu, je ne sais pas pourquoi tu nous as arrêtés, mais aujourd'hui, nous devons aller voir. Nous devons savoir exactement ce qui provoque cette poussée inattendue d'énergie d'origine et attire toutes ces bêtes féroces cachées dans le brouillard stellaire ! » Li Xiangdong pensa à la bête de rang 7 et son esprit trembla. Il fixa Lu Yanfei avec une expression très sérieuse.
 

@@ -126,4 +126,4 @@ Il attendait l'arrivée des Tribulations Arcaniques qui feraient de lui un culti
 
 Il n'avait jamais vu de Tribulations Arcaniques, mais il était assez confiant pour se tenir haut et contempler la beauté de ces tribulations !
 
-Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empereurs l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares !
+Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empyrées l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares !

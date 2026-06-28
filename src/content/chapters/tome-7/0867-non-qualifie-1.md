@@ -30,7 +30,7 @@ Son apparition attira l'attention des cultivateurs environnants. Certains connai
 
 « Le Russell du Temple Céleste du Tonnerre ! »
 
-« On raconte qu'il a atteint le stade intermédiaire du Nirvana Scryer il y a 300 ans, et qu'il est en cultivation fermée depuis lors sans jamais réapparaître. Je ne m'attendais pas à ce qu'il soit le gardien de l'épreuve humaine. »
+« On raconte qu'il a atteint le stade intermédiaire du Scruteur du Nirvana il y a 300 ans, et qu'il est en cultivation fermée depuis lors sans jamais réapparaître. Je ne m'attendais pas à ce qu'il soit le gardien de l'épreuve humaine. »
 
 « Ce Russell n'est pas un homme ordinaire, surtout au regard de l'évolution de son sens divin. On dit que même certains vieux monstres célèbres font son éloge ! »
 

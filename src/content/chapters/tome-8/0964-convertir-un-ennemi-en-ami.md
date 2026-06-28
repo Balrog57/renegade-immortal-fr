@@ -32,13 +32,13 @@ L'expression de Wang Lin était calme. Il s'était déjà montré très indulgen
 
 Trois rayons de lumière blanche jaillirent de la ville et arrivèrent devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen !
 
-Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs perceptions divines alors que sa propre perception divine était clairement au stade initial du Nirvana Scryer.
+Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs perceptions divines alors que sa propre perception divine était clairement au stade initial du Scruteur du Nirvana.
 
 S'il s'était contenté de détruire leurs perceptions, ils n'auraient pas été si effrayés, car ils auraient pu unir leurs forces. Cependant, ce qui les terrifiait, c'était la facilité avec laquelle Wang Lin l'avait fait.
 
 Une prise, un coup de poing, une pression. Tout était d'une simplicité déconcertante, des actions purement spontanées. Les trois pouvaient sentir qu'il n'avait même pas fourni le moindre effort, et c'était là la racine de leur terreur.
 
-Aucun cultivateur du Nirvana Scryer ne pouvait faire cela ; pas même un cultivateur au sommet du stade avancé du Nirvana Scryer, car ils étaient trois ! Il n'y avait qu'une seule explication : cet homme était un cultivateur du Purificateur du Nirvana !
+Aucun cultivateur du Scruteur du Nirvana ne pouvait faire cela ; pas même un cultivateur au sommet du stade avancé du Scruteur du Nirvana, car ils étaient trois ! Il n'y avait qu'une seule explication : cet homme était un cultivateur du Purificateur du Nirvana !
 
 « Veuillez nous pardonner, Camarade Cultivateur Wang Lin. Cette affaire est de notre faute... » Maître Yi Chen sourit amèrement. Les trois se tenaient devant Wang Lin, très embarrassés. Ils étaient tous les trois célèbres sur la planète Tian Yun et venaient de provoquer quelqu'un qu'ils n'auraient pas dû. Bien que leur cœur fût amer, ils ne ressentaient aucune rancœur.
 

@@ -12,9 +12,9 @@ Il pouvait dévorer tous les sorts du monde pour son propre usage ; c'était le 
 
 Hélas, Tu Si échoua et ce trident se perdit dans le flux du temps.
 
-Après que l'All-Seer l'eut obtenu, il put en utiliser la puissance, mais ne parvint pas à activer ses capacités. Seul un ancien dieu pouvait libérer son véritable pouvoir !
+Après que le Tout-Voyant l'eut obtenu, il put en utiliser la puissance, mais ne parvint pas à activer ses capacités. Seul un ancien dieu pouvait libérer son véritable pouvoir !
 
-Bien que le niveau de cultivation de Wang Lin fût inférieur à celui de l'All-Seer, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoraison de sorts !
+Bien que le niveau de cultivation de Wang Lin fût inférieur à celui de le Tout-Voyant, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoraison de sorts !
 
 Les trois dragons étaient des dragons dévoreurs. La Restriction de la Vie et de la Mort fut dévorée et devint un sort du trident. La restriction s'élança et fusionna avec les dragons noirs alors qu'ils se précipitaient vers l'épée cristalline Pseudo-Nirvana Void.
 
@@ -60,7 +60,7 @@ Un grondement tonitruant retentit. L'énergie d'épée vacilla et six de ses cou
 
 Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer dans son bras, le faisant gémir. Sa main gauche forma un sceau et pointa vers le vide, puis il ouvrit la bouche pour laisser s'échapper le Sceau Céleste. Dès son apparition, des âmes de bataille surgirent les unes après les autres !
 
-Maître Void, l'All-Seer et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
+Maître Void, le Tout-Voyant et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste : des Célestes, des cultivateurs de l'Allheaven et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
@@ -74,9 +74,9 @@ La silhouette floue qui flottait également dans le ciel se dissipa progressivem
 
 Plus loin, le géant de pierre fut recouvert d'innombrables couches de glace sous l'assaut des gouttes de pluie. Avant même de pouvoir s'approcher, il se mua en une gigantesque sculpture de glace.
 
-L'entité semblable à une Âme Naissante sanglante hurla sous l'assaut des âmes des vieux monstres. Elle tenta de s'enfuir, mais sans succès. Ce qui retint l'attention de Wang Lin fut l'âme de l'All-Seer. Dès son apparition, ses yeux furent empreints de confusion ; elle ne suivit pas les ordres de l'Arsenal Magique pour attaquer, mais se contenta de fixer le ciel.
+L'entité semblable à une Âme Naissante sanglante hurla sous l'assaut des âmes des vieux monstres. Elle tenta de s'enfuir, mais sans succès. Ce qui retint l'attention de Wang Lin fut l'âme de le Tout-Voyant. Dès son apparition, ses yeux furent empreints de confusion ; elle ne suivit pas les ordres de l'Arsenal Magique pour attaquer, mais se contenta de fixer le ciel.
 
-Wang Lin n'eut pas le temps de s'attarder sur l'âme de l'All-Seer. Il s'élança et tendit la main vers le vide. D'innombrables éclairs apparurent, comme si Wang Lin avait saisi la foudre elle-même.
+Wang Lin n'eut pas le temps de s'attarder sur l'âme de le Tout-Voyant. Il s'élança et tendit la main vers le vide. D'innombrables éclairs apparurent, comme si Wang Lin avait saisi la foudre elle-même.
 
 Ces éclairs infinis se condensèrent pour former une lance éthérée. C'était l'illusion de la Lance Tueuse de Dieux. Il lança la lance sans pitié, et celle-ci s'abattit sur la boussole géante, brisant tous les obstacles sur sa trajectoire.
 

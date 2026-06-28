@@ -138,11 +138,11 @@ L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divini
 
 Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur cultivation pour activer l'éveil de l'Oiseau Vermillon ! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus !
 
-Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire du Secte Divin de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode !
+Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire du Secte Divine de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode !
 
 L'éveil de Wang Lin était classé comme un éveil par force externe. À mesure que les flammes s'accumulaient, la chaleur devenait plus intense encore. S'il n'avait pas eu son corps de Dieu Ancien, il serait déjà réduit en poussière !
 
-Personne ne s'était jamais éveillé par une force externe dans toute l'histoire du Secte Divin de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps !
+Personne ne s'était jamais éveillé par une force externe dans toute l'histoire du Secte Divine de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps !
 
 Wang Lin endurait actuellement cette chaleur incroyable grâce à son corps de Dieu Ancien Royal à 5 étoiles. Lorsque sa peau se fissurait, une chair nouvelle la remplaçait instantanément. Ce cycle se poursuivait jusqu'à ce que le corps de Dieu Ancien de Wang Lin s'adapte progressivement à cette température extrême !
 
@@ -240,9 +240,9 @@ Ling Tianhou fixa le ciel qui semblait avoir été déchiré par des mains invis
 
 La mer de flammes pénétrait les mondes telle une force irrésistible, écrasant toutes les frontières et tous les remparts. Cette puissance continuait de jaillir du point où se trouvait Wang Lin, et le fracas des royaumes se brisant dans la bouteille était apocalyptique !
 
-La silhouette de l'All-Seer apparut dans le ciel effondré. Il observa tous ceux qui étaient devant lui en réfléchissant silencieusement. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
+La silhouette du Tout-Voyant apparut dans le ciel effondré. Il observa tous ceux qui étaient devant lui en réfléchissant silencieusement. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
 
-Ling Tianhou, Situ Nan et l'All-Seer n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
+Ling Tianhou, Situ Nan et le Tout-Voyant n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 
 Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Big Head, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître Void !
 

@@ -38,69 +38,69 @@ En vérité, il n'avait pas grand-chose donné au fou ; c'était plutôt le fou 
 
 « Je dois aller à la cité impériale, mais ce sera dangereux. Je dois faire quelques préparatifs avant de partir... » Wang Lin médita silencieusement et prit sa décision.
 
-« Les cinq Grands Empereurs du clan céleste... » Wang Lin agita sa main droite et la carapace de tortue que l'Ancêtre du Secte de la Grande Âme, le Vieux Taureau Vert, lui avait donnée apparut. Outre la carte, il y avait des informations sur les Grands Empereurs. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
+« Les cinq Grands Empyrées du clan céleste... » Wang Lin agita sa main droite et la carapace de tortue que l'Ancêtre du Secte de la Grande Âme, le Vieux Taureau Vert, lui avait donnée apparut. Outre la carte, il y avait des informations sur les Grands Empyrées. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
 
-« L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empereur Huit Extrêmes ! »
+« L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyrée Huit Extrêmes ! »
 
-« Le Secte Purple Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini ! »
+« Le Secte Purple Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyrée Gemini ! »
 
-« Le Secte Dao Yi du Continent Sud possède le Grand Empereur Dao Yi ! »
+« Le Secte Dao Yi du Continent Sud possède le Grand Empyrée Dao Yi ! »
 
-« Le Secte de l'Univers du Continent Nord possède le Grand Empereur Wu Feng ! »
+« Le Secte de l'Univers du Continent Nord possède le Grand Empyrée Wu Feng ! »
 
-« Dans le Continent Central, il existe un autre Grand Empereur aux côtés de l'Empereur Céleste, et c'est le Grand Empereur Jiu Di ! »
+« Dans le Continent Central, il existe un autre Grand Empyrée aux côtés de l'Empereur Céleste, et c'est le Grand Empyrée Jiu Di ! »
 
-C'étaient les cinq êtres les plus puissants des 72 continents célestes — les cinq soleils, les cinq Grands Empereurs !
+C'étaient les cinq êtres les plus puissants des 72 continents célestes — les cinq soleils, les cinq Grands Empyrées !
 
-Les yeux de Wang Lin s'illuminèrent tandis qu'il analysait ces cinq Grands Empereurs. S'ils apprenaient sa véritable force, ils chercheraient certainement à le recruter.
+Les yeux de Wang Lin s'illuminèrent tandis qu'il analysait ces cinq Grands Empyrées. S'ils apprenaient sa véritable force, ils chercheraient certainement à le recruter.
 
-Une fois qu'il aurait le soutien d'un Grand Empereur, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empereur voulait tuer un Exalt d'Empereur sous les ordres d'un autre Grand Empereur, il devrait en justifier la raison ! C'était parce que les Exalt d'Empereur surpassaient les Exalt Dorés et étaient extrêmement rares sur le Continent Astral Immortel !
+Une fois qu'il aurait le soutien d'un Grand Empyrée, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empyrée voulait tuer un Exaltation Empyréenne sous les ordres d'un autre Grand Empyrée, il devrait en justifier la raison ! C'était parce que les Exaltation Empyréenne surpassaient les Exalt Dorés et étaient extrêmement rares sur le Continent Astral Immortel !
 
-Chaque Grand Empereur n'avait au plus que 100 Exalt d'Empereur sous ses ordres ! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exalt d'Empereur !
+Chaque Grand Empyrée n'avait au plus que 100 Exaltation Empyréenne sous ses ordres ! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exaltation Empyréenne !
 
-S'il ne s'agissait que de tuer un Exalt d'Empereur, cela resterait gérable. Cependant, si la cible était un Empereur Ascendant, aucun Grand Empereur ne le permettrait !
+S'il ne s'agissait que de tuer un Exaltation Empyréenne, cela resterait gérable. Cependant, si la cible était un Empyrée Ascendant, aucun Grand Empyrée ne le permettrait !
 
-Car les Empereurs Ascendants étaient encore plus rares. Sur l'ensemble du Continent Astral Immortel, il n'en existait que 48 !!!
+Car les Empyrées Ascendants étaient encore plus rares. Sur l'ensemble du Continent Astral Immortel, il n'en existait que 48 !!!
 
-La plupart d'entre eux étaient en cultivation recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empereur.
+La plupart d'entre eux étaient en cultivation recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empyrée.
 
-De telles figures étaient respectées même par les Grands Empereurs. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empereurs ! S'ils ne souhaitaient pas suivre un Grand Empereur, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai du Secte de la Grande Âme, qui avait défié un Grand Empereur.
+De telles figures étaient respectées même par les Grands Empyrées. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empyrées ! S'ils ne souhaitaient pas suivre un Grand Empyrée, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai du Secte de la Grande Âme, qui avait défié un Grand Empyrée.
 
-Et lorsqu'un Empereur Ascendant choisissait de suivre un Grand Empereur, il était traité avec égards et faisait partie du noyau dur. C'était parce qu'un Empereur Ascendant constituait le meilleur gardien lors de la réincarnation d'un Grand Empereur !!
+Et lorsqu'un Empyrée Ascendant choisissait de suivre un Grand Empyrée, il était traité avec égards et faisait partie du noyau dur. C'était parce qu'un Empyrée Ascendant constituait le meilleur gardien lors de la réincarnation d'un Grand Empyrée !!
 
-Si un Empereur Ascendant était tué par un Grand Empereur, cela ne poserait pas de problème s'il était indépendant, mais s'il était sous les ordres d'un autre Grand Empereur, ce dernier ne l'accepterait jamais !
+Si un Empyrée Ascendant était tué par un Grand Empyrée, cela ne poserait pas de problème s'il était indépendant, mais s'il était sous les ordres d'un autre Grand Empyrée, ce dernier ne l'accepterait jamais !
 
-Cela concernait leur réputation, leur capacité à recruter des subordonnés puissants à l'avenir et, surtout, le gardien crucial de leur réincarnation. Aucun Grand Empereur ne resterait sans rien faire en regardant un Empereur Ascendant sous ses ordres mourir.
+Cela concernait leur réputation, leur capacité à recruter des subordonnés puissants à l'avenir et, surtout, le gardien crucial de leur réincarnation. Aucun Grand Empyrée ne resterait sans rien faire en regardant un Empyrée Ascendant sous ses ordres mourir.
 
-Il y avait tout simplement trop peu d'Empereurs Ascendants !
+Il y avait tout simplement trop peu d'Empyrées Ascendants !
 
-« S'il s'agissait du Clan Ancien, cela ne serait pas nécessaire. Avec le Maître là... » Wang Lin comprit que bien qu'il fût l'unique disciple de Xuan Luo, il ne pouvait laisser personne dans la Terre des Cieux le découvrir. Sinon, il serait traqué par les Grands Empereurs.
+« S'il s'agissait du Clan Ancien, cela ne serait pas nécessaire. Avec le Maître là... » Wang Lin comprit que bien qu'il fût l'unique disciple de Xuan Luo, il ne pouvait laisser personne dans la Terre des Cieux le découvrir. Sinon, il serait traqué par les Grands Empyrées.
 
 Le clan céleste n'autoriserait absolument jamais un cultivateur comme lui à apparaître au sein du Clan Ancien !
 
 « Même le fou ignore la vérité concernant le Maître ; seul le Secte Gui Yi le sait. Puisque le Maître a osé permettre au Secte Gui Yi de connaître ce secret sans les tuer dans le monde des grottes, cela signifie qu'il est convaincu qu'ils ne parleront pas... Quant aux raisons précises, bien que je les ignore, j'ai foi en mon Maître ! »
 
-« Même les Grands Empereurs ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une cultivation céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo ! »
+« Même les Grands Empyrées ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une cultivation céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo ! »
 
 Wang Lin était sur le Continent Astral Immortel depuis un certain temps désormais, et il comprenait vaguement qu'au fil des millénaires, les lignées anciennes et célestes s'étaient mélangées. Il existait des cultivateurs célestes dotés de corps du Clan Ancien, mais ils n'étaient pas reconnus par le Temple Ancien.
 
-Par conséquent, le corps du Clan Ancien de Wang Lin pourrait paraître stupéfiant pour un cultivateur ordinaire, mais ne surprendrait guère les Grands Empereurs.
+Par conséquent, le corps du Clan Ancien de Wang Lin pourrait paraître stupéfiant pour un cultivateur ordinaire, mais ne surprendrait guère les Grands Empyrées.
 
-Wang Lin savait également qu'il y avait des choses qui n'avaient pas besoin d'être cachées. Par exemple, le fait qu'il provienne du monde des grottes devait rester secret pour les autres, mais pas pour les Grands Empereurs. Ils auraient leurs propres moyens de découvrir la vérité, et ce serait même une bonne chose car cela confirmerait l'origine de Wang Lin !
+Wang Lin savait également qu'il y avait des choses qui n'avaient pas besoin d'être cachées. Par exemple, le fait qu'il provienne du monde des grottes devait rester secret pour les autres, mais pas pour les Grands Empyrées. Ils auraient leurs propres moyens de découvrir la vérité, et ce serait même une bonne chose car cela confirmerait l'origine de Wang Lin !
 
 Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fût extrêmement choquant, comparé au niveau de cultivation de Wang Lin, cela n'avait aucune importance. L'essentiel résidait dans la décision de Wang Lin.
 
-« Pour attirer l'attention des Grands Empereurs, je dois manifester ma puissance, une cultivation capable d'éliminer un Exalt d'Empereur ! Alors, je pourrai faire ce que je veux au sein du clan céleste ! »
+« Pour attirer l'attention des Grands Empyrées, je dois manifester ma puissance, une cultivation capable d'éliminer un Exaltation Empyréenne ! Alors, je pourrai faire ce que je veux au sein du clan céleste ! »
 
-« Avec assez de renommée, les Grands Empereurs viendront d'eux-mêmes me chercher ! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
+« Avec assez de renommée, les Grands Empyrées viendront d'eux-mêmes me chercher ! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empereurs. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empereur Dao Yi, le Grand Empereur Feng ou le Grand Empereur Jiu Di. Je n'ai rencontré que le Grand Empereur Gemini du Secte Purple Yang du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empyrées. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyrée Dao Yi, le Grand Empyrée Feng ou le Grand Empyrée Jiu Di. Je n'ai rencontré que le Grand Empyrée Gemini du Secte Purple Yang du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie ! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
 Il attendait l'arrivée de l'âme originelle de l'Ancien du Secte du Dao Démoniaque. Il allait se maintenir dans une condition optimale pour tester l'étendue de sa puissance.
 
-Les Exalt Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exalt d'Empereur pourraient l'aider à le faire.
+Les Exalt Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exaltation Empyréenne pourraient l'aider à le faire.
 
 Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître du Secte du Dao Démoniaque. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement ; il sortit plutôt les dizaines d'âmes originelles de la troisième étape qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
 
@@ -112,7 +112,7 @@ Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube poi
 
 Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Ancien changea radicalement.
 
-Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique : ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert de la Nirvana Void, tandis que Wang Lin avait dévoré une âme originelle de la Arcane Void !
+Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique : ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert de la Nirvana Void, tandis que Wang Lin avait dévoré une âme originelle de la Vide Arcanique !
 
 Plus de la moitié des âmes originelles dévorées par Wang Lin serviraient à d'autres desseins.
 
@@ -120,4 +120,4 @@ Plus de la moitié des âmes originelles dévorées par Wang Lin serviraient à 
 
 À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Meng Earth et le Continent du Démon Vert. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
 
-Les frontières entre les continents étaient totalement ignorées par les Exalt d'Empereur !
+Les frontières entre les continents étaient totalement ignorées par les Exaltation Empyréenne !

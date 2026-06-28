@@ -10,7 +10,7 @@ Il n'existait que trois temples ancestraux dans tout le clan Ancient. Ils se tro
 
 Chaque membre adulte du clan Ancient se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément ; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
 
-Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une cultivation en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empereurs, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
+Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une cultivation en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empyrées, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
 Wang Lin se tenait au centre de la cité impériale de l'Ancient Shi. Il se trouvait sous l'antique statue, le regard fixé silencieusement vers l'horizon.
 
@@ -22,13 +22,13 @@ Le dédain et le mépris n'étaient qu'une façade. Au plus profond, Wang Lin pe
 
 Wang Lin demanda lentement : « Qui a sculpté la statue de l'Ancêtre ? »
 
-À ses côtés, Song Tian contemplait la statue et répondit d'une voix posée : « Le Grand Empereur Gu Dao... »
+À ses côtés, Song Tian contemplait la statue et répondit d'une voix posée : « Le Grand Empyrée Gu Dao... »
 
-« Après la disparition de l'Ancêtre, le Grand Empereur Gu Dao apporta trois montagnes venues d'un lieu inconnu. Il sculpta personnellement trois statues qu'il érigea dans les trois cités impériales. C'est grâce à cela que nous, ses descendants, pouvons conserver l'image de l'Ancêtre et ne pas l'oublier malgré le passage des âges. »
+« Après la disparition de l'Ancêtre, le Grand Empyrée Gu Dao apporta trois montagnes venues d'un lieu inconnu. Il sculpta personnellement trois statues qu'il érigea dans les trois cités impériales. C'est grâce à cela que nous, ses descendants, pouvons conserver l'image de l'Ancêtre et ne pas l'oublier malgré le passage des âges. »
 
 Wang Lin hocha doucement la tête. Il savait qu'une race devait posséder un symbole d'espoir ; sans lui, elle ne pourrait perdurer et finirait par s'éteindre lentement.
 
-Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancient croyait ! Le Grand Empereur Gu Dao, gardien du clan Ancient... Rien que ce titre témoignait de sa sagesse.
+Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancient croyait ! Le Grand Empyrée Gu Dao, gardien du clan Ancient... Rien que ce titre témoignait de sa sagesse.
 
 Wang Lin et Song Tian restèrent sous la statue, comme s'ils attendaient silencieusement quelque chose.
 

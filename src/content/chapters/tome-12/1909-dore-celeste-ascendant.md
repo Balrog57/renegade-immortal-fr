@@ -14,27 +14,27 @@ Seule une telle force permettait à une secte de se faire un nom sur une terre a
 
 Sur le Continent Astral Immortel, quiconque avait franchi le stade de la Tribulation du Vide pouvait être considéré comme un Exalté. Même les cultivateurs au stade avancé de la Tribulation du Vide étaient considérés comme des Exaltés. Seuls ceux qui étaient infiniment proches du sommet de la Tribulation du Vide, mais incapables de combler l'abîme, pouvaient être appelés Exaltés Dorés !
 
-Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on devenait un Faux Exalté Céleste, ou simplement un Exalté Céleste ! Même les Grands Empereurs prêtaient attention à ces cultivateurs. Non seulement les Grands Empereurs se montraient courtois, mais ils déployaient également d'immenses efforts pour les attirer à leurs côtés.
+Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on devenait un Faux Exalté Céleste, ou simplement un Exalté Céleste ! Même les Grands Empyrées prêtaient attention à ces cultivateurs. Non seulement les Grands Empyrées se montraient courtois, mais ils déployaient également d'immenses efforts pour les attirer à leurs côtés.
 
-Après tout, les Exaltés Célestes étaient les êtres les plus puissants sous l'autorité des Grands Empereurs ! Bien qu'il existât des conflits entre les Grands Empereurs, ils n'intervenaient pas personnellement. Car s'ils entraient en combat, les conséquences seraient trop lourdes !
+Après tout, les Exaltés Célestes étaient les êtres les plus puissants sous l'autorité des Grands Empyrées ! Bien qu'il existât des conflits entre les Grands Empyrées, ils n'intervenaient pas personnellement. Car s'ils entraient en combat, les conséquences seraient trop lourdes !
 
-À moins que cela ne soit absolument nécessaire, les Grands Empereurs ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo se disputaient des territoires !
+À moins que cela ne soit absolument nécessaire, les Grands Empyrées ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo se disputaient des territoires !
 
-Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empereurs dépendaient du nombre et de la puissance des Exaltés Célestes qui se trouvaient sous leur commandement.
+Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empyrées dépendaient du nombre et de la puissance des Exaltés Célestes qui se trouvaient sous leur commandement.
 
-On pouvait dire qu'un Exalté Céleste pouvait obtenir une gloire et un statut inimaginables sur le Continent Astral Immortel, bénéficiant ainsi de l'attention et de la protection d'un Grand Empereur.
+On pouvait dire qu'un Exalté Céleste pouvait obtenir une gloire et un statut inimaginables sur le Continent Astral Immortel, bénéficiant ainsi de l'attention et de la protection d'un Grand Empyrée.
 
-La rumeur disait que si les Exaltés Célestes étaient appelés « Faux » Exaltés Célestes, c'était parce qu'il existait un autre niveau entre eux et les Grands Empereurs : le royaume de l'Ascendant Céleste. Les cultivateurs à ce niveau avaient transcendé le sommet de la Tribulation du Vide et étaient extrêmement rares, même parmi les partisans des Grands Empereurs !
+La rumeur disait que si les Exaltés Célestes étaient appelés « Faux » Exaltés Célestes, c'était parce qu'il existait un autre niveau entre eux et les Grands Empyrées : le royaume de l'Ascendant Céleste. Les cultivateurs à ce niveau avaient transcendé le sommet de la Tribulation du Vide et étaient extrêmement rares, même parmi les partisans des Grands Empyrées !
 
-Depuis l'Antiquité, peu de cultivateurs avaient pu atteindre le rang d'Exalté Céleste. Encore moins parvenaient à transcender ce rang pour atteindre celui d'Ascendant Céleste. La rumeur prétendait que Luo Yunhai, du Grand Sect de l'Âme, était un Ascendant Céleste, et c'est pour cette raison qu'il avait osé défier le Grand Empereur Dao Yi !
+Depuis l'Antiquité, peu de cultivateurs avaient pu atteindre le rang d'Exalté Céleste. Encore moins parvenaient à transcender ce rang pour atteindre celui d'Ascendant Céleste. La rumeur prétendait que Luo Yunhai, du Grand Sect de l'Âme, était un Ascendant Céleste, et c'est pour cette raison qu'il avait osé défier le Grand Empyrée Dao Yi !
 
-Cependant, cet homme était devenu bien trop arrogant et un conflit inconnu les avait poussés à l'affrontement, forçant le Grand Empereur Dao Yi à l'exécuter. Néanmoins, le Grand Empereur Dao Yi permit que son âme retourne au Grand Sect de l'Âme, car il admirait son talent !
+Cependant, cet homme était devenu bien trop arrogant et un conflit inconnu les avait poussés à l'affrontement, forçant le Grand Empyrée Dao Yi à l'exécuter. Néanmoins, le Grand Empyrée Dao Yi permit que son âme retourne au Grand Sect de l'Âme, car il admirait son talent !
 
 Depuis la naissance du Continent du Taureau Céleste, les étrangers ne connaissaient qu'un seul Ascendant Céleste y ayant fait son apparition !
 
-Exalté Doré, Exalté Céleste, Ascendant Céleste, Grand Empereur. Ces quatre titres représentaient quatre sommets de puissance distincts !
+Exalté Doré, Exalté Céleste, Ascendant Céleste, Grand Empyrée. Ces quatre titres représentaient quatre sommets de puissance distincts !
 
-Le Grand Sect de l'Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Céleste nommé Luo Yunhai qui avait osé défier un Grand Empereur. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux du Grand Sect de l'Âme, celui-ci comptait parmi les neuf sectes et treize factions, occupant un rang très élevé.
+Le Grand Sect de l'Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Céleste nommé Luo Yunhai qui avait osé défier un Grand Empyrée. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux du Grand Sect de l'Âme, celui-ci comptait parmi les neuf sectes et treize factions, occupant un rang très élevé.
 
 Quant au Sect Gui Yi, ils ne possédaient aucun Exalté Doré. Même leur maître de secte n'était qu'un cultivateur au stade avancé de la Tribulation du Vide. Un gouffre céleste le séparait d'un véritable expert au sommet de ce stade !
 
@@ -48,7 +48,7 @@ Pour ce qui est du Sect du Dao Démoniaque, leur maître de secte était un Exal
 
 Cependant, le Sect du Dao Démoniaque n'était pas une force négligeable parmi les neuf sectes et treize factions. Outre leur maître de secte Exalté Doré, ils comptaient quatre Exaltés de la Tribulation du Vide, mais surtout, ils possédaient un ancêtre vivant en dehors de la secte !
 
-L'ancêtre du Sect du Dao Démoniaque était un Exalté Céleste ! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Vert Démoniaque. Il ne se préoccupait que de sa propre cultivation et, il y a 13 000 ans, il avait été recruté par le Grand Empereur Dao Yi !
+L'ancêtre du Sect du Dao Démoniaque était un Exalté Céleste ! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Vert Démoniaque. Il ne se préoccupait que de sa propre cultivation et, il y a 13 000 ans, il avait été recruté par le Grand Empyrée Dao Yi !
 
 Grâce à un tel ancêtre, le Sect du Dao Démoniaque était devenu célèbre dans tout le Continent de l'Est et occupait une position dominante sur le Continent du Démon Vert !
 

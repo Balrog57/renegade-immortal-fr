@@ -48,7 +48,7 @@ Cette figure était floue, imprégnée d'une énergie démoniaque. Cette essence
 
 « Grâce à elle, vous pourrez créer un sceau afin que vos souvenirs ne soient ni endommagés ni perdus lors de votre réincarnation. Ainsi, une fois que vous serez tous éveillés, vos souvenirs seront intégralement restaurés ! »
 
-« Cela garantira également qu'à moins qu'un autre Grand Empereur ne fouille votre âme, personne ne pourra découvrir l'identité de votre vie antérieure ! »
+« Cela garantira également qu'à moins qu'un autre Grand Empyrée ne fouille votre âme, personne ne pourra découvrir l'identité de votre vie antérieure ! »
 
 « Avec cela, la réincarnation sera complète ! » Xuan Luo agita sa main droite et la brume noire s'élança vers la porte. Le sentier de glace à l'intérieur fut alors recouvert par ce brouillard sombre.
 
@@ -60,7 +60,7 @@ Ce soleil était initialement invisible, mais sous le regard de Xuan Luo, des cr
 
 On pouvait le toucher, le sentir et le saisir !
 
-« Wang Lin, ceci est forgé à partir de la puissance de Grand Empereur de ce vieil homme ; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le avec ton Dao du Rêve ! »
+« Wang Lin, ceci est forgé à partir de la puissance de Grand Empyrée de ce vieil homme ; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le avec ton Dao du Rêve ! »
 
 « Emploie cette méthode pour sceller leurs souvenirs dans un rêve jusqu'au jour où tu viendras les éveiller ! »
 

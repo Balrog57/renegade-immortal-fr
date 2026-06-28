@@ -28,7 +28,7 @@ Xuan Luo saisit le jade. Il ne l'examina pas immédiatement, mais fixa Wang Lin.
 
 Wang Lin hocha la tête.
 
-Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empereur Ancient Ji. En un éclair, ils disparurent sans laisser de trace.
+Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyrée Ancient Ji. En un éclair, ils disparurent sans laisser de trace.
 
 À cet instant, à l'extérieur de la tempête marine, seuls Wang Lin et Gu Dao restèrent.
 
@@ -90,9 +90,9 @@ Les yeux de Gu Dao s'illuminèrent et il n'hésita pas une seconde. Il s'élanç
 
 À cet instant, Wang Lin était le seul encore debout devant la porte. Il ferma les yeux et, lorsqu'il les rouvrit, il marcha vers l'ouverture. Il franchit le seuil pas à pas.
 
-Une fois que Wang Lin eut pénétré dans le Royaume Divin Immemorial, tout sur le continent Astral Immortel retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Ancient non plus, et même les Grands Empereurs n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
+Une fois que Wang Lin eut pénétré dans le Royaume Divin Immemorial, tout sur le continent Astral Immortel retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Ancient non plus, et même les Grands Empyrées n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
 
-Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Ancient et aux huit Grands Empereurs. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immemorial.
+Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Ancient et aux huit Grands Empyrées. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immemorial.
 
 Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bassin brillèrent intensément. La lumière obscurcit tout avant de s'évanouir sans laisser de trace. Avec eux disparut également la porte du Royaume Divin Immemorial.
 

@@ -8,7 +8,7 @@ slug: malediction-ancestrale
 ---
 Chapitre 1994 - Malédiction ancestrale !
 
-Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela : « Ce plan a été conçu par le génie du clan Dao Wang, et il est en marche depuis des générations. Il m'a aidé à devenir un Grand Empyrean en échange de mon aide.
+Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela : « Ce plan a été conçu par le génie du clan Dao Wang, et il est en marche depuis des générations. Il m'a aidé à devenir un Grand Empyrée en échange de mon aide.
 
 « Lorsque le précédent Empereur Céleste est décédé, avant que vous ne preniez le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
 
@@ -46,15 +46,15 @@ Hai Zi acquiesça.
 
 « Dao Yi, Wu Feng, je présume que vous deux étiez au courant ? » Le regard de l'Empereur Céleste se tourna vers eux.
 
-Dao Yi fronça les sourcils et déclara lentement : « Le Grand Empyrean Jiu Di est venu me voir pour m'exposer le plan du clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet ! »
+Dao Yi fronça les sourcils et déclara lentement : « Le Grand Empyrée Jiu Di est venu me voir pour m'exposer le plan du clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet ! »
 
 Wu Feng réfléchit en silence avant d'acquiescer.
 
-L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une amère profonde. Il se tourna vers le Grand Empyrean Gemini.
+L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une amère profonde. Il se tourna vers le Grand Empyrée Gemini.
 
 « Et qu'en est-il de vous, Gemini ? Connaissiez-vous également ce plan ? »
 
-Le corps originel du Grand Empyrean Gemini resta impassible, comme indifférent à ces enjeux. Elle fixa l'Empereur Céleste :
+Le corps originel du Grand Empyrée Gemini resta impassible, comme indifférent à ces enjeux. Elle fixa l'Empereur Céleste :
 
 « Je ne le savais pas et je ne voulais pas savoir. Je suis seulement venue pour emporter Wang Lin ! Que ce soit vous ou Jiu Di, quiconque osera se mettre en travers de mon chemin sera mon ennemi ! »
 
@@ -66,9 +66,9 @@ Les yeux de l'Empereur Céleste s'illuminèrent. « Wang Lin... Wang Lin... Puis
 
 L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre : « Cependant, je me demande si l'ancêtre du Grand Secte des Âmes savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du clan Dao Wang.
 
-« Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyrean Gemini ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste !
+« Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyrée Gemini ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste !
 
-« Vous avez aussi utilisé l'Ascendant Empyrean Ming Dao, Dao Fei, moi-même et les 72 esprits scellés ! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille !
+« Vous avez aussi utilisé l'Empyrée Ascendant Ming Dao, Dao Fei, moi-même et les 72 esprits scellés ! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille !
 
 « Et vous deux, Dao Yi et Wu Feng. Pour que vous acceptiez de venir, Jiu Di a dû vous promettre d'immenses bénéfices. Vous êtes venus par intérêt personnel !
 
@@ -78,7 +78,7 @@ L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre : « Cep
 
 Gemini réfléchit en silence. Comment ne pas avoir percé à jour leurs intentions après la fusion ?
 
-« Empereur Céleste, nous ne voulons pas vous tuer. Vous n'avez qu'à utiliser le pouvoir de votre lignée pour ouvrir la tête de l'Ancêtre Céleste. Vous resterez l'Empereur Céleste, vous resterez un Grand Empyrean !
+« Empereur Céleste, nous ne voulons pas vous tuer. Vous n'avez qu'à utiliser le pouvoir de votre lignée pour ouvrir la tête de l'Ancêtre Céleste. Vous resterez l'Empereur Céleste, vous resterez un Grand Empyrée !
 
 « Si vous refusez, alors ne nous blâmez pas de vous tuer pour extraire votre pouvoir de lignée et accomplir cette étape ! » dit calmement Jiu Di, sans aucune intention meurtrière apparente, bien que ses paroles fussent d'une froideur extrême.
 

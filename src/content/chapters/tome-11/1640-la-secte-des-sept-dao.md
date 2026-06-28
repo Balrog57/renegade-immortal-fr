@@ -32,7 +32,7 @@ La chose la plus éblouissante sur ce continent était les neuf soleils dans le 
 
 En absorbant les souvenirs du vieil homme, Wang Lin découvrit, à travers la vision des neuf soleils, une légende antique.
 
-Cette légende affirmait que les neuf soleils du Continent Astral Immortel représentaient les neuf Grands Empereurs Célestes. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
+Cette légende affirmait que les neuf soleils du Continent Astral Immortel représentaient les neuf Grands Empyrées. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
 
 La légende disait que neuf était la limite. On racontait que si un dixième soleil apparaissait, le Continent Astral Immortel subirait des calamités sans fin !
 

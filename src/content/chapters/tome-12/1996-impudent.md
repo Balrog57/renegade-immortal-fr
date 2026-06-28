@@ -10,9 +10,9 @@ Chapitre 1996 - Impudent !
 
 L’apparence de Wang Lin, la précision de ses gestes et ses paroles plongèrent tout le monde dans un silence pesant.
 
-L'expression du Grand Empereur Jiu Di était sombre. Il ressentait une douleur déchirante et brûlante au plus profond de son corps, mais il la réprimait grâce à sa puissante cultivation. Il fixa Wang Lin, et une intention meurtrière jaillit de ses yeux !
+L'expression du Grand Empyrée Jiu Di était sombre. Il ressentait une douleur déchirante et brûlante au plus profond de son corps, mais il la réprimait grâce à sa puissante cultivation. Il fixa Wang Lin, et une intention meurtrière jaillit de ses yeux !
 
-Il avait tout calculé, mais il ne s'était pas attendu à ce que l'Empereur Céleste abandonne son corps de Grand Empereur pour choisir l'autodestruction. Cela ne correspondait pas à sa compréhension de l'Empereur Céleste.
+Il avait tout calculé, mais il ne s'était pas attendu à ce que l'Empereur Céleste abandonne son corps de Grand Empyrée pour choisir l'autodestruction. Cela ne correspondait pas à sa compréhension de l'Empereur Céleste.
 
 Quoi qu'il en soit, cela n'avait pas de conséquence majeure. Bien que l'Empereur Céleste ait explosé, la tête avait été ouverte. La malédiction ancestrale s'était dispersée entre eux, ce qui ne la rendait pas fatale. Ils n'avaient aucune raison de s'entretuer, ils ne feraient donc pas empirer la malédiction. Ils prendraient ce dont ils avaient besoin, puis retourneraient dans leurs grottes pour une cultivation en isolement afin d'éliminer lentement la malédiction.
 
@@ -20,13 +20,13 @@ Cependant, ce qui avait fait échouer les calculs de Jiu Di, c'était que Wang L
 
 Non seulement il n'était pas mort, mais il semblait que son niveau de cultivation avait augmenté, et désormais, c'était lui qui prenait l'initiative ! Puisqu'ils étaient affectés par la malédiction ancestrale, ils se trouvaient en position de faiblesse !
 
-Non loin de là, le visage du Grand Empereur Wu Feng vieillissait à vue d'œil et ses yeux s'obscurcissaient. Son corps tremblait tandis qu'il lançait à Wang Lin un regard complexe.
+Non loin de là, le visage du Grand Empyrée Wu Feng vieillissait à vue d'œil et ses yeux s'obscurcissaient. Son corps tremblait tandis qu'il lançait à Wang Lin un regard complexe.
 
-Quant au Grand Empereur Dao Yi, il était enveloppé d'un gaz noir et la douleur le submergeait alors qu'il endurait la malédiction ancestrale qui tentait de liquéfier son corps. À l'apparition de Wang Lin, sa douleur se mua en une rage sourde !
+Quant au Grand Empyrée Dao Yi, il était enveloppé d'un gaz noir et la douleur le submergeait alors qu'il endurait la malédiction ancestrale qui tentait de liquéfier son corps. À l'apparition de Wang Lin, sa douleur se mua en une rage sourde !
 
 Cette colère venait de la vue d'une fourmi osant montrer les crocs face à un lion !
 
-« Arrogant, tu cherches la mort ! » hurla Dao Yi. Il possédait la cultivation la plus faible des Grands Empereurs et, frappé par la malédiction ancestrale, il n'avait guère de temps pour réfléchir. Même si Wang Lin était le premier parmi les Empereurs Ascendants, il n'était toujours qu'une fourmi !
+« Arrogant, tu cherches la mort ! » hurla Dao Yi. Il possédait la cultivation la plus faible des Grands Empyrées et, frappé par la malédiction ancestrale, il n'avait guère de temps pour réfléchir. Même si Wang Lin était le premier parmi les Empyrées Ascendants, il n'était toujours qu'une fourmi !
 
 Tout en criant, Dao Yi transforma sa douleur en intention meurtrière et se précipita vers Wang Lin. En s'approchant, il leva la main droite, autour de laquelle s'accumula un gaz noir. C'était une vision terrifiante.
 
@@ -44,13 +44,13 @@ Dans un fracas de tonnerre, le filet s'effondra. Le corps de Wang Lin trembla et
 
 Le massacre ne pouvait être détruit !
 
-Bien que Dao Yi fût un Grand Empereur, la malédiction ancestrale ne lui permettait d'utiliser qu'environ 50 % de sa puissance. Confronté au tonnerre de massacre de Wang Lin, il fut forcé de reculer de quelques pas, tremblant. Ses yeux exprimaient l'incrédulité ; il sentit immédiatement l'étrange aura émanant du filet de tonnerre. Cette aura commença à ravager son corps et il fut incapable de l'expulser. C'était la première fois que Dao Yi était repoussé par un être n'étant pas un Grand Empereur depuis qu'il avait atteint ce rang !
+Bien que Dao Yi fût un Grand Empyrée, la malédiction ancestrale ne lui permettait d'utiliser qu'environ 50 % de sa puissance. Confronté au tonnerre de massacre de Wang Lin, il fut forcé de reculer de quelques pas, tremblant. Ses yeux exprimaient l'incrédulité ; il sentit immédiatement l'étrange aura émanant du filet de tonnerre. Cette aura commença à ravager son corps et il fut incapable de l'expulser. C'était la première fois que Dao Yi était repoussé par un être n'étant pas un Grand Empyrée depuis qu'il avait atteint ce rang !
 
 Il avait presque oublié cette sensation, et lorsqu'elle le frappa, il ne put que rester stupéfait. Cette aura de massacre rendit également la malédiction ancestrale plus violente en lui. Des morceaux de chair putride tombèrent de son visage.
 
 Le pouvoir de la malédiction devint encore plus intense !
 
-« Tu... Tu... » Les paroles de Dao Yi ne furent plus qu'un sifflement étouffé par l'agonie. S'il n'avait été qu'un Empereur Ascendant, il serait déjà mort sous une telle douleur.
+« Tu... Tu... » Les paroles de Dao Yi ne furent plus qu'un sifflement étouffé par l'agonie. S'il n'avait été qu'un Empyrée Ascendant, il serait déjà mort sous une telle douleur.
 
 Wang Lin agita sa manche et dit calmement : « Dao Yi, si tu souhaites encore combattre, je ne m'oppose pas à ce que la malédiction ancestrale s'aggrave pour voir si tu finiras par succomber ou non ! »
 
@@ -60,13 +60,13 @@ L'expression de Jiu Di devint sombre alors que son regard se posait sur Wang Lin
 
 « Wang Lin, ce vieil homme admet t'avoir sous-estimé une fois de plus ! Tu t'es caché jusqu'à présent pour surgir à cet instant précis et prendre l'initiative. Même moi, je dois t'admirer ! Cependant, si tu penses pouvoir profiter de notre lutte contre la malédiction pour dérober la tête de l'Ancêtre Céleste, c'est impossible !
 
-« Wang Lin, tu es intelligent. Ce vieil homme ne souhaite vraiment pas agir, car cela aggraverait la malédiction, mais ne me force pas ! Remets la tête et ce vieil homme te laissera repartir sain et sauf. Nous prêterons serment de ne plus jamais te nuire et nous t'aiderons même à devenir un Grand Empereur. Si tu restes avide, alors ce lieu sera ta tombe ! » déclara calmement Jiu Di en fixant Wang Lin.
+« Wang Lin, tu es intelligent. Ce vieil homme ne souhaite vraiment pas agir, car cela aggraverait la malédiction, mais ne me force pas ! Remets la tête et ce vieil homme te laissera repartir sain et sauf. Nous prêterons serment de ne plus jamais te nuire et nous t'aiderons même à devenir un Grand Empyrée. Si tu restes avide, alors ce lieu sera ta tombe ! » déclara calmement Jiu Di en fixant Wang Lin.
 
-« Même Gemini est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme ! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Gemini un certain temps ! En outre, l'Enseignante Impériale Hai Zi du clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort ! De plus, n'importe lequel des Grands Empereurs peut consumer une partie de sa puissance pour t'écraser ! »
+« Même Gemini est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme ! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Gemini un certain temps ! En outre, l'Enseignante Impériale Hai Zi du clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort ! De plus, n'importe lequel des Grands Empyrées peut consumer une partie de sa puissance pour t'écraser ! »
 
 L'expression de Wang Lin resta impassible tandis que son regard balayait l'assemblée.
 
-Simultanément, le Grand Empereur Gemini bougea pour rejoindre Wang Lin. Son visage devint instantanément livide et une lumière violette enveloppa son corps. Sa forme sembla fondre pour redevenir deux fillettes.
+Simultanément, le Grand Empyrée Gemini bougea pour rejoindre Wang Lin. Son visage devint instantanément livide et une lumière violette enveloppa son corps. Sa forme sembla fondre pour redevenir deux fillettes.
 
 Le visage des deux petites filles était d'une pâleur mortelle ; elles paraissaient très faibles. Il semblait que fusionner en une seule entité leur coûtait un prix exorbitant.
 
@@ -76,13 +76,13 @@ La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle
 
 Les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule paire ; une fois expulsés, les deux fillettes s'en saisirent immédiatement.
 
-« Puisque cet objet est utile au Grand Empereur Gemini, veuillez l'accepter ! Merci pour votre aide ! » Tandis que Wang Lin parlait, le visage de Jiu Di se décomposa. Il poussa un rugissement et fonça sur Wang Lin.
+« Puisque cet objet est utile au Grand Empyrée Gemini, veuillez l'accepter ! Merci pour votre aide ! » Tandis que Wang Lin parlait, le visage de Jiu Di se décomposa. Il poussa un rugissement et fonça sur Wang Lin.
 
 Les yeux de Dao Yi devinrent rouge sang alors qu'il s'élançait, enveloppé d'un gaz noir !
 
-« Wu Feng, Hai Zi, attaquez immédiatement ! » Jiu Di se sentait profondément humilié. Il était un Grand Empereur ayant vécu des éons, et pourtant, il devait supplier les autres pour obtenir de l'aide. C'était une rare ignominie pour lui.
+« Wu Feng, Hai Zi, attaquez immédiatement ! » Jiu Di se sentait profondément humilié. Il était un Grand Empyrée ayant vécu des éons, et pourtant, il devait supplier les autres pour obtenir de l'aide. C'était une rare ignominie pour lui.
 
-« Cet enfant ne doit pas rester en vie ! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empereur Gemini, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Gemini et se précipitaient vers Jiu Di et Dao Yi !
+« Cet enfant ne doit pas rester en vie ! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empyrée Gemini, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Gemini et se précipitaient vers Jiu Di et Dao Yi !
 
 Des grondements tonitruants éclatèrent. Au loin, Wu Feng hésitait. L'Exaltée Céleste Hai Zi se mordait la lèvre inférieure, visiblement déchirée par le dilemme.
 
@@ -90,7 +90,7 @@ Tandis que Gemini résistait à Jiu Di et Dao Yi, les yeux de Wang Lin s'illumin
 
 Un sang doré éclaboussa l'air alors que la paire d'oreilles, brillant intensément, vola vers Wu Feng !
 
-« Grand Empereur Wu Feng, voici ce dont vous avez besoin ! Je ne vous accompagnerai pas ! » Le Grand Empereur Wu Feng leva la main droite et les rattrapa. Il rangea silencieusement les oreilles et recula de quelques pas. Il n'avait nul besoin de prendre part au combat, surtout avec la malédiction qui le rongeait. Il ne voulait pas agir ; il devait retourner dans sa grotte pour se libérer du mal !
+« Grand Empyrée Wu Feng, voici ce dont vous avez besoin ! Je ne vous accompagnerai pas ! » Le Grand Empyrée Wu Feng leva la main droite et les rattrapa. Il rangea silencieusement les oreilles et recula de quelques pas. Il n'avait nul besoin de prendre part au combat, surtout avec la malédiction qui le rongeait. Il ne voulait pas agir ; il devait retourner dans sa grotte pour se libérer du mal !
 
 En battant en retraite, Wu Feng resta silencieux et ne lança à Wang Lin qu'un regard profond. Puis, il fit volte-face et disparut !
 
@@ -100,9 +100,9 @@ Un loup blanc hurla et sa tête perça le corps de Jiu Di pour foncer vers Gemin
 
 « Dao Yi, Hai Zi, volez la tête ! » Jiu Di déploya toute sa puissance, au risque d'aggraver la malédiction, pour lutter contre Gemini. En un éclair, Dao Yi survola Gemini tandis qu'un soleil apparaissait également derrière lui. Il se donnait aussi à fond, au prix d'une aggravation de la malédiction !
 
-Mais il était le plus faible des Grands Empereurs et la malédiction qui le frappait était extrêmement sévère. À cet instant, son soleil était terne, comme s'il pouvait se dissiper à tout moment. Il ne pouvait toujours pas utiliser toute sa puissance.
+Mais il était le plus faible des Grands Empyrées et la malédiction qui le frappait était extrêmement sévère. À cet instant, son soleil était terne, comme s'il pouvait se dissiper à tout moment. Il ne pouvait toujours pas utiliser toute sa puissance.
 
-Cela suffisait pour tuer un Empereur Ascendant, mais il était impossible d'éliminer Wang Lin en si peu de temps ! Il aurait encore besoin de l'aide de Hai Zi. Si elle l'assistait avec les sorts du clan Dao Wang, ils auraient une chance de l'emporter !
+Cela suffisait pour tuer un Empyrée Ascendant, mais il était impossible d'éliminer Wang Lin en si peu de temps ! Il aurait encore besoin de l'aide de Hai Zi. Si elle l'assistait avec les sorts du clan Dao Wang, ils auraient une chance de l'emporter !
 
 L'expression de Wang Lin resta calme tandis qu'il se retirait avec la tête de l'Ancêtre Céleste. Il leva les yeux et s'adressa à Hai Zi qui semblait tiraillée :
 

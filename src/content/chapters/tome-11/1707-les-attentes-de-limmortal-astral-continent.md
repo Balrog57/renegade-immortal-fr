@@ -78,19 +78,19 @@ Sa présence commanda à près d'un million de cultivateurs du pays ancien de s'
 
 Seul le jeune homme aux cheveux noirs resta droit, fixant toujours calmement la statue. L'homme en robe royale ne sembla nullement offensé. Il passa devant la foule inclinée pour rejoindre le jeune homme. Souriant, il joignit les mains et s'adressa à lui avec respect, sans pour autant perdre sa dignité :
 
-« Ye Su salue le Grand Empereur Xuan Luo. »
+« Ye Su salue le Grand Empyrée Xuan Luo. »
 
-Le jeune homme aux cheveux noirs était l'un des neuf soleils : le Grand Empereur Xuan Luo !
+Le jeune homme aux cheveux noirs était l'un des neuf soleils : le Grand Empyrée Xuan Luo !
 
 Ce dernier répondit lentement : « Le moment approche, vous êtes un peu tard. »
 
-« J'espère que le Grand Empereur pourra me pardonner. Les empereurs Ji et Shi sont très préoccupés par ce qui se passe ici ; je communiquais avec eux via mon Sens Divin. » L'homme en robe royale afficha un sourire amer en hochant la tête.
+« J'espère que le Grand Empyrée pourra me pardonner. Les empereurs Ji et Shi sont très préoccupés par ce qui se passe ici ; je communiquais avec eux via mon Sens Divin. » L'homme en robe royale afficha un sourire amer en hochant la tête.
 
 Le jeune homme laissa échapper un reniflement froid.
 
 « Les trois empereurs : Ji, Dao et Shi. Vous êtes l'empereur du royaume de Dao ; il y a des moments où vous n'avez pas besoin de leur accorder l'ombre d'une attention. Mais cet événement est majeur pour mon royaume, il est donc naturel qu'ils s'en inquiètent. »
 
-« Comme le dit mon oncle. » L'homme en robe royale changea alors son mode d'adresse. En entendant ce terme, l'expression du Grand Empereur Xuan Luo s'adoucit légèrement.
+« Comme le dit mon oncle. » L'homme en robe royale changea alors son mode d'adresse. En entendant ce terme, l'expression du Grand Empyrée Xuan Luo s'adoucit légèrement.
 
 « Oncle, cette affaire est bien étrange. Je me demande quelles sont les chances de succès ? » L'homme regarda la statue de son ancêtre qui lui ressemblait tant.
 

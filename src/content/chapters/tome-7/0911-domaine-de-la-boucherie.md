@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 911 - Slaughter Domain
 slug: domaine-de-la-boucherie
 ---
-La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la cultivation de ce Xu Mu était extrêmement singulière. Bien que le niveau de cultivation de Xu Mu ne fût qu'au début du stade Nirvana Scryer, son corps physique était assez puissant pour surclasser les trésors qu'il avait affinés avec ses avatars !
+La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la cultivation de ce Xu Mu était extrêmement singulière. Bien que le niveau de cultivation de Xu Mu ne fût qu'au début du stade Scruteur du Nirvana, son corps physique était assez puissant pour surclasser les trésors qu'il avait affinés avec ses avatars !
 
 Cette réalisation fit trembler son esprit.
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin demeura indifférente. Face à la lame colossale formé
 
 Cette stature imposante dégageait une aura ancienne et puissante. Il ne chercha pas à esquiver, laissant la grande épée s'écraser contre lui. Wang Lin ne cilla même pas ; c'est l'épée qui se brisa !
 
-Si Wang Lin n'avait pas fusionné, il n'aurait jamais osé affronter les trésors d'un cultivateur Nirvana Scryer au stade intermédiaire. Cependant, ayant fusionné avec son corps original, il était capable de résister totalement à de tels artefacts. En particulier, la puissante énergie d'origine émanant de son corps repoussa tous les trésors approchant.
+Si Wang Lin n'avait pas fusionné, il n'aurait jamais osé affronter les trésors d'un cultivateur Scruteur du Nirvana au stade intermédiaire. Cependant, ayant fusionné avec son corps original, il était capable de résister totalement à de tels artefacts. En particulier, la puissante énergie d'origine émanant de son corps repoussa tous les trésors approchant.
 
 Quant au python qui suivait de près l'épée et tentait toujours d'engloutir Wang Lin, celui-ci resta impassible, saisit la tête du reptile et la broya directement.
 

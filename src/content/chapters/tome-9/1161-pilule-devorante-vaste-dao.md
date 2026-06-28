@@ -90,7 +90,7 @@ Alors qu'il continuait d'avaler des pilules de rang 5, il entrevit vaguement des
 
 Les âmes de bêtes des pilules de rang 5 n'étaient pas très utiles pour lui ; il ne s'en servait que pour se familiariser avec la sensation d'utiliser les âmes de bêtes pour appréhender le Ciel.
 
-Après les pilules de rang 5, Wang Lin avala une pilule de rang 6. L'âme de bête contenue équivalait à un cultivateur du stade initial du Nirvana Scryer, ce qui déclencha immédiatement l'activation de son domaine.
+Après les pilules de rang 5, Wang Lin avala une pilule de rang 6. L'âme de bête contenue équivalait à un cultivateur du stade initial du Scruteur du Nirvana, ce qui déclencha immédiatement l'activation de son domaine.
 
 C'était comme s'il s'était transformé en la bête elle-même, comprenant progressivement les lois au fil d'innombrables années. Ces scènes étaient à la fois tangibles et irréelles. Wang Lin était immergé dans cette compréhension complexe pour chercher sa propre Voie. Il cherchait l'existence entre le vrai et le faux.
 

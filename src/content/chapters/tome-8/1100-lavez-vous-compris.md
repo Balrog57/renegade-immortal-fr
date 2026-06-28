@@ -80,11 +80,11 @@ C'était une forme d'espoir spirituel, une sorte de persévérance et de lutte, 
 
 « Wan Er, souviens-toi que même si les cieux veulent ta mort, je te ramènerai !!! » déclara Wang Lin avec une détermination défiant le ciel.
 
-Les volcans étaient la seule chose qui ne manquait pas sur ces planètes appartenant au Secte Divin de l'Oiseau Rouge. Ces volcans s'étaient formés dans des conditions particulières, faisant jaillir très fréquemment d'épaisses coulées de magma.
+Les volcans étaient la seule chose qui ne manquait pas sur ces planètes appartenant au Secte Divine de l'Oiseau Rouge. Ces volcans s'étaient formés dans des conditions particulières, faisant jaillir très fréquemment d'épaisses coulées de magma.
 
 Chaque éruption faisait trembler la terre. Le grondement assourdissant était tellurique. La fumée noire emplissait le ciel et la lave pleuvait, donnant l'impression de la fin du monde !
 
-Les disciples du Secte Divin de l'Oiseau Rouge avaient vu trop d'éruptions volcaniques. Cependant, Wang Lin, lui, en avait vu peu.
+Les disciples du Secte Divine de l'Oiseau Rouge avaient vu trop d'éruptions volcaniques. Cependant, Wang Lin, lui, en avait vu peu.
 
 À cet instant, des bruits sourds provenant du volcan sur lequel il se trouvait s'intensifièrent. Mais Wang Lin ignorait tout cela. À présent, Li Muwan était la seule chose qu'il voyait.
 
@@ -116,4 +116,4 @@ Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effon
 
 En vérité, dans la Terre des Esprits Démoniaques, Wang Lin avait entrevu une trace de compréhension de ce sort lors d'une éruption volcanique, mais le sentiment était resté ténu. En raison des dangers qu'il affrontait, il n'avait pas eu le temps d'approfondir sa réflexion.
 
-Cependant, le Secte Divin de l'Oiseau Rouge ne manquait pas de volcans. Maintenant qu'il possédait davantage d'énergie originelle du feu, il comprenait de plus en plus le sort de l'Effondrement des Montagnes que Qing Shui lui avait laissé.
+Cependant, le Secte Divine de l'Oiseau Rouge ne manquait pas de volcans. Maintenant qu'il possédait davantage d'énergie originelle du feu, il comprenait de plus en plus le sort de l'Effondrement des Montagnes que Qing Shui lui avait laissé.

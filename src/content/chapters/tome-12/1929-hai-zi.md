@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1929 - Hai Zi
 slug: hai-zi
 ---
-Wang Lin ne tenta pas immédiatement de franchir les autres palais, bien que le moyen le plus rapide d'attirer l'attention des Grands Empereurs fût de passer par le Sentier Empyréen.
+Wang Lin ne tenta pas immédiatement de franchir les autres palais, bien que le moyen le plus rapide d'attirer l'attention des Grands Empyrées fût de passer par le Sentier Empyréen.
 
 Mais pour l'instant, il avait encore une autre tâche à accomplir. Après avoir réfléchi un instant, alors que la lumière dorée émanant des quatre palais inondait toujours les environs, Wang Lin descendit vers le sol sous les regards des Exaltés Empyréens environnants.
 
@@ -46,7 +46,7 @@ Le ressac résonnait aux oreilles de Wang Lin tandis que la brise marine caressa
 
 Contemplant la Mer Montagneuse, Wang Lin réfléchit un instant, puis monta sur son dos. Le dragon marin poussa un rugissement et fonça vers la mer.
 
-Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empereurs et des quarante-huit Ascendants Empyréens. Ils pouvaient presque aller partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste !
+Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empyrées et des quarante-huit Ascendants Empyréens. Ils pouvaient presque aller partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste !
 
 Même ces âmes anciennes pouvaient être combattues lorsqu'elles étaient scellées ! Tout comme en ce moment même : Wang Lin se dirigeait vers l'Arbre de la Mer Montagneuse qui était scellé ici. Avant d'acquérir la puissance d'un Exalté Empyréen, une telle entreprise lui aurait été impossible.
 

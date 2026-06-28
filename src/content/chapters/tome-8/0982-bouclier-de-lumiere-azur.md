@@ -36,7 +36,7 @@ Un dragon d'azur était sculpté sur ce fragment. Le relief était si réaliste 
 
 Tenant le fragment, Wang Lin l'examina avec soin. Il y décelait une aura similaire à celle de la marque de l'Oiseau Vermillon entre ses sourcils.
 
-« Les Quatre Sectes Divines possèdent l'Oiseau Vermillon, la Tortue Noire, le Dragon d'Azur et le Tigre Blanc. Cela pourrait-il appartenir au Secte Divin du Dragon d'Azur ? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
+« Les Quatre Sectes Divines possèdent l'Oiseau Vermillon, la Tortue Noire, le Dragon d'Azur et le Tigre Blanc. Cela pourrait-il appartenir au Secte Divine du Dragon d'Azur ? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
 
 Privé du dragon, l'aura de Dieu Antique emplissait le bouclier, bien qu'elle ne fût pas flagrante. Wang Lin fronça les sourcils en l'examinant attentivement, puis ses yeux se rétrécirent.
 
@@ -60,7 +60,7 @@ Instantanément, l'aura antique émanant du vortex trembla et fut violemment asp
 
 Simultanément, alors que l'aura de Dieu Antique subissait une mutation brutale, le Sens Divin se détacha d'elle. À cet instant précis, une voix solennelle résonna dans l'esprit de Wang Lin :
 
-« Ce vieil homme est l'Empereur Saint du Dragon d'Azur, et je suis prisonnier du Royaume Céleste de la Pluie. Celui qui me sauvera deviendra le premier de la Lignée du Dragon d'Azur ! Transmettez mon message au Secte Divin du Dragon d'Azur, et les Quatre Sectes Divins accompliront pour vous ce que vous demanderez. L'aura de ce vieil homme décline, et je crains de ne pouvoir tenir beaucoup plus longtemps. J'espère que quelqu'un recevra ce message et viendra me secourir sans tarder ! »
+« Ce vieil homme est l'Empereur Saint du Dragon d'Azur, et je suis prisonnier du Royaume Céleste de la Pluie. Celui qui me sauvera deviendra le premier de la Lignée du Dragon d'Azur ! Transmettez mon message au Secte Divine du Dragon d'Azur, et les Quatre Sectes Divins accompliront pour vous ce que vous demanderez. L'aura de ce vieil homme décline, et je crains de ne pouvoir tenir beaucoup plus longtemps. J'espère que quelqu'un recevra ce message et viendra me secourir sans tarder ! »
 
 Le corps de Wang Lin trembla. Avant qu'il ne puisse réfléchir davantage, le petit vortex azur disparut et l'aura de Dieu Antique explosa avec fureur.
 

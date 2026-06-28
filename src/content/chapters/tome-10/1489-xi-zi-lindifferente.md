@@ -54,9 +54,9 @@ Wang Lin leva sa main droite, puis la laissa retomber doucement. L'homme qui rec
 
 « Cette salope a été maltraitée par tant de gens durant ces centaines d'années... Pourquoi ne tuer que moi ? Si vous en avez vraiment les moyens, tuez-les tous ! » Son dernier rugissement résonna alors que le corps de l'homme explosait, son âme originelle étant instantanément effacée de ce monde.
 
-Tuer un cultivateur Nirvana Scryer était aussi simple que d'écraser une fourmi !
+Tuer un cultivateur Scruteur du Nirvana était aussi simple que d'écraser une fourmi !
 
-Un silence de mort s'installa ; même le vieil homme tremblait. Leurs cœurs battaient la chamade. Bien qu'ils connussent la puissance de Wang Lin, voir un cultivateur Nirvana Scryer mourir d'un simple geste de la main, sans aucune possibilité de résistance, les laissa sous le choc.
+Un silence de mort s'installa ; même le vieil homme tremblait. Leurs cœurs battaient la chamade. Bien qu'ils connussent la puissance de Wang Lin, voir un cultivateur Scruteur du Nirvana mourir d'un simple geste de la main, sans aucune possibilité de résistance, les laissa sous le choc.
 
 Le regard froid de Wang Lin balaya l'assemblée. D'un pas, il s'élança parmi les cultivateurs et disparut avec Xi Zifeng un instant plus tard.
 
@@ -112,8 +112,8 @@ Xi Zifeng se redressa et murmura : « La demeure de ce disciple est à Allheaven
 
 Wang Lin réfléchit en silence. Après un long moment, il agita la main droite. Une puissante vague d'énergie originelle pénétra le corps de Xi Zifeng. Tout en consolidant son âme originelle, il y insuffla autant de compréhension qu'elle pouvait actuellement supporter.
 
-Xi Zifeng franchit immédiatement l'étape du Corps Yang pour atteindre le stade Nirvana Scryer !
+Xi Zifeng franchit immédiatement l'étape du Corps Yang pour atteindre le stade Scruteur du Nirvana !
 
-Mais ce n'était pas fini. Le processus continua jusqu'à ce qu'elle atteigne le stade Nirvana Cleanser. Ensuite, l'énergie originelle se transforma en trois sceaux destinés à contenir sa cultivation. Cela lui permettrait de comprendre et d'assimiler progressivement son nouveau niveau.
+Mais ce n'était pas fini. Le processus continua jusqu'à ce qu'elle atteigne le stade Purificateur du Nirvana. Ensuite, l'énergie originelle se transforma en trois sceaux destinés à contenir sa cultivation. Cela lui permettrait de comprendre et d'assimiler progressivement son nouveau niveau.
 
 Même avec la puissance de Wang Lin, transmettre une telle cultivation restait une tâche ardue.

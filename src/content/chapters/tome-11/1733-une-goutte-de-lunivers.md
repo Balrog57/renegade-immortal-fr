@@ -104,7 +104,7 @@ C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau aut
 
 « Wang Lin, tu es mort !! »
 
-À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empereur Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
+À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empyrée Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
 
 « Comment peut-il l'affiner ? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage ancien mais aussi les sorts des Célestes. C'est extrêmement rare ! »
 

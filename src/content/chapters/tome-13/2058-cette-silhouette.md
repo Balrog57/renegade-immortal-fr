@@ -62,7 +62,7 @@ Une réponse venait enfin d'éclater au grand jour !
 
 « C'est lui ! Ce Wang Lin est celui qui a tué l'Empereur du Dao Ancestral il y a plus de cent ans ! C'est bien lui ! »
 
-« La rumeur dit que ce Wang Lin est le dixième Grand Empereur du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin ! »
+« La rumeur dit que ce Wang Lin est le dixième Grand Empyrée du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin ! »
 
 Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impériale de l'Ancien Shi, le dernier halo restant devint encore plus pâle. Il semblait sur le point de s'évanouir à tout instant.
 

@@ -6,19 +6,19 @@ bookTitle: Light of the coming end
 en: Chapter 2030 - Filled With Rage (9)
 slug: empli-de-rage-9
 ---
-« Le Verrou Ancestral de l'Âme Pourpre... Ce sort a été transmis par le Grand Empereur Gu Dao aux trois familles impériales, et seul l'empereur actuel peut l'utiliser. Ils ne peuvent l'employer qu'une seule fois dans leur vie, et quiconque se situe en dessous du rang de Grand Empereur perdra alors le contrôle de sa propre vie ! »
+« Le Verrou Ancestral de l'Âme Pourpre... Ce sort a été transmis par le Grand Empyrée Gu Dao aux trois familles impériales, et seul l'empereur actuel peut l'utiliser. Ils ne peuvent l'employer qu'une seule fois dans leur vie, et quiconque se situe en dessous du rang de Grand Empyrée perdra alors le contrôle de sa propre vie ! »
 
-« Seul le Grand Empereur Gu Dao peut lever ce sort », dit Xuan Luo avec une expression extrêmement sombre.
+« Seul le Grand Empyrée Gu Dao peut lever ce sort », dit Xuan Luo avec une expression extrêmement sombre.
 
 Wang Lin resta silencieux.
 
-Xuan Luo regarda l'Empereur du Dao Antique et dit calmement : « Ye Dao, en tant que gardien du Dao Antique, je te demande de lever immédiatement cette restriction et de laisser Wang Lin emmener cette femme ! J'irai demander au Grand Empereur Gu Dao de lever le sort qui pèse sur elle ! »
+Xuan Luo regarda l'Empereur du Dao Antique et dit calmement : « Ye Dao, en tant que gardien du Dao Antique, je te demande de lever immédiatement cette restriction et de laisser Wang Lin emmener cette femme ! J'irai demander au Grand Empyrée Gu Dao de lever le sort qui pèse sur elle ! »
 
 « Fils impérial, cela n'en vaut pas la peine pour une femme ! » L'homme âgé fronça également les sourcils en fixant l'Empereur du Dao Antique.
 
 « Puisque cette femme possède l'âme de l'épouse de Wang Lin, pourquoi vouloir la garder ? Rends-la-lui simplement. Un être aussi puissant a décidé de rester dans mon Dao Antique ; si tu agis ainsi, son cœur se refroidira. »
 
-« Son cœur se refroidira ? Et alors, s'il devient froid ? Tu es vieux, ne dis pas de futilités ! Et Lord Xuan... Ceci est une affaire privée de la famille impériale. Vous êtes le gardien du Dao Antique. Auriez-vous oublié l'accord conclu avec le Grand Empereur Gu Dao ? Cet individu s'est introduit dans le palais et a manqué de respect au pouvoir impérial. J'exige maintenant que Lord Xuan tue cet homme et remplisse son devoir ! » dit froidement l'Empereur du Dao Antique, ignorant totalement la requête de Xuan Luo.
+« Son cœur se refroidira ? Et alors, s'il devient froid ? Tu es vieux, ne dis pas de futilités ! Et Lord Xuan... Ceci est une affaire privée de la famille impériale. Vous êtes le gardien du Dao Antique. Auriez-vous oublié l'accord conclu avec le Grand Empyrée Gu Dao ? Cet individu s'est introduit dans le palais et a manqué de respect au pouvoir impérial. J'exige maintenant que Lord Xuan tue cet homme et remplisse son devoir ! » dit froidement l'Empereur du Dao Antique, ignorant totalement la requête de Xuan Luo.
 
 Il agissait ainsi car il était convaincu que personne n'oserait tuer Wang Lin, surtout pas lui.
 
@@ -54,9 +54,9 @@ Les yeux du père de l'Empereur du Dao Antique s'écarquillèrent et son corps s
 
 Même Xuan Luo fut stupéfait en voyant cette âme.
 
-« Pas assez ! ! Comment une simple âme d'Empereur Céleste pourrait-elle suffire ? ! » Le cœur de l'Empereur du Dao Antique battait la chamade et, pour la première fois, il regarda Wang Lin avec une peur profonde. Il ne pouvait concevoir comment Wang Lin avait pu obtenir l'âme de l'Empereur Céleste. Il faut dire que l'Empereur Céleste était l'un des neuf Grands Empereurs !
+« Pas assez ! ! Comment une simple âme d'Empereur Céleste pourrait-elle suffire ? ! » Le cœur de l'Empereur du Dao Antique battait la chamade et, pour la première fois, il regarda Wang Lin avec une peur profonde. Il ne pouvait concevoir comment Wang Lin avait pu obtenir l'âme de l'Empereur Céleste. Il faut dire que l'Empereur Céleste était l'un des neuf Grands Empyrées !
 
-Wang Lin réfléchit en silence. Il agita la main gauche vers le ciel et le Grand Empereur Soleil noir et blanc apparut derrière lui. Quelque chose émergea lentement de l'intérieur du soleil. C'était une tête. Une tête gigantesque, dépourvue d'yeux et d'oreilles !
+Wang Lin réfléchit en silence. Il agita la main gauche vers le ciel et le Grand Empyrée Soleil noir et blanc apparut derrière lui. Quelque chose émergea lentement de l'intérieur du soleil. C'était une tête. Une tête gigantesque, dépourvue d'yeux et d'oreilles !
 
 Dès que la tête apparut, une énergie céleste extrêmement dense et une lumière dorée semblable à celle du soleil se propagèrent.
 
@@ -96,17 +96,17 @@ L'Empereur du Dao Antique hésita.
 
 Même l'Empereur du Dao Antique pâlit et cracha une bouchée de sang. Il leva les yeux vers Xuan Luo avec une expression féroce.
 
-« Xuan Luo, oses-tu me blesser ? N'as-tu pas peur de la colère du Grand Empereur Gu Dao ? ! »
+« Xuan Luo, oses-tu me blesser ? N'as-tu pas peur de la colère du Grand Empyrée Gu Dao ? ! »
 
-« Ye Dao, lève cette restriction. Tu peux prendre la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste. Ce vieil homme fera comme si de rien n'était. Mais si tu refuses, alors ce vieil homme se battra contre le Grand Empereur Gu Dao pour te tuer aujourd'hui ! » Le cœur de Xuan Luo était déchiré. Il regarda l'expression presque suppliante et le visage livide de Wang Lin. Son cœur ne pouvait le supporter.
+« Ye Dao, lève cette restriction. Tu peux prendre la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste. Ce vieil homme fera comme si de rien n'était. Mais si tu refuses, alors ce vieil homme se battra contre le Grand Empyrée Gu Dao pour te tuer aujourd'hui ! » Le cœur de Xuan Luo était déchiré. Il regarda l'expression presque suppliante et le visage livide de Wang Lin. Son cœur ne pouvait le supporter.
 
 Il comprenait que Wang Lin n'agissait ainsi que pour lui. Son disciple ne voulait pas lui compliquer la tâche et ne voulait pas le décevoir, alors il endurait tout cela en silence.
 
-Avec un tel disciple, Xuan Luo pouvait être fier. Si son disciple était capable d'un tel sacrifice, alors malgré ses innombrables années de vie, il était prêt à tuer cet empereur pour lui. Il deviendrait le premier Grand Empereur à terrasser un empereur antique !
+Avec un tel disciple, Xuan Luo pouvait être fier. Si son disciple était capable d'un tel sacrifice, alors malgré ses innombrables années de vie, il était prêt à tuer cet empereur pour lui. Il deviendrait le premier Grand Empyrée à terrasser un empereur antique !
 
 Xuan Luo savait l'ampleur des conséquences, mais en voyant son disciple endurer tant d'humiliations, il avait décidé de se donner corps et âme !
 
-« Tu oserais me tuer ? Xuan Luo, tu es le Grand Empereur du Dao Antique. Si tu me tues, non seulement le Grand Empereur Gu Dao t'exterminera, mais tu te dresseras contre le Dao Antique que tu as protégé durant des éternités. Tu offenses l'intégralité du clan Ancestral. Oses-tu ? ! Tu seras le paria du Dao Antique ; même mort, tu seras détesté par tous ! » rugit l'Empereur du Dao Antique, le visage féroce.
+« Tu oserais me tuer ? Xuan Luo, tu es le Grand Empyrée du Dao Antique. Si tu me tues, non seulement le Grand Empyrée Gu Dao t'exterminera, mais tu te dresseras contre le Dao Antique que tu as protégé durant des éternités. Tu offenses l'intégralité du clan Ancestral. Oses-tu ? ! Tu seras le paria du Dao Antique ; même mort, tu seras détesté par tous ! » rugit l'Empereur du Dao Antique, le visage féroce.
 
 Le corps de Xuan Luo trembla. Il ferma les yeux pour dissimuler la tristesse et la confusion qui les habitaient.
 

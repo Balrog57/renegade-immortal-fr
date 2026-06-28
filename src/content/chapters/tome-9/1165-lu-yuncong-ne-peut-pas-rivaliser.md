@@ -1,4 +1,4 @@
----
+﻿---
 n: 1165
 title: "Lu Yuncong ne peut pas rivaliser !"
 book: 9
@@ -56,7 +56,7 @@ Le vieil homme restait à quelques pas derrière. Son regard se posait occasionn
 
 Depuis qu'elle avait quitté la Secte Briseuse de Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
-« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même le Secte Divin lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de cultivation soit supérieur, je suis inférieure à lui en ce sens. »
+« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même le Secte Divine lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de cultivation soit supérieur, je suis inférieure à lui en ce sens. »
 
 « Hélas... Même un tel homme a été stoppé par la deuxième question. » Li Qianmei soupira intérieurement.
 

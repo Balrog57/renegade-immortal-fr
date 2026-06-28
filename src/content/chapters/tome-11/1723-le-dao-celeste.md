@@ -8,7 +8,7 @@ slug: le-dao-celeste
 ---
 Chapitre 1723 - Le Dao Céleste !
 
-« ...Le Dao Céleste !! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de l'All-Seer était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était l'All-Seer !
+« ...Le Dao Céleste !! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation du Tout-Voyant était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était le Tout-Voyant !
 
 En observant le jeune homme qui s'ajustait le visage d'un geste de la main, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.
 
@@ -16,15 +16,15 @@ Sous son regard, le jeune homme maintint son sourire et disparut au loin. Le sys
 
 À l'extérieur, dans la Rivière des Invocations, le visage de l'avatar de Wang Lin était livide. Des veines pulsaient et disparaissaient sur tout son visage.
 
-D'innombrables âmes des avatars de l'All-Seer pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
+D'innombrables âmes des avatars du Tout-Voyant pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
 
-Alors que ces âmes fusionnaient, la voix lugubre de l'All-Seer résonna dans l'esprit de l'avatar de Wang Lin :
+Alors que ces âmes fusionnaient, la voix lugubre du Tout-Voyant résonna dans l'esprit de l'avatar de Wang Lin :
 
 « Comment peux-tu rivaliser avec ce vieil homme ? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien ? »
 
-Plus de mille âmes de l'All-Seer, provenant de la Rivière des Invocations et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Nuageuse et d'Allheaven approchaient.
+Plus de mille âmes du Tout-Voyant, provenant de la Rivière des Invocations et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Nuageuse et d'Allheaven approchaient.
 
-Alors que l'image du second éveil de l'All-Seer s'effondrait, Wang Lin vit la scène de son premier éveil !
+Alors que l'image du second éveil du Tout-Voyant s'effondrait, Wang Lin vit la scène de son premier éveil !
 
 Le système stellaire devint flou puis s'effondra ; finalement, tout disparut. Puis une porte gigantesque apparut devant lui ! Elle était si immense qu'elle donnait à Wang Lin l'illusion de n'être qu'une fourmi.
 
@@ -102,10 +102,10 @@ Le jeune homme contempla le compas et réfléchit.
 
 Wang Lin ignora son départ et fixa le demi-compas. Il mémorisa chaque détail du lieu ainsi que l'aura de la planète. Puis, il ferma soudainement les yeux. À l'instant même, tout ce qui l'entourait s'effondra silencieusement.
 
-Les plus de quatre-vingt-dix réincarnations de l'All-Seer prirent fin !
+Les plus de quatre-vingt-dix réincarnations du Tout-Voyant prirent fin !
 
 Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître Dao Bleu Rêve, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement submergé dans la Rivière des Invocations !
 
 « J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps ! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 
-« All-Seer, le jeu touche à sa fin ! »
+« Tout-Voyant, le jeu touche à sa fin ! »

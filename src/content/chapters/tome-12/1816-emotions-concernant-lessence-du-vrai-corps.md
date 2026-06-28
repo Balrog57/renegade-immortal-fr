@@ -44,7 +44,7 @@ Au moment où il se retourna, un grondement tonnerre retentit au loin. Un éclai
 
 Cette scène fit rater un battement au cœur de Du Qing.
 
-« Pas étonnant que ce soit un trésor créé par le Grand Empereur... À en juger, il n'en a même pas utilisé toute la puissance... » Les yeux de Du Qing s'illuminèrent tandis qu'il souriait à Wang Lin.
+« Pas étonnant que ce soit un trésor créé par le Grand Empyrée... À en juger, il n'en a même pas utilisé toute la puissance... » Les yeux de Du Qing s'illuminèrent tandis qu'il souriait à Wang Lin.
 
 « Félicitations, Camarade Cultivateur, pour avoir obtenu les deux veines de feu terrestre enfantines. Votre essence du vrai corps sera bientôt complète. »
 
@@ -96,7 +96,7 @@ Dans le Secte du Taureau Céleste, deux rayons de lumière traversèrent rapidem
 
 « Quel est le niveau de cultivation de cet homme... Il semble être au sommet du Vide Spirituel, mais il a pu encaisser deux de mes attaques sans que cela ne semble être son plein potentiel... Bien que le niveau de cultivation puisse être dissimulé, la vitesse est aussi un bon indicateur... Voyons à quelle vitesse il est capable d'aller ! » Du Qing réfléchit silencieusement et augmenta lentement sa cadence. Il dépassa Wang Lin, creusant la distance entre eux.
 
-« Je ne dois pas être trop évident, j'ai juste besoin d'en voir un peu. Après tout, j'ai besoin de lui pour entrer en contact avec ce Grand Empereur... » Du Qing n'osait pas aller trop loin. Lorsqu'il vit que Wang Lin peinait à suivre, il s'apprêtait à ralentir quand ses pupilles se contractèrent.
+« Je ne dois pas être trop évident, j'ai juste besoin d'en voir un peu. Après tout, j'ai besoin de lui pour entrer en contact avec ce Grand Empyrée... » Du Qing n'osait pas aller trop loin. Lorsqu'il vit que Wang Lin peinait à suivre, il s'apprêtait à ralentir quand ses pupilles se contractèrent.
 
 Car le regard froid de Wang Lin pesait sur les yeux de Du Qing. Wang Lin agita la main droite et un brouillard noir apparut. Un rugissement strident retentit de l'intérieur de cette brume noire.
 

@@ -46,7 +46,7 @@ Wang Lin agita sa manche ; le monde autour d'eux se déforma et ils disparurent 
 
 Voyant que Wang Lin s'apprêtait à entrer dans la chambre, le Prince Ji Du hésita. Il semblait vouloir dire quelque chose, mais paraissait craindre de parler.
 
-Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du : « Si tu veux devenir l'Empereur Shi Antique, alors le Grand Empereur Song Tian est la clé. S'il te reconnaît comme l'unique candidat, alors tout sera simple. »
+Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du : « Si tu veux devenir l'Empereur Shi Antique, alors le Grand Empyrée Song Tian est la clé. S'il te reconnaît comme l'unique candidat, alors tout sera simple. »
 
 Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
@@ -58,7 +58,7 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 L'expression de Wang Lin resta calme et, après avoir entendu cela, il réfléchit silencieusement un instant.
 
-« Le Grand Empereur de chaque clan peut nommer chaque génération d'empereur, mais c'est sans exception... Je pense que tu es prêt. » Wang Lin regarda profondément le Prince Ji Du.
+« Le Grand Empyrée de chaque clan peut nommer chaque génération d'empereur, mais c'est sans exception... Je pense que tu es prêt. » Wang Lin regarda profondément le Prince Ji Du.
 
 Le Prince Ji Du eut immédiatement l'impression d'avoir été totalement percé à jour par Wang Lin, incapable même de dissimuler ses pensées.
 
@@ -70,7 +70,7 @@ Il s'agenouilla et dit respectueusement : « Le fils est encore en préparation.
 
 L'expression de Wang Lin demeura sereine lorsqu'il répondit : « Outre ton frère cadet, il doit y avoir un autre adversaire. »
 
-« Et aussi mon frère aîné... Lui... À sa naissance, le monde fut bouleversé. Cela a même attiré l'attention du Grand Empereur Gu Dao, qui lui envoya un présent.
+« Et aussi mon frère aîné... Lui... À sa naissance, le monde fut bouleversé. Cela a même attiré l'attention du Grand Empyrée Gu Dao, qui lui envoya un présent.
 
 « Il possède également de fortes chances d'obtenir le trône ! » sourit amèrement Ji Du.
 
@@ -88,7 +88,7 @@ Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectue
 
 Excité, le Prince Ji Du prit plusieurs inspirations profondes avant de réprimer son enthousiasme. Il envoya immédiatement un ordre pour faire de cet endroit une zone interdite : quiconque oserait y pénétrer serait instantanément tué. Il fit même déployer plusieurs gardes pour protéger les lieux jour et nuit.
 
-Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de cultivation actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empereurs ne pourraient entrer sans qu'il ne le sache.
+Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de cultivation actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empyrées ne pourraient entrer sans qu'il ne le sache.
 
 Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans l'Ancient Shi et à son aide pour que le Prince Ji Du devienne empereur.
 
@@ -106,7 +106,7 @@ Cela ressemblait énormément à ce que l'Enseignant Impérial de l'Ancient Dao 
 
 C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancestral et peut-être d'obtenir plus de sang d'âme !
 
-« Je ne peux plus retourner dans l'Ancient Dao, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empereurs. Ce droit appartient à l'empereur actuel.
+« Je ne peux plus retourner dans l'Ancient Dao, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empyrées. Ce droit appartient à l'empereur actuel.
 
 « Même si Lou Chen est reconnu comme l'Empereur de l'Ancient Dao... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
 

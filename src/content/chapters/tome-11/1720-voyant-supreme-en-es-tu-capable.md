@@ -30,9 +30,9 @@ La bataille contre le Voyant Suprême exigerait souvent de la ruse !
 
 « Sortilège d'Intégration de la Réincarnation. S'il a véritablement maîtrisé ce sort, sa force dépassera l'entendement. Au fil des éons, je n'ai certainement pas été le premier à fusionner avec l'un de ses avatars. Cela signifie que d'autres ont subi le même sort. Tout ce qu'ils possédaient a été copié par le Voyant Suprême ; si tel est le cas, il doit posséder bien plus d'essences que celles qu'il m'a dérobées ! »
 
-« Il doit en posséder une multitude désormais. Si c'est réellement ainsi, ce sortilège d'Intégration de la Réincarnation est tout simplement prodigieux. Mais si cela était vrai, tous les Grands Empereurs du Continent Astral Immortel ne se battraient-ils pas pour l'obtenir ? »
+« Il doit en posséder une multitude désormais. Si c'est réellement ainsi, ce sortilège d'Intégration de la Réincarnation est tout simplement prodigieux. Mais si cela était vrai, tous les Grands Empyrées du Continent Astral Immortel ne se battraient-ils pas pour l'obtenir ? »
 
-« Si cela était une telle réalité, quel intérêt y aurait-il à cultiver le Dao, à apprendre des sorts ou à comprendre des essences ? Tant que l'on maîtrise ce sortilège, que l'on soit un Grand Empereur, issu du Pays Céleste ou de l'Ancien Pays, tous ne seraient que de simples fourmis ! »
+« Si cela était une telle réalité, quel intérêt y aurait-il à cultiver le Dao, à apprendre des sorts ou à comprendre des essences ? Tant que l'on maîtrise ce sortilège, que l'on soit un Grand Empyrée, issu du Pays Céleste ou de l'Ancien Pays, tous ne seraient que de simples fourmis ! »
 
 « Je suis certain que ce sortilège doit comporter une faille majeure, une faille assez grande pour être fatale. Au-delà de ce défaut, il se pourrait même que ce sort soit incapable de copier réellement les essences ! » Tandis qu'il traversait les étoiles, Wang Lin se remémora son combat contre le Voyant Suprême lorsqu'il utilisait ses essences.
 

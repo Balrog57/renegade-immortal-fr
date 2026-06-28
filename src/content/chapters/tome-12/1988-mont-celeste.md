@@ -18,7 +18,7 @@ Cependant, au moment précis où la paume atteignait sa cible, la terre de cet e
 
 Un rugissement furieux retentit faiblement dans le ciel, semblant provenir de l'Empereur Céleste. Ce cri parut traverser de multiples couches d'espace avant de devenir progressivement plus net, comme si l'Empereur Céleste se précipitait désespérément vers ce lieu.
 
-Pourtant, peu après, le rugissement s'interrompit, remplacé par les voix cristallines de deux fillettes. Il était évident que l'Empereur Céleste avait été stoppé par le Grand Empereur Gemini !
+Pourtant, peu après, le rugissement s'interrompit, remplacé par les voix cristallines de deux fillettes. Il était évident que l'Empereur Céleste avait été stoppé par le Grand Empyrée Gemini !
 
 Le visage de l'Enseignant Impérial était livide et il haletait. Semblant avoir atteint la fin de sa vie, il rugit : « Wang Lin, l'Empereur Céleste est temporairement contenu, mais il est impatient de nous rejoindre. Nous n'avons plus beaucoup de temps ! Nous devons d'abord unir nos forces pour soumettre Ming Dao ! »
 

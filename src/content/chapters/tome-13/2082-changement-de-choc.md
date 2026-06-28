@@ -10,11 +10,11 @@ Au sein du clan céleste, les armées composées des nombreuses sectes utilisèr
 
 Dans la direction du clan Ancien, d'innombrables soldats menés par les trois anciens empereurs arrivèrent également via des réseaux de transfert.
 
-Nul ne savait si cette guerre allait éclater ou non. Tout dépendait de l'identité du camp qui verrait émerger un nouveau Grand Empereur, ou même de quel Grand Empereur parviendrait à atteindre des sommets plus élevés.
+Nul ne savait si cette guerre allait éclater ou non. Tout dépendait de l'identité du camp qui verrait émerger un nouveau Grand Empyrée, ou même de quel Grand Empyrée parviendrait à atteindre des sommets plus élevés.
 
 C'étaient là les conditions déterminantes pour le déclenchement d'un conflit !
 
-Si l'équilibre pouvait être maintenu, tout irait bien. Mais si cet équilibre se rompait, la guerre serait inévitable, car le clan céleste avait déjà pressenti que le Grand Empereur Gu Dao ne pourrait pas quitter le clan Ancien.
+Si l'équilibre pouvait être maintenu, tout irait bien. Mais si cet équilibre se rompait, la guerre serait inévitable, car le clan céleste avait déjà pressenti que le Grand Empyrée Gu Dao ne pourrait pas quitter le clan Ancien.
 
 À moins que le clan Ancien ne battât en retraite, n'osant plus combattre hors de la portée de Gu Dao !
 
@@ -28,29 +28,29 @@ Cependant, une question lui taraudait l'esprit.
 
 « Je me demande à quoi ressemblerait le Royaume Divin Immémorial si je n'avais pas lancé ce plan insensé dans le temple ancestral du clan Gu... » Wang Lin médita silencieusement sur cette pensée pendant un long moment, mais c'était une question sans réponse.
 
-Wang Lin attendit l'ouverture du Royaume Divin Immémorial. Il ne restait plus qu'un mois avant l'événement quand trois rayons de lumière jaillirent du clan Ancien. C'étaient les trois Grands Empereurs du clan Ancien.
+Wang Lin attendit l'ouverture du Royaume Divin Immémorial. Il ne restait plus qu'un mois avant l'événement quand trois rayons de lumière jaillirent du clan Ancien. C'étaient les trois Grands Empyrées du clan Ancien.
 
-Song Tian, Xuan Luo et le mystérieux Grand Empereur Ancien Ji.
+Song Tian, Xuan Luo et le mystérieux Grand Empyrée Ancien Ji.
 
 Les trois éclats de lumière se rapprochèrent instantanément pour prendre la forme de trois silhouettes devant Wang Lin. Song Tian regarda Wang Lin avec une expression complexe. Il joignit les mains en signe de respect envers lui.
 
 « Song Tian salue le Seigneur Wang. »
 
-Le Grand Empereur Ancien Ji resta également silencieux, songeur, avant de joindre respectueusement les mains devant Wang Lin.
+Le Grand Empyrée Ancien Ji resta également silencieux, songeur, avant de joindre respectueusement les mains devant Wang Lin.
 
-Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Astral Immortel n'était plus le Grand Empereur Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
+Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Astral Immortel n'était plus le Grand Empyrée Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
 
-Après avoir été témoins de cette bataille trois siècles plus tôt, ils avaient personnellement interrogé le Grand Empereur Gu Dao. Ils avaient reçu la même réponse que celle qu'ils avaient constatée de leurs propres yeux.
+Après avoir été témoins de cette bataille trois siècles plus tôt, ils avaient personnellement interrogé le Grand Empyrée Gu Dao. Ils avaient reçu la même réponse que celle qu'ils avaient constatée de leurs propres yeux.
 
 Xuan Luo était bien plus âgé qu'autrefois, mais un sourire étirait ses lèvres. Il regarda son ancien disciple et ressentit une pointe de fierté en voyant Wang Lin devenir si puissant.
 
 Il s'apprêtait à joindre les mains avec Song Tian. Après tout, sur le Continent Astral Immortel, la force imposait le respect.
 
-Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et le Grand Empereur Ancien Ji étaient seuls, il n'aurait pas agi ainsi. Mais en présence de Xuan Luo, Wang Lin n'hésita pas à s'incliner devant ce dernier en premier.
+Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et le Grand Empyrée Ancien Ji étaient seuls, il n'aurait pas agi ainsi. Mais en présence de Xuan Luo, Wang Lin n'hésita pas à s'incliner devant ce dernier en premier.
 
 « Wang Lin salue son Maître. »
 
-En voyant cela, Song Tian et le Grand Empereur Ancien Ji furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître ; même quand il le faisait, ce n'était qu'en apparence.
+En voyant cela, Song Tian et le Grand Empyrée Ancien Ji furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître ; même quand il le faisait, ce n'était qu'en apparence.
 
 Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Astral Immortel, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais Dao Ancien.
 
@@ -58,7 +58,7 @@ Wang Lin regarda Xuan Luo, son maître, qui paraissait vieilli. Comment pourrait
 
 Xuan Luo ouvrit la bouche comme pour dire quelque chose, mais finit par sourire et hocha la tête vers Wang Lin.
 
-Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suivants, Song Tian et le Grand Empereur Ancien Ji traitèrent ce dernier différemment. Ils auraient dû être ses égaux, mais ils lui témoignaient désormais une certaine déférence.
+Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suivants, Song Tian et le Grand Empyrée Ancien Ji traitèrent ce dernier différemment. Ils auraient dû être ses égaux, mais ils lui témoignaient désormais une certaine déférence.
 
 Le simple fait que Wang Lin, l'être le plus puissant du Continent Astral Immortel ayant vaincu Gu Dao, l'appelle « Maître », suffisait à tout changer.
 
@@ -88,7 +88,7 @@ Wang Lin fixa la tempête marine. Il avait vécu longtemps au sein du clan Ancie
 
 Autrefois, lors de l'ouverture du Royaume Divin Immémorial, les deux camps envoyaient une multitude de cultivateurs de la Tribulation du Vide pour tester leur chance.
 
-Cependant, ces individus n'étaient pas les plus importants ; les véritables enjeux résidaient dans les Exalts Dorés, les Exalts Célestes et, par-dessus tout, les Empereurs Ascendants.
+Cependant, ces individus n'étaient pas les plus importants ; les véritables enjeux résidaient dans les Exalts Dorés, les Exalts Célestes et, par-dessus tout, les Empyrées Ascendants.
 
 Pourtant, les grondements étaient survenus une semaine en avance... cela signifiait-il qu'un accident surviendrait dans une semaine ? Xuan Luo semblait hésitant.
 
@@ -96,11 +96,11 @@ Wang Lin détourna le regard de la tempête marine. Il se retourna et sentit des
 
 Les jours passèrent. Le deuxième jour, les grondements s'intensifièrent. Le troisième jour, ils devinrent encore plus puissants.
 
-Ces secousses rendirent le monde instable. Song Tian et le Grand Empereur Ancien Ji devinrent sombres et anxieux.
+Ces secousses rendirent le monde instable. Song Tian et le Grand Empyrée Ancien Ji devinrent sombres et anxieux.
 
 À midi du troisième jour, alors qu'il ne restait que douze jours avant l'ouverture du Royaume Divin Immémorial, la voix calme de Wang Lin parvint distinctement aux oreilles de Song Tian et de ses compagnons, malgré le vacarme assourdissant.
 
-« Les Grands Empereurs du clan céleste sont arrivés. »
+« Les Grands Empyrées du clan céleste sont arrivés. »
 
 Peu après, de l'autre côté de la tempête marine, trois rayons de lumière apparurent. Seuls Jiu Di, Wu Feng et Dao Yi étaient présents. Quant à Gemini, elle n'était pas venue ; elle avait choisi de rester au sein du clan céleste.
 
@@ -130,4 +130,4 @@ Simultanément, un gigantesque réseau de transfert apparut derrière Jiu Di et 
 
 À peine étaient-ils apparus que leurs auras semblèrent déstabiliser l'endroit même. Les grondements provenant de la tempête marine devinrent encore plus violents, comme si le monde entier tremblait et était sur le point de s'effondrer. Même des déchirures spatiales commencèrent à apparaître et à disparaître dans la zone.
 
-Cette scène fit changer l'expression des six Grands Empereurs.
+Cette scène fit changer l'expression des six Grands Empyrées.

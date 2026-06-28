@@ -48,9 +48,9 @@ Déjà sous le choc, Li Yunzi cracha une bouchée de sang lorsque cette pression
 
 « Vous... »
 
-« Li Yunzi, êtes-vous venu ici au nom d'Allheaven pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant au Secte Divin Vermillion Bird réclamer l'Empereur Divin ? C'est proprement absurde ! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
+« Li Yunzi, êtes-vous venu ici au nom d'Allheaven pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant au Secte Divine Vermillion Bird réclamer l'Empereur Divin ? C'est proprement absurde ! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
 
-« Cette affaire revient à envoyer quelqu'un au Temple du Céleste du Tonnerre pour exiger le Maître Flamespark. Li Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas le Secte Divin Vermillion Bird. Demain, votre Allheaven en paiera le prix ! »
+« Cette affaire revient à envoyer quelqu'un au Temple du Céleste du Tonnerre pour exiger le Maître Flamespark. Li Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas le Secte Divine Vermillion Bird. Demain, votre Allheaven en paiera le prix ! »
 
 « Ce n'est pas moi qui rends les choses difficiles. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin ! » Wang Lin ne laissa aucune chance à Li Yunzi ; il lança son assaut comme un coup de tonnerre !
 
@@ -62,7 +62,7 @@ Les yeux de la belle femme du Secte des Cadavres s'illuminèrent et elle sourit.
 
 Li Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme du Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 
-Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait ses ongles, n'accordant aucune attention à Li Yunzi. Nous étions dans le Secte Divin Vermillion Bird ; Li Yunzi ne pouvait donc pas échapper à son emprise.
+Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait ses ongles, n'accordant aucune attention à Li Yunzi. Nous étions dans le Secte Divine Vermillion Bird ; Li Yunzi ne pouvait donc pas échapper à son emprise.
 
 Si cet homme n'avait pas formulé une requête aussi insensée, Wang Lin n'en serait pas arrivé là. Mais désormais, il devait donner une leçon à Li Yunzi. Et non seulement lui, mais même les quatre anciens derrière lui le fixaient d'un regard glacial.
 
@@ -86,7 +86,7 @@ Wang Lin n'osait même pas décliner l'invitation. Li Yunzi en était parfaiteme
 
 Si ce n'était pas pour Qing Shui, Wang Lin serait déjà devenu son pantin. Mais aujourd'hui, il devait subir l'humiliation de s'incliner devant lui et de devoir justifier ses propos. Comment pouvait-il supporter cela ?
 
-Pourtant, s'il ne le supportait pas, il mourrait sans aucun doute dans le Secte Divin Vermillion Bird !
+Pourtant, s'il ne le supportait pas, il mourrait sans aucun doute dans le Secte Divine Vermillion Bird !
 
 Insulter l'Empereur Divin... Ces quatre mots suffisaient à lui interdire toute sortie des Quatre Sectes Divins...
 

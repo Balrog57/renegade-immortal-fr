@@ -104,7 +104,7 @@ Les neuf chants et les trois signes étaient apparus sur le corps de Wang Lin lo
 
 Dans le palais du Dao Antique, ils étaient apparus une seconde fois. Les neuf chants étaient là, mais l'un des trois signes manquait toujours.
 
-Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Monde d'un Seul Dao du Grand Empereur Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois !
+Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Monde d'un Seul Dao du Grand Empyrée Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois !
 
 Pourtant, cette troisième apparition ne comportait toujours que les neuf chants et manquait encore le troisième signe. C'était comme s'il manquait quelque chose, une pièce maîtresse indispensable !
 
@@ -132,7 +132,7 @@ Le son atteignit le clan Céleste, et une fissure apparut également sur la stat
 
 Une énergie infinie jaillit de la terre du clan Antique et prit la forme d'une silhouette. C'était l'Ancêtre Antique ! Dans le clan Céleste, une énergie infinie jaillit également du sol pour condenser une seconde figure : l'Ancêtre Céleste.
 
-Ces deux silhouettes ne pouvaient être perçues par les mortels — seuls les Grands Empereurs pouvaient les ressentir.
+Ces deux silhouettes ne pouvaient être perçues par les mortels — seuls les Grands Empyrées pouvaient les ressentir.
 
 Dans la vaste cuvette, une troisième silhouette apparut soudainement. Cette figure surpassait à la fois l'Ancêtre Céleste et l'Ancêtre Antique alors qu'elle s'élevait vers le ciel !
 

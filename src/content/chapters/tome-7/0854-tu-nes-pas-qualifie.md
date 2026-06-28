@@ -46,7 +46,7 @@ Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il levait la main droi
 
 Ce sort le plus puissant, Invoque le Vent, fut utilisé une fois de plus. Le vent noir était encore plus puissant cette fois-ci, formant deux dragons noirs devant Wang Lin !
 
-Avant d'atteindre le stade du Scryer du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de cultivation, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial !
+Avant d'atteindre le stade du Scruteur du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de cultivation, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial !
 
 Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers Blood God.
 

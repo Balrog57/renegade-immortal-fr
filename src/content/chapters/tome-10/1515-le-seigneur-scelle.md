@@ -90,7 +90,7 @@ Simultanément, il leva sa main gauche et pointa l'image distordue. D'un mot, le
 
 Des grondements tonitruants retentirent et une force inimaginable s'engouffra dans l'âme originelle en lambeaux du Daoïste Water. Sa main droite s'effondra et la puissance frappa sa tête, effaçant son âme ! Un cri misérable déchira l'air !
 
-Le Daoïste Water, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer Nuageuse, était mort ! !
+Le Daoïste Water, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divinee et cultivateur de la troisième étape du Système Stellaire de la Mer Nuageuse, était mort ! !
 
 Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens ; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut stupéfait en l'entendant !
 
@@ -118,7 +118,7 @@ Ces ondes de rugissements balayèrent les restes de la mort sanglante du Daoïst
 
 « Les cultivateurs de la Secte Démoniaque saluent le Seigneur du Royaume Scellé ! » Les membres de la Secte Démoniaque marquèrent un temps d'arrêt, puis s'inclinèrent avec leur Maître de Secte.
 
-« Les cultivateurs de la Secte Divine saluent le Seigneur du Royaume Scellé ! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divine joignirent les mains, l'expression complexe.
+« Les cultivateurs de la Secte Divinee saluent le Seigneur du Royaume Scellé ! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divinee joignirent les mains, l'expression complexe.
 
 « Les cultivateurs de la Secte Fantôme de la Mer Nuageuse saluent le Seigneur du Royaume Scellé ! » L'estimé Grand Vide de la Secte Fantôme joignit les mains à son tour.
 

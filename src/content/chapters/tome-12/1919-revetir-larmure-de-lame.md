@@ -20,7 +20,7 @@ La tempête se dissipa progressivement, permettant à l'ancêtre du Secte du Dao
 
 Wang Lin regarda l'ancêtre avec une expression solennelle. Ce coup de poing contenait neuf sorts, mais il n'avait pu en bloquer que six. Ses trois pas successifs avaient servi à neutraliser les trois derniers.
 
-« Est-ce là la puissance des Grands Empereurs Célestes ? Redoutable ! » Les yeux de Wang Lin brillèrent. Il désirait affronter un Exalté Empyréen !
+« Est-ce là la puissance des Grands Empyrées ? Redoutable ! » Les yeux de Wang Lin brillèrent. Il désirait affronter un Exalté Empyréen !
 
 « Ainsi, c'est donc ainsi que combattent les cultivateurs de rang Exalté Empyréen... » En repensant au coup de poing de l'ancêtre, le regard de Wang Lin s'illumina davantage.
 
@@ -88,11 +88,11 @@ Plus important encore, le nombre de cultivateurs capables d'atteindre le rang d'
 
 Par conséquent, l'ancêtre du Secte du Dao Démoniaque n'avait jamais entendu parler d'un Exalté Empyréen ayant également reçu la haute reconnaissance d'une âme de continent.
 
-À ses yeux, la probabilité d'un tel événement était moindre que celle de voir un Ascendant Empyréen apparaître, et à peine supérieure à la naissance d'un nouveau Grand Empereur Céleste.
+À ses yeux, la probabilité d'un tel événement était moindre que celle de voir un Ascendant Empyréen apparaître, et à peine supérieure à la naissance d'un nouveau Grand Empyrée.
 
 « Endurer deux de mes coups prouve qu'il est qualifié pour être un Exalté Empyréen. Et posséder une telle reconnaissance du Taureau Céleste... ceci... » L'ancêtre laissa transparaître une émotion qu'il avait contenue depuis longtemps.
 
-« Tout Grand Empereur Céleste qui verrait cet homme voudrait le prendre sous son aile... Je me demande quel niveau de cultivation il atteindra avec le pouvoir de l'armure de l'âme ! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
+« Tout Grand Empyrée qui verrait cet homme voudrait le prendre sous son aile... Je me demande quel niveau de cultivation il atteindra avec le pouvoir de l'armure de l'âme ! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
 
 Dès que ce coup fut projeté, le poing contenant ses 27 sorts créa un trou noir gigantesque entre lui et Wang Lin. Ce gouffre semblait tout dévorer, engloutissant les ruines du Secte du Dao Démoniaque.
 

@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1718 - Reincarnation Integration
 slug: integration-de-la-reincarnation
 ---
-Après un long moment, Qing Lin fronça les sourcils. Il retira son sens divin de l'âme de l'avatar de l'All-Seer pour le rendre à Wang Lin.
+Après un long moment, Qing Lin fronça les sourcils. Il retira son sens divin de l'âme de l'avatar du Tout-Voyant pour le rendre à Wang Lin.
 
 « Il n'y a rien d'anormal... Cette âme ne diffère pas des autres âmes d'avatars, et elle est très faible. Elle pourrait mourir à tout moment. »
 
@@ -14,13 +14,13 @@ Après un long moment, Qing Lin fronça les sourcils. Il retira son sens divin d
 
 Qing Lin hocha la tête.
 
-Permettre au sens divin d'autrui de pénétrer son corps alors qu'il était totalement immergé dans la fusion avec l'âme de l'avatar de l'All-Seer était extrêmement dangereux. Si l'autre partie avait des intentions malveillantes, cela nuirait gravement à Wang Lin.
+Permettre au sens divin d'autrui de pénétrer son corps alors qu'il était totalement immergé dans la fusion avec l'âme de l'avatar du Tout-Voyant était extrêmement dangereux. Si l'autre partie avait des intentions malveillantes, cela nuirait gravement à Wang Lin.
 
 Cependant, Wang Lin faisait confiance à Qing Lin. Bien qu'ils n'aient pas passé beaucoup de temps ensemble, tout ce qui s'était accompli entre eux suffisait à obtenir sa confiance.
 
 Qing Lin fut profondément ému par les paroles de Wang Lin. Il le comprenait et savait combien Wang Lin était prudent. Entendre Wang Lin proposer une telle chose prouvait l'étendue de sa confiance envers lui.
 
-Wang Lin ne dit rien de plus et s'assit face à Qing Lin. Devant lui se trouvait l'âme de l'avatar de l'All-Seer. Il ferma les yeux et son esprit pénétra l'âme de l'avatar pour entamer la fusion.
+Wang Lin ne dit rien de plus et s'assit face à Qing Lin. Devant lui se trouvait l'âme de l'avatar du Tout-Voyant. Il ferma les yeux et son esprit pénétra l'âme de l'avatar pour entamer la fusion.
 
 Sur le côté, les yeux de Qing Lin brillèrent tandis qu'il chassait toute distraction de son esprit. Son sens divin pénétra Wang Lin et sonda attentivement les environs. Ce faisant, Qing Lin trembla, ses yeux remplis d'incrédulité.
 
@@ -36,13 +36,13 @@ Le visage de Qing Lin pâlit instantanément et il recula inconsciemment de quel
 
 « Je savais qu'il possédait le corps d'un Dieu Ancien, mais l'aura qui émane de lui ne provient pas d'un Dieu Ancien !! Quel genre d'aura est-ce là ? C'est terrifiant !! »
 
-Après avoir réfléchi un instant, Qing Lin força son cœur à s'apaiser et commença à observer Wang Lin. C'était également le moment crucial de la fusion entre Wang Lin et l'âme de l'avatar de l'All-Seer.
+Après avoir réfléchi un instant, Qing Lin força son cœur à s'apaiser et commença à observer Wang Lin. C'était également le moment crucial de la fusion entre Wang Lin et l'âme de l'avatar du Tout-Voyant.
 
 Alors qu'il observait, l'expression de Qing Lin changea soudainement. Il sentit vaguement que chacune des sept essences à l'intérieur de Wang Lin, en particulier l'essence de restriction, avait détaché une parcelle qui commençait à opérer de manière autonome, hors du contrôle de Wang Lin, comme si elles étaient manipulées par une force étrange.
 
 Wang Lin ne remarqua rien de tout cela, mais ressentit simplement un malaise.
 
-Alors qu'il fusionnait avec l'âme de l'All-Seer, l'étincelle d'essence de restriction tourbillonnait de plus en plus vite à l'intérieur de lui !
+Alors qu'il fusionnait avec l'âme du Tout-Voyant, l'étincelle d'essence de restriction tourbillonnait de plus en plus vite à l'intérieur de lui !
 
 « Quelque chose ne va pas ! » Plus Qing Lin observait, plus la situation lui semblait étrange. Sans hésiter, il pointa du doigt l'espace entre les sourcils de Wang Lin.
 
@@ -58,7 +58,7 @@ Ce système stellaire était la Rivière des Appels !
 
 Une lueur froide passa dans ses yeux et Qing Lin suivit le fil.
 
-« Je veux voir si c'est le corps original de l'All-Seer qui cause ce problème ou quelqu'un d'autre ! » L'expression de Qing Lin était sombre alors qu'il poursuivait cette ligne vers l'infini.
+« Je veux voir si c'est le corps original du Tout-Voyant qui cause ce problème ou quelqu'un d'autre ! » L'expression de Qing Lin était sombre alors qu'il poursuivait cette ligne vers l'infini.
 
 Environ une demi-heure plus tard, après avoir poursuivi sa course, il fut stoppé par un éclat de lumière aux sept couleurs qui brillait là où le fil se prolongeait.
 
@@ -76,7 +76,7 @@ Dans le Royaume Céleste, sur la montagne enneigée, le mince fil entre les main
 
 Wang Lin fut également stupéfait, et le sort d'arrêt se dissipa. Il se sépara de la fusion et ouvrit les yeux.
 
-Qing Lin dit lentement : « Je n'ai jamais vu l'All-Seer, mais j'ai vu une lumière aux sept couleurs ! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière des Appels sous l'effet d'une force mystérieuse. Je l'ai poursuivie, mais j'ai été intercepté par une lame aux sept couleurs. »
+Qing Lin dit lentement : « Je n'ai jamais vu le Tout-Voyant, mais j'ai vu une lumière aux sept couleurs ! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière des Appels sous l'effet d'une force mystérieuse. Je l'ai poursuivie, mais j'ai été intercepté par une lame aux sept couleurs. »
 
 « La Rivière des Appels... » Un éclat de froideur passa dans les yeux de Wang Lin.
 
@@ -118,4 +118,4 @@ Wang Lin réfléchit en silence.
 
 L'esprit de Wang Lin trembla et tout ce qui l'entourait fut enveloppé d'une lumière bleue. Il vit les étoiles défiler devant lui au sein de cette clarté. À cet instant, il aperçut la Rivière des Appels et le météore flottant dans la Rivière !
 
-Et l'All-Seer, assis à l'intérieur du météore, ouvrit soudainement les yeux, frappé de stupeur ! Le regard de Wang Lin se superposa à celui de l'All-Seer à cet instant précis !
+Et le Tout-Voyant, assis à l'intérieur du météore, ouvrit soudainement les yeux, frappé de stupeur ! Le regard de Wang Lin se superposa à celui du Tout-Voyant à cet instant précis !

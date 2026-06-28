@@ -8,7 +8,7 @@ slug: bataille-pour-la-suprematie-du-continent-astral-immortel
 ---
 Chapitre 2062 - Bataille pour la suprématie du Continent Astral Immortel !
 
-Hormis Wang Lin lui-même, nul ne savait combien de ponts il avait franchis. Même le Grand Empereur Gu Dao n'était pas en mesure de le ressentir avec précision.
+Hormis Wang Lin lui-même, nul ne savait combien de ponts il avait franchis. Même le Grand Empyrée Gu Dao n'était pas en mesure de le ressentir avec précision.
 
 Il savait seulement qu'après l'entrée de Wang Lin dans les Ponts de l'Écrasement Céleste, celui-ci s'était avancé sur le cinquième pont ! Quant à savoir si Wang Lin avait franchi ou non le sixième pont, il l'ignorait, car sa propre limite était le cinquième.
 
@@ -112,19 +112,19 @@ En regardant Gu Dao à travers le brouillard, Wang Lin sembla comprendre quelque
 
 Ce serait un combat pour la suprématie absolue du Continent Astral Immortel depuis l'Ancêtre Céleste et l'Ancêtre Ancien ! Un duel entre les deux êtres au sommet de l'existence !
 
-Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts de l'Écrasement Céleste il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empereurs !
+Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts de l'Écrasement Céleste il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empyrées !
 
 Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa cultivation n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas de l'Écrasement Céleste. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées !
 
 Il possédait également cet avatar dans le vide. Cela faisait des centaines d'années qu'il l'avait obtenu, et il avait commencé à croître. Une fois fusionné avec lui, Wang Lin pourrait déchaîner une puissance terrifiante.
 
-Alors que la brume s'agitait autour de Gu Dao et que les éclats de tonnerre retentissaient, le Grand Empereur Gu Dao fit un pas en avant. Le brouillard environnant rugit et s'étendit jusqu'à former une gigantesque créature de brume dont le cri secoua les cieux.
+Alors que la brume s'agitait autour de Gu Dao et que les éclats de tonnerre retentissaient, le Grand Empyrée Gu Dao fit un pas en avant. Le brouillard environnant rugit et s'étendit jusqu'à former une gigantesque créature de brume dont le cri secoua les cieux.
 
 Cette bête de brume était étrange, dotée de neuf têtes. Elle ressemblait étrangement à la bête Ji Qiong qu'il avait vue dans la Terre de l'Ancien Dieu !
 
 Ses neuf têtes rugissaient avec des expressions féroces, tout en dégageant une aura ancestrale. On aurait dit que cette créature possédait une âme et existait depuis des éternités.
 
-Depuis le cœur de la bête de brume, le Grand Empereur Gu Dao pointa un doigt vers l'avant. Ce doigt était enveloppé de brouillard, mais on pouvait y déceler un éclat glacial.
+Depuis le cœur de la bête de brume, le Grand Empyrée Gu Dao pointa un doigt vers l'avant. Ce doigt était enveloppé de brouillard, mais on pouvait y déceler un éclat glacial.
 
 Soudain, le monde entier bascula sous les yeux de Wang Lin. Le ciel et la terre se trouvèrent parcourus d'innombrables lignes fines. L'univers entier semblait désormais régi par les Lois.
 

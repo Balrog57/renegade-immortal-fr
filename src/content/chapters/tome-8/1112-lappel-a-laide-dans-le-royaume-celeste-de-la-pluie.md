@@ -24,7 +24,7 @@ Le rayon de lumière lutta un instant avant de cesser toute résistance. Il se m
 
 Tenant la lance, Tuo Sen afficha un sourire sanguinaire et la lança avec une férocité sans nom ! Une explosion qui fit trembler les cieux se produisit lorsque la Lance de l’Extermination Divine perça le ciel de ce monde rouge sang. Le firmament sembla sur le point de s'effondrer !
 
-Au moment où la lance transperça le monde de sang, elle accéléra encore davantage, traversant de nombreux lieux du Pays de l'Ancien Dieu jusqu'à atteindre l'abîme ! Sa vitesse était telle et son aura si terrifiante qu'elle aurait pu choquer même des cultivateurs au stade Nirvana Shatterer. Apparaissant comme un éclair rouge, la lance fonça tel un dragon vers les cultivateurs qui combattaient les bêtes féroces !
+Au moment où la lance transperça le monde de sang, elle accéléra encore davantage, traversant de nombreux lieux du Pays de l'Ancien Dieu jusqu'à atteindre l'abîme ! Sa vitesse était telle et son aura si terrifiante qu'elle aurait pu choquer même des cultivateurs au stade Briseur du Nirvana. Apparaissant comme un éclair rouge, la lance fonça tel un dragon vers les cultivateurs qui combattaient les bêtes féroces !
 
 Tous ces cultivateurs tremblèrent à l'instant même où la Lance de l’Extermination Divine apparut. Des cris de détresse résonnèrent avant qu'ils n'aient le temps de réagir.
 
@@ -50,9 +50,9 @@ Même la Secte des Corps subit un coup terrible. Tous les cercueils s'écroulèr
 
 Les forces de l'Alliance furent lourdement touchées. La Lance de l’Extermination Divine faucha les foules, et des cris déchirants résonnèrent. Quiconque s'approchait était instantanément tué !
 
-Parmi eux se trouvait une vieille femme au stade Nirvana Shatterer du côté de l'Alliance !
+Parmi eux se trouvait une vieille femme au stade Briseur du Nirvana du côté de l'Alliance !
 
-Celle-ci pensait pouvoir stopper la lance un instant grâce à sa cultivation de début de stade Nirvana Shatterer en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
+Celle-ci pensait pouvoir stopper la lance un instant grâce à sa cultivation de début de stade Briseur du Nirvana en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
 
 Les pupilles de Master Flamespark se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Corps envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine !
 

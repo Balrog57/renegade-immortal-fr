@@ -22,7 +22,7 @@ Wang Lin déploya prudemment son sens divin et s'envola vers l'avant. Il se rapp
 
 « Devrais-je t'appeler Maître Démon Xu Mu ou Wang Lin du Système Stellaire de l'Alliance ? » Maître Flamespark se retourna et fixa calmement Wang Lin. En posant son regard sur lui, il parut quelque peu surpris.
 
-« Scryer du Nirvana ? Bien, très bien ! »
+« Scruteur du Nirvana ? Bien, très bien ! »
 
 L'expression de Wang Lin resta impassible. Il ne paniqua pas lorsqu'on révéla son identité et répondit avec calme : « Xu Mu ou Wang Lin, peu importe. Je ne pense pas que Senior m'ait convoqué ici uniquement pour connaître mon véritable nom. »
 
@@ -30,7 +30,7 @@ Maître Flamespark regarda Wang Lin et esquissa un sourire qui laissait transpar
 
 Wang Lin réfléchit silencieusement un instant avant de répondre lentement : « La force du Junior est dérisoire ; même si je participe, cela ne changera guère la donne. »
 
-« Un cultivateur Scryer du Nirvana comme toi ose prétendre que sa force est dérisoire ? » Maître Flamespark éclata de rire, mais une lueur de froideur passa dans ses yeux.
+« Un cultivateur Scruteur du Nirvana comme toi ose prétendre que sa force est dérisoire ? » Maître Flamespark éclata de rire, mais une lueur de froideur passa dans ses yeux.
 
 Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maître Flamespark me valorise ainsi, alors je participerai à la guerre ! » Wang Lin avait déjà pris cette décision en son for intérieur depuis longtemps. Puisqu'il était venu pour le concours des 108 titres célestes, il serait inévitablement entraîné dans l'affrontement contre le Système Stellaire de l'Alliance.
 

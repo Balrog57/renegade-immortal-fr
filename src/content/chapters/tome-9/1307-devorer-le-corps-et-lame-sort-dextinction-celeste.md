@@ -98,7 +98,7 @@ C'était un combat entre deux races différentes, où seule l'une pouvait surviv
 
 Les habitants du Système Stellaire Antique étaient animés par une intention meurtrière monstrueuse. Leurs yeux étaient impitoyables et cruels alors qu'ils chargeaient Wang Lin !
 
-Ces cultivateurs du Royaume Extérieur possédaient des niveaux de cultivation variés. Le plus bas était celui de Purificateur Nirvana, et le plus élevé, celui de Briseur Nirvana au sommet !
+Ces cultivateurs du Royaume Extérieur possédaient des niveaux de cultivation variés. Le plus bas était celui de Purificateur du Nirvana, et le plus élevé, celui de Briseur du Nirvana au sommet !
 
 Des centaines de cultivateurs convergèrent !
 

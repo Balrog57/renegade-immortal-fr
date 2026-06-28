@@ -22,7 +22,7 @@ L'Instructeur Impérial Shang Xuandao regarda Wang Lin avec profondeur et prit l
 
 « Le sacrifice de sang est terminé. Il est maintenant temps de passer à la dernière étape de la cérémonie d'investiture. Wang Lin, chacun ici présent a le droit de te défier, mais seulement trois fois. Après ces trois défis, l'Empereur Céleste t'accordera ton titre ! »
 
-Alors que les paroles de l'Instructeur Impérial résonnaient, les trois ancêtres des quatre demeures levèrent tous la tête. C'étaient des hommes âgés, et tous étaient des Empereurs Ascendants !
+Alors que les paroles de l'Instructeur Impérial résonnaient, les trois ancêtres des quatre demeures levèrent tous la tête. C'étaient des hommes âgés, et tous étaient des Empyrées Ascendants !
 
 Un homme vêtu d'une robe rouge s'élança dans le ciel en un éclair. Il joignit les mains à mille pieds de Wang Lin.
 

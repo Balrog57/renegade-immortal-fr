@@ -10,7 +10,7 @@ La vaste onde sonore résonna à travers le monde telle une vague furieuse. L'é
 
 « Écartez-vous ! »
 
-C'était un cri de survie, le rugissement de chaque cultivateur présent. Ce son était semblable à une épée acérée capable de tout transpercer. Le hurlement de plus de cent cultivateurs aurait fait trembler le cœur d'un expert du Nirvana Scryer.
+C'était un cri de survie, le rugissement de chaque cultivateur présent. Ce son était semblable à une épée acérée capable de tout transpercer. Le hurlement de plus de cent cultivateurs aurait fait trembler le cœur d'un expert du Scruteur du Nirvana.
 
 « Écartez-vous !!! » L'onde sonore venait à peine de se dissiper qu'une explosion encore plus puissante surgit. Cette vague poursuivit la précédente, créant un élan plus stupéfiant encore.
 
@@ -38,7 +38,7 @@ Bien qu'ils aient déjà vu des gens choisir l'autodestruction pour blesser l'en
 
 L'expérience précédente avait laissé une trace de choc ineffaçable dans leurs cœurs !
 
-Si cela avait été tout, ce ne serait pas si effrayant, mais parmi ceux qui chargeaient se trouvaient les deux cultivateurs Corporeal Yang et Wang Lin !
+Si cela avait été tout, ce ne serait pas si effrayant, mais parmi ceux qui chargeaient se trouvaient les deux cultivateurs Yang Corporel et Wang Lin !
 
 Leur présence, conjuguée à la charge de la foule, fit naître une terreur dans leurs cœurs déjà hésitants, surtout après avoir vu Wang Lin tuer l'un d'eux avec une telle facilité !
 
@@ -80,7 +80,7 @@ Un bruit de craquement retentit aussitôt, puis le corps du messager se fragment
 
 « Je vous en prie, ne me tuez pas, j'utiliserai un trésor puissant... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite une bouchée d'énergie originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
 
-À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Corporeal Yang — soutenus par certains Illusions Yin — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
+À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains Illusions Yin — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 
 C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la poitrine de l'un des messagers. Ses yeux s'éteignirent et son âme originelle s'échappa pour fuir.
 
@@ -112,7 +112,7 @@ L'effondrement des bords de la formation se propageait rapidement et, en un clin
 
 Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa : « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je l'aurais détruite pour disperser la destination. De cette façon, j'aurais pu éviter d'être transféré au Temple Céleste du Tonnerre ! »
 
-Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Corporeal Yang qui s'était transformé en rayon argenté cria : « Aîné, dites-nous votre nom ! Cette grande dette ne sera jamais oubliée ! »
+Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Yang Corporel qui s'était transformé en rayon argenté cria : « Aîné, dites-nous votre nom ! Cette grande dette ne sera jamais oubliée ! »
 
 « Xu Mu... » Wang Lin disparut avec le faisceau de lumière. Les yeux de Xi Zifeng s'illuminèrent et elle pensa dans son cœur : « Xu Mu... »
 

@@ -8,7 +8,7 @@ slug: empli-de-rage-7
 ---
 Alors que Wang Lin traversait le palais entouré de milliers de personnes, un soupir provenant de son maître, Xuan Luo, résonna. Quelques instants auparavant, dans une montagne éloignée de la cité impériale de l'Ancient Dao, quelque chose d'autre se passait.
 
-L'intérieur de la montagne était totalement creux, mais de l'extérieur, même des Grands Empereurs n'auraient rien remarqué. À l'intérieur se trouvait une immense formation, si extrêmement complexe qu'elle en troublait la vue pour quiconque tenterait de l'observer.
+L'intérieur de la montagne était totalement creux, mais de l'extérieur, même des Grands Empyrées n'auraient rien remarqué. À l'intérieur se trouvait une immense formation, si extrêmement complexe qu'elle en troublait la vue pour quiconque tenterait de l'observer.
 
 La formation émettait une lumière blanche et scintillait sans cesse. Elle dégageait une sensation étrange, et au centre siégeait une silhouette floue enveloppée d'une lumière aux sept couleurs. La silhouette forgeait des sceaux et les appliquait sur la formation.
 
@@ -28,7 +28,7 @@ Au même instant, un rayon de gaz gris apparut de nulle part et fusionna avec le
 
 « Le corps gris formé dans le monde des grottes est désormais complet... » murmura la silhouette floue d'une voix éraillée.
 
-Ce gaz gris était ce rayon de lumière fantomatique qui s'était manifesté lorsque Wang Lin avait quitté le monde des grottes. Même le Grand Empereur Xuan Luo ne l'avait pas détecté !
+Ce gaz gris était ce rayon de lumière fantomatique qui s'était manifesté lorsque Wang Lin avait quitté le monde des grottes. Même le Grand Empyrée Xuan Luo ne l'avait pas détecté !
 
 « Malheureusement, je souffre de... limitations et ne peux absorber que l'aura de mort issue du massacre de Wang Lin. Sinon, si ce vieil homme agissait personnellement, je pourrais rassembler la quantité d'aura de mort dont j'ai besoin en peu de temps afin de... » La silhouette marqua deux pauses en parlant. C'était comme s'il était entravé par quelque chose et qu'il craignait même l'objectif qu'il tentait d'atteindre avec cette aura, au point de ne vouloir le nommer clairement.
 
@@ -80,7 +80,7 @@ L'Empereur de l'Ancient Dao trembla et cracha du sang en reculant de plusieurs p
 
 Il allait reprendre la parole, mais face à l'intention meurtrière et à la rage dans les yeux de Xuan Luo, il avala ses mots. Son expression était sombre, mais il n'osa plus rien dire.
 
-« Grand Empereur Xuan Luo... » Le père de l'Empereur de l'Ancient Dao, le vieil homme qui avait perdu son bras droit, soupira et s'inclina devant Xuan Luo.
+« Grand Empyrée Xuan Luo... » Le père de l'Empereur de l'Ancient Dao, le vieil homme qui avait perdu son bras droit, soupira et s'inclina devant Xuan Luo.
 
 « Cet enfant manque de respect au pouvoir impérial, mais je crois que le vénérable gardien de l'Ancient Dao traitera cette affaire avec équité. Après tout, cet individu a tué des dizaines de milliers de puissants de mon Ancient Dao. Il a mis notre destin en péril, et cela est impardonnable ! » Le vieil homme était bien plus avisé que l'empereur actuel. Ses paroles mettaient l'accent sur le fait que Wang Lin avait massacré une multitude de personnes.
 

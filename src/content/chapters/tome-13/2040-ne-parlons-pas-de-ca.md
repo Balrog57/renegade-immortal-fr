@@ -8,7 +8,7 @@ slug: ne-parlons-pas-de-ca
 ---
 Chapitre 2040 - Ne parlons pas de ça !
 
-Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Empereur, le Grand Empereur Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
+Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Empereur, le Grand Empyrée Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
 
 « C'est donc bien le Royaume Divin Immemorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immemorial ne devrait pas se produire si tôt. Cela signifie que... »
 
@@ -18,9 +18,9 @@ Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la 
 
 « Une ouverture complète !! » Une excitation contenue fit briller les yeux de Jiu Di.
 
-« Si la porte s'ouvre totalement, alors il pourrait exister un moyen pour les Grands Empereurs de transcender leur niveau actuel et d'atteindre celui de l'Ancêtre Céleste ! »
+« Si la porte s'ouvre totalement, alors il pourrait exister un moyen pour les Grands Empyrées de transcender leur niveau actuel et d'atteindre celui de l'Ancêtre Céleste ! »
 
-Au sein du Clan Céleste, dans le Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empereur Dao Yi était resté en retraite prolongée, rendant la population de ce secteur clairsemée.
+Au sein du Clan Céleste, dans le Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empyrée Dao Yi était resté en retraite prolongée, rendant la population de ce secteur clairsemée.
 
 Pourtant, à cet instant, un rugissement retentit au Secte Dao Yi. Tandis que l'écho résonnait, l'un des monts s'effondra et une silhouette enveloppée de brumes grises en jaillit. Cette figure, d'une allure féroce, fixait l'horizon.
 
@@ -32,7 +32,7 @@ Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène ; il se tena
 
 Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, où le fou demeurait immobile.
 
-Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immemorial. Les Grands Empereurs des clans Anciens Ji et Shi observaient tous deux la scène.
+Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immemorial. Les Grands Empyrées des clans Anciens Ji et Shi observaient tous deux la scène.
 
 Quant à Xuan Luo, il avait déjà pressenti une anomalie en observant la montagne désertée où Wang Lin s'était rendu, ainsi que les perturbations célestes. Même l'Impératrice Sainte, qui était retournée sous le palais, en sortit de nouveau. Elle se tint aux côtés de Xuan Luo et contempla le ciel avec stupeur.
 
@@ -82,7 +82,7 @@ Au moment de son assaut, une scène se déploya. Elle ébranla le cœur de tous 
 
 L'océan infini laissa échapper un grondement puissant qui résonna sur tout le Continent Astral Immortel, puis la vaste mer commença à s'élever lentement ! C'était comme si une main gigantesque utilisait un sortilège colossal pour soulever l'immensité des eaux !
 
-Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empereur. Même le Grand Empereur Gu Dao ne pouvait en être capable.
+Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empyrée. Même le Grand Empyrée Gu Dao ne pouvait en être capable.
 
 Alors que la mer montait, un gouffre abyssal fut révélé. Ce précipice, parsemé d'innombrables cavités et irrégularités, était resté caché sous les eaux, privé de lumière solaire depuis des éons !
 

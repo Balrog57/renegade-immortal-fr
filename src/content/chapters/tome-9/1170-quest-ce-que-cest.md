@@ -8,11 +8,11 @@ slug: quest-ce-que-cest
 ---
 Chapitre 1170 - Qu'est-ce que c'est ?
 
-Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade de la Scryer du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Nirvana Cleanser, et ils se tenaient dans une position étrange.
+Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade de la Scryer du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana, et ils se tenaient dans une position étrange.
 
 Tandis que l'homme en vert parlait, ils se déplacèrent sur le côté pour encercler Wang Lin.
 
-Cependant, alors que Wang Lin portait son regard sur eux, seul l'homme en vert demeura calme. Les pupilles des deux cultivateurs du Nirvana Cleanser se rétractèrent, révélant la tension et l'effroi.
+Cependant, alors que Wang Lin portait son regard sur eux, seul l'homme en vert demeura calme. Les pupilles des deux cultivateurs du Purificateur du Nirvana se rétractèrent, révélant la tension et l'effroi.
 
 Après avoir détourné le regard, Wang Lin ne daigna même pas regarder l'homme en vert et se dirigea vers le vieil homme assis sur le côté. L'homme d'âge moyen qui marchandait avec lui était déjà parti. Non seulement lui, mais tous les cultivateurs environnants avaient remarqué que quelque chose n'allait pas et s'étaient dispersés.
 
@@ -26,7 +26,7 @@ Les yeux de Wang Lin s'illuminèrent tandis que ses lèvres remuaient pour envoy
 
 Le vieil homme fut surpris un instant et observa Wang Lin longuement. Il afficha alors une expression de perplexité.
 
-La main droite de Wang Lin s'étira et son espace de stockage s'ouvrit. Il y plongea la main et en sortit un sac de rangement. Bien que les cultivateurs du Nirvana Cleanser n'aient pas besoin de sacs de rangement, ils en utilisaient toujours lors des échanges par souci de discrétion.
+La main droite de Wang Lin s'étira et son espace de stockage s'ouvrit. Il y plongea la main et en sortit un sac de rangement. Bien que les cultivateurs du Purificateur du Nirvana n'aient pas besoin de sacs de rangement, ils en utilisaient toujours lors des échanges par souci de discrétion.
 
 Il balaya le sac de son sens divin et le lança au vieil homme. Puis Wang Lin dit calmement : « Ceci est un acompte. »
 
@@ -44,7 +44,7 @@ Les yeux de Yang Yu s'illuminèrent et il dit : « Vous avez du cran. Mais vous 
 
 « Faites sortir votre seigneur pour qu'il me parle. » Bien que l'expression de Wang Lin fût calme, ses paroles étaient glaciales. Lorsqu'elles atteignirent leurs oreilles, elles résonnèrent comme un coup de tonnerre.
 
-Les expressions des deux cultivateurs du Nirvana Cleanser au stade initial changèrent radicalement. Les pupilles de Yang Yu se rétractèrent et il s'apprêta à parler.
+Les expressions des deux cultivateurs du Purificateur du Nirvana au stade initial changèrent radicalement. Les pupilles de Yang Yu se rétractèrent et il s'apprêta à parler.
 
 Cependant, à cet instant précis, il bougea comme l'éclair et arriva immédiatement aux côtés du cultivateur situé à gauche. Ce dernier, qui était resté sur ses gardes, recula promptement tout en formant un sceau de sa main. Une fleur rouge gigantesque apparut soudainement, s'épanouissant sur plus de cent pieds de large. Son centre s'ouvrit, révélant une gueule pleine de dents qui tentait d'engloutir Wang Lin.
 

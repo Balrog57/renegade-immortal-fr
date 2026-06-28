@@ -12,17 +12,17 @@ Lorsque Wang Lin ouvrit les yeux dans la chambre secrète, la silhouette envelop
 
 « Cela fait... 400 ans... »
 
-Au sein du clan céleste, les 72 âmes s'étaient calmées après avoir hurlé et imploré le ciel. Cependant, seul le Grand Empereur Jiu Di savait ce qui s'était passé, et son cœur était troublé. Il cultivait, mais il regardait constamment le ciel avec un mélange d'effroi et de nostalgie dans les yeux.
+Au sein du clan céleste, les 72 âmes s'étaient calmées après avoir hurlé et imploré le ciel. Cependant, seul le Grand Empyrée Jiu Di savait ce qui s'était passé, et son cœur était troublé. Il cultivait, mais il regardait constamment le ciel avec un mélange d'effroi et de nostalgie dans les yeux.
 
 Durant toute sa vie, il avait aspiré à ce royaume légendaire, mais il n'avait toujours pas pu franchir cette étape.
 
-« Si le Grand Empereur Gu Dao est le plus puissant des Grands Empereurs, c'est sans doute parce qu'il a franchi cette étape ! Je ne sais pas quand je serai capable de le faire moi non plus... » Jiu Di resta silencieux, l'expression complexe pendant un long moment avant de pousser un profond soupir.
+« Si le Grand Empyrée Gu Dao est le plus puissant des Grands Empyrées, c'est sans doute parce qu'il a franchi cette étape ! Je ne sais pas quand je serai capable de le faire moi non plus... » Jiu Di resta silencieux, l'expression complexe pendant un long moment avant de pousser un profond soupir.
 
 Sur le Mont Empereur, Hai Zi se tenait au sommet de la montagne, vêtue d'une robe blanche. Ses vêtements dansaient au gré du vent et ses yeux étaient empreints d'hésitation et de confusion.
 
 Lors de la précédente divination, elle avait ressenti une étrange familiarité. Elle n'en avait pas parlé à Jiu Di, craignant que ce ne soit qu'une illusion.
 
-Dans le clan Ancien, sur le Mont Origine, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empereur Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
+Dans le clan Ancien, sur le Mont Origine, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empyrée Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
 
 « Maître... » La voix hésitante de Chi Man provint de derrière lui.
 
@@ -42,7 +42,7 @@ Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révéla
 
 À l'instant même où le démon ancien disparut, Wang Lin prit une profonde inspiration dans le pays de Luo Huo. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de cultivation, il fronça les sourcils.
 
-Il ne parvenait pas à déterminer son rang actuel. Il avait dépassé le pic du stade de la Tribulation du Vide, mais n'était pas encore un Grand Empereur. Il avait l'impression que ce qu'on appelait un Grand Empereur se trouvait à seulement une demi-étape de son état actuel.
+Il ne parvenait pas à déterminer son rang actuel. Il avait dépassé le pic du stade de la Tribulation du Vide, mais n'était pas encore un Grand Empyrée. Il avait l'impression que ce qu'on appelait un Grand Empyrée se trouvait à seulement une demi-étape de son état actuel.
 
 Cette demi-étape semblait infime, mais constituait en réalité un gouffre immense et extrêmement difficile à franchir.
 
@@ -80,9 +80,9 @@ Ces sept filaments se précipitèrent vers les sept orifices !
 
 Wang Lin se leva soudainement et sortit de la chambre secrète pour la première fois en 100 ans. Il se tint au-dessus de la tête de l'Ancêtre Céleste et fit un geste vers le ciel.
 
-Un soleil géant apparut derrière la tête de l'Ancêtre Céleste. Ce soleil était noir et blanc, n'étant qu'une silhouette plutôt qu'un corps matériel comme un véritable soleil de Grand Empereur.
+Un soleil géant apparut derrière la tête de l'Ancêtre Céleste. Ce soleil était noir et blanc, n'étant qu'une silhouette plutôt qu'un corps matériel comme un véritable soleil de Grand Empyrée.
 
-« Avec mon niveau de cultivation précédent, je ne pouvais pas le faire, mais désormais, j'en suis capable. En utilisant l'âme de Lian Daozhen comme guide, je peux fusionner la tête de l'Ancêtre Céleste avec mon soleil de Grand Empereur. Ainsi, mon soleil de Grand Empereur sera pleinement formé ! » Les yeux de Wang Lin s'illuminèrent et ses mains formèrent des sceaux. Des lueurs vertes suivirent les sept filaments dans les orifices de l'Ancêtre Céleste, faisant trembler la tête.
+« Avec mon niveau de cultivation précédent, je ne pouvais pas le faire, mais désormais, j'en suis capable. En utilisant l'âme de Lian Daozhen comme guide, je peux fusionner la tête de l'Ancêtre Céleste avec mon soleil de Grand Empyrée. Ainsi, mon soleil de Grand Empyrée sera pleinement formé ! » Les yeux de Wang Lin s'illuminèrent et ses mains formèrent des sceaux. Des lueurs vertes suivirent les sept filaments dans les orifices de l'Ancêtre Céleste, faisant trembler la tête.
 
 À cet instant, le ciel s'obscurcit et une pression écrasante descendit, enveloppant toute la zone. Même à une distance immense, on pouvait la ressentir distinctement.
 
@@ -96,20 +96,20 @@ Cependant, la vitesse de fonte ralentit et, avec le temps, sembla même s'arrêt
 
 « Digne de l'Ancêtre Céleste, qui a franchi le huitième Pont du Piétinement des Cieux... Même après sa mort, le simple fait de raffiner sa tête est si ardu... » murmura Wang Lin. Il songea à celui qui aurait pu tuer l'Ancêtre Céleste, mais ne trouva aucune piste.
 
-« Cependant, au bout du compte, ce n'est qu'une tête. » Wang Lin leva la main droite vers le vide. Le ciel sombre changea soudain de couleur et d'innombrables lignes ténues apparurent. Les autres ne pouvaient pas les voir ; il fallait être un Grand Empereur pour les percevoir vaguement. Pourtant, même les Grands Empereurs peinaient à maîtriser ces fils subtils.
+« Cependant, au bout du compte, ce n'est qu'une tête. » Wang Lin leva la main droite vers le vide. Le ciel sombre changea soudain de couleur et d'innombrables lignes ténues apparurent. Les autres ne pouvaient pas les voir ; il fallait être un Grand Empyrée pour les percevoir vaguement. Pourtant, même les Grands Empyrées peinaient à maîtriser ces fils subtils.
 
 Ce n'est qu'en franchissant le premier Pont du Piétinement des Cieux que l'on pouvait réellement les extraire du monde et les utiliser.
 
-Les yeux de Wang Lin brillèrent et il murmura pour lui-même : « Pas étonnant que la rumeur dise que le Grand Empereur Gu Dao pouvait tuer d'autres Grands Empereurs, et que plusieurs d'entre eux périrent par sa main lors de la grande guerre il y a des éons... »
+Les yeux de Wang Lin brillèrent et il murmura pour lui-même : « Pas étonnant que la rumeur dise que le Grand Empyrée Gu Dao pouvait tuer d'autres Grands Empyrées, et que plusieurs d'entre eux périrent par sa main lors de la grande guerre il y a des éons... »
 
-« Avec ce pouvoir de manipuler les lois du monde, il ne devrait pas être difficile de terrasser des Grands Empereurs ! »
+« Avec ce pouvoir de manipuler les lois du monde, il ne devrait pas être difficile de terrasser des Grands Empyrées ! »
 
-« L'Ancêtre Céleste est bel et bien un être ayant franchi les huit ponts. Une fois sa tête fusionnée avec mon soleil de Grand Empereur, elle deviendra un trésor et une aide surpuissants ! »
+« L'Ancêtre Céleste est bel et bien un être ayant franchi les huit ponts. Une fois sa tête fusionnée avec mon soleil de Grand Empyrée, elle deviendra un trésor et une aide surpuissants ! »
 
 C'est à ce moment qu'un grondement tonitruant retentit dans le ciel lointain et qu'une immense faille se produisit. Une masse de gaz noir se répandit et un démon ancien géant en sortit.
 
 Toutefois, au moment même où il émergeait, la créature fut saisie d'effroi. Le Sens Divin de Song Tian résidait dans le démon, et lorsqu'il perçut l'étrangeté des lieux, son expression changea. Il aperçut Wang Lin au loin. Ce dernier l'ignorait totalement, semblant saisir d'innombrables lignes ténues dans sa main. Toutes ces lignes s'enroulaient autour de la tête, puis Wang Lin se mordit la langue pour cracher du sang sur les fils et sur la tête.
 
-À cet instant, la tête de l'Ancêtre Céleste commença à fondre rapidement, absorbée par le soleil de Grand Empereur de Wang Lin. Alors que ce soleil se condensait avec force, une troisième couleur, l'or, apparut !
+À cet instant, la tête de l'Ancêtre Céleste commença à fondre rapidement, absorbée par le soleil de Grand Empyrée de Wang Lin. Alors que ce soleil se condensait avec force, une troisième couleur, l'or, apparut !
 
 « Contrôler la loi du monde !! Ceci... ceci est... » Le démon ancien qui venait d'apparaître poussa un cri d'incrédulité absolue.

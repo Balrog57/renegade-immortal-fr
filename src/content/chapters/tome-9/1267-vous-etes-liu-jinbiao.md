@@ -24,7 +24,7 @@ Il ne s'agissait pas d'un simple cultivateur du stade Brisant le Nirvana, mais d
 
 La voix majestueuse émana du jade et enveloppa tout le Secte de l'Origine. Même le continent de Mo Luo trembla sous la puissance de cette voix.
 
-Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternel du rang 8, n'était pas une simple cultivatrice du stade Brisant le Nirvana. Ses yeux s'illuminèrent et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans mon Secte de l'Origine ! »
+Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternel du rang 8, n'était pas une simple cultivatrice du stade du Scruteur du Nirvana. Ses yeux s'illuminèrent et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans mon Secte de l'Origine ! »
 
 « Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Ils voulaient racheter la vie de tout votre Secte de l'Origine ! »
 

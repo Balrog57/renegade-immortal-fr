@@ -100,7 +100,7 @@ Cette goutte fusionnerait avec celle formée par l'essence de la personne subiss
 
 La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancien. Ce n'était pas une chose à la portée de tous ! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte ; si elle était élevée, on pouvait en obtenir deux.
 
-L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, la personne ayant obtenu le plus avant lui n'avait récolté que huit gouttes ! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empereur Xuan Luo du Pays Ancien ! C'était aussi lui qui avait combattu le Grand Empereur Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Daos !
+L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, la personne ayant obtenu le plus avant lui n'avait récolté que huit gouttes ! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyrée Xuan Luo du Pays Ancien ! C'était aussi lui qui avait combattu le Grand Empyrée Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Daos !
 
 Wang Lin restait assis sur l'autel. Après une longue réflexion, il ferma les yeux et son aura ancienne se condensa à l'intérieur de son corps. Il entama la première étape de cette calamité : l'affinage de cette goutte de sang.
 

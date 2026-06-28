@@ -12,35 +12,35 @@ Peu importe le nombre de ces gens qu'il massacrerait, la famille Yao n'en souffr
 
 S'il voulait véritablement porter atteinte à la famille Yao, il devait éliminer ses propres membres !
 
-« Puisque la famille Yao veut ma mort, je vais d'abord anéantir les siens ! » Les yeux de Wang Lin s'illuminèrent et son intention meurtrière redoubla. Le membre de la famille Yao qui s'élançait avait déjà franchi le stade du Yin et du Yang pour atteindre celui du Nirvana Scryer.
+« Puisque la famille Yao veut ma mort, je vais d'abord anéantir les siens ! » Les yeux de Wang Lin s'illuminèrent et son intention meurtrière redoubla. Le membre de la famille Yao qui s'élançait avait déjà franchi le stade du Yin et du Yang pour atteindre celui du Scruteur du Nirvana.
 
-Stade initial du Nirvana Scryer ! Le regard de Wang Lin fut inondé d'une volonté de combat. Depuis qu'il avait atteint le stade Corporeal Yang, il n'avait pas encore affronté un véritable cultivateur du Nirvana Scryer. À cet instant, une soif de sang l'habitait, mais son cœur était tout aussi embrasé par une soif de combat infinie !
+Stade initial du Scruteur du Nirvana ! Le regard de Wang Lin fut inondé d'une volonté de combat. Depuis qu'il avait atteint le stade Yang Corporel, il n'avait pas encore affronté un véritable cultivateur du Scruteur du Nirvana. À cet instant, une soif de sang l'habitait, mais son cœur était tout aussi embrasé par une soif de combat infinie !
 
-Alors que l'énergie de l'épée approchait, Wang Lin s'élança promptement. Il devait neutraliser ce cultivateur du Corporeal Yang avant que le second n'arrive. Si les deux faisaient équipe, Wang Lin serait immédiatement désavantagé !
+Alors que l'énergie de l'épée approchait, Wang Lin s'élança promptement. Il devait neutraliser ce cultivateur du Yang Corporel avant que le second n'arrive. Si les deux faisaient équipe, Wang Lin serait immédiatement désavantagé !
 
-Le vieil homme du stade Corporeal Yang se détendit et n'hésita pas à battre en retraite. Il ne souhaitait plus combattre Ta Shan, sa tâche étant accomplie. Il lui suffisait désormais d'aider le membre de la famille Yao à remplir sa mission pour obtenir sa récompense.
+Le vieil homme du stade Yang Corporel se détendit et n'hésita pas à battre en retraite. Il ne souhaitait plus combattre Ta Shan, sa tâche étant accomplie. Il lui suffisait désormais d'aider le membre de la famille Yao à remplir sa mission pour obtenir sa récompense.
 
 Dès qu'il commença à reculer, Ta Shan le poursuivit sur ordre de Wang Lin. Son poing brillait d'un éclat intense tandis qu'il continuait de bombarder le vieillard.
 
-Un grondement tonitruant résonna à travers les étoiles alors que le vieil homme du stade Corporeal Yang reculait sans cesse, utilisant des sorts pour parer les coups.
+Un grondement tonitruant résonna à travers les étoiles alors que le vieil homme du stade Yang Corporel reculait sans cesse, utilisant des sorts pour parer les coups.
 
 Les yeux de Wang Lin devinrent écarlates et il fonça vers le rayon d'énergie d'épée appartenant au membre de la famille Yao. Telle une météorite, il traversa l'espace en un éclair.
 
 Yao Changdong esquissa un sourire, teinté de mépris, et accéléra encore sa course.
 
-En voyant cette scène, le cultivateur du Corporeal Yang fut rassuré. Cependant, il resta sur ses gardes, car le mouvement singulier de Wang Lin avait fait naître un frisson dans son cœur.
+En voyant cette scène, le cultivateur du Yang Corporel fut rassuré. Cependant, il resta sur ses gardes, car le mouvement singulier de Wang Lin avait fait naître un frisson dans son cœur.
 
 « Puisque ce membre de la famille Yao est arrivé, Xu Mu n'aura sans doute plus le temps de s'occuper de moi. » Le vieil homme continuait de fuir les attaques de Ta Shan, ses yeux oscillant entre la menace et Wang Lin qui chargeait Yao Changdong.
 
 Plus il s'éloignait de Wang Lin, plus il se sentait serein. Pourtant, à cet instant précis, le corps de Ta Shan se mit à briller avec une intensité décuplée. Cette lueur dorée était si puissante qu'un mortel en serait instantanément aveuglé.
 
-Même les cultivateurs en ressentiraient la douleur oculaire. Bien que le vieil homme fût au stade Corporeal Yang, il se trouvait trop près de Ta Shan. Ses pupilles se contractèrent et sa vision se brouilla.
+Même les cultivateurs en ressentiraient la douleur oculaire. Bien que le vieil homme fût au stade Yang Corporel, il se trouvait trop près de Ta Shan. Ses pupilles se contractèrent et sa vision se brouilla.
 
 Alors même qu'il tentait d'étendre son Sens Divin, l'attaque féroce de Ta Shan le frappa, le forçant à se concentrer sur sa défense.
 
 Profitant de l'aveuglement causé par l'éclat doré, Wang Lin fit un pas en avant dans sa charge vers Yao Changdong. Des ondulations apparurent sous ses pieds et il disparut.
 
-Au moment de sa disparition, bien que le vieil homme du stade Corporeal Yang ne puisse voir, son esprit trembla et ses yeux tressaillirent.
+Au moment de sa disparition, bien que le vieil homme du stade Yang Corporel ne puisse voir, son esprit trembla et ses yeux tressaillirent.
 
 Sans hésiter, il activa l'énergie d'origine de son corps pour la projeter frénétiquement, provoquant un effondrement massif d'énergie. Un vortex se forma à partir de toute cette énergie d'origine.
 
@@ -50,13 +50,13 @@ Le vortex du vieil homme n'avait pas encore fini de se former que le doigt de Wa
 
 C’est à ce moment que le corps de Ta Shan brilla intensément et que le tatouage sur son front fondit dans son poing droit. Alors que le vieil homme tentait sa fuite, le poing de Ta Shan l'écrasa. L'impact provoqua une série d'explosions soniques qui déchirèrent le ciel étoilé.
 
-Ce vieillard était digne d'être un cultivateur du sommet du stade Corporeal Yang. En pleine crise, il cracha une bouffée d'énergie d'origine pour ériger un bouclier. Le poing de Ta Shan pulvérisa la protection, projetant l'homme en arrière. Ses yeux étaient emplis de ressentiment alors qu'il ne pouvait plus retenir le sang qui s'échappait de sa bouche.
+Ce vieillard était digne d'être un cultivateur du sommet du stade Yang Corporel. En pleine crise, il cracha une bouffée d'énergie d'origine pour ériger un bouclier. Le poing de Ta Shan pulvérisa la protection, projetant l'homme en arrière. Ses yeux étaient emplis de ressentiment alors qu'il ne pouvait plus retenir le sang qui s'échappait de sa bouche.
 
 Toutefois, son corps se mua en une ombre sanglante et il fusionna rapidement avec le sang environnant. Sa silhouette devint spectrale et il parvint miraculeusement à échapper à l'attaque combinée de Wang Lin et Ta Shan.
 
 L'expression de Wang Lin était sombre. Voyant le vieillard utiliser le sang pour fuir, il leva la main droite et trancha l'air. Le Coup Céleste fut instantanément projeté, et l'ombre de sang en fuite fut fauchée en deux.
 
-Le vieil homme du stade Corporeal Yang émit un cri déchirant. Son âme d'origine, enveloppée d'une lumière sanguine, s'échappa en abandonnant son corps.
+Le vieil homme du stade Yang Corporel émit un cri déchirant. Son âme d'origine, enveloppée d'une lumière sanguine, s'échappa en abandonnant son corps.
 
 Tout cela se déroula en un éclair. Wang Lin n'ayant pas le temps de poursuivre, il leva la main pour former un sceau. Le Sceau Céleste apparut aussitôt devant lui pour ériger un rempart !
 

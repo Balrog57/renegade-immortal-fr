@@ -96,7 +96,7 @@ Soudain, il leva les yeux vers le ciel. Son expression devint féroce alors qu'i
 
 « Cieux ! Que vous soyez les cieux du monde caverneux ou ceux du Continent Astral Immortel, voyez-vous cela ?! Si les cieux sont si impitoyables, alors moi, Wang Lin, je jure de détruire les cieux de mon vivant !! » Les veines du visage de Wang Lin saillirent et il parut possédé par la folie en rugissant. Son corps irradia une aura puissante. Cette aura, semblable à de la fumée, se rassembla rapidement pour former une épée illusoire. Cette lame dégageait une présence terrifiante capable de briser les cieux !
 
-À cet instant, l'expression du Grand Empereur Xuan Luo changea radicalement pour la première fois depuis son entrée dans le monde caverneux ! Il fixa l'épée illusoire entourant Wang Lin — que lui seul pouvait percevoir — et fut stupéfait.
+À cet instant, l'expression du Grand Empyrée Xuan Luo changea radicalement pour la première fois depuis son entrée dans le monde caverneux ! Il fixa l'épée illusoire entourant Wang Lin — que lui seul pouvait percevoir — et fut stupéfait.
 
 « L'aura d'Extinction du Vide !! C'est l'aura d'Extinction du Vide !!! Ce gamin peut générer l'aura d'Extinction du Vide, il... il... »
 

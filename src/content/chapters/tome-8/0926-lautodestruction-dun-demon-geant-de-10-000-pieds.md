@@ -12,7 +12,7 @@ Li Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son 
 
 À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur d'Allheaven plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
 
-Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang ; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Nirvana Scryer.
+Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang ; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Scruteur du Nirvana.
 
 Grâce à la robustesse de son corps, il ne craignait guère la plupart des trésors magiques. En ce moment même, le géant chargeait droit sur Li Yunzi, qui se trouvait sur le bois géant. Les yeux du colosse étaient voilés et une lueur de folie y brillait.
 
@@ -108,4 +108,4 @@ L'expression de Wang Lin resta impassible tandis qu'il répondait calmement : «
 
 Xu Ting fut déconcerté et son expression devint incertaine. Serrant les dents, il déclara : « Très bien, relevons ce défi ! Nous massacrerons tout sur notre passage jusqu'à elle, et nous verrons qui réussira ! »
 
-La femme jouissait manifestement d'un rang très élevé, sans quoi elle ne dirigerait pas cette bataille. Pourtant, sa cultivation ne semblait pas si élevée, se situant seulement au milieu du stade Nirvana Scryer.
+La femme jouissait manifestement d'un rang très élevé, sans quoi elle ne dirigerait pas cette bataille. Pourtant, sa cultivation ne semblait pas si élevée, se situant seulement au milieu du stade Scruteur du Nirvana.

@@ -40,7 +40,7 @@ Il continuait à raffiner et à absorber la vaste quantité d'énergie originell
 
 Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de cultivation. Yao Bingyun possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
 
-Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la cultivation de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scryer du Nirvana !
+Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la cultivation de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scruteur du Nirvana !
 
 Cependant, ce passage était semblable à un goulet d'étranglement. Ce n'était pas par manque d'énergie originelle, mais par manque de compréhension des cieux et par l'absence d'un changement dans son domaine !
 

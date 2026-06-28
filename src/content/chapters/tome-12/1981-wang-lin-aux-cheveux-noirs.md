@@ -20,7 +20,7 @@ De longs cheveux noirs et des yeux sombres !
 
 Ce n'était pas un sourire de joie, mais de cruauté !
 
-Lorsque l'Exalt Céleste Hai Zi vit le sourire de Wang Lin au loin, son corps entier se glaça. Elle eut l'impression que le Wang Lin qu'elle connaissait était devenu un parfait étranger !
+Lorsque l'Exaltation Empyréenne Hai Zi vit le sourire de Wang Lin au loin, son corps entier se glaça. Elle eut l'impression que le Wang Lin qu'elle connaissait était devenu un parfait étranger !
 
 Le Wang Lin aux cheveux noirs lui inspirait une peur extrême, comme s'il était son ennemi naturel. Son corps trembla et elle recula de plusieurs pas !
 
@@ -78,9 +78,9 @@ Une fois l'armure rejetée, la folie dans les yeux de Wang Lin disparut pour lai
 
 Après avoir perdu son armure d'âme, le niveau de cultivation du Wang Lin aux cheveux noirs diminua, mais son aura de massacre augmenta de plusieurs fois. En quelques respirations à peine, le gaz noir autour de lui devint plus dense encore, et il se précipita vers les milliers de personnes !
 
-Le massacre se poursuivait tandis que le cœur de l'Exalt Céleste Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, une nouvelle parcelle de massacre apparaissait autour de lui.
+Le massacre se poursuivait tandis que le cœur de l'Exaltation Empyréenne Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, une nouvelle parcelle de massacre apparaissait autour de lui.
 
-Chaque mort infligée renforçait le sentiment d'étrangeté que l'Exalt Céleste Hai Zi éprouvait envers Wang Lin !
+Chaque mort infligée renforçait le sentiment d'étrangeté que l'Exaltation Empyréenne Hai Zi éprouvait envers Wang Lin !
 
 Au milieu de ce carnage déchaîné, des milliers de corps furent déchirés en un instant. Le corps de Wang Lin était entouré d'innombrables filaments de gaz noir, au point qu'il n'était plus visible.
 
@@ -92,13 +92,13 @@ Dans un craquement, la moitié d'un bras fut arrachée.
 
 « Que tous entrent dans ce lieu et tuent cet homme ! ! » Une voix empreinte d'une intention meurtrière jaillit du vide.
 
-Alors que la voix résonnait, des silhouettes apparurent rapidement sur les côtés de la rue. Des dizaines de milliers de figures surgirent. Elles ignorèrent totalement l'Exalt Céleste Hai Zi pour charger Wang Lin.
+Alors que la voix résonnait, des silhouettes apparurent rapidement sur les côtés de la rue. Des dizaines de milliers de figures surgirent. Elles ignorèrent totalement l'Exaltation Empyréenne Hai Zi pour charger Wang Lin.
 
 Le Wang Lin aux cheveux noirs recula de quelques pas, désormais enveloppé d'une masse imposante de gaz noir. La mort dans ses yeux contrastait violemment avec le sourire cruel sur son visage. Il leva la main et frappa impitoyablement son propre front !
 
 « Corps véritable des cinq éléments, sors de là ! ! » À ces mots, le corps de Wang Lin trembla et une forme superposée apparut au-dessus de lui. Son corps véritable des cinq éléments fut expulsé de son être !
 
-Le corps véritable des cinq éléments, à l'expression extrêmement sérieuse, apparut aux côtés de l'Exalt Céleste Hai Zi et scruta la scène.
+Le corps véritable des cinq éléments, à l'expression extrêmement sérieuse, apparut aux côtés de l'Exaltation Empyréenne Hai Zi et scruta la scène.
 
 Après avoir perdu son corps véritable des cinq éléments, le niveau de cultivation de Wang Lin diminua, mais l'aura de massacre autour de lui devint plus pure encore !
 
@@ -132,6 +132,6 @@ Dans un bruit de craquement, le doigt fut broyé ! D'un coup sec, une silhouette
 
 La figure trembla violemment et s'effondra soudainement.
 
-« Tu... Tu n'es pas Wang Lin ! !! Qui es-tu ? ! » La voix de l'Exalt Céleste Hai Zi, empreinte de terreur, résonna dans la nuit silencieuse.
+« Tu... Tu n'es pas Wang Lin ! !! Qui es-tu ? ! » La voix de l'Exaltation Empyréenne Hai Zi, empreinte de terreur, résonna dans la nuit silencieuse.
 
 Le Wang Lin aux cheveux noirs se retourna et lança un regard glacial à Hai Zi tout en s'avançant vers elle.

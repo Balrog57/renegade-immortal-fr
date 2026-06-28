@@ -20,9 +20,9 @@ Son regard était serein, sans la moindre perturbation. En ouvrant les paupière
 
 « Maître, votre disciple est incompétent... Cependant, même après d'innombrables années, je dois découvrir la raison pour laquelle le Royaume Céleste s'est effondré et pourquoi j'ai perdu la raison. Je prendrai ma revanche pour vous ! »
 
-Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il se trouvait à une demi-étape de l'étape Scryer du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
+Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il se trouvait à une demi-étape de l'étape Scruteur du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
 
-Atteindre l'étape Scryer du Nirvana avec seulement un peu plus de 1 000 ans de cultivation était suffisant pour terrasser l'esprit de n'importe qui. Wang Lin, un homme doté d'un talent ordinaire mais animé par ses propres idéaux et une nature inflexible, avait pu atteindre une telle hauteur après n'avoir persévéré que mille ans !
+Atteindre l'étape Scruteur du Nirvana avec seulement un peu plus de 1 000 ans de cultivation était suffisant pour terrasser l'esprit de n'importe qui. Wang Lin, un homme doté d'un talent ordinaire mais animé par ses propres idéaux et une nature inflexible, avait pu atteindre une telle hauteur après n'avoir persévéré que mille ans !
 
 Lorsqu'il était encore sur la planète Suzaku, nul n'aurait pu prévoir qu'il irait aussi loin !
 

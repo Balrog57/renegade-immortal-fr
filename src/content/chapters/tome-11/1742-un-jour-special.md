@@ -10,7 +10,7 @@ slug: un-jour-special
 
 Les dents du vieil homme Ma claquèrent. Il observa la silhouette floue et reconnut immédiatement ce qu'elle était. Ce trouble n'était pas causé par un sortilège, mais par l'effet unique résultant de la pression des Neuf Soleils !
 
-Les légendaires Neuf Soleils du Continent Astral Immortel étaient rarement vus, à moins d'appartenir à la même lignée ou à la même génération. L'écart immense entre les niveaux de cultivation et la pression exercée par les Grands Empereurs créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
+Les légendaires Neuf Soleils du Continent Astral Immortel étaient rarement vus, à moins d'appartenir à la même lignée ou à la même génération. L'écart immense entre les niveaux de cultivation et la pression exercée par les Grands Empyrées créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
 
 Il ne fallait même pas parler de ces êtres qui n'étaient que des fourmis face à Xuan Luo.
 
@@ -26,7 +26,7 @@ Le visage de Yun Yifeng était d'une pâleur mortelle et de grosses perles de su
 
 À cet instant, il frissonna et des craquements résonnèrent dans son corps. C'était comme si tout son être était en train d'être broyé.
 
-« Enfant, tu n'es pas mauvais ! » Le Grand Empereur Xuan Luo avait les mains derrière le dos. Après avoir balayé la foule du regard, ses yeux revinrent sur Yun Yifeng.
+« Enfant, tu n'es pas mauvais ! » Le Grand Empyrée Xuan Luo avait les mains derrière le dos. Après avoir balayé la foule du regard, ses yeux revinrent sur Yun Yifeng.
 
 « Il est très difficile de continuer à résister sous ma pression. Hélas, tu n'appartiens pas à l'Ancien Dao... Quel dommage... » Xuan Luo laissa échapper un soupir. Lorsqu'il détourna le regard, Yun Yifeng ne put plus supporter la pression. Il cracha du sang et s'effondra à genoux.
 
@@ -34,35 +34,35 @@ Le vieil homme Ma tint bon quelques respirations de plus. Le visage pâle, il es
 
 « Je vous en prie... Accordez une faveur à l'Ancien du Secte Gui Yi et laissez-nous partir... Nous quitterons immédiatement ce monde caverneux et nous ne reviendrons jamais... »
 
-La main droite du Grand Empereur Xuan Luo se tendit vers le premier étage de la tour. Le premier étage s'effondra, révélant totalement ce qui se trouvait à l'intérieur !
+La main droite du Grand Empyrée Xuan Luo se tendit vers le premier étage de la tour. Le premier étage s'effondra, révélant totalement ce qui se trouvait à l'intérieur !
 
 L'armure noire émettait une étrange lueur tandis que les débris tombaient.
 
-« Je vais prendre cette armure. Lorsque votre Secte Gui Yi estimera que vous avez les qualifications pour la récupérer, venez la chercher personnellement auprès de ce vieil homme ! » Les paroles du Grand Empereur Xuan Luo étaient calmes, et l'armure sembla être saisie par une force des cinq éléments. Elle vola vers Xuan Luo et disparut devant lui. Puis, Xuan Luo laissa échapper un froid reniflement et s'évanouit au loin.
+« Je vais prendre cette armure. Lorsque votre Secte Gui Yi estimera que vous avez les qualifications pour la récupérer, venez la chercher personnellement auprès de ce vieil homme ! » Les paroles du Grand Empyrée Xuan Luo étaient calmes, et l'armure sembla être saisie par une force des cinq éléments. Elle vola vers Xuan Luo et disparut devant lui. Puis, Xuan Luo laissa échapper un froid reniflement et s'évanouit au loin.
 
 Après le départ de Xuan Luo, sa voix résonna dans le cœur de tous les habitants de la planète des Cinq Éléments : « Ce n'est pas encore le moment pour vous de partir. Faites ce que vous avez à faire ! »
 
 Ce n'est qu'après une longue absence que le vieil homme Ma se redressa, l'expression complexe. Les autres se levèrent également peu à peu. Yun Yifeng serra les dents en levant les yeux vers le ciel, là où Xuan Luo s'était volatilisé. Son visage était d'une noirceur extrême.
 
-« Tôt ou tard, je deviendrai un Grand Empereur, je deviendrai le dixième soleil ! » grinça Yun Yifeng en serrant le poing.
+« Tôt ou tard, je deviendrai un Grand Empyrée, je deviendrai le dixième soleil ! » grinça Yun Yifeng en serrant le poing.
 
 L'environnement était plongé dans un silence de mort. Après un long moment, le vieil homme Ma soupira. Il regarda autour de lui, l'air désolé.
 
 Le vieil homme Ma dit lentement : « Laisse tomber. Le plan que nous attendions n'a plus aucune chance de réussir maintenant... Même si notre victoire était certaine, avec lui ici... nous ne pourrons pas mener cela à bien... »
 
-« Wang Lin est venu de la même direction, mais étant donné qu'ils ne sont pas apparus simultanément et d'après l'expression de Wang Lin tout à l'heure, il semble ignorer l'existence du Grand Empereur Xuan Luo... »
+« Wang Lin est venu de la même direction, mais étant donné qu'ils ne sont pas apparus simultanément et d'après l'expression de Wang Lin tout à l'heure, il semble ignorer l'existence du Grand Empyrée Xuan Luo... »
 
-« Dans cette optique, la raison pour laquelle le Grand Empereur Xuan Luo nous empêche de partir devient évidente », déclara calmement Yun Yifeng. Il était un disciple central du Secte Gui Yi et quelqu'un que même Xuan Luo jugeait talentueux. Il était naturellement très rusé, tout comme Wang Lin à cet égard.
+« Dans cette optique, la raison pour laquelle le Grand Empyrée Xuan Luo nous empêche de partir devient évidente », déclara calmement Yun Yifeng. Il était un disciple central du Secte Gui Yi et quelqu'un que même Xuan Luo jugeait talentueux. Il était naturellement très rusé, tout comme Wang Lin à cet égard.
 
 Avec des indices aussi simples, il parvint à reconstituer 80 ou 90 % de l'histoire.
 
-« Ce que Feng Er dit est exact, c'est sans doute cela. Le Grand Empereur Xuan Luo teste manifestement Wang Lin. Il est certainement venu du Continent Astral Immortel pour cet homme... » Les yeux du vieil homme Ma s'illuminèrent.
+« Ce que Feng Er dit est exact, c'est sans doute cela. Le Grand Empyrée Xuan Luo teste manifestement Wang Lin. Il est certainement venu du Continent Astral Immortel pour cet homme... » Les yeux du vieil homme Ma s'illuminèrent.
 
-« Il y a longtemps, Ye Mo est mort dans ce monde caverneux et a dispersé 3 000 gouttes de son sang. Ce Wang Lin doit avoir obtenu l'héritage de Ye Mo et ainsi attiré l'attention du Grand Empereur Xuan Luo... » Les yeux de Yun Yifeng brillèrent tandis qu'il se plongeait dans ses pensées.
+« Il y a longtemps, Ye Mo est mort dans ce monde caverneux et a dispersé 3 000 gouttes de son sang. Ce Wang Lin doit avoir obtenu l'héritage de Ye Mo et ainsi attiré l'attention du Grand Empyrée Xuan Luo... » Les yeux de Yun Yifeng brillèrent tandis qu'il se plongeait dans ses pensées.
 
-« Le Grand Empereur Xuan Luo ne nous laissera pas partir parce qu'il veut que nous servions de pierre pour aiguiser sa lame, afin de tester Wang Lin ! Avant de partir, il a dit que nous devions faire ce que nous avions à faire. Si nous ne comprenons pas son sens, nous ne pourrons jamais quitter cet endroit... Nous mourrons tous ici ! » Yun Yifeng se frotta les tempes.
+« Le Grand Empyrée Xuan Luo ne nous laissera pas partir parce qu'il veut que nous servions de pierre pour aiguiser sa lame, afin de tester Wang Lin ! Avant de partir, il a dit que nous devions faire ce que nous avions à faire. Si nous ne comprenons pas son sens, nous ne pourrons jamais quitter cet endroit... Nous mourrons tous ici ! » Yun Yifeng se frotta les tempes.
 
-Alors qu'il traversait les étoiles, le Grand Empereur Xuan Luo jeta un regard en arrière. La planète des Cinq Éléments apparut dans ses yeux, qui brillaient d'une pointe d'admiration.
+Alors qu'il traversait les étoiles, le Grand Empyrée Xuan Luo jeta un regard en arrière. La planète des Cinq Éléments apparut dans ses yeux, qui brillaient d'une pointe d'admiration.
 
 « Cet enfant est très rusé. Malheureusement... c'est un être céleste... Je me demande qui de Wang Lin ou de lui est le plus astucieux... Ce devrait être cet homme... » Xuan Luo secoua la tête et continua sa route.
 
@@ -80,7 +80,7 @@ Wang Lin se leva et rangea la Bête Nether. Il resta là à méditer longuement 
 
 « Aujourd'hui est un jour spécial... » Wang Lin soupira et fit un pas en avant. Il se changea en un rayon de lumière et plongea dans la rivière argentée, traversant le flux pour pénétrer dans le Royaume Céleste.
 
-Au moment précis où Wang Lin pénétrait dans le Royaume Céleste, le Grand Empereur Xuan Luo en sortit. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible ; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
+Au moment précis où Wang Lin pénétrait dans le Royaume Céleste, le Grand Empyrée Xuan Luo en sortit. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible ; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
 
 Cependant, juste au moment où il entrait, Wang Lin s'arrêta brusquement et se retourna. Le regard de Wang Lin était glacial alors qu'il fixait Xuan Luo.
 
@@ -88,15 +88,15 @@ Xuan Luo ne put s'empêcher d'être stupéfait par ce regard !
 
 « Vous me suivez depuis tout à l'heure. Puisque vous êtes déjà là, pourquoi ne pas vous montrer ? » La voix de Wang Lin était froide, chargée d'une intention meurtrière.
 
-Les yeux du Grand Empereur Xuan Luo brillèrent d'une lueur étrange. Il observa attentivement Wang Lin pendant un long moment, sans parler ni se révéler.
+Les yeux du Grand Empyrée Xuan Luo brillèrent d'une lueur étrange. Il observa attentivement Wang Lin pendant un long moment, sans parler ni se révéler.
 
 « Serait-ce que vous voulez vraiment que je vous force à sortir ? » Wang Lin ricana et agita sa main droite. Une tempête formée par ses sept essences jaillit, balayant les environs.
 
 Alors que la tempête passait, Wang Lin scruta soigneusement le vide et, après s'être assuré qu'il n'y avait rien, il entra dans le Royaume Céleste.
 
-En vérité, il n'avait pas réellement détecté le Grand Empereur Xuan Luo, mais Wang Lin était toujours d'une prudence extrême. Si cela avait été plus tôt, cela aurait suffi, mais il venait de quitter la planète des Cinq Éléments. Il craignait que le vieil homme Ma ne l'ait secrètement suivi et avait décidé de faire ce mouvement brusque. Si quelqu'un l'avait vraiment suivi, il aurait probablement été poussé à se dévoiler !
+En vérité, il n'avait pas réellement détecté le Grand Empyrée Xuan Luo, mais Wang Lin était toujours d'une prudence extrême. Si cela avait été plus tôt, cela aurait suffi, mais il venait de quitter la planète des Cinq Éléments. Il craignait que le vieil homme Ma ne l'ait secrètement suivi et avait décidé de faire ce mouvement brusque. Si quelqu'un l'avait vraiment suivi, il aurait probablement été poussé à se dévoiler !
 
-Ce n'est qu'une fois Wang Lin disparu que le Grand Empereur Xuan Luo sourit, une lueur d'admiration dans les yeux.
+Ce n'est qu'une fois Wang Lin disparu que le Grand Empyrée Xuan Luo sourit, une lueur d'admiration dans les yeux.
 
 « Ce petit gars est vraiment prudent ! Ses yeux contenaient une sorte de sortilège qui donnait l'illusion de fixer son interlocuteur... »
 

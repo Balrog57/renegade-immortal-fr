@@ -48,13 +48,13 @@ Les deux ne s'étaient pas vus depuis des centaines d'années, mais à cet insta
 
 « Maître prépare cette théière depuis ce moment-là ! » Le jeune homme en vert n'était autre que Xuan Luo !
 
-« Maître a observé tout ce que tu as accompli dans le clan céleste, mais il ne pouvait pas intervenir. S'il l'avait fait, tous les Grands Empereurs du clan céleste l'auraient remarqué... » dit Xuan Luo en fixant Wang Lin. « Mais j'avais la conviction que le seul disciple que je prendrais serait extraordinaire. Qu'il sortirait du clan céleste pour venir dans mon Ancient Dao ! »
+« Maître a observé tout ce que tu as accompli dans le clan céleste, mais il ne pouvait pas intervenir. S'il l'avait fait, tous les Grands Empyrées du clan céleste l'auraient remarqué... » dit Xuan Luo en fixant Wang Lin. « Mais j'avais la conviction que le seul disciple que je prendrais serait extraordinaire. Qu'il sortirait du clan céleste pour venir dans mon Ancient Dao ! »
 
 Wang Lin posa sa tasse et croisa le regard de Xuan Luo.
 
 « Le disciple a promis à Maître de venir ici et de protéger l'Ancient Dao... »
 
-« L'Ascendant Empereur aux cheveux blancs, le premier parmi les Grands Empereurs ! » rit Xuan Luo en se levant. « Wang Lin, repose-toi quelques jours. Dans trois jours, Maître t'emmènera dans certains lieux qui favoriseront grandement ta cultivation. Ce sera mon premier cadeau pour m'avoir pris comme maître ! »
+« L'Ascendant Empereur aux cheveux blancs, le premier parmi les Grands Empyrées ! » rit Xuan Luo en se levant. « Wang Lin, repose-toi quelques jours. Dans trois jours, Maître t'emmènera dans certains lieux qui favoriseront grandement ta cultivation. Ce sera mon premier cadeau pour m'avoir pris comme maître ! »
 
 Xuan Luo regarda Wang Lin avec un sourire, puis disparut.
 
@@ -72,7 +72,7 @@ Lorsqu'il réapparut, il se trouvait devant le Temple de l'Ancient Dao. C'était
 
 Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur cultivation était extraordinaire ; tous les neuf avaient atteint l'étoile 27 pour obtenir le titre de l'Ancient Dao. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
 
-L'expression de Wang Lin restait calme tandis que son regard balayait le groupe. Celui qui possédait le niveau de cultivation le plus élevé était un vieil homme. Ce dernier dégageait une pression comparable à celle d'un Ascendant Empereur du clan céleste. Quant aux huit autres, ils étaient comparables à des Empyrean Exalts.
+L'expression de Wang Lin restait calme tandis que son regard balayait le groupe. Celui qui possédait le niveau de cultivation le plus élevé était un vieil homme. Ce dernier dégageait une pression comparable à celle d'un Ascendant Empereur du clan céleste. Quant aux huit autres, ils étaient comparables à des Exaltation Empyréennes.
 
 Tandis que Wang Lin les observait, ils l'observaient également. Cependant, contrairement au calme imperturbable de Wang Lin, le cœur des neuf individus trembla dès qu'ils le virent. À leurs yeux, Wang Lin semblait être devenu un vortex géant capable de dévorer leurs regards. Même la puissance ancienne logée dans leurs corps paraissait aspirée par sa présence.
 
@@ -86,7 +86,7 @@ Xuan Luo sourit et s'apprêtait à poursuivre son discours, mais il fronça soud
 
 Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et deux mains gigantesques émergèrent de la brume. Un homme colossal, haut de plusieurs milliers de pieds, en sortit.
 
-Derrière lui suivirent quelques anciens démons de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une cultivation faible. Si peu possédaient la puissance d'un Empyrean Exalt, presque tous étaient comparables à des Golden Exalts. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
+Derrière lui suivirent quelques anciens démons de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une cultivation faible. Si peu possédaient la puissance d'un Exaltation Empyréenne, presque tous étaient comparables à des Exaltation Dorées. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
 
 Une fois apparus, ils se tinrent en rangs serrés dans le ciel et s'agenouillèrent face à la brume violette.
 
@@ -102,7 +102,7 @@ Le regard de Wang Lin balaya les deux vieillards, ses pupilles brillant d'une lu
 
 Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur de l'Ancient Dao ! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa cultivation ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
 
-« Son niveau de cultivation n'est que celui d'un Empyrean Exalt », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout l'Ancient Dao, mais il ne pouvait atteindre Wang Lin.
+« Son niveau de cultivation n'est que celui d'un Exaltation Empyréenne », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout l'Ancient Dao, mais il ne pouvait atteindre Wang Lin.
 
 L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement : « Pourquoi es-tu venu ? »
 
@@ -110,14 +110,14 @@ L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement : « Pourq
 
 « C'est mon disciple. Je présume que son nom ne vous est pas inconnu : l'Ascendant Empereur aux cheveux blancs du clan céleste, Wang Lin ! Il me remplacera lors de ma réincarnation pour protéger l'Ancient Dao », déclara calmement Xuan Luo en lançant un regard profond à l'Empereur.
 
-« Wang Lin, il est l'empereur de mon Ancient Dao ! Il est aussi celui que vous devrez protéger à l'avenir. Lorsqu'il prendra sa retraite, vous devrez choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empereur ! »
+« Wang Lin, il est l'empereur de mon Ancient Dao ! Il est aussi celui que vous devrez protéger à l'avenir. Lorsqu'il prendra sa retraite, vous devrez choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empyrée ! »
 
-L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empereur !
+L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empyrée !
 
-« La famille impériale et les Grands Empereurs coexistent depuis l'Antiquité... C'est sans doute pour cela ! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première parmi les Grands Empereurs. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empereur. »
+« La famille impériale et les Grands Empyrées coexistent depuis l'Antiquité... C'est sans doute pour cela ! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première parmi les Grands Empyrées. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyrée. »
 
 Alors que Wang Lin méditait, un rugissement s'éleva du vieil homme aux côtés de l'empereur.
 
-« Bien que tu sois le disciple d'un Grand Empereur, tu restes un membre de l'Ancient Dao. Selon les lois, tous les membres du clan, à l'exception du Grand Empereur lui-même, doivent s'agenouiller devant l'Empereur de l'Ancient Dao ! »
+« Bien que tu sois le disciple d'un Grand Empyrée, tu restes un membre de l'Ancient Dao. Selon les lois, tous les membres du clan, à l'exception du Grand Empyrée lui-même, doivent s'agenouiller devant l'Empereur de l'Ancient Dao ! »
 
 « Toi ! Pourquoi ne t'agenouilles-tu pas ? » Les yeux du vieil homme brillaient d'un regard glacial et ses paroles étaient aussi froides que son regard.

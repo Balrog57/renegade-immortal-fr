@@ -102,15 +102,15 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 « Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin ; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Red Butterfly, même le maître de Mo Zhi et l'All-Seer... Ils pensent tous que ce monde, le monde des grottes, le Royaume Céleste, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Red Butterfly, même le maître de Mo Zhi et l'Tout-Voyant... Ils pensent tous que ce monde, le monde des grottes, le Royaume Céleste, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
 « Cependant, est-ce vraiment ainsi ? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 
-« All-Seer, pensez-vous vraiment que j'ignore votre origine ? » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'immensité céleste. Il semblait capable de voir au-delà du ciel, au-delà du Royaume Céleste, par-delà les ténèbres infinies, pour percevoir une silhouette vêtue de noir, aux cheveux très longs, dégageant une aura de massacre et de destruction venant de loin.
+« Tout-Voyant, pensez-vous vraiment que j'ignore votre origine ? » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'immensité céleste. Il semblait capable de voir au-delà du ciel, au-delà du Royaume Céleste, par-delà les ténèbres infinies, pour percevoir une silhouette vêtue de noir, aux cheveux très longs, dégageant une aura de massacre et de destruction venant de loin.
 
 La destination de cette figure était le Continent Astral Immortel.
 
-« All-Seer, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immemorial, mais de la vérité que je vous dirai ! Je vous ferai connaître la véritable réalité ! » Wang Lin agita sa manche et un crâne apparut.
+« Tout-Voyant, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immemorial, mais de la vérité que je vous dirai ! Je vous ferai connaître la véritable réalité ! » Wang Lin agita sa manche et un crâne apparut.
 
 Ce crâne appartenait à Ji Qiong.
 

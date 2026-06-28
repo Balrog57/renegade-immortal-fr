@@ -1,4 +1,4 @@
----
+﻿---
 n: 1305
 title: La Rétribution Divine est une Calamité Mais Aussi une Fortune
 book: 9
@@ -30,7 +30,7 @@ L'arbre était si vaste qu'il comblait l'intégralité du vide. Un visage sécul
 
 « Maître de Secte ! » Le Grand Ancien du Secte Démon regarda l'arbre gigantesque avec exaltation, ses yeux empreints d'une révérence extrême.
 
-L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein du Secte Divin, le Daoïste Eau arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
+L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein du Secte Divine, le Daoïste Eau arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
 
 « Maître... »
 
@@ -60,7 +60,7 @@ Le corps du Grand Ancien du Secte Démon frémit et il leva les yeux. Une lueur 
 
 Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura : « Esclave Dao... si tu peux aider le Secte Démon dans cette affaire, ce vieil homme ne te tuera pas... »
 
-Dans la chambre secrète du Secte Divin, le Daoïste Eau tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna avec ferveur.
+Dans la chambre secrète du Secte Divine, le Daoïste Eau tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna avec ferveur.
 
 « Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité du Secte Fantôme comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte ! »
 

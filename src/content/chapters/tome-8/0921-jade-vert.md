@@ -28,7 +28,7 @@ Ils se tenaient à la proue du bois colossal. Leurs vêtements ondulaient sans q
 
 Derrière eux se pressait le reste des cultivateurs. La plupart étaient les 108 célestes, mais Wang Lin remarqua aussi quelques visages inconnus. Toutefois, à l'examen des fluctuations de leurs âmes originelles, il comprit que ces individus n'étaient pas faibles : ils se situaient au sommet du stade Corporel Yang.
 
-On dénombrait dix personnes au stade Nirvana Scryer. Outre ces dix-là, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant ; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
+On dénombrait dix personnes au stade Scruteur du Nirvana. Outre ces dix-là, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant ; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
 
 Dès que le regard de Wang Lin se posa sur le vieil homme, celui-ci ouvrit les yeux et le fixa, affichant un sourire empreint d'une froide intention.
 
@@ -92,11 +92,11 @@ Tous les occupants du bois regardèrent Wang Lin, chacun avec une émotion diff�
 
 Le jeune homme aux trois flûtes de bambou ouvrit soudainement les yeux pour observer attentivement Wang Lin. Il hocha la tête sans dire un mot. La femme en robe de palais sourit davantage, tandis que le vieil homme en noir changea subtilement son regard.
 
-Ces trois-là possédaient des niveaux de cultivation élevés ; étant au stade avancé du Nirvana Scryer, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
+Ces trois-là possédaient des niveaux de cultivation élevés ; étant au stade avancé du Scruteur du Nirvana, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
 
 Cette explosion de puissance n'était pas uniquement composée d'énergie originelle ; elle contenait aussi une trace de Loi. Les trois comprirent immédiatement ce point et accordèrent plus d'importance à Wang Lin. Bien que sa cultivation fût inférieure à la leur, ils le considéraient désormais comme un égal.
 
-Après tout, peu de cultivateurs au stade Nirvana Scryer parvenaient à comprendre les Lois.
+Après tout, peu de cultivateurs au stade Scruteur du Nirvana parvenaient à comprendre les Lois.
 
 Dans le monde de la cultivation, la force est souveraine. Pour obtenir la reconnaissance d'autrui, il faut atteindre leur niveau !
 

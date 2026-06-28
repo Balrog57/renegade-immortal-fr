@@ -20,7 +20,7 @@ De plus, puisqu'il avait déjà offensé l'Ancêtre Sanguin, il prit une décisi
 
 « Tant que je maîtriserai ce sort pour fusionner avec le monde, même si Tuo Sen vient, je serai capable de m'échapper ! Cependant, certains souvenirs de ce vieil homme sont intéressants ; ils pourraient me s'avérer utiles ! » Un regard déterminé brilla dans les yeux de Wang Lin. Il s'assit et commença à affiner l'énergie originelle à l'intérieur de son corps.
 
-« Une fois que j'aurai absorbé toute l'énergie originelle en moi, je serai extrêmement proche du véritable deuxième stade, le stade initial de Nirvana Scryer ! » Wang Lin réfléchit silencieusement un instant avant d'agiter la main. Les trois sacs et plusieurs épées volantes vinrent vers lui.
+« Une fois que j'aurai absorbé toute l'énergie originelle en moi, je serai extrêmement proche du véritable deuxième stade, le stade initial de Scruteur du Nirvana ! » Wang Lin réfléchit silencieusement un instant avant d'agiter la main. Les trois sacs et plusieurs épées volantes vinrent vers lui.
 
 Ces trois sacs de rangement appartenaient aux trois individus défunts. Le regard de Wang Lin se posa d'abord sur les épées que lui et Li Yuan avaient trouvées dans l'espace de stockage.
 

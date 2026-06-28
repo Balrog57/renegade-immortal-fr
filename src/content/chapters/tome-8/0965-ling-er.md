@@ -82,7 +82,7 @@ Ce dernier se leva, joignit les mains devant Wang Lin et rit : « Le nom de Maî
 
 « Et voici mon troisième frère, Zhen Xinghan, surnommé Maître Yi Xing. »
 
-L'homme d'âge moyen en robe violette avait le niveau de cultivation le plus bas. Bien qu'il fût au stade initial du Nirvana Scryer, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement : « Le Frère Wang peut simplement m'appeler par mon nom. »
+L'homme d'âge moyen en robe violette avait le niveau de cultivation le plus bas. Bien qu'il fût au stade initial du Scruteur du Nirvana, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement : « Le Frère Wang peut simplement m'appeler par mon nom. »
 
 « Je me demande quel est le surnom du Frère Wang ? » demanda Maître Yi Chen après les présentations.
 

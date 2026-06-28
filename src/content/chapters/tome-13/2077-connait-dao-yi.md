@@ -8,7 +8,7 @@ slug: connait-dao-yi
 ---
 Chapitre 2077 - Connaît Dao Yi !
 
-Maître Âme Écarlate venait du Continent Astral Immortel ; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde de caverne. Les Exaltés Dorés, les Exaltés Célestes, les Ascendants Célestes et les neuf existences au sommet du Continent Astral Immortel : les Grands Empereurs.
+Maître Âme Écarlate venait du Continent Astral Immortel ; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde de caverne. Les Exaltés Dorés, les Exaltés Célestes, les Ascendants Célestes et les neuf existences au sommet du Continent Astral Immortel : les Grands Empyrées.
 
 Sur le Continent Astral Immortel, avec son niveau de cultivation, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
 
@@ -56,39 +56,39 @@ Wang Lin esquissa un sourire énigmatique, presque imperceptible. Xu Liguo, le d
 
 Xu Liguo resta interdit un instant avant d'éclater de rire. Liu Jinbiao afficha un sourire glacial en regardant Maître Âme Écarlate, plongé dans le désespoir.
 
-« Mon oncle-maître est Xun Shanqing, un Exalté Céleste sous les ordres du Grand Empereur Dao Yi ! Si vous laissez ce dragon marin me tuer, mon oncle-maître le saura certainement. Je ne pense pas que votre maître soit disposé à se mettre à dos un autre Exalté Céleste ! » Le visage de Maître Âme Écarlate était livide, trahissant sa peur viscérale de la mort.
+« Mon oncle-maître est Xun Shanqing, un Exalté Céleste sous les ordres du Grand Empyrée Dao Yi ! Si vous laissez ce dragon marin me tuer, mon oncle-maître le saura certainement. Je ne pense pas que votre maître soit disposé à se mettre à dos un autre Exalté Céleste ! » Le visage de Maître Âme Écarlate était livide, trahissant sa peur viscérale de la mort.
 
-« De plus, le Grand Empereur Dao Yi est très partial. Si mon oncle-maître demande assistance, vous en paierez tous le prix ! Wang Lin, c'est un prix que vous ne pourrez supporter : le monde de la caverne tout entier sera anéanti !
+« De plus, le Grand Empyrée Dao Yi est très partial. Si mon oncle-maître demande assistance, vous en paierez tous le prix ! Wang Lin, c'est un prix que vous ne pourrez supporter : le monde de la caverne tout entier sera anéanti !
 
-« Vous avez séjourné sur le Continent Astral Immortel, vous connaissez donc les Grands Empereurs. Si vous me laissez partir, je jure de n'avoir plus jamais aucune intention envers le Royaume Céleste et de quitter immédiatement ce monde de caverne. »
+« Vous avez séjourné sur le Continent Astral Immortel, vous connaissez donc les Grands Empyrées. Si vous me laissez partir, je jure de n'avoir plus jamais aucune intention envers le Royaume Céleste et de quitter immédiatement ce monde de caverne. »
 
-Maître Âme Écarlate s'emballa. Il était convaincu que Wang Lin connaissait la puissance des Grands Empereurs et espérait que ses paroles serviraient de moyen de dissuasion.
+Maître Âme Écarlate s'emballa. Il était convaincu que Wang Lin connaissait la puissance des Grands Empyrées et espérait que ses paroles serviraient de moyen de dissuasion.
 
 En entendant cela, Liu Jinbiao tourna instinctivement le regard vers Wang Lin. Ce geste renforça la confiance de Maître Âme Écarlate.
 
 L'expression de Wang Lin devint étrange. Il observa Maître Âme Écarlate, qui utilisait tous les stratagèmes pour arracher un sursis à la mort, et sourit.
 
-Maître Âme Écarlate reprit précipitamment : « Et si vous laissez ce vieil homme partir, je peux supplier mon oncle-maître de vous accueillir dans sa secte. Vous seriez alors sous la protection du Grand Empereur Dao Yi. Une fois votre cultivation franchissant un nouveau palier, vous pourrez faire tout ce que vous voudrez sur le Continent Astral Immortel ! »
+Maître Âme Écarlate reprit précipitamment : « Et si vous laissez ce vieil homme partir, je peux supplier mon oncle-maître de vous accueillir dans sa secte. Vous seriez alors sous la protection du Grand Empyrée Dao Yi. Une fois votre cultivation franchissant un nouveau palier, vous pourrez faire tout ce que vous voudrez sur le Continent Astral Immortel ! »
 
-« Dao Yi... Le Grand Empereur, hein... » Wang Lin se leva et fixa Maître Âme Écarlate. À ses yeux, cet homme n'était qu'une fourmi.
+« Dao Yi... Le Grand Empyrée, hein... » Wang Lin se leva et fixa Maître Âme Écarlate. À ses yeux, cet homme n'était qu'une fourmi.
 
-Les nombreux cultivateurs du Royaume Céleste ne saisissaient pas vraiment la véritable puissance de Wang Lin. Mais lorsqu'ils entendirent Maître Âme Écarlate évoquer le mystérieux Grand Empereur Dao Yi, le simple nom fit trembler leurs âmes.
+Les nombreux cultivateurs du Royaume Céleste ne saisissaient pas vraiment la véritable puissance de Wang Lin. Mais lorsqu'ils entendirent Maître Âme Écarlate évoquer le mystérieux Grand Empyrée Dao Yi, le simple nom fit trembler leurs âmes.
 
 Le Maître Dao Blue Dream fronça les sourcils sans mot dire. Maître Nuage du Sud affichait également une expression sombre ; sa foi en la force de Wang Lin vacillait légèrement.
 
-« Sur le Continent Astral Immortel, il y avait à l'origine neuf Grands Empereurs. Ce Dao Yi est le plus faible d'entre eux », déclara lentement Wang Lin, le visage toujours impassible.
+« Sur le Continent Astral Immortel, il y avait à l'origine neuf Grands Empyrées. Ce Dao Yi est le plus faible d'entre eux », déclara lentement Wang Lin, le visage toujours impassible.
 
-Les yeux de Maître Âme Écarlate s'illuminèrent. Il savait cela aussi, et en entendant Wang Lin le confirmer, il fut persuadé que ce dernier mesurait l'immense puissance des Grands Empereurs.
+Les yeux de Maître Âme Écarlate s'illuminèrent. Il savait cela aussi, et en entendant Wang Lin le confirmer, il fut persuadé que ce dernier mesurait l'immense puissance des Grands Empyrées.
 
-Pourtant, une hésitation le taraudait. Le ton nonchalant de Wang Lin en parlant des Grands Empereurs laissait présager un présage funeste.
+Pourtant, une hésitation le taraudait. Le ton nonchalant de Wang Lin en parlant des Grands Empyrées laissait présager un présage funeste.
 
-« Cependant, même le plus faible des Grands Empereurs possède le pouvoir de dominer toute vie », poursuivit lentement Wang Lin, avant que son ton ne change brusquement.
+« Cependant, même le plus faible des Grands Empyrées possède le pouvoir de dominer toute vie », poursuivit lentement Wang Lin, avant que son ton ne change brusquement.
 
 « Pourtant, même si Dao Yi venait ici en personne, il devrait immédiatement battre en retraite face à moi. Je crains qu'il n'ose même pas se montrer. » Wang Lin sourit.
 
 À ces mots, les yeux de Maître Âme Écarlate s'écarquillèrent. Il regarda Wang Lin comme s'il avait perdu la raison. Personne n'oserait proférer une telle arrogance.
 
-« Vous avez du cran. Si vous êtes si brave, pourquoi ne pas vous rendre sur le Continent Astral Immortel pour le dire au Grand Empereur Dao Yi ? » Malgré sa peur, Maître Âme Écarlate ne put s'empêcher de se moquer face à une telle outrance.
+« Vous avez du cran. Si vous êtes si brave, pourquoi ne pas vous rendre sur le Continent Astral Immortel pour le dire au Grand Empyrée Dao Yi ? » Malgré sa peur, Maître Âme Écarlate ne put s'empêcher de se moquer face à une telle outrance.
 
 « Il n'est pas nécessaire d'en arriver là. » Wang Lin n'était pas pressé. Puisque ce Maître Âme Écarlate avait osé briser la formation du Royaume Céleste, sa simple mort ne suffirait pas à apaiser sa colère.
 
@@ -102,7 +102,7 @@ L'être le plus puissant du Continent Astral Immortel n'était plus Guo Dao, mai
 
 À travers le vortex, il aperçut un continent étranger, vit Wang Lin et entendit sa voix. Il eut la sensation d'être sur le fil du rasoir, entre la vie et la mort, avec Wang Lin comme seul maître de son destin. C'était comme si une simple pensée de Wang Lin suffisait à l'anéantir.
 
-Dans le Royaume Céleste du monde de caverne, Maître Âme Écarlate contemplait le vortex apparu au firmament. Une aura terrifiante s'en dégageait, le faisant trembler de tous ses membres. Il avait déjà ressenti cette aura de loin : c'était celle du Grand Empereur Dao Yi !
+Dans le Royaume Céleste du monde de caverne, Maître Âme Écarlate contemplait le vortex apparu au firmament. Une aura terrifiante s'en dégageait, le faisant trembler de tous ses membres. Il avait déjà ressenti cette aura de loin : c'était celle du Grand Empyrée Dao Yi !
 
 « C'est impossible... Impossible... »
 

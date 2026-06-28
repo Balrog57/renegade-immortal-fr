@@ -24,7 +24,7 @@ Situ Nan était resté le même. Arrogant, il avait très peu d'amis proches et,
 
 Sur l'invitation de Wang Lin, les deux s'envolèrent vers l'horizon, laissant les autres perplexes.
 
-En particulier, les trois frères Chen furent stupéfaits par ce changement soudain. Ce n'est que bien plus tard qu'ils sourirent avec amertume. Étant tous des cultivateurs du Nirvana Scryer et dotés d'une grande intelligence, ils réalisèrent à cet instant qu'il y avait 80 % de chances que le « frère » dont Situ Nan parlait en emmenant Zhou Xue et Ling Er ne soit autre que Wang Lin.
+En particulier, les trois frères Chen furent stupéfaits par ce changement soudain. Ce n'est que bien plus tard qu'ils sourirent avec amertume. Étant tous des cultivateurs du Scruteur du Nirvana et dotés d'une grande intelligence, ils réalisèrent à cet instant qu'il y avait 80 % de chances que le « frère » dont Situ Nan parlait en emmenant Zhou Xue et Ling Er ne soit autre que Wang Lin.
 
 Le Maître Hollow Wind ne put que sourire amèrement en secouant la tête. Puis, il regarda la femme vêtue d'argent qui était sortie du sort de Situ Nan, le cœur empli de doute.
 
@@ -38,7 +38,7 @@ Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe 
 
 Le visage de Wang Lin resta impassible et il sourit simplement : « J'ai juste eu de la chance. »
 
-« Pourtant, ta cultivation est un peu étrange. Tu n'es qu'au pic du stade intermédiaire du Nirvana Scryer, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Nirvana Cleanser, son talent était prodigieux. Il avait également étudié avec acharnement durant sa cultivation en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Nirvana Cleanser, bien que le prix à payer fût lourd.
+« Pourtant, ta cultivation est un peu étrange. Tu n'es qu'au pic du stade intermédiaire du Scruteur du Nirvana, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Purificateur du Nirvana, son talent était prodigieux. Il avait également étudié avec acharnement durant sa cultivation en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Purificateur du Nirvana, bien que le prix à payer fût lourd.
 
 Le combat entre Wang Lin et Situ Nan n'avait été qu'un simple échange amical. Cependant, Situ Nan pouvait évidemment ressentir une puissance terrifiante dissimulée en Wang Lin. Malgré son arrogance habituelle, il en était secoué.
 

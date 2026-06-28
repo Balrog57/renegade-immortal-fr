@@ -34,7 +34,7 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Daoïste Eau utilisait toute cette puissance pour attaquer Wang Lin !
 
-Si cette force explosait, oubliez Wang Lin : même le cultivateur en noir, Zhou De ; l'homme d'âge moyen, Cloud Edge ; l'Estimé Ling Dong ; Zhou Jin ; tout le Secte Divin et l'intégralité du Système Stellaire de la Mer Nuageuse seraient détruits !
+Si cette force explosait, oubliez Wang Lin : même le cultivateur en noir, Zhou De ; l'homme d'âge moyen, Cloud Edge ; l'Estimé Ling Dong ; Zhou Jin ; tout le Secte Divine et l'intégralité du Système Stellaire de la Mer Nuageuse seraient détruits !
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Daoïste Eau, pourrait rester indemne !
 
@@ -56,7 +56,7 @@ Des fissures de plusieurs dizaines de millions de pieds de long apparurent parto
 
 Tout cela se produisit en un instant !
 
-Dans le Secte Divin, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
+Dans le Secte Divine, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
 
 Peu après, à l'opposé de lui, le vieil homme du Secte des Cadavres de l'Alliance apparut également. L'expression sérieuse, il forma un sceau de sa main et pressa vers le bas !
 
@@ -70,7 +70,7 @@ Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cu
 
 Les cultivateurs de la Souillure Céleste du Secte Démoniaque apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force !
 
-Au sein même du Secte Divin, les Anciens qui étaient du côté du Daoïste Eau se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée !
+Au sein même du Secte Divine, les Anciens qui étaient du côté du Daoïste Eau se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée !
 
 Il y avait aussi Ta Aluo, flottant là, dont l'expression changea radicalement lorsqu'il pressa sa main pour résister à la tempête !
 

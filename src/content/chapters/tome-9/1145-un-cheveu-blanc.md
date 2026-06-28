@@ -8,7 +8,7 @@ slug: un-cheveu-blanc
 ---
 Les cheveux blancs flottant sous l'arc-en-ciel étaient une image qui resterait à jamais gravée dans les yeux des quatre grands anciens du Secte de l'Origine. L'odeur du sang dans l'air et les fluctuations provenant de l'âme originelle effondrée indiquaient qu'une bataille fulgurante s'était déroulée ici.
 
-Cet éclair incroyable, bien qu'il n'ait duré qu'un instant, avait coûté la vie au cultivateur du Nirvana Cleanser que les quatre anciens avaient prévu de combattre jusqu'à la mort.
+Cet éclair incroyable, bien qu'il n'ait duré qu'un instant, avait coûté la vie au cultivateur du Purificateur du Nirvana que les quatre anciens avaient prévu de combattre jusqu'à la mort.
 
 Cette scène les laissa transis.
 

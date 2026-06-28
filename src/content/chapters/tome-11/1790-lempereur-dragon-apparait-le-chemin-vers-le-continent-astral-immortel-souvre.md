@@ -48,7 +48,7 @@ Il ne se dirigea pas vers la Terre Déchue.
 
 « La Terre Déchue n'est pas si simple... Le curseur de la Perle de la Transgression Céleste... » Les yeux de Wang Lin s'illuminèrent. Des conjectures l'habitaient, mais le moment n'était pas venu d'en chercher la clé.
 
-« Il y avait aussi le Maître Scarlet Soul, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Daoïste Water... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
+« Il y avait aussi le Maître Scarlet Soul, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Daoïste de l'Eau... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
 
 « Tant de choses et tant de lieux restent inexpliqués... » Wang Lin ferma les yeux tout en avançant. Il mit de côté tous ces doutes et spéculations pour ne les affronter qu'une fois revenu du Continent Astral Immortel.
 

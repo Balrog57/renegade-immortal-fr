@@ -106,8 +106,8 @@ Wang Lin murmura doucement en sortant lentement de l'eau.
 
 Ses paroles étaient d'un calme désinvolte, mais elles plongèrent le Général de l'Eau dans une terreur profonde.
 
-À cet instant, à l'extérieur des cinq anneaux, le mystérieux Grand Empereur Xuan Luo se tenait là, observant la scène.
+À cet instant, à l'extérieur des cinq anneaux, le mystérieux Grand Empyrée Xuan Luo se tenait là, observant la scène.
 
-En entendant les paroles de Wang Lin, le Grand Empereur Xuan Luo esquissa un sourire satisfait.
+En entendant les paroles de Wang Lin, le Grand Empyrée Xuan Luo esquissa un sourire satisfait.
 
 « Alors ce gamin s'appelle Wang Lin. Très bien, très bien ! L'armure du Secte Gui Yi est célèbre même sur le Continent Astral Immortel ! Qu'il soit capable de la percer ainsi... il est vraiment doué ! »

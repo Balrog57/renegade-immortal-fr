@@ -84,17 +84,17 @@ Le sol sur lequel Wang Lin était assis se fendit soudainement. Alors que le pla
 
 Le cadavre féminin argenté suivit Wang Lin telle un rayon de lumière argentée. La chaleur extrême caressait son visage, faisant légèrement rougir sa pâleur. Elle ne cilla pas et garda ses yeux fixés sur lui.
 
-Le corps de Wang Lin continua de s'enfoncer, puis il ouvrit soudainement les yeux. Deux faisceaux de flammes jaillirent de ses pupilles. À l'instant même où ses yeux s'ouvrirent, la tempête atteignit son paroxysme et balaya toute la zone. Puis, l'aura d'un cultivateur du stade avancé du Nirvana Scryer se propagea.
+Le corps de Wang Lin continua de s'enfoncer, puis il ouvrit soudainement les yeux. Deux faisceaux de flammes jaillirent de ses pupilles. À l'instant même où ses yeux s'ouvrirent, la tempête atteignit son paroxysme et balaya toute la zone. Puis, l'aura d'un cultivateur du stade avancé du Scruteur du Nirvana se propagea.
 
 Cette sensation de puissance était telle qu'il avait l'impression de contrôler le monde entier. À cet instant, il sentait qu'il pouvait détruire l'univers d'un simple sortilège. Tout ce qu'il percevait changea ; tout ce qui se trouvait devant lui semblait n'être composé que de fils de loi.
 
 C'était la Loi, visible par ses yeux !
 
-Après avoir atteint la deuxième étape, il fallait scruter les Lois. Une fois un certain seuil franchi, on pouvait atteindre le sommet du Nirvana Scryer.
+Après avoir atteint la deuxième étape, il fallait scruter les Lois. Une fois un certain seuil franchi, on pouvait atteindre le sommet du Scruteur du Nirvana.
 
-— J'ai percé ! souffla Wang Lin en prenant une profonde inspiration. Atteindre simplement le stade avancé du Nirvana Scryer ne lui suffisait pas. Après l'évolution de son domaine et l'atteinte de ce stade, il sentait qu'il restait encore une marge de progression. Il n'avait besoin que d'assez d'énergie originelle pour atteindre le sommet absolu du stade avancé du Nirvana Scryer !
+— J'ai percé ! souffla Wang Lin en prenant une profonde inspiration. Atteindre simplement le stade avancé du Scruteur du Nirvana ne lui suffisait pas. Après l'évolution de son domaine et l'atteinte de ce stade, il sentait qu'il restait encore une marge de progression. Il n'avait besoin que d'assez d'énergie originelle pour atteindre le sommet absolu du stade avancé du Scruteur du Nirvana !
 
-Les yeux de Wang Lin brillèrent. N'ayant pas le temps de s'examiner, il se contenta de dévorer toutes les âmes originelles restantes en lui. À cet instant, son énergie de stade avancé du Nirvana Scryer fut transmutée par les flammes et devint bien plus puissante.
+Les yeux de Wang Lin brillèrent. N'ayant pas le temps de s'examiner, il se contenta de dévorer toutes les âmes originelles restantes en lui. À cet instant, son énergie de stade avancé du Scruteur du Nirvana fut transmutée par les flammes et devint bien plus puissante.
 
 L'énergie originelle dans son corps continua sa transformation, et la température corporelle de Wang Lin s'éleva progressivement. Le tatouage de l'Oiseau Vermillon jaillit de son corps pour tournoyer autour de lui.
 

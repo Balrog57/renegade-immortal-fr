@@ -54,7 +54,7 @@ Une fois expulsé, ce sang sembla doué d'une volonté propre, formant un filet 
 
 La montagne de glace apparut soudainement et bloqua immédiatement le sang noir. Cependant, ce dernier semblait dégager une chaleur extrême ; dès qu'il toucha la glace, la montagne commença à fondre, se teintant de noir dans le même temps.
 
-« Wang Lin, c'est la première des cinq Afflictions Célestes auxquelles les cultivateurs du Nirvana Shatterer font face : l'Affliction Corporelle. Son corps continuera de se détériorer jusqu'à ce que son âme s'éteigne ! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
+« Wang Lin, c'est la première des cinq Afflictions Célestes auxquelles les cultivateurs du Briseur du Nirvana font face : l'Affliction Corporelle. Son corps continuera de se détériorer jusqu'à ce que son âme s'éteigne ! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
 
 En ce moment de crise, Wang Wei agita la main et une multitude d'icebergs apparurent devant Wang Lin. Puis il chargea vers Hu Juan pour l'aider à contenir l'entité.
 
@@ -64,9 +64,9 @@ En voyant le Maître du Vide, Wang Lin fut frappé de stupeur. Non pas par l'arr
 
 « C'est la première Affliction Céleste... »
 
-Une fois le deuxième stade atteint, la longévité devient presque illimitée. Si les cultivateurs absorbent l'énergie d'origine du monde, celle-ci peut être transformée en une vitalité infinie. Pourtant, comment les cieux pourraient-ils permettre à une existence de perdurer aussi longtemps qu'eux ? Les cinq Afflictions Célestes étaient les calamités sans fin que les cultivateurs du Nirvana Shatterer devaient affronter !
+Une fois le deuxième stade atteint, la longévité devient presque illimitée. Si les cultivateurs absorbent l'énergie d'origine du monde, celle-ci peut être transformée en une vitalité infinie. Pourtant, comment les cieux pourraient-ils permettre à une existence de perdurer aussi longtemps qu'eux ? Les cinq Afflictions Célestes étaient les calamités sans fin que les cultivateurs du Briseur du Nirvana devaient affronter !
 
-Et ce n'était pas que ceux qui n'atteignaient pas le stade du Nirvana Shatterer seraient épargnés. Des calamités encore plus terrifiantes attendaient ceux qui échoueraient à l'atteindre...
+Et ce n'était pas que ceux qui n'atteignaient pas le stade du Briseur du Nirvana seraient épargnés. Des calamités encore plus terrifiantes attendaient ceux qui échoueraient à l'atteindre...
 
 À cet instant, le Maître du Vide, la respiration haletante, se précipita vers l'iceberg. Il ouvrit la bouche pour cracher de nouveau, mais il ne restait presque plus de sang. Outre l'odeur infecte, des morceaux de viscères pourries s'en échappèrent.
 

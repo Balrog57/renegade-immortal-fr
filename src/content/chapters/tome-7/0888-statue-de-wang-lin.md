@@ -11,11 +11,11 @@ Ce garçon à la grosse tête avait déjà aperçu, de loin, cette planète de c
 
 Avec son niveau de cultivation, un pays de cultivation de rang 6 ne méritait pas son attention, sans compter qu'il était accompagné de centaines de cultivateurs. La seule raison pour laquelle il se trouvait ici était qu'il passait par là. Sa véritable mission consistait à être la première vague de cultivateurs à pénétrer dans la région sud afin d'en enquêter sur la situation ! À mesure qu'il s'approchait lentement, l'expression de la vieille femme située aux abords de la planète Suzaku devint sombre.
 
-Les autres cultivateurs l'accompagnèrent ; ils utilisèrent leur vitesse fulgurante pour retourner sur la planète Suzaku. En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de cultivation était tout simplement trop faible ! N'importe quel cultivateur du stade Illusory Yin pourrait massacrer la planète entière !
+Les autres cultivateurs l'accompagnèrent ; ils utilisèrent leur vitesse fulgurante pour retourner sur la planète Suzaku. En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de cultivation était tout simplement trop faible ! N'importe quel cultivateur du stade Yin Illusoire pourrait massacrer la planète entière !
 
 « Messager Céleste, laissez-nous, deux frères, aller sur cette planète ! »
 
-Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Illusory Yin, mais seulement au sommet du dernier stade de l'Ascendant.
+Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Yin Illusoire, mais seulement au sommet du dernier stade de l'Ascendant.
 
 Son regard envers le garçon à la grosse tête était empreint de respect. Un autre homme suivait l'homme d'âge moyen ; les deux se ressemblaient comme deux gouttes d'eau. Le garçon à la grosse tête balaya la planète Suzaku de son sens divin et laissa paraître un soupçon de mépris. S'il voulait détruire cette planète, ce serait trop facile. Il déclara simplement : « Je vous donne quinze minutes. Tuez tous les cultivateurs d'ici pour moi ! »
 

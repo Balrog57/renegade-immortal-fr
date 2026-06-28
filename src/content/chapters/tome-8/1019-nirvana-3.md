@@ -66,7 +66,7 @@ Ming Hai fronça les sourcils et l'énergie céleste démoniaque dans son corps 
 
 Cette fois, il ne cherchait pas à blesser Ming Hai, mais à le désorienter pour saisir la moindre opportunité d'utiliser le sortilège « Arrête » !
 
-À l'annonce de ce seul mot, c'est comme si d'innombrables fils s'étaient enroulés autour de Ming Hai, le forçant à une pause inattendue. Si l'on ne comptait pas le corps d'Ancien Dieu de Wang Lin, celui-ci n'était qu'un cultivateur au sommet du stade intermédiaire du Nirvana Scryer. Utiliser le sort « Arrête » contre un être céleste au stade du Nirvana Cleanser signifiait subir un contrecoup violent, mais il s'en moquait !
+À l'annonce de ce seul mot, c'est comme si d'innombrables fils s'étaient enroulés autour de Ming Hai, le forçant à une pause inattendue. Si l'on ne comptait pas le corps d'Ancien Dieu de Wang Lin, celui-ci n'était qu'un cultivateur au sommet du stade intermédiaire du Scruteur du Nirvana. Utiliser le sort « Arrête » contre un être céleste au stade du Purificateur du Nirvana signifiait subir un contrecoup violent, mais il s'en moquait !
 
 Dès que le corps de Ming Hai se figea, la tempête septicolore frappa. Elle n'attaqua pas son corps, mais, sous le contrôle de Wang Lin, elle se précipita dans la blessure située sur le sourcil droit de Ming Hai !
 

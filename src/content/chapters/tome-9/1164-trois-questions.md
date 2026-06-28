@@ -98,7 +98,7 @@ C'était comme un lac paisible et enivrant. Quiconque croisait son regard, aussi
 
 « Li Qianmei ! » Lu Yuncong, les mains toujours derrière le dos, la dévisagea. Bien que frappé par cette élégance et cette beauté qui semblaient constituer un domaine en soi, son expression ne changea pas.
 
-« Li Qianmei, de la Secte de la Brise Céleste de rang 9 ! » Le vieil homme aux côtés de Lu Yuncong recula de quelques pas, sur ses gardes. Il l'avait reconnue instantanément : elle était la seule femme aux cheveux bleus de toute la Mer des Nuages, Li Qianmei !
+« Li Qianmei, de la Secte Briseur de Ciel de rang 9 ! » Le vieil homme aux côtés de Lu Yuncong recula de quelques pas, sur ses gardes. Il l'avait reconnue instantanément : elle était la seule femme aux cheveux bleus de toute la Mer des Nuages, Li Qianmei !
 
 « Qianmei salue le Frère Lu, » dit la femme avec un sourire en s'inclinant légèrement vers lui.
 

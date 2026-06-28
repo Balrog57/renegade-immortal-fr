@@ -70,7 +70,7 @@ D'une pensée, il referma l'espace de stockage qui n'avait pas encore succombé 
 
 Quelque temps plus tard, Wang Lin était trempé de sueur. Sa respiration était courte et ses yeux injectés de sang alors qu'il contemplait le vide. Devant lui flottaient une épée ensanglantée et un sceau doré !
 
-L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageait l'aura du Vide Tribulant. On y percevait également une trace de l'aura d'un Grand Empereur, signe qu'il avait été façonné par l'un des neuf soleils.
+L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageait l'aura du Vide Tribulant. On y percevait également une trace de l'aura d'un Grand Empyrée, signe qu'il avait été façonné par l'un des neuf soleils.
 
 « Certains trésors sans grande importance ont péri, mais peu importe qu'ils soient brisés. Cependant, trois trésors ont survécu à l'effondrement mais ont été emportés par les failles. J'étais prêt et j'ai laissé mon Sens Divin sur eux ; peut-être pourrai-je les retrouver un jour. »
 
@@ -88,7 +88,7 @@ Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement
 
 « La Cupidité doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses ! Il me suffira de le rencontrer pour résoudre bien des problèmes... Cupidité, j'attends avec impatience nos retrouvailles sur le Continent Astral Immortel... » Un léger sourire étira les lèvres de Wang Lin.
 
-« Pourtant, ce Cupidité est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui, mais il a réussi à quitter le monde caverneux... Même avec l'aide de ce Grand Empereur, Xuan Luo a également contribué... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
+« Pourtant, ce Cupidité est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui, mais il a réussi à quitter le monde caverneux... Même avec l'aide de ce Grand Empyrée, Xuan Luo a également contribué... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
 « Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing du Sect du Dragon Bleu n'est pas faible ; s'il vient à ma rencontre, la bataille sera féroce ! »
 

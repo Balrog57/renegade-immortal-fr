@@ -70,7 +70,7 @@ Il pouvait percevoir la Loi du monde, ressentir le mouvement de toutes choses et
 
 Son âme originelle n'était pas le seul élément devenu puissant. Son corps avait toujours été robuste, mais il sentait désormais une force circuler en lui ; il avait l'impression de pouvoir briser le ciel d'un seul coup de poing.
 
-« Je me demande comment je me compare désormais au Grand Empereur Gu Dao... » murmura Wang Lin en sortant du temple ancestral.
+« Je me demande comment je me compare désormais au Grand Empyrée Gu Dao... » murmura Wang Lin en sortant du temple ancestral.
 
 C'était la première fois qu'il quittait le sanctuaire depuis cent ans. En franchissant le seuil, il vit le soleil éclatant et le ciel limpide, mais son maître, Xuan Luo, était absent.
 
@@ -126,7 +126,7 @@ La silhouette de Wang Lin disparut du monde pour réapparaître près d'un bassi
 
 Avec son niveau actuel, il pouvait tenter de briser son goulot d'étranglement à tout instant. Il pourrait pénétrer dans le monde illusoire pour expérimenter l'acte de piétiner les cieux.
 
-Quelques jours plus tard, une ondulation invisible se propagea depuis la montagne, générant une pression que même des Grands Empereurs auraient eu du mal à supporter. Wang Lin apparut devant les familiers Ponts du Piétinement des Cieux !
+Quelques jours plus tard, une ondulation invisible se propagea depuis la montagne, générant une pression que même des Grands Empyrées auraient eu du mal à supporter. Wang Lin apparut devant les familiers Ponts du Piétinement des Cieux !
 
 Le ciel était encore brumeux et la terre recouverte de brouillard, limitant sa vue. Devant lui s'étendaient six ponts, chacun plus imposant que le précédent. Au-delà du dernier pont, une scène vague semblait immerger Wang Lin.
 

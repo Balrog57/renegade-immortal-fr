@@ -100,7 +100,7 @@ Les cultivateurs de la troisième étape utilisèrent tous leurs sorts, mais san
 
 À ce moment-là, Wang Lin sortit d'une distorsion spatiale. Il n'hésita pas à charger en avant, mais après seulement mille pieds, ses pupilles se rétractèrent. Il vit le brouillard avancer au loin comme une vague monstrueuse vers lui !
 
-« Qu'est-ce que c'est ?! » Wang Lin était sous le choc. Tout en s'enfuyant, il divisa une partie de son âme pour la fusionner avec l'All-Seer afin de pratiquer la divination. Il calcula qu'en fuyant dans cette direction, il en tirerait un grand bénéfice !
+« Qu'est-ce que c'est ?! » Wang Lin était sous le choc. Tout en s'enfuyant, il divisa une partie de son âme pour la fusionner avec le Tout-Voyant afin de pratiquer la divination. Il calcula qu'en fuyant dans cette direction, il en tirerait un grand bénéfice !
 
 Soudain, l'espace derrière lui se déforma et s'effondra, laissant place à un trou noir gigantesque. L'homme corpulent en sortit, mais la jeune fille qui avait miraculeusement survécu était absente !
 

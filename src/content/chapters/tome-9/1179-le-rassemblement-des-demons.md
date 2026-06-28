@@ -1,4 +1,4 @@
----
+﻿---
 n: 1179
 title: Le Rassemblement des Démons
 book: 9
@@ -30,7 +30,7 @@ Maître Pin Cendré ricana intérieurement. Lui et Maître Nuage d'Âme échang�
 
 Maître Nuage d'Âme envoya un message sonore à l'oreille de Maître Pin Cendré : « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Nirvana Briseur de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations ! Si nous unissons nos forces, nous pouvons l'éliminer instantanément ! »
 
-Maître Pin Cendré ferma les yeux et répondit par message : « Ce qui m'effraie le plus n'est pas son identité potentielle de membre du Secte Divin. C'est qu'il est manifestement un cultivateur Nirvana Purificateur, et pourtant ses sorts ont pu tuer Wu Qing instantanément. Il cache clairement son niveau de cultivation. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé ; une fois que nous serons engagés, essayez de le tester encore quelques fois ! »
+Maître Pin Cendré ferma les yeux et répondit par message : « Ce qui m'effraie le plus n'est pas son identité potentielle de membre du Secte Divine. C'est qu'il est manifestement un cultivateur Nirvana Purificateur, et pourtant ses sorts ont pu tuer Wu Qing instantanément. Il cache clairement son niveau de cultivation. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé ; une fois que nous serons engagés, essayez de le tester encore quelques fois ! »
 
 Les yeux de Maître Nuage d'Âme brillèrent d'assentiment.
 

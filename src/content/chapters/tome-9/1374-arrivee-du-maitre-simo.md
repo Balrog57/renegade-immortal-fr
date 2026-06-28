@@ -1,4 +1,4 @@
----
+﻿---
 n: 1374
 title: Arrivée du Maître Simo
 book: 9
@@ -8,7 +8,7 @@ slug: arrivee-du-maitre-simo
 ---
 Dès que le vieil homme sortit le Cristal de Mutation de Feu Brûlant, Wang Lin le reconnut. Il l'avait déjà vu auparavant et avait même passé plusieurs années à se soigner grâce à lui.
 
-Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent du Secte Divin de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
+Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent du Secte Divine de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
 
 Le Cristal de Mutation de Feu Brûlant des Terres Déchues était exactement le même que cette pierre blanche !
 
@@ -18,13 +18,13 @@ L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévou
 
 Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié.
 
-« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la cultivation du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divin de l'Oiseau Vermillon...
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la cultivation du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divine de l'Oiseau Vermillon...
 
-À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Mon Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou ! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon ! »
+À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Mon Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou ! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon ! »
 
 Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Brûlant, et ses yeux s'illuminèrent.
 
-« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Les Terres Déchues abritent également quelqu'un appartenant au Secte Divin de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque ?
+« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Les Terres Déchues abritent également quelqu'un appartenant au Secte Divine de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque ?
 
 En observant la chronologie, cela ne semble pas cohérent... » Wang Lin réprima son excitation initiale et commença à réfléchir. Après un long moment, il n'était toujours pas certain et laissa échapper un profond soupir.
 

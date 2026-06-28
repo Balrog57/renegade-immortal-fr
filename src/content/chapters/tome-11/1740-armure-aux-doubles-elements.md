@@ -112,7 +112,7 @@ La terre forma un vortex sous les pieds de Wang Lin tandis qu'une tempête de sa
 
 Au cœur de la tempête, Wang Lin restait calme. Tout cela était prévu. Tandis que le sable l'enveloppait et que le coup du géant approchait, Wang Lin ferma les yeux et se recroquevilla. Le Sortilège Ancestral Immortel enveloppa son corps.
 
-À l'extérieur de la Planète des Cinq Éléments, le Grand Empereur Xuan Luo observait la scène. Il avait lancé le test de Wang Lin depuis longtemps, et à cet instant, il était très satisfait. Une lueur étrange passa dans ses yeux.
+À l'extérieur de la Planète des Cinq Éléments, le Grand Empyrée Xuan Luo observait la scène. Il avait lancé le test de Wang Lin depuis longtemps, et à cet instant, il était très satisfait. Une lueur étrange passa dans ses yeux.
 
 « C'est un sortilège similaire au Corps Céleste Immortel... Que va-t-il bien faire... »
 

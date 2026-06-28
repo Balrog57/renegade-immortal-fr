@@ -50,7 +50,7 @@ Lorsqu'il avait pénétré pour la première fois dans le Sect Dong Lin sur le C
 
 « Est-ce que je contrôle vraiment tout ce qui se trouve dans le monde de la grotte... L'aura de l'Omniscient, ces tablettes de pierre... Les faux souvenirs du Souverain Céleste aux Sept Couleurs... Quel secret se cache derrière tout cela ? »
 
-« Ce Sect Dong Lin n'est pas un lieu ordinaire. Le Grand Empereur Dong Lin est apparu ici avant de tomber. On ne peut même pas retrouver son corps... »
+« Ce Sect Dong Lin n'est pas un lieu ordinaire. Le Grand Empyrée Dong Lin est apparu ici avant de tomber. On ne peut même pas retrouver son corps... »
 
 « Qui a détruit l'ensemble du Sect Dong Lin... Était-ce l'Omniscient ? Le Souverain Céleste aux Sept Couleurs ? Ou quelqu'un ayant des liens profonds avec le monde de la grotte et que j'aurais manqué... » Wang Lin méditait en silence.
 
@@ -58,13 +58,13 @@ Wang Lin observa le Bassin Dong Lin durant un long moment avant de prendre une p
 
 En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla. Un grondement résonna dans son esprit et il sembla se souvenir de quelque chose.
 
-« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empereur Dao Yi et à mon Maître sans attirer leur attention... »
+« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empyrée Dao Yi et à mon Maître sans attirer leur attention... »
 
 « Pourquoi est-ce que, dans le monde de la grotte, Blue Dream et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte ? Peut-être l'avait-il décelée sans pour autant parler ? »
 
-« Si c'est réellement le cas, j'ai également rencontré le Grand Empereur Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je suis désormais convaincu qu'ils ne l'ont pas vue ! »
+« Si c'est réellement le cas, j'ai également rencontré le Grand Empyrée Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je suis désormais convaincu qu'ils ne l'ont pas vue ! »
 
 « Que représente exactement la Perle Défiante du Ciel ? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Astral Immortel n'en est capable... »
 
@@ -72,7 +72,7 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « Si je parviens à lier cette affaire à la destruction du Sect Dong Lin, je découvrirai peut-être les secrets les plus stupéfiants cachés dans le monde de la grotte ! » L'expression de Wang Lin changea alors qu'il scrutait les environs.
 
-« En vérité, j'ai un autre moyen de découvrir ce qui est arrivé au Sect Dong Lin et qui l'a détruit... Mais même les Grands Empereurs ne peuvent le deviner par divination. Même l'Instructeur Impérial fut troublé pendant trois jours et en perdit la mémoire. Moi... puis-je y parvenir... »
+« En vérité, j'ai un autre moyen de découvrir ce qui est arrivé au Sect Dong Lin et qui l'a détruit... Mais même les Grands Empyrées ne peuvent le deviner par divination. Même l'Instructeur Impérial fut troublé pendant trois jours et en perdit la mémoire. Moi... puis-je y parvenir... »
 
 Wang Lin hésita un instant, mais bientôt, ses yeux s'emplirent de détermination. Ce n'était pas seulement une question liée au Sect Dong Lin, c'était aussi une affaire le concernant personnellement. Après tout, il venait du monde de la grotte et possédait la Perle Défiante du Ciel.
 

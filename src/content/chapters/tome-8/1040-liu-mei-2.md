@@ -118,7 +118,7 @@ L'esprit de Wang Lin se contracta frénétiquement. Il ne fallut qu'un instant p
 
 Le corps de Wang Lin trembla, comme si son âme venait de regagner sa demeure. Devant lui flottait la perle défiant le ciel. Celle-ci glissa lentement vers lui avant de disparaître entre ses sourcils.
 
-Tout en réfléchissant, Wang Lin ferma lentement les yeux et une aura de Nirvana Scryer au sommet jaillit de son corps. En chemin, il avait contemplé tant de lois qu'il avait atteint l'apogée du stade de Nirvana Scryer !
+Tout en réfléchissant, Wang Lin ferma lentement les yeux et une aura de Scruteur du Nirvana au sommet jaillit de son corps. En chemin, il avait contemplé tant de lois qu'il avait atteint l'apogée du stade de Scruteur du Nirvana !
 
 Après un long moment, Wang Lin ouvrit lentement les yeux. Il leva le regard vers le ciel avec une expression complexe et froide. Grâce à la perle défiant le ciel, il avait vu trop de choses. Pourtant, la silhouette de cette femme vue à la fin venait troubler la sérénité de son cœur.
 

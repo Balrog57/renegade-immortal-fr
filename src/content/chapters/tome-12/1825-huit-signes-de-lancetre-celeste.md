@@ -18,11 +18,11 @@ Alors que la jeune femme volait à toute allure, elle se rapprochait de plus en 
 
 « Ceci... ceci est... c'est un corps véritable essentiel !!! Il emprunte en fait le filon de feu terrestre pour former un corps véritable essentiel de feu ! »
 
-La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empereur. En réalité, c'était bien pire ! Après tout, elle n'avait jamais vu de Grand Empereur, mais elle avait déjà contemplé un corps véritable essentiel à plusieurs reprises !
+La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empyrée. En réalité, c'était bien pire ! Après tout, elle n'avait jamais vu de Grand Empyrée, mais elle avait déjà contemplé un corps véritable essentiel à plusieurs reprises !
 
 L'ancêtre du Grand Secte de l'Âme, l'Illustre Taureau Vert, possédait également un corps véritable essentiel. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même !
 
-« Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans le filon de feu terrestre... Pas étonnement qu'il soit venu ici malgré la possession d'un trésor de Grand Empereur... »
+« Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans le filon de feu terrestre... Pas étonnement qu'il soit venu ici malgré la possession d'un trésor de Grand Empyrée... »
 
 « Tout cela parce qu'il voulait former un corps véritable essentiel, une chose si difficile à créer que cela relève presque de la légende ! » Le visage de la jeune femme pâlit et une froideur glaciale émana de ses yeux. Elle connaissait parfaitement les corps véritables essentiels pour en avoir rêvé elle-même. Elle comprit qu'une fois le corps véritable essentiel formé, le filon de feu terrestre s'effondrerait et disparaîtrait.
 

@@ -42,7 +42,7 @@ En un instant, plusieurs personnes reconnurent Wang Lin !
 
 Le regard de Ling Tianhou était comme l'éclair, chargé d'une puissante énergie d'épée. Dès qu'il vit Wang Lin, il fronça les sourcils. Bien que son visage restât sombre, une trace de choc traversa ses yeux !
 
-« Stade initial du Nirvana Scryer ! Ce Wang Lin n'était qu'au stade de la Transformation de l'Âme, et en seulement quelques centaines d'années, il a atteint des hauteurs aussi inattendues !! À moins d'avoir rencontré une fortune immense, cela serait impossible ! Et il y a aussi cette marque entre ses sourcils… » Le choc provoqua un immense tumulte dans le cœur de Ling Tianhou.
+« Stade initial du Scruteur du Nirvana ! Ce Wang Lin n'était qu'au stade de la Transformation de l'Âme, et en seulement quelques centaines d'années, il a atteint des hauteurs aussi inattendues !! À moins d'avoir rencontré une fortune immense, cela serait impossible ! Et il y a aussi cette marque entre ses sourcils… » Le choc provoqua un immense tumulte dans le cœur de Ling Tianhou.
 
 Le vieil homme qui ressemblait à une montagne de chair ouvrit soudainement les yeux. Son regard brilla d'incrédulité alors qu'il fixait Wang Lin. L'expression du vieillard aussi maigre qu'un cadavre changea également, jetant un regard profond à Wang Lin. Il tourna ensuite les yeux vers le Tout-Voyant, affichant une expression comme s'il venait de comprendre quelque chose.
 
@@ -66,17 +66,17 @@ L'expression de Ling Tianhou devint extrêmement sombre alors qu'il fixait la ma
 
 « Quelle fortune Wang Lin a-t-il rencontrée durant ces centaines d'années ? C'est comme s'il était né de nouveau ! »
 
-Tout en réfléchissant, Ling Tianhou agita ses manches, faisant trembler l'homme qui criait sur Wang Lin et le repoussant brutalement dans la foule des cultivateurs. La voix de Ling Tianhou fut glaciale lorsqu'il déclara lentement : « Il n'a effectivement pas la qualification pour vous parler ainsi ! Être capable d'atteindre le stade initial du Nirvana Scryer à votre âge... si nous faisions abstraction de notre inimitié, même ce vieil homme vous admirerait ! »
+Tout en réfléchissant, Ling Tianhou agita ses manches, faisant trembler l'homme qui criait sur Wang Lin et le repoussant brutalement dans la foule des cultivateurs. La voix de Ling Tianhou fut glaciale lorsqu'il déclara lentement : « Il n'a effectivement pas la qualification pour vous parler ainsi ! Être capable d'atteindre le stade initial du Scruteur du Nirvana à votre âge... si nous faisions abstraction de notre inimitié, même ce vieil homme vous admirerait ! »
 
 Ses paroles provoquèrent une onde de choc immense. C'était comme verser de l'eau sur des braises ardentes. Les expressions de tous les cultivateurs alentour changèrent radicalement !
 
-Bai Wei eut un souffle coupé et fixa Wang Lin, l'esprit vide. Il ne pouvait croire que Wang Lin, qui n'était qu'au stade de la Transformation de l'Âme il y a quelques siècles, soit devenu un cultivateur du Nirvana Scryer, une figure qu'il ne considérait jusqu'alors que comme une légende !
+Bai Wei eut un souffle coupé et fixa Wang Lin, l'esprit vide. Il ne pouvait croire que Wang Lin, qui n'était qu'au stade de la Transformation de l'Âme il y a quelques siècles, soit devenu un cultivateur du Scruteur du Nirvana, une figure qu'il ne considérait jusqu'alors que comme une légende !
 
-« Nirvana Scryer… »
+« Scruteur du Nirvana… »
 
 Quant à Zhao Xingsha, son corps trembla ; il n'en croyait pas ses oreilles. Il resta pétrifié sur place. Ils n'étaient pas les seuls : presque tous les cultivateurs éprouvaient la même stupeur. Après tout, c'était tout simplement incroyable.
 
-« Ce Wang Lin a réellement atteint le stade du Nirvana Scryer. Bien qu'il y ait encore un fossé entre lui et nous, il est désormais quelqu'un qui a accompli tant de choses qu'on ne peut plus le traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit : « Wang Lin, je veux te demander : pourquoi as-tu fui à travers le vortex avant nous à l'époque ? As-tu fait quelque chose que tu ne voulais pas que nous sachions ? »
+« Ce Wang Lin a réellement atteint le stade du Scruteur du Nirvana. Bien qu'il y ait encore un fossé entre lui et nous, il est désormais quelqu'un qui a accompli tant de choses qu'on ne peut plus le traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit : « Wang Lin, je veux te demander : pourquoi as-tu fui à travers le vortex avant nous à l'époque ? As-tu fait quelque chose que tu ne voulais pas que nous sachions ? »
 
 L'expression de Wang Lin resta neutre lorsqu'il répondit calmement : « Ce junior a effectivement causé une calamité dans la Terre des Esprits Démoniaques, j'ai donc dû partir. »
 
@@ -86,7 +86,7 @@ Wang Lin répliqua avec calme : « Pour me défendre, ce junior a dû piéger la
 
 Après ces paroles, le vieil homme au corps de montagne de chair se redressa et demanda : « Le jeton de la grotte céleste est-il entre tes mains ? »
 
-« Je me demande bien qui a ébruité cela ! » répondit Wang Lin en regardant le colosse. Cet homme n'était qu'au stade initial du Nirvana Scryer, et de plus, Wang Lin ne se souvenait pas de lui parmi ceux qui l'avaient poursuivi.
+« Je me demande bien qui a ébruité cela ! » répondit Wang Lin en regardant le colosse. Cet homme n'était qu'au stade initial du Scruteur du Nirvana, et de plus, Wang Lin ne se souvenait pas de lui parmi ceux qui l'avaient poursuivi.
 
 L'esprit du vieil homme vacilla sous le regard de Wang Lin. Son expression changea, trahissant un éclair d'incrédulité.
 

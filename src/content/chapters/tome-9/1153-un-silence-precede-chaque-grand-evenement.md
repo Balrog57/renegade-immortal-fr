@@ -34,7 +34,7 @@ Il devait y avoir une raison pour qu'un homme sur le point de mourir mente. Et W
 
 « Le jade et la recette de la pilule... » Wang Lin commença à réfléchir. Le vieil homme qui assiégeait cet homme d'âge moyen devait sûrement convoiter ces trésors.
 
-« Quel genre de jade et quelle recette pourraient pousser deux cultivateurs du stade de Nettoyage du Nirvana à se battre à mort ? Cela a même poussé un cultivateur du stade intermédiaire à oser tenter de tuer un cultivateur du stade avancé... »
+« Quel genre de jade et quelle recette pourraient pousser deux cultivateurs du stade de Purificateur du Nirvana à se battre à mort ? Cela a même poussé un cultivateur du stade intermédiaire à oser tenter de tuer un cultivateur du stade avancé... »
 
 « Son intention initiale était de mourir par autodestruction afin que l'ouverture de son espace de stockage disparaisse avec lui. Cependant, pour quiconque possède un niveau de cultivation suffisamment élevé, il n'est pas difficile d'extraire quelque chose d'un espace de stockage fermé. »
 

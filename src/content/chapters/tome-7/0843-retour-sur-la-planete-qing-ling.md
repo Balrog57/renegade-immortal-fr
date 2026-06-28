@@ -110,4 +110,4 @@ Après avoir expulsé une bouffée de gaz gris hors de la grotte, Wang Lin ouvri
 
 L'énergie originelle pénétra le corps de la jeune femme et forma un vortex qui continua d'absorber l'énergie séparée de son être.
 
-« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de cultivation augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade de Scryer du Nirvana ! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.
+« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de cultivation augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade de Scruteur du Nirvana ! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.

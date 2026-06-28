@@ -6,19 +6,19 @@ bookTitle: "Alliance's Secret"
 en: Chapter 959 - All-Seers Secret
 slug: le-secret-de-lall-seer
 ---
-« Il faudra faire certains préparatifs pour ouvrir le Domaine des Esprits Démoniaques cette fois. Cette affaire est importante, et je dois également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression de l'All-Seer était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
+« Il faudra faire certains préparatifs pour ouvrir le Domaine des Esprits Démoniaques cette fois. Cette affaire est importante, et je dois également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression du Tout-Voyant était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
 
-« Le Pavillon du Bois Pourpre vous est toujours réservé. » La voix de l'All-Seer parvint de loin.
+« Le Pavillon du Bois Pourpre vous est toujours réservé. » La voix du Tout-Voyant parvint de loin.
 
-Wang Lin regarda la direction où l'All-Seer avait disparu et resta pensif.
+Wang Lin regarda la direction où le Tout-Voyant avait disparu et resta pensif.
 
 « Les actions de Ling Tianhou étaient empreintes d'une signification profonde ! Même lors du dernier sort qu'il a utilisé, il n'a pas déployé toute sa puissance... » Wang Lin ne pouvait deviner toutes les intentions de Ling Tianhou, mais il parvenait à en saisir l'idée générale.
 
-« Quant à l'All-Seer... je ne peux pas percer son mystère... » En ce qui concernait l'All-Seer, Wang Lin avait toujours été troublé par ses pensées secrètes. Même s'il trouvait une piste ou un indice, en un clin d'œil, une autre interprétation surgissait, rendant le tout à nouveau impénétrable.
+« Quant à le Tout-Voyant... je ne peux pas percer son mystère... » En ce qui concernait le Tout-Voyant, Wang Lin avait toujours été troublé par ses pensées secrètes. Même s'il trouvait une piste ou un indice, en un clin d'œil, une autre interprétation surgissait, rendant le tout à nouveau impénétrable.
 
-« Je ne peux pas voir clair en lui. » Wang Lin laissa échapper un soupir. Il y avait une sorte de voile de brume enveloppant l'All-Seer. Il avait le sentiment que chaque fois qu'il le voyait, celui-ci semblait légèrement différent.
+« Je ne peux pas voir clair en lui. » Wang Lin laissa échapper un soupir. Il y avait une sorte de voile de brume enveloppant le Tout-Voyant. Il avait le sentiment que chaque fois qu'il le voyait, celui-ci semblait légèrement différent.
 
-En vérité, Wang Lin avait spéculé que l'All-Seer se préparerait ainsi pour son arrivée. Cependant, face à la réalité, même si l'All-Seer avait agi comme Wang Lin l'avait prévu, il ressentait un décalage.
+En vérité, Wang Lin avait spéculé que le Tout-Voyant se préparerait ainsi pour son arrivée. Cependant, face à la réalité, même si le Tout-Voyant avait agi comme Wang Lin l'avait prévu, il ressentait un décalage.
 
 Tout était un peu trop fluide, comme si chaque chose se déroulait exactement selon le plan de Wang Lin.
 
@@ -124,6 +124,6 @@ Cependant, au moment où la lumière jaillit, une rafale de vent descendit de la
 
 « Hein ? » L'expression de Wang Lin changea alors qu'il fixait la flamme tremblante. Une pensée fulgurante traversa son esprit et ses yeux brillèrent d'un éclat intense !
 
-« Le vent souffle et la flamme change. Son mouvement est imprévisible dans le vent, rendant impossible de déterminer sa forme originelle... Je comprends ! L'All-Seer est comme cette lampe. La raison pour laquelle j'ai l'impression qu'il est une personne différente à chaque fois, c'est parce qu'il est en constante mutation. Tout comme un être possède des milliers d'avatars qui résident dans un même corps, alternant à chaque instant... C'est pourquoi l'All-Seer me procure ce sentiment si imprévisible ! »
+« Le vent souffle et la flamme change. Son mouvement est imprévisible dans le vent, rendant impossible de déterminer sa forme originelle... Je comprends ! L'Tout-Voyant est comme cette lampe. La raison pour laquelle j'ai l'impression qu'il est une personne différente à chaque fois, c'est parce qu'il est en constante mutation. Tout comme un être possède des milliers d'avatars qui résident dans un même corps, alternant à chaque instant... C'est pourquoi le Tout-Voyant me procure ce sentiment si imprévisible ! »
 
 Wang Lin regarda la lumière vacillante, son visage oscillant entre l'ombre et la clarté. Mais une profonde illumination brillait désormais dans ses yeux.

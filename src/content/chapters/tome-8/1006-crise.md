@@ -22,7 +22,7 @@ Ces lumières fusionnèrent pour former une carapace de tortue qui entoura le pa
 
 Au même moment, quatre volutes de fumée verte s'échappèrent de la carapace et se transformèrent en quatre anciens vêtus de robes vertes !
 
-Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de cultivation oscillait entre le début et le milieu du stade Nirvana Scryer.
+Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de cultivation oscillait entre le début et le milieu du stade Scruteur du Nirvana.
 
 Les quatre anciens dégageaient tous une aura céleste et une énergie spirituelle céleste dense. L'un d'eux, dont les yeux brillaient comme la foudre, fixa Wang Lin et hurla : « Saleté des bas-mondes, tu oses envahir la grotte céleste ? Ta punition est la mort ! »
 

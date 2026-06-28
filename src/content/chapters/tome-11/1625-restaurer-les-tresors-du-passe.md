@@ -60,7 +60,7 @@ Les yeux de Wang Lin brillèrent et il s'avança. Sa main droite tendit vers le 
 
 Les grondements du vortex devinrent plus intenses encore. Son rugissement colérique semblait exprimer son mécontentement face aux agissements de Wang Lin. Cependant, celui-ci n'en avait cure. Tandis qu'il extrayait davantage de puissance, il sortit la minuscule lueur qui constituait les restes de son Char de Guerre Anti-Dieu détruit.
 
-Ce Char de Guerre Anti-Dieu avait été anéanti lors de la première bataille de Wang Lin contre le Daoïste Water. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Daoïste Water.
+Ce Char de Guerre Anti-Dieu avait été anéanti lors de la première bataille de Wang Lin contre le Daoïste de l'Eau. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Daoïste de l'Eau.
 
 Le pouvoir de ce trésor était extraordinaire ! Il avait été créé par l'Estimé Xuan Bao du Royaume Céleste de la Pluie. Nommé Char de Guerre Anti-Dieu, il était d'une puissance extrême. Wang Lin avait survécu à de nombreux périls grâce à lui.
 

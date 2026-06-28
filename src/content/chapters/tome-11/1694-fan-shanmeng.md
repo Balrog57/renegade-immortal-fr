@@ -80,7 +80,7 @@ Les yeux de Wang Lin se rétrécirent et il l'observa attentivement sans dire un
 
 Après avoir fusionné avec la protection, une aura puissante émana du navire et la barrière devint encore plus robuste. Les grondements provenant de l'extérieur furent presque totalement étouffés, les sons atteignant leurs oreilles n'étant plus qu'un murmure imperceptible.
 
-« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empereur Dao Yi et le Grand Empereur Xuan Luo des anciens pays, apparurent près de notre Secte aux Sept Taoïsmes. Leurs pouvoirs étaient divins ; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immemorial.
+« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyrée Dao Yi et le Grand Empyrée Xuan Luo des anciens pays, apparurent près de notre Secte aux Sept Taoïsmes. Leurs pouvoirs étaient divins ; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immemorial.
 
 « Normalement, Seven-Colored et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
@@ -102,7 +102,7 @@ L'expression de Wang Lin resta imperturbable et il ne montra aucune fluctuation 
 
 Après avoir médité en silence un instant, Wang Lin demanda lentement : « Quel genre d'endroit est le Domaine Divin Immemorial ? »
 
-« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immemorial s'ouvrira neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empereur... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
+« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immemorial s'ouvrira neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyrée... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
 
 « Peut-être que le dixième soleil apparaîtra lors de la dixième ouverture...
 
