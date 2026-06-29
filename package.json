@@ -6,7 +6,6 @@
   "scripts": {
     "dev": "astro dev",
     "build": "astro check && astro build",
-    "prebuild": "node scripts/copy-images.mjs",
     "preview": "astro preview",
     "check": "astro check",
     "convert": "node scripts/convert.mjs"

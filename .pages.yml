@@ -1,6 +1,8 @@
 ﻿media:
   input: public/wiki/images
   output: /renegade-immortal-fr/wiki/images
+  categories: [image]
+  extensions: [webp, jpg, jpeg, png, gif]
 
 content:
   - name: chapters
