@@ -1,0 +1,67 @@
+﻿media:
+  input: public/wiki/images
+  output: /renegade-immortal-fr/wiki/images
+
+content:
+  - name: chapters
+    label: Chapitres
+    type: collection
+    path: src/content/chapters
+    fields:
+      - { name: n, label: "Numéro", type: number }
+      - { name: title, label: "Titre FR", type: string }
+      - { name: book, label: "Tome", type: number }
+      - { name: bookTitle, label: "Titre du tome", type: string }
+      - { name: en, label: "Titre EN", type: string }
+      - { name: body, label: "Texte", type: rich-text }
+
+  - name: books
+    label: Livres (tomes)
+    type: collection
+    path: src/content/books
+    fields:
+      - { name: book, label: "Numéro", type: number }
+      - { name: title, label: "Titre", type: string }
+      - { name: cover, label: "Couverture", type: image }
+      - { name: chaptersCount, label: "Nombre de chapitres", type: number }
+      - { name: rangeStart, label: "Premier n°", type: number }
+      - { name: rangeEnd, label: "Dernier n°", type: number }
+      - { name: summary, label: "Résumé", type: text }
+      - name: majorEvents
+        label: "Événements majeurs"
+        type: list
+        field: { name: event, type: string }
+      - name: introducedCharacters
+        label: "Personnages introduits"
+        type: list
+        field: { name: name, type: string }
+      - { name: body, label: "Texte", type: rich-text }
+
+  - name: wiki
+    label: Wiki
+    type: collection
+    path: src/content/wiki
+    fields:
+      - { name: name, label: "Nom", type: string }
+      - { name: title, label: "Titre affiché", type: string }
+      - name: type
+        label: "Type"
+        type: select
+        options: [personnage, lieu, secte, cultivation]
+      - name: categories
+        label: "Catégories"
+        type: list
+        field: { name: cat, type: string }
+      - { name: image, label: "Image", type: image }
+      - { name: url, label: "Source Fandom", type: string }
+      - { name: body, label: "Contenu", type: rich-text }
+
+  - name: site
+    label: Page d'accueil
+    type: file
+    path: src/content/site/home.md
+    fields:
+      - { name: title, label: "Titre", type: string }
+      - { name: section, label: "Section", type: string }
+      - { name: order, label: "Ordre", type: number }
+      - { name: body, label: "Contenu", type: rich-text }
